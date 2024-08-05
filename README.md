@@ -1,10 +1,14 @@
+**Atletico close to agreeing deal for Man City's Alvarez**\
+`Atletico Madrid are close to striking a deal with Manchester City to sign forward Julian Alvarez.`\
+https://nytimes.com/athletic/5678762/2024/08/05/julian-alvarez-transfer-atletico-madrid/
+
 **To Become the G.O.A.T., Simone Biles First Had to Be a Turtle**\
 `She sealed her legacy with four medals at the Paris Games. She created it by being herself and going at her own pace.`\
 https://nytimes.com/2024/08/05/world/olympics/simone-biles-gymnastics-goat-paris.html
 
-**Why Is Iran Expected to Attack Israel? What to Know About the Crisis**\
+**Why Is Iran Expected to Attack Israel? What to Know About the Crisis.**\
 `Iran has vowed to retaliate for the killing of a senior Hamas leader in Tehran last week in an attack for which it has blamed Israel.`\
-https://nytimes.com/live/2024/08/05/world/israel-iran-hezbollah-gaza/iran-israel-attack-strikes-why
+https://nytimes.com/2024/08/05/world/middleeast/iran-israel-attack-strikes-why.html
 
 **Tracking Tropical Storm Emilia**\
 `See the likely path and wind arrival times for Emilia.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/05/business/bitcoin-stock-market.html
 **Protesters defied the risk of fresh violence to drive Hasina from power.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/08/05/world/bangladesh-protests/protesters-defied-the-risk-of-fresh-violence-to-drive-hasina-from-power
-
-**Diplomacy intensifies as fears of a wider regional war loom.**\
-`By Vivian Nereim`\
-https://nytimes.com/live/2024/08/05/world/israel-iran-hezbollah-gaza/diplomacy-intensifies-as-fears-of-a-wider-regional-war-loom
 
