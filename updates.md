@@ -1,3 +1,7 @@
+**Crowds Swarm Prime Minister’s Residence after Bangladesh Leader Flees**\
+`Looters made off with furniture, bedding and potted plants`\
+https://nytimes.com/2024/08/05/world/asia/bangladesh-protests-looting-prime-minister-residence.html
+
 **Crowds swarm prime minister’s residence after Bangladesh leader flees**\
 `Looters made off with furniture, bedding and potted plants`\
 https://nytimes.com/2024/08/05/world/asia/bangladesh-protests-looting-prime-minister-residence.html
