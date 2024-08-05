@@ -1,3 +1,7 @@
+**The Willful Amnesia Behind Trump’s Attacks on Harris’s Identity**\
+`Suggesting that there is something contrived about a mixed-race person identifying as Black assumes that the choice wasn’t already made for her.`\
+https://nytimes.com/2024/08/04/magazine/kamala-harris-black-identity-history.html
+
 **Harris Faces Party Divisions as She Chooses a Running Mate**\
 `The vice president conducted interviews with potential candidates over the weekend and has fielded concerns from donors and activists over the choice.`\
 https://nytimes.com/2024/08/04/us/politics/kamala-harris-vp-democrats-divided.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5646216/2024/08/04/fantasy-baseball-notebook-trade-
 **Jimmy Carter Said to Have Plans to Vote for Kamala Harris**\
 `The former president, whose 100th birthday is Oct. 1, seems to have found some new motivation in the 2024 election.`\
 https://nytimes.com/2024/08/04/us/politics/jimmy-carter-vote-for-kamala.html
-
-**China snaps U.S. men's streak in Olympic medley relay**\
-`Chinese swimmers have faced questions about a doping scandal from the Tokyo Games three years ago.`\
-https://nytimes.com/athletic/5680125/2024/08/04/china-gold-medal-medley-relay-olympic-swimming/
 
