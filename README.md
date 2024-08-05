@@ -1,4 +1,4 @@
-**Here’s what to watch in the floor final.**\
+**Here’s what to watch in the floor exercise final.**\
 `By Maggie Astor and Juliet Macur`\
 https://nytimes.com/live/2024/08/05/world/olympics-gymnastics-beam-floor-biles/heres-what-to-watch-in-the-floor-final
 
