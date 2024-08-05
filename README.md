@@ -1,10 +1,18 @@
+**Protesters defied the risk of fresh violence to drive Hasina from power.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/08/05/world/bangladesh-protests/protesters-defied-the-risk-of-fresh-violence-to-drive-hasina-from-power
+
+**Diplomacy intensifies as fears of a wider regional war loom.**\
+`By Vivian Nereim`\
+https://nytimes.com/live/2024/08/05/world/israel-iran-hezbollah-gaza/diplomacy-intensifies-as-fears-of-a-wider-regional-war-loom
+
 **Advice: When the Stock Market Drops, Stay Calm and Do Nothing**\
 `There is no reason to think that you can predict what will happen in the markets in the next few hours or in the near future. It’s better not to try.`\
 https://nytimes.com/2024/08/05/business/stock-market-advice.html
 
 **Nvidia tumbles after reports of a chip delay.**\
 `The A.I. chip maker’s shares fell in early trading, but the stock pared some of its losses.`\
-https://nytimes.com/live/2024/08/05/business/stocks-market-crash-economy/nvidia-stocks
+https://nytimes.com/2024/08/05/business/nvidia-stocks.html
 
 **Traders Wonder if the Fed Could Make an Emergency Rate Cut as Markets Tumble**\
 `The Federal Reserve only cuts rates outside of regularly scheduled meetings in extreme cases. Some investors think this could merit an emergency move, though others doubt it.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5681488/2024/08/05/uswnt-emma-hayes-players-trainin
 **PSG confirm Neves signing from Benfica**\
 `Paris Saint-Germain have confirmed the signing of Joao Neves from Benfica.`\
 https://nytimes.com/athletic/5681394/2024/08/05/joao-neves-psg-transfer/
-
-**Scoop City: Preseason Week 1 Watch Guide**\
-`The full schedule for Week 1 of the NFL preseason, with notes along the way.`\
-https://nytimes.com/athletic/5681477/2024/08/05/preseason-week-1-watch-guide-scoop-city/
-
-**Here’s what to know about the market meltdown.**\
-`A rout that began in Asia continued in Europe, and U.S. stocks are set to fall sharply. Japan’s benchmark index logged its worst single-day point decline.`\
-https://nytimes.com/live/2024/08/05/business/stocks-market-crash-economy/heres-what-to-know-about-the-market-meltdown
 
