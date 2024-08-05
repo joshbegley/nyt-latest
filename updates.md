@@ -1,3 +1,15 @@
+**Adin Ross Gives Trump a Cybertruck, a Rolex and Access to a Heavily Male Audience**\
+`The 23-year-old internet celebrity is enormously popular with a testosterone-heavy demographic that the former president sees as critical to his re-election chances.`\
+https://nytimes.com/2024/08/05/us/politics/trump-adin-ross-livestream-gifts.html
+
+**Sanchez considering return to Udinese**\
+`Chile forward Alexis Sanchez is considering an offer from his former club Udinese.`\
+https://nytimes.com/athletic/5682593/2024/08/05/alexis-sanchez-udinese-transfer/
+
+**U.N. Fires Nine Aid Workers Accused of Taking Part in Oct. 7 Attack, but Clears 10 Others**\
+`Israel accused 19 UNRWA employees of playing a role in the Hamas-led raids that set off the war. Investigators cleared 10 for lack of evidence, but said the other nine “may have been involved.”`\
+https://nytimes.com/2024/08/05/world/middleeast/unrwa-oct-7-attack.html
+
 **Bloomberg Disciplines Journalists Over Prisoner Swap Article**\
 `The news organization said it had broken an embargo about the news in a violation of its editorial standards.`\
 https://nytimes.com/2024/08/05/business/media/bloomberg-russia-prisoner-swap-gershkovich.html
