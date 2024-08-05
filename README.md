@@ -1,3 +1,15 @@
+**Chelsea's Gilchrist agrees Sheffield United loan**\
+`Chelsea defender Alfie Gilchrist has agreed to join Sheffield United on a season-long loan.`\
+https://nytimes.com/athletic/5681642/2024/08/05/alfie-gilchrist-chelsea-sheffield-united/
+
+**Tracking Tropical Storm Fabio**\
+`See the likely path and wind arrival times for Fabio.`\
+https://nytimes.com/interactive/2024/08/05/weather/fabio-map-path-tracker.html
+
+**West Ham confirm Fullkrug signing**\
+`West Ham United have confirmed the signing of Niclas Fullkrug from Borussia Dortmund.`\
+https://nytimes.com/athletic/5668178/2024/08/05/niclas-fullkrug-west-ham-transfer/
+
 **Denver Broncos plan to release Caden Sterns in latest shakeup at safety**\
 `The safety position continues to be in flux for the Broncos`\
 https://nytimes.com/athletic/5681700/2024/08/05/broncos-plan-to-release-caden-sterns/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/05/us/politics/pelosi-book-trump-biden.html
 **Booker disagrees with Lyles but says 100m win 'great for America'**\
 `Last year, Lyles noted how NBA title winners shouldn't be called "'world champions."`\
 https://nytimes.com/athletic/5681491/2024/08/05/noah-lyles-nba-comment-devin-booker-olympics/
-
-**How a score inquiry led to gymnast Jordan Chiles' Olympic bronze**\
-`At first, the judges flashed a 13.666, which slotted her into fifth place, but Chiles' coaches thought something was amiss with her score.`\
-https://nytimes.com/athletic/5681493/2024/08/05/jordan-chiles-gymnastics-floor-final-inquiry-explained/
-
-**When Will the F.D.A. Crack Down on Stem Cell Clinics?**\
-`The agency has done little to put an end to dangerous medical scams.`\
-https://nytimes.com/live/2024/07/30/opinion/thepoint/fda-stem-cell-clinics
-
-**Atletico close to agreeing deal for Man City's Alvarez**\
-`Atletico Madrid are close to striking a deal with Manchester City to sign forward Julian Alvarez.`\
-https://nytimes.com/athletic/5678762/2024/08/05/julian-alvarez-transfer-atletico/
 
