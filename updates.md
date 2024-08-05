@@ -1,3 +1,7 @@
+**Jorge Cuenca to Fulham: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we break down Jorge Cuenca's move from Villarreal to Fulham`\
+https://nytimes.com/athletic/5673966/2024/08/05/jorge-cuenca-to-fulham-the-athletic-500-transfer-ratings/
+
 **What to watch in the beam and floor finals.**\
 `xxx balance beam and floor finals.`\
 https://nytimes.com/live/2024/08/05/world/olympics-gymnastics-beam-floor-biles/what-to-watch-in-the-beam-and-floor-finals
