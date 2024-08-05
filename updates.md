@@ -1,3 +1,7 @@
+**Somehow, Aaron Judge is having a better 2024 than 2022 season: 4 takeaways**\
+`"We're watching greatness," Yankees manager Aaron Boone said of Judge's prowess.`\
+https://nytimes.com/athletic/5679902/2024/08/05/yankees-aaron-judge-success-takeaways/
+
 **Xavi Simons rejoins RB Leipzig on loan from PSG**\
 `Xavi Simons has rejoined RB Leipzig on loan from Paris Saint-Germain.`\
 https://nytimes.com/athletic/5671347/2024/08/05/xavi-simons-rb-leipzig-transfer/
