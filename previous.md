@@ -1,14 +1,22 @@
+**Tsung-Dao Lee, 97, Physicist Who Challenged a Law of Nature, Dies**\
+`At 31, he and a colleague won the 1957 Nobel Prize in Physics for discovering that subatomic particles, contrary to what scientists thought, are always symmetrical.`\
+https://nytimes.com/2024/08/05/science/tsung-dao-lee-dead.html
+
 **Chelsea's Gilchrist agrees Sheffield United loan**\
 `Chelsea defender Alfie Gilchrist has agreed to join Sheffield United on a season-long loan.`\
 https://nytimes.com/athletic/5681642/2024/08/05/alfie-gilchrist-chelsea-sheffield-united/
 
 **Tracking Tropical Storm Fabio**\
-`See the likely path and wind arrival times for Fabio.`\
+`See the likely path for Fabio.`\
 https://nytimes.com/interactive/2024/08/05/weather/fabio-map-path-tracker.html
 
 **West Ham confirm Fullkrug signing**\
 `West Ham United have confirmed the signing of Niclas Fullkrug from Borussia Dortmund.`\
 https://nytimes.com/athletic/5668178/2024/08/05/niclas-fullkrug-west-ham-transfer/
+
+**Barnes interview: 'It was a turbulent start - but I'm in the best place now'**\
+`The winger’s debut season at St James’ was one of upheaval and challenges. He's now ready to show his talent and final-third pedigree`\
+https://nytimes.com/athletic/5660140/2024/08/05/harvey-barnes-newcastle-interview/
 
 **Denver Broncos plan to release Caden Sterns in latest shakeup at safety**\
 `The safety position continues to be in flux for the Broncos`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/05/opinion/fighting-malaria.html
 **USMNT's Ream traveling to complete Charlotte FC transfer**\
 `Fulham defender Tim Ream is traveling to the United States to complete a permanent transfer to Major League Soccer side Charlotte FC.`\
 https://nytimes.com/athletic/5681583/2024/08/05/charlotte-fc-tim-ream-fulham-transfer/
-
-**Pelosi Says She Pushed Biden to Step Aside Because of Need to Defeat Trump**\
-`A new book by the former speaker details her clashes with the former president, but it was written before her most recent exercise of political might: helping persuade President Biden to end his re-election bid.`\
-https://nytimes.com/2024/08/05/us/politics/pelosi-book-trump-biden.html
-
-**Booker disagrees with Lyles but says 100m win 'great for America'**\
-`Last year, Lyles noted how NBA title winners shouldn't be called "'world champions."`\
-https://nytimes.com/athletic/5681491/2024/08/05/noah-lyles-nba-comment-devin-booker-olympics/
 

@@ -1,3 +1,15 @@
+**Tsung-Dao Lee, 97, Physicist Who Challenged a Law of Nature, Dies**\
+`At 31, he and a colleague won the 1957 Nobel Prize in Physics for discovering that subatomic particles, contrary to what scientists thought, are always symmetrical.`\
+https://nytimes.com/2024/08/05/science/tsung-dao-lee-dead.html
+
+**Tracking Tropical Storm Fabio**\
+`See the likely path for Fabio.`\
+https://nytimes.com/interactive/2024/08/05/weather/fabio-map-path-tracker.html
+
+**Barnes interview: 'It was a turbulent start - but I'm in the best place now'**\
+`The winger’s debut season at St James’ was one of upheaval and challenges. He's now ready to show his talent and final-third pedigree`\
+https://nytimes.com/athletic/5660140/2024/08/05/harvey-barnes-newcastle-interview/
+
 **Chelsea's Gilchrist agrees Sheffield United loan**\
 `Chelsea defender Alfie Gilchrist has agreed to join Sheffield United on a season-long loan.`\
 https://nytimes.com/athletic/5681642/2024/08/05/alfie-gilchrist-chelsea-sheffield-united/
