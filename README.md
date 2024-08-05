@@ -20,7 +20,7 @@ https://nytimes.com/2024/08/05/technology/elon-musk-openai-lawsuit.html
 
 **Stephen Curry, LeBron James and the 'too small' action that unlocks Team USA's offense**\
 `Stephen Curry hasn't been shooting the ball well in these Olympics, but he's found other ways to help get Team USA's offense going.`\
-https://nytimes.com/athletic/5681139/2024/08/05/stephen-curry-lebron-james-and-the-too-small-action-that-unlocks-team-usas-offense/
+https://nytimes.com/athletic/5681139/2024/08/05/stephen-curry-lebron-james-too-small-team-usa-offense/
 
 **Tennis Briefing: How Machac and Siniakova won gold - and tension between prestige and points**\
 `How the Olympic tennis showed that doubles can be treated as a different sport, not a poor relation to singles`\
