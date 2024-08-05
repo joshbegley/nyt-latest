@@ -1,3 +1,11 @@
+**Tracking Tropical Storm Daniel**\
+`See the likely path and wind arrival times for Daniel.`\
+https://nytimes.com/interactive/2024/08/05/weather/daniel-map-path-tracker.html
+
+**Katz and Hollinger: Are the Knicks elite? Talking defense, centers and Randle's future**\
+`Knicks beat writer Fred Katz and national NBA writer John Hollinger analyze the latest happenings with the Knicks.`\
+https://nytimes.com/athletic/5680645/2024/08/05/knicks-elite-julius-randle-future/
+
 **USWNT's Emma Hayes says all players trained ahead of Olympics semifinal: 'It's a great sign'**\
 `Several players were dealing with knocks heading into the semifinal.`\
 https://nytimes.com/athletic/5681488/2024/08/05/uswnt-emma-hayes-players-training/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/08/05/world/bangladesh-protests/the-prime-minister
 **Out and About at the Edinburgh Fringe**\
 `The streets of the Scottish capital are packed as thousands of performers seek to entertain and entice.`\
 https://nytimes.com/2024/08/05/theater/edinburgh-fringe-photos.html
-
-**Jordan Chiles is a vivid presence on and off the competition floor.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/08/05/world/olympics-gymnastics-beam-floor-biles/jordan-chiles-is-a-vivid-presence-on-and-off-the-competition-floor
-
-**CrowdStrike Hits Back in Heated Spat With Delta Over Global Tech Outage**\
-`The cybersecurity company said the airline should take the blame after it struggled to rebound from a software outage that caused disruptions worldwide.`\
-https://nytimes.com/2024/08/05/business/dealbook/crowdstrike-delta-tech-outage.html
 

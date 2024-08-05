@@ -1,3 +1,11 @@
+**Tracking Tropical Storm Daniel**\
+`See the likely path and wind arrival times for Daniel.`\
+https://nytimes.com/interactive/2024/08/05/weather/daniel-map-path-tracker.html
+
+**Katz and Hollinger: Are the Knicks elite? Talking defense, centers and Randle's future**\
+`Knicks beat writer Fred Katz and national NBA writer John Hollinger analyze the latest happenings with the Knicks.`\
+https://nytimes.com/athletic/5680645/2024/08/05/knicks-elite-julius-randle-future/
+
 **USWNT's Emma Hayes says all players trained ahead of Olympics semifinal: 'It's a great sign'**\
 `Several players were dealing with knocks heading into the semifinal.`\
 https://nytimes.com/athletic/5681488/2024/08/05/uswnt-emma-hayes-players-training/
