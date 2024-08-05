@@ -1,3 +1,7 @@
+**USMNT's Ream traveling to complete Charlotte FC transfer**\
+`Fulham defender Tim Ream is traveling to the United States to complete a permanent transfer to Major League Soccer side Charlotte FC.`\
+https://nytimes.com/athletic/5681583/2024/08/05/charlotte-fc-tim-ream-fulham-transfer/
+
 **Pelosi Says She Pushed Biden to Step Aside Because of Need to Defeat Trump**\
 `A new book by the former speaker details her clashes with the former president, but it was written before her most recent exercise of political might: helping persuade President Biden to end his re-election bid.`\
 https://nytimes.com/2024/08/05/us/politics/pelosi-book-trump-biden.html
@@ -12,7 +16,7 @@ https://nytimes.com/live/2024/07/30/opinion/thepoint/fda-stem-cell-clinics
 
 **Atletico close to agreeing deal for Man City's Alvarez**\
 `Atletico Madrid are close to striking a deal with Manchester City to sign forward Julian Alvarez.`\
-https://nytimes.com/athletic/5678762/2024/08/05/julian-alvarez-transfer-atletico-madrid/
+https://nytimes.com/athletic/5678762/2024/08/05/julian-alvarez-transfer-atletico/
 
 **To Become the G.O.A.T., Simone Biles First Had to Be a Turtle**\
 `She sealed her legacy with four medals at the Paris Games. She created it by being herself and going at her own pace.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/05/movies/deadpool-and-wolverine-shawn-levy.html
 **Hetty Lui McKinnon Has a New Dumpling Salad Recipe**\
 `This time with smashed cucumbers and an umami-rich peanut sauce.`\
 https://nytimes.com/2024/08/05/dining/hetty-lui-mckinnon-has-a-new-dumpling-salad-recipe.html
-
-**Can You Find the 12 Book Titles Hidden in This Text?**\
-`This puzzle challenges you to find the names of a dozen medical thrillers tucked within a very short story.`\
-https://nytimes.com/interactive/2024/08/05/books/review/medical-thrillers-quiz.html
 
