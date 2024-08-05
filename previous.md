@@ -2,10 +2,6 @@
 `There may be time yet to avoid mass burning and bloodshed, but it is running out very quick.`\
 https://nytimes.com/2024/08/04/arts/television/house-of-the-dragon-recap-season-2-finale.html
 
-**Tropical Storm Debby Barrels Toward Florida**\
-`Tropical Storm Debby brought lashing winds and rain, as the storm was expected to rapidly gain strength and make landfall as a hurricane over Florida’s Big Bend coast.`\
-https://nytimes.com/video/us/100000009610974/florida-tropical-storm-debby.html
-
 **Brandon Marsh and the baseball gods help the Phillies snag a much-needed win**\
 `"I literally had my arms out and the baseball gods put the ball right in my glove," Marsh said of his miracle catch. Whatever it takes.`\
 https://nytimes.com/athletic/5680769/2024/08/04/brandon-marsh-catch-phillies-win-mariners/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5680601/2024/08/04/red-sox-series-win-rangers/
 **Belgian Triathlon Team Drops Out After Athlete Falls Sick**\
 `The athlete, Claire Michel, who swam in the Seine River during the women’s triathlon last week, was taken to a clinic in the Olympic Village on Sunday for treatment.`\
 https://nytimes.com/2024/08/04/sports/belgium-triathlon-withdraws-seine.html
+
+**Greetings, People of Earth**\
+`Humans encounter nonhuman intelligences and try to make sense of them.`\
+https://nytimes.com/2024/08/04/podcasts/greetings-people-of-earth.html
 

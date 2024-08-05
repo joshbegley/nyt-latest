@@ -1,3 +1,7 @@
+**Greetings, People of Earth**\
+`Humans encounter nonhuman intelligences and try to make sense of them.`\
+https://nytimes.com/2024/08/04/podcasts/greetings-people-of-earth.html
+
 **‘House of the Dragon’ Season 2 Finale Recap: Hold Your Fire**\
 `There may be time yet to avoid mass burning and bloodshed, but it is running out very quick.`\
 https://nytimes.com/2024/08/04/arts/television/house-of-the-dragon-recap-season-2-finale.html
