@@ -1,3 +1,15 @@
+**A Star Ballerina Steps Into an Art Gallery**\
+`By Gia Kourlas`\
+https://nytimes.com/card/2024/08/05/arts/dance/jodi-melnick-sara-mearns
+
+**Manchester United switch midfielder search away from Ugarte**\
+`Manchester United are switching the focus of their search to sign a new midfielder away from Manuel Ugarte and on to other candidates.`\
+https://nytimes.com/athletic/5589595/2024/08/05/manuel-ugarte-manchester-united/
+
+**IBA digs in on Olympic boxing controversy in news conference**\
+`PARIS — The International Boxing Association, the organization whose decision to disqualify Imane Khelif of Algeria and Lin Yu-ting of Taiwan from the 2023 world championships is at the heart of a firestorm engulfing the Olympic tournament, hosted a news conference on Monday “dedicated to the detailed explanation of the reasons for the disqualification” of the two fighters.`\
+https://nytimes.com/athletic/5682121/2024/08/05/iba-olympic-boxing-controversy-imane-khelif/
+
 **Google Violated Antitrust Laws in Online Search, Judge Rules**\
 `The ruling by Judge Amit P. Mehta was the first antitrust decision of the modern internet era in a case against a technology giant.`\
 https://nytimes.com/2024/08/05/technology/google-antitrust-ruling.html
