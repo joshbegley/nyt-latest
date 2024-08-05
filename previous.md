@@ -1,5 +1,13 @@
+**Word of the Day: labyrinthine**\
+`This word has appeared in 61 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/05/learning/word-of-the-day-labyrinthine.html
+
+**Manchester United's U.S. tour: Ten Hag support, a new look coaching staff, and rock paper scissors**\
+`The Dutch manager has benefited from a show of unity from the new hierarchy with his new backroom staff helping to reinvigorate the squad`\
+https://nytimes.com/athletic/5680551/2024/08/05/manchester-united-us-tour-ten-hag/
+
 **Samsung Employees Return to Work After Strike Fails to Win Concessions**\
-`The indefinite strike, the first in the electronics company’s history, comprised only a fraction of its labor force and lasted less than a month.`\
+`The indefinite strike, the first in the electronics company’s history, comprised only a sliver of its labor force and lasted less than a month.`\
 https://nytimes.com/2024/08/05/business/samsung-workers-end-strike.html
 
 **Markets Around the World Are Rattled by Fears of Slowing U.S. Growth**\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/08/05/world/bangladesh-protests
 **The five games Arsenal failed to score in last season: What lessons can be learned**\
 `Why were Arsenal goalless in these games — and how can that particular small margin be improved next season`\
 https://nytimes.com/athletic/5646944/2024/08/05/arsenal-five-games-failed-score-2023-2024/
-
-**Access all areas for a Premier League club's pre-season tour in the U.S.**\
-`The Athletic was given unfiltered access by Wolves to learn why eggs, location pins and three types of pillow are so important on tour`\
-https://nytimes.com/athletic/5678239/2024/08/05/premier-league-pre-season-tour-united-states/
-
-**How Norway Became a Powerhouse for All Seasons**\
-`With money from an oil boom, Norway, a force at the Winter Olympics for generations, is now churning out elite performers in track, soccer and other sports, too.`\
-https://nytimes.com/2024/08/05/world/olympics/olympics-norway-track-summer-sports.html
 
