@@ -1,3 +1,7 @@
+**Jesse Minter's vision comes to life in dominant joint practice vs. Rams**\
+`The edge rushers shined as the defense forced Matthew Stafford and company into a day full of turnovers.`\
+https://nytimes.com/athletic/5680699/2024/08/04/chargers-defense-joint-practice-rams/
+
 **The Willful Amnesia Behind Trump’s Attacks on Harris’s Identity**\
 `Suggesting that there is something contrived about a mixed-race person identifying as Black assumes that the choice wasn’t already made for her.`\
 https://nytimes.com/2024/08/04/magazine/kamala-harris-black-identity-history.html

@@ -6,7 +6,7 @@ https://nytimes.com/2024/08/04/magazine/kamala-harris-black-identity-history.htm
 `The vice president conducted interviews with potential candidates over the weekend and has fielded concerns from donors and activists over the choice.`\
 https://nytimes.com/2024/08/04/us/politics/kamala-harris-vp-democrats-divided.html
 
-**Chargers DC Jesse Minter's vision comes to life in dominant joint practice vs. Rams**\
+**Jesse Minter's vision comes to life in dominant joint practice vs. Rams**\
 `The edge rushers shined as the defense forced Matthew Stafford and company into a day full of turnovers.`\
 https://nytimes.com/athletic/5680699/2024/08/04/chargers-defense-joint-practice-rams/
 
