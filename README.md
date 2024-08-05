@@ -1,4 +1,4 @@
-**The Weird Authoritarian Book Blurbed by JD Vance**\
+**JD Vance Just Blurbed a Book Arguing That Progressives Are Subhuman**\
 `A MAGA-world celebration of Francisco Franco and Joseph McCarthy.`\
 https://nytimes.com/2024/08/05/opinion/jd-vance-fascism-unhumans.html
 
