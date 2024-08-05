@@ -1,3 +1,15 @@
+**A Star Ballerina Steps Into an Art Gallery**\
+`By Gia Kourlas`\
+https://nytimes.com/card/2024/08/05/arts/dance/jodi-melnick-sara-mearns
+
+**Manchester United switch midfielder search away from Ugarte**\
+`Manchester United are switching the focus of their search to sign a new midfielder away from Manuel Ugarte and on to other candidates.`\
+https://nytimes.com/athletic/5589595/2024/08/05/manuel-ugarte-manchester-united/
+
+**IBA digs in on Olympic boxing controversy in news conference**\
+`PARIS — The International Boxing Association, the organization whose decision to disqualify Imane Khelif of Algeria and Lin Yu-ting of Taiwan from the 2023 world championships is at the heart of a firestorm engulfing the Olympic tournament, hosted a news conference on Monday “dedicated to the detailed explanation of the reasons for the disqualification” of the two fighters.`\
+https://nytimes.com/athletic/5682121/2024/08/05/iba-olympic-boxing-controversy-imane-khelif/
+
 **Google Violated Antitrust Laws in Online Search, Judge Rules**\
 `The ruling by Judge Amit P. Mehta was the first antitrust decision of the modern internet era in a case against a technology giant.`\
 https://nytimes.com/2024/08/05/technology/google-antitrust-ruling.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/05/us/politics/virginia-man-charged-harris-threat.ht
 **George Saunders Reflects on His Novel ‘Lincoln in the Bardo’**\
 `The third in a series of conversations with authors appearing on our “Best Books of the 21st Century” list.`\
 https://nytimes.com/2024/08/05/books/review/podcast-george-saunders-lincoln-in-the-bardo.html
-
-**Giants week in review: A 5-hitter, a no-hitter and a homer that landed in the Posey seats**\
-`Blake Snell and Logan Webb had an historic week, while the Giants inched back towards .500. Can they finally reach that plateau?`\
-https://nytimes.com/athletic/5681353/2024/08/05/sf-giants-weekly-review-blake-snell-logan-webb/
-
-**Giants QB Daniel Jones, GM Joe Schoen involved in fights at joint practice with Lions**\
-`There were so many fights Monday, it was hard to keep track of how many there actually were. `\
-https://nytimes.com/athletic/5681909/2024/08/05/new-york-giants-detroit-lions-joint-practice-fights-daniel-jones/
-
-**The Stock Market Dropped, but Don’t Freak Out**\
-`For the amateur investor, it makes sense to play the long game.`\
-https://nytimes.com/2024/08/05/opinion/stock-market-drop.html
 
