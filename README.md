@@ -1,3 +1,7 @@
+**Supreme Court Rejects Long-Shot Challenge to Trump Hush Money Case**\
+`Missouri sought to sue New York under the court’s “original jurisdiction,” which sometimes allows suits between states to be brought directly to the justices.`\
+https://nytimes.com/2024/08/05/us/politics/supreme-court-trump-hush-money.html
+
 **U.S. et al. v. Google: Read the Ruling**\
 `Google acted illegally to maintain a monopoly in online search, a federal judge ruled on Monday. The landmark decision strikes at the power of tech giants in the modern internet era and that may fundamentally alter the way they do business.`\
 https://nytimes.com/interactive/2024/08/05/technology/google-antitrust-ruling.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5682121/2024/08/05/iba-olympic-boxing-controversy-i
 **Google Violated Antitrust Laws in Online Search, Judge Rules**\
 `The landmark ruling by Judge Amit P. Mehta was the first antitrust decision of the modern internet era in a case against a technology giant.`\
 https://nytimes.com/2024/08/05/technology/google-antitrust-ruling.html
-
-**SuperFlex league draft strategy: When to take your second QB, when to stack and where to find value**\
-`Michael Waterloo offers his advice on QB draft strategy for SuperFlex leagues, and shares his list of bargain QBs he'll be targeting.`\
-https://nytimes.com/athletic/5673098/2024/08/05/superflex-draft-strategy-fantasy-football-2024/
 
