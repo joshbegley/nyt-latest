@@ -1,3 +1,7 @@
+**Google Violated Antitrust Laws in Online Search, Judge Rules**\
+`The landmark ruling by Judge Amit P. Mehta was the first antitrust decision of the modern internet era in a case against a technology giant.`\
+https://nytimes.com/2024/08/05/technology/google-antitrust-ruling.html
+
 **If that was it for Simone Biles' Olympic career, let's all appreciate what we just saw**\
 `Whatever Simone Biles decides to do next, her legacy will be one of gymnastics excellence and, more importantly, courage off the mat.`\
 https://nytimes.com/athletic/5682089/2024/08/05/if-that-was-it-for-simone-biles-olympic-career-lets-all-appreciate-what-we-just-saw/
