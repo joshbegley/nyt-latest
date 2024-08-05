@@ -1,3 +1,7 @@
+**How Noah Lyles Won the Men’s 100-Meter Gold by a Fraction**\
+`Noah Lyles of the United States beat Jamaica’s Kishane Thompson by five-thousandths of a second to win gold in the 100-meter final.`\
+https://nytimes.com/interactive/2024/08/04/sports/olympics/mens-100-noah-lyles-kishane-thompson.html
+
 **WR Puka Nacua exits tough turnover-filled day for Rams offense against Chargers**\
 `A test against the Chargers added to the walking wounded but Sean McVay said injuries cannot be an excuse this season.`\
 https://nytimes.com/athletic/5680524/2024/08/04/puka-nacua-rams-offense/

@@ -1,3 +1,7 @@
+**How Noah Lyles Won the Men’s 100-Meter Gold by a Fraction**\
+`Noah Lyles of the United States beat Jamaica’s Kishane Thompson by five-thousandths of a second to win gold in the 100-meter final.`\
+https://nytimes.com/interactive/2024/08/04/sports/olympics/mens-100-noah-lyles-kishane-thompson.html
+
 **WR Puka Nacua exits tough turnover-filled day for Rams offense against Chargers**\
 `A test against the Chargers added to the walking wounded but Sean McVay said injuries cannot be an excuse this season.`\
 https://nytimes.com/athletic/5680524/2024/08/04/puka-nacua-rams-offense/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5680228/2024/08/04/brock-purdy-49ers-training-camp/
 **In a Corner of Florida, a Gathering Storm Stirs Familiar Feelings**\
 `Many on the state’s northwestern coast felt they knew what to expect from Debby, which is forecast to make landfall as a hurricane, after a much stronger storm hit the area last year.`\
 https://nytimes.com/2024/08/04/us/florida-preparation-debby-idalia.html
-
-**5-Year-Old Killed After Bounce House Goes Airborne in Maryland**\
-`Children were inside the play structure at a baseball game when it was carried 15 to 20 feet in the air the by the wind. One child died and another was injured.`\
-https://nytimes.com/2024/08/04/us/boy-killed-bounce-house.html
 
