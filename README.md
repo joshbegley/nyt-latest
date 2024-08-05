@@ -1,3 +1,7 @@
+**Elon Musk Revives Lawsuit Against OpenAI and Sam Altman**\
+`The Tesla chief executive has renewed claims that the A.I. start-up put profits and commercial interests ahead of the public good.`\
+https://nytimes.com/2024/08/05/technology/elon-musk-openai-lawsuit.html
+
 **Stephen Curry, LeBron James and the 'too small' action that unlocks Team USA's offense**\
 `Stephen Curry hasn't been shooting the ball well in these Olympics, but he's found other ways to help get Team USA's offense going.`\
 https://nytimes.com/athletic/5681139/2024/08/05/stephen-curry-lebron-james-and-the-too-small-action-that-unlocks-team-usas-offense/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5678541/2024/08/05/broncos-camp-takeaways/
 **Three Dodgers takeaways: 'We’ve got more guys coming than we have spots' edition**\
 `Freddie Freeman, Mookie Betts and Max Muncy might be back soon, leaving the Dodgers with a roster puzzle to solve.  `\
 https://nytimes.com/athletic/5680625/2024/08/05/dodgers-kike-hernandez-river-ryan/
-
-**Slot: Liverpool monitoring transfer market but squad is strong**\
-`Arne Slot says Liverpool have “their eye open to see what’s available” in the transfer market — but insists it is hard to improve the squad he inherited from Jurgen Klopp.`\
-https://nytimes.com/athletic/5681122/2024/08/05/arne-slot-liverpool-transfer-news/
 
