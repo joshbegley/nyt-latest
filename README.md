@@ -4,7 +4,7 @@ https://nytimes.com/2024/08/05/us/politics/trump-adin-ross-livestream-gifts.html
 
 **Sanchez considering return to Udinese**\
 `Chile forward Alexis Sanchez is considering an offer from his former club Udinese.`\
-https://nytimes.com/athletic/5682593/2024/08/05/alexis-sanchez-udinese/
+https://nytimes.com/athletic/5682593/2024/08/05/alexis-sanchez-udinese-transfer/
 
 **Bloomberg Disciplines Journalists Over Prisoner Swap Article**\
 `The news organization said it had broken an embargo about the news in a violation of its editorial standards.`\
