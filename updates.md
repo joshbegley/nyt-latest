@@ -1,3 +1,11 @@
+**Justice Thomas Failed to Reveal More Private Flights, Senator Says**\
+`Senator Ron Wyden sent a letter to the wealthy conservative donor Harlan Crow’s lawyer after records showed undisclosed flights between Hawaii and New Zealand with the Supreme Court justice in 2010.`\
+https://nytimes.com/2024/08/05/us/politics/clarence-thomas-harlan-crow-private-jet.html
+
+**The Next Month in the Economy Could Be Crucial for the Presidential Election**\
+`Former President Trump is trying to stoke economic angst, while Vice President Harris projects optimism.`\
+https://nytimes.com/2024/08/05/business/markets-politics-election.html
+
 **The Windup: From trade candidate to no-hitter**\
 `Levi Weaver and Ken Rosenthal catch you up on league-wide news. `\
 https://nytimes.com/athletic/5681805/2024/08/05/blake-snell-no-hitter-white-sox-losing-streak-the-windup/
