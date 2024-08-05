@@ -1,3 +1,7 @@
+**Google Violated Antitrust Laws in Online Search, Judge Rules**\
+`The ruling by Judge Amit P. Mehta was the first antitrust decision of the modern internet era in a case against a technology giant.`\
+https://nytimes.com/2024/08/05/technology/google-antitrust-ruling.html
+
 **SuperFlex league draft strategy: When to take your second QB, when to stack and where to find value**\
 `Michael Waterloo offers his advice on QB draft strategy for SuperFlex leagues, and shares his list of bargain QBs he'll be targeting.`\
 https://nytimes.com/athletic/5673098/2024/08/05/superflex-draft-strategy-fantasy-football-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5681909/2024/08/05/new-york-giants-detroit-lions-jo
 **The Stock Market Dropped, but Don’t Freak Out**\
 `For the amateur investor, it makes sense to play the long game.`\
 https://nytimes.com/2024/08/05/opinion/stock-market-drop.html
-
-**Preseason Coaches Poll released: Who's overrated and underrated?**\
-`Georgia and Ohio State are No. 1 and 2, respectively, and the SEC and Big Ten dominate the Top 25.`\
-https://nytimes.com/athletic/5681893/2024/08/05/college-football-preseason-top-25-coaches-poll/
 
