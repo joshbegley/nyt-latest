@@ -1,3 +1,11 @@
+**If that was it for Simone Biles' Olympic career, let's all appreciate what we just saw**\
+`Whatever Simone Biles decides to do next, her legacy will be one of gymnastics excellence and, more importantly, courage off the mat.`\
+https://nytimes.com/athletic/5682089/2024/08/05/if-that-was-it-for-simone-biles-olympic-career-lets-all-appreciate-what-we-just-saw/
+
+**Yoro undergoes surgery on foot injury**\
+`Manchester United&#8217;s summer signing Leny Yoro has successfully undergone surgery on a foot injury, the club confirmed on Monday.`\
+https://nytimes.com/athletic/5665308/2024/08/05/leny-yoro-surgery-manchester-united/
+
 **A Star Ballerina Steps Into an Art Gallery**\
 `By Gia Kourlas`\
 https://nytimes.com/card/2024/08/05/arts/dance/jodi-melnick-sara-mearns
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5681101/2024/08/05/swimming-2024-paris-olympics-leo
 **Newcastle submit bid for Palace defender Guehi**\
 `Newcastle United have submitted an opening bid for Crystal Palace defender Marc Guehi.`\
 https://nytimes.com/athletic/5676461/2024/08/05/marc-guehi-newcastle-united/
-
-**Virginia Man Threatened to Kill Kamala Harris, Authorities Say**\
-`Frank Carillo, 66, also made threats against President Biden and Christopher A. Wray, the F.B.I. director, according to federal prosecutors.`\
-https://nytimes.com/2024/08/05/us/politics/virginia-man-charged-harris-threat.html
-
-**George Saunders Reflects on His Novel ‘Lincoln in the Bardo’**\
-`The third in a series of conversations with authors appearing on our “Best Books of the 21st Century” list.`\
-https://nytimes.com/2024/08/05/books/review/podcast-george-saunders-lincoln-in-the-bardo.html
 
