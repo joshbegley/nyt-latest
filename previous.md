@@ -1,3 +1,11 @@
+**SuperFlex league draft strategy: When to take your second QB, when to stack and where to find value**\
+`Michael Waterloo offers his advice on QB draft strategy for SuperFlex leagues, and shares his list of bargain QBs he'll be targeting.`\
+https://nytimes.com/athletic/5673098/2024/08/05/superflex-draft-strategy-fantasy-football-2024/
+
+**Walter Arlen, Holocaust Refugee and Belated Composer, Is Dead at 103**\
+`After fleeing Vienna, he was a music critic and teacher before returning to composing in the 1980s. His memories of Nazi barbarism inspired his music.`\
+https://nytimes.com/2024/08/05/arts/music/walter-arlen-dead.html
+
 **Olympic swimming takeways: The U.S. has work to do, and Léon Marchand arrives**\
 `Swimming is in the books at the 2024 Paris Olympics. Here's our takeaways from the week at La Défense Arena.`\
 https://nytimes.com/athletic/5681101/2024/08/05/swimming-2024-paris-olympics-leon-marchand-katie-ledecky-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/05/opinion/stock-market-drop.html
 **Preseason Coaches Poll released: Who's overrated and underrated?**\
 `Georgia and Ohio State are No. 1 and 2, respectively, and the SEC and Big Ten dominate the Top 25.`\
 https://nytimes.com/athletic/5681893/2024/08/05/college-football-preseason-top-25-coaches-poll/
-
-**Niclas Fullkrug to West Ham: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we analyse and rate Niclas Fullkrug's move to West Ham United`\
-https://nytimes.com/athletic/5671294/2024/08/05/niclas-fullkrug-to-west-ham-the-athletic-500-transfer-ratings/
-
-**The Sahm Rule points to a recession. Here’s what the rule maker thinks.**\
-`Claudia Sahm, the economist who devised a key indicator, says the economy is not in a recession, but notes it could be soon if policymakers don’t act.`\
-https://nytimes.com/live/2024/08/05/business/stocks-market-crash-economy/the-sahm-rule-points-to-a-recession-heres-what-the-rule-maker-thinks
 

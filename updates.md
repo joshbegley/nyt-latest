@@ -1,3 +1,11 @@
+**SuperFlex league draft strategy: When to take your second QB, when to stack and where to find value**\
+`Michael Waterloo offers his advice on QB draft strategy for SuperFlex leagues, and shares his list of bargain QBs he'll be targeting.`\
+https://nytimes.com/athletic/5673098/2024/08/05/superflex-draft-strategy-fantasy-football-2024/
+
+**Walter Arlen, Holocaust Refugee and Belated Composer, Is Dead at 103**\
+`After fleeing Vienna, he was a music critic and teacher before returning to composing in the 1980s. His memories of Nazi barbarism inspired his music.`\
+https://nytimes.com/2024/08/05/arts/music/walter-arlen-dead.html
+
 **Olympic swimming takeways: The U.S. has work to do, and Léon Marchand arrives**\
 `Swimming is in the books at the 2024 Paris Olympics. Here's our takeaways from the week at La Défense Arena.`\
 https://nytimes.com/athletic/5681101/2024/08/05/swimming-2024-paris-olympics-leon-marchand-katie-ledecky-takeaways/
