@@ -1,40 +1,40 @@
-**Somehow, Aaron Judge is having a better 2024 than 2022 season: 4 takeaways**\
-`"We're watching greatness," Yankees manager Aaron Boone said of Judge's prowess.`\
-https://nytimes.com/athletic/5679902/2024/08/05/yankees-aaron-judge-success-takeaways/
+**What are Ravens' potential roster concerns after 2 weeks of training camp?**\
+`Should Baltimore look to upgrade at backup QB, and is there a veteran receiver or pass rusher the team should consider signing?`\
+https://nytimes.com/athletic/5678405/2024/08/05/ravens-training-camp-roster-concerns/
 
-**Xavi Simons rejoins RB Leipzig on loan from PSG**\
-`Xavi Simons has rejoined RB Leipzig on loan from Paris Saint-Germain.`\
-https://nytimes.com/athletic/5671347/2024/08/05/xavi-simons-rb-leipzig-transfer/
+**Patrik Laine to the Wild may be a no-brainer, but making it work is a head-scratcher**\
+`Laine, 26, is the kind of player GM Bill Guerin would absolutely take a chance on. But how could the Wild afford him?`\
+https://nytimes.com/athletic/5677217/2024/08/05/patrik-laine-minnesota-wild-nhl-analysis/
 
-**Britain’s Weekend of Violence: What We Know**\
-`The country begins a new week on edge after anti-immigrant riots, fanned by disinformation from the far right, broke out in cities across Britain.`\
-https://nytimes.com/2024/08/05/world/europe/uk-riots-protests.html
+**Was last season the Mavericks' best other than 2011? Many fans think so**\
+`What a difference a year makes. The Mavericks fan base has gone from apprehensive to confident after last season's Finals run.`\
+https://nytimes.com/athletic/5680055/2024/08/05/mavericks-fan-survey-results-2024/
 
-**Laurie Hernandez is NBC's breakout broadcasting star of the Paris Olympics**\
-`With her recent connection to the sport, Laurie Hernandez on gymnastics has been a major plus for NBC's broadcast.`\
-https://nytimes.com/athletic/5678207/2024/08/05/laurie-hernandez-nbc-gymnastics-paris-olympics/
+**She Used to Be Friends With JD Vance**\
+`Why a friend of Donald Trump’s running mate from law school decided to speak out against him.`\
+https://nytimes.com/2024/08/05/podcasts/the-daily/vance-friend-sofia-nelson.html
 
-**C. Notes: Reds' Hunter Greene progressing from All-Star to Cy Young Award candidate**\
-`Former Reds catcher Curt Casali was impressed by Greene's latest effort, which gave Greene a 0.35 ERA in his last four starts.`\
-https://nytimes.com/athletic/5680330/2024/08/05/reds-hunter-greene-cy-young-award-potential/
+**'I worked my ass off': Is Packers' AJ Dillon primed for a bounce-back season?**\
+`Dillon is no stranger to his current situation because he was once on the other end of it.`\
+https://nytimes.com/athletic/5679560/2024/08/05/aj-dillon-packers-bounceback/
 
-**Traffic Stop Data Can Shape Policy. It’s Often Missing.**\
-`Areas with good data often have policy debates that are not possible in places where poor data makes it hard to know what’s going on.`\
-https://nytimes.com/2024/08/05/upshot/traffic-stops-police-data.html
+**Chiefs hope to extend Creed Humphrey, Trey Smith and keep roster's core intact**\
+`After entering the league together in 2021, Humphrey and Smith are both entering the final year of their rookie contracts.`\
+https://nytimes.com/athletic/5680591/2024/08/05/chiefs-creed-humphrey-trey-smith-extensions/
 
-**In Missouri, Cori Bush Fights for Survival Against an AIPAC-Backed Democrat**\
-`The ultraliberal congresswoman and member of the “squad” is facing a primary on Tuesday against Wesley Bell, a progressive prosecutor whose campaign has been financed by pro-Israel groups.`\
-https://nytimes.com/2024/08/05/us/politics/missouri-cori-bush-bell-aipac-israel-democrats.html
+**Is there still room for Dak Prescott to improve? 'I feel younger than I ever have'**\
+`Cowboys coach Mike McCarthy says his quarterback is "just going to keep getting better."`\
+https://nytimes.com/athletic/5680223/2024/08/05/dak-prescott-dallas-cowboys-camp/
 
-**Population Growth Isn’t a Progressive Issue. It Should Be.**\
-`There’s more to the issue than what JD Vance says.`\
-https://nytimes.com/2024/08/05/opinion/birthrate-jd-vance-progressives.html
+**The Connections Companion No. 422**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Aug. 6, 2024.`\
+https://nytimes.com/2024/08/05/crosswords/connections-companion-422.html
 
-**Kamala Harris Makes Quite an Entrance**\
-`Has everything totally switched?`\
-https://nytimes.com/2024/08/05/opinion/kamala-harris-trump-birthrate.html
+**Wordle Review No. 1,144**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, August 6, 2024.`\
+https://nytimes.com/2024/08/05/crosswords/wordle-review-1144.html
 
-**An 18th-Century Phenom Arrives at Lincoln Center**\
-`The Festival Orchestra of Lincoln Center will play Marianna Martines’s Symphony in C, a milestone for a composer whose music mostly fell silent after her death.`\
-https://nytimes.com/2024/08/05/arts/music/marianna-martines-lincoln-center-festival-orchestra.html
+**Democrats Divided Over V.P. Field, and Israel Braces for Retaliation**\
+`Plus, your Olympics weekend wrap-up.`\
+https://nytimes.com/2024/08/05/podcasts/democrats-divided-over-vp-field-and-israel-braces-for-retaliation.html
 
