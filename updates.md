@@ -1,3 +1,7 @@
+**2024 Presidential Election Calendar**\
+`Here are important dates and voting deadlines for the 2024 election.`\
+https://nytimes.com/interactive/2024/08/05/us/elections/2024-election-calendar.html
+
 **Trump’s Surreal Summer, in Photos**\
 `Six images that tell the story of Trump’s wild summer.`\
 https://nytimes.com/2024/08/05/us/politics/trump-summer-photos.html
