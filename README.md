@@ -1,3 +1,7 @@
+**Where the Nuggets stand in the Western Conference after an eventful offseason**\
+`If the last two years have proven anything it's this: Nikola Jokić represents the Nuggets' floor while Jamal Murray is the Nuggets' ceiling.`\
+https://nytimes.com/athletic/5680130/2024/08/05/denver-nuggets-nikola-jokic-jamal-murray/
+
 **America’s High Drunk-Driving Limit**\
 `We explore why it matters and whether the limit might change.`\
 https://nytimes.com/2024/08/05/briefing/drunk-driving-limit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5677217/2024/08/05/patrik-laine-minnesota-wild-nhl-
 **Was last season the Mavericks' best other than 2011? Many fans think so**\
 `What a difference a year makes. The Mavericks fan base has gone from apprehensive to confident after last season's Finals run.`\
 https://nytimes.com/athletic/5680055/2024/08/05/mavericks-fan-survey-results-2024/
-
-**She Used to Be Friends With JD Vance**\
-`Why a friend of Donald Trump’s running mate from law school decided to speak out against him.`\
-https://nytimes.com/2024/08/05/podcasts/the-daily/vance-friend-sofia-nelson.html
 
