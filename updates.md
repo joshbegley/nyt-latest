@@ -1,3 +1,7 @@
+**What’s on TV This Week: ‘Pretty Woman’ and ‘Don’t Forget the Lyrics!’**\
+`HBO airs the classic rom-com. And the competitive singing show broadcasts its season finale.`\
+https://nytimes.com/2024/08/05/arts/television/whats-on-tv-pretty-woman-dont-forget-lyrics.html
+
 **Live Updates: Bangladesh Protesters Call for Mass March After Deadly Crackdown**\
 `A student movement that began a month ago has turned into a broader challenge to Prime Minister Sheikh Hasina’s increasingly authoritarian rule.`\
 https://nytimes.com/live/2024/08/05/world/bangladesh-protests

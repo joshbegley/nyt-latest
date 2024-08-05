@@ -1,3 +1,7 @@
+**What’s on TV This Week: ‘Pretty Woman’ and ‘Don’t Forget the Lyrics!’**\
+`HBO airs the classic rom-com. And the competitive singing show broadcasts its season finale.`\
+https://nytimes.com/2024/08/05/arts/television/whats-on-tv-pretty-woman-dont-forget-lyrics.html
+
 **Malick Yalcouye, Brighton's new 18-year-old midfielder with the talent to reach the top**\
 `Fabian Hurzeler, Brighton's new head coach, believes the midfielder has 'lots of potential to develop into a top-class player'`\
 https://nytimes.com/athletic/5668069/2024/08/05/malick-yalcouye-brighton-signing-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5679725/2024/08/05/leon-marchand-olympic-games-swim
 **Monday Briefing**\
 `Kamala Harris’s search for a running mate.`\
 https://nytimes.com/2024/08/05/briefing/kamala-harris-britain-riots-israel.html
-
-**Manchester City's push to be America's Premier League team of choice**\
-`From the Ohio State Fair to Times Square, England's champions are on a recruitment drive`\
-https://nytimes.com/athletic/5678898/2024/08/05/manchester-city-us-premier-league-team/
 
