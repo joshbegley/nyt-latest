@@ -1,3 +1,7 @@
+**Supreme Court Rejects Long-Shot Challenge to Trump Hush Money Case**\
+`Missouri sought to sue New York under the court’s “original jurisdiction,” which sometimes allows suits between states to be brought directly to the justices.`\
+https://nytimes.com/2024/08/05/us/politics/supreme-court-trump-hush-money.html
+
 **U.S. et al. v. Google: Read the Ruling**\
 `Google acted illegally to maintain a monopoly in online search, a federal judge ruled on Monday. The landmark decision strikes at the power of tech giants in the modern internet era and that may fundamentally alter the way they do business.`\
 https://nytimes.com/interactive/2024/08/05/technology/google-antitrust-ruling.html
