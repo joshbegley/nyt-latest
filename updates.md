@@ -1,3 +1,11 @@
+**WR Puka Nacua exits tough turnover-filled day for Rams offense against Chargers**\
+`A test against the Chargers added to the walking wounded but Sean McVay said injuries cannot be an excuse this season.`\
+https://nytimes.com/athletic/5680524/2024/08/04/puka-nacua-rams-offense/
+
+**Red Sox top Rangers ahead of key Royals series: 'Every game now means something more'**\
+`It was an emotional game Nick Pivetta, who worked through early struggles and Wilyer Abreu, who was playing in honor of his grandmother.`\
+https://nytimes.com/athletic/5680601/2024/08/04/red-sox-series-win-rangers/
+
 **Belgian Triathlon Team Drops Out After Athlete Falls Sick**\
 `The athlete, Claire Michel, who swam in the Seine River during the women’s triathlon last week, was taken to a clinic in the Olympic Village on Sunday for treatment.`\
 https://nytimes.com/2024/08/04/sports/belgium-triathlon-withdraws-seine.html
