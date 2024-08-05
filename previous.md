@@ -1,3 +1,7 @@
+**The Sahm Rule points to a recession. Here’s what the rule maker thinks.**\
+`Claudia Sahm, the economist who devised a key indicator, says the economy is not in a recession, but notes it could be soon if policymakers don’t act.`\
+https://nytimes.com/live/2024/08/05/business/stocks-market-crash-economy/the-sahm-rule-points-to-a-recession-heres-what-the-rule-maker-thinks
+
 **Debby Drenches Florida in Slow Crawl Northeast**\
 `The storm made landfall near Steinhatchee, Fla., as a Category 1 hurricane before weakening back into a tropical storm.`\
 https://nytimes.com/video/us/100000009611543/tropical-storm-hurricane-debby-florida.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/05/arts/music/ella-jenkins-childrens-music-centennia
 **‘Yo Gabba GabbaLand!’ Revives a Cult Kids Show**\
 `This reboot features the same characters and still emphasizes music and dance while seeking to “make the world of Gabba an actual place,” a creator said.`\
 https://nytimes.com/2024/08/05/arts/television/yo-gabba-gabbaland-revives-a-cult-kids-show.html
-
-**Lions' Terrion Arnold evaluated for concussion**\
-`The rookie was drafted to help bolster one of the worst passing defenses in the NFL.`\
-https://nytimes.com/athletic/5681912/2024/08/05/terrion-arnold-concussion-lions-giants-practice/
 
