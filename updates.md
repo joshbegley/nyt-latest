@@ -1,3 +1,11 @@
+**Raiders training camp: Spotlight on the QBs intensifies, DJ Glaze steps up at RT**\
+`The Raiders’ preseason opener Saturday could shed some light on the QB competition, while an unlikely rookie is stepping up on the O-line.`\
+https://nytimes.com/athletic/5682045/2024/08/05/raiders-aidan-oconnell-gardner-minshew-dj-glaze/
+
+**Tuesday Briefing: Global Markets Fell**\
+`Plus, LeBron James at the Olympics.`\
+https://nytimes.com/2024/08/05/briefing/06ambriefing-asia-global-stocks-bangladesh-harris.html
+
 **Mexican Reporter Gunned Down, Even With a Security Detail at His Side**\
 `Alejandro Martínez had received so many threats that the Mexican government appointed him protection. On Sunday, he was shot and killed and his bodyguards wounded.`\
 https://nytimes.com/2024/08/05/world/americas/mexico-journalist-killed-celaya.html
