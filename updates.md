@@ -1,3 +1,7 @@
+**Manchester City's push to be America's Premier League team of choice**\
+`From the Ohio State Fair to Times Square, England's champions are on a recruitment drive`\
+https://nytimes.com/athletic/5678898/2024/08/05/manchester-city-us-premier-league-team/
+
 **Mondo Duplantis: Breaking down the biomechanics behind the best-ever pole vaulter**\
 `There will be fewer more predictable events to watch in Paris than the men's pole vault, yet slightly paradoxically, few more watchable`\
 https://nytimes.com/athletic/5646961/2024/08/05/mondo-duplantis-biomechanics-pole-vault/
