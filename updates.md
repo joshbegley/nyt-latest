@@ -1,3 +1,15 @@
+**PSG confirm Neves signing from Benfica**\
+`Paris Saint-Germain have confirmed the signing of Joao Neves from Benfica.`\
+https://nytimes.com/athletic/5681394/2024/08/05/joao-neves-psg-transfer/
+
+**Scoop City: Preseason Week 1 Watch Guide**\
+`The full schedule for Week 1 of the NFL preseason, with notes along the way.`\
+https://nytimes.com/athletic/5681477/2024/08/05/preseason-week-1-watch-guide-scoop-city/
+
+**Kawakami: How the Warriors fit into the Lauri Markkanen deadlines and scenarios**\
+`What does Markkanen really want? That's the biggest unknown as the clock ticks toward the first deadline in this complicated situation.`\
+https://nytimes.com/athletic/5678958/2024/08/05/warriors-lauri-markkanen-trade-deadlines-scenarios/
+
 **Here’s what to know about the market meltdown.**\
 `A rout that began in Asia continued in Europe, and U.S. stocks are set to fall sharply. Japan’s benchmark index logged its worst single-day point decline.`\
 https://nytimes.com/live/2024/08/05/business/stocks-market-crash-economy/heres-what-to-know-about-the-market-meltdown
