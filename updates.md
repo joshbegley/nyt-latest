@@ -1,3 +1,11 @@
+**Why Seahawks GM prayed for chance to interview coach Mike Macdonald**\
+`Seahawks GM John Schneider badly wanted to interview Macdonald, so he prayed for a Ravens loss in the AFC Championship Game. `\
+https://nytimes.com/athletic/5681571/2024/08/06/mike-macdonald-seattle-seahawks-ravens-john-schneider/
+
+**The Athletic FC: Ibrahimovic on 'becoming the best', City's $100m Alvarez deal with Atletico**\
+`Today in The Athletic FC: An Ibrahimovic exclusive interview, news on Alvarez's $100m move to Atletico, plus an Olympics round-up`\
+https://nytimes.com/athletic/5683364/2024/08/06/zlatan-ibrahimovic-exclusive-hayes-haribo-referee-injured-the-athletic-fc/
+
 **Palestinian health officials say at least eight people were killed in the West Bank.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/08/06/world/israel-iran-hezbollah-gaza/palestinian-health-officials-say-at-least-eight-people-were-killed-in-the-west-bank
