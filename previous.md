@@ -1,3 +1,7 @@
+**Bit of Ink**\
+`Daniel Raymon rides the current.`\
+https://nytimes.com/2024/08/05/crosswords/daily-puzzle-2024-08-06.html
+
 **Maresca blames Premier League for Chelsea cashing in on academy**\
 `Maresca's claims come as Conor Gallagher is at the center of a potential move to Atletico Madrid.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/interactive/2024/us/elections/2024-election-calendar.html
 **Trump’s Surreal Summer, in Photos**\
 `Six images that tell the story of Trump’s wild summer.`\
 https://nytimes.com/2024/08/05/us/politics/trump-summer-photos.html
-
-**JD Vance Just Blurbed a Book Arguing That Progressives Are Subhuman**\
-`A MAGA-world celebration of Francisco Franco and Joseph McCarthy.`\
-https://nytimes.com/2024/08/05/opinion/jd-vance-fascism-unhumans.html
 

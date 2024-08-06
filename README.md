@@ -1,3 +1,11 @@
+**Akili McDowell, Star of ‘David Makes Man,’ Is Charged With Murder**\
+`Mr. McDowell, 21, was being held on bond for the July shooting death of a man in the parking lot of a Houston apartment complex, the authorities said.`\
+https://nytimes.com/2024/08/05/arts/television/akili-mcdowell-shooting-houston.html
+
+**Freddie Freeman returns to the Dodgers after his son's 'miraculous recovery'**\
+`When the improving 3-year-old noticed the IVs attached to each of his hands, he started “acting like he was Spider-Man,” Freeman said.`\
+https://nytimes.com/athletic/5682879/2024/08/05/freddie-freeman-son-recovery-maximus/
+
 **Bit of Ink**\
 `Daniel Raymon rides the current.`\
 https://nytimes.com/2024/08/05/crosswords/daily-puzzle-2024-08-06.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/5682767/2024/08/05/moises-caicedo-chelsea-pressure-
 **Harris Nears Her Big V.P. Reveal After Fierce Lobbying From Democrats**\
 `The vice president is expected to announce her choice on Tuesday morning. One prominent Democrat recounted being asked by a contender, “Will you please make sure you put in a good word for me?”`\
 https://nytimes.com/2024/08/05/us/politics/kamala-harris-vp-pick-democrats.html
-
-**2024 Presidential Election Calendar**\
-`Here are important dates and voting deadlines for the 2024 election.`\
-https://nytimes.com/interactive/2024/us/elections/2024-election-calendar.html
-
-**Trump’s Surreal Summer, in Photos**\
-`Six images that tell the story of Trump’s wild summer.`\
-https://nytimes.com/2024/08/05/us/politics/trump-summer-photos.html
 
