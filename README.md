@@ -1,3 +1,7 @@
+**Debby Is Expected to Bring Historic Rain to the Southeast. Here’s How Much.**\
+`The National Weather Service has issued strong warnings for Georgia and South Carolina.`\
+https://nytimes.com/2024/08/06/weather/debby-georgia-south-carolina-storm-forecast.html
+
 **Ravens looking to improve depth at center with Tyler Linderbaum sidelined**\
 `Plus, Lamar Jackson is showing lots of energy in practice. And is there a roster spot for Ar’Darius Washington, who's having a strong camp?`\
 https://nytimes.com/athletic/5683106/2024/08/06/ravens-tyler-linderbaum-center-depth/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/06/business/economy/recession-markets-stocks.html
 **50 Years Ago, the World Trade Center Was Home to the Art Crime of the Century**\
 `Philippe Petit saw the human story between the Twin Towers.`\
 https://nytimes.com/2024/08/06/opinion/philippe-petit-twin-towers.html
-
-**In Louisville, a Tenants Union Stares Down the Housing Crisis**\
-`An organizing effort could set a template for helping the nation’s poorest and marginalized Americans find stability.`\
-https://nytimes.com/2024/08/06/opinion/housing-louisville-tenants-union.html
 
