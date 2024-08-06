@@ -1,3 +1,11 @@
+**Musket Balls Found in Massachusetts Recall ‘Shot Heard Round the World’**\
+`The discovery of ammunition from the 1700s has revived tales of fighting at the start of the Revolutionary War.`\
+https://nytimes.com/2024/08/06/us/musket-balls-revolutionary-war.html
+
+**Cubs takeaways: Porter Hodge's quick rise, prospect promotions and Cody Bellinger's return**\
+`It's probably best to keep looking at the big picture and what this team can be for 2025 rather than believe a postseason run is ahead.`\
+https://nytimes.com/athletic/5683048/2024/08/06/cubs-takeaways-porter-hodges-success/
+
 **Historically Black Medical Schools Land a $600 Million Donation**\
 `Bloomberg Philanthropies gives what are thought to be record-breaking gifts to the endowments of Meharry Medical College, Morehouse and Howard University.`\
 https://nytimes.com/2024/08/06/us/donation-historically-black-medical-schools-bloomberg.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/06/podcasts/new-markets-rebound-harris-vp-google-mon
 **The Connections Companion No. 423**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 7, 2024.`\
 https://nytimes.com/2024/08/06/crosswords/connections-companion-423.html
-
-**Debby Is Expected to Bring Historic Rain to the Southeast. Here’s How Much.**\
-`The National Weather Service has issued strong warnings for Georgia and South Carolina.`\
-https://nytimes.com/2024/08/06/weather/debby-georgia-south-carolina-storm-forecast.html
-
-**Ravens looking to improve depth at center with Tyler Linderbaum sidelined**\
-`Plus, Lamar Jackson is showing lots of energy in practice. And is there a roster spot for Ar’Darius Washington, who's having a strong camp?`\
-https://nytimes.com/athletic/5683106/2024/08/06/ravens-tyler-linderbaum-center-depth/
 

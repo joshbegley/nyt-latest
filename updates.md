@@ -1,3 +1,11 @@
+**Musket Balls Found in Massachusetts Recall ‘Shot Heard Round the World’**\
+`The discovery of ammunition from the 1700s has revived tales of fighting at the start of the Revolutionary War.`\
+https://nytimes.com/2024/08/06/us/musket-balls-revolutionary-war.html
+
+**Cubs takeaways: Porter Hodge's quick rise, prospect promotions and Cody Bellinger's return**\
+`It's probably best to keep looking at the big picture and what this team can be for 2025 rather than believe a postseason run is ahead.`\
+https://nytimes.com/athletic/5683048/2024/08/06/cubs-takeaways-porter-hodges-success/
+
 **What Just Happened on Wall Street?**\
 `Explaining Monday’s stock-market plunge, and its potential consequences.`\
 https://nytimes.com/2024/08/06/podcasts/the-daily/global-stock-market-fears.html
