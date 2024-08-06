@@ -1,3 +1,15 @@
+**August swoon leaves Astros searching for a spark: 'We need energy'**\
+`Fatigue from Houston's furious first-half turnaround is apparent and there are few solutions exist to fix it.`\
+https://nytimes.com/athletic/5683156/2024/08/06/astros-walk-off-loss-rangers/
+
+**The impact of Summerville's departure: Gnonto staying, Rutter future and Rowe interest**\
+`Sale of last season's Championship player of the year is a blow, but Leeds have a strong squad and can keep their remaining stars`\
+https://nytimes.com/athletic/5681115/2024/08/06/summerville-fallout-gnonto-rowe-rutter/
+
+**Word of the Day: incinerate**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/06/learning/word-of-the-day-incinerate.html
+
 **One of China’s Most Talkative Nationalists Suddenly Goes Silent**\
 `Hu Xijin’s tens of millions of followers have heard nothing from him since late July. Some think one of his posts praising Beijing may have backfired.`\
 https://nytimes.com/2024/08/06/world/asia/china-nationalist-hu-xijin-silent.html
