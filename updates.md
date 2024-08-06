@@ -1,3 +1,11 @@
+**Walz Grew Up in Rural Nebraska, Where Finding a Date ‘Was Kind of a Problem’**\
+`Tim Walz moved several times during his childhood in Nebraska, where his high school graduating class had just 25 students.`\
+https://nytimes.com/2024/08/06/us/politics/walz-nebraska-history.html
+
+**Serbia, Nikola Jokić thwart Australia's medal hopes**\
+`Serbia survived an incredible last-second shot by Patty Mills over Nikola Jokić to force overtime, defeating Australia 95-90 to advance.`\
+https://nytimes.com/athletic/5683995/2024/08/06/olympic-basketball-serbia-australia-results/
+
 **The Windup: We need to talk about the Pirates**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5684179/2024/08/06/pittsburgh-pirates-the-windup/
