@@ -1,6 +1,6 @@
-**Who is Yahya Sinwar, Hamas’s new political leader?**\
-`Mr. Sinwar, one of the main architects of the Oct. 7 Hamas-led attack on`\
-https://nytimes.com/2024/08/06/world/middleeast/who-is-yahya-sinwar-hamass-new-political-leader.html
+**Who Is Yahya Sinwar, Hamas’s New Political Leader?**\
+`Mr. Sinwar, one of the main architects of the Oct. 7 Hamas-led attack on Israel, has spent decades with the militant group, working his way to the top of its leadership.`\
+https://nytimes.com/2024/08/06/world/middleeast/yahya-sinwar-hamas.html
 
 **Another one and done: Assistant coach Mark Recchi won't be back with Blue Jackets**\
 `The Blue Jackets continue to make decisions as training camp nears.`\
