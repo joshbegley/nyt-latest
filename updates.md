@@ -1,3 +1,7 @@
+**It took 14 years and 86 days to make an Olympic champion in skateboarding.**\
+`Arisa Trew vaulted into first place with her final run, winning gold.`\
+https://nytimes.com/live/2024/07/27/world/olympics-paris-photos/arisa-trew-skateboarding
+
 **QB Russell Wilson takes big step in recovery**\
 `Wilson threw the ball in team drills for the first time Tuesday, though it remains unclear whether he'll play in Friday's preseason opener.`\
 https://nytimes.com/athletic/5684596/2024/08/06/russell-wilson-injury-recovery-steelers/
