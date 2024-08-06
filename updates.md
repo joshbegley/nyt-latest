@@ -1,3 +1,15 @@
+**‘Tim Walz’s Record Is a Joke’: JD Vance Slams Harris’s V.P. Pick**\
+`JD Vance, the Republican vice presidential nominee, shared his thoughts on the Democratic ticket at a rally in Philadelphia.`\
+https://nytimes.com/video/us/elections/100000009614828/jd-vance-attacks-tim-walz-record.html
+
+**Residents are surrounded by floodwaters in a Savannah neighborhood.**\
+`By Nichole Manna`\
+https://nytimes.com/live/2024/08/06/weather/debby-storm-forecast/residents-are-surrounded-by-floodwaters-in-a-savannah-neighborhood
+
+**Why Tim Walz Will Be a Potent Weapon for Kamala Harris**\
+`He is of a vanishing political breed: the heartland left populist.`\
+https://nytimes.com/2024/08/06/opinion/tim-walz-kamala-harris.html
+
 **I Reviewed Restaurants for 12 Years. They’ve Changed, and Not for the Better.**\
 `In his last essay as a restaurant critic, Pete Wells reflects on a dining world of touch screens and reservation apps, where it’s getting hard to find the human touch.`\
 https://nytimes.com/2024/08/06/dining/pete-wells-how-restaurants-have-changed.html
