@@ -1,3 +1,11 @@
+**‘Tim Walz’s Record Is a Joke’: JD Vance Slams Harris’s V.P. Pick**\
+`JD Vance, the Republican vice presidential nominee, shared his thoughts on the Democratic ticket at a rally in Philadelphia.`\
+https://nytimes.com/video/us/elections/100000009614828/jd-vance-attacks-tim-walz-record.html
+
+**Residents are surrounded by floodwaters in a Savannah neighborhood.**\
+`By Nichole Manna`\
+https://nytimes.com/live/2024/08/06/weather/debby-storm-forecast/residents-are-surrounded-by-floodwaters-in-a-savannah-neighborhood
+
 **Why Tim Walz Will Be a Potent Weapon for Kamala Harris**\
 `He is of a vanishing political breed: the heartland left populist.`\
 https://nytimes.com/2024/08/06/opinion/tim-walz-kamala-harris.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/07/27/world/olympics-paris-photos/arisa-trew-skate
 **QB Russell Wilson takes big step in recovery**\
 `Wilson threw the ball in team drills for the first time Tuesday, though it remains unclear whether he'll play in Friday's preseason opener.`\
 https://nytimes.com/athletic/5684596/2024/08/06/russell-wilson-injury-recovery-steelers/
-
-**Cole Hocker stuns the world to win men's 1500m gold**\
-`Hocker, born in Indianapolis and reared at the University of Oregon, finished in an Olympic record 3:27.65.`\
-https://nytimes.com/athletic/5684698/2024/08/06/cole-hocker-mens-1500m-olympic-results/
-
-**The Pulse: Why is everyone mad at Noah Lyles?**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5683115/2024/08/06/noah-lyles-nba-olympics-the-pulse/
 
