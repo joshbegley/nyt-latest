@@ -1,3 +1,7 @@
+**Walz Has Faced Criticism for His Response to George Floyd Protests**\
+`Some believe that Gov. Tim Walz should have deployed the Minnesota National Guard sooner when riots broke out following the police murder of George Floyd.`\
+https://nytimes.com/2024/08/06/us/tim-walz-george-floyd-criticism.html
+
 **Who Is Tim Walz, the Minnesota Governor Kamala Harris Picked to Be V.P.?**\
 `Mr. Walz captured Democrats’ attention with his “weird” takedown of Republicans. Here’s a look at the new vice-presidential candidate.`\
 https://nytimes.com/2024/08/06/us/politics/who-tim-walz-harris-vp.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/06/learning/the-more-you-know-about-something-the-le
 **Guido Rodriguez joins West Ham on free transfer**\
 `West Ham United have completed the signing of Guido Rodriguez on a free transfer.`\
 https://nytimes.com/athletic/5683566/2024/08/06/guido-rodriguez-west-ham-transfer/
-
-**2025 NASCAR playoff schedule likely to include Talladega in semis**\
-`Repositioning Talladega is one of several changes NASCAR is expected to make to next year's 10-race playoff schedule.`\
-https://nytimes.com/athletic/5683514/2024/08/06/nascar-playoff-schedule-2025-changes/
 

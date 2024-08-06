@@ -1,3 +1,7 @@
+**Walz Has Faced Criticism for His Response to George Floyd Protests**\
+`Some believe that Gov. Tim Walz should have deployed the Minnesota National Guard sooner when riots broke out following the police murder of George Floyd.`\
+https://nytimes.com/2024/08/06/us/tim-walz-george-floyd-criticism.html
+
 **Who Is Tim Walz, the Minnesota Governor Kamala Harris Picked to Be V.P.?**\
 `Mr. Walz captured Democrats’ attention with his “weird” takedown of Republicans. Here’s a look at the new vice-presidential candidate.`\
 https://nytimes.com/2024/08/06/us/politics/who-tim-walz-harris-vp.html
