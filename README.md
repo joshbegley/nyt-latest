@@ -1,3 +1,11 @@
+**Olympic handballer who couldn't stay awake: ‘I can sleep everywhere’**\
+`Sweden’s top handballer stars on the court but couldn’t stay awake off it — until his sleep apnea diagnosis.`\
+https://nytimes.com/athletic/5684328/2024/08/06/olympics-sleep-apnea-handball-gottfridsson/
+
+**Denis Shapovalov 'did not sleep' after default for swearing at Washington Open**\
+`Canadian tennis player Denis Shapovalov &#8220;did not sleep for two days&#8221; after being defaulted from the Citi Open in Washington D.`\
+https://nytimes.com/athletic/5684350/2024/08/06/denis-shapovalov-default-washington-open/
+
 **Queens Man Is Convicted of Spying on Dissidents for China**\
 `Shujun Wang, who co-founded an organization devoted to democracy in China, used it to gather information for the authoritarian country’s government, prosecutors said.`\
 https://nytimes.com/2024/08/06/nyregion/shujun-wang-conviction-spy-china.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/06/opinion/tim-walz-scorecard.html
 **Tim Walz, a Fan of The Boss, Proclaimed a ‘Bruce Springsteen Day’ in Minnesota**\
 `The governor and newly-minted vice-presidential nominee has embraced the bard of the working man, honoring the New Jersey rocker last year when he came to St. Paul for a concert.`\
 https://nytimes.com/2024/08/06/us/politics/bruce-springsteen-tim-walz.html
-
-**Charles Barkley not retiring, staying with TNT Sports long term**\
-`Barkley will continue on his 10-year, $210 million contract. He is in the third season of the deal.`\
-https://nytimes.com/athletic/5684382/2024/08/06/charles-barkley-not-retiring-tnt/
-
-**Charles Cyphers, Who Played Sheriff Brackett in ‘Halloween,’ Dies at 85**\
-`He was known for his roles as the hard-nosed sheriff in the “Halloween” horror film series.`\
-https://nytimes.com/2024/08/06/arts/charles-cyphers-halloween-dead.html
 
