@@ -1,3 +1,8 @@
+**Maresca blames Premier League for Chelsea cashing in on academy**\
+`Maresca's claims come as Conor Gallagher is at the center of a potential move to Atletico Madrid.
+`\
+https://nytimes.com/athletic/5682833/2024/08/05/enzo-maresca-chelsea-premier-league/
+
 **Stocks in Asia Rebound After a Day of Wild Selling Worldwide**\
 `The Nikkei 225, the benchmark index in Japan, rose on Tuesday after a record decline.`\
 https://nytimes.com/2024/08/05/business/nikkei-global-stocks.html
@@ -33,8 +38,4 @@ https://nytimes.com/2024/08/05/us/politics/trump-summer-photos.html
 **JD Vance Just Blurbed a Book Arguing That Progressives Are Subhuman**\
 `A MAGA-world celebration of Francisco Franco and Joseph McCarthy.`\
 https://nytimes.com/2024/08/05/opinion/jd-vance-fascism-unhumans.html
-
-**Bangladesh Prime Minister Flees Country After Weeks of Protests**\
-`Prime Minister Sheikh Hasina resigned and fled Bangladesh under intense pressure from a growing protest movement enraged by her government’s deadly crackdowns.`\
-https://nytimes.com/video/world/asia/100000009612983/bangladesh-protests-hasina-resigns.html
 

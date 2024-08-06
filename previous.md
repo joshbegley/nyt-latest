@@ -11,7 +11,7 @@ https://nytimes.com/2024/08/05/us/san-bernardino-fire-homes.html
 https://nytimes.com/2024/08/05/us/politics/trump-harris-market-downturn.html
 
 **Chargers training camp, Day 11: AJ Finley emerging as front-runner in third-safety battle**\
-`To take advantage of Derwin James' versatility, the Chargers need a quality third safety. Could that be Finley, a 2023 undrafted free agent?`\
+`To take advantage of Derwin James’ versatility, the Chargers need a quality third safety. Could that be Finley, a 2023 undrafted free agent?`\
 https://nytimes.com/athletic/5682780/2024/08/05/chargers-training-camp-aj-finley-safety/
 
 **Chelsea's Caicedo 'felt a lot of pressure' as British record transfer**\
