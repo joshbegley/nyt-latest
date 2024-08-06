@@ -1,3 +1,7 @@
+**Live Updates: Slow-Motion Debby Drenches the Southeast**\
+`Rivers across the region were rising from a potentially record-setting deluge. The tropical storm was blamed for at least five deaths after hitting Florida’s Big Bend coast as a hurricane.`\
+https://nytimes.com/live/2024/08/06/weather/debby-storm-forecast
+
 **Sean Payton vows Broncos' 'awful' goal-to-go offense will improve in 2024**\
 `Rookie running back Audric Estimé could be key component in Denver's quest to improve upon a meager 53.3 percent TD rate near the goal line.`\
 https://nytimes.com/athletic/5682346/2024/08/06/sean-payton-broncos-red-zone-offense/

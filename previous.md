@@ -18,7 +18,7 @@ https://nytimes.com/athletic/5683363/2024/08/06/andre-onana-manchester-united-ri
 `By Patricia Mazzei, Isabelle Taft and Judson Jones`\
 https://nytimes.com/live/2024/08/06/weather/debby-storm-forecast/residents-were-rescued-from-floods-in-florida-heres-the-latest
 
-**Live Updates: Slow-Motion Debby Drenches Florida and Georgia**\
+**Live Updates: Slow-Motion Debby Drenches the Southeast**\
 `Rivers across the region were rising from a potentially record-setting deluge. The tropical storm was blamed for at least five deaths after hitting Florida’s Big Bend coast as a hurricane.`\
 https://nytimes.com/live/2024/08/06/weather/debby-storm-forecast
 
