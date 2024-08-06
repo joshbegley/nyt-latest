@@ -1,3 +1,11 @@
+**A Harris Victory Would Give Minnesota Its First Female Governor**\
+`Lt. Gov. Peggy Flanagan would also become the first Native American person in the role.`\
+https://nytimes.com/2024/08/06/us/peggy-flanagan-tim-walz-minnesota.html
+
+**Axios Laying Off 10% of Staff**\
+`Jim VandeHei, the company’s chief executive, said in an email that the cuts were necessary to adapt to “changes in the media business.”`\
+https://nytimes.com/2024/08/06/business/media/axios-layoffs.html
+
 **How Far Will a Reader Go to Hear Songs Inspired by Books?**\
 `In search of a connection between two worlds — one beloved, one baffling — a bibliophile made a musical pilgrimage.`\
 https://nytimes.com/2024/08/06/books/the-bookshop-band.html
