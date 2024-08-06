@@ -1,3 +1,11 @@
+**McLaughlin-Levrone, Bol advance to 400 hurdles finals**\
+`McLaughlin-Levrone has set the last five world records in the event, while Bol won the bronze in Tokyo and has improved.`\
+https://nytimes.com/athletic/5684511/2024/08/06/sydney-mclaughlin-levrone-femke-bol-womens-400-hurdles-semifinals/
+
+**USWNT 1 Germany 0: Sophia Smith's goal earns U.S. spot in gold medal**\
+`Here's how the USWNT earned a spot in the Olympic final.`\
+https://nytimes.com/athletic/5683594/2024/08/06/uswnt-germany-olympic-womens-soccer-semifinal/
+
 **Nobel Laureate Tapped to Lead Interim Government in Bangladesh**\
 `The new government was formed a day after Bangladesh’s longtime leader, facing fierce protests, fled the country.`\
 https://nytimes.com/2024/08/06/world/asia/bangladesh-government.html
@@ -18,7 +26,7 @@ https://nytimes.com/live/2024/08/06/world/israel-iran-hezbollah-gaza/yahya-sinwa
 `Readers offer mostly positive reactions to the choice of the Minnesota governor. Also: Clarence Thomas’s unreported trips; Jimmy Carter’s vote.`\
 https://nytimes.com/2024/08/06/opinion/kamala-harris-tim-walz.html
 
-**Choice of Walz Over Shapiro Mollifies the Left but Misses Chance to Reassure Jews**\
+**Walz Instead of Shapiro Excites Left, but May Alienate Jewish Voters**\
 `Many Jewish organizations backed Harris’s pick for running mate, but beneath that public sentiment is unease over antisemitism on both the left and the right.`\
 https://nytimes.com/2024/08/06/us/politics/tim-walz-shapiro-jewish.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5684062/2024/08/06/dani-olmo-barcelona-leipzig/
 **A ‘Stranger Things’ Prequel Is Coming to Broadway Next Spring**\
 `The play, now running in London, is set 24 years before the start of the Netflix series.`\
 https://nytimes.com/2024/08/06/theater/stranger-things-broadway.html
-
-**‘Rock Me, Joe’: 9 Songs With Great Guitar Cues**\
-`Celebrate the timeless rock ‘n’ roll tradition of a lead singer cuing up a guitarist by listening to tracks from the Pixies, the Runaways and Jimi Hendrix.`\
-https://nytimes.com/2024/08/06/arts/music/rock-me-joe-9-songs-with-great-guitar-cues.html
-
-**German Court Fines Protester for ‘River to the Sea’ Chant**\
-`A judge said the phrase, used at a pro-Palestinian rally in Berlin days after the Oct. 7 attacks, “could only be understood as a denial of Israel’s right to exist.”`\
-https://nytimes.com/2024/08/06/world/europe/germany-river-to-sea-chant-fine.html
 

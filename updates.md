@@ -1,3 +1,7 @@
+**Nobel Laureate Tapped to Lead Interim Government in Bangladesh**\
+`The new government was formed a day after Bangladesh’s longtime leader, facing fierce protests, fled the country.`\
+https://nytimes.com/2024/08/06/world/asia/bangladesh-government.html
+
 **France knocks off Canada to advance to semifinals, will face Germany**\
 `France upset Canada 82-73 to send the host nation into a semifinal game against Germany on Thursday,`\
 https://nytimes.com/athletic/5684514/2024/08/06/france-canada-olympics-basketball/

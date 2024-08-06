@@ -1,3 +1,7 @@
+**Nobel Laureate Tapped to Lead Interim Government in Bangladesh**\
+`The new government was formed a day after Bangladesh’s longtime leader, facing fierce protests, fled the country.`\
+https://nytimes.com/2024/08/06/world/asia/bangladesh-government.html
+
 **France knocks off Canada to advance to semifinals, will face Germany**\
 `France upset Canada 82-73 to send the host nation into a semifinal game against Germany on Thursday,`\
 https://nytimes.com/athletic/5684514/2024/08/06/france-canada-olympics-basketball/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/06/arts/music/rock-me-joe-9-songs-with-great-guitar-
 **German Court Fines Protester for ‘River to the Sea’ Chant**\
 `A judge said the phrase, used at a pro-Palestinian rally in Berlin days after the Oct. 7 attacks, “could only be understood as a denial of Israel’s right to exist.”`\
 https://nytimes.com/2024/08/06/world/europe/germany-river-to-sea-chant-fine.html
-
-**Market Crashes Happen. They Don’t Necessarily Mean Much.**\
-`Don’t trust anyone who “explains” what just happened to stocks.`\
-https://nytimes.com/2024/08/06/opinion/stock-market-crashes-economy.html
 
