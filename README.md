@@ -1,3 +1,7 @@
+**It took 14 years and 86 days to make an Olympic champion in skateboarding.**\
+`Arisa Trew vaulted into first place with her final run, winning gold.`\
+https://nytimes.com/live/2024/07/27/world/olympics-paris-photos/arisa-trew-skateboarding
+
 **QB Russell Wilson takes big step in recovery**\
 `Wilson threw the ball in team drills for the first time Tuesday, though it remains unclear whether he'll play in Friday's preseason opener.`\
 https://nytimes.com/athletic/5684596/2024/08/06/russell-wilson-injury-recovery-steelers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/06/climate/tim-walzs-big-climate-ambitions.html
 **Braves, Reds to play game next season at Bristol Motor Speedway: Sources**\
 `Bristol Motor Speedway, one of NASCAR’s most iconic tracks, will host a regular season MLB game between the Atlanta Braves and Cincinnati Reds in 2025, multiple sources briefed on the plans told The Athletic on Tuesday.`\
 https://nytimes.com/athletic/5684541/2024/08/06/braves-reds-game-bristol-motor-speedway-2025/
-
-**With Walz, Harris Passes on a Chance to Redefine Herself**\
-`There will be other opportunities to move to the center, if that’s a goal.`\
-https://nytimes.com/2024/08/06/upshot/walz-harris-vice-president.html
 
