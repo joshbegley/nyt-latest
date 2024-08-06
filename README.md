@@ -12,7 +12,7 @@ https://nytimes.com/athletic/5683827/2024/08/06/lauri-markkanen-jazz-extension/
 
 **Walz grew up in rural Nebraska, where finding a date ‘was kind of a problem.’**\
 `By Dionne Searcey`\
-https://nytimes.com/live/2024/08/06/us/kamala-harris-vp-trump-election/walz-grew-up-in-rural-nebraska-where-finding-a-date-was-kind-of-a-problem
+https://nytimes.com/2024/08/06/us/politics/walz-grew-up-in-rural-nebraska-where-finding-a-date-was-kind-of-a-problem.html
 
 **Pitbull buys naming rights to FIU's football stadium**\
 `Florida International University has signed a five-year deal to rename its football stadium after recording artist Pitbull.`\
