@@ -1,3 +1,7 @@
+**One of China’s Most Talkative Nationalists Suddenly Goes Silent**\
+`Hu Xijin had suggested that the Communist Party would better support private companies, drawing criticism from leftists. Then he stopped updating his social media feed.`\
+https://nytimes.com/2024/08/06/world/asia/china-nationalist-hu-xijin-silent.html
+
 **Giants' Tyler Fitzgerald keeps routine (acai bowls are big) in record-setting power streak**\
 `Fitzgerald hit a home run on the second pitch of Monday's 4-1 victory over Washington at Nationals Park.`\
 https://nytimes.com/athletic/5683097/2024/08/06/giants-tyler-fitzgerald-routine-power-streak/

@@ -1,3 +1,7 @@
+**One of China’s Most Talkative Nationalists Suddenly Goes Silent**\
+`Hu Xijin had suggested that the Communist Party would better support private companies, drawing criticism from leftists. Then he stopped updating his social media feed.`\
+https://nytimes.com/2024/08/06/world/asia/china-nationalist-hu-xijin-silent.html
+
 **Giants' Tyler Fitzgerald keeps routine (acai bowls are big) in record-setting power streak**\
 `Fitzgerald hit a home run on the second pitch of Monday's 4-1 victory over Washington at Nationals Park.`\
 https://nytimes.com/athletic/5683097/2024/08/06/giants-tyler-fitzgerald-routine-power-streak/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5545157/2024/08/06/lost-grounds-bradford-park-avenu
 **How Liverpool are using artificial intelligence to become better at corners**\
 `Why Liverpool’s collaboration with Google DeepMind shows an ongoing desire to push boundaries and find an edge in football analytics`\
 https://nytimes.com/athletic/5672271/2024/08/06/liverpool-artificial-intelligence-corners/
-
-**As Ukraine Collects Medals in Paris, Its Sports Pipeline Is in Tatters**\
-`Facilities have been battered. Coaches are in short supply. Children have moved abroad. Ukraine faces a long hard road toward rebuilding its athletic programs.`\
-https://nytimes.com/2024/08/06/world/europe/ukraine-olympics-sports-war.html
 
