@@ -1,3 +1,7 @@
+**Tim Walz Is Harris’s Choice for Vice President**\
+`Also, Debby is bringing historic levels of rain to the Southeast. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/08/06/briefing/tim-walz-harris-vp-pick-debby-storm.html
+
 **Giants' Malik Nabers torches Lions DBs: 'There's not a lot that I can't do'**\
 `Though only a rookie, Nabers has already established himself as the Giants' most dangerous weapon.`\
 https://nytimes.com/athletic/5685051/2024/08/06/new-york-giants-malik-nabers-detroit-lions-training-camp/
