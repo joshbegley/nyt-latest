@@ -1,3 +1,11 @@
+**Tim Walz’s Big Climate Ambitions**\
+`Minnesota’s governor, Vice President Harris’s new running mate, has put forth one of the most ambitious climate agendas in the country.`\
+https://nytimes.com/2024/08/06/climate/tim-walzs-big-climate-ambitions.html
+
+**Braves, Reds to play game next season at Bristol Motor Speedway: Sources**\
+`Bristol Motor Speedway, one of NASCAR’s most iconic tracks, will host a regular season MLB game between the Atlanta Braves and Cincinnati Reds in 2025, multiple sources told The Athletic on Tuesday.`\
+https://nytimes.com/athletic/5684541/2024/08/06/braves-reds-game-bristol-motor-speedway-2025/
+
 **With Walz, Harris Passes on a Chance to Redefine Herself**\
 `There will be other opportunities to move to the center, if that’s a goal.`\
 https://nytimes.com/2024/08/06/upshot/walz-harris-vice-president.html
