@@ -1,3 +1,7 @@
+**Sean Payton vows Broncos' 'awful' goal-to-go offense will improve in 2024**\
+`Rookie running back Audric Estimé could be key component in Denver's quest to improve upon a meager 53.3 percent TD rate near the goal line.`\
+https://nytimes.com/athletic/5682346/2024/08/06/sean-payton-broncos-red-zone-offense/
+
 **A closer look at Oilers prospect Sam O'Reilly: Why Edmonton drafted him and what to expect**\
 `In an offseason of shocking developments, the Oilers traded into the first round to select the OHL centre. What were they thinking?`\
 https://nytimes.com/athletic/5679828/2024/08/06/oilers-prospect-sam-oreilly-nhl-draft/

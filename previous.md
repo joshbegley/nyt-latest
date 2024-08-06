@@ -2,6 +2,10 @@
 `In an offseason of shocking developments, the Oilers traded into the first round to select the OHL centre. What were they thinking?`\
 https://nytimes.com/athletic/5679828/2024/08/06/oilers-prospect-sam-oreilly-nhl-draft/
 
+**Sean Payton vows Broncos' 'awful' goal-to-go offense will improve in 2024**\
+`Rookie running back Audric Estimé could be key component in Denver's quest to improve upon a meager 53.3 percent TD rate near the goal line.`\
+https://nytimes.com/athletic/5682346/2024/08/06/sean-payton-broncos-red-zone-offense/
+
 **Endrick's Madrid start: Battles with Rudiger, friends with Guler, and a 'phenomenon'**\
 `After waiting so long for his dream move, Endrick is getting used to life as a Madrid player`\
 https://nytimes.com/athletic/5683141/2024/08/06/endrick-real-madrid-start/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/06/briefing/global-stock-market.html
 **Musket Balls Found in Massachusetts Recall ‘Shot Heard Round the World’**\
 `The discovery of ammunition from the 1700s has revived tales of fighting at the start of the Revolutionary War.`\
 https://nytimes.com/2024/08/06/us/musket-balls-revolutionary-war.html
-
-**Cubs takeaways: Porter Hodge's quick rise, prospect promotions and Cody Bellinger's return**\
-`It's probably best to keep looking at the big picture and what this team can be for 2025 rather than believe a postseason run is ahead.`\
-https://nytimes.com/athletic/5683048/2024/08/06/cubs-takeaways-porter-hodges-success/
 
