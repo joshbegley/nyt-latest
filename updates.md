@@ -1,3 +1,7 @@
+**Kamala Harris Isn’t Playing It Safe**\
+`In picking Tim Walz, Harris is after more than just Pennsylvania.`\
+https://nytimes.com/2024/08/06/opinion/ezra-klein-podcast-vp-pick-harris-walz.html
+
 **Skateboard legend Andy Macdonald, at 51, is getting an unlikely Olympic epilogue**\
 `Andy Macdonald is contemporaries with Tony Hawk and once had a video game named after him. Now, at 51, he's in the Olympics for Team GB.`\
 https://nytimes.com/athletic/5684864/2024/08/06/andy-macdonald-skateboarding-olympics-51-great-britain/

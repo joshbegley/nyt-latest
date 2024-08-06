@@ -1,3 +1,7 @@
+**Kamala Harris Isn’t Playing It Safe**\
+`In picking Tim Walz, Harris is after more than just Pennsylvania.`\
+https://nytimes.com/2024/08/06/opinion/ezra-klein-podcast-vp-pick-harris-walz.html
+
 **Skateboard legend Andy Macdonald, at 51, is getting an unlikely Olympic epilogue**\
 `Andy Macdonald is contemporaries with Tony Hawk and once had a video game named after him. Now, at 51, he's in the Olympics for Team GB.`\
 https://nytimes.com/athletic/5684864/2024/08/06/andy-macdonald-skateboarding-olympics-51-great-britain/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/06/sports/joss-naylor-dead.html
 **Trump’s Plan for Attacking Tim Walz: Paint Him as a Bernie Sanders Liberal**\
 `The Trump campaign had been preparing for Gov. Josh Shapiro of Pennsylvania to be Vice President Kamala Harris’s running mate. It now plans to stress Mr. Walz’s progressive governing record.`\
 https://nytimes.com/2024/08/06/us/politics/trump-tim-walz-attack.html
-
-**Gabby Thomas wins 200m final for first gold**\
-`Thomas took the gold medal in the women’s 200-meter final, cresting a mountain she’s been climbing for years now with a time of 21.82.`\
-https://nytimes.com/athletic/5684773/2024/08/06/gabby-thomas-olympics-200m-final/
 
