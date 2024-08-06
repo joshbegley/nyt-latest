@@ -1,3 +1,11 @@
+**Who is Yahya Sinwar, Hamas’s new political leader?**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/08/06/world/israel-iran-hezbollah-gaza/who-is-yahya-sinwar-hamass-new-political-leader
+
+**Another one and done: Assistant coach Mark Recchi won't be back with Blue Jackets**\
+`The Blue Jackets continue to make decisions as training camp nears.`\
+https://nytimes.com/athletic/5685137/2024/08/06/blue-jackets-recchi-assistant/
+
 **Algerian boxer Khelif advances to gold medal round**\
 `Khelif is into the Olympic final, set for Friday at Roland Garros. One step from a gold medal.`\
 https://nytimes.com/athletic/5685067/2024/08/06/imane-khelif-olympic-boxing-results/
