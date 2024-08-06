@@ -1,3 +1,7 @@
+**Palestinian health officials say at least eight people were killed in the West Bank.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/08/06/world/israel-iran-hezbollah-gaza/palestinian-health-officials-say-at-least-eight-people-were-killed-in-the-west-bank
+
 **Live Updates: Slow-Motion Debby Drenches the Southeast**\
 `Rivers across the region were rising from a potentially record-setting deluge. The tropical storm was blamed for at least five deaths after hitting Florida’s Big Bend coast as a hurricane.`\
 https://nytimes.com/live/2024/08/06/weather/debby-storm-forecast
