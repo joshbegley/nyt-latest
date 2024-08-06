@@ -31,7 +31,7 @@ https://nytimes.com/athletic/5685051/2024/08/06/new-york-giants-malik-nabers-det
 https://nytimes.com/2024/08/06/weather/new-york-rains-debby.html
 
 **How Sean Payton altered Broncos training camp with designs on avoiding slow start**\
-`DeVaughn Vele, a seventh-round rookie receiver, continued to build on a strong camp with an acrobatic touchdown grab Tuesday.`\
+`Devaughn Vele, a seventh-round rookie receiver, continued to build on a strong camp with an acrobatic touchdown grab Tuesday.`\
 https://nytimes.com/athletic/5684741/2024/08/06/sean-payton-broncos-slow-start/
 
 **Bush Administration Lawyer Whose Wife Was Killed on 9/11 Supports Plea Deal**\
