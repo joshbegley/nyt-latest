@@ -7,7 +7,7 @@ https://nytimes.com/2024/08/06/world/olympics/table-tennis-china-restaurant.html
 https://nytimes.com/2024/08/06/opinion/kamala-harris-donald-trump-birtherism.html
 
 **World’s Five Leading Chipmakers Have Now Promised U.S. Investment**\
-`The announcement of CHIPS Act funding for a plant in Indiana means the United States will have attracted investment from the world’s top chipmakers`\
+`The announcement of CHIPS Act funding for a plant in Indiana means the United States will have attracted investment from the world’s top chipmakers.`\
 https://nytimes.com/2024/08/06/business/economy/chipmakers-promise-investment.html
 
 **Google Exemplifies the Lack of Competition in the Tech World**\
