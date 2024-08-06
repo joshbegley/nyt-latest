@@ -1,3 +1,19 @@
+**Canada revokes coach's Olympics accreditation amid sexual abuse allegations**\
+`Rana Reider, a coach of Olympic champion sprinters Andre De Grasse and Lamont Marcell Jacobs, has had his accreditation for the Paris Games revoked amid allegations of sexual and emotional abuse.`\
+https://nytimes.com/athletic/5683340/2024/08/06/rana-reider-coach-sexual-abuse-case/
+
+**Tim Walz Has Championed Climate as Governor**\
+`Kamala Harris’s V.P. pick, known for his folksy persona and rural Midwestern roots, has elevated the issue of climate change in his state.`\
+https://nytimes.com/2024/08/06/climate/tim-walz-climate-change.html
+
+**Tim Walz Is Said to Be Kamala Harris’s Choice for Vice President**\
+`The Minnesota governor, a former high school teacher and National Guard member, brings to the ticket Midwestern appeal and a plain-spoken way of taking on Donald Trump.`\
+https://nytimes.com/2024/08/06/us/politics/kamala-harris-vp.html
+
+**Moore agrees first professional contract with Tottenham**\
+`Tottenham Hotspur have secured the future of highly-rated winger Mikey Moore.`\
+https://nytimes.com/athletic/5683416/2024/08/06/tottenham-mikey-moore-contract-signed/
+
 **For Salif Mane, U.S. Olympic triple jumper, his late father's voice still lights the way**\
 `On Salif Mane's unlikely path to the Olympics, his father was a constant. And he still keeps his dad's words of wisdom close.`\
 https://nytimes.com/athletic/5646049/2024/08/06/salif-mane-2024-olympics-track-and-field/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5683514/2024/08/06/nascar-playoff-schedule-2025-cha
 **Here’s the latest on the presidential race.**\
 `By Reid J. Epstein`\
 https://nytimes.com/live/2024/08/06/us/kamala-harris-vp-trump-election/heres-the-latest-on-the-presidential-race
-
-**Kris Kocurek, Brandon Staley and 49ers assistants on Leonard Floyd, Ricky Pearsall and more**\
-`49ers assistant coaches met with reporters Monday and, among several topics, discussed the progression of some key rookies.`\
-https://nytimes.com/athletic/5682408/2024/08/06/49ers-leonard-floyd-assistant-coaches/
-
-**U.S. Envoy Says Ukraine’s Economy Needs Reform and Investment to Thrive**\
-`Penny Pritzker, who is leaving her position as special representative for Ukraine’s economic recovery, said the country had made progress but still faced major hurdles.`\
-https://nytimes.com/2024/08/06/us/politics/ukraine-economy-penny-pritzker.html
-
-**The U.S. tour that 'saved' Barcelona - and why only half their squad came back**\
-`One of the most remarkable chapters in the club's history concluded in New York. Here's the full story`\
-https://nytimes.com/athletic/5683437/2024/08/06/barcelona-united-states-tour-1937-civil-war/
-
-**Atletico in advanced talks to sign Guerra from Valencia**\
-`Atletico Madrid are in advanced talks to sign Valencia midfielder Javi Guerra.`\
-https://nytimes.com/athletic/5683491/2024/08/06/atletico-madrid-javi-guerra/
 
