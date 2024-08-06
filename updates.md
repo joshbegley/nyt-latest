@@ -1,3 +1,15 @@
+**9 Killed After S.U.V. Flips Into South Florida Canal, Authorities Say**\
+`One passenger survived with serious injuries after the vehicle veered off a road in Belle Glade, Fla. on Monday evening.`\
+https://nytimes.com/2024/08/06/us/suv-crash-south-florida-canal.html
+
+**Tim Walz, Harris' running mate, has Minnesota football ties**\
+`Walz coached Mankato West to the Class 4A state title in 1999.`\
+https://nytimes.com/athletic/5684273/2024/08/06/tim-walz-minnesota-football-vikings/
+
+**Dumfries holding off on Inter contract talks**\
+`Denzel Dumfries does not intend to engage in negotiations with Inter Milan over a new contract until the transfer window has closed.`\
+https://nytimes.com/athletic/5684304/2024/08/06/denzel-dumfries-inter-manchester-united/
+
 **Dolce & Gabbana Has New Dog Perfume. Veterinarians Turn Up Their Noses.**\
 `An extravagant scent might seem like the height of pampering for your pup. But veterinarians are raising red flags: “Overall, it’s a very bad idea.”`\
 https://nytimes.com/2024/08/06/business/dolce-gabbana-dog-perfume.html

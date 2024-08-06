@@ -1,3 +1,15 @@
+**9 Killed After S.U.V. Flips Into South Florida Canal, Authorities Say**\
+`One passenger survived with serious injuries after the vehicle veered off a road in Belle Glade, Fla. on Monday evening.`\
+https://nytimes.com/2024/08/06/us/suv-crash-south-florida-canal.html
+
+**Tim Walz, Harris' running mate, has Minnesota football ties**\
+`Walz coached Mankato West to the Class 4A state title in 1999.`\
+https://nytimes.com/athletic/5684273/2024/08/06/tim-walz-minnesota-football-vikings/
+
+**Dumfries holding off on Inter contract talks**\
+`Denzel Dumfries does not intend to engage in negotiations with Inter Milan over a new contract until the transfer window has closed.`\
+https://nytimes.com/athletic/5684304/2024/08/06/denzel-dumfries-inter-manchester-united/
+
 **Dolce & Gabbana Has New Dog Perfume. Veterinarians Turn Up Their Noses.**\
 `An extravagant scent might seem like the height of pampering for your pup. But veterinarians are raising red flags: “Overall, it’s a very bad idea.”`\
 https://nytimes.com/2024/08/06/business/dolce-gabbana-dog-perfume.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/06/world/europe/uk-riots-sunderland.html
 **The Patriots and Brandon Aiyuk: Where things stand in a potential trade with the 49ers**\
 `Where do things stand between the Patriots and 49ers regarding a potential Brandon Aiyuk trade? We examine the forces at play.`\
 https://nytimes.com/athletic/5684100/2024/08/06/brandon-aiyuk-49ers-patriots-trade/
-
-**Trump Campaign Attacks Walz as ‘Dangerously Liberal’**\
-`Republicans quickly zeroed in on the liberal policies Tim Walz has signed into law in Minnesota, as well as his handling of unrest in Minneapolis after George Floyd’s murder in 2020.`\
-https://nytimes.com/2024/08/06/us/politics/trump-harris-walz-gop-reaction.html
-
-**Nancy Pelosi Praises Walz as Representing ‘Heartland Values’**\
-`The former House speaker said that if Kamala Harris and Tim Walz, the Minnesota governor, win in November, “they have to govern from the middle for the whole country.”`\
-https://nytimes.com/2024/08/06/us/politics/harris-walz-pelosi.html
-
-**Masks Banned in Public in Nassau County, With Some Exceptions**\
-`Violators who wear masks could be fined up to $1,000, although there would be exceptions for people who wear them for health or religious reasons.`\
-https://nytimes.com/2024/08/06/nyregion/mask-ban-nassau-county-allies.html
 
