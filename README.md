@@ -1,3 +1,15 @@
+**Venezuela’s Strongman Was Confident of Victory. Then Came the Shock.**\
+`Venezuela’s  government believed its control of all levers of power would give it victory at the polls. A rebellion by its supporters undid the plan.`\
+https://nytimes.com/2024/08/06/world/americas/venezuela-election-maduro.html
+
+**Chloe Coscarelli Returns With Her Vegan Greatest Hits**\
+`The vegan chef has reopened in her original Greenwich Village location; Afghan delights in Beacon, N.Y.; and more restaurant news.`\
+https://nytimes.com/2024/08/06/dining/by-chloe-returns.html
+
+**Hurricane Scale Alone Can’t Account for a Storm’s Destruction**\
+`Tropical Storm Debby was only briefly a Category 1 hurricane. But a rating can never fully capture how destructive a storm can be.`\
+https://nytimes.com/2024/08/06/climate/tropical-storm-debby-danger.html
+
 **Arisa Trew, 14, wins gold in women's skateboarding**\
 `Trew became the first Australian woman to medal in the event and the youngest medallist at the Paris Games.`\
 https://nytimes.com/athletic/5684391/2024/08/06/arisa-trew-olympics-skateboarding-gold/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/08/06/us/kamala-harris-vp-trump-election/tim-walz-
 **Coach Walz Can Help Harris Win**\
 `Football unifies America. Tim Walz can, too.`\
 https://nytimes.com/2024/08/06/opinion/kamala-harris-vp-tim-walz.html
-
-**Leicester's Souttar joins Sheffield United on loan**\
-`Leicester City defender Harry Souttar has joined Sheffield United on a season-long loan.`\
-https://nytimes.com/athletic/5684405/2024/08/06/harry-souttar-sheffield-united-leicester/
-
-**Iran Executes Another Protester After Trial Condemned by Rights Groups**\
-`Weeks after Iran elected a reformist leader, the authorities executed Reza Rasaei, who was arrested during protests that swept the country in 2022.`\
-https://nytimes.com/2024/08/06/world/middleeast/iran-execution-protester-reza-rasaei.html
-
-**Buckley: In times of heartache, athletes often cope by doing what they do best: playing**\
-`Many times, we don’t know what players like Wilyer Abreu and Freddie Freeman are going through until after they've played through the pain. `\
-https://nytimes.com/athletic/5683038/2024/08/06/athletes-playing-in-tragedy-wilyer-abreu-freddie-freeman-chris-paul/
 
