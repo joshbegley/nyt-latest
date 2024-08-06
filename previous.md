@@ -1,3 +1,35 @@
+**Historically Black Medical Schools Land a $600 Million Donation**\
+`Bloomberg Philanthropies gives what are thought to be record-breaking gifts to the endowments of Meharry Medical College, Morehouse and Howard University.`\
+https://nytimes.com/2024/08/06/us/donation-historically-black-medical-schools-bloomberg.html
+
+**Could the Vikings turn to the pistol formation to spur an offensive evolution?**\
+`Last season, the Vikings showed glimpses of an offensive scheme used successfully by the 49ers and Rams. Might they use it more in 2024?`\
+https://nytimes.com/athletic/5682289/2024/08/06/vikings-offense-kevin-oconnell-pistol-formation/
+
+**How does Summer McIntosh's Olympics stack up historically?**\
+`After Paris 2024, McIntosh is a young swimming superstar. The 17-year-old won four medals, including three gold and one silver.`\
+https://nytimes.com/athletic/5680602/2024/08/06/summer-mcintosh-olympics-history-whats-next/
+
+**How athletes struck TikTok gold at the Olympics - while others avoid the distraction**\
+`TikTok has empowered Olympians who may not normally have attracted the media spotlight`\
+https://nytimes.com/athletic/5676610/2024/08/06/the-tiktok-olympics/
+
+**'An incredible story': Why Kerry Joseph could be perfect for Caleb Williams, Bears QBs**\
+`The Bears believe Joseph's unusual path in pro football has helped him establish an instant connection with their rookie quarterback.`\
+https://nytimes.com/athletic/5682050/2024/08/06/bears-kerry-joseph-caleb-williams/
+
+**A Wild Day on Wall Street**\
+`Explaining Monday’s stock-market plunge, and its potential consequences.`\
+https://nytimes.com/2024/08/06/podcasts/the-daily/global-stock-market-fears.html
+
+**Markets Begin to Rebound, and Harris V.P. Pick Expected Today**\
+`Plus, controversy in women’s Olympic boxing.`\
+https://nytimes.com/2024/08/06/podcasts/new-markets-rebound-harris-vp-google-monopoly.html
+
+**The Connections Companion No. 423**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 7, 2024.`\
+https://nytimes.com/2024/08/06/crosswords/connections-companion-423.html
+
 **Debby Is Expected to Bring Historic Rain to the Southeast. Here’s How Much.**\
 `The National Weather Service has issued strong warnings for Georgia and South Carolina.`\
 https://nytimes.com/2024/08/06/weather/debby-georgia-south-carolina-storm-forecast.html
@@ -5,36 +37,4 @@ https://nytimes.com/2024/08/06/weather/debby-georgia-south-carolina-storm-foreca
 **Ravens looking to improve depth at center with Tyler Linderbaum sidelined**\
 `Plus, Lamar Jackson is showing lots of energy in practice. And is there a roster spot for Ar’Darius Washington, who's having a strong camp?`\
 https://nytimes.com/athletic/5683106/2024/08/06/ravens-tyler-linderbaum-center-depth/
-
-**The Tiny Chinese Restaurant That Became an Olympic Hot Spot**\
-`A few blocks from the table tennis venue, a restaurant has become an unofficial (and unlikely) clubhouse for fans, team officials and athletes.`\
-https://nytimes.com/2024/08/06/world/olympics/table-tennis-china-restaurant.html
-
-**Trump Pulls Out His Birther Bag of Tricks**\
-`Unmoored by Biden’s decision to pass the baton, the former president has fallen back on the instincts and base impulses that made him a political force.`\
-https://nytimes.com/2024/08/06/opinion/kamala-harris-donald-trump-birtherism.html
-
-**World’s Five Leading Chipmakers Have Now Promised U.S. Investment**\
-`The announcement of CHIPS Act funding for a plant in Indiana means the United States will have attracted investment from the world’s top chipmakers.`\
-https://nytimes.com/2024/08/06/business/economy/chipmakers-promise-investment.html
-
-**Google Exemplifies the Lack of Competition in the Tech World**\
-`The antitrust ruling is just the beginning of the kind of regulation that digital monopolies require.`\
-https://nytimes.com/live/2024/07/30/opinion/thepoint/google-exemplifies-the-lack-of-competition-in-the-tech-world
-
-**Democrats Need a Better Answer on Affordability. Here’s One.**\
-`Senator Brian Schatz of Hawaii discusses policies that can make housing and college more affordable.`\
-https://nytimes.com/2024/08/06/opinion/ezra-klein-podcast-brian-schatz.html
-
-**What the Latest Polling Tells Us About the 2024 Race**\
-`If a major change on the Democratic ticket fires up progressives, it wouldn’t be unusual to see a slightly higher number of progressive likely voters.`\
-https://nytimes.com/2024/08/06/opinion/harris-trump-vance-polls.html
-
-**Recession Fears May Be Overstated, but Not Unfounded**\
-`The economy has repeatedly defied predictions of a downturn since the pandemic recovery began. Now signs of strength contend with shakier readings.`\
-https://nytimes.com/2024/08/06/business/economy/recession-markets-stocks.html
-
-**50 Years Ago, the World Trade Center Was Home to the Art Crime of the Century**\
-`Philippe Petit saw the human story between the Twin Towers.`\
-https://nytimes.com/2024/08/06/opinion/philippe-petit-twin-towers.html
 
