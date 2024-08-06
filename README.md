@@ -1,3 +1,7 @@
+**Bush Administration Lawyer Whose Wife Was Killed on 9/11 Supports Plea Deal**\
+`In an exclusive interview, Theodore B. Olson called the agreement that was revoked last week “the best possible outcome.”`\
+https://nytimes.com/2024/08/06/us/politics/sept-11-plea-agreement.html
+
 **Trump Says Elon Musk Will Interview Him on Monday**\
 `The owner of the social media platform X has evolved from a skeptic of former President Donald J. Trump to one of his most influential supporters.`\
 https://nytimes.com/2024/08/06/us/politics/trump-elon-musk-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/06/briefing/harris-walz-hamas-political-leader-bangl
 **Kamala Harris Isn’t Playing It Safe**\
 `In picking Tim Walz, Harris is after more than just Pennsylvania.`\
 https://nytimes.com/2024/08/06/opinion/ezra-klein-podcast-vp-pick-harris-walz.html
-
-**Skateboard legend Andy Macdonald, at 51, is getting an unlikely Olympic epilogue**\
-`Andy Macdonald is contemporaries with Tony Hawk and once had a video game named after him. Now, at 51, he's in the Olympics for Team GB.`\
-https://nytimes.com/athletic/5684864/2024/08/06/andy-macdonald-skateboarding-olympics-51-great-britain/
 
