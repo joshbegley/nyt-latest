@@ -1,3 +1,7 @@
+**How Far Will a Reader Go to Hear Songs Inspired by Books?**\
+`In search of a connection between two worlds — one beloved, one baffling — a bibliophile made a musical pilgrimage.`\
+https://nytimes.com/2024/08/06/books/the-bookshop-band.html
+
 **Scoop City: What you should know from training camps today**\
 `A review of injuries, trade rumours and camp battles around the NFL.`\
 https://nytimes.com/athletic/5683882/2024/08/06/nfl-training-camp-injuries-scoop-city/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/06/climate/tim-walz-climate-change.html
 **Tim Walz Is Said to Be Kamala Harris’s Choice for Vice President**\
 `The Minnesota governor, a former high school teacher and National Guard member, brings to the ticket Midwestern appeal and a plain-spoken way of taking on Donald Trump.`\
 https://nytimes.com/2024/08/06/us/politics/kamala-harris-vp.html
-
-**Moore agrees first professional contract with Tottenham**\
-`Tottenham Hotspur have secured the future of highly-rated winger Mikey Moore.`\
-https://nytimes.com/athletic/5683416/2024/08/06/tottenham-mikey-moore-contract-signed/
 
