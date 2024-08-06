@@ -36,5 +36,5 @@ https://nytimes.com/video/world/asia/100000009612983/bangladesh-protests-hasina-
 
 **David Lynch Says He Has Emphysema**\
 `The director, 78, confirmed the diagnosis in a social media post after revealing in a magazine interview that he would be limited to directing remotely.`\
-https://nytimes.com/2024/08/05/us/david-lynch-emphysema-twin-peaks.html
+https://nytimes.com/2024/08/05/arts/television/david-lynch-emphysema-twin-peaks.html
 
