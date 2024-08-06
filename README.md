@@ -1,3 +1,7 @@
+**49ers confirm permission for Brandon Aiyuk to seek trade**\
+`For his four-year career, the 2020 first-round pick has hauled in 269 receptions for 3,931 yards and 25 touchdowns.`\
+https://nytimes.com/athletic/5683843/2024/08/06/brandon-aiyuk-49ers-trade-permission/
+
 **49ers' McCaffrey out with calf strain**\
 `McCaffrey, the reigning NFL Offensive Player of the Year, likely won't play in the preseason after suffering the injury.`\
 https://nytimes.com/athletic/5684887/2024/08/06/49ers-christian-mccaffrey-calf-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5684773/2024/08/06/gabby-thomas-olympics-200m-final
 **Browns' interest in Brandon Aiyuk fits their urgency to become immediate contenders**\
 `Cleveland would like to stack as much talent as possible for difficult battles ahead in what looks to be a loaded AFC.`\
 https://nytimes.com/athletic/5684681/2024/08/06/49ers-browns-brandon-aiyuk-trade/
-
-**‘Tim Walz’s Record Is a Joke’: JD Vance Slams Harris’s V.P. Pick**\
-`JD Vance, the Republican vice presidential nominee, shared his thoughts on the Democratic ticket at a rally in Philadelphia.`\
-https://nytimes.com/video/us/elections/100000009614828/jd-vance-attacks-tim-walz-record.html
 
