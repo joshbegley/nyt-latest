@@ -1,3 +1,11 @@
+**A Decade Later, ‘The Leftovers’ Seems Almost Like Prophecy**\
+`In interviews, the creators, Damon Lindelof and Tom Perrotta, look back at their HBO grief drama and how it plays differently after the coronavirus pandemic.`\
+https://nytimes.com/2024/08/06/arts/television/the-leftovers-10th-anniversary.html
+
+**Global Stock Market Chaos**\
+`Monday’s tumult reflects an underlying reality: The U.S. job market is cooling.`\
+https://nytimes.com/2024/08/06/briefing/global-stock-market.html
+
 **Musket Balls Found in Massachusetts Recall ‘Shot Heard Round the World’**\
 `The discovery of ammunition from the 1700s has revived tales of fighting at the start of the Revolutionary War.`\
 https://nytimes.com/2024/08/06/us/musket-balls-revolutionary-war.html
