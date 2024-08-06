@@ -1,3 +1,11 @@
+**Chargers training camp, Day 11: AJ Finley emerging as frontrunner in third safety battle**\
+`To take advantage of Derwin James' versatility, the Chargers need a quality third safety. Finley, a 2023 UDFA, is emerging.`\
+https://nytimes.com/athletic/5682780/2024/08/05/chargers-training-camp-aj-finley-safety/
+
+**Chelsea's Caicedo 'felt a lot of pressure' as British record transfer**\
+`Caicedo added that he believes he has more to show Chelsea fans during the coming campaign, saying "I can show my quality."`\
+https://nytimes.com/athletic/5682767/2024/08/05/moises-caicedo-chelsea-pressure-record-transfer/
+
 **Harris Nears Her Big V.P. Reveal After Fierce Lobbying From Democrats**\
 `The vice president is expected to announce her choice on Tuesday morning. One prominent Democrat recounted being asked by a contender, “Will you please make sure you put in a good word for me?”`\
 https://nytimes.com/2024/08/05/us/politics/kamala-harris-vp-pick-democrats.html
