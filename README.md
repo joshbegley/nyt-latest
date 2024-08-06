@@ -2,7 +2,7 @@
 `Trew became the first Australian woman to medal in the event and the youngest medallist at the Paris Games.`\
 https://nytimes.com/athletic/5684391/2024/08/06/arisa-trew-olympics-skateboarding-gold/
 
-**E.P.A. Imposes an Emergency Ban on a Weedkiller Harmful to Fetuses**\
+**E.P.A. Pulls From the Market a Weedkiller Harmful to Fetuses**\
 `The herbicide, used widely on crops including broccoli and onions, can cause low birth weight and impaired brain development, regulators said.`\
 https://nytimes.com/2024/08/06/climate/epa-dacthal-dimethyl-tetrachloroterephthalate-ban.html
 
