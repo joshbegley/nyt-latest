@@ -1,3 +1,7 @@
+**Stocks in Asia Rebound After a Day of Wild Selling Worldwide**\
+`The Nikkei 225, the benchmark index in Japan, rose on Tuesday after a record decline.`\
+https://nytimes.com/2024/08/05/business/nikkei-global-stocks.html
+
 **Southern California Brush Fire Burns Several Hillside Homes**\
 `A blaze in San Bernardino burned several homes and threatened others nearby, forcing immediate evacuations.`\
 https://nytimes.com/2024/08/05/us/san-bernardino-fire-homes.html
@@ -6,7 +10,7 @@ https://nytimes.com/2024/08/05/us/san-bernardino-fire-homes.html
 `Economists blamed a variety of factors for Monday’s slide. But Donald Trump was trying to disrupt weeks of momentum for Vice President Kamala Harris and her party.`\
 https://nytimes.com/2024/08/05/us/politics/trump-harris-market-downturn.html
 
-**Chargers training camp, Day 11: AJ Finley emerging as front-runner in third safety battle**\
+**Chargers training camp, Day 11: AJ Finley emerging as front-runner in third-safety battle**\
 `To take advantage of Derwin James' versatility, the Chargers need a quality third safety. Could that be Finley, a 2023 undrafted free agent?`\
 https://nytimes.com/athletic/5682780/2024/08/05/chargers-training-camp-aj-finley-safety/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/05/opinion/jd-vance-fascism-unhumans.html
 **Bangladesh Prime Minister Flees Country After Weeks of Protests**\
 `Prime Minister Sheikh Hasina resigned and fled Bangladesh under intense pressure from a growing protest movement enraged by her government’s deadly crackdowns.`\
 https://nytimes.com/video/world/asia/100000009612983/bangladesh-protests-hasina-resigns.html
-
-**David Lynch Says He Has Emphysema**\
-`The director, 78, confirmed the diagnosis in a social media post after revealing in a magazine interview that he would be limited to directing remotely.`\
-https://nytimes.com/2024/08/05/us/david-lynch-emphysema-twin-peaks.html
 

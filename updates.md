@@ -1,3 +1,11 @@
+**Stocks in Asia Rebound After a Day of Wild Selling Worldwide**\
+`The Nikkei 225, the benchmark index in Japan, rose on Tuesday after a record decline.`\
+https://nytimes.com/2024/08/05/business/nikkei-global-stocks.html
+
+**Chargers training camp, Day 11: AJ Finley emerging as front-runner in third-safety battle**\
+`To take advantage of Derwin James' versatility, the Chargers need a quality third safety. Could that be Finley, a 2023 undrafted free agent?`\
+https://nytimes.com/athletic/5682780/2024/08/05/chargers-training-camp-aj-finley-safety/
+
 **Chargers training camp, Day 11: AJ Finley emerging as front-runner in third safety battle**\
 `To take advantage of Derwin James' versatility, the Chargers need a quality third safety. Could that be Finley, a 2023 undrafted free agent?`\
 https://nytimes.com/athletic/5682780/2024/08/05/chargers-training-camp-aj-finley-safety/
