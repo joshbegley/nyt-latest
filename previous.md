@@ -1,3 +1,7 @@
+**Harris and Walz Make Their National Entrance Before Upbeat Democrats**\
+`Introducing her new running mate at an energetic rally in Philadelphia, the vice president cast the Democratic ticket as born of the middle class and fighting for its interests.`\
+https://nytimes.com/2024/08/06/us/politics/harris-tim-walz-rally.html
+
 **Kristian Wilkerson making a charge as Raiders receivers battle for a roster spot**\
 `After Davante Adams, Jakobi Meyers and Tre Tucker, the Raiders have two or three open spots to fill at receiver.`\
 https://nytimes.com/athletic/5684877/2024/08/06/las-vegas-raiders-receiver-roster-kristian-wilkerson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5685051/2024/08/06/new-york-giants-malik-nabers-det
 **New York City Faces Heavy Rain. Debby May Make It Worse.**\
 `The thunderstorms hitting the New York area are the result of the meeting of a cold front and a mass of very moist air.`\
 https://nytimes.com/2024/08/06/weather/new-york-rains-debby.html
-
-**How Sean Payton altered Broncos training camp with designs on avoiding slow start**\
-`Devaughn Vele, a seventh-round rookie receiver, continued to build on a strong camp with an acrobatic touchdown grab Tuesday.`\
-https://nytimes.com/athletic/5684741/2024/08/06/sean-payton-broncos-slow-start/
 
