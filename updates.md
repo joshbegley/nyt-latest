@@ -1,3 +1,7 @@
+**CNET Sold to Ziff Davis in Sign of Possible Media Deals to Come**\
+`Ziff Davis is acquiring CNET for more than $100 million. Its founder thinks more acquisitions are on the horizon.`\
+https://nytimes.com/2024/08/06/business/media/cnet-ziff-davis.html
+
 **The Zombie Pharmacies That Are Holding Back New York City Retail**\
 `Over a million square feet of retail space is empty in vacant chain-drugstore locations across New York City. Here’s why it’s so hard to fill.`\
 https://nytimes.com/2024/08/06/nyregion/pharmacies-vacant-drugstores-retail.html
