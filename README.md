@@ -1,3 +1,7 @@
+**Barcelona agree deal in principle for Olmo**\
+`Barcelona have reached an agreement in principle with RB Leipzig to sign Dani Olmo.`\
+https://nytimes.com/athletic/5620891/2024/08/06/barcelona-dani-olmo-transfer/
+
 **Former 'Around the NFL' hosts Hanzus, Sessler start new pod**\
 `Dan Hanzus and Marc Sessler are starting their own podcast following their exit from NFL Network, where they led its popular “Around the NFL” podcast for more than a decade, sources briefed on the move said.`\
 https://nytimes.com/athletic/5683888/2024/08/06/hanzus-sessler-podcast-nfl-network/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/06/well/ozempic-semaglutide-overdose-risks.html
 **Can Freed Russian Dissidents Help Energize an Opposition Movement?**\
 `The release of activists like Ilya Yashin gives new hope to an movement in which various groups are often at war with each other. But many have doubts.`\
 https://nytimes.com/2024/08/06/world/europe/russian-dissidents-opposition-movement.html
-
-**How Trump-Vance and Harris-Walz Made It to the Presidential Ticket**\
-`Comparing the major career moments of the 2024 presidential and vice-presidential candidates.`\
-https://nytimes.com/interactive/2024/08/06/us/elections/trump-vance-harris-walz-education-career.html
 
