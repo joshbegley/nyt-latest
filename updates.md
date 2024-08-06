@@ -1,3 +1,15 @@
+**Arizona Grand Jury Wanted to Indict Trump in Fake Electors Case**\
+`Newly released court papers show that grand jurors signaled their interest in charging the former president, only to have state prosecutors advise against it because of similarities to the federal case against him.`\
+https://nytimes.com/2024/08/06/us/politics/arizona-grand-jury-trump-fake-electors.html
+
+**Team USA trounces Brazil, advances to semifinals vs. Serbia**\
+`Devin Booker was the United States’ leading scorer with 18 points and five 3s.`\
+https://nytimes.com/athletic/5684833/2024/08/06/usa-brazil-olympics-basketball-result/
+
+**Brazil sets up Olympic soccer gold medal match against USWNT**\
+`The United States beat Germany in the earlier semifinal on Tuesday.`\
+https://nytimes.com/athletic/5684999/2024/08/06/brazil-olympic-soccer-uswnt-final-gold/
+
 **Trump Campaign Criticizes Walz for State Law Providing Tampons in Schools**\
 `The law, which was passed in Minnesota last year, includes language requiring menstrual products to be available in bathrooms of all schools for grades 4 to 12 as a way to accommodate transgender students.`\
 https://nytimes.com/2024/08/06/us/politics/trump-tim-walz-tampons-schools.html
