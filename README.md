@@ -1,3 +1,7 @@
+**X, Owned by Elon Musk, Brings Antitrust Suit Accusing Advertisers of a Boycott**\
+`The company claimed that members of the Global Alliance for Responsible Media coordinated to dissuade brands from advertising on X.`\
+https://nytimes.com/2024/08/06/technology/x-antitrust-suit-advertisers-elon-musk.html
+
 **Tim Walz Is the Veep’s Pick for Veep**\
 `Many Democrats see Tim Walz as the hottest Minnesota export since Scotch tape.`\
 https://nytimes.com/2024/08/06/us/politics/tim-walz-is-the-veeps-pick-for-veep.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5683888/2024/08/06/hanzus-sessler-podcast-nfl-netwo
 **Serbia, Nikola Jokić thwart Australia's medal hopes**\
 `Serbia survived an incredible last-second shot by Patty Mills over Nikola Jokić to force overtime, defeating Australia 95-90 to advance.`\
 https://nytimes.com/athletic/5683995/2024/08/06/olympic-basketball-serbia-australia-results/
-
-**Sadness Among Teen Girls May Be Improving, C.D.C. Finds**\
-`A national survey found promising signs that key mental health measures for teens, especially girls, have improved since the depths of the pandemic.`\
-https://nytimes.com/2024/08/06/health/teenage-girl-depression-sadness-pandemic.html
 
