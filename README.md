@@ -1,3 +1,11 @@
+**A Decade Later, ‘The Leftovers’ Seems Almost Like Prophecy**\
+`In interviews, the creators, Damon Lindelof and Tom Perrotta, look back at their HBO grief drama and how it plays differently after the coronavirus pandemic.`\
+https://nytimes.com/2024/08/06/arts/television/the-leftovers-10th-anniversary.html
+
+**Global Stock Market Chaos**\
+`Monday’s tumult reflects an underlying reality: The U.S. job market is cooling.`\
+https://nytimes.com/2024/08/06/briefing/global-stock-market.html
+
 **Musket Balls Found in Massachusetts Recall ‘Shot Heard Round the World’**\
 `The discovery of ammunition from the 1700s has revived tales of fighting at the start of the Revolutionary War.`\
 https://nytimes.com/2024/08/06/us/musket-balls-revolutionary-war.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5682050/2024/08/06/bears-kerry-joseph-caleb-william
 **What Just Happened on Wall Street?**\
 `Explaining Monday’s stock-market plunge, and its potential consequences.`\
 https://nytimes.com/2024/08/06/podcasts/the-daily/global-stock-market-fears.html
-
-**Markets Begin to Rebound, and Harris V.P. Pick Expected Today**\
-`Plus, controversy in women’s Olympic boxing.`\
-https://nytimes.com/2024/08/06/podcasts/new-markets-rebound-harris-vp-google-monopoly.html
-
-**The Connections Companion No. 423**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 7, 2024.`\
-https://nytimes.com/2024/08/06/crosswords/connections-companion-423.html
 
