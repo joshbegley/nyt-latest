@@ -1,3 +1,11 @@
+**Transcript: Ezra Klein Discusses Kamala Harris’s VP pick**\
+`The Aug. 6, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/08/06/opinion/transcript-ezra-klein-discusses-kamala-harriss-vp-pick.html
+
+**NCAA takes step that could lead to unit payouts for women's hoops tourney teams**\
+`The fund, if passed, would begin during the 2025 women’s NCAA Tournament with payouts starting during the 2025-26 fiscal year.`\
+https://nytimes.com/athletic/5685249/2024/08/06/ncaa-proposal-units-womens-basketball-tournament/
+
 **MLB exec Billy Bean, former major leaguer and advocate for LGBTQ inclusion, dies at 60**\
 `Bean was hired by former commissioner Bud Selig in part to confront the homophobia that persisted in MLB clubhouses.`\
 https://nytimes.com/athletic/5685331/2024/08/06/mlb-billy-bean-death-obituary/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/06/world/middleeast/yahya-sinwar-hamas.html
 **Another one and done: Assistant coach Mark Recchi won't be back with Blue Jackets**\
 `The Blue Jackets continue to make decisions as training camp nears.`\
 https://nytimes.com/athletic/5685137/2024/08/06/blue-jackets-recchi-assistant/
-
-**Algerian boxer Khelif advances to gold medal round**\
-`Khelif is into the Olympic final, set for Friday at Roland Garros. One step from a gold medal.`\
-https://nytimes.com/athletic/5685067/2024/08/06/imane-khelif-olympic-boxing-results/
-
-**Trading Brandon Aiyuk would be massive 49ers failure on almost every level**\
-`The 49ers' leaders made a major miscalculation, and it could cost them their best shot at throwing a parade in February.`\
-https://nytimes.com/athletic/5683122/2024/08/06/kawakami-trading-brandon-aiyuk-massive-49ers-failure/
 
