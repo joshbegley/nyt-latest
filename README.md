@@ -31,7 +31,7 @@ https://nytimes.com/athletic/5684526/2024/08/06/simone-biles-usa-gymnastics-olym
 https://nytimes.com/2024/08/06/climate/tim-walzs-big-climate-ambitions.html
 
 **Braves, Reds to play game next season at Bristol Motor Speedway: Sources**\
-`Bristol Motor Speedway, one of NASCAR’s most iconic tracks, will host a regular season MLB game between the Atlanta Braves and Cincinnati Reds in 2025, multiple sources told The Athletic on Tuesday.`\
+`Bristol Motor Speedway, one of NASCAR’s most iconic tracks, will host a regular season MLB game between the Atlanta Braves and Cincinnati Reds in 2025, multiple sources briefed on the plans told The Athletic on Tuesday.`\
 https://nytimes.com/athletic/5684541/2024/08/06/braves-reds-game-bristol-motor-speedway-2025/
 
 **With Walz, Harris Passes on a Chance to Redefine Herself**\
