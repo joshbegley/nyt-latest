@@ -1,3 +1,7 @@
+**What Just Happened on Wall Street?**\
+`Explaining Monday’s stock-market plunge, and its potential consequences.`\
+https://nytimes.com/2024/08/06/podcasts/the-daily/global-stock-market-fears.html
+
 **Historically Black Medical Schools Land a $600 Million Donation**\
 `Bloomberg Philanthropies gives what are thought to be record-breaking gifts to the endowments of Meharry Medical College, Morehouse and Howard University.`\
 https://nytimes.com/2024/08/06/us/donation-historically-black-medical-schools-bloomberg.html

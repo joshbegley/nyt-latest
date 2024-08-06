@@ -18,7 +18,7 @@ https://nytimes.com/athletic/5676610/2024/08/06/the-tiktok-olympics/
 `The Bears believe Joseph's unusual path in pro football has helped him establish an instant connection with their rookie quarterback.`\
 https://nytimes.com/athletic/5682050/2024/08/06/bears-kerry-joseph-caleb-williams/
 
-**A Wild Day on Wall Street**\
+**What Just Happened on Wall Street?**\
 `Explaining Monday’s stock-market plunge, and its potential consequences.`\
 https://nytimes.com/2024/08/06/podcasts/the-daily/global-stock-market-fears.html
 
