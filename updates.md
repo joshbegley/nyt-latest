@@ -1,3 +1,11 @@
+**Where Tim Walz Stands on the Issues**\
+`As governor of Minnesota, he has enacted policies to secure abortion protections, provide free meals for schoolchildren, allow recreational marijuana and set renewable energy goals.`\
+https://nytimes.com/2024/08/06/us/politics/tim-walz-harris-vp-policies.html
+
+**Canucks summer notebook: Tocchet's Canada gig, Desharnais' opportunity and more**\
+`Could Desharnais player higher up the lineup than we expect? Might Brock Boeser be drafted into the faceoff circle this season?`\
+https://nytimes.com/athletic/5683170/2024/08/06/canucks-rick-tocchet-canada-vincent-desharnais/
+
 **Walz Has Faced Criticism for His Response to George Floyd Protests**\
 `Some believe that Gov. Tim Walz should have deployed the Minnesota National Guard sooner when riots broke out following the police murder of George Floyd.`\
 https://nytimes.com/2024/08/06/us/tim-walz-george-floyd-criticism.html

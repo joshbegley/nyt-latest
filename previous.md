@@ -1,3 +1,11 @@
+**Where Tim Walz Stands on the Issues**\
+`As governor of Minnesota, he has enacted policies to secure abortion protections, provide free meals for schoolchildren, allow recreational marijuana and set renewable energy goals.`\
+https://nytimes.com/2024/08/06/us/politics/tim-walz-harris-vp-policies.html
+
+**Canucks summer notebook: Tocchet's Canada gig, Desharnais' opportunity and more**\
+`Could Desharnais player higher up the lineup than we expect? Might Brock Boeser be drafted into the faceoff circle this season?`\
+https://nytimes.com/athletic/5683170/2024/08/06/canucks-rick-tocchet-canada-vincent-desharnais/
+
 **Walz Has Faced Criticism for His Response to George Floyd Protests**\
 `Some believe that Gov. Tim Walz should have deployed the Minnesota National Guard sooner when riots broke out following the police murder of George Floyd.`\
 https://nytimes.com/2024/08/06/us/tim-walz-george-floyd-criticism.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5646049/2024/08/06/salif-mane-2024-olympics-track-a
 **Hurricane Debby Sweeps Cocaine Worth $1 Million Onto Florida Beach**\
 `More than two dozen packages of cocaine were found on a beach in the Florida Keys, according to the U.S. Border Patrol.`\
 https://nytimes.com/2024/08/06/us/hurricane-debby-cocaine-florida.html
-
-**‘The more you know about something the less scary it is’: The Week 7 Winner of Our Summer Reading Contest**\
-`Michelle Zhibing Zhou, 15, writes about a Science article highlighting new research that “sent ripples throughout the leech research community and shivers down my spine.”`\
-https://nytimes.com/2024/08/06/learning/the-more-you-know-about-something-the-less-scary-it-is-the-week-7-winner-of-our-summer-reading-contest.html
-
-**Guido Rodriguez joins West Ham on free transfer**\
-`West Ham United have completed the signing of Guido Rodriguez on a free transfer.`\
-https://nytimes.com/athletic/5683566/2024/08/06/guido-rodriguez-west-ham-transfer/
 
