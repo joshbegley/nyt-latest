@@ -1,3 +1,7 @@
+**2025 NASCAR playoff schedule likely to include Talladega in semis**\
+`Repositioning Talladega is one of several changes NASCAR is expected to make to next year's 10-race playoff schedule.`\
+https://nytimes.com/athletic/5683514/2024/08/06/nascar-playoff-schedule-2025-changes/
+
 **Here’s the latest on the presidential race.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/08/06/us/kamala-harris-vp-trump-election/heres-the-latest-on-the-presidential-race
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5679828/2024/08/06/oilers-prospect-sam-oreilly-nhl-
 **Sean Payton vows Broncos' 'awful' goal-to-go offense will improve in 2024**\
 `Rookie running back Audric Estimé could be key component in Denver's quest to improve upon a meager 53.3 percent TD rate near the goal line.`\
 https://nytimes.com/athletic/5682346/2024/08/06/sean-payton-broncos-red-zone-offense/
-
-**Endrick's Madrid start: Battles with Rudiger, friends with Guler, and a 'phenomenon'**\
-`After waiting so long for his dream move, Endrick is getting used to life as a Madrid player`\
-https://nytimes.com/athletic/5683141/2024/08/06/endrick-real-madrid-start/
 
