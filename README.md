@@ -3,7 +3,7 @@
 https://nytimes.com/2024/08/06/us/politics/kamala-harris-president-campaign-2024.html
 
 **August swoon leaves Astros searching for a spark: 'We need energy'**\
-`Fatigue from Houston's furious first-half turnaround is apparent and there are few solutions exist to fix it.`\
+`Fatigue from Houston's furious first-half turnaround is apparent, and few solutions exist to fix it.`\
 https://nytimes.com/athletic/5683156/2024/08/06/astros-walk-off-loss-rangers/
 
 **The impact of Summerville's departure: Gnonto staying, Rutter future and Rowe interest**\
