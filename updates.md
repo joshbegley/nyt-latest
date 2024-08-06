@@ -1,3 +1,11 @@
+**Tiny Love Stories: ‘I Slunk Into Will’s Room and Under His Sheets’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/08/06/style/tiny-modern-love-stories-i-slunk-into-wills-room-and-under-his-sheets.html
+
+**Hezbollah’s leader vows a ‘strong’ response to Israel’s strikes, ‘whatever the consequences.’**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/08/06/world/israel-iran-hezbollah-gaza/hezbollahs-leader-vows-a-strong-response-to-israels-strikes-whatever-the-consequences
+
 **It took 14 years and 86 days to make an Olympic champion in skateboarding.**\
 `Arisa Trew vaulted into first place with her final run, winning gold.`\
 https://nytimes.com/live/2024/07/27/world/olympics-paris-photos/arisa-trew-skateboarding
