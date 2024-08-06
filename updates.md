@@ -1,3 +1,7 @@
+**With Walz, Harris Passes on a Chance to Redefine Herself**\
+`There will be other opportunities to move to the center, if that’s a goal.`\
+https://nytimes.com/2024/08/06/upshot/walz-harris-vice-president.html
+
 **McLaughlin-Levrone, Bol advance to 400 hurdles finals**\
 `McLaughlin-Levrone has set the last five world records in the event, while Bol won the bronze in Tokyo and has improved.`\
 https://nytimes.com/athletic/5684511/2024/08/06/sydney-mclaughlin-levrone-femke-bol-womens-400-hurdles-semifinals/
