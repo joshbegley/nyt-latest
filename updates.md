@@ -1,3 +1,15 @@
+**Southern California Brush Fire Burns Several Hillside Homes**\
+`A blaze in San Bernardino burned several homes and threatened others nearby, forcing immediate evacuations.`\
+https://nytimes.com/2024/08/05/us/san-bernardino-fire-homes.html
+
+**Trump and His Allies Seize on Market Downturn to Attack Harris**\
+`Economists blamed a variety of factors for Monday’s slide. But Donald Trump was trying to disrupt weeks of momentum for Vice President Kamala Harris and her party.`\
+https://nytimes.com/2024/08/05/us/politics/trump-harris-market-downturn.html
+
+**Chargers training camp, Day 11: AJ Finley emerging as frontrunner in third safety battle**\
+`To take advantage of Derwin James' versatility, the Chargers need a quality third safety. Could that be Finley, a 2023 undrafted free agent?`\
+https://nytimes.com/athletic/5682780/2024/08/05/chargers-training-camp-aj-finley-safety/
+
 **Chargers training camp, Day 11: AJ Finley emerging as frontrunner in third safety battle**\
 `To take advantage of Derwin James' versatility, the Chargers need a quality third safety. Finley, a 2023 UDFA, is emerging.`\
 https://nytimes.com/athletic/5682780/2024/08/05/chargers-training-camp-aj-finley-safety/
