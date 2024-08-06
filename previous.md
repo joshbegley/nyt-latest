@@ -1,3 +1,11 @@
+**Why Jordan Love, other Packers starters will play in preseason and more from camp**\
+`Expect to see the starting QB and other first-team players vs. the Browns in Saturday's preseason opener on the road.`\
+https://nytimes.com/athletic/5684677/2024/08/06/packers-starters-preseason-games/
+
+**Wednesday Briefing: Harris Picked a Running Mate**\
+`Plus, how breaking made it to the Olympics.`\
+https://nytimes.com/2024/08/06/briefing/harris-walz-hamas-political-leader-bangladesh-muhammad-yunus.html
+
 **Kamala Harris Isn’t Playing It Safe**\
 `In picking Tim Walz, Harris is after more than just Pennsylvania.`\
 https://nytimes.com/2024/08/06/opinion/ezra-klein-podcast-vp-pick-harris-walz.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/06/well/cdc-covid-vaccines-free-program.html
 **Kennedy Testifies in Ballot Case, Insisting He Does Live in New York**\
 `In the wake of the revelation that he once dumped a bear in Central Park, Kennedy appeared in court over a challenge to the address on his presidential nominating petitions.`\
 https://nytimes.com/2024/08/06/nyregion/rfk-jr-testifies-ny-ballot.html
-
-**Joss Naylor, the English King of Racing Up Mountains, Dies at 88**\
-`A sheep farmer, he set records in so-called fell running — rugged off-trail competitions that can last days and present painful hazards, including an irate cow.`\
-https://nytimes.com/2024/08/06/sports/joss-naylor-dead.html
-
-**Trump’s Plan for Attacking Tim Walz: Paint Him as a Bernie Sanders Liberal**\
-`The Trump campaign had been preparing for Gov. Josh Shapiro of Pennsylvania to be Vice President Kamala Harris’s running mate. It now plans to stress Mr. Walz’s progressive governing record.`\
-https://nytimes.com/2024/08/06/us/politics/trump-tim-walz-attack.html
 

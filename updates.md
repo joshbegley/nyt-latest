@@ -1,3 +1,11 @@
+**Why Jordan Love, other Packers starters will play in preseason and more from camp**\
+`Expect to see the starting QB and other first-team players vs. the Browns in Saturday's preseason opener on the road.`\
+https://nytimes.com/athletic/5684677/2024/08/06/packers-starters-preseason-games/
+
+**Wednesday Briefing: Harris Picked a Running Mate**\
+`Plus, how breaking made it to the Olympics.`\
+https://nytimes.com/2024/08/06/briefing/harris-walz-hamas-political-leader-bangladesh-muhammad-yunus.html
+
 **Kamala Harris Isn’t Playing It Safe**\
 `In picking Tim Walz, Harris is after more than just Pennsylvania.`\
 https://nytimes.com/2024/08/06/opinion/ezra-klein-podcast-vp-pick-harris-walz.html
