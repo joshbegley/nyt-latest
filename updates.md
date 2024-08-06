@@ -1,3 +1,11 @@
+**The Windup: We need to talk about the Pirates**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5684179/2024/08/06/pittsburgh-pirates-the-windup/
+
+**X, Owned by Elon Musk, Brings Antitrust Suit Accusing Advertisers of a Boycott**\
+`The company claimed that members of the Global Alliance for Responsible Media coordinated to dissuade brands from advertising on X.`\
+https://nytimes.com/2024/08/06/technology/x-antitrust-suit-advertisers-elon-musk.html
+
 **Tim Walz Is the Veep’s Pick for Veep**\
 `Many Democrats see Tim Walz as the hottest Minnesota export since Scotch tape.`\
 https://nytimes.com/2024/08/06/us/politics/tim-walz-is-the-veeps-pick-for-veep.html
