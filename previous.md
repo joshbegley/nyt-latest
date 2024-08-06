@@ -1,3 +1,31 @@
+**Tuesday's MLB odds, best bets: Pitching matchups, props, playoff projections**\
+`See pitching matchups, playoff projections, win projections and more for Tuesday's MLB games.`\
+https://nytimes.com/athletic/5682238/2024/08/06/mlb-odds-best-bets-projections-august-6/
+
+**Tuesday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/08/06/briefing/olympics-kamala-harris-stock-markets.html
+
+**Star Power Elevates Pin Trading, the Unofficial Sport of the Olympics**\
+`Celebrities and athletes are chronicling the chase for their most prized conquests on social media, with high demand for designs from Snoop Dogg and Simone Biles.`\
+https://nytimes.com/2024/08/06/business/paris-olympics-pin-trading.html
+
+**Olympics Today: Tuesday's guide to what to watch in Paris**\
+`There are six days of Olympic competition left and only four women’s soccer teams remain vying for gold.`\
+https://nytimes.com/athletic/5682098/2024/08/06/olympics-2024-watch-guide-day-11-soccer-basketball/
+
+**Long Battle for a Ruined City Takes a Desperate Turn**\
+`Ukrainian troops are engaged in a harsh struggle for Toretsk, a strategic city in eastern Ukraine that has been under relentless assault by Russian forces.`\
+https://nytimes.com/2024/08/06/world/europe/ukraine-war-donetsk-toretsk.html
+
+**To Save His Shrinking City, a Mayor Turns to Koreans Uprooted by Stalin**\
+`Like many South Korean cities, Jecheon is being eroded by rapid aging and rock-bottom birthrates. Can ethnic Korean migrants from Central Asia turn it around?`\
+https://nytimes.com/2024/08/06/world/asia/korea-soviet-jecheon-population.html
+
+**White Sox lose 21st game in a row, tying 36-year-old American League record**\
+`The White Sox, owners of the worst record in MLB, are two more losses away from tying the 1961 Phillies, who lost 23 in a row. `\
+https://nytimes.com/athletic/5683072/2024/08/05/white-sox-lose-21st-game/
+
 **Caroline Marks wins Olympic surfing gold by narrow margin**\
 `In 2023, a banner year for Marks culminated with being a WSL Women’s World Tour champion at 21.`\
 https://nytimes.com/athletic/5682963/2024/08/05/caroline-marks-olympic-surfing-gold/
@@ -9,33 +37,4 @@ https://nytimes.com/2024/08/05/arts/television/akili-mcdowell-shooting-houston.h
 **Freddie Freeman returns to the Dodgers after his son's 'miraculous recovery'**\
 `When the improving 3-year-old noticed the IVs attached to each of his hands, he started “acting like he was Spider-Man,” Freeman said.`\
 https://nytimes.com/athletic/5682879/2024/08/05/freddie-freeman-son-recovery-maximus/
-
-**Bit of Ink**\
-`Daniel Raymon rides the current.`\
-https://nytimes.com/2024/08/05/crosswords/daily-puzzle-2024-08-06.html
-
-**Maresca blames Premier League for Chelsea cashing in on academy**\
-`Maresca's claims come as Conor Gallagher is at the center of a potential move to Atletico Madrid.
-`\
-https://nytimes.com/athletic/5682833/2024/08/05/enzo-maresca-chelsea-premier-league/
-
-**Stocks in Asia Rebound After a Day of Wild Selling Worldwide**\
-`The Nikkei 225, the benchmark index in Japan, rose on Tuesday after a record decline.`\
-https://nytimes.com/2024/08/05/business/nikkei-global-stocks.html
-
-**Southern California Fire Destroys Homes and Forces Evacuations**\
-`A blaze in San Bernardino burned suburban homes and threatened others nearby, adding to an already intense California fire season.`\
-https://nytimes.com/2024/08/05/us/san-bernardino-fire-homes.html
-
-**Trump and His Allies Seize on Market Downturn to Attack Harris**\
-`Economists blamed a variety of factors for Monday’s slide. But Donald Trump was trying to disrupt weeks of momentum for Vice President Kamala Harris and her party.`\
-https://nytimes.com/2024/08/05/us/politics/trump-harris-market-downturn.html
-
-**Chargers training camp, Day 11: AJ Finley emerging as front-runner in third-safety battle**\
-`To take advantage of Derwin James’ versatility, the Chargers need a quality third safety. Could that be Finley, a 2023 undrafted free agent?`\
-https://nytimes.com/athletic/5682780/2024/08/05/chargers-training-camp-aj-finley-safety/
-
-**Chelsea's Caicedo 'felt a lot of pressure' as British record transfer**\
-`Caicedo added that he believes he has more to show Chelsea fans during the coming campaign, saying "I can show my quality."`\
-https://nytimes.com/athletic/5682767/2024/08/05/moises-caicedo-chelsea-pressure-record-transfer/
 
