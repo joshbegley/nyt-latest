@@ -1,3 +1,7 @@
+**Why Did Harris Pick Walz? His Policies and Midwest Appeal Stood Out.**\
+`The vice president is said to have liked Mr. Walz’s economic policies in Minnesota, including a statewide child tax credit and a paid-leave program, as well as his folksy Midwestern background.`\
+https://nytimes.com/2024/08/06/us/politics/harris-walz-vp-pick.html
+
 **Barcelona agree deal in principle for Olmo**\
 `Barcelona have reached an agreement in principle with RB Leipzig to sign Dani Olmo.`\
 https://nytimes.com/athletic/5620891/2024/08/06/barcelona-dani-olmo-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/06/arts/philippe-petit-world-trade-center-50.html
 **More People Are Overdosing on Ozempic Alternatives**\
 `Some patients say it’s easy to get the do-it-yourself doses of compounded semaglutide wrong.`\
 https://nytimes.com/2024/08/06/well/ozempic-semaglutide-overdose-risks.html
-
-**Can Freed Russian Dissidents Help Energize an Opposition Movement?**\
-`The release of activists like Ilya Yashin gives new hope to an movement in which various groups are often at war with each other. But many have doubts.`\
-https://nytimes.com/2024/08/06/world/europe/russian-dissidents-opposition-movement.html
 

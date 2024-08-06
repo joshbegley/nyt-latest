@@ -1,3 +1,7 @@
+**Why Did Harris Pick Walz? His Policies and Midwest Appeal Stood Out.**\
+`The vice president is said to have liked Mr. Walz’s economic policies in Minnesota, including a statewide child tax credit and a paid-leave program, as well as his folksy Midwestern background.`\
+https://nytimes.com/2024/08/06/us/politics/harris-walz-vp-pick.html
+
 **Barcelona agree deal in principle for Olmo**\
 `Barcelona have reached an agreement in principle with RB Leipzig to sign Dani Olmo.`\
 https://nytimes.com/athletic/5620891/2024/08/06/barcelona-dani-olmo-transfer/
