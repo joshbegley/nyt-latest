@@ -18,7 +18,7 @@ https://nytimes.com/athletic/5685137/2024/08/06/blue-jackets-recchi-assistant/
 `Khelif is into the Olympic final, set for Friday at Roland Garros. One step from a gold medal.`\
 https://nytimes.com/athletic/5685067/2024/08/06/imane-khelif-olympic-boxing-results/
 
-**Trading Brandon Aiyuk would be a massive 49ers failure on almost every level**\
+**Trading Brandon Aiyuk would be massive 49ers failure on almost every level**\
 `The 49ers' leaders made a major miscalculation, and it could cost them their best shot at throwing a parade in February.`\
 https://nytimes.com/athletic/5683122/2024/08/06/kawakami-trading-brandon-aiyuk-would-be-a-massive-49ers-failure-on-almost-every-level/
 

@@ -1,3 +1,7 @@
+**Trading Brandon Aiyuk would be massive 49ers failure on almost every level**\
+`The 49ers' leaders made a major miscalculation, and it could cost them their best shot at throwing a parade in February.`\
+https://nytimes.com/athletic/5683122/2024/08/06/kawakami-trading-brandon-aiyuk-would-be-a-massive-49ers-failure-on-almost-every-level/
+
 **Harris and Walz Make Their National Entrance Before Upbeat Democrats**\
 `Introducing her new running mate at an energetic rally in Philadelphia, the vice president cast the Democratic ticket as born of the middle class and fighting for its interests.`\
 https://nytimes.com/2024/08/06/us/politics/harris-tim-walz-rally.html
