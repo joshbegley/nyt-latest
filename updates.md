@@ -1,3 +1,7 @@
+**Former 'Around the NFL' hosts Hanzus, Sessler start new pod**\
+`Dan Hanzus and Marc Sessler are starting their own podcast following their exit from NFL Network, where they led its popular “Around the NFL” podcast for more than a decade, sources briefed on the move said.`\
+https://nytimes.com/athletic/5683888/2024/08/06/hanzus-sessler-podcast-nfl-network/
+
 **Serbia, Nikola Jokić thwart Australia's medal hopes**\
 `Serbia survived an incredible last-second shot by Patty Mills over Nikola Jokić to force overtime, defeating Australia 95-90 to advance.`\
 https://nytimes.com/athletic/5683995/2024/08/06/olympic-basketball-serbia-australia-results/
