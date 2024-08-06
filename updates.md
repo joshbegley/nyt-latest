@@ -1,3 +1,7 @@
+**Why the Electoral Math on Tim Walz Makes Sense**\
+`If he can reduce Trump’s numbers in rural counties around the country, Harris could win.`\
+https://nytimes.com/2024/07/30/opinion/tim-walz-electoral-math.html
+
 **19 Facts About Tim Walz, Harris’s Pick for Vice President**\
 `Mr. Walz, the governor of Minnesota, worked as a high school social studies teacher and football coach, served in the Army National Guard and chooses Diet Mountain Dew over alcohol.`\
 https://nytimes.com/2024/08/06/us/politics/tim-walz-harris-vp-facts.html

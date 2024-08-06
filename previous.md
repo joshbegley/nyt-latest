@@ -1,3 +1,7 @@
+**Why the Electoral Math on Tim Walz Makes Sense**\
+`If he can reduce Trump’s numbers in rural counties around the country, Harris could win.`\
+https://nytimes.com/2024/07/30/opinion/tim-walz-electoral-math.html
+
 **19 Facts About Tim Walz, Harris’s Pick for Vice President**\
 `Mr. Walz, the governor of Minnesota, worked as a high school social studies teacher and football coach, served in the Army National Guard and chooses Diet Mountain Dew over alcohol.`\
 https://nytimes.com/2024/08/06/us/politics/tim-walz-harris-vp-facts.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/06/us/politics/tim-walz-harris-vp-policies.html
 **Canucks summer notebook: Tocchet's Canada gig, Desharnais' opportunity and more**\
 `Could Desharnais player higher up the lineup than we expect? Might Brock Boeser be drafted into the faceoff circle this season?`\
 https://nytimes.com/athletic/5683170/2024/08/06/canucks-rick-tocchet-canada-vincent-desharnais/
-
-**Walz Has Faced Criticism for His Response to George Floyd Protests**\
-`Some believe that Gov. Tim Walz should have deployed the Minnesota National Guard sooner when riots broke out following the police murder of George Floyd.`\
-https://nytimes.com/2024/08/06/us/tim-walz-george-floyd-criticism.html
 
