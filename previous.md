@@ -1,3 +1,15 @@
+**The World That Awaits the Next President**\
+`Maintaining our global primacy is worth the price in effort, treasure and sometimes blood.`\
+https://nytimes.com/2024/08/06/opinion/harris-trump-ukraine.html
+
+**F.B.I. Seizes Republican Lawmaker’s Phone Amid Scrutiny Over Loan**\
+`Representative Andy Ogles of Tennessee reported lending his campaign $320,000 in 2022 before retracting it.`\
+https://nytimes.com/2024/08/06/us/politics/andy-ogles-phone-fbi-search.html
+
+**Hamas Elevates Gaza Leader Who Planned Oct. 7 Attacks to Top Post**\
+`The selection of Yahya Sinwar, a prime target of Israeli forces, to replace the assassinated Ismail Haniyeh consolidates authority in the hands of a hard-liner who is in hiding.`\
+https://nytimes.com/2024/08/06/world/middleeast/hamas-yahya-sinwar-promoted.html
+
 **Harris and Walz Make Their National Entrance Before Upbeat Democrats**\
 `Introducing her new running mate at an energetic rally in Philadelphia, the vice president cast the Democratic ticket as born of the middle class and fighting for its interests.`\
 https://nytimes.com/2024/08/06/us/politics/harris-tim-walz-rally.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5683122/2024/08/06/kawakami-trading-brandon-aiyuk-w
 **USWNT has suffered at the Olympics. Its perseverance is rewarded with a chance for gold**\
 `How Hayes has rebuilt the USWNT a year after its early exit from the 2023 World Cup has instilled belief.`\
 https://nytimes.com/athletic/5685119/2024/08/06/uswnt-emma-hayes-olympics-final-suffering/
-
-**Tim Walz Is Harris’s Choice for Vice President**\
-`Also, Debby is bringing historic levels of rain to the Southeast. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2024/08/06/briefing/tim-walz-harris-vp-pick-debby-storm.html
-
-**Giants' Malik Nabers torches Lions DBs: 'There's not a lot that I can't do'**\
-`Though only a rookie, Nabers has already established himself as the Giants' most dangerous weapon.`\
-https://nytimes.com/athletic/5685051/2024/08/06/new-york-giants-malik-nabers-detroit-lions-training-camp/
-
-**New York City Faces Heavy Rain. Debby May Make It Worse.**\
-`The thunderstorms hitting the New York area are the result of the meeting of a cold front and a mass of very moist air.`\
-https://nytimes.com/2024/08/06/weather/new-york-rains-debby.html
 

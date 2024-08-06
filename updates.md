@@ -1,3 +1,15 @@
+**The World That Awaits the Next President**\
+`Maintaining our global primacy is worth the price in effort, treasure and sometimes blood.`\
+https://nytimes.com/2024/08/06/opinion/harris-trump-ukraine.html
+
+**F.B.I. Seizes Republican Lawmaker’s Phone Amid Scrutiny Over Loan**\
+`Representative Andy Ogles of Tennessee reported lending his campaign $320,000 in 2022 before retracting it.`\
+https://nytimes.com/2024/08/06/us/politics/andy-ogles-phone-fbi-search.html
+
+**Hamas Elevates Gaza Leader Who Planned Oct. 7 Attacks to Top Post**\
+`The selection of Yahya Sinwar, a prime target of Israeli forces, to replace the assassinated Ismail Haniyeh consolidates authority in the hands of a hard-liner who is in hiding.`\
+https://nytimes.com/2024/08/06/world/middleeast/hamas-yahya-sinwar-promoted.html
+
 **Trading Brandon Aiyuk would be massive 49ers failure on almost every level**\
 `The 49ers' leaders made a major miscalculation, and it could cost them their best shot at throwing a parade in February.`\
 https://nytimes.com/athletic/5683122/2024/08/06/kawakami-trading-brandon-aiyuk-would-be-a-massive-49ers-failure-on-almost-every-level/
