@@ -1,3 +1,7 @@
+**The U.S. tour that 'saved' Barcelona - and why only half their squad came back**\
+`One of the most remarkable chapters in the club's history concluded in New York. Here's the full story`\
+https://nytimes.com/athletic/5683437/2024/08/06/barcelona-united-states-tour-1937-civil-war/
+
 **2025 NASCAR playoff schedule likely to include Talladega in semis**\
 `Repositioning Talladega is one of several changes NASCAR is expected to make to next year's 10-race playoff schedule.`\
 https://nytimes.com/athletic/5683514/2024/08/06/nascar-playoff-schedule-2025-changes/
