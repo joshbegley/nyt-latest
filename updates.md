@@ -3,6 +3,19 @@
 `\
 https://nytimes.com/athletic/5682833/2024/08/05/enzo-maresca-chelsea-premier-league/
 
+**Southern California Fire Destroys Homes and Forces Evacuations**\
+`A blaze in San Bernardino burned suburban homes and threatened others nearby, adding to an already intense California fire season.`\
+https://nytimes.com/2024/08/05/us/san-bernardino-fire-homes.html
+
+**2024 Presidential Election Calendar**\
+`Here are important dates and voting deadlines for the 2024 election.`\
+https://nytimes.com/interactive/2024/us/elections/2024-election-calendar.html
+
+**Maresca blames Premier League for Chelsea cashing in on academy**\
+`Maresca's claims come as Conor Gallagher is at the center of a potential move to Atletico Madrid.
+`\
+https://nytimes.com/athletic/5682833/2024/08/05/enzo-maresca-chelsea-premier-league/
+
 **Maresca blames Premier League for Chelsea cashing in on academy**\
 `Maresca's claims come as Conor Gallagher is at the center of a potential move to Atletico Madrid.
 `\

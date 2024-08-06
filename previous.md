@@ -7,8 +7,8 @@ https://nytimes.com/athletic/5682833/2024/08/05/enzo-maresca-chelsea-premier-lea
 `The Nikkei 225, the benchmark index in Japan, rose on Tuesday after a record decline.`\
 https://nytimes.com/2024/08/05/business/nikkei-global-stocks.html
 
-**Southern California Brush Fire Burns Several Hillside Homes**\
-`A blaze in San Bernardino burned several homes and threatened others nearby, forcing immediate evacuations.`\
+**Southern California Fire Destroys Homes and Forces Evacuations**\
+`A blaze in San Bernardino burned suburban homes and threatened others nearby, adding to an already intense California fire season.`\
 https://nytimes.com/2024/08/05/us/san-bernardino-fire-homes.html
 
 **Trump and His Allies Seize on Market Downturn to Attack Harris**\
@@ -29,7 +29,7 @@ https://nytimes.com/2024/08/05/us/politics/kamala-harris-vp-pick-democrats.html
 
 **2024 Presidential Election Calendar**\
 `Here are important dates and voting deadlines for the 2024 election.`\
-https://nytimes.com/interactive/2024/08/05/us/elections/2024-election-calendar.html
+https://nytimes.com/interactive/2024/us/elections/2024-election-calendar.html
 
 **Trump’s Surreal Summer, in Photos**\
 `Six images that tell the story of Trump’s wild summer.`\
