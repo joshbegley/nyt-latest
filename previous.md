@@ -1,3 +1,11 @@
+**Atletico in advanced talks to sign Guerra from Valencia**\
+`Atletico Madrid are in advanced talks to sign Valencia midfielder Javi Guerra.`\
+https://nytimes.com/athletic/5683491/2024/08/06/atletico-madrid-javi-guerra/
+
+**How Google’s Antitrust Defeat Might Transform Big Tech**\
+`The search giant is likely to appeal a federal judge’s ruling that it abuses its monopoly in the lucrative online business. But the industry could still see major changes.`\
+https://nytimes.com/2024/08/06/business/dealbook/google-antitrust-tech.html
+
 **Why Seahawks GM prayed for chance to interview coach Mike Macdonald**\
 `Seahawks GM John Schneider badly wanted to interview Macdonald, so he prayed for a Ravens loss in the AFC Championship Game. `\
 https://nytimes.com/athletic/5681571/2024/08/06/mike-macdonald-seattle-seahawks-ravens-john-schneider/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5683363/2024/08/06/andre-onana-manchester-united-ri
 **Residents were rescued from floods in Florida. Here’s the latest.**\
 `By Patricia Mazzei, Isabelle Taft and Judson Jones`\
 https://nytimes.com/live/2024/08/06/weather/debby-storm-forecast/residents-were-rescued-from-floods-in-florida-heres-the-latest
-
-**Live Updates: Slow-Motion Debby Drenches the Southeast**\
-`Rivers across the region were rising from a potentially record-setting deluge. The tropical storm was blamed for at least five deaths after hitting Florida’s Big Bend coast as a hurricane.`\
-https://nytimes.com/live/2024/08/06/weather/debby-storm-forecast
-
-**Bangladesh Protesters Want Nobel Laureate to Advise New Government**\
-`Muhammad Yunus, a Nobel Peace Prize recipient, has emerged as a central figure in talks about an interim government. The ousted prime minister largely saw him as a threat.`\
-https://nytimes.com/2024/08/06/world/asia/bangladesh-protests-muhammad-yunus.html
 

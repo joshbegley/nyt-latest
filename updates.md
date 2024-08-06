@@ -1,3 +1,11 @@
+**Atletico in advanced talks to sign Guerra from Valencia**\
+`Atletico Madrid are in advanced talks to sign Valencia midfielder Javi Guerra.`\
+https://nytimes.com/athletic/5683491/2024/08/06/atletico-madrid-javi-guerra/
+
+**How Google’s Antitrust Defeat Might Transform Big Tech**\
+`The search giant is likely to appeal a federal judge’s ruling that it abuses its monopoly in the lucrative online business. But the industry could still see major changes.`\
+https://nytimes.com/2024/08/06/business/dealbook/google-antitrust-tech.html
+
 **Why Seahawks GM prayed for chance to interview coach Mike Macdonald**\
 `Seahawks GM John Schneider badly wanted to interview Macdonald, so he prayed for a Ravens loss in the AFC Championship Game. `\
 https://nytimes.com/athletic/5681571/2024/08/06/mike-macdonald-seattle-seahawks-ravens-john-schneider/
