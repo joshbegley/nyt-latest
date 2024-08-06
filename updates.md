@@ -28,6 +28,11 @@ https://nytimes.com/athletic/5682833/2024/08/05/enzo-maresca-chelsea-premier-lea
 `\
 https://nytimes.com/athletic/5682833/2024/08/05/enzo-maresca-chelsea-premier-league/
 
+**Maresca blames Premier League for Chelsea cashing in on academy**\
+`Maresca's claims come as Conor Gallagher is at the center of a potential move to Atletico Madrid.
+`\
+https://nytimes.com/athletic/5682833/2024/08/05/enzo-maresca-chelsea-premier-league/
+
 **Chargers training camp, Day 11: AJ Finley emerging as front-runner in third-safety battle**\
 `To take advantage of Derwin James’ versatility, the Chargers need a quality third safety. Could that be Finley, a 2023 undrafted free agent?`\
 https://nytimes.com/athletic/5682780/2024/08/05/chargers-training-camp-aj-finley-safety/
