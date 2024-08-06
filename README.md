@@ -1,3 +1,15 @@
+**Masks Banned in Public in Nassau County, With Some Exceptions**\
+`Violators who wear masks could be fined up to $1,000, although there would be exceptions for people who wear them for health or religious reasons.`\
+https://nytimes.com/2024/08/06/nyregion/mask-ban-nassau-county-allies.html
+
+**Utah Bans 13 Books From All Public Schools**\
+`This is the first time titles have been prohibited statewide, according to a free speech organization. The list includes books by Judy Blume and Margaret Atwood.`\
+https://nytimes.com/2024/08/06/books/utah-public-school-book-ban.html
+
+**An Israeli rights group says that Palestinian detainees have been systematically abused since Oct. 7.**\
+`By Aaron Boxerman and Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/08/06/world/israel-iran-hezbollah-gaza/an-israeli-rights-group-says-that-palestinian-detainees-have-been-systematically-abused-since-oct-7
+
 **Who Is Gwen Walz, the Wife of Tim Walz?**\
 `As the first lady of Minnesota, Gwen Walz has championed criminal justice and education reform.`\
 https://nytimes.com/2024/08/06/us/politics/tim-walz-family-wife.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/06/us/politics/tim-walz-is-the-veeps-pick-for-veep.h
 **With a personal story on I.V.F., Walz has vowed to protect access to the procedure.**\
 `By Amy Harmon`\
 https://nytimes.com/live/2024/08/06/us/kamala-harris-vp-trump-election/tim-walz-ivf
-
-**Markkanen, Jazz expected to reach extension**\
-`Utah held trade conversations surrounding the 27-year-old forward this offseason, most notably with the Warriors.`\
-https://nytimes.com/athletic/5683827/2024/08/06/lauri-markkanen-jazz-extension/
-
-**Walz Grew Up in Rural Nebraska, Where Finding a Date ‘Was Kind of a Problem’**\
-`Tim Walz moved several times during his childhood in Nebraska, where his high school graduating class had just 25 students.`\
-https://nytimes.com/2024/08/06/us/politics/walz-nebraska-history.html
-
-**Pitbull buys naming rights to FIU's football stadium**\
-`Florida International University has signed a five-year deal to rename its football stadium after recording artist Pitbull.`\
-https://nytimes.com/athletic/5684095/2024/08/06/pitbull-fiu-stadium-naming-rights/
 
