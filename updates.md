@@ -1,3 +1,15 @@
+**2025 NASCAR playoff schedule likely to include Talladega in semis**\
+`Repositioning Talladega is one of several changes NASCAR is expected to make to next year's 10-race playoff schedule.`\
+https://nytimes.com/athletic/5683514/2024/08/06/nascar-playoff-schedule-2025-changes/
+
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/08/06/us/kamala-harris-vp-trump-election/heres-the-latest-on-the-presidential-race
+
+**U.S. Envoy Says Ukraine’s Economy Needs Reform and Investment to Thrive**\
+`Penny Pritzker, who is leaving her position as special representative for Ukraine’s economic recovery, said the country had made progress but still faced major hurdles.`\
+https://nytimes.com/2024/08/06/us/politics/ukraine-economy-penny-pritzker.html
+
 **Atletico in advanced talks to sign Guerra from Valencia**\
 `Atletico Madrid are in advanced talks to sign Valencia midfielder Javi Guerra.`\
 https://nytimes.com/athletic/5683491/2024/08/06/atletico-madrid-javi-guerra/

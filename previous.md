@@ -1,3 +1,15 @@
+**2025 NASCAR playoff schedule likely to include Talladega in semis**\
+`Repositioning Talladega is one of several changes NASCAR is expected to make to next year's 10-race playoff schedule.`\
+https://nytimes.com/athletic/5683514/2024/08/06/nascar-playoff-schedule-2025-changes/
+
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/08/06/us/kamala-harris-vp-trump-election/heres-the-latest-on-the-presidential-race
+
+**U.S. Envoy Says Ukraine’s Economy Needs Reform and Investment to Thrive**\
+`Penny Pritzker, who is leaving her position as special representative for Ukraine’s economic recovery, said the country had made progress but still faced major hurdles.`\
+https://nytimes.com/2024/08/06/us/politics/ukraine-economy-penny-pritzker.html
+
 **Atletico in advanced talks to sign Guerra from Valencia**\
 `Atletico Madrid are in advanced talks to sign Valencia midfielder Javi Guerra.`\
 https://nytimes.com/athletic/5683491/2024/08/06/atletico-madrid-javi-guerra/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5679828/2024/08/06/oilers-prospect-sam-oreilly-nhl-
 **Sean Payton vows Broncos' 'awful' goal-to-go offense will improve in 2024**\
 `Rookie running back Audric Estimé could be key component in Denver's quest to improve upon a meager 53.3 percent TD rate near the goal line.`\
 https://nytimes.com/athletic/5682346/2024/08/06/sean-payton-broncos-red-zone-offense/
-
-**Endrick's Madrid start: Battles with Rudiger, friends with Guler, and a 'phenomenon'**\
-`After waiting so long for his dream move, Endrick is getting used to life as a Madrid player`\
-https://nytimes.com/athletic/5683141/2024/08/06/endrick-real-madrid-start/
-
-**Onana prepared to take 'risks' as Man Utd aim to build from the back**\
-`Andre Onana has warned he is ready to take “a lot of risks” with the ball at his feet as Manchester United aim to build from the back better in Erik ten Hag’s third season.`\
-https://nytimes.com/athletic/5683363/2024/08/06/andre-onana-manchester-united-risks/
-
-**Residents were rescued from floods in Florida. Here’s the latest.**\
-`By Patricia Mazzei, Isabelle Taft and Judson Jones`\
-https://nytimes.com/live/2024/08/06/weather/debby-storm-forecast/residents-were-rescued-from-floods-in-florida-heres-the-latest
 
