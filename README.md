@@ -1,3 +1,7 @@
+**‘The more you know about something the less scary it is’: The Week 7 Winner of Our Summer Reading Contest**\
+`Michelle Zhibing Zhou, 15, writes about a Science article highlighting new research that “sent ripples throughout the leech research community and shivers down my spine.”`\
+https://nytimes.com/2024/08/06/learning/the-more-you-know-about-something-the-less-scary-it-is-the-week-7-winner-of-our-summer-reading-contest.html
+
 **Guido Rodriguez joins West Ham on free transfer**\
 `West Ham United have completed the signing of Guido Rodriguez on a free transfer.`\
 https://nytimes.com/athletic/5683566/2024/08/06/guido-rodriguez-west-ham-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/06/business/dealbook/google-antitrust-tech.html
 **Why Seahawks GM prayed for chance to interview coach Mike Macdonald**\
 `Seahawks GM John Schneider badly wanted to interview Macdonald, so he prayed for a Ravens loss in the AFC Championship Game. `\
 https://nytimes.com/athletic/5681571/2024/08/06/mike-macdonald-seattle-seahawks-ravens-john-schneider/
-
-**The Athletic FC: Ibrahimovic on 'becoming the best', City's $100m Alvarez deal with Atletico**\
-`Today in The Athletic FC: An Ibrahimovic exclusive interview, news on Alvarez's $100m move to Atletico, plus an Olympics round-up`\
-https://nytimes.com/athletic/5683364/2024/08/06/zlatan-ibrahimovic-exclusive-hayes-haribo-referee-injured-the-athletic-fc/
 
