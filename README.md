@@ -1,3 +1,7 @@
+**Trump Says Elon Musk Will Interview Him on Monday**\
+`The owner of the social media platform X has evolved from a skeptic of former President Donald J. Trump to one of his most influential supporters.`\
+https://nytimes.com/2024/08/06/us/politics/trump-elon-musk-interview.html
+
 **Arizona Grand Jury Wanted to Indict Trump in Fake Electors Case**\
 `Newly released court papers show that grand jurors signaled their interest in charging the former president, only to have state prosecutors advise against it because of similarities to the federal case against him.`\
 https://nytimes.com/2024/08/06/us/politics/arizona-grand-jury-trump-fake-electors.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/06/opinion/ezra-klein-podcast-vp-pick-harris-walz.ht
 **Skateboard legend Andy Macdonald, at 51, is getting an unlikely Olympic epilogue**\
 `Andy Macdonald is contemporaries with Tony Hawk and once had a video game named after him. Now, at 51, he's in the Olympics for Team GB.`\
 https://nytimes.com/athletic/5684864/2024/08/06/andy-macdonald-skateboarding-olympics-51-great-britain/
-
-**49ers confirm permission for Brandon Aiyuk to seek trade**\
-`For his four-year career, the 2020 first-round pick has hauled in 269 receptions for 3,931 yards and 25 touchdowns.`\
-https://nytimes.com/athletic/5683843/2024/08/06/brandon-aiyuk-49ers-trade-permission/
 
