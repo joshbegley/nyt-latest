@@ -1,3 +1,11 @@
+**Arisa Trew, 14, wins gold in women's skateboarding**\
+`Trew became the first Australian woman to medal in the event and the youngest medallist at the Paris Games.`\
+https://nytimes.com/athletic/5684391/2024/08/06/arisa-trew-olympics-skateboarding-gold/
+
+**E.P.A. Pulls From the Market a Weedkiller Harmful to Fetuses**\
+`The herbicide, used widely on crops including broccoli and onions, can cause low birth weight and impaired brain development, regulators said.`\
+https://nytimes.com/2024/08/06/climate/epa-dacthal-dimethyl-tetrachloroterephthalate-ban.html
+
 **Olympic handballer who couldn't stay awake: ‘I can sleep everywhere’**\
 `Sweden’s top handballer stars on the court but couldn’t stay awake off it — until his sleep apnea diagnosis.`\
 https://nytimes.com/athletic/5684328/2024/08/06/olympics-sleep-apnea-handball-gottfridsson/

@@ -1,3 +1,11 @@
+**Arisa Trew, 14, wins gold in women's skateboarding**\
+`Trew became the first Australian woman to medal in the event and the youngest medallist at the Paris Games.`\
+https://nytimes.com/athletic/5684391/2024/08/06/arisa-trew-olympics-skateboarding-gold/
+
+**E.P.A. Pulls From the Market a Weedkiller Harmful to Fetuses**\
+`The herbicide, used widely on crops including broccoli and onions, can cause low birth weight and impaired brain development, regulators said.`\
+https://nytimes.com/2024/08/06/climate/epa-dacthal-dimethyl-tetrachloroterephthalate-ban.html
+
 **Olympic handballer who couldn't stay awake: ‘I can sleep everywhere’**\
 `Sweden’s top handballer stars on the court but couldn’t stay awake off it — until his sleep apnea diagnosis.`\
 https://nytimes.com/athletic/5684328/2024/08/06/olympics-sleep-apnea-handball-gottfridsson/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/06/world/middleeast/iran-execution-protester-reza-ra
 **Buckley: In times of heartache, athletes often cope by doing what they do best: playing**\
 `Many times, we don’t know what players like Wilyer Abreu and Freddie Freeman are going through until after they've played through the pain. `\
 https://nytimes.com/athletic/5683038/2024/08/06/athletes-playing-in-tragedy-wilyer-abreu-freddie-freeman-chris-paul/
-
-**He Stands Out in a ‘Sea of Elites and Strivers’: Our Writers on What Tim Walz Brings to the Ticket**\
-`Opinion asked eight columnists and contributors to weigh in on how much the Minnesota governor will help Harris against Trump.`\
-https://nytimes.com/2024/08/06/opinion/tim-walz-scorecard.html
-
-**Tim Walz, a Fan of The Boss, Proclaimed a ‘Bruce Springsteen Day’ in Minnesota**\
-`The governor and newly-minted vice-presidential nominee has embraced the bard of the working man, honoring the New Jersey rocker last year when he came to St. Paul for a concert.`\
-https://nytimes.com/2024/08/06/us/politics/bruce-springsteen-tim-walz.html
 
