@@ -523,6 +523,11 @@ https://nytimes.com/athletic/5682833/2024/08/05/enzo-maresca-chelsea-premier-lea
 `\
 https://nytimes.com/athletic/5682833/2024/08/05/enzo-maresca-chelsea-premier-league/
 
+**Maresca blames Premier League for Chelsea cashing in on academy**\
+`Maresca's claims come as Conor Gallagher is at the center of a potential move to Atletico Madrid.
+`\
+https://nytimes.com/athletic/5682833/2024/08/05/enzo-maresca-chelsea-premier-league/
+
 **Caroline Marks wins Olympic surfing gold by narrow margin**\
 `In 2023, a banner year for Marks culminated with being a WSL Women’s World Tour champion at 21.`\
 https://nytimes.com/athletic/5682963/2024/08/05/caroline-marks-olympic-surfing-gold/
