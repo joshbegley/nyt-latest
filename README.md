@@ -1,3 +1,7 @@
+**Giants' Tyler Fitzgerald keeps routine (acai bowls are big) in record-setting power streak**\
+`Fitzgerald hit a home run on the second pitch of Monday's 4-1 victory over Washington at Nationals Park.`\
+https://nytimes.com/athletic/5683097/2024/08/06/giants-tyler-fitzgerald-routine-power-streak/
+
 **Twins rookie David Festa strikes out 9, leading combined shutout vs. Cubs**\
 `Winners of five straight, Minnesota moved within 3 1/2 games of Cleveland, the closest the Twins have been to first place since May 17.`\
 https://nytimes.com/athletic/5683083/2024/08/06/twins-david-festa-9-strikeouts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5672271/2024/08/06/liverpool-artificial-intelligenc
 **As Ukraine Collects Medals in Paris, Its Sports Pipeline Is in Tatters**\
 `Facilities have been battered. Coaches are in short supply. Children have moved abroad. Ukraine faces a long hard road toward rebuilding its athletic programs.`\
 https://nytimes.com/2024/08/06/world/europe/ukraine-olympics-sports-war.html
-
-**Tuesday's MLB odds, best bets: Pitching matchups, props, playoff projections**\
-`See pitching matchups, playoff projections, win projections and more for Tuesday's MLB games.`\
-https://nytimes.com/athletic/5682238/2024/08/06/mlb-odds-best-bets-projections-august-6/
 

@@ -1,5 +1,5 @@
 **Twins rookie David Festa strikes out 9, leading combined shutout vs. Cubs**\
-`Winners of 5 straight, Minnesota moved within 3 1/2 games of Cleveland, the closest they’ve been to first place since May 17.`\
+`Winners of five straight, Minnesota moved within 3 1/2 games of Cleveland, the closest the Twins have been to first place since May 17.`\
 https://nytimes.com/athletic/5683083/2024/08/06/twins-david-festa-9-strikeouts/
 
 **San Bernardino Fire Engulfs Homes**\
