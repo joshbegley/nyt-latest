@@ -1,3 +1,11 @@
+**Trump Campaign Attacks Walz as ‘Dangerously Liberal’**\
+`Republicans quickly zeroed in on the liberal policies Tim Walz has signed into law in Minnesota, as well as his handling of unrest in Minneapolis after George Floyd’s murder in 2020.`\
+https://nytimes.com/2024/08/06/us/politics/trump-harris-walz-gop-reaction.html
+
+**Nancy Pelosi Praises Walz as Representing ‘Heartland Values’**\
+`The former House speaker said that if Kamala Harris and Tim Walz, the Minnesota governor, win in November, “they have to govern from the middle for the whole country.”`\
+https://nytimes.com/2024/08/06/us/politics/harris-walz-pelosi.html
+
 **Masks Banned in Public in Nassau County, With Some Exceptions**\
 `Violators who wear masks could be fined up to $1,000, although there would be exceptions for people who wear them for health or religious reasons.`\
 https://nytimes.com/2024/08/06/nyregion/mask-ban-nassau-county-allies.html
