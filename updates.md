@@ -1,3 +1,7 @@
+**New York City Faces Heavy Rain. Debby May Make It Worse.**\
+`The thunderstorms hitting the New York area are the result of the meeting of a cold front and a mass of very moist air.`\
+https://nytimes.com/2024/08/06/weather/new-york-rains-debby.html
+
 **Tim Walz Is Harris’s Choice for Vice President**\
 `Also, Debby is bringing historic levels of rain to the Southeast. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/08/06/briefing/tim-walz-harris-vp-pick-debby-storm.html
