@@ -1,3 +1,7 @@
+**‘The more you know about something the less scary it is’: The Week 7 Winner of Our Summer Reading Contest**\
+`Michelle Zhibing Zhou, 15, writes about a Science article highlighting new research that “sent ripples throughout the leech research community and shivers down my spine.”`\
+https://nytimes.com/2024/08/06/learning/the-more-you-know-about-something-the-less-scary-it-is-the-week-7-winner-of-our-summer-reading-contest.html
+
 **Guido Rodriguez joins West Ham on free transfer**\
 `West Ham United have completed the signing of Guido Rodriguez on a free transfer.`\
 https://nytimes.com/athletic/5683566/2024/08/06/guido-rodriguez-west-ham-transfer/
