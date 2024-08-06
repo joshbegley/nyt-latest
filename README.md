@@ -1,3 +1,7 @@
+**Corrections: Aug. 6, 2024**\
+`Corrections that appeared in print on Tuesday, Aug. 6, 2024.`\
+https://nytimes.com/2024/08/06/pageoneplus/corrections-aug-6-2024.html
+
 **One of China’s Most Talkative Nationalists Suddenly Goes Silent**\
 `Hu Xijin had suggested that the Communist Party would better support private companies, drawing criticism from leftists. Then he stopped updating his social media feed.`\
 https://nytimes.com/2024/08/06/world/asia/china-nationalist-hu-xijin-silent.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5681026/2024/08/06/newcastle-premier-league-tour-gi
 **Lost Grounds: Bradford Park Avenue - the forgotten England international venue**\
 `Bradford (Park Avenue) was home to League football for 62 years and county cricket for over a century. It now sits forlorn and forgotten`\
 https://nytimes.com/athletic/5545157/2024/08/06/lost-grounds-bradford-park-avenue-abandoned/
-
-**How Liverpool are using artificial intelligence to become better at corners**\
-`Why Liverpool’s collaboration with Google DeepMind shows an ongoing desire to push boundaries and find an edge in football analytics`\
-https://nytimes.com/athletic/5672271/2024/08/06/liverpool-artificial-intelligence-corners/
 
