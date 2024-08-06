@@ -1,3 +1,7 @@
+**White Sox lose 21st game in a row, tying 36-year-old American League record**\
+`The White Sox, owners of the worst record in MLB, are two more losses away from tying the 1961 Phillies, who lost 23 in a row. `\
+https://nytimes.com/athletic/5683072/2024/08/05/white-sox-lose-21st-game/
+
 **Caroline Marks wins Olympic surfing gold by narrow margin**\
 `In 2023, a banner year for Marks culminated with being a WSL Women’s World Tour champion at 21.`\
 https://nytimes.com/athletic/5682963/2024/08/05/caroline-marks-olympic-surfing-gold/
@@ -34,8 +38,4 @@ https://nytimes.com/2024/08/05/us/politics/trump-harris-market-downturn.html
 **Chargers training camp, Day 11: AJ Finley emerging as front-runner in third-safety battle**\
 `To take advantage of Derwin James’ versatility, the Chargers need a quality third safety. Could that be Finley, a 2023 undrafted free agent?`\
 https://nytimes.com/athletic/5682780/2024/08/05/chargers-training-camp-aj-finley-safety/
-
-**Chelsea's Caicedo 'felt a lot of pressure' as British record transfer**\
-`Caicedo added that he believes he has more to show Chelsea fans during the coming campaign, saying "I can show my quality."`\
-https://nytimes.com/athletic/5682767/2024/08/05/moises-caicedo-chelsea-pressure-record-transfer/
 
