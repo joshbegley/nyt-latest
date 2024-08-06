@@ -1,3 +1,11 @@
+**Algerian boxer Khelif advances to gold medal round**\
+`Khelif is into the Olympic final, set for Friday at Roland Garros. One step from a gold medal.`\
+https://nytimes.com/athletic/5685067/2024/08/06/imane-khelif-olympic-boxing-results/
+
+**Trading Brandon Aiyuk would be a massive 49ers failure on almost every level**\
+`The 49ers' leaders made a major miscalculation, and it could cost them their best shot at throwing a parade in February.`\
+https://nytimes.com/athletic/5683122/2024/08/06/kawakami-trading-brandon-aiyuk-would-be-a-massive-49ers-failure-on-almost-every-level/
+
 **USWNT has suffered at the Olympics, its perseverance is rewarded with a chance for gold**\
 `How Hayes has rebuilt the USWNT a year after its early exit from the 2023 World Cup`\
 https://nytimes.com/athletic/5685119/2024/08/06/uswnt-emma-hayes-olympics-final-suffering/
