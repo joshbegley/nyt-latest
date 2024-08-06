@@ -1,6 +1,6 @@
 **Who is Yahya Sinwar, Hamas’s new political leader?**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/08/06/world/israel-iran-hezbollah-gaza/who-is-yahya-sinwar-hamass-new-political-leader
+`Mr. Sinwar, one of the main architects of the Oct. 7 Hamas-led attack on`\
+https://nytimes.com/2024/08/06/world/middleeast/who-is-yahya-sinwar-hamass-new-political-leader.html
 
 **Another one and done: Assistant coach Mark Recchi won't be back with Blue Jackets**\
 `The Blue Jackets continue to make decisions as training camp nears.`\
@@ -14,8 +14,8 @@ https://nytimes.com/athletic/5685067/2024/08/06/imane-khelif-olympic-boxing-resu
 `The 49ers' leaders made a major miscalculation, and it could cost them their best shot at throwing a parade in February.`\
 https://nytimes.com/athletic/5683122/2024/08/06/kawakami-trading-brandon-aiyuk-would-be-a-massive-49ers-failure-on-almost-every-level/
 
-**USWNT has suffered at the Olympics, its perseverance is rewarded with a chance for gold**\
-`How Hayes has rebuilt the USWNT a year after its early exit from the 2023 World Cup`\
+**USWNT has suffered at the Olympics. Its perseverance is rewarded with a chance for gold**\
+`How Hayes has rebuilt the USWNT a year after its early exit from the 2023 World Cup has instilled belief.`\
 https://nytimes.com/athletic/5685119/2024/08/06/uswnt-emma-hayes-olympics-final-suffering/
 
 **Tim Walz Is Harris’s Choice for Vice President**\

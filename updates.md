@@ -1,3 +1,7 @@
+**How Sean Payton altered Broncos training camp with designs on avoiding slow start**\
+`Devaughn Vele, a seventh-round rookie receiver, continued to build on a strong camp with an acrobatic touchdown grab Tuesday.`\
+https://nytimes.com/athletic/5684741/2024/08/06/sean-payton-broncos-slow-start/
+
 **Who is Yahya Sinwar, Hamas’s new political leader?**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/08/06/world/israel-iran-hezbollah-gaza/who-is-yahya-sinwar-hamass-new-political-leader
