@@ -1,3 +1,11 @@
+**What Minnesota Voters Think of Tim Walz**\
+`The governor succeeded in projecting an avuncular image. But not all voters are convinced that he rose above partisanship or united the state.`\
+https://nytimes.com/2024/08/06/us/tim-walz-minnesota-voters-reactions.html
+
+**Giants' Wilmer Flores undergoes knee procedure, will miss remainder of the season**\
+`Flores was arguably the Giants' best hitter last season but he never got on track in 2024 as knee pain impacted him all year.`\
+https://nytimes.com/athletic/5685392/2024/08/06/sf-giants-wilmer-flores-knee-injury/
+
 **Boxer in Controversy Over Eligibility Lets Her Gloves Do the Talking**\
 `Imane Khelif, of Algeria, moved past questions about her eligibility with a unanimous decision over her Thai opponent. She will now fight for a gold medal.`\
 https://nytimes.com/2024/08/06/world/olympics/olympics-boxing-imane-khelif.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/06/world/middleeast/hamas-yahya-sinwar-promoted.html
 **Harris and Walz Make Their National Entrance Before Upbeat Democrats**\
 `Introducing her new running mate at an energetic rally in Philadelphia, the vice president cast the Democratic ticket as born of the middle class and fighting for its interests.`\
 https://nytimes.com/2024/08/06/us/politics/harris-tim-walz-rally.html
-
-**Kristian Wilkerson making a charge as Raiders receivers battle for a roster spot**\
-`After Davante Adams, Jakobi Meyers and Tre Tucker, the Raiders have two or three open spots to fill at receiver.`\
-https://nytimes.com/athletic/5684877/2024/08/06/las-vegas-raiders-receiver-roster-kristian-wilkerson/
-
-**Who Is Yahya Sinwar, Hamas’s New Political Leader?**\
-`Mr. Sinwar, one of the main architects of the Oct. 7 Hamas-led attack on Israel, has spent decades with the militant group, working his way to the top of its leadership.`\
-https://nytimes.com/2024/08/06/world/middleeast/yahya-sinwar-hamas.html
 
