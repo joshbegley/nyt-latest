@@ -1,3 +1,11 @@
+**Explained: All you need to know about Manchester United's plan to build a new Old Trafford**\
+`Answering the key questions about Manchester United's plan to build a 100,000-capacity stadium close to Old Trafford`\
+https://nytimes.com/athletic/5672535/2024/08/06/manchester-united-new-stadium-project-explained/
+
+**'You have just slide-tackled me!': Emma Hayes, the commentator**\
+`Preparation, professionalism and humour - Hayes' co-commentators on what she's like to work with`\
+https://nytimes.com/athletic/5681849/2024/08/06/emma-hayes-commentator-pundit-uswnt-olympics/
+
 **Diary of a Premier League player who doesn't play: 'I take joy from the role I have'**\
 `Mark Gillespie is the Newcastle player who does not play - here he tells of the reality of his position and life on a summer tour`\
 https://nytimes.com/athletic/5681026/2024/08/06/newcastle-premier-league-tour-gillespie/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/06/business/paris-olympics-pin-trading.html
 **Olympics Today: Tuesday's guide to what to watch in Paris**\
 `There are six days of Olympic competition left and only four women’s soccer teams remain vying for gold.`\
 https://nytimes.com/athletic/5682098/2024/08/06/olympics-2024-watch-guide-day-11-soccer-basketball/
-
-**Long Battle for a Ruined City Takes a Desperate Turn**\
-`Ukrainian troops are engaged in a harsh struggle for Toretsk, a strategic city in eastern Ukraine that has been under relentless assault by Russian forces.`\
-https://nytimes.com/2024/08/06/world/europe/ukraine-war-donetsk-toretsk.html
-
-**To Save His Shrinking City, a Mayor Turns to Koreans Uprooted by Stalin**\
-`Like many South Korean cities, Jecheon is being eroded by rapid aging and rock-bottom birthrates. Can ethnic Korean migrants from Central Asia turn it around?`\
-https://nytimes.com/2024/08/06/world/asia/korea-soviet-jecheon-population.html
 
