@@ -1,3 +1,7 @@
+**Palestinian health officials say at least eight people were killed in the West Bank.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/08/06/world/israel-iran-hezbollah-gaza/palestinian-health-officials-say-at-least-eight-people-were-killed-in-the-west-bank
+
 **A closer look at Oilers prospect Sam O'Reilly: Why Edmonton drafted him and what to expect**\
 `In an offseason of shocking developments, the Oilers traded into the first round to select the OHL centre. What were they thinking?`\
 https://nytimes.com/athletic/5679828/2024/08/06/oilers-prospect-sam-oreilly-nhl-draft/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/06/arts/television/the-leftovers-10th-anniversary.ht
 **Global Stock Market Chaos**\
 `Monday’s tumult reflects an underlying reality: The U.S. job market is cooling.`\
 https://nytimes.com/2024/08/06/briefing/global-stock-market.html
-
-**Musket Balls Found in Massachusetts Recall ‘Shot Heard Round the World’**\
-`The discovery of ammunition from the 1700s has revived tales of fighting at the start of the Revolutionary War.`\
-https://nytimes.com/2024/08/06/us/musket-balls-revolutionary-war.html
 
