@@ -1,6 +1,10 @@
-**Who is Yahya Sinwar, Hamas’s new political leader?**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/08/06/world/israel-iran-hezbollah-gaza/who-is-yahya-sinwar-hamass-new-political-leader
+**Kristian Wilkerson making a charge as Raiders receivers battle for a roster spot**\
+`After Davante Adams, Jakobi Meyers and Tre Tucker, the Raiders have two or three open spots to fill at receiver.`\
+https://nytimes.com/athletic/5684877/2024/08/06/las-vegas-raiders-receiver-roster-kristian-wilkerson/
+
+**Who Is Yahya Sinwar, Hamas’s New Political Leader?**\
+`Mr. Sinwar, one of the main architects of the Oct. 7 Hamas-led attack on Israel, has spent decades with the militant group, working his way to the top of its leadership.`\
+https://nytimes.com/2024/08/06/world/middleeast/yahya-sinwar-hamas.html
 
 **Another one and done: Assistant coach Mark Recchi won't be back with Blue Jackets**\
 `The Blue Jackets continue to make decisions as training camp nears.`\
@@ -14,8 +18,8 @@ https://nytimes.com/athletic/5685067/2024/08/06/imane-khelif-olympic-boxing-resu
 `The 49ers' leaders made a major miscalculation, and it could cost them their best shot at throwing a parade in February.`\
 https://nytimes.com/athletic/5683122/2024/08/06/kawakami-trading-brandon-aiyuk-would-be-a-massive-49ers-failure-on-almost-every-level/
 
-**USWNT has suffered at the Olympics, its perseverance is rewarded with a chance for gold**\
-`How Hayes has rebuilt the USWNT a year after its early exit from the 2023 World Cup`\
+**USWNT has suffered at the Olympics. Its perseverance is rewarded with a chance for gold**\
+`How Hayes has rebuilt the USWNT a year after its early exit from the 2023 World Cup has instilled belief.`\
 https://nytimes.com/athletic/5685119/2024/08/06/uswnt-emma-hayes-olympics-final-suffering/
 
 **Tim Walz Is Harris’s Choice for Vice President**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/06/weather/new-york-rains-debby.html
 **How Sean Payton altered Broncos training camp with designs on avoiding slow start**\
 `Devaughn Vele, a seventh-round rookie receiver, continued to build on a strong camp with an acrobatic touchdown grab Tuesday.`\
 https://nytimes.com/athletic/5684741/2024/08/06/sean-payton-broncos-slow-start/
-
-**Bush Administration Lawyer Whose Wife Was Killed on 9/11 Supports Plea Deal**\
-`In an exclusive interview, Theodore B. Olson called the agreement that was revoked last week “the best possible outcome.”`\
-https://nytimes.com/2024/08/06/us/politics/sept-11-plea-agreement.html
 
