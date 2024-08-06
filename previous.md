@@ -1,3 +1,11 @@
+**That Drone in the Sky Is Here to Warn New Yorkers About Flooding**\
+`Mayor Eric Adams, an avowed technology geek, is using the city’s drones to deliver a recorded message warning vulnerable New Yorkers of flooding dangers.`\
+https://nytimes.com/2024/08/06/nyregion/drones-eric-adams-flooding.html
+
+**Yahya Sinwar, the leader of Hamas in Gaza, has been elevated to the top political post in Hamas.**\
+`By Adam Rasgon and Aaron Boxerman`\
+https://nytimes.com/live/2024/08/06/world/israel-iran-hezbollah-gaza/yahya-sinwar-the-leader-of-hamas-in-gaza-has-been-elevated-to-the-top-political-post-in-hamas
+
 **The Kamala Harris-Tim Walz Ticket**\
 `Readers offer mostly positive reactions to the choice of the Minnesota governor. Also: Clarence Thomas’s unreported trips; Jimmy Carter’s vote.`\
 https://nytimes.com/2024/08/06/opinion/kamala-harris-tim-walz.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/06/opinion/stock-market-crashes-economy.html
 **Venezuela’s Strongman Was Confident of Victory. Then Came the Shock.**\
 `Venezuela’s government believed its control of all levers of power would give the country’s authoritarian president an Election Day victory. A rebellion by its supporters undid the plan.`\
 https://nytimes.com/2024/08/06/world/americas/venezuela-election-maduro.html
-
-**Chloe Coscarelli Returns With Her Vegan Greatest Hits**\
-`The vegan chef has reopened in her original Greenwich Village location; Afghan delights in Beacon, N.Y.; and more restaurant news.`\
-https://nytimes.com/2024/08/06/dining/by-chloe-returns.html
-
-**Hurricane Scale Alone Can’t Account for a Storm’s Destruction**\
-`Tropical Storm Debby was only briefly a Category 1 hurricane. But a rating can never fully capture how destructive a storm can be.`\
-https://nytimes.com/2024/08/06/climate/tropical-storm-debby-danger.html
 

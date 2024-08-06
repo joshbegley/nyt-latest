@@ -1,3 +1,11 @@
+**That Drone in the Sky Is Here to Warn New Yorkers About Flooding**\
+`Mayor Eric Adams, an avowed technology geek, is using the city’s drones to deliver a recorded message warning vulnerable New Yorkers of flooding dangers.`\
+https://nytimes.com/2024/08/06/nyregion/drones-eric-adams-flooding.html
+
+**Yahya Sinwar, the leader of Hamas in Gaza, has been elevated to the top political post in Hamas.**\
+`By Adam Rasgon and Aaron Boxerman`\
+https://nytimes.com/live/2024/08/06/world/israel-iran-hezbollah-gaza/yahya-sinwar-the-leader-of-hamas-in-gaza-has-been-elevated-to-the-top-political-post-in-hamas
+
 **The Kamala Harris-Tim Walz Ticket**\
 `Readers offer mostly positive reactions to the choice of the Minnesota governor. Also: Clarence Thomas’s unreported trips; Jimmy Carter’s vote.`\
 https://nytimes.com/2024/08/06/opinion/kamala-harris-tim-walz.html
