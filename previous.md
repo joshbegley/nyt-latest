@@ -1,3 +1,15 @@
+**Charles Barkley not retiring, staying with TNT Sports long term**\
+`Barkley will continue on his 10-year, $210 million contract. He is in the third season of the deal.`\
+https://nytimes.com/athletic/5684382/2024/08/06/charles-barkley-not-retiring-tnt/
+
+**Charles Cyphers, Who Played Sheriff Brackett in ‘Halloween,’ Dies at 85**\
+`He was known for his roles as the hard-nosed sheriff in the “Halloween” horror film series.`\
+https://nytimes.com/2024/08/06/arts/charles-cyphers-halloween-dead.html
+
+**Welcome to Our August Grilling Challenge**\
+`Today’s challenge: Master the basics.`\
+https://nytimes.com/2024/08/06/dining/welcome-to-our-august-grilling-challenge.html
+
 **Why consistency is overrated in fantasy football: A George Kittle story**\
 `Michael Salfino uses George Kittle as an example why explosive games, not weekly consistency, is the true key to fantasy football success.`\
 https://nytimes.com/athletic/5684287/2024/08/06/consistency-overrated-fantasy-football-2024-george-kittle/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5684297/2024/08/06/teddy-prochazka-injury-nebraska/
 **Malik Nabers, Kerby Joseph throw punches as fights continue at Lions-Giants joint practices**\
 `There were so many fights Monday, it was hard to keep track of how many there actually were. `\
 https://nytimes.com/athletic/5681909/2024/08/06/new-york-giants-detroit-lions-joint-practice-fights-daniel-jones/
-
-**Phelps says athletes caught doping should be banned**\
-`"If you test positive, you should never be allowed to come back and compete again, cut and dry," Phelps said, per the AP.`\
-https://nytimes.com/athletic/5684043/2024/08/06/michael-phelps-doping-comments-olympics/
-
-**In the House, Walz embraced a blend of liberal and culturally conservative stances.**\
-`By Catie Edmondson`\
-https://nytimes.com/live/2024/08/06/us/kamala-harris-vp-trump-election/in-the-house-walz-embraced-a-blend-of-liberal-and-culturally-conservative-stances
-
-**‘Why Trash Your Own Town?’ An English City Reckons With a Riot.**\
-`Days after an angry crowd marauded through Sunderland, people in the industrial port city are trying to make sense of what just happened.`\
-https://nytimes.com/2024/08/06/world/europe/uk-riots-sunderland.html
 

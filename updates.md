@@ -1,3 +1,15 @@
+**Charles Barkley not retiring, staying with TNT Sports long term**\
+`Barkley will continue on his 10-year, $210 million contract. He is in the third season of the deal.`\
+https://nytimes.com/athletic/5684382/2024/08/06/charles-barkley-not-retiring-tnt/
+
+**Charles Cyphers, Who Played Sheriff Brackett in ‘Halloween,’ Dies at 85**\
+`He was known for his roles as the hard-nosed sheriff in the “Halloween” horror film series.`\
+https://nytimes.com/2024/08/06/arts/charles-cyphers-halloween-dead.html
+
+**Welcome to Our August Grilling Challenge**\
+`Today’s challenge: Master the basics.`\
+https://nytimes.com/2024/08/06/dining/welcome-to-our-august-grilling-challenge.html
+
 **Why consistency is overrated in fantasy football: A George Kittle story**\
 `Michael Salfino uses George Kittle as an example why explosive games, not weekly consistency, is the true key to fantasy football success.`\
 https://nytimes.com/athletic/5684287/2024/08/06/consistency-overrated-fantasy-football-2024-george-kittle/
