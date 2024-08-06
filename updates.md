@@ -1,3 +1,11 @@
+**Harris Officially Secures Democratic Party’s Nomination for President**\
+`The vice president won 99 percent of participating delegates in an unusual, virtual roll call vote that concluded Monday, the party said.`\
+https://nytimes.com/2024/08/06/us/politics/kamala-harris-president-campaign-2024.html
+
+**August swoon leaves Astros searching for a spark: 'We need energy'**\
+`Fatigue from Houston's furious first-half turnaround is apparent, and few solutions exist to fix it.`\
+https://nytimes.com/athletic/5683156/2024/08/06/astros-walk-off-loss-rangers/
+
 **August swoon leaves Astros searching for a spark: 'We need energy'**\
 `Fatigue from Houston's furious first-half turnaround is apparent and there are few solutions exist to fix it.`\
 https://nytimes.com/athletic/5683156/2024/08/06/astros-walk-off-loss-rangers/

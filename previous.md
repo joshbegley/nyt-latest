@@ -1,5 +1,9 @@
+**Harris Officially Secures Democratic Party’s Nomination for President**\
+`The vice president won 99 percent of participating delegates in an unusual, virtual roll call vote that concluded Monday, the party said.`\
+https://nytimes.com/2024/08/06/us/politics/kamala-harris-president-campaign-2024.html
+
 **August swoon leaves Astros searching for a spark: 'We need energy'**\
-`Fatigue from Houston's furious first-half turnaround is apparent and there are few solutions exist to fix it.`\
+`Fatigue from Houston's furious first-half turnaround is apparent, and few solutions exist to fix it.`\
 https://nytimes.com/athletic/5683156/2024/08/06/astros-walk-off-loss-rangers/
 
 **The impact of Summerville's departure: Gnonto staying, Rutter future and Rowe interest**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009613463/san-bernardino-fire-homes.html
 **Alvarez From Bobb to Savinho to McAtee: How Manchester City could adapt if Julian Alvarez departs**\
 `Given the quality in Guardiola's squad it's not a given that the Argentinian would be replaced by a new signing `\
 https://nytimes.com/athletic/5681576/2024/08/06/from-bobb-to-savinho-to-mcatee-how-manchester-city-could-adapt-if-julian-alvarez-departs/
-
-**Explained: All you need to know about Manchester United's plan to build a new Old Trafford**\
-`Answering the key questions about Manchester United's plan to build a 100,000-capacity stadium close to Old Trafford`\
-https://nytimes.com/athletic/5672535/2024/08/06/manchester-united-new-stadium-project-explained/
 
