@@ -1,3 +1,7 @@
+**‘I Am Proud of My Faith’: Shapiro’s Fiery Speech Ends on a Personal Note**\
+`Gov. Josh Shapiro of Pennsylvania rallied Democrats in his home state behind the Democratic ticket after the conclusion of a vice-presidential search that prompted intense public scrutiny of his views on Israel.`\
+https://nytimes.com/2024/08/06/us/politics/josh-shapiro-harris-walz-rally.html
+
 **Can You Heal Olympic Heartbreak With Belated Medals?**\
 `A weight lifter walked away from his sport after a bitter loss in 2012. He and other athletes, including a U.S. figure skating team, will receive their medals in Paris.`\
 https://nytimes.com/2024/08/06/world/olympics/jeon-sang-guen-weight-lifting-medal.html
