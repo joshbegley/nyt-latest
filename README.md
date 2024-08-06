@@ -1,3 +1,11 @@
+**Who is Yahya Sinwar, Hamas’s new political leader?**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/08/06/world/israel-iran-hezbollah-gaza/who-is-yahya-sinwar-hamass-new-political-leader
+
+**Another one and done: Assistant coach Mark Recchi won't be back with Blue Jackets**\
+`The Blue Jackets continue to make decisions as training camp nears.`\
+https://nytimes.com/athletic/5685137/2024/08/06/blue-jackets-recchi-assistant/
+
 **Algerian boxer Khelif advances to gold medal round**\
 `Khelif is into the Olympic final, set for Friday at Roland Garros. One step from a gold medal.`\
 https://nytimes.com/athletic/5685067/2024/08/06/imane-khelif-olympic-boxing-results/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5684741/2024/08/06/sean-payton-broncos-slow-start/
 **Bush Administration Lawyer Whose Wife Was Killed on 9/11 Supports Plea Deal**\
 `In an exclusive interview, Theodore B. Olson called the agreement that was revoked last week “the best possible outcome.”`\
 https://nytimes.com/2024/08/06/us/politics/sept-11-plea-agreement.html
-
-**Trump Says Elon Musk Will Interview Him on Monday**\
-`The owner of the social media platform X has evolved from a skeptic of former President Donald J. Trump to one of his most influential supporters.`\
-https://nytimes.com/2024/08/06/us/politics/trump-elon-musk-interview.html
-
-**Arizona Grand Jury Wanted to Indict Trump in Fake Electors Case**\
-`Newly released court papers show that grand jurors signaled their interest in charging the former president, only to have state prosecutors advise against it because of similarities to the federal case against him.`\
-https://nytimes.com/2024/08/06/us/politics/arizona-grand-jury-trump-fake-electors.html
 
