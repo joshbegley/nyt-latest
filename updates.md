@@ -1,3 +1,7 @@
+**How Far Will a Reader Go to Hear Songs Inspired by Books?**\
+`In search of a connection between two worlds — one beloved, one baffling — a bibliophile made a musical pilgrimage.`\
+https://nytimes.com/2024/08/06/books/the-bookshop-band.html
+
 **Scoop City: What you should know from training camps today**\
 `A review of injuries, trade rumours and camp battles around the NFL.`\
 https://nytimes.com/athletic/5683882/2024/08/06/nfl-training-camp-injuries-scoop-city/
