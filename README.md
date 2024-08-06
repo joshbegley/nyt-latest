@@ -1,3 +1,7 @@
+**With Walz, Harris Passes on a Chance to Redefine Herself**\
+`There will be other opportunities to move to the center, if that’s a goal.`\
+https://nytimes.com/2024/08/06/upshot/walz-harris-vice-president.html
+
 **McLaughlin-Levrone, Bol advance to 400 hurdles finals**\
 `McLaughlin-Levrone has set the last five world records in the event, while Bol won the bronze in Tokyo and has improved.`\
 https://nytimes.com/athletic/5684511/2024/08/06/sydney-mclaughlin-levrone-femke-bol-womens-400-hurdles-semifinals/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/06/us/politics/tim-walz-shapiro-jewish.html
 **Dani Olmo is close to a €60m Barcelona move - but does it make sense?**\
 `The 26-year-old attacking midfielder, formed at Barca's youth academy, was key to La Roja's European Championship success this summer`\
 https://nytimes.com/athletic/5684062/2024/08/06/dani-olmo-barcelona-leipzig/
-
-**A ‘Stranger Things’ Prequel Is Coming to Broadway Next Spring**\
-`The play, now running in London, is set 24 years before the start of the Netflix series.`\
-https://nytimes.com/2024/08/06/theater/stranger-things-broadway.html
 
