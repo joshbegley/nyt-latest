@@ -1,3 +1,15 @@
+**August swoon leaves Astros searching for a spark: 'We need energy'**\
+`Fatigue from Houston's furious first-half turnaround is apparent and there are few solutions exist to fix it.`\
+https://nytimes.com/athletic/5683156/2024/08/06/astros-walk-off-loss-rangers/
+
+**The impact of Summerville's departure: Gnonto staying, Rutter future and Rowe interest**\
+`Sale of last season's Championship player of the year is a blow, but Leeds have a strong squad and can keep their remaining stars`\
+https://nytimes.com/athletic/5681115/2024/08/06/summerville-fallout-gnonto-rowe-rutter/
+
+**Word of the Day: incinerate**\
+`This word has appeared in five articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/06/learning/word-of-the-day-incinerate.html
+
 **Corrections: Aug. 6, 2024**\
 `Corrections that appeared in print on Tuesday, Aug. 6, 2024.`\
 https://nytimes.com/2024/08/06/pageoneplus/corrections-aug-6-2024.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5681576/2024/08/06/from-bobb-to-savinho-to-mcatee-h
 **Explained: All you need to know about Manchester United's plan to build a new Old Trafford**\
 `Answering the key questions about Manchester United's plan to build a 100,000-capacity stadium close to Old Trafford`\
 https://nytimes.com/athletic/5672535/2024/08/06/manchester-united-new-stadium-project-explained/
-
-**'You have just slide-tackled me!': Emma Hayes, the commentator**\
-`Preparation, professionalism and humour - Hayes' co-commentators on what she's like to work with`\
-https://nytimes.com/athletic/5681849/2024/08/06/emma-hayes-commentator-pundit-uswnt-olympics/
-
-**Diary of a Premier League player who doesn't play: 'I take joy from the role I have'**\
-`Mark Gillespie is the Newcastle player who does not play - here he tells of the reality of his position and life on a summer tour`\
-https://nytimes.com/athletic/5681026/2024/08/06/newcastle-premier-league-tour-gillespie/
-
-**Lost Grounds: Bradford Park Avenue - the forgotten England international venue**\
-`Bradford (Park Avenue) was home to League football for 62 years and county cricket for over a century. It now sits forlorn and forgotten`\
-https://nytimes.com/athletic/5545157/2024/08/06/lost-grounds-bradford-park-avenue-abandoned/
 
