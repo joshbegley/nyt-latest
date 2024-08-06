@@ -1,3 +1,27 @@
+**A closer look at Oilers prospect Sam O'Reilly: Why Edmonton drafted him and what to expect**\
+`In an offseason of shocking developments, the Oilers traded into the first round to select the OHL centre. What were they thinking?`\
+https://nytimes.com/athletic/5679828/2024/08/06/oilers-prospect-sam-oreilly-nhl-draft/
+
+**Endrick's Madrid start: Battles with Rudiger, friends with Guler, and a 'phenomenon'**\
+`After waiting so long for his dream move, Endrick is getting used to life as a Madrid player`\
+https://nytimes.com/athletic/5683141/2024/08/06/endrick-real-madrid-start/
+
+**Onana prepared to take 'risks' as Man Utd aim to build from the back**\
+`Andre Onana has warned he is ready to take “a lot of risks” with the ball at his feet as Manchester United aim to build from the back better in Erik ten Hag’s third season.`\
+https://nytimes.com/athletic/5683363/2024/08/06/andre-onana-manchester-united-risks/
+
+**Residents were rescued from floods in Florida. Here’s the latest.**\
+`By Patricia Mazzei, Isabelle Taft and Judson Jones`\
+https://nytimes.com/live/2024/08/06/weather/debby-storm-forecast/residents-were-rescued-from-floods-in-florida-heres-the-latest
+
+**Live Updates: Slow-Motion Debby Drenches Florida and Georgia**\
+`Rivers across the region were rising from a potentially record-setting deluge. The tropical storm was blamed for at least five deaths after hitting Florida’s Big Bend coast as a hurricane.`\
+https://nytimes.com/live/2024/08/06/weather/debby-storm-forecast
+
+**Bangladesh Protesters Want Nobel Laureate to Advise New Government**\
+`Muhammad Yunus, a Nobel Peace Prize recipient, has emerged as a central figure in talks about an interim government. The ousted prime minister largely saw him as a threat.`\
+https://nytimes.com/2024/08/06/world/asia/bangladesh-protests-muhammad-yunus.html
+
 **A Decade Later, ‘The Leftovers’ Seems Almost Like Prophecy**\
 `In interviews, the creators, Damon Lindelof and Tom Perrotta, look back at their HBO grief drama and how it plays differently after the coronavirus pandemic.`\
 https://nytimes.com/2024/08/06/arts/television/the-leftovers-10th-anniversary.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/08/06/us/musket-balls-revolutionary-war.html
 **Cubs takeaways: Porter Hodge's quick rise, prospect promotions and Cody Bellinger's return**\
 `It's probably best to keep looking at the big picture and what this team can be for 2025 rather than believe a postseason run is ahead.`\
 https://nytimes.com/athletic/5683048/2024/08/06/cubs-takeaways-porter-hodges-success/
-
-**Historically Black Medical Schools Land a $600 Million Donation**\
-`Bloomberg Philanthropies gives what are thought to be record-breaking gifts to the endowments of Meharry Medical College, Morehouse and Howard University.`\
-https://nytimes.com/2024/08/06/us/donation-historically-black-medical-schools-bloomberg.html
-
-**Could the Vikings turn to the pistol formation to spur an offensive evolution?**\
-`Last season, the Vikings showed glimpses of an offensive scheme used successfully by the 49ers and Rams. Might they use it more in 2024?`\
-https://nytimes.com/athletic/5682289/2024/08/06/vikings-offense-kevin-oconnell-pistol-formation/
-
-**How does Summer McIntosh's Olympics stack up historically?**\
-`After Paris 2024, McIntosh is a young swimming superstar. The 17-year-old won four medals, including three gold and one silver.`\
-https://nytimes.com/athletic/5680602/2024/08/06/summer-mcintosh-olympics-history-whats-next/
-
-**How athletes struck TikTok gold at the Olympics - while others avoid the distraction**\
-`TikTok has empowered Olympians who may not normally have attracted the media spotlight`\
-https://nytimes.com/athletic/5676610/2024/08/06/the-tiktok-olympics/
-
-**'An incredible story': Why Kerry Joseph could be perfect for Caleb Williams, Bears QBs**\
-`The Bears believe Joseph's unusual path in pro football has helped him establish an instant connection with their rookie quarterback.`\
-https://nytimes.com/athletic/5682050/2024/08/06/bears-kerry-joseph-caleb-williams/
-
-**What Just Happened on Wall Street?**\
-`Explaining Monday’s stock-market plunge, and its potential consequences.`\
-https://nytimes.com/2024/08/06/podcasts/the-daily/global-stock-market-fears.html
 
