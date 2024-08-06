@@ -1,3 +1,23 @@
+**Tim Walz Is the Veep’s Pick for Veep**\
+`Many Democrats see Tim Walz as the hottest Minnesota export since Scotch tape.`\
+https://nytimes.com/2024/08/06/us/politics/tim-walz-is-the-veeps-pick-for-veep.html
+
+**With a personal story on I.V.F., Walz has vowed to protect access to the procedure.**\
+`By Amy Harmon`\
+https://nytimes.com/live/2024/08/06/us/kamala-harris-vp-trump-election/tim-walz-ivf
+
+**Markkanen, Jazz expected to reach extension**\
+`Utah held trade conversations surrounding the 27-year-old forward this offseason, most notably with the Warriors.`\
+https://nytimes.com/athletic/5683827/2024/08/06/lauri-markkanen-jazz-extension/
+
+**Walz grew up in rural Nebraska, where finding a date ‘was kind of a problem.’**\
+`By Dionne Searcey`\
+https://nytimes.com/live/2024/08/06/us/kamala-harris-vp-trump-election/walz-grew-up-in-rural-nebraska-where-finding-a-date-was-kind-of-a-problem
+
+**Pitbull buys naming rights to FIU's football stadium**\
+`Florida International University has signed a five-year deal to rename its football stadium after recording artist Pitbull.`\
+https://nytimes.com/athletic/5684095/2024/08/06/pitbull-fiu-stadium-naming-rights/
+
 **Why Did Harris Pick Walz? His Policies and Midwest Appeal Stood Out.**\
 `The vice president is said to have liked Mr. Walz’s economic policies in Minnesota, including a statewide child tax credit and a paid-leave program, as well as his folksy Midwestern background.`\
 https://nytimes.com/2024/08/06/us/politics/harris-walz-vp-pick.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5683995/2024/08/06/olympic-basketball-serbia-austra
 **Sadness Among Teen Girls May Be Improving, C.D.C. Finds**\
 `A national survey found promising signs that key mental health measures for teens, especially girls, have improved since the depths of the pandemic.`\
 https://nytimes.com/2024/08/06/health/teenage-girl-depression-sadness-pandemic.html
-
-**West Indian Kedgeree Is ‘Comfort Food for a Quick Weeknight Dinner’**\
-`And more excellent dinner options built on freezer staples.`\
-https://nytimes.com/2024/08/06/dining/west-indian-kedgeree.html
-
-**Festival Winners Crowd New York Film Festival Main Slate Lineup**\
-`Top titles from Cannes and Berlin, like Sean Baker’s “Anora” and Mati Diop’s “Dahomey,” join new work by Pedro Almodóvar, Steve McQueen and RaMell Ross.`\
-https://nytimes.com/2024/08/06/movies/new-york-film-festival-sean-baker-anora.html
-
-**Scientists Find Arm Bone of Ancient ‘Hobbit’ Human**\
-`New fossils from Indonesia, including the smallest humerus ever found from an adult hominin, belonged to the tiny Homo floresiensis species, researchers said.`\
-https://nytimes.com/2024/08/06/science/hobbit-homo-floresiensis-fossils.html
-
-**Fifty Years Later, Philippe Petit Is Still a ‘Man on Wire’**\
-`The high-wire artist has a new show commemorating the 50th anniversary of his walk between the twin towers of the World Trade Center.`\
-https://nytimes.com/2024/08/06/arts/philippe-petit-world-trade-center-50.html
-
-**More People Are Overdosing on Ozempic Alternatives**\
-`Some patients say it’s easy to get the do-it-yourself doses of compounded semaglutide wrong.`\
-https://nytimes.com/2024/08/06/well/ozempic-semaglutide-overdose-risks.html
 
