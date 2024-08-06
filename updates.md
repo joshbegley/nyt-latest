@@ -1,3 +1,11 @@
+**What Minnesota Voters Think of Tim Walz**\
+`The governor succeeded in projecting an avuncular image. But not all voters are convinced that he rose above partisanship or united the state.`\
+https://nytimes.com/2024/08/06/us/tim-walz-minnesota-voters-reactions.html
+
+**Giants' Wilmer Flores undergoes knee procedure, will miss remainder of the season**\
+`Flores was arguably the Giants' best hitter last season but he never got on track in 2024 as knee pain impacted him all year.`\
+https://nytimes.com/athletic/5685392/2024/08/06/sf-giants-wilmer-flores-knee-injury/
+
 **Boxer in Controversy Over Eligibility Lets Her Gloves Do the Talking**\
 `Imane Khelif, of Algeria, moved past questions about her eligibility with a unanimous decision over her Thai opponent. She will now fight for a gold medal.`\
 https://nytimes.com/2024/08/06/world/olympics/olympics-boxing-imane-khelif.html
