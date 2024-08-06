@@ -1,3 +1,7 @@
+**MLB exec Billy Bean, former major leaguer and advocate for LGBTQ inclusion, dies at 60**\
+`Bean was hired by former commissioner Bud Selig in part to confront the homophobia that persisted in MLB clubhouses.`\
+https://nytimes.com/athletic/5685331/2024/08/06/mlb-billy-bean-death-obituary/
+
 **The World That Awaits the Next President**\
 `Maintaining our global primacy is worth the price in effort, treasure and sometimes blood.`\
 https://nytimes.com/2024/08/06/opinion/harris-trump-ukraine.html
@@ -32,9 +36,5 @@ https://nytimes.com/athletic/5685067/2024/08/06/imane-khelif-olympic-boxing-resu
 
 **Trading Brandon Aiyuk would be massive 49ers failure on almost every level**\
 `The 49ers' leaders made a major miscalculation, and it could cost them their best shot at throwing a parade in February.`\
-https://nytimes.com/athletic/5683122/2024/08/06/kawakami-trading-brandon-aiyuk-would-be-a-massive-49ers-failure-on-almost-every-level/
-
-**USWNT has suffered at the Olympics. Its perseverance is rewarded with a chance for gold**\
-`How Hayes has rebuilt the USWNT a year after its early exit from the 2023 World Cup has instilled belief.`\
-https://nytimes.com/athletic/5685119/2024/08/06/uswnt-emma-hayes-olympics-final-suffering/
+https://nytimes.com/athletic/5683122/2024/08/06/kawakami-trading-brandon-aiyuk-massive-49ers-failure/
 

@@ -1,3 +1,11 @@
+**MLB exec Billy Bean, former major leaguer and advocate for LGBTQ inclusion, dies at 60**\
+`Bean was hired by former commissioner Bud Selig in part to confront the homophobia that persisted in MLB clubhouses.`\
+https://nytimes.com/athletic/5685331/2024/08/06/mlb-billy-bean-death-obituary/
+
+**Trading Brandon Aiyuk would be massive 49ers failure on almost every level**\
+`The 49ers' leaders made a major miscalculation, and it could cost them their best shot at throwing a parade in February.`\
+https://nytimes.com/athletic/5683122/2024/08/06/kawakami-trading-brandon-aiyuk-massive-49ers-failure/
+
 **The World That Awaits the Next President**\
 `Maintaining our global primacy is worth the price in effort, treasure and sometimes blood.`\
 https://nytimes.com/2024/08/06/opinion/harris-trump-ukraine.html
