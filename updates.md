@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/5682833/2024/08/05/enzo-maresca-chelsea-premier-league/
 
+**Maresca blames Premier League for Chelsea cashing in on academy**\
+`Maresca's claims come as Conor Gallagher is at the center of a potential move to Atletico Madrid.
+`\
+https://nytimes.com/athletic/5682833/2024/08/05/enzo-maresca-chelsea-premier-league/
+
 **Akili McDowell, Star of ‘David Makes Man,’ Is Charged With Murder**\
 `Mr. McDowell, 21, was being held on bond for the July shooting death of a man in the parking lot of a Houston apartment complex, the authorities said.`\
 https://nytimes.com/2024/08/05/arts/television/akili-mcdowell-shooting-houston.html
