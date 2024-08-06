@@ -1,3 +1,11 @@
+**The Kamala Harris-Tim Walz Ticket**\
+`Readers offer mostly positive reactions to the choice of the Minnesota governor. Also: Clarence Thomas’s unreported trips; Jimmy Carter’s vote.`\
+https://nytimes.com/2024/08/06/opinion/kamala-harris-tim-walz.html
+
+**Venezuela’s Strongman Was Confident of Victory. Then Came the Shock.**\
+`Venezuela’s government believed its control of all levers of power would give the country’s authoritarian president an Election Day victory. A rebellion by its supporters undid the plan.`\
+https://nytimes.com/2024/08/06/world/americas/venezuela-election-maduro.html
+
 **Choice of Walz Over Shapiro Mollifies the Left but Misses Chance to Reassure Jews**\
 `Many Jewish organizations backed Harris’s pick for running mate, but beneath that public sentiment is unease over antisemitism on both the left and the right.`\
 https://nytimes.com/2024/08/06/us/politics/tim-walz-shapiro-jewish.html
