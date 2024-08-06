@@ -1,3 +1,15 @@
+**Dolce & Gabbana Has New Dog Perfume. Veterinarians Turn Up Their Noses.**\
+`An extravagant scent might seem like the height of pampering for your pup. But veterinarians are raising red flags: “Overall, it’s a very bad idea.”`\
+https://nytimes.com/2024/08/06/business/dolce-gabbana-dog-perfume.html
+
+**Nebraska's Prochazka suffers season-ending injury**\
+`Teddy Prochazka, who suffered an injury in practice, and Turner Corcoran were competing this month for the job at left tackle.`\
+https://nytimes.com/athletic/5684297/2024/08/06/teddy-prochazka-injury-nebraska/
+
+**Malik Nabers, Kerby Joseph throw punches as fights continue at Lions-Giants joint practices**\
+`There were so many fights Monday, it was hard to keep track of how many there actually were. `\
+https://nytimes.com/athletic/5681909/2024/08/06/new-york-giants-detroit-lions-joint-practice-fights-daniel-jones/
+
 **Phelps says athletes caught doping should be banned**\
 `"If you test positive, you should never be allowed to come back and compete again, cut and dry," Phelps said, per the AP.`\
 https://nytimes.com/athletic/5684043/2024/08/06/michael-phelps-doping-comments-olympics/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/06/us/politics/harris-walz-pelosi.html
 **Masks Banned in Public in Nassau County, With Some Exceptions**\
 `Violators who wear masks could be fined up to $1,000, although there would be exceptions for people who wear them for health or religious reasons.`\
 https://nytimes.com/2024/08/06/nyregion/mask-ban-nassau-county-allies.html
-
-**Utah Bans 13 Books From All Public Schools**\
-`This is the first time titles have been prohibited statewide, according to a free speech organization. The list includes books by Judy Blume and Margaret Atwood.`\
-https://nytimes.com/2024/08/06/books/utah-public-school-book-ban.html
-
-**An Israeli rights group says that Palestinian detainees have been systematically abused since Oct. 7.**\
-`By Aaron Boxerman and Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/08/06/world/israel-iran-hezbollah-gaza/an-israeli-rights-group-says-that-palestinian-detainees-have-been-systematically-abused-since-oct-7
-
-**Who Is Gwen Walz, the Wife of Tim Walz?**\
-`As the first lady of Minnesota, Gwen Walz has championed criminal justice and education reform.`\
-https://nytimes.com/2024/08/06/us/politics/tim-walz-family-wife.html
 

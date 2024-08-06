@@ -1,3 +1,15 @@
+**Dolce & Gabbana Has New Dog Perfume. Veterinarians Turn Up Their Noses.**\
+`An extravagant scent might seem like the height of pampering for your pup. But veterinarians are raising red flags: “Overall, it’s a very bad idea.”`\
+https://nytimes.com/2024/08/06/business/dolce-gabbana-dog-perfume.html
+
+**Nebraska's Prochazka suffers season-ending injury**\
+`Teddy Prochazka, who suffered an injury in practice, and Turner Corcoran were competing this month for the job at left tackle.`\
+https://nytimes.com/athletic/5684297/2024/08/06/teddy-prochazka-injury-nebraska/
+
+**Malik Nabers, Kerby Joseph throw punches as fights continue at Lions-Giants joint practices**\
+`There were so many fights Monday, it was hard to keep track of how many there actually were. `\
+https://nytimes.com/athletic/5681909/2024/08/06/new-york-giants-detroit-lions-joint-practice-fights-daniel-jones/
+
 **Phelps says athletes caught doping should be banned**\
 `"If you test positive, you should never be allowed to come back and compete again, cut and dry," Phelps said, per the AP.`\
 https://nytimes.com/athletic/5684043/2024/08/06/michael-phelps-doping-comments-olympics/
