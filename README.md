@@ -1,3 +1,11 @@
+**Chargers training camp, Day 11: AJ Finley emerging as frontrunner in third safety battle**\
+`To take advantage of Derwin James' versatility, the Chargers need a quality third safety. Finley, a 2023 UDFA, is emerging.`\
+https://nytimes.com/athletic/5682780/2024/08/05/chargers-training-camp-aj-finley-safety/
+
+**Chelsea's Caicedo 'felt a lot of pressure' as British record transfer**\
+`Caicedo added that he believes he has more to show Chelsea fans during the coming campaign, saying "I can show my quality."`\
+https://nytimes.com/athletic/5682767/2024/08/05/moises-caicedo-chelsea-pressure-record-transfer/
+
 **Harris Nears Her Big V.P. Reveal After Fierce Lobbying From Democrats**\
 `The vice president is expected to announce her choice on Tuesday morning. One prominent Democrat recounted being asked by a contender, “Will you please make sure you put in a good word for me?”`\
 https://nytimes.com/2024/08/05/us/politics/kamala-harris-vp-pick-democrats.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5682632/2024/08/05/49ers-brandon-aiyuk-trade-talks/
 **As Israel Braces for Iran’s Retaliation, Diplomats Work to Avoid Wider War**\
 `President Biden convened his national security team and spoke with King Abdullah II of Jordan, and foreign ministers from Islamic countries plan to gather in Saudi Arabia on Wednesday.`\
 https://nytimes.com/2024/08/05/world/middleeast/israel-hamas-iran-retaliation.html
-
-**Giants send message with scrappy practice vs. Lions: They'll be a grittier team in 2024**\
-`That dawg mentality so embraced by Giants coach Brian Daboll was evident throughout his roster Monday.`\
-https://nytimes.com/athletic/5682503/2024/08/05/new-york-giants-detroit-lions-joint-practice-fights/
-
-**Stocks Tumbled Over Fears of a U.S. Economic Slowdown**\
-`Also, a judge ruled that Google violated antitrust laws and Bangladesh’s leader resigned`\
-https://nytimes.com/2024/08/05/briefing/stocks-tumbled-over-fears-of-a-us-economic-slowdown.html
 
