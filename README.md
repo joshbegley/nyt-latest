@@ -1,3 +1,11 @@
+**Tiny Love Stories: ‘I Slunk Into Will’s Room and Under His Sheets’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/08/06/style/tiny-modern-love-stories-i-slunk-into-wills-room-and-under-his-sheets.html
+
+**Hezbollah’s leader vows a ‘strong’ response to Israel’s strikes, ‘whatever the consequences.’**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/08/06/world/israel-iran-hezbollah-gaza/hezbollahs-leader-vows-a-strong-response-to-israels-strikes-whatever-the-consequences
+
 **It took 14 years and 86 days to make an Olympic champion in skateboarding.**\
 `Arisa Trew vaulted into first place with her final run, winning gold.`\
 https://nytimes.com/live/2024/07/27/world/olympics-paris-photos/arisa-trew-skateboarding
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/06/us/politics/tim-walz-dui.html
 **What's next for Simone Biles and USA Gymnastics? A riddle to solve for L.A.**\
 `Will Simone Biles be back? Will the rest of the team look different? For USA Gymnastics, the questions for their home Olympics start now.`\
 https://nytimes.com/athletic/5684526/2024/08/06/simone-biles-usa-gymnastics-olympics-future-los-angeles/
-
-**Tim Walz’s Big Climate Ambitions**\
-`Minnesota’s governor, Vice President Harris’s new running mate, has put forth one of the most ambitious climate agendas in the country.`\
-https://nytimes.com/2024/08/06/climate/tim-walzs-big-climate-ambitions.html
-
-**Braves, Reds to play game next season at Bristol Motor Speedway: Sources**\
-`Bristol Motor Speedway, one of NASCAR’s most iconic tracks, will host a regular season MLB game between the Atlanta Braves and Cincinnati Reds in 2025, multiple sources briefed on the plans told The Athletic on Tuesday.`\
-https://nytimes.com/athletic/5684541/2024/08/06/braves-reds-game-bristol-motor-speedway-2025/
 
