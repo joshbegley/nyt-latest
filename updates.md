@@ -1,3 +1,5 @@
+**Blinken calls a cease-fire of the ‘highest priority’ to the U.S., and other news.**\
+
 **CNET Sold to Ziff Davis in Sign of Possible Media Deals to Come**\
 `Ziff Davis is acquiring CNET for more than $100 million. Its founder thinks more acquisitions are on the horizon.`\
 https://nytimes.com/2024/08/06/business/media/cnet-ziff-davis.html
