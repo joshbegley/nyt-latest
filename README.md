@@ -1,3 +1,15 @@
+**Justice Dept. Charges Pakistani Man in Alleged Plot to Kill U.S. Leaders**\
+`After his arrest, the man, who had just spent two weeks in Iran, told investigators that Donald Trump was among his targets. There is no evidence connecting the episode to the shooting of the former president in Pennsylvania.`\
+https://nytimes.com/2024/08/06/us/politics/justice-dept-assassination.html
+
+**Free Covid Vaccines Will Soon Become Harder for Some to Find**\
+`A program that provided more than one million Covid shots to uninsured and underinsured people is coming to an end.`\
+https://nytimes.com/2024/08/06/well/cdc-covid-vaccines-free-program.html
+
+**Kennedy Testifies in Ballot Case, Insisting He Does Live in New York**\
+`In the wake of the revelation that he once dumped a bear in Central Park, Kennedy appeared in court over a challenge to the address on his presidential nominating petitions.`\
+https://nytimes.com/2024/08/06/nyregion/rfk-jr-testifies-ny-ballot.html
+
 **Joss Naylor, the English King of Racing Up Mountains, Dies at 88**\
 `A sheep farmer, he set records in so-called fell running — rugged off-trail competitions that can last days and present painful hazards, including an irate cow.`\
 https://nytimes.com/2024/08/06/sports/joss-naylor-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/08/06/weather/debby-storm-forecast/residents-are-s
 **Why Tim Walz Will Be a Potent Weapon for Kamala Harris**\
 `He is of a vanishing political breed: the heartland left populist.`\
 https://nytimes.com/2024/08/06/opinion/tim-walz-kamala-harris.html
-
-**I Reviewed Restaurants for 12 Years. They’ve Changed, and Not for the Better.**\
-`In his last essay as a restaurant critic, Pete Wells reflects on a dining world of touch screens and reservation apps, where it’s getting hard to find the human touch.`\
-https://nytimes.com/2024/08/06/dining/pete-wells-how-restaurants-have-changed.html
-
-**Bangladesh’s Leader Fled Just Ahead of an Angry Crowd, Urged by Family to Go**\
-`As masses of people converged, angry at the killing of protesters, Prime Minister Sheikh Hasina insisted that she could hold on, which military leaders said would mean spilling far more blood.`\
-https://nytimes.com/2024/08/06/world/asia/bangladesh-hasina-final-hours.html
-
-**JD Vance Launches Trump Campaign’s First Volleys at Harris-Walz Ticket**\
-`Following a rally in Philadelphia — where the newly minted Democratic ticket will debut Tuesday — Mr. Vance cast the Minnesota governor as too extreme for office.`\
-https://nytimes.com/2024/08/06/us/politics/jd-vance-tim-walz.html
 
