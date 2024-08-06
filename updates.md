@@ -1,3 +1,11 @@
+**Explained: All you need to know about Manchester United's plan to build a new Old Trafford**\
+`Answering the key questions about Manchester United's plan to build a 100,000-capacity stadium close to Old Trafford`\
+https://nytimes.com/athletic/5672535/2024/08/06/manchester-united-new-stadium-project-explained/
+
+**'You have just slide-tackled me!': Emma Hayes, the commentator**\
+`Preparation, professionalism and humour - Hayes' co-commentators on what she's like to work with`\
+https://nytimes.com/athletic/5681849/2024/08/06/emma-hayes-commentator-pundit-uswnt-olympics/
+
 **Diary of a Premier League player who doesn't play: 'I take joy from the role I have'**\
 `Mark Gillespie is the Newcastle player who does not play - here he tells of the reality of his position and life on a summer tour`\
 https://nytimes.com/athletic/5681026/2024/08/06/newcastle-premier-league-tour-gillespie/
