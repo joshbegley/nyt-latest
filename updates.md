@@ -1,3 +1,7 @@
+**San Bernardino Fire Engulfs Homes**\
+`The Edgehill fire burned several homes and threatened others along a hillside in San Bernardino, Calif.`\
+https://nytimes.com/video/us/100000009613463/san-bernardino-fire-homes.html
+
 **Alvarez From Bobb to Savinho to McAtee: How Manchester City could adapt if Julian Alvarez departs**\
 `Given the quality in Guardiola's squad it's not a given that the Argentinian would be replaced by a new signing `\
 https://nytimes.com/athletic/5681576/2024/08/06/from-bobb-to-savinho-to-mcatee-how-manchester-city-could-adapt-if-julian-alvarez-departs/
