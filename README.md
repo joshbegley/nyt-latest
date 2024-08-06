@@ -1,3 +1,11 @@
+**Trump Campaign Criticizes Walz for State Law Providing Tampons in Schools**\
+`The law, which was passed in Minnesota last year, includes language requiring menstrual products to be available in bathrooms of all schools for grades 4 to 12 as a way to accommodate transgender students.`\
+https://nytimes.com/2024/08/06/us/politics/trump-tim-walz-tampons-schools.html
+
+**Landlord Is Ordered to Jail Again Over Problems in His Buildings**\
+`A New York City landlord, Daniel Ohebshalom, already served a 60-day sentence on Rikers Island this year. But officials and tenants say he still didn’t fix his apartments.`\
+https://nytimes.com/2024/08/06/nyregion/landlord-jail-repairs.html
+
 **Why Jordan Love, other Packers starters will play in preseason and more from camp**\
 `Expect to see the starting QB and other first-team players vs. the Browns in Saturday's preseason opener on the road.`\
 https://nytimes.com/athletic/5684677/2024/08/06/packers-starters-preseason-games/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/06/style/roberts-western-world-block-party-nashville
 **Justice Dept. Charges Pakistani Man in Alleged Plot to Kill U.S. Leaders**\
 `After his arrest, the man, who had just spent two weeks in Iran, told investigators that Donald Trump was among his targets. There is no evidence connecting the episode to the shooting of the former president in Pennsylvania.`\
 https://nytimes.com/2024/08/06/us/politics/justice-dept-assassination.html
-
-**Free Covid Vaccines Will Soon Become Harder for Some to Find**\
-`A program that provided more than one million Covid shots to uninsured and underinsured people is coming to an end.`\
-https://nytimes.com/2024/08/06/well/cdc-covid-vaccines-free-program.html
-
-**Kennedy Testifies in Ballot Case, Insisting He Does Live in New York**\
-`In the wake of the revelation that he once dumped a bear in Central Park, Kennedy appeared in court over a challenge to the address on his presidential nominating petitions.`\
-https://nytimes.com/2024/08/06/nyregion/rfk-jr-testifies-ny-ballot.html
 
