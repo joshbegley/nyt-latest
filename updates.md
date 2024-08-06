@@ -1,3 +1,7 @@
+**Alvarez From Bobb to Savinho to McAtee: How Manchester City could adapt if Julian Alvarez departs**\
+`Given the quality in Guardiola's squad it's not a given that the Argentinian would be replaced by a new signing `\
+https://nytimes.com/athletic/5681576/2024/08/06/from-bobb-to-savinho-to-mcatee-how-manchester-city-could-adapt-if-julian-alvarez-departs/
+
 **Explained: All you need to know about Manchester United's plan to build a new Old Trafford**\
 `Answering the key questions about Manchester United's plan to build a 100,000-capacity stadium close to Old Trafford`\
 https://nytimes.com/athletic/5672535/2024/08/06/manchester-united-new-stadium-project-explained/
