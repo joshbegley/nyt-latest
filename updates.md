@@ -1,3 +1,15 @@
+**In the House, Walz embraced a blend of liberal and culturally conservative stances.**\
+`By Catie Edmondson`\
+https://nytimes.com/live/2024/08/06/us/kamala-harris-vp-trump-election/in-the-house-walz-embraced-a-blend-of-liberal-and-culturally-conservative-stances
+
+**‘Why Trash Your Own Town?’ An English City Reckons With a Riot.**\
+`Days after an angry crowd marauded through Sunderland, people in the industrial port city are trying to make sense of what just happened.`\
+https://nytimes.com/2024/08/06/world/europe/uk-riots-sunderland.html
+
+**The Patriots and Brandon Aiyuk: Where things stand in a potential trade with the 49ers**\
+`Where do things stand between the Patriots and 49ers regarding a potential Brandon Aiyuk trade? We examine the forces at play.`\
+https://nytimes.com/athletic/5684100/2024/08/06/brandon-aiyuk-49ers-patriots-trade/
+
 **Trump Campaign Attacks Walz as ‘Dangerously Liberal’**\
 `Republicans quickly zeroed in on the liberal policies Tim Walz has signed into law in Minnesota, as well as his handling of unrest in Minneapolis after George Floyd’s murder in 2020.`\
 https://nytimes.com/2024/08/06/us/politics/trump-harris-walz-gop-reaction.html
