@@ -1,3 +1,31 @@
+**Serbia, Nikola Jokić thwart Australia's medal hopes**\
+`Serbia survived an incredible last-second shot by Patty Mills over Nikola Jokić to force overtime, defeating Australia 95-90 to advance.`\
+https://nytimes.com/athletic/5683995/2024/08/06/olympic-basketball-serbia-australia-results/
+
+**Sadness Among Teen Girls May Be Improving, C.D.C. Finds**\
+`A national survey found promising signs that key mental health measures for teens, especially girls, have improved since the depths of the pandemic.`\
+https://nytimes.com/2024/08/06/health/teenage-girl-depression-sadness-pandemic.html
+
+**West Indian Kedgeree Is ‘Comfort Food for a Quick Weeknight Dinner’**\
+`And more excellent dinner options built on freezer staples.`\
+https://nytimes.com/2024/08/06/dining/west-indian-kedgeree.html
+
+**Festival Winners Crowd New York Film Festival Main Slate Lineup**\
+`Top titles from Cannes and Berlin, like Sean Baker’s “Anora” and Mati Diop’s “Dahomey,” join new work by Pedro Almodóvar, Steve McQueen and RaMell Ross.`\
+https://nytimes.com/2024/08/06/movies/new-york-film-festival-sean-baker-anora.html
+
+**Scientists Find Arm Bone of Ancient ‘Hobbit’ Human**\
+`New fossils from Indonesia, including the smallest humerus ever found from an adult hominin, belonged to the tiny Homo floresiensis species, researchers said.`\
+https://nytimes.com/2024/08/06/science/hobbit-homo-floresiensis-fossils.html
+
+**Fifty Years Later, Philippe Petit Is Still a ‘Man on Wire’**\
+`The high-wire artist has a new show commemorating the 50th anniversary of his walk between the twin towers of the World Trade Center.`\
+https://nytimes.com/2024/08/06/arts/philippe-petit-world-trade-center-50.html
+
+**More People Are Overdosing on Ozempic Alternatives**\
+`Some patients say it’s easy to get the do-it-yourself doses of compounded semaglutide wrong.`\
+https://nytimes.com/2024/08/06/well/ozempic-semaglutide-overdose-risks.html
+
 **Can Freed Russian Dissidents Help Energize an Opposition Movement?**\
 `The release of activists like Ilya Yashin gives new hope to an movement in which various groups are often at war with each other. But many have doubts.`\
 https://nytimes.com/2024/08/06/world/europe/russian-dissidents-opposition-movement.html
@@ -9,32 +37,4 @@ https://nytimes.com/interactive/2024/08/06/us/elections/trump-vance-harris-walz-
 **Why the Electoral Math on Tim Walz Makes Sense**\
 `If he can reduce Trump’s numbers in rural counties around the country, Harris could win.`\
 https://nytimes.com/2024/07/30/opinion/tim-walz-electoral-math.html
-
-**19 Facts About Tim Walz, Harris’s Pick for Vice President**\
-`Mr. Walz, the governor of Minnesota, worked as a high school social studies teacher and football coach, served in the Army National Guard and chooses Diet Mountain Dew over alcohol.`\
-https://nytimes.com/2024/08/06/us/politics/tim-walz-harris-vp-facts.html
-
-**Decline in Veterans’ Homelessness Spurs Hopes for a Broader Solution**\
-`Two federal agencies, backed by ample funding from Congress, have quietly shown that it is possible to make progress on a seemingly intractable problem.`\
-https://nytimes.com/2024/08/06/us/politics/decline-veterans-homelessness.html
-
-**A Harris Victory Would Give Minnesota Its First Female Governor**\
-`Lt. Gov. Peggy Flanagan would also become the first Native American person in the role.`\
-https://nytimes.com/2024/08/06/us/peggy-flanagan-tim-walz-minnesota.html
-
-**Axios Laying Off 10% of Staff**\
-`Jim VandeHei, the company’s chief executive, said in an email that the cuts were necessary to adapt to “changes in the media business.”`\
-https://nytimes.com/2024/08/06/business/media/axios-layoffs.html
-
-**How Far Will a Reader Go to Hear Songs Inspired by Books?**\
-`In search of a connection between two worlds — one beloved, one baffling — a bibliophile made a musical pilgrimage.`\
-https://nytimes.com/2024/08/06/books/the-bookshop-band.html
-
-**Scoop City: What you should know from training camps today**\
-`A review of injuries, trade rumours and camp battles around the NFL.`\
-https://nytimes.com/athletic/5683882/2024/08/06/nfl-training-camp-injuries-scoop-city/
-
-**Whitney Museum Announces 2026 Biennial Curators**\
-`Marcela Guerrero and Drew Sawyer will organize the 82nd edition of the museum’s signature survey of contemporary American art.`\
-https://nytimes.com/2024/08/06/arts/design/whitney-museum-2026-biennial-curators.html
 
