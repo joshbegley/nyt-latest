@@ -1,3 +1,7 @@
+**Trump and His Allies Seize on Market Downturn to Attack Harris**\
+`Economists blamed a variety of factors for Monday’s slide. But Donald Trump was trying to disrupt weeks of momentum for Vice President Kamala Harris and her party.`\
+https://nytimes.com/2024/08/05/us/politics/trump-harris-market-downturn.html
+
 **Chargers training camp, Day 11: AJ Finley emerging as frontrunner in third safety battle**\
 `To take advantage of Derwin James' versatility, the Chargers need a quality third safety. Finley, a 2023 UDFA, is emerging.`\
 https://nytimes.com/athletic/5682780/2024/08/05/chargers-training-camp-aj-finley-safety/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/05/us/david-lynch-emphysema-twin-peaks.html
 **49ers have discussed Aiyuk trade: Source**\
 `Aiyuk trade talks have heated up as the 49ers completed their second week of training camp no closer to a deal with their star receiver.`\
 https://nytimes.com/athletic/5682632/2024/08/05/49ers-brandon-aiyuk-trade-talks/
-
-**As Israel Braces for Iran’s Retaliation, Diplomats Work to Avoid Wider War**\
-`President Biden convened his national security team and spoke with King Abdullah II of Jordan, and foreign ministers from Islamic countries plan to gather in Saudi Arabia on Wednesday.`\
-https://nytimes.com/2024/08/05/world/middleeast/israel-hamas-iran-retaliation.html
 
