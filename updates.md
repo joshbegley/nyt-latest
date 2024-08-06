@@ -1,3 +1,23 @@
+**Olympic handballer who couldn't stay awake: ‘I can sleep everywhere’**\
+`Sweden’s top handballer stars on the court but couldn’t stay awake off it — until his sleep apnea diagnosis.`\
+https://nytimes.com/athletic/5684328/2024/08/06/olympics-sleep-apnea-handball-gottfridsson/
+
+**Denis Shapovalov 'did not sleep' after default for swearing at Washington Open**\
+`Canadian tennis player Denis Shapovalov &#8220;did not sleep for two days&#8221; after being defaulted from the Citi Open in Washington D.`\
+https://nytimes.com/athletic/5684350/2024/08/06/denis-shapovalov-default-washington-open/
+
+**Queens Man Is Convicted of Spying on Dissidents for China**\
+`Shujun Wang, who co-founded an organization devoted to democracy in China, used it to gather information for the authoritarian country’s government, prosecutors said.`\
+https://nytimes.com/2024/08/06/nyregion/shujun-wang-conviction-spy-china.html
+
+**In Minnesota, Walz’s relationship with Republicans has grown strained.**\
+`By Ernesto Londoño`\
+https://nytimes.com/live/2024/08/06/us/kamala-harris-vp-trump-election/tim-walz-minnesota-republicans
+
+**Buckley: In times of heartache, athletes often cope by doing what they do best: playing**\
+`Many times, we don’t know what players like Wilyer Abreu and Freddie Freeman are going through until after they've played through the pain. `\
+https://nytimes.com/athletic/5683038/2024/08/06/athletes-playing-in-tragedy-wilyer-abreu-freddie-freeman-chris-paul/
+
 **9 Killed After S.U.V. Flips Into South Florida Canal, Authorities Say**\
 `One passenger survived with serious injuries after the vehicle veered off a road in Belle Glade, Fla., on Monday evening.`\
 https://nytimes.com/2024/08/06/us/suv-crash-south-florida-canal.html
