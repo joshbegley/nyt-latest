@@ -1,3 +1,7 @@
+**Guido Rodriguez joins West Ham on free transfer**\
+`West Ham United have completed the signing of Guido Rodriguez on a free transfer.`\
+https://nytimes.com/athletic/5683566/2024/08/06/guido-rodriguez-west-ham-transfer/
+
 **2025 NASCAR playoff schedule likely to include Talladega in semis**\
 `Repositioning Talladega is one of several changes NASCAR is expected to make to next year's 10-race playoff schedule.`\
 https://nytimes.com/athletic/5683514/2024/08/06/nascar-playoff-schedule-2025-changes/
@@ -5,6 +9,10 @@ https://nytimes.com/athletic/5683514/2024/08/06/nascar-playoff-schedule-2025-cha
 **Here’s the latest on the presidential race.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/08/06/us/kamala-harris-vp-trump-election/heres-the-latest-on-the-presidential-race
+
+**Kris Kocurek, Brandon Staley and 49ers assistants on Leonard Floyd, Ricky Pearsall and more**\
+`49ers assistant coaches met with reporters Monday and, among several topics, discussed the progression of some key rookies.`\
+https://nytimes.com/athletic/5682408/2024/08/06/49ers-leonard-floyd-assistant-coaches/
 
 **U.S. Envoy Says Ukraine’s Economy Needs Reform and Investment to Thrive**\
 `Penny Pritzker, who is leaving her position as special representative for Ukraine’s economic recovery, said the country had made progress but still faced major hurdles.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5681571/2024/08/06/mike-macdonald-seattle-seahawks-
 **The Athletic FC: Ibrahimovic on 'becoming the best', City's $100m Alvarez deal with Atletico**\
 `Today in The Athletic FC: An Ibrahimovic exclusive interview, news on Alvarez's $100m move to Atletico, plus an Olympics round-up`\
 https://nytimes.com/athletic/5683364/2024/08/06/zlatan-ibrahimovic-exclusive-hayes-haribo-referee-injured-the-athletic-fc/
-
-**Palestinian health officials say at least eight people were killed in the West Bank.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/08/06/world/israel-iran-hezbollah-gaza/palestinian-health-officials-say-at-least-eight-people-were-killed-in-the-west-bank
-
-**A closer look at Oilers prospect Sam O'Reilly: Why Edmonton drafted him and what to expect**\
-`In an offseason of shocking developments, the Oilers traded into the first round to select the OHL centre. What were they thinking?`\
-https://nytimes.com/athletic/5679828/2024/08/06/oilers-prospect-sam-oreilly-nhl-draft/
 

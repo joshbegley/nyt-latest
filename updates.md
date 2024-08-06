@@ -1,3 +1,11 @@
+**Guido Rodriguez joins West Ham on free transfer**\
+`West Ham United have completed the signing of Guido Rodriguez on a free transfer.`\
+https://nytimes.com/athletic/5683566/2024/08/06/guido-rodriguez-west-ham-transfer/
+
+**Kris Kocurek, Brandon Staley and 49ers assistants on Leonard Floyd, Ricky Pearsall and more**\
+`49ers assistant coaches met with reporters Monday and, among several topics, discussed the progression of some key rookies.`\
+https://nytimes.com/athletic/5682408/2024/08/06/49ers-leonard-floyd-assistant-coaches/
+
 **The U.S. tour that 'saved' Barcelona - and why only half their squad came back**\
 `One of the most remarkable chapters in the club's history concluded in New York. Here's the full story`\
 https://nytimes.com/athletic/5683437/2024/08/06/barcelona-united-states-tour-1937-civil-war/
