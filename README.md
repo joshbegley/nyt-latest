@@ -1,3 +1,11 @@
+**Trump Campaign Attacks Walz as ‘Dangerously Liberal’**\
+`Republicans quickly zeroed in on the liberal policies Tim Walz has signed into law in Minnesota, as well as his handling of unrest in Minneapolis after George Floyd’s murder in 2020.`\
+https://nytimes.com/2024/08/06/us/politics/trump-harris-walz-gop-reaction.html
+
+**Nancy Pelosi Praises Walz as Representing ‘Heartland Values’**\
+`The former House speaker said that if Kamala Harris and Tim Walz, the Minnesota governor, win in November, “they have to govern from the middle for the whole country.”`\
+https://nytimes.com/2024/08/06/us/politics/harris-walz-pelosi.html
+
 **Masks Banned in Public in Nassau County, With Some Exceptions**\
 `Violators who wear masks could be fined up to $1,000, although there would be exceptions for people who wear them for health or religious reasons.`\
 https://nytimes.com/2024/08/06/nyregion/mask-ban-nassau-county-allies.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5684179/2024/08/06/pittsburgh-pirates-the-windup/
 **X, Owned by Elon Musk, Brings Antitrust Suit Accusing Advertisers of a Boycott**\
 `The company claimed that members of the Global Alliance for Responsible Media coordinated to dissuade brands from advertising on X.`\
 https://nytimes.com/2024/08/06/technology/x-antitrust-suit-advertisers-elon-musk.html
-
-**Tim Walz Is the Veep’s Pick for Veep**\
-`Many Democrats see Tim Walz as the hottest Minnesota export since Scotch tape.`\
-https://nytimes.com/2024/08/06/us/politics/tim-walz-is-the-veeps-pick-for-veep.html
-
-**With a personal story on I.V.F., Walz has vowed to protect access to the procedure.**\
-`By Amy Harmon`\
-https://nytimes.com/live/2024/08/06/us/kamala-harris-vp-trump-election/tim-walz-ivf
 
