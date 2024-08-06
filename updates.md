@@ -1,3 +1,27 @@
+**A closer look at Oilers prospect Sam O'Reilly: Why Edmonton drafted him and what to expect**\
+`In an offseason of shocking developments, the Oilers traded into the first round to select the OHL centre. What were they thinking?`\
+https://nytimes.com/athletic/5679828/2024/08/06/oilers-prospect-sam-oreilly-nhl-draft/
+
+**Endrick's Madrid start: Battles with Rudiger, friends with Guler, and a 'phenomenon'**\
+`After waiting so long for his dream move, Endrick is getting used to life as a Madrid player`\
+https://nytimes.com/athletic/5683141/2024/08/06/endrick-real-madrid-start/
+
+**Onana prepared to take 'risks' as Man Utd aim to build from the back**\
+`Andre Onana has warned he is ready to take “a lot of risks” with the ball at his feet as Manchester United aim to build from the back better in Erik ten Hag’s third season.`\
+https://nytimes.com/athletic/5683363/2024/08/06/andre-onana-manchester-united-risks/
+
+**Residents were rescued from floods in Florida. Here’s the latest.**\
+`By Patricia Mazzei, Isabelle Taft and Judson Jones`\
+https://nytimes.com/live/2024/08/06/weather/debby-storm-forecast/residents-were-rescued-from-floods-in-florida-heres-the-latest
+
+**Live Updates: Slow-Motion Debby Drenches Florida and Georgia**\
+`Rivers across the region were rising from a potentially record-setting deluge. The tropical storm was blamed for at least five deaths after hitting Florida’s Big Bend coast as a hurricane.`\
+https://nytimes.com/live/2024/08/06/weather/debby-storm-forecast
+
+**Bangladesh Protesters Want Nobel Laureate to Advise New Government**\
+`Muhammad Yunus, a Nobel Peace Prize recipient, has emerged as a central figure in talks about an interim government. The ousted prime minister largely saw him as a threat.`\
+https://nytimes.com/2024/08/06/world/asia/bangladesh-protests-muhammad-yunus.html
+
 **A Decade Later, ‘The Leftovers’ Seems Almost Like Prophecy**\
 `In interviews, the creators, Damon Lindelof and Tom Perrotta, look back at their HBO grief drama and how it plays differently after the coronavirus pandemic.`\
 https://nytimes.com/2024/08/06/arts/television/the-leftovers-10th-anniversary.html
