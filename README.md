@@ -6,7 +6,7 @@ https://nytimes.com/2024/08/06/briefing/tim-walz-harris-vp-pick-debby-storm.html
 `Though only a rookie, Nabers has already established himself as the Giants' most dangerous weapon.`\
 https://nytimes.com/athletic/5685051/2024/08/06/new-york-giants-malik-nabers-detroit-lions-training-camp/
 
-**New York City Faces Heavy Rain. Moisture From Debby May Make It Worse.**\
+**New York City Faces Heavy Rain. Debby May Make It Worse.**\
 `The thunderstorms hitting the New York area are the result of the meeting of a cold front and a mass of very moist air.`\
 https://nytimes.com/2024/08/06/weather/new-york-rains-debby.html
 
