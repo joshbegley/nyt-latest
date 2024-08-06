@@ -1,3 +1,7 @@
+**Here’s the latest on the presidential race.**\
+`By Reid J. Epstein`\
+https://nytimes.com/live/2024/08/06/us/kamala-harris-vp-trump-election/heres-the-latest-on-the-presidential-race
+
 **For Salif Mane, U.S. Olympic triple jumper, his late father's voice still lights the way**\
 `On Salif Mane's unlikely path to the Olympics, his father was a constant. And he still keeps his dad's words of wisdom close.`\
 https://nytimes.com/athletic/5646049/2024/08/06/salif-mane-2024-olympics-track-and-field/

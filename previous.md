@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5683566/2024/08/06/guido-rodriguez-west-ham-transfe
 https://nytimes.com/athletic/5683514/2024/08/06/nascar-playoff-schedule-2025-changes/
 
 **Here’s the latest on the presidential race.**\
-`By Chris Cameron`\
+`By Reid J. Epstein`\
 https://nytimes.com/live/2024/08/06/us/kamala-harris-vp-trump-election/heres-the-latest-on-the-presidential-race
 
 **Kris Kocurek, Brandon Staley and 49ers assistants on Leonard Floyd, Ricky Pearsall and more**\
