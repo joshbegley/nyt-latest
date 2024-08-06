@@ -1,3 +1,8 @@
+**Maresca blames Premier League for Chelsea cashing in on academy**\
+`Maresca's claims come as Conor Gallagher is at the center of a potential move to Atletico Madrid.
+`\
+https://nytimes.com/athletic/5682833/2024/08/05/enzo-maresca-chelsea-premier-league/
+
 **Bit of Ink**\
 `Daniel Raymon rides the current.`\
 https://nytimes.com/2024/08/05/crosswords/daily-puzzle-2024-08-06.html
