@@ -1,3 +1,11 @@
+**Trump Campaign Criticizes Walz for State Law Providing Tampons in Schools**\
+`The law, which was passed in Minnesota last year, includes language requiring menstrual products to be available in bathrooms of all schools for grades 4 to 12 as a way to accommodate transgender students.`\
+https://nytimes.com/2024/08/06/us/politics/trump-tim-walz-tampons-schools.html
+
+**Landlord Is Ordered to Jail Again Over Problems in His Buildings**\
+`A New York City landlord, Daniel Ohebshalom, already served a 60-day sentence on Rikers Island this year. But officials and tenants say he still didn’t fix his apartments.`\
+https://nytimes.com/2024/08/06/nyregion/landlord-jail-repairs.html
+
 **Why Jordan Love, other Packers starters will play in preseason and more from camp**\
 `Expect to see the starting QB and other first-team players vs. the Browns in Saturday's preseason opener on the road.`\
 https://nytimes.com/athletic/5684677/2024/08/06/packers-starters-preseason-games/
