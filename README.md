@@ -1,3 +1,7 @@
+**Why Tim Walz Will Be a Potent Weapon for Kamala Harris**\
+`He is of a vanishing political breed: the heartland left populist.`\
+https://nytimes.com/2024/08/06/opinion/tim-walz-kamala-harris.html
+
 **I Reviewed Restaurants for 12 Years. They’ve Changed, and Not for the Better.**\
 `In his last essay as a restaurant critic, Pete Wells reflects on a dining world of touch screens and reservation apps, where it’s getting hard to find the human touch.`\
 https://nytimes.com/2024/08/06/dining/pete-wells-how-restaurants-have-changed.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5684698/2024/08/06/cole-hocker-mens-1500m-olympic-r
 **The Pulse: Why is everyone mad at Noah Lyles?**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5683115/2024/08/06/noah-lyles-nba-olympics-the-pulse/
-
-**The labor movement got behind Walz even before he was chosen.**\
-`By Noam Scheiber`\
-https://nytimes.com/live/2024/08/06/us/kamala-harris-vp-trump-election/walz-labor
 

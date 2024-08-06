@@ -1,3 +1,15 @@
+**I Reviewed Restaurants for 12 Years. They’ve Changed, and Not for the Better.**\
+`In his last essay as a restaurant critic, Pete Wells reflects on a dining world of touch screens and reservation apps, where it’s getting hard to find the human touch.`\
+https://nytimes.com/2024/08/06/dining/pete-wells-how-restaurants-have-changed.html
+
+**Bangladesh’s Leader Fled Just Ahead of an Angry Crowd, Urged by Family to Go**\
+`As masses of people converged, angry at the killing of protesters, Prime Minister Sheikh Hasina insisted that she could hold on, which military leaders said would mean spilling far more blood.`\
+https://nytimes.com/2024/08/06/world/asia/bangladesh-hasina-final-hours.html
+
+**JD Vance Launches Trump Campaign’s First Volleys at Harris-Walz Ticket**\
+`Following a rally in Philadelphia — where the newly minted Democratic ticket will debut Tuesday — Mr. Vance cast the Minnesota governor as too extreme for office.`\
+https://nytimes.com/2024/08/06/us/politics/jd-vance-tim-walz.html
+
 **Tiny Love Stories: ‘I Slunk Into Will’s Room and Under His Sheets’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/08/06/style/tiny-modern-love-stories-i-slunk-into-wills-room-and-under-his-sheets.html
