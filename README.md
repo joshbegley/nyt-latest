@@ -10,6 +10,10 @@ https://nytimes.com/live/2024/08/06/us/kamala-harris-vp-trump-election/heres-the
 `Penny Pritzker, who is leaving her position as special representative for Ukraine’s economic recovery, said the country had made progress but still faced major hurdles.`\
 https://nytimes.com/2024/08/06/us/politics/ukraine-economy-penny-pritzker.html
 
+**The U.S. tour that 'saved' Barcelona - and why only half their squad came back**\
+`One of the most remarkable chapters in the club's history concluded in New York. Here's the full story`\
+https://nytimes.com/athletic/5683437/2024/08/06/barcelona-united-states-tour-1937-civil-war/
+
 **Atletico in advanced talks to sign Guerra from Valencia**\
 `Atletico Madrid are in advanced talks to sign Valencia midfielder Javi Guerra.`\
 https://nytimes.com/athletic/5683491/2024/08/06/atletico-madrid-javi-guerra/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/06/world/israel-iran-hezbollah-gaza/palestinian
 **A closer look at Oilers prospect Sam O'Reilly: Why Edmonton drafted him and what to expect**\
 `In an offseason of shocking developments, the Oilers traded into the first round to select the OHL centre. What were they thinking?`\
 https://nytimes.com/athletic/5679828/2024/08/06/oilers-prospect-sam-oreilly-nhl-draft/
-
-**Sean Payton vows Broncos' 'awful' goal-to-go offense will improve in 2024**\
-`Rookie running back Audric Estimé could be key component in Denver's quest to improve upon a meager 53.3 percent TD rate near the goal line.`\
-https://nytimes.com/athletic/5682346/2024/08/06/sean-payton-broncos-red-zone-offense/
 
