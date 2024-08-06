@@ -1,3 +1,7 @@
+**Why consistency is overrated in fantasy football: A George Kittle story**\
+`Michael Salfino uses George Kittle as an example why explosive games, not weekly consistency, is the true key to fantasy football success.`\
+https://nytimes.com/athletic/5684287/2024/08/06/consistency-overrated-fantasy-football-2024-george-kittle/
+
 **9 Killed After S.U.V. Flips Into South Florida Canal, Authorities Say**\
 `One passenger survived with serious injuries after the vehicle veered off a road in Belle Glade, Fla. on Monday evening.`\
 https://nytimes.com/2024/08/06/us/suv-crash-south-florida-canal.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/06/us/kamala-harris-vp-trump-election/in-the-ho
 **‘Why Trash Your Own Town?’ An English City Reckons With a Riot.**\
 `Days after an angry crowd marauded through Sunderland, people in the industrial port city are trying to make sense of what just happened.`\
 https://nytimes.com/2024/08/06/world/europe/uk-riots-sunderland.html
-
-**The Patriots and Brandon Aiyuk: Where things stand in a potential trade with the 49ers**\
-`Where do things stand between the Patriots and 49ers regarding a potential Brandon Aiyuk trade? We examine the forces at play.`\
-https://nytimes.com/athletic/5684100/2024/08/06/brandon-aiyuk-49ers-patriots-trade/
 
