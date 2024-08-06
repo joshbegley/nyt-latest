@@ -23,7 +23,7 @@ https://nytimes.com/2024/08/06/world/europe/germany-river-to-sea-chant-fine.html
 https://nytimes.com/2024/08/06/opinion/stock-market-crashes-economy.html
 
 **Venezuela’s Strongman Was Confident of Victory. Then Came the Shock.**\
-`Venezuela’s  government believed its control of all levers of power would give it victory at the polls. A rebellion by its supporters undid the plan.`\
+`Venezuela’s government believed its control of all levers of power would give the country’s authoritarian president an Election Day victory. A rebellion by its supporters undid the plan.`\
 https://nytimes.com/2024/08/06/world/americas/venezuela-election-maduro.html
 
 **Chloe Coscarelli Returns With Her Vegan Greatest Hits**\
