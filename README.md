@@ -1,7 +1,3 @@
-**Tim Walz, a Fan of The Boss, Proclaimed a ‘Bruce Springsteen Day’ in Minnesota**\
-`The governor and newly-minted vice-presidential nominee has embraced the bard of the working man, honoring the New Jersey rocker last year when he came to St. Paul for a concert.`\
-https://nytimes.com/2024/08/06/us/politics/bruce-springsteen-tim-walz.html
-
 **Charles Barkley not retiring, staying with TNT Sports long term**\
 `Barkley will continue on his 10-year, $210 million contract. He is in the third season of the deal.`\
 https://nytimes.com/athletic/5684382/2024/08/06/charles-barkley-not-retiring-tnt/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/08/06/business/dolce-gabbana-dog-perfume.html
 **Nebraska's Prochazka suffers season-ending injury**\
 `Teddy Prochazka, who suffered an injury in practice, and Turner Corcoran were competing this month for the job at left tackle.`\
 https://nytimes.com/athletic/5684297/2024/08/06/teddy-prochazka-injury-nebraska/
+
+**Malik Nabers, Kerby Joseph throw punches as fights continue at Lions-Giants joint practices**\
+`There were so many fights Monday, it was hard to keep track of how many there actually were. `\
+https://nytimes.com/athletic/5681909/2024/08/06/new-york-giants-detroit-lions-joint-practice-fights-daniel-jones/
 
