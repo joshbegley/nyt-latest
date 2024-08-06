@@ -1,3 +1,7 @@
+**Barcelona agree deal in principle for Olmo**\
+`Barcelona have reached an agreement in principle with RB Leipzig to sign Dani Olmo.`\
+https://nytimes.com/athletic/5620891/2024/08/06/barcelona-dani-olmo-transfer/
+
 **Former 'Around the NFL' hosts Hanzus, Sessler start new pod**\
 `Dan Hanzus and Marc Sessler are starting their own podcast following their exit from NFL Network, where they led its popular “Around the NFL” podcast for more than a decade, sources briefed on the move said.`\
 https://nytimes.com/athletic/5683888/2024/08/06/hanzus-sessler-podcast-nfl-network/
