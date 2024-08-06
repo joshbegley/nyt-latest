@@ -1,3 +1,7 @@
+**Joss Naylor, the English King of Racing Up Mountains, Dies at 88**\
+`A sheep farmer, he set records in so-called fell running — rugged off-trail competitions that can last days and present painful hazards, including an irate cow.`\
+https://nytimes.com/2024/08/06/sports/joss-naylor-dead.html
+
 **Trump’s Plan for Attacking Tim Walz: Paint Him as a Bernie Sanders Liberal**\
 `The Trump campaign had been preparing for Gov. Josh Shapiro of Pennsylvania to be Vice President Kamala Harris’s running mate. It now plans to stress Mr. Walz’s progressive governing record.`\
 https://nytimes.com/2024/08/06/us/politics/trump-tim-walz-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/06/world/asia/bangladesh-hasina-final-hours.html
 **JD Vance Launches Trump Campaign’s First Volleys at Harris-Walz Ticket**\
 `Following a rally in Philadelphia — where the newly minted Democratic ticket will debut Tuesday — Mr. Vance cast the Minnesota governor as too extreme for office.`\
 https://nytimes.com/2024/08/06/us/politics/jd-vance-tim-walz.html
-
-**Tiny Love Stories: ‘I Slunk Into Will’s Room and Under His Sheets’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/08/06/style/tiny-modern-love-stories-i-slunk-into-wills-room-and-under-his-sheets.html
 
