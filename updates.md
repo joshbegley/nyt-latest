@@ -1,3 +1,11 @@
+**Trump’s Plan for Attacking Tim Walz: Paint Him as a Bernie Sanders Liberal**\
+`The Trump campaign had been preparing for Gov. Josh Shapiro of Pennsylvania to be Vice President Kamala Harris’s running mate. It now plans to stress Mr. Walz’s progressive governing record.`\
+https://nytimes.com/2024/08/06/us/politics/trump-tim-walz-attack.html
+
+**Browns' interest in Brandon Aiyuk fits their urgency to become immediate contenders**\
+`Cleveland would like to stack as much talent as possible for difficult battles ahead in what looks to be a loaded AFC.`\
+https://nytimes.com/athletic/5684681/2024/08/06/49ers-browns-brandon-aiyuk-trade/
+
 **Gabby Thomas wins 200m final for first gold**\
 `Thomas took the gold medal in the women’s 200-meter final, cresting a mountain she’s been climbing for years now with a time of 21.82.`\
 https://nytimes.com/athletic/5684773/2024/08/06/gabby-thomas-olympics-200m-final/
