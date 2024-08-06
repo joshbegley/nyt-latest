@@ -1,3 +1,11 @@
+**The Transfer DealSheet: Liverpool No 6 interest and Man Utd Berge talks**\
+`Welcome to your weekly guide to what is happening in the summer window`\
+https://nytimes.com/athletic/5679575/2024/08/06/manchester-united-transfer-news-arsenal-liverpool-real-madrid/
+
+**'You didn't study well': An audience with Zlatan Ibrahimovic**\
+`Welcome to Zlatan's world. He speaks to The Athletic about his playing career, his role at Milan, his tattoos and his footballing sons`\
+https://nytimes.com/athletic/5680996/2024/08/06/zlatan-ibrahimovic-milan-man-utd-tattoos-mourinho/
+
 **Harris Officially Secures Democratic Party’s Nomination for President**\
 `The vice president won 99 percent of participating delegates in an unusual, virtual roll call vote that concluded Monday, the party said.`\
 https://nytimes.com/2024/08/06/us/politics/kamala-harris-president-campaign-2024.html

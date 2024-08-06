@@ -1,3 +1,11 @@
+**The Transfer DealSheet: Liverpool No 6 interest and Man Utd Berge talks**\
+`Welcome to your weekly guide to what is happening in the summer window`\
+https://nytimes.com/athletic/5679575/2024/08/06/manchester-united-transfer-news-arsenal-liverpool-real-madrid/
+
+**'You didn't study well': An audience with Zlatan Ibrahimovic**\
+`Welcome to Zlatan's world. He speaks to The Athletic about his playing career, his role at Milan, his tattoos and his footballing sons`\
+https://nytimes.com/athletic/5680996/2024/08/06/zlatan-ibrahimovic-milan-man-utd-tattoos-mourinho/
+
 **Harris Officially Secures Democratic Party’s Nomination for President**\
 `The vice president won 99 percent of participating delegates in an unusual, virtual roll call vote that concluded Monday, the party said.`\
 https://nytimes.com/2024/08/06/us/politics/kamala-harris-president-campaign-2024.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5683097/2024/08/06/giants-tyler-fitzgerald-routine-
 **Twins rookie David Festa strikes out 9, leading combined shutout vs. Cubs**\
 `Winners of five straight, Minnesota moved within 3 1/2 games of Cleveland, the closest the Twins have been to first place since May 17.`\
 https://nytimes.com/athletic/5683083/2024/08/06/twins-david-festa-9-strikeouts/
-
-**San Bernardino Fire Engulfs Homes**\
-`The Edgehill fire burned several homes and threatened others along a hillside in San Bernardino, Calif.`\
-https://nytimes.com/video/us/100000009613463/san-bernardino-fire-homes.html
-
-**Alvarez From Bobb to Savinho to McAtee: How Manchester City could adapt if Julian Alvarez departs**\
-`Given the quality in Guardiola's squad it's not a given that the Argentinian would be replaced by a new signing `\
-https://nytimes.com/athletic/5681576/2024/08/06/from-bobb-to-savinho-to-mcatee-how-manchester-city-could-adapt-if-julian-alvarez-departs/
 
