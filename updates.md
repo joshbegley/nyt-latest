@@ -1,3 +1,7 @@
+**Debby Is Expected to Bring Historic Rain to the Southeast. Here’s How Much.**\
+`The National Weather Service has issued strong warnings for Georgia and South Carolina.`\
+https://nytimes.com/2024/08/06/weather/debby-georgia-south-carolina-storm-forecast.html
+
 **Ravens looking to improve depth at center with Tyler Linderbaum sidelined**\
 `Plus, Lamar Jackson is showing lots of energy in practice. And is there a roster spot for Ar’Darius Washington, who's having a strong camp?`\
 https://nytimes.com/athletic/5683106/2024/08/06/ravens-tyler-linderbaum-center-depth/
