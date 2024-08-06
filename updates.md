@@ -1,3 +1,15 @@
+**McLaughlin-Levrone, Bol advance to 400 hurdles finals**\
+`McLaughlin-Levrone has set the last five world records in the event, while Bol won the bronze in Tokyo and has improved.`\
+https://nytimes.com/athletic/5684511/2024/08/06/sydney-mclaughlin-levrone-femke-bol-womens-400-hurdles-semifinals/
+
+**USWNT 1 Germany 0: Sophia Smith's goal earns U.S. spot in gold medal**\
+`Here's how the USWNT earned a spot in the Olympic final.`\
+https://nytimes.com/athletic/5683594/2024/08/06/uswnt-germany-olympic-womens-soccer-semifinal/
+
+**Walz Instead of Shapiro Excites Left, but May Alienate Jewish Voters**\
+`Many Jewish organizations backed Harris’s pick for running mate, but beneath that public sentiment is unease over antisemitism on both the left and the right.`\
+https://nytimes.com/2024/08/06/us/politics/tim-walz-shapiro-jewish.html
+
 **Nobel Laureate Tapped to Lead Interim Government in Bangladesh**\
 `The new government was formed a day after Bangladesh’s longtime leader, facing fierce protests, fled the country.`\
 https://nytimes.com/2024/08/06/world/asia/bangladesh-government.html
