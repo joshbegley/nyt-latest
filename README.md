@@ -1,3 +1,19 @@
+**Who Is Gwen Walz, the Wife of Tim Walz?**\
+`As the first lady of Minnesota, Gwen Walz has championed criminal justice and education reform.`\
+https://nytimes.com/2024/08/06/us/politics/tim-walz-family-wife.html
+
+**Microsoft Says Delta Was Largely Responsible for Flight Cancellations**\
+`The software company said in a letter that Delta Air Lines had falsely blamed Microsoft for its decision to cancel thousands of flights after a tech outage.`\
+https://nytimes.com/2024/08/06/business/microsoft-delta-flight-cancellations-outage.html
+
+**The Met Opera Plans a New ‘Ring’ With a Familiar Maestro**\
+`Yannick Nézet-Séguin, the company’s music director, will extend his contract and lead Wagner’s four-opera epic, in a production staged by Yuval Sharon.`\
+https://nytimes.com/2024/08/06/arts/music/metropolitan-opera-ring-nezet-seguin-sharon.html
+
+**The Windup: We need to talk about the Pirates**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5684179/2024/08/06/pittsburgh-pirates-the-windup/
+
 **X, Owned by Elon Musk, Brings Antitrust Suit Accusing Advertisers of a Boycott**\
 `The company claimed that members of the Global Alliance for Responsible Media coordinated to dissuade brands from advertising on X.`\
 https://nytimes.com/2024/08/06/technology/x-antitrust-suit-advertisers-elon-musk.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/08/06/us/politics/walz-nebraska-history.html
 **Pitbull buys naming rights to FIU's football stadium**\
 `Florida International University has signed a five-year deal to rename its football stadium after recording artist Pitbull.`\
 https://nytimes.com/athletic/5684095/2024/08/06/pitbull-fiu-stadium-naming-rights/
-
-**Why Did Harris Pick Walz? His Policies and Midwest Appeal Stood Out.**\
-`The vice president is said to have liked Mr. Walz’s economic policies in Minnesota, including a statewide child tax credit and a paid-leave program, as well as his folksy Midwestern background.`\
-https://nytimes.com/2024/08/06/us/politics/harris-walz-vp-pick.html
-
-**Barcelona agree deal in principle for Olmo**\
-`Barcelona have reached an agreement in principle with RB Leipzig to sign Dani Olmo.`\
-https://nytimes.com/athletic/5620891/2024/08/06/barcelona-dani-olmo-transfer/
-
-**Former 'Around the NFL' hosts Hanzus, Sessler start new pod**\
-`Dan Hanzus and Marc Sessler are starting their own podcast following their exit from NFL Network, where they led its popular “Around the NFL” podcast for more than a decade, sources briefed on the move said.`\
-https://nytimes.com/athletic/5683888/2024/08/06/hanzus-sessler-podcast-nfl-network/
-
-**Serbia, Nikola Jokić thwart Australia's medal hopes**\
-`Serbia survived an incredible last-second shot by Patty Mills over Nikola Jokić to force overtime, defeating Australia 95-90 to advance.`\
-https://nytimes.com/athletic/5683995/2024/08/06/olympic-basketball-serbia-australia-results/
 
