@@ -1,3 +1,15 @@
+**Justice Dept. Charges Pakistani Man in Alleged Plot to Kill U.S. Leaders**\
+`After his arrest, the man, who had just spent two weeks in Iran, told investigators that Donald Trump was among his targets. There is no evidence connecting the episode to the shooting of the former president in Pennsylvania.`\
+https://nytimes.com/2024/08/06/us/politics/justice-dept-assassination.html
+
+**Free Covid Vaccines Will Soon Become Harder for Some to Find**\
+`A program that provided more than one million Covid shots to uninsured and underinsured people is coming to an end.`\
+https://nytimes.com/2024/08/06/well/cdc-covid-vaccines-free-program.html
+
+**Kennedy Testifies in Ballot Case, Insisting He Does Live in New York**\
+`In the wake of the revelation that he once dumped a bear in Central Park, Kennedy appeared in court over a challenge to the address on his presidential nominating petitions.`\
+https://nytimes.com/2024/08/06/nyregion/rfk-jr-testifies-ny-ballot.html
+
 **Joss Naylor, the English King of Racing Up Mountains, Dies at 88**\
 `A sheep farmer, he set records in so-called fell running — rugged off-trail competitions that can last days and present painful hazards, including an irate cow.`\
 https://nytimes.com/2024/08/06/sports/joss-naylor-dead.html
