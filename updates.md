@@ -1,3 +1,7 @@
+**19 Facts About Tim Walz, Harris’s Pick for Vice President**\
+`Mr. Walz, the governor of Minnesota, worked as a high school social studies teacher and football coach, served in the Army National Guard and chooses Diet Mountain Dew over alcohol.`\
+https://nytimes.com/2024/08/06/us/politics/tim-walz-harris-vp-facts.html
+
 **Decline in Veterans’ Homelessness Spurs Hopes for a Broader Solution**\
 `Two federal agencies, backed by ample funding from Congress, have quietly shown that it is possible to make progress on a seemingly intractable problem.`\
 https://nytimes.com/2024/08/06/us/politics/decline-veterans-homelessness.html

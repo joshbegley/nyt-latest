@@ -1,3 +1,7 @@
+**19 Facts About Tim Walz, Harris’s Pick for Vice President**\
+`Mr. Walz, the governor of Minnesota, worked as a high school social studies teacher and football coach, served in the Army National Guard and chooses Diet Mountain Dew over alcohol.`\
+https://nytimes.com/2024/08/06/us/politics/tim-walz-harris-vp-facts.html
+
 **Decline in Veterans’ Homelessness Spurs Hopes for a Broader Solution**\
 `Two federal agencies, backed by ample funding from Congress, have quietly shown that it is possible to make progress on a seemingly intractable problem.`\
 https://nytimes.com/2024/08/06/us/politics/decline-veterans-homelessness.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5683170/2024/08/06/canucks-rick-tocchet-canada-vinc
 **Walz Has Faced Criticism for His Response to George Floyd Protests**\
 `Some believe that Gov. Tim Walz should have deployed the Minnesota National Guard sooner when riots broke out following the police murder of George Floyd.`\
 https://nytimes.com/2024/08/06/us/tim-walz-george-floyd-criticism.html
-
-**Who Is Tim Walz, the Minnesota Governor Kamala Harris Picked to Be V.P.?**\
-`Mr. Walz captured Democrats’ attention with his “weird” takedown of Republicans. Here’s a look at the new vice-presidential candidate.`\
-https://nytimes.com/2024/08/06/us/politics/who-tim-walz-harris-vp.html
 
