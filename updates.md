@@ -1,3 +1,15 @@
+**Masks Banned in Public in Nassau County, With Some Exceptions**\
+`Violators who wear masks could be fined up to $1,000, although there would be exceptions for people who wear them for health or religious reasons.`\
+https://nytimes.com/2024/08/06/nyregion/mask-ban-nassau-county-allies.html
+
+**Utah Bans 13 Books From All Public Schools**\
+`This is the first time titles have been prohibited statewide, according to a free speech organization. The list includes books by Judy Blume and Margaret Atwood.`\
+https://nytimes.com/2024/08/06/books/utah-public-school-book-ban.html
+
+**An Israeli rights group says that Palestinian detainees have been systematically abused since Oct. 7.**\
+`By Aaron Boxerman and Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/08/06/world/israel-iran-hezbollah-gaza/an-israeli-rights-group-says-that-palestinian-detainees-have-been-systematically-abused-since-oct-7
+
 **Who Is Gwen Walz, the Wife of Tim Walz?**\
 `As the first lady of Minnesota, Gwen Walz has championed criminal justice and education reform.`\
 https://nytimes.com/2024/08/06/us/politics/tim-walz-family-wife.html
