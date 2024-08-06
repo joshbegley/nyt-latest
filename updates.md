@@ -1,3 +1,11 @@
+**Giants' Malik Nabers torches Lions DBs: 'There's not a lot that I can't do'**\
+`Though only a rookie, Nabers has already established himself as the Giants' most dangerous weapon.`\
+https://nytimes.com/athletic/5685051/2024/08/06/new-york-giants-malik-nabers-detroit-lions-training-camp/
+
+**New York City Faces Heavy Rain. Moisture From Debby May Make It Worse.**\
+`The thunderstorms hitting the New York area are the result of the meeting of a cold front and a mass of very moist air.`\
+https://nytimes.com/2024/08/06/weather/new-york-rains-debby.html
+
 **Bush Administration Lawyer Whose Wife Was Killed on 9/11 Supports Plea Deal**\
 `In an exclusive interview, Theodore B. Olson called the agreement that was revoked last week “the best possible outcome.”`\
 https://nytimes.com/2024/08/06/us/politics/sept-11-plea-agreement.html
