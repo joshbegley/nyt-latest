@@ -1,3 +1,7 @@
+**Hurricane Debby Sweeps Cocaine Worth $1 Million Onto Florida Beach**\
+`More than two dozen packages of cocaine were found on a beach in the Florida Keys, according to the U.S. Border Patrol.`\
+https://nytimes.com/2024/08/06/us/hurricane-debby-cocaine-florida.html
+
 **‘The more you know about something the less scary it is’: The Week 7 Winner of Our Summer Reading Contest**\
 `Michelle Zhibing Zhou, 15, writes about a Science article highlighting new research that “sent ripples throughout the leech research community and shivers down my spine.”`\
 https://nytimes.com/2024/08/06/learning/the-more-you-know-about-something-the-less-scary-it-is-the-week-7-winner-of-our-summer-reading-contest.html
