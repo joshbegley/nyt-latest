@@ -1,3 +1,7 @@
+**Giants' Tyler Fitzgerald keeps routine (acai bowls are big) in record-setting power streak**\
+`Fitzgerald hit a home run on the second pitch of Monday's 4-1 victory over Washington at Nationals Park.`\
+https://nytimes.com/athletic/5683097/2024/08/06/giants-tyler-fitzgerald-routine-power-streak/
+
 **Twins rookie David Festa strikes out 9, leading combined shutout vs. Cubs**\
 `Winners of five straight, Minnesota moved within 3 1/2 games of Cleveland, the closest the Twins have been to first place since May 17.`\
 https://nytimes.com/athletic/5683083/2024/08/06/twins-david-festa-9-strikeouts/
