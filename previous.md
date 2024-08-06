@@ -1,3 +1,7 @@
+**USWNT has suffered at the Olympics, its perseverance is rewarded with a chance for gold**\
+`How Hayes has rebuilt the USWNT a year after its early exit from the 2023 World Cup`\
+https://nytimes.com/athletic/5685119/2024/08/06/uswnt-emma-hayes-olympics-final-suffering/
+
 **Tim Walz Is Harris’s Choice for Vice President**\
 `Also, Debby is bringing historic levels of rain to the Southeast. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/08/06/briefing/tim-walz-harris-vp-pick-debby-storm.html
@@ -9,6 +13,10 @@ https://nytimes.com/athletic/5685051/2024/08/06/new-york-giants-malik-nabers-det
 **New York City Faces Heavy Rain. Debby May Make It Worse.**\
 `The thunderstorms hitting the New York area are the result of the meeting of a cold front and a mass of very moist air.`\
 https://nytimes.com/2024/08/06/weather/new-york-rains-debby.html
+
+**How Sean Payton altered Broncos training camp with designs on avoiding slow start**\
+`DeVaughn Vele, a seventh-round rookie receiver, continued to build on a strong camp with an acrobatic touchdown grab Tuesday.`\
+https://nytimes.com/athletic/5684741/2024/08/06/sean-payton-broncos-slow-start/
 
 **Bush Administration Lawyer Whose Wife Was Killed on 9/11 Supports Plea Deal**\
 `In an exclusive interview, Theodore B. Olson called the agreement that was revoked last week “the best possible outcome.”`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5684833/2024/08/06/usa-brazil-olympics-basketball-r
 **Brazil sets up Olympic soccer gold medal match against USWNT**\
 `The United States beat Germany in the earlier semifinal on Tuesday.`\
 https://nytimes.com/athletic/5684999/2024/08/06/brazil-olympic-soccer-uswnt-final-gold/
-
-**Trump Campaign Criticizes Walz for State Law Providing Tampons in Schools**\
-`The law, which was passed in Minnesota last year, includes language requiring menstrual products to be available in bathrooms of all schools for grades 4 to 12 as a way to accommodate transgender students.`\
-https://nytimes.com/2024/08/06/us/politics/trump-tim-walz-tampons-schools.html
-
-**Landlord Is Ordered to Jail Again Over Problems in His Buildings**\
-`A New York City landlord, Daniel Ohebshalom, already served a 60-day sentence on Rikers Island this year. But officials and tenants say he still didn’t fix his apartments.`\
-https://nytimes.com/2024/08/06/nyregion/landlord-jail-repairs.html
 

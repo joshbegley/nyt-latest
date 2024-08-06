@@ -1,3 +1,11 @@
+**USWNT has suffered at the Olympics, its perseverance is rewarded with a chance for gold**\
+`How Hayes has rebuilt the USWNT a year after its early exit from the 2023 World Cup`\
+https://nytimes.com/athletic/5685119/2024/08/06/uswnt-emma-hayes-olympics-final-suffering/
+
+**How Sean Payton altered Broncos training camp with designs on avoiding slow start**\
+`DeVaughn Vele, a seventh-round rookie receiver, continued to build on a strong camp with an acrobatic touchdown grab Tuesday.`\
+https://nytimes.com/athletic/5684741/2024/08/06/sean-payton-broncos-slow-start/
+
 **New York City Faces Heavy Rain. Debby May Make It Worse.**\
 `The thunderstorms hitting the New York area are the result of the meeting of a cold front and a mass of very moist air.`\
 https://nytimes.com/2024/08/06/weather/new-york-rains-debby.html
