@@ -1,7 +1,3 @@
-**Hamas Elevates Gaza Leader Who Planned Oct. 7 Attacks to Top Post**\
-`The selection of Yahya Sinwar, a prime target of Israeli forces, to replace the assassinated Ismail Haniyeh consolidates authority in the hands of a hard-liner who is in hiding.`\
-https://nytimes.com/2024/08/06/world/middleeast/hamas-yahya-sinwar-promoted.html
-
 **Harris and Walz Make Their National Entrance Before Upbeat Democrats**\
 `Introducing her new running mate at an energetic rally in Philadelphia, the vice president cast the Democratic ticket as born of the middle class and fighting for its interests.`\
 https://nytimes.com/2024/08/06/us/politics/harris-tim-walz-rally.html
@@ -22,7 +18,7 @@ https://nytimes.com/athletic/5685137/2024/08/06/blue-jackets-recchi-assistant/
 `Khelif is into the Olympic final, set for Friday at Roland Garros. One step from a gold medal.`\
 https://nytimes.com/athletic/5685067/2024/08/06/imane-khelif-olympic-boxing-results/
 
-**Trading Brandon Aiyuk would be a massive 49ers failure on almost every level**\
+**Trading Brandon Aiyuk would be massive 49ers failure on almost every level**\
 `The 49ers' leaders made a major miscalculation, and it could cost them their best shot at throwing a parade in February.`\
 https://nytimes.com/athletic/5683122/2024/08/06/kawakami-trading-brandon-aiyuk-would-be-a-massive-49ers-failure-on-almost-every-level/
 
@@ -37,4 +33,8 @@ https://nytimes.com/2024/08/06/briefing/tim-walz-harris-vp-pick-debby-storm.html
 **Giants' Malik Nabers torches Lions DBs: 'There's not a lot that I can't do'**\
 `Though only a rookie, Nabers has already established himself as the Giants' most dangerous weapon.`\
 https://nytimes.com/athletic/5685051/2024/08/06/new-york-giants-malik-nabers-detroit-lions-training-camp/
+
+**New York City Faces Heavy Rain. Debby May Make It Worse.**\
+`The thunderstorms hitting the New York area are the result of the meeting of a cold front and a mass of very moist air.`\
+https://nytimes.com/2024/08/06/weather/new-york-rains-debby.html
 
