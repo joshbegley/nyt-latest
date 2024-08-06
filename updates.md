@@ -1,3 +1,7 @@
+**Decline in Veterans’ Homelessness Spurs Hopes for a Broader Solution**\
+`Two federal agencies, backed by ample funding from Congress, have quietly shown that it is possible to make progress on a seemingly intractable problem.`\
+https://nytimes.com/2024/08/06/us/politics/decline-veterans-homelessness.html
+
 **A Harris Victory Would Give Minnesota Its First Female Governor**\
 `Lt. Gov. Peggy Flanagan would also become the first Native American person in the role.`\
 https://nytimes.com/2024/08/06/us/peggy-flanagan-tim-walz-minnesota.html
