@@ -1,3 +1,11 @@
+**Coach Walz Can Help Harris Win**\
+`Football unifies America. Tim Walz can, too.`\
+https://nytimes.com/2024/08/06/opinion/kamala-harris-vp-tim-walz.html
+
+**Leicester's Souttar joins Sheffield United on loan**\
+`Leicester City defender Harry Souttar has joined Sheffield United on a season-long loan.`\
+https://nytimes.com/athletic/5684405/2024/08/06/harry-souttar-sheffield-united-leicester/
+
 **Iran Executes Another Protester After Trial Condemned by Rights Groups**\
 `Weeks after Iran elected a reformist leader, the authorities executed Reza Rasaei, who was arrested during protests that swept the country in 2022.`\
 https://nytimes.com/2024/08/06/world/middleeast/iran-execution-protester-reza-rasaei.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5684287/2024/08/06/consistency-overrated-fantasy-fo
 **9 Killed After S.U.V. Flips Into South Florida Canal, Authorities Say**\
 `One passenger survived with serious injuries after the vehicle veered off a road in Belle Glade, Fla. on Monday evening.`\
 https://nytimes.com/2024/08/06/us/suv-crash-south-florida-canal.html
-
-**Tim Walz, Harris' running mate, has Minnesota football ties**\
-`Walz coached Mankato West to the Class 4A state title in 1999.`\
-https://nytimes.com/athletic/5684273/2024/08/06/tim-walz-minnesota-football-vikings/
-
-**Dumfries holding off on Inter contract talks**\
-`Denzel Dumfries does not intend to engage in negotiations with Inter Milan over a new contract until the transfer window has closed.`\
-https://nytimes.com/athletic/5684304/2024/08/06/denzel-dumfries-inter-manchester-united/
 

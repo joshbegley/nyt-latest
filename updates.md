@@ -1,3 +1,11 @@
+**Coach Walz Can Help Harris Win**\
+`Football unifies America. Tim Walz can, too.`\
+https://nytimes.com/2024/08/06/opinion/kamala-harris-vp-tim-walz.html
+
+**Leicester's Souttar joins Sheffield United on loan**\
+`Leicester City defender Harry Souttar has joined Sheffield United on a season-long loan.`\
+https://nytimes.com/athletic/5684405/2024/08/06/harry-souttar-sheffield-united-leicester/
+
 **Iran Executes Another Protester After Trial Condemned by Rights Groups**\
 `Weeks after Iran elected a reformist leader, the authorities executed Reza Rasaei, who was arrested during protests that swept the country in 2022.`\
 https://nytimes.com/2024/08/06/world/middleeast/iran-execution-protester-reza-rasaei.html
