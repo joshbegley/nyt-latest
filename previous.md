@@ -1,3 +1,7 @@
+**France knocks off Canada to advance to semifinals, will face Germany**\
+`France upset Canada 82-73 to send the host nation into a semifinal game against Germany on Thursday,`\
+https://nytimes.com/athletic/5684514/2024/08/06/france-canada-olympics-basketball/
+
 **That Drone in the Sky Is Here to Warn New Yorkers About Flooding**\
 `Mayor Eric Adams, an avowed technology geek, is using the city’s drones to deliver a recorded message warning vulnerable New Yorkers of flooding dangers.`\
 https://nytimes.com/2024/08/06/nyregion/drones-eric-adams-flooding.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/06/world/europe/germany-river-to-sea-chant-fine.html
 **Market Crashes Happen. They Don’t Necessarily Mean Much.**\
 `Don’t trust anyone who “explains” what just happened to stocks.`\
 https://nytimes.com/2024/08/06/opinion/stock-market-crashes-economy.html
-
-**Venezuela’s Strongman Was Confident of Victory. Then Came the Shock.**\
-`Venezuela’s government believed its control of all levers of power would give the country’s authoritarian president an Election Day victory. A rebellion by its supporters undid the plan.`\
-https://nytimes.com/2024/08/06/world/americas/venezuela-election-maduro.html
 
