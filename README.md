@@ -1,3 +1,7 @@
+**Who Is Tim Walz, the Minnesota Governor Kamala Harris Picked to Be V.P.?**\
+`Mr. Walz captured Democrats’ attention with his “weird” takedown of Republicans. Here’s a look at the new vice-presidential candidate.`\
+https://nytimes.com/2024/08/06/us/politics/who-tim-walz-harris-vp.html
+
 **Canada revokes coach's Olympics accreditation amid sexual abuse allegations**\
 `Rana Reider, a coach of Olympic champion sprinters Andre De Grasse and Lamont Marcell Jacobs, has had his accreditation for the Paris Games revoked amid allegations of sexual and emotional abuse.`\
 https://nytimes.com/athletic/5683340/2024/08/06/rana-reider-coach-sexual-abuse-case/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5683566/2024/08/06/guido-rodriguez-west-ham-transfe
 **2025 NASCAR playoff schedule likely to include Talladega in semis**\
 `Repositioning Talladega is one of several changes NASCAR is expected to make to next year's 10-race playoff schedule.`\
 https://nytimes.com/athletic/5683514/2024/08/06/nascar-playoff-schedule-2025-changes/
-
-**Here’s the latest on the presidential race.**\
-`By Reid J. Epstein`\
-https://nytimes.com/live/2024/08/06/us/kamala-harris-vp-trump-election/heres-the-latest-on-the-presidential-race
 
