@@ -1,3 +1,7 @@
+**The Kamala Harris-Tim Walz Ticket**\
+`Readers offer mostly positive reactions to the choice of the Minnesota governor. Also: Clarence Thomas’s unreported trips; Jimmy Carter’s vote.`\
+https://nytimes.com/2024/08/06/opinion/kamala-harris-tim-walz.html
+
 **Choice of Walz Over Shapiro Mollifies the Left but Misses Chance to Reassure Jews**\
 `Many Jewish organizations backed Harris’s pick for running mate, but beneath that public sentiment is unease over antisemitism on both the left and the right.`\
 https://nytimes.com/2024/08/06/us/politics/tim-walz-shapiro-jewish.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/06/dining/by-chloe-returns.html
 **Hurricane Scale Alone Can’t Account for a Storm’s Destruction**\
 `Tropical Storm Debby was only briefly a Category 1 hurricane. But a rating can never fully capture how destructive a storm can be.`\
 https://nytimes.com/2024/08/06/climate/tropical-storm-debby-danger.html
-
-**Arisa Trew, 14, wins gold in women's skateboarding**\
-`Trew became the first Australian woman to medal in the event and the youngest medallist at the Paris Games.`\
-https://nytimes.com/athletic/5684391/2024/08/06/arisa-trew-olympics-skateboarding-gold/
 
