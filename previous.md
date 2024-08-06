@@ -1,3 +1,15 @@
+**Iran Executes Another Protester After Trial Condemned by Rights Groups**\
+`Weeks after Iran elected a reformist leader, the authorities executed Reza Rasaei, who was arrested during protests that swept the country in 2022.`\
+https://nytimes.com/2024/08/06/world/middleeast/iran-execution-protester-reza-rasaei.html
+
+**He Stands Out in a ‘Sea of Elites and Strivers’: Our Writers on What Tim Walz Brings to the Ticket**\
+`Opinion asked eight columnists and contributors to weigh in on how much the Minnesota governor will help Harris against Trump.`\
+https://nytimes.com/2024/08/06/opinion/tim-walz-scorecard.html
+
+**Tim Walz, a Fan of The Boss, Proclaimed a ‘Bruce Springsteen Day’ in Minnesota**\
+`The governor and newly-minted vice-presidential nominee has embraced the bard of the working man, honoring the New Jersey rocker last year when he came to St. Paul for a concert.`\
+https://nytimes.com/2024/08/06/us/politics/bruce-springsteen-tim-walz.html
+
 **Charles Barkley not retiring, staying with TNT Sports long term**\
 `Barkley will continue on his 10-year, $210 million contract. He is in the third season of the deal.`\
 https://nytimes.com/athletic/5684382/2024/08/06/charles-barkley-not-retiring-tnt/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5684273/2024/08/06/tim-walz-minnesota-football-viki
 **Dumfries holding off on Inter contract talks**\
 `Denzel Dumfries does not intend to engage in negotiations with Inter Milan over a new contract until the transfer window has closed.`\
 https://nytimes.com/athletic/5684304/2024/08/06/denzel-dumfries-inter-manchester-united/
-
-**Dolce & Gabbana Has New Dog Perfume. Veterinarians Turn Up Their Noses.**\
-`An extravagant scent might seem like the height of pampering for your pup. But veterinarians are raising red flags: “Overall, it’s a very bad idea.”`\
-https://nytimes.com/2024/08/06/business/dolce-gabbana-dog-perfume.html
-
-**Nebraska's Prochazka suffers season-ending injury**\
-`Teddy Prochazka, who suffered an injury in practice, and Turner Corcoran were competing this month for the job at left tackle.`\
-https://nytimes.com/athletic/5684297/2024/08/06/teddy-prochazka-injury-nebraska/
-
-**Malik Nabers, Kerby Joseph throw punches as fights continue at Lions-Giants joint practices**\
-`There were so many fights Monday, it was hard to keep track of how many there actually were. `\
-https://nytimes.com/athletic/5681909/2024/08/06/new-york-giants-detroit-lions-joint-practice-fights-daniel-jones/
 
