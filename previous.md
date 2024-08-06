@@ -1,3 +1,7 @@
+**Harris Nears Her Big V.P. Reveal After Fierce Lobbying From Democrats**\
+`The vice president is expected to announce her choice on Tuesday morning. One prominent Democrat recounted being asked by a contender, “Will you please make sure you put in a good word for me?”`\
+https://nytimes.com/2024/08/05/us/politics/kamala-harris-vp-pick-democrats.html
+
 **2024 Presidential Election Calendar**\
 `Here are important dates and voting deadlines for the 2024 election.`\
 https://nytimes.com/interactive/2024/08/05/us/elections/2024-election-calendar.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5682503/2024/08/05/new-york-giants-detroit-lions-jo
 **Stocks Tumbled Over Fears of a U.S. Economic Slowdown**\
 `Also, a judge ruled that Google violated antitrust laws and Bangladesh’s leader resigned`\
 https://nytimes.com/2024/08/05/briefing/stocks-tumbled-over-fears-of-a-us-economic-slowdown.html
-
-**U.S. Troops in Iraq Are Wounded in Rocket Attack on Air Base**\
-`The attack late Monday resembled previous ones carried out by Iraqi armed groups, backed by Iran, which have targeted the base repeatedly over the past year.`\
-https://nytimes.com/2024/08/05/world/middleeast/iraq-us-troops-iran-attack.html
 
