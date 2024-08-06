@@ -1,3 +1,11 @@
+**Gabby Thomas wins 200m final for first gold**\
+`Thomas took the gold medal in the women’s 200-meter final, cresting a mountain she’s been climbing for years now with a time of 21.82.`\
+https://nytimes.com/athletic/5684773/2024/08/06/gabby-thomas-olympics-200m-final/
+
+**Browns' interest in Brandon Aiyuk fits their urgency to become immediate contenders**\
+`Cleveland would like to load up on as much talent as possible for difficult battles ahead in what looks to be a loaded AFC.`\
+https://nytimes.com/athletic/5684681/2024/08/06/49ers-browns-brandon-aiyuk-trade/
+
 **‘Tim Walz’s Record Is a Joke’: JD Vance Slams Harris’s V.P. Pick**\
 `JD Vance, the Republican vice presidential nominee, shared his thoughts on the Democratic ticket at a rally in Philadelphia.`\
 https://nytimes.com/video/us/elections/100000009614828/jd-vance-attacks-tim-walz-record.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/06/style/tiny-modern-love-stories-i-slunk-into-wills
 **Hezbollah’s leader vows a ‘strong’ response to Israel’s strikes, ‘whatever the consequences.’**\
 `By Euan Ward`\
 https://nytimes.com/live/2024/08/06/world/israel-iran-hezbollah-gaza/hezbollahs-leader-vows-a-strong-response-to-israels-strikes-whatever-the-consequences
-
-**It took 14 years and 86 days to make an Olympic champion in skateboarding.**\
-`Arisa Trew vaulted into first place with her final run, winning gold.`\
-https://nytimes.com/live/2024/07/27/world/olympics-paris-photos/arisa-trew-skateboarding
-
-**QB Russell Wilson takes big step in recovery**\
-`Wilson threw the ball in team drills for the first time Tuesday, though it remains unclear whether he'll play in Friday's preseason opener.`\
-https://nytimes.com/athletic/5684596/2024/08/06/russell-wilson-injury-recovery-steelers/
 
