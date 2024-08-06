@@ -7,7 +7,7 @@ https://nytimes.com/2024/08/06/us/politics/trump-tim-walz-attack.html
 https://nytimes.com/athletic/5684773/2024/08/06/gabby-thomas-olympics-200m-final/
 
 **Browns' interest in Brandon Aiyuk fits their urgency to become immediate contenders**\
-`Cleveland would like to load up on as much talent as possible for difficult battles ahead in what looks to be a loaded AFC.`\
+`Cleveland would like to stack as much talent as possible for difficult battles ahead in what looks to be a loaded AFC.`\
 https://nytimes.com/athletic/5684681/2024/08/06/49ers-browns-brandon-aiyuk-trade/
 
 **‘Tim Walz’s Record Is a Joke’: JD Vance Slams Harris’s V.P. Pick**\
