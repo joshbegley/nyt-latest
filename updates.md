@@ -1,3 +1,7 @@
+**9 Killed After S.U.V. Flips Into South Florida Canal, Authorities Say**\
+`One passenger survived with serious injuries after the vehicle veered off a road in Belle Glade, Fla., on Monday evening.`\
+https://nytimes.com/2024/08/06/us/suv-crash-south-florida-canal.html
+
 **Coach Walz Can Help Harris Win**\
 `Football unifies America. Tim Walz can, too.`\
 https://nytimes.com/2024/08/06/opinion/kamala-harris-vp-tim-walz.html

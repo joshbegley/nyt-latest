@@ -35,6 +35,6 @@ https://nytimes.com/2024/08/06/dining/welcome-to-our-august-grilling-challenge.h
 https://nytimes.com/athletic/5684287/2024/08/06/consistency-overrated-fantasy-football-2024-george-kittle/
 
 **9 Killed After S.U.V. Flips Into South Florida Canal, Authorities Say**\
-`One passenger survived with serious injuries after the vehicle veered off a road in Belle Glade, Fla. on Monday evening.`\
+`One passenger survived with serious injuries after the vehicle veered off a road in Belle Glade, Fla., on Monday evening.`\
 https://nytimes.com/2024/08/06/us/suv-crash-south-florida-canal.html
 
