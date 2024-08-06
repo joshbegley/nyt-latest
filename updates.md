@@ -1,3 +1,7 @@
+**Chargers training camp, Day 11: AJ Finley emerging as front-runner in third safety battle**\
+`To take advantage of Derwin James' versatility, the Chargers need a quality third safety. Could that be Finley, a 2023 undrafted free agent?`\
+https://nytimes.com/athletic/5682780/2024/08/05/chargers-training-camp-aj-finley-safety/
+
 **Southern California Brush Fire Burns Several Hillside Homes**\
 `A blaze in San Bernardino burned several homes and threatened others nearby, forcing immediate evacuations.`\
 https://nytimes.com/2024/08/05/us/san-bernardino-fire-homes.html
