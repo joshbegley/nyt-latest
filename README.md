@@ -1,3 +1,11 @@
+**Can Freed Russian Dissidents Help Energize an Opposition Movement?**\
+`The release of activists like Ilya Yashin gives new hope to an movement in which various groups are often at war with each other. But many have doubts.`\
+https://nytimes.com/2024/08/06/world/europe/russian-dissidents-opposition-movement.html
+
+**How Trump-Vance and Harris-Walz Made It to the Presidential Ticket**\
+`Comparing the major career moments of the 2024 presidential and vice-presidential candidates.`\
+https://nytimes.com/interactive/2024/08/06/us/elections/trump-vance-harris-walz-education-career.html
+
 **Why the Electoral Math on Tim Walz Makes Sense**\
 `If he can reduce Trump’s numbers in rural counties around the country, Harris could win.`\
 https://nytimes.com/2024/07/30/opinion/tim-walz-electoral-math.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5683882/2024/08/06/nfl-training-camp-injuries-scoop
 **Whitney Museum Announces 2026 Biennial Curators**\
 `Marcela Guerrero and Drew Sawyer will organize the 82nd edition of the museum’s signature survey of contemporary American art.`\
 https://nytimes.com/2024/08/06/arts/design/whitney-museum-2026-biennial-curators.html
-
-**Where Tim Walz Stands on the Issues**\
-`As governor of Minnesota, he has enacted policies to secure abortion protections, provide free meals for schoolchildren, allow recreational marijuana and set renewable energy goals.`\
-https://nytimes.com/2024/08/06/us/politics/tim-walz-harris-vp-policies.html
-
-**Canucks summer notebook: Tocchet's Canada gig, Desharnais' opportunity and more**\
-`Could Desharnais player higher up the lineup than we expect? Might Brock Boeser be drafted into the faceoff circle this season?`\
-https://nytimes.com/athletic/5683170/2024/08/06/canucks-rick-tocchet-canada-vincent-desharnais/
 
