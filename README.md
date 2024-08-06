@@ -1,3 +1,7 @@
+**Choice of Walz Over Shapiro Mollifies the Left but Misses Chance to Reassure Jews**\
+`Many Jewish organizations backed Harris’s pick for running mate, but beneath that public sentiment is unease over antisemitism on both the left and the right.`\
+https://nytimes.com/2024/08/06/us/politics/tim-walz-shapiro-jewish.html
+
 **Dani Olmo is close to a €60m Barcelona move - but does it make sense?**\
 `The 26-year-old attacking midfielder, formed at Barca's youth academy, was key to La Roja's European Championship success this summer`\
 https://nytimes.com/athletic/5684062/2024/08/06/dani-olmo-barcelona-leipzig/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/06/climate/tropical-storm-debby-danger.html
 **Arisa Trew, 14, wins gold in women's skateboarding**\
 `Trew became the first Australian woman to medal in the event and the youngest medallist at the Paris Games.`\
 https://nytimes.com/athletic/5684391/2024/08/06/arisa-trew-olympics-skateboarding-gold/
-
-**E.P.A. Pulls From the Market a Weedkiller Harmful to Fetuses**\
-`The herbicide, used widely on crops including broccoli and onions, can cause low birth weight and impaired brain development, regulators said.`\
-https://nytimes.com/2024/08/06/climate/epa-dacthal-dimethyl-tetrachloroterephthalate-ban.html
 
