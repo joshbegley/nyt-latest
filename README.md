@@ -14,6 +14,10 @@ https://nytimes.com/athletic/5680602/2024/08/06/summer-mcintosh-olympics-history
 `TikTok has empowered Olympians who may not normally have attracted the media spotlight`\
 https://nytimes.com/athletic/5676610/2024/08/06/the-tiktok-olympics/
 
+**'An incredible story': Why Kerry Joseph could be perfect for Caleb Williams, Bears QBs**\
+`The Bears believe Joseph's unusual path in pro football has helped him establish an instant connection with their rookie quarterback.`\
+https://nytimes.com/athletic/5682050/2024/08/06/bears-kerry-joseph-caleb-williams/
+
 **A Wild Day on Wall Street**\
 `Explaining Monday’s stock-market plunge, and its potential consequences.`\
 https://nytimes.com/2024/08/06/podcasts/the-daily/global-stock-market-fears.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/06/weather/debby-georgia-south-carolina-storm-foreca
 **Ravens looking to improve depth at center with Tyler Linderbaum sidelined**\
 `Plus, Lamar Jackson is showing lots of energy in practice. And is there a roster spot for Ar’Darius Washington, who's having a strong camp?`\
 https://nytimes.com/athletic/5683106/2024/08/06/ravens-tyler-linderbaum-center-depth/
-
-**The Tiny Chinese Restaurant That Became an Olympic Hot Spot**\
-`A few blocks from the table tennis venue, a restaurant has become an unofficial (and unlikely) clubhouse for fans, team officials and athletes.`\
-https://nytimes.com/2024/08/06/world/olympics/table-tennis-china-restaurant.html
 
