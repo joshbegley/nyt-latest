@@ -1,3 +1,7 @@
+**Boxer in Controversy Over Eligibility Lets Her Gloves Do the Talking**\
+`Imane Khelif, of Algeria, moved past questions about her eligibility with a unanimous decision over her Thai opponent. She will now fight for a gold medal.`\
+https://nytimes.com/2024/08/06/world/olympics/olympics-boxing-imane-khelif.html
+
 **Transcript: Ezra Klein Discusses Kamala Harris’s VP pick**\
 `The Aug. 6, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/08/06/opinion/transcript-ezra-klein-discusses-kamala-harriss-vp-pick.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5684877/2024/08/06/las-vegas-raiders-receiver-roste
 **Who Is Yahya Sinwar, Hamas’s New Political Leader?**\
 `Mr. Sinwar, one of the main architects of the Oct. 7 Hamas-led attack on Israel, has spent decades with the militant group, working his way to the top of its leadership.`\
 https://nytimes.com/2024/08/06/world/middleeast/yahya-sinwar-hamas.html
-
-**Another one and done: Assistant coach Mark Recchi won't be back with Blue Jackets**\
-`The Blue Jackets continue to make decisions as training camp nears.`\
-https://nytimes.com/athletic/5685137/2024/08/06/blue-jackets-recchi-assistant/
 

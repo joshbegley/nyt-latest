@@ -1,3 +1,7 @@
+**Boxer in Controversy Over Eligibility Lets Her Gloves Do the Talking**\
+`Imane Khelif, of Algeria, moved past questions about her eligibility with a unanimous decision over her Thai opponent. She will now fight for a gold medal.`\
+https://nytimes.com/2024/08/06/world/olympics/olympics-boxing-imane-khelif.html
+
 **Transcript: Ezra Klein Discusses Kamala Harris’s VP pick**\
 `The Aug. 6, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/08/06/opinion/transcript-ezra-klein-discusses-kamala-harriss-vp-pick.html
