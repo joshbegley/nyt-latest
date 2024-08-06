@@ -1,3 +1,7 @@
+**CNET Sold to Ziff Davis in Sign of Possible Media Deals to Come**\
+`Ziff Davis is acquiring CNET for more than $100 million. Its founder thinks more acquisitions are on the horizon.`\
+https://nytimes.com/2024/08/06/business/media/cnet-ziff-davis.html
+
 **The Zombie Pharmacies That Are Holding Back New York City Retail**\
 `Over a million square feet of retail space is empty in vacant chain-drugstore locations across New York City. Here’s why it’s so hard to fill.`\
 https://nytimes.com/2024/08/06/nyregion/pharmacies-vacant-drugstores-retail.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/06/us/politics/kamala-harris-president-campaign-2024
 **August swoon leaves Astros searching for a spark: 'We need energy'**\
 `Fatigue from Houston's furious first-half turnaround is apparent, and few solutions exist to fix it.`\
 https://nytimes.com/athletic/5683156/2024/08/06/astros-walk-off-loss-rangers/
-
-**The impact of Summerville's departure: Gnonto staying, Rutter future and Rowe interest**\
-`Sale of last season's Championship player of the year is a blow, but Leeds have a strong squad and can keep their remaining stars`\
-https://nytimes.com/athletic/5681115/2024/08/06/summerville-fallout-gnonto-rowe-rutter/
 
