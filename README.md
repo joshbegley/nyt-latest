@@ -1,3 +1,31 @@
+**QB Russell Wilson takes big step in recovery**\
+`Wilson threw the ball in team drills for the first time Tuesday, though it remains unclear whether he'll play in Friday's preseason opener.`\
+https://nytimes.com/athletic/5684596/2024/08/06/russell-wilson-injury-recovery-steelers/
+
+**Cole Hocker stuns the world to win men's 1500m gold**\
+`Hocker, born in Indianapolis and reared at the University of Oregon, finished in an Olympic record 3:27.65.`\
+https://nytimes.com/athletic/5684698/2024/08/06/cole-hocker-mens-1500m-olympic-results/
+
+**The Pulse: Why is everyone mad at Noah Lyles?**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5683115/2024/08/06/noah-lyles-nba-olympics-the-pulse/
+
+**The labor movement got behind Walz even before he was chosen.**\
+`By Noam Scheiber`\
+https://nytimes.com/live/2024/08/06/us/kamala-harris-vp-trump-election/walz-labor
+
+**Niki’s Early Music Makes Her Cringe. Her Emotional Pop Is Growing Up.**\
+`The musician, 25, has paired raw honesty with synth-pop and R&B. On her third album, “Buzz,” she moves toward West Coast folk-rock and explores fresh heartbreak.`\
+https://nytimes.com/2024/08/06/arts/music/niki-buzz.html
+
+**Walz’s Decades-Old Drunken Driving Arrest Draws New Attention**\
+`Tim Walz ultimately pleaded to a reduced charge of reckless driving after the 1995 incident, which his critics resurface to question his fitness to serve.`\
+https://nytimes.com/2024/08/06/us/politics/tim-walz-dui.html
+
+**What's next for Simone Biles and USA Gymnastics? A riddle to solve for L.A.**\
+`Will Simone Biles be back? Will the rest of the team look different? For USA Gymnastics, the questions for their home Olympics start now.`\
+https://nytimes.com/athletic/5684526/2024/08/06/simone-biles-usa-gymnastics-olympics-future-los-angeles/
+
 **Tim Walz’s Big Climate Ambitions**\
 `Minnesota’s governor, Vice President Harris’s new running mate, has put forth one of the most ambitious climate agendas in the country.`\
 https://nytimes.com/2024/08/06/climate/tim-walzs-big-climate-ambitions.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/5684541/2024/08/06/braves-reds-game-bristol-motor-s
 **With Walz, Harris Passes on a Chance to Redefine Herself**\
 `There will be other opportunities to move to the center, if that’s a goal.`\
 https://nytimes.com/2024/08/06/upshot/walz-harris-vice-president.html
-
-**McLaughlin-Levrone, Bol advance to 400 hurdles finals**\
-`McLaughlin-Levrone has set the last five world records in the event, while Bol won the bronze in Tokyo and has improved.`\
-https://nytimes.com/athletic/5684511/2024/08/06/sydney-mclaughlin-levrone-femke-bol-womens-400-hurdles-semifinals/
-
-**USWNT 1 Germany 0: Sophia Smith's goal earns U.S. spot in gold medal**\
-`Here's how the USWNT earned a spot in the Olympic final.`\
-https://nytimes.com/athletic/5683594/2024/08/06/uswnt-germany-olympic-womens-soccer-semifinal/
-
-**Nobel Laureate Tapped to Lead Interim Government in Bangladesh**\
-`The new government was formed a day after Bangladesh’s longtime leader, facing fierce protests, fled the country.`\
-https://nytimes.com/2024/08/06/world/asia/bangladesh-government.html
-
-**France knocks off Canada to advance to semifinals, will face Germany**\
-`France upset Canada 82-73 to send the host nation into a semifinal game against Germany on Thursday,`\
-https://nytimes.com/athletic/5684514/2024/08/06/france-canada-olympics-basketball/
-
-**That Drone in the Sky Is Here to Warn New Yorkers About Flooding**\
-`Mayor Eric Adams, an avowed technology geek, is using the city’s drones to deliver a recorded message warning vulnerable New Yorkers of flooding dangers.`\
-https://nytimes.com/2024/08/06/nyregion/drones-eric-adams-flooding.html
-
-**Yahya Sinwar, the leader of Hamas in Gaza, has been elevated to the top political post in Hamas.**\
-`By Adam Rasgon and Aaron Boxerman`\
-https://nytimes.com/live/2024/08/06/world/israel-iran-hezbollah-gaza/yahya-sinwar-the-leader-of-hamas-in-gaza-has-been-elevated-to-the-top-political-post-in-hamas
-
-**The Kamala Harris-Tim Walz Ticket**\
-`Readers offer mostly positive reactions to the choice of the Minnesota governor. Also: Clarence Thomas’s unreported trips; Jimmy Carter’s vote.`\
-https://nytimes.com/2024/08/06/opinion/kamala-harris-tim-walz.html
 
