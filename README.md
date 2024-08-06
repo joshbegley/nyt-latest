@@ -1,3 +1,7 @@
+**Decline in Veterans’ Homelessness Spurs Hopes for a Broader Solution**\
+`Two federal agencies, backed by ample funding from Congress, have quietly shown that it is possible to make progress on a seemingly intractable problem.`\
+https://nytimes.com/2024/08/06/us/politics/decline-veterans-homelessness.html
+
 **A Harris Victory Would Give Minnesota Its First Female Governor**\
 `Lt. Gov. Peggy Flanagan would also become the first Native American person in the role.`\
 https://nytimes.com/2024/08/06/us/peggy-flanagan-tim-walz-minnesota.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/06/us/tim-walz-george-floyd-criticism.html
 **Who Is Tim Walz, the Minnesota Governor Kamala Harris Picked to Be V.P.?**\
 `Mr. Walz captured Democrats’ attention with his “weird” takedown of Republicans. Here’s a look at the new vice-presidential candidate.`\
 https://nytimes.com/2024/08/06/us/politics/who-tim-walz-harris-vp.html
-
-**Canada revokes coach's Olympics accreditation amid sexual abuse allegations**\
-`Rana Reider, a coach of Olympic champion sprinters Andre De Grasse and Lamont Marcell Jacobs, has had his accreditation for the Paris Games revoked amid allegations of sexual and emotional abuse.`\
-https://nytimes.com/athletic/5683340/2024/08/06/rana-reider-coach-sexual-abuse-case/
 
