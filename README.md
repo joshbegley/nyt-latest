@@ -1,3 +1,7 @@
+**Scoop City: What you should know from training camps today**\
+`A review of injuries, trade rumours and camp battles around the NFL.`\
+https://nytimes.com/athletic/5683882/2024/08/06/nfl-training-camp-injuries-scoop-city/
+
 **Whitney Museum Announces 2026 Biennial Curators**\
 `Marcela Guerrero and Drew Sawyer will organize the 82nd edition of the museum’s signature survey of contemporary American art.`\
 https://nytimes.com/2024/08/06/arts/design/whitney-museum-2026-biennial-curators.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/06/us/politics/kamala-harris-vp.html
 **Moore agrees first professional contract with Tottenham**\
 `Tottenham Hotspur have secured the future of highly-rated winger Mikey Moore.`\
 https://nytimes.com/athletic/5683416/2024/08/06/tottenham-mikey-moore-contract-signed/
-
-**For Salif Mane, U.S. Olympic triple jumper, his late father's voice still lights the way**\
-`On Salif Mane's unlikely path to the Olympics, his father was a constant. And he still keeps his dad's words of wisdom close.`\
-https://nytimes.com/athletic/5646049/2024/08/06/salif-mane-2024-olympics-track-and-field/
 
