@@ -1,3 +1,7 @@
+**The Windup: We need to talk about the Pirates**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5684179/2024/08/06/pittsburgh-pirates-the-windup/
+
 **X, Owned by Elon Musk, Brings Antitrust Suit Accusing Advertisers of a Boycott**\
 `The company claimed that members of the Global Alliance for Responsible Media coordinated to dissuade brands from advertising on X.`\
 https://nytimes.com/2024/08/06/technology/x-antitrust-suit-advertisers-elon-musk.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5620891/2024/08/06/barcelona-dani-olmo-transfer/
 **Former 'Around the NFL' hosts Hanzus, Sessler start new pod**\
 `Dan Hanzus and Marc Sessler are starting their own podcast following their exit from NFL Network, where they led its popular “Around the NFL” podcast for more than a decade, sources briefed on the move said.`\
 https://nytimes.com/athletic/5683888/2024/08/06/hanzus-sessler-podcast-nfl-network/
-
-**Serbia, Nikola Jokić thwart Australia's medal hopes**\
-`Serbia survived an incredible last-second shot by Patty Mills over Nikola Jokić to force overtime, defeating Australia 95-90 to advance.`\
-https://nytimes.com/athletic/5683995/2024/08/06/olympic-basketball-serbia-australia-results/
 
