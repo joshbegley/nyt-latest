@@ -1,3 +1,7 @@
+**For Salif Mane, U.S. Olympic triple jumper, his late father's voice still lights the way**\
+`On Salif Mane's unlikely path to the Olympics, his father was a constant. And he still keeps his dad's words of wisdom close.`\
+https://nytimes.com/athletic/5646049/2024/08/06/salif-mane-2024-olympics-track-and-field/
+
 **Hurricane Debby Sweeps Cocaine Worth $1 Million Onto Florida Beach**\
 `More than two dozen packages of cocaine were found on a beach in the Florida Keys, according to the U.S. Border Patrol.`\
 https://nytimes.com/2024/08/06/us/hurricane-debby-cocaine-florida.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5683437/2024/08/06/barcelona-united-states-tour-193
 **Atletico in advanced talks to sign Guerra from Valencia**\
 `Atletico Madrid are in advanced talks to sign Valencia midfielder Javi Guerra.`\
 https://nytimes.com/athletic/5683491/2024/08/06/atletico-madrid-javi-guerra/
-
-**How Google’s Antitrust Defeat Might Transform Big Tech**\
-`The search giant is likely to appeal a federal judge’s ruling that it abuses its monopoly in the lucrative online business. But the industry could still see major changes.`\
-https://nytimes.com/2024/08/06/business/dealbook/google-antitrust-tech.html
 
