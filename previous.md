@@ -1,3 +1,7 @@
+**Can You Heal Olympic Heartbreak With Belated Medals?**\
+`A weight lifter walked away from his sport after a bitter loss in 2012. He and other athletes, including a U.S. figure skating team, will receive their medals in Paris.`\
+https://nytimes.com/2024/08/06/world/olympics/jeon-sang-guen-weight-lifting-medal.html
+
 **In Walz, Harris Sees a Battleground Strategy Dressed in Carhartt**\
 `Democrats think Gov. Tim Walz’s cultural ties are needed to talk to rural and working-class voters. But Republicans are not going to let his folksy style obscure a liberal record.`\
 https://nytimes.com/2024/08/06/us/politics/kamala-harris-tim-walz-running-mate.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5685331/2024/08/06/mlb-billy-bean-death-obituary/
 **The World That Awaits the Next President**\
 `Maintaining our global primacy is worth the price in effort, treasure and sometimes blood.`\
 https://nytimes.com/2024/08/06/opinion/harris-trump-ukraine.html
-
-**F.B.I. Seizes Republican Lawmaker’s Phone Amid Scrutiny Over Loan**\
-`Representative Andy Ogles of Tennessee reported lending his campaign $320,000 in 2022 before retracting it.`\
-https://nytimes.com/2024/08/06/us/politics/andy-ogles-phone-fbi-search.html
 
