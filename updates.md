@@ -1,3 +1,15 @@
+**Venezuela’s Strongman Was Confident of Victory. Then Came the Shock.**\
+`Venezuela’s  government believed its control of all levers of power would give it victory at the polls. A rebellion by its supporters undid the plan.`\
+https://nytimes.com/2024/08/06/world/americas/venezuela-election-maduro.html
+
+**Chloe Coscarelli Returns With Her Vegan Greatest Hits**\
+`The vegan chef has reopened in her original Greenwich Village location; Afghan delights in Beacon, N.Y.; and more restaurant news.`\
+https://nytimes.com/2024/08/06/dining/by-chloe-returns.html
+
+**Hurricane Scale Alone Can’t Account for a Storm’s Destruction**\
+`Tropical Storm Debby was only briefly a Category 1 hurricane. But a rating can never fully capture how destructive a storm can be.`\
+https://nytimes.com/2024/08/06/climate/tropical-storm-debby-danger.html
+
 **Arisa Trew, 14, wins gold in women's skateboarding**\
 `Trew became the first Australian woman to medal in the event and the youngest medallist at the Paris Games.`\
 https://nytimes.com/athletic/5684391/2024/08/06/arisa-trew-olympics-skateboarding-gold/
