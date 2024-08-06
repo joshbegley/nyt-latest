@@ -1,3 +1,11 @@
+**Skateboard legend Andy Macdonald, at 51, is getting an unlikely Olympic epilogue**\
+`Andy Macdonald is contemporaries with Tony Hawk and once had a video game named after him. Now, at 51, he's in the Olympics for Team GB.`\
+https://nytimes.com/athletic/5684864/2024/08/06/andy-macdonald-skateboarding-olympics-51-great-britain/
+
+**49ers confirm permission for Brandon Aiyuk to seek trade**\
+`For his four-year career, the 2020 first-round pick has hauled in 269 receptions for 3,931 yards and 25 touchdowns.`\
+https://nytimes.com/athletic/5683843/2024/08/06/brandon-aiyuk-49ers-trade-permission/
+
 **49ers' McCaffrey out with calf strain**\
 `McCaffrey, the reigning NFL Offensive Player of the Year, likely won't play in the preseason after suffering the injury.`\
 https://nytimes.com/athletic/5684887/2024/08/06/49ers-christian-mccaffrey-calf-injury/
