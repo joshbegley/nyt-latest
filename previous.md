@@ -1,3 +1,11 @@
+**49ers' McCaffrey out with calf strain**\
+`McCaffrey, the reigning NFL Offensive Player of the Year, likely won't play in the preseason after suffering the injury.`\
+https://nytimes.com/athletic/5684887/2024/08/06/49ers-christian-mccaffrey-calf-injury/
+
+**A Nashville Block Party for a Beloved Honky-Tonk**\
+`Hundreds of fans converged outside Robert’s Western World to celebrate a pivotal anniversary for its owner, JesseLee Jones — and the sounds the venue tries to preserve.`\
+https://nytimes.com/2024/08/06/style/roberts-western-world-block-party-nashville.html
+
 **Justice Dept. Charges Pakistani Man in Alleged Plot to Kill U.S. Leaders**\
 `After his arrest, the man, who had just spent two weeks in Iran, told investigators that Donald Trump was among his targets. There is no evidence connecting the episode to the shooting of the former president in Pennsylvania.`\
 https://nytimes.com/2024/08/06/us/politics/justice-dept-assassination.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5684681/2024/08/06/49ers-browns-brandon-aiyuk-trade
 **‘Tim Walz’s Record Is a Joke’: JD Vance Slams Harris’s V.P. Pick**\
 `JD Vance, the Republican vice presidential nominee, shared his thoughts on the Democratic ticket at a rally in Philadelphia.`\
 https://nytimes.com/video/us/elections/100000009614828/jd-vance-attacks-tim-walz-record.html
-
-**Residents are surrounded by floodwaters in a Savannah neighborhood.**\
-`By Nichole Manna`\
-https://nytimes.com/live/2024/08/06/weather/debby-storm-forecast/residents-are-surrounded-by-floodwaters-in-a-savannah-neighborhood
-
-**Why Tim Walz Will Be a Potent Weapon for Kamala Harris**\
-`He is of a vanishing political breed: the heartland left populist.`\
-https://nytimes.com/2024/08/06/opinion/tim-walz-kamala-harris.html
 

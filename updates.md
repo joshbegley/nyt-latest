@@ -1,3 +1,11 @@
+**49ers' McCaffrey out with calf strain**\
+`McCaffrey, the reigning NFL Offensive Player of the Year, likely won't play in the preseason after suffering the injury.`\
+https://nytimes.com/athletic/5684887/2024/08/06/49ers-christian-mccaffrey-calf-injury/
+
+**A Nashville Block Party for a Beloved Honky-Tonk**\
+`Hundreds of fans converged outside Robert’s Western World to celebrate a pivotal anniversary for its owner, JesseLee Jones — and the sounds the venue tries to preserve.`\
+https://nytimes.com/2024/08/06/style/roberts-western-world-block-party-nashville.html
+
 **Justice Dept. Charges Pakistani Man in Alleged Plot to Kill U.S. Leaders**\
 `After his arrest, the man, who had just spent two weeks in Iran, told investigators that Donald Trump was among his targets. There is no evidence connecting the episode to the shooting of the former president in Pennsylvania.`\
 https://nytimes.com/2024/08/06/us/politics/justice-dept-assassination.html
