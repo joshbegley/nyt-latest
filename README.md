@@ -1,3 +1,7 @@
+**Whitney Museum Announces 2026 Biennial Curators**\
+`Marcela Guerrero and Drew Sawyer will organize the 82nd edition of the museum’s signature survey of contemporary American art.`\
+https://nytimes.com/2024/08/06/arts/design/whitney-museum-2026-biennial-curators.html
+
 **Where Tim Walz Stands on the Issues**\
 `As governor of Minnesota, he has enacted policies to secure abortion protections, provide free meals for schoolchildren, allow recreational marijuana and set renewable energy goals.`\
 https://nytimes.com/2024/08/06/us/politics/tim-walz-harris-vp-policies.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5683416/2024/08/06/tottenham-mikey-moore-contract-s
 **For Salif Mane, U.S. Olympic triple jumper, his late father's voice still lights the way**\
 `On Salif Mane's unlikely path to the Olympics, his father was a constant. And he still keeps his dad's words of wisdom close.`\
 https://nytimes.com/athletic/5646049/2024/08/06/salif-mane-2024-olympics-track-and-field/
-
-**Hurricane Debby Sweeps Cocaine Worth $1 Million Onto Florida Beach**\
-`More than two dozen packages of cocaine were found on a beach in the Florida Keys, according to the U.S. Border Patrol.`\
-https://nytimes.com/2024/08/06/us/hurricane-debby-cocaine-florida.html
 
