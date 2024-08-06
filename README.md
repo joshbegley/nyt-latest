@@ -1,3 +1,7 @@
+**Hurricane Debby Sweeps Cocaine Worth $1 Million Onto Florida Beach**\
+`More than two dozen packages of cocaine were found on a beach in the Florida Keys, according to the U.S. Border Patrol.`\
+https://nytimes.com/2024/08/06/us/hurricane-debby-cocaine-florida.html
+
 **‘The more you know about something the less scary it is’: The Week 7 Winner of Our Summer Reading Contest**\
 `Michelle Zhibing Zhou, 15, writes about a Science article highlighting new research that “sent ripples throughout the leech research community and shivers down my spine.”`\
 https://nytimes.com/2024/08/06/learning/the-more-you-know-about-something-the-less-scary-it-is-the-week-7-winner-of-our-summer-reading-contest.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5683491/2024/08/06/atletico-madrid-javi-guerra/
 **How Google’s Antitrust Defeat Might Transform Big Tech**\
 `The search giant is likely to appeal a federal judge’s ruling that it abuses its monopoly in the lucrative online business. But the industry could still see major changes.`\
 https://nytimes.com/2024/08/06/business/dealbook/google-antitrust-tech.html
-
-**Why Seahawks GM prayed for chance to interview coach Mike Macdonald**\
-`Seahawks GM John Schneider badly wanted to interview Macdonald, so he prayed for a Ravens loss in the AFC Championship Game. `\
-https://nytimes.com/athletic/5681571/2024/08/06/mike-macdonald-seattle-seahawks-ravens-john-schneider/
 
