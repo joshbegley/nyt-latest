@@ -1,3 +1,7 @@
+**Phelps says athletes caught doping should be banned**\
+`"If you test positive, you should never be allowed to come back and compete again, cut and dry," Phelps said, per the AP.`\
+https://nytimes.com/athletic/5684043/2024/08/06/michael-phelps-doping-comments-olympics/
+
 **In the House, Walz embraced a blend of liberal and culturally conservative stances.**\
 `By Catie Edmondson`\
 https://nytimes.com/live/2024/08/06/us/kamala-harris-vp-trump-election/in-the-house-walz-embraced-a-blend-of-liberal-and-culturally-conservative-stances
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/06/world/israel-iran-hezbollah-gaza/an-israeli-
 **Who Is Gwen Walz, the Wife of Tim Walz?**\
 `As the first lady of Minnesota, Gwen Walz has championed criminal justice and education reform.`\
 https://nytimes.com/2024/08/06/us/politics/tim-walz-family-wife.html
-
-**Microsoft Says Delta Was Largely Responsible for Flight Cancellations**\
-`The software company said in a letter that Delta Air Lines had falsely blamed Microsoft for its decision to cancel thousands of flights after a tech outage.`\
-https://nytimes.com/2024/08/06/business/microsoft-delta-flight-cancellations-outage.html
 

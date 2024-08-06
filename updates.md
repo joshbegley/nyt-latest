@@ -1,3 +1,7 @@
+**Phelps says athletes caught doping should be banned**\
+`"If you test positive, you should never be allowed to come back and compete again, cut and dry," Phelps said, per the AP.`\
+https://nytimes.com/athletic/5684043/2024/08/06/michael-phelps-doping-comments-olympics/
+
 **In the House, Walz embraced a blend of liberal and culturally conservative stances.**\
 `By Catie Edmondson`\
 https://nytimes.com/live/2024/08/06/us/kamala-harris-vp-trump-election/in-the-house-walz-embraced-a-blend-of-liberal-and-culturally-conservative-stances
