@@ -1,3 +1,15 @@
+**New York Times Reports 13.6% Jump in Profit**\
+`The publisher added about 300,000 digital subscribers in the latest quarter, and now has more than 10.8 million subscribers.`\
+https://nytimes.com/2024/08/07/business/media/new-york-times-earnings.html
+
+**The Gamer and the Psychiatrist**\
+`Did Dr. Alok Kanojia's livestreamed conversations with a troubled video game champion cross an ethical line?`\
+https://nytimes.com/2024/08/07/health/gamers-twitch-mental-health.html
+
+**Rodri and Morata banned over 'Gibraltar is Spanish' chants**\
+`Alvaro Morata and Rodri have been given one-match bans by UEFA for misconduct during Spain&#8217;s European Championship winners&#8217; parade in Madrid.`\
+https://nytimes.com/athletic/5686258/2024/08/07/uefa-ban-rodri-morata/
+
 **Disney’s Parks Struggle, Exposing a New Trouble Spot**\
 `Companywide profit increased, the result of hit movies and streaming growth. But Disney said softening theme park demand “could impact the next few quarters.”`\
 https://nytimes.com/2024/08/07/business/media/disney-earnings-parks.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5683861/2024/08/07/college-football-2024-season-hop
 **How Cole Hocker exploited the Ingebrigtsen-Kerr rivalry to win 1500m Olympic gold**\
 `All the pre-race focus was on the battle between the Norwegian and the Briton - but that's not how it played out`\
 https://nytimes.com/athletic/5685309/2024/08/07/olympics-cole-hocker-josh-kerr-jakob-ingebrigtsen/
-
-**Hindus in Bangladesh Face Revenge Attacks After Prime Minister’s Exit**\
-`There has long been a perception that the Hindu minority supports Sheikh Hasina, who resigned as prime minister and fled the country after a popular uprising.`\
-https://nytimes.com/2024/08/07/world/asia/bangladesh-politics-unrest.html
-
-**Wisconsin RBs Darrion Dupree, Dilin Jones 'don't play like they're freshmen'**\
-`Seniors Chez Mellusi and Tawee Walker lead the way, but it is becoming clear why coaches were so excited about the newcomers.`\
-https://nytimes.com/athletic/5685177/2024/08/07/wisconsin-running-backs-darrion-dupree-dilin-jones/
-
-**Vikings owners not focused on extensions for Kwesi Adofo-Mensah, Kevin O'Connell**\
-`The Vikings leadership group appears to be focused on the long term, but what will happen if the team struggles in the short term?`\
-https://nytimes.com/athletic/5685448/2024/08/07/vikings-mark-wilf-kwesi-adofo-mensah-kevin-oconnell/
 

@@ -1,3 +1,15 @@
+**New York Times Reports 13.6% Jump in Profit**\
+`The publisher added about 300,000 digital subscribers in the latest quarter, and now has more than 10.8 million subscribers.`\
+https://nytimes.com/2024/08/07/business/media/new-york-times-earnings.html
+
+**The Gamer and the Psychiatrist**\
+`Did Dr. Alok Kanojia's livestreamed conversations with a troubled video game champion cross an ethical line?`\
+https://nytimes.com/2024/08/07/health/gamers-twitch-mental-health.html
+
+**Rodri and Morata banned over 'Gibraltar is Spanish' chants**\
+`Alvaro Morata and Rodri have been given one-match bans by UEFA for misconduct during Spain&#8217;s European Championship winners&#8217; parade in Madrid.`\
+https://nytimes.com/athletic/5686258/2024/08/07/uefa-ban-rodri-morata/
+
 **Disney’s Parks Struggle, Exposing a New Trouble Spot**\
 `Companywide profit increased, the result of hit movies and streaming growth. But Disney said softening theme park demand “could impact the next few quarters.”`\
 https://nytimes.com/2024/08/07/business/media/disney-earnings-parks.html
