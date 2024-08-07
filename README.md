@@ -1,8 +1,12 @@
+**Hotel Collapse in Germany Kills 2 and Prompts Frantic Rescue Mission**\
+`One person remained trapped under the rubble on Wednesday after a centuries-old structure collapsed late the night before.`\
+https://nytimes.com/2024/08/07/world/europe/germany-hotel-collapse.html
+
 **Palace prepared to sanction Johnstone departure**\
 `Crystal Palace are prepared to sanction the departure of Sam Johnstone if suitable offers arrive after the goalkeeper asked to leave Selhurst Park.`\
 https://nytimes.com/athletic/5686901/2024/08/07/sam-johnstone-crystal-palace-transfer/
 
-**Arab nations urge Iran to exercise restraint in retaliatory strike against Israel.**\
+**Arab nations urge Iran to exercise restraint in responding to Hamas leader’s assassination.**\
 `By Adam Rasgon and Ben Hubbard`\
 https://nytimes.com/live/2024/08/07/world/israel-iran-hamas-gaza-war/arab-ayman-al-safadi-jordan-iran-israel
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5683827/2024/08/07/lauri-markkanen-jazz-extension/
 **NFL fines Giants, Lions for fights during joint practices**\
 `Skirmishes took place throughout the joint sessions that involved several players.`\
 https://nytimes.com/athletic/5686782/2024/08/07/nfl-fines-giants-lions-fights/
-
-**Book With Project 2025 Ties and JD Vance Foreword Is Delayed Until After Election**\
-`The book’s author is Kevin D. Roberts, the president of Heritage Foundation, which coordinated the right-wing policy blueprint that has come under fire from Democrats.`\
-https://nytimes.com/2024/08/07/us/politics/project-2025-book-jd-vance-delayed.html
 
