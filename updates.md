@@ -1,3 +1,15 @@
+**30 Months After Their Games Ended, U.S. Figure Skaters Get Golds**\
+`In a ceremony in Paris, the American team received the medals they won after the Russian team, featuring Kamila Valieva, was disqualified.`\
+https://nytimes.com/2024/08/07/world/olympics/30-months-after-their-games-ended-us-figure-skaters-get-golds.html
+
+**U.S. Olympic figure skaters receive gold medals in Paris after 912-day delay**\
+`The 2022 U.S. Olympic figure skaters waited 2 1/2 years to get their gold medals for the team performance at the Beijing Games.`\
+https://nytimes.com/athletic/5686988/2024/08/07/usa-figure-skaters-gold-beijing-olympics/
+
+**As Biden’s Presidency Wanes, U.S. and Asian Nations Do a Delicate Dance**\
+`On an epic trip, Secretary of State Antony J. Blinken tried to reassure Asian leaders about American commitments. But China remains the enduring backyard behemoth.`\
+https://nytimes.com/2024/08/07/us/politics/biden-asia-china-blinken.html
+
 **France's Finot breaks steeplechase record, proposes to boyfriend**\
 `France's Alice Finot celebrated the moment by proposing to her boyfriend in the stands with an Olympic pin.`\
 https://nytimes.com/athletic/5686890/2024/08/07/alice-finot-proposal-steeplechase-olympics/
