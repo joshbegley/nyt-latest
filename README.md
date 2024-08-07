@@ -1,3 +1,7 @@
+**Charleston Exhales After a ‘Really Close Call’ With Dangerous Flooding**\
+`The historic coastal city floods easily, but officials have upgraded infrastructure in recent years to try to prevent the worst.`\
+https://nytimes.com/2024/08/07/weather/charleston-flooding-debby.html
+
 **Taylor Swift Concerts in Vienna Canceled After Officials Outline Threats**\
 `Three stadium shows were called off after Austrian officials said that a man who was arrested and accused of plotting a terrorist attack had been focused on her tour.`\
 https://nytimes.com/2024/08/07/arts/music/taylor-swift-concert-terror-plot-vienna.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/07/us/ann-abadie-dead.html
 **Colts WR Josh Downs sustains ankle injury, could miss 4-6 weeks**\
 `Last year, Downs broke the Colts' single-season rookie record with 68 catches for 771 yards and two touchdowns.`\
 https://nytimes.com/athletic/5687070/2024/08/07/colts-josh-downs-ankle-injury/
-
-**Kennedy’s Wife and Birds Live in California. He Says It’s Not Home.**\
-`The presidential candidate Robert F. Kennedy Jr. testified in Albany in an attempt to stay on New York’s ballot. If he is kicked off, other states could follow.`\
-https://nytimes.com/2024/08/07/nyregion/rfk-testimony-ny-ballot.html
 
