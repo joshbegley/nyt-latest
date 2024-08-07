@@ -1,3 +1,7 @@
+**Liverpool exploring Zubimendi deal**\
+`Liverpool are exploring a deal to sign Martin Zubimendi of Real Sociedad as they work to strengthen Arne Slot’s squad with a new No 6.`\
+https://nytimes.com/athletic/5684907/2024/08/07/martin-zubimendi-transfer-liverpool/
+
 **Arsenal set to sign Sweden international Kafaji from Hacken**\
 `Arsenal are set to sign Sweden international Rosa Kafaji from BK Hacken.`\
 https://nytimes.com/athletic/5686179/2024/08/07/arsenal-women-transfers-rosa-kafaji/
