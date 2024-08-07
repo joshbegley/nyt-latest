@@ -1,3 +1,11 @@
+**Noah Lyles advances to stacked 200m final, where a stacked field awaits**\
+`Lyles’ best in the 200 meters — which Wednesday was not — seems to be an untouchable realm. His personal best is 19.31 seconds, set in 2022.`\
+https://nytimes.com/athletic/5687201/2024/08/07/noah-lyles-200m-olympic-semifinals/
+
+**After Breaking Free, World’s Largest Iceberg Is Stuck Spinning in Circles**\
+`Round and round a city-size iceberg goes, stuck in a vortex over an underwater mountain. When it will stop, nobody knows.`\
+https://nytimes.com/2024/08/07/science/a23a-iceberg-antarctica-spinning.html
+
 **Chelsea agree deal with Atletico Madrid for Omorodion, Gallagher set for medical**\
 `Chelsea have agreed a £34.`\
 https://nytimes.com/athletic/5683224/2024/08/07/samu-omorodion-chelsea-transfer/

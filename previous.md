@@ -2,7 +2,7 @@
 `Chelsea have agreed a £34.`\
 https://nytimes.com/athletic/5683224/2024/08/07/samu-omorodion-chelsea-transfer/
 
-**Noah Lyles advances to stacked 200m final**\
+**Noah Lyles advances to stacked 200m final, where a stacked field awaits**\
 `Lyles’ best in the 200 meters — which Wednesday was not — seems to be an untouchable realm. His personal best is 19.31 seconds, set in 2022.`\
 https://nytimes.com/athletic/5687201/2024/08/07/noah-lyles-200m-olympic-semifinals/
 
@@ -23,7 +23,7 @@ https://nytimes.com/video/world/europe/100000009616472/uk-businesses-board-up.ht
 https://nytimes.com/2024/08/07/us/walz-harris-undecided-voters.html
 
 **After Breaking Free, World’s Largest Iceberg Is Stuck Spinning in Circles**\
-`Round and round a 1,400-square-mile iceberg goes, stuck in a vortex over an underwater mountain. When it will stop, nobody knows.`\
+`Round and round a city-size iceberg goes, stuck in a vortex over an underwater mountain. When it will stop, nobody knows.`\
 https://nytimes.com/2024/08/07/science/a23a-iceberg-antarctica-spinning.html
 
 **5 Ways Hawaii Is Trying to Prevent the Next Deadly Fire**\
