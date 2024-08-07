@@ -1,3 +1,23 @@
+**Manhattan Planned Parenthood Will Stop Offering Abortions After 20 Weeks**\
+`The shift came as Planned Parenthood’s New York chapter revealed plans to close four clinics across the state, as financial issues mount.`\
+https://nytimes.com/2024/08/07/nyregion/planned-parenthood-abortions-manhattan.html
+
+**Tax Revenues From New York City Office Buildings Rise, Despite Vacancies**\
+`The assessed market value of the city’s buildings is still growing, according to a report from the state comptroller, leading to a modest increase in tax revenue.`\
+https://nytimes.com/2024/08/07/nyregion/office-buildings-value-manhattan.html
+
+**Capturing the Split Seconds Between Victory and Defeat**\
+`Faced with the challenge of quickly recapping Olympic events, The Times creates its own animated versions of competitions. The internet loves them.`\
+https://nytimes.com/2024/08/07/insider/olympics-coverage.html
+
+**The Olympics Have a Gap That Netflix Is Trying to Fill**\
+`New seasons of documentaries about running, gymnastics and basketball are being filmed this summer as part of a partnership with the International Olympic Committee.`\
+https://nytimes.com/2024/08/07/world/olympics/netflix-documentary-sprint-simone-biles.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/07/crosswords/spelling-bee-forum.html
+
 **Padres wait out lengthy delay before winning again as Joe Musgrove nears return**\
 `Musgrove is expected to return from a lengthy stay on the injured list in the coming days, possibly as early as this weekend.`\
 https://nytimes.com/athletic/5684532/2024/08/07/padres-pirates-delay-joe-musgrove-nears-return/
