@@ -1,9 +1,13 @@
+**Word of the Day: ideologue**\
+`This word has appeared in 32 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/07/learning/word-of-the-day-ideologue.html
+
 **How Bangladesh’s Leader Lost Her Grip on Power**\
 `Once viewed as the hope for a democratic future in Bangladesh, Sheikh Hasina turned increasingly autocratic during her years as prime minister.`\
 https://nytimes.com/video/world/asia/100000009614906/how-bangladeshs-leader-lost-her-grip-on-power.html
 
 **Dodgers' Brusdar Graterol helped off field after hamstring injury**\
-`Graterol left after 8 pitches. He had yet to pitch this season because of a shoulder issue that cropped up toward the end of spring training`\
+`Graterol left after 8 pitches. He had yet to pitch this season because of a shoulder issue that cropped up at the end of spring training.`\
 https://nytimes.com/athletic/5685901/2024/08/07/dodgers-brusdar-graterol-injury/
 
 **Fantasy football takeover: Flipping a newly-acquired dynasty team towards a brighter future**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5309594/2024/08/07/manchester-united-season-preview
 **The former Olympic sprinter helping Brighton's players run more efficiently**\
 `Leon Reid's sprinting career didn't end in the ideal way — but he is now using his biomechanical expertise to make footballers more durable`\
 https://nytimes.com/athletic/5660136/2024/08/07/brighton-olympics-running-technique/
-
-**Iroegbunam swapped Emery for Dyche: 'It's a different style but I'll adapt and kick on'**\
-`Midfielder fits into Everton's policy of buying hungry young talents to develop - and he is eager to prove himself after joining from Villa`\
-https://nytimes.com/athletic/5674190/2024/08/07/tim-iroegbunam-interview-everton/
 
