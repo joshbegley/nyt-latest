@@ -22,6 +22,10 @@ https://nytimes.com/2024/08/07/science/sea-lion-videos-cameras.html
 `Joe Rennison, who covers financial markets for The New York Times, raced home from vacation when a slowdown in the U.S. economy sparked widespread worry.`\
 https://nytimes.com/2024/08/07/insider/as-markets-rock-a-reporter-stays-steady.html
 
+**Bengals' fights a sign of edgier version of the team? They're at least worth noting**\
+`A series of skirmishes Wednesday could have been a product of the heat, but also might be a sign of extra competitive fire this season.`\
+https://nytimes.com/athletic/5687826/2024/08/07/bengals-training-camp-fights/
+
 **DK Metcalf swings helmet at teammate's head**\
 `DK Metcalf hit K'Von Wallace in the head with a helmet after a confrontation with Tre Brown, just one of several fights Wednesday.`\
 https://nytimes.com/athletic/5687833/2024/08/07/seahawks-fight-dk-metcalf-helmet/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/07/business/warner-bros-discovery-sports-write-down.
 **Arab and Western Nations Urge Restraint as Israel-Iran Tensions Simmer**\
 `Trying to head off a Middle East war, several countries are pressing Iran to temper its retaliation for the assassination of a Hamas leader in Tehran.`\
 https://nytimes.com/2024/08/07/world/middleeast/iran-israel-retaliation.html
-
-**Broncos quarterbacks on rookie chores, handling pressure and the ongoing QB race**\
-`Bo Nix said he has avoided outside input on Broncos QB competition: "Nobody has a higher standard for how I play than me."`\
-https://nytimes.com/athletic/5687257/2024/08/07/broncos-qb-race-nix-stidham/
 
