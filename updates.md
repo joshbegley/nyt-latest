@@ -1,3 +1,7 @@
+**Bengals' fights a sign of edgier version of the team? They're at least worth noting**\
+`A series of skirmishes Wednesday could have been a product of the heat, but also might be a sign of extra competitive fire this season.`\
+https://nytimes.com/athletic/5687826/2024/08/07/bengals-training-camp-fights/
+
 **James Cook's ball security needs cleaning up, and more from Bills camp**\
 `Plus, offensive line depth continues to be a question, and Josh Allen's offense sputters after strong start.`\
 https://nytimes.com/athletic/5687304/2024/08/07/buffalo-bills-training-camp-james-cook-marquez-valdes-scantling/
