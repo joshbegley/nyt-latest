@@ -1,3 +1,7 @@
+**Elon Musk Clashes With Keir Starmer Over Riots in Britain**\
+`Over the past few days, the billionaire has posted incendiary comments about violent protests on the social media platform he controls, drawing the ire of the prime minister.`\
+https://nytimes.com/2024/08/07/business/musk-starmer-riots-britain.html
+
 **A Walzonomics Primer**\
 `Here’s how business executives and donors are evaluating Gov. Tim Walz of Minnesota, especially on taxes, labor unions, energy policy and more.`\
 https://nytimes.com/2024/08/07/business/dealbook/walz-economics-business-issues.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5684907/2024/08/07/martin-zubimendi-transfer-liverp
 **Arsenal set to sign Sweden international Kafaji from Hacken**\
 `Arsenal are set to sign Sweden international Rosa Kafaji from BK Hacken.`\
 https://nytimes.com/athletic/5686179/2024/08/07/arsenal-women-transfers-rosa-kafaji/
-
-**The Athletic FC: Postecoglou and patience, Olmo move logic, UWSNT's golden path**\
-`Today in The Athletic FC: Postecoglou and second-season syndrome, Olmo's Barca deal - does it make sense? Plus: USWNT's golden chance`\
-https://nytimes.com/athletic/5686210/2024/08/07/postecoglou-and-patience-olmo-move-logic-uwsnts-golden-path/
 
