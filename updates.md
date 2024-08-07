@@ -1,3 +1,15 @@
+**Maresca is wrong about rules forcing academy sales but his comments show how clubs think**\
+`“Some of the clubs spend more, some spend less,” said Maresca. But Chelsea spend more and that is a big reason why they sell too`\
+https://nytimes.com/athletic/5684689/2024/08/07/maresca-academy-sales-rules/
+
+**How much harm do short summer breaks cause Premier League footballers?**\
+`Time off in the summer, not even guaranteed to be three weeks, is just one of the pinch points in a much wider debate over player welfare`\
+https://nytimes.com/athletic/5683332/2024/08/07/short-summer-break-physical-mental-fatigue/
+
+**Jean-Philippe Mateta: Reborn at Crystal Palace and propelling France towards Olympic gold**\
+`The forward has maintained his prolific Premier League form from the run-in to last season to spearhead France's challenge at Paris 2024`\
+https://nytimes.com/athletic/5668886/2024/08/07/jean-philippe-mateta-reborn-at-crystal-palace-and-propelling-france-towards-olympic-gold/
+
 **More than 50 forwards signed. Over £300m spent. Is West Ham's hunt for a goalscorer over?**\
 `West Ham may have finally found their man this season in Niclas Fullkrug, but they have spent years searching for the right striker`\
 https://nytimes.com/athletic/5626066/2024/08/07/west-ham-forwards-sullivan-transfers/
