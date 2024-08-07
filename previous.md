@@ -1,3 +1,15 @@
+**Communicate Like a Sphynx**\
+`Meghan Morris makes no formal pronouncements.`\
+https://nytimes.com/2024/08/06/crosswords/daily-puzzle-2024-08-07.html
+
+**Incumbent Andrew Bailey Wins Republican Primary for Missouri A.G.**\
+`He and his challenger, Will Scharf, were both endorsed by former President Donald J. Trump.`\
+https://nytimes.com/2024/08/06/us/politics/andrew-bailey-missouri-attorney-general.html
+
+**4 Milwaukee Hotel Workers Charged With Murder in Fatal Pinning of Man**\
+`Four workers who pinned down D’vontaye Mitchell, 43, outside a Milwaukee Hyatt hotel in June were charged with murder. His family said he had been having a mental health crisis.`\
+https://nytimes.com/2024/08/06/us/dvontaye-mitchell-homicide-charges.html
+
 **Harris and Walz Hold First Campaign Rally Together**\
 `Vice President Kamala Harris and her newly announced running mate, Gov. Tim Walz of Minnesota, went on the attack against the Trump-Vance Republican ticket during a raucous rally in Philadelphia.`\
 https://nytimes.com/video/us/politics/100000009615583/harris-walz-campaign-rally.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5685560/2024/08/06/chargers-training-camp-quarterba
 **Apple Workers Approve Contract at First Union Store in U.S.**\
 `The agreement raises wages roughly 10 percent over three years and guarantees benefits and severance pay.`\
 https://nytimes.com/2024/08/06/business/economy/apple-store-union-contract.html
-
-**2 Charged With Hate Crimes in Vandalism Aimed at Museum Officials**\
-`A group of vandals splattered red paint at the home of the Brooklyn Museum’s director and others. The institution has become a target of people opposed to the war in Gaza.`\
-https://nytimes.com/2024/08/06/nyregion/brooklyn-museum-hate-crimes-charged.html
-
-**Trump Campaign’s Attacks on Walz Over Felony Voting Rights Raise Eyebrows**\
-`Critics of the former president were quick to point out that, if not for policies like the one Tim Walz signed in Minnesota, Donald Trump himself would be barred from voting.`\
-https://nytimes.com/2024/08/06/us/politics/trump-walz-felony-voting-rights.html
-
-**Georgia Board Grants Local Officials New Power Over Certifying Elections**\
-`Across the country, conservative organizations and allies of former President Donald J. Trump have sought to grant local election officials more authority over the certification process.`\
-https://nytimes.com/2024/08/06/us/politics/georgia-elections-certification.html
 

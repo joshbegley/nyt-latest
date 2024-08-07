@@ -1,3 +1,15 @@
+**Communicate Like a Sphynx**\
+`Meghan Morris makes no formal pronouncements.`\
+https://nytimes.com/2024/08/06/crosswords/daily-puzzle-2024-08-07.html
+
+**Incumbent Andrew Bailey Wins Republican Primary for Missouri A.G.**\
+`He and his challenger, Will Scharf, were both endorsed by former President Donald J. Trump.`\
+https://nytimes.com/2024/08/06/us/politics/andrew-bailey-missouri-attorney-general.html
+
+**4 Milwaukee Hotel Workers Charged With Murder in Fatal Pinning of Man**\
+`Four workers who pinned down D’vontaye Mitchell, 43, outside a Milwaukee Hyatt hotel in June were charged with murder. His family said he had been having a mental health crisis.`\
+https://nytimes.com/2024/08/06/us/dvontaye-mitchell-homicide-charges.html
+
 **Harris and Walz Hold First Campaign Rally Together**\
 `Vice President Kamala Harris and her newly announced running mate, Gov. Tim Walz of Minnesota, went on the attack against the Trump-Vance Republican ticket during a raucous rally in Philadelphia.`\
 https://nytimes.com/video/us/politics/100000009615583/harris-walz-campaign-rally.html
