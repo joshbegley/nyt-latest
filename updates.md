@@ -1,3 +1,7 @@
+**Teens and Tactics Blur in China’s Quest for Gold**\
+`A young skater’s emergence signals a pivot in the way an Olympic power defines success. But its handling of the table tennis competition suggests old expectations may persist, too.`\
+https://nytimes.com/2024/08/07/world/asia/teens-and-tactics-blur-in-chinas-quest-for-gold.html
+
 **Submit a question for our Cubs mailbag**\
 `Submit questions to Chicago writer Sahadev Sharma, who will provide some answers in an upcoming story.`\
 https://nytimes.com/athletic/5687032/2024/08/07/cubs-mailbag-questions/
