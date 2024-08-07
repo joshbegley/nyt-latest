@@ -1,3 +1,7 @@
+**For These Olympians, the Bling Is the Thing**\
+`Athletes at the Paris Olympics have been sporting some seriously high-wattage accessories. Here are nine of our favorites.`\
+https://nytimes.com/2024/08/07/style/olympians-bling-accessories.html
+
 **At Olympic skateboarding, celebs come out and good friends put on a show**\
 `Tom Schaar and Keegan Palmer vied for the gold medal Wednesday in men's park, with everyone from Snoop Dogg to Léon Marchand on hand.`\
 https://nytimes.com/athletic/5687220/2024/08/07/olympics-skateboarding-mens-park-tom-schaar-keegan-palmer/
