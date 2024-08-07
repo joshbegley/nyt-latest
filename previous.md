@@ -1,3 +1,15 @@
+**A Play About J.K. Rowling Stirred Outrage. Until It Opened.**\
+`The muted reaction to the Edinburgh Fringe show “TERF” suggests that when activists engage with potentially inflammatory art, offense can quickly vanish.`\
+https://nytimes.com/2024/08/07/theater/terf-play-rowling-edinburgh-fringe.html
+
+**Compassion Is in Short Supply at This Grief Support Group**\
+`In “Someone Spectacular,” Domenica Feraud skewers group therapy and the futility of sharing trauma in a fishbowl.`\
+https://nytimes.com/2024/08/07/theater/someone-spectacular-review.html
+
+**Canucks training-camp battles: The 7 jobs up for grabs and who could win them**\
+`As the Canucks' roster has taken shape, let's try to answer who fills what holes and why.`\
+https://nytimes.com/athletic/5683231/2024/08/07/canucks-training-camp-roster/
+
 **Projecting Nebraska's 120-player roster: WRs improve, O-line lacks depth**\
 `Wide receiver looks like the most improved position group on Nebraska's roster while the D-line looks like a top unit nationally. `\
 https://nytimes.com/athletic/5685023/2024/08/07/nebraska-football-roster-projection/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/07/world/asia/nagasaki-ceremony-japan-israel-us-amba
 **Chelsea's Gilchrist completes Sheffield United loan**\
 `Chelsea defender Alfie Gilchrist has completed a loan move to Championship side Sheffield United.`\
 https://nytimes.com/athletic/5686212/2024/08/07/alfie-gilchrist-sheffield-united-loan-chelsea/
-
-**Inside Madrid's U.S. tour: Lightning strikes, sightseeing and a warning to their rivals**\
-`Madrid's 10 days in the U.S. were strange and there were mixed results — but we learned a lot behind the scenes`\
-https://nytimes.com/athletic/5686333/2024/08/07/real-madrid-preseason-tour-us/
-
-**USMNT defender Ream completes Charlotte FC move from Fulham**\
-`USMNT defender Tim Ream has completed his move to Charlotte FC from Fulham.`\
-https://nytimes.com/athletic/5686479/2024/08/07/tim-ream-charlotte-fulham-transfer/
-
-**Francis Ngannou to make MMA return, PFL debut in October**\
-`The 6-foot-8 Ferreira is 13-3 and coming off a a 21-second TKO of Ryan Bader in February for the "PFL vs. Bellator Champion" Super Belt.`\
-https://nytimes.com/athletic/5683866/2024/08/07/francis-ngannou-mma-return-pfl-renan-ferreira-ufc/
 

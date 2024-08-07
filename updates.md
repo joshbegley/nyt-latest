@@ -1,3 +1,15 @@
+**A Play About J.K. Rowling Stirred Outrage. Until It Opened.**\
+`The muted reaction to the Edinburgh Fringe show “TERF” suggests that when activists engage with potentially inflammatory art, offense can quickly vanish.`\
+https://nytimes.com/2024/08/07/theater/terf-play-rowling-edinburgh-fringe.html
+
+**Compassion Is in Short Supply at This Grief Support Group**\
+`In “Someone Spectacular,” Domenica Feraud skewers group therapy and the futility of sharing trauma in a fishbowl.`\
+https://nytimes.com/2024/08/07/theater/someone-spectacular-review.html
+
+**Canucks training-camp battles: The 7 jobs up for grabs and who could win them**\
+`As the Canucks' roster has taken shape, let's try to answer who fills what holes and why.`\
+https://nytimes.com/athletic/5683231/2024/08/07/canucks-training-camp-roster/
+
 **Projecting Nebraska's 120-player roster: WRs improve, O-line lacks depth**\
 `Wide receiver looks like the most improved position group on Nebraska's roster while the D-line looks like a top unit nationally. `\
 https://nytimes.com/athletic/5685023/2024/08/07/nebraska-football-roster-projection/
