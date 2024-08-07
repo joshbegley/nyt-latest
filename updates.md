@@ -1,3 +1,11 @@
+**Cori Bush, ‘Squad’ Member and Vocal Critic of Israel, Loses Her Primary**\
+`Her defeat is another loss for progressives in a race defined by Democratic divisions over the war in Gaza, with pro-Israel groups pouring millions into a campaign to oust her from office.`\
+https://nytimes.com/2024/08/06/us/politics/cori-bush-wesley-bell-primary.html
+
+**Kamala Harris and ‘Coach Walz’ Ease Into Their New Partnership**\
+`A chemistry seems to be developing between Vice President Kamala Harris and her running mate, Gov. Tim Walz of Minnesota, who looks as if he cannot believe his luck.`\
+https://nytimes.com/2024/08/06/us/kamala-harris-tim-walz-partnership.html
+
 **Kamala Harris and ‘Coach Walz’ Ease Into Their New Partnership**\
 `A chemistry seems to be developing between Vice President Kamala Harris and her running mate, Gov. Tim Walz, who looks as if he cannot believe his luck.`\
 https://nytimes.com/2024/08/06/us/kamala-harris-tim-walz-partnership.html
