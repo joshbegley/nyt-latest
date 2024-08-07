@@ -1,3 +1,7 @@
+**At Olympic skateboarding, celebs come out and good friends put on a show**\
+`Tom Schaar and Keegan Palmer vied for the gold medal Wednesday in men's park, with everyone from Snoop Dogg to Léon Marchand on hand.`\
+https://nytimes.com/athletic/5687220/2024/08/07/olympics-skateboarding-mens-park-tom-schaar-keegan-palmer/
+
 **Texas RB CJ Baxter out for season after knee injury**\
 `Baxter was expected to play the lead role in the Longhorns’ backfield this season`\
 https://nytimes.com/athletic/5687219/2024/08/07/texas-cj-baxter-injury-college-football/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/07/realestate/do-you-own-a-condo-in-florida-that-req
 **Chelsea agree deal with Atletico Madrid for Omorodion, Gallagher set to travel for medical**\
 `Chelsea have agreed a £34.`\
 https://nytimes.com/athletic/5683224/2024/08/07/samu-omorodion-chelsea-transfer/
-
-**Noah Lyles advances to stacked 200m final, where a stacked field awaits**\
-`Lyles’ best in the 200 meters — which Wednesday was not — seems to be an untouchable realm. His personal best is 19.31 seconds, set in 2022.`\
-https://nytimes.com/athletic/5687201/2024/08/07/noah-lyles-200m-olympic-semifinals/
 
