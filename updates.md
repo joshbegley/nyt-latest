@@ -1,3 +1,15 @@
+**France's Finot breaks steeplechase record, proposes to boyfriend**\
+`France's Alice Finot celebrated the moment by proposing to her boyfriend in the stands with an Olympic pin.`\
+https://nytimes.com/athletic/5686890/2024/08/07/alice-finot-proposal-steeplechase-olympics/
+
+**What’s in Our Queue? I.M. Pei and More**\
+`I’m a correspondent covering technology in Asia. Here are five things I’ve recently slowed down with.`\
+https://nytimes.com/interactive/2024/08/07/arts/editors-recommendations-pei.html
+
+**The Sport Flipping, Twisting and Pushing for Respect, Smiling All the Way**\
+`Artistic swimming is a crowd-pleaser and much harder than it used to be, but it has had to make the case that it is even a sport at all.`\
+https://nytimes.com/2024/08/07/world/olympics/artistic-swimming.html
+
 **Jones: Lauri Markkanen's extension is an example of perseverance and opportunity**\
 `After a slow start to his NBA career, Markkanen, the forward, has made the most of his chances to become Utah's centerpiece.`\
 https://nytimes.com/athletic/5686067/2024/08/07/lauri-markkanen-jazz-contract-extension-meaning/
