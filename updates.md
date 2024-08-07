@@ -1,3 +1,15 @@
+**We’re Applying Lessons from Covid to Bird Flu. That’s Not Good.**\
+`America has learned all the wrong lessons from the Covid pandemic.`\
+https://nytimes.com/2024/08/07/opinion/bird-flu-covid.html
+
+**Jim Harbaugh penalized by NCAA for Michigan recruiting violations**\
+`Harbaugh, now coach of the Chargers, received a four-year show cause order after an NCAA investigation into Michigan recruiting violations.`\
+https://nytimes.com/athletic/5686930/2024/08/07/jim-harbaugh-michigan-ncaa-violations-suspension/
+
+**Grabban and Morgan return to Nottingham Forest as academy coaches**\
+`Lewis Grabban and Wes Morgan have returned to Nottingham Forest to take on roles in the academy.`\
+https://nytimes.com/athletic/5686909/2024/08/07/nottingham-forest-morgan-grabban-coached-academy/
+
 **What Causes Dangerous Inflammation in Children With Covid?**\
 `The sometimes fatal condition, MIS-C, may be driven in part by a misdirected immune system, a new study finds.`\
 https://nytimes.com/2024/08/07/health/misc-autoimmune-children.html

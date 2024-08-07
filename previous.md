@@ -1,3 +1,15 @@
+**We’re Applying Lessons from Covid to Bird Flu. That’s Not Good.**\
+`America has learned all the wrong lessons from the Covid pandemic.`\
+https://nytimes.com/2024/08/07/opinion/bird-flu-covid.html
+
+**Jim Harbaugh penalized by NCAA for Michigan recruiting violations**\
+`Harbaugh, now coach of the Chargers, received a four-year show cause order after an NCAA investigation into Michigan recruiting violations.`\
+https://nytimes.com/athletic/5686930/2024/08/07/jim-harbaugh-michigan-ncaa-violations-suspension/
+
+**Grabban and Morgan return to Nottingham Forest as academy coaches**\
+`Lewis Grabban and Wes Morgan have returned to Nottingham Forest to take on roles in the academy.`\
+https://nytimes.com/athletic/5686909/2024/08/07/nottingham-forest-morgan-grabban-coached-academy/
+
 **What Causes Dangerous Inflammation in Children With Covid?**\
 `The sometimes fatal condition, MIS-C, may be driven in part by a misdirected immune system, a new study finds.`\
 https://nytimes.com/2024/08/07/health/misc-autoimmune-children.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5686901/2024/08/07/sam-johnstone-crystal-palace-tra
 **Arab nations urge Iran to exercise restraint in responding to Hamas leader’s assassination.**\
 `By Adam Rasgon and Ben Hubbard`\
 https://nytimes.com/live/2024/08/07/world/israel-iran-hamas-gaza-war/arab-ayman-al-safadi-jordan-iran-israel
-
-**The ‘Weird’ History of Tim Walz’s Political Put-Down**\
-`Once, the word signified supernatural things. In the mouth of Kamala Harris’s running mate, weirdness is much more earthbound.`\
-https://nytimes.com/2024/08/07/arts/tim-walz-trump-weird.html
-
-**New York City Region Battered by Powerful Storm**\
-`A thunderstorm most likely made worse by Tropical Storm Debby flooded highways, forced the cancellation of hundreds of flights and caused thousands of power outages.`\
-https://nytimes.com/2024/08/07/weather/new-york-city-storm-flooding.html
-
-**Why Financial Markets Are Like Toddlers**\
-`They require infinite patience, often throw tantrums and are sometimes best ignored.`\
-https://nytimes.com/2024/08/07/opinion/why-financial-markets-are-like-toddlers.html
 
