@@ -1,40 +1,40 @@
-**Indian Wrestler Vinesh Phogat Is Disqualified From Gold Medal Match**\
-`Indian officials said she failed to make her weight class by a few grams. Last year, she was the face of a protest against a powerful Indian sports official.`\
-https://nytimes.com/2024/08/07/world/olympics/vinesh-phogat-disqualified-wrestling.html
+**A Designer Inspired by Rock Music, the Architecture of Bridges and John Waters**\
+`The Hermès women’s wear artistic director Nadège Vanhée shares her creative touchstones.`\
+https://nytimes.com/2024/08/07/t-magazine/nadege-vanhee-hermes-inspirations.html
 
-**Getting to the core of why NFL players love Pilates**\
-`The perception that Pilates isn't for big, strong men is being exploded by a steady stream of NFL players making their way to the activity.`\
-https://nytimes.com/athletic/5683925/2024/08/07/nfl-players-pilates-fitness-recovery/
+**My Grandmother’s Tortillas Were the Best. Try Them Yourself.**\
+`A little butter, honey and pickled chile de árbol turn these into the perfect snack.`\
+https://nytimes.com/2024/08/07/magazine/grandmothers-tortillas-recipe.html
 
-**Suga, of BTS, Apologizes for Riding Electric Scooter While Drunk**\
-`The artist had his driver’s license revoked and may face disciplinary action after failing a breath test, his agency said.`\
-https://nytimes.com/2024/08/07/arts/bts-suga-drunk-electric-scooter.html
+**A Necklace After Yves Saint Laurent’s Own Heart**\
+`The sweetly shaped accessory was inspired by a longtime favorite of the house’s founder.`\
+https://nytimes.com/2024/08/07/t-magazine/saint-laurent-coeur-fetiche-heart-necklace.html
 
-**Manhattan Planned Parenthood Will Stop Offering Abortions After 20 Weeks**\
-`The shift came as Planned Parenthood’s New York chapter revealed plans to close four clinics across the state, as financial issues mount.`\
-https://nytimes.com/2024/08/07/nyregion/planned-parenthood-abortions-manhattan.html
+**What Do Conspiracy Theorists Do When Proved Wrong? Double Down or Move On.**\
+`An outlandish idea that President Biden was dead or nearly dead was quickly refuted. Few of the accounts that had spread it online recanted.`\
+https://nytimes.com/2024/08/07/technology/biden-conspiracy-theories-misinformation.html
 
-**Tax Revenues From New York City Office Buildings Rise, Despite Vacancies**\
-`The assessed market value of the city’s buildings is still growing, according to a report from the state comptroller, leading to a modest increase in tax revenue.`\
-https://nytimes.com/2024/08/07/nyregion/office-buildings-value-manhattan.html
+**How to Win a Zillion Blue Ribbons? Ask the State Fair All-Stars.**\
+`They’re the home-run heroes of cooking, baking and canning. Meet seven players who dominate the competitions season after season.`\
+https://nytimes.com/2024/08/07/dining/state-fair-food.html
 
-**Capturing the Split Seconds Between Victory and Defeat**\
-`Faced with the challenge of quickly recapping Olympic events, The Times creates its own animated versions of competitions. The internet loves them.`\
-https://nytimes.com/2024/08/07/insider/olympics-coverage.html
+**Read Your Way Around Denver**\
+`Much of Colorado’s literature is about the flow of people whose imaginations, like the novelist Peter Heller’s, were ignited by myths of unbridled freedom. He recommends some favorites.`\
+https://nytimes.com/2024/08/07/books/denver-colorado-books.html
 
-**The Olympics Have a Gap That Netflix Is Trying to Fill**\
-`New seasons of documentaries about running, gymnastics and basketball are being filmed this summer as part of a partnership with the International Olympic Committee.`\
-https://nytimes.com/2024/08/07/world/olympics/netflix-documentary-sprint-simone-biles.html
+**Before Reality Became Debatable, There Was ‘The Blair Witch Project’**\
+`Twenty-five years ago, the indie horror blockbuster compelled audiences to ask, “Was that real?” The question now permeates our age of misinformation.`\
+https://nytimes.com/2024/08/07/movies/blair-witch-project-reality-anniversary.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/08/07/crosswords/spelling-bee-forum.html
+**Nguyen: 49ers, Eagles, Dolphins lead NFL skill position group top-10 rankings**\
+`Some teams' combinations of running backs, wide receivers and tight ends stand out for complementing each other so well.`\
+https://nytimes.com/athletic/5662102/2024/08/07/nfl-top-10-skill-position-groups/
 
-**Padres wait out lengthy delay before winning again as Joe Musgrove nears return**\
-`Musgrove is expected to return from a lengthy stay on the injured list in the coming days, possibly as early as this weekend.`\
-https://nytimes.com/athletic/5684532/2024/08/07/padres-pirates-delay-joe-musgrove-nears-return/
+**2025 world juniors roster projections: Pronman, Wheeler and Bultman make their picks**\
+`Who will represent Canada, USA, Sweden and Finland? The Athletic's Corey Pronman, Scott Wheeler and Max Bultman have ideas.`\
+https://nytimes.com/athletic/5683795/2024/08/07/world-juniors-roster-projection-2025/
 
-**The Briefing: Real Madrid 2 Chelsea 1 - Vinicius Jr, Rodrygo shine pre-European Super Cup**\
-`Madrid finished their pre-season tour of the U.S. in style against Chelsea. Next up, Atalanta in the European Super Cup`\
-https://nytimes.com/athletic/5685961/2024/08/07/real-madrid-chelsea-vinicius-rodrygo/
+**F1 midseason driver rankings: Young drivers ascend while veterans fight back**\
+`It's not quite a changing of the guard, but this F1 season has seen a youth movement rise to challenge the sport's best drivers. `\
+https://nytimes.com/athletic/5682586/2024/08/07/f1-drivers-midseason-rankings/
 
