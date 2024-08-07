@@ -1,3 +1,7 @@
+**How Will Howard maximized his chances to win Ohio State's QB battle**\
+`Inside the physical and mental tweaks Howard made after transferring from Kansas State to Ohio State to prepare for a summer QB battle.`\
+https://nytimes.com/athletic/5685077/2024/08/07/will-howard-ohio-state-quarterback-battle/
+
 **After privately hurting, Michigan's Donovan Edwards has his 'fire' back**\
 `After a frustrating start to 2023, Edwards hit a low point. But a strong finish and offseason have him ready to lead the Wolverines in 2024.`\
 https://nytimes.com/athletic/5677360/2024/08/07/michigan-wolverines-football-donovan-edwards/
