@@ -1,3 +1,15 @@
+**Hotel Collapse in Mosel Region of Germany Kills 2**\
+`A small hotel in the Mosel region of Germany collapsed late on Tuesday, killing two people and prompting a frantic rescue effort for guests trapped under the rubble.`\
+https://nytimes.com/video/world/europe/100000009616278/germany-hotel-collapse.html
+
+**‘Fun Midwestern Dad’ or ‘Radical’? How Media Outlets on the Left and Right Are Covering Tim Walz.**\
+`Vice President Kamala Harris’s new running mate has cultivated an Everyman persona. Progressive publications are embracing it, but conservative outlets are more skeptical.`\
+https://nytimes.com/2024/08/07/business/media/media-coverage-tim-walz.html
+
+**Do You Own a Condo in Florida That Requires Expensive Improvements? Tell Us About It.**\
+`New safety regulations will impact condo owners across Florida, some of whom may have to pay thousands of dollars for required improvements. We want to hear these stories.`\
+https://nytimes.com/2024/08/07/realestate/do-you-own-a-condo-in-florida-that-requires-expensive-improvements-tell-us-about-it.html
+
 **Chelsea agree deal with Atletico Madrid for Omorodion, Gallagher set to travel for medical**\
 `Chelsea have agreed a £34.`\
 https://nytimes.com/athletic/5683224/2024/08/07/samu-omorodion-chelsea-transfer/
