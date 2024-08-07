@@ -1,3 +1,7 @@
+**Wisconsin RBs Darrion Dupree, Dilin Jones 'don't play like they're freshmen'**\
+`Seniors Chez Mellusi and Tawee Walker lead the way, but it is becoming clear why coaches were so excited about the newcomers.`\
+https://nytimes.com/athletic/5685177/2024/08/07/wisconsin-running-backs-darrion-dupree-dilin-jones/
+
 **Vikings owners not focused on extensions for Kwesi Adofo-Mensah, Kevin O'Connell**\
 `The Vikings leadership group appears to be focused on the long term, but what will happen if the team struggles in the short term?`\
 https://nytimes.com/athletic/5685448/2024/08/07/vikings-mark-wilf-kwesi-adofo-mensah-kevin-oconnell/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/07/world/asia/thailand-move-forward-disbanded.html
 **Three Days That Rocked Japan’s Markets**\
 `The fragility of a more-than-year-long stock rally in Japan, fueled in part by a weak yen, has been exposed by the sudden strengthening of the currency.`\
 https://nytimes.com/2024/08/07/business/japan-yen-nikkei-stocks.html
-
-**Running back advanced stats that matter for fantasy football 2024, and the players who excel at them**\
-`John Laghezza looks deeply into the advanced metrics for NFL running backs, highlighting the players, like De'Von Achane, who excel at them.`\
-https://nytimes.com/athletic/5677254/2024/08/07/running-back-advanced-stats-that-matter-for-2024-and-the-players-who-excel-at-them/
 

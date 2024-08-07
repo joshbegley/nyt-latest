@@ -1,3 +1,7 @@
+**Wisconsin RBs Darrion Dupree, Dilin Jones 'don't play like they're freshmen'**\
+`Seniors Chez Mellusi and Tawee Walker lead the way, but it is becoming clear why coaches were so excited about the newcomers.`\
+https://nytimes.com/athletic/5685177/2024/08/07/wisconsin-running-backs-darrion-dupree-dilin-jones/
+
 **Vikings owners not focused on extensions for Kwesi Adofo-Mensah, Kevin O'Connell**\
 `The Vikings leadership group appears to be focused on the long term, but what will happen if the team struggles in the short term?`\
 https://nytimes.com/athletic/5685448/2024/08/07/vikings-mark-wilf-kwesi-adofo-mensah-kevin-oconnell/
