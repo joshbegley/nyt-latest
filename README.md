@@ -1,3 +1,7 @@
+**Apple Workers Approve Contract at First Union Store in U.S.**\
+`The agreement raises wages roughly 10 percent over three years and guarantees benefits and severance pay.`\
+https://nytimes.com/2024/08/06/business/economy/apple-store-union-contract.html
+
 **2 Charged With Hate Crimes in Vandalism Aimed at Museum Officials**\
 `A group of vandals splattered red paint at the home of the Brooklyn Museum’s director and others. The institution has become a target of people opposed to the war in Gaza.`\
 https://nytimes.com/2024/08/06/nyregion/brooklyn-museum-hate-crimes-charged.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/06/us/kamala-harris-vp-trump-election/former-st
 **What Minnesota Voters Think of Tim Walz**\
 `The governor succeeded in projecting an avuncular image. But not all voters are convinced that he rose above partisanship or united the state.`\
 https://nytimes.com/2024/08/06/us/tim-walz-minnesota-voters-reactions.html
-
-**Wilmer Flores undergoes knee procedure, will miss remainder of the season**\
-`Flores was arguably the Giants' best hitter last season, but he never got on track in 2024 as knee pain impacted him all year.`\
-https://nytimes.com/athletic/5685392/2024/08/06/sf-giants-wilmer-flores-knee-injury/
 
