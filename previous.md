@@ -1,3 +1,11 @@
+**Lucas Digne rejects proposal to join Galatasaray**\
+`Aston Villa defender Lucas Digne has rejected a proposal to join Galatasaray.`\
+https://nytimes.com/athletic/5686618/2024/08/07/lucas-digne-galatasaray-aston-villa/
+
+**Lakers depth chart predictions: Rui Hachimura or Jarred Vanderbilt as the fifth starter?**\
+`The Lakers' roster hasn't changed much since the end of last season. Can young players step forward and make a difference?`\
+https://nytimes.com/athletic/5619725/2024/08/07/lakers-depth-chart-rui-hachimura-jarred-vanderbilt/
+
 **Valencia appear to pull plug on Guerra's Atletico move**\
 `Valencia appear to have pulled the plug on Javi Guerra&#8217;s proposed move to Atletico Madrid.`\
 https://nytimes.com/athletic/5686489/2024/08/07/valencia-appear-to-pull-plug-on-javi-guerras-atletico-move-after-madrid-club-miss-deadline/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/07/style/children-melatonin-parental-permission.html
 **NBC wants Snoop Dogg to return for future Olympics**\
 `“Snoop has done everything and beyond what we ever expected him to do here in the Paris Games,” said NBC Sports president Rick Cordella.`\
 https://nytimes.com/athletic/5686487/2024/08/07/snoop-dogg-nbc-olympics-future/
-
-**Health Officials Urge Doctors to Address I.U.D. Insertion Pain**\
-`As videos describing the procedure as agonizing spread on social media, new guidelines advise physicians to consider various anesthetics.`\
-https://nytimes.com/2024/08/07/health/iud-insertion-pain.html
-
-**Ten days on tour with Barcelona: How Hansi Flick has looked to calm the chaos**\
-`On a football level at least, the team’s trip to the United States this summer has been a time to try to bring composure to the club`\
-https://nytimes.com/athletic/5686298/2024/08/07/barcelona-pre-season-tour-hansi-flick-calm/
 
