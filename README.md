@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5686210/2024/08/07/postecoglou-and-patience-olmo-mo
 `How concerned should the Rams be about a rash of injuries? How good has rookie Braden Fiske been in his first camp?`\
 https://nytimes.com/athletic/5685024/2024/08/07/la-rams-camp-takeaways-matthew-stafford-braden-fiske/
 
-**As Stott, Marsh try to make adjustments at plate, how will Phillies decide playing time?**\
+**As Stott, Marsh try to make adjustments, how will Phillies make playing time decisions?**\
 `Stott has lost his rhythm at the plate this season. As the Phillies scuffle, manager Rob Thomson is looking for the slightest advantage. `\
 https://nytimes.com/athletic/5685970/2024/08/07/bryson-stott-brandon-marsh-phillies-playing-time/
 
