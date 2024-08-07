@@ -1,3 +1,11 @@
+**Vance Attacks Walz’s Military Record, Accusing Him of ‘Stolen Valor’**\
+`Senator JD Vance of Ohio claimed Gov. Tim Walz on Minnesota had exaggerated his service record and quit the Army National Guard to avoid being deployed to Iraq.`\
+https://nytimes.com/2024/08/07/us/politics/vance-walz-military-record.html
+
+**Christian Watson survives injury scare and more from Packers camp**\
+`Watson suffered a knee injury on the last play of practice and stayed down for a while, but he said after practice that he should be fine.`\
+https://nytimes.com/athletic/5687377/2024/08/07/christian-watson-packers-camp/
+
 **49ers, Steelers talking Aiyuk, no deal yet**\
 `If the 49ers insist on getting a receiver back in any trade of Brandon Aiyuk, the Steelers might struggle to meet the price.`\
 https://nytimes.com/athletic/5687559/2024/08/07/49ers-brandon-aiyuk-steelers-trade-talks/

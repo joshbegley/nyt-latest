@@ -1,3 +1,11 @@
+**Vance Attacks Walz’s Military Record, Accusing Him of ‘Stolen Valor’**\
+`Senator JD Vance of Ohio claimed Gov. Tim Walz on Minnesota had exaggerated his service record and quit the Army National Guard to avoid being deployed to Iraq.`\
+https://nytimes.com/2024/08/07/us/politics/vance-walz-military-record.html
+
+**Christian Watson survives injury scare and more from Packers camp**\
+`Watson suffered a knee injury on the last play of practice and stayed down for a while, but he said after practice that he should be fine.`\
+https://nytimes.com/athletic/5687377/2024/08/07/christian-watson-packers-camp/
+
 **49ers, Steelers talking Aiyuk, no deal yet**\
 `If the 49ers insist on getting a receiver back in any trade of Brandon Aiyuk, the Steelers might struggle to meet the price.`\
 https://nytimes.com/athletic/5687559/2024/08/07/49ers-brandon-aiyuk-steelers-trade-talks/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/07/weather/charleston-flooding-debby.html
 **Taylor Swift’s Vienna Concerts Are Canceled After Terror Plot Arrests**\
 `Three shows were called off after Austrian officials arrested two men and accused them of plotting a terrorist attack, and said that one had been focused on her upcoming stadium concerts.`\
 https://nytimes.com/2024/08/07/arts/music/taylor-swift-concert-terror-plot-vienna.html
-
-**American Katie Moon overcomes down year for silver in Olympic pole vault**\
-`Moon, the defending Olympic champion, maxed out at 4.85 meters, a season’s best, to secure a silver medal.`\
-https://nytimes.com/athletic/5687119/2024/08/07/katie-moon-olympic-pole-vault-results/
-
-**Twins' Joe Ryan exits start early with right triceps tightness**\
-`Ryan’s injury could be a crushing blow for a Twins team thin on starting pitching depth.`\
-https://nytimes.com/athletic/5687334/2024/08/07/joe-ryan-injury-minnesota-twins/
 
