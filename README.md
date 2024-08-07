@@ -1,7 +1,3 @@
-**Barcelona 2 AC Milan 2 (3-4 on pens) - Casado shines again, Lewandowski's first goals**\
-`Hansi Flick's team ended their pre-season tour of the United States with another decent showing against a strong opponent`\
-https://nytimes.com/athletic/5683881/2024/08/07/barcelona-ac-milan-lewandowski-casado-flick-friendly/
-
 **The Briefing: Real Madrid 2 Chelsea 1 - Vinicius Jr, Rodrygo shine pre-European Super Cup**\
 `Madrid finished their pre-season tour of the U.S. in style against Chelsea. Next up, Atalanta in the European Super Cup`\
 https://nytimes.com/athletic/5685961/2024/08/07/real-madrid-chelsea-vinicius-rodrygo/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/08/07/opinion/venezuela-deal-political-crisis.html
 **'It's really difficult to defend against him' - analysis from Rodrigo Gomes's former coach**\
 `Vasco Seabra, who coached Rodrigo Gomes to his best season, has no doubts that the 21-year-old will rise to the challenge at Wolves`\
 https://nytimes.com/athletic/5674670/2024/08/07/rodrigo-gomes-wolves-vasco-seabra/
+
+**Cardinals bounce back as Sonny Gray rights ship, Victor Scott II hits first homer**\
+`Scott showed off the dramatic swing change he made in the minors by delivering an energy-boosting homer: "The dugout erupted."`\
+https://nytimes.com/athletic/5685660/2024/08/07/cardinals-victor-scott-sonny-gray/
 
