@@ -1,3 +1,7 @@
+**A Deal That Could Save Venezuela**\
+`A power-sharing deal may be the best way out of Venezuela’s political crisis.`\
+https://nytimes.com/2024/08/07/opinion/venezuela-deal-political-crisis.html
+
 **'It's really difficult to defend against him' - analysis from Rodrigo Gomes's former coach**\
 `Vasco Seabra, who coached Rodrigo Gomes to his best season, has no doubts that the 21-year-old will rise to the challenge at Wolves`\
 https://nytimes.com/athletic/5674670/2024/08/07/rodrigo-gomes-wolves-vasco-seabra/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5676185/2024/08/07/arsenal-right-side-combinations-
 **Leicester aren't 'Premier League-ready' - so what do they need to do in the transfer market?**\
 `New boss Steve Cooper says he wants his side to be prepared for the top flight, but they look far from that`\
 https://nytimes.com/athletic/5683611/2024/08/07/leicester-premier-league-transfer-window/
-
-**What Wrexham's return to League One means to five famous fans: 'There's a sense of justice'**\
-`Five stars of Welcome to Wrexham reveal their thoughts ahead of the new season`\
-https://nytimes.com/athletic/5671467/2024/08/07/wrexham-league-one-return-fans/
 
