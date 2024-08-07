@@ -1,3 +1,7 @@
+**Ukraine Appears to Launch Rare Cross-Border Ground Assault Into Russia**\
+`Troops and armored fighting vehicles crossed into Russia’s western Kursk region on Tuesday, according to Moscow and independent analysts. Ukrainian officials have not commented.`\
+https://nytimes.com/2024/08/07/world/europe/ukraine-russia-cross-border-assault.html
+
 **Alvarez, Gallagher, Guerra and the rest: Can Atletico Madrid afford a €200m summer spend?**\
 `La Liga's transfer spending has so far been pretty quiet - but Atletico could be about to change all that`\
 https://nytimes.com/athletic/5686015/2024/08/07/atletico-madrid-manchester-city-chelsea-transfers-alvarez-gallagher/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5674919/2024/08/07/jordan-davis-eagles-defensive-li
 **Sizing up the Chiefs' cornerback competition — the lone position battle in camp**\
 `Following the L’Jarius Sneed trade, the Chiefs are hoping to identify their best cornerback to play opposite Trent McDuffie.`\
 https://nytimes.com/athletic/5684963/2024/08/07/chiefs-cornerback-competition/
-
-**Harris Chooses Walz**\
-`A guide to the career, politics and sudden stardom of Gov. Tim Walz of Minnesota, now Vice President Kamala Harris’s running mate.`\
-https://nytimes.com/2024/08/07/podcasts/the-daily/tim-walz-vp-democrats.html
 
