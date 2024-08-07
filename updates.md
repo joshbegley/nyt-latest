@@ -1,3 +1,15 @@
+**Texas RB CJ Baxter out for season after knee injury**\
+`Baxter was expected to play the lead role in the Longhorns’ backfield this season`\
+https://nytimes.com/athletic/5687219/2024/08/07/texas-cj-baxter-injury-college-football/
+
+**Tim Walz’s Extraordinarily Ordinary Life**\
+`The governor of Minnesota hasn’t spent his life striving for the pinnacle of politics. That is how he got there.`\
+https://nytimes.com/2024/08/07/us/politics/tim-walz-kamala-harris-campaign-2024.html
+
+**Submit a question for Jared Weiss’ Celtics mailbag**\
+`<p>Even though it’s deep in the offseason, some of the Celtics’ star players are still on the floor as Team USA makes a run for an Olympic gold medal.`\
+https://nytimes.com/athletic/5687175/2024/08/07/celtics-mailbag-offseason/
+
 **Submit a question for Jared Weiss’ Celtics mailbag**\
 `<p>Even though it’s deep in the offseason, the Celtics’ star players are still on the floor as Team USA makes a run for an Olympic gold medal.`\
 https://nytimes.com/athletic/5687175/2024/08/07/celtics-mailbag-offseason/

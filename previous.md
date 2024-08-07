@@ -1,5 +1,13 @@
+**Texas RB CJ Baxter out for season after knee injury**\
+`Baxter was expected to play the lead role in the Longhorns’ backfield this season`\
+https://nytimes.com/athletic/5687219/2024/08/07/texas-cj-baxter-injury-college-football/
+
+**Tim Walz’s Extraordinarily Ordinary Life**\
+`The governor of Minnesota hasn’t spent his life striving for the pinnacle of politics. That is how he got there.`\
+https://nytimes.com/2024/08/07/us/politics/tim-walz-kamala-harris-campaign-2024.html
+
 **Submit a question for Jared Weiss’ Celtics mailbag**\
-`<p>Even though it’s deep in the offseason, the Celtics’ star players are still on the floor as Team USA makes a run for an Olympic gold medal.`\
+`<p>Even though it’s deep in the offseason, some of the Celtics’ star players are still on the floor as Team USA makes a run for an Olympic gold medal.`\
 https://nytimes.com/athletic/5687175/2024/08/07/celtics-mailbag-offseason/
 
 **NASA Says Boeing Starliner Astronauts May Fly Home on SpaceX in 2025**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5683224/2024/08/07/samu-omorodion-chelsea-transfer/
 **Noah Lyles advances to stacked 200m final, where a stacked field awaits**\
 `Lyles’ best in the 200 meters — which Wednesday was not — seems to be an untouchable realm. His personal best is 19.31 seconds, set in 2022.`\
 https://nytimes.com/athletic/5687201/2024/08/07/noah-lyles-200m-olympic-semifinals/
-
-**Teens and Tactics Blur in China’s Quest for Gold**\
-`A young skater’s emergence signals a pivot in the way an Olympic power defines success. But its handling of the table tennis competition suggests old expectations may persist, too.`\
-https://nytimes.com/2024/08/07/world/asia/teens-and-tactics-blur-in-chinas-quest-for-gold.html
-
-**Submit a question for our Cubs mailbag**\
-`Submit questions to Chicago writer Sahadev Sharma, who will provide some answers in an upcoming story.`\
-https://nytimes.com/athletic/5687032/2024/08/07/cubs-mailbag-questions/
 
