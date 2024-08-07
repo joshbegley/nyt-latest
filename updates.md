@@ -1,3 +1,11 @@
+**Green Day Comes Around, Celebrating Two Album Anniversaries**\
+`The long-running California punk band brought a show focused on two classic LPs and a new release to New York, and multiple generations turned out for the spectacle.`\
+https://nytimes.com/2024/08/07/arts/music/green-day-saviors-tour-photos.html
+
+**Thursday Briefing: Antiracism Protesters Gather in Britain**\
+`Plus, China’s quest for Olympic gold shifts gears.`\
+https://nytimes.com/2024/08/07/briefing/britain-antiracism-protests-us-presidential-election-great-barrier-reef.html
+
 **The United States presses Hamas’s new political chief to accept the latest cease-fire proposal.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/08/07/world/israel-iran-hamas-gaza-war/the-united-states-presses-hamass-new-political-chief-to-accept-the-latest-cease-fire-proposal
