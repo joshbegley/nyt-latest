@@ -1,3 +1,7 @@
+**Chelsea agree deal with Atletico Madrid for Omorodion, Gallagher set to travel for medical**\
+`Chelsea have agreed a £34.`\
+https://nytimes.com/athletic/5683224/2024/08/07/samu-omorodion-chelsea-transfer/
+
 **Noah Lyles advances to stacked 200m final, where a stacked field awaits**\
 `Lyles’ best in the 200 meters — which Wednesday was not — seems to be an untouchable realm. His personal best is 19.31 seconds, set in 2022.`\
 https://nytimes.com/athletic/5687201/2024/08/07/noah-lyles-200m-olympic-semifinals/

@@ -1,4 +1,4 @@
-**Chelsea agree deal with Atletico Madrid for Omorodion, Gallagher set for medical**\
+**Chelsea agree deal with Atletico Madrid for Omorodion, Gallagher set to travel for medical**\
 `Chelsea have agreed a £34.`\
 https://nytimes.com/athletic/5683224/2024/08/07/samu-omorodion-chelsea-transfer/
 
