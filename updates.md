@@ -1,3 +1,11 @@
+**The ‘Weird’ History of Tim Walz’s Political Put-Down**\
+`Once, the word signified supernatural things. In the mouth of Kamala Harris’s running mate, weirdness is much more earthbound.`\
+https://nytimes.com/2024/08/07/arts/tim-walz-trump-weird.html
+
+**New York City Region Battered by Powerful Storm**\
+`A thunderstorm most likely made worse by Tropical Storm Debby flooded highways, forced the cancellation of hundreds of flights and caused thousands of power outages.`\
+https://nytimes.com/2024/08/07/weather/new-york-city-storm-flooding.html
+
 **Why Financial Markets Are Like Toddlers**\
 `They require infinite patience, often throw tantrums and are sometimes best ignored.`\
 https://nytimes.com/2024/08/07/opinion/why-financial-markets-are-like-toddlers.html
