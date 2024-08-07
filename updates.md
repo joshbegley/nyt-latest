@@ -1,3 +1,7 @@
+**Palace prepared to sanction Johnstone departure**\
+`Crystal Palace are prepared to sanction the departure of Sam Johnstone if suitable offers arrive after the goalkeeper asked to leave Selhurst Park.`\
+https://nytimes.com/athletic/5686901/2024/08/07/sam-johnstone-crystal-palace-transfer/
+
 **Arab nations urge Iran to exercise restraint in retaliatory strike against Israel.**\
 `By Adam Rasgon and Ben Hubbard`\
 https://nytimes.com/live/2024/08/07/world/israel-iran-hamas-gaza-war/arab-ayman-al-safadi-jordan-iran-israel
