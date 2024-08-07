@@ -1,3 +1,11 @@
+**'It's really difficult to defend against him' - analysis from Rodrigo Gomes's former coach**\
+`Vasco Seabra, who coached Rodrigo Gomes to his best season, has no doubts that the 21-year-old will rise to the challenge at Wolves`\
+https://nytimes.com/athletic/5674670/2024/08/07/rodrigo-gomes-wolves-vasco-seabra/
+
+**Cardinals bounce back as Sonny Gray rights ship, Victor Scott II hits first homer**\
+`Scott showed off the dramatic swing change he made in the minors by delivering an energy-boosting homer: "The dugout erupted."`\
+https://nytimes.com/athletic/5685660/2024/08/07/cardinals-victor-scott-sonny-gray/
+
 **Buckley: Billy Bean left us too soon — on the field and off**\
 `As MLB mourns Bean, we’re left to wonder what kind of career he might have had without the burden of hiding his true self.`\
 https://nytimes.com/athletic/5685779/2024/08/07/billy-bean-death-mlb-padres-dodgers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5683611/2024/08/07/leicester-premier-league-transfe
 **What Wrexham's return to League One means to five famous fans: 'There's a sense of justice'**\
 `Five stars of Welcome to Wrexham reveal their thoughts ahead of the new season`\
 https://nytimes.com/athletic/5671467/2024/08/07/wrexham-league-one-return-fans/
-
-**Maresca is wrong about rules forcing academy sales but his comments show how clubs think**\
-`“Some of the clubs spend more, some spend less,” said Maresca. But Chelsea spend more and that is a big reason why they sell too`\
-https://nytimes.com/athletic/5684689/2024/08/07/maresca-academy-sales-rules/
-
-**How much harm do short summer breaks cause Premier League footballers?**\
-`Time off in the summer, not even guaranteed to be three weeks, is just one of the pinch points in a much wider debate over player welfare`\
-https://nytimes.com/athletic/5683332/2024/08/07/short-summer-break-physical-mental-fatigue/
 
