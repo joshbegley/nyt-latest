@@ -1,3 +1,7 @@
+**Teens and Tactics Blur in China’s Quest for Gold**\
+`A young skater’s emergence signals a pivot in the way an Olympic power defines success. But its handling of the table tennis competition suggests old expectations may persist, too.`\
+https://nytimes.com/2024/08/07/world/asia/teens-and-tactics-blur-in-chinas-quest-for-gold.html
+
 **Submit a question for our Cubs mailbag**\
 `Submit questions to Chicago writer Sahadev Sharma, who will provide some answers in an upcoming story.`\
 https://nytimes.com/athletic/5687032/2024/08/07/cubs-mailbag-questions/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/08/07/arts/music/missy-elliott-out-of-this-
 **Who Is Wesley Bell, the Prosecutor Who Ousted ‘Squad’ Member Cori Bush?**\
 `The House primary between rival progressives in Missouri was influenced by heavy spending from pro-Israel groups, who backed Mr. Bell.`\
 https://nytimes.com/2024/08/07/us/politics/who-is-wesley-bell.html
-
-**As Iran Braces for War, Its Citizens Are Kept in the Dark**\
-`Iranians say they have not been told how to prepare should broad hostilities break out between their country and Israel.`\
-https://nytimes.com/2024/08/07/world/middleeast/iran-israel-war.html
 
