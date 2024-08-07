@@ -2,10 +2,6 @@
 `Over the past few days, the billionaire has posted incendiary comments about violent protests on the social media platform he controls, drawing the ire of the prime minister.`\
 https://nytimes.com/2024/08/07/business/musk-starmer-riots-britain.html
 
-**Dept. of Justice being asked to investigate Disney, Fox, Warner Bros joint venture**\
-`Venu Sports is slated to begin soon at a rate of $42.99 per month.`\
-https://nytimes.com/athletic/5685739/2024/08/07/dept-of-justice-disney-fox-warner-bros-tnt/
-
 **A Walzonomics Primer**\
 `Here’s how business executives and donors are evaluating Gov. Tim Walz of Minnesota, especially on taxes, labor unions, energy policy and more.`\
 https://nytimes.com/2024/08/07/business/dealbook/walz-economics-business-issues.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5682468/2024/08/07/kings-lineup-2024-25/
 **Liverpool exploring Zubimendi deal**\
 `Liverpool are exploring a deal to sign Martin Zubimendi of Real Sociedad as they work to strengthen Arne Slot’s squad with a new No 6.`\
 https://nytimes.com/athletic/5684907/2024/08/07/martin-zubimendi-transfer-liverpool/
+
+**Arsenal set to sign Sweden international Kafaji from Hacken**\
+`Arsenal are set to sign Sweden international Rosa Kafaji from BK Hacken.`\
+https://nytimes.com/athletic/5686179/2024/08/07/arsenal-women-transfers-rosa-kafaji/
 

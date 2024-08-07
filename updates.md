@@ -1,3 +1,7 @@
+**Dept. of Justice being asked to investigate Disney, Fox, Warner Bros joint venture**\
+`Venu Sports is slated to begin soon at a rate of $42.99 per month.`\
+https://nytimes.com/athletic/5685739/2024/08/07/dept-of-justice-disney-fox-warner-bros-tnt/
+
 **Elon Musk Clashes With Keir Starmer Over Riots in Britain**\
 `Over the past few days, the billionaire has posted incendiary comments about violent protests on the social media platform he controls, drawing the ire of the prime minister.`\
 https://nytimes.com/2024/08/07/business/musk-starmer-riots-britain.html
