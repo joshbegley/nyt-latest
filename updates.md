@@ -1,3 +1,15 @@
+**USMNT defender Ream completes Charlotte FC move from Fulham**\
+`USMNT defender Tim Ream has completed his move to Charlotte FC from Fulham.`\
+https://nytimes.com/athletic/5686479/2024/08/07/tim-ream-charlotte-fulham-transfer/
+
+**Francis Ngannou to make MMA return, PFL debut in October**\
+`The 6-foot-8 Ferreira is 13-3 and coming off a a 21-second TKO of Ryan Bader in February for the "PFL vs. Bellator Champion" Super Belt.`\
+https://nytimes.com/athletic/5683866/2024/08/07/francis-ngannou-mma-return-pfl-renan-ferreira-ufc/
+
+**How Could My Friend Give My Child Melatonin Without My Permission?**\
+`A reader was shocked and infuriated when she wasn’t consulted before her 10-year-old was given a melatonin supplement at a sleepover.`\
+https://nytimes.com/2024/08/07/style/children-melatonin-parental-permission.html
+
 **Health Officials Urge Doctors to Address I.U.D. Insertion Pain**\
 `As videos describing the procedure as agonizing spread on social media, new guidelines advise physicians to consider various anesthetics.`\
 https://nytimes.com/2024/08/07/health/iud-insertion-pain.html
