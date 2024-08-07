@@ -1,3 +1,7 @@
+**Four takeaways on Mark Shapiro's assessment of a disappointing Blue Jays' season**\
+`Shapiro plans to have a contending club in 2025, though he didn't commit firmly to a direction. “It's important to get better and win.”`\
+https://nytimes.com/athletic/5687849/2024/08/07/blue-jays-takeaways-mark-shapiro-season-assessment/
+
 **Bengals' fights a sign of edgier version of the team? They're at least worth noting**\
 `A series of skirmishes Wednesday could have been a product of the heat, but also might be a sign of extra competitive fire this season.`\
 https://nytimes.com/athletic/5687826/2024/08/07/bengals-training-camp-fights/

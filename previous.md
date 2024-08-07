@@ -1,3 +1,7 @@
+**Four takeaways on Mark Shapiro's assessment of a disappointing Blue Jays' season**\
+`Shapiro plans to have a contending club in 2025, though he didn't commit firmly to a direction. “It's important to get better and win.”`\
+https://nytimes.com/athletic/5687849/2024/08/07/blue-jays-takeaways-mark-shapiro-season-assessment/
+
 **James Cook's ball security needs cleaning up, and more from Bills camp**\
 `Plus, offensive line depth continues to be a question, and Josh Allen's offense sputters after strong start.`\
 https://nytimes.com/athletic/5687304/2024/08/07/buffalo-bills-training-camp-james-cook-marquez-valdes-scantling/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5687833/2024/08/07/seahawks-fight-dk-metcalf-helmet
 **Warner Bros. Discovery Takes $9 Billion Write-Down on Cable Networks**\
 `David Zaslav, the company’s chief executive, said the accounting change was an acknowledgment of the pressures facing traditional media.`\
 https://nytimes.com/2024/08/07/business/warner-bros-discovery-sports-write-down.html
-
-**Arab and Western Nations Urge Restraint as Israel-Iran Tensions Simmer**\
-`Trying to head off a Middle East war, several countries are pressing Iran to temper its retaliation for the assassination of a Hamas leader in Tehran.`\
-https://nytimes.com/2024/08/07/world/middleeast/iran-israel-retaliation.html
 
