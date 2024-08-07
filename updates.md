@@ -1,3 +1,7 @@
+**Projecting Nebraska's 120-player roster: WRs improve, O-line lacks depth**\
+`Wide receiver looks like the most improved position group on Nebraska's roster while the D-line looks like a top unit nationally. `\
+https://nytimes.com/athletic/5685023/2024/08/07/nebraska-football-roster-projection/
+
 **Patriots’ failed Brandon Aiyuk pursuit highlights difficulties of NFL rebuild**\
 `Until the Patriots prove their head coach is worth playing for and their young quarterback can be the guy, it could be a long rebuild.`\
 https://nytimes.com/athletic/5686569/2024/08/07/patriots-brandon-aiyuk-trade/
