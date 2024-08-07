@@ -1,3 +1,15 @@
+**30 Months After Their Games Ended, U.S. Figure Skaters Get Golds**\
+`In a ceremony in Paris, the American team received the medals they won after the Russian team, featuring Kamila Valieva, was disqualified.`\
+https://nytimes.com/2024/08/07/world/olympics/30-months-after-their-games-ended-us-figure-skaters-get-golds.html
+
+**U.S. Olympic figure skaters receive gold medals in Paris after 912-day delay**\
+`The 2022 U.S. Olympic figure skaters waited 2 1/2 years to get their gold medals for the team performance at the Beijing Games.`\
+https://nytimes.com/athletic/5686988/2024/08/07/usa-figure-skaters-gold-beijing-olympics/
+
+**As Biden’s Presidency Wanes, U.S. and Asian Nations Do a Delicate Dance**\
+`On an epic trip, Secretary of State Antony J. Blinken tried to reassure Asian leaders about American commitments. But China remains the enduring backyard behemoth.`\
+https://nytimes.com/2024/08/07/us/politics/biden-asia-china-blinken.html
+
 **France's Finot breaks steeplechase record, proposes to boyfriend**\
 `France's Alice Finot celebrated the moment by proposing to her boyfriend in the stands with an Olympic pin.`\
 https://nytimes.com/athletic/5686890/2024/08/07/alice-finot-proposal-steeplechase-olympics/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5686957/2024/08/07/russell-wilson-wont-play-in-pres
 **Connie Chiume, 72, Dies; ‘Black Panther’ Actor Bridged S. Africa Eras**\
 `Her career began during apartheid and outlived it, reaching a personal milestone in a blockbuster movie and its sequel.`\
 https://nytimes.com/2024/08/07/world/africa/connie-chiume-dead.html
-
-**As War in Ukraine Persists, Where Is a Conductor’s Red Line?**\
-`Teodor Currentzis, whose MusicAeterna receives funding from a Russian state bank, has eluded censure at the prestigious Salzburg Festival.`\
-https://nytimes.com/2024/08/07/arts/music/currentzis-conductor-ukraine-war.html
-
-**Scoop City: Aiyuk's 3 potential teams**\
-`With the Patriots out of the running, three remaining scenarios for Brandon Aiyuk.`\
-https://nytimes.com/athletic/5686962/2024/08/07/aiyuk-trade-landing-spots-scoop-city/
-
-**Some Gazans worry that Sinwar’s rise could mean a cease-fire is further away.**\
-`By Bilal Shbair and Hiba Yazbek`\
-https://nytimes.com/live/2024/08/07/world/israel-iran-hamas-gaza-war/some-gazans-worry-that-sinwars-rise-could-mean-a-cease-fire-is-further-away
 
