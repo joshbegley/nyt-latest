@@ -1,3 +1,7 @@
+**Arsenal set to sign Sweden international Kafaji from Hacken**\
+`Arsenal are set to sign Sweden international Rosa Kafaji from BK Hacken.`\
+https://nytimes.com/athletic/5686179/2024/08/07/arsenal-women-transfers-rosa-kafaji/
+
 **The Athletic FC: Postecoglou and patience, Olmo move logic, UWSNT's golden path**\
 `Today in The Athletic FC: Postecoglou and second-season syndrome, Olmo's Barca deal - does it make sense? Plus: USWNT's golden chance`\
 https://nytimes.com/athletic/5686210/2024/08/07/postecoglou-and-patience-olmo-move-logic-uwsnts-golden-path/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/5686210/2024/08/07/postecoglou-and-patience-olmo-mo
 `How concerned should the Rams be about a rash of injuries? How good has rookie Braden Fiske been in his first camp?`\
 https://nytimes.com/athletic/5685024/2024/08/07/la-rams-camp-takeaways-matthew-stafford-braden-fiske/
 
-**As Stott, Marsh try to make adjustments, how will Phillies make playing time decisions?**\
+**As Stott, Marsh try to make adjustments at plate, how will Phillies decide playing time?**\
 `Stott has lost his rhythm at the plate this season. As the Phillies scuffle, manager Rob Thomson is looking for the slightest advantage. `\
 https://nytimes.com/athletic/5685970/2024/08/07/bryson-stott-brandon-marsh-phillies-playing-time/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/07/health/gamers-twitch-mental-health.html
 **Rodri and Morata banned over 'Gibraltar is Spanish' chants**\
 `Alvaro Morata and Rodri have been given one-match bans by UEFA for misconduct during Spain&#8217;s European Championship winners&#8217; parade in Madrid.`\
 https://nytimes.com/athletic/5686258/2024/08/07/rodri-morata-gibraltar-chant-ban/
-
-**Disney’s Parks Struggle, Exposing a New Trouble Spot**\
-`Companywide profit increased, the result of hit movies and streaming growth. But Disney said softening theme park demand “could impact the next few quarters.”`\
-https://nytimes.com/2024/08/07/business/media/disney-earnings-parks.html
 

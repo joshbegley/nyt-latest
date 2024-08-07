@@ -1,3 +1,11 @@
+**Arsenal set to sign Sweden international Kafaji from Hacken**\
+`Arsenal are set to sign Sweden international Rosa Kafaji from BK Hacken.`\
+https://nytimes.com/athletic/5686179/2024/08/07/arsenal-women-transfers-rosa-kafaji/
+
+**As Stott, Marsh try to make adjustments at plate, how will Phillies decide playing time?**\
+`Stott has lost his rhythm at the plate this season. As the Phillies scuffle, manager Rob Thomson is looking for the slightest advantage. `\
+https://nytimes.com/athletic/5685970/2024/08/07/bryson-stott-brandon-marsh-phillies-playing-time/
+
 **The Athletic FC: Postecoglou and patience, Olmo move logic, UWSNT's golden path**\
 `Today in The Athletic FC: Postecoglou and second-season syndrome, Olmo's Barca deal - does it make sense? Plus: USWNT's golden chance`\
 https://nytimes.com/athletic/5686210/2024/08/07/postecoglou-and-patience-olmo-move-logic-uwsnts-golden-path/
