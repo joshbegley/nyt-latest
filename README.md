@@ -1,3 +1,7 @@
+**U.S. Ambassador to Skip Peace Ceremony in Japan Over Israel’s Omission**\
+`The American and British ambassadors to Japan said they would not attend an event to mark the atomic bomb strike in Nagasaki because Israel’s ambassador was excluded.`\
+https://nytimes.com/2024/08/07/world/asia/nagasaki-ceremony-japan-israel-us-ambassador.html
+
 **Chelsea's Gilchrist completes Sheffield United loan**\
 `Chelsea defender Alfie Gilchrist has completed a loan move to Championship side Sheffield United.`\
 https://nytimes.com/athletic/5686212/2024/08/07/alfie-gilchrist-sheffield-united-loan-chelsea/
@@ -18,6 +22,10 @@ https://nytimes.com/athletic/5683866/2024/08/07/francis-ngannou-mma-return-pfl-r
 `A reader was shocked and infuriated when she wasn’t consulted before her 10-year-old was given a melatonin supplement at a sleepover.`\
 https://nytimes.com/2024/08/07/style/children-melatonin-parental-permission.html
 
+**NBC wants Snoop Dogg to return for future Olympics**\
+`“Snoop has done everything and beyond what we ever expected him to do here in the Paris Games,” said NBC Sports president Rick Cordella.`\
+https://nytimes.com/athletic/5686487/2024/08/07/snoop-dogg-nbc-olympics-future/
+
 **Health Officials Urge Doctors to Address I.U.D. Insertion Pain**\
 `As videos describing the procedure as agonizing spread on social media, new guidelines advise physicians to consider various anesthetics.`\
 https://nytimes.com/2024/08/07/health/iud-insertion-pain.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5686298/2024/08/07/barcelona-pre-season-tour-hansi-
 **Elon Musk Clashes With Keir Starmer Over Riots in Britain**\
 `Over the past few days, the billionaire has posted incendiary comments about violent protests on the social media platform he controls, drawing the ire of the prime minister.`\
 https://nytimes.com/2024/08/07/business/musk-starmer-riots-uk.html
-
-**Dept. of Justice being asked to investigate Disney, Fox, Warner Bros joint venture**\
-`Venu Sports is slated to begin soon at a rate of $42.99 per month.`\
-https://nytimes.com/athletic/5685739/2024/08/07/dept-of-justice-disney-fox-warner-bros-tnt/
-
-**A Walzonomics Primer**\
-`Here’s how business executives and donors are evaluating Gov. Tim Walz of Minnesota, especially on taxes, labor unions, energy policy and more.`\
-https://nytimes.com/2024/08/07/business/dealbook/walz-economics-business-issues.html
 
