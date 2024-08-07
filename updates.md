@@ -1,3 +1,11 @@
+**Ann Abadie, Champion of Southern Studies, Is Dead at 84**\
+`The longtime associate director of the Center for the Study of Southern Culture at the University of Mississippi, she also edited more than 50 books about the South.`\
+https://nytimes.com/2024/08/07/us/ann-abadie-dead.html
+
+**Three takeaways from the Giants trade deadline, 1 week later**\
+`With the benefit of a week of hindsight, some of the Giants’ deadline decisions make more sense.`\
+https://nytimes.com/athletic/5685930/2024/08/07/sf-giants-trade-deadline-takeaways/
+
 **Colts WR Josh Downs sustains ankle injury, could miss 4-6 weeks**\
 `Last year, Downs broke the Colts' single-season rookie record with 68 catches for 771 yards and two touchdowns.`\
 https://nytimes.com/athletic/5687070/2024/08/07/colts-josh-downs-ankle-injury/
