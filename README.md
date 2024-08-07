@@ -1,3 +1,15 @@
+**The United States presses Hamas’s new political chief to accept the latest cease-fire proposal.**\
+`By Peter Baker`\
+https://nytimes.com/live/2024/08/07/world/israel-iran-hamas-gaza-war/the-united-states-presses-hamass-new-political-chief-to-accept-the-latest-cease-fire-proposal
+
+**Wisconsin's Tyler Van Dyke making strides as QB battle continues: Preseason camp notes**\
+`Tyler Van Dyke's mobility is improving, head coach Luke Fickell said, but Braedyn Locke continues to push him in the battle for QB1.`\
+https://nytimes.com/athletic/5687462/2024/08/07/wisconsin-college-football-preseason-quarterbacks/
+
+**Real Sociedad expect Martin Zubimendi to agree Liverpool move**\
+`Real Sociedad expect midfielder Martin Zubimendi to agree a move to Liverpool.`\
+https://nytimes.com/athletic/5687568/2024/08/07/liverpool-zubimendi-agree-real-sociedad-transfer/
+
 **Charleston Exhales After a ‘Really Close Call’ With Dangerous Flooding**\
 `The historic coastal city floods easily, but officials have upgraded infrastructure in recent years to try to prevent the worst.`\
 https://nytimes.com/2024/08/07/weather/charleston-flooding-debby.html
@@ -10,7 +22,7 @@ https://nytimes.com/2024/08/07/arts/music/taylor-swift-concert-terror-plot-vienn
 `Moon, the defending Olympic champion, maxed out at 4.85 meters, a season’s best, to secure a silver medal.`\
 https://nytimes.com/athletic/5687119/2024/08/07/katie-moon-olympic-pole-vault-results/
 
-**Twins' Joe Ryan exits start early with right tricep tightness**\
+**Twins' Joe Ryan exits start early with right triceps tightness**\
 `Ryan’s injury could be a crushing blow for a Twins team thin on starting pitching depth.`\
 https://nytimes.com/athletic/5687334/2024/08/07/joe-ryan-injury-minnesota-twins/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5687451/2024/08/07/lamecha-girma-olympics-steeplech
 **JD Vance and Tim Walz Find Common Ground: Diet Mountain Dew**\
 `The citrusy soft drink was briefly a political hot button, but it turns out both parties have prominent devotees — and the heartland is the key.`\
 https://nytimes.com/2024/08/07/dining/drinks/jd-vance-tim-walz-diet-mountain-dew.html
-
-**Harris and Walz Roll Into the Midwest, Trying to Claw Back Rural Support**\
-`At a big rally in Eau Claire, Wis., before a visit to Detroit, Kamala Harris and Tim Walz pushed their economic message, laid his Midwestern background on thick and warned of a second Trump term.`\
-https://nytimes.com/2024/08/07/us/politics/harris-walz-rural-voters-midwest.html
-
-**Ann Abadie, Champion of Southern Studies, Is Dead at 84**\
-`The longtime associate director of the Center for the Study of Southern Culture at the University of Mississippi, she also edited more than 50 books about the South.`\
-https://nytimes.com/2024/08/07/us/ann-abadie-dead.html
-
-**Colts WR Josh Downs sustains ankle injury, could miss 4-6 weeks**\
-`Last year, Downs broke the Colts' single-season rookie record with 68 catches for 771 yards and two touchdowns.`\
-https://nytimes.com/athletic/5687070/2024/08/07/colts-josh-downs-ankle-injury/
 
