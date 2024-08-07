@@ -1,3 +1,7 @@
+**Valencia appear to pull plug on Guerra's Atletico move**\
+`Valencia appear to have pulled the plug on Javi Guerra&#8217;s proposed move to Atletico Madrid.`\
+https://nytimes.com/athletic/5686489/2024/08/07/valencia-appear-to-pull-plug-on-javi-guerras-atletico-move-after-madrid-club-miss-deadline/
+
 **U.S. Ambassador to Skip Peace Ceremony in Japan Over Israel’s Omission**\
 `The American and British ambassadors to Japan said they would not attend an event to mark the atomic bomb strike in Nagasaki because Israel’s ambassador was excluded.`\
 https://nytimes.com/2024/08/07/world/asia/nagasaki-ceremony-japan-israel-us-ambassador.html

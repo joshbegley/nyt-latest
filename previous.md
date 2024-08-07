@@ -1,3 +1,7 @@
+**Valencia appear to pull plug on Guerra's Atletico move**\
+`Valencia appear to have pulled the plug on Javi Guerra&#8217;s proposed move to Atletico Madrid.`\
+https://nytimes.com/athletic/5686489/2024/08/07/valencia-appear-to-pull-plug-on-javi-guerras-atletico-move-after-madrid-club-miss-deadline/
+
 **U.S. Ambassador to Skip Peace Ceremony in Japan Over Israel’s Omission**\
 `The American and British ambassadors to Japan said they would not attend an event to mark the atomic bomb strike in Nagasaki because Israel’s ambassador was excluded.`\
 https://nytimes.com/2024/08/07/world/asia/nagasaki-ceremony-japan-israel-us-ambassador.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/07/health/iud-insertion-pain.html
 **Ten days on tour with Barcelona: How Hansi Flick has looked to calm the chaos**\
 `On a football level at least, the team’s trip to the United States this summer has been a time to try to bring composure to the club`\
 https://nytimes.com/athletic/5686298/2024/08/07/barcelona-pre-season-tour-hansi-flick-calm/
-
-**Elon Musk Clashes With Keir Starmer Over Riots in Britain**\
-`Over the past few days, the billionaire has posted incendiary comments about violent protests on the social media platform he controls, drawing the ire of the prime minister.`\
-https://nytimes.com/2024/08/07/business/musk-starmer-riots-uk.html
 
