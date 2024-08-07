@@ -1,3 +1,7 @@
+**Projecting Nebraska's 120-player roster: WRs improve, O-line lacks depth**\
+`Wide receiver looks like the most improved position group on Nebraska's roster while the D-line looks like a top unit nationally. `\
+https://nytimes.com/athletic/5685023/2024/08/07/nebraska-football-roster-projection/
+
 **Marta’s legacy is defiance, hunger and joy. But how will it end at the Olympics?**\
 `Marta will go down as one of the greatest to ever play. Her international career comes to an end in the Olympic final against the U.S. `\
 https://nytimes.com/athletic/5671350/2024/08/07/marta-brazil-olympics-legacy/

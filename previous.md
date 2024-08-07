@@ -1,3 +1,7 @@
+**Projecting Nebraska's 120-player roster: WRs improve, O-line lacks depth**\
+`Wide receiver looks like the most improved position group on Nebraska's roster while the D-line looks like a top unit nationally. `\
+https://nytimes.com/athletic/5685023/2024/08/07/nebraska-football-roster-projection/
+
 **Marta’s legacy is defiance, hunger and joy. But how will it end at the Olympics?**\
 `Marta will go down as one of the greatest to ever play. Her international career comes to an end in the Olympic final against the U.S. `\
 https://nytimes.com/athletic/5671350/2024/08/07/marta-brazil-olympics-legacy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5686479/2024/08/07/tim-ream-charlotte-fulham-transf
 **Francis Ngannou to make MMA return, PFL debut in October**\
 `The 6-foot-8 Ferreira is 13-3 and coming off a a 21-second TKO of Ryan Bader in February for the "PFL vs. Bellator Champion" Super Belt.`\
 https://nytimes.com/athletic/5683866/2024/08/07/francis-ngannou-mma-return-pfl-renan-ferreira-ufc/
-
-**How Could My Friend Give My Child Melatonin Without My Permission?**\
-`A reader was shocked and infuriated when she wasn’t consulted before her 10-year-old was given a melatonin supplement at a sleepover.`\
-https://nytimes.com/2024/08/07/style/children-melatonin-parental-permission.html
 
