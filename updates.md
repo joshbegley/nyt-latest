@@ -1,3 +1,7 @@
+**Warner Bros. Discovery Takes $9 Billion Write-Down on Cable Networks**\
+`David Zaslav, the company’s chief executive, said the accounting change was an acknowledgment of the pressures facing traditional media.`\
+https://nytimes.com/2024/08/07/business/warner-bros-discovery-sports-write-down.html
+
 **Arab and Western Nations Urge Restraint as Israel-Iran Tensions Simmer**\
 `Trying to head off a Middle East war, several countries are pressing Iran to temper its retaliation for the assassination of a Hamas leader in Tehran.`\
 https://nytimes.com/2024/08/07/world/middleeast/iran-israel-retaliation.html
