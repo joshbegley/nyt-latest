@@ -1,3 +1,7 @@
+**Liverpool exploring Zubimendi deal**\
+`Liverpool are exploring a deal to sign Martin Zubimendi of Real Sociedad as they work to strengthen Arne Slot’s squad with a new No 6.`\
+https://nytimes.com/athletic/5684907/2024/08/07/martin-zubimendi-transfer-liverpool/
+
 **Arsenal set to sign Sweden international Kafaji from Hacken**\
 `Arsenal are set to sign Sweden international Rosa Kafaji from BK Hacken.`\
 https://nytimes.com/athletic/5686179/2024/08/07/arsenal-women-transfers-rosa-kafaji/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/07/business/media/new-york-times-earnings.html
 **The Gamer and the Psychiatrist**\
 `Did Dr. Alok Kanojia's livestreamed conversations with a troubled video game champion cross an ethical line?`\
 https://nytimes.com/2024/08/07/health/gamers-twitch-mental-health.html
-
-**Rodri and Morata banned over 'Gibraltar is Spanish' chants**\
-`Alvaro Morata and Rodri have been given one-match bans by UEFA for misconduct during Spain&#8217;s European Championship winners&#8217; parade in Madrid.`\
-https://nytimes.com/athletic/5686258/2024/08/07/rodri-morata-gibraltar-chant-ban/
 
