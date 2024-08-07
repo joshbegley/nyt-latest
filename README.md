@@ -1,3 +1,7 @@
+**Three takeaways from the Giants trade deadline, one week later**\
+`With the benefit of a week of hindsight, some of the Giants’ deadline decisions make more sense.`\
+https://nytimes.com/athletic/5685930/2024/08/07/sf-giants-trade-deadline-takeaways/
+
 **Arsenal 'managing' Timber and Calafiori as precaution says Arteta**\
 `Mikel Arteta has given updates on Jurrien Timber and Riccardo Calafiori after the pair missed yet another one of Arsenal’s pre-season friendlies.`\
 https://nytimes.com/athletic/5687429/2024/08/07/arsenal-calafiori-timber-injury-arteta/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5687153/2024/08/07/chiefs-harrison-butker-commencem
 **Fantasy football 2024 quarterback rankings: ‘Upside’ and ‘downside’ scores; plus, a downloadable spreadsheet**\
 `Starting with AFC rivals Josh Allen and Patrick Mahomes, KC Joyner offers his draft guide for the Top 25 QBs for fantasy football 2024.`\
 https://nytimes.com/athletic/5687168/2024/08/07/qb-rankings-system-fantasy-football-2024/
-
-**For These Olympians, the Bling Is the Thing**\
-`Athletes at the Paris Olympics have been sporting some seriously high-wattage accessories. Here are nine of our favorites.`\
-https://nytimes.com/2024/08/07/style/olympians-bling-accessories.html
 
