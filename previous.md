@@ -1,3 +1,11 @@
+**Wednesday Briefing**\
+`Kamala Harris’s choice for vice president.`\
+https://nytimes.com/2024/08/07/briefing/harris-walz-hamas-bangladesh.html
+
+**Wednesday's MLB odds: Best bets for pitching matchups, wins, playoffs**\
+`See pitching matchups, playoff projections, win projections and more for Wednesday's MLB games.`\
+https://nytimes.com/athletic/5684674/2024/08/07/mlb-odds-best-bets-projections-august-7/
+
 **Does a Speedsuit Make You Faster? Maybe. Does It Look Cool? Absolutely.**\
 `Once an outfit strictly worn by sprinters, the single-piece speedsuit has become common among middle-distance runners. Its efficacy is beside the point.`\
 https://nytimes.com/2024/08/07/style/olympics-speedsuits-ingebrigtsen.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/06/us/politics/race-for-competitive-washington-congr
 **Ferguson and Reichert Emerge in the Washington Primary for Governor**\
 `The two leading candidates, one Democrat and one Republican, have each emphasized their work in law enforcement, in a state looking for solutions to overdoses and violent crime.`\
 https://nytimes.com/2024/08/06/us/politics/ferguson-reichert-washington-primary-governor.html
-
-**Dodger Details: Mookie Betts' landing spot, Yoshinobu Yamamoto's progress and more**\
-`When he returns next week, Betts will play shortstop and bat second in the order behind Shohei Ohtani.`\
-https://nytimes.com/athletic/5685696/2024/08/06/dodgers-mookie-betts-yoshinobu-yamamoto/
-
-**Mike Kehoe, Missouri’s Lieutenant Governor, Wins G.O.P. Primary for Governor**\
-`The winner of the Republican primary is likely to become Missouri’s next governor. But a ballot measure on abortion that is widely expected to appear in November could boost liberal turnout.`\
-https://nytimes.com/2024/08/06/us/mike-kehoe-missouris-lieutenant-governor-wins-gop-primary-for-governor.html
 

@@ -1,3 +1,11 @@
+**Wednesday Briefing**\
+`Kamala Harris’s choice for vice president.`\
+https://nytimes.com/2024/08/07/briefing/harris-walz-hamas-bangladesh.html
+
+**Wednesday's MLB odds: Best bets for pitching matchups, wins, playoffs**\
+`See pitching matchups, playoff projections, win projections and more for Wednesday's MLB games.`\
+https://nytimes.com/athletic/5684674/2024/08/07/mlb-odds-best-bets-projections-august-7/
+
 **Does a Speedsuit Make You Faster? Maybe. Does It Look Cool? Absolutely.**\
 `Once an outfit strictly worn by sprinters, the single-piece speedsuit has become common among middle-distance runners. Its efficacy is beside the point.`\
 https://nytimes.com/2024/08/07/style/olympics-speedsuits-ingebrigtsen.html
