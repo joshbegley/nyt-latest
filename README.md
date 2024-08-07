@@ -1,3 +1,7 @@
+**Trump Criticizes Harris and Walz in Fox News Appearance and Suggests a Debate Will Happen**\
+`After saying days ago that he would not participate in a September debate on ABC, Mr. Trump said, “We’ll be debating her, I guess, in the pretty near future.”`\
+https://nytimes.com/2024/08/07/us/politics/trump-fox-harris-walz.html
+
 **Bob Woodward to Publish ‘War’ This Fall**\
 `Woodward, an author and journalist, has written more than 20 best selling books. His latest will focus on Ukraine, the Middle East, and the battle for the U.S. presidency.`\
 https://nytimes.com/2024/08/07/books/bob-woodward-book-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5685708/2024/08/07/bears-hard-knocks-episode-1-cale
 **Marta’s legacy is defiance, hunger and joy. But how will it end at the Olympics?**\
 `Marta will go down as one of the greatest to ever play. Her international career comes to an end in the Olympic final against the U.S. `\
 https://nytimes.com/athletic/5671350/2024/08/07/marta-brazil-olympics-legacy/
-
-**Lucas Digne rejects proposal to join Galatasaray**\
-`Aston Villa defender Lucas Digne has rejected a proposal to join Galatasaray.`\
-https://nytimes.com/athletic/5686618/2024/08/07/lucas-digne-galatasaray-aston-villa/
 
