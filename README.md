@@ -1,3 +1,11 @@
+**Arsenal 'managing' Timber and Calafiori as precaution says Arteta**\
+`Mikel Arteta has given updates on Jurrien Timber and Riccardo Calafiori after the pair missed yet another one of Arsenal’s pre-season friendlies.`\
+https://nytimes.com/athletic/5687429/2024/08/07/arsenal-calafiori-timber-injury-arteta/
+
+**Harris, Walz and Democrats’ Joyful Campaign**\
+`This election has become a contest between Harris’s high spirits and Trump’s dark vision.`\
+https://nytimes.com/2024/08/07/opinion/kamala-harris-walz-democrats.html
+
 **Jets activate WR Mike Williams from PUP list**\
 `Williams, who signed a one-year contract with the Jets this offseason, is recovering from a torn ACL he suffered in Week 3 last season.`\
 https://nytimes.com/athletic/5687356/2024/08/07/jets-mike-williams-pup-activate/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5687168/2024/08/07/qb-rankings-system-fantasy-footb
 **For These Olympians, the Bling Is the Thing**\
 `Athletes at the Paris Olympics have been sporting some seriously high-wattage accessories. Here are nine of our favorites.`\
 https://nytimes.com/2024/08/07/style/olympians-bling-accessories.html
-
-**At Olympic skateboarding, celebs come out and good friends put on a show**\
-`Tom Schaar and Keegan Palmer vied for the gold medal Wednesday in men's park, with everyone from Snoop Dogg to Léon Marchand on hand.`\
-https://nytimes.com/athletic/5687220/2024/08/07/olympics-skateboarding-mens-park-tom-schaar-keegan-palmer/
-
-**Texas RB CJ Baxter out for season after knee injury**\
-`Baxter was expected to play the lead role in the Longhorns’ backfield this season`\
-https://nytimes.com/athletic/5687219/2024/08/07/texas-cj-baxter-injury-college-football/
 
