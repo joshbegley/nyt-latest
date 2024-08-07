@@ -1,3 +1,19 @@
+**Colts WR Josh Downs sustains ankle injury, could miss 4-6 weeks**\
+`Last year, Downs broke the Colts' single-season rookie record with 68 catches for 771 yards and two touchdowns.`\
+https://nytimes.com/athletic/5687070/2024/08/07/colts-josh-downs-ankle-injury/
+
+**Kennedy’s Wife and Birds Live in California. He Says It’s Not Home.**\
+`The presidential candidate Robert F. Kennedy Jr. testified in Albany in an attempt to stay on New York’s ballot. If he is kicked off, other states could follow.`\
+https://nytimes.com/2024/08/07/nyregion/rfk-testimony-ny-ballot.html
+
+**Trump’s Pandering Plan to Stop Taxing Social Security Won’t Work**\
+`It benefits the well-off and would threaten everyone’s benefits.`\
+https://nytimes.com/live/2024/08/07/opinion/thepoint/trump-social-security-tax
+
+**AIPAC Demonstrates Its Clout With Defeat of a Second ‘Squad’ Member**\
+`The pro-Israel group put more than $8 million into a primary to help beat Representative Cori Bush of Missouri, the second Democrat it has successfully targeted for not supporting Israel in the war.`\
+https://nytimes.com/2024/08/07/us/politics/bush-bell-aipac-missouri-primary.html
+
 **Three takeaways from the Giants trade deadline, one week later**\
 `With the benefit of a week of hindsight, some of the Giants’ deadline decisions make more sense.`\
 https://nytimes.com/athletic/5685930/2024/08/07/sf-giants-trade-deadline-takeaways/
