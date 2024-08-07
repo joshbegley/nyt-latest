@@ -1,3 +1,7 @@
+**Why Kamala Harris Picked Tim Walz**\
+`The Minnesota governor’s biography and demeanor makes him a familiar figure to many voters.`\
+https://nytimes.com/2024/08/07/briefing/kamala-harris-tim-walz-running-mate.html
+
 **Take our 2024 college football Hope-O-Meter survey**\
 `Your team's chances of making the College Football Playoff are increasing. Are you hopeful — or hopeless? `\
 https://nytimes.com/athletic/5683861/2024/08/07/college-football-2024-season-hope-o-meter-survey/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/07/podcasts/the-daily/tim-walz-vp-democrats.html
 **Walz Makes His Debut, and Hamas Elevates Leader Who Planned Oct. 7**\
 `Plus, Olympic medal redemption.`\
 https://nytimes.com/2024/08/07/podcasts/tim-walz-philadelphia-cori-bush-yahya-sinwar-hamas.html
-
-**The Connections Companion No. 424**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 8, 2024.`\
-https://nytimes.com/2024/08/07/crosswords/connections-companion-424.html
 
