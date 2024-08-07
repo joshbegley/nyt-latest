@@ -1,3 +1,7 @@
+**Dodgers' Brusdar Graterol helped off field after hamstring injury**\
+`LOS ANGELES — Brusdar Graterol’s much-awaited season debut on Tuesday night was cut short after the Los Angeles Dodgers reliever delivered a 92 mph fastball and bent over in pain.`\
+https://nytimes.com/athletic/5685901/2024/08/07/dodgers-brusdar-graterol-injury/
+
 **Fantasy football takeover: Flipping a newly-acquired dynasty team towards a brighter future**\
 `Mike Vorkunov details how he remade a dynasty football team he acquired in the middle of the 2023 campaign with an eye towards the future. `\
 https://nytimes.com/athletic/5681984/2024/08/07/dynasty-draft-flip-team-fantasy-football/

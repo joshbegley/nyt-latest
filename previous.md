@@ -1,3 +1,7 @@
+**Dodgers' Brusdar Graterol helped off field after hamstring injury**\
+`LOS ANGELES — Brusdar Graterol’s much-awaited season debut on Tuesday night was cut short after the Los Angeles Dodgers reliever delivered a 92 mph fastball and bent over in pain.`\
+https://nytimes.com/athletic/5685901/2024/08/07/dodgers-brusdar-graterol-injury/
+
 **Fantasy football takeover: Flipping a newly-acquired dynasty team towards a brighter future**\
 `Mike Vorkunov details how he remade a dynasty football team he acquired in the middle of the 2023 campaign with an eye towards the future. `\
 https://nytimes.com/athletic/5681984/2024/08/07/dynasty-draft-flip-team-fantasy-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5674190/2024/08/07/tim-iroegbunam-interview-everton
 **FPL: The biggest price risers and fallers in this season's game**\
 `From Erling Haaland to Cole Palmer, there are some significant price adjustments in this season's game — here's how you can navigate them`\
 https://nytimes.com/athletic/5655175/2024/08/07/fantasy-premier-league-price-risers-and-fallers/
-
-**Arsenal's right-side combinations are an elite attacking weapon - this is why**\
-`How the timing and coordination between Ben White, Bukayo Saka and Martin Odegaard opens up Arsenal's opponents `\
-https://nytimes.com/athletic/5676185/2024/08/07/arsenal-right-side-combinations-premier-league/
 
