@@ -1,3 +1,11 @@
+**More than 50 forwards signed. Over £300m spent. Is West Ham's hunt for a goalscorer over?**\
+`West Ham may have finally found their man this season in Niclas Fullkrug, but they have spent years searching for the right striker`\
+https://nytimes.com/athletic/5626066/2024/08/07/west-ham-forwards-sullivan-transfers/
+
+**Ten Premier League players who need a move this summer - including Eddie Nketiah and Ben Chilwell**\
+`Which top-flight players need a fresh start before the transfer deadline?`\
+https://nytimes.com/athletic/5683593/2024/08/07/ten-premier-league-players-who-need-a-move-nketiah-chilwell-phillips/
+
 **Wednesday Briefing**\
 `Kamala Harris’s choice for vice president.`\
 https://nytimes.com/2024/08/07/briefing/harris-walz-hamas-bangladesh.html
@@ -9,6 +17,10 @@ https://nytimes.com/athletic/5684674/2024/08/07/mlb-odds-best-bets-projections-a
 **Does a Speedsuit Make You Faster? Maybe. Does It Look Cool? Absolutely.**\
 `Once an outfit strictly worn by sprinters, the single-piece speedsuit has become common among middle-distance runners. Its efficacy is beside the point.`\
 https://nytimes.com/2024/08/07/style/olympics-speedsuits-ingebrigtsen.html
+
+**Olympics Today: Wednesday's guide to what to watch in Paris**\
+`Wednesday offers up 21 gold medal events, including multiple in track and field.`\
+https://nytimes.com/athletic/5683059/2024/08/07/olympics-2024-watch-guide-day-12-track-basketball/
 
 **White Sox snap 21-game skid, finish two shy of tying MLB record losing streak**\
 `OAKLAND, Calif.`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5685755/2024/08/06/carlos-correa-twins-heel-injury-
 **Corrections: Aug. 7, 2024**\
 `Corrections that appeared in print on Wednesday, Aug. 7, 2024.`\
 https://nytimes.com/2024/08/06/pageoneplus/corrections-aug-7-2024.html
-
-**Quotation of the Day: He’s Still Walking a High Wire**\
-`Quotation of the Day for Wednesday, August 7, 2024.`\
-https://nytimes.com/2024/08/06/pageoneplus/quotation-of-the-day-hes-still-walking-a-high-wire.html
-
-**Race for Competitive Washington Congressional Seat Turns Into Rematch**\
-`Marie Gluesenkamp Perez and Joe Kent will compete again in November, two years after she beat him by less than 3,000 votes.`\
-https://nytimes.com/2024/08/06/us/politics/race-for-competitive-washington-congressional-seat-turns-into-rematch.html
-
-**Ferguson and Reichert Emerge in the Washington Primary for Governor**\
-`The two leading candidates, one Democrat and one Republican, have each emphasized their work in law enforcement, in a state looking for solutions to overdoses and violent crime.`\
-https://nytimes.com/2024/08/06/us/politics/ferguson-reichert-washington-primary-governor.html
 

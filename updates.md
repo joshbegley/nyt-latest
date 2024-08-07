@@ -1,3 +1,15 @@
+**More than 50 forwards signed. Over £300m spent. Is West Ham's hunt for a goalscorer over?**\
+`West Ham may have finally found their man this season in Niclas Fullkrug, but they have spent years searching for the right striker`\
+https://nytimes.com/athletic/5626066/2024/08/07/west-ham-forwards-sullivan-transfers/
+
+**Ten Premier League players who need a move this summer - including Eddie Nketiah and Ben Chilwell**\
+`Which top-flight players need a fresh start before the transfer deadline?`\
+https://nytimes.com/athletic/5683593/2024/08/07/ten-premier-league-players-who-need-a-move-nketiah-chilwell-phillips/
+
+**Olympics Today: Wednesday's guide to what to watch in Paris**\
+`Wednesday offers up 21 gold medal events, including multiple in track and field.`\
+https://nytimes.com/athletic/5683059/2024/08/07/olympics-2024-watch-guide-day-12-track-basketball/
+
 **Wednesday Briefing**\
 `Kamala Harris’s choice for vice president.`\
 https://nytimes.com/2024/08/07/briefing/harris-walz-hamas-bangladesh.html
