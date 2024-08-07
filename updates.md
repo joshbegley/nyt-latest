@@ -1,3 +1,11 @@
+**Ravens' healthy start to training camp has shifted in the opposite direction**\
+`With Malik Hamm already out for the season, key players such as Tyler Linderbaum and Arthur Maulet are now dealing with injuries.`\
+https://nytimes.com/athletic/5685387/2024/08/07/ravens-training-camp-injuries/
+
+**Mets halfway through pivotal road trip: Here are 3 takeaways**\
+`The Mets have hit just .201 with runners in scoring position since the All-Star break.`\
+https://nytimes.com/athletic/5685845/2024/08/07/mets-trip-wild-card-chase/
+
 **How Will Howard maximized his chances to win Ohio State's QB battle**\
 `Inside the physical and mental tweaks Howard made after transferring from Kansas State to Ohio State to prepare for a summer QB battle.`\
 https://nytimes.com/athletic/5685077/2024/08/07/will-howard-ohio-state-quarterback-battle/
