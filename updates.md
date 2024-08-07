@@ -1,3 +1,7 @@
+**Getting to the core of why NFL players love Pilates**\
+`The perception that Pilates isn't for big, strong men is being exploded by a steady stream of NFL players making their way to the activity.`\
+https://nytimes.com/athletic/5683925/2024/08/07/nfl-players-pilates-fitness-recovery/
+
 **The Briefing: Chelsea 1 Real Madrid 2 - Still vulnerable to balls in behind?**\
 `Enzo Maresca's side fell to a third defeat in the fifth and final game of their U.S. tour`\
 https://nytimes.com/athletic/5685492/2024/08/07/chelsea-real-madrid-analysis-defence/

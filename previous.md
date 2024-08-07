@@ -1,3 +1,7 @@
+**Getting to the core of why NFL players love Pilates**\
+`The perception that Pilates isn't for big, strong men is being exploded by a steady stream of NFL players making their way to the activity.`\
+https://nytimes.com/athletic/5683925/2024/08/07/nfl-players-pilates-fitness-recovery/
+
 **Suga, of BTS, Apologizes for Riding Electric Scooter While Drunk**\
 `The artist had his driver’s license revoked and may face disciplinary action after failing a breath test, his agency said.`\
 https://nytimes.com/2024/08/07/arts/bts-suga-drunk-electric-scooter.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5685961/2024/08/07/real-madrid-chelsea-vinicius-rod
 **'You can see the growth' - Ange Postecoglou is ready for season two at Spurs**\
 `The Spurs manager talks to the Athletic about the rigours of pre-season touring — and what he wants from a Tottenham player`\
 https://nytimes.com/athletic/5681537/2024/08/07/ange-postecoglou-interview-tottenham-spurs/
-
-**The Briefing: Chelsea 1 Real Madrid 2 - Still vulnerable to balls in behind?**\
-`Enzo Maresca's side fell to a third defeat in the fifth and final game of their U.S. tour`\
-https://nytimes.com/athletic/5685492/2024/08/07/chelsea-real-madrid-analysis-defence/
 
