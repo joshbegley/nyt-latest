@@ -1,3 +1,15 @@
+**Three takeaways from the Giants trade deadline, one week later**\
+`With the benefit of a week of hindsight, some of the Giants’ deadline decisions make more sense.`\
+https://nytimes.com/athletic/5685930/2024/08/07/sf-giants-trade-deadline-takeaways/
+
+**Arsenal 'managing' Timber and Calafiori as precaution says Arteta**\
+`Mikel Arteta has given updates on Jurrien Timber and Riccardo Calafiori after the pair missed yet another one of Arsenal’s pre-season friendlies.`\
+https://nytimes.com/athletic/5687429/2024/08/07/arsenal-calafiori-timber-injury-arteta/
+
+**Harris, Walz and Democrats’ Joyful Campaign**\
+`This election has become a contest between Harris’s high spirits and Trump’s dark vision.`\
+https://nytimes.com/2024/08/07/opinion/kamala-harris-walz-democrats.html
+
 **Jets activate WR Mike Williams from PUP list**\
 `Williams, who signed a one-year contract with the Jets this offseason, is recovering from a torn ACL he suffered in Week 3 last season.`\
 https://nytimes.com/athletic/5687356/2024/08/07/jets-mike-williams-pup-activate/
