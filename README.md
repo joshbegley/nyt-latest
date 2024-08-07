@@ -1,3 +1,7 @@
+**'It's baseball PTSD': How Gavin and Larry Sheets have navigated record losing streaks**\
+`As the White Sox losing streak grows, Larry Sheets can't help but remember enduring such a streak with the Orioles. `\
+https://nytimes.com/athletic/5685603/2024/08/06/gavin-sheets-white-sox-losing-streak/
+
 **What’s Left on Your Summer Bucket List? Tell Us.**\
 `Summer is nearing its end — at least in spirit — and we want to know how you’re making the most of what remains.`\
 https://nytimes.com/2024/08/06/style/whats-left-on-your-summer-bucket-list.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009613971/tim-walz-kamala-harris-ticket.html
 **Mexican Drug Lord Is Said to Face Trial in Brooklyn**\
 `The decision by the Justice Department will put Ismael Zambada García in the same federal courthouse where his fellow Sinaloa cartel founder, El Chapo, was sentenced to life in prison.`\
 https://nytimes.com/2024/08/06/us/politics/el-mayo-trial-brooklyn.html
-
-**Elissa Slotkin and Mike Rogers Will Face Off in Key Michigan Senate Race**\
-`Democrats were initially favored to hold the seat, but President Biden’s struggles in the state — fueled in part by Israel’s war in Gaza — shifted the contest to a pure tossup.`\
-https://nytimes.com/2024/08/06/us/politics/elissa-slotkin-mike-rogers-michigan-senate.html
 
