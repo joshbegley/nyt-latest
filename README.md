@@ -1,3 +1,11 @@
+**Storm to move north up South Carolina’s coast today. Here’s the latest.**\
+`Less flooding is expected on Wednesday as the storm picks up moisture as it hovers over the Atlantic Ocean. It will come back to`\
+https://nytimes.com/live/2024/08/07/weather/debby-storm-forecast/storm-to-move-north-up-south-carolinas-coast-today-heres-the-latest
+
+**Sinwar is the ‘primary decider’ in any cease-fire, Blinken says.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/08/07/world/israel-iran-hamas-gaza-war/sinwar-is-the-primary-decider-in-any-cease-fire-blinken-says
+
 **New York Times Reports 13.6% Jump in Profit**\
 `The publisher added about 300,000 digital subscribers in the latest quarter, and now has more than 10.8 million subscribers.`\
 https://nytimes.com/2024/08/07/business/media/new-york-times-earnings.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5686015/2024/08/07/atletico-madrid-manchester-city-
 **Why Kamala Harris Picked Tim Walz**\
 `The Minnesota governor’s biography and demeanor makes him a familiar figure to many voters.`\
 https://nytimes.com/2024/08/07/briefing/kamala-harris-tim-walz-running-mate.html
-
-**Take our 2024 college football Hope-O-Meter survey**\
-`Your team's chances of making the College Football Playoff are increasing. Are you hopeful — or hopeless? `\
-https://nytimes.com/athletic/5683861/2024/08/07/college-football-2024-season-hope-o-meter-survey/
-
-**How Cole Hocker exploited the Ingebrigtsen-Kerr rivalry to win 1500m Olympic gold**\
-`All the pre-race focus was on the battle between the Norwegian and the Briton - but that's not how it played out`\
-https://nytimes.com/athletic/5685309/2024/08/07/olympics-cole-hocker-josh-kerr-jakob-ingebrigtsen/
 
