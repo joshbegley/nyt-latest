@@ -1,3 +1,7 @@
+**Indian Wrestler Vinesh Phogat Is Disqualified From Gold Medal Match**\
+`Indian officials said she failed to make her weight class by a few grams. Last year, she was the face of a protest against a powerful Indian sports official.`\
+https://nytimes.com/2024/08/07/world/olympics/vinesh-phogat-disqualified-wrestling.html
+
 **Getting to the core of why NFL players love Pilates**\
 `The perception that Pilates isn't for big, strong men is being exploded by a steady stream of NFL players making their way to the activity.`\
 https://nytimes.com/athletic/5683925/2024/08/07/nfl-players-pilates-fitness-recovery/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5684532/2024/08/07/padres-pirates-delay-joe-musgrov
 **The Briefing: Real Madrid 2 Chelsea 1 - Vinicius Jr, Rodrygo shine pre-European Super Cup**\
 `Madrid finished their pre-season tour of the U.S. in style against Chelsea. Next up, Atalanta in the European Super Cup`\
 https://nytimes.com/athletic/5685961/2024/08/07/real-madrid-chelsea-vinicius-rodrygo/
-
-**'You can see the growth' - Ange Postecoglou is ready for season two at Spurs**\
-`The Spurs manager talks to the Athletic about the rigours of pre-season touring — and what he wants from a Tottenham player`\
-https://nytimes.com/athletic/5681537/2024/08/07/ange-postecoglou-interview-tottenham-spurs/
 
