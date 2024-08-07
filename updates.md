@@ -1,3 +1,11 @@
+**Bears 'Hard Knocks' takeaways: Caleb Williams the star, what they got right, wrong**\
+`Breaking down the first episode of the Bears on "Hard Knocks." Who stole the show? What was the most Chicago thing?`\
+https://nytimes.com/athletic/5685708/2024/08/06/bears-hard-knocks-episode-1-caleb-williams/
+
+**Boeing Says It’s Changing Type of Panel That Blew Off Alaska Airlines Jet**\
+`The company told regulators the changes in design and production of the door plugs would allow its warning systems to detect malfunctions.`\
+https://nytimes.com/2024/08/06/us/politics/boeing-safety-door-plugs.html
+
 **Cori Bush, ‘Squad’ Member and Vocal Critic of Israel, Loses Her Primary**\
 `Her defeat is another loss for progressives in a race defined by Democratic divisions over the war in Gaza, with pro-Israel groups pouring millions into a campaign to oust her from office.`\
 https://nytimes.com/2024/08/06/us/politics/cori-bush-wesley-bell-primary.html
