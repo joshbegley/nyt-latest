@@ -1,3 +1,7 @@
+**Jets activate WR Mike Williams from PUP list**\
+`Williams, who signed a one-year contract with the Jets this offseason, is recovering from a torn ACL he suffered in Week 3 last season.`\
+https://nytimes.com/athletic/5687356/2024/08/07/jets-mike-williams-pup-activate/
+
 **U.S. artistic swimming wins first Olympic medal in 20 years**\
 `China won the latest gold with a final score of 996.1389.`\
 https://nytimes.com/athletic/5687259/2024/08/07/olympics-artistic-swimming-us-silver-medal/

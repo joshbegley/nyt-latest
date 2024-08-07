@@ -1,3 +1,7 @@
+**Jets activate WR Mike Williams from PUP list**\
+`Williams, who signed a one-year contract with the Jets this offseason, is recovering from a torn ACL he suffered in Week 3 last season.`\
+https://nytimes.com/athletic/5687356/2024/08/07/jets-mike-williams-pup-activate/
+
 **U.S. artistic swimming wins first Olympic medal in 20 years**\
 `China won the latest gold with a final score of 996.1389.`\
 https://nytimes.com/athletic/5687259/2024/08/07/olympics-artistic-swimming-us-silver-medal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5687220/2024/08/07/olympics-skateboarding-mens-park
 **Texas RB CJ Baxter out for season after knee injury**\
 `Baxter was expected to play the lead role in the Longhorns’ backfield this season`\
 https://nytimes.com/athletic/5687219/2024/08/07/texas-cj-baxter-injury-college-football/
-
-**Tim Walz’s Extraordinarily Ordinary Life**\
-`The governor of Minnesota hasn’t spent his life striving for the pinnacle of politics. That is how he got there.`\
-https://nytimes.com/2024/08/07/us/politics/tim-walz-kamala-harris-campaign-2024.html
 
