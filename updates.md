@@ -1,3 +1,7 @@
+**A Deal That Could Save Venezuela**\
+`A power-sharing deal may be the best way out of Venezuela’s political crisis.`\
+https://nytimes.com/2024/08/07/opinion/venezuela-deal-political-crisis.html
+
 **'It's really difficult to defend against him' - analysis from Rodrigo Gomes's former coach**\
 `Vasco Seabra, who coached Rodrigo Gomes to his best season, has no doubts that the 21-year-old will rise to the challenge at Wolves`\
 https://nytimes.com/athletic/5674670/2024/08/07/rodrigo-gomes-wolves-vasco-seabra/
