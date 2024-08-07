@@ -1,3 +1,11 @@
+**Introducing Coach Walz: Five Takeaways from Philadelphia**\
+`A glittering night aimed to energize Democrats and banish the doldrums that have gripped the party.`\
+https://nytimes.com/2024/08/06/us/politics/harris-walz-rally-speech-takeaways.html
+
+**'It's baseball PTSD': How Gavin and Larry Sheets have navigated record losing streaks**\
+`As the White Sox losing streak grows, Larry Sheets can't help but remember enduring such a streak with the Orioles. `\
+https://nytimes.com/athletic/5685603/2024/08/06/gavin-sheets-white-sox-losing-streak/
+
 **What’s Left on Your Summer Bucket List? Tell Us.**\
 `Summer is nearing its end — at least in spirit — and we want to know how you’re making the most of what remains.`\
 https://nytimes.com/2024/08/06/style/whats-left-on-your-summer-bucket-list.html
