@@ -1,3 +1,7 @@
+**Ukraine Appears to Launch Rare Cross-Border Ground Assault Into Russia**\
+`Troops and armored fighting vehicles crossed into Russia’s western Kursk region on Tuesday, according to Moscow and independent analysts. Ukrainian officials have not commented.`\
+https://nytimes.com/2024/08/07/world/europe/ukraine-russia-cross-border-assault.html
+
 **Alvarez, Gallagher, Guerra and the rest: Can Atletico Madrid afford a €200m summer spend?**\
 `La Liga's transfer spending has so far been pretty quiet - but Atletico could be about to change all that`\
 https://nytimes.com/athletic/5686015/2024/08/07/atletico-madrid-manchester-city-chelsea-transfers-alvarez-gallagher/
