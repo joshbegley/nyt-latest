@@ -1,3 +1,7 @@
+**Taylor Swift’s Vienna Concerts Are Canceled After Terror Plot Arrests**\
+`Three shows were called off after Austrian officials arrested two men and accused them of plotting a terrorist attack, and said that one had been focused on her upcoming stadium concerts.`\
+https://nytimes.com/2024/08/07/arts/music/taylor-swift-concert-terror-plot-vienna.html
+
 **Green Day Comes Around, Celebrating Two Album Anniversaries**\
 `The long-running California punk band brought a show focused on two classic LPs and a new release to New York, and multiple generations turned out for the spectacle.`\
 https://nytimes.com/2024/08/07/arts/music/green-day-saviors-tour-photos.html

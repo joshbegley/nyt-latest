@@ -22,8 +22,8 @@ https://nytimes.com/athletic/5687568/2024/08/07/liverpool-zubimendi-agree-real-s
 `The historic coastal city floods easily, but officials have upgraded infrastructure in recent years to try to prevent the worst.`\
 https://nytimes.com/2024/08/07/weather/charleston-flooding-debby.html
 
-**Taylor Swift Concerts in Vienna Canceled After Officials Outline Threats**\
-`Three stadium shows were called off after Austrian officials said that a man who was arrested and accused of plotting a terrorist attack had been focused on her tour.`\
+**Taylor Swift’s Vienna Concerts Are Canceled After Terror Plot Arrests**\
+`Three shows were called off after Austrian officials arrested two men and accused them of plotting a terrorist attack, and said that one had been focused on her upcoming stadium concerts.`\
 https://nytimes.com/2024/08/07/arts/music/taylor-swift-concert-terror-plot-vienna.html
 
 **American Katie Moon overcomes down year for silver in Olympic pole vault**\
