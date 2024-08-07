@@ -1,3 +1,7 @@
+**Arab nations urge Iran to exercise restraint in retaliatory strike against Israel.**\
+`By Adam Rasgon and Ben Hubbard`\
+https://nytimes.com/live/2024/08/07/world/israel-iran-hamas-gaza-war/arab-ayman-al-safadi-jordan-iran-israel
+
 **The ‘Weird’ History of Tim Walz’s Political Put-Down**\
 `Once, the word signified supernatural things. In the mouth of Kamala Harris’s running mate, weirdness is much more earthbound.`\
 https://nytimes.com/2024/08/07/arts/tim-walz-trump-weird.html

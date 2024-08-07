@@ -1,3 +1,7 @@
+**Arab nations urge Iran to exercise restraint in retaliatory strike against Israel.**\
+`By Adam Rasgon and Ben Hubbard`\
+https://nytimes.com/live/2024/08/07/world/israel-iran-hamas-gaza-war/arab-ayman-al-safadi-jordan-iran-israel
+
 **The ‘Weird’ History of Tim Walz’s Political Put-Down**\
 `Once, the word signified supernatural things. In the mouth of Kamala Harris’s running mate, weirdness is much more earthbound.`\
 https://nytimes.com/2024/08/07/arts/tim-walz-trump-weird.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/07/us/politics/project-2025-book-jd-vance-delayed.ht
 **Trump Dangles New Tax Cut Proposals With Real Political Appeal**\
 `The most recent and costliest of Mr. Trump’s ideas would end income taxes on Social Security benefits.`\
 https://nytimes.com/2024/08/07/business/economy/trump-tax-cuts.html
-
-**Heat Raises Fears of ‘Demise’ for Great Barrier Reef Within a Generation**\
-`A new study found that temperatures in the Coral Sea have reached their highest levels in at least four centuries.`\
-https://nytimes.com/2024/08/07/climate/ocean-heat-great-barrier-reef.html
 
