@@ -1,3 +1,7 @@
+**How Cole Hocker exploited the Ingebrigtsen-Kerr rivalry to win 1500m Olympic gold**\
+`All the pre-race focus was on the battle between the Norwegian and the Briton - but that's not how it played out`\
+https://nytimes.com/athletic/5685309/2024/08/07/olympics-cole-hocker-josh-kerr-jakob-ingebrigtsen/
+
 **Hindus in Bangladesh Face Revenge Attacks After Prime Minister’s Exit**\
 `There has long been a perception that the Hindu minority supports Sheikh Hasina, who resigned as prime minister and fled the country after a popular uprising.`\
 https://nytimes.com/2024/08/07/world/asia/bangladesh-politics-unrest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/07/crosswords/connections-companion-424.html
 **Wordle Review No. 1,146**\
 `Scroll down for hints and conversation about the puzzle for Thursday, August 8, 2024.`\
 https://nytimes.com/2024/08/07/crosswords/wordle-review-1146.html
-
-**Court Disbands Thailand’s Most Popular Political Party**\
-`Since the Move Forward Party won the last election with a call for change, conservative forces have kept it out of power. Now, it no longer exists.`\
-https://nytimes.com/2024/08/07/world/asia/thailand-move-forward-disbanded.html
 
