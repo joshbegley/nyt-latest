@@ -1,3 +1,7 @@
+**New York’s Newest Hotels Reveal the City’s Romantic Streak**\
+`Landscaped terraces, vintage cocktail bars and plush screening rooms — Manhattan’s hospitality scene revives the Gilded Age`\
+https://nytimes.com/2024/08/07/t-magazine/new-york-hotels-gilded-age.html
+
 **Vance Attacks Walz’s Military Record, Accusing Him of ‘Stolen Valor’**\
 `Senator JD Vance of Ohio claimed Gov. Tim Walz on Minnesota had exaggerated his service record and quit the Army National Guard to avoid being deployed to Iraq.`\
 https://nytimes.com/2024/08/07/us/politics/vance-walz-military-record.html
