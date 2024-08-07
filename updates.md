@@ -1,3 +1,15 @@
+**Chelsea agree deal with Atletico Madrid for Omorodion, Gallagher set for medical**\
+`Chelsea have agreed a £34.`\
+https://nytimes.com/athletic/5683224/2024/08/07/samu-omorodion-chelsea-transfer/
+
+**Noah Lyles advances to stacked 200m final**\
+`Lyles’ best in the 200 meters — which Wednesday was not — seems to be an untouchable realm. His personal best is 19.31 seconds, set in 2022.`\
+https://nytimes.com/athletic/5687201/2024/08/07/noah-lyles-200m-olympic-semifinals/
+
+**After Breaking Free, World’s Largest Iceberg Is Stuck Spinning in Circles**\
+`Round and round a 1,400-square-mile iceberg goes, stuck in a vortex over an underwater mountain. When it will stop, nobody knows.`\
+https://nytimes.com/2024/08/07/science/a23a-iceberg-antarctica-spinning.html
+
 **Teens and Tactics Blur in China’s Quest for Gold**\
 `A young skater’s emergence signals a pivot in the way an Olympic power defines success. But its handling of the table tennis competition suggests old expectations may persist, too.`\
 https://nytimes.com/2024/08/07/world/asia/teens-and-tactics-blur-in-chinas-quest-for-gold.html

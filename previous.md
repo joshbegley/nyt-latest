@@ -1,3 +1,11 @@
+**Chelsea agree deal with Atletico Madrid for Omorodion, Gallagher set for medical**\
+`Chelsea have agreed a £34.`\
+https://nytimes.com/athletic/5683224/2024/08/07/samu-omorodion-chelsea-transfer/
+
+**Noah Lyles advances to stacked 200m final**\
+`Lyles’ best in the 200 meters — which Wednesday was not — seems to be an untouchable realm. His personal best is 19.31 seconds, set in 2022.`\
+https://nytimes.com/athletic/5687201/2024/08/07/noah-lyles-200m-olympic-semifinals/
+
 **Teens and Tactics Blur in China’s Quest for Gold**\
 `A young skater’s emergence signals a pivot in the way an Olympic power defines success. But its handling of the table tennis competition suggests old expectations may persist, too.`\
 https://nytimes.com/2024/08/07/world/asia/teens-and-tactics-blur-in-chinas-quest-for-gold.html
@@ -15,7 +23,7 @@ https://nytimes.com/video/world/europe/100000009616472/uk-businesses-board-up.ht
 https://nytimes.com/2024/08/07/us/walz-harris-undecided-voters.html
 
 **After Breaking Free, World’s Largest Iceberg Is Stuck Spinning in Circles**\
-`Round and round a 1,600-square-mile iceberg goes, stuck in a vortex over an underwater mountain. When it will stop, nobody knows.`\
+`Round and round a 1,400-square-mile iceberg goes, stuck in a vortex over an underwater mountain. When it will stop, nobody knows.`\
 https://nytimes.com/2024/08/07/science/a23a-iceberg-antarctica-spinning.html
 
 **5 Ways Hawaii Is Trying to Prevent the Next Deadly Fire**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/07/opinion/walz-harris-goofball.html
 **One-on-one with Grant Hill: Why build Team USA like this? He had one big worry**\
 `"You can hope that they play at a certain level," Grant Hill says of his older Team USA stars. "There was some uncertainty, I'll be honest."`\
 https://nytimes.com/athletic/5686922/2024/08/07/grant-hill-usa-basketball-olympics-lebron-james/
-
-**Inside the Mind of Missy Elliott**\
-`The rapper breaks down the inspirations for her first-ever headlining tour, drawn from a pioneering three-decade career.`\
-https://nytimes.com/interactive/2024/08/07/arts/music/missy-elliott-out-of-this-world-tour-career.html
-
-**Who Is Wesley Bell, the Prosecutor Who Ousted ‘Squad’ Member Cori Bush?**\
-`The House primary between rival progressives in Missouri was influenced by heavy spending from pro-Israel groups, who backed Mr. Bell.`\
-https://nytimes.com/2024/08/07/us/politics/who-is-wesley-bell.html
 

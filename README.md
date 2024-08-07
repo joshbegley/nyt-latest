@@ -23,7 +23,7 @@ https://nytimes.com/video/world/europe/100000009616472/uk-businesses-board-up.ht
 https://nytimes.com/2024/08/07/us/walz-harris-undecided-voters.html
 
 **After Breaking Free, World’s Largest Iceberg Is Stuck Spinning in Circles**\
-`Round and round a 1,400-square-mile iceberg goes, stuck in a vortex over an underwater mountain. When it will stop, nobody knows.`\
+`Round and round a city-sized iceberg goes, stuck in a vortex over an underwater mountain. When it will stop, nobody knows.`\
 https://nytimes.com/2024/08/07/science/a23a-iceberg-antarctica-spinning.html
 
 **5 Ways Hawaii Is Trying to Prevent the Next Deadly Fire**\
