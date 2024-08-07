@@ -1,3 +1,11 @@
+**The Briefing: Real Madrid 2 Chelsea 1 - Vinicius Jr, Rodrygo shine pre-European Super Cup**\
+`Madrid finished their pre-season tour of the U.S. in style against Chelsea. Next up, Atalanta in the European Super Cup`\
+https://nytimes.com/athletic/5685961/2024/08/07/real-madrid-chelsea-vinicius-rodrygo/
+
+**'You can see the growth' - Ange Postecoglou is ready for season two at Spurs**\
+`The Spurs manager talks to the Athletic about the rigours of pre-season touring — and what he wants from a Tottenham player`\
+https://nytimes.com/athletic/5681537/2024/08/07/ange-postecoglou-interview-tottenham-spurs/
+
 **The Briefing: Chelsea 1 Real Madrid 2 - Still vulnerable to balls in behind?**\
 `Chelsea fell to a 2-1 defeat to Real Madrid during the final pre-season game of their U.S. tour`\
 https://nytimes.com/athletic/5685492/2024/08/07/chelsea-real-madrid-analysis-defence/

@@ -1,3 +1,11 @@
+**The Briefing: Real Madrid 2 Chelsea 1 - Vinicius Jr, Rodrygo shine pre-European Super Cup**\
+`Madrid finished their pre-season tour of the U.S. in style against Chelsea. Next up, Atalanta in the European Super Cup`\
+https://nytimes.com/athletic/5685961/2024/08/07/real-madrid-chelsea-vinicius-rodrygo/
+
+**'You can see the growth' - Ange Postecoglou is ready for season two at Spurs**\
+`The Spurs manager talks to the Athletic about the rigours of pre-season touring — and what he wants from a Tottenham player`\
+https://nytimes.com/athletic/5681537/2024/08/07/ange-postecoglou-interview-tottenham-spurs/
+
 **The Briefing: Chelsea 1 Real Madrid 2 - Still vulnerable to balls in behind?**\
 `Chelsea fell to a 2-1 defeat to Real Madrid during the final pre-season game of their U.S. tour`\
 https://nytimes.com/athletic/5685492/2024/08/07/chelsea-real-madrid-analysis-defence/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5674670/2024/08/07/rodrigo-gomes-wolves-vasco-seabr
 **Cardinals bounce back as Sonny Gray rights ship, Victor Scott II hits first homer**\
 `Scott showed off the dramatic swing change he made in the minors by delivering an energy-boosting homer: "The dugout erupted."`\
 https://nytimes.com/athletic/5685660/2024/08/07/cardinals-victor-scott-sonny-gray/
-
-**Buckley: Billy Bean left us too soon — on the field and off**\
-`As MLB mourns Bean, we’re left to wonder what kind of career he might have had without the burden of hiding his true self.`\
-https://nytimes.com/athletic/5685779/2024/08/07/billy-bean-death-mlb-padres-dodgers/
-
-**Man Utd season preview: Amad merits minutes, Mainoo partner needed and Rashford's point to prove**\
-`How things are looking for Manchester United ahead of 2024-25...`\
-https://nytimes.com/athletic/5309594/2024/08/07/manchester-united-season-preview-2024-2025/
 
