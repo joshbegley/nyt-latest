@@ -1,3 +1,7 @@
+**Corrections: Aug. 7, 2024**\
+`Corrections that appeared in print on Wednesday, Aug. 7, 2024.`\
+https://nytimes.com/2024/08/06/pageoneplus/corrections-aug-7-2024.html
+
 **Quotation of the Day: He’s Still Walking a High Wire**\
 `Quotation of the Day for Wednesday, August 7, 2024.`\
 https://nytimes.com/2024/08/06/pageoneplus/quotation-of-the-day-hes-still-walking-a-high-wire.html
