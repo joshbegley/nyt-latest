@@ -1,3 +1,15 @@
+**As War in Ukraine Persists, Where Is a Conductor’s Red Line?**\
+`Teodor Currentzis, whose MusicAeterna receives funding from a Russian state bank, has eluded censure at the prestigious Salzburg Festival.`\
+https://nytimes.com/2024/08/07/arts/music/currentzis-conductor-ukraine-war.html
+
+**Scoop City: Aiyuk's 3 potential teams**\
+`With the Patriots out of the running, three remaining scenarios for Brandon Aiyuk.`\
+https://nytimes.com/athletic/5686962/2024/08/07/aiyuk-trade-landing-spots-scoop-city/
+
+**Some Gazans worry that Sinwar’s rise could mean a cease-fire is further away.**\
+`By Bilal Shbair and Hiba Yazbek`\
+https://nytimes.com/live/2024/08/07/world/israel-iran-hamas-gaza-war/some-gazans-worry-that-sinwars-rise-could-mean-a-cease-fire-is-further-away
+
 **We’re Applying Lessons from Covid to Bird Flu. That’s Not Good.**\
 `America has learned all the wrong lessons from the Covid pandemic.`\
 https://nytimes.com/2024/08/07/opinion/bird-flu-covid.html
