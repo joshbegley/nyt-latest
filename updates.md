@@ -1,3 +1,11 @@
+**Hotel Collapse in Germany Kills 2 and Prompts Frantic Rescue Mission**\
+`One person remained trapped under the rubble on Wednesday after a centuries-old structure collapsed late the night before.`\
+https://nytimes.com/2024/08/07/world/europe/germany-hotel-collapse.html
+
+**Arab nations urge Iran to exercise restraint in responding to Hamas leader’s assassination.**\
+`By Adam Rasgon and Ben Hubbard`\
+https://nytimes.com/live/2024/08/07/world/israel-iran-hamas-gaza-war/arab-ayman-al-safadi-jordan-iran-israel
+
 **Palace prepared to sanction Johnstone departure**\
 `Crystal Palace are prepared to sanction the departure of Sam Johnstone if suitable offers arrive after the goalkeeper asked to leave Selhurst Park.`\
 https://nytimes.com/athletic/5686901/2024/08/07/sam-johnstone-crystal-palace-transfer/
