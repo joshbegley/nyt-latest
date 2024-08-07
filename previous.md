@@ -35,6 +35,6 @@ https://nytimes.com/athletic/5685961/2024/08/07/real-madrid-chelsea-vinicius-rod
 https://nytimes.com/athletic/5681537/2024/08/07/ange-postecoglou-interview-tottenham-spurs/
 
 **The Briefing: Chelsea 1 Real Madrid 2 - Still vulnerable to balls in behind?**\
-`Chelsea fell to a 2-1 defeat to Real Madrid during the final pre-season game of their U.S. tour`\
+`Enzo Maresca's side fell to a third defeat in the fifth and final game of their U.S. tour`\
 https://nytimes.com/athletic/5685492/2024/08/07/chelsea-real-madrid-analysis-defence/
 
