@@ -1,3 +1,7 @@
+**In Prisoner Swap, Echoes of Putin’s K.G.B. Past**\
+`A sprawling exchange with the West underscored the Russian president’s loyalty to his intelligence services. It also showed his continued interest in making deals.`\
+https://nytimes.com/2024/08/07/world/europe/putin-russia-prisoner-swap.html
+
 **A Play About J.K. Rowling Stirred Outrage. Until It Opened.**\
 `The muted reaction to the Edinburgh Fringe show “TERF” suggests that when activists engage with potentially inflammatory art, offense can quickly vanish.`\
 https://nytimes.com/2024/08/07/theater/terf-play-rowling-edinburgh-fringe.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5619725/2024/08/07/lakers-depth-chart-rui-hachimura
 **Valencia appear to pull plug on Guerra's Atletico move**\
 `Valencia appear to have pulled the plug on Javi Guerra&#8217;s proposed move to Atletico Madrid.`\
 https://nytimes.com/athletic/5686489/2024/08/07/valencia-appear-to-pull-plug-on-javi-guerras-atletico-move-after-madrid-club-miss-deadline/
-
-**U.S. Ambassador to Skip Peace Ceremony in Japan Over Israel’s Omission**\
-`The American and British ambassadors to Japan said they would not attend an event to mark the atomic bomb strike in Nagasaki because Israel’s ambassador was excluded.`\
-https://nytimes.com/2024/08/07/world/asia/nagasaki-ceremony-japan-israel-us-ambassador.html
 

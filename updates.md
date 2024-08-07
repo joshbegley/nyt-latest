@@ -1,3 +1,7 @@
+**In Prisoner Swap, Echoes of Putin’s K.G.B. Past**\
+`A sprawling exchange with the West underscored the Russian president’s loyalty to his intelligence services. It also showed his continued interest in making deals.`\
+https://nytimes.com/2024/08/07/world/europe/putin-russia-prisoner-swap.html
+
 **Bears 'Hard Knocks' takeaways: Caleb Williams the star, what they got right, wrong**\
 `Breaking down the first episode of the Bears on "Hard Knocks." Who stole the show? What was the most Chicago thing?`\
 https://nytimes.com/athletic/5685708/2024/08/07/bears-hard-knocks-episode-1-caleb-williams/
