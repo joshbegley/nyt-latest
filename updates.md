@@ -1,3 +1,11 @@
+**Elissa Slotkin and Mike Rogers Will Face Off in Key Michigan Senate Race**\
+`Democrats were initially favored to hold the seat, but President Biden’s struggles in the state — fueled in part by Israel’s war in Gaza — shifted the contest to a pure tossup.`\
+https://nytimes.com/2024/08/06/us/politics/elissa-slotkin-mike-rogers-michigan-senate.html
+
+**Chargers training camp, Day 12: When do the offensive struggles become concerning?**\
+`Nobody expects Easton Stick to be Justin Herbert, but the offensive struggles in camp can still be reason for alarm.`\
+https://nytimes.com/athletic/5685560/2024/08/06/chargers-training-camp-quarterbacks-struggling-easton-stick/
+
 **Apple Workers Approve Contract at First Union Store in U.S.**\
 `The agreement raises wages roughly 10 percent over three years and guarantees benefits and severance pay.`\
 https://nytimes.com/2024/08/06/business/economy/apple-store-union-contract.html
