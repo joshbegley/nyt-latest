@@ -1,11 +1,3 @@
-**Green Day Comes Around, Celebrating Two Album Anniversaries**\
-`The long-running California punk band brought a show focused on two classic LPs and a new release to New York, and multiple generations turned out for the spectacle.`\
-https://nytimes.com/2024/08/07/arts/music/green-day-saviors-tour-photos.html
-
-**Thursday Briefing: Antiracism Protesters Gather in Britain**\
-`Plus, China’s quest for Olympic gold shifts gears.`\
-https://nytimes.com/2024/08/07/briefing/britain-antiracism-protests-us-presidential-election-great-barrier-reef.html
-
 **The United States presses Hamas’s new political chief to accept the latest cease-fire proposal.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/08/07/world/israel-iran-hamas-gaza-war/the-united-states-presses-hamass-new-political-chief-to-accept-the-latest-cease-fire-proposal
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/5687334/2024/08/07/joe-ryan-injury-minnesota-twins/
 **A Year After the Fire, a Lahaina Little Leaguer Finds Solace in Baseball**\
 `A team from Maui is now steps away from the Little League World Series, including one player whose family lost almost everything.`\
 https://nytimes.com/2024/08/07/us/lahaina-fire-little-league-baseball.html
+
+**Ethiopia's Girma stretchered off track after steeplechase fall**\
+`Girma appeared to clip the barrier with his trailing left foot and fell directly onto his upper body.`\
+https://nytimes.com/athletic/5687451/2024/08/07/lamecha-girma-olympics-steeplechase-injury/
+
+**JD Vance and Tim Walz Find Common Ground: Diet Mountain Dew**\
+`The citrusy soft drink was briefly a political hot button, but it turns out both parties have prominent devotees — and the heartland is the key.`\
+https://nytimes.com/2024/08/07/dining/drinks/jd-vance-tim-walz-diet-mountain-dew.html
 
