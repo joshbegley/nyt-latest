@@ -1,3 +1,7 @@
+**What’s Left on Your Summer Bucket List? Tell Us.**\
+`Summer is nearing its end — at least in spirit — and we want to know how you’re making the most of what remains.`\
+https://nytimes.com/2024/08/06/style/whats-left-on-your-summer-bucket-list.html
+
 **Walz, a middling fund-raiser, energizes Democratic donors.**\
 `By Theodore Schleifer`\
 https://nytimes.com/live/2024/08/06/us/kamala-harris-vp-trump-election/tim-walz-fundraising-donors

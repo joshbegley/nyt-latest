@@ -1,3 +1,7 @@
+**What’s Left on Your Summer Bucket List? Tell Us.**\
+`Summer is nearing its end — at least in spirit — and we want to know how you’re making the most of what remains.`\
+https://nytimes.com/2024/08/06/style/whats-left-on-your-summer-bucket-list.html
+
 **Walz, a middling fund-raiser, energizes Democratic donors.**\
 `By Theodore Schleifer`\
 https://nytimes.com/live/2024/08/06/us/kamala-harris-vp-trump-election/tim-walz-fundraising-donors
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/06/us/politics/el-mayo-trial-brooklyn.html
 **Elissa Slotkin and Mike Rogers Will Face Off in Key Michigan Senate Race**\
 `Democrats were initially favored to hold the seat, but President Biden’s struggles in the state — fueled in part by Israel’s war in Gaza — shifted the contest to a pure tossup.`\
 https://nytimes.com/2024/08/06/us/politics/elissa-slotkin-mike-rogers-michigan-senate.html
-
-**At what point do the Chargers' offensive struggles in training camp become a concern?**\
-`Nobody expects Easton Stick to be Justin Herbert, but the offensive struggles in camp can still be a reason for alarm.`\
-https://nytimes.com/athletic/5685560/2024/08/06/chargers-training-camp-quarterbacks-struggling-easton-stick/
 
