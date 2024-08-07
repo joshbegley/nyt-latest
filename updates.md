@@ -1,3 +1,19 @@
+**Trump Dangles New Tax Cut Proposals With Real Political Appeal**\
+`The most recent and costliest of Mr. Trump’s ideas would end income taxes on Social Security benefits.`\
+https://nytimes.com/2024/08/07/business/economy/trump-tax-cuts.html
+
+**Heat Raises Fears of ‘Demise’ for Great Barrier Reef Within a Generation**\
+`A new study found that temperatures in the Coral Sea have reached their highest levels in at least four centuries.`\
+https://nytimes.com/2024/08/07/climate/ocean-heat-great-barrier-reef.html
+
+**This Chilled Gochujang Tofu Is My Heat-Wave Haven**\
+`The combination of cold, custardy soybean curd and tangy, chile-sweet sauce is a warm-weather epiphany, no cooking required.`\
+https://nytimes.com/2024/08/07/dining/this-chilled-gochujang-tofu-is-my-heat-wave-haven.html
+
+**Patriots’ failed Brandon Aiyuk pursuit highlights difficulties of NFL rebuild**\
+`Until the Patriots prove their head coach is worth playing for and their young quarterback can be the guy, it could be a long rebuild.`\
+https://nytimes.com/athletic/5686569/2024/08/07/patriots-brandon-aiyuk-trade/
+
 **Projecting Nebraska's 120-player roster: WRs improve, O-line lacks depth**\
 `Wide receiver looks like the most improved position group on Nebraska's roster while the D-line looks like a top unit nationally. `\
 https://nytimes.com/athletic/5685023/2024/08/07/nebraska-football-roster-projection/
