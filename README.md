@@ -1,3 +1,7 @@
+**Marta’s legacy is defiance, hunger and joy. But how will it end at the Olympics?**\
+`Marta will go down as one of the greatest to ever play. Her international career comes to an end in the Olympic final against the U.S. `\
+https://nytimes.com/athletic/5671350/2024/08/07/marta-brazil-olympics-legacy/
+
 **Lucas Digne rejects proposal to join Galatasaray**\
 `Aston Villa defender Lucas Digne has rejected a proposal to join Galatasaray.`\
 https://nytimes.com/athletic/5686618/2024/08/07/lucas-digne-galatasaray-aston-villa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5683866/2024/08/07/francis-ngannou-mma-return-pfl-r
 **How Could My Friend Give My Child Melatonin Without My Permission?**\
 `A reader was shocked and infuriated when she wasn’t consulted before her 10-year-old was given a melatonin supplement at a sleepover.`\
 https://nytimes.com/2024/08/07/style/children-melatonin-parental-permission.html
-
-**NBC wants Snoop Dogg to return for future Olympics**\
-`“Snoop has done everything and beyond what we ever expected him to do here in the Paris Games,” said NBC Sports president Rick Cordella.`\
-https://nytimes.com/athletic/5686487/2024/08/07/snoop-dogg-nbc-olympics-future/
 
