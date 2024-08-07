@@ -1,3 +1,23 @@
+**Manhattan Planned Parenthood Will Stop Offering Abortions After 20 Weeks**\
+`The shift came as Planned Parenthood’s New York chapter revealed plans to close four clinics across the state, as financial issues mount.`\
+https://nytimes.com/2024/08/07/nyregion/planned-parenthood-abortions-manhattan.html
+
+**Tax Revenues From New York City Office Buildings Rise, Despite Vacancies**\
+`The assessed market value of the city’s buildings is still growing, according to a report from the state comptroller, leading to a modest increase in tax revenue.`\
+https://nytimes.com/2024/08/07/nyregion/office-buildings-value-manhattan.html
+
+**Capturing the Split Seconds Between Victory and Defeat**\
+`Faced with the challenge of quickly recapping Olympic events, The Times creates its own animated versions of competitions. The internet loves them.`\
+https://nytimes.com/2024/08/07/insider/olympics-coverage.html
+
+**The Olympics Have a Gap That Netflix Is Trying to Fill**\
+`New seasons of documentaries about running, gymnastics and basketball are being filmed this summer as part of a partnership with the International Olympic Committee.`\
+https://nytimes.com/2024/08/07/world/olympics/netflix-documentary-sprint-simone-biles.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/07/crosswords/spelling-bee-forum.html
+
 **Padres wait out lengthy delay before winning again as Joe Musgrove nears return**\
 `Musgrove is expected to return from a lengthy stay on the injured list in the coming days, possibly as early as this weekend.`\
 https://nytimes.com/athletic/5684532/2024/08/07/padres-pirates-delay-joe-musgrove-nears-return/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5685492/2024/08/07/chelsea-real-madrid-analysis-def
 **Word of the Day: ideologue**\
 `This word has appeared in 32 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/07/learning/word-of-the-day-ideologue.html
-
-**How Bangladesh’s Leader Lost Her Grip on Power**\
-`Once viewed as the hope for a democratic future in Bangladesh, Sheikh Hasina turned increasingly autocratic during her years as prime minister.`\
-https://nytimes.com/video/world/asia/100000009614906/how-bangladeshs-leader-lost-her-grip-on-power.html
-
-**Dodgers' Brusdar Graterol helped off field after hamstring injury**\
-`Graterol left after 8 pitches. He had yet to pitch this season because of a shoulder issue that cropped up at the end of spring training.`\
-https://nytimes.com/athletic/5685901/2024/08/07/dodgers-brusdar-graterol-injury/
-
-**Fantasy football takeover: Flipping a newly-acquired dynasty team towards a brighter future**\
-`Mike Vorkunov details how he remade a dynasty football team he acquired in the middle of the 2023 campaign with an eye towards the future. `\
-https://nytimes.com/athletic/5681984/2024/08/07/dynasty-draft-flip-team-fantasy-football/
-
-**A Deal That Could Save Venezuela**\
-`A power-sharing deal may be the best way out of Venezuela’s political crisis.`\
-https://nytimes.com/2024/08/07/opinion/venezuela-deal-political-crisis.html
-
-**'It's really difficult to defend against him' - analysis from Rodrigo Gomes's former coach**\
-`Vasco Seabra, who coached Rodrigo Gomes to his best season, has no doubts that the 21-year-old will rise to the challenge at Wolves`\
-https://nytimes.com/athletic/5674670/2024/08/07/rodrigo-gomes-wolves-vasco-seabra/
 
