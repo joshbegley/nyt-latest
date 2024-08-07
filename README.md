@@ -1,3 +1,7 @@
+**New York’s Newest Hotels Reveal the City’s Romantic Streak**\
+`Landscaped terraces, vintage cocktail bars and plush screening rooms — Manhattan’s hospitality scene revives the Gilded Age`\
+https://nytimes.com/2024/08/07/t-magazine/new-york-hotels-gilded-age.html
+
 **Vance Attacks Walz’s Military Record, Accusing Him of ‘Stolen Valor’**\
 `Senator JD Vance of Ohio claimed Gov. Tim Walz on Minnesota had exaggerated his service record and quit the Army National Guard to avoid being deployed to Iraq.`\
 https://nytimes.com/2024/08/07/us/politics/vance-walz-military-record.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5687568/2024/08/07/liverpool-zubimendi-agree-real-s
 **Charleston Exhales After a ‘Really Close Call’ With Dangerous Flooding**\
 `The historic coastal city floods easily, but officials have upgraded infrastructure in recent years to try to prevent the worst.`\
 https://nytimes.com/2024/08/07/weather/charleston-flooding-debby.html
-
-**Taylor Swift’s Vienna Concerts Are Canceled After Terror Plot Arrests**\
-`Three shows were called off after Austrian officials arrested two men and accused them of plotting a terrorist attack, and said that one had been focused on her upcoming stadium concerts.`\
-https://nytimes.com/2024/08/07/arts/music/taylor-swift-concert-terror-plot-vienna.html
 
