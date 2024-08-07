@@ -1,3 +1,7 @@
+**Indian Wrestler Vinesh Phogat Is Disqualified From Gold Medal Match**\
+`Indian officials said she failed to make her weight class by a few grams. Last year, she was the face of a protest against a powerful Indian sports official.`\
+https://nytimes.com/2024/08/07/world/olympics/vinesh-phogat-disqualified-wrestling.html
+
 **Getting to the core of why NFL players love Pilates**\
 `The perception that Pilates isn't for big, strong men is being exploded by a steady stream of NFL players making their way to the activity.`\
 https://nytimes.com/athletic/5683925/2024/08/07/nfl-players-pilates-fitness-recovery/
