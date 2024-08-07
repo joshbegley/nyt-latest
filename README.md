@@ -1,3 +1,7 @@
+**Cori Bush, ‘Squad’ Member and Vocal Critic of Israel, Loses Her Primary**\
+`Her defeat is another loss for progressives in a race defined by Democratic divisions over the war in Gaza, with pro-Israel groups pouring millions into a campaign to oust her from office.`\
+https://nytimes.com/2024/08/06/us/politics/cori-bush-wesley-bell-primary.html
+
 **Kamala Harris and ‘Coach Walz’ Ease Into Their New Partnership**\
 `A chemistry seems to be developing between Vice President Kamala Harris and her running mate, Gov. Tim Walz of Minnesota, who looks as if he cannot believe his luck.`\
 https://nytimes.com/2024/08/06/us/kamala-harris-tim-walz-partnership.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/06/us/politics/andrew-bailey-missouri-attorney-gener
 **4 Milwaukee Hotel Workers Charged With Murder in Fatal Pinning of Man**\
 `Four workers who pinned down D’vontaye Mitchell, 43, outside a Milwaukee Hyatt hotel in June were charged with murder. His family said he had been having a mental health crisis.`\
 https://nytimes.com/2024/08/06/us/dvontaye-mitchell-homicide-charges.html
-
-**Harris and Walz Hold First Campaign Rally Together**\
-`Vice President Kamala Harris and her newly announced running mate, Gov. Tim Walz of Minnesota, went on the attack against the Trump-Vance Republican ticket during a raucous rally in Philadelphia.`\
-https://nytimes.com/video/us/politics/100000009615583/harris-walz-campaign-rally.html
 
