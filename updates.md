@@ -1,3 +1,15 @@
+**Submit a question for Jared Weiss’ Celtics mailbag**\
+`<p>Even though it’s deep in the offseason, the Celtics’ star players are still on the floor as Team USA makes a run for an Olympic gold medal.`\
+https://nytimes.com/athletic/5687175/2024/08/07/celtics-mailbag-offseason/
+
+**NASA Says Boeing Starliner Astronauts May Fly Home on SpaceX in 2025**\
+`The agency had insisted for a couple of months that it was confident that Suni Williams and Butch Wilmore would return on Starliner.`\
+https://nytimes.com/2024/08/07/science/boeing-starliner-nasa-spacex.html
+
+**How Tim Walz Embraced Minnesota’s Leftward Shift**\
+`Kamala Harris’s running mate was picked for his rapport with Middle America, but his progressive record as governor parallels his state’s move toward more liberal politics.`\
+https://nytimes.com/2024/08/07/us/politics/tim-walz-liberal.html
+
 **Hotel Collapse in Mosel Region of Germany Kills 2**\
 `A small hotel in the Mosel region of Germany collapsed late on Tuesday, killing two people and prompting a frantic rescue effort for guests trapped under the rubble.`\
 https://nytimes.com/video/world/europe/100000009616278/germany-hotel-collapse.html
