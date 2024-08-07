@@ -1,3 +1,7 @@
+**Arsenal set to sign Sweden international Kafaji from Hacken**\
+`Arsenal are set to sign Sweden international Rosa Kafaji from BK Hacken.`\
+https://nytimes.com/athletic/5686179/2024/08/07/arsenal-women-transfers-rosa-kafaji/
+
 **Dept. of Justice being asked to investigate Disney, Fox, Warner Bros joint venture**\
 `Venu Sports is slated to begin soon at a rate of $42.99 per month.`\
 https://nytimes.com/athletic/5685739/2024/08/07/dept-of-justice-disney-fox-warner-bros-tnt/
