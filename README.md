@@ -1,10 +1,14 @@
+**Could Yankees switch Aaron Judge and Juan Soto in the lineup? They've considered it**\
+`If manager Aaron Boone flipped the two, the Yankees would have the second-best hitter in MLB hitting behind the best hitter.`\
+https://nytimes.com/athletic/5687076/2024/08/07/yankees-aaron-judge-juan-soto-batting-order/
+
 **Quincy Hall wins gold to snap American drought in 400**\
 `Quincy Hall is about that life. He posted a personal best of 43.40 seconds in a come-from-behind to snatch the gold away.`\
 https://nytimes.com/athletic/5687341/2024/08/07/quincy-hall-olympic-400m-results/
 
 **Harrison Butker stands by controversial commencement speech: It came from 'a place of love'**\
 `The Chiefs' kicker said his comments were "misconstrued that I’m trying to put women down, which I’m not at all."`\
-https://nytimes.com/athletic/5687153/2024/08/07/chiefs-harrison-butkercommencement-speech/
+https://nytimes.com/athletic/5687153/2024/08/07/chiefs-harrison-butker-commencement-speech/
 
 **Fantasy football 2024 quarterback rankings: ‘Upside’ and ‘downside’ scores; plus, a downloadable spreadsheet**\
 `Starting with AFC rivals Josh Allen and Patrick Mahomes, KC Joyner offers his draft guide for the Top 25 QBs for fantasy football 2024.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5687175/2024/08/07/celtics-mailbag-offseason/
 **NASA Says Boeing Starliner Astronauts May Fly Home on SpaceX in 2025**\
 `The agency had insisted for a couple of months that it was confident that Suni Williams and Butch Wilmore would return on Starliner.`\
 https://nytimes.com/2024/08/07/science/boeing-starliner-nasa-spacex.html
-
-**How Tim Walz Embraced Minnesota’s Leftward Shift**\
-`Kamala Harris’s running mate was picked for his rapport with Middle America, but his progressive record as governor parallels his state’s move toward more liberal politics.`\
-https://nytimes.com/2024/08/07/us/politics/tim-walz-liberal.html
 
