@@ -1,3 +1,15 @@
+**USMNT defender Ream completes Charlotte FC move from Fulham**\
+`USMNT defender Tim Ream has completed his move to Charlotte FC from Fulham.`\
+https://nytimes.com/athletic/5686479/2024/08/07/tim-ream-charlotte-fulham-transfer/
+
+**Francis Ngannou to make MMA return, PFL debut in October**\
+`The 6-foot-8 Ferreira is 13-3 and coming off a a 21-second TKO of Ryan Bader in February for the "PFL vs. Bellator Champion" Super Belt.`\
+https://nytimes.com/athletic/5683866/2024/08/07/francis-ngannou-mma-return-pfl-renan-ferreira-ufc/
+
+**How Could My Friend Give My Child Melatonin Without My Permission?**\
+`A reader was shocked and infuriated when she wasn’t consulted before her 10-year-old was given a melatonin supplement at a sleepover.`\
+https://nytimes.com/2024/08/07/style/children-melatonin-parental-permission.html
+
 **Health Officials Urge Doctors to Address I.U.D. Insertion Pain**\
 `As videos describing the procedure as agonizing spread on social media, new guidelines advise physicians to consider various anesthetics.`\
 https://nytimes.com/2024/08/07/health/iud-insertion-pain.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5686447/2024/08/07/liverpool-martin-zubimendi-busqu
 **Buster Posey applauds Patrick Bailey as Blake Snell seeks a no-hitter encore**\
 `Posey praised the Giants' second-year catcher, who calmed Snell down early in the no-hitter and set the tone that led to history.`\
 https://nytimes.com/athletic/5685841/2024/08/07/sf-giants-patrick-bailey-buster-posey-no-hitter/
-
-**Here’s the latest on the presidential race.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/08/07/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**49ers' Jake Moody talks kickoffs, Super Bowl PAT and his history as a tackler**\
-`Saturday's preseason opener in Tennessee will be the first time this year the 49ers get full-speed practice with the new kickoff rules.`\
-https://nytimes.com/athletic/5684045/2024/08/07/49ers-jake-moody-kickoffs-super-bowl-pat/
-
-**Map: 5.2-Magnitude Earthquake Strikes Southern California**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2024/08/07/us/07wea-quake-tracker-southern-california-nyt8cwe.html
 
