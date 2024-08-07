@@ -1,3 +1,15 @@
+**Ethiopia's Girma stretchered off track after steeplechase fall**\
+`Girma appeared to clip the barrier with his trailing left foot and fell directly onto his upper body.`\
+https://nytimes.com/athletic/5687451/2024/08/07/lamecha-girma-olympics-steeplechase-injury/
+
+**JD Vance and Tim Walz Find Common Ground: Diet Mountain Dew**\
+`The citrusy soft drink was briefly a political hot button, but it turns out both parties have prominent devotees — and the heartland is the key.`\
+https://nytimes.com/2024/08/07/dining/drinks/jd-vance-tim-walz-diet-mountain-dew.html
+
+**Harris and Walz Roll Into the Midwest, Trying to Claw Back Rural Support**\
+`At a big rally in Eau Claire, Wis., before a visit to Detroit, Kamala Harris and Tim Walz pushed their economic message, laid his Midwestern background on thick and warned of a second Trump term.`\
+https://nytimes.com/2024/08/07/us/politics/harris-walz-rural-voters-midwest.html
+
 **Ann Abadie, Champion of Southern Studies, Is Dead at 84**\
 `The longtime associate director of the Center for the Study of Southern Culture at the University of Mississippi, she also edited more than 50 books about the South.`\
 https://nytimes.com/2024/08/07/us/ann-abadie-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5685930/2024/08/07/sf-giants-trade-deadline-takeawa
 **Arsenal 'managing' Timber and Calafiori as precaution says Arteta**\
 `Mikel Arteta has given updates on Jurrien Timber and Riccardo Calafiori after the pair missed yet another one of Arsenal’s pre-season friendlies.`\
 https://nytimes.com/athletic/5687429/2024/08/07/arsenal-calafiori-timber-injury-arteta/
-
-**Harris, Walz and Democrats’ Joyful Campaign**\
-`This election has become a contest between Harris’s high spirits and Trump’s dark vision.`\
-https://nytimes.com/2024/08/07/opinion/kamala-harris-walz-democrats.html
-
-**Jets activate WR Mike Williams from PUP list**\
-`Williams, who signed a one-year contract with the Jets this offseason, is recovering from a torn ACL he suffered in Week 3 last season.`\
-https://nytimes.com/athletic/5687356/2024/08/07/jets-mike-williams-pup-activate/
-
-**U.S. artistic swimming wins first Olympic medal in 20 years**\
-`China won the latest gold with a final score of 996.1389.`\
-https://nytimes.com/athletic/5687259/2024/08/07/olympics-artistic-swimming-us-silver-medal/
 

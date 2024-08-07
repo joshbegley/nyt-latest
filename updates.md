@@ -1,3 +1,15 @@
+**Ethiopia's Girma stretchered off track after steeplechase fall**\
+`Girma appeared to clip the barrier with his trailing left foot and fell directly onto his upper body.`\
+https://nytimes.com/athletic/5687451/2024/08/07/lamecha-girma-olympics-steeplechase-injury/
+
+**JD Vance and Tim Walz Find Common Ground: Diet Mountain Dew**\
+`The citrusy soft drink was briefly a political hot button, but it turns out both parties have prominent devotees — and the heartland is the key.`\
+https://nytimes.com/2024/08/07/dining/drinks/jd-vance-tim-walz-diet-mountain-dew.html
+
+**Harris and Walz Roll Into the Midwest, Trying to Claw Back Rural Support**\
+`At a big rally in Eau Claire, Wis., before a visit to Detroit, Kamala Harris and Tim Walz pushed their economic message, laid his Midwestern background on thick and warned of a second Trump term.`\
+https://nytimes.com/2024/08/07/us/politics/harris-walz-rural-voters-midwest.html
+
 **Ann Abadie, Champion of Southern Studies, Is Dead at 84**\
 `The longtime associate director of the Center for the Study of Southern Culture at the University of Mississippi, she also edited more than 50 books about the South.`\
 https://nytimes.com/2024/08/07/us/ann-abadie-dead.html
