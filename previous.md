@@ -1,3 +1,7 @@
+**Buckley: NFL joint practices without fights are impractical, so let's review pros and cons**\
+`Yes, the workouts help with reps, scouting and evaluating. But they also facilitate fisticuffs, risk injury and create a spectacle.`\
+https://nytimes.com/athletic/5687861/2024/08/07/giants-lions-joint-practices-fight-nfl-fine/
+
 **Four takeaways on Mark Shapiro's assessment of a disappointing Blue Jays' season**\
 `Shapiro plans to have a contending club in 2025, though he didn't commit firmly to a direction. “It's important to get better and win.”`\
 https://nytimes.com/athletic/5687849/2024/08/07/blue-jays-takeaways-mark-shapiro-season-assessment/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5687826/2024/08/07/bengals-training-camp-fights/
 **DK Metcalf swings helmet at teammate's head**\
 `DK Metcalf hit K'Von Wallace in the head with a helmet after a confrontation with Tre Brown, just one of several fights Wednesday.`\
 https://nytimes.com/athletic/5687833/2024/08/07/seahawks-fight-dk-metcalf-helmet/
-
-**Warner Bros. Discovery Takes $9 Billion Write-Down on Cable Networks**\
-`David Zaslav, the company’s chief executive, said the accounting change was an acknowledgment of the pressures facing traditional media.`\
-https://nytimes.com/2024/08/07/business/warner-bros-discovery-sports-write-down.html
 

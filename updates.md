@@ -1,3 +1,7 @@
+**Buckley: NFL joint practices without fights are impractical, so let's review pros and cons**\
+`Yes, the workouts help with reps, scouting and evaluating. But they also facilitate fisticuffs, risk injury and create a spectacle.`\
+https://nytimes.com/athletic/5687861/2024/08/07/giants-lions-joint-practices-fight-nfl-fine/
+
 **Four takeaways on Mark Shapiro's assessment of a disappointing Blue Jays' season**\
 `Shapiro plans to have a contending club in 2025, though he didn't commit firmly to a direction. “It's important to get better and win.”`\
 https://nytimes.com/athletic/5687849/2024/08/07/blue-jays-takeaways-mark-shapiro-season-assessment/
