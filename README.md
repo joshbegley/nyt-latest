@@ -1,3 +1,7 @@
+**Bears 'Hard Knocks' takeaways: Caleb Williams the star, what they got right, wrong**\
+`Breaking down the first episode of the Bears on "Hard Knocks." Who stole the show? What was the most Chicago thing?`\
+https://nytimes.com/athletic/5685708/2024/08/06/bears-hard-knocks-episode-1-caleb-williams/
+
 **Boeing Says It’s Changing Type of Panel That Blew Off Alaska Airlines Jet**\
 `The company told regulators the changes in design and production of the door plugs would allow its warning systems to detect malfunctions.`\
 https://nytimes.com/2024/08/06/us/politics/boeing-safety-door-plugs.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/06/us/kamala-harris-vp-trump-election/tim-walz-
 **Communicate Like a Sphynx**\
 `Meghan Morris makes no formal pronouncements.`\
 https://nytimes.com/2024/08/06/crosswords/daily-puzzle-2024-08-07.html
-
-**Incumbent Andrew Bailey Wins Republican Primary for Missouri A.G.**\
-`He and his challenger, Will Scharf, were both endorsed by former President Donald J. Trump.`\
-https://nytimes.com/2024/08/06/us/politics/andrew-bailey-missouri-attorney-general.html
 
