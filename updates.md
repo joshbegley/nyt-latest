@@ -1,3 +1,15 @@
+**Could Yankees switch Aaron Judge and Juan Soto in the lineup? They've considered it**\
+`If manager Aaron Boone flipped the two, the Yankees would have the second-best hitter in MLB hitting behind the best hitter.`\
+https://nytimes.com/athletic/5687076/2024/08/07/yankees-aaron-judge-juan-soto-batting-order/
+
+**Quincy Hall wins gold to snap American drought in 400**\
+`Quincy Hall is about that life. He posted a personal best of 43.40 seconds in a come-from-behind to snatch the gold away.`\
+https://nytimes.com/athletic/5687341/2024/08/07/quincy-hall-olympic-400m-results/
+
+**Harrison Butker stands by controversial commencement speech: It came from 'a place of love'**\
+`The Chiefs' kicker said his comments were "misconstrued that I’m trying to put women down, which I’m not at all."`\
+https://nytimes.com/athletic/5687153/2024/08/07/chiefs-harrison-butker-commencement-speech/
+
 **Fantasy football 2024 quarterback rankings: ‘Upside’ and ‘downside’ scores; plus, a downloadable spreadsheet**\
 `Starting with AFC rivals Josh Allen and Patrick Mahomes, KC Joyner offers his draft guide for the Top 25 QBs for fantasy football 2024.`\
 https://nytimes.com/athletic/5687168/2024/08/07/qb-rankings-system-fantasy-football-2024/
