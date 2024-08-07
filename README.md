@@ -1,3 +1,15 @@
+**As War in Ukraine Persists, Where Is a Conductor’s Red Line?**\
+`Teodor Currentzis, whose MusicAeterna receives funding from a Russian state bank, has eluded censure at the prestigious Salzburg Festival.`\
+https://nytimes.com/2024/08/07/arts/music/currentzis-conductor-ukraine-war.html
+
+**Scoop City: Aiyuk's 3 potential teams**\
+`With the Patriots out of the running, three remaining scenarios for Brandon Aiyuk.`\
+https://nytimes.com/athletic/5686962/2024/08/07/aiyuk-trade-landing-spots-scoop-city/
+
+**Some Gazans worry that Sinwar’s rise could mean a cease-fire is further away.**\
+`By Bilal Shbair and Hiba Yazbek`\
+https://nytimes.com/live/2024/08/07/world/israel-iran-hamas-gaza-war/some-gazans-worry-that-sinwars-rise-could-mean-a-cease-fire-is-further-away
+
 **We’re Applying Lessons from Covid to Bird Flu. That’s Not Good.**\
 `America has learned all the wrong lessons from the Covid pandemic.`\
 https://nytimes.com/2024/08/07/opinion/bird-flu-covid.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/07/arts/music/lincoln-center-president-mariko-silver
 **The Windup: They were *this close* to history**\
 `Levi Weaver catches you up on league-wide news.`\
 https://nytimes.com/athletic/5686897/2024/08/07/framber-valdez-no-hitter-white-sox-streak-the-windup/
-
-**Hotel Collapse in Germany Kills 2 and Prompts Frantic Rescue Mission**\
-`One person remained trapped under the rubble on Wednesday after a centuries-old structure collapsed late the night before.`\
-https://nytimes.com/2024/08/07/world/europe/germany-hotel-collapse.html
-
-**Palace prepared to sanction Johnstone departure**\
-`Crystal Palace are prepared to sanction the departure of Sam Johnstone if suitable offers arrive after the goalkeeper asked to leave Selhurst Park.`\
-https://nytimes.com/athletic/5686901/2024/08/07/sam-johnstone-crystal-palace-transfer/
-
-**Arab nations urge Iran to exercise restraint in responding to Hamas leader’s assassination.**\
-`By Adam Rasgon and Ben Hubbard`\
-https://nytimes.com/live/2024/08/07/world/israel-iran-hamas-gaza-war/arab-ayman-al-safadi-jordan-iran-israel
 
