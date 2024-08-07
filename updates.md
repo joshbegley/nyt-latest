@@ -1,3 +1,7 @@
+**Walz, a middling fund-raiser, energizes Democratic donors.**\
+`By Theodore Schleifer`\
+https://nytimes.com/live/2024/08/06/us/kamala-harris-vp-trump-election/tim-walz-fundraising-donors
+
 **Communicate Like a Sphynx**\
 `Meghan Morris makes no formal pronouncements.`\
 https://nytimes.com/2024/08/06/crosswords/daily-puzzle-2024-08-07.html
