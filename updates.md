@@ -1,3 +1,7 @@
+**Alvarez, Gallagher, Guerra and the rest: Can Atletico Madrid afford a €200m summer spend?**\
+`La Liga's transfer spending has so far been pretty quiet - but Atletico could be about to change all that`\
+https://nytimes.com/athletic/5686015/2024/08/07/atletico-madrid-manchester-city-chelsea-transfers-alvarez-gallagher/
+
 **Why Kamala Harris Picked Tim Walz**\
 `The Minnesota governor’s biography and demeanor makes him a familiar figure to many voters.`\
 https://nytimes.com/2024/08/07/briefing/kamala-harris-tim-walz-running-mate.html
