@@ -1,3 +1,11 @@
+**5 Ways Hawaii Is Trying to Prevent the Next Deadly Fire**\
+`When a fire devastated the island of Maui a year ago, officials said they would make fire safety and preparedness improvements. But progress is slow and costly.`\
+https://nytimes.com/2024/08/07/us/lahaina-maui-wildfire-preparation.html
+
+**The Benefits of a Goofball on the Ticket**\
+`Walz can go places where Harris cannot.`\
+https://nytimes.com/2024/08/07/opinion/walz-harris-goofball.html
+
 **One-on-one with Grant Hill: Why build Team USA like this? He had one big worry**\
 `"You can hope that they play at a certain level," Grant Hill says of his older Team USA stars. "There was some uncertainty, I'll be honest."`\
 https://nytimes.com/athletic/5686922/2024/08/07/grant-hill-usa-basketball-olympics-lebron-james/
