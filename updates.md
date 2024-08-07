@@ -1,3 +1,11 @@
+**How Undecided Voters Feel About Tim Walz**\
+`At least a handful of them are still unsure.`\
+https://nytimes.com/2024/08/07/us/walz-harris-undecided-voters.html
+
+**After Breaking Free, World’s Largest Iceberg Is Stuck Spinning in Circles**\
+`Round and round a 1,600-square-mile iceberg goes, stuck in a vortex over an underwater mountain. When it will stop, nobody knows.`\
+https://nytimes.com/2024/08/07/science/a23a-iceberg-antarctica-spinning.html
+
 **5 Ways Hawaii Is Trying to Prevent the Next Deadly Fire**\
 `When a fire devastated the island of Maui a year ago, officials said they would make fire safety and preparedness improvements. But progress is slow and costly.`\
 https://nytimes.com/2024/08/07/us/lahaina-maui-wildfire-preparation.html
