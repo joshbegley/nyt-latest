@@ -1,3 +1,11 @@
+**Chelsea's Gilchrist completes Sheffield United loan**\
+`Chelsea defender Alfie Gilchrist has completed a loan move to Championship side Sheffield United.`\
+https://nytimes.com/athletic/5686212/2024/08/07/alfie-gilchrist-sheffield-united-loan-chelsea/
+
+**Inside Madrid's U.S. tour: Lightning strikes, sightseeing and a warning to their rivals**\
+`Madrid's 10 days in the U.S. were strange and there were mixed results — but we learned a lot behind the scenes`\
+https://nytimes.com/athletic/5686333/2024/08/07/real-madrid-preseason-tour-us/
+
 **USMNT defender Ream completes Charlotte FC move from Fulham**\
 `USMNT defender Tim Ream has completed his move to Charlotte FC from Fulham.`\
 https://nytimes.com/athletic/5686479/2024/08/07/tim-ream-charlotte-fulham-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5685739/2024/08/07/dept-of-justice-disney-fox-warne
 **A Walzonomics Primer**\
 `Here’s how business executives and donors are evaluating Gov. Tim Walz of Minnesota, especially on taxes, labor unions, energy policy and more.`\
 https://nytimes.com/2024/08/07/business/dealbook/walz-economics-business-issues.html
-
-**Liverpool target Martin Zubimendi is the Gen-Z Sergio Busquets at the heart of Real Sociedad's midfield**\
-`Operating with extreme calm and precision, Zubimendi is wanted by Liverpool`\
-https://nytimes.com/athletic/5686447/2024/08/07/liverpool-martin-zubimendi-busquets/
-
-**Buster Posey applauds Patrick Bailey as Blake Snell seeks a no-hitter encore**\
-`Posey praised the Giants' second-year catcher, who calmed Snell down early in the no-hitter and set the tone that led to history.`\
-https://nytimes.com/athletic/5685841/2024/08/07/sf-giants-patrick-bailey-buster-posey-no-hitter/
 

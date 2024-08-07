@@ -1,3 +1,11 @@
+**Chelsea's Gilchrist completes Sheffield United loan**\
+`Chelsea defender Alfie Gilchrist has completed a loan move to Championship side Sheffield United.`\
+https://nytimes.com/athletic/5686212/2024/08/07/alfie-gilchrist-sheffield-united-loan-chelsea/
+
+**Inside Madrid's U.S. tour: Lightning strikes, sightseeing and a warning to their rivals**\
+`Madrid's 10 days in the U.S. were strange and there were mixed results — but we learned a lot behind the scenes`\
+https://nytimes.com/athletic/5686333/2024/08/07/real-madrid-preseason-tour-us/
+
 **USMNT defender Ream completes Charlotte FC move from Fulham**\
 `USMNT defender Tim Ream has completed his move to Charlotte FC from Fulham.`\
 https://nytimes.com/athletic/5686479/2024/08/07/tim-ream-charlotte-fulham-transfer/
