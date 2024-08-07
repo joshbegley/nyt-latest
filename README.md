@@ -1,3 +1,11 @@
+**Elissa Slotkin and Mike Rogers Will Face Off in Key Michigan Senate Race**\
+`Democrats were initially favored to hold the seat, but President Biden’s struggles in the state — fueled in part by Israel’s war in Gaza — shifted the contest to a pure tossup.`\
+https://nytimes.com/2024/08/06/us/politics/elissa-slotkin-mike-rogers-michigan-senate.html
+
+**Chargers training camp, Day 12: When do the offensive struggles become concerning?**\
+`Nobody expects Easton Stick to be Justin Herbert, but the offensive struggles in camp can still be reason for alarm.`\
+https://nytimes.com/athletic/5685560/2024/08/06/chargers-training-camp-quarterbacks-struggling-easton-stick/
+
 **Apple Workers Approve Contract at First Union Store in U.S.**\
 `The agreement raises wages roughly 10 percent over three years and guarantees benefits and severance pay.`\
 https://nytimes.com/2024/08/06/business/economy/apple-store-union-contract.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/06/world/olympics/jeon-sang-guen-weight-lifting-meda
 **In Walz, Harris Sees a Battleground Strategy Dressed in Carhartt**\
 `Democrats think Gov. Tim Walz’s cultural ties are needed to talk to rural and working-class voters. But Republicans are not going to let his folksy style obscure a liberal record.`\
 https://nytimes.com/2024/08/06/us/politics/kamala-harris-tim-walz-running-mate.html
-
-**Former students remember Tim Walz’s advice and humor, and that one time he dunked.**\
-`Students recalled a teacher who was just as likely to gently prank a student as he was to dispense a few crucial words of wisdom.`\
-https://nytimes.com/live/2024/08/06/us/kamala-harris-vp-trump-election/former-students-remember-tim-walzs-advice-and-humor-and-that-one-time-he-dunked
-
-**What Minnesota Voters Think of Tim Walz**\
-`The governor succeeded in projecting an avuncular image. But not all voters are convinced that he rose above partisanship or united the state.`\
-https://nytimes.com/2024/08/06/us/tim-walz-minnesota-voters-reactions.html
 
