@@ -1,3 +1,15 @@
+**Maresca is wrong about rules forcing academy sales but his comments show how clubs think**\
+`“Some of the clubs spend more, some spend less,” said Maresca. But Chelsea spend more and that is a big reason why they sell too`\
+https://nytimes.com/athletic/5684689/2024/08/07/maresca-academy-sales-rules/
+
+**How much harm do short summer breaks cause Premier League footballers?**\
+`Time off in the summer, not even guaranteed to be three weeks, is just one of the pinch points in a much wider debate over player welfare`\
+https://nytimes.com/athletic/5683332/2024/08/07/short-summer-break-physical-mental-fatigue/
+
+**Jean-Philippe Mateta: Reborn at Crystal Palace and propelling France towards Olympic gold**\
+`The forward has maintained his prolific Premier League form from the run-in to last season to spearhead France's challenge at Paris 2024`\
+https://nytimes.com/athletic/5668886/2024/08/07/jean-philippe-mateta-reborn-at-crystal-palace-and-propelling-france-towards-olympic-gold/
+
 **More than 50 forwards signed. Over £300m spent. Is West Ham's hunt for a goalscorer over?**\
 `West Ham may have finally found their man this season in Niclas Fullkrug, but they have spent years searching for the right striker`\
 https://nytimes.com/athletic/5626066/2024/08/07/west-ham-forwards-sullivan-transfers/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5683059/2024/08/07/olympics-2024-watch-guide-day-12
 **White Sox snap 21-game skid, finish two shy of tying MLB record losing streak**\
 `OAKLAND, Calif.`\
 https://nytimes.com/athletic/5685432/2024/08/06/white-sox-end-21-game-losing-streak/
-
-**Braves' pitching plan backfires, offense falls flat in second straight shutout loss**\
-`The Braves' wild-card lead is gone and they have been outscored 20-0 over their past 24 innings. `\
-https://nytimes.com/athletic/5685753/2024/08/06/braves-bryce-elder-wild-card/
-
-**Twins, Carlos Correa maintain caution with All-Star shortstop's right heel**\
-`The Twins are still in wait-and-see mode as Correa recovers from right plantar fasciitis.`\
-https://nytimes.com/athletic/5685755/2024/08/06/carlos-correa-twins-heel-injury-update/
-
-**Corrections: Aug. 7, 2024**\
-`Corrections that appeared in print on Wednesday, Aug. 7, 2024.`\
-https://nytimes.com/2024/08/06/pageoneplus/corrections-aug-7-2024.html
 
