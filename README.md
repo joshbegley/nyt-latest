@@ -1,3 +1,11 @@
+**Quotation of the Day: He’s Still Walking a High Wire**\
+`Quotation of the Day for Wednesday, August 7, 2024.`\
+https://nytimes.com/2024/08/06/pageoneplus/quotation-of-the-day-hes-still-walking-a-high-wire.html
+
+**Race for Competitive Washington Congressional Seat Turns Into Rematch**\
+`Marie Gluesenkamp Perez and Joe Kent will compete again in November, two years after she beat him by less than 3,000 votes.`\
+https://nytimes.com/2024/08/06/us/politics/race-for-competitive-washington-congressional-seat-turns-into-rematch.html
+
 **Ferguson and Reichert Emerge in the Washington Primary for Governor**\
 `The two leading candidates, one Democrat and one Republican, have each emphasized their work in law enforcement, in a state looking for solutions to overdoses and violent crime.`\
 https://nytimes.com/2024/08/06/us/politics/ferguson-reichert-washington-primary-governor.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/06/us/politics/boeing-safety-door-plugs.html
 **Cori Bush, ‘Squad’ Member and Vocal Critic of Israel, Loses Her Primary**\
 `Her defeat is another loss for progressives in a race defined by Democratic divisions over the war in Gaza, with pro-Israel groups pouring millions into a campaign to oust her from office.`\
 https://nytimes.com/2024/08/06/us/politics/cori-bush-wesley-bell-primary.html
-
-**Kamala Harris and ‘Coach Walz’ Ease Into Their New Partnership**\
-`A chemistry seems to be developing between Vice President Kamala Harris and her running mate, Gov. Tim Walz of Minnesota, who looks as if he cannot believe his luck.`\
-https://nytimes.com/2024/08/06/us/kamala-harris-tim-walz-partnership.html
-
-**Astros’ Framber Valdez loses no-hit bid with 2 outs in ninth inning on 2-run homer**\
-`Valdez almost no-hit the Rangers on Tuesday, a little over a year since he no-hit the Guardians.`\
-https://nytimes.com/athletic/5685672/2024/08/06/framber-valdez-loses-no-hit-bid-astros-rangers/
 
