@@ -1,3 +1,7 @@
+**Take our 2024 college football Hope-O-Meter survey**\
+`Your team's chances of making the College Football Playoff are increasing. Are you hopeful — or hopeless? `\
+https://nytimes.com/athletic/5683861/2024/08/07/college-football-2024-season-hope-o-meter-survey/
+
 **How Cole Hocker exploited the Ingebrigtsen-Kerr rivalry to win 1500m Olympic gold**\
 `All the pre-race focus was on the battle between the Norwegian and the Briton - but that's not how it played out`\
 https://nytimes.com/athletic/5685309/2024/08/07/olympics-cole-hocker-josh-kerr-jakob-ingebrigtsen/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/07/podcasts/tim-walz-philadelphia-cori-bush-yahya-si
 **The Connections Companion No. 424**\
 `Scroll down for hints and conversation about the puzzle for Thursday, Aug. 8, 2024.`\
 https://nytimes.com/2024/08/07/crosswords/connections-companion-424.html
-
-**Wordle Review No. 1,146**\
-`Scroll down for hints and conversation about the puzzle for Thursday, August 8, 2024.`\
-https://nytimes.com/2024/08/07/crosswords/wordle-review-1146.html
 
