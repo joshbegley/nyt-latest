@@ -1,3 +1,7 @@
+**Is It Wrong to Give Money With Strings Attached?**\
+`The magazine’s Ethicist columnist on conditional gifts.`\
+https://nytimes.com/2024/08/07/magazine/kitchen-remodel-gift-ethics.html
+
 **NFL fines Giants, Lions for fights during joint practices**\
 `Skirmishes took place throughout the joint sessions that involved several players.`\
 https://nytimes.com/athletic/5686782/2024/08/07/nfl-fines-giants-lions-fights/

@@ -1,3 +1,7 @@
+**Is It Wrong to Give Money With Strings Attached?**\
+`The magazine’s Ethicist columnist on conditional gifts.`\
+https://nytimes.com/2024/08/07/magazine/kitchen-remodel-gift-ethics.html
+
 **NFL fines Giants, Lions for fights during joint practices**\
 `Skirmishes took place throughout the joint sessions that involved several players.`\
 https://nytimes.com/athletic/5686782/2024/08/07/nfl-fines-giants-lions-fights/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/07/weather/storm-debby-forecast-north-carolina-new-y
 **Trump Criticizes Harris and Walz in Fox News Appearance and Suggests a Debate Will Happen**\
 `After saying days ago that he would not participate in a September debate on ABC, Mr. Trump said, “We’ll be debating her, I guess, in the pretty near future.”`\
 https://nytimes.com/2024/08/07/us/politics/trump-fox-harris-walz.html
-
-**Bob Woodward to Publish ‘War’ This Fall**\
-`Woodward, an author and journalist, has written more than 20 best selling books. His latest will focus on Ukraine, the Middle East, and the battle for the U.S. presidency.`\
-https://nytimes.com/2024/08/07/books/bob-woodward-book-war.html
 
