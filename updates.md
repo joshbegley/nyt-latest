@@ -1,3 +1,11 @@
+**U.S. Ambassador to Skip Peace Ceremony in Japan Over Israel’s Omission**\
+`The American and British ambassadors to Japan said they would not attend an event to mark the atomic bomb strike in Nagasaki because Israel’s ambassador was excluded.`\
+https://nytimes.com/2024/08/07/world/asia/nagasaki-ceremony-japan-israel-us-ambassador.html
+
+**NBC wants Snoop Dogg to return for future Olympics**\
+`“Snoop has done everything and beyond what we ever expected him to do here in the Paris Games,” said NBC Sports president Rick Cordella.`\
+https://nytimes.com/athletic/5686487/2024/08/07/snoop-dogg-nbc-olympics-future/
+
 **Chelsea's Gilchrist completes Sheffield United loan**\
 `Chelsea defender Alfie Gilchrist has completed a loan move to Championship side Sheffield United.`\
 https://nytimes.com/athletic/5686212/2024/08/07/alfie-gilchrist-sheffield-united-loan-chelsea/
