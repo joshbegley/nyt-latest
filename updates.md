@@ -1,3 +1,15 @@
+**2 Charged With Hate Crimes in Vandalism Aimed at Museum Officials**\
+`A group of vandals splattered red paint at the home of the Brooklyn Museum’s director and others. The institution has become a target of people opposed to the war in Gaza.`\
+https://nytimes.com/2024/08/06/nyregion/brooklyn-museum-hate-crimes-charged.html
+
+**Trump Campaign’s Attacks on Walz Over Felony Voting Rights Raise Eyebrows**\
+`Critics of the former president were quick to point out that, if not for policies like the one Tim Walz signed in Minnesota, Donald Trump himself would be barred from voting.`\
+https://nytimes.com/2024/08/06/us/politics/trump-walz-felony-voting-rights.html
+
+**Georgia Board Grants Local Officials New Power Over Certifying Elections**\
+`Across the country, conservative organizations and allies of former President Donald J. Trump have sought to grant local election officials more authority over the certification process.`\
+https://nytimes.com/2024/08/06/us/politics/georgia-elections-certification.html
+
 **Federal Appeals Court Upholds Maryland’s Ban on Semiautomatic Rifles**\
 `The court found that the law did not violate the requirements in a recent ruling that expanded gun rights. Lawyers for one of the plaintiffs said they would request Supreme Court review.`\
 https://nytimes.com/2024/08/06/us/politics/federal-appeals-court-maryland-guns.html
