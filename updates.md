@@ -1,3 +1,7 @@
+**49ers, Steelers talking Aiyuk, no deal yet**\
+`If the 49ers insist on getting a receiver back in any trade of Brandon Aiyuk, the Steelers might struggle to meet the price.`\
+https://nytimes.com/athletic/5687559/2024/08/07/49ers-brandon-aiyuk-steelers-trade-talks/
+
 **Taylor Swift’s Vienna Concerts Are Canceled After Terror Plot Arrests**\
 `Three shows were called off after Austrian officials arrested two men and accused them of plotting a terrorist attack, and said that one had been focused on her upcoming stadium concerts.`\
 https://nytimes.com/2024/08/07/arts/music/taylor-swift-concert-terror-plot-vienna.html

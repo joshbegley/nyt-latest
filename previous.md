@@ -1,3 +1,7 @@
+**49ers, Steelers talking Aiyuk, no deal yet**\
+`If the 49ers insist on getting a receiver back in any trade of Brandon Aiyuk, the Steelers might struggle to meet the price.`\
+https://nytimes.com/athletic/5687559/2024/08/07/49ers-brandon-aiyuk-steelers-trade-talks/
+
 **Green Day Comes Around, Celebrating Two Album Anniversaries**\
 `The long-running California punk band brought a show focused on two classic LPs and a new release to New York, and multiple generations turned out for the spectacle.`\
 https://nytimes.com/2024/08/07/arts/music/green-day-saviors-tour-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5687119/2024/08/07/katie-moon-olympic-pole-vault-re
 **Twins' Joe Ryan exits start early with right triceps tightness**\
 `Ryan’s injury could be a crushing blow for a Twins team thin on starting pitching depth.`\
 https://nytimes.com/athletic/5687334/2024/08/07/joe-ryan-injury-minnesota-twins/
-
-**A Year After the Fire, a Lahaina Little Leaguer Finds Solace in Baseball**\
-`A team from Maui is now steps away from the Little League World Series, including one player whose family lost almost everything.`\
-https://nytimes.com/2024/08/07/us/lahaina-fire-little-league-baseball.html
 
