@@ -1,3 +1,11 @@
+**Submit a question for our Cubs mailbag**\
+`Submit questions to Chicago writer Sahadev Sharma, who will provide some answers in an upcoming story.`\
+https://nytimes.com/athletic/5687032/2024/08/07/cubs-mailbag-questions/
+
+**U.K. Business Owners Prepare For Potential Riots**\
+`Businesses across the U.K. have shut down operations and boarded up their windows in an attempt to fortify themselves against potential destruction caused by the recent anti-immigration protests and riots.`\
+https://nytimes.com/video/world/europe/100000009616472/uk-businesses-board-up.html
+
 **How Undecided Voters Feel About Tim Walz**\
 `At least a handful of them are still unsure.`\
 https://nytimes.com/2024/08/07/us/walz-harris-undecided-voters.html

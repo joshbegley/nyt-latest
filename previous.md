@@ -1,3 +1,11 @@
+**Submit a question for our Cubs mailbag**\
+`Submit questions to Chicago writer Sahadev Sharma, who will provide some answers in an upcoming story.`\
+https://nytimes.com/athletic/5687032/2024/08/07/cubs-mailbag-questions/
+
+**U.K. Business Owners Prepare For Potential Riots**\
+`Businesses across the U.K. have shut down operations and boarded up their windows in an attempt to fortify themselves against potential destruction caused by the recent anti-immigration protests and riots.`\
+https://nytimes.com/video/world/europe/100000009616472/uk-businesses-board-up.html
+
 **How Undecided Voters Feel About Tim Walz**\
 `At least a handful of them are still unsure.`\
 https://nytimes.com/2024/08/07/us/walz-harris-undecided-voters.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/07/us/politics/who-is-wesley-bell.html
 **As Iran Braces for War, Its Citizens are Kept in the Dark**\
 `Iranians say they have not been told how to prepare should broad hostilities break out between their country and Israel.`\
 https://nytimes.com/2024/08/07/world/middleeast/iran-israel-war.html
-
-**Warm Air and Warm Oceans Power Storms Like Debby**\
-`The heating of the planet is increasing the amount of moisture in the atmosphere. That helps to load hurricanes and other storms with more water.`\
-https://nytimes.com/2024/08/07/climate/warm-air-oceans-power-storms.html
-
-**30 Months After Their Games Ended, U.S. Figure Skaters Get Golds**\
-`In a ceremony in Paris, the American team received the medals they won after the Russian team, featuring Kamila Valieva, was disqualified.`\
-https://nytimes.com/2024/08/07/world/olympics/30-months-after-their-games-ended-us-figure-skaters-get-golds.html
 
