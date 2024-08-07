@@ -14,7 +14,7 @@ https://nytimes.com/live/2024/08/07/opinion/thepoint/trump-social-security-tax
 `The pro-Israel group put more than $8 million into a primary to help beat Representative Cori Bush of Missouri, the second Democrat it has successfully targeted for not supporting Israel in the war.`\
 https://nytimes.com/2024/08/07/us/politics/bush-bell-aipac-missouri-primary.html
 
-**Three takeaways from the Giants trade deadline, one week later**\
+**Three takeaways from the Giants trade deadline, 1 week later**\
 `With the benefit of a week of hindsight, some of the Giants’ deadline decisions make more sense.`\
 https://nytimes.com/athletic/5685930/2024/08/07/sf-giants-trade-deadline-takeaways/
 
