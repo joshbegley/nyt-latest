@@ -1,3 +1,7 @@
+**Health Officials Urge Doctors to Address I.U.D. Insertion Pain**\
+`As videos describing the procedure as agonizing spread on social media, new guidelines advise physicians to consider various anesthetics.`\
+https://nytimes.com/2024/08/07/health/iud-insertion-pain.html
+
 **C.D.C. Urges Doctors to Make IUD Insertion Less Painful**\
 `As videos describing the procedure as agonizing spread on social media, new guidelines advise physicians to consider various anesthetics.`\
 https://nytimes.com/2024/08/07/health/iud-insertion-pain.html
