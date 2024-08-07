@@ -1,3 +1,15 @@
+**Submit a question for Jared Weiss’ Celtics mailbag**\
+`<p>Even though it’s deep in the offseason, the Celtics’ star players are still on the floor as Team USA makes a run for an Olympic gold medal.`\
+https://nytimes.com/athletic/5687175/2024/08/07/celtics-mailbag-offseason/
+
+**NASA Says Boeing Starliner Astronauts May Fly Home on SpaceX in 2025**\
+`The agency had insisted for a couple of months that it was confident that Suni Williams and Butch Wilmore would return on Starliner.`\
+https://nytimes.com/2024/08/07/science/boeing-starliner-nasa-spacex.html
+
+**How Tim Walz Embraced Minnesota’s Leftward Shift**\
+`Kamala Harris’s running mate was picked for his rapport with Middle America, but his progressive record as governor parallels his state’s move toward more liberal politics.`\
+https://nytimes.com/2024/08/07/us/politics/tim-walz-liberal.html
+
 **Hotel Collapse in Mosel Region of Germany Kills 2**\
 `A small hotel in the Mosel region of Germany collapsed late on Tuesday, killing two people and prompting a frantic rescue effort for guests trapped under the rubble.`\
 https://nytimes.com/video/world/europe/100000009616278/germany-hotel-collapse.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/07/world/asia/teens-and-tactics-blur-in-chinas-quest
 **Submit a question for our Cubs mailbag**\
 `Submit questions to Chicago writer Sahadev Sharma, who will provide some answers in an upcoming story.`\
 https://nytimes.com/athletic/5687032/2024/08/07/cubs-mailbag-questions/
-
-**U.K. Business Owners Prepare For Potential Riots**\
-`Businesses across the U.K. have shut down operations and boarded up their windows in an attempt to fortify themselves against potential destruction caused by the recent anti-immigration protests and riots.`\
-https://nytimes.com/video/world/europe/100000009616472/uk-businesses-board-up.html
-
-**How Undecided Voters Feel About Tim Walz**\
-`At least a handful of them are still unsure.`\
-https://nytimes.com/2024/08/07/us/walz-harris-undecided-voters.html
-
-**After Breaking Free, World’s Largest Iceberg Is Stuck Spinning in Circles**\
-`Round and round a city-size iceberg goes, stuck in a vortex over an underwater mountain. When it will stop, nobody knows.`\
-https://nytimes.com/2024/08/07/science/a23a-iceberg-antarctica-spinning.html
 
