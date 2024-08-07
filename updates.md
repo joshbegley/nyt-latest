@@ -1,3 +1,7 @@
+**Suga, of BTS, Apologizes for Riding Electric Scooter While Drunk**\
+`The artist had his driver’s license revoked and may face disciplinary action after failing a breath test, his agency said.`\
+https://nytimes.com/2024/08/07/arts/bts-suga-drunk-electric-scooter.html
+
 **Manhattan Planned Parenthood Will Stop Offering Abortions After 20 Weeks**\
 `The shift came as Planned Parenthood’s New York chapter revealed plans to close four clinics across the state, as financial issues mount.`\
 https://nytimes.com/2024/08/07/nyregion/planned-parenthood-abortions-manhattan.html

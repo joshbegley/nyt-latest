@@ -1,3 +1,7 @@
+**Suga, of BTS, Apologizes for Riding Electric Scooter While Drunk**\
+`The artist had his driver’s license revoked and may face disciplinary action after failing a breath test, his agency said.`\
+https://nytimes.com/2024/08/07/arts/bts-suga-drunk-electric-scooter.html
+
 **Manhattan Planned Parenthood Will Stop Offering Abortions After 20 Weeks**\
 `The shift came as Planned Parenthood’s New York chapter revealed plans to close four clinics across the state, as financial issues mount.`\
 https://nytimes.com/2024/08/07/nyregion/planned-parenthood-abortions-manhattan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5681537/2024/08/07/ange-postecoglou-interview-totte
 **The Briefing: Chelsea 1 Real Madrid 2 - Still vulnerable to balls in behind?**\
 `Chelsea fell to a 2-1 defeat to Real Madrid during the final pre-season game of their U.S. tour`\
 https://nytimes.com/athletic/5685492/2024/08/07/chelsea-real-madrid-analysis-defence/
-
-**Word of the Day: ideologue**\
-`This word has appeared in 32 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/08/07/learning/word-of-the-day-ideologue.html
 
