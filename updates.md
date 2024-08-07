@@ -1,3 +1,7 @@
+**Twins, Carlos Correa maintain caution with All-Star shortstop's right heel**\
+`The Twins are still in wait-and-see mode as Carlos Correa recovers from right plantar fasciitis.`\
+https://nytimes.com/athletic/5685755/2024/08/06/carlos-correa-twins-heel-injury-update/
+
 **Corrections: Aug. 7, 2024**\
 `Corrections that appeared in print on Wednesday, Aug. 7, 2024.`\
 https://nytimes.com/2024/08/06/pageoneplus/corrections-aug-7-2024.html
