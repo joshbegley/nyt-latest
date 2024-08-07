@@ -1,3 +1,19 @@
+**Colts WR Josh Downs sustains ankle injury, could miss 4-6 weeks**\
+`Last year, Downs broke the Colts' single-season rookie record with 68 catches for 771 yards and two touchdowns.`\
+https://nytimes.com/athletic/5687070/2024/08/07/colts-josh-downs-ankle-injury/
+
+**Kennedy’s Wife and Birds Live in California. He Says It’s Not Home.**\
+`The presidential candidate Robert F. Kennedy Jr. testified in Albany in an attempt to stay on New York’s ballot. If he is kicked off, other states could follow.`\
+https://nytimes.com/2024/08/07/nyregion/rfk-testimony-ny-ballot.html
+
+**Trump’s Pandering Plan to Stop Taxing Social Security Won’t Work**\
+`It benefits the well-off and would threaten everyone’s benefits.`\
+https://nytimes.com/live/2024/08/07/opinion/thepoint/trump-social-security-tax
+
+**AIPAC Demonstrates Its Clout With Defeat of a Second ‘Squad’ Member**\
+`The pro-Israel group put more than $8 million into a primary to help beat Representative Cori Bush of Missouri, the second Democrat it has successfully targeted for not supporting Israel in the war.`\
+https://nytimes.com/2024/08/07/us/politics/bush-bell-aipac-missouri-primary.html
+
 **Three takeaways from the Giants trade deadline, one week later**\
 `With the benefit of a week of hindsight, some of the Giants’ deadline decisions make more sense.`\
 https://nytimes.com/athletic/5685930/2024/08/07/sf-giants-trade-deadline-takeaways/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5687259/2024/08/07/olympics-artistic-swimming-us-si
 **Sept. 11 Judge to Decide Whether Guantánamo Plea Deals Are Valid**\
 `Judge McCall ordered briefs on the validity of the plea deal the defense secretary said was canceled, and the question of unlawful influence.`\
 https://nytimes.com/2024/08/07/us/politics/sept-11-guantanamo-plea-deals.html
-
-**Could Yankees switch Aaron Judge and Juan Soto in the lineup? They've considered it**\
-`If manager Aaron Boone flipped the two, the Yankees would have the second-best hitter in MLB hitting behind the best hitter.`\
-https://nytimes.com/athletic/5687076/2024/08/07/yankees-aaron-judge-juan-soto-batting-order/
-
-**Quincy Hall wins gold to snap American drought in 400**\
-`Quincy Hall is about that life. He posted a personal best of 43.40 seconds in a come-from-behind to snatch the gold away.`\
-https://nytimes.com/athletic/5687341/2024/08/07/quincy-hall-olympic-400m-results/
-
-**Harrison Butker stands by controversial commencement speech: It came from 'a place of love'**\
-`The Chiefs' kicker said his comments were "misconstrued that I’m trying to put women down, which I’m not at all."`\
-https://nytimes.com/athletic/5687153/2024/08/07/chiefs-harrison-butker-commencement-speech/
-
-**Fantasy football 2024 quarterback rankings: ‘Upside’ and ‘downside’ scores; plus, a downloadable spreadsheet**\
-`Starting with AFC rivals Josh Allen and Patrick Mahomes, KC Joyner offers his draft guide for the Top 25 QBs for fantasy football 2024.`\
-https://nytimes.com/athletic/5687168/2024/08/07/qb-rankings-system-fantasy-football-2024/
 
