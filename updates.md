@@ -1,3 +1,7 @@
+**Bears 'Hard Knocks' takeaways: Caleb Williams the star, what they got right, wrong**\
+`Breaking down the first episode of the Bears on "Hard Knocks." Who stole the show? What was the most Chicago thing?`\
+https://nytimes.com/athletic/5685708/2024/08/07/bears-hard-knocks-episode-1-caleb-williams/
+
 **A Play About J.K. Rowling Stirred Outrage. Until It Opened.**\
 `The muted reaction to the Edinburgh Fringe show “TERF” suggests that when activists engage with potentially inflammatory art, offense can quickly vanish.`\
 https://nytimes.com/2024/08/07/theater/terf-play-rowling-edinburgh-fringe.html
