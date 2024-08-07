@@ -1,3 +1,19 @@
+**Trump Dangles New Tax Cut Proposals With Real Political Appeal**\
+`The most recent and costliest of Mr. Trump’s ideas would end income taxes on Social Security benefits.`\
+https://nytimes.com/2024/08/07/business/economy/trump-tax-cuts.html
+
+**Heat Raises Fears of ‘Demise’ for Great Barrier Reef Within a Generation**\
+`A new study found that temperatures in the Coral Sea have reached their highest levels in at least four centuries.`\
+https://nytimes.com/2024/08/07/climate/ocean-heat-great-barrier-reef.html
+
+**This Chilled Gochujang Tofu Is My Heat-Wave Haven**\
+`The combination of cold, custardy soybean curd and tangy, chile-sweet sauce is a warm-weather epiphany, no cooking required.`\
+https://nytimes.com/2024/08/07/dining/this-chilled-gochujang-tofu-is-my-heat-wave-haven.html
+
+**Patriots’ failed Brandon Aiyuk pursuit highlights difficulties of NFL rebuild**\
+`Until the Patriots prove their head coach is worth playing for and their young quarterback can be the guy, it could be a long rebuild.`\
+https://nytimes.com/athletic/5686569/2024/08/07/patriots-brandon-aiyuk-trade/
+
 **Heavy Downpour Floods New York City Streets**\
 `Drivers navigated flooded roads, including major highways, as a storm hit the New York City region.`\
 https://nytimes.com/video/nyregion/100000009616297/new-york-city-rain-flooding.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/08/07/world/europe/putin-russia-prisoner-swap.html
 **Connor Zilisch to drive for JR Motorsports full time in 2025**\
 `Zilisch is a development driver for Trackhouse in the NASCAR Cup Series, but will drive the No. 88 car for JR Motorsports.`\
 https://nytimes.com/athletic/5686661/2024/08/07/connor-zilisch-jr-motorsports-xfinity-series-nascar/
-
-**A Play About J.K. Rowling Stirred Outrage. Until It Opened.**\
-`The muted reaction to the Edinburgh Fringe show “TERF” suggests that when activists engage with potentially inflammatory art, offense can quickly vanish.`\
-https://nytimes.com/2024/08/07/theater/terf-play-rowling-edinburgh-fringe.html
-
-**Compassion Is in Short Supply at This Grief Support Group**\
-`In “Someone Spectacular,” Domenica Feraud skewers group therapy and the futility of sharing trauma in a fishbowl.`\
-https://nytimes.com/2024/08/07/theater/someone-spectacular-review.html
-
-**Canucks training-camp battles: The 7 jobs up for grabs and who could win them**\
-`As the Canucks' roster has taken shape, let's try to answer who fills what holes and why.`\
-https://nytimes.com/athletic/5683231/2024/08/07/canucks-training-camp-roster/
-
-**Projecting Nebraska's 120-player roster: WRs improve, O-line lacks depth**\
-`Wide receiver looks like the most improved position group on Nebraska's roster while the D-line looks like a top unit nationally. `\
-https://nytimes.com/athletic/5685023/2024/08/07/nebraska-football-roster-projection/
 
