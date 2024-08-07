@@ -1,3 +1,15 @@
+**As Stott, Marsh try to make adjustments at plate, how will Phillies decide playing time?**\
+`Stott has lost his rhythm at the plate this season. As the Phillies scuffle, manager Rob Thomson is looking for the slightest advantage. `\
+https://nytimes.com/athletic/5685970/2024/08/07/bryson-stott-brandon-marsh-phillies-playing-time/
+
+**The Pulse: Two unexpected Olympic delights**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5684760/2024/08/07/cole-hocker-1500-olympics-the-pulse/
+
+**Rodri and Morata banned over 'Gibraltar is Spanish' chants**\
+`Alvaro Morata and Rodri have been given one-match bans by UEFA for misconduct during Spain&#8217;s European Championship winners&#8217; parade in Madrid.`\
+https://nytimes.com/athletic/5686258/2024/08/07/rodri-morata-gibraltar-chant-ban/
+
 **Storm to move north up South Carolina’s coast today. Here’s the latest.**\
 `Less flooding is expected on Wednesday as the storm picks up moisture as it hovers over the Atlantic Ocean. It will come back to`\
 https://nytimes.com/live/2024/08/07/weather/debby-storm-forecast/storm-to-move-north-up-south-carolinas-coast-today-heres-the-latest

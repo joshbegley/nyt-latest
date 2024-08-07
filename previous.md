@@ -1,3 +1,11 @@
+**As Stott, Marsh try to make adjustments at plate, how will Phillies decide playing time?**\
+`Stott has lost his rhythm at the plate this season. As the Phillies scuffle, manager Rob Thomson is looking for the slightest advantage. `\
+https://nytimes.com/athletic/5685970/2024/08/07/bryson-stott-brandon-marsh-phillies-playing-time/
+
+**The Pulse: Two unexpected Olympic delights**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5684760/2024/08/07/cole-hocker-1500-olympics-the-pulse/
+
 **Storm to move north up South Carolina’s coast today. Here’s the latest.**\
 `Less flooding is expected on Wednesday as the storm picks up moisture as it hovers over the Atlantic Ocean. It will come back to`\
 https://nytimes.com/live/2024/08/07/weather/debby-storm-forecast/storm-to-move-north-up-south-carolinas-coast-today-heres-the-latest
@@ -16,7 +24,7 @@ https://nytimes.com/2024/08/07/health/gamers-twitch-mental-health.html
 
 **Rodri and Morata banned over 'Gibraltar is Spanish' chants**\
 `Alvaro Morata and Rodri have been given one-match bans by UEFA for misconduct during Spain&#8217;s European Championship winners&#8217; parade in Madrid.`\
-https://nytimes.com/athletic/5686258/2024/08/07/uefa-ban-rodri-morata/
+https://nytimes.com/athletic/5686258/2024/08/07/rodri-morata-gibraltar-chant-ban/
 
 **Disney’s Parks Struggle, Exposing a New Trouble Spot**\
 `Companywide profit increased, the result of hit movies and streaming growth. But Disney said softening theme park demand “could impact the next few quarters.”`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5686080/2024/08/07/sean-longstaff-interview-newcast
 **Ukraine Launches Rare Cross-Border Ground Assault Into Russia, Kremlin Says**\
 `Troops and armored fighting vehicles crossed into Russia’s western Kursk region on Tuesday, according to Moscow and independent analysts. Ukrainian officials have not commented.`\
 https://nytimes.com/2024/08/07/world/europe/ukraine-russia-cross-border-assault.html
-
-**Alvarez, Gallagher, Guerra and the rest: Can Atletico Madrid afford a €200m summer spend?**\
-`La Liga's transfer spending has so far been pretty quiet - but Atletico could be about to change all that`\
-https://nytimes.com/athletic/5686015/2024/08/07/atletico-madrid-manchester-city-chelsea-transfers-alvarez-gallagher/
-
-**Why Kamala Harris Picked Tim Walz**\
-`The Minnesota governor’s biography and demeanor makes him a familiar figure to many voters.`\
-https://nytimes.com/2024/08/07/briefing/kamala-harris-tim-walz-running-mate.html
 
