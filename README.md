@@ -1,3 +1,7 @@
+**Warner Bros. Discovery Takes $9 Billion Write-Down on Cable Networks**\
+`David Zaslav, the company’s chief executive, said the accounting change was an acknowledgment of the pressures facing traditional media.`\
+https://nytimes.com/2024/08/07/business/warner-bros-discovery-sports-write-down.html
+
 **Arab and Western Nations Urge Restraint as Israel-Iran Tensions Simmer**\
 `Trying to head off a Middle East war, several countries are pressing Iran to temper its retaliation for the assassination of a Hamas leader in Tehran.`\
 https://nytimes.com/2024/08/07/world/middleeast/iran-israel-retaliation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5687377/2024/08/07/christian-watson-packers-camp/
 **49ers, Steelers talking Aiyuk, no deal yet**\
 `If the 49ers insist on getting a receiver back in any trade of Brandon Aiyuk, the Steelers might struggle to meet the price.`\
 https://nytimes.com/athletic/5687559/2024/08/07/49ers-brandon-aiyuk-steelers-trade-talks/
-
-**Green Day Comes Around, Celebrating Two Album Anniversaries**\
-`The long-running California punk band brought a show focused on two classic LPs and a new release to New York, and multiple generations turned out for the spectacle.`\
-https://nytimes.com/2024/08/07/arts/music/green-day-saviors-tour-photos.html
 
