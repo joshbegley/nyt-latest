@@ -1,3 +1,7 @@
+**C.D.C. Urges Doctors to Make IUD Insertion Less Painful**\
+`As videos describing the procedure as agonizing spread on social media, new guidelines advise physicians to consider various anesthetics.`\
+https://nytimes.com/2024/08/07/health/iud-insertion-pain.html
+
 **Ten days on tour with Barcelona: How Hansi Flick has looked to calm the chaos**\
 `On a football level at least, the team’s trip to the United States this summer has been a time to try to bring composure to the club`\
 https://nytimes.com/athletic/5686298/2024/08/07/barcelona-pre-season-tour-hansi-flick-calm/
