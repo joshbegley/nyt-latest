@@ -1,3 +1,15 @@
+**The Athletic FC: Postecoglou and patience, Olmo move logic, UWSNT's golden path**\
+`Today in The Athletic FC: Postecoglou and second-season syndrome, Olmo's Barca deal - does it make sense? Plus: USWNT's golden chance`\
+https://nytimes.com/athletic/5686210/2024/08/07/postecoglou-and-patience-olmo-move-logic-uwsnts-golden-path/
+
+**Ten Rams takeaways after conclusion of training camp, first joint practice**\
+`How concerned should the Rams be about a rash of injuries? How good has rookie Braden Fiske been in his first camp?`\
+https://nytimes.com/athletic/5685024/2024/08/07/la-rams-camp-takeaways-matthew-stafford-braden-fiske/
+
+**As Stott, Marsh try to make adjustments, how will Phillies make playing time decisions?**\
+`Stott has lost his rhythm at the plate this season. As the Phillies scuffle, manager Rob Thomson is looking for the slightest advantage. `\
+https://nytimes.com/athletic/5685970/2024/08/07/bryson-stott-brandon-marsh-phillies-playing-time/
+
 **As Stott, Marsh try to make adjustments at plate, how will Phillies decide playing time?**\
 `Stott has lost his rhythm at the plate this season. As the Phillies scuffle, manager Rob Thomson is looking for the slightest advantage. `\
 https://nytimes.com/athletic/5685970/2024/08/07/bryson-stott-brandon-marsh-phillies-playing-time/
