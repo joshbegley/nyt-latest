@@ -1,3 +1,11 @@
+**U.S. artistic swimming wins first Olympic medal in 20 years**\
+`China won the latest gold with a final score of 996.1389.`\
+https://nytimes.com/athletic/5687259/2024/08/07/olympics-artistic-swimming-us-silver-medal/
+
+**Sept. 11 Judge to Decide Whether Guantánamo Plea Deals Are Valid**\
+`Judge McCall ordered briefs on the validity of the plea deal the defense secretary said was canceled, and the question of unlawful influence.`\
+https://nytimes.com/2024/08/07/us/politics/sept-11-guantanamo-plea-deals.html
+
 **Could Yankees switch Aaron Judge and Juan Soto in the lineup? They've considered it**\
 `If manager Aaron Boone flipped the two, the Yankees would have the second-best hitter in MLB hitting behind the best hitter.`\
 https://nytimes.com/athletic/5687076/2024/08/07/yankees-aaron-judge-juan-soto-batting-order/

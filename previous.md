@@ -1,3 +1,11 @@
+**U.S. artistic swimming wins first Olympic medal in 20 years**\
+`China won the latest gold with a final score of 996.1389.`\
+https://nytimes.com/athletic/5687259/2024/08/07/olympics-artistic-swimming-us-silver-medal/
+
+**Sept. 11 Judge to Decide Whether Guantánamo Plea Deals Are Valid**\
+`Judge McCall ordered briefs on the validity of the plea deal the defense secretary said was canceled, and the question of unlawful influence.`\
+https://nytimes.com/2024/08/07/us/politics/sept-11-guantanamo-plea-deals.html
+
 **Could Yankees switch Aaron Judge and Juan Soto in the lineup? They've considered it**\
 `If manager Aaron Boone flipped the two, the Yankees would have the second-best hitter in MLB hitting behind the best hitter.`\
 https://nytimes.com/athletic/5687076/2024/08/07/yankees-aaron-judge-juan-soto-batting-order/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5687219/2024/08/07/texas-cj-baxter-injury-college-f
 **Tim Walz’s Extraordinarily Ordinary Life**\
 `The governor of Minnesota hasn’t spent his life striving for the pinnacle of politics. That is how he got there.`\
 https://nytimes.com/2024/08/07/us/politics/tim-walz-kamala-harris-campaign-2024.html
-
-**Submit a question for Jared Weiss’ Celtics mailbag**\
-`<p>Even though it’s deep in the offseason, some of the Celtics’ star players are still on the floor as Team USA makes a run for an Olympic gold medal.`\
-https://nytimes.com/athletic/5687175/2024/08/07/celtics-mailbag-offseason/
-
-**NASA Says Boeing Starliner Astronauts May Fly Home on SpaceX in 2025**\
-`The agency had insisted for a couple of months that it was confident that Suni Williams and Butch Wilmore would return on Starliner.`\
-https://nytimes.com/2024/08/07/science/boeing-starliner-nasa-spacex.html
 
