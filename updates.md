@@ -1,3 +1,11 @@
+**Broncos quarterbacks on rookie chores, handling pressure and the ongoing QB race**\
+`Bo Nix said he has avoided outside input on Broncos QB competition: "Nobody has a higher standard for how I play than me."`\
+https://nytimes.com/athletic/5687257/2024/08/07/broncos-qb-race-nix-stidham/
+
+**Nadal won't play U.S. Open: Would not 'be able to give my 100 percent'**\
+`Rafael Nadal will not appear at the U.`\
+https://nytimes.com/athletic/5687702/2024/08/07/rafael-nadal-to-miss-us-open/
+
 **Harris and Trump Battled for the Midwest**\
 `Also, rain from Debby pounded the Carolinas. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/08/07/briefing/harris-trump-midwest-britain-protests.html

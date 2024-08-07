@@ -1,3 +1,11 @@
+**Broncos quarterbacks on rookie chores, handling pressure and the ongoing QB race**\
+`Bo Nix said he has avoided outside input on Broncos QB competition: "Nobody has a higher standard for how I play than me."`\
+https://nytimes.com/athletic/5687257/2024/08/07/broncos-qb-race-nix-stidham/
+
+**Nadal won't play U.S. Open: Would not 'be able to give my 100 percent'**\
+`Rafael Nadal will not appear at the U.`\
+https://nytimes.com/athletic/5687702/2024/08/07/rafael-nadal-to-miss-us-open/
+
 **Harris and Trump Battled for the Midwest**\
 `Also, rain from Debby pounded the Carolinas. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/08/07/briefing/harris-trump-midwest-britain-protests.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/07/arts/music/green-day-saviors-tour-photos.html
 **Thursday Briefing: Antiracism Protesters Gather in Britain**\
 `Plus, China’s quest for Olympic gold shifts gears.`\
 https://nytimes.com/2024/08/07/briefing/britain-antiracism-protests-us-presidential-election-great-barrier-reef.html
-
-**The United States presses Hamas’s new political chief to accept the latest cease-fire proposal.**\
-`By Peter Baker`\
-https://nytimes.com/live/2024/08/07/world/israel-iran-hamas-gaza-war/the-united-states-presses-hamass-new-political-chief-to-accept-the-latest-cease-fire-proposal
-
-**Wisconsin's Tyler Van Dyke making strides as QB battle continues: Preseason camp notes**\
-`Tyler Van Dyke's mobility is improving, head coach Luke Fickell said, but Braedyn Locke continues to push him in the battle for QB1.`\
-https://nytimes.com/athletic/5687462/2024/08/07/wisconsin-college-football-preseason-quarterbacks/
 
