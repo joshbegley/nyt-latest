@@ -1,3 +1,19 @@
+**Quotation of the Day: He’s Still Walking a High Wire**\
+`Quotation of the Day for Wednesday, August 7, 2024.`\
+https://nytimes.com/2024/08/06/pageoneplus/quotation-of-the-day-hes-still-walking-a-high-wire.html
+
+**Race for Competitive Washington Congressional Seat Turns Into Rematch**\
+`Marie Gluesenkamp Perez and Joe Kent will compete again in November, two years after she beat him by less than 3,000 votes.`\
+https://nytimes.com/2024/08/06/us/politics/race-for-competitive-washington-congressional-seat-turns-into-rematch.html
+
+**Ferguson and Reichert Emerge in the Washington Primary for Governor**\
+`The two leading candidates, one Democrat and one Republican, have each emphasized their work in law enforcement, in a state looking for solutions to overdoses and violent crime.`\
+https://nytimes.com/2024/08/06/us/politics/ferguson-reichert-washington-primary-governor.html
+
+**Dodger Details: Mookie Betts' landing spot, Yoshinobu Yamamoto's progress and more**\
+`When he returns next week, Betts will play shortstop and bat second in the order behind Shohei Ohtani.`\
+https://nytimes.com/athletic/5685696/2024/08/06/dodgers-mookie-betts-yoshinobu-yamamoto/
+
 **Mike Kehoe, Missouri’s Lieutenant Governor, Wins G.O.P. Primary for Governor**\
 `The winner of the Republican primary is likely to become Missouri’s next governor. But a ballot measure on abortion that is widely expected to appear in November could boost liberal turnout.`\
 https://nytimes.com/2024/08/06/us/mike-kehoe-missouris-lieutenant-governor-wins-gop-primary-for-governor.html
