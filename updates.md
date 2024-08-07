@@ -1,3 +1,11 @@
+**Bob Woodward to Publish ‘War’ This Fall**\
+`Woodward, an author and journalist, has written more than 20 best selling books. His latest will focus on Ukraine, the Middle East, and the battle for the U.S. presidency.`\
+https://nytimes.com/2024/08/07/books/bob-woodward-book-war.html
+
+**Connor Zilisch to drive for JR Motorsports full time in 2025**\
+`Zilisch is a development driver for Trackhouse in the NASCAR Cup Series, but will drive the No. 88 car for JR Motorsports.`\
+https://nytimes.com/athletic/5686661/2024/08/07/connor-zilisch-jr-motorsports-xfinity-series-nascar/
+
 **In Prisoner Swap, Echoes of Putin’s K.G.B. Past**\
 `A sprawling exchange with the West underscored the Russian president’s loyalty to his intelligence services. It also showed his continued interest in making deals.`\
 https://nytimes.com/2024/08/07/world/europe/putin-russia-prisoner-swap.html
