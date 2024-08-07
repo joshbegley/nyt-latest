@@ -1,3 +1,7 @@
+**Rookie QB Sam Hartman among Commanders roster hopefuls ready for an opportunity**\
+`The undrafted free agent joins WR Brycen Tremayne and OL Mason Brooks as players who are vying for a spot on the 53-man roster. `\
+https://nytimes.com/athletic/5685252/2024/08/07/commanders-sam-hartman-preseason/
+
 **Ravens' healthy start to training camp has shifted in the opposite direction**\
 `With Malik Hamm already out for the season, key players such as Tyler Linderbaum and Arthur Maulet are now dealing with injuries.`\
 https://nytimes.com/athletic/5685387/2024/08/07/ravens-training-camp-injuries/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/07/opinion/tim-walz-prairie-populist.html
 **How Trump and Black Lives Matter Combined to Change American Politics**\
 `While liberals moved decisively leftward from 2012 to 2020, a counter phenomenon was taking place on the right.`\
 https://nytimes.com/2024/08/07/opinion/trump-harris-black-lives-matter.html
-
-**What’s Behind All the Stock Market Drama?**\
-`Analysts and investors have many explanations, including worries about the health of the U.S. economy and shifts in the value of the Japanese yen.`\
-https://nytimes.com/2024/08/07/business/stock-market-drama-explained.html
 
