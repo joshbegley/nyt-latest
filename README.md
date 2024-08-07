@@ -14,6 +14,10 @@ https://nytimes.com/athletic/5683231/2024/08/07/canucks-training-camp-roster/
 `Wide receiver looks like the most improved position group on Nebraska's roster while the D-line looks like a top unit nationally. `\
 https://nytimes.com/athletic/5685023/2024/08/07/nebraska-football-roster-projection/
 
+**Bears 'Hard Knocks' takeaways: Caleb Williams the star, what they got right, wrong**\
+`Breaking down the first episode of the Bears on "Hard Knocks." Who stole the show? What was the most Chicago thing?`\
+https://nytimes.com/athletic/5685708/2024/08/07/bears-hard-knocks-episode-1-caleb-williams/
+
 **Marta’s legacy is defiance, hunger and joy. But how will it end at the Olympics?**\
 `Marta will go down as one of the greatest to ever play. Her international career comes to an end in the Olympic final against the U.S. `\
 https://nytimes.com/athletic/5671350/2024/08/07/marta-brazil-olympics-legacy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5686489/2024/08/07/valencia-appear-to-pull-plug-on-
 **U.S. Ambassador to Skip Peace Ceremony in Japan Over Israel’s Omission**\
 `The American and British ambassadors to Japan said they would not attend an event to mark the atomic bomb strike in Nagasaki because Israel’s ambassador was excluded.`\
 https://nytimes.com/2024/08/07/world/asia/nagasaki-ceremony-japan-israel-us-ambassador.html
-
-**Chelsea's Gilchrist completes Sheffield United loan**\
-`Chelsea defender Alfie Gilchrist has completed a loan move to Championship side Sheffield United.`\
-https://nytimes.com/athletic/5686212/2024/08/07/alfie-gilchrist-sheffield-united-loan-chelsea/
 
