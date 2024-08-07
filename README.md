@@ -1,3 +1,7 @@
+**For These Olympians, the Bling Is the Thing**\
+`Athletes at the Paris Olympics have been sporting some seriously high-wattage accessories. Here are nine of our favorites.`\
+https://nytimes.com/2024/08/07/style/olympians-bling-accessories.html
+
 **At Olympic skateboarding, celebs come out and good friends put on a show**\
 `Tom Schaar and Keegan Palmer vied for the gold medal Wednesday in men's park, with everyone from Snoop Dogg to Léon Marchand on hand.`\
 https://nytimes.com/athletic/5687220/2024/08/07/olympics-skateboarding-mens-park-tom-schaar-keegan-palmer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/07/business/media/media-coverage-tim-walz.html
 **Do You Own a Condo in Florida That Requires Expensive Improvements? Tell Us About It.**\
 `New safety regulations will impact condo owners across Florida, some of whom may have to pay thousands of dollars for required improvements. We want to hear these stories.`\
 https://nytimes.com/2024/08/07/realestate/do-you-own-a-condo-in-florida-that-requires-expensive-improvements-tell-us-about-it.html
-
-**Chelsea agree deal with Atletico Madrid for Omorodion, Gallagher set to travel for medical**\
-`Chelsea have agreed a £34.`\
-https://nytimes.com/athletic/5683224/2024/08/07/samu-omorodion-chelsea-transfer/
 
