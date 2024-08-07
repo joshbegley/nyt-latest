@@ -1,3 +1,15 @@
+**Billy Bean Dies at 60; Led Baseball on Diversity After Coming Out as Gay**\
+`As an outfielder, he hid his sexual identity from his teammates for nearly a decade before retiring and becoming a force for inclusion in the organization.`\
+https://nytimes.com/2024/08/07/sports/baseball/billy-bean-dead.html
+
+**Move Over, Robots: Sea Lions With Cameras Can Map the Ocean Floor**\
+`Daphne, Phoebe, Iris and Pasithea demonstrated how marine mammals can help scientists understand mysterious places that humans may never visit.`\
+https://nytimes.com/2024/08/07/science/sea-lion-videos-cameras.html
+
+**As Markets Rock, a Reporter Stays Steady**\
+`Joe Rennison, who covers financial markets for The New York Times, raced home from vacation when a slowdown in the U.S. economy sparked widespread worry.`\
+https://nytimes.com/2024/08/07/insider/as-markets-rock-a-reporter-stays-steady.html
+
 **DK Metcalf swings helmet at teammate's head**\
 `DK Metcalf hit K'Von Wallace in the head with a helmet after a confrontation with Tre Brown, just one of several fights Wednesday.`\
 https://nytimes.com/athletic/5687833/2024/08/07/seahawks-fight-dk-metcalf-helmet/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/07/briefing/harris-trump-midwest-britain-protests.ht
 **Team USA routs Nigeria, advances to semifinals vs. Australia**\
 `Team USA advances to Olympic semifinal, will play Australia Friday, Aug. 9.`\
 https://nytimes.com/athletic/5687507/2024/08/07/team-usa-nigeria-olympic-womens-basketball/
-
-**New York’s Newest Hotels Reveal the City’s Romantic Streak**\
-`Landscaped terraces, vintage cocktail bars and plush screening rooms — Manhattan’s hospitality scene revives the Gilded Age`\
-https://nytimes.com/2024/08/07/t-magazine/new-york-hotels-gilded-age.html
-
-**Vance Attacks Walz’s Military Record, Accusing Him of Avoiding a Tour in Iraq**\
-`Senator JD Vance of Ohio also claimed Gov. Tim Walz of Minnesota had exaggerated his service record. Mr. Walz said a decision to retire and run for Congress came months before any notice of deployment.`\
-https://nytimes.com/2024/08/07/us/politics/vance-walz-military-record.html
-
-**Christian Watson survives injury scare and more from Packers camp**\
-`Watson suffered a knee injury on the last play of practice and stayed down for a while, but he said after practice that he should be fine.`\
-https://nytimes.com/athletic/5687377/2024/08/07/christian-watson-packers-camp/
 
