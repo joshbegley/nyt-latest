@@ -1,3 +1,7 @@
+**Twins, Carlos Correa maintain caution with All-Star shortstop's right heel**\
+`The Twins are still in wait-and-see mode as Carlos Correa recovers from right plantar fasciitis.`\
+https://nytimes.com/athletic/5685755/2024/08/06/carlos-correa-twins-heel-injury-update/
+
 **Corrections: Aug. 7, 2024**\
 `Corrections that appeared in print on Wednesday, Aug. 7, 2024.`\
 https://nytimes.com/2024/08/06/pageoneplus/corrections-aug-7-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/06/us/politics/harris-tim-walz-vp-pick.html
 **Bears 'Hard Knocks' takeaways: Caleb Williams the star, what they got right, wrong**\
 `Breaking down the first episode of the Bears on "Hard Knocks." Who stole the show? What was the most Chicago thing?`\
 https://nytimes.com/athletic/5685708/2024/08/06/bears-hard-knocks-episode-1-caleb-williams/
-
-**Boeing Says It’s Changing Type of Panel That Blew Off Alaska Airlines Jet**\
-`The company told regulators the changes in design and production of the door plugs would allow its warning systems to detect malfunctions.`\
-https://nytimes.com/2024/08/06/us/politics/boeing-safety-door-plugs.html
 
