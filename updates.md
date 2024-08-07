@@ -1,3 +1,7 @@
+**Elon Musk Clashes With Keir Starmer Over Riots in Britain**\
+`Over the past few days, the billionaire has posted incendiary comments about violent protests on the social media platform he controls, drawing the ire of the prime minister.`\
+https://nytimes.com/2024/08/07/business/musk-starmer-riots-britain.html
+
 **A Walzonomics Primer**\
 `Here’s how business executives and donors are evaluating Gov. Tim Walz of Minnesota, especially on taxes, labor unions, energy policy and more.`\
 https://nytimes.com/2024/08/07/business/dealbook/walz-economics-business-issues.html
