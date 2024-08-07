@@ -1,3 +1,7 @@
+**Rookie QB Sam Hartman among Commanders roster hopefuls ready for an opportunity**\
+`The undrafted free agent joins WR Brycen Tremayne and OL Mason Brooks as players who are vying for a spot on the 53-man roster. `\
+https://nytimes.com/athletic/5685252/2024/08/07/commanders-sam-hartman-preseason/
+
 **Ravens' healthy start to training camp has shifted in the opposite direction**\
 `With Malik Hamm already out for the season, key players such as Tyler Linderbaum and Arthur Maulet are now dealing with injuries.`\
 https://nytimes.com/athletic/5685387/2024/08/07/ravens-training-camp-injuries/
