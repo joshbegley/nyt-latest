@@ -1,3 +1,7 @@
+**Arab and Western Nations Urge Restraint as Israel-Iran Tensions Simmer**\
+`Trying to head off a Middle East war, several countries are pressing Iran to temper its retaliation for the assassination of a Hamas leader in Tehran.`\
+https://nytimes.com/2024/08/07/world/middleeast/iran-israel-retaliation.html
+
 **Vance Attacks Walz’s Military Record, Accusing Him of Avoiding a Tour in Iraq**\
 `Senator JD Vance of Ohio also claimed Gov. Tim Walz of Minnesota had exaggerated his service record. Mr. Walz said a decision to retire and run for Congress came months before any notice of deployment.`\
 https://nytimes.com/2024/08/07/us/politics/vance-walz-military-record.html
