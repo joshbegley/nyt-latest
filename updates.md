@@ -1,3 +1,5 @@
+**Turkey plans to intervene in the genocide case against Israel at the World Court, and other news.**\
+
 **Rookie QB Sam Hartman among Commanders roster hopefuls ready for an opportunity**\
 `The undrafted free agent joins WR Brycen Tremayne and OL Mason Brooks as players who are vying for a spot on the 53-man roster. `\
 https://nytimes.com/athletic/5685252/2024/08/07/commanders-sam-hartman-preseason/
