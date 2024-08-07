@@ -1,3 +1,11 @@
+**Heavy Downpour Floods New York City Streets**\
+`Drivers navigated flooded roads, including major highways, as a storm hit the New York City region.`\
+https://nytimes.com/video/nyregion/100000009616297/new-york-city-rain-flooding.html
+
+**Debby’s Rains Will Move North This Week. Here’s Where.**\
+`The tropical storm’s meandering off the South Carolina coast will come to an end as it makes another landfall and a quick dash through the Northeast.`\
+https://nytimes.com/2024/08/07/weather/storm-debby-forecast-north-carolina-new-york.html
+
 **Trump Criticizes Harris and Walz in Fox News Appearance and Suggests a Debate Will Happen**\
 `After saying days ago that he would not participate in a September debate on ABC, Mr. Trump said, “We’ll be debating her, I guess, in the pretty near future.”`\
 https://nytimes.com/2024/08/07/us/politics/trump-fox-harris-walz.html
