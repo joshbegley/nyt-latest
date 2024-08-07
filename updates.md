@@ -1,3 +1,7 @@
+**At Olympic skateboarding, celebs come out and good friends put on a show**\
+`Tom Schaar and Keegan Palmer vied for the gold medal Wednesday in men's park, with everyone from Snoop Dogg to Léon Marchand on hand.`\
+https://nytimes.com/athletic/5687220/2024/08/07/olympics-skateboarding-mens-park-tom-schaar-keegan-palmer/
+
 **Texas RB CJ Baxter out for season after knee injury**\
 `Baxter was expected to play the lead role in the Longhorns’ backfield this season`\
 https://nytimes.com/athletic/5687219/2024/08/07/texas-cj-baxter-injury-college-football/
