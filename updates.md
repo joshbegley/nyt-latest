@@ -1,3 +1,19 @@
+**What Causes Dangerous Inflammation in Children With Covid?**\
+`The sometimes fatal condition, MIS-C, may be driven in part by a misdirected immune system, a new study finds.`\
+https://nytimes.com/2024/08/07/health/misc-autoimmune-children.html
+
+**Tim Walz Steps Into the Spotlight**\
+`He “has the values and the integrity to make us proud,” a reader writes. Also: Trump and Venezuela; the child tax credit; suffering farm animals; baseball caps.`\
+https://nytimes.com/2024/08/07/opinion/tim-walz-kamala-harris.html
+
+**Lincoln Center Taps Education Leader as Next President**\
+`Mariko Silver, a former president of Bennington College, will take the reins of the organization as it seeks to expand its audience and increase fund-raising.`\
+https://nytimes.com/2024/08/07/arts/music/lincoln-center-president-mariko-silver.html
+
+**The Windup: They were *this close* to history**\
+`Levi Weaver catches you up on league-wide news.`\
+https://nytimes.com/athletic/5686897/2024/08/07/framber-valdez-no-hitter-white-sox-streak-the-windup/
+
 **Hotel Collapse in Germany Kills 2 and Prompts Frantic Rescue Mission**\
 `One person remained trapped under the rubble on Wednesday after a centuries-old structure collapsed late the night before.`\
 https://nytimes.com/2024/08/07/world/europe/germany-hotel-collapse.html
