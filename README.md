@@ -1,3 +1,11 @@
+**5 Ways Hawaii Is Trying to Prevent the Next Deadly Fire**\
+`When a fire devastated the island of Maui a year ago, officials said they would make fire safety and preparedness improvements. But progress is slow and costly.`\
+https://nytimes.com/2024/08/07/us/lahaina-maui-wildfire-preparation.html
+
+**The Benefits of a Goofball on the Ticket**\
+`Walz can go places where Harris cannot.`\
+https://nytimes.com/2024/08/07/opinion/walz-harris-goofball.html
+
 **One-on-one with Grant Hill: Why build Team USA like this? He had one big worry**\
 `"You can hope that they play at a certain level," Grant Hill says of his older Team USA stars. "There was some uncertainty, I'll be honest."`\
 https://nytimes.com/athletic/5686922/2024/08/07/grant-hill-usa-basketball-olympics-lebron-james/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5686988/2024/08/07/usa-figure-skaters-gold-beijing-
 **As Biden’s Presidency Wanes, U.S. and Asian Nations Do a Delicate Dance**\
 `On an epic trip, Secretary of State Antony J. Blinken tried to reassure Asian leaders about American commitments. But China remains the enduring backyard behemoth.`\
 https://nytimes.com/2024/08/07/us/politics/biden-asia-china-blinken.html
-
-**France's Finot breaks steeplechase record, proposes to boyfriend**\
-`France's Alice Finot celebrated the moment by proposing to her boyfriend in the stands with an Olympic pin.`\
-https://nytimes.com/athletic/5686890/2024/08/07/alice-finot-proposal-steeplechase-olympics/
-
-**What’s in Our Queue? I.M. Pei and More**\
-`I’m a correspondent covering technology in Asia. Here are five things I’ve recently slowed down with.`\
-https://nytimes.com/interactive/2024/08/07/arts/editors-recommendations-pei.html
 
