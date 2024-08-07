@@ -1,3 +1,11 @@
+**James Cook's ball security needs cleaning up, and more from Bills camp**\
+`Plus, offensive line depth continues to be a question, and Josh Allen's offense sputters after strong start.`\
+https://nytimes.com/athletic/5687304/2024/08/07/buffalo-bills-training-camp-james-cook-marquez-valdes-scantling/
+
+**Tom Korologos, Sherpa of Republican Nominees, Dies at 91**\
+`As a White House official and later as a lobbyist, he guided about 300 nominees through their confirmation hearings, including Supreme Court justices.`\
+https://nytimes.com/2024/08/07/us/politics/tom-korologos-dead.html
+
 **After Botched Rollout, FAFSA Is Delayed for a Second Year**\
 `Despite months of troubleshooting the college aid application process, the Education Department said the form would not be fully ready for next year’s students until Dec. 1.`\
 https://nytimes.com/2024/08/07/us/politics/fafsa-delayed-for-second-year.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/07/world/middleeast/iran-israel-retaliation.html
 **Broncos quarterbacks on rookie chores, handling pressure and the ongoing QB race**\
 `Bo Nix said he has avoided outside input on Broncos QB competition: "Nobody has a higher standard for how I play than me."`\
 https://nytimes.com/athletic/5687257/2024/08/07/broncos-qb-race-nix-stidham/
-
-**Nadal won't play U.S. Open: Would not 'be able to give my 100 percent'**\
-`Rafael Nadal will not appear at the U.`\
-https://nytimes.com/athletic/5687702/2024/08/07/rafael-nadal-to-miss-us-open/
-
-**Harris and Trump Battled for the Midwest**\
-`Also, rain from Debby pounded the Carolinas. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2024/08/07/briefing/harris-trump-midwest-britain-protests.html
 
