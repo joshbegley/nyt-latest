@@ -1,3 +1,7 @@
+**Astros’ Framber Valdez loses no-hit bid with two outs in ninth inning on 2-run homer**\
+`Valdez almost no-hit the Rangers on Tuesday, a little over a year since he no-hit the Guardians.`\
+https://nytimes.com/athletic/5685672/2024/08/06/framber-valdez-loses-no-hit-bid-astros-rangers/
+
 **Introducing Coach Walz: Five Takeaways from Philadelphia**\
 `A glittering night aimed to energize Democrats and banish the doldrums that have gripped the party.`\
 https://nytimes.com/2024/08/06/us/politics/harris-walz-rally-speech-takeaways.html

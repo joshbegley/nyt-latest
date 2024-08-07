@@ -1,3 +1,7 @@
+**Astros’ Framber Valdez loses no-hit bid with two outs in ninth inning on 2-run homer**\
+`Valdez almost no-hit the Rangers on Tuesday, a little over a year since he no-hit the Guardians.`\
+https://nytimes.com/athletic/5685672/2024/08/06/framber-valdez-loses-no-hit-bid-astros-rangers/
+
 **Introducing Coach Walz: Five Takeaways from Philadelphia**\
 `A glittering night aimed to energize Democrats and banish the doldrums that have gripped the party.`\
 https://nytimes.com/2024/08/06/us/politics/harris-walz-rally-speech-takeaways.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009615583/harris-walz-campaign-rally
 **Astros promote Zach Dezenzo, taking a page from the Rangers' playbook**\
 `Dezenzo is up to provide a spark for the struggling Astros offense, similar to what the Rangers needed last year from call-up Evan Carter.`\
 https://nytimes.com/athletic/5685581/2024/08/06/astros-promote-zach-dezenzo-rangers-evan-carter/
-
-**What Tim Walz Brings to the Harris Ticket**\
-`Vice President Kamala Harris is said to have liked Tim Walz’s policies, his Midwestern appeal and the likelihood that he would be a loyal running mate and governing partner.`\
-https://nytimes.com/video/us/100000009613971/tim-walz-kamala-harris-ticket.html
 
