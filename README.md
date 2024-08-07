@@ -1,3 +1,11 @@
+**The Athletic FC: Postecoglou and patience, Olmo move logic, UWSNT's golden path**\
+`Today in The Athletic FC: Postecoglou and second-season syndrome, Olmo's Barca deal - does it make sense? Plus: USWNT's golden chance`\
+https://nytimes.com/athletic/5686210/2024/08/07/postecoglou-and-patience-olmo-move-logic-uwsnts-golden-path/
+
+**Ten Rams takeaways after conclusion of training camp, first joint practice**\
+`How concerned should the Rams be about a rash of injuries? How good has rookie Braden Fiske been in his first camp?`\
+https://nytimes.com/athletic/5685024/2024/08/07/la-rams-camp-takeaways-matthew-stafford-braden-fiske/
+
 **As Stott, Marsh try to make adjustments at plate, how will Phillies decide playing time?**\
 `Stott has lost his rhythm at the plate this season. As the Phillies scuffle, manager Rob Thomson is looking for the slightest advantage. `\
 https://nytimes.com/athletic/5685970/2024/08/07/bryson-stott-brandon-marsh-phillies-playing-time/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5686258/2024/08/07/rodri-morata-gibraltar-chant-ban
 **Disney’s Parks Struggle, Exposing a New Trouble Spot**\
 `Companywide profit increased, the result of hit movies and streaming growth. But Disney said softening theme park demand “could impact the next few quarters.”`\
 https://nytimes.com/2024/08/07/business/media/disney-earnings-parks.html
-
-**Sean Longstaff says 'everyone had a price' at Newcastle this summer**\
-`George Caulkin speaks to the midfielder ahead of what could be a pivotal season as Newcastle try to return to the Champions League`\
-https://nytimes.com/athletic/5686080/2024/08/07/sean-longstaff-interview-newcastle/
-
-**Ukraine Launches Rare Cross-Border Ground Assault Into Russia, Kremlin Says**\
-`Troops and armored fighting vehicles crossed into Russia’s western Kursk region on Tuesday, according to Moscow and independent analysts. Ukrainian officials have not commented.`\
-https://nytimes.com/2024/08/07/world/europe/ukraine-russia-cross-border-assault.html
 
