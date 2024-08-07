@@ -1,3 +1,7 @@
+**Hindus in Bangladesh Face Revenge Attacks After Prime Minister’s Exit**\
+`There has long been a perception that the Hindu minority supports Sheikh Hasina, who resigned as prime minister and fled the country after a popular uprising.`\
+https://nytimes.com/2024/08/07/world/asia/bangladesh-politics-unrest.html
+
 **Wisconsin RBs Darrion Dupree, Dilin Jones 'don't play like they're freshmen'**\
 `Seniors Chez Mellusi and Tawee Walker lead the way, but it is becoming clear why coaches were so excited about the newcomers.`\
 https://nytimes.com/athletic/5685177/2024/08/07/wisconsin-running-backs-darrion-dupree-dilin-jones/

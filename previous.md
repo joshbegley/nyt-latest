@@ -1,3 +1,7 @@
+**Hindus in Bangladesh Face Revenge Attacks After Prime Minister’s Exit**\
+`There has long been a perception that the Hindu minority supports Sheikh Hasina, who resigned as prime minister and fled the country after a popular uprising.`\
+https://nytimes.com/2024/08/07/world/asia/bangladesh-politics-unrest.html
+
 **Wisconsin RBs Darrion Dupree, Dilin Jones 'don't play like they're freshmen'**\
 `Seniors Chez Mellusi and Tawee Walker lead the way, but it is becoming clear why coaches were so excited about the newcomers.`\
 https://nytimes.com/athletic/5685177/2024/08/07/wisconsin-running-backs-darrion-dupree-dilin-jones/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/07/crosswords/wordle-review-1146.html
 **Court Disbands Thailand’s Most Popular Political Party**\
 `Since the Move Forward Party won the last election with a call for change, conservative forces have kept it out of power. Now, it no longer exists.`\
 https://nytimes.com/2024/08/07/world/asia/thailand-move-forward-disbanded.html
-
-**Three Days That Rocked Japan’s Markets**\
-`The fragility of a more-than-year-long stock rally in Japan, fueled in part by a weak yen, has been exposed by the sudden strengthening of the currency.`\
-https://nytimes.com/2024/08/07/business/japan-yen-nikkei-stocks.html
 
