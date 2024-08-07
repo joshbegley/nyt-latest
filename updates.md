@@ -1,3 +1,19 @@
+**Astros promote Zach Dezenzo, taking a page from the Rangers' playbook**\
+`Dezenzo is up to provide a spark for the struggling Astros offense, similar to what the Rangers needed last year from call-up Evan Carter.`\
+https://nytimes.com/athletic/5685581/2024/08/06/astros-promote-zach-dezenzo-rangers-evan-carter/
+
+**What Tim Walz Brings to the Harris Ticket**\
+`Vice President Kamala Harris is said to have liked Tim Walz’s policies, his Midwestern appeal and the likelihood that he would be a loyal running mate and governing partner.`\
+https://nytimes.com/video/us/100000009613971/tim-walz-kamala-harris-ticket.html
+
+**Mexican Drug Lord Is Said to Face Trial in Brooklyn**\
+`The decision by the Justice Department will put Ismael Zambada García in the same federal courthouse where his fellow Sinaloa cartel founder, El Chapo, was sentenced to life in prison.`\
+https://nytimes.com/2024/08/06/us/politics/el-mayo-trial-brooklyn.html
+
+**At what point do the Chargers' offensive struggles in training camp become a concern?**\
+`Nobody expects Easton Stick to be Justin Herbert, but the offensive struggles in camp can still be a reason for alarm.`\
+https://nytimes.com/athletic/5685560/2024/08/06/chargers-training-camp-quarterbacks-struggling-easton-stick/
+
 **Elissa Slotkin and Mike Rogers Will Face Off in Key Michigan Senate Race**\
 `Democrats were initially favored to hold the seat, but President Biden’s struggles in the state — fueled in part by Israel’s war in Gaza — shifted the contest to a pure tossup.`\
 https://nytimes.com/2024/08/06/us/politics/elissa-slotkin-mike-rogers-michigan-senate.html
