@@ -1,3 +1,7 @@
+**NFL fines Giants, Lions for fights during joint practices**\
+`Skirmishes took place throughout the joint sessions that involved several players.`\
+https://nytimes.com/athletic/5686782/2024/08/07/nfl-fines-giants-lions-fights/
+
 **Book With Project 2025 Ties and JD Vance Foreword Is Delayed Until After Election**\
 `The book’s author is Kevin D. Roberts, the president of Heritage Foundation, which coordinated the right-wing policy blueprint that has come under fire from Democrats.`\
 https://nytimes.com/2024/08/07/us/politics/project-2025-book-jd-vance-delayed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/07/us/politics/trump-fox-harris-walz.html
 **Bob Woodward to Publish ‘War’ This Fall**\
 `Woodward, an author and journalist, has written more than 20 best selling books. His latest will focus on Ukraine, the Middle East, and the battle for the U.S. presidency.`\
 https://nytimes.com/2024/08/07/books/bob-woodward-book-war.html
-
-**In Prisoner Swap, Echoes of Putin’s K.G.B. Past**\
-`A sprawling exchange with the West underscored the Russian president’s loyalty to his intelligence services. It also showed his continued interest in making deals.`\
-https://nytimes.com/2024/08/07/world/europe/putin-russia-prisoner-swap.html
 
