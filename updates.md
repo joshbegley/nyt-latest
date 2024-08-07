@@ -1,3 +1,19 @@
+**Taylor Swift Concerts in Vienna Canceled After Officials Outline Threats**\
+`Three stadium shows were called off after Austrian officials said that a person who was arrested and accused of plotting a terrorist attack had been focused on her tour.`\
+https://nytimes.com/2024/08/07/arts/music/taylor-swift-concert-terror-plot-vienna.html
+
+**American Katie Moon overcomes down year for silver in Olympic pole vault**\
+`Moon, the defending Olympic champion, maxed out at 4.85 meters, a season’s best, to secure a silver medal.`\
+https://nytimes.com/athletic/5687119/2024/08/07/katie-moon-olympic-pole-vault-results/
+
+**Twins' Joe Ryan exits start early with right tricep tightness**\
+`Ryan’s injury could be a crushing blow for a Twins team thin on starting pitching depth.`\
+https://nytimes.com/athletic/5687334/2024/08/07/joe-ryan-injury-minnesota-twins/
+
+**A Year After the Fire, a Lahaina Little Leaguer Finds Solace in Baseball**\
+`A team from Maui is now steps away from the Little League World Series, including one player whose family lost almost everything.`\
+https://nytimes.com/2024/08/07/us/lahaina-fire-little-league-baseball.html
+
 **Ethiopia's Girma stretchered off track after steeplechase fall**\
 `Girma appeared to clip the barrier with his trailing left foot and fell directly onto his upper body.`\
 https://nytimes.com/athletic/5687451/2024/08/07/lamecha-girma-olympics-steeplechase-injury/

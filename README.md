@@ -1,5 +1,5 @@
 **Taylor Swift Concerts in Vienna Canceled After Officials Outline Threats**\
-`Three stadium shows were called off after Austrian officials said that a person who was arrested and accused of plotting a terrorist attack had been focused on her tour.`\
+`Three stadium shows were called off after Austrian officials said that a man who was arrested and accused of plotting a terrorist attack had been focused on her tour.`\
 https://nytimes.com/2024/08/07/arts/music/taylor-swift-concert-terror-plot-vienna.html
 
 **American Katie Moon overcomes down year for silver in Olympic pole vault**\
