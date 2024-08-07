@@ -1,3 +1,7 @@
+**DK Metcalf swings helmet at teammate's head**\
+`DK Metcalf hit K'Von Wallace in the head with a helmet after a confrontation with Tre Brown, just one of several fights Wednesday.`\
+https://nytimes.com/athletic/5687833/2024/08/07/seahawks-fight-dk-metcalf-helmet/
+
 **Warner Bros. Discovery Takes $9 Billion Write-Down on Cable Networks**\
 `David Zaslav, the company’s chief executive, said the accounting change was an acknowledgment of the pressures facing traditional media.`\
 https://nytimes.com/2024/08/07/business/warner-bros-discovery-sports-write-down.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/07/us/politics/vance-walz-military-record.html
 **Christian Watson survives injury scare and more from Packers camp**\
 `Watson suffered a knee injury on the last play of practice and stayed down for a while, but he said after practice that he should be fine.`\
 https://nytimes.com/athletic/5687377/2024/08/07/christian-watson-packers-camp/
-
-**49ers, Steelers talking Aiyuk, no deal yet**\
-`If the 49ers insist on getting a receiver back in any trade of Brandon Aiyuk, the Steelers might struggle to meet the price.`\
-https://nytimes.com/athletic/5687559/2024/08/07/49ers-brandon-aiyuk-steelers-trade-talks/
 

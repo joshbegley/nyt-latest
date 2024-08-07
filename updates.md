@@ -1,3 +1,7 @@
+**DK Metcalf swings helmet at teammate's head**\
+`DK Metcalf hit K'Von Wallace in the head with a helmet after a confrontation with Tre Brown, just one of several fights Wednesday.`\
+https://nytimes.com/athletic/5687833/2024/08/07/seahawks-fight-dk-metcalf-helmet/
+
 **Warner Bros. Discovery Takes $9 Billion Write-Down on Cable Networks**\
 `David Zaslav, the company’s chief executive, said the accounting change was an acknowledgment of the pressures facing traditional media.`\
 https://nytimes.com/2024/08/07/business/warner-bros-discovery-sports-write-down.html
