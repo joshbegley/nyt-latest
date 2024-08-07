@@ -1,3 +1,7 @@
+**NFL fines Giants, Lions for fights during joint practices**\
+`Skirmishes took place throughout the joint sessions that involved several players.`\
+https://nytimes.com/athletic/5686782/2024/08/07/nfl-fines-giants-lions-fights/
+
 **Book With Project 2025 Ties and JD Vance Foreword Is Delayed Until After Election**\
 `The book’s author is Kevin D. Roberts, the president of Heritage Foundation, which coordinated the right-wing policy blueprint that has come under fire from Democrats.`\
 https://nytimes.com/2024/08/07/us/politics/project-2025-book-jd-vance-delayed.html
