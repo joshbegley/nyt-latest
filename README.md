@@ -1,3 +1,11 @@
+**As Iran Braces for War, Its Citizens are Kept in the Dark**\
+`Iranians say they have not been told how to prepare should broad hostilities break out between their country and Israel.`\
+https://nytimes.com/2024/08/07/world/middleeast/iran-israel-war.html
+
+**Warm Air and Warm Oceans Power Storms Like Debby**\
+`The heating of the planet is increasing the amount of moisture in the atmosphere. That helps to load hurricanes and other storms with more water.`\
+https://nytimes.com/2024/08/07/climate/warm-air-oceans-power-storms.html
+
 **30 Months After Their Games Ended, U.S. Figure Skaters Get Golds**\
 `In a ceremony in Paris, the American team received the medals they won after the Russian team, featuring Kamila Valieva, was disqualified.`\
 https://nytimes.com/2024/08/07/world/olympics/30-months-after-their-games-ended-us-figure-skaters-get-golds.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5686067/2024/08/07/lauri-markkanen-jazz-contract-ex
 **Full Time: USWNT going for gold**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/5686972/2024/08/07/uswnt-advances-to-the-olympic-final-plus-vote-on-what-to-call-this-front-line/
-
-**Wilson won't play in Steelers' preseason opener, remains QB1 over Fields**\
-`Mike Tomlin says "it very much is a competition” between Russell Wilson and Justin Fields. Fields can make up ground on Friday night.`\
-https://nytimes.com/athletic/5686957/2024/08/07/russell-wilson-wont-play-in-preseason-opener-remains-qb1-in-steelers-competition/
-
-**Connie Chiume, 72, Dies; ‘Black Panther’ Actor Bridged S. Africa Eras**\
-`Her career began during apartheid and outlived it, reaching a personal milestone in a blockbuster movie and its sequel.`\
-https://nytimes.com/2024/08/07/world/africa/connie-chiume-dead.html
 
