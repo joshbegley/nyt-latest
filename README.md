@@ -1,3 +1,7 @@
+**Fantasy football takeover: Flipping a newly-acquired dynasty team towards a brighter future**\
+`Mike Vorkunov details how he remade a dynasty football team he acquired in the middle of the 2023 campaign with an eye towards the future. `\
+https://nytimes.com/athletic/5681984/2024/08/07/dynasty-draft-flip-team-fantasy-football/
+
 **A Deal That Could Save Venezuela**\
 `A power-sharing deal may be the best way out of Venezuela’s political crisis.`\
 https://nytimes.com/2024/08/07/opinion/venezuela-deal-political-crisis.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5655175/2024/08/07/fantasy-premier-league-price-ris
 **Arsenal's right-side combinations are an elite attacking weapon - this is why**\
 `How the timing and coordination between Ben White, Bukayo Saka and Martin Odegaard opens up Arsenal's opponents `\
 https://nytimes.com/athletic/5676185/2024/08/07/arsenal-right-side-combinations-premier-league/
-
-**Leicester aren't 'Premier League-ready' - so what do they need to do in the transfer market?**\
-`New boss Steve Cooper says he wants his side to be prepared for the top flight, but they look far from that`\
-https://nytimes.com/athletic/5683611/2024/08/07/leicester-premier-league-transfer-window/
 
