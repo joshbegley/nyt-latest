@@ -1,3 +1,7 @@
+**A Year After the Fire, a Lahaina Little Leaguer Finds Solace in Baseball**\
+`A team from Maui is now steps away from the Little League World Series, including one player whose family lost almost everything.`\
+https://nytimes.com/2024/08/07/us/lahaina-fire-little-league-baseball.html
+
 **Ethiopia's Girma stretchered off track after steeplechase fall**\
 `Girma appeared to clip the barrier with his trailing left foot and fell directly onto his upper body.`\
 https://nytimes.com/athletic/5687451/2024/08/07/lamecha-girma-olympics-steeplechase-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/07/us/politics/bush-bell-aipac-missouri-primary.html
 **Three takeaways from the Giants trade deadline, 1 week later**\
 `With the benefit of a week of hindsight, some of the Giants’ deadline decisions make more sense.`\
 https://nytimes.com/athletic/5685930/2024/08/07/sf-giants-trade-deadline-takeaways/
-
-**Arsenal 'managing' Timber and Calafiori as precaution says Arteta**\
-`Mikel Arteta has given updates on Jurrien Timber and Riccardo Calafiori after the pair missed yet another one of Arsenal’s pre-season friendlies.`\
-https://nytimes.com/athletic/5687429/2024/08/07/arsenal-calafiori-timber-injury-arteta/
 
