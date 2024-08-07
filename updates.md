@@ -1,3 +1,7 @@
+**Harris and Trump Battled for the Midwest**\
+`Also, rain from Debby pounded the Carolinas. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/08/07/briefing/harris-trump-midwest-britain-protests.html
+
 **Team USA routs Nigeria, advances to semifinals vs. Australia**\
 `Team USA advances to Olympic semifinal, will play Australia Friday, Aug. 9.`\
 https://nytimes.com/athletic/5687507/2024/08/07/team-usa-nigeria-olympic-womens-basketball/
