@@ -1,3 +1,15 @@
+**Why Financial Markets Are Like Toddlers**\
+`They require infinite patience, often throw tantrums and are sometimes best ignored.`\
+https://nytimes.com/2024/08/07/opinion/why-financial-markets-are-like-toddlers.html
+
+**Fears of Fresh Violence Put Britain on High Alert**\
+`Some 6,000 specialist public order police officers have been mobilized across the country amid fears that protests, called for Wednesday night, could lead to further riots.`\
+https://nytimes.com/2024/08/07/world/europe/uk-riots-police.html
+
+**Markkanen, Jazz reach long-term extension**\
+`Utah held trade conversations surrounding the 27-year-old forward this offseason, most notably with the Warriors.`\
+https://nytimes.com/athletic/5683827/2024/08/07/lauri-markkanen-jazz-extension/
+
 **Is It Wrong to Give Money With Strings Attached?**\
 `The magazine’s Ethicist columnist on conditional gifts.`\
 https://nytimes.com/2024/08/07/magazine/kitchen-remodel-gift-ethics.html

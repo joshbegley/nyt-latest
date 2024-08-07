@@ -1,6 +1,18 @@
+**Why Financial Markets Are Like Toddlers**\
+`They require infinite patience, often throw tantrums and are sometimes best ignored.`\
+https://nytimes.com/2024/08/07/opinion/why-financial-markets-are-like-toddlers.html
+
+**Fears of Fresh Violence Put Britain on High Alert**\
+`Some 6,000 specialist public order police officers have been mobilized across the country amid fears that protests, called for Wednesday night, could lead to further riots.`\
+https://nytimes.com/2024/08/07/world/europe/uk-riots-police.html
+
 **Is It Wrong to Give Money With Strings Attached?**\
 `The magazine’s Ethicist columnist on conditional gifts.`\
 https://nytimes.com/2024/08/07/magazine/kitchen-remodel-gift-ethics.html
+
+**Markkanen, Jazz reach long-term extension**\
+`Utah held trade conversations surrounding the 27-year-old forward this offseason, most notably with the Warriors.`\
+https://nytimes.com/athletic/5683827/2024/08/07/lauri-markkanen-jazz-extension/
 
 **NFL fines Giants, Lions for fights during joint practices**\
 `Skirmishes took place throughout the joint sessions that involved several players.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/07/dining/this-chilled-gochujang-tofu-is-my-heat-wav
 **Patriots’ failed Brandon Aiyuk pursuit highlights difficulties of NFL rebuild**\
 `Until the Patriots prove their head coach is worth playing for and their young quarterback can be the guy, it could be a long rebuild.`\
 https://nytimes.com/athletic/5686569/2024/08/07/patriots-brandon-aiyuk-trade/
-
-**Heavy Downpour Floods New York City Streets**\
-`Drivers navigated flooded roads, including major highways, as a storm hit the New York City region.`\
-https://nytimes.com/video/nyregion/100000009616297/new-york-city-rain-flooding.html
-
-**Debby’s Rains Will Move North This Week. Here’s Where.**\
-`The tropical storm’s meandering off the South Carolina coast will come to an end as it makes another landfall and a quick dash through the Northeast.`\
-https://nytimes.com/2024/08/07/weather/storm-debby-forecast-north-carolina-new-york.html
-
-**Trump Criticizes Harris and Walz in Fox News Appearance and Suggests a Debate Will Happen**\
-`After saying days ago that he would not participate in a September debate on ABC, Mr. Trump said, “We’ll be debating her, I guess, in the pretty near future.”`\
-https://nytimes.com/2024/08/07/us/politics/trump-fox-harris-walz.html
 
