@@ -1,3 +1,7 @@
+**How Bangladesh’s Leader Lost Her Grip on Power**\
+`Once viewed as the hope for a democratic future in Bangladesh, Sheikh Hasina turned increasingly autocratic during her years as prime minister.`\
+https://nytimes.com/video/world/asia/100000009614906/how-bangladeshs-leader-lost-her-grip-on-power.html
+
 **Dodgers' Brusdar Graterol helped off field after hamstring injury**\
 `Graterol left after 8 pitches. He had yet to pitch this season because of a shoulder issue that cropped up toward the end of spring training`\
 https://nytimes.com/athletic/5685901/2024/08/07/dodgers-brusdar-graterol-injury/

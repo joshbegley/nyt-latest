@@ -1,3 +1,7 @@
+**How Bangladesh’s Leader Lost Her Grip on Power**\
+`Once viewed as the hope for a democratic future in Bangladesh, Sheikh Hasina turned increasingly autocratic during her years as prime minister.`\
+https://nytimes.com/video/world/asia/100000009614906/how-bangladeshs-leader-lost-her-grip-on-power.html
+
 **Dodgers' Brusdar Graterol helped off field after hamstring injury**\
 `Graterol left after 8 pitches. He had yet to pitch this season because of a shoulder issue that cropped up toward the end of spring training`\
 https://nytimes.com/athletic/5685901/2024/08/07/dodgers-brusdar-graterol-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5660136/2024/08/07/brighton-olympics-running-techni
 **Iroegbunam swapped Emery for Dyche: 'It's a different style but I'll adapt and kick on'**\
 `Midfielder fits into Everton's policy of buying hungry young talents to develop - and he is eager to prove himself after joining from Villa`\
 https://nytimes.com/athletic/5674190/2024/08/07/tim-iroegbunam-interview-everton/
-
-**FPL: The biggest price risers and fallers in this season's game**\
-`From Erling Haaland to Cole Palmer, there are some significant price adjustments in this season's game — here's how you can navigate them`\
-https://nytimes.com/athletic/5655175/2024/08/07/fantasy-premier-league-price-risers-and-fallers/
 
