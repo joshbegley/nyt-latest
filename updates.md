@@ -1,4 +1,8 @@
 **Dodgers' Brusdar Graterol helped off field after hamstring injury**\
+`Graterol left after 8 pitches. He had yet to pitch this season because of a shoulder issue that cropped up toward the end of spring training`\
+https://nytimes.com/athletic/5685901/2024/08/07/dodgers-brusdar-graterol-injury/
+
+**Dodgers' Brusdar Graterol helped off field after hamstring injury**\
 `LOS ANGELES — Brusdar Graterol’s much-awaited season debut on Tuesday night was cut short after the Los Angeles Dodgers reliever delivered a 92 mph fastball and bent over in pain.`\
 https://nytimes.com/athletic/5685901/2024/08/07/dodgers-brusdar-graterol-injury/
 
