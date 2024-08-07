@@ -1,3 +1,11 @@
+**Ferguson and Reichert Emerge in the Washington Primary for Governor**\
+`The two leading candidates, one Democrat and one Republican, have each emphasized their work in law enforcement, in a state looking for solutions to overdoses and violent crime.`\
+https://nytimes.com/2024/08/06/us/politics/ferguson-reichert-washington-primary-governor.html
+
+**Dodger Details: Mookie Betts' landing spot, Yoshinobu Yamamoto's progress and more**\
+`When he returns next week, Betts will play shortstop and bat second in the order behind Shohei Ohtani.`\
+https://nytimes.com/athletic/5685696/2024/08/06/dodgers-mookie-betts-yoshinobu-yamamoto/
+
 **Mike Kehoe, Missouri’s Lieutenant Governor, Wins G.O.P. Primary for Governor**\
 `The winner of the Republican primary is likely to become Missouri’s next governor. But a ballot measure on abortion that is widely expected to appear in November could boost liberal turnout.`\
 https://nytimes.com/2024/08/06/us/mike-kehoe-missouris-lieutenant-governor-wins-gop-primary-for-governor.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/06/us/kamala-harris-tim-walz-partnership.html
 **Astros’ Framber Valdez loses no-hit bid with 2 outs in ninth inning on 2-run homer**\
 `Valdez almost no-hit the Rangers on Tuesday, a little over a year since he no-hit the Guardians.`\
 https://nytimes.com/athletic/5685672/2024/08/06/framber-valdez-loses-no-hit-bid-astros-rangers/
-
-**Introducing Coach Walz: Five Takeaways from Philadelphia**\
-`A glittering night aimed to energize Democrats and banish the doldrums that have gripped the party.`\
-https://nytimes.com/2024/08/06/us/politics/harris-walz-rally-speech-takeaways.html
-
-**'It's baseball PTSD': How Gavin and Larry Sheets have navigated record losing streaks**\
-`As the White Sox losing streak grows, Larry Sheets can't help but remember enduring such a streak with the Orioles. `\
-https://nytimes.com/athletic/5685603/2024/08/06/gavin-sheets-white-sox-losing-streak/
 
