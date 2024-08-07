@@ -1,3 +1,7 @@
+**Who Is Wesley Bell, the Prosecutor Who Ousted ‘Squad’ Member Cori Bush?**\
+`The House primary between rival progressives in Missouri was influenced by heavy spending from pro-Israel groups, who backed Mr. Bell.`\
+https://nytimes.com/2024/08/07/us/politics/who-is-wesley-bell.html
+
 **As Iran Braces for War, Its Citizens are Kept in the Dark**\
 `Iranians say they have not been told how to prepare should broad hostilities break out between their country and Israel.`\
 https://nytimes.com/2024/08/07/world/middleeast/iran-israel-war.html

@@ -1,3 +1,11 @@
+**One-on-one with Grant Hill: Why build Team USA like this? He had one big worry**\
+`"You can hope that they play at a certain level," Grant Hill says of his older Team USA stars. "There was some uncertainty, I'll be honest."`\
+https://nytimes.com/athletic/5686922/2024/08/07/grant-hill-usa-basketball-olympics-lebron-james/
+
+**Inside the Mind of Missy Elliott**\
+`The rapper breaks down the inspirations for her first-ever headlining tour, drawn from a pioneering three-decade career.`\
+https://nytimes.com/interactive/2024/08/07/arts/music/missy-elliott-out-of-this-world-tour-career.html
+
 **Who Is Wesley Bell, the Prosecutor Who Ousted ‘Squad’ Member Cori Bush?**\
 `The House primary between rival progressives in Missouri was influenced by heavy spending from pro-Israel groups, who backed Mr. Bell.`\
 https://nytimes.com/2024/08/07/us/politics/who-is-wesley-bell.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5686890/2024/08/07/alice-finot-proposal-steeplechas
 **What’s in Our Queue? I.M. Pei and More**\
 `I’m a correspondent covering technology in Asia. Here are five things I’ve recently slowed down with.`\
 https://nytimes.com/interactive/2024/08/07/arts/editors-recommendations-pei.html
-
-**The Sport Flipping, Twisting and Pushing for Respect, Smiling All the Way**\
-`Artistic swimming is a crowd-pleaser and much harder than it used to be, but it has had to make the case that it is even a sport at all.`\
-https://nytimes.com/2024/08/07/world/olympics/artistic-swimming.html
-
-**Jones: Lauri Markkanen's extension is an example of perseverance and opportunity**\
-`After a slow start to his NBA career, Markkanen, the forward, has made the most of his chances to become Utah's centerpiece.`\
-https://nytimes.com/athletic/5686067/2024/08/07/lauri-markkanen-jazz-contract-extension-meaning/
 
