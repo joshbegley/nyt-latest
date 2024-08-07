@@ -1,3 +1,7 @@
+**The Pulse: Two unexpected Olympic delights**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5684760/2024/08/07/cole-hocker-1500-olympics-the-pulse/
+
 **Storm to move north up South Carolina’s coast today. Here’s the latest.**\
 `Less flooding is expected on Wednesday as the storm picks up moisture as it hovers over the Atlantic Ocean. It will come back to`\
 https://nytimes.com/live/2024/08/07/weather/debby-storm-forecast/storm-to-move-north-up-south-carolinas-coast-today-heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/07/world/europe/ukraine-russia-cross-border-assault.
 **Alvarez, Gallagher, Guerra and the rest: Can Atletico Madrid afford a €200m summer spend?**\
 `La Liga's transfer spending has so far been pretty quiet - but Atletico could be about to change all that`\
 https://nytimes.com/athletic/5686015/2024/08/07/atletico-madrid-manchester-city-chelsea-transfers-alvarez-gallagher/
-
-**Why Kamala Harris Picked Tim Walz**\
-`The Minnesota governor’s biography and demeanor makes him a familiar figure to many voters.`\
-https://nytimes.com/2024/08/07/briefing/kamala-harris-tim-walz-running-mate.html
 

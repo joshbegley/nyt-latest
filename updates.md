@@ -1,3 +1,11 @@
+**Storm to move north up South Carolina’s coast today. Here’s the latest.**\
+`Less flooding is expected on Wednesday as the storm picks up moisture as it hovers over the Atlantic Ocean. It will come back to`\
+https://nytimes.com/live/2024/08/07/weather/debby-storm-forecast/storm-to-move-north-up-south-carolinas-coast-today-heres-the-latest
+
+**Sinwar is the ‘primary decider’ in any cease-fire, Blinken says.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/08/07/world/israel-iran-hamas-gaza-war/sinwar-is-the-primary-decider-in-any-cease-fire-blinken-says
+
 **New York Times Reports 13.6% Jump in Profit**\
 `The publisher added about 300,000 digital subscribers in the latest quarter, and now has more than 10.8 million subscribers.`\
 https://nytimes.com/2024/08/07/business/media/new-york-times-earnings.html
