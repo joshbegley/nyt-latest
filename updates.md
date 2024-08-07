@@ -1,3 +1,7 @@
+**Incumbent Andrew Bailey Wins Republican Primary for Missouri A.G.**\
+`He and his challenger, Will Scharf, were both endorsed by former President Donald J. Trump.`\
+https://nytimes.com/2024/08/06/us/politics/andrew-bailey-missouri-attorney-general.html
+
 **Bears 'Hard Knocks' takeaways: Caleb Williams the star, what they got right, wrong**\
 `Breaking down the first episode of the Bears on "Hard Knocks." Who stole the show? What was the most Chicago thing?`\
 https://nytimes.com/athletic/5685708/2024/08/06/bears-hard-knocks-episode-1-caleb-williams/
