@@ -1,3 +1,7 @@
+**Kamala Harris and ‘Coach Walz’ Ease Into Their New Partnership**\
+`A chemistry seems to be developing between Vice President Kamala Harris and her running mate, Gov. Tim Walz, who looks as if he cannot believe his luck.`\
+https://nytimes.com/2024/08/06/us/kamala-harris-tim-walz-partnership.html
+
 **Astros’ Framber Valdez loses no-hit bid with 2 outs in ninth inning on 2-run homer**\
 `Valdez almost no-hit the Rangers on Tuesday, a little over a year since he no-hit the Guardians.`\
 https://nytimes.com/athletic/5685672/2024/08/06/framber-valdez-loses-no-hit-bid-astros-rangers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/06/us/dvontaye-mitchell-homicide-charges.html
 **Harris and Walz Hold First Campaign Rally Together**\
 `Vice President Kamala Harris and her newly announced running mate, Gov. Tim Walz of Minnesota, went on the attack against the Trump-Vance Republican ticket during a raucous rally in Philadelphia.`\
 https://nytimes.com/video/us/politics/100000009615583/harris-walz-campaign-rally.html
-
-**Astros promote Zach Dezenzo, taking a page from the Rangers' playbook**\
-`Dezenzo is up to provide a spark for the struggling Astros offense, similar to what the Rangers needed last year from call-up Evan Carter.`\
-https://nytimes.com/athletic/5685581/2024/08/06/astros-promote-zach-dezenzo-rangers-evan-carter/
 

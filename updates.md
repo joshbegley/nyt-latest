@@ -1,3 +1,7 @@
+**Kamala Harris and ‘Coach Walz’ Ease Into Their New Partnership**\
+`A chemistry seems to be developing between Vice President Kamala Harris and her running mate, Gov. Tim Walz, who looks as if he cannot believe his luck.`\
+https://nytimes.com/2024/08/06/us/kamala-harris-tim-walz-partnership.html
+
 **Astros’ Framber Valdez loses no-hit bid with 2 outs in ninth inning on 2-run homer**\
 `Valdez almost no-hit the Rangers on Tuesday, a little over a year since he no-hit the Guardians.`\
 https://nytimes.com/athletic/5685672/2024/08/06/framber-valdez-loses-no-hit-bid-astros-rangers/
