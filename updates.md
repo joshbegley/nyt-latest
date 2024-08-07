@@ -1,3 +1,7 @@
+**Marta’s legacy is defiance, hunger and joy. But how will it end at the Olympics?**\
+`Marta will go down as one of the greatest to ever play. Her international career comes to an end in the Olympic final against the U.S. `\
+https://nytimes.com/athletic/5671350/2024/08/07/marta-brazil-olympics-legacy/
+
 **Lucas Digne rejects proposal to join Galatasaray**\
 `Aston Villa defender Lucas Digne has rejected a proposal to join Galatasaray.`\
 https://nytimes.com/athletic/5686618/2024/08/07/lucas-digne-galatasaray-aston-villa/
