@@ -1,3 +1,7 @@
+**Wilson won't play in Steelers' preseason opener, remains QB1 over Fields**\
+`Mike Tomlin says "it very much is a competition” between Russell Wilson and Justin Fields. Fields can make up ground on Friday night.`\
+https://nytimes.com/athletic/5686957/2024/08/07/russell-wilson-wont-play-in-preseason-opener-remains-qb1-in-steelers-competition/
+
 **Connie Chiume, 72, Dies; ‘Black Panther’ Actor Bridged S. Africa Eras**\
 `Her career began during apartheid and outlived it, reaching a personal milestone in a blockbuster movie and its sequel.`\
 https://nytimes.com/2024/08/07/world/africa/connie-chiume-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/07/health/misc-autoimmune-children.html
 **Tim Walz Steps Into the Spotlight**\
 `He “has the values and the integrity to make us proud,” a reader writes. Also: Trump and Venezuela; the child tax credit; suffering farm animals; baseball caps.`\
 https://nytimes.com/2024/08/07/opinion/tim-walz-kamala-harris.html
-
-**Lincoln Center Taps Education Leader as Next President**\
-`Mariko Silver, a former president of Bennington College, will take the reins of the organization as it seeks to expand its audience and increase fund-raising.`\
-https://nytimes.com/2024/08/07/arts/music/lincoln-center-president-mariko-silver.html
 
