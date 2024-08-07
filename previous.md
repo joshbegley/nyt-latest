@@ -1,3 +1,7 @@
+**Fantasy football 2024 quarterback rankings: ‘Upside’ and ‘downside’ scores; plus, a downloadable spreadsheet**\
+`Starting with AFC rivals Josh Allen and Patrick Mahomes, KC Joyner offers his draft guide for the Top 25 QBs for fantasy football 2024.`\
+https://nytimes.com/athletic/5687168/2024/08/07/qb-rankings-system-fantasy-football-2024/
+
 **For These Olympians, the Bling Is the Thing**\
 `Athletes at the Paris Olympics have been sporting some seriously high-wattage accessories. Here are nine of our favorites.`\
 https://nytimes.com/2024/08/07/style/olympians-bling-accessories.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000009616278/germany-hotel-collapse.ht
 **‘Fun Midwestern Dad’ or ‘Radical’? How Media Outlets on the Left and Right Are Covering Tim Walz.**\
 `Vice President Kamala Harris’s new running mate has cultivated an Everyman persona. Progressive publications are embracing it, but conservative outlets are more skeptical.`\
 https://nytimes.com/2024/08/07/business/media/media-coverage-tim-walz.html
-
-**Do You Own a Condo in Florida That Requires Expensive Improvements? Tell Us About It.**\
-`New safety regulations will impact condo owners across Florida, some of whom may have to pay thousands of dollars for required improvements. We want to hear these stories.`\
-https://nytimes.com/2024/08/07/realestate/do-you-own-a-condo-in-florida-that-requires-expensive-improvements-tell-us-about-it.html
 
