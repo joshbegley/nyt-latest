@@ -1,3 +1,7 @@
+**Team USA routs Nigeria, advances to semifinals vs. Australia**\
+`Team USA advances to Olympic semifinal, will play Australia Friday, Aug. 9.`\
+https://nytimes.com/athletic/5687507/2024/08/07/team-usa-nigeria-olympic-womens-basketball/
+
 **New York’s Newest Hotels Reveal the City’s Romantic Streak**\
 `Landscaped terraces, vintage cocktail bars and plush screening rooms — Manhattan’s hospitality scene revives the Gilded Age`\
 https://nytimes.com/2024/08/07/t-magazine/new-york-hotels-gilded-age.html

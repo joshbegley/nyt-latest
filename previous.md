@@ -1,3 +1,7 @@
+**Team USA routs Nigeria, advances to semifinals vs. Australia**\
+`Team USA advances to Olympic semifinal, will play Australia Friday, Aug. 9.`\
+https://nytimes.com/athletic/5687507/2024/08/07/team-usa-nigeria-olympic-womens-basketball/
+
 **New York’s Newest Hotels Reveal the City’s Romantic Streak**\
 `Landscaped terraces, vintage cocktail bars and plush screening rooms — Manhattan’s hospitality scene revives the Gilded Age`\
 https://nytimes.com/2024/08/07/t-magazine/new-york-hotels-gilded-age.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5687462/2024/08/07/wisconsin-college-football-prese
 **Real Sociedad expect Martin Zubimendi to agree Liverpool move**\
 `Real Sociedad expect midfielder Martin Zubimendi to agree a move to Liverpool.`\
 https://nytimes.com/athletic/5687568/2024/08/07/liverpool-zubimendi-agree-real-sociedad-transfer/
-
-**Charleston Exhales After a ‘Really Close Call’ With Dangerous Flooding**\
-`The historic coastal city floods easily, but officials have upgraded infrastructure in recent years to try to prevent the worst.`\
-https://nytimes.com/2024/08/07/weather/charleston-flooding-debby.html
 
