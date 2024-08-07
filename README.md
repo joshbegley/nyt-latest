@@ -1,3 +1,7 @@
+**Arab and Western Nations Urge Restraint as Israel-Iran Tensions Simmer**\
+`Trying to head off a Middle East war, several countries are pressing Iran to temper its retaliation for the assassination of a Hamas leader in Tehran.`\
+https://nytimes.com/2024/08/07/world/middleeast/iran-israel-retaliation.html
+
 **Broncos quarterbacks on rookie chores, handling pressure and the ongoing QB race**\
 `Bo Nix said he has avoided outside input on Broncos QB competition: "Nobody has a higher standard for how I play than me."`\
 https://nytimes.com/athletic/5687257/2024/08/07/broncos-qb-race-nix-stidham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5687559/2024/08/07/49ers-brandon-aiyuk-steelers-tra
 **Green Day Comes Around, Celebrating Two Album Anniversaries**\
 `The long-running California punk band brought a show focused on two classic LPs and a new release to New York, and multiple generations turned out for the spectacle.`\
 https://nytimes.com/2024/08/07/arts/music/green-day-saviors-tour-photos.html
-
-**Thursday Briefing: Antiracism Protesters Gather in Britain**\
-`Plus, China’s quest for Olympic gold shifts gears.`\
-https://nytimes.com/2024/08/07/briefing/britain-antiracism-protests-us-presidential-election-great-barrier-reef.html
 
