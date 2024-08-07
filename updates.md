@@ -1,3 +1,7 @@
+**Patriots’ failed Brandon Aiyuk pursuit highlights difficulties of NFL rebuild**\
+`Until the Patriots prove their head coach is worth playing for and their young quarterback can be the guy, it could be a long rebuild.`\
+https://nytimes.com/athletic/5686569/2024/08/07/patriots-brandon-aiyuk-trade/
+
 **Heavy Downpour Floods New York City Streets**\
 `Drivers navigated flooded roads, including major highways, as a storm hit the New York City region.`\
 https://nytimes.com/video/nyregion/100000009616297/new-york-city-rain-flooding.html
