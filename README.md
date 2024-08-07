@@ -1,3 +1,7 @@
+**C.D.C. Urges Doctors to Make IUD Insertion Less Painful**\
+`As videos describing the procedure as agonizing spread on social media, new guidelines advise physicians to consider various anesthetics.`\
+https://nytimes.com/2024/08/07/health/iud-insertion-pain.html
+
 **Ten days on tour with Barcelona: How Hansi Flick has looked to calm the chaos**\
 `On a football level at least, the team’s trip to the United States this summer has been a time to try to bring composure to the club`\
 https://nytimes.com/athletic/5686298/2024/08/07/barcelona-pre-season-tour-hansi-flick-calm/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5684045/2024/08/07/49ers-jake-moody-kickoffs-super-
 **Map: 5.2-Magnitude Earthquake Strikes Southern California**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/08/07/us/07wea-quake-tracker-southern-california-nyt8cwe.html
-
-**How might the Kings' lineup look on opening night?**\
-`The Kings got out of a terrible contract, but will players step up to make this a more successful season?`\
-https://nytimes.com/athletic/5682468/2024/08/07/kings-lineup-2024-25/
 

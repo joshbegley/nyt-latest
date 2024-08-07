@@ -1,3 +1,7 @@
+**Ten days on tour with Barcelona: How Hansi Flick has looked to calm the chaos**\
+`On a football level at least, the team’s trip to the United States this summer has been a time to try to bring composure to the club`\
+https://nytimes.com/athletic/5686298/2024/08/07/barcelona-pre-season-tour-hansi-flick-calm/
+
 **Elon Musk Clashes With Keir Starmer Over Riots in Britain**\
 `Over the past few days, the billionaire has posted incendiary comments about violent protests on the social media platform he controls, drawing the ire of the prime minister.`\
 https://nytimes.com/2024/08/07/business/musk-starmer-riots-uk.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/08/07/us/07wea-quake-tracker-southern-calif
 **How might the Kings' lineup look on opening night?**\
 `The Kings got out of a terrible contract, but will players step up to make this a more successful season?`\
 https://nytimes.com/athletic/5682468/2024/08/07/kings-lineup-2024-25/
-
-**Liverpool exploring Zubimendi deal**\
-`Liverpool are exploring a deal to sign Martin Zubimendi of Real Sociedad as they work to strengthen Arne Slot’s squad with a new No 6.`\
-https://nytimes.com/athletic/5684907/2024/08/07/martin-zubimendi-transfer-liverpool/
 

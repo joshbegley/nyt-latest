@@ -1,3 +1,7 @@
+**Ten days on tour with Barcelona: How Hansi Flick has looked to calm the chaos**\
+`On a football level at least, the team’s trip to the United States this summer has been a time to try to bring composure to the club`\
+https://nytimes.com/athletic/5686298/2024/08/07/barcelona-pre-season-tour-hansi-flick-calm/
+
 **Elon Musk Clashes With Keir Starmer Over Riots in Britain**\
 `Over the past few days, the billionaire has posted incendiary comments about violent protests on the social media platform he controls, drawing the ire of the prime minister.`\
 https://nytimes.com/2024/08/07/business/musk-starmer-riots-uk.html
