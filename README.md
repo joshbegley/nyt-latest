@@ -1,3 +1,7 @@
+**Federal Appeals Court Upholds Maryland’s Ban on Semiautomatic Rifles**\
+`The court found that the law did not violate the requirements in a recent ruling that expanded gun rights. Lawyers for one of the plaintiffs said they would request Supreme Court review.`\
+https://nytimes.com/2024/08/06/us/politics/federal-appeals-court-maryland-guns.html
+
 **‘I Am Proud of My Faith’: Shapiro’s Fiery Speech Ends on a Personal Note**\
 `Gov. Josh Shapiro of Pennsylvania rallied Democrats in his home state behind the Democratic ticket after the conclusion of a vice-presidential search that prompted intense public scrutiny of his views on Israel.`\
 https://nytimes.com/2024/08/06/us/politics/josh-shapiro-harris-walz-rally.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/06/opinion/transcript-ezra-klein-discusses-kamala-ha
 **NCAA takes step that could lead to unit payouts for women's hoops tourney teams**\
 `The fund, if passed, would begin during the 2025 women’s NCAA Tournament with payouts starting during the 2025-26 fiscal year.`\
 https://nytimes.com/athletic/5685249/2024/08/06/ncaa-proposal-units-womens-basketball-tournament/
-
-**MLB exec Billy Bean, former major leaguer and advocate for LGBTQ inclusion, dies at 60**\
-`Bean was hired by former commissioner Bud Selig in part to confront the homophobia that persisted in MLB clubhouses.`\
-https://nytimes.com/athletic/5685331/2024/08/06/mlb-billy-bean-death-obituary/
 
