@@ -1,5 +1,5 @@
 **Submit a question for Jared Weiss’ Celtics mailbag**\
-`<p>Even though it’s deep in the offseason, the Celtics’ star players are still on the floor as Team USA makes a run for an Olympic gold medal.`\
+`<p>Even though it’s deep in the offseason, some of the Celtics’ star players are still on the floor as Team USA makes a run for an Olympic gold medal.`\
 https://nytimes.com/athletic/5687175/2024/08/07/celtics-mailbag-offseason/
 
 **NASA Says Boeing Starliner Astronauts May Fly Home on SpaceX in 2025**\
