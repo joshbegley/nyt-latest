@@ -1,4 +1,12 @@
-**Ukraine Appears to Launch Rare Cross-Border Ground Assault Into Russia**\
+**Disney’s Parks Struggle, Exposing a New Trouble Spot**\
+`Companywide profit increased, the result of hit movies and streaming growth. But Disney said softening theme park demand “could impact the next few quarters.”`\
+https://nytimes.com/2024/08/07/business/media/disney-earnings-parks.html
+
+**Sean Longstaff says 'everyone had a price' at Newcastle this summer**\
+`George Caulkin speaks to the midfielder ahead of what could be a pivotal season as Newcastle try to return to the Champions League`\
+https://nytimes.com/athletic/5686080/2024/08/07/sean-longstaff-interview-newcastle/
+
+**Ukraine Launches Rare Cross-Border Ground Assault Into Russia, Kremlin Says**\
 `Troops and armored fighting vehicles crossed into Russia’s western Kursk region on Tuesday, according to Moscow and independent analysts. Ukrainian officials have not commented.`\
 https://nytimes.com/2024/08/07/world/europe/ukraine-russia-cross-border-assault.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5685177/2024/08/07/wisconsin-running-backs-darrion-
 **Vikings owners not focused on extensions for Kwesi Adofo-Mensah, Kevin O'Connell**\
 `The Vikings leadership group appears to be focused on the long term, but what will happen if the team struggles in the short term?`\
 https://nytimes.com/athletic/5685448/2024/08/07/vikings-mark-wilf-kwesi-adofo-mensah-kevin-oconnell/
-
-**Eagles' Jordan Davis has plan for success, and it starts with consistency**\
-`Davis wants to ensure Philadelphia's defensive line maintains the standard of excellence set by Fletcher Cox for 12 seasons.`\
-https://nytimes.com/athletic/5674919/2024/08/07/jordan-davis-eagles-defensive-line/
-
-**Sizing up the Chiefs' cornerback competition — the lone position battle in camp**\
-`Following the L’Jarius Sneed trade, the Chiefs are hoping to identify their best cornerback to play opposite Trent McDuffie.`\
-https://nytimes.com/athletic/5684963/2024/08/07/chiefs-cornerback-competition/
 

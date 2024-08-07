@@ -1,3 +1,15 @@
+**Disney’s Parks Struggle, Exposing a New Trouble Spot**\
+`Companywide profit increased, the result of hit movies and streaming growth. But Disney said softening theme park demand “could impact the next few quarters.”`\
+https://nytimes.com/2024/08/07/business/media/disney-earnings-parks.html
+
+**Sean Longstaff says 'everyone had a price' at Newcastle this summer**\
+`George Caulkin speaks to the midfielder ahead of what could be a pivotal season as Newcastle try to return to the Champions League`\
+https://nytimes.com/athletic/5686080/2024/08/07/sean-longstaff-interview-newcastle/
+
+**Ukraine Launches Rare Cross-Border Ground Assault Into Russia, Kremlin Says**\
+`Troops and armored fighting vehicles crossed into Russia’s western Kursk region on Tuesday, according to Moscow and independent analysts. Ukrainian officials have not commented.`\
+https://nytimes.com/2024/08/07/world/europe/ukraine-russia-cross-border-assault.html
+
 **Ukraine Appears to Launch Rare Cross-Border Ground Assault Into Russia**\
 `Troops and armored fighting vehicles crossed into Russia’s western Kursk region on Tuesday, according to Moscow and independent analysts. Ukrainian officials have not commented.`\
 https://nytimes.com/2024/08/07/world/europe/ukraine-russia-cross-border-assault.html
