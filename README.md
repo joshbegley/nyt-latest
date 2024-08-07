@@ -1,3 +1,7 @@
+**The Briefing: Chelsea 1 Real Madrid 2 - Still vulnerable to balls in behind?**\
+`Chelsea fell to a 2-1 defeat to Real Madrid during the final pre-season game of their U.S. tour`\
+https://nytimes.com/athletic/5685492/2024/08/07/chelsea-real-madrid-analysis-defence/
+
 **Word of the Day: ideologue**\
 `This word has appeared in 32 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/07/learning/word-of-the-day-ideologue.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5685779/2024/08/07/billy-bean-death-mlb-padres-dodg
 **Man Utd season preview: Amad merits minutes, Mainoo partner needed and Rashford's point to prove**\
 `How things are looking for Manchester United ahead of 2024-25...`\
 https://nytimes.com/athletic/5309594/2024/08/07/manchester-united-season-preview-2024-2025/
-
-**The former Olympic sprinter helping Brighton's players run more efficiently**\
-`Leon Reid's sprinting career didn't end in the ideal way — but he is now using his biomechanical expertise to make footballers more durable`\
-https://nytimes.com/athletic/5660136/2024/08/07/brighton-olympics-running-technique/
 
