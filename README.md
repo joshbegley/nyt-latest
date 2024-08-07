@@ -1,3 +1,7 @@
+**Harris and Trump Battled for the Midwest**\
+`Also, rain from Debby pounded the Carolinas. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/08/07/briefing/harris-trump-midwest-britain-protests.html
+
 **Team USA routs Nigeria, advances to semifinals vs. Australia**\
 `Team USA advances to Olympic semifinal, will play Australia Friday, Aug. 9.`\
 https://nytimes.com/athletic/5687507/2024/08/07/team-usa-nigeria-olympic-womens-basketball/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/07/world/israel-iran-hamas-gaza-war/the-united-
 **Wisconsin's Tyler Van Dyke making strides as QB battle continues: Preseason camp notes**\
 `Tyler Van Dyke's mobility is improving, head coach Luke Fickell said, but Braedyn Locke continues to push him in the battle for QB1.`\
 https://nytimes.com/athletic/5687462/2024/08/07/wisconsin-college-football-preseason-quarterbacks/
-
-**Real Sociedad expect Martin Zubimendi to agree Liverpool move**\
-`Real Sociedad expect midfielder Martin Zubimendi to agree a move to Liverpool.`\
-https://nytimes.com/athletic/5687568/2024/08/07/liverpool-zubimendi-agree-real-sociedad-transfer/
 
