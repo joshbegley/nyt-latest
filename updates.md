@@ -1,3 +1,7 @@
+**Connie Chiume, 72, Dies; ‘Black Panther’ Actor Bridged S. Africa Eras**\
+`Her career began during apartheid and outlived it, reaching a personal milestone in a blockbuster movie and its sequel.`\
+https://nytimes.com/2024/08/07/world/africa/connie-chiume-dead.html
+
 **As War in Ukraine Persists, Where Is a Conductor’s Red Line?**\
 `Teodor Currentzis, whose MusicAeterna receives funding from a Russian state bank, has eluded censure at the prestigious Salzburg Festival.`\
 https://nytimes.com/2024/08/07/arts/music/currentzis-conductor-ukraine-war.html
