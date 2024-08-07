@@ -1,3 +1,7 @@
+**Fantasy football takeover: Flipping a newly-acquired dynasty team towards a brighter future**\
+`Mike Vorkunov details how he remade a dynasty football team he acquired in the middle of the 2023 campaign with an eye towards the future. `\
+https://nytimes.com/athletic/5681984/2024/08/07/dynasty-draft-flip-team-fantasy-football/
+
 **A Deal That Could Save Venezuela**\
 `A power-sharing deal may be the best way out of Venezuela’s political crisis.`\
 https://nytimes.com/2024/08/07/opinion/venezuela-deal-political-crisis.html
