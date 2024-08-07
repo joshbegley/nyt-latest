@@ -1,3 +1,7 @@
+**Vance Attacks Walz’s Military Record, Accusing Him of Avoiding a Tour in Iraq**\
+`Senator JD Vance of Ohio also claimed Gov. Tim Walz of Minnesota had exaggerated his service record. Mr. Walz said a decision to retire and run for Congress came months before any notice of deployment.`\
+https://nytimes.com/2024/08/07/us/politics/vance-walz-military-record.html
+
 **Broncos quarterbacks on rookie chores, handling pressure and the ongoing QB race**\
 `Bo Nix said he has avoided outside input on Broncos QB competition: "Nobody has a higher standard for how I play than me."`\
 https://nytimes.com/athletic/5687257/2024/08/07/broncos-qb-race-nix-stidham/

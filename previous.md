@@ -18,8 +18,8 @@ https://nytimes.com/athletic/5687507/2024/08/07/team-usa-nigeria-olympic-womens-
 `Landscaped terraces, vintage cocktail bars and plush screening rooms — Manhattan’s hospitality scene revives the Gilded Age`\
 https://nytimes.com/2024/08/07/t-magazine/new-york-hotels-gilded-age.html
 
-**Vance Attacks Walz’s Military Record, Accusing Him of ‘Stolen Valor’**\
-`Senator JD Vance of Ohio claimed Gov. Tim Walz on Minnesota had exaggerated his service record and quit the Army National Guard to avoid being deployed to Iraq.`\
+**Vance Attacks Walz’s Military Record, Accusing Him of Avoiding a Tour in Iraq**\
+`Senator JD Vance of Ohio also claimed Gov. Tim Walz of Minnesota had exaggerated his service record. Mr. Walz said a decision to retire and run for Congress came months before any notice of deployment.`\
 https://nytimes.com/2024/08/07/us/politics/vance-walz-military-record.html
 
 **Christian Watson survives injury scare and more from Packers camp**\
