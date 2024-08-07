@@ -1,3 +1,7 @@
+**Book With Project 2025 Ties and JD Vance Foreword Is Delayed Until After Election**\
+`The book’s author is Kevin D. Roberts, the president of Heritage Foundation, which coordinated the right-wing policy blueprint that has come under fire from Democrats.`\
+https://nytimes.com/2024/08/07/us/politics/project-2025-book-jd-vance-delayed.html
+
 **Trump Dangles New Tax Cut Proposals With Real Political Appeal**\
 `The most recent and costliest of Mr. Trump’s ideas would end income taxes on Social Security benefits.`\
 https://nytimes.com/2024/08/07/business/economy/trump-tax-cuts.html
