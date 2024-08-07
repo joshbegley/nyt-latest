@@ -1,40 +1,40 @@
-**A Designer Inspired by Rock Music, the Architecture of Bridges and John Waters**\
-`The Hermès women’s wear artistic director Nadège Vanhée shares her creative touchstones.`\
-https://nytimes.com/2024/08/07/t-magazine/nadege-vanhee-hermes-inspirations.html
+**After privately hurting, Michigan's Donovan Edwards has his 'fire' back**\
+`After a frustrating start to 2023, Edwards hit a low point. But a strong finish and offseason have him ready to lead the Wolverines in 2024.`\
+https://nytimes.com/athletic/5677360/2024/08/07/michigan-wolverines-football-donovan-edwards/
 
-**My Grandmother’s Tortillas Were the Best. Try Them Yourself.**\
-`A little butter, honey and pickled chile de árbol turn these into the perfect snack.`\
-https://nytimes.com/2024/08/07/magazine/grandmothers-tortillas-recipe.html
+**What it's like to be a top-10 basketball recruit**\
+`The Athletic spent time with Meleek Thomas at Peach Jam to get a sense of what it's like to navigate the recruiting landscape.`\
+https://nytimes.com/athletic/5683599/2024/08/07/meleek-thomas-college-basketball-recruiting/
 
-**A Necklace After Yves Saint Laurent’s Own Heart**\
-`The sweetly shaped accessory was inspired by a longtime favorite of the house’s founder.`\
-https://nytimes.com/2024/08/07/t-magazine/saint-laurent-coeur-fetiche-heart-necklace.html
+**Fear Stalks Israel’s Communities on the Front Lines With Lebanon**\
+`As tensions again escalate with Hezbollah, Israelis face the prospect of another “lost year” in the evacuated north.`\
+https://nytimes.com/2024/08/07/world/middleeast/israel-lebanon-hezbollah.html
 
-**What Do Conspiracy Theorists Do When Proved Wrong? Double Down or Move On.**\
-`An outlandish idea that President Biden was dead or nearly dead was quickly refuted. Few of the accounts that had spread it online recanted.`\
-https://nytimes.com/2024/08/07/technology/biden-conspiracy-theories-misinformation.html
+**Stop Panicking About the Birthrate**\
+`We should focus on everyone’s welfare, not obsess about convincing more people to be parents.`\
+https://nytimes.com/2024/08/07/opinion/birthrate-child-tax-credit.html
 
-**How to Win a Zillion Blue Ribbons? Ask the State Fair All-Stars.**\
-`They’re the home-run heroes of cooking, baking and canning. Meet seven players who dominate the competitions season after season.`\
-https://nytimes.com/2024/08/07/dining/state-fair-food.html
+**Tim Walz Is an Absolute Balm for My Country Heart**\
+`The Minnesota governor fills a decades-long geographic messaging gap for Democrats.`\
+https://nytimes.com/2024/08/07/opinion/tim-walz-prairie-populist.html
 
-**Read Your Way Around Denver**\
-`Much of Colorado’s literature is about the flow of people whose imaginations, like the novelist Peter Heller’s, were ignited by myths of unbridled freedom. He recommends some favorites.`\
-https://nytimes.com/2024/08/07/books/denver-colorado-books.html
+**How Trump and Black Lives Matter Combined to Change American Politics**\
+`While liberals moved decisively leftward from 2012 to 2020, a counter phenomenon was taking place on the right.`\
+https://nytimes.com/2024/08/07/opinion/trump-harris-black-lives-matter.html
 
-**Before Reality Became Debatable, There Was ‘The Blair Witch Project’**\
-`Twenty-five years ago, the indie horror blockbuster compelled audiences to ask, “Was that real?” The question now permeates our age of misinformation.`\
-https://nytimes.com/2024/08/07/movies/blair-witch-project-reality-anniversary.html
+**What’s Behind All the Stock Market Drama?**\
+`Analysts and investors have many explanations, including worries about the health of the U.S. economy and shifts in the value of the Japanese yen.`\
+https://nytimes.com/2024/08/07/business/stock-market-drama-explained.html
 
-**Nguyen: 49ers, Eagles, Dolphins lead NFL skill position group top-10 rankings**\
-`Some teams' combinations of running backs, wide receivers and tight ends stand out for complementing each other so well.`\
-https://nytimes.com/athletic/5662102/2024/08/07/nfl-top-10-skill-position-groups/
+**It’s Unclear What Kamala Harris Thinks About Corporate Power. But the Signs Are Worrisome.**\
+`Take a look at the people around her.`\
+https://nytimes.com/2024/08/07/opinion/kamala-harris-google-antitrust.html
 
-**2025 world juniors roster projections: Pronman, Wheeler and Bultman make their picks**\
-`Who will represent Canada, USA, Sweden and Finland? The Athletic's Corey Pronman, Scott Wheeler and Max Bultman have ideas.`\
-https://nytimes.com/athletic/5683795/2024/08/07/world-juniors-roster-projection-2025/
+**To Avoid a Recession, Consumer Spending Is Key**\
+`It has powered the economic recovery from the pandemic shock. Now wallets are thinner, and some businesses are feeling the difference.`\
+https://nytimes.com/2024/08/07/business/economy/recession-consumer-spending.html
 
-**F1 midseason driver rankings: Young drivers ascend while veterans fight back**\
-`It's not quite a changing of the guard, but this F1 season has seen a youth movement rise to challenge the sport's best drivers. `\
-https://nytimes.com/athletic/5682586/2024/08/07/f1-drivers-midseason-rankings/
+**The Secret to Debbie Harry’s Style**\
+`For a new collection with the brand Wildfang, the Blondie singer took inspiration from a personal wardrobe she cultivated by dressing “as daring as you could.”`\
+https://nytimes.com/2024/08/07/style/debbie-harry-wildfang.html
 
