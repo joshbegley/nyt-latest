@@ -1,3 +1,7 @@
+**Harris and Walz Hold First Campaign Rally Together**\
+`Vice President Kamala Harris and her newly announced running mate, Gov. Tim Walz of Minnesota, went on the attack against the Trump-Vance Republican ticket during a raucous rally in Philadelphia.`\
+https://nytimes.com/video/us/politics/100000009615583/harris-walz-campaign-rally.html
+
 **Astros promote Zach Dezenzo, taking a page from the Rangers' playbook**\
 `Dezenzo is up to provide a spark for the struggling Astros offense, similar to what the Rangers needed last year from call-up Evan Carter.`\
 https://nytimes.com/athletic/5685581/2024/08/06/astros-promote-zach-dezenzo-rangers-evan-carter/
