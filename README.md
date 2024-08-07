@@ -1,3 +1,7 @@
+**Connie Chiume, 72, Dies; ‘Black Panther’ Actor Bridged S. Africa Eras**\
+`Her career began during apartheid and outlived it, reaching a personal milestone in a blockbuster movie and its sequel.`\
+https://nytimes.com/2024/08/07/world/africa/connie-chiume-dead.html
+
 **As War in Ukraine Persists, Where Is a Conductor’s Red Line?**\
 `Teodor Currentzis, whose MusicAeterna receives funding from a Russian state bank, has eluded censure at the prestigious Salzburg Festival.`\
 https://nytimes.com/2024/08/07/arts/music/currentzis-conductor-ukraine-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/07/opinion/tim-walz-kamala-harris.html
 **Lincoln Center Taps Education Leader as Next President**\
 `Mariko Silver, a former president of Bennington College, will take the reins of the organization as it seeks to expand its audience and increase fund-raising.`\
 https://nytimes.com/2024/08/07/arts/music/lincoln-center-president-mariko-silver.html
-
-**The Windup: They were *this close* to history**\
-`Levi Weaver catches you up on league-wide news.`\
-https://nytimes.com/athletic/5686897/2024/08/07/framber-valdez-no-hitter-white-sox-streak-the-windup/
 
