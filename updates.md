@@ -1,3 +1,7 @@
+**Apple Workers Approve Contract at First Union Store in U.S.**\
+`The agreement raises wages roughly 10 percent over three years and guarantees benefits and severance pay.`\
+https://nytimes.com/2024/08/06/business/economy/apple-store-union-contract.html
+
 **2 Charged With Hate Crimes in Vandalism Aimed at Museum Officials**\
 `A group of vandals splattered red paint at the home of the Brooklyn Museum’s director and others. The institution has become a target of people opposed to the war in Gaza.`\
 https://nytimes.com/2024/08/06/nyregion/brooklyn-museum-hate-crimes-charged.html
