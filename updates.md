@@ -1,3 +1,19 @@
+**Mike Kehoe, Missouri’s Lieutenant Governor, Wins G.O.P. Primary for Governor**\
+`The winner of the Republican primary is likely to become Missouri’s next governor. But a ballot measure on abortion that is widely expected to appear in November could boost liberal turnout.`\
+https://nytimes.com/2024/08/06/us/mike-kehoe-missouris-lieutenant-governor-wins-gop-primary-for-governor.html
+
+**Patti Yasutake of ‘Star Trek’ and ‘Beef’ Dies at 70**\
+`Ms. Yasutake played Nurse Alyssa Ogawa in “Star Trek: The Next Generation.”`\
+https://nytimes.com/2024/08/06/arts/television/patti-yasutake-dead.html
+
+**How Kamala Harris Trusted Her Gut and Picked Tim Walz**\
+`The ambitious Josh Shapiro asked about his role as vice president. The battle-tested Mark Kelly was already seen as a third option. And the go-lucky Mr. Walz promised to do anything for the team.`\
+https://nytimes.com/2024/08/06/us/politics/harris-tim-walz-vp-pick.html
+
+**Bears 'Hard Knocks' takeaways: Caleb Williams the star, what they got right, wrong**\
+`Breaking down the first episode of the Bears on "Hard Knocks." Who stole the show? What was the most Chicago thing?`\
+https://nytimes.com/athletic/5685708/2024/08/06/bears-hard-knocks-episode-1-caleb-williams/
+
 **Incumbent Andrew Bailey Wins Republican Primary for Missouri A.G.**\
 `He and his challenger, Will Scharf, were both endorsed by former President Donald J. Trump.`\
 https://nytimes.com/2024/08/06/us/politics/andrew-bailey-missouri-attorney-general.html
