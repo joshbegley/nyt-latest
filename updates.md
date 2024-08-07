@@ -1,3 +1,11 @@
+**As Iran Braces for War, Its Citizens are Kept in the Dark**\
+`Iranians say they have not been told how to prepare should broad hostilities break out between their country and Israel.`\
+https://nytimes.com/2024/08/07/world/middleeast/iran-israel-war.html
+
+**Warm Air and Warm Oceans Power Storms Like Debby**\
+`The heating of the planet is increasing the amount of moisture in the atmosphere. That helps to load hurricanes and other storms with more water.`\
+https://nytimes.com/2024/08/07/climate/warm-air-oceans-power-storms.html
+
 **30 Months After Their Games Ended, U.S. Figure Skaters Get Golds**\
 `In a ceremony in Paris, the American team received the medals they won after the Russian team, featuring Kamila Valieva, was disqualified.`\
 https://nytimes.com/2024/08/07/world/olympics/30-months-after-their-games-ended-us-figure-skaters-get-golds.html
