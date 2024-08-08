@@ -1,3 +1,15 @@
+**Who will replace Pedro Grifol as White Sox manager?**\
+`For the third time since firing Rick Renteria after the 2020 season, the White Sox are looking for a new manager. What will they do?`\
+https://nytimes.com/athletic/5685410/2024/08/08/next-white-sox-manager-options-hire/
+
+**The Trial Judge Who Has to Clean Up the Supreme Court’s Mess**\
+`Judge Tanya Chutkan now has to determine which charges against Trump involved official acts, and which did not.`\
+https://nytimes.com/live/2024/08/07/opinion/thepoint/chutkan-trump-supreme-court
+
+**Scoop City: Aiyuk, Maye and other players to watch**\
+`Watch guide for the NFL preseason Week 1 games between the Panthers and Patriots, Lions and Giants.`\
+https://nytimes.com/athletic/5688930/2024/08/08/nfl-preseason-week-1-scoop-city/
+
 **WADA, USADA clash over American agency's use of 'undercover agents' to catch drug cheats**\
 `The World Anti-Doping Agency and United States Anti-Doping Agency are at odds over a USADA plan to root out drug cheats.`\
 https://nytimes.com/athletic/5688595/2024/08/08/wada-usada-undercover-agents-doping/
