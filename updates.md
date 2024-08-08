@@ -1,3 +1,11 @@
+**Americans’ Struggle with Mental Health**\
+`We explore why rates of anxiety and depression are higher than they were before the pandemic.`\
+https://nytimes.com/2024/08/08/briefing/mental-health-anxiety-depression.html
+
+**Brown 'surprised' by McLaren's F1 success this season**\
+`McLaren chief executive Zak Brown says he has been &#8220;surprised&#8221; by the team&#8217;s return to Formula One frontrunner status in 2024, as they sit just 42 points behind Red Bull in the constructors&#8217; standings.`\
+https://nytimes.com/athletic/5688442/2024/08/08/zak-brown-mclaren-f1/
+
 **Russian Official Declares State of Emergency Near Border as Ukraine Advances**\
 `The local government in Russia declared a state of emergency as military analysts reported that Ukrainian forces had advanced several miles across the border.`\
 https://nytimes.com/2024/08/08/world/europe/russia-border-ukraine.html
