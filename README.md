@@ -1,3 +1,15 @@
+**Kyle Dake chases Olympic wrestling gold, helped by a bond with an old friend**\
+`As Kyle Dake tries for another Olympic medal, he's got a good friend on his side — former rival and 2020 Olympic gold medalist David Taylor.`\
+https://nytimes.com/athletic/5643036/2024/08/08/kyle-dake-david-taylor-olympics-wrestling-paris/
+
+**After the Fire, Thousands of Lahaina Residents Are Trying to Rebuild Their Lives Elsewhere**\
+`Many struggled to find housing and work after the wildfire destroyed the seaside town on Maui last year. But they have faced new hardships.`\
+https://nytimes.com/2024/08/08/us/maui-lahaina-residents-move.html
+
+**Trump says he will hold a news conference at Mar-a-Lago on Thursday.**\
+`By Maggie Haberman`\
+https://nytimes.com/live/2024/08/08/us/harris-trump-election/trump-says-he-will-hold-a-news-conference-at-mar-a-lago-on-thursday
+
 **Chargers training camp, Day 13: Players, coaches eager for live action**\
 `Tre’Mon Morris-Brash is among the Chargers' rookies who has flashed and the team is excited to see against the Seahawks on Saturday.`\
 https://nytimes.com/athletic/5688255/2024/08/08/chargers-training-camp-preseason-seahawks/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/08/08/world/israel-iran-hamas-gaza-war/netanyahu-t
 **Here’s the latest on the presidential race.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/08/08/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Live Election Updates: Rollout of Democratic Ticket to Turn West on Friday**\
-`The Harris and Trump campaigns canceled events in the Southeast because of a tropical storm, but Donald J. Trump said he would hold a news conference Thursday afternoon in Florida.`\
-https://nytimes.com/live/2024/08/08/us/harris-trump-election
-
-**What’s Driving the Topsy-Turvy Markets**\
-`A key jobless claims report could join a hiring slowdown, corporate earnings, growth worries in weighing on investors during an August to forget.`\
-https://nytimes.com/2024/08/08/business/dealbook/markets-jobless-claims-recession.html
-
-**Are We Happy Yet?**\
-`The American obsession with individually defining, tracking and boosting happiness may be making us miserable.`\
-https://nytimes.com/2024/08/08/opinion/happiness-tracking-america.html
 
