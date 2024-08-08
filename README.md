@@ -1,3 +1,7 @@
+**Here’s the latest on the tropical storm.**\
+`The tropical storm spent much of Wednesday meandering off The Atlantic coast, regaining its strength from the warm waters below before making another pass over land.`\
+https://nytimes.com/live/2024/weather/debby-storm-forecast/heres-the-latest-on-the-tropical-storm
+
 **Tornado Warning Issued in Parts of Central North Carolina**\
 `The National Weather Service said flying debris from a “large and extremely dangerous” tornado would be deadly for those not taking shelter.`\
 https://nytimes.com/2024/08/08/weather/tornado-warning-north-carolina-debby.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5687531/2024/08/08/villa-athletic-bilbao-pre-season
 **Padres show 'fighting spirit' to win a sixth straight series**\
 `San Diego overcame errors and adversity against Pittsburgh — hitting three momentum-swinging home runs — in an extra-inning comeback win.`\
 https://nytimes.com/athletic/5687349/2024/08/08/padres-win-sixth-straight-series/
-
-**Word of the Day: fatalistic**\
-`This word has appeared in 39 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/08/08/learning/word-of-the-day-fatalistic.html
 
