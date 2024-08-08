@@ -1,3 +1,7 @@
+**Giants manager Bob Melvin takes no chances in must-win game at Nationals Park**\
+`This is a manager and coaching staff that must obsess with gaining every marginal advantage the rest of the way.`\
+https://nytimes.com/athletic/5688245/2024/08/08/giants-nationals-bob-melvin-heliot-ramos-camilo-doval/
+
 **In Detroit, Harris confronts the divisions roiling Democrats over the war in Gaza.**\
 `By Erica L. Green, Kellen Browning and Jonathan Weisman`\
 https://nytimes.com/live/2024/08/07/us/harris-trump-election/in-detroit-harris-confronts-the-divisions-roiling-democrats-over-the-war-in-gaza
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5651108/2024/08/08/fantasy-premier-league-best-budg
 **How Mikel Arteta rebuilt Arsenal in his own image**\
 `As Arteta prepares to begin his fifth full season in charge, this is how he has re-established Arsenal as one of the country's leading clubs`\
 https://nytimes.com/athletic/5490775/2024/08/08/mikel-arteta-arsenal-rebuild/
-
-**'I'd have reacted far worse!': Danny Mills on athlete son George's scrap at Paris Olympics**\
-`Mills Junior reacted angrily after taking a fall in the men's 5,000m heats in Paris - and his father can sympathise`\
-https://nytimes.com/athletic/5683808/2024/08/08/olympics-george-mills-danny-leeds-united/
 

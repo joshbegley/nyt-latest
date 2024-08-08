@@ -1,3 +1,7 @@
+**Giants manager Bob Melvin takes no chances in must-win game at Nationals Park**\
+`This is a manager and coaching staff that must obsess with gaining every marginal advantage the rest of the way.`\
+https://nytimes.com/athletic/5688245/2024/08/08/giants-nationals-bob-melvin-heliot-ramos-camilo-doval/
+
 **In Detroit, Harris confronts the divisions roiling Democrats over the war in Gaza.**\
 `By Erica L. Green, Kellen Browning and Jonathan Weisman`\
 https://nytimes.com/live/2024/08/07/us/harris-trump-election/in-detroit-harris-confronts-the-divisions-roiling-democrats-over-the-war-in-gaza
