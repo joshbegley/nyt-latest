@@ -1,3 +1,11 @@
+**Sterling targeting England recall under new head coach**\
+`Chelsea forward Raheem Sterling says he wants to play for England under the team’s new coach after almost two years in the wilderness under previous manager Gareth Southgate.`\
+https://nytimes.com/athletic/5688878/2024/08/08/raheem-sterling-england-chelsea/
+
+**Donald Trump, Prince of Self-Pity**\
+`There is no end to his hallucinatory disadvantages.`\
+https://nytimes.com/2024/08/08/opinion/donald-trump-self-pity.html
+
 **A Republican Governor’s Plea to Stop the Personal Attacks**\
 `Responses to an essay by Gov. Christopher Sununu of New Hampshire. Also: “Weird” as a campaign epithet; Cori Bush’s defeat; famine in Sudan; the 1964 World’s Fair.`\
 https://nytimes.com/2024/08/08/opinion/republicans-attacks.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5688941/2024/08/08/leicester-brighton-buonanotte-tr
 **Harris Responds to Pro-Palestinian Protesters at Michigan Rally**\
 `Protesters interrupted Kamala Harris’s speech at a rally in Detroit.`\
 https://nytimes.com/video/us/politics/100000009618743/harris-rally-gaza-protesters.html
-
-**Benjamin St-Juste is keeping a close eye on his sister-in-law at Olympic Games**\
-`Anna Hall, who is competing in the heptathlon, is the sister of St-Juste's wife, Julia. `\
-https://nytimes.com/athletic/5688141/2024/08/08/benjamin-st-juste-anna-hall-paris-olympic-games/
-
-**Pochettino a top target to become USMNT coach: Sources**\
-`Former Tottenham and Chelsea head coach Mauricio Pochettino is a top target for the U.`\
-https://nytimes.com/athletic/5689027/2024/08/08/mauricio-pochettino-usmnt-coach/
 
