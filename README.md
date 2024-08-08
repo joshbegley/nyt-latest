@@ -1,3 +1,7 @@
+**‘Saturday Night Live’: Meet the Candidates**\
+`Steve Martin is out, and the roles of Kamala Harris and Donald Trump seem settled. But the internet has been busy dream-casting the rest of the “S.N.L.” election ticket.`\
+https://nytimes.com/2024/08/08/arts/television/snl-2024-election-harris-trump.html
+
 **“Democrats are really the radical ones on this, because they’re allowed to do abortion on the eighth and ninth month, and even after birth.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/08/08/us/harris-trump-election/democrats-are-really-the-radical-ones-on-this-because-theyre-allowed-to-do-abortion-on-the-eighth-and-ninth-month-and-even-after
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/08/technology/elon-musk-x-advertisers-boycott.html
 **“She couldn’t pass her bar exam.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/08/08/us/harris-trump-election/she-couldnt-pass-her-bar-exam
-
-**France beats Germany, heading to gold medal game**\
-`France defeated Germany 73-69 in a semifinal win Thursday night at Bercy Arena.`\
-https://nytimes.com/athletic/5689547/2024/08/08/france-germany-olympics-basketball/
 
