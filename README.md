@@ -1,3 +1,11 @@
+**Team USA, their Olympic hopes teetering, turned to an unlikely place — defense**\
+`PARIS — The gold medal — the reason why USA Basketball is what it is, and does things the way it does — was slipping away.`\
+https://nytimes.com/athletic/5690134/2024/08/08/us-mens-basketball-olympics-defense-serbia/
+
+**A.C.L.U. Must Reinstate Employee Falsely Accused of Racist Language, Court Rules**\
+`The case put the legal group on the spot for taking positions on free speech and workers’ rights that seemed at odds with its mission.`\
+https://nytimes.com/2024/08/08/us/politics/aclu-employee-racism-false-accusation.html
+
 **Tim Walz and the Weird Politics of Free School Lunches**\
 `Another reminder that MAGA isn’t “populist.”`\
 https://nytimes.com/2024/08/08/opinion/tim-walz-school-lunch.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/08/sports/football/duane-thomas-dead.html
 **Brooklyn Jail Is Too ‘Inhumane’ for 75-Year-Old Tax Scammer, Judge Says**\
 `A federal judge said he would sentence a man to house arrest instead of jail time if the Federal Bureau of Prisons sent him to the long-troubled Metropolitan Detention Center.`\
 https://nytimes.com/2024/08/08/nyregion/tax-fraud-mdc-brooklyn.html
-
-**The Darkness on the Edge of Trump**\
-`The former president’s deliberately frightening news conference felt like a tour of Mordor.`\
-https://nytimes.com/live/2024/08/07/opinion/thepoint/trump-press-conference-doom
-
-**Sydney McLaughlin breaks her own 400-meter hurdle record. Again.**\
-`Sydney McLaughlin-Levrone broke her own world record on her way to winning gold for the United States in the 400 meter hurdles.`\
-https://nytimes.com/2024/08/08/world/olympics/sydney-mclaughlin-levrone-400-meter-hurdles.html
 
