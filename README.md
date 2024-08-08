@@ -1,3 +1,11 @@
+**3 Columbia University Deans Who Sent Insulting Texts Have Resigned**\
+`The deans were put on leave earlier in the summer after sending messages that disparaged Jewish panelists. A fourth dean, who is tenured, will remain at the university.`\
+https://nytimes.com/2024/08/08/nyregion/columbia-university-deans-resign-text-messages-antisemitism.html
+
+**Wembanyama cements win as France advances to gold medal game**\
+`Wembanyama, taking part in his first Games for his native country, has been an integral part in leading France to the gold medal game.`\
+https://nytimes.com/athletic/5689588/2024/08/08/victor-wembanyama-france-germany-basketball-semifinal-olympics/
+
 **Third Death Is Tied to Listeria, Health Officials Say**\
 `The death in Virginia came amid a nationwide outbreak linked to Boar’s Head deli meats. More than 40 people have been hospitalized.`\
 https://nytimes.com/2024/08/08/us/listeria-outbreak-third-death.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/08/us/politics/iranians-missiles-houthi-rebels.html
 **Trump Falsely Claims No One Died in Jan. 6 Capitol Attack**\
 `In fact, four of his supporters died in the crowd that day, and others died within days.`\
 https://nytimes.com/2024/08/08/us/politics/trump-jan-6-deaths.html
-
-**No Aaron Rodgers, but Jets still dominate Commanders in joint practice**\
-`The Tyrod Taylor-to-Garrett Wilson connection was the story of the day on a rainy Thursday.`\
-https://nytimes.com/athletic/5689602/2024/08/08/aaron-rodgers-out-jets-commanders-joint-practice-observations/
-
-**Swifties in Vienna Cry, Commiserate and Try to Shake It Off**\
-`Taylor Swift fans from around the world grappled with disappointment and fear after a terrorism plot derailed the Vienna dates of the Eras Tour.`\
-https://nytimes.com/2024/08/08/world/europe/taylor-swift-eras-tour-vienna-reactions.html
 
