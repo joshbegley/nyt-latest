@@ -1,3 +1,7 @@
+**Bangladesh to Swear in Interim Government, After Days of Chaos**\
+`Muhammad Yunus, set to lead the country temporarily, faces the immediate and daunting task of restoring order to daily life and to the economy.`\
+https://nytimes.com/2024/08/08/world/asia/muhammad-yunus-bangladesh-swearing-in.html
+
 **Giants manager Bob Melvin takes no chances in must-win game at Nationals Park**\
 `This is a manager and coaching staff that must obsess with gaining every marginal advantage the rest of the way.`\
 https://nytimes.com/athletic/5688245/2024/08/08/giants-nationals-bob-melvin-heliot-ramos-camilo-doval/

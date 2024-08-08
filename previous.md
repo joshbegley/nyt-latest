@@ -1,3 +1,7 @@
+**Bangladesh to Swear in Interim Government, After Days of Chaos**\
+`Muhammad Yunus, set to lead the country temporarily, faces the immediate and daunting task of restoring order to daily life and to the economy.`\
+https://nytimes.com/2024/08/08/world/asia/muhammad-yunus-bangladesh-swearing-in.html
+
 **Giants manager Bob Melvin takes no chances in must-win game at Nationals Park**\
 `This is a manager and coaching staff that must obsess with gaining every marginal advantage the rest of the way.`\
 https://nytimes.com/athletic/5688245/2024/08/08/giants-nationals-bob-melvin-heliot-ramos-camilo-doval/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5683985/2024/08/08/romeo-lavia-chelsea-injury-recov
 **FPL: The best budget options for the 2024-25 season**\
 `Picking the best budget options can make or break your FPL squad - here are the most attractive propositions for next season`\
 https://nytimes.com/athletic/5651108/2024/08/08/fantasy-premier-league-best-budget-options-2024-25/
-
-**How Mikel Arteta rebuilt Arsenal in his own image**\
-`As Arteta prepares to begin his fifth full season in charge, this is how he has re-established Arsenal as one of the country's leading clubs`\
-https://nytimes.com/athletic/5490775/2024/08/08/mikel-arteta-arsenal-rebuild/
 
