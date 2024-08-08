@@ -1,3 +1,15 @@
+**ABC Says Trump and Harris Have Agreed to Debate on Sept. 10**\
+`The ABC anchors David Muir and Linsey Davis will moderate the candidates’ first face-to-face encounter since Kamala Harris entered the race.`\
+https://nytimes.com/2024/08/08/business/media/trump-harris-abc-debate.html
+
+**Djokovic withdraws from Cincinnati Open after Olympic gold**\
+`Novak Djokovic has withdrawn from this month&#8217;s Cincinnati Open.`\
+https://nytimes.com/athletic/5689972/2024/08/08/novak-djokovic-cincinnati-open-withdrawal/
+
+**U.S. men escape Serbia as Steph Curry takes over**\
+`For much of this Olympic semifinal, it looked like the Americans’ reign was over.`\
+https://nytimes.com/athletic/5689936/2024/08/08/usa-basketball-serbia-olympics/
+
 **Friday Briefing: Trump and Harris Agreed to Debate**\
 `Plus, how Olympians get paid.`\
 https://nytimes.com/2024/08/08/briefing/trump-harris-ukraine-russia-lebanon-gaza.html
