@@ -1,3 +1,11 @@
+**Sterling targeting England recall under new head coach**\
+`Chelsea forward Raheem Sterling says he wants to play for England under the team’s new coach after almost two years in the wilderness under previous manager Gareth Southgate.`\
+https://nytimes.com/athletic/5688878/2024/08/08/raheem-sterling-england-chelsea/
+
+**Donald Trump, Prince of Self-Pity**\
+`There is no end to his hallucinatory disadvantages.`\
+https://nytimes.com/2024/08/08/opinion/donald-trump-self-pity.html
+
 **A Republican Governor’s Plea to Stop the Personal Attacks**\
 `Responses to an essay by Gov. Christopher Sununu of New Hampshire. Also: “Weird” as a campaign epithet; Cori Bush’s defeat; famine in Sudan; the 1964 World’s Fair.`\
 https://nytimes.com/2024/08/08/opinion/republicans-attacks.html
