@@ -1,3 +1,19 @@
+**Will the White Sox ever be favored again? A tortured fan digs into the numbers**\
+`The record-tying losing streak for the White Sox is over, but this team will still be an underdog almost every game the rest of the season.`\
+https://nytimes.com/athletic/5687761/2024/08/08/white-sox-losing-streak-odds/
+
+**Pepe announces retirement from professional football**\
+`Former Real Madrid defender Pepe has announced his retirement from professional football.`\
+https://nytimes.com/athletic/5689180/2024/08/08/pepe-retires-football-portugal/
+
+**Art Gallery Shows to See Right Now**\
+`Jillian Steinhauer covers Maria Prymachenko at the Ukrainian Museum, Khadim Ali  at Aicon and Jody Wood at Open Source Gallery.`\
+https://nytimes.com/2024/08/08/arts/design/art-gallery-shows-to-see-right-now.html
+
+**Here’s where the most rain from Debby has fallen in each state.**\
+`By Judson Jones`\
+https://nytimes.com/live/2024/weather/debby-storm-forecast/heres-where-the-most-rain-from-debby-has-fallen-in-each-state
+
 **Quincy Wilson, 16, expected to make Olympic debut Friday**\
 `With his first step, he'll become the youngest American male track athlete in Olympic history.`\
 https://nytimes.com/athletic/5689130/2024/08/08/quincy-wilson-youngest-male-track-olympian/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5688878/2024/08/08/raheem-sterling-england-chelsea/
 **Donald Trump, Prince of Self-Pity**\
 `There is no end to his hallucinatory disadvantages.`\
 https://nytimes.com/2024/08/08/opinion/donald-trump-self-pity.html
-
-**A Republican Governor’s Plea to Stop the Personal Attacks**\
-`Responses to an essay by Gov. Christopher Sununu of New Hampshire. Also: “Weird” as a campaign epithet; Cori Bush’s defeat; famine in Sudan; the 1964 World’s Fair.`\
-https://nytimes.com/2024/08/08/opinion/republicans-attacks.html
-
-**The Bounce: Can Nikola Jokić keep Team USA from gold?**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5689016/2024/08/08/nikola-jokic-serbia-team-usa-rudy-gobert-canda-nba-the-bounce/
-
-**The Windup: All-time-bad team fires manager**\
-`Stephen Nesbitt catches you up on league-wide news.`\
-https://nytimes.com/athletic/5689150/2024/08/08/white-sox-fire-pedro-grifol-bobby-witt-aaron-judge-mvp-the-windup/
-
-**Bills QB Josh Allen to start preseason opener vs. Bears**\
-`PITTSFORD, N.`\
-https://nytimes.com/athletic/5688996/2024/08/08/bills-josh-allen-preseason-starter/
 
