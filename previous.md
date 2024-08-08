@@ -1,3 +1,15 @@
+**In a Swampy North Carolina Town, Floods Are ‘Just Getting Tiresome’**\
+`The roughly 1,600 residents of Bladenboro, N.C., have gotten used to storm systems inundating their streets. And the floods just keep coming.`\
+https://nytimes.com/2024/08/08/weather/debby-floods-bladenboro-north-carolina.html
+
+**Rising Waters From Tropical Storm Debby Put North Carolina Waste Sites at Risk**\
+`Tropical Storm Debby brought intense rainfall and flooding threats to North Carolina on Thursday, highlighting the vulnerability of hog lagoons and wastewater treatment plants.`\
+https://nytimes.com/2024/08/08/climate/hog-lagoon-flooding-north-carolina.html
+
+**46 Convictions Thrown Out After Detective Lies Under Oath**\
+`The office of the Queens district attorney, Melinda Katz, had reviewed the cases after the detective, James Donovan, pleaded guilty to perjury last year.`\
+https://nytimes.com/2024/08/08/nyregion/convictions-vacated-nypd-detective.html
+
 **Why Chris Foerster wants Dominick Puni and 49ers' top O-line to start in Tennessee**\
 `To make room for a veteran receiver and safety, the 49ers put pass rusher Drake Jackson on the reserve/PUP list, ending his 2024 season.`\
 https://nytimes.com/athletic/5690029/2024/08/08/49ers-titans-preseason-starters-offensive-line/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5690015/2024/08/08/usa-france-olympics-gold-medal-b
 **Maine Will Vote on a New State Flag**\
 `A state committee selected a contest winner from more than 400 submissions. The Chuck Norris flag didn’t make the cut.`\
 https://nytimes.com/2024/08/08/style/main-state-flag-contest.html
-
-**Trump Tries to Wrestle Back Attention at Mar-a-Lago News Conference**\
-`In an hourlong exchange with reporters, the former president criticized Vice President Kamala Harris for not doing the same, insulted her intelligence and boasted about the size of his rallies.`\
-https://nytimes.com/2024/08/08/us/politics/trump-press-conference-mar-a-lago.html
-
-**Noah Lyles Wins Bronze in 200 Meters, Then Reveals He Has Covid**\
-`Lyles said he started feeling ill two days ago and knew it was more than just soreness from winning the 100. In Paris, there are no testing requirements, and national governing bodies develop their own protocols.`\
-https://nytimes.com/2024/08/08/world/olympics/noah-lyles-wins-bronze-in-200-meters-then-reveals-he-has-covid.html
-
-**Deadly Tornado Damages School in North Carolina**\
-`One of several small tornadoes spawned by Tropical Storm Debby killed a man and damaged a school in Lucama, N.C.`\
-https://nytimes.com/video/weather/100000009618540/tornado-storm-debby-north-carolina.html
 
