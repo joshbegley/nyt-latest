@@ -1,6 +1,6 @@
 **William Osula to Newcastle United: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500 series, we look at William Osula's move to Newcastle United.`\
-https://nytimes.com/athletic/5674903/2024/08/08/william-osula-to-newcastle-united-the-athletic-500-transfer-ratings/
+https://nytimes.com/athletic/5674903/2024/08/08/william-osula-newcastle-analysis-rating/
 
 **Vibes, Polls and Definitions of the Harris Candidacy**\
 `Trump campaign staffers may be able to define her if she doesn’t beat them to the punch.`\
