@@ -1,3 +1,27 @@
+**Cashing In on Her Cultural Influence**\
+`Beverly Nguyen, a stylist, editor and merchant, has become a new soft power broker in New York.`\
+https://nytimes.com/2024/08/08/style/beverly-nguyen-new-york-culture.html
+
+**‘Borderlands’ Review: Shoot First, Ask Questions Never**\
+`In Eli Roth’s caper movie, based on the best-selling video game franchise, Cate Blanchett plays a bounty hunter who is tasked with finding a tycoon’s daughter.`\
+https://nytimes.com/2024/08/08/movies/borderlands-review.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/08/crosswords/spelling-bee-forum.html
+
+**How an Instagram-Perfect Life in the Hamptons Ended in Tragedy**\
+`Candice and Brandon Miller showed the public a world of glittering parties and vacations. The money to sustain it did not exist.`\
+https://nytimes.com/2024/08/08/nyregion/brandon-miller-suicide-debt.html
+
+**7 Years After ‘Summer of Hell,’ the Subway Is Approaching Another Crisis**\
+`The suspension of congestion pricing has put off critically needed repairs to New York City’s transit network. Experts say the system hangs by a thread.`\
+https://nytimes.com/2024/08/08/nyregion/subway-mta-finances-congestion-pricing.html
+
+**Signs of improvement from Aston Villa as an uncertain pre-season nears its conclusion**\
+`Unai Emery has revamped his Champions League-bound squad but defensive issues and a lack of depth in key areas remain`\
+https://nytimes.com/athletic/5687531/2024/08/08/villa-athletic-bilbao-pre-season-uncertainty/
+
 **Padres show 'fighting spirit' to win a sixth straight series**\
 `San Diego overcame errors and adversity against Pittsburgh — hitting three momentum-swinging home runs — in an extra-inning comeback win.`\
 https://nytimes.com/athletic/5687349/2024/08/08/padres-win-sixth-straight-series/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5688234/2024/08/08/jorge-soler-chris-sale-braves/
 **Bangladesh to Swear In Interim Government, After Days of Chaos**\
 `Muhammad Yunus, set to lead the country temporarily, faces the immediate and daunting task of restoring order to daily life and to the economy.`\
 https://nytimes.com/2024/08/08/world/asia/muhammad-yunus-bangladesh-swearing-in.html
-
-**Giants manager Bob Melvin takes no chances in must-win game at Nationals Park**\
-`This is a manager and coaching staff that must obsess with gaining every marginal advantage the rest of the way.`\
-https://nytimes.com/athletic/5688245/2024/08/08/giants-nationals-bob-melvin-heliot-ramos-camilo-doval/
-
-**In Detroit, Harris confronts the divisions roiling Democrats over the war in Gaza.**\
-`By Erica L. Green, Kellen Browning and Jonathan Weisman`\
-https://nytimes.com/live/2024/08/07/us/harris-trump-election/harris-uncommitted-michigan
-
-**Running back roundtable: The Top 5 overall, 'dead zone' faves, the next De'Von Achane and more**\
-`The Athletic fantasy football crew weigh in on the running back position, sharing their Top 5 rankings, "dead zone" favorites and more.`\
-https://nytimes.com/athletic/5687634/2024/08/08/fantasy-football-2024-running-back-roundtable-top5/
-
-**Manchester United in 2024-25: Anticipating potential problems**\
-`United are a club in transition under Erik ten Hag. They should improve next season - but other problems might resurface…`\
-https://nytimes.com/athletic/5492115/2024/08/08/manchester-united-problems-2024-25/
-
-**Why Solanke suits Spurs and Postecoglou's style: Shot heavy, low passing & box focus**\
-`Dominic Solanke is of interest to Tottenham — this is why he would suit them to a tee`\
-https://nytimes.com/athletic/5686568/2024/08/08/dominic-solanke-tottenham-analysis/
-
-**Why Liverpool's transfer priority is a No 6 and what the pursuit of Zubimendi reveals**\
-`Why Liverpool decided they need a No 6 and what kind of player they want`\
-https://nytimes.com/athletic/5687159/2024/08/08/liverpool-no-6-zubimendi-endo-mac-allister-slot/
 
