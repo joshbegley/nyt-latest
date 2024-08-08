@@ -1,3 +1,15 @@
+**Israeli strikes near two school compounds kill at least 16, Gazan officials say.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/08/08/world/israel-iran-hamas-gaza-war/israeli-strikes-near-two-school-compounds-kill-at-least-16-gazan-officials-say
+
+**“She was the border czar 100 percent. And all of a sudden, for the last few weeks, she’s not the border czar anymore. Like nobody ever said it.”**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/08/08/us/harris-trump-election/she-was-the-border-czar-100-percent-and-all-of-a-sudden-for-the-last-few-weeks-shes-not-the-border-czar-anymore-like-nobody-ever
+
+**“Twenty million people came over the border in the last — during the Biden-Harris administration, 20 million people, and it could be very much higher than that.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/08/us/harris-trump-election/fact-check-trump-border
+
 **To Team Trump, Harris’s ‘Not Going Back’ Promise Will Prove a Big Mistake**\
 `The race has been upended with the replacement of President Biden. But the Trump team said Thursday morning that “the fundamentals of the race have not changed.”`\
 https://nytimes.com/2024/08/08/us/politics/trump-harris-strategy.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5651561/2024/08/08/blues-drew-bannister-coach-offse
 **The Barber Will See You Now. The World Will See You Next.**\
 `At the Olympic Village, cuts, styles and manicures are free. The benefits, the athletes say, are priceless.`\
 https://nytimes.com/2024/08/08/world/olympics/athletes-village-hair-salon.html
-
-**Bogarde close to agreeing new Villa contract**\
-`Lamare Bogarde is close to finalising a new long-term contract at Aston Villa.`\
-https://nytimes.com/athletic/5689485/2024/08/08/lamare-bogarde-aston-villa-contract/
-
-**Where (and How) Americans Are Taking Advantage of Clean Energy Tax Credits**\
-`Households claimed more than $8 billion in climate-friendly tax credits last year, according to new data. Here’s who benefited and where.`\
-https://nytimes.com/interactive/2024/08/08/climate/tax-credits-solar-panels-home-efficiency.html
-
-**How Tim Walz’s Time in the House Paved the Way for His Ascent**\
-`The congressional voting record of the Democrat nominee for vice president shows his liberal streak, but with a deference to a conservative district’s needs.`\
-https://nytimes.com/2024/08/08/us/politics/tim-walz-house-history.html
 
