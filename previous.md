@@ -1,3 +1,7 @@
+**Thread Component**\
+`Christopher Youngs’s theme spotlights one of the toughest types of clues.`\
+https://nytimes.com/2024/08/07/crosswords/daily-puzzle-2024-08-08.html
+
 **Tour Tickets? Swifties Crave a Presidential Endorsement.**\
 `Taylor Swift’s coveted support went to President Biden in 2020. A shadowy figure in an Instagram photo led some fans to make the leap that she will champion Kamala Harris.`\
 https://nytimes.com/2024/08/07/arts/music/taylor-swift-kamala-harris.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5687861/2024/08/07/giants-lions-joint-practices-fig
 **Four takeaways on Mark Shapiro's assessment of a disappointing Blue Jays' season**\
 `Shapiro plans to have a contending club in 2025, though he didn't commit firmly to a direction. “It's important to get better and win.”`\
 https://nytimes.com/athletic/5687849/2024/08/07/blue-jays-takeaways-mark-shapiro-season-assessment/
-
-**James Cook's ball security needs cleaning up, and more from Bills camp**\
-`Plus, offensive line depth continues to be a question, and Josh Allen's offense sputters after strong start.`\
-https://nytimes.com/athletic/5687304/2024/08/07/buffalo-bills-training-camp-james-cook-marquez-valdes-scantling/
 

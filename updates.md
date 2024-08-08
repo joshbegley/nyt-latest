@@ -1,3 +1,7 @@
+**Thread Component**\
+`Christopher Youngs’s theme spotlights one of the toughest types of clues.`\
+https://nytimes.com/2024/08/07/crosswords/daily-puzzle-2024-08-08.html
+
 **Tour Tickets? Swifties Crave a Presidential Endorsement.**\
 `Taylor Swift’s coveted support went to President Biden in 2020. A shadowy figure in an Instagram photo led some fans to make the leap that she will champion Kamala Harris.`\
 https://nytimes.com/2024/08/07/arts/music/taylor-swift-kamala-harris.html
