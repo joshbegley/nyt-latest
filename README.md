@@ -1,3 +1,7 @@
+**WADA, USADA clash over American agency's use of 'undercover agents' to catch drug cheats**\
+`The World Anti-Doping Agency and United States Anti-Doping Agency are at odds over a USADA plan to root out drug cheats.`\
+https://nytimes.com/athletic/5688595/2024/08/08/wada-usada-undercover-agents-doping/
+
 **Richarlison rules out Saudi Pro League move: 'The money is big but my dream is bigger'**\
 `Tottenham Hotspur forward Richarlison says he will not be leaving the club to join a Saudi Pro League club this summer.`\
 https://nytimes.com/athletic/5688872/2024/08/08/spurs-richarlison-saudi-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5688732/2024/08/08/katie-ledecky-nick-mead-flag-bea
 **Kyle Dake chases Olympic wrestling gold, helped by a bond with an old friend**\
 `As Kyle Dake tries for another Olympic medal, he's got a good friend on his side — former rival and 2020 Olympic gold medalist David Taylor.`\
 https://nytimes.com/athletic/5643036/2024/08/08/kyle-dake-david-taylor-olympics-wrestling-paris/
-
-**Burned Out of Lahaina, Thousands Try to Rebuild Lives Elsewhere**\
-`Many struggled to find housing and work after the wildfire destroyed the seaside town on Maui last year. But they have faced new hardships.`\
-https://nytimes.com/2024/08/08/us/maui-lahaina-residents-move.html
 
