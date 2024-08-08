@@ -1,3 +1,7 @@
+**William Osula to Newcastle United: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we look at William Osula's move to Newcastle United.`\
+https://nytimes.com/athletic/5674903/2024/08/08/william-osula-to-newcastle-united-the-athletic-500-transfer-ratings/
+
 **Vibes, Polls and Definitions of the Harris Candidacy**\
 `Trump campaign staffers may be able to define her if she doesn’t beat them to the punch.`\
 https://nytimes.com/2024/08/08/upshot/kamala-harris-polls-vibes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/08/opinion/climate-change-junk-food.html
 **What Do Uncommitted Voters Want From Kamala Harris?**\
 `The antiwar movement has emerged as a real political force.`\
 https://nytimes.com/live/2024/08/07/opinion/thepoint/uncommitted-voters-democratic-convention
-
-**Trump Says He’ll Focus on Issues. His Allies Are Not Holding Their Breath.**\
-`Donald J. Trump has attacked Kamala Harris with racially loaded insults and a new, confusing nickname. “I would stick to the price of groceries,” one Republican said.`\
-https://nytimes.com/2024/08/08/us/politics/trump-harris-campaign.html
 
