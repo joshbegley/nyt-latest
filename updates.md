@@ -1,3 +1,7 @@
+**What to Know About the Park Fire, the 4th Largest in California History**\
+`The rapidly spreading fire has consumed over 426,000 acres since it started burning in late July.`\
+https://nytimes.com/2024/08/08/us/park-fire-california.html
+
 **The New A.I. Deal: Buy Everything but the Company**\
 `Google, Microsoft and Amazon have made deals with A.I. start-ups for their technology and top employees, but have shied from owning the firms. Here’s why.`\
 https://nytimes.com/2024/08/08/technology/ai-start-ups-google-microsoft-amazon.html

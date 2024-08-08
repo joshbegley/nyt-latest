@@ -1,3 +1,7 @@
+**What to Know About the Park Fire, the 4th Largest in California History**\
+`The rapidly spreading fire has consumed over 426,000 acres since it started burning in late July.`\
+https://nytimes.com/2024/08/08/us/park-fire-california.html
+
 **The New A.I. Deal: Buy Everything but the Company**\
 `Google, Microsoft and Amazon have made deals with A.I. start-ups for their technology and top employees, but have shied from owning the firms. Here’s why.`\
 https://nytimes.com/2024/08/08/technology/ai-start-ups-google-microsoft-amazon.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5688872/2024/08/08/spurs-richarlison-saudi-transfer
 **Kieran Culkin, Bob Odenkirk and Bill Burr to Star in Broadway ‘Glengarry’**\
 `A revival of “Glengarry Glen Ross,” David Mamet’s classic play about unscrupulous real estate agents, is to open next spring.`\
 https://nytimes.com/2024/08/08/theater/glengarry-broadway-culkin-odenkirk-burr.html
-
-**White Sox fire manager Pedro Grifol**\
-`Grifol compiled a 89-190 record in less than two seasons at the helm on the South Side.`\
-https://nytimes.com/athletic/5672153/2024/08/08/white-sox-pedro-grifol-fired/
 
