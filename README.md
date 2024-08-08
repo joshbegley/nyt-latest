@@ -1,3 +1,7 @@
+**Jorge Soler's defensive miscues prove costly for Chris Sale and skidding Braves**\
+`Soler had exclusively served as DH all season before he was traded to the Braves and thrust into right-field duties.`\
+https://nytimes.com/athletic/5688234/2024/08/08/jorge-soler-chris-sale-braves/
+
 **Bangladesh to Swear in Interim Government, After Days of Chaos**\
 `Muhammad Yunus, set to lead the country temporarily, faces the immediate and daunting task of restoring order to daily life and to the economy.`\
 https://nytimes.com/2024/08/08/world/asia/muhammad-yunus-bangladesh-swearing-in.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5686082/2024/08/08/adam-forshaw-leeds-united-interv
 **VR headsets, not rushing back: How Lavia set himself up for return this season**\
 `Romeo Lavia barely played last season after his summer move but has put himself in a good position before the new campaign`\
 https://nytimes.com/athletic/5683985/2024/08/08/romeo-lavia-chelsea-injury-recovery/
-
-**FPL: The best budget options for the 2024-25 season**\
-`Picking the best budget options can make or break your FPL squad - here are the most attractive propositions for next season`\
-https://nytimes.com/athletic/5651108/2024/08/08/fantasy-premier-league-best-budget-options-2024-25/
 
