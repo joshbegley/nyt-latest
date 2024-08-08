@@ -1,3 +1,7 @@
+**Jake Paul Lends His Celebrity (Some of It) to Olympic Boxing**\
+`Paul, a social media influencer and boxer, usually promotes professional fighting. Now he’s in a partnership with U.S.A. Boxing, but his output in Paris has been minimal.`\
+https://nytimes.com/2024/08/08/world/olympics/jake-paul-boxing.html
+
 **Smith: 'This team has a standard of winning' as USWNT eyes Olympic gold**\
 `PARIS — Twelve years ago, the last time the U.`\
 https://nytimes.com/athletic/5689365/2024/08/08/uswnt-olympics-smith-rodman-swanson/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/08/dining/veggie-taco-party.html
 **Veterans and Lawmakers Lobby in Bipartisan Push for MDMA Therapy**\
 `The F.D.A. is poised to rule on the therapeutic use of the club drug Ecstasy, a potential watershed moment in the nascent field of psychedelic medicine.`\
 https://nytimes.com/2024/08/08/health/fda-mdma-therapy.html
-
-**Army Helicopter Crashes in Alabama, Killing One**\
-`The fatal crash of an Apache helicopter during flight training on Wednesday is part of what Army officials have called a troubling trend.`\
-https://nytimes.com/2024/08/08/us/helicopter-crash-instructor-killed-alabama.html
 
