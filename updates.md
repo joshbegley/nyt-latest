@@ -1,3 +1,19 @@
+**Why Solanke suits Spurs and Postecoglou's style: Shot heavy, low passing & box focus**\
+`Dominic Solanke is of interest to Tottenham — this is why he would suit them to a tee`\
+https://nytimes.com/athletic/5686568/2024/08/08/dominic-solanke-tottenham-analysis/
+
+**Why Liverpool's transfer priority is a No 6 and what the pursuit of Zubimendi reveals**\
+`Why Liverpool decided they need a No 6 and what kind of player they want`\
+https://nytimes.com/athletic/5687159/2024/08/08/liverpool-no-6-zubimendi-endo-mac-allister-slot/
+
+**Forshaw interview: 'I was all but done to stay at Leeds but it just didn't happen'**\
+`Following a brief stint at Norwich, the midfielder has found a new home at Plymouth where he is ready to take on a season under Wayne Rooney`\
+https://nytimes.com/athletic/5686082/2024/08/08/adam-forshaw-leeds-united-interview/
+
+**VR headsets, not rushing back: How Lavia set himself up for return this season**\
+`Romeo Lavia barely played last season after his summer move but has put himself in a good position before the new campaign`\
+https://nytimes.com/athletic/5683985/2024/08/08/romeo-lavia-chelsea-injury-recovery/
+
 **FPL: The best budget options for the 2024-25 season**\
 `Picking the best budget options can make or break your FPL squad - here are the most attractive propositions for next season`\
 https://nytimes.com/athletic/5651108/2024/08/08/fantasy-premier-league-best-budget-options-2024-25/
