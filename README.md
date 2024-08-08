@@ -1,3 +1,27 @@
+**Firefighters Battle Wildfire in Maui Year After Historic Blaze**\
+`The deadly 2023 blazes killed more than 100 people on the Hawaiian island and destroyed communities.`\
+https://nytimes.com/2024/08/08/us/hawaii-maui-fire.html
+
+**Trying to Capitalize on Anti-Migrant Riots Could Backfire on U.K.’s Far Right**\
+`The public’s reaction to the recent rioting has been resoundingly negative, suggesting that using the unrest to push anti-immigrant policies could backfire, at least in the short term.`\
+https://nytimes.com/2024/08/08/world/europe/interpreter-uk-riots.html
+
+**Thursday's MLB best bets: Pitching matchups, props, playoff projections**\
+`See pitching matchups, playoff projections, win projections and more for Thursday's MLB games.`\
+https://nytimes.com/athletic/5687457/2024/08/08/mlb-odds-best-bets-projections-august-8/
+
+**Olympics Today: Thursday's guide to what to watch in Paris**\
+`The stars will be out on the court and track Thursday as Sydney McLaughlin-Levrone and Noah Lyles go for gold.`\
+https://nytimes.com/athletic/5685617/2024/08/08/olympics-2024-watch-guide-day-13-basketball-track/
+
+**What Works in Taiwan Doesn’t Always in Arizona, a Chipmaking Giant Learns**\
+`The tech giant modeled its facility in Phoenix on one at home. But bringing the company’s highly complex manufacturing process to America has been a bigger challenge than it expected.`\
+https://nytimes.com/2024/08/08/business/tsmc-phoenix-arizona-semiconductor.html
+
+**Editor’s Note: Goodbye, Vertex**\
+`The New York Times will take down Vertex on Aug. 29.`\
+https://nytimes.com/2024/08/08/crosswords/vertex-goodbye.html
+
 **Quotation of the Day: Extraordinarily Ordinary: Walz’s Path to Prominence**\
 `Quotation of the Day for Thursday, August 8, 2024.`\
 https://nytimes.com/2024/08/07/pageoneplus/quotation-of-the-day-extraordinarily-ordinary-walzs-path-to-prominence.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/08/07/us/politics/tim-walz-kamala-harris-2024.html
 **Man Is Found Guilty in Killing of Rapper PnB Rock**\
 `Prosecutors said that the man, Freddie Lee Trone, sent his teenage son into a restaurant armed with a handgun to rob the rapper.`\
 https://nytimes.com/2024/08/07/arts/music/pnb-rock-death-freddie-trone.html
-
-**Thread Component**\
-`Christopher Youngs’s theme spotlights one of the toughest types of clues.`\
-https://nytimes.com/2024/08/07/crosswords/daily-puzzle-2024-08-08.html
-
-**Tour Tickets? Swifties Crave a Presidential Endorsement.**\
-`Taylor Swift’s coveted support went to President Biden in 2020. A shadowy figure in an Instagram photo led some fans to make the leap that she will champion Kamala Harris.`\
-https://nytimes.com/2024/08/07/arts/music/taylor-swift-kamala-harris.html
-
-**Prosecutors Preview Aggressive Strategy in Hunter Biden’s Tax Case**\
-`They stopped short of accusing Mr. Biden of violating foreign lobbying laws but said they would show how foreign interests paid him to influence the government while his father was vice president.`\
-https://nytimes.com/2024/08/07/us/politics/hunter-biden-special-counsel-strategy.html
-
-**Tech Investors Are the Latest to Zoom for Harris**\
-`Compared with the calls for cat ladies, white dudes and others, the group of venture capitalists was small at around 600.`\
-https://nytimes.com/2024/08/07/us/politics/harris-tech-vc-money-2024.html
-
-**Family of Titan Crew Member Sues OceanGate**\
-`Paul-Henri Nargeolet, a French explorer, died along with four other crew members when OceanGate’s Titan craft imploded on its journey to the Titanic.`\
-https://nytimes.com/2024/08/07/us/oceangate-titan-submersible-titanic-lawsuit.html
-
-**The Harris Campaign Bets on Prairie Progressives**\
-`The Minnesota governor was not just in Wisconsin to sound folksy and talk about hunting.`\
-https://nytimes.com/2024/08/07/us/politics/tim-walz-harris-campaign.html
 
