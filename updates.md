@@ -1,3 +1,7 @@
+**Jake Paul Lends His Celebrity (Some of It) to Olympic Boxing**\
+`Paul, a social media influencer and boxer, usually promotes professional fighting. Now he’s in a partnership with U.S.A. Boxing, but his output in Paris has been minimal.`\
+https://nytimes.com/2024/08/08/world/olympics/jake-paul-boxing.html
+
 **Smith: 'This team has a standard of winning' as USWNT eyes Olympic gold**\
 `PARIS — Twelve years ago, the last time the U.`\
 https://nytimes.com/athletic/5689365/2024/08/08/uswnt-olympics-smith-rodman-swanson/
