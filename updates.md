@@ -1,3 +1,11 @@
+**For this U.S. women's basketball Olympic run, stop arguing and savor what we have**\
+`PARIS — They played poorly in the first half against Nigeria.`\
+https://nytimes.com/athletic/5686832/2024/08/08/team-usa-olympics-womens-basketball-team-aldridge/
+
+**Tsunami Warning Issued in Japan After Strong Earthquakes**\
+`The advisory was in place for parts of the islands of Kyushu and Shikoku in the south after quakes of 6.9 and 7.1 were reported.`\
+https://nytimes.com/2024/08/08/world/asia/japan-earthquake-tsunami-warning.html
+
 **Tsunami Warning in Effect in Japan After Strong Earthquakes**\
 `The warning was in place for parts of the islands of Kyushu and Shikoku in the south after quakes of 6.9 and 7.1 were reported.`\
 https://nytimes.com/2024/08/08/world/asia/japan-earthquake-tsunami-warning.html
