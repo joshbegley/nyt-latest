@@ -1,3 +1,7 @@
+**Quincy Wilson, 16, expected to make Olympic debut Friday**\
+`With his first step, he'll become the youngest American male track athlete in Olympic history.`\
+https://nytimes.com/athletic/5689130/2024/08/08/quincy-wilson-youngest-male-track-olympian/
+
 **Nick Foles announces NFL retirement**\
 `Foles led the Eagles to winning the 2018 Super Bowl after starting QB Carson Wentz suffered a knee injury late in the season.`\
 https://nytimes.com/athletic/5689153/2024/08/08/nick-foles-retires-eagles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5689150/2024/08/08/white-sox-fire-pedro-grifol-bobb
 **Bills QB Josh Allen to start preseason opener vs. Bears**\
 `PITTSFORD, N.`\
 https://nytimes.com/athletic/5688996/2024/08/08/bills-josh-allen-preseason-starter/
-
-**Bills 2024 camp debrief: Who's in good position and who isn't headed into the preseason**\
-`Some players played their way into better positions on the depth chart, while others have fallen.`\
-https://nytimes.com/athletic/5687549/2024/08/08/buffalo-bills-training-camp-debrief-preseason/
 
