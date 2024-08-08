@@ -1,3 +1,27 @@
+**Firefighters Battle Wildfire in Maui Year After Historic Blaze**\
+`The deadly 2023 blazes killed more than 100 people on the Hawaiian island and destroyed communities.`\
+https://nytimes.com/2024/08/08/us/hawaii-maui-fire.html
+
+**Trying to Capitalize on Anti-Migrant Riots Could Backfire on U.K.’s Far Right**\
+`The public’s reaction to the recent rioting has been resoundingly negative, suggesting that using the unrest to push anti-immigrant policies could backfire, at least in the short term.`\
+https://nytimes.com/2024/08/08/world/europe/interpreter-uk-riots.html
+
+**Thursday's MLB best bets: Pitching matchups, props, playoff projections**\
+`See pitching matchups, playoff projections, win projections and more for Thursday's MLB games.`\
+https://nytimes.com/athletic/5687457/2024/08/08/mlb-odds-best-bets-projections-august-8/
+
+**Olympics Today: Thursday's guide to what to watch in Paris**\
+`The stars will be out on the court and track Thursday as Sydney McLaughlin-Levrone and Noah Lyles go for gold.`\
+https://nytimes.com/athletic/5685617/2024/08/08/olympics-2024-watch-guide-day-13-basketball-track/
+
+**What Works in Taiwan Doesn’t Always in Arizona, a Chipmaking Giant Learns**\
+`The tech giant modeled its facility in Phoenix on one at home. But bringing the company’s highly complex manufacturing process to America has been a bigger challenge than it expected.`\
+https://nytimes.com/2024/08/08/business/tsmc-phoenix-arizona-semiconductor.html
+
+**Editor’s Note: Goodbye, Vertex**\
+`The New York Times will take down Vertex on Aug. 29.`\
+https://nytimes.com/2024/08/08/crosswords/vertex-goodbye.html
+
 **Tim Walz’s Sudden Rise in the Democratic Party Was No Accident**\
 `More than a year ago, Tim Walz and his aides decided to be ready in case an irresistible opportunity arose. Their tightly held strategy helped them catch political lightning in a bottle.`\
 https://nytimes.com/2024/08/07/us/politics/tim-walz-kamala-harris-2024.html
