@@ -1,3 +1,7 @@
+**Noah Lyles Wins Bronze in 200 Meters, Then Reveals He Has Covid**\
+`Lyles said he started feeling ill two days ago and knew it was more than just soreness from winning the 100. In Paris, there are no testing requirements, and national governing bodies develop their own protocols.`\
+https://nytimes.com/2024/08/08/world/olympics/noah-lyles-wins-bronze-in-200-meters-then-reveals-he-has-covid.html
+
 **Deadly Tornado Damages School in North Carolina**\
 `One of several small tornadoes spawned by Tropical Storm Debby killed a man and damaged a school in Lucama, N.C.`\
 https://nytimes.com/video/weather/100000009618540/tornado-storm-debby-north-carolina.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5689936/2024/08/08/usa-basketball-serbia-olympics/
 **Friday Briefing: Trump and Harris Agreed to Debate**\
 `Plus, how Olympians get paid.`\
 https://nytimes.com/2024/08/08/briefing/trump-harris-ukraine-russia-lebanon-gaza.html
-
-**F1 owner Liberty Media confirms DOJ antitrust investigation into Andretti rejection**\
-`F1 rejection of Andretti’s bid to join the grid for 2025 or 2026 has sparked movement in congress to investigate the company.`\
-https://nytimes.com/athletic/5689786/2024/08/08/f1-andretti-liberty-media-doj-antitrust/
 
