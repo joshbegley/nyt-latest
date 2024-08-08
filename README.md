@@ -1,3 +1,11 @@
+**Over 100 Homes Damaged in Alaska After Flooding Causes Glacial Lake to Overflow**\
+`The flooding this week in Juneau, Alaska, topped a record set last year when the same glacial basin overfilled, rapidly inundating nearby neighborhoods.`\
+https://nytimes.com/2024/08/08/us/alaska-juneau-flooding-glacier.html
+
+**Leicester in advanced talks to sign Buonanotte on loan**\
+`Leicester City are in advanced talks with Brighton and Hove Albion over the signing of midfielder Facundo Buonanotte.`\
+https://nytimes.com/athletic/5688941/2024/08/08/leicester-brighton-buonanotte-transfer-loan/
+
 **Harris Responds to Pro-Palestinian Protesters at Michigan Rally**\
 `Protesters interrupted Kamala Harris’s speech at a rally in Detroit.`\
 https://nytimes.com/video/us/politics/100000009618743/harris-rally-gaza-protesters.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/08/us/politics/harris-rally-gaza-protesters.html
 **What to Know About the Park Fire, the 4th Largest in California History**\
 `The rapidly spreading fire has consumed over 426,000 acres since it started burning in late July.`\
 https://nytimes.com/2024/08/08/us/park-fire-california.html
-
-**The New A.I. Deal: Buy Everything but the Company**\
-`Google, Microsoft and Amazon have made deals with A.I. start-ups for their technology and top employees, but have shied from owning the firms. Here’s why.`\
-https://nytimes.com/2024/08/08/technology/ai-start-ups-google-microsoft-amazon.html
-
-**Greenberg: Pedro Grifol and the White Sox are better off without each other**\
-`With a 21-game losing streak hovering over his dismal managerial ledger, Grifol was mercifully fired after sustained futility.`\
-https://nytimes.com/athletic/5673746/2024/08/08/chicago-white-sox-pedro-grifol-fired/
 
