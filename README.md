@@ -1,3 +1,7 @@
+**Twins takeaways: Rebuilding the bullpen, Matt Wallner crushing, signing Giovanny Gallegos**\
+`Brock Stewart's injury setback means the Twins need to rethink their late-inning mix, but they're not short on power right-handers.`\
+https://nytimes.com/athletic/5683893/2024/08/08/minnesota-twins-bullpen-matt-wallner/
+
 **‘The Instigators’ Review: Bumblers in Beantown**\
 `Casey Affleck and Matt Damon star in a Boston heist that goes sideways.`\
 https://nytimes.com/2024/08/08/movies/the-instigators-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5688442/2024/08/08/zak-brown-mclaren-f1/
 **Russian Official Declares State of Emergency Near Border as Ukraine Advances**\
 `The local government in Russia declared a state of emergency as military analysts reported that Ukrainian forces had advanced several miles across the border.`\
 https://nytimes.com/2024/08/08/world/europe/russia-border-ukraine.html
-
-**Zouma set to join Shabab Al-Ahli from West Ham**\
-`West Ham United defender Kurt Zouma is close to completing a move to Shabab Al-Ahli.`\
-https://nytimes.com/athletic/5688467/2024/08/08/kurt-zouma-shabab-al-ahli/
 
