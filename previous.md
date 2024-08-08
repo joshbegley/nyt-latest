@@ -1,4 +1,4 @@
-**Over 100 Homes Damaged in Alaska After Flooding Causes Glacial Lake to Overflow**\
+**Over 100 Homes Damaged in Alaska After Glacial Lake Releases Flooding**\
 `The flooding this week in Juneau, Alaska, topped a record set last year when the same glacial basin overfilled, rapidly inundating nearby neighborhoods.`\
 https://nytimes.com/2024/08/08/us/alaska-juneau-flooding-glacier.html
 
