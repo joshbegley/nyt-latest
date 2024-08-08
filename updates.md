@@ -1,3 +1,15 @@
+**Third Death Is Tied to Listeria, Health Officials Say**\
+`The death in Virginia came amid a nationwide outbreak linked to Boar’s Head deli meats. More than 40 people have been hospitalized.`\
+https://nytimes.com/2024/08/08/us/listeria-outbreak-third-death.html
+
+**Let’s Review Restaurant Etiquette**\
+`Three general managers weigh in so that everyone — diners and staff — have the best restaurant experience possible.`\
+https://nytimes.com/2024/08/08/dining/restaurant-etiquette.html
+
+**6 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/08/08/books/review/new-books-recommendations.html
+
 **Trump Suggests that President Should Have a ‘Say’ in Interest Rates**\
 `Donald J. Trump suggested presidents should have input on interest rates, a comment likely to stoke fears that he could try to limit the Federal Reserve’s political independence.`\
 https://nytimes.com/2024/08/08/business/economy/trump-fed-interest-rates.html
