@@ -1,3 +1,7 @@
+**Phillies takeaways: Schwarber's season, Turnbull's role, and a change in the outfield?**\
+`With 70% of the schedule complete, Schwarber is having one of the best seasons of his career. The three-HR game was the exclamation point. `\
+https://nytimes.com/athletic/5688328/2024/08/08/phillies-kyle-schwarber-spencer-turnbull-austin-hays/
+
 **Did Jim Harbaugh vs. the NCAA really start with a burger? Our quest for answers at Michigan**\
 `Harbaugh vs. the NCAA is a story everybody knows and almost no one understands. Here's our search for answers — and a burger for breakfast.`\
 https://nytimes.com/athletic/5688042/2024/08/08/jim-harbaugh-michigan-ncaa-cheeseburger-connor-stalions/
