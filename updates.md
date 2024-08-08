@@ -1,3 +1,7 @@
+**Friday Briefing: Trump and Harris Agreed to Debate**\
+`Plus, how Olympians get paid.`\
+https://nytimes.com/2024/08/08/briefing/trump-harris-ukraine-russia-lebanon-gaza.html
+
 **F1 owner Liberty Media confirms DOJ antitrust investigation into Andretti rejection**\
 `F1 rejection of Andretti’s bid to join the grid for 2025 or 2026 has sparked movement in congress to investigate the company.`\
 https://nytimes.com/athletic/5689786/2024/08/08/f1-andretti-liberty-media-doj-antitrust/
