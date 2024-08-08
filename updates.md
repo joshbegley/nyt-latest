@@ -1,3 +1,7 @@
+**Dam Breach in Rural Georgia Floods Communities Downstream**\
+`The overflow sent floodwaters into neighborhoods miles away, causing property damage but no injuries, officials said.`\
+https://nytimes.com/2024/08/08/weather/dam-breach-in-rural-georgia-floods-communities-downstream.html
+
 **Open Letters: Our Opinion-Writing Contest**\
 `We invite students to write public-facing letters to people or groups about issues that matter to them. Contest dates: March 12 to April 16, 2025.`\
 https://nytimes.com/2024/08/08/learning/open-letters-our-opinion-writing-contest.html
