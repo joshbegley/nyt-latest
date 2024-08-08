@@ -1,3 +1,31 @@
+**“Inflation was caused by their bad energy problems.”**\
+`By Alan Rappeport`\
+https://nytimes.com/live/2024/08/08/us/harris-trump-election/inflation-was-caused-by-their-bad-energy-problems
+
+**Athlete Dies in Texas Lake During CrossFit Games Swimming Competition**\
+`Search-and-rescue teams were called after a participant in the event had not been seen in the water for some time.`\
+https://nytimes.com/2024/08/08/us/crossfit-games-2024-death.html
+
+**Advertising Coalition Shuts Down After X, Owned by Elon Musk, Sues**\
+`The Global Alliance for Responsible Media will dissolve after Mr. Musk accused the group of orchestrating a boycott.`\
+https://nytimes.com/2024/08/08/technology/elon-musk-x-advertisers-boycott.html
+
+**“She couldn’t pass her bar exam.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/08/us/harris-trump-election/she-couldnt-pass-her-bar-exam
+
+**France beats Germany, heading to gold medal game**\
+`France defeated Germany 73-69 in a semifinal win Thursday night at Bercy Arena.`\
+https://nytimes.com/athletic/5689547/2024/08/08/france-germany-olympics-basketball/
+
+**“All over the world, prisons are being emptied out into our country.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/08/us/harris-trump-election/all-over-the-world-prisons-are-being-emptied-out-into-our-country
+
+**Tropical Storm Debby Highlights the Southeast’s Climate Vulnerabilities**\
+`The region faces a confluence of factors, including the fastest sea level rise in the country, increasingly humid temperatures and extreme rainfall.`\
+https://nytimes.com/2024/08/08/climate/tropical-storm-debby-climate-change-southeast.html
+
 **Israeli strikes near two school compounds kill at least 16, Gazan officials say.**\
 `By Ephrat Livni and Aaron Boxerman`\
 https://nytimes.com/live/2024/08/08/world/israel-iran-hamas-gaza-war/israeli-strikes-near-two-school-compounds-kill-at-least-16-gazan-officials-say
@@ -9,32 +37,4 @@ https://nytimes.com/live/2024/08/08/us/harris-trump-election/she-was-the-border-
 **“Twenty million people came over the border in the last — during the Biden-Harris administration, 20 million people, and it could be very much higher than that.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/08/08/us/harris-trump-election/fact-check-trump-border
-
-**To Team Trump, Harris’s ‘Not Going Back’ Promise Will Prove a Big Mistake**\
-`The race has been upended with the replacement of President Biden. But the Trump team said Thursday morning that “the fundamentals of the race have not changed.”`\
-https://nytimes.com/2024/08/08/us/politics/trump-harris-strategy.html
-
-**Twins' Bailey Ober is better than ever, armed with elite changeup and full arsenal**\
-`Ober is striking out more batters than ever and pitching deep into games. Key offseason adjustments are paying off in 2024. `\
-https://nytimes.com/athletic/5689134/2024/08/08/bailey-ober-twins-picher-changeup/
-
-**Ship Brings Rocky Clues to Life’s Origins Up From Ocean’s ‘Lost City’**\
-`Scientists in an expedition to the Mid-Atlantic ocean ridge lifted almost a mile of precious rocks from beneath an exotic feature linked to life’s possible beginning.`\
-https://nytimes.com/2024/08/08/science/mantle-core-drill-ocean.html
-
-**Anna Marie Tendler Knows You Think Her Book Is About John Mulaney**\
-`Ms. Tendler was a regular subject in her famous ex-husband’s stand-up. After a public divorce, tabloids have framed her new memoir as a tell-all about their relationship, but readers might be surprised by what they find.`\
-https://nytimes.com/2024/08/08/style/john-mulaney-wife-anna-tendler-book.html
-
-**Engineered Virus Steals Proteins From H.I.V., Pointing to New Therapy**\
-`After promising results in monkeys, scientists plan to test the new treatment in a few people with H.I.V.`\
-https://nytimes.com/2024/08/08/science/engineered-virus-steals-proteins-from-hiv.html
-
-**For Blues coach Drew Bannister, getting to know his players has been an offseason priority**\
-`Drew Bannister met defenseman Justin Faulk in Minnesota, where they talked more about hunting than hockey.`\
-https://nytimes.com/athletic/5651561/2024/08/08/blues-drew-bannister-coach-offseason-players/
-
-**The Barber Will See You Now. The World Will See You Next.**\
-`At the Olympic Village, cuts, styles and manicures are free. The benefits, the athletes say, are priceless.`\
-https://nytimes.com/2024/08/08/world/olympics/athletes-village-hair-salon.html
 
