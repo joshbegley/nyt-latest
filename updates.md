@@ -1,3 +1,7 @@
+**Manchester United in 2024-25: Anticipating potential problems**\
+`United are a club in transition under Erik ten Hag. They should improve next season - but other problems might resurface…`\
+https://nytimes.com/athletic/5492115/2024/08/08/manchester-united-problems-2024-25/
+
 **Why Solanke suits Spurs and Postecoglou's style: Shot heavy, low passing & box focus**\
 `Dominic Solanke is of interest to Tottenham — this is why he would suit them to a tee`\
 https://nytimes.com/athletic/5686568/2024/08/08/dominic-solanke-tottenham-analysis/
