@@ -1,3 +1,7 @@
+**“Democrats are really the radical ones on this, because they’re allowed to do abortion on the eighth and ninth month, and even after birth.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/08/us/harris-trump-election/democrats-are-really-the-radical-ones-on-this-because-theyre-allowed-to-do-abortion-on-the-eighth-and-ninth-month-and-even-after
+
 **Until Saturday: First-ever Freaks List repeat No. 1**\
 `Welcome to Until Saturday, The Athletic's college football newsletter. `\
 https://nytimes.com/athletic/5689294/2024/08/08/freaks-list-michigan-penn-state-jim-harbaugh-burger-until-saturday/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/08/us/harris-trump-election/she-couldnt-pass-he
 **France beats Germany, heading to gold medal game**\
 `France defeated Germany 73-69 in a semifinal win Thursday night at Bercy Arena.`\
 https://nytimes.com/athletic/5689547/2024/08/08/france-germany-olympics-basketball/
-
-**“All over the world, prisons are being emptied out into our country.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/08/08/us/harris-trump-election/all-over-the-world-prisons-are-being-emptied-out-into-our-country
 
