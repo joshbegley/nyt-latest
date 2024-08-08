@@ -3,7 +3,7 @@
 https://nytimes.com/2024/08/08/world/europe/russia-border-ukraine.html
 
 **Zouma set to join Shabab Al-Ahli from West Ham**\
-`West Ham United defender Kurt Zouma is close to completing a move to Saudi Pro League side Shabab Al-Ahli.`\
+`West Ham United defender Kurt Zouma is close to completing a move to Shabab Al-Ahli.`\
 https://nytimes.com/athletic/5688467/2024/08/08/kurt-zouma-shabab-al-ahli/
 
 **Phillies takeaways: Schwarber's season, Turnbull's role, and a change in the outfield?**\
