@@ -2,6 +2,10 @@
 `Find the secret to happiness in Finland’s capital — perhaps while sweating in a wood-burning sauna or sipping cocktails on a schooner.`\
 https://nytimes.com/interactive/2024/08/08/travel/things-to-do-helsinki.html
 
+**Navigating a new role, Nick Sirianni taps Dawn Staley for guidance**\
+`The Eagles coach asked the basketball legend to speak to his players.`\
+https://nytimes.com/athletic/5687068/2024/08/08/eagles-coach-nick-sirianni-dawn-staley/
+
 **Red Wings future lineup projection: How Detroit could look in three years**\
 `Max Bultman projects and assesses Detroit's lineup three years out to gauge how the Red Wings' rebuild is progressing.`\
 https://nytimes.com/athletic/5687358/2024/08/08/red-wings-2027-28-lineup-projection/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/08/business/media/oliver-darcy-status-media.html
 **Barcelona transfers update - what's the situation with Gundogan, Roque and others?**\
 `Freeing up space on the wage bill would be a big help in Barca being able to register players, but any exits appear to be stuck at present`\
 https://nytimes.com/athletic/5688490/2024/08/08/barcelona-transfers-gundogan-roque-fati-lenglet/
-
-**Olympic Medals Offer Ukraine a Brief Respite From War**\
-`Ukraine has won eight medals so far at the Paris Olympics. Each has been celebrated in the war-torn country as a symbol of resilience and defiance.`\
-https://nytimes.com/2024/08/08/world/europe/ukraine-olympic-medals.html
 
