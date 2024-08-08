@@ -1,3 +1,7 @@
+**Chargers training camp, Day 13: Players, coaches eager for live action**\
+`Tre’Mon Morris-Brash is among the Chargers' rookies who has flashed and the team is excited to see against the Seahawks on Saturday.`\
+https://nytimes.com/athletic/5688255/2024/08/08/chargers-training-camp-preseason-seahawks/
+
 **CNN’s Media Chronicler Strikes Out on His Own**\
 `Oliver Darcy is starting a subscription-based news site dedicated to covering the media industry, joining a crowded field.`\
 https://nytimes.com/2024/08/08/business/media/oliver-darcy-status-media.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/08/business/dealbook/markets-jobless-claims-recessio
 **Are We Happy Yet?**\
 `The American obsession with individually defining, tracking and boosting happiness may be making us miserable.`\
 https://nytimes.com/2024/08/08/opinion/happiness-tracking-america.html
-
-**Maguire, Lindelof doubtful for Community Shield**\
-`Manchester United duo Harry Maguire and Victor Lindelof are injury doubts for Saturday&#8217;s Community Shield clash against Manchester City.`\
-https://nytimes.com/athletic/5688550/2024/08/08/harry-maguire-victor-lindelof-community-shield/
 
