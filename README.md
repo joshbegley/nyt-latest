@@ -1,5 +1,13 @@
+**Trump Falsely Claims No One Died in Jan. 6 Capitol Attack**\
+`In fact, four of his supporters died in the crowd that day, and others died within days.`\
+https://nytimes.com/2024/08/08/us/politics/trump-jan-6-deaths.html
+
+**No Aaron Rodgers, but Jets still dominate Commanders in joint practice**\
+`The Tyrod Taylor-to-Garrett Wilson connection was the story of the day on a rainy Thursday.`\
+https://nytimes.com/athletic/5689602/2024/08/08/aaron-rodgers-out-jets-commanders-joint-practice-observations/
+
 **Swifties in Vienna Cry, Commiserate and Try to Shake It Off**\
-`Taylor Swift fans from around the world grappled with disappointment and fear after a terrorism plot derailed the Vienna leg of the Eras Tour.`\
+`Taylor Swift fans from around the world grappled with disappointment and fear after a terrorism plot derailed the Vienna dates of the Eras Tour.`\
 https://nytimes.com/2024/08/08/world/europe/taylor-swift-eras-tour-vienna-reactions.html
 
 **Dam Breach in Rural Georgia Floods Communities Downstream**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5688911/2024/08/08/sydney-mclaughlin-levrone-400-me
 **American long jumper Tara Davis-Woodhall takes gold**\
 `Davis-Woodhall’s medal makes it the fourth consecutive Olympics the U.S. has medaled. Six of the last 12 medals have gone to Americans.`\
 https://nytimes.com/athletic/5689561/2024/08/08/tara-davis-woodhall-olympic-long-jump-results/
-
-**Our Student Podcast Contest**\
-`We invite students to create an original podcast of five minutes or less that informs or entertains. Contest dates: April 16 to May 14, 2025.`\
-https://nytimes.com/2024/08/08/learning/our-student-podcast-contest.html
-
-**Noah Lyles reveals COVID-19 diagnosis after bronze medal finish in 200**\
-`"I've never been more proud of myself for being able to come out here and getting a bronze medal," Lyles said.`\
-https://nytimes.com/athletic/5689761/2024/08/08/noah-lyles-covid-19-200-meter-bronze-olympics/
 
