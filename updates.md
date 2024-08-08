@@ -1,3 +1,11 @@
+**Team USA, their Olympic hopes teetering, turned to an unlikely place — defense**\
+`PARIS — The gold medal — the reason why USA Basketball is what it is, and does things the way it does — was slipping away.`\
+https://nytimes.com/athletic/5690134/2024/08/08/us-mens-basketball-olympics-defense-serbia/
+
+**A.C.L.U. Must Reinstate Employee Falsely Accused of Racist Language, Court Rules**\
+`The case put the legal group on the spot for taking positions on free speech and workers’ rights that seemed at odds with its mission.`\
+https://nytimes.com/2024/08/08/us/politics/aclu-employee-racism-false-accusation.html
+
 **Tim Walz and the Weird Politics of Free School Lunches**\
 `Another reminder that MAGA isn’t “populist.”`\
 https://nytimes.com/2024/08/08/opinion/tim-walz-school-lunch.html
