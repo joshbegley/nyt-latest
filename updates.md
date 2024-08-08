@@ -1,3 +1,7 @@
+**Navigating a new role, Nick Sirianni taps Dawn Staley for guidance**\
+`The Eagles coach asked the basketball legend to speak to his players.`\
+https://nytimes.com/athletic/5687068/2024/08/08/eagles-coach-nick-sirianni-dawn-staley/
+
 **36 Hours in Helsinki**\
 `Find the secret to happiness in Finland’s capital — perhaps while sweating in a wood-burning sauna or sipping cocktails on a schooner.`\
 https://nytimes.com/interactive/2024/08/08/travel/things-to-do-helsinki.html
