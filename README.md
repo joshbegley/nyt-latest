@@ -1,3 +1,15 @@
+**Ohio State camp notes: Jeremiah Smith continues to shine while secondary dominates**\
+`Also notable from camp: Will Howard is gaining the edge on Devin Brown in the QB battle and Jelani Thurman could be an option at tight end.`\
+https://nytimes.com/athletic/5689655/2024/08/08/ohio-state-preseason-camp-jeremiah-smith-ryan-day/
+
+**How to … : An Informational Writing Contest for Teenagers**\
+`We invite students to explain how to do any task in 400 words or fewer. Contest dates: Feb. 12 to March 12, 2025.`\
+https://nytimes.com/2024/08/08/learning/how-to-an-informational-writing-contest-for-teenagers.html
+
+**Tiny Memoir Contest for Students: Write a 100-Word Personal Narrative**\
+`We invite teenagers to tell a true story about a meaningful life experience in just 100 words. Contest dates: Nov. 6 to Dec. 4, 2024.`\
+https://nytimes.com/2024/08/08/learning/tiny-memoir-contest-for-students-write-a-100-word-personal-narrative.html
+
 **Sydney McLaughlin-Levrone breaks world record to win another Olympic gold in 400m hurdles**\
 `Sydney McLaughlin-Levrone broke the 400-meter hurdles world record for a sixth time Saturday, winning her second straight Olympic gold.`\
 https://nytimes.com/athletic/5688911/2024/08/08/sydney-mclaughlin-levrone-400-meter-hurdles-olympics-gold/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/08/08/us/harris-trump-election/she-wants-to-take-a
 **Students, Tell Us About Your Experience With the Summer Reading Contest.**\
 `This year we added the option of submitting a 90-second video response. What did you think?`\
 https://nytimes.com/2024/08/08/learning/students-tell-us-about-your-experience-with-the-summer-reading-contest.html
-
-**New apartment for Polish gold medal-winning climber**\
-`The global gamut of golden gifts ranges from financial rewards to new homes to a lifetime of free chicken.`\
-https://nytimes.com/athletic/5689359/2024/08/08/aleksandra-miroslaw-poland-gold-medal-reward/
-
-**What Debby Might Bring to New York City**\
-`The weakening tropical storm could unleash isolated storms and flooding on an already soaked region on Thursday and Friday. A separate system could bring heavy rains on Friday night.`\
-https://nytimes.com/2024/08/08/weather/debby-new-york-city-forecast.html
-
-**Los Angeles Actor Is Arrested on Sexual Assault Charges, Police Say**\
-`Gabriel Olds, who played the Christian broadcaster Pat Robertson in the 2021 movie “The Eyes of Tammy Faye,” has been accused of sexually assaulting three women.`\
-https://nytimes.com/2024/08/08/us/gabriel-olds-actor-sexual-assault.html
 
