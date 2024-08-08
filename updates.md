@@ -1,3 +1,15 @@
+**Did Jim Harbaugh vs. the NCAA really start with a burger? Our quest for answers at Michigan**\
+`Harbaugh vs. the NCAA is a story everybody knows and almost no one understands. Here's our search for answers — and a burger for breakfast.`\
+https://nytimes.com/athletic/5688042/2024/08/08/jim-harbaugh-michigan-ncaa-cheeseburger-connor-stalions/
+
+**What I'm hearing about Crosby's contract, Malkin's retirement plans**\
+`Crosby's birthday passed Wednesday without news of a new contract with the Penguins.`\
+https://nytimes.com/athletic/5687005/2024/08/08/penguins-sidney-crosby-contract-negotiations/
+
+**Shedeur Sanders film study: Can Colorado's offseason changes help its talented QB?**\
+`Deion Sanders spent the offseason rebuilding Colorado's roster and scheme to help its star QB. Can Shedeur Sanders answer the call? `\
+https://nytimes.com/athletic/5676426/2024/08/08/shedeur-sanders-nfl-draft-2025-scouting-report/
+
 **The Campaign for the Midwest, and Antiracism Demonstrations in the U.K.**\
 `Plus, a Hawaiian town debates how to rebuild.`\
 https://nytimes.com/2024/08/08/podcasts/harris-walz-vance-wisconsin-michigan-counterprotest-uk-riots.html
