@@ -1,3 +1,11 @@
+**House Republicans Pivot Scrutiny From Biden to Harris**\
+`Three months ahead of the election, congressional Republicans are moving to close a strategic gap.`\
+https://nytimes.com/2024/08/08/us/politics/harris-house-republicans-investigations.html
+
+**Rikers Inmates Are Routinely Denied Medical Care, Court Filing Says**\
+`The Legal Aid Society and Brooklyn Defender Services asked a judge to hold New York City’s Department of Correction in contempt of court.`\
+https://nytimes.com/2024/08/08/nyregion/rikers-inmates-health-care.html
+
 **Cindy Ngamba captures first ever medal for Olympic refugee team**\
 `It is Ngamba's first time competing under the refugee flag after becoming the first-ever refugee boxer to qualify for the Olympic Games.`\
 https://nytimes.com/athletic/5689644/2024/08/08/cindy-ngamba-boxing-medal-refugee-team-history/
