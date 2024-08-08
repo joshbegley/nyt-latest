@@ -1,3 +1,7 @@
+**Bills 2024 camp debrief: Who's in good position and who isn't headed into the preseason**\
+`Some players played their way into better positions on the depth chart, while others have fallen.`\
+https://nytimes.com/athletic/5687549/2024/08/08/buffalo-bills-training-camp-debrief-preseason/
+
 **Over 100 Homes Damaged in Alaska After Glacial Lake Releases Flooding**\
 `The flooding this week in Juneau, Alaska, topped a record set last year when the same glacial basin overfilled, rapidly inundating nearby neighborhoods.`\
 https://nytimes.com/2024/08/08/us/alaska-juneau-flooding-glacier.html
