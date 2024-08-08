@@ -1,3 +1,11 @@
+**ABC Says Trump and Harris Have Agreed to Debate on Sept. 10**\
+`The ABC anchors David Muir and Linsey Davis will moderate the candidates’ first face-to-face encounter since Kamala Harris entered the race.`\
+https://nytimes.com/2024/08/08/business/media/trump-harris-abc-debate.html
+
+**Djokovic withdraws from Cincinnati Open after Olympic gold**\
+`Novak Djokovic has withdrawn from this month&#8217;s Cincinnati Open.`\
+https://nytimes.com/athletic/5689972/2024/08/08/novak-djokovic-cincinnati-open-withdrawal/
+
 **U.S. men escape Serbia as Steph Curry takes over**\
 `For much of this Olympic semifinal, it looked like the Americans’ reign was over.`\
 https://nytimes.com/athletic/5689936/2024/08/08/usa-basketball-serbia-olympics/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5689588/2024/08/08/victor-wembanyama-france-germany
 **Third Death Is Tied to Listeria, Health Officials Say**\
 `The death in Virginia came amid a nationwide outbreak linked to Boar’s Head deli meats. More than 40 people have been hospitalized.`\
 https://nytimes.com/2024/08/08/us/listeria-outbreak-third-death.html
-
-**Let’s Review Restaurant Etiquette**\
-`Three general managers weigh in so that everyone — diners and staff — have the best restaurant experience possible.`\
-https://nytimes.com/2024/08/08/dining/restaurant-etiquette.html
-
-**6 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2024/08/08/books/review/new-books-recommendations.html
 
