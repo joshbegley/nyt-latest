@@ -1,3 +1,7 @@
+**Trump Suggests that President Should Have a ‘Say’ in Interest Rates**\
+`Donald J. Trump suggested presidents should have input on interest rates, a comment likely to stoke fears that he could try to limit the Federal Reserve’s political independence.`\
+https://nytimes.com/2024/08/08/business/economy/trump-fed-interest-rates.html
+
 **ABC Says Trump and Harris Have Agreed to Debate on Sept. 10**\
 `The ABC anchors David Muir and Linsey Davis will moderate the candidates’ first face-to-face encounter since Kamala Harris entered the race.`\
 https://nytimes.com/2024/08/08/business/media/trump-harris-abc-debate.html
