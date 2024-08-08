@@ -1,3 +1,11 @@
+**Harris Responds to Pro-Palestinian Protesters at Michigan Rally**\
+`Protesters interrupted Kamala Harris’s speech at a rally in Detroit.`\
+https://nytimes.com/video/us/politics/100000009618743/harris-rally-gaza-protesters.html
+
+**Benjamin St-Juste is keeping a close eye on his sister-in-law at Olympic Games**\
+`Anna Hall, who is competing in the heptathlon, is the sister of St-Juste's wife, Julia. `\
+https://nytimes.com/athletic/5688141/2024/08/08/benjamin-st-juste-anna-hall-paris-olympic-games/
+
 **Pochettino a top target to become USMNT coach: Sources**\
 `Former Tottenham and Chelsea head coach Mauricio Pochettino is a top target for the U.`\
 https://nytimes.com/athletic/5689027/2024/08/08/mauricio-pochettino-usmnt-coach/
