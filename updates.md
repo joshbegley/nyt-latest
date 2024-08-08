@@ -1,3 +1,7 @@
+**Defying Spanish Arrest Warrant, Carles Puigdemont Returns to Catalonia**\
+`Large crowds greeted the former regional leader who has lived in self-imposed exile since a failed 2017 independence bid. Despite a new amnesty law, he could still face arrest.`\
+https://nytimes.com/2024/08/08/world/europe/carles-puigdemont-catalonia-spain.html
+
 **Tornado Warning Issued in Parts of Central North Carolina**\
 `The National Weather Service said flying debris from a “large and extremely dangerous” tornado would be deadly for those not taking shelter.`\
 https://nytimes.com/2024/08/08/weather/tornado-warning-north-carolina-debby.html
