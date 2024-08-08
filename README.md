@@ -1,3 +1,7 @@
+**Mockery Won’t Increase Fertility**\
+`Culture warriors aren’t going to change plunging birthrates this way.`\
+https://nytimes.com/2024/08/08/opinion/birth-rate-jd-vance.html
+
 **3 Columbia University Deans Who Sent Insulting Texts Have Resigned**\
 `The deans were put on leave earlier in the summer after sending messages that disparaged Jewish panelists. A fourth dean, who is tenured, will remain at the university.`\
 https://nytimes.com/2024/08/08/nyregion/columbia-university-deans-resign-text-messages-antisemitism.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/08/arts/mary-wings-dead.html
 **Iranians Accused of Smuggling Missile Components Intended for Houthi Rebels**\
 `The Justice Department has charged two Iranians with smuggling missile parts that were seized in January in the Arabian Sea. The search resulted in charges for four others and the deaths of two Navy SEALs.`\
 https://nytimes.com/2024/08/08/us/politics/iranians-missiles-houthi-rebels.html
-
-**Trump Falsely Claims No One Died in Jan. 6 Capitol Attack**\
-`In fact, four of his supporters died in the crowd that day, and others died within days.`\
-https://nytimes.com/2024/08/08/us/politics/trump-jan-6-deaths.html
 
