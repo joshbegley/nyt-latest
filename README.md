@@ -1,3 +1,11 @@
+**Pochettino a top target to become USMNT coach: Sources**\
+`Former Tottenham and Chelsea head coach Mauricio Pochettino is a top target for the U.`\
+https://nytimes.com/athletic/5689027/2024/08/08/mauricio-pochettino-usmnt-coach/
+
+**Jordan Chiles returning to UCLA gymnastics**\
+`During her first stint with the Bruins, Chiles was a star all-around who recorded eight perfect 10.0s (four on bars and four on floor).`\
+https://nytimes.com/athletic/5688235/2024/08/08/jordan-chiles-returning-ucla-gymnastics/
+
 **Stuttgart agree deal to sign Undav from Brighton**\
 `Stuttgart are close to completing the signing of Brighton &amp; Hove Albion forward Deniz Undav.`\
 https://nytimes.com/athletic/5686776/2024/08/08/stuttgart-deniz-undav-brighton/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/08/us/politics/trump-tax-tips-tiktok-crypto.html
 **Who will replace Pedro Grifol as White Sox manager?**\
 `For the third time since firing Rick Renteria after the 2020 season, the White Sox are looking for a new manager. What will they do?`\
 https://nytimes.com/athletic/5685410/2024/08/08/next-white-sox-manager-options-hire/
-
-**The Trial Judge Who Has to Clean Up the Supreme Court’s Mess**\
-`Judge Tanya Chutkan now has to determine which charges against Trump involved official acts, and which did not.`\
-https://nytimes.com/live/2024/08/07/opinion/thepoint/chutkan-trump-supreme-court
-
-**Scoop City: Aiyuk, Maye and other players to watch**\
-`Watch guide for the NFL preseason Week 1 games between the Panthers and Patriots, Lions and Giants.`\
-https://nytimes.com/athletic/5688930/2024/08/08/nfl-preseason-week-1-scoop-city/
 
