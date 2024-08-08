@@ -1,3 +1,7 @@
+**The Harris Campaign Bets on Prairie Progressives**\
+`The Minnesota governor was not just in Wisconsin to sound folksy and talk about hunting.`\
+https://nytimes.com/2024/08/07/us/politics/tim-walz-harris-campaign.html
+
 **Man Is Found Guilty in Killing of Rapper PnB Rock**\
 `Prosecutors said that the man, Freddie Lee Trone, sent his teenage son into a restaurant armed with a handgun to rob the rapper.`\
 https://nytimes.com/2024/08/07/arts/music/pnb-rock-death-freddie-trone.html

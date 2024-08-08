@@ -22,7 +22,7 @@ https://nytimes.com/2024/08/07/us/politics/harris-tech-vc-money-2024.html
 `Paul-Henri Nargeolet, a French explorer, died along with four other crew members when OceanGate’s Titan craft imploded on its journey to the Titanic.`\
 https://nytimes.com/2024/08/07/us/oceangate-titan-submersible-titanic-lawsuit.html
 
-**The Tim Walz Guide to Winning Prairie Progressives**\
+**The Harris Campaign Bets on Prairie Progressives**\
 `The Minnesota governor was not just in Wisconsin to sound folksy and talk about hunting.`\
 https://nytimes.com/2024/08/07/us/politics/tim-walz-harris-campaign.html
 
