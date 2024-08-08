@@ -1,3 +1,7 @@
+**The Barber Will See You Now. The World Will See You Next.**\
+`At the Olympic Village, cuts, styles and manicures are free. The benefits, the athletes say, are priceless.`\
+https://nytimes.com/2024/08/08/world/olympics/athletes-village-hair-salon.html
+
 **Bogarde close to agreeing new Villa contract**\
 `Lamare Bogarde is close to finalising a new long-term contract at Aston Villa.`\
 https://nytimes.com/athletic/5689485/2024/08/08/lamare-bogarde-aston-villa-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/08/us/politics/harris-israel-arms-embargo.html
 **Teach Writing With The New York Times: Our 2024-25 Curriculum**\
 `Our nine writing units are based on real-world features like reviews, photo essays, narratives, podcasts and more.`\
 https://nytimes.com/2024/08/08/learning/teach-writing-with-the-new-york-times-our-2024-25-curriculum.html
-
-**MLB bullpen report: Tyler Holton emerging in Detroit, David Bednar in a post-break swoon and more**\
-`Greg Jewett tracks all the MLB bullpen movement that matters for fantasy baseball, including an emerging southpaw in Detroit.`\
-https://nytimes.com/athletic/5689280/2024/08/08/mlb-bullpen-report-tyler-holton-emerging-in-detroit-david-bednar-in-a-post-break-swoon-and-more/
 
