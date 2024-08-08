@@ -1,3 +1,23 @@
+**Thursday Briefing**\
+`Antiracism protesters in Britain.`\
+https://nytimes.com/2024/08/08/briefing/antiracism-britain-harris-vance-walz.html
+
+**Explained: Manchester United's 'exceptional' £40m Covid loss**\
+`Why Manchester United lost £40m and what happened at other clubs`\
+https://nytimes.com/athletic/5687061/2024/08/08/manchester-uniteds-40m-controversial-covid-loss-explained/
+
+**Why Marc Guehi is in demand: Breaks opposition lines, wins ground duels and leads**\
+`Marc Guehi's strengths and weaknesses, as Newcastle try to recruit the England international`\
+https://nytimes.com/athletic/5686580/2024/08/08/marc-guehi-analysed-newcastle-palace-england/
+
+**No Hands, Please: We’re Dutch**\
+`After two pandemic-disrupted Olympics, most teams haven’t given Covid a second thought in Paris. The one from the Netherlands is the exception.`\
+https://nytimes.com/2024/08/08/world/olympics/paris-olympics-covid-19.html
+
+**Analysing how the Premier League's top eight entered the penalty area last season**\
+`Rotations or driving runs? High-risk passes or possession-heavy dominance? This is how the league's top sides created chances in 2023-24`\
+https://nytimes.com/athletic/5676275/2024/08/08/premier-league-top-eight-box-entries/
+
 **Firefighters Battle Wildfire in Maui Year After Historic Blaze**\
 `The deadly 2023 blazes killed more than 100 people on the Hawaiian island and destroyed communities.`\
 https://nytimes.com/2024/08/08/us/hawaii-maui-fire.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5685617/2024/08/08/olympics-2024-watch-guide-day-13
 **What Works in Taiwan Doesn’t Always in Arizona, a Chipmaking Giant Learns**\
 `The tech giant modeled its facility in Phoenix on one at home. But bringing the company’s highly complex manufacturing process to America has been a bigger challenge than it expected.`\
 https://nytimes.com/2024/08/08/business/tsmc-phoenix-arizona-semiconductor.html
-
-**Editor’s Note: Goodbye, Vertex**\
-`The New York Times will take down Vertex on Aug. 29.`\
-https://nytimes.com/2024/08/08/crosswords/vertex-goodbye.html
-
-**Quotation of the Day: Extraordinarily Ordinary: Walz’s Path to Prominence**\
-`Quotation of the Day for Thursday, August 8, 2024.`\
-https://nytimes.com/2024/08/07/pageoneplus/quotation-of-the-day-extraordinarily-ordinary-walzs-path-to-prominence.html
-
-**Corrections: Aug. 8, 2024**\
-`Corrections that appeared in print on Thursday, Aug. 8, 2024.`\
-https://nytimes.com/2024/08/07/pageoneplus/corrections-aug-8-2024.html
-
-**Tim Walz’s Sudden Rise in the Democratic Party Was No Accident**\
-`More than a year ago, Tim Walz and his aides decided to be ready in case an irresistible opportunity arose. Their tightly held strategy helped them catch political lightning in a bottle.`\
-https://nytimes.com/2024/08/07/us/politics/tim-walz-kamala-harris-2024.html
-
-**Man Is Found Guilty in Killing of Rapper PnB Rock**\
-`Prosecutors said that the man, Freddie Lee Trone, sent his teenage son into a restaurant armed with a handgun to rob the rapper.`\
-https://nytimes.com/2024/08/07/arts/music/pnb-rock-death-freddie-trone.html
 
