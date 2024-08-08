@@ -1,3 +1,7 @@
+**For this U.S. women's basketball Olympic run, stop arguing and savor what we have**\
+`PARIS — They played poorly in the first half against Nigeria.`\
+https://nytimes.com/athletic/5686832/2024/08/08/team-usa-olympics-womens-basketball-team-aldridge/
+
 **Why Kenya Stopped Running From Its Doping Past**\
 `A nation synonymous with distance running was given a multimillion-dollar choice: Get serious about antidoping efforts, or get banned from world sports.`\
 https://nytimes.com/2024/08/08/world/olympics/kenya-olympics-doping.html
@@ -6,8 +10,8 @@ https://nytimes.com/2024/08/08/world/olympics/kenya-olympics-doping.html
 `Newcastle United have completed the signing of William Osula from Sheffield United.`\
 https://nytimes.com/athletic/5675576/2024/08/08/william-osula-newcastle-transfer/
 
-**Tsunami Warning in Effect in Japan After Strong Earthquakes**\
-`The warning was in place for parts of the islands of Kyushu and Shikoku in the south after quakes of 6.9 and 7.1 were reported.`\
+**Tsunami Warning Issued in Japan After Strong Earthquakes**\
+`The advisory was in place for parts of the islands of Kyushu and Shikoku in the south after quakes of 6.9 and 7.1 were reported.`\
 https://nytimes.com/2024/08/08/world/asia/japan-earthquake-tsunami-warning.html
 
 **Netherlands' Van Rouwendaal wins gold in Olympic marathon swimming**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/08/world/europe/carles-puigdemont-catalonia-spain.ht
 **Cashing In on Her Cultural Influence**\
 `Beverly Nguyen, a stylist, editor and merchant, has become a new soft power broker in New York.`\
 https://nytimes.com/2024/08/08/style/beverly-nguyen-new-york-culture.html
-
-**‘Borderlands’ Review: Shoot First, Ask Questions Never**\
-`In Eli Roth’s caper movie, based on the best-selling video game franchise, Cate Blanchett plays a bounty hunter who is tasked with finding a tycoon’s daughter.`\
-https://nytimes.com/2024/08/08/movies/borderlands-review.html
 
