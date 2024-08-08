@@ -1,3 +1,7 @@
+**Manchester United in 2024-25: Anticipating potential problems**\
+`United are a club in transition under Erik ten Hag. They should improve next season - but other problems might resurface…`\
+https://nytimes.com/athletic/5492115/2024/08/08/manchester-united-problems-2024-25/
+
 **Why Solanke suits Spurs and Postecoglou's style: Shot heavy, low passing & box focus**\
 `Dominic Solanke is of interest to Tottenham — this is why he would suit them to a tee`\
 https://nytimes.com/athletic/5686568/2024/08/08/dominic-solanke-tottenham-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/08/briefing/antiracism-britain-harris-vance-walz.htm
 **Olympic success for Thierry Henry may bring with it a path back to the big time**\
 `Henry has said that he loves the game "too much" to stay away from it and his latest attempt at coaching appears to be working out well`\
 https://nytimes.com/athletic/5686575/2024/08/08/thierry-henry-olympic-games-coach/
-
-**Explained: Manchester United's 'exceptional' £40m Covid loss**\
-`Why Manchester United lost £40m and what happened at other clubs`\
-https://nytimes.com/athletic/5687061/2024/08/08/manchester-uniteds-40m-controversial-covid-loss-explained/
 
