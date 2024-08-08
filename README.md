@@ -1,3 +1,15 @@
+**Nick Foles announces NFL retirement**\
+`Foles led the Eagles to winning the 2018 Super Bowl after starting QB Carson Wentz suffered a knee injury late in the season.`\
+https://nytimes.com/athletic/5689153/2024/08/08/nick-foles-retires-eagles/
+
+**‘It Ends With Us’ Review: Love Hurts, and Sometimes Bruises**\
+`Blake Lively plays Lily Bloom, a flower lover with a thorny personal garden, in this gauzy adaptation of Colleen Hoover’s best-selling novel.`\
+https://nytimes.com/2024/08/08/movies/it-ends-with-us-review.html
+
+**2024 on Track to Be the Hottest Year on Record**\
+`Last month was slightly less hot than the record-breaking July 2023, but the year is still likely to be the hottest ever, according to European climate scientists.`\
+https://nytimes.com/2024/08/08/climate/heat-records-2024.html
+
 **Sterling targeting England recall under new head coach**\
 `Chelsea forward Raheem Sterling says he wants to play for England under the team’s new coach after almost two years in the wilderness under previous manager Gareth Southgate.`\
 https://nytimes.com/athletic/5688878/2024/08/08/raheem-sterling-england-chelsea/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5688996/2024/08/08/bills-josh-allen-preseason-start
 **Bills 2024 camp debrief: Who's in good position and who isn't headed into the preseason**\
 `Some players played their way into better positions on the depth chart, while others have fallen.`\
 https://nytimes.com/athletic/5687549/2024/08/08/buffalo-bills-training-camp-debrief-preseason/
-
-**Over 100 Homes Damaged in Alaska After Glacial Lake Releases Flooding**\
-`The flooding this week in Juneau, Alaska, topped a record set last year when the same glacial basin overfilled, rapidly inundating nearby neighborhoods.`\
-https://nytimes.com/2024/08/08/us/alaska-juneau-flooding-glacier.html
-
-**Leicester in advanced talks to sign Buonanotte on loan**\
-`Leicester City are in advanced talks with Brighton and Hove Albion over the signing of midfielder Facundo Buonanotte.`\
-https://nytimes.com/athletic/5688941/2024/08/08/leicester-brighton-buonanotte-transfer-loan/
-
-**Harris Responds to Pro-Palestinian Protesters at Michigan Rally**\
-`Protesters interrupted Kamala Harris’s speech at a rally in Detroit.`\
-https://nytimes.com/video/us/politics/100000009618743/harris-rally-gaza-protesters.html
 
