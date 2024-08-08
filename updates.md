@@ -1,3 +1,15 @@
+**Harrison Jr. says his company, not himself, signed agreement with Fanatics**\
+`Both sides filed paperwork this week to New York County Supreme Court stating they wish to jointly engage a meditator at an appropriate time`\
+https://nytimes.com/athletic/5690158/2024/08/08/marvin-harrison-jr-fanatics-lawsuit/
+
+**Duane Thomas, Enigmatic Running Back for the Cowboys, Dies at 77**\
+`He led Dallas to its first Super Bowl victory after engaging in a well-publicized contract dispute in which he called Coach Tom Landry “plastic” and refused to talk to reporters.`\
+https://nytimes.com/2024/08/08/sports/football/duane-thomas-dead.html
+
+**Brooklyn Jail Is Too ‘Inhumane’ for 75-Year-Old Tax Scammer, Judge Says**\
+`A federal judge said he would sentence a man to house arrest instead of jail time if the Federal Bureau of Prisons sent him to the long-troubled Metropolitan Detention Center.`\
+https://nytimes.com/2024/08/08/nyregion/tax-fraud-mdc-brooklyn.html
+
 **The Darkness on the Edge of Trump**\
 `The former president’s deliberately frightening news conference felt like a tour of Mordor.`\
 https://nytimes.com/live/2024/08/07/opinion/thepoint/trump-press-conference-doom
