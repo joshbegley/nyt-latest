@@ -1,3 +1,7 @@
+**What’s Driving the Topsy-Turvy Markets**\
+`A key jobless claims report could join a hiring slowdown, corporate earnings, growth worries in weighing on investors during an August to forget.`\
+https://nytimes.com/2024/08/08/business/dealbook/markets-jobless-claims-recession.html
+
 **Are We Happy Yet?**\
 `The American obsession with individually defining, tracking and boosting happiness may be making us miserable.`\
 https://nytimes.com/2024/08/08/opinion/happiness-tracking-america.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5643724/2024/08/08/nfc-cornerback-outlook-2024/
 **‘The Instigators’ Review: Bumblers in Beantown**\
 `Casey Affleck and Matt Damon star in a Boston heist that goes sideways.`\
 https://nytimes.com/2024/08/08/movies/the-instigators-review.html
-
-**‘Girl You Know It’s True’ Review: Milli Vanilli, Fictionalized. Again.**\
-`This film, based on the lives of the duo who lip-synced their way to stardom and downfall, fills in many of the details behind the facade.`\
-https://nytimes.com/2024/08/08/movies/girl-you-know-its-true-review-milli-vanilli.html
 

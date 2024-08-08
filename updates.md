@@ -1,3 +1,7 @@
+**What’s Driving the Topsy-Turvy Markets**\
+`A key jobless claims report could join a hiring slowdown, corporate earnings, growth worries in weighing on investors during an August to forget.`\
+https://nytimes.com/2024/08/08/business/dealbook/markets-jobless-claims-recession.html
+
 **Are We Happy Yet?**\
 `The American obsession with individually defining, tracking and boosting happiness may be making us miserable.`\
 https://nytimes.com/2024/08/08/opinion/happiness-tracking-america.html
