@@ -1,3 +1,19 @@
+**Vibes, Polls and Definitions of the Harris Candidacy**\
+`Trump campaign staffers may be able to define her if she doesn’t beat them to the punch.`\
+https://nytimes.com/2024/08/08/upshot/kamala-harris-polls-vibes.html
+
+**Opinion Today: How to Live With Regret**\
+`“No regrets,” sounds nice, but is it real? Would we even want it to be?`\
+https://nytimes.com/2024/08/08/opinion/how-to-regret.html
+
+**A Watch Factory Embraces Workers with Autism**\
+`“It’s not just the focus in the first 10 pieces,” the owner said. “It’s being able to maintain that kind of a focus when you’re doing No. 400 and No. 401.”`\
+https://nytimes.com/2024/08/08/fashion/watches-autism-employment.html
+
+**John Mayer on Being the Watch World’s Celebrity ‘Go-To Guy’**\
+`The singer and songwriter talks about working with Audemars Piguet, how it felt when his design debuted and a prediction on the next big thing on everyone’s wrists.`\
+https://nytimes.com/2024/08/08/fashion/john-mayer-watches-audemars-piguet.html
+
 **Help! I’ve Been Ripped Off. I Want My Money Back!**\
 `Our columnist addresses a case of wire fraud, a credit card scheme and a dubious website — just three examples of the types of reader woe that regularly surface in the Tripped Up inbox.`\
 https://nytimes.com/2024/08/08/travel/scams-fraud-money-back-tips.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/08/07/opinion/thepoint/uncommitted-voters-democrat
 **Trump Says He’ll Focus on Issues. His Allies Are Not Holding Their Breath.**\
 `Donald J. Trump has attacked Kamala Harris with racially loaded insults and a new, confusing nickname. “I would stick to the price of groceries,” one Republican said.`\
 https://nytimes.com/2024/08/08/us/politics/trump-harris-campaign.html
-
-**A Grown-Up Take on Jell-O**\
-`Plus: glass cabins in Oregon, art about parenthood and more recommendations from T Magazine.`\
-https://nytimes.com/2024/08/08/t-magazine/a-grown-up-take-on-jell-o.html
-
-**100 Years of James Baldwin**\
-`How his “radical honesty” gave me permission to be myself.`\
-https://nytimes.com/2024/08/08/podcasts/100-years-of-james-baldwin.html
-
-**Downsizing With $700,000 on the East Side of Manhattan, Where ‘Charm Is More Expensive’**\
-`To find the right one-bedroom, a couple eschewed prewar style in favor of a cookie-cutter co-op.`\
-https://nytimes.com/interactive/2024/08/08/realestate/manhattan-east-side-apartment-sale.html
-
-**How to Avoid Another Recession**\
-`The Fed should preserve its option to pivot as new developments arise.`\
-https://nytimes.com/2024/08/08/opinion/fed-rate-cuts-economy-recession.html
 
