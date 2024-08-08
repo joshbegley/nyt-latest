@@ -1,3 +1,7 @@
+**Why Kenya Stopped Running From Its Doping Past**\
+`A nation synonymous with distance running was given a multimillion-dollar choice: Get serious about antidoping efforts, or get banned from world sports.`\
+https://nytimes.com/2024/08/08/world/olympics/kenya-olympics-doping.html
+
 **Tsunami Warning in Effect After Strong Earthquake in Japan**\
 `The warning was in place for parts of the islands of Kyushu and Shikoku in the south after a quake of at least magnitude 6.9 was reported.`\
 https://nytimes.com/2024/08/08/world/asia/japan-earthquake-tsunami-warning.html
