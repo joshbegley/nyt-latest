@@ -1,3 +1,7 @@
+**This Bawdy Dramedy Presents a Fantasy of Online Sex Work**\
+`A new Norwegian series on Max follows a stifled wife and mother who finds excitement and a new identity by posting explicit photos online.`\
+https://nytimes.com/2024/08/08/arts/television/this-bawdy-dramedy-presents-a-fantasy-of-online-sex-work.html
+
 **In a Swampy North Carolina Town, Floods Are ‘Just Getting Tiresome’**\
 `The roughly 1,600 residents of Bladenboro, N.C., have gotten used to storm systems inundating their streets. And the floods just keep coming.`\
 https://nytimes.com/2024/08/08/weather/debby-floods-bladenboro-north-carolina.html

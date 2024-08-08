@@ -1,3 +1,7 @@
+**This Bawdy Dramedy Presents a Fantasy of Online Sex Work**\
+`A new Norwegian series on Max follows a stifled wife and mother who finds excitement and a new identity by posting explicit photos online.`\
+https://nytimes.com/2024/08/08/arts/television/this-bawdy-dramedy-presents-a-fantasy-of-online-sex-work.html
+
 **In a Swampy North Carolina Town, Floods Are ‘Just Getting Tiresome’**\
 `The roughly 1,600 residents of Bladenboro, N.C., have gotten used to storm systems inundating their streets. And the floods just keep coming.`\
 https://nytimes.com/2024/08/08/weather/debby-floods-bladenboro-north-carolina.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/08/world/israel-iran-hamas-gaza-war/iraq-arrest
 **USA vs. France Olympics gold medal basketball game odds: Americans heavy favorites**\
 `The U.S. men's basketball team is favored by double-digits ahead of the gold medal game against France.`\
 https://nytimes.com/athletic/5690015/2024/08/08/usa-france-olympics-gold-medal-basketball-game-odds/
-
-**Maine Will Vote on a New State Flag**\
-`A state committee selected a contest winner from more than 400 submissions. The Chuck Norris flag didn’t make the cut.`\
-https://nytimes.com/2024/08/08/style/main-state-flag-contest.html
 
