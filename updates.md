@@ -1,3 +1,19 @@
+**Third Death Is Tied to Listeria, Health Officials Say**\
+`The death in Virginia came amid a nationwide outbreak linked to Boar’s Head deli meats. More than 40 people have been hospitalized.`\
+https://nytimes.com/2024/08/08/us/listeria-outbreak-third-death.html
+
+**Let’s Review Restaurant Etiquette**\
+`Three general managers weigh in so that everyone — diners and staff — have the best restaurant experience possible.`\
+https://nytimes.com/2024/08/08/dining/restaurant-etiquette.html
+
+**6 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/08/08/books/review/new-books-recommendations.html
+
+**Falcons WR Rondale Moore placed on season-ending IR**\
+`Moore was injured in the second half of a two-hour joint practice between the Falcons and Dolphins in Miami on Wednesday`\
+https://nytimes.com/athletic/5689827/2024/08/08/falcons-rondale-moore-knee-injury/
+
 **Grant Holloway captures golden redemption with hurdles win**\
 `The win reclaims an event dominated by Americans through the 20th century, when the U.S. claimed 17 of a possible 22 golds.`\
 https://nytimes.com/athletic/5689658/2024/08/08/grant-holloway-mens-hurdles-olympics-results/
