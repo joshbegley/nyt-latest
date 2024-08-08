@@ -1,3 +1,7 @@
+**Tim Walz and the Weird Politics of Free School Lunches**\
+`Another reminder that MAGA isn’t “populist.”`\
+https://nytimes.com/2024/08/08/opinion/tim-walz-school-lunch.html
+
 **House Republicans Pivot Scrutiny From Biden to Harris**\
 `Three months ahead of the election, congressional Republicans are moving to close a strategic gap.`\
 https://nytimes.com/2024/08/08/us/politics/harris-house-republicans-investigations.html

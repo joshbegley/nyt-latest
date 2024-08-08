@@ -1,3 +1,7 @@
+**Tim Walz and the Weird Politics of Free School Lunches**\
+`Another reminder that MAGA isn’t “populist.”`\
+https://nytimes.com/2024/08/08/opinion/tim-walz-school-lunch.html
+
 **House Republicans Pivot Scrutiny From Biden to Harris**\
 `Three months ahead of the election, congressional Republicans are moving to close a strategic gap.`\
 https://nytimes.com/2024/08/08/us/politics/harris-house-republicans-investigations.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/07/opinion/thepoint/trump-press-conference-doom
 **Sydney McLaughlin breaks her own 400-meter hurdle record. Again.**\
 `Sydney McLaughlin-Levrone broke her own world record on her way to winning gold for the United States in the 400 meter hurdles.`\
 https://nytimes.com/2024/08/08/world/olympics/sydney-mclaughlin-levrone-400-meter-hurdles.html
-
-**Commanders show they're still a work in progress during joint practice vs. Jets**\
-`In wet and rainy conditions, Jayden Daniels got his first reps against an opposing team. Plus, the defense struggled to stop Garrett Wilson.`\
-https://nytimes.com/athletic/5689979/2024/08/08/commanders-jets-joint-practice/
 
