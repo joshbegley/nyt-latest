@@ -1,40 +1,40 @@
-**What’s It Like to Be Drug-Tested? We Asked Three Olympic Runners.**\
-`It will never feel normal, athletes said, to have a stranger knock on your door and ask for a vial of your blood. Or some urine.`\
-https://nytimes.com/2024/08/08/world/olympics/drug-testing-track.html
+**Help! I’ve Been Ripped Off. I Want My Money Back!**\
+`Our columnist addresses a case of wire fraud, a credit card scheme and a dubious website — just three examples of the types of reader woe that regularly surface in the Tripped Up inbox.`\
+https://nytimes.com/2024/08/08/travel/scams-fraud-money-back-tips.html
 
-**For this U.S. women's basketball Olympic run, stop arguing and savor what we have**\
-`PARIS — They played poorly in the first half against Nigeria.`\
-https://nytimes.com/athletic/5686832/2024/08/08/team-usa-olympics-womens-basketball-team-aldridge/
+**Homes for Sale in Manhattan and Queens**\
+`This week’s properties are in the East Village, on the Upper West Side and in Hunters Point.`\
+https://nytimes.com/2024/08/08/realestate/homes-for-sale-in-manhattan-and-queens.html
 
-**Why Kenya Stopped Running From Its Doping Past**\
-`A nation synonymous with distance running was given a multimillion-dollar choice: Get serious about antidoping efforts, or get banned from world sports.`\
-https://nytimes.com/2024/08/08/world/olympics/kenya-olympics-doping.html
+**Homes for Sale in New York and Connecticut**\
+`This week’s properties are four-bedroom homes in Muttontown, N.Y., and Redding, Conn.`\
+https://nytimes.com/2024/08/08/realestate/homes-for-sale-in-new-york-and-connecticut.html
 
-**Osula joins Newcastle from Sheffield Utd**\
-`Newcastle United have completed the signing of William Osula from Sheffield United.`\
-https://nytimes.com/athletic/5675576/2024/08/08/william-osula-newcastle-transfer/
+**Heat Waves and Droughts Are a Bonanza for Junk Food Companies**\
+`Ultraprocessed food companies are taking advantage of worsening environmental conditions to increase their profits.`\
+https://nytimes.com/2024/08/08/opinion/climate-change-junk-food.html
 
-**Tsunami Warning Issued in Japan After Strong Earthquakes**\
-`The advisory was in place for parts of the islands of Kyushu and Shikoku in the south after quakes of 6.9 and 7.1 were reported.`\
-https://nytimes.com/2024/08/08/world/asia/japan-earthquake-tsunami-warning.html
+**What Do Uncommitted Voters Want From Kamala Harris?**\
+`The antiwar movement has emerged as a real political force.`\
+https://nytimes.com/live/2024/08/07/opinion/thepoint/uncommitted-voters-democratic-convention
 
-**Netherlands' Van Rouwendaal wins gold in Olympic marathon swimming**\
-`Swimming events in the Seine have been at risk due to high levels of pollution in Paris' iconic river`\
-https://nytimes.com/athletic/5688362/2024/08/08/olympic-marathon-swimming-van-rouwendaal/
+**Trump Says He’ll Focus on Issues. His Allies Are Not Holding Their Breath.**\
+`Donald J. Trump has attacked Kamala Harris with racially loaded insults and a new, confusing nickname. “I would stick to the price of groceries,” one Republican said.`\
+https://nytimes.com/2024/08/08/us/politics/trump-harris-campaign.html
 
-**How Haas broke out of F1’s backfield — and sent a message to the rest of the grid**\
-`Now led by Ayao Komatsu, F1's smallest team has made what looks like a permanent step forward. `\
-https://nytimes.com/athletic/5676716/2024/08/08/haas-f1-backfield-magnussen-hulkenberg-ocon-bearman/
+**A Grown-Up Take on Jell-O**\
+`Plus: glass cabins in Oregon, art about parenthood and more recommendations from T Magazine.`\
+https://nytimes.com/2024/08/08/t-magazine/a-grown-up-take-on-jell-o.html
 
-**Here’s the latest on the tropical storm.**\
-`The tropical storm spent much of Wednesday meandering off The Atlantic coast, regaining its strength from the warm waters below before making another pass over land.`\
-https://nytimes.com/live/2024/weather/debby-storm-forecast/heres-the-latest-on-the-tropical-storm
+**100 Years of James Baldwin**\
+`How his “radical honesty” gave me permission to be myself.`\
+https://nytimes.com/2024/08/08/podcasts/100-years-of-james-baldwin.html
 
-**Tornado Warning Issued in Parts of Central North Carolina**\
-`The National Weather Service said flying debris from a “large and extremely dangerous” tornado would be deadly for those not taking shelter.`\
-https://nytimes.com/2024/08/08/weather/tornado-warning-north-carolina-debby.html
+**Downsizing With $700,000 on the East Side of Manhattan, Where ‘Charm Is More Expensive’**\
+`To find the right one-bedroom, a couple eschewed prewar style in favor of a cookie-cutter co-op.`\
+https://nytimes.com/interactive/2024/08/08/realestate/manhattan-east-side-apartment-sale.html
 
-**Defying Spanish Arrest Warrant, Carles Puigdemont Returns to Catalonia**\
-`Large crowds greeted the former regional leader, who has lived in self-imposed exile since a failed 2017 independence bid. Despite a new amnesty law, he could still face arrest.`\
-https://nytimes.com/2024/08/08/world/europe/carles-puigdemont-catalonia-spain.html
+**How to Avoid Another Recession**\
+`The Fed should preserve its option to pivot as new developments arise.`\
+https://nytimes.com/2024/08/08/opinion/fed-rate-cuts-economy-recession.html
 
