@@ -1,3 +1,7 @@
+**Barcelona transfers update - what's the situation with Gundogan, Roque and others?**\
+`Freeing up space on the wage bill would be a big help in Barca being able to register players, but any exits appear to be stuck at present`\
+https://nytimes.com/athletic/5688490/2024/08/08/barcelona-transfers-gundogan-roque-fati-lenglet/
+
 **Olympic Medals Offer Ukraine a Brief Respite From War**\
 `Ukraine has won eight medals so far at the Paris Olympics. Each has been celebrated in the war-torn country as a symbol of resilience and defiance.`\
 https://nytimes.com/2024/08/08/world/europe/ukraine-olympic-medals.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5688550/2024/08/08/harry-maguire-victor-lindelof-co
 **From baseball scandal to La Liga promotion - Leganes’ Jeff Luhnow and a twist on Big Data**\
 `They will face a challenge in La Liga next year against Real Madrid and Barcelona - but Leganes have big ambitions`\
 https://nytimes.com/athletic/5686815/2024/08/08/leganes-luhnow-houston-astros-la-liga-promotion/
-
-**The Athletic FC: Atletico - centre of Euro transfers, Arteta's pickpockets and Liverpool's AI**\
-`Today in The Athletic FC: Why Simeone has been handed £200m at Atletico, how Arteta rebuilt Arsenal and Liverpool's AI corners`\
-https://nytimes.com/athletic/5688459/2024/08/08/atletico-transfers-gallagher-arteta-pickpockets-liverpool-ai-the-athletic-fc/
 
