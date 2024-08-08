@@ -1,3 +1,15 @@
+**Who will replace Pedro Grifol as White Sox manager?**\
+`For the third time since firing Rick Renteria after the 2020 season, the White Sox are looking for a new manager. What will they do?`\
+https://nytimes.com/athletic/5685410/2024/08/08/next-white-sox-manager-options-hire/
+
+**The Trial Judge Who Has to Clean Up the Supreme Court’s Mess**\
+`Judge Tanya Chutkan now has to determine which charges against Trump involved official acts, and which did not.`\
+https://nytimes.com/live/2024/08/07/opinion/thepoint/chutkan-trump-supreme-court
+
+**Scoop City: Aiyuk, Maye and other players to watch**\
+`Watch guide for the NFL preseason Week 1 games between the Panthers and Patriots, Lions and Giants.`\
+https://nytimes.com/athletic/5688930/2024/08/08/nfl-preseason-week-1-scoop-city/
+
 **WADA, USADA clash over American agency's use of 'undercover agents' to catch drug cheats**\
 `The World Anti-Doping Agency and United States Anti-Doping Agency are at odds over a USADA plan to root out drug cheats.`\
 https://nytimes.com/athletic/5688595/2024/08/08/wada-usada-undercover-agents-doping/
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2024/08/08/travel/things-to-do-helsinki.html
 **Navigating a new role, Nick Sirianni taps Dawn Staley for guidance**\
 `The Eagles coach asked the basketball legend to speak to his players.`\
 https://nytimes.com/athletic/5687068/2024/08/08/eagles-coach-nick-sirianni-dawn-staley/
-
-**Red Wings future lineup projection: How Detroit could look in three years**\
-`Max Bultman projects and assesses Detroit's lineup three years out to gauge how the Red Wings' rebuild is progressing.`\
-https://nytimes.com/athletic/5687358/2024/08/08/red-wings-2027-28-lineup-projection/
-
-**Katie Ledecky, Nick Mead named closing ceremony flag bearers**\
-`They are the first duo to share the honor for Team USA in the closing ceremony.`\
-https://nytimes.com/athletic/5688732/2024/08/08/katie-ledecky-nick-mead-flag-bearers-olympics-closing-ceremony/
-
-**Kyle Dake chases Olympic wrestling gold, helped by a bond with an old friend**\
-`As Kyle Dake tries for another Olympic medal, he's got a good friend on his side — former rival and 2020 Olympic gold medalist David Taylor.`\
-https://nytimes.com/athletic/5643036/2024/08/08/kyle-dake-david-taylor-olympics-wrestling-paris/
 
