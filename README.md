@@ -1,3 +1,19 @@
+**Osula joins Newcastle from Sheffield Utd**\
+`Newcastle United have completed the signing of William Osula from Sheffield United.`\
+https://nytimes.com/athletic/5675576/2024/08/08/william-osula-newcastle-transfer/
+
+**Tsunami Warning in Effect After Strong Earthquake in Japan**\
+`The warning was in place for parts of the islands of Kyushu and Shikoku in the south after a quake of at least magnitude 6.9 was reported.`\
+https://nytimes.com/2024/08/08/world/asia/japan-earthquake-tsunami.html
+
+**Netherlands' Van Rouwendaal wins gold in Olympic marathon swimming**\
+`Swimming events in the Seine have been at risk due to high levels of pollution in Paris' iconic river`\
+https://nytimes.com/athletic/5688362/2024/08/08/olympic-marathon-swimming-van-rouwendaal/
+
+**How Haas broke out of F1’s backfield — and sent a message to the rest of the grid**\
+`Now led by Ayao Komatsu, F1's smallest team has made what looks like a permanent step forward. `\
+https://nytimes.com/athletic/5676716/2024/08/08/haas-f1-backfield-magnussen-hulkenberg-ocon-bearman/
+
 **Here’s the latest on the tropical storm.**\
 `The tropical storm spent much of Wednesday meandering off The Atlantic coast, regaining its strength from the warm waters below before making another pass over land.`\
 https://nytimes.com/live/2024/weather/debby-storm-forecast/heres-the-latest-on-the-tropical-storm
@@ -21,20 +37,4 @@ https://nytimes.com/2024/08/08/movies/borderlands-review.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/08/08/crosswords/spelling-bee-forum.html
-
-**How an Instagram-Perfect Life in the Hamptons Ended in Tragedy**\
-`Candice and Brandon Miller showed the public a world of glittering parties and vacations. The money to sustain it did not exist.`\
-https://nytimes.com/2024/08/08/nyregion/brandon-miller-suicide-debt.html
-
-**7 Years After ‘Summer of Hell,’ the Subway Is Approaching Another Crisis**\
-`The suspension of congestion pricing has put off critically needed repairs to New York City’s transit network. Experts say the system hangs by a thread.`\
-https://nytimes.com/2024/08/08/nyregion/subway-mta-finances-congestion-pricing.html
-
-**Signs of improvement from Villa as an uncertain pre-season nears its conclusion**\
-`Unai Emery has revamped his Champions League-bound squad but defensive issues and a lack of depth in key areas remain`\
-https://nytimes.com/athletic/5687531/2024/08/08/villa-athletic-bilbao-pre-season-uncertainty/
-
-**Padres show 'fighting spirit' to win a sixth straight series**\
-`San Diego overcame errors and adversity against Pittsburgh — hitting three momentum-swinging home runs — in an extra-inning comeback win.`\
-https://nytimes.com/athletic/5687349/2024/08/08/padres-win-sixth-straight-series/
 
