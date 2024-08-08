@@ -1,5 +1,5 @@
 **Trump Claims Jan. 6 Crowd Rivaled the 1963 March on Washington. Estimates Say Otherwise.**\
-`The former president said during a news conference that the attendance at his rally on Jan. 6, 2021 was equal, if not larger, than the March on Washington in 1963.`\
+`The former president said during a news conference that the attendance at his rally on Jan. 6, 2021, was equal, if not larger, than the March on Washington in 1963.`\
 https://nytimes.com/2024/08/08/us/politics/trump-jan-6-mlk-crowds.html
 
 **Trump Suggests that President Should Have a ‘Say’ in Interest Rates**\
