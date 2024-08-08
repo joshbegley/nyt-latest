@@ -1,7 +1,3 @@
-**Brooklyn Jail Is Too ‘Inhumane’ for 75-Year-Old Tax Scammer, Judge Says**\
-`A federal judge said he would sentence a man to house arrest instead of jail time if the Federal Bureau of Prisons sent him to the long-troubled Metropolitan Detention Center.`\
-https://nytimes.com/2024/08/08/nyregion/tax-fraud-mdc-brooklyn.html
-
 **The Darkness on the Edge of Trump**\
 `The former president’s deliberately frightening news conference felt like a tour of Mordor.`\
 https://nytimes.com/live/2024/08/07/opinion/thepoint/trump-press-conference-doom
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5690029/2024/08/08/49ers-titans-preseason-starters-
 **Newsom Clears Homeless Camps in L.A. County, Where He Wants More ‘Urgency’**\
 `Gov. Gavin Newsom, frustrated by county leaders who spurned his executive order cracking down on encampments, visited their turf to clear homeless sites.`\
 https://nytimes.com/2024/08/08/us/newsom-homeless-los-angeles.html
+
+**Trump and Harris Agreed to a September Debate**\
+`Also, Ukraine launched a surprise push into Russia. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/08/08/briefing/trump-harris-debate-ukraine-russia-incursion.html
 
