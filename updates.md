@@ -1,3 +1,11 @@
+**Projecting the Ducks' opening-night lineup: Where will Cutter Gauthier fit?**\
+`The Ducks came up empty on big free agents this summer, but where will they slot their young players?`\
+https://nytimes.com/athletic/5689209/2024/08/08/anaheim-ducks-2024-25-lineup/
+
+**Veggie Taco Party!**\
+`It’s my go-to meal for a crowd of vegetarians, or anyone who’d love stuffed pepper tacos, green peach salad with lime dressing and jiggly coconut pudding.`\
+https://nytimes.com/2024/08/08/dining/veggie-taco-party.html
+
 **Veterans and Lawmakers Lobby in Bipartisan Push for MDMA Therapy**\
 `The F.D.A. is poised to rule on the therapeutic use of the club drug Ecstasy, a potential watershed moment in the nascent field of psychedelic medicine.`\
 https://nytimes.com/2024/08/08/health/fda-mdma-therapy.html

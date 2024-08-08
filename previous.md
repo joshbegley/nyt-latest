@@ -1,3 +1,11 @@
+**Projecting the Ducks' opening-night lineup: Where will Cutter Gauthier fit?**\
+`The Ducks came up empty on big free agents this summer, but where will they slot their young players?`\
+https://nytimes.com/athletic/5689209/2024/08/08/anaheim-ducks-2024-25-lineup/
+
+**Veggie Taco Party!**\
+`It’s my go-to meal for a crowd of vegetarians, or anyone who’d love stuffed pepper tacos, green peach salad with lime dressing and jiggly coconut pudding.`\
+https://nytimes.com/2024/08/08/dining/veggie-taco-party.html
+
 **Veterans and Lawmakers Lobby in Bipartisan Push for MDMA Therapy**\
 `The F.D.A. is poised to rule on the therapeutic use of the club drug Ecstasy, a potential watershed moment in the nascent field of psychedelic medicine.`\
 https://nytimes.com/2024/08/08/health/fda-mdma-therapy.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5689130/2024/08/08/quincy-wilson-youngest-male-trac
 **Nick Foles announces NFL retirement**\
 `Foles led the Eagles to winning the 2018 Super Bowl after starting QB Carson Wentz suffered a knee injury late in the season.`\
 https://nytimes.com/athletic/5689153/2024/08/08/nick-foles-retires-eagles/
-
-**‘It Ends With Us’ Review: Love Hurts, and Sometimes Bruises**\
-`Blake Lively plays Lily Bloom, a flower lover with a thorny personal garden, in this gauzy adaptation of Colleen Hoover’s best-selling novel.`\
-https://nytimes.com/2024/08/08/movies/it-ends-with-us-review.html
-
-**2024 on Track to Be the Hottest Year on Record**\
-`Last month was slightly less hot than the record-breaking July 2023, but the year is still likely to be the hottest ever, according to European climate scientists.`\
-https://nytimes.com/2024/08/08/climate/heat-records-2024.html
 
