@@ -1,3 +1,11 @@
+**F1 owner Liberty Media confirms DOJ antitrust investigation into Andretti rejection**\
+`F1 rejection of Andretti’s bid to join the grid for 2025 or 2026 has sparked movement in congress to investigate the company.`\
+https://nytimes.com/athletic/5689786/2024/08/08/f1-andretti-liberty-media-doj-antitrust/
+
+**Every Four Years, He Gives Ireland a Reason to Watch Basketball**\
+`While the Irish have no team in the Olympic tournament, Timmy McCarthy’s eccentric, enthusiastic commentary has earned him his own fervent fan base.`\
+https://nytimes.com/2024/08/08/world/europe/basketball-commentary-ireland-timmy-mccarthy.html
+
 **Mockery Won’t Increase Fertility**\
 `Culture warriors aren’t going to change plunging birthrates this way.`\
 https://nytimes.com/2024/08/08/opinion/birth-rate-jd-vance.html

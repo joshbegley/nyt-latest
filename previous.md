@@ -1,3 +1,11 @@
+**F1 owner Liberty Media confirms DOJ antitrust investigation into Andretti rejection**\
+`F1 rejection of Andretti’s bid to join the grid for 2025 or 2026 has sparked movement in congress to investigate the company.`\
+https://nytimes.com/athletic/5689786/2024/08/08/f1-andretti-liberty-media-doj-antitrust/
+
+**Every Four Years, He Gives Ireland a Reason to Watch Basketball**\
+`While the Irish have no team in the Olympic tournament, Timmy McCarthy’s eccentric, enthusiastic commentary has earned him his own fervent fan base.`\
+https://nytimes.com/2024/08/08/world/europe/basketball-commentary-ireland-timmy-mccarthy.html
+
 **Mockery Won’t Increase Fertility**\
 `Culture warriors aren’t going to change plunging birthrates this way.`\
 https://nytimes.com/2024/08/08/opinion/birth-rate-jd-vance.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5689827/2024/08/08/falcons-rondale-moore-knee-injur
 **Grant Holloway captures golden redemption with hurdles win**\
 `The win reclaims an event dominated by Americans through the 20th century, when the U.S. claimed 17 of a possible 22 golds.`\
 https://nytimes.com/athletic/5689658/2024/08/08/grant-holloway-mens-hurdles-olympics-results/
-
-**Mary Wings, Pioneering Creator of Queer Comics, Dies at 75**\
-`She was the first openly gay woman to write a comic book about lesbians. She went on to write detective novels with a queer woman in the lead.`\
-https://nytimes.com/2024/08/08/arts/mary-wings-dead.html
-
-**Iranians Accused of Smuggling Missile Components Intended for Houthi Rebels**\
-`The Justice Department charged two Iranians with smuggling missile parts that were seized in January in the Arabian Sea. The search resulted in charges for four others and the deaths of two Navy SEALs.`\
-https://nytimes.com/2024/08/08/us/politics/iranians-missiles-houthi-rebels.html
 
