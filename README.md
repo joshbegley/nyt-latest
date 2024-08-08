@@ -1,3 +1,7 @@
+**Bills 2024 camp debrief: Who's in good position and who isn't headed into the preseason**\
+`Some players played their way into better positions on the depth chart, while others have fallen.`\
+https://nytimes.com/athletic/5687549/2024/08/08/buffalo-bills-training-camp-debrief-preseason/
+
 **Over 100 Homes Damaged in Alaska After Glacial Lake Releases Flooding**\
 `The flooding this week in Juneau, Alaska, topped a record set last year when the same glacial basin overfilled, rapidly inundating nearby neighborhoods.`\
 https://nytimes.com/2024/08/08/us/alaska-juneau-flooding-glacier.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/08/dining/these-chipotle-honey-chicken-tacos-are-pus
 **‘I Am Speaking Now’: At a Rally in Detroit, Harris Stares Down Her Detractors**\
 `The vice president’s reaction to pro-Palestinian protesters shows how she can turn efforts to rattle her to her own advantage.`\
 https://nytimes.com/2024/08/08/us/politics/harris-rally-gaza-protesters.html
-
-**What to Know About the Park Fire, the 4th Largest in California History**\
-`The rapidly spreading fire has consumed over 426,000 acres since it started burning in late July.`\
-https://nytimes.com/2024/08/08/us/park-fire-california.html
 
