@@ -1,3 +1,11 @@
+**Advertising Coalition Shuts Down After X, Owned by Elon Musk, Sues**\
+`The Global Alliance for Responsible Media will dissolve after Mr. Musk accused the group of orchestrating a boycott.`\
+https://nytimes.com/2024/08/08/technology/elon-musk-x-advertisers-boycott.html
+
+**“She couldn’t pass her bar exam.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/08/us/harris-trump-election/she-couldnt-pass-her-bar-exam
+
 **“They’re drilling now because they had to go back because gasoline was going up to seven, eight, nine dollars a barrel. The day after the election, if they won, you’re going to have fuel prices go through the roof.”**\
 `By Coral Davenport`\
 https://nytimes.com/live/2024/08/08/us/harris-trump-election/theyre-drilling-now-because-they-had-to-go-back-because-gasoline-was-going-up-to-seven-eight-nine-dollars-a-barrel-the-day-after

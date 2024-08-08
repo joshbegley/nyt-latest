@@ -1,3 +1,27 @@
+**Why White Supremacists Are Trying to Attack Energy Grids**\
+`An ideology with roots in white supremacist writings in the 20th century found renewed attention in neo-Nazi online groups in the 2010s and has inspired recent plots, say researchers.`\
+https://nytimes.com/2024/08/08/us/white-supremacist-power-grid-attacks.html
+
+**“They’re going to destroy Social Security.”**\
+`By Alan Rappeport`\
+https://nytimes.com/live/2024/08/08/us/harris-trump-election/theyre-going-to-destroy-social-security
+
+**Betting on youth: An accounting of how drafting unproven track records has worked out for fantasy baseball 2024**\
+`Michael Salfino looks at nine young stars drafted among the Top 50 for fantasy baseball 2023 to see how those investments have worked out.`\
+https://nytimes.com/athletic/5689627/2024/08/08/betting-on-youth-an-accounting-of-how-drafting-unproven-track-records-has-worked-out-for-fantasy-baseball-2024/
+
+**“Our tax cuts, which are the biggest in history.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/08/us/harris-trump-election/our-tax-cuts-which-are-the-biggest-in-history
+
+**“They’re drilling now because they had to go back because gasoline was going up to seven, eight, nine dollars a barrel. The day after the election, if they won, you’re going to have fuel prices go through the roof.”**\
+`By Coral Davenport`\
+https://nytimes.com/live/2024/08/08/us/harris-trump-election/theyre-drilling-now-because-they-had-to-go-back-because-gasoline-was-going-up-to-seven-eight-nine-dollars-a-barrel-the-day-after
+
+**“If you go back and check your records for 18 months, I had a talk with Abdul. Abdul was the leader of the Taliban still is, but had a strong talk with him. For 18 months. Not one American soldier was shot at or killed, but not even shot at 18 months.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/08/us/harris-trump-election/if-you-go-back-and-check-your-records-for-18-months-i-had-a-talk-with-abdul-abdul-was-the-leader-of-the-taliban-still-is-but-had
+
 **‘Saturday Night Live’: Meet the Candidates**\
 `Steve Martin is out, and the roles of Kamala Harris and Donald Trump seem settled. But the internet has been busy dream-casting the rest of the “S.N.L.” election ticket.`\
 https://nytimes.com/2024/08/08/arts/television/snl-2024-election-harris-trump.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5689294/2024/08/08/freaks-list-michigan-penn-state-
 **Letsile Tebogo wins Olympic gold over Lyles, Bednarek**\
 `Noah Lyles was humbled. He ran a decent time of 19.70. But he was never really a threat to win it.`\
 https://nytimes.com/athletic/5689607/2024/08/08/letsile-tebogo-olympics-200m-results-noah-lyles/
-
-**“Nobody was killed on Jan. 6.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/08/08/us/harris-trump-election/nobody-was-killed-on-jan-6
-
-**NOAA Forecasts Highly Active Hurricane Season Will Continue**\
-`The agency’s new forecast predicts that as many as 24 named tropical storms could form between June 1 and Nov. 30.`\
-https://nytimes.com/2024/08/08/climate/noaa-hurricane-forecast.html
-
-**“Inflation was caused by their bad energy problems.”**\
-`By Alan Rappeport`\
-https://nytimes.com/live/2024/08/08/us/harris-trump-election/inflation-was-caused-by-their-bad-energy-problems
-
-**Athlete Dies in Texas Lake During CrossFit Games Swimming Competition**\
-`Search-and-rescue teams were called after a participant in the event had not been seen in the water for some time.`\
-https://nytimes.com/2024/08/08/us/crossfit-games-2024-death.html
-
-**Advertising Coalition Shuts Down After X, Owned by Elon Musk, Sues**\
-`The Global Alliance for Responsible Media will dissolve after Mr. Musk accused the group of orchestrating a boycott.`\
-https://nytimes.com/2024/08/08/technology/elon-musk-x-advertisers-boycott.html
-
-**“She couldn’t pass her bar exam.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/08/08/us/harris-trump-election/she-couldnt-pass-her-bar-exam
 
