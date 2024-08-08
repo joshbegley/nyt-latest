@@ -1,3 +1,11 @@
+**White Sox fire manager Pedro Grifol**\
+`Grifol compiled a 89-190 record in less than two seasons at the helm on the South Side.`\
+https://nytimes.com/athletic/5672153/2024/08/08/white-sox-pedro-grifol-fired/
+
+**Can Fed Officials Still Nail the Landing? As Rate Cuts Near, It’s a Moment of Truth.**\
+`The Federal Reserve was about to cut interest rates, turning the corner after a long fight with inflation. But now, its soft landing is in question.`\
+https://nytimes.com/2024/08/08/business/economy/federal-interest-rates-inflation.html
+
 **36 Hours in Helsinki**\
 `Find the secret to happiness in Finland’s capital — perhaps while sweating in a wood-burning sauna or sipping cocktails on a schooner.`\
 https://nytimes.com/interactive/2024/08/08/travel/things-to-do-helsinki.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/08/us/politics/trump-news-conference.html
 **Chargers training camp, Day 13: Players, coaches eager for live action**\
 `Tre’Mon Morris-Brash is among the Chargers' rookies who has flashed and the team is excited to see against the Seahawks on Saturday.`\
 https://nytimes.com/athletic/5688255/2024/08/08/chargers-training-camp-preseason-seahawks/
-
-**CNN’s Media Chronicler Strikes Out on His Own**\
-`Oliver Darcy is starting a subscription-based news site dedicated to covering the media industry, joining a crowded field.`\
-https://nytimes.com/2024/08/08/business/media/oliver-darcy-status-media.html
-
-**Barcelona transfers update - what's the situation with Gundogan, Roque and others?**\
-`Freeing up space on the wage bill would be a big help in Barca being able to register players, but any exits appear to be stuck at present`\
-https://nytimes.com/athletic/5688490/2024/08/08/barcelona-transfers-gundogan-roque-fati-lenglet/
 
