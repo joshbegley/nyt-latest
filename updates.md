@@ -1,3 +1,15 @@
+**The New A.I. Deal: Buy Everything but the Company**\
+`Google, Microsoft and Amazon have made deals with A.I. start-ups for their technology and top employees, but have shied from owning the firms. Here’s why.`\
+https://nytimes.com/2024/08/08/technology/ai-start-ups-google-microsoft-amazon.html
+
+**Greenberg: Pedro Grifol and the White Sox are better off without each other**\
+`With a 21-game losing streak hovering over his dismal managerial ledger, Grifol was mercifully fired after sustained futility.`\
+https://nytimes.com/athletic/5673746/2024/08/08/chicago-white-sox-pedro-grifol-fired/
+
+**From Tips to TikTok, Trump Discards Policies With Aim to Please Voters**\
+`The former president’s economic agenda has made some notable reversals from the policies he pushed while in the White House.`\
+https://nytimes.com/2024/08/08/us/politics/trump-tax-tips-tiktok-crypto.html
+
 **Who will replace Pedro Grifol as White Sox manager?**\
 `For the third time since firing Rick Renteria after the 2020 season, the White Sox are looking for a new manager. What will they do?`\
 https://nytimes.com/athletic/5685410/2024/08/08/next-white-sox-manager-options-hire/

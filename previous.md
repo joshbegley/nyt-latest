@@ -1,3 +1,15 @@
+**The New A.I. Deal: Buy Everything but the Company**\
+`Google, Microsoft and Amazon have made deals with A.I. start-ups for their technology and top employees, but have shied from owning the firms. Here’s why.`\
+https://nytimes.com/2024/08/08/technology/ai-start-ups-google-microsoft-amazon.html
+
+**Greenberg: Pedro Grifol and the White Sox are better off without each other**\
+`With a 21-game losing streak hovering over his dismal managerial ledger, Grifol was mercifully fired after sustained futility.`\
+https://nytimes.com/athletic/5673746/2024/08/08/chicago-white-sox-pedro-grifol-fired/
+
+**From Tips to TikTok, Trump Discards Policies With Aim to Please Voters**\
+`The former president’s economic agenda has made some notable reversals from the policies he pushed while in the White House.`\
+https://nytimes.com/2024/08/08/us/politics/trump-tax-tips-tiktok-crypto.html
+
 **Who will replace Pedro Grifol as White Sox manager?**\
 `For the third time since firing Rick Renteria after the 2020 season, the White Sox are looking for a new manager. What will they do?`\
 https://nytimes.com/athletic/5685410/2024/08/08/next-white-sox-manager-options-hire/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/08/theater/glengarry-broadway-culkin-odenkirk-burr.h
 **White Sox fire manager Pedro Grifol**\
 `Grifol compiled a 89-190 record in less than two seasons at the helm on the South Side.`\
 https://nytimes.com/athletic/5672153/2024/08/08/white-sox-pedro-grifol-fired/
-
-**Can Fed Officials Still Nail the Landing? As Rate Cuts Near, It’s a Moment of Truth.**\
-`The Federal Reserve was about to cut interest rates, turning the corner after a long fight with inflation. But now, its soft landing is in question.`\
-https://nytimes.com/2024/08/08/business/economy/federal-interest-rates-inflation.html
-
-**36 Hours in Helsinki**\
-`Find the secret to happiness in Finland’s capital — perhaps while sweating in a wood-burning sauna or sipping cocktails on a schooner.`\
-https://nytimes.com/interactive/2024/08/08/travel/things-to-do-helsinki.html
-
-**Navigating a new role, Nick Sirianni taps Dawn Staley for guidance**\
-`The Eagles coach asked the basketball legend to speak to his players.`\
-https://nytimes.com/athletic/5687068/2024/08/08/eagles-coach-nick-sirianni-dawn-staley/
 
