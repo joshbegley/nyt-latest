@@ -1,3 +1,11 @@
+**Russian Official Declares State of Emergency Near Border as Ukraine Advances**\
+`The local government in Russia declared a state of emergency as military analysts reported that Ukrainian forces had advanced several miles across the border.`\
+https://nytimes.com/2024/08/08/world/europe/russia-border-ukraine.html
+
+**Zouma set to join Shabab Al-Ahli from West Ham**\
+`West Ham United defender Kurt Zouma is close to completing a move to Shabab Al-Ahli.`\
+https://nytimes.com/athletic/5688467/2024/08/08/kurt-zouma-shabab-al-ahli/
+
 **Phillies takeaways: Schwarber's season, Turnbull's role, and a change in the outfield?**\
 `With 70% of the schedule complete, Schwarber is having one of the best seasons of his career. The three-HR game was the exclamation point. `\
 https://nytimes.com/athletic/5688328/2024/08/08/phillies-kyle-schwarber-spencer-turnbull-austin-hays/
