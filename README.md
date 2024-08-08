@@ -1,3 +1,11 @@
+**Russian Official Declares State of Emergency Near Border as Ukraine Advances**\
+`The local government in Russia declared a state of emergency as military analysts reported that Ukrainian forces had advanced several miles across the border.`\
+https://nytimes.com/2024/08/08/world/europe/russia-border-ukraine.html
+
+**Zouma set to join Shabab Al-Ahli from West Ham**\
+`West Ham United defender Kurt Zouma is close to completing a move to Saudi Pro League side Shabab Al-Ahli.`\
+https://nytimes.com/athletic/5688467/2024/08/08/kurt-zouma-shabab-al-ahli/
+
 **Phillies takeaways: Schwarber's season, Turnbull's role, and a change in the outfield?**\
 `With 70% of the schedule complete, Schwarber is having one of the best seasons of his career. The three-HR game was the exclamation point. `\
 https://nytimes.com/athletic/5688328/2024/08/08/phillies-kyle-schwarber-spencer-turnbull-austin-hays/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/08/podcasts/the-daily/kamala-harris-democrats.html
 **The Philosopher Kwame Anthony Appiah Wins Kluge Humanities Prize**\
 `Appiah, a scholar who is known for his approaches to ethics, language, nationality and race, will receive the honor from the Library of Congress.`\
 https://nytimes.com/2024/08/08/arts/kwame-anthony-appiah-kluge-humanities-prize.html
-
-**The Connections Companion No. 425**\
-`Scroll down for hints and conversation about the puzzle for Friday, Aug. 9, 2024.`\
-https://nytimes.com/2024/08/08/crosswords/connections-companion-425.html
-
-**Wordle Review No. 1,147**\
-`Scroll down for hints and conversation about the puzzle for Friday, August 9, 2024.`\
-https://nytimes.com/2024/08/08/crosswords/wordle-review-1147.html
 
