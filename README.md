@@ -1,3 +1,7 @@
+**Why Chris Foerster wants Dominick Puni and 49ers' top O-line to start in Tennessee**\
+`To make room for a veteran receiver and safety, the 49ers put pass rusher Drake Jackson on the reserve/PUP list, ending his 2024 season.`\
+https://nytimes.com/athletic/5690029/2024/08/08/49ers-titans-preseason-starters-offensive-line/
+
 **Newsom Clears Homeless Camps in L.A. County, Where He Wants More ‘Urgency’**\
 `Gov. Gavin Newsom, frustrated by county leaders who spurned his executive order cracking down on encampments, visited their turf to clear homeless sites.`\
 https://nytimes.com/2024/08/08/us/newsom-homeless-los-angeles.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/08/world/olympics/noah-lyles-wins-bronze-in-200-mete
 **Deadly Tornado Damages School in North Carolina**\
 `One of several small tornadoes spawned by Tropical Storm Debby killed a man and damaged a school in Lucama, N.C.`\
 https://nytimes.com/video/weather/100000009618540/tornado-storm-debby-north-carolina.html
-
-**Fact Checking Trump’s Mar-a-Lago News Conference**\
-`The former president took questions from reporters for more than hour. We examined his claims, attacks and policy positions.`\
-https://nytimes.com/live/2024/08/08/us/trump-press-conference-fact-check
 
