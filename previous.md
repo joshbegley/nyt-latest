@@ -1,3 +1,7 @@
+**Katie Ledecky, Nick Mead named closing ceremony flag bearers**\
+`They are the first duo to share the honor for Team USA in the closing ceremony.`\
+https://nytimes.com/athletic/5688732/2024/08/08/katie-ledecky-nick-mead-flag-bearers-olympics-closing-ceremony/
+
 **Kyle Dake chases Olympic wrestling gold, helped by a bond with an old friend**\
 `As Kyle Dake tries for another Olympic medal, he's got a good friend on his side — former rival and 2020 Olympic gold medalist David Taylor.`\
 https://nytimes.com/athletic/5643036/2024/08/08/kyle-dake-david-taylor-olympics-wrestling-paris/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/08/world/europe/taylor-swift-concert-terror-plot-vie
 **Netanyahu tells soldiers that Israel is ‘prepared for defense, as well as offense.’**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/08/08/world/israel-iran-hamas-gaza-war/netanyahu-tells-soldiers-that-israel-is-prepared-for-defense-as-well-as-offense
-
-**Here’s the latest on the presidential race.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/08/08/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 

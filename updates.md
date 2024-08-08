@@ -1,3 +1,7 @@
+**Katie Ledecky, Nick Mead named closing ceremony flag bearers**\
+`They are the first duo to share the honor for Team USA in the closing ceremony.`\
+https://nytimes.com/athletic/5688732/2024/08/08/katie-ledecky-nick-mead-flag-bearers-olympics-closing-ceremony/
+
 **Trump Says He Will Hold a News Conference at Mar-a-Lago on Thursday**\
 `The former president’s prominence in news coverage has slipped since President Biden withdrew from the race and endorsed Vice President Kamala Harris.`\
 https://nytimes.com/2024/08/08/us/politics/trump-news-conference.html
