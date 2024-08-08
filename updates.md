@@ -1,3 +1,7 @@
+**Padres show 'fighting spirit' to win a sixth straight series**\
+`San Diego overcame errors and adversity against Pittsburgh — hitting three momentum-swinging home runs — in an extra-inning comeback win.`\
+https://nytimes.com/athletic/5687349/2024/08/08/padres-win-sixth-straight-series/
+
 **Padres show 'fighting spirit' to win 6th straight series**\
 `San Diego overcame errors and adversity against Pittsburgh — hitting three momentum-swinging home runs — in an extra-inning comeback win.`\
 https://nytimes.com/athletic/5687349/2024/08/08/padres-win-sixth-straight-series/
