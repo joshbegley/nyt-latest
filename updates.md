@@ -1,3 +1,7 @@
+**Samsung Recalls 1 Million Stoves That Started 250 Fires and Killed Pets**\
+`Thirty models of Samsung stoves were part of the recall over fires started by accidental contact.`\
+https://nytimes.com/2024/08/08/business/samsung-recalls-electric-stoves.html
+
 **Israel Prepares for Expected Attacks by Iran and Hezbollah**\
 `Israel advised people to stock up on food and water in fortified safe rooms, while Prime Minister Benjamin Netanyahu told soldiers that Israel is “prepared for defense, as well as offense.”`\
 https://nytimes.com/2024/08/08/world/middleeast/israel-prepare-iran-attack.html

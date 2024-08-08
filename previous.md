@@ -1,3 +1,7 @@
+**Samsung Recalls 1 Million Stoves That Started 250 Fires and Killed Pets**\
+`Thirty models of Samsung stoves were part of the recall over fires started by accidental contact.`\
+https://nytimes.com/2024/08/08/business/samsung-recalls-electric-stoves.html
+
 **Israel Prepares for Expected Attacks by Iran and Hezbollah**\
 `Israel advised people to stock up on food and water in fortified safe rooms, while Prime Minister Benjamin Netanyahu told soldiers that Israel is “prepared for defense, as well as offense.”`\
 https://nytimes.com/2024/08/08/world/middleeast/israel-prepare-iran-attack.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/08/world/israel-iran-hamas-gaza-war/us-egypt-qa
 **Harrison Jr. says his company, not himself, signed agreement with Fanatics**\
 `Both sides filed paperwork this week to New York County Supreme Court stating they wish to jointly engage a meditator at an appropriate time`\
 https://nytimes.com/athletic/5690158/2024/08/08/marvin-harrison-jr-fanatics-lawsuit/
-
-**Duane Thomas, Enigmatic Running Back for the Cowboys, Dies at 77**\
-`He led Dallas to its first Super Bowl victory after engaging in a well-publicized contract dispute in which he called Coach Tom Landry “plastic” and refused to talk to reporters.`\
-https://nytimes.com/2024/08/08/sports/football/duane-thomas-dead.html
 
