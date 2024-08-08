@@ -1,3 +1,7 @@
+**Dam Breach in Rural Georgia Floods Communities Downstream**\
+`The overflow sent floodwaters into neighborhoods miles away, causing property damage but no injuries, officials said.`\
+https://nytimes.com/2024/08/08/weather/dam-breach-in-rural-georgia-floods-communities-downstream.html
+
 **Open Letters: Our Opinion-Writing Contest**\
 `We invite students to write public-facing letters to people or groups about issues that matter to them. Contest dates: March 12 to April 16, 2025.`\
 https://nytimes.com/2024/08/08/learning/open-letters-our-opinion-writing-contest.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5689761/2024/08/08/noah-lyles-covid-19-200-meter-br
 **NESN names Judd Sirott new Bruins play-by-play announcer**\
 `Sirott will work with analyst Andy Brickley, who is in his 24th season with NESN.`\
 https://nytimes.com/athletic/5689684/2024/08/08/nesn-judd-sirott-bruins-jack-edwards/
-
-**“She wants to take away your guns.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/08/08/us/harris-trump-election/she-wants-to-take-away-your-guns
 
