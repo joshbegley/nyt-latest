@@ -1,3 +1,19 @@
+**Osula joins Newcastle from Sheffield Utd**\
+`Newcastle United have completed the signing of William Osula from Sheffield United.`\
+https://nytimes.com/athletic/5675576/2024/08/08/william-osula-newcastle-transfer/
+
+**Tsunami Warning in Effect After Strong Earthquake in Japan**\
+`The warning was in place for parts of the islands of Kyushu and Shikoku in the south after a quake of at least magnitude 6.9 was reported.`\
+https://nytimes.com/2024/08/08/world/asia/japan-earthquake-tsunami.html
+
+**Netherlands' Van Rouwendaal wins gold in Olympic marathon swimming**\
+`Swimming events in the Seine have been at risk due to high levels of pollution in Paris' iconic river`\
+https://nytimes.com/athletic/5688362/2024/08/08/olympic-marathon-swimming-van-rouwendaal/
+
+**How Haas broke out of F1’s backfield — and sent a message to the rest of the grid**\
+`Now led by Ayao Komatsu, F1's smallest team has made what looks like a permanent step forward. `\
+https://nytimes.com/athletic/5676716/2024/08/08/haas-f1-backfield-magnussen-hulkenberg-ocon-bearman/
+
 **Here’s the latest on the tropical storm.**\
 `The tropical storm spent much of Wednesday meandering off The Atlantic coast, regaining its strength from the warm waters below before making another pass over land.`\
 https://nytimes.com/live/2024/weather/debby-storm-forecast/heres-the-latest-on-the-tropical-storm
