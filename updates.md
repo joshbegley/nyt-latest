@@ -1,3 +1,11 @@
+**Live Election Updates: Rollout of Democratic Ticket to Turn West on Friday**\
+`The Harris and Trump campaigns canceled events in the Southeast because of a tropical storm, but Donald J. Trump said he would hold a news conference Thursday afternoon in Florida.`\
+https://nytimes.com/live/2024/08/08/us/harris-trump-election
+
+**The Athletic FC: Atletico - centre of Euro transfers, Arteta's pickpockets and Liverpool's AI**\
+`Today in The Athletic FC: Why Simeone has been handed £200m at Atletico, how Arteta rebuilt Arsenal and Liverpool's AI corners`\
+https://nytimes.com/athletic/5688459/2024/08/08/atletico-transfers-gallagher-arteta-pickpockets-liverpool-ai-the-athletic-fc/
+
 **Barcelona transfers update - what's the situation with Gundogan, Roque and others?**\
 `Freeing up space on the wage bill would be a big help in Barca being able to register players, but any exits appear to be stuck at present`\
 https://nytimes.com/athletic/5688490/2024/08/08/barcelona-transfers-gundogan-roque-fati-lenglet/
