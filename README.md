@@ -1,3 +1,23 @@
+**Twins' Bailey Ober is better than ever, armed with elite changeup and full arsenal**\
+`Ober is striking out more batters than ever and pitching deep into games. Key offseason adjustments are paying off in 2024. `\
+https://nytimes.com/athletic/5689134/2024/08/08/bailey-ober-twins-picher-changeup/
+
+**Ship Brings Rocky Clues to Life’s Origins Up From Ocean’s ‘Lost City’**\
+`Scientists in an expedition to the Mid-Atlantic ocean ridge lifted almost a mile of precious rocks from beneath an exotic feature linked to life’s possible beginning.`\
+https://nytimes.com/2024/08/08/science/mantle-core-drill-ocean.html
+
+**Anna Marie Tendler Knows You Think Her Book Is About John Mulaney**\
+`Ms. Tendler was a regular subject in her famous ex-husband’s stand-up. After a public divorce, tabloids have framed her new memoir as a tell-all about their relationship, but readers might be surprised by what they find.`\
+https://nytimes.com/2024/08/08/style/john-mulaney-wife-anna-tendler-book.html
+
+**Engineered Virus Steals Proteins From H.I.V., Pointing to New Therapy**\
+`After promising results in monkeys, scientists plan to test the new treatment in a few people with H.I.V.`\
+https://nytimes.com/2024/08/08/science/engineered-virus-steals-proteins-from-hiv.html
+
+**For Blues coach Drew Bannister, getting to know his players has been an offseason priority**\
+`Drew Bannister met defenseman Justin Faulk in Minnesota, where they talked more about hunting than hockey.`\
+https://nytimes.com/athletic/5651561/2024/08/08/blues-drew-bannister-coach-offseason-players/
+
 **The Barber Will See You Now. The World Will See You Next.**\
 `At the Olympic Village, cuts, styles and manicures are free. The benefits, the athletes say, are priceless.`\
 https://nytimes.com/2024/08/08/world/olympics/athletes-village-hair-salon.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/08/08/us/politics/tim-walz-house-history.html
 **Jake Paul Lends His Celebrity (Some of It) to Olympic Boxing**\
 `Paul, a social media influencer and boxer, usually promotes professional fighting. Now he’s in a partnership with U.S.A. Boxing, but his output in Paris has been minimal.`\
 https://nytimes.com/2024/08/08/world/olympics/jake-paul-boxing.html
-
-**Smith: 'This team has a standard of winning' as USWNT eyes Olympic gold**\
-`PARIS — Twelve years ago, the last time the U.`\
-https://nytimes.com/athletic/5689365/2024/08/08/uswnt-olympics-smith-rodman-swanson/
-
-**U.S. Mortgage Rates Drop Sharply, With 30-Year at 6.47%**\
-`The key mortgage rate had its biggest one-week decline of the year, falling to the lowest level in 15 months.`\
-https://nytimes.com/2024/08/08/business/economy/mortgage-rates.html
-
-**Christian Horner: Appeal over controlling behavior allegations dismissed**\
-`The Red Bull Formula One employee who accused team principal Christian Horner of controlling and inappropriate behavior has seen her appeal &#8220;not upheld.`\
-https://nytimes.com/athletic/5689404/2024/08/08/christian-horner-f1-appeal-red-bull/
-
-**Harris Doesn’t Support Arms Embargo on Israel, a Top Adviser Says**\
-`Her national security adviser offered one of her first firm policy positions on the Gaza war a day after she had two exchanges with Palestinian supporters in Michigan, one cordial and one confrontational.`\
-https://nytimes.com/2024/08/08/us/politics/harris-israel-arms-embargo.html
-
-**Teach Writing With The New York Times: Our 2024-25 Curriculum**\
-`Our nine writing units are based on real-world features like reviews, photo essays, narratives, podcasts and more.`\
-https://nytimes.com/2024/08/08/learning/teach-writing-with-the-new-york-times-our-2024-25-curriculum.html
 
