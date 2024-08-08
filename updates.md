@@ -1,3 +1,7 @@
+**How Tim Walz’s Time in the House Paved the Way for His Ascent**\
+`The congressional voting record of the Democrat nominee for vice president shows his liberal streak, but with a deference to a conservative district’s needs.`\
+https://nytimes.com/2024/08/08/us/politics/tim-walz-house-history.html
+
 **Jake Paul Lends His Celebrity (Some of It) to Olympic Boxing**\
 `Paul, a social media influencer and boxer, usually promotes professional fighting. Now he’s in a partnership with U.S.A. Boxing, but his output in Paris has been minimal.`\
 https://nytimes.com/2024/08/08/world/olympics/jake-paul-boxing.html
