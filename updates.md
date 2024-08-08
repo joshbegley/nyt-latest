@@ -1,3 +1,7 @@
+**Israel Prepares for Expected Attacks by Iran and Hezbollah**\
+`Israel advised people to stock up on food and water in fortified safe rooms, while Prime Minister Benjamin Netanyahu told soldiers that Israel is “prepared for defense, as well as offense.”`\
+https://nytimes.com/2024/08/08/world/middleeast/israel-prepare-iran-attack.html
+
 **Team USA, with Olympic hopes teetering, turned to an unlikely place — defense**\
 `"I think that we just upped the pressure," Kevin Durant said. "We made them turn the ball over. And we contested their shots."`\
 https://nytimes.com/athletic/5690134/2024/08/08/us-mens-basketball-olympics-defense-serbia/
