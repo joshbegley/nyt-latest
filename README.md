@@ -1,3 +1,11 @@
+**Bogarde close to agreeing new Villa contract**\
+`Lamare Bogarde is close to finalising a new long-term contract at Aston Villa.`\
+https://nytimes.com/athletic/5689485/2024/08/08/lamare-bogarde-aston-villa-contract/
+
+**Where (and How) Americans Are Taking Advantage of Clean Energy Tax Credits**\
+`Households claimed more than $8 billion in climate-friendly tax credits last year, according to new data. Here’s who benefited and where.`\
+https://nytimes.com/interactive/2024/08/08/climate/tax-credits-solar-panels-home-efficiency.html
+
 **How Tim Walz’s Time in the House Paved the Way for His Ascent**\
 `The congressional voting record of the Democrat nominee for vice president shows his liberal streak, but with a deference to a conservative district’s needs.`\
 https://nytimes.com/2024/08/08/us/politics/tim-walz-house-history.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/08/learning/teach-writing-with-the-new-york-times-ou
 **MLB bullpen report: Tyler Holton emerging in Detroit, David Bednar in a post-break swoon and more**\
 `Greg Jewett tracks all the MLB bullpen movement that matters for fantasy baseball, including an emerging southpaw in Detroit.`\
 https://nytimes.com/athletic/5689280/2024/08/08/mlb-bullpen-report-tyler-holton-emerging-in-detroit-david-bednar-in-a-post-break-swoon-and-more/
-
-**Projecting the Ducks' opening-night lineup: Where will Cutter Gauthier fit?**\
-`The Ducks came up empty on big free agents this summer, but where will they slot their young players?`\
-https://nytimes.com/athletic/5689209/2024/08/08/anaheim-ducks-2024-25-lineup/
-
-**Veggie Taco Party!**\
-`It’s my go-to meal for a crowd of vegetarians, or anyone who’d love stuffed pepper tacos, green peach salad with lime dressing and jiggly coconut pudding.`\
-https://nytimes.com/2024/08/08/dining/veggie-taco-party.html
 
