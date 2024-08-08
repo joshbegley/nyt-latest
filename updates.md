@@ -1,3 +1,11 @@
+**Pochettino a top target to become USMNT coach: Sources**\
+`Former Tottenham and Chelsea head coach Mauricio Pochettino is a top target for the U.`\
+https://nytimes.com/athletic/5689027/2024/08/08/mauricio-pochettino-usmnt-coach/
+
+**Jordan Chiles returning to UCLA gymnastics**\
+`During her first stint with the Bruins, Chiles was a star all-around who recorded eight perfect 10.0s (four on bars and four on floor).`\
+https://nytimes.com/athletic/5688235/2024/08/08/jordan-chiles-returning-ucla-gymnastics/
+
 **Stuttgart agree deal to sign Undav from Brighton**\
 `Stuttgart are close to completing the signing of Brighton &amp; Hove Albion forward Deniz Undav.`\
 https://nytimes.com/athletic/5686776/2024/08/08/stuttgart-deniz-undav-brighton/
