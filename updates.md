@@ -1,3 +1,11 @@
+**Trump Falsely Claims No One Died in Jan. 6 Capitol Attack**\
+`In fact, four of his supporters died in the crowd that day, and others died within days.`\
+https://nytimes.com/2024/08/08/us/politics/trump-jan-6-deaths.html
+
+**Swifties in Vienna Cry, Commiserate and Try to Shake It Off**\
+`Taylor Swift fans from around the world grappled with disappointment and fear after a terrorism plot derailed the Vienna dates of the Eras Tour.`\
+https://nytimes.com/2024/08/08/world/europe/taylor-swift-eras-tour-vienna-reactions.html
+
 **No Aaron Rodgers, but Jets still dominate Commanders in joint practice**\
 `The Tyrod Taylor-to-Garrett Wilson connection was the story of the day on a rainy Thursday.`\
 https://nytimes.com/athletic/5689602/2024/08/08/aaron-rodgers-out-jets-commanders-joint-practice-observations/
