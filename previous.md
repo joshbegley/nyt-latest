@@ -1,3 +1,11 @@
+**Veterans and Lawmakers Lobby in Bipartisan Push for MDMA Therapy**\
+`The F.D.A. is poised to rule on the therapeutic use of the club drug Ecstasy, a potential watershed moment in the nascent field of psychedelic medicine.`\
+https://nytimes.com/2024/08/08/health/fda-mdma-therapy.html
+
+**Army Helicopter Crashes in Alabama, Killing One**\
+`The fatal crash of an Apache helicopter during flight training on Wednesday is part of what Army officials have called a troubling trend.`\
+https://nytimes.com/2024/08/08/us/helicopter-crash-instructor-killed-alabama.html
+
 **Will the White Sox ever be favored again? A tortured fan digs into the numbers**\
 `The record-tying losing streak for the White Sox is over, but this team will still be an underdog almost every game the rest of the season.`\
 https://nytimes.com/athletic/5687761/2024/08/08/white-sox-losing-streak-odds/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/08/movies/it-ends-with-us-review.html
 **2024 on Track to Be the Hottest Year on Record**\
 `Last month was slightly less hot than the record-breaking July 2023, but the year is still likely to be the hottest ever, according to European climate scientists.`\
 https://nytimes.com/2024/08/08/climate/heat-records-2024.html
-
-**Sterling targeting England recall under new head coach**\
-`Chelsea forward Raheem Sterling says he wants to play for England under the team’s new coach after almost two years in the wilderness under previous manager Gareth Southgate.`\
-https://nytimes.com/athletic/5688878/2024/08/08/raheem-sterling-england-chelsea/
-
-**Donald Trump, Prince of Self-Pity**\
-`There is no end to his hallucinatory disadvantages.`\
-https://nytimes.com/2024/08/08/opinion/donald-trump-self-pity.html
 

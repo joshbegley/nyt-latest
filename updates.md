@@ -1,3 +1,11 @@
+**Veterans and Lawmakers Lobby in Bipartisan Push for MDMA Therapy**\
+`The F.D.A. is poised to rule on the therapeutic use of the club drug Ecstasy, a potential watershed moment in the nascent field of psychedelic medicine.`\
+https://nytimes.com/2024/08/08/health/fda-mdma-therapy.html
+
+**Army Helicopter Crashes in Alabama, Killing One**\
+`The fatal crash of an Apache helicopter during flight training on Wednesday is part of what Army officials have called a troubling trend.`\
+https://nytimes.com/2024/08/08/us/helicopter-crash-instructor-killed-alabama.html
+
 **Will the White Sox ever be favored again? A tortured fan digs into the numbers**\
 `The record-tying losing streak for the White Sox is over, but this team will still be an underdog almost every game the rest of the season.`\
 https://nytimes.com/athletic/5687761/2024/08/08/white-sox-losing-streak-odds/
