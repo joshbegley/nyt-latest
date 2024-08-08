@@ -1,3 +1,11 @@
+**Are We Happy Yet?**\
+`The American obsession with individually defining, tracking and boosting happiness may be making us miserable.`\
+https://nytimes.com/2024/08/08/opinion/happiness-tracking-america.html
+
+**Maguire, Lindelof doubtful for Community Shield**\
+`Manchester United duo Harry Maguire and Victor Lindelof are injury doubts for Saturday&#8217;s Community Shield clash against Manchester City.`\
+https://nytimes.com/athletic/5688550/2024/08/08/harry-maguire-victor-lindelof-community-shield/
+
 **From baseball scandal to La Liga promotion - Leganes’ Jeff Luhnow and a twist on Big Data**\
 `They will face a challenge in La Liga next year against Real Madrid and Barcelona - but Leganes have big ambitions`\
 https://nytimes.com/athletic/5686815/2024/08/08/leganes-luhnow-houston-astros-la-liga-promotion/

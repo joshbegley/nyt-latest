@@ -1,3 +1,11 @@
+**Are We Happy Yet?**\
+`The American obsession with individually defining, tracking and boosting happiness may be making us miserable.`\
+https://nytimes.com/2024/08/08/opinion/happiness-tracking-america.html
+
+**Maguire, Lindelof doubtful for Community Shield**\
+`Manchester United duo Harry Maguire and Victor Lindelof are injury doubts for Saturday&#8217;s Community Shield clash against Manchester City.`\
+https://nytimes.com/athletic/5688550/2024/08/08/harry-maguire-victor-lindelof-community-shield/
+
 **From baseball scandal to La Liga promotion - Leganes’ Jeff Luhnow and a twist on Big Data**\
 `They will face a challenge in La Liga next year against Real Madrid and Barcelona - but Leganes have big ambitions`\
 https://nytimes.com/athletic/5686815/2024/08/08/leganes-luhnow-houston-astros-la-liga-promotion/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/08/movies/the-instigators-review.html
 **‘Girl You Know It’s True’ Review: Milli Vanilli, Fictionalized. Again.**\
 `This film, based on the lives of the duo who lip-synced their way to stardom and downfall, fills in many of the details behind the facade.`\
 https://nytimes.com/2024/08/08/movies/girl-you-know-its-true-review-milli-vanilli.html
-
-**‘Dance First’ Review: Beckett Encounters Himself**\
-`Samuel Beckett’s life is reduced to mommy and daddy issues in a biopic that offers simple explanations for the career of a complex writer.`\
-https://nytimes.com/2024/08/08/movies/dance-first-review-samuel-beckett.html
-
-**Raiders set to leave training camp closer and tougher ahead of first preseason tilt**\
-`The quarterbacks may have struggled, but Antonio Pierce feels good about his team's chemistry coming out of training camp in Costa Mesa.`\
-https://nytimes.com/athletic/5687920/2024/08/08/raiders-training-camp-preseason/
 
