@@ -1,3 +1,7 @@
+**The Walz-Pilling of the Democratic Party Was No Accident**\
+`More than a year ago, Tim Walz and his aides decided to be ready in case an irresistible opportunity arose. Their tightly held strategy helped them catch political lightning in a bottle.`\
+https://nytimes.com/2024/08/07/us/politics/tim-walz-kamala-harris-2024.html
+
 **The Harris Campaign Bets on Prairie Progressives**\
 `The Minnesota governor was not just in Wisconsin to sound folksy and talk about hunting.`\
 https://nytimes.com/2024/08/07/us/politics/tim-walz-harris-campaign.html
