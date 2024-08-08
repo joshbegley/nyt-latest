@@ -1,3 +1,9 @@
+**France beats Germany, heading to gold-medal game**\
+`France defeated Germany 73-69 in a semifinal win Thursday night at Bercy Arena.`\
+https://nytimes.com/athletic/5689547/2024/08/08/france-germany-olympics-basketball/
+
+**“All over the world, prisons are being emptied out into our country.”**\
+
 **To Team Trump, Harris’s ‘Not Going Back’ Promise Will Prove a Big Mistake**\
 `The race has been upended with the replacement of President Biden. But the Trump team said Thursday morning that “the fundamentals of the race have not changed.”`\
 https://nytimes.com/2024/08/08/us/politics/trump-harris-strategy.html
