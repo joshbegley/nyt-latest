@@ -1,3 +1,7 @@
+**Man Is Found Guilty in Killing of Rapper PnB Rock**\
+`Prosecutors said that the man, Freddie Lee Trone, sent his teenage son into a restaurant armed with a handgun to rob the rapper.`\
+https://nytimes.com/2024/08/07/arts/music/pnb-rock-death-freddie-trone.html
+
 **Thread Component**\
 `Christopher Youngs’s theme spotlights one of the toughest types of clues.`\
 https://nytimes.com/2024/08/07/crosswords/daily-puzzle-2024-08-08.html

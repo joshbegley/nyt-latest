@@ -1,3 +1,7 @@
+**Man Is Found Guilty in Killing of Rapper PnB Rock**\
+`Prosecutors said that the man, Freddie Lee Trone, sent his teenage son into a restaurant armed with a handgun to rob the rapper.`\
+https://nytimes.com/2024/08/07/arts/music/pnb-rock-death-freddie-trone.html
+
 **Thread Component**\
 `Christopher Youngs’s theme spotlights one of the toughest types of clues.`\
 https://nytimes.com/2024/08/07/crosswords/daily-puzzle-2024-08-08.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/07/us/politics/usada-world-doping.html
 **Buckley: NFL joint practices without fights are impractical, so let's review pros and cons**\
 `Yes, the workouts help with reps, scouting and evaluating. But they also facilitate fisticuffs, risk injury and create a spectacle.`\
 https://nytimes.com/athletic/5687861/2024/08/07/giants-lions-joint-practices-fight-nfl-fine/
-
-**Four takeaways on Mark Shapiro's assessment of a disappointing Blue Jays' season**\
-`Shapiro plans to have a contending club in 2025, though he didn't commit firmly to a direction. “It's important to get better and win.”`\
-https://nytimes.com/athletic/5687849/2024/08/07/blue-jays-takeaways-mark-shapiro-season-assessment/
 
