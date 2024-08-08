@@ -1,3 +1,7 @@
+**“She wants to take away your guns.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/08/us/harris-trump-election/she-wants-to-take-away-your-guns
+
 **Students, Tell Us About Your Experience With the Summer Reading Contest.**\
 `This year we added the option of submitting a 90-second video response. What did you think?`\
 https://nytimes.com/2024/08/08/learning/students-tell-us-about-your-experience-with-the-summer-reading-contest.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/08/us/harris-trump-election/theyre-going-to-des
 **Betting on youth: An accounting of how drafting unproven track records has worked out for fantasy baseball 2024**\
 `Michael Salfino looks at nine young stars drafted among the Top 50 for fantasy baseball 2023 to see how those investments have worked out.`\
 https://nytimes.com/athletic/5689627/2024/08/08/betting-on-youth-an-accounting-of-how-drafting-unproven-track-records-has-worked-out-for-fantasy-baseball-2024/
-
-**“Our tax cuts, which are the biggest in history.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/08/08/us/harris-trump-election/our-tax-cuts-which-are-the-biggest-in-history
 
