@@ -1,3 +1,23 @@
+**Sydney McLaughlin-Levrone breaks world record to win another Olympic gold in 400m hurdles**\
+`Sydney McLaughlin-Levrone broke the 400-meter hurdles world record for a sixth time Saturday, winning her second straight Olympic gold.`\
+https://nytimes.com/athletic/5688911/2024/08/08/sydney-mclaughlin-levrone-400-meter-hurdles-olympics-gold/
+
+**American long jumper Tara Davis-Woodhall takes gold**\
+`Davis-Woodhall’s medal makes it the fourth consecutive Olympics the U.S. has medaled. Six of the last 12 medals have gone to Americans.`\
+https://nytimes.com/athletic/5689561/2024/08/08/tara-davis-woodhall-olympic-long-jump-results/
+
+**Our Student Podcast Contest**\
+`We invite students to create an original podcast of five minutes or less that informs or entertains. Contest dates: April 16 to May 14, 2025.`\
+https://nytimes.com/2024/08/08/learning/our-student-podcast-contest.html
+
+**Noah Lyles reveals COVID-19 diagnosis after bronze medal finish in 200**\
+`"I've never been more proud of myself for being able to come out here and getting a bronze medal," Lyles said.`\
+https://nytimes.com/athletic/5689761/2024/08/08/noah-lyles-covid-19-200-meter-bronze-olympics/
+
+**NESN names Judd Sirott new Bruins play-by-play announcer**\
+`Sirott will work with analyst Andy Brickley, who is in his 24th season with NESN.`\
+https://nytimes.com/athletic/5689684/2024/08/08/nesn-judd-sirott-bruins-jack-edwards/
+
 **“She wants to take away your guns.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/08/08/us/harris-trump-election/she-wants-to-take-away-your-guns
@@ -17,24 +37,4 @@ https://nytimes.com/2024/08/08/weather/debby-new-york-city-forecast.html
 **Los Angeles Actor Is Arrested on Sexual Assault Charges, Police Say**\
 `Gabriel Olds, who played the Christian broadcaster Pat Robertson in the 2021 movie “The Eyes of Tammy Faye,” has been accused of sexually assaulting three women.`\
 https://nytimes.com/2024/08/08/us/gabriel-olds-actor-sexual-assault.html
-
-**“The vast majority of the country does support me.”**\
-`By Peter Baker`\
-https://nytimes.com/live/2024/08/08/us/harris-trump-election/the-vast-majority-of-the-country-does-support-me
-
-**Australia thwarts U.S. women's water polo team's shot at history**\
-`A save on the final goal attempt between the U.S. and Australia gave Australia the 6-5 lead in the shootout and the victory.`\
-https://nytimes.com/athletic/5689654/2024/08/08/usa-water-polo-australia-olympics/
-
-**Why White Supremacists Are Trying to Attack Energy Grids**\
-`An ideology with roots in white supremacist writings in the 20th century found renewed attention in neo-Nazi online groups in the 2010s and has inspired recent plots, say researchers.`\
-https://nytimes.com/2024/08/08/us/white-supremacist-power-grid-attacks.html
-
-**“They’re going to destroy Social Security.”**\
-`By Alan Rappeport`\
-https://nytimes.com/live/2024/08/08/us/harris-trump-election/theyre-going-to-destroy-social-security
-
-**Betting on youth: An accounting of how drafting unproven track records has worked out for fantasy baseball 2024**\
-`Michael Salfino looks at nine young stars drafted among the Top 50 for fantasy baseball 2023 to see how those investments have worked out.`\
-https://nytimes.com/athletic/5689627/2024/08/08/betting-on-youth-an-accounting-of-how-drafting-unproven-track-records-has-worked-out-for-fantasy-baseball-2024/
 
