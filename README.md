@@ -8,7 +8,7 @@ https://nytimes.com/2024/08/08/us/maui-lahaina-residents-move.html
 
 **Trump says he will hold a news conference at Mar-a-Lago on Thursday.**\
 `By Maggie Haberman`\
-https://nytimes.com/live/2024/08/08/us/harris-trump-election/trump-says-he-will-hold-a-news-conference-at-mar-a-lago-on-thursday
+https://nytimes.com/2024/08/08/us/politics/trump-news-conference.html
 
 **Chargers training camp, Day 13: Players, coaches eager for live action**\
 `Tre’Mon Morris-Brash is among the Chargers' rookies who has flashed and the team is excited to see against the Seahawks on Saturday.`\
