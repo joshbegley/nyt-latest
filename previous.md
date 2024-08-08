@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/08/08/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Live Election Updates: Rollout of Democratic Ticket to Turn West on Friday**\
+`The Harris and Trump campaigns canceled events in the Southeast because of a tropical storm, but are scheduled to be in Arizona and Montana at the end of the week.`\
+https://nytimes.com/live/2024/08/08/us/harris-trump-election
+
 **What’s Driving the Topsy-Turvy Markets**\
 `A key jobless claims report could join a hiring slowdown, corporate earnings, growth worries in weighing on investors during an August to forget.`\
 https://nytimes.com/2024/08/08/business/dealbook/markets-jobless-claims-recession.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5688099/2024/08/08/quincy-hall-400-meters-the-pulse
 **Twins takeaways: Rebuilding the bullpen, Matt Wallner crushing, signing Giovanny Gallegos**\
 `Brock Stewart's injury setback means the Twins need to rethink their late-inning mix, but they're not short on power right-handers.`\
 https://nytimes.com/athletic/5683893/2024/08/08/minnesota-twins-bullpen-matt-wallner/
-
-**How do NFC cornerback groups stack up heading into 2024 season?**\
-`Do the Seahawks have the NFC's best cornerback depth chart? The Bears? The Saints? We take a look at the numbers.`\
-https://nytimes.com/athletic/5643724/2024/08/08/nfc-cornerback-outlook-2024/
-
-**‘The Instigators’ Review: Bumblers in Beantown**\
-`Casey Affleck and Matt Damon star in a Boston heist that goes sideways.`\
-https://nytimes.com/2024/08/08/movies/the-instigators-review.html
 

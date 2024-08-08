@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/08/08/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Live Election Updates: Rollout of Democratic Ticket to Turn West on Friday**\
+`The Harris and Trump campaigns canceled events in the Southeast because of a tropical storm, but are scheduled to be in Arizona and Montana at the end of the week.`\
+https://nytimes.com/live/2024/08/08/us/harris-trump-election
+
 **What’s Driving the Topsy-Turvy Markets**\
 `A key jobless claims report could join a hiring slowdown, corporate earnings, growth worries in weighing on investors during an August to forget.`\
 https://nytimes.com/2024/08/08/business/dealbook/markets-jobless-claims-recession.html
