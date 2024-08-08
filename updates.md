@@ -1,3 +1,35 @@
+**Ohio State camp notes: Jeremiah Smith continues to shine while secondary dominates**\
+`Also notable from camp: Will Howard is gaining the edge on Devin Brown in the QB battle and Jelani Thurman could be an option at tight end.`\
+https://nytimes.com/athletic/5689655/2024/08/08/ohio-state-preseason-camp-jeremiah-smith-ryan-day/
+
+**How to … : An Informational Writing Contest for Teenagers**\
+`We invite students to explain how to do any task in 400 words or fewer. Contest dates: Feb. 12 to March 12, 2025.`\
+https://nytimes.com/2024/08/08/learning/how-to-an-informational-writing-contest-for-teenagers.html
+
+**Tiny Memoir Contest for Students: Write a 100-Word Personal Narrative**\
+`We invite teenagers to tell a true story about a meaningful life experience in just 100 words. Contest dates: Nov. 6 to Dec. 4, 2024.`\
+https://nytimes.com/2024/08/08/learning/tiny-memoir-contest-for-students-write-a-100-word-personal-narrative.html
+
+**Sydney McLaughlin-Levrone breaks world record to win another Olympic gold in 400m hurdles**\
+`Sydney McLaughlin-Levrone broke the 400-meter hurdles world record for a sixth time Saturday, winning her second straight Olympic gold.`\
+https://nytimes.com/athletic/5688911/2024/08/08/sydney-mclaughlin-levrone-400-meter-hurdles-olympics-gold/
+
+**American long jumper Tara Davis-Woodhall takes gold**\
+`Davis-Woodhall’s medal makes it the fourth consecutive Olympics the U.S. has medaled. Six of the last 12 medals have gone to Americans.`\
+https://nytimes.com/athletic/5689561/2024/08/08/tara-davis-woodhall-olympic-long-jump-results/
+
+**Our Student Podcast Contest**\
+`We invite students to create an original podcast of five minutes or less that informs or entertains. Contest dates: April 16 to May 14, 2025.`\
+https://nytimes.com/2024/08/08/learning/our-student-podcast-contest.html
+
+**Noah Lyles reveals COVID-19 diagnosis after bronze medal finish in 200**\
+`"I've never been more proud of myself for being able to come out here and getting a bronze medal," Lyles said.`\
+https://nytimes.com/athletic/5689761/2024/08/08/noah-lyles-covid-19-200-meter-bronze-olympics/
+
+**NESN names Judd Sirott new Bruins play-by-play announcer**\
+`Sirott will work with analyst Andy Brickley, who is in his 24th season with NESN.`\
+https://nytimes.com/athletic/5689684/2024/08/08/nesn-judd-sirott-bruins-jack-edwards/
+
 **“She wants to take away your guns.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/08/08/us/harris-trump-election/she-wants-to-take-away-your-guns
