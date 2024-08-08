@@ -1,3 +1,11 @@
+**Jorge Soler's defensive miscues prove costly for Chris Sale and skidding Braves**\
+`Soler had exclusively served as DH all season before he was traded to the Braves and thrust into right-field duties.`\
+https://nytimes.com/athletic/5688234/2024/08/08/jorge-soler-chris-sale-braves/
+
+**In Detroit, Harris confronts the divisions roiling Democrats over the war in Gaza.**\
+`By Erica L. Green, Kellen Browning and Jonathan Weisman`\
+https://nytimes.com/live/2024/08/07/us/harris-trump-election/harris-uncommitted-michigan
+
 **Bangladesh to Swear in Interim Government, After Days of Chaos**\
 `Muhammad Yunus, set to lead the country temporarily, faces the immediate and daunting task of restoring order to daily life and to the economy.`\
 https://nytimes.com/2024/08/08/world/asia/muhammad-yunus-bangladesh-swearing-in.html
