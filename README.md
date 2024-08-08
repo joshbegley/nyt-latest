@@ -2,7 +2,7 @@
 `Soler had exclusively served as DH all season before he was traded to the Braves and thrust into right-field duties.`\
 https://nytimes.com/athletic/5688234/2024/08/08/jorge-soler-chris-sale-braves/
 
-**Bangladesh to Swear in Interim Government, After Days of Chaos**\
+**Bangladesh to Swear In Interim Government, After Days of Chaos**\
 `Muhammad Yunus, set to lead the country temporarily, faces the immediate and daunting task of restoring order to daily life and to the economy.`\
 https://nytimes.com/2024/08/08/world/asia/muhammad-yunus-bangladesh-swearing-in.html
 
