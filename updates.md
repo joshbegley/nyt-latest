@@ -1,3 +1,7 @@
+**What’s It Like to Be Drug-Tested? We Asked Three Olympic Runners.**\
+`It will never feel normal, athletes said, to have a stranger knock on your door and ask for a vial of your blood. Or some urine.`\
+https://nytimes.com/2024/08/08/world/olympics/drug-testing-track.html
+
 **For this U.S. women's basketball Olympic run, stop arguing and savor what we have**\
 `PARIS — They played poorly in the first half against Nigeria.`\
 https://nytimes.com/athletic/5686832/2024/08/08/team-usa-olympics-womens-basketball-team-aldridge/
