@@ -1,3 +1,7 @@
+**How Tim Walz’s Time in the House Paved the Way for His Ascent**\
+`The congressional voting record of the Democrat nominee for vice president shows his liberal streak, but with a deference to a conservative district’s needs.`\
+https://nytimes.com/2024/08/08/us/politics/tim-walz-house-history.html
+
 **Jake Paul Lends His Celebrity (Some of It) to Olympic Boxing**\
 `Paul, a social media influencer and boxer, usually promotes professional fighting. Now he’s in a partnership with U.S.A. Boxing, but his output in Paris has been minimal.`\
 https://nytimes.com/2024/08/08/world/olympics/jake-paul-boxing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5689209/2024/08/08/anaheim-ducks-2024-25-lineup/
 **Veggie Taco Party!**\
 `It’s my go-to meal for a crowd of vegetarians, or anyone who’d love stuffed pepper tacos, green peach salad with lime dressing and jiggly coconut pudding.`\
 https://nytimes.com/2024/08/08/dining/veggie-taco-party.html
-
-**Veterans and Lawmakers Lobby in Bipartisan Push for MDMA Therapy**\
-`The F.D.A. is poised to rule on the therapeutic use of the club drug Ecstasy, a potential watershed moment in the nascent field of psychedelic medicine.`\
-https://nytimes.com/2024/08/08/health/fda-mdma-therapy.html
 
