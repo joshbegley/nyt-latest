@@ -1,3 +1,19 @@
+**A Republican Governor’s Plea to Stop the Personal Attacks**\
+`Responses to an essay by Gov. Christopher Sununu of New Hampshire. Also: “Weird” as a campaign epithet; Cori Bush’s defeat; famine in Sudan; the 1964 World’s Fair.`\
+https://nytimes.com/2024/08/08/opinion/republicans-attacks.html
+
+**The Bounce: Can Nikola Jokić keep Team USA from gold?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5689016/2024/08/08/nikola-jokic-serbia-team-usa-rudy-gobert-canda-nba-the-bounce/
+
+**The Windup: All-time-bad team fires manager**\
+`Stephen Nesbitt catches you up on league-wide news.`\
+https://nytimes.com/athletic/5689150/2024/08/08/white-sox-fire-pedro-grifol-bobby-witt-aaron-judge-mvp-the-windup/
+
+**Bills QB Josh Allen to start preseason opener vs. Bears**\
+`PITTSFORD, N.`\
+https://nytimes.com/athletic/5688996/2024/08/08/bills-josh-allen-preseason-starter/
+
 **Bills 2024 camp debrief: Who's in good position and who isn't headed into the preseason**\
 `Some players played their way into better positions on the depth chart, while others have fallen.`\
 https://nytimes.com/athletic/5687549/2024/08/08/buffalo-bills-training-camp-debrief-preseason/
