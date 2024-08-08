@@ -1,4 +1,12 @@
 **Defying Spanish Arrest Warrant, Carles Puigdemont Returns to Catalonia**\
+`Large crowds greeted the former regional leader, who has lived in self-imposed exile since a failed 2017 independence bid. Despite a new amnesty law, he could still face arrest.`\
+https://nytimes.com/2024/08/08/world/europe/carles-puigdemont-catalonia-spain.html
+
+**Signs of improvement from Villa as an uncertain pre-season nears its conclusion**\
+`Unai Emery has revamped his Champions League-bound squad but defensive issues and a lack of depth in key areas remain`\
+https://nytimes.com/athletic/5687531/2024/08/08/villa-athletic-bilbao-pre-season-uncertainty/
+
+**Defying Spanish Arrest Warrant, Carles Puigdemont Returns to Catalonia**\
 `Large crowds greeted the former regional leader who has lived in self-imposed exile since a failed 2017 independence bid. Despite a new amnesty law, he could still face arrest.`\
 https://nytimes.com/2024/08/08/world/europe/carles-puigdemont-catalonia-spain.html
 
