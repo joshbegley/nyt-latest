@@ -1,3 +1,7 @@
+**The Barber Will See You Now. The World Will See You Next.**\
+`At the Olympic Village, cuts, styles and manicures are free. The benefits, the athletes say, are priceless.`\
+https://nytimes.com/2024/08/08/world/olympics/athletes-village-hair-salon.html
+
 **Bogarde close to agreeing new Villa contract**\
 `Lamare Bogarde is close to finalising a new long-term contract at Aston Villa.`\
 https://nytimes.com/athletic/5689485/2024/08/08/lamare-bogarde-aston-villa-contract/
