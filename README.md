@@ -1,3 +1,27 @@
+**Students, Tell Us About Your Experience With the Summer Reading Contest.**\
+`This year we added the option of submitting a 90-second video response. What did you think?`\
+https://nytimes.com/2024/08/08/learning/students-tell-us-about-your-experience-with-the-summer-reading-contest.html
+
+**New apartment for Polish gold medal-winning climber**\
+`The global gamut of golden gifts ranges from financial rewards to new homes to a lifetime of free chicken.`\
+https://nytimes.com/athletic/5689359/2024/08/08/aleksandra-miroslaw-poland-gold-medal-reward/
+
+**What Debby Might Bring to New York City**\
+`The weakening tropical storm could unleash isolated storms and flooding on an already soaked region on Thursday and Friday. A separate system could bring heavy rains on Friday night.`\
+https://nytimes.com/2024/08/08/weather/debby-new-york-city-forecast.html
+
+**Los Angeles Actor Is Arrested on Sexual Assault Charges, Police Say**\
+`Gabriel Olds, who played the Christian broadcaster Pat Robertson in the 2021 movie “The Eyes of Tammy Faye,” has been accused of sexually assaulting three women.`\
+https://nytimes.com/2024/08/08/us/gabriel-olds-actor-sexual-assault.html
+
+**“The vast majority of the country does support me.”**\
+`By Peter Baker`\
+https://nytimes.com/live/2024/08/08/us/harris-trump-election/the-vast-majority-of-the-country-does-support-me
+
+**Australia thwarts U.S. women's water polo team's shot at history**\
+`A save on the final goal attempt between the U.S. and Australia gave Australia the 6-5 lead in the shootout and the victory.`\
+https://nytimes.com/athletic/5689654/2024/08/08/usa-water-polo-australia-olympics/
+
 **Why White Supremacists Are Trying to Attack Energy Grids**\
 `An ideology with roots in white supremacist writings in the 20th century found renewed attention in neo-Nazi online groups in the 2010s and has inspired recent plots, say researchers.`\
 https://nytimes.com/2024/08/08/us/white-supremacist-power-grid-attacks.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5689627/2024/08/08/betting-on-youth-an-accounting-o
 **“Our tax cuts, which are the biggest in history.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/08/08/us/harris-trump-election/our-tax-cuts-which-are-the-biggest-in-history
-
-**“They’re drilling now because they had to go back because gasoline was going up to seven, eight, nine dollars a barrel. The day after the election, if they won, you’re going to have fuel prices go through the roof.”**\
-`By Coral Davenport`\
-https://nytimes.com/live/2024/08/08/us/harris-trump-election/theyre-drilling-now-because-they-had-to-go-back-because-gasoline-was-going-up-to-seven-eight-nine-dollars-a-barrel-the-day-after
-
-**“If you go back and check your records for 18 months, I had a talk with Abdul. Abdul was the leader of the Taliban still is, but had a strong talk with him. For 18 months. Not one American soldier was shot at or killed, but not even shot at 18 months.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/08/08/us/harris-trump-election/if-you-go-back-and-check-your-records-for-18-months-i-had-a-talk-with-abdul-abdul-was-the-leader-of-the-taliban-still-is-but-had
-
-**‘Saturday Night Live’: Meet the Candidates**\
-`Steve Martin is out, and the roles of Kamala Harris and Donald Trump seem settled. But the internet has been busy dream-casting the rest of the “S.N.L.” election ticket.`\
-https://nytimes.com/2024/08/08/arts/television/snl-2024-election-harris-trump.html
-
-**“Democrats are really the radical ones on this, because they’re allowed to do abortion on the eighth and ninth month, and even after birth.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/08/08/us/harris-trump-election/democrats-are-really-the-radical-ones-on-this-because-theyre-allowed-to-do-abortion-on-the-eighth-and-ninth-month-and-even-after
-
-**Until Saturday: First-ever Freaks List repeat No. 1**\
-`Welcome to Until Saturday, The Athletic's college football newsletter. `\
-https://nytimes.com/athletic/5689294/2024/08/08/freaks-list-michigan-penn-state-jim-harbaugh-burger-until-saturday/
-
-**Letsile Tebogo wins Olympic gold over Lyles, Bednarek**\
-`Noah Lyles was humbled. He ran a decent time of 19.70. But he was never really a threat to win it.`\
-https://nytimes.com/athletic/5689607/2024/08/08/letsile-tebogo-olympics-200m-results-noah-lyles/
 
