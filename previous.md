@@ -1,3 +1,11 @@
+**Richarlison rules out Saudi Pro League move: 'The money is big but my dream is bigger'**\
+`Tottenham Hotspur forward Richarlison says he will not be leaving the club to join a Saudi Pro League club this summer.`\
+https://nytimes.com/athletic/5688872/2024/08/08/spurs-richarlison-saudi-transfer/
+
+**Kieran Culkin, Bob Odenkirk and Bill Burr to Star in Broadway ‘Glengarry’**\
+`A revival of “Glengarry Glen Ross,” David Mamet’s classic play about unscrupulous real estate agents, is to open next spring.`\
+https://nytimes.com/2024/08/08/theater/glengarry-broadway-culkin-odenkirk-burr.html
+
 **White Sox fire manager Pedro Grifol**\
 `Grifol compiled a 89-190 record in less than two seasons at the helm on the South Side.`\
 https://nytimes.com/athletic/5672153/2024/08/08/white-sox-pedro-grifol-fired/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5643036/2024/08/08/kyle-dake-david-taylor-olympics-
 **Burned Out of Lahaina, Thousands Try to Rebuild Lives Elsewhere**\
 `Many struggled to find housing and work after the wildfire destroyed the seaside town on Maui last year. But they have faced new hardships.`\
 https://nytimes.com/2024/08/08/us/maui-lahaina-residents-move.html
-
-**Trump Says He Will Hold a News Conference at Mar-a-Lago on Thursday**\
-`The former president’s prominence in news coverage has slipped since President Biden withdrew from the race and endorsed Vice President Kamala Harris.`\
-https://nytimes.com/2024/08/08/us/politics/trump-news-conference.html
-
-**Chargers training camp, Day 13: Players, coaches eager for live action**\
-`Tre’Mon Morris-Brash is among the Chargers' rookies who has flashed and the team is excited to see against the Seahawks on Saturday.`\
-https://nytimes.com/athletic/5688255/2024/08/08/chargers-training-camp-preseason-seahawks/
 

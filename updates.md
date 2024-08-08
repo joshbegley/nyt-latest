@@ -1,3 +1,11 @@
+**Richarlison rules out Saudi Pro League move: 'The money is big but my dream is bigger'**\
+`Tottenham Hotspur forward Richarlison says he will not be leaving the club to join a Saudi Pro League club this summer.`\
+https://nytimes.com/athletic/5688872/2024/08/08/spurs-richarlison-saudi-transfer/
+
+**Kieran Culkin, Bob Odenkirk and Bill Burr to Star in Broadway ‘Glengarry’**\
+`A revival of “Glengarry Glen Ross,” David Mamet’s classic play about unscrupulous real estate agents, is to open next spring.`\
+https://nytimes.com/2024/08/08/theater/glengarry-broadway-culkin-odenkirk-burr.html
+
 **White Sox fire manager Pedro Grifol**\
 `Grifol compiled a 89-190 record in less than two seasons at the helm on the South Side.`\
 https://nytimes.com/athletic/5672153/2024/08/08/white-sox-pedro-grifol-fired/
