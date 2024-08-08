@@ -1,3 +1,11 @@
+**Mockery Won’t Increase Fertility**\
+`Culture warriors aren’t going to change plunging birthrates this way.`\
+https://nytimes.com/2024/08/08/opinion/birth-rate-jd-vance.html
+
+**Iranians Accused of Smuggling Missile Components Intended for Houthi Rebels**\
+`The Justice Department charged two Iranians with smuggling missile parts that were seized in January in the Arabian Sea. The search resulted in charges for four others and the deaths of two Navy SEALs.`\
+https://nytimes.com/2024/08/08/us/politics/iranians-missiles-houthi-rebels.html
+
 **3 Columbia University Deans Who Sent Insulting Texts Have Resigned**\
 `The deans were put on leave earlier in the summer after sending messages that disparaged Jewish panelists. A fourth dean, who is tenured, will remain at the university.`\
 https://nytimes.com/2024/08/08/nyregion/columbia-university-deans-resign-text-messages-antisemitism.html
