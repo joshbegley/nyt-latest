@@ -1,3 +1,15 @@
+**Grant Holloway captures golden redemption with hurdles win**\
+`The win reclaims an event dominated by Americans through the 20th century, when the U.S. claimed 17 of a possible 22 golds.`\
+https://nytimes.com/athletic/5689658/2024/08/08/grant-holloway-mens-hurdles-olympics-results/
+
+**Mary Wings, Pioneering Creator of Queer Comics, Dies at 75**\
+`She was the first openly gay woman to write a comic book about lesbians. She went on to write detective novels with a queer woman in the lead.`\
+https://nytimes.com/2024/08/08/arts/mary-wings-dead.html
+
+**Iranians Accused of Smuggling Missile Components Intended for Houthi Rebels**\
+`The Justice Department has charged two Iranians with smuggling missile parts that were seized in January in the Arabian Sea. The search resulted in charges for four others and the deaths of two Navy SEALs.`\
+https://nytimes.com/2024/08/08/us/politics/iranians-missiles-houthi-rebels.html
+
 **Trump Falsely Claims No One Died in Jan. 6 Capitol Attack**\
 `In fact, four of his supporters died in the crowd that day, and others died within days.`\
 https://nytimes.com/2024/08/08/us/politics/trump-jan-6-deaths.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5689655/2024/08/08/ohio-state-preseason-camp-jeremi
 **How to … : An Informational Writing Contest for Teenagers**\
 `We invite students to explain how to do any task in 400 words or fewer. Contest dates: Feb. 12 to March 12, 2025.`\
 https://nytimes.com/2024/08/08/learning/how-to-an-informational-writing-contest-for-teenagers.html
-
-**Tiny Memoir Contest for Students: Write a 100-Word Personal Narrative**\
-`We invite teenagers to tell a true story about a meaningful life experience in just 100 words. Contest dates: Nov. 6 to Dec. 4, 2024.`\
-https://nytimes.com/2024/08/08/learning/tiny-memoir-contest-for-students-write-a-100-word-personal-narrative.html
-
-**Sydney McLaughlin-Levrone breaks world record to win another Olympic gold in 400m hurdles**\
-`Sydney McLaughlin-Levrone broke the 400-meter hurdles world record for a sixth time Saturday, winning her second straight Olympic gold.`\
-https://nytimes.com/athletic/5688911/2024/08/08/sydney-mclaughlin-levrone-400-meter-hurdles-olympics-gold/
-
-**American long jumper Tara Davis-Woodhall takes gold**\
-`Davis-Woodhall’s medal makes it the fourth consecutive Olympics the U.S. has medaled. Six of the last 12 medals have gone to Americans.`\
-https://nytimes.com/athletic/5689561/2024/08/08/tara-davis-woodhall-olympic-long-jump-results/
 

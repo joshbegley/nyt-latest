@@ -1,3 +1,15 @@
+**Grant Holloway captures golden redemption with hurdles win**\
+`The win reclaims an event dominated by Americans through the 20th century, when the U.S. claimed 17 of a possible 22 golds.`\
+https://nytimes.com/athletic/5689658/2024/08/08/grant-holloway-mens-hurdles-olympics-results/
+
+**Mary Wings, Pioneering Creator of Queer Comics, Dies at 75**\
+`She was the first openly gay woman to write a comic book about lesbians. She went on to write detective novels with a queer woman in the lead.`\
+https://nytimes.com/2024/08/08/arts/mary-wings-dead.html
+
+**Iranians Accused of Smuggling Missile Components Intended for Houthi Rebels**\
+`The Justice Department has charged two Iranians with smuggling missile parts that were seized in January in the Arabian Sea. The search resulted in charges for four others and the deaths of two Navy SEALs.`\
+https://nytimes.com/2024/08/08/us/politics/iranians-missiles-houthi-rebels.html
+
 **Trump Falsely Claims No One Died in Jan. 6 Capitol Attack**\
 `In fact, four of his supporters died in the crowd that day, and others died within days.`\
 https://nytimes.com/2024/08/08/us/politics/trump-jan-6-deaths.html
