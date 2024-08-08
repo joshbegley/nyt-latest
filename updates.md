@@ -1,3 +1,11 @@
+**Quotation of the Day: Extraordinarily Ordinary: Walz’s Path to Prominence**\
+`Quotation of the Day for Thursday, August 8, 2024.`\
+https://nytimes.com/2024/08/07/pageoneplus/quotation-of-the-day-extraordinarily-ordinary-walzs-path-to-prominence.html
+
+**Corrections: Aug. 8, 2024**\
+`Corrections that appeared in print on Thursday, Aug. 8, 2024.`\
+https://nytimes.com/2024/08/07/pageoneplus/corrections-aug-8-2024.html
+
 **The Walz-Pilling of the Democratic Party Was No Accident**\
 `More than a year ago, Tim Walz and his aides decided to be ready in case an irresistible opportunity arose. Their tightly held strategy helped them catch political lightning in a bottle.`\
 https://nytimes.com/2024/08/07/us/politics/tim-walz-kamala-harris-2024.html

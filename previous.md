@@ -1,3 +1,11 @@
+**Quotation of the Day: Extraordinarily Ordinary: Walz’s Path to Prominence**\
+`Quotation of the Day for Thursday, August 8, 2024.`\
+https://nytimes.com/2024/08/07/pageoneplus/quotation-of-the-day-extraordinarily-ordinary-walzs-path-to-prominence.html
+
+**Corrections: Aug. 8, 2024**\
+`Corrections that appeared in print on Thursday, Aug. 8, 2024.`\
+https://nytimes.com/2024/08/07/pageoneplus/corrections-aug-8-2024.html
+
 **The Walz-Pilling of the Democratic Party Was No Accident**\
 `More than a year ago, Tim Walz and his aides decided to be ready in case an irresistible opportunity arose. Their tightly held strategy helped them catch political lightning in a bottle.`\
 https://nytimes.com/2024/08/07/us/politics/tim-walz-kamala-harris-2024.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/07/us/oceangate-titan-submersible-titanic-lawsuit.ht
 **The Harris Campaign Bets on Prairie Progressives**\
 `The Minnesota governor was not just in Wisconsin to sound folksy and talk about hunting.`\
 https://nytimes.com/2024/08/07/us/politics/tim-walz-harris-campaign.html
-
-**49ers training camp: With two more picks, George Odum makes case at safety**\
-`Odum has been one of the NFL's best special teams players, but he may be earning a shot for a bigger role on defense.`\
-https://nytimes.com/athletic/5687488/2024/08/07/49ers-training-camp-george-odum/
-
-**Feud Flares Between U.S. and Global Antidoping Agency**\
-`American officials allowed athletes to compete after testing positive for performance-enhancing drugs so they could work undercover. Their global counterparts call that a breach of the rules.`\
-https://nytimes.com/2024/08/07/us/politics/usada-world-doping.html
 
