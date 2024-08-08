@@ -1,3 +1,11 @@
+**Padres show 'fighting spirit' to win 6th straight series**\
+`San Diego overcame errors and adversity against Pittsburgh — hitting three momentum-swinging home runs — in an extra-inning comeback win.`\
+https://nytimes.com/athletic/5687349/2024/08/08/padres-win-sixth-straight-series/
+
+**Word of the Day: fatalistic**\
+`This word has appeared in 39 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/08/learning/word-of-the-day-fatalistic.html
+
 **Bangladesh to Swear In Interim Government, After Days of Chaos**\
 `Muhammad Yunus, set to lead the country temporarily, faces the immediate and daunting task of restoring order to daily life and to the economy.`\
 https://nytimes.com/2024/08/08/world/asia/muhammad-yunus-bangladesh-swearing-in.html

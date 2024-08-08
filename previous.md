@@ -1,3 +1,11 @@
+**Padres show 'fighting spirit' to win 6th straight series**\
+`San Diego overcame errors and adversity against Pittsburgh — hitting three momentum-swinging home runs — in an extra-inning comeback win.`\
+https://nytimes.com/athletic/5687349/2024/08/08/padres-win-sixth-straight-series/
+
+**Word of the Day: fatalistic**\
+`This word has appeared in 39 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/08/learning/word-of-the-day-fatalistic.html
+
 **Jorge Soler's defensive miscues prove costly for Chris Sale and skidding Braves**\
 `Soler had exclusively served as DH all season before he was traded to the Braves and thrust into right-field duties.`\
 https://nytimes.com/athletic/5688234/2024/08/08/jorge-soler-chris-sale-braves/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5686568/2024/08/08/dominic-solanke-tottenham-analys
 **Why Liverpool's transfer priority is a No 6 and what the pursuit of Zubimendi reveals**\
 `Why Liverpool decided they need a No 6 and what kind of player they want`\
 https://nytimes.com/athletic/5687159/2024/08/08/liverpool-no-6-zubimendi-endo-mac-allister-slot/
-
-**Forshaw interview: 'I was all but done to stay at Leeds but it just didn't happen'**\
-`Following a brief stint at Norwich, the midfielder has found a new home at Plymouth where he is ready to take on a season under Wayne Rooney`\
-https://nytimes.com/athletic/5686082/2024/08/08/adam-forshaw-leeds-united-interview/
-
-**VR headsets, not rushing back: How Lavia set himself up for return this season**\
-`Romeo Lavia barely played last season after his summer move but has put himself in a good position before the new campaign`\
-https://nytimes.com/athletic/5683985/2024/08/08/romeo-lavia-chelsea-injury-recovery/
 
