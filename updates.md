@@ -1,3 +1,7 @@
+**49ers training camp: With two more picks, George Odum makes case at safety**\
+`Odum has been one of the NFL's best special teams players, but he may be earning a shot for a bigger role on defense.`\
+https://nytimes.com/athletic/5687488/2024/08/07/49ers-training-camp-george-odum/
+
 **The Tim Walz Guide to Winning Prairie Progressives**\
 `The Minnesota governor was not just in Wisconsin to sound folksy and talk about hunting.`\
 https://nytimes.com/2024/08/07/us/politics/tim-walz-harris-campaign.html
