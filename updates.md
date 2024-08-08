@@ -1,3 +1,7 @@
+**WADA, USADA clash over American agency's use of 'undercover agents' to catch drug cheats**\
+`The World Anti-Doping Agency and United States Anti-Doping Agency are at odds over a USADA plan to root out drug cheats.`\
+https://nytimes.com/athletic/5688595/2024/08/08/wada-usada-undercover-agents-doping/
+
 **Richarlison rules out Saudi Pro League move: 'The money is big but my dream is bigger'**\
 `Tottenham Hotspur forward Richarlison says he will not be leaving the club to join a Saudi Pro League club this summer.`\
 https://nytimes.com/athletic/5688872/2024/08/08/spurs-richarlison-saudi-transfer/
