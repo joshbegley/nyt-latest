@@ -1,3 +1,7 @@
+**The Walz-Pilling of the Democratic Party Was No Accident**\
+`More than a year ago, Tim Walz and his aides decided to be ready in case an irresistible opportunity arose. Their tightly held strategy helped them catch political lightning in a bottle.`\
+https://nytimes.com/2024/08/07/us/politics/tim-walz-kamala-harris-2024.html
+
 **Man Is Found Guilty in Killing of Rapper PnB Rock**\
 `Prosecutors said that the man, Freddie Lee Trone, sent his teenage son into a restaurant armed with a handgun to rob the rapper.`\
 https://nytimes.com/2024/08/07/arts/music/pnb-rock-death-freddie-trone.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5687488/2024/08/07/49ers-training-camp-george-odum/
 **Feud Flares Between U.S. and Global Antidoping Agency**\
 `American officials allowed athletes to compete after testing positive for performance-enhancing drugs so they could work undercover. Their global counterparts call that a breach of the rules.`\
 https://nytimes.com/2024/08/07/us/politics/usada-world-doping.html
-
-**Buckley: NFL joint practices without fights are impractical, so let's review pros and cons**\
-`Yes, the workouts help with reps, scouting and evaluating. But they also facilitate fisticuffs, risk injury and create a spectacle.`\
-https://nytimes.com/athletic/5687861/2024/08/07/giants-lions-joint-practices-fight-nfl-fine/
 
