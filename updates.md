@@ -1,3 +1,15 @@
+**Smith: 'This team has a standard of winning' as USWNT eyes Olympic gold**\
+`PARIS — Twelve years ago, the last time the U.`\
+https://nytimes.com/athletic/5689365/2024/08/08/uswnt-olympics-smith-rodman-swanson/
+
+**U.S. Mortgage Rates Drop Sharply, With 30-Year at 6.47%**\
+`The key mortgage rate had its biggest one-week decline of the year, falling to the lowest level in 15 months.`\
+https://nytimes.com/2024/08/08/business/economy/mortgage-rates.html
+
+**Christian Horner: Appeal over controlling behavior allegations dismissed**\
+`The Red Bull Formula One employee who accused team principal Christian Horner of controlling and inappropriate behavior has seen her appeal &#8220;not upheld.`\
+https://nytimes.com/athletic/5689404/2024/08/08/christian-horner-f1-appeal-red-bull/
+
 **Harris Doesn’t Support Arms Embargo on Israel, a Top Adviser Says**\
 `Her national security adviser offered one of her first firm policy positions on the Gaza war a day after she had two exchanges with Palestinian supporters in Michigan, one cordial and one confrontational.`\
 https://nytimes.com/2024/08/08/us/politics/harris-israel-arms-embargo.html
