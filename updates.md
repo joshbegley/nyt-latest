@@ -1,3 +1,11 @@
+**‘Saturday Night Live’: Meet the Candidates**\
+`Steve Martin is out, and the roles of Kamala Harris and Donald Trump seem settled. But the internet has been busy dream-casting the rest of the “S.N.L.” election ticket.`\
+https://nytimes.com/2024/08/08/arts/television/snl-2024-election-harris-trump.html
+
+**“Democrats are really the radical ones on this, because they’re allowed to do abortion on the eighth and ninth month, and even after birth.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/08/us/harris-trump-election/democrats-are-really-the-radical-ones-on-this-because-theyre-allowed-to-do-abortion-on-the-eighth-and-ninth-month-and-even-after
+
 **Until Saturday: First-ever Freaks List repeat No. 1**\
 `Welcome to Until Saturday, The Athletic's college football newsletter. `\
 https://nytimes.com/athletic/5689294/2024/08/08/freaks-list-michigan-penn-state-jim-harbaugh-burger-until-saturday/
