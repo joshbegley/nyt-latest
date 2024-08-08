@@ -1,3 +1,7 @@
+**Red Wings future lineup projection: How Detroit could look in three years**\
+`Max Bultman projects and assesses Detroit's lineup three years out to gauge how the Red Wings' rebuild is progressing.`\
+https://nytimes.com/athletic/5687358/2024/08/08/red-wings-2027-28-lineup-projection/
+
 **Katie Ledecky, Nick Mead named closing ceremony flag bearers**\
 `They are the first duo to share the honor for Team USA in the closing ceremony.`\
 https://nytimes.com/athletic/5688732/2024/08/08/katie-ledecky-nick-mead-flag-bearers-olympics-closing-ceremony/
