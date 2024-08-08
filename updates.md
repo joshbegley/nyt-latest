@@ -1,3 +1,11 @@
+**CNN’s Media Chronicler Strikes Out on His Own**\
+`Oliver Darcy is starting a subscription-based news site dedicated to covering the media industry, joining a crowded field.`\
+https://nytimes.com/2024/08/08/business/media/oliver-darcy-status-media.html
+
+**Barcelona transfers update - what's the situation with Gundogan, Roque and others?**\
+`Freeing up space on the wage bill would be a big help in Barca being able to register players, but any exits appear to be stuck at present`\
+https://nytimes.com/athletic/5688490/2024/08/08/barcelona-transfers-gundogan-roque-fati-lenglet/
+
 **Live Election Updates: Rollout of Democratic Ticket to Turn West on Friday**\
 `The Harris and Trump campaigns canceled events in the Southeast because of a tropical storm, but Donald J. Trump said he would hold a news conference Thursday afternoon in Florida.`\
 https://nytimes.com/live/2024/08/08/us/harris-trump-election
