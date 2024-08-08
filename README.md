@@ -1,3 +1,11 @@
+**The Tim Walz Guide to Winning Prairie Progressives**\
+`The Minnesota governor was not just in Wisconsin to sound folksy and talk about hunting.`\
+https://nytimes.com/2024/08/07/us/politics/tim-walz-harris-campaign.html
+
+**49ers training camp: With two more picks, George Odum is making a case at safety**\
+`Odum has been one of the NFL's best special teams players, but he may be earning a shot for a bigger role on defense.`\
+https://nytimes.com/athletic/5687488/2024/08/07/49ers-training-camp-george-odum/
+
 **Feud Flares Between U.S. and Global Antidoping Agency**\
 `American officials allowed athletes to compete after testing positive for performance-enhancing drugs so they could work undercover. Their global counterparts call that a breach of the rules.`\
 https://nytimes.com/2024/08/07/us/politics/usada-world-doping.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/07/sports/baseball/billy-bean-dead.html
 **Move Over, Robots: Sea Lions With Cameras Can Map the Ocean Floor**\
 `Daphne, Phoebe, Iris and Pasithea demonstrated how marine mammals can help scientists understand mysterious places that humans may never visit.`\
 https://nytimes.com/2024/08/07/science/sea-lion-videos-cameras.html
-
-**As Markets Rock, a Reporter Stays Steady**\
-`Joe Rennison, who covers financial markets for The New York Times, raced home from vacation when a slowdown in the U.S. economy sparked widespread worry.`\
-https://nytimes.com/2024/08/07/insider/as-markets-rock-a-reporter-stays-steady.html
-
-**Bengals' fights a sign of edgier version of the team? They're at least worth noting**\
-`A series of skirmishes Wednesday could have been a product of the heat, but also might be a sign of extra competitive fire this season.`\
-https://nytimes.com/athletic/5687826/2024/08/07/bengals-training-camp-fights/
 
