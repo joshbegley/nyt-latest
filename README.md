@@ -1,7 +1,3 @@
-**Trump says he will hold a news conference at Mar-a-Lago on Thursday.**\
-`By Maggie Haberman`\
-https://nytimes.com/live/2024/08/08/us/harris-trump-election/trump-says-he-will-hold-a-news-conference-at-mar-a-lago-on-thursday
-
 **Chargers training camp, Day 13: Players, coaches eager for live action**\
 `Tre’Mon Morris-Brash is among the Chargers' rookies who has flashed and the team is excited to see against the Seahawks on Saturday.`\
 https://nytimes.com/athletic/5688255/2024/08/08/chargers-training-camp-preseason-seahawks/
@@ -37,4 +33,8 @@ https://nytimes.com/live/2024/08/08/us/harris-trump-election
 **What’s Driving the Topsy-Turvy Markets**\
 `A key jobless claims report could join a hiring slowdown, corporate earnings, growth worries in weighing on investors during an August to forget.`\
 https://nytimes.com/2024/08/08/business/dealbook/markets-jobless-claims-recession.html
+
+**Are We Happy Yet?**\
+`The American obsession with individually defining, tracking and boosting happiness may be making us miserable.`\
+https://nytimes.com/2024/08/08/opinion/happiness-tracking-america.html
 
