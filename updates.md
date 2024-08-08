@@ -1,3 +1,7 @@
+**Family of Titan Crew Member Sues OceanGate**\
+`Paul-Henri Nargeolet, a French explorer, died along with four other crew members when OceanGate’s Titan craft imploded on its journey to the Titanic.`\
+https://nytimes.com/2024/08/07/us/oceangate-titan-submersible-titanic-lawsuit.html
+
 **49ers training camp: With two more picks, George Odum makes case at safety**\
 `Odum has been one of the NFL's best special teams players, but he may be earning a shot for a bigger role on defense.`\
 https://nytimes.com/athletic/5687488/2024/08/07/49ers-training-camp-george-odum/
