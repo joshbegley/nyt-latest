@@ -1,3 +1,11 @@
+**A Republican Governor’s Plea to Stop the Personal Attacks**\
+`Responses to an essay by Gov. Christopher Sununu of New Hampshire. Also: “Weird” as a campaign epithet; Cori Bush’s defeat; famine in Sudan; the 1964 World’s Fair.`\
+https://nytimes.com/2024/08/08/opinion/republicans-attacks.html
+
+**The Bounce: Can Nikola Jokić keep Team USA from gold?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5689016/2024/08/08/nikola-jokic-serbia-team-usa-rudy-gobert-canda-nba-the-bounce/
+
 **The Windup: All-time-bad team fires manager**\
 `Stephen Nesbitt catches you up on league-wide news.`\
 https://nytimes.com/athletic/5689150/2024/08/08/white-sox-fire-pedro-grifol-bobby-witt-aaron-judge-mvp-the-windup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5688141/2024/08/08/benjamin-st-juste-anna-hall-pari
 **Pochettino a top target to become USMNT coach: Sources**\
 `Former Tottenham and Chelsea head coach Mauricio Pochettino is a top target for the U.`\
 https://nytimes.com/athletic/5689027/2024/08/08/mauricio-pochettino-usmnt-coach/
-
-**Jordan Chiles returning to UCLA gymnastics**\
-`During her first stint with the Bruins, Chiles was a star all-around who recorded eight perfect 10.0s (four on bars and four on floor).`\
-https://nytimes.com/athletic/5688235/2024/08/08/jordan-chiles-returning-ucla-gymnastics/
-
-**Stuttgart agree deal to sign Undav from Brighton**\
-`Stuttgart are close to completing the signing of Brighton &amp; Hove Albion forward Deniz Undav.`\
-https://nytimes.com/athletic/5686776/2024/08/08/stuttgart-deniz-undav-brighton/
 
