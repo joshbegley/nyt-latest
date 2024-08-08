@@ -1,3 +1,7 @@
+**Feud Flares Between U.S. and Global Antidoping Agency**\
+`American officials allowed athletes to compete after testing positive for performance-enhancing drugs so they could work undercover. Their global counterparts call that a breach of the rules.`\
+https://nytimes.com/2024/08/07/us/politics/usada-world-doping.html
+
 **Buckley: NFL joint practices without fights are impractical, so let's review pros and cons**\
 `Yes, the workouts help with reps, scouting and evaluating. But they also facilitate fisticuffs, risk injury and create a spectacle.`\
 https://nytimes.com/athletic/5687861/2024/08/07/giants-lions-joint-practices-fight-nfl-fine/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/07/insider/as-markets-rock-a-reporter-stays-steady.h
 **Bengals' fights a sign of edgier version of the team? They're at least worth noting**\
 `A series of skirmishes Wednesday could have been a product of the heat, but also might be a sign of extra competitive fire this season.`\
 https://nytimes.com/athletic/5687826/2024/08/07/bengals-training-camp-fights/
-
-**DK Metcalf swings helmet at teammate's head**\
-`DK Metcalf hit K'Von Wallace in the head with a helmet after a confrontation with Tre Brown, just one of several fights Wednesday.`\
-https://nytimes.com/athletic/5687833/2024/08/07/seahawks-fight-dk-metcalf-helmet/
 
