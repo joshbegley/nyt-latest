@@ -1,3 +1,11 @@
+**Over 100 Homes Damaged in Alaska After Flooding Causes Glacial Lake to Overflow**\
+`The flooding this week in Juneau, Alaska, topped a record set last year when the same glacial basin overfilled, rapidly inundating nearby neighborhoods.`\
+https://nytimes.com/2024/08/08/us/alaska-juneau-flooding-glacier.html
+
+**Leicester in advanced talks to sign Buonanotte on loan**\
+`Leicester City are in advanced talks with Brighton and Hove Albion over the signing of midfielder Facundo Buonanotte.`\
+https://nytimes.com/athletic/5688941/2024/08/08/leicester-brighton-buonanotte-transfer-loan/
+
 **Harris Responds to Pro-Palestinian Protesters at Michigan Rally**\
 `Protesters interrupted Kamala Harris’s speech at a rally in Detroit.`\
 https://nytimes.com/video/us/politics/100000009618743/harris-rally-gaza-protesters.html
