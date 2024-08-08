@@ -1,3 +1,7 @@
+**Stuttgart agree deal to sign Undav from Brighton**\
+`Stuttgart are close to completing the signing of Brighton &amp; Hove Albion forward Deniz Undav.`\
+https://nytimes.com/athletic/5686776/2024/08/08/stuttgart-deniz-undav-brighton/
+
 **These Chipotle-Honey Chicken Tacos Are Push-a-Button Easy**\
 `Let your slow cooker (or pressure cooker) do the work for this spicy, smoky-sweet five-star dinner. You’ve got some summer to soak up.`\
 https://nytimes.com/2024/08/08/dining/these-chipotle-honey-chicken-tacos-are-push-a-button-easy.html
