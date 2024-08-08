@@ -1,3 +1,7 @@
+**Twins takeaways: Rebuilding the bullpen, Matt Wallner crushing, signing Giovanny Gallegos**\
+`Brock Stewart's injury setback means the Twins need to rethink their late-inning mix, but they're not short on power right-handers.`\
+https://nytimes.com/athletic/5683893/2024/08/08/minnesota-twins-bullpen-matt-wallner/
+
 **‘The Instigators’ Review: Bumblers in Beantown**\
 `Casey Affleck and Matt Damon star in a Boston heist that goes sideways.`\
 https://nytimes.com/2024/08/08/movies/the-instigators-review.html
