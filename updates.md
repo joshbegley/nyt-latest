@@ -1,3 +1,31 @@
+**Why Chris Foerster wants Dominick Puni and 49ers' top O-line to start in Tennessee**\
+`To make room for a veteran receiver and safety, the 49ers put pass rusher Drake Jackson on the reserve/PUP list, ending his 2024 season.`\
+https://nytimes.com/athletic/5690029/2024/08/08/49ers-titans-preseason-starters-offensive-line/
+
+**Newsom Clears Homeless Camps in L.A. County, Where He Wants More ‘Urgency’**\
+`Gov. Gavin Newsom, frustrated by county leaders who spurned his executive order cracking down on encampments, visited their turf to clear homeless sites.`\
+https://nytimes.com/2024/08/08/us/newsom-homeless-los-angeles.html
+
+**Trump and Harris Agreed to a September Debate**\
+`Also, Ukraine launched a surprise push into Russia. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/08/08/briefing/trump-harris-debate-ukraine-russia-incursion.html
+
+**Jacques Lewis, French Veteran of U.S. Landing on D-Day, Dies at 105**\
+`Believed to be the last surviving Frenchman to wade ashore with Americans, he was attached to an Army unit that stormed Utah Beach and helped drive Germans out of France.`\
+https://nytimes.com/2024/08/08/world/europe/jacques-lewis-dead.html
+
+**Iraq arrests five in an attack on an air base that injured American troops.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/08/08/world/israel-iran-hamas-gaza-war/iraq-arrests-five-in-an-attack-on-an-air-base-that-injured-american-troops
+
+**USA vs. France Olympics gold medal basketball game odds: Americans heavy favorites**\
+`The U.S. men's basketball team is favored by double-digits ahead of the gold medal game against France.`\
+https://nytimes.com/athletic/5690015/2024/08/08/usa-france-olympics-gold-medal-basketball-game-odds/
+
+**Maine Will Vote on a New State Flag**\
+`A state committee selected a contest winner from more than 400 submissions. The Chuck Norris flag didn’t make the cut.`\
+https://nytimes.com/2024/08/08/style/main-state-flag-contest.html
+
 **Trump Tries to Wrestle Back Attention at Mar-a-Lago News Conference**\
 `In an hourlong exchange with reporters, the former president criticized Vice President Kamala Harris for not doing the same, insulted her intelligence and boasted about the size of his rallies.`\
 https://nytimes.com/2024/08/08/us/politics/trump-press-conference-mar-a-lago.html
