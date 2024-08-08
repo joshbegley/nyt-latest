@@ -1,3 +1,15 @@
+**Deadly Tornado Damages School in North Carolina**\
+`One of several small tornadoes spawned by Tropical Storm Debby killed a man and damaged a school in Lucama, N.C.`\
+https://nytimes.com/video/weather/100000009618540/tornado-storm-debby-north-carolina.html
+
+**Fact Checking Trump’s Mar-a-Lago News Conference**\
+`The former president took questions from reporters for more than hour. We examined his claims, attacks and policy positions.`\
+https://nytimes.com/live/2024/08/08/us/trump-press-conference-fact-check
+
+**The Deep Hypocrisy of the Trump Campaign Assailing Walz’s Military Service**\
+`Falsehoods can be debunked and records can be corrected, but Vance’s insidiously clever accusation will linger.`\
+https://nytimes.com/live/2024/08/07/opinion/thepoint/tim-walz-stolen-valor
+
 **Trump Claims Jan. 6 Crowd Rivaled the 1963 March on Washington. Estimates Say Otherwise.**\
 `The former president said during a news conference that the attendance at his rally on Jan. 6, 2021, was equal, if not larger, than the March on Washington in 1963.`\
 https://nytimes.com/2024/08/08/us/politics/trump-jan-6-mlk-crowds.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/08/briefing/trump-harris-ukraine-russia-lebanon-gaza
 **F1 owner Liberty Media confirms DOJ antitrust investigation into Andretti rejection**\
 `F1 rejection of Andretti’s bid to join the grid for 2025 or 2026 has sparked movement in congress to investigate the company.`\
 https://nytimes.com/athletic/5689786/2024/08/08/f1-andretti-liberty-media-doj-antitrust/
-
-**Every Four Years, He Gives Ireland a Reason to Watch Basketball**\
-`While the Irish have no team in the Olympic tournament, Timmy McCarthy’s eccentric, enthusiastic commentary has earned him his own fervent fan base.`\
-https://nytimes.com/2024/08/08/world/europe/basketball-commentary-ireland-timmy-mccarthy.html
-
-**Mockery Won’t Increase Fertility**\
-`Culture warriors aren’t going to change plunging birthrates this way.`\
-https://nytimes.com/2024/08/08/opinion/birth-rate-jd-vance.html
-
-**3 Columbia University Deans Who Sent Insulting Texts Have Resigned**\
-`The deans were put on leave earlier in the summer after sending messages that disparaged Jewish panelists. A fourth dean, who is tenured, will remain at the university.`\
-https://nytimes.com/2024/08/08/nyregion/columbia-university-deans-resign-text-messages-antisemitism.html
 
