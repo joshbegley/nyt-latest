@@ -1,3 +1,19 @@
+**Trump Claims Jan. 6 Crowd Rivaled the 1963 March on Washington. Estimates Say Otherwise.**\
+`The former president said during a news conference that the attendance at his rally on Jan. 6, 2021 was equal, if not larger, than the March on Washington in 1963.`\
+https://nytimes.com/2024/08/08/us/politics/trump-jan-6-mlk-crowds.html
+
+**Trump Suggests that President Should Have a ‘Say’ in Interest Rates**\
+`Donald J. Trump suggested presidents should have input on interest rates, a comment likely to stoke fears that he could try to limit the Federal Reserve’s political independence.`\
+https://nytimes.com/2024/08/08/business/economy/trump-fed-interest-rates.html
+
+**ABC Says Trump and Harris Have Agreed to Debate on Sept. 10**\
+`The ABC anchors David Muir and Linsey Davis will moderate the candidates’ first face-to-face encounter since Kamala Harris entered the race.`\
+https://nytimes.com/2024/08/08/business/media/trump-harris-abc-debate.html
+
+**Djokovic withdraws from Cincinnati Open after Olympic gold**\
+`Novak Djokovic has withdrawn from this month&#8217;s Cincinnati Open.`\
+https://nytimes.com/athletic/5689972/2024/08/08/novak-djokovic-cincinnati-open-withdrawal/
+
 **U.S. men escape Serbia as Steph Curry takes over**\
 `For much of this Olympic semifinal, it looked like the Americans’ reign was over.`\
 https://nytimes.com/athletic/5689936/2024/08/08/usa-basketball-serbia-olympics/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/08/08/opinion/birth-rate-jd-vance.html
 **3 Columbia University Deans Who Sent Insulting Texts Have Resigned**\
 `The deans were put on leave earlier in the summer after sending messages that disparaged Jewish panelists. A fourth dean, who is tenured, will remain at the university.`\
 https://nytimes.com/2024/08/08/nyregion/columbia-university-deans-resign-text-messages-antisemitism.html
-
-**Wembanyama cements win as France advances to gold medal game**\
-`Wembanyama, taking part in his first Games for his native country, has been an integral part in leading France to the gold medal game.`\
-https://nytimes.com/athletic/5689588/2024/08/08/victor-wembanyama-france-germany-basketball-semifinal-olympics/
-
-**Third Death Is Tied to Listeria, Health Officials Say**\
-`The death in Virginia came amid a nationwide outbreak linked to Boar’s Head deli meats. More than 40 people have been hospitalized.`\
-https://nytimes.com/2024/08/08/us/listeria-outbreak-third-death.html
-
-**Let’s Review Restaurant Etiquette**\
-`Three general managers weigh in so that everyone — diners and staff — have the best restaurant experience possible.`\
-https://nytimes.com/2024/08/08/dining/restaurant-etiquette.html
-
-**6 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2024/08/08/books/review/new-books-recommendations.html
 
