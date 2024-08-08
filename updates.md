@@ -1,3 +1,7 @@
+**Open Letters: Our Opinion-Writing Contest**\
+`We invite students to write public-facing letters to people or groups about issues that matter to them. Contest dates: March 12 to April 16, 2025.`\
+https://nytimes.com/2024/08/08/learning/open-letters-our-opinion-writing-contest.html
+
 **Ohio State camp notes: Jeremiah Smith continues to shine while secondary dominates**\
 `Also notable from camp: Will Howard is gaining the edge on Devin Brown in the QB battle and Jelani Thurman could be an option at tight end.`\
 https://nytimes.com/athletic/5689655/2024/08/08/ohio-state-preseason-camp-jeremiah-smith-ryan-day/
