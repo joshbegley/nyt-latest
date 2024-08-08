@@ -1,3 +1,11 @@
+**White Sox fire manager Pedro Grifol**\
+`Grifol compiled a 89-190 record in less than two seasons at the helm on the South Side.`\
+https://nytimes.com/athletic/5672153/2024/08/08/white-sox-pedro-grifol-fired/
+
+**Can Fed Officials Still Nail the Landing? As Rate Cuts Near, It’s a Moment of Truth.**\
+`The Federal Reserve was about to cut interest rates, turning the corner after a long fight with inflation. But now, its soft landing is in question.`\
+https://nytimes.com/2024/08/08/business/economy/federal-interest-rates-inflation.html
+
 **Navigating a new role, Nick Sirianni taps Dawn Staley for guidance**\
 `The Eagles coach asked the basketball legend to speak to his players.`\
 https://nytimes.com/athletic/5687068/2024/08/08/eagles-coach-nick-sirianni-dawn-staley/
