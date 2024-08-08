@@ -1,3 +1,15 @@
+**Harris Doesn’t Support Arms Embargo on Israel, a Top Adviser Says**\
+`Her national security adviser offered one of her first firm policy positions on the Gaza war a day after she had two exchanges with Palestinian supporters in Michigan, one cordial and one confrontational.`\
+https://nytimes.com/2024/08/08/us/politics/harris-israel-arms-embargo.html
+
+**Teach Writing With The New York Times: Our 2024-25 Curriculum**\
+`Our nine writing units are based on real-world features like reviews, photo essays, narratives, podcasts and more.`\
+https://nytimes.com/2024/08/08/learning/teach-writing-with-the-new-york-times-our-2024-25-curriculum.html
+
+**MLB bullpen report: Tyler Holton emerging in Detroit, David Bednar in a post-break swoon and more**\
+`Greg Jewett tracks all the MLB bullpen movement that matters for fantasy baseball, including an emerging southpaw in Detroit.`\
+https://nytimes.com/athletic/5689280/2024/08/08/mlb-bullpen-report-tyler-holton-emerging-in-detroit-david-bednar-in-a-post-break-swoon-and-more/
+
 **Projecting the Ducks' opening-night lineup: Where will Cutter Gauthier fit?**\
 `The Ducks came up empty on big free agents this summer, but where will they slot their young players?`\
 https://nytimes.com/athletic/5689209/2024/08/08/anaheim-ducks-2024-25-lineup/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5689180/2024/08/08/pepe-retires-football-portugal/
 **Art Gallery Shows to See Right Now**\
 `Jillian Steinhauer covers Maria Prymachenko at the Ukrainian Museum, Khadim Ali  at Aicon and Jody Wood at Open Source Gallery.`\
 https://nytimes.com/2024/08/08/arts/design/art-gallery-shows-to-see-right-now.html
-
-**Here’s where the most rain from Debby has fallen in each state.**\
-`By Judson Jones`\
-https://nytimes.com/live/2024/weather/debby-storm-forecast/heres-where-the-most-rain-from-debby-has-fallen-in-each-state
-
-**Quincy Wilson, 16, expected to make Olympic debut Friday**\
-`With his first step, he'll become the youngest American male track athlete in Olympic history.`\
-https://nytimes.com/athletic/5689130/2024/08/08/quincy-wilson-youngest-male-track-olympian/
-
-**Nick Foles announces NFL retirement**\
-`Foles led the Eagles to winning the 2018 Super Bowl after starting QB Carson Wentz suffered a knee injury late in the season.`\
-https://nytimes.com/athletic/5689153/2024/08/08/nick-foles-retires-eagles/
 
