@@ -1,3 +1,7 @@
+**Why Kenya Stopped Running From Its Doping Past**\
+`A nation synonymous with distance running was given a multimillion-dollar choice: Get serious about antidoping efforts, or get banned from world sports.`\
+https://nytimes.com/2024/08/08/world/olympics/kenya-olympics-doping.html
+
 **Osula joins Newcastle from Sheffield Utd**\
 `Newcastle United have completed the signing of William Osula from Sheffield United.`\
 https://nytimes.com/athletic/5675576/2024/08/08/william-osula-newcastle-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/08/style/beverly-nguyen-new-york-culture.html
 **‘Borderlands’ Review: Shoot First, Ask Questions Never**\
 `In Eli Roth’s caper movie, based on the best-selling video game franchise, Cate Blanchett plays a bounty hunter who is tasked with finding a tycoon’s daughter.`\
 https://nytimes.com/2024/08/08/movies/borderlands-review.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/08/08/crosswords/spelling-bee-forum.html
 
