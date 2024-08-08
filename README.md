@@ -1,3 +1,11 @@
+**“Nobody was killed on Jan. 6.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/08/us/harris-trump-election/nobody-was-killed-on-jan-6
+
+**NOAA Forecasts Highly Active Hurricane Season Will Continue**\
+`The agency’s new forecast predicts that as many as 24 named tropical storms could form between June 1 and Nov. 30.`\
+https://nytimes.com/2024/08/08/climate/noaa-hurricane-forecast.html
+
 **“Inflation was caused by their bad energy problems.”**\
 `By Alan Rappeport`\
 https://nytimes.com/live/2024/08/08/us/harris-trump-election/inflation-was-caused-by-their-bad-energy-problems
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/08/climate/tropical-storm-debby-climate-change-south
 **Israeli strikes near two school compounds kill at least 16, Gazan officials say.**\
 `By Ephrat Livni and Aaron Boxerman`\
 https://nytimes.com/live/2024/08/08/world/israel-iran-hamas-gaza-war/israeli-strikes-near-two-school-compounds-kill-at-least-16-gazan-officials-say
-
-**“She was the border czar 100 percent. And all of a sudden, for the last few weeks, she’s not the border czar anymore. Like nobody ever said it.”**\
-`By Michael D. Shear`\
-https://nytimes.com/live/2024/08/08/us/harris-trump-election/she-was-the-border-czar-100-percent-and-all-of-a-sudden-for-the-last-few-weeks-shes-not-the-border-czar-anymore-like-nobody-ever
-
-**“Twenty million people came over the border in the last — during the Biden-Harris administration, 20 million people, and it could be very much higher than that.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/08/08/us/harris-trump-election/fact-check-trump-border
 
