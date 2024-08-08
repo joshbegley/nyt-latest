@@ -1,3 +1,7 @@
+**Trump Tries to Wrestle Back Attention at Mar-a-Lago News Conference**\
+`In an hourlong exchange with reporters, the former president criticized Vice President Kamala Harris for not doing the same, insulted her intelligence and boasted about the size of his rallies.`\
+https://nytimes.com/2024/08/08/us/politics/trump-press-conference-mar-a-lago.html
+
 **Noah Lyles Wins Bronze in 200 Meters, Then Reveals He Has Covid**\
 `Lyles said he started feeling ill two days ago and knew it was more than just soreness from winning the 100. In Paris, there are no testing requirements, and national governing bodies develop their own protocols.`\
 https://nytimes.com/2024/08/08/world/olympics/noah-lyles-wins-bronze-in-200-meters-then-reveals-he-has-covid.html
