@@ -1,3 +1,11 @@
+**No Aaron Rodgers, but Jets still dominate Commanders in joint practice**\
+`The Tyrod Taylor-to-Garrett Wilson connection was the story of the day on a rainy Thursday.`\
+https://nytimes.com/athletic/5689602/2024/08/08/aaron-rodgers-out-jets-commanders-joint-practice-observations/
+
+**Swifties in Vienna Cry, Commiserate and Try to Shake It Off**\
+`Taylor Swift fans from around the world grappled with disappointment and fear after a terrorism plot derailed the Vienna leg of the Eras Tour.`\
+https://nytimes.com/2024/08/08/world/europe/taylor-swift-eras-tour-vienna-reactions.html
+
 **Dam Breach in Rural Georgia Floods Communities Downstream**\
 `The overflow sent floodwaters into neighborhoods miles away, causing property damage but no injuries, officials said.`\
 https://nytimes.com/2024/08/08/weather/dam-breach-in-rural-georgia-floods-communities-downstream.html

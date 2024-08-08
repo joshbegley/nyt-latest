@@ -1,3 +1,11 @@
+**No Aaron Rodgers, but Jets still dominate Commanders in joint practice**\
+`The Tyrod Taylor-to-Garrett Wilson connection was the story of the day on a rainy Thursday.`\
+https://nytimes.com/athletic/5689602/2024/08/08/aaron-rodgers-out-jets-commanders-joint-practice-observations/
+
+**Swifties in Vienna Cry, Commiserate and Try to Shake It Off**\
+`Taylor Swift fans from around the world grappled with disappointment and fear after a terrorism plot derailed the Vienna leg of the Eras Tour.`\
+https://nytimes.com/2024/08/08/world/europe/taylor-swift-eras-tour-vienna-reactions.html
+
 **Dam Breach in Rural Georgia Floods Communities Downstream**\
 `The overflow sent floodwaters into neighborhoods miles away, causing property damage but no injuries, officials said.`\
 https://nytimes.com/2024/08/08/weather/dam-breach-in-rural-georgia-floods-communities-downstream.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5689561/2024/08/08/tara-davis-woodhall-olympic-long
 **Our Student Podcast Contest**\
 `We invite students to create an original podcast of five minutes or less that informs or entertains. Contest dates: April 16 to May 14, 2025.`\
 https://nytimes.com/2024/08/08/learning/our-student-podcast-contest.html
-
-**Noah Lyles reveals COVID-19 diagnosis after bronze medal finish in 200**\
-`"I've never been more proud of myself for being able to come out here and getting a bronze medal," Lyles said.`\
-https://nytimes.com/athletic/5689761/2024/08/08/noah-lyles-covid-19-200-meter-bronze-olympics/
-
-**NESN names Judd Sirott new Bruins play-by-play announcer**\
-`Sirott will work with analyst Andy Brickley, who is in his 24th season with NESN.`\
-https://nytimes.com/athletic/5689684/2024/08/08/nesn-judd-sirott-bruins-jack-edwards/
 
