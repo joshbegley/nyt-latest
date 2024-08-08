@@ -1,3 +1,7 @@
+**Caught Looking: George Kirby's command, Heliot Ramos' approach, Tyler Glasnow's targets**\
+`Plus notes on Griffin Jax's above-average arsenal, Nolan Arenado's bat speed and more.`\
+https://nytimes.com/athletic/5609456/2024/08/08/caught-looking-george-kirby-heliot-ramos-tyler-glasnow/
+
 **William Osula to Newcastle United: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500 series, we look at William Osula's move to Newcastle United.`\
 https://nytimes.com/athletic/5674903/2024/08/08/william-osula-newcastle-analysis-rating/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/08/realestate/homes-for-sale-in-new-york-and-connect
 **Heat Waves and Droughts Are a Bonanza for Junk Food Companies**\
 `Ultraprocessed food companies are taking advantage of worsening environmental conditions to increase their profits.`\
 https://nytimes.com/2024/08/08/opinion/climate-change-junk-food.html
-
-**What Do Uncommitted Voters Want From Kamala Harris?**\
-`The antiwar movement has emerged as a real political force.`\
-https://nytimes.com/live/2024/08/07/opinion/thepoint/uncommitted-voters-democratic-convention
 
