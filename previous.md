@@ -1,3 +1,7 @@
+**From baseball scandal to La Liga promotion - Leganes’ Jeff Luhnow and a twist on Big Data**\
+`They will face a challenge in La Liga next year against Real Madrid and Barcelona - but Leganes have big ambitions`\
+https://nytimes.com/athletic/5686815/2024/08/08/leganes-luhnow-houston-astros-la-liga-promotion/
+
 **The Athletic FC: Atletico - centre of Euro transfers, Arteta's pickpockets and Liverpool's AI**\
 `Today in The Athletic FC: Why Simeone has been handed £200m at Atletico, how Arteta rebuilt Arsenal and Liverpool's AI corners`\
 https://nytimes.com/athletic/5688459/2024/08/08/atletico-transfers-gallagher-arteta-pickpockets-liverpool-ai-the-athletic-fc/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/08/movies/dance-first-review-samuel-beckett.html
 **Raiders set to leave training camp closer and tougher ahead of first preseason tilt**\
 `The quarterbacks may have struggled, but Antonio Pierce feels good about his team's chemistry coming out of training camp in Costa Mesa.`\
 https://nytimes.com/athletic/5687920/2024/08/08/raiders-training-camp-preseason/
-
-**Dodgers' Gavin Lux started swinging harder and now he's reaping the rewards**\
-`Healthy again, Lux decided to swing more aggressively: “He's like, 'Screw it. If I'm going down, I'm going down aggressive."`\
-https://nytimes.com/athletic/5687860/2024/08/08/dodgers-gavin-lux-swing-change/
 
