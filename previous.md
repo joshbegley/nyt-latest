@@ -1,3 +1,15 @@
+**The Darkness on the Edge of Trump**\
+`The former president’s deliberately frightening news conference felt like a tour of Mordor.`\
+https://nytimes.com/live/2024/08/07/opinion/thepoint/trump-press-conference-doom
+
+**Sydney McLaughlin breaks her own 400-meter hurdle record. Again.**\
+`Sydney McLaughlin-Levrone broke her own world record on her way to winning gold for the United States in the 400 meter hurdles.`\
+https://nytimes.com/2024/08/08/world/olympics/sydney-mclaughlin-levrone-400-meter-hurdles.html
+
+**Commanders show they're still a work in progress during joint practice vs. Jets**\
+`In wet and rainy conditions, Jayden Daniels got his first reps against an opposing team. Plus, the defense struggled to stop Garrett Wilson.`\
+https://nytimes.com/athletic/5689979/2024/08/08/commanders-jets-joint-practice/
+
 **This Bawdy Dramedy Presents a Fantasy of Online Sex Work**\
 `A new Norwegian series on Max follows a stifled wife and mother who finds excitement and a new identity by posting explicit photos online.`\
 https://nytimes.com/2024/08/08/arts/television/this-bawdy-dramedy-presents-a-fantasy-of-online-sex-work.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/08/us/newsom-homeless-los-angeles.html
 **Trump and Harris Agreed to a September Debate**\
 `Also, Ukraine launched a surprise push into Russia. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/08/08/briefing/trump-harris-debate-ukraine-russia-incursion.html
-
-**Jacques Lewis, French Veteran of U.S. Landing on D-Day, Dies at 105**\
-`Believed to be the last surviving Frenchman to wade ashore with Americans, he was attached to an Army unit that stormed Utah Beach and helped drive Germans out of France.`\
-https://nytimes.com/2024/08/08/world/europe/jacques-lewis-dead.html
-
-**Iraq arrests five in an attack on an air base that injured American troops.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/08/08/world/israel-iran-hamas-gaza-war/iraq-arrests-five-in-an-attack-on-an-air-base-that-injured-american-troops
-
-**USA vs. France Olympics gold medal basketball game odds: Americans heavy favorites**\
-`The U.S. men's basketball team is favored by double-digits ahead of the gold medal game against France.`\
-https://nytimes.com/athletic/5690015/2024/08/08/usa-france-olympics-gold-medal-basketball-game-odds/
 

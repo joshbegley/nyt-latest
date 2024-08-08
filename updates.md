@@ -1,3 +1,15 @@
+**The Darkness on the Edge of Trump**\
+`The former president’s deliberately frightening news conference felt like a tour of Mordor.`\
+https://nytimes.com/live/2024/08/07/opinion/thepoint/trump-press-conference-doom
+
+**Sydney McLaughlin breaks her own 400-meter hurdle record. Again.**\
+`Sydney McLaughlin-Levrone broke her own world record on her way to winning gold for the United States in the 400 meter hurdles.`\
+https://nytimes.com/2024/08/08/world/olympics/sydney-mclaughlin-levrone-400-meter-hurdles.html
+
+**Commanders show they're still a work in progress during joint practice vs. Jets**\
+`In wet and rainy conditions, Jayden Daniels got his first reps against an opposing team. Plus, the defense struggled to stop Garrett Wilson.`\
+https://nytimes.com/athletic/5689979/2024/08/08/commanders-jets-joint-practice/
+
 **This Bawdy Dramedy Presents a Fantasy of Online Sex Work**\
 `A new Norwegian series on Max follows a stifled wife and mother who finds excitement and a new identity by posting explicit photos online.`\
 https://nytimes.com/2024/08/08/arts/television/this-bawdy-dramedy-presents-a-fantasy-of-online-sex-work.html
