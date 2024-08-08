@@ -1,3 +1,7 @@
+**The Athletic FC: Atletico - centre of Euro transfers, Arteta's pickpockets and Liverpool's AI**\
+`Today in The Athletic FC: Why Simeone has been handed £200m at Atletico, how Arteta rebuilt Arsenal and Liverpool's AI corners`\
+https://nytimes.com/athletic/5688459/2024/08/08/atletico-transfers-gallagher-arteta-pickpockets-liverpool-ai-the-athletic-fc/
+
 **Chelsea complete Anselmino signing**\
 `Chelsea have confirmed the signing of Aaron Anselmino from Boca Juniors.`\
 https://nytimes.com/athletic/5665447/2024/08/08/chelsea-transfer-aaron-anselmino/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5687920/2024/08/08/raiders-training-camp-preseason/
 **Dodgers' Gavin Lux started swinging harder and now he's reaping the rewards**\
 `Healthy again, Lux decided to swing more aggressively: “He's like, 'Screw it. If I'm going down, I'm going down aggressive."`\
 https://nytimes.com/athletic/5687860/2024/08/08/dodgers-gavin-lux-swing-change/
-
-**How Anti-Immigrant Riots Flared in the U.K.**\
-`A far-right movement fueled by disinformation has brought fear and violence to cities across England and in Northern Ireland. That has in turn prompted counterprotests.`\
-https://nytimes.com/2024/08/08/world/europe/uk-riots-southport-timeline.html
 
