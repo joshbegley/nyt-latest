@@ -1,3 +1,11 @@
+**The Campaign for the Midwest, and Antiracism Demonstrations in the U.K.**\
+`Plus, a Hawaiian town debates how to rebuild.`\
+https://nytimes.com/2024/08/08/podcasts/harris-walz-vance-wisconsin-michigan-counterprotest-uk-riots.html
+
+**Astros' Kyle Tucker has missed 65 days with a bone bruise. Physicians explain why**\
+`More than two months since fouling a ball off his shin, Tucker is still not sprinting. His return is not imminent. What's the hold-up?`\
+https://nytimes.com/athletic/5687895/2024/08/08/astros-kyle-tucker-bone-bruise-update/
+
 **Dispatches From a Kamala Harris Field Office**\
 `One group of voters may pose the biggest challenge to Democrats’ momentum.`\
 https://nytimes.com/2024/08/08/podcasts/the-daily/kamala-harris-democrats.html
@@ -30,4 +38,3 @@ https://nytimes.com/live/2024/08/08/world/israel-iran-hamas-gaza-war
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/08/08/world/israel-iran-hamas-gaza-war/israel-attacks-iran-lebanon
 
-**The E.U. condemns comments by a far-right Israeli minister, and other news.**\
