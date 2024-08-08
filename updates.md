@@ -1,3 +1,7 @@
+**Here’s the latest on the tropical storm.**\
+`The tropical storm spent much of Wednesday meandering off The Atlantic coast, regaining its strength from the warm waters below before making another pass over land.`\
+https://nytimes.com/live/2024/weather/debby-storm-forecast/heres-the-latest-on-the-tropical-storm
+
 **Defying Spanish Arrest Warrant, Carles Puigdemont Returns to Catalonia**\
 `Large crowds greeted the former regional leader, who has lived in self-imposed exile since a failed 2017 independence bid. Despite a new amnesty law, he could still face arrest.`\
 https://nytimes.com/2024/08/08/world/europe/carles-puigdemont-catalonia-spain.html
