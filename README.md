@@ -1,3 +1,7 @@
+**Friday Briefing: Trump and Harris Agreed to Debate**\
+`Plus, how Olympians get paid.`\
+https://nytimes.com/2024/08/08/briefing/trump-harris-ukraine-russia-lebanon-gaza.html
+
 **F1 owner Liberty Media confirms DOJ antitrust investigation into Andretti rejection**\
 `F1 rejection of Andretti’s bid to join the grid for 2025 or 2026 has sparked movement in congress to investigate the company.`\
 https://nytimes.com/athletic/5689786/2024/08/08/f1-andretti-liberty-media-doj-antitrust/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/08/books/review/new-books-recommendations.html
 **Falcons WR Rondale Moore placed on season-ending IR**\
 `Moore was injured in the second half of a two-hour joint practice between the Falcons and Dolphins in Miami on Wednesday`\
 https://nytimes.com/athletic/5689827/2024/08/08/falcons-rondale-moore-knee-injury/
-
-**Grant Holloway captures golden redemption with hurdles win**\
-`The win reclaims an event dominated by Americans through the 20th century, when the U.S. claimed 17 of a possible 22 golds.`\
-https://nytimes.com/athletic/5689658/2024/08/08/grant-holloway-mens-hurdles-olympics-results/
 
