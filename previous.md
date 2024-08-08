@@ -1,3 +1,7 @@
+**36 Hours in Helsinki**\
+`Find the secret to happiness in Finland’s capital — perhaps while sweating in a wood-burning sauna or sipping cocktails on a schooner.`\
+https://nytimes.com/interactive/2024/08/08/travel/things-to-do-helsinki.html
+
 **Red Wings future lineup projection: How Detroit could look in three years**\
 `Max Bultman projects and assesses Detroit's lineup three years out to gauge how the Red Wings' rebuild is progressing.`\
 https://nytimes.com/athletic/5687358/2024/08/08/red-wings-2027-28-lineup-projection/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5688490/2024/08/08/barcelona-transfers-gundogan-roq
 **Olympic Medals Offer Ukraine a Brief Respite From War**\
 `Ukraine has won eight medals so far at the Paris Olympics. Each has been celebrated in the war-torn country as a symbol of resilience and defiance.`\
 https://nytimes.com/2024/08/08/world/europe/ukraine-olympic-medals.html
-
-**2 Teenagers Planned Attacks on Taylor Swift’s Vienna Concerts, Authorities Say**\
-`A suspect confessed to a plot using explosives and other weapons to kill as many attendees as possible, security officials said. The singer’s three-concert Vienna run was canceled.`\
-https://nytimes.com/2024/08/08/world/europe/taylor-swift-concert-terror-plot-vienna.html
 

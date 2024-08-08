@@ -1,3 +1,7 @@
+**36 Hours in Helsinki**\
+`Find the secret to happiness in Finland’s capital — perhaps while sweating in a wood-burning sauna or sipping cocktails on a schooner.`\
+https://nytimes.com/interactive/2024/08/08/travel/things-to-do-helsinki.html
+
 **Red Wings future lineup projection: How Detroit could look in three years**\
 `Max Bultman projects and assesses Detroit's lineup three years out to gauge how the Red Wings' rebuild is progressing.`\
 https://nytimes.com/athletic/5687358/2024/08/08/red-wings-2027-28-lineup-projection/
