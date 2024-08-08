@@ -1,6 +1,18 @@
+**Chelsea complete Anselmino signing**\
+`Chelsea have confirmed the signing of Aaron Anselmino from Boca Juniors.`\
+https://nytimes.com/athletic/5665447/2024/08/08/chelsea-transfer-aaron-anselmino/
+
+**The Pulse: Another wild American comeback**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5688099/2024/08/08/quincy-hall-400-meters-the-pulse/
+
 **Twins takeaways: Rebuilding the bullpen, Matt Wallner crushing, signing Giovanny Gallegos**\
 `Brock Stewart's injury setback means the Twins need to rethink their late-inning mix, but they're not short on power right-handers.`\
 https://nytimes.com/athletic/5683893/2024/08/08/minnesota-twins-bullpen-matt-wallner/
+
+**How do NFC cornerback groups stack up heading into 2024 season?**\
+`Do the Seahawks have the NFC's best cornerback depth chart? The Bears? The Saints? We take a look at the numbers.`\
+https://nytimes.com/athletic/5643724/2024/08/08/nfc-cornerback-outlook-2024/
 
 **‘The Instigators’ Review: Bumblers in Beantown**\
 `Casey Affleck and Matt Damon star in a Boston heist that goes sideways.`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5687860/2024/08/08/dodgers-gavin-lux-swing-change/
 **How Anti-Immigrant Riots Flared in the U.K.**\
 `A far-right movement fueled by disinformation has brought fear and violence to cities across England and in Northern Ireland. That has in turn prompted counterprotests.`\
 https://nytimes.com/2024/08/08/world/europe/uk-riots-southport-timeline.html
-
-**Americans’ Struggle with Mental Health**\
-`We explore why rates of anxiety and depression are higher than they were before the pandemic.`\
-https://nytimes.com/2024/08/08/briefing/mental-health-anxiety-depression.html
-
-**Brown 'surprised' by McLaren's F1 success this season**\
-`McLaren chief executive Zak Brown says he has been &#8220;surprised&#8221; by the team&#8217;s return to Formula One frontrunner status in 2024, as they sit just 42 points behind Red Bull in the constructors&#8217; standings.`\
-https://nytimes.com/athletic/5688442/2024/08/08/zak-brown-mclaren-f1/
-
-**Russian Official Declares State of Emergency Near Border as Ukraine Advances**\
-`The local government in Russia declared a state of emergency as military analysts reported that Ukrainian forces had advanced several miles across the border.`\
-https://nytimes.com/2024/08/08/world/europe/russia-border-ukraine.html
 

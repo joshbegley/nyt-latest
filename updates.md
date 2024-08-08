@@ -1,3 +1,15 @@
+**Chelsea complete Anselmino signing**\
+`Chelsea have confirmed the signing of Aaron Anselmino from Boca Juniors.`\
+https://nytimes.com/athletic/5665447/2024/08/08/chelsea-transfer-aaron-anselmino/
+
+**The Pulse: Another wild American comeback**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5688099/2024/08/08/quincy-hall-400-meters-the-pulse/
+
+**How do NFC cornerback groups stack up heading into 2024 season?**\
+`Do the Seahawks have the NFC's best cornerback depth chart? The Bears? The Saints? We take a look at the numbers.`\
+https://nytimes.com/athletic/5643724/2024/08/08/nfc-cornerback-outlook-2024/
+
 **Twins takeaways: Rebuilding the bullpen, Matt Wallner crushing, signing Giovanny Gallegos**\
 `Brock Stewart's injury setback means the Twins need to rethink their late-inning mix, but they're not short on power right-handers.`\
 https://nytimes.com/athletic/5683893/2024/08/08/minnesota-twins-bullpen-matt-wallner/
