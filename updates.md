@@ -1,3 +1,7 @@
+**Move Over, Robots: Sea Lions With Cameras Can Map the Ocean Floor**\
+`Daphne, Phoebe, Iris and Pasithea demonstrated how marine mammals can help scientists understand mysterious places that humans may never visit.`\
+https://nytimes.com/2024/08/07/science/sea-lion-videos-cameras.html
+
 **Family of Titan Crew Member Sues OceanGate**\
 `Paul-Henri Nargeolet, a French explorer, died along with four other crew members when OceanGate’s Titan craft imploded on its journey to the Titanic.`\
 https://nytimes.com/2024/08/07/us/oceangate-titan-submersible-titanic-lawsuit.html

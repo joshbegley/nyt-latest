@@ -1,7 +1,3 @@
-**Family of Titan Crew Member Sues OceanGate**\
-`Paul-Henri Nargeolet, a French explorer, died along with four other crew members when OceanGate’s Titan craft imploded on its journey to the Titanic.`\
-https://nytimes.com/2024/08/07/us/oceangate-titan-submersible-titanic-lawsuit.html
-
 **The Tim Walz Guide to Winning Prairie Progressives**\
 `The Minnesota governor was not just in Wisconsin to sound folksy and talk about hunting.`\
 https://nytimes.com/2024/08/07/us/politics/tim-walz-harris-campaign.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/08/07/us/politics/fafsa-delayed-for-second-year.html
 **Billy Bean Dies at 60; Led Baseball on Diversity After Coming Out as Gay**\
 `As an outfielder, he hid his sexual identity from his teammates for nearly a decade before retiring and becoming a force for inclusion in the organization.`\
 https://nytimes.com/2024/08/07/sports/baseball/billy-bean-dead.html
+
+**Move Over, Robots: Sea Lions With Cameras Can Map the Ocean Floor**\
+`Daphne, Phoebe, Iris and Pasithea demonstrated how marine mammals can help scientists understand mysterious places that humans may never visit.`\
+https://nytimes.com/2024/08/07/science/sea-lion-videos-cameras.html
 
