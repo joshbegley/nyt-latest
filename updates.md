@@ -1,3 +1,7 @@
+**The Athletic FC: Atletico - centre of Euro transfers, Arteta's pickpockets and Liverpool's AI**\
+`Today in The Athletic FC: Why Simeone has been handed £200m at Atletico, how Arteta rebuilt Arsenal and Liverpool's AI corners`\
+https://nytimes.com/athletic/5688459/2024/08/08/atletico-transfers-gallagher-arteta-pickpockets-liverpool-ai-the-athletic-fc/
+
 **Chelsea complete Anselmino signing**\
 `Chelsea have confirmed the signing of Aaron Anselmino from Boca Juniors.`\
 https://nytimes.com/athletic/5665447/2024/08/08/chelsea-transfer-aaron-anselmino/
