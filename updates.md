@@ -1,3 +1,7 @@
+**Team USA, with Olympic hopes teetering, turned to an unlikely place — defense**\
+`"I think that we just upped the pressure," Kevin Durant said. "We made them turn the ball over. And we contested their shots."`\
+https://nytimes.com/athletic/5690134/2024/08/08/us-mens-basketball-olympics-defense-serbia/
+
 **Team USA, their Olympic hopes teetering, turned to an unlikely place — defense**\
 `PARIS — The gold medal — the reason why USA Basketball is what it is, and does things the way it does — was slipping away.`\
 https://nytimes.com/athletic/5690134/2024/08/08/us-mens-basketball-olympics-defense-serbia/
