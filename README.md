@@ -1,3 +1,19 @@
+**Why Solanke suits Spurs and Postecoglou's style: Shot heavy, low passing & box focus**\
+`Dominic Solanke is of interest to Tottenham — this is why he would suit them to a tee`\
+https://nytimes.com/athletic/5686568/2024/08/08/dominic-solanke-tottenham-analysis/
+
+**Why Liverpool's transfer priority is a No 6 and what the pursuit of Zubimendi reveals**\
+`Why Liverpool decided they need a No 6 and what kind of player they want`\
+https://nytimes.com/athletic/5687159/2024/08/08/liverpool-no-6-zubimendi-endo-mac-allister-slot/
+
+**Forshaw interview: 'I was all but done to stay at Leeds but it just didn't happen'**\
+`Following a brief stint at Norwich, the midfielder has found a new home at Plymouth where he is ready to take on a season under Wayne Rooney`\
+https://nytimes.com/athletic/5686082/2024/08/08/adam-forshaw-leeds-united-interview/
+
+**VR headsets, not rushing back: How Lavia set himself up for return this season**\
+`Romeo Lavia barely played last season after his summer move but has put himself in a good position before the new campaign`\
+https://nytimes.com/athletic/5683985/2024/08/08/romeo-lavia-chelsea-injury-recovery/
+
 **FPL: The best budget options for the 2024-25 season**\
 `Picking the best budget options can make or break your FPL squad - here are the most attractive propositions for next season`\
 https://nytimes.com/athletic/5651108/2024/08/08/fantasy-premier-league-best-budget-options-2024-25/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5686575/2024/08/08/thierry-henry-olympic-games-coac
 **Explained: Manchester United's 'exceptional' £40m Covid loss**\
 `Why Manchester United lost £40m and what happened at other clubs`\
 https://nytimes.com/athletic/5687061/2024/08/08/manchester-uniteds-40m-controversial-covid-loss-explained/
-
-**Why Marc Guehi is in demand: Breaks opposition lines, wins ground duels and leads**\
-`Marc Guehi's strengths and weaknesses, as Newcastle try to recruit the England international`\
-https://nytimes.com/athletic/5686580/2024/08/08/marc-guehi-analysed-newcastle-palace-england/
-
-**No Hands, Please: We’re Dutch**\
-`After two pandemic-disrupted Olympics, most teams haven’t given Covid a second thought in Paris. The one from the Netherlands is the exception.`\
-https://nytimes.com/2024/08/08/world/olympics/paris-olympics-covid-19.html
-
-**Analysing how the Premier League's top eight entered the penalty area last season**\
-`Rotations or driving runs? High-risk passes or possession-heavy dominance? This is how the league's top sides created chances in 2023-24`\
-https://nytimes.com/athletic/5676275/2024/08/08/premier-league-top-eight-box-entries/
-
-**Firefighters Battle Wildfire in Maui Year After Historic Blaze**\
-`The deadly 2023 blazes killed more than 100 people on the Hawaiian island and destroyed communities.`\
-https://nytimes.com/2024/08/08/us/hawaii-maui-fire.html
 
