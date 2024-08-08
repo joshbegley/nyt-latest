@@ -1,3 +1,15 @@
+**Harrison Jr. says his company, not himself, signed agreement with Fanatics**\
+`Both sides filed paperwork this week to New York County Supreme Court stating they wish to jointly engage a meditator at an appropriate time`\
+https://nytimes.com/athletic/5690158/2024/08/08/marvin-harrison-jr-fanatics-lawsuit/
+
+**Duane Thomas, Enigmatic Running Back for the Cowboys, Dies at 77**\
+`He led Dallas to its first Super Bowl victory after engaging in a well-publicized contract dispute in which he called Coach Tom Landry “plastic” and refused to talk to reporters.`\
+https://nytimes.com/2024/08/08/sports/football/duane-thomas-dead.html
+
+**Brooklyn Jail Is Too ‘Inhumane’ for 75-Year-Old Tax Scammer, Judge Says**\
+`A federal judge said he would sentence a man to house arrest instead of jail time if the Federal Bureau of Prisons sent him to the long-troubled Metropolitan Detention Center.`\
+https://nytimes.com/2024/08/08/nyregion/tax-fraud-mdc-brooklyn.html
+
 **The Darkness on the Edge of Trump**\
 `The former president’s deliberately frightening news conference felt like a tour of Mordor.`\
 https://nytimes.com/live/2024/08/07/opinion/thepoint/trump-press-conference-doom
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/08/climate/hog-lagoon-flooding-north-carolina.html
 **46 Convictions Thrown Out After Detective Lies Under Oath**\
 `The office of the Queens district attorney, Melinda Katz, had reviewed the cases after the detective, James Donovan, pleaded guilty to perjury last year.`\
 https://nytimes.com/2024/08/08/nyregion/convictions-vacated-nypd-detective.html
-
-**Why Chris Foerster wants Dominick Puni and 49ers' top O-line to start in Tennessee**\
-`To make room for a veteran receiver and safety, the 49ers put pass rusher Drake Jackson on the reserve/PUP list, ending his 2024 season.`\
-https://nytimes.com/athletic/5690029/2024/08/08/49ers-titans-preseason-starters-offensive-line/
-
-**Newsom Clears Homeless Camps in L.A. County, Where He Wants More ‘Urgency’**\
-`Gov. Gavin Newsom, frustrated by county leaders who spurned his executive order cracking down on encampments, visited their turf to clear homeless sites.`\
-https://nytimes.com/2024/08/08/us/newsom-homeless-los-angeles.html
-
-**Trump and Harris Agreed to a September Debate**\
-`Also, Ukraine launched a surprise push into Russia. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2024/08/08/briefing/trump-harris-debate-ukraine-russia-incursion.html
 
