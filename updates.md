@@ -1,3 +1,7 @@
+**Tech Investors Are the Latest to Zoom for Harris**\
+`Compared with the calls for cat ladies, white dudes and others, the group of venture capitalists was small at around 600.`\
+https://nytimes.com/2024/08/07/us/politics/harris-tech-vc-money-2024.html
+
 **Family of Titan Crew Member Sues OceanGate**\
 `Paul-Henri Nargeolet, a French explorer, died along with four other crew members when OceanGate’s Titan craft imploded on its journey to the Titanic.`\
 https://nytimes.com/2024/08/07/us/oceangate-titan-submersible-titanic-lawsuit.html
