@@ -1,3 +1,7 @@
+**To Team Trump, Harris’s ‘Not Going Back’ Promise Will Prove a Big Mistake**\
+`The race has been upended with the replacement of President Biden. But the Trump team said Thursday morning that “the fundamentals of the race have not changed.”`\
+https://nytimes.com/2024/08/08/us/politics/trump-harris-strategy.html
+
 **Twins' Bailey Ober is better than ever, armed with elite changeup and full arsenal**\
 `Ober is striking out more batters than ever and pitching deep into games. Key offseason adjustments are paying off in 2024. `\
 https://nytimes.com/athletic/5689134/2024/08/08/bailey-ober-twins-picher-changeup/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/08/08/climate/tax-credits-solar-panels-home
 **How Tim Walz’s Time in the House Paved the Way for His Ascent**\
 `The congressional voting record of the Democrat nominee for vice president shows his liberal streak, but with a deference to a conservative district’s needs.`\
 https://nytimes.com/2024/08/08/us/politics/tim-walz-house-history.html
-
-**Jake Paul Lends His Celebrity (Some of It) to Olympic Boxing**\
-`Paul, a social media influencer and boxer, usually promotes professional fighting. Now he’s in a partnership with U.S.A. Boxing, but his output in Paris has been minimal.`\
-https://nytimes.com/2024/08/08/world/olympics/jake-paul-boxing.html
 
