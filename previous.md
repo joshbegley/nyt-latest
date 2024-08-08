@@ -1,3 +1,7 @@
+**Running back roundtable: The Top 5 overall, 'dead zone' faves, the next De'Von Achane and more**\
+`The Athletic fantasy football crew weigh in on the running back position, sharing their Top 5 rankings, "dead zone" favorites and more.`\
+https://nytimes.com/athletic/5687634/2024/08/08/fantasy-football-2024-running-back-roundtable-top5/
+
 **Manchester United in 2024-25: Anticipating potential problems**\
 `United are a club in transition under Erik ten Hag. They should improve next season - but other problems might resurface…`\
 https://nytimes.com/athletic/5492115/2024/08/08/manchester-united-problems-2024-25/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5683808/2024/08/08/olympics-george-mills-danny-leed
 **Thursday Briefing**\
 `Antiracism protesters in Britain.`\
 https://nytimes.com/2024/08/08/briefing/antiracism-britain-harris-vance-walz.html
-
-**Olympic success for Thierry Henry may bring with it a path back to the big time**\
-`Henry has said that he loves the game "too much" to stay away from it and his latest attempt at coaching appears to be working out well`\
-https://nytimes.com/athletic/5686575/2024/08/08/thierry-henry-olympic-games-coach/
 
