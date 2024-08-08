@@ -1,3 +1,11 @@
+**“They’re drilling now because they had to go back because gasoline was going up to seven, eight, nine dollars a barrel. The day after the election, if they won, you’re going to have fuel prices go through the roof.”**\
+`By Coral Davenport`\
+https://nytimes.com/live/2024/08/08/us/harris-trump-election/theyre-drilling-now-because-they-had-to-go-back-because-gasoline-was-going-up-to-seven-eight-nine-dollars-a-barrel-the-day-after
+
+**“If you go back and check your records for 18 months, I had a talk with Abdul. Abdul was the leader of the Taliban still is, but had a strong talk with him. For 18 months. Not one American soldier was shot at or killed, but not even shot at 18 months.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/08/us/harris-trump-election/if-you-go-back-and-check-your-records-for-18-months-i-had-a-talk-with-abdul-abdul-was-the-leader-of-the-taliban-still-is-but-had
+
 **‘Saturday Night Live’: Meet the Candidates**\
 `Steve Martin is out, and the roles of Kamala Harris and Donald Trump seem settled. But the internet has been busy dream-casting the rest of the “S.N.L.” election ticket.`\
 https://nytimes.com/2024/08/08/arts/television/snl-2024-election-harris-trump.html
