@@ -1,3 +1,19 @@
+**FPL: The best budget options for the 2024-25 season**\
+`Picking the best budget options can make or break your FPL squad - here are the most attractive propositions for next season`\
+https://nytimes.com/athletic/5651108/2024/08/08/fantasy-premier-league-best-budget-options-2024-25/
+
+**How Mikel Arteta rebuilt Arsenal in his own image**\
+`As Arteta prepares to begin his fifth full season in charge, this is how he has re-established Arsenal as one of the country's leading clubs`\
+https://nytimes.com/athletic/5490775/2024/08/08/mikel-arteta-arsenal-rebuild/
+
+**'I'd have reacted far worse!': Danny Mills on athlete son George's scrap at Paris Olympics**\
+`Mills Junior reacted angrily after taking a fall in the men's 5,000m heats in Paris - and his father can sympathise`\
+https://nytimes.com/athletic/5683808/2024/08/08/olympics-george-mills-danny-leeds-united/
+
+**Olympic success for Thierry Henry may bring with it a path back to the big time**\
+`Henry has said that he loves the game "too much" to stay away from it and his latest attempt at coaching appears to be working out well`\
+https://nytimes.com/athletic/5686575/2024/08/08/thierry-henry-olympic-games-coach/
+
 **Thursday Briefing**\
 `Antiracism protesters in Britain.`\
 https://nytimes.com/2024/08/08/briefing/antiracism-britain-harris-vance-walz.html
