@@ -1,3 +1,11 @@
+**Burned Out of Lahaina, Thousands Try to Rebuild Lives Elsewhere**\
+`Many struggled to find housing and work after the wildfire destroyed the seaside town on Maui last year. But they have faced new hardships.`\
+https://nytimes.com/2024/08/08/us/maui-lahaina-residents-move.html
+
+**Trump says he will hold a news conference at Mar-a-Lago on Thursday.**\
+`By Maggie Haberman`\
+https://nytimes.com/2024/08/08/us/politics/trump-news-conference.html
+
 **Kyle Dake chases Olympic wrestling gold, helped by a bond with an old friend**\
 `As Kyle Dake tries for another Olympic medal, he's got a good friend on his side — former rival and 2020 Olympic gold medalist David Taylor.`\
 https://nytimes.com/athletic/5643036/2024/08/08/kyle-dake-david-taylor-olympics-wrestling-paris/
