@@ -1,3 +1,27 @@
+**‘The Instigators’ Review: Bumblers in Beantown**\
+`Casey Affleck and Matt Damon star in a Boston heist that goes sideways.`\
+https://nytimes.com/2024/08/08/movies/the-instigators-review.html
+
+**‘Girl You Know It’s True’ Review: Milli Vanilli, Fictionalized. Again.**\
+`This film, based on the lives of the duo who lip-synced their way to stardom and downfall, fills in many of the details behind the facade.`\
+https://nytimes.com/2024/08/08/movies/girl-you-know-its-true-review-milli-vanilli.html
+
+**‘Dance First’ Review: Beckett Encounters Himself**\
+`Samuel Beckett’s life is reduced to mommy and daddy issues in a biopic that offers simple explanations for the career of a complex writer.`\
+https://nytimes.com/2024/08/08/movies/dance-first-review-samuel-beckett.html
+
+**Raiders set to leave training camp closer and tougher ahead of first preseason tilt**\
+`The quarterbacks may have struggled, but Antonio Pierce feels good about his team's chemistry coming out of training camp in Costa Mesa.`\
+https://nytimes.com/athletic/5687920/2024/08/08/raiders-training-camp-preseason/
+
+**Dodgers' Gavin Lux started swinging harder and now he's reaping the rewards**\
+`Healthy again, Lux decided to swing more aggressively: “He's like, 'Screw it. If I'm going down, I'm going down aggressive."`\
+https://nytimes.com/athletic/5687860/2024/08/08/dodgers-gavin-lux-swing-change/
+
+**How Anti-Immigrant Riots Flared in the U.K.**\
+`A far-right movement fueled by disinformation has brought fear and violence to cities across England and in Northern Ireland. That has in turn prompted counterprotests.`\
+https://nytimes.com/2024/08/08/world/europe/uk-riots-southport-timeline.html
+
 **Americans’ Struggle with Mental Health**\
 `We explore why rates of anxiety and depression are higher than they were before the pandemic.`\
 https://nytimes.com/2024/08/08/briefing/mental-health-anxiety-depression.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/08/08/world/europe/russia-border-ukraine.html
 **Zouma set to join Shabab Al-Ahli from West Ham**\
 `West Ham United defender Kurt Zouma is close to completing a move to Shabab Al-Ahli.`\
 https://nytimes.com/athletic/5688467/2024/08/08/kurt-zouma-shabab-al-ahli/
-
-**Phillies takeaways: Schwarber's season, Turnbull's role, and a change in the outfield?**\
-`With 70% of the schedule complete, Schwarber is having one of the best seasons of his career. The three-HR game was the exclamation point. `\
-https://nytimes.com/athletic/5688328/2024/08/08/phillies-kyle-schwarber-spencer-turnbull-austin-hays/
-
-**The Campaign for the Midwest, and Antiracism Demonstrations in the U.K.**\
-`Plus, a Hawaiian town debates how to rebuild.`\
-https://nytimes.com/2024/08/08/podcasts/harris-walz-vance-wisconsin-michigan-counterprotest-uk-riots.html
-
-**Did Jim Harbaugh vs. the NCAA really start with a burger? Our quest for answers at Michigan**\
-`Harbaugh vs. the NCAA is a story everybody knows and almost no one understands. Here's our search for answers — and a burger for breakfast.`\
-https://nytimes.com/athletic/5688042/2024/08/08/jim-harbaugh-michigan-ncaa-cheeseburger-connor-stalions/
-
-**Astros' Kyle Tucker has missed 65 days with a bone bruise. Physicians explain why**\
-`More than two months since fouling a ball off his shin, Tucker is still not sprinting. His return is not imminent. What's the hold-up?`\
-https://nytimes.com/athletic/5687895/2024/08/08/astros-kyle-tucker-bone-bruise-update/
-
-**What I'm hearing about Crosby's contract, Malkin's retirement plans**\
-`Crosby's birthday passed Wednesday without news of a new contract with the Penguins.`\
-https://nytimes.com/athletic/5687005/2024/08/08/penguins-sidney-crosby-contract-negotiations/
-
-**Shedeur Sanders film study: Can Colorado's offseason changes help its talented QB?**\
-`Deion Sanders spent the offseason rebuilding Colorado's roster and scheme to help its star QB. Can Shedeur Sanders answer the call? `\
-https://nytimes.com/athletic/5676426/2024/08/08/shedeur-sanders-nfl-draft-2025-scouting-report/
 
