@@ -1,3 +1,7 @@
+**Phillies takeaways: Schwarber's season, Turnbull's role, and a change in the outfield?**\
+`With 70% of the schedule complete, Schwarber is having one of the best seasons of his career. The three-HR game was the exclamation point. `\
+https://nytimes.com/athletic/5688328/2024/08/08/phillies-kyle-schwarber-spencer-turnbull-austin-hays/
+
 **The Campaign for the Midwest, and Antiracism Demonstrations in the U.K.**\
 `Plus, a Hawaiian town debates how to rebuild.`\
 https://nytimes.com/2024/08/08/podcasts/harris-walz-vance-wisconsin-michigan-counterprotest-uk-riots.html
@@ -14,13 +18,13 @@ https://nytimes.com/athletic/5687895/2024/08/08/astros-kyle-tucker-bone-bruise-u
 `Crosby's birthday passed Wednesday without news of a new contract with the Penguins.`\
 https://nytimes.com/athletic/5687005/2024/08/08/penguins-sidney-crosby-contract-negotiations/
 
-**Dispatches From a Kamala Harris Field Office**\
-`One group of voters may pose the biggest challenge to Democrats’ momentum.`\
-https://nytimes.com/2024/08/08/podcasts/the-daily/kamala-harris-democrats.html
-
 **Shedeur Sanders film study: Can Colorado's offseason changes help its talented QB?**\
 `Deion Sanders spent the offseason rebuilding Colorado's roster and scheme to help its star QB. Can Shedeur Sanders answer the call? `\
 https://nytimes.com/athletic/5676426/2024/08/08/shedeur-sanders-nfl-draft-2025-scouting-report/
+
+**Dispatches From a Kamala Harris Field Office**\
+`One group of voters may pose the biggest challenge to Democrats’ momentum.`\
+https://nytimes.com/2024/08/08/podcasts/the-daily/kamala-harris-democrats.html
 
 **The Philosopher Kwame Anthony Appiah Wins Kluge Humanities Prize**\
 `Appiah, a scholar who is known for his approaches to ethics, language, nationality and race, will receive the honor from the Library of Congress.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/08/crosswords/connections-companion-425.html
 **Wordle Review No. 1,147**\
 `Scroll down for hints and conversation about the puzzle for Friday, August 9, 2024.`\
 https://nytimes.com/2024/08/08/crosswords/wordle-review-1147.html
-
-**U.K. Officials Express Relief After Far-Right Protests Fail to Materialize**\
-`The authorities had been braced for further violence after anti-immigrant demonstrations in previous days had descended into riots.`\
-https://nytimes.com/2024/08/08/world/europe/uk-protests-riots.html
 
