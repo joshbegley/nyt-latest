@@ -1,3 +1,11 @@
+**Harris Responds to Pro-Palestinian Protesters at Michigan Rally**\
+`Protesters interrupted Kamala Harris’s speech at a rally in Detroit.`\
+https://nytimes.com/video/us/politics/100000009618743/harris-rally-gaza-protesters.html
+
+**Benjamin St-Juste is keeping a close eye on his sister-in-law at Olympic Games**\
+`Anna Hall, who is competing in the heptathlon, is the sister of St-Juste's wife, Julia. `\
+https://nytimes.com/athletic/5688141/2024/08/08/benjamin-st-juste-anna-hall-paris-olympic-games/
+
 **Pochettino a top target to become USMNT coach: Sources**\
 `Former Tottenham and Chelsea head coach Mauricio Pochettino is a top target for the U.`\
 https://nytimes.com/athletic/5689027/2024/08/08/mauricio-pochettino-usmnt-coach/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/08/technology/ai-start-ups-google-microsoft-amazon.h
 **Greenberg: Pedro Grifol and the White Sox are better off without each other**\
 `With a 21-game losing streak hovering over his dismal managerial ledger, Grifol was mercifully fired after sustained futility.`\
 https://nytimes.com/athletic/5673746/2024/08/08/chicago-white-sox-pedro-grifol-fired/
-
-**From Tips to TikTok, Trump Discards Policies With Aim to Please Voters**\
-`The former president’s economic agenda has made some notable reversals from the policies he pushed while in the White House.`\
-https://nytimes.com/2024/08/08/us/politics/trump-tax-tips-tiktok-crypto.html
-
-**Who will replace Pedro Grifol as White Sox manager?**\
-`For the third time since firing Rick Renteria after the 2020 season, the White Sox are looking for a new manager. What will they do?`\
-https://nytimes.com/athletic/5685410/2024/08/08/next-white-sox-manager-options-hire/
 
