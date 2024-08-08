@@ -1,3 +1,7 @@
+**Israel Prepares for Expected Attacks by Iran and Hezbollah**\
+`Israel advised people to stock up on food and water in fortified safe rooms, while Prime Minister Benjamin Netanyahu told soldiers that Israel is “prepared for defense, as well as offense.”`\
+https://nytimes.com/2024/08/08/world/middleeast/israel-prepare-iran-attack.html
+
 **Team USA, with Olympic hopes teetering, turned to an unlikely place — defense**\
 `"I think that we just upped the pressure," Kevin Durant said. "We made them turn the ball over. And we contested their shots."`\
 https://nytimes.com/athletic/5690134/2024/08/08/us-mens-basketball-olympics-defense-serbia/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5690158/2024/08/08/marvin-harrison-jr-fanatics-laws
 **Duane Thomas, Enigmatic Running Back for the Cowboys, Dies at 77**\
 `He led Dallas to its first Super Bowl victory after engaging in a well-publicized contract dispute in which he called Coach Tom Landry “plastic” and refused to talk to reporters.`\
 https://nytimes.com/2024/08/08/sports/football/duane-thomas-dead.html
-
-**Brooklyn Jail Is Too ‘Inhumane’ for 75-Year-Old Tax Scammer, Judge Says**\
-`A federal judge said he would sentence a man to house arrest instead of jail time if the Federal Bureau of Prisons sent him to the long-troubled Metropolitan Detention Center.`\
-https://nytimes.com/2024/08/08/nyregion/tax-fraud-mdc-brooklyn.html
 
