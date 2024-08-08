@@ -1,3 +1,11 @@
+**Tornado Warning Issued in Parts of Central North Carolina**\
+`The National Weather Service said flying debris from a “large and extremely dangerous” tornado would be deadly for those not taking shelter.`\
+https://nytimes.com/2024/08/08/weather/tornado-warning-north-carolina-debby.html
+
+**Defying Spanish Arrest Warrant, Separatist Leader Returns to Catalonia**\
+`Large crowds greeted the former regional leader who has lived in self-imposed exile since a failed 2017 independence bid. Despite a new amnesty law, he could still face arrest.`\
+https://nytimes.com/2024/08/08/world/europe/carles-puigdemont-catalonia-spain.html
+
 **Cashing In on Her Cultural Influence**\
 `Beverly Nguyen, a stylist, editor and merchant, has become a new soft power broker in New York.`\
 https://nytimes.com/2024/08/08/style/beverly-nguyen-new-york-culture.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5687349/2024/08/08/padres-win-sixth-straight-series
 **Word of the Day: fatalistic**\
 `This word has appeared in 39 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/08/learning/word-of-the-day-fatalistic.html
-
-**Jorge Soler's defensive miscues prove costly for Chris Sale and skidding Braves**\
-`Soler had exclusively served as DH all season before he was traded to the Braves and thrust into right-field duties.`\
-https://nytimes.com/athletic/5688234/2024/08/08/jorge-soler-chris-sale-braves/
-
-**Bangladesh to Swear In Interim Government, After Days of Chaos**\
-`Muhammad Yunus, set to lead the country temporarily, faces the immediate and daunting task of restoring order to daily life and to the economy.`\
-https://nytimes.com/2024/08/08/world/asia/muhammad-yunus-bangladesh-swearing-in.html
 
