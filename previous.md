@@ -1,3 +1,11 @@
+**Tour Tickets? Swifties Crave a Presidential Endorsement.**\
+`Taylor Swift’s coveted support went to President Biden in 2020. A shadowy figure in an Instagram photo led some fans to make the leap that she will champion Kamala Harris.`\
+https://nytimes.com/2024/08/07/arts/music/taylor-swift-kamala-harris.html
+
+**Prosecutors Preview Aggressive Strategy in Hunter Biden’s Tax Case**\
+`They stopped short of accusing Mr. Biden of violating foreign lobbying laws but said they would show how foreign interests paid him to influence the government while his father was vice president.`\
+https://nytimes.com/2024/08/07/us/politics/hunter-biden-special-counsel-strategy.html
+
 **Tech Investors Are the Latest to Zoom for Harris**\
 `Compared with the calls for cat ladies, white dudes and others, the group of venture capitalists was small at around 600.`\
 https://nytimes.com/2024/08/07/us/politics/harris-tech-vc-money-2024.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5687849/2024/08/07/blue-jays-takeaways-mark-shapiro
 **James Cook's ball security needs cleaning up, and more from Bills camp**\
 `Plus, offensive line depth continues to be a question, and Josh Allen's offense sputters after strong start.`\
 https://nytimes.com/athletic/5687304/2024/08/07/buffalo-bills-training-camp-james-cook-marquez-valdes-scantling/
-
-**Tom Korologos, Sherpa of Republican Nominees, Dies at 91**\
-`As a White House official and later as a lobbyist, he guided about 300 nominees through their confirmation hearings, including Supreme Court justices.`\
-https://nytimes.com/2024/08/07/us/politics/tom-korologos-dead.html
-
-**After Botched Rollout, FAFSA Is Delayed for a Second Year**\
-`Despite months of troubleshooting the college aid application process, the Education Department said the form would not be fully ready for next year’s students until Dec. 1.`\
-https://nytimes.com/2024/08/07/us/politics/fafsa-delayed-for-second-year.html
 
