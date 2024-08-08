@@ -1,3 +1,11 @@
+**These Chipotle-Honey Chicken Tacos Are Push-a-Button Easy**\
+`Let your slow cooker (or pressure cooker) do the work for this spicy, smoky-sweet five-star dinner. You’ve got some summer to soak up.`\
+https://nytimes.com/2024/08/08/dining/these-chipotle-honey-chicken-tacos-are-push-a-button-easy.html
+
+**‘I Am Speaking Now’: At a Rally in Detroit, Harris Stares Down Her Detractors**\
+`The vice president’s reaction to pro-Palestinian protesters shows how she can turn efforts to rattle her to her own advantage.`\
+https://nytimes.com/2024/08/08/us/politics/harris-rally-gaza-protesters.html
+
 **What to Know About the Park Fire, the 4th Largest in California History**\
 `The rapidly spreading fire has consumed over 426,000 acres since it started burning in late July.`\
 https://nytimes.com/2024/08/08/us/park-fire-california.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5688930/2024/08/08/nfl-preseason-week-1-scoop-city/
 **WADA, USADA clash over American agency's use of 'undercover agents' to catch drug cheats**\
 `The World Anti-Doping Agency and United States Anti-Doping Agency are at odds over a USADA plan to root out drug cheats.`\
 https://nytimes.com/athletic/5688595/2024/08/08/wada-usada-undercover-agents-doping/
-
-**Richarlison rules out Saudi Pro League move: 'The money is big but my dream is bigger'**\
-`Tottenham Hotspur forward Richarlison says he will not be leaving the club to join a Saudi Pro League club this summer.`\
-https://nytimes.com/athletic/5688872/2024/08/08/spurs-richarlison-saudi-transfer/
-
-**Kieran Culkin, Bob Odenkirk and Bill Burr to Star in Broadway ‘Glengarry’**\
-`A revival of “Glengarry Glen Ross,” David Mamet’s classic play about unscrupulous real estate agents, is to open next spring.`\
-https://nytimes.com/2024/08/08/theater/glengarry-broadway-culkin-odenkirk-burr.html
 
