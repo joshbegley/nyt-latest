@@ -1,3 +1,11 @@
+**Cindy Ngamba captures first ever medal for Olympic refugee team**\
+`It is Ngamba's first time competing under the refugee flag after becoming the first-ever refugee boxer to qualify for the Olympic Games.`\
+https://nytimes.com/athletic/5689644/2024/08/08/cindy-ngamba-boxing-medal-refugee-team-history/
+
+**‘The time has come,’ Biden, El-Sisi and Al-Thani say in a joint statement.**\
+`By Peter Baker`\
+https://nytimes.com/live/2024/08/08/world/israel-iran-hamas-gaza-war/us-egypt-qatar-cease-fire-deal
+
 **Harrison Jr. says his company, not himself, signed agreement with Fanatics**\
 `Both sides filed paperwork this week to New York County Supreme Court stating they wish to jointly engage a meditator at an appropriate time`\
 https://nytimes.com/athletic/5690158/2024/08/08/marvin-harrison-jr-fanatics-lawsuit/

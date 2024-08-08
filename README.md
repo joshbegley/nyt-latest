@@ -1,3 +1,11 @@
+**House Republicans Pivot Scrutiny From Biden to Harris**\
+`Three months ahead of the election, congressional Republicans are moving to close a strategic gap.`\
+https://nytimes.com/2024/08/08/us/politics/harris-house-republicans-investigations.html
+
+**Rikers Inmates Are Routinely Denied Medical Care, Court Filing Says**\
+`The Legal Aid Society and Brooklyn Defender Services asked a judge to hold New York City’s Department of Correction in contempt of court.`\
+https://nytimes.com/2024/08/08/nyregion/rikers-inmates-health-care.html
+
 **Cindy Ngamba captures first ever medal for Olympic refugee team**\
 `It is Ngamba's first time competing under the refugee flag after becoming the first-ever refugee boxer to qualify for the Olympic Games.`\
 https://nytimes.com/athletic/5689644/2024/08/08/cindy-ngamba-boxing-medal-refugee-team-history/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/08/world/olympics/sydney-mclaughlin-levrone-400-mete
 **Commanders show they're still a work in progress during joint practice vs. Jets**\
 `In wet and rainy conditions, Jayden Daniels got his first reps against an opposing team. Plus, the defense struggled to stop Garrett Wilson.`\
 https://nytimes.com/athletic/5689979/2024/08/08/commanders-jets-joint-practice/
-
-**This Bawdy Dramedy Presents a Fantasy of Online Sex Work**\
-`A new Norwegian series on Max follows a stifled wife and mother who finds excitement and a new identity by posting explicit photos online.`\
-https://nytimes.com/2024/08/08/arts/television/this-bawdy-dramedy-presents-a-fantasy-of-online-sex-work.html
-
-**In a Swampy North Carolina Town, Floods Are ‘Just Getting Tiresome’**\
-`The roughly 1,600 residents of Bladenboro, N.C., have gotten used to storm systems inundating their streets. And the floods just keep coming.`\
-https://nytimes.com/2024/08/08/weather/debby-floods-bladenboro-north-carolina.html
 
