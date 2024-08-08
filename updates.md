@@ -1,3 +1,15 @@
+**Nick Foles announces NFL retirement**\
+`Foles led the Eagles to winning the 2018 Super Bowl after starting QB Carson Wentz suffered a knee injury late in the season.`\
+https://nytimes.com/athletic/5689153/2024/08/08/nick-foles-retires-eagles/
+
+**‘It Ends With Us’ Review: Love Hurts, and Sometimes Bruises**\
+`Blake Lively plays Lily Bloom, a flower lover with a thorny personal garden, in this gauzy adaptation of Colleen Hoover’s best-selling novel.`\
+https://nytimes.com/2024/08/08/movies/it-ends-with-us-review.html
+
+**2024 on Track to Be the Hottest Year on Record**\
+`Last month was slightly less hot than the record-breaking July 2023, but the year is still likely to be the hottest ever, according to European climate scientists.`\
+https://nytimes.com/2024/08/08/climate/heat-records-2024.html
+
 **Sterling targeting England recall under new head coach**\
 `Chelsea forward Raheem Sterling says he wants to play for England under the team’s new coach after almost two years in the wilderness under previous manager Gareth Southgate.`\
 https://nytimes.com/athletic/5688878/2024/08/08/raheem-sterling-england-chelsea/
