@@ -1,3 +1,7 @@
+**Thursday Briefing**\
+`Antiracism protesters in Britain.`\
+https://nytimes.com/2024/08/08/briefing/antiracism-britain-harris-vance-walz.html
+
 **Explained: Manchester United's 'exceptional' £40m Covid loss**\
 `Why Manchester United lost £40m and what happened at other clubs`\
 https://nytimes.com/athletic/5687061/2024/08/08/manchester-uniteds-40m-controversial-covid-loss-explained/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5685617/2024/08/08/olympics-2024-watch-guide-day-13
 **What Works in Taiwan Doesn’t Always in Arizona, a Chipmaking Giant Learns**\
 `The tech giant modeled its facility in Phoenix on one at home. But bringing the company’s highly complex manufacturing process to America has been a bigger challenge than it expected.`\
 https://nytimes.com/2024/08/08/business/tsmc-phoenix-arizona-semiconductor.html
-
-**Editor’s Note: Goodbye, Vertex**\
-`The New York Times will take down Vertex on Aug. 29.`\
-https://nytimes.com/2024/08/08/crosswords/vertex-goodbye.html
 
