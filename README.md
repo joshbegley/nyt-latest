@@ -1,3 +1,7 @@
+**What’s It Like to Be Drug-Tested? We Asked Three Olympic Runners.**\
+`It will never feel normal, athletes said, to have a stranger knock on your door and ask for a vial of your blood. Or some urine.`\
+https://nytimes.com/2024/08/08/world/olympics/drug-testing-track.html
+
 **For this U.S. women's basketball Olympic run, stop arguing and savor what we have**\
 `PARIS — They played poorly in the first half against Nigeria.`\
 https://nytimes.com/athletic/5686832/2024/08/08/team-usa-olympics-womens-basketball-team-aldridge/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/08/weather/tornado-warning-north-carolina-debby.html
 **Defying Spanish Arrest Warrant, Carles Puigdemont Returns to Catalonia**\
 `Large crowds greeted the former regional leader, who has lived in self-imposed exile since a failed 2017 independence bid. Despite a new amnesty law, he could still face arrest.`\
 https://nytimes.com/2024/08/08/world/europe/carles-puigdemont-catalonia-spain.html
-
-**Cashing In on Her Cultural Influence**\
-`Beverly Nguyen, a stylist, editor and merchant, has become a new soft power broker in New York.`\
-https://nytimes.com/2024/08/08/style/beverly-nguyen-new-york-culture.html
 
