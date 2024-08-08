@@ -1,3 +1,7 @@
+**Feud Flares Between U.S. and Global Antidoping Agency**\
+`American officials allowed athletes to compete after testing positive for performance-enhancing drugs so they could work undercover. Their global counterparts call that a breach of the rules.`\
+https://nytimes.com/2024/08/07/us/politics/usada-world-doping.html
+
 **Buckley: NFL joint practices without fights are impractical, so let's review pros and cons**\
 `Yes, the workouts help with reps, scouting and evaluating. But they also facilitate fisticuffs, risk injury and create a spectacle.`\
 https://nytimes.com/athletic/5687861/2024/08/07/giants-lions-joint-practices-fight-nfl-fine/
