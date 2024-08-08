@@ -1,3 +1,7 @@
+**In Detroit, Harris confronts the divisions roiling Democrats over the war in Gaza.**\
+`By Erica L. Green, Kellen Browning and Jonathan Weisman`\
+https://nytimes.com/live/2024/08/07/us/harris-trump-election/in-detroit-harris-confronts-the-divisions-roiling-democrats-over-the-war-in-gaza
+
 **Running back roundtable: The Top 5 overall, 'dead zone' faves, the next De'Von Achane and more**\
 `The Athletic fantasy football crew weigh in on the running back position, sharing their Top 5 rankings, "dead zone" favorites and more.`\
 https://nytimes.com/athletic/5687634/2024/08/08/fantasy-football-2024-running-back-roundtable-top5/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5490775/2024/08/08/mikel-arteta-arsenal-rebuild/
 **'I'd have reacted far worse!': Danny Mills on athlete son George's scrap at Paris Olympics**\
 `Mills Junior reacted angrily after taking a fall in the men's 5,000m heats in Paris - and his father can sympathise`\
 https://nytimes.com/athletic/5683808/2024/08/08/olympics-george-mills-danny-leeds-united/
-
-**Thursday Briefing**\
-`Antiracism protesters in Britain.`\
-https://nytimes.com/2024/08/08/briefing/antiracism-britain-harris-vance-walz.html
 
