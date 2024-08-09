@@ -1,21 +1,40 @@
-**College Football Playoff sleepers: 14 unranked teams to watch**\
-`The expanded CFP field should leave room for a number of surprises, especially in the first year of a new system.`\
-https://nytimes.com/athletic/5690012/2024/08/09/college-football-playoff-2024-sleeper-predictions/
+**Gay Men Have Long Been Obsessed With Their Muscles. Now Everyone Is.**\
+`In Hollywood, on Instagram and beyond, the male-on-male gaze still decides what’s hot and what’s not.`\
+https://nytimes.com/2024/08/09/t-magazine/gay-men-muscles-body-culture.html
 
-**Olympic marathons plus scorching heat equals one more issue for Paris organizers**\
-`There is heat that makes a marathon competitive and heat that puts athletes in jeopardy. This weekend in Paris is closer to the latter.`\
-https://nytimes.com/athletic/5690894/2024/08/09/olympics-marathon-paris-heat-weather/
+**Habitat for Humanity Helped Them Get Homes. An Insurance Crisis May Take Them Away.**\
+`In New Orleans, low-income homeowners are at risk of losing houses built by the nonprofit as more storms hit the city and property insurance prices soar.`\
+https://nytimes.com/2024/08/09/us/new-orleans-habitat-for-humanity-insurance.html
 
-**On Netflix, a Very British ‘Love Is Blind’**\
-`The creators of a new version of the reality show, in which contestants agree to marry before meeting face to face, sought to challenge a nation’s archetypal reticence.`\
-https://nytimes.com/2024/08/09/arts/television/love-is-blind-uk.html
+**A Show of Support for Hamas in a Rival’s Backyard**\
+`After Hamas’s political leader was killed, some honored him in the Israeli-occupied West Bank, where a rival Palestinian faction is dominant.`\
+https://nytimes.com/2024/08/09/world/middleeast/hamas-support-west-bank-haniyeh.html
 
-**Israel Launches Another Offensive in Gaza’s South Amid Push for Cease-Fire**\
-`The country’s prime minister, Benjamin Netanyahu, said he would send negotiators what leaders including President Biden called the presentation of a “final” cease-fire proposal.`\
-https://nytimes.com/live/2024/08/09/world/israel-iran-hamas-gaza-war
+**Ferguson 10 Years Later: How Protests Gave Way to Politics and Policy**\
+`The shooting death of Michael Brown created a political incubator of emerging local leaders, some of whom are finding themselves in the corridors of power.`\
+https://nytimes.com/2024/08/09/us/ferguson-michael-brown-10-years.html
 
-**Israel said its new attack in Khan Younis involved fighter jets, helicopter gunships and paratroopers.**\
-`By Victoria Kim and Johnatan Reiss`\
-https://nytimes.com/live/2024/08/09/world/israel-iran-hamas-gaza-war/israel-said-its-attack-in-khan-younis-involved-fighter-jets-helicopter-gunships-and-paratroopers
+**How ‘Head Hunters’ Shook Up Jazz (and Herbie Hancock’s World)**\
+`The 1973 album proved that jazz could make a major impact on the modern pop mainstream. Its surviving musicians are reuniting for a Los Angeles concert this month.`\
+https://nytimes.com/2024/08/09/arts/music/herbie-hancock-head-hunters.html
 
-**Syrian state media says four were injured in Israeli strikes on military sites, and other news.**\
+**Colts rookie report: Laiatu Latu looks like a game-wrecker, Adonai Mitchell emerging**\
+`In a surprising twist, fifth-round pick Anthony Gould, a standout punt returner in college, has flashed as a receiver during camp. `\
+https://nytimes.com/athletic/5689764/2024/08/09/indianapolis-colts-rookies-laiatu-latu-adonai-mitchell/
+
+**Kenneth Grant, Michigan's freakish defensive tackle, moves like a 'work of art'**\
+`Grant is one of the most athletic big men in college football and will serve as a cornerstone on a rebuilt Michigan defense in 2024. `\
+https://nytimes.com/athletic/5687815/2024/08/09/michigan-kenneth-grant-freaks-list/
+
+**Lefty QBs used to be an NFL annoyance but Dolphins are flipping the script with Tua**\
+`What if there was a way to turn a visual anomaly into a schematic advantage?`\
+https://nytimes.com/athletic/5689504/2024/08/09/tua-tagovailoa-dolphins-left-handed-quarterbacks-advantage/
+
+**Five unanswered Seahawks questions on eve of preseason: How reliable is the O-line?**\
+`Seattle has some competitions to sort out and rookies to debut up front. Meanwhile, Byron Murphy II will make his debut on defense.`\
+https://nytimes.com/athletic/5690582/2024/08/09/seahawks-preseason-opener-chargers/
+
+**Giants stock report: RB Eric Gray, QB Tommy DeVito stand out in preseason win vs. Lions**\
+`Gray's stock seemed to be slipping during camp, but he turned things around in a big way Thursday night. `\
+https://nytimes.com/athletic/5690759/2024/08/09/new-york-giants-stock-report-eric-gray-lions-preseason/
+
