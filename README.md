@@ -1,6 +1,10 @@
+**A Musical Tour of Tim Walz’s Minnesota**\
+`The state is a hotbed of corrosive underground rock, birthplace of two acclaimed icons, home to a lively hip-hop scene and a bedrock of ’80s pop and funk.`\
+https://nytimes.com/2024/08/09/arts/music/amplifier-newsletter-minnesota-music.html
+
 **Plane Carrying 62 People Crashes in Brazil**\
 `VoePass Flight 2283 crashed outside São Paulo on Friday afternoon. The status of the passengers and crew is unknown.`\
-https://nytimes.com/2024/08/09/world/americas/brazil-plane-crash-voepass.html
+https://nytimes.com/2024/08/09/world/americas/brazil-plane-crash.html
 
 **Gaza cease-fire push by U.S., Qatar and Egypt faces big challenges.**\
 `By Aaron Boxerman`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5691597/2024/08/09/for-u-s-basketball-theres-one-ac
 **Team USA cruises past Australia for spot in final**\
 `Team USA asserted its dominance early and often in an 85-64 win over the Opals.`\
 https://nytimes.com/athletic/5691644/2024/08/09/team-usa-australia-olympics-basketball/
-
-**O'Neil signs new Wolves contract**\
-`Wolves manager Gary O’Neil has committed his future to the club by signing a new four-year deal.`\
-https://nytimes.com/athletic/5691666/2024/08/09/gary-oneil-wolves-contract/
 
