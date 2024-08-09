@@ -1,3 +1,7 @@
+**Grant Holloway's just fine with his place in track and field after first-place run for gold**\
+`“I'm in an event that I truly do love, but I don't see myself switching,” he said. “I don't see myself going somewhere else."`\
+https://nytimes.com/athletic/5690514/2024/08/08/grant-holloway-hurdles-gold-medal-speaks-out/
+
 **Entry Fee for Some Clubs**\
 `Hemant Mehta opens our solving weekend with one of the crunchiest crosswords in recent memory.`\
 https://nytimes.com/2024/08/08/crosswords/daily-puzzle-2024-08-09.html

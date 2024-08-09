@@ -1,3 +1,7 @@
+**Grant Holloway's just fine with his place in track and field after first-place run for gold**\
+`“I'm in an event that I truly do love, but I don't see myself switching,” he said. “I don't see myself going somewhere else."`\
+https://nytimes.com/athletic/5690514/2024/08/08/grant-holloway-hurdles-gold-medal-speaks-out/
+
 **Entry Fee for Some Clubs**\
 `Hemant Mehta opens our solving weekend with one of the crunchiest crosswords in recent memory.`\
 https://nytimes.com/2024/08/08/crosswords/daily-puzzle-2024-08-09.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/08/us/politics/trump-helicopter-willie-brown.html
 **Donald Trump Can’t Get Over What Happened to President Biden**\
 `At a news conference in Florida on, Mr. Trump said “the presidency was taken away from Joe Biden” by a cabal of Democrats including Barack Obama, Nancy Pelosi and Kamala Harris.`\
 https://nytimes.com/2024/08/08/us/politics/trump-biden-press-conference.html
-
-**Israel and Norway’s diplomatic clash over Palestinian statehood deepens.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/08/08/world/israel-iran-hamas-gaza-war/israel-norway-palestinian-statehood
 
