@@ -1,3 +1,11 @@
+**Overlooked No More: Renee Carroll, ‘World’s Most Famous Hatcheck Girl’**\
+`From the cloakroom at Sardi’s, she made her own mark on Broadway, hobnobbing with celebrity clients while safekeeping fedoras, bowlers, derbies and more.`\
+https://nytimes.com/2024/08/09/obituaries/renee-carroll-overlooked.html
+
+**Rai Benjamin claims first Olympic gold in men's 400m hurdles**\
+`Benjamin achieved redemption after taking silver at the Tokyo Olympics behind Norway's Karsten Warholm, who won silver Friday.`\
+https://nytimes.com/athletic/5691915/2024/08/09/rai-benjamin-mens-400-hurdles-olympics/
+
 **Leicester working on deal to sign Zaha on loan from Galatasaray**\
 `Leicester are working on a deal to sign winger Wilfried Zaha from Galatasaray on a season-long loan.`\
 https://nytimes.com/athletic/5691926/2024/08/09/leicester-wilfried-zaha-loan-tranfer-close/
