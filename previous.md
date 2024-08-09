@@ -1,3 +1,7 @@
+**Live Q&A: Talking baseball with Eno Sarris on Friday 8/9 at 1:30 p.m. ET**\
+`Submit your questions for Eno Sarris' live Q&A, exclusively for subscribers.`\
+https://nytimes.com/athletic/5690345/2024/08/09/eno-sarris-live-chat-mlb-fantasy-baseball-8-9/
+
 **Trump’s Call to End Taxes on Social Security**\
 `Readers worry about the impact and suggest it’s just an empty campaign promise. Also: Trump’s news conference; V.P. candidates’ military records; Jewish voters.`\
 https://nytimes.com/2024/08/09/opinion/trump-social-security-taxes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/09/books/review/podcast-summer-reading.html
 **The Presidential Campaign’s Carbonated Détente**\
 `In a land of plenty that reveres personal freedom, we imbibe as we wish.`\
 https://nytimes.com/live/2024/08/07/opinion/thepoint/walz-vance-mountain-dew
-
-**Kevin Sullivan, Professional Wrestling’s ‘Prince of Darkness,’ Dies at 74**\
-`Modeling himself after the heavy metal bands of the 1970s and ’80s, he played the role of an occult-inspired villain and tangled with the likes of Hulk Hogan.`\
-https://nytimes.com/2024/08/09/us/kevin-sullivan-wrestler-dead.html
 

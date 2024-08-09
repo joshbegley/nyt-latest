@@ -1,3 +1,7 @@
+**Live Q&A: Talking baseball with Eno Sarris on Friday 8/9 at 1:30 p.m. ET**\
+`Submit your questions for Eno Sarris' live Q&A, exclusively for subscribers.`\
+https://nytimes.com/athletic/5690345/2024/08/09/eno-sarris-live-chat-mlb-fantasy-baseball-8-9/
+
 **Trump’s Call to End Taxes on Social Security**\
 `Readers worry about the impact and suggest it’s just an empty campaign promise. Also: Trump’s news conference; V.P. candidates’ military records; Jewish voters.`\
 https://nytimes.com/2024/08/09/opinion/trump-social-security-taxes.html
