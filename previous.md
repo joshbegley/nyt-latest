@@ -1,3 +1,7 @@
+**The Paris Bridge of Olympic Joy and Its Violent Past**\
+`The Pont du Carrousel, gathering place of joyous crowds, has come to symbolize a season of magic. It was not always so.`\
+https://nytimes.com/2024/08/09/world/europe/paris-bridge-olympics.html
+
 **Debby’s Remnants Bring Tornado Alerts and Snarl Some East Coast Air Traffic**\
 `There is at least some risk of tornadoes in New Jersey, eastern Pennsylvania and southeast New York on Friday.`\
 https://nytimes.com/2024/08/09/weather/debby-forecast-friday-new-york.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5684149/2024/08/09/dani-olmo-transfer-barcelona/
 **'Keep that open': George Kittle on the 49ers' title window, Aiyuk and more**\
 `It's been rocky for the 49ers this summer. It might get rockier. But they still have leaders like George Kittle and Fred Warner. `\
 https://nytimes.com/athletic/5690293/2024/08/09/george-kittle-49ers-title-brandon-aiyuk/
-
-**Chelsea agree €63m Pedro Neto deal with Wolves**\
-`Chelsea have agreed a deal to sign Pedro Neto from Wolverhampton Wanderers.`\
-https://nytimes.com/athletic/5691271/2024/08/09/pedro-neto-chelsea-transfer/
 
