@@ -1,3 +1,15 @@
+**Joe Ryan's season in doubt as Twins receive surprising news amid wave of injuries**\
+`The team revealed injuries to Ryan, Brooks Lee and prospect Luke Keaschall, while Brock Stewart confirmed he’ll have season-ending surgery.`\
+https://nytimes.com/athletic/5691989/2024/08/09/joe-ryan-minnesota-twins-injuries/
+
+**Two Rivals in Michigan’s Crucial Senate Contest Say They Were Both Swatted**\
+`Representative Elissa Slotkin, a Democrat, and former Representative Mike Rogers, a Republican, disclosed that they were targeted on Thursday and Friday.`\
+https://nytimes.com/2024/08/09/us/politics/elissa-slotkin-mike-rogers-swatting.html
+
+**Howie Cohen, Whose Alka-Seltzer Ads Spawned Catchphrases, Dies at 81**\
+`A copywriter, he and a partner in 1972 came up with “Try it, you’ll like it” and “I can’t believe I ate that whole thing.” Soon, sales were, well, fizzing.`\
+https://nytimes.com/2024/08/09/business/media/howie-cohen-dead.html
+
 **Trump Says He Wants to Cut Taxes. Harris’s Plan Mirrors Biden’s.**\
 `Also, Russia is scrambling to halt Ukraine’s surprise offensive. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/08/09/briefing/trump-harris-tax-plans-ukraine-russia-offensive.html
