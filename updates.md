@@ -1,3 +1,15 @@
+**49ers, Aiyuk have re-opened contract discussions**\
+`According to a league source, the Steelers have not heard back from the 49ers regarding trade talks in the last 24 hours.`\
+https://nytimes.com/athletic/5692057/2024/08/09/49ers-brandon-aiyuk-contract-trade/
+
+**F.D.A. Declines to Approve MDMA Therapy, Seeking More Study**\
+`The agency said there was insufficient data to allow the use of a treatment for PTSD that involves the drug known as Ecstasy, according to the company seeking approval.`\
+https://nytimes.com/2024/08/09/health/fda-mdma-ptsd-delay.html
+
+**Team USA planning to start Kevin Durant vs. France for Olympic final**\
+`Jrue Holiday is expected to come off the bench for the United States, those sources said.`\
+https://nytimes.com/athletic/5692073/2024/08/09/usa-basketball-kevin-durant-france-olympics/
+
 **A Financial Tale of Two Potential Vice Presidents**\
 `JD Vance and Tim Walz both came from modest backgrounds, but they have had very different trajectories when it comes to their personal fortunes.`\
 https://nytimes.com/2024/08/09/us/politics/walz-vance-money.html

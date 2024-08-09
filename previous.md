@@ -1,3 +1,15 @@
+**49ers, Aiyuk have re-opened contract discussions**\
+`According to a league source, the Steelers have not heard back from the 49ers regarding trade talks in the last 24 hours.`\
+https://nytimes.com/athletic/5692057/2024/08/09/49ers-brandon-aiyuk-contract-trade/
+
+**F.D.A. Declines to Approve MDMA Therapy, Seeking More Study**\
+`The agency said there was insufficient data to allow the use of a treatment for PTSD that involves the drug known as Ecstasy, according to the company seeking approval.`\
+https://nytimes.com/2024/08/09/health/fda-mdma-ptsd-delay.html
+
+**Team USA planning to start Kevin Durant vs. France for Olympic final**\
+`Jrue Holiday is expected to come off the bench for the United States, those sources said.`\
+https://nytimes.com/athletic/5692073/2024/08/09/usa-basketball-kevin-durant-france-olympics/
+
 **A Financial Tale of Two Potential Vice Presidents**\
 `JD Vance and Tim Walz both came from modest backgrounds, but they have had very different trajectories when it comes to their personal fortunes.`\
 https://nytimes.com/2024/08/09/us/politics/walz-vance-money.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/09/us/politics/elissa-slotkin-mike-rogers-swatting.h
 **Trump Says He Wants to Cut Taxes. Harris’s Plan Mirrors Biden’s.**\
 `Also, Russia is scrambling to halt Ukraine’s surprise offensive. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/08/09/briefing/trump-harris-tax-plans-ukraine-russia-offensive.html
-
-**Man City could still be active in transfer market – Guardiola**\
-`Pep Guardiola has suggested that Manchester City could make another signing this summer following the impending departure of Julian Alvarez to Atletico Madrid while confirming that Ederson will stay with the club this season.`\
-https://nytimes.com/athletic/5691544/2024/08/09/man-city-transfer-news-alvarez/
-
-**Man Utd may need time to reach full strength this season - Ten Hag**\
-`Erik ten Hag says Manchester United may need time to reach full strength this season, pointing to the challenge of reintegrating players returning from international duty.`\
-https://nytimes.com/athletic/5691191/2024/08/09/erik-ten-hag-manchester-united-strength/
-
-**Iran says the call for peace talks in Gaza will not change its resolve to retaliate against Israel.**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2024/08/09/world/israel-iran-hamas-gaza-war/iran-says-the-call-for-peace-talks-in-gaza-will-not-change-its-resolve-to-retaliate-against-israel
 
