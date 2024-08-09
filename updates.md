@@ -1,3 +1,7 @@
+**Smartmatic Executives Charged With Bribery of Philippine Official**\
+`The Justice Department said the executives from the voting technology company had funneled at least $1 million to obtain a contract to provide voting machines in the 2016 Philippine elections.`\
+https://nytimes.com/2024/08/09/business/media/smartmatic-bribery-philippines-elections.html
+
 **White House assails ‘extremist’ Israeli minister for opposing cease-fire.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/08/09/world/israel-iran-hamas-gaza-war/white-house-assails-extremist-israeli-minister-for-opposing-cease-fire
