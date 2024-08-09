@@ -1,3 +1,7 @@
+**Nebraska flips 4-star WR Isaiah Mozee from Oregon**\
+`LINCOLN, Neb.`\
+https://nytimes.com/athletic/5691815/2024/08/09/nebraska-cornhuskers-football-recruiting-isaiah-mozee-oregon/
+
 **Taylor Swift Fans in Vienna React After Cancellations**\
 `Taylor Swift fans described their disappointment after organizers canceled her Eras Tour dates in Vienna after Austrian authorities uncovered a terrorist plot targeting the event.`\
 https://nytimes.com/video/world/europe/100000009621182/taylor-swift-fans-react-vienna.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/09/world/israel-iran-hamas-gaza-war/gaza-cease-
 **Richardson, U.S. women win gold in 4x100 relay**\
 `Melissa Jefferson led off followed by Twanisha Terry and Gabby Thomas. `\
 https://nytimes.com/athletic/5691711/2024/08/09/womens-4x100-relay-results-usa/
-
-**Shawn Mendes Returns Full of Questions, and 8 More New Songs**\
-`Hear tracks by Leon Bridges, Ravyn Lenae, Kelsea Ballerini and others.`\
-https://nytimes.com/2024/08/09/arts/music/playlist-shawn-mendes-kelsea-ballerini.html
 
