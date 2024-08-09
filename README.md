@@ -1,3 +1,7 @@
+**Panthers' charter plane goes off taxiway, no injuries reported**\
+`None of the 188 people on board the Panthers' return flight were injured on the return to Charlotte early Friday morning. `\
+https://nytimes.com/athletic/5691371/2024/08/09/carolina-panthers-plane-runs-off-taxiway/
+
 **Gazans Sleep on the Street as Israel Orders More Evacuations**\
 `In a familiar cycle of displacement, many Gazans were on the move again as Israel launched its third major operation around Khan Younis.`\
 https://nytimes.com/video/world/middleeast/100000009620876/israel-gaza-khan-younis-evacuation.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000009620975/nancy-pelosi-on-joe-biden-tim-
 **Here Are the Olympic Moments We Won’t Forget**\
 `It doesn’t take a medal to make a lasting memory.`\
 https://nytimes.com/2024/08/09/world/olympics/paris-olympics-2024-moments.html
-
-**Scoop City: Rookie QBs are debuting**\
-`Scoop City is The Athletic&#8217;s daily NFL newsletter.`\
-https://nytimes.com/athletic/5691304/2024/08/09/nfl-rookie-quarterbacks-scoop-city/
 
