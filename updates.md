@@ -1,3 +1,7 @@
+**Sheriff in Illinois Will Resign Amid Backlash Over Fatal Shooting by Deputy**\
+`Jack Campbell, the sheriff of Sangamon County, was criticized for hiring the deputy, who has now been charged with murdering Sonya Massey in her home last month.`\
+https://nytimes.com/2024/08/09/us/sonya-massey-jack-campbell-resigns.html
+
 **USA women's basketball vs. France Olympics gold medal game odds: Team USA favored**\
 `The US woman enter the gold medal game as significant favorites over a tenacious home country, France.`\
 https://nytimes.com/athletic/5691696/2024/08/09/usa-france-womens-basketball-olympics-gold-medal/
