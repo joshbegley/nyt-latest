@@ -1,3 +1,11 @@
+**Rams' Jared Verse, Kam Kinchens showed up well in joint practice with Cowboys**\
+`Rams rookie Jared Verse catches Dak Prescott's attention during joint practice. "Very talented," the Cowboys' QB said.`\
+https://nytimes.com/athletic/5690359/2024/08/08/la-rams-practice-defense-cowboys/
+
+**Donald Trump Can’t Get Over What Happened to President Biden**\
+`At a news conference in Florida on, Mr. Trump said “the presidency was taken away from Joe Biden” by a cabal of Democrats including Barack Obama, Nancy Pelosi and Kamala Harris.`\
+https://nytimes.com/2024/08/08/us/politics/trump-biden-press-conference.html
+
 **NBA's Christmas Day slate to feature Lakers-Warriors, Spurs-Knicks**\
 `There will be five games expected to showcase the league's biggest stars.`\
 https://nytimes.com/athletic/5690493/2024/08/08/nba-christmas-2024-schedule/
