@@ -1,3 +1,11 @@
+**Man City could still be active in transfer market – Guardiola**\
+`Pep Guardiola has suggested that Manchester City could make another signing this summer following the impending departure of Julian Alvarez to Atletico Madrid while confirming that Ederson will stay with the club this season.`\
+https://nytimes.com/athletic/5691544/2024/08/09/man-city-transfer-news-alvarez/
+
+**Man Utd may need time to reach full strength this season - Ten Hag**\
+`Erik ten Hag says Manchester United may need time to reach full strength this season, pointing to the challenge of reintegrating players returning from international duty.`\
+https://nytimes.com/athletic/5691191/2024/08/09/erik-ten-hag-manchester-united-strength/
+
 **Iran says the call for peace talks in Gaza will not change its resolve to retaliate against Israel.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/08/09/world/israel-iran-hamas-gaza-war/iran-says-the-call-for-peace-talks-in-gaza-will-not-change-its-resolve-to-retaliate-against-israel
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/09/us/politics/fact-checking-claims-about-tim-walzs-
 **How to Watch Biden’s Interview on CBS**\
 `The president spoke with Robert Costa in his first interview since ending his re-election campaign. The discussion will air on “CBS Sunday Morning” at 9 a.m. Eastern time.`\
 https://nytimes.com/2024/08/09/us/politics/how-to-watch-biden-interview-cbs.html
-
-**An Artist Documenting the Beauty of Queer Black South Africa**\
-`Zanele Muholi discusses visual activism, gospel music and walking more than 15,000 steps in a day.`\
-https://nytimes.com/2024/08/09/t-magazine/zanele-muholi-tate-modern-sfmoma.html
-
-**This Is a Picture of the Last Thing Seen by NASA’s Asteroid Hunter**\
-`NEOWISE, a spacecraft that studied faraway cosmic objects before shifting its focus closer to home, has reached the end of its life. But its legacy lives on.`\
-https://nytimes.com/2024/08/09/science/neowise-nasa-asteroid-hunter-last-image.html
 

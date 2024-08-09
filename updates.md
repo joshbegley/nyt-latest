@@ -1,3 +1,11 @@
+**Man City could still be active in transfer market – Guardiola**\
+`Pep Guardiola has suggested that Manchester City could make another signing this summer following the impending departure of Julian Alvarez to Atletico Madrid while confirming that Ederson will stay with the club this season.`\
+https://nytimes.com/athletic/5691544/2024/08/09/man-city-transfer-news-alvarez/
+
+**Man Utd may need time to reach full strength this season - Ten Hag**\
+`Erik ten Hag says Manchester United may need time to reach full strength this season, pointing to the challenge of reintegrating players returning from international duty.`\
+https://nytimes.com/athletic/5691191/2024/08/09/erik-ten-hag-manchester-united-strength/
+
 **Iran says the call for peace talks in Gaza will not change its resolve to retaliate against Israel.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/08/09/world/israel-iran-hamas-gaza-war/iran-says-the-call-for-peace-talks-in-gaza-will-not-change-its-resolve-to-retaliate-against-israel
