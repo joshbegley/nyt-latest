@@ -1,3 +1,7 @@
+**A Swing in Momentum**\
+`We explain the state of the 2024 race.`\
+https://nytimes.com/2024/08/09/briefing/a-swing-in-momentum.html
+
 **Carles Puigdemont Flees Spain Again After Rally, His Lawyer Says**\
 `The Catalan separatist leader, who has been living in self-imposed exile since spearheading an illegal referendum on independence in 2017, vanished almost as quickly as he had surfaced this week.`\
 https://nytimes.com/2024/08/09/world/europe/carles-puigdemont-spain-catalonia.html

@@ -1,3 +1,7 @@
+**A Swing in Momentum**\
+`We explain the state of the 2024 race.`\
+https://nytimes.com/2024/08/09/briefing/a-swing-in-momentum.html
+
 **Carles Puigdemont Flees Spain Again After Rally, His Lawyer Says**\
 `The Catalan separatist leader, who has been living in self-imposed exile since spearheading an illegal referendum on independence in 2017, vanished almost as quickly as he had surfaced this week.`\
 https://nytimes.com/2024/08/09/world/europe/carles-puigdemont-spain-catalonia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/09/arts/television/mafia-spies-cia-kill-castro.html
 **Tim Walz Is Vibing**\
 `Democrats are trying to make the election about who is cool and who is weird. Will it stick?`\
 https://nytimes.com/2024/08/09/opinion/tim-walz-harris-trump.html
-
-**Why Vermont Is Nervously Watching the Remnants of Hurricane Debby**\
-`The state has faced repeated flooding emergencies, with mountain streams turned into torrents, and could be in for another deluge.`\
-https://nytimes.com/2024/08/09/us/vermont-debby-flooding.html
 
