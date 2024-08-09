@@ -1,3 +1,7 @@
+**Smartmatic Executives Charged With Bribery of Philippine Official**\
+`The Justice Department said the executives from the voting technology company had funneled at least $1 million to obtain a contract to provide voting machines in the 2016 Philippine elections.`\
+https://nytimes.com/2024/08/09/business/media/smartmatic-bribery-philippines-elections.html
+
 **White House assails ‘extremist’ Israeli minister for opposing cease-fire.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/08/09/world/israel-iran-hamas-gaza-war/white-house-assails-extremist-israeli-minister-for-opposing-cease-fire
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/07/opinion/thepoint/nagasaki-nuclear-bomb
 **Tim Walz’s Class Project on the Holocaust Draws New Attention Online**\
 `Mr. Walz, now the Democrats’ vice-presidential nominee, asked his high school students in 1993 which country was most at risk for genocide. Their prediction came to pass: Rwanda.`\
 https://nytimes.com/2024/08/09/us/politics/tim-walz-holocaust-class-rwanda-genocide.html
-
-**Think You’ve Planned for Retirement? Beware the Tax Torpedo.**\
-`The complicated way Social Security is taxed can catch middle-income earners by surprise.`\
-https://nytimes.com/2024/08/09/opinion/retirement-tax-torpedo-social-security.html
 

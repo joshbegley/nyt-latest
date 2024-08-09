@@ -1,3 +1,15 @@
+**White House assails ‘extremist’ Israeli minister for opposing cease-fire.**\
+`By Peter Baker`\
+https://nytimes.com/live/2024/08/09/world/israel-iran-hamas-gaza-war/white-house-assails-extremist-israeli-minister-for-opposing-cease-fire
+
+**De Gea joins Fiorentina 15 months after leaving Man United**\
+`David De Gea has joined Fiorentina as a free agent — 15 months after his exit from Manchester United.`\
+https://nytimes.com/athletic/5690919/2024/08/09/david-de-gea-fiorentina-transfer-confirmed/
+
+**Video and Airplane Sketch Raise New Questions About Saudi Ties to 9/11**\
+`The F.B.I. received a trove of evidence from British authorities between 2001 and 2002. Two significant pieces of information, which were not shared with the 9/11 Commission, have recently emerged.`\
+https://nytimes.com/2024/08/09/nyregion/sept-11-saudi-ties.html
+
 **Real Madrid defender Joan Martinez suffers cruciate ligament injury**\
 `Real Madrid defender Joan Martinez is facing an extended spell on the sidelines after rupturing the cruciate ligament in his left knee.`\
 https://nytimes.com/athletic/5691882/2024/08/09/real-madrid-joan-martinez-injury/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/09/us/politics/tim-walz-holocaust-class-rwanda-genoc
 **Think You’ve Planned for Retirement? Beware the Tax Torpedo.**\
 `The complicated way Social Security is taxed can catch middle-income earners by surprise.`\
 https://nytimes.com/2024/08/09/opinion/retirement-tax-torpedo-social-security.html
-
-**Stroke by Wobbly Stroke, Learning to Accept Imperfection**\
-`During a recent assignment, a reporter learned the basics of calligraphy — and with it, how to practice self-compassion.`\
-https://nytimes.com/2024/08/09/insider/calligraphy-popularity.html
-
-**A Trust Would Give Me Big Bucks if I Had Children. I’m Concerned.**\
-`The magazine’s Ethicist columnist on a wealthy family’s philanthropic planning.`\
-https://nytimes.com/2024/08/09/magazine/trust-grandchildren-charity-ethics.html
-
-**The Big Number: $8.4 Billion**\
-`Disney’s weaker-than-expected revenue at its theme park unit.`\
-https://nytimes.com/2024/08/09/business/the-big-number-8-4-billion-disney-earnings.html
 
