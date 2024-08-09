@@ -1,3 +1,7 @@
+**Nebraska flips 4-star WR Isaiah Mozee from Oregon**\
+`LINCOLN, Neb.`\
+https://nytimes.com/athletic/5691815/2024/08/09/nebraska-cornhuskers-football-recruiting-isaiah-mozee-oregon/
+
 **Taylor Swift Fans in Vienna React After Cancellations**\
 `Taylor Swift fans described their disappointment after organizers canceled her Eras Tour dates in Vienna after Austrian authorities uncovered a terrorist plot targeting the event.`\
 https://nytimes.com/video/world/europe/100000009621182/taylor-swift-fans-react-vienna.html
