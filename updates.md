@@ -1,3 +1,11 @@
+**Iran says the call for peace talks in Gaza will not change its resolve to retaliate against Israel.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2024/08/09/world/israel-iran-hamas-gaza-war/iran-says-the-call-for-peace-talks-in-gaza-will-not-change-its-resolve-to-retaliate-against-israel
+
+**Howie Cohen, Whose Alka-Seltzer Ads Spawned Catchphrases, Dies at 81**\
+`A copywriter, he and a partner in 1972 came up with “Try it, you’ll like it” and “I can’t believe I ate the whole thing.” Soon, sales were, well, fizzing again.`\
+https://nytimes.com/2024/08/09/business/media/howie-cohen-dead.html
+
 **Imane Khelif wins Olympic boxing gold medal, ending trying Games with triumph**\
 `The fight marked the end of a long, emotional Olympic saga for Khelif, who won Algeria's seventh gold medal all time.`\
 https://nytimes.com/athletic/5691920/2024/08/09/imane-khelif-olympics-boxing-gold-medal-yang-liu/
