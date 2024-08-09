@@ -1,3 +1,11 @@
+**Doug Emhoff Stresses a Personal Push Against Antisemitism**\
+`At an event in Paris to commemorate a 1982 attack on a Jewish deli there, Kamala Harris’s husband said, “Part of fighting hate is living openly and proudly as a Jew.”`\
+https://nytimes.com/2024/08/09/world/europe/doug-emhoff-antisemitism-paris.html
+
+**6 New Paperbacks to Read This Week**\
+`Including titles by Brando Skyhorse, Barack Obama, Costica Bradatan and more. `\
+https://nytimes.com/interactive/2024/08/09/books/review/new-paperbacks-skyhorse.html
+
 **The Paris Bridge of Olympic Joy and Its Violent Past**\
 `The Pont du Carrousel, gathering place of joyous crowds, has come to symbolize a season of magic. It was not always so.`\
 https://nytimes.com/2024/08/09/world/europe/paris-bridge-olympics.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5691273/2024/08/09/lee-carsley-england-manager-inte
 **Quincy Wilson gets a humbling taste of the Olympics — but it's just the beginning**\
 `Quincy Wilson's Olympic debut on Friday was a reminder of both how far he has to go and the unending potential he has to get there.`\
 https://nytimes.com/athletic/5691245/2024/08/09/quincy-wilson-olympics-4x400-relay-team-usa/
-
-**Barcelona sign Olmo from RB Leipzig**\
-`Barcelona have completed the signing of Dani Olmo from RB Leipzig.`\
-https://nytimes.com/athletic/5684149/2024/08/09/dani-olmo-transfer-barcelona/
-
-**'Keep that open': George Kittle on the 49ers' title window, Aiyuk and more**\
-`It's been rocky for the 49ers this summer. It might get rockier. But they still have leaders like George Kittle and Fred Warner. `\
-https://nytimes.com/athletic/5690293/2024/08/09/george-kittle-49ers-title-brandon-aiyuk/
 

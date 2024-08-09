@@ -1,3 +1,11 @@
+**Doug Emhoff Stresses a Personal Push Against Antisemitism**\
+`At an event in Paris to commemorate a 1982 attack on a Jewish deli there, Kamala Harris’s husband said, “Part of fighting hate is living openly and proudly as a Jew.”`\
+https://nytimes.com/2024/08/09/world/europe/doug-emhoff-antisemitism-paris.html
+
+**6 New Paperbacks to Read This Week**\
+`Including titles by Brando Skyhorse, Barack Obama, Costica Bradatan and more. `\
+https://nytimes.com/interactive/2024/08/09/books/review/new-paperbacks-skyhorse.html
+
 **The Paris Bridge of Olympic Joy and Its Violent Past**\
 `The Pont du Carrousel, gathering place of joyous crowds, has come to symbolize a season of magic. It was not always so.`\
 https://nytimes.com/2024/08/09/world/europe/paris-bridge-olympics.html
