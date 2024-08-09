@@ -1,3 +1,7 @@
+**Arsenal ready to sanction Nketiah’s Marseille loan with €30m obligation to buy**\
+`Arsenal are ready to sanction Eddie Nketiah’s departure to Marseille on loan with an obligation to buy for a fee in the region of €30million.`\
+https://nytimes.com/athletic/5658066/2024/08/09/eddie-nketiah-marseille-arsenal-transfer/
+
 **Which Vikings have the most to gain (and lose) in preseason opener vs. Raiders?**\
 `All eyes will be on the rookie QB on Saturday, but there are plenty of other Vikings with something to prove against the Raiders.`\
 https://nytimes.com/athletic/5690127/2024/08/09/raiders-vikings-mccarthy-preseason/
