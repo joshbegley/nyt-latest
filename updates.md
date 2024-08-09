@@ -1,3 +1,7 @@
+**Tourists Accused of Defacing Joshua Tree National Park With Paintballs**\
+`Three tourists from Germany shot paintballs at signs, bathrooms and dumpsters, officials for the park said, violating rules against defacing federal property.`\
+https://nytimes.com/2024/08/09/us/joshua-tree-paintball-tourists.html
+
 **Bills post-camp pre-preseason 53-man roster projection**\
 `Most positions are set but linebacker still has some questions.`\
 https://nytimes.com/athletic/5688177/2024/08/09/buffalo-bills-training-camp-preseason-53-man-roster-projection/
