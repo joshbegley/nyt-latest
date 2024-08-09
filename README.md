@@ -1,3 +1,7 @@
+**Gaza cease-fire push by U.S., Qatar and Egypt faces big challenges.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/08/09/world/israel-iran-hamas-gaza-war/gaza-cease-fire-push-by-us-qatar-and-egypt-faces-big-challenges
+
 **Richardson, U.S. women win gold in 4x100 relay**\
 `SAINT-DENIS, France — Sha’Carri Richardson took the baton and ran like track owed her a gold medal.`\
 https://nytimes.com/athletic/5691711/2024/08/09/womens-4x100-relay-results-usa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5691666/2024/08/09/gary-oneil-wolves-contract/
 **AC Milan agree deal with Tottenham for Emerson Royal signing**\
 `AC Milan have agreed a deal with Tottenham Hotspur for the signing of defender Emerson Royal.`\
 https://nytimes.com/athletic/5691529/2024/08/09/emerson-royal-milan-tottenham-transfer/
-
-**Harris Skipped Over a Pennsylvania Star. Will It Matter in November?**\
-`Gov. Josh Shapiro won’t be on the Democratic ticket, and nor, for that matter, will the Scranton-born President Biden. But party officials in the battleground state are cautiously hopeful.`\
-https://nytimes.com/2024/08/09/us/politics/harris-shapiro-pennsylvania.html
 
