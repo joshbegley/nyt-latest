@@ -1,3 +1,7 @@
+**Giants endure a soaking, and Hurricane Camilo, to win in Washington and edge above .500**\
+`They were interrupted by rain delays and three blown leads, but the Giants ended the day with a winning record for the first time since May.`\
+https://nytimes.com/athletic/5690437/2024/08/08/sf-giants-rain-delays-camilo-doval/
+
 **Kamala Harris Isn’t Giving Interviews. Any Questions?**\
 `Critics say the vice president has been too cautious with the press. Her supporters think it’s the right strategy at the right time.`\
 https://nytimes.com/2024/08/08/business/media/kamala-harris-press-interviews.html
