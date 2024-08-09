@@ -1,3 +1,7 @@
+**Bills post-camp pre-preseason 53-man roster projection**\
+`Most positions are set but linebacker still has some questions.`\
+https://nytimes.com/athletic/5688177/2024/08/09/buffalo-bills-training-camp-preseason-53-man-roster-projection/
+
 **Five players to watch in 49ers' preseason opener, from Dee Winters to Cody Schrader**\
 `The 49ers won't play most of their starters against the Titans, but there should be plenty of interesting evaluation opportunities.`\
 https://nytimes.com/athletic/5689834/2024/08/09/49ers-preseason-titans-players-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5689135/2024/08/09/the-athletics-friday-football-qu
 **Raiders-Vikings: 5 things to watch in Las Vegas' preseason opener**\
 `Antonio Pierce is planning on the Raiders' full roster suiting up for each preseason game. So what should we be looking for in Minnesota?`\
 https://nytimes.com/athletic/5686971/2024/08/09/raiders-vikings-preseason-preview/
-
-**Jack Flaherty went to Dodger Stadium as a baby, now he'll start for home team**\
-`Flaherty's mother, who took him to Dodger Stadium as a kid, says, "I’ll want to just break down and cry about the joy of all of it."`\
-https://nytimes.com/athletic/5689939/2024/08/09/dodgers-jack-flaherty-home-debut/
 

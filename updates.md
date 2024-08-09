@@ -1,3 +1,11 @@
+**Five players to watch in 49ers' preseason opener, from Dee Winters to Cody Schrader**\
+`The 49ers won't play most of their starters against the Titans, but there should be plenty of interesting evaluation opportunities.`\
+https://nytimes.com/athletic/5689834/2024/08/09/49ers-preseason-titans-players-to-watch/
+
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/08/09/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
 **How the red-hot Padres cultivated the most contact-prone offense in baseball**\
 `“If you put the ball in play, you have a better chance to do something,” said Victor Rodriguez, the team's lead hitting coach.`\
 https://nytimes.com/athletic/5690648/2024/08/09/padres-contact-prone-offense/
