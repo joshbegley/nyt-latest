@@ -1,3 +1,11 @@
+**A Pastry That Tastes Like Home**\
+`The cheese scone is so essential to the New Zealand diet that it is almost impossible to find a cafe without a plate of them on the counter.`\
+https://nytimes.com/2024/08/09/world/australia/new-zealand-cheese-scone.html
+
+**DK Metcalf, D'Andre Swift and more fantasy football draft targets to pursue ahead of their ADP ranges**\
+`Scott Engel looks at 16 players he is targeting ahead of their ADPs and why he thinks they can outperform where they're getting drafted.`\
+https://nytimes.com/athletic/5687534/2024/08/09/fantasy-football-draft-targets-to-pursue-ahead-of-their-adp-ranges/
+
 **How My Beloved Italian City Turned Into a Mortadella Nightmare**\
 `Must we really travel like this?`\
 https://nytimes.com/2024/08/09/opinion/italy-tourists-bologna-mortadella.html

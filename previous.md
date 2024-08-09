@@ -1,3 +1,11 @@
+**A Pastry That Tastes Like Home**\
+`The cheese scone is so essential to the New Zealand diet that it is almost impossible to find a cafe without a plate of them on the counter.`\
+https://nytimes.com/2024/08/09/world/australia/new-zealand-cheese-scone.html
+
+**DK Metcalf, D'Andre Swift and more fantasy football draft targets to pursue ahead of their ADP ranges**\
+`Scott Engel looks at 16 players he is targeting ahead of their ADPs and why he thinks they can outperform where they're getting drafted.`\
+https://nytimes.com/athletic/5687534/2024/08/09/fantasy-football-draft-targets-to-pursue-ahead-of-their-adp-ranges/
+
 **How My Beloved Italian City Turned Into a Mortadella Nightmare**\
 `Must we really travel like this?`\
 https://nytimes.com/2024/08/09/opinion/italy-tourists-bologna-mortadella.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5688446/2024/08/09/everton-injuries-dyche-branthwai
 **Parkinson on 2024-25: 'There's a sense of realism - people see the spending power of teams'**\
 `Wrexham's manager on their return to League One level after 19 years and the challenges ahead in what is a big-spending division`\
 https://nytimes.com/athletic/5633942/2024/08/09/phil-parkinson-wrexham-interview-2024-2025-preview/
-
-**It looks like Wolves might gamble on a back four again - is that wise?**\
-`Why Gary O'Neil seems keen to try a four-man defence again, and how it might work out for Wolves this time...`\
-https://nytimes.com/athletic/5676645/2024/08/09/wolves-back-four-oneil/
-
-**How much do Arsenal fans still love Smith Rowe? Ask the ones who went to his Fulham debut**\
-`The mum and son who paused their holiday in Portugal to watch Fulham - all because they love Emile Smith Rowe`\
-https://nytimes.com/athletic/5686237/2024/08/09/emile-smith-rowe-fulham-debut-arsenal-fans-portugal/
 
