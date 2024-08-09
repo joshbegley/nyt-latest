@@ -1,3 +1,7 @@
+**Facing Turmoil at Home, Young Artists Find a Musical Haven in New York**\
+`Hundreds of students from Venezuela, Afghanistan, Israel and elsewhere converged at Carnegie Hall, using music to cope in a time of strife and unrest.`\
+https://nytimes.com/2024/08/09/arts/music/world-orchestra-week-youth-orchestras-carnegie-hall.html
+
 **Harris Fights Uphill Against Trump in Arizona, Backed by a Revived Party**\
 `The battleground state, where Kamala Harris will rally on Friday, has drifted toward Donald Trump since he lost it in 2020. Democrats hope her momentum could turn their fortunes around there.`\
 https://nytimes.com/2024/08/09/us/politics/kamala-harris-arizona.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5689920/2024/08/09/premier-league-united-states-pre
 **30 Minutes With the ‘World’s Most Advanced’ Massage Robot**\
 `A.I.-informed massage robots will arrive at some Equinox gyms this month. I gave one a try.`\
 https://nytimes.com/2024/08/09/well/massage-robot.html
-
-**Our Five-Star Tomato Tart**\
-`If your tomatoes aren’t perfect, so much the better — a quick blast in the oven and some dollops of ricotta and pesto make them shine.`\
-https://nytimes.com/2024/08/09/dining/our-five-star-tomato-tart.html
 
