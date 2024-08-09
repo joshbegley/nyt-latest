@@ -1,3 +1,11 @@
+**'Keep that open': George Kittle on the 49ers' title window, Aiyuk and more**\
+`It's been rocky for the 49ers this summer. It might get rockier. But they still have leaders like George Kittle and Fred Warner. `\
+https://nytimes.com/athletic/5690293/2024/08/09/george-kittle-49ers-title-brandon-aiyuk/
+
+**Can This Woman Save the United States?**\
+`(The storied ocean liner, that is.)`\
+https://nytimes.com/2024/08/09/us/ss-united-states-philadelphia.html
+
 **Olympic final is Embiid vs. the fans – and he's ready for it**\
 `PARIS — There are serious implications riding on the outcome of the gold medal game in men’s basketball Saturday, from France seeking a first-ever gold medal, in a home game no less, to the United States extending a storied run of championships, to legacies being further defined.`\
 https://nytimes.com/athletic/5691215/2024/08/09/team-usa-france-basketball-joel-embiid/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5690813/2024/08/09/chargers-training-camp-wide-rece
 **Tourists Accused of Defacing Joshua Tree National Park With Paintballs**\
 `Three tourists from Germany shot paintballs at signs, bathrooms and dumpsters, officials for the park said, violating rules against defacing federal property.`\
 https://nytimes.com/2024/08/09/us/joshua-tree-paintball-tourists.html
-
-**Bills post-camp pre-preseason 53-man roster projection**\
-`Most positions are set but linebacker still has some questions.`\
-https://nytimes.com/athletic/5688177/2024/08/09/buffalo-bills-training-camp-preseason-53-man-roster-projection/
-
-**Five players to watch in 49ers' preseason opener, from Dee Winters to Cody Schrader**\
-`The 49ers won't play most of their starters against the Titans, but there should be plenty of interesting evaluation opportunities.`\
-https://nytimes.com/athletic/5689834/2024/08/09/49ers-preseason-titans-players-to-watch/
 

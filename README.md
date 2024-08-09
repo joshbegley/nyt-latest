@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5691215/2024/08/09/team-usa-france-basketball-joel-
 https://nytimes.com/athletic/5687303/2024/08/09/manchester-united-sponsor-shirt-snapdragon/
 
 **How a karaoke machine has helped the USWNT prepare for the Olympic gold medal match**\
-`The U.S. might have suffered through wins on the field, but they're still having fun off of it`\
+`The U.S. women might have suffered through wins on the field in France, but they're still having fun off of it`\
 https://nytimes.com/athletic/5691147/2024/08/09/uswnt-olympics-karaoke-emma-hayes/
 
 **Tim Walz: Governor, Vice-Presidential Candidate, Local Music Fan**\
