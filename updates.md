@@ -1,3 +1,11 @@
+**Trump’s Call to End Taxes on Social Security**\
+`Readers worry about the impact and suggest it’s just an empty campaign promise. Also: Trump’s news conference; V.P. candidates’ military records; Jewish voters.`\
+https://nytimes.com/2024/08/09/opinion/trump-social-security-taxes.html
+
+**Tim Walz Seeks to Build Trust, One T-shirt at a Time**\
+`Kamala Harris picked a running mate whose casual clothes have helped make him relatable in appearance.`\
+https://nytimes.com/2024/08/09/style/tim-walz-style.html
+
 **Hours after dramatic win, KD delivers another comeback — online**\
 `Kevin Durant made time for trash talk in the wee hours of the morning after Team USA's win over Serbia.`\
 https://nytimes.com/athletic/5691381/2024/08/09/kevin-durant-twitter-team-usa-serbia-olympics/
