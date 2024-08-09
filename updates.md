@@ -1,3 +1,7 @@
+**Bills post-camp pre-preseason 53-man roster projection**\
+`Most positions are set but linebacker still has some questions.`\
+https://nytimes.com/athletic/5688177/2024/08/09/buffalo-bills-training-camp-preseason-53-man-roster-projection/
+
 **Five players to watch in 49ers' preseason opener, from Dee Winters to Cody Schrader**\
 `The 49ers won't play most of their starters against the Titans, but there should be plenty of interesting evaluation opportunities.`\
 https://nytimes.com/athletic/5689834/2024/08/09/49ers-preseason-titans-players-to-watch/
