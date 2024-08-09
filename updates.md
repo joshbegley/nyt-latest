@@ -1,3 +1,7 @@
+**NBA's Christmas Day slate to feature Lakers-Warriors, Spurs-Knicks**\
+`There will be five games expected to showcase the league's biggest stars.`\
+https://nytimes.com/athletic/5690493/2024/08/08/nba-christmas-2024-schedule/
+
 **Giants endure a soaking, and Hurricane Camilo, to win in Washington and edge above .500**\
 `They were interrupted by rain delays and three blown leads, but the Giants ended the day with a winning record for the first time since May.`\
 https://nytimes.com/athletic/5690437/2024/08/08/sf-giants-rain-delays-camilo-doval/
