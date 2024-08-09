@@ -1,3 +1,7 @@
+**Joe Ryan's season in doubt as Twins receive surprising news amid wave of injuries**\
+`The team revealed injuries to Ryan, Brooks Lee and prospect Luke Keaschall, while Brock Stewart confirmed he’ll have season-ending surgery.`\
+https://nytimes.com/athletic/5691989/2024/08/09/joe-ryan-minnesota-twins-injuries/
+
 **Two Rivals in Michigan’s Crucial Senate Contest Say They Were Both Swatted**\
 `Representative Elissa Slotkin, a Democrat, and former Representative Mike Rogers, a Republican, disclosed that they were targeted on Thursday and Friday.`\
 https://nytimes.com/2024/08/09/us/politics/elissa-slotkin-mike-rogers-swatting.html
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/5691191/2024/08/09/erik-ten-hag-manchester-united-s
 https://nytimes.com/live/2024/08/09/world/israel-iran-hamas-gaza-war/iran-says-the-call-for-peace-talks-in-gaza-will-not-change-its-resolve-to-retaliate-against-israel
 
 **Howie Cohen, Whose Alka-Seltzer Ads Spawned Catchphrases, Dies at 81**\
-`A copywriter, he and a partner in 1972 came up with “Try it, you’ll like it” and “I can’t believe I ate the whole thing.” Soon, sales were, well, fizzing.`\
+`A copywriter, he and a partner in 1972 came up with “Try it, you’ll like it” and “I can’t believe I ate that whole thing.” Soon, sales were, well, fizzing.`\
 https://nytimes.com/2024/08/09/business/media/howie-cohen-dead.html
 
 **Imane Khelif wins Olympic boxing gold medal, ending trying Games with triumph**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5691958/2024/08/09/sifan-hassan-bronze-olympics-net
 **Joe Rogan Would Like to Clarify: He Did Not Endorse Robert F. Kennedy Jr.**\
 `A day after praising Mr. Kennedy, the podcast host was backpedaling. “This isn’t an endorsement” Mr. Rogan posted, and he advised that he is “not the guy to get political information from.”`\
 https://nytimes.com/2024/08/09/us/politics/joe-rogan-rfk-jr.html
-
-**Iowa Law Requiring Schools to Remove Books With Sexual Content to Take Effect**\
-`A federal appeals court lifted an injunction on the law, which had already led to the removal of thousands of books from public school classrooms and libraries.`\
-https://nytimes.com/2024/08/09/books/booksupdate/iowa-book-ban-books.html
 
