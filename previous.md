@@ -1,3 +1,7 @@
+**College Football Playoff sleepers: 14 unranked teams to watch**\
+`The expanded CFP field should leave room for a number of surprises, especially in the first year of a new system.`\
+https://nytimes.com/athletic/5690012/2024/08/09/college-football-playoff-2024-sleeper-predictions/
+
 **Olympic marathons plus scorching heat equals one more issue for Paris organizers**\
 `There is heat that makes a marathon competitive and heat that puts athletes in jeopardy. This weekend in Paris is closer to the latter.`\
 https://nytimes.com/athletic/5690894/2024/08/09/olympics-marathon-paris-heat-weather/
