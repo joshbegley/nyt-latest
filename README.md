@@ -1,6 +1,6 @@
 **Chi Chi Rodriguez, the Golf World’s Swashbuckling Champion, Dies at 88**\
 `He won eight PGA Tour tournaments and two senior majors — but it was his flair on the greens that made him one of the sport’s most popular players.`\
-https://nytimes.com/2024/08/08/sports/chi-chi-rodriguez-dead.html
+https://nytimes.com/2024/08/08/sports/golf/chi-chi-rodriguez-dead.html
 
 **What kind of season is Pete Alonso having?**\
 `Alonso hit two home runs at Coors Field on Thursday that combined to travel 925 feet.`\
