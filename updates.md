@@ -1,3 +1,7 @@
+**New Footage From the Trump Assassination Attempt Shows a Frantic Police Effort to Reach the Gunman**\
+`Bodycam videos and other footage provide new insights into the law enforcement response and presence at the building where the shooter was positioned.`\
+https://nytimes.com/2024/08/08/us/politics/trump-rally-shooting-bodycam-footage.html
+
 **Chi Chi Rodriguez, the Golf World’s Swashbuckling Champion, Dies at 88**\
 `He won eight PGA Tour tournaments and two senior majors — but it was his flair on the greens that made him one of the sport’s most popular players.`\
 https://nytimes.com/2024/08/08/sports/golf/chi-chi-rodriguez-dead.html
