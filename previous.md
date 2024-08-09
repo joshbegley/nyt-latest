@@ -1,3 +1,7 @@
+**Wrexham break transfer record to sign Rathbone from Rotherham**\
+`Wrexham have broken their record transfer fee to sign Rotherham United midfielder Ollie Rathbone.`\
+https://nytimes.com/athletic/5691591/2024/08/09/wrexham-break-transfer-record-to-sign-ollie-rathbone-from-rotherham/
+
 **The Perseids Meteor Shower Is Peaking. Here’s How to Watch.**\
 `Warm summer nights and swift colorful streaks make this meteor shower a crowd favorite, but this year, observers may have to compete with light from the moon.`\
 https://nytimes.com/2024/08/09/science/perseids-meteor-shower-how-to-watch.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5691415/2024/08/09/breakdancer-manizha-talash-cape-
 **Trump’s Tax Plan Could Add Trillions in Debt. Harris’s Is a Mystery.**\
 `The former president’s proposals to cut taxes would lose far more revenue than his plans to raise tariffs. The vice president has not addressed fiscal policy in detail.`\
 https://nytimes.com/2024/08/09/business/trump-harris-taxes-economy.html
-
-**The Windup: The White Sox’s fitting interim hire**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5691521/2024/08/09/chicago-white-sox-new-manager-the-windup/
 

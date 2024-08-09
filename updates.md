@@ -1,3 +1,7 @@
+**Wrexham break transfer record to sign Rathbone from Rotherham**\
+`Wrexham have broken their record transfer fee to sign Rotherham United midfielder Ollie Rathbone.`\
+https://nytimes.com/athletic/5691591/2024/08/09/wrexham-break-transfer-record-to-sign-ollie-rathbone-from-rotherham/
+
 **The Perseids Meteor Shower Is Peaking. Here’s How to Watch.**\
 `Warm summer nights and swift colorful streaks make this meteor shower a crowd favorite, but this year, observers may have to compete with light from the moon.`\
 https://nytimes.com/2024/08/09/science/perseids-meteor-shower-how-to-watch.html
