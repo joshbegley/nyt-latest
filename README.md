@@ -1,3 +1,7 @@
+**Richardson, U.S. women win gold in 4x100 relay**\
+`SAINT-DENIS, France — Sha’Carri Richardson took the baton and ran like track owed her a gold medal.`\
+https://nytimes.com/athletic/5691711/2024/08/09/womens-4x100-relay-results-usa/
+
 **Shawn Mendes Returns Full of Questions, and 8 More New Songs**\
 `Hear tracks by Leon Bridges, Ravyn Lenae, Kelsea Ballerini and others.`\
 https://nytimes.com/2024/08/09/arts/music/playlist-shawn-mendes-kelsea-ballerini.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5691529/2024/08/09/emerson-royal-milan-tottenham-tr
 **Harris Skipped Over a Pennsylvania Star. Will It Matter in November?**\
 `Gov. Josh Shapiro won’t be on the Democratic ticket, and nor, for that matter, will the Scranton-born President Biden. But party officials in the battleground state are cautiously hopeful.`\
 https://nytimes.com/2024/08/09/us/politics/harris-shapiro-pennsylvania.html
-
-**Live Q&A: Talking baseball with Eno Sarris on Friday 8/9 at 1:30 p.m. ET**\
-`Submit your questions for Eno Sarris' live Q&A, exclusively for subscribers.`\
-https://nytimes.com/athletic/5690345/2024/08/09/eno-sarris-live-chat-mlb-fantasy-baseball-8-9/
 
