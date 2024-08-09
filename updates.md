@@ -1,3 +1,7 @@
+**Imane Khelif wins Olympic boxing gold medal, ending trying Games with triumph**\
+`The fight marked the end of a long, emotional Olympic saga for Khelif, who won Algeria's seventh gold medal all time.`\
+https://nytimes.com/athletic/5691920/2024/08/09/imane-khelif-olympics-boxing-gold-medal-yang-liu/
+
 **Sifan Hassan earns bronze medal in 10,000m**\
 `She will run a marathon Sunday and attempt to become the first person to medal in the 5,000, 10,000 and marathon since 1952.`\
 https://nytimes.com/athletic/5691958/2024/08/09/sifan-hassan-bronze-olympics-netherlands/
