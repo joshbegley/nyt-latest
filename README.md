@@ -1,3 +1,11 @@
+**The Pulse: Unforgettable Olympic hoops moment**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5690476/2024/08/09/lebron-james-steph-curry-kevin-durant-olympics-serbia-the-pulse/
+
+**Weird & Wild MLB History Watch: Celebrating Judge, Schwarber, Witt Jr. and more**\
+`The Weird & Wild History Watch Dept. delves into the rare air occupied by Judge, Schwarber, Witt, Elly De La Cruz and Shohei Ohtani. `\
+https://nytimes.com/athletic/5690998/2024/08/09/mlb-history-aaron-judge-kyle-schwarber-bobby-witt-jr/
+
 **Appeals Court Orders License Restored to Philippine News Site Rappler**\
 `The case, brought after Rappler was singled out by former President Rodrigo Duterte, was one of many facing the outlet and its co-founder, the Nobel laureate Maria Ressa.`\
 https://nytimes.com/2024/08/09/world/asia/philippines-rappler-maria-ressa.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5689735/2024/08/09/chicago-bears-roster-projection-
 **Cubs mailbag: Jed Hoyer on the hot seat, blocked prospects and Cody Bellinger's opt-out**\
 `We also answered your questions on whether the Cubs will go over the luxury tax next season and what they can do to improve their offense.`\
 https://nytimes.com/athletic/5690039/2024/08/09/cubs-jed-hoyer-hot-seat/
-
-**As preseason opener nears, Mike Hall Jr. finally gets to bring his bark to hometown Browns**\
-`"First time suiting up in that locker room, putting those pads on, it's special," the Cleveland native and second-round rookie said. `\
-https://nytimes.com/athletic/5687494/2024/08/09/browns-rookie-mike-hall-jr/
-
-**Ten players to watch as Ravens head into first preseason game vs. Eagles**\
-`Will players on the perceived “bubble” help or hurt their stocks? And who from the rookie class looks ready to contribute immediately?`\
-https://nytimes.com/athletic/5689306/2024/08/09/ravens-players-eagles-preseason/
 
