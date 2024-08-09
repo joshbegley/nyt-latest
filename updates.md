@@ -1,3 +1,7 @@
+**'He can play everywhere:' Versatile football past fuels Broncos rookie Kris Abrams-Draine**\
+`As a high school senior, Abrams-Draine was thrown into the QB position for the first time — and nearly led his team to a state title.`\
+https://nytimes.com/athletic/5690031/2024/08/09/broncos-kris-abrams-draine-rookie/
+
 **The Athletic’s Friday football quiz question #16**\
 `The Athletic's weekly conundrum from the trivia vaults`\
 https://nytimes.com/athletic/5689135/2024/08/09/the-athletics-friday-football-quiz-question-16/
