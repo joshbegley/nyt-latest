@@ -1,3 +1,15 @@
+**O'Neil signs new Wolves contract**\
+`Wolves manager Gary O’Neil has committed his future to the club by signing a new four-year deal.`\
+https://nytimes.com/athletic/5691666/2024/08/09/gary-oneil-wolves-contract/
+
+**AC Milan agree deal with Tottenham for Emerson Royal signing**\
+`AC Milan have agreed a deal with Tottenham Hotspur for the signing of defender Emerson Royal.`\
+https://nytimes.com/athletic/5691529/2024/08/09/emerson-royal-milan-tottenham-transfer/
+
+**Harris Skipped Over a Pennsylvania Star. Will It Matter in November?**\
+`Gov. Josh Shapiro won’t be on the Democratic ticket, and nor, for that matter, will the Scranton-born President Biden. But party officials in the battleground state are cautiously hopeful.`\
+https://nytimes.com/2024/08/09/us/politics/harris-shapiro-pennsylvania.html
+
 **Live Q&A: Talking baseball with Eno Sarris on Friday 8/9 at 1:30 p.m. ET**\
 `Submit your questions for Eno Sarris' live Q&A, exclusively for subscribers.`\
 https://nytimes.com/athletic/5690345/2024/08/09/eno-sarris-live-chat-mlb-fantasy-baseball-8-9/
