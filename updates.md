@@ -1,3 +1,11 @@
+**For Years, He Demanded to See the Video. Finally, It Set Him Free.**\
+`At his murder trial, Arvel Marshall pressed prosecutors to turn over surveillance footage of the crime scene. He knew it would show the truth.`\
+https://nytimes.com/2024/08/09/nyregion/arvell-marshall-surveillance-video-exoneration.html
+
+**The Australian Professor Who Turned Breaking on Its Head**\
+`Rachael Gunn, known as B-girl Raygun, displayed some … unique moves as she competed in a field with breakers half her age. The judges and the internet were underwhelmed.`\
+https://nytimes.com/2024/08/09/world/olympics/olympics-breaking-raygun.html
+
 **Childhood Vaccines Aren’t Just Saving Lives. They’re Saving Money.**\
 `Over the past three decades, routine immunizations have prevented 1.1 million deaths and saved the United States $540 billion, the C.D.C. estimated.`\
 https://nytimes.com/2024/08/09/health/childhood-vaccines.html
