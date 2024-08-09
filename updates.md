@@ -1,3 +1,11 @@
+**Hours after dramatic win, KD delivers another comeback — online**\
+`Kevin Durant made time for trash talk in the wee hours of the morning after Team USA's win over Serbia.`\
+https://nytimes.com/athletic/5691381/2024/08/09/kevin-durant-twitter-team-usa-serbia-olympics/
+
+**Injera Is the Soul of Ethiopian Cuisine**\
+`Injera takes days to prepare, but this quick recipe streamlines the process.`\
+https://nytimes.com/2024/08/09/dining/how-to-make-injera.html
+
 **9 Sexy Moments at the Paris Olympics**\
 `The Summer Games are known for athletic excellence, but they provide plenty of aesthetic excellence along the way.`\
 https://nytimes.com/2024/08/09/style/olympics-sexy-moments.html
