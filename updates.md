@@ -1,3 +1,7 @@
+**Leicester working on deal to sign Zaha on loan from Galatasaray**\
+`Leicester are working on a deal to sign winger Wilfried Zaha from Galatasaray on a season-long loan.`\
+https://nytimes.com/athletic/5691926/2024/08/09/leicester-wilfried-zaha-loan-tranfer-close/
+
 **Former Twitter Board Member Sues Elon Musk’s X For $20 Million in Pay**\
 `After purchasing Twitter, Mr. Musk failed to cash out Omid Kordestani’s stock, according to allegations in a new lawsuit.`\
 https://nytimes.com/2024/08/09/technology/elon-musk-x-twitter-board-lawsuit.html

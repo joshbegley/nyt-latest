@@ -1,3 +1,7 @@
+**Leicester working on deal to sign Zaha on loan from Galatasaray**\
+`Leicester are working on a deal to sign winger Wilfried Zaha from Galatasaray on a season-long loan.`\
+https://nytimes.com/athletic/5691926/2024/08/09/leicester-wilfried-zaha-loan-tranfer-close/
+
 **Former Twitter Board Member Sues Elon Musk’s X For $20 Million in Pay**\
 `After purchasing Twitter, Mr. Musk failed to cash out Omid Kordestani’s stock, according to allegations in a new lawsuit.`\
 https://nytimes.com/2024/08/09/technology/elon-musk-x-twitter-board-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/09/world/olympics/olympics-breaking-raygun.html
 **Childhood Vaccines Aren’t Just Saving Lives. They’re Saving Money.**\
 `Over the past three decades, routine immunizations have prevented 1.1 million deaths and saved the United States $540 billion, the C.D.C. estimated.`\
 https://nytimes.com/2024/08/09/health/childhood-vaccines.html
-
-**Smartmatic Executives Charged With Bribery of Philippine Official**\
-`The Justice Department said the executives from the voting technology company had funneled at least $1 million to obtain a contract to provide voting machines in the 2016 Philippine elections.`\
-https://nytimes.com/2024/08/09/business/media/smartmatic-bribery-philippines-elections.html
 
