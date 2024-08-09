@@ -1,3 +1,7 @@
+**Ukraine gymnast delivers stunning hoop routine after fleeing home**\
+`Ukrainian rhythmic gymnastics coach Iryna Blokhina said the team didn't know if it'd survive Russia's attacks on Ukraine.`\
+https://nytimes.com/athletic/5691760/2024/08/09/taisiia-onofriichuk-rhythmic-gymnastics-olymics-ukraine/
+
 **In Nagasaki, Keeping the Memory of Nuclear War Alive**\
 `The city should be remembered not as one of the first cities to suffer devastation from the wartime use of a nuclear weapon, but as the last.`\
 https://nytimes.com/live/2024/08/07/opinion/thepoint/nagasaki-nuclear-bomb
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/09/business/cash-app-settlement.html
 **Spain win gold in Olympic men’s soccer after beating France 5-3 in final**\
 `Spain came from behind with three goals in 10 first-half minutes then survived a late France fightback and extra time to seal their summer of international football glory with Olympic gold.`\
 https://nytimes.com/athletic/5691736/2024/08/09/spain-france-olympic-football-final/
-
-**American wrestler Spencer Lee defeated in gold medal final**\
-`Lee stormed through the 57-kilogram division but fell just short in his quest to win the men’s wrestling freestyle gold.`\
-https://nytimes.com/athletic/5691821/2024/08/09/olympics-wrestling-spencer-lee-iowa/
 

@@ -1,3 +1,27 @@
+**In Nagasaki, Keeping the Memory of Nuclear War Alive**\
+`The city should be remembered not as one of the first cities to suffer devastation from the wartime use of a nuclear weapon, but as the last.`\
+https://nytimes.com/live/2024/08/07/opinion/thepoint/nagasaki-nuclear-bomb
+
+**Tim Walz’s Class Project on the Holocaust Draws New Attention Online**\
+`Mr. Walz, now the Democrats’ vice-presidential nominee, asked his high school students in 1993 which country was most at risk for genocide. Their prediction came to pass: Rwanda.`\
+https://nytimes.com/2024/08/09/us/politics/tim-walz-holocaust-class-rwanda-genocide.html
+
+**Think You’ve Planned for Retirement? Beware the Tax Torpedo.**\
+`The complicated way Social Security is taxed can catch middle-income earners by surprise.`\
+https://nytimes.com/2024/08/09/opinion/retirement-tax-torpedo-social-security.html
+
+**Stroke by Wobbly Stroke, Learning to Accept Imperfection**\
+`During a recent assignment, a reporter learned the basics of calligraphy — and with it, how to practice self-compassion.`\
+https://nytimes.com/2024/08/09/insider/calligraphy-popularity.html
+
+**A Trust Would Give Me Big Bucks if I Had Children. I’m Concerned.**\
+`The magazine’s Ethicist columnist on a wealthy family’s philanthropic planning.`\
+https://nytimes.com/2024/08/09/magazine/trust-grandchildren-charity-ethics.html
+
+**The Big Number: $8.4 Billion**\
+`Disney’s weaker-than-expected revenue at its theme park unit.`\
+https://nytimes.com/2024/08/09/business/the-big-number-8-4-billion-disney-earnings.html
+
 **How to Save Disney**\
 `Three ways to revitalize the House of Mouse.`\
 https://nytimes.com/2024/08/09/opinion/disney-revitalize.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5691736/2024/08/09/spain-france-olympic-football-fi
 **American wrestler Spencer Lee defeated in gold medal final**\
 `Lee stormed through the 57-kilogram division but fell just short in his quest to win the men’s wrestling freestyle gold.`\
 https://nytimes.com/athletic/5691821/2024/08/09/olympics-wrestling-spencer-lee-iowa/
-
-**Nebraska flips 4-star WR Isaiah Mozee from Oregon**\
-`LINCOLN, Neb.`\
-https://nytimes.com/athletic/5691815/2024/08/09/nebraska-cornhuskers-football-recruiting-isaiah-mozee-oregon/
-
-**Taylor Swift Fans in Vienna React After Cancellations**\
-`Taylor Swift fans described their disappointment after organizers canceled her Eras Tour dates in Vienna after Austrian authorities uncovered a terrorist plot targeting the event.`\
-https://nytimes.com/video/world/europe/100000009621182/taylor-swift-fans-react-vienna.html
-
-**Finding the ‘Olympic Spirit’ at La Villette**\
-`La Villette, a park in the north of Paris, has been transformed into Nations Park for the Olympics. Rory Smith, a global sports correspondent for The New York Times, explains how the park embodies the spirit of the Games.`\
-https://nytimes.com/video/sports/100000009616361/la-villette-nations-park-2024-paris-olympics.html
-
-**Judge Gives Trump and Prosecutors More Time to Assess Presidential Immunity**\
-`Judge Tanya Chutkan, who is overseeing the election interference case against the former president, gave both sides a few more weeks to consider a Supreme Court ruling’s impact on the case.`\
-https://nytimes.com/2024/08/09/us/politics/trump-election-case-supreme-court.html
-
-**U.S. men doomed by baton pass as Canada wins gold in men's 4x100 relay**\
-`After review, the United States was disqualified, as the first exchange occurred outside the exchange zone.`\
-https://nytimes.com/athletic/5691743/2024/08/09/olympics-mens-4x100-relay-results/
-
-**Should Soccer Make Space for Other Sports?**\
-`The saturation of soccer can be suffocating for the rest of the athletic landscape.`\
-https://nytimes.com/2024/08/09/world/europe/soccer-olympics-television-saturation.html
 
