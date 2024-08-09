@@ -1,3 +1,7 @@
+**Struggling Braves swept as a 16-7 loss drops them to fourth in wild-card race**\
+`Braves starters have lasted fewer than five innings in all five games during their losing streak.`\
+https://nytimes.com/athletic/5690338/2024/08/08/braves-wild-card-charlie-morton/
+
 **That Time Trump Nearly Died in a Helicopter Crash? Didn’t Happen**\
 `In a news conference, the former president recounted a brush with death alongside Willie Brown, the former San Francisco mayor. A few aspects of the story don’t hold up to scrutiny.`\
 https://nytimes.com/2024/08/08/us/politics/trump-helicopter-willie-brown.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/08/opinion/tim-walz-school-lunch.html
 **House Republicans Pivot Scrutiny From Biden to Harris**\
 `Three months ahead of the election, congressional Republicans are moving to close a strategic gap.`\
 https://nytimes.com/2024/08/08/us/politics/harris-house-republicans-investigations.html
-
-**Rikers Inmates Are Routinely Denied Medical Care, Court Filing Says**\
-`The Legal Aid Society and Brooklyn Defender Services asked a judge to hold New York City’s Department of Correction in contempt of court.`\
-https://nytimes.com/2024/08/08/nyregion/rikers-inmates-health-care.html
 
