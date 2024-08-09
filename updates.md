@@ -1,5 +1,13 @@
 **Chi Chi Rodriguez, the Golf World’s Swashbuckling Champion, Dies at 88**\
 `He won eight PGA Tour tournaments and two senior majors — but it was his flair on the greens that made him one of the sport’s most popular players.`\
+https://nytimes.com/2024/08/08/sports/golf/chi-chi-rodriguez-dead.html
+
+**Grant Holloway puts his cards on the table after winning gold, clearing big resume hurdle**\
+`“I'm in an event that I truly do love, but I don't see myself switching,” he said. “I don't see myself going somewhere else."`\
+https://nytimes.com/athletic/5690514/2024/08/08/grant-holloway-hurdles-gold-medal-speaks-out/
+
+**Chi Chi Rodriguez, the Golf World’s Swashbuckling Champion, Dies at 88**\
+`He won eight PGA Tour tournaments and two senior majors — but it was his flair on the greens that made him one of the sport’s most popular players.`\
 https://nytimes.com/2024/08/08/sports/chi-chi-rodriguez-dead.html
 
 **What kind of season is Pete Alonso having?**\
