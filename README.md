@@ -10,6 +10,10 @@ https://nytimes.com/athletic/5689939/2024/08/09/dodgers-jack-flaherty-home-debut
 `Antonio Pierce is planning on the Raiders' full roster suiting up for each preseason game. So what should we be looking for in Minnesota?`\
 https://nytimes.com/athletic/5686971/2024/08/09/raiders-vikings-preseason-preview/
 
+**'He can play everywhere:' Versatile football past fuels Broncos rookie Kris Abrams-Draine**\
+`As a high school senior, Abrams-Draine was thrown into the QB position for the first time — and nearly led his team to a state title.`\
+https://nytimes.com/athletic/5690031/2024/08/09/broncos-kris-abrams-draine-rookie/
+
 **Keep calm and protect the play sheet: Takeaways from Brian Daboll's 2024 debut as play caller**\
 `The Giants coach was pleased Thursday night with the operation in his first dress rehearsal as a play-calling head coach for an entire game.`\
 https://nytimes.com/athletic/5690775/2024/08/09/new-york-giants-brian-daboll-play-caller-preseason-lions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5690998/2024/08/09/mlb-history-aaron-judge-kyle-sch
 **Appeals Court Orders License Restored to Philippine News Site Rappler**\
 `The case, brought after Rappler was singled out by former President Rodrigo Duterte, was one of many facing the outlet and its co-founder, the Nobel laureate Maria Ressa.`\
 https://nytimes.com/2024/08/09/world/asia/philippines-rappler-maria-ressa.html
-
-**Numbers and plays that defined Team USA's rally, and how France matches up**\
-`The outlines of a potential upset were there against Serbia. In the end, it didn't matter for the Americans.`\
-https://nytimes.com/athletic/5690747/2024/08/09/team-usa-serbia-olympics-statistics-france-gold-medal/
 
