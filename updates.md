@@ -1,3 +1,7 @@
+**Aston Villa reject opening offer from Fulham for Carlos**\
+`Aston Villa have rejected an opening offer from Fulham for defender Diego Carlos.`\
+https://nytimes.com/athletic/5676237/2024/08/09/diego-carlos-fulham-aston-villa/
+
 **The Reason Trump and Vance Really Hate Being Called ‘Weird’**\
 `It reminds voters how far out of the mainstream Republicans have gotten.`\
 https://nytimes.com/2024/08/09/opinion/trump-vance-harris-walz-weird.html
