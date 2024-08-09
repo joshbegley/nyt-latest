@@ -1,3 +1,7 @@
+**What kind of season is Pete Alonso having?**\
+`Alonso hit two home runs at Coors Field on Thursday that combined to travel 925 feet.`\
+https://nytimes.com/athletic/5690625/2024/08/08/mets-pete-alonso/
+
 **Grant Holloway's just fine with his place in track and field after first-place run for gold**\
 `“I'm in an event that I truly do love, but I don't see myself switching,” he said. “I don't see myself going somewhere else."`\
 https://nytimes.com/athletic/5690514/2024/08/08/grant-holloway-hurdles-gold-medal-speaks-out/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5690338/2024/08/08/braves-wild-card-charlie-morton/
 **That Time Trump Nearly Died in a Helicopter Crash? Didn’t Happen.**\
 `In a news conference, the former president recounted a brush with death alongside Willie Brown, the former San Francisco mayor. A few aspects of the story don’t hold up to scrutiny.`\
 https://nytimes.com/2024/08/08/us/politics/trump-helicopter-willie-brown.html
-
-**Donald Trump Can’t Get Over What Happened to President Biden**\
-`At a news conference in Florida on, Mr. Trump said “the presidency was taken away from Joe Biden” by a cabal of Democrats including Barack Obama, Nancy Pelosi and Kamala Harris.`\
-https://nytimes.com/2024/08/08/us/politics/trump-biden-press-conference.html
 

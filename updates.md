@@ -1,3 +1,7 @@
+**What kind of season is Pete Alonso having?**\
+`Alonso hit two home runs at Coors Field on Thursday that combined to travel 925 feet.`\
+https://nytimes.com/athletic/5690625/2024/08/08/mets-pete-alonso/
+
 **Grant Holloway's just fine with his place in track and field after first-place run for gold**\
 `“I'm in an event that I truly do love, but I don't see myself switching,” he said. “I don't see myself going somewhere else."`\
 https://nytimes.com/athletic/5690514/2024/08/08/grant-holloway-hurdles-gold-medal-speaks-out/
