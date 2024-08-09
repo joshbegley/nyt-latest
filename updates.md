@@ -1,3 +1,7 @@
+**Entry Fee for Some Clubs**\
+`Hemant Mehta opens our solving weekend with one of the crunchiest crosswords in recent memory.`\
+https://nytimes.com/2024/08/08/crosswords/daily-puzzle-2024-08-09.html
+
 **Rams' Jared Verse, Kam Kinchens showed up well in joint practice with Cowboys**\
 `Rams rookie Jared Verse catches Dak Prescott's attention during joint practice. "Very talented," the Cowboys' QB said.`\
 https://nytimes.com/athletic/5690359/2024/08/08/la-rams-practice-defense-cowboys/

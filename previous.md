@@ -1,3 +1,7 @@
+**Entry Fee for Some Clubs**\
+`Hemant Mehta opens our solving weekend with one of the crunchiest crosswords in recent memory.`\
+https://nytimes.com/2024/08/08/crosswords/daily-puzzle-2024-08-09.html
+
 **Rams' Jared Verse, Kam Kinchens showed up well in joint practice with Cowboys**\
 `Rams rookie Jared Verse catches Dak Prescott's attention during joint practice. "Very talented," the Cowboys' QB said.`\
 https://nytimes.com/athletic/5690359/2024/08/08/la-rams-practice-defense-cowboys/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/08/us/politics/trump-biden-press-conference.html
 **Israel and Norway’s diplomatic clash over Palestinian statehood deepens.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/08/08/world/israel-iran-hamas-gaza-war/israel-norway-palestinian-statehood
-
-**Samsung Recalls 1 Million Stoves That Started 250 Fires and Killed Pets**\
-`Thirty models of Samsung stoves were part of the recall over fires started by accidental contact.`\
-https://nytimes.com/2024/08/08/business/samsung-recalls-electric-stoves.html
 
