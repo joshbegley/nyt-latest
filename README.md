@@ -1,3 +1,7 @@
+**Harris Fights Uphill Against Trump in Arizona, Backed by a Revived Party**\
+`The battleground state, where Kamala Harris will rally on Friday, has drifted toward Donald Trump since he lost it in 2020. Democrats hope her momentum could turn their fortunes around there.`\
+https://nytimes.com/2024/08/09/us/politics/kamala-harris-arizona.html
+
 **Man Utd Women sign Canada midfielder Awujo**\
 `Manchester United Women have completed the signing of Canada midfielder Simi Awujo.`\
 https://nytimes.com/athletic/5691511/2024/08/09/simi-awujo-manchester-united-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/09/well/massage-robot.html
 **Our Five-Star Tomato Tart**\
 `If your tomatoes aren’t perfect, so much the better — a quick blast in the oven and some dollops of ricotta and pesto make them shine.`\
 https://nytimes.com/2024/08/09/dining/our-five-star-tomato-tart.html
-
-**Five Action Movies to Stream Now**\
-`This month’s picks include anarchists, hostage crises and sweaty M.M.A. fighters.`\
-https://nytimes.com/2024/08/09/movies/action-movies-streaming.html
 
