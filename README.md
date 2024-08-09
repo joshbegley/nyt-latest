@@ -1,3 +1,7 @@
+**Trump Says He Wants to Cut Taxes. Harris’s Plan Mirrors Biden’s.**\
+`Also, Russia is scrambling to halt Ukraine’s surprise offensive. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/08/09/briefing/trump-harris-tax-plans-ukraine-russia-offensive.html
+
 **Man City could still be active in transfer market – Guardiola**\
 `Pep Guardiola has suggested that Manchester City could make another signing this summer following the impending departure of Julian Alvarez to Atletico Madrid while confirming that Ederson will stay with the club this season.`\
 https://nytimes.com/athletic/5691544/2024/08/09/man-city-transfer-news-alvarez/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/09/books/booksupdate/iowa-book-ban-books.html
 **Fact-Checking Claims About Tim Walz’s Record**\
 `Republicans have leveled inaccurate or misleading attacks on Mr. Walz’s response to protests in the summer of 2020, his positions on immigration and his role in the redesign of Minnesota’s flag.`\
 https://nytimes.com/2024/08/09/us/politics/fact-checking-claims-about-tim-walzs-record.html
-
-**How to Watch Biden’s Interview on CBS**\
-`The president spoke with Robert Costa in his first interview since ending his re-election campaign. The discussion will air on “CBS Sunday Morning” at 9 a.m. Eastern time.`\
-https://nytimes.com/2024/08/09/us/politics/how-to-watch-biden-interview-cbs.html
 
