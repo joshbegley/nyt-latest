@@ -1,3 +1,7 @@
+**Special report: 'Disturbing' safety issues at Hillsborough 35 years after disaster**\
+`An investigation into safety issues at Hillsborough reveals significant concerns over the Leppings Lane end that still houses away supporter`\
+https://nytimes.com/athletic/5687056/2024/08/09/hillsborough-disturbing-safety-issues/
+
 **Word of the Day: cuneiform**\
 `This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/09/learning/word-of-the-day-cuneiform.html
