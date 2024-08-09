@@ -1,3 +1,11 @@
+**Five players to watch in 49ers' preseason opener, from Dee Winters to Cody Schrader**\
+`The 49ers won't play most of their starters against the Titans, but there should be plenty of interesting evaluation opportunities.`\
+https://nytimes.com/athletic/5689834/2024/08/09/49ers-preseason-titans-players-to-watch/
+
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/08/09/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
 **How the red-hot Padres cultivated the most contact-prone offense in baseball**\
 `“If you put the ball in play, you have a better chance to do something,” said Victor Rodriguez, the team's lead hitting coach.`\
 https://nytimes.com/athletic/5690648/2024/08/09/padres-contact-prone-offense/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5686971/2024/08/09/raiders-vikings-preseason-previe
 **Jack Flaherty went to Dodger Stadium as a baby, now he'll start for home team**\
 `Flaherty's mother, who took him to Dodger Stadium as a kid, says, "I’ll want to just break down and cry about the joy of all of it."`\
 https://nytimes.com/athletic/5689939/2024/08/09/dodgers-jack-flaherty-home-debut/
-
-**'He can play everywhere:' Versatile football past fuels Broncos rookie Kris Abrams-Draine**\
-`As a high school senior, Abrams-Draine was thrown into the QB position for the first time — and nearly led his team to a state title.`\
-https://nytimes.com/athletic/5690031/2024/08/09/broncos-kris-abrams-draine-rookie/
-
-**Keep calm and protect the play sheet: Takeaways from Brian Daboll's 2024 debut as play caller**\
-`The Giants coach was pleased Thursday night with the operation in his first dress rehearsal as a play-calling head coach for an entire game.`\
-https://nytimes.com/athletic/5690775/2024/08/09/new-york-giants-brian-daboll-play-caller-preseason-lions/
 
