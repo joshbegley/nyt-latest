@@ -1,3 +1,7 @@
+**Carles Puigdemont Flees Spain Again After Rally, His Lawyer Says**\
+`The Catalan separatist leader, who has been living in self-imposed exile since spearheading an illegal referendum on independence in 2017, vanished almost as quickly as he had surfaced this week.`\
+https://nytimes.com/2024/08/09/world/europe/carles-puigdemont-flees-spain-again-after-rally-his-lawyer-says.html
+
 **Aston Villa reject opening offer from Fulham for Carlos**\
 `Aston Villa have rejected an opening offer from Fulham for defender Diego Carlos.`\
 https://nytimes.com/athletic/5676237/2024/08/09/diego-carlos-fulham-aston-villa/
