@@ -1,6 +1,6 @@
 **Chelsea and USMNT goalkeeper Slonina joins Barnsley on loan**\
 `Chelsea goalkeeper Gabriel Slonina has joined League One side Barnsley on a season-long loan.`\
-https://nytimes.com/athletic/5691988/2024/08/09/chelsea-and-usmnt-goalkeeper-gabriel-slonina-joins-barnsley-on-loan/
+https://nytimes.com/athletic/5691988/2024/08/09/chelsea-umsnt-slonina-barnsley-loan-transfer/
 
 **Learn to Make the Best Roasted Eggplant of Your Life**\
 `This summer staple has a reputation of being bitter, seedy, even greasy at times, but a few small considerations can make it excellent.`\
