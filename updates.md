@@ -1,3 +1,7 @@
+**Childhood Vaccines Aren’t Just Saving Lives. They’re Saving Money.**\
+`Over the past three decades, routine immunizations have prevented 1.1 million deaths and saved the United States $540 billion, the C.D.C. estimated.`\
+https://nytimes.com/2024/08/09/health/childhood-vaccines.html
+
 **Smartmatic Executives Charged With Bribery of Philippine Official**\
 `The Justice Department said the executives from the voting technology company had funneled at least $1 million to obtain a contract to provide voting machines in the 2016 Philippine elections.`\
 https://nytimes.com/2024/08/09/business/media/smartmatic-bribery-philippines-elections.html
