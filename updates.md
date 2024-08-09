@@ -1,3 +1,7 @@
+**Mísia, Who Brought a Modern Flair to Fado Music, Dies at 69**\
+`With her smoky voice and her high-fashion look, the self-proclaimed “punk of fado” found stardom by shaking up a venerable Portuguese genre.`\
+https://nytimes.com/2024/08/09/arts/music/misia-dead.html
+
 **For Years, He Demanded to See the Video. Finally, It Set Him Free.**\
 `At his murder trial, Arvel Marshall pressed prosecutors to turn over surveillance footage of the crime scene. He knew it would show the truth.`\
 https://nytimes.com/2024/08/09/nyregion/arvell-marshall-surveillance-video-exoneration.html
