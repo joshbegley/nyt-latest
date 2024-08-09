@@ -1,3 +1,7 @@
+**Trump Claims He Has Helicopter Trip Records and Threatens to Sue**\
+`Former President Donald J. Trump insisted that he was in a dangerous helicopter landing, though the man he said he was with said it never happened.`\
+https://nytimes.com/2024/08/09/us/politics/trump-helicopter-landing.html
+
 **Sheriff in Illinois Will Resign Amid Backlash Over Fatal Shooting by Deputy**\
 `Jack Campbell, the sheriff of Sangamon County, was criticized for hiring the deputy, who has now been charged with murdering Sonya Massey in her home last month.`\
 https://nytimes.com/2024/08/09/us/sonya-massey-jack-campbell-resigns.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/09/world/olympics/imane-khelif-boxing.html
 **Stellantis Will Lay Off Up to 2,450 at Michigan Truck Plant**\
 `The move is the latest sign of trouble for the trans-Atlantic automaker, which has had sluggish North American sales and has said it needs to cut costs.`\
 https://nytimes.com/2024/08/09/business/stellantis-layoffs-ram-truck-warren.html
-
-**Can You Be Emotionally Reliant on an A.I. Voice? OpenAI Says Yes.**\
-`A report acknowledged that users of GPT-4o forms unusual bonds with the software’s voice response feature, which the company says warrants further study.`\
-https://nytimes.com/2024/08/09/style/openai-chatgpt-voice.html
 
