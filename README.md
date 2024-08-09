@@ -1,3 +1,7 @@
+**Giants endure a soaking, and Hurricane Camilo, to win in Washington and edge above .500**\
+`They were interrupted by rain delays and three blown leads, but the Giants ended the day with a winning record for the first time since May.`\
+https://nytimes.com/athletic/5690437/2024/08/08/sf-giants-rain-delays-camilo-doval/
+
 **Kamala Harris Isn’t Giving Interviews. Any Questions?**\
 `Critics say the vice president has been too cautious with the press. Her supporters think it’s the right strategy at the right time.`\
 https://nytimes.com/2024/08/08/business/media/kamala-harris-press-interviews.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/08/world/middleeast/israel-prepare-iran-attack.html
 **Team USA, with Olympic hopes teetering, turned to an unlikely place — defense**\
 `"I think that we just upped the pressure," Kevin Durant said. "We made them turn the ball over. And we contested their shots."`\
 https://nytimes.com/athletic/5690134/2024/08/08/us-mens-basketball-olympics-defense-serbia/
-
-**A.C.L.U. Must Reinstate Employee Falsely Accused of Racist Language, Court Rules**\
-`The case put the legal group on the spot for taking positions on free speech and workers’ rights that seemed at odds with its mission.`\
-https://nytimes.com/2024/08/08/us/politics/aclu-employee-racism-false-accusation.html
 
