@@ -1,3 +1,7 @@
+**The Windup: The White Sox’s fitting interim hire**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5691521/2024/08/09/chicago-white-sox-new-manager-the-windup/
+
 **Travis Scott Is Accused of Assaulting a Security Guard in Paris**\
 `The rapper, who was in France for the Olympics, was taken into police custody at the George V hotel, the Paris prosecutor’s office said.`\
 https://nytimes.com/2024/08/09/arts/music/travis-scott-paris-assault.html
