@@ -1,3 +1,7 @@
+**U.S. men doomed by baton pass as Canada wins gold in men's 4x100 relay**\
+`After review, the United States was disqualified, as the first exchange occurred outside the exchange zone.`\
+https://nytimes.com/athletic/5691743/2024/08/09/olympics-mens-4x100-relay-results/
+
 **Judge Gives Trump and Prosecutors More Time to Assess Presidential Immunity**\
 `Judge Tanya Chutkan, who is overseeing the election interference case against the former president, gave both sides a few more weeks to consider a Supreme Court ruling’s impact on the case.`\
 https://nytimes.com/2024/08/09/us/politics/trump-election-case-supreme-court.html
