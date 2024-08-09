@@ -1,3 +1,7 @@
+**The Big Number: $8.4 Billion**\
+`Disney’s weaker-than-expected revenue at its theme park unit.`\
+https://nytimes.com/2024/08/09/business/the-big-number-8-4-billion-disney-earnings.html
+
 **How to Save Disney**\
 `Three ways to revitalize the House of Mouse.`\
 https://nytimes.com/2024/08/09/opinion/disney-revitalize.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/09/us/politics/trump-election-case-supreme-court.htm
 **U.S. men doomed by baton pass as Canada wins gold in men's 4x100 relay**\
 `After review, the United States was disqualified, as the first exchange occurred outside the exchange zone.`\
 https://nytimes.com/athletic/5691743/2024/08/09/olympics-mens-4x100-relay-results/
-
-**Should Soccer Make Space for Other Sports?**\
-`The saturation of soccer can be suffocating for the rest of the athletic landscape.`\
-https://nytimes.com/2024/08/09/world/europe/soccer-olympics-television-saturation.html
 

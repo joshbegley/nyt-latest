@@ -1,3 +1,19 @@
+**How to Save Disney**\
+`Three ways to revitalize the House of Mouse.`\
+https://nytimes.com/2024/08/09/opinion/disney-revitalize.html
+
+**Cash App Users May Claim Up to $2,500 in Data Breach Settlement**\
+`A proposed $15 million settlement stipulates that account holders can file for losses related to breaches disclosed in 2022 and 2023. A deadline looms for those claims.`\
+https://nytimes.com/2024/08/09/business/cash-app-settlement.html
+
+**Spain win gold in Olympic men’s football after beating France 5-3 in final**\
+`Spain came from behind with three goals in 10 first-half minutes then survived a late France fightback and extra time to seal their summer of international football glory with Olympic gold in the highest-scoring men&#8217;s soccer gold medal match since 1912.`\
+https://nytimes.com/athletic/5691736/2024/08/09/spain-france-olympic-football-final/
+
+**American wrestler Spencer Lee defeated in gold medal final**\
+`Lee stormed through the 57-kilogram division but fell just short in his quest to win the men’s wrestling freestyle gold.`\
+https://nytimes.com/athletic/5691821/2024/08/09/olympics-wrestling-spencer-lee-iowa/
+
 **Nebraska flips 4-star WR Isaiah Mozee from Oregon**\
 `LINCOLN, Neb.`\
 https://nytimes.com/athletic/5691815/2024/08/09/nebraska-cornhuskers-football-recruiting-isaiah-mozee-oregon/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5691743/2024/08/09/olympics-mens-4x100-relay-result
 **Should Soccer Make Space for Other Sports?**\
 `The saturation of soccer can be suffocating for the rest of the athletic landscape.`\
 https://nytimes.com/2024/08/09/world/europe/soccer-olympics-television-saturation.html
-
-**A Musical Tour of Tim Walz’s Minnesota**\
-`The state is a hotbed of corrosive underground rock, birthplace of two acclaimed icons, home to a lively hip-hop scene and a bedrock of ’80s pop and funk.`\
-https://nytimes.com/2024/08/09/arts/music/amplifier-newsletter-minnesota-music.html
-
-**Plane Carrying 62 People Crashes in Brazil**\
-`VoePass Flight 2283 crashed outside São Paulo on Friday afternoon. The status of the passengers and crew is unknown.`\
-https://nytimes.com/2024/08/09/world/americas/brazil-plane-crash.html
-
-**Gaza cease-fire push by U.S., Qatar and Egypt faces big challenges.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/08/09/world/israel-iran-hamas-gaza-war/gaza-cease-fire-push-by-us-qatar-and-egypt-faces-big-challenges
-
-**Richardson, U.S. women win gold in 4x100 relay**\
-`Melissa Jefferson led off followed by Twanisha Terry and Gabby Thomas. `\
-https://nytimes.com/athletic/5691711/2024/08/09/womens-4x100-relay-results-usa/
 
