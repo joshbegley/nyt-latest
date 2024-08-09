@@ -1,3 +1,7 @@
+**U.S. men doomed by baton pass as Canada wins gold in men's 4x100 relay**\
+`SAINT-DENIS, France — Disqualified.`\
+https://nytimes.com/athletic/5691743/2024/08/09/olympics-mens-4x100-relay-results/
+
 **Should Soccer Make Space for Other Sports?**\
 `The saturation of soccer can be suffocating for the rest of the athletic landscape.`\
 https://nytimes.com/2024/08/09/world/europe/soccer-olympics-television-saturation.html
