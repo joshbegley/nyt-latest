@@ -1,3 +1,11 @@
+**For U.S. basketball, there's one acceptable Olympic ending — and the job's not done**\
+`Thursday's incredible comeback spared the U.S. an ignominious defeat. But they can't look past France in the gold-medal game.`\
+https://nytimes.com/athletic/5691597/2024/08/09/for-u-s-basketball-theres-one-acceptable-olympic-ending-and-the-jobs-not-done/
+
+**Team USA cruises past Australia for spot in final**\
+`Team USA asserted its dominance early and often in an 85-64 win over the Opals.`\
+https://nytimes.com/athletic/5691644/2024/08/09/team-usa-australia-olympics-basketball/
+
 **O'Neil signs new Wolves contract**\
 `Wolves manager Gary O’Neil has committed his future to the club by signing a new four-year deal.`\
 https://nytimes.com/athletic/5691666/2024/08/09/gary-oneil-wolves-contract/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5691381/2024/08/09/kevin-durant-twitter-team-usa-se
 **Injera Is the Soul of Ethiopian Cuisine**\
 `Injera takes days to prepare, but this quick recipe streamlines the process.`\
 https://nytimes.com/2024/08/09/dining/how-to-make-injera.html
-
-**9 Sexy Moments at the Paris Olympics**\
-`The Summer Games are known for athletic excellence, but they provide plenty of aesthetic excellence along the way.`\
-https://nytimes.com/2024/08/09/style/olympics-sexy-moments.html
-
-**U.S. Vies With Allies and Industry to Tighten China Tech Controls**\
-`The Biden administration must navigate the interests of U.S. companies and allied governments as it tries to close off China’s access to advanced chips`\
-https://nytimes.com/2024/08/09/business/economy/china-us-chip-semiconductors.html
 
