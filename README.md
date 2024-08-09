@@ -1,18 +1,6 @@
-**This Is a Picture of the Last Thing Seen by NASA’s Asteroid Hunter**\
-`NEOWISE, a spacecraft that studied faraway cosmic objects before shifting its focus closer to home, has reached the end of its life. But its legacy lives on.`\
-https://nytimes.com/2024/08/09/science/neowise-nasa-asteroid-hunter-last-image.html
-
-**Elon Musk to Speak to West Point Cadets**\
-`The billionaire owner of the social media platform X and Tesla’s chief executive will deliver the keynote speech at an annual event.`\
-https://nytimes.com/2024/08/09/us/politics/elon-musk-west-point.html
-
-**Jan. 6 Rioter Sentenced to 20 Years for Assaults on Police**\
-`David Dempsey received one of the stiffest sentences issued so far in the riot after attacking the police with his hands, his feet, a flagpole, crutches, pepper spray and broken pieces of furniture.`\
-https://nytimes.com/2024/08/09/us/politics/jan-6-sentence-david-dempsey.html
-
 **Chelsea and USMNT goalkeeper Slonina joins Barnsley on loan**\
 `Chelsea goalkeeper Gabriel Slonina has joined League One side Barnsley on a season-long loan.`\
-https://nytimes.com/athletic/5691988/2024/08/09/chelsea-and-usmnt-goalkeeper-gabriel-slonina-joins-barnsley-on-loan/
+https://nytimes.com/athletic/5691988/2024/08/09/chelsea-umsnt-slonina-barnsley-loan-transfer/
 
 **Learn to Make the Best Roasted Eggplant of Your Life**\
 `This summer staple has a reputation of being bitter, seedy, even greasy at times, but a few small considerations can make it excellent.`\
@@ -37,4 +25,16 @@ https://nytimes.com/athletic/5691915/2024/08/09/rai-benjamin-mens-400-hurdles-ol
 **Leicester working on deal to sign Zaha on loan from Galatasaray**\
 `Leicester are working on a deal to sign winger Wilfried Zaha from Galatasaray on a season-long loan.`\
 https://nytimes.com/athletic/5691926/2024/08/09/leicester-wilfried-zaha-loan-tranfer-close/
+
+**Former Twitter Board Member Sues Elon Musk’s X For $20 Million in Pay**\
+`After purchasing Twitter, Mr. Musk failed to cash out Omid Kordestani’s stock, according to allegations in a new lawsuit.`\
+https://nytimes.com/2024/08/09/technology/elon-musk-x-twitter-board-lawsuit.html
+
+**Workout Clothes Stink. Here’s How to Clean Them.**\
+`Hydrogen peroxide can help.`\
+https://nytimes.com/interactive/2024/08/09/smarter-living/wirecutter/clean-workout-clothes.html
+
+**Evidence Shows ‘Hand to Mouth’ Production of Russia’s Advanced Weapons**\
+`A report by independent investigators said that Russian cruise missiles were used in combat sometimes just weeks after rolling off the factory floor.`\
+https://nytimes.com/2024/08/09/us/politics/russia-weapons-ukraine-war.html
 
