@@ -1,3 +1,7 @@
+**Belarus Casts Aside Dissident Athletes, Their Talent ‘Buried’**\
+`Many elite athletes who spoke against their autocratic leader must watch on the sidelines while those who stayed quiet or showed loyalty compete in Paris.`\
+https://nytimes.com/2024/08/09/world/olympics/belarus-athletes-lukashenko.html
+
 **'He can play everywhere:' Versatile football past fuels Broncos rookie Kris Abrams-Draine**\
 `As a high school senior, Abrams-Draine was thrown into the QB position for the first time — and nearly led his team to a state title.`\
 https://nytimes.com/athletic/5690031/2024/08/09/broncos-kris-abrams-draine-rookie/
