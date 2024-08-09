@@ -1,3 +1,7 @@
+**Defense Dept. Contractor Arrested With Dozens of Classified Documents**\
+`Investigators are still trying to determine why the contractor, Gokhan Gun, who became an American citizen in 2021, hoarded so many documents.`\
+https://nytimes.com/2024/08/09/us/politics/gokhan-gun-classified-documents.html
+
 **49ers, Aiyuk have re-opened contract discussions**\
 `According to a league source, the Steelers have not heard back from the 49ers regarding trade talks in the last 24 hours.`\
 https://nytimes.com/athletic/5692057/2024/08/09/49ers-brandon-aiyuk-contract-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5691989/2024/08/09/joe-ryan-minnesota-twins-injurie
 **Two Rivals in Michigan’s Crucial Senate Contest Say They Were Both Swatted**\
 `Representative Elissa Slotkin, a Democrat, and former Representative Mike Rogers, a Republican, disclosed that they were targeted on Thursday and Friday.`\
 https://nytimes.com/2024/08/09/us/politics/elissa-slotkin-mike-rogers-swatting.html
-
-**Trump Says He Wants to Cut Taxes. Harris’s Plan Mirrors Biden’s.**\
-`Also, Russia is scrambling to halt Ukraine’s surprise offensive. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2024/08/09/briefing/trump-harris-tax-plans-ukraine-russia-offensive.html
 
