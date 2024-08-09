@@ -1,3 +1,7 @@
+**How a karaoke machine has helped the USWNT prepare for the Olympic gold medal match**\
+`The U.S. women might have suffered through wins on the field in France, but they're still having fun off of it`\
+https://nytimes.com/athletic/5691147/2024/08/09/uswnt-olympics-karaoke-emma-hayes/
+
 **'Keep that open': George Kittle on the 49ers' title window, Aiyuk and more**\
 `It's been rocky for the 49ers this summer. It might get rockier. But they still have leaders like George Kittle and Fred Warner. `\
 https://nytimes.com/athletic/5690293/2024/08/09/george-kittle-49ers-title-brandon-aiyuk/
