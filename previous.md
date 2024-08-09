@@ -1,40 +1,40 @@
-**A Swing in Momentum**\
-`We explain the state of the 2024 race.`\
-https://nytimes.com/2024/08/09/briefing/a-swing-in-momentum.html
+**Which Vikings have the most to gain (and lose) in preseason opener vs. Raiders?**\
+`All eyes will be on the rookie QB on Saturday, but there are plenty of other Vikings with something to prove against the Raiders.`\
+https://nytimes.com/athletic/5690127/2024/08/09/raiders-vikings-mccarthy-preseason/
 
-**Carles Puigdemont Flees Spain Again After Rally, His Lawyer Says**\
-`The Catalan separatist leader, who has been living in self-imposed exile since spearheading an illegal referendum on independence in 2017, vanished almost as quickly as he had surfaced this week.`\
-https://nytimes.com/2024/08/09/world/europe/carles-puigdemont-spain-catalonia.html
+**Trump Tries to Retake the Spotlight, and Ukraine Pushes Into Russia**\
+`Plus, Noah Lyles’s Olympic run with Covid.`\
+https://nytimes.com/2024/08/09/podcasts/trump-press-conference-ukraine-russia-war-noah-lyles-covid.html
 
-**Aston Villa reject opening offer from Fulham for Carlos**\
-`Aston Villa have rejected an opening offer from Fulham for defender Diego Carlos.`\
-https://nytimes.com/athletic/5676237/2024/08/09/diego-carlos-fulham-aston-villa/
+**Bears 53-man roster projection: How camp injuries impact position battles**\
+`For anyone on the bubble, an injury in training camp costs them reps. We analyze how it could affect the makeup of the Bears' roster.`\
+https://nytimes.com/athletic/5689735/2024/08/09/chicago-bears-roster-projection-preseason/
 
-**The Reason Trump and Vance Really Hate Being Called ‘Weird’**\
-`It reminds voters how far out of the mainstream Republicans have gotten.`\
-https://nytimes.com/2024/08/09/opinion/trump-vance-harris-walz-weird.html
+**Cubs mailbag: Jed Hoyer on the hot seat, blocked prospects and Cody Bellinger's opt-out**\
+`We also answered your questions on whether the Cubs will go over the luxury tax next season and what they can do to improve their offense.`\
+https://nytimes.com/athletic/5690039/2024/08/09/cubs-jed-hoyer-hot-seat/
 
-**Falcons' 53-man roster projection: Rondale Moore's injury may have ripple effect**\
-`The Falcons play their first preseason game Friday night against the Dolphins in Miami. Wide receiver is a position to watch in the game.`\
-https://nytimes.com/athletic/5689671/2024/08/09/atlanta-falcons-roster-projection-preseason/
+**As preseason opener nears, Mike Hall Jr. finally gets to bring his bark to hometown Browns**\
+`"First time suiting up in that locker room, putting those pads on, it's special," the Cleveland native and second-round rookie said. `\
+https://nytimes.com/athletic/5687494/2024/08/09/browns-rookie-mike-hall-jr/
 
-**Cool Songs for a Hot Summer**\
-`New tracks from Jack White, Meshell Ndegeocello and more`\
-https://nytimes.com/2024/08/09/podcasts/cool-songs-for-a-hot-summer.html
+**Ten players to watch as Ravens head into first preseason game vs. Eagles**\
+`Will players on the perceived “bubble” help or hurt their stocks? And who from the rookie class looks ready to contribute immediately?`\
+https://nytimes.com/athletic/5689306/2024/08/09/ravens-players-eagles-preseason/
 
-**About 400 Million People Worldwide Have Had Long Covid, Researchers Say**\
-`The condition has put significant strain on patients and society — at a global economic cost of about $1 trillion a year, a new report estimates.`\
-https://nytimes.com/2024/08/09/health/long-covid-world.html
+**Breaking’s Olympic Debut**\
+`A sport’s journey from the streets of New York all the way to the Paris Games.`\
+https://nytimes.com/2024/08/09/podcasts/the-daily/breakings-olympic-debut.html
 
-**A Must-See Film About a Terribly Difficult Subject**\
-`“Sugarcane” follows survivors and investigators after the horrifying treatment of Indigenous Canadians was discovered at residential schools.`\
-https://nytimes.com/2024/08/09/movies/sugarcane-documentary-indigenous-communities.html
+**Naomi Girma's invaluable defending and leadership for USWNT: 'It's an art'**\
+`Girma has solidified herself as a leader on and off the pitch. She has flourished at the Olympic Games so far`\
+https://nytimes.com/athletic/5690139/2024/08/09/naomi-girma-uswnt-olympics/
 
-**‘Mafia Spies’ Recounts the C.I.A. Plot to Kill Castro**\
-`The docuseries tells the bizarre but true story of the C.I.A.’s various schemes to use the mob to assassinate the leader of Cuba.`\
-https://nytimes.com/2024/08/09/arts/television/mafia-spies-cia-kill-castro.html
+**Wordle Review No. 1,148**\
+`Scroll down for hints and conversation about the puzzle for Saturday, August 10, 2024.`\
+https://nytimes.com/2024/08/09/crosswords/wordle-review-1148.html
 
-**Tim Walz Is Vibing**\
-`Democrats are trying to make the election about who is cool and who is weird. Will it stick?`\
-https://nytimes.com/2024/08/09/opinion/tim-walz-harris-trump.html
+**Twins, Guardians series preview: AL Central on the line as heavyweights meet for four games**\
+`Cleveland and Minnesota will play four games in 51 hours, with AL Central supremacy on the line.`\
+https://nytimes.com/athletic/5689581/2024/08/09/twins-guardians-series-preview-al-central-on-the-line-as-heavyweights-meet-for-four-games/
 
