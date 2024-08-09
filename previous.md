@@ -1,3 +1,7 @@
+**USA women's basketball vs. France Olympics gold medal game odds: Team USA favored**\
+`The US woman enter the gold medal game as significant favorites over a tenacious home country, France.`\
+https://nytimes.com/athletic/5691696/2024/08/09/usa-france-womens-basketball-olympics-gold-medal/
+
 **Defense Dept. Contractor Arrested With Dozens of Classified Documents**\
 `Investigators are still trying to determine why the contractor, Gokhan Gun, who became an American citizen in 2021, hoarded so many documents.`\
 https://nytimes.com/2024/08/09/us/politics/gokhan-gun-classified-documents.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/09/style/openai-chatgpt-voice.html
 **Joe Ryan's season in doubt as Twins receive surprising news amid wave of injuries**\
 `The team revealed injuries to Ryan, Brooks Lee and prospect Luke Keaschall, while Brock Stewart confirmed he’ll have season-ending surgery.`\
 https://nytimes.com/athletic/5691989/2024/08/09/joe-ryan-minnesota-twins-injuries/
-
-**Two Rivals in Michigan’s Crucial Senate Contest Say They Were Both Swatted**\
-`Representative Elissa Slotkin, a Democrat, and former Representative Mike Rogers, a Republican, disclosed that they were targeted on Thursday and Friday.`\
-https://nytimes.com/2024/08/09/us/politics/elissa-slotkin-mike-rogers-swatting.html
 
