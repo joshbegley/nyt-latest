@@ -1,3 +1,7 @@
+**Buster Posey, Travis Ishikawa reflect on Giants' 2014 World Series run ahead of Saturday's reunion**\
+`The Giants are expecting an impressive turnout on Saturday, including the still-officially-unretired Madison Bumgarner.`\
+https://nytimes.com/athletic/5691316/2024/08/09/sf-giants-2014-world-series-reunion-posey-ishikawa-bumgarner/
+
 **Doug Emhoff Stresses a Personal Push Against Antisemitism**\
 `At an event in Paris to commemorate a 1982 attack on a Jewish deli there, Kamala Harris’s husband said, “Part of fighting hate is living openly and proudly as a Jew.”`\
 https://nytimes.com/2024/08/09/world/europe/doug-emhoff-antisemitism-paris.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5691304/2024/08/09/nfl-rookie-quarterbacks-scoop-ci
 **Carsley placed in interim charge of England ahead of Nations League**\
 `Lee Carsley has been placed in interim charge of England ahead of the 2024-25 Nations League campaign as the Football Association (FA)&#8217;s search for a permanent head coach continues.`\
 https://nytimes.com/athletic/5691273/2024/08/09/lee-carsley-england-manager-interim/
-
-**Quincy Wilson gets a humbling taste of the Olympics — but it's just the beginning**\
-`Quincy Wilson's Olympic debut on Friday was a reminder of both how far he has to go and the unending potential he has to get there.`\
-https://nytimes.com/athletic/5691245/2024/08/09/quincy-wilson-olympics-4x400-relay-team-usa/
 

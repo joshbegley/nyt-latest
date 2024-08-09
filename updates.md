@@ -1,3 +1,7 @@
+**Buster Posey, Travis Ishikawa reflect on Giants' 2014 World Series run ahead of Saturday's reunion**\
+`The Giants are expecting an impressive turnout on Saturday, including the still-officially-unretired Madison Bumgarner.`\
+https://nytimes.com/athletic/5691316/2024/08/09/sf-giants-2014-world-series-reunion-posey-ishikawa-bumgarner/
+
 **Here Are the Olympic Moments We Won’t Forget**\
 `It doesn’t take a medal to make a lasting memory.`\
 https://nytimes.com/2024/08/09/world/olympics/paris-olympics-2024-moments.html
