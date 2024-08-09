@@ -1,3 +1,7 @@
+**Spain win gold in Olympic men’s soccer after beating France 5-3 in final**\
+`Spain came from behind with three goals in 10 first-half minutes then survived a late France fightback and extra time to seal their summer of international football glory with Olympic gold.`\
+https://nytimes.com/athletic/5691736/2024/08/09/spain-france-olympic-football-final/
+
 **Spain win gold in Olympic men’s football after beating France 5-3 in final**\
 `Spain came from behind with three goals in 10 first-half minutes then survived a late France fightback and extra time to seal their summer of international football glory with Olympic gold.`\
 https://nytimes.com/athletic/5691736/2024/08/09/spain-france-olympic-football-final/
