@@ -1,3 +1,7 @@
+**That Time Trump Nearly Died in a Helicopter Crash? Didn’t Happen**\
+`In a news conference, the former president recounted a brush with death alongside Willie Brown, the former San Francisco mayor. A few aspects of the story don’t hold up to scrutiny.`\
+https://nytimes.com/2024/08/08/us/politics/trump-helicopter-willie-brown.html
+
 **Donald Trump Feels Bad — So Very Bad — About Poor Joe Biden**\
 `At his news conference in Florida on Thursday, the former president told a tale of treachery perpetrated against President Biden by Barack Obama, Nancy Pelosi and Kamala Harris.`\
 https://nytimes.com/2024/08/08/us/politics/trump-biden-press-conference.html

@@ -1,3 +1,7 @@
+**That Time Trump Nearly Died in a Helicopter Crash? Didn’t Happen**\
+`In a news conference, the former president recounted a brush with death alongside Willie Brown, the former San Francisco mayor. A few aspects of the story don’t hold up to scrutiny.`\
+https://nytimes.com/2024/08/08/us/politics/trump-helicopter-willie-brown.html
+
 **Donald Trump Feels Bad — So Very Bad — About Poor Joe Biden**\
 `At his news conference in Florida on Thursday, the former president told a tale of treachery perpetrated against President Biden by Barack Obama, Nancy Pelosi and Kamala Harris.`\
 https://nytimes.com/2024/08/08/us/politics/trump-biden-press-conference.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/08/us/politics/harris-house-republicans-investigatio
 **Rikers Inmates Are Routinely Denied Medical Care, Court Filing Says**\
 `The Legal Aid Society and Brooklyn Defender Services asked a judge to hold New York City’s Department of Correction in contempt of court.`\
 https://nytimes.com/2024/08/08/nyregion/rikers-inmates-health-care.html
-
-**Cindy Ngamba captures first ever medal for Olympic refugee team**\
-`It is Ngamba's first time competing under the refugee flag after becoming the first-ever refugee boxer to qualify for the Olympic Games.`\
-https://nytimes.com/athletic/5689644/2024/08/08/cindy-ngamba-boxing-medal-refugee-team-history/
 
