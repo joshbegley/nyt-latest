@@ -1,3 +1,11 @@
+**Evidence Shows ‘Hand to Mouth’ Production of Russia’s Advanced Weapons**\
+`A report by independent investigators said that Russian cruise missiles were used in combat sometimes just weeks after rolling off the factory floor.`\
+https://nytimes.com/2024/08/09/us/politics/russia-weapons-ukraine-war.html
+
+**Tracking Tropical Storm Maria**\
+`See the likely path and wind arrival times for Maria.`\
+https://nytimes.com/interactive/2024/08/09/weather/maria-map-path-tracker.html
+
 **How to Handle Jet Lag, According to Very Frequent Travelers**\
 `A long flight can be exhausting, but recovering from it needn’t take up half your trip.`\
 https://nytimes.com/article/jet-lag-prevention.html
