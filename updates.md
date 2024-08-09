@@ -1,3 +1,7 @@
+**Kamala Harris Isn’t Giving Interviews. Any Questions?**\
+`Critics say the vice president has been too cautious with the press. Her supporters think it’s the right strategy at the right time.`\
+https://nytimes.com/2024/08/08/business/media/kamala-harris-press-interviews.html
+
 **That Time Trump Nearly Died in a Helicopter Crash? Didn’t Happen.**\
 `In a news conference, the former president recounted a brush with death alongside Willie Brown, the former San Francisco mayor. A few aspects of the story don’t hold up to scrutiny.`\
 https://nytimes.com/2024/08/08/us/politics/trump-helicopter-willie-brown.html
