@@ -1,3 +1,7 @@
+**Travis Scott Is Accused of Assaulting a Security Guard in Paris**\
+`The rapper, who was in France for the Olympics, was taken into police custody at the George V hotel, the Paris prosecutor’s office said.`\
+https://nytimes.com/2024/08/09/arts/music/travis-scott-paris-assault.html
+
 **Liverpool continuing to work on Zubimendi deal**\
 `Liverpool are continuing to work on signing midfielder Martin Zubimendi from Real Sociedad.`\
 https://nytimes.com/athletic/5691454/2024/08/09/liverpool-martin-zubimendi-transfer-latest/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009620876/israel-gaza-khan-youn
 **Buster Posey, Travis Ishikawa reflect on Giants' 2014 World Series run ahead of Saturday's reunion**\
 `The Giants are expecting an impressive turnout on Saturday, including the still-officially-unretired Madison Bumgarner.`\
 https://nytimes.com/athletic/5691316/2024/08/09/sf-giants-2014-world-series-reunion-posey-ishikawa-bumgarner/
-
-**Doug Emhoff Stresses a Personal Push Against Antisemitism**\
-`At an event in Paris to commemorate a 1982 attack on a Jewish deli there, Kamala Harris’s husband said, “Part of fighting hate is living openly and proudly as a Jew.”`\
-https://nytimes.com/2024/08/09/world/europe/doug-emhoff-antisemitism-paris.html
 
