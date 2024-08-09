@@ -1,3 +1,11 @@
+**The Pulse: Unforgettable Olympic hoops moment**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5690476/2024/08/09/lebron-james-steph-curry-kevin-durant-olympics-serbia-the-pulse/
+
+**Weird & Wild MLB History Watch: Celebrating Judge, Schwarber, Witt Jr. and more**\
+`The Weird & Wild History Watch Dept. delves into the rare air occupied by Judge, Schwarber, Witt, Elly De La Cruz and Shohei Ohtani. `\
+https://nytimes.com/athletic/5690998/2024/08/09/mlb-history-aaron-judge-kyle-schwarber-bobby-witt-jr/
+
 **Appeals Court Orders License Restored to Philippine News Site Rappler**\
 `The case, brought after Rappler was singled out by former President Rodrigo Duterte, was one of many facing the outlet and its co-founder, the Nobel laureate Maria Ressa.`\
 https://nytimes.com/2024/08/09/world/asia/philippines-rappler-maria-ressa.html
