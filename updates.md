@@ -1,3 +1,11 @@
+**The Presidential Campaign’s Carbonated Détente**\
+`In a land of plenty that reveres personal freedom, we imbibe as we wish.`\
+https://nytimes.com/live/2024/08/07/opinion/thepoint/walz-vance-mountain-dew
+
+**Kevin Sullivan, Professional Wrestling’s ‘Prince of Darkness,’ Dies at 74**\
+`Modeling himself after the heavy metal bands of the 1970s and ’80s, he played the role of an occult-inspired villain and tangled with the likes of Hulk Hogan.`\
+https://nytimes.com/2024/08/09/us/kevin-sullivan-wrestler-dead.html
+
 **Wrexham break transfer record to sign Rathbone from Rotherham**\
 `Wrexham have broken their record transfer fee to sign Rotherham United midfielder Ollie Rathbone.`\
 https://nytimes.com/athletic/5691591/2024/08/09/wrexham-break-transfer-record-to-sign-ollie-rathbone-from-rotherham/
