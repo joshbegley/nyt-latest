@@ -1,3 +1,7 @@
+**Illinois Sheriff Will Resign Amid Backlash Over Fatal Shooting by Deputy**\
+`Jack Campbell, the sheriff of Sangamon County, was criticized for hiring the deputy, who has now been charged with murdering Sonya Massey in her home last month.`\
+https://nytimes.com/2024/08/09/us/sonya-massey-jack-campbell-resigns.html
+
 **Harris Has a Big Campaign Launch — and Big Tests Ahead**\
 `Fresh challenges in the offing could determine how long the vice president’s honeymoon will last.`\
 https://nytimes.com/2024/08/09/us/politics/harris-walz-trump-polls.html

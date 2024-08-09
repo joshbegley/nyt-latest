@@ -6,7 +6,7 @@ https://nytimes.com/2024/08/09/us/politics/harris-walz-trump-polls.html
 `Former President Donald J. Trump insisted that he was in a dangerous helicopter landing, though the man he said he was with said it never happened.`\
 https://nytimes.com/2024/08/09/us/politics/trump-helicopter-landing.html
 
-**Sheriff in Illinois Will Resign Amid Backlash Over Fatal Shooting by Deputy**\
+**Illinois Sheriff Will Resign Amid Backlash Over Fatal Shooting by Deputy**\
 `Jack Campbell, the sheriff of Sangamon County, was criticized for hiring the deputy, who has now been charged with murdering Sonya Massey in her home last month.`\
 https://nytimes.com/2024/08/09/us/sonya-massey-jack-campbell-resigns.html
 
