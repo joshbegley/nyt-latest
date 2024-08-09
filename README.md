@@ -1,3 +1,7 @@
+**Kamala Harris Isn’t Giving Interviews. Any Questions?**\
+`Critics say the vice president has been too cautious with the press. Her supporters think it’s the right strategy at the right time.`\
+https://nytimes.com/2024/08/08/business/media/kamala-harris-press-interviews.html
+
 **Cowboys owner Jerry Jones not concerned about CeeDee Lamb contract situation**\
 `The Cowboys' star receiver responded to Jerry Jones' comments online, writing "lol."`\
 https://nytimes.com/athletic/5690401/2024/08/08/cowboys-ceedee-lamb-contract-jerry-jones/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5690134/2024/08/08/us-mens-basketball-olympics-defe
 **A.C.L.U. Must Reinstate Employee Falsely Accused of Racist Language, Court Rules**\
 `The case put the legal group on the spot for taking positions on free speech and workers’ rights that seemed at odds with its mission.`\
 https://nytimes.com/2024/08/08/us/politics/aclu-employee-racism-false-accusation.html
-
-**Tim Walz and the Weird Politics of Free School Lunches**\
-`Another reminder that MAGA isn’t “populist.”`\
-https://nytimes.com/2024/08/08/opinion/tim-walz-school-lunch.html
 
