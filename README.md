@@ -1,3 +1,7 @@
+**Arsenal ready to sanction Nketiah’s Marseille loan with €30m obligation to buy**\
+`Arsenal are ready to sanction Eddie Nketiah’s departure to Marseille on loan with an obligation to buy for a fee in the region of €30million.`\
+https://nytimes.com/athletic/5658066/2024/08/09/eddie-nketiah-marseille-arsenal-transfer/
+
 **Which Vikings have the most to gain (and lose) in preseason opener vs. Raiders?**\
 `All eyes will be on the rookie QB on Saturday, but there are plenty of other Vikings with something to prove against the Raiders.`\
 https://nytimes.com/athletic/5690127/2024/08/09/raiders-vikings-mccarthy-preseason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5690139/2024/08/09/naomi-girma-uswnt-olympics/
 **Wordle Review No. 1,148**\
 `Scroll down for hints and conversation about the puzzle for Saturday, August 10, 2024.`\
 https://nytimes.com/2024/08/09/crosswords/wordle-review-1148.html
-
-**Twins, Guardians series preview: AL Central on the line as heavyweights meet for four games**\
-`Cleveland and Minnesota will play four games in 51 hours, with AL Central supremacy on the line.`\
-https://nytimes.com/athletic/5689581/2024/08/09/twins-guardians-series-preview-al-central-on-the-line-as-heavyweights-meet-for-four-games/
 
