@@ -1,3 +1,7 @@
+**Israel Prepares for Expected Attacks by Iran and Hezbollah**\
+`Israel advised people to stock up on food and water in fortified safe rooms, while Prime Minister Benjamin Netanyahu told soldiers that Israel is “prepared for defense, as well as offense.”`\
+https://nytimes.com/2024/08/08/world/middleeast/israel-prepare-iran-attack.html
+
 **Rams' Jared Verse, Kam Kinchens showed up well in joint practice with Cowboys**\
 `Rams rookie Jared Verse catches Dak Prescott's attention during joint practice. "Very talented," the Cowboys' QB said.`\
 https://nytimes.com/athletic/5690359/2024/08/08/la-rams-practice-defense-cowboys/
