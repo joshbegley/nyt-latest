@@ -1,3 +1,27 @@
+**The Battle Over a Sidewalk Goldfish Pond in Brooklyn**\
+`In Bedford-Stuyvesant, an animal lover thought she was doing the right thing by freeing fish from a cement pit. The man who created the pond saw it differently.`\
+https://nytimes.com/2024/08/09/nyregion/goldfish-sidewalk-pond-brooklyn.html
+
+**New York’s Latest Challenge in Migrant Crisis: Homeless Encampments**\
+`As city officials struggle to provide shelter for nearly 65,000 asylum seekers, some have chosen to sleep in the city’s parks, subway and streets.`\
+https://nytimes.com/2024/08/09/nyregion/migrants-homeless-encampment-nyc.html
+
+**Covering the U.K. Riots Amid Disorder and Misinformation**\
+`Megan Specia, who is based in London, discusses the countrywide protests that began largely because of false information online.`\
+https://nytimes.com/2024/08/09/insider/uk-riots.html
+
+**The Olympic Marathon Course Is a Torture Test. That’s by Design.**\
+`“Oh, my gosh,” one Olympian gasped when she got her first look at the hilly, demanding course. “This looks ridiculous.”`\
+https://nytimes.com/2024/08/09/world/olympics/olympic-marathon-course.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/09/crosswords/spelling-bee-forum.html
+
+**Jean-Clair Todibo set for West Ham medical**\
+`Jean-Clair Todibo is set to undergo a medical today with West Ham United ahead of a proposed move from Nice.`\
+https://nytimes.com/athletic/5690839/2024/08/09/jean-clair-todibo-transfer-west-ham/
+
 **De Gea set to join Fiorentina**\
 `Former Manchester United goalkeeper David de Gea is set to travel to Italy on Friday ahead of a proposed move to Fiorentina.`\
 https://nytimes.com/athletic/5689457/2024/08/09/david-de-gea-fiorentina-transfer/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5687056/2024/08/09/hillsborough-disturbing-safety-i
 **Word of the Day: cuneiform**\
 `This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/09/learning/word-of-the-day-cuneiform.html
-
-**A Pastry That Tastes Like Home**\
-`The cheese scone is so essential to the New Zealand diet that it is almost impossible to find a cafe without a plate of them on the counter.`\
-https://nytimes.com/2024/08/09/world/australia/new-zealand-cheese-scone.html
-
-**DK Metcalf, D'Andre Swift and more fantasy football draft targets to pursue ahead of their ADP ranges**\
-`Scott Engel looks at 16 players he is targeting ahead of their ADPs and why he thinks they can outperform where they're getting drafted.`\
-https://nytimes.com/athletic/5687534/2024/08/09/fantasy-football-draft-targets-to-pursue-ahead-of-their-adp-ranges/
-
-**My Beloved Italian City Has Turned Into Tourist Hell. Must We Really Travel Like This?**\
-`Must we really travel like this?`\
-https://nytimes.com/2024/08/09/opinion/italy-tourists-bologna-mortadella.html
-
-**Amick: Steph Curry was ready to 'meet the moment' in a way we've never seen**\
-`The Warriors superstar hasn't had many 'opportunities' in these Games. But against Serbia, he made the most of every single one.`\
-https://nytimes.com/athletic/5690608/2024/08/09/stephen-curry-team-usa-serbia-olympics/
-
-**Why Harry Souttar may not be the only Leicester player heading for the exit door**\
-`The promoted club have PSR concerns and a bloated squad, meaning players will have to be sold in order for Steve Cooper to recruit`\
-https://nytimes.com/athletic/5688755/2024/08/09/leicester-souttar-daka-nelson-transfer/
-
-**Leeds United season preview: Aaronson returns, Joseph stepping up, and a chance for Crew**\
-`Has Daniel Farke got a squad that can win the Championship?`\
-https://nytimes.com/athletic/5676257/2024/08/09/leeds-season-preview-2024-25/
 
