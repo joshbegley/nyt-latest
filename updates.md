@@ -1,3 +1,7 @@
+**The Houston Texans are loving life with Stefon Diggs**\
+`The star receiver has earned rave reviews from DeMeco Ryans and the coaching staff`\
+https://nytimes.com/athletic/5691325/2024/08/09/stefon-diggs-attitude-houston-texans/
+
 **Panthers' charter plane goes off taxiway, no injuries reported**\
 `None of the 188 people on board the Panthers' return flight were injured on the return to Charlotte early Friday morning. `\
 https://nytimes.com/athletic/5691371/2024/08/09/carolina-panthers-plane-runs-off-taxiway/

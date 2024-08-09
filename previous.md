@@ -1,3 +1,7 @@
+**The Houston Texans are loving life with Stefon Diggs**\
+`The star receiver has earned rave reviews from DeMeco Ryans and the coaching staff`\
+https://nytimes.com/athletic/5691325/2024/08/09/stefon-diggs-attitude-houston-texans/
+
 **Panthers' charter plane goes off taxiway, no injuries reported**\
 `None of the 188 people on board the Panthers' return flight were injured on the return to Charlotte early Friday morning. `\
 https://nytimes.com/athletic/5691371/2024/08/09/carolina-panthers-plane-runs-off-taxiway/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5690112/2024/08/09/oilers-prospects-max-wanner/
 **Nancy Pelosi on Joe Biden, Tim Walz and Donald Trump**\
 `The former Speaker of the House discusses the election and the art of power.`\
 https://nytimes.com/video/opinion/100000009620975/nancy-pelosi-on-joe-biden-tim-walz-and-donald-trump.html
-
-**Here Are the Olympic Moments We Won’t Forget**\
-`It doesn’t take a medal to make a lasting memory.`\
-https://nytimes.com/2024/08/09/world/olympics/paris-olympics-2024-moments.html
 
