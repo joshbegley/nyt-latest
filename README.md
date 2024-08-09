@@ -1,3 +1,11 @@
+**The Reason Trump and Vance Really Hate Being Called ‘Weird’**\
+`It reminds voters how far out of the mainstream Republicans have gotten.`\
+https://nytimes.com/2024/08/09/opinion/trump-vance-harris-walz-weird.html
+
+**Falcons' 53-man roster projection: Rondale Moore's injury may have ripple effect**\
+`The Falcons play their first preseason game Friday night against the Dolphins in Miami. Wide receiver is a position to watch in the game.`\
+https://nytimes.com/athletic/5689671/2024/08/09/atlanta-falcons-roster-projection-preseason/
+
 **Cool Songs for a Hot Summer**\
 `New tracks from Jack White, Meshell Ndegeocello and more`\
 https://nytimes.com/2024/08/09/podcasts/cool-songs-for-a-hot-summer.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/09/podcasts/hardfork-google-antitrust-ai-bubble.html
 **4 Ways to Keep Your Vacation Going After You’re Back**\
 `Those good vibes seem to disappear immediately, but it’s possible to extend them.`\
 https://nytimes.com/2024/08/09/well/live/vacation-habits.html
-
-**The New York Times News Quiz, Aug. 9, 2024**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2024/08/09/briefing/news-quiz-harris-walz-debby-stocks.html
-
-**5 Things to Do This Weekend**\
-`A selection of entertainment highlights this weekend, including screenings of “The Texas Chain Saw Massacre,” which soon turns 50.`\
-https://nytimes.com/interactive/2024/08/09/arts/weekend-editors-picks-texas-chainsaw-massacre.html
 
