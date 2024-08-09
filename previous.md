@@ -1,3 +1,7 @@
+**Ross Terrill, Insightful Expert on Communist China, Is Dead at 85**\
+`In the 1960s, he was among the first Westerners allowed into the country, and for decades he helped the rest of the world understand it.`\
+https://nytimes.com/2024/08/09/books/ross-terrill-dead.html
+
 **For U.S. basketball, there's one acceptable Olympic ending — and the job's not done**\
 `Thursday's incredible comeback spared the U.S. an ignominious defeat. But they can't look past France in the gold-medal game.`\
 https://nytimes.com/athletic/5691597/2024/08/09/for-u-s-basketball-theres-one-acceptable-olympic-ending-and-the-jobs-not-done/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/09/style/tim-walz-style.html
 **Hours after dramatic win, KD delivers another comeback — online**\
 `Kevin Durant made time for trash talk in the wee hours of the morning after Team USA's win over Serbia.`\
 https://nytimes.com/athletic/5691381/2024/08/09/kevin-durant-twitter-team-usa-serbia-olympics/
-
-**Injera Is the Soul of Ethiopian Cuisine**\
-`Injera takes days to prepare, but this quick recipe streamlines the process.`\
-https://nytimes.com/2024/08/09/dining/how-to-make-injera.html
 
