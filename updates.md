@@ -1,3 +1,15 @@
+**This Is a Picture of the Last Thing Seen by NASA’s Asteroid Hunter**\
+`NEOWISE, a spacecraft that studied faraway cosmic objects before shifting its focus closer to home, has reached the end of its life. But its legacy lives on.`\
+https://nytimes.com/2024/08/09/science/neowise-nasa-asteroid-hunter-last-image.html
+
+**Elon Musk to Speak to West Point Cadets**\
+`The billionaire owner of the social media platform X and Tesla’s chief executive will deliver the keynote speech at an annual event.`\
+https://nytimes.com/2024/08/09/us/politics/elon-musk-west-point.html
+
+**Jan. 6 Rioter Sentenced to 20 Years for Assaults on Police**\
+`David Dempsey received one of the stiffest sentences issued so far in the riot after attacking the police with his hands, his feet, a flagpole, crutches, pepper spray and broken pieces of furniture.`\
+https://nytimes.com/2024/08/09/us/politics/jan-6-sentence-david-dempsey.html
+
 **Chelsea and USMNT goalkeeper Slonina joins Barnsley on loan**\
 `Chelsea goalkeeper Gabriel Slonina has joined League One side Barnsley on a season-long loan.`\
 https://nytimes.com/athletic/5691988/2024/08/09/chelsea-umsnt-slonina-barnsley-loan-transfer/
