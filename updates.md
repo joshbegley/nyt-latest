@@ -1,3 +1,7 @@
+**Finding the ‘Olympic Spirit’ at La Villette**\
+`La Villette, a park in the north of Paris, has been transformed into Nations Park for the Olympics. Rory Smith, a global sports correspondent for The New York Times, explains how the park embodies the spirit of the Games.`\
+https://nytimes.com/video/sports/100000009616361/la-villette-nations-park-2024-paris-olympics.html
+
 **U.S. men doomed by baton pass as Canada wins gold in men's 4x100 relay**\
 `After review, the United States was disqualified, as the first exchange occurred outside the exchange zone.`\
 https://nytimes.com/athletic/5691743/2024/08/09/olympics-mens-4x100-relay-results/

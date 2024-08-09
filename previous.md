@@ -1,3 +1,7 @@
+**Finding the ‘Olympic Spirit’ at La Villette**\
+`La Villette, a park in the north of Paris, has been transformed into Nations Park for the Olympics. Rory Smith, a global sports correspondent for The New York Times, explains how the park embodies the spirit of the Games.`\
+https://nytimes.com/video/sports/100000009616361/la-villette-nations-park-2024-paris-olympics.html
+
 **Judge Gives Trump and Prosecutors More Time to Assess Presidential Immunity**\
 `Judge Tanya Chutkan, who is overseeing the election interference case against the former president, gave both sides a few more weeks to consider a Supreme Court ruling’s impact on the case.`\
 https://nytimes.com/2024/08/09/us/politics/trump-election-case-supreme-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/09/arts/music/playlist-shawn-mendes-kelsea-ballerini
 **NWSL and NWSLPA  agree terms on new collective bargaining agreement**\
 `The National Women&#8217;s Soccer League (NWSL) and the NWSL Players Association have agreed terms on a new long-term collective bargaining agreement, confirmed to The Athletic by a source with knowledge of the negotiations who was not authorized to speak publicly on the deal.`\
 https://nytimes.com/athletic/5691624/2024/08/09/nwsl-and-nwslpa-agree-terms-on-new-collective-bargaining-agreement/
-
-**Biden Promised Peace, but Will Leave His Successor a Nation Consumed by War**\
-`The president has spent much of his tenure mobilizing military might against Russia’s invasion of Ukraine and supporting Israel.`\
-https://nytimes.com/2024/08/09/us/politics/biden-peace-war.html
 
