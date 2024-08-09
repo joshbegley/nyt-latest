@@ -1,3 +1,11 @@
+**Appeals Court Orders License Restored to Philippine News Site Rappler**\
+`The case, brought after Rappler was singled out by former President Rodrigo Duterte, was one of many facing the outlet and its co-founder, the Nobel laureate Maria Ressa.`\
+https://nytimes.com/2024/08/09/world/asia/philippines-rappler-maria-ressa.html
+
+**Numbers and plays that defined Team USA's rally, and how France matches up**\
+`The outlines of a potential upset were there against Serbia. In the end, it didn't matter for the Americans.`\
+https://nytimes.com/athletic/5690747/2024/08/09/team-usa-serbia-olympics-statistics-france-gold-medal/
+
 **As Ukraine Presses an Advance Into Russia, Its Goals Remain Unclear**\
 `Despite quick gains in the western Russian region of Kursk, analysts question whether Ukraine can maintain the momentum.`\
 https://nytimes.com/2024/08/09/world/europe/ukraine-russia-kursk-lipetsk.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5687494/2024/08/09/browns-rookie-mike-hall-jr/
 **Ten players to watch as Ravens head into first preseason game vs. Eagles**\
 `Will players on the perceived “bubble” help or hurt their stocks? And who from the rookie class looks ready to contribute immediately?`\
 https://nytimes.com/athletic/5689306/2024/08/09/ravens-players-eagles-preseason/
-
-**Breaking’s Olympic Debut**\
-`A sport’s journey from the streets of New York all the way to the Paris Games.`\
-https://nytimes.com/2024/08/09/podcasts/the-daily/breakings-olympic-debut.html
-
-**Naomi Girma's invaluable defending and leadership for USWNT: 'It's an art'**\
-`Girma has solidified herself as a leader on and off the pitch. She has flourished at the Olympic Games so far`\
-https://nytimes.com/athletic/5690139/2024/08/09/naomi-girma-uswnt-olympics/
 
