@@ -1,3 +1,11 @@
+**For Years, He Demanded to See the Video. Finally, It Set Him Free.**\
+`At his murder trial, Arvel Marshall pressed prosecutors to turn over surveillance footage of the crime scene. He knew it would show the truth.`\
+https://nytimes.com/2024/08/09/nyregion/arvell-marshall-surveillance-video-exoneration.html
+
+**The Australian Professor Who Turned Breaking on Its Head**\
+`Rachael Gunn, known as B-girl Raygun, displayed some … unique moves as she competed in a field with breakers half her age. The judges and the internet were underwhelmed.`\
+https://nytimes.com/2024/08/09/world/olympics/olympics-breaking-raygun.html
+
 **Childhood Vaccines Aren’t Just Saving Lives. They’re Saving Money.**\
 `Over the past three decades, routine immunizations have prevented 1.1 million deaths and saved the United States $540 billion, the C.D.C. estimated.`\
 https://nytimes.com/2024/08/09/health/childhood-vaccines.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/08/09/world/israel-iran-hamas-gaza-war/the-us-says
 **Latino Rights Group Breaks With Its History to Endorse Harris-Walz Ticket**\
 `Leaders of the group, known as LULAC, said members were stirred to make their first formal endorsement over concerns about the potential impact of another Trump presidency.`\
 https://nytimes.com/2024/08/09/us/politics/lulac-harris-endorsement.html
-
-**Ukraine gymnast delivers stunning hoop routine after fleeing home**\
-`Ukrainian rhythmic gymnastics coach Iryna Blokhina said the team didn't know if it'd survive Russia's attacks on Ukraine.`\
-https://nytimes.com/athletic/5691760/2024/08/09/taisiia-onofriichuk-rhythmic-gymnastics-olymics-ukraine/
-
-**In Nagasaki, Keeping the Memory of Nuclear War Alive**\
-`The city should be remembered not as one of the first cities to suffer devastation from the wartime use of a nuclear weapon, but as the last.`\
-https://nytimes.com/live/2024/08/07/opinion/thepoint/nagasaki-nuclear-bomb
 
