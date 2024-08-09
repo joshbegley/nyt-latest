@@ -1,3 +1,15 @@
+**Real Madrid defender Joan Martinez suffers cruciate ligament injury**\
+`Real Madrid defender Joan Martinez is facing an extended spell on the sidelines after rupturing the cruciate ligament in his left knee.`\
+https://nytimes.com/athletic/5691882/2024/08/09/real-madrid-joan-martinez-injury/
+
+**The U.S. says it won’t halt aid to an Israeli military unit accused of abuses, after Israel took remedial steps.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/08/09/world/israel-iran-hamas-gaza-war/the-us-says-it-wont-halt-aid-to-an-israeli-military-unit-accused-of-abuses-after-israel-took-remedial-steps
+
+**Latino Rights Group Breaks With Its History to Endorse Harris-Walz Ticket**\
+`Leaders of the group, known as LULAC, said members were stirred to make their first formal endorsement over concerns about the potential impact of another Trump presidency.`\
+https://nytimes.com/2024/08/09/us/politics/lulac-harris-endorsement.html
+
 **Ukraine gymnast delivers stunning hoop routine after fleeing home**\
 `Ukrainian rhythmic gymnastics coach Iryna Blokhina said the team didn't know if it'd survive Russia's attacks on Ukraine.`\
 https://nytimes.com/athletic/5691760/2024/08/09/taisiia-onofriichuk-rhythmic-gymnastics-olymics-ukraine/
