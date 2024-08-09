@@ -1,3 +1,11 @@
+**Learn to Make the Best Roasted Eggplant of Your Life**\
+`This summer staple has a reputation of being bitter, seedy, even greasy at times, but a few small considerations can make it excellent.`\
+https://nytimes.com/2024/08/09/dining/best-roasted-eggplant.html
+
+**The Briefing: Newcastle 4 Girona 0 — Gordon back and firing and 'Oldcastle' show their quality**\
+`Newcastle stormed to a 4-0 win against Girona, going three goals up after only 16 minutes. George Caulkin analyses the talking points`\
+https://nytimes.com/athletic/5691908/2024/08/09/newcastle-girona-analysis-gordon-longstaff/
+
 **J. Robin Warren, Who Proved That Bacteria Cause Ulcers, Dies at 87**\
 `He endured skepticism but won a Nobel Prize for his work upending the conventional wisdom that stress, diet or alcohol caused the painful condition.`\
 https://nytimes.com/2024/08/09/health/j-robin-warren-dead.html
