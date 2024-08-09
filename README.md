@@ -1,7 +1,3 @@
-**The Big Number: $8.4 Billion**\
-`Disney’s weaker-than-expected revenue at its theme park unit.`\
-https://nytimes.com/2024/08/09/business/the-big-number-8-4-billion-disney-earnings.html
-
 **How to Save Disney**\
 `Three ways to revitalize the House of Mouse.`\
 https://nytimes.com/2024/08/09/opinion/disney-revitalize.html
@@ -11,7 +7,7 @@ https://nytimes.com/2024/08/09/opinion/disney-revitalize.html
 https://nytimes.com/2024/08/09/business/cash-app-settlement.html
 
 **Spain win gold in Olympic men’s football after beating France 5-3 in final**\
-`Spain came from behind with three goals in 10 first-half minutes then survived a late France fightback and extra time to seal their summer of international football glory with Olympic gold in the highest-scoring men&#8217;s soccer gold medal match since 1912.`\
+`Spain came from behind with three goals in 10 first-half minutes then survived a late France fightback and extra time to seal their summer of international football glory with Olympic gold.`\
 https://nytimes.com/athletic/5691736/2024/08/09/spain-france-olympic-football-final/
 
 **American wrestler Spencer Lee defeated in gold medal final**\
@@ -37,4 +33,8 @@ https://nytimes.com/2024/08/09/us/politics/trump-election-case-supreme-court.htm
 **U.S. men doomed by baton pass as Canada wins gold in men's 4x100 relay**\
 `After review, the United States was disqualified, as the first exchange occurred outside the exchange zone.`\
 https://nytimes.com/athletic/5691743/2024/08/09/olympics-mens-4x100-relay-results/
+
+**Should Soccer Make Space for Other Sports?**\
+`The saturation of soccer can be suffocating for the rest of the athletic landscape.`\
+https://nytimes.com/2024/08/09/world/europe/soccer-olympics-television-saturation.html
 
