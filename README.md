@@ -1,3 +1,7 @@
+**Special report: 'Disturbing' safety issues at Hillsborough 35 years after disaster**\
+`An investigation into safety issues at Hillsborough reveals significant concerns over the Leppings Lane end that still houses away supporter`\
+https://nytimes.com/athletic/5687056/2024/08/09/hillsborough-disturbing-safety-issues/
+
 **Word of the Day: cuneiform**\
 `This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/09/learning/word-of-the-day-cuneiform.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5681169/2024/08/09/mats-wieffer-brighton-feyenoord-
 **FPL: This season's best out-of-position players**\
 `Here's how you can utilise those players who won't be operating in their designated FPL positions to rack up the points `\
 https://nytimes.com/athletic/5656161/2024/08/09/fantasy-premier-league-this-seasons-best-out-of-position-players/
-
-**Everton's summer of niggling injuries and what they mean for the start of the season**\
-`Preparations have been hampered with 13 of Everton's first-team players having been absent for at least one pre-season game this summer`\
-https://nytimes.com/athletic/5688446/2024/08/09/everton-injuries-dyche-branthwaite/
 
