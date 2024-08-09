@@ -1,3 +1,7 @@
+**New Footage From the Trump Assassination Attempt Shows a Frantic Police Effort to Reach the Gunman**\
+`Bodycam videos and other footage provide new insights into the law enforcement response and presence at the building where the shooter was positioned.`\
+https://nytimes.com/2024/08/08/us/politics/trump-rally-shooting-bodycam-footage.html
+
 **Chi Chi Rodriguez, the Golf World’s Swashbuckling Champion, Dies at 88**\
 `He won eight PGA Tour tournaments and two senior majors — but it was his flair on the greens that made him one of the sport’s most popular players.`\
 https://nytimes.com/2024/08/08/sports/golf/chi-chi-rodriguez-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/08/business/media/kamala-harris-press-interviews.htm
 **Cowboys owner Jerry Jones not concerned about CeeDee Lamb contract situation**\
 `The Cowboys' star receiver responded to Jerry Jones' comments online, writing "lol."`\
 https://nytimes.com/athletic/5690401/2024/08/08/cowboys-ceedee-lamb-contract-jerry-jones/
-
-**Struggling Braves swept as a 16-7 loss drops them to fourth in wild-card race**\
-`Braves starters have lasted fewer than five innings in all five games during their losing streak.`\
-https://nytimes.com/athletic/5690338/2024/08/08/braves-wild-card-charlie-morton/
 
