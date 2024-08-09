@@ -2,8 +2,8 @@
 `Rams rookie Jared Verse catches Dak Prescott's attention during joint practice. "Very talented," the Cowboys' QB said.`\
 https://nytimes.com/athletic/5690359/2024/08/08/la-rams-practice-defense-cowboys/
 
-**NBA's Christmas Day slate to feature Lakers-Warriors, Spurs-Knicks**\
-`There will be five games expected to showcase the league's biggest stars.`\
+**NBA's Christmas slate to feature Lakers-Warriors, Spurs-Knicks**\
+`There will be five games showcasing the league's biggest stars on the holiday.`\
 https://nytimes.com/athletic/5690493/2024/08/08/nba-christmas-2024-schedule/
 
 **Giants endure a soaking, and Hurricane Camilo, to win in Washington and edge above .500**\
