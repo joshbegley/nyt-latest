@@ -1,3 +1,35 @@
+**Quotation of the Day: Paris Strategy for the Dutch: Fist Taps Only**\
+`Quotation of the Day for Friday, August 9, 2024.`\
+https://nytimes.com/2024/08/09/pageoneplus/quotation-of-the-day-paris-strategy-for-the-dutch-fist-taps-only.html
+
+**In Multicultural Liverpool, Residents Rallied Against Hate**\
+`Liverpool has a long history of protest. Residents continued that tradition this week, delivering a resounding message to anti-immigrant rioters: Not here.`\
+https://nytimes.com/2024/08/09/world/europe/in-multicultural-liverpool-residents-rallied-against-hate.html
+
+**How the Olympics Mascot Went From Bizarre to Beloved**\
+`Merchandise featuring the cheery red figure, which is based on a symbol of the French Revolution, has become a best seller at boutiques around Paris.`\
+https://nytimes.com/2024/08/09/business/olympics-mascot-phryge-merchandise.html
+
+**I am a Stripper. My Boyfriend Saw Me Through the Eyes of a Customer.**\
+`My job has meant independence, healing and freedom. Why couldn’t my partner see that?`\
+https://nytimes.com/2024/08/09/style/modern-love-stripper-boyfriend.html
+
+**He’s a Man of Few Words. Especially Over Text.**\
+`Kate Mullen and Wes Skillicorn complemented each other’s personalities — especially when life threw them a curveball.`\
+https://nytimes.com/2024/08/09/style/kate-mullen-wes-skillicorn-wedding.html
+
+**Nothing Messy About Their Love Story**\
+`As a houseguest in 2016, Daniel Weingart didn’t make a great impression on Aspen Matis. But her opinion of him shifted a year later.`\
+https://nytimes.com/2024/08/09/style/aspen-matis-daniel-weingart-wedding.html
+
+**Three Rings, Two College Students and One Big Risk**\
+`Arya Singh let down her guard with Logan Mundy in a way she rarely did with others. Afterward, things became thrillingly normal.`\
+https://nytimes.com/2024/08/09/style/arya-singh-logan-mundy-wedding.html
+
+**How China Built Tech Prowess: Chemistry Classes and Research Labs**\
+`Stressing science education, China is outpacing other countries in research fields like battery chemistry, crucial to its lead in electric vehicles.`\
+https://nytimes.com/2024/08/09/business/china-ev-battery-tech.html
+
 **Maybe the Yankees should have traded for Jack Flaherty. These starters are struggling**\
 `Nestor Cortes gave up six more runs in a loss to the Angels on Thursday. Marcus Stroman gets his next chance to rebound this weekend.`\
 https://nytimes.com/athletic/5690173/2024/08/08/yankees-pitching-trade-jack-flaherty-nestor-cortes/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/5690173/2024/08/08/yankees-pitching-trade-jack-flah
 **Vladimir Guerrero Jr.'s 20-game hit streak a reason to watch amid lost Blue Jays season**\
 `Guerrero had a monster game to extend his streak, homering with his father in attendance.`\
 https://nytimes.com/athletic/5690671/2024/08/08/vladimir-guerrero-blue-jays-hit-streak/
-
-**New Footage From the Trump Assassination Attempt Shows a Frantic Police Effort to Reach the Gunman**\
-`Bodycam videos and other footage provide new insights into the law enforcement response and presence at the building where the shooter was positioned.`\
-https://nytimes.com/2024/08/08/us/politics/trump-rally-shooting-bodycam-footage.html
-
-**Chi Chi Rodriguez, the Golf World’s Swashbuckling Champion, Dies at 88**\
-`He won eight PGA Tour tournaments and two senior majors — but it was his flair on the greens that made him one of the sport’s most popular players.`\
-https://nytimes.com/2024/08/08/sports/golf/chi-chi-rodriguez-dead.html
-
-**What kind of season is Pete Alonso having?**\
-`Alonso hit two home runs at Coors Field on Thursday that combined to travel 925 feet.`\
-https://nytimes.com/athletic/5690625/2024/08/08/mets-pete-alonso/
-
-**Grant Holloway puts his cards on the table after winning gold, clearing big resume hurdle**\
-`“I'm in an event that I truly do love, but I don't see myself switching,” he said. “I don't see myself going somewhere else."`\
-https://nytimes.com/athletic/5690514/2024/08/08/grant-holloway-hurdles-gold-medal-speaks-out/
-
-**Entry Fee for Some Clubs**\
-`Hemant Mehta opens our solving weekend with one of the crunchiest crosswords in recent memory.`\
-https://nytimes.com/2024/08/08/crosswords/daily-puzzle-2024-08-09.html
-
-**Rams' Jared Verse, Kam Kinchens showed up well in joint practice with Cowboys**\
-`Rams rookie Jared Verse catches Dak Prescott's attention during joint practice. "Very talented," the Cowboys' QB said.`\
-https://nytimes.com/athletic/5690359/2024/08/08/la-rams-practice-defense-cowboys/
-
-**NBA's Christmas slate to feature Lakers-Warriors, Spurs-Knicks**\
-`There will be five games showcasing the league's biggest stars on the holiday.`\
-https://nytimes.com/athletic/5690493/2024/08/08/nba-christmas-2024-schedule/
-
-**Giants endure a soaking, and Hurricane Camilo, to win in Washington and edge above .500**\
-`They were interrupted by rain delays and three blown leads, but the Giants ended the day with a winning record for the first time since May.`\
-https://nytimes.com/athletic/5690437/2024/08/08/sf-giants-rain-delays-camilo-doval/
 
