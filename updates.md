@@ -1,3 +1,19 @@
+**The Perseids Meteor Shower Is Peaking. Here’s How to Watch.**\
+`Warm summer nights and swift colorful streaks make this meteor shower a crowd favorite, but this year, observers may have to compete with light from the moon.`\
+https://nytimes.com/2024/08/09/science/perseids-meteor-shower-how-to-watch.html
+
+**Tim Walz Was a Clear Eyes, Full Hearts Kind of Coach**\
+`“The guy was never negative,” another coach said. “That’s what we loved about him. Everything was a positive.”`\
+https://nytimes.com/2024/08/09/us/tim-walz-coach.html
+
+**Conner O’Malley’s Intensely Funny, Deeply Stupid Manosphere**\
+`A cult hero in the comedy world, he specializes in desperately ambitious men doomed to fail. But don’t ignore the element of empathy.`\
+https://nytimes.com/2024/08/09/arts/conner-omalley-comedian.html
+
+**Stefanos Tsitsipas splits with coach and father Apostolos**\
+`Stefanos Tsitsipas has announced his father Apostolos will no longer coach him after his public criticism following his exit from the Canadian Open.`\
+https://nytimes.com/athletic/5691518/2024/08/09/stefanos-tsitsipas-coach-father-canadian-open/
+
 **Facing Turmoil at Home, Young Artists Find a Musical Haven in New York**\
 `Hundreds of students from Venezuela, Afghanistan, Israel and elsewhere converged at Carnegie Hall, using music to cope in a time of strife and unrest.`\
 https://nytimes.com/2024/08/09/arts/music/world-orchestra-week-youth-orchestras-carnegie-hall.html
