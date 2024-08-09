@@ -1,3 +1,11 @@
+**Trump Restates His Desire for More Say Over the Fed**\
+`The former president made his clearest statement yet that he wants influence over the central bank’s rate policy if he wins re-election.`\
+https://nytimes.com/2024/08/09/business/dealbook/trump-fed-interest-rates.html
+
+**3rd Teenager Arrested Over Planned Attack on Taylor Swift’s Vienna Shows**\
+`The authorities said the 18-year-old was connected to the main suspect and had recently sworn allegiance to the Islamic State.`\
+https://nytimes.com/2024/08/09/world/europe/taylor-swift-concerts-vienna-attack-arrests.html
+
 **The Athletic FC: Hillsborough's 'shocking' safety issues, Pochettino in USMNT frame**\
 `Today in The Athletic FC: Safety problems at Hillsborough 35 years after tragedy, Pochettino in frame for USMNT job and De Gea set for Italy`\
 https://nytimes.com/athletic/5690999/2024/08/09/hillsborough-safety-pochettino-usmnt-de-gea-fiorentina-the-athletic-fc/
