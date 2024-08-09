@@ -1,3 +1,7 @@
+**Shawn Mendes Returns Full of Questions, and 8 More New Songs**\
+`Hear tracks by Leon Bridges, Ravyn Lenae, Kelsea Ballerini and others.`\
+https://nytimes.com/2024/08/09/arts/music/playlist-shawn-mendes-kelsea-ballerini.html
+
 **NWSL and NWSLPA  agree terms on new collective bargaining agreement**\
 `The National Women&#8217;s Soccer League (NWSL) and the NWSL Players Association have agreed terms on a new long-term collective bargaining agreement, confirmed to The Athletic by a source with knowledge of the negotiations who was not authorized to speak publicly on the deal.`\
 https://nytimes.com/athletic/5691624/2024/08/09/nwsl-and-nwslpa-agree-terms-on-new-collective-bargaining-agreement/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/09/us/politics/harris-shapiro-pennsylvania.html
 **Live Q&A: Talking baseball with Eno Sarris on Friday 8/9 at 1:30 p.m. ET**\
 `Submit your questions for Eno Sarris' live Q&A, exclusively for subscribers.`\
 https://nytimes.com/athletic/5690345/2024/08/09/eno-sarris-live-chat-mlb-fantasy-baseball-8-9/
-
-**Trump’s Call to End Taxes on Social Security**\
-`Readers worry about the impact and suggest it’s just an empty campaign promise. Also: Trump’s news conference; V.P. candidates’ military records; Jewish voters.`\
-https://nytimes.com/2024/08/09/opinion/trump-social-security-taxes.html
 
