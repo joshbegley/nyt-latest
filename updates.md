@@ -1,3 +1,7 @@
+**My Beloved Italian City Has Turned Into Tourist Hell. Must We Really Travel Like This?**\
+`Must we really travel like this?`\
+https://nytimes.com/2024/08/09/opinion/italy-tourists-bologna-mortadella.html
+
 **De Gea set to join Fiorentina**\
 `Former Manchester United goalkeeper David de Gea is set to travel to Italy on Friday ahead of a proposed move to Fiorentina.`\
 https://nytimes.com/athletic/5689457/2024/08/09/david-de-gea-fiorentina-transfer/
