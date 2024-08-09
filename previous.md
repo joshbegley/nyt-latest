@@ -1,3 +1,7 @@
+**Taylor Swift Fans in Vienna React After Cancellations**\
+`Taylor Swift fans described their disappointment after organizers canceled her Eras Tour dates in Vienna after Austrian authorities uncovered a terrorist plot targeting the event.`\
+https://nytimes.com/video/world/europe/100000009621182/taylor-swift-fans-react-vienna.html
+
 **Finding the ‘Olympic Spirit’ at La Villette**\
 `La Villette, a park in the north of Paris, has been transformed into Nations Park for the Olympics. Rory Smith, a global sports correspondent for The New York Times, explains how the park embodies the spirit of the Games.`\
 https://nytimes.com/video/sports/100000009616361/la-villette-nations-park-2024-paris-olympics.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5691711/2024/08/09/womens-4x100-relay-results-usa/
 **Shawn Mendes Returns Full of Questions, and 8 More New Songs**\
 `Hear tracks by Leon Bridges, Ravyn Lenae, Kelsea Ballerini and others.`\
 https://nytimes.com/2024/08/09/arts/music/playlist-shawn-mendes-kelsea-ballerini.html
-
-**NWSL and NWSLPA  agree terms on new collective bargaining agreement**\
-`The National Women&#8217;s Soccer League (NWSL) and the NWSL Players Association have agreed terms on a new long-term collective bargaining agreement, confirmed to The Athletic by a source with knowledge of the negotiations who was not authorized to speak publicly on the deal.`\
-https://nytimes.com/athletic/5691624/2024/08/09/nwsl-and-nwslpa-agree-terms-on-new-collective-bargaining-agreement/
 
