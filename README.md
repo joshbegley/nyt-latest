@@ -1,3 +1,7 @@
+**Cowboys owner Jerry Jones not concerned about CeeDee Lamb contract situation**\
+`The Cowboys' star receiver responded to Jerry Jones' comments online, writing "lol."`\
+https://nytimes.com/athletic/5690401/2024/08/08/cowboys-ceedee-lamb-contract-jerry-jones/
+
 **Struggling Braves swept as a 16-7 loss drops them to fourth in wild-card race**\
 `Braves starters have lasted fewer than five innings in all five games during their losing streak.`\
 https://nytimes.com/athletic/5690338/2024/08/08/braves-wild-card-charlie-morton/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/08/us/politics/aclu-employee-racism-false-accusation
 **Tim Walz and the Weird Politics of Free School Lunches**\
 `Another reminder that MAGA isn’t “populist.”`\
 https://nytimes.com/2024/08/08/opinion/tim-walz-school-lunch.html
-
-**House Republicans Pivot Scrutiny From Biden to Harris**\
-`Three months ahead of the election, congressional Republicans are moving to close a strategic gap.`\
-https://nytimes.com/2024/08/08/us/politics/harris-house-republicans-investigations.html
 
