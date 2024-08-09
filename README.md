@@ -1,3 +1,23 @@
+**Liverpool continuing to work on Zubimendi deal**\
+`Liverpool are continuing to work on signing midfielder Martin Zubimendi from Real Sociedad.`\
+https://nytimes.com/athletic/5691454/2024/08/09/liverpool-martin-zubimendi-transfer-latest/
+
+**Premier League plans for pre-season U.S. tournament face challenges from clubs**\
+`England’s top division wants to hold another Summer Series in the U.S. next July - but there are lots of hurdles to navigate`\
+https://nytimes.com/athletic/5689920/2024/08/09/premier-league-united-states-pre-season/
+
+**Our Five-Star Tomato Tart**\
+`If your tomatoes aren’t perfect, so much the better — a quick blast in the oven and some dollops of ricotta and pesto make them shine.`\
+https://nytimes.com/2024/08/09/dining/our-five-star-tomato-tart.html
+
+**30 Minutes With the ‘World’s Most Advanced’ Massage Robot**\
+`A.I.-informed massage robots will arrive at some Equinox gyms this month. I gave one a try.`\
+https://nytimes.com/2024/08/09/well/massage-robot.html
+
+**Five Action Movies to Stream Now**\
+`This month’s picks include anarchists, hostage crises and sweaty M.M.A. fighters.`\
+https://nytimes.com/2024/08/09/movies/action-movies-streaming.html
+
 **The Houston Texans are loving life with Stefon Diggs**\
 `The star receiver has earned rave reviews from DeMeco Ryans and the coaching staff`\
 https://nytimes.com/athletic/5691325/2024/08/09/stefon-diggs-attitude-houston-texans/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5691316/2024/08/09/sf-giants-2014-world-series-reun
 **Doug Emhoff Stresses a Personal Push Against Antisemitism**\
 `At an event in Paris to commemorate a 1982 attack on a Jewish deli there, Kamala Harris’s husband said, “Part of fighting hate is living openly and proudly as a Jew.”`\
 https://nytimes.com/2024/08/09/world/europe/doug-emhoff-antisemitism-paris.html
-
-**6 New Paperbacks to Read This Week**\
-`Including titles by Brando Skyhorse, Barack Obama, Costica Bradatan and more. `\
-https://nytimes.com/interactive/2024/08/09/books/review/new-paperbacks-skyhorse.html
-
-**The Paris Bridge of Olympic Joy and Its Violent Past**\
-`The Pont du Carrousel, gathering place of joyous crowds, has come to symbolize a season of magic. It was not always so.`\
-https://nytimes.com/2024/08/09/world/europe/paris-bridge-olympics.html
-
-**Debby’s Remnants Bring Tornado Alerts and Snarl Some East Coast Air Traffic**\
-`There is at least some risk of tornadoes in New Jersey, eastern Pennsylvania and southeast New York on Friday.`\
-https://nytimes.com/2024/08/09/weather/debby-forecast-friday-new-york.html
-
-**Oilers prospect Wanner a darkhorse candidate for 2024-25 NHL debut**\
-`Wanner has a difficult case to make to play in the NHL in the 2024-25 season. But he does have results.`\
-https://nytimes.com/athletic/5690112/2024/08/09/oilers-prospects-max-wanner/
-
-**Nancy Pelosi on Joe Biden, Tim Walz and Donald Trump**\
-`The former Speaker of the House discusses the election and the art of power.`\
-https://nytimes.com/video/opinion/100000009620975/nancy-pelosi-on-joe-biden-tim-walz-and-donald-trump.html
 
