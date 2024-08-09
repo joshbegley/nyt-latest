@@ -1,3 +1,7 @@
+**Tottenham working to finalise Solanke transfer**\
+`Bournemouth have agreed to sell Dominic Solanke for a club-record fee, and talks with Tottenham Hotspur are ongoing to finalise a deal for the striker.`\
+https://nytimes.com/athletic/5568275/2024/08/09/dominic-solanke-tottenham-transfer/
+
 **The Battle Over a Sidewalk Goldfish Pond in Brooklyn**\
 `In Bedford-Stuyvesant, an animal lover thought she was doing the right thing by freeing fish from a cement pit. The man who created the pond saw it differently.`\
 https://nytimes.com/2024/08/09/nyregion/goldfish-sidewalk-pond-brooklyn.html

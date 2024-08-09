@@ -1,3 +1,7 @@
+**Tottenham working to finalise Solanke transfer**\
+`Bournemouth have agreed to sell Dominic Solanke for a club-record fee, and talks with Tottenham Hotspur are ongoing to finalise a deal for the striker.`\
+https://nytimes.com/athletic/5568275/2024/08/09/dominic-solanke-tottenham-transfer/
+
 **The Battle Over a Sidewalk Goldfish Pond in Brooklyn**\
 `In Bedford-Stuyvesant, an animal lover thought she was doing the right thing by freeing fish from a cement pit. The man who created the pond saw it differently.`\
 https://nytimes.com/2024/08/09/nyregion/goldfish-sidewalk-pond-brooklyn.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5689438/2024/08/09/olympics-final-brazil-marta/
 **Special report: 'Disturbing' safety issues at Hillsborough 35 years after disaster**\
 `An investigation into safety issues at Hillsborough reveals significant concerns over the Leppings Lane end that still houses away supporter`\
 https://nytimes.com/athletic/5687056/2024/08/09/hillsborough-disturbing-safety-issues/
-
-**Word of the Day: cuneiform**\
-`This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/08/09/learning/word-of-the-day-cuneiform.html
 
