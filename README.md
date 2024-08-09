@@ -1,40 +1,40 @@
-**Gay Men Have Long Been Obsessed With Their Muscles. Now Everyone Is.**\
-`In Hollywood, on Instagram and beyond, the male-on-male gaze still decides what’s hot and what’s not.`\
-https://nytimes.com/2024/08/09/t-magazine/gay-men-muscles-body-culture.html
+**Cool Songs for a Hot Summer**\
+`New tracks from Jack White, Meshell Ndegeocello and more`\
+https://nytimes.com/2024/08/09/podcasts/cool-songs-for-a-hot-summer.html
 
-**Habitat for Humanity Helped Them Get Homes. An Insurance Crisis May Take Them Away.**\
-`In New Orleans, low-income homeowners are at risk of losing houses built by the nonprofit as more storms hit the city and property insurance prices soar.`\
-https://nytimes.com/2024/08/09/us/new-orleans-habitat-for-humanity-insurance.html
+**About 400 Million People Worldwide Have Had Long Covid, Researchers Say**\
+`The condition has put significant strain on patients and society — at a global economic cost of about $1 trillion a year, a new report estimates.`\
+https://nytimes.com/2024/08/09/health/long-covid-world.html
 
-**A Show of Support for Hamas in a Rival’s Backyard**\
-`After Hamas’s political leader was killed, some honored him in the Israeli-occupied West Bank, where a rival Palestinian faction is dominant.`\
-https://nytimes.com/2024/08/09/world/middleeast/hamas-support-west-bank-haniyeh.html
+**A Must-See Film About a Terribly Difficult Subject**\
+`“Sugarcane” follows survivors and investigators after the horrifying treatment of Indigenous Canadians was discovered at residential schools.`\
+https://nytimes.com/2024/08/09/movies/sugarcane-documentary-indigenous-communities.html
 
-**Ferguson 10 Years Later: How Protests Gave Way to Politics and Policy**\
-`The shooting death of Michael Brown created a political incubator of emerging local leaders, some of whom are finding themselves in the corridors of power.`\
-https://nytimes.com/2024/08/09/us/ferguson-michael-brown-10-years.html
+**‘Mafia Spies’ Recounts the C.I.A. Plot to Kill Castro**\
+`The docuseries tells the bizarre but true story of the C.I.A.’s various schemes to use the mob to assassinate the leader of Cuba.`\
+https://nytimes.com/2024/08/09/arts/television/mafia-spies-cia-kill-castro.html
 
-**How ‘Head Hunters’ Shook Up Jazz (and Herbie Hancock’s World)**\
-`The 1973 album proved that jazz could make a major impact on the modern pop mainstream. Its surviving musicians are reuniting for a Los Angeles concert this month.`\
-https://nytimes.com/2024/08/09/arts/music/herbie-hancock-head-hunters.html
+**Tim Walz Is Vibing**\
+`Democrats are trying to make the election about who is cool and who is weird. Will it stick?`\
+https://nytimes.com/2024/08/09/opinion/tim-walz-harris-trump.html
 
-**Colts rookie report: Laiatu Latu looks like a game-wrecker, Adonai Mitchell emerging**\
-`In a surprising twist, fifth-round pick Anthony Gould, a standout punt returner in college, has flashed as a receiver during camp. `\
-https://nytimes.com/athletic/5689764/2024/08/09/indianapolis-colts-rookies-laiatu-latu-adonai-mitchell/
+**Why Vermont Is Nervously Watching the Remnants of Hurricane Debby**\
+`The state has faced repeated flooding emergencies, with mountain streams turned into torrents, and could be in for another deluge.`\
+https://nytimes.com/2024/08/09/us/vermont-debby-flooding.html
 
-**Kenneth Grant, Michigan's freakish defensive tackle, moves like a 'work of art'**\
-`Grant is one of the most athletic big men in college football and will serve as a cornerstone on a rebuilt Michigan defense in 2024. `\
-https://nytimes.com/athletic/5687815/2024/08/09/michigan-kenneth-grant-freaks-list/
+**Google’s Monopoly Money + Is the A.I. Bubble Popping? + The Hot-Mess Express**\
+`“Maybe this actually is a chance to press the reset button on the internet.”`\
+https://nytimes.com/2024/08/09/podcasts/hardfork-google-antitrust-ai-bubble.html
 
-**Lefty QBs used to be an NFL annoyance but Dolphins are flipping the script with Tua**\
-`What if there was a way to turn a visual anomaly into a schematic advantage?`\
-https://nytimes.com/athletic/5689504/2024/08/09/tua-tagovailoa-dolphins-left-handed-quarterbacks-advantage/
+**4 Ways to Keep Your Vacation Going After You’re Back**\
+`Those good vibes seem to disappear immediately, but it’s possible to extend them.`\
+https://nytimes.com/2024/08/09/well/live/vacation-habits.html
 
-**Five unanswered Seahawks questions on eve of preseason: How reliable is the O-line?**\
-`Seattle has some competitions to sort out and rookies to debut up front. Meanwhile, Byron Murphy II will make his debut on defense.`\
-https://nytimes.com/athletic/5690582/2024/08/09/seahawks-preseason-opener-chargers/
+**The New York Times News Quiz, Aug. 9, 2024**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2024/08/09/briefing/news-quiz-harris-walz-debby-stocks.html
 
-**Giants stock report: RB Eric Gray, QB Tommy DeVito stand out in preseason win vs. Lions**\
-`Gray's stock seemed to be slipping during camp, but he turned things around in a big way Thursday night. `\
-https://nytimes.com/athletic/5690759/2024/08/09/new-york-giants-stock-report-eric-gray-lions-preseason/
+**5 Things to Do This Weekend**\
+`A selection of entertainment highlights this weekend, including screenings of “The Texas Chain Saw Massacre,” which soon turns 50.`\
+https://nytimes.com/interactive/2024/08/09/arts/weekend-editors-picks-texas-chainsaw-massacre.html
 
