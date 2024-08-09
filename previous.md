@@ -1,3 +1,7 @@
+**Donald Trump Feels Bad — So Very Bad — About Poor Joe Biden**\
+`At his news conference in Florida on Thursday, the former president told a tale of treachery perpetrated against President Biden by Barack Obama, Nancy Pelosi and Kamala Harris.`\
+https://nytimes.com/2024/08/08/us/politics/trump-biden-press-conference.html
+
 **Israel and Norway’s diplomatic clash over Palestinian statehood deepens.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/08/08/world/israel-iran-hamas-gaza-war/israel-norway-palestinian-statehood
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/08/nyregion/rikers-inmates-health-care.html
 **Cindy Ngamba captures first ever medal for Olympic refugee team**\
 `It is Ngamba's first time competing under the refugee flag after becoming the first-ever refugee boxer to qualify for the Olympic Games.`\
 https://nytimes.com/athletic/5689644/2024/08/08/cindy-ngamba-boxing-medal-refugee-team-history/
-
-**‘The time has come,’ Biden, El-Sisi and Al-Thani say in a joint statement.**\
-`By Peter Baker`\
-https://nytimes.com/live/2024/08/08/world/israel-iran-hamas-gaza-war/us-egypt-qatar-cease-fire-deal
 

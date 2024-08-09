@@ -1,3 +1,7 @@
+**Donald Trump Feels Bad — So Very Bad — About Poor Joe Biden**\
+`At his news conference in Florida on Thursday, the former president told a tale of treachery perpetrated against President Biden by Barack Obama, Nancy Pelosi and Kamala Harris.`\
+https://nytimes.com/2024/08/08/us/politics/trump-biden-press-conference.html
+
 **Israel and Norway’s diplomatic clash over Palestinian statehood deepens.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/08/08/world/israel-iran-hamas-gaza-war/israel-norway-palestinian-statehood
