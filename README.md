@@ -1,3 +1,7 @@
+**As Ukraine Presses an Advance Into Russia, Its Goals Remain Unclear**\
+`Despite quick gains in the western Russian region of Kursk, analysts question whether Ukraine can maintain the momentum.`\
+https://nytimes.com/2024/08/09/world/europe/ukraine-russia-kursk-lipetsk.html
+
 **Arsenal ready to sanction Nketiah’s Marseille loan with €30m obligation to buy**\
 `Arsenal are ready to sanction Eddie Nketiah’s departure to Marseille on loan with an obligation to buy for a fee in the region of €30million.`\
 https://nytimes.com/athletic/5658066/2024/08/09/eddie-nketiah-marseille-arsenal-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/09/podcasts/the-daily/breakings-olympic-debut.html
 **Naomi Girma's invaluable defending and leadership for USWNT: 'It's an art'**\
 `Girma has solidified herself as a leader on and off the pitch. She has flourished at the Olympic Games so far`\
 https://nytimes.com/athletic/5690139/2024/08/09/naomi-girma-uswnt-olympics/
-
-**Wordle Review No. 1,148**\
-`Scroll down for hints and conversation about the puzzle for Saturday, August 10, 2024.`\
-https://nytimes.com/2024/08/09/crosswords/wordle-review-1148.html
 
