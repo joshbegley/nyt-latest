@@ -7,7 +7,7 @@ https://nytimes.com/2024/08/09/opinion/disney-revitalize.html
 https://nytimes.com/2024/08/09/business/cash-app-settlement.html
 
 **Spain win gold in Olympic men’s football after beating France 5-3 in final**\
-`Spain came from behind with three goals in 10 first-half minutes then survived a late France fightback and extra time to seal their summer of international football glory with Olympic gold in the highest-scoring men&#8217;s soccer gold medal match since 1912.`\
+`Spain came from behind with three goals in 10 first-half minutes then survived a late France fightback and extra time to seal their summer of international football glory with Olympic gold.`\
 https://nytimes.com/athletic/5691736/2024/08/09/spain-france-olympic-football-final/
 
 **American wrestler Spencer Lee defeated in gold medal final**\
