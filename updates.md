@@ -1,3 +1,7 @@
+**How the red-hot Padres cultivated the most contact-prone offense in baseball**\
+`“If you put the ball in play, you have a better chance to do something,” said Victor Rodriguez, the team's lead hitting coach.`\
+https://nytimes.com/athletic/5690648/2024/08/09/padres-contact-prone-offense/
+
 **Trump Restates His Desire for More Say Over the Fed**\
 `The former president made his clearest statement yet that he wants influence over the central bank’s rate policy if he wins re-election.`\
 https://nytimes.com/2024/08/09/business/dealbook/trump-fed-interest-rates.html
