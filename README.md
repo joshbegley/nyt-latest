@@ -1,3 +1,7 @@
+**NBA's Christmas Day slate to feature Lakers-Warriors, Spurs-Knicks**\
+`There will be five games expected to showcase the league's biggest stars.`\
+https://nytimes.com/athletic/5690493/2024/08/08/nba-christmas-2024-schedule/
+
 **Giants endure a soaking, and Hurricane Camilo, to win in Washington and edge above .500**\
 `They were interrupted by rain delays and three blown leads, but the Giants ended the day with a winning record for the first time since May.`\
 https://nytimes.com/athletic/5690437/2024/08/08/sf-giants-rain-delays-camilo-doval/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/08/business/samsung-recalls-electric-stoves.html
 **Israel Prepares for Expected Attacks by Iran and Hezbollah**\
 `Israel advised people to stock up on food and water in fortified safe rooms, while Prime Minister Benjamin Netanyahu told soldiers that Israel is “prepared for defense, as well as offense.”`\
 https://nytimes.com/2024/08/08/world/middleeast/israel-prepare-iran-attack.html
-
-**Team USA, with Olympic hopes teetering, turned to an unlikely place — defense**\
-`"I think that we just upped the pressure," Kevin Durant said. "We made them turn the ball over. And we contested their shots."`\
-https://nytimes.com/athletic/5690134/2024/08/08/us-mens-basketball-olympics-defense-serbia/
 
