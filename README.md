@@ -1,3 +1,7 @@
+**Plane Carrying 62 People Crashes in Brazil**\
+`VoePass Flight 2283 crashed outside São Paulo on Friday afternoon. The status of the passengers and crew is unknown.`\
+https://nytimes.com/2024/08/09/world/americas/brazil-plane-crash-voepass.html
+
 **Gaza cease-fire push by U.S., Qatar and Egypt faces big challenges.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/08/09/world/israel-iran-hamas-gaza-war/gaza-cease-fire-push-by-us-qatar-and-egypt-faces-big-challenges
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5691644/2024/08/09/team-usa-australia-olympics-bask
 **O'Neil signs new Wolves contract**\
 `Wolves manager Gary O’Neil has committed his future to the club by signing a new four-year deal.`\
 https://nytimes.com/athletic/5691666/2024/08/09/gary-oneil-wolves-contract/
-
-**AC Milan agree deal with Tottenham for Emerson Royal signing**\
-`AC Milan have agreed a deal with Tottenham Hotspur for the signing of defender Emerson Royal.`\
-https://nytimes.com/athletic/5691529/2024/08/09/emerson-royal-milan-tottenham-transfer/
 
