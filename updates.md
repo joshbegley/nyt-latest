@@ -1,3 +1,13 @@
+**Israel Launches Another Offensive in Gaza’s South Amid Push for Cease-Fire**\
+`The country’s prime minister, Benjamin Netanyahu, said he would send negotiators what leaders including President Biden called the presentation of a “final” cease-fire proposal.`\
+https://nytimes.com/live/2024/08/09/world/israel-iran-hamas-gaza-war
+
+**Israel said its attack in Khan Younis involved fighter jets, helicopter gunships and paratroopers.**\
+`By Victoria Kim and Johnatan Reiss`\
+https://nytimes.com/2024/08/09/world/middleeast/israel-said-its-attack-in-khan-younis-involved-fighter-jets-helicopter-gunships-and-paratroopers.html
+
+**Syrian state media says four were injured in Israeli strikes on military sites, and other news.**\
+
 **Tottenham working to finalise Solanke transfer**\
 `Bournemouth have agreed to sell Dominic Solanke for a club-record fee, and talks with Tottenham Hotspur are ongoing to finalise a deal for the striker.`\
 https://nytimes.com/athletic/5568275/2024/08/09/dominic-solanke-tottenham-transfer/
