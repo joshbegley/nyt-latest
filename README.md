@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5690401/2024/08/08/cowboys-ceedee-lamb-contract-jer
 `Braves starters have lasted fewer than five innings in all five games during their losing streak.`\
 https://nytimes.com/athletic/5690338/2024/08/08/braves-wild-card-charlie-morton/
 
-**That Time Trump Nearly Died in a Helicopter Crash? Didn’t Happen**\
+**That Time Trump Nearly Died in a Helicopter Crash? Didn’t Happen.**\
 `In a news conference, the former president recounted a brush with death alongside Willie Brown, the former San Francisco mayor. A few aspects of the story don’t hold up to scrutiny.`\
 https://nytimes.com/2024/08/08/us/politics/trump-helicopter-willie-brown.html
 
