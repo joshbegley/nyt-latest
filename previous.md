@@ -1,3 +1,11 @@
+**De Gea set to join Fiorentina**\
+`Former Manchester United goalkeeper David de Gea is set to travel to Italy on Friday ahead of a proposed move to Fiorentina.`\
+https://nytimes.com/athletic/5689457/2024/08/09/david-de-gea-fiorentina-transfer/
+
+**Will it be third time lucky for Brazil as they face the U.S. again in an Olympic final?**\
+`Brazil struggled through the group stage and only qualified as the second best third-placed team, but are now a side united and revived`\
+https://nytimes.com/athletic/5689438/2024/08/09/olympics-final-brazil-marta/
+
 **Special report: 'Disturbing' safety issues at Hillsborough 35 years after disaster**\
 `An investigation into safety issues at Hillsborough reveals significant concerns over the Leppings Lane end that still houses away supporter`\
 https://nytimes.com/athletic/5687056/2024/08/09/hillsborough-disturbing-safety-issues/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5688755/2024/08/09/leicester-souttar-daka-nelson-tr
 **Leeds United season preview: Aaronson returns, Joseph stepping up, and a chance for Crew**\
 `Has Daniel Farke got a squad that can win the Championship?`\
 https://nytimes.com/athletic/5676257/2024/08/09/leeds-season-preview-2024-25/
-
-**How Feyenoord used data before deciding to sell Mats Wieffer to Brighton**\
-`Why Brighton reckon Dutch midfielder Wieffer is a good fit for them - and why his former club thought so too`\
-https://nytimes.com/athletic/5681169/2024/08/09/mats-wieffer-brighton-feyenoord-data/
-
-**FPL: This season's best out-of-position players**\
-`Here's how you can utilise those players who won't be operating in their designated FPL positions to rack up the points `\
-https://nytimes.com/athletic/5656161/2024/08/09/fantasy-premier-league-this-seasons-best-out-of-position-players/
 

@@ -1,3 +1,11 @@
+**De Gea set to join Fiorentina**\
+`Former Manchester United goalkeeper David de Gea is set to travel to Italy on Friday ahead of a proposed move to Fiorentina.`\
+https://nytimes.com/athletic/5689457/2024/08/09/david-de-gea-fiorentina-transfer/
+
+**Will it be third time lucky for Brazil as they face the U.S. again in an Olympic final?**\
+`Brazil struggled through the group stage and only qualified as the second best third-placed team, but are now a side united and revived`\
+https://nytimes.com/athletic/5689438/2024/08/09/olympics-final-brazil-marta/
+
 **Special report: 'Disturbing' safety issues at Hillsborough 35 years after disaster**\
 `An investigation into safety issues at Hillsborough reveals significant concerns over the Leppings Lane end that still houses away supporter`\
 https://nytimes.com/athletic/5687056/2024/08/09/hillsborough-disturbing-safety-issues/
