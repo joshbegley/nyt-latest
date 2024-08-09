@@ -1,3 +1,7 @@
+**Travis Scott Is Accused of Assaulting a Security Guard in Paris**\
+`The rapper, who was in France for the Olympics, was taken into police custody at the George V hotel, the Paris prosecutor’s office said.`\
+https://nytimes.com/2024/08/09/arts/music/travis-scott-paris-assault.html
+
 **Liverpool continuing to work on Zubimendi deal**\
 `Liverpool are continuing to work on signing midfielder Martin Zubimendi from Real Sociedad.`\
 https://nytimes.com/athletic/5691454/2024/08/09/liverpool-martin-zubimendi-transfer-latest/
