@@ -1,3 +1,11 @@
+**Maybe the Yankees should have traded for Jack Flaherty. These starters are struggling**\
+`Nestor Cortes gave up six more runs in a loss to the Angels on Thursday. Marcus Stroman gets his next chance to rebound this weekend.`\
+https://nytimes.com/athletic/5690173/2024/08/08/yankees-pitching-trade-jack-flaherty-nestor-cortes/
+
+**Vladimir Guerrero Jr.'s 20-game hit streak a reason to watch amid lost Blue Jays season**\
+`Guerrero had a monster game to extend his hit streak to 20, homering with his father in attendance.`\
+https://nytimes.com/athletic/5690671/2024/08/08/vladimir-guerrero-blue-jays-hit-streak/
+
 **New Footage From the Trump Assassination Attempt Shows a Frantic Police Effort to Reach the Gunman**\
 `Bodycam videos and other footage provide new insights into the law enforcement response and presence at the building where the shooter was positioned.`\
 https://nytimes.com/2024/08/08/us/politics/trump-rally-shooting-bodycam-footage.html
