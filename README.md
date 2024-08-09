@@ -1,3 +1,7 @@
+**Aston Villa reject opening offer from Fulham for Carlos**\
+`Aston Villa have rejected an opening offer from Fulham for defender Diego Carlos.`\
+https://nytimes.com/athletic/5676237/2024/08/09/diego-carlos-fulham-aston-villa/
+
 **The Reason Trump and Vance Really Hate Being Called ‘Weird’**\
 `It reminds voters how far out of the mainstream Republicans have gotten.`\
 https://nytimes.com/2024/08/09/opinion/trump-vance-harris-walz-weird.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/09/us/vermont-debby-flooding.html
 **Google’s Monopoly Money + Is the A.I. Bubble Popping? + The Hot-Mess Express**\
 `“Maybe this actually is a chance to press the reset button on the internet.”`\
 https://nytimes.com/2024/08/09/podcasts/hardfork-google-antitrust-ai-bubble.html
-
-**4 Ways to Keep Your Vacation Going After You’re Back**\
-`Those good vibes seem to disappear immediately, but it’s possible to extend them.`\
-https://nytimes.com/2024/08/09/well/live/vacation-habits.html
 
