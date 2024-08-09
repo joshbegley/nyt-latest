@@ -1,3 +1,11 @@
+**How to Watch Biden’s Interview on CBS**\
+`The president spoke with Robert Costa in his first interview since ending his re-election campaign. The discussion will air on “CBS Sunday Morning” at 9 a.m. Eastern time.`\
+https://nytimes.com/2024/08/09/us/politics/how-to-watch-biden-interview-cbs.html
+
+**An Artist Documenting the Beauty of Queer Black South Africa**\
+`Zanele Muholi discusses visual activism, gospel music and walking more than 15,000 steps in a day.`\
+https://nytimes.com/2024/08/09/t-magazine/zanele-muholi-tate-modern-sfmoma.html
+
 **This Is a Picture of the Last Thing Seen by NASA’s Asteroid Hunter**\
 `NEOWISE, a spacecraft that studied faraway cosmic objects before shifting its focus closer to home, has reached the end of its life. But its legacy lives on.`\
 https://nytimes.com/2024/08/09/science/neowise-nasa-asteroid-hunter-last-image.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/09/health/j-robin-warren-dead.html
 **Overlooked No More: Renee Carroll, ‘World’s Most Famous Hatcheck Girl’**\
 `From the cloakroom at Sardi’s, she made her own mark on Broadway, hobnobbing with celebrity clients while safekeeping fedoras, bowlers, derbies and more.`\
 https://nytimes.com/2024/08/09/obituaries/renee-carroll-overlooked.html
-
-**Rai Benjamin claims first Olympic gold in men's 400m hurdles**\
-`Benjamin achieved redemption after taking silver at the Tokyo Olympics behind Norway's Karsten Warholm, who won silver Friday.`\
-https://nytimes.com/athletic/5691915/2024/08/09/rai-benjamin-mens-400-hurdles-olympics/
-
-**Leicester working on deal to sign Zaha on loan from Galatasaray**\
-`Leicester are working on a deal to sign winger Wilfried Zaha from Galatasaray on a season-long loan.`\
-https://nytimes.com/athletic/5691926/2024/08/09/leicester-wilfried-zaha-loan-tranfer-close/
 

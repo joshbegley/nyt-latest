@@ -1,3 +1,11 @@
+**How to Watch Biden’s Interview on CBS**\
+`The president spoke with Robert Costa in his first interview since ending his re-election campaign. The discussion will air on “CBS Sunday Morning” at 9 a.m. Eastern time.`\
+https://nytimes.com/2024/08/09/us/politics/how-to-watch-biden-interview-cbs.html
+
+**An Artist Documenting the Beauty of Queer Black South Africa**\
+`Zanele Muholi discusses visual activism, gospel music and walking more than 15,000 steps in a day.`\
+https://nytimes.com/2024/08/09/t-magazine/zanele-muholi-tate-modern-sfmoma.html
+
 **This Is a Picture of the Last Thing Seen by NASA’s Asteroid Hunter**\
 `NEOWISE, a spacecraft that studied faraway cosmic objects before shifting its focus closer to home, has reached the end of its life. But its legacy lives on.`\
 https://nytimes.com/2024/08/09/science/neowise-nasa-asteroid-hunter-last-image.html
