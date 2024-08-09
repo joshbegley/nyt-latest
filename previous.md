@@ -24,7 +24,7 @@ https://nytimes.com/video/opinion/100000009620975/nancy-pelosi-on-joe-biden-tim-
 
 **Here Are the Olympic Moments We Won’t Forget**\
 `It doesn’t take a medal to make a lasting memory.`\
-https://nytimes.com/2024/08/09/world/olympics/here-are-the-olympic-moments-we-wont-forget.html
+https://nytimes.com/2024/08/09/world/olympics/paris-olympics-2024-moments.html
 
 **Scoop City: Rookie QBs are debuting**\
 `Scoop City is The Athletic&#8217;s daily NFL newsletter.`\

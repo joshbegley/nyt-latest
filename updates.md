@@ -1,3 +1,7 @@
+**Here Are the Olympic Moments We Won’t Forget**\
+`It doesn’t take a medal to make a lasting memory.`\
+https://nytimes.com/2024/08/09/world/olympics/paris-olympics-2024-moments.html
+
 **Doug Emhoff Stresses a Personal Push Against Antisemitism**\
 `At an event in Paris to commemorate a 1982 attack on a Jewish deli there, Kamala Harris’s husband said, “Part of fighting hate is living openly and proudly as a Jew.”`\
 https://nytimes.com/2024/08/09/world/europe/doug-emhoff-antisemitism-paris.html
