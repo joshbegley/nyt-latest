@@ -1,3 +1,7 @@
+**Harris Has a Big Campaign Launch — and Big Tests Ahead**\
+`Fresh challenges in the offing could determine how long the vice president’s honeymoon will last.`\
+https://nytimes.com/2024/08/09/us/politics/harris-walz-trump-polls.html
+
 **Trump Claims He Has Helicopter Trip Records and Threatens to Sue**\
 `Former President Donald J. Trump insisted that he was in a dangerous helicopter landing, though the man he said he was with said it never happened.`\
 https://nytimes.com/2024/08/09/us/politics/trump-helicopter-landing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/09/us/politics/walz-vance-money.html
 **In the ring, only one thing matters for Imane Khelif: the gold medal.**\
 `Khelif weathered two weeks of distractions, breezing to the gold medal in women’s boxing.`\
 https://nytimes.com/2024/08/09/world/olympics/imane-khelif-boxing.html
-
-**Stellantis Will Lay Off Up to 2,450 at Michigan Truck Plant**\
-`The move is the latest sign of trouble for the trans-Atlantic automaker, which has had sluggish North American sales and has said it needs to cut costs.`\
-https://nytimes.com/2024/08/09/business/stellantis-layoffs-ram-truck-warren.html
 
