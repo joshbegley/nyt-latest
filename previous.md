@@ -1,3 +1,7 @@
+**Israel and Norway’s diplomatic clash over Palestinian statehood deepens.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/08/08/world/israel-iran-hamas-gaza-war/israel-norway-palestinian-statehood
+
 **Samsung Recalls 1 Million Stoves That Started 250 Fires and Killed Pets**\
 `Thirty models of Samsung stoves were part of the recall over fires started by accidental contact.`\
 https://nytimes.com/2024/08/08/business/samsung-recalls-electric-stoves.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5689644/2024/08/08/cindy-ngamba-boxing-medal-refuge
 **‘The time has come,’ Biden, El-Sisi and Al-Thani say in a joint statement.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/08/08/world/israel-iran-hamas-gaza-war/us-egypt-qatar-cease-fire-deal
-
-**Harrison Jr. says his company, not himself, signed agreement with Fanatics**\
-`Both sides filed paperwork this week to New York County Supreme Court stating they wish to jointly engage a meditator at an appropriate time`\
-https://nytimes.com/athletic/5690158/2024/08/08/marvin-harrison-jr-fanatics-lawsuit/
 
