@@ -1,3 +1,7 @@
+**Shawn Mendes Returns Full of Questions, and 8 More New Songs**\
+`Hear tracks by Leon Bridges, Ravyn Lenae, Kelsea Ballerini and others.`\
+https://nytimes.com/2024/08/09/arts/music/playlist-shawn-mendes-kelsea-ballerini.html
+
 **NWSL and NWSLPA  agree terms on new collective bargaining agreement**\
 `The National Women&#8217;s Soccer League (NWSL) and the NWSL Players Association have agreed terms on a new long-term collective bargaining agreement, confirmed to The Athletic by a source with knowledge of the negotiations who was not authorized to speak publicly on the deal.`\
 https://nytimes.com/athletic/5691624/2024/08/09/nwsl-and-nwslpa-agree-terms-on-new-collective-bargaining-agreement/
