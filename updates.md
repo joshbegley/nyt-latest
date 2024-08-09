@@ -1,3 +1,7 @@
+**Facing Turmoil at Home, Young Artists Find a Musical Haven in New York**\
+`Hundreds of students from Venezuela, Afghanistan, Israel and elsewhere converged at Carnegie Hall, using music to cope in a time of strife and unrest.`\
+https://nytimes.com/2024/08/09/arts/music/world-orchestra-week-youth-orchestras-carnegie-hall.html
+
 **Harris Fights Uphill Against Trump in Arizona, Backed by a Revived Party**\
 `The battleground state, where Kamala Harris will rally on Friday, has drifted toward Donald Trump since he lost it in 2020. Democrats hope her momentum could turn their fortunes around there.`\
 https://nytimes.com/2024/08/09/us/politics/kamala-harris-arizona.html
