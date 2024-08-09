@@ -1,3 +1,11 @@
+**Stellantis Will Lay Off Up to 2,450 at Michigan Truck Plant**\
+`The move is the latest sign of trouble for the trans-Atlantic automaker, which has had sluggish North American sales and has said it needs to cut costs.`\
+https://nytimes.com/2024/08/09/business/stellantis-layoffs-ram-truck-warren.html
+
+**Can You Be Emotionally Reliant on an A.I. Voice? OpenAI Says Yes.**\
+`A report acknowledged that users of GPT-4o forms unusual bonds with the software’s voice response feature, which the company says warrants further study.`\
+https://nytimes.com/2024/08/09/style/openai-chatgpt-voice.html
+
 **Joe Ryan's season in doubt as Twins receive surprising news amid wave of injuries**\
 `The team revealed injuries to Ryan, Brooks Lee and prospect Luke Keaschall, while Brock Stewart confirmed he’ll have season-ending surgery.`\
 https://nytimes.com/athletic/5691989/2024/08/09/joe-ryan-minnesota-twins-injuries/

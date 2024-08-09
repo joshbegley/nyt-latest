@@ -1,3 +1,11 @@
+**Stellantis Will Lay Off Up to 2,450 at Michigan Truck Plant**\
+`The move is the latest sign of trouble for the trans-Atlantic automaker, which has had sluggish North American sales and has said it needs to cut costs.`\
+https://nytimes.com/2024/08/09/business/stellantis-layoffs-ram-truck-warren.html
+
+**Can You Be Emotionally Reliant on an A.I. Voice? OpenAI Says Yes.**\
+`A report acknowledged that users of GPT-4o forms unusual bonds with the software’s voice response feature, which the company says warrants further study.`\
+https://nytimes.com/2024/08/09/style/openai-chatgpt-voice.html
+
 **Joe Ryan's season in doubt as Twins receive surprising news amid wave of injuries**\
 `The team revealed injuries to Ryan, Brooks Lee and prospect Luke Keaschall, while Brock Stewart confirmed he’ll have season-ending surgery.`\
 https://nytimes.com/athletic/5691989/2024/08/09/joe-ryan-minnesota-twins-injuries/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/09/business/media/howie-cohen-dead.html
 **Imane Khelif wins Olympic boxing gold medal, ending trying Games with triumph**\
 `The fight marked the end of a long, emotional Olympic saga for Khelif, who won Algeria's seventh gold medal all time.`\
 https://nytimes.com/athletic/5691920/2024/08/09/imane-khelif-olympics-boxing-gold-medal-yang-liu/
-
-**Sifan Hassan earns bronze medal in 10,000m**\
-`She will run a marathon Sunday and attempt to become the first person to medal in the 5,000, 10,000 and marathon since 1952.`\
-https://nytimes.com/athletic/5691958/2024/08/09/sifan-hassan-bronze-olympics-netherlands/
-
-**Joe Rogan Would Like to Clarify: He Did Not Endorse Robert F. Kennedy Jr.**\
-`A day after praising Mr. Kennedy, the podcast host was backpedaling. “This isn’t an endorsement” Mr. Rogan posted, and he advised that he is “not the guy to get political information from.”`\
-https://nytimes.com/2024/08/09/us/politics/joe-rogan-rfk-jr.html
 
