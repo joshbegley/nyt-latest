@@ -1,3 +1,7 @@
+**The Athletic FC: Hillsborough's 'shocking' safety issues, Pochettino in USMNT frame**\
+`Today in The Athletic FC: Safety problems at Hillsborough 35 years after tragedy, Pochettino in frame for USMNT job and De Gea set for Italy`\
+https://nytimes.com/athletic/5690999/2024/08/09/hillsborough-safety-pochettino-usmnt-de-gea-fiorentina-the-athletic-fc/
+
 **Belarus Casts Aside Dissident Athletes, Their Talent ‘Buried’**\
 `Many elite athletes who spoke against their autocratic leader must watch on the sidelines while those who stayed quiet or showed loyalty compete in Paris.`\
 https://nytimes.com/2024/08/09/world/olympics/belarus-athletes-lukashenko.html
@@ -6,13 +10,13 @@ https://nytimes.com/2024/08/09/world/olympics/belarus-athletes-lukashenko.html
 `The Athletic's weekly conundrum from the trivia vaults`\
 https://nytimes.com/athletic/5689135/2024/08/09/the-athletics-friday-football-quiz-question-16/
 
-**Jack Flaherty went to Dodger Stadium as a baby, now he'll start for home team**\
-`Flaherty's mother, who took him to Dodger Stadium as a kid, says, "I’ll want to just break down and cry about the joy of all of it."`\
-https://nytimes.com/athletic/5689939/2024/08/09/dodgers-jack-flaherty-home-debut/
-
 **Raiders-Vikings: 5 things to watch in Las Vegas' preseason opener**\
 `Antonio Pierce is planning on the Raiders' full roster suiting up for each preseason game. So what should we be looking for in Minnesota?`\
 https://nytimes.com/athletic/5686971/2024/08/09/raiders-vikings-preseason-preview/
+
+**Jack Flaherty went to Dodger Stadium as a baby, now he'll start for home team**\
+`Flaherty's mother, who took him to Dodger Stadium as a kid, says, "I’ll want to just break down and cry about the joy of all of it."`\
+https://nytimes.com/athletic/5689939/2024/08/09/dodgers-jack-flaherty-home-debut/
 
 **'He can play everywhere:' Versatile football past fuels Broncos rookie Kris Abrams-Draine**\
 `As a high school senior, Abrams-Draine was thrown into the QB position for the first time — and nearly led his team to a state title.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5687740/2024/08/09/charlton-sponsor-tommy-robinson-
 **The Pulse: Unforgettable Olympic hoops moment**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5690476/2024/08/09/lebron-james-steph-curry-kevin-durant-olympics-serbia-the-pulse/
-
-**Weird & Wild MLB History Watch: Celebrating Judge, Schwarber, Witt Jr. and more**\
-`The Weird & Wild History Watch Dept. delves into the rare air occupied by Judge, Schwarber, Witt, Elly De La Cruz and Shohei Ohtani. `\
-https://nytimes.com/athletic/5690998/2024/08/09/mlb-history-aaron-judge-kyle-schwarber-bobby-witt-jr/
 

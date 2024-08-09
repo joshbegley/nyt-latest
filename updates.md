@@ -1,3 +1,7 @@
+**The Athletic FC: Hillsborough's 'shocking' safety issues, Pochettino in USMNT frame**\
+`Today in The Athletic FC: Safety problems at Hillsborough 35 years after tragedy, Pochettino in frame for USMNT job and De Gea set for Italy`\
+https://nytimes.com/athletic/5690999/2024/08/09/hillsborough-safety-pochettino-usmnt-de-gea-fiorentina-the-athletic-fc/
+
 **Belarus Casts Aside Dissident Athletes, Their Talent ‘Buried’**\
 `Many elite athletes who spoke against their autocratic leader must watch on the sidelines while those who stayed quiet or showed loyalty compete in Paris.`\
 https://nytimes.com/2024/08/09/world/olympics/belarus-athletes-lukashenko.html
