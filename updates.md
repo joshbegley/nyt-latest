@@ -1,3 +1,7 @@
+**Panthers' charter plane goes off taxiway, no injuries reported**\
+`None of the 188 people on board the Panthers' return flight were injured on the return to Charlotte early Friday morning. `\
+https://nytimes.com/athletic/5691371/2024/08/09/carolina-panthers-plane-runs-off-taxiway/
+
 **Gazans Sleep on the Street as Israel Orders More Evacuations**\
 `In a familiar cycle of displacement, many Gazans were on the move again as Israel launched its third major operation around Khan Younis.`\
 https://nytimes.com/video/world/middleeast/100000009620876/israel-gaza-khan-younis-evacuation.html
