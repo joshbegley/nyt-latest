@@ -1,3 +1,7 @@
+**Chargers training camp, Day 14: Competition heating up at wide receiver**\
+`Simi Fehoko and rookies Brenden Rice and Jaylen Johnson could be battle for one open spot on the Chargers' 53-man roster.`\
+https://nytimes.com/athletic/5690813/2024/08/09/chargers-training-camp-wide-receiver-competition/
+
 **Tourists Accused of Defacing Joshua Tree National Park With Paintballs**\
 `Three tourists from Germany shot paintballs at signs, bathrooms and dumpsters, officials for the park said, violating rules against defacing federal property.`\
 https://nytimes.com/2024/08/09/us/joshua-tree-paintball-tourists.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5690999/2024/08/09/hillsborough-safety-pochettino-u
 **Belarus Casts Aside Dissident Athletes, Their Talent ‘Buried’**\
 `Many elite athletes who spoke against their autocratic leader must watch on the sidelines while those who stayed quiet or showed loyalty compete in Paris.`\
 https://nytimes.com/2024/08/09/world/olympics/belarus-athletes-lukashenko.html
-
-**The Athletic’s Friday football quiz question #16**\
-`The Athletic's weekly conundrum from the trivia vaults`\
-https://nytimes.com/athletic/5689135/2024/08/09/the-athletics-friday-football-quiz-question-16/
 
