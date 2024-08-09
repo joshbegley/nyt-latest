@@ -1,3 +1,11 @@
+**Sifan Hassan earns bronze medal in 10,000m**\
+`She will run a marathon Sunday and attempt to become the first person to medal in the 5,000, 10,000 and marathon since 1952.`\
+https://nytimes.com/athletic/5691958/2024/08/09/sifan-hassan-bronze-olympics-netherlands/
+
+**Joe Rogan Would Like to Clarify: He Did Not Endorse Robert F. Kennedy Jr.**\
+`A day after praising Mr. Kennedy, the podcast host was backpedaling. “This isn’t an endorsement” Mr. Rogan posted, and he advised that he is “not the guy to get political information from.”`\
+https://nytimes.com/2024/08/09/us/politics/joe-rogan-rfk-jr.html
+
 **Iowa Law Requiring Schools to Remove Books With Sexual Content to Take Effect**\
 `A federal appeals court lifted an injunction on the law, which had already led to the removal of thousands of books from public school classrooms and libraries.`\
 https://nytimes.com/2024/08/09/books/booksupdate/iowa-book-ban-books.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/09/us/politics/jan-6-sentence-david-dempsey.html
 **Chelsea and USMNT goalkeeper Slonina joins Barnsley on loan**\
 `Chelsea goalkeeper Gabriel Slonina has joined League One side Barnsley on a season-long loan.`\
 https://nytimes.com/athletic/5691988/2024/08/09/chelsea-umsnt-slonina-barnsley-loan-transfer/
-
-**Learn to Make the Best Roasted Eggplant of Your Life**\
-`This summer staple has a reputation of being bitter, seedy, even greasy at times, but a few small considerations can make it excellent.`\
-https://nytimes.com/2024/08/09/dining/best-roasted-eggplant.html
-
-**The Briefing: Newcastle 4 Girona 0 - Gordon back and firing and 'Oldcastle' show their quality**\
-`Newcastle stormed to a 4-0 win against Girona, going three goals up after only 16 minutes. George Caulkin analyses the talking points`\
-https://nytimes.com/athletic/5691908/2024/08/09/newcastle-girona-analysis-gordon-longstaff/
 
