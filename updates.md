@@ -1,3 +1,11 @@
+**Iowa Law Requiring Schools to Remove Books With Sexual Content to Take Effect**\
+`A federal appeals court lifted an injunction on the law, which had already led to the removal of thousands of books from public school classrooms and libraries.`\
+https://nytimes.com/2024/08/09/books/booksupdate/iowa-book-ban-books.html
+
+**Fact-Checking Claims About Tim Walz’s Record**\
+`Republicans have leveled inaccurate or misleading attacks on Mr. Walz’s response to protests in the summer of 2020, his positions on immigration and his role in the redesign of Minnesota’s flag.`\
+https://nytimes.com/2024/08/09/us/politics/fact-checking-claims-about-tim-walzs-record.html
+
 **How to Watch Biden’s Interview on CBS**\
 `The president spoke with Robert Costa in his first interview since ending his re-election campaign. The discussion will air on “CBS Sunday Morning” at 9 a.m. Eastern time.`\
 https://nytimes.com/2024/08/09/us/politics/how-to-watch-biden-interview-cbs.html

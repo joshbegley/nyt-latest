@@ -1,3 +1,11 @@
+**Iowa Law Requiring Schools to Remove Books With Sexual Content to Take Effect**\
+`A federal appeals court lifted an injunction on the law, which had already led to the removal of thousands of books from public school classrooms and libraries.`\
+https://nytimes.com/2024/08/09/books/booksupdate/iowa-book-ban-books.html
+
+**Fact-Checking Claims About Tim Walz’s Record**\
+`Republicans have leveled inaccurate or misleading attacks on Mr. Walz’s response to protests in the summer of 2020, his positions on immigration and his role in the redesign of Minnesota’s flag.`\
+https://nytimes.com/2024/08/09/us/politics/fact-checking-claims-about-tim-walzs-record.html
+
 **How to Watch Biden’s Interview on CBS**\
 `The president spoke with Robert Costa in his first interview since ending his re-election campaign. The discussion will air on “CBS Sunday Morning” at 9 a.m. Eastern time.`\
 https://nytimes.com/2024/08/09/us/politics/how-to-watch-biden-interview-cbs.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/09/dining/best-roasted-eggplant.html
 **The Briefing: Newcastle 4 Girona 0 - Gordon back and firing and 'Oldcastle' show their quality**\
 `Newcastle stormed to a 4-0 win against Girona, going three goals up after only 16 minutes. George Caulkin analyses the talking points`\
 https://nytimes.com/athletic/5691908/2024/08/09/newcastle-girona-analysis-gordon-longstaff/
-
-**J. Robin Warren, Who Proved That Bacteria Cause Ulcers, Dies at 87**\
-`He endured skepticism but won a Nobel Prize for his work upending the conventional wisdom that stress, diet or alcohol caused the painful condition.`\
-https://nytimes.com/2024/08/09/health/j-robin-warren-dead.html
-
-**Overlooked No More: Renee Carroll, ‘World’s Most Famous Hatcheck Girl’**\
-`From the cloakroom at Sardi’s, she made her own mark on Broadway, hobnobbing with celebrity clients while safekeeping fedoras, bowlers, derbies and more.`\
-https://nytimes.com/2024/08/09/obituaries/renee-carroll-overlooked.html
 
