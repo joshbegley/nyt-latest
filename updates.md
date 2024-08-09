@@ -1,3 +1,15 @@
+**Should Soccer Make Space for Other Sports?**\
+`The saturation of soccer can be suffocating for the rest of the athletic landscape.`\
+https://nytimes.com/2024/08/09/world/europe/soccer-olympics-television-saturation.html
+
+**A Musical Tour of Tim Walz’s Minnesota**\
+`The state is a hotbed of corrosive underground rock, birthplace of two acclaimed icons, home to a lively hip-hop scene and a bedrock of ’80s pop and funk.`\
+https://nytimes.com/2024/08/09/arts/music/amplifier-newsletter-minnesota-music.html
+
+**Plane Carrying 62 People Crashes in Brazil**\
+`VoePass Flight 2283 crashed outside São Paulo on Friday afternoon. The status of the passengers and crew is unknown.`\
+https://nytimes.com/2024/08/09/world/americas/brazil-plane-crash.html
+
 **Gaza cease-fire push by U.S., Qatar and Egypt faces big challenges.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/08/09/world/israel-iran-hamas-gaza-war/gaza-cease-fire-push-by-us-qatar-and-egypt-faces-big-challenges
