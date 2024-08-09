@@ -1,3 +1,11 @@
+**Appeals Court Orders License Restored to Philippine News Site Rappler**\
+`The case, brought after Rappler was singled out by former President Rodrigo Duterte, was one of many facing the outlet and its co-founder, the Nobel laureate Maria Ressa.`\
+https://nytimes.com/2024/08/09/world/asia/philippines-rappler-maria-ressa.html
+
+**Numbers and plays that defined Team USA's rally, and how France matches up**\
+`The outlines of a potential upset were there against Serbia. In the end, it didn't matter for the Americans.`\
+https://nytimes.com/athletic/5690747/2024/08/09/team-usa-serbia-olympics-statistics-france-gold-medal/
+
 **As Ukraine Presses an Advance Into Russia, Its Goals Remain Unclear**\
 `Despite quick gains in the western Russian region of Kursk, analysts question whether Ukraine can maintain the momentum.`\
 https://nytimes.com/2024/08/09/world/europe/ukraine-russia-kursk-lipetsk.html
