@@ -1,3 +1,7 @@
+**Ukraine gymnast delivers stunning hoop routine after fleeing home**\
+`Ukrainian rhythmic gymnastics coach Iryna Blokhina said the team didn't know if it'd survive Russia's attacks on Ukraine.`\
+https://nytimes.com/athletic/5691760/2024/08/09/taisiia-onofriichuk-rhythmic-gymnastics-olymics-ukraine/
+
 **In Nagasaki, Keeping the Memory of Nuclear War Alive**\
 `The city should be remembered not as one of the first cities to suffer devastation from the wartime use of a nuclear weapon, but as the last.`\
 https://nytimes.com/live/2024/08/07/opinion/thepoint/nagasaki-nuclear-bomb
