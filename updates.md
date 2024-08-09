@@ -1,3 +1,7 @@
+**Trump Says He Wants to Cut Taxes. Harris’s Plan Mirrors Biden’s.**\
+`Also, Russia is scrambling to halt Ukraine’s surprise offensive. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/08/09/briefing/trump-harris-tax-plans-ukraine-russia-offensive.html
+
 **Man City could still be active in transfer market – Guardiola**\
 `Pep Guardiola has suggested that Manchester City could make another signing this summer following the impending departure of Julian Alvarez to Atletico Madrid while confirming that Ederson will stay with the club this season.`\
 https://nytimes.com/athletic/5691544/2024/08/09/man-city-transfer-news-alvarez/

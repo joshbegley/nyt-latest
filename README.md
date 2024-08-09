@@ -1,3 +1,7 @@
+**Two Rivals in Michigan’s Crucial Senate Contest Say They Were Both Swatted**\
+`Representative Elissa Slotkin, a Democrat, and former Representative Mike Rogers, a Republican, disclosed that they were targeted on Thursday and Friday.`\
+https://nytimes.com/2024/08/09/us/politics/elissa-slotkin-mike-rogers-swatting.html
+
 **Trump Says He Wants to Cut Taxes. Harris’s Plan Mirrors Biden’s.**\
 `Also, Russia is scrambling to halt Ukraine’s surprise offensive. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/08/09/briefing/trump-harris-tax-plans-ukraine-russia-offensive.html
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/5691191/2024/08/09/erik-ten-hag-manchester-united-s
 https://nytimes.com/live/2024/08/09/world/israel-iran-hamas-gaza-war/iran-says-the-call-for-peace-talks-in-gaza-will-not-change-its-resolve-to-retaliate-against-israel
 
 **Howie Cohen, Whose Alka-Seltzer Ads Spawned Catchphrases, Dies at 81**\
-`A copywriter, he and a partner in 1972 came up with “Try it, you’ll like it” and “I can’t believe I ate the whole thing.” Soon, sales were, well, fizzing again.`\
+`A copywriter, he and a partner in 1972 came up with “Try it, you’ll like it” and “I can’t believe I ate the whole thing.” Soon, sales were, well, fizzing.`\
 https://nytimes.com/2024/08/09/business/media/howie-cohen-dead.html
 
 **Imane Khelif wins Olympic boxing gold medal, ending trying Games with triumph**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/09/us/politics/joe-rogan-rfk-jr.html
 **Iowa Law Requiring Schools to Remove Books With Sexual Content to Take Effect**\
 `A federal appeals court lifted an injunction on the law, which had already led to the removal of thousands of books from public school classrooms and libraries.`\
 https://nytimes.com/2024/08/09/books/booksupdate/iowa-book-ban-books.html
-
-**Fact-Checking Claims About Tim Walz’s Record**\
-`Republicans have leveled inaccurate or misleading attacks on Mr. Walz’s response to protests in the summer of 2020, his positions on immigration and his role in the redesign of Minnesota’s flag.`\
-https://nytimes.com/2024/08/09/us/politics/fact-checking-claims-about-tim-walzs-record.html
 
