@@ -22,7 +22,7 @@ https://nytimes.com/2024/08/09/world/australia/new-zealand-cheese-scone.html
 `Scott Engel looks at 16 players he is targeting ahead of their ADPs and why he thinks they can outperform where they're getting drafted.`\
 https://nytimes.com/athletic/5687534/2024/08/09/fantasy-football-draft-targets-to-pursue-ahead-of-their-adp-ranges/
 
-**How My Beloved Italian City Turned Into a Mortadella Nightmare**\
+**My Beloved Italian City Has Turned Into Tourist Hell. Must We Really Travel Like This?**\
 `Must we really travel like this?`\
 https://nytimes.com/2024/08/09/opinion/italy-tourists-bologna-mortadella.html
 
