@@ -1,3 +1,7 @@
+**How My Beloved Italian City Turned Into a Mortadella Nightmare**\
+`Must we really travel like this?`\
+https://nytimes.com/2024/08/09/opinion/italy-tourists-bologna-mortadella.html
+
 **Amick: Steph Curry was ready to 'meet the moment' in a way we've never seen**\
 `The Warriors superstar hasn't had many 'opportunities' in these Games. But against Serbia, he made the most of every single one.`\
 https://nytimes.com/athletic/5690608/2024/08/09/stephen-curry-team-usa-serbia-olympics/
