@@ -1,3 +1,11 @@
+**A Financial Tale of Two Potential Vice Presidents**\
+`JD Vance and Tim Walz both came from modest backgrounds, but they have had very different trajectories when it comes to their personal fortunes.`\
+https://nytimes.com/2024/08/09/us/politics/walz-vance-money.html
+
+**In the ring, only one thing matters for Imane Khelif: the gold medal.**\
+`Khelif weathered two weeks of distractions, breezing to the gold medal in women’s boxing.`\
+https://nytimes.com/2024/08/09/world/olympics/imane-khelif-boxing.html
+
 **Stellantis Will Lay Off Up to 2,450 at Michigan Truck Plant**\
 `The move is the latest sign of trouble for the trans-Atlantic automaker, which has had sluggish North American sales and has said it needs to cut costs.`\
 https://nytimes.com/2024/08/09/business/stellantis-layoffs-ram-truck-warren.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5691191/2024/08/09/erik-ten-hag-manchester-united-s
 **Iran says the call for peace talks in Gaza will not change its resolve to retaliate against Israel.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2024/08/09/world/israel-iran-hamas-gaza-war/iran-says-the-call-for-peace-talks-in-gaza-will-not-change-its-resolve-to-retaliate-against-israel
-
-**Howie Cohen, Whose Alka-Seltzer Ads Spawned Catchphrases, Dies at 81**\
-`A copywriter, he and a partner in 1972 came up with “Try it, you’ll like it” and “I can’t believe I ate that whole thing.” Soon, sales were, well, fizzing.`\
-https://nytimes.com/2024/08/09/business/media/howie-cohen-dead.html
-
-**Imane Khelif wins Olympic boxing gold medal, ending trying Games with triumph**\
-`The fight marked the end of a long, emotional Olympic saga for Khelif, who won Algeria's seventh gold medal all time.`\
-https://nytimes.com/athletic/5691920/2024/08/09/imane-khelif-olympics-boxing-gold-medal-yang-liu/
 
