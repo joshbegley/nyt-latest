@@ -1,3 +1,19 @@
+**Daniel Levy's Tottenham are seeking on-field vindication and off-field change**\
+`As Levy prepares for his 24th full season at the helm of Tottenham, fans will naturally start to wonder where this season will take them`\
+https://nytimes.com/athletic/5688713/2024/08/09/daniel-levy-tottenham/
+
+**Friday Briefing**\
+`Plans for a Harris-Trump debate.`\
+https://nytimes.com/2024/08/09/briefing/harris-trump-debate-israel-ukraine.html
+
+**Fantasy baseball waiver wire: David Festa, Nolan Schanuel and more adds; plus, two-start pitchers and stashes**\
+`John Laghezza crunches the advanced metrics to surface the best of this week's waiver wire, which includes the Angels' Nolan Schanuel.`\
+https://nytimes.com/athletic/5688977/2024/08/09/fantasy-baseball-waiver-wire-david-festa-nolan-schanuel-and-more-adds-plus-two-start-pitchers-and-stashes/
+
+**Kelvin Kiptum: The tragic loss of the marathon runner who was set to redefine the sport**\
+`The men's marathon at the Paris Olympics should have been Kiptum's to lose before tragedy intervened in February`\
+https://nytimes.com/athletic/5683525/2024/08/09/kelvin-kiptum-tragedy-olympics/
+
 **Quotation of the Day: Paris Strategy for the Dutch: Fist Taps Only**\
 `Quotation of the Day for Friday, August 9, 2024.`\
 https://nytimes.com/2024/08/09/pageoneplus/quotation-of-the-day-paris-strategy-for-the-dutch-fist-taps-only.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/08/09/style/kate-mullen-wes-skillicorn-wedding.html
 **Nothing Messy About Their Love Story**\
 `As a houseguest in 2016, Daniel Weingart didn’t make a great impression on Aspen Matis. But her opinion of him shifted a year later.`\
 https://nytimes.com/2024/08/09/style/aspen-matis-daniel-weingart-wedding.html
-
-**Three Rings, Two College Students and One Big Risk**\
-`Arya Singh let down her guard with Logan Mundy in a way she rarely did with others. Afterward, things became thrillingly normal.`\
-https://nytimes.com/2024/08/09/style/arya-singh-logan-mundy-wedding.html
-
-**How China Built Tech Prowess: Chemistry Classes and Research Labs**\
-`Stressing science education, China is outpacing other countries in research fields like battery chemistry, crucial to its lead in electric vehicles.`\
-https://nytimes.com/2024/08/09/business/china-ev-battery-tech.html
-
-**Maybe the Yankees should have traded for Jack Flaherty. These starters are struggling**\
-`Nestor Cortes gave up six more runs in a loss to the Angels on Thursday. Marcus Stroman gets his next chance to rebound this weekend.`\
-https://nytimes.com/athletic/5690173/2024/08/08/yankees-pitching-trade-jack-flaherty-nestor-cortes/
-
-**Vladimir Guerrero Jr.'s 20-game hit streak a reason to watch amid lost Blue Jays season**\
-`Guerrero had a monster game to extend his streak, homering with his father in attendance.`\
-https://nytimes.com/athletic/5690671/2024/08/08/vladimir-guerrero-blue-jays-hit-streak/
 
