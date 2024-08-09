@@ -1,3 +1,11 @@
+**Cowboys owner Jerry Jones not concerned about CeeDee Lamb contract situation**\
+`The Cowboys' star receiver responded to Jerry Jones' comments online, writing "lol."`\
+https://nytimes.com/athletic/5690401/2024/08/08/cowboys-ceedee-lamb-contract-jerry-jones/
+
+**Struggling Braves swept as a 16-7 loss drops them to fourth in wild-card race**\
+`Braves starters have lasted fewer than five innings in all five games during their losing streak.`\
+https://nytimes.com/athletic/5690338/2024/08/08/braves-wild-card-charlie-morton/
+
 **That Time Trump Nearly Died in a Helicopter Crash? Didn’t Happen**\
 `In a news conference, the former president recounted a brush with death alongside Willie Brown, the former San Francisco mayor. A few aspects of the story don’t hold up to scrutiny.`\
 https://nytimes.com/2024/08/08/us/politics/trump-helicopter-willie-brown.html
