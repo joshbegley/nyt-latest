@@ -1,3 +1,11 @@
+**Evidence Shows ‘Hand to Mouth’ Production of Russia’s Advanced Weapons**\
+`A report by independent investigators said that Russian cruise missiles were used in combat sometimes just weeks after rolling off the factory floor.`\
+https://nytimes.com/2024/08/09/us/politics/russia-weapons-ukraine-war.html
+
+**Tracking Tropical Storm Maria**\
+`See the likely path and wind arrival times for Maria.`\
+https://nytimes.com/interactive/2024/08/09/weather/maria-map-path-tracker.html
+
 **How to Handle Jet Lag, According to Very Frequent Travelers**\
 `A long flight can be exhausting, but recovering from it needn’t take up half your trip.`\
 https://nytimes.com/article/jet-lag-prevention.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/08/09/world/israel-iran-hamas-gaza-war/white-house
 **De Gea joins Fiorentina 15 months after leaving Man United**\
 `David De Gea has joined Fiorentina as a free agent — 15 months after his exit from Manchester United.`\
 https://nytimes.com/athletic/5690919/2024/08/09/david-de-gea-fiorentina-transfer-confirmed/
-
-**Video and Airplane Sketch Raise New Questions About Saudi Ties to 9/11**\
-`The F.B.I. received a trove of evidence from British authorities between 2001 and 2002. Two significant pieces of information, which were not shared with the 9/11 Commission, have recently emerged.`\
-https://nytimes.com/2024/08/09/nyregion/sept-11-saudi-ties.html
-
-**Real Madrid defender Joan Martinez suffers cruciate ligament injury**\
-`Real Madrid defender Joan Martinez is facing an extended spell on the sidelines after rupturing the cruciate ligament in his left knee.`\
-https://nytimes.com/athletic/5691882/2024/08/09/real-madrid-joan-martinez-injury/
 
