@@ -1,3 +1,7 @@
+**How My Beloved Italian City Turned Into a Mortadella Nightmare**\
+`Must we really travel like this?`\
+https://nytimes.com/2024/08/09/opinion/italy-tourists-bologna-mortadella.html
+
 **Amick: Steph Curry was ready to 'meet the moment' in a way we've never seen**\
 `The Warriors superstar hasn't had many 'opportunities' in these Games. But against Serbia, he made the most of every single one.`\
 https://nytimes.com/athletic/5690608/2024/08/09/stephen-curry-team-usa-serbia-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5676645/2024/08/09/wolves-back-four-oneil/
 **How much do Arsenal fans still love Smith Rowe? Ask the ones who went to his Fulham debut**\
 `The mum and son who paused their holiday in Portugal to watch Fulham - all because they love Emile Smith Rowe`\
 https://nytimes.com/athletic/5686237/2024/08/09/emile-smith-rowe-fulham-debut-arsenal-fans-portugal/
-
-**Is the cult of the manager over? How English football's power structure changed**\
-`The idea of a manager controlling a big club on their own is a thing of the past. These days, they are a mere cog in a vast machine`\
-https://nytimes.com/athletic/5657713/2024/08/09/cult-of-the-manager/
 
