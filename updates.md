@@ -1,3 +1,7 @@
+**As Ukraine Presses an Advance Into Russia, Its Goals Remain Unclear**\
+`Despite quick gains in the western Russian region of Kursk, analysts question whether Ukraine can maintain the momentum.`\
+https://nytimes.com/2024/08/09/world/europe/ukraine-russia-kursk-lipetsk.html
+
 **Arsenal ready to sanction Nketiah’s Marseille loan with €30m obligation to buy**\
 `Arsenal are ready to sanction Eddie Nketiah’s departure to Marseille on loan with an obligation to buy for a fee in the region of €30million.`\
 https://nytimes.com/athletic/5658066/2024/08/09/eddie-nketiah-marseille-arsenal-transfer/
