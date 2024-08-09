@@ -1,3 +1,7 @@
+**J. Robin Warren, Who Proved That Bacteria Cause Ulcers, Dies at 87**\
+`He endured skepticism but won a Nobel Prize for his work upending the conventional wisdom that stress, diet or alcohol caused the painful condition.`\
+https://nytimes.com/2024/08/09/health/j-robin-warren-dead.html
+
 **Overlooked No More: Renee Carroll, ‘World’s Most Famous Hatcheck Girl’**\
 `From the cloakroom at Sardi’s, she made her own mark on Broadway, hobnobbing with celebrity clients while safekeeping fedoras, bowlers, derbies and more.`\
 https://nytimes.com/2024/08/09/obituaries/renee-carroll-overlooked.html
