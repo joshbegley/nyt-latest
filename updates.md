@@ -1,3 +1,11 @@
+**Rams' Jared Verse, Kam Kinchens showed up well in joint practice with Cowboys**\
+`Rams rookie Jared Verse catches Dak Prescott's attention during joint practice. "Very talented," the Cowboys' QB said.`\
+https://nytimes.com/athletic/5690359/2024/08/08/la-rams-practice-defense-cowboys/
+
+**NBA's Christmas slate to feature Lakers-Warriors, Spurs-Knicks**\
+`There will be five games showcasing the league's biggest stars on the holiday.`\
+https://nytimes.com/athletic/5690493/2024/08/08/nba-christmas-2024-schedule/
+
 **Israel Prepares for Expected Attacks by Iran and Hezbollah**\
 `Israel advised people to stock up on food and water in fortified safe rooms, while Prime Minister Benjamin Netanyahu told soldiers that Israel is “prepared for defense, as well as offense.”`\
 https://nytimes.com/2024/08/08/world/middleeast/israel-prepare-iran-attack.html
