@@ -1,3 +1,7 @@
+**On Netflix, a Very British ‘Love Is Blind’**\
+`The creators of a new version of the reality show, in which contestants agree to marry before meeting face to face, sought to challenge a nation’s archetypal reticence.`\
+https://nytimes.com/2024/08/09/arts/television/love-is-blind-uk.html
+
 **Israel Launches Another Offensive in Gaza’s South Amid Push for Cease-Fire**\
 `The country’s prime minister, Benjamin Netanyahu, said he would send negotiators what leaders including President Biden called the presentation of a “final” cease-fire proposal.`\
 https://nytimes.com/live/2024/08/09/world/israel-iran-hamas-gaza-war
