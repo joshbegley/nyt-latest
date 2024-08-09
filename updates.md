@@ -1,3 +1,7 @@
+**Trump’s Tax Plan Could Add Trillions in Debt. Harris’s Is a Mystery.**\
+`The former president’s proposals to cut taxes would lose far more revenue than his plans to raise tariffs. The vice president has not addressed fiscal policy in detail.`\
+https://nytimes.com/2024/08/09/business/trump-harris-taxes-economy.html
+
 **The Windup: The White Sox’s fitting interim hire**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5691521/2024/08/09/chicago-white-sox-new-manager-the-windup/
