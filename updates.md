@@ -1,3 +1,11 @@
+**Gaza cease-fire push by U.S., Qatar and Egypt faces big challenges.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/08/09/world/israel-iran-hamas-gaza-war/gaza-cease-fire-push-by-us-qatar-and-egypt-faces-big-challenges
+
+**Richardson, U.S. women win gold in 4x100 relay**\
+`Melissa Jefferson led off followed by Twanisha Terry and Gabby Thomas. `\
+https://nytimes.com/athletic/5691711/2024/08/09/womens-4x100-relay-results-usa/
+
 **Richardson, U.S. women win gold in 4x100 relay**\
 `SAINT-DENIS, France — Sha’Carri Richardson took the baton and ran like track owed her a gold medal.`\
 https://nytimes.com/athletic/5691711/2024/08/09/womens-4x100-relay-results-usa/
