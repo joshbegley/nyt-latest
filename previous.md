@@ -1,3 +1,7 @@
+**Judge Gives Trump and Prosecutors More Time to Assess Presidential Immunity**\
+`Judge Tanya Chutkan, who is overseeing the election interference case against the former president, gave both sides a few more weeks to consider a Supreme Court ruling’s impact on the case.`\
+https://nytimes.com/2024/08/09/us/politics/trump-election-case-supreme-court.html
+
 **U.S. men doomed by baton pass as Canada wins gold in men's 4x100 relay**\
 `SAINT-DENIS, France — Disqualified.`\
 https://nytimes.com/athletic/5691743/2024/08/09/olympics-mens-4x100-relay-results/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5691624/2024/08/09/nwsl-and-nwslpa-agree-terms-on-n
 **Biden Promised Peace, but Will Leave His Successor a Nation Consumed by War**\
 `The president has spent much of his tenure mobilizing military might against Russia’s invasion of Ukraine and supporting Israel.`\
 https://nytimes.com/2024/08/09/us/politics/biden-peace-war.html
-
-**Ross Terrill, Insightful Expert on Communist China, Is Dead at 85**\
-`In the 1960s, he was among the first Westerners allowed into the country, and for decades he helped the rest of the world understand it.`\
-https://nytimes.com/2024/08/09/books/ross-terrill-dead.html
 
