@@ -1,3 +1,7 @@
+**Word of the Day: cuneiform**\
+`This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/09/learning/word-of-the-day-cuneiform.html
+
 **A Pastry That Tastes Like Home**\
 `The cheese scone is so essential to the New Zealand diet that it is almost impossible to find a cafe without a plate of them on the counter.`\
 https://nytimes.com/2024/08/09/world/australia/new-zealand-cheese-scone.html

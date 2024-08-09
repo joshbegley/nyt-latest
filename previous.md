@@ -1,3 +1,7 @@
+**Word of the Day: cuneiform**\
+`This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/09/learning/word-of-the-day-cuneiform.html
+
 **A Pastry That Tastes Like Home**\
 `The cheese scone is so essential to the New Zealand diet that it is almost impossible to find a cafe without a plate of them on the counter.`\
 https://nytimes.com/2024/08/09/world/australia/new-zealand-cheese-scone.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5656161/2024/08/09/fantasy-premier-league-this-seas
 **Everton's summer of niggling injuries and what they mean for the start of the season**\
 `Preparations have been hampered with 13 of Everton's first-team players having been absent for at least one pre-season game this summer`\
 https://nytimes.com/athletic/5688446/2024/08/09/everton-injuries-dyche-branthwaite/
-
-**Parkinson on 2024-25: 'There's a sense of realism - people see the spending power of teams'**\
-`Wrexham's manager on their return to League One level after 19 years and the challenges ahead in what is a big-spending division`\
-https://nytimes.com/athletic/5633942/2024/08/09/phil-parkinson-wrexham-interview-2024-2025-preview/
 
