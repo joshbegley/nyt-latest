@@ -1,3 +1,19 @@
+**9 Sexy Moments at the Paris Olympics**\
+`The Summer Games are known for athletic excellence, but they provide plenty of aesthetic excellence along the way.`\
+https://nytimes.com/2024/08/09/style/olympics-sexy-moments.html
+
+**U.S. Vies With Allies and Industry to Tighten China Tech Controls**\
+`The Biden administration must navigate the interests of U.S. companies and allied governments as it tries to close off China’s access to advanced chips`\
+https://nytimes.com/2024/08/09/business/economy/china-us-chip-semiconductors.html
+
+**Tens of thousands of Palestinians flee another Israeli offensive in Khan Younis.**\
+`By Raja Abdulrahim and Ameera Harouda`\
+https://nytimes.com/live/2024/08/09/world/israel-iran-hamas-gaza-war/palestinians-khan-younis-evacuation
+
+**The End-of-Summer Reading Roundup**\
+`Fall is on the horizon. Here are the books that have been keeping us company lately.`\
+https://nytimes.com/2024/08/09/books/review/podcast-summer-reading.html
+
 **The Presidential Campaign’s Carbonated Détente**\
 `In a land of plenty that reveres personal freedom, we imbibe as we wish.`\
 https://nytimes.com/live/2024/08/07/opinion/thepoint/walz-vance-mountain-dew
