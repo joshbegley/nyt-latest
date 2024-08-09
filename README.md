@@ -1,3 +1,7 @@
+**Should Soccer Make Space for Other Sports?**\
+`The saturation of soccer can be suffocating for the rest of the athletic landscape.`\
+https://nytimes.com/2024/08/09/world/europe/soccer-olympics-television-saturation.html
+
 **A Musical Tour of Tim Walz’s Minnesota**\
 `The state is a hotbed of corrosive underground rock, birthplace of two acclaimed icons, home to a lively hip-hop scene and a bedrock of ’80s pop and funk.`\
 https://nytimes.com/2024/08/09/arts/music/amplifier-newsletter-minnesota-music.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/09/books/ross-terrill-dead.html
 **For U.S. basketball, there's one acceptable Olympic ending — and the job's not done**\
 `Thursday's incredible comeback spared the U.S. an ignominious defeat. But they can't look past France in the gold-medal game.`\
 https://nytimes.com/athletic/5691597/2024/08/09/for-u-s-basketball-theres-one-acceptable-olympic-ending-and-the-jobs-not-done/
-
-**Team USA cruises past Australia for spot in final**\
-`Team USA asserted its dominance early and often in an 85-64 win over the Opals.`\
-https://nytimes.com/athletic/5691644/2024/08/09/team-usa-australia-olympics-basketball/
 
