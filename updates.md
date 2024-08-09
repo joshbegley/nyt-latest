@@ -1,3 +1,11 @@
+**Chelsea and USMNT goalkeeper Slonina joins Barnsley on loan**\
+`Chelsea goalkeeper Gabriel Slonina has joined League One side Barnsley on a season-long loan.`\
+https://nytimes.com/athletic/5691988/2024/08/09/chelsea-and-usmnt-goalkeeper-gabriel-slonina-joins-barnsley-on-loan/
+
+**The Briefing: Newcastle 4 Girona 0 - Gordon back and firing and 'Oldcastle' show their quality**\
+`Newcastle stormed to a 4-0 win against Girona, going three goals up after only 16 minutes. George Caulkin analyses the talking points`\
+https://nytimes.com/athletic/5691908/2024/08/09/newcastle-girona-analysis-gordon-longstaff/
+
 **Learn to Make the Best Roasted Eggplant of Your Life**\
 `This summer staple has a reputation of being bitter, seedy, even greasy at times, but a few small considerations can make it excellent.`\
 https://nytimes.com/2024/08/09/dining/best-roasted-eggplant.html
