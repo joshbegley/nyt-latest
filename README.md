@@ -1,3 +1,7 @@
+**The Windup: The White Sox’s fitting interim hire**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5691521/2024/08/09/chicago-white-sox-new-manager-the-windup/
+
 **Travis Scott Is Accused of Assaulting a Security Guard in Paris**\
 `The rapper, who was in France for the Olympics, was taken into police custody at the George V hotel, the Paris prosecutor’s office said.`\
 https://nytimes.com/2024/08/09/arts/music/travis-scott-paris-assault.html
@@ -10,13 +14,13 @@ https://nytimes.com/athletic/5691454/2024/08/09/liverpool-martin-zubimendi-trans
 `England’s top division wants to hold another Summer Series in the U.S. next July - but there are lots of hurdles to navigate`\
 https://nytimes.com/athletic/5689920/2024/08/09/premier-league-united-states-pre-season/
 
-**Our Five-Star Tomato Tart**\
-`If your tomatoes aren’t perfect, so much the better — a quick blast in the oven and some dollops of ricotta and pesto make them shine.`\
-https://nytimes.com/2024/08/09/dining/our-five-star-tomato-tart.html
-
 **30 Minutes With the ‘World’s Most Advanced’ Massage Robot**\
 `A.I.-informed massage robots will arrive at some Equinox gyms this month. I gave one a try.`\
 https://nytimes.com/2024/08/09/well/massage-robot.html
+
+**Our Five-Star Tomato Tart**\
+`If your tomatoes aren’t perfect, so much the better — a quick blast in the oven and some dollops of ricotta and pesto make them shine.`\
+https://nytimes.com/2024/08/09/dining/our-five-star-tomato-tart.html
 
 **Five Action Movies to Stream Now**\
 `This month’s picks include anarchists, hostage crises and sweaty M.M.A. fighters.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5691371/2024/08/09/carolina-panthers-plane-runs-off
 **Gazans Sleep on the Street as Israel Orders More Evacuations**\
 `In a familiar cycle of displacement, many Gazans were on the move again as Israel launched its third major operation around Khan Younis.`\
 https://nytimes.com/video/world/middleeast/100000009620876/israel-gaza-khan-younis-evacuation.html
-
-**Buster Posey, Travis Ishikawa reflect on Giants' 2014 World Series run ahead of Saturday's reunion**\
-`The Giants are expecting an impressive turnout on Saturday, including the still-officially-unretired Madison Bumgarner.`\
-https://nytimes.com/athletic/5691316/2024/08/09/sf-giants-2014-world-series-reunion-posey-ishikawa-bumgarner/
 
