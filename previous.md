@@ -1,3 +1,11 @@
+**Former Twitter Board Member Sues Elon Musk’s X For $20 Million in Pay**\
+`After purchasing Twitter, Mr. Musk failed to cash out Omid Kordestani’s stock, according to allegations in a new lawsuit.`\
+https://nytimes.com/2024/08/09/technology/elon-musk-x-twitter-board-lawsuit.html
+
+**Workout Clothes Stink. Here’s How to Clean Them.**\
+`Hydrogen peroxide can help.`\
+https://nytimes.com/interactive/2024/08/09/smarter-living/wirecutter/clean-workout-clothes.html
+
 **Evidence Shows ‘Hand to Mouth’ Production of Russia’s Advanced Weapons**\
 `A report by independent investigators said that Russian cruise missiles were used in combat sometimes just weeks after rolling off the factory floor.`\
 https://nytimes.com/2024/08/09/us/politics/russia-weapons-ukraine-war.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/09/health/childhood-vaccines.html
 **Smartmatic Executives Charged With Bribery of Philippine Official**\
 `The Justice Department said the executives from the voting technology company had funneled at least $1 million to obtain a contract to provide voting machines in the 2016 Philippine elections.`\
 https://nytimes.com/2024/08/09/business/media/smartmatic-bribery-philippines-elections.html
-
-**White House assails ‘extremist’ Israeli minister for opposing cease-fire.**\
-`By Peter Baker`\
-https://nytimes.com/live/2024/08/09/world/israel-iran-hamas-gaza-war/white-house-assails-extremist-israeli-minister-for-opposing-cease-fire
-
-**De Gea joins Fiorentina 15 months after leaving Man United**\
-`David De Gea has joined Fiorentina as a free agent — 15 months after his exit from Manchester United.`\
-https://nytimes.com/athletic/5690919/2024/08/09/david-de-gea-fiorentina-transfer-confirmed/
 

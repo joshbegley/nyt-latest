@@ -1,3 +1,11 @@
+**Former Twitter Board Member Sues Elon Musk’s X For $20 Million in Pay**\
+`After purchasing Twitter, Mr. Musk failed to cash out Omid Kordestani’s stock, according to allegations in a new lawsuit.`\
+https://nytimes.com/2024/08/09/technology/elon-musk-x-twitter-board-lawsuit.html
+
+**Workout Clothes Stink. Here’s How to Clean Them.**\
+`Hydrogen peroxide can help.`\
+https://nytimes.com/interactive/2024/08/09/smarter-living/wirecutter/clean-workout-clothes.html
+
 **Evidence Shows ‘Hand to Mouth’ Production of Russia’s Advanced Weapons**\
 `A report by independent investigators said that Russian cruise missiles were used in combat sometimes just weeks after rolling off the factory floor.`\
 https://nytimes.com/2024/08/09/us/politics/russia-weapons-ukraine-war.html
