@@ -1,3 +1,11 @@
+**A Financial Tale of Two Potential Vice Presidents**\
+`JD Vance and Tim Walz both came from modest backgrounds, but they have had very different trajectories when it comes to their personal fortunes.`\
+https://nytimes.com/2024/08/09/us/politics/walz-vance-money.html
+
+**In the ring, only one thing matters for Imane Khelif: the gold medal.**\
+`Khelif weathered two weeks of distractions, breezing to the gold medal in women’s boxing.`\
+https://nytimes.com/2024/08/09/world/olympics/imane-khelif-boxing.html
+
 **Stellantis Will Lay Off Up to 2,450 at Michigan Truck Plant**\
 `The move is the latest sign of trouble for the trans-Atlantic automaker, which has had sluggish North American sales and has said it needs to cut costs.`\
 https://nytimes.com/2024/08/09/business/stellantis-layoffs-ram-truck-warren.html
