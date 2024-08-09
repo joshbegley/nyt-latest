@@ -6,13 +6,13 @@ https://nytimes.com/2024/08/09/world/olympics/belarus-athletes-lukashenko.html
 `The Athletic's weekly conundrum from the trivia vaults`\
 https://nytimes.com/athletic/5689135/2024/08/09/the-athletics-friday-football-quiz-question-16/
 
-**Raiders-Vikings: 5 things to watch in Las Vegas' preseason opener**\
-`Antonio Pierce is planning on the Raiders' full roster suiting up for each preseason game. So what should we be looking for in Minnesota?`\
-https://nytimes.com/athletic/5686971/2024/08/09/raiders-vikings-preseason-preview/
-
 **Jack Flaherty went to Dodger Stadium as a baby, now he'll start for home team**\
 `Flaherty's mother, who took him to Dodger Stadium as a kid, says, "I’ll want to just break down and cry about the joy of all of it."`\
 https://nytimes.com/athletic/5689939/2024/08/09/dodgers-jack-flaherty-home-debut/
+
+**Raiders-Vikings: 5 things to watch in Las Vegas' preseason opener**\
+`Antonio Pierce is planning on the Raiders' full roster suiting up for each preseason game. So what should we be looking for in Minnesota?`\
+https://nytimes.com/athletic/5686971/2024/08/09/raiders-vikings-preseason-preview/
 
 **'He can play everywhere:' Versatile football past fuels Broncos rookie Kris Abrams-Draine**\
 `As a high school senior, Abrams-Draine was thrown into the QB position for the first time — and nearly led his team to a state title.`\
