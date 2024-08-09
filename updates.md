@@ -1,3 +1,7 @@
+**3rd Teenager Arrested in Planned Attack on Taylor Swift’s Vienna Shows**\
+`The authorities said the 18-year-old was connected to the main suspect and had recently sworn allegiance to the Islamic State.`\
+https://nytimes.com/2024/08/09/world/europe/taylor-swift-concerts-vienna-attack-arrests.html
+
 **Chargers training camp, Day 14: Competition heating up at wide receiver**\
 `Simi Fehoko and rookies Brenden Rice and Jaylen Johnson could be battle for one open spot on the Chargers' 53-man roster.`\
 https://nytimes.com/athletic/5690813/2024/08/09/chargers-training-camp-wide-receiver-competition/
