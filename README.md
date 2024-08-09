@@ -1,3 +1,7 @@
+**Imane Khelif wins Olympic boxing gold medal, ending trying Games with triumph**\
+`The fight marked the end of a long, emotional Olympic saga for Khelif, who won Algeria's seventh gold medal all time.`\
+https://nytimes.com/athletic/5691920/2024/08/09/imane-khelif-olympics-boxing-gold-medal-yang-liu/
+
 **Sifan Hassan earns bronze medal in 10,000m**\
 `She will run a marathon Sunday and attempt to become the first person to medal in the 5,000, 10,000 and marathon since 1952.`\
 https://nytimes.com/athletic/5691958/2024/08/09/sifan-hassan-bronze-olympics-netherlands/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/09/us/politics/elon-musk-west-point.html
 **Jan. 6 Rioter Sentenced to 20 Years for Assaults on Police**\
 `David Dempsey received one of the stiffest sentences issued so far in the riot after attacking the police with his hands, his feet, a flagpole, crutches, pepper spray and broken pieces of furniture.`\
 https://nytimes.com/2024/08/09/us/politics/jan-6-sentence-david-dempsey.html
-
-**Chelsea and USMNT goalkeeper Slonina joins Barnsley on loan**\
-`Chelsea goalkeeper Gabriel Slonina has joined League One side Barnsley on a season-long loan.`\
-https://nytimes.com/athletic/5691988/2024/08/09/chelsea-umsnt-slonina-barnsley-loan-transfer/
 
