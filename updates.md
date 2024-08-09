@@ -1,3 +1,7 @@
+**Amick: Steph Curry was ready to 'meet the moment' in a way we've never seen**\
+`The Warriors superstar hasn't had many 'opportunities' in these Games. But against Serbia, he made the most of every single one.`\
+https://nytimes.com/athletic/5690608/2024/08/09/stephen-curry-team-usa-serbia-olympics/
+
 **Why Harry Souttar may not be the only Leicester player heading for the exit door**\
 `The promoted club have PSR concerns and a bloated squad, meaning players will have to be sold in order for Steve Cooper to recruit`\
 https://nytimes.com/athletic/5688755/2024/08/09/leicester-souttar-daka-nelson-transfer/
