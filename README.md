@@ -1,3 +1,7 @@
+**An Artist Documenting the Beauty of Queer Black South Africa**\
+`Zanele Muholi discusses visual activism, gospel music and walking more than 15,000 steps in a day.`\
+https://nytimes.com/2024/08/09/t-magazine/zanele-muholi-tate-modern-sfmoma.html
+
 **This Is a Picture of the Last Thing Seen by NASA’s Asteroid Hunter**\
 `NEOWISE, a spacecraft that studied faraway cosmic objects before shifting its focus closer to home, has reached the end of its life. But its legacy lives on.`\
 https://nytimes.com/2024/08/09/science/neowise-nasa-asteroid-hunter-last-image.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/09/obituaries/renee-carroll-overlooked.html
 **Rai Benjamin claims first Olympic gold in men's 400m hurdles**\
 `Benjamin achieved redemption after taking silver at the Tokyo Olympics behind Norway's Karsten Warholm, who won silver Friday.`\
 https://nytimes.com/athletic/5691915/2024/08/09/rai-benjamin-mens-400-hurdles-olympics/
-
-**Leicester working on deal to sign Zaha on loan from Galatasaray**\
-`Leicester are working on a deal to sign winger Wilfried Zaha from Galatasaray on a season-long loan.`\
-https://nytimes.com/athletic/5691926/2024/08/09/leicester-wilfried-zaha-loan-tranfer-close/
 
