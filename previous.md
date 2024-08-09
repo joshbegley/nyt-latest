@@ -1,3 +1,7 @@
+**How to Handle Jet Lag, According to Very Frequent Travelers**\
+`A long flight can be exhausting, but recovering from it needn’t take up half your trip.`\
+https://nytimes.com/article/jet-lag-prevention.html
+
 **Mísia, Who Brought a Modern Flair to Fado Music, Dies at 69**\
 `With her smoky voice and her high-fashion look, the self-proclaimed “punk of fado” found stardom by shaking up a venerable Portuguese genre.`\
 https://nytimes.com/2024/08/09/arts/music/misia-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/09/nyregion/sept-11-saudi-ties.html
 **Real Madrid defender Joan Martinez suffers cruciate ligament injury**\
 `Real Madrid defender Joan Martinez is facing an extended spell on the sidelines after rupturing the cruciate ligament in his left knee.`\
 https://nytimes.com/athletic/5691882/2024/08/09/real-madrid-joan-martinez-injury/
-
-**The U.S. says it won’t halt aid to an Israeli military unit accused of abuses, after Israel took remedial steps.**\
-`By Michael Crowley`\
-https://nytimes.com/live/2024/08/09/world/israel-iran-hamas-gaza-war/the-us-says-it-wont-halt-aid-to-an-israeli-military-unit-accused-of-abuses-after-israel-took-remedial-steps
 

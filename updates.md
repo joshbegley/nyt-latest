@@ -1,3 +1,7 @@
+**How to Handle Jet Lag, According to Very Frequent Travelers**\
+`A long flight can be exhausting, but recovering from it needn’t take up half your trip.`\
+https://nytimes.com/article/jet-lag-prevention.html
+
 **Mísia, Who Brought a Modern Flair to Fado Music, Dies at 69**\
 `With her smoky voice and her high-fashion look, the self-proclaimed “punk of fado” found stardom by shaking up a venerable Portuguese genre.`\
 https://nytimes.com/2024/08/09/arts/music/misia-dead.html
