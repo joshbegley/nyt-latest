@@ -1,3 +1,7 @@
+**Mísia, Who Brought a Modern Flair to Fado Music, Dies at 69**\
+`With her smoky voice and her high-fashion look, the self-proclaimed “punk of fado” found stardom by shaking up a venerable Portuguese genre.`\
+https://nytimes.com/2024/08/09/arts/music/misia-dead.html
+
 **For Years, He Demanded to See the Video. Finally, It Set Him Free.**\
 `At his murder trial, Arvel Marshall pressed prosecutors to turn over surveillance footage of the crime scene. He knew it would show the truth.`\
 https://nytimes.com/2024/08/09/nyregion/arvell-marshall-surveillance-video-exoneration.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5691882/2024/08/09/real-madrid-joan-martinez-injury
 **The U.S. says it won’t halt aid to an Israeli military unit accused of abuses, after Israel took remedial steps.**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/08/09/world/israel-iran-hamas-gaza-war/the-us-says-it-wont-halt-aid-to-an-israeli-military-unit-accused-of-abuses-after-israel-took-remedial-steps
-
-**Latino Rights Group Breaks With Its History to Endorse Harris-Walz Ticket**\
-`Leaders of the group, known as LULAC, said members were stirred to make their first formal endorsement over concerns about the potential impact of another Trump presidency.`\
-https://nytimes.com/2024/08/09/us/politics/lulac-harris-endorsement.html
 
