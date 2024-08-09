@@ -1,3 +1,11 @@
+**Hours after dramatic win, KD delivers another comeback — online**\
+`Kevin Durant made time for trash talk in the wee hours of the morning after Team USA's win over Serbia.`\
+https://nytimes.com/athletic/5691381/2024/08/09/kevin-durant-twitter-team-usa-serbia-olympics/
+
+**Injera Is the Soul of Ethiopian Cuisine**\
+`Injera takes days to prepare, but this quick recipe streamlines the process.`\
+https://nytimes.com/2024/08/09/dining/how-to-make-injera.html
+
 **9 Sexy Moments at the Paris Olympics**\
 `The Summer Games are known for athletic excellence, but they provide plenty of aesthetic excellence along the way.`\
 https://nytimes.com/2024/08/09/style/olympics-sexy-moments.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5691591/2024/08/09/wrexham-break-transfer-record-to
 **The Perseids Meteor Shower Is Peaking. Here’s How to Watch.**\
 `Warm summer nights and swift colorful streaks make this meteor shower a crowd favorite, but this year, observers may have to compete with light from the moon.`\
 https://nytimes.com/2024/08/09/science/perseids-meteor-shower-how-to-watch.html
-
-**Tim Walz Was a Clear Eyes, Full Hearts Kind of Coach**\
-`“The guy was never negative,” another coach said. “That’s what we loved about him. Everything was a positive.”`\
-https://nytimes.com/2024/08/09/us/tim-walz-coach.html
-
-**Conner O’Malley’s Intensely Funny, Deeply Stupid Manosphere**\
-`A cult hero in the comedy world, he specializes in desperately ambitious men doomed to fail. But don’t ignore the element of empathy.`\
-https://nytimes.com/2024/08/09/arts/conner-omalley-comedian.html
 
