@@ -1,3 +1,15 @@
+**Real Madrid defender Joan Martinez suffers cruciate ligament injury**\
+`Real Madrid defender Joan Martinez is facing an extended spell on the sidelines after rupturing the cruciate ligament in his left knee.`\
+https://nytimes.com/athletic/5691882/2024/08/09/real-madrid-joan-martinez-injury/
+
+**The U.S. says it won’t halt aid to an Israeli military unit accused of abuses, after Israel took remedial steps.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/08/09/world/israel-iran-hamas-gaza-war/the-us-says-it-wont-halt-aid-to-an-israeli-military-unit-accused-of-abuses-after-israel-took-remedial-steps
+
+**Latino Rights Group Breaks With Its History to Endorse Harris-Walz Ticket**\
+`Leaders of the group, known as LULAC, said members were stirred to make their first formal endorsement over concerns about the potential impact of another Trump presidency.`\
+https://nytimes.com/2024/08/09/us/politics/lulac-harris-endorsement.html
+
 **Ukraine gymnast delivers stunning hoop routine after fleeing home**\
 `Ukrainian rhythmic gymnastics coach Iryna Blokhina said the team didn't know if it'd survive Russia's attacks on Ukraine.`\
 https://nytimes.com/athletic/5691760/2024/08/09/taisiia-onofriichuk-rhythmic-gymnastics-olymics-ukraine/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/09/magazine/trust-grandchildren-charity-ethics.html
 **The Big Number: $8.4 Billion**\
 `Disney’s weaker-than-expected revenue at its theme park unit.`\
 https://nytimes.com/2024/08/09/business/the-big-number-8-4-billion-disney-earnings.html
-
-**How to Save Disney**\
-`Three ways to revitalize the House of Mouse.`\
-https://nytimes.com/2024/08/09/opinion/disney-revitalize.html
-
-**Cash App Users May Claim Up to $2,500 in Data Breach Settlement**\
-`A proposed $15 million settlement stipulates that account holders can file for losses related to breaches disclosed in 2022 and 2023. A deadline looms for those claims.`\
-https://nytimes.com/2024/08/09/business/cash-app-settlement.html
-
-**Spain win gold in Olympic men’s soccer after beating France 5-3 in final**\
-`Spain came from behind with three goals in 10 first-half minutes then survived a late France fightback and extra time to seal their summer of international football glory with Olympic gold.`\
-https://nytimes.com/athletic/5691736/2024/08/09/spain-france-olympic-football-final/
 
