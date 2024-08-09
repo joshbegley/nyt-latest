@@ -1,3 +1,15 @@
+**Harris Fights Uphill Against Trump in Arizona, Backed by a Revived Party**\
+`The battleground state, where Kamala Harris will rally on Friday, has drifted toward Donald Trump since he lost it in 2020. Democrats hope her momentum could turn their fortunes around there.`\
+https://nytimes.com/2024/08/09/us/politics/kamala-harris-arizona.html
+
+**Man Utd Women sign Canada midfielder Awujo**\
+`Manchester United Women have completed the signing of Canada midfielder Simi Awujo.`\
+https://nytimes.com/athletic/5691511/2024/08/09/simi-awujo-manchester-united-transfer/
+
+**B-girll Talash reveals 'Free Afghan Women' cape during Olympic performance**\
+`Talash was born in Afghanistan before fleeing the country in 2021 after the Taliban returned to power.`\
+https://nytimes.com/athletic/5691415/2024/08/09/breakdancer-manizha-talash-cape-olympics/
+
 **Trump’s Tax Plan Could Add Trillions in Debt. Harris’s Is a Mystery.**\
 `The former president’s proposals to cut taxes would lose far more revenue than his plans to raise tariffs. The vice president has not addressed fiscal policy in detail.`\
 https://nytimes.com/2024/08/09/business/trump-harris-taxes-economy.html
