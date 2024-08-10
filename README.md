@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5692264/2024/08/10/twins-injuries-sweep-guardians/
 
 **Yes, Trump Was in a Scary Helicopter Ride. But Not With That Politician.**\
-`There was a helicopter. It did make an emergency landing. But a former California lawmaker says Donald Trump has mixed up one Black politician for another.`\
+`There was a helicopter. It did make an emergency landing. But a former California lawmaker says Donald Trump has mixed up one Black lawmaker for another.`\
 https://nytimes.com/2024/08/10/us/politics/trump-helicopter-crash-willie-brown.html
 
 **Saturday's MLB odds, best bets: Predictions for pitching matchups, props, playoffs and more**\
