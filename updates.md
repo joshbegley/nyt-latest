@@ -1,3 +1,7 @@
+**How Online Hatred Toward Migrants Spurs Real-World Violence**\
+`Social media posts assailing immigrants have fomented a climate of fear and hatred in Britain, Portugal and other countries. The vitriolic language is now spilling onto the streets.`\
+https://nytimes.com/interactive/2024/08/09/technology/migrants-racism-social-media-violence.html
+
 **Carl Lewis sounds off on 'unacceptable' U.S. men's 4×100 relay flub**\
 `The U.S. men were disqualified Friday, failing to earn a medal in the event for the fifth consecutive Olympics.`\
 https://nytimes.com/athletic/5692161/2024/08/09/carl-lewis-usa-relay-olympics-comments/
