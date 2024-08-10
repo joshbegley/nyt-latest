@@ -1,3 +1,7 @@
+**Travis Scott Released From Custody After Confrontation at a Paris Hotel**\
+`The star rapper had been accused on Friday of assaulting a security guard at a luxury hotel in Paris. No charges were filed against him, according to prosecutors.`\
+https://nytimes.com/2024/08/10/arts/music/travis-scott-release-paris-arrest.html
+
 **'No-car Games:' L.A. 2028 venues will only be accessible via public transit**\
 `Los Angeles mayor Karen Bass said the city will need over 3,000 buses and plans to borrow them from all around the U.S. `\
 https://nytimes.com/athletic/5692830/2024/08/10/la-2028-olympics-transportation-buses-traffic/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5679585/2024/08/10/brentford-fabio-carvalho/
 **Tamberi goes to hospital, says he'll make high jump final**\
 `Italy's Gianmarco Tamberi went to the hospital Saturday morning and said he threw up blood twice.`\
 https://nytimes.com/athletic/5692757/2024/08/10/gianmarco-tamberi-high-jump-olympics/
-
-**Ancient Calendar, Recently Discovered, May Document a Long-Ago Disaster**\
-`The markings on a pillar in southern Turkey are more than decorations on the stone, a researcher at the University of Edinburgh says. They may memorialize a time when comet fragments struck Earth.`\
-https://nytimes.com/2024/08/10/world/asia/worlds-oldest-calendar-gobekli-tepe.html
 

@@ -1,3 +1,7 @@
+**Travis Scott Released From Custody After Confrontation at a Paris Hotel**\
+`The star rapper had been accused on Friday of assaulting a security guard at a luxury hotel in Paris. No charges were filed against him, according to prosecutors.`\
+https://nytimes.com/2024/08/10/arts/music/travis-scott-release-paris-arrest.html
+
 **'No-car Games:' L.A. 2028 venues will only be accessible via public transit**\
 `Los Angeles mayor Karen Bass said the city will need over 3,000 buses and plans to borrow them from all around the U.S. `\
 https://nytimes.com/athletic/5692830/2024/08/10/la-2028-olympics-transportation-buses-traffic/
