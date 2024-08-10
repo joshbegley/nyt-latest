@@ -1,3 +1,7 @@
+**Harris Campaign Says Walz ‘Misspoke’ in a Comment About His Military Service**\
+`The Democratic vice-presidential nominee has come under attack from Republicans, who have suggested that he has overstated his military record and avoided combat.`\
+https://nytimes.com/live/2024/08/10/us/harris-trump-election/walz-guns-war-military
+
 **Los Angeles Has Promised a ‘Car-Free’ Olympics in 2028. Can It Do It?**\
 `The countdown is on for the city, which will host the next Summer Games and is working on transit upgrades to accommodate hundreds of thousands of visitors.`\
 https://nytimes.com/2024/08/10/us/los-angeles-olympics-traffic-transport.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5692830/2024/08/10/la-2028-olympics-transportation-
 **USWNT wins fifth gold medal after defeating Brazil 1-0 in Olympic final**\
 `How the U.S. won gold.`\
 https://nytimes.com/athletic/5692015/2024/08/10/uswnt-brazil-olympic-gold-medal-takeaways/
-
-**Gazans describe carnage at airstrike site: ‘The dead were all in pieces.’**\
-`By Raja Abdulrahim and Ameera Harouda`\
-https://nytimes.com/live/2024/08/10/world/israel-iran-hamas-gaza-war/before-they-could-pray-the-israeli-airstrike-hit
 
