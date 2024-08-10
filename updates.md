@@ -1,3 +1,7 @@
+**The Social Media Olympics**\
+`More lenient posting rules for Olympic athletes have helped spark a deluge of successful social media content. Some say that’s changing how we watch the Games.`\
+https://nytimes.com/2024/08/10/business/dealbook/the-social-media-olympics.html
+
 **Nikola Jokić leads Serbia to Olympic bronze in men's basketball over Germany**\
 `Nikola Jokić's triple-double helped Serbia shake the U.S. hangover and topple Germany on Saturday in the Olympic bronze-medal game.`\
 https://nytimes.com/athletic/5692462/2024/08/10/serbia-germany-olympics-basketball-bronze-nikola-jokic/

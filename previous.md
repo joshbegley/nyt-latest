@@ -1,3 +1,7 @@
+**The Social Media Olympics**\
+`More lenient posting rules for Olympic athletes have helped spark a deluge of successful social media content. Some say that’s changing how we watch the Games.`\
+https://nytimes.com/2024/08/10/business/dealbook/the-social-media-olympics.html
+
 **Nikola Jokić leads Serbia to Olympic bronze in men's basketball over Germany**\
 `Nikola Jokić's triple-double helped Serbia shake the U.S. hangover and topple Germany on Saturday in the Olympic bronze-medal game.`\
 https://nytimes.com/athletic/5692462/2024/08/10/serbia-germany-olympics-basketball-bronze-nikola-jokic/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/10/opinion/natural-birth-breastfeeding.html
 **Russia Appears to Partly Halt Ukraine’s Cross-Border Assault, Analysts Say**\
 `Yet some in Russia were asking how it was even allowed to happen.`\
 https://nytimes.com/2024/08/10/world/europe/ukraine-russia-cross-border-attack.html
-
-**A Head-Spinning Debut**\
-`Breaking, the hip-hop dance style born in the Bronx five decades ago, is now an Olympic sport.`\
-https://nytimes.com/2024/08/10/briefing/breaking-olympics-explained.html
 
