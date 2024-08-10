@@ -1,3 +1,7 @@
+**Breaking debuts at Olympics, noisily and colorfully, in the sport's newest chapter**\
+`There will likely never be unity between the old and new schools of breaking, but Friday, the sport pushed forward with its Olympic debut.`\
+https://nytimes.com/athletic/5691707/2024/08/10/breaking-olympics-debut-b-girls-boys-ami/
+
 **Susan Wojcicki, Former Chief of YouTube, Dies at 56**\
 `The business executive helped turn Google into an internet juggernaut and became one of the most prominent women in Silicon Valley.`\
 https://nytimes.com/2024/08/10/business/susan-wojcicki-dead.html
