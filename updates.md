@@ -1,3 +1,11 @@
+**Walz in the National Guard: A Steady Rise Ending With a Hard Decision**\
+`In a military career that spanned three decades, Tim Walz achieved one of the highest enlisted ranks in the Army. Some peers took issue with the timing of his retirement.`\
+https://nytimes.com/2024/08/10/us/tim-walz-military-career.html
+
+**Trump Goes West: A Day on the Trail**\
+`By Doug Mills`\
+https://nytimes.com/card/2024/08/10/admin/trump-montana
+
 **What Caused a Plane to Fall From the Sky in Brazil?**\
 `Officials are investigating potential causes of a plane crash that killed 62 people near São Paulo. Using videos and other clues, aviation experts have formed theories.`\
 https://nytimes.com/2024/08/10/world/americas/brazil-plane-crash-investigation.html
