@@ -1,3 +1,7 @@
+**Tamberi goes to hospital, says he'll make high jump final**\
+`Italy's Gianmarco Tamberi went to the hospital Saturday morning and said he threw up blood twice.`\
+https://nytimes.com/athletic/5692757/2024/08/10/gianmarco-tamberi-high-jump-olympics/
+
 **Ancient Calendar, Recently Discovered, May Document a Long-Ago Disaster**\
 `The markings on a pillar in southern Turkey are more than decorations on the stone, a researcher at the University of Edinburgh says. They may memorialize a time when comet fragments struck Earth.`\
 https://nytimes.com/2024/08/10/world/asia/worlds-oldest-calendar-gobekli-tepe.html
