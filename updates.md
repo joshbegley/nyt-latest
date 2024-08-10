@@ -1,3 +1,7 @@
+**Harris Rides Momentum to Arizona, for What Campaign Says Is Largest Rally Yet**\
+`Kamala Harris and her running mate, Gov. Tim Walz of Minnesota, drew 15,000 at a rally near Phoenix, the campaign said. To win in Arizona, they will need the diverse coalition that gave President Biden the state in 2020.`\
+https://nytimes.com/2024/08/09/us/politics/harris-walz-arizona.html
+
 **Dodgers end shortstop experiment, will move Mookie Betts to right field, after all**\
 `Betts said all year that he prefers playing infield but took the move back to the outfield in stride: "I just want to win, bro."`\
 https://nytimes.com/athletic/5692184/2024/08/09/dodgers-mookie-betts-outfleld-move/
