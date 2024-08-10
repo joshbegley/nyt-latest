@@ -1,3 +1,11 @@
+**Padres’ Luis Arraez reveals lingering thumb injury is a torn ligament**\
+`Arraez originally hurt his thumb when he jammed it sliding into third base June 25.`\
+https://nytimes.com/athletic/5692142/2024/08/09/padres-luis-arraez-thumb-injury-torn-ligament/
+
+**Five takeaways from Falcons' preseason loss to Dolphins, starting with more injuries**\
+`The Falcons lost 20-13 to the Dolphins on Friday night and suffered two more injuries along the way.`\
+https://nytimes.com/athletic/5692215/2024/08/09/falcons-preseason-loss-dolphins-injuries-takeaways/
+
 **Famed Double Arch Collapses in Glen Canyon National Recreation Area**\
 `Changing water levels and erosion are believed to have contributed to the collapse of the geologic feature, which was formed from 190 million-year-old Navajo sandstone, the National Park Service said.`\
 https://nytimes.com/2024/08/09/us/glen-canyon-arch-collapse.html

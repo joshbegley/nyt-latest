@@ -1,3 +1,11 @@
+**Padres’ Luis Arraez reveals lingering thumb injury is a torn ligament**\
+`Arraez originally hurt his thumb when he jammed it sliding into third base June 25.`\
+https://nytimes.com/athletic/5692142/2024/08/09/padres-luis-arraez-thumb-injury-torn-ligament/
+
+**Five takeaways from Falcons' preseason loss to Dolphins, starting with more injuries**\
+`The Falcons lost 20-13 to the Dolphins on Friday night and suffered two more injuries along the way.`\
+https://nytimes.com/athletic/5692215/2024/08/09/falcons-preseason-loss-dolphins-injuries-takeaways/
+
 **Famed Double Arch Collapses in Glen Canyon National Recreation Area**\
 `Changing water levels and erosion are believed to have contributed to the collapse of the geologic feature, which was formed from 190 million-year-old Navajo sandstone, the National Park Service said.`\
 https://nytimes.com/2024/08/09/us/glen-canyon-arch-collapse.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5692161/2024/08/09/carl-lewis-usa-relay-olympics-co
 **Israel Launches Another Offensive in Gaza’s South Amid Push for Truce**\
 `The United States, Egypt and Qatar are trying to restart peace talks between Hamas and Israel, while Israel carries on its operation in Gaza and braces for attacks by Iran and Hezbollah.`\
 https://nytimes.com/2024/08/09/world/middleeast/israel-offensive-peace-talks.html
-
-**Giants option struggling closer Camilo Doval, a 2023 All-Star, to Triple A**\
-`The Giants' bullpen will have a dramatically different look, as Doval heads to Triple A following a blown save Thursday in Washington, D.C.`\
-https://nytimes.com/athletic/5692150/2024/08/09/sf-giants-camilo-doval-demotion/
-
-**Harris Has a Big Campaign Launch — and Big Tests Ahead**\
-`Fresh challenges in the offing could determine how long the vice president’s honeymoon will last.`\
-https://nytimes.com/2024/08/09/us/politics/harris-walz-trump-polls.html
 
