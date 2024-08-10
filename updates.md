@@ -1,3 +1,7 @@
+**Gazans describe carnage at airstrike site: ‘The dead were all in pieces.’**\
+`By Raja Abdulrahim and Ameera Harouda`\
+https://nytimes.com/live/2024/08/10/world/israel-iran-hamas-gaza-war/before-they-could-pray-the-israeli-airstrike-hit
+
 **Chalobah training away from Chelsea first team**\
 `Trevoh Chalobah is training away from the Chelsea first team with his future looking increasingly likely to be away from the club.`\
 https://nytimes.com/athletic/5692506/2024/08/10/chelsea-trevoh-chalobah-training/
