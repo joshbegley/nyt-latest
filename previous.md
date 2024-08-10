@@ -1,3 +1,23 @@
+**Dominic Solanke to Tottenham Hotspur: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Dominic Solanke's move to Tottenham `\
+https://nytimes.com/athletic/5690943/2024/08/10/dominic-solanke-to-tottenham-hotspur-the-athletic-500-transfer-ratings/
+
+**How the Olympics Warp Time**\
+`Doesn’t it seem like the Paris Games have gone by fast? Imagine having your success or failure defined by thousandths of a second.`\
+https://nytimes.com/2024/08/10/world/olympics/paris-olympics-time.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/10/crosswords/spelling-bee-forum.html
+
+**How a Subway Mosaic Artist Spends Her Sundays**\
+`Jackie Chang, who designed the mosaics at a Brooklyn subway station, spends her day designing in her studio, making Taiwanese breakfast and practicing violin.`\
+https://nytimes.com/2024/08/10/nyregion/jackie-chang-subway-mosaics.html
+
+**A Bike-Riding Barber Cuts Hair on Broadway, in the Park and on the Roof**\
+`Julien Howard, who is known as the Vélo Barber, travels around New York City by bike in search of the “dopest” places to cut hair.`\
+https://nytimes.com/2024/08/10/nyregion/velo-barber-julien-howard.html
+
 **Tottenham complete Dominic Solanke deal**\
 `Dominic Solanke has completed his move to Tottenham Hotspur in a £65million deal from Bournemouth.`\
 https://nytimes.com/athletic/5690897/2024/08/10/tottenham-complete-dominic-solanke-signing/
@@ -17,24 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009577656/gaza-doctor-hospitals
 **What We Know About the Plane Crash in Brazil**\
 `The twin-engine turboprop passenger aircraft crashed near São Paulo, killing all 61 people on board. Officials are investigating the cause.`\
 https://nytimes.com/2024/08/10/world/americas/brazil-plane-crash.html
-
-**Twins handle devastating injury news with aplomb, sweep doubleheader from Guardians**\
-`The Twins' comeback victory demonstrated the perseverance of a team that only 12 hours earlier announced a series of hobbled players.`\
-https://nytimes.com/athletic/5692264/2024/08/10/twins-injuries-sweep-guardians/
-
-**Yes, Trump Was in a Scary Helicopter Ride. But Not With That Politician.**\
-`There was a helicopter. It did make an emergency landing. But a former California lawmaker says Donald Trump has mixed up one Black lawmaker for another.`\
-https://nytimes.com/2024/08/10/us/politics/trump-helicopter-crash-willie-brown.html
-
-**Saturday's MLB odds, best bets: Predictions for pitching matchups, props, playoffs and more**\
-`See pitching matchups, playoff projections, win projections and more for Saturday's MLB games.`\
-https://nytimes.com/athletic/5692308/2024/08/10/mlb-odds-best-bets-projections-august-10/
-
-**Trevor Story closer to possible late-season return, but will it matter for Red Sox?**\
-`While the news Friday on Story was promising, the Red Sox still have plenty of hurdles to overcome.`\
-https://nytimes.com/athletic/5692248/2024/08/10/trevor-story-big-step-toward-return-red-sox/
-
-**Doinks and debuts: Breaking down Eagles-Ravens, preseason game No. 1**\
-`After hitting the upright on a 50-yard field goal attempt seconds earlier, Jake Elliott hit a game-winning 49-yarder for the Eagles.`\
-https://nytimes.com/athletic/5692141/2024/08/10/eagles-ravens-preseason-jake-elliott/
 
