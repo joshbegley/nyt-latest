@@ -1,3 +1,11 @@
+**Williams, Daniels shine in NFL preseason debuts**\
+`Saturday's preseason action gave NFL fans their first glimpse of QBs Caleb Williams and Jayden Daniels, and the rookies delivered.`\
+https://nytimes.com/athletic/5692896/2024/08/10/caleb-williams-jayden-daniels-nfl-preseason-debuts/
+
+**U.S. men win 4x400 relay for third consecutive Olympics**\
+`SAINT-DENIS, France — No issues with this men’s relay team.`\
+https://nytimes.com/athletic/5692935/2024/08/10/olympic-mens-4x400-relay-results-usa/
+
 **James suffers hamstring injury ahead of new season**\
 `Chelsea defender Reece James has suffered a setback ahead of the new season after suffering a new hamstring injury.`\
 https://nytimes.com/athletic/5692859/2024/08/10/reece-james-chelsea-injury-new-season/
