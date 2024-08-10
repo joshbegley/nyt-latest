@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5693321/2024/08/10/uswnt-olympic-gold-journey/
 https://nytimes.com/2024/08/10/world/americas/brazil-plane-crash-investigation.html
 
 **Jayden Daniels goes rogue, delivers wow play in Commanders preseason debut**\
-`Daniels' teammates loved his mid-play check for a big gain, while coach Dan Quinn saw it as seeking "forgiveness and not permission."`\
+`Daniels' teammates loved his mid-play check for a big gain, and coach Dan Quinn saw it as seeking "forgiveness and not permission."`\
 https://nytimes.com/athletic/5693242/2024/08/10/jayden-daniels-commanders-preseason/
 
 **Take the El Train**\
