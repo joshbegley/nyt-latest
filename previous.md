@@ -1,3 +1,7 @@
+**Eddie Canales, 76, Dies; Gave Migrants Water, and Dignity**\
+`After a long career as a union organizer, he came out of retirement in 2013 to form the South Texas Human Rights Center and provide lifesaving aid.`\
+https://nytimes.com/2024/08/10/us/eddie-canales-dead.html
+
 **The B-boys and B-girls of breaking put a new spin on the Summer Games.**\
 `The first Olympic breaking competition received energetic response from those in attendance, but the sport’s future in the Games remained unclear.`\
 https://nytimes.com/2024/08/10/world/olympics/breaking-phil-wizard-gold.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5692935/2024/08/10/olympic-mens-4x400-relay-results
 **Harris Campaign Says Walz ‘Misspoke’ in a Comment About His Military Service**\
 `The Democratic vice-presidential nominee has come under attack from Republicans, who have suggested that he has overstated his military record and avoided combat.`\
 https://nytimes.com/2024/08/10/us/politics/walz-guns-war-military.html
-
-**Los Angeles Has Promised a ‘Car-Free’ Olympics in 2028. Can It Do It?**\
-`The countdown is on for the city, which will host the next Summer Games and is working on transit upgrades to accommodate hundreds of thousands of visitors.`\
-https://nytimes.com/2024/08/10/us/los-angeles-olympics-traffic-transport.html
 
