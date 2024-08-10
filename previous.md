@@ -1,3 +1,11 @@
+**Inside the talent factory behind Kudus and Adingra - which is now expanding to the U.S.**\
+`The Athletic was granted behind the scenes access to the Right to Dream academy during one of its tours`\
+https://nytimes.com/athletic/5675021/2024/08/10/inside-the-talent-factory-behind-kudus-and-adingra-which-is-now-expanding-to-the-u-s/
+
+**Who should start Man Utd's Community Shield clash with City and Premier League opener?**\
+`No Rasmus Hojlund or Leny Yoro and injury doubts in defence too. So who should Erik ten Hag call on for the season curtain-raiser?`\
+https://nytimes.com/athletic/5691114/2024/08/10/manchester-united-manchester-city-community-shield/
+
 **De Gea won't find it easy to return to football at Fiorentina after 15 months out - this is why**\
 `The former Manchester United player's break from the game is an eternity for goalkeepers, writes our analyst Matt Pyzdrowski`\
 https://nytimes.com/athletic/5674398/2024/08/10/david-de-gea-club-transfer-goalkeeper/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5690713/2024/08/10/olympics-watch-guide-day-15-bask
 **Sir Mo Farah on Sifan Hassan's historic triple attempt: 'I don't think I could have done it!'**\
 `Farah won Olympic 5,000m and 10,000m gold twice, but Hassan has added the marathon to her programme in Paris`\
 https://nytimes.com/athletic/5686970/2024/08/10/olympics-mo-farah-sifan-hassan/
-
-**Corrections: Aug. 10, 2024**\
-`Corrections that appeared in print on Saturday, Aug. 10, 2024.`\
-https://nytimes.com/2024/08/10/pageoneplus/corrections-aug-10-2024.html
-
-**Padres’ Luis Arraez reveals lingering thumb injury is a torn ligament**\
-`Arraez originally hurt his thumb when he jammed it sliding into third base June 25.`\
-https://nytimes.com/athletic/5692142/2024/08/09/padres-luis-arraez-thumb-injury-torn-ligament/
 

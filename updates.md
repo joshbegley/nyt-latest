@@ -1,3 +1,11 @@
+**Inside the talent factory behind Kudus and Adingra - which is now expanding to the U.S.**\
+`The Athletic was granted behind the scenes access to the Right to Dream academy during one of its tours`\
+https://nytimes.com/athletic/5675021/2024/08/10/inside-the-talent-factory-behind-kudus-and-adingra-which-is-now-expanding-to-the-u-s/
+
+**Who should start Man Utd's Community Shield clash with City and Premier League opener?**\
+`No Rasmus Hojlund or Leny Yoro and injury doubts in defence too. So who should Erik ten Hag call on for the season curtain-raiser?`\
+https://nytimes.com/athletic/5691114/2024/08/10/manchester-united-manchester-city-community-shield/
+
 **De Gea won't find it easy to return to football at Fiorentina after 15 months out - this is why**\
 `The former Manchester United player's break from the game is an eternity for goalkeepers, writes our analyst Matt Pyzdrowski`\
 https://nytimes.com/athletic/5674398/2024/08/10/david-de-gea-club-transfer-goalkeeper/
