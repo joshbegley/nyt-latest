@@ -1,4 +1,12 @@
-**Susan Wojcicki, Former Chief of YouTube, Dies**\
+**Tottenham complete Dominic Solanke deal**\
+`Dominic Solanke has completed his move to Tottenham Hotspur in a £65million deal from Bournemouth.`\
+https://nytimes.com/athletic/5690897/2024/08/10/tottenham-complete-dominic-solanke-signing/
+
+**Fine-Tuning His Attacks on Harris, Trump Tries Using Her Words Against Her**\
+`Donald J. Trump broke from his routine at a rally in Montana to play videos designed to portray Kamala Harris as inept and dangerously liberal.`\
+https://nytimes.com/2024/08/10/us/politics/trump-rally-montana.html
+
+**Susan Wojcicki, Former Chief of YouTube, Dies at 56**\
 `The business executive helped turn Google into an internet juggernaut and became one of the most prominent women on Silicon Valley.`\
 https://nytimes.com/2024/08/10/business/susan-wojcicki-dies.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5692248/2024/08/10/trevor-story-big-step-toward-ret
 **Doinks and debuts: Breaking down Eagles-Ravens, preseason game No. 1**\
 `After hitting the upright on a 50-yard field goal attempt seconds earlier, Jake Elliott hit a game-winning 49-yarder for the Eagles.`\
 https://nytimes.com/athletic/5692141/2024/08/10/eagles-ravens-preseason-jake-elliott/
-
-**Cubs inch closer to .500, try to sneak back into race with 'interesting and fun' stretch**\
-`This isn’t a period when just one player is carrying the group, either. Finally, from top to bottom, players are producing.`\
-https://nytimes.com/athletic/5692259/2024/08/10/cubs-closer-to-500-win-white-sox/
-
-**When fans visit Anfield for the first time: 'It was hard to hold back the tears'**\
-`What it felt like for Liverpool supporters who travelled from afar to see them play a home match for the first time last season`\
-https://nytimes.com/athletic/5672001/2024/08/10/first-time-visitors-at-anfield-liverpool/
 
