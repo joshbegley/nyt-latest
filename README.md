@@ -1,40 +1,40 @@
-**Shoulder injury to rookie CB Nate Wiggins will create uneasy feeling for Ravens**\
-`Baltimore desperately wants to avoid the trend of suffering injuries to key players in its secondary. `\
-https://nytimes.com/athletic/5692287/2024/08/10/ravens-nate-wiggins-injury-preseason/
+**How to Avoid Online Scams and What to Do if You Become a Victim**\
+`Here are tips on how to dodge some of the most devastating schemes and what to do if you or someone you care about becomes ensnared.`\
+https://nytimes.com/2024/08/10/business/online-scams-advice.html
 
-**Tola wins Olympic marathon for Ethiopia**\
-`On a bright and clear morning in Paris, 80 of the world’s best distance runners battled for one of the sport’s ultimate prizes`\
-https://nytimes.com/athletic/5692378/2024/08/10/olympics-marathon-result-tamirat-tola/
+**What’s So New About the ‘New Right’?**\
+`JD Vance and his allies represent a mind-set that dates back to the McCarthy era and the dawn of the Cold War.`\
+https://nytimes.com/2024/08/10/magazine/jd-vance-new-right-republicans.html
 
-**For Diana Taurasi, one last Olympic hurrah to cap a one-of-a-kind career**\
-`Diana Taurasi will play her final Olympic game Sunday. She'll go out a legend, and a player who elevated USA Basketball to new heights`\
-https://nytimes.com/athletic/5691871/2024/08/10/diana-taurasi-olympics-finale-gold-medal-game/
+**In the Fierce Lobster Roll Rivalry, There Are Only Winners**\
+`Whether you are a buttered Connecticut-style fan or a partisan of the Maine rolls with mayo, summer is your season.`\
+https://nytimes.com/2024/08/10/dining/lobster-rolls.html
 
-**Breaking debuts at Olympics, noisily and colorfully, in the sport's newest chapter**\
-`There will likely never be unity between the old and new schools of breaking, but Friday, the sport pushed forward with its Olympic debut.`\
-https://nytimes.com/athletic/5691707/2024/08/10/breaking-olympics-debut-b-girls-boys-ami/
+**Can I Let My Niece Live in My Rent-Stabilized Apartment?**\
+`To live in a rent-stabilized apartment in New York, it must be your primary residence. But how far can you bend the rules?`\
+https://nytimes.com/2024/08/10/realestate/can-i-let-my-niece-live-in-my-rent-stabilized-apartment.html
 
-**Israel says it carried out a strike on a school turned shelter in Gaza City.**\
-`By Raja Abdulrahim and Victoria Kim`\
-https://nytimes.com/live/2024/08/10/world/israel-iran-hamas-gaza-war/israel-says-it-carried-out-a-strike-on-a-school-turned-shelter-in-gaza-city
+**For a ‘Citizen Artist,’ Creativity Is a Matter of Survival**\
+`Her residency and exhibition at the University of Chicago highlights vanessa german’s determination to tap into the power of love and art to heal traumas — including her own.`\
+https://nytimes.com/2024/08/10/arts/design/vanessa-german-artist-sculpture-university-chicago.html
 
-**Israel Says It Struck School Complex in Gaza; Palestinian Authorities Say Dozens Dead**\
-`Israel said the compound, where people were sheltering, had also been operating as a headquarters for militants.`\
-https://nytimes.com/live/2024/08/10/world/israel-iran-hamas-gaza-war
+**The Lying Game**\
+`How bad could it be?`\
+https://nytimes.com/2024/08/10/style/the-lying-game.html
 
-**Dominic Solanke to Tottenham Hotspur: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we analyse and rate Dominic Solanke's move to Tottenham `\
-https://nytimes.com/athletic/5690943/2024/08/10/dominic-solanke-to-tottenham-hotspur-the-athletic-500-transfer-ratings/
+**5 Podcasts for the Constantly Online**\
+`As the internet continues to alter every aspect of our lives, these shows explain the latest TikTok trends, celebrity in the social media age and more.`\
+https://nytimes.com/2024/08/10/arts/podcasts-internet-influencers-tiktok.html
 
-**How the Olympics Warp Time**\
-`Doesn’t it seem like the Paris Games have gone by fast? Imagine having your success or failure defined by thousandths of a second.`\
-https://nytimes.com/2024/08/10/world/olympics/paris-olympics-time.html
+**How Hollywood Glamour Is Reviving the Endangered Broadway Play**\
+`George Clooney, Robert Downey Jr., Denzel Washington and Mia Farrow are coming to Broadway, where some producers see plays with stars as safer bets than musicals.`\
+https://nytimes.com/2024/08/10/theater/broadway-plays-hollywood-stars.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/08/10/crosswords/spelling-bee-forum.html
+**Ditching Wedding Stationery for Informal Text Invitations**\
+`Some couples are taking the casual approach to sending out wedding invitations, opting for texts or emails instead of traditional printed cards.`\
+https://nytimes.com/2024/08/10/fashion/weddings/wedding-invitations-text-email.html
 
-**How a Subway Mosaic Artist Spends Her Sundays**\
-`Jackie Chang, who designed the mosaics at a Brooklyn subway station, spends her day designing in her studio, making Taiwanese breakfast and practicing violin.`\
-https://nytimes.com/2024/08/10/nyregion/jackie-chang-subway-mosaics.html
+**Monet, Taylor Swift, ‘Moana’: What Got Readers Through Their Grief**\
+`After our series on how artists have been affected by loss, we asked readers what helped them when they experienced it. These are 15 of their answers.`\
+https://nytimes.com/2024/08/10/arts/grief-art-music-reader-responses.html
 
