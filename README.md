@@ -1,3 +1,11 @@
+**Williams, Daniels shine in NFL preseason debuts**\
+`Saturday's preseason action gave NFL fans their first glimpse of QBs Caleb Williams and Jayden Daniels, and the rookies delivered.`\
+https://nytimes.com/athletic/5692896/2024/08/10/caleb-williams-jayden-daniels-nfl-preseason-debuts/
+
+**U.S. men win 4x400 relay for third consecutive Olympics**\
+`SAINT-DENIS, France — No issues with this men’s relay team.`\
+https://nytimes.com/athletic/5692935/2024/08/10/olympic-mens-4x400-relay-results-usa/
+
 **Harris Campaign Says Walz ‘Misspoke’ in a Comment About His Military Service**\
 `The Democratic vice-presidential nominee has come under attack from Republicans, who have suggested that he has overstated his military record and avoided combat.`\
 https://nytimes.com/live/2024/08/10/us/harris-trump-election/walz-guns-war-military
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5692904/2024/08/10/jordan-chiles-olympics-artistic-
 **The U.S. women’s soccer team finds its way back to the top by beating an old foe.**\
 `Mallory Swanson scored the winner in the 57th minute, neatly slotting home a shot from the left side off an assist from Korbin Albert.`\
 https://nytimes.com/2024/08/10/world/olympics/us-women-soccer-brazil.html
-
-**Travis Scott Released From Custody After Confrontation at a Paris Hotel**\
-`The star rapper had been accused on Friday of assaulting a security guard at a luxury hotel in Paris. No charges were filed against him, according to prosecutors.`\
-https://nytimes.com/2024/08/10/arts/music/travis-scott-release-paris-arrest.html
-
-**'No-car Games:' L.A. 2028 venues will only be accessible via public transit**\
-`Los Angeles mayor Karen Bass said the city will need over 3,000 buses and plans to borrow them from all around the U.S. `\
-https://nytimes.com/athletic/5692830/2024/08/10/la-2028-olympics-transportation-buses-traffic/
 
