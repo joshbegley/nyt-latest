@@ -1,3 +1,11 @@
+**Russia Appears to Partly Halt Ukraine’s Cross-Border Assault, Analysts Say**\
+`Yet some in Russia were asking how it was even allowed to happen.`\
+https://nytimes.com/2024/08/10/world/europe/ukraine-russia-cross-border-attack.html
+
+**A Head-Spinning Debut**\
+`Breaking, the hip-hop dance style born in the Bronx five decades ago, is now an Olympic sport.`\
+https://nytimes.com/2024/08/10/briefing/breaking-olympics-explained.html
+
 **How Louis Rees-Zammit is tackling the transition from rugby to the NFL with the Chiefs**\
 `At age 23, Rees-Zammit will play in his first organized football game Saturday when the Chiefs face the Jaguars in a preseason opener.`\
 https://nytimes.com/athletic/5691778/2024/08/10/chiefs-louis-rees-zammit-preseason/
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000009494484/how-one-church-in-san-francisco-is-
 **‘They Are Burned Alive’: A Doctor Captures the Toll of War on Gaza’s Children**\
 `An American pediatrician spent three weeks in one of Gaza’s last functioning hospitals. He shared a record of what he witnessed, including rare footage from inside the hospital, with The New York Times.`\
 https://nytimes.com/2024/08/10/world/middleeast/gaza-al-aqsa-hospital-children.html
-
-**The Man Who Tried to Solve Immigration for the G.O.P.**\
-`The senator discusses how political calculations killed his border bill, the evangelical Christian vote and preparing for life after Trump.`\
-https://nytimes.com/2024/08/10/magazine/james-lankford-senator-interview.html
-
-**Inside the Worst Three Weeks of Donald Trump’s 2024 Campaign**\
-`People around the former and would-be president see a candidate knocked off his bearings, disoriented by his new contest with Kamala Harris and unsure of how to take her on.`\
-https://nytimes.com/2024/08/10/us/politics/trump-campaign-election.html
 

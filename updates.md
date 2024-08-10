@@ -1,3 +1,11 @@
+**Russia Appears to Partly Halt Ukraine’s Cross-Border Assault, Analysts Say**\
+`Yet some in Russia were asking how it was even allowed to happen.`\
+https://nytimes.com/2024/08/10/world/europe/ukraine-russia-cross-border-attack.html
+
+**A Head-Spinning Debut**\
+`Breaking, the hip-hop dance style born in the Bronx five decades ago, is now an Olympic sport.`\
+https://nytimes.com/2024/08/10/briefing/breaking-olympics-explained.html
+
 **How Louis Rees-Zammit is tackling the transition from rugby to the NFL with the Chiefs**\
 `At age 23, Rees-Zammit will play in his first organized football game Saturday when the Chiefs face the Jaguars in a preseason opener.`\
 https://nytimes.com/athletic/5691778/2024/08/10/chiefs-louis-rees-zammit-preseason/
