@@ -1,3 +1,7 @@
+**The U.S. Won the Medal Count (Almost) Every Way You Look at It**\
+`Team USA won the most events with a ball, but not the most with weapons.`\
+https://nytimes.com/interactive/2024/08/09/upshot/olympics-alternative-medals.html
+
 **Harris Rides Momentum to Arizona, for What Campaign Says Is Largest Rally Yet**\
 `Kamala Harris and her running mate, Gov. Tim Walz of Minnesota, drew 15,000 at a rally near Phoenix, the campaign said. To win in Arizona, they will need the diverse coalition that gave President Biden the state in 2020.`\
 https://nytimes.com/2024/08/09/us/politics/harris-walz-arizona.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/09/us/politics/harris-walz-trump-polls.html
 **Trump Claims He Has Helicopter Trip Records and Threatens to Sue**\
 `Former President Donald J. Trump insisted that he was in a dangerous helicopter landing, though the man he said he was with said it never happened.`\
 https://nytimes.com/2024/08/09/us/politics/trump-helicopter-landing.html
-
-**Illinois Sheriff Will Resign Amid Backlash Over Fatal Shooting by Deputy**\
-`Jack Campbell, the sheriff of Sangamon County, was criticized for hiring the deputy, who has now been charged with murdering Sonya Massey in her home last month.`\
-https://nytimes.com/2024/08/09/us/sonya-massey-jack-campbell-resigns.html
 

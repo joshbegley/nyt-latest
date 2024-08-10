@@ -1,3 +1,7 @@
+**The U.S. Won the Medal Count (Almost) Every Way You Look at It**\
+`Team USA won the most events with a ball, but not the most with weapons.`\
+https://nytimes.com/interactive/2024/08/09/upshot/olympics-alternative-medals.html
+
 **Harris Rides Momentum to Arizona, for What Campaign Says Is Largest Rally Yet**\
 `Kamala Harris and her running mate, Gov. Tim Walz of Minnesota, drew 15,000 at a rally near Phoenix, the campaign said. To win in Arizona, they will need the diverse coalition that gave President Biden the state in 2020.`\
 https://nytimes.com/2024/08/09/us/politics/harris-walz-arizona.html
