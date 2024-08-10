@@ -1,3 +1,15 @@
+**Tottenham welcome back Harry Kane with efforts under way to secure his successor**\
+`Even now, it requires some mental effort just to get your head around how much Kane meant to Spurs - someone synonymous with the whole club`\
+https://nytimes.com/athletic/5688741/2024/08/10/tottenham-kane-dier-solanke-bayern/
+
+**Assessing Forest's new signings in pre-season - and how they fit into Nuno’s plans**\
+`Now the friendlies are finished, what have we learned about the qualities of the new arrivals ahead of next weekend’s Premier League opener?`\
+https://nytimes.com/athletic/5690891/2024/08/10/forest-new-signings-friendlies-assessed/
+
+**Can Arsenal win the league without a powerhouse No 9?**\
+`If Arsenal are to avoid another 'nearly' season, do they need to sign a new striker?`\
+https://nytimes.com/athletic/5688686/2024/08/10/can-arsenal-win-the-league-without-a-powerhouse-no-9/
+
 **Inside the talent factory behind Kudus and Adingra - which is now expanding to the U.S.**\
 `The Athletic was granted behind the scenes access to the Right to Dream academy during one of its tours`\
 https://nytimes.com/athletic/5675021/2024/08/10/inside-the-talent-factory-behind-kudus-and-adingra-which-is-now-expanding-to-the-u-s/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/10/world/asia/bangladesh-economy.html
 **How Economic Grievances Were Exploited in Britain’s Violent Unrest**\
 `Nationalist hatred has been linked to forces like stagnant wages and declining services, even though research shows immigration helps many economies.`\
 https://nytimes.com/2024/08/10/business/economy/uk-riots-economy.html
-
-**China’s Great Wall of Villages**\
-`China has moved thousands of people to new settlements on its frontiers. It calls them “border guardians.”`\
-https://nytimes.com/interactive/2024/08/10/world/asia/china-border-villages.html
-
-**Olympics Today: Saturday's guide to what to watch in Paris**\
-`The penultimate day of the Paris Olympics provides a plethora of options.`\
-https://nytimes.com/athletic/5690713/2024/08/10/olympics-watch-guide-day-15-basketball-soccer/
-
-**Sir Mo Farah on Sifan Hassan's historic triple attempt: 'I don't think I could have done it!'**\
-`Farah won Olympic 5,000m and 10,000m gold twice, but Hassan has added the marathon to her programme in Paris`\
-https://nytimes.com/athletic/5686970/2024/08/10/olympics-mo-farah-sifan-hassan/
 
