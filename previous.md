@@ -1,3 +1,11 @@
+**Trevor Story closer to possible late-season return, but will it matter for Red Sox?**\
+`While the news Friday on Story was promising, the Red Sox still have plenty of hurdles to overcome.`\
+https://nytimes.com/athletic/5692248/2024/08/10/trevor-story-big-step-toward-return-red-sox/
+
+**Doinks and debuts: Breaking down Eagles-Ravens, preseason game No. 1**\
+`After hitting the upright on a 50-yard field goal attempt seconds earlier, Jake Elliott hit a game-winning 49-yarder for the Eagles.`\
+https://nytimes.com/athletic/5692141/2024/08/10/eagles-ravens-preseason-jake-elliott/
+
 **Cubs inch closer to .500, try to sneak back into race with 'interesting and fun' stretch**\
 `This isn’t a period when just one player is carrying the group, either. Finally, from top to bottom, players are producing.`\
 https://nytimes.com/athletic/5692259/2024/08/10/cubs-closer-to-500-win-white-sox/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5675021/2024/08/10/inside-the-talent-factory-behind
 **Who should start Man Utd's Community Shield clash with City and Premier League opener?**\
 `No Rasmus Hojlund or Leny Yoro and injury doubts in defence too. So who should Erik ten Hag call on for the season curtain-raiser?`\
 https://nytimes.com/athletic/5691114/2024/08/10/manchester-united-manchester-city-community-shield/
-
-**De Gea won't find it easy to return to football at Fiorentina after 15 months out - this is why**\
-`The former Manchester United player's break from the game is an eternity for goalkeepers, writes our analyst Matt Pyzdrowski`\
-https://nytimes.com/athletic/5674398/2024/08/10/david-de-gea-club-transfer-goalkeeper/
-
-**Dear Pentathletes: Enjoy Your Last Ride. Get Ready for the Obstacle Course.**\
-`Pentathlon will trade show jumping for an obstacle course in 2028, after accusations of horse mistreatment in Tokyo. Athletes aren’t thrilled. But they could have been pillow fighting.`\
-https://nytimes.com/2024/08/10/world/olympics/modern-pentathlon-paris-olympics.html
 

@@ -1,3 +1,11 @@
+**Trevor Story closer to possible late-season return, but will it matter for Red Sox?**\
+`While the news Friday on Story was promising, the Red Sox still have plenty of hurdles to overcome.`\
+https://nytimes.com/athletic/5692248/2024/08/10/trevor-story-big-step-toward-return-red-sox/
+
+**Doinks and debuts: Breaking down Eagles-Ravens, preseason game No. 1**\
+`After hitting the upright on a 50-yard field goal attempt seconds earlier, Jake Elliott hit a game-winning 49-yarder for the Eagles.`\
+https://nytimes.com/athletic/5692141/2024/08/10/eagles-ravens-preseason-jake-elliott/
+
 **Cubs inch closer to .500, try to sneak back into race with 'interesting and fun' stretch**\
 `This isn’t a period when just one player is carrying the group, either. Finally, from top to bottom, players are producing.`\
 https://nytimes.com/athletic/5692259/2024/08/10/cubs-closer-to-500-win-white-sox/
