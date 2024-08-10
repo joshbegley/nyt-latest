@@ -1,3 +1,11 @@
+**Israel says it carried out a strike on a school turned shelter in Gaza City.**\
+`By Raja Abdulrahim and Victoria Kim`\
+https://nytimes.com/live/2024/08/10/world/israel-iran-hamas-gaza-war/israel-says-it-carried-out-a-strike-on-a-school-turned-shelter-in-gaza-city
+
+**Israel Says It Struck School Complex in Gaza; Palestinian Authorities Say Dozens Dead**\
+`Israel said the compound, where people were sheltering, had also been operating as a headquarters for militants.`\
+https://nytimes.com/live/2024/08/10/world/israel-iran-hamas-gaza-war
+
 **Dominic Solanke to Tottenham Hotspur: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Dominic Solanke's move to Tottenham `\
 https://nytimes.com/athletic/5690943/2024/08/10/dominic-solanke-to-tottenham-hotspur-the-athletic-500-transfer-ratings/
