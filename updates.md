@@ -1,3 +1,11 @@
+**Take the El Train**\
+`Caryn Robbins presents an excellent puzzle for her Sunday debut.`\
+https://nytimes.com/2024/08/10/crosswords/daily-puzzle-2024-08-11.html
+
+**U.S. men’s basketball was tested. Stephen Curry had the answer.**\
+`A flurry of Stephen Curry 3-pointers helped the United States survive a French challenge and win a fifth straight gold medal.`\
+https://nytimes.com/2024/08/10/world/olympics/usa-basketball-gold-steph-curry.html
+
 **Curry lifts U.S. men past France to fifth straight Olympic gold**\
 `Curry drained four crucial 3-pointers inside of 3 minutes to go, including the likely game-clincher with 33 seconds left.`\
 https://nytimes.com/athletic/5693131/2024/08/10/usa-france-paris-olympics-stephen-curry-basketball/
