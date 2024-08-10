@@ -1,3 +1,7 @@
+**JD Vance Has Right-Wing Friends in High Places**\
+`What is the source of JD Vance’s ‘intellectualism’?`\
+https://nytimes.com/2024/08/10/opinion/jd-vance-right-wing-intellectual.html
+
 **When Olympic Sponsors Go Rogue**\
 `LVMH and Samsung intruded on previously sacrosanct spaces at the Paris Games, angering fellow sponsors and raising concerns about a repeat at the closing ceremony.`\
 https://nytimes.com/2024/08/10/world/olympics/when-olympic-sponsors-go-rogue.html

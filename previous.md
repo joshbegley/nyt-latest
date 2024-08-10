@@ -1,3 +1,7 @@
+**JD Vance Has Right-Wing Friends in High Places**\
+`What is the source of JD Vance’s ‘intellectualism’?`\
+https://nytimes.com/2024/08/10/opinion/jd-vance-right-wing-intellectual.html
+
 **When Olympic Sponsors Go Rogue**\
 `LVMH and Samsung intruded on previously sacrosanct spaces at the Paris Games, angering fellow sponsors and raising concerns about a repeat at the closing ceremony.`\
 https://nytimes.com/2024/08/10/world/olympics/when-olympic-sponsors-go-rogue.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009622993/gaza-strike-israel-de
 **Here’s the latest on the presidential race.**\
 `By Chris Cameron, Michael Gold and Simon J. Levien`\
 https://nytimes.com/live/2024/08/10/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Live Election Updates: Trump Tries to Curb Harris Enthusiasm After Another Big Rally**\
-`Former President Donald J. Trump tested a new tactic for attacks at an event in Montana as Vice President Kamala Harris and Gov. Tim Walz headed to Nevada to wrap up their introductory tour of battlegrounds.`\
-https://nytimes.com/live/2024/08/10/us/harris-trump-election
 
