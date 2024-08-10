@@ -1,3 +1,7 @@
+**Giants option struggling closer Camilo Doval, a 2023 All-Star, to Triple A**\
+`The Giants' bullpen will have a dramatically different look, as Doval heads to Triple A following a blown save Thursday in Washington, D.C.`\
+https://nytimes.com/athletic/5692150/2024/08/09/sf-giants-camilo-doval-demotion-2/
+
 **Harris Has a Big Campaign Launch — and Big Tests Ahead**\
 `Fresh challenges in the offing could determine how long the vice president’s honeymoon will last.`\
 https://nytimes.com/2024/08/09/us/politics/harris-walz-trump-polls.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5692073/2024/08/09/usa-basketball-kevin-durant-fran
 **A Financial Tale of Two Potential Vice Presidents**\
 `JD Vance and Tim Walz both came from modest backgrounds, but they have had very different trajectories when it comes to their personal fortunes.`\
 https://nytimes.com/2024/08/09/us/politics/walz-vance-money.html
-
-**In the ring, only one thing matters for Imane Khelif: the gold medal.**\
-`Khelif weathered two weeks of distractions, breezing to the gold medal in women’s boxing.`\
-https://nytimes.com/2024/08/09/world/olympics/imane-khelif-boxing.html
 
