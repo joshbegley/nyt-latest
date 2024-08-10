@@ -1,3 +1,7 @@
+**Man United reach agreement to sign De Ligt**\
+`Manchester United have reached an agreement with Bayern Munich to sign Matthijs de Ligt.`\
+https://nytimes.com/athletic/5692487/2024/08/10/manchester-united-de-ligt-transfer/
+
 **Here’s the latest on the presidential race.**\
 `By Chris Cameron, Michael Gold and Simon J. Levien`\
 https://nytimes.com/live/2024/08/10/us/harris-trump-election/heres-the-latest-on-the-presidential-race
