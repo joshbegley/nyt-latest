@@ -1,3 +1,7 @@
+**Susan Wojcicki, Former Chief of YouTube, Dies**\
+`The business executive helped turn Google into an internet juggernaut and became one of the most prominent women on Silicon Valley.`\
+https://nytimes.com/2024/08/10/business/susan-wojcicki-dies.html
+
 **Inside One of the Last Functioning Hospitals in Gaza**\
 `Dr. Ahmad Yousaf is an American pediatrician who recently returned from a medical mission to Gaza. He shared rare footage from inside Al Aqsa Hospital, where he captured harrowing conditions for medical workers and patients, particularly children.`\
 https://nytimes.com/video/world/middleeast/100000009577656/gaza-doctor-hospitals.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5692259/2024/08/10/cubs-closer-to-500-win-white-sox
 **When fans visit Anfield for the first time: 'It was hard to hold back the tears'**\
 `What it felt like for Liverpool supporters who travelled from afar to see them play a home match for the first time last season`\
 https://nytimes.com/athletic/5672001/2024/08/10/first-time-visitors-at-anfield-liverpool/
-
-**Chelsea and playing out from the back: Why is it not working and is pressure the problem?**\
-`Five friendly matches in the U.S. yielded one clean sheet and 12 goals conceded with Chelsea’s defending at times degenerating into farce`\
-https://nytimes.com/athletic/5690644/2024/08/10/chelsea-defence-press-maresca/
 
