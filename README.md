@@ -1,3 +1,7 @@
+**Israeli Strikes on Schools Pose a Life-or-Death Choice for Civilians**\
+`Schools in Gaza have taken in tens of thousands of people seeking safety. Israel, arguing that Hamas uses the shelters, has struck school grounds repeatedly.`\
+https://nytimes.com/2024/08/10/world/middleeast/israel-schools-shelters.html
+
 **Brentford agree deal to sign Carvalho from Liverpool**\
 `Brentford have agreed to sign Liverpool midfielder Fabio Carvalho in a deal that could be worth £27.`\
 https://nytimes.com/athletic/5679585/2024/08/10/brentford-fabio-carvalho/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5642977/2024/08/10/jean-clair-todibo-to-west-ham-tr
 **Todibo joins West Ham on loan**\
 `West Ham United have completed the signing of Jean-Clair Todibo from Nice.`\
 https://nytimes.com/athletic/5690905/2024/08/10/west-ham-todibo-transfer/
-
-**Is It Harris’ or Harris’s? Add a Walz, and It’s Even Trickier.**\
-`With Vice President Kamala Harris and Gov. Tim Walz running on the same ticket, grammar geeks are in overdrive.`\
-https://nytimes.com/2024/08/10/us/harris-walz-apostrophe-possessive.html
 
