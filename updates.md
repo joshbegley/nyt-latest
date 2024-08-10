@@ -1,3 +1,7 @@
+**Nikola Jokić leads Serbia to Olympic bronze in men's basketball over Germany**\
+`Nikola Jokić's triple-double helped Serbia shake the U.S. hangover and topple Germany on Saturday in the Olympic bronze-medal game.`\
+https://nytimes.com/athletic/5692462/2024/08/10/serbia-germany-olympics-basketball-bronze-nikola-jokic/
+
 **Five things to watch as Broncos open preseason vs. Colts, starting with QB race**\
 `Bo Nix struggled at times with the pass rush in camp this week. Can he make strides in live action against Indy's defense? `\
 https://nytimes.com/athletic/5691604/2024/08/10/broncos-colts-preseason-five-things/
