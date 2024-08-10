@@ -1,3 +1,7 @@
+**The U.S. women’s team finds its way back to the top by beating an old foe.**\
+`Mallory Swanson scored the winner in the 57th minute, neatly slotting home a shot from the left side off an assist from Korbin Albert.`\
+https://nytimes.com/2024/08/10/world/olympics/us-women-soccer-brazil.html
+
 **Travis Scott Released From Custody After Confrontation at a Paris Hotel**\
 `The star rapper had been accused on Friday of assaulting a security guard at a luxury hotel in Paris. No charges were filed against him, according to prosecutors.`\
 https://nytimes.com/2024/08/10/arts/music/travis-scott-release-paris-arrest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/10/world/middleeast/israel-schools-shelters.html
 **Brentford agree deal to sign Carvalho from Liverpool**\
 `Brentford have agreed to sign Liverpool midfielder Fabio Carvalho in a deal that could be worth £27.`\
 https://nytimes.com/athletic/5679585/2024/08/10/brentford-fabio-carvalho/
-
-**Tamberi goes to hospital, says he'll make high jump final**\
-`Italy's Gianmarco Tamberi went to the hospital Saturday morning and said he threw up blood twice.`\
-https://nytimes.com/athletic/5692757/2024/08/10/gianmarco-tamberi-high-jump-olympics/
 
