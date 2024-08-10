@@ -1,3 +1,7 @@
+**The Briefing: Manchester City 1 Manchester United 1: City take Community Shield on penalties at Wembley**\
+`We break down the key talking points from Saturday's Community Shield fixture at Wembley`\
+https://nytimes.com/athletic/5691440/2024/08/10/manchester-city-manchester-united-result-analysis/
+
 **Israeli Strikes on Schools Pose a Life-or-Death Choice for Civilians**\
 `Schools in Gaza have taken in tens of thousands of people seeking safety. Israel, arguing that Hamas uses the shelters, has struck school grounds repeatedly.`\
 https://nytimes.com/2024/08/10/world/middleeast/israel-schools-shelters.html
