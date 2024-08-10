@@ -1,3 +1,7 @@
+**Inside One of the Last Functioning Hospitals in Gaza**\
+`Dr. Ahmad Yousaf is an American pediatrician who recently returned from a medical mission to Gaza. He shared rare footage from inside Al Aqsa Hospital, where he captured harrowing conditions for medical workers and patients, particularly children.`\
+https://nytimes.com/video/world/middleeast/100000009577656/gaza-doctor-hospitals.html
+
 **What We Know About the Plane Crash in Brazil**\
 `The twin-engine turboprop passenger aircraft crashed near São Paulo, killing all 61 people on board. Officials are investigating the cause.`\
 https://nytimes.com/2024/08/10/world/americas/brazil-plane-crash.html
