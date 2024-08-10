@@ -1,3 +1,11 @@
+**When Olympic Sponsors Go Rogue**\
+`LVMH and Samsung intruded on previously sacrosanct spaces at the Paris Games, angering fellow sponsors and raising concerns about a repeat at the closing ceremony.`\
+https://nytimes.com/2024/08/10/world/olympics/when-olympic-sponsors-go-rogue.html
+
+**‘This Recipe Just Made My Summer’**\
+`This charred corn and chickpea salad with lime crema is fast and easy, and it’s already a hit with readers.`\
+https://nytimes.com/2024/08/10/dining/corn-chickpea-salad-recipe.html
+
 **Justin Fields flashes in Steelers' debut, offering optimism entering a new chapter**\
 `Fields had some hiccups, notably two botched exchanges, but he looked comfortable, confident and decisive with his new team.`\
 https://nytimes.com/athletic/5692224/2024/08/10/justin-fields-steelers-preseason-opener/
