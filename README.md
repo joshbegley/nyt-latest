@@ -1,3 +1,7 @@
+**Inside One of the Last Functioning Hospitals in Gaza**\
+`Dr. Ahmad Yousaf is an American pediatrician who recently returned from a medical mission to Gaza. He shared rare footage from inside Al Aqsa Hospital, where he captured harrowing conditions for medical workers and patients, particularly children.`\
+https://nytimes.com/video/world/middleeast/100000009577656/gaza-doctor-hospitals.html
+
 **What We Know About the Plane Crash in Brazil**\
 `The twin-engine turboprop passenger aircraft crashed near São Paulo, killing all 61 people on board. Officials are investigating the cause.`\
 https://nytimes.com/2024/08/10/world/americas/brazil-plane-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5672001/2024/08/10/first-time-visitors-at-anfield-l
 **Chelsea and playing out from the back: Why is it not working and is pressure the problem?**\
 `Five friendly matches in the U.S. yielded one clean sheet and 12 goals conceded with Chelsea’s defending at times degenerating into farce`\
 https://nytimes.com/athletic/5690644/2024/08/10/chelsea-defence-press-maresca/
-
-**Tottenham welcome back Harry Kane with efforts under way to secure his successor**\
-`Even now, it requires some mental effort just to get your head around how much Kane meant to Spurs - someone synonymous with the whole club`\
-https://nytimes.com/athletic/5688741/2024/08/10/tottenham-kane-dier-solanke-bayern/
 
