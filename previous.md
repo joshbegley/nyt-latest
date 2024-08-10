@@ -1,3 +1,7 @@
+**Iowa's once-solved quarterback situation is now a competition and perhaps a controversy**\
+`Northwestern transfer Brendan Sullivan clearly outplayed expected starter Cade McNamara during Saturday's open practice. `\
+https://nytimes.com/athletic/5693193/2024/08/10/iowa-quarterbacks-cade-mcnamara-brendan-sullivan/
+
 **Lin Yu-ting of Taiwan earns a gold on what could be boxing's last Olympic night**\
 `Lin Yu-ting of Taiwan, who quietly weathered a firestorm during these Paris Games of at times ugly speculation about her personal biology, won a gold medal Saturday on what could potentially be the last night of boxing at the Olympic Games.`\
 https://nytimes.com/athletic/5693168/2024/08/10/lin-yu-ting-boxing-olympics-gold-gender/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5693040/2024/08/10/jordan-chiles-olympics-gymnastic
 **U.S. women, led by McLaughlin-Levrone and Thomas, coast to 4x400 relay win**\
 `SAINT-DENIS, France — The athletics portion of the Paris Games ended with the United States crossing the finish line, the opponent distant in the rearview, in a display of superiority.`\
 https://nytimes.com/athletic/5693052/2024/08/10/olympics-womens-4x400-relay-usa/
-
-**Williams, Daniels shine in NFL preseason debuts**\
-`Saturday's preseason action gave NFL fans their first glimpse of QBs Caleb Williams and Jayden Daniels, and the rookies delivered.`\
-https://nytimes.com/athletic/5692896/2024/08/10/caleb-williams-jayden-daniels-nfl-preseason-debuts/
 
