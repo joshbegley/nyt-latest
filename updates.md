@@ -1,3 +1,15 @@
+**What Caused a Plane to Fall From the Sky in Brazil?**\
+`Officials are investigating potential causes of a plane crash that killed 62 people near São Paulo. Using videos and other clues, aviation experts have formed theories.`\
+https://nytimes.com/2024/08/10/world/americas/brazil-plane-crash-investigation.html
+
+**Jayden Daniels goes rogue, delivers wow play in Commanders preseason debut**\
+`Daniels' teammates loved his mid-play check for a big gain, while coach Dan Quinn saw it as seeking "forgiveness and not permission."`\
+https://nytimes.com/athletic/5693242/2024/08/10/jayden-daniels-commanders-preseason/
+
+**Curry lifts U.S. men past France to fifth straight Olympic gold**\
+`Curry drained four crucial 3-pointers inside of three minutes to go, including the likely game-clincher with 33 seconds left.`\
+https://nytimes.com/athletic/5693131/2024/08/10/usa-france-paris-olympics-stephen-curry-basketball/
+
 **Take the El Train**\
 `Caryn Robbins presents an excellent puzzle for her Sunday debut.`\
 https://nytimes.com/2024/08/10/crosswords/daily-puzzle-2024-08-11.html
