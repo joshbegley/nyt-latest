@@ -1,3 +1,7 @@
+**Tamberi goes to hospital, says he'll make high jump final**\
+`Italy's Gianmarco Tamberi went to the hospital Saturday morning and said he threw up blood twice.`\
+https://nytimes.com/athletic/5692757/2024/08/10/gianmarco-tamberi-high-jump-olympics/
+
 **Ancient Calendar, Recently Discovered, May Document a Long-Ago Disaster**\
 `The markings on a pillar in southern Turkey are more than decorations on the stone, a researcher at the University of Edinburgh says. They may memorialize a time when comet fragments struck Earth.`\
 https://nytimes.com/2024/08/10/world/asia/worlds-oldest-calendar-gobekli-tepe.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/10/us/harris-walz-apostrophe-possessive.html
 **Bournemouth set to sign Barcelona defender Araujo**\
 `Barcelona defender Julian Araujo is close to completing a move to AFC Bournemouth.`\
 https://nytimes.com/athletic/5689791/2024/08/10/bournemouth-julian-araujo/
-
-**Aftermath of Israeli Airstrike That Killed Dozens in Gaza City**\
-`Palestinians looked through rubble after a deadly Israeli airstrike hit a school turned shelter in northern Gaza.`\
-https://nytimes.com/video/world/middleeast/100000009622993/gaza-strike-israel-dead.html
 
