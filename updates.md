@@ -1,3 +1,7 @@
+**The Man Who Tried to Solve Immigration for the G.O.P.**\
+`The senator discusses how political calculations killed his border bill, the evangelical Christian vote and preparing for life after Trump.`\
+https://nytimes.com/2024/08/10/magazine/james-lankford-senator-interview.html
+
 **Inside the Worst Three Weeks of Donald Trump’s 2024 Campaign**\
 `People around the former and would-be president see a candidate knocked off his bearings, disoriented by his new contest with Kamala Harris and unsure of how to take her on.`\
 https://nytimes.com/2024/08/10/us/politics/trump-campaign-election.html
