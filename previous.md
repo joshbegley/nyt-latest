@@ -1,3 +1,11 @@
+**When fans visit Anfield for the first time: 'It was hard to hold back the tears'**\
+`What it felt like for Liverpool supporters who travelled from afar to see them play a home match for the first time last season`\
+https://nytimes.com/athletic/5672001/2024/08/10/first-time-visitors-at-anfield-liverpool/
+
+**Chelsea and playing out from the back: Why is it not working and is pressure the problem?**\
+`Five friendly matches in the U.S. yielded one clean sheet and 12 goals conceded with Chelsea’s defending at times degenerating into farce`\
+https://nytimes.com/athletic/5690644/2024/08/10/chelsea-defence-press-maresca/
+
 **Tottenham welcome back Harry Kane with efforts under way to secure his successor**\
 `Even now, it requires some mental effort just to get your head around how much Kane meant to Spurs - someone synonymous with the whole club`\
 https://nytimes.com/athletic/5688741/2024/08/10/tottenham-kane-dier-solanke-bayern/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/10/world/olympics/modern-pentathlon-paris-olympics.h
 **Who Won the Olympics? All the Ways We Could Think Of to Track the Medal Count.**\
 `Which country won the most events involving nets, balls or weapons? We (over) analyzed the medal standings in Paris.`\
 https://nytimes.com/2024/08/10/upshot/olympics-medal-count.html
-
-**Bangladesh Puts Its Eggs in One Economic Basket. Now, a Reckoning.**\
-`Garment exports lifted the country to new heights. But overreliance on that industry also helped bring down Prime Minister Sheikh Hasina.`\
-https://nytimes.com/2024/08/10/world/asia/bangladesh-economy.html
-
-**How Economic Grievances Were Exploited in Britain’s Violent Unrest**\
-`Nationalist hatred has been linked to forces like stagnant wages and declining services, even though research shows immigration helps many economies.`\
-https://nytimes.com/2024/08/10/business/economy/uk-riots-economy.html
 

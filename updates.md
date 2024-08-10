@@ -1,3 +1,11 @@
+**When fans visit Anfield for the first time: 'It was hard to hold back the tears'**\
+`What it felt like for Liverpool supporters who travelled from afar to see them play a home match for the first time last season`\
+https://nytimes.com/athletic/5672001/2024/08/10/first-time-visitors-at-anfield-liverpool/
+
+**Chelsea and playing out from the back: Why is it not working and is pressure the problem?**\
+`Five friendly matches in the U.S. yielded one clean sheet and 12 goals conceded with Chelsea’s defending at times degenerating into farce`\
+https://nytimes.com/athletic/5690644/2024/08/10/chelsea-defence-press-maresca/
+
 **Tottenham welcome back Harry Kane with efforts under way to secure his successor**\
 `Even now, it requires some mental effort just to get your head around how much Kane meant to Spurs - someone synonymous with the whole club`\
 https://nytimes.com/athletic/5688741/2024/08/10/tottenham-kane-dier-solanke-bayern/
