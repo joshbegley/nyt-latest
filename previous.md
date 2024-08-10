@@ -1,3 +1,7 @@
+**Cubs inch closer to .500, try to sneak back into race with 'interesting and fun' stretch**\
+`This isn’t a period when just one player is carrying the group, either. Finally, from top to bottom, players are producing.`\
+https://nytimes.com/athletic/5692259/2024/08/10/cubs-closer-to-500-win-white-sox/
+
 **When fans visit Anfield for the first time: 'It was hard to hold back the tears'**\
 `What it felt like for Liverpool supporters who travelled from afar to see them play a home match for the first time last season`\
 https://nytimes.com/athletic/5672001/2024/08/10/first-time-visitors-at-anfield-liverpool/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5674398/2024/08/10/david-de-gea-club-transfer-goalk
 **Dear Pentathletes: Enjoy Your Last Ride. Get Ready for the Obstacle Course.**\
 `Pentathlon will trade show jumping for an obstacle course in 2028, after accusations of horse mistreatment in Tokyo. Athletes aren’t thrilled. But they could have been pillow fighting.`\
 https://nytimes.com/2024/08/10/world/olympics/modern-pentathlon-paris-olympics.html
-
-**Who Won the Olympics? All the Ways We Could Think Of to Track the Medal Count.**\
-`Which country won the most events involving nets, balls or weapons? We (over) analyzed the medal standings in Paris.`\
-https://nytimes.com/2024/08/10/upshot/olympics-medal-count.html
 

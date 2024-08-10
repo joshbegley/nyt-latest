@@ -1,3 +1,7 @@
+**Cubs inch closer to .500, try to sneak back into race with 'interesting and fun' stretch**\
+`This isn’t a period when just one player is carrying the group, either. Finally, from top to bottom, players are producing.`\
+https://nytimes.com/athletic/5692259/2024/08/10/cubs-closer-to-500-win-white-sox/
+
 **When fans visit Anfield for the first time: 'It was hard to hold back the tears'**\
 `What it felt like for Liverpool supporters who travelled from afar to see them play a home match for the first time last season`\
 https://nytimes.com/athletic/5672001/2024/08/10/first-time-visitors-at-anfield-liverpool/
