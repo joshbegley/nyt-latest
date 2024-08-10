@@ -1,3 +1,7 @@
+**Susan Wojcicki, Former Chief of YouTube, Dies at 56**\
+`The business executive helped turn Google into an internet juggernaut and became one of the most prominent women in Silicon Valley.`\
+https://nytimes.com/2024/08/10/business/susan-wojcicki-dead.html
+
 **Israel says it carried out a strike on a school turned shelter in Gaza City.**\
 `By Raja Abdulrahim and Victoria Kim`\
 https://nytimes.com/live/2024/08/10/world/israel-iran-hamas-gaza-war/israel-says-it-carried-out-a-strike-on-a-school-turned-shelter-in-gaza-city
