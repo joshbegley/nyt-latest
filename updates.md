@@ -1,3 +1,11 @@
+**Chalobah training away from Chelsea first team**\
+`Trevoh Chalobah is training away from the Chelsea first team with his future looking increasingly likely to be away from the club.`\
+https://nytimes.com/athletic/5692506/2024/08/10/chelsea-trevoh-chalobah-training/
+
+**Lydia Ko wins gold in Paris Olympics women's golf**\
+`Ko added to her medal collection after winning silver at the Rio Olympics and bronze at the Tokyo Olympics.`\
+https://nytimes.com/athletic/5692852/2024/08/10/lydia-ko-olympics-golf-lpga-hall-of-fame/
+
 **The Briefing: Manchester City 1 Manchester United 1 - Akanji wins Community Shield on penalties**\
 `We break down the key talking points from Saturday's dramatic Community Shield fixture at Wembley`\
 https://nytimes.com/athletic/5691440/2024/08/10/manchester-city-manchester-united-result-analysis/
