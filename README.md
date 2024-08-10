@@ -1,3 +1,7 @@
+**Dodgers end shortstop experiment, will move Mookie Betts to right field, after all**\
+`Betts said all year that he prefers playing infield but took the move back to the outfield in stride: "I just want to win, bro."`\
+https://nytimes.com/athletic/5692184/2024/08/09/dodgers-mookie-betts-outfleld-move/
+
 **Ultraconfident Affirmation**\
 `Spencer Leach’s themeless puzzle will shake, rattle and roll us around.`\
 https://nytimes.com/2024/08/09/crosswords/daily-puzzle-2024-08-10.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/09/us/sonya-massey-jack-campbell-resigns.html
 **USA women's basketball vs. France Olympics gold medal game odds: Team USA favored**\
 `The US woman enter the gold medal game as significant favorites over a tenacious home country, France.`\
 https://nytimes.com/athletic/5691696/2024/08/09/usa-france-womens-basketball-olympics-gold-medal/
-
-**Defense Dept. Contractor Arrested With Dozens of Classified Documents**\
-`Investigators are still trying to determine why the contractor, Gokhan Gun, who became an American citizen in 2021, hoarded so many documents.`\
-https://nytimes.com/2024/08/09/us/politics/gokhan-gun-classified-documents.html
 
