@@ -1,3 +1,7 @@
+**Lin Yu-ting of Taiwan earns a gold on what could be boxing's last Olympic night**\
+`Lin Yu-ting of Taiwan, who quietly weathered a firestorm during these Paris Games of at times ugly speculation about her personal biology, won a gold medal Saturday on what could potentially be the last night of boxing at the Olympic Games.`\
+https://nytimes.com/athletic/5693168/2024/08/10/lin-yu-ting-boxing-olympics-gold-gender/
+
 **Curry leads U.S. men past France for fifth straight Olympic gold**\
 `Curry drained four crucial 3-pointers inside of 3 minutes to go, including the likely game-clincher with 33 seconds left.`\
 https://nytimes.com/athletic/5693131/2024/08/10/usa-france-paris-olympics-stephen-curry-basketball/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5693052/2024/08/10/olympics-womens-4x400-relay-usa/
 **Williams, Daniels shine in NFL preseason debuts**\
 `Saturday's preseason action gave NFL fans their first glimpse of QBs Caleb Williams and Jayden Daniels, and the rookies delivered.`\
 https://nytimes.com/athletic/5692896/2024/08/10/caleb-williams-jayden-daniels-nfl-preseason-debuts/
-
-**U.S. men win 4x400 relay for third consecutive Olympics**\
-`Christopher Bailey, Vernon Norwood, Bryce Deadmon and Rai Benjamin ran in an Olympic-record 2:54.43 to win gold.`\
-https://nytimes.com/athletic/5692935/2024/08/10/olympic-mens-4x400-relay-results-usa/
 
