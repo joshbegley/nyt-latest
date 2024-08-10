@@ -1,3 +1,7 @@
+**Israeli Strikes on Schools Pose a Life-or-Death Choice for Civilians**\
+`Schools in Gaza have taken in tens of thousands of people seeking safety. Israel, arguing that Hamas uses the shelters, has struck school grounds repeatedly.`\
+https://nytimes.com/2024/08/10/world/middleeast/israel-schools-shelters.html
+
 **Brentford agree deal to sign Carvalho from Liverpool**\
 `Brentford have agreed to sign Liverpool midfielder Fabio Carvalho in a deal that could be worth £27.`\
 https://nytimes.com/athletic/5679585/2024/08/10/brentford-fabio-carvalho/
