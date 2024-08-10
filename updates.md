@@ -1,3 +1,7 @@
+**Dodgers end shortstop experiment, will move Mookie Betts to right field, after all**\
+`Betts said all year that he prefers playing infield but took the move back to the outfield in stride: "I just want to win, bro."`\
+https://nytimes.com/athletic/5692184/2024/08/09/dodgers-mookie-betts-outfleld-move/
+
 **Ultraconfident Affirmation**\
 `Spencer Leach’s themeless puzzle will shake, rattle and roll us around.`\
 https://nytimes.com/2024/08/09/crosswords/daily-puzzle-2024-08-10.html
