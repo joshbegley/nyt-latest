@@ -1,3 +1,7 @@
+**Harris Campaign Says Walz ‘Misspoke’ in a Comment About His Military Service**\
+`The Democratic vice-presidential nominee has come under attack from Republicans, who have suggested that he has overstated his military record and avoided combat.`\
+https://nytimes.com/live/2024/08/10/us/harris-trump-election/walz-guns-war-military
+
 **Chiles' floor score reversed, putting bronze in question**\
 `Four seconds too late.`\
 https://nytimes.com/athletic/5692904/2024/08/10/jordan-chiles-olympics-artistic-gymnastics-womens-floor-medal-inquiry/
