@@ -1,3 +1,7 @@
+**U.S. men win 4x400 relay for third consecutive Olympics**\
+`Christopher Bailey, Vernon Norwood, Bryce Deadmon and Rai Benjamin ran in an Olympic-record 2:54.43 to win gold.`\
+https://nytimes.com/athletic/5692935/2024/08/10/olympic-mens-4x400-relay-results-usa/
+
 **Williams, Daniels shine in NFL preseason debuts**\
 `Saturday's preseason action gave NFL fans their first glimpse of QBs Caleb Williams and Jayden Daniels, and the rookies delivered.`\
 https://nytimes.com/athletic/5692896/2024/08/10/caleb-williams-jayden-daniels-nfl-preseason-debuts/
