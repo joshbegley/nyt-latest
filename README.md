@@ -1,6 +1,6 @@
 **Giants option struggling closer Camilo Doval, a 2023 All-Star, to Triple A**\
 `The Giants' bullpen will have a dramatically different look, as Doval heads to Triple A following a blown save Thursday in Washington, D.C.`\
-https://nytimes.com/athletic/5692150/2024/08/09/sf-giants-camilo-doval-demotion-2/
+https://nytimes.com/athletic/5692150/2024/08/09/sf-giants-camilo-doval-demotion/
 
 **Harris Has a Big Campaign Launch — and Big Tests Ahead**\
 `Fresh challenges in the offing could determine how long the vice president’s honeymoon will last.`\
