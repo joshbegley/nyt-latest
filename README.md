@@ -1,11 +1,3 @@
-**What Caused a Plane to Fall From the Sky in Brazil?**\
-`Officials are investigating potential causes of a plane crash that killed 62 people near São Paulo. Using videos and other clues, aviation experts have formed theories.`\
-https://nytimes.com/2024/08/10/world/americas/brazil-plane-crash-investigation.html
-
-**Jayden Daniels goes rogue, delivers wow play in Commanders preseason debut**\
-`Daniels' teammates loved his mid-play check for a big gain, while coach Dan Quinn saw it as seeking "forgiveness and not permission."`\
-https://nytimes.com/athletic/5693242/2024/08/10/jayden-daniels-commanders-preseason/
-
 **Take the El Train**\
 `Caryn Robbins presents an excellent puzzle for her Sunday debut.`\
 https://nytimes.com/2024/08/10/crosswords/daily-puzzle-2024-08-11.html
@@ -37,4 +29,12 @@ https://nytimes.com/2024/08/10/world/olympics/breaking-phil-wizard-gold.html
 **Esther Henseleit's silver-medal Olympic golf surge and the love story behind it all**\
 `Esther Henseleit won a surprise silver medal Saturday at the Olympic golf tournament, with her caddie — also her fiancé — at her side.`\
 https://nytimes.com/athletic/5693035/2024/08/10/esther-henseleit-olympics-golf-silver-medal-reece-phillips/
+
+**Walz in the National Guard: A Steady Rise Ending With a Hard Decision**\
+`In a military career that spanned three decades, Tim Walz achieved one of the highest enlisted ranks in the Army. Some peers took issue with the timing of his retirement.`\
+https://nytimes.com/2024/08/10/us/tim-walz-military-career.html
+
+**Trump Goes West: A Day on the Trail**\
+`By Doug Mills`\
+https://nytimes.com/card/2024/08/10/admin/trump-montana
 
