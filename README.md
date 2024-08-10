@@ -1,3 +1,7 @@
+**Yes, Trump Was in a Scary Helicopter Ride. But Not With That Politician.**\
+`There was a helicopter. It did make an emergency landing. But a former California lawmaker says Donald Trump has mixed up one Black politician for another.`\
+https://nytimes.com/2024/08/10/us/politics/trump-helicopter-crash-willie-brown.html
+
 **Saturday's MLB odds, best bets: Predictions for pitching matchups, props, playoffs and more**\
 `See pitching matchups, playoff projections, win projections and more for Saturday's MLB games.`\
 https://nytimes.com/athletic/5692308/2024/08/10/mlb-odds-best-bets-projections-august-10/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5690891/2024/08/10/forest-new-signings-friendlies-a
 **Can Arsenal win the league without a powerhouse No 9?**\
 `If Arsenal are to avoid another 'nearly' season, do they need to sign a new striker?`\
 https://nytimes.com/athletic/5688686/2024/08/10/can-arsenal-win-the-league-without-a-powerhouse-no-9/
-
-**Inside the talent factory behind Kudus and Adingra - which is now expanding to the U.S.**\
-`The Athletic was granted behind the scenes access to the Right to Dream academy during one of its tours`\
-https://nytimes.com/athletic/5675021/2024/08/10/inside-the-talent-factory-behind-kudus-and-adingra-which-is-now-expanding-to-the-u-s/
 
