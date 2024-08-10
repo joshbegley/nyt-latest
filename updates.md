@@ -1,3 +1,15 @@
+**USWNT overcomes a year of change to win Olympic gold again: 'I'm just in awe'**\
+`The U.S. bounced back from its World Cup loss to secure gold a year later`\
+https://nytimes.com/athletic/5693321/2024/08/10/uswnt-olympic-gold-journey/
+
+**What Caused a Plane to Fall From the Sky in Brazil?**\
+`Officials are investigating potential causes of a plane crash that killed 62 people near São Paulo. Using videos and other clues, aviation experts have formed theories.`\
+https://nytimes.com/2024/08/10/world/americas/brazil-plane-crash-investigation.html
+
+**Jayden Daniels goes rogue, delivers wow play in Commanders preseason debut**\
+`Daniels' teammates loved his mid-play check for a big gain, while coach Dan Quinn saw it as seeking "forgiveness and not permission."`\
+https://nytimes.com/athletic/5693242/2024/08/10/jayden-daniels-commanders-preseason/
+
 **Walz in the National Guard: A Steady Rise Ending With a Hard Decision**\
 `In a military career that spanned three decades, Tim Walz achieved one of the highest enlisted ranks in the Army. Some peers took issue with the timing of his retirement.`\
 https://nytimes.com/2024/08/10/us/tim-walz-military-career.html
