@@ -1,3 +1,7 @@
+**Ancient Calendar, Recently Discovered, May Document a Long-Ago Disaster**\
+`The markings on a pillar in southern Turkey are more than decorations on the stone, a researcher at the University of Edinburgh says. They may memorialize a time when comet fragments struck Earth.`\
+https://nytimes.com/2024/08/10/world/asia/worlds-oldest-calendar-gobekli-tepe.html
+
 **JD Vance Has Right-Wing Friends in High Places**\
 `What is the source of JD Vance’s ‘intellectualism’?`\
 https://nytimes.com/2024/08/10/opinion/jd-vance-right-wing-intellectual.html
