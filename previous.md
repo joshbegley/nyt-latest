@@ -1,3 +1,11 @@
+**Todibo joins West Ham on loan**\
+`West Ham United have completed the signing of Jean-Clair Todibo from Nice.`\
+https://nytimes.com/athletic/5690905/2024/08/10/west-ham-todibo-transfer/
+
+**Is It Harris’ or Harris’s? Add a Walz, and It’s Even Trickier.**\
+`With Vice President Kamala Harris and Gov. Tim Walz running on the same ticket, grammar geeks are in overdrive.`\
+https://nytimes.com/2024/08/10/us/harris-walz-apostrophe-possessive.html
+
 **Bournemouth set to sign Barcelona defender Araujo**\
 `Barcelona defender Julian Araujo is close to completing a move to AFC Bournemouth.`\
 https://nytimes.com/athletic/5689791/2024/08/10/bournemouth-julian-araujo/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5692462/2024/08/10/serbia-germany-olympics-basketba
 **Five things to watch as Broncos open preseason vs. Colts, starting with QB race**\
 `Bo Nix struggled at times with the pass rush in camp this week. Can he make strides in live action against Indy's defense? `\
 https://nytimes.com/athletic/5691604/2024/08/10/broncos-colts-preseason-five-things/
-
-**Harris Must Persuade Gaza Protesters, Not Dismiss Them**\
-`For a candidate who positions herself as caring, her failure to acknowledge their pain is especially jarring.`\
-https://nytimes.com/2024/08/10/opinion/kamala-harris-gaza-detroit.html
-
-**My Travel Tips for Seeing the World’s Best Places**\
-`From fake wedding bands to decoy wallets, here’s some advice for safely roaming our planet.`\
-https://nytimes.com/2024/08/10/opinion/travel-vacation-world.html
 

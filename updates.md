@@ -1,3 +1,11 @@
+**Todibo joins West Ham on loan**\
+`West Ham United have completed the signing of Jean-Clair Todibo from Nice.`\
+https://nytimes.com/athletic/5690905/2024/08/10/west-ham-todibo-transfer/
+
+**Is It Harris’ or Harris’s? Add a Walz, and It’s Even Trickier.**\
+`With Vice President Kamala Harris and Gov. Tim Walz running on the same ticket, grammar geeks are in overdrive.`\
+https://nytimes.com/2024/08/10/us/harris-walz-apostrophe-possessive.html
+
 **Bournemouth set to sign Barcelona defender Araujo**\
 `Barcelona defender Julian Araujo is close to completing a move to AFC Bournemouth.`\
 https://nytimes.com/athletic/5689791/2024/08/10/bournemouth-julian-araujo/
