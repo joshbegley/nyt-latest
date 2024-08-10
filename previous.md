@@ -1,3 +1,11 @@
+**Esther Henseleit's silver-medal Olympic golf surge and the love story behind it all**\
+`Esther Henseleit won a surprise silver medal Saturday at the Olympic golf tournament, with her caddie — also her fiancé — at her side.`\
+https://nytimes.com/athletic/5693035/2024/08/10/esther-henseleit-olympics-golf-silver-medal-reece-phillips/
+
+**Walz in the National Guard: A Steady Rise Ending With a Hard Decision**\
+`In a military career that spanned three decades, Tim Walz achieved one of the highest enlisted ranks in the Army. Some peers took issue with the timing of his retirement.`\
+https://nytimes.com/2024/08/10/us/tim-walz-military-career.html
+
 **Trump Goes West: A Day on the Trail**\
 `By Doug Mills`\
 https://nytimes.com/card/2024/08/10/admin/trump-montana
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/10/us/los-angeles-olympics-traffic-transport.html
 **Team USA's Russell win gold in women's 100m hurdles**\
 `Russell overtook France’s Cyrena Samba-Mayela with a surge in the final 10 meters and a timely lean to get across in 12.33 seconds.`\
 https://nytimes.com/athletic/5692950/2024/08/10/masai-russell-womens-100m-hurdles-olympics/
-
-**New-look Leeds lean on Gnonto and fighting spirit as Farke sees the positives**\
-`It may have been a summer of change at Elland Road but Leeds retain their ability to claw back the initiative in familiar style`\
-https://nytimes.com/athletic/5691046/2024/08/10/leeds-farke-gnonto-comeback/
-
-**The Olympics’ Toughest Act: Balancing Sports and Politics**\
-`The Olympics have long been a stage for political expression, for athletes who take the opportunity. Some do, while others choose to focus strictly on their sport.`\
-https://nytimes.com/2024/08/10/world/olympics/olympics-politics-ioc.html
 

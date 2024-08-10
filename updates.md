@@ -1,3 +1,11 @@
+**Esther Henseleit's silver-medal Olympic golf surge and the love story behind it all**\
+`Esther Henseleit won a surprise silver medal Saturday at the Olympic golf tournament, with her caddie — also her fiancé — at her side.`\
+https://nytimes.com/athletic/5693035/2024/08/10/esther-henseleit-olympics-golf-silver-medal-reece-phillips/
+
+**Walz in the National Guard: A Steady Rise Ending With a Hard Decision**\
+`In a military career that spanned three decades, Tim Walz achieved one of the highest enlisted ranks in the Army. Some peers took issue with the timing of his retirement.`\
+https://nytimes.com/2024/08/10/us/tim-walz-military-career.html
+
 **Trump Goes West: A Day on the Trail**\
 `By Doug Mills`\
 https://nytimes.com/card/2024/08/10/admin/trump-montana

@@ -1,3 +1,7 @@
+**The B-boys and B-girls of breaking put a new spin on the Summer Games.**\
+`The first Olympic breaking competition received energetic response from those in attendance, but the sport’s future in the Games remained unclear.`\
+https://nytimes.com/2024/08/10/world/olympics/breaking-phil-wizard-gold.html
+
 **Esther Henseleit's silver-medal Olympic golf surge and the love story behind it all**\
 `Esther Henseleit won a surprise silver medal Saturday at the Olympic golf tournament, with her caddie — also her fiancé — at her side.`\
 https://nytimes.com/athletic/5693035/2024/08/10/esther-henseleit-olympics-golf-silver-medal-reece-phillips/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/10/us/politics/walz-guns-war-military.html
 **Los Angeles Has Promised a ‘Car-Free’ Olympics in 2028. Can It Do It?**\
 `The countdown is on for the city, which will host the next Summer Games and is working on transit upgrades to accommodate hundreds of thousands of visitors.`\
 https://nytimes.com/2024/08/10/us/los-angeles-olympics-traffic-transport.html
-
-**Team USA's Russell win gold in women's 100m hurdles**\
-`Russell overtook France’s Cyrena Samba-Mayela with a surge in the final 10 meters and a timely lean to get across in 12.33 seconds.`\
-https://nytimes.com/athletic/5692950/2024/08/10/masai-russell-womens-100m-hurdles-olympics/
 
