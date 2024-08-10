@@ -1,3 +1,7 @@
+**Jordan Chiles' floor score reversed after appeal, putting bronze in question**\
+`The Court of Arbitration for Sport has weighed in on a controversy surrounding the final placements of the women&#8217;s floor exercise final at the Olympics, dropping the final score for the American gymnast Jordan Chiles to 13.`\
+https://nytimes.com/athletic/5692904/2024/08/10/jordan-chiles-olympics-artistic-gymnastics-womens-floor-medal-inquiry/
+
 **The U.S. women’s team finds its way back to the top by beating an old foe.**\
 `Mallory Swanson scored the winner in the 57th minute, neatly slotting home a shot from the left side off an assist from Korbin Albert.`\
 https://nytimes.com/2024/08/10/world/olympics/us-women-soccer-brazil.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5691440/2024/08/10/manchester-city-manchester-unite
 **Israeli Strikes on Schools Pose a Life-or-Death Choice for Civilians**\
 `Schools in Gaza have taken in tens of thousands of people seeking safety. Israel, arguing that Hamas uses the shelters, has struck school grounds repeatedly.`\
 https://nytimes.com/2024/08/10/world/middleeast/israel-schools-shelters.html
-
-**Brentford agree deal to sign Carvalho from Liverpool**\
-`Brentford have agreed to sign Liverpool midfielder Fabio Carvalho in a deal that could be worth £27.`\
-https://nytimes.com/athletic/5679585/2024/08/10/brentford-fabio-carvalho/
 
