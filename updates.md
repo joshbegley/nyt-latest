@@ -1,3 +1,7 @@
+**The Briefing: Manchester City 1 Manchester United 1 - Akanji wins Community Shield on penalties**\
+`We break down the key talking points from Saturday's dramatic Community Shield fixture at Wembley`\
+https://nytimes.com/athletic/5691440/2024/08/10/manchester-city-manchester-united-result-analysis/
+
 **The Briefing: Manchester City 1 Manchester United 1: City take Community Shield on penalties at Wembley**\
 `We break down the key talking points from Saturday's Community Shield fixture at Wembley`\
 https://nytimes.com/athletic/5691440/2024/08/10/manchester-city-manchester-united-result-analysis/
