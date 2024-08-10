@@ -1,3 +1,11 @@
+**'No-car Games:' L.A. 2028 venues will only be accessible via public transit**\
+`Los Angeles mayor Karen Bass said the city will need over 3,000 buses and plans to borrow them from all around the U.S. `\
+https://nytimes.com/athletic/5692830/2024/08/10/la-2028-olympics-transportation-buses-traffic/
+
+**USWNT wins fifth gold medal after defeating Brazil 1-0 in Olympic final**\
+`How the U.S. won gold.`\
+https://nytimes.com/athletic/5692015/2024/08/10/uswnt-brazil-olympic-gold-medal-takeaways/
+
 **Gazans describe carnage at airstrike site: ‘The dead were all in pieces.’**\
 `By Raja Abdulrahim and Ameera Harouda`\
 https://nytimes.com/live/2024/08/10/world/israel-iran-hamas-gaza-war/before-they-could-pray-the-israeli-airstrike-hit

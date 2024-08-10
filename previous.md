@@ -1,3 +1,11 @@
+**'No-car Games:' L.A. 2028 venues will only be accessible via public transit**\
+`Los Angeles mayor Karen Bass said the city will need over 3,000 buses and plans to borrow them from all around the U.S. `\
+https://nytimes.com/athletic/5692830/2024/08/10/la-2028-olympics-transportation-buses-traffic/
+
+**USWNT wins fifth gold medal after defeating Brazil 1-0 in Olympic final**\
+`How the U.S. won gold.`\
+https://nytimes.com/athletic/5692015/2024/08/10/uswnt-brazil-olympic-gold-medal-takeaways/
+
 **Gazans describe carnage at airstrike site: ‘The dead were all in pieces.’**\
 `By Raja Abdulrahim and Ameera Harouda`\
 https://nytimes.com/live/2024/08/10/world/israel-iran-hamas-gaza-war/before-they-could-pray-the-israeli-airstrike-hit
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5692757/2024/08/10/gianmarco-tamberi-high-jump-olym
 **Ancient Calendar, Recently Discovered, May Document a Long-Ago Disaster**\
 `The markings on a pillar in southern Turkey are more than decorations on the stone, a researcher at the University of Edinburgh says. They may memorialize a time when comet fragments struck Earth.`\
 https://nytimes.com/2024/08/10/world/asia/worlds-oldest-calendar-gobekli-tepe.html
-
-**JD Vance Has Right-Wing Friends in High Places**\
-`What is the source of JD Vance’s ‘intellectualism’?`\
-https://nytimes.com/2024/08/10/opinion/jd-vance-right-wing-intellectual.html
-
-**When Olympic Sponsors Go Rogue**\
-`LVMH and Samsung intruded on previously sacrosanct spaces at the Paris Games, angering fellow sponsors and raising concerns about a repeat at the closing ceremony.`\
-https://nytimes.com/2024/08/10/world/olympics/when-olympic-sponsors-go-rogue.html
 
