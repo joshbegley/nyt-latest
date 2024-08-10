@@ -1,3 +1,7 @@
+**USWNT on goalkeeper Alyssa Naeher: 'We’re making her a little more mushy gushy'**\
+`The U.S. goalkeeper is known for her stoic exterior`\
+https://nytimes.com/athletic/5693260/2024/08/10/uswnt-olympics-alyssa-naeher/
+
 **Bears QB Caleb Williams shows playmaking skill, poise on third down in debut**\
 `Excitement was high for Williams' first NFL game action, and while he didn't produce a touchdown, he led two scoring drives in Buffalo.`\
 https://nytimes.com/athletic/5693309/2024/08/10/caleb-williams-chicago-bears-preseason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5693193/2024/08/10/iowa-quarterbacks-cade-mcnamara-
 **Lin Yu-ting of Taiwan earns a gold on what could be boxing's last Olympic night**\
 `Lin Yu-ting of Taiwan, who quietly weathered a firestorm during these Paris Games of at times ugly speculation about her personal biology, won a gold medal Saturday on what could potentially be the last night of boxing at the Olympic Games.`\
 https://nytimes.com/athletic/5693168/2024/08/10/lin-yu-ting-boxing-olympics-gold-gender/
-
-**Curry lifts U.S. men past France to fifth straight Olympic gold**\
-`Curry drained four crucial 3-pointers inside of three minutes to go, including the likely game-clincher with 33 seconds left.`\
-https://nytimes.com/athletic/5693131/2024/08/10/usa-france-paris-olympics-stephen-curry-basketball/
 

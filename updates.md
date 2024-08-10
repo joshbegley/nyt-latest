@@ -1,3 +1,7 @@
+**USWNT on goalkeeper Alyssa Naeher: 'We’re making her a little more mushy gushy'**\
+`The U.S. goalkeeper is known for her stoic exterior`\
+https://nytimes.com/athletic/5693260/2024/08/10/uswnt-olympics-alyssa-naeher/
+
 **Bears QB Caleb Williams shows playmaking skill, poise on third down in debut**\
 `Excitement was high for Williams' first NFL game action, and while he didn't produce a touchdown, he led two scoring drives in Buffalo.`\
 https://nytimes.com/athletic/5693309/2024/08/10/caleb-williams-chicago-bears-preseason/
