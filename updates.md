@@ -1,3 +1,7 @@
+**Carl Lewis sounds off on 'unacceptable' U.S. men's 4×100 relay flub**\
+`The U.S. men were disqualified Friday, failing to earn a medal in the event for the fifth consecutive Olympics.`\
+https://nytimes.com/athletic/5692161/2024/08/09/carl-lewis-usa-relay-olympics-comments/
+
 **F.D.A. Declines to Approve MDMA Therapy, Seeking More Study**\
 `The agency said there was insufficient data to allow the use of a treatment for PTSD that involves the drug known as Ecstasy.`\
 https://nytimes.com/2024/08/09/health/fda-mdma-ptsd-delay.html
