@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5691046/2024/08/10/leeds-farke-gnonto-comeback/
 https://nytimes.com/2024/08/10/world/olympics/olympics-politics-ioc.html
 
 **Chiles' floor score reversed, putting bronze in question**\
-`Four seconds too late.`\
+`The appeal by the Romanian federation requested all three athletes be placed in third and allocated medals, the CAS said in its release.`\
 https://nytimes.com/athletic/5692904/2024/08/10/jordan-chiles-olympics-artistic-gymnastics-womens-floor-medal-inquiry/
 
 **The U.S. women’s soccer team finds its way back to the top by beating an old foe.**\
