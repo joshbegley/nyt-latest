@@ -1,3 +1,7 @@
+**Bournemouth set to sign Barcelona defender Araujo**\
+`Barcelona defender Julian Araujo is close to completing a move to AFC Bournemouth.`\
+https://nytimes.com/athletic/5689791/2024/08/10/bournemouth-julian-araujo/
+
 **Aftermath of Israeli Airstrike That Killed Dozens in Gaza City**\
 `Palestinians looked through rubble after a deadly Israeli airstrike hit a school turned shelter in northern Gaza.`\
 https://nytimes.com/video/world/middleeast/100000009622993/gaza-strike-israel-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/10/opinion/kamala-harris-gaza-detroit.html
 **My Travel Tips for Seeing the World’s Best Places**\
 `From fake wedding bands to decoy wallets, here’s some advice for safely roaming our planet.`\
 https://nytimes.com/2024/08/10/opinion/travel-vacation-world.html
-
-**Trump, by the Numbers**\
-`It can be treacherous, measuring your worth in ego arithmetic.`\
-https://nytimes.com/2024/08/10/opinion/trump-race-numbers-ratings.html
 
