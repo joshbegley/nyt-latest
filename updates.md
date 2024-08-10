@@ -1,3 +1,7 @@
+**F.D.A. Declines to Approve MDMA Therapy, Seeking More Study**\
+`The agency said there was insufficient data to allow the use of a treatment for PTSD that involves the drug known as Ecstasy.`\
+https://nytimes.com/2024/08/09/health/fda-mdma-ptsd-delay.html
+
 **Israel Launches Another Offensive in Gaza’s South Amid Push for Truce**\
 `The United States, Egypt and Qatar are trying to restart peace talks between Hamas and Israel, while Israel carries on its operation in Gaza and braces for attacks by Iran and Hezbollah.`\
 https://nytimes.com/2024/08/09/world/middleeast/israel-offensive-peace-talks.html

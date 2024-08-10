@@ -31,7 +31,7 @@ https://nytimes.com/2024/08/09/us/politics/gokhan-gun-classified-documents.html
 https://nytimes.com/athletic/5692057/2024/08/09/49ers-brandon-aiyuk-contract-trade/
 
 **F.D.A. Declines to Approve MDMA Therapy, Seeking More Study**\
-`The agency said there was insufficient data to allow the use of a treatment for PTSD that involves the drug known as Ecstasy, according to the company seeking approval.`\
+`The agency said there was insufficient data to allow the use of a treatment for PTSD that involves the drug known as Ecstasy.`\
 https://nytimes.com/2024/08/09/health/fda-mdma-ptsd-delay.html
 
 **Team USA planning to start Kevin Durant vs. France for Olympic final**\
