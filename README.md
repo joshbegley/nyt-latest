@@ -12,7 +12,7 @@ https://nytimes.com/athletic/5692935/2024/08/10/olympic-mens-4x400-relay-results
 
 **Harris Campaign Says Walz ‘Misspoke’ in a Comment About His Military Service**\
 `The Democratic vice-presidential nominee has come under attack from Republicans, who have suggested that he has overstated his military record and avoided combat.`\
-https://nytimes.com/live/2024/08/10/us/harris-trump-election/walz-guns-war-military
+https://nytimes.com/2024/08/10/us/politics/walz-guns-war-military.html
 
 **Los Angeles Has Promised a ‘Car-Free’ Olympics in 2028. Can It Do It?**\
 `The countdown is on for the city, which will host the next Summer Games and is working on transit upgrades to accommodate hundreds of thousands of visitors.`\
