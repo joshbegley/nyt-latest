@@ -1,4 +1,8 @@
 **Tola wins Olympic marathon for Ethiopia**\
+`On a bright and clear morning in Paris, 80 of the world’s best distance runners battled for one of the sport’s ultimate prizes`\
+https://nytimes.com/athletic/5692378/2024/08/10/olympics-marathon-result-tamirat-tola/
+
+**Tola wins Olympic marathon for Ethiopia**\
 `On a bright and clear morning in Paris, 80 of the world’s best distance runners battled for one of sport’s ultimate prizes`\
 https://nytimes.com/athletic/5692378/2024/08/10/olympics-marathon-result-tamirat-tola/
 
