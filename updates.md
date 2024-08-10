@@ -1,3 +1,7 @@
+**For Diana Taurasi, one last Olympic hurrah to cap a one-of-a-kind career**\
+`Diana Taurasi will play her final Olympic game Sunday. She'll go out a legend, and a player who elevated USA Basketball to new heights`\
+https://nytimes.com/athletic/5691871/2024/08/10/diana-taurasi-olympics-finale-gold-medal-game/
+
 **Breaking debuts at Olympics, noisily and colorfully, in the sport's newest chapter**\
 `There will likely never be unity between the old and new schools of breaking, but Friday, the sport pushed forward with its Olympic debut.`\
 https://nytimes.com/athletic/5691707/2024/08/10/breaking-olympics-debut-b-girls-boys-ami/
