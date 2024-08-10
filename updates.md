@@ -1,3 +1,7 @@
+**How One Church in San Francisco Is Reinventing Itself**\
+`The Grace Cathedral in San Francisco costs $17,000 a day to operate. Bell tower tours, yoga, sound baths and Bobby McFerrin are helping to pay the bills.`\
+https://nytimes.com/video/us/100000009494484/how-one-church-in-san-francisco-is-reinventing-itself.html
+
 **‘They Are Burned Alive’: A Doctor Captures the Toll of War on Gaza’s Children**\
 `An American pediatrician spent three weeks in one of Gaza’s last functioning hospitals. He shared a record of what he witnessed, including rare footage from inside the hospital, with The New York Times.`\
 https://nytimes.com/2024/08/10/world/middleeast/gaza-al-aqsa-hospital-children.html

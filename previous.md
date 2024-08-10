@@ -1,3 +1,7 @@
+**How One Church in San Francisco Is Reinventing Itself**\
+`The Grace Cathedral in San Francisco costs $17,000 a day to operate. Bell tower tours, yoga, sound baths and Bobby McFerrin are helping to pay the bills.`\
+https://nytimes.com/video/us/100000009494484/how-one-church-in-san-francisco-is-reinventing-itself.html
+
 **‘They Are Burned Alive’: A Doctor Captures the Toll of War on Gaza’s Children**\
 `An American pediatrician spent three weeks in one of Gaza’s last functioning hospitals. He shared a record of what he witnessed, including rare footage from inside the hospital, with The New York Times.`\
 https://nytimes.com/2024/08/10/world/middleeast/gaza-al-aqsa-hospital-children.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/10/world/americas/venezuela-election-maduro.html
 **How to Avoid Online Scams and What to Do if You Become a Victim**\
 `Here are tips on how to dodge some of the most devastating schemes and what to do if you or someone you care about becomes ensnared.`\
 https://nytimes.com/2024/08/10/business/online-scams-advice.html
-
-**What’s So New About the ‘New Right’?**\
-`JD Vance and his allies represent a mind-set that dates back to the McCarthy era and the dawn of the Cold War.`\
-https://nytimes.com/2024/08/10/magazine/jd-vance-new-right-republicans.html
 
