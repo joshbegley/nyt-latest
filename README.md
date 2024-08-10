@@ -18,6 +18,10 @@ https://nytimes.com/athletic/5691046/2024/08/10/leeds-farke-gnonto-comeback/
 `The Olympics have long been a stage for political expression, for athletes who take the opportunity. Some do, while others choose to focus strictly on their sport.`\
 https://nytimes.com/2024/08/10/world/olympics/olympics-politics-ioc.html
 
+**James suffers hamstring injury ahead of new season**\
+`Chelsea defender Reece James has suffered a setback ahead of the new season after suffering a new hamstring injury.`\
+https://nytimes.com/athletic/5692859/2024/08/10/reece-james-chelsea-injury-new-season/
+
 **Chiles' floor score reversed, putting bronze in question**\
 `The appeal by the Romanian federation requested all three athletes be placed in third and allocated medals, the CAS said in its release.`\
 https://nytimes.com/athletic/5692904/2024/08/10/jordan-chiles-olympics-artistic-gymnastics-womens-floor-medal-inquiry/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/10/arts/music/travis-scott-release-paris-arrest.html
 **'No-car Games:' L.A. 2028 venues will only be accessible via public transit**\
 `Los Angeles mayor Karen Bass said the city will need over 3,000 buses and plans to borrow them from all around the U.S. `\
 https://nytimes.com/athletic/5692830/2024/08/10/la-2028-olympics-transportation-buses-traffic/
-
-**USWNT wins fifth gold medal after defeating Brazil 1-0 in Olympic final**\
-`How the U.S. won gold.`\
-https://nytimes.com/athletic/5692015/2024/08/10/uswnt-brazil-olympic-gold-medal-takeaways/
 
