@@ -1,3 +1,7 @@
+**Israel Criticized After Strike Kills Scores in Gaza**\
+`Israeli officials defended the attack on a former school compound, saying Hamas was using it as a base for military operations in Gaza City.`\
+https://nytimes.com/2024/08/10/world/middleeast/israel-gaza-war-strike-school.html
+
 **USWNT overcomes a year of change to win Olympic gold again: 'I'm just in awe'**\
 `The U.S. bounced back from its World Cup loss to secure gold a year later`\
 https://nytimes.com/athletic/5693321/2024/08/10/uswnt-olympic-gold-journey/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5693131/2024/08/10/usa-france-paris-olympics-stephe
 **Eddie Canales, 76, Dies; Gave Migrants Water, and Dignity**\
 `After a long career as a union organizer, he came out of retirement in 2013 to form the South Texas Human Rights Center and provide lifesaving aid.`\
 https://nytimes.com/2024/08/10/us/eddie-canales-dead.html
-
-**The B-boys and B-girls of breaking put a new spin on the Summer Games.**\
-`The first Olympic breaking competition received energetic response from those in attendance, but the sport’s future in the Games remained unclear.`\
-https://nytimes.com/2024/08/10/world/olympics/breaking-phil-wizard-gold.html
 
