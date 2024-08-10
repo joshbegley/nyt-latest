@@ -1,3 +1,7 @@
+**Ancient Calendar, Recently Discovered, May Document a Long-Ago Disaster**\
+`The markings on a pillar in southern Turkey are more than decorations on the stone, a researcher at the University of Edinburgh says. They may memorialize a time when comet fragments struck Earth.`\
+https://nytimes.com/2024/08/10/world/asia/worlds-oldest-calendar-gobekli-tepe.html
+
 **JD Vance Has Right-Wing Friends in High Places**\
 `What is the source of JD Vance’s ‘intellectualism’?`\
 https://nytimes.com/2024/08/10/opinion/jd-vance-right-wing-intellectual.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5689791/2024/08/10/bournemouth-julian-araujo/
 **Aftermath of Israeli Airstrike That Killed Dozens in Gaza City**\
 `Palestinians looked through rubble after a deadly Israeli airstrike hit a school turned shelter in northern Gaza.`\
 https://nytimes.com/video/world/middleeast/100000009622993/gaza-strike-israel-dead.html
-
-**Here’s the latest on the presidential race.**\
-`By Chris Cameron, Michael Gold and Simon J. Levien`\
-https://nytimes.com/live/2024/08/10/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 
