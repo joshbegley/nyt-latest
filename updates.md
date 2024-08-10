@@ -1,3 +1,7 @@
+**Giants option struggling closer Camilo Doval, a 2023 All-Star, to Triple A**\
+`The Giants' bullpen will have a dramatically different look, as Doval heads to Triple A following a blown save Thursday in Washington, D.C.`\
+https://nytimes.com/athletic/5692150/2024/08/09/sf-giants-camilo-doval-demotion/
+
 **Illinois Sheriff Will Resign Amid Backlash Over Fatal Shooting by Deputy**\
 `Jack Campbell, the sheriff of Sangamon County, was criticized for hiring the deputy, who has now been charged with murdering Sonya Massey in her home last month.`\
 https://nytimes.com/2024/08/09/us/sonya-massey-jack-campbell-resigns.html
