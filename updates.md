@@ -1,3 +1,7 @@
+**Trump Goes West: A Day on the Trail**\
+`By Doug Mills`\
+https://nytimes.com/card/2024/08/10/admin/trump-montana
+
 **Jordan Chiles, in an Olympic gymnastics comedy of errors, gets another raw deal**\
 `Jordan Chiles was nothing but class at these Olympics. But time and again, she got an deserving short end. None more so than Saturday.`\
 https://nytimes.com/athletic/5693040/2024/08/10/jordan-chiles-olympics-gymnastics-floor-controversy-bronze/

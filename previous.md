@@ -1,3 +1,7 @@
+**Trump Goes West: A Day on the Trail**\
+`By Doug Mills`\
+https://nytimes.com/card/2024/08/10/admin/trump-montana
+
 **Jordan Chiles, in an Olympic gymnastics comedy of errors, gets another raw deal**\
 `Jordan Chiles was nothing but class at these Olympics. But time and again, she got an deserving short end. None more so than Saturday.`\
 https://nytimes.com/athletic/5693040/2024/08/10/jordan-chiles-olympics-gymnastics-floor-controversy-bronze/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5691046/2024/08/10/leeds-farke-gnonto-comeback/
 **The Olympics’ Toughest Act: Balancing Sports and Politics**\
 `The Olympics have long been a stage for political expression, for athletes who take the opportunity. Some do, while others choose to focus strictly on their sport.`\
 https://nytimes.com/2024/08/10/world/olympics/olympics-politics-ioc.html
-
-**James suffers hamstring injury ahead of new season**\
-`Chelsea defender Reece James has suffered a setback ahead of the new season after suffering a new hamstring injury.`\
-https://nytimes.com/athletic/5692859/2024/08/10/reece-james-chelsea-injury-new-season/
 
