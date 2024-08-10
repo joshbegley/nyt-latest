@@ -1,3 +1,7 @@
+**What We Know About the Plane Crash in Brazil**\
+`The twin-engine turboprop passenger aircraft crashed near São Paulo, killing all 61 people on board. Officials are investigating the cause.`\
+https://nytimes.com/2024/08/10/world/americas/brazil-plane-crash.html
+
 **Twins handle devastating injury news with aplomb, sweep doubleheader from Guardians**\
 `The Twins' comeback victory demonstrated the perseverance of a team that only 12 hours earlier announced a series of hobbled players.`\
 https://nytimes.com/athletic/5692264/2024/08/10/twins-injuries-sweep-guardians/
