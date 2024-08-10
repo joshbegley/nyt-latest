@@ -1,3 +1,7 @@
+**Ultraconfident Affirmation**\
+`Spencer Leach’s themeless puzzle will shake, rattle and roll us around.`\
+https://nytimes.com/2024/08/09/crosswords/daily-puzzle-2024-08-10.html
+
 **How Online Hatred Toward Migrants Spurs Real-World Violence**\
 `Social media posts assailing immigrants have fomented a climate of fear and hatred in Britain, Portugal and other countries. The vitriolic language is now spilling onto the streets.`\
 https://nytimes.com/interactive/2024/08/09/technology/migrants-racism-social-media-violence.html

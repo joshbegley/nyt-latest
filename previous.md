@@ -1,3 +1,7 @@
+**Ultraconfident Affirmation**\
+`Spencer Leach’s themeless puzzle will shake, rattle and roll us around.`\
+https://nytimes.com/2024/08/09/crosswords/daily-puzzle-2024-08-10.html
+
 **How Online Hatred Toward Migrants Spurs Real-World Violence**\
 `Social media posts assailing immigrants have fomented a climate of fear and hatred in Britain, Portugal and other countries. The vitriolic language is now spilling onto the streets.`\
 https://nytimes.com/interactive/2024/08/09/technology/migrants-racism-social-media-violence.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5691696/2024/08/09/usa-france-womens-basketball-oly
 **Defense Dept. Contractor Arrested With Dozens of Classified Documents**\
 `Investigators are still trying to determine why the contractor, Gokhan Gun, who became an American citizen in 2021, hoarded so many documents.`\
 https://nytimes.com/2024/08/09/us/politics/gokhan-gun-classified-documents.html
-
-**49ers, Aiyuk have re-opened contract discussions**\
-`According to a league source, the Steelers have not heard back from the 49ers regarding trade talks in the last 24 hours.`\
-https://nytimes.com/athletic/5692057/2024/08/09/49ers-brandon-aiyuk-contract-trade/
 
