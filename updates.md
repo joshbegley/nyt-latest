@@ -1,3 +1,11 @@
+**Yes, Trump Was in a Scary Helicopter Ride. But Not With That Politician.**\
+`There was a helicopter. It did make an emergency landing. But a former California lawmaker says Donald Trump has mixed up one Black politician for another.`\
+https://nytimes.com/2024/08/10/us/politics/trump-helicopter-crash-willie-brown.html
+
+**Saturday's MLB odds, best bets: Predictions for pitching matchups, props, playoffs and more**\
+`See pitching matchups, playoff projections, win projections and more for Saturday's MLB games.`\
+https://nytimes.com/athletic/5692308/2024/08/10/mlb-odds-best-bets-projections-august-10/
+
 **Trevor Story closer to possible late-season return, but will it matter for Red Sox?**\
 `While the news Friday on Story was promising, the Red Sox still have plenty of hurdles to overcome.`\
 https://nytimes.com/athletic/5692248/2024/08/10/trevor-story-big-step-toward-return-red-sox/
