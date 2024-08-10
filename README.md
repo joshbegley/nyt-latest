@@ -1,7 +1,3 @@
-**U.S. men’s basketball was tested. Stephen Curry had the answer.**\
-`A flurry of Stephen Curry 3-pointers helped the United States survive a French challenge and win a fifth straight gold medal.`\
-https://nytimes.com/2024/08/10/world/olympics/usa-basketball-gold-steph-curry.html
-
 **Iowa's once-solved quarterback situation is now a competition and perhaps a controversy**\
 `Northwestern transfer Brendan Sullivan clearly outplayed expected starter Cade McNamara during Saturday's open practice. `\
 https://nytimes.com/athletic/5693193/2024/08/10/iowa-quarterbacks-cade-mcnamara-brendan-sullivan/
@@ -37,4 +33,8 @@ https://nytimes.com/card/2024/08/10/admin/trump-montana
 **Jordan Chiles, in an Olympic gymnastics comedy of errors, gets another raw deal**\
 `Jordan Chiles was nothing but class at these Olympics. But time and again, she got an deserving short end. None more so than Saturday.`\
 https://nytimes.com/athletic/5693040/2024/08/10/jordan-chiles-olympics-gymnastics-floor-controversy-bronze/
+
+**U.S. women, led by McLaughlin-Levrone and Thomas, coast to 4x400 relay win**\
+`SAINT-DENIS, France — The athletics portion of the Paris Games ended with the United States crossing the finish line, the opponent distant in the rearview, in a display of superiority.`\
+https://nytimes.com/athletic/5693052/2024/08/10/olympics-womens-4x400-relay-usa/
 
