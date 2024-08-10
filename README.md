@@ -1,3 +1,11 @@
+**Chalobah training away from Chelsea first team**\
+`Trevoh Chalobah is training away from the Chelsea first team with his future looking increasingly likely to be away from the club.`\
+https://nytimes.com/athletic/5692506/2024/08/10/chelsea-trevoh-chalobah-training/
+
+**Lydia Ko wins gold in Paris Olympics women's golf**\
+`Ko added to her medal collection after winning silver at the Rio Olympics and bronze at the Tokyo Olympics.`\
+https://nytimes.com/athletic/5692852/2024/08/10/lydia-ko-olympics-golf-lpga-hall-of-fame/
+
 **The Briefing: Manchester City 1 Manchester United 1 - Akanji wins Community Shield on penalties**\
 `We break down the key talking points from Saturday's dramatic Community Shield fixture at Wembley`\
 https://nytimes.com/athletic/5691440/2024/08/10/manchester-city-manchester-united-result-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/10/world/olympics/when-olympic-sponsors-go-rogue.htm
 **‘This Recipe Just Made My Summer’**\
 `This charred corn and chickpea salad with lime crema is fast and easy, and it’s already a hit with readers.`\
 https://nytimes.com/2024/08/10/dining/corn-chickpea-salad-recipe.html
-
-**Justin Fields flashes in Steelers' debut, offering optimism entering a new chapter**\
-`Fields had some hiccups, notably two botched exchanges, but he looked comfortable, confident and decisive with his new team.`\
-https://nytimes.com/athletic/5692224/2024/08/10/justin-fields-steelers-preseason-opener/
-
-**Jean-Clair Todibo to West Ham: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we analyse and rate Nice defender Jean-Clair Todibo's move to West Ham United`\
-https://nytimes.com/athletic/5642977/2024/08/10/jean-clair-todibo-to-west-ham-transfer-ratings/
 
