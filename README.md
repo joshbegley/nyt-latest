@@ -1,3 +1,27 @@
+**Inside the Worst Three Weeks of Donald Trump’s 2024 Campaign**\
+`People around the former and would-be president see a candidate knocked off his bearings, disoriented by his new contest with Kamala Harris and unsure of how to take her on.`\
+https://nytimes.com/2024/08/10/us/politics/trump-campaign-election.html
+
+**New Battleground Polls Show Harris Has Fundamentally Changed the Race**\
+`On question after question, at least for now, most voters don’t seem to have major reservations about her.`\
+https://nytimes.com/2024/08/10/upshot/polls-harris-swing-states.html
+
+**Relive the Biggest Little Runs in Paris**\
+`Miniature running visualizations highlight the greatest performances on the track at the 2024 Olympics.`\
+https://nytimes.com/interactive/2024/08/10/sports/olympics/paris-2024-little-runners.html
+
+**Harris Leads Trump in Three Key States, Times/Siena Polls Find**\
+`New surveys of Michigan, Wisconsin and Pennsylvania taken this week offer the latest indication of a dramatic reversal in standing for the Democratic Party since President Biden abandoned his re-election bid.`\
+https://nytimes.com/2024/08/10/us/politics/harris-trump-battleground-polls.html
+
+**Can Dirt Clean the Climate?**\
+`An Australian start-up is hoping fungi can pull carbon dioxide from the air and stash it underground. It’s one of several ventures trying to deploy the superpowers of soil to slow global warming.`\
+https://nytimes.com/2024/08/10/climate/climate-change-fungus-carbon-australia.html
+
+**‘Operation Knock-Knock’: Venezuela Sweeps Up Dissenters After Disputed Vote**\
+`The Venezuelan authorities have launched a nationwide sweep, called Operation Knock-Knock, that is targeting anyone even perceived to be challenging the autocratic president’s re-election.`\
+https://nytimes.com/2024/08/10/world/americas/venezuela-election-maduro.html
+
 **How to Avoid Online Scams and What to Do if You Become a Victim**\
 `Here are tips on how to dodge some of the most devastating schemes and what to do if you or someone you care about becomes ensnared.`\
 https://nytimes.com/2024/08/10/business/online-scams-advice.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/08/10/dining/lobster-rolls.html
 **Can I Let My Niece Live in My Rent-Stabilized Apartment?**\
 `To live in a rent-stabilized apartment in New York, it must be your primary residence. But how far can you bend the rules?`\
 https://nytimes.com/2024/08/10/realestate/can-i-let-my-niece-live-in-my-rent-stabilized-apartment.html
-
-**For a ‘Citizen Artist,’ Creativity Is a Matter of Survival**\
-`Her residency and exhibition at the University of Chicago highlights vanessa german’s determination to tap into the power of love and art to heal traumas — including her own.`\
-https://nytimes.com/2024/08/10/arts/design/vanessa-german-artist-sculpture-university-chicago.html
-
-**The Lying Game**\
-`How bad could it be?`\
-https://nytimes.com/2024/08/10/style/the-lying-game.html
-
-**5 Podcasts for the Constantly Online**\
-`As the internet continues to alter every aspect of our lives, these shows explain the latest TikTok trends, celebrity in the social media age and more.`\
-https://nytimes.com/2024/08/10/arts/podcasts-internet-influencers-tiktok.html
-
-**How Hollywood Glamour Is Reviving the Endangered Broadway Play**\
-`George Clooney, Robert Downey Jr., Denzel Washington and Mia Farrow are coming to Broadway, where some producers see plays with stars as safer bets than musicals.`\
-https://nytimes.com/2024/08/10/theater/broadway-plays-hollywood-stars.html
-
-**Ditching Wedding Stationery for Informal Text Invitations**\
-`Some couples are taking the casual approach to sending out wedding invitations, opting for texts or emails instead of traditional printed cards.`\
-https://nytimes.com/2024/08/10/fashion/weddings/wedding-invitations-text-email.html
-
-**Monet, Taylor Swift, ‘Moana’: What Got Readers Through Their Grief**\
-`After our series on how artists have been affected by loss, we asked readers what helped them when they experienced it. These are 15 of their answers.`\
-https://nytimes.com/2024/08/10/arts/grief-art-music-reader-responses.html
 
