@@ -1,3 +1,7 @@
+**Curry leads U.S. men past France for fifth straight Olympic gold**\
+`Curry drained four crucial 3-pointers inside of 3 minutes to go, including the likely game-clincher with 33 seconds left.`\
+https://nytimes.com/athletic/5693131/2024/08/10/usa-france-paris-olympics-stephen-curry-basketball/
+
 **Eddie Canales, 76, Dies; Gave Migrants Water, and Dignity**\
 `After a long career as a union organizer, he came out of retirement in 2013 to form the South Texas Human Rights Center and provide lifesaving aid.`\
 https://nytimes.com/2024/08/10/us/eddie-canales-dead.html

@@ -1,3 +1,7 @@
+**Curry leads U.S. men past France for fifth straight Olympic gold**\
+`Curry drained four crucial 3-pointers inside of 3 minutes to go, including the likely game-clincher with 33 seconds left.`\
+https://nytimes.com/athletic/5693131/2024/08/10/usa-france-paris-olympics-stephen-curry-basketball/
+
 **Eddie Canales, 76, Dies; Gave Migrants Water, and Dignity**\
 `After a long career as a union organizer, he came out of retirement in 2013 to form the South Texas Human Rights Center and provide lifesaving aid.`\
 https://nytimes.com/2024/08/10/us/eddie-canales-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5692896/2024/08/10/caleb-williams-jayden-daniels-nf
 **U.S. men win 4x400 relay for third consecutive Olympics**\
 `Christopher Bailey, Vernon Norwood, Bryce Deadmon and Rai Benjamin ran in an Olympic-record 2:54.43 to win gold.`\
 https://nytimes.com/athletic/5692935/2024/08/10/olympic-mens-4x400-relay-results-usa/
-
-**Harris Campaign Says Walz ‘Misspoke’ in a Comment About His Military Service**\
-`The Democratic vice-presidential nominee has come under attack from Republicans, who have suggested that he has overstated his military record and avoided combat.`\
-https://nytimes.com/2024/08/10/us/politics/walz-guns-war-military.html
 
