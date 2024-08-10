@@ -1,3 +1,7 @@
+**Curry leads U.S. men past France to fifth straight Olympic gold**\
+`Curry drained four crucial 3-pointers inside of 3 minutes to go, including the likely game-clincher with 33 seconds left.`\
+https://nytimes.com/athletic/5693131/2024/08/10/usa-france-paris-olympics-stephen-curry-basketball/
+
 **Lin Yu-ting of Taiwan earns a gold on what could be boxing's last Olympic night**\
 `Lin Yu-ting of Taiwan, who quietly weathered a firestorm during these Paris Games of at times ugly speculation about her personal biology, won a gold medal Saturday on what could potentially be the last night of boxing at the Olympic Games.`\
 https://nytimes.com/athletic/5693168/2024/08/10/lin-yu-ting-boxing-olympics-gold-gender/
