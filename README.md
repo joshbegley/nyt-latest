@@ -36,5 +36,5 @@ https://nytimes.com/2024/08/10/us/politics/trump-rally-montana.html
 
 **Susan Wojcicki, Former Chief of YouTube, Dies at 56**\
 `The business executive helped turn Google into an internet juggernaut and became one of the most prominent women in Silicon Valley.`\
-https://nytimes.com/2024/08/10/business/susan-wojcicki-dies.html
+https://nytimes.com/2024/08/10/business/susan-wojcicki-dead.html
 
