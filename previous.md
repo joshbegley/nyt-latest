@@ -1,3 +1,7 @@
+**Aftermath of Israeli Airstrike That Killed Dozens in Gaza City**\
+`Palestinians looked through rubble after a deadly Israeli airstrike hit a school turned shelter in northern Gaza.`\
+https://nytimes.com/video/world/middleeast/100000009622993/gaza-strike-israel-dead.html
+
 **Here’s the latest on the presidential race.**\
 `By Chris Cameron, Michael Gold and Simon J. Levien`\
 https://nytimes.com/live/2024/08/10/us/harris-trump-election/heres-the-latest-on-the-presidential-race
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/10/opinion/travel-vacation-world.html
 **Trump, by the Numbers**\
 `It can be treacherous, measuring your worth in ego arithmetic.`\
 https://nytimes.com/2024/08/10/opinion/trump-race-numbers-ratings.html
-
-**There Is Still a Biden Scandal**\
-`America could stand to learn a bit more about how the White House has been working recently.`\
-https://nytimes.com/2024/08/10/opinion/joe-biden-president.html
 

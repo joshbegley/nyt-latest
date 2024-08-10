@@ -1,3 +1,7 @@
+**Aftermath of Israeli Airstrike That Killed Dozens in Gaza City**\
+`Palestinians looked through rubble after a deadly Israeli airstrike hit a school turned shelter in northern Gaza.`\
+https://nytimes.com/video/world/middleeast/100000009622993/gaza-strike-israel-dead.html
+
 **Man United reach agreement to sign De Ligt**\
 `Manchester United have reached an agreement with Bayern Munich to sign Matthijs de Ligt.`\
 https://nytimes.com/athletic/5692487/2024/08/10/manchester-united-de-ligt-transfer/
