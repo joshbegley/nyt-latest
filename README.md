@@ -14,8 +14,8 @@ https://nytimes.com/athletic/5691046/2024/08/10/leeds-farke-gnonto-comeback/
 `The Olympics have long been a stage for political expression, for athletes who take the opportunity. Some do, while others choose to focus strictly on their sport.`\
 https://nytimes.com/2024/08/10/world/olympics/olympics-politics-ioc.html
 
-**Jordan Chiles' floor score reversed after appeal, putting bronze in question**\
-`The Court of Arbitration for Sport has weighed in on a controversy surrounding the final placements of the women&#8217;s floor exercise final at the Olympics, dropping the final score for the American gymnast Jordan Chiles to 13.`\
+**Chiles' floor score reversed, putting bronze in question**\
+`Four seconds too late.`\
 https://nytimes.com/athletic/5692904/2024/08/10/jordan-chiles-olympics-artistic-gymnastics-womens-floor-medal-inquiry/
 
 **The U.S. women’s soccer team finds its way back to the top by beating an old foe.**\
