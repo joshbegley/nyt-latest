@@ -1,3 +1,7 @@
+**Chiles' floor score reversed, putting bronze in question**\
+`The appeal by the Romanian federation requested all three athletes be placed in third and allocated medals, the CAS said in its release.`\
+https://nytimes.com/athletic/5692904/2024/08/10/jordan-chiles-olympics-artistic-gymnastics-womens-floor-medal-inquiry/
+
 **Harris Campaign Says Walz ‘Misspoke’ in a Comment About His Military Service**\
 `The Democratic vice-presidential nominee has come under attack from Republicans, who have suggested that he has overstated his military record and avoided combat.`\
 https://nytimes.com/live/2024/08/10/us/harris-trump-election/walz-guns-war-military
