@@ -1,3 +1,7 @@
+**Chiles' floor score reversed, putting bronze in question**\
+`Four seconds too late.`\
+https://nytimes.com/athletic/5692904/2024/08/10/jordan-chiles-olympics-artistic-gymnastics-womens-floor-medal-inquiry/
+
 **Los Angeles Has Promised a ‘Car-Free’ Olympics in 2028. Can It Do It?**\
 `The countdown is on for the city, which will host the next Summer Games and is working on transit upgrades to accommodate hundreds of thousands of visitors.`\
 https://nytimes.com/2024/08/10/us/los-angeles-olympics-traffic-transport.html
