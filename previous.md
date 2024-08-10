@@ -1,3 +1,7 @@
+**Israel Launches Another Offensive in Gaza’s South Amid Push for Truce**\
+`The United States, Egypt and Qatar are trying to restart peace talks between Hamas and Israel, while Israel carries on its operation in Gaza and braces for attacks by Iran and Hezbollah.`\
+https://nytimes.com/2024/08/09/world/middleeast/israel-offensive-peace-talks.html
+
 **Giants option struggling closer Camilo Doval, a 2023 All-Star, to Triple A**\
 `The Giants' bullpen will have a dramatically different look, as Doval heads to Triple A following a blown save Thursday in Washington, D.C.`\
 https://nytimes.com/athletic/5692150/2024/08/09/sf-giants-camilo-doval-demotion/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/09/health/fda-mdma-ptsd-delay.html
 **Team USA planning to start Kevin Durant vs. France for Olympic final**\
 `Jrue Holiday is expected to come off the bench for the United States, those sources said.`\
 https://nytimes.com/athletic/5692073/2024/08/09/usa-basketball-kevin-durant-france-olympics/
-
-**A Financial Tale of Two Potential Vice Presidents**\
-`JD Vance and Tim Walz both came from modest backgrounds, but they have had very different trajectories when it comes to their personal fortunes.`\
-https://nytimes.com/2024/08/09/us/politics/walz-vance-money.html
 

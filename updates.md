@@ -1,3 +1,7 @@
+**Israel Launches Another Offensive in Gaza’s South Amid Push for Truce**\
+`The United States, Egypt and Qatar are trying to restart peace talks between Hamas and Israel, while Israel carries on its operation in Gaza and braces for attacks by Iran and Hezbollah.`\
+https://nytimes.com/2024/08/09/world/middleeast/israel-offensive-peace-talks.html
+
 **Giants option struggling closer Camilo Doval, a 2023 All-Star, to Triple A**\
 `The Giants' bullpen will have a dramatically different look, as Doval heads to Triple A following a blown save Thursday in Washington, D.C.`\
 https://nytimes.com/athletic/5692150/2024/08/09/sf-giants-camilo-doval-demotion/
