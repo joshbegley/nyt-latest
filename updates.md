@@ -1,3 +1,7 @@
+**The B-boys and B-girls of breaking put a new spin on the Summer Games.**\
+`The first Olympic breaking competition received energetic response from those in attendance, but the sport’s future in the Games remained unclear.`\
+https://nytimes.com/2024/08/10/world/olympics/breaking-phil-wizard-gold.html
+
 **Esther Henseleit's silver-medal Olympic golf surge and the love story behind it all**\
 `Esther Henseleit won a surprise silver medal Saturday at the Olympic golf tournament, with her caddie — also her fiancé — at her side.`\
 https://nytimes.com/athletic/5693035/2024/08/10/esther-henseleit-olympics-golf-silver-medal-reece-phillips/
