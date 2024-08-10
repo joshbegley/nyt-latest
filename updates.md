@@ -1,3 +1,7 @@
+**Famed Double Arch Collapses in Glen Canyon National Recreation Area**\
+`Changing water levels and erosion are believed to have contributed to the collapse of the geologic feature, which was formed from 190 million-year-old Navajo sandstone, the National Park Service said.`\
+https://nytimes.com/2024/08/09/us/glen-canyon-arch-collapse.html
+
 **The U.S. Won the Medal Count (Almost) Every Way You Look at It**\
 `Team USA won the most events with a ball, but not the most with weapons.`\
 https://nytimes.com/interactive/2024/08/09/upshot/olympics-alternative-medals.html

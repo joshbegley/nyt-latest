@@ -1,3 +1,7 @@
+**Famed Double Arch Collapses in Glen Canyon National Recreation Area**\
+`Changing water levels and erosion are believed to have contributed to the collapse of the geologic feature, which was formed from 190 million-year-old Navajo sandstone, the National Park Service said.`\
+https://nytimes.com/2024/08/09/us/glen-canyon-arch-collapse.html
+
 **The U.S. Won the Medal Count (Almost) Every Way You Look at It**\
 `Team USA won the most events with a ball, but not the most with weapons.`\
 https://nytimes.com/interactive/2024/08/09/upshot/olympics-alternative-medals.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5692150/2024/08/09/sf-giants-camilo-doval-demotion/
 **Harris Has a Big Campaign Launch — and Big Tests Ahead**\
 `Fresh challenges in the offing could determine how long the vice president’s honeymoon will last.`\
 https://nytimes.com/2024/08/09/us/politics/harris-walz-trump-polls.html
-
-**Trump Claims He Has Helicopter Trip Records and Threatens to Sue**\
-`Former President Donald J. Trump insisted that he was in a dangerous helicopter landing, though the man he said he was with said it never happened.`\
-https://nytimes.com/2024/08/09/us/politics/trump-helicopter-landing.html
 
