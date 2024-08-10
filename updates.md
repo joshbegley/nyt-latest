@@ -1,3 +1,15 @@
+**Tottenham complete Dominic Solanke deal**\
+`Dominic Solanke has completed his move to Tottenham Hotspur in a £65million deal from Bournemouth.`\
+https://nytimes.com/athletic/5690897/2024/08/10/tottenham-complete-dominic-solanke-signing/
+
+**Fine-Tuning His Attacks on Harris, Trump Tries Using Her Words Against Her**\
+`Donald J. Trump broke from his routine at a rally in Montana to play videos designed to portray Kamala Harris as inept and dangerously liberal.`\
+https://nytimes.com/2024/08/10/us/politics/trump-rally-montana.html
+
+**Susan Wojcicki, Former Chief of YouTube, Dies at 56**\
+`The business executive helped turn Google into an internet juggernaut and became one of the most prominent women on Silicon Valley.`\
+https://nytimes.com/2024/08/10/business/susan-wojcicki-dies.html
+
 **Susan Wojcicki, Former Chief of YouTube, Dies**\
 `The business executive helped turn Google into an internet juggernaut and became one of the most prominent women on Silicon Valley.`\
 https://nytimes.com/2024/08/10/business/susan-wojcicki-dies.html
