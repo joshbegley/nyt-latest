@@ -1,3 +1,7 @@
+**Breaking debuts at Olympics, noisily and colorfully, in the sport's newest chapter**\
+`There will likely never be unity between the old and new schools of breaking, but Friday, the sport pushed forward with its Olympic debut.`\
+https://nytimes.com/athletic/5691707/2024/08/10/breaking-olympics-debut-b-girls-boys-ami/
+
 **Israel says it carried out a strike on a school turned shelter in Gaza City.**\
 `By Raja Abdulrahim and Victoria Kim`\
 https://nytimes.com/live/2024/08/10/world/israel-iran-hamas-gaza-war/israel-says-it-carried-out-a-strike-on-a-school-turned-shelter-in-gaza-city
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5690897/2024/08/10/tottenham-complete-dominic-solan
 **Fine-Tuning His Attacks on Harris, Trump Tries Using Her Words Against Her**\
 `Donald J. Trump broke from his routine at a rally in Montana to play videos designed to portray Kamala Harris as inept and dangerously liberal.`\
 https://nytimes.com/2024/08/10/us/politics/trump-rally-montana.html
-
-**Susan Wojcicki, Former Chief of YouTube, Dies at 56**\
-`The business executive helped turn Google into an internet juggernaut and became one of the most prominent women in Silicon Valley.`\
-https://nytimes.com/2024/08/10/business/susan-wojcicki-dead.html
 
