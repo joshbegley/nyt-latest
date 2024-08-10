@@ -1,3 +1,7 @@
+**Jayden Daniels goes rogue, delivers wow play in Commanders preseason debut**\
+`Daniels' teammates loved his mid-play check for a big gain, and coach Dan Quinn saw it as seeking "forgiveness and not permission."`\
+https://nytimes.com/athletic/5693242/2024/08/10/jayden-daniels-commanders-preseason/
+
 **USWNT overcomes a year of change to win Olympic gold again: 'I'm just in awe'**\
 `The U.S. bounced back from its World Cup loss to secure gold a year later`\
 https://nytimes.com/athletic/5693321/2024/08/10/uswnt-olympic-gold-journey/
