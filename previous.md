@@ -1,3 +1,7 @@
+**Tola wins Olympic marathon for Ethiopia**\
+`On a bright and clear morning in Paris, 80 of the world’s best distance runners battled for one of sport’s ultimate prizes`\
+https://nytimes.com/athletic/5692378/2024/08/10/olympics-marathon-result-tamirat-tola/
+
 **For Diana Taurasi, one last Olympic hurrah to cap a one-of-a-kind career**\
 `Diana Taurasi will play her final Olympic game Sunday. She'll go out a legend, and a player who elevated USA Basketball to new heights`\
 https://nytimes.com/athletic/5691871/2024/08/10/diana-taurasi-olympics-finale-gold-medal-game/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/10/nyregion/jackie-chang-subway-mosaics.html
 **A Bike-Riding Barber Cuts Hair on Broadway, in the Park and on the Roof**\
 `Julien Howard, who is known as the Vélo Barber, travels around New York City by bike in search of the “dopest” places to cut hair.`\
 https://nytimes.com/2024/08/10/nyregion/velo-barber-julien-howard.html
-
-**Tottenham complete Dominic Solanke deal**\
-`Dominic Solanke has completed his move to Tottenham Hotspur in a £65million deal from Bournemouth.`\
-https://nytimes.com/athletic/5690897/2024/08/10/tottenham-complete-dominic-solanke-signing/
 

@@ -1,3 +1,7 @@
+**Tola wins Olympic marathon for Ethiopia**\
+`On a bright and clear morning in Paris, 80 of the world’s best distance runners battled for one of sport’s ultimate prizes`\
+https://nytimes.com/athletic/5692378/2024/08/10/olympics-marathon-result-tamirat-tola/
+
 **For Diana Taurasi, one last Olympic hurrah to cap a one-of-a-kind career**\
 `Diana Taurasi will play her final Olympic game Sunday. She'll go out a legend, and a player who elevated USA Basketball to new heights`\
 https://nytimes.com/athletic/5691871/2024/08/10/diana-taurasi-olympics-finale-gold-medal-game/
