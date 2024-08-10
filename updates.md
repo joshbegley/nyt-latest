@@ -1,3 +1,7 @@
+**Israel Criticized After Strike Kills Scores in Gaza**\
+`Israeli officials defended the attack on a former school compound, saying Hamas was using it as a base for military operations in Gaza City.`\
+https://nytimes.com/2024/08/10/world/middleeast/israel-gaza-war-strike-school.html
+
 **Jayden Daniels goes rogue, delivers wow play in Commanders preseason debut**\
 `Daniels' teammates loved his mid-play check for a big gain, and coach Dan Quinn saw it as seeking "forgiveness and not permission."`\
 https://nytimes.com/athletic/5693242/2024/08/10/jayden-daniels-commanders-preseason/
