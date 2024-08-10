@@ -1,3 +1,7 @@
+**Brentford agree deal to sign Carvalho from Liverpool**\
+`Brentford have agreed to sign Liverpool midfielder Fabio Carvalho in a deal that could be worth £27.`\
+https://nytimes.com/athletic/5679585/2024/08/10/brentford-fabio-carvalho/
+
 **Tamberi goes to hospital, says he'll make high jump final**\
 `Italy's Gianmarco Tamberi went to the hospital Saturday morning and said he threw up blood twice.`\
 https://nytimes.com/athletic/5692757/2024/08/10/gianmarco-tamberi-high-jump-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5690905/2024/08/10/west-ham-todibo-transfer/
 **Is It Harris’ or Harris’s? Add a Walz, and It’s Even Trickier.**\
 `With Vice President Kamala Harris and Gov. Tim Walz running on the same ticket, grammar geeks are in overdrive.`\
 https://nytimes.com/2024/08/10/us/harris-walz-apostrophe-possessive.html
-
-**Bournemouth set to sign Barcelona defender Araujo**\
-`Barcelona defender Julian Araujo is close to completing a move to AFC Bournemouth.`\
-https://nytimes.com/athletic/5689791/2024/08/10/bournemouth-julian-araujo/
 

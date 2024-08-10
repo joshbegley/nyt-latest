@@ -1,3 +1,7 @@
+**Brentford agree deal to sign Carvalho from Liverpool**\
+`Brentford have agreed to sign Liverpool midfielder Fabio Carvalho in a deal that could be worth £27.`\
+https://nytimes.com/athletic/5679585/2024/08/10/brentford-fabio-carvalho/
+
 **Tamberi goes to hospital, says he'll make high jump final**\
 `Italy's Gianmarco Tamberi went to the hospital Saturday morning and said he threw up blood twice.`\
 https://nytimes.com/athletic/5692757/2024/08/10/gianmarco-tamberi-high-jump-olympics/
