@@ -1,4 +1,4 @@
-**Before they could pray, the Israeli airstrike hit.**\
+**Gazans describe carnage at airstrike site: ‘The dead were all in pieces.’**\
 `By Raja Abdulrahim and Ameera Harouda`\
 https://nytimes.com/live/2024/08/10/world/israel-iran-hamas-gaza-war/before-they-could-pray-the-israeli-airstrike-hit
 
