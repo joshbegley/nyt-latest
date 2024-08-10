@@ -1,3 +1,7 @@
+**Before they could pray, the Israeli airstrike hit.**\
+`By Raja Abdulrahim and Ameera Harouda`\
+https://nytimes.com/live/2024/08/10/world/israel-iran-hamas-gaza-war/before-they-could-pray-the-israeli-airstrike-hit
+
 **Chalobah training away from Chelsea first team**\
 `Trevoh Chalobah is training away from the Chelsea first team with his future looking increasingly likely to be away from the club.`\
 https://nytimes.com/athletic/5692506/2024/08/10/chelsea-trevoh-chalobah-training/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/10/opinion/jd-vance-right-wing-intellectual.html
 **When Olympic Sponsors Go Rogue**\
 `LVMH and Samsung intruded on previously sacrosanct spaces at the Paris Games, angering fellow sponsors and raising concerns about a repeat at the closing ceremony.`\
 https://nytimes.com/2024/08/10/world/olympics/when-olympic-sponsors-go-rogue.html
-
-**‘This Recipe Just Made My Summer’**\
-`This charred corn and chickpea salad with lime crema is fast and easy, and it’s already a hit with readers.`\
-https://nytimes.com/2024/08/10/dining/corn-chickpea-salad-recipe.html
 
