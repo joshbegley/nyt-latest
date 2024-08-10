@@ -1,3 +1,7 @@
+**Shoulder injury to rookie CB Nate Wiggins will create uneasy feeling for Ravens**\
+`Baltimore desperately wants to avoid the trend of suffering injuries to key players in its secondary. `\
+https://nytimes.com/athletic/5692287/2024/08/10/ravens-nate-wiggins-injury-preseason/
+
 **Tola wins Olympic marathon for Ethiopia**\
 `On a bright and clear morning in Paris, 80 of the world’s best distance runners battled for one of the sport’s ultimate prizes`\
 https://nytimes.com/athletic/5692378/2024/08/10/olympics-marathon-result-tamirat-tola/
