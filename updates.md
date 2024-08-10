@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron, Michael Gold and Simon J. Levien`\
+https://nytimes.com/live/2024/08/10/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Live Election Updates: Trump Tries to Curb Harris Enthusiasm After Another Big Rally**\
+`Former President Donald J. Trump tested a new tactic for attacks at an event in Montana as Vice President Kamala Harris and Gov. Tim Walz headed to Nevada to wrap up their introductory tour of battlegrounds.`\
+https://nytimes.com/live/2024/08/10/us/harris-trump-election
+
 **The Social Media Olympics**\
 `More lenient posting rules for Olympic athletes have helped spark a deluge of successful social media content. Some say that’s changing how we watch the Games.`\
 https://nytimes.com/2024/08/10/business/dealbook/the-social-media-olympics.html

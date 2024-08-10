@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron, Michael Gold and Simon J. Levien`\
+https://nytimes.com/live/2024/08/10/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Live Election Updates: Trump Tries to Curb Harris Enthusiasm After Another Big Rally**\
+`Former President Donald J. Trump tested a new tactic for attacks at an event in Montana as Vice President Kamala Harris and Gov. Tim Walz headed to Nevada to wrap up their introductory tour of battlegrounds.`\
+https://nytimes.com/live/2024/08/10/us/harris-trump-election
+
 **The Social Media Olympics**\
 `More lenient posting rules for Olympic athletes have helped spark a deluge of successful social media content. Some say that’s changing how we watch the Games.`\
 https://nytimes.com/2024/08/10/business/dealbook/the-social-media-olympics.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/10/opinion/joe-biden-president.html
 **Juan Gabriel, My Mother and Me**\
 `He showed us a different way to exist, even if the world didn’t seem ready for it.`\
 https://nytimes.com/2024/08/10/opinion/juan-gabriel-mexican-culture-queer.html
-
-**Natural Birth and Breastfeeding:The Decisions That Women Face**\
-`Readers discuss a column by Michelle Goldberg, part of a series challenging conventional wisdom.`\
-https://nytimes.com/2024/08/10/opinion/natural-birth-breastfeeding.html
-
-**Russia Appears to Partly Halt Ukraine’s Cross-Border Assault, Analysts Say**\
-`Yet some in Russia were asking how it was even allowed to happen.`\
-https://nytimes.com/2024/08/10/world/europe/ukraine-russia-cross-border-attack.html
 
