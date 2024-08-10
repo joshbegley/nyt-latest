@@ -1,3 +1,7 @@
+**U.S. women, led by McLaughlin-Levrone and Thomas, coast to 4x400 relay win**\
+`SAINT-DENIS, France — The athletics portion of the Paris Games ended with the United States crossing the finish line, the opponent distant in the rear view, in a display of superiority.`\
+https://nytimes.com/athletic/5693052/2024/08/10/olympics-womens-4x400-relay-usa/
+
 **Williams, Daniels shine in NFL preseason debuts**\
 `Saturday's preseason action gave NFL fans their first glimpse of QBs Caleb Williams and Jayden Daniels, and the rookies delivered.`\
 https://nytimes.com/athletic/5692896/2024/08/10/caleb-williams-jayden-daniels-nfl-preseason-debuts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5692859/2024/08/10/reece-james-chelsea-injury-new-s
 **Chiles' floor score reversed, putting bronze in question**\
 `The appeal by the Romanian federation requested all three athletes be placed in third and allocated medals, the CAS said in its release.`\
 https://nytimes.com/athletic/5692904/2024/08/10/jordan-chiles-olympics-artistic-gymnastics-womens-floor-medal-inquiry/
-
-**The U.S. women’s soccer team finds its way back to the top by beating an old foe.**\
-`Mallory Swanson scored the winner in the 57th minute, neatly slotting home a shot from the left side off an assist from Korbin Albert.`\
-https://nytimes.com/2024/08/10/world/olympics/us-women-soccer-brazil.html
 
