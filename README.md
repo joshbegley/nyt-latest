@@ -1,3 +1,7 @@
+**Shoulder injury to rookie CB Nate Wiggins will create uneasy feeling for Ravens**\
+`Baltimore desperately wants to avoid the trend of suffering injuries to key players in its secondary. `\
+https://nytimes.com/athletic/5692287/2024/08/10/ravens-nate-wiggins-injury-preseason/
+
 **Tola wins Olympic marathon for Ethiopia**\
 `On a bright and clear morning in Paris, 80 of the world’s best distance runners battled for one of the sport’s ultimate prizes`\
 https://nytimes.com/athletic/5692378/2024/08/10/olympics-marathon-result-tamirat-tola/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/10/crosswords/spelling-bee-forum.html
 **How a Subway Mosaic Artist Spends Her Sundays**\
 `Jackie Chang, who designed the mosaics at a Brooklyn subway station, spends her day designing in her studio, making Taiwanese breakfast and practicing violin.`\
 https://nytimes.com/2024/08/10/nyregion/jackie-chang-subway-mosaics.html
-
-**A Bike-Riding Barber Cuts Hair on Broadway, in the Park and on the Roof**\
-`Julien Howard, who is known as the Vélo Barber, travels around New York City by bike in search of the “dopest” places to cut hair.`\
-https://nytimes.com/2024/08/10/nyregion/velo-barber-julien-howard.html
 
