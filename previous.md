@@ -1,8 +1,16 @@
+**New-look Leeds lean on Gnonto and fighting spirit as Farke sees the positives**\
+`It may have been a summer of change at Elland Road but Leeds retain their ability to claw back the initiative in familiar style`\
+https://nytimes.com/athletic/5691046/2024/08/10/leeds-farke-gnonto-comeback/
+
+**The Olympics’ Toughest Act: Balancing Sports and Politics**\
+`The Olympics have long been a stage for political expression, for athletes who take the opportunity. Some do, while others choose to focus strictly on their sport.`\
+https://nytimes.com/2024/08/10/world/olympics/olympics-politics-ioc.html
+
 **Jordan Chiles' floor score reversed after appeal, putting bronze in question**\
 `The Court of Arbitration for Sport has weighed in on a controversy surrounding the final placements of the women&#8217;s floor exercise final at the Olympics, dropping the final score for the American gymnast Jordan Chiles to 13.`\
 https://nytimes.com/athletic/5692904/2024/08/10/jordan-chiles-olympics-artistic-gymnastics-womens-floor-medal-inquiry/
 
-**The U.S. women’s team finds its way back to the top by beating an old foe.**\
+**The U.S. women’s soccer team finds its way back to the top by beating an old foe.**\
 `Mallory Swanson scored the winner in the 57th minute, neatly slotting home a shot from the left side off an assist from Korbin Albert.`\
 https://nytimes.com/2024/08/10/world/olympics/us-women-soccer-brazil.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5692506/2024/08/10/chelsea-trevoh-chalobah-training
 **Lydia Ko wins gold in Paris Olympics women's golf**\
 `Ko added to her medal collection after winning silver at the Rio Olympics and bronze at the Tokyo Olympics.`\
 https://nytimes.com/athletic/5692852/2024/08/10/lydia-ko-olympics-golf-lpga-hall-of-fame/
-
-**The Briefing: Manchester City 1 Manchester United 1 - Akanji wins Community Shield on penalties**\
-`We break down the key talking points from Saturday's dramatic Community Shield fixture at Wembley`\
-https://nytimes.com/athletic/5691440/2024/08/10/manchester-city-manchester-united-result-analysis/
-
-**Israeli Strikes on Schools Pose a Life-or-Death Choice for Civilians**\
-`Schools in Gaza have taken in tens of thousands of people seeking safety. Israel, arguing that Hamas uses the shelters, has struck school grounds repeatedly.`\
-https://nytimes.com/2024/08/10/world/middleeast/israel-schools-shelters.html
 
