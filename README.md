@@ -1,5 +1,5 @@
 **Tola wins Olympic marathon for Ethiopia**\
-`They went out slow and came home fast, and when it was over, and Tamirat Tola of Ethiopia was sprinting through the plaza and Les Invalides, the Olympic marathon once more proved why it can be that most captivating of races.`\
+`On a bright and clear morning in Paris, 80 of the world’s best distance runners battled for one of sport’s ultimate prizes`\
 https://nytimes.com/athletic/5692378/2024/08/10/olympics-marathon-result-tamirat-tola/
 
 **For Diana Taurasi, one last Olympic hurrah to cap a one-of-a-kind career**\
