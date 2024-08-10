@@ -1,3 +1,11 @@
+**Los Angeles Has Promised a ‘Car-Free’ Olympics in 2028. Can It Do It?**\
+`The countdown is on for the city, which will host the next Summer Games and is working on transit upgrades to accommodate hundreds of thousands of visitors.`\
+https://nytimes.com/2024/08/10/us/los-angeles-olympics-traffic-transport.html
+
+**Team USA's Russell win gold in women's 100m hurdles**\
+`Russell overtook France’s Cyrena Samba-Mayela with a surge in the final 10 meters and a timely lean to get across in 12.33 seconds.`\
+https://nytimes.com/athletic/5692950/2024/08/10/masai-russell-womens-100m-hurdles-olympics/
+
 **New-look Leeds lean on Gnonto and fighting spirit as Farke sees the positives**\
 `It may have been a summer of change at Elland Road but Leeds retain their ability to claw back the initiative in familiar style`\
 https://nytimes.com/athletic/5691046/2024/08/10/leeds-farke-gnonto-comeback/
