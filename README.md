@@ -1,3 +1,11 @@
+**Israel says it carried out a strike on a school turned shelter in Gaza City.**\
+`By Raja Abdulrahim and Victoria Kim`\
+https://nytimes.com/live/2024/08/10/world/israel-iran-hamas-gaza-war/israel-says-it-carried-out-a-strike-on-a-school-turned-shelter-in-gaza-city
+
+**Israel Says It Struck School Complex in Gaza; Palestinian Authorities Say Dozens Dead**\
+`Israel said the compound, where people were sheltering, had also been operating as a headquarters for militants.`\
+https://nytimes.com/live/2024/08/10/world/israel-iran-hamas-gaza-war
+
 **Dominic Solanke to Tottenham Hotspur: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Dominic Solanke's move to Tottenham `\
 https://nytimes.com/athletic/5690943/2024/08/10/dominic-solanke-to-tottenham-hotspur-the-athletic-500-transfer-ratings/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/10/us/politics/trump-rally-montana.html
 **Susan Wojcicki, Former Chief of YouTube, Dies at 56**\
 `The business executive helped turn Google into an internet juggernaut and became one of the most prominent women on Silicon Valley.`\
 https://nytimes.com/2024/08/10/business/susan-wojcicki-dies.html
-
-**Inside One of the Last Functioning Hospitals in Gaza**\
-`Dr. Ahmad Yousaf is an American pediatrician who recently returned from a medical mission to Gaza. He shared rare footage from inside Al Aqsa Hospital, where he captured harrowing conditions for medical workers and patients, particularly children.`\
-https://nytimes.com/video/world/middleeast/100000009577656/gaza-doctor-hospitals.html
-
-**What We Know About the Plane Crash in Brazil**\
-`The twin-engine turboprop passenger aircraft crashed near São Paulo, killing all 61 people on board. Officials are investigating the cause.`\
-https://nytimes.com/2024/08/10/world/americas/brazil-plane-crash.html
 
