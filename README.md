@@ -1,3 +1,7 @@
+**The Briefing: Manchester City 1 Manchester United 1: City take Community Shield on penalties at Wembley**\
+`We break down the key talking points from Saturday's Community Shield fixture at Wembley`\
+https://nytimes.com/athletic/5691440/2024/08/10/manchester-city-manchester-united-result-analysis/
+
 **Israeli Strikes on Schools Pose a Life-or-Death Choice for Civilians**\
 `Schools in Gaza have taken in tens of thousands of people seeking safety. Israel, arguing that Hamas uses the shelters, has struck school grounds repeatedly.`\
 https://nytimes.com/2024/08/10/world/middleeast/israel-schools-shelters.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5692224/2024/08/10/justin-fields-steelers-preseason
 **Jean-Clair Todibo to West Ham: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Nice defender Jean-Clair Todibo's move to West Ham United`\
 https://nytimes.com/athletic/5642977/2024/08/10/jean-clair-todibo-to-west-ham-transfer-ratings/
-
-**Todibo joins West Ham on loan**\
-`West Ham United have completed the signing of Jean-Clair Todibo from Nice.`\
-https://nytimes.com/athletic/5690905/2024/08/10/west-ham-todibo-transfer/
 
