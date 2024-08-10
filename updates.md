@@ -1,3 +1,7 @@
+**‘They Are Burned Alive’: A Doctor Captures the Toll of War on Gaza’s Children**\
+`An American pediatrician spent three weeks in one of Gaza’s last functioning hospitals. He shared a record of what he witnessed, including rare footage from inside the hospital, with The New York Times.`\
+https://nytimes.com/2024/08/10/world/middleeast/gaza-al-aqsa-hospital-children.html
+
 **The Man Who Tried to Solve Immigration for the G.O.P.**\
 `The senator discusses how political calculations killed his border bill, the evangelical Christian vote and preparing for life after Trump.`\
 https://nytimes.com/2024/08/10/magazine/james-lankford-senator-interview.html
