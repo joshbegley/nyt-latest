@@ -1,3 +1,11 @@
+**U.S. women, led by McLaughlin-Levrone and Thomas, coast to 4x400 relay win**\
+`SAINT-DENIS, France — The athletics portion of the Paris Games ended with the United States crossing the finish line, the opponent distant in the rear view, in a display of superiority.`\
+https://nytimes.com/athletic/5693052/2024/08/10/olympics-womens-4x400-relay-usa/
+
+**Harris Campaign Says Walz ‘Misspoke’ in a Comment About His Military Service**\
+`The Democratic vice-presidential nominee has come under attack from Republicans, who have suggested that he has overstated his military record and avoided combat.`\
+https://nytimes.com/2024/08/10/us/politics/walz-guns-war-military.html
+
 **U.S. men win 4x400 relay for third consecutive Olympics**\
 `Christopher Bailey, Vernon Norwood, Bryce Deadmon and Rai Benjamin ran in an Olympic-record 2:54.43 to win gold.`\
 https://nytimes.com/athletic/5692935/2024/08/10/olympic-mens-4x400-relay-results-usa/
