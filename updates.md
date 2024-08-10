@@ -1,3 +1,7 @@
+**Curry lifts U.S. men past France to fifth straight Olympic gold**\
+`Curry drained four crucial 3-pointers inside of 3 minutes to go, including the likely game-clincher with 33 seconds left.`\
+https://nytimes.com/athletic/5693131/2024/08/10/usa-france-paris-olympics-stephen-curry-basketball/
+
 **Iowa's once-solved quarterback situation is now a competition and perhaps a controversy**\
 `Northwestern transfer Brendan Sullivan clearly outplayed expected starter Cade McNamara during Saturday's open practice. `\
 https://nytimes.com/athletic/5693193/2024/08/10/iowa-quarterbacks-cade-mcnamara-brendan-sullivan/
