@@ -1,3 +1,11 @@
+**Los Angeles Has Promised a ‘Car-Free’ Olympics in 2028. Can It Do It?**\
+`The countdown is on for the city, which will host the next Summer Games and is working on transit upgrades to accommodate hundreds of thousands of visitors.`\
+https://nytimes.com/2024/08/10/us/los-angeles-olympics-traffic-transport.html
+
+**Team USA's Russell win gold in women's 100m hurdles**\
+`Russell overtook France’s Cyrena Samba-Mayela with a surge in the final 10 meters and a timely lean to get across in 12.33 seconds.`\
+https://nytimes.com/athletic/5692950/2024/08/10/masai-russell-womens-100m-hurdles-olympics/
+
 **New-look Leeds lean on Gnonto and fighting spirit as Farke sees the positives**\
 `It may have been a summer of change at Elland Road but Leeds retain their ability to claw back the initiative in familiar style`\
 https://nytimes.com/athletic/5691046/2024/08/10/leeds-farke-gnonto-comeback/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5692015/2024/08/10/uswnt-brazil-olympic-gold-medal-
 **Gazans describe carnage at airstrike site: ‘The dead were all in pieces.’**\
 `By Raja Abdulrahim and Ameera Harouda`\
 https://nytimes.com/live/2024/08/10/world/israel-iran-hamas-gaza-war/before-they-could-pray-the-israeli-airstrike-hit
-
-**Chalobah training away from Chelsea first team**\
-`Trevoh Chalobah is training away from the Chelsea first team with his future looking increasingly likely to be away from the club.`\
-https://nytimes.com/athletic/5692506/2024/08/10/chelsea-trevoh-chalobah-training/
-
-**Lydia Ko wins gold in Paris Olympics women's golf**\
-`Ko added to her medal collection after winning silver at the Rio Olympics and bronze at the Tokyo Olympics.`\
-https://nytimes.com/athletic/5692852/2024/08/10/lydia-ko-olympics-golf-lpga-hall-of-fame/
 
