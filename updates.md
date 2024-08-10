@@ -1,3 +1,11 @@
+**Justin Fields flashes in Steelers' debut, offering optimism entering a new chapter**\
+`Fields had some hiccups, notably two botched exchanges, but he looked comfortable, confident and decisive with his new team.`\
+https://nytimes.com/athletic/5692224/2024/08/10/justin-fields-steelers-preseason-opener/
+
+**Jean-Clair Todibo to West Ham: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Nice defender Jean-Clair Todibo's move to West Ham United`\
+https://nytimes.com/athletic/5642977/2024/08/10/jean-clair-todibo-to-west-ham-transfer-ratings/
+
 **Todibo joins West Ham on loan**\
 `West Ham United have completed the signing of Jean-Clair Todibo from Nice.`\
 https://nytimes.com/athletic/5690905/2024/08/10/west-ham-todibo-transfer/
