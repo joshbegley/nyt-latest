@@ -1,3 +1,11 @@
+**Justin Fields flashes in Steelers' debut, offering optimism entering a new chapter**\
+`Fields had some hiccups, notably two botched exchanges, but he looked comfortable, confident and decisive with his new team.`\
+https://nytimes.com/athletic/5692224/2024/08/10/justin-fields-steelers-preseason-opener/
+
+**Jean-Clair Todibo to West Ham: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Nice defender Jean-Clair Todibo's move to West Ham United`\
+https://nytimes.com/athletic/5642977/2024/08/10/jean-clair-todibo-to-west-ham-transfer-ratings/
+
 **Todibo joins West Ham on loan**\
 `West Ham United have completed the signing of Jean-Clair Todibo from Nice.`\
 https://nytimes.com/athletic/5690905/2024/08/10/west-ham-todibo-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5692487/2024/08/10/manchester-united-de-ligt-transf
 **The Social Media Olympics**\
 `More lenient posting rules for Olympic athletes have helped spark a deluge of successful social media content. Some say that’s changing how we watch the Games.`\
 https://nytimes.com/2024/08/10/business/dealbook/the-social-media-olympics.html
-
-**Nikola Jokić leads Serbia to Olympic bronze in men's basketball over Germany**\
-`Nikola Jokić's triple-double helped Serbia shake the U.S. hangover and topple Germany on Saturday in the Olympic bronze-medal game.`\
-https://nytimes.com/athletic/5692462/2024/08/10/serbia-germany-olympics-basketball-bronze-nikola-jokic/
-
-**Five things to watch as Broncos open preseason vs. Colts, starting with QB race**\
-`Bo Nix struggled at times with the pass rush in camp this week. Can he make strides in live action against Indy's defense? `\
-https://nytimes.com/athletic/5691604/2024/08/10/broncos-colts-preseason-five-things/
 
