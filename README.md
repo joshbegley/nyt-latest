@@ -1,3 +1,7 @@
+**Harris Hopes a New Playbook Will Neutralize G.O.P. Attacks on Immigration**\
+`The Democratic presidential nominee has been pummeled by Donald J. Trump and other Republicans on her immigration record. She is now trying an approach that Democrats say has worked before.`\
+https://nytimes.com/2024/08/10/us/politics/harris-trump-immigration.html
+
 **USWNT on goalkeeper Alyssa Naeher: 'We’re making her a little more mushy gushy'**\
 `The U.S. goalkeeper is known for her stoic exterior`\
 https://nytimes.com/athletic/5693260/2024/08/10/uswnt-olympics-alyssa-naeher/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/10/world/olympics/usa-basketball-gold-steph-curry.ht
 **Iowa's once-solved quarterback situation is now a competition and perhaps a controversy**\
 `Northwestern transfer Brendan Sullivan clearly outplayed expected starter Cade McNamara during Saturday's open practice. `\
 https://nytimes.com/athletic/5693193/2024/08/10/iowa-quarterbacks-cade-mcnamara-brendan-sullivan/
-
-**Lin Yu-ting of Taiwan earns a gold on what could be boxing's last Olympic night**\
-`Lin Yu-ting of Taiwan, who quietly weathered a firestorm during these Paris Games of at times ugly speculation about her personal biology, won a gold medal Saturday on what could potentially be the last night of boxing at the Olympic Games.`\
-https://nytimes.com/athletic/5693168/2024/08/10/lin-yu-ting-boxing-olympics-gold-gender/
 
