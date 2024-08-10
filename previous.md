@@ -1,5 +1,9 @@
+**Twins handle devastating injury news with aplomb, sweep doubleheader from Guardians**\
+`The Twins' comeback victory demonstrated the perseverance of a team that only 12 hours earlier announced a series of hobbled players.`\
+https://nytimes.com/athletic/5692264/2024/08/10/twins-injuries-sweep-guardians/
+
 **Yes, Trump Was in a Scary Helicopter Ride. But Not With That Politician.**\
-`There was a helicopter. It did make an emergency landing. But a former California lawmaker says Donald Trump has mixed up one Black politician for another.`\
+`There was a helicopter. It did make an emergency landing. But a former California lawmaker says Donald Trump has mixed up one Black lawmaker for another.`\
 https://nytimes.com/2024/08/10/us/politics/trump-helicopter-crash-willie-brown.html
 
 **Saturday's MLB odds, best bets: Predictions for pitching matchups, props, playoffs and more**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5688741/2024/08/10/tottenham-kane-dier-solanke-baye
 **Assessing Forest's new signings in pre-season - and how they fit into Nuno’s plans**\
 `Now the friendlies are finished, what have we learned about the qualities of the new arrivals ahead of next weekend’s Premier League opener?`\
 https://nytimes.com/athletic/5690891/2024/08/10/forest-new-signings-friendlies-assessed/
-
-**Can Arsenal win the league without a powerhouse No 9?**\
-`If Arsenal are to avoid another 'nearly' season, do they need to sign a new striker?`\
-https://nytimes.com/athletic/5688686/2024/08/10/can-arsenal-win-the-league-without-a-powerhouse-no-9/
 
