@@ -1,3 +1,7 @@
+**Take the El Train**\
+`Caryn Robbins presents an excellent puzzle for her Sunday debut.`\
+https://nytimes.com/2024/08/10/crosswords/daily-puzzle-2024-08-11.html
+
 **U.S. men’s basketball was tested. Stephen Curry had the answer.**\
 `A flurry of Stephen Curry 3-pointers helped the United States survive a French challenge and win a fifth straight gold medal.`\
 https://nytimes.com/2024/08/10/world/olympics/usa-basketball-gold-steph-curry.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/10/us/tim-walz-military-career.html
 **Trump Goes West: A Day on the Trail**\
 `By Doug Mills`\
 https://nytimes.com/card/2024/08/10/admin/trump-montana
-
-**Jordan Chiles, in an Olympic gymnastics comedy of errors, gets another raw deal**\
-`Jordan Chiles was nothing but class at these Olympics. But time and again, she got an deserving short end. None more so than Saturday.`\
-https://nytimes.com/athletic/5693040/2024/08/10/jordan-chiles-olympics-gymnastics-floor-controversy-bronze/
 
