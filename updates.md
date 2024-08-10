@@ -1,3 +1,7 @@
+**Bears QB Caleb Williams shows playmaking skill, poise on third down in debut**\
+`Excitement was high for Williams' first NFL game action, and while he didn't produce a touchdown, he led two scoring drives in Buffalo.`\
+https://nytimes.com/athletic/5693309/2024/08/10/caleb-williams-chicago-bears-preseason/
+
 **Israel Criticized After Strike Kills Scores in Gaza**\
 `Israeli officials defended the attack on a former school compound, saying Hamas was using it as a base for military operations in Gaza City.`\
 https://nytimes.com/2024/08/10/world/middleeast/israel-gaza-war-strike-school.html

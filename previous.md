@@ -1,3 +1,7 @@
+**Bears QB Caleb Williams shows playmaking skill, poise on third down in debut**\
+`Excitement was high for Williams' first NFL game action, and while he didn't produce a touchdown, he led two scoring drives in Buffalo.`\
+https://nytimes.com/athletic/5693309/2024/08/10/caleb-williams-chicago-bears-preseason/
+
 **Israel Criticized After Strike Kills Scores in Gaza**\
 `Israeli officials defended the attack on a former school compound, saying Hamas was using it as a base for military operations in Gaza City.`\
 https://nytimes.com/2024/08/10/world/middleeast/israel-gaza-war-strike-school.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5693168/2024/08/10/lin-yu-ting-boxing-olympics-gold
 **Curry lifts U.S. men past France to fifth straight Olympic gold**\
 `Curry drained four crucial 3-pointers inside of three minutes to go, including the likely game-clincher with 33 seconds left.`\
 https://nytimes.com/athletic/5693131/2024/08/10/usa-france-paris-olympics-stephen-curry-basketball/
-
-**Eddie Canales, 76, Dies; Gave Migrants Water, and Dignity**\
-`After a long career as a union organizer, he came out of retirement in 2013 to form the South Texas Human Rights Center and provide lifesaving aid.`\
-https://nytimes.com/2024/08/10/us/eddie-canales-dead.html
 
