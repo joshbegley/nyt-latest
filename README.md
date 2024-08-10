@@ -1,3 +1,7 @@
+**What We Know About the Plane Crash in Brazil**\
+`The twin-engine turboprop passenger aircraft crashed near São Paulo, killing all 61 people on board. Officials are investigating the cause.`\
+https://nytimes.com/2024/08/10/world/americas/brazil-plane-crash.html
+
 **Twins handle devastating injury news with aplomb, sweep doubleheader from Guardians**\
 `The Twins' comeback victory demonstrated the perseverance of a team that only 12 hours earlier announced a series of hobbled players.`\
 https://nytimes.com/athletic/5692264/2024/08/10/twins-injuries-sweep-guardians/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5690644/2024/08/10/chelsea-defence-press-maresca/
 **Tottenham welcome back Harry Kane with efforts under way to secure his successor**\
 `Even now, it requires some mental effort just to get your head around how much Kane meant to Spurs - someone synonymous with the whole club`\
 https://nytimes.com/athletic/5688741/2024/08/10/tottenham-kane-dier-solanke-bayern/
-
-**Assessing Forest's new signings in pre-season - and how they fit into Nuno’s plans**\
-`Now the friendlies are finished, what have we learned about the qualities of the new arrivals ahead of next weekend’s Premier League opener?`\
-https://nytimes.com/athletic/5690891/2024/08/10/forest-new-signings-friendlies-assessed/
 
