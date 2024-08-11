@@ -18,8 +18,8 @@ https://nytimes.com/athletic/5694378/2024/08/11/us-china-gold-medals-count-olymp
 `An inquiry by Chiles’s coach led judges to adjust her score and give her a medal. A court ruled the inquiry came too late. Now, the I.O.C. wants her bronze back.`\
 https://nytimes.com/2024/08/11/world/olympics/jordan-chiles-gymnastics-medal.html
 
-**JD Vance said he supported Trump’s wishes for presidential influence over the Federal Reserve.**\
-`By Minho Kim`\
+**JD Vance Supports Trump on Presidential Influence Over Federal Reserve**\
+`The Republican vice-presidential nominee said presidents should have a say in determining the benchmark interest rate.`\
 https://nytimes.com/2024/08/11/us/politics/jd-vance-fed.html
 
 **Bob Tischler, Who Helped Revive ‘Saturday Night Live,’ Dies at 78**\

@@ -1,3 +1,7 @@
+**JD Vance Supports Trump on Presidential Influence Over Federal Reserve**\
+`The Republican vice-presidential nominee said presidents should have a say in determining the benchmark interest rate.`\
+https://nytimes.com/2024/08/11/us/politics/jd-vance-fed.html
+
 **For some countries, the wait for an Olympic medal goes on, and on, and on, and on.**\
 `By James Wagner and Jeré Longman`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/for-some-countries-the-wait-for-an-olympic-medal-goes-on-and-on-and-on-and-on
