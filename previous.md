@@ -1,3 +1,7 @@
+**Easton Stick and the Chargers offense sputter in Jim Harbaugh's preseason debut**\
+`Stick, the Chargers' backup QB, completed just 5 of 13 passes for 31 yards and an interception in the 16-3 loss.`\
+https://nytimes.com/athletic/5693844/2024/08/11/chargers-seahawks-jim-harbaugh-preseason-debut/
+
 **River Ryan goes down, and the Dodgers' rotation questions continue**\
 `“He was making a case for himself,” manager Dave Roberts said.`\
 https://nytimes.com/athletic/5693821/2024/08/11/dodgers-river-ryan-injury-pitching-rotation/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5692936/2024/08/11/bobb-manchester-city-guardiola-s
 **Why European soccer headed to the U.S. for preseason - and what comes next?**\
 `Premier League, La Liga and Serie A clubs have rushed to the States for lucrative preseason tours in recent years, but is it sustainable?`\
 https://nytimes.com/athletic/5690346/2024/08/11/manchester-united-pre-season-european-soccer/
-
-**How will Arne Slot use Liverpool's academy this season?**\
-`New head coach Slot's youth credentials are strong but will he be prepared to blood Liverpool's youth when the stakes are so high?`\
-https://nytimes.com/athletic/5674734/2024/08/11/liverpool-arne-slot-academy/
 
