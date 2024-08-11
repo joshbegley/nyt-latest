@@ -1,3 +1,11 @@
+**Quotation of the Day: Lahaina Sifts Its Layers of History as It Rebuilds**\
+`Quotation of the Day for Sunday, August 11, 2024.`\
+https://nytimes.com/2024/08/11/pageoneplus/quotation-of-the-day-lahaina-sifts-its-layers-of-history-as-it-rebuilds.html
+
+**Corrections: Aug. 11, 2024**\
+`Corrections that appeared in print on Sunday, Aug. 11, 2024.`\
+https://nytimes.com/2024/08/11/pageoneplus/corrections-aug-11-2024.html
+
 **Five who impressed, 4 who struggled and one who made you think in the Bengals' preseason**\
 `Joe Burrow and Tee Higgins were superb in limited work, while there were major ups and downs for the talented rookie class.`\
 https://nytimes.com/athletic/5693780/2024/08/11/bengals-preseason-opener-5-who-impressed-4-who-struggled-and-one-who-made-you-think/

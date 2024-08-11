@@ -1,3 +1,11 @@
+**Quotation of the Day: Lahaina Sifts Its Layers of History as It Rebuilds**\
+`Quotation of the Day for Sunday, August 11, 2024.`\
+https://nytimes.com/2024/08/11/pageoneplus/quotation-of-the-day-lahaina-sifts-its-layers-of-history-as-it-rebuilds.html
+
+**Corrections: Aug. 11, 2024**\
+`Corrections that appeared in print on Sunday, Aug. 11, 2024.`\
+https://nytimes.com/2024/08/11/pageoneplus/corrections-aug-11-2024.html
+
 **Five who impressed, 4 who struggled and one who made you think in the Bengals' preseason**\
 `Joe Burrow and Tee Higgins were superb in limited work, while there were major ups and downs for the talented rookie class.`\
 https://nytimes.com/athletic/5693780/2024/08/11/bengals-preseason-opener-5-who-impressed-4-who-struggled-and-one-who-made-you-think/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5693760/2024/08/11/seahawks-chargers-mike-macdonald
 **Takeaways from 49ers' preseason opener: Solid QB play, Malik Mustapha's first impression**\
 `Kyle Shanahan chimed in on quarterback play and his decision to allow assistant Klay Kubiak to call plays against the Titans. `\
 https://nytimes.com/athletic/5693405/2024/08/11/49ers-titans-preseason-quarterbacks-malik-mustapha/
-
-**Casemiro's strong-arm authority suggests he may still have something to offer Manchester United**\
-`The Brazilian midfielder's display and disappointment in defeat against Manchester City betrayed a desire to success in English football`\
-https://nytimes.com/athletic/5693044/2024/08/11/casemiro-manchester-united-ten-hag/
-
-**Oscar Bobb has an opportunity to play regularly at City - and the talent to thrive**\
-`The young Norwegian winger knows City's style inside out now and has a chance to make the right wing berth his own over the next few weeks`\
-https://nytimes.com/athletic/5692936/2024/08/11/bobb-manchester-city-guardiola-savinho/
 
