@@ -1,3 +1,7 @@
+**U.S. wins gold in nail-biter vs. France**\
+`France's Gabby Williams' shot was a 2-pointer as time expired — putting the final score at Team USA 67-France 66.`\
+https://nytimes.com/athletic/5694154/2024/08/11/olympics-womens-basketball-usa-gold-win-wilson/
+
 **Olympic Marathon Course Lets Amateurs Inside the Ropes**\
 `A public marathon and a series of overnight 10Ks offered recreational runners a chance to feel closer to the Games.`\
 https://nytimes.com/2024/08/11/world/olympics/olympics-marathon-for-everyone.html
