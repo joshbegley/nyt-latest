@@ -1,3 +1,7 @@
+**Sifan Hassan wins women's marathon gold, completes astounding Olympic treble**\
+`Sifan Hassan won Sunday's marathon in an Olympic record time of 2:22.55, completing an incredible treble of distance events at the Games.`\
+https://nytimes.com/athletic/5693953/2024/08/11/sifan-hassan-olympic-marathon-gold-medal-treble/
+
 **The Summer Camps of Ukraine’s Forests: Hikes, First Aid and Military Readiness**\
 `As the once carefree summers of Ukrainian childhood and young adulthood are forever altered by war, traditional camps have taken on a more patriotic tone.`\
 https://nytimes.com/2024/08/11/world/europe/ukraine-summer-camps-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/11/style/miu-miu-miuccia-prada-miu-miu-girl.html
 **What Killed Harmony Ball-Stribling?**\
 `One woman’s death reveals the myriad ways in which social and economic factors endanger pregnant women in the United States.`\
 https://nytimes.com/2024/08/11/health/maternal-mortality-mississippi.html
-
-**Quotation of the Day: Lahaina Sifts Its Layers of History as It Rebuilds**\
-`Quotation of the Day for Sunday, August 11, 2024.`\
-https://nytimes.com/2024/08/11/pageoneplus/quotation-of-the-day-lahaina-sifts-its-layers-of-history-as-it-rebuilds.html
 
