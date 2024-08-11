@@ -1,3 +1,7 @@
+**Bob Costas, Al Michaels appear on NBC's Olympics broadcast**\
+`The famed sports announcers starred on NBC's Olympic television broadcasts for years.`\
+https://nytimes.com/athletic/5673455/2024/08/11/bob-costas-al-michaels-nbc-olympics/
+
 **As the Paris Games come to an end, Los Angeles enters the Olympic batter's box**\
 `All eyes turn to Los Angeles, host of the 2028 Olympics. Less than four years out, there's still plenty of work to do.`\
 https://nytimes.com/athletic/5692945/2024/08/11/los-angeles-2028-olympics-paris/
