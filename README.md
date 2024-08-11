@@ -1,3 +1,7 @@
+**Schools Have a Tech Problem**\
+`We explore some of the tech challenges faced by educators.`\
+https://nytimes.com/2024/08/11/briefing/techonology-schools.html
+
 **The Briefing: Wrexham 3 Wycombe 2 - Hollywood in town, a hit in the U.S. and an underrated strikeforce?**\
 `Wrexham returned to League One after a 19-year absence with Ryan Reynolds and Rob McElhenney watching on and millions tuning in from the U.S`\
 https://nytimes.com/athletic/5690939/2024/08/11/wrexham-3-wycombe-2-hollywood-in-town-a-hit-in-the-u-s-and-an-underrated-strikeforce/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/11/opinion/kamala-harris-candidate-identity.html
 **Katie Couric: Network Newscasts Need to Better Reflect America**\
 `In a year when America may see its first female president, we can’t have network newscasts that only feature male anchors.`\
 https://nytimes.com/2024/08/11/opinion/katie-couric-network-anchors-women.html
-
-**Wordle Review No. 1,150**\
-`Scroll down for hints and conversation about the puzzle for Monday, August 12, 2024.`\
-https://nytimes.com/2024/08/11/crosswords/wordle-review-1150.html
 
