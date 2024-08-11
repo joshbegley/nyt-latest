@@ -1,3 +1,11 @@
+**River Ryan goes down, and the Dodgers' rotation questions continue**\
+`“He was making a case for himself,” manager Dave Roberts said.`\
+https://nytimes.com/athletic/5693821/2024/08/11/dodgers-river-ryan-injury-pitching-rotation/
+
+**Even for Stephen Curry, that Olympic gold-medal game performance was ridiculous**\
+`Nothing Stephen Curry does should surprise us. And yet, Saturday's gold-clinching finish was a work of art worthy of a place in history.`\
+https://nytimes.com/athletic/5693189/2024/08/11/stephen-curry-olympics-gold-medal-game-team-usa/
+
 **Disney Details Vast Theme Park Expansion Projects**\
 `The company, which has recently seen softening visitor demand, will spend billions to build new rides and expand its cruise ship fleet to 13 from nine.`\
 https://nytimes.com/2024/08/11/business/disney-parks-new-rides.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5690346/2024/08/11/manchester-united-pre-season-eur
 **How will Arne Slot use Liverpool's academy this season?**\
 `New head coach Slot's youth credentials are strong but will he be prepared to blood Liverpool's youth when the stakes are so high?`\
 https://nytimes.com/athletic/5674734/2024/08/11/liverpool-arne-slot-academy/
-
-**Wayne Rooney at Plymouth: A final chance to build a lasting managerial career?**\
-`Rooney's appointment to his latest job was met with negativity from sections of the fanbase but he is starting to win them over`\
-https://nytimes.com/athletic/5692457/2024/08/11/wayne-rooney-plymouth-manager-championship/
-
-**Vaseline, hairspray, shaving foam... What's the best substance to put on goalkeeper gloves?**\
-`Manchester United's Andre Onana favours Vaseline, but other options are available - we asked our goalkeeping expert to test them out`\
-https://nytimes.com/athletic/5618674/2024/08/11/vaseline-hairspray-shaving-foam-whats-the-best-substance-to-put-on-goalkeeper-gloves/
 
