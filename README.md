@@ -1,3 +1,7 @@
+**Monday Briefing: Israel Widens Evacuation Orders**\
+`Plus, house calls for nomads.`\
+https://nytimes.com/2024/08/11/briefing/gaza-evacuations-olympics-harris-walz.html
+
 **Women marathoners receive medals on the big stage of the closing ceremony.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/women-marathoners-receive-medals-on-the-big-stage-of-the-closing-ceremony
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/before
 **For Brittney Griner, a gold-medal Olympic run brings a gratitude for freedom**\
 `After her detainment in Russia, Griner's Olympic win was emotional.`\
 https://nytimes.com/athletic/5694533/2024/08/11/brittney-griner-olympics-womens-basketball-gold/
-
-**Katie Ledecky built her legacy medal by medal.**\
-`By Weiyi Cai, Jasmine C. Lee, Bedel Saget, Jenny Vrentas, Joe Ward, Jeremy White and Ashley Wu`\
-https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/katie-ledecky-built-her-legacy-medal-by-medal
 
