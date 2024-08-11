@@ -1,3 +1,11 @@
+**The Olympics, a Triumph of Ambition, Lift France From Its Gloom**\
+`All sectors of society came together to achieve the nation’s dream for the Games. Success has shown that unity is possible, if often elusive.`\
+https://nytimes.com/2024/08/11/world/europe/olympics-paris-france-unity.html
+
+**Illustrated insights from the Paris Olympics**\
+`Because I married into a French-American family, I&#8217;ve been experiencing the 2024 Paris Games from two perspectives this month — both as an Olympic tourist and as a temporary Parisian local.`\
+https://nytimes.com/athletic/5689194/2024/08/11/illustrated-insights-from-the-paris-olympics-athlete-sightings-french-enthusiasm-and-more/
+
 **Sunday's MLB odds, best bets: Predictions for pitching matchups, props, playoffs and more**\
 `See pitching matchups, playoff projections, win projections and more for Sunday's MLB games.`\
 https://nytimes.com/athletic/5693244/2024/08/11/mlb-odds-best-bets-projections-august-11/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5693670/2024/08/10/marquise-brown-injury-chiefs/
 **Logan Webb does his part as Giants pay tribute to Madison Bumgarner and the 2014 champions**\
 `Webb appreciated Bumgarner mentioning his durability: "If I can get props from that guy, I think I'm doing all right."`\
 https://nytimes.com/athletic/5693577/2024/08/10/sf-giants-logan-webb-madison-bumgarner-2014-team/
-
-**Diamondbacks' Ketel Marte, Zac Gallen leave game against Phillies**\
-`Ketel suffered a left ankle contusion from Garrett Stubbs' slide into second base and Gallen left with an undisclosed injury.`\
-https://nytimes.com/athletic/5693641/2024/08/10/diamondbacks-ketel-marte-zac-gallen-injuries/
-
-**Ten observations from Packers' preseason win over Browns**\
-`Jordan Love and the offense struck quickly, Lukas Van Ness continued to make plays and wide receiver Grant DuBose impressed.`\
-https://nytimes.com/athletic/5693421/2024/08/10/packers-browns-preseason-observations/
 
