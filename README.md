@@ -2,13 +2,13 @@
 `By James Wagner and Jeré Longman`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/for-some-countries-the-wait-for-an-olympic-medal-goes-on-and-on-and-on-and-on
 
-**Here’s the latest on the closing ceremony.**\
-`By Andrew Keh`\
-https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/heres-the-latest-on-the-closing-ceremony
-
 **These were the most unforgettable moments from the Paris Olympics.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/these-were-the-most-unforgettable-moments-from-the-paris-olympics
+
+**Here’s the latest on the closing ceremony.**\
+`By Andrew Keh`\
+https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/heres-the-latest-on-the-closing-ceremony
 
 **U.S., China tie for most golds at Paris Olympics**\
 `Team USA topped the total medal count with 126 and China finished second with 91.`\
