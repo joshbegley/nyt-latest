@@ -1,3 +1,7 @@
+**Swim Towards the Shark**\
+`In a crisis, when all logic suggests that you get away, how will you respond?`\
+https://nytimes.com/2024/08/11/podcasts/swim-towards-the-shark-this-american-life-nyt-audio.html
+
 **How Close Are the Planet’s Climate Tipping Points?**\
 `Earth’s warming could trigger sweeping changes in the natural world that would be hard, if not impossible, to reverse.`\
 https://nytimes.com/interactive/2024/08/11/climate/earth-warming-climate-tipping-points.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5650431/2024/08/11/joao-felix-chelsea/
 **Trump Falsely Claims That the Crowds Seen at Harris Rallies Are Fake**\
 `The former president, in a series of social media posts, said that Vice President Kamala Harris had used A.I. technology to create images of fake crowds at her events.`\
 https://nytimes.com/2024/08/11/us/politics/trump-harris-crowds-ai.html
-
-**Broncos QB Bo Nix's mobility, poise on display in encouraging preseason debut**\
-`The rookie QB completed 15 of his final 19 passes and led the Broncos to four scores in five possessions. `\
-https://nytimes.com/athletic/5694648/2024/08/11/denver-broncos-bo-nix-preseason-debut/
 
