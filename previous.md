@@ -1,3 +1,7 @@
+**Fulham make £20m offer for Crystal Palace defender Andersen**\
+`Fulham have submitted a £20million offer for Crystal Palace defender Joachim Andersen.`\
+https://nytimes.com/athletic/5693917/2024/08/11/joachim-andersen-fulham-crystal-palace-bid/
+
 **Upgrading the catching position will be Jed Hoyer's top priority this winter**\
 `Heading into a critical offseason, the Cubs will look to get better at a position where they've been among the league's worst.`\
 https://nytimes.com/athletic/5693458/2024/08/11/cubs-jed-hoyer-catcher/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/11/crosswords/wordle-review-1150.html
 **The Connections Companion No. 428**\
 `Scroll down for hints and conversation about the puzzle for Monday, Aug. 12, 2024.`\
 https://nytimes.com/2024/08/11/crosswords/connections-companion-428.html
-
-**No perfect Olympics ending for Marta - but a silver medal 'rescue act' was enough**\
-`There was to be no moment of magic on the pitch in Saturday's final but the Brazilian's legacy is secured `\
-https://nytimes.com/athletic/5693651/2024/08/11/marta-brazil-uswnt-olympic-final-soccer/
 
