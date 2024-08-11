@@ -1,3 +1,7 @@
+**UNC women's soccer coach Anson Dorrance retires after 45 seasons**\
+`Dorrance, 73, led UNC to a record 22 national championships and ended his career with a 934-88-53 record.`\
+https://nytimes.com/athletic/5694620/2024/08/11/unc-womens-coach-anson-dorrance-retires/
+
 **The stuffed goat on Simone Biles’s bed in Paris commemorated her as the greatest gymnast ever.**\
 `By Juliet Macur`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/the-stuffed-goat-on-simone-biless-bed-in-paris-commemorated-her-as-the-greatest-gymnast-ever
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/katie-
 **‘Serenity Now!’ How ‘Seinfeld Night’ Became a New York Summer Tradition.**\
 `It’s a night that combines the zaniness of “Seinfeld,” a Coney Island freak show and a lower-level minor league baseball team with nothing to lose.`\
 https://nytimes.com/2024/08/11/arts/television/seinfeld-night-brooklyn-cyclones.html
-
-**Barcelona confirm Roberto exit**\
-`Barcelona have announced the departure of midfielder Sergi Roberto, ending his 18-year association with the club.`\
-https://nytimes.com/athletic/5694572/2024/08/11/sergi-roberto-barcelona-exit/
 
