@@ -1,3 +1,7 @@
+**Diamondbacks' Ketel Marte, Zac Gallen leave game against Phillies**\
+`Ketel suffered a left ankle contusion from Garrett Stubbs' slide into second base and Gallen left with an undisclosed injury.`\
+https://nytimes.com/athletic/5693641/2024/08/10/diamondbacks-ketel-marte-zac-gallen-injuries/
+
 **Ten observations from Packers' preseason win over Browns**\
 `Jordan Love and the offense struck quickly, Lukas Van Ness continued to make plays and wide receiver Grant DuBose impressed.`\
 https://nytimes.com/athletic/5693421/2024/08/10/packers-browns-preseason-observations/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5693419/2024/08/10/astros-yordan-alvarez-david-orti
 **Harris Hopes a New Playbook Will Neutralize G.O.P. Attacks on Immigration**\
 `The Democratic presidential nominee has been pummeled by Donald J. Trump and other Republicans on her immigration record. She is now trying an approach that Democrats say has worked before.`\
 https://nytimes.com/2024/08/10/us/politics/harris-trump-immigration.html
-
-**USWNT on goalkeeper Alyssa Naeher: 'We’re making her a little more mushy gushy'**\
-`The U.S. goalkeeper is known for her stoic exterior`\
-https://nytimes.com/athletic/5693260/2024/08/10/uswnt-olympics-alyssa-naeher/
 
