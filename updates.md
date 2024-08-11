@@ -1,3 +1,11 @@
+**The Olympics, a Triumph of Ambition, Lift France From Its Gloom**\
+`All sectors of society came together to achieve the nation’s dream for the Games. Success has shown that unity is possible, if often elusive.`\
+https://nytimes.com/2024/08/11/world/europe/olympics-paris-france-unity.html
+
+**Illustrated insights from the Paris Olympics**\
+`Because I married into a French-American family, I&#8217;ve been experiencing the 2024 Paris Games from two perspectives this month — both as an Olympic tourist and as a temporary Parisian local.`\
+https://nytimes.com/athletic/5689194/2024/08/11/illustrated-insights-from-the-paris-olympics-athlete-sightings-french-enthusiasm-and-more/
+
 **Sunday's MLB odds, best bets: Predictions for pitching matchups, props, playoffs and more**\
 `See pitching matchups, playoff projections, win projections and more for Sunday's MLB games.`\
 https://nytimes.com/athletic/5693244/2024/08/11/mlb-odds-best-bets-projections-august-11/
