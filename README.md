@@ -1,3 +1,7 @@
+**Giants WR Malik Nabers suffers ankle injury; OL Evan Neal returns from PUP**\
+`The Giants believe Nabers' injury is only a minor one. `\
+https://nytimes.com/athletic/5694399/2024/08/11/malik-nabers-new-york-giants-injury-evan-neal/
+
 **What we learned from Emma Hayes' victorious USWNT at the Paris Olympics**\
 `The early signs under the new manager could hardly be more encouraging — and she’s only just getting started`\
 https://nytimes.com/athletic/5693423/2024/08/11/uswnt-olympic-winners-takeaways-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/heres-
 **U.S., China tie for most golds at Paris Olympics**\
 `Team USA topped the total medal count with 126 and China finished second with 91.`\
 https://nytimes.com/athletic/5694378/2024/08/11/us-china-gold-medals-count-olympics/
-
-**Jordan Chiles Lost a Bronze Medal Because an Appeal Was Four Seconds Late**\
-`An inquiry by Chiles’s coach led judges to adjust her score and give her a medal. A court ruled the inquiry came too late. Now, the I.O.C. wants her bronze back.`\
-https://nytimes.com/2024/08/11/world/olympics/jordan-chiles-gymnastics-medal.html
 
