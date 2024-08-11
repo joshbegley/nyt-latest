@@ -1,3 +1,7 @@
+**'Everything I imagined, and more': Team USA's gold medal game seals NBA stars' legacies**\
+`"There's a sense of relief at the end, but it's more a sense of accomplishment ... knowing what we were able to do,” Steph Curry said.`\
+https://nytimes.com/athletic/5693635/2024/08/10/team-usa-gold-medal-game-nba-legacies/
+
 **Mets' evolving bullpen: How it shakes out with arms acquired last month and returning arms**\
 `Sending Alex Young down leaves the Mets with only Danny Young from the left side in the bullpen.`\
 https://nytimes.com/athletic/5693608/2024/08/10/mets-bullpen-evolving-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5693530/2024/08/10/raiders-vikings-aidan-oconnell-g
 **Browns stock report: Who's up, who's down following preseason loss to Packers?**\
 `We take a look at where Cleveland has excelled and where it's lacking after 11 training camp practices and one preseason game. `\
 https://nytimes.com/athletic/5693375/2024/08/10/browns-packers-preseason-stock-report/
-
-**Yankees notes: Austin Wells cleaning up at cleanup, Caitlin Clark meets Aaron Judge**\
-`Aaron Boone put Wells into the No. 4 spot on July 20. In 16 games since then, he's hit .344 (22-for-64) with 13 RBIs.`\
-https://nytimes.com/athletic/5693504/2024/08/10/yankees-austin-wells-cleanup-caitlin-clark-meets-aaron-judge/
 
