@@ -1,3 +1,11 @@
+**Chiefs' WR Brown hospitalized after injury**\
+`Brown, who suffered a shoulder injury on the first play of the preseason opener, would likely miss four to six weeks if he needs surgery.`\
+https://nytimes.com/athletic/5693670/2024/08/10/marquise-brown-injury-chiefs/
+
+**Logan Webb does his part as Giants pay tribute to Madison Bumgarner and the 2014 champions**\
+`Webb appreciated Bumgarner mentioning his durability: "If I can get props from that guy, I think I'm doing all right."`\
+https://nytimes.com/athletic/5693577/2024/08/10/sf-giants-logan-webb-madison-bumgarner-2014-team/
+
 **Diamondbacks' Ketel Marte, Zac Gallen leave game against Phillies**\
 `Ketel suffered a left ankle contusion from Garrett Stubbs' slide into second base and Gallen left with an undisclosed injury.`\
 https://nytimes.com/athletic/5693641/2024/08/10/diamondbacks-ketel-marte-zac-gallen-injuries/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5693504/2024/08/10/yankees-austin-wells-cleanup-cai
 **Bills-Bears: 5 takeaways from the preseason opener in Buffalo**\
 `Allen saw one quarter of action, while rookie receiver Keon Coleman got plenty of snaps with the first-team offense.`\
 https://nytimes.com/athletic/5693431/2024/08/10/bears-bills-josh-allen-keon-coleman/
-
-**'Very similar to David Ortiz': Astros' Yordan Alvarez homers twice as Red Sox lose**\
-`Alex Cora had high praise for Alvarez, who's batting .304 with 24 home runs: "Seems like he likes hitting here."`\
-https://nytimes.com/athletic/5693419/2024/08/10/astros-yordan-alvarez-david-ortiz/
-
-**Harris Hopes a New Playbook Will Neutralize G.O.P. Attacks on Immigration**\
-`The Democratic presidential nominee has been pummeled by Donald J. Trump and other Republicans on her immigration record. She is now trying an approach that Democrats say has worked before.`\
-https://nytimes.com/2024/08/10/us/politics/harris-trump-immigration.html
 

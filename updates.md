@@ -1,3 +1,11 @@
+**Chiefs' WR Brown hospitalized after injury**\
+`Brown, who suffered a shoulder injury on the first play of the preseason opener, would likely miss four to six weeks if he needs surgery.`\
+https://nytimes.com/athletic/5693670/2024/08/10/marquise-brown-injury-chiefs/
+
+**Logan Webb does his part as Giants pay tribute to Madison Bumgarner and the 2014 champions**\
+`Webb appreciated Bumgarner mentioning his durability: "If I can get props from that guy, I think I'm doing all right."`\
+https://nytimes.com/athletic/5693577/2024/08/10/sf-giants-logan-webb-madison-bumgarner-2014-team/
+
 **Diamondbacks' Ketel Marte, Zac Gallen leave game against Phillies**\
 `Ketel suffered a left ankle contusion from Garrett Stubbs' slide into second base and Gallen left with an undisclosed injury.`\
 https://nytimes.com/athletic/5693641/2024/08/10/diamondbacks-ketel-marte-zac-gallen-injuries/
