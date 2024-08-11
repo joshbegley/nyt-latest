@@ -1,3 +1,7 @@
+**Trotter: IOC shows little courage in handling of Jordan Chiles ruling**\
+`Lingering controversy could have been shut down had the organization followed the spirit of its mission and awarded multiple bronze medals.`\
+https://nytimes.com/athletic/5694660/2024/08/11/jordan-chiles-olympics-gymnastics-ioc-ana-barbosu/
+
 **Trump Falsely Claims That the Crowds Seen at Harris Rallies Are Fake**\
 `The former president, in a series of social media posts, said that Vice President Kamala Harris had used A.I. technology to create images of fake crowds at her events.`\
 https://nytimes.com/2024/08/11/us/politics/trump-harris-crowds-ai.html

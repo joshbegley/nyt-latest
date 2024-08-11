@@ -14,7 +14,7 @@ https://nytimes.com/2024/08/11/crosswords/daily-puzzle-2024-08-12.html
 `Real Madrid forward Vinicius Jr has turned down a lucrative offer to join the Saudi Pro League.`\
 https://nytimes.com/athletic/5694749/2024/08/11/vinicius-jr-saudi-arabia/
 
-**Trotter: IOC shows little courage in handling of Chiles ruling**\
+**Trotter: IOC shows little courage in handling of Jordan Chiles ruling**\
 `Lingering controversy could have been shut down had the organization followed the spirit of its mission and awarded multiple bronze medals.`\
 https://nytimes.com/athletic/5694660/2024/08/11/jordan-chiles-olympics-gymnastics-ioc-ana-barbosu/
 
