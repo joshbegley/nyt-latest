@@ -1,3 +1,7 @@
+**Browns stock report: Who's up, who's down following preseason loss to Packers?**\
+`We take a look at where Cleveland has excelled and where it's lacking after 11 training camp practices and one preseason game. `\
+https://nytimes.com/athletic/5693375/2024/08/10/browns-packers-preseason-stock-report/
+
 **Yankees notes: Austin Wells cleaning up at cleanup, Caitlin Clark meets Aaron Judge**\
 `Aaron Boone put Wells into the No. 4 spot on July 20. In 16 games since then, he's hit .344 (22-for-64) with 13 RBIs.`\
 https://nytimes.com/athletic/5693504/2024/08/10/yankees-austin-wells-cleanup-caitlin-clark-meets-aaron-judge/
