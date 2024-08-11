@@ -1,18 +1,10 @@
-**The 'post-Olympic blues': Why do so many competitors suffer an emotional comedown?**\
-`There is growing awareness of the emotional difficulties athletes face after achieving their goals. Here's how they are being helped `\
-https://nytimes.com/athletic/5650965/2024/08/11/post-olympic-blues-medal-depression/
-
 **Here’s the latest on the presidential race.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/08/11/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 
-**Live Election Updates: Biden to Give First Interview Since Leaving the Race**\
+**Live Election Updates: Biden Gives First Interview Since Leaving the Race**\
 `In a CBS interview airing Sunday morning, President Biden, 81, will acknowledge the challenge his age brought to his re-election effort.`\
 https://nytimes.com/live/2024/08/11/us/harris-trump-election
-
-**Jordan Mason, Ronnie Bell among 49ers who soared — and struggled — vs. Titans**\
-`It was a rough outing for cornerback Ambry Thomas, who had two mistackles against the Titans and who left the game with a broken forearm.`\
-https://nytimes.com/athletic/5693751/2024/08/11/49ers-titans-jordan-mason-ronnie-bell/
 
 **Ezi Magbegor leads Australia past Belgium for Olympic bronze in women's basketball**\
 `Australia beat Belgium for women's basketball bronze on Sunday behind 30 points and 13 rebounds from Ezi Magbegor.`\
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/5693458/2024/08/11/cubs-jed-hoyer-catcher/
 **Patriots 53-man roster projection: Where things stand after the preseason opener**\
 `Our first Patriots 53-man roster projection since the start of training camp has some tough calls at WR and a plethora of defensive backs.`\
 https://nytimes.com/athletic/5691638/2024/08/11/patriots-53-man-roster-projection-8/
+
+**To Save Conservatism From Itself, I Am Voting for Harris**\
+`If Trump loses, conservative Americans will have a chance to build something decent from the ruins of a party that was once a force for genuine good.`\
+https://nytimes.com/2024/08/11/opinion/harris-trump-conservatives-abortion.html
+
+**Biden Made Trump Bigger. Harris Makes Him Smaller.**\
+`Her campaign wants to be talked about and knows how to get people talking.`\
+https://nytimes.com/2024/08/11/opinion/kamala-harris-trump-attention.html
 

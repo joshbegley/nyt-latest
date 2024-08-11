@@ -1,3 +1,19 @@
+**The 'post-Olympic blues': Why do so many competitors suffer an emotional comedown?**\
+`There is growing awareness of the emotional difficulties athletes face after achieving their goals. Here's how they are being helped `\
+https://nytimes.com/athletic/5650965/2024/08/11/post-olympic-blues-medal-depression/
+
+**Here’s the latest on the presidential race.**\
+`By Peter Baker`\
+https://nytimes.com/live/2024/08/11/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Live Election Updates: Biden to Give First Interview Since Leaving the Race**\
+`In a CBS interview airing Sunday morning, President Biden, 81, will acknowledge the challenge his age brought to his re-election effort.`\
+https://nytimes.com/live/2024/08/11/us/harris-trump-election
+
+**Jordan Mason, Ronnie Bell among 49ers who soared — and struggled — vs. Titans**\
+`It was a rough outing for cornerback Ambry Thomas, who had two mistackles against the Titans and who left the game with a broken forearm.`\
+https://nytimes.com/athletic/5693751/2024/08/11/49ers-titans-jordan-mason-ronnie-bell/
+
 **Ezi Magbegor leads Australia past Belgium for Olympic bronze in women's basketball**\
 `Australia beat Belgium for women's basketball bronze on Sunday behind 30 points and 13 rebounds from Ezi Magbegor.`\
 https://nytimes.com/athletic/5694035/2024/08/11/australia-belgium-bronze-olympics-womens-basketball/
