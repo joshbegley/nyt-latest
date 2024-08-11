@@ -1,7 +1,3 @@
-**Five who impressed, 4 who struggled and one who made you think in the Bengals' preseason**\
-`Joe Burrow and Tee Higgins were superb in limited work, while there were major ups and downs for the talented rookie class.`\
-https://nytimes.com/athletic/5693780/2024/08/11/bengals-preseason-opener-5-who-impressed-4-who-struggled-and-one-who-made-you-think/
-
 **Easton Stick and the Chargers offense sputter in Jim Harbaugh's preseason debut**\
 `Stick, the Chargers' backup QB, completed just 5 of 13 passes for 31 yards and an interception in the 16-3 loss.`\
 https://nytimes.com/athletic/5693844/2024/08/11/chargers-seahawks-jim-harbaugh-preseason-debut/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5693044/2024/08/11/casemiro-manchester-united-ten-h
 **Oscar Bobb has an opportunity to play regularly at City - and the talent to thrive**\
 `The young Norwegian winger knows City's style inside out now and has a chance to make the right wing berth his own over the next few weeks`\
 https://nytimes.com/athletic/5692936/2024/08/11/bobb-manchester-city-guardiola-savinho/
+
+**Why European soccer headed to the U.S. for preseason - and what comes next?**\
+`Premier League, La Liga and Serie A clubs have rushed to the States for lucrative preseason tours in recent years, but is it sustainable?`\
+https://nytimes.com/athletic/5690346/2024/08/11/manchester-united-pre-season-european-soccer/
 
