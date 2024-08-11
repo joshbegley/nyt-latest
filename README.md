@@ -1,3 +1,7 @@
+**Jordan Chiles Lost a Bronze. She’s Not the First American Affected by a Medal Change.**\
+`A court invalidated the gymnast’s win. Here are other notable cases of Americans who lost (or gained) a medal after an event.`\
+https://nytimes.com/2024/08/11/us/jordan-chiles-medal-other-athletes-stripped.html
+
 **Merci, Paris: We needed these Olympics**\
 `In the end, against what so many thought Paris 2024 would or wouldn't be, these Olympics delivered on the largest scale.`\
 https://nytimes.com/athletic/5694703/2024/08/11/2024-paris-olympics-merci-thank-you/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/11/crosswords/daily-puzzle-2024-08-12.html
 **Vinicius Jr rejects lucrative offer to join Saudi Pro League**\
 `Real Madrid forward Vinicius Jr has turned down a lucrative offer to join the Saudi Pro League.`\
 https://nytimes.com/athletic/5694749/2024/08/11/vinicius-jr-saudi-arabia/
-
-**Trotter: IOC's handling of the Jordan Chiles ruling is disturbing and shameful**\
-`Lingering controversy could have been shut down had the organization followed the spirit of its mission and awarded multiple bronze medals.`\
-https://nytimes.com/athletic/5694660/2024/08/11/jordan-chiles-olympics-gymnastics-ioc-ana-barbosu/
 
