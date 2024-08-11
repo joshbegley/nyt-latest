@@ -1,3 +1,11 @@
+**Titans takeaways vs. 49ers: Calvin Ridley's burst, Will Levis' pop, JC Latham's 'C'**\
+`Preseason? When Calvin Ridley took off with a short pass from Will Levis for a 22-yard gain early vs. the 49ers, the opponent didn't matter.`\
+https://nytimes.com/athletic/5693362/2024/08/10/tennessee-titans-takeaways-49ers-preseason/
+
+**Simeon Woods Richardson's career-best outing not enough as Guardians win pitchers' duel**\
+`Plus notes on how Joe Ryan is reacting to his injury news, as well as the statuses of Brooks Lee and Carlos Correa.`\
+https://nytimes.com/athletic/5693671/2024/08/10/twins-simeon-woods-richardsons-guardians/
+
 **'Everything I imagined, and more': Team USA's gold medal game seals NBA stars' legacies**\
 `"There's a sense of relief at the end, but it's more a sense of accomplishment ... knowing what we were able to do,” Steph Curry said.`\
 https://nytimes.com/athletic/5693635/2024/08/10/team-usa-gold-medal-game-nba-legacies/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5693575/2024/08/10/vikings-raiders-jj-mccarthy-pres
 **Jackson Merrill, Padres come back again and something special is happening**\
 `The Padres are riding an intoxicating wave. It's not just that they're winning, but how they keep winning.`\
 https://nytimes.com/athletic/5693555/2024/08/10/jackson-merrill-padres-comeback/
-
-**Aidan O'Connell, Gardner Minshew play well in Raiders' preseason loss to Vikings**\
-`It's been a rough start to training camp for the Raiders' quarterback battle, but both contenders look good in Saturday's preseason opener.`\
-https://nytimes.com/athletic/5693530/2024/08/10/raiders-vikings-aidan-oconnell-gardner-minshew/
-
-**Browns stock report: Who's up, who's down following preseason loss to Packers?**\
-`We take a look at where Cleveland has excelled and where it's lacking after 11 training camp practices and one preseason game. `\
-https://nytimes.com/athletic/5693375/2024/08/10/browns-packers-preseason-stock-report/
 
