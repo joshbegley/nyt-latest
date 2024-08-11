@@ -1,3 +1,15 @@
+**Boxer Khelif files complaint over online harassment**\
+`A lawyer for Algerian boxer Imane Khelif says the gold medal-winning boxer has asked prosecutors in Paris to look into online harassment she faced during the Olympics about her gender and presence at the Games.`\
+https://nytimes.com/athletic/5694278/2024/08/11/imane-khelif-olympics-online-harassment/
+
+**The Briefing: Chelsea 1 Inter 1 - Is this Maresca's plan for City? What now for Chilwell?**\
+`With the Premier League season just days away, we take a look at Chelsea's final pre-season game against Inter Milan.`\
+https://nytimes.com/athletic/5692465/2024/08/11/chelsea-inter-milan-maresca-chilwell/
+
+**What ‘It Ends With Us’ Says About the Blake Lively Brand**\
+`The images onscreen are informed by the actress’s offscreen businesses, making the movie a fascinating study in the uses of star power.`\
+https://nytimes.com/2024/08/11/movies/it-ends-with-us-blake-lively-brand.html
+
 **U.S. wins gold in nail-biter vs. France**\
 `France's Gabby Williams' shot was a 2-pointer as time expired — putting the final score at Team USA 67-France 66.`\
 https://nytimes.com/athletic/5694154/2024/08/11/olympics-womens-basketball-usa-gold-win-wilson/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/11/dining/blueberry-recipes.html
 **Chelsea confirm Neto signing from Wolves**\
 `Chelsea have completed the signing of Pedro Neto from Wolverhampton Wanderers.`\
 https://nytimes.com/athletic/5691359/2024/08/11/chelsea-pedro-neto-wolves-transfer/
-
-**Biden Says He Dropped Out to Avoid Becoming a ‘Distraction’ for Democrats**\
-`In his first interview since ending his campaign, the president said it was imperative for the party to beat Donald J. Trump and accused him of being an ally of the Ku Klux Klan.`\
-https://nytimes.com/2024/08/11/us/politics/biden-interview-cbs-trump.html
-
-**What Will It Take for Hollywood to Grow Up?**\
-`Even R-rated movies are childish now.`\
-https://nytimes.com/2024/08/11/opinion/deadpool-wolverine-audience-rating.html
-
-**With Marathon Gold, Sifan Hassan Tests the Limits of Endurance**\
-`The Dutch Olympian added a victory in the longest race of the Games to her bronze medals in the 5,000 and 10,000 meters. “What was I thinking?” she said afterward.`\
-https://nytimes.com/2024/08/11/world/olympics/sifan-hassan-marathon-olympics.html
 
