@@ -1,3 +1,7 @@
+**Red Sox promote top three prospects to Triple A, but James Paxton injury strains pitch depth**\
+`It was a day of mixed emotions for the Red Sox, as they suffered a key injury to a thin pitching staff but saw three prospects move up.`\
+https://nytimes.com/athletic/5694879/2024/08/11/red-sox-james-paxton-injury-prospect-promotions/
+
 **Jordan Chiles Lost a Bronze. She’s Not the First American Affected by a Medal Change.**\
 `A court invalidated the gymnast’s win. Here are other notable cases of Americans who lost (or gained) a medal after an event.`\
 https://nytimes.com/2024/08/11/us/jordan-chiles-medal-other-athletes-stripped.html
