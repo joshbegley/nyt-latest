@@ -1,3 +1,7 @@
+**The Briefing: Wrexham 3 Wycombe 2 - Hollywood in town, a hit in the States and an underrated strike force?**\
+`Wrexham returned to League One after a 19-year absence with Ryan Reynolds and Rob McElhenney watching on and millions tuning in from the US`\
+https://nytimes.com/athletic/5690939/2024/08/11/wrexham-3-wycombe-2-hollywood-in-town-a-hit-in-the-u-s-and-an-underrated-strikeforce/
+
 **What Will It Take for Hollywood to Grow Up?**\
 `Even R-rated movies are childish now.`\
 https://nytimes.com/2024/08/11/opinion/deadpool-wolverine-audience-rating.html
