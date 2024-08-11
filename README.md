@@ -1,3 +1,15 @@
+**Scofflaws and Other Hazards on the Roads**\
+`Readers react to articles about the rise in traffic deaths. Also: Neo-Nazis in Nashville; JD Vance and the rule of law; a ban on masks.`\
+https://nytimes.com/2024/08/11/opinion/traffic-deaths.html
+
+**Pedro Neto to Chelsea: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Pedro Neto's move to Chelsea `\
+https://nytimes.com/athletic/5691509/2024/08/11/pedro-neto-chelsea-the-athletic-500-transfer-rating/
+
+**Blueberry, Almond and Lemon, a Truly Great Trio**\
+`Yotam Ottolenghi’s iced, berry-dotted loaf cake is a summertime New York Times Cooking classic.`\
+https://nytimes.com/2024/08/11/dining/blueberry-recipes.html
+
 **Chelsea confirm Neto signing from Wolves**\
 `Chelsea have completed the signing of Pedro Neto from Wolverhampton Wanderers.`\
 https://nytimes.com/athletic/5691359/2024/08/11/chelsea-pedro-neto-wolves-transfer/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/08/11/us/harris-trump-election/heres-the-latest-on
 **Live Election Updates: Biden Gives First Interview Since Leaving Race**\
 `In a CBS interview that aired Sunday morning, President Biden, 81, acknowledged that his age had been a challenge in his re-election effort. He called Donald Trump “a genuine danger to American security.”`\
 https://nytimes.com/live/2024/08/11/us/harris-trump-election
-
-**Jordan Mason, Ronnie Bell among 49ers who soared — and struggled — vs. Titans**\
-`It was a rough outing for cornerback Ambry Thomas, who had two mistackles against the Titans and who left the game with a broken forearm.`\
-https://nytimes.com/athletic/5693751/2024/08/11/49ers-titans-jordan-mason-ronnie-bell/
-
-**Ezi Magbegor leads Australia past Belgium for Olympic bronze in women's basketball**\
-`Australia beat Belgium for women's basketball bronze on Sunday behind 30 points and 13 rebounds from Ezi Magbegor.`\
-https://nytimes.com/athletic/5694035/2024/08/11/australia-belgium-bronze-olympics-womens-basketball/
-
-**Schools Have a Tech Problem**\
-`We explore some of the tech challenges faced by educators.`\
-https://nytimes.com/2024/08/11/briefing/techonology-schools.html
 
