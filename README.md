@@ -1,3 +1,11 @@
+**Disney Details Vast Theme Park Expansion Projects**\
+`The company, which has recently seen softening visitor demand, will spend billions to build new rides and expand its cruise ship fleet to 13 from nine.`\
+https://nytimes.com/2024/08/11/business/disney-parks-new-rides.html
+
+**Too Much of Our Seafood Has a Dark Secret**\
+`We use the world’s fish as if it was a limitless line of credit. But this credit is running out.`\
+https://nytimes.com/2024/08/11/opinion/sustainable-seafood-sardines-anchovies.html
+
 **Seahawks' defense off to promising start under Mike Macdonald, dominating opener**\
 `It's only the preseason, but the Seahawks squeezed the life out of the Chargers' offense, and their first-round rookie impressed.`\
 https://nytimes.com/athletic/5693760/2024/08/11/seahawks-chargers-mike-macdonald-byron-murphy/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5692457/2024/08/11/wayne-rooney-plymouth-manager-ch
 **Vaseline, hairspray, shaving foam... What's the best substance to put on goalkeeper gloves?**\
 `Manchester United's Andre Onana favours Vaseline, but other options are available - we asked our goalkeeping expert to test them out`\
 https://nytimes.com/athletic/5618674/2024/08/11/vaseline-hairspray-shaving-foam-whats-the-best-substance-to-put-on-goalkeeper-gloves/
-
-**The Olympics, a Triumph of Ambition, Lift France From Its Gloom**\
-`All sectors of society came together to achieve the nation’s dream for the Games. Success has shown that unity is possible, if often elusive.`\
-https://nytimes.com/2024/08/11/world/europe/olympics-paris-france-unity.html
-
-**Illustrated insights from the Paris Olympics**\
-`Because I married into a French-American family, I&#8217;ve been experiencing the 2024 Paris Games from two perspectives this month — both as an Olympic tourist and as a temporary Parisian local.`\
-https://nytimes.com/athletic/5689194/2024/08/11/illustrated-insights-from-the-paris-olympics-athlete-sightings-french-enthusiasm-and-more/
 
