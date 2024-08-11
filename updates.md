@@ -1,3 +1,7 @@
+**A Norwegian muffin man, a French pole-vaulter and an American rugby player won the internet.**\
+`By Annie Aguiar`\
+https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/a-norwegian-muffin-man-a-french-pole-vaulter-and-an-american-rugby-player-won-the-internet
+
 **For Brittney Griner, a gold-medal Olympic run brings a gratitude for freedom**\
 `After her detainment in Russia, Griner's Olympic win was emotional.`\
 https://nytimes.com/athletic/5694533/2024/08/11/brittney-griner-olympics-womens-basketball-gold/

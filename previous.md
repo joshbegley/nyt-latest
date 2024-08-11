@@ -1,3 +1,7 @@
+**A Norwegian muffin man, a French pole-vaulter and an American rugby player won the internet.**\
+`By Annie Aguiar`\
+https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/a-norwegian-muffin-man-a-french-pole-vaulter-and-an-american-rugby-player-won-the-internet
+
 **Before exceeding France’s expectations, Léon Marchand embraced them.**\
 `By Jenny Vrentas`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/before-exceeding-frances-expectations-leon-marchand-embraced-them
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/see-th
 **What to Know About the Democratic National Convention**\
 `Vice President Kamala Harris and her running mate, Gov. Tim Walz of Minnesota, will be the stars in Chicago.`\
 https://nytimes.com/2024/08/11/us/politics/dnc-when-where-who.html
-
-**Olympic surfing came to a ‘poisoned’ paradise.**\
-`By Hannah Beech and Adam Ferguson`\
-https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/olympic-surfing-came-to-a-poisoned-paradise
 
