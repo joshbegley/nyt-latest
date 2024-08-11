@@ -1,3 +1,11 @@
+**Ten observations from Packers' preseason win over Browns**\
+`Jordan Love and the offense struck quickly, Lukas Van Ness continued to make plays and wide receiver Grant DuBose impressed.`\
+https://nytimes.com/athletic/5693421/2024/08/10/packers-browns-preseason-observations/
+
+**J.J. McCarthy’s debut and 9 more Vikings thoughts from preseason win over Raiders**\
+`Minnesota's rookie quarterback bounced back from an early interception to throw two touchdowns. Coach Kevin O'Connell was impressed.`\
+https://nytimes.com/athletic/5693575/2024/08/10/vikings-raiders-jj-mccarthy-preseason/
+
 **Jackson Merrill, Padres come back again and something special is happening**\
 `The Padres are riding an intoxicating wave. It's not just that they're winning, but how they keep winning.`\
 https://nytimes.com/athletic/5693555/2024/08/10/jackson-merrill-padres-comeback/
