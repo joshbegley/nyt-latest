@@ -1,3 +1,7 @@
+**Olympians can list their injuries as readily as their achievements.**\
+`By James Wagner`\
+https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/olympians-can-list-their-injuries-as-readily-as-their-achievements
+
 **A Norwegian muffin man, a French pole-vaulter and an American rugby player won the internet.**\
 `By Annie Aguiar`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/a-norwegian-muffin-man-a-french-pole-vaulter-and-an-american-rugby-player-won-the-internet

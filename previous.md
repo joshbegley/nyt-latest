@@ -1,3 +1,7 @@
+**Olympians can list their injuries as readily as their achievements.**\
+`By James Wagner`\
+https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/olympians-can-list-their-injuries-as-readily-as-their-achievements
+
 **A Norwegian muffin man, a French pole-vaulter and an American rugby player won the internet.**\
 `By Annie Aguiar`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/a-norwegian-muffin-man-a-french-pole-vaulter-and-an-american-rugby-player-won-the-internet
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/team-b
 **See the lasting images from Paris.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/see-the-lasting-images-from-paris
-
-**What to Know About the Democratic National Convention**\
-`Vice President Kamala Harris and her running mate, Gov. Tim Walz of Minnesota, will be the stars in Chicago.`\
-https://nytimes.com/2024/08/11/us/politics/dnc-when-where-who.html
 
