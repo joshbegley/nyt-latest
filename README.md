@@ -1,3 +1,7 @@
+**The Sunday Read: ‘The Woman Who Could Smell Parkinson’s’**\
+`She first noticed the scent on her husband. Now her abilities are helping unlock new research in early disease detection.`\
+https://nytimes.com/2024/08/11/podcasts/the-daily/parkinsons-diagnosis-smell.html
+
 **Giants WR Malik Nabers suffers ankle injury; OL Evan Neal returns from PUP**\
 `The Giants believe Nabers' injury is only a minor one. `\
 https://nytimes.com/athletic/5694399/2024/08/11/malik-nabers-new-york-giants-injury-evan-neal/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/these-
 **Here’s the latest on the closing ceremony.**\
 `By Andrew Keh`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/heres-the-latest-on-the-closing-ceremony
-
-**U.S., China tie for most golds at Paris Olympics**\
-`Team USA topped the total medal count with 126 and China finished second with 91.`\
-https://nytimes.com/athletic/5694378/2024/08/11/us-china-gold-medals-count-olympics/
 
