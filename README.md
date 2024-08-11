@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5694320/2024/08/11/tomiyasu-injury-arsenal/
 https://nytimes.com/athletic/5694278/2024/08/11/imane-khelif-olympics-online-harassment/
 
 **The Briefing: Chelsea 1 Inter 1 - Is this Maresca's plan for City? What now for Chilwell?**\
-`With the Premier League season just days away, we take a look at Chelsea's final pre-season game against Inter Milan.`\
+`With the Premier League season just days away, we analyse Chelsea's final pre-season game against Inter Milan`\
 https://nytimes.com/athletic/5692465/2024/08/11/chelsea-inter-milan-maresca-chilwell/
 
 **What ‘It Ends With Us’ Says About the Blake Lively Brand**\
