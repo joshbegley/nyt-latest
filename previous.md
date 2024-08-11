@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5694399/2024/08/11/malik-nabers-new-york-giants-inj
 https://nytimes.com/athletic/5693423/2024/08/11/uswnt-olympic-winners-takeaways-analysis/
 
 **The Briefing: Liverpool vs Sevilla and Las Palmas - What did we learn from two games in one day?**\
-`Liverpool played two pre-season games in one day before the Premier League kick-off next weekend - here's what we learnt.`\
+`Liverpool played two pre-season games in one day before the Premier League kick-off next weekend — here's what we learned`\
 https://nytimes.com/athletic/5692463/2024/08/11/liverpool-sevilla-las-palmas-slot/
 
 **JD Vance Repeats ‘Anti-Family’ Criticism of Democrats on Sunday Morning News Show Tour**\

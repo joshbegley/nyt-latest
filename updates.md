@@ -1,3 +1,7 @@
+**The Briefing: Liverpool vs Sevilla and Las Palmas - What did we learn from two games in one day?**\
+`Liverpool played two pre-season games in one day before the Premier League kick-off next weekend — here's what we learned`\
+https://nytimes.com/athletic/5692463/2024/08/11/liverpool-sevilla-las-palmas-slot/
+
 **In staid Paris, the sounds from the Olympic venues were loud enough to wake Napoleon.**\
 `By Rory Smith and Ségolène Le Stradic`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/in-staid-paris-the-sounds-from-the-olympic-venues-were-loud-enough-to-wake-napoleon
