@@ -1,3 +1,7 @@
+**Olympic surfing came to a ‘poisoned’ paradise.**\
+`By Hannah Beech and Adam Ferguson`\
+https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/olympic-surfing-came-to-a-poisoned-paradise
+
 **In staid Paris, the sounds from the Olympic venues were loud enough to wake Napoleon.**\
 `By Rory Smith and Ségolène Le Stradic`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/in-staid-paris-the-sounds-from-the-olympic-venues-were-loud-enough-to-wake-napoleon
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/11/us/politics/jd-vance-trump-harris-democrats.html
 **Unbowed by rain and arson attacks, the opening ceremony unfolded as a party on the Seine.**\
 `By Roger Cohen`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/unbowed-by-rain-and-arson-attacks-the-opening-ceremony-unfolded-as-a-party-on-the-seine
-
-**McDowell suspended for violating LIV Golf anti-doping policy**\
-`Graeme McDowell has been suspended by LIV Golf after violating the organisation&#8217;s anti-doping policy.`\
-https://nytimes.com/athletic/5694443/2024/08/11/graeme-mcdowell-suspension-liv-golf/
 
