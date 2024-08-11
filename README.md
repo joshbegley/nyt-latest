@@ -1,3 +1,7 @@
+**Ezi Magbegor leads Australia past Belgium for Olympic bronze in women's basketball**\
+`Australia beat Belgium for women's basketball bronze on Sunday behind 30 points and 13 rebounds from Ezi Magbegor.`\
+https://nytimes.com/athletic/5694035/2024/08/11/australia-belgium-bronze-olympics-womens-basketball/
+
 **Schools Have a Tech Problem**\
 `We explore some of the tech challenges faced by educators.`\
 https://nytimes.com/2024/08/11/briefing/techonology-schools.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5693488/2024/08/11/olympics-best-photos-paris-games
 **How Kamala Harris Is Already Changing the Face of Presidential Power**\
 `She has a unique challenge about what her race and gender mean together, which could reshape how Americans think about presidential power.`\
 https://nytimes.com/2024/08/11/opinion/kamala-harris-candidate-identity.html
-
-**Katie Couric: Network Newscasts Need to Better Reflect America**\
-`In a year when America may see its first female president, we can’t have network newscasts that only feature male anchors.`\
-https://nytimes.com/2024/08/11/opinion/katie-couric-network-anchors-women.html
 
