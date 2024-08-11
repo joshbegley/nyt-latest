@@ -1,3 +1,7 @@
+**U.S. wins gold in nail-biter vs. France**\
+`France's Gabby Williams' shot was a 2-pointer as time expired — putting the final score at Team USA 67-France 66.`\
+https://nytimes.com/athletic/5694154/2024/08/11/olympics-womens-basketball-usa-gold-win-wilson/
+
 **Olympic Marathon Course Lets Amateurs Inside the Ropes**\
 `A public marathon and a series of overnight 10Ks offered recreational runners a chance to feel closer to the Games.`\
 https://nytimes.com/2024/08/11/world/olympics/olympics-marathon-for-everyone.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/11/opinion/deadpool-wolverine-audience-rating.html
 **With Marathon Gold, Sifan Hassan Tests the Limits of Endurance**\
 `The Dutch Olympian added a victory in the longest race of the Games to her bronze medals in the 5,000 and 10,000 meters. “What was I thinking?” she said afterward.`\
 https://nytimes.com/2024/08/11/world/olympics/sifan-hassan-marathon-olympics.html
-
-**The 'post-Olympic blues': Why do so many competitors suffer an emotional comedown?**\
-`There is growing awareness of the emotional difficulties athletes face after achieving their goals. Here's how they are being helped `\
-https://nytimes.com/athletic/5650965/2024/08/11/post-olympic-blues-medal-depression/
 
