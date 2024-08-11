@@ -1,3 +1,7 @@
+**What we learned during the second week of USC training camp**\
+`Improved chemistry, the battle at right guard, a new scholarship wideout plus USC's quarterback recruiting dilemma. `\
+https://nytimes.com/athletic/5693267/2024/08/11/usc-football-training-camp-takeaways-week-2/
+
 **‘It Ends With Us,’ a Romance Based on a Best Seller, Soars at the Box Office**\
 `The film, which cost $25 million to make, is on track to earn at least $45 million in North America on its opening weekend, analysts say.`\
 https://nytimes.com/2024/08/11/business/media/it-ends-with-us-a-romance-based-on-a-best-seller-soars-at-the-box-office.html
