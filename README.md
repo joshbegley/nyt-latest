@@ -1,3 +1,7 @@
+**Jackson Merrill and the Padres come back again and something special is happening**\
+`The Padres are riding an intoxicating wave. It's not just that they're winning, but how they keep winning.`\
+https://nytimes.com/athletic/5693555/2024/08/10/jackson-merrill-padres-comeback/
+
 **Aidan O'Connell, Gardner Minshew play well in Raiders' preseason loss to Vikings**\
 `It's been a rough start to training camp for the Raiders' quarterback battle, but both contenders look good in Saturday's preseason opener.`\
 https://nytimes.com/athletic/5693530/2024/08/10/raiders-vikings-aidan-oconnell-gardner-minshew/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5693309/2024/08/10/caleb-williams-chicago-bears-pre
 **Israel Criticized After Strike Kills Scores in Gaza**\
 `Israeli officials defended the attack on a former school compound, saying Hamas was using it as a base for military operations in Gaza City.`\
 https://nytimes.com/2024/08/10/world/middleeast/israel-gaza-war-strike-school.html
-
-**USWNT overcomes a year of change to win Olympic gold again: 'I'm just in awe'**\
-`The U.S. bounced back from its World Cup loss to secure gold a year later`\
-https://nytimes.com/athletic/5693321/2024/08/10/uswnt-olympic-gold-journey/
 
