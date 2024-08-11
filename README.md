@@ -1,3 +1,7 @@
+**Bob Costas, Al Michaels appear on NBC's Olympics broadcast**\
+`The famed sports announcers starred on NBC's Olympic television broadcasts for years.`\
+https://nytimes.com/athletic/5673455/2024/08/11/bob-costas-al-michaels-nbc-olympics/
+
 **As the Paris Games come to an end, Los Angeles enters the Olympic batter's box**\
 `All eyes turn to Los Angeles, host of the 2028 Olympics. Less than four years out, there's still plenty of work to do.`\
 https://nytimes.com/athletic/5692945/2024/08/11/los-angeles-2028-olympics-paris/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/11/movies/it-ends-with-us-blake-lively-brand.html
 **U.S. wins gold in nail-biter vs. France**\
 `The U.S. won 67-66 after France's Gabby Williams shot a 2-pointer as time expired.`\
 https://nytimes.com/athletic/5694154/2024/08/11/olympics-womens-basketball-usa-gold-win-wilson/
-
-**Olympic Marathon Course Lets Amateurs Inside the Ropes**\
-`A public marathon and a series of overnight 10Ks offered recreational runners a chance to feel closer to the Games.`\
-https://nytimes.com/2024/08/11/world/olympics/olympics-marathon-for-everyone.html
 

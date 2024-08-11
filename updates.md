@@ -1,3 +1,11 @@
+**As the Paris Games come to an end, Los Angeles enters the Olympic batter's box**\
+`All eyes turn to Los Angeles, host of the 2028 Olympics. Less than four years out, there's still plenty of work to do.`\
+https://nytimes.com/athletic/5692945/2024/08/11/los-angeles-2028-olympics-paris/
+
+**Team USA's closing ceremony racing outfits, critiqued by a firesuit design expert**\
+`Team USA's closing ceremony outfits draw inspiration from the world of auto racing. Here's what a Toyota firesuit designer thinks of them.`\
+https://nytimes.com/athletic/5598075/2024/08/11/team-usa-closing-ceremony-outfit-nascar-design/
+
 **Man Who Attacked Muslim Postal Carrier Is Sentenced to 37 Months in Prison**\
 `Kenneth Pinkney, of Fort Lauderdale, Fla., pleaded guilty to a hate crime in assaulting the carrier, who was wearing a hijab as she delivered the mail in October.`\
 https://nytimes.com/2024/08/11/us/florida-man-postal-carrier-hijab.html
