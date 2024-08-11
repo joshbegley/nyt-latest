@@ -1,3 +1,11 @@
+**What we learned from Emma Hayes' victorious USWNT at the Paris Olympics**\
+`The early signs under the new manager could hardly be more encouraging — and she’s only just getting started`\
+https://nytimes.com/athletic/5693423/2024/08/11/uswnt-olympic-winners-takeaways-analysis/
+
+**The Briefing: Liverpool vs Sevilla and Las Palmas - What did we learn from two games in one day?**\
+`Liverpool played two pre-season games in one day before the Premier League kick-off next weekend - here's what we learnt.`\
+https://nytimes.com/athletic/5692463/2024/08/11/liverpool-sevilla-las-palmas-slot/
+
 **JD Vance Repeats ‘Anti-Family’ Criticism of Democrats on Sunday Morning News Show Tour**\
 `The Republican vice-presidential nominee also defended Donald Trump’s abortion policies.`\
 https://nytimes.com/2024/08/11/us/politics/jd-vance-trump-harris-democrats.html
