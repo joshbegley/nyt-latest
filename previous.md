@@ -1,3 +1,7 @@
+**Was the Olympic flame actually a flame?**\
+`By Andrew Keh`\
+https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/was-the-olympic-flame-actually-a-flame
+
 **Team behind opening ceremony combs closing event to make sure there’s ‘no possible misinterpretation.’**\
 `By Catherine Porter`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/team-behind-opening-ceremony-combs-closing-event-to-make-sure-theres-no-possible-misinterpretation
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/11/podcasts/the-daily/parkinsons-diagnosis-smell.htm
 **Giants' Nabers suffers ankle injury; Neal returns from PUP**\
 `Rookie WR Malik Nabers left Sunday's practice early with what the team believes to be a minor ankle sprain.`\
 https://nytimes.com/athletic/5694399/2024/08/11/malik-nabers-new-york-giants-injury-evan-neal/
-
-**What we learned from Emma Hayes' victorious USWNT at the Paris Olympics**\
-`The early signs under the new manager could hardly be more encouraging — and she’s only just getting started`\
-https://nytimes.com/athletic/5693423/2024/08/11/uswnt-olympic-winners-takeaways-analysis/
 

@@ -1,3 +1,7 @@
+**Was the Olympic flame actually a flame?**\
+`By Andrew Keh`\
+https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/was-the-olympic-flame-actually-a-flame
+
 **Team behind opening ceremony combs closing event to make sure there’s ‘no possible misinterpretation.’**\
 `By Catherine Porter`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/team-behind-opening-ceremony-combs-closing-event-to-make-sure-theres-no-possible-misinterpretation
