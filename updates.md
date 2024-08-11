@@ -1,3 +1,7 @@
+**UNC women's soccer coach Anson Dorrance retires after 45 seasons**\
+`Dorrance, 73, led UNC to a record 22 national championships and ended his career with a 934-88-53 record.`\
+https://nytimes.com/athletic/5694620/2024/08/11/unc-womens-coach-anson-dorrance-retires/
+
 **The stuffed goat on Simone Biles’s bed in Paris commemorated her as the greatest gymnast ever.**\
 `By Juliet Macur`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/the-stuffed-goat-on-simone-biless-bed-in-paris-commemorated-her-as-the-greatest-gymnast-ever

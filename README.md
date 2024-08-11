@@ -1,3 +1,7 @@
+**Women marathoners receive medals on the big stage of the closing ceremony.**\
+`By Talya Minsberg`\
+https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/women-marathoners-receive-medals-on-the-big-stage-of-the-closing-ceremony
+
 **UNC women's soccer coach Anson Dorrance retires after 45 seasons**\
 `Dorrance, 73, led UNC to a record 22 national championships and ended his career with a 934-88-53 record.`\
 https://nytimes.com/athletic/5694620/2024/08/11/unc-womens-coach-anson-dorrance-retires/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5694533/2024/08/11/brittney-griner-olympics-womens-
 **Katie Ledecky built her legacy medal by medal.**\
 `By Weiyi Cai, Jasmine C. Lee, Bedel Saget, Jenny Vrentas, Joe Ward, Jeremy White and Ashley Wu`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/katie-ledecky-built-her-legacy-medal-by-medal
-
-**‘Serenity Now!’ How ‘Seinfeld Night’ Became a New York Summer Tradition.**\
-`It’s a night that combines the zaniness of “Seinfeld,” a Coney Island freak show and a lower-level minor league baseball team with nothing to lose.`\
-https://nytimes.com/2024/08/11/arts/television/seinfeld-night-brooklyn-cyclones.html
 
