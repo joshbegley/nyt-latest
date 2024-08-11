@@ -14,8 +14,8 @@ https://nytimes.com/athletic/5650965/2024/08/11/post-olympic-blues-medal-depress
 `By Peter Baker`\
 https://nytimes.com/live/2024/08/11/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 
-**Live Election Updates: Biden Gives First Interview Since Leaving the Race**\
-`In a CBS interview airing Sunday morning, President Biden, 81, will acknowledge the challenge his age brought to his re-election effort.`\
+**Live Election Updates: Biden Gives First Interview Since Leaving Race**\
+`In a CBS interview airing Sunday morning, President Biden, 81, acknowledged that his age had been a challenge in his re-election effort. He called Donald Trump “a genuine danger to American security.”`\
 https://nytimes.com/live/2024/08/11/us/harris-trump-election
 
 **Jordan Mason, Ronnie Bell among 49ers who soared — and struggled — vs. Titans**\

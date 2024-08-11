@@ -1,3 +1,7 @@
+**Live Election Updates: Biden Gives First Interview Since Leaving Race**\
+`In a CBS interview airing Sunday morning, President Biden, 81, acknowledged that his age had been a challenge in his re-election effort. He called Donald Trump “a genuine danger to American security.”`\
+https://nytimes.com/live/2024/08/11/us/harris-trump-election
+
 **The Briefing: Wrexham 3 Wycombe 2 - Hollywood in town, a hit in the States and an underrated strike force?**\
 `Wrexham returned to League One after a 19-year absence with Ryan Reynolds and Rob McElhenney watching on and millions tuning in from the US`\
 https://nytimes.com/athletic/5690939/2024/08/11/wrexham-3-wycombe-2-hollywood-in-town-a-hit-in-the-u-s-and-an-underrated-strikeforce/
