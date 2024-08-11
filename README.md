@@ -1,5 +1,9 @@
+**U.S.-France most watched men's basketball gold medal game since 1996**\
+`Team USA earned its fifth-straight gold medal in a 98-87 victory over France.`\
+https://nytimes.com/athletic/5694751/2024/08/11/usa-france-basketball-olympics-viewership/
+
 **Omorodion's move to Chelsea collapses**\
-`Chelsea&#8217;s proposed move for Atletico Madrid forward Samu Omorodion has collapsed over issues on the contract terms.`\
+`Chelsea&#8217;s proposed move for Atletico Madrid forward Samu Omorodion has collapsed.`\
 https://nytimes.com/athletic/5689584/2024/08/11/samu-omorodion-chelsea-deal/
 
 **Tom Cruise pulls off another stunt.**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5693972/2024/08/11/jordan-chiles-bronze-medal-olymp
 **West Ham to sign Wan-Bissaka from Manchester United**\
 `West Ham United are set to complete the signing of Aaron Wan-Bissaka after agreeing personal terms with the Manchester United defender.`\
 https://nytimes.com/athletic/5643217/2024/08/11/aaron-wan-bissaka-west-ham/
-
-**Phoenix and Air revisit French Touch with help from friends.**\
-`By Hank Shteamer`\
-https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/phoenix-and-air-revisit-french-touch-with-help-from-friends
 
