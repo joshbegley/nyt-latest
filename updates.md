@@ -1,3 +1,7 @@
+**Jackson Merrill and the Padres come back again and something special is happening**\
+`The Padres are riding an intoxicating wave. It's not just that they're winning, but how they keep winning.`\
+https://nytimes.com/athletic/5693555/2024/08/10/jackson-merrill-padres-comeback/
+
 **Aidan O'Connell, Gardner Minshew play well in Raiders' preseason loss to Vikings**\
 `It's been a rough start to training camp for the Raiders' quarterback battle, but both contenders look good in Saturday's preseason opener.`\
 https://nytimes.com/athletic/5693530/2024/08/10/raiders-vikings-aidan-oconnell-gardner-minshew/
