@@ -1,3 +1,7 @@
+**Jordan Chiles Lost a Bronze. She’s Not the First American Affected by a Medal Change.**\
+`A court invalidated the gymnast’s win. Here are other notable cases of Americans who lost (or gained) a medal after an event.`\
+https://nytimes.com/2024/08/11/us/jordan-chiles-medal-other-athletes-stripped.html
+
 **Merci, Paris: We needed these Olympics**\
 `In the end, against what so many thought Paris 2024 would or wouldn't be, these Olympics delivered on the largest scale.`\
 https://nytimes.com/athletic/5694703/2024/08/11/2024-paris-olympics-merci-thank-you/
