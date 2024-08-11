@@ -1,3 +1,7 @@
+**Team behind opening ceremony combs closing event to make sure there’s ‘no possible misinterpretation.’**\
+`By Catherine Porter`\
+https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/team-behind-opening-ceremony-combs-closing-event-to-make-sure-theres-no-possible-misinterpretation
+
 **See the lasting images from Paris.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/see-the-lasting-images-from-paris
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5694399/2024/08/11/malik-nabers-new-york-giants-inj
 **What we learned from Emma Hayes' victorious USWNT at the Paris Olympics**\
 `The early signs under the new manager could hardly be more encouraging — and she’s only just getting started`\
 https://nytimes.com/athletic/5693423/2024/08/11/uswnt-olympic-winners-takeaways-analysis/
-
-**The Briefing: Liverpool vs Sevilla and Las Palmas - What did we learn from two games in one day?**\
-`Liverpool played two pre-season games in one day before the Premier League kick-off next weekend — here's what we learned`\
-https://nytimes.com/athletic/5692463/2024/08/11/liverpool-sevilla-las-palmas-slot/
 
