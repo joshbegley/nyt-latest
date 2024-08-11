@@ -1,3 +1,19 @@
+**Tie, as Shoes**\
+`Shaun Phillips is back again already? You better believe it.`\
+https://nytimes.com/2024/08/11/crosswords/daily-puzzle-2024-08-12.html
+
+**Vinicius Jr rejects lucrative offer to join Saudi Pro League**\
+`Real Madrid forward Vinicius Jr has turned down a lucrative offer to join the Saudi Pro League.`\
+https://nytimes.com/athletic/5694749/2024/08/11/vinicius-jr-saudi-arabia/
+
+**Trotter: IOC shows little courage in handling of Chiles ruling**\
+`Lingering controversy could have been shut down had the organization followed the spirit of its mission and awarded multiple bronze medals.`\
+https://nytimes.com/athletic/5694660/2024/08/11/jordan-chiles-olympics-gymnastics-ioc-ana-barbosu/
+
+**One of the brightest stars at the Olympics isn’t an athlete. It’s Snoop Dogg.**\
+`By Emmanuel Morgan`\
+https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/one-of-the-brightest-stars-at-the-olympics-isnt-an-athlete-its-snoop-dogg
+
 **Tom Cruise Jumps Off Stadium Roof to Pass Baton to Los Angeles**\
 `Cruise, one of Hollywood’s most well-known movie stars, rappelled down into the Stade de France, and the crowd of Olympians went wild as Paris handed over to the next Summer Games, in Los Angeles.`\
 https://nytimes.com/2024/08/11/world/olympics/tom-cruise-closing-ceremony-paris.html
