@@ -1,3 +1,19 @@
+**A Place Where It Snows All Summer**\
+`At a factory in western New York, the holiday décor brand Buffalo Snow has been manufacturing blizzards for almost 40 years.`\
+https://nytimes.com/2024/08/11/style/buffalo-snow-fake.html
+
+**Bari Weiss Knows Exactly What She’s Doing**\
+`The founder of The Free Press has built a new media empire by persuading audiences that she is a teller of dangerous truths.`\
+https://nytimes.com/2024/08/11/business/media/bari-weiss-free-press.html
+
+**The Most Wanted ‘Girl’ in Fashion**\
+`How did Miu Miu become fashion’s biggest success story — halfway to $1 billion in sales for 2024?`\
+https://nytimes.com/2024/08/11/style/miu-miu-miuccia-prada-miu-miu-girl.html
+
+**What Killed Harmony Ball-Stribling?**\
+`One woman’s death reveals the myriad ways in which social and economic factors endanger pregnant women in the United States.`\
+https://nytimes.com/2024/08/11/health/maternal-mortality-mississippi.html
+
 **Quotation of the Day: Lahaina Sifts Its Layers of History as It Rebuilds**\
 `Quotation of the Day for Sunday, August 11, 2024.`\
 https://nytimes.com/2024/08/11/pageoneplus/quotation-of-the-day-lahaina-sifts-its-layers-of-history-as-it-rebuilds.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5693821/2024/08/11/dodgers-river-ryan-injury-pitchi
 **Even for Stephen Curry, that Olympic gold-medal game performance was ridiculous**\
 `Nothing Stephen Curry does should surprise us. And yet, Saturday's gold-clinching finish was a work of art worthy of a place in history.`\
 https://nytimes.com/athletic/5693189/2024/08/11/stephen-curry-olympics-gold-medal-game-team-usa/
-
-**Disney Details Vast Theme Park Expansion Projects**\
-`The company, which has recently seen softening visitor demand, will spend billions to build new rides and expand its cruise ship fleet to 13 from nine.`\
-https://nytimes.com/2024/08/11/business/disney-parks-new-rides.html
-
-**Too Much of Our Seafood Has a Dark Secret**\
-`We use the world’s fish as if it was a limitless line of credit. But this credit is running out.`\
-https://nytimes.com/2024/08/11/opinion/sustainable-seafood-sardines-anchovies.html
-
-**Seahawks' defense off to promising start under Mike Macdonald, dominating opener**\
-`It's only the preseason, but the Seahawks squeezed the life out of the Chargers' offense, and their first-round rookie impressed.`\
-https://nytimes.com/athletic/5693760/2024/08/11/seahawks-chargers-mike-macdonald-byron-murphy/
-
-**Takeaways from 49ers' preseason opener: Solid QB play, Malik Mustapha's first impression**\
-`Kyle Shanahan chimed in on quarterback play and his decision to allow assistant Klay Kubiak to call plays against the Titans. `\
-https://nytimes.com/athletic/5693405/2024/08/11/49ers-titans-preseason-quarterbacks-malik-mustapha/
 

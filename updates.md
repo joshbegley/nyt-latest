@@ -1,3 +1,19 @@
+**A Place Where It Snows All Summer**\
+`At a factory in western New York, the holiday décor brand Buffalo Snow has been manufacturing blizzards for almost 40 years.`\
+https://nytimes.com/2024/08/11/style/buffalo-snow-fake.html
+
+**Bari Weiss Knows Exactly What She’s Doing**\
+`The founder of The Free Press has built a new media empire by persuading audiences that she is a teller of dangerous truths.`\
+https://nytimes.com/2024/08/11/business/media/bari-weiss-free-press.html
+
+**The Most Wanted ‘Girl’ in Fashion**\
+`How did Miu Miu become fashion’s biggest success story — halfway to $1 billion in sales for 2024?`\
+https://nytimes.com/2024/08/11/style/miu-miu-miuccia-prada-miu-miu-girl.html
+
+**What Killed Harmony Ball-Stribling?**\
+`One woman’s death reveals the myriad ways in which social and economic factors endanger pregnant women in the United States.`\
+https://nytimes.com/2024/08/11/health/maternal-mortality-mississippi.html
+
 **Quotation of the Day: Lahaina Sifts Its Layers of History as It Rebuilds**\
 `Quotation of the Day for Sunday, August 11, 2024.`\
 https://nytimes.com/2024/08/11/pageoneplus/quotation-of-the-day-lahaina-sifts-its-layers-of-history-as-it-rebuilds.html
