@@ -1,3 +1,7 @@
+**Chelsea make Joao Felix enquiry**\
+`Chelsea have begun talks with Atletico Madrid regarding the possibility of signing Portugal forward Joao Felix.`\
+https://nytimes.com/athletic/5650431/2024/08/11/joao-felix-chelsea/
+
 **Trump Falsely Claims That the Crowds Seen at Harris Rallies Are Fake**\
 `The former president, in a series of social media posts, said that Vice President Kamala Harris had used A.I. technology to create images of fake crowds at her events.`\
 https://nytimes.com/2024/08/11/us/politics/trump-harris-crowds-ai.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5689584/2024/08/11/samu-omorodion-chelsea-deal/
 **Tom Cruise Jumps Off Stadium Roof to Pass Baton to Los Angeles**\
 `Cruise, one of Hollywood’s most well-known movie stars, rappelled down into the Stade de France, and the crowd of Olympians went wild as Paris handed over to the next Summer Games, in Los Angeles.`\
 https://nytimes.com/2024/08/11/world/olympics/tom-cruise-closing-ceremony-paris.html
-
-**The best thing I saw at the Paris Olympics**\
-`As our staff departs Paris, we asked them to share their favorite memories from the 2024 Paris Olympics. Here's what they said.`\
-https://nytimes.com/athletic/5691319/2024/08/11/2024-paris-olympics-highlights-best-of/
 
