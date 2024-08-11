@@ -1,3 +1,7 @@
+**'Everything I imagined, and more': Team USA's gold medal game seals NBA stars' legacies**\
+`"There's a sense of relief at the end, but it's more a sense of accomplishment ... knowing what we were able to do,” Steph Curry said.`\
+https://nytimes.com/athletic/5693635/2024/08/10/team-usa-gold-medal-game-nba-legacies/
+
 **Mets' evolving bullpen: How it shakes out with arms acquired last month and returning arms**\
 `Sending Alex Young down leaves the Mets with only Danny Young from the left side in the bullpen.`\
 https://nytimes.com/athletic/5693608/2024/08/10/mets-bullpen-evolving-analysis/
