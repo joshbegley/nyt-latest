@@ -1,3 +1,11 @@
+**Jordan Chiles Lost a Bronze Medal Because an Appeal Was Four Seconds Late**\
+`An inquiry by Chiles’s coach led judges to adjust her score and give her a medal. A court ruled the inquiry came too late. Now, the I.O.C. wants her bronze back.`\
+https://nytimes.com/2024/08/11/world/olympics/jordan-chiles-gymnastics-medal.html
+
+**JD Vance said he supported Trump’s wishes for presidential influence over the Federal Reserve.**\
+`By Minho Kim`\
+https://nytimes.com/live/2024/08/11/us/harris-trump-election/jd-vance-fed
+
 **Bob Tischler, Who Helped Revive ‘Saturday Night Live,’ Dies at 78**\
 `A producer of “The National Lampoon Radio Hour” and albums by the Blues Brothers, he became S.N.L.’s head writer after a dismal season early in its history.`\
 https://nytimes.com/2024/08/11/arts/television/bob-tischler-dead.html
