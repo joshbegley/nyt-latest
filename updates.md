@@ -1,3 +1,7 @@
+**Olympic surfing came to a ‘poisoned’ paradise.**\
+`By Hannah Beech and Adam Ferguson`\
+https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/olympic-surfing-came-to-a-poisoned-paradise
+
 **The Briefing: Liverpool vs Sevilla and Las Palmas - What did we learn from two games in one day?**\
 `Liverpool played two pre-season games in one day before the Premier League kick-off next weekend — here's what we learned`\
 https://nytimes.com/athletic/5692463/2024/08/11/liverpool-sevilla-las-palmas-slot/
