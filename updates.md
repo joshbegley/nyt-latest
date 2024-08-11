@@ -1,3 +1,15 @@
+**Boxer Khelif files complaint over online harassment**\
+`A lawyer for Algerian boxer Imane Khelif says the gold medal-winning boxer has asked prosecutors in Paris to look into online harassment she faced during the Olympics about her gender and presence at the Games.`\
+https://nytimes.com/athletic/5694278/2024/08/11/imane-khelif-olympics-online-harassment/
+
+**The Briefing: Chelsea 1 Inter 1 - Is this Maresca's plan for City? What now for Chilwell?**\
+`With the Premier League season just days away, we take a look at Chelsea's final pre-season game against Inter Milan.`\
+https://nytimes.com/athletic/5692465/2024/08/11/chelsea-inter-milan-maresca-chilwell/
+
+**What ‘It Ends With Us’ Says About the Blake Lively Brand**\
+`The images onscreen are informed by the actress’s offscreen businesses, making the movie a fascinating study in the uses of star power.`\
+https://nytimes.com/2024/08/11/movies/it-ends-with-us-blake-lively-brand.html
+
 **U.S. wins gold in nail-biter vs. France**\
 `France's Gabby Williams' shot was a 2-pointer as time expired — putting the final score at Team USA 67-France 66.`\
 https://nytimes.com/athletic/5694154/2024/08/11/olympics-womens-basketball-usa-gold-win-wilson/
