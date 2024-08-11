@@ -1,3 +1,7 @@
+**Trotter: IOC shows little courage in handling of Chiles ruling**\
+`Lingering controversy could have been shut down had the organization followed the spirit of its mission and awarded multiple bronze medals.`\
+https://nytimes.com/athletic/5694660/2024/08/11/jordan-chiles-olympics-gymnastics-ioc-ana-barbosu/
+
 **One of the brightest stars at the Olympics isn’t an athlete. It’s Snoop Dogg.**\
 `By Emmanuel Morgan`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/one-of-the-brightest-stars-at-the-olympics-isnt-an-athlete-its-snoop-dogg
@@ -12,7 +16,7 @@ https://nytimes.com/athletic/5689584/2024/08/11/samu-omorodion-chelsea-deal/
 
 **Tom Cruise pulls off another stunt.**\
 `By Alissa Wilkinson`\
-https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/tom-cruise-closing-ceremony-paris
+https://nytimes.com/2024/08/11/world/olympics/tom-cruise-closing-ceremony-paris.html
 
 **The best thing I saw at the Paris Olympics**\
 `As our staff departs Paris, we asked them to share their favorite memories from the 2024 Paris Olympics. Here's what they said.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/11/nyregion/brooklyn-stabbing-hate-crime.html
 **Red Bull Salzburg submit bid for Liverpool's Clark**\
 `Red Bull Salzburg have stepped up their pursuit of Liverpool midfielder Bobby Clark with an offer of around €9.`\
 https://nytimes.com/athletic/5694726/2024/08/11/red-bull-salzburg-bobby-clark/
-
-**Jordan Chiles to lose Olympic bronze after court overturns score change**\
-`The IOC will strip Jordan Chiles of her bronze medal after a court ruling overturned a scoring correction in the floor exercise final.`\
-https://nytimes.com/athletic/5693972/2024/08/11/jordan-chiles-bronze-medal-olympics-ioc-reallocate/
 

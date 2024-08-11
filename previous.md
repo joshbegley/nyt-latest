@@ -1,5 +1,13 @@
+**One of the brightest stars at the Olympics isn’t an athlete. It’s Snoop Dogg.**\
+`By Emmanuel Morgan`\
+https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/one-of-the-brightest-stars-at-the-olympics-isnt-an-athlete-its-snoop-dogg
+
+**U.S.-France most watched men's basketball gold medal game since 1996**\
+`Team USA earned its fifth-straight gold medal in a 98-87 victory over France.`\
+https://nytimes.com/athletic/5694751/2024/08/11/usa-france-basketball-olympics-viewership/
+
 **Omorodion's move to Chelsea collapses**\
-`Chelsea&#8217;s proposed move for Atletico Madrid forward Samu Omorodion has collapsed over issues on the contract terms.`\
+`Chelsea&#8217;s proposed move for Atletico Madrid forward Samu Omorodion has collapsed.`\
 https://nytimes.com/athletic/5689584/2024/08/11/samu-omorodion-chelsea-deal/
 
 **Tom Cruise pulls off another stunt.**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5694726/2024/08/11/red-bull-salzburg-bobby-clark/
 **Jordan Chiles to lose Olympic bronze after court overturns score change**\
 `The IOC will strip Jordan Chiles of her bronze medal after a court ruling overturned a scoring correction in the floor exercise final.`\
 https://nytimes.com/athletic/5693972/2024/08/11/jordan-chiles-bronze-medal-olympics-ioc-reallocate/
-
-**West Ham to sign Wan-Bissaka from Manchester United**\
-`West Ham United are set to complete the signing of Aaron Wan-Bissaka after agreeing personal terms with the Manchester United defender.`\
-https://nytimes.com/athletic/5643217/2024/08/11/aaron-wan-bissaka-west-ham/
-
-**Phoenix and Air revisit French Touch with help from friends.**\
-`By Hank Shteamer`\
-https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/phoenix-and-air-revisit-french-touch-with-help-from-friends
 
