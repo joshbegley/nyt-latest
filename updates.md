@@ -1,3 +1,7 @@
+**Rallying in Las Vegas, Harris Pledges to End Federal Taxes on Tips**\
+`In the final stop of the Harris-Walz introductory tour, Vice President Kamala Harris said that, if elected, she would end federal income tax on tips, mirroring a proposal made by former President Donald J. Trump.`\
+https://nytimes.com/2024/08/10/us/politics/harris-trump-taxes-tips.html
+
 **Titans takeaways vs. 49ers: Calvin Ridley's burst, Will Levis' pop, JC Latham's 'C'**\
 `Preseason? When Calvin Ridley took off with a short pass from Will Levis for a 22-yard gain early vs. the 49ers, the opponent didn't matter.`\
 https://nytimes.com/athletic/5693362/2024/08/10/tennessee-titans-takeaways-49ers-preseason/
