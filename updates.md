@@ -1,3 +1,7 @@
+**Monday Briefing: Israel Widens Evacuation Orders**\
+`Plus, house calls for nomads.`\
+https://nytimes.com/2024/08/11/briefing/gaza-evacuations-olympics-harris-walz.html
+
 **Women marathoners receive medals on the big stage of the closing ceremony.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/women-marathoners-receive-medals-on-the-big-stage-of-the-closing-ceremony
