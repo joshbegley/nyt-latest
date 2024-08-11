@@ -1,3 +1,7 @@
+**Biden Says He Dropped Out to Avoid Becoming a ‘Distraction’ for Democrats**\
+`In his first interview since ending his campaign, the president said it was imperative for the party to beat Donald J. Trump and accused him of being an ally of the Ku Klux Klan.`\
+https://nytimes.com/2024/08/11/us/politics/biden-interview-cbs-trump.html
+
 **What Will It Take for Hollywood to Grow Up?**\
 `Even R-rated movies are childish now.`\
 https://nytimes.com/2024/08/11/opinion/deadpool-wolverine-audience-rating.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/11/briefing/techonology-schools.html
 **The Briefing: Wrexham 3 Wycombe 2 - Hollywood in town, a hit in the States and an underrated strike force?**\
 `Wrexham returned to League One after a 19-year absence with Ryan Reynolds and Rob McElhenney watching on and millions tuning in from the US`\
 https://nytimes.com/athletic/5690939/2024/08/11/wrexham-3-wycombe-2-hollywood-in-town-a-hit-in-the-u-s-and-an-underrated-strikeforce/
-
-**Fulham make £20m offer for Crystal Palace defender Andersen**\
-`Fulham have submitted a £20million offer for Crystal Palace defender Joachim Andersen.`\
-https://nytimes.com/athletic/5693917/2024/08/11/joachim-andersen-fulham-crystal-palace-bid/
 
