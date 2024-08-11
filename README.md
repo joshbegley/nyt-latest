@@ -1,3 +1,7 @@
+**49ers cancel joint practices with Saints**\
+`Kyle Shanahan said Saturday night that 23 players were missing from the team's most recent practice. `\
+https://nytimes.com/athletic/5694929/2024/08/11/49ers-saints-joint-practices-canceled-injuries/
+
 **The Hacking of Presidential Campaigns Begins, With the Usual Fog of Motives**\
 `Donald J. Trump says his campaign was hacked by the Iranians, but obtained publicly available data. Microsoft said Iranian hackers sent a spear phishing email to a “high-ranking official” on a presidential campaign.`\
 https://nytimes.com/2024/08/11/us/politics/trump-campaign-hacking-iran.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5694660/2024/08/11/jordan-chiles-olympics-gymnastic
 **One of the brightest stars at the Olympics isn’t an athlete. It’s Snoop Dogg.**\
 `By Emmanuel Morgan`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/one-of-the-brightest-stars-at-the-olympics-isnt-an-athlete-its-snoop-dogg
-
-**U.S.-France most watched men's basketball gold medal game since 1996**\
-`Team USA earned its fifth-straight gold medal in a 98-87 victory over France.`\
-https://nytimes.com/athletic/5694751/2024/08/11/usa-france-basketball-olympics-viewership/
 
