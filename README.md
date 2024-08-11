@@ -1,3 +1,7 @@
+**Jordan Chiles to lose Olympic bronze after court overturns score change**\
+`The IOC will strip Jordan Chiles of her bronze medal after a court ruling overturned a scoring correction in the floor exercise final.`\
+https://nytimes.com/athletic/5693972/2024/08/11/jordan-chiles-bronze-medal-olympics-ioc-reallocate/
+
 **West Ham to sign Wan-Bissaka from Manchester United**\
 `West Ham United are set to complete the signing of Aaron Wan-Bissaka after agreeing personal terms with the Manchester United defender.`\
 https://nytimes.com/athletic/5643217/2024/08/11/aaron-wan-bissaka-west-ham/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/paris-
 **Olympians can list their injuries as readily as their achievements.**\
 `By James Wagner`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/olympians-can-list-their-injuries-as-readily-as-their-achievements
-
-**A Norwegian muffin man, a French pole-vaulter and an American rugby player won the internet.**\
-`By Annie Aguiar`\
-https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/a-norwegian-muffin-man-a-french-pole-vaulter-and-an-american-rugby-player-won-the-internet
 
