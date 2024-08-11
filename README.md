@@ -1,3 +1,7 @@
+**Tomiyasu's return from injury 'weeks' away - Arteta**\
+`Mikel Arteta has confirmed that Takehiro Tomiyasu faces further weeks on the sidelines as he recovers from a knee injury that has seen him miss the bulk of pre-season.`\
+https://nytimes.com/athletic/5694320/2024/08/11/tomiyasu-injury-arsenal/
+
 **Boxer Khelif files complaint over online harassment**\
 `A lawyer for Algerian boxer Imane Khelif says the gold medal-winning boxer has asked prosecutors in Paris to look into online harassment she faced during the Olympics about her gender and presence at the Games.`\
 https://nytimes.com/athletic/5694278/2024/08/11/imane-khelif-olympics-online-harassment/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5691509/2024/08/11/pedro-neto-chelsea-the-athletic-
 **Blueberry, Almond and Lemon, a Truly Great Trio**\
 `Yotam Ottolenghi’s iced, berry-dotted loaf cake is a summertime New York Times Cooking classic.`\
 https://nytimes.com/2024/08/11/dining/blueberry-recipes.html
-
-**Chelsea confirm Neto signing from Wolves**\
-`Chelsea have completed the signing of Pedro Neto from Wolverhampton Wanderers.`\
-https://nytimes.com/athletic/5691359/2024/08/11/chelsea-pedro-neto-wolves-transfer/
 
