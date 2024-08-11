@@ -1,4 +1,8 @@
 **Live Election Updates: Biden Gives First Interview Since Leaving Race**\
+`In a CBS interview aired Sunday morning, President Biden, 81, acknowledged that his age had been a challenge in his re-election effort. He called Donald Trump “a genuine danger to American security.”`\
+https://nytimes.com/live/2024/08/11/us/harris-trump-election
+
+**Live Election Updates: Biden Gives First Interview Since Leaving Race**\
 `In a CBS interview airing Sunday morning, President Biden, 81, acknowledged that his age had been a challenge in his re-election effort. He called Donald Trump “a genuine danger to American security.”`\
 https://nytimes.com/live/2024/08/11/us/harris-trump-election
 
