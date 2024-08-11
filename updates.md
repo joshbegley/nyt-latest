@@ -1,3 +1,7 @@
+**Oscar Bobb has an opportunity to play regularly at City - and the talent to thrive**\
+`The young Norwegian winger knows City's style inside out now and has a chance to make the right wing berth his own over the next few weeks`\
+https://nytimes.com/athletic/5692936/2024/08/11/bobb-manchester-city-guardiola-savinho/
+
 **Why European soccer headed to the U.S. for preseason - and what comes next?**\
 `Premier League, La Liga and Serie A clubs have rushed to the States for lucrative preseason tours in recent years, but is it sustainable?`\
 https://nytimes.com/athletic/5690346/2024/08/11/manchester-united-pre-season-european-soccer/

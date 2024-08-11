@@ -1,3 +1,7 @@
+**Oscar Bobb has an opportunity to play regularly at City - and the talent to thrive**\
+`The young Norwegian winger knows City's style inside out now and has a chance to make the right wing berth his own over the next few weeks`\
+https://nytimes.com/athletic/5692936/2024/08/11/bobb-manchester-city-guardiola-savinho/
+
 **Why European soccer headed to the U.S. for preseason - and what comes next?**\
 `Premier League, La Liga and Serie A clubs have rushed to the States for lucrative preseason tours in recent years, but is it sustainable?`\
 https://nytimes.com/athletic/5690346/2024/08/11/manchester-united-pre-season-european-soccer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/10/us/politics/harris-trump-taxes-tips.html
 **Titans takeaways vs. 49ers: Calvin Ridley's burst, Will Levis' pop, JC Latham's 'C'**\
 `Preseason? When Calvin Ridley took off with a short pass from Will Levis for a 22-yard gain early vs. the 49ers, the opponent didn't matter.`\
 https://nytimes.com/athletic/5693362/2024/08/10/tennessee-titans-takeaways-49ers-preseason/
-
-**Simeon Woods Richardson's career-best outing not enough as Guardians win pitchers' duel**\
-`Plus notes on how Joe Ryan is reacting to his injury news, as well as the statuses of Brooks Lee and Carlos Correa.`\
-https://nytimes.com/athletic/5693671/2024/08/10/twins-simeon-woods-richardsons-guardians/
 
