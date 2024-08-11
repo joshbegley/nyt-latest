@@ -1,3 +1,7 @@
+**The mayor of Los Angeles is ready to take the handoff from Paris.**\
+`By Jill Cowan`\
+https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/the-mayor-of-los-angeles-is-ready-to-take-the-handoff-from-paris
+
 **Man Is Charged With Hate Crime in Stabbing Near Brooklyn Synagogue**\
 `The police said the man, Vincent Sumpter, yelled “Free Palestine” before stabbing another man near the headquarters of the Chabad-Lubavitch movement.`\
 https://nytimes.com/2024/08/11/nyregion/brooklyn-stabbing-hate-crime.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5694620/2024/08/11/unc-womens-coach-anson-dorrance-
 **The stuffed goat on Simone Biles’s bed in Paris commemorated her as the greatest gymnast ever.**\
 `By Juliet Macur`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/the-stuffed-goat-on-simone-biless-bed-in-paris-commemorated-her-as-the-greatest-gymnast-ever
-
-**U.S. women's basketball's golden end caps an Olympics where women persevered**\
-`Everywhere at these Olympics, women were grinding their way to amazing achievements. Sunday's women's basketball finale was no exception.`\
-https://nytimes.com/athletic/5694258/2024/08/11/team-usa-womens-basketball-gold-france-olympics-female-stars/
 
