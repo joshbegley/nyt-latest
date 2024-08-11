@@ -1,3 +1,7 @@
+**What we learned from Emma Hayes' victorious USWNT at the Paris Olympics**\
+`The early signs under the new manager could hardly be more encouraging — and she’s only just getting started`\
+https://nytimes.com/athletic/5693423/2024/08/11/uswnt-olympic-winners-takeaways-analysis/
+
 **The Briefing: Liverpool vs Sevilla and Las Palmas - What did we learn from two games in one day?**\
 `Liverpool played two pre-season games in one day before the Premier League kick-off next weekend - here's what we learnt.`\
 https://nytimes.com/athletic/5692463/2024/08/11/liverpool-sevilla-las-palmas-slot/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5694378/2024/08/11/us-china-gold-medals-count-olymp
 **Jordan Chiles Lost a Bronze Medal Because an Appeal Was Four Seconds Late**\
 `An inquiry by Chiles’s coach led judges to adjust her score and give her a medal. A court ruled the inquiry came too late. Now, the I.O.C. wants her bronze back.`\
 https://nytimes.com/2024/08/11/world/olympics/jordan-chiles-gymnastics-medal.html
-
-**JD Vance Supports Trump on Presidential Influence Over Federal Reserve**\
-`The Republican vice-presidential nominee said presidents should have a say in determining the benchmark interest rate.`\
-https://nytimes.com/2024/08/11/us/politics/jd-vance-fed.html
 
