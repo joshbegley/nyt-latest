@@ -1,3 +1,11 @@
+**Omorodion's move to Chelsea collapses**\
+`Chelsea&#8217;s proposed move for Atletico Madrid forward Samu Omorodion has collapsed over issues on the contract terms.`\
+https://nytimes.com/athletic/5689584/2024/08/11/samu-omorodion-chelsea-deal/
+
+**Tom Cruise pulls off another stunt.**\
+`By Alissa Wilkinson`\
+https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/tom-cruise-closing-ceremony-paris
+
 **The best thing I saw at the Paris Olympics**\
 `As our staff departs Paris, we asked them to share their favorite memories from the 2024 Paris Olympics. Here's what they said.`\
 https://nytimes.com/athletic/5691319/2024/08/11/2024-paris-olympics-highlights-best-of/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5643217/2024/08/11/aaron-wan-bissaka-west-ham/
 **Phoenix and Air revisit French Touch with help from friends.**\
 `By Hank Shteamer`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/phoenix-and-air-revisit-french-touch-with-help-from-friends
-
-**Monday Briefing: Israel Widens Evacuation Orders**\
-`Plus, house calls for nomads.`\
-https://nytimes.com/2024/08/11/briefing/gaza-evacuations-olympics-harris-walz.html
-
-**Women marathoners receive medals on the big stage of the closing ceremony.**\
-`By Talya Minsberg`\
-https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/women-marathoners-receive-medals-on-the-big-stage-of-the-closing-ceremony
 
