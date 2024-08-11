@@ -1,3 +1,7 @@
+**Team behind opening ceremony combs closing event to make sure there’s ‘no possible misinterpretation.’**\
+`By Catherine Porter`\
+https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/team-behind-opening-ceremony-combs-closing-event-to-make-sure-theres-no-possible-misinterpretation
+
 **See the lasting images from Paris.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/see-the-lasting-images-from-paris
