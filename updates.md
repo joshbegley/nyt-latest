@@ -1,3 +1,11 @@
+**Disney Details Vast Theme Park Expansion Projects**\
+`The company, which has recently seen softening visitor demand, will spend billions to build new rides and expand its cruise ship fleet to 13 from nine.`\
+https://nytimes.com/2024/08/11/business/disney-parks-new-rides.html
+
+**Too Much of Our Seafood Has a Dark Secret**\
+`We use the world’s fish as if it was a limitless line of credit. But this credit is running out.`\
+https://nytimes.com/2024/08/11/opinion/sustainable-seafood-sardines-anchovies.html
+
 **Seahawks' defense off to promising start under Mike Macdonald, dominating opener**\
 `It's only the preseason, but the Seahawks squeezed the life out of the Chargers' offense, and their first-round rookie impressed.`\
 https://nytimes.com/athletic/5693760/2024/08/11/seahawks-chargers-mike-macdonald-byron-murphy/
