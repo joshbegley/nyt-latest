@@ -1,3 +1,11 @@
+**Trump Falsely Claims That the Crowds Seen at Harris Rallies Are Fake**\
+`The former president, in a series of social media posts, said that Vice President Kamala Harris had used A.I. technology to create images of fake crowds at her events.`\
+https://nytimes.com/2024/08/11/us/politics/trump-harris-crowds-ai.html
+
+**Broncos QB Bo Nix's mobility, poise on display in encouraging preseason debut**\
+`The rookie QB completed 15 of his final 19 passes and led the Broncos to four scores in five possessions. `\
+https://nytimes.com/athletic/5694648/2024/08/11/denver-broncos-bo-nix-preseason-debut/
+
 **Tie, as Shoes**\
 `Shaun Phillips is back again already? You better believe it.`\
 https://nytimes.com/2024/08/11/crosswords/daily-puzzle-2024-08-12.html
