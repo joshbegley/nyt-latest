@@ -1,3 +1,11 @@
+**Trotter: IOC shows little courage in handling of Chiles ruling**\
+`Lingering controversy could have been shut down had the organization followed the spirit of its mission and awarded multiple bronze medals.`\
+https://nytimes.com/athletic/5694660/2024/08/11/jordan-chiles-olympics-gymnastics-ioc-ana-barbosu/
+
+**One of the brightest stars at the Olympics isn’t an athlete. It’s Snoop Dogg.**\
+`By Emmanuel Morgan`\
+https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/one-of-the-brightest-stars-at-the-olympics-isnt-an-athlete-its-snoop-dogg
+
 **U.S.-France most watched men's basketball gold medal game since 1996**\
 `Team USA earned its fifth-straight gold medal in a 98-87 victory over France.`\
 https://nytimes.com/athletic/5694751/2024/08/11/usa-france-basketball-olympics-viewership/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/11/nyregion/brooklyn-stabbing-hate-crime.html
 **Red Bull Salzburg submit bid for Liverpool's Clark**\
 `Red Bull Salzburg have stepped up their pursuit of Liverpool midfielder Bobby Clark with an offer of around €9.`\
 https://nytimes.com/athletic/5694726/2024/08/11/red-bull-salzburg-bobby-clark/
-
-**Jordan Chiles to lose Olympic bronze after court overturns score change**\
-`The IOC will strip Jordan Chiles of her bronze medal after a court ruling overturned a scoring correction in the floor exercise final.`\
-https://nytimes.com/athletic/5693972/2024/08/11/jordan-chiles-bronze-medal-olympics-ioc-reallocate/
-
-**West Ham to sign Wan-Bissaka from Manchester United**\
-`West Ham United are set to complete the signing of Aaron Wan-Bissaka after agreeing personal terms with the Manchester United defender.`\
-https://nytimes.com/athletic/5643217/2024/08/11/aaron-wan-bissaka-west-ham/
 
