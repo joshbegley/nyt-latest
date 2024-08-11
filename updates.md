@@ -1,3 +1,7 @@
+**The stuffed goat on Simone Biles’s bed in Paris commemorated her as the greatest gymnast ever.**\
+`By Juliet Macur`\
+https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/the-stuffed-goat-on-simone-biless-bed-in-paris-commemorated-her-as-the-greatest-gymnast-ever
+
 **U.S. women's basketball's golden end caps an Olympics where women persevered**\
 `Everywhere at these Olympics, women were grinding their way to amazing achievements. Sunday's women's basketball finale was no exception.`\
 https://nytimes.com/athletic/5694258/2024/08/11/team-usa-womens-basketball-gold-france-olympics-female-stars/
