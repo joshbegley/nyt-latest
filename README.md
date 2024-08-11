@@ -1,6 +1,6 @@
-**Easton Stick and the Chargers offense sputter in preseason loss to Seahawks**\
+**Easton Stick and the Chargers offense sputter in Jim Harbaugh's preseason debut**\
 `Stick, the Chargers' backup QB, completed just 5 of 13 passes for 31 yards and an interception in the 16-3 loss.`\
-https://nytimes.com/athletic/5693844/2024/08/11/chargers-seahawks-preseason-offense-struggles/
+https://nytimes.com/athletic/5693844/2024/08/11/chargers-seahawks-jim-harbaugh-preseason-debut/
 
 **River Ryan goes down, and the Dodgers' rotation questions continue**\
 `“He was making a case for himself,” manager Dave Roberts said.`\
