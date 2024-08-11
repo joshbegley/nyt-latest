@@ -1,3 +1,7 @@
+**Tomiyasu's return from injury 'weeks' away - Arteta**\
+`Mikel Arteta has confirmed that Takehiro Tomiyasu faces further weeks on the sidelines as he recovers from a knee injury that has seen him miss the bulk of pre-season.`\
+https://nytimes.com/athletic/5694320/2024/08/11/tomiyasu-injury-arsenal/
+
 **Boxer Khelif files complaint over online harassment**\
 `A lawyer for Algerian boxer Imane Khelif says the gold medal-winning boxer has asked prosecutors in Paris to look into online harassment she faced during the Olympics about her gender and presence at the Games.`\
 https://nytimes.com/athletic/5694278/2024/08/11/imane-khelif-olympics-online-harassment/
