@@ -1,3 +1,7 @@
+**The Briefing: Arsenal 2 Lyon 0: A glimpse of Calafiori, Saka's new weapon and fresh set-piece schemes**\
+`We break down some of the key points from Arsenal's win against Lyon — their final pre-season friendly of the summer`\
+https://nytimes.com/athletic/5692464/2024/08/11/arsenal-lyon-friendly-result-analysis/
+
 **Scofflaws and Other Hazards on the Roads**\
 `Readers react to articles about the rise in traffic deaths. Also: Neo-Nazis in Nashville; JD Vance and the rule of law; a ban on masks.`\
 https://nytimes.com/2024/08/11/opinion/traffic-deaths.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5650965/2024/08/11/post-olympic-blues-medal-depress
 **Here’s the latest on the presidential race.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/08/11/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Live Election Updates: Biden Gives First Interview Since Leaving Race**\
-`In a CBS interview that aired Sunday morning, President Biden, 81, acknowledged that his age had been a challenge in his re-election effort. He called Donald Trump “a genuine danger to American security.”`\
-https://nytimes.com/live/2024/08/11/us/harris-trump-election
 
