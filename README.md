@@ -1,3 +1,11 @@
+**The best thing I saw at the Paris Olympics**\
+`As our staff departs Paris, we asked them to share their favorite memories from the 2024 Paris Olympics. Here's what they said.`\
+https://nytimes.com/athletic/5691319/2024/08/11/2024-paris-olympics-highlights-best-of/
+
+**How Eagles veteran Avonte Maddox is helping Quinyon Mitchell at nickel (and on the roadside)**\
+`Rookies need veterans. They need them for guidance, counsel and when their cars "break down" in the middle of a bridge.`\
+https://nytimes.com/athletic/5694481/2024/08/11/philadelphia-eagles-quinyon-mitchell-nickel-avonte-maddox/
+
 **The mayor of Los Angeles is ready to take the handoff from Paris.**\
 `By Jill Cowan`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/the-mayor-of-los-angeles-is-ready-to-take-the-handoff-from-paris
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/11/briefing/gaza-evacuations-olympics-harris-walz.ht
 **Women marathoners receive medals on the big stage of the closing ceremony.**\
 `By Talya Minsberg`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/women-marathoners-receive-medals-on-the-big-stage-of-the-closing-ceremony
-
-**UNC women's soccer coach Anson Dorrance retires after 45 seasons**\
-`Dorrance, 73, led UNC to a record 22 national championships and ended his career with a 934-88-53 record.`\
-https://nytimes.com/athletic/5694620/2024/08/11/unc-womens-coach-anson-dorrance-retires/
-
-**The stuffed goat on Simone Biles’s bed in Paris commemorated her as the greatest gymnast ever.**\
-`By Juliet Macur`\
-https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/the-stuffed-goat-on-simone-biless-bed-in-paris-commemorated-her-as-the-greatest-gymnast-ever
 
