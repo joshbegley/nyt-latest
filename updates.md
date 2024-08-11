@@ -1,3 +1,7 @@
+**Giants WR Malik Nabers suffers ankle injury; OL Evan Neal returns from PUP**\
+`The Giants believe Nabers' injury is only a minor one. `\
+https://nytimes.com/athletic/5694399/2024/08/11/malik-nabers-new-york-giants-injury-evan-neal/
+
 **What we learned from Emma Hayes' victorious USWNT at the Paris Olympics**\
 `The early signs under the new manager could hardly be more encouraging — and she’s only just getting started`\
 https://nytimes.com/athletic/5693423/2024/08/11/uswnt-olympic-winners-takeaways-analysis/
