@@ -1,3 +1,7 @@
+**Merci, Paris: We needed these Olympics**\
+`In the end, against what so many thought Paris 2024 would or wouldn't be, these Olympics delivered on the largest scale.`\
+https://nytimes.com/athletic/5694703/2024/08/11/2024-paris-olympics-merci-thank-you/
+
 **49ers cancel joint practices with Saints**\
 `Kyle Shanahan said Saturday night that 23 players were missing from the team's most recent practice. `\
 https://nytimes.com/athletic/5694929/2024/08/11/49ers-saints-joint-practices-canceled-injuries/
@@ -30,11 +34,7 @@ https://nytimes.com/2024/08/11/crosswords/daily-puzzle-2024-08-12.html
 `Real Madrid forward Vinicius Jr has turned down a lucrative offer to join the Saudi Pro League.`\
 https://nytimes.com/athletic/5694749/2024/08/11/vinicius-jr-saudi-arabia/
 
-**Trotter: IOC shows little courage in handling of Jordan Chiles ruling**\
+**Trotter: IOC's handling of the Jordan Chiles ruling is disturbing and shameful**\
 `Lingering controversy could have been shut down had the organization followed the spirit of its mission and awarded multiple bronze medals.`\
 https://nytimes.com/athletic/5694660/2024/08/11/jordan-chiles-olympics-gymnastics-ioc-ana-barbosu/
-
-**One of the brightest stars at the Olympics isn’t an athlete. It’s Snoop Dogg.**\
-`By Emmanuel Morgan`\
-https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/one-of-the-brightest-stars-at-the-olympics-isnt-an-athlete-its-snoop-dogg
 
