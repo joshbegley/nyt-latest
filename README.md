@@ -1,3 +1,11 @@
+**Ten observations from Packers' preseason win over Browns**\
+`Jordan Love and the offense struck quickly, Lukas Van Ness continued to make plays and wide receiver Grant DuBose impressed.`\
+https://nytimes.com/athletic/5693421/2024/08/10/packers-browns-preseason-observations/
+
+**J.J. McCarthy’s debut and 9 more Vikings thoughts from preseason win over Raiders**\
+`Minnesota's rookie quarterback bounced back from an early interception to throw two touchdowns. Coach Kevin O'Connell was impressed.`\
+https://nytimes.com/athletic/5693575/2024/08/10/vikings-raiders-jj-mccarthy-preseason/
+
 **Jackson Merrill, Padres come back again and something special is happening**\
 `The Padres are riding an intoxicating wave. It's not just that they're winning, but how they keep winning.`\
 https://nytimes.com/athletic/5693555/2024/08/10/jackson-merrill-padres-comeback/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/10/us/politics/harris-trump-immigration.html
 **USWNT on goalkeeper Alyssa Naeher: 'We’re making her a little more mushy gushy'**\
 `The U.S. goalkeeper is known for her stoic exterior`\
 https://nytimes.com/athletic/5693260/2024/08/10/uswnt-olympics-alyssa-naeher/
-
-**Bears QB Caleb Williams shows playmaking skill, poise on third down in debut**\
-`Excitement was high for Williams' first NFL game action, and while he didn't produce a touchdown, he led two scoring drives in Buffalo.`\
-https://nytimes.com/athletic/5693309/2024/08/10/caleb-williams-chicago-bears-preseason/
-
-**Israel Criticized After Strike Kills Scores in Gaza**\
-`Israeli officials defended the attack on a former school compound, saying Hamas was using it as a base for military operations in Gaza City.`\
-https://nytimes.com/2024/08/10/world/middleeast/israel-gaza-war-strike-school.html
 
