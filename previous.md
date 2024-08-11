@@ -1,3 +1,7 @@
+**Yankees notes: Austin Wells cleaning up at cleanup, Caitlin Clark meets Aaron Judge**\
+`Aaron Boone put Wells into the No. 4 spot on July 20. In 16 games since then, he's hit .344 (22-for-64) with 13 RBIs.`\
+https://nytimes.com/athletic/5693504/2024/08/10/yankees-austin-wells-cleanup-caitlin-clark-meets-aaron-judge/
+
 **Bills-Bears: 5 takeaways from the preseason opener in Buffalo**\
 `Allen saw one quarter of action, while rookie receiver Keon Coleman got plenty of snaps with the first-team offense.`\
 https://nytimes.com/athletic/5693431/2024/08/10/bears-bills-josh-allen-keon-coleman/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/10/world/americas/brazil-plane-crash-investigation.h
 **Jayden Daniels goes rogue, delivers wow play in Commanders preseason debut**\
 `Daniels' teammates loved his mid-play check for a big gain, and coach Dan Quinn saw it as seeking "forgiveness and not permission."`\
 https://nytimes.com/athletic/5693242/2024/08/10/jayden-daniels-commanders-preseason/
-
-**Take the El Train**\
-`Caryn Robbins presents an excellent puzzle for her Sunday debut.`\
-https://nytimes.com/2024/08/10/crosswords/daily-puzzle-2024-08-11.html
 
