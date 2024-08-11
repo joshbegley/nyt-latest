@@ -1,3 +1,27 @@
+**‘It Ends With Us,’ a Romance Based on a Best Seller, Soars at the Box Office**\
+`The film, which cost $25 million to make, is on track to earn at least $45 million in North America on its opening weekend, analysts say.`\
+https://nytimes.com/2024/08/11/business/media/it-ends-with-us-a-romance-based-on-a-best-seller-soars-at-the-box-office.html
+
+**After Cold Shoulders for Biden, Senate Democrats Wrap Their Arms Around Harris**\
+`The change at the top of the Democratic ticket has scrambled strategies for congressional candidates, Democrats and Republicans alike.`\
+https://nytimes.com/2024/08/11/us/politics/kamala-harris-senate-democrats.html
+
+**Do Trump Fans Believe the Harris Hype? Not a Chance.**\
+`The former president’s loyal supporters say the buzz around Vice President Kamala Harris is merely a “honeymoon phase.”`\
+https://nytimes.com/2024/08/11/us/politics/trump-rally-montana.html
+
+**For Some Democratic Jews, Heightened Worries About Antisemitism**\
+`Gov. Josh Shapiro of Pennsylvania, who is Jewish, was subjected to intense opposition as Vice President Kamala Harris considered him for running mate.`\
+https://nytimes.com/2024/08/11/us/politics/jewish-democrats-antisemitism.html
+
+**Tim Walz’s Long Relationship With China Defies Easy Stereotypes**\
+`Mr. Walz, the Democrats’ vice-presidential nominee, taught in China and has visited the country around 30 times. But he has also been critical of the Chinese government’s human rights record.`\
+https://nytimes.com/2024/08/11/us/tim-walz-china.html
+
+**5 Takeaways From Kamala Harris’s First Week With Tim Walz**\
+`Lofty condemnations of Donald Trump have given way to mockery. A tough interview with a top journalist? That can wait. Above all, Democrats are in a surprising place: on offense.`\
+https://nytimes.com/2024/08/11/us/politics/harris-walz-takeaways.html
+
 **How Has Tech Changed Your School Experience? We Want to Hear About It.**\
 `Some states are banning phones in schools to reduce classroom distraction and cyberbullying. Tell us about your experience with tech in schools.`\
 https://nytimes.com/2024/08/11/technology/phone-tech-use-schools.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/08/11/us/politics/harris-black-men.html
 **The All-Male Christian Group Seeking a Resurrection in the Trump Era**\
 `At a gathering this weekend, the evangelical organization Promise Keepers leaned into partisan politics it once eschewed.`\
 https://nytimes.com/2024/08/11/us/promise-keepers-evangelical-christians.html
-
-**Sidestepping Deployed Kenyan Forces, Haiti Gangs Continue Reign of Terror**\
-`Weeks after an international police force began arriving to take on gangs, armed groups are redirecting their campaign of terror outside the capital.`\
-https://nytimes.com/2024/08/11/world/americas/haiti-gangs-kenya-police.html
-
-**Atop ABC, a Personal Connection to Kamala Harris**\
-`The candidate is a longtime friend of Dana Walden, a senior Disney executive whose portfolio includes ABC News, the host of the next debate. . ABC says she does not weigh in on editorial decisions.`\
-https://nytimes.com/2024/08/11/business/media/abc-debate-dana-walden-kamala-harris.html
-
-**Kid Rock Threw the Party. MAGA Faithful Brought the Joy, Rage and Smirnoff Ice.**\
-`A music festival headlined by the pro-Trump musician offered a snapshot of a maturing American subculture, with a mash-up of hedonism, rebellion and beer-guzzling pursuit of happiness.`\
-https://nytimes.com/2024/08/11/us/kid-rock-trump-maga.html
-
-**Rethinking Tourism With the Renewal of a Beloved Italian Path**\
-`Officials hope the reopening of the Via dell’Amore will be an opportunity to rethink tourism in Cinque Terre, getting visitors off the beaten path.`\
-https://nytimes.com/2024/08/11/world/europe/rethinking-tourism-with-the-renewal-of-a-beloved-italian-path.html
-
-**Mets' Brandon Nimmo feels burden of slump: 'I expect more of myself'**\
-`This marks the third consecutive season Nimmo has faded after the All-Star break.`\
-https://nytimes.com/athletic/5693847/2024/08/11/mets-brandon-nimmo-slump/
-
-**Why Schools Are Racing to Ban Student Phones**\
-`As the new school year starts, a wave of new laws that aim to curb distracted learning is taking effect in Indiana, Louisiana and other states.`\
-https://nytimes.com/2024/08/11/technology/school-phone-bans-indiana-louisiana.html
 
