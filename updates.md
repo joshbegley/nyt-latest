@@ -1,3 +1,11 @@
+**Titans takeaways vs. 49ers: Calvin Ridley's burst, Will Levis' pop, JC Latham's 'C'**\
+`Preseason? When Calvin Ridley took off with a short pass from Will Levis for a 22-yard gain early vs. the 49ers, the opponent didn't matter.`\
+https://nytimes.com/athletic/5693362/2024/08/10/tennessee-titans-takeaways-49ers-preseason/
+
+**Simeon Woods Richardson's career-best outing not enough as Guardians win pitchers' duel**\
+`Plus notes on how Joe Ryan is reacting to his injury news, as well as the statuses of Brooks Lee and Carlos Correa.`\
+https://nytimes.com/athletic/5693671/2024/08/10/twins-simeon-woods-richardsons-guardians/
+
 **'Everything I imagined, and more': Team USA's gold medal game seals NBA stars' legacies**\
 `"There's a sense of relief at the end, but it's more a sense of accomplishment ... knowing what we were able to do,” Steph Curry said.`\
 https://nytimes.com/athletic/5693635/2024/08/10/team-usa-gold-medal-game-nba-legacies/
