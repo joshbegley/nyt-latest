@@ -1,3 +1,7 @@
+**What Will It Take for Hollywood to Grow Up?**\
+`Even R-rated movies are childish now.`\
+https://nytimes.com/2024/08/11/opinion/deadpool-wolverine-audience-rating.html
+
 **With Marathon Gold, Sifan Hassan Tests the Limits of Endurance**\
 `The Dutch Olympian added a victory in the longest race of the Games to her bronze medals in the 5,000 and 10,000 meters. “What was I thinking?” she said afterward.`\
 https://nytimes.com/2024/08/11/world/olympics/sifan-hassan-marathon-olympics.html
