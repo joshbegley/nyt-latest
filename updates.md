@@ -1,3 +1,11 @@
+**See the lasting images from Paris.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/see-the-lasting-images-from-paris
+
+**What to Know About the Democratic National Convention**\
+`Vice President Kamala Harris and her running mate, Gov. Tim Walz of Minnesota, will be the stars in Chicago.`\
+https://nytimes.com/2024/08/11/us/politics/dnc-when-where-who.html
+
 **Giants' Nabers suffers ankle injury; Neal returns from PUP**\
 `Rookie WR Malik Nabers left Sunday's practice early with what the team believes to be a minor ankle sprain.`\
 https://nytimes.com/athletic/5694399/2024/08/11/malik-nabers-new-york-giants-injury-evan-neal/

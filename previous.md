@@ -1,3 +1,11 @@
+**See the lasting images from Paris.**\
+`By The New York Times`\
+https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/see-the-lasting-images-from-paris
+
+**What to Know About the Democratic National Convention**\
+`Vice President Kamala Harris and her running mate, Gov. Tim Walz of Minnesota, will be the stars in Chicago.`\
+https://nytimes.com/2024/08/11/us/politics/dnc-when-where-who.html
+
 **Olympic surfing came to a ‘poisoned’ paradise.**\
 `By Hannah Beech and Adam Ferguson`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/olympic-surfing-came-to-a-poisoned-paradise
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5693423/2024/08/11/uswnt-olympic-winners-takeaways-
 **The Briefing: Liverpool vs Sevilla and Las Palmas - What did we learn from two games in one day?**\
 `Liverpool played two pre-season games in one day before the Premier League kick-off next weekend — here's what we learned`\
 https://nytimes.com/athletic/5692463/2024/08/11/liverpool-sevilla-las-palmas-slot/
-
-**JD Vance Repeats ‘Anti-Family’ Criticism of Democrats on Sunday Morning News Show Tour**\
-`The Republican vice-presidential nominee also defended Donald Trump’s abortion policies.`\
-https://nytimes.com/2024/08/11/us/politics/jd-vance-trump-harris-democrats.html
-
-**Unbowed by rain and arson attacks, the opening ceremony unfolded as a party on the Seine.**\
-`By Roger Cohen`\
-https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/unbowed-by-rain-and-arson-attacks-the-opening-ceremony-unfolded-as-a-party-on-the-seine
 
