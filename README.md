@@ -1,3 +1,7 @@
+**Red Sox promote top three prospects to Triple A, but James Paxton injury strains pitch depth**\
+`It was a day of mixed emotions for the Red Sox, as they suffered a key injury to a thin pitching staff but saw three prospects move up.`\
+https://nytimes.com/athletic/5694879/2024/08/11/red-sox-james-paxton-injury-prospect-promotions/
+
 **Jordan Chiles Lost a Bronze. She’s Not the First American Affected by a Medal Change.**\
 `A court invalidated the gymnast’s win. Here are other notable cases of Americans who lost (or gained) a medal after an event.`\
 https://nytimes.com/2024/08/11/us/jordan-chiles-medal-other-athletes-stripped.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5694648/2024/08/11/denver-broncos-bo-nix-preseason-
 **Tie, as Shoes**\
 `Shaun Phillips is back again already? You better believe it.`\
 https://nytimes.com/2024/08/11/crosswords/daily-puzzle-2024-08-12.html
-
-**Vinicius Jr rejects lucrative offer to join Saudi Pro League**\
-`Real Madrid forward Vinicius Jr has turned down a lucrative offer to join the Saudi Pro League.`\
-https://nytimes.com/athletic/5694749/2024/08/11/vinicius-jr-saudi-arabia/
 
