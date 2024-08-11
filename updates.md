@@ -1,3 +1,7 @@
+**Casemiro's strong-arm authority suggests he may still have something to offer Manchester United**\
+`The Brazilian midfielder's display and disappointment in defeat against Manchester City betrayed a desire to success in English football`\
+https://nytimes.com/athletic/5693044/2024/08/11/casemiro-manchester-united-ten-hag/
+
 **Oscar Bobb has an opportunity to play regularly at City - and the talent to thrive**\
 `The young Norwegian winger knows City's style inside out now and has a chance to make the right wing berth his own over the next few weeks`\
 https://nytimes.com/athletic/5692936/2024/08/11/bobb-manchester-city-guardiola-savinho/

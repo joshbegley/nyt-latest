@@ -1,3 +1,7 @@
+**Casemiro's strong-arm authority suggests he may still have something to offer Manchester United**\
+`The Brazilian midfielder's display and disappointment in defeat against Manchester City betrayed a desire to success in English football`\
+https://nytimes.com/athletic/5693044/2024/08/11/casemiro-manchester-united-ten-hag/
+
 **Oscar Bobb has an opportunity to play regularly at City - and the talent to thrive**\
 `The young Norwegian winger knows City's style inside out now and has a chance to make the right wing berth his own over the next few weeks`\
 https://nytimes.com/athletic/5692936/2024/08/11/bobb-manchester-city-guardiola-savinho/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5693244/2024/08/11/mlb-odds-best-bets-projections-a
 **Rallying in Las Vegas, Harris Pledges to End Federal Taxes on Tips**\
 `In the final stop of the Harris-Walz introductory tour, Vice President Kamala Harris said that, if elected, she would end federal income tax on tips, mirroring a proposal made by former President Donald J. Trump.`\
 https://nytimes.com/2024/08/10/us/politics/harris-trump-taxes-tips.html
-
-**Titans takeaways vs. 49ers: Calvin Ridley's burst, Will Levis' pop, JC Latham's 'C'**\
-`Preseason? When Calvin Ridley took off with a short pass from Will Levis for a 22-yard gain early vs. the 49ers, the opponent didn't matter.`\
-https://nytimes.com/athletic/5693362/2024/08/10/tennessee-titans-takeaways-49ers-preseason/
 
