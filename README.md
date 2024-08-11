@@ -1,3 +1,7 @@
+**The Summer Camps of Ukraine’s Forests: Hikes, First Aid and Military Readiness**\
+`As the once carefree summers of Ukrainian childhood and young adulthood are forever altered by war, traditional camps have taken on a more patriotic tone.`\
+https://nytimes.com/2024/08/11/world/europe/ukraine-summer-camps-war.html
+
 **Behind the Scenes of the ‘Treasure Hunt’ for Olympic History**\
 `Members of the Olympic Museum’s heritage acquisitions team fan out during the Games to get donations to put on display in Lausanne, Switzerland.`\
 https://nytimes.com/2024/08/11/world/olympics/olympics-museum.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/11/health/maternal-mortality-mississippi.html
 **Quotation of the Day: Lahaina Sifts Its Layers of History as It Rebuilds**\
 `Quotation of the Day for Sunday, August 11, 2024.`\
 https://nytimes.com/2024/08/11/pageoneplus/quotation-of-the-day-lahaina-sifts-its-layers-of-history-as-it-rebuilds.html
-
-**Corrections: Aug. 11, 2024**\
-`Corrections that appeared in print on Sunday, Aug. 11, 2024.`\
-https://nytimes.com/2024/08/11/pageoneplus/corrections-aug-11-2024.html
 
