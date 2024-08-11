@@ -1,3 +1,11 @@
+**Ezi Magbegor leads Australia past Belgium for Olympic bronze in women's basketball**\
+`Australia beat Belgium for women's basketball bronze on Sunday behind 30 points and 13 rebounds from Ezi Magbegor.`\
+https://nytimes.com/athletic/5694035/2024/08/11/australia-belgium-bronze-olympics-womens-basketball/
+
+**Schools Have a Tech Problem**\
+`We explore some of the tech challenges faced by educators.`\
+https://nytimes.com/2024/08/11/briefing/techonology-schools.html
+
 **The Briefing: Wrexham 3 Wycombe 2 - Hollywood in town, a hit in the U.S. and an underrated strikeforce?**\
 `Wrexham returned to League One after a 19-year absence with Ryan Reynolds and Rob McElhenney watching on and millions tuning in from the U.S`\
 https://nytimes.com/athletic/5690939/2024/08/11/wrexham-3-wycombe-2-hollywood-in-town-a-hit-in-the-u-s-and-an-underrated-strikeforce/
