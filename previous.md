@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5650965/2024/08/11/post-olympic-blues-medal-depress
 `By Peter Baker`\
 https://nytimes.com/live/2024/08/11/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 
-**Live Election Updates: Biden to Give First Interview Since Leaving the Race**\
+**Live Election Updates: Biden Gives First Interview Since Leaving the Race**\
 `In a CBS interview airing Sunday morning, President Biden, 81, will acknowledge the challenge his age brought to his re-election effort.`\
 https://nytimes.com/live/2024/08/11/us/harris-trump-election
 
