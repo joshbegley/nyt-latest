@@ -1,3 +1,7 @@
+**Sunday's MLB odds, best bets: Predictions for pitching matchups, props, playoffs and more**\
+`See pitching matchups, playoff projections, win projections and more for Sunday's MLB games.`\
+https://nytimes.com/athletic/5693244/2024/08/11/mlb-odds-best-bets-projections-august-11/
+
 **Rallying in Las Vegas, Harris Pledges to End Federal Taxes on Tips**\
 `In the final stop of the Harris-Walz introductory tour, Vice President Kamala Harris said that, if elected, she would end federal income tax on tips, mirroring a proposal made by former President Donald J. Trump.`\
 https://nytimes.com/2024/08/10/us/politics/harris-trump-taxes-tips.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5693641/2024/08/10/diamondbacks-ketel-marte-zac-gal
 **Ten observations from Packers' preseason win over Browns**\
 `Jordan Love and the offense struck quickly, Lukas Van Ness continued to make plays and wide receiver Grant DuBose impressed.`\
 https://nytimes.com/athletic/5693421/2024/08/10/packers-browns-preseason-observations/
-
-**J.J. McCarthy’s debut and 9 more Vikings thoughts from preseason win over Raiders**\
-`Minnesota's rookie quarterback bounced back from an early interception to throw two touchdowns. Coach Kevin O'Connell was impressed.`\
-https://nytimes.com/athletic/5693575/2024/08/10/vikings-raiders-jj-mccarthy-preseason/
 

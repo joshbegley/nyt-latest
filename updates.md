@@ -1,3 +1,7 @@
+**Sunday's MLB odds, best bets: Predictions for pitching matchups, props, playoffs and more**\
+`See pitching matchups, playoff projections, win projections and more for Sunday's MLB games.`\
+https://nytimes.com/athletic/5693244/2024/08/11/mlb-odds-best-bets-projections-august-11/
+
 **Rallying in Las Vegas, Harris Pledges to End Federal Taxes on Tips**\
 `In the final stop of the Harris-Walz introductory tour, Vice President Kamala Harris said that, if elected, she would end federal income tax on tips, mirroring a proposal made by former President Donald J. Trump.`\
 https://nytimes.com/2024/08/10/us/politics/harris-trump-taxes-tips.html
