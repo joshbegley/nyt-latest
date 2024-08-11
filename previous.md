@@ -1,7 +1,3 @@
-**One of the brightest stars at the Olympics isn’t an athlete. It’s Snoop Dogg.**\
-`By Emmanuel Morgan`\
-https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/one-of-the-brightest-stars-at-the-olympics-isnt-an-athlete-its-snoop-dogg
-
 **U.S.-France most watched men's basketball gold medal game since 1996**\
 `Team USA earned its fifth-straight gold medal in a 98-87 victory over France.`\
 https://nytimes.com/athletic/5694751/2024/08/11/usa-france-basketball-olympics-viewership/
@@ -10,9 +6,9 @@ https://nytimes.com/athletic/5694751/2024/08/11/usa-france-basketball-olympics-v
 `Chelsea&#8217;s proposed move for Atletico Madrid forward Samu Omorodion has collapsed.`\
 https://nytimes.com/athletic/5689584/2024/08/11/samu-omorodion-chelsea-deal/
 
-**Tom Cruise pulls off another stunt.**\
-`By Alissa Wilkinson`\
-https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/tom-cruise-closing-ceremony-paris
+**Tom Cruise Jumps Off Stadium Roof to Pass Baton to Los Angeles**\
+`Cruise, one of Hollywood’s most well-known movie stars, rappelled down into the Stade de France, and the crowd of Olympians went wild as Paris handed over to the next Summer Games, in Los Angeles.`\
+https://nytimes.com/2024/08/11/world/olympics/tom-cruise-closing-ceremony-paris.html
 
 **The best thing I saw at the Paris Olympics**\
 `As our staff departs Paris, we asked them to share their favorite memories from the 2024 Paris Olympics. Here's what they said.`\
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5694726/2024/08/11/red-bull-salzburg-bobby-clark/
 **Jordan Chiles to lose Olympic bronze after court overturns score change**\
 `The IOC will strip Jordan Chiles of her bronze medal after a court ruling overturned a scoring correction in the floor exercise final.`\
 https://nytimes.com/athletic/5693972/2024/08/11/jordan-chiles-bronze-medal-olympics-ioc-reallocate/
+
+**West Ham to sign Wan-Bissaka from Manchester United**\
+`West Ham United are set to complete the signing of Aaron Wan-Bissaka after agreeing personal terms with the Manchester United defender.`\
+https://nytimes.com/athletic/5643217/2024/08/11/aaron-wan-bissaka-west-ham/
 

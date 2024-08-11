@@ -1,3 +1,11 @@
+**Tom Cruise Jumps Off Stadium Roof to Pass Baton to Los Angeles**\
+`Cruise, one of Hollywood’s most well-known movie stars, rappelled down into the Stade de France, and the crowd of Olympians went wild as Paris handed over to the next Summer Games, in Los Angeles.`\
+https://nytimes.com/2024/08/11/world/olympics/tom-cruise-closing-ceremony-paris.html
+
+**West Ham to sign Wan-Bissaka from Manchester United**\
+`West Ham United are set to complete the signing of Aaron Wan-Bissaka after agreeing personal terms with the Manchester United defender.`\
+https://nytimes.com/athletic/5643217/2024/08/11/aaron-wan-bissaka-west-ham/
+
 **One of the brightest stars at the Olympics isn’t an athlete. It’s Snoop Dogg.**\
 `By Emmanuel Morgan`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/one-of-the-brightest-stars-at-the-olympics-isnt-an-athlete-its-snoop-dogg
