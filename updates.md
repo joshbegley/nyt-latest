@@ -1,3 +1,7 @@
+**Swim Towards the Shark**\
+`In a crisis, when all logic suggests that you get away, how will you respond?`\
+https://nytimes.com/2024/08/11/podcasts/swim-towards-the-shark-this-american-life-nyt-audio.html
+
 **How Close Are the Planet’s Climate Tipping Points?**\
 `Earth’s warming could trigger sweeping changes in the natural world that would be hard, if not impossible, to reverse.`\
 https://nytimes.com/interactive/2024/08/11/climate/earth-warming-climate-tipping-points.html
