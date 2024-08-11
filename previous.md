@@ -1,3 +1,7 @@
+**The Briefing: Wrexham 3 Wycombe 2 - Hollywood in town, a hit in the U.S. and an underrated strikeforce?**\
+`Wrexham returned to League One after a 19-year absence with Ryan Reynolds and Rob McElhenney watching on and millions tuning in from the U.S`\
+https://nytimes.com/athletic/5690939/2024/08/11/wrexham-3-wycombe-2-hollywood-in-town-a-hit-in-the-u-s-and-an-underrated-strikeforce/
+
 **Fulham make £20m offer for Crystal Palace defender Andersen**\
 `Fulham have submitted a £20million offer for Crystal Palace defender Joachim Andersen.`\
 https://nytimes.com/athletic/5693917/2024/08/11/joachim-andersen-fulham-crystal-palace-bid/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/11/opinion/katie-couric-network-anchors-women.html
 **Wordle Review No. 1,150**\
 `Scroll down for hints and conversation about the puzzle for Monday, August 12, 2024.`\
 https://nytimes.com/2024/08/11/crosswords/wordle-review-1150.html
-
-**The Connections Companion No. 428**\
-`Scroll down for hints and conversation about the puzzle for Monday, Aug. 12, 2024.`\
-https://nytimes.com/2024/08/11/crosswords/connections-companion-428.html
 
