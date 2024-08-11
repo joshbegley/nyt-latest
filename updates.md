@@ -1,3 +1,11 @@
+**West Ham to sign Wan-Bissaka from Manchester United**\
+`West Ham United are set to complete the signing of Aaron Wan-Bissaka after agreeing personal terms with the Manchester United defender.`\
+https://nytimes.com/athletic/5643217/2024/08/11/aaron-wan-bissaka-west-ham/
+
+**Phoenix and Air revisit French Touch with help from friends.**\
+`By Hank Shteamer`\
+https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/phoenix-and-air-revisit-french-touch-with-help-from-friends
+
 **Monday Briefing: Israel Widens Evacuation Orders**\
 `Plus, house calls for nomads.`\
 https://nytimes.com/2024/08/11/briefing/gaza-evacuations-olympics-harris-walz.html
