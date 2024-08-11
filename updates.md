@@ -1,3 +1,11 @@
+**River Ryan goes down, and the Dodgers' rotation questions continue**\
+`“He was making a case for himself,” manager Dave Roberts said.`\
+https://nytimes.com/athletic/5693821/2024/08/11/dodgers-river-ryan-injury-pitching-rotation/
+
+**Even for Stephen Curry, that Olympic gold-medal game performance was ridiculous**\
+`Nothing Stephen Curry does should surprise us. And yet, Saturday's gold-clinching finish was a work of art worthy of a place in history.`\
+https://nytimes.com/athletic/5693189/2024/08/11/stephen-curry-olympics-gold-medal-game-team-usa/
+
 **Disney Details Vast Theme Park Expansion Projects**\
 `The company, which has recently seen softening visitor demand, will spend billions to build new rides and expand its cruise ship fleet to 13 from nine.`\
 https://nytimes.com/2024/08/11/business/disney-parks-new-rides.html
