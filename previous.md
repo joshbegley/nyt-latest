@@ -1,5 +1,9 @@
+**Olympic Marathon Course Lets Amateurs Inside the Ropes**\
+`A public marathon and a series of overnight 10Ks offered recreational runners a chance to feel closer to the Games.`\
+https://nytimes.com/2024/08/11/world/olympics/olympics-marathon-for-everyone.html
+
 **The Briefing: Arsenal 2 Lyon 0: A glimpse of Calafiori, Saka's new weapon and fresh set-piece schemes**\
-`We break down some of the key points from Arsenal's win against Lyon — their final pre-season friendly of the summer`\
+`We break down some of the key points from Arsenal's win against Lyon - their final pre-season friendly of the summer`\
 https://nytimes.com/athletic/5692464/2024/08/11/arsenal-lyon-friendly-result-analysis/
 
 **Scofflaws and Other Hazards on the Roads**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/11/world/olympics/sifan-hassan-marathon-olympics.htm
 **The 'post-Olympic blues': Why do so many competitors suffer an emotional comedown?**\
 `There is growing awareness of the emotional difficulties athletes face after achieving their goals. Here's how they are being helped `\
 https://nytimes.com/athletic/5650965/2024/08/11/post-olympic-blues-medal-depression/
-
-**Here’s the latest on the presidential race.**\
-`By Peter Baker`\
-https://nytimes.com/live/2024/08/11/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 

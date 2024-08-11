@@ -1,3 +1,11 @@
+**Olympic Marathon Course Lets Amateurs Inside the Ropes**\
+`A public marathon and a series of overnight 10Ks offered recreational runners a chance to feel closer to the Games.`\
+https://nytimes.com/2024/08/11/world/olympics/olympics-marathon-for-everyone.html
+
+**The Briefing: Arsenal 2 Lyon 0: A glimpse of Calafiori, Saka's new weapon and fresh set-piece schemes**\
+`We break down some of the key points from Arsenal's win against Lyon - their final pre-season friendly of the summer`\
+https://nytimes.com/athletic/5692464/2024/08/11/arsenal-lyon-friendly-result-analysis/
+
 **The Briefing: Arsenal 2 Lyon 0: A glimpse of Calafiori, Saka's new weapon and fresh set-piece schemes**\
 `We break down some of the key points from Arsenal's win against Lyon — their final pre-season friendly of the summer`\
 https://nytimes.com/athletic/5692464/2024/08/11/arsenal-lyon-friendly-result-analysis/
