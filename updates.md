@@ -1,3 +1,7 @@
+**For Brittney Griner, a gold-medal Olympic run brings a gratitude for freedom**\
+`After her detainment in Russia, Griner's Olympic win was emotional.`\
+https://nytimes.com/athletic/5694533/2024/08/11/brittney-griner-olympics-womens-basketball-gold/
+
 **Before exceeding France’s expectations, Léon Marchand embraced them.**\
 `By Jenny Vrentas`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/before-exceeding-frances-expectations-leon-marchand-embraced-them
