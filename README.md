@@ -1,3 +1,7 @@
+**Aidan O'Connell, Gardnew Minshew play well in Raiders' preseason loss to Vikings**\
+`It's been a rough start to training camp for the Raiders' quarterback battle, but both contenders look good in Saturday's preseason opener.`\
+https://nytimes.com/athletic/5693530/2024/08/10/raiders-vikings-aidan-oconnell-gardner-minshew/
+
 **Browns stock report: Who's up, who's down following preseason loss to Packers?**\
 `We take a look at where Cleveland has excelled and where it's lacking after 11 training camp practices and one preseason game. `\
 https://nytimes.com/athletic/5693375/2024/08/10/browns-packers-preseason-stock-report/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/10/world/middleeast/israel-gaza-war-strike-school.ht
 **USWNT overcomes a year of change to win Olympic gold again: 'I'm just in awe'**\
 `The U.S. bounced back from its World Cup loss to secure gold a year later`\
 https://nytimes.com/athletic/5693321/2024/08/10/uswnt-olympic-gold-journey/
-
-**What Caused a Plane to Fall From the Sky in Brazil?**\
-`Officials are investigating potential causes of a plane crash that killed 62 people near São Paulo. Using videos and other clues, aviation experts have formed theories.`\
-https://nytimes.com/2024/08/10/world/americas/brazil-plane-crash-investigation.html
 
