@@ -1,3 +1,7 @@
+**Red Bull Salzburg submit bid for Liverpool's Clark**\
+`Red Bull Salzburg have stepped up their pursuit of Liverpool midfielder Bobby Clark with an offer of around €9.`\
+https://nytimes.com/athletic/5694726/2024/08/11/red-bull-salzburg-bobby-clark/
+
 **Jordan Chiles to lose Olympic bronze after court overturns score change**\
 `The IOC will strip Jordan Chiles of her bronze medal after a court ruling overturned a scoring correction in the floor exercise final.`\
 https://nytimes.com/athletic/5693972/2024/08/11/jordan-chiles-bronze-medal-olympics-ioc-reallocate/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5694258/2024/08/11/team-usa-womens-basketball-gold-
 **Paris raised the fashion stakes for the Olympics.**\
 `By Vanessa Friedman`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/paris-raised-the-fashion-stakes-for-the-olympics
-
-**Olympians can list their injuries as readily as their achievements.**\
-`By James Wagner`\
-https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/olympians-can-list-their-injuries-as-readily-as-their-achievements
 
