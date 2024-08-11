@@ -1,4 +1,4 @@
-**Jackson Merrill and the Padres come back again and something special is happening**\
+**Jackson Merrill, Padres come back again and something special is happening**\
 `The Padres are riding an intoxicating wave. It's not just that they're winning, but how they keep winning.`\
 https://nytimes.com/athletic/5693555/2024/08/10/jackson-merrill-padres-comeback/
 
