@@ -1,3 +1,7 @@
+**Man Who Attacked Muslim Postal Carrier Is Sentenced to 37 Months in Prison**\
+`Kenneth Pinkney, of Fort Lauderdale, Fla., pleaded guilty to a hate crime in assaulting the carrier, who was wearing a hijab as she delivered the mail in October.`\
+https://nytimes.com/2024/08/11/us/florida-man-postal-carrier-hijab.html
+
 **The Pulse: A day of American thrillers**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/5694333/2024/08/11/usa-basketball-uswnt-olympics-jordan-chiles-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5692464/2024/08/11/arsenal-lyon-friendly-result-ana
 **Scofflaws and Other Hazards on the Roads**\
 `Readers react to articles about the rise in traffic deaths. Also: Neo-Nazis in Nashville; JD Vance and the rule of law; a ban on masks.`\
 https://nytimes.com/2024/08/11/opinion/traffic-deaths.html
-
-**Pedro Neto to Chelsea: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we analyse and rate Pedro Neto's move to Chelsea `\
-https://nytimes.com/athletic/5691509/2024/08/11/pedro-neto-chelsea-the-athletic-500-transfer-rating/
 

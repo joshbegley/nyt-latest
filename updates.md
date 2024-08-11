@@ -1,3 +1,7 @@
+**The Briefing: Chelsea 1 Inter 1 - Is this Maresca's plan for City? What now for Chilwell?**\
+`With the Premier League season just days away, we analyse Chelsea's final pre-season game against Inter Milan`\
+https://nytimes.com/athletic/5692465/2024/08/11/chelsea-inter-milan-maresca-chilwell/
+
 **The Pulse: A day of American thrillers**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/5694333/2024/08/11/usa-basketball-uswnt-olympics-jordan-chiles-the-pulse/
