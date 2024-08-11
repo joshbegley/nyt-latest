@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5693431/2024/08/10/bears-bills-josh-allen-keon-coleman/
 
 **'Very similar to David Ortiz': Astros' Yordan Alvarez homers twice as Red Sox lose**\
-`Alex Cora had high praise for Yordan Alvarez, who's batting .304 with 24 home runs: "Seems like he likes hitting here."`\
+`Alex Cora had high praise for Alvarez, who's batting .304 with 24 home runs: "Seems like he likes hitting here."`\
 https://nytimes.com/athletic/5693419/2024/08/10/astros-yordan-alvarez-david-ortiz/
 
 **Harris Hopes a New Playbook Will Neutralize G.O.P. Attacks on Immigration**\
