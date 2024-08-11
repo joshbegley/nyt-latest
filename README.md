@@ -1,3 +1,11 @@
+**Jordan Chiles Lost a Bronze Medal Because an Appeal Was Four Seconds Late**\
+`An inquiry by Chiles’s coach led judges to adjust her score and give her a medal. A court ruled the inquiry came too late. Now, the I.O.C. wants her bronze back.`\
+https://nytimes.com/2024/08/11/world/olympics/jordan-chiles-gymnastics-medal.html
+
+**JD Vance said he supported Trump’s wishes for presidential influence over the Federal Reserve.**\
+`By Minho Kim`\
+https://nytimes.com/live/2024/08/11/us/harris-trump-election/jd-vance-fed
+
 **Bob Tischler, Who Helped Revive ‘Saturday Night Live,’ Dies at 78**\
 `A producer of “The National Lampoon Radio Hour” and albums by the Blues Brothers, he became S.N.L.’s head writer after a dismal season early in its history.`\
 https://nytimes.com/2024/08/11/arts/television/bob-tischler-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5694320/2024/08/11/tomiyasu-injury-arsenal/
 **Boxer Khelif files complaint over online harassment**\
 `A lawyer for Algerian boxer Imane Khelif says the gold medal-winning boxer has asked prosecutors in Paris to look into online harassment she faced during the Olympics about her gender and presence at the Games.`\
 https://nytimes.com/athletic/5694278/2024/08/11/imane-khelif-olympics-online-harassment/
-
-**The Briefing: Chelsea 1 Inter 1 - Is this Maresca's plan for City? What now for Chilwell?**\
-`With the Premier League season just days away, we analyse Chelsea's final pre-season game against Inter Milan`\
-https://nytimes.com/athletic/5692465/2024/08/11/chelsea-inter-milan-maresca-chilwell/
-
-**What ‘It Ends With Us’ Says About the Blake Lively Brand**\
-`The images onscreen are informed by the actress’s offscreen businesses, making the movie a fascinating study in the uses of star power.`\
-https://nytimes.com/2024/08/11/movies/it-ends-with-us-blake-lively-brand.html
 
