@@ -1,3 +1,11 @@
+**The Hacking of Presidential Campaigns Begins, With the Usual Fog of Motives**\
+`Donald J. Trump says his campaign was hacked by the Iranians, but obtained publicly available data. Microsoft said Iranian hackers sent a spear phishing email to a “high-ranking official” on a presidential campaign.`\
+https://nytimes.com/2024/08/11/us/politics/trump-campaign-hacking-iran.html
+
+**Paris, Uncharacteristically Giddy, Bids Au Revoir to the Olympics**\
+`A joyous Games, a cleaned-up Seine and improvements to the region brought cheer to Parisians as they handed off the summer Olympics to Los Angeles.`\
+https://nytimes.com/2024/08/11/paris-closing-ceremony-los-angeles.html
+
 **Chelsea make Joao Felix enquiry**\
 `Chelsea have begun talks with Atletico Madrid regarding the possibility of signing Portugal forward Joao Felix.`\
 https://nytimes.com/athletic/5650431/2024/08/11/joao-felix-chelsea/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/one-of
 **U.S.-France most watched men's basketball gold medal game since 1996**\
 `Team USA earned its fifth-straight gold medal in a 98-87 victory over France.`\
 https://nytimes.com/athletic/5694751/2024/08/11/usa-france-basketball-olympics-viewership/
-
-**Omorodion's move to Chelsea collapses**\
-`Chelsea&#8217;s proposed move for Atletico Madrid forward Samu Omorodion has collapsed.`\
-https://nytimes.com/athletic/5689584/2024/08/11/samu-omorodion-chelsea-deal/
-
-**Tom Cruise Jumps Off Stadium Roof to Pass Baton to Los Angeles**\
-`Cruise, one of Hollywood’s most well-known movie stars, rappelled down into the Stade de France, and the crowd of Olympians went wild as Paris handed over to the next Summer Games, in Los Angeles.`\
-https://nytimes.com/2024/08/11/world/olympics/tom-cruise-closing-ceremony-paris.html
 
