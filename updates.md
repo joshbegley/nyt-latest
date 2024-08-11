@@ -1,3 +1,7 @@
+**Giants' Nabers suffers ankle injury; Neal returns from PUP**\
+`Rookie WR Malik Nabers left Sunday's practice early with what the team believes to be a minor ankle sprain.`\
+https://nytimes.com/athletic/5694399/2024/08/11/malik-nabers-new-york-giants-injury-evan-neal/
+
 **Olympic surfing came to a ‘poisoned’ paradise.**\
 `By Hannah Beech and Adam Ferguson`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/olympic-surfing-came-to-a-poisoned-paradise
