@@ -6,8 +6,8 @@ https://nytimes.com/athletic/5694751/2024/08/11/usa-france-basketball-olympics-v
 `Chelsea&#8217;s proposed move for Atletico Madrid forward Samu Omorodion has collapsed.`\
 https://nytimes.com/athletic/5689584/2024/08/11/samu-omorodion-chelsea-deal/
 
-**Tom Cruise pulls off another stunt.**\
-`By Alissa Wilkinson`\
+**Tom Cruise Jumps Off Stadium Roof to Pass Baton to Los Angeles**\
+`Cruise, one of Hollywood’s most well-known movie stars, rappelled down into the Stade de France, and the crowd of Olympians went wild as Paris handed over to the next Summer Games, in Los Angeles.`\
 https://nytimes.com/2024/08/11/world/olympics/tom-cruise-closing-ceremony-paris.html
 
 **The best thing I saw at the Paris Olympics**\
