@@ -1,3 +1,11 @@
+**Bills-Bears: 5 takeaways from the preseason opener in Buffalo**\
+`Allen saw one quarter of action, while rookie receiver Keon Coleman got plenty of snaps with the first-team offense.`\
+https://nytimes.com/athletic/5693431/2024/08/10/bears-bills-josh-allen-keon-coleman/
+
+**'Very similar to David Ortiz': Astros' Yordan Alvarez homers twice as Red Sox lose**\
+`Alex Cora had high praise for Alvarez, who's batting .304 with 24 home runs: "Seems like he likes hitting here."`\
+https://nytimes.com/athletic/5693419/2024/08/10/astros-yordan-alvarez-david-ortiz/
+
 **'Very similar to David Ortiz': Astros' Yordan Alvarez homers twice as Red Sox lose**\
 `Alex Cora had high praise for Yordan Alvarez, who's batting .304 with 24 home runs: "Seems like he likes hitting here."`\
 https://nytimes.com/athletic/5693419/2024/08/10/astros-yordan-alvarez-david-ortiz/

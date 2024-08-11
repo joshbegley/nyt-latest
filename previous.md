@@ -1,5 +1,9 @@
+**Bills-Bears: 5 takeaways from the preseason opener in Buffalo**\
+`Allen saw one quarter of action, while rookie receiver Keon Coleman got plenty of snaps with the first-team offense.`\
+https://nytimes.com/athletic/5693431/2024/08/10/bears-bills-josh-allen-keon-coleman/
+
 **'Very similar to David Ortiz': Astros' Yordan Alvarez homers twice as Red Sox lose**\
-`Alex Cora had high praise for Yordan Alvarez, who's batting .304 with 24 home runs: "Seems like he likes hitting here."`\
+`Alex Cora had high praise for Alvarez, who's batting .304 with 24 home runs: "Seems like he likes hitting here."`\
 https://nytimes.com/athletic/5693419/2024/08/10/astros-yordan-alvarez-david-ortiz/
 
 **Harris Hopes a New Playbook Will Neutralize G.O.P. Attacks on Immigration**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5693242/2024/08/10/jayden-daniels-commanders-presea
 **Take the El Train**\
 `Caryn Robbins presents an excellent puzzle for her Sunday debut.`\
 https://nytimes.com/2024/08/10/crosswords/daily-puzzle-2024-08-11.html
-
-**U.S. men’s basketball was tested. Stephen Curry had the answer.**\
-`A flurry of Stephen Curry 3-pointers helped the United States survive a French challenge and win a fifth straight gold medal.`\
-https://nytimes.com/2024/08/10/world/olympics/usa-basketball-gold-steph-curry.html
 
