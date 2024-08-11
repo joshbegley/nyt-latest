@@ -18,8 +18,8 @@ https://nytimes.com/athletic/5694222/2024/08/11/van-dijk-liverpool-transfers/
 `She first noticed the scent on her husband. Now her abilities are helping unlock new research in early disease detection.`\
 https://nytimes.com/2024/08/11/podcasts/the-daily/parkinsons-diagnosis-smell.html
 
-**Giants WR Malik Nabers suffers ankle injury; OL Evan Neal returns from PUP**\
-`The Giants believe Nabers' injury is only a minor one. `\
+**Giants' Nabers suffers ankle injury; Neal returns from PUP**\
+`Rookie WR Malik Nabers left Sunday's practice early with what the team believes to be a minor ankle sprain.`\
 https://nytimes.com/athletic/5694399/2024/08/11/malik-nabers-new-york-giants-injury-evan-neal/
 
 **What we learned from Emma Hayes' victorious USWNT at the Paris Olympics**\
