@@ -1,3 +1,7 @@
+**The mayor of Los Angeles is ready to take the handoff from Paris.**\
+`By Jill Cowan`\
+https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/the-mayor-of-los-angeles-is-ready-to-take-the-handoff-from-paris
+
 **Man Is Charged With Hate Crime in Stabbing Near Brooklyn Synagogue**\
 `The police said the man, Vincent Sumpter, yelled “Free Palestine” before stabbing another man near the headquarters of the Chabad-Lubavitch movement.`\
 https://nytimes.com/2024/08/11/nyregion/brooklyn-stabbing-hate-crime.html
