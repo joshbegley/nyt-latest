@@ -1,3 +1,7 @@
+**Chelsea make Joao Felix enquiry**\
+`Chelsea have begun talks with Atletico Madrid regarding the possibility of signing Portugal forward Joao Felix.`\
+https://nytimes.com/athletic/5650431/2024/08/11/joao-felix-chelsea/
+
 **Trotter: IOC shows little courage in handling of Jordan Chiles ruling**\
 `Lingering controversy could have been shut down had the organization followed the spirit of its mission and awarded multiple bronze medals.`\
 https://nytimes.com/athletic/5694660/2024/08/11/jordan-chiles-olympics-gymnastics-ioc-ana-barbosu/
