@@ -1,3 +1,15 @@
+**JD Vance Repeats ‘Anti-Family’ Criticism of Democrats on Sunday Morning News Show Tour**\
+`The Republican vice-presidential nominee also defended Donald Trump’s abortion policies.`\
+https://nytimes.com/2024/08/11/us/politics/jd-vance-trump-harris-democrats.html
+
+**Unbowed by rain and arson attacks, the opening ceremony unfolded as a party on the Seine.**\
+`By Roger Cohen`\
+https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/unbowed-by-rain-and-arson-attacks-the-opening-ceremony-unfolded-as-a-party-on-the-seine
+
+**McDowell suspended for violating LIV Golf anti-doping policy**\
+`Graeme McDowell has been suspended by LIV Golf after violating the organisation&#8217;s anti-doping policy.`\
+https://nytimes.com/athletic/5694443/2024/08/11/graeme-mcdowell-suspension-liv-golf/
+
 **JD Vance Supports Trump on Presidential Influence Over Federal Reserve**\
 `The Republican vice-presidential nominee said presidents should have a say in determining the benchmark interest rate.`\
 https://nytimes.com/2024/08/11/us/politics/jd-vance-fed.html

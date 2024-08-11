@@ -1,3 +1,7 @@
+**The Briefing: Liverpool vs Sevilla and Las Palmas - What did we learn from two games in one day?**\
+`Liverpool played two pre-season games in one day before the Premier League kick-off next weekend - here's what we learnt.`\
+https://nytimes.com/athletic/5692463/2024/08/11/liverpool-sevilla-las-palmas-slot/
+
 **JD Vance Repeats ‘Anti-Family’ Criticism of Democrats on Sunday Morning News Show Tour**\
 `The Republican vice-presidential nominee also defended Donald Trump’s abortion policies.`\
 https://nytimes.com/2024/08/11/us/politics/jd-vance-trump-harris-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/11/world/olympics/jordan-chiles-gymnastics-medal.htm
 **JD Vance Supports Trump on Presidential Influence Over Federal Reserve**\
 `The Republican vice-presidential nominee said presidents should have a say in determining the benchmark interest rate.`\
 https://nytimes.com/2024/08/11/us/politics/jd-vance-fed.html
-
-**Bob Tischler, Who Helped Revive ‘Saturday Night Live,’ Dies at 78**\
-`A producer of “The National Lampoon Radio Hour” and albums by the Blues Brothers, he became S.N.L.’s head writer after a dismal season early in its history.`\
-https://nytimes.com/2024/08/11/arts/television/bob-tischler-dead.html
 
