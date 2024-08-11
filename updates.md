@@ -1,3 +1,19 @@
+**Why European soccer headed to the U.S. for preseason - and what comes next?**\
+`Premier League, La Liga and Serie A clubs have rushed to the States for lucrative preseason tours in recent years, but is it sustainable?`\
+https://nytimes.com/athletic/5690346/2024/08/11/manchester-united-pre-season-european-soccer/
+
+**How will Arne Slot use Liverpool's academy this season?**\
+`New head coach Slot's youth credentials are strong but will he be prepared to blood Liverpool's youth when the stakes are so high?`\
+https://nytimes.com/athletic/5674734/2024/08/11/liverpool-arne-slot-academy/
+
+**Wayne Rooney at Plymouth: A final chance to build a lasting managerial career?**\
+`Rooney's appointment to his latest job was met with negativity from sections of the fanbase but he is starting to win them over`\
+https://nytimes.com/athletic/5692457/2024/08/11/wayne-rooney-plymouth-manager-championship/
+
+**Vaseline, hairspray, shaving foam... What's the best substance to put on goalkeeper gloves?**\
+`Manchester United's Andre Onana favours Vaseline, but other options are available - we asked our goalkeeping expert to test them out`\
+https://nytimes.com/athletic/5618674/2024/08/11/vaseline-hairspray-shaving-foam-whats-the-best-substance-to-put-on-goalkeeper-gloves/
+
 **The Olympics, a Triumph of Ambition, Lift France From Its Gloom**\
 `All sectors of society came together to achieve the nation’s dream for the Games. Success has shown that unity is possible, if often elusive.`\
 https://nytimes.com/2024/08/11/world/europe/olympics-paris-france-unity.html
