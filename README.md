@@ -1,3 +1,19 @@
+**Behind the Scenes of the ‘Treasure Hunt’ for Olympic History**\
+`Members of the Olympic Museum’s heritage acquisitions team fan out during the Games to get donations to put on display in Lausanne, Switzerland.`\
+https://nytimes.com/2024/08/11/world/olympics/olympics-museum.html
+
+**A Jazz DJ’s Lifetime of Knowledge Leaves Queens for a New Nashville Home**\
+`Phil Schaap’s childhood home held what may be the largest collection of recorded jazz interviews, an archive that will now be housed at Vanderbilt University.`\
+https://nytimes.com/2024/08/11/nyregion/phil-schaap-jazz-vanderbilt.html
+
+**‘We Exchanged Small Talk, and I Asked Him About the Hat’**\
+`Saving a treasured item from the trash, making summer plans and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/08/11/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/11/crosswords/spelling-bee-forum.html
+
 **A Place Where It Snows All Summer**\
 `At a factory in western New York, the holiday décor brand Buffalo Snow has been manufacturing blizzards for almost 40 years.`\
 https://nytimes.com/2024/08/11/style/buffalo-snow-fake.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/08/11/pageoneplus/quotation-of-the-day-lahaina-sifts-it
 **Corrections: Aug. 11, 2024**\
 `Corrections that appeared in print on Sunday, Aug. 11, 2024.`\
 https://nytimes.com/2024/08/11/pageoneplus/corrections-aug-11-2024.html
-
-**Five who impressed, 4 who struggled and one who made you think in the Bengals' preseason**\
-`Joe Burrow and Tee Higgins were superb in limited work, while there were major ups and downs for the talented rookie class.`\
-https://nytimes.com/athletic/5693780/2024/08/11/bengals-preseason-opener-5-who-impressed-4-who-struggled-and-one-who-made-you-think/
-
-**Easton Stick and the Chargers offense sputter in Jim Harbaugh's preseason debut**\
-`Stick, the Chargers' backup QB, completed just 5 of 13 passes for 31 yards and an interception in the 16-3 loss.`\
-https://nytimes.com/athletic/5693844/2024/08/11/chargers-seahawks-jim-harbaugh-preseason-debut/
-
-**River Ryan goes down, and the Dodgers' rotation questions continue**\
-`“He was making a case for himself,” manager Dave Roberts said.`\
-https://nytimes.com/athletic/5693821/2024/08/11/dodgers-river-ryan-injury-pitching-rotation/
-
-**Even for Stephen Curry, that Olympic gold-medal game performance was ridiculous**\
-`Nothing Stephen Curry does should surprise us. And yet, Saturday's gold-clinching finish was a work of art worthy of a place in history.`\
-https://nytimes.com/athletic/5693189/2024/08/11/stephen-curry-olympics-gold-medal-game-team-usa/
 
