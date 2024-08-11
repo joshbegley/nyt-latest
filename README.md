@@ -1,3 +1,7 @@
+**Rallying in Las Vegas, Harris Pledges to End Federal Taxes on Tips**\
+`In the final stop of the Harris-Walz introductory tour, Vice President Kamala Harris said that, if elected, she would end federal income tax on tips, mirroring a proposal made by former President Donald J. Trump.`\
+https://nytimes.com/2024/08/10/us/politics/harris-trump-taxes-tips.html
+
 **Titans takeaways vs. 49ers: Calvin Ridley's burst, Will Levis' pop, JC Latham's 'C'**\
 `Preseason? When Calvin Ridley took off with a short pass from Will Levis for a 22-yard gain early vs. the 49ers, the opponent didn't matter.`\
 https://nytimes.com/athletic/5693362/2024/08/10/tennessee-titans-takeaways-49ers-preseason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5693421/2024/08/10/packers-browns-preseason-observa
 **J.J. McCarthy’s debut and 9 more Vikings thoughts from preseason win over Raiders**\
 `Minnesota's rookie quarterback bounced back from an early interception to throw two touchdowns. Coach Kevin O'Connell was impressed.`\
 https://nytimes.com/athletic/5693575/2024/08/10/vikings-raiders-jj-mccarthy-preseason/
-
-**Jackson Merrill, Padres come back again and something special is happening**\
-`The Padres are riding an intoxicating wave. It's not just that they're winning, but how they keep winning.`\
-https://nytimes.com/athletic/5693555/2024/08/10/jackson-merrill-padres-comeback/
 
