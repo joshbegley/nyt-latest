@@ -1,3 +1,7 @@
+**With Marathon Gold, Sifan Hassan Tests the Limits of Endurance**\
+`The Dutch Olympian added a victory in the longest race of the Games to her bronze medals in the 5,000 and 10,000 meters. “What was I thinking?” she said afterward.`\
+https://nytimes.com/2024/08/11/world/olympics/sifan-hassan-marathon-olympics.html
+
 **The 'post-Olympic blues': Why do so many competitors suffer an emotional comedown?**\
 `There is growing awareness of the emotional difficulties athletes face after achieving their goals. Here's how they are being helped `\
 https://nytimes.com/athletic/5650965/2024/08/11/post-olympic-blues-medal-depression/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5693917/2024/08/11/joachim-andersen-fulham-crystal-
 **Upgrading the catching position will be Jed Hoyer's top priority this winter**\
 `Heading into a critical offseason, the Cubs will look to get better at a position where they've been among the league's worst.`\
 https://nytimes.com/athletic/5693458/2024/08/11/cubs-jed-hoyer-catcher/
-
-**Patriots 53-man roster projection: Where things stand after the preseason opener**\
-`Our first Patriots 53-man roster projection since the start of training camp has some tough calls at WR and a plethora of defensive backs.`\
-https://nytimes.com/athletic/5691638/2024/08/11/patriots-53-man-roster-projection-8/
 

@@ -1,3 +1,7 @@
+**With Marathon Gold, Sifan Hassan Tests the Limits of Endurance**\
+`The Dutch Olympian added a victory in the longest race of the Games to her bronze medals in the 5,000 and 10,000 meters. “What was I thinking?” she said afterward.`\
+https://nytimes.com/2024/08/11/world/olympics/sifan-hassan-marathon-olympics.html
+
 **Live Election Updates: Biden Gives First Interview Since Leaving the Race**\
 `In a CBS interview airing Sunday morning, President Biden, 81, will acknowledge the challenge his age brought to his re-election effort.`\
 https://nytimes.com/live/2024/08/11/us/harris-trump-election
