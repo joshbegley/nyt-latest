@@ -1,3 +1,19 @@
+**The Briefing: Arsenal 2 Lyon 0: A glimpse of Calafiori, Saka's new weapon and fresh set-piece schemes**\
+`We break down some of the key points from Arsenal's win against Lyon — their final pre-season friendly of the summer`\
+https://nytimes.com/athletic/5692464/2024/08/11/arsenal-lyon-friendly-result-analysis/
+
+**Scofflaws and Other Hazards on the Roads**\
+`Readers react to articles about the rise in traffic deaths. Also: Neo-Nazis in Nashville; JD Vance and the rule of law; a ban on masks.`\
+https://nytimes.com/2024/08/11/opinion/traffic-deaths.html
+
+**Pedro Neto to Chelsea: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Pedro Neto's move to Chelsea `\
+https://nytimes.com/athletic/5691509/2024/08/11/pedro-neto-chelsea-the-athletic-500-transfer-rating/
+
+**Blueberry, Almond and Lemon, a Truly Great Trio**\
+`Yotam Ottolenghi’s iced, berry-dotted loaf cake is a summertime New York Times Cooking classic.`\
+https://nytimes.com/2024/08/11/dining/blueberry-recipes.html
+
 **Chelsea confirm Neto signing from Wolves**\
 `Chelsea have completed the signing of Pedro Neto from Wolverhampton Wanderers.`\
 https://nytimes.com/athletic/5691359/2024/08/11/chelsea-pedro-neto-wolves-transfer/
