@@ -1,14 +1,26 @@
+**JD Vance Repeats ‘Anti-Family’ Criticism of Democrats on Sunday Morning News Show Tour**\
+`The Republican vice-presidential nominee also defended Donald Trump’s abortion policies.`\
+https://nytimes.com/2024/08/11/us/politics/jd-vance-trump-harris-democrats.html
+
+**Unbowed by rain and arson attacks, the opening ceremony unfolded as a party on the Seine.**\
+`By Roger Cohen`\
+https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/unbowed-by-rain-and-arson-attacks-the-opening-ceremony-unfolded-as-a-party-on-the-seine
+
+**McDowell suspended for violating LIV Golf anti-doping policy**\
+`Graeme McDowell has been suspended by LIV Golf after violating the organisation&#8217;s anti-doping policy.`\
+https://nytimes.com/athletic/5694443/2024/08/11/graeme-mcdowell-suspension-liv-golf/
+
 **For some countries, the wait for an Olympic medal goes on, and on, and on, and on.**\
 `By James Wagner and Jeré Longman`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/for-some-countries-the-wait-for-an-olympic-medal-goes-on-and-on-and-on-and-on
 
-**Here’s the latest on the closing ceremony.**\
-`By Andrew Keh`\
-https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/heres-the-latest-on-the-closing-ceremony
-
 **These were the most unforgettable moments from the Paris Olympics.**\
 `By The New York Times`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/these-were-the-most-unforgettable-moments-from-the-paris-olympics
+
+**Here’s the latest on the closing ceremony.**\
+`By Andrew Keh`\
+https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/heres-the-latest-on-the-closing-ceremony
 
 **U.S., China tie for most golds at Paris Olympics**\
 `Team USA topped the total medal count with 126 and China finished second with 91.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/11/us/politics/jd-vance-fed.html
 **Bob Tischler, Who Helped Revive ‘Saturday Night Live,’ Dies at 78**\
 `A producer of “The National Lampoon Radio Hour” and albums by the Blues Brothers, he became S.N.L.’s head writer after a dismal season early in its history.`\
 https://nytimes.com/2024/08/11/arts/television/bob-tischler-dead.html
-
-**Bob Costas, Al Michaels appear on NBC's Olympics broadcast**\
-`The famed sports announcers starred on NBC's Olympic television broadcasts for years.`\
-https://nytimes.com/athletic/5673455/2024/08/11/bob-costas-al-michaels-nbc-olympics/
-
-**As the Paris Games come to an end, Los Angeles enters the Olympic batter's box**\
-`All eyes turn to Los Angeles, host of the 2028 Olympics. Less than four years out, there's still plenty of work to do.`\
-https://nytimes.com/athletic/5692945/2024/08/11/los-angeles-2028-olympics-paris/
-
-**Team USA's closing ceremony racing outfits, critiqued by a firesuit design expert**\
-`Team USA's closing ceremony outfits draw inspiration from the world of auto racing. Here's what a Toyota firesuit designer thinks of them.`\
-https://nytimes.com/athletic/5598075/2024/08/11/team-usa-closing-ceremony-outfit-nascar-design/
 
