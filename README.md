@@ -1,3 +1,7 @@
+**What Will It Take for Hollywood to Grow Up?**\
+`Even R-rated movies are childish now.`\
+https://nytimes.com/2024/08/11/opinion/deadpool-wolverine-audience-rating.html
+
 **With Marathon Gold, Sifan Hassan Tests the Limits of Endurance**\
 `The Dutch Olympian added a victory in the longest race of the Games to her bronze medals in the 5,000 and 10,000 meters. “What was I thinking?” she said afterward.`\
 https://nytimes.com/2024/08/11/world/olympics/sifan-hassan-marathon-olympics.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5690939/2024/08/11/wrexham-3-wycombe-2-hollywood-in
 **Fulham make £20m offer for Crystal Palace defender Andersen**\
 `Fulham have submitted a £20million offer for Crystal Palace defender Joachim Andersen.`\
 https://nytimes.com/athletic/5693917/2024/08/11/joachim-andersen-fulham-crystal-palace-bid/
-
-**Upgrading the catching position will be Jed Hoyer's top priority this winter**\
-`Heading into a critical offseason, the Cubs will look to get better at a position where they've been among the league's worst.`\
-https://nytimes.com/athletic/5693458/2024/08/11/cubs-jed-hoyer-catcher/
 
