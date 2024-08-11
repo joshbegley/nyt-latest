@@ -1,3 +1,15 @@
+**Merci, Paris: We needed these Olympics**\
+`In the end, against what so many thought Paris 2024 would or wouldn't be, these Olympics delivered on the largest scale.`\
+https://nytimes.com/athletic/5694703/2024/08/11/2024-paris-olympics-merci-thank-you/
+
+**49ers cancel joint practices with Saints**\
+`Kyle Shanahan said Saturday night that 23 players were missing from the team's most recent practice. `\
+https://nytimes.com/athletic/5694929/2024/08/11/49ers-saints-joint-practices-canceled-injuries/
+
+**Trotter: IOC's handling of the Jordan Chiles ruling is disturbing and shameful**\
+`Lingering controversy could have been shut down had the organization followed the spirit of its mission and awarded multiple bronze medals.`\
+https://nytimes.com/athletic/5694660/2024/08/11/jordan-chiles-olympics-gymnastics-ioc-ana-barbosu/
+
 **The Hacking of Presidential Campaigns Begins, With the Usual Fog of Motives**\
 `Donald J. Trump says his campaign was hacked by the Iranians, but obtained publicly available data. Microsoft said Iranian hackers sent a spear phishing email to a “high-ranking official” on a presidential campaign.`\
 https://nytimes.com/2024/08/11/us/politics/trump-campaign-hacking-iran.html
