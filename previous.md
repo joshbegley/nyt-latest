@@ -1,3 +1,7 @@
+**'Very similar to David Ortiz': Astros' Yordan Alvarez homers twice as Red Sox lose**\
+`Alex Cora had high praise for Yordan Alvarez, who's batting .304 with 24 home runs: "Seems like he likes hitting here."`\
+https://nytimes.com/athletic/5693419/2024/08/10/astros-yordan-alvarez-david-ortiz/
+
 **Harris Hopes a New Playbook Will Neutralize G.O.P. Attacks on Immigration**\
 `The Democratic presidential nominee has been pummeled by Donald J. Trump and other Republicans on her immigration record. She is now trying an approach that Democrats say has worked before.`\
 https://nytimes.com/2024/08/10/us/politics/harris-trump-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/10/crosswords/daily-puzzle-2024-08-11.html
 **U.S. men’s basketball was tested. Stephen Curry had the answer.**\
 `A flurry of Stephen Curry 3-pointers helped the United States survive a French challenge and win a fifth straight gold medal.`\
 https://nytimes.com/2024/08/10/world/olympics/usa-basketball-gold-steph-curry.html
-
-**Iowa's once-solved quarterback situation is now a competition and perhaps a controversy**\
-`Northwestern transfer Brendan Sullivan clearly outplayed expected starter Cade McNamara during Saturday's open practice. `\
-https://nytimes.com/athletic/5693193/2024/08/10/iowa-quarterbacks-cade-mcnamara-brendan-sullivan/
 

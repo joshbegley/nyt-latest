@@ -1,3 +1,7 @@
+**'Very similar to David Ortiz': Astros' Yordan Alvarez homers twice as Red Sox lose**\
+`Alex Cora had high praise for Yordan Alvarez, who's batting .304 with 24 home runs: "Seems like he likes hitting here."`\
+https://nytimes.com/athletic/5693419/2024/08/10/astros-yordan-alvarez-david-ortiz/
+
 **Harris Hopes a New Playbook Will Neutralize G.O.P. Attacks on Immigration**\
 `The Democratic presidential nominee has been pummeled by Donald J. Trump and other Republicans on her immigration record. She is now trying an approach that Democrats say has worked before.`\
 https://nytimes.com/2024/08/10/us/politics/harris-trump-immigration.html
