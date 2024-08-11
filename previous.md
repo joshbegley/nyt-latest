@@ -1,3 +1,7 @@
+**Seahawks' defense off to promising start under Mike Macdonald, dominating opener**\
+`It's only the preseason, but the Seahawks squeezed the life out of the Chargers' offense, and their first-round rookie impressed.`\
+https://nytimes.com/athletic/5693760/2024/08/11/seahawks-chargers-mike-macdonald-byron-murphy/
+
 **Takeaways from 49ers' preseason opener: Solid QB play, Malik Mustapha's first impression**\
 `Kyle Shanahan chimed in on quarterback play and his decision to allow assistant Klay Kubiak to call plays against the Titans. `\
 https://nytimes.com/athletic/5693405/2024/08/11/49ers-titans-preseason-quarterbacks-malik-mustapha/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/11/world/europe/olympics-paris-france-unity.html
 **Illustrated insights from the Paris Olympics**\
 `Because I married into a French-American family, I&#8217;ve been experiencing the 2024 Paris Games from two perspectives this month — both as an Olympic tourist and as a temporary Parisian local.`\
 https://nytimes.com/athletic/5689194/2024/08/11/illustrated-insights-from-the-paris-olympics-athlete-sightings-french-enthusiasm-and-more/
-
-**Sunday's MLB odds, best bets: Predictions for pitching matchups, props, playoffs and more**\
-`See pitching matchups, playoff projections, win projections and more for Sunday's MLB games.`\
-https://nytimes.com/athletic/5693244/2024/08/11/mlb-odds-best-bets-projections-august-11/
 

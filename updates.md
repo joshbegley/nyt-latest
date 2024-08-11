@@ -1,3 +1,7 @@
+**Seahawks' defense off to promising start under Mike Macdonald, dominating opener**\
+`It's only the preseason, but the Seahawks squeezed the life out of the Chargers' offense, and their first-round rookie impressed.`\
+https://nytimes.com/athletic/5693760/2024/08/11/seahawks-chargers-mike-macdonald-byron-murphy/
+
 **Takeaways from 49ers' preseason opener: Solid QB play, Malik Mustapha's first impression**\
 `Kyle Shanahan chimed in on quarterback play and his decision to allow assistant Klay Kubiak to call plays against the Titans. `\
 https://nytimes.com/athletic/5693405/2024/08/11/49ers-titans-preseason-quarterbacks-malik-mustapha/
