@@ -1,3 +1,7 @@
+**Man Is Charged With Hate Crime in Stabbing Near Brooklyn Synagogue**\
+`The police said the man, Vincent Sumpter, yelled “Free Palestine” before stabbing another man near the headquarters of the Chabad-Lubavitch movement.`\
+https://nytimes.com/2024/08/11/nyregion/brooklyn-stabbing-hate-crime.html
+
 **Red Bull Salzburg submit bid for Liverpool's Clark**\
 `Red Bull Salzburg have stepped up their pursuit of Liverpool midfielder Bobby Clark with an offer of around €9.`\
 https://nytimes.com/athletic/5694726/2024/08/11/red-bull-salzburg-bobby-clark/
