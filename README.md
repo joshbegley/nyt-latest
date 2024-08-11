@@ -1,3 +1,15 @@
+**Before exceeding France’s expectations, Léon Marchand embraced them.**\
+`By Jenny Vrentas`\
+https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/before-exceeding-frances-expectations-leon-marchand-embraced-them
+
+**For Brittney Griner, a gold-medal Olympic run brings a gratitude for freedom**\
+`Griner expressed gratitude for her Olympic experience in light of her detainment in Russia.`\
+https://nytimes.com/athletic/5694533/2024/08/11/brittney-griner-olympics-womens-basketball-gold/
+
+**Katie Ledecky built her legacy medal by medal.**\
+`By Weiyi Cai, Jasmine C. Lee, Bedel Saget, Jenny Vrentas, Joe Ward, Jeremy White and Ashley Wu`\
+https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/katie-ledecky-built-her-legacy-medal-by-medal
+
 **‘Serenity Now!’ How ‘Seinfeld Night’ Became a New York Summer Tradition.**\
 `It’s a night that combines the zaniness of “Seinfeld,” a Coney Island freak show and a lower-level minor league baseball team with nothing to lose.`\
 https://nytimes.com/2024/08/11/arts/television/seinfeld-night-brooklyn-cyclones.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/11/us/politics/dnc-when-where-who.html
 **Olympic surfing came to a ‘poisoned’ paradise.**\
 `By Hannah Beech and Adam Ferguson`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/olympic-surfing-came-to-a-poisoned-paradise
-
-**In staid Paris, the sounds from the Olympic venues were loud enough to wake Napoleon.**\
-`By Rory Smith and Ségolène Le Stradic`\
-https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/in-staid-paris-the-sounds-from-the-olympic-venues-were-loud-enough-to-wake-napoleon
-
-**Lowetide: Oilers' Oscar Klefbom officially announces retirement**\
-`The still-young former NHL defenceman had a major impact on Oilers fans with his fine play over seven seasons.`\
-https://nytimes.com/athletic/5692893/2024/08/11/oilers-oscar-klefbom-retires/
-
-**Van Dijk 'confident' Liverpool will make summer signings**\
-`Virgil van Dijk believes Liverpool must add to their squad before the transfer window closes this month and has faith that signings will be made.`\
-https://nytimes.com/athletic/5694222/2024/08/11/van-dijk-liverpool-transfers/
 
