@@ -1,3 +1,7 @@
+**Mets' evolving bullpen: How it shakes out with arms acquired last month and returning arms**\
+`Sending Alex Young down leaves the Mets with only Danny Young from the left side in the bullpen.`\
+https://nytimes.com/athletic/5693608/2024/08/10/mets-bullpen-evolving-analysis/
+
 **Chiefs' WR Brown hospitalized after injury**\
 `Brown, who suffered a shoulder injury on the first play of the preseason opener, would likely miss four to six weeks if he needs surgery.`\
 https://nytimes.com/athletic/5693670/2024/08/10/marquise-brown-injury-chiefs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5693375/2024/08/10/browns-packers-preseason-stock-r
 **Yankees notes: Austin Wells cleaning up at cleanup, Caitlin Clark meets Aaron Judge**\
 `Aaron Boone put Wells into the No. 4 spot on July 20. In 16 games since then, he's hit .344 (22-for-64) with 13 RBIs.`\
 https://nytimes.com/athletic/5693504/2024/08/10/yankees-austin-wells-cleanup-caitlin-clark-meets-aaron-judge/
-
-**Bills-Bears: 5 takeaways from the preseason opener in Buffalo**\
-`Allen saw one quarter of action, while rookie receiver Keon Coleman got plenty of snaps with the first-team offense.`\
-https://nytimes.com/athletic/5693431/2024/08/10/bears-bills-josh-allen-keon-coleman/
 

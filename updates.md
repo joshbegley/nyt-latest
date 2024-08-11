@@ -1,3 +1,7 @@
+**Mets' evolving bullpen: How it shakes out with arms acquired last month and returning arms**\
+`Sending Alex Young down leaves the Mets with only Danny Young from the left side in the bullpen.`\
+https://nytimes.com/athletic/5693608/2024/08/10/mets-bullpen-evolving-analysis/
+
 **Chiefs' WR Brown hospitalized after injury**\
 `Brown, who suffered a shoulder injury on the first play of the preseason opener, would likely miss four to six weeks if he needs surgery.`\
 https://nytimes.com/athletic/5693670/2024/08/10/marquise-brown-injury-chiefs/
