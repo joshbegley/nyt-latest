@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`By Peter Baker`\
+https://nytimes.com/live/2024/08/11/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Live Election Updates: Biden to Give First Interview Since Leaving the Race**\
+`In a CBS interview airing Sunday morning, President Biden, 81, will acknowledge the challenge his age brought to his re-election effort.`\
+https://nytimes.com/live/2024/08/11/us/harris-trump-election
+
 **Ezi Magbegor leads Australia past Belgium for Olympic bronze in women's basketball**\
 `Australia beat Belgium for women's basketball bronze on Sunday behind 30 points and 13 rebounds from Ezi Magbegor.`\
 https://nytimes.com/athletic/5694035/2024/08/11/australia-belgium-bronze-olympics-womens-basketball/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/11/opinion/harris-trump-conservatives-abortion.html
 **Biden Made Trump Bigger. Harris Makes Him Smaller.**\
 `Her campaign wants to be talked about and knows how to get people talking.`\
 https://nytimes.com/2024/08/11/opinion/kamala-harris-trump-attention.html
-
-**Paris Olympics in pictures: 32 captivating photos from each event of the Summer Games**\
-`The Athletic's Managing Editor of Design curates a selection of her favorite shots from the Paris Olympics.`\
-https://nytimes.com/athletic/5693488/2024/08/11/olympics-best-photos-paris-games/
-
-**How Kamala Harris Is Already Changing the Face of Presidential Power**\
-`She has a unique challenge about what her race and gender mean together, which could reshape how Americans think about presidential power.`\
-https://nytimes.com/2024/08/11/opinion/kamala-harris-candidate-identity.html
 
