@@ -1,3 +1,7 @@
+**Takeaways from 49ers' preseason opener: Solid QB play, Malik Mustapha's first impression**\
+`Kyle Shanahan chimed in on quarterback play and his decision to allow assistant Klay Kubiak to call plays against the Titans. `\
+https://nytimes.com/athletic/5693405/2024/08/11/49ers-titans-preseason-quarterbacks-malik-mustapha/
+
 **Casemiro's strong-arm authority suggests he may still have something to offer Manchester United**\
 `The Brazilian midfielder's display and disappointment in defeat against Manchester City betrayed a desire to success in English football`\
 https://nytimes.com/athletic/5693044/2024/08/11/casemiro-manchester-united-ten-hag/

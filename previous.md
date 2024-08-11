@@ -1,3 +1,7 @@
+**Takeaways from 49ers' preseason opener: Solid QB play, Malik Mustapha's first impression**\
+`Kyle Shanahan chimed in on quarterback play and his decision to allow assistant Klay Kubiak to call plays against the Titans. `\
+https://nytimes.com/athletic/5693405/2024/08/11/49ers-titans-preseason-quarterbacks-malik-mustapha/
+
 **Casemiro's strong-arm authority suggests he may still have something to offer Manchester United**\
 `The Brazilian midfielder's display and disappointment in defeat against Manchester City betrayed a desire to success in English football`\
 https://nytimes.com/athletic/5693044/2024/08/11/casemiro-manchester-united-ten-hag/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5689194/2024/08/11/illustrated-insights-from-the-pa
 **Sunday's MLB odds, best bets: Predictions for pitching matchups, props, playoffs and more**\
 `See pitching matchups, playoff projections, win projections and more for Sunday's MLB games.`\
 https://nytimes.com/athletic/5693244/2024/08/11/mlb-odds-best-bets-projections-august-11/
-
-**Rallying in Las Vegas, Harris Pledges to End Federal Taxes on Tips**\
-`In the final stop of the Harris-Walz introductory tour, Vice President Kamala Harris said that, if elected, she would end federal income tax on tips, mirroring a proposal made by former President Donald J. Trump.`\
-https://nytimes.com/2024/08/10/us/politics/harris-trump-taxes-tips.html
 
