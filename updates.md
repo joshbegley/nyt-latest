@@ -1,3 +1,11 @@
+**U.S. women's basketball's golden end caps an Olympics where women persevered**\
+`Everywhere at these Olympics, women were grinding their way to amazing achievements. Sunday's women's basketball finale was no exception.`\
+https://nytimes.com/athletic/5694258/2024/08/11/team-usa-womens-basketball-gold-france-olympics-female-stars/
+
+**Paris raised the fashion stakes for the Olympics.**\
+`By Vanessa Friedman`\
+https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/paris-raised-the-fashion-stakes-for-the-olympics
+
 **Olympians can list their injuries as readily as their achievements.**\
 `By James Wagner`\
 https://nytimes.com/live/2024/08/11/world/olympics-closing-ceremony-paris/olympians-can-list-their-injuries-as-readily-as-their-achievements
