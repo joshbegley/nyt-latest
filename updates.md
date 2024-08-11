@@ -1,3 +1,19 @@
+**Behind the Scenes of the ‘Treasure Hunt’ for Olympic History**\
+`Members of the Olympic Museum’s heritage acquisitions team fan out during the Games to get donations to put on display in Lausanne, Switzerland.`\
+https://nytimes.com/2024/08/11/world/olympics/olympics-museum.html
+
+**A Jazz DJ’s Lifetime of Knowledge Leaves Queens for a New Nashville Home**\
+`Phil Schaap’s childhood home held what may be the largest collection of recorded jazz interviews, an archive that will now be housed at Vanderbilt University.`\
+https://nytimes.com/2024/08/11/nyregion/phil-schaap-jazz-vanderbilt.html
+
+**‘We Exchanged Small Talk, and I Asked Him About the Hat’**\
+`Saving a treasured item from the trash, making summer plans and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/08/11/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/11/crosswords/spelling-bee-forum.html
+
 **A Place Where It Snows All Summer**\
 `At a factory in western New York, the holiday décor brand Buffalo Snow has been manufacturing blizzards for almost 40 years.`\
 https://nytimes.com/2024/08/11/style/buffalo-snow-fake.html
