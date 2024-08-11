@@ -1,3 +1,7 @@
+**The Pulse: A day of American thrillers**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/5694333/2024/08/11/usa-basketball-uswnt-olympics-jordan-chiles-the-pulse/
+
 **Tomiyasu's return from injury 'weeks' away - Arteta**\
 `Mikel Arteta has confirmed that Takehiro Tomiyasu faces further weeks on the sidelines as he recovers from a knee injury that has seen him miss the bulk of pre-season.`\
 https://nytimes.com/athletic/5694320/2024/08/11/tomiyasu-injury-arsenal/
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/5692465/2024/08/11/chelsea-inter-milan-maresca-chil
 https://nytimes.com/2024/08/11/movies/it-ends-with-us-blake-lively-brand.html
 
 **U.S. wins gold in nail-biter vs. France**\
-`France's Gabby Williams' shot was a 2-pointer as time expired — putting the final score at Team USA 67-France 66.`\
+`The U.S. won 67-66 after France's Gabby Williams shot a 2-pointer as time expired.`\
 https://nytimes.com/athletic/5694154/2024/08/11/olympics-womens-basketball-usa-gold-win-wilson/
 
 **Olympic Marathon Course Lets Amateurs Inside the Ropes**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/11/opinion/traffic-deaths.html
 **Pedro Neto to Chelsea: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Pedro Neto's move to Chelsea `\
 https://nytimes.com/athletic/5691509/2024/08/11/pedro-neto-chelsea-the-athletic-500-transfer-rating/
-
-**Blueberry, Almond and Lemon, a Truly Great Trio**\
-`Yotam Ottolenghi’s iced, berry-dotted loaf cake is a summertime New York Times Cooking classic.`\
-https://nytimes.com/2024/08/11/dining/blueberry-recipes.html
 

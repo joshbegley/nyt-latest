@@ -1,3 +1,11 @@
+**The Pulse: A day of American thrillers**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/5694333/2024/08/11/usa-basketball-uswnt-olympics-jordan-chiles-the-pulse/
+
+**U.S. wins gold in nail-biter vs. France**\
+`The U.S. won 67-66 after France's Gabby Williams shot a 2-pointer as time expired.`\
+https://nytimes.com/athletic/5694154/2024/08/11/olympics-womens-basketball-usa-gold-win-wilson/
+
 **Tomiyasu's return from injury 'weeks' away - Arteta**\
 `Mikel Arteta has confirmed that Takehiro Tomiyasu faces further weeks on the sidelines as he recovers from a knee injury that has seen him miss the bulk of pre-season.`\
 https://nytimes.com/athletic/5694320/2024/08/11/tomiyasu-injury-arsenal/
