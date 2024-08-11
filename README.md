@@ -1,4 +1,4 @@
-**Aidan O'Connell, Gardnew Minshew play well in Raiders' preseason loss to Vikings**\
+**Aidan O'Connell, Gardner Minshew play well in Raiders' preseason loss to Vikings**\
 `It's been a rough start to training camp for the Raiders' quarterback battle, but both contenders look good in Saturday's preseason opener.`\
 https://nytimes.com/athletic/5693530/2024/08/10/raiders-vikings-aidan-oconnell-gardner-minshew/
 
