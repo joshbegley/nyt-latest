@@ -1,3 +1,7 @@
+**Man Who Attacked Muslim Postal Carrier Is Sentenced to 37 Months in Prison**\
+`Kenneth Pinkney, of Fort Lauderdale, Fla., pleaded guilty to a hate crime in assaulting the carrier, who was wearing a hijab as she delivered the mail in October.`\
+https://nytimes.com/2024/08/11/us/florida-man-postal-carrier-hijab.html
+
 **The Briefing: Chelsea 1 Inter 1 - Is this Maresca's plan for City? What now for Chilwell?**\
 `With the Premier League season just days away, we analyse Chelsea's final pre-season game against Inter Milan`\
 https://nytimes.com/athletic/5692465/2024/08/11/chelsea-inter-milan-maresca-chilwell/

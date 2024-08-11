@@ -1,3 +1,11 @@
+**As the Paris Games come to an end, Los Angeles enters the Olympic batter's box**\
+`All eyes turn to Los Angeles, host of the 2028 Olympics. Less than four years out, there's still plenty of work to do.`\
+https://nytimes.com/athletic/5692945/2024/08/11/los-angeles-2028-olympics-paris/
+
+**Team USA's closing ceremony racing outfits, critiqued by a firesuit design expert**\
+`Team USA's closing ceremony outfits draw inspiration from the world of auto racing. Here's what a Toyota firesuit designer thinks of them.`\
+https://nytimes.com/athletic/5598075/2024/08/11/team-usa-closing-ceremony-outfit-nascar-design/
+
 **Man Who Attacked Muslim Postal Carrier Is Sentenced to 37 Months in Prison**\
 `Kenneth Pinkney, of Fort Lauderdale, Fla., pleaded guilty to a hate crime in assaulting the carrier, who was wearing a hijab as she delivered the mail in October.`\
 https://nytimes.com/2024/08/11/us/florida-man-postal-carrier-hijab.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5694154/2024/08/11/olympics-womens-basketball-usa-g
 **Olympic Marathon Course Lets Amateurs Inside the Ropes**\
 `A public marathon and a series of overnight 10Ks offered recreational runners a chance to feel closer to the Games.`\
 https://nytimes.com/2024/08/11/world/olympics/olympics-marathon-for-everyone.html
-
-**The Briefing: Arsenal 2 Lyon 0: A glimpse of Calafiori, Saka's new weapon and fresh set-piece schemes**\
-`We break down some of the key points from Arsenal's win against Lyon - their final pre-season friendly of the summer`\
-https://nytimes.com/athletic/5692464/2024/08/11/arsenal-lyon-friendly-result-analysis/
-
-**Scofflaws and Other Hazards on the Roads**\
-`Readers react to articles about the rise in traffic deaths. Also: Neo-Nazis in Nashville; JD Vance and the rule of law; a ban on masks.`\
-https://nytimes.com/2024/08/11/opinion/traffic-deaths.html
 
