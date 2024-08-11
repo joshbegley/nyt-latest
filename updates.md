@@ -1,3 +1,7 @@
+**Bob Tischler, Who Helped Revive ‘Saturday Night Live,’ Dies at 78**\
+`A producer of “The National Lampoon Radio Hour” and albums by the Blues Brothers, he became S.N.L.’s head writer after a dismal season early in its history.`\
+https://nytimes.com/2024/08/11/arts/television/bob-tischler-dead.html
+
 **Bob Costas, Al Michaels appear on NBC's Olympics broadcast**\
 `The famed sports announcers starred on NBC's Olympic television broadcasts for years.`\
 https://nytimes.com/athletic/5673455/2024/08/11/bob-costas-al-michaels-nbc-olympics/

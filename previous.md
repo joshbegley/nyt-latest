@@ -1,3 +1,7 @@
+**Bob Tischler, Who Helped Revive ‘Saturday Night Live,’ Dies at 78**\
+`A producer of “The National Lampoon Radio Hour” and albums by the Blues Brothers, he became S.N.L.’s head writer after a dismal season early in its history.`\
+https://nytimes.com/2024/08/11/arts/television/bob-tischler-dead.html
+
 **Bob Costas, Al Michaels appear on NBC's Olympics broadcast**\
 `The famed sports announcers starred on NBC's Olympic television broadcasts for years.`\
 https://nytimes.com/athletic/5673455/2024/08/11/bob-costas-al-michaels-nbc-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5692465/2024/08/11/chelsea-inter-milan-maresca-chil
 **What ‘It Ends With Us’ Says About the Blake Lively Brand**\
 `The images onscreen are informed by the actress’s offscreen businesses, making the movie a fascinating study in the uses of star power.`\
 https://nytimes.com/2024/08/11/movies/it-ends-with-us-blake-lively-brand.html
-
-**U.S. wins gold in nail-biter vs. France**\
-`The U.S. won 67-66 after France's Gabby Williams shot a 2-pointer as time expired.`\
-https://nytimes.com/athletic/5694154/2024/08/11/olympics-womens-basketball-usa-gold-win-wilson/
 
