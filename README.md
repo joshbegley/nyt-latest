@@ -11,7 +11,7 @@ https://nytimes.com/2024/08/12/technology/elon-musk-political-views.html
 https://nytimes.com/2024/08/12/us/politics/mike-kelly-trump-shooting-inquiry.html
 
 **4.4-Magnitude Earthquake Strikes Near Los Angeles**\
-`The quake was centered about five miles northeast of downtown, according to the U.S. Geological Survey.`\
+`The quake was centered about five miles northeast of downtown, according to the U.S. Geological Survey. There were no initial reports of serious damage.`\
 https://nytimes.com/2024/08/12/us/los-angeles-earthquake.html
 
 **Reddick requests trade, Jets say they won't deal DE**\
