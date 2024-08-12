@@ -1,3 +1,7 @@
+**Judge Rules That Robert F. Kennedy Jr. Cannot Appear on New York Ballot**\
+`The ruling was a blow to Mr. Kennedy’s independent campaign for president. The judge said that he had used a “sham” address to claim residency in New York.`\
+https://nytimes.com/2024/08/12/nyregion/robert-f-kennedy-jr-new-york-residency.html
+
 **Paul Bucha, Medal of Honor Winner With a Political Voice, Dies at 80**\
 `His quick thinking saved fellow soldiers in Vietnam. Later, he had a role in the presidential runs of Ross Perot, George H.W. Bush and Barack Obama.`\
 https://nytimes.com/2024/08/12/us/paul-bucha-dead.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/5696821/2024/08/12/submit-a-question-for-kelly-ikos
 **Iranian Vice President Resigns, Signaling Deep Divisions as Cabinet Takes Shape**\
 `Mohammad Javad Zarif’s resignation shocked Iran’s political circles and came as President Masoud Pezeshkian announced that his cabinet would include several conservatives and only one woman.`\
 https://nytimes.com/2024/08/12/world/middleeast/iran-cabinet-zarif-resignation.html
-
-**Despite Trump’s Claims, Footage Shows Large Crowd at Harris’s Detroit Rally**\
-`Three New York Times reporters who attended the rally confirmed that the crowd numbered in the thousands.`\
-https://nytimes.com/interactive/2024/08/12/us/elections/trump-harris-detroit-rally.html
 
