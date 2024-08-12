@@ -1,3 +1,7 @@
+**Chiles case won’t be reconsidered, CAS tells USA Gymnastics**\
+`An inquiry by Chiles’ coach was invalid because it occurred four seconds after the one-minute window for such a challenge had closed.`\
+https://nytimes.com/athletic/5696975/2024/08/12/usa-gymnastics-jordan-chiles-case/
+
 **Dearica Hamby files federal lawsuit against WNBA, Aces**\
 `Hamby alleges “notable” changes in how the Aces treated her after publicly announcing her second pregnancy.`\
 https://nytimes.com/athletic/5696900/2024/08/12/dearica-hamby-aces-wnba-lawsuit/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/12/world/asia/faiz-hameed-spy-chief-arrested-pakista
 **Multiple teams contact Patriots about trading for Judon**\
 `Judon is seeking a new contract from the Patriots but has been practicing after a brief hold in.`\
 https://nytimes.com/athletic/5696823/2024/08/12/patriots-trade-rumors-matthew-judon/
-
-**Tracking Tropical Storm Ernesto**\
-`See the likely path and wind arrival times for Ernesto.`\
-https://nytimes.com/interactive/2024/08/12/weather/ernesto-path-map-tracker.html
 

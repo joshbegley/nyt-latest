@@ -1,3 +1,7 @@
+**Chiles case won’t be reconsidered, CAS tells USA Gymnastics**\
+`An inquiry by Chiles’ coach was invalid because it occurred four seconds after the one-minute window for such a challenge had closed.`\
+https://nytimes.com/athletic/5696975/2024/08/12/usa-gymnastics-jordan-chiles-case/
+
 **Dearica Hamby files federal lawsuit against WNBA, Aces**\
 `Hamby alleges “notable” changes in how the Aces treated her after publicly announcing her second pregnancy.`\
 https://nytimes.com/athletic/5696900/2024/08/12/dearica-hamby-aces-wnba-lawsuit/
