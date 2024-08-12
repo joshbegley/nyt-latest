@@ -1,3 +1,7 @@
+**Debunked Science Put This Man on Death Row. He’s About to Be Executed Anyway.**\
+`Charles Don Flores deserves a trial based on evidence, not discredited science.`\
+https://nytimes.com/video/opinion/100000009574775/charles-don-flores-texas-death-row.html
+
 **Quotation of the Day: Olympics’ Most Difficult Balancing Act: Politics**\
 `Quotation of the Day for Monday, August 12, 2024.`\
 https://nytimes.com/2024/08/12/pageoneplus/quotation-of-the-day-olympics-most-difficult-balancing-act-politics.html
