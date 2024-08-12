@@ -1,3 +1,7 @@
+**Swedish Prosecutors Drop Case Against Disqualified Eurovision Entrant**\
+`Investigators could not prove that Joost Klein, the Dutch entrant, had behaved threateningly during an incident shortly before the event final.`\
+https://nytimes.com/2024/08/12/arts/music/eurovision-joost-klein-no-charges.html
+
 **Gas Explosion Destroys House in Maryland, Killing Homeowner and Gas Employee**\
 `A 35-year-old contractor with Baltimore Gas and Electric was investigating an issue at the home, which exploded early Sunday morning.`\
 https://nytimes.com/2024/08/12/us/maryland-house-explosion.html
