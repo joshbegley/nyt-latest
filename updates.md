@@ -1,3 +1,11 @@
+**Trump Is Trying to Regain the Spotlight by Returning to X**\
+`Also, an ‘extremely dangerous’ fire is burning near Athens. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/08/12/briefing/trump-musk-interview-x-wildfire-athens-greece.html
+
+**Ugliness aside, the Jets need Haason Reddick — and Reddick needs the Jets**\
+`That reality holds true despite the prolonged contract holdout and, now, Monday's trade demand`\
+https://nytimes.com/athletic/5696779/2024/08/12/haason-reddick-holdout-contract-trade-demand-new-york-jets/
+
 **Tropical Storm Ernesto Takes Shape in the Atlantic**\
 `The storm is expected to unleash heavy rain on parts of the Caribbean, including Puerto Rico, but is not expected to threaten the mainland United States.`\
 https://nytimes.com/article/tropical-storm-ernesto-hurricane.html
