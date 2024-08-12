@@ -1,3 +1,11 @@
+**What will Brandon Inniss' role be in Ohio State's offense this season?**\
+`Innis' role was limited in 2023, but he's excited to be a bigger part of Ohio State's offense this season.`\
+https://nytimes.com/athletic/5695705/2024/08/12/brandon-inniss-ohio-state-football-offense/
+
+**What happened with Oliver Kylington and the Flames? Mailbag, part 1**\
+`Also, what will the Flames' goaltending carousel look like this season with Dan Vladar, Dustin Wolf and Devin Cooley?`\
+https://nytimes.com/athletic/5689748/2024/08/12/kylington-flames-draft-parekh-mailbag/
+
 **Thompson: In Paris, the world beheld the joy of Steph Curry**\
 `Oh Paris, welcome to the Steph Curry experience. In a storied career, these Olympics completed all that was missing.`\
 https://nytimes.com/athletic/5695572/2024/08/12/steph-curry-paris-olympics-gold-medal-game/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/08/12/us/harris-trump-election/the-democrats-are-c
 **Surging Diamondbacks believe they have NL's top MVP candidate in Ketel Marte**\
 `Throughout a season of injuries, Arizona has had different players step up, but Marte has been the constant, the one leading the way.`\
 https://nytimes.com/athletic/5694950/2024/08/12/diamondbacks-ketel-marte-mvp-candidate/
-
-**Chasing Olympic glory: Giants players nominate teammates for the 2028 Games**\
-`Lamonte Wade Jr., gold medal table tennis player? Sean Hjelle, 3-on-3 star? The Giants opine who could compete for Olympic glory.`\
-https://nytimes.com/athletic/5695313/2024/08/12/sf-giants-olympics/
-
-**Padres takeaways: Jackson Merrill shows why he’s more than a ROY candidate**\
-`The Padres have been baseball's hottest team since the All-Star break, and Merrill has been a big reason why: "He’s different, man."`\
-https://nytimes.com/athletic/5694389/2024/08/12/padres-jackson-merrill-rookie-of-the-year/
 
