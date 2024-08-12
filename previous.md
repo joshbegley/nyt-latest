@@ -1,3 +1,7 @@
+**Alvarez completes €95m Atletico Madrid transfer**\
+`Atletico Madrid have completed the signing of Julian Alvarez from Manchester City.`\
+https://nytimes.com/athletic/5683324/2024/08/12/julian-alvarez-transfer-atletico-madrid/
+
 **Newcastle exploring Guehi alternatives after third bid for defender**\
 `Newcastle United are actively exploring alternatives in case they are not able to agree a deal for Crystal Palace defender Marc Guehi.`\
 https://nytimes.com/athletic/5682499/2024/08/12/newcastle-marc-guehi-palace-transfer/
