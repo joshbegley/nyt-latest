@@ -1,3 +1,19 @@
+**These Are New York’s Hottest Bus Stops. And Not in a Good Way.**\
+`Bus stops without trees or shelter are leaving riders sweating as they wait — and wait — for buses that a transportation group says do not come fast enough.`\
+https://nytimes.com/2024/08/12/nyregion/street-wars-hot-bus-stops.html
+
+**Uber, Facing Sexual-Assault Litigation, Pushes Plan That May Curb Suits**\
+`Uber has spent millions trying to get a proposal on the Nevada ballot that would restrict the legal fees that bankroll many lawsuits against companies.`\
+https://nytimes.com/2024/08/12/business/uber-nevada-referendum.html
+
+**His Murder Conviction Was Overturned. Why Is He Still in Prison?**\
+`Brian Scott Lorenz was convicted of killing a young mother near Buffalo in 1993. The district attorney is fighting a judge’s decision last year to throw out the case.`\
+https://nytimes.com/2024/08/12/nyregion/1993-muder-conviction-erie-county.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/12/crosswords/spelling-bee-forum.html
+
 **Word of the Day: luminescent**\
 `This word has appeared in 13 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/12/learning/word-of-the-day-luminescent.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/08/12/opinion/uk-riots-far-right.html
 **'I was chatting to the future king of England about the Aston Villa game. It was very cool'**\
 `Ben Francis is a self-made billionaire after founding the exercise apparel company Gymshark — and obsessed with all things Aston Villa`\
 https://nytimes.com/athletic/5686878/2024/08/12/aston-villa-gymshark-francis-prince-william/
-
-**How ready are Newcastle as the Premier League returns?**\
-`Eddie Howe's side are revitalised and ready to attack the new campaign with the vim and verve that typified their game until injuries struck`\
-https://nytimes.com/athletic/5692958/2024/08/12/newcastle-howe-krafth-season/
-
-**Can this be Alejandro Garnacho's season?**\
-`The young forward has proven himself good enough to start games for United. This season will be a test of whether he can finish them, too`\
-https://nytimes.com/athletic/5692350/2024/08/12/manchester-united-garnacho-season/
-
-**FPL: What is the best formation to start the season with?**\
-`Play three up top or go 'big at the back'? What's the best way to construct your FPL line-up to maximise your points next season?`\
-https://nytimes.com/athletic/5659250/2024/08/12/fantasy-premier-league-what-is-the-best-formation-to-start-the-season-with/
-
-**What it's like to play for Arne Slot: 'Liverpool's squad will be amazed'**\
-`The Dutchman's intensity, high standards and determination to improve his players will make a big impression on his new squad`\
-https://nytimes.com/athletic/5668079/2024/08/12/arne-slot-liverpool-manager-players/
 
