@@ -1,3 +1,7 @@
+**Democrats Turn to Their National Security Go-To for Trump Assassination Inquiry**\
+`Representative Jason Crow of Colorado, whom Democrats tapped for impeachment, investigations and tough questioning of President Biden, is their top member of a task force investigating the shooting.`\
+https://nytimes.com/2024/08/12/us/politics/jason-crow-trump-inquiry.html
+
 **WFAN parent company reaches deal to license 880 AM to ESPN NY**\
 `WFAN’s parent, Audacy, is licensing its 880 AM signal to ESPN New York starting this fall in a local marketing agreement.`\
 https://nytimes.com/athletic/5695816/2024/08/12/wfan-espn-new-york-880-am/
