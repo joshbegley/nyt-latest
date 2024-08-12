@@ -1,3 +1,7 @@
+**Lions 53-man roster projection after the first preseason game**\
+`Some depth positions still have uncertainties.`\
+https://nytimes.com/athletic/5694725/2024/08/12/detroit-lions-53-man-roster-projection-preseason-game/
+
 **Alvarez completes €95m Atletico Madrid transfer**\
 `Atletico Madrid have completed the signing of Julian Alvarez from Manchester City.`\
 https://nytimes.com/athletic/5683324/2024/08/12/julian-alvarez-transfer-atletico-madrid/
