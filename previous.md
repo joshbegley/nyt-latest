@@ -1,3 +1,7 @@
+**Wildfire With 80-Foot Flames Spreads Near Athens**\
+`The blaze broke out in a town near the Greek capital on Sunday, damaging buildings and prompting evacuations.`\
+https://nytimes.com/2024/08/12/world/europe/athens-greece-wildfire.html
+
 **FPL 2024-25 mailbag: Send in your questions for Abdul Rehman now**\
 `Send in your questions for Abdul Rehman's new-season FPL mailbag now`\
 https://nytimes.com/athletic/5677286/2024/08/12/fpl-mailbag-2024-25-questions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5668079/2024/08/12/arne-slot-liverpool-manager-play
 **Monday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2024/08/12/briefing/harris-trump-olympics-israel.html
-
-**Gary O'Neil interview: The 'fear' that drives a Premier League manager**\
-`In a candid interview, O'Neil discusses his hopes and fears for Wolves and how to manage a modern footballer`\
-https://nytimes.com/athletic/5691699/2024/08/12/premier-league-wolves-oneil-interview/
 
