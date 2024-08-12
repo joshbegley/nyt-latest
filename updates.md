@@ -1,3 +1,7 @@
+**Jarren Duran, Red Sox issue apology after outfielder directs homophobic slur at fan**\
+`The television broadcast picked up Duran yelling the slur at a fan in the sixth inning of Sunday's game.`\
+https://nytimes.com/athletic/5695261/2024/08/11/red-sox-jarren-duran-fan-slur/
+
 **Mayor Adams Expected to Name Robert Tucker as New Fire Commissioner**\
 `Mr. Tucker will succeed Laura Kavanagh as leader of the Fire Department of New York City. A longtime supporter of the department, he has worked for 25 years in law enforcement and private security.`\
 https://nytimes.com/2024/08/11/nyregion/eric-adams-robert-tucker-fire-commissioner.html
