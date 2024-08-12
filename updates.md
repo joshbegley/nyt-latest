@@ -1,3 +1,7 @@
+**This Week in Mets: New York swept away by Seattle to close long road trip**\
+`The Mets were outscored 22-1 over three games: "They outplayed us the whole series."`\
+https://nytimes.com/athletic/5695263/2024/08/12/mets-offense-swept-seattle/
+
 **Diego Forlan: Man Utd striker, Golden Ball winner, and ITF tennis player - at 45**\
 `Striker Forlan got voted the 2010 World Cup's best player and was a hero to Manchester United fans. Now he's competing on the tennis court`\
 https://nytimes.com/athletic/5683356/2024/08/12/diego-forlan-interview-tennis-football-manchester-united-uruguay/

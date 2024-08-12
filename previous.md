@@ -1,3 +1,7 @@
+**This Week in Mets: New York swept away by Seattle to close long road trip**\
+`The Mets were outscored 22-1 over three games: "They outplayed us the whole series."`\
+https://nytimes.com/athletic/5695263/2024/08/12/mets-offense-swept-seattle/
+
 **Diego Forlan: Man Utd striker, Golden Ball winner, and ITF tennis player - at 45**\
 `Striker Forlan got voted the 2010 World Cup's best player and was a hero to Manchester United fans. Now he's competing on the tennis court`\
 https://nytimes.com/athletic/5683356/2024/08/12/diego-forlan-interview-tennis-football-manchester-united-uruguay/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/12/realestate/2-million-dollar-homes-california.html
 **What Happens Now in Young Thug’s YSL Trial?**\
 `Already the longest in Georgia history, the star rapper’s trial has been turned upside down. Here’s the latest as the case resumes after an eight-week delay.`\
 https://nytimes.com/2024/08/12/arts/music/young-thug-ysl-trial-resume.html
-
-**Harris Should Take Divisions Over Gaza Seriously**\
-`It’s not just a few hecklers. Michigan voters’ concerns about Gaza cannot be dismissed.`\
-https://nytimes.com/2024/08/12/opinion/harris-michigan-gaza.html
 
