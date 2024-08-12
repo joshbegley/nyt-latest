@@ -1,3 +1,31 @@
+**The Paris Olympics wanted a fast track and it got one - this is how it was made**\
+`The science behind record-breaking surfaces, from elliptical air cells to running spike compatability`\
+https://nytimes.com/athletic/5693130/2024/08/12/paris-olympics-fast-track-science/
+
+**The one that got away: Which player did your Premier League club let go too soon?**\
+`The one that got away... with the summer transfer window in full swing, we asked our writers to look at which players were let go too soon`\
+https://nytimes.com/athletic/5674676/2024/08/12/premier-league-transfer-mistakes/
+
+**Leicester City – a tactical guide: How much Maresca-ball will Steve Cooper retain?**\
+`The second tier champions could struggle in the Premier League but they have appointed a manager who knows how to navigate choppy waters`\
+https://nytimes.com/athletic/5683305/2024/08/12/leicester-city-a-tactical-guide-how-much-maresca-ball-will-steve-cooper-retain/
+
+**The Filipinos Living in the Shadow of China’s Military Might**\
+`More than 200 civilian settlers on a contested island in the South China Sea find themselves on the frontier of a possible conflict with China.`\
+https://nytimes.com/2024/08/12/world/asia/spratlys-thitu-philippines-china.html
+
+**Los Angeles, Next Up for Summer Olympics, Hopes to Turn a Profit**\
+`The 2028 Games will be the third for Los Angeles as host, but it will be a challenge to repeat the success of 1984.`\
+https://nytimes.com/2024/08/12/business/economy/olympics-los-angeles-2028-economy.html
+
+**Spain Is Thirsty. Here’s How It Gets Water.**\
+`To supply water for a number of needs, from tourism to agriculture, the country and other dry nations are increasingly relying on desalination plants that convert seawater into fresh water.`\
+https://nytimes.com/2024/08/12/business/spain-water-desalination.html
+
+**Monday's MLB odds, best bets: Predictions for pitching matchups, props, playoffs and more**\
+`See pitching matchups, playoff projections, win projections and more for Monday's MLB games.`\
+https://nytimes.com/athletic/5693265/2024/08/12/mlb-odds-best-bets-projections-august-12/
+
 **Trey Lance after preseason opener: 'I left some plays out there for sure'**\
 `In his first game action since last preseason with the 49ers, Trey Lance threw for 188 yards but was unable to get Dallas in the end zone.`\
 https://nytimes.com/athletic/5695227/2024/08/11/cowboys-trey-lance-analysis-preseason-game/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/5695261/2024/08/11/red-sox-jarren-duran-fan-slur/
 **Mayor Adams Expected to Name Robert Tucker as New Fire Commissioner**\
 `Mr. Tucker will succeed Laura Kavanagh as leader of the Fire Department of New York City. A longtime supporter of the department, he has worked for 25 years in law enforcement and private security.`\
 https://nytimes.com/2024/08/11/nyregion/eric-adams-robert-tucker-fire-commissioner.html
-
-**Rams 53-man roster projection: Breaking down the depth chart after first preseason game**\
-`Jordan Whittington's progress strengthens WR room. How will the Rams break down their secondary between cornerbacks and safeties?`\
-https://nytimes.com/athletic/5694672/2024/08/11/la-rams-53-man-roster-projection-depth-chart/
-
-**Austin Dillon wins NASCAR Cup Series race after crashing 2 drivers**\
-`Dillon was desperate to make the NASCAR playoffs because he entered Richmond 32nd in the standings.`\
-https://nytimes.com/athletic/5695220/2024/08/11/austin-dillon-nascar-cup-series-crash/
-
-**Nights in Las Vegas Are Becoming Dangerously Hot**\
-`In some fast-growing Sun Belt cites, “the overnight lows kind of sneak up on you.”`\
-https://nytimes.com/interactive/2024/08/11/upshot/las-vegas-hot-nights.html
-
-**Harris Appeals to Tech Leaders in a Return to San Francisco**\
-`A Sunday fund-raiser offered Vice President Kamala Harris a chance to turn the page on a sometimes frosty relationship between President Biden and Silicon Valley.`\
-https://nytimes.com/2024/08/11/us/kamala-harris-tech-fundraiser.html
-
-**Colts' Anthony Richardson, rusty in return, grateful for game day routine after 308 days away**\
-`Richardson completed 2-of-4 passes, but Sunday's game wasn't really about statistics for the young Colts QB. `\
-https://nytimes.com/athletic/5694992/2024/08/11/indianapolis-colts-anthony-richardson-preseason-return/
-
-**Paris Olympics closing cermony's best moments, highlights from a star-filled event**\
-`The closing ceremony had its share of memorable moments. Here are some of the highlights from Sunday’s festivities.`\
-https://nytimes.com/athletic/5694759/2024/08/11/paris-olympics-2024-tom-cruise-closing-ceremony/
-
-**Swim Towards the Shark**\
-`In a crisis, when all logic suggests that you get away, how will you respond?`\
-https://nytimes.com/2024/08/11/podcasts/swim-towards-the-shark-this-american-life-nyt-audio.html
 
