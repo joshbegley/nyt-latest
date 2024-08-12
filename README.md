@@ -1,3 +1,11 @@
+**Fantasy baseball notebook: Raw power is fun, but does it help us dream on a player's potential?**\
+`Derek VanRiper ponders where Jackson Chourio might go in 2025 fantasy drafts, and questions the value of Max EV as a way to predict power.`\
+https://nytimes.com/athletic/5693691/2024/08/12/fantasy-baseball-notebook-raw-power-jackson-chourio/
+
+**Black men rally for Kamala Harris, and confront an elephant in the room.**\
+`By Zolan Kanno-Youngs and Erica L. Green`\
+https://nytimes.com/live/2024/08/12/us/harris-trump-election/black-men-rally-for-kamala-harris-and-confront-an-elephant-in-the-room
+
 **Swedish Prosecutors Drop Case Against Disqualified Eurovision Entrant**\
 `Investigators could not prove that Joost Klein, the Dutch entrant, had behaved threateningly during an incident shortly before the event final.`\
 https://nytimes.com/2024/08/12/arts/music/eurovision-joost-klein-no-charges.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/12/business/media/2024-election-disinformation.html
 **Seahawks roster projection: Tough decisions loom at RB, WR, CB**\
 `Who will win the third running back job? Can Laviska Shenault do enough to grab a roster spot? Will every rookie draft pick make the team?`\
 https://nytimes.com/athletic/5695377/2024/08/12/seahawks-53-man-roster-projection/
-
-**The Windup: NL ROY race could be a doozy**\
-`Welcome to The Windup, The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5696019/2024/08/12/mlb-nl-rookie-aaron-judge-barry-bonds-the-windup/
-
-**Dolphins activate linebacker Jaelan Phillips from PUP list**\
-`Phillips is recovering from a torn Achilles he suffered in the Dolphins' Black Friday win over the New York Jets.`\
-https://nytimes.com/athletic/5696002/2024/08/12/dolphins-jaelan-phillips-active-pup/
 
