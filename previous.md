@@ -1,3 +1,7 @@
+**Mayor Adams Expected to Name Robert Tucker as New Fire Commissioner**\
+`Mr. Tucker will succeed Laura Kavanagh as leader of the Fire Department. A longtime supporter of the department, he has worked for 25 years in law enforcement and private security.`\
+https://nytimes.com/2024/08/11/nyregion/eric-adams-robert-tucker-fire-commissioner.html
+
 **Rams 53-man roster projection: Breaking down the depth chart after first preseason game**\
 `Jordan Whittington's progress strengthens WR room. How will the Rams break down their secondary between cornerbacks and safeties?`\
 https://nytimes.com/athletic/5694672/2024/08/11/la-rams-53-man-roster-projection-depth-chart/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/08/11/climate/earth-warming-climate-tipping
 **Red Sox promote top three prospects to Triple A, but James Paxton injury strains pitch depth**\
 `It was a day of mixed emotions for the Red Sox, as they suffered a key injury to a thin pitching staff but saw three prospects move up.`\
 https://nytimes.com/athletic/5694879/2024/08/11/red-sox-james-paxton-injury-prospect-promotions/
-
-**Jordan Chiles Lost a Bronze. She’s Not the First American Affected by a Medal Change.**\
-`A court invalidated the gymnast’s win. Here are other notable cases of Americans who lost (or gained) a medal after an event.`\
-https://nytimes.com/2024/08/11/us/jordan-chiles-medal-other-athletes-stripped.html
 

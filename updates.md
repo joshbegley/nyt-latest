@@ -1,3 +1,7 @@
+**Mayor Adams Expected to Name Robert Tucker as New Fire Commissioner**\
+`Mr. Tucker will succeed Laura Kavanagh as leader of the Fire Department. A longtime supporter of the department, he has worked for 25 years in law enforcement and private security.`\
+https://nytimes.com/2024/08/11/nyregion/eric-adams-robert-tucker-fire-commissioner.html
+
 **Rams 53-man roster projection: Breaking down the depth chart after first preseason game**\
 `Jordan Whittington's progress strengthens WR room. How will the Rams break down their secondary between cornerbacks and safeties?`\
 https://nytimes.com/athletic/5694672/2024/08/11/la-rams-53-man-roster-projection-depth-chart/
