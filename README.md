@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5696002/2024/08/12/dolphins-jaelan-phillips-active-
 https://nytimes.com/live/2024/08/07/opinion/thepoint/olympics-most-successful-nation
 
 **Heat Contributed to 47,000 Deaths in Europe Last Year, but Relief Programs Helped**\
-`A new study shows that behavioral and social changes can reduce heat mortality. But challenges remain as temperatures continue to rise.`\
+`A new study shows how deadly heat can be, and how behavioral and social changes can reduce heat mortality.`\
 https://nytimes.com/2024/08/12/climate/excess-heat-deaths-europe.html
 
 **For the Rescuer of an Ancient Shipwreck, Trouble Arrived in the Mail**\
