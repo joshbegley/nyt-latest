@@ -1,3 +1,7 @@
+**Tropical Storm Ernesto Takes Shape in the Atlantic**\
+`The storm is expected to unleash heavy rain on parts of the Caribbean, including Puerto Rico, but is not expected to threaten the mainland United States.`\
+https://nytimes.com/article/tropical-storm-ernesto-hurricane.html
+
 **Five world leaders have urged Iran not to attack.**\
 `By James C. McKinley Jr.`\
 https://nytimes.com/live/2024/08/12/world/israel-iran-hamas-gaza-war/five-world-leaders-have-urged-iran-not-to-attack
