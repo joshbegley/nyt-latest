@@ -27,7 +27,7 @@ https://nytimes.com/athletic/5694929/2024/08/11/49ers-saints-joint-practices-can
 https://nytimes.com/2024/08/11/us/politics/trump-campaign-hacking-iran.html
 
 **Paris, Uncharacteristically Giddy, Bids Au Revoir to the Olympics**\
-`A joyous Games, a cleaned-up Seine and improvements to the region brought cheer to Parisians as they handed off the summer Olympics to Los Angeles.`\
+`A joyous Games, a cleaned-up Seine and improvements to the region brought cheer to Parisians as they handed off the Summer Olympics to Los Angeles.`\
 https://nytimes.com/2024/08/11/paris-closing-ceremony-los-angeles.html
 
 **Chelsea make Joao Felix enquiry**\
