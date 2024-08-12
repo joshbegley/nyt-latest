@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5696498/2024/08/12/fabio-carvalho-brentford-transfer/
 
 **La Liga release clauses explained - via Zubimendi, Williams, Griezmann and others**\
-`They are far more common in the Spanish top flight than in the Premier League - so some explaining might be required`\
+`They are far more common in the Spanish top flight than in the Premier League — so some explaining might be required`\
 https://nytimes.com/athletic/5696165/2024/08/12/la-liga-release-clauses-explained-zubimendi-williams-griezmann/
 
 **The Problem Is Not A.I. It’s the Disbelief Created by Trump.**\
