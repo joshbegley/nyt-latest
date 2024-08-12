@@ -1,3 +1,7 @@
+**Gas Explosion Destroys House in Maryland, Killing Homeowner and Gas Employee**\
+`A 35-year-old contractor with Baltimore Gas and Electric was investigating an issue at the home, which exploded early Sunday morning.`\
+https://nytimes.com/2024/08/12/us/maryland-house-explosion.html
+
 **Do You Know These Novels That Were Adapted Into Video Games?**\
 `Try this short quiz on popular fiction that has been transformed into interactive adventures.`\
 https://nytimes.com/interactive/2024/08/12/books/review/video-game-novels.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5696002/2024/08/12/dolphins-jaelan-phillips-active-
 **The U.S. Wasn’t the Most Successful Country at the Olympics**\
 `Because it’s not just about the raw medal count.`\
 https://nytimes.com/live/2024/08/07/opinion/thepoint/olympics-most-successful-nation
-
-**Heat Contributed to 47,000 Deaths in Europe Last Year, but Relief Programs Helped**\
-`A new study shows how deadly warming can be, and how behavioral and social changes can reduce mortality.`\
-https://nytimes.com/2024/08/12/climate/excess-heat-deaths-europe.html
 
