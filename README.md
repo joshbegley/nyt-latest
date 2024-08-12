@@ -1,3 +1,7 @@
+**Giants week in review: A walkoff, a demotion, and a guy who tried to climb a wall with his face**\
+`Plus: A proper appreciation of Matt Chapman's defense, home run of the week and more.`\
+https://nytimes.com/athletic/5695271/2024/08/12/sf-giants-walkoff-win-doval-demoted/
+
 **Registering Voters and Certifying the Votes**\
 `Readers discuss election obstacles. Also: Donald Trump’s claim about Kamala Harris’s crowds; the Olympics; Covid vaccines; food and the climate.`\
 https://nytimes.com/2024/08/12/opinion/elections-voters.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/12/us/politics/harris-trump-obamacare-health-care.ht
 **Deadly Gas Explosion Destroys House in Maryland**\
 `The blast killed the homeowner and a contractor who had been dispatched to investigate a purported leak.`\
 https://nytimes.com/video/us/100000009624877/maryland-house-explosion.html
-
-**Paying More Attention to His Appearance Than Hers**\
-`They’re the same age, but pundits and voters can’t stop talking about how much older Tim Walz looks than Kamala Harris. It’s not the only way her running mate seems to be absorbing some of the scrutiny usually heaped on female candidates.`\
-https://nytimes.com/2024/08/12/style/kamala-harris-tim-walz-age.html
 
