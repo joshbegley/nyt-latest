@@ -1,3 +1,7 @@
+**Farewell, Emerson Royal - an unlucky victim of Tottenham's managerial churn**\
+`While Spurs will probably be able to replace Royal as a utility player, replacing his personality will be much harder`\
+https://nytimes.com/athletic/5690934/2024/08/12/emerson-royal-tottenham-transfer/
+
 **Milan sign Tottenham's Emerson Royal**\
 `AC Milan have confirmed the signing of right-back Emerson Royal from Tottenham Hotspur.`\
 https://nytimes.com/athletic/5695598/2024/08/12/emerson-royal-milan-transfer-tottenham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5696198/2024/08/12/blues-robert-thomas-questions/
 **Dissension in the ranks: Debating Drake London vs. Davante Adams for fantasy football 2024**\
 `Adam Ronis and Gene Clemons try to break a virtual fantasy football ADP tie between alpha receivers Drake London and Davante Adams.`\
 https://nytimes.com/athletic/5689548/2024/08/12/dissension-in-the-ranks-debating-drake-london-davante-adams-fantasy-football-2024/
-
-**What to expect from The Athletic's podcast coverage this Premier League season**\
-`The Athletic’s award-winning podcast network has something for everyone this season…`\
-https://nytimes.com/athletic/5695491/2024/08/12/best-football-podcasts-the-athletic-premier-league/
 
