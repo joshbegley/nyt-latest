@@ -1,3 +1,11 @@
+**Trump Calls Harris a ‘Communist.’ That Shows How Worried He Is.**\
+`MAGA desperately turns to old-fashioned red-baiting.`\
+https://nytimes.com/2024/08/12/opinion/harris-trump-communist.html
+
+**Is Chaos the Key to Better Economics?**\
+`The chaos theorist Doyne Farmer believes mainstream economists are getting it all wrong.`\
+https://nytimes.com/2024/08/12/opinion/chaos-theory-doyne-farmer.html
+
 **Brent Key's build continues at Georgia Tech — top-40 OL Josh Petty picks the Jackets**\
 `Petty is the program’s first top-50 recruit since five-star wide receiver Calvin Johnson in the Class of 2004.`\
 https://nytimes.com/athletic/5695830/2024/08/12/josh-petty-georgia-tech-recruit-top-40/
