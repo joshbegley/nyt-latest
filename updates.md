@@ -1,3 +1,7 @@
+**4.4-Magnitude Earthquake Strikes Near Los Angeles**\
+`The quake was centered about five miles northeast of downtown, according to the U.S. Geological Survey. There were no initial reports of serious damage.`\
+https://nytimes.com/2024/08/12/us/los-angeles-earthquake.html
+
 **Red Sox suspend Duran 2 games for homophobic slur**\
 `Duran appeared to make the comment to a fan sitting behind the during a plate appearance in the bottom of the sixth.`\
 https://nytimes.com/athletic/5696675/2024/08/12/red-sox-jarren-duran-suspension-slur/
