@@ -1,3 +1,7 @@
+**Arsenal and Genoa close to agreeing £3.5m Brooke Norton-Cuffy deal**\
+`Arsenal and Genoa are close to agreeing the permanent transfer of Brooke Norton-Cuffy, for a total fee of around £3.`\
+https://nytimes.com/athletic/5695416/2024/08/12/arsenal-norton-cuffy-transfer-close-genoa/
+
 **The Changing Supply Chain**\
 `We explore why commerce has changed — and how companies and governments are reacting.`\
 https://nytimes.com/2024/08/12/briefing/supply-chain-china-pandemic.html

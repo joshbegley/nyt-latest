@@ -1,3 +1,7 @@
+**Arsenal and Genoa close to agreeing £3.5m Brooke Norton-Cuffy deal**\
+`Arsenal and Genoa are close to agreeing the permanent transfer of Brooke Norton-Cuffy, for a total fee of around £3.`\
+https://nytimes.com/athletic/5695416/2024/08/12/arsenal-norton-cuffy-transfer-close-genoa/
+
 **The Changing Supply Chain**\
 `We explore why commerce has changed — and how companies and governments are reacting.`\
 https://nytimes.com/2024/08/12/briefing/supply-chain-china-pandemic.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5695014/2024/08/12/chiefs-roster-projection-preseas
 **Behind the scenes of Bears 'Hard Knocks' with the HBO crew at Halas Hall**\
 `Take a look at how things work behind the scenes for the show that specializes in working behind the scenes.`\
 https://nytimes.com/athletic/5691946/2024/08/12/hbo-hard-knocks-chicago-bears/
-
-**Cubs takeaways: Why the offense is better, Busch's defense and Crow-Armstrong's base running**\
-`"I think we have nine guys who are producing offense right now,” Craig Counsell said.`\
-https://nytimes.com/athletic/5694754/2024/08/12/cubs-michael-bush-defense-pete-crow-armstrong/
 
