@@ -1,3 +1,11 @@
+**Paul Bucha, Medal of Honor Winner With a Political Voice, Dies at 80**\
+`His quick thinking saved fellow soldiers in Vietnam. Later, he had a role in the presidential runs of Ross Perot, George H.W. Bush and Barack Obama.`\
+https://nytimes.com/2024/08/12/us/paul-bucha-dead.html
+
+**Iranian Vice President Resigns, Signaling Deep Divisions as Cabinet Takes Shape**\
+`Mohammad Javad Zarif’s resignation shocked Iran’s political circles and came as President Masoud Pezeshkian announced that his cabinet would include several conservatives and only one woman.`\
+https://nytimes.com/2024/08/12/world/middleeast/iran-cabinet-zarif-resignation.html
+
 **How Tim Walz’s Congressional District Embodies Rural Democrats’ Challenges**\
 `The Minnesota governor, No. 2 on the ticket, might not win his old House seat if he were to run now.`\
 https://nytimes.com/2024/08/12/us/politics/tim-walz-minnesota-district.html
