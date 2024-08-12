@@ -1,3 +1,7 @@
+**The Changing Supply Chain**\
+`We explore why commerce has changed — and how companies and governments are reacting.`\
+https://nytimes.com/2024/08/12/briefing/supply-chain-china-pandemic.html
+
 **Submit your questions for Until Saturday's podcast mailbag**\
 `Leave your questions below for David Ubben and Chris Vannini, and they may be answered this week on the Until Saturday podcast.`\
 https://nytimes.com/athletic/5695545/2024/08/12/college-football-questions-mailbag-until-saturday-5/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5691946/2024/08/12/hbo-hard-knocks-chicago-bears/
 **Cubs takeaways: Why the offense is better, Busch's defense and Crow-Armstrong's base running**\
 `"I think we have nine guys who are producing offense right now,” Craig Counsell said.`\
 https://nytimes.com/athletic/5694754/2024/08/12/cubs-michael-bush-defense-pete-crow-armstrong/
-
-**Commanders 53-man roster projection: Intrigue at WR, offensive and defensive lines**\
-`Is there a young receiver on Washington's roster who could earn himself a spot on the 53? Will LB Jamin Davis make the final cut?`\
-https://nytimes.com/athletic/5694696/2024/08/12/commanders-53-man-roster-projection/
 

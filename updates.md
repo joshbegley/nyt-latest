@@ -1,3 +1,7 @@
+**The Changing Supply Chain**\
+`We explore why commerce has changed — and how companies and governments are reacting.`\
+https://nytimes.com/2024/08/12/briefing/supply-chain-china-pandemic.html
+
 **Submit your questions for Until Saturday's podcast mailbag**\
 `Leave your questions below for David Ubben and Chris Vannini, and they may be answered this week on the Until Saturday podcast.`\
 https://nytimes.com/athletic/5695545/2024/08/12/college-football-questions-mailbag-until-saturday-5/
