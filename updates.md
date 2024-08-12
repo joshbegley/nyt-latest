@@ -1,3 +1,7 @@
+**Tennis Briefing: Coco Gauff's top 50 problem, Masters madness, and sensational Shnaider**\
+`With two weeks until the US Open, a post-Olympic hard-court season brings chaos to the tennis tours`\
+https://nytimes.com/athletic/5694584/2024/08/12/tennis-montreal-toronto-national-bank-open-gauff-rublev-popyrin-shnaider/
+
 **Chargers' 53-man roster projection: A case to be made for keeping 6 receivers**\
 `Receivers Simi Fehoko and Brenden Rice have looked worthy of a roster spot, potentially forcing the Chargers to go with three tight ends. `\
 https://nytimes.com/athletic/5695210/2024/08/12/chargers-53-man-roster-projection-fehoko-rice/
