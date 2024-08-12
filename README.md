@@ -1,3 +1,11 @@
+**Rams 53-man roster projection: Breaking down the depth chart after first preseason game**\
+`Jordan Whittington's progress strengthens WR room. How will the Rams break down their secondary between cornerbacks and safeties?`\
+https://nytimes.com/athletic/5694672/2024/08/11/la-rams-53-man-roster-projection-depth-chart/
+
+**Austin Dillon wins NASCAR Cup Series race after crashing 2 drivers**\
+`Dillon was desperate to make the NASCAR playoffs because he entered Richmond 32nd in the standings.`\
+https://nytimes.com/athletic/5695220/2024/08/11/austin-dillon-nascar-cup-series-crash/
+
 **Nights in Las Vegas Are Becoming Dangerously Hot**\
 `In some fast-growing Sun Belt cites, “the overnight lows kind of sneak up on you.”`\
 https://nytimes.com/interactive/2024/08/11/upshot/las-vegas-hot-nights.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5694879/2024/08/11/red-sox-james-paxton-injury-pros
 **Jordan Chiles Lost a Bronze. She’s Not the First American Affected by a Medal Change.**\
 `A court invalidated the gymnast’s win. Here are other notable cases of Americans who lost (or gained) a medal after an event.`\
 https://nytimes.com/2024/08/11/us/jordan-chiles-medal-other-athletes-stripped.html
-
-**Merci, Paris: We needed these Olympics**\
-`In the end, against what so many thought Paris 2024 would or wouldn't be, these Olympics delivered on the largest scale.`\
-https://nytimes.com/athletic/5694703/2024/08/11/2024-paris-olympics-merci-thank-you/
-
-**49ers cancel joint practices with Saints**\
-`Kyle Shanahan said Saturday night that 23 players were missing from the team's most recent practice. `\
-https://nytimes.com/athletic/5694929/2024/08/11/49ers-saints-joint-practices-canceled-injuries/
 
