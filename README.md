@@ -1,3 +1,23 @@
+**Straight Outta Cobham returns for the new season**\
+`The much-loved Chelsea podcast is back to its usual capacity for the new season.`\
+https://nytimes.com/athletic/5695461/2024/08/12/straight-outta-cobham-best-chelsea-podcast-the-athletic/
+
+**The View from the Lane returns for the new season**\
+`The much-loved Tottenham podcast is back to its usual capacity for the new season.`\
+https://nytimes.com/athletic/5695439/2024/08/12/the-view-from-the-lane-best-tottenham-podcast-the-athletic/
+
+**Katie Zelem, from Manchester United to the U.S: 'I'm going to Angel City to win things'**\
+`England midfielder on why she's moving to the U.S, what happened at Manchester United, and her ambitions in Los Angeles`\
+https://nytimes.com/athletic/5694519/2024/08/12/katie-zelem-angel-city/
+
+**Calvin Royal Creates a Ballet Festival With Intention and Care**\
+`With “Unite,” a festival he planned and curated at the Joyce Theater, Royal is “taking the time to do things right,” he said.`\
+https://nytimes.com/2024/08/12/arts/dance/calvin-royal-unity-ballet-festival.html
+
+**Martinez signs new Inter contract**\
+`Lautaro Martinez has signed a new five-year contract at Inter Milan until the summer of 2029.`\
+https://nytimes.com/athletic/5696105/2024/08/12/lautaro-martinez-new-inter-contract/
+
 **Handbrake Off returns for the new season**\
 `The much-loved Arsenal podcast is back to its usual capacity for the new season.`\
 https://nytimes.com/athletic/5695432/2024/08/12/handbrake-off-best-arsenal-podcast-the-athletic/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/08/12/arts/music/eurovision-joost-klein-no-charges.html
 **Gas Explosion Destroys House in Maryland, Killing Homeowner and Gas Employee**\
 `A 35-year-old contractor with Baltimore Gas and Electric was investigating an issue at the home, which exploded early Sunday morning.`\
 https://nytimes.com/2024/08/12/us/maryland-house-explosion.html
-
-**Do You Know These Novels That Were Adapted Into Video Games?**\
-`Try this short quiz on popular fiction that has been transformed into interactive adventures.`\
-https://nytimes.com/interactive/2024/08/12/books/review/video-game-novels.html
-
-**Netanyahu slams his defense minister for questioning the goal of ‘total victory’ in Gaza.**\
-`By Adam Rasgon`\
-https://nytimes.com/live/2024/08/12/world/israel-iran-hamas-gaza-war/netanyahu-slams-his-defense-minister-for-questioning-the-goal-of-total-victory-in-gaza
-
-**The Bounce: The world reacts to Steph Curry's Golden Dagger**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5695667/2024/08/12/stephen-curry-team-usa-olympics-france-gold-medal-christmas-day-nba-the-bounce/
-
-**NASCAR should draw a line after Austin Dillon's move**\
-`Dillon's controversial win at Richmond should lead NASCAR's officials to enforce standards for what is acceptable racing. `\
-https://nytimes.com/athletic/5695841/2024/08/12/richmond-raceway-nascar-austin-dillon/
-
-**Elections Officials Battle a Deluge of Disinformation**\
-`County clerks and secretaries of state are overwhelmed this year, as they stare down a “perpetual moving target” of new conspiracy theories, political pressure and threats.`\
-https://nytimes.com/2024/08/12/business/media/2024-election-disinformation.html
 
