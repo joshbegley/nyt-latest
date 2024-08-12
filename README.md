@@ -4,7 +4,7 @@ https://nytimes.com/athletic/5696823/2024/08/12/patriots-trade-rumors-matthew-ju
 
 **Tracking Tropical Storm Ernesto**\
 `See the likely path and wind arrival times for Ernesto.`\
-https://nytimes.com/interactive/2024/08/12/weather/five-map-path-tracker.html
+https://nytimes.com/interactive/2024/08/12/weather/ernesto-path-map-tracker.html
 
 **Tuesday Briefing: Putin Lashes Out Over Incursion**\
 `Plus, A.I. is helping piece together an ancient epic.`\
