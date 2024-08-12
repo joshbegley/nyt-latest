@@ -1,3 +1,15 @@
+**It Was a Hot Real Estate Trade. Now Investors Are Worried.**\
+`Drawn by the opportunity to invest with private equity firms, small investors rushed into real estate investment trusts. But the funds have lost some appeal as interest rates have climbed.`\
+https://nytimes.com/2024/08/12/business/private-reit-redemptions.html
+
+**Submit questions to Blues forward Robert Thomas**\
+`Blues senior writer Jeremy Rutherford will select 10 of your questions for an upcoming Q&A with Thomas.`\
+https://nytimes.com/athletic/5696198/2024/08/12/blues-robert-thomas-questions/
+
+**Dissension in the ranks: Debating Drake London vs. Davante Adams for fantasy football 2024**\
+`Adam Ronis and Gene Clemons try to break a virtual fantasy football ADP tie between alpha receivers Drake London and Davante Adams.`\
+https://nytimes.com/athletic/5689548/2024/08/12/dissension-in-the-ranks-debating-drake-london-davante-adams-fantasy-football-2024/
+
 **What to expect from The Athletic's podcast coverage this Premier League season**\
 `The Athletic’s award-winning podcast network has something for everyone this season…`\
 https://nytimes.com/athletic/5695491/2024/08/12/best-football-podcasts-the-athletic-premier-league/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/12/arts/dance/calvin-royal-unity-ballet-festival.htm
 **Martinez signs new Inter contract**\
 `Lautaro Martinez has signed a new five-year contract at Inter Milan until the summer of 2029.`\
 https://nytimes.com/athletic/5696105/2024/08/12/lautaro-martinez-new-inter-contract/
-
-**Handbrake Off returns for the new season**\
-`The much-loved Arsenal podcast is back to its usual capacity for the new season.`\
-https://nytimes.com/athletic/5695432/2024/08/12/handbrake-off-best-arsenal-podcast-the-athletic/
-
-**Fantasy baseball notebook: Raw power is fun, but does it help us dream on a player's potential?**\
-`Derek VanRiper ponders where Jackson Chourio might go in 2025 fantasy drafts, and questions the value of Max EV as a way to predict power.`\
-https://nytimes.com/athletic/5693691/2024/08/12/fantasy-baseball-notebook-raw-power-jackson-chourio/
-
-**Black men rally for Kamala Harris, and confront an elephant in the room.**\
-`By Zolan Kanno-Youngs and Erica L. Green`\
-https://nytimes.com/live/2024/08/12/us/harris-trump-election/black-men-rally-for-kamala-harris-and-confront-an-elephant-in-the-room
 
