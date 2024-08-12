@@ -1,3 +1,7 @@
+**F.B.I. Investigating Hacking That Trump Campaign Attributes to Iran**\
+`The bureau did not specifically name Iran or former President Donald J. Trump but referred to news reports on a “campaign cyberintrusion.”`\
+https://nytimes.com/2024/08/12/us/politics/fbi-trump-campaign-hacking.html
+
 **Trump Is Trying to Regain the Spotlight by Returning to X**\
 `Also, an ‘extremely dangerous’ fire is burning near Athens. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/08/12/briefing/trump-musk-interview-x-wildfire-athens-greece.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/12/briefing/putin-ukraine-incursion-climate-trump-mu
 **Polar Bears Kill Worker in Remote Radar Site in Canada**\
 `Polar bear attacks on humans are rare, but last week’s episode was the second fatal encounter since 2023.`\
 https://nytimes.com/2024/08/12/us/polar-bears-attack-brevoort-canada.html
-
-**Martin Zubimendi to remain at Real Sociedad**\
-`Martin Zubimendi will remain at Real Sociedad, effectively ending Liverpool&#8217;s hopes of signing the midfielder.`\
-https://nytimes.com/athletic/5686524/2024/08/12/martin-zubimendi-real-sociedad-liverpool/
 

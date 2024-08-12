@@ -1,3 +1,7 @@
+**F.B.I. Investigating Hacking That Trump Campaign Attributes to Iran**\
+`The bureau did not specifically name Iran or former President Donald J. Trump but referred to news reports on a “campaign cyberintrusion.”`\
+https://nytimes.com/2024/08/12/us/politics/fbi-trump-campaign-hacking.html
+
 **Trump Is Trying to Regain the Spotlight by Returning to X**\
 `Also, an ‘extremely dangerous’ fire is burning near Athens. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/08/12/briefing/trump-musk-interview-x-wildfire-athens-greece.html
