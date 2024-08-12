@@ -1,40 +1,40 @@
-**Debunked Science Put This Man on Death Row. He’s About to Be Executed Anyway.**\
-`Charles Don Flores deserves a trial based on evidence, not discredited science.`\
-https://nytimes.com/video/opinion/100000009574775/charles-don-flores-texas-death-row.html
+**Nate Silver Gives Us Good Odds for a Bad Future**\
+`In “On the Edge,” the election forecaster argues that the gambler’s mind-set has come to define modern life.`\
+https://nytimes.com/2024/08/12/books/review/on-the-edge-nate-silver.html
 
-**Quotation of the Day: Olympics’ Most Difficult Balancing Act: Politics**\
-`Quotation of the Day for Monday, August 12, 2024.`\
-https://nytimes.com/2024/08/12/pageoneplus/quotation-of-the-day-olympics-most-difficult-balancing-act-politics.html
+**Shelby Lynne Meets Her Moment, Again**\
+`Twenty-five years after the album that reshaped her career, the singer and songwriter unlocked a new creative groove, with the help of an all-female team in Nashville.`\
+https://nytimes.com/2024/08/12/arts/music/shelby-lynne-consequences-of-the-crown.html
 
-**Were the Paris Olympics the greatest ever? They were on TV and streaming**\
-`The ratings numbers have been massive, and the streaming product was rock-solid. Here are 20 media thoughts on NBC and the Paris Olympics.`\
-https://nytimes.com/athletic/5680663/2024/08/12/2024-paris-olympics-tv-streaming-nbc-peacock/
+**Roam With Cowboys and Flamingos in France’s Wild, Wild South**\
+`Horses, bulls and birds of all types live among the pink marshes of the Camargue, a rugged landscape shaped by the relentless push and pull of sea and river.`\
+https://nytimes.com/2024/08/12/travel/france-camargue-pink-marshes.html
 
-**Can USA Basketball mend fences with Tatum, get younger for L.A. 2028?**\
-`With aging stars and some younger pieces who might be miffed about their playing time, Grant Hill and USA Basketball have a big job ahead.`\
-https://nytimes.com/athletic/5694093/2024/08/12/usa-basketball-olympics-future-los-angeles-jayson-tatum/
+**My Old Church’s Fundamentalist Wing Canceled Me**\
+`David French responds to reader reactions following his split from his church.`\
+https://nytimes.com/2024/08/12/opinion/right-wing-presbyterian-church-canceled.html
 
-**These Are New York’s Hottest Bus Stops. And Not in a Good Way.**\
-`Bus stops without trees or shelter are leaving riders sweating as they wait — and wait — for buses that a transportation group says do not come fast enough.`\
-https://nytimes.com/2024/08/12/nyregion/street-wars-hot-bus-stops.html
+**The Science That Put This Man on Death Row Has Been Debunked. He’s About to Be Executed Anyway.**\
+`Charles Don Flores deserves a trial based on evidence, not on discredited science.`\
+https://nytimes.com/2024/08/12/opinion/charles-don-flores-texas-death-row.html
 
-**Uber, Facing Sexual-Assault Litigation, Pushes Plan That May Curb Suits**\
-`Uber has spent millions trying to get a proposal on the Nevada ballot that would restrict the legal fees that bankroll many lawsuits against companies.`\
-https://nytimes.com/2024/08/12/business/uber-nevada-referendum.html
+**A Nazi Villa So Tainted Berlin Can’t Give It Away**\
+`The former estate of Joseph Goebbels, the Nazi propaganda minister, is too expensive to keep and perilous to sell. No one knows quite what to do with it.`\
+https://nytimes.com/2024/08/12/world/europe/a-nazi-villa-so-tainted-berlin-cant-give-it-away.html
 
-**His Murder Conviction Was Overturned. Why Is He Still in Prison?**\
-`Brian Scott Lorenz was convicted of killing a young mother near Buffalo in 1993. The district attorney is fighting a judge’s decision last year to throw out the case.`\
-https://nytimes.com/2024/08/12/nyregion/1993-muder-conviction-erie-county.html
+**How to Make a Nation of Meat Eaters Crave the Humble Bean**\
+`When it comes to food, pleasure is what changes the world.`\
+https://nytimes.com/2024/08/12/opinion/beans-chickpeas-plant-based-food-meat.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/08/12/crosswords/spelling-bee-forum.html
+**U.S. and Israeli Defense Officials Speak Amid Fears of Escalation in Mideast**\
+`Defense Secretary Lloyd J. Austin III spoke with his Israeli counterpart, Yoav Gallant, the Pentagon said. In an unusual disclosure, it said Mr. Austin had ordered a submarine to the Middle East.`\
+https://nytimes.com/2024/08/12/world/middleeast/us-submarine-israel.html
 
-**Word of the Day: luminescent**\
-`This word has appeared in 13 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/08/12/learning/word-of-the-day-luminescent.html
+**The U.S. and Arab mediators prepare to present a ‘final’ proposal for a cease-fire in Gaza.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/08/12/world/israel-iran-hamas-gaza-war/israel-iran-gaza
 
-**Wildfire With 80-Foot Flames Spreads Near Athens**\
-`The blaze broke out in a town near the Greek capital on Sunday, damaging buildings and prompting evacuations.`\
-https://nytimes.com/2024/08/12/world/europe/athens-greece-wildfire.html
+**Israel on Guard for Retaliation as Diplomats Push for End to War**\
+`The U.S. and Arab mediators were preparing to present a “final” proposal for a cease-fire in Gaza, as Israel remained on alert for a response to the killings of two militant leaders.`\
+https://nytimes.com/live/2024/08/12/world/israel-iran-hamas-gaza-war
 
