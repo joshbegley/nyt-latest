@@ -1,3 +1,7 @@
+**Tropical Storm Ernesto Takes Shape in the Atlantic**\
+`The storm is expected to unleash heavy rain on parts of the Caribbean, including Puerto Rico, but is not expected to threaten the mainland United States.`\
+https://nytimes.com/article/tropical-storm-ernesto-hurricane.html
+
 **Five world leaders have urged Iran not to attack.**\
 `By James C. McKinley Jr.`\
 https://nytimes.com/live/2024/08/12/world/israel-iran-hamas-gaza-war/five-world-leaders-have-urged-iran-not-to-attack
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5695426/2024/08/12/talk-of-the-devils-best-manchest
 **Worried About a Convention Clash, Democrats Woo Uncommitted Delegates**\
 `A quiet diplomatic effort to ease tensions with uncommitted delegates and head off televised confrontations inside the Democratic convention hall next week has been underway for months.`\
 https://nytimes.com/2024/08/12/us/politics/democratic-convention-uncommitted.html
-
-**Hurricane Cleanup Effort Reaps ‘Treasure’: a 1945 Letter in a Bottle**\
-`How did the letter, sent from a Naval base in Virginia, make its way more than 800 miles to Florida? Who wrote it, and for whom? These mysteries remain.`\
-https://nytimes.com/2024/08/12/us/message-bottle-hurricane-debby.html
 
