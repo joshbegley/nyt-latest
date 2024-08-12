@@ -1,3 +1,11 @@
+**Hayes inspired a USWNT turnaround - but expectations remain as high as ever**\
+`The USWNT are Olympic champions — but no matter what they accomplish, there’s always an eye to the future`\
+https://nytimes.com/athletic/5696222/2024/08/12/uswnt-emma-hayes-olympics/
+
+**Why Iran Has Waited to Retaliate Against Israel After Killing of a Hamas Leader**\
+`Tehran is under pressure to avenge the assassination of Ismail Haniyeh, but analysts said it is balancing multiple factors as it weighs a response.`\
+https://nytimes.com/2024/08/12/world/middleeast/iran-israel-retaliation-attack-explained.html
+
 **Older Adults Do Not Benefit From Moderate Drinking, Large Study Finds**\
 `Virtually any amount increased the risk for cancer, and there were no heart benefits, the researchers reported.`\
 https://nytimes.com/2024/08/12/health/alcohol-cancer-heart-disease.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/12/style/paying-more-attention-to-his-appearance-tha
 **Trump Returns to X in Victory for Elon Musk**\
 `The former president posted a campaign video ahead of a scheduled interview on the platform with Mr. Musk, who reinstated Mr. Trump’s account shortly after buying the site in 2022.`\
 https://nytimes.com/2024/08/12/technology/donald-trump-elon-musk-x.html
-
-**Forest close signing Paraguay international Sosa**\
-`A fresh round of negotiations has seen Nottingham Forest take a big step closer to signing winger Ramon Sosa from Argentine club Talleres.`\
-https://nytimes.com/athletic/5696259/2024/08/12/nottingham-forest-ramon-sosa-transfer/
-
-**It Was a Hot Real Estate Trade. Now Investors Are Worried.**\
-`Drawn by the opportunity to invest with private equity firms, small investors rushed into real estate investment trusts. But the funds have lost some appeal as interest rates have climbed.`\
-https://nytimes.com/2024/08/12/business/private-reit-redemptions.html
 
