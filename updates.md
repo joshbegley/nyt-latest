@@ -1,3 +1,7 @@
+**Were the Paris Olympics the greatest ever? They were on TV and streaming**\
+`The ratings numbers have been massive, and the streaming product was rock-solid. Here are 20 media thoughts on NBC and the Paris Olympics.`\
+https://nytimes.com/athletic/5680663/2024/08/12/2024-paris-olympics-tv-streaming-nbc-peacock/
+
 **Can USA Basketball mend fences with Tatum, get younger for L.A. 2028?**\
 `With aging stars and some younger pieces who might be miffed about their playing time, Grant Hill and USA Basketball have a big job ahead.`\
 https://nytimes.com/athletic/5694093/2024/08/12/usa-basketball-olympics-future-los-angeles-jayson-tatum/
