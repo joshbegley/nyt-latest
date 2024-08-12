@@ -1,3 +1,11 @@
+**Multiple teams contact Patriots about trading for Judon**\
+`Judon is seeking a new contract from the Patriots but has been practicing after a brief hold in.`\
+https://nytimes.com/athletic/5696823/2024/08/12/patriots-trade-rumors-matthew-judon/
+
+**Tracking Tropical Storm Ernesto**\
+`See the likely path and wind arrival times for Ernesto.`\
+https://nytimes.com/interactive/2024/08/12/weather/five-map-path-tracker.html
+
 **Tuesday Briefing: Putin Lashes Out Over Incursion**\
 `Plus, A.I. is helping piece together an ancient epic.`\
 https://nytimes.com/2024/08/12/briefing/putin-ukraine-incursion-climate-trump-musk.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5696600/2024/08/12/ap-poll-college-football-ranking
 **Immigrants Are Becoming U.S. Citizens at Fastest Clip in Years**\
 `The government has reduced a backlog of applications that built up during the Trump administration. New citizens say they are looking forward to voting in November.`\
 https://nytimes.com/2024/08/12/us/immigration-us-citizenship-rates.html
-
-**Red Sox suspend Duran 2 games for homophobic slur**\
-`Duran appeared to make the comment to a fan sitting behind the during a plate appearance in the bottom of the sixth.`\
-https://nytimes.com/athletic/5696675/2024/08/12/red-sox-jarren-duran-suspension-slur/
-
-**Elon Musk Is Using X to Push His Views, and Donald Trump**\
-`Mr. Musk has become a vocal supporter of Mr. Trump. It wasn’t always that way.`\
-https://nytimes.com/2024/08/12/technology/elon-musk-political-views.html
 
