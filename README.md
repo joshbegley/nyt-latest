@@ -1,3 +1,15 @@
+**Elon Musk Is Using X to Push His Views, and Donald Trump**\
+`Mr. Musk has become a vocal supporter of Mr. Trump. It wasn’t always that way.`\
+https://nytimes.com/2024/08/12/technology/elon-musk-political-views.html
+
+**Chairman of Trump Shooting Inquiry Brings Personal Experience to the Task**\
+`Representative Mike Kelly of Pennsylvania was in the audience with family, including three of his grandchildren, during the shooting.`\
+https://nytimes.com/2024/08/12/us/politics/mike-kelly-trump-shooting-inquiry.html
+
+**4.4-Magnitude Earthquake Strikes Near Los Angeles**\
+`The quake was centered about five miles northeast of downtown, according to the U.S. Geological Survey.`\
+https://nytimes.com/2024/08/12/us/los-angeles-earthquake.html
+
 **Reddick requests trade, Jets say they won't deal DE**\
 `Just a few months after being dealt to the franchise, defensive end Haason Reddick has requested a trade from the New York Jets, a league source told The Athletic on Monday.`\
 https://nytimes.com/athletic/5696604/2024/08/12/haason-reddick-trade-request-jets/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/12/opinion/chaos-theory-doyne-farmer.html
 **Brent Key's build continues at Georgia Tech — top-40 OL Josh Petty picks the Jackets**\
 `Petty is the program’s first top-50 recruit since five-star wide receiver Calvin Johnson in the Class of 2004.`\
 https://nytimes.com/athletic/5695830/2024/08/12/josh-petty-georgia-tech-recruit-top-40/
-
-**On Matt Kuchar's Monday finish**\
-`The Wyndham Championship team did yeoman's work to allow everyone to play all 72 holes by Sunday night. Kuchar had other ideas.`\
-https://nytimes.com/athletic/5696263/2024/08/12/matt-kuchar-monday-aaron-rai-wyndham/
-
-**Sources: Padres’ Yu Darvish throws live BP, return this season still possible**\
-`One of the hottest teams in baseball is getting one starter back tonight and another may be eyeing a comeback.`\
-https://nytimes.com/athletic/5692352/2024/08/12/padres-yu-darvish-throws-live-bp-return/
-
-**Fabio Carvalho joins Brentford from Liverpool**\
-`Brentford have completed the signing of Fabio Carvalho from Liverpool.`\
-https://nytimes.com/athletic/5696498/2024/08/12/fabio-carvalho-brentford-transfer/
 
