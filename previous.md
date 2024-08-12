@@ -1,3 +1,11 @@
+**Five world leaders have urged Iran not to attack.**\
+`By James C. McKinley Jr.`\
+https://nytimes.com/live/2024/08/12/world/israel-iran-hamas-gaza-war/five-world-leaders-have-urged-iran-not-to-attack
+
+**Pakistan’s Ex-Spy Chief, an Imran Khan Ally, Is Arrested**\
+`The arrest of Lt. Gen. Faiz Hameed is the first time a current or former head of the powerful Inter-Services Intelligence agency faces court-martial proceedings.`\
+https://nytimes.com/2024/08/12/world/asia/faiz-hameed-spy-chief-arrested-pakistan-imran-khan.html
+
 **Multiple teams contact Patriots about trading for Judon**\
 `Judon is seeking a new contract from the Patriots but has been practicing after a brief hold in.`\
 https://nytimes.com/athletic/5696823/2024/08/12/patriots-trade-rumors-matthew-judon/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/12/us/politics/democratic-convention-uncommitted.htm
 **Hurricane Cleanup Effort Reaps ‘Treasure’: a 1945 Letter in a Bottle**\
 `How did the letter, sent from a Naval base in Virginia, make its way more than 800 miles to Florida? Who wrote it, and for whom? These mysteries remain.`\
 https://nytimes.com/2024/08/12/us/message-bottle-hurricane-debby.html
-
-**What the AP Top 25 says about CFB in 2024: Is Ohio State a better bet than No. 1 Georgia?**\
-`It may be a new era of college football, but arguing about the AP Top 25 is still an annual tradition. What does this year's poll mean?`\
-https://nytimes.com/athletic/5696600/2024/08/12/ap-poll-college-football-rankings-predictions-preseason/
-
-**Immigrants Are Becoming U.S. Citizens at Fastest Clip in Years**\
-`The government has reduced a backlog of applications that built up during the Trump administration. New citizens say they are looking forward to voting in November.`\
-https://nytimes.com/2024/08/12/us/immigration-us-citizenship-rates.html
 

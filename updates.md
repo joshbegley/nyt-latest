@@ -1,3 +1,11 @@
+**Five world leaders have urged Iran not to attack.**\
+`By James C. McKinley Jr.`\
+https://nytimes.com/live/2024/08/12/world/israel-iran-hamas-gaza-war/five-world-leaders-have-urged-iran-not-to-attack
+
+**Pakistan’s Ex-Spy Chief, an Imran Khan Ally, Is Arrested**\
+`The arrest of Lt. Gen. Faiz Hameed is the first time a current or former head of the powerful Inter-Services Intelligence agency faces court-martial proceedings.`\
+https://nytimes.com/2024/08/12/world/asia/faiz-hameed-spy-chief-arrested-pakistan-imran-khan.html
+
 **Tracking Tropical Storm Ernesto**\
 `See the likely path and wind arrival times for Ernesto.`\
 https://nytimes.com/interactive/2024/08/12/weather/ernesto-path-map-tracker.html
