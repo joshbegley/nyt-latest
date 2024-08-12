@@ -1,7 +1,3 @@
-**Iran’s Vice President Resigns, Signaling Deep Divisions as Cabinet Takes Shape**\
-`Mohammad Javad Zarif’s resignation shocked Iran’s political circles and came as President Masoud Pezeshkian announced that his cabinet would include several conservatives and only one woman.`\
-https://nytimes.com/2024/08/12/world/middleeast/iran-cabinet-zarif-resignation.html
-
 **Despite Trump’s Claims, Footage Shows Large Crowd at Harris’s Detroit Rally**\
 `Three New York Times reporters who attended the rally confirmed that the crowd numbered in the thousands.`\
 https://nytimes.com/interactive/2024/08/12/us/elections/trump-harris-detroit-rally.html
@@ -37,4 +33,8 @@ https://nytimes.com/article/tropical-storm-ernesto-hurricane.html
 **Five world leaders have urged Iran not to attack.**\
 `By James C. McKinley Jr.`\
 https://nytimes.com/live/2024/08/12/world/israel-iran-hamas-gaza-war/five-world-leaders-have-urged-iran-not-to-attack
+
+**Pakistan’s Ex-Spy Chief, an Imran Khan Ally, Is Arrested**\
+`The arrest of Lt. Gen. Faiz Hameed is the first time a current or former head of the powerful Inter-Services Intelligence agency faces court-martial proceedings.`\
+https://nytimes.com/2024/08/12/world/asia/faiz-hameed-spy-chief-arrested-pakistan-imran-khan.html
 
