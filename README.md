@@ -1,3 +1,7 @@
+**Jarren Duran, Red Sox issue apology after outfielder directs homophobic slur at fan**\
+`The television broadcast picked up Duran yelling the slur at a fan in the sixth inning of Sunday's game.`\
+https://nytimes.com/athletic/5695261/2024/08/11/red-sox-jarren-duran-fan-slur/
+
 **Mayor Adams Expected to Name Robert Tucker as New Fire Commissioner**\
 `Mr. Tucker will succeed Laura Kavanagh as leader of the Fire Department of New York City. A longtime supporter of the department, he has worked for 25 years in law enforcement and private security.`\
 https://nytimes.com/2024/08/11/nyregion/eric-adams-robert-tucker-fire-commissioner.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/11/podcasts/swim-towards-the-shark-this-american-lif
 **How Close Are the Planet’s Climate Tipping Points?**\
 `Earth’s warming could trigger sweeping changes in the natural world that would be hard, if not impossible, to reverse.`\
 https://nytimes.com/interactive/2024/08/11/climate/earth-warming-climate-tipping-points.html
-
-**Red Sox promote top three prospects to Triple A, but James Paxton injury strains pitch depth**\
-`It was a day of mixed emotions for the Red Sox, as they suffered a key injury to a thin pitching staff but saw three prospects move up.`\
-https://nytimes.com/athletic/5694879/2024/08/11/red-sox-james-paxton-injury-prospect-promotions/
 
