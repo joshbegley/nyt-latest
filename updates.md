@@ -1,3 +1,7 @@
+**Older Adults Do Not Benefit From Moderate Drinking, Large Study Finds**\
+`Virtually any amount increased the risk for cancer, and there were no heart benefits, the researchers reported.`\
+https://nytimes.com/2024/08/12/health/alcohol-cancer-heart-disease.html
+
 **SEC, Big Ten dominate AP Top 25 with Georgia No. 1**\
 `Georgia, Ohio State, Oregon, Texas and Alabama claim the top five spots in the preseason AP Top 25 college football rankings.`\
 https://nytimes.com/athletic/5695808/2024/08/12/ap-top-25-preseason-college-football-rankings/

@@ -1,3 +1,7 @@
+**Older Adults Do Not Benefit From Moderate Drinking, Large Study Finds**\
+`Virtually any amount increased the risk for cancer, and there were no heart benefits, the researchers reported.`\
+https://nytimes.com/2024/08/12/health/alcohol-cancer-heart-disease.html
+
 **SEC, Big Ten dominate AP Top 25 with Georgia No. 1**\
 `Georgia, Ohio State, Oregon, Texas and Alabama claim the top five spots in the preseason AP Top 25 college football rankings.`\
 https://nytimes.com/athletic/5695808/2024/08/12/ap-top-25-preseason-college-football-rankings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5696259/2024/08/12/nottingham-forest-ramon-sosa-tra
 **It Was a Hot Real Estate Trade. Now Investors Are Worried.**\
 `Drawn by the opportunity to invest with private equity firms, small investors rushed into real estate investment trusts. But the funds have lost some appeal as interest rates have climbed.`\
 https://nytimes.com/2024/08/12/business/private-reit-redemptions.html
-
-**Submit questions to Blues forward Robert Thomas**\
-`Blues senior writer Jeremy Rutherford will select 10 of your questions for an upcoming Q&A with Thomas.`\
-https://nytimes.com/athletic/5696198/2024/08/12/blues-robert-thomas-questions/
 
