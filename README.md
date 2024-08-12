@@ -1,3 +1,11 @@
+**Polar Bears Kill Worker in Remote Radar Site in Canada**\
+`Polar bear attacks on humans are rare, but last week’s episode was the second fatal encounter since 2023.`\
+https://nytimes.com/2024/08/12/us/polar-bears-attack-brevoort-canada.html
+
+**Liverpool expect Zubimendi to remain at Real Sociedad**\
+`Liverpool expect Martin Zubimendi to remain at Real Sociedad, effectively ending their hopes of signing the midfielder.`\
+https://nytimes.com/athletic/5686524/2024/08/12/martin-zubimendi-real-sociedad-liverpool/
+
 **Talk of the Devils returns for the new season**\
 `The much-loved Manchester United podcast is back to its usual capacity for the new season.`\
 https://nytimes.com/athletic/5695426/2024/08/12/talk-of-the-devils-best-manchester-united-podcast-the-athletic/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/12/technology/elon-musk-political-views.html
 **Chairman of Trump Shooting Inquiry Brings Personal Experience to the Task**\
 `Representative Mike Kelly of Pennsylvania was in the audience with family, including three of his grandchildren, during the shooting.`\
 https://nytimes.com/2024/08/12/us/politics/mike-kelly-trump-shooting-inquiry.html
-
-**4.4-Magnitude Earthquake Strikes Near Los Angeles**\
-`The quake was centered about five miles northeast of downtown, according to the U.S. Geological Survey. There were no initial reports of serious damage.`\
-https://nytimes.com/2024/08/12/us/los-angeles-earthquake.html
-
-**Reddick requests trade, Jets say they won't deal DE**\
-`Just a few months after being dealt to the franchise, defensive end Haason Reddick has requested a trade from the New York Jets, a league source told The Athletic on Monday.`\
-https://nytimes.com/athletic/5696604/2024/08/12/haason-reddick-trade-request-jets/
 
