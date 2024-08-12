@@ -1,3 +1,7 @@
+**Can USA Basketball mend fences with Tatum, get younger for L.A. 2028?**\
+`With aging stars and some younger pieces who might be miffed about their playing time, Grant Hill and USA Basketball have a big job ahead.`\
+https://nytimes.com/athletic/5694093/2024/08/12/usa-basketball-olympics-future-los-angeles-jayson-tatum/
+
 **These Are New York’s Hottest Bus Stops. And Not in a Good Way.**\
 `Bus stops without trees or shelter are leaving riders sweating as they wait — and wait — for buses that a transportation group says do not come fast enough.`\
 https://nytimes.com/2024/08/12/nyregion/street-wars-hot-bus-stops.html
