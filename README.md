@@ -1,3 +1,7 @@
+**Can USA Basketball mend fences with Tatum, get younger for L.A. 2028?**\
+`With aging stars and some younger pieces who might be miffed about their playing time, Grant Hill and USA Basketball have a big job ahead.`\
+https://nytimes.com/athletic/5694093/2024/08/12/usa-basketball-olympics-future-los-angeles-jayson-tatum/
+
 **These Are New York’s Hottest Bus Stops. And Not in a Good Way.**\
 `Bus stops without trees or shelter are leaving riders sweating as they wait — and wait — for buses that a transportation group says do not come fast enough.`\
 https://nytimes.com/2024/08/12/nyregion/street-wars-hot-bus-stops.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/12/arts/television/whats-on-tv-this-week-chimp-crazy
 **The Chaos in Britain Has Been Coming**\
 `Riots in the country have been shocking, but not surprising.`\
 https://nytimes.com/2024/08/12/opinion/uk-riots-far-right.html
-
-**'I was chatting to the future king of England about the Aston Villa game. It was very cool'**\
-`Ben Francis is a self-made billionaire after founding the exercise apparel company Gymshark — and obsessed with all things Aston Villa`\
-https://nytimes.com/athletic/5686878/2024/08/12/aston-villa-gymshark-francis-prince-william/
 
