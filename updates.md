@@ -1,3 +1,7 @@
+**SEC, Big Ten dominate AP Top 25 with Georgia No. 1**\
+`Georgia, Ohio State, Oregon, Texas and Alabama claim the top five spots in the preseason AP Top 25 college football rankings.`\
+https://nytimes.com/athletic/5695808/2024/08/12/ap-top-25-preseason-college-football-rankings/
+
 **Farewell, Emerson Royal - an unlucky victim of Tottenham's managerial churn**\
 `While Spurs will probably be able to replace Royal as a utility player, replacing his personality will be much harder`\
 https://nytimes.com/athletic/5690934/2024/08/12/emerson-royal-tottenham-transfer/
