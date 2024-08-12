@@ -1,3 +1,11 @@
+**Fabio Carvalho joins Brentford from Liverpool**\
+`Brentford have completed the signing of Fabio Carvalho from Liverpool.`\
+https://nytimes.com/athletic/5696498/2024/08/12/fabio-carvalho-brentford-transfer/
+
+**La Liga release clauses explained - via Zubimendi, Williams, Griezmann and others**\
+`They are far more common in the Spanish top flight than in the Premier League - so some explaining might be required`\
+https://nytimes.com/athletic/5696165/2024/08/12/la-liga-release-clauses-explained-zubimendi-williams-griezmann/
+
 **The Problem Is Not A.I. It’s the Disbelief Created by Trump.**\
 `He’s exploiting the inability of ordinary people to discern manipulated images.`\
 https://nytimes.com/2024/08/07/opinion/the-problem-is-not-ai-its-the-disbelief-created-by-trump.html

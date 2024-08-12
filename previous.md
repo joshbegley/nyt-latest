@@ -1,3 +1,11 @@
+**Fabio Carvalho joins Brentford from Liverpool**\
+`Brentford have completed the signing of Fabio Carvalho from Liverpool.`\
+https://nytimes.com/athletic/5696498/2024/08/12/fabio-carvalho-brentford-transfer/
+
+**La Liga release clauses explained - via Zubimendi, Williams, Griezmann and others**\
+`They are far more common in the Spanish top flight than in the Premier League - so some explaining might be required`\
+https://nytimes.com/athletic/5696165/2024/08/12/la-liga-release-clauses-explained-zubimendi-williams-griezmann/
+
 **The Problem Is Not A.I. It’s the Disbelief Created by Trump.**\
 `He’s exploiting the inability of ordinary people to discern manipulated images.`\
 https://nytimes.com/2024/08/07/opinion/the-problem-is-not-ai-its-the-disbelief-created-by-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/12/health/alcohol-cancer-heart-disease.html
 **SEC, Big Ten dominate AP Top 25 with Georgia No. 1**\
 `Georgia, Ohio State, Oregon, Texas and Alabama claim the top five spots in the preseason AP Top 25 college football rankings.`\
 https://nytimes.com/athletic/5695808/2024/08/12/ap-top-25-preseason-college-football-rankings/
-
-**Farewell, Emerson Royal - an unlucky victim of Tottenham's managerial churn**\
-`While Spurs will probably be able to replace Royal as a utility player, replacing his personality will be much harder`\
-https://nytimes.com/athletic/5690934/2024/08/12/emerson-royal-tottenham-transfer/
-
-**Milan sign Tottenham's Emerson Royal**\
-`AC Milan have confirmed the signing of right-back Emerson Royal from Tottenham Hotspur.`\
-https://nytimes.com/athletic/5695598/2024/08/12/emerson-royal-milan-transfer-tottenham/
 
