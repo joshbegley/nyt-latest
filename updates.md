@@ -1,3 +1,7 @@
+**Britain’s Anti-Immigrant Riots Pose Critical Test for Starmer**\
+`Even after restoring order, the new prime minister faces a bigger challenge: defusing the issues of fraying public services and a cost of living crisis that underlie the unrest.`\
+https://nytimes.com/2024/08/12/world/europe/uk-immigration-riots-starmer.html
+
 **Tottenham's Bissouma apologises over nitrous oxide video**\
 `Tottenham Hotspur midfielder Yves Bissouma has apologised after footage emerged of him appearing to inhale nitrous oxide.`\
 https://nytimes.com/athletic/5695444/2024/08/12/yves-bissouma-spurs-laughing-gas-video/

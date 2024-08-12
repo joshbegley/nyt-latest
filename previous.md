@@ -32,7 +32,7 @@ https://nytimes.com/2024/08/12/opinion/harris-walz-political-imagination.html
 
 **Britain’s Anti-Immigrant Riots Pose Critical Test for Starmer**\
 `Even after restoring order, the new prime minister faces a bigger challenge: defusing the issues of fraying public services and a cost of living crisis that underlie the unrest.`\
-https://nytimes.com/2024/08/12/world/europe/britain-immigration-riots-starmer.html
+https://nytimes.com/2024/08/12/world/europe/uk-immigration-riots-starmer.html
 
 **$2.6 Million Homes in California**\
 `A renovated 1951 house in Los Angeles, a home with San Francisco Bay views in Greenbrae and a shingled house near the water in Manhattan Beach.`\
