@@ -1,3 +1,7 @@
+**WFAN reaches deal to license 880 AM to ESPN New York**\
+`WFAN’s parent, Audacy, is licensing its 880 AM signal to ESPN New York starting this fall in a local marketing agreement.`\
+https://nytimes.com/athletic/5695816/2024/08/12/wfan-espn-new-york-880-am/
+
 **Piecing Together an Ancient Epic Was Slow Work. Until A.I. Got Involved.**\
 `Scholars have struggled to identify fragments of the epic of Gilgamesh — one of the world’s oldest literary texts. Now A.I. has brought an “extreme acceleration” to the field.`\
 https://nytimes.com/2024/08/12/books/booksupdate/ai-ancient-tablets-gilgamesh.html
