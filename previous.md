@@ -1,3 +1,7 @@
+**Immigrants Are Becoming U.S. Citizens at Fastest Clip in Years**\
+`The government has reduced a backlog of applications that built up during the Trump administration. New citizens say they are looking forward to voting in November.`\
+https://nytimes.com/2024/08/12/us/immigration-us-citizenship-rates.html
+
 **Red Sox suspend Duran 2 games for homophobic slur**\
 `Duran appeared to make the comment to a fan sitting behind the during a plate appearance in the bottom of the sixth.`\
 https://nytimes.com/athletic/5696675/2024/08/12/red-sox-jarren-duran-suspension-slur/
@@ -18,7 +22,7 @@ https://nytimes.com/2024/08/12/us/los-angeles-earthquake.html
 `Just a few months after being dealt to the franchise, defensive end Haason Reddick has requested a trade from the New York Jets, a league source told The Athletic on Monday.`\
 https://nytimes.com/athletic/5696604/2024/08/12/haason-reddick-trade-request-jets/
 
-**Map: 4.4-Magnitude Earthquake Strikes Southern California**\
+**Map: 4.4-Magnitude Earthquake Strikes Los Angeles**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/08/12/us/12wea-quake-tracker-southern-california-nyt2fqi6.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5696354/2024/08/12/kevin-durant-psg-stake-nba/
 **Trump Calls Harris a ‘Communist.’ That Shows How Worried He Is.**\
 `MAGA desperately turns to old-fashioned red-baiting.`\
 https://nytimes.com/2024/08/12/opinion/harris-trump-communist.html
-
-**Is Chaos the Key to Better Economics?**\
-`The chaos theorist Doyne Farmer believes mainstream economists are getting it all wrong.`\
-https://nytimes.com/2024/08/12/opinion/chaos-theory-doyne-farmer.html
 

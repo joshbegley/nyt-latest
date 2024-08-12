@@ -1,3 +1,11 @@
+**Immigrants Are Becoming U.S. Citizens at Fastest Clip in Years**\
+`The government has reduced a backlog of applications that built up during the Trump administration. New citizens say they are looking forward to voting in November.`\
+https://nytimes.com/2024/08/12/us/immigration-us-citizenship-rates.html
+
+**Map: 4.4-Magnitude Earthquake Strikes Los Angeles**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2024/08/12/us/12wea-quake-tracker-southern-california-nyt2fqi6.html
+
 **4.4-Magnitude Earthquake Strikes Near Los Angeles**\
 `The quake was centered about five miles northeast of downtown, according to the U.S. Geological Survey. There were no initial reports of serious damage.`\
 https://nytimes.com/2024/08/12/us/los-angeles-earthquake.html
