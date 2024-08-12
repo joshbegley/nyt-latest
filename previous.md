@@ -1,40 +1,40 @@
-**Tottenham's Bissouma apologises over nitrous oxide video**\
-`Tottenham Hotspur midfielder Yves Bissouma has apologised after footage emerged of him appearing to inhale nitrous oxide.`\
-https://nytimes.com/athletic/5695444/2024/08/12/yves-bissouma-spurs-laughing-gas-video/
+**Jayson Tatum's benching, Yabu's resurgence and more: Celtics mailbag, Part 1**\
+`In part one of our Celtics offseason mailbag, Jared Weiss answers your questions about the Celtics' time at the Olympics.`\
+https://nytimes.com/athletic/5693443/2024/08/12/jayson-tatum-olympic-mens-basketball-gold-yabu-celtics/
 
-**This Week in Mets: New York swept away by Seattle to close long road trip**\
-`The Mets were outscored 22-1 over three games: "They outplayed us the whole series."`\
-https://nytimes.com/athletic/5695263/2024/08/12/mets-offense-swept-seattle/
+**Vikings 53-man roster projection: Who's in and who's out after preseason opener?**\
+`A number of players helped their cases for a roster spot against the Raiders, but several recent draft picks might soon be on the way out.`\
+https://nytimes.com/athletic/5694740/2024/08/12/vikings-53-man-roster-projection-preseason/
 
-**Diego Forlan: Man Utd striker, Golden Ball winner, and ITF tennis player - at 45**\
-`Striker Forlan got voted the 2010 World Cup's best player and was a hero to Manchester United fans. Now he's competing on the tennis court`\
-https://nytimes.com/athletic/5683356/2024/08/12/diego-forlan-interview-tennis-football-manchester-united-uruguay/
+**Dodgers takeaways: A tight division race, another pitching injury and more**\
+`Teoscar Hernández delivered a walk-off win, but the Dodgers' playoff fortunes hinge on keeping pitchers healthier.`\
+https://nytimes.com/athletic/5695063/2024/08/12/dodgers-injuries-walker-buehler/
 
-**On verge of 300 home runs, Aaron Judge is being treated like Barry Bonds — for good reason**\
-`Judge has once again begun receiving treatment not deployed on other hitters since Bonds terrorized the National League 20 years ago.`\
-https://nytimes.com/athletic/5694924/2024/08/12/aaron-judge-yankees-home-runs-300/
+**Ravens 53-man roster projection following preseason opener: How will the O-line shake out?**\
+`Plus, who will win the No. 3 RB job? And how many receivers will be on the final 53-man roster?`\
+https://nytimes.com/athletic/5694854/2024/08/12/ravens-roster-53-man-projection/
 
-**The Race Is On to Define Kamala Harris**\
-`In the big swing states, the advertising battle is growing more intense.`\
-https://nytimes.com/live/2024/08/07/opinion/thepoint/tipsheet-harris-trump-define
+**Twins' pitching pipeline being tested as injuries force young starters to sink or swim**\
+`Injured veterans and a lack of deadline trades put Simeon Woods Richardson, David Festa, Louie Varland and Zebby Matthews in the spotlight.`\
+https://nytimes.com/athletic/5692468/2024/08/12/twins-pitching-pipeline-injuries/
 
-**New Public Art Rides the Rails in Chicago, Timed to the Convention**\
-`When the Democratic National Convention kicks off on Aug. 19, an array of art tied to the election season and the El will greet visitors and Chicagoans alike.`\
-https://nytimes.com/2024/08/12/arts/design/chicago-art-trains-elections.html
+**Chiefs 53-man roster projection: Questions remain at running back, cornerback**\
+`Marquise Brown's injury on Saturday may result in the Chiefs again keeping seven receivers on their initial roster. `\
+https://nytimes.com/athletic/5695014/2024/08/12/chiefs-roster-projection-preseason/
 
-**California’s Rice Royalty Is Stepping Down**\
-`Koda Farms, a family-run rice business revered by chefs, ends a century-long tradition.`\
-https://nytimes.com/2024/08/12/dining/koda-farms-california-rice-business.html
+**Behind the scenes of Bears 'Hard Knocks' with the HBO crew at Halas Hall**\
+`Take a look at how things work behind the scenes for the show that specializes in working behind the scenes.`\
+https://nytimes.com/athletic/5691946/2024/08/12/hbo-hard-knocks-chicago-bears/
 
-**The Harris-Walz Ticket Is Our Opportunity for Political Imagination**\
-`The candidates are creating space for our most extravagant imaginings.`\
-https://nytimes.com/2024/08/12/opinion/harris-walz-political-imagination.html
+**Cubs takeaways: Why the offense is better, Busch's defense and Crow-Armstrong's base running**\
+`"I think we have nine guys who are producing offense right now,” Craig Counsell said.`\
+https://nytimes.com/athletic/5694754/2024/08/12/cubs-michael-bush-defense-pete-crow-armstrong/
 
-**Britain’s Anti-Immigrant Riots Pose Critical Test for Starmer**\
-`Even after restoring order, the new prime minister faces a bigger challenge: defusing the issues of fraying public services and a cost of living crisis that underlie the unrest.`\
-https://nytimes.com/2024/08/12/world/europe/uk-immigration-riots-starmer.html
+**Commanders 53-man roster projection: Intrigue at WR, offensive and defensive lines**\
+`Is there a young receiver on Washington's roster who could earn himself a spot on the 53? Will LB Jamin Davis make the final cut?`\
+https://nytimes.com/athletic/5694696/2024/08/12/commanders-53-man-roster-projection/
 
-**$2.6 Million Homes in California**\
-`A renovated 1951 house in Los Angeles, a home with San Francisco Bay views in Greenbrae and a shingled house near the water in Manhattan Beach.`\
-https://nytimes.com/2024/08/12/realestate/2-million-dollar-homes-california.html
+**Inside the Three Worst Weeks of Trump’s Campaign**\
+`Kamala Harris’s entry into the race has knocked the former president off his bearings, unsure how to take her on.`\
+https://nytimes.com/2024/08/12/podcasts/the-daily/trump-campaign-harris.html
 

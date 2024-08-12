@@ -1,3 +1,43 @@
+**Jayson Tatum's benching, Yabu's resurgence and more: Celtics mailbag, Part 1**\
+`In part one of our Celtics offseason mailbag, Jared Weiss answers your questions about the Celtics' time at the Olympics.`\
+https://nytimes.com/athletic/5693443/2024/08/12/jayson-tatum-olympic-mens-basketball-gold-yabu-celtics/
+
+**Vikings 53-man roster projection: Who's in and who's out after preseason opener?**\
+`A number of players helped their cases for a roster spot against the Raiders, but several recent draft picks might soon be on the way out.`\
+https://nytimes.com/athletic/5694740/2024/08/12/vikings-53-man-roster-projection-preseason/
+
+**Dodgers takeaways: A tight division race, another pitching injury and more**\
+`Teoscar Hernández delivered a walk-off win, but the Dodgers' playoff fortunes hinge on keeping pitchers healthier.`\
+https://nytimes.com/athletic/5695063/2024/08/12/dodgers-injuries-walker-buehler/
+
+**Ravens 53-man roster projection following preseason opener: How will the O-line shake out?**\
+`Plus, who will win the No. 3 RB job? And how many receivers will be on the final 53-man roster?`\
+https://nytimes.com/athletic/5694854/2024/08/12/ravens-roster-53-man-projection/
+
+**Twins' pitching pipeline being tested as injuries force young starters to sink or swim**\
+`Injured veterans and a lack of deadline trades put Simeon Woods Richardson, David Festa, Louie Varland and Zebby Matthews in the spotlight.`\
+https://nytimes.com/athletic/5692468/2024/08/12/twins-pitching-pipeline-injuries/
+
+**Chiefs 53-man roster projection: Questions remain at running back, cornerback**\
+`Marquise Brown's injury on Saturday may result in the Chiefs again keeping seven receivers on their initial roster. `\
+https://nytimes.com/athletic/5695014/2024/08/12/chiefs-roster-projection-preseason/
+
+**Behind the scenes of Bears 'Hard Knocks' with the HBO crew at Halas Hall**\
+`Take a look at how things work behind the scenes for the show that specializes in working behind the scenes.`\
+https://nytimes.com/athletic/5691946/2024/08/12/hbo-hard-knocks-chicago-bears/
+
+**Cubs takeaways: Why the offense is better, Busch's defense and Crow-Armstrong's base running**\
+`"I think we have nine guys who are producing offense right now,” Craig Counsell said.`\
+https://nytimes.com/athletic/5694754/2024/08/12/cubs-michael-bush-defense-pete-crow-armstrong/
+
+**Commanders 53-man roster projection: Intrigue at WR, offensive and defensive lines**\
+`Is there a young receiver on Washington's roster who could earn himself a spot on the 53? Will LB Jamin Davis make the final cut?`\
+https://nytimes.com/athletic/5694696/2024/08/12/commanders-53-man-roster-projection/
+
+**Inside the Three Worst Weeks of Trump’s Campaign**\
+`Kamala Harris’s entry into the race has knocked the former president off his bearings, unsure how to take her on.`\
+https://nytimes.com/2024/08/12/podcasts/the-daily/trump-campaign-harris.html
+
 **Britain’s Anti-Immigrant Riots Pose Critical Test for Starmer**\
 `Even after restoring order, the new prime minister faces a bigger challenge: defusing the issues of fraying public services and a cost of living crisis that underlie the unrest.`\
 https://nytimes.com/2024/08/12/world/europe/uk-immigration-riots-starmer.html
