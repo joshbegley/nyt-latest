@@ -1,3 +1,7 @@
+**Ex-Man Utd captain Katie Zelem joins Angel City**\
+`Angel City have confirmed the signing of former Manchester United captain Katie Zelem on a deal through to 2026.`\
+https://nytimes.com/athletic/5690898/2024/08/12/katie-zelem-angel-city-transfer/
+
 **Straight Outta Cobham returns for the new season**\
 `The much-loved Chelsea podcast is back to its usual capacity for the new season.`\
 https://nytimes.com/athletic/5695461/2024/08/12/straight-outta-cobham-best-chelsea-podcast-the-athletic/

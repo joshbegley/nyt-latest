@@ -10,6 +10,10 @@ https://nytimes.com/athletic/5695439/2024/08/12/the-view-from-the-lane-best-tott
 `England midfielder on why she's moving to the U.S, what happened at Manchester United, and her ambitions in Los Angeles`\
 https://nytimes.com/athletic/5694519/2024/08/12/katie-zelem-angel-city/
 
+**Ex-Man Utd captain Katie Zelem joins Angel City**\
+`Angel City have confirmed the signing of former Manchester United captain Katie Zelem on a deal through to 2026.`\
+https://nytimes.com/athletic/5690898/2024/08/12/katie-zelem-angel-city-transfer/
+
 **Calvin Royal Creates a Ballet Festival With Intention and Care**\
 `With “Unite,” a festival he planned and curated at the Joyce Theater, Royal is “taking the time to do things right,” he said.`\
 https://nytimes.com/2024/08/12/arts/dance/calvin-royal-unity-ballet-festival.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/12/us/harris-trump-election/black-men-rally-for
 **Swedish Prosecutors Drop Case Against Disqualified Eurovision Entrant**\
 `Investigators could not prove that Joost Klein, the Dutch entrant, had behaved threateningly during an incident shortly before the event final.`\
 https://nytimes.com/2024/08/12/arts/music/eurovision-joost-klein-no-charges.html
-
-**Gas Explosion Destroys House in Maryland, Killing Homeowner and Gas Employee**\
-`A 35-year-old contractor with Baltimore Gas and Electric was investigating an issue at the home, which exploded early Sunday morning.`\
-https://nytimes.com/2024/08/12/us/maryland-house-explosion.html
 
