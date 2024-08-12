@@ -1,3 +1,31 @@
+**The Paris Olympics wanted a fast track and it got one - this is how it was made**\
+`The science behind record-breaking surfaces, from elliptical air cells to running spike compatability`\
+https://nytimes.com/athletic/5693130/2024/08/12/paris-olympics-fast-track-science/
+
+**The one that got away: Which player did your Premier League club let go too soon?**\
+`The one that got away... with the summer transfer window in full swing, we asked our writers to look at which players were let go too soon`\
+https://nytimes.com/athletic/5674676/2024/08/12/premier-league-transfer-mistakes/
+
+**Leicester City – a tactical guide: How much Maresca-ball will Steve Cooper retain?**\
+`The second tier champions could struggle in the Premier League but they have appointed a manager who knows how to navigate choppy waters`\
+https://nytimes.com/athletic/5683305/2024/08/12/leicester-city-a-tactical-guide-how-much-maresca-ball-will-steve-cooper-retain/
+
+**The Filipinos Living in the Shadow of China’s Military Might**\
+`More than 200 civilian settlers on a contested island in the South China Sea find themselves on the frontier of a possible conflict with China.`\
+https://nytimes.com/2024/08/12/world/asia/spratlys-thitu-philippines-china.html
+
+**Los Angeles, Next Up for Summer Olympics, Hopes to Turn a Profit**\
+`The 2028 Games will be the third for Los Angeles as host, but it will be a challenge to repeat the success of 1984.`\
+https://nytimes.com/2024/08/12/business/economy/olympics-los-angeles-2028-economy.html
+
+**Spain Is Thirsty. Here’s How It Gets Water.**\
+`To supply water for a number of needs, from tourism to agriculture, the country and other dry nations are increasingly relying on desalination plants that convert seawater into fresh water.`\
+https://nytimes.com/2024/08/12/business/spain-water-desalination.html
+
+**Monday's MLB odds, best bets: Predictions for pitching matchups, props, playoffs and more**\
+`See pitching matchups, playoff projections, win projections and more for Monday's MLB games.`\
+https://nytimes.com/athletic/5693265/2024/08/12/mlb-odds-best-bets-projections-august-12/
+
 **Trey Lance after preseason opener: 'I left some plays out there for sure'**\
 `In his first game action since last preseason with the 49ers, Trey Lance threw for 188 yards but was unable to get Dallas in the end zone.`\
 https://nytimes.com/athletic/5695227/2024/08/11/cowboys-trey-lance-analysis-preseason-game/
