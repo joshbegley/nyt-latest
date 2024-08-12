@@ -1,3 +1,7 @@
+**Tuesday Briefing: Putin Lashes Out Over Incursion**\
+`Plus, A.I. is helping piece together an ancient epic.`\
+https://nytimes.com/2024/08/12/briefing/putin-ukraine-incursion-climate-trump-musk.html
+
 **Polar Bears Kill Worker in Remote Radar Site in Canada**\
 `Polar bear attacks on humans are rare, but last week’s episode was the second fatal encounter since 2023.`\
 https://nytimes.com/2024/08/12/us/polar-bears-attack-brevoort-canada.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5696675/2024/08/12/red-sox-jarren-duran-suspension-
 **Elon Musk Is Using X to Push His Views, and Donald Trump**\
 `Mr. Musk has become a vocal supporter of Mr. Trump. It wasn’t always that way.`\
 https://nytimes.com/2024/08/12/technology/elon-musk-political-views.html
-
-**Chairman of Trump Shooting Inquiry Brings Personal Experience to the Task**\
-`Representative Mike Kelly of Pennsylvania was in the audience with family, including three of his grandchildren, during the shooting.`\
-https://nytimes.com/2024/08/12/us/politics/mike-kelly-trump-shooting-inquiry.html
 
