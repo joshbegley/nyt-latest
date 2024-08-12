@@ -1,3 +1,7 @@
+**Colts' Anthony Richardson, rusty in return, grateful for game day routine after 308 days away**\
+`Richardson completed just 2-of-4 passes, but Sunday's game wasn't really about statistics for the young Colts QB. `\
+https://nytimes.com/athletic/5694992/2024/08/11/indianapolis-colts-anthony-richardson-preseason-return/
+
 **Paris Olympics closing cermony's best moments, highlights from a star-filled event**\
 `The closing ceremony had its share of memorable moments. Here are some of the highlights from Sunday’s festivities.`\
 https://nytimes.com/athletic/5694759/2024/08/11/paris-olympics-2024-tom-cruise-closing-ceremony/
