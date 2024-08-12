@@ -1,3 +1,7 @@
+**Diego Forlan: Man Utd striker, Golden Ball winner, and ITF tennis player - at 45**\
+`Striker Forlan got voted the 2010 World Cup's best player and was a hero to Manchester United fans. Now he's competing on the tennis court`\
+https://nytimes.com/athletic/5683356/2024/08/12/diego-forlan-interview-tennis-football-manchester-united-uruguay/
+
 **On verge of 300 home runs, Aaron Judge is being treated like Barry Bonds — for good reason**\
 `Judge has once again begun receiving treatment not deployed on other hitters since Bonds terrorized the National League 20 years ago.`\
 https://nytimes.com/athletic/5694924/2024/08/12/aaron-judge-yankees-home-runs-300/

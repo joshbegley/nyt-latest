@@ -1,3 +1,7 @@
+**Diego Forlan: Man Utd striker, Golden Ball winner, and ITF tennis player - at 45**\
+`Striker Forlan got voted the 2010 World Cup's best player and was a hero to Manchester United fans. Now he's competing on the tennis court`\
+https://nytimes.com/athletic/5683356/2024/08/12/diego-forlan-interview-tennis-football-manchester-united-uruguay/
+
 **On verge of 300 home runs, Aaron Judge is being treated like Barry Bonds — for good reason**\
 `Judge has once again begun receiving treatment not deployed on other hitters since Bonds terrorized the National League 20 years ago.`\
 https://nytimes.com/athletic/5694924/2024/08/12/aaron-judge-yankees-home-runs-300/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/12/arts/music/young-thug-ysl-trial-resume.html
 **Harris Should Take Divisions Over Gaza Seriously**\
 `It’s not just a few hecklers. Michigan voters’ concerns about Gaza cannot be dismissed.`\
 https://nytimes.com/2024/08/12/opinion/harris-michigan-gaza.html
-
-**U.S. Officials to Visit China for Economic Talks as Trade Tensions Rise**\
-`The recently established U.S.-China Financial Working Group is set to meet for discussions about financial stability and curbing the flow of fentanyl.`\
-https://nytimes.com/2024/08/12/business/us-china-working-group-trade.html
 
