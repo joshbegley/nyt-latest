@@ -1,3 +1,15 @@
+**'I was chatting to the future king of England about the Aston Villa game. It was very cool'**\
+`Ben Francis is a self-made billionaire after founding the exercise apparel company Gymshark — and obsessed with all things Aston Villa`\
+https://nytimes.com/athletic/5686878/2024/08/12/aston-villa-gymshark-francis-prince-william/
+
+**How ready are Newcastle as the Premier League returns?**\
+`Eddie Howe's side are revitalised and ready to attack the new campaign with the vim and verve that typified their game until injuries struck`\
+https://nytimes.com/athletic/5692958/2024/08/12/newcastle-howe-krafth-season/
+
+**Can this be Alejandro Garnacho's season?**\
+`The young forward has proven himself good enough to start games for United. This season will be a test of whether he can finish them, too`\
+https://nytimes.com/athletic/5692350/2024/08/12/manchester-united-garnacho-season/
+
 **FPL: What is the best formation to start the season with?**\
 `Play three up top or go 'big at the back'? What's the best way to construct your FPL line-up to maximise your points next season?`\
 https://nytimes.com/athletic/5659250/2024/08/12/fantasy-premier-league-what-is-the-best-formation-to-start-the-season-with/

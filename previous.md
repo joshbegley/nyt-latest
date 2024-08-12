@@ -1,3 +1,15 @@
+**'I was chatting to the future king of England about the Aston Villa game. It was very cool'**\
+`Ben Francis is a self-made billionaire after founding the exercise apparel company Gymshark — and obsessed with all things Aston Villa`\
+https://nytimes.com/athletic/5686878/2024/08/12/aston-villa-gymshark-francis-prince-william/
+
+**How ready are Newcastle as the Premier League returns?**\
+`Eddie Howe's side are revitalised and ready to attack the new campaign with the vim and verve that typified their game until injuries struck`\
+https://nytimes.com/athletic/5692958/2024/08/12/newcastle-howe-krafth-season/
+
+**Can this be Alejandro Garnacho's season?**\
+`The young forward has proven himself good enough to start games for United. This season will be a test of whether he can finish them, too`\
+https://nytimes.com/athletic/5692350/2024/08/12/manchester-united-garnacho-season/
+
 **FPL: What is the best formation to start the season with?**\
 `Play three up top or go 'big at the back'? What's the best way to construct your FPL line-up to maximise your points next season?`\
 https://nytimes.com/athletic/5659250/2024/08/12/fantasy-premier-league-what-is-the-best-formation-to-start-the-season-with/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5643409/2024/08/12/how-arsenal-can-go-again-to-win-
 **Ranking the Premier League home kits: Dialling codes, Lasagne-gate and Tron**\
 `Which kit reminds me of the West Wing? And which looks like something from the sci-fi film Tron? Here are all the home kits: ranked...`\
 https://nytimes.com/athletic/5684513/2024/08/12/premier-league-home-kits-rankings/
-
-**The Paris Olympics wanted a fast track and it got one - this is how it was made**\
-`The science behind record-breaking surfaces, from elliptical air cells to running spike compatability`\
-https://nytimes.com/athletic/5693130/2024/08/12/paris-olympics-fast-track-science/
-
-**The one that got away: Which player did your Premier League club let go too soon?**\
-`The one that got away... with the summer transfer window in full swing, we asked our writers to look at which players were let go too soon`\
-https://nytimes.com/athletic/5674676/2024/08/12/premier-league-transfer-mistakes/
-
-**Leicester City – a tactical guide: How much Maresca-ball will Steve Cooper retain?**\
-`The second tier champions could struggle in the Premier League but they have appointed a manager who knows how to navigate choppy waters`\
-https://nytimes.com/athletic/5683305/2024/08/12/leicester-city-a-tactical-guide-how-much-maresca-ball-will-steve-cooper-retain/
 
