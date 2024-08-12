@@ -1,3 +1,7 @@
+**Newcastle exploring Guehi alternatives after third bid for defender**\
+`Newcastle United are actively exploring alternatives in case they are not able to agree a deal for Crystal Palace defender Marc Guehi.`\
+https://nytimes.com/athletic/5682499/2024/08/12/newcastle-marc-guehi-palace-transfer/
+
 **Lowetide: Oilers complete reasonable expectations for 2024-25**\
 `Here are the Oilers' individual predictions and projected team totals for 2024-25, including three young players who must deliver more.`\
 https://nytimes.com/athletic/5694324/2024/08/12/edmonton-oilers-2024-25-season-expectations/
