@@ -1,3 +1,11 @@
+**Trump Is Trying to Regain the Spotlight by Returning to X**\
+`Also, an ‘extremely dangerous’ fire is burning near Athens. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/08/12/briefing/trump-musk-interview-x-wildfire-athens-greece.html
+
+**Ugliness aside, the Jets need Haason Reddick — and Reddick needs the Jets**\
+`That reality holds true despite the prolonged contract holdout and, now, Monday's trade demand`\
+https://nytimes.com/athletic/5696779/2024/08/12/haason-reddick-holdout-contract-trade-demand-new-york-jets/
+
 **Tropical Storm Ernesto Takes Shape in the Atlantic**\
 `The storm is expected to unleash heavy rain on parts of the Caribbean, including Puerto Rico, but is not expected to threaten the mainland United States.`\
 https://nytimes.com/article/tropical-storm-ernesto-hurricane.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/12/us/polar-bears-attack-brevoort-canada.html
 **Martin Zubimendi to remain at Real Sociedad**\
 `Martin Zubimendi will remain at Real Sociedad, effectively ending Liverpool&#8217;s hopes of signing the midfielder.`\
 https://nytimes.com/athletic/5686524/2024/08/12/martin-zubimendi-real-sociedad-liverpool/
-
-**Talk of the Devils returns for the new season**\
-`The much-loved Manchester United podcast is back to its usual capacity for the new season.`\
-https://nytimes.com/athletic/5695426/2024/08/12/talk-of-the-devils-best-manchester-united-podcast-the-athletic/
-
-**Worried About a Convention Clash, Democrats Woo Uncommitted Delegates**\
-`A quiet diplomatic effort to ease tensions with uncommitted delegates and head off televised confrontations inside the Democratic convention hall next week has been underway for months.`\
-https://nytimes.com/2024/08/12/us/politics/democratic-convention-uncommitted.html
 
