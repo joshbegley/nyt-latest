@@ -1,3 +1,7 @@
+**Quotation of the Day: Olympics’ Most Difficult Balancing Act: Politics**\
+`Quotation of the Day for Monday, August 12, 2024.`\
+https://nytimes.com/2024/08/12/pageoneplus/quotation-of-the-day-olympics-most-difficult-balancing-act-politics.html
+
 **Were the Paris Olympics the greatest ever? They were on TV and streaming**\
 `The ratings numbers have been massive, and the streaming product was rock-solid. Here are 20 media thoughts on NBC and the Paris Olympics.`\
 https://nytimes.com/athletic/5680663/2024/08/12/2024-paris-olympics-tv-streaming-nbc-peacock/

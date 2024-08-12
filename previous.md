@@ -1,3 +1,7 @@
+**Quotation of the Day: Olympics’ Most Difficult Balancing Act: Politics**\
+`Quotation of the Day for Monday, August 12, 2024.`\
+https://nytimes.com/2024/08/12/pageoneplus/quotation-of-the-day-olympics-most-difficult-balancing-act-politics.html
+
 **Were the Paris Olympics the greatest ever? They were on TV and streaming**\
 `The ratings numbers have been massive, and the streaming product was rock-solid. Here are 20 media thoughts on NBC and the Paris Olympics.`\
 https://nytimes.com/athletic/5680663/2024/08/12/2024-paris-olympics-tv-streaming-nbc-peacock/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/12/world/europe/athens-greece-wildfire.html
 **FPL 2024-25 mailbag: Send in your questions for Abdul Rehman now**\
 `Send in your questions for Abdul Rehman's new-season FPL mailbag now`\
 https://nytimes.com/athletic/5677286/2024/08/12/fpl-mailbag-2024-25-questions/
-
-**What’s on TV This Week: ‘Chimp Crazy’ and ‘The Challenge’**\
-`HBO airs a new documentary that could fall into the category “exotic animals as pets gone wrong.” The MTV competition show is back for a 40th season.`\
-https://nytimes.com/2024/08/12/arts/television/whats-on-tv-this-week-chimp-crazy-and-the-challenge.html
 
