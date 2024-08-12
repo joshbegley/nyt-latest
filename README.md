@@ -1,3 +1,7 @@
+**Trey Lance after preseason opener: 'I left some plays out there for sure'**\
+`In his first game action since last preseason with the 49ers, Trey Lance threw for 188 yards but was unable to get Dallas in the end zone.`\
+https://nytimes.com/athletic/5695227/2024/08/11/cowboys-trey-lance-analysis-preseason-game/
+
 **Jarren Duran, Red Sox issue apology after outfielder directs homophobic slur at fan**\
 `The television broadcast picked up Duran yelling the slur at a fan in the sixth inning of Sunday's game.`\
 https://nytimes.com/athletic/5695261/2024/08/11/red-sox-jarren-duran-fan-slur/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5694759/2024/08/11/paris-olympics-2024-tom-cruise-c
 **Swim Towards the Shark**\
 `In a crisis, when all logic suggests that you get away, how will you respond?`\
 https://nytimes.com/2024/08/11/podcasts/swim-towards-the-shark-this-american-life-nyt-audio.html
-
-**How Close Are the Planet’s Climate Tipping Points?**\
-`Earth’s warming could trigger sweeping changes in the natural world that would be hard, if not impossible, to reverse.`\
-https://nytimes.com/interactive/2024/08/11/climate/earth-warming-climate-tipping-points.html
 
