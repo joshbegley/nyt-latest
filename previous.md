@@ -1,26 +1,6 @@
-**Submit a question for Kelly Iko’s Southwest Division mailbag: Summer edition**\
-`We are deep in the dog days of the offseason.`\
-https://nytimes.com/athletic/5696821/2024/08/12/submit-a-question-for-kelly-ikos-southwest-division-mailbag-summer-edition/
-
-**Ex-Cornell Student Sentenced to 21 Months for Making Antisemitic Threats**\
-`Patrick Dai admitted to posting messages in which he threatened to stab, rape and behead Jewish people.`\
-https://nytimes.com/2024/08/12/nyregion/cornell-student-antisemitism-threats.html
-
-**Tracking Tropical Storm Ampil**\
-`See the likely path and wind arrival times for Ampil.`\
-https://nytimes.com/interactive/2024/08/12/world/ampil-map-path-tracker.html
-
-**Iranian Vice President Resigns, Signaling Deep Divisions as Cabinet Takes Shape**\
-`Mohammad Javad Zarif’s resignation shocked Iran’s political circles and came as President Masoud Pezeshkian announced that his cabinet would include several conservatives and only one woman.`\
-https://nytimes.com/2024/08/12/world/middleeast/iran-cabinet-zarif-resignation.html
-
 **Despite Trump’s Claims, Footage Shows Large Crowd at Harris’s Detroit Rally**\
 `Three New York Times reporters who attended the rally confirmed that the crowd numbered in the thousands.`\
 https://nytimes.com/interactive/2024/08/12/us/elections/trump-harris-detroit-rally.html
-
-**Chiles case won’t be reconsidered, CAS tells USA Gymnastics**\
-`An inquiry by Chiles’ coach was invalid because it occurred four seconds after the one-minute window for such a challenge had closed.`\
-https://nytimes.com/athletic/5696975/2024/08/12/usa-gymnastics-jordan-chiles-case/
 
 **Dearica Hamby files federal lawsuit against WNBA, Aces**\
 `Hamby alleges “notable” changes in how the Aces treated her after publicly announcing her second pregnancy.`\
@@ -37,4 +17,24 @@ https://nytimes.com/2024/08/12/us/politics/fbi-trump-campaign-hacking.html
 **Trump Is Trying to Regain the Spotlight by Returning to X**\
 `Also, an ‘extremely dangerous’ fire is burning near Athens. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/08/12/briefing/trump-musk-interview-x-wildfire-athens-greece.html
+
+**Ugliness aside, the Jets need Haason Reddick — and Reddick needs the Jets**\
+`That reality holds true despite the prolonged contract holdout and, now, Monday's trade demand`\
+https://nytimes.com/athletic/5696779/2024/08/12/haason-reddick-holdout-contract-trade-demand-new-york-jets/
+
+**Tropical Storm Ernesto Forms, Threatening Caribbean With Rain**\
+`The storm, which formed on Monday, is expected to lash several Caribbean islands, including Puerto Rico. It is not expected to hit the mainland United States.`\
+https://nytimes.com/article/tropical-storm-ernesto-hurricane.html
+
+**Five world leaders have urged Iran not to attack.**\
+`By James C. McKinley Jr.`\
+https://nytimes.com/live/2024/08/12/world/israel-iran-hamas-gaza-war/five-world-leaders-have-urged-iran-not-to-attack
+
+**Pakistan’s Ex-Spy Chief, an Imran Khan Ally, Is Arrested**\
+`The arrest of Lt. Gen. Faiz Hameed is the first time a current or former head of the powerful Inter-Services Intelligence agency faces court-martial proceedings.`\
+https://nytimes.com/2024/08/12/world/asia/faiz-hameed-spy-chief-arrested-pakistan-imran-khan.html
+
+**Multiple teams contact Patriots about trading for Judon**\
+`Judon is seeking a new contract from the Patriots but has been practicing after a brief hold in.`\
+https://nytimes.com/athletic/5696823/2024/08/12/patriots-trade-rumors-matthew-judon/
 

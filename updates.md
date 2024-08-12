@@ -1,3 +1,23 @@
+**Ugliness aside, the Jets need Haason Reddick — and Reddick needs the Jets**\
+`That reality holds true despite the prolonged contract holdout and, now, Monday's trade demand`\
+https://nytimes.com/athletic/5696779/2024/08/12/haason-reddick-holdout-contract-trade-demand-new-york-jets/
+
+**Tropical Storm Ernesto Forms, Threatening Caribbean With Rain**\
+`The storm, which formed on Monday, is expected to lash several Caribbean islands, including Puerto Rico. It is not expected to hit the mainland United States.`\
+https://nytimes.com/article/tropical-storm-ernesto-hurricane.html
+
+**Five world leaders have urged Iran not to attack.**\
+`By James C. McKinley Jr.`\
+https://nytimes.com/live/2024/08/12/world/israel-iran-hamas-gaza-war/five-world-leaders-have-urged-iran-not-to-attack
+
+**Pakistan’s Ex-Spy Chief, an Imran Khan Ally, Is Arrested**\
+`The arrest of Lt. Gen. Faiz Hameed is the first time a current or former head of the powerful Inter-Services Intelligence agency faces court-martial proceedings.`\
+https://nytimes.com/2024/08/12/world/asia/faiz-hameed-spy-chief-arrested-pakistan-imran-khan.html
+
+**Multiple teams contact Patriots about trading for Judon**\
+`Judon is seeking a new contract from the Patriots but has been practicing after a brief hold in.`\
+https://nytimes.com/athletic/5696823/2024/08/12/patriots-trade-rumors-matthew-judon/
+
 **Submit a question for Kelly Iko’s Southwest Division mailbag: Summer edition**\
 `We are deep in the dog days of the offseason.`\
 https://nytimes.com/athletic/5696821/2024/08/12/submit-a-question-for-kelly-ikos-southwest-division-mailbag-summer-edition/
