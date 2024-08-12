@@ -1,3 +1,11 @@
+**Talk of the Devils returns for the new season**\
+`The much-loved Manchester United podcast is back to its usual capacity for the new season.`\
+https://nytimes.com/athletic/5695426/2024/08/12/talk-of-the-devils-best-manchester-united-podcast-the-athletic/
+
+**Worried About a Convention Clash, Democrats Woo Uncommitted Delegates**\
+`A quiet diplomatic effort to ease tensions with uncommitted delegates and head off televised confrontations inside the Democratic convention hall next week has been underway for months.`\
+https://nytimes.com/2024/08/12/us/politics/democratic-convention-uncommitted.html
+
 **Map: 4.4-Magnitude Earthquake Shakes Los Angeles**\
 `View the location of the quake’s shake area and aftershocks.`\
 https://nytimes.com/interactive/2024/08/12/us/12wea-quake-tracker-southern-california-nyt2fqi6.html
