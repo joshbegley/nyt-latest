@@ -28,7 +28,7 @@ https://nytimes.com/athletic/5696222/2024/08/12/uswnt-emma-hayes-olympics/
 
 **Why Iran Has Waited to Retaliate Against Israel After Killing of a Hamas Leader**\
 `Tehran is under pressure to avenge the assassination of Ismail Haniyeh, but analysts said it is balancing multiple factors as it weighs a response.`\
-https://nytimes.com/2024/08/12/world/middleeast/iran-israel-retaliation-attack-explained.html
+https://nytimes.com/live/2024/08/12/world/israel-iran-hamas-gaza-war/iran-israel-retaliation-attack-explained
 
 **Older Adults Do Not Benefit From Moderate Drinking, Large Study Finds**\
 `Virtually any amount increased the risk for cancer, and there were no heart benefits, the researchers reported.`\
