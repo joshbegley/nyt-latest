@@ -1,3 +1,7 @@
+**Harris Appeals to Tech Leaders in a Return to San Francisco**\
+`A Sunday fund-raiser offered Vice President Kamala Harris a chance to turn the page on a sometimes frosty relationship between President Biden and Silicon Valley.`\
+https://nytimes.com/2024/08/11/us/kamala-harris-tech-fundraiser.html
+
 **Colts' Anthony Richardson, rusty in return, grateful for game day routine after 308 days away**\
 `Richardson completed 2-of-4 passes, but Sunday's game wasn't really about statistics for the young Colts QB. `\
 https://nytimes.com/athletic/5694992/2024/08/11/indianapolis-colts-anthony-richardson-preseason-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5694929/2024/08/11/49ers-saints-joint-practices-can
 **The Hacking of Presidential Campaigns Begins, With the Usual Fog of Motives**\
 `Donald J. Trump says his campaign was hacked by the Iranians, but obtained publicly available data. Microsoft said Iranian hackers sent a spear phishing email to a “high-ranking official” on a presidential campaign.`\
 https://nytimes.com/2024/08/11/us/politics/trump-campaign-hacking-iran.html
-
-**Paris, Uncharacteristically Giddy, Bids Au Revoir to the Olympics**\
-`A joyous Games, a cleaned-up Seine and improvements to the region brought cheer to Parisians as they handed off the Summer Olympics to Los Angeles.`\
-https://nytimes.com/2024/08/11/paris-closing-ceremony-los-angeles.html
 

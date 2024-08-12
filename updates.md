@@ -1,3 +1,7 @@
+**Harris Appeals to Tech Leaders in a Return to San Francisco**\
+`A Sunday fund-raiser offered Vice President Kamala Harris a chance to turn the page on a sometimes frosty relationship between President Biden and Silicon Valley.`\
+https://nytimes.com/2024/08/11/us/kamala-harris-tech-fundraiser.html
+
 **Colts' Anthony Richardson, rusty in return, grateful for game day routine after 308 days away**\
 `Richardson completed 2-of-4 passes, but Sunday's game wasn't really about statistics for the young Colts QB. `\
 https://nytimes.com/athletic/5694992/2024/08/11/indianapolis-colts-anthony-richardson-preseason-return/
