@@ -1,4 +1,4 @@
-**WFAN reaches deal to license 880 AM to ESPN New York**\
+**WFAN parent company reaches deal to license 880 AM to ESPN NY**\
 `WFAN’s parent, Audacy, is licensing its 880 AM signal to ESPN New York starting this fall in a local marketing agreement.`\
 https://nytimes.com/athletic/5695816/2024/08/12/wfan-espn-new-york-880-am/
 
