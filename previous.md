@@ -1,3 +1,15 @@
+**Elections Officials Battle a Deluge of Disinformation**\
+`County clerks and secretaries of state are overwhelmed this year, as they stare down a “perpetual moving target” of new conspiracy theories, political pressure and threats.`\
+https://nytimes.com/2024/08/12/business/media/2024-election-disinformation.html
+
+**Seahawks roster projection: Tough decisions loom at RB, WR, CB**\
+`Who will win the third running back job? Can Laviska Shenault do enough to grab a roster spot? Will every rookie draft pick make the team?`\
+https://nytimes.com/athletic/5695377/2024/08/12/seahawks-53-man-roster-projection/
+
+**The Windup: NL ROY race could be a doozy**\
+`Welcome to The Windup, The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5696019/2024/08/12/mlb-nl-rookie-aaron-judge-barry-bonds-the-windup/
+
 **Dolphins activate linebacker Jaelan Phillips from PUP list**\
 `Phillips is recovering from a torn Achilles he suffered in the Dolphins' Black Friday win over the New York Jets.`\
 https://nytimes.com/athletic/5696002/2024/08/12/dolphins-jaelan-phillips-active-pup/
@@ -7,7 +19,7 @@ https://nytimes.com/athletic/5696002/2024/08/12/dolphins-jaelan-phillips-active-
 https://nytimes.com/live/2024/08/07/opinion/thepoint/olympics-most-successful-nation
 
 **Heat Contributed to 47,000 Deaths in Europe Last Year, but Relief Programs Helped**\
-`A new study shows how deadly heat can be, and how behavioral and social changes can reduce heat mortality.`\
+`A new study shows how deadly warming can be, and how behavioral and social changes can reduce mortality.`\
 https://nytimes.com/2024/08/12/climate/excess-heat-deaths-europe.html
 
 **For the Rescuer of an Ancient Shipwreck, Trouble Arrived in the Mail**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5694725/2024/08/12/detroit-lions-53-man-roster-proj
 **Alvarez completes €95m Atletico Madrid transfer**\
 `Atletico Madrid have completed the signing of Julian Alvarez from Manchester City.`\
 https://nytimes.com/athletic/5683324/2024/08/12/julian-alvarez-transfer-atletico-madrid/
-
-**Newcastle exploring Guehi alternatives after third bid for defender**\
-`Newcastle United are actively exploring alternatives in case they are not able to agree a deal for Crystal Palace defender Marc Guehi.`\
-https://nytimes.com/athletic/5682499/2024/08/12/newcastle-marc-guehi-palace-transfer/
-
-**Lowetide: Oilers complete reasonable expectations for 2024-25**\
-`Here are the Oilers' individual predictions and projected team totals for 2024-25, including three young players who must deliver more.`\
-https://nytimes.com/athletic/5694324/2024/08/12/edmonton-oilers-2024-25-season-expectations/
-
-**Democrats Turn to Their National Security Go-To for Trump Assassination Inquiry**\
-`Representative Jason Crow of Colorado, whom Democrats tapped for impeachment, investigations and tough questioning of President Biden, is their top member of a task force investigating the shooting.`\
-https://nytimes.com/2024/08/12/us/politics/jason-crow-trump-inquiry.html
 
