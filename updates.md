@@ -1,3 +1,11 @@
+**Iran’s Vice President Resigns, Signaling Deep Divisions as Cabinet Takes Shape**\
+`Mohammad Javad Zarif’s resignation shocked Iran’s political circles and came as President Masoud Pezeshkian announced that his cabinet would include several conservatives and only one woman.`\
+https://nytimes.com/2024/08/12/world/middleeast/iran-cabinet-zarif-resignation.html
+
+**Despite Trump’s Claims, Footage Shows Large Crowd at Harris’s Detroit Rally**\
+`Three New York Times reporters who attended the rally confirmed that the crowd numbered in the thousands.`\
+https://nytimes.com/interactive/2024/08/12/us/elections/trump-harris-detroit-rally.html
+
 **Chiles case won’t be reconsidered, CAS tells USA Gymnastics**\
 `An inquiry by Chiles’ coach was invalid because it occurred four seconds after the one-minute window for such a challenge had closed.`\
 https://nytimes.com/athletic/5696975/2024/08/12/usa-gymnastics-jordan-chiles-case/
