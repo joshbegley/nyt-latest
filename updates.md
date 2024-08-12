@@ -1,3 +1,7 @@
+**What to expect from The Athletic's podcast coverage this Premier League season**\
+`The Athletic’s award-winning podcast network has something for everyone this season…`\
+https://nytimes.com/athletic/5695491/2024/08/12/best-football-podcasts-the-athletic-premier-league/
+
 **Ex-Man Utd captain Katie Zelem joins Angel City**\
 `Angel City have confirmed the signing of former Manchester United captain Katie Zelem on a deal through to 2026.`\
 https://nytimes.com/athletic/5690898/2024/08/12/katie-zelem-angel-city-transfer/

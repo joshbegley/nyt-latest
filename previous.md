@@ -1,3 +1,7 @@
+**What to expect from The Athletic's podcast coverage this Premier League season**\
+`The Athletic’s award-winning podcast network has something for everyone this season…`\
+https://nytimes.com/athletic/5695491/2024/08/12/best-football-podcasts-the-athletic-premier-league/
+
 **Straight Outta Cobham returns for the new season**\
 `The much-loved Chelsea podcast is back to its usual capacity for the new season.`\
 https://nytimes.com/athletic/5695461/2024/08/12/straight-outta-cobham-best-chelsea-podcast-the-athletic/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5693691/2024/08/12/fantasy-baseball-notebook-raw-po
 **Black men rally for Kamala Harris, and confront an elephant in the room.**\
 `By Zolan Kanno-Youngs and Erica L. Green`\
 https://nytimes.com/live/2024/08/12/us/harris-trump-election/black-men-rally-for-kamala-harris-and-confront-an-elephant-in-the-room
-
-**Swedish Prosecutors Drop Case Against Disqualified Eurovision Entrant**\
-`Investigators could not prove that Joost Klein, the Dutch entrant, had behaved threateningly during an incident shortly before the event final.`\
-https://nytimes.com/2024/08/12/arts/music/eurovision-joost-klein-no-charges.html
 
