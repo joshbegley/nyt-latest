@@ -1,3 +1,7 @@
+**Rachael Lillis, Who Voiced Popular ‘Pokémon’ Characters, Dies at 55**\
+`Ms. Lillis voiced the characters of Misty and Jessie in the animated series based on a video game. She was diagnosed with breast cancer in May.`\
+https://nytimes.com/2024/08/12/arts/television/rachael-lillis-dead.html
+
 **At a Russian Border Post, Scenes of Ruin After Ukraine’s Surprise Attack**\
 `A week after the biggest foreign incursion into Russia since World War II, The New York Times visited one of the spots where Ukrainian forces stormed into Russia and surprised the defenders.`\
 https://nytimes.com/2024/08/12/world/europe/russia-ukraine-kursk-incursion.html
@@ -35,8 +39,4 @@ https://nytimes.com/2024/08/12/nyregion/rape-assault-coney-island-boardwalk.html
 **Netanyahu Clashes With Defense Minister on Gaza, Exposing Schisms**\
 `Prime Minister Benjamin Netanyahu accused Yoav Gallant of embracing an “anti-Israel narrative” in a disagreement over how to prosecute the war.`\
 https://nytimes.com/2024/08/12/world/middleeast/netanyahu-gallant-israel-gaza-war.html
-
-**Submit a question for Kelly Iko’s Southwest Division mailbag: Summer edition**\
-`We are deep in the dog days of the offseason.`\
-https://nytimes.com/athletic/5696821/2024/08/12/submit-a-question-for-kelly-ikos-southwest-division-mailbag-summer-edition/
 
