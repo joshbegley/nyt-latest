@@ -1,3 +1,5 @@
+**Israel shrinks a humanitarian zone in Gaza, and other news.**\
+
 **The Pulse: 5 best moments from perfect Olympics**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5695207/2024/08/12/olympics-best-moments-the-pulse/
