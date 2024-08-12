@@ -1,4 +1,8 @@
 **Mayor Adams Expected to Name Robert Tucker as New Fire Commissioner**\
+`Mr. Tucker will succeed Laura Kavanagh as leader of the Fire Department of New York City. A longtime supporter of the department, he has worked for 25 years in law enforcement and private security.`\
+https://nytimes.com/2024/08/11/nyregion/eric-adams-robert-tucker-fire-commissioner.html
+
+**Mayor Adams Expected to Name Robert Tucker as New Fire Commissioner**\
 `Mr. Tucker will succeed Laura Kavanagh as leader of the Fire Department. A longtime supporter of the department, he has worked for 25 years in law enforcement and private security.`\
 https://nytimes.com/2024/08/11/nyregion/eric-adams-robert-tucker-fire-commissioner.html
 
