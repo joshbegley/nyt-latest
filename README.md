@@ -1,3 +1,7 @@
+**What the AP Top 25 says about CFB in 2024: Is Ohio State a better bet than No. 1 Georgia?**\
+`It may be a new era of college football, but arguing about the AP Top 25 is still an annual tradition. What does this year's poll mean?`\
+https://nytimes.com/athletic/5696600/2024/08/12/ap-poll-college-football-rankings-predictions-preseason/
+
 **Immigrants Are Becoming U.S. Citizens at Fastest Clip in Years**\
 `The government has reduced a backlog of applications that built up during the Trump administration. New citizens say they are looking forward to voting in November.`\
 https://nytimes.com/2024/08/12/us/immigration-us-citizenship-rates.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/12/business/media/the-new-york-times-editorial-board
 **NBA star Kevin Durant becomes minority stakeholder of PSG**\
 `NBA star Kevin Durant has become a minority shareholder of French soccer giants Paris Saint-Germain.`\
 https://nytimes.com/athletic/5696354/2024/08/12/kevin-durant-psg-stake-nba/
-
-**Trump Calls Harris a ‘Communist.’ That Shows How Worried He Is.**\
-`MAGA desperately turns to old-fashioned red-baiting.`\
-https://nytimes.com/2024/08/12/opinion/harris-trump-communist.html
 
