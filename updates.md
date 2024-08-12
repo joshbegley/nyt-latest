@@ -1,3 +1,7 @@
+**Trey Lance after preseason opener: 'I left some plays out there for sure'**\
+`In his first game action since last preseason with the 49ers, Trey Lance threw for 188 yards but was unable to get Dallas in the end zone.`\
+https://nytimes.com/athletic/5695227/2024/08/11/cowboys-trey-lance-analysis-preseason-game/
+
 **Jarren Duran, Red Sox issue apology after outfielder directs homophobic slur at fan**\
 `The television broadcast picked up Duran yelling the slur at a fan in the sixth inning of Sunday's game.`\
 https://nytimes.com/athletic/5695261/2024/08/11/red-sox-jarren-duran-fan-slur/
