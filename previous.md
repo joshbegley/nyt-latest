@@ -1,3 +1,7 @@
+**Hurricane Cleanup Effort Reaps ‘Treasure’: a 1945 Letter in a Bottle**\
+`How did the letter, sent from a Naval base in Virginia, make its way more than 800 miles to Florida? Who wrote it, and for whom? These mysteries remain.`\
+https://nytimes.com/2024/08/12/us/message-bottle-hurricane-debby.html
+
 **What the AP Top 25 says about CFB in 2024: Is Ohio State a better bet than No. 1 Georgia?**\
 `It may be a new era of college football, but arguing about the AP Top 25 is still an annual tradition. What does this year's poll mean?`\
 https://nytimes.com/athletic/5696600/2024/08/12/ap-poll-college-football-rankings-predictions-preseason/
@@ -27,14 +31,10 @@ https://nytimes.com/2024/08/12/us/los-angeles-earthquake.html
 https://nytimes.com/athletic/5696604/2024/08/12/haason-reddick-trade-request-jets/
 
 **Map: 4.4-Magnitude Earthquake Strikes Los Angeles**\
-`View the location of the quake’s epicenter and shake area.`\
+`View the location of the quake’s shake area and aftershocks.`\
 https://nytimes.com/interactive/2024/08/12/us/12wea-quake-tracker-southern-california-nyt2fqi6.html
 
 **The New York Times Will Stop Endorsing Candidates in New York Races**\
 `The paper’s editorial board will continue to endorse presidential candidates, as it has for more than 160 years.`\
 https://nytimes.com/2024/08/12/business/media/the-new-york-times-editorial-board-political-endorsements.html
-
-**NBA star Kevin Durant becomes minority stakeholder of PSG**\
-`NBA star Kevin Durant has become a minority shareholder of French soccer giants Paris Saint-Germain.`\
-https://nytimes.com/athletic/5696354/2024/08/12/kevin-durant-psg-stake-nba/
 
