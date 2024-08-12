@@ -1,3 +1,11 @@
+**Fantasy baseball notebook: Raw power is fun, but does it help us dream on a player's potential?**\
+`Derek VanRiper ponders where Jackson Chourio might go in 2025 fantasy drafts, and questions the value of Max EV as a way to predict power.`\
+https://nytimes.com/athletic/5693691/2024/08/12/fantasy-baseball-notebook-raw-power-jackson-chourio/
+
+**Black men rally for Kamala Harris, and confront an elephant in the room.**\
+`By Zolan Kanno-Youngs and Erica L. Green`\
+https://nytimes.com/live/2024/08/12/us/harris-trump-election/black-men-rally-for-kamala-harris-and-confront-an-elephant-in-the-room
+
 **Swedish Prosecutors Drop Case Against Disqualified Eurovision Entrant**\
 `Investigators could not prove that Joost Klein, the Dutch entrant, had behaved threateningly during an incident shortly before the event final.`\
 https://nytimes.com/2024/08/12/arts/music/eurovision-joost-klein-no-charges.html
