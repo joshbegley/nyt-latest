@@ -1,3 +1,7 @@
+**The Pulse: 5 best moments from perfect Olympics**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5695207/2024/08/12/olympics-best-moments-the-pulse/
+
 **Raiders 53-man roster projection: How the loss to the Vikings affects the depth chart**\
 `Who's up and who's down following the Raiders' preseason loss to the Vikings on Saturday? There are lots of questions on defense.`\
 https://nytimes.com/athletic/5693239/2024/08/12/raiders-53-man-roster-projection-depth-chart/
