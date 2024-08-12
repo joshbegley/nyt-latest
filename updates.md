@@ -1,3 +1,15 @@
+**Farewell, Emerson Royal - an unlucky victim of Tottenham's managerial churn**\
+`While Spurs will probably be able to replace Royal as a utility player, replacing his personality will be much harder`\
+https://nytimes.com/athletic/5690934/2024/08/12/emerson-royal-tottenham-transfer/
+
+**Milan sign Tottenham's Emerson Royal**\
+`AC Milan have confirmed the signing of right-back Emerson Royal from Tottenham Hotspur.`\
+https://nytimes.com/athletic/5695598/2024/08/12/emerson-royal-milan-transfer-tottenham/
+
+**Harris Says Trump Will Repeal Obamacare. Trump Now Claims He’ll Make It ‘Better.’**\
+`The popularity of the Affordable Care Act has changed the political strategy of Republicans, who are no longer campaigning to end the law.`\
+https://nytimes.com/2024/08/12/us/politics/harris-trump-obamacare-health-care.html
+
 **Deadly Gas Explosion Destroys House in Maryland**\
 `The blast killed the homeowner and a contractor who had been dispatched to investigate a purported leak.`\
 https://nytimes.com/video/us/100000009624877/maryland-house-explosion.html
