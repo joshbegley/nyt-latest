@@ -1,3 +1,7 @@
+**Lowetide: Oilers complete reasonable expectations for 2024-25**\
+`Here are the Oilers' individual predictions and projected team totals for 2024-25, including three young players who must deliver more.`\
+https://nytimes.com/athletic/5694324/2024/08/12/edmonton-oilers-2024-25-season-expectations/
+
 **Democrats Turn to Their National Security Go-To for Trump Assassination Inquiry**\
 `Representative Jason Crow of Colorado, whom Democrats tapped for impeachment, investigations and tough questioning of President Biden, is their top member of a task force investigating the shooting.`\
 https://nytimes.com/2024/08/12/us/politics/jason-crow-trump-inquiry.html
