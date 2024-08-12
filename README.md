@@ -1,3 +1,11 @@
+**Trump Calls Harris a ‘Communist.’ That Shows How Worried He Is.**\
+`MAGA desperately turns to old-fashioned red-baiting.`\
+https://nytimes.com/2024/08/12/opinion/harris-trump-communist.html
+
+**Is Chaos the Key to Better Economics?**\
+`The chaos theorist Doyne Farmer believes mainstream economists are getting it all wrong.`\
+https://nytimes.com/2024/08/12/opinion/chaos-theory-doyne-farmer.html
+
 **Brent Key's build continues at Georgia Tech — top-40 OL Josh Petty picks the Jackets**\
 `Petty is the program’s first top-50 recruit since five-star wide receiver Calvin Johnson in the Class of 2004.`\
 https://nytimes.com/athletic/5695830/2024/08/12/josh-petty-georgia-tech-recruit-top-40/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/12/arts/angel-salazar-dead.html
 **Giants week in review: A walkoff, a demotion, and a guy who tried to climb a wall with his face**\
 `Plus: A proper appreciation of Matt Chapman's defense, home run of the week and more.`\
 https://nytimes.com/athletic/5695271/2024/08/12/sf-giants-walkoff-win-doval-demoted/
-
-**Registering Voters and Certifying the Votes**\
-`Readers discuss election obstacles. Also: Donald Trump’s claim about Kamala Harris’s crowds; the Olympics; Covid vaccines; food and the climate.`\
-https://nytimes.com/2024/08/12/opinion/elections-voters.html
-
-**Hayes inspired a USWNT turnaround - but expectations remain as high as ever**\
-`The USWNT are Olympic champions — but no matter what they accomplish, there’s always an eye to the future`\
-https://nytimes.com/athletic/5696222/2024/08/12/uswnt-emma-hayes-olympics/
 
