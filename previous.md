@@ -1,3 +1,7 @@
+**At a Russian Border Post, Scenes of Ruin After Ukraine’s Surprise Attack**\
+`A week after the biggest foreign incursion into Russia since World War II, The New York Times visited one of the spots where Ukrainian forces stormed into Russia and surprised the defenders.`\
+https://nytimes.com/2024/08/12/world/europe/russia-ukraine-kursk-incursion.html
+
 **Judge Rules That Robert F. Kennedy Jr. Cannot Appear on New York Ballot**\
 `The ruling was a blow to Mr. Kennedy’s independent campaign for president. The judge said that he had used a “sham” address to claim residency in New York.`\
 https://nytimes.com/2024/08/12/nyregion/robert-f-kennedy-jr-new-york-residency.html
@@ -35,8 +39,4 @@ https://nytimes.com/2024/08/12/world/middleeast/netanyahu-gallant-israel-gaza-wa
 **Submit a question for Kelly Iko’s Southwest Division mailbag: Summer edition**\
 `We are deep in the dog days of the offseason.`\
 https://nytimes.com/athletic/5696821/2024/08/12/submit-a-question-for-kelly-ikos-southwest-division-mailbag-summer-edition/
-
-**Iranian Vice President Resigns, Signaling Deep Divisions as Cabinet Takes Shape**\
-`Mohammad Javad Zarif’s resignation shocked Iran’s political circles and came as President Masoud Pezeshkian announced that his cabinet would include several conservatives and only one woman.`\
-https://nytimes.com/2024/08/12/world/middleeast/iran-cabinet-zarif-resignation.html
 
