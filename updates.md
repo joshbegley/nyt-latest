@@ -1,3 +1,7 @@
+**Greek Firefighters Battle Major Wildfires Into Monday Morning**\
+`A fire that started near Athens on Sunday was spreading quickly because of high winds.`\
+https://nytimes.com/video/world/europe/100000009624667/greek-firefighters-battle-major-wildfires-into-monday-morning.html
+
 **What will Brandon Inniss' role be in Ohio State's offense this season?**\
 `Innis' role was limited in 2023, but he's excited to be a bigger part of Ohio State's offense this season.`\
 https://nytimes.com/athletic/5695705/2024/08/12/brandon-inniss-ohio-state-football-offense/

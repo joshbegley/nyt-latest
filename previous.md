@@ -1,3 +1,7 @@
+**Greek Firefighters Battle Major Wildfires Into Monday Morning**\
+`A fire that started near Athens on Sunday was spreading quickly because of high winds.`\
+https://nytimes.com/video/world/europe/100000009624667/greek-firefighters-battle-major-wildfires-into-monday-morning.html
+
 **What will Brandon Inniss' role be in Ohio State's offense this season?**\
 `Innis' role was limited in 2023, but he's excited to be a bigger part of Ohio State's offense this season.`\
 https://nytimes.com/athletic/5695705/2024/08/12/brandon-inniss-ohio-state-football-offense/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5694925/2024/08/12/angels-first-round-christian-moo
 **The Democrats are counting the days until their convention. Here’s the latest.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/08/12/us/harris-trump-election/the-democrats-are-counting-the-days-until-their-convention-heres-the-latest
-
-**Surging Diamondbacks believe they have NL's top MVP candidate in Ketel Marte**\
-`Throughout a season of injuries, Arizona has had different players step up, but Marte has been the constant, the one leading the way.`\
-https://nytimes.com/athletic/5694950/2024/08/12/diamondbacks-ketel-marte-mvp-candidate/
 
