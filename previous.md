@@ -36,5 +36,5 @@ https://nytimes.com/video/us/100000009624877/maryland-house-explosion.html
 
 **Paying More Attention to His Appearance Than Hers**\
 `They’re the same age, but pundits and voters can’t stop talking about how much older Tim Walz looks than Kamala Harris. It’s not the only way her running mate seems to be absorbing some of the scrutiny usually heaped on female candidates.`\
-https://nytimes.com/2024/08/12/style/paying-more-attention-to-his-appearance-than-hers.html
+https://nytimes.com/2024/08/12/style/kamala-harris-tim-walz-age.html
 
