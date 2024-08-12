@@ -1,3 +1,7 @@
+**Registering Voters and Certifying the Votes**\
+`Readers discuss election obstacles. Also: Donald Trump’s claim about Kamala Harris’s crowds; the Olympics; Covid vaccines; food and the climate.`\
+https://nytimes.com/2024/08/12/opinion/elections-voters.html
+
 **Hayes inspired a USWNT turnaround - but expectations remain as high as ever**\
 `The USWNT are Olympic champions — but no matter what they accomplish, there’s always an eye to the future`\
 https://nytimes.com/athletic/5696222/2024/08/12/uswnt-emma-hayes-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009624877/maryland-house-explosion.html
 **Paying More Attention to His Appearance Than Hers**\
 `They’re the same age, but pundits and voters can’t stop talking about how much older Tim Walz looks than Kamala Harris. It’s not the only way her running mate seems to be absorbing some of the scrutiny usually heaped on female candidates.`\
 https://nytimes.com/2024/08/12/style/paying-more-attention-to-his-appearance-than-hers.html
-
-**Trump Returns to X in Victory for Elon Musk**\
-`The former president posted a campaign video ahead of a scheduled interview on the platform with Mr. Musk, who reinstated Mr. Trump’s account shortly after buying the site in 2022.`\
-https://nytimes.com/2024/08/12/technology/donald-trump-elon-musk-x.html
 
