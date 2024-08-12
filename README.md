@@ -22,7 +22,7 @@ https://nytimes.com/2024/08/12/us/los-angeles-earthquake.html
 `Just a few months after being dealt to the franchise, defensive end Haason Reddick has requested a trade from the New York Jets, a league source told The Athletic on Monday.`\
 https://nytimes.com/athletic/5696604/2024/08/12/haason-reddick-trade-request-jets/
 
-**Map: 4.4-Magnitude Earthquake Strikes Southern California**\
+**Map: 4.4-Magnitude Earthquake Strikes Los Angeles**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/08/12/us/12wea-quake-tracker-southern-california-nyt2fqi6.html
 
