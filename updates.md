@@ -1,3 +1,19 @@
+**Submit a question for Kelly Iko’s Southwest Division mailbag: Summer edition**\
+`We are deep in the dog days of the offseason.`\
+https://nytimes.com/athletic/5696821/2024/08/12/submit-a-question-for-kelly-ikos-southwest-division-mailbag-summer-edition/
+
+**Ex-Cornell Student Sentenced to 21 Months for Making Antisemitic Threats**\
+`Patrick Dai admitted to posting messages in which he threatened to stab, rape and behead Jewish people.`\
+https://nytimes.com/2024/08/12/nyregion/cornell-student-antisemitism-threats.html
+
+**Tracking Tropical Storm Ampil**\
+`See the likely path and wind arrival times for Ampil.`\
+https://nytimes.com/interactive/2024/08/12/world/ampil-map-path-tracker.html
+
+**Iranian Vice President Resigns, Signaling Deep Divisions as Cabinet Takes Shape**\
+`Mohammad Javad Zarif’s resignation shocked Iran’s political circles and came as President Masoud Pezeshkian announced that his cabinet would include several conservatives and only one woman.`\
+https://nytimes.com/2024/08/12/world/middleeast/iran-cabinet-zarif-resignation.html
+
 **Pakistan’s Ex-Spy Chief, an Imran Khan Ally, Is Arrested**\
 `The arrest of Lt. Gen. Faiz Hameed is the first time a current or former head of the powerful Inter-Services Intelligence agency faces court-martial proceedings.`\
 https://nytimes.com/2024/08/12/world/asia/faiz-hameed-spy-chief-arrested-pakistan-imran-khan.html
