@@ -1,3 +1,11 @@
+**What will Brandon Inniss' role be in Ohio State's offense this season?**\
+`Innis' role was limited in 2023, but he's excited to be a bigger part of Ohio State's offense this season.`\
+https://nytimes.com/athletic/5695705/2024/08/12/brandon-inniss-ohio-state-football-offense/
+
+**What happened with Oliver Kylington and the Flames? Mailbag, part 1**\
+`Also, what will the Flames' goaltending carousel look like this season with Dan Vladar, Dustin Wolf and Devin Cooley?`\
+https://nytimes.com/athletic/5689748/2024/08/12/kylington-flames-draft-parekh-mailbag/
+
 **Thompson: In Paris, the world beheld the joy of Steph Curry**\
 `Oh Paris, welcome to the Steph Curry experience. In a storied career, these Olympics completed all that was missing.`\
 https://nytimes.com/athletic/5695572/2024/08/12/steph-curry-paris-olympics-gold-medal-game/
