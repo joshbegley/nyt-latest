@@ -1,3 +1,7 @@
+**Word of the Day: luminescent**\
+`This word has appeared in 13 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/12/learning/word-of-the-day-luminescent.html
+
 **Wildfire With 80-Foot Flames Spreads Near Athens**\
 `The blaze broke out in a town near the Greek capital on Sunday, damaging buildings and prompting evacuations.`\
 https://nytimes.com/2024/08/12/world/europe/athens-greece-wildfire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5659250/2024/08/12/fantasy-premier-league-what-is-t
 **What it's like to play for Arne Slot: 'Liverpool's squad will be amazed'**\
 `The Dutchman's intensity, high standards and determination to improve his players will make a big impression on his new squad`\
 https://nytimes.com/athletic/5668079/2024/08/12/arne-slot-liverpool-manager-players/
-
-**Monday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2024/08/12/briefing/harris-trump-olympics-israel.html
 
