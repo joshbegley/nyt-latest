@@ -1,3 +1,7 @@
+**Nights in Las Vegas Are Becoming Dangerously Hot**\
+`In some fast-growing Sun Belt cites, “the overnight lows kind of sneak up on you.”`\
+https://nytimes.com/interactive/2024/08/11/upshot/las-vegas-hot-nights.html
+
 **Harris Appeals to Tech Leaders in a Return to San Francisco**\
 `A Sunday fund-raiser offered Vice President Kamala Harris a chance to turn the page on a sometimes frosty relationship between President Biden and Silicon Valley.`\
 https://nytimes.com/2024/08/11/us/kamala-harris-tech-fundraiser.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5694703/2024/08/11/2024-paris-olympics-merci-thank-
 **49ers cancel joint practices with Saints**\
 `Kyle Shanahan said Saturday night that 23 players were missing from the team's most recent practice. `\
 https://nytimes.com/athletic/5694929/2024/08/11/49ers-saints-joint-practices-canceled-injuries/
-
-**The Hacking of Presidential Campaigns Begins, With the Usual Fog of Motives**\
-`Donald J. Trump says his campaign was hacked by the Iranians, but obtained publicly available data. Microsoft said Iranian hackers sent a spear phishing email to a “high-ranking official” on a presidential campaign.`\
-https://nytimes.com/2024/08/11/us/politics/trump-campaign-hacking-iran.html
 
