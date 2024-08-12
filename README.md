@@ -27,7 +27,7 @@ https://nytimes.com/2024/08/12/us/los-angeles-earthquake.html
 https://nytimes.com/athletic/5696604/2024/08/12/haason-reddick-trade-request-jets/
 
 **Map: 4.4-Magnitude Earthquake Strikes Los Angeles**\
-`View the location of the quake’s epicenter and shake area.`\
+`View the location of the quake’s shake area and aftershocks.`\
 https://nytimes.com/interactive/2024/08/12/us/12wea-quake-tracker-southern-california-nyt2fqi6.html
 
 **The New York Times Will Stop Endorsing Candidates in New York Races**\
