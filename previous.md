@@ -10,8 +10,8 @@ https://nytimes.com/2024/08/12/briefing/trump-musk-interview-x-wildfire-athens-g
 `That reality holds true despite the prolonged contract holdout and, now, Monday's trade demand`\
 https://nytimes.com/athletic/5696779/2024/08/12/haason-reddick-holdout-contract-trade-demand-new-york-jets/
 
-**Tropical Storm Ernesto Takes Shape in the Atlantic**\
-`The storm is expected to unleash heavy rain on parts of the Caribbean, including Puerto Rico, but is not expected to threaten the mainland United States.`\
+**Tropical Storm Ernesto Expected to Unleash Heavy Rain in the Caribbean**\
+`The storm, which formed on Monday, threatens several Caribbean islands including Puerto Rico. It is not expected to hit the mainland United States.`\
 https://nytimes.com/article/tropical-storm-ernesto-hurricane.html
 
 **Five world leaders have urged Iran not to attack.**\

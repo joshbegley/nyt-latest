@@ -1,3 +1,7 @@
+**Tropical Storm Ernesto Expected to Unleash Heavy Rain in the Caribbean**\
+`The storm, which formed on Monday, threatens several Caribbean islands including Puerto Rico. It is not expected to hit the mainland United States.`\
+https://nytimes.com/article/tropical-storm-ernesto-hurricane.html
+
 **F.B.I. Investigating Hacking That Trump Campaign Attributes to Iran**\
 `The bureau did not specifically name Iran or former President Donald J. Trump but referred to news reports on a “campaign cyberintrusion.”`\
 https://nytimes.com/2024/08/12/us/politics/fbi-trump-campaign-hacking.html
