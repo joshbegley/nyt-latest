@@ -1,3 +1,15 @@
+**FPL 2024-25 mailbag: Send in your questions for Abdul Rehman now**\
+`Send in your questions for Abdul Rehman's new-season FPL mailbag now`\
+https://nytimes.com/athletic/5677286/2024/08/12/fpl-mailbag-2024-25-questions/
+
+**What’s on TV This Week: ‘Chimp Crazy’ and ‘The Challenge’**\
+`HBO airs a new documentary that could fall into the category “exotic animals as pets gone wrong.” The MTV competition show is back for a 40th season.`\
+https://nytimes.com/2024/08/12/arts/television/whats-on-tv-this-week-chimp-crazy-and-the-challenge.html
+
+**The Chaos in Britain Has Been Coming**\
+`Riots in the country have been shocking, but not surprising.`\
+https://nytimes.com/2024/08/12/opinion/uk-riots-far-right.html
+
 **'I was chatting to the future king of England about the Aston Villa game. It was very cool'**\
 `Ben Francis is a self-made billionaire after founding the exercise apparel company Gymshark — and obsessed with all things Aston Villa`\
 https://nytimes.com/athletic/5686878/2024/08/12/aston-villa-gymshark-francis-prince-william/
