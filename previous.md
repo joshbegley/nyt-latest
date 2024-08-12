@@ -1,3 +1,11 @@
+**On Matt Kuchar's Monday finish**\
+`The Wyndham Championship team did yeoman's work to allow everyone to play all 72 holes by Sunday night. Kuchar had other ideas.`\
+https://nytimes.com/athletic/5696263/2024/08/12/matt-kuchar-monday-aaron-rai-wyndham/
+
+**Sources: Padres’ Yu Darvish throws live BP, return this season still possible**\
+`One of the hottest teams in baseball is getting one starter back tonight and another may be eyeing a comeback.`\
+https://nytimes.com/athletic/5692352/2024/08/12/padres-yu-darvish-throws-live-bp-return/
+
 **Fabio Carvalho joins Brentford from Liverpool**\
 `Brentford have completed the signing of Fabio Carvalho from Liverpool.`\
 https://nytimes.com/athletic/5696498/2024/08/12/fabio-carvalho-brentford-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5696222/2024/08/12/uswnt-emma-hayes-olympics/
 **Why Iran Has Waited to Retaliate Against Israel After Killing of a Hamas Leader**\
 `Tehran is under pressure to avenge the assassination of Ismail Haniyeh, but analysts said it is balancing multiple factors as it weighs a response.`\
 https://nytimes.com/live/2024/08/12/world/israel-iran-hamas-gaza-war/iran-israel-retaliation-attack-explained
-
-**Older Adults Do Not Benefit From Moderate Drinking, Large Study Finds**\
-`Virtually any amount increased the risk for cancer, and there were no heart benefits, the researchers reported.`\
-https://nytimes.com/2024/08/12/health/alcohol-cancer-heart-disease.html
-
-**SEC, Big Ten dominate AP Top 25 with Georgia No. 1**\
-`Georgia, Ohio State, Oregon, Texas and Alabama claim the top five spots in the preseason AP Top 25 college football rankings.`\
-https://nytimes.com/athletic/5695808/2024/08/12/ap-top-25-preseason-college-football-rankings/
 

@@ -1,3 +1,11 @@
+**On Matt Kuchar's Monday finish**\
+`The Wyndham Championship team did yeoman's work to allow everyone to play all 72 holes by Sunday night. Kuchar had other ideas.`\
+https://nytimes.com/athletic/5696263/2024/08/12/matt-kuchar-monday-aaron-rai-wyndham/
+
+**Sources: Padres’ Yu Darvish throws live BP, return this season still possible**\
+`One of the hottest teams in baseball is getting one starter back tonight and another may be eyeing a comeback.`\
+https://nytimes.com/athletic/5692352/2024/08/12/padres-yu-darvish-throws-live-bp-return/
+
 **Why Iran Has Waited to Retaliate Against Israel After Killing of a Hamas Leader**\
 `Tehran is under pressure to avenge the assassination of Ismail Haniyeh, but analysts said it is balancing multiple factors as it weighs a response.`\
 https://nytimes.com/live/2024/08/12/world/israel-iran-hamas-gaza-war/iran-israel-retaliation-attack-explained
