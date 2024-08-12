@@ -1,3 +1,7 @@
+**Investors Brace for Another Big Week**\
+`A new batch of inflation data and earnings from major retailers will again put the spotlight on consumer confidence and economic growth.`\
+https://nytimes.com/2024/08/12/business/dealbook/stocks-inflation-cpi-earnings.html
+
 **Tennis Briefing: Coco Gauff's top 50 problem, Masters madness, and sensational Shnaider**\
 `With two weeks until the US Open, a post-Olympic hard-court season brings chaos to the tennis tours`\
 https://nytimes.com/athletic/5694584/2024/08/12/tennis-montreal-toronto-national-bank-open-gauff-rublev-popyrin-shnaider/
