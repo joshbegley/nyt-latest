@@ -1,3 +1,7 @@
+**Tuesday Briefing: Putin Lashes Out Over Incursion**\
+`Plus, A.I. is helping piece together an ancient epic.`\
+https://nytimes.com/2024/08/12/briefing/putin-ukraine-incursion-climate-trump-musk.html
+
 **Martin Zubimendi to remain at Real Sociedad**\
 `Martin Zubimendi will remain at Real Sociedad, effectively ending Liverpool&#8217;s hopes of signing the midfielder.`\
 https://nytimes.com/athletic/5686524/2024/08/12/martin-zubimendi-real-sociedad-liverpool/
