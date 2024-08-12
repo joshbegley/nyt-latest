@@ -1,4 +1,8 @@
 **Colts' Anthony Richardson, rusty in return, grateful for game day routine after 308 days away**\
+`Richardson completed 2-of-4 passes, but Sunday's game wasn't really about statistics for the young Colts QB. `\
+https://nytimes.com/athletic/5694992/2024/08/11/indianapolis-colts-anthony-richardson-preseason-return/
+
+**Colts' Anthony Richardson, rusty in return, grateful for game day routine after 308 days away**\
 `Richardson completed just 2-of-4 passes, but Sunday's game wasn't really about statistics for the young Colts QB. `\
 https://nytimes.com/athletic/5694992/2024/08/11/indianapolis-colts-anthony-richardson-preseason-return/
 
