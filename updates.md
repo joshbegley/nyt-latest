@@ -1,3 +1,11 @@
+**Dearica Hamby files federal lawsuit against WNBA, Aces**\
+`Hamby alleges “notable” changes in how the Aces treated her after publicly announcing her second pregnancy.`\
+https://nytimes.com/athletic/5696900/2024/08/12/dearica-hamby-aces-wnba-lawsuit/
+
+**Tropical Storm Ernesto Forms, Threatening Caribbean With Rain**\
+`The storm, which formed on Monday, is expected to lash several Caribbean islands, including Puerto Rico. It is not expected to hit the mainland United States.`\
+https://nytimes.com/article/tropical-storm-ernesto-hurricane.html
+
 **Biden, Obama and the Clintons Will Speak at the Democratic Convention**\
 `The president, two of his predecessors and the party’s 2016 nominee are said to be planning speeches at the party’s gathering next week in Chicago.`\
 https://nytimes.com/2024/08/12/us/politics/dnc-speakers-biden-obama-clinton.html

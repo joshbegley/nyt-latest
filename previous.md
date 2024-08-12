@@ -1,3 +1,7 @@
+**Dearica Hamby files federal lawsuit against WNBA, Aces**\
+`Hamby alleges “notable” changes in how the Aces treated her after publicly announcing her second pregnancy.`\
+https://nytimes.com/athletic/5696900/2024/08/12/dearica-hamby-aces-wnba-lawsuit/
+
 **Biden, Obama and the Clintons Will Speak at the Democratic Convention**\
 `The president, two of his predecessors and the party’s 2016 nominee are said to be planning speeches at the party’s gathering next week in Chicago.`\
 https://nytimes.com/2024/08/12/us/politics/dnc-speakers-biden-obama-clinton.html
@@ -14,8 +18,8 @@ https://nytimes.com/2024/08/12/briefing/trump-musk-interview-x-wildfire-athens-g
 `That reality holds true despite the prolonged contract holdout and, now, Monday's trade demand`\
 https://nytimes.com/athletic/5696779/2024/08/12/haason-reddick-holdout-contract-trade-demand-new-york-jets/
 
-**Tropical Storm Ernesto Expected to Unleash Heavy Rain in the Caribbean**\
-`The storm, which formed on Monday, threatens several Caribbean islands including Puerto Rico. It is not expected to hit the mainland United States.`\
+**Tropical Storm Ernesto Forms, Threatening Caribbean With Rain**\
+`The storm, which formed on Monday, is expected to lash several Caribbean islands, including Puerto Rico. It is not expected to hit the mainland United States.`\
 https://nytimes.com/article/tropical-storm-ernesto-hurricane.html
 
 **Five world leaders have urged Iran not to attack.**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5696823/2024/08/12/patriots-trade-rumors-matthew-ju
 **Tracking Tropical Storm Ernesto**\
 `See the likely path and wind arrival times for Ernesto.`\
 https://nytimes.com/interactive/2024/08/12/weather/ernesto-path-map-tracker.html
-
-**Tuesday Briefing: Putin Lashes Out Over Incursion**\
-`Plus, A.I. is helping piece together an ancient epic.`\
-https://nytimes.com/2024/08/12/briefing/putin-ukraine-incursion-climate-trump-musk.html
 
