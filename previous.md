@@ -1,3 +1,11 @@
+**Thompson: In Paris, the world beheld the joy of Steph Curry**\
+`Oh Paris, welcome to the Steph Curry experience. In a storied career, these Olympics completed all that was missing.`\
+https://nytimes.com/athletic/5695572/2024/08/12/steph-curry-paris-olympics-gold-medal-game/
+
+**2 People Stabbed in London’s Leicester Square**\
+`A girl, 11, and a woman, 34, were attacked on Monday in the often-crowded area of the city center, the police said. A man has been arrested.`\
+https://nytimes.com/2024/08/12/world/europe/leicester-square-stabbing-london.html
+
 **Investors Brace for Another Big Week**\
 `A new batch of inflation data and earnings from major retailers will again put the spotlight on consumer confidence and economic growth.`\
 https://nytimes.com/2024/08/12/business/dealbook/stocks-inflation-cpi-earnings.html
@@ -30,8 +38,3 @@ https://nytimes.com/athletic/5695313/2024/08/12/sf-giants-olympics/
 `The Padres have been baseball's hottest team since the All-Star break, and Merrill has been a big reason why: "He’s different, man."`\
 https://nytimes.com/athletic/5694389/2024/08/12/padres-jackson-merrill-rookie-of-the-year/
 
-**Russia, Facing Ukrainian Incursion, Maintains Pressure in Eastern Ukraine**\
-`Russian forces are pummeling Ukrainian positions along the front lines, Ukrainian military officials said, as an incursion onto Russian soil by Ukraine continues.`\
-https://nytimes.com/2024/08/12/world/europe/russia-ukraine-incursion-war-east.html
-
-**Israel shrinks a humanitarian zone in Gaza, and other news.**\
