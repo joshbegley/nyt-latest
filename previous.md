@@ -1,3 +1,7 @@
+**Tottenham's Bissouma apologises over nitrous oxide video**\
+`Tottenham Hotspur midfielder Yves Bissouma has apologised after footage emerged of him appearing to inhale nitrous oxide.`\
+https://nytimes.com/athletic/5695444/2024/08/12/yves-bissouma-spurs-laughing-gas-video/
+
 **This Week in Mets: New York swept away by Seattle to close long road trip**\
 `The Mets were outscored 22-1 over three games: "They outplayed us the whole series."`\
 https://nytimes.com/athletic/5695263/2024/08/12/mets-offense-swept-seattle/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/12/world/europe/britain-immigration-riots-starmer.ht
 **$2.6 Million Homes in California**\
 `A renovated 1951 house in Los Angeles, a home with San Francisco Bay views in Greenbrae and a shingled house near the water in Manhattan Beach.`\
 https://nytimes.com/2024/08/12/realestate/2-million-dollar-homes-california.html
-
-**What Happens Now in Young Thug’s YSL Trial?**\
-`Already the longest in Georgia history, the star rapper’s trial has been turned upside down. Here’s the latest as the case resumes after an eight-week delay.`\
-https://nytimes.com/2024/08/12/arts/music/young-thug-ysl-trial-resume.html
 

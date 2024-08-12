@@ -1,3 +1,7 @@
+**Tottenham's Bissouma apologises over nitrous oxide video**\
+`Tottenham Hotspur midfielder Yves Bissouma has apologised after footage emerged of him appearing to inhale nitrous oxide.`\
+https://nytimes.com/athletic/5695444/2024/08/12/yves-bissouma-spurs-laughing-gas-video/
+
 **This Week in Mets: New York swept away by Seattle to close long road trip**\
 `The Mets were outscored 22-1 over three games: "They outplayed us the whole series."`\
 https://nytimes.com/athletic/5695263/2024/08/12/mets-offense-swept-seattle/
