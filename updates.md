@@ -1,3 +1,7 @@
+**Registering Voters and Certifying the Votes**\
+`Readers discuss election obstacles. Also: Donald Trump’s claim about Kamala Harris’s crowds; the Olympics; Covid vaccines; food and the climate.`\
+https://nytimes.com/2024/08/12/opinion/elections-voters.html
+
 **Hayes inspired a USWNT turnaround - but expectations remain as high as ever**\
 `The USWNT are Olympic champions — but no matter what they accomplish, there’s always an eye to the future`\
 https://nytimes.com/athletic/5696222/2024/08/12/uswnt-emma-hayes-olympics/
