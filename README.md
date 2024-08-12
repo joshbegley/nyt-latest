@@ -1,3 +1,7 @@
+**Swedish Prosecutors Drop Case Against Disqualified Eurovision Entrant**\
+`Investigators could not prove that Joost Klein, the Dutch entrant, had behaved threateningly during an incident shortly before the event final.`\
+https://nytimes.com/2024/08/12/arts/music/eurovision-joost-klein-no-charges.html
+
 **Gas Explosion Destroys House in Maryland, Killing Homeowner and Gas Employee**\
 `A 35-year-old contractor with Baltimore Gas and Electric was investigating an issue at the home, which exploded early Sunday morning.`\
 https://nytimes.com/2024/08/12/us/maryland-house-explosion.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5696019/2024/08/12/mlb-nl-rookie-aaron-judge-barry-
 **Dolphins activate linebacker Jaelan Phillips from PUP list**\
 `Phillips is recovering from a torn Achilles he suffered in the Dolphins' Black Friday win over the New York Jets.`\
 https://nytimes.com/athletic/5696002/2024/08/12/dolphins-jaelan-phillips-active-pup/
-
-**The U.S. Wasn’t the Most Successful Country at the Olympics**\
-`Because it’s not just about the raw medal count.`\
-https://nytimes.com/live/2024/08/07/opinion/thepoint/olympics-most-successful-nation
 
