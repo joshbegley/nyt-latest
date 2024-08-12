@@ -2,8 +2,8 @@
 `Polar bear attacks on humans are rare, but last week’s episode was the second fatal encounter since 2023.`\
 https://nytimes.com/2024/08/12/us/polar-bears-attack-brevoort-canada.html
 
-**Liverpool expect Zubimendi to remain at Real Sociedad**\
-`Liverpool expect Martin Zubimendi to remain at Real Sociedad, effectively ending their hopes of signing the midfielder.`\
+**Martin Zubimendi to remain at Real Sociedad**\
+`Martin Zubimendi will remain at Real Sociedad, effectively ending Liverpool&#8217;s hopes of signing the midfielder.`\
 https://nytimes.com/athletic/5686524/2024/08/12/martin-zubimendi-real-sociedad-liverpool/
 
 **Talk of the Devils returns for the new season**\
