@@ -1,3 +1,19 @@
+**Deadly Gas Explosion Destroys House in Maryland**\
+`The blast killed the homeowner and a contractor who had been dispatched to investigate a purported leak.`\
+https://nytimes.com/video/us/100000009624877/maryland-house-explosion.html
+
+**Paying More Attention to His Appearance Than Hers**\
+`They’re the same age, but pundits and voters can’t stop talking about how much older Tim Walz looks than Kamala Harris. It’s not the only way her running mate seems to be absorbing some of the scrutiny usually heaped on female candidates.`\
+https://nytimes.com/2024/08/12/style/paying-more-attention-to-his-appearance-than-hers.html
+
+**Trump Returns to X in Victory for Elon Musk**\
+`The former president posted a campaign video ahead of a scheduled interview on the platform with Mr. Musk, who reinstated Mr. Trump’s account shortly after buying the site in 2022.`\
+https://nytimes.com/2024/08/12/technology/donald-trump-elon-musk-x.html
+
+**Forest close signing Paraguay international Sosa**\
+`A fresh round of negotiations has seen Nottingham Forest take a big step closer to signing winger Ramon Sosa from Argentine club Talleres.`\
+https://nytimes.com/athletic/5696259/2024/08/12/nottingham-forest-ramon-sosa-transfer/
+
 **It Was a Hot Real Estate Trade. Now Investors Are Worried.**\
 `Drawn by the opportunity to invest with private equity firms, small investors rushed into real estate investment trusts. But the funds have lost some appeal as interest rates have climbed.`\
 https://nytimes.com/2024/08/12/business/private-reit-redemptions.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5695461/2024/08/12/straight-outta-cobham-best-chels
 **The View from the Lane returns for the new season**\
 `The much-loved Tottenham podcast is back to its usual capacity for the new season.`\
 https://nytimes.com/athletic/5695439/2024/08/12/the-view-from-the-lane-best-tottenham-podcast-the-athletic/
-
-**Katie Zelem, from Manchester United to the U.S: 'I'm going to Angel City to win things'**\
-`England midfielder on why she's moving to the U.S, what happened at Manchester United, and her ambitions in Los Angeles`\
-https://nytimes.com/athletic/5694519/2024/08/12/katie-zelem-angel-city/
-
-**Ex-Man Utd captain Katie Zelem joins Angel City**\
-`Angel City have confirmed the signing of former Manchester United captain Katie Zelem on a deal through to 2026.`\
-https://nytimes.com/athletic/5690898/2024/08/12/katie-zelem-angel-city-transfer/
-
-**Calvin Royal Creates a Ballet Festival With Intention and Care**\
-`With “Unite,” a festival he planned and curated at the Joyce Theater, Royal is “taking the time to do things right,” he said.`\
-https://nytimes.com/2024/08/12/arts/dance/calvin-royal-unity-ballet-festival.html
-
-**Martinez signs new Inter contract**\
-`Lautaro Martinez has signed a new five-year contract at Inter Milan until the summer of 2029.`\
-https://nytimes.com/athletic/5696105/2024/08/12/lautaro-martinez-new-inter-contract/
 
