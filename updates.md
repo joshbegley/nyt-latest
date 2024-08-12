@@ -1,3 +1,11 @@
+**Rams 53-man roster projection: Breaking down the depth chart after first preseason game**\
+`Jordan Whittington's progress strengthens WR room. How will the Rams break down their secondary between cornerbacks and safeties?`\
+https://nytimes.com/athletic/5694672/2024/08/11/la-rams-53-man-roster-projection-depth-chart/
+
+**Austin Dillon wins NASCAR Cup Series race after crashing 2 drivers**\
+`Dillon was desperate to make the NASCAR playoffs because he entered Richmond 32nd in the standings.`\
+https://nytimes.com/athletic/5695220/2024/08/11/austin-dillon-nascar-cup-series-crash/
+
 **Nights in Las Vegas Are Becoming Dangerously Hot**\
 `In some fast-growing Sun Belt cites, “the overnight lows kind of sneak up on you.”`\
 https://nytimes.com/interactive/2024/08/11/upshot/las-vegas-hot-nights.html
