@@ -1,3 +1,7 @@
+**FPL: What is the best formation to start the season with?**\
+`Play three up top or go 'big at the back'? What's the best way to construct your FPL line-up to maximise your points next season?`\
+https://nytimes.com/athletic/5659250/2024/08/12/fantasy-premier-league-what-is-the-best-formation-to-start-the-season-with/
+
 **What it's like to play for Arne Slot: 'Liverpool's squad will be amazed'**\
 `The Dutchman's intensity, high standards and determination to improve his players will make a big impression on his new squad`\
 https://nytimes.com/athletic/5668079/2024/08/12/arne-slot-liverpool-manager-players/

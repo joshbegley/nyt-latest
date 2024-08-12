@@ -1,3 +1,7 @@
+**FPL: What is the best formation to start the season with?**\
+`Play three up top or go 'big at the back'? What's the best way to construct your FPL line-up to maximise your points next season?`\
+https://nytimes.com/athletic/5659250/2024/08/12/fantasy-premier-league-what-is-the-best-formation-to-start-the-season-with/
+
 **What it's like to play for Arne Slot: 'Liverpool's squad will be amazed'**\
 `The Dutchman's intensity, high standards and determination to improve his players will make a big impression on his new squad`\
 https://nytimes.com/athletic/5668079/2024/08/12/arne-slot-liverpool-manager-players/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5674676/2024/08/12/premier-league-transfer-mistakes
 **Leicester City – a tactical guide: How much Maresca-ball will Steve Cooper retain?**\
 `The second tier champions could struggle in the Premier League but they have appointed a manager who knows how to navigate choppy waters`\
 https://nytimes.com/athletic/5683305/2024/08/12/leicester-city-a-tactical-guide-how-much-maresca-ball-will-steve-cooper-retain/
-
-**The Filipinos Living in the Shadow of China’s Military Might**\
-`More than 200 civilian settlers on a contested island in the South China Sea find themselves on the frontier of a possible conflict with China.`\
-https://nytimes.com/2024/08/12/world/asia/spratlys-thitu-philippines-china.html
 
