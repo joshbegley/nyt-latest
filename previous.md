@@ -1,3 +1,7 @@
+**The New York Times Will Stop Endorsing Candidates in New York Races**\
+`The paper’s editorial board will continue to endorse presidential candidates, as it has for more than 160 years.`\
+https://nytimes.com/2024/08/12/business/media/the-new-york-times-editorial-board-political-endorsements.html
+
 **NBA star Kevin Durant becomes minority stakeholder of PSG**\
 `NBA star Kevin Durant has become a minority shareholder of French soccer giants Paris Saint-Germain.`\
 https://nytimes.com/athletic/5696354/2024/08/12/kevin-durant-psg-stake-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5696165/2024/08/12/la-liga-release-clauses-explaine
 **The Problem Is Not A.I. It’s the Disbelief Created by Trump.**\
 `He’s exploiting the inability of ordinary people to discern manipulated images.`\
 https://nytimes.com/2024/08/07/opinion/the-problem-is-not-ai-its-the-disbelief-created-by-trump.html
-
-**Ángel Salazar, Comedian and ‘Scarface’ Actor, Dies at 68**\
-`A stand-up comedian in New York, his biggest role was playing Chi Chi in the 1983 film, “Scarface.”`\
-https://nytimes.com/2024/08/12/arts/angel-salazar-dead.html
 
