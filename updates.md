@@ -1,3 +1,11 @@
+**Reddick requests trade, Jets say they won't deal DE**\
+`Just a few months after being dealt to the franchise, defensive end Haason Reddick has requested a trade from the New York Jets, a league source told The Athletic on Monday.`\
+https://nytimes.com/athletic/5696604/2024/08/12/haason-reddick-trade-request-jets/
+
+**Map: 4.4-Magnitude Earthquake Strikes Southern California**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2024/08/12/us/12wea-quake-tracker-southern-california-nyt2fqi6.html
+
 **The New York Times Will Stop Endorsing Candidates in New York Races**\
 `The paper’s editorial board will continue to endorse presidential candidates, as it has for more than 160 years.`\
 https://nytimes.com/2024/08/12/business/media/the-new-york-times-editorial-board-political-endorsements.html
