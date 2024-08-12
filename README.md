@@ -1,3 +1,11 @@
+**Milan sign Tottenham's Emerson Royal**\
+`AC Milan have confirmed the signing of right-back Emerson Royal from Tottenham Hotspur.`\
+https://nytimes.com/athletic/5695598/2024/08/12/emerson-royal-milan-transfer-tottenham/
+
+**Harris Says Trump Will Repeal Obamacare. Trump Now Claims He’ll Make It ‘Better.’**\
+`The popularity of the Affordable Care Act has changed the political strategy of Republicans, who are no longer campaigning to end the law.`\
+https://nytimes.com/2024/08/12/us/politics/harris-trump-obamacare-health-care.html
+
 **Deadly Gas Explosion Destroys House in Maryland**\
 `The blast killed the homeowner and a contractor who had been dispatched to investigate a purported leak.`\
 https://nytimes.com/video/us/100000009624877/maryland-house-explosion.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5689548/2024/08/12/dissension-in-the-ranks-debating
 **What to expect from The Athletic's podcast coverage this Premier League season**\
 `The Athletic’s award-winning podcast network has something for everyone this season…`\
 https://nytimes.com/athletic/5695491/2024/08/12/best-football-podcasts-the-athletic-premier-league/
-
-**Straight Outta Cobham returns for the new season**\
-`The much-loved Chelsea podcast is back to its usual capacity for the new season.`\
-https://nytimes.com/athletic/5695461/2024/08/12/straight-outta-cobham-best-chelsea-podcast-the-athletic/
-
-**The View from the Lane returns for the new season**\
-`The much-loved Tottenham podcast is back to its usual capacity for the new season.`\
-https://nytimes.com/athletic/5695439/2024/08/12/the-view-from-the-lane-best-tottenham-podcast-the-athletic/
 
