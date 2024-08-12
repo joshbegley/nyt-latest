@@ -1,3 +1,11 @@
+**Multiple teams contact Patriots about trading for Judon**\
+`Judon is seeking a new contract from the Patriots but has been practicing after a brief hold in.`\
+https://nytimes.com/athletic/5696823/2024/08/12/patriots-trade-rumors-matthew-judon/
+
+**Tracking Tropical Storm Ernesto**\
+`See the likely path and wind arrival times for Ernesto.`\
+https://nytimes.com/interactive/2024/08/12/weather/five-map-path-tracker.html
+
 **Tuesday Briefing: Putin Lashes Out Over Incursion**\
 `Plus, A.I. is helping piece together an ancient epic.`\
 https://nytimes.com/2024/08/12/briefing/putin-ukraine-incursion-climate-trump-musk.html
