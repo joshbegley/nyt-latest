@@ -1,3 +1,19 @@
+**Red Sox suspend Duran 2 games for homophobic slur**\
+`Duran appeared to make the comment to a fan sitting behind the during a plate appearance in the bottom of the sixth.`\
+https://nytimes.com/athletic/5696675/2024/08/12/red-sox-jarren-duran-suspension-slur/
+
+**Elon Musk Is Using X to Push His Views, and Donald Trump**\
+`Mr. Musk has become a vocal supporter of Mr. Trump. It wasn’t always that way.`\
+https://nytimes.com/2024/08/12/technology/elon-musk-political-views.html
+
+**Chairman of Trump Shooting Inquiry Brings Personal Experience to the Task**\
+`Representative Mike Kelly of Pennsylvania was in the audience with family, including three of his grandchildren, during the shooting.`\
+https://nytimes.com/2024/08/12/us/politics/mike-kelly-trump-shooting-inquiry.html
+
+**4.4-Magnitude Earthquake Strikes Near Los Angeles**\
+`The quake was centered about five miles northeast of downtown, according to the U.S. Geological Survey.`\
+https://nytimes.com/2024/08/12/us/los-angeles-earthquake.html
+
 **Reddick requests trade, Jets say they won't deal DE**\
 `Just a few months after being dealt to the franchise, defensive end Haason Reddick has requested a trade from the New York Jets, a league source told The Athletic on Monday.`\
 https://nytimes.com/athletic/5696604/2024/08/12/haason-reddick-trade-request-jets/
