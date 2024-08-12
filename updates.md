@@ -1,3 +1,7 @@
+**Biden, Obama and the Clintons Will Speak at the Democratic Convention**\
+`The president, two of his predecessors and the party’s 2016 nominee are said to be planning speeches at the party’s gathering next week in Chicago.`\
+https://nytimes.com/2024/08/12/us/politics/dnc-speakers-biden-obama-clinton.html
+
 **Tropical Storm Ernesto Expected to Unleash Heavy Rain in the Caribbean**\
 `The storm, which formed on Monday, threatens several Caribbean islands including Puerto Rico. It is not expected to hit the mainland United States.`\
 https://nytimes.com/article/tropical-storm-ernesto-hurricane.html

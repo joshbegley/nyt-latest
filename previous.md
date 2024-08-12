@@ -1,3 +1,7 @@
+**Biden, Obama and the Clintons Will Speak at the Democratic Convention**\
+`The president, two of his predecessors and the party’s 2016 nominee are said to be planning speeches at the party’s gathering next week in Chicago.`\
+https://nytimes.com/2024/08/12/us/politics/dnc-speakers-biden-obama-clinton.html
+
 **F.B.I. Investigating Hacking That Trump Campaign Attributes to Iran**\
 `The bureau did not specifically name Iran or former President Donald J. Trump but referred to news reports on a “campaign cyberintrusion.”`\
 https://nytimes.com/2024/08/12/us/politics/fbi-trump-campaign-hacking.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/08/12/weather/ernesto-path-map-tracker.html
 **Tuesday Briefing: Putin Lashes Out Over Incursion**\
 `Plus, A.I. is helping piece together an ancient epic.`\
 https://nytimes.com/2024/08/12/briefing/putin-ukraine-incursion-climate-trump-musk.html
-
-**Polar Bears Kill Worker in Remote Radar Site in Canada**\
-`Polar bear attacks on humans are rare, but last week’s episode was the second fatal encounter since 2023.`\
-https://nytimes.com/2024/08/12/us/polar-bears-attack-brevoort-canada.html
 
