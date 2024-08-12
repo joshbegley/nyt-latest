@@ -1,3 +1,7 @@
+**Brent Key's build continues at Georgia Tech — top-40 OL Josh Petty picks the Jackets**\
+`Petty is the program’s first top-50 recruit since five-star wide receiver Calvin Johnson in the Class of 2004.`\
+https://nytimes.com/athletic/5695830/2024/08/12/josh-petty-georgia-tech-recruit-top-40/
+
 **On Matt Kuchar's Monday finish**\
 `The Wyndham Championship team did yeoman's work to allow everyone to play all 72 holes by Sunday night. Kuchar had other ideas.`\
 https://nytimes.com/athletic/5696263/2024/08/12/matt-kuchar-monday-aaron-rai-wyndham/
