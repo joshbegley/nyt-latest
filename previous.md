@@ -1,3 +1,33 @@
+**How Tim Walz’s Congressional District Embodies Rural Democrats’ Challenges**\
+`The Minnesota governor, No. 2 on the ticket, might not win his old House seat if he were to run now.`\
+https://nytimes.com/2024/08/12/us/politics/tim-walz-minnesota-district.html
+
+**Trump’s Big Lie About Harris’s Crowds**\
+`The sinister logic behind the ex-president’s latest conspiracy theory.`\
+https://nytimes.com/2024/08/12/opinion/trump-crowds-kamala-harris.html
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>OK, guys. The season is less than two weeks away. Let&#8217;s go hardcore football with your questions this week, shall we?</p>
+<p>Please include your city.</p>
+`\
+https://nytimes.com/athletic/5697106/2024/08/12/submit-a-question-for-stewart-mandels-college-football-mailbag-268/
+
+**Auston Matthews to be named Maple Leafs captain, taking over from John Tavares**\
+`Auston Matthews is set to become the next captain of the Toronto Maple Leafs, taking over the team’s top leadership role from teammate John Tavares, according to multiple sources familiar with the decision.`\
+https://nytimes.com/athletic/5697101/2024/08/12/auston-matthews-maple-leafs-captain/
+
+**2 Are Charged in Rape and Assault Under Coney Island Boardwalk**\
+`One suspect had been released from jail in June after he pleaded guilty to sexual assault in an attack on a woman in a Brooklyn migrant shelter.`\
+https://nytimes.com/2024/08/12/nyregion/rape-assault-coney-island-boardwalk.html
+
+**Netanyahu Clashes With Defense Minister on Gaza, Exposing Schisms**\
+`Prime Minister Benjamin Netanyahu accused Yoav Gallant of embracing an “anti-Israel narrative” in a disagreement over how to prosecute the war.`\
+https://nytimes.com/2024/08/12/world/middleeast/netanyahu-gallant-israel-gaza-war.html
+
+**Submit a question for Kelly Iko’s Southwest Division mailbag: Summer edition**\
+`We are deep in the dog days of the offseason.`\
+https://nytimes.com/athletic/5696821/2024/08/12/submit-a-question-for-kelly-ikos-southwest-division-mailbag-summer-edition/
+
 **Despite Trump’s Claims, Footage Shows Large Crowd at Harris’s Detroit Rally**\
 `Three New York Times reporters who attended the rally confirmed that the crowd numbered in the thousands.`\
 https://nytimes.com/interactive/2024/08/12/us/elections/trump-harris-detroit-rally.html
@@ -9,32 +39,4 @@ https://nytimes.com/athletic/5696900/2024/08/12/dearica-hamby-aces-wnba-lawsuit/
 **Biden, Obama and the Clintons Will Speak at the Democratic Convention**\
 `The president, two of his predecessors and the party’s 2016 nominee are said to be planning speeches at the party’s gathering next week in Chicago.`\
 https://nytimes.com/2024/08/12/us/politics/dnc-speakers-biden-obama-clinton.html
-
-**F.B.I. Investigating Hacking That Trump Campaign Attributes to Iran**\
-`The bureau did not specifically name Iran or former President Donald J. Trump but referred to news reports on a “campaign cyberintrusion.”`\
-https://nytimes.com/2024/08/12/us/politics/fbi-trump-campaign-hacking.html
-
-**Trump Is Trying to Regain the Spotlight by Returning to X**\
-`Also, an ‘extremely dangerous’ fire is burning near Athens. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2024/08/12/briefing/trump-musk-interview-x-wildfire-athens-greece.html
-
-**Ugliness aside, the Jets need Haason Reddick — and Reddick needs the Jets**\
-`That reality holds true despite the prolonged contract holdout and, now, Monday's trade demand`\
-https://nytimes.com/athletic/5696779/2024/08/12/haason-reddick-holdout-contract-trade-demand-new-york-jets/
-
-**Tropical Storm Ernesto Forms, Threatening Caribbean With Rain**\
-`The storm, which formed on Monday, is expected to lash several Caribbean islands, including Puerto Rico. It is not expected to hit the mainland United States.`\
-https://nytimes.com/article/tropical-storm-ernesto-hurricane.html
-
-**Five world leaders have urged Iran not to attack.**\
-`By James C. McKinley Jr.`\
-https://nytimes.com/live/2024/08/12/world/israel-iran-hamas-gaza-war/five-world-leaders-have-urged-iran-not-to-attack
-
-**Pakistan’s Ex-Spy Chief, an Imran Khan Ally, Is Arrested**\
-`The arrest of Lt. Gen. Faiz Hameed is the first time a current or former head of the powerful Inter-Services Intelligence agency faces court-martial proceedings.`\
-https://nytimes.com/2024/08/12/world/asia/faiz-hameed-spy-chief-arrested-pakistan-imran-khan.html
-
-**Multiple teams contact Patriots about trading for Judon**\
-`Judon is seeking a new contract from the Patriots but has been practicing after a brief hold in.`\
-https://nytimes.com/athletic/5696823/2024/08/12/patriots-trade-rumors-matthew-judon/
 
