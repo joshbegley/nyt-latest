@@ -1,3 +1,7 @@
+**Paul Bucha, Medal of Honor Winner With a Political Voice, Dies at 80**\
+`His quick thinking saved fellow soldiers in Vietnam. Later, he had a role in the presidential runs of Ross Perot, George H.W. Bush and Barack Obama.`\
+https://nytimes.com/2024/08/12/us/paul-bucha-dead.html
+
 **How Tim Walz’s Congressional District Embodies Rural Democrats’ Challenges**\
 `The Minnesota governor, No. 2 on the ticket, might not win his old House seat if he were to run now.`\
 https://nytimes.com/2024/08/12/us/politics/tim-walz-minnesota-district.html
@@ -28,15 +32,11 @@ https://nytimes.com/2024/08/12/world/middleeast/netanyahu-gallant-israel-gaza-wa
 `We are deep in the dog days of the offseason.`\
 https://nytimes.com/athletic/5696821/2024/08/12/submit-a-question-for-kelly-ikos-southwest-division-mailbag-summer-edition/
 
+**Iranian Vice President Resigns, Signaling Deep Divisions as Cabinet Takes Shape**\
+`Mohammad Javad Zarif’s resignation shocked Iran’s political circles and came as President Masoud Pezeshkian announced that his cabinet would include several conservatives and only one woman.`\
+https://nytimes.com/2024/08/12/world/middleeast/iran-cabinet-zarif-resignation.html
+
 **Despite Trump’s Claims, Footage Shows Large Crowd at Harris’s Detroit Rally**\
 `Three New York Times reporters who attended the rally confirmed that the crowd numbered in the thousands.`\
 https://nytimes.com/interactive/2024/08/12/us/elections/trump-harris-detroit-rally.html
-
-**Dearica Hamby files federal lawsuit against WNBA, Aces**\
-`Hamby alleges “notable” changes in how the Aces treated her after publicly announcing her second pregnancy.`\
-https://nytimes.com/athletic/5696900/2024/08/12/dearica-hamby-aces-wnba-lawsuit/
-
-**Biden, Obama and the Clintons Will Speak at the Democratic Convention**\
-`The president, two of his predecessors and the party’s 2016 nominee are said to be planning speeches at the party’s gathering next week in Chicago.`\
-https://nytimes.com/2024/08/12/us/politics/dnc-speakers-biden-obama-clinton.html
 
