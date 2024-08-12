@@ -1,3 +1,11 @@
+**The U.S. Wasn’t the Most Successful Country at the Olympics**\
+`Because it’s not just about the raw medal count.`\
+https://nytimes.com/live/2024/08/07/opinion/thepoint/olympics-most-successful-nation
+
+**Heat Contributed to 47,000 Deaths in Europe Last Year, but Relief Programs Helped**\
+`A new study shows that behavioral and social changes can reduce heat mortality. But challenges remain as temperatures continue to rise.`\
+https://nytimes.com/2024/08/12/climate/excess-heat-deaths-europe.html
+
 **For the Rescuer of an Ancient Shipwreck, Trouble Arrived in the Mail**\
 `The packages were sent to a woman whose work had led to the heralded recovery of the Kyrenia, and to new insights into classical Greek seafaring. But their ancient contents were a problem.`\
 https://nytimes.com/2024/08/12/arts/design/ancient-shipwreck-artifacts.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/12/us/politics/jason-crow-trump-inquiry.html
 **WFAN parent company reaches deal to license 880 AM to ESPN NY**\
 `WFAN’s parent, Audacy, is licensing its 880 AM signal to ESPN New York starting this fall in a local marketing agreement.`\
 https://nytimes.com/athletic/5695816/2024/08/12/wfan-espn-new-york-880-am/
-
-**Piecing Together an Ancient Epic Was Slow Work. Until A.I. Got Involved.**\
-`Scholars have struggled to identify fragments of the epic of Gilgamesh — one of the world’s oldest literary texts. Now A.I. has brought an “extreme acceleration” to the field.`\
-https://nytimes.com/2024/08/12/books/booksupdate/ai-ancient-tablets-gilgamesh.html
-
-**Three Studies of MDMA Treatment Retracted by Scientific Journal**\
-`The psychedelic treatment, for PTSD, was rejected last week by government regulators.`\
-https://nytimes.com/2024/08/12/health/mdma-ptsd-retractions.html
 
