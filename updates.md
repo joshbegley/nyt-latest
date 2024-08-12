@@ -1,3 +1,7 @@
+**Map: 4.4-Magnitude Earthquake Shakes Los Angeles**\
+`View the location of the quake’s shake area and aftershocks.`\
+https://nytimes.com/interactive/2024/08/12/us/12wea-quake-tracker-southern-california-nyt2fqi6.html
+
 **Hurricane Cleanup Effort Reaps ‘Treasure’: a 1945 Letter in a Bottle**\
 `How did the letter, sent from a Naval base in Virginia, make its way more than 800 miles to Florida? Who wrote it, and for whom? These mysteries remain.`\
 https://nytimes.com/2024/08/12/us/message-bottle-hurricane-debby.html
