@@ -1,3 +1,15 @@
+**Raiders 53-man roster projection: How the loss to the Vikings affects the depth chart**\
+`Who's up and who's down following the Raiders' preseason loss to the Vikings on Saturday? There are lots of questions on defense.`\
+https://nytimes.com/athletic/5693239/2024/08/12/raiders-53-man-roster-projection-depth-chart/
+
+**After some 'chaotic' seasons, Rams QB Jimmy Garoppolo is having fun again**\
+`"This place allows you to be yourself, which is different than other places I’ve been."`\
+https://nytimes.com/athletic/5691607/2024/08/12/jimmy-garoppolo-los-angeles-rams-quarterback-preseason/
+
+**Blackhawks fan survey: What do you expect from Connor Bedard and company?**\
+`As the Blackhawks come off a franchise-record 53-loss season, what's your opinion of their direction?`\
+https://nytimes.com/athletic/5691718/2024/08/12/blackhawks-fan-survey-2024-2025/
+
 **Arsenal and Genoa close to agreeing £3.5m Brooke Norton-Cuffy deal**\
 `Arsenal and Genoa are close to agreeing the permanent transfer of Brooke Norton-Cuffy, for a total fee of around £3.`\
 https://nytimes.com/athletic/5695416/2024/08/12/arsenal-norton-cuffy-transfer-close-genoa/
