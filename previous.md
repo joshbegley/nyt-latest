@@ -1,3 +1,7 @@
+**Handbrake Off returns for the new season**\
+`The much-loved Arsenal podcast is back to its usual capacity for the new season.`\
+https://nytimes.com/athletic/5695432/2024/08/12/handbrake-off-best-arsenal-podcast-the-athletic/
+
 **Fantasy baseball notebook: Raw power is fun, but does it help us dream on a player's potential?**\
 `Derek VanRiper ponders where Jackson Chourio might go in 2025 fantasy drafts, and questions the value of Max EV as a way to predict power.`\
 https://nytimes.com/athletic/5693691/2024/08/12/fantasy-baseball-notebook-raw-power-jackson-chourio/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5695841/2024/08/12/richmond-raceway-nascar-austin-d
 **Elections Officials Battle a Deluge of Disinformation**\
 `County clerks and secretaries of state are overwhelmed this year, as they stare down a “perpetual moving target” of new conspiracy theories, political pressure and threats.`\
 https://nytimes.com/2024/08/12/business/media/2024-election-disinformation.html
-
-**Seahawks roster projection: Tough decisions loom at RB, WR, CB**\
-`Who will win the third running back job? Can Laviska Shenault do enough to grab a roster spot? Will every rookie draft pick make the team?`\
-https://nytimes.com/athletic/5695377/2024/08/12/seahawks-53-man-roster-projection/
 

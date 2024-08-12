@@ -1,3 +1,7 @@
+**Handbrake Off returns for the new season**\
+`The much-loved Arsenal podcast is back to its usual capacity for the new season.`\
+https://nytimes.com/athletic/5695432/2024/08/12/handbrake-off-best-arsenal-podcast-the-athletic/
+
 **Fantasy baseball notebook: Raw power is fun, but does it help us dream on a player's potential?**\
 `Derek VanRiper ponders where Jackson Chourio might go in 2025 fantasy drafts, and questions the value of Max EV as a way to predict power.`\
 https://nytimes.com/athletic/5693691/2024/08/12/fantasy-baseball-notebook-raw-power-jackson-chourio/
