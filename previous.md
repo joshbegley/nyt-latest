@@ -1,3 +1,7 @@
+**Submit your questions for Until Saturday's podcast mailbag**\
+`Leave your questions below for David Ubben and Chris Vannini, and they may be answered this week on the Until Saturday podcast.`\
+https://nytimes.com/athletic/5695545/2024/08/12/college-football-questions-mailbag-until-saturday-5/
+
 **Jayson Tatum's benching, Yabu's resurgence and more: Celtics mailbag, Part 1**\
 `In part one of our Celtics offseason mailbag, Jared Weiss answers your questions about the Celtics' time at the Olympics.`\
 https://nytimes.com/athletic/5693443/2024/08/12/jayson-tatum-olympic-mens-basketball-gold-yabu-celtics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5694754/2024/08/12/cubs-michael-bush-defense-pete-c
 **Commanders 53-man roster projection: Intrigue at WR, offensive and defensive lines**\
 `Is there a young receiver on Washington's roster who could earn himself a spot on the 53? Will LB Jamin Davis make the final cut?`\
 https://nytimes.com/athletic/5694696/2024/08/12/commanders-53-man-roster-projection/
-
-**Inside the Three Worst Weeks of Trump’s Campaign**\
-`Kamala Harris’s entry into the race has knocked the former president off his bearings, unsure how to take her on.`\
-https://nytimes.com/2024/08/12/podcasts/the-daily/trump-campaign-harris.html
 

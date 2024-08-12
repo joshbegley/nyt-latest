@@ -1,3 +1,7 @@
+**Submit your questions for Until Saturday's podcast mailbag**\
+`Leave your questions below for David Ubben and Chris Vannini, and they may be answered this week on the Until Saturday podcast.`\
+https://nytimes.com/athletic/5695545/2024/08/12/college-football-questions-mailbag-until-saturday-5/
+
 **Jayson Tatum's benching, Yabu's resurgence and more: Celtics mailbag, Part 1**\
 `In part one of our Celtics offseason mailbag, Jared Weiss answers your questions about the Celtics' time at the Olympics.`\
 https://nytimes.com/athletic/5693443/2024/08/12/jayson-tatum-olympic-mens-basketball-gold-yabu-celtics/
