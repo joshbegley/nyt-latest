@@ -1,3 +1,11 @@
+**The Problem Is Not A.I. It’s the Disbelief Created by Trump.**\
+`He’s exploiting the inability of ordinary people to discern manipulated images.`\
+https://nytimes.com/2024/08/07/opinion/the-problem-is-not-ai-its-the-disbelief-created-by-trump.html
+
+**Ángel Salazar, Comedian and ‘Scarface’ Actor, Dies at 68**\
+`A stand-up comedian in New York, his biggest role was playing Chi Chi in the 1983 film, “Scarface.”`\
+https://nytimes.com/2024/08/12/arts/angel-salazar-dead.html
+
 **Giants week in review: A walkoff, a demotion, and a guy who tried to climb a wall with his face**\
 `Plus: A proper appreciation of Matt Chapman's defense, home run of the week and more.`\
 https://nytimes.com/athletic/5695271/2024/08/12/sf-giants-walkoff-win-doval-demoted/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5690934/2024/08/12/emerson-royal-tottenham-transfer
 **Milan sign Tottenham's Emerson Royal**\
 `AC Milan have confirmed the signing of right-back Emerson Royal from Tottenham Hotspur.`\
 https://nytimes.com/athletic/5695598/2024/08/12/emerson-royal-milan-transfer-tottenham/
-
-**Harris Says Trump Will Repeal Obamacare. Trump Now Claims He’ll Make It ‘Better.’**\
-`The popularity of the Affordable Care Act has changed the political strategy of Republicans, who are no longer campaigning to end the law.`\
-https://nytimes.com/2024/08/12/us/politics/harris-trump-obamacare-health-care.html
-
-**Deadly Gas Explosion Destroys House in Maryland**\
-`The blast killed the homeowner and a contractor who had been dispatched to investigate a purported leak.`\
-https://nytimes.com/video/us/100000009624877/maryland-house-explosion.html
 
