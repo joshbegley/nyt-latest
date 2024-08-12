@@ -1,3 +1,7 @@
+**NBA star Kevin Durant becomes minority stakeholder of PSG**\
+`NBA star Kevin Durant has become a minority shareholder of French soccer giants Paris Saint-Germain.`\
+https://nytimes.com/athletic/5696354/2024/08/12/kevin-durant-psg-stake-nba/
+
 **Trump Calls Harris a ‘Communist.’ That Shows How Worried He Is.**\
 `MAGA desperately turns to old-fashioned red-baiting.`\
 https://nytimes.com/2024/08/12/opinion/harris-trump-communist.html
