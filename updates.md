@@ -1,3 +1,7 @@
+**WCBS Radio, the Soundtrack of Countless Cab Rides, Goes Quiet**\
+`The news radio mainstay is turning its airwaves over to ESPN, ending its continuous coverage of the five boroughs. The Mets broadcasts will remain.`\
+https://nytimes.com/2024/08/13/nyregion/wcbs-880-radio-closing-espn.html
+
 **Wednesday Briefing: Hamas Will Skip Upcoming Talks**\
 `Plus, in Russian territory captured by Ukraine.`\
 https://nytimes.com/2024/08/13/briefing/hamas-netanyahu-ukraine-incursion-russia-abortion.html
