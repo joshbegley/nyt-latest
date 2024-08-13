@@ -1,3 +1,7 @@
+**What Everton and Sean Dyche have learned from a 'balanced' pre-season**\
+`Everton will embark upon the new campaign with added invention and bite to their squad, but some familiar frailties remain `\
+https://nytimes.com/athletic/5695646/2024/08/13/everton-dyche-calvert-lewin-ndiaye-iroegbunam/
+
 **Crystal Palace's summer: Silverware, suitors and sweat as Glasner 'pushes players to the limit'**\
 `The Austrian has set a standard in pre-season as Palace look to hit the ground running despite the vultures circling their talented squad`\
 https://nytimes.com/athletic/5691125/2024/08/13/crystal-palace-glasner-preseason-guehi-andersen-eze/
