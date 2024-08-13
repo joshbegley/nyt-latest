@@ -1,3 +1,11 @@
+**Asian American Voters Could Be Key Swing Voters of 2024**\
+`The diverse group is turning out in record numbers. Neither party can take its support for granted.`\
+https://nytimes.com/2024/08/13/us/politics/asian-american-voters-election.html
+
+**Biden Awards $150 Million in Research Grants as Part of Cancer ‘Moonshot’**\
+`President Biden has had a deep personal interest in cancer research since his son Beau died of an aggressive brain cancer in 2015.`\
+https://nytimes.com/2024/08/13/us/politics/biden-research-cancer-moonshot.html
+
 **U.A.W. files labor charges against Trump and Musk over interview.**\
 `The United Automobile Workers union accused the pair of threatening workers during their livestreamed conversation on Monday.`\
 https://nytimes.com/2024/08/13/us/politics/uaw-trump-musk-charges.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5699064/2024/08/13/patriots-eagles-joint-practice-o
 **Camavinga set to miss Super Cup through injury**\
 `Real Madrid midfielder Eduardo Camavinga is expected to miss the UEFA Super Cup on Wednesday after injuring his knee during training.`\
 https://nytimes.com/athletic/5699145/2024/08/13/eduardo-camavinga-injury/
-
-**Harris and Walz Plan Rally in Milwaukee During Democratic Convention**\
-`The event is planned for Tuesday, when Barack Obama speaks in Chicago, and the campaign hopes to hold it at the arena where Republicans held their convention, people briefed on the planning said.`\
-https://nytimes.com/2024/08/13/us/politics/harris-walz-milwaukee-rally-dnc.html
-
-**As Gaza Talks Near, Diplomats Try to Keep War From Spreading**\
-`Hopes for a breakthrough were damped after Hamas said it would not attend the peace talks set for Thursday.`\
-https://nytimes.com/2024/08/13/world/middleeast/gaza-peace-talks.html
 
