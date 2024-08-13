@@ -1,3 +1,11 @@
+**Peggy Moffitt, 86, Dies; Defined ’60s Fashion With a Bathing Suit and a Bob**\
+`She became famous for posing in the fashion designer Rudi Gernreich’s topless swimsuit. But she saw herself more as a performer than as a model.`\
+https://nytimes.com/2024/08/13/fashion/peggy-moffitt-dead.html
+
+**Georgia coach Kirby Smart on how college programs may handle the new roster limits**\
+`FBS programs soon will be allowed to give out 105 scholarships for football. But will they?`\
+https://nytimes.com/athletic/5698459/2024/08/13/college-football-roster-limits-georgia-kirby-smart/
+
 **Alexei Popyrin's Montreal Masters title and the simplicity of seizing a tennis moment**\
 `The Australian's first ATP 1000 title offers plenty of tempting narratives, but none of them mean more than the simplest one`\
 https://nytimes.com/athletic/5697792/2024/08/13/alexei-popyrin-montreal-masters-title/
