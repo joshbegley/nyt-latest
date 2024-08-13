@@ -1,3 +1,11 @@
+**Corrections: Aug. 13, 2024**\
+`Corrections that appeared in print on Tuesday, Aug. 13, 2024.`\
+https://nytimes.com/2024/08/13/pageoneplus/corrections-aug-13-2024.html
+
+**Quotation of the Day: Toll in EuropeFrom ’23 Heat:47,000 Deaths**\
+`Quotation of the Day for Tuesday, August 13, 2024.`\
+https://nytimes.com/2024/08/13/pageoneplus/quotation-of-the-day-toll-in-europefrom-23-heat47000-deaths.html
+
 **Word of the Day: centennial**\
 `This word has appeared in 125 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/13/learning/word-of-the-day-centennial.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/13/world/asia/bangladesh-students-protests.html
 **What Everton and Sean Dyche have learned from a 'balanced' pre-season**\
 `Everton will embark upon the new campaign with added invention and bite to their squad, but some familiar frailties remain `\
 https://nytimes.com/athletic/5695646/2024/08/13/everton-dyche-calvert-lewin-ndiaye-iroegbunam/
-
-**Crystal Palace's summer: Silverware, suitors and sweat as Glasner 'pushes players to the limit'**\
-`The Austrian has set a standard in pre-season as Palace look to hit the ground running despite the vultures circling their talented squad`\
-https://nytimes.com/athletic/5691125/2024/08/13/crystal-palace-glasner-preseason-guehi-andersen-eze/
-
-**Alvarez's departure from Manchester City has elicited mere shrugs - but is that fair?**\
-`The Argentinian was a valuable asset for the club and always stepped up when needed yet there is very little emotion as he leaves for Spain`\
-https://nytimes.com/athletic/5696306/2024/08/13/julian-alvarez-manchester-city-departure/
 
