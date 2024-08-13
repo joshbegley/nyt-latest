@@ -1,3 +1,11 @@
+**Patriots offense can't do much of anything as receiver, O-line troubles continue**\
+`The Patriots' offensive struggles overshadowed everything else at their joint practice with the Eagles on Tuesday. `\
+https://nytimes.com/athletic/5699064/2024/08/13/patriots-eagles-joint-practice-offense/
+
+**Camavinga set to miss Super Cup through injury**\
+`Real Madrid midfielder Eduardo Camavinga is expected to miss the UEFA Super Cup on Wednesday after injuring his knee during training.`\
+https://nytimes.com/athletic/5699145/2024/08/13/eduardo-camavinga-injury/
+
 **Harris and Walz Plan Rally in Milwaukee During Democratic Convention**\
 `The event is planned for Tuesday, when Barack Obama speaks in Chicago, and the campaign hopes to hold it at the arena where Republicans held their convention, people briefed on the planning said.`\
 https://nytimes.com/2024/08/13/us/politics/harris-walz-milwaukee-rally-dnc.html

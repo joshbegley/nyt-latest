@@ -1,3 +1,11 @@
+**Patriots offense can't do much of anything as receiver, O-line troubles continue**\
+`The Patriots' offensive struggles overshadowed everything else at their joint practice with the Eagles on Tuesday. `\
+https://nytimes.com/athletic/5699064/2024/08/13/patriots-eagles-joint-practice-offense/
+
+**Camavinga set to miss Super Cup through injury**\
+`Real Madrid midfielder Eduardo Camavinga is expected to miss the UEFA Super Cup on Wednesday after injuring his knee during training.`\
+https://nytimes.com/athletic/5699145/2024/08/13/eduardo-camavinga-injury/
+
 **Harris and Walz Plan Rally in Milwaukee During Democratic Convention**\
 `The event is planned for Tuesday, when Barack Obama speaks in Chicago, and the campaign hopes to hold it at the arena where Republicans held their convention, people briefed on the planning said.`\
 https://nytimes.com/2024/08/13/us/politics/harris-walz-milwaukee-rally-dnc.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/13/us/ohio-officer-takiya-young-murder.html
 **Hamas sends a signal that a breakthrough is unlikely in negotiations.**\
 `By Adam Rasgon and Hwaida Saad`\
 https://nytimes.com/live/2024/08/13/world/israel-iran-hamas-gaza-war/hamas-sends-the-signal-a-breakthrough-is-unlikely-in-negotiations
-
-**Sam Rosen, voice of the Rangers, to retire after 2024-25 season**\
-`In 2016, Rosen was named the Foster Hewitt Memorial Award winner, earning him a place in the Hockey Hall of Fame.`\
-https://nytimes.com/athletic/5698415/2024/08/13/rangers-announcer-sam-rosen-retiring/
-
-**Manchester United's Matthijs de Ligt has time on his side to fulfil his prodigious talent**\
-`Matthijs de Ligt has been reunited with Erik ten Hag, who once said he expected him to "soon be number one in this position"`\
-https://nytimes.com/athletic/5698945/2024/08/13/manchester-united-matthijs-de-ligt-profile/
 
