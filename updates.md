@@ -1,3 +1,11 @@
+**‘Bad Monkey,’ Bad Deer, Bad Weather: The Fun of Filming in Florida**\
+`Shooting in the Sunshine State involves navigating a lot of humidity and critters, but the producers of a new Carl Hiaasen adaptation knew it was necessary to get the story right.`\
+https://nytimes.com/2024/08/13/arts/television/bad-monkey.html
+
+**Transfers and Pay Cuts: Pregnant Officers Accuse Border Agency of Discrimination**\
+`Under a $45 million settlement, Customs and Border Protection agreed to adjust its policy around pregnancy. Some women say the agency has instilled a culture of shame and perpetuated a fear of retaliation.`\
+https://nytimes.com/2024/08/13/us/politics/customs-border-protection-pregnant-lawsuit.html
+
 **Pod on the Tyne returns for the new season**\
 `The much-loved Newcastle podcast is back to its usual capacity for the new season.`\
 https://nytimes.com/athletic/5695451/2024/08/13/pod-on-the-tyne-best-newcastle-podcast-the-athletic/
