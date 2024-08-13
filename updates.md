@@ -1,3 +1,7 @@
+**Eagles-Patriots practice: Cooper DeJean makes an appearance, Jalen Hurts impresses, and more**\
+`Plus, Darian Kinnard takes a step up on the offensive line.`\
+https://nytimes.com/athletic/5698767/2024/08/13/eagles-patriots-joint-practice-cooper-dejean-jalen-hurts/
+
 **Arizona and Missouri Will Vote on Abortion in November**\
 `Also, Hamas said it would not participate in new truce talks. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/08/13/briefing/arizona-missouri-abortion-measures-cease-fire-talks.html

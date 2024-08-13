@@ -1,3 +1,7 @@
+**Eagles-Patriots practice: Cooper DeJean makes an appearance, Jalen Hurts impresses, and more**\
+`Plus, Darian Kinnard takes a step up on the offensive line.`\
+https://nytimes.com/athletic/5698767/2024/08/13/eagles-patriots-joint-practice-cooper-dejean-jalen-hurts/
+
 **Arizona and Missouri Will Vote on Abortion in November**\
 `Also, Hamas said it would not participate in new truce talks. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/08/13/briefing/arizona-missouri-abortion-measures-cease-fire-talks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/13/world/middleeast/gaza-peace-talks.html
 **Vienna Bids Farewell to Magnate Who Brought Stars to Its Opera Ball**\
 `Sophia Loren, Kim Kardashian, Priscilla Presley and Jane Fonda were among the stars Richard Lugner enticed, and often paid, to appear at the Vienna Opera Ball.`\
 https://nytimes.com/2024/08/13/arts/music/richard-lugner-celebrities-vienna-opera-ball.html
-
-**Jordan Love working on the deep ball and more from Packers camp**\
-`The Packers practice twice in Green Bay this week before flying to Denver for joint practice with the Broncos on Friday.`\
-https://nytimes.com/athletic/5698853/2024/08/13/jordan-love-packers-training-camp/
 
