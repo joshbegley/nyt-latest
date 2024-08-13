@@ -14,6 +14,10 @@ https://nytimes.com/athletic/5695786/2024/08/13/nfl-draft-2025-linebackers-harol
 `Surveys of Michigan, Pennsylvania and Wisconsin taken this month show the momentum of the vice president’s campaign.`\
 https://nytimes.com/2024/08/13/podcasts/the-daily/harris-polls-lead.html
 
+**Remco Evenepoel - My Golds In My Words**\
+`The first male cyclist to win both the time trial and the road race at the Olympics explains how he did it and what it means to Belgium`\
+https://nytimes.com/athletic/5696235/2024/08/13/remco-evenepoel-how-he-won-olympic-golds/
+
 **New Details on Gaza Cease-Fire Obstacles, and Musk Interviews Trump**\
 `Plus, scenes after a Ukrainian attack in Russia.`\
 https://nytimes.com/2024/08/13/podcasts/gaza-cease-fire-musk-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/13/crosswords/wordle-review-1152.html
 **Browns 53-man roster projection: Who will be QB No. 3, how many RBs make the team?**\
 `How will injuries to key players affect the initial 53-man depth chart? And will the team make anymore outside additions before cutdown day?`\
 https://nytimes.com/athletic/5695901/2024/08/13/browns-roster-53-man-projection/
-
-**On the 75th anniversary of the Geneva Conventions, the war in Gaza resonates.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/08/13/world/israel-iran-hamas-gaza-war/on-the-75th-anniversary-of-the-geneva-conventions-the-war-in-gaza-resonates
 
