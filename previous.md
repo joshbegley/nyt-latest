@@ -1,3 +1,7 @@
+**Starbucks Names Chipotle Boss as New C.E.O.**\
+`The coffee chain said that Chipotle’s Brian Niccol would replace Laxman Narasimhan, who is leaving the company after just over a year at the helm.`\
+https://nytimes.com/2024/08/13/business/starbucks-ceo-brian-niccol-chipotle.html
+
 **‘My Descent Into the True Crime Rabbit Hole’: The Week 8 Winner of Our Summer Reading Contest**\
 `Hayne Kim, 16, writes about how an essay in the Times Opinion section made her rethink her binge-watch habits.`\
 https://nytimes.com/2024/08/13/learning/my-descent-into-the-true-crime-rabbit-hole-the-week-8-winner-of-our-summer-reading-contest.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5697827/2024/08/13/antonio-nusa-rb-leipzig-transfer
 **The Athletic FC: What now for Liverpool's midfield search? Plus: The man behind a Europa League-NBA double**\
 `Liverpool are still searching for a new midfielder after Martin Zubimendi decided to stay at Real Sociedad`\
 https://nytimes.com/athletic/5697749/2024/08/13/newsletter-liverpool-midfield-zubimendi/
-
-**Barcelona fans: What do you want to know before this La Liga season?**\
-`Send in your questions for our Barcelona experts before the start of the new La Liga season`\
-https://nytimes.com/athletic/5697702/2024/08/13/barcelona-la-liga-start-questions/
 

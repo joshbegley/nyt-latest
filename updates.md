@@ -1,3 +1,7 @@
+**Starbucks Names Chipotle Boss as New C.E.O.**\
+`The coffee chain said that Chipotle’s Brian Niccol would replace Laxman Narasimhan, who is leaving the company after just over a year at the helm.`\
+https://nytimes.com/2024/08/13/business/starbucks-ceo-brian-niccol-chipotle.html
+
 **‘My Descent Into the True Crime Rabbit Hole’: The Week 8 Winner of Our Summer Reading Contest**\
 `Hayne Kim, 16, writes about how an essay in the Times Opinion section made her rethink her binge-watch habits.`\
 https://nytimes.com/2024/08/13/learning/my-descent-into-the-true-crime-rabbit-hole-the-week-8-winner-of-our-summer-reading-contest.html
