@@ -1,3 +1,7 @@
+**Chris Sale vs. Blake Snell put on a show before Braves get much-needed win in 10 innings**\
+`Sale and Snell combined for the most strikeouts (23) by two starters in a game at the San Francisco ballpark that opened in 2000.`\
+https://nytimes.com/athletic/5697522/2024/08/13/braves-giants-chris-sale-blake-snell/
+
 **Salmon Farms in Patagonia Face Growing Opposition**\
 `The Chilean industry’s expansion has drawn repeated challenges from environmentalists and Indigenous people of the region, and prompted calls for a moratorium.`\
 https://nytimes.com/2024/08/13/science/chile-salmon-farms-patagonia.html

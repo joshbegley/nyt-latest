@@ -1,3 +1,7 @@
+**Chris Sale vs. Blake Snell put on a show before Braves get much-needed win in 10 innings**\
+`Sale and Snell combined for the most strikeouts (23) by two starters in a game at the San Francisco ballpark that opened in 2000.`\
+https://nytimes.com/athletic/5697522/2024/08/13/braves-giants-chris-sale-blake-snell/
+
 **Salmon Farms in Patagonia Face Growing Opposition**\
 `The Chilean industry’s expansion has drawn repeated challenges from environmentalists and Indigenous people of the region, and prompted calls for a moratorium.`\
 https://nytimes.com/2024/08/13/science/chile-salmon-farms-patagonia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/13/learning/word-of-the-day-centennial.html
 **Yankees downplay inexcusable loss to MLB-worst White Sox: 'I just think it's a normal day'**\
 `The Yankees failed to capitalize with runners in scoring position in a 12-2 loss to the White Sox.`\
 https://nytimes.com/athletic/5697358/2024/08/13/yankees-inexcusable-loss-white-sox/
-
-**Late Night Tackles Trump’s Obsession With Crowd Size**\
-`“The fact that Kamala Harris is pulling such huge crowds is really getting under his, let’s call it, skin,” Stephen Colbert said of former President Donald Trump.`\
-https://nytimes.com/2024/08/13/arts/television/late-night-trump-rally-crowd-size.html
 
