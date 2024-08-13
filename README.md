@@ -1,4 +1,4 @@
-**How Amarius Mims' injury exposes mass of options for Bengals on offensive line**\
+**How Amarius Mims' injury exposes mass of options for Bengals' offensive line**\
 `While the news of Mims' injury is tough to swallow, it creates competition all across the Bengals' offensive line.`\
 https://nytimes.com/athletic/5697029/2024/08/12/cincinnati-bengals-amarius-mims-injury-preseason-training-camp/
 
