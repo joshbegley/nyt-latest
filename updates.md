@@ -1,3 +1,7 @@
+**Steve Pagliuca on Boston Celtics, Atalanta and feeling 'like the Ted Lasso of Italy'**\
+`This year, Atalanta won the Europa League to end a trophy drought dating since 1963 the Celtics ended a 16-year wait for an 18th NBA title`\
+https://nytimes.com/athletic/5695422/2024/08/13/pagliuca-atalanta-boston-celtics-guardiola-mazzulla/
+
 **Ukraine’s Surprise Attack**\
 `We explore why Ukraine is trying a new tactic two years into a stalemate with Russia.`\
 https://nytimes.com/2024/08/13/briefing/ukraine-russia-war-incursion.html
