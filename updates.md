@@ -1,3 +1,19 @@
+**Cutting Jarren Duran some slack ceases to be option. He needs to lose T-shirt and grow up**\
+`On a day Duran needed to show contrition and try to make things right for his homophobic slur, it was hard to get past “(Expletive) ‘Em."`\
+https://nytimes.com/athletic/5697132/2024/08/12/jarren-duran-slur-boston-red-sox/
+
+**As Astros' outfield dilemma continues, Zach Dezenzo enters the picture**\
+`Kyle Tucker did defensive drills before Monday's game, taking turns with Dezenzo. Could the recently promoted rookie see time in left field?`\
+https://nytimes.com/athletic/5697209/2024/08/12/astros-zach-dezenzo-outfield/
+
+**How Amarius Mims' injury exposes mass of options for Bengals' offensive line**\
+`Though the news of Mims' injury is tough to swallow, it creates competition all across the Bengals offensive line.`\
+https://nytimes.com/athletic/5697029/2024/08/12/cincinnati-bengals-amarius-mims-injury-preseason-training-camp/
+
+**Rachael Lillis, Who Voiced Popular ‘Pokémon’ Characters, Dies at 55**\
+`Ms. Lillis voiced the characters of Misty and Jessie in the animated series based on a video game. She was diagnosed with breast cancer this year.`\
+https://nytimes.com/2024/08/12/arts/television/rachael-lillis-dead.html
+
 **Vikings hold J.J. McCarthy out of practice due to sore knee**\
 `The Vikings are holding the rookie quarterback, who played well in his preseason debut, out of practice while he undergoes further testing.`\
 https://nytimes.com/athletic/5697219/2024/08/12/jj-mccarthy-minnesota-vikings-injury/
