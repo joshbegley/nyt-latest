@@ -1,3 +1,15 @@
+**The No. 9 spot is where you want to draft in fantasy football this season: A round-by-round analysis**\
+`Mike Vorkunov explains why A.J. Brown makes No. 9 overall the best place to be picking in fantasy football 2024 drafts.`\
+https://nytimes.com/athletic/5695887/2024/08/13/pick-9-best-spot-fantasy-football-2024/
+
+**Israel Was Less Flexible in Recent Gaza Cease-Fire Talks, Documents Show**\
+`The country made five new demands, according to documents detailing its newest negotiating positions.`\
+https://nytimes.com/2024/08/13/world/middleeast/israel-gaza-cease-fire-talks.html
+
+**As Mick Abel grinds through disappointing season, Phillies prospect searches for lessons**\
+`Abel was thought one of the best pitching prospects in baseball before he struggled this year in Triple A. Now he's trying to get on track.`\
+https://nytimes.com/athletic/5696811/2024/08/13/phillies-prospect-mick-abel-update/
+
 **Miami mailbag: Cam Ward's leadership, toughest games, impact freshmen**\
 `How bad would Miami have to be in 2024 for them to consider a coaching change? Who are the feel-good stories on the Canes?`\
 https://nytimes.com/athletic/5696606/2024/08/13/miami-hurricanes-football-cam-ward-playoff/
