@@ -1,3 +1,11 @@
+**Trucking Company Owner Pleads Guilty in Wreck That Killed 7 Bikers**\
+`Dunyadar Gasanov admitted he had lied to investigators about how long he had known the driver of the truck and altered drivers’ logs to evade federal regulations.`\
+https://nytimes.com/2024/08/13/us/westfield-trucking-owner-guilty-crash.html
+
+**Texas Sues G.M. Over Collection and Selling of Driver Data**\
+`The lawsuit accuses the automaker of tricking drivers into sharing detailed driving records that were then sold to insurance companies.`\
+https://nytimes.com/2024/08/13/business/gm-texas-lawsuit.html
+
 **U.S. Said to Consider a Breakup of Google to Address Search Monopoly**\
 `The Justice Department and state attorneys general are discussing various scenarios to remedy Google’s dominance in online search, including a breakup of the company.`\
 https://nytimes.com/2024/08/13/technology/google-monopoly-antitrust-justice-department.html
