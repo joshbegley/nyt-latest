@@ -1,3 +1,7 @@
+**‘Bad Monkey,’ Bad Deer, Bad Weather: The Fun of Filming in Florida**\
+`Shooting in the Sunshine State involves navigating a lot of humidity and critters, but the producers of a new Carl Hiaasen adaptation knew it was necessary to get the story right.`\
+https://nytimes.com/2024/08/13/arts/television/bad-monkey.html
+
 **Pod on the Tyne returns for the new season**\
 `The much-loved Newcastle podcast is back to its usual capacity for the new season.`\
 https://nytimes.com/athletic/5695451/2024/08/13/pod-on-the-tyne-best-newcastle-podcast-the-athletic/
@@ -23,7 +27,7 @@ https://nytimes.com/athletic/5698241/2024/08/13/fantasy-football-late-rounders-s
 https://nytimes.com/athletic/5698206/2024/08/13/nhl-draft-prospects-mailbag-questions/
 
 **Transfers and Pay Cuts: Pregnant Officers Accuse Border Agency of Discrimination**\
-`Under a $45 million settlement, Customs and Border Protection agreed to adjust a practice that some employees say has instilled a culture of shame and perpetuated a fear of retaliation.`\
+`Under a $45 million settlement, Customs and Border Protection agreed to adjust its policy around pregnancy. Some women say the agency has instilled a culture of shame and perpetuated a fear of retaliation.`\
 https://nytimes.com/2024/08/13/us/politics/customs-border-protection-pregnant-lawsuit.html
 
 **The Little Streamer That Could**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/13/business/media/tubi-movies-tv-streaming.html
 **Fulham submit improved offer for Andersen**\
 `Fulham have submitted an improved offer to sign defender Joachim Andersen from Crystal Palace.`\
 https://nytimes.com/athletic/5694083/2024/08/13/joachim-andersen-fulham-crystal-palace/
-
-**Commanders signing Martavis Bryant adds size, intrigue to uncertain WR room**\
-`The 32-year-old receiver hasn't played in an NFL game since 2018. `\
-https://nytimes.com/athletic/5698167/2024/08/13/washington-commanders-sign-martavis-bryant/
 
