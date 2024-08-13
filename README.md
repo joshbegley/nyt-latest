@@ -1,3 +1,7 @@
+**Has a Neglected Soviet-Era Composer’s Time Finally Come?**\
+`With an opera at the Salzburg Festival and recordings on Deutsche Grammophon, the music of Mieczyslaw Weinberg may be taking root.`\
+https://nytimes.com/2024/08/13/arts/music/mieczyslaw-weinberg-composer.html
+
 **Head of Panel That Ruled Against Jordan Chiles Represents Romania in Other Cases**\
 `The decision outraged U.S. Olympic and gymnastics officials, and led to a torrent of online abuse against both Chiles and Ana Barbosu, the Romanian athlete who ended up with the bronze.`\
 https://nytimes.com/2024/08/13/world/europe/olympics-jordan-chiles.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/13/arts/television/bad-monkey.html
 **Pod on the Tyne returns for the new season**\
 `The much-loved Newcastle podcast is back to its usual capacity for the new season.`\
 https://nytimes.com/athletic/5695451/2024/08/13/pod-on-the-tyne-best-newcastle-podcast-the-athletic/
-
-**An Artist Faces Climate Disaster With Hard Data and Ancient Wisdom**\
-`Research meets poetry in Imani Jacqueline Brown’s exploration of oil extraction and its consequences for her native New Orleans — and for the planet.`\
-https://nytimes.com/2024/08/13/arts/design/imani-jacqueline-brown-storefront-art-architecture.html
 
