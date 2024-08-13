@@ -1,3 +1,19 @@
+**Salmon Farms in Patagonia Face Growing Opposition**\
+`The Chilean industry’s expansion has drawn repeated challenges from environmentalists and Indigenous people of the region, and prompted calls for a moratorium.`\
+https://nytimes.com/2024/08/13/science/chile-salmon-farms-patagonia.html
+
+**George Santos May Be Gone From Congress, but His Trial Still Looms**\
+`With his federal trial scheduled for next month, Mr. Santos wants potential jurors to be screened with a lengthy questionnaire and have their identities hidden from the public.`\
+https://nytimes.com/2024/08/13/nyregion/george-santos-trial.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/13/crosswords/spelling-bee-forum.html
+
+**When ‘Abortion’ Wasn’t a Dirty Word**\
+`The medical term once encompassed any form of pregnancy loss, including miscarriage.`\
+https://nytimes.com/2024/08/13/science/medical-history-abortion.html
+
 **The Transfer DealSheet: Arsenal goalkeeper latest and Vinicius Jr to Saudi?**\
 `Welcome to the Transfer DealSheet, your weekly look at the state of play in the transfer market`\
 https://nytimes.com/athletic/5695539/2024/08/13/manchester-united-transfer-news-arsenal-liverpool-real-madrid-barcelona/
