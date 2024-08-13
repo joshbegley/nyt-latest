@@ -1,3 +1,7 @@
+**The West Clearly Doesn’t Want to Defeat Putin**\
+`Victory in Ukraine is now within Russia’s reach.`\
+https://nytimes.com/2024/08/13/opinion/russia-ukraine-west-war.html
+
 **Sound of a Fall**\
 `Benjamin Panico makes his New York Times Crossword debut.`\
 https://nytimes.com/2024/08/13/crosswords/daily-puzzle-2024-08-13.html
