@@ -1,3 +1,19 @@
+**Are We Thinking About the Youth Mental Health Crisis All Wrong?**\
+`Global trends in economics, climate and technology are weighing on young adults, a report finds. It recommends overhauling how we approach mental health care.`\
+https://nytimes.com/2024/08/13/well/mind/mental-health-young-adults-trends.html
+
+**Tiny Love Stories: ‘My Father, Autistic Like Me’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/08/13/style/tiny-modern-love-stories-my-father-autistic-like-me.html
+
+**Lightning in discussions to expand ownership group**\
+`Vinik sold a minority share of the team to Arctos Sports Partners in January 2022.`\
+https://nytimes.com/athletic/5699409/2024/08/13/lightning-ownership-group-operations/
+
+**Israel draws global condemnation after a cabinet minister’s proclamations at a holy site.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/08/13/world/israel-iran-hamas-gaza-war/israel-draws-global-condemnation-after-a-cabinet-ministers-proclamations-at-a-holy-site
+
 **Greenberg: Danny Parkins leaving Chicago sports radio for FS1. Who will replace him?**\
 `Now that we're free of the “Danny Parkins Curse,” you know what that means. It's time to start planning parades for Chicago's sports teams.`\
 https://nytimes.com/athletic/5698417/2024/08/13/danny-parkins-leaving-chicago-radio-fs1/
