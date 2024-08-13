@@ -1,3 +1,7 @@
+**As Astros' outfield dilemma continues, Zach Dezenzo enters the picture**\
+`Kyle Tucker did defensive drills before Monday's game, taking turns with Dezenzo. Could the recently promoted rookie see time in left field?`\
+https://nytimes.com/athletic/5697209/2024/08/12/astros-zach-dezenzo-outfield/
+
 **Vikings hold J.J. McCarthy out of practice due to sore knee**\
 `The Vikings are holding the rookie quarterback, who played well in his preseason debut, out of practice while he undergoes further testing.`\
 https://nytimes.com/athletic/5697219/2024/08/12/jj-mccarthy-minnesota-vikings-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/12/us/paul-bucha-dead.html
 **How Tim Walz’s Congressional District Embodies Rural Democrats’ Challenges**\
 `The Minnesota governor, No. 2 on the ticket, might not win his old House seat if he were to run now.`\
 https://nytimes.com/2024/08/12/us/politics/tim-walz-minnesota-district.html
-
-**Trump’s Big Lie About Harris’s Crowds**\
-`The sinister logic behind the ex-president’s latest conspiracy theory.`\
-https://nytimes.com/2024/08/12/opinion/trump-crowds-kamala-harris.html
 
