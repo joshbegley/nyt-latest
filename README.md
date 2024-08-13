@@ -1,3 +1,7 @@
+**Consumer Agency Cracks Down on Seller-Financed Home Sales**\
+`Risky contract-to-deed home sales are subject to the same protections as mortgaged-financed homes, the consumer protection agency said.`\
+https://nytimes.com/2024/08/13/business/consumer-protection-home-sales.html
+
 **The police say a man broke into a Trump campaign office in Virginia.**\
 `By Tim Balk`\
 https://nytimes.com/live/2024/08/13/us/harris-trump-election/the-police-say-a-man-broke-into-a-trump-campaign-office-in-virginia
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/13/arts/television/industry-hbo-succession-greys-ana
 **How Food Prices Have Changed Over the Past Four Years**\
 `Grocery prices are no longer rising as rapidly, but food inflation remains a top issue for voters, polls show.`\
 https://nytimes.com/2024/08/13/business/economy/inflation-food-prices.html
-
-**‘Bad Monkey,’ Bad Deer, Bad Weather: The Fun of Filming in Florida**\
-`Shooting in the Sunshine State involves navigating a lot of humidity and critters, but the producers of a new Carl Hiaasen adaptation knew it was necessary to get the story right.`\
-https://nytimes.com/2024/08/13/arts/television/bad-monkey.html
 
