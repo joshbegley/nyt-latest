@@ -1,3 +1,7 @@
+**Vikings hold J.J. McCarthy out of practice due to sore knee**\
+`The Vikings are holding the rookie quarterback, who played well in his preseason debut, out of practice while he undergoes further testing.`\
+https://nytimes.com/athletic/5697219/2024/08/12/jj-mccarthy-minnesota-vikings-injury/
+
 **How Amarius Mims' injury exposes mass of options for Bengals' offensive line**\
 `While the news of Mims' injury is tough to swallow, it creates competition all across the Bengals' offensive line.`\
 https://nytimes.com/athletic/5697029/2024/08/12/cincinnati-bengals-amarius-mims-injury-preseason-training-camp/
@@ -33,10 +37,4 @@ https://nytimes.com/2024/08/12/us/politics/tim-walz-minnesota-district.html
 **Trump’s Big Lie About Harris’s Crowds**\
 `The sinister logic behind the ex-president’s latest conspiracy theory.`\
 https://nytimes.com/2024/08/12/opinion/trump-crowds-kamala-harris.html
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>OK, guys. The season is less than two weeks away. Let&#8217;s go hardcore football with your questions this week, shall we?</p>
-<p>Please include your city.</p>
-`\
-https://nytimes.com/athletic/5697106/2024/08/12/submit-a-question-for-stewart-mandels-college-football-mailbag-268/
 
