@@ -1,3 +1,7 @@
+**Crystal Palace's summer: Silverware, suitors and sweat as Glasner 'pushes players to the limit'**\
+`The Austrian has set a standard in pre-season as Palace look to hit the ground running despite the vultures circling their talented squad`\
+https://nytimes.com/athletic/5691125/2024/08/13/crystal-palace-glasner-preseason-guehi-andersen-eze/
+
 **Alvarez's departure from Manchester City has elicited mere shrugs - but is that fair?**\
 `The Argentinian was a valuable asset for the club and always stepped up when needed yet there is very little emotion as he leaves for Spain`\
 https://nytimes.com/athletic/5696306/2024/08/13/julian-alvarez-manchester-city-departure/
