@@ -1,3 +1,7 @@
+**Greenberg: Danny Parkins leaving Chicago sports radio for FS1. Who will replace him?**\
+`Now that we're free of the “Danny Parkins Curse,” you know what that means. It's time to start planning parades for Chicago's sports teams.`\
+https://nytimes.com/athletic/5698417/2024/08/13/danny-parkins-leaving-chicago-radio-fs1/
+
 **Asian American Voters Could Be Key Swing Voters of 2024**\
 `The diverse group is turning out in record numbers. Neither party can take its support for granted.`\
 https://nytimes.com/2024/08/13/us/politics/asian-american-voters-election.html
