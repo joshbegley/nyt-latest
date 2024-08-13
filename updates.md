@@ -1,3 +1,7 @@
+**Tanzania Arrests 520 People in Mass Opposition Crackdown**\
+`The clampdown came after the police banned a youth rally and pointed to the anti-government protests that have swept neighboring Kenya in recent months.`\
+https://nytimes.com/2024/08/13/world/africa/tanzania-arrests-520-people-crackdown.html
+
 **Carvajal criticises schedule ahead of UEFA Super Cup**\
 `Real Madrid defender Dani Carvajal says the current football calendar is &#8220;harming&#8221; players ahead of the UEFA Super Cup on Wednesday evening.`\
 https://nytimes.com/athletic/5698795/2024/08/13/dani-carvajal-uefa-super-cup/
