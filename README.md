@@ -1,3 +1,15 @@
+**Fulham submit improved offer for Andersen**\
+`Fulham have submitted an improved offer to sign defender Joachim Andersen from Crystal Palace.`\
+https://nytimes.com/athletic/5694083/2024/08/13/joachim-andersen-fulham-crystal-palace/
+
+**Commanders signing Martavis Bryant adds size, intrigue to uncertain WR room**\
+`The 32-year-old receiver hasn't played in an NFL game since 2018. `\
+https://nytimes.com/athletic/5698167/2024/08/13/washington-commanders-sign-martavis-bryant/
+
+**Tapestries Are No Longer Just for Gothic Castles**\
+`Leafy antique wall hangings are having a resurgence in the design world, showing up in even the most modern rooms.`\
+https://nytimes.com/2024/08/13/t-magazine/wall-tapestry-tips.html
+
 **Greek Wildfire Burns Homes and Buildings**\
 `In Vrilissia, a suburb north of Athens, a local resident described how the wildfires destroyed his home and all his belongings.`\
 https://nytimes.com/video/world/europe/100000009626680/greece-wildfire-athens-destruction.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5697380/2024/08/13/new-york-giants-offensive-line-t
 **Palmer signs two-year Chelsea contract extension until 2033**\
 `Cole Palmer has signed a two-year contract extension at Chelsea until June 2033.`\
 https://nytimes.com/athletic/5698094/2024/08/13/cole-palmer-chelsea-new-contract/
-
-**Blues sign Oilers' Broberg, Holloway to offer sheets**\
-`The Blues have tendered offer sheets to Edmonton's Philip Broberg and Dylan Holloway. The Oilers have a week to match. `\
-https://nytimes.com/athletic/5698081/2024/08/13/blues-dylan-holloway-philip-broberg-oilers/
-
-**W.N.B.A. Star Takes Over Voting Organization Started by LeBron James**\
-`Nneka Ogwumike, a nine-time All-Star, will lead More Than a Vote, which will focus on women’s reproductive rights this election cycle.`\
-https://nytimes.com/2024/08/13/business/nneka-ogwumike-more-than-a-vote.html
-
-**Why Ipswich have changed a TV camera angle for the Premier League**\
-`As part of their preparations for life in the top flight, Ipswich have repositioned all of their TV camera stations by building a new gantry`\
-https://nytimes.com/athletic/5697934/2024/08/13/ipswich-television-camera-position-explained/
 
