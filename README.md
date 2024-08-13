@@ -1,3 +1,7 @@
+**Mourinho - Fenerbahce would 'never' have reached Champions League final**\
+`Jose Mourinho claims Fenerbahce would &#8220;never&#8221; have had a chance of winning the Champions League or making the final after they lost their third qualifying round against Lille.`\
+https://nytimes.com/athletic/5699321/2024/08/13/jose-mourinho-fenerbahce-champions-league/
+
 **WCBS Radio, the Soundtrack of Countless Cab Rides, Goes Quiet**\
 `The news radio mainstay is turning its airwaves over to ESPN, ending its continuous coverage of the five boroughs. The Mets broadcasts will remain.`\
 https://nytimes.com/2024/08/13/nyregion/wcbs-880-radio-closing-espn.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5698853/2024/08/13/jordan-love-packers-training-cam
 **The Democratic Convention Party Scene Is Taking Shape**\
 `John Legend is set to headline one of the week’s biggest events so far — a bash by Gov. J.B. Pritzker of Illinois — but despite speculation, there’s no sign yet of Beyoncé or Taylor Swift in Chicago.`\
 https://nytimes.com/2024/08/13/us/politics/dnc-john-legend.html
-
-**Recent Voter Registration Data Offers Hint of Enthusiasm for Democrats**\
-`Two swing states have seen a boost in Democratic sign-ups since Kamala Harris entered the race.`\
-https://nytimes.com/2024/08/13/upshot/democrats-voter-registration.html
 
