@@ -1,3 +1,7 @@
+**Manchester United's Matthijs de Ligt has time on his side to fulfil his prodigious talent**\
+`Matthijs de Ligt has been reunited with Erik ten Hag, who once said he expected him to "soon be number one in this position"`\
+https://nytimes.com/athletic/5698945/2024/08/13/manchester-united-matthijs-de-ligt-profile/
+
 **What led to Blues’ offer sheets for Broberg, Holloway and why Oilers made themselves susceptible**\
 `The Oilers have a week to match the Blues' two offer sheets for Broberg and Holloway.`\
 https://nytimes.com/athletic/5698010/2024/08/13/blues-oilers-broberg-holloway-nhl-offer-sheets/

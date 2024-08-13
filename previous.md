@@ -1,3 +1,7 @@
+**Manchester United's Matthijs de Ligt has time on his side to fulfil his prodigious talent**\
+`Matthijs de Ligt has been reunited with Erik ten Hag, who once said he expected him to "soon be number one in this position"`\
+https://nytimes.com/athletic/5698945/2024/08/13/manchester-united-matthijs-de-ligt-profile/
+
 **What led to Blues’ offer sheets for Broberg, Holloway and why Oilers made themselves susceptible**\
 `The Oilers have a week to match the Blues' two offer sheets for Broberg and Holloway.`\
 https://nytimes.com/athletic/5698010/2024/08/13/blues-oilers-broberg-holloway-nhl-offer-sheets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5698901/2024/08/13/tim-ream-world-cup-2026-usmnt/
 **Tanzania Arrests 520 People in Mass Opposition Crackdown**\
 `The clampdown came after the police banned a youth rally and pointed to the anti-government protests that have swept neighboring Kenya in recent months.`\
 https://nytimes.com/2024/08/13/world/africa/tanzania-arrests-520-people-crackdown.html
-
-**Carvajal criticises schedule ahead of UEFA Super Cup**\
-`Real Madrid defender Dani Carvajal says the current football calendar is &#8220;harming&#8221; players ahead of the UEFA Super Cup on Wednesday evening.`\
-https://nytimes.com/athletic/5698795/2024/08/13/dani-carvajal-uefa-super-cup/
 
