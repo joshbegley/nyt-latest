@@ -1,3 +1,7 @@
+**U.S. Said to Consider a Breakup of Google to Address Search Monopoly**\
+`The Justice Department and state attorneys general are discussing various scenarios to remedy Google’s dominance in online search, including a breakup of the company.`\
+https://nytimes.com/2024/08/13/technology/google-monopoly-antitrust-justice-department.html
+
 **Alvarez breaks Rays' jumbotron with batting practice home run**\
 `Alvarez previously broke a jumbotron with a home run during batting practice at Minute Maid Park in 2019.`\
 https://nytimes.com/athletic/5699480/2024/08/13/yordan-alvarez-rays-jumbotron-home-run/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/13/us/politics/tim-walz-military-record.html
 **Bengals' Ja'Marr Chase absent from camp amid contract talks**\
 `Chase is in the fourth year of his rookie contract and the team has already exercised the fifth-year option for 2025.`\
 https://nytimes.com/athletic/5699406/2024/08/13/jamarr-chase-bengals-absence-contract/
-
-**Are We Thinking About the Youth Mental Health Crisis All Wrong?**\
-`Global trends in economics, climate and technology are weighing on young adults, a report finds. It recommends overhauling how we approach mental health care.`\
-https://nytimes.com/2024/08/13/well/mind/mental-health-young-adults-trends.html
 

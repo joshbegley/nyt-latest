@@ -1,3 +1,7 @@
+**U.S. Said to Consider a Breakup of Google to Address Search Monopoly**\
+`The Justice Department and state attorneys general are discussing various scenarios to remedy Google’s dominance in online search, including a breakup of the company.`\
+https://nytimes.com/2024/08/13/technology/google-monopoly-antitrust-justice-department.html
+
 **Alvarez breaks Rays' jumbotron with batting practice home run**\
 `Alvarez previously broke a jumbotron with a home run during batting practice at Minute Maid Park in 2019.`\
 https://nytimes.com/athletic/5699480/2024/08/13/yordan-alvarez-rays-jumbotron-home-run/
