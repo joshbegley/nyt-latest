@@ -1,3 +1,11 @@
+**Police Nab Fugitive Tortoise on Slow Run to Freedom**\
+`Arizona state troopers rescued Stitch, the giant sulcata tortoise, from an interstate highway after it escaped from its enclosure at a ranch.`\
+https://nytimes.com/2024/08/12/us/giant-tortoise-escape-arizona.html
+
+**Sutton Foster and Michael Urie Reunite in the Zany ‘Once Upon a Mattress’**\
+`The hit Encores! production has transferred to Broadway, with a cast fiercely dedicated to entertaining its audience.`\
+https://nytimes.com/2024/08/12/theater/once-upon-a-mattress-review.html
+
 **Mookie Betts is back, and more 'tough decisions' are coming for the Dodgers**\
 `Betts homered in his first game back as he returned to the familiar position of right field: "I'll be ready for whatever."`\
 https://nytimes.com/athletic/5697280/2024/08/12/dodgers-mookie-betts-amed-rosario/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/12/technology/trump-musk-x-spaces-interview.html
 **Trump Flew on Charter Jet Previously Owned by Jeffrey Epstein**\
 `A Trump campaign official said that the aircraft was provided by a charter jet service after his own jet had a mechanical failure, and that the campaign had been unaware of the plane’s previous ownership.`\
 https://nytimes.com/2024/08/12/us/politics/trump-charter-jet-jeffrey-epstein.html
-
-**Rachael Lillis, Who Voiced Popular ‘Pokémon’ Characters, Dies at 55**\
-`Ms. Lillis voiced the characters of Misty and Jessie in the animated series based on a video game. She was diagnosed with breast cancer this year.`\
-https://nytimes.com/2024/08/12/arts/television/rachael-lillis-dead.html
-
-**At a Russian Border Post, Scenes of Ruin After Ukraine’s Surprise Attack**\
-`A week after the biggest foreign incursion into Russia since World War II, The New York Times visited one of the spots where Ukrainian forces stormed into Russia and surprised the defenders.`\
-https://nytimes.com/2024/08/12/world/europe/russia-ukraine-kursk-incursion.html
 

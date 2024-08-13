@@ -1,3 +1,11 @@
+**Police Nab Fugitive Tortoise on Slow Run to Freedom**\
+`Arizona state troopers rescued Stitch, the giant sulcata tortoise, from an interstate highway after it escaped from its enclosure at a ranch.`\
+https://nytimes.com/2024/08/12/us/giant-tortoise-escape-arizona.html
+
+**Sutton Foster and Michael Urie Reunite in the Zany ‘Once Upon a Mattress’**\
+`The hit Encores! production has transferred to Broadway, with a cast fiercely dedicated to entertaining its audience.`\
+https://nytimes.com/2024/08/12/theater/once-upon-a-mattress-review.html
+
 **Mookie Betts is back, and more 'tough decisions' are coming for the Dodgers**\
 `Betts homered in his first game back as he returned to the familiar position of right field: "I'll be ready for whatever."`\
 https://nytimes.com/athletic/5697280/2024/08/12/dodgers-mookie-betts-amed-rosario/
