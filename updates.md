@@ -1,3 +1,11 @@
+**Seven People Charged After Breaking Into Israeli Arms Company’s U.K. Site**\
+`Prosecutors argued in court that a group of pro-Palestinian activists who vandalized a site belonging to Elbit, an Israeli arms manufacturer, had committed offenses with a “terrorist connection.”`\
+https://nytimes.com/2024/08/13/world/europe/israeli-arms-company-break-in.html
+
+**Lessons From a Burning Forest**\
+`Canada’s boreal forests are burning faster than they can regrow, but controlled fires may be one of the best ways to protect local communities.`\
+https://nytimes.com/2024/08/13/climate/lessons-from-a-burning-forest.html
+
 **Time for City case to be 'heard and answered' - Premier League chief**\
 `Premier League chief executive Richard Masters says it is &#8220;time&#8221; for the 115 charges against Manchester City to be &#8220;heard and answered&#8221;.`\
 https://nytimes.com/athletic/5698732/2024/08/13/manchester-city-charges-masters-premier-league/

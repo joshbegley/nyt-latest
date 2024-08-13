@@ -1,3 +1,11 @@
+**Seven People Charged After Breaking Into Israeli Arms Company’s U.K. Site**\
+`Prosecutors argued in court that a group of pro-Palestinian activists who vandalized a site belonging to Elbit, an Israeli arms manufacturer, had committed offenses with a “terrorist connection.”`\
+https://nytimes.com/2024/08/13/world/europe/israeli-arms-company-break-in.html
+
+**Lessons From a Burning Forest**\
+`Canada’s boreal forests are burning faster than they can regrow, but controlled fires may be one of the best ways to protect local communities.`\
+https://nytimes.com/2024/08/13/climate/lessons-from-a-burning-forest.html
+
 **Time for City case to be 'heard and answered' - Premier League chief**\
 `Premier League chief executive Richard Masters says it is &#8220;time&#8221; for the 115 charges against Manchester City to be &#8220;heard and answered&#8221;.`\
 https://nytimes.com/athletic/5698732/2024/08/13/manchester-city-charges-masters-premier-league/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/08/13/us/politics/kamala-harris-presence-vi
 **Who Is Brian Niccol, the Incoming Starbucks C.E.O. From Chipotle?**\
 `Mr. Niccol, whom the coffee chain poached from Chipotle, has emerged in recent years as a top leader in the restaurant industry.`\
 https://nytimes.com/2024/08/13/business/brian-niccol-starbucks-chipotle.html
-
-**Arsenal ban 24 fans for abusive and discriminatory behaviour**\
-`Arsenal have banned 24 supporters for abusive and discriminatory behaviour during the 2023-24 season.`\
-https://nytimes.com/athletic/5698600/2024/08/13/arsenal-supporters-ban-abuse-discrimination/
-
-**Dodgers right-hander River Ryan will undergo Tommy John surgery**\
-`Ryan becomes the third notable young Dodgers pitcher to undergo Tommy John surgery this season.`\
-https://nytimes.com/athletic/5698603/2024/08/13/dodgers-river-ryan-tommy-john/
 
