@@ -1,3 +1,7 @@
+**Carvajal criticises schedule ahead of UEFA Super Cup**\
+`Real Madrid defender Dani Carvajal says the current football calendar is &#8220;harming&#8221; players ahead of the UEFA Super Cup on Wednesday evening.`\
+https://nytimes.com/athletic/5698795/2024/08/13/dani-carvajal-uefa-super-cup/
+
 **Titans' Will Levis unveils mayonnaise-inspired fragrance**\
 `Dubbed Will Levis No. 8, the new fragrance leans on his love of mayonnaise, which dates back to his college days at Kentucky.`\
 https://nytimes.com/athletic/5698787/2024/08/13/titans-will-levis-cologne-mayonnaise/
