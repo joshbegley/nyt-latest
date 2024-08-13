@@ -7,7 +7,7 @@ https://nytimes.com/2024/08/13/briefing/ukraine-russia-war-incursion.html
 https://nytimes.com/athletic/5696007/2024/08/13/bears-chris-beatty-dj-moore-keenan-allen/
 
 **Steve Pagliuca on Boston Celtics, Atalanta and feeling 'like the Ted Lasso of Italy'**\
-`This summer, the Celtics ended a 16-year wait for an 18th NBA title, and Atalanta won the Europa League to end a 61-year wait for any trophy`\
+`This year, Atalanta won the Europa League to end a trophy drought dating since 1963 the Celtics ended a 16-year wait for an 18th NBA title`\
 https://nytimes.com/athletic/5695422/2024/08/13/pagliuca-atalanta-boston-celtics-guardiola-mazzulla/
 
 **2025 NFL Draft summer scouting: Which linebackers could be on the radar this season?**\
