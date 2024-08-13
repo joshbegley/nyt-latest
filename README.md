@@ -1,3 +1,11 @@
+**Shota Imanaga, Ben Brown and the missed opportunities stacking up for the Chicago Cubs**\
+`This looks like a team with enough competence to play meaningful games in September, but not enough consistency in all phases to break away.`\
+https://nytimes.com/athletic/5697423/2024/08/12/cubs-shota-imanaga-missed-opportunities/
+
+**Summertime strains: 49ers' fast-paced practices taking a toll on the roster**\
+`The 49ers got more bad injury news on Monday: Defensive tackle Kalia Davis will miss perhaps half the season with a knee issue.`\
+https://nytimes.com/athletic/5697234/2024/08/12/49ers-training-camp-injuries-kalia-davis/
+
 **Twins' Zebby Matthews propelled to majors by development program: 'Everybody's dream'**\
 `Matthews barely walks anyone and has added 3 mph to his fastball since the Twins drafted him.`\
 https://nytimes.com/athletic/5697366/2024/08/12/twins-zebby-matthews/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5697280/2024/08/12/dodgers-mookie-betts-amed-rosari
 **Parts of Canada’s Boreal Forest Are Burning Faster Than They Can Regrow**\
 `The delicate balance of one the planet’s largest natural systems for storing carbon depends on the humble black spruce tree.`\
 https://nytimes.com/interactive/2024/08/12/climate/canada-wildfires.html
-
-**Cutting Jarren Duran some slack ceases to be option. He needs to lose T-shirt and grow up**\
-`On a day Duran needed to show contrition and try to make things right for his homophobic slur, it was hard to get past “(Expletive) ‘Em."`\
-https://nytimes.com/athletic/5697132/2024/08/12/jarren-duran-slur-boston-red-sox/
-
-**As Astros' outfield dilemma continues, Zach Dezenzo enters the picture**\
-`Kyle Tucker did defensive drills before Monday's game, taking turns with Dezenzo. Could the recently promoted rookie see time in left field?`\
-https://nytimes.com/athletic/5697209/2024/08/12/astros-zach-dezenzo-outfield/
 
