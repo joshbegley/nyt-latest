@@ -1,3 +1,7 @@
+**Wheeler’s mailbag: Submit your 2025 NHL Draft and prospect questions**\
+`Have any early questions about the 2025 NHL Draft class, a prospect, or scouting in general? Submit them here.`\
+https://nytimes.com/athletic/5698206/2024/08/13/nhl-draft-prospects-mailbag-questions/
+
 **Transfers and Pay Cuts: Pregnant Officers Accuse Border Agency of Discrimination**\
 `Under a $45 million settlement, Customs and Border Protection agreed to adjust a practice that some employees say has instilled a culture of shame and perpetuated a fear of retaliation.`\
 https://nytimes.com/2024/08/13/us/politics/customs-border-protection-pregnant-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/07/opinion/thepoint/krugman-inflation-bacon-tru
 **A Haven for Black Film on Martha’s Vineyard Keeps Growing**\
 `Summer on the island is packed with cultural events, and for many celebrities, politicians and filmmakers, the Martha’s Vineyard African American Film Festival is a highlight.`\
 https://nytimes.com/2024/08/13/style/marthas-vineyard-african-american-film-festival-scene.html
-
-**We Tested 24 Dishwasher Detergents to Find the Best**\
-`These are the three top performers.`\
-https://nytimes.com/interactive/2024/08/13/smarter-living/wirecutter/best-dishwasher-detergents.html
 
