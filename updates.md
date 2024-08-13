@@ -1,3 +1,11 @@
+**What to Know About Ukraine’s Cross-Border Assault Into Russia**\
+`The incursion caught Russia by surprise and signified a shift in tactics for Kyiv after more than two years of war with Russia.`\
+https://nytimes.com/2024/08/13/world/europe/ukraine-russia-kursk-incursion-war.html
+
+**Fires Near Athens Leave a Path of Destruction**\
+`The Greek authorities said the threat posed by the blazes had lessened as of Tuesday, thanks in part to an overnight lull in the strong winds. But the risk remained.`\
+https://nytimes.com/2024/08/13/world/europe/athens-greece-fires.html
+
 **Musk’s Trump Talk: After Glitchy Start, a Two-Hour Ramble**\
 `Problems in the livestream renewed questions about X’s ability to handle big events, but it also showed how the platform can still grab attention.`\
 https://nytimes.com/2024/08/13/technology/elon-musk-x-donald-trump.html
