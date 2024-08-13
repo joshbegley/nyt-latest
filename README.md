@@ -1,3 +1,7 @@
+**Ukraine’s Surprise Attack**\
+`We explore why Ukraine is trying a new tactic two years into a stalemate with Russia.`\
+https://nytimes.com/2024/08/13/briefing/ukraine-russia-war-incursion.html
+
 **Why the Bears are excited about WRs coach Chris Beatty: 'He makes people better'**\
 `Get to know Beatty, whose connections to DJ Moore and Keenan Allen should only help the Bears' talented receivers room.`\
 https://nytimes.com/athletic/5696007/2024/08/13/bears-chris-beatty-dj-moore-keenan-allen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5697152/2024/08/13/carson-steele-chiefs-rookie-full
 **Wordle Review No. 1,152**\
 `Scroll down for hints and conversation about the puzzle for Day of Week, Date, Year.`\
 https://nytimes.com/2024/08/13/crosswords/wordle-review-1152.html
-
-**Browns 53-man roster projection: Who will be QB No. 3, how many RBs make the team?**\
-`How will injuries to key players affect the initial 53-man depth chart? And will the team make anymore outside additions before cutdown day?`\
-https://nytimes.com/athletic/5695901/2024/08/13/browns-roster-53-man-projection/
 
