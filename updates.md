@@ -1,3 +1,7 @@
+**Harris and Walz Plan Rally in Milwaukee During Democratic Convention**\
+`The event is planned for Tuesday, when Barack Obama speaks in Chicago, and the campaign hopes to hold it at the arena where Republicans held their convention, people briefed on the planning said.`\
+https://nytimes.com/2024/08/13/us/politics/harris-walz-milwaukee-rally-dnc.html
+
 **As Gaza Talks Near, Diplomats Try to Keep War From Spreading**\
 `Hopes for a breakthrough were damped after Hamas said it would not attend the peace talks set for Thursday.`\
 https://nytimes.com/2024/08/13/world/middleeast/gaza-peace-talks.html
