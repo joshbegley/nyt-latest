@@ -1,3 +1,7 @@
+**Demolition Crew Tears Down Texas Church Where Gunman Killed 26**\
+`The move to raze the church in Sutherland Springs, which had served as a memorial to the victims of the 2017 massacre, came over objections from some in the community.`\
+https://nytimes.com/2024/08/12/us/sutherland-springs-church-demolition.html
+
 **Police Nab Fugitive Tortoise on Slow Run to Freedom**\
 `Arizona state troopers rescued Stitch, the giant sulcata tortoise, from an interstate highway after it escaped from its enclosure at a ranch.`\
 https://nytimes.com/2024/08/12/us/giant-tortoise-escape-arizona.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5697029/2024/08/12/cincinnati-bengals-amarius-mims-
 **X Spaces with Trump is off to a glitchy start.**\
 `The audio livestream of a conversation between Elon Musk and the former president ran late as users scrambled to try to access the site.`\
 https://nytimes.com/2024/08/12/technology/trump-musk-x-spaces-interview.html
-
-**Trump Flew on Charter Jet Previously Owned by Jeffrey Epstein**\
-`A Trump campaign official said that the aircraft was provided by a charter jet service after his own jet had a mechanical failure, and that the campaign had been unaware of the plane’s previous ownership.`\
-https://nytimes.com/2024/08/12/us/politics/trump-charter-jet-jeffrey-epstein.html
 
