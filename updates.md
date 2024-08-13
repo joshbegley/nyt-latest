@@ -1,3 +1,7 @@
+**Former Pro-Trump County Clerk Is Found Guilty of Tampering With Voting Machines**\
+`She could face multiple years in prison when she is sentenced in October.`\
+https://nytimes.com/2024/08/12/us/politics/tina-peters-guilty-voting-machine-tampering.html
+
 **Demolition Crew Tears Down Texas Church Where Gunman Killed 26**\
 `The move to raze the church in Sutherland Springs, which had served as a memorial to the victims of the 2017 massacre, came over objections from some in the community.`\
 https://nytimes.com/2024/08/12/us/sutherland-springs-church-demolition.html

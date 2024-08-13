@@ -1,3 +1,7 @@
+**Former Pro-Trump County Clerk Is Found Guilty of Tampering With Voting Machines**\
+`She could face multiple years in prison when she is sentenced in October.`\
+https://nytimes.com/2024/08/12/us/politics/tina-peters-guilty-voting-machine-tampering.html
+
 **Demolition Crew Tears Down Texas Church Where Gunman Killed 26**\
 `The move to raze the church in Sutherland Springs, which had served as a memorial to the victims of the 2017 massacre, came over objections from some in the community.`\
 https://nytimes.com/2024/08/12/us/sutherland-springs-church-demolition.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5697219/2024/08/12/jj-mccarthy-minnesota-vikings-in
 **How Amarius Mims' injury exposes mass of options for Bengals' offensive line**\
 `Though the news of Mims' injury is tough to swallow, it creates competition all across the Bengals offensive line.`\
 https://nytimes.com/athletic/5697029/2024/08/12/cincinnati-bengals-amarius-mims-injury-preseason-training-camp/
-
-**X Spaces with Trump is off to a glitchy start.**\
-`The audio livestream of a conversation between Elon Musk and the former president ran late as users scrambled to try to access the site.`\
-https://nytimes.com/2024/08/12/technology/trump-musk-x-spaces-interview.html
 
