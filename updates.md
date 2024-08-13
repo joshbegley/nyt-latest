@@ -1,3 +1,7 @@
+**The Risks of Experimenting With the Sun**\
+`Readers discuss an article about solar geoengineering. Also: Justice Neil Gorsuch; the Holocaust and A.I.; L.G.B.T.Q. tokenism; tips for travel.`\
+https://nytimes.com/2024/08/13/opinion/solar-geoengineering.html
+
 **Consumer Agency Cracks Down on Seller-Financed Home Sales**\
 `Risky contract-to-deed home sales are subject to the same protections as mortgaged-financed homes, the consumer protection agency said.`\
 https://nytimes.com/2024/08/13/business/consumer-protection-home-sales.html
