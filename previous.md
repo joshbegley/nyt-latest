@@ -1,6 +1,6 @@
 **U.A.W. files labor charges against Trump and Musk over interview.**\
-`By Tim Balk`\
-https://nytimes.com/live/2024/08/13/us/harris-trump-election/uaw-files-labor-charges-against-trump-and-musk-over-interview
+`The United Automobile Workers union accused the pair of threatening workers during their livestreamed conversation on Monday.`\
+https://nytimes.com/2024/08/13/us/politics/uaw-trump-musk-charges.html
 
 **Eagles-Patriots practice: Cooper DeJean makes an appearance, Jalen Hurts impresses, and more**\
 `Plus, Darian Kinnard takes a step up on the offensive line.`\
