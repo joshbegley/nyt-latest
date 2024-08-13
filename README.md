@@ -1,3 +1,7 @@
+**Musk’s Trump Talk: After Glitchy Start, a Two-Hour Ramble**\
+`Problems in the livestream renewed questions about X’s ability to handle big events, but it also showed how the platform can still grab attention.`\
+https://nytimes.com/2024/08/13/technology/elon-musk-x-donald-trump.html
+
 **Starbucks Names Chipotle Boss as New C.E.O.**\
 `The coffee chain said that Chipotle’s Brian Niccol would replace Laxman Narasimhan, who is leaving the company after just over a year at the helm.`\
 https://nytimes.com/2024/08/13/business/starbucks-ceo-brian-niccol-chipotle.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5697009/2024/08/13/raiders-antonio-pierce-preseason
 **RB Leipzig agree deal in principle to sign Nusa from Club Bruges**\
 `RB Leipzig have reached an agreement in principle to sign Antonio Nusa from Club Bruges.`\
 https://nytimes.com/athletic/5697827/2024/08/13/antonio-nusa-rb-leipzig-transfer/
-
-**The Athletic FC: What now for Liverpool's midfield search? Plus: The man behind a Europa League-NBA double**\
-`Liverpool are still searching for a new midfielder after Martin Zubimendi decided to stay at Real Sociedad`\
-https://nytimes.com/athletic/5697749/2024/08/13/newsletter-liverpool-midfield-zubimendi/
 
