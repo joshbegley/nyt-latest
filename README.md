@@ -1,3 +1,11 @@
+**Transfers and Pay Cuts: Pregnant Officers Accuse Border Agency of Discrimination**\
+`Under a $45 million settlement, Customs and Border Protection agreed to adjust a practice that some employees say has instilled a culture of shame and perpetuated a fear of retaliation.`\
+https://nytimes.com/2024/08/13/us/politics/customs-border-protection-pregnant-lawsuit.html
+
+**The Little Streamer That Could**\
+`Tubi has exploded in popularity over the past 18 months, outpacing some competitors with much bigger budgets.`\
+https://nytimes.com/2024/08/13/business/media/tubi-movies-tv-streaming.html
+
 **Fulham submit improved offer for Andersen**\
 `Fulham have submitted an improved offer to sign defender Joachim Andersen from Crystal Palace.`\
 https://nytimes.com/athletic/5694083/2024/08/13/joachim-andersen-fulham-crystal-palace/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/13/style/marthas-vineyard-african-american-film-fest
 **We Tested 24 Dishwasher Detergents to Find the Best**\
 `These are the three top performers.`\
 https://nytimes.com/interactive/2024/08/13/smarter-living/wirecutter/best-dishwasher-detergents.html
-
-**Giants' constant O-line shuffling in camp doesn't inspire hope problem has been fixed**\
-`The Giants' five projected starters for the season opener still have not taken a single practice rep together.`\
-https://nytimes.com/athletic/5697380/2024/08/13/new-york-giants-offensive-line-training-camp/
-
-**Palmer signs two-year Chelsea contract extension until 2033**\
-`Cole Palmer has signed a two-year contract extension at Chelsea until June 2033.`\
-https://nytimes.com/athletic/5698094/2024/08/13/cole-palmer-chelsea-new-contract/
 
