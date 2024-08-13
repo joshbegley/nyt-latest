@@ -1,3 +1,7 @@
+**Aaron Wan-Bissaka to West Ham: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate right-back Wan-Bissaka's move to West Ham from Old Trafford`\
+https://nytimes.com/athletic/5665424/2024/08/13/aaron-wan-bissaka-to-west-ham-transfer-ratings/
+
 **West Ham sign Wan-Bissaka from Man Utd**\
 `West Ham United have completed the signing of Aaron Wan-Bissaka from Manchester United.`\
 https://nytimes.com/athletic/5695555/2024/08/13/aaron-wan-bissaka-west-ham-man-utd/
