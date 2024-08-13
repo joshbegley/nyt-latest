@@ -1,3 +1,15 @@
+**Here’s the latest on the campaigns.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/08/13/us/harris-trump-election/heres-the-latest-on-the-campaigns
+
+**Live Election Updates: Trump-Musk Chat Is Heavy on Talking Points and Familiar Falsehoods**\
+`Robert F. Kennedy Jr. cannot appear on the ballot in New York, and a pro-Trump former county clerk in Colorado was found guilty of tampering with voting machines.`\
+https://nytimes.com/live/2024/08/13/us/harris-trump-election
+
+**Antonio Pierce still looking for Raiders players to build up trust — and get off blocks**\
+`Pierce also acknowledged that he made a mistake with his timeout usage at the end of Saturday's preseason loss to the Vikings.`\
+https://nytimes.com/athletic/5697009/2024/08/13/raiders-antonio-pierce-preseason-timeouts/
+
 **RB Leipzig agree deal in principle to sign Nusa from Club Bruges**\
 `RB Leipzig have reached an agreement in principle to sign Antonio Nusa from Club Bruges.`\
 https://nytimes.com/athletic/5697827/2024/08/13/antonio-nusa-rb-leipzig-transfer/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5695555/2024/08/13/aaron-wan-bissaka-west-ham-man-u
 **Cardinals takeaways: 3 things to know about Jordan Walker's promotion**\
 `Walker will start in right field against left-handed starters and come off the bench in games started by righties.`\
 https://nytimes.com/athletic/5696934/2024/08/13/cardinals-takeaways-3-things-to-know-about-jordan-walkers-promotion/
-
-**'We only want to write the cheque once' - Newcastle on stadium, training ground and sponsorship**\
-`Peter Silverstone, Newcastle’s chief commercial officer, and Brad Miller, the chief operating officer, discuss the club's long-term strategy`\
-https://nytimes.com/athletic/5697574/2024/08/13/newcastle-sponsorship-saudi-stadium/
-
-**Ravens believe in their edge rush options despite slow start to training camp**\
-`Odafe Oweh, who has been a standout in camp and is expected to be a full-time starter this season, is one reason Baltimore isn't concerned.`\
-https://nytimes.com/athletic/5697122/2024/08/13/ravens-edge-rushers-training-camp/
-
-**Broncos 53-man roster prediction: Will Zach Wilson be part of a 3-QB room?**\
-`Sean Payton has called keeping all three quarterbacks on the 53-man roster "a possibility," and Wilson has made a strong case for his spot`\
-https://nytimes.com/athletic/5695872/2024/08/13/denver-broncos-roster-prediction-zach-wilson-training-camp/
 

@@ -1,3 +1,15 @@
+**Here’s the latest on the campaigns.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/08/13/us/harris-trump-election/heres-the-latest-on-the-campaigns
+
+**Live Election Updates: Trump-Musk Chat Is Heavy on Talking Points and Familiar Falsehoods**\
+`Robert F. Kennedy Jr. cannot appear on the ballot in New York, and a pro-Trump former county clerk in Colorado was found guilty of tampering with voting machines.`\
+https://nytimes.com/live/2024/08/13/us/harris-trump-election
+
+**Antonio Pierce still looking for Raiders players to build up trust — and get off blocks**\
+`Pierce also acknowledged that he made a mistake with his timeout usage at the end of Saturday's preseason loss to the Vikings.`\
+https://nytimes.com/athletic/5697009/2024/08/13/raiders-antonio-pierce-preseason-timeouts/
+
 **RB Leipzig agree deal in principle to sign Nusa from Club Bruges**\
 `RB Leipzig have reached an agreement in principle to sign Antonio Nusa from Club Bruges.`\
 https://nytimes.com/athletic/5697827/2024/08/13/antonio-nusa-rb-leipzig-transfer/
