@@ -1,3 +1,7 @@
+**Parts of Canada’s Boreal Forest Are Burning Faster Than They Can Regrow**\
+`The delicate balance of one the planet’s largest natural systems for storing carbon depends on the humble black spruce tree.`\
+https://nytimes.com/interactive/2024/08/12/climate/canada-wildfires.html
+
 **Cutting Jarren Duran some slack ceases to be option. He needs to lose T-shirt and grow up**\
 `On a day Duran needed to show contrition and try to make things right for his homophobic slur, it was hard to get past “(Expletive) ‘Em."`\
 https://nytimes.com/athletic/5697132/2024/08/12/jarren-duran-slur-boston-red-sox/
