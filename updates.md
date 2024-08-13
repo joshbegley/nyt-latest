@@ -1,3 +1,7 @@
+**Remco Evenepoel - My Golds In My Words**\
+`The first male cyclist to win both the time trial and the road race at the Olympics explains how he did it and what it means to Belgium`\
+https://nytimes.com/athletic/5696235/2024/08/13/remco-evenepoel-how-he-won-olympic-golds/
+
 **Why the Bears are excited about WRs coach Chris Beatty: 'He makes people better'**\
 `Get to know Beatty, whose connections to DJ Moore and Keenan Allen should only help the Bears' talented receivers room.`\
 https://nytimes.com/athletic/5696007/2024/08/13/bears-chris-beatty-dj-moore-keenan-allen/
