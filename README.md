@@ -1,3 +1,19 @@
+**Is this Arda Guler's time to shine? Real Madrid are cautiously optimistic**\
+`Guler missed 145 days of action last season after a series of injury setbacks. But he's a changed player now`\
+https://nytimes.com/athletic/5695571/2024/08/13/arda-guler-real-madrid-turkey/
+
+**The numbers that prove Great Britain is enjoying its strongest era in athletics since the 1980s**\
+`10 medals and eight national records was an impressive outcome — the ultimate test now is if Britain can sustain and build on this success`\
+https://nytimes.com/athletic/5694015/2024/08/13/team-gb-paris-olympics-golden-generation/
+
+**Lost Grounds: The first wave of stadiums replaced - and what remains of them**\
+`They were the hearts of their communities but are now long gone. Richard Sutcliffe goes in search of the Football League's 'ghost' grounds`\
+https://nytimes.com/athletic/5577863/2024/08/13/lost-grouds-stadiums-replaced/
+
+**Ipswich - a tactical guide: How will the EFL's relentless entertainers get on in the Premier League?**\
+`How will only the fifth team in the Premier League era to jump from the third tier to the top flight in successive seasons perform?`\
+https://nytimes.com/athletic/5690994/2024/08/13/ipswich-town-tactical-guide-premier-league/
+
 **The Football Scientist's overvalued ADPs: Derrick Henry, Marvin Harrison Jr. and more**\
 `KC Joyner weighs his advanced metric-driven rankings vs. current ADP values to find players, like Marvin Harrison Jr., who are too pricey. `\
 https://nytimes.com/athletic/5697448/2024/08/13/overvalued-players-adp-2024-fantasy-football/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5696797/2024/08/13/mlb-odds-best-bets-projections-a
 **Can This Tiny Economy Show Europe How to Compete Again?**\
 `Sweden outperforms in tech, has a roster of $1 billion-plus start-ups and could be a model as the European Union refigures its growth policies.`\
 https://nytimes.com/2024/08/13/business/sweden-economy-europe-competitiveness.html
-
-**Tuesday Briefing**\
-`Russia’s response to a Ukrainian incursion.`\
-https://nytimes.com/2024/08/12/briefing/russia-ukraine-israel-trump-musk.html
-
-**Deion Smith to join Ole Miss for practice after compliance delay**\
-`The 6-foot-3, 190-pound Smith spent the 2023 season playing for Holmes Community College in Mississippi.`\
-https://nytimes.com/athletic/5697411/2024/08/12/deion-smith-ole-miss-transfers-lane-kiffin/
-
-**Shota Imanaga, Ben Brown and the missed opportunities stacking up for the Cubs**\
-`This looks like a team with enough competence to play meaningful games in September, but not enough consistency in all phases to break away.`\
-https://nytimes.com/athletic/5697423/2024/08/12/cubs-shota-imanaga-missed-opportunities/
-
-**Summertime strains: 49ers' fast-paced practices taking a toll on the roster**\
-`The 49ers got more bad injury news on Monday: Defensive tackle Kalia Davis will miss perhaps half the season with a knee issue.`\
-https://nytimes.com/athletic/5697234/2024/08/12/49ers-training-camp-injuries-kalia-davis/
 
