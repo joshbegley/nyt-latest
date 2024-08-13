@@ -1,3 +1,7 @@
+**De Ligt completes move to Manchester United**\
+`Manchester United have completed the signing of Matthijs de Ligt from Bayern Munich.`\
+https://nytimes.com/athletic/5601242/2024/08/13/manchester-united-sign-matthijs-de-ligt/
+
 **Ream targeting 2026 World Cup after signing for Charlotte FC**\
 `Tim Ream is targeting a place in the USMNT squad for the 2026 World Cup after completing his return to the MLS with Charlotte FC.`\
 https://nytimes.com/athletic/5698901/2024/08/13/tim-ream-world-cup-2026-usmnt/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5698805/2024/08/13/luke-shaw-manchester-united-inju
 **What we know about Jordan Chiles' Olympic bronze medal case and what comes next**\
 `Here’s everything we know about the floor exercise bronze medal situation so far and what could come next.`\
 https://nytimes.com/athletic/5698724/2024/08/13/jordan-chiles-olympic-gymnastics-bronze-medal-faq/
-
-**Seven People Charged After Breaking Into Israeli Arms Company’s U.K. Site**\
-`Prosecutors argued in court that a group of pro-Palestinian activists who vandalized a site belonging to Elbit, an Israeli arms manufacturer, had committed offenses with a “terrorist connection.”`\
-https://nytimes.com/2024/08/13/world/europe/israeli-arms-company-break-in.html
 
