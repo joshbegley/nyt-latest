@@ -1,3 +1,7 @@
+**Word of the Day: centennial**\
+`This word has appeared in 125 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/13/learning/word-of-the-day-centennial.html
+
 **Yankees downplay inexcusable loss to MLB-worst White Sox: 'I just think it's a normal day'**\
 `The Yankees failed to capitalize with runners in scoring position in a 12-2 loss to the White Sox.`\
 https://nytimes.com/athletic/5697358/2024/08/13/yankees-inexcusable-loss-white-sox/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5691125/2024/08/13/crystal-palace-glasner-preseason
 **Alvarez's departure from Manchester City has elicited mere shrugs - but is that fair?**\
 `The Argentinian was a valuable asset for the club and always stepped up when needed yet there is very little emotion as he leaves for Spain`\
 https://nytimes.com/athletic/5696306/2024/08/13/julian-alvarez-manchester-city-departure/
-
-**Chelsea season preview: James with a point to prove along with defence, what is the best XI?**\
-`The summer and pre-season have seen Chelsea all over the news again — and friendly defeats show Maresca has his work cut out`\
-https://nytimes.com/athletic/5682611/2024/08/13/chelsea-reece-james-defence/
 
