@@ -1,3 +1,7 @@
+**Giants' constant O-line shuffling in camp doesn't inspire hope problem has been fixed**\
+`The Giants' five projected starters for the season opener still have not taken a single practice rep together.`\
+https://nytimes.com/athletic/5697380/2024/08/13/new-york-giants-offensive-line-training-camp/
+
 **Palmer signs two-year Chelsea contract extension**\
 `Cole Palmer has signed a two-year contract extension at Chelsea until June 2033.`\
 https://nytimes.com/athletic/5698094/2024/08/13/cole-palmer-chelsea-new-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/13/business/starbucks-ceo-brian-niccol-chipotle.html
 **‘My Descent Into the True Crime Rabbit Hole’: The Week 8 Winner of Our Summer Reading Contest**\
 `Hayne Kim, 16, writes about how an essay in the Times Opinion section made her rethink her binge-watch habits.`\
 https://nytimes.com/2024/08/13/learning/my-descent-into-the-true-crime-rabbit-hole-the-week-8-winner-of-our-summer-reading-contest.html
-
-**Suffocating standoff: Giants lose in 10th after Blake Snell, Chris Sale dominate**\
-`It wouldn't be reckless to categorize Monday night's game as one of the greatest pitching duels in seven decades of MLB in San Francisco.`\
-https://nytimes.com/athletic/5697714/2024/08/13/giants-lose-blake-snell-chris-sale/
 
