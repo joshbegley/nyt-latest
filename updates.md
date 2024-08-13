@@ -1,3 +1,7 @@
+**Hamas sends a signal that a breakthrough is unlikely in negotiations.**\
+`By Adam Rasgon and Hwaida Saad`\
+https://nytimes.com/live/2024/08/13/world/israel-iran-hamas-gaza-war/hamas-sends-the-signal-a-breakthrough-is-unlikely-in-negotiations
+
 **The Democratic Convention Party Scene Is Taking Shape**\
 `John Legend is set to headline one of the week’s biggest events so far — a bash by Gov. J.B. Pritzker of Illinois — but despite speculation, there’s no sign yet of Beyoncé or Taylor Swift in Chicago.`\
 https://nytimes.com/2024/08/13/us/politics/dnc-john-legend.html
