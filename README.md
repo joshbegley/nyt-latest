@@ -1,3 +1,7 @@
+**WCBS Radio, the Soundtrack of Countless Cab Rides, Goes Quiet**\
+`The news radio mainstay is turning its airwaves over to ESPN, ending its continuous coverage of the five boroughs. The Mets broadcasts will remain.`\
+https://nytimes.com/2024/08/13/nyregion/wcbs-880-radio-closing-espn.html
+
 **Wednesday Briefing: Hamas Will Skip Upcoming Talks**\
 `Plus, in Russian territory captured by Ukraine.`\
 https://nytimes.com/2024/08/13/briefing/hamas-netanyahu-ukraine-incursion-russia-abortion.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/13/us/politics/dnc-john-legend.html
 **Recent Voter Registration Data Offers Hint of Enthusiasm for Democrats**\
 `Two swing states have seen a boost in Democratic sign-ups since Kamala Harris entered the race.`\
 https://nytimes.com/2024/08/13/upshot/democrats-voter-registration.html
-
-**Ohio Officer Is Charged With Murder in Shooting of Pregnant Black Woman**\
-`Connor Grubb, 29, of the Blendon Township Police Department faces multiple charges in the fatal shooting of Ta’Kiya Young, 21, who was shot in her car outside a Kroger last year after being accused of theft.`\
-https://nytimes.com/2024/08/13/us/ohio-officer-takiya-young-murder.html
 
