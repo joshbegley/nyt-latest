@@ -1,3 +1,11 @@
+**RB Leipzig agree deal in principle to sign Nusa from Club Bruges**\
+`RB Leipzig have reached an agreement in principle to sign Antonio Nusa from Club Bruges.`\
+https://nytimes.com/athletic/5697827/2024/08/13/antonio-nusa-rb-leipzig-transfer/
+
+**The Athletic FC: What now for Liverpool's midfield search? Plus: The man behind a Europa League-NBA double**\
+`Liverpool are still searching for a new midfielder after Martin Zubimendi decided to stay at Real Sociedad`\
+https://nytimes.com/athletic/5697749/2024/08/13/newsletter-liverpool-midfield-zubimendi/
+
 **Barcelona fans: What do you want to know before this La Liga season?**\
 `Send in your questions for our Barcelona experts before the start of the new La Liga season`\
 https://nytimes.com/athletic/5697702/2024/08/13/barcelona-la-liga-start-questions/
