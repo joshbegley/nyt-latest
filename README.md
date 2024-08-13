@@ -1,3 +1,11 @@
+**X Spaces with Trump is off to a glitchy start.**\
+`The audio livestream of a conversation between Elon Musk and the former president ran late as users scrambled to try to access the site.`\
+https://nytimes.com/2024/08/12/technology/trump-musk-x-spaces-interview.html
+
+**Trump Flew on Charter Jet Previously Owned by Jeffrey Epstein**\
+`A Trump campaign official said that the aircraft was provided by a charter jet service after his own jet had a mechanical failure, and that the campaign had been unaware of the plane’s previous ownership.`\
+https://nytimes.com/2024/08/12/us/politics/trump-charter-jet-jeffrey-epstein.html
+
 **Rachael Lillis, Who Voiced Popular ‘Pokémon’ Characters, Dies at 55**\
 `Ms. Lillis voiced the characters of Misty and Jessie in the animated series based on a video game. She was diagnosed with breast cancer in May.`\
 https://nytimes.com/2024/08/12/arts/television/rachael-lillis-dead.html
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/5697106/2024/08/12/submit-a-question-for-stewart-ma
 **Auston Matthews to be named Maple Leafs captain, taking over from John Tavares**\
 `Auston Matthews is set to become the next captain of the Toronto Maple Leafs, taking over the team’s top leadership role from teammate John Tavares, according to multiple sources familiar with the decision.`\
 https://nytimes.com/athletic/5697101/2024/08/12/auston-matthews-maple-leafs-captain/
-
-**2 Are Charged in Rape and Assault Under Coney Island Boardwalk**\
-`One suspect had been released from jail in June after he pleaded guilty to sexual assault in an attack on a woman in a Brooklyn migrant shelter.`\
-https://nytimes.com/2024/08/12/nyregion/rape-assault-coney-island-boardwalk.html
-
-**Netanyahu Clashes With Defense Minister on Gaza, Exposing Schisms**\
-`Prime Minister Benjamin Netanyahu accused Yoav Gallant of embracing an “anti-Israel narrative” in a disagreement over how to prosecute the war.`\
-https://nytimes.com/2024/08/12/world/middleeast/netanyahu-gallant-israel-gaza-war.html
 
