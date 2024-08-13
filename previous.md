@@ -1,8 +1,12 @@
+**Tuesday Briefing**\
+`Russia’s response to a Ukrainian incursion.`\
+https://nytimes.com/2024/08/12/briefing/russia-ukraine-israel-trump-musk.html
+
 **Deion Smith to join Ole Miss for practice after compliance delay**\
 `The 6-foot-3, 190-pound Smith spent the 2023 season playing for Holmes Community College in Mississippi.`\
 https://nytimes.com/athletic/5697411/2024/08/12/deion-smith-ole-miss-transfers-lane-kiffin/
 
-**Shota Imanaga, Ben Brown and the missed opportunities stacking up for the Chicago Cubs**\
+**Shota Imanaga, Ben Brown and the missed opportunities stacking up for the Cubs**\
 `This looks like a team with enough competence to play meaningful games in September, but not enough consistency in all phases to break away.`\
 https://nytimes.com/athletic/5697423/2024/08/12/cubs-shota-imanaga-missed-opportunities/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/12/us/giant-tortoise-escape-arizona.html
 **Sutton Foster and Michael Urie Reunite in the Zany ‘Once Upon a Mattress’**\
 `The hit Encores! production has transferred to Broadway, with a cast fiercely dedicated to entertaining its audience.`\
 https://nytimes.com/2024/08/12/theater/once-upon-a-mattress-review.html
-
-**Mookie Betts is back, and more 'tough decisions' are coming for the Dodgers**\
-`Betts homered in his first game back as he returned to the familiar position of right field: "I'll be ready for whatever."`\
-https://nytimes.com/athletic/5697280/2024/08/12/dodgers-mookie-betts-amed-rosario/
 
