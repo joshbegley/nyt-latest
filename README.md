@@ -1,3 +1,7 @@
+**Donald Trump plans to meet with Miriam Adelson after his aide sent her angry texts in his name.**\
+`Tru`\
+https://nytimes.com/live/2024/08/13/us/harris-trump-election/trump-miriam-adelson
+
 **Trucking Company Owner Pleads Guilty in Wreck That Killed 7 Bikers**\
 `Dunyadar Gasanov admitted he had lied to investigators about how long he had known the driver of the truck and altered drivers’ logs to evade federal regulations.`\
 https://nytimes.com/2024/08/13/us/westfield-trucking-owner-guilty-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/13/science/crocodiles-cane-toads-bait-australia.html
 **Naftali Bennett Needs to Topple Two Regimes**\
 `The former prime minister sees Israel threatened by Netanyahu and Iran.`\
 https://nytimes.com/2024/08/13/opinion/israel-iran-bennett-netanyahu.html
-
-**Let Jordan Chiles Keep Her Bronze Medal**\
-`But give the Romanians medals, too.`\
-https://nytimes.com/live/2024/08/13/opinion/thepoint/jordan-chiles-bronze-medal
 
