@@ -1,3 +1,7 @@
+**Arizona and Missouri Will Vote on Abortion in November**\
+`Also, Hamas said it would not participate in new truce talks. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/08/13/briefing/arizona-missouri-abortion-measures-cease-fire-talks.html
+
 **Mourinho - Fenerbahce would 'never' have reached Champions League final**\
 `Jose Mourinho claims Fenerbahce would &#8220;never&#8221; have had a chance of winning the Champions League or making the final after they lost their third qualifying round against Lille.`\
 https://nytimes.com/athletic/5699321/2024/08/13/jose-mourinho-fenerbahce-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/13/arts/music/richard-lugner-celebrities-vienna-oper
 **Jordan Love working on the deep ball and more from Packers camp**\
 `The Packers practice twice in Green Bay this week before flying to Denver for joint practice with the Broncos on Friday.`\
 https://nytimes.com/athletic/5698853/2024/08/13/jordan-love-packers-training-camp/
-
-**The Democratic Convention Party Scene Is Taking Shape**\
-`John Legend is set to headline one of the week’s biggest events so far — a bash by Gov. J.B. Pritzker of Illinois — but despite speculation, there’s no sign yet of Beyoncé or Taylor Swift in Chicago.`\
-https://nytimes.com/2024/08/13/us/politics/dnc-john-legend.html
 
