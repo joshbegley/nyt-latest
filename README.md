@@ -26,7 +26,7 @@ https://nytimes.com/athletic/5697380/2024/08/13/new-york-giants-offensive-line-t
 `Cole Palmer has signed a two-year contract extension at Chelsea until June 2033.`\
 https://nytimes.com/athletic/5698094/2024/08/13/cole-palmer-chelsea-new-contract/
 
-**Blues sign Oilers' Dylan Holloway, Philip Broberg to offer sheets**\
+**Blues sign Oilers' Broberg, Holloway to offer sheets**\
 `The Blues have tendered offer sheets to Edmonton's Philip Broberg and Dylan Holloway. The Oilers have a week to match. `\
 https://nytimes.com/athletic/5698081/2024/08/13/blues-dylan-holloway-philip-broberg-oilers/
 
