@@ -1,3 +1,7 @@
+**Demolition Crew Tears Down Texas Church Where Gunman Killed 26**\
+`The move to raze the church in Sutherland Springs, which had served as a memorial to the victims of the 2017 massacre, came over objections from some in the community.`\
+https://nytimes.com/2024/08/12/us/sutherland-springs-church-demolition.html
+
 **Police Nab Fugitive Tortoise on Slow Run to Freedom**\
 `Arizona state troopers rescued Stitch, the giant sulcata tortoise, from an interstate highway after it escaped from its enclosure at a ranch.`\
 https://nytimes.com/2024/08/12/us/giant-tortoise-escape-arizona.html
