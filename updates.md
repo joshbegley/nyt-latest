@@ -1,3 +1,7 @@
+**Who Is Brian Niccol, the Incoming Starbucks C.E.O. From Chipotle?**\
+`Mr. Niccol, whom the coffee chain poached from Chipotle, has emerged in recent years as a top leader in the restaurant industry.`\
+https://nytimes.com/2024/08/13/business/brian-niccol-starbucks-chipotle.html
+
 **Arsenal ban 24 fans for abusive and discriminatory behaviour**\
 `Arsenal have banned 24 supporters for abusive and discriminatory behaviour during the 2023-24 season.`\
 https://nytimes.com/athletic/5698600/2024/08/13/arsenal-supporters-ban-abuse-discrimination/

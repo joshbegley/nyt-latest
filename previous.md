@@ -1,3 +1,7 @@
+**Who Is Brian Niccol, the Incoming Starbucks C.E.O. From Chipotle?**\
+`Mr. Niccol, whom the coffee chain poached from Chipotle, has emerged in recent years as a top leader in the restaurant industry.`\
+https://nytimes.com/2024/08/13/business/brian-niccol-starbucks-chipotle.html
+
 **Arsenal ban 24 fans for abusive and discriminatory behaviour**\
 `Arsenal have banned 24 supporters for abusive and discriminatory behaviour during the 2023-24 season.`\
 https://nytimes.com/athletic/5698600/2024/08/13/arsenal-supporters-ban-abuse-discrimination/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/13/dining/nizuc-mexico-city-food.html
 **Google Debuts A.I.-Powered Phones in Latest Attempt to Best the iPhone**\
 `The internet giant unveiled the next generation of Pixel phones, headphones and watches to stand out in a hardware market that has mostly ignored it.`\
 https://nytimes.com/2024/08/13/technology/google-pixel-9.html
-
-**It’s Week Two of Our August Grilling Challenge**\
-`This week: the recipes (cucumber-avocado salad, ranch water) and gear (chic tumblers, mosquito repellent) you need to throw a crazy-good cookout.`\
-https://nytimes.com/2024/08/13/dining/its-week-two-of-our-august-grilling-challenge.html
 
