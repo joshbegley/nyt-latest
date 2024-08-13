@@ -1,3 +1,7 @@
+**'Kids' help reeling and depleted Red Sox gain walk-off win in extra innings**\
+`Gasper, a native of New Hampshire, had been to many games at Fenway Park, but none at home plate in the bottom of the 10th in a tie game.`\
+https://nytimes.com/athletic/5697471/2024/08/13/mickey-gasper-red-sox-walk-off-win/
+
 **The West Clearly Doesn’t Want to Defeat Putin**\
 `Victory in Ukraine is now within Russia’s reach.`\
 https://nytimes.com/2024/08/13/opinion/russia-ukraine-west-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5686688/2024/08/13/leicester-city-season-preview-co
 **Midfield conundrum and spoilt for choice in attack - what is Brighton's best starting XI?**\
 `A look at Brighton's options in each position and which players are likely to get the nod at the start of the 2024-25 Premier League season`\
 https://nytimes.com/athletic/5695523/2024/08/13/what-is-brightons-best-team/
-
-**Arsenal season preview: Timber's return, the promise of youth and aiming for 90-plus points**\
-`Are Arsenal better placed this season to challenge for the title and what should fans look out for?`\
-https://nytimes.com/athletic/5684106/2024/08/13/arsenal-season-preview-timber-arteta-title/
 

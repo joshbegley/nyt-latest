@@ -1,3 +1,7 @@
+**'Kids' help reeling and depleted Red Sox gain walk-off win in extra innings**\
+`Gasper, a native of New Hampshire, had been to many games at Fenway Park, but none at home plate in the bottom of the 10th in a tie game.`\
+https://nytimes.com/athletic/5697471/2024/08/13/mickey-gasper-red-sox-walk-off-win/
+
 **The West Clearly Doesn’t Want to Defeat Putin**\
 `Victory in Ukraine is now within Russia’s reach.`\
 https://nytimes.com/2024/08/13/opinion/russia-ukraine-west-war.html
