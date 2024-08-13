@@ -1,3 +1,15 @@
+**Yankees downplay inexcusable loss to MLB-worst White Sox: 'I just think it's a normal day'**\
+`The Yankees failed to capitalize with runners in scoring position in a 12-2 loss to the White Sox.`\
+https://nytimes.com/athletic/5697358/2024/08/13/yankees-inexcusable-loss-white-sox/
+
+**Late Night Tackles Trump’s Obsession With Crowd Size**\
+`“The fact that Kamala Harris is pulling such huge crowds is really getting under his, let’s call it, skin,” Stephen Colbert said of former President Donald Trump.`\
+https://nytimes.com/2024/08/13/arts/television/late-night-trump-rally-crowd-size.html
+
+**Where Students Run the Streets: Bangladesh in Limbo**\
+`The youth who brought down an autocrat are now cabinet ministers and traffic cops, trying to restore order and chart a new future for a nation of 170 million.`\
+https://nytimes.com/2024/08/13/world/asia/bangladesh-students-protests.html
+
 **'Kids' help reeling and depleted Red Sox gain walk-off win in extra innings**\
 `Gasper, a native of New Hampshire, had been to many games at Fenway Park, but none at home plate in the bottom of the 10th in a tie game.`\
 https://nytimes.com/athletic/5697471/2024/08/13/mickey-gasper-red-sox-walk-off-win/
