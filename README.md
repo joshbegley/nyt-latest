@@ -1,3 +1,15 @@
+**Progressive Coalition Shifts $25 Million Campaign to Back Kamala Harris**\
+`The groups are building a voter outreach effort around a unified message from the left targeting Democrats and independents in battleground states.`\
+https://nytimes.com/2024/08/13/us/politics/kamala-harris-progressive-ad-campaign.html
+
+**Until Saturday: Is the preseason No. 1 team cursed? Who has toughest travel?**\
+`Welcome to Until Saturday, the five-star college football newsletter: Breaking down the AP poll and who faces the toughest travel this year.`\
+https://nytimes.com/athletic/5697902/2024/08/13/texas-football-ap-poll-college-football-travel-until-saturday/
+
+**How Kamala Harris Found Her Footing in the Spotlight**\
+`The vice president long had a reputation as an uneven political messenger prone to missteps. That has steadily been changing.`\
+https://nytimes.com/interactive/2024/08/13/us/politics/kamala-harris-presence-videos.html
+
 **Who Is Brian Niccol, the Incoming Starbucks C.E.O. From Chipotle?**\
 `Mr. Niccol, whom the coffee chain poached from Chipotle, has emerged in recent years as a top leader in the restaurant industry.`\
 https://nytimes.com/2024/08/13/business/brian-niccol-starbucks-chipotle.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5698459/2024/08/13/college-football-roster-limits-g
 **Alexei Popyrin's Montreal Masters title and the simplicity of seizing a tennis moment**\
 `The Australian's first ATP 1000 title offers plenty of tempting narratives, but none of them mean more than the simplest one`\
 https://nytimes.com/athletic/5697792/2024/08/13/alexei-popyrin-montreal-masters-title/
-
-**9 Things Musk and Trump Said About Climate Change, Annotated**\
-`In a conversation on X, Donald J. Trump and Elon Musk spoke for a bit about climate change. Here’s what they got wrong and what they got right.`\
-https://nytimes.com/2024/08/13/climate/elon-musk-trump-climate.html
-
-**Nizuc Brings a Mexico City-Inspired Spread to a Sprawling Space**\
-`Costa serves Mediterranean on the Upper East Side, Lucky’s Steakhouse opens a location in NoLIta and more.`\
-https://nytimes.com/2024/08/13/dining/nizuc-mexico-city-food.html
-
-**Google Debuts A.I.-Powered Phones in Latest Attempt to Best the iPhone**\
-`The internet giant unveiled the next generation of Pixel phones, headphones and watches to stand out in a hardware market that has mostly ignored it.`\
-https://nytimes.com/2024/08/13/technology/google-pixel-9.html
 
