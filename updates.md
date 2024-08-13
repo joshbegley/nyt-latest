@@ -1,3 +1,7 @@
+**Ohio Officer Is Charged With Murder in Shooting of Pregnant Black Woman**\
+`Connor Grubb, 29, of the Blendon Township Police Department faces multiple charges in the fatal shooting of Ta’Kiya Young, 21, who was shot in her car outside a Kroger last year after being accused of theft.`\
+https://nytimes.com/2024/08/13/us/ohio-officer-takiya-young-murder.html
+
 **Hamas sends the signal a breakthrough is unlikely in negotiations.**\
 `By Adam Rasgon and Hwaida Saad`\
 https://nytimes.com/live/2024/08/13/world/israel-iran-hamas-gaza-war/hamas-sends-the-signal-a-breakthrough-is-unlikely-in-negotiations
