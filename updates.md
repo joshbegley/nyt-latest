@@ -1,3 +1,7 @@
+**Consumer Agency Cracks Down on Seller-Financed Home Sales**\
+`Risky contract-to-deed home sales are subject to the same protections as mortgaged-financed homes, the consumer protection agency said.`\
+https://nytimes.com/2024/08/13/business/consumer-protection-home-sales.html
+
 **The police say a man broke into a Trump campaign office in Virginia.**\
 `By Tim Balk`\
 https://nytimes.com/live/2024/08/13/us/harris-trump-election/the-police-say-a-man-broke-into-a-trump-campaign-office-in-virginia
