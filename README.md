@@ -1,3 +1,11 @@
+**Barcelona fans: What do you want to know before this La Liga season?**\
+`Send in your questions for our Barcelona experts before the start of the new La Liga season`\
+https://nytimes.com/athletic/5697702/2024/08/13/barcelona-la-liga-start-questions/
+
+**Real Madrid fans: What do you want to know before this La Liga season?**\
+`Send in your questions for our Real Madrid expert before the start of the new La Liga season`\
+https://nytimes.com/athletic/5697742/2024/08/13/real-madrid-fans-what-do-you-want-to-know-before-this-la-liga-season/
+
 **Aaron Wan-Bissaka to West Ham: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate right-back Wan-Bissaka's move to West Ham from Old Trafford`\
 https://nytimes.com/athletic/5665424/2024/08/13/aaron-wan-bissaka-to-west-ham-transfer-ratings/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/13/science/walrus-fossil.html
 **The Pulse: Post-Olympics superteam?**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5696783/2024/08/13/steph-curry-lebron-james-superteam-olympics-the-pulse/
-
-**Ukraine’s Surprise Attack**\
-`We explore why Ukraine is trying a new tactic two years into a stalemate with Russia.`\
-https://nytimes.com/2024/08/13/briefing/ukraine-russia-war-incursion.html
-
-**Why the Bears are excited about WRs coach Chris Beatty: 'He makes people better'**\
-`Get to know Beatty, whose connections to DJ Moore and Keenan Allen should only help the Bears' talented receivers room.`\
-https://nytimes.com/athletic/5696007/2024/08/13/bears-chris-beatty-dj-moore-keenan-allen/
 
