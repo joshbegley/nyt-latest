@@ -1,3 +1,7 @@
+**W.N.B.A. Star Takes Over Voting Organization Started by LeBron James**\
+`Nneka Ogwumike, a nine-time All-Star, will lead More Than a Vote, which will focus on women’s reproductive rights this election cycle.`\
+https://nytimes.com/2024/08/13/business/nneka-ogwumike-more-than-a-vote.html
+
 **Why Ipswich have changed a TV camera angle for the Premier League**\
 `As part of their preparations for life in the top flight, Ipswich have repositioned all of their TV camera stations by building a new gantry`\
 https://nytimes.com/athletic/5697934/2024/08/13/ipswich-television-camera-position-explained/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/13/business/dealbook/starbucks-ceo-out-laxman-narasi
 **Paramount Lays Off 15 Percent of U.S. Employees**\
 `The company is cutting staff ahead of its merger next year with the Hollywood studio Skydance.`\
 https://nytimes.com/2024/08/13/business/paramount-layoffs-skydance.html
-
-**Here’s the latest on the campaigns.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/08/13/us/harris-trump-election/heres-the-latest-on-the-campaigns
 
