@@ -1,3 +1,11 @@
+**What to Know About Ukraine’s Cross-Border Assault Into Russia**\
+`The incursion caught Russia by surprise and signified a shift in tactics for Kyiv after more than two years of war with Russia.`\
+https://nytimes.com/2024/08/13/world/europe/ukraine-russia-kursk-incursion-war.html
+
+**Fires Near Athens Leave a Path of Destruction**\
+`The Greek authorities said the threat posed by the blazes had lessened as of Tuesday, thanks in part to an overnight lull in the strong winds. But the risk remained.`\
+https://nytimes.com/2024/08/13/world/europe/athens-greece-fires.html
+
 **Musk’s Trump Talk: After Glitchy Start, a Two-Hour Ramble**\
 `Problems in the livestream renewed questions about X’s ability to handle big events, but it also showed how the platform can still grab attention.`\
 https://nytimes.com/2024/08/13/technology/elon-musk-x-donald-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/08/13/us/harris-trump-election/heres-the-latest-on
 **Live Election Updates: Trump-Musk Chat Is Heavy on Talking Points and Familiar Falsehoods**\
 `Robert F. Kennedy Jr. cannot appear on the ballot in New York, and a pro-Trump former county clerk in Colorado was found guilty of tampering with voting machines.`\
 https://nytimes.com/live/2024/08/13/us/harris-trump-election
-
-**Antonio Pierce still looking for Raiders players to build up trust — and get off blocks**\
-`Pierce also acknowledged that he made a mistake with his timeout usage at the end of Saturday's preseason loss to the Vikings.`\
-https://nytimes.com/athletic/5697009/2024/08/13/raiders-antonio-pierce-preseason-timeouts/
-
-**RB Leipzig agree deal in principle to sign Nusa from Club Bruges**\
-`RB Leipzig have reached an agreement in principle to sign Antonio Nusa from Club Bruges.`\
-https://nytimes.com/athletic/5697827/2024/08/13/antonio-nusa-rb-leipzig-transfer/
 
