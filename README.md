@@ -1,3 +1,7 @@
+**Sam Rosen, voice of the Rangers, to retire after 2024-25 season**\
+`In 2016, Rosen was named the Foster Hewitt Memorial Award winner, earning him a place in the Hockey Hall of Fame.`\
+https://nytimes.com/athletic/5698415/2024/08/13/rangers-announcer-sam-rosen-retiring/
+
 **Manchester United's Matthijs de Ligt has time on his side to fulfil his prodigious talent**\
 `Matthijs de Ligt has been reunited with Erik ten Hag, who once said he expected him to "soon be number one in this position"`\
 https://nytimes.com/athletic/5698945/2024/08/13/manchester-united-matthijs-de-ligt-profile/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5601242/2024/08/13/manchester-united-sign-matthijs-
 **Ream targeting 2026 World Cup after signing for Charlotte FC**\
 `Tim Ream is targeting a place in the USMNT squad for the 2026 World Cup after completing his return to the MLS with Charlotte FC.`\
 https://nytimes.com/athletic/5698901/2024/08/13/tim-ream-world-cup-2026-usmnt/
-
-**Tanzania Arrests 520 People in Mass Opposition Crackdown**\
-`The clampdown came after the police banned a youth rally and pointed to the anti-government protests that have swept neighboring Kenya in recent months.`\
-https://nytimes.com/2024/08/13/world/africa/tanzania-arrests-520-people-crackdown.html
 
