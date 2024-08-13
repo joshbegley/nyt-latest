@@ -1,3 +1,7 @@
+**Paramount Lays Off 15 Percent of U.S. Employees**\
+`The company is cutting staff ahead of its merger next year with the Hollywood studio Skydance.`\
+https://nytimes.com/2024/08/13/business/paramount-layoffs-skydance.html
+
 **Here’s the latest on the campaigns.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/08/13/us/harris-trump-election/heres-the-latest-on-the-campaigns
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5665424/2024/08/13/aaron-wan-bissaka-to-west-ham-tr
 **West Ham sign Wan-Bissaka from Man Utd**\
 `West Ham United have completed the signing of Aaron Wan-Bissaka from Manchester United.`\
 https://nytimes.com/athletic/5695555/2024/08/13/aaron-wan-bissaka-west-ham-man-utd/
-
-**Cardinals takeaways: 3 things to know about Jordan Walker's promotion**\
-`Walker will start in right field against left-handed starters and come off the bench in games started by righties.`\
-https://nytimes.com/athletic/5696934/2024/08/13/cardinals-takeaways-3-things-to-know-about-jordan-walkers-promotion/
 
