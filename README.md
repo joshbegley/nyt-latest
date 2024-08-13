@@ -1,3 +1,11 @@
+**3 Video Games of the Summer**\
+`Wondering what video game to play next? Zachary Small, a culture reporter at The New York Times, recommends three of the best games of the summer.`\
+https://nytimes.com/video/arts/100000009619117/3-video-games-of-the-summer.html
+
+**Arizona Will Vote on Abortion in November: Could That Give Democrats an Edge?**\
+`The battleground state will vote on establishing abortion rights in the state constitution. Democrats have used the issue to turn out voters all over the country.`\
+https://nytimes.com/2024/08/13/us/arizona-abortion-rights-ballot-november.html
+
 **Araujo joins Bournemouth from Barcelona**\
 `AFC Bournemouth have completed the signing of Julian Araujo from Barcelona.`\
 https://nytimes.com/athletic/5698263/2024/08/13/bournemouth-sign-julian-araujo/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/13/arts/design/imani-jacqueline-brown-storefront-art
 **Ali Slagle’s School for Zucchini Skeptics**\
 `Five weeknight dinners — like vegetable korma, turkey burgers and yakitori-style skewers — to convert the zucchini-avoidant.`\
 https://nytimes.com/2024/08/13/dining/zucchini-recipes.html
-
-**The Windup: Four playoff teams from one division?**\
-`The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/5698236/2024/08/13/mlb-playoffs-standings-national-league-the-windup/
-
-**Scoop City: Nine fantasy late-rounders to watch.**\
-`A look at nine players to watch closely this preseason.`\
-https://nytimes.com/athletic/5698241/2024/08/13/fantasy-football-late-rounders-scoop-city/
 
