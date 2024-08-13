@@ -1,3 +1,11 @@
+**‘My Descent Into the True Crime Rabbit Hole’: The Week 8 Winner of Our Summer Reading Contest**\
+`Hayne Kim, 16, writes about how an essay in the Times Opinion section made her rethink her binge-watch habits.`\
+https://nytimes.com/2024/08/13/learning/my-descent-into-the-true-crime-rabbit-hole-the-week-8-winner-of-our-summer-reading-contest.html
+
+**Suffocating standoff: Giants lose in 10th after Blake Snell, Chris Sale dominate**\
+`It wouldn't be reckless to categorize Monday night's game as one of the greatest pitching duels in seven decades of MLB in San Francisco.`\
+https://nytimes.com/athletic/5697714/2024/08/13/giants-lose-blake-snell-chris-sale/
+
 **Starbucks Replaces Chief Executive After Activist Investor Campaigns**\
 `The coffee chain hires Chipotle’s Brian Niccol to take over from Laxman Narasimhan, ending a rocky stint marked slowing sales and a slumping stock price.`\
 https://nytimes.com/2024/08/13/business/dealbook/starbucks-ceo-out-laxman-narasimhan.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5697749/2024/08/13/newsletter-liverpool-midfield-zu
 **Barcelona fans: What do you want to know before this La Liga season?**\
 `Send in your questions for our Barcelona experts before the start of the new La Liga season`\
 https://nytimes.com/athletic/5697702/2024/08/13/barcelona-la-liga-start-questions/
-
-**Real Madrid fans: What do you want to know before this La Liga season?**\
-`Send in your questions for our Real Madrid expert before the start of the new La Liga season`\
-https://nytimes.com/athletic/5697742/2024/08/13/real-madrid-fans-what-do-you-want-to-know-before-this-la-liga-season/
-
-**Aaron Wan-Bissaka to West Ham: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we analyse and rate right-back Wan-Bissaka's move to West Ham from Old Trafford`\
-https://nytimes.com/athletic/5665424/2024/08/13/aaron-wan-bissaka-to-west-ham-transfer-ratings/
 

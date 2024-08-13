@@ -1,3 +1,11 @@
+**‘My Descent Into the True Crime Rabbit Hole’: The Week 8 Winner of Our Summer Reading Contest**\
+`Hayne Kim, 16, writes about how an essay in the Times Opinion section made her rethink her binge-watch habits.`\
+https://nytimes.com/2024/08/13/learning/my-descent-into-the-true-crime-rabbit-hole-the-week-8-winner-of-our-summer-reading-contest.html
+
+**Suffocating standoff: Giants lose in 10th after Blake Snell, Chris Sale dominate**\
+`It wouldn't be reckless to categorize Monday night's game as one of the greatest pitching duels in seven decades of MLB in San Francisco.`\
+https://nytimes.com/athletic/5697714/2024/08/13/giants-lose-blake-snell-chris-sale/
+
 **Starbucks Replaces Chief Executive After Activist Investor Campaigns**\
 `The coffee chain hires Chipotle’s Brian Niccol to take over from Laxman Narasimhan, ending a rocky stint marked slowing sales and a slumping stock price.`\
 https://nytimes.com/2024/08/13/business/dealbook/starbucks-ceo-out-laxman-narasimhan.html
