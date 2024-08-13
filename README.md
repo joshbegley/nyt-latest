@@ -1,3 +1,11 @@
+**Why Presidents Should Keep Their Hands Off the Fed**\
+`The pragmatic case for central bank independence.`\
+https://nytimes.com/2024/08/13/opinion/federal-reserve-politics-independent.html
+
+**Deception and a Gamble: How Ukrainian Troops Invaded Russia**\
+`Planned in secrecy, the incursion was a bold move to upend the war’s dynamics and put Moscow on the defensive — a gambit that could also leave Ukraine exposed.`\
+https://nytimes.com/2024/08/13/world/europe/ukraine-russia-war-kursk-offensive.html
+
 **Can the Oilers afford to match offer sheets for Broberg and Holloway?**\
 `The Blues amped up the pressure in Edmonton with two offer sheets that throw a wrench right into their offseason`\
 https://nytimes.com/athletic/5698718/2024/08/13/philip-broberg-dylan-holloway-offer-sheets-oilers-blues/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5695471/2024/08/13/walk-on-best-liverpool-podcast-t
 **9 Great Songs Recorded at Electric Lady Studios**\
 `A new documentary spotlights the Greenwich Village creative hub. Listen to tracks by Jimi Hendrix, Patti Smith, Frank Ocean and more that were recorded there.`\
 https://nytimes.com/2024/08/13/arts/music/amplifier-newsletter-electric-lady-studios.html
-
-**Lockyer returns to individual Luton training**\
-`Luton Town captain Tom Lockyer has returned to individual training, marking the next phase of his rehabilitation after suffering a cardiac arrest during a Premier League match against Bournemouth in December.`\
-https://nytimes.com/athletic/5698632/2024/08/13/tom-lockyer-luton-training/
-
-**Progressive Coalition Shifts $25 Million Campaign to Back Kamala Harris**\
-`The groups are building a voter outreach effort around a unified message from the left targeting Democrats and independents in battleground states.`\
-https://nytimes.com/2024/08/13/us/politics/kamala-harris-progressive-ad-campaign.html
 
