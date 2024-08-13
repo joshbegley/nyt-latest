@@ -1,3 +1,15 @@
+**Time for City case to be 'heard and answered' - Premier League chief**\
+`Premier League chief executive Richard Masters says it is &#8220;time&#8221; for the 115 charges against Manchester City to be &#8220;heard and answered&#8221;.`\
+https://nytimes.com/athletic/5698732/2024/08/13/manchester-city-charges-masters-premier-league/
+
+**Walk On returns for the new season**\
+`The much-loved Liverpool podcast is back to its usual capacity for the new season.`\
+https://nytimes.com/athletic/5695471/2024/08/13/walk-on-best-liverpool-podcast-the-athletic/
+
+**9 Great Songs Recorded at Electric Lady Studios**\
+`A new documentary spotlights the Greenwich Village creative hub. Listen to tracks by Jimi Hendrix, Patti Smith, Frank Ocean and more that were recorded there.`\
+https://nytimes.com/2024/08/13/arts/music/amplifier-newsletter-electric-lady-studios.html
+
 **Lockyer returns to individual Luton training**\
 `Luton Town captain Tom Lockyer has returned to individual training, marking the next phase of his rehabilitation after suffering a cardiac arrest during a Premier League match against Bournemouth in December.`\
 https://nytimes.com/athletic/5698632/2024/08/13/tom-lockyer-luton-training/

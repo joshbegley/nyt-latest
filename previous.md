@@ -1,3 +1,15 @@
+**Time for City case to be 'heard and answered' - Premier League chief**\
+`Premier League chief executive Richard Masters says it is &#8220;time&#8221; for the 115 charges against Manchester City to be &#8220;heard and answered&#8221;.`\
+https://nytimes.com/athletic/5698732/2024/08/13/manchester-city-charges-masters-premier-league/
+
+**Walk On returns for the new season**\
+`The much-loved Liverpool podcast is back to its usual capacity for the new season.`\
+https://nytimes.com/athletic/5695471/2024/08/13/walk-on-best-liverpool-podcast-the-athletic/
+
+**9 Great Songs Recorded at Electric Lady Studios**\
+`A new documentary spotlights the Greenwich Village creative hub. Listen to tracks by Jimi Hendrix, Patti Smith, Frank Ocean and more that were recorded there.`\
+https://nytimes.com/2024/08/13/arts/music/amplifier-newsletter-electric-lady-studios.html
+
 **Lockyer returns to individual Luton training**\
 `Luton Town captain Tom Lockyer has returned to individual training, marking the next phase of his rehabilitation after suffering a cardiac arrest during a Premier League match against Bournemouth in December.`\
 https://nytimes.com/athletic/5698632/2024/08/13/tom-lockyer-luton-training/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5698600/2024/08/13/arsenal-supporters-ban-abuse-dis
 **Dodgers right-hander River Ryan will undergo Tommy John surgery**\
 `Ryan becomes the third notable young Dodgers pitcher to undergo Tommy John surgery this season.`\
 https://nytimes.com/athletic/5698603/2024/08/13/dodgers-river-ryan-tommy-john/
-
-**Missy Elliott, Pop World Builder, Brings a Hip-Hop Fantasia to Brooklyn**\
-`For her first headlining tour in an innovative three-decade career, Elliott unleashed a relentless and exhilarating display of theatrical and visual ambition.`\
-https://nytimes.com/2024/08/13/arts/music/missy-elliott-out-of-this-world-tour-review.html
-
-**Peggy Moffitt, 86, Dies; Defined ’60s Fashion With a Bathing Suit and a Bob**\
-`She became famous for posing in the fashion designer Rudi Gernreich’s topless swimsuit. But she saw herself more as a performer than as a model.`\
-https://nytimes.com/2024/08/13/fashion/peggy-moffitt-dead.html
-
-**Georgia coach Kirby Smart on how college programs may handle the new roster limits**\
-`FBS programs soon will be allowed to give out 105 scholarships for football. But will they?`\
-https://nytimes.com/athletic/5698459/2024/08/13/college-football-roster-limits-georgia-kirby-smart/
 
