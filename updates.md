@@ -1,3 +1,11 @@
+**Why Presidents Should Keep Their Hands Off the Fed**\
+`The pragmatic case for central bank independence.`\
+https://nytimes.com/2024/08/13/opinion/federal-reserve-politics-independent.html
+
+**Deception and a Gamble: How Ukrainian Troops Invaded Russia**\
+`Planned in secrecy, the incursion was a bold move to upend the war’s dynamics and put Moscow on the defensive — a gambit that could also leave Ukraine exposed.`\
+https://nytimes.com/2024/08/13/world/europe/ukraine-russia-war-kursk-offensive.html
+
 **Can the Oilers afford to match offer sheets for Broberg and Holloway?**\
 `The Blues amped up the pressure in Edmonton with two offer sheets that throw a wrench right into their offseason`\
 https://nytimes.com/athletic/5698718/2024/08/13/philip-broberg-dylan-holloway-offer-sheets-oilers-blues/
