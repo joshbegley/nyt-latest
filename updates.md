@@ -1,3 +1,7 @@
+**Paramount Lays Off 15 Percent of U.S. Employees**\
+`The company is cutting staff ahead of its merger next year with the Hollywood studio Skydance.`\
+https://nytimes.com/2024/08/13/business/paramount-layoffs-skydance.html
+
 **Here’s the latest on the campaigns.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/08/13/us/harris-trump-election/heres-the-latest-on-the-campaigns
