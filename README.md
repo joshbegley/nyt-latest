@@ -1,3 +1,7 @@
+**The Risks of Experimenting With the Sun**\
+`Readers discuss an article about solar geoengineering. Also: Justice Neil Gorsuch; the Holocaust and A.I.; L.G.B.T.Q. tokenism; tips for travel.`\
+https://nytimes.com/2024/08/13/opinion/solar-geoengineering.html
+
 **Consumer Agency Cracks Down on Seller-Financed Home Sales**\
 `Risky contract-to-deed home sales are subject to the same protections as mortgaged-financed homes, the consumer protection agency said.`\
 https://nytimes.com/2024/08/13/business/consumer-protection-home-sales.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/13/books/review/bite-bill-schutt.html
 **‘Industry’ Blends ‘Succession’ With ‘Grey’s Anatomy’**\
 `Set in the high-pressure world of investment banking, the series, now in Season 3, started out unremarkably but has since become appointment viewing.`\
 https://nytimes.com/2024/08/13/arts/television/industry-hbo-succession-greys-anatomy.html
-
-**How Food Prices Have Changed Over the Past Four Years**\
-`Grocery prices are no longer rising as rapidly, but food inflation remains a top issue for voters, polls show.`\
-https://nytimes.com/2024/08/13/business/economy/inflation-food-prices.html
 
