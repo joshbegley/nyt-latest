@@ -1,3 +1,19 @@
+**Are We Thinking About the Youth Mental Health Crisis All Wrong?**\
+`Global trends in economics, climate and technology are weighing on young adults, a report finds. It recommends overhauling how we approach mental health care.`\
+https://nytimes.com/2024/08/13/well/mind/mental-health-young-adults-trends.html
+
+**Tiny Love Stories: ‘My Father, Autistic Like Me’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/08/13/style/tiny-modern-love-stories-my-father-autistic-like-me.html
+
+**Lightning in discussions to expand ownership group**\
+`Vinik sold a minority share of the team to Arctos Sports Partners in January 2022.`\
+https://nytimes.com/athletic/5699409/2024/08/13/lightning-ownership-group-operations/
+
+**Israel draws global condemnation after a cabinet minister’s proclamations at a holy site.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/08/13/world/israel-iran-hamas-gaza-war/israel-draws-global-condemnation-after-a-cabinet-ministers-proclamations-at-a-holy-site
+
 **Greenberg: Danny Parkins leaving Chicago sports radio for FS1. Who will replace him?**\
 `Now that we're free of the “Danny Parkins Curse,” you know what that means. It's time to start planning parades for Chicago's sports teams.`\
 https://nytimes.com/athletic/5698417/2024/08/13/danny-parkins-leaving-chicago-radio-fs1/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5698767/2024/08/13/eagles-patriots-joint-practice-c
 **Arizona and Missouri Will Vote on Abortion in November**\
 `Also, Hamas said it would not participate in new truce talks. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/08/13/briefing/arizona-missouri-abortion-measures-cease-fire-talks.html
-
-**Mourinho - Fenerbahce would 'never' have reached Champions League final**\
-`Jose Mourinho claims Fenerbahce would &#8220;never&#8221; have had a chance of winning the Champions League or making the final after they lost their third qualifying round against Lille.`\
-https://nytimes.com/athletic/5699321/2024/08/13/jose-mourinho-fenerbahce-champions-league/
-
-**WCBS Radio, the Soundtrack of Countless Cab Rides, Goes Quiet**\
-`The news radio mainstay is turning its airwaves over to ESPN, ending its continuous coverage of the five boroughs. The Mets broadcasts will remain.`\
-https://nytimes.com/2024/08/13/nyregion/wcbs-880-radio-closing-espn.html
-
-**Wednesday Briefing: Hamas Will Skip Upcoming Talks**\
-`Plus, in Russian territory captured by Ukraine.`\
-https://nytimes.com/2024/08/13/briefing/hamas-netanyahu-ukraine-incursion-russia-abortion.html
-
-**Patriots offense can't do much of anything as receiver, O-line troubles continue**\
-`The Patriots' offensive struggles overshadowed everything else at their joint practice with the Eagles on Tuesday. `\
-https://nytimes.com/athletic/5699064/2024/08/13/patriots-eagles-joint-practice-offense/
 
