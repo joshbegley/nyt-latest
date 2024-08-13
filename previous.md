@@ -1,3 +1,7 @@
+**Wednesday Briefing: Hamas Will Skip Upcoming Talks**\
+`Plus, in Russian territory captured by Ukraine.`\
+https://nytimes.com/2024/08/13/briefing/hamas-netanyahu-ukraine-incursion-russia-abortion.html
+
 **Patriots offense can't do much of anything as receiver, O-line troubles continue**\
 `The Patriots' offensive struggles overshadowed everything else at their joint practice with the Eagles on Tuesday. `\
 https://nytimes.com/athletic/5699064/2024/08/13/patriots-eagles-joint-practice-offense/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/13/upshot/democrats-voter-registration.html
 **Ohio Officer Is Charged With Murder in Shooting of Pregnant Black Woman**\
 `Connor Grubb, 29, of the Blendon Township Police Department faces multiple charges in the fatal shooting of Ta’Kiya Young, 21, who was shot in her car outside a Kroger last year after being accused of theft.`\
 https://nytimes.com/2024/08/13/us/ohio-officer-takiya-young-murder.html
-
-**Hamas sends a signal that a breakthrough is unlikely in negotiations.**\
-`By Adam Rasgon and Hwaida Saad`\
-https://nytimes.com/live/2024/08/13/world/israel-iran-hamas-gaza-war/hamas-sends-the-signal-a-breakthrough-is-unlikely-in-negotiations
 
