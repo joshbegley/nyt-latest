@@ -1,3 +1,7 @@
+**As Gaza Talks Near, Diplomats Try to Keep War From Spreading**\
+`Hopes for a breakthrough were damped after Hamas said it would not attend the peace talks set for Thursday.`\
+https://nytimes.com/2024/08/13/world/middleeast/gaza-peace-talks.html
+
 **Vienna Bids Farewell to Magnate Who Brought Stars to Its Opera Ball**\
 `Sophia Loren, Kim Kardashian, Priscilla Presley and Jane Fonda were among the stars Richard Lugner enticed, and often paid, to appear at the Vienna Opera Ball.`\
 https://nytimes.com/2024/08/13/arts/music/richard-lugner-celebrities-vienna-opera-ball.html

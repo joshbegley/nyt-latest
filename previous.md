@@ -1,3 +1,7 @@
+**As Gaza Talks Near, Diplomats Try to Keep War From Spreading**\
+`Hopes for a breakthrough were damped after Hamas said it would not attend the peace talks set for Thursday.`\
+https://nytimes.com/2024/08/13/world/middleeast/gaza-peace-talks.html
+
 **Vienna Bids Farewell to Magnate Who Brought Stars to Its Opera Ball**\
 `Sophia Loren, Kim Kardashian, Priscilla Presley and Jane Fonda were among the stars Richard Lugner enticed, and often paid, to appear at the Vienna Opera Ball.`\
 https://nytimes.com/2024/08/13/arts/music/richard-lugner-celebrities-vienna-opera-ball.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5698945/2024/08/13/manchester-united-matthijs-de-li
 **What led to Blues’ offer sheets for Broberg, Holloway and why Oilers made themselves susceptible**\
 `The Oilers have a week to match the Blues' two offer sheets for Broberg and Holloway.`\
 https://nytimes.com/athletic/5698010/2024/08/13/blues-oilers-broberg-holloway-nhl-offer-sheets/
-
-**Noussair Mazraoui to Manchester United: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we analyse and rate Noussair Mazraoui's move to Manchester United`\
-https://nytimes.com/athletic/5658403/2024/08/13/noussair-mazraoui-to-man-united-transfer-ratings/
 
