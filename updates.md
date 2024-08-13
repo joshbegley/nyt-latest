@@ -1,3 +1,11 @@
+**Hamas sends the signal a breakthrough is unlikely in negotiations.**\
+`By Adam Rasgon and Hwaida Saad`\
+https://nytimes.com/live/2024/08/13/world/israel-iran-hamas-gaza-war/hamas-sends-the-signal-a-breakthrough-is-unlikely-in-negotiations
+
+**Sam Rosen, voice of the Rangers, to retire after 2024-25 season**\
+`In 2016, Rosen was named the Foster Hewitt Memorial Award winner, earning him a place in the Hockey Hall of Fame.`\
+https://nytimes.com/athletic/5698415/2024/08/13/rangers-announcer-sam-rosen-retiring/
+
 **Manchester United's Matthijs de Ligt has time on his side to fulfil his prodigious talent**\
 `Matthijs de Ligt has been reunited with Erik ten Hag, who once said he expected him to "soon be number one in this position"`\
 https://nytimes.com/athletic/5698945/2024/08/13/manchester-united-matthijs-de-ligt-profile/
