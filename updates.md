@@ -1,3 +1,11 @@
+**X Spaces With Trump and Musk Is Off to a Glitchy Start**\
+`The audio livestream of a conversation between Elon Musk and the former president ran late as users scrambled to try to access the site.`\
+https://nytimes.com/2024/08/12/technology/trump-musk-x-spaces-interview.html
+
+**Trump Flew on Charter Jet Previously Owned by Jeffrey Epstein**\
+`A Trump campaign official said that the aircraft was provided by a charter jet service after his own jet had a mechanical failure, and that the campaign had been unaware of the plane’s previous ownership.`\
+https://nytimes.com/2024/08/12/us/politics/trump-charter-jet-jeffrey-epstein.html
+
 **Rachael Lillis, Who Voiced Popular ‘Pokémon’ Characters, Dies at 55**\
 `Ms. Lillis voiced the characters of Misty and Jessie in the animated series based on a video game. She was diagnosed with breast cancer in May.`\
 https://nytimes.com/2024/08/12/arts/television/rachael-lillis-dead.html
