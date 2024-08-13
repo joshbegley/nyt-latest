@@ -1,3 +1,7 @@
+**Alvarez breaks Rays' jumbotron with batting practice home run**\
+`Alvarez previously broke a jumbotron with a home run during batting practice at Minute Maid Park in 2019.`\
+https://nytimes.com/athletic/5699480/2024/08/13/yordan-alvarez-rays-jumbotron-home-run/
+
 **Yankees' Jazz Chisholm Jr. has UCL injury and surgery has not been ruled out**\
 `While Chisholm's out, the Yankees have multiple options for how they can proceed at third base without him.`\
 https://nytimes.com/athletic/5699439/2024/08/13/yankees-jazz-chisholm-jr-ucl-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5699406/2024/08/13/jamarr-chase-bengals-absence-con
 **Are We Thinking About the Youth Mental Health Crisis All Wrong?**\
 `Global trends in economics, climate and technology are weighing on young adults, a report finds. It recommends overhauling how we approach mental health care.`\
 https://nytimes.com/2024/08/13/well/mind/mental-health-young-adults-trends.html
-
-**Tiny Love Stories: ‘My Father, Autistic Like Me’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/08/13/style/tiny-modern-love-stories-my-father-autistic-like-me.html
 
