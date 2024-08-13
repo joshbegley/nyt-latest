@@ -1,3 +1,7 @@
+**Why Ipswich have changed a TV camera angle for the Premier League**\
+`As part of their preparations for life in the top flight, Ipswich have repositioned all of their TV camera stations by building a new gantry`\
+https://nytimes.com/athletic/5697934/2024/08/13/ipswich-television-camera-position-explained/
+
 **What to Know About Ukraine’s Cross-Border Assault Into Russia**\
 `The incursion caught Russia by surprise and signified a shift in tactics for Kyiv after more than two years of war with Russia.`\
 https://nytimes.com/2024/08/13/world/europe/ukraine-russia-kursk-incursion-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/13/business/paramount-layoffs-skydance.html
 **Here’s the latest on the campaigns.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/08/13/us/harris-trump-election/heres-the-latest-on-the-campaigns
-
-**Live Election Updates: Trump-Musk Chat Is Heavy on Talking Points and Familiar Falsehoods**\
-`Robert F. Kennedy Jr. cannot appear on the ballot in New York, and a pro-Trump former county clerk in Colorado was found guilty of tampering with voting machines.`\
-https://nytimes.com/live/2024/08/13/us/harris-trump-election
 
