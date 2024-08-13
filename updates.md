@@ -1,3 +1,7 @@
+**Starbucks Replaces Chief Executive After Activist Investor Campaigns**\
+`The coffee chain hires Chipotle’s Brian Niccol to take over from Laxman Narasimhan, ending a rocky stint marked slowing sales and a slumping stock price.`\
+https://nytimes.com/2024/08/13/business/dealbook/starbucks-ceo-out-laxman-narasimhan.html
+
 **Paramount Lays Off 15 Percent of U.S. Employees**\
 `The company is cutting staff ahead of its merger next year with the Hollywood studio Skydance.`\
 https://nytimes.com/2024/08/13/business/paramount-layoffs-skydance.html
