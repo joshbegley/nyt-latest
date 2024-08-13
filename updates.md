@@ -1,3 +1,7 @@
+**The Transfer DealSheet: Arsenal goalkeeper latest and Vinicius Jr to Saudi?**\
+`Welcome to the Transfer DealSheet, your weekly look at the state of play in the transfer market`\
+https://nytimes.com/athletic/5695539/2024/08/13/manchester-united-transfer-news-arsenal-liverpool-real-madrid-barcelona/
+
 **Corrections: Aug. 13, 2024**\
 `Corrections that appeared in print on Tuesday, Aug. 13, 2024.`\
 https://nytimes.com/2024/08/13/pageoneplus/corrections-aug-13-2024.html
