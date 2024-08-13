@@ -1,3 +1,15 @@
+**Progressive Coalition Shifts $25 Million Campaign to Back Kamala Harris**\
+`The groups are building a voter outreach effort around a unified message from the left targeting Democrats and independents in battleground states.`\
+https://nytimes.com/2024/08/13/us/politics/kamala-harris-progressive-ad-campaign.html
+
+**Until Saturday: Is the preseason No. 1 team cursed? Who has toughest travel?**\
+`Welcome to Until Saturday, the five-star college football newsletter: Breaking down the AP poll and who faces the toughest travel this year.`\
+https://nytimes.com/athletic/5697902/2024/08/13/texas-football-ap-poll-college-football-travel-until-saturday/
+
+**How Kamala Harris Found Her Footing in the Spotlight**\
+`The vice president long had a reputation as an uneven political messenger prone to missteps. That has steadily been changing.`\
+https://nytimes.com/interactive/2024/08/13/us/politics/kamala-harris-presence-videos.html
+
 **Who Is Brian Niccol, the Incoming Starbucks C.E.O. From Chipotle?**\
 `Mr. Niccol, whom the coffee chain poached from Chipotle, has emerged in recent years as a top leader in the restaurant industry.`\
 https://nytimes.com/2024/08/13/business/brian-niccol-starbucks-chipotle.html
