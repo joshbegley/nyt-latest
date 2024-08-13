@@ -1,3 +1,7 @@
+**Lions observations: Cornerback depth thins, Levi Onwuzurike trending up, and more**\
+`Three defensive backs have missed or left practice with injuries.`\
+https://nytimes.com/athletic/5698272/2024/08/13/detroit-lions-observations-jahmyr-gibbs-cornerback-levi-onwuzurike/
+
 **The Risks of Experimenting With the Sun**\
 `Readers discuss an article about solar geoengineering. Also: Justice Neil Gorsuch; the Holocaust and A.I.; L.G.B.T.Q. tokenism; tips for travel.`\
 https://nytimes.com/2024/08/13/opinion/solar-geoengineering.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5698263/2024/08/13/bournemouth-sign-julian-araujo/
 **A History of Teeth That’s Chock-Full of Trivia to Chew On**\
 `Show the zoologist Bill Schutt what your mouth looks like, and he’ll tell you who you are.`\
 https://nytimes.com/2024/08/13/books/review/bite-bill-schutt.html
-
-**‘Industry’ Blends ‘Succession’ With ‘Grey’s Anatomy’**\
-`Set in the high-pressure world of investment banking, the series, now in Season 3, started out unremarkably but has since become appointment viewing.`\
-https://nytimes.com/2024/08/13/arts/television/industry-hbo-succession-greys-anatomy.html
 
