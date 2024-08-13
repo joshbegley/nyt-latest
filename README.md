@@ -1,3 +1,7 @@
+**Mookie Betts is back, and more 'tough decisions' are coming for the Dodgers**\
+`Betts homered in his first game back as he returned to the familiar position of right field: "I'll be ready for whatever."`\
+https://nytimes.com/athletic/5697280/2024/08/12/dodgers-mookie-betts-amed-rosario/
+
 **Parts of Canada’s Boreal Forest Are Burning Faster Than They Can Regrow**\
 `The delicate balance of one the planet’s largest natural systems for storing carbon depends on the humble black spruce tree.`\
 https://nytimes.com/interactive/2024/08/12/climate/canada-wildfires.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/12/arts/television/rachael-lillis-dead.html
 **At a Russian Border Post, Scenes of Ruin After Ukraine’s Surprise Attack**\
 `A week after the biggest foreign incursion into Russia since World War II, The New York Times visited one of the spots where Ukrainian forces stormed into Russia and surprised the defenders.`\
 https://nytimes.com/2024/08/12/world/europe/russia-ukraine-kursk-incursion.html
-
-**Robert F. Kennedy Jr. Cannot Appear on New York Ballot, Judge Rules**\
-`The ruling was a blow to Mr. Kennedy’s independent campaign for president. The judge said that he had used a “sham” address to claim residency in New York.`\
-https://nytimes.com/2024/08/12/nyregion/robert-f-kennedy-jr-new-york-residency.html
 
