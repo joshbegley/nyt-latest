@@ -1,3 +1,7 @@
+**Tanzania Arrests 520 People in Mass Opposition Crackdown**\
+`The clampdown came after the police banned a youth rally and pointed to the anti-government protests that have swept neighboring Kenya in recent months.`\
+https://nytimes.com/2024/08/13/world/africa/tanzania-arrests-520-people-crackdown.html
+
 **Carvajal criticises schedule ahead of UEFA Super Cup**\
 `Real Madrid defender Dani Carvajal says the current football calendar is &#8220;harming&#8221; players ahead of the UEFA Super Cup on Wednesday evening.`\
 https://nytimes.com/athletic/5698795/2024/08/13/dani-carvajal-uefa-super-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/13/world/europe/israeli-arms-company-break-in.html
 **Lessons From a Burning Forest**\
 `Canada’s boreal forests are burning faster than they can regrow, but controlled fires may be one of the best ways to protect local communities.`\
 https://nytimes.com/2024/08/13/climate/lessons-from-a-burning-forest.html
-
-**Time for City case to be 'heard and answered' - Premier League chief**\
-`Premier League chief executive Richard Masters says it is &#8220;time&#8221; for the 115 charges against Manchester City to be &#8220;heard and answered&#8221;.`\
-https://nytimes.com/athletic/5698732/2024/08/13/manchester-city-charges-masters-premier-league/
 
