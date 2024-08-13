@@ -1,3 +1,7 @@
+**Hamas sends the signal a breakthrough is unlikely in negotiations.**\
+`By Adam Rasgon and Hwaida Saad`\
+https://nytimes.com/live/2024/08/13/world/israel-iran-hamas-gaza-war/hamas-sends-the-signal-a-breakthrough-is-unlikely-in-negotiations
+
 **Sam Rosen, voice of the Rangers, to retire after 2024-25 season**\
 `In 2016, Rosen was named the Foster Hewitt Memorial Award winner, earning him a place in the Hockey Hall of Fame.`\
 https://nytimes.com/athletic/5698415/2024/08/13/rangers-announcer-sam-rosen-retiring/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5698881/2024/08/13/jim-harbaugh-michigan-captain/
 **De Ligt completes move to Manchester United**\
 `Manchester United have completed the signing of Matthijs de Ligt from Bayern Munich.`\
 https://nytimes.com/athletic/5601242/2024/08/13/manchester-united-sign-matthijs-de-ligt/
-
-**Ream targeting 2026 World Cup after signing for Charlotte FC**\
-`Tim Ream is targeting a place in the USMNT squad for the 2026 World Cup after completing his return to the MLS with Charlotte FC.`\
-https://nytimes.com/athletic/5698901/2024/08/13/tim-ream-world-cup-2026-usmnt/
 
