@@ -1,3 +1,11 @@
+**A Haven for Black Film on Martha’s Vineyard Keeps Growing**\
+`Summer on the island is packed with cultural events, and for many celebrities, politicians and filmmakers, the Martha’s Vineyard African American Film Festival is a highlight.`\
+https://nytimes.com/2024/08/13/style/marthas-vineyard-african-american-film-festival-scene.html
+
+**We Tested 24 Dishwasher Detergents to Find the Best**\
+`These are the three top performers.`\
+https://nytimes.com/interactive/2024/08/13/smarter-living/wirecutter/best-dishwasher-detergents.html
+
 **Giants' constant O-line shuffling in camp doesn't inspire hope problem has been fixed**\
 `The Giants' five projected starters for the season opener still have not taken a single practice rep together.`\
 https://nytimes.com/athletic/5697380/2024/08/13/new-york-giants-offensive-line-training-camp/
