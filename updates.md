@@ -1,3 +1,7 @@
+**De Ligt completes move to Manchester United**\
+`Manchester United have completed the signing of Matthijs de Ligt from Bayern Munich.`\
+https://nytimes.com/athletic/5601242/2024/08/13/manchester-united-sign-matthijs-de-ligt/
+
 **Ream targeting 2026 World Cup after signing for Charlotte FC**\
 `Tim Ream is targeting a place in the USMNT squad for the 2026 World Cup after completing his return to the MLS with Charlotte FC.`\
 https://nytimes.com/athletic/5698901/2024/08/13/tim-ream-world-cup-2026-usmnt/
