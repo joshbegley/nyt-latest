@@ -1,3 +1,11 @@
+**Barcelona fans: What do you want to know before this La Liga season?**\
+`Send in your questions for our Barcelona experts before the start of the new La Liga season`\
+https://nytimes.com/athletic/5697702/2024/08/13/barcelona-la-liga-start-questions/
+
+**Real Madrid fans: What do you want to know before this La Liga season?**\
+`Send in your questions for our Real Madrid expert before the start of the new La Liga season`\
+https://nytimes.com/athletic/5697742/2024/08/13/real-madrid-fans-what-do-you-want-to-know-before-this-la-liga-season/
+
 **Aaron Wan-Bissaka to West Ham: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate right-back Wan-Bissaka's move to West Ham from Old Trafford`\
 https://nytimes.com/athletic/5665424/2024/08/13/aaron-wan-bissaka-to-west-ham-transfer-ratings/
