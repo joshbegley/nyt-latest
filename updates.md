@@ -1,3 +1,11 @@
+**Corrections: Aug. 13, 2024**\
+`Corrections that appeared in print on Tuesday, Aug. 13, 2024.`\
+https://nytimes.com/2024/08/13/pageoneplus/corrections-aug-13-2024.html
+
+**Quotation of the Day: Toll in EuropeFrom ’23 Heat:47,000 Deaths**\
+`Quotation of the Day for Tuesday, August 13, 2024.`\
+https://nytimes.com/2024/08/13/pageoneplus/quotation-of-the-day-toll-in-europefrom-23-heat47000-deaths.html
+
 **Word of the Day: centennial**\
 `This word has appeared in 125 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/13/learning/word-of-the-day-centennial.html
