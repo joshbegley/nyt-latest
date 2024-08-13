@@ -1,3 +1,11 @@
+**NBA’s best offseason moves by team: From Grizzlies to Heat, Nos. 30-21**\
+`The first in our three-part series examining every team's offseason transactions and how they set up the franchise for next season.`\
+https://nytimes.com/athletic/5626813/2024/08/13/nba-offseason-rankings-2024-lakers-clippers-suns-heat/
+
+**Mets catching on: 3 takeaways from their improved defensive metrics**\
+`Coaches Mike Sarbaugh and Antoan Richardson encourage players to be disciplined with their pre-pitch routine.`\
+https://nytimes.com/athletic/5695311/2024/08/13/mets-defense-improvement/
+
 **The No. 9 spot is where you want to draft in fantasy football this season: A round-by-round analysis**\
 `Mike Vorkunov explains why A.J. Brown makes No. 9 overall the best place to be picking in fantasy football 2024 drafts.`\
 https://nytimes.com/athletic/5695887/2024/08/13/pick-9-best-spot-fantasy-football-2024/
