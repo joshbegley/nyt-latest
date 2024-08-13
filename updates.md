@@ -1,3 +1,11 @@
+**Word of the Day: centennial**\
+`This word has appeared in 125 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/13/learning/word-of-the-day-centennial.html
+
+**Where Students Run the Streets: Bangladesh in Limbo**\
+`The protesters who brought down an autocrat are now cabinet ministers and traffic cops, trying to restore order and chart a new future for a nation of 170 million.`\
+https://nytimes.com/2024/08/13/world/asia/bangladesh-students-protests.html
+
 **Yankees downplay inexcusable loss to MLB-worst White Sox: 'I just think it's a normal day'**\
 `The Yankees failed to capitalize with runners in scoring position in a 12-2 loss to the White Sox.`\
 https://nytimes.com/athletic/5697358/2024/08/13/yankees-inexcusable-loss-white-sox/
