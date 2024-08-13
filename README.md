@@ -1,3 +1,7 @@
+**The West Clearly Doesn’t Want to Defeat Putin**\
+`Victory in Ukraine is now within Russia’s reach.`\
+https://nytimes.com/2024/08/13/opinion/russia-ukraine-west-war.html
+
 **Sound of a Fall**\
 `Benjamin Panico makes his New York Times Crossword debut.`\
 https://nytimes.com/2024/08/13/crosswords/daily-puzzle-2024-08-13.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5695523/2024/08/13/what-is-brightons-best-team/
 **Arsenal season preview: Timber's return, the promise of youth and aiming for 90-plus points**\
 `Are Arsenal better placed this season to challenge for the title and what should fans look out for?`\
 https://nytimes.com/athletic/5684106/2024/08/13/arsenal-season-preview-timber-arteta-title/
-
-**Forest season preview: Murillo excitement and a chance for Nuno to make his mark**\
-`Forest begin a third consecutive season in the Premier League with a strong XI and hopes of avoiding another relegation battle`\
-https://nytimes.com/athletic/5695671/2024/08/13/nottingham-forest-premier-league-preview/
 
