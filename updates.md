@@ -1,3 +1,7 @@
+**Mourinho - Fenerbahce would 'never' have reached Champions League final**\
+`Jose Mourinho claims Fenerbahce would &#8220;never&#8221; have had a chance of winning the Champions League or making the final after they lost their third qualifying round against Lille.`\
+https://nytimes.com/athletic/5699321/2024/08/13/jose-mourinho-fenerbahce-champions-league/
+
 **WCBS Radio, the Soundtrack of Countless Cab Rides, Goes Quiet**\
 `The news radio mainstay is turning its airwaves over to ESPN, ending its continuous coverage of the five boroughs. The Mets broadcasts will remain.`\
 https://nytimes.com/2024/08/13/nyregion/wcbs-880-radio-closing-espn.html
