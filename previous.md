@@ -1,3 +1,7 @@
+**Inflation: Put a Pork in It**\
+`Why Trump is wrong about the price of bacon.`\
+https://nytimes.com/live/2024/08/07/opinion/thepoint/krugman-inflation-bacon-trump
+
 **A Haven for Black Film on Martha’s Vineyard Keeps Growing**\
 `Summer on the island is packed with cultural events, and for many celebrities, politicians and filmmakers, the Martha’s Vineyard African American Film Festival is a highlight.`\
 https://nytimes.com/2024/08/13/style/marthas-vineyard-african-american-film-festival-scene.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/13/world/europe/ukraine-russia-kursk-incursion-war.h
 **Fires Near Athens Leave a Path of Destruction**\
 `The Greek authorities said the threat posed by the blazes had lessened as of Tuesday, thanks in part to an overnight lull in the strong winds. But the risk remained.`\
 https://nytimes.com/2024/08/13/world/europe/athens-greece-fires.html
-
-**Musk’s Trump Talk: After Glitchy Start, a Two-Hour Ramble**\
-`Problems in the livestream renewed questions about X’s ability to handle big events, but it also showed how the platform can still grab attention.`\
-https://nytimes.com/2024/08/13/technology/elon-musk-x-donald-trump.html
 

@@ -1,3 +1,7 @@
+**Inflation: Put a Pork in It**\
+`Why Trump is wrong about the price of bacon.`\
+https://nytimes.com/live/2024/08/07/opinion/thepoint/krugman-inflation-bacon-trump
+
 **A Haven for Black Film on Martha’s Vineyard Keeps Growing**\
 `Summer on the island is packed with cultural events, and for many celebrities, politicians and filmmakers, the Martha’s Vineyard African American Film Festival is a highlight.`\
 https://nytimes.com/2024/08/13/style/marthas-vineyard-african-american-film-festival-scene.html
