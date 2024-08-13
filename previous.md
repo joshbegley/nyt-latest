@@ -1,3 +1,7 @@
+**How Amarius Mims' injury exposes mass of options for Bengals on offensive line**\
+`While the news of Mims' injury is tough to swallow, it creates competition all across the Bengals' offensive line.`\
+https://nytimes.com/athletic/5697029/2024/08/12/cincinnati-bengals-amarius-mims-injury-preseason-training-camp/
+
 **X Spaces with Trump is off to a glitchy start.**\
 `The audio livestream of a conversation between Elon Musk and the former president ran late as users scrambled to try to access the site.`\
 https://nytimes.com/2024/08/12/technology/trump-musk-x-spaces-interview.html
@@ -35,8 +39,4 @@ https://nytimes.com/2024/08/12/opinion/trump-crowds-kamala-harris.html
 <p>Please include your city.</p>
 `\
 https://nytimes.com/athletic/5697106/2024/08/12/submit-a-question-for-stewart-mandels-college-football-mailbag-268/
-
-**Auston Matthews to be named Maple Leafs captain, taking over from John Tavares**\
-`Auston Matthews is set to become the next captain of the Toronto Maple Leafs, taking over the team’s top leadership role from teammate John Tavares, according to multiple sources familiar with the decision.`\
-https://nytimes.com/athletic/5697101/2024/08/12/auston-matthews-maple-leafs-captain/
 

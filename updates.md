@@ -1,3 +1,7 @@
+**How Amarius Mims' injury exposes mass of options for Bengals on offensive line**\
+`While the news of Mims' injury is tough to swallow, it creates competition all across the Bengals' offensive line.`\
+https://nytimes.com/athletic/5697029/2024/08/12/cincinnati-bengals-amarius-mims-injury-preseason-training-camp/
+
 **X Spaces with Trump is off to a glitchy start.**\
 `The audio livestream of a conversation between Elon Musk and the former president ran late as users scrambled to try to access the site.`\
 https://nytimes.com/2024/08/12/technology/trump-musk-x-spaces-interview.html
