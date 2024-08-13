@@ -1,3 +1,7 @@
+**Barcelona welcome Dani Olmo - but right now, he still can't play in La Liga**\
+`Fans gave a warm welcome to Barca's new arrivals - but signs of trouble remain`\
+https://nytimes.com/athletic/5697578/2024/08/13/barcelona-olmo-la-liga-monaco-friendly-defeat/
+
 **2024 F1 midseason review: Best driver, favorite races and pleasant surprises**\
 `This season has been a banger. Here's what we hope to see before it wraps up at Abu Dhabi.`\
 https://nytimes.com/athletic/5696095/2024/08/13/f1-midseason-review-best-driver-race-moments/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/13/pageoneplus/corrections-aug-13-2024.html
 **Quotation of the Day: Toll in EuropeFrom ’23 Heat:47,000 Deaths**\
 `Quotation of the Day for Tuesday, August 13, 2024.`\
 https://nytimes.com/2024/08/13/pageoneplus/quotation-of-the-day-toll-in-europefrom-23-heat47000-deaths.html
-
-**Word of the Day: centennial**\
-`This word has appeared in 125 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/08/13/learning/word-of-the-day-centennial.html
 

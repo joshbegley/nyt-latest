@@ -1,3 +1,7 @@
+**Barcelona welcome Dani Olmo - but right now, he still can't play in La Liga**\
+`Fans gave a warm welcome to Barca's new arrivals - but signs of trouble remain`\
+https://nytimes.com/athletic/5697578/2024/08/13/barcelona-olmo-la-liga-monaco-friendly-defeat/
+
 **2024 F1 midseason review: Best driver, favorite races and pleasant surprises**\
 `This season has been a banger. Here's what we hope to see before it wraps up at Abu Dhabi.`\
 https://nytimes.com/athletic/5696095/2024/08/13/f1-midseason-review-best-driver-race-moments/
