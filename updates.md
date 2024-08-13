@@ -1,3 +1,7 @@
+**Missy Elliott, Pop World Builder, Brings a Hip-Hop Fantasia to Brooklyn**\
+`For her first headlining tour in an innovative three-decade career, Elliott unleashed a relentless and exhilarating display of theatrical and visual ambition.`\
+https://nytimes.com/2024/08/13/arts/music/missy-elliott-out-of-this-world-tour-review.html
+
 **Peggy Moffitt, 86, Dies; Defined ’60s Fashion With a Bathing Suit and a Bob**\
 `She became famous for posing in the fashion designer Rudi Gernreich’s topless swimsuit. But she saw herself more as a performer than as a model.`\
 https://nytimes.com/2024/08/13/fashion/peggy-moffitt-dead.html
