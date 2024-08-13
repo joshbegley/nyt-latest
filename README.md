@@ -1,4 +1,4 @@
-**Twins' Zebby Matthews propelled to majors by development program: 'Everybody's dream:'**\
+**Twins' Zebby Matthews propelled to majors by development program: 'Everybody's dream'**\
 `Matthews barely walks anyone and has added 3 mph to his fastball since the Twins drafted him.`\
 https://nytimes.com/athletic/5697366/2024/08/12/twins-zebby-matthews/
 
