@@ -1,3 +1,11 @@
+**‘Industry’ Blends ‘Succession’ With ‘Grey’s Anatomy’**\
+`Set in the high-pressure world of investment banking, the series, now in Season 3, started out unremarkably but has since become appointment viewing.`\
+https://nytimes.com/2024/08/13/arts/television/industry-hbo-succession-greys-anatomy.html
+
+**How Food Prices Have Changed Over the Past Four Years**\
+`Grocery prices are no longer rising as rapidly, but food inflation remains a top issue for voters, polls show.`\
+https://nytimes.com/2024/08/13/business/economy/inflation-food-prices.html
+
 **‘Bad Monkey,’ Bad Deer, Bad Weather: The Fun of Filming in Florida**\
 `Shooting in the Sunshine State involves navigating a lot of humidity and critters, but the producers of a new Carl Hiaasen adaptation knew it was necessary to get the story right.`\
 https://nytimes.com/2024/08/13/arts/television/bad-monkey.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5698206/2024/08/13/nhl-draft-prospects-mailbag-ques
 **Transfers and Pay Cuts: Pregnant Officers Accuse Border Agency of Discrimination**\
 `Under a $45 million settlement, Customs and Border Protection agreed to adjust its policy around pregnancy. Some women say the agency has instilled a culture of shame and perpetuated a fear of retaliation.`\
 https://nytimes.com/2024/08/13/us/politics/customs-border-protection-pregnant-lawsuit.html
-
-**The Little Streamer That Could**\
-`Tubi has exploded in popularity over the past 18 months, outpacing some competitors with much bigger budgets.`\
-https://nytimes.com/2024/08/13/business/media/tubi-movies-tv-streaming.html
-
-**Fulham submit improved offer for Andersen**\
-`Fulham have submitted an improved offer to sign defender Joachim Andersen from Crystal Palace.`\
-https://nytimes.com/athletic/5694083/2024/08/13/joachim-andersen-fulham-crystal-palace/
 

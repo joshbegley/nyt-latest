@@ -1,3 +1,11 @@
+**‘Industry’ Blends ‘Succession’ With ‘Grey’s Anatomy’**\
+`Set in the high-pressure world of investment banking, the series, now in Season 3, started out unremarkably but has since become appointment viewing.`\
+https://nytimes.com/2024/08/13/arts/television/industry-hbo-succession-greys-anatomy.html
+
+**How Food Prices Have Changed Over the Past Four Years**\
+`Grocery prices are no longer rising as rapidly, but food inflation remains a top issue for voters, polls show.`\
+https://nytimes.com/2024/08/13/business/economy/inflation-food-prices.html
+
 **‘Bad Monkey,’ Bad Deer, Bad Weather: The Fun of Filming in Florida**\
 `Shooting in the Sunshine State involves navigating a lot of humidity and critters, but the producers of a new Carl Hiaasen adaptation knew it was necessary to get the story right.`\
 https://nytimes.com/2024/08/13/arts/television/bad-monkey.html
