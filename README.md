@@ -1,3 +1,31 @@
+**West Ham sign Wan-Bissaka from Man Utd**\
+`West Ham United have completed the signing of Aaron Wan-Bissaka from Manchester United.`\
+https://nytimes.com/athletic/5695555/2024/08/13/aaron-wan-bissaka-west-ham-man-utd/
+
+**Cardinals takeaways: 3 things to know about Jordan Walker's promotion**\
+`Walker will start in right field against left-handed starters and come off the bench in games started by righties.`\
+https://nytimes.com/athletic/5696934/2024/08/13/cardinals-takeaways-3-things-to-know-about-jordan-walkers-promotion/
+
+**'We only want to write the cheque once' - Newcastle on stadium, training ground and sponsorship**\
+`Peter Silverstone, Newcastle’s chief commercial officer, and Brad Miller, the chief operating officer, discuss the club's long-term strategy`\
+https://nytimes.com/athletic/5697574/2024/08/13/newcastle-sponsorship-saudi-stadium/
+
+**Ravens believe in their edge rush options despite slow start to training camp**\
+`Odafe Oweh, who has been a standout in camp and is expected to be a full-time starter this season, is one reason Baltimore isn't concerned.`\
+https://nytimes.com/athletic/5697122/2024/08/13/ravens-edge-rushers-training-camp/
+
+**Broncos 53-man roster prediction: Will Zach Wilson be part of a 3-QB room?**\
+`Sean Payton has called keeping all three quarterbacks on the 53-man roster "a possibility," and Wilson has made a strong case for his spot`\
+https://nytimes.com/athletic/5695872/2024/08/13/denver-broncos-roster-prediction-zach-wilson-training-camp/
+
+**I Am the Walrus but This Fossil Was Not**\
+`Although an extinct animal was from a different group of marine mammals, an examination of fossils showed it evolved a way of eating that was very similar to that of modern walruses.`\
+https://nytimes.com/2024/08/13/science/walrus-fossil.html
+
+**The Pulse: Post-Olympics superteam?**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5696783/2024/08/13/steph-curry-lebron-james-superteam-olympics-the-pulse/
+
 **Ukraine’s Surprise Attack**\
 `We explore why Ukraine is trying a new tactic two years into a stalemate with Russia.`\
 https://nytimes.com/2024/08/13/briefing/ukraine-russia-war-incursion.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/5696007/2024/08/13/bears-chris-beatty-dj-moore-keen
 **Steve Pagliuca on Boston Celtics, Atalanta and feeling 'like the Ted Lasso of Italy'**\
 `This year, Atalanta won the Europa League to end a trophy drought dating since 1963 the Celtics ended a 16-year wait for an 18th NBA title`\
 https://nytimes.com/athletic/5695422/2024/08/13/pagliuca-atalanta-boston-celtics-guardiola-mazzulla/
-
-**2025 NFL Draft summer scouting: Which linebackers could be on the radar this season?**\
-`The first off-ball linebacker didn't hear his name called until pick 45 of the 2024 NFL Draft. Can the 2025 LB class top that performance?`\
-https://nytimes.com/athletic/5695786/2024/08/13/nfl-draft-2025-linebackers-harold-perkins/
-
-**Harris Takes the Lead in Key States**\
-`Surveys of Michigan, Pennsylvania and Wisconsin taken this month show the momentum of the vice president’s campaign.`\
-https://nytimes.com/2024/08/13/podcasts/the-daily/harris-polls-lead.html
-
-**Remco Evenepoel - My Golds In My Words**\
-`The first male cyclist to win both the time trial and the road race at the Olympics explains how he did it and what it means to Belgium`\
-https://nytimes.com/athletic/5696235/2024/08/13/remco-evenepoel-how-he-won-olympic-golds/
-
-**New Details on Gaza Cease-Fire Obstacles, and Musk Interviews Trump**\
-`Plus, scenes after a Ukrainian attack in Russia.`\
-https://nytimes.com/2024/08/13/podcasts/gaza-cease-fire-musk-trump.html
-
-**The Connections Companion No. 430**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 14, 2024.`\
-https://nytimes.com/2024/08/13/crosswords/connections-companion-430.html
-
-**Chiefs rookie fullback Carson Steele gaining yards, fans in bid for roster spot**\
-`Steele, an undrafted rookie, led the Chiefs with 29 rushing yards on four attempts, including a touchdown, against the Jaguars.`\
-https://nytimes.com/athletic/5697152/2024/08/13/carson-steele-chiefs-rookie-fullback/
-
-**Wordle Review No. 1,152**\
-`Scroll down for hints and conversation about the puzzle for Day of Week, Date, Year.`\
-https://nytimes.com/2024/08/13/crosswords/wordle-review-1152.html
 
