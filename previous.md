@@ -1,3 +1,7 @@
+**Twins' Zebby Matthews propelled to majors by development program: 'Everybody's dream'**\
+`Matthews barely walks anyone and has added 3 mph to his fastball since the Twins drafted him.`\
+https://nytimes.com/athletic/5697366/2024/08/12/twins-zebby-matthews/
+
 **Trump Regales Elon Musk With Familiar Falsehoods**\
 `Fact-checking Donald Trump’s claims about immigration, Vice President Kamala Harris, President Biden and more.`\
 https://nytimes.com/2024/08/12/us/politics/trump-musk-x-fact-check.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5697132/2024/08/12/jarren-duran-slur-boston-red-sox
 **As Astros' outfield dilemma continues, Zach Dezenzo enters the picture**\
 `Kyle Tucker did defensive drills before Monday's game, taking turns with Dezenzo. Could the recently promoted rookie see time in left field?`\
 https://nytimes.com/athletic/5697209/2024/08/12/astros-zach-dezenzo-outfield/
-
-**Vikings hold J.J. McCarthy out of practice due to sore knee**\
-`The Vikings are holding the rookie quarterback, who played well in his preseason debut, out of practice while he undergoes further testing.`\
-https://nytimes.com/athletic/5697219/2024/08/12/jj-mccarthy-minnesota-vikings-injury/
 
