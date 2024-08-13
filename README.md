@@ -1,3 +1,7 @@
+**Crystal Palace's summer: Silverware, suitors and sweat as Glasner 'pushes players to the limit'**\
+`The Austrian has set a standard in pre-season as Palace look to hit the ground running despite the vultures circling their talented squad`\
+https://nytimes.com/athletic/5691125/2024/08/13/crystal-palace-glasner-preseason-guehi-andersen-eze/
+
 **Alvarez's departure from Manchester City has elicited mere shrugs - but is that fair?**\
 `The Argentinian was a valuable asset for the club and always stepped up when needed yet there is very little emotion as he leaves for Spain`\
 https://nytimes.com/athletic/5696306/2024/08/13/julian-alvarez-manchester-city-departure/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5695766/2024/08/13/premier-league-tactical-developm
 **Ten Premier League players to re-watch in 2024-25**\
 `New signings generate the most excitement, but there are plenty of players who have gone nowhere and yet are worth a second watch`\
 https://nytimes.com/athletic/5695833/2024/08/13/ten-premier-league-players-rewatch/
-
-**Is this Arda Guler's time to shine? Real Madrid are cautiously optimistic**\
-`Guler missed 145 days of action last season after a series of injury setbacks. But he's a changed player now`\
-https://nytimes.com/athletic/5695571/2024/08/13/arda-guler-real-madrid-turkey/
 
