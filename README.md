@@ -22,7 +22,7 @@ https://nytimes.com/interactive/2024/08/13/smarter-living/wirecutter/best-dishwa
 `The Giants' five projected starters for the season opener still have not taken a single practice rep together.`\
 https://nytimes.com/athletic/5697380/2024/08/13/new-york-giants-offensive-line-training-camp/
 
-**Palmer signs two-year Chelsea contract extension**\
+**Palmer signs two-year Chelsea contract extension until 2033**\
 `Cole Palmer has signed a two-year contract extension at Chelsea until June 2033.`\
 https://nytimes.com/athletic/5698094/2024/08/13/cole-palmer-chelsea-new-contract/
 
