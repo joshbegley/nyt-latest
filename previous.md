@@ -1,3 +1,7 @@
+**U.A.W. files labor charges against Trump and Musk over interview.**\
+`By Tim Balk`\
+https://nytimes.com/live/2024/08/13/us/harris-trump-election/uaw-files-labor-charges-against-trump-and-musk-over-interview
+
 **Eagles-Patriots practice: Cooper DeJean makes an appearance, Jalen Hurts impresses, and more**\
 `Plus, Darian Kinnard takes a step up on the offensive line.`\
 https://nytimes.com/athletic/5698767/2024/08/13/eagles-patriots-joint-practice-cooper-dejean-jalen-hurts/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/13/us/politics/harris-walz-milwaukee-rally-dnc.html
 **As Gaza Talks Near, Diplomats Try to Keep War From Spreading**\
 `Hopes for a breakthrough were damped after Hamas said it would not attend the peace talks set for Thursday.`\
 https://nytimes.com/2024/08/13/world/middleeast/gaza-peace-talks.html
-
-**Vienna Bids Farewell to Magnate Who Brought Stars to Its Opera Ball**\
-`Sophia Loren, Kim Kardashian, Priscilla Presley and Jane Fonda were among the stars Richard Lugner enticed, and often paid, to appear at the Vienna Opera Ball.`\
-https://nytimes.com/2024/08/13/arts/music/richard-lugner-celebrities-vienna-opera-ball.html
 

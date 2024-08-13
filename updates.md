@@ -1,3 +1,7 @@
+**U.A.W. files labor charges against Trump and Musk over interview.**\
+`By Tim Balk`\
+https://nytimes.com/live/2024/08/13/us/harris-trump-election/uaw-files-labor-charges-against-trump-and-musk-over-interview
+
 **Eagles-Patriots practice: Cooper DeJean makes an appearance, Jalen Hurts impresses, and more**\
 `Plus, Darian Kinnard takes a step up on the offensive line.`\
 https://nytimes.com/athletic/5698767/2024/08/13/eagles-patriots-joint-practice-cooper-dejean-jalen-hurts/
