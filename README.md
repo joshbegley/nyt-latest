@@ -1,3 +1,7 @@
+**Aaron Wan-Bissaka to West Ham: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate right-back Wan-Bissaka's move to West Ham from Old Trafford`\
+https://nytimes.com/athletic/5665424/2024/08/13/aaron-wan-bissaka-to-west-ham-transfer-ratings/
+
 **West Ham sign Wan-Bissaka from Man Utd**\
 `West Ham United have completed the signing of Aaron Wan-Bissaka from Manchester United.`\
 https://nytimes.com/athletic/5695555/2024/08/13/aaron-wan-bissaka-west-ham-man-utd/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/13/briefing/ukraine-russia-war-incursion.html
 **Why the Bears are excited about WRs coach Chris Beatty: 'He makes people better'**\
 `Get to know Beatty, whose connections to DJ Moore and Keenan Allen should only help the Bears' talented receivers room.`\
 https://nytimes.com/athletic/5696007/2024/08/13/bears-chris-beatty-dj-moore-keenan-allen/
-
-**Steve Pagliuca on Boston Celtics, Atalanta and feeling 'like the Ted Lasso of Italy'**\
-`This year, Atalanta won the Europa League to end a trophy drought dating since 1963 the Celtics ended a 16-year wait for an 18th NBA title`\
-https://nytimes.com/athletic/5695422/2024/08/13/pagliuca-atalanta-boston-celtics-guardiola-mazzulla/
 
