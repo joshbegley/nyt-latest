@@ -1,6 +1,6 @@
 **Musk Tees Up Softball Questions for Trump on X, After Technical Problems**\
 `Elon Musk offered frequent praise as he proved a sympathetic partner to help amplify Donald J. Trump’s views on a social-media platform that once barred him for pushing his false election claims.`\
-https://nytimes.com/live/2024/08/12/us/harris-trump-election/trump-elon-musk-x-spaces
+https://nytimes.com/2024/08/12/us/politics/trump-elon-musk-x-spaces.html
 
 **The Unraveling of a Crypto Dream**\
 `Brock Pierce arrived in Puerto Rico seven years ago, promising to use crypto magic to revitalize the local economy. Now he’s mired in legal disputes and fighting with his business partners.`\
