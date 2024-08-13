@@ -1,3 +1,7 @@
+**Parts of Canada’s Boreal Forest Are Burning Faster Than They Can Regrow**\
+`The delicate balance of one the planet’s largest natural systems for storing carbon depends on the humble black spruce tree.`\
+https://nytimes.com/interactive/2024/08/12/climate/canada-wildfires.html
+
 **Cutting Jarren Duran some slack ceases to be option. He needs to lose T-shirt and grow up**\
 `On a day Duran needed to show contrition and try to make things right for his homophobic slur, it was hard to get past “(Expletive) ‘Em."`\
 https://nytimes.com/athletic/5697132/2024/08/12/jarren-duran-slur-boston-red-sox/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/12/world/europe/russia-ukraine-kursk-incursion.html
 **Robert F. Kennedy Jr. Cannot Appear on New York Ballot, Judge Rules**\
 `The ruling was a blow to Mr. Kennedy’s independent campaign for president. The judge said that he had used a “sham” address to claim residency in New York.`\
 https://nytimes.com/2024/08/12/nyregion/robert-f-kennedy-jr-new-york-residency.html
-
-**Paul Bucha, Medal of Honor Winner With a Political Voice, Dies at 80**\
-`His quick thinking saved fellow soldiers in Vietnam. Later, he had a role in the presidential runs of Ross Perot, George H.W. Bush and Barack Obama.`\
-https://nytimes.com/2024/08/12/us/paul-bucha-dead.html
 
