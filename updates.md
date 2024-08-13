@@ -1,3 +1,15 @@
+**Fulham submit improved offer for Andersen**\
+`Fulham have submitted an improved offer to sign defender Joachim Andersen from Crystal Palace.`\
+https://nytimes.com/athletic/5694083/2024/08/13/joachim-andersen-fulham-crystal-palace/
+
+**Commanders signing Martavis Bryant adds size, intrigue to uncertain WR room**\
+`The 32-year-old receiver hasn't played in an NFL game since 2018. `\
+https://nytimes.com/athletic/5698167/2024/08/13/washington-commanders-sign-martavis-bryant/
+
+**Tapestries Are No Longer Just for Gothic Castles**\
+`Leafy antique wall hangings are having a resurgence in the design world, showing up in even the most modern rooms.`\
+https://nytimes.com/2024/08/13/t-magazine/wall-tapestry-tips.html
+
 **Greek Wildfire Burns Homes and Buildings**\
 `In Vrilissia, a suburb north of Athens, a local resident described how the wildfires destroyed his home and all his belongings.`\
 https://nytimes.com/video/world/europe/100000009626680/greece-wildfire-athens-destruction.html
