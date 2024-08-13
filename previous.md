@@ -1,3 +1,11 @@
+**What led to Blues’ offer sheets for Broberg, Holloway and why Oilers made themselves susceptible**\
+`The Oilers have a week to match the Blues' two offer sheets for Broberg and Holloway.`\
+https://nytimes.com/athletic/5698010/2024/08/13/blues-oilers-broberg-holloway-nhl-offer-sheets/
+
+**Noussair Mazraoui to Manchester United: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Noussair Mazraoui's move to Manchester United`\
+https://nytimes.com/athletic/5658403/2024/08/13/noussair-mazraoui-to-man-united-transfer-ratings/
+
 **Frank Selvy, 91, Dies; Scored 100 Points in a College Basketball Game**\
 `The feat, a collegiate record, came in 1954 in South Carolina. As a pro, he missed a shot that would have given the Los Angeles Lakers a championship.`\
 https://nytimes.com/2024/08/13/sports/basketball/frank-selvy-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/13/world/africa/tanzania-arrests-520-people-crackdow
 **Carvajal criticises schedule ahead of UEFA Super Cup**\
 `Real Madrid defender Dani Carvajal says the current football calendar is &#8220;harming&#8221; players ahead of the UEFA Super Cup on Wednesday evening.`\
 https://nytimes.com/athletic/5698795/2024/08/13/dani-carvajal-uefa-super-cup/
-
-**Titans' Will Levis unveils mayonnaise-inspired fragrance**\
-`Dubbed Will Levis No. 8, the new fragrance leans on his love of mayonnaise, which dates back to his college days at Kentucky.`\
-https://nytimes.com/athletic/5698787/2024/08/13/titans-will-levis-cologne-mayonnaise/
-
-**Why Presidents Should Keep Their Hands Off the Fed**\
-`The pragmatic case for central bank independence.`\
-https://nytimes.com/2024/08/13/opinion/federal-reserve-politics-independent.html
 

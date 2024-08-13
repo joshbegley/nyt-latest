@@ -1,3 +1,11 @@
+**What led to Blues’ offer sheets for Broberg, Holloway and why Oilers made themselves susceptible**\
+`The Oilers have a week to match the Blues' two offer sheets for Broberg and Holloway.`\
+https://nytimes.com/athletic/5698010/2024/08/13/blues-oilers-broberg-holloway-nhl-offer-sheets/
+
+**Noussair Mazraoui to Manchester United: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Noussair Mazraoui's move to Manchester United`\
+https://nytimes.com/athletic/5658403/2024/08/13/noussair-mazraoui-to-man-united-transfer-ratings/
+
 **Frank Selvy, 91, Dies; Scored 100 Points in a College Basketball Game**\
 `The feat, a collegiate record, came in 1954 in South Carolina. As a pro, he missed a shot that would have given the Los Angeles Lakers a championship.`\
 https://nytimes.com/2024/08/13/sports/basketball/frank-selvy-dead.html
