@@ -1,3 +1,15 @@
+**The Football Scientist's overvalued ADPs: Derrick Henry, Marvin Harrison Jr. and more**\
+`KC Joyner weighs his advanced metric-driven rankings vs. current ADP values to find players, like Marvin Harrison Jr., who are too pricey. `\
+https://nytimes.com/athletic/5697448/2024/08/13/overvalued-players-adp-2024-fantasy-football/
+
+**FPL: Why should you back 'the template'**\
+`If you're not sure about 'the template' in FPL or whether to use it, then here is our explanation…`\
+https://nytimes.com/athletic/5655100/2024/08/13/fantasy-premier-league-the-template/
+
+**Musk Tees Up Softball Questions for Trump on X, After Technical Problems**\
+`Elon Musk offered frequent praise as he proved a sympathetic partner to help amplify Donald J. Trump’s views on a social-media platform that once barred him for pushing his false election claims.`\
+https://nytimes.com/2024/08/12/us/politics/trump-elon-musk-x-spaces.html
+
 **Musk Tees Up Softball Questions for Trump on X, After Technical Problems**\
 `Elon Musk offered frequent praise as he proved a sympathetic partner to help amplify Donald J. Trump’s views on a social-media platform that once barred him for pushing his false election claims.`\
 https://nytimes.com/live/2024/08/12/us/harris-trump-election/trump-elon-musk-x-spaces
