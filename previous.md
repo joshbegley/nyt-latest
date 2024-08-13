@@ -1,3 +1,11 @@
+**On the 75th anniversary of the Geneva Conventions, the war in Gaza resonates.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/08/13/world/israel-iran-hamas-gaza-war/on-the-75th-anniversary-of-the-geneva-conventions-the-war-in-gaza-resonates
+
+**Mandel's refresher on everything that's changed in CFB, just in time for kickoff**\
+`Need a catch-up on where things stand in college football before kickoff? We've got you covered. `\
+https://nytimes.com/athletic/5696360/2024/08/13/college-football-2024-season-preview-guide/
+
 **NBA’s best offseason moves by team: From Grizzlies to Heat, Nos. 30-21**\
 `The first in our three-part series examining every team's offseason transactions and how they set up the franchise for next season.`\
 https://nytimes.com/athletic/5626813/2024/08/13/nba-offseason-rankings-2024-lakers-clippers-suns-heat/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/13/realestate/gallery-wall-art-diy.html
 **The Google Antitrust Case Must Not End With a Slap on the Wrist**\
 `A federal judge has ruled Google has a monopoly on online search and has been illegally defending that monopoly for years. But what should the remedy be?`\
 https://nytimes.com/2024/08/13/opinion/google-antitrust-remedy.html
-
-**Do Robots Love Their Customers? Automated Restaurants Face Human Issues.**\
-`Technology promises cost savings, but it turns out the dining experience is all about feelings.`\
-https://nytimes.com/2024/08/13/dining/ai-robots-restaurants.html
-
-**A Sports Agent Went Viral. He Isn’t Ready to Fade Away.**\
-`Sean Stellato rocketed to fame through a mix of outlandish clothes, an outsize personality and an embrace of the N.F.L.’s underdogs. He is sticking with what worked.`\
-https://nytimes.com/2024/08/13/style/sean-stellato-agent.html
 

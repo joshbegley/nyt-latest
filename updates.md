@@ -1,3 +1,11 @@
+**On the 75th anniversary of the Geneva Conventions, the war in Gaza resonates.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/08/13/world/israel-iran-hamas-gaza-war/on-the-75th-anniversary-of-the-geneva-conventions-the-war-in-gaza-resonates
+
+**Mandel's refresher on everything that's changed in CFB, just in time for kickoff**\
+`Need a catch-up on where things stand in college football before kickoff? We've got you covered. `\
+https://nytimes.com/athletic/5696360/2024/08/13/college-football-2024-season-preview-guide/
+
 **NBA’s best offseason moves by team: From Grizzlies to Heat, Nos. 30-21**\
 `The first in our three-part series examining every team's offseason transactions and how they set up the franchise for next season.`\
 https://nytimes.com/athletic/5626813/2024/08/13/nba-offseason-rankings-2024-lakers-clippers-suns-heat/
