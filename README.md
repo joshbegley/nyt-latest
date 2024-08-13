@@ -1,3 +1,23 @@
+**Yankees' Jazz Chisholm Jr. has UCL injury and surgery has not been ruled out**\
+`While Chisholm's out, the Yankees have multiple options for how they can proceed at third base without him.`\
+https://nytimes.com/athletic/5699439/2024/08/13/yankees-jazz-chisholm-jr-ucl-injury/
+
+**Penguins acquire Cody Glass from Predators**\
+`Glass has one year remaining on his contract and will earn $2.5 million during the 2024-25 season.`\
+https://nytimes.com/athletic/5699467/2024/08/13/penguins-cody-glass-predators-trade/
+
+**President Biden Announces $150 Million in Cancer Research Grants**\
+`President Biden said eight research centers would receive research awards aimed at pioneering new methods of precision cancer surgery as part of his administration’s cancer “moonshoot” initiative.`\
+https://nytimes.com/video/us/politics/100000009628074/biden-cancer-moonshot-research.html
+
+**Saving Australian Crocodiles by Yucking Their Yum**\
+`The aquatic reptiles cannot resist eating invasive toads that are toxic, so scientists gave the crocodiles a dose of nonlethal food poisoning to adjust their behavior.`\
+https://nytimes.com/2024/08/13/science/crocodiles-cane-toads-bait-australia.html
+
+**Naftali Bennett Needs to Topple Two Regimes**\
+`The former prime minister sees Israel threatened by Netanyahu and Iran.`\
+https://nytimes.com/2024/08/13/opinion/israel-iran-bennett-netanyahu.html
+
 **Let Jordan Chiles Keep Her Bronze Medal**\
 `But give the Romanians medals, too.`\
 https://nytimes.com/live/2024/08/13/opinion/thepoint/jordan-chiles-bronze-medal
@@ -17,24 +37,4 @@ https://nytimes.com/2024/08/13/well/mind/mental-health-young-adults-trends.html
 **Tiny Love Stories: ‘My Father, Autistic Like Me’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/08/13/style/tiny-modern-love-stories-my-father-autistic-like-me.html
-
-**Lightning in discussions to expand ownership group**\
-`Vinik sold a minority share of the team to Arctos Sports Partners in January 2022.`\
-https://nytimes.com/athletic/5699409/2024/08/13/lightning-ownership-group-operations/
-
-**Israel draws global condemnation after a cabinet minister’s proclamations at a holy site.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/08/13/world/israel-iran-hamas-gaza-war/israel-draws-global-condemnation-after-a-cabinet-ministers-proclamations-at-a-holy-site
-
-**Greenberg: Danny Parkins leaving Chicago sports radio for FS1. Who will replace him?**\
-`Now that we're free of the “Danny Parkins Curse,” you know what that means. It's time to start planning parades for Chicago's sports teams.`\
-https://nytimes.com/athletic/5698417/2024/08/13/danny-parkins-leaving-chicago-radio-fs1/
-
-**Asian American Voters Could Be Key Swing Voters of 2024**\
-`The diverse group is turning out in record numbers. Neither party can take its support for granted.`\
-https://nytimes.com/2024/08/13/us/politics/asian-american-voters-election.html
-
-**Biden Awards $150 Million in Research Grants as Part of Cancer ‘Moonshot’**\
-`President Biden has had a deep personal interest in cancer research since his son Beau died of an aggressive brain cancer in 2015.`\
-https://nytimes.com/2024/08/13/us/politics/biden-research-cancer-moonshot.html
 
