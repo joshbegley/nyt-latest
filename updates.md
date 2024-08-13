@@ -1,3 +1,19 @@
+**Greek Wildfire Burns Homes and Buildings**\
+`In Vrilissia, a suburb north of Athens, a local resident described how the wildfires destroyed his home and all his belongings.`\
+https://nytimes.com/video/world/europe/100000009626680/greece-wildfire-athens-destruction.html
+
+**Browns rookie Mike Hall Jr. expected to be arrested following domestic dispute: Sources**\
+`The Browns drafted Hall at No. 54 in the second round last April.`\
+https://nytimes.com/athletic/5698135/2024/08/13/browns-mike-hall-jr-arrest/
+
+**Palmer signs two-year Chelsea contract extension until 2033**\
+`Cole Palmer has signed a two-year contract extension at Chelsea until June 2033.`\
+https://nytimes.com/athletic/5698094/2024/08/13/cole-palmer-chelsea-new-contract/
+
+**Blues sign Oilers' Broberg, Holloway to offer sheets**\
+`The Blues have tendered offer sheets to Edmonton's Philip Broberg and Dylan Holloway. The Oilers have a week to match. `\
+https://nytimes.com/athletic/5698081/2024/08/13/blues-dylan-holloway-philip-broberg-oilers/
+
 **Inflation: Put a Pork in It**\
 `Why Trump is wrong about the price of bacon.`\
 https://nytimes.com/live/2024/08/07/opinion/thepoint/krugman-inflation-bacon-trump
