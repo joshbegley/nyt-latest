@@ -1,3 +1,7 @@
+**Ream targeting 2026 World Cup after signing for Charlotte FC**\
+`Tim Ream is targeting a place in the USMNT squad for the 2026 World Cup after completing his return to the MLS with Charlotte FC.`\
+https://nytimes.com/athletic/5698901/2024/08/13/tim-ream-world-cup-2026-usmnt/
+
 **Tanzania Arrests 520 People in Mass Opposition Crackdown**\
 `The clampdown came after the police banned a youth rally and pointed to the anti-government protests that have swept neighboring Kenya in recent months.`\
 https://nytimes.com/2024/08/13/world/africa/tanzania-arrests-520-people-crackdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5698724/2024/08/13/jordan-chiles-olympic-gymnastics
 **Seven People Charged After Breaking Into Israeli Arms Company’s U.K. Site**\
 `Prosecutors argued in court that a group of pro-Palestinian activists who vandalized a site belonging to Elbit, an Israeli arms manufacturer, had committed offenses with a “terrorist connection.”`\
 https://nytimes.com/2024/08/13/world/europe/israeli-arms-company-break-in.html
-
-**Lessons From a Burning Forest**\
-`Canada’s boreal forests are burning faster than they can regrow, but controlled fires may be one of the best ways to protect local communities.`\
-https://nytimes.com/2024/08/13/climate/lessons-from-a-burning-forest.html
 

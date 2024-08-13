@@ -1,3 +1,7 @@
+**Ream targeting 2026 World Cup after signing for Charlotte FC**\
+`Tim Ream is targeting a place in the USMNT squad for the 2026 World Cup after completing his return to the MLS with Charlotte FC.`\
+https://nytimes.com/athletic/5698901/2024/08/13/tim-ream-world-cup-2026-usmnt/
+
 **Tanzania Arrests 520 People in Mass Opposition Crackdown**\
 `The clampdown came after the police banned a youth rally and pointed to the anti-government protests that have swept neighboring Kenya in recent months.`\
 https://nytimes.com/2024/08/13/world/africa/tanzania-arrests-520-people-crackdown.html
