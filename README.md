@@ -1,3 +1,7 @@
+**Let Jordan Chiles Keep Her Bronze Medal**\
+`But give the Romanians medals, too.`\
+https://nytimes.com/live/2024/08/13/opinion/thepoint/jordan-chiles-bronze-medal
+
 **Walz Forcefully Defends Military Record in First Solo Campaign Stop**\
 `Donald J. Trump’s campaign has accused Gov. Tim Walz of Minnesota, Vice President Kamala Harris’s running mate, of exaggerating his service in 2018 remarks. The Harris campaign has said he misspoke.`\
 https://nytimes.com/2024/08/13/us/politics/tim-walz-military-record.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/13/us/politics/asian-american-voters-election.html
 **Biden Awards $150 Million in Research Grants as Part of Cancer ‘Moonshot’**\
 `President Biden has had a deep personal interest in cancer research since his son Beau died of an aggressive brain cancer in 2015.`\
 https://nytimes.com/2024/08/13/us/politics/biden-research-cancer-moonshot.html
-
-**U.A.W. files labor charges against Trump and Musk over interview.**\
-`The United Automobile Workers union accused the pair of threatening workers during their livestreamed conversation on Monday.`\
-https://nytimes.com/2024/08/13/us/politics/uaw-trump-musk-charges.html
 

@@ -1,3 +1,11 @@
+**Walz Forcefully Defends Military Record in First Solo Campaign Stop**\
+`Donald J. Trump’s campaign has accused Gov. Tim Walz of Minnesota, Vice President Kamala Harris’s running mate, of exaggerating his service in 2018 remarks. The Harris campaign has said he misspoke.`\
+https://nytimes.com/2024/08/13/us/politics/tim-walz-military-record.html
+
+**Bengals' Ja'Marr Chase absent from camp amid contract talks**\
+`Chase is in the fourth year of his rookie contract and the team has already exercised the fifth-year option for 2025.`\
+https://nytimes.com/athletic/5699406/2024/08/13/jamarr-chase-bengals-absence-contract/
+
 **Are We Thinking About the Youth Mental Health Crisis All Wrong?**\
 `Global trends in economics, climate and technology are weighing on young adults, a report finds. It recommends overhauling how we approach mental health care.`\
 https://nytimes.com/2024/08/13/well/mind/mental-health-young-adults-trends.html

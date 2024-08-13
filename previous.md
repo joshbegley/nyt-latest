@@ -1,3 +1,11 @@
+**Walz Forcefully Defends Military Record in First Solo Campaign Stop**\
+`Donald J. Trump’s campaign has accused Gov. Tim Walz of Minnesota, Vice President Kamala Harris’s running mate, of exaggerating his service in 2018 remarks. The Harris campaign has said he misspoke.`\
+https://nytimes.com/2024/08/13/us/politics/tim-walz-military-record.html
+
+**Bengals' Ja'Marr Chase absent from camp amid contract talks**\
+`Chase is in the fourth year of his rookie contract and the team has already exercised the fifth-year option for 2025.`\
+https://nytimes.com/athletic/5699406/2024/08/13/jamarr-chase-bengals-absence-contract/
+
 **Are We Thinking About the Youth Mental Health Crisis All Wrong?**\
 `Global trends in economics, climate and technology are weighing on young adults, a report finds. It recommends overhauling how we approach mental health care.`\
 https://nytimes.com/2024/08/13/well/mind/mental-health-young-adults-trends.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/13/us/politics/biden-research-cancer-moonshot.html
 **U.A.W. files labor charges against Trump and Musk over interview.**\
 `The United Automobile Workers union accused the pair of threatening workers during their livestreamed conversation on Monday.`\
 https://nytimes.com/2024/08/13/us/politics/uaw-trump-musk-charges.html
-
-**Eagles-Patriots practice: Cooper DeJean makes an appearance, Jalen Hurts impresses, and more**\
-`Plus, Darian Kinnard takes a step up on the offensive line.`\
-https://nytimes.com/athletic/5698767/2024/08/13/eagles-patriots-joint-practice-cooper-dejean-jalen-hurts/
-
-**Arizona and Missouri Will Vote on Abortion in November**\
-`Also, Hamas said it would not participate in new truce talks. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2024/08/13/briefing/arizona-missouri-abortion-measures-cease-fire-talks.html
 
