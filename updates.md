@@ -1,3 +1,7 @@
+**Let Jordan Chiles Keep Her Bronze Medal**\
+`But give the Romanians medals, too.`\
+https://nytimes.com/live/2024/08/13/opinion/thepoint/jordan-chiles-bronze-medal
+
 **Walz Forcefully Defends Military Record in First Solo Campaign Stop**\
 `Donald J. Trump’s campaign has accused Gov. Tim Walz of Minnesota, Vice President Kamala Harris’s running mate, of exaggerating his service in 2018 remarks. The Harris campaign has said he misspoke.`\
 https://nytimes.com/2024/08/13/us/politics/tim-walz-military-record.html
