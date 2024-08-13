@@ -1,3 +1,7 @@
+**Titans' Will Levis unveils mayonnaise-inspired fragrance**\
+`Dubbed Will Levis No. 8, the new fragrance leans on his love of mayonnaise, which dates back to his college days at Kentucky.`\
+https://nytimes.com/athletic/5698787/2024/08/13/titans-will-levis-cologne-mayonnaise/
+
 **Why Presidents Should Keep Their Hands Off the Fed**\
 `The pragmatic case for central bank independence.`\
 https://nytimes.com/2024/08/13/opinion/federal-reserve-politics-independent.html

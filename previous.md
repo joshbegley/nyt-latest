@@ -1,3 +1,7 @@
+**Titans' Will Levis unveils mayonnaise-inspired fragrance**\
+`Dubbed Will Levis No. 8, the new fragrance leans on his love of mayonnaise, which dates back to his college days at Kentucky.`\
+https://nytimes.com/athletic/5698787/2024/08/13/titans-will-levis-cologne-mayonnaise/
+
 **Why Presidents Should Keep Their Hands Off the Fed**\
 `The pragmatic case for central bank independence.`\
 https://nytimes.com/2024/08/13/opinion/federal-reserve-politics-independent.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5698732/2024/08/13/manchester-city-charges-masters-
 **Walk On returns for the new season**\
 `The much-loved Liverpool podcast is back to its usual capacity for the new season.`\
 https://nytimes.com/athletic/5695471/2024/08/13/walk-on-best-liverpool-podcast-the-athletic/
-
-**9 Great Songs Recorded at Electric Lady Studios**\
-`A new documentary spotlights the Greenwich Village creative hub. Listen to tracks by Jimi Hendrix, Patti Smith, Frank Ocean and more that were recorded there.`\
-https://nytimes.com/2024/08/13/arts/music/amplifier-newsletter-electric-lady-studios.html
 
