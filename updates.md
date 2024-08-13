@@ -1,3 +1,11 @@
+**Vienna Bids Farewell to Magnate Who Brought Stars to Its Opera Ball**\
+`Sophia Loren, Kim Kardashian, Priscilla Presley and Jane Fonda were among the stars Richard Lugner enticed, and often paid, to appear at the Vienna Opera Ball.`\
+https://nytimes.com/2024/08/13/arts/music/richard-lugner-celebrities-vienna-opera-ball.html
+
+**Jordan Love working on the deep ball and more from Packers camp**\
+`The Packers practice twice in Green Bay this week before flying to Denver for joint practice with the Broncos on Friday.`\
+https://nytimes.com/athletic/5698853/2024/08/13/jordan-love-packers-training-camp/
+
 **Hamas sends a signal that a breakthrough is unlikely in negotiations.**\
 `By Adam Rasgon and Hwaida Saad`\
 https://nytimes.com/live/2024/08/13/world/israel-iran-hamas-gaza-war/hamas-sends-the-signal-a-breakthrough-is-unlikely-in-negotiations
