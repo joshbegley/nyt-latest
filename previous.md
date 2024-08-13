@@ -1,3 +1,7 @@
+**Trump regales Elon Musk with familiar falsehoods.**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/12/us/harris-trump-election/trump-musk-x-fact-check
+
 **Former Pro-Trump County Clerk Is Found Guilty of Tampering With Voting Machines**\
 `She could face multiple years in prison when she is sentenced in October.`\
 https://nytimes.com/2024/08/12/us/politics/tina-peters-guilty-voting-machine-tampering.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5697209/2024/08/12/astros-zach-dezenzo-outfield/
 **Vikings hold J.J. McCarthy out of practice due to sore knee**\
 `The Vikings are holding the rookie quarterback, who played well in his preseason debut, out of practice while he undergoes further testing.`\
 https://nytimes.com/athletic/5697219/2024/08/12/jj-mccarthy-minnesota-vikings-injury/
-
-**How Amarius Mims' injury exposes mass of options for Bengals' offensive line**\
-`Though the news of Mims' injury is tough to swallow, it creates competition all across the Bengals offensive line.`\
-https://nytimes.com/athletic/5697029/2024/08/12/cincinnati-bengals-amarius-mims-injury-preseason-training-camp/
 

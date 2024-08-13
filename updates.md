@@ -1,3 +1,7 @@
+**Trump regales Elon Musk with familiar falsehoods.**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/12/us/harris-trump-election/trump-musk-x-fact-check
+
 **Former Pro-Trump County Clerk Is Found Guilty of Tampering With Voting Machines**\
 `She could face multiple years in prison when she is sentenced in October.`\
 https://nytimes.com/2024/08/12/us/politics/tina-peters-guilty-voting-machine-tampering.html
