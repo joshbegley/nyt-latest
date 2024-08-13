@@ -1,3 +1,7 @@
+**Ukraine’s Surprise Attack**\
+`We explore why Ukraine is trying a new tactic two years into a stalemate with Russia.`\
+https://nytimes.com/2024/08/13/briefing/ukraine-russia-war-incursion.html
+
 **Remco Evenepoel - My Golds In My Words**\
 `The first male cyclist to win both the time trial and the road race at the Olympics explains how he did it and what it means to Belgium`\
 https://nytimes.com/athletic/5696235/2024/08/13/remco-evenepoel-how-he-won-olympic-golds/
