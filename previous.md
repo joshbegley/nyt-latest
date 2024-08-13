@@ -1,3 +1,15 @@
+**Nizuc Brings a Mexico City-Inspired Spread to a Sprawling Space**\
+`Costa serves Mediterranean on the Upper East Side, Lucky’s Steakhouse opens a location in NoLIta and more.`\
+https://nytimes.com/2024/08/13/dining/nizuc-mexico-city-food.html
+
+**Google Debuts A.I.-Powered Phones in Latest Attempt to Best the iPhone**\
+`The internet giant unveiled the next generation of Pixel phones, headphones and watches to stand out in a hardware market that has mostly ignored it.`\
+https://nytimes.com/2024/08/13/technology/google-pixel-9.html
+
+**It’s Week Two of Our August Grilling Challenge**\
+`This week: the recipes (cucumber-avocado salad, ranch water) and gear (chic tumblers, mosquito repellent) you need to throw a crazy-good cookout.`\
+https://nytimes.com/2024/08/13/dining/its-week-two-of-our-august-grilling-challenge.html
+
 **Lions observations: Cornerback depth thins, Levi Onwuzurike trending up, and more**\
 `Three defensive backs have missed or left practice with injuries.`\
 https://nytimes.com/athletic/5698272/2024/08/13/detroit-lions-observations-jahmyr-gibbs-cornerback-levi-onwuzurike/
@@ -18,23 +30,11 @@ https://nytimes.com/live/2024/08/13/us/harris-trump-election/the-police-say-a-ma
 `With an opera at the Salzburg Festival and recordings on Deutsche Grammophon, the music of Mieczyslaw Weinberg may be taking root.`\
 https://nytimes.com/2024/08/13/arts/music/mieczyslaw-weinberg-composer.html
 
-**Head of Panel That Ruled Against Jordan Chiles Represented Romania in Other Cases**\
+**Head of Panel That Ruled Against Jordan Chiles Represents Romania in Other Cases**\
 `The decision outraged U.S. Olympic and gymnastics officials, and led to a torrent of online abuse against both Chiles and Ana Barbosu, the Romanian athlete who ended up with the bronze.`\
 https://nytimes.com/2024/08/13/world/europe/olympics-jordan-chiles.html
 
-**3 Video Games of the Summer**\
-`Wondering what video game to play next? Zachary Small, a culture reporter at The New York Times, recommends three of the best games of the summer.`\
-https://nytimes.com/video/arts/100000009619117/3-video-games-of-the-summer.html
-
-**Arizona Will Vote on Abortion in November: Could That Give Democrats an Edge?**\
-`The battleground state will vote on establishing abortion rights in the state constitution. Democrats have used the issue to turn out voters all over the country.`\
-https://nytimes.com/2024/08/13/us/arizona-abortion-rights-ballot-november.html
-
-**Araujo joins Bournemouth from Barcelona**\
-`AFC Bournemouth have completed the signing of Julian Araujo from Barcelona.`\
-https://nytimes.com/athletic/5698263/2024/08/13/bournemouth-sign-julian-araujo/
-
-**A History of Teeth That’s Chock-Full of Trivia to Chew On**\
-`Show the zoologist Bill Schutt what your mouth looks like, and he’ll tell you who you are.`\
-https://nytimes.com/2024/08/13/books/review/bite-bill-schutt.html
+**Vikings QB J.J. McCarthy to have surgery on torn meniscus**\
+`McCarthy underwent testing related to knee soreness after he reported the injury Monday afternoon.`\
+https://nytimes.com/athletic/5697219/2024/08/13/jj-mccarthy-minnesota-vikings-injury/
 
