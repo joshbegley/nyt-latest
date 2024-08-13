@@ -1,3 +1,11 @@
+**Araujo joins Bournemouth from Barcelona**\
+`AFC Bournemouth have completed the signing of Julian Araujo from Barcelona.`\
+https://nytimes.com/athletic/5698263/2024/08/13/bournemouth-sign-julian-araujo/
+
+**A History of Teeth That’s Chock-Full of Trivia to Chew On**\
+`Show the zoologist Bill Schutt what your mouth looks like, and he’ll tell you who you are.`\
+https://nytimes.com/2024/08/13/books/review/bite-bill-schutt.html
+
 **‘Industry’ Blends ‘Succession’ With ‘Grey’s Anatomy’**\
 `Set in the high-pressure world of investment banking, the series, now in Season 3, started out unremarkably but has since become appointment viewing.`\
 https://nytimes.com/2024/08/13/arts/television/industry-hbo-succession-greys-anatomy.html
