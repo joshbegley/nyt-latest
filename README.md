@@ -1,3 +1,7 @@
+**Dodgers right-hander River Ryan will undergo Tommy John surgery**\
+`Ryan becomes the third notable young Dodgers pitcher to undergo Tommy John surgery this season.`\
+https://nytimes.com/athletic/5698603/2024/08/13/dodgers-river-ryan-tommy-john/
+
 **Missy Elliott, Pop World Builder, Brings a Hip-Hop Fantasia to Brooklyn**\
 `For her first headlining tour in an innovative three-decade career, Elliott unleashed a relentless and exhilarating display of theatrical and visual ambition.`\
 https://nytimes.com/2024/08/13/arts/music/missy-elliott-out-of-this-world-tour-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/13/dining/its-week-two-of-our-august-grilling-challe
 **Lions observations: Cornerback depth thins, Levi Onwuzurike trending up, and more**\
 `Three defensive backs have missed or left practice with injuries.`\
 https://nytimes.com/athletic/5698272/2024/08/13/detroit-lions-observations-jahmyr-gibbs-cornerback-levi-onwuzurike/
-
-**The Risks of Experimenting With the Sun**\
-`Readers discuss an article about solar geoengineering. Also: Justice Neil Gorsuch; the Holocaust and A.I.; L.G.B.T.Q. tokenism; tips for travel.`\
-https://nytimes.com/2024/08/13/opinion/solar-geoengineering.html
 
