@@ -1,3 +1,7 @@
+**Mookie Betts is back, and more 'tough decisions' are coming for the Dodgers**\
+`Betts homered in his first game back as he returned to the familiar position of right field: "I'll be ready for whatever."`\
+https://nytimes.com/athletic/5697280/2024/08/12/dodgers-mookie-betts-amed-rosario/
+
 **Parts of Canada’s Boreal Forest Are Burning Faster Than They Can Regrow**\
 `The delicate balance of one the planet’s largest natural systems for storing carbon depends on the humble black spruce tree.`\
 https://nytimes.com/interactive/2024/08/12/climate/canada-wildfires.html
