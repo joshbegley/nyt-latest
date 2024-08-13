@@ -1,3 +1,19 @@
+**Musk Tees Up Softball Questions for Trump on X, After Technical Problems**\
+`Elon Musk offered frequent praise as he proved a sympathetic partner to help amplify Donald J. Trump’s views on a social-media platform that once barred him for pushing his false election claims.`\
+https://nytimes.com/live/2024/08/12/us/harris-trump-election/trump-elon-musk-x-spaces
+
+**The Unraveling of a Crypto Dream**\
+`Brock Pierce arrived in Puerto Rico seven years ago, promising to use crypto magic to revitalize the local economy. Now he’s mired in legal disputes and fighting with his business partners.`\
+https://nytimes.com/2024/08/13/technology/brock-pierce-crypto-puerto-rico.html
+
+**Tuesday's MLB odds, best bets: Predictions for pitching matchups, props, playoffs and more**\
+`See pitching matchups, playoff projections, win projections and more for Tuesday's MLB games.`\
+https://nytimes.com/athletic/5696797/2024/08/13/mlb-odds-best-bets-projections-august-13/
+
+**Can This Tiny Economy Show Europe How to Compete Again?**\
+`Sweden outperforms in tech, has a roster of $1 billion-plus start-ups and could be a model as the European Union refigures its growth policies.`\
+https://nytimes.com/2024/08/13/business/sweden-economy-europe-competitiveness.html
+
 **Tuesday Briefing**\
 `Russia’s response to a Ukrainian incursion.`\
 https://nytimes.com/2024/08/12/briefing/russia-ukraine-israel-trump-musk.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5697366/2024/08/12/twins-zebby-matthews/
 **Trump Regales Elon Musk With Familiar Falsehoods**\
 `Fact-checking Donald Trump’s claims about immigration, Vice President Kamala Harris, President Biden and more.`\
 https://nytimes.com/2024/08/12/us/politics/trump-musk-x-fact-check.html
-
-**Former Pro-Trump County Clerk Is Found Guilty of Tampering With Voting Machines**\
-`She could face multiple years in prison when she is sentenced in October.`\
-https://nytimes.com/2024/08/12/us/politics/tina-peters-guilty-voting-machine-tampering.html
-
-**Demolition Crew Tears Down Texas Church Where Gunman Killed 26**\
-`The move to raze the church in Sutherland Springs, which had served as a memorial to the victims of the 2017 massacre, came over objections from some in the community.`\
-https://nytimes.com/2024/08/12/us/sutherland-springs-church-demolition.html
-
-**Police Nab Fugitive Tortoise on Slow Run to Freedom**\
-`Arizona state troopers rescued Stitch, the giant sulcata tortoise, from an interstate highway after it escaped from its enclosure at a ranch.`\
-https://nytimes.com/2024/08/12/us/giant-tortoise-escape-arizona.html
-
-**Sutton Foster and Michael Urie Reunite in the Zany ‘Once Upon a Mattress’**\
-`The hit Encores! production has transferred to Broadway, with a cast fiercely dedicated to entertaining its audience.`\
-https://nytimes.com/2024/08/12/theater/once-upon-a-mattress-review.html
 
