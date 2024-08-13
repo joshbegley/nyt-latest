@@ -1,3 +1,15 @@
+**Can the Oilers afford to match offer sheets for Broberg and Holloway?**\
+`The Blues amped up the pressure in Edmonton with two offer sheets that throw a wrench right into their offseason`\
+https://nytimes.com/athletic/5698718/2024/08/13/philip-broberg-dylan-holloway-offer-sheets-oilers-blues/
+
+**Luke Shaw to miss start of 2024-25 season with calf injury**\
+`Luke Shaw will miss the start of Manchester United&#8217;s 2024-25 season due to a calf injury.`\
+https://nytimes.com/athletic/5698805/2024/08/13/luke-shaw-manchester-united-injury/
+
+**What we know about Jordan Chiles' Olympic bronze medal case and what comes next**\
+`Here’s everything we know about the floor exercise bronze medal situation so far and what could come next.`\
+https://nytimes.com/athletic/5698724/2024/08/13/jordan-chiles-olympic-gymnastics-bronze-medal-faq/
+
 **Seven People Charged After Breaking Into Israeli Arms Company’s U.K. Site**\
 `Prosecutors argued in court that a group of pro-Palestinian activists who vandalized a site belonging to Elbit, an Israeli arms manufacturer, had committed offenses with a “terrorist connection.”`\
 https://nytimes.com/2024/08/13/world/europe/israeli-arms-company-break-in.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5698632/2024/08/13/tom-lockyer-luton-training/
 **Progressive Coalition Shifts $25 Million Campaign to Back Kamala Harris**\
 `The groups are building a voter outreach effort around a unified message from the left targeting Democrats and independents in battleground states.`\
 https://nytimes.com/2024/08/13/us/politics/kamala-harris-progressive-ad-campaign.html
-
-**Until Saturday: Is the preseason No. 1 team cursed? Who has toughest travel?**\
-`Welcome to Until Saturday, the five-star college football newsletter: Breaking down the AP poll and who faces the toughest travel this year.`\
-https://nytimes.com/athletic/5697902/2024/08/13/texas-football-ap-poll-college-football-travel-until-saturday/
-
-**How Kamala Harris Found Her Footing in the Spotlight**\
-`The vice president long had a reputation as an uneven political messenger prone to missteps. That has steadily been changing.`\
-https://nytimes.com/interactive/2024/08/13/us/politics/kamala-harris-presence-videos.html
-
-**Who Is Brian Niccol, the Incoming Starbucks C.E.O. From Chipotle?**\
-`Mr. Niccol, whom the coffee chain poached from Chipotle, has emerged in recent years as a top leader in the restaurant industry.`\
-https://nytimes.com/2024/08/13/business/brian-niccol-starbucks-chipotle.html
 

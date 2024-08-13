@@ -1,3 +1,15 @@
+**Can the Oilers afford to match offer sheets for Broberg and Holloway?**\
+`The Blues amped up the pressure in Edmonton with two offer sheets that throw a wrench right into their offseason`\
+https://nytimes.com/athletic/5698718/2024/08/13/philip-broberg-dylan-holloway-offer-sheets-oilers-blues/
+
+**Luke Shaw to miss start of 2024-25 season with calf injury**\
+`Luke Shaw will miss the start of Manchester United&#8217;s 2024-25 season due to a calf injury.`\
+https://nytimes.com/athletic/5698805/2024/08/13/luke-shaw-manchester-united-injury/
+
+**What we know about Jordan Chiles' Olympic bronze medal case and what comes next**\
+`Here’s everything we know about the floor exercise bronze medal situation so far and what could come next.`\
+https://nytimes.com/athletic/5698724/2024/08/13/jordan-chiles-olympic-gymnastics-bronze-medal-faq/
+
 **Seven People Charged After Breaking Into Israeli Arms Company’s U.K. Site**\
 `Prosecutors argued in court that a group of pro-Palestinian activists who vandalized a site belonging to Elbit, an Israeli arms manufacturer, had committed offenses with a “terrorist connection.”`\
 https://nytimes.com/2024/08/13/world/europe/israeli-arms-company-break-in.html
