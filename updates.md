@@ -1,3 +1,7 @@
+**Trump Regales Elon Musk With Familiar Falsehoods**\
+`Fact-checking Donald Trump’s claims about immigration, Vice President Kamala Harris, President Biden and more.`\
+https://nytimes.com/2024/08/12/us/politics/trump-musk-x-fact-check.html
+
 **Trump regales Elon Musk with familiar falsehoods.**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/08/12/us/harris-trump-election/trump-musk-x-fact-check
