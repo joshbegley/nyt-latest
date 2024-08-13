@@ -1,3 +1,11 @@
+**Vienna Bids Farewell to Magnate Who Brought Stars to Its Opera Ball**\
+`Sophia Loren, Kim Kardashian, Priscilla Presley and Jane Fonda were among the stars Richard Lugner enticed, and often paid, to appear at the Vienna Opera Ball.`\
+https://nytimes.com/2024/08/13/arts/music/richard-lugner-celebrities-vienna-opera-ball.html
+
+**Jordan Love working on the deep ball and more from Packers camp**\
+`The Packers practice twice in Green Bay this week before flying to Denver for joint practice with the Broncos on Friday.`\
+https://nytimes.com/athletic/5698853/2024/08/13/jordan-love-packers-training-camp/
+
 **The Democratic Convention Party Scene Is Taking Shape**\
 `John Legend is set to headline one of the week’s biggest events so far — a bash by Gov. J.B. Pritzker of Illinois — but despite speculation, there’s no sign yet of Beyoncé or Taylor Swift in Chicago.`\
 https://nytimes.com/2024/08/13/us/politics/dnc-john-legend.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5698010/2024/08/13/blues-oilers-broberg-holloway-nh
 **Noussair Mazraoui to Manchester United: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Noussair Mazraoui's move to Manchester United`\
 https://nytimes.com/athletic/5658403/2024/08/13/noussair-mazraoui-to-man-united-transfer-ratings/
-
-**Frank Selvy, 91, Dies; Scored 100 Points in a College Basketball Game**\
-`The feat, a collegiate record, came in 1954 in South Carolina. As a pro, he missed a shot that would have given the Los Angeles Lakers a championship.`\
-https://nytimes.com/2024/08/13/sports/basketball/frank-selvy-dead.html
-
-**Manchester United sign Mazraoui from Bayern**\
-`Manchester United have completed the signing of Noussair Mazraoui from Bayern Munich.`\
-https://nytimes.com/athletic/5676427/2024/08/13/manchester-united-sign-noussair-mazraoui/
 
