@@ -1,3 +1,7 @@
+**Arizona and Missouri Will Vote on Abortion in November**\
+`Also, Hamas said it would not participate in new truce talks. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/08/13/briefing/arizona-missouri-abortion-measures-cease-fire-talks.html
+
 **Mourinho - Fenerbahce would 'never' have reached Champions League final**\
 `Jose Mourinho claims Fenerbahce would &#8220;never&#8221; have had a chance of winning the Champions League or making the final after they lost their third qualifying round against Lille.`\
 https://nytimes.com/athletic/5699321/2024/08/13/jose-mourinho-fenerbahce-champions-league/
