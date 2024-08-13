@@ -1,40 +1,40 @@
+**Why the Bears are excited about WRs coach Chris Beatty: 'He makes people better'**\
+`Get to know Beatty, whose connections to DJ Moore and Keenan Allen should only help the Bears' talented receivers room.`\
+https://nytimes.com/athletic/5696007/2024/08/13/bears-chris-beatty-dj-moore-keenan-allen/
+
+**Steve Pagliuca on Boston Celtics, Atalanta and feeling 'like the Ted Lasso of Italy'**\
+`This summer, the Celtics ended a 16-year wait for an 18th NBA title, and Atalanta won the Europa League to end a 61-year wait for any trophy`\
+https://nytimes.com/athletic/5695422/2024/08/13/pagliuca-atalanta-boston-celtics-guardiola-mazzulla/
+
+**2025 NFL Draft summer scouting: Which linebackers could be on the radar this season?**\
+`The first off-ball linebacker didn't hear his name called until pick 45 of the 2024 NFL Draft. Can the 2025 LB class top that performance?`\
+https://nytimes.com/athletic/5695786/2024/08/13/nfl-draft-2025-linebackers-harold-perkins/
+
+**Harris Takes the Lead in Key States**\
+`Surveys of Michigan, Pennsylvania and Wisconsin taken this month show the momentum of the vice president’s campaign.`\
+https://nytimes.com/2024/08/13/podcasts/the-daily/harris-polls-lead.html
+
+**New Details on Gaza Cease-Fire Obstacles, and Musk Interviews Trump**\
+`Plus, scenes after a Ukrainian attack in Russia.`\
+https://nytimes.com/2024/08/13/podcasts/gaza-cease-fire-musk-trump.html
+
+**The Connections Companion No. 430**\
+`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 14, 2024.`\
+https://nytimes.com/2024/08/13/crosswords/connections-companion-430.html
+
+**Chiefs rookie fullback Carson Steele gaining yards, fans in bid for roster spot**\
+`Steele, an undrafted rookie, led the Chiefs with 29 rushing yards on four attempts, including a touchdown, against the Jaguars.`\
+https://nytimes.com/athletic/5697152/2024/08/13/carson-steele-chiefs-rookie-fullback/
+
+**Wordle Review No. 1,152**\
+`Scroll down for hints and conversation about the puzzle for Day of Week, Date, Year.`\
+https://nytimes.com/2024/08/13/crosswords/wordle-review-1152.html
+
+**Browns 53-man roster projection: Who will be QB No. 3, how many RBs make the team?**\
+`How will injuries to key players affect the initial 53-man depth chart? And will the team make anymore outside additions before cutdown day?`\
+https://nytimes.com/athletic/5695901/2024/08/13/browns-roster-53-man-projection/
+
 **On the 75th anniversary of the Geneva Conventions, the war in Gaza resonates.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/08/13/world/israel-iran-hamas-gaza-war/on-the-75th-anniversary-of-the-geneva-conventions-the-war-in-gaza-resonates
-
-**Mandel's refresher on everything that's changed in CFB, just in time for kickoff**\
-`Need a catch-up on where things stand in college football before kickoff? We've got you covered. `\
-https://nytimes.com/athletic/5696360/2024/08/13/college-football-2024-season-preview-guide/
-
-**NBA’s best offseason moves by team: From Grizzlies to Heat, Nos. 30-21**\
-`The first in our three-part series examining every team's offseason transactions and how they set up the franchise for next season.`\
-https://nytimes.com/athletic/5626813/2024/08/13/nba-offseason-rankings-2024-lakers-clippers-suns-heat/
-
-**Mets catching on: 3 takeaways from their improved defensive metrics**\
-`Coaches Mike Sarbaugh and Antoan Richardson encourage players to be disciplined with their pre-pitch routine.`\
-https://nytimes.com/athletic/5695311/2024/08/13/mets-defense-improvement/
-
-**The No. 9 spot is where you want to draft in fantasy football this season: A round-by-round analysis**\
-`Mike Vorkunov explains why A.J. Brown makes No. 9 overall the best place to be picking in fantasy football 2024 drafts.`\
-https://nytimes.com/athletic/5695887/2024/08/13/pick-9-best-spot-fantasy-football-2024/
-
-**Israel Was Less Flexible in Recent Gaza Cease-Fire Talks, Documents Show**\
-`The country made five new demands, according to documents detailing its newest negotiating positions.`\
-https://nytimes.com/2024/08/13/world/middleeast/israel-gaza-cease-fire-talks.html
-
-**As Mick Abel grinds through disappointing season, Phillies prospect searches for lessons**\
-`Abel was thought one of the best pitching prospects in baseball before he struggled this year in Triple A. Now he's trying to get on track.`\
-https://nytimes.com/athletic/5696811/2024/08/13/phillies-prospect-mick-abel-update/
-
-**Miami mailbag: Cam Ward's leadership, toughest games, impact freshmen**\
-`How bad would Miami have to be in 2024 for them to consider a coaching change? Who are the feel-good stories on the Canes?`\
-https://nytimes.com/athletic/5696606/2024/08/13/miami-hurricanes-football-cam-ward-playoff/
-
-**So You’ve Framed Your Art? Now Try Hanging a Gallery Wall.**\
-`Framing artwork is just the first step. Figuring out how (and where) to hang it takes some doing.`\
-https://nytimes.com/2024/08/13/realestate/gallery-wall-art-diy.html
-
-**The Google Antitrust Case Must Not End With a Slap on the Wrist**\
-`A federal judge has ruled Google has a monopoly on online search and has been illegally defending that monopoly for years. But what should the remedy be?`\
-https://nytimes.com/2024/08/13/opinion/google-antitrust-remedy.html
 
