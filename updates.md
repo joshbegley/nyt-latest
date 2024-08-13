@@ -1,3 +1,7 @@
+**2024 F1 midseason review: Best driver, favorite races and pleasant surprises**\
+`This season has been a banger. Here's what we hope to see before it wraps up at Abu Dhabi.`\
+https://nytimes.com/athletic/5696095/2024/08/13/f1-midseason-review-best-driver-race-moments/
+
 **Chris Sale vs. Blake Snell put on a show before Braves get much-needed win in 10 innings**\
 `Sale and Snell combined for the most strikeouts (23) by two starters in a game at the San Francisco ballpark that opened in 2000.`\
 https://nytimes.com/athletic/5697522/2024/08/13/braves-giants-chris-sale-blake-snell/

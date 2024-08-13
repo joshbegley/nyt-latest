@@ -1,3 +1,7 @@
+**2024 F1 midseason review: Best driver, favorite races and pleasant surprises**\
+`This season has been a banger. Here's what we hope to see before it wraps up at Abu Dhabi.`\
+https://nytimes.com/athletic/5696095/2024/08/13/f1-midseason-review-best-driver-race-moments/
+
 **Chris Sale vs. Blake Snell put on a show before Braves get much-needed win in 10 innings**\
 `Sale and Snell combined for the most strikeouts (23) by two starters in a game at the San Francisco ballpark that opened in 2000.`\
 https://nytimes.com/athletic/5697522/2024/08/13/braves-giants-chris-sale-blake-snell/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/13/pageoneplus/quotation-of-the-day-toll-in-europefr
 **Word of the Day: centennial**\
 `This word has appeared in 125 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/13/learning/word-of-the-day-centennial.html
-
-**Yankees downplay inexcusable loss to MLB-worst White Sox: 'I just think it's a normal day'**\
-`The Yankees failed to capitalize with runners in scoring position in a 12-2 loss to the White Sox.`\
-https://nytimes.com/athletic/5697358/2024/08/13/yankees-inexcusable-loss-white-sox/
 
