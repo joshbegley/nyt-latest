@@ -1,3 +1,11 @@
+**X Spaces with Trump is off to a glitchy start.**\
+`The audio livestream of a conversation between Elon Musk and the former president ran late as users scrambled to try to access the site.`\
+https://nytimes.com/2024/08/12/technology/trump-musk-x-spaces-interview.html
+
+**Robert F. Kennedy Jr. Cannot Appear on New York Ballot, Judge Rules**\
+`The ruling was a blow to Mr. Kennedy’s independent campaign for president. The judge said that he had used a “sham” address to claim residency in New York.`\
+https://nytimes.com/2024/08/12/nyregion/robert-f-kennedy-jr-new-york-residency.html
+
 **X Spaces With Trump and Musk Is Off to a Glitchy Start**\
 `The audio livestream of a conversation between Elon Musk and the former president ran late as users scrambled to try to access the site.`\
 https://nytimes.com/2024/08/12/technology/trump-musk-x-spaces-interview.html
