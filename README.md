@@ -1,3 +1,19 @@
+**Salmon Farms in Patagonia Face Growing Opposition**\
+`The Chilean industry’s expansion has drawn repeated challenges from environmentalists and Indigenous people of the region, and prompted calls for a moratorium.`\
+https://nytimes.com/2024/08/13/science/chile-salmon-farms-patagonia.html
+
+**George Santos May Be Gone From Congress, but His Trial Still Looms**\
+`With his federal trial scheduled for next month, Mr. Santos wants potential jurors to be screened with a lengthy questionnaire and have their identities hidden from the public.`\
+https://nytimes.com/2024/08/13/nyregion/george-santos-trial.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/13/crosswords/spelling-bee-forum.html
+
+**When ‘Abortion’ Wasn’t a Dirty Word**\
+`The medical term once encompassed any form of pregnancy loss, including miscarriage.`\
+https://nytimes.com/2024/08/13/science/medical-history-abortion.html
+
 **The Transfer DealSheet: Arsenal goalkeeper latest and Vinicius Jr to Saudi?**\
 `Welcome to the Transfer DealSheet, your weekly look at the state of play in the transfer market`\
 https://nytimes.com/athletic/5695539/2024/08/13/manchester-united-transfer-news-arsenal-liverpool-real-madrid-barcelona/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5697358/2024/08/13/yankees-inexcusable-loss-white-s
 **Late Night Tackles Trump’s Obsession With Crowd Size**\
 `“The fact that Kamala Harris is pulling such huge crowds is really getting under his, let’s call it, skin,” Stephen Colbert said of former President Donald Trump.`\
 https://nytimes.com/2024/08/13/arts/television/late-night-trump-rally-crowd-size.html
-
-**'Kids' help reeling and depleted Red Sox gain walk-off win in extra innings**\
-`Gasper, a native of New Hampshire, had been to many games at Fenway Park, but none at home plate in the bottom of the 10th in a tie game.`\
-https://nytimes.com/athletic/5697471/2024/08/13/mickey-gasper-red-sox-walk-off-win/
-
-**The West Clearly Doesn’t Want to Defeat Putin**\
-`Victory in Ukraine is now within Russia’s reach.`\
-https://nytimes.com/2024/08/13/opinion/russia-ukraine-west-war.html
-
-**Sound of a Fall**\
-`Benjamin Panico makes his New York Times Crossword debut.`\
-https://nytimes.com/2024/08/13/crosswords/daily-puzzle-2024-08-13.html
-
-**Where Students Run the Streets: Bangladesh in Limbo**\
-`The protesters who brought down an autocrat are now cabinet ministers and traffic cops, trying to restore order and chart a new future for a nation of 170 million.`\
-https://nytimes.com/2024/08/13/world/asia/bangladesh-students-protests.html
 
