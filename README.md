@@ -1,4 +1,4 @@
-**X Spaces with Trump is off to a glitchy start.**\
+**X Spaces With Trump and Musk Is Off to a Glitchy Start**\
 `The audio livestream of a conversation between Elon Musk and the former president ran late as users scrambled to try to access the site.`\
 https://nytimes.com/2024/08/12/technology/trump-musk-x-spaces-interview.html
 
