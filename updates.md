@@ -1,3 +1,11 @@
+**Transfers and Pay Cuts: Pregnant Officers Accuse Border Agency of Discrimination**\
+`Under a $45 million settlement, Customs and Border Protection agreed to adjust a practice that some employees say has instilled a culture of shame and perpetuated a fear of retaliation.`\
+https://nytimes.com/2024/08/13/us/politics/customs-border-protection-pregnant-lawsuit.html
+
+**The Little Streamer That Could**\
+`Tubi has exploded in popularity over the past 18 months, outpacing some competitors with much bigger budgets.`\
+https://nytimes.com/2024/08/13/business/media/tubi-movies-tv-streaming.html
+
 **Fulham submit improved offer for Andersen**\
 `Fulham have submitted an improved offer to sign defender Joachim Andersen from Crystal Palace.`\
 https://nytimes.com/athletic/5694083/2024/08/13/joachim-andersen-fulham-crystal-palace/
