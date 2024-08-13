@@ -1,3 +1,11 @@
+**The Democratic Convention Party Scene Is Taking Shape**\
+`John Legend is set to headline one of the week’s biggest events so far — a bash by Gov. J.B. Pritzker of Illinois — but despite speculation, there’s no sign yet of Beyoncé or Taylor Swift in Chicago.`\
+https://nytimes.com/2024/08/13/us/politics/dnc-john-legend.html
+
+**Recent Voter Registration Data Offers Hint of Enthusiasm for Democrats**\
+`Two swing states have seen a boost in Democratic sign-ups since Kamala Harris entered the race.`\
+https://nytimes.com/2024/08/13/upshot/democrats-voter-registration.html
+
 **Ohio Officer Is Charged With Murder in Shooting of Pregnant Black Woman**\
 `Connor Grubb, 29, of the Blendon Township Police Department faces multiple charges in the fatal shooting of Ta’Kiya Young, 21, who was shot in her car outside a Kroger last year after being accused of theft.`\
 https://nytimes.com/2024/08/13/us/ohio-officer-takiya-young-murder.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/13/sports/basketball/frank-selvy-dead.html
 **Manchester United sign Mazraoui from Bayern**\
 `Manchester United have completed the signing of Noussair Mazraoui from Bayern Munich.`\
 https://nytimes.com/athletic/5676427/2024/08/13/manchester-united-sign-noussair-mazraoui/
-
-**Matthijs de Ligt to Man United: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we analyse and rate Matthijs de Ligt's move to Man United`\
-https://nytimes.com/athletic/5608964/2024/08/13/matthijs-de-ligt-to-man-united-the-athletic-500-transfer-ratings/
-
-**Harbaugh won't be honorary captain for Michigan season opener**\
-`Michigan's season opener against Fresno State is Saturday, Aug. 31.`\
-https://nytimes.com/athletic/5698881/2024/08/13/jim-harbaugh-michigan-captain/
 
