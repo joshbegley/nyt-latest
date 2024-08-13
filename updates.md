@@ -1,3 +1,7 @@
+**Has a Neglected Soviet-Era Composer’s Time Finally Come?**\
+`With an opera at the Salzburg Festival and recordings on Deutsche Grammophon, the music of Mieczyslaw Weinberg may be taking root.`\
+https://nytimes.com/2024/08/13/arts/music/mieczyslaw-weinberg-composer.html
+
 **Head of Panel That Ruled Against Jordan Chiles Represents Romania in Other Cases**\
 `The decision outraged U.S. Olympic and gymnastics officials, and led to a torrent of online abuse against both Chiles and Ana Barbosu, the Romanian athlete who ended up with the bronze.`\
 https://nytimes.com/2024/08/13/world/europe/olympics-jordan-chiles.html
