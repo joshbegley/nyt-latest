@@ -1,3 +1,11 @@
+**RB Leipzig agree deal in principle to sign Nusa from Club Bruges**\
+`RB Leipzig have reached an agreement in principle to sign Antonio Nusa from Club Bruges.`\
+https://nytimes.com/athletic/5697827/2024/08/13/antonio-nusa-rb-leipzig-transfer/
+
+**The Athletic FC: What now for Liverpool's midfield search? Plus: The man behind a Europa League-NBA double**\
+`Liverpool are still searching for a new midfielder after Martin Zubimendi decided to stay at Real Sociedad`\
+https://nytimes.com/athletic/5697749/2024/08/13/newsletter-liverpool-midfield-zubimendi/
+
 **Barcelona fans: What do you want to know before this La Liga season?**\
 `Send in your questions for our Barcelona experts before the start of the new La Liga season`\
 https://nytimes.com/athletic/5697702/2024/08/13/barcelona-la-liga-start-questions/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5697122/2024/08/13/ravens-edge-rushers-training-cam
 **Broncos 53-man roster prediction: Will Zach Wilson be part of a 3-QB room?**\
 `Sean Payton has called keeping all three quarterbacks on the 53-man roster "a possibility," and Wilson has made a strong case for his spot`\
 https://nytimes.com/athletic/5695872/2024/08/13/denver-broncos-roster-prediction-zach-wilson-training-camp/
-
-**I Am the Walrus but This Fossil Was Not**\
-`Although an extinct animal was from a different group of marine mammals, an examination of fossils showed it evolved a way of eating that was very similar to that of modern walruses.`\
-https://nytimes.com/2024/08/13/science/walrus-fossil.html
-
-**The Pulse: Post-Olympics superteam?**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5696783/2024/08/13/steph-curry-lebron-james-superteam-olympics-the-pulse/
 
