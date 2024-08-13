@@ -1,3 +1,11 @@
+**Sound of a Fall**\
+`Benjamin Panico makes his New York Times Crossword debut.`\
+https://nytimes.com/2024/08/13/crosswords/daily-puzzle-2024-08-13.html
+
+**Where 16-Year-Olds Run the Streets: Bangladesh in Limbo**\
+`The students who brought down an autocrat are now cabinet ministers and traffic cops, trying to restore order and chart a new future for a nation of 170 million.`\
+https://nytimes.com/2024/08/13/world/asia/bangladesh-students-protests.html
+
 **What Everton and Sean Dyche have learned from a 'balanced' pre-season**\
 `Everton will embark upon the new campaign with added invention and bite to their squad, but some familiar frailties remain `\
 https://nytimes.com/athletic/5695646/2024/08/13/everton-dyche-calvert-lewin-ndiaye-iroegbunam/
