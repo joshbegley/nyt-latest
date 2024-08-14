@@ -1,3 +1,15 @@
+**Man City winger OBobb set for spell on sidelines with fractured leg**\
+`Manchester City winger Oscar Bobb is set for a spell on the sidelines after he fractured a bone in his leg.`\
+https://nytimes.com/athletic/5701203/2024/08/14/man-city-oscar-bobb-injury-leg/
+
+**Summer 2024 News Quiz for Students**\
+`How closely have you paid attention to current events? See what you remember by taking our special Summer 2024 News Quiz.`\
+https://nytimes.com/interactive/2024/08/14/learning/14StudentSummerNewsQuiz.html
+
+**Wealthy Nations Must Prioritize the Global Fight Against Mpox**\
+`The virus is back on the rise, potentially with a vengeance.`\
+https://nytimes.com/live/2024/08/13/opinion/thepoint/mpox-global-health-emergency
+
 **When Will They Speak Again? Once Close, Biden and Pelosi Are at Odds.**\
 `President Biden is upset that Representative Nancy Pelosi worked to get him out of the race. She is losing sleep over it.`\
 https://nytimes.com/2024/08/14/us/politics/pelosi-biden.html
