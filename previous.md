@@ -1,3 +1,7 @@
+**China’s Extreme Fan Culture Makes Olympic Gold a Mixed Blessing**\
+`Fans have mobbed athletes in public and staked out their homes. State media outlets denounced their “visibly aggressive” behavior.`\
+https://nytimes.com/2024/08/14/world/asia/china-olympics-fan-culture.html
+
 **Word of the Day: encyclopedic**\
 `This word has appeared in 72 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/14/learning/word-of-the-day-encyclopedic.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/14/opinion/thailand-royalists-king-democracy.html
 **Dodgers share best record in baseball despite injury woes: 'It's remarkable'**\
 `Clayton Kershaw said the Dodgers can reach a higher gear as they get healthy again: “I think you’ll see us start to take off here soon.”`\
 https://nytimes.com/athletic/5699989/2024/08/14/dodgers-injuries-mlb-playoffs/
-
-**Why Chelsea are set to begin the new season without a shirt sponsor**\
-`Are the London club in talks over a potential late deal? Will they be able to secure a partner once the campaign has started?`\
-https://nytimes.com/athletic/5698622/2024/08/14/why-chelsea-are-set-to-begin-the-new-season-without-a-shirt-sponsor/
 

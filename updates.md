@@ -1,3 +1,7 @@
+**China’s Extreme Fan Culture Makes Olympic Gold a Mixed Blessing**\
+`Fans have mobbed athletes in public and staked out their homes. State media outlets denounced their “visibly aggressive” behavior.`\
+https://nytimes.com/2024/08/14/world/asia/china-olympics-fan-culture.html
+
 **Word of the Day: encyclopedic**\
 `This word has appeared in 72 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/14/learning/word-of-the-day-encyclopedic.html
