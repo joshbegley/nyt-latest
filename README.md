@@ -1,3 +1,7 @@
+**Another ‘Nasty’ Woman Strikes Fear in Trump**\
+`Authoritarian tendencies and misogyny rise together.`\
+https://nytimes.com/2024/08/14/opinion/kamala-harris-sexism-trump.html
+
 **Falcons acquire Matthew Judon in trade with Patriots**\
 `Judon was blunt this offseason in expressing his disappointment in not receiving a contract extension from the Patriots.`\
 https://nytimes.com/athletic/5701786/2024/08/14/matthew-judon-falcons-patriots-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/14/nyregion/rabbi-shmuel-butman-dead.html
 **Cisco Systems to Cut About 7% of Staff in Second Round of Layoffs**\
 `The cuts could amount to about 6,000 jobs for the San Jose, Calif., maker of computer networking technology.`\
 https://nytimes.com/2024/08/14/technology/cisco-layoffs.html
-
-**Matthew Stafford exits productive Rams practice vs. Cowboys with tight hamstring**\
-`Stafford remained on the sideline after leaving practice and Jimmy Garoppolo and Stetson Bennett took the rest of the reps at QB.`\
-https://nytimes.com/athletic/5701556/2024/08/14/rams-matthew-stafford-hamstring-tightness-practice/
 
