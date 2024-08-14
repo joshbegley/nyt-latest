@@ -1,3 +1,7 @@
+**It’s Instincts Over Strategy for Trump**\
+`The former president has struggled to settle on a message against Vice President Kamala Harris.`\
+https://nytimes.com/2024/08/14/us/politics/trump-harris-campaign.html
+
 **Betty A. Prashker, Book Publishing Pioneer, Is Dead at 99**\
 `A top editor and executive at two publishing houses, she was an advocate for other women in publishing, and for equal pay in an industry that had long been male-dominated.`\
 https://nytimes.com/2024/08/14/books/betty-a-prashker-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/14/business/media/wyoming-cody-enterprise-ai.html
 **As the Brandon Aiyuk wait continues, the 49ers' WR made his return to watching practice**\
 `Aiyuk has continued to attend meetings, but hadn't been visible watching practice on the field since July 31.`\
 https://nytimes.com/athletic/5701426/2024/08/14/brandon-aiyuk-49ers-practice/
-
-**‘I’m Looking for a Job’: Biden Jokes About Life After the White House**\
-`With a jovial serenity, the president has more publicly embraced the idea of retirement as he heads into his final months in office.`\
-https://nytimes.com/2024/08/14/us/politics/biden-retirement.html
 
