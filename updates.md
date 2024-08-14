@@ -1,3 +1,7 @@
+**Durant's PSG stake explained: Why has he bought in? Does he have a say?**\
+`Kevin Durant has purchased a state in Paris Saint-Germain — this is why`\
+https://nytimes.com/athletic/5700380/2024/08/14/kevin-durant-psg-nba/
+
 **Harris Shouldn’t Forget That Democracy Is Still on the Ballot**\
 `And there are still voters who care about it.`\
 https://nytimes.com/2024/08/13/opinion/harris-democracy-ballot.html
