@@ -11,7 +11,7 @@ https://nytimes.com/2024/08/14/business/dealbook/mars-kellanova-deal-pringles-ch
 https://nytimes.com/athletic/5699754/2024/08/14/cleveland-guardians-mlb-best-record-the-pulse/
 
 **Which U.S. players could be heading home before the MLS transfer window closes?**\
-`A number of American players could be returning to MLS but time is against them if deals are to be done`\
+`A number of Europe-based American players could be returning to MLS today but time is against them if deals are to be done`\
 https://nytimes.com/athletic/5699493/2024/08/14/usa-players-mls-transfer-deadline/
 
 **After drafting TEs Brock Bowers and Michael Mayer, can Raiders succeed in 12 personnel?**\

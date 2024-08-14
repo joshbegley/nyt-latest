@@ -1,3 +1,7 @@
+**Which U.S. players could be heading home before the MLS transfer window closes?**\
+`A number of Europe-based American players could be returning to MLS today but time is against them if deals are to be done`\
+https://nytimes.com/athletic/5699493/2024/08/14/usa-players-mls-transfer-deadline/
+
 **Madrid's Camavinga suffers knee ligament sprain injury**\
 `Real Madrid midfielder Eduardo Camavinga is set to miss up to seven weeks after suffering a ligament sprain in his left knee.`\
 https://nytimes.com/athletic/5700193/2024/08/14/eduardo-camavinga-injury-real-madrid/
