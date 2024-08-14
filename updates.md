@@ -1,3 +1,7 @@
+**Dodgers share best record in baseball despite injury woes: 'It's remarkable'**\
+`Clayton Kershaw said the Dodgers can reach a higher gear as they get healthy again: “I think you’ll see us start to take off here soon.”`\
+https://nytimes.com/athletic/5699989/2024/08/14/dodgers-injuries-mlb-playoffs/
+
 **Why Chelsea are set to begin the new season without a shirt sponsor**\
 `Are the London club in talks over a potential late deal? Will they be able to secure a partner once the campaign has started?`\
 https://nytimes.com/athletic/5698622/2024/08/14/why-chelsea-are-set-to-begin-the-new-season-without-a-shirt-sponsor/
