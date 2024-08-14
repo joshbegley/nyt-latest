@@ -1,40 +1,40 @@
-**Honks and Beeps but No One to Yell at: Waymo’s Driverless Cars Wake Neighbors**\
-`In late July, Waymo rented a parking lot outside two San Francisco apartment buildings for its vehicles to idle in. Then came the noise.`\
-https://nytimes.com/2024/08/14/us/waymo-robotaxi-parking-lot-honking.html
+**Jets rookie report: Braelon Allen shines, two UDFAs might stick around**\
+`How the Jets' first-year players stack up heading into the second game of the preseason`\
+https://nytimes.com/athletic/5699015/2024/08/14/new-york-jets-2024-rookie-report-training-camp-preseason-braelon-allen/
 
-**Fabio Carvalho to Brentford: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we analyse and rate Fabio Carvalho's move to Brentford.`\
-https://nytimes.com/athletic/5696550/2024/08/14/fabio-carvalho-to-brentford-the-athletic-500-transfer-ratings/
+**Young Rams pass rushers and their position coach are all growing together**\
+`The Rams' young outside linebackers and their equally young position coach are growing together and making themselves heard.`\
+https://nytimes.com/athletic/5692068/2024/08/14/la-rams-outside-linebackers-joe-coniglio/
 
-**Lamar Jackson's chemistry with TE Isaiah Likely continues to grow**\
-`Plus, Kyle Hamilton looked good as he returned to practice and Ar’Darius Washington feels like a lock to make the 53-man roster.`\
-https://nytimes.com/athletic/5699477/2024/08/14/ravens-lamar-jackson-isaiah-likely/
+**Who are the NFL’s top players 25 and under? How execs, coaches rank Stroud, Jefferson and others**\
+`Five Lions players made the list, with the Cowboys, Chiefs, Jets and Texans adding multiple young stars as well.`\
+https://nytimes.com/athletic/5687267/2024/08/14/top-nfl-players-25-and-under-2024/
 
-**Rookie QB Grades: Caleb Williams, J.J. McCarthy impress in preseason debuts**\
-`Our longtime NFL quarterback hands out grades for the six first-round rookie quarterbacks`\
-https://nytimes.com/athletic/5698336/2024/08/14/preseason-rookie-qb-grades-film-study-caleb-williams-jj-mccarthy/
+**What we've learned about Bo Nix, Zach Wilson and the Broncos' QB situation**\
+`While Denver's rookie QB is trending toward becoming the Week 1 starter, can Wilson make a push to be the team's backup? `\
+https://nytimes.com/athletic/5698290/2024/08/14/denver-broncos-qbs-bo-nix-zach-wilson-jarrett-stidham/
 
-**Kerry Carpenter returns to the Tigers with a bang, jolting a lineup that sorely missed him**\
-`Carpenter hit two home runs in his first game back after a 78-day stint on the injured list. `\
-https://nytimes.com/athletic/5699869/2024/08/14/tigers-kerry-carpenter-injury-return-two-homers/
+**Why are Red Wings fans losing confidence in the front office?**\
+`The Red Wings dropped to 21st in The Athletic's most recent front-office confidence survey. Beat writer Max Bultman examines why.`\
+https://nytimes.com/athletic/5696771/2024/08/14/red-wings-front-office-confidence-fans/
 
-**Thai Court Ejects Prime Minister From Office**\
-`To many, Prime Minister Srettha Thavisin was a figurehead leader in a behind-the-scenes power struggle. He was ousted on ethics charges.`\
-https://nytimes.com/2024/08/14/world/asia/thailand-prime-minister-srettha.html
+**How One Tech Monopoly Paved the Way for Another**\
+`A judge’s ruling that Google abused a monopoly in internet search is likely to have major ripple effects, nearly a quarter-century after Microsoft lost a similar case.`\
+https://nytimes.com/2024/08/14/podcasts/the-daily/microsoft-google-antitrust.html
 
-**Deshaun Watson, Sam Darnold and other players to watch at Browns-Vikings joint practices**\
-`Browns writer Zac Jackson and Vikings writer Alec Lewis trade emails about key storylines, players to watch and developing roster battles.`\
-https://nytimes.com/athletic/5698915/2024/08/14/browns-vikings-joint-practice/
+**Abortion Access on the Ballot, and Hamas Won’t Attend Peace Talks**\
+`Plus, new details on Hunter Biden’s business dealings.`\
+https://nytimes.com/2024/08/14/podcasts/abortion-arizona-hamas-peace-talks.html
 
-**How many defensive linemen can the Falcons keep, and who are all these guys?**\
-`The Falcons have 14 defensive linemen on the 90-man roster. No more than nine will make the final cut. Let's break it down.`\
-https://nytimes.com/athletic/5696399/2024/08/14/atlanta-falcons-defensive-linemen-roster/
+**An expert's take on Wild prospects, from Zeev Buium to Riley Heidt to Charlie Stramel**\
+`The Athletic's Scott Wheeler broke down what Wild fans can expect from some of the club's top prospects. `\
+https://nytimes.com/athletic/5697331/2024/08/14/wild-prospects-buium-heidt-stramel/
 
-**Trial in Texas School Shooting Asks: Could the Gunman’s Parents Have Stopped It?**\
-`The case, against the parents of a gunman who killed 10 people in Santa Fe, Texas, in 2018, is among the first in which school shooting victims are trying to hold parents liable in civil court.`\
-https://nytimes.com/2024/08/14/us/shooting-parents-santa-fe-texas-trial.html
+**NBA’s best offseason moves by team: From Warriors to Jazz, Nos. 20-11**\
+`The second in our three-part series examining every team's offseason transactions and how they set up the franchise for next season.`\
+https://nytimes.com/athletic/5639294/2024/08/14/nba-offseason-rankings-2024-warriors-timberwolves-bucks-bulls/
 
-**Why Democrats Should Sing the Union’s Civil War Anthems**\
-`They evoke an uplifting patriotism from an earlier era.`\
-https://nytimes.com/live/2024/08/13/opinion/thepoint/democrats-civil-war-anthems
+**The Connections Companion No. 431**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 15, 2024.`\
+https://nytimes.com/2024/08/14/crosswords/connections-companion-431.html
 
