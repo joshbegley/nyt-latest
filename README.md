@@ -1,3 +1,7 @@
+**Deadly Landslides in India Made Worse by Climate Change, Study Finds**\
+`Extreme rainfall made 10 percent heavier by human-caused climate change triggered landslides that killed hundreds, according to a new study.`\
+https://nytimes.com/2024/08/13/climate/landslides-climate-change.html
+
 **Hunter Biden Sought State Department Help for Ukrainian Company**\
 `After President Biden dropped his re-election bid, his administration released records showing that while he was vice president, his son solicited U.S. government assistance.`\
 https://nytimes.com/2024/08/13/us/politics/hunter-biden-ukrainian-company.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5699480/2024/08/13/yordan-alvarez-rays-jumbotron-ho
 **Yankees' Jazz Chisholm Jr. has UCL injury and surgery has not been ruled out**\
 `While Chisholm's out, the Yankees have multiple options for how they can proceed at third base without him.`\
 https://nytimes.com/athletic/5699439/2024/08/13/yankees-jazz-chisholm-jr-ucl-injury/
-
-**Penguins acquire Cody Glass from Predators**\
-`Glass has one year remaining on his contract and will earn $2.5 million during the 2024-25 season.`\
-https://nytimes.com/athletic/5699467/2024/08/13/penguins-cody-glass-predators-trade/
 
