@@ -1,3 +1,7 @@
+**Durant's PSG stake explained: Why has he bought in? Does he have a say?**\
+`Kevin Durant has purchased a state in Paris Saint-Germain — this is why`\
+https://nytimes.com/athletic/5700380/2024/08/14/kevin-durant-psg-nba/
+
 **Harris Shouldn’t Forget That Democracy Is Still on the Ballot**\
 `And there are still voters who care about it.`\
 https://nytimes.com/2024/08/13/opinion/harris-democracy-ballot.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5700900/2024/08/14/premier-league-var-2024-25-refer
 **Cooling inflation ‘ticks the box’ for a Fed rate cut.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/08/14/business/cpi-inflation-fed/cooling-inflation-ticks-the-box-for-a-fed-rate-cut
-
-**French prosecutors investigate harassment of Khelif**\
-`Algerian boxer and gold medalist Imane Khelif's time at the Olympics was overshadowed by a torrent of negative attention on social media.`\
-https://nytimes.com/athletic/5700622/2024/08/14/imane-khelif-investigation-harassment-olympics/
 
