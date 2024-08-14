@@ -1,3 +1,7 @@
+**Bronx Museum’s Executive Director Leaves During $33 Million Expansion**\
+`Klaudio Rodriguez will become the executive director and chief executive of the Museum of Fine Arts in St. Petersburg, Fla.`\
+https://nytimes.com/2024/08/14/arts/design/bronx-museum-klaudio-rodriguez.html
+
 **Silva - Smith Rowe 'statement signing' for Fulham**\
 `Marco Silva has described Emile Smith Rowe as a &#8220;statement signing&#8221; for Fulham and said that he is determined to help the former Arsenal academy graduate reach his &#8220;best level&#8221; again.`\
 https://nytimes.com/athletic/5701133/2024/08/14/emile-smith-rowe-marco-silva/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000009627113/ukraines-surprise-attack-
 **Canada forward Lacasse joins Utah Royals from Arsenal**\
 `Arsenal have confirmed the departure of Cloe Lacasse on a permanent transfer to NWSL side Utah Royals.`\
 https://nytimes.com/athletic/5701072/2024/08/14/cloe-lacasse-utah-royals-arsenal-transfer/
-
-**‘Life and Trust’ Review: Choose Your Own Faustian Adventure**\
-`A new theatrical experience in the Financial District is composed of 25 individual stories, but it’s hard to make sense of any of them.`\
-https://nytimes.com/2024/08/14/theater/life-and-trust-review.html
 
