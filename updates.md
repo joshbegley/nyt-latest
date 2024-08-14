@@ -1,3 +1,11 @@
+**When Will They Speak Again? Once Close, Biden and Pelosi Are at Odds.**\
+`President Biden is upset that Representative Nancy Pelosi worked to get him out of the race. She is losing sleep over it.`\
+https://nytimes.com/2024/08/14/us/politics/pelosi-biden.html
+
+**Jay Kanter, Agent for Marlon Brando and Marilyn Monroe, Dies at 97**\
+`Later a studio executive, he was among the last of the power brokers who dominated Hollywood in the latter half of the 20th century.`\
+https://nytimes.com/2024/08/14/movies/jay-kanter-dead.html
+
 **Wally Amos, Creator of Famous Amos Cookies, Dies at 88**\
 `With a background in marketing, his aunt’s recipe and a winning personality, he built one of the world’s best-known brands of baked goods.`\
 https://nytimes.com/2024/08/14/business/wally-amos-dead.html
