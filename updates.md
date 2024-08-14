@@ -1,3 +1,15 @@
+**Vikings rookie J.J. McCarthy out for season after successful surgery**\
+`McCarthy underwent testing related to knee soreness after he reported the injury Monday afternoon.`\
+https://nytimes.com/athletic/5701150/2024/08/14/jj-mccarthy-knee-injury-out-season-vikings/
+
+**California ‘Shaman’ Faces Felony Sex Assault Charges**\
+`Ricardo I. Flores, who the authorities say led a shamanistic community and who goes by Koyote the Blind, has been charged with eight felonies, including rape and aggravated sexual assault of a minor.`\
+https://nytimes.com/2024/08/14/us/california-shaman-sex-assault-charges-riverside.html
+
+**Fernandes signs new Manchester United contract extension**\
+`Bruno Fernandes has signed a new contract extension at Manchester United through to 2027 with the option of an additional 12 months.`\
+https://nytimes.com/athletic/5694016/2024/08/14/bruno-fernandes-new-man-utd-contract/
+
 **Foxconn Is Building an Electric Car Factory Next to Where It Makes iPhones**\
 `The Taiwanese company has built a manufacturing hub in Zhengzhou, China, for its star customer Apple, but it is starting almost from scratch in the auto business.`\
 https://nytimes.com/2024/08/14/business/china-foxconn-apple-ev.html

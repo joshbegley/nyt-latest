@@ -1,3 +1,15 @@
+**Vikings rookie J.J. McCarthy out for season after successful surgery**\
+`McCarthy underwent testing related to knee soreness after he reported the injury Monday afternoon.`\
+https://nytimes.com/athletic/5701150/2024/08/14/jj-mccarthy-knee-injury-out-season-vikings/
+
+**California ‘Shaman’ Faces Felony Sex Assault Charges**\
+`Ricardo I. Flores, who the authorities say led a shamanistic community and who goes by Koyote the Blind, has been charged with eight felonies, including rape and aggravated sexual assault of a minor.`\
+https://nytimes.com/2024/08/14/us/california-shaman-sex-assault-charges-riverside.html
+
+**Fernandes signs new Manchester United contract extension**\
+`Bruno Fernandes has signed a new contract extension at Manchester United through to 2027 with the option of an additional 12 months.`\
+https://nytimes.com/athletic/5694016/2024/08/14/bruno-fernandes-new-man-utd-contract/
+
 **Foxconn Is Building an Electric Car Factory Next to Where It Makes iPhones**\
 `The Taiwanese company has built a manufacturing hub in Zhengzhou, China, for its star customer Apple, but it is starting almost from scratch in the auto business.`\
 https://nytimes.com/2024/08/14/business/china-foxconn-apple-ev.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/14/health/mpox-who-emergency-africa.html
 **How Many Ways Can You Eat a Cucumber? Just Ask ‘Cucumber Guy.’**\
 `“Sometimes you need to eat an entire cucumber,” the TikTok star Logan Moffitt says of the summer’s most riffable recipe.`\
 https://nytimes.com/2024/08/14/dining/tiktok-cucumber-guy-logan-moffitt.html
-
-**Contaminants Found at German Military Base, and Sabotage Is Suspected**\
-`The discovery led to the temporary lockdown of the base while the water supply was tested. NATO officials also reported that an intruder tried to forcibly enter one of the alliance’s bases in the country.`\
-https://nytimes.com/2024/08/14/world/europe/germany-military-bases-contaminants-nato.html
-
-**What’s in Our Queue? ‘BoJack Horseman’ and More**\
-`I’m a food columnist for The New York Times Magazine. Here are five things I’ve recently relished.`\
-https://nytimes.com/interactive/2024/08/14/arts/editors-recommendations-bojack.html
-
-**Ravens TE Andrews OK after car crash Wednesday**\
-`The three-time Pro Bowler will not practice Wednesday, but he had already been scheduled for a non-practice day`\
-https://nytimes.com/athletic/5701064/2024/08/14/ravens-mark-andrews-car-accident/
 
