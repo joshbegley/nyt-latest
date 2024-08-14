@@ -28,6 +28,11 @@ https://nytimes.com/athletic/5701218/2024/08/14/chicago-red-stars-seatgeek-stadi
 `\
 https://nytimes.com/athletic/5701218/2024/08/14/chicago-red-stars-seatgeek-stadium-clash-resolved/
 
+**Chicago Red Stars' stadium clash is solved - but it exposes the hurdles faced by NWSL**\
+`Chicago Red Stars faced having to travel to Kansas City to play a home match. Here's why...
+`\
+https://nytimes.com/athletic/5701218/2024/08/14/chicago-red-stars-seatgeek-stadium-clash-resolved/
+
 **Can a Disney+ Subscription Keep a Widower From Suing Disney in Court?**\
 `Jeffrey Piccolo sued after his wife died from an allergic reaction to food served at a Disney resort restaurant. Disney wants the case handled by an arbitrator.`\
 https://nytimes.com/2024/08/14/nyregion/disney-wrongful-death-lawsuit-arbitration.html
