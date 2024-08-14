@@ -1,6 +1,14 @@
+**The Pulse: Wait, *who* has the best record in baseball?**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5699754/2024/08/14/cleveland-guardians-mlb-best-record-the-pulse/
+
 **Which U.S. players could be heading home before the MLS transfer window closes?**\
 `A number of American players could be returning to MLS but time is against them if deals are to be done`\
 https://nytimes.com/athletic/5699493/2024/08/14/usa-players-mls-transfer-deadline/
+
+**After drafting TEs Brock Bowers and Michael Mayer, can Raiders succeed in 12 personnel?**\
+`The Raiders are likely to use a lot of 12 personnel this season, but Bowers and Mayer must be willing blockers to make it work.`\
+https://nytimes.com/athletic/5698466/2024/08/14/raiders-12-personnel-brock-bowers-michael-mayer/
 
 **Julian Araujo to Bournemouth: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Julian Araujo's move to Bournemouth`\
