@@ -1,3 +1,16 @@
+**Chicago Red Stars' stadium clash is solved - but it exposes the hurdles faced by NWSL**\
+`Chicago Red Stars faced having to travel to Kansas City to play a home match. Here's why...
+`\
+https://nytimes.com/athletic/5701218/2024/08/14/chicago-red-stars-seatgeek-stadium-clash-resolved/
+
+**CAS: Gymnastics officials let down Chiles, other athletes**\
+`The International Gymnastics Federation did not flag whether Chiles' inquiry was placed after the one-minute window in real time.`\
+https://nytimes.com/athletic/5701621/2024/08/14/jordan-chiles-olympic-gymnastics-court-ruling/
+
+**Thursday Briefing: U.S. Assesses Israel’s War in Gaza**\
+`Plus, a fake Elon Musk scam.`\
+https://nytimes.com/2024/08/14/briefing/israel-military-gaza-thailand-prime-minister-harris-inflation.html
+
 **In Gaza, Israel’s Military Has Reached the End of the Line, U.S. Officials Say**\
 `Israel has severely set back Hamas but will never be able to completely eliminate the group, U.S. officials said.`\
 https://nytimes.com/2024/08/14/us/politics/israel-military-gaza-war.html

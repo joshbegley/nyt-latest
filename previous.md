@@ -1,3 +1,16 @@
+**Chicago Red Stars' stadium clash is solved - but it exposes the hurdles faced by NWSL**\
+`Chicago Red Stars faced having to travel to Kansas City to play a home match. Here's why...
+`\
+https://nytimes.com/athletic/5701218/2024/08/14/chicago-red-stars-seatgeek-stadium-clash-resolved/
+
+**CAS: Gymnastics officials let down Chiles, other athletes**\
+`The International Gymnastics Federation did not flag whether Chiles' inquiry was placed after the one-minute window in real time.`\
+https://nytimes.com/athletic/5701621/2024/08/14/jordan-chiles-olympic-gymnastics-court-ruling/
+
+**Thursday Briefing: U.S. Assesses Israel’s War in Gaza**\
+`Plus, a fake Elon Musk scam.`\
+https://nytimes.com/2024/08/14/briefing/israel-military-gaza-thailand-prime-minister-harris-inflation.html
+
 **In Gaza, Israel’s Military Has Reached the End of the Line, U.S. Officials Say**\
 `Israel has severely set back Hamas but will never be able to completely eliminate the group, U.S. officials said.`\
 https://nytimes.com/2024/08/14/us/politics/israel-military-gaza-war.html
@@ -25,16 +38,4 @@ https://nytimes.com/athletic/5701119/2024/08/14/premier-league-matches-abroad-ri
 **What to Know About Mpox**\
 `The World Health Organization declared a global health emergency over an outbreak that has spread to more than a dozen African countries.`\
 https://nytimes.com/2024/08/14/world/africa/mpox-outbreak-symptoms-risks.html
-
-**Harris’s Economic Plans: The Good, the Bad and the Unnecessary**\
-`There may be a political need to “fight inflation,” but economically the issue is over.`\
-https://nytimes.com/live/2024/08/13/opinion/thepoint/harris-economic-plans
-
-**Austin Dillon's Richmond win won't count toward NASCAR playoff eligibility**\
-`Dillon's controversial Richmond win is the fifth in his career, but NASCAR ruled on Wednesday that it won't count toward the playoffs.`\
-https://nytimes.com/athletic/5701329/2024/08/14/austin-dillon-penalty-richmond-nascar/
-
-**Patriots hoping for more from offense in Week 2 preseason game vs. Eagles**\
-`Rookie QB Drake Maye is expected to play more in the Patriots' second preseason game than he did in the first. So can the offense improve?`\
-https://nytimes.com/athletic/5700822/2024/08/14/patriots-eagles-preseason-drake-maye/
 
