@@ -1,3 +1,11 @@
+**The Yankees' trade deadline moves have already not aged well. Now what?**\
+`The Yankees needed to nail their trade deadline moves for relievers, but they've backfired. Now they have to hope someone else emerges.`\
+https://nytimes.com/athletic/5701580/2024/08/14/yankees-trade-deadline-moves-analysis/
+
+**Connecticut Official Loses to Jewish Opponent After Antisemitic Comments**\
+`In an interview posted online, Anabel Figueroa made comments that have been widely condemned as antisemitic. On Tuesday, she lost her Democratic primary to a Jewish challenger.`\
+https://nytimes.com/2024/08/14/nyregion/anabel-figueroa-ct-primary-antisemitism.html
+
 **Convicted Murderer Escapes From Custody in North Carolina**\
 `Hundreds of law enforcement officers were involved in the search for Ramone Alston, 30, who, the authorities say, bolted from a prison transport vehicle after being driven to a hospital.`\
 https://nytimes.com/2024/08/14/us/north-carolina-manhunt-prisoner-escape.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5701060/2024/08/14/detroit-lions-roster-constructio
 **Brighton activate release clause of Leeds forward Rutter**\
 `Brighton &amp; Hove Albion have activated a £40million release clause in the contract of Leeds United forward Georginio Rutter.`\
 https://nytimes.com/athletic/5701773/2024/08/14/georginio-rutter-leeds-brighton-transfer/
-
-**Stefanski refuses to comment on Mike Hall Jr.'s legal situation**\
-`Stefanski, 42, has been at the helm of the Browns since 2202.`\
-https://nytimes.com/athletic/5701664/2024/08/14/browns-kevin-stefanski-mike-hall/
-
-**Wyoming Reporter Resigns After Using A.I. to Fabricate Quotes**\
-`Aaron Pelczar left the Cody Enterprise after a competing newspaper presented him with evidence of made-up quotes in several of his stories.`\
-https://nytimes.com/2024/08/14/business/media/wyoming-cody-enterprise-ai.html
 

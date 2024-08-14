@@ -1,3 +1,11 @@
+**The Yankees' trade deadline moves have already not aged well. Now what?**\
+`The Yankees needed to nail their trade deadline moves for relievers, but they've backfired. Now they have to hope someone else emerges.`\
+https://nytimes.com/athletic/5701580/2024/08/14/yankees-trade-deadline-moves-analysis/
+
+**Connecticut Official Loses to Jewish Opponent After Antisemitic Comments**\
+`In an interview posted online, Anabel Figueroa made comments that have been widely condemned as antisemitic. On Tuesday, she lost her Democratic primary to a Jewish challenger.`\
+https://nytimes.com/2024/08/14/nyregion/anabel-figueroa-ct-primary-antisemitism.html
+
 **Convicted Murderer Escapes From Custody in North Carolina**\
 `Hundreds of law enforcement officers were involved in the search for Ramone Alston, 30, who, the authorities say, bolted from a prison transport vehicle after being driven to a hospital.`\
 https://nytimes.com/2024/08/14/us/north-carolina-manhunt-prisoner-escape.html
