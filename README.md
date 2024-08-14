@@ -1,3 +1,7 @@
+**Columbia President Resigns After Months of Turmoil**\
+`Nemat Shafik is the third Ivy League president to resign in the wake of protests connected to the Israel-Hamas war.`\
+https://nytimes.com/2024/08/14/us/columbia-president-nemat-shafik-resigns.html
+
 **The Yankees' trade deadline moves have already not aged well. Now what?**\
 `The Yankees needed to nail their trade deadline moves for relievers, but they've backfired. Now they have to hope someone else emerges.`\
 https://nytimes.com/athletic/5701580/2024/08/14/yankees-trade-deadline-moves-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5701786/2024/08/14/matthew-judon-falcons-patriots-t
 **Ten questions that will impact the Lions' roster construction**\
 `Several questions depend on how many of each position the Lions want to carry.`\
 https://nytimes.com/athletic/5701060/2024/08/14/detroit-lions-roster-construction-ten-questions/
-
-**Brighton activate release clause of Leeds forward Rutter**\
-`Brighton &amp; Hove Albion have activated a £40million release clause in the contract of Leeds United forward Georginio Rutter.`\
-https://nytimes.com/athletic/5701773/2024/08/14/georginio-rutter-leeds-brighton-transfer/
 
