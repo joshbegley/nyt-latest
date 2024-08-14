@@ -1,3 +1,7 @@
+**Convicted Murderer Escapes From Custody in North Carolina**\
+`Hundreds of law enforcement officers were involved in the search for Ramone Alston, 30, who, the authorities say, bolted from a prison transport vehicle after being driven to a hospital.`\
+https://nytimes.com/2024/08/14/us/north-carolina-manhunt-prisoner-escape.html
+
 **It’s Instincts Over Strategy for Trump**\
 `The former president has struggled to settle on a message against Vice President Kamala Harris.`\
 https://nytimes.com/2024/08/14/us/politics/trump-harris-campaign.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5701664/2024/08/14/browns-kevin-stefanski-mike-hall
 **Wyoming Reporter Resigns After Using A.I. to Fabricate Quotes**\
 `Aaron Pelczar left the Cody Enterprise after a competing newspaper presented him with evidence of made-up quotes in several of his stories.`\
 https://nytimes.com/2024/08/14/business/media/wyoming-cody-enterprise-ai.html
-
-**As the Brandon Aiyuk wait continues, the 49ers' WR made his return to watching practice**\
-`Aiyuk has continued to attend meetings, but hadn't been visible watching practice on the field since July 31.`\
-https://nytimes.com/athletic/5701426/2024/08/14/brandon-aiyuk-49ers-practice/
 
