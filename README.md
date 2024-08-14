@@ -1,40 +1,40 @@
-**World-record holders Duplantis and Warholm to race over 100m**\
-`World-record holders Mondo Duplantis and Karsten Warholm will race over 100m next month.`\
-https://nytimes.com/athletic/5700168/2024/08/14/duplantis-warholm-100m-race/
+**Catholic Converts Like JD Vance Are Reshaping Republican Politics**\
+`They’re also helping to build a new consensus across party lines.`\
+https://nytimes.com/2024/08/14/opinion/jd-vance-catholic-convert-republican.html
 
-**The best up-and-coming women's tennis players to watch in 2024 and beyond**\
-`Which WTA tennis players are poised to become the 'next gen' for the women's game?`\
-https://nytimes.com/athletic/5684092/2024/08/14/womens-tennis-wta-next-generation-shnaider-fruhvirtova-eala/
+**A California Bill to Regulate A.I. Causes Alarm in Silicon Valley**\
+`California state senator Scott Wiener wants to stop the creation of dangerous A.I. But critics say he is jumping the gun.`\
+https://nytimes.com/2024/08/14/technology/ai-california-bill-silicon-valley.html
 
-**Villa working on deal to sign Colombian defender Mosquera**\
-`Aston Villa are working on a deal to sign 19-year-old defender Yeimar Mosquera from Colombian club Orsomarso SC.`\
-https://nytimes.com/athletic/5699123/2024/08/14/aston-villa-yeimar-mosquera-transfer/
+**Cailee Spaeny Is Still Learning How to Be a Star**\
+`But the young actress, who has the lead role in “Alien: Romulus,” is also wondering if she wants to be one at all.`\
+https://nytimes.com/2024/08/14/movies/cailee-spaeny-alien-romulus-profile.html
 
-**New Zealand Charity Accidentally Gives Away Meth Disguised as Candy**\
-`Police were racing to recover the fake sweets, each of which contained up to 300 doses of methamphetamine. Three people sought medical attention.`\
-https://nytimes.com/2024/08/14/world/asia/meth-candy-new-zealand.html
+**The Wonder Seasoning Your Salad Is Missing**\
+`The bagel “everything” topping finishes croutons in this summery salad.`\
+https://nytimes.com/2024/08/14/magazine/everything-seasoning-crouton-salad-recipe.html
 
-**Braves' Charlie Morton gets 2,000th K, Travis d'Arnaud comes through again in 10th inning**\
-`Morton, who might retire after this, his 17th season, had a career that didn't take off until he was well into his 30s.`\
-https://nytimes.com/athletic/5700120/2024/08/14/braves-charlie-morton-2000th-k/
+**As Democrats Gather in Chicago, These Audiobooks Offer Context**\
+`Political histories, a courtroom drama and the memoir of a daughter of the South Side illuminate the legacy of the 1968 Democratic National Convention.`\
+https://nytimes.com/2024/08/14/books/political-audiobooks-dnc-chicago.html
 
-**Why Did a Plane Crash in Brazil? A Reporter Looks for Answers.**\
-`Jack Nicas, who leads coverage of much of South America, previously reported on aviation disasters. After a plane crashed outside São Paulo on Friday, he leaned on his expertise to help break the news.`\
-https://nytimes.com/2024/08/14/insider/why-did-a-plane-crash-in-brazil-a-reporter-looks-for-answers.html
+**They All Got Mysterious Brain Diseases. They’re Fighting to Learn Why.**\
+`Doctors in Canada have identified dozens of patients with similar, unexplained symptoms — a scientific puzzle that has now become a political maelstrom.`\
+https://nytimes.com/2024/08/14/magazine/canada-brain-disease-dementia.html
 
-**A Nurses’ Union Flexed Its Power. One Hospital Is Pushing Back.**\
-`Nurses enjoy more protections now than they did before the pandemic. A large hospital system, NewYork-Presbyterian, has fought some of their gains, including by appealing to the Supreme Court.`\
-https://nytimes.com/2024/08/14/nyregion/nurses-unions-new-york-presbyterian-hospital-supreme-court.html
+**An Indigenous Author Says the Past Holds Answers to Today’s Environmental Crises**\
+`Ailton Krenak was a child when his family was forced to leave their land in Brazil. Now, as a writer, he advocates for a path forward that looks to nature and inherited wisdom.`\
+https://nytimes.com/2024/08/14/books/booksupdate/ailton-krenak-future-ancestral-.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/08/14/crosswords/spelling-bee-forum.html
+**There Is No Line for Many Immigrants Who Want to Come Here Legally. We’ve Got to Fix Our System.**\
+`Immigrants who wish to come to America in search of a better life deserve a fair shot.`\
+https://nytimes.com/2024/08/14/opinion/immigration-us-legal.html
 
-**China’s Extreme Fan Culture Makes Olympic Gold a Mixed Blessing**\
-`Fans have mobbed athletes in public and staked out their homes. State media outlets denounced their “visibly aggressive” behavior.`\
-https://nytimes.com/2024/08/14/world/asia/china-olympics-fan-culture.html
+**What Does It Take to Learn to Garden? A Willingness to Do It Yourself.**\
+`“If somebody comes in and just does it for you, you miss out”: A beginner shares what his first garden taught him.`\
+https://nytimes.com/2024/08/14/realestate/gardening-beginner-tips.html
 
-**Word of the Day: encyclopedic**\
-`This word has appeared in 72 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/08/14/learning/word-of-the-day-encyclopedic.html
+**A New Line of Clothes Fit for Magical Rituals, or Just Errands**\
+`The debut women’s wear collection from Colleen Allen, formerly of the Row, was inspired by tarot cards.`\
+https://nytimes.com/2024/08/14/t-magazine/colleen-allen-debut-collection.html
 
