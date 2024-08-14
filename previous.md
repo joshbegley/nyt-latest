@@ -1,3 +1,7 @@
+**‘Life and Trust’ Review: Choose Your Own Faustian Adventure**\
+`A new theatrical experience in the Financial District is composed of 25 individual stories, but it’s hard to make sense of any of them.`\
+https://nytimes.com/2024/08/14/theater/life-and-trust-review.html
+
 **Whimsical Parade of Banksy Animals Sends Fans on a Giddy Hunt**\
 `Each day for nine straight days, a new Banksy artwork appeared somewhere in London. For some, it became a citywide treasure hunt.`\
 https://nytimes.com/2024/08/14/world/europe/banksy-london-street-art.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/14/opinion/obama-harris-progressives.html
 **U.C.L.A. Can’t Let Protesters Block Jewish Students From Campus, Judge Says**\
 `The judge’s temporary ruling came after protests over the war in Gaza in the spring led to over 200 arrests on campus.`\
 https://nytimes.com/2024/08/14/us/ucla-jewish-students-gaza-protests.html
-
-**Premier League acknowledges VAR flaws from last season, emphasising 'referee's call' for 2024-25**\
-`The Premier League has acknowledged that the VAR process drifted last season and is putting an emphasis on the on-field referee’s decision ahead of the 2024-25 campaign.`\
-https://nytimes.com/athletic/5700900/2024/08/14/premier-league-var-2024-25-referees-call/
 

@@ -1,3 +1,7 @@
+**‘Life and Trust’ Review: Choose Your Own Faustian Adventure**\
+`A new theatrical experience in the Financial District is composed of 25 individual stories, but it’s hard to make sense of any of them.`\
+https://nytimes.com/2024/08/14/theater/life-and-trust-review.html
+
 **Whimsical Parade of Banksy Animals Sends Fans on a Giddy Hunt**\
 `Each day for nine straight days, a new Banksy artwork appeared somewhere in London. For some, it became a citywide treasure hunt.`\
 https://nytimes.com/2024/08/14/world/europe/banksy-london-street-art.html
