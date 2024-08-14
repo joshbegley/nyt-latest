@@ -1,3 +1,11 @@
+**Lamar Jackson's chemistry with TE Isaiah Likely continues to grow**\
+`Plus, Kyle Hamilton looked good as he returned to practice and Ar’Darius Washington feels like a lock to make the 53-man roster.`\
+https://nytimes.com/athletic/5699477/2024/08/14/ravens-lamar-jackson-isaiah-likely/
+
+**Rookie QB Grades: Caleb Williams, J.J. McCarthy impress in preseason debuts**\
+`Our longtime NFL quarterback hands out grades for the six first-round rookie quarterbacks`\
+https://nytimes.com/athletic/5698336/2024/08/14/preseason-rookie-qb-grades-film-study-caleb-williams-jj-mccarthy/
+
 **Kerry Carpenter returns to the Tigers with a bang, jolting a lineup that sorely missed him**\
 `Carpenter hit two home runs in his first game back after a 78-day stint on the injured list. `\
 https://nytimes.com/athletic/5699869/2024/08/14/tigers-kerry-carpenter-injury-return-two-homers/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/14/climate/extreme-heat-floods-education-schools.htm
 **Sex and Murder on Trial: ‘Presumed Innocent’**\
 `Two critics on the legal thriller that just won’t die.`\
 https://nytimes.com/2024/08/14/podcasts/sex-and-murder-on-trial-presumed-innocent.html
-
-**Late-Summer Travel Plans? You Might Want to Put On a Mask.**\
-`With U.S. Covid-19 cases at very high levels and new vaccines still several weeks away, we asked experts for their advice on when and where to wear a mask.`\
-https://nytimes.com/2024/08/14/travel/masks-covid-flights-trains.html
-
-**What People Wear in One of the Happiest Places on Earth**\
-`At Copenhagen Fashion Week, outfits on and off the runway had a lively spirit that reflected the event’s location in a country known for its quality of life.`\
-https://nytimes.com/2024/08/14/style/copenhagen-fashion-week-outfit-trends.html
 
