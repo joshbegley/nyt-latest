@@ -1,3 +1,7 @@
+**Szczesny agrees Juve mutual contract termination**\
+`Juventus have agreed to mutually terminate the contract of goalkeeper Wojciech Szczesny.`\
+https://nytimes.com/athletic/5700167/2024/08/14/wojciech-szczesny-juventus-exit/
+
 **'Fake' test results leaked after Polish anti-doping agency targeted by cyber attack**\
 `The Polish anti-doping agency (POLADA) said on Wednesday that it was the victim of a cyber attack that led to false details of positive tests from a number of athletes being leaked.`\
 https://nytimes.com/athletic/5700428/2024/08/14/polish-anti-doping-cyber-attack/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/14/business/cpi-inflation-fed/food-price-increa
 **A.I. Could Ruin Kids’ Critical-Thinking Skills**\
 `Many students lean on the technology rather than wrestle with challenging tasks.`\
 https://nytimes.com/2024/08/14/opinion/ai-schools-teachers-students.html
-
-**His Trilogy Explored the Nazi Era. Now He Looks at the People Behind It.**\
-`In “Hitler’s People,” the renowned historian Richard J. Evans takes a biographical approach to the Third Reich.`\
-https://nytimes.com/2024/08/14/books/review/richard-j-evans-hitlers-people.html
 
