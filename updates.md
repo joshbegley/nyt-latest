@@ -1,3 +1,7 @@
+**Ilhan Omar, a Vocal Critic of Israel and ‘Squad’ Member, Wins Her Primary**\
+`Two other House Democrats who are part of the left-wing “squad” lost primary contests this summer after an influx of spending by pro-Israel groups.`\
+https://nytimes.com/2024/08/13/us/politics/ilhan-omar-minnesota-primary.html
+
 **Production Company for Katy Perry’s ‘Lifetimes’ Video Under Investigation in Spain**\
 `Local authorities opened an investigation into the production company for filming in a protected area without clearance, according to a news release.`\
 https://nytimes.com/2024/08/13/arts/music/katy-perry-lifetimes-investigation.html
