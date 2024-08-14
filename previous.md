@@ -1,3 +1,19 @@
+**Rams, Cowboys get into scuffle during drills**\
+`The Rams didn't like one of their staff members being shoved during their joint practice with the Cowboys.`\
+https://nytimes.com/athletic/5701376/2024/08/14/rams-cowboys-practice-scuffle/
+
+**Auston Matthews is ready for the added spotlight that comes with being Maple Leafs captain**\
+`Naming Matthews captain feels like a decision made with the long term in mind. “That’s the goal: To be a Leaf for life,” Matthews said.`\
+https://nytimes.com/athletic/5701356/2024/08/14/uston-matthews-captain-maple-leafs/
+
+**Vikings WR Jordan Addison carted off with apparent leg injury**\
+`The Vikings have been hit hard by injuries this training camp, losing both J.J. McCarthy and Mekhi Blackmon for the season.`\
+https://nytimes.com/athletic/5701442/2024/08/14/vikings-wr-jordan-addison-carted-off-with-apparent-leg-injury-suffered-in-practice/
+
+**Brighton complete signing of Gruda from Mainz**\
+`Brighton &amp; Hove Albion have completed the signing of Brajan Gruda from Mainz.`\
+https://nytimes.com/athletic/5696907/2024/08/14/brajan-gruda-brighton-transfer/
+
 **Former champions Thiem and Osaka headline US Open wildcards**\
 `The US Open has announced its singles wildcards for 2024, led by former champions Dominic Thiem, Naomi Osaka, Stan Wawrinka, and Bianca Andreescu.`\
 https://nytimes.com/athletic/5701353/2024/08/14/us-open-wildcards-thiem-wawrinka-osaka-andreescu-anisimova/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5701355/2024/08/14/bobby-clark-salzburg-liverpool-t
 **A New Venue Beckons Jazz Musicians and Beyond to Upstate New York**\
 `The Mill, an arts center with art galleries and a performance space in an old flour mill, opened over the weekend. Its owners hope it sparks a “ripple effect.”`\
 https://nytimes.com/2024/08/14/arts/music/the-mill-venue-westport-new-york.html
-
-**Black Art Week in San Francisco Bay Area Is in the Works for the Fall**\
-`The executive director of the Museum of the African Diaspora says the goal is to “celebrate the rich Black art landscape” of the region.`\
-https://nytimes.com/2024/08/14/arts/design/black-art-week-san-francisco.html
-
-**Man City winger Bobb set for spell on sidelines with fractured leg**\
-`Manchester City winger Oscar Bobb is set for a spell on the sidelines after he fractured a bone in his leg.`\
-https://nytimes.com/athletic/5701203/2024/08/14/man-city-oscar-bobb-injury-leg/
-
-**Summer 2024 News Quiz for Students**\
-`How closely have you paid attention to current events? See what you remember by taking our special Summer 2024 News Quiz.`\
-https://nytimes.com/interactive/2024/08/14/learning/14StudentSummerNewsQuiz.html
-
-**Wealthy Nations Must Prioritize the Global Fight Against Mpox**\
-`The virus is back on the rise, potentially with a vengeance.`\
-https://nytimes.com/live/2024/08/13/opinion/thepoint/mpox-global-health-emergency
 
