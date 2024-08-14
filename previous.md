@@ -1,3 +1,7 @@
+**Hunter Biden Sought State Department Help for Ukrainian Company**\
+`After President Biden dropped his re-election bid, his administration released records showing that while he was vice president, his son solicited U.S. government assistance.`\
+https://nytimes.com/2024/08/13/us/politics/hunter-biden-ukrainian-company.html
+
 **Next steps for Cubs pitching prospect Cade Horton after setback**\
 `Cubs GM Carter Hawkins said Horton is dealing with “the same injury” that’s sidelined him since the end of May — a subscapularis strain.`\
 https://nytimes.com/athletic/5699636/2024/08/13/chicago-cubs-cade-horton-injury-setback/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5699439/2024/08/13/yankees-jazz-chisholm-jr-ucl-inj
 **Penguins acquire Cody Glass from Predators**\
 `Glass has one year remaining on his contract and will earn $2.5 million during the 2024-25 season.`\
 https://nytimes.com/athletic/5699467/2024/08/13/penguins-cody-glass-predators-trade/
-
-**President Biden Announces $150 Million in Cancer Research Grants**\
-`President Biden said eight research centers would receive research awards aimed at pioneering new methods of precision cancer surgery as part of his administration’s cancer “moonshoot” initiative.`\
-https://nytimes.com/video/us/politics/100000009628074/biden-cancer-moonshot-research.html
 

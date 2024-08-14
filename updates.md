@@ -1,3 +1,7 @@
+**Hunter Biden Sought State Department Help for Ukrainian Company**\
+`After President Biden dropped his re-election bid, his administration released records showing that while he was vice president, his son solicited U.S. government assistance.`\
+https://nytimes.com/2024/08/13/us/politics/hunter-biden-ukrainian-company.html
+
 **Next steps for Cubs pitching prospect Cade Horton after setback**\
 `Cubs GM Carter Hawkins said Horton is dealing with “the same injury” that’s sidelined him since the end of May — a subscapularis strain.`\
 https://nytimes.com/athletic/5699636/2024/08/13/chicago-cubs-cade-horton-injury-setback/
