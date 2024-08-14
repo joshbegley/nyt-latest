@@ -1,3 +1,7 @@
+**Betty A. Prashker, Book Publishing Pioneer, Is Dead at 99**\
+`A top editor and executive at two publishing houses, she was an advocate for other women in publishing, and for equal pay in an industry that had long been male-dominated.`\
+https://nytimes.com/2024/08/14/books/betty-a-prashker-dead.html
+
 **In Economy-Focused Speech, Trump Still Lobs Personal Attacks Against Harris**\
 `Mr. Trump’s remarks on the economy and his insults aimed at Ms. Harris suggested the Trump campaign continues to suffer growing pains as it adjusts to a new opponent.`\
 https://nytimes.com/2024/08/14/us/politics/trump-rally-asheville.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5701426/2024/08/14/brandon-aiyuk-49ers-practice/
 **‘I’m Looking for a Job’: Biden Jokes About Life After the White House**\
 `With a jovial serenity, the president has more publicly embraced the idea of retirement as he heads into his final months in office.`\
 https://nytimes.com/2024/08/14/us/politics/biden-retirement.html
-
-**Rabbi Shmuel Butman, 81, a Brooklyn Voice of Ultra-Orthodox Jews, Is Dead**\
-`He was the public face of the Chabad-Lubavitch sect during the Crown Heights riots in 1991 and for decades lit its giant menorah in Manhattan every Hanukkah.`\
-https://nytimes.com/2024/08/14/nyregion/rabbi-shmuel-butman-dead.html
 
