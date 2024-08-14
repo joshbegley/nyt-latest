@@ -1,3 +1,7 @@
+**What we've learned about Penn State this preseason: Are the explosive plays improving?**\
+`Penn State's offense is the biggest storyline entering the season for the Nittany Lions. And it needs to improve from last year.`\
+https://nytimes.com/athletic/5700445/2024/08/14/penn-state-college-football-offense-andy-kotelnicki/
+
 **Liverpool exploring Mamardashvili deal**\
 `Liverpool are exploring a deal to sign Valencia goalkeeper Giorgi Mamardashvili.`\
 https://nytimes.com/athletic/5690035/2024/08/14/giorgi-mamardashvili-liverpool-transfer-valencia/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5691705/2024/08/14/sf-giants-tyler-fitzgerald-rooki
 **Harris Is Set to Lay Out an Economic Message Light on Detail**\
 `The vice president is expected to recalibrate President Biden’s policy themes in a bid to turn the Democratic economic agenda into an asset.`\
 https://nytimes.com/2024/08/14/us/politics/kamala-harris-economy-north-carolina.html
-
-**Almiron's proposed transfer to Charlotte FC collapses**\
-`Miguel Almiron&#8217;s proposed transfer to Charlotte FC has fallen through.`\
-https://nytimes.com/athletic/5696641/2024/08/14/miguel-almiron-charlotte-newcastle/
 
