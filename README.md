@@ -1,3 +1,7 @@
+**Barcelona's new coaching setup under Hansi Flick - including Thiago latest**\
+`As Barca prepare for their La Liga season-opener at Valencia, these are the new faces in Hansi Flick's staff`\
+https://nytimes.com/athletic/5700326/2024/08/14/barcelona-hansi-flick-thiago-coaching-staff/
+
 **Judge Denies Trump’s Third Request to Remove Him From Criminal Case**\
 `Justice Juan M. Merchan, who oversaw the trial that led to Donald J. Trump’s conviction on 34 felony counts, dismissed the request as “nothing more than a repetition of stale and unsubstantiated claims.”`\
 https://nytimes.com/2024/08/14/nyregion/trump-trial-merchan-recusal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5696641/2024/08/14/miguel-almiron-charlotte-newcast
 **Five storylines to watch during the remainder of the Blue Jays season**\
 `Vladimir Guerrero Jr.'s hitting, young players auditioning for 2025: There are still reasons to watch the Blue Jays this year.`\
 https://nytimes.com/athletic/5699997/2024/08/14/blue-jays-storylines-to-watch/
-
-**Madrid's Camavinga suffers knee ligament sprain injury**\
-`Real Madrid midfielder Eduardo Camavinga is set to miss up to seven weeks after suffering a ligament sprain in his left knee.`\
-https://nytimes.com/athletic/5700193/2024/08/14/eduardo-camavinga-injury-real-madrid/
 
