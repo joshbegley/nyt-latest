@@ -1,3 +1,11 @@
+**Brighton activate release clause of Leeds forward Rutter**\
+`Brighton &amp; Hove Albion have activated a £40million release clause in the contract of Leeds United forward Georginio Rutter.`\
+https://nytimes.com/athletic/5701773/2024/08/14/georginio-rutter-leeds-brighton-transfer/
+
+**Stefanski refuses to comment on Mike Hall Jr.'s legal situation**\
+`Stefanski, 42, has been at the helm of the Browns since 2202.`\
+https://nytimes.com/athletic/5701664/2024/08/14/browns-kevin-stefanski-mike-hall/
+
 **Wyoming Reporter Resigns After Using A.I. to Fabricate Quotes**\
 `Aaron Pelczar left the Cody Enterprise after a competing newspaper presented him with evidence of made-up quotes in several of his stories.`\
 https://nytimes.com/2024/08/14/business/media/wyoming-cody-enterprise-ai.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/14/us/politics/jesse-ventura-tim-walz-kamala-harris.
 **Leeds 0 Middlesbrough 3: Is post-play-off pressure mounting? What's wrong with defence?**\
 `Leeds fell to a big defeat to Middlesbrough at home — these are the key talking points`\
 https://nytimes.com/athletic/5700562/2024/08/14/leeds-united-middlesbrough-analysis/
-
-**Broncos rookie Jonah Elliss steadily improving his pass-rush plan**\
-`Plus, Denver coach Sean Payton is "encouraged" by what he saw from fourth-year QB Zach Wilson in the preseason opener. `\
-https://nytimes.com/athletic/5701394/2024/08/14/jonah-elliss-broncos-training-camp/
-
-**Just How Demure Are You?**\
-`A TikTok trend has breathed new life into a fusty word.`\
-https://nytimes.com/2024/08/14/style/demure-tiktok-mindful-cutesy.html
 
