@@ -1,3 +1,7 @@
+**Austin Dillon's Richmond win won't count toward NASCAR playoff eligibility**\
+`Dillon's controversial Richmond win is the fifth in his career, but NASCAR ruled on Wednesday that it won't count toward the playoffs.`\
+https://nytimes.com/athletic/5701329/2024/08/14/austin-dillon-penalty-richmond-nascar/
+
 **Patriots hoping for more from offense in Week 2 preseason game vs. Eagles**\
 `Rookie QB Drake Maye is expected to play more in the Patriots' second preseason game than he did in the first. So can the offense improve?`\
 https://nytimes.com/athletic/5700822/2024/08/14/patriots-eagles-preseason-drake-maye/
