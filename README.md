@@ -1,3 +1,7 @@
+**Trump Gambles on Outside Groups to Finance Voter Outreach Efforts**\
+`New federal rules allow political candidates to coordinate their efforts to canvass for votes with outside groups like super PACs.`\
+https://nytimes.com/2024/08/14/us/politics/trump-voter-outreach-super-pacs.html
+
 **Romeo Lavia: 'My body let me down ... this is my first proper season at Chelsea'**\
 `"We are building something amazing. Everyone at the club can feel it," says Romeo Lavia of Chelsea as he returns from his injury nightmare`\
 https://nytimes.com/athletic/5694482/2024/08/14/romeo-lavia-interview-chelsea/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/14/magazine/aunt-baby-congratulations-ethics.html
 **Hurricane Ernesto Knocks Out Power to Hundreds of Thousands in Puerto Rico**\
 `The island’s frail electrical system struggled as the storm passed on Wednesday.`\
 https://nytimes.com/2024/08/14/us/puerto-rico-power-hurricane-ernesto.html
-
-**Scoop City: Injury updates for Jahmyr Gibbs, J.J. McCarthy and other s**\
-`Latest on Alvin Kamara, J.J. McCarthy, DeAndre Hopkins and other injured players to watch.`\
-https://nytimes.com/athletic/5700840/2024/08/14/nfl-injury-updates-scoop-city-aug/
 
