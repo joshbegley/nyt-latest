@@ -1,3 +1,11 @@
+**Does Harris Actually Need to Move Democrats Right?**\
+`Whether the Democrats moved too far left after Obama has serious implications for the next election.`\
+https://nytimes.com/2024/08/14/opinion/obama-harris-progressives.html
+
+**U.C.L.A. Can’t Let Protesters Block Jewish Students From Campus, Judge Says**\
+`The judge’s temporary ruling came after protests over the war in Gaza in the spring led to over 200 arrests on campus.`\
+https://nytimes.com/2024/08/14/us/ucla-jewish-students-gaza-protests.html
+
 **Premier League acknowledges VAR flaws from last season, emphasising 'referee's call' for 2024-25**\
 `The Premier League has acknowledged that the VAR process drifted last season and is putting an emphasis on the on-field referee’s decision ahead of the 2024-25 campaign.`\
 https://nytimes.com/athletic/5700900/2024/08/14/premier-league-var-2024-25-referees-call/
