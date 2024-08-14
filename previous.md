@@ -1,3 +1,15 @@
+**Why Did a Plane Crash in Brazil? A Reporter Looks for Answers.**\
+`Jack Nicas, who leads coverage of much of South America, previously reported on aviation disasters. After a plane crashed outside São Paulo on Friday, he leaned on his expertise to help break the news.`\
+https://nytimes.com/2024/08/14/insider/why-did-a-plane-crash-in-brazil-a-reporter-looks-for-answers.html
+
+**A Nurses’ Union Flexed Its Power. One Hospital Is Pushing Back.**\
+`Nurses enjoy more protections now than they did before the pandemic. A large hospital system, NewYork-Presbyterian, has fought some of their gains, including by appealing to the Supreme Court.`\
+https://nytimes.com/2024/08/14/nyregion/nurses-unions-new-york-presbyterian-hospital-supreme-court.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/14/crosswords/spelling-bee-forum.html
+
 **China’s Extreme Fan Culture Makes Olympic Gold a Mixed Blessing**\
 `Fans have mobbed athletes in public and staked out their homes. State media outlets denounced their “visibly aggressive” behavior.`\
 https://nytimes.com/2024/08/14/world/asia/china-olympics-fan-culture.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/14/pageoneplus/quotation-of-the-day-automated-restau
 **The Briefing: Sheff Utd 4 Wrexham 2 - How did new signings fare and was there bad blood?**\
 `The big talking points from Tuesday's Carabao Cup first round tie at Bramall Lane`\
 https://nytimes.com/athletic/5686681/2024/08/14/wrexham-sheffield-united-result-analysis/
-
-**Wide receiver advanced stats that matter for fantasy football 2024, and the players who excel at them**\
-`John Laghezza drills down into the advanced metrics to mine the best WR targets for fantasy football 2024, including the Bucs' Chris Godwin.`\
-https://nytimes.com/athletic/5691927/2024/08/14/wide-receiver-advanced-stats-that-fantasy-football-2024-chris-godwin-ceedee-lamb/
-
-**Thailand’s Royal Spell Has Been Broken**\
-`Thailand faces a collision between an electorate that wants change and a king who won’t let go. Something’s got to give.`\
-https://nytimes.com/2024/08/14/opinion/thailand-royalists-king-democracy.html
-
-**Dodgers share best record in baseball despite injury woes: 'It's remarkable'**\
-`Clayton Kershaw said the Dodgers can reach a higher gear as they get healthy again: “I think you’ll see us start to take off here soon.”`\
-https://nytimes.com/athletic/5699989/2024/08/14/dodgers-injuries-mlb-playoffs/
 

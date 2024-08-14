@@ -1,3 +1,15 @@
+**Why Did a Plane Crash in Brazil? A Reporter Looks for Answers.**\
+`Jack Nicas, who leads coverage of much of South America, previously reported on aviation disasters. After a plane crashed outside São Paulo on Friday, he leaned on his expertise to help break the news.`\
+https://nytimes.com/2024/08/14/insider/why-did-a-plane-crash-in-brazil-a-reporter-looks-for-answers.html
+
+**A Nurses’ Union Flexed Its Power. One Hospital Is Pushing Back.**\
+`Nurses enjoy more protections now than they did before the pandemic. A large hospital system, NewYork-Presbyterian, has fought some of their gains, including by appealing to the Supreme Court.`\
+https://nytimes.com/2024/08/14/nyregion/nurses-unions-new-york-presbyterian-hospital-supreme-court.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/14/crosswords/spelling-bee-forum.html
+
 **China’s Extreme Fan Culture Makes Olympic Gold a Mixed Blessing**\
 `Fans have mobbed athletes in public and staked out their homes. State media outlets denounced their “visibly aggressive” behavior.`\
 https://nytimes.com/2024/08/14/world/asia/china-olympics-fan-culture.html
