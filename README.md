@@ -1,3 +1,15 @@
+**How Many Ways Can You Eat a Cucumber? Just Ask ‘Cucumber Guy.’**\
+`“Sometimes you need to eat an entire cucumber,” the TikTok star Logan Moffitt says in the summer’s most riffable recipe.`\
+https://nytimes.com/2024/08/14/dining/tiktok-cucumber-guy-logan-moffitt.html
+
+**Contaminants Found at German Military Base, and Sabotage Is Suspected**\
+`The discovery led to the temporary lockdown of the base while the water supply was tested. NATO officials also reported that an intruder tried to forcibly enter one of the alliance’s bases in the country.`\
+https://nytimes.com/2024/08/14/world/europe/germany-military-bases-contaminants-nato.html
+
+**What’s in Our Queue? ‘BoJack Horseman’ and More**\
+`I’m a food columnist for The New York Times Magazine. Here are five things I’ve recently relished.`\
+https://nytimes.com/interactive/2024/08/14/arts/editors-recommendations-bojack.html
+
 **Ravens TE Andrews OK after car crash Wednesday**\
 `The three-time Pro Bowler will not practice Wednesday, but he had already been scheduled for a non-practice day`\
 https://nytimes.com/athletic/5701064/2024/08/14/ravens-mark-andrews-car-accident/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/14/world/europe/banksy-london-street-art.html
 **Durant's PSG stake explained: Why has he bought in? Does he have a say?**\
 `Kevin Durant has purchased a stake in Paris Saint-Germain — this is why`\
 https://nytimes.com/athletic/5700380/2024/08/14/kevin-durant-psg-nba/
-
-**Harris Shouldn’t Forget That Democracy Is Still on the Ballot**\
-`And there are still voters who care about it.`\
-https://nytimes.com/2024/08/13/opinion/harris-democracy-ballot.html
-
-**Readers’ Pleas to The Times: Don’t End the New York Endorsements**\
-`Readers disagree with The Times’s decision to stop endorsing in local races. Also: Trump-speak; the human touch in restaurants; student phone bans.`\
-https://nytimes.com/2024/08/14/opinion/new-york-times-endorsements.html
-
-**Shaqiri, Fire agree to mutual termination of midfielder's contract**\
-`Xherdan Shaqiri and the Chicago Fire have mutually agreed to terminate the Switzerland international’s contract.`\
-https://nytimes.com/athletic/5701018/2024/08/14/xherdan-shaqiri-fire-transfer-exit/
 
