@@ -1,3 +1,7 @@
+**Judge Denies Trump’s Third Request to Remove Him From Criminal Case**\
+`Justice Juan M. Merchan, who oversaw the trial that led to Donald J. Trump’s conviction on 34 felony counts, dismissed the request as “nothing more than a repetition of stale and unsubstantiated claims.”`\
+https://nytimes.com/2024/08/14/nyregion/trump-trial-merchan-recusal.html
+
 **Cubs’ Dansby Swanson on wife Mallory’s gold medal, baseball at Olympics and more**\
 `Swanson: "You’ve started to see us forming an identity and everyone buying into that and doing their part. Belief is a powerful thing."`\
 https://nytimes.com/athletic/5699882/2024/08/14/dansby-swanson-mallory-swanson-cubs-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5699997/2024/08/14/blue-jays-storylines-to-watch/
 **Madrid's Camavinga suffers knee ligament sprain injury**\
 `Real Madrid midfielder Eduardo Camavinga is set to miss up to seven weeks after suffering a ligament sprain in his left knee.`\
 https://nytimes.com/athletic/5700193/2024/08/14/eduardo-camavinga-injury-real-madrid/
-
-**Makers of Snickers and Pringles to Merge in $36 Billion Food Deal**\
-`Mars is acquiring Kellanova in one of the largest deals in the industry in years, creating a new global giant with a stable of well-known brands.`\
-https://nytimes.com/2024/08/14/business/dealbook/mars-kellanova-deal-pringles-cheezit.html
 

@@ -1,3 +1,7 @@
+**Judge Denies Trump’s Third Request to Remove Him From Criminal Case**\
+`Justice Juan M. Merchan, who oversaw the trial that led to Donald J. Trump’s conviction on 34 felony counts, dismissed the request as “nothing more than a repetition of stale and unsubstantiated claims.”`\
+https://nytimes.com/2024/08/14/nyregion/trump-trial-merchan-recusal.html
+
 **Cubs’ Dansby Swanson on wife Mallory’s gold medal, baseball at Olympics and more**\
 `Swanson: "You’ve started to see us forming an identity and everyone buying into that and doing their part. Belief is a powerful thing."`\
 https://nytimes.com/athletic/5699882/2024/08/14/dansby-swanson-mallory-swanson-cubs-olympics/
