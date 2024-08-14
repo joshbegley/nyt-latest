@@ -1,3 +1,7 @@
+**Honks and Beeps but No One to Yell at: Waymo’s Driverless Cars Wake Neighbors**\
+`In late July, Waymo rented a parking lot outside two San Francisco apartment buildings for its vehicles to idle in. Then came the noise.`\
+https://nytimes.com/2024/08/14/us/waymo-robotaxi-parking-lot-honking.html
+
 **Fabio Carvalho to Brentford: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Fabio Carvalho's move to Brentford.`\
 https://nytimes.com/athletic/5696550/2024/08/14/fabio-carvalho-to-brentford-the-athletic-500-transfer-ratings/
