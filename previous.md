@@ -16,7 +16,7 @@ https://nytimes.com/athletic/5701376/2024/08/14/rams-cowboys-practice-scuffle/
 
 **Auston Matthews is ready for the added spotlight that comes with being Maple Leafs captain**\
 `Naming Matthews captain feels like a decision made with the long term in mind. “That’s the goal: To be a Leaf for life,” Matthews said.`\
-https://nytimes.com/athletic/5701356/2024/08/14/uston-matthews-captain-maple-leafs/
+https://nytimes.com/athletic/5701356/2024/08/14/auston-matthews-captain-maple-leafs/
 
 **Vikings WR Jordan Addison carted off with apparent leg injury**\
 `The Vikings have been hit hard by injuries this training camp, losing both J.J. McCarthy and Mekhi Blackmon for the season.`\

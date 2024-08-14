@@ -1,3 +1,7 @@
+**Auston Matthews is ready for the added spotlight that comes with being Maple Leafs captain**\
+`Naming Matthews captain feels like a decision made with the long term in mind. “That’s the goal: To be a Leaf for life,” Matthews said.`\
+https://nytimes.com/athletic/5701356/2024/08/14/auston-matthews-captain-maple-leafs/
+
 **Harris’s Economic Plans: The Good, the Bad and the Unnecessary**\
 `There may be a political need to “fight inflation,” but economically the issue is over.`\
 https://nytimes.com/live/2024/08/13/opinion/thepoint/harris-economic-plans
