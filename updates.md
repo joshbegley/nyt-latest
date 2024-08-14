@@ -1,3 +1,7 @@
+**Patriots hoping for more from offense in Week 2 preseason game vs. Eagles**\
+`Rookie QB Drake Maye is expected to play more in the Patriots' second preseason game than he did in the first. So can the offense improve?`\
+https://nytimes.com/athletic/5700822/2024/08/14/patriots-eagles-preseason-drake-maye/
+
 **Rams, Cowboys get into scuffle during drills**\
 `The Rams didn't like one of their staff members being shoved during their joint practice with the Cowboys.`\
 https://nytimes.com/athletic/5701376/2024/08/14/rams-cowboys-practice-scuffle/
