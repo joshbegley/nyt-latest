@@ -1,4 +1,8 @@
 **How Many Ways Can You Eat a Cucumber? Just Ask ‘Cucumber Guy.’**\
+`“Sometimes you need to eat an entire cucumber,” the TikTok star Logan Moffitt says of the summer’s most riffable recipe.`\
+https://nytimes.com/2024/08/14/dining/tiktok-cucumber-guy-logan-moffitt.html
+
+**How Many Ways Can You Eat a Cucumber? Just Ask ‘Cucumber Guy.’**\
 `“Sometimes you need to eat an entire cucumber,” the TikTok star Logan Moffitt says in the summer’s most riffable recipe.`\
 https://nytimes.com/2024/08/14/dining/tiktok-cucumber-guy-logan-moffitt.html
 
