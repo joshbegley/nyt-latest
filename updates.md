@@ -1,3 +1,7 @@
+**Deshaun Watson, Sam Darnold and other players to watch at Browns-Vikings joint practices**\
+`Browns writer Zac Jackson and Vikings writer Alec Lewis trade emails about key storylines, players to watch and developing roster battles.`\
+https://nytimes.com/athletic/5698915/2024/08/14/browns-vikings-joint-practice/
+
 **How many defensive linemen can the Falcons keep, and who are all these guys?**\
 `The Falcons have 14 defensive linemen on the 90-man roster. No more than nine will make the final cut. Let's break it down.`\
 https://nytimes.com/athletic/5696399/2024/08/14/atlanta-falcons-defensive-linemen-roster/

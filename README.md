@@ -1,3 +1,11 @@
+**Kerry Carpenter returns to the Tigers with a bang, jolting a lineup that sorely missed him**\
+`Carpenter hit two home runs in his first game back after a 78-day stint on the injured list. `\
+https://nytimes.com/athletic/5699869/2024/08/14/tigers-kerry-carpenter-injury-return-two-homers/
+
+**Thai Court Ejects Prime Minister From Office**\
+`To many, Prime Minister Srettha Thavisin was a figurehead leader in a behind-the-scenes power struggle. He was ousted on ethics charges.`\
+https://nytimes.com/2024/08/14/world/asia/thailand-prime-minister-srettha.html
+
 **Deshaun Watson, Sam Darnold and other players to watch at Browns-Vikings joint practices**\
 `Browns writer Zac Jackson and Vikings writer Alec Lewis trade emails about key storylines, players to watch and developing roster battles.`\
 https://nytimes.com/athletic/5698915/2024/08/14/browns-vikings-joint-practice/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/14/travel/masks-covid-flights-trains.html
 **What People Wear in One of the Happiest Places on Earth**\
 `At Copenhagen Fashion Week, outfits on and off the runway had a lively spirit that reflected the event’s location in a country known for its quality of life.`\
 https://nytimes.com/2024/08/14/style/copenhagen-fashion-week-outfit-trends.html
-
-**As Famine Deepens in Sudan, U.S. Leads New Push for Ceasefire**\
-`The American-backed talks in Switzerland, starting on Wednesday, aim to halt a catastrophic civil war. But only one side says it will turn up.`\
-https://nytimes.com/2024/08/14/world/africa/sudan-civil-war-ceasefire-talks-geneva.html
-
-**Inflation Data Is the Next Hurdle for Investors Weary From Volatility**\
-`A sharper-than-expected rise or fall in the Consumer Price Index could intensify worries on Wall Street about the economy’s prospects.`\
-https://nytimes.com/2024/08/14/business/inflation-stock-market.html
 
