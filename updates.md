@@ -1,3 +1,8 @@
+**Chicago Red Stars' stadium clash is solved - but it exposes the hurdles faced by NWSL**\
+`Chicago Red Stars faced having to travel to Kansas City to play a home match. Here's why...
+`\
+https://nytimes.com/athletic/5701218/2024/08/14/chicago-red-stars-seatgeek-stadium-clash-resolved/
+
 **Inflation Fell Below 3% for the First Time in Years**\
 `Also, U.S. officials say Israel’s military has achieved all it can in Gaza. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/08/14/briefing/inflation-report-us-assessment-gaza-war.html
