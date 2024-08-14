@@ -1,3 +1,11 @@
+**Brighton activate release clause of Leeds forward Rutter**\
+`Brighton &amp; Hove Albion have activated a £40million release clause in the contract of Leeds United forward Georginio Rutter.`\
+https://nytimes.com/athletic/5701773/2024/08/14/georginio-rutter-leeds-brighton-transfer/
+
+**Stefanski refuses to comment on Mike Hall Jr.'s legal situation**\
+`Stefanski, 42, has been at the helm of the Browns since 2202.`\
+https://nytimes.com/athletic/5701664/2024/08/14/browns-kevin-stefanski-mike-hall/
+
 **Wyoming Reporter Resigns After Using A.I. to Fabricate Quotes**\
 `Aaron Pelczar left the Cody Enterprise after a competing newspaper presented him with evidence of made-up quotes in several of his stories.`\
 https://nytimes.com/2024/08/14/business/media/wyoming-cody-enterprise-ai.html

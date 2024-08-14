@@ -1,3 +1,11 @@
+**Falcons acquire Matthew Judon in trade with Patriots**\
+`Judon was blunt this offseason in expressing his disappointment in not receiving a contract extension from the Patriots.`\
+https://nytimes.com/athletic/5701786/2024/08/14/matthew-judon-falcons-patriots-trade/
+
+**Ten questions that will impact the Lions' roster construction**\
+`Several questions depend on how many of each position the Lions want to carry.`\
+https://nytimes.com/athletic/5701060/2024/08/14/detroit-lions-roster-construction-ten-questions/
+
 **Brighton activate release clause of Leeds forward Rutter**\
 `Brighton &amp; Hove Albion have activated a £40million release clause in the contract of Leeds United forward Georginio Rutter.`\
 https://nytimes.com/athletic/5701773/2024/08/14/georginio-rutter-leeds-brighton-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/14/technology/cisco-layoffs.html
 **Matthew Stafford exits productive Rams practice vs. Cowboys with tight hamstring**\
 `Stafford remained on the sideline after leaving practice and Jimmy Garoppolo and Stetson Bennett took the rest of the reps at QB.`\
 https://nytimes.com/athletic/5701556/2024/08/14/rams-matthew-stafford-hamstring-tightness-practice/
-
-**A Hulk Hogan-Jesse Ventura Grudge Match, in the Political Arena**\
-`Hogan supports Donald J. Trump. Mr. Ventura is backing Kamala Harris. But their beef is more complicated than that.`\
-https://nytimes.com/2024/08/14/us/politics/jesse-ventura-tim-walz-kamala-harris.html
-
-**Leeds 0 Middlesbrough 3: Is post-play-off pressure mounting? What's wrong with defence?**\
-`Leeds fell to a big defeat to Middlesbrough at home — these are the key talking points`\
-https://nytimes.com/athletic/5700562/2024/08/14/leeds-united-middlesbrough-analysis/
 
