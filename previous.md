@@ -1,3 +1,7 @@
+**Pump Option**\
+`Samuel A. Donaldson gives us a chance to beat him fair and square.`\
+https://nytimes.com/2024/08/13/crosswords/daily-puzzle-2024-08-14.html
+
 **Red Sox's top prospects Mayer, Anthony, Teel arrive in Triple A, 'shocked how close Boston is'**\
 `All three of the Red Sox's top prospects arrive in Triple A with a checklist of "finishing items" to work on before their MLB debuts.`\
 https://nytimes.com/athletic/5699627/2024/08/13/marcelo-mayer-roman-anthony-kyle-teel-triple-a-debut/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5699636/2024/08/13/chicago-cubs-cade-horton-injury-
 **Inquiry Finds No Politics Behind Ballot Paper Shortages in 2022 Houston Election**\
 `Republicans accused Democratic officials of trying to sway the results. But prosecutors found that the problem stemmed from an employee whose attention was diverted.`\
 https://nytimes.com/2024/08/13/us/harris-county-elections-ballots-investigation-charges.html
-
-**Donald Trump plans to meet with Miriam Adelson after his aide sent her angry texts in his name.**\
-`Tru`\
-https://nytimes.com/live/2024/08/13/us/harris-trump-election/trump-miriam-adelson
 

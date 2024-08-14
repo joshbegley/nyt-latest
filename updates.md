@@ -1,3 +1,7 @@
+**Pump Option**\
+`Samuel A. Donaldson gives us a chance to beat him fair and square.`\
+https://nytimes.com/2024/08/13/crosswords/daily-puzzle-2024-08-14.html
+
 **Red Sox's top prospects Mayer, Anthony, Teel arrive in Triple A, 'shocked how close Boston is'**\
 `All three of the Red Sox's top prospects arrive in Triple A with a checklist of "finishing items" to work on before their MLB debuts.`\
 https://nytimes.com/athletic/5699627/2024/08/13/marcelo-mayer-roman-anthony-kyle-teel-triple-a-debut/
