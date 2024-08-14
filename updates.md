@@ -1,3 +1,7 @@
+**Red Sox's top prospects Mayer, Anthony, Teel arrive in Triple A, 'shocked how close Boston is'**\
+`All three of the Red Sox's top prospects arrive in Triple A with a checklist of "finishing items" to work on before their MLB debuts.`\
+https://nytimes.com/athletic/5699627/2024/08/13/marcelo-mayer-roman-anthony-kyle-teel-triple-a-debut/
+
 **Crucial Senate Race in Wisconsin Is Set Between Eric Hovde and Tammy Baldwin**\
 `Mr. Hovde, a wealthy businessman endorsed by Donald J. Trump, won the Republican primary Tuesday night to challenge Senator Tammy Baldwin, the Democratic incumbent.`\
 https://nytimes.com/2024/08/13/us/politics/eric-hovde-tammy-baldwin-wi.html
