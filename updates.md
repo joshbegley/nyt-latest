@@ -1,3 +1,15 @@
+**Unresponsive Brain-Damaged Patients May Have Some Awareness**\
+`Many patients thought to be in vegetative or minimally conscious states may be capable of thought, researchers reported.`\
+https://nytimes.com/2024/08/14/health/brain-injuries-consciousness-awareness.html
+
+**'No plans' for Premier League games overseas - chief executive Masters**\
+`Premier League chief executive Richard Masters claims the prospect of an English top flight match overseas has not been raised at a shareholders’ meeting since 2008.`\
+https://nytimes.com/athletic/5701119/2024/08/14/premier-league-matches-abroad-richard-masters/
+
+**What to Know About Mpox**\
+`The World Health Organization declared a global health emergency over an outbreak that has spread to more than a dozen African countries.`\
+https://nytimes.com/2024/08/14/world/africa/mpox-what-to-know.html
+
 **Auston Matthews is ready for the added spotlight that comes with being Maple Leafs captain**\
 `Naming Matthews captain feels like a decision made with the long term in mind. “That’s the goal: To be a Leaf for life,” Matthews said.`\
 https://nytimes.com/athletic/5701356/2024/08/14/auston-matthews-captain-maple-leafs/

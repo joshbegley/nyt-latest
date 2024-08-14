@@ -1,3 +1,15 @@
+**Unresponsive Brain-Damaged Patients May Have Some Awareness**\
+`Many patients thought to be in vegetative or minimally conscious states may be capable of thought, researchers reported.`\
+https://nytimes.com/2024/08/14/health/brain-injuries-consciousness-awareness.html
+
+**'No plans' for Premier League games overseas - chief executive Masters**\
+`Premier League chief executive Richard Masters claims the prospect of an English top flight match overseas has not been raised at a shareholders’ meeting since 2008.`\
+https://nytimes.com/athletic/5701119/2024/08/14/premier-league-matches-abroad-richard-masters/
+
+**What to Know About Mpox**\
+`The World Health Organization declared a global health emergency over an outbreak that has spread to more than a dozen African countries.`\
+https://nytimes.com/2024/08/14/world/africa/mpox-what-to-know.html
+
 **Harris’s Economic Plans: The Good, the Bad and the Unnecessary**\
 `There may be a political need to “fight inflation,” but economically the issue is over.`\
 https://nytimes.com/live/2024/08/13/opinion/thepoint/harris-economic-plans
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5701442/2024/08/14/vikings-wr-jordan-addison-carted
 **Brighton complete signing of Gruda from Mainz**\
 `Brighton &amp; Hove Albion have completed the signing of Brajan Gruda from Mainz.`\
 https://nytimes.com/athletic/5696907/2024/08/14/brajan-gruda-brighton-transfer/
-
-**Former champions Thiem and Osaka headline US Open wildcards**\
-`The US Open has announced its singles wildcards for 2024, led by former champions Dominic Thiem, Naomi Osaka, Stan Wawrinka, and Bianca Andreescu.`\
-https://nytimes.com/athletic/5701353/2024/08/14/us-open-wildcards-thiem-wawrinka-osaka-andreescu-anisimova/
-
-**Ravens without OL coach due to acute illness**\
-`Ravens OL coach Joe D'Alessandris was hospitalized over the weekend and will require ongoing treatment.`\
-https://nytimes.com/athletic/5701337/2024/08/14/ravens-joe-dalessandris-illness-offensive-line/
-
-**City Approves $7 Million Settlement for Exonerated Former Death Row Inmate**\
-`Edmond, Okla., agreed to the payment to settle a federal lawsuit filed by Glynn Simmons, 71, who spent 48 years in prison for a murder he did not commit. He now drives a food truck called FreeMan’s Food Truck, according to his lawyer.`\
-https://nytimes.com/2024/08/14/us/glynn-simmons-settlement-edmond.html
 
