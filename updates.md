@@ -1,3 +1,11 @@
+**Deaths at the Grand Canyon Are on the Rise. Here’s How to Stay Safe.**\
+`There have been 11 deaths at Grand Canyon National Park so far this year. We asked hiking experts to share their best recommendations to avoid danger.`\
+https://nytimes.com/2024/08/14/us/grand-canyon-park-deaths.html
+
+**Food price increases remained relatively unchanged in July.**\
+`By Madeleine Ngo`\
+https://nytimes.com/live/2024/08/14/business/cpi-inflation-fed/food-price-increases-remained-relatively-unchanged-in-july
+
 **A.I. Could Ruin Kids’ Critical-Thinking Skills**\
 `Many students lean on the technology rather than wrestle with challenging tasks.`\
 https://nytimes.com/2024/08/14/opinion/ai-schools-teachers-students.html

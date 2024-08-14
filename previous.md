@@ -1,3 +1,11 @@
+**Deaths at the Grand Canyon Are on the Rise. Here’s How to Stay Safe.**\
+`There have been 11 deaths at Grand Canyon National Park so far this year. We asked hiking experts to share their best recommendations to avoid danger.`\
+https://nytimes.com/2024/08/14/us/grand-canyon-park-deaths.html
+
+**Food price increases remained relatively unchanged in July.**\
+`By Madeleine Ngo`\
+https://nytimes.com/live/2024/08/14/business/cpi-inflation-fed/food-price-increases-remained-relatively-unchanged-in-july
+
 **A.I. Could Ruin Kids’ Critical-Thinking Skills**\
 `Many students lean on the technology rather than wrestle with challenging tasks.`\
 https://nytimes.com/2024/08/14/opinion/ai-schools-teachers-students.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/14/nyregion/trump-trial-merchan-recusal.html
 **Cubs’ Dansby Swanson on wife Mallory’s gold medal, baseball at Olympics and more**\
 `Swanson: "You’ve started to see us forming an identity and everyone buying into that and doing their part. Belief is a powerful thing."`\
 https://nytimes.com/athletic/5699882/2024/08/14/dansby-swanson-mallory-swanson-cubs-olympics/
-
-**A top U.S. official visits Lebanon in a bid to avert a war between Hezbollah and Israel.**\
-`By Euan Ward`\
-https://nytimes.com/live/2024/08/14/world/israel-iran-hamas-gaza-war/a-top-us-official-visits-lebanon-in-a-bid-to-avert-a-war-between-hezbollah-and-israel
-
-**Google’s Stock Falls as the Government Weighs Breaking Up the Company**\
-`The Justice Department could force the technology group to split after a landmark court ruling that the search giant is an illegal monopoly.`\
-https://nytimes.com/2024/08/14/business/dealbook/google-stock-antitrust-break-up.html
 
