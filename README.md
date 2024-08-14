@@ -1,3 +1,11 @@
+**Lowetide: Dual offer sheets put Oilers 2024-25 roster in turmoil**\
+`Dylan Holloway and Philip Broberg could be Blues by this time next week. How bad would that be for the Oilers?`\
+https://nytimes.com/athletic/5698310/2024/08/14/oilers-offer-sheets-blues-broberg-holloway/
+
+**Germany Issues Arrest Warrant for Ukrainian Over of Nord Stream Explosion**\
+`The sabotage of the pipelines that carried Russian gas to Europe has become one of the central mysteries of the war in Ukraine.`\
+https://nytimes.com/2024/08/14/world/europe/nord-stream-explosion-germany-ukraine-arrest-warrant.html
+
 **Netherlands defender Daley Blind retires from international football**\
 `Netherlands defender Daley Blind has confirmed his retirement from international football.`\
 https://nytimes.com/athletic/5700482/2024/08/14/daley-blind-netherlands-retires/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5700445/2024/08/14/penn-state-college-football-offe
 **Liverpool exploring Mamardashvili deal**\
 `Liverpool are exploring a deal to sign Valencia goalkeeper Giorgi Mamardashvili.`\
 https://nytimes.com/athletic/5690035/2024/08/14/giorgi-mamardashvili-liverpool-transfer-valencia/
-
-**Barcelona's new coaching setup under Hansi Flick - including Thiago latest**\
-`As Barca prepare for their La Liga season-opener at Valencia, these are the new faces in Hansi Flick's staff`\
-https://nytimes.com/athletic/5700326/2024/08/14/barcelona-hansi-flick-thiago-coaching-staff/
-
-**Judge Denies Trump’s Third Request to Remove Him From Criminal Case**\
-`Justice Juan M. Merchan, who oversaw the trial that led to Donald J. Trump’s conviction on 34 felony counts, rebuked Mr. Trump’s lawyers for claiming the judge had ties to Kamala Harris that posed a conflict.`\
-https://nytimes.com/2024/08/14/nyregion/trump-trial-merchan-recusal.html
 
