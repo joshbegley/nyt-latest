@@ -1,3 +1,7 @@
+**Thailand’s Royal Spell Has Been Broken**\
+`Thailand faces a collision between an electorate that wants change and a king who won’t let go. Something’s got to give.`\
+https://nytimes.com/2024/08/14/opinion/thailand-royalists-king-democracy.html
+
 **Dodgers share best record in baseball despite injury woes: 'It's remarkable'**\
 `Clayton Kershaw said the Dodgers can reach a higher gear as they get healthy again: “I think you’ll see us start to take off here soon.”`\
 https://nytimes.com/athletic/5699989/2024/08/14/dodgers-injuries-mlb-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5660960/2024/08/14/wolves-season-preview-strand-lar
 **What Bruno Fernandes contract talks say about Manchester United's rebuild**\
 `The playmaker's impact is a benchmark for team-mates, just as his contract should be`\
 https://nytimes.com/athletic/5692940/2024/08/14/bruno-fernandes-new-contract-manchester-united/
-
-**Fantasy Premier League: When to use your wildcards in 2024-25**\
-`With a tweaked schedule for 2024-25, here's are the adjusted optimal wildcard windows for the new FPL season`\
-https://nytimes.com/athletic/5661846/2024/08/14/fantasy-premier-league-when-to-use-wildcards-in-2024-25/
 
