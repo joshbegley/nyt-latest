@@ -6,7 +6,7 @@ https://nytimes.com/2024/08/14/us/politics/trump-rally-asheville.html
 `Authoritarian tendencies and misogyny rise together.`\
 https://nytimes.com/2024/08/14/opinion/kamala-harris-sexism-trump.html
 
-**Falcons acquire Matthew Judon in trade with Patriots**\
+**Patriots trade Matthew Judon to Falcons for third-round pick**\
 `Judon was blunt this offseason in expressing his disappointment in not receiving a contract extension from the Patriots.`\
 https://nytimes.com/athletic/5701786/2024/08/14/matthew-judon-falcons-patriots-trade/
 
