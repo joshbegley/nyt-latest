@@ -1,3 +1,11 @@
+**Cubs’ Dansby Swanson on wife Mallory’s gold medal, baseball at Olympics and more**\
+`Swanson: "You’ve started to see us forming an identity and everyone buying into that and doing their part. Belief is a powerful thing."`\
+https://nytimes.com/athletic/5699882/2024/08/14/dansby-swanson-mallory-swanson-cubs-olympics/
+
+**A top U.S. official visits Lebanon in a bid to avert a war between Hezbollah and Israel.**\
+`By Euan Ward`\
+https://nytimes.com/live/2024/08/14/world/israel-iran-hamas-gaza-war/a-top-us-official-visits-lebanon-in-a-bid-to-avert-a-war-between-hezbollah-and-israel
+
 **Google’s Stock Falls as the Government Weighs Breaking Up the Company**\
 `The Justice Department could force the technology group to split after a landmark court ruling that the search giant is an illegal monopoly.`\
 https://nytimes.com/2024/08/14/business/dealbook/google-stock-antitrust-break-up.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5700193/2024/08/14/eduardo-camavinga-injury-real-ma
 **Makers of Snickers and Pringles to Merge in $36 Billion Food Deal**\
 `Mars is acquiring Kellanova in one of the largest deals in the industry in years, creating a new global giant with a stable of well-known brands.`\
 https://nytimes.com/2024/08/14/business/dealbook/mars-kellanova-deal-pringles-cheezit.html
-
-**The Pulse: Wait, *who* has the best record in baseball?**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5699754/2024/08/14/cleveland-guardians-mlb-best-record-the-pulse/
-
-**Which U.S. players could be heading home before the MLS transfer window closes?**\
-`A number of Europe-based American players could be returning to MLS today but time is against them if deals are to be done`\
-https://nytimes.com/athletic/5699493/2024/08/14/usa-players-mls-transfer-deadline/
 
