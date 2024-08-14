@@ -1,3 +1,7 @@
+**Boeing Faces a Steep Climb in Catching Up to Airbus**\
+`As Boeing works to address quality control issues, its new chief starts at a disadvantage in competing with the other big maker of passenger planes.`\
+https://nytimes.com/2024/08/14/business/boeing-airbus.html
+
 **Man City winger OBobb set for spell on sidelines with fractured leg**\
 `Manchester City winger Oscar Bobb is set for a spell on the sidelines after he fractured a bone in his leg.`\
 https://nytimes.com/athletic/5701203/2024/08/14/man-city-oscar-bobb-injury-leg/
