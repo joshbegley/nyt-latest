@@ -1,3 +1,7 @@
+**Which U.S. players could be heading home before the MLS transfer window closes?**\
+`A number of American players could be returning to MLS but time is against them if deals are to be done`\
+https://nytimes.com/athletic/5699493/2024/08/14/usa-players-mls-transfer-deadline/
+
 **Julian Araujo to Bournemouth: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500, we analyse and rate Julian Araujo's move to Bournemouth`\
 https://nytimes.com/athletic/5695954/2024/08/14/julian-araujo-to-bournemouth-the-athletic-500-transfer-ratings/
