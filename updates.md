@@ -1,3 +1,7 @@
+**Late Night Recaps Musk’s and Trump’s Two-Hour Chat on X**\
+`Stephen Colbert called it “a big night for weird old rich guys with no friends.”`\
+https://nytimes.com/2024/08/14/arts/television/late-night-trump-musk.html
+
 **Corrections: Aug. 14, 2024**\
 `Corrections that appeared in print on Wednesday, Aug. 14, 2024.`\
 https://nytimes.com/2024/08/14/pageoneplus/corrections-aug-14-2024.html

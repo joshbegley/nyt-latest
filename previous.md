@@ -1,3 +1,7 @@
+**Late Night Recaps Musk’s and Trump’s Two-Hour Chat on X**\
+`Stephen Colbert called it “a big night for weird old rich guys with no friends.”`\
+https://nytimes.com/2024/08/14/arts/television/late-night-trump-musk.html
+
 **Corrections: Aug. 14, 2024**\
 `Corrections that appeared in print on Wednesday, Aug. 14, 2024.`\
 https://nytimes.com/2024/08/14/pageoneplus/corrections-aug-14-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5699998/2024/08/14/blue-jays-george-springer-ejecti
 **Kompany vs Gudmundsson - what did it reveal about Bayern Munich's new head coach?**\
 `Dissecting a controversial clip of Bayern Munich's new coach from his time at Burnley`\
 https://nytimes.com/athletic/5698705/2024/08/14/kompany-gudmundsson-clip-bayern-burnley/
-
-**Fulham season preview: A record signing, Sessegnon returns, but holding midfielder needed**\
-`What to expect from Fulham in 2024-25...`\
-https://nytimes.com/athletic/5684459/2024/08/14/fulham-season-preview-2024-25/
 
