@@ -1,3 +1,15 @@
+**A.I. Could Ruin Kids’ Critical-Thinking Skills**\
+`Many students lean on the technology rather than wrestle with challenging tasks.`\
+https://nytimes.com/2024/08/14/opinion/ai-schools-teachers-students.html
+
+**His Trilogy Explored the Nazi Era. Now He Looks at the People Behind It.**\
+`In “Hitler’s People,” the renowned historian Richard J. Evans takes a biographical approach to the Third Reich.`\
+https://nytimes.com/2024/08/14/books/review/richard-j-evans-hitlers-people.html
+
+**Can I Tell My Sister That Her Estranged Son Is a New Father?**\
+`A reader is unsure whether to insert herself into three years of icy silence by sharing a major development in her nephew’s life with his mother.`\
+https://nytimes.com/2024/08/14/style/can-i-tell-my-sister-that-her-estranged-son-is-a-new-father.html
+
 **What we've learned about Penn State this preseason: Are the explosive plays improving?**\
 `Penn State's offense is the biggest storyline entering the season for the Nittany Lions. And it needs to improve from last year.`\
 https://nytimes.com/athletic/5700445/2024/08/14/penn-state-college-football-offense-andy-kotelnicki/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/08/14/world/israel-iran-hamas-gaza-war/a-top-us-of
 **Google’s Stock Falls as the Government Weighs Breaking Up the Company**\
 `The Justice Department could force the technology group to split after a landmark court ruling that the search giant is an illegal monopoly.`\
 https://nytimes.com/2024/08/14/business/dealbook/google-stock-antitrust-break-up.html
-
-**Here’s the latest on the presidential race.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/08/14/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Tyler Fitzgerald is one of Giants' unlikeliest possible heroes**\
-`Fitzgerald's K-rate in Double A at age 24 was 33 percent. Players like that don't often reach the majors, let alone thrive like he has.`\
-https://nytimes.com/athletic/5691705/2024/08/14/sf-giants-tyler-fitzgerald-rookie-breakout/
-
-**Harris Is Set to Lay Out an Economic Message Light on Detail**\
-`The vice president is expected to recalibrate President Biden’s policy themes in a bid to turn the Democratic economic agenda into an asset.`\
-https://nytimes.com/2024/08/14/us/politics/kamala-harris-economy-north-carolina.html
 
