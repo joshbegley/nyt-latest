@@ -43,6 +43,11 @@ https://nytimes.com/athletic/5701218/2024/08/14/chicago-red-stars-seatgeek-stadi
 `\
 https://nytimes.com/athletic/5701218/2024/08/14/chicago-red-stars-seatgeek-stadium-clash-resolved/
 
+**Chicago Red Stars' stadium clash is solved - but it exposes the hurdles faced by NWSL**\
+`Chicago Red Stars faced having to travel to Kansas City to play a home match. Here's why...
+`\
+https://nytimes.com/athletic/5701218/2024/08/14/chicago-red-stars-seatgeek-stadium-clash-resolved/
+
 **Hulk Hogan, Jesse Ventura and a Complicated Subplot to the 2024 Race**\
 `Hogan supports Donald J. Trump. Mr. Ventura is backing Kamala Harris. But their beef is more complicated than that.`\
 https://nytimes.com/2024/08/14/us/politics/jesse-ventura-tim-walz-kamala-harris.html
