@@ -1,3 +1,7 @@
+**Villa working on deal to sign Colombian defender Mosquera**\
+`Aston Villa are working on a deal to sign 19-year-old defender Yeimar Mosquera from Colombian club Orsomarso SC.`\
+https://nytimes.com/athletic/5699123/2024/08/14/aston-villa-yeimar-mosquera-transfer/
+
 **New Zealand Charity Accidentally Gives Away Meth Disguised as Candy**\
 `Police were racing to recover the fake sweets, each of which contained up to 300 doses of methamphetamine. Three people sought medical attention.`\
 https://nytimes.com/2024/08/14/world/asia/meth-candy-new-zealand.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5699888/2024/08/14/yankees-win-juan-soto-3-homers/
 **Late Night Recaps Musk’s and Trump’s Two-Hour Chat on X**\
 `Stephen Colbert called it “a big night for weird old rich guys with no friends.”`\
 https://nytimes.com/2024/08/14/arts/television/late-night-trump-musk.html
-
-**Corrections: Aug. 14, 2024**\
-`Corrections that appeared in print on Wednesday, Aug. 14, 2024.`\
-https://nytimes.com/2024/08/14/pageoneplus/corrections-aug-14-2024.html
 

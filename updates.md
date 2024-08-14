@@ -1,3 +1,7 @@
+**Villa working on deal to sign Colombian defender Mosquera**\
+`Aston Villa are working on a deal to sign 19-year-old defender Yeimar Mosquera from Colombian club Orsomarso SC.`\
+https://nytimes.com/athletic/5699123/2024/08/14/aston-villa-yeimar-mosquera-transfer/
+
 **New Zealand Charity Accidentally Gives Away Meth Disguised as Candy**\
 `Police were racing to recover the fake sweets, each of which contained up to 300 doses of methamphetamine. Three people sought medical attention.`\
 https://nytimes.com/2024/08/14/world/asia/meth-candy-new-zealand.html
