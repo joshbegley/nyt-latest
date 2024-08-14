@@ -1,3 +1,7 @@
+**Why Chelsea are set to begin the new season without a shirt sponsor**\
+`Are the London club in talks over a potential late deal? Will they be able to secure a partner once the campaign has started?`\
+https://nytimes.com/athletic/5698622/2024/08/14/why-chelsea-are-set-to-begin-the-new-season-without-a-shirt-sponsor/
+
 **George Springer ejected after video review says he wasn't hit by pitch**\
 `Springer went 0-for-2 in Tuesday's game, tallying one run and one walk.`\
 https://nytimes.com/athletic/5699998/2024/08/14/blue-jays-george-springer-ejection/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5661846/2024/08/14/fantasy-premier-league-when-to-u
 **Everton season preview: New game-changers, farewell Goodison and a mid-table finish… please**\
 `Everton have added attacking invention to the ranks but, as ever, their 2024-25 campaign is likely to be shaped by matters off the pitch`\
 https://nytimes.com/athletic/5681680/2024/08/14/everton-season-preview-goodison-dyche/
-
-**Bears 'Hard Knocks' takeaways: Rookie backstories, ice cream with DJ Moore and family**\
-`Caleb Williams was still the star, but we got to learn more about his Bears teammates on the second episode of "Hard Knocks."`\
-https://nytimes.com/athletic/5699973/2024/08/14/bears-hard-knocks-episode-2-dj-moore/
 
