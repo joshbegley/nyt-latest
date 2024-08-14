@@ -1,3 +1,7 @@
+**Inflation Fell Below 3% for the First Time in Years**\
+`Also, U.S. officials say Israel’s military has achieved all it can in Gaza. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/08/14/briefing/inflation-report-us-assessment-gaza-war.html
+
 **Chicago Red Stars' stadium clash is solved - but it exposes the hurdles faced by NWSL**\
 `Chicago Red Stars faced having to travel to Kansas City to play a home match. Here's why...
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/2024/08/14/health/brain-injuries-consciousness-awareness.htm
 **'No plans' for Premier League games overseas - chief executive Masters**\
 `Premier League chief executive Richard Masters claims the prospect of an English top flight match overseas has not been raised at a shareholders’ meeting since 2008.`\
 https://nytimes.com/athletic/5701119/2024/08/14/premier-league-matches-abroad-richard-masters/
-
-**What to Know About Mpox**\
-`The World Health Organization declared a global health emergency over an outbreak that has spread to more than a dozen African countries.`\
-https://nytimes.com/2024/08/14/world/africa/mpox-outbreak-symptoms-risks.html
 
