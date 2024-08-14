@@ -1,3 +1,7 @@
+**Braves' Charlie Morton gets 2,000th K, Travis d'Arnaud comes through again in 10th inning**\
+`Morton, who might retire after this, his 17th season, had a career that didn't take off until he was well into his 30s.`\
+https://nytimes.com/athletic/5700120/2024/08/14/braves-charlie-morton-2000th-k/
+
 **Why Did a Plane Crash in Brazil? A Reporter Looks for Answers.**\
 `Jack Nicas, who leads coverage of much of South America, previously reported on aviation disasters. After a plane crashed outside São Paulo on Friday, he leaned on his expertise to help break the news.`\
 https://nytimes.com/2024/08/14/insider/why-did-a-plane-crash-in-brazil-a-reporter-looks-for-answers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/14/pageoneplus/corrections-aug-14-2024.html
 **Quotation of the Day: Automated Restaurants Face Human Issues**\
 `Quotation of the Day for Wednesday, August 14, 2024.`\
 https://nytimes.com/2024/08/14/pageoneplus/quotation-of-the-day-automated-restaurants-face-human-issues.html
-
-**The Briefing: Sheff Utd 4 Wrexham 2 - How did new signings fare and was there bad blood?**\
-`The big talking points from Tuesday's Carabao Cup first-round tie at Bramall Lane`\
-https://nytimes.com/athletic/5686681/2024/08/14/wrexham-sheffield-united-result-analysis/
 
