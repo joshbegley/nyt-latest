@@ -11,7 +11,7 @@ https://nytimes.com/2024/08/13/us/politics/ilhan-omar-minnesota-primary.html
 https://nytimes.com/2024/08/13/arts/music/katy-perry-lifetimes-investigation.html
 
 **Japan’s Leader, Fumio Kishida, Will Step Down**\
-`News outlets said the prime minister would step aside next month, bowing to pressure within his party, which wants to move on from his unpopular leadership.`\
+`The unpopular prime minister bowed to pressure within his party, which has been searching for a potential successor. He plans to leave office next month.`\
 https://nytimes.com/2024/08/13/world/asia/fumio-kishida-japan-prime-minister.html
 
 **Pump Option**\

@@ -1,3 +1,7 @@
+**Japan’s Leader, Fumio Kishida, Will Step Down**\
+`The unpopular prime minister bowed to pressure within his party, which has been searching for a potential successor. He plans to leave office next month.`\
+https://nytimes.com/2024/08/13/world/asia/fumio-kishida-japan-prime-minister.html
+
 **As Phillies continue to spiral, lineup changes could be near**\
 `The Phillies have lost 16 of 23 games since the All-Star break. They have been a .500 team for almost two months. `\
 https://nytimes.com/athletic/5699885/2024/08/13/phillies-lose-marlins-lineup-changes-possible/
