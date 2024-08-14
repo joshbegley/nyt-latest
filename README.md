@@ -1,3 +1,11 @@
+**Summer 2024 News Quiz for Students**\
+`How closely have you paid attention to current events? See what you remember by taking our special Summer 2024 News Quiz.`\
+https://nytimes.com/interactive/2024/08/14/learning/14StudentSummerNewsQuiz.html
+
+**Wealthy Nations Must Prioritize the Global Fight Against Mpox**\
+`The virus is back on the rise, potentially with a vengeance.`\
+https://nytimes.com/live/2024/08/13/opinion/thepoint/mpox-global-health-emergency
+
 **When Will They Speak Again? Once Close, Biden and Pelosi Are at Odds.**\
 `President Biden is upset that Representative Nancy Pelosi worked to get him out of the race. She is losing sleep over it.`\
 https://nytimes.com/2024/08/14/us/politics/pelosi-biden.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/14/business/china-foxconn-apple-ev.html
 **Boeing Faces a Steep Climb in Catching Up to Airbus**\
 `As Boeing works to address quality control issues, its new chief starts at a disadvantage in competing with the other big maker of passenger planes.`\
 https://nytimes.com/2024/08/14/business/boeing-airbus.html
-
-**Peach Cobbler, 2 Ways: Spectacularly Simple and Simply Spectacular**\
-`An easy buttermilk skillet version and an upside-down take from Melissa Clark showcase the stone fruit’s versatility.`\
-https://nytimes.com/2024/08/14/dining/peach-cobbler.html
-
-**Bronx Museum’s Executive Director Leaves During $33 Million Expansion**\
-`Klaudio Rodriguez will become the executive director and chief executive of the Museum of Fine Arts in St. Petersburg, Fla.`\
-https://nytimes.com/2024/08/14/arts/design/bronx-museum-klaudio-rodriguez.html
 
