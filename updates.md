@@ -1,3 +1,7 @@
+**The Briefing: Sheff Utd 4 Wrexham 2 - How did new signings fare and was there bad blood?**\
+`The big talking points from Tuesday's Carabao Cup first-round tie at Bramall Lane`\
+https://nytimes.com/athletic/5686681/2024/08/14/wrexham-sheffield-united-result-analysis/
+
 **Why Did a Plane Crash in Brazil? A Reporter Looks for Answers.**\
 `Jack Nicas, who leads coverage of much of South America, previously reported on aviation disasters. After a plane crashed outside São Paulo on Friday, he leaned on his expertise to help break the news.`\
 https://nytimes.com/2024/08/14/insider/why-did-a-plane-crash-in-brazil-a-reporter-looks-for-answers.html
