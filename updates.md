@@ -1,3 +1,7 @@
+**This Enormous Artwork Turns a Palace Into a Pawnshop**\
+`Christoph Büchel’s vast installation in Venice is compelling, obsessive and sometimes hilarious.`\
+https://nytimes.com/2024/08/14/arts/design/christoph-buechel-venice.html
+
 **5 Things This Bulgari Designer Wishes She’d Made**\
 `Why Mary Katrantzou admires Audubon’s illustrations, an Issey Miyake bodice and the rainbow flag.`\
 https://nytimes.com/interactive/2024/08/14/t-magazine/fashion/mary-katrantzou-bulgari.html
