@@ -1,3 +1,11 @@
+**Almiron's proposed transfer to Charlotte FC collapses**\
+`Miguel Almiron&#8217;s proposed transfer to Charlotte FC has fallen through.`\
+https://nytimes.com/athletic/5696641/2024/08/14/miguel-almiron-charlotte-newcastle/
+
+**Makers of Snickers and Pringles to Merge in $36 Billion Food Deal**\
+`Mars is acquiring Kellanova in one of the largest deals in the industry in years, creating a new global giant with a stable of well-known brands.`\
+https://nytimes.com/2024/08/14/business/dealbook/mars-kellanova-deal-pringles-cheezit.html
+
 **Five storylines to watch during the remainder of the Blue Jays season**\
 `Vladimir Guerrero Jr.'s hitting, young players auditioning for 2025: There are still reasons to watch the Blue Jays this year.`\
 https://nytimes.com/athletic/5699997/2024/08/14/blue-jays-storylines-to-watch/

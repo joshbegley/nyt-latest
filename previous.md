@@ -1,3 +1,7 @@
+**Almiron's proposed transfer to Charlotte FC collapses**\
+`Miguel Almiron&#8217;s proposed transfer to Charlotte FC has fallen through.`\
+https://nytimes.com/athletic/5696641/2024/08/14/miguel-almiron-charlotte-newcastle/
+
 **Five storylines to watch during the remainder of the Blue Jays season**\
 `Vladimir Guerrero Jr.'s hitting, young players auditioning for 2025: There are still reasons to watch the Blue Jays this year.`\
 https://nytimes.com/athletic/5699997/2024/08/14/blue-jays-storylines-to-watch/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/5699997/2024/08/14/blue-jays-storylines-to-watch/
 https://nytimes.com/athletic/5700193/2024/08/14/eduardo-camavinga-injury-real-madrid/
 
 **Makers of Snickers and Pringles to Merge in $36 Billion Food Deal**\
-`Mars is acquiring Kellanova in one of the largest deals in the food industry in years, creating a new global giant with a stable of well-known brands.`\
+`Mars is acquiring Kellanova in one of the largest deals in the industry in years, creating a new global giant with a stable of well-known brands.`\
 https://nytimes.com/2024/08/14/business/dealbook/mars-kellanova-deal-pringles-cheezit.html
 
 **The Pulse: Wait, *who* has the best record in baseball?**\
@@ -34,4 +38,3 @@ https://nytimes.com/athletic/5683413/2024/08/14/conor-gallagher-atletico-chelsea
 `Turkish officials have bashed Israel and stood up for Hamas, complicating their country’s place in diplomacy aimed at ending the war.`\
 https://nytimes.com/live/2024/08/14/world/israel-iran-hamas-gaza-war/during-a-2-day-visit-abbas-is-expected-to-meet-with-erdogan-and-to-deliver-an-address-to-parliament
 
-**U.N. diplomats call for an immediate cease-fire after deadly strike on school turned shelter, and other news.**\
