@@ -2,7 +2,7 @@
 `Dylan Holloway and Philip Broberg could be Blues by this time next week. How bad would that be for the Oilers?`\
 https://nytimes.com/athletic/5698310/2024/08/14/oilers-offer-sheets-blues-broberg-holloway/
 
-**Germany Issues Arrest Warrant for Ukrainian Over of Nord Stream Explosion**\
+**Germany Issues Arrest Warrant for Ukrainian Over Nord Stream Explosion**\
 `The sabotage of the pipelines that carried Russian gas to Europe has become one of the central mysteries of the war in Ukraine.`\
 https://nytimes.com/2024/08/14/world/europe/nord-stream-explosion-germany-ukraine-arrest-warrant.html
 
