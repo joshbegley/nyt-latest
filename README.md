@@ -1,3 +1,7 @@
+**Peach Cobbler, 2 Ways: Spectacularly Simple and Simply Spectacular**\
+`An easy buttermilk skillet version and an upside-down take from Melissa Clark showcase the stone fruit’s versatility.`\
+https://nytimes.com/2024/08/14/dining/peach-cobbler.html
+
 **Bronx Museum’s Executive Director Leaves During $33 Million Expansion**\
 `Klaudio Rodriguez will become the executive director and chief executive of the Museum of Fine Arts in St. Petersburg, Fla.`\
 https://nytimes.com/2024/08/14/arts/design/bronx-museum-klaudio-rodriguez.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5701087/2024/08/14/marco-silva-fulham-signings/
 **Ukraine’s Surprise Attack on Russia**\
 `Amid the biggest foreign incursion into Russia since World War II, The New York Times visited a place where Ukrainian forces stormed in. Andrew E. Kramer, the Kyiv bureau chief for The New York Times, describes what he saw.`\
 https://nytimes.com/video/world/europe/100000009627113/ukraines-surprise-attack-on-russia.html
-
-**Canada forward Lacasse joins Utah Royals from Arsenal**\
-`Arsenal have confirmed the departure of Cloe Lacasse on a permanent transfer to NWSL side Utah Royals.`\
-https://nytimes.com/athletic/5701072/2024/08/14/cloe-lacasse-utah-royals-arsenal-transfer/
 
