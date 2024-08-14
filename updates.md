@@ -1,3 +1,7 @@
+**U.S. Army Soldier Pleads Guilty to Selling Military Documents**\
+`Prosecutors said that Sgt. Korbein Schultz had access to top secret information, which he exchanged for payments totaling $42,000.`\
+https://nytimes.com/2024/08/14/us/korbein-schultz-army-guilty-conspiracy.html
+
 **Former champions Thiem and Osaka headline US Open wildcards**\
 `The US Open has announced its singles wildcards for 2024, led by former champions Dominic Thiem, Naomi Osaka, Stan Wawrinka, and Bianca Andreescu.`\
 https://nytimes.com/athletic/5701353/2024/08/14/us-open-wildcards-thiem-wawrinka-osaka-andreescu-anisimova/
