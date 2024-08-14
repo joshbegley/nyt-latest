@@ -1,3 +1,7 @@
+**Hurricane Ernesto Knocks Out Power to Hundreds of Thousands in Puerto Rico**\
+`The island’s frail electrical system struggled as the storm passed on Wednesday.`\
+https://nytimes.com/2024/08/14/us/puerto-rico-power-hurricane-ernesto.html
+
 **Scoop City: Injury updates for Jahmyr Gibbs, J.J. McCarthy and other s**\
 `Latest on Alvin Kamara, J.J. McCarthy, DeAndre Hopkins and other injured players to watch.`\
 https://nytimes.com/athletic/5700840/2024/08/14/nfl-injury-updates-scoop-city-aug/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/14/well/move/marathon-training-tips.html
 **Browns, LB Jeremiah Owusu-Koramoah agree to 3-year extension**\
 `The 2021 second-round pick finished last season with 101 tackles, 3 1/2 sacks and two interceptions. `\
 https://nytimes.com/athletic/5700789/2024/08/14/browns-jeremiah-owusu-koramoah-contract-extension/
-
-**How Christian Conservatives Are Planning for the Next Battle, on I.V.F.**\
-`Republicans may be backing away from abortion, but these activists have a strategy, with or without Trump.`\
-https://nytimes.com/2024/08/14/us/republicans-christian-conservatives-ivf.html
 
