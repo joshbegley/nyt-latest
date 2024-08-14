@@ -1,3 +1,7 @@
+**Thailand’s Royal Spell Has Been Broken**\
+`Thailand faces a collision between an electorate that wants change and a king who won’t let go. Something’s got to give.`\
+https://nytimes.com/2024/08/14/opinion/thailand-royalists-king-democracy.html
+
 **Dodgers share best record in baseball despite injury woes: 'It's remarkable'**\
 `Clayton Kershaw said the Dodgers can reach a higher gear as they get healthy again: “I think you’ll see us start to take off here soon.”`\
 https://nytimes.com/athletic/5699989/2024/08/14/dodgers-injuries-mlb-playoffs/
