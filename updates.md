@@ -1,3 +1,7 @@
+**Wally Amos, Creator of Famous Amos Cookies, Dies at 88**\
+`With a background in marketing, his aunt’s recipe and a winning personality, he built one of the world’s best-known brands of baked goods.`\
+https://nytimes.com/2024/08/14/business/wally-amos-dead.html
+
 **Vikings rookie J.J. McCarthy out for season after successful surgery**\
 `McCarthy underwent testing related to knee soreness after he reported the injury Monday afternoon.`\
 https://nytimes.com/athletic/5701150/2024/08/14/jj-mccarthy-knee-injury-out-season-vikings/
