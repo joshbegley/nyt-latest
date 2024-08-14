@@ -1,3 +1,7 @@
+**Netherlands defender Daley Blind retires from international football**\
+`Netherlands defender Daley Blind has confirmed his retirement from international football.`\
+https://nytimes.com/athletic/5700482/2024/08/14/daley-blind-netherlands-retires/
+
 **Deaths at the Grand Canyon Are on the Rise. Here’s How to Stay Safe.**\
 `There have been 11 deaths at Grand Canyon National Park so far this year. We asked hiking experts to share their best recommendations to avoid danger.`\
 https://nytimes.com/2024/08/14/us/grand-canyon-park-deaths.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5700326/2024/08/14/barcelona-hansi-flick-thiago-coa
 **Judge Denies Trump’s Third Request to Remove Him From Criminal Case**\
 `Justice Juan M. Merchan, who oversaw the trial that led to Donald J. Trump’s conviction on 34 felony counts, rebuked Mr. Trump’s lawyers for claiming the judge had ties to Kamala Harris that posed a conflict.`\
 https://nytimes.com/2024/08/14/nyregion/trump-trial-merchan-recusal.html
-
-**Cubs’ Dansby Swanson on wife Mallory’s gold medal, baseball at Olympics and more**\
-`Swanson: "You’ve started to see us forming an identity and everyone buying into that and doing their part. Belief is a powerful thing."`\
-https://nytimes.com/athletic/5699882/2024/08/14/dansby-swanson-mallory-swanson-cubs-olympics/
 
