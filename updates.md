@@ -1,3 +1,7 @@
+**As Phillies continue to spiral, lineup changes could be near**\
+`The Phillies have lost 16 of 23 games since the All-Star break. They have been a .500 team for almost two months. `\
+https://nytimes.com/athletic/5699885/2024/08/13/phillies-lose-marlins-lineup-changes-possible/
+
 **Ilhan Omar, a Vocal Critic of Israel and ‘Squad’ Member, Wins Her Primary**\
 `Two other House Democrats who are part of the left-wing “squad” lost primary contests this summer after an influx of spending by pro-Israel groups.`\
 https://nytimes.com/2024/08/13/us/politics/ilhan-omar-minnesota-primary.html
