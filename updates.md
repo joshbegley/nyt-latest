@@ -1,3 +1,7 @@
+**George Springer ejected after video review says he wasn't hit by pitch**\
+`Springer went 0-for-2 in Tuesday's game, tallying one run and one walk.`\
+https://nytimes.com/athletic/5699998/2024/08/14/blue-jays-george-springer-ejection/
+
 **Kompany vs Gudmundsson - what did it reveal about Bayern Munich's new head coach?**\
 `Dissecting a controversial clip of Bayern Munich's new coach from his time at Burnley`\
 https://nytimes.com/athletic/5698705/2024/08/14/kompany-gudmundsson-clip-bayern-burnley/
