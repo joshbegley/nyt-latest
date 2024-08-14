@@ -1,3 +1,7 @@
+**Trump Gambles on Outside Groups to Finance Voter Outreach Efforts**\
+`New federal rules allow political candidates to coordinate their efforts to canvass for votes with outside groups like super PACs.`\
+https://nytimes.com/2024/08/14/us/politics/trump-voter-outreach-super-pacs.html
+
 **Romeo Lavia: 'My body let me down ... this is my first proper season at Chelsea'**\
 `"We are building something amazing. Everyone at the club can feel it," says Romeo Lavia of Chelsea as he returns from his injury nightmare`\
 https://nytimes.com/athletic/5694482/2024/08/14/romeo-lavia-interview-chelsea/
