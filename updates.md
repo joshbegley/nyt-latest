@@ -1,3 +1,7 @@
+**Silva - Smith Rowe 'statement signing' for Fulham**\
+`Marco Silva has described Emile Smith Rowe as a &#8220;statement signing&#8221; for Fulham and said that he is determined to help the former Arsenal academy graduate reach his &#8220;best level&#8221; again.`\
+https://nytimes.com/athletic/5701133/2024/08/14/emile-smith-rowe-marco-silva/
+
 **W.H.O. Declares Global Emergency Over New Mpox Outbreak**\
 `The epidemic is concentrated in the Democratic Republic of Congo, but the virus has now appeared in a dozen other African countries.`\
 https://nytimes.com/2024/08/14/health/mpox-who-emergency-africa.html
