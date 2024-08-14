@@ -23,7 +23,7 @@ https://nytimes.com/2024/08/14/theater/life-and-trust-review.html
 https://nytimes.com/2024/08/14/world/europe/banksy-london-street-art.html
 
 **Durant's PSG stake explained: Why has he bought in? Does he have a say?**\
-`Kevin Durant has purchased a state in Paris Saint-Germain — this is why`\
+`Kevin Durant has purchased a stake in Paris Saint-Germain — this is why`\
 https://nytimes.com/athletic/5700380/2024/08/14/kevin-durant-psg-nba/
 
 **Harris Shouldn’t Forget That Democracy Is Still on the Ballot**\
