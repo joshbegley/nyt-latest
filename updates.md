@@ -1,3 +1,11 @@
+**Production Company for Katy Perry’s ‘Lifetimes’ Video Under Investigation in Spain**\
+`Local authorities opened an investigation into the production company for filming in a protected area without clearance, according to a news release.`\
+https://nytimes.com/2024/08/13/arts/music/katy-perry-lifetimes-investigation.html
+
+**Japan’s Leader, Fumio Kishida, Will Step Down**\
+`News outlets said the prime minister would step aside next month, bowing to pressure within his party, which wants to move on from his unpopular leadership.`\
+https://nytimes.com/2024/08/13/world/asia/fumio-kishida-japan-prime-minister.html
+
 **Pump Option**\
 `Samuel A. Donaldson gives us a chance to beat him fair and square.`\
 https://nytimes.com/2024/08/13/crosswords/daily-puzzle-2024-08-14.html

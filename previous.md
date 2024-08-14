@@ -1,3 +1,11 @@
+**Production Company for Katy Perry’s ‘Lifetimes’ Video Under Investigation in Spain**\
+`Local authorities opened an investigation into the production company for filming in a protected area without clearance, according to a news release.`\
+https://nytimes.com/2024/08/13/arts/music/katy-perry-lifetimes-investigation.html
+
+**Japan’s Leader, Fumio Kishida, Will Step Down**\
+`News outlets said the prime minister would step aside next month, bowing to pressure within his party, which wants to move on from his unpopular leadership.`\
+https://nytimes.com/2024/08/13/world/asia/fumio-kishida-japan-prime-minister.html
+
 **Pump Option**\
 `Samuel A. Donaldson gives us a chance to beat him fair and square.`\
 https://nytimes.com/2024/08/13/crosswords/daily-puzzle-2024-08-14.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/13/climate/landslides-climate-change.html
 **Hunter Biden Sought State Department Help for Ukrainian Company**\
 `After President Biden dropped his re-election bid, his administration released records showing that while he was vice president, his son solicited U.S. government assistance.`\
 https://nytimes.com/2024/08/13/us/politics/hunter-biden-ukrainian-company.html
-
-**Next steps for Cubs pitching prospect Cade Horton after setback**\
-`Cubs GM Carter Hawkins said Horton is dealing with “the same injury” that’s sidelined him since the end of May — a subscapularis strain.`\
-https://nytimes.com/athletic/5699636/2024/08/13/chicago-cubs-cade-horton-injury-setback/
-
-**Inquiry Finds No Politics Behind Ballot Paper Shortages in 2022 Houston Election**\
-`Republicans accused Democratic officials of trying to sway the results. But prosecutors found that the problem stemmed from an employee whose attention was diverted.`\
-https://nytimes.com/2024/08/13/us/harris-county-elections-ballots-investigation-charges.html
 
