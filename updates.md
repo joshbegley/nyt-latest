@@ -1,3 +1,11 @@
+**Teamsters’ Black Caucus Endorses Harris While Parent Union Stays Silent**\
+`The move aligns the caucus with other big organized-labor groups, but the Teamsters president, who spoke at the Republican convention, has indicated he is open to backing Trump.`\
+https://nytimes.com/2024/08/14/us/politics/teamsters-black-caucus-harris.html
+
+**Meet a Family That’s Betting the Farm on a Wild Idea. Literally.**\
+`After decades raising hogs in Iowa, they wanted a way out of factory farming. Their solution was a return to nature, and a lot of mushrooms.`\
+https://nytimes.com/2024/08/14/climate/hog-farm-iowa-rewild.html
+
 **Lowetide: Dual offer sheets put Oilers 2024-25 roster in turmoil**\
 `Dylan Holloway and Philip Broberg could be Blues by this time next week. How bad would that be for the Oilers?`\
 https://nytimes.com/athletic/5698310/2024/08/14/oilers-offer-sheets-blues-broberg-holloway/
