@@ -1,3 +1,7 @@
+**W.H.O. Declares Global Emergency Over New Mpox Outbreak**\
+`The epidemic is concentrated in the Democratic Republic of Congo, but the virus has now appeared in a dozen other African countries.`\
+https://nytimes.com/2024/08/14/health/mpox-who-emergency-africa.html
+
 **How Many Ways Can You Eat a Cucumber? Just Ask ‘Cucumber Guy.’**\
 `“Sometimes you need to eat an entire cucumber,” the TikTok star Logan Moffitt says of the summer’s most riffable recipe.`\
 https://nytimes.com/2024/08/14/dining/tiktok-cucumber-guy-logan-moffitt.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/14/theater/life-and-trust-review.html
 **Whimsical Parade of Banksy Animals Sends Fans on a Giddy Hunt**\
 `Each day for nine straight days, a new Banksy artwork appeared somewhere in London. For some, it became a citywide treasure hunt.`\
 https://nytimes.com/2024/08/14/world/europe/banksy-london-street-art.html
-
-**Durant's PSG stake explained: Why has he bought in? Does he have a say?**\
-`Kevin Durant has purchased a stake in Paris Saint-Germain — this is why`\
-https://nytimes.com/athletic/5700380/2024/08/14/kevin-durant-psg-nba/
 

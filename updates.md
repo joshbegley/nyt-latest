@@ -1,3 +1,7 @@
+**W.H.O. Declares Global Emergency Over New Mpox Outbreak**\
+`The epidemic is concentrated in the Democratic Republic of Congo, but the virus has now appeared in a dozen other African countries.`\
+https://nytimes.com/2024/08/14/health/mpox-who-emergency-africa.html
+
 **How Many Ways Can You Eat a Cucumber? Just Ask ‘Cucumber Guy.’**\
 `“Sometimes you need to eat an entire cucumber,” the TikTok star Logan Moffitt says of the summer’s most riffable recipe.`\
 https://nytimes.com/2024/08/14/dining/tiktok-cucumber-guy-logan-moffitt.html
