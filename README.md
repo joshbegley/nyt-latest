@@ -1,3 +1,7 @@
+**Chargers training camp, Day 16: Donald Parham Jr. flashes but remains in roster battle**\
+`Parham delivered some big plays in Tuesday's practice, but his inconsistency as a blocker still has him on the roster bubble.`\
+https://nytimes.com/athletic/5699730/2024/08/13/chargers-training-camp-donald-parham/
+
 **Deadly Landslides in India Made Worse by Climate Change, Study Finds**\
 `Extreme rainfall made 10 percent heavier by human-caused climate change triggered landslides that killed hundreds, according to a new study.`\
 https://nytimes.com/2024/08/13/climate/landslides-climate-change.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/13/technology/google-monopoly-antitrust-justice-depa
 **Alvarez breaks Rays' jumbotron with batting practice home run**\
 `Alvarez previously broke a jumbotron with a home run during batting practice at Minute Maid Park in 2019.`\
 https://nytimes.com/athletic/5699480/2024/08/13/yordan-alvarez-rays-jumbotron-home-run/
-
-**Yankees' Jazz Chisholm Jr. has UCL injury and surgery has not been ruled out**\
-`While Chisholm's out, the Yankees have multiple options for how they can proceed at third base without him.`\
-https://nytimes.com/athletic/5699439/2024/08/13/yankees-jazz-chisholm-jr-ucl-injury/
 
