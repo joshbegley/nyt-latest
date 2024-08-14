@@ -1,3 +1,7 @@
+**In Economy-Focused Speech, Trump Still Lobs Personal Attacks Against Harris**\
+`Mr. Trump’s remarks on the economy and his insults aimed at Ms. Harris suggested the Trump campaign continues to suffer growing pains as it adjusts to a new opponent.`\
+https://nytimes.com/2024/08/14/us/politics/trump-rally-asheville.html
+
 **Another ‘Nasty’ Woman Strikes Fear in Trump**\
 `Authoritarian tendencies and misogyny rise together.`\
 https://nytimes.com/2024/08/14/opinion/kamala-harris-sexism-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/14/us/politics/biden-retirement.html
 **Rabbi Shmuel Butman, 81, a Brooklyn Voice of Ultra-Orthodox Jews, Is Dead**\
 `He was the public face of the Chabad-Lubavitch sect during the Crown Heights riots in 1991 and for decades lit its giant menorah in Manhattan every Hanukkah.`\
 https://nytimes.com/2024/08/14/nyregion/rabbi-shmuel-butman-dead.html
-
-**Cisco Systems to Cut About 7% of Staff in Second Round of Layoffs**\
-`The cuts could amount to about 6,000 jobs for the San Jose, Calif., maker of computer networking technology.`\
-https://nytimes.com/2024/08/14/technology/cisco-layoffs.html
 
