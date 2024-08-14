@@ -1,3 +1,7 @@
+**Premier League acknowledges VAR flaws from last season, emphasising 'referee's call' for 2024-25**\
+`The Premier League has acknowledged that the VAR process drifted last season and is putting an emphasis on the on-field referee’s decision ahead of the 2024-25 campaign.`\
+https://nytimes.com/athletic/5700900/2024/08/14/premier-league-var-2024-25-referees-call/
+
 **Cooling inflation ‘ticks the box’ for a Fed rate cut.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/08/14/business/cpi-inflation-fed/cooling-inflation-ticks-the-box-for-a-fed-rate-cut
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/14/science/stonehenge-altar-scotland.html
 **Off the Grid, Extremely Online**\
 `In corners of the internet — and in wooded, undeveloped parts of the country — young men are documenting their efforts to to live off the land.`\
 https://nytimes.com/2024/08/14/style/off-grid-homesteading-nate-petroski.html
-
-**The Tony Winner Behind ‘Appropriate’ Is Back. This Time, With ‘Purpose.’**\
-`Branden Jacobs-Jenkins had Broadway success this year with a drama starring Sarah Paulson. In February, he’ll return with a new play directed by Phylicia Rashad.`\
-https://nytimes.com/2024/08/14/theater/branden-jacobs-jenkins-broadway-purpose.html
 
