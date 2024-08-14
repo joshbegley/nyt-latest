@@ -1,3 +1,11 @@
+**U.S. Army Soldier Pleads Guilty in Scheme to Sell Military Documents**\
+`Prosecutors said that Sgt. Korbein Schultz had access to top secret information, which he exchanged for payments totaling $42,000.`\
+https://nytimes.com/2024/08/14/us/korbein-schultz-army-guilty-conspiracy.html
+
+**Red Bull Salzburg agree fee with Liverpool for Clark**\
+`Liverpool have agreed a fee of around £10million with Red Bull Salzburg for the sale of midfielder Bobby Clark.`\
+https://nytimes.com/athletic/5701355/2024/08/14/bobby-clark-salzburg-liverpool-transfer/
+
 **A New Venue Beckons Jazz Musicians and Beyond to Upstate New York**\
 `The Mill, an arts center with art galleries and a performance space in an old flour mill, opened over the weekend. Its owners hope it sparks a “ripple effect.”`\
 https://nytimes.com/2024/08/14/arts/music/the-mill-venue-westport-new-york.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/14/movies/jay-kanter-dead.html
 **Wally Amos, Creator of Famous Amos Cookies, Dies at 88**\
 `With a background in marketing, his aunt’s recipe and a winning personality, he built one of the world’s best-known brands of baked goods.`\
 https://nytimes.com/2024/08/14/business/wally-amos-dead.html
-
-**Vikings rookie J.J. McCarthy out for season after successful surgery**\
-`McCarthy underwent testing related to knee soreness after he reported the injury Monday afternoon.`\
-https://nytimes.com/athletic/5701150/2024/08/14/jj-mccarthy-knee-injury-out-season-vikings/
-
-**California ‘Shaman’ Faces Felony Sex Assault Charges**\
-`Ricardo I. Flores, who the authorities say led a shamanistic community and who goes by Koyote the Blind, has been charged with eight felonies, including rape and aggravated sexual assault of a minor.`\
-https://nytimes.com/2024/08/14/us/california-shaman-sex-assault-charges-riverside.html
 
