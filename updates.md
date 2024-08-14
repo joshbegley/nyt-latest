@@ -1,3 +1,7 @@
+**Barcelona's new coaching setup under Hansi Flick - including Thiago latest**\
+`As Barca prepare for their La Liga season-opener at Valencia, these are the new faces in Hansi Flick's staff`\
+https://nytimes.com/athletic/5700326/2024/08/14/barcelona-hansi-flick-thiago-coaching-staff/
+
 **Judge Denies Trump’s Third Request to Remove Him From Criminal Case**\
 `Justice Juan M. Merchan, who oversaw the trial that led to Donald J. Trump’s conviction on 34 felony counts, dismissed the request as “nothing more than a repetition of stale and unsubstantiated claims.”`\
 https://nytimes.com/2024/08/14/nyregion/trump-trial-merchan-recusal.html
