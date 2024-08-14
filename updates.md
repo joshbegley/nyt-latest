@@ -1,3 +1,7 @@
+**Chargers training camp, Day 16: Donald Parham Jr. flashes but remains in roster battle**\
+`Parham delivered some big plays in Tuesday's practice, but his inconsistency as a blocker still has him on the roster bubble.`\
+https://nytimes.com/athletic/5699730/2024/08/13/chargers-training-camp-donald-parham/
+
 **Deadly Landslides in India Made Worse by Climate Change, Study Finds**\
 `Extreme rainfall made 10 percent heavier by human-caused climate change triggered landslides that killed hundreds, according to a new study.`\
 https://nytimes.com/2024/08/13/climate/landslides-climate-change.html
