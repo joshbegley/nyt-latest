@@ -1,3 +1,15 @@
+**In Gaza, Israel’s Military Has Reached the End of the Line, U.S. Officials Say**\
+`Israel has severely set back Hamas but will never be able to completely eliminate the group, U.S. officials said.`\
+https://nytimes.com/2024/08/14/us/politics/israel-military-gaza-war.html
+
+**A.L.S. Stole His Voice. A.I. Retrieved It.**\
+`In an experiment that surpassed expectations, implants in a patient’s brain were able to recognize words he tried to speak, and A.I. helped produce sounds that came close to matching his true voice.`\
+https://nytimes.com/2024/08/14/health/als-ai-brain-implants.html
+
+**What to Know About Mpox**\
+`The World Health Organization declared a global health emergency over an outbreak that has spread to more than a dozen African countries.`\
+https://nytimes.com/2024/08/14/world/africa/mpox-outbreak-symptoms-risks.html
+
 **NASA Says It Needs to Decide Soon How Starliner Astronauts Will Come Home**\
 `After agency officials said last week that a decision was pending, they said on Wednesday that deliberations were still taking place.`\
 https://nytimes.com/2024/08/14/science/nasa-boeing-starliner-astronauts.html

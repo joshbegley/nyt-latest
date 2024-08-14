@@ -1,3 +1,11 @@
+**In Gaza, Israel’s Military Has Reached the End of the Line, U.S. Officials Say**\
+`Israel has severely set back Hamas but will never be able to completely eliminate the group, U.S. officials said.`\
+https://nytimes.com/2024/08/14/us/politics/israel-military-gaza-war.html
+
+**A.L.S. Stole His Voice. A.I. Retrieved It.**\
+`In an experiment that surpassed expectations, implants in a patient’s brain were able to recognize words he tried to speak, and A.I. helped produce sounds that came close to matching his true voice.`\
+https://nytimes.com/2024/08/14/health/als-ai-brain-implants.html
+
 **NASA Says It Needs to Decide Soon How Starliner Astronauts Will Come Home**\
 `After agency officials said last week that a decision was pending, they said on Wednesday that deliberations were still taking place.`\
 https://nytimes.com/2024/08/14/science/nasa-boeing-starliner-astronauts.html
@@ -16,7 +24,7 @@ https://nytimes.com/athletic/5701119/2024/08/14/premier-league-matches-abroad-ri
 
 **What to Know About Mpox**\
 `The World Health Organization declared a global health emergency over an outbreak that has spread to more than a dozen African countries.`\
-https://nytimes.com/2024/08/14/world/africa/mpox-what-to-know.html
+https://nytimes.com/2024/08/14/world/africa/mpox-outbreak-symptoms-risks.html
 
 **Harris’s Economic Plans: The Good, the Bad and the Unnecessary**\
 `There may be a political need to “fight inflation,” but economically the issue is over.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5701329/2024/08/14/austin-dillon-penalty-richmond-n
 **Patriots hoping for more from offense in Week 2 preseason game vs. Eagles**\
 `Rookie QB Drake Maye is expected to play more in the Patriots' second preseason game than he did in the first. So can the offense improve?`\
 https://nytimes.com/athletic/5700822/2024/08/14/patriots-eagles-preseason-drake-maye/
-
-**Rams, Cowboys get into scuffle during drills**\
-`The Rams didn't like one of their staff members being shoved during their joint practice with the Cowboys.`\
-https://nytimes.com/athletic/5701376/2024/08/14/rams-cowboys-practice-scuffle/
-
-**Auston Matthews is ready for the added spotlight that comes with being Maple Leafs captain**\
-`Naming Matthews captain feels like a decision made with the long term in mind. “That’s the goal: To be a Leaf for life,” Matthews said.`\
-https://nytimes.com/athletic/5701356/2024/08/14/auston-matthews-captain-maple-leafs/
 
