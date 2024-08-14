@@ -1,3 +1,15 @@
+**Cooling inflation ‘ticks the box’ for a Fed rate cut.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/08/14/business/cpi-inflation-fed/cooling-inflation-ticks-the-box-for-a-fed-rate-cut
+
+**French prosecutors investigate harassment of Khelif**\
+`Algerian boxer and gold medalist Imane Khelif's time at the Olympics was overshadowed by a torrent of negative attention on social media.`\
+https://nytimes.com/athletic/5700622/2024/08/14/imane-khelif-investigation-harassment-olympics/
+
+**Harris Is Leading or Tied with Trump in Most Swing States, New Cook Polls Find**\
+`The results are a marked change from the same surveys in May that showed former President Donald J. Trump leading by a solid margin or tied in the critical battlegrounds.`\
+https://nytimes.com/2024/08/14/us/politics/harris-trump-polls.html
+
 **My Aunt’s Son Shouldn’t Be a Dad. Must I Congratulate Her on the New Grandkid?**\
 `The magazine’s Ethicist columnist on the etiquette associated with offering congratulations.`\
 https://nytimes.com/2024/08/14/magazine/aunt-baby-congratulations-ethics.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/14/style/off-grid-homesteading-nate-petroski.html
 **The Tony Winner Behind ‘Appropriate’ Is Back. This Time, With ‘Purpose.’**\
 `Branden Jacobs-Jenkins had Broadway success this year with a drama starring Sarah Paulson. In February, he’ll return with a new play directed by Phylicia Rashad.`\
 https://nytimes.com/2024/08/14/theater/branden-jacobs-jenkins-broadway-purpose.html
-
-**A Chicken Dinner That Tastes Like Your Favorite Italian Dressing**\
-`This new recipe is inspired by the vinegary oregano marinade of spiedies, transforming boneless, skinless chicken breasts into something special.`\
-https://nytimes.com/2024/08/14/dining/chicken-breast-recipe-italian-dressing.html
-
-**Illuminating a Trailblazing Artist Who Died Too Young**\
-`In her first American museum show, Paula Modersohn-Becker looks bracingly modern.`\
-https://nytimes.com/2024/08/14/arts/design/paula-modersohn-becker-art-neue-galerie-review.html
-
-**Yes, You Can Run a Marathon**\
-`Preparing to run 26.2 miles can be daunting. Here’s how to structure four months of training.`\
-https://nytimes.com/2024/08/14/well/move/marathon-training-tips.html
 
