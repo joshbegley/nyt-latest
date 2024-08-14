@@ -35,6 +35,6 @@ https://nytimes.com/2024/08/14/pageoneplus/corrections-aug-14-2024.html
 https://nytimes.com/2024/08/14/pageoneplus/quotation-of-the-day-automated-restaurants-face-human-issues.html
 
 **The Briefing: Sheff Utd 4 Wrexham 2 - How did new signings fare and was there bad blood?**\
-`The big talking points from Tuesday's Carabao Cup first round tie at Bramall Lane`\
+`The big talking points from Tuesday's Carabao Cup first-round tie at Bramall Lane`\
 https://nytimes.com/athletic/5686681/2024/08/14/wrexham-sheffield-united-result-analysis/
 
