@@ -1,3 +1,11 @@
+**Foxconn Is Building an Electric Car Factory Next to Where It Makes iPhones**\
+`The Taiwanese company has built a manufacturing hub in Zhengzhou, China, for its star customer Apple, but it is starting almost from scratch in the auto business.`\
+https://nytimes.com/2024/08/14/business/china-foxconn-apple-ev.html
+
+**Boeing Faces a Steep Climb in Catching Up to Airbus**\
+`As Boeing works to address quality control issues, its new chief starts at a disadvantage in competing with the other big maker of passenger planes.`\
+https://nytimes.com/2024/08/14/business/boeing-airbus.html
+
 **Peach Cobbler, 2 Ways: Spectacularly Simple and Simply Spectacular**\
 `An easy buttermilk skillet version and an upside-down take from Melissa Clark showcase the stone fruit’s versatility.`\
 https://nytimes.com/2024/08/14/dining/peach-cobbler.html

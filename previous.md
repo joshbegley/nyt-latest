@@ -1,3 +1,11 @@
+**Foxconn Is Building an Electric Car Factory Next to Where It Makes iPhones**\
+`The Taiwanese company has built a manufacturing hub in Zhengzhou, China, for its star customer Apple, but it is starting almost from scratch in the auto business.`\
+https://nytimes.com/2024/08/14/business/china-foxconn-apple-ev.html
+
+**Boeing Faces a Steep Climb in Catching Up to Airbus**\
+`As Boeing works to address quality control issues, its new chief starts at a disadvantage in competing with the other big maker of passenger planes.`\
+https://nytimes.com/2024/08/14/business/boeing-airbus.html
+
 **Peach Cobbler, 2 Ways: Spectacularly Simple and Simply Spectacular**\
 `An easy buttermilk skillet version and an upside-down take from Melissa Clark showcase the stone fruit’s versatility.`\
 https://nytimes.com/2024/08/14/dining/peach-cobbler.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/08/14/arts/editors-recommendations-bojack.h
 **Ravens TE Andrews OK after car crash Wednesday**\
 `The three-time Pro Bowler will not practice Wednesday, but he had already been scheduled for a non-practice day`\
 https://nytimes.com/athletic/5701064/2024/08/14/ravens-mark-andrews-car-accident/
-
-**Silva promises more Fulham summer signings**\
-`Marco Silva says Fulham will sign another midfielder and central defender before the transfer window closes on August 30.`\
-https://nytimes.com/athletic/5701087/2024/08/14/marco-silva-fulham-signings/
-
-**Ukraine’s Surprise Attack on Russia**\
-`Amid the biggest foreign incursion into Russia since World War II, The New York Times visited a place where Ukrainian forces stormed in. Andrew E. Kramer, the Kyiv bureau chief for The New York Times, describes what he saw.`\
-https://nytimes.com/video/world/europe/100000009627113/ukraines-surprise-attack-on-russia.html
 
