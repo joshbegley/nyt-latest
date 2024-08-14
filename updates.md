@@ -1,3 +1,7 @@
+**Premier League acknowledges VAR flaws from last season, emphasising 'referee's call' for 2024-25**\
+`The Premier League has acknowledged that the VAR process drifted last season and is putting an emphasis on the on-field referee’s decision ahead of the 2024-25 campaign.`\
+https://nytimes.com/athletic/5700900/2024/08/14/premier-league-var-2024-25-referees-call/
+
 **Harris Is Leading or Tied With Trump in Most Swing States, New Cook Polls Find**\
 `The results are a marked change from the same surveys in May that showed former President Donald J. Trump leading by a solid margin or tied in the critical battlegrounds.`\
 https://nytimes.com/2024/08/14/us/politics/harris-trump-polls.html
