@@ -1,3 +1,7 @@
+**Romeo Lavia: 'My body let me down ... this is my first proper season at Chelsea'**\
+`"We are building something amazing. Everyone at the club can feel it," says Romeo Lavia of Chelsea as he returns from his injury nightmare`\
+https://nytimes.com/athletic/5694482/2024/08/14/romeo-lavia-interview-chelsea/
+
 **Does Harris Actually Need to Move Democrats Right?**\
 `Whether the Democrats moved too far left after Obama has serious implications for the next election.`\
 https://nytimes.com/2024/08/14/opinion/obama-harris-progressives.html
