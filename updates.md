@@ -1,3 +1,7 @@
+**5 Things This Bulgari Designer Wishes She’d Made**\
+`Why Mary Katrantzou admires Audubon’s illustrations, an Issey Miyake bodice and the rainbow flag.`\
+https://nytimes.com/interactive/2024/08/14/t-magazine/fashion/mary-katrantzou-bulgari.html
+
 **Why Taylor Fritz's electronic line call nightmare shows need for common sense in tennis**\
 `Electronic line calling is supposed to eliminate human error — but it doesn't always work`\
 https://nytimes.com/athletic/5700156/2024/08/14/taylor-fritz-cincinnati-electronic-line-calling-umpire-allensworth/
