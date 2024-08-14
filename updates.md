@@ -1,3 +1,11 @@
+**Why J.J. McCarthy's knee injury might not be the worst thing for him or the Vikings**\
+`Any injury is a setback, but there is an argument to be made that this could benefit the young quarterback and his team going forward.`\
+https://nytimes.com/athletic/5699340/2024/08/13/jj-mccarthy-vikings-knee-injury/
+
+**Nearly 40 Years Later, a California Serial Killer Confesses to Another Murder**\
+`William Lester Suff, 70, was already on death row for a dozen murders in Southern California. Now, he has confessed to killing a 19-year-old woman, shutting a 1986 cold case, officials said.`\
+https://nytimes.com/2024/08/13/us/riverside-prostitute-killer-william-suff.html
+
 **Chargers training camp, Day 16: Donald Parham Jr. flashes but remains in roster battle**\
 `Parham delivered some big plays in Tuesday's practice, but his inconsistency as a blocker still has him on the roster bubble.`\
 https://nytimes.com/athletic/5699730/2024/08/13/chargers-training-camp-donald-parham/
