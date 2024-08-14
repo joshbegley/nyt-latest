@@ -1,3 +1,7 @@
+**Deadly Landslides in India Made Worse by Climate Change, Study Finds**\
+`Extreme rainfall made 10 percent heavier by human-caused climate change triggered landslides that killed hundreds, according to a new study.`\
+https://nytimes.com/2024/08/13/climate/landslides-climate-change.html
+
 **Hunter Biden Sought State Department Help for Ukrainian Company**\
 `After President Biden dropped his re-election bid, his administration released records showing that while he was vice president, his son solicited U.S. government assistance.`\
 https://nytimes.com/2024/08/13/us/politics/hunter-biden-ukrainian-company.html
