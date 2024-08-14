@@ -1,3 +1,15 @@
+**Former champions Thiem and Osaka headline US Open wildcards**\
+`The US Open has announced its singles wildcards for 2024, led by former champions Dominic Thiem, Naomi Osaka, Stan Wawrinka, and Bianca Andreescu.`\
+https://nytimes.com/athletic/5701353/2024/08/14/us-open-wildcards-thiem-wawrinka-osaka-andreescu-anisimova/
+
+**Ravens without OL coach due to acute illness**\
+`Ravens OL coach Joe D'Alessandris was hospitalized over the weekend and will require ongoing treatment.`\
+https://nytimes.com/athletic/5701337/2024/08/14/ravens-joe-dalessandris-illness-offensive-line/
+
+**City Approves $7 Million Settlement for Exonerated Former Death Row Inmate**\
+`Edmond, Okla., agreed to the payment to settle a federal lawsuit filed by Glynn Simmons, 71, who spent 48 years in prison for a murder he did not commit. He now drives a food truck called FreeMan’s Food Truck, according to his lawyer.`\
+https://nytimes.com/2024/08/14/us/glynn-simmons-settlement-edmond.html
+
 **U.S. Army Soldier Pleads Guilty in Scheme to Sell Military Documents**\
 `Prosecutors said that Sgt. Korbein Schultz had access to top secret information, which he exchanged for payments totaling $42,000.`\
 https://nytimes.com/2024/08/14/us/korbein-schultz-army-guilty-conspiracy.html
