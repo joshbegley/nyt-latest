@@ -1,3 +1,19 @@
+**Google’s Stock Falls as the Government Weighs Breaking Up the Company**\
+`The Justice Department could force the technology group to split after a landmark court ruling that the search giant is an illegal monopoly.`\
+https://nytimes.com/2024/08/14/business/dealbook/google-stock-antitrust-break-up.html
+
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/08/14/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Tyler Fitzgerald is one of Giants' unlikeliest possible heroes**\
+`Fitzgerald's K-rate in Double A at age 24 was 33 percent. Players like that don't often reach the majors, let alone thrive like he has.`\
+https://nytimes.com/athletic/5691705/2024/08/14/sf-giants-tyler-fitzgerald-rookie-breakout/
+
+**Harris Is Set to Lay Out an Economic Message Light on Detail**\
+`The vice president is expected to recalibrate President Biden’s policy themes in a bid to turn the Democratic economic agenda into an asset.`\
+https://nytimes.com/2024/08/14/us/politics/kamala-harris-economy-north-carolina.html
+
 **Almiron's proposed transfer to Charlotte FC collapses**\
 `Miguel Almiron&#8217;s proposed transfer to Charlotte FC has fallen through.`\
 https://nytimes.com/athletic/5696641/2024/08/14/miguel-almiron-charlotte-newcastle/

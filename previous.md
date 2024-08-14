@@ -1,3 +1,19 @@
+**Google’s Stock Falls as the Government Weighs Breaking Up the Company**\
+`The Justice Department could force the technology group to split after a landmark court ruling that the search giant is an illegal monopoly.`\
+https://nytimes.com/2024/08/14/business/dealbook/google-stock-antitrust-break-up.html
+
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/08/14/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Tyler Fitzgerald is one of Giants' unlikeliest possible heroes**\
+`Fitzgerald's K-rate in Double A at age 24 was 33 percent. Players like that don't often reach the majors, let alone thrive like he has.`\
+https://nytimes.com/athletic/5691705/2024/08/14/sf-giants-tyler-fitzgerald-rookie-breakout/
+
+**Harris Is Set to Lay Out an Economic Message Light on Detail**\
+`The vice president is expected to recalibrate President Biden’s policy themes in a bid to turn the Democratic economic agenda into an asset.`\
+https://nytimes.com/2024/08/14/us/politics/kamala-harris-economy-north-carolina.html
+
 **Almiron's proposed transfer to Charlotte FC collapses**\
 `Miguel Almiron&#8217;s proposed transfer to Charlotte FC has fallen through.`\
 https://nytimes.com/athletic/5696641/2024/08/14/miguel-almiron-charlotte-newcastle/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5699754/2024/08/14/cleveland-guardians-mlb-best-rec
 **Which U.S. players could be heading home before the MLS transfer window closes?**\
 `A number of Europe-based American players could be returning to MLS today but time is against them if deals are to be done`\
 https://nytimes.com/athletic/5699493/2024/08/14/usa-players-mls-transfer-deadline/
-
-**After drafting TEs Brock Bowers and Michael Mayer, can Raiders succeed in 12 personnel?**\
-`The Raiders are likely to use a lot of 12 personnel this season, but Bowers and Mayer must be willing blockers to make it work.`\
-https://nytimes.com/athletic/5698466/2024/08/14/raiders-12-personnel-brock-bowers-michael-mayer/
-
-**Julian Araujo to Bournemouth: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500, we analyse and rate Julian Araujo's move to Bournemouth`\
-https://nytimes.com/athletic/5695954/2024/08/14/julian-araujo-to-bournemouth-the-athletic-500-transfer-ratings/
-
-**Gallagher returns to Chelsea as Atletico transfer stalls**\
-`Conor Gallagher has returned to Chelsea as his planned move to Atletico Madrid continues to stall.`\
-https://nytimes.com/athletic/5683413/2024/08/14/conor-gallagher-atletico-chelsea-transfer-stalls/
-
-**During a 2-day visit, Abbas is expected to meet with Erdogan and to deliver an address to Parliament.**\
-`Turkish officials have bashed Israel and stood up for Hamas, complicating their country’s place in diplomacy aimed at ending the war.`\
-https://nytimes.com/live/2024/08/14/world/israel-iran-hamas-gaza-war/during-a-2-day-visit-abbas-is-expected-to-meet-with-erdogan-and-to-deliver-an-address-to-parliament
 
