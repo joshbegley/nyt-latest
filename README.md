@@ -1,3 +1,7 @@
+**CAS: Gymnastics officials let down Chiles, other athletes**\
+`The International Gymnastics Federation did not flag whether Chiles' inquiry was placed after the one-minute window in real time.`\
+https://nytimes.com/athletic/5701621/2024/08/14/jordan-chiles-olympic-gymnastics-court-ruling/
+
 **Thursday Briefing: U.S. Assesses Israel’s War in Gaza**\
 `Plus, a fake Elon Musk scam.`\
 https://nytimes.com/2024/08/14/briefing/israel-military-gaza-thailand-prime-minister-harris-inflation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/14/world/africa/mpox-outbreak-symptoms-risks.html
 **Harris’s Economic Plans: The Good, the Bad and the Unnecessary**\
 `There may be a political need to “fight inflation,” but economically the issue is over.`\
 https://nytimes.com/live/2024/08/13/opinion/thepoint/harris-economic-plans
-
-**Austin Dillon's Richmond win won't count toward NASCAR playoff eligibility**\
-`Dillon's controversial Richmond win is the fifth in his career, but NASCAR ruled on Wednesday that it won't count toward the playoffs.`\
-https://nytimes.com/athletic/5701329/2024/08/14/austin-dillon-penalty-richmond-nascar/
 
