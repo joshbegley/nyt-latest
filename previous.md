@@ -1,3 +1,11 @@
+**Corrections: Aug. 14, 2024**\
+`Corrections that appeared in print on Wednesday, Aug. 14, 2024.`\
+https://nytimes.com/2024/08/14/pageoneplus/corrections-aug-14-2024.html
+
+**Quotation of the Day: Automated Restaurants Face Human Issues**\
+`Quotation of the Day for Wednesday, August 14, 2024.`\
+https://nytimes.com/2024/08/14/pageoneplus/quotation-of-the-day-automated-restaurants-face-human-issues.html
+
 **The Briefing: Sheff Utd 4 Wrexham 2 - How did new signings fare and was there bad blood?**\
 `The big talking points from Tuesday's Carabao Cup first round tie at Bramall Lane`\
 https://nytimes.com/athletic/5686681/2024/08/14/wrexham-sheffield-united-result-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5698705/2024/08/14/kompany-gudmundsson-clip-bayern-
 **Fulham season preview: A record signing, Sessegnon returns, but holding midfielder needed**\
 `What to expect from Fulham in 2024-25...`\
 https://nytimes.com/athletic/5684459/2024/08/14/fulham-season-preview-2024-25/
-
-**Spurs season preview: Solanke raises levels, Richarlison has point to prove**\
-`What to expect from Tottenham Hotspur in 2024-25…`\
-https://nytimes.com/athletic/5695631/2024/08/14/tottenham-season-preview-2024-25/
-
-**Newcastle United season preview: Tonali's back, Howe's stayed, progress needed**\
-`What to expect from Newcastle United in the 2024-25 season...`\
-https://nytimes.com/athletic/5688816/2024/08/14/newcastle-united-season-preview-tonalis-back-howes-stayed-progress-needed/
 
