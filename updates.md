@@ -1,3 +1,7 @@
+**Five storylines to watch during the remainder of the Blue Jays season**\
+`Vladimir Guerrero Jr.'s hitting, young players auditioning for 2025: There are still reasons to watch the Blue Jays this year.`\
+https://nytimes.com/athletic/5699997/2024/08/14/blue-jays-storylines-to-watch/
+
 **Which U.S. players could be heading home before the MLS transfer window closes?**\
 `A number of Europe-based American players could be returning to MLS today but time is against them if deals are to be done`\
 https://nytimes.com/athletic/5699493/2024/08/14/usa-players-mls-transfer-deadline/

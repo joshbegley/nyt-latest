@@ -1,3 +1,7 @@
+**Almiron's proposed transfer to Charlotte FC collapses**\
+`Miguel Almiron&#8217;s proposed transfer to Charlotte FC has fallen through.`\
+https://nytimes.com/athletic/5696641/2024/08/14/miguel-almiron-charlotte-newcastle/
+
 **Five storylines to watch during the remainder of the Blue Jays season**\
 `Vladimir Guerrero Jr.'s hitting, young players auditioning for 2025: There are still reasons to watch the Blue Jays this year.`\
 https://nytimes.com/athletic/5699997/2024/08/14/blue-jays-storylines-to-watch/
@@ -34,4 +38,3 @@ https://nytimes.com/athletic/5683413/2024/08/14/conor-gallagher-atletico-chelsea
 `Turkish officials have bashed Israel and stood up for Hamas, complicating their country’s place in diplomacy aimed at ending the war.`\
 https://nytimes.com/live/2024/08/14/world/israel-iran-hamas-gaza-war/during-a-2-day-visit-abbas-is-expected-to-meet-with-erdogan-and-to-deliver-an-address-to-parliament
 
-**U.N. diplomats call for an immediate cease-fire after deadly strike on school turned shelter, and other news.**\
