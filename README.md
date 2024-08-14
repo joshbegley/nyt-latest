@@ -1,3 +1,7 @@
+**Man City winger OBobb set for spell on sidelines with fractured leg**\
+`Manchester City winger Oscar Bobb is set for a spell on the sidelines after he fractured a bone in his leg.`\
+https://nytimes.com/athletic/5701203/2024/08/14/man-city-oscar-bobb-injury-leg/
+
 **Summer 2024 News Quiz for Students**\
 `How closely have you paid attention to current events? See what you remember by taking our special Summer 2024 News Quiz.`\
 https://nytimes.com/interactive/2024/08/14/learning/14StudentSummerNewsQuiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5694016/2024/08/14/bruno-fernandes-new-man-utd-cont
 **Foxconn Is Building an Electric Car Factory Next to Where It Makes iPhones**\
 `The Taiwanese company has built a manufacturing hub in Zhengzhou, China, for its star customer Apple, but it is starting almost from scratch in the auto business.`\
 https://nytimes.com/2024/08/14/business/china-foxconn-apple-ev.html
-
-**Boeing Faces a Steep Climb in Catching Up to Airbus**\
-`As Boeing works to address quality control issues, its new chief starts at a disadvantage in competing with the other big maker of passenger planes.`\
-https://nytimes.com/2024/08/14/business/boeing-airbus.html
 
