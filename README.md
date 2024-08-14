@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5699997/2024/08/14/blue-jays-storylines-to-watch/
 https://nytimes.com/athletic/5700193/2024/08/14/eduardo-camavinga-injury-real-madrid/
 
 **Makers of Snickers and Pringles to Merge in $36 Billion Food Deal**\
-`Mars is acquiring Kellanova in one of the largest deals in the food industry in years, creating a new global giant with a stable of well-known brands.`\
+`Mars is acquiring Kellanova in one of the largest deals in the industry in years, creating a new global giant with a stable of well-known brands.`\
 https://nytimes.com/2024/08/14/business/dealbook/mars-kellanova-deal-pringles-cheezit.html
 
 **The Pulse: Wait, *who* has the best record in baseball?**\
