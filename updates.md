@@ -18,6 +18,11 @@ https://nytimes.com/athletic/5701218/2024/08/14/chicago-red-stars-seatgeek-stadi
 `\
 https://nytimes.com/athletic/5701218/2024/08/14/chicago-red-stars-seatgeek-stadium-clash-resolved/
 
+**Chicago Red Stars' stadium clash is solved - but it exposes the hurdles faced by NWSL**\
+`Chicago Red Stars faced having to travel to Kansas City to play a home match. Here's why...
+`\
+https://nytimes.com/athletic/5701218/2024/08/14/chicago-red-stars-seatgeek-stadium-clash-resolved/
+
 **CAS: Gymnastics officials let down Chiles, other athletes**\
 `The International Gymnastics Federation did not flag whether Chiles' inquiry was placed after the one-minute window in real time.`\
 https://nytimes.com/athletic/5701621/2024/08/14/jordan-chiles-olympic-gymnastics-court-ruling/
