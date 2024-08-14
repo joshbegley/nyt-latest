@@ -1,3 +1,15 @@
+**To Save the Panama Canal From Drought, a Disruptive Fix**\
+`In the wake of a drought that hampered shipping, the Panama Canal’s overseers are eager to expand water storage. Climate change leaves them no choice.`\
+https://nytimes.com/2024/08/14/business/panama-canal-drought.html
+
+**Wednesday's MLB odds, best bets: Pitching matchups, playoffs and more**\
+`See pitching matchups, playoff projections, win projections and more for Wednesday's MLB games.`\
+https://nytimes.com/athletic/5698668/2024/08/14/mlb-odds-best-bets-projections-august-14/
+
+**How ‘Deepfake Elon Musk’ Became the Internet’s Biggest Scammer**\
+`An A.I.-powered version of Mr. Musk has appeared in thousands of inauthentic ads, contributing to billions in fraud.`\
+https://nytimes.com/interactive/2024/08/14/technology/elon-musk-ai-deepfake-scam.html
+
 **After a year of few chances, Astros' Yainer Diaz is thriving as Yordan Alvarez's protector**\
 `Diaz is hitting .370 with runners on base since being elevated to the cleanup spot in mid-June.`\
 https://nytimes.com/athletic/5699927/2024/08/13/astros-yainer-diaz-success-behind-yordan-alvarez/
