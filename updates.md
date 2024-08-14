@@ -1,3 +1,11 @@
+**Next steps for Cubs pitching prospect Cade Horton after setback**\
+`Cubs GM Carter Hawkins said Horton is dealing with “the same injury” that’s sidelined him since the end of May — a subscapularis strain.`\
+https://nytimes.com/athletic/5699636/2024/08/13/chicago-cubs-cade-horton-injury-setback/
+
+**Inquiry Finds No Politics Behind Ballot Paper Shortages in 2022 Houston Election**\
+`Republicans accused Democratic officials of trying to sway the results. But prosecutors found that the problem stemmed from an employee whose attention was diverted.`\
+https://nytimes.com/2024/08/13/us/harris-county-elections-ballots-investigation-charges.html
+
 **Donald Trump plans to meet with Miriam Adelson after his aide sent her angry texts in his name.**\
 `Tru`\
 https://nytimes.com/live/2024/08/13/us/harris-trump-election/trump-miriam-adelson

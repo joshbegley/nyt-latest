@@ -1,3 +1,11 @@
+**Next steps for Cubs pitching prospect Cade Horton after setback**\
+`Cubs GM Carter Hawkins said Horton is dealing with “the same injury” that’s sidelined him since the end of May — a subscapularis strain.`\
+https://nytimes.com/athletic/5699636/2024/08/13/chicago-cubs-cade-horton-injury-setback/
+
+**Inquiry Finds No Politics Behind Ballot Paper Shortages in 2022 Houston Election**\
+`Republicans accused Democratic officials of trying to sway the results. But prosecutors found that the problem stemmed from an employee whose attention was diverted.`\
+https://nytimes.com/2024/08/13/us/harris-county-elections-ballots-investigation-charges.html
+
 **Donald Trump plans to meet with Miriam Adelson after his aide sent her angry texts in his name.**\
 `Tru`\
 https://nytimes.com/live/2024/08/13/us/harris-trump-election/trump-miriam-adelson
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5699467/2024/08/13/penguins-cody-glass-predators-tr
 **President Biden Announces $150 Million in Cancer Research Grants**\
 `President Biden said eight research centers would receive research awards aimed at pioneering new methods of precision cancer surgery as part of his administration’s cancer “moonshoot” initiative.`\
 https://nytimes.com/video/us/politics/100000009628074/biden-cancer-moonshot-research.html
-
-**Saving Australian Crocodiles by Yucking Their Yum**\
-`The aquatic reptiles cannot resist eating invasive toads that are toxic, so scientists gave the crocodiles a dose of nonlethal food poisoning to adjust their behavior.`\
-https://nytimes.com/2024/08/13/science/crocodiles-cane-toads-bait-australia.html
-
-**Naftali Bennett Needs to Topple Two Regimes**\
-`The former prime minister sees Israel threatened by Netanyahu and Iran.`\
-https://nytimes.com/2024/08/13/opinion/israel-iran-bennett-netanyahu.html
 
