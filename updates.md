@@ -1,3 +1,7 @@
+**Harris’s Economic Plans: The Good, the Bad and the Unnecessary**\
+`There may be a political need to “fight inflation,” but economically the issue is over.`\
+https://nytimes.com/live/2024/08/13/opinion/thepoint/harris-economic-plans
+
 **Austin Dillon's Richmond win won't count toward NASCAR playoff eligibility**\
 `Dillon's controversial Richmond win is the fifth in his career, but NASCAR ruled on Wednesday that it won't count toward the playoffs.`\
 https://nytimes.com/athletic/5701329/2024/08/14/austin-dillon-penalty-richmond-nascar/

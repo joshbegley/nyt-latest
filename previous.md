@@ -1,3 +1,7 @@
+**Harris’s Economic Plans: The Good, the Bad and the Unnecessary**\
+`There may be a political need to “fight inflation,” but economically the issue is over.`\
+https://nytimes.com/live/2024/08/13/opinion/thepoint/harris-economic-plans
+
 **Austin Dillon's Richmond win won't count toward NASCAR playoff eligibility**\
 `Dillon's controversial Richmond win is the fifth in his career, but NASCAR ruled on Wednesday that it won't count toward the playoffs.`\
 https://nytimes.com/athletic/5701329/2024/08/14/austin-dillon-penalty-richmond-nascar/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5701337/2024/08/14/ravens-joe-dalessandris-illness-
 **City Approves $7 Million Settlement for Exonerated Former Death Row Inmate**\
 `Edmond, Okla., agreed to the payment to settle a federal lawsuit filed by Glynn Simmons, 71, who spent 48 years in prison for a murder he did not commit. He now drives a food truck called FreeMan’s Food Truck, according to his lawyer.`\
 https://nytimes.com/2024/08/14/us/glynn-simmons-settlement-edmond.html
-
-**U.S. Army Soldier Pleads Guilty to Selling Military Documents**\
-`Prosecutors said that Sgt. Korbein Schultz had access to top secret information, which he exchanged for payments totaling $42,000.`\
-https://nytimes.com/2024/08/14/us/korbein-schultz-army-guilty-conspiracy.html
 
