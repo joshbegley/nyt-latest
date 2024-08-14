@@ -1,3 +1,7 @@
+**Why Chelsea are set to begin the new season without a shirt sponsor**\
+`Are the London club in talks over a potential late deal? Will they be able to secure a partner once the campaign has started?`\
+https://nytimes.com/athletic/5698622/2024/08/14/why-chelsea-are-set-to-begin-the-new-season-without-a-shirt-sponsor/
+
 **George Springer ejected after video review says he wasn't hit by pitch**\
 `Springer went 0-for-2 in Tuesday's game, tallying one run and one walk.`\
 https://nytimes.com/athletic/5699998/2024/08/14/blue-jays-george-springer-ejection/
