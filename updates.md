@@ -1,3 +1,7 @@
+**After a year of few chances, Astros' Yainer Diaz is thriving as Yordan Alvarez's protector**\
+`Diaz is hitting .370 with runners on base since being elevated to the cleanup spot in mid-June.`\
+https://nytimes.com/athletic/5699927/2024/08/13/astros-yainer-diaz-success-behind-yordan-alvarez/
+
 **Japan’s Leader, Fumio Kishida, Will Step Down**\
 `The unpopular prime minister bowed to pressure within his party, which has been searching for a potential successor. He plans to leave office next month.`\
 https://nytimes.com/2024/08/13/world/asia/fumio-kishida-japan-prime-minister.html

@@ -1,3 +1,7 @@
+**After a year of few chances, Astros' Yainer Diaz is thriving as Yordan Alvarez's protector**\
+`Diaz is hitting .370 with runners on base since being elevated to the cleanup spot in mid-June.`\
+https://nytimes.com/athletic/5699927/2024/08/13/astros-yainer-diaz-success-behind-yordan-alvarez/
+
 **As Phillies continue to spiral, lineup changes could be near**\
 `The Phillies have lost 16 of 23 games since the All-Star break. They have been a .500 team for almost two months. `\
 https://nytimes.com/athletic/5699885/2024/08/13/phillies-lose-marlins-lineup-changes-possible/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5699340/2024/08/13/jj-mccarthy-vikings-knee-injury/
 **Nearly 40 Years Later, a California Serial Killer Confesses to Another Murder**\
 `William Lester Suff, 70, was already on death row for a dozen murders in Southern California. Now, he has confessed to killing a 19-year-old woman, shutting a 1986 cold case, officials said.`\
 https://nytimes.com/2024/08/13/us/riverside-prostitute-killer-william-suff.html
-
-**Chargers training camp, Day 16: Donald Parham Jr. flashes but remains in roster battle**\
-`Parham delivered some big plays in Tuesday's practice, but his inconsistency as a blocker still has him on the roster bubble.`\
-https://nytimes.com/athletic/5699730/2024/08/13/chargers-training-camp-donald-parham/
 
