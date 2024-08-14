@@ -1,3 +1,7 @@
+**Crucial Senate Race in Wisconsin Is Set Between Eric Hovde and Tammy Baldwin**\
+`Mr. Hovde, a wealthy businessman endorsed by Donald J. Trump, won the Republican primary Tuesday night to challenge Senator Tammy Baldwin, the Democratic incumbent.`\
+https://nytimes.com/2024/08/13/us/politics/eric-hovde-tammy-baldwin-wi.html
+
 **Why J.J. McCarthy's knee injury might not be the worst thing for him or the Vikings**\
 `Any injury is a setback, but there is an argument to be made that this could benefit the young quarterback and his team going forward.`\
 https://nytimes.com/athletic/5699340/2024/08/13/jj-mccarthy-vikings-knee-injury/

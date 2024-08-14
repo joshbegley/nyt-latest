@@ -1,3 +1,7 @@
+**Crucial Senate Race in Wisconsin Is Set Between Eric Hovde and Tammy Baldwin**\
+`Mr. Hovde, a wealthy businessman endorsed by Donald J. Trump, won the Republican primary Tuesday night to challenge Senator Tammy Baldwin, the Democratic incumbent.`\
+https://nytimes.com/2024/08/13/us/politics/eric-hovde-tammy-baldwin-wi.html
+
 **Why J.J. McCarthy's knee injury might not be the worst thing for him or the Vikings**\
 `Any injury is a setback, but there is an argument to be made that this could benefit the young quarterback and his team going forward.`\
 https://nytimes.com/athletic/5699340/2024/08/13/jj-mccarthy-vikings-knee-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/13/us/harris-trump-election/trump-miriam-adelso
 **Trucking Company Owner Pleads Guilty in Wreck That Killed 7 Bikers**\
 `Dunyadar Gasanov admitted he had lied to investigators about how long he had known the driver of the truck and altered drivers’ logs to evade federal regulations.`\
 https://nytimes.com/2024/08/13/us/westfield-trucking-owner-guilty-crash.html
-
-**Texas Sues G.M. Over Collection and Selling of Driver Data**\
-`The lawsuit accuses the automaker of tricking drivers into sharing detailed driving records that were then sold to insurance companies.`\
-https://nytimes.com/2024/08/13/business/gm-texas-lawsuit.html
 
