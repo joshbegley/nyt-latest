@@ -1,3 +1,20 @@
+**Just How Demure Are You?**\
+`A TikTok trend has breathed new life into a fusty word.`\
+https://nytimes.com/2024/08/14/style/demure-tiktok-mindful-cutesy.html
+
+**Receiver-defensive back battles spice up Packers camp ... unlike kicker competition**\
+`Neither Anders Carlson nor Greg Joseph has separated himself in the Packers' two-man kicking competition this summer.`\
+https://nytimes.com/athletic/5701448/2024/08/14/packers-camp-receivers-defensive-backs/
+
+**Gluck: Thankfully, NASCAR got Austin Dillon decision right**\
+`Dillon's Richmond win still counts, but it won't count toward the NASCAR playoffs, and that's the right decision.`\
+https://nytimes.com/athletic/5701497/2024/08/14/nascar-austin-dillon-penalty-right-decision/
+
+**Chicago Red Stars' stadium clash is solved - but it exposes the hurdles faced by NWSL**\
+`Chicago Red Stars faced having to travel to Kansas City to play a home match. Here's why...
+`\
+https://nytimes.com/athletic/5701218/2024/08/14/chicago-red-stars-seatgeek-stadium-clash-resolved/
+
 **Chicago Red Stars' stadium clash is solved - but it exposes the hurdles faced by NWSL**\
 `Chicago Red Stars faced having to travel to Kansas City to play a home match. Here's why...
 `\
