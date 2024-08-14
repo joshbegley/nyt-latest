@@ -1,3 +1,7 @@
+**Hurricane Ernesto Knocks Out Power to Hundreds of Thousands in Puerto Rico**\
+`The island’s frail electrical system struggled as the storm passed on Wednesday.`\
+https://nytimes.com/2024/08/14/us/puerto-rico-power-hurricane-ernesto.html
+
 **Scoop City: Injury updates for Jahmyr Gibbs, J.J. McCarthy and other s**\
 `Latest on Alvin Kamara, J.J. McCarthy, DeAndre Hopkins and other injured players to watch.`\
 https://nytimes.com/athletic/5700840/2024/08/14/nfl-injury-updates-scoop-city-aug/
