@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5690035/2024/08/14/giorgi-mamardashvili-liverpool-t
 https://nytimes.com/athletic/5700326/2024/08/14/barcelona-hansi-flick-thiago-coaching-staff/
 
 **Judge Denies Trump’s Third Request to Remove Him From Criminal Case**\
-`Justice Juan M. Merchan, who oversaw the trial that led to Donald J. Trump’s conviction on 34 felony counts, dismissed the request as “nothing more than a repetition of stale and unsubstantiated claims.”`\
+`Justice Juan M. Merchan, who oversaw the trial that led to Donald J. Trump’s conviction on 34 felony counts, rebuked Mr. Trump’s lawyers for claiming the judge had ties to Kamala Harris that posed a conflict.`\
 https://nytimes.com/2024/08/14/nyregion/trump-trial-merchan-recusal.html
 
 **Cubs’ Dansby Swanson on wife Mallory’s gold medal, baseball at Olympics and more**\
