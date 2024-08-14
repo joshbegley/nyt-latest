@@ -1,3 +1,11 @@
+**NASA Says It Needs to Decide Soon How Starliner Astronauts Will Come Home**\
+`After agency officials said last week that a decision was pending, they said on Wednesday that deliberations were still taking place.`\
+https://nytimes.com/2024/08/14/science/nasa-boeing-starliner-astronauts.html
+
+**Seahawks' offense shows promise, despite some hiccups, in first real test vs. Titans**\
+`Geno Smith, DK Metcalf and company made some big plays during joint practices, albeit against a short-handed Titans secondary.`\
+https://nytimes.com/athletic/5701530/2024/08/14/seahawks-offense-shows-promise-despite-some-hiccups-in-first-real-test-vs-titans/
+
 **Unresponsive Brain-Damaged Patients May Have Some Awareness**\
 `Many patients thought to be in vegetative or minimally conscious states may be capable of thought, researchers reported.`\
 https://nytimes.com/2024/08/14/health/brain-injuries-consciousness-awareness.html

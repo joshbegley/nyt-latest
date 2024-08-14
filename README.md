@@ -1,3 +1,7 @@
+**A.L.S. Stole His Voice. A.I. Retrieved It.**\
+`In an experiment that surpassed expectations, implants in a patient’s brain were able to recognize words he tried to speak, and A.I. helped produce sounds that came close to matching his true voice.`\
+https://nytimes.com/2024/08/14/health/als-ai-brain-implants.html
+
 **NASA Says It Needs to Decide Soon How Starliner Astronauts Will Come Home**\
 `After agency officials said last week that a decision was pending, they said on Wednesday that deliberations were still taking place.`\
 https://nytimes.com/2024/08/14/science/nasa-boeing-starliner-astronauts.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5700822/2024/08/14/patriots-eagles-preseason-drake-
 **Rams, Cowboys get into scuffle during drills**\
 `The Rams didn't like one of their staff members being shoved during their joint practice with the Cowboys.`\
 https://nytimes.com/athletic/5701376/2024/08/14/rams-cowboys-practice-scuffle/
-
-**Auston Matthews is ready for the added spotlight that comes with being Maple Leafs captain**\
-`Naming Matthews captain feels like a decision made with the long term in mind. “That’s the goal: To be a Leaf for life,” Matthews said.`\
-https://nytimes.com/athletic/5701356/2024/08/14/auston-matthews-captain-maple-leafs/
 
