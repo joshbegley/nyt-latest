@@ -1,3 +1,7 @@
+**World-record holders Duplantis and Warholm to race over 100m**\
+`World-record holders Mondo Duplantis and Karsten Warholm will race over 100m next month.`\
+https://nytimes.com/athletic/5700168/2024/08/14/duplantis-warholm-100m-race/
+
 **The best up-and-coming women's tennis players to watch in 2024 and beyond**\
 `Which WTA tennis players are poised to become the 'next gen' for the women's game?`\
 https://nytimes.com/athletic/5684092/2024/08/14/womens-tennis-wta-next-generation-shnaider-fruhvirtova-eala/
