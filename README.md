@@ -6,7 +6,7 @@ https://nytimes.com/live/2024/08/14/business/cpi-inflation-fed/cooling-inflation
 `Algerian boxer and gold medalist Imane Khelif's time at the Olympics was overshadowed by a torrent of negative attention on social media.`\
 https://nytimes.com/athletic/5700622/2024/08/14/imane-khelif-investigation-harassment-olympics/
 
-**Harris Is Leading or Tied with Trump in Most Swing States, New Cook Polls Find**\
+**Harris Is Leading or Tied With Trump in Most Swing States, New Cook Polls Find**\
 `The results are a marked change from the same surveys in May that showed former President Donald J. Trump leading by a solid margin or tied in the critical battlegrounds.`\
 https://nytimes.com/2024/08/14/us/politics/harris-trump-polls.html
 
