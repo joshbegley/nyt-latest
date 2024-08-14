@@ -1,3 +1,7 @@
+**'Fake' test results leaked after Polish anti-doping agency targeted by cyber attack**\
+`The Polish anti-doping agency (POLADA) said on Wednesday that it was the victim of a cyber attack that led to false details of positive tests from a number of athletes being leaked.`\
+https://nytimes.com/athletic/5700428/2024/08/14/polish-anti-doping-cyber-attack/
+
 **Teamsters’ Black Caucus Endorses Harris While Parent Union Stays Silent**\
 `The move aligns the caucus with other big organized-labor groups, but the Teamsters president, who spoke at the Republican convention, has indicated he is open to backing Trump.`\
 https://nytimes.com/2024/08/14/us/politics/teamsters-black-caucus-harris.html

@@ -1,3 +1,7 @@
+**'Fake' test results leaked after Polish anti-doping agency targeted by cyber attack**\
+`The Polish anti-doping agency (POLADA) said on Wednesday that it was the victim of a cyber attack that led to false details of positive tests from a number of athletes being leaked.`\
+https://nytimes.com/athletic/5700428/2024/08/14/polish-anti-doping-cyber-attack/
+
 **Teamsters’ Black Caucus Endorses Harris While Parent Union Stays Silent**\
 `The move aligns the caucus with other big organized-labor groups, but the Teamsters president, who spoke at the Republican convention, has indicated he is open to backing Trump.`\
 https://nytimes.com/2024/08/14/us/politics/teamsters-black-caucus-harris.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/14/opinion/ai-schools-teachers-students.html
 **His Trilogy Explored the Nazi Era. Now He Looks at the People Behind It.**\
 `In “Hitler’s People,” the renowned historian Richard J. Evans takes a biographical approach to the Third Reich.`\
 https://nytimes.com/2024/08/14/books/review/richard-j-evans-hitlers-people.html
-
-**Can I Tell My Sister That Her Estranged Son Is a New Father?**\
-`A reader is unsure whether to insert herself into three years of icy silence by sharing a major development in her nephew’s life with his mother.`\
-https://nytimes.com/2024/08/14/style/can-i-tell-my-sister-that-her-estranged-son-is-a-new-father.html
 
