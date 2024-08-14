@@ -1,9 +1,9 @@
 **Harris Shouldn’t Forget That Democracy Is Still on the Ballot**\
 `And there are still voters who care about it.`\
-https://nytimes.com/live/2024/08/13/opinion/thepoint/harris-democracy-ballot
+https://nytimes.com/2024/08/13/opinion/harris-democracy-ballot.html
 
 **Readers’ Pleas to The Times: Don’t End the New York Endorsements**\
-`Readers disagree with The Times’s decision to end endorsements in New York races. Also: Trump-speak; the human touch in restaurants; student phone bans.`\
+`Readers disagree with The Times’s decision to stop endorsing in local races. Also: Trump-speak; the human touch in restaurants; student phone bans.`\
 https://nytimes.com/2024/08/14/opinion/new-york-times-endorsements.html
 
 **Shaqiri, Fire agree to mutual termination of midfielder's contract**\
