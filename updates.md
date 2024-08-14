@@ -1,3 +1,7 @@
+**Whimsical Parade of Banksy Animals Sends Fans on a Giddy Hunt**\
+`Each day for nine straight days, a new Banksy artwork appeared somewhere in London. For some, it became a citywide treasure hunt.`\
+https://nytimes.com/2024/08/14/world/europe/banksy-london-street-art.html
+
 **Durant's PSG stake explained: Why has he bought in? Does he have a say?**\
 `Kevin Durant has purchased a state in Paris Saint-Germain — this is why`\
 https://nytimes.com/athletic/5700380/2024/08/14/kevin-durant-psg-nba/
