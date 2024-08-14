@@ -1,3 +1,15 @@
+**A New Venue Beckons Jazz Musicians and Beyond to Upstate New York**\
+`The Mill, an arts center with art galleries and a performance space in an old flour mill, opened over the weekend. Its owners hope it sparks a “ripple effect.”`\
+https://nytimes.com/2024/08/14/arts/music/the-mill-venue-westport-new-york.html
+
+**Black Art Week in San Francisco Bay Area Is in the Works for the Fall**\
+`The executive director of the Museum of the African Diaspora says the goal is to “celebrate the rich Black art landscape” of the region.`\
+https://nytimes.com/2024/08/14/arts/design/black-art-week-san-francisco.html
+
+**Man City winger Bobb set for spell on sidelines with fractured leg**\
+`Manchester City winger Oscar Bobb is set for a spell on the sidelines after he fractured a bone in his leg.`\
+https://nytimes.com/athletic/5701203/2024/08/14/man-city-oscar-bobb-injury-leg/
+
 **Summer 2024 News Quiz for Students**\
 `How closely have you paid attention to current events? See what you remember by taking our special Summer 2024 News Quiz.`\
 https://nytimes.com/interactive/2024/08/14/learning/14StudentSummerNewsQuiz.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5701150/2024/08/14/jj-mccarthy-knee-injury-out-seas
 **California ‘Shaman’ Faces Felony Sex Assault Charges**\
 `Ricardo I. Flores, who the authorities say led a shamanistic community and who goes by Koyote the Blind, has been charged with eight felonies, including rape and aggravated sexual assault of a minor.`\
 https://nytimes.com/2024/08/14/us/california-shaman-sex-assault-charges-riverside.html
-
-**Fernandes signs new Manchester United contract extension**\
-`Bruno Fernandes has signed a new contract extension at Manchester United through to 2027 with the option of an additional 12 months.`\
-https://nytimes.com/athletic/5694016/2024/08/14/bruno-fernandes-new-man-utd-contract/
-
-**Foxconn Is Building an Electric Car Factory Next to Where It Makes iPhones**\
-`The Taiwanese company has built a manufacturing hub in Zhengzhou, China, for its star customer Apple, but it is starting almost from scratch in the auto business.`\
-https://nytimes.com/2024/08/14/business/china-foxconn-apple-ev.html
-
-**Boeing Faces a Steep Climb in Catching Up to Airbus**\
-`As Boeing works to address quality control issues, its new chief starts at a disadvantage in competing with the other big maker of passenger planes.`\
-https://nytimes.com/2024/08/14/business/boeing-airbus.html
 
