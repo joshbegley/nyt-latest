@@ -1,3 +1,7 @@
+**Can a Disney+ Subscription Keep a Widower From Suing Disney in Court?**\
+`Jeffrey Piccolo sued after his wife died from an allergic reaction to food served at a Disney resort restaurant. Disney wants the case handled by an arbitrator.`\
+https://nytimes.com/2024/08/14/nyregion/disney-wrongful-death-lawsuit-arbitration.html
+
 **Inflation Fell Below 3% for the First Time in Years**\
 `Also, U.S. officials say Israel’s military has achieved all it can in Gaza. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/08/14/briefing/inflation-report-us-assessment-gaza-war.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5701530/2024/08/14/seahawks-offense-shows-promise-d
 **Unresponsive Brain-Damaged Patients May Have Some Awareness**\
 `Many patients thought to be in vegetative or minimally conscious states may be capable of thought, researchers reported.`\
 https://nytimes.com/2024/08/14/health/brain-injuries-consciousness-awareness.html
-
-**'No plans' for Premier League games overseas - chief executive Masters**\
-`Premier League chief executive Richard Masters claims the prospect of an English top flight match overseas has not been raised at a shareholders’ meeting since 2008.`\
-https://nytimes.com/athletic/5701119/2024/08/14/premier-league-matches-abroad-richard-masters/
 
