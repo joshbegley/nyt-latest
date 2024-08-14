@@ -1,3 +1,7 @@
+**George Springer ejected after video review says he wasn't hit by pitch**\
+`Springer went 0-for-2 in Tuesday's game, tallying one run and one walk.`\
+https://nytimes.com/athletic/5699998/2024/08/14/blue-jays-george-springer-ejection/
+
 **Kompany vs Gudmundsson - what did it reveal about Bayern Munich's new head coach?**\
 `Dissecting a controversial clip of Bayern Munich's new coach from his time at Burnley`\
 https://nytimes.com/athletic/5698705/2024/08/14/kompany-gudmundsson-clip-bayern-burnley/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5681680/2024/08/14/everton-season-preview-goodison-
 **Bears 'Hard Knocks' takeaways: Rookie backstories, ice cream with DJ Moore and family**\
 `Caleb Williams was still the star, but we got to learn more about his Bears teammates on the second episode of "Hard Knocks."`\
 https://nytimes.com/athletic/5699973/2024/08/14/bears-hard-knocks-episode-2-dj-moore/
-
-**OMG! A's reliever mocks Mets with their signature celebration**\
-`Austin Adams, released by the Mets during spring training, recorded the biggest outs in the A's victory.`\
-https://nytimes.com/athletic/5699965/2024/08/14/mets-oakland-austin-adams-omg/
 
