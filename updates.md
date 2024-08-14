@@ -1,3 +1,7 @@
+**Easing Inflation Has Democrats Tasting Victory**\
+`Soaring prices have been a political albatross for the Biden administration.`\
+https://nytimes.com/2024/08/14/business/inflation-biden-harris-democrats.html
+
 **For Stonehenge’s Altar Stone, an Improbably Long Ancient Journey**\
 `A six-ton megalith at the heart of the archaeological site traveled more than 450 miles to get there, a new study concludes.`\
 https://nytimes.com/2024/08/14/science/stonehenge-altar-scotland.html

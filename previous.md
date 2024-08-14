@@ -1,3 +1,7 @@
+**Easing Inflation Has Democrats Tasting Victory**\
+`Soaring prices have been a political albatross for the Biden administration.`\
+https://nytimes.com/2024/08/14/business/inflation-biden-harris-democrats.html
+
 **For Stonehenge’s Altar Stone, an Improbably Long Ancient Journey**\
 `A six-ton megalith at the heart of the archaeological site traveled more than 450 miles to get there, a new study concludes.`\
 https://nytimes.com/2024/08/14/science/stonehenge-altar-scotland.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/14/us/republicans-christian-conservatives-ivf.html
 **This Enormous Artwork Turns a Palace Into a Pawnshop**\
 `Christoph Büchel’s vast installation in Venice is compelling, obsessive and sometimes hilarious.`\
 https://nytimes.com/2024/08/14/arts/design/christoph-buechel-venice.html
-
-**5 Things This Bulgari Designer Wishes She’d Made**\
-`Why Mary Katrantzou admires Audubon’s illustrations, an Issey Miyake bodice and the rainbow flag.`\
-https://nytimes.com/interactive/2024/08/14/t-magazine/fashion/mary-katrantzou-bulgari.html
 
