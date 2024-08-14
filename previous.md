@@ -1,3 +1,15 @@
+**Hulk Hogan, Jesse Ventura and a Complicated Subplot to the 2024 Race**\
+`Hogan supports Donald J. Trump. Mr. Ventura is backing Kamala Harris. But their beef is more complicated than that.`\
+https://nytimes.com/2024/08/14/us/politics/jesse-ventura-tim-walz-kamala-harris.html
+
+**Leeds 0 Middlesbrough 3: Is post-play-off pressure mounting? What's wrong with defence?**\
+`Leeds fell to a big defeat to Middlesbrough at home — these are the key talking points`\
+https://nytimes.com/athletic/5700562/2024/08/14/leeds-united-middlesbrough-analysis/
+
+**Broncos rookie Jonah Elliss steadily improving his pass-rush plan**\
+`Plus, Denver coach Sean Payton is "encouraged" by what he saw from fourth-year QB Zach Wilson in the preseason opener. `\
+https://nytimes.com/athletic/5701394/2024/08/14/jonah-elliss-broncos-training-camp/
+
 **Just How Demure Are You?**\
 `A TikTok trend has breathed new life into a fusty word.`\
 https://nytimes.com/2024/08/14/style/demure-tiktok-mindful-cutesy.html
@@ -26,16 +38,4 @@ https://nytimes.com/athletic/5701218/2024/08/14/chicago-red-stars-seatgeek-stadi
 **CAS: Gymnastics officials let down Chiles, other athletes**\
 `The International Gymnastics Federation did not flag whether Chiles' inquiry was placed after the one-minute window in real time.`\
 https://nytimes.com/athletic/5701621/2024/08/14/jordan-chiles-olympic-gymnastics-court-ruling/
-
-**Thursday Briefing: U.S. Assesses Israel’s War in Gaza**\
-`Plus, a fake Elon Musk scam.`\
-https://nytimes.com/2024/08/14/briefing/israel-military-gaza-thailand-prime-minister-harris-inflation.html
-
-**In Gaza, Israel’s Military Has Reached the End of the Line, U.S. Officials Say**\
-`Israel has severely set back Hamas but will never be able to completely eliminate the group, U.S. officials said.`\
-https://nytimes.com/2024/08/14/us/politics/israel-military-gaza-war.html
-
-**A.L.S. Stole His Voice. A.I. Retrieved It.**\
-`In an experiment that surpassed expectations, implants in a patient’s brain were able to recognize words he tried to speak, and A.I. helped produce sounds that came close to matching his true voice.`\
-https://nytimes.com/2024/08/14/health/als-ai-brain-implants.html
 

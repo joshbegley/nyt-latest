@@ -1,3 +1,20 @@
+**Hulk Hogan, Jesse Ventura and a Complicated Subplot to the 2024 Race**\
+`Hogan supports Donald J. Trump. Mr. Ventura is backing Kamala Harris. But their beef is more complicated than that.`\
+https://nytimes.com/2024/08/14/us/politics/jesse-ventura-tim-walz-kamala-harris.html
+
+**Leeds 0 Middlesbrough 3: Is post-play-off pressure mounting? What's wrong with defence?**\
+`Leeds fell to a big defeat to Middlesbrough at home — these are the key talking points`\
+https://nytimes.com/athletic/5700562/2024/08/14/leeds-united-middlesbrough-analysis/
+
+**Broncos rookie Jonah Elliss steadily improving his pass-rush plan**\
+`Plus, Denver coach Sean Payton is "encouraged" by what he saw from fourth-year QB Zach Wilson in the preseason opener. `\
+https://nytimes.com/athletic/5701394/2024/08/14/jonah-elliss-broncos-training-camp/
+
+**Chicago Red Stars' stadium clash is solved - but it exposes the hurdles faced by NWSL**\
+`Chicago Red Stars faced having to travel to Kansas City to play a home match. Here's why...
+`\
+https://nytimes.com/athletic/5701218/2024/08/14/chicago-red-stars-seatgeek-stadium-clash-resolved/
+
 **Chicago Red Stars' stadium clash is solved - but it exposes the hurdles faced by NWSL**\
 `Chicago Red Stars faced having to travel to Kansas City to play a home match. Here's why...
 `\
