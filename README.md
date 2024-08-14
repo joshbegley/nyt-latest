@@ -1,3 +1,7 @@
+**World-record holders Duplantis and Warholm to race over 100m**\
+`World-record holders Mondo Duplantis and Karsten Warholm will race over 100m next month.`\
+https://nytimes.com/athletic/5700168/2024/08/14/duplantis-warholm-100m-race/
+
 **The best up-and-coming women's tennis players to watch in 2024 and beyond**\
 `Which WTA tennis players are poised to become the 'next gen' for the women's game?`\
 https://nytimes.com/athletic/5684092/2024/08/14/womens-tennis-wta-next-generation-shnaider-fruhvirtova-eala/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/14/world/asia/china-olympics-fan-culture.html
 **Word of the Day: encyclopedic**\
 `This word has appeared in 72 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/14/learning/word-of-the-day-encyclopedic.html
-
-**After Juan Soto homers 3 times, Aaron Judge praises 'the greatest hitter in the game'**\
-`After a missed opportunity in his first at-bat, Soto practiced his swing. He wasn't going to miss again.`\
-https://nytimes.com/athletic/5699888/2024/08/14/yankees-win-juan-soto-3-homers/
 
