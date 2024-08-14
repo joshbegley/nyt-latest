@@ -1,3 +1,7 @@
+**Fabio Carvalho to Brentford: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Fabio Carvalho's move to Brentford.`\
+https://nytimes.com/athletic/5696550/2024/08/14/fabio-carvalho-to-brentford-the-athletic-500-transfer-ratings/
+
 **Lamar Jackson's chemistry with TE Isaiah Likely continues to grow**\
 `Plus, Kyle Hamilton looked good as he returned to practice and Ar’Darius Washington feels like a lock to make the 53-man roster.`\
 https://nytimes.com/athletic/5699477/2024/08/14/ravens-lamar-jackson-isaiah-likely/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/13/opinion/thepoint/democrats-civil-war-anthems
 **How Extreme Heat Is Threatening Education Progress Worldwide**\
 `Children today face many more extreme weather hazards that can undermine global gains in education.`\
 https://nytimes.com/2024/08/14/climate/extreme-heat-floods-education-schools.html
-
-**Sex and Murder on Trial: ‘Presumed Innocent’**\
-`Two critics on the legal thriller that just won’t die.`\
-https://nytimes.com/2024/08/14/podcasts/sex-and-murder-on-trial-presumed-innocent.html
 
