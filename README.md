@@ -1,3 +1,11 @@
+**Why J.J. McCarthy's knee injury might not be the worst thing for him or the Vikings**\
+`Any injury is a setback, but there is an argument to be made that this could benefit the young quarterback and his team going forward.`\
+https://nytimes.com/athletic/5699340/2024/08/13/jj-mccarthy-vikings-knee-injury/
+
+**Nearly 40 Years Later, a California Serial Killer Confesses to Another Murder**\
+`William Lester Suff, 70, was already on death row for a dozen murders in Southern California. Now, he has confessed to killing a 19-year-old woman, shutting a 1986 cold case, officials said.`\
+https://nytimes.com/2024/08/13/us/riverside-prostitute-killer-william-suff.html
+
 **Chargers training camp, Day 16: Donald Parham Jr. flashes but remains in roster battle**\
 `Parham delivered some big plays in Tuesday's practice, but his inconsistency as a blocker still has him on the roster bubble.`\
 https://nytimes.com/athletic/5699730/2024/08/13/chargers-training-camp-donald-parham/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/13/us/westfield-trucking-owner-guilty-crash.html
 **Texas Sues G.M. Over Collection and Selling of Driver Data**\
 `The lawsuit accuses the automaker of tricking drivers into sharing detailed driving records that were then sold to insurance companies.`\
 https://nytimes.com/2024/08/13/business/gm-texas-lawsuit.html
-
-**U.S. Said to Consider a Breakup of Google to Address Search Monopoly**\
-`The Justice Department and state attorneys general are discussing various scenarios to remedy Google’s dominance in online search, including a breakup of the company.`\
-https://nytimes.com/2024/08/13/technology/google-monopoly-antitrust-justice-department.html
-
-**Alvarez breaks Rays' jumbotron with batting practice home run**\
-`Alvarez previously broke a jumbotron with a home run during batting practice at Minute Maid Park in 2019.`\
-https://nytimes.com/athletic/5699480/2024/08/13/yordan-alvarez-rays-jumbotron-home-run/
 
