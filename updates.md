@@ -1,3 +1,15 @@
+**A.I. Could Ruin Kids’ Critical-Thinking Skills**\
+`Many students lean on the technology rather than wrestle with challenging tasks.`\
+https://nytimes.com/2024/08/14/opinion/ai-schools-teachers-students.html
+
+**His Trilogy Explored the Nazi Era. Now He Looks at the People Behind It.**\
+`In “Hitler’s People,” the renowned historian Richard J. Evans takes a biographical approach to the Third Reich.`\
+https://nytimes.com/2024/08/14/books/review/richard-j-evans-hitlers-people.html
+
+**Can I Tell My Sister That Her Estranged Son Is a New Father?**\
+`A reader is unsure whether to insert herself into three years of icy silence by sharing a major development in her nephew’s life with his mother.`\
+https://nytimes.com/2024/08/14/style/can-i-tell-my-sister-that-her-estranged-son-is-a-new-father.html
+
 **What we've learned about Penn State this preseason: Are the explosive plays improving?**\
 `Penn State's offense is the biggest storyline entering the season for the Nittany Lions. And it needs to improve from last year.`\
 https://nytimes.com/athletic/5700445/2024/08/14/penn-state-college-football-offense-andy-kotelnicki/
