@@ -1,3 +1,7 @@
+**As Phillies continue to spiral, lineup changes could be near**\
+`The Phillies have lost 16 of 23 games since the All-Star break. They have been a .500 team for almost two months. `\
+https://nytimes.com/athletic/5699885/2024/08/13/phillies-lose-marlins-lineup-changes-possible/
+
 **Ilhan Omar, a Vocal Critic of Israel and ‘Squad’ Member, Wins Her Primary**\
 `Two other House Democrats who are part of the left-wing “squad” lost primary contests this summer after an influx of spending by pro-Israel groups.`\
 https://nytimes.com/2024/08/13/us/politics/ilhan-omar-minnesota-primary.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/13/us/riverside-prostitute-killer-william-suff.html
 **Chargers training camp, Day 16: Donald Parham Jr. flashes but remains in roster battle**\
 `Parham delivered some big plays in Tuesday's practice, but his inconsistency as a blocker still has him on the roster bubble.`\
 https://nytimes.com/athletic/5699730/2024/08/13/chargers-training-camp-donald-parham/
-
-**Deadly Landslides in India Made Worse by Climate Change, Study Finds**\
-`Extreme rainfall made 10 percent heavier by human-caused climate change triggered landslides that killed hundreds, according to a new study.`\
-https://nytimes.com/2024/08/13/climate/landslides-climate-change.html
 
