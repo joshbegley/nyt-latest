@@ -1,3 +1,7 @@
+**Wide receiver advanced stats that matter for fantasy football 2024, and the players who excel at them**\
+`John Laghezza drills down into the advanced metrics to mine the best WR targets for fantasy football 2024, including the Bucs' Chris Godwin.`\
+https://nytimes.com/athletic/5691927/2024/08/14/wide-receiver-advanced-stats-that-fantasy-football-2024-chris-godwin-ceedee-lamb/
+
 **Thailand’s Royal Spell Has Been Broken**\
 `Thailand faces a collision between an electorate that wants change and a king who won’t let go. Something’s got to give.`\
 https://nytimes.com/2024/08/14/opinion/thailand-royalists-king-democracy.html
