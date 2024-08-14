@@ -1,3 +1,7 @@
+**The best up-and-coming women's tennis players to watch in 2024 and beyond**\
+`Which WTA tennis players are poised to become the 'next gen' for the women's game?`\
+https://nytimes.com/athletic/5684092/2024/08/14/womens-tennis-wta-next-generation-shnaider-fruhvirtova-eala/
+
 **Villa working on deal to sign Colombian defender Mosquera**\
 `Aston Villa are working on a deal to sign 19-year-old defender Yeimar Mosquera from Colombian club Orsomarso SC.`\
 https://nytimes.com/athletic/5699123/2024/08/14/aston-villa-yeimar-mosquera-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/14/learning/word-of-the-day-encyclopedic.html
 **After Juan Soto homers 3 times, Aaron Judge praises 'the greatest hitter in the game'**\
 `After a missed opportunity in his first at-bat, Soto practiced his swing. He wasn't going to miss again.`\
 https://nytimes.com/athletic/5699888/2024/08/14/yankees-win-juan-soto-3-homers/
-
-**Late Night Recaps Musk’s and Trump’s Two-Hour Chat on X**\
-`Stephen Colbert called it “a big night for weird old rich guys with no friends.”`\
-https://nytimes.com/2024/08/14/arts/television/late-night-trump-musk.html
 

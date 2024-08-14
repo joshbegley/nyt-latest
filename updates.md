@@ -1,3 +1,7 @@
+**The best up-and-coming women's tennis players to watch in 2024 and beyond**\
+`Which WTA tennis players are poised to become the 'next gen' for the women's game?`\
+https://nytimes.com/athletic/5684092/2024/08/14/womens-tennis-wta-next-generation-shnaider-fruhvirtova-eala/
+
 **Villa working on deal to sign Colombian defender Mosquera**\
 `Aston Villa are working on a deal to sign 19-year-old defender Yeimar Mosquera from Colombian club Orsomarso SC.`\
 https://nytimes.com/athletic/5699123/2024/08/14/aston-villa-yeimar-mosquera-transfer/
