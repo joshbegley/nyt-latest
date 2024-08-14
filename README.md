@@ -1,3 +1,7 @@
+**Wally Amos, Creator of Famous Amos Cookies, Dies at 88**\
+`With a background in marketing, his aunt’s recipe and a winning personality, he built one of the world’s best-known brands of baked goods.`\
+https://nytimes.com/2024/08/14/business/wally-amos-dead.html
+
 **Vikings rookie J.J. McCarthy out for season after successful surgery**\
 `McCarthy underwent testing related to knee soreness after he reported the injury Monday afternoon.`\
 https://nytimes.com/athletic/5701150/2024/08/14/jj-mccarthy-knee-injury-out-season-vikings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5701133/2024/08/14/emile-smith-rowe-marco-silva/
 **W.H.O. Declares Global Emergency Over New Mpox Outbreak**\
 `The epidemic is concentrated in the Democratic Republic of Congo, but the virus has now appeared in a dozen other African countries.`\
 https://nytimes.com/2024/08/14/health/mpox-who-emergency-africa.html
-
-**How Many Ways Can You Eat a Cucumber? Just Ask ‘Cucumber Guy.’**\
-`“Sometimes you need to eat an entire cucumber,” the TikTok star Logan Moffitt says of the summer’s most riffable recipe.`\
-https://nytimes.com/2024/08/14/dining/tiktok-cucumber-guy-logan-moffitt.html
 
