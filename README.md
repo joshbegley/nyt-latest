@@ -1,4 +1,16 @@
-**Hulk Hogan, Jesse Ventura and a Complicated Subplot to the 2024 Race**\
+**Rabbi Shmuel Butman, 81, a Brooklyn Voice of Ultra-Orthodox Jews, Is Dead**\
+`He was the public face of the Chabad-Lubavitch sect during the Crown Heights riots in 1991 and for decades lit its giant menorah in Manhattan every Hanukkah.`\
+https://nytimes.com/2024/08/14/nyregion/rabbi-shmuel-butman-dead.html
+
+**Cisco Systems to Cut About 7% of Staff in Second Round of Layoffs**\
+`The cuts could amount to about 6,000 jobs for the San Jose, Calif., maker of computer networking technology.`\
+https://nytimes.com/2024/08/14/technology/cisco-layoffs.html
+
+**Matthew Stafford exits productive Rams practice vs. Cowboys with tight hamstring**\
+`Stafford remained on the sideline after leaving practice and Jimmy Garoppolo and Stetson Bennett took the rest of the reps at QB.`\
+https://nytimes.com/athletic/5701556/2024/08/14/rams-matthew-stafford-hamstring-tightness-practice/
+
+**A Hulk Hogan-Jesse Ventura Grudge Match, in the Political Arena**\
 `Hogan supports Donald J. Trump. Mr. Ventura is backing Kamala Harris. But their beef is more complicated than that.`\
 https://nytimes.com/2024/08/14/us/politics/jesse-ventura-tim-walz-kamala-harris.html
 
@@ -25,17 +37,4 @@ https://nytimes.com/athletic/5701497/2024/08/14/nascar-austin-dillon-penalty-rig
 **Can a Disney+ Subscription Keep a Widower From Suing Disney in Court?**\
 `Jeffrey Piccolo sued after his wife died from an allergic reaction to food served at a Disney resort restaurant. Disney wants the case handled by an arbitrator.`\
 https://nytimes.com/2024/08/14/nyregion/disney-wrongful-death-lawsuit-arbitration.html
-
-**Inflation Fell Below 3% for the First Time in Years**\
-`Also, U.S. officials say Israel’s military has achieved all it can in Gaza. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2024/08/14/briefing/inflation-report-us-assessment-gaza-war.html
-
-**Chicago Red Stars' stadium clash is solved - but it exposes the hurdles faced by NWSL**\
-`Chicago Red Stars faced having to travel to Kansas City to play a home match. Here's why...
-`\
-https://nytimes.com/athletic/5701218/2024/08/14/chicago-red-stars-seatgeek-stadium-clash-resolved/
-
-**CAS: Gymnastics officials let down Chiles, other athletes**\
-`The International Gymnastics Federation did not flag whether Chiles' inquiry was placed after the one-minute window in real time.`\
-https://nytimes.com/athletic/5701621/2024/08/14/jordan-chiles-olympic-gymnastics-court-ruling/
 
