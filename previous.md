@@ -1,3 +1,15 @@
+**Harris Shouldn’t Forget That Democracy Is Still on the Ballot**\
+`And there are still voters who care about it.`\
+https://nytimes.com/live/2024/08/13/opinion/thepoint/harris-democracy-ballot
+
+**Readers’ Pleas to The Times: Don’t End the New York Endorsements**\
+`Readers disagree with The Times’s decision to end endorsements in New York races. Also: Trump-speak; the human touch in restaurants; student phone bans.`\
+https://nytimes.com/2024/08/14/opinion/new-york-times-endorsements.html
+
+**Shaqiri, Fire agree to mutual termination of midfielder's contract**\
+`Xherdan Shaqiri and the Chicago Fire have mutually agreed to terminate the Switzerland international’s contract.`\
+https://nytimes.com/athletic/5701018/2024/08/14/xherdan-shaqiri-fire-transfer-exit/
+
 **Trump Gambles on Outside Groups to Finance Voter Outreach Efforts**\
 `New federal rules allow political candidates to coordinate their efforts to canvass for votes with outside groups like super PACs.`\
 https://nytimes.com/2024/08/14/us/politics/trump-voter-outreach-super-pacs.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/08/14/business/cpi-inflation-fed/cooling-inflation
 **French prosecutors investigate harassment of Khelif**\
 `Algerian boxer and gold medalist Imane Khelif's time at the Olympics was overshadowed by a torrent of negative attention on social media.`\
 https://nytimes.com/athletic/5700622/2024/08/14/imane-khelif-investigation-harassment-olympics/
-
-**Harris Is Leading or Tied With Trump in Most Swing States, New Cook Polls Find**\
-`The results are a marked change from the same surveys in May that showed former President Donald J. Trump leading by a solid margin or tied in the critical battlegrounds.`\
-https://nytimes.com/2024/08/14/us/politics/harris-trump-polls.html
-
-**My Aunt’s Son Shouldn’t Be a Dad. Must I Congratulate Her on the New Grandkid?**\
-`The magazine’s Ethicist columnist on the etiquette associated with offering congratulations.`\
-https://nytimes.com/2024/08/14/magazine/aunt-baby-congratulations-ethics.html
-
-**Hurricane Ernesto Knocks Out Power to Hundreds of Thousands in Puerto Rico**\
-`The island’s frail electrical system struggled as the storm passed on Wednesday.`\
-https://nytimes.com/2024/08/14/us/puerto-rico-power-hurricane-ernesto.html
 

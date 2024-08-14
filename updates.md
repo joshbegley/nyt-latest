@@ -1,3 +1,15 @@
+**Harris Shouldn’t Forget That Democracy Is Still on the Ballot**\
+`And there are still voters who care about it.`\
+https://nytimes.com/live/2024/08/13/opinion/thepoint/harris-democracy-ballot
+
+**Readers’ Pleas to The Times: Don’t End the New York Endorsements**\
+`Readers disagree with The Times’s decision to end endorsements in New York races. Also: Trump-speak; the human touch in restaurants; student phone bans.`\
+https://nytimes.com/2024/08/14/opinion/new-york-times-endorsements.html
+
+**Shaqiri, Fire agree to mutual termination of midfielder's contract**\
+`Xherdan Shaqiri and the Chicago Fire have mutually agreed to terminate the Switzerland international’s contract.`\
+https://nytimes.com/athletic/5701018/2024/08/14/xherdan-shaqiri-fire-transfer-exit/
+
 **Trump Gambles on Outside Groups to Finance Voter Outreach Efforts**\
 `New federal rules allow political candidates to coordinate their efforts to canvass for votes with outside groups like super PACs.`\
 https://nytimes.com/2024/08/14/us/politics/trump-voter-outreach-super-pacs.html
