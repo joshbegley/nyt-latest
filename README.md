@@ -1,3 +1,7 @@
+**Patriots hoping for more from offense in Week 2 preseason game vs. Eagles**\
+`Rookie QB Drake Maye is expected to play more in the Patriots' second preseason game than he did in the first. So can the offense improve?`\
+https://nytimes.com/athletic/5700822/2024/08/14/patriots-eagles-preseason-drake-maye/
+
 **Rams, Cowboys get into scuffle during drills**\
 `The Rams didn't like one of their staff members being shoved during their joint practice with the Cowboys.`\
 https://nytimes.com/athletic/5701376/2024/08/14/rams-cowboys-practice-scuffle/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/14/us/korbein-schultz-army-guilty-conspiracy.html
 **Red Bull Salzburg agree fee with Liverpool for Clark**\
 `Liverpool have agreed a fee of around £10million with Red Bull Salzburg for the sale of midfielder Bobby Clark.`\
 https://nytimes.com/athletic/5701355/2024/08/14/bobby-clark-salzburg-liverpool-transfer/
-
-**A New Venue Beckons Jazz Musicians and Beyond to Upstate New York**\
-`The Mill, an arts center with art galleries and a performance space in an old flour mill, opened over the weekend. Its owners hope it sparks a “ripple effect.”`\
-https://nytimes.com/2024/08/14/arts/music/the-mill-venue-westport-new-york.html
 
