@@ -1,3 +1,11 @@
+**Russia Moves Some Troops From Ukraine to Fight Incursion, Kyiv and U.S. Say**\
+`Ukraine hopes that such a move will relieve pressure on frontline units. But Moscow appears reluctant to withdraw troops from eastern Ukraine, where it has been steadily advancing.`\
+https://nytimes.com/2024/08/14/world/europe/russia-ukraine-kursk-incursion-troops.html
+
+**Celtics sale, a massive payroll and memories from Banner 18: Offseason mailbag, Part 2**\
+`Jared Weiss answers your offseason questions about the future of the Celtics' expensive roster, the impact of the upcoming sale, and more.`\
+https://nytimes.com/athletic/5699469/2024/08/14/celtics-sale-payroll-offseason-mailbag/
+
 **Jets rookie report: Braelon Allen shines, two UDFAs might stick around**\
 `How the Jets' first-year players stack up heading into the second game of the preseason`\
 https://nytimes.com/athletic/5699015/2024/08/14/new-york-jets-2024-rookie-report-training-camp-preseason-braelon-allen/

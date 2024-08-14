@@ -1,3 +1,11 @@
+**Russia Moves Some Troops From Ukraine to Fight Incursion, Kyiv and U.S. Say**\
+`Ukraine hopes that such a move will relieve pressure on frontline units. But Moscow appears reluctant to withdraw troops from eastern Ukraine, where it has been steadily advancing.`\
+https://nytimes.com/2024/08/14/world/europe/russia-ukraine-kursk-incursion-troops.html
+
+**Celtics sale, a massive payroll and memories from Banner 18: Offseason mailbag, Part 2**\
+`Jared Weiss answers your offseason questions about the future of the Celtics' expensive roster, the impact of the upcoming sale, and more.`\
+https://nytimes.com/athletic/5699469/2024/08/14/celtics-sale-payroll-offseason-mailbag/
+
 **Jets rookie report: Braelon Allen shines, two UDFAs might stick around**\
 `How the Jets' first-year players stack up heading into the second game of the preseason`\
 https://nytimes.com/athletic/5699015/2024/08/14/new-york-jets-2024-rookie-report-training-camp-preseason-braelon-allen/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/14/podcasts/abortion-arizona-hamas-peace-talks.html
 **An expert's take on Wild prospects, from Zeev Buium to Riley Heidt to Charlie Stramel**\
 `The Athletic's Scott Wheeler broke down what Wild fans can expect from some of the club's top prospects. `\
 https://nytimes.com/athletic/5697331/2024/08/14/wild-prospects-buium-heidt-stramel/
-
-**NBA’s best offseason moves by team: From Warriors to Jazz, Nos. 20-11**\
-`The second in our three-part series examining every team's offseason transactions and how they set up the franchise for next season.`\
-https://nytimes.com/athletic/5639294/2024/08/14/nba-offseason-rankings-2024-warriors-timberwolves-bucks-bulls/
-
-**The Connections Companion No. 431**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 15, 2024.`\
-https://nytimes.com/2024/08/14/crosswords/connections-companion-431.html
 
