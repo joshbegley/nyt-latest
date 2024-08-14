@@ -1,3 +1,7 @@
+**Fabio Carvalho to Brentford: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500, we analyse and rate Fabio Carvalho's move to Brentford.`\
+https://nytimes.com/athletic/5696550/2024/08/14/fabio-carvalho-to-brentford-the-athletic-500-transfer-ratings/
+
 **Lamar Jackson's chemistry with TE Isaiah Likely continues to grow**\
 `Plus, Kyle Hamilton looked good as he returned to practice and Ar’Darius Washington feels like a lock to make the 53-man roster.`\
 https://nytimes.com/athletic/5699477/2024/08/14/ravens-lamar-jackson-isaiah-likely/
