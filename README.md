@@ -1,3 +1,7 @@
+**Deshaun Watson, Sam Darnold and other players to watch at Browns-Vikings joint practices**\
+`Browns writer Zac Jackson and Vikings writer Alec Lewis trade emails about key storylines, players to watch and developing roster battles.`\
+https://nytimes.com/athletic/5698915/2024/08/14/browns-vikings-joint-practice/
+
 **How many defensive linemen can the Falcons keep, and who are all these guys?**\
 `The Falcons have 14 defensive linemen on the 90-man roster. No more than nine will make the final cut. Let's break it down.`\
 https://nytimes.com/athletic/5696399/2024/08/14/atlanta-falcons-defensive-linemen-roster/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/14/world/africa/sudan-civil-war-ceasefire-talks-gene
 **Inflation Data Is the Next Hurdle for Investors Weary From Volatility**\
 `A sharper-than-expected rise or fall in the Consumer Price Index could intensify worries on Wall Street about the economy’s prospects.`\
 https://nytimes.com/2024/08/14/business/inflation-stock-market.html
-
-**Nebraska football: 3 objectives the Huskers must focus on as preseason winds down**\
-`Nebraska will open the 2024 season on Aug. 31 against UTEP, but the Huskers still have some work to do to prepare.`\
-https://nytimes.com/athletic/5699033/2024/08/14/nebraska-college-football-matt-rhule/
 
