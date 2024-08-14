@@ -1,3 +1,19 @@
+**Rabbi Shmuel Butman, 81, a Brooklyn Voice of Ultra-Orthodox Jews, Is Dead**\
+`He was the public face of the Chabad-Lubavitch sect during the Crown Heights riots in 1991 and for decades lit its giant menorah in Manhattan every Hanukkah.`\
+https://nytimes.com/2024/08/14/nyregion/rabbi-shmuel-butman-dead.html
+
+**Cisco Systems to Cut About 7% of Staff in Second Round of Layoffs**\
+`The cuts could amount to about 6,000 jobs for the San Jose, Calif., maker of computer networking technology.`\
+https://nytimes.com/2024/08/14/technology/cisco-layoffs.html
+
+**Matthew Stafford exits productive Rams practice vs. Cowboys with tight hamstring**\
+`Stafford remained on the sideline after leaving practice and Jimmy Garoppolo and Stetson Bennett took the rest of the reps at QB.`\
+https://nytimes.com/athletic/5701556/2024/08/14/rams-matthew-stafford-hamstring-tightness-practice/
+
+**A Hulk Hogan-Jesse Ventura Grudge Match, in the Political Arena**\
+`Hogan supports Donald J. Trump. Mr. Ventura is backing Kamala Harris. But their beef is more complicated than that.`\
+https://nytimes.com/2024/08/14/us/politics/jesse-ventura-tim-walz-kamala-harris.html
+
 **Chicago Red Stars' stadium clash is solved - but it exposes the hurdles faced by NWSL**\
 `Chicago Red Stars faced having to travel to Kansas City to play a home match. Here's why...
 `\
