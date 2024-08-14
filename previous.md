@@ -1,3 +1,15 @@
+**Why Taylor Fritz's electronic line call nightmare shows need for common sense in tennis**\
+`Electronic line calling is supposed to eliminate human error — but it doesn't always work`\
+https://nytimes.com/athletic/5700156/2024/08/14/taylor-fritz-cincinnati-electronic-line-calling-umpire-allensworth/
+
+**Arsenal in talks to sign Merino from Real Sociedad**\
+`Arsenal have stepped up their efforts to sign Real Sociedad&#8217;s 28-year-old Spanish international Mikel Merino.`\
+https://nytimes.com/athletic/5651694/2024/08/14/arsenal-mikel-merino-transfer/
+
+**Szczesny agrees Juve mutual contract termination**\
+`Juventus have agreed to mutually terminate the contract of goalkeeper Wojciech Szczesny.`\
+https://nytimes.com/athletic/5700167/2024/08/14/wojciech-szczesny-juventus-exit/
+
 **'Fake' test results leaked after Polish anti-doping agency targeted by cyber attack**\
 `The Polish anti-doping agency (POLADA) said on Wednesday that it was the victim of a cyber attack that led to false details of positive tests from a number of athletes being leaked.`\
 https://nytimes.com/athletic/5700428/2024/08/14/polish-anti-doping-cyber-attack/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5700482/2024/08/14/daley-blind-netherlands-retires/
 **Deaths at the Grand Canyon Are on the Rise. Here’s How to Stay Safe.**\
 `There have been 11 deaths at Grand Canyon National Park so far this year. We asked hiking experts to share their best recommendations to avoid danger.`\
 https://nytimes.com/2024/08/14/us/grand-canyon-park-deaths.html
-
-**Food price increases remained relatively unchanged in July.**\
-`By Madeleine Ngo`\
-https://nytimes.com/live/2024/08/14/business/cpi-inflation-fed/food-price-increases-remained-relatively-unchanged-in-july
-
-**A.I. Could Ruin Kids’ Critical-Thinking Skills**\
-`Many students lean on the technology rather than wrestle with challenging tasks.`\
-https://nytimes.com/2024/08/14/opinion/ai-schools-teachers-students.html
-
-**His Trilogy Explored the Nazi Era. Now He Looks at the People Behind It.**\
-`In “Hitler’s People,” the renowned historian Richard J. Evans takes a biographical approach to the Third Reich.`\
-https://nytimes.com/2024/08/14/books/review/richard-j-evans-hitlers-people.html
 

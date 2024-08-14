@@ -1,3 +1,15 @@
+**Why Taylor Fritz's electronic line call nightmare shows need for common sense in tennis**\
+`Electronic line calling is supposed to eliminate human error — but it doesn't always work`\
+https://nytimes.com/athletic/5700156/2024/08/14/taylor-fritz-cincinnati-electronic-line-calling-umpire-allensworth/
+
+**Arsenal in talks to sign Merino from Real Sociedad**\
+`Arsenal have stepped up their efforts to sign Real Sociedad&#8217;s 28-year-old Spanish international Mikel Merino.`\
+https://nytimes.com/athletic/5651694/2024/08/14/arsenal-mikel-merino-transfer/
+
+**Szczesny agrees Juve mutual contract termination**\
+`Juventus have agreed to mutually terminate the contract of goalkeeper Wojciech Szczesny.`\
+https://nytimes.com/athletic/5700167/2024/08/14/wojciech-szczesny-juventus-exit/
+
 **'Fake' test results leaked after Polish anti-doping agency targeted by cyber attack**\
 `The Polish anti-doping agency (POLADA) said on Wednesday that it was the victim of a cyber attack that led to false details of positive tests from a number of athletes being leaked.`\
 https://nytimes.com/athletic/5700428/2024/08/14/polish-anti-doping-cyber-attack/
