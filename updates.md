@@ -1,3 +1,7 @@
+**Peach Cobbler, 2 Ways: Spectacularly Simple and Simply Spectacular**\
+`An easy buttermilk skillet version and an upside-down take from Melissa Clark showcase the stone fruit’s versatility.`\
+https://nytimes.com/2024/08/14/dining/peach-cobbler.html
+
 **Bronx Museum’s Executive Director Leaves During $33 Million Expansion**\
 `Klaudio Rodriguez will become the executive director and chief executive of the Museum of Fine Arts in St. Petersburg, Fla.`\
 https://nytimes.com/2024/08/14/arts/design/bronx-museum-klaudio-rodriguez.html
