@@ -1,3 +1,11 @@
+**Madrid's Camavinga suffers knee ligament sprain injury**\
+`Real Madrid midfielder Eduardo Camavinga is set to miss up to seven weeks after suffering a ligament sprain in his left knee.`\
+https://nytimes.com/athletic/5700193/2024/08/14/eduardo-camavinga-injury-real-madrid/
+
+**Makers of Snickers and Pringles to Merge in $36 Billion Food Deal**\
+`Mars is acquiring Kellanova in one of the largest deals in the food industry in years, creating a new global giant with a stable of well-known brands.`\
+https://nytimes.com/2024/08/14/business/dealbook/mars-kellanova-deal-pringles-cheezit.html
+
 **The Pulse: Wait, *who* has the best record in baseball?**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5699754/2024/08/14/cleveland-guardians-mlb-best-record-the-pulse/
