@@ -1,3 +1,7 @@
+**5 Things This Bulgari Designer Wishes She’d Made**\
+`Why Mary Katrantzou admires Audubon’s illustrations, an Issey Miyake bodice and the rainbow flag.`\
+https://nytimes.com/interactive/2024/08/14/t-magazine/fashion/mary-katrantzou-bulgari.html
+
 **Why Taylor Fritz's electronic line call nightmare shows need for common sense in tennis**\
 `Electronic line calling is supposed to eliminate human error — but it doesn't always work`\
 https://nytimes.com/athletic/5700156/2024/08/14/taylor-fritz-cincinnati-electronic-line-calling-umpire-allensworth/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/14/world/europe/nord-stream-explosion-germany-ukrain
 **Netherlands defender Daley Blind retires from international football**\
 `Netherlands defender Daley Blind has confirmed his retirement from international football.`\
 https://nytimes.com/athletic/5700482/2024/08/14/daley-blind-netherlands-retires/
-
-**Deaths at the Grand Canyon Are on the Rise. Here’s How to Stay Safe.**\
-`There have been 11 deaths at Grand Canyon National Park so far this year. We asked hiking experts to share their best recommendations to avoid danger.`\
-https://nytimes.com/2024/08/14/us/grand-canyon-park-deaths.html
 
