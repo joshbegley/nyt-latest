@@ -1,3 +1,7 @@
+**What we've learned about Penn State this preseason: Are the explosive plays improving?**\
+`Penn State's offense is the biggest storyline entering the season for the Nittany Lions. And it needs to improve from last year.`\
+https://nytimes.com/athletic/5700445/2024/08/14/penn-state-college-football-offense-andy-kotelnicki/
+
 **Liverpool exploring Mamardashvili deal**\
 `Liverpool are exploring a deal to sign Valencia goalkeeper Giorgi Mamardashvili.`\
 https://nytimes.com/athletic/5690035/2024/08/14/giorgi-mamardashvili-liverpool-transfer-valencia/
