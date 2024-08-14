@@ -1,3 +1,15 @@
+**How Many Ways Can You Eat a Cucumber? Just Ask ‘Cucumber Guy.’**\
+`“Sometimes you need to eat an entire cucumber,” the TikTok star Logan Moffitt says in the summer’s most riffable recipe.`\
+https://nytimes.com/2024/08/14/dining/tiktok-cucumber-guy-logan-moffitt.html
+
+**Contaminants Found at German Military Base, and Sabotage Is Suspected**\
+`The discovery led to the temporary lockdown of the base while the water supply was tested. NATO officials also reported that an intruder tried to forcibly enter one of the alliance’s bases in the country.`\
+https://nytimes.com/2024/08/14/world/europe/germany-military-bases-contaminants-nato.html
+
+**What’s in Our Queue? ‘BoJack Horseman’ and More**\
+`I’m a food columnist for The New York Times Magazine. Here are five things I’ve recently relished.`\
+https://nytimes.com/interactive/2024/08/14/arts/editors-recommendations-bojack.html
+
 **Ravens TE Andrews OK after car crash Wednesday**\
 `The three-time Pro Bowler will not practice Wednesday, but he had already been scheduled for a non-practice day`\
 https://nytimes.com/athletic/5701064/2024/08/14/ravens-mark-andrews-car-accident/
