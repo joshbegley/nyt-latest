@@ -1,3 +1,7 @@
+**The Briefing: Sheff Utd 4 Wrexham 2 - How did new signings fare and was there bad blood?**\
+`The big talking points from Tuesday's Carabao Cup first round tie at Bramall Lane`\
+https://nytimes.com/athletic/5686681/2024/08/14/wrexham-sheffield-united-result-analysis/
+
 **Wide receiver advanced stats that matter for fantasy football 2024, and the players who excel at them**\
 `John Laghezza drills down into the advanced metrics to mine the best WR targets for fantasy football 2024, including the Bucs' Chris Godwin.`\
 https://nytimes.com/athletic/5691927/2024/08/14/wide-receiver-advanced-stats-that-fantasy-football-2024-chris-godwin-ceedee-lamb/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5695631/2024/08/14/tottenham-season-preview-2024-25
 **Newcastle United season preview: Tonali's back, Howe's stayed, progress needed**\
 `What to expect from Newcastle United in the 2024-25 season...`\
 https://nytimes.com/athletic/5688816/2024/08/14/newcastle-united-season-preview-tonalis-back-howes-stayed-progress-needed/
-
-**Wolves' season preview: Strand Larsen fills No 9 void, but the defence looks light**\
-`What to expect from Wolves in 2024-25 as they prepare for Saturday's opener away to Arsenal...`\
-https://nytimes.com/athletic/5660960/2024/08/14/wolves-season-preview-strand-larsen-fills-no-9-void-but-defence-looking-light/
 
