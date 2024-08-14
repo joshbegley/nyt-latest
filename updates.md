@@ -1,3 +1,7 @@
+**Scoop City: Injury updates for Jahmyr Gibbs, J.J. McCarthy and other s**\
+`Latest on Alvin Kamara, J.J. McCarthy, DeAndre Hopkins and other injured players to watch.`\
+https://nytimes.com/athletic/5700840/2024/08/14/nfl-injury-updates-scoop-city-aug/
+
 **Easing Inflation Has Democrats Tasting Victory**\
 `Soaring prices have been a political albatross for the Biden administration.`\
 https://nytimes.com/2024/08/14/business/inflation-biden-harris-democrats.html
