@@ -1,3 +1,7 @@
+**‘I’m Looking for a Job’: Biden Jokes About Life After the White House**\
+`With a jovial serenity, the president has more publicly embraced the idea of retirement as he heads into his final months in office.`\
+https://nytimes.com/2024/08/14/us/politics/biden-retirement.html
+
 **Rabbi Shmuel Butman, 81, a Brooklyn Voice of Ultra-Orthodox Jews, Is Dead**\
 `He was the public face of the Chabad-Lubavitch sect during the Crown Heights riots in 1991 and for decades lit its giant menorah in Manhattan every Hanukkah.`\
 https://nytimes.com/2024/08/14/nyregion/rabbi-shmuel-butman-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5701448/2024/08/14/packers-camp-receivers-defensive
 **Gluck: Thankfully, NASCAR got Austin Dillon decision right**\
 `Dillon's Richmond win still counts, but it won't count toward the NASCAR playoffs, and that's the right decision.`\
 https://nytimes.com/athletic/5701497/2024/08/14/nascar-austin-dillon-penalty-right-decision/
-
-**Can a Disney+ Subscription Keep a Widower From Suing Disney in Court?**\
-`Jeffrey Piccolo sued after his wife died from an allergic reaction to food served at a Disney resort restaurant. Disney wants the case handled by an arbitrator.`\
-https://nytimes.com/2024/08/14/nyregion/disney-wrongful-death-lawsuit-arbitration.html
 

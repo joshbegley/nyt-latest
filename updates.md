@@ -1,3 +1,7 @@
+**‘I’m Looking for a Job’: Biden Jokes About Life After the White House**\
+`With a jovial serenity, the president has more publicly embraced the idea of retirement as he heads into his final months in office.`\
+https://nytimes.com/2024/08/14/us/politics/biden-retirement.html
+
 **Rabbi Shmuel Butman, 81, a Brooklyn Voice of Ultra-Orthodox Jews, Is Dead**\
 `He was the public face of the Chabad-Lubavitch sect during the Crown Heights riots in 1991 and for decades lit its giant menorah in Manhattan every Hanukkah.`\
 https://nytimes.com/2024/08/14/nyregion/rabbi-shmuel-butman-dead.html
