@@ -1,3 +1,11 @@
+**Word of the Day: encyclopedic**\
+`This word has appeared in 72 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/14/learning/word-of-the-day-encyclopedic.html
+
+**After Juan Soto homers 3 times, Aaron Judge praises 'the greatest hitter in the game'**\
+`After a missed opportunity in his first at-bat, Soto practiced his swing. He wasn't going to miss again.`\
+https://nytimes.com/athletic/5699888/2024/08/14/yankees-win-juan-soto-3-homers/
+
 **Late Night Recaps Musk’s and Trump’s Two-Hour Chat on X**\
 `Stephen Colbert called it “a big night for weird old rich guys with no friends.”`\
 https://nytimes.com/2024/08/14/arts/television/late-night-trump-musk.html

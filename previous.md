@@ -1,3 +1,11 @@
+**Word of the Day: encyclopedic**\
+`This word has appeared in 72 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/14/learning/word-of-the-day-encyclopedic.html
+
+**After Juan Soto homers 3 times, Aaron Judge praises 'the greatest hitter in the game'**\
+`After a missed opportunity in his first at-bat, Soto practiced his swing. He wasn't going to miss again.`\
+https://nytimes.com/athletic/5699888/2024/08/14/yankees-win-juan-soto-3-homers/
+
 **Late Night Recaps Musk’s and Trump’s Two-Hour Chat on X**\
 `Stephen Colbert called it “a big night for weird old rich guys with no friends.”`\
 https://nytimes.com/2024/08/14/arts/television/late-night-trump-musk.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5699989/2024/08/14/dodgers-injuries-mlb-playoffs/
 **Why Chelsea are set to begin the new season without a shirt sponsor**\
 `Are the London club in talks over a potential late deal? Will they be able to secure a partner once the campaign has started?`\
 https://nytimes.com/athletic/5698622/2024/08/14/why-chelsea-are-set-to-begin-the-new-season-without-a-shirt-sponsor/
-
-**George Springer ejected after video review says he wasn't hit by pitch**\
-`Springer went 0-for-2 in Tuesday's game, tallying one run and one walk.`\
-https://nytimes.com/athletic/5699998/2024/08/14/blue-jays-george-springer-ejection/
-
-**Kompany vs Gudmundsson - what did it reveal about Bayern Munich's new head coach?**\
-`Dissecting a controversial clip of Bayern Munich's new coach from his time at Burnley`\
-https://nytimes.com/athletic/5698705/2024/08/14/kompany-gudmundsson-clip-bayern-burnley/
 
