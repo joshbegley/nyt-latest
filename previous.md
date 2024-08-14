@@ -1,3 +1,7 @@
+**My Aunt’s Son Shouldn’t Be a Dad. Must I Congratulate Her on the New Grandkid?**\
+`The magazine’s Ethicist columnist on the etiquette associated with offering congratulations.`\
+https://nytimes.com/2024/08/14/magazine/aunt-baby-congratulations-ethics.html
+
 **Hurricane Ernesto Knocks Out Power to Hundreds of Thousands in Puerto Rico**\
 `The island’s frail electrical system struggled as the storm passed on Wednesday.`\
 https://nytimes.com/2024/08/14/us/puerto-rico-power-hurricane-ernesto.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/14/arts/design/paula-modersohn-becker-art-neue-galer
 **Yes, You Can Run a Marathon**\
 `Preparing to run 26.2 miles can be daunting. Here’s how to structure four months of training.`\
 https://nytimes.com/2024/08/14/well/move/marathon-training-tips.html
-
-**Browns, LB Jeremiah Owusu-Koramoah agree to 3-year extension**\
-`The 2021 second-round pick finished last season with 101 tackles, 3 1/2 sacks and two interceptions. `\
-https://nytimes.com/athletic/5700789/2024/08/14/browns-jeremiah-owusu-koramoah-contract-extension/
 

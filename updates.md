@@ -1,3 +1,7 @@
+**My Aunt’s Son Shouldn’t Be a Dad. Must I Congratulate Her on the New Grandkid?**\
+`The magazine’s Ethicist columnist on the etiquette associated with offering congratulations.`\
+https://nytimes.com/2024/08/14/magazine/aunt-baby-congratulations-ethics.html
+
 **Hurricane Ernesto Knocks Out Power to Hundreds of Thousands in Puerto Rico**\
 `The island’s frail electrical system struggled as the storm passed on Wednesday.`\
 https://nytimes.com/2024/08/14/us/puerto-rico-power-hurricane-ernesto.html
