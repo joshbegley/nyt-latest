@@ -1,3 +1,7 @@
+**This Enormous Artwork Turns a Palace Into a Pawnshop**\
+`Christoph Büchel’s vast installation in Venice is compelling, obsessive and sometimes hilarious.`\
+https://nytimes.com/2024/08/14/arts/design/christoph-buechel-venice.html
+
 **5 Things This Bulgari Designer Wishes She’d Made**\
 `Why Mary Katrantzou admires Audubon’s illustrations, an Issey Miyake bodice and the rainbow flag.`\
 https://nytimes.com/interactive/2024/08/14/t-magazine/fashion/mary-katrantzou-bulgari.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5698310/2024/08/14/oilers-offer-sheets-blues-brober
 **Germany Issues Arrest Warrant for Ukrainian Over Nord Stream Explosion**\
 `The sabotage of the pipelines that carried Russian gas to Europe has become one of the central mysteries of the war in Ukraine.`\
 https://nytimes.com/2024/08/14/world/europe/nord-stream-explosion-germany-ukraine-arrest-warrant.html
-
-**Netherlands defender Daley Blind retires from international football**\
-`Netherlands defender Daley Blind has confirmed his retirement from international football.`\
-https://nytimes.com/athletic/5700482/2024/08/14/daley-blind-netherlands-retires/
 
