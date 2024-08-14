@@ -1,3 +1,11 @@
+**Lamar Jackson's chemistry with TE Isaiah Likely continues to grow**\
+`Plus, Kyle Hamilton looked good as he returned to practice and Ar’Darius Washington feels like a lock to make the 53-man roster.`\
+https://nytimes.com/athletic/5699477/2024/08/14/ravens-lamar-jackson-isaiah-likely/
+
+**Rookie QB Grades: Caleb Williams, J.J. McCarthy impress in preseason debuts**\
+`Our longtime NFL quarterback hands out grades for the six first-round rookie quarterbacks`\
+https://nytimes.com/athletic/5698336/2024/08/14/preseason-rookie-qb-grades-film-study-caleb-williams-jj-mccarthy/
+
 **Kerry Carpenter returns to the Tigers with a bang, jolting a lineup that sorely missed him**\
 `Carpenter hit two home runs in his first game back after a 78-day stint on the injured list. `\
 https://nytimes.com/athletic/5699869/2024/08/14/tigers-kerry-carpenter-injury-return-two-homers/
