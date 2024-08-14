@@ -1,9 +1,13 @@
+**Liverpool exploring Mamardashvili deal**\
+`Liverpool are exploring a deal to sign Valencia goalkeeper Giorgi Mamardashvili.`\
+https://nytimes.com/athletic/5690035/2024/08/14/giorgi-mamardashvili-liverpool-transfer-valencia/
+
 **Barcelona's new coaching setup under Hansi Flick - including Thiago latest**\
 `As Barca prepare for their La Liga season-opener at Valencia, these are the new faces in Hansi Flick's staff`\
 https://nytimes.com/athletic/5700326/2024/08/14/barcelona-hansi-flick-thiago-coaching-staff/
 
 **Judge Denies Trump’s Third Request to Remove Him From Criminal Case**\
-`Justice Juan M. Merchan, who oversaw the trial that led to Donald J. Trump’s conviction on 34 felony counts, dismissed the request as “nothing more than a repetition of stale and unsubstantiated claims.”`\
+`Justice Juan M. Merchan, who oversaw the trial that led to Donald J. Trump’s conviction on 34 felony counts, rebuked Mr. Trump’s lawyers for claiming the judge had ties to Kamala Harris that posed a conflict.`\
 https://nytimes.com/2024/08/14/nyregion/trump-trial-merchan-recusal.html
 
 **Cubs’ Dansby Swanson on wife Mallory’s gold medal, baseball at Olympics and more**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/14/us/politics/kamala-harris-economy-north-carolina.
 **Almiron's proposed transfer to Charlotte FC collapses**\
 `Miguel Almiron&#8217;s proposed transfer to Charlotte FC has fallen through.`\
 https://nytimes.com/athletic/5696641/2024/08/14/miguel-almiron-charlotte-newcastle/
-
-**Five storylines to watch during the remainder of the Blue Jays season**\
-`Vladimir Guerrero Jr.'s hitting, young players auditioning for 2025: There are still reasons to watch the Blue Jays this year.`\
-https://nytimes.com/athletic/5699997/2024/08/14/blue-jays-storylines-to-watch/
 

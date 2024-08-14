@@ -1,3 +1,11 @@
+**Liverpool exploring Mamardashvili deal**\
+`Liverpool are exploring a deal to sign Valencia goalkeeper Giorgi Mamardashvili.`\
+https://nytimes.com/athletic/5690035/2024/08/14/giorgi-mamardashvili-liverpool-transfer-valencia/
+
+**Judge Denies Trump’s Third Request to Remove Him From Criminal Case**\
+`Justice Juan M. Merchan, who oversaw the trial that led to Donald J. Trump’s conviction on 34 felony counts, rebuked Mr. Trump’s lawyers for claiming the judge had ties to Kamala Harris that posed a conflict.`\
+https://nytimes.com/2024/08/14/nyregion/trump-trial-merchan-recusal.html
+
 **Barcelona's new coaching setup under Hansi Flick - including Thiago latest**\
 `As Barca prepare for their La Liga season-opener at Valencia, these are the new faces in Hansi Flick's staff`\
 https://nytimes.com/athletic/5700326/2024/08/14/barcelona-hansi-flick-thiago-coaching-staff/
