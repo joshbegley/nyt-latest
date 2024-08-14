@@ -1,3 +1,7 @@
+**Five storylines to watch during the remainder of the Blue Jays season**\
+`Vladimir Guerrero Jr.'s hitting, young players auditioning for 2025: There are still reasons to watch the Blue Jays this year.`\
+https://nytimes.com/athletic/5699997/2024/08/14/blue-jays-storylines-to-watch/
+
 **Madrid's Camavinga suffers knee ligament sprain injury**\
 `Real Madrid midfielder Eduardo Camavinga is set to miss up to seven weeks after suffering a ligament sprain in his left knee.`\
 https://nytimes.com/athletic/5700193/2024/08/14/eduardo-camavinga-injury-real-madrid/
