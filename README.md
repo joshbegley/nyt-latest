@@ -1,3 +1,7 @@
+**Austin Dillon's Richmond win won't count toward NASCAR playoff eligibility**\
+`Dillon's controversial Richmond win is the fifth in his career, but NASCAR ruled on Wednesday that it won't count toward the playoffs.`\
+https://nytimes.com/athletic/5701329/2024/08/14/austin-dillon-penalty-richmond-nascar/
+
 **Patriots hoping for more from offense in Week 2 preseason game vs. Eagles**\
 `Rookie QB Drake Maye is expected to play more in the Patriots' second preseason game than he did in the first. So can the offense improve?`\
 https://nytimes.com/athletic/5700822/2024/08/14/patriots-eagles-preseason-drake-maye/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/14/us/glynn-simmons-settlement-edmond.html
 **U.S. Army Soldier Pleads Guilty to Selling Military Documents**\
 `Prosecutors said that Sgt. Korbein Schultz had access to top secret information, which he exchanged for payments totaling $42,000.`\
 https://nytimes.com/2024/08/14/us/korbein-schultz-army-guilty-conspiracy.html
-
-**Red Bull Salzburg agree fee with Liverpool for Clark**\
-`Liverpool have agreed a fee of around £10million with Red Bull Salzburg for the sale of midfielder Bobby Clark.`\
-https://nytimes.com/athletic/5701355/2024/08/14/bobby-clark-salzburg-liverpool-transfer/
 
