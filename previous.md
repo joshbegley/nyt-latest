@@ -1,3 +1,7 @@
+**New Zealand Charity Accidentally Gives Away Meth Disguised as Candy**\
+`Police were racing to recover the fake sweets, each of which contained up to 300 doses of methamphetamine. Three people sought medical attention.`\
+https://nytimes.com/2024/08/14/world/asia/meth-candy-new-zealand.html
+
 **Braves' Charlie Morton gets 2,000th K, Travis d'Arnaud comes through again in 10th inning**\
 `Morton, who might retire after this, his 17th season, had a career that didn't take off until he was well into his 30s.`\
 https://nytimes.com/athletic/5700120/2024/08/14/braves-charlie-morton-2000th-k/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/14/arts/television/late-night-trump-musk.html
 **Corrections: Aug. 14, 2024**\
 `Corrections that appeared in print on Wednesday, Aug. 14, 2024.`\
 https://nytimes.com/2024/08/14/pageoneplus/corrections-aug-14-2024.html
-
-**Quotation of the Day: Automated Restaurants Face Human Issues**\
-`Quotation of the Day for Wednesday, August 14, 2024.`\
-https://nytimes.com/2024/08/14/pageoneplus/quotation-of-the-day-automated-restaurants-face-human-issues.html
 

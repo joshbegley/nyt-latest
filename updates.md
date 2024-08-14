@@ -1,3 +1,7 @@
+**New Zealand Charity Accidentally Gives Away Meth Disguised as Candy**\
+`Police were racing to recover the fake sweets, each of which contained up to 300 doses of methamphetamine. Three people sought medical attention.`\
+https://nytimes.com/2024/08/14/world/asia/meth-candy-new-zealand.html
+
 **Braves' Charlie Morton gets 2,000th K, Travis d'Arnaud comes through again in 10th inning**\
 `Morton, who might retire after this, his 17th season, had a career that didn't take off until he was well into his 30s.`\
 https://nytimes.com/athletic/5700120/2024/08/14/braves-charlie-morton-2000th-k/
