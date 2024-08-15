@@ -1,3 +1,7 @@
+**Why did White Sox intentionally walk Juan Soto to face Aaron Judge? 'That was crazy'**\
+`It's not often Judge swings at a pitch 3-0 out of the zone, but he took the decision to intentionally walk Soto personally.`\
+https://nytimes.com/athletic/5702179/2024/08/15/juan-soto-aaron-judge-yankees-white-sox/
+
 **Seth Meyers Calls Trump ‘Desperate’ for Likes**\
 `Meyers said the former president’s return to X shows he yearns “for the spotlight and for some praise or positive coverage from anyone, anywhere.”`\
 https://nytimes.com/2024/08/15/arts/television/seth-meyers-trump-x-livestream.html
