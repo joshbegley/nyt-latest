@@ -1,9 +1,17 @@
+**Anthony Edwards and the Timberwolves have become box-office attractions**\
+`The Wolves will be featured on a bigger stage this year after one of the best seasons in franchise history.`\
+https://nytimes.com/athletic/5703477/2024/08/15/anthony-edwards-minnesota-timberwolves-nba-schedule/
+
+**Biden and Harris Made a Joint Appearance**\
+`Also, Ukraine said it had captured a Russian town. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/08/15/briefing/biden-harris-joint-appearance-ukraine-advance-russia.html
+
 **Coco Gauff loses in final tournament before US Open**\
 `Defending US Open champion Coco Gauff is out of the Cincinnati Open after losing to Kazakhstan&#8217;s Yulia Putintseva in three sets on Thursday.`\
 https://nytimes.com/athletic/5704009/2024/08/15/coco-gauff-cincinnati-putintseva-tennis/
 
 **Why 49ers’ quarterback Joshua Dobbs has a rugby routine before every practice**\
-`Dobbs, Brandon Allen and especially Brock Purdy looked sharp in the 49ers' longest and most intense practice if the week on Thursday.`\
+`Dobbs, Brandon Allen and especially Brock Purdy looked sharp in the 49ers' longest and most intense practice of the week Thursday.`\
 https://nytimes.com/athletic/5703939/2024/08/15/joshua-dobbs-49ers-rugby-practice/
 
 **Harris’s Debate Prep Is Underway at Howard University**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5698359/2024/08/15/nba-2024-2025-schedule-release-b
 **How Well Do You Know Your Disaster Movies?**\
 `From “Armageddon” to “The Towering Inferno,” a look back at decades of movie catastrophe.`\
 https://nytimes.com/interactive/2024/08/15/movies/disaster-movies.html
-
-**You’re Only as Smart as Your Emotions**\
-`We now understand that our emotions are often wise. The problem is that our culture and our institutions haven’t caught up with our knowledge.`\
-https://nytimes.com/2024/08/15/opinion/emotions-feelings-intelligence.html
-
-**As Harris and Biden Take a Victory Lap on Drug Costs, She Sets the Pace**\
-`At their first joint public appearance since the shake-up of the Democratic ticket, the two leaders traded warm words and showed how they hope to use his legacy to slingshot her to the White House.`\
-https://nytimes.com/2024/08/15/us/politics/harris-biden-drug-prices-medicare.html
 
