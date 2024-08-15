@@ -1,3 +1,7 @@
+**Columbia Remains Divided but Cautiously Optimistic as President Departs**\
+`The Columbia University president’s resignation leaves a campus divided, but some are optimistic for a fresh start.`\
+https://nytimes.com/2024/08/15/nyregion/columbia-university-shafik-resigns-students-faculty.html
+
 **Peter Marshall, Longtime Host of ‘The Hollywood Squares,’ Dies at 98**\
 `He played straight man to all manner of celebrities, asking questions on what was for many years the most popular game show on television.`\
 https://nytimes.com/2024/08/15/arts/television/peter-marshall-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5703337/2024/08/15/divin-mubama-manchester-city-tra
 **Leonard A. Leo**\
 `News about Leonard A. Leo. Commentary and archival information about Leonard A. Leo from The New York Times.`\
 https://nytimes.com/topic/leonard-a.-leo
-
-**Democrats Lean Into Liberty and the Language of Republicans**\
-`Kamala Harris and her allies are using traditionally right-leaning messaging to argue that Republicans threaten fundamental freedoms. “Mind your own damn business!” Tim Walz recently said.`\
-https://nytimes.com/2024/08/15/us/politics/harris-walz-democrats-language.html
 
