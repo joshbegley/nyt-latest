@@ -1,3 +1,11 @@
+**‘Red Island’ Review: Madagascar Is Shifting Beneath Their Feet**\
+`Robin Campillo relies on the power of suggestion to sketch life in this former French colony, filtering it obliquely through a young white boy’s eyes.`\
+https://nytimes.com/2024/08/15/movies/red-island-review.html
+
+**Real Madrid mailbag: Your questions answered before new La Liga season**\
+`Rodrygo's future, Mbappe settling in, reinforcement options at the back and more as your questions are answered`\
+https://nytimes.com/athletic/5702433/2024/08/15/real-madrid-new-season-your-questions-answered/
+
 **Amid Heightened Security, Taylor Swift Prepares to Return to the Stage**\
 `Fans gathering at Wembley Stadium in London said they trusted British security officials to keep them safe.`\
 https://nytimes.com/2024/08/15/arts/music/taylor-swift-london-eras-tour-security.html

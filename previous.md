@@ -1,3 +1,11 @@
+**‘Red Island’ Review: Madagascar Is Shifting Beneath Their Feet**\
+`Robin Campillo relies on the power of suggestion to sketch life in this former French colony, filtering it obliquely through a young white boy’s eyes.`\
+https://nytimes.com/2024/08/15/movies/red-island-review.html
+
+**Real Madrid mailbag: Your questions answered before new La Liga season**\
+`Rodrygo's future, Mbappe settling in, reinforcement options at the back and more as your questions are answered`\
+https://nytimes.com/athletic/5702433/2024/08/15/real-madrid-new-season-your-questions-answered/
+
 **Amid Heightened Security, Taylor Swift Prepares to Return to the Stage**\
 `Fans gathering at Wembley Stadium in London said they trusted British security officials to keep them safe.`\
 https://nytimes.com/2024/08/15/arts/music/taylor-swift-london-eras-tour-security.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5684308/2024/08/15/warriors-steph-curry-future-rost
 **Liverpool season preview: No signings, Salah's (possible) swansong... but Slot looks ready**\
 `Can new coach Slot fill Klopp's shoes? Who could be their 2024-25 breakthrough star? And who is in the best XI?`\
 https://nytimes.com/athletic/5700826/2024/08/15/liverpool-premier-league-season-preview/
-
-**Tim Walz and JD Vance Agree to Vice-Presidential Debate**\
-`The running mates of the presidential candidates will face off on CBS on Oct. 1.`\
-https://nytimes.com/2024/08/15/us/politics/walz-vance-vp-debate-cbs.html
-
-**John Textor granted exclusivity in Everton takeover talks**\
-`American businessman John Textor has entered a period of exclusivity to pursue the purchase of Farhad Moshiri’s majority stake in Everton.`\
-https://nytimes.com/athletic/5579334/2024/08/15/everton-takeover-textor-exclusivity/
 
