@@ -1,3 +1,31 @@
+**Sydney Lemmon Puts the Twisted Humanity Behind Tech on Broadway**\
+`After a small part in “Succession,” the actor has a breakout role in “Job,” in which she plays a content moderator having a mental breakdown.`\
+https://nytimes.com/2024/08/15/theater/sydney-lemmon-job-broadway.html
+
+**Man Utd's Snapdragon shirt sponsor deal extended by two years**\
+`Manchester United sponsor Qualcomm has triggered its two-year extension option on its front-of-shirt deal with the Premier League club.`\
+https://nytimes.com/athletic/5702630/2024/08/15/manchester-united-snapdragon-qualcomm-shirt-sponsor/
+
+**This Classic Corn Chowder Is Quite Resourceful**\
+`Save the cobs to form the base of your broth, and use what you’ve got — swap coconut milk for the cream, maybe, or rice for the potato.`\
+https://nytimes.com/2024/08/15/dining/this-classic-corn-chowder-is-quite-resourceful.html
+
+**For the Man Who Plays Lafayette, It’s a Marquis Event**\
+`America’s favorite fighting Frenchman arrived for a farewell tour in 1824. A yearlong commemoration kicks off this week, and the country’s pre-eminent “Lafayette” is ready.`\
+https://nytimes.com/2024/08/15/arts/lafayatte-marquis-american-revolution.html
+
+**Beware the Toxic and Explosive Blue Backpack This Termite Carries**\
+`Scientists studied the unusual chemical reaction used by a species of the insect in an act of self-sacrifice to save nests from invaders.`\
+https://nytimes.com/2024/08/15/science/exploding-termites-toxins.html
+
+**From Here to Eternity, a Choreographer Sinks Into the Sea**\
+`Faye Driscoll uses the ocean as her collaborator in a sunset dance celebrating the 10th anniversary of Beach Sessions.`\
+https://nytimes.com/2024/08/15/arts/dance/beach-sessions-rockaway-faye-driscoll.html
+
+**On Anniversary of Taliban Takeover, Glee, Mourning and an Embrace of Jihad**\
+`Celebrations marking the third year since the U.S. withdrawal are amplifying a divide in Afghanistan over what principles it should be governed by.`\
+https://nytimes.com/2024/08/15/world/asia/afghanistan-taliban-anniversary.html
+
 **‘Red Island’ Review: Madagascar Is Shifting Beneath Their Feet**\
 `Robin Campillo relies on the power of suggestion to sketch life in this former French colony, filtering it obliquely through a young white boy’s eyes.`\
 https://nytimes.com/2024/08/15/movies/red-island-review.html
