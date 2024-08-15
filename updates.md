@@ -1,3 +1,7 @@
+**Typhoon Ampil Approaches Japan, Disrupting Flights and Trains**\
+`The powerful storm is expected to bring heavy rain, strong winds and the threat of floods and landslides to eastern Japan, including Tokyo, on Friday.`\
+https://nytimes.com/2024/08/15/world/asia/typhoon-ampil-japan.html
+
 **At a Festival Amid Industrial Ruins, Ivo van Hove Takes Charge**\
 `For the Belgian director’s first edition as leader of the Ruhrtriennale, abandoned sites are “the starting point and the end point,” he says.`\
 https://nytimes.com/2024/08/15/theater/ivo-van-hove-ruhrtriennale.html
