@@ -1,3 +1,7 @@
+**Popcast (Deluxe): A Word With Action Bronson**\
+`The rapper and gourmand answers our rapid-fire questionnaire covering the music of his childhood, how he manages stress and his go-to bodega order.`\
+https://nytimes.com/2024/08/15/arts/music/popcast-action-bronson-interview.html
+
 **Anthony Edwards and the Timberwolves have become box-office attractions**\
 `The Wolves will be featured on a bigger stage this year after one of the best seasons in franchise history.`\
 https://nytimes.com/athletic/5703477/2024/08/15/anthony-edwards-minnesota-timberwolves-nba-schedule/
