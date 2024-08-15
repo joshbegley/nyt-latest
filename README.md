@@ -1,3 +1,7 @@
+**Fantasy football IDP league insights: Draft strategy; plus, sleepers and busts**\
+`Gary Davenport offers up advice for IDP leaguers, including draft strategy, and his top picks for sleepers and busts on the defensive side.`\
+https://nytimes.com/athletic/5701508/2024/08/15/idp-fantasy-football-2024-strategy-sleepers-busts/
+
 **Astros finish road trip on 8-game winning streak with sweep of Rays**\
 `Eight consecutive victories have Houston 2 1/2 games up in a division they've long dominated.`\
 https://nytimes.com/athletic/5702173/2024/08/15/astros-winning-streak-sweep-rays/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5698840/2024/08/15/ramon-sosa-nottingham-forest/
 **Aston Villa season preview: Anticipating Maatsen, Philogene returns, but light in central defence**\
 `What to expect from Villa as 2024-25 begins, bringing with it a return to the big-boy table of European football at last`\
 https://nytimes.com/athletic/5630928/2024/08/15/aston-villa-season-preview-2024-25/
-
-**How hopeful are the fans of all 20 Premier League clubs feeling about their 2024-25 chances?**\
-`The eve of the season is a time for hope. There is plenty at Nottingham Forest, oddly, but at Leicester and Chelsea it's a different story`\
-https://nytimes.com/athletic/5700203/2024/08/15/premier-league-hope-survey-fans/
 
