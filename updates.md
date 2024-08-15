@@ -1,3 +1,7 @@
+**Harbaugh offered Kaepernick coaching job with Chargers**\
+`Harbaugh coached Kaepernick from 2011 to 2014 when he played for the San Francisco 49ers.`\
+https://nytimes.com/athletic/5701754/2024/08/14/harbaugh-kaepernick-chargers-coach/
+
 **Columbia President Resigns After Months of Turmoil**\
 `Nemat Shafik is the third Ivy League president to resign in the wake of protests connected to the Israel-Hamas war.`\
 https://nytimes.com/2024/08/14/us/columbia-president-nemat-shafik-resigns.html
