@@ -1,3 +1,7 @@
+**Yankees' Judge hits his 300th career home run**\
+`Judge reached the milestone in the fewest number of games and at-bats than any other player in MLB history. `\
+https://nytimes.com/athletic/5696441/2024/08/14/yankees-aaron-judge-300-home-runs/
+
 **Where Lines May Be Drawn in the Sand**\
 `Damon Gulczynski wants to make sure you’re paying attention.`\
 https://nytimes.com/2024/08/14/crosswords/daily-puzzle-2024-08-15.html
