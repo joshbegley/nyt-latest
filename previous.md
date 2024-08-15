@@ -1,3 +1,31 @@
+**Who’s Up Next in Japan? Here Are 5 Potential Leaders.**\
+`Japan’s Liberal Democratic Party is searching for a successor to Prime Minister Fumio Kishida. But is it willing to change to appease a dissatisfied public?`\
+https://nytimes.com/2024/08/15/world/asia/japan-prime-minister-candidates.html
+
+**Kylian Mbappe's Real Madrid debut was everything he'd dreamed of**\
+`The Spanish club's new star striker scored in a 2-0 victory over Atalanta to win the UEFA Super Cup`\
+https://nytimes.com/athletic/5702265/2024/08/15/kylian-mbappe-real-madrid-debut-super-cup/
+
+**Float Planned for N.Y.C. India Day Parade Is Condemned as Anti-Muslim**\
+`The float, slated for inclusion in Sunday’s parade, depicts a Hindu temple in India that was built on the site of a mosque torn down by religious extremists.`\
+https://nytimes.com/2024/08/15/nyregion/india-day-parade-ram-temple.html
+
+**He Survived Combat in Iraq. Did a Fellow Soldier Kill Him at Home?**\
+`Jacob Ashton and Riley Birbilas, U.S. Army specialists, deployed to Iraq together. Now Specialist Birbilas is accused of killing the other soldier at Fort Drum in upstate New York.`\
+https://nytimes.com/2024/08/15/nyregion/fort-drum-jacob-ashton-murder.html
+
+**F1’s Jessica Hawkins sees motorsports milestones ahead for women, LGBTQ+ inclusivity**\
+`Hawkins is not only an advocate for girls and women within the sport but a leading voice when it comes to LGBTQ+ inclusivity.`\
+https://nytimes.com/athletic/5650259/2024/08/15/jessica-hawkins-f1-motorsports-women-lgbtq/
+
+**In South Korea, Documenting a Divide Over Work-Life Balance**\
+`The reporter Jin Yu Young wrote about companies that have pushed their managers to work longer hours, a move that has not gone over well with some young people in the country.`\
+https://nytimes.com/2024/08/15/insider/south-korea-labor.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/15/crosswords/spelling-bee-forum.html
+
 **Michael Harris II's grand slam in first at-bat off the IL sparks Braves in rout of Giants**\
 `Harris' grand slam was the Braves' third this season and second in five days.`\
 https://nytimes.com/athletic/5702258/2024/08/15/michael-harris-ii-grand-slam-giants/
@@ -6,35 +34,7 @@ https://nytimes.com/athletic/5702258/2024/08/15/michael-harris-ii-grand-slam-gia
 `After ending last year in a recession, Britain’s economy has so far bounced back this year.`\
 https://nytimes.com/2024/08/15/business/uk-economy-inflation-jobs.html
 
-**Mauricio Pochettino agrees to deal for USMNT head-coaching job**\
+**Mauricio Pochettino agrees USMNT head-coaching job**\
 `Pochettino has never managed a national team, but the former Tottenham and Chelsea coach has had plenty of success at club level.`\
 https://nytimes.com/athletic/5702243/2024/08/15/mauricio-pochettino-usmnt-head-coach/
-
-**Seth Meyers Calls Trump ‘Desperate’ for Likes**\
-`Meyers said the former president’s return to X shows he yearns “for the spotlight and for some praise or positive coverage from anyone, anywhere.”`\
-https://nytimes.com/2024/08/15/arts/television/seth-meyers-trump-x-livestream.html
-
-**Word of the Day: boycott**\
-`This word has appeared in 308 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/08/15/learning/word-of-the-day-boycott.html
-
-**Why did White Sox intentionally walk Juan Soto to face Aaron Judge? Inside the surprising call**\
-`It's not often Judge swings at a pitch 3-0 out of the zone, but he took the decision to intentionally walk Soto personally.`\
-https://nytimes.com/athletic/5702179/2024/08/15/juan-soto-aaron-judge-yankees-white-sox/
-
-**Walker Buehler returns to Dodgers with familiar problems: 'Got to get the production'**\
-`The Dodgers will be patient with Buehler. But how patient?`\
-https://nytimes.com/athletic/5702178/2024/08/15/walker-buehler-returns-dodgers/
-
-**Fantasy football IDP league insights: Draft strategy; plus, sleepers and busts**\
-`Gary Davenport offers up advice for IDP leaguers, including draft strategy, and his top picks for sleepers and busts on the defensive side.`\
-https://nytimes.com/athletic/5701508/2024/08/15/idp-fantasy-football-2024-strategy-sleepers-busts/
-
-**Astros finish road trip on 8-game winning streak with sweep of Rays**\
-`Eight consecutive victories have Houston 2 1/2 games up in a division it's long dominated.`\
-https://nytimes.com/athletic/5702173/2024/08/15/astros-winning-streak-sweep-rays/
-
-**Biden’s Middle East Playbook Won’t Stop a Wider War Forever**\
-`America’s plan for preventing a full-blown war in the Middle East is unraveling.`\
-https://nytimes.com/2024/08/15/opinion/iran-israel-middle-east-war.html
 
