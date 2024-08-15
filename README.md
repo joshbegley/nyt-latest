@@ -1,3 +1,23 @@
+**Wrigley Field to hold 4 Big Ten college hockey games after NHL Winter Classic**\
+`CHICAGO — The Big Ten Conference has held football games at Wrigley Field.`\
+https://nytimes.com/athletic/5703319/2024/08/15/wrigley-field-nhl-winter-classic-big-ten-hockey/
+
+**Glenn A. Youngkin**\
+`News about Glenn A. Youngkin. Commentary and archival information about Glenn A. Youngkin from The New York Times.`\
+https://nytimes.com/topic/glenn-a.-youngkin
+
+**Steven A Ballmer**\
+`News about Steven A Ballmer. Commentary and archival information about Steven A Ballmer from The New York Times.`\
+https://nytimes.com/topic/steven-a-ballmer
+
+**Lewis A Kaplan**\
+`News about Lewis A Kaplan. Commentary and archival information about Lewis A Kaplan from The New York Times.`\
+https://nytimes.com/topic/lewis-a-kaplan
+
+**Judge Orders Teenager to Be Handcuffed for Her ‘Attitude’ on Field Trip to Court**\
+`Judge Kenneth King of the 36th District Court in Detroit also ordered the 15-year-old girl to change into a jail uniform.`\
+https://nytimes.com/2024/08/15/us/detroit-judge-sleeping-teen.html
+
 **Harvard Names Conservative Legal Scholar as Permanent Provost**\
 `John F. Manning has served as interim provost since March, and he is a top contender for university president.`\
 https://nytimes.com/2024/08/15/us/harvard-provist-john-manning.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5703257/2024/08/15/matt-milano-injury-bills/
 **The Best Movies and TV Shows Coming to Netflix in August**\
 `This month sees the return of “Emily in Paris” and a superhero ensemble, along with a heartbreaking documentary about the daughters of imprisoned men.`\
 https://nytimes.com/2024/08/15/arts/television/netflix-new-tv-movies.html
-
-**Ohio State names Will Howard starting QB**\
-`Ohio State coach Ryan Day named Kansas State transfer Will Howard the Buckeyes' starting quarterback, beating out Devin Brown.`\
-https://nytimes.com/athletic/5702932/2024/08/15/will-howard-ohio-state-starting-quarterback/
-
-**As Cardinals drop below .500, their road to the playoffs is on the line**\
-`On the brink of fading, the Cardinals face the second-hardest remaining schedule in the NL to close out the regular season.`\
-https://nytimes.com/athletic/5702789/2024/08/15/cardinals-mlb-wild-card-race/
-
-**In Plain Sight, Republicans Are Still Trying to Undermine the Election**\
-`They want to do their own research.`\
-https://nytimes.com/live/2024/08/13/opinion/thepoint/georgia-republican-election-board
-
-**Seth Bloom, 49, Who Brought Laughter to the Rubble of War, Dies**\
-`A virtuoso of physical comedy, he performed around the world with his wife. Most notably, he helped stage clown shows in Afghanistan.`\
-https://nytimes.com/2024/08/15/arts/seth-bloom-dead.html
-
-**Nuno fined, given suspended ban for VAR criticism following Everton defeat**\
-`The Football Association (FA) has fined Nuno Espirito Santo £40,000 after he questioned the integrity of match officials following Nottingham Forest&#8217;s 2-0 defeat to Everton last season.`\
-https://nytimes.com/athletic/5703050/2024/08/15/nuno-espirito-santo-fine-forest-everton/
 
