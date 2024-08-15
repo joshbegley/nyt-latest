@@ -1,3 +1,7 @@
+**Five-star DE and Hawkeyes legacy Iose Epenesa commits to Iowa**\
+`The 6-foot-4, 250-pound Epenesa is rated No. 16 overall in the Class of 2025 by 247Sports.`\
+https://nytimes.com/athletic/5693391/2024/08/15/iose-epenesa-commits-iowa-football-recruiting/
+
 **Matt Milano out for the foreseeable future — now what?**\
 `The Bills might need to seek outside help if the current options don't pan out.`\
 https://nytimes.com/athletic/5704172/2024/08/15/buffalo-bills-matt-milano-injury-torn-bicep-recovery/

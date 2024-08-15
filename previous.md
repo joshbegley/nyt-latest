@@ -1,3 +1,7 @@
+**Five-star DE and Hawkeyes legacy Iose Epenesa commits to Iowa**\
+`The 6-foot-4, 250-pound Epenesa is rated No. 16 overall in the Class of 2025 by 247Sports.`\
+https://nytimes.com/athletic/5693391/2024/08/15/iose-epenesa-commits-iowa-football-recruiting/
+
 **Matt Milano out for the foreseeable future — now what?**\
 `The Bills might need to seek outside help if the current options don't pan out.`\
 https://nytimes.com/athletic/5704172/2024/08/15/buffalo-bills-matt-milano-injury-torn-bicep-recovery/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/15/style/emily-in-paris-returns-netflix.html
 **Why Harris’s Crowds Rattled Trump**\
 `The numbers game has long been important to former President Donald J. Trump. Now he is facing a political opponent whose rally turnouts can rival his. Shawn McCreesh, political reporter, explains why the size of Kamala Harris’s crowds has unnerved Mr. Trump.`\
 https://nytimes.com/video/us/elections/100000009626971/why-harriss-crowds-rattled-trump.html
-
-**Bucks schedule takeaways: When are key matchups against East's best?**\
-`One unusual aspect of Milwaukee's schedule next season: No game on Christmas.`\
-https://nytimes.com/athletic/5703338/2024/08/15/milwaukee-bucks-2024-nba-regular-season-schedule/
 
