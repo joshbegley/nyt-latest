@@ -1,3 +1,7 @@
+**Peter Marshall, Longtime Host of ‘The Hollywood Squares,’ Dies at 98**\
+`He played straight man to all manner of celebrities, asking questions on what was for many years the most popular game show on television.`\
+https://nytimes.com/2024/08/15/arts/television/peter-marshall-dead.html
+
 **Ed Sheeran buys minority stake in Ipswich Town**\
 `Singer-songwriter Ed Sheeran has bought a minority stake in Premier League side Ipswich Town.`\
 https://nytimes.com/athletic/5703557/2024/08/15/ed-sheeran-ipswich-town-owner-stake/
@@ -33,8 +37,4 @@ https://nytimes.com/topic/leonard-a.-leo
 **Democrats Lean Into Liberty and the Language of Republicans**\
 `Kamala Harris and her allies are using traditionally right-leaning messaging to argue that Republicans threaten fundamental freedoms. “Mind your own damn business!” Tim Walz recently said.`\
 https://nytimes.com/2024/08/15/us/politics/harris-walz-democrats-language.html
-
-**What to Know About the Latest Social Security Number Breach**\
-`Hackers may have gained access to the private information of millions of people from a background check company called National Public Data. Should you be worried? We have some advice.`\
-https://nytimes.com/2024/08/15/business/social-security-numbers-stolen-hack.html
 
