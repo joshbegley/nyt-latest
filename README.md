@@ -1,9 +1,13 @@
+**Rolling Padres keep pace with Diamondbacks while claiming, and proving, narrow focus**\
+`The past few weeks have revealed a team that is blending preparation, execution and good fortune to exceed all expectations, except its own.`\
+https://nytimes.com/athletic/5701108/2024/08/14/padres-success-post-all-star-break/
+
 **What to Know About the State of the Cease-Fire Talks**\
 `As tensions in the Middle East escalate, negotiators are set to meet in Qatar to try to reach an agreement to end the war in Gaza. President Biden said he was “not giving up” but that it was “getting harder” to remain optimistic.`\
 https://nytimes.com/2024/08/14/world/middleeast/israel-hamas-gaza-cease-fire-talks.html
 
-**Gena Rowlands, Actress Who Brought Raw Drama to Her Roles, Dies at 94**\
-`Known for playing on-the-verge characters, she twice earned Oscar nominations for her work in films directed by John Cassavetes, her husband.`\
+**Gena Rowlands, Actress Who Bought Raw Drama to Her Roles, Dies at 94**\
+`Known for playing on-the-verge characters, she was twice earned Oscar nominations for her work in films directed by John Cassavetes, her husband.`\
 https://nytimes.com/2024/08/14/movies/gena-rowlands-dead.html
 
 **For Remote Alaskan Communities, a Lifeline Comes From the Sky **\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5701828/2024/08/14/jj-mccarthy-vikings-injury-seaso
 **Jewish Man Charged With Hate Crimes in Attacks on Muslim Neighbor**\
 `Izak Kadosh faces more than 40 charges, including attempted murder and aggravated assault. Prosecutors said the attacks, in Brooklyn, went on for months.`\
 https://nytimes.com/2024/08/14/nyregion/brooklyn-hate-crimes.html
-
-**Harbaugh offered Kaepernick coaching job with Chargers**\
-`Harbaugh coached Kaepernick from 2011 to 2014 when he played for the San Francisco 49ers.`\
-https://nytimes.com/athletic/5701754/2024/08/14/harbaugh-kaepernick-chargers-coach/
 
