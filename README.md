@@ -1,3 +1,7 @@
+**At a Festival Amid Industrial Ruins, Ivo van Hove Takes Charge**\
+`For the Belgian director’s first edition as leader of the Ruhrtriennale, abandoned sites are “the starting point and the end point,” he says.`\
+https://nytimes.com/2024/08/15/theater/ivo-van-hove-ruhrtriennale.html
+
 **Who’s Up Next in Japan? Here Are 5 Potential Leaders.**\
 `Japan’s Liberal Democratic Party is searching for a successor to Prime Minister Fumio Kishida. But is it willing to change to appease a dissatisfied public?`\
 https://nytimes.com/2024/08/15/world/asia/japan-prime-minister-candidates.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5702258/2024/08/15/michael-harris-ii-grand-slam-gia
 **U.K. Economy Buoyed by Reports on Growth, Inflation and Jobs**\
 `After ending last year in a recession, Britain’s economy has so far bounced back this year.`\
 https://nytimes.com/2024/08/15/business/uk-economy-inflation-jobs.html
-
-**Mauricio Pochettino agrees USMNT head-coaching job**\
-`Pochettino has never managed a national team, but the former Tottenham and Chelsea coach has had plenty of success at club level.`\
-https://nytimes.com/athletic/5702243/2024/08/15/mauricio-pochettino-usmnt-head-coach/
 
