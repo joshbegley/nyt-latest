@@ -1,3 +1,7 @@
+**Gaza Cease-Fire Talks Resume, but Hopes Are Muted Amid Fears of Wider War**\
+`Negotiators met in Qatar for the latest round of negotiations on a deal that would end the fighting and perhaps reduce escalating regional tensions, but Hamas did not send representatives.`\
+https://nytimes.com/2024/08/15/world/middleeast/gaza-ceasefire-talks-resume.html
+
 **Popcast (Deluxe): A Word With Action Bronson**\
 `The rapper and gourmand answers our rapid-fire questionnaire covering the music of his childhood, how he manages stress and his go-to bodega order.`\
 https://nytimes.com/2024/08/15/arts/music/popcast-action-bronson-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5704000/2024/08/15/cameron-archer-southampton-aston
 **Ipswich agree deal to sign Blackburn's Szmodics**\
 `Ipswich Town have agreed a deal to sign Blackburn Rovers attacking midfielder Sammie Szmodics.`\
 https://nytimes.com/athletic/5702598/2024/08/15/sammie-szmodics-ipswich-blackburn/
-
-**NBA schedule release: 35 games I'm looking forward to in 2024-25**\
-`From conference finals rematches to Wemby's measuring-stick showdowns, here are the games to circle on next season's calendar.`\
-https://nytimes.com/athletic/5698359/2024/08/15/nba-2024-2025-schedule-release-best-games/
 
