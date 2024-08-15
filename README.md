@@ -1,3 +1,7 @@
+**Ohio State names Will Howard starting QB**\
+`Ohio State coach Ryan Day named Kansas State transfer Will Howard the Buckeyes' starting quarterback, beating out Devin Brown.`\
+https://nytimes.com/athletic/5702932/2024/08/15/will-howard-ohio-state-starting-quarterback/
+
 **As Cardinals drop below .500, their road to the playoffs is on the line**\
 `On the brink of fading, the Cardinals face the second-hardest remaining schedule in the NL to close out the regular season.`\
 https://nytimes.com/athletic/5702789/2024/08/15/cardinals-mlb-wild-card-race/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5702201/2024/08/15/alan-gustafson-nascar-crew-chief
 **Nugent-Bowman: Ken Holland deserves less blame for Broberg, Holloway offer sheets**\
 `Despite the mess the Oilers are in now, little of what has transpired this week with the team's two emerging talents is Holland's doing.`\
 https://nytimes.com/athletic/5702757/2024/08/15/oilers-offer-sheets-broberg-holloway-holland/
-
-**Medic’s Killing Fuels Protests and Walkouts in India**\
-`The death and apparent rape of a physician trainee reignited rage over violence against women and prompted nationwide protests by colleagues.`\
-https://nytimes.com/2024/08/15/world/asia/medics-killing-fuels-protests-and-walkouts-in-india.html
 
