@@ -1,3 +1,7 @@
+**Michael Harris II's grand slam in first at-bat off the IL sparks Braves in rout of Giants**\
+`Harris' grand slam was the Braves' third this season and second in five days.`\
+https://nytimes.com/athletic/5702258/2024/08/15/michael-harris-ii-grand-slam-giants/
+
 **U.K. Economy Buoyed by Reports on Growth, Inflation and Jobs**\
 `After ending last year in a recession, Britain’s economy has so far bounced back this year.`\
 https://nytimes.com/2024/08/15/business/uk-economy-inflation-jobs.html

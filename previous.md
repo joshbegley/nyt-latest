@@ -1,3 +1,7 @@
+**Michael Harris II's grand slam in first at-bat off the IL sparks Braves in rout of Giants**\
+`Harris' grand slam was the Braves' third this season and second in five days.`\
+https://nytimes.com/athletic/5702258/2024/08/15/michael-harris-ii-grand-slam-giants/
+
 **U.K. Economy Buoyed by Reports on Growth, Inflation and Jobs**\
 `After ending last year in a recession, Britain’s economy has so far bounced back this year.`\
 https://nytimes.com/2024/08/15/business/uk-economy-inflation-jobs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5702173/2024/08/15/astros-winning-streak-sweep-rays
 **Biden’s Middle East Playbook Won’t Stop a Wider War Forever**\
 `America’s plan for preventing a full-blown war in the Middle East is unraveling.`\
 https://nytimes.com/2024/08/15/opinion/iran-israel-middle-east-war.html
-
-**Postecoglou's second seasons - what history and the data tell us to expect**\
-`Postecoglou's first year at Tottenham felt like the club hitting the reset button. So what does his career suggest the second will be like?`\
-https://nytimes.com/athletic/5700206/2024/08/15/ange-postecoglou-second-season-tottenham/
 
