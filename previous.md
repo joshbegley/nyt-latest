@@ -1,3 +1,7 @@
+**Chargers training camp, Day 17: Tre'Mon Morris-Brash seizing opportunity**\
+`Chris Rumph II's injury could open a spot for Morris-Brash, who has flashed in recent camp practices and the first preseason game.`\
+https://nytimes.com/athletic/5701965/2024/08/14/chargers-training-camp-tremon-morris-brash/
+
 **Cowboys CB Trevon Diggs returns, makes a play and 'felt good' in joint practice**\
 `Trevon Diggs intercepted a pass and Micah Parsons dominated, but the red zone defense struggled and the offense had ball security issues.`\
 https://nytimes.com/athletic/5701639/2024/08/14/dallas-cowboys-joint-practice-trevon-diggs-rams/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/14/nyregion/anabel-figueroa-ct-primary-antisemitism.
 **Convicted Murderer Escapes From Custody in North Carolina**\
 `Hundreds of law enforcement officers were involved in the search for Ramone Alston, 30, who, the authorities say, bolted from a prison transport vehicle after being driven to a hospital.`\
 https://nytimes.com/2024/08/14/us/north-carolina-manhunt-prisoner-escape.html
-
-**It’s Instincts Over Strategy for Trump**\
-`The former president has struggled to settle on a message against Vice President Kamala Harris.`\
-https://nytimes.com/2024/08/14/us/politics/trump-harris-campaign.html
 
