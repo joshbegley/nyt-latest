@@ -2,7 +2,7 @@
 `A Jordanian citizen living in Orlando broke into an energy plant in Wedgefield, Fla., where he smashed equipment, causing about $700,000 in damage.`\
 https://nytimes.com/2024/08/15/us/politics/israel-florida-vandalism.html
 
-**Notre Dame suspends men's swimming team over internal gambling violations**\
+**Notre Dame suspends men's swimming team for at least 1 year**\
 `The school retained a law firm this summer to conduct an external review of the program upon learning of potential issues.`\
 https://nytimes.com/athletic/5703637/2024/08/15/notre-dame-swimming-gambling-suspension/
 
