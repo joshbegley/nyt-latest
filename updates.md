@@ -1,3 +1,7 @@
+**Gaza Cease-Fire Talks Resume, but Hopes Are Muted Amid Fears of Wider War**\
+`Negotiators met in Qatar for the latest round of negotiations on a deal that would end the fighting and perhaps reduce escalating regional tensions, but Hamas did not send representatives.`\
+https://nytimes.com/2024/08/15/world/middleeast/gaza-ceasefire-talks-resume.html
+
 **Popcast (Deluxe): A Word With Action Bronson**\
 `The rapper and gourmand answers our rapid-fire questionnaire covering the music of his childhood, how he manages stress and his go-to bodega order.`\
 https://nytimes.com/2024/08/15/arts/music/popcast-action-bronson-interview.html
