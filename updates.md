@@ -1,3 +1,11 @@
+**Seth Bloom, 49, Who Brought Laughter to the Rubble of War, Dies**\
+`A virtuoso of physical comedy, he performed around the world with his wife. He also helped stage clown shows in Afghanistan.`\
+https://nytimes.com/2024/08/15/arts/seth-bloom-dead.html
+
+**Nuno fined, given suspended ban for VAR criticism following Everton defeat**\
+`The Football Association (FA) has fined Nuno Espirito Santo £40,000 after he questioned the integrity of match officials following Nottingham Forest&#8217;s 2-0 defeat to Everton last season.`\
+https://nytimes.com/athletic/5703050/2024/08/15/nuno-espirito-santo-fine-forest-everton/
+
 **An Alternative to the Pap Smear is Here, No Speculum Required**\
 `Starting this fall, women will be able to use a simple swab to screen for cervical cancer. The method offers an alternative to a procedure that many dread — and promises to address disparities in who develops the disease.`\
 https://nytimes.com/2024/08/15/well/pap-smear-cervical-cancer-test-alternative.html
