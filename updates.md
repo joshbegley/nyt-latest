@@ -1,3 +1,7 @@
+**Blazers leaving local RSN highlights growing trend among NBA teams**\
+`NBA teams have slowly started to walk away from cable TV amid the uncertainty of regional sports networks in recent years.`\
+https://nytimes.com/athletic/5701918/2024/08/14/trail-blazers-tv-partner-nba/
+
 **Columbia President Resigns After Months of Turmoil on Campus**\
 `Nemat Shafik is the third university president to resign in the wake of strife connected to the Israel-Hamas war. She will take a job in the British government.`\
 https://nytimes.com/2024/08/14/us/columbia-president-nemat-shafik-resigns.html
