@@ -6,8 +6,8 @@ https://nytimes.com/athletic/5701108/2024/08/14/padres-success-post-all-star-bre
 `As tensions in the Middle East escalate, negotiators are set to meet in Qatar to try to reach an agreement to end the war in Gaza. President Biden said he was “not giving up” but that it was “getting harder” to remain optimistic.`\
 https://nytimes.com/2024/08/14/world/middleeast/israel-hamas-gaza-cease-fire-talks.html
 
-**Gena Rowlands, Actress Who Bought Raw Drama to Her Roles, Dies at 94**\
-`Known for playing on-the-verge characters, she was twice earned Oscar nominations for her work in films directed by John Cassavetes, her husband.`\
+**Gena Rowlands, Actress Who Brought Raw Drama to Her Roles, Dies at 94**\
+`Known for playing on-the-verge characters, she twice earned Oscar nominations for her work in films directed by John Cassavetes, her husband.`\
 https://nytimes.com/2024/08/14/movies/gena-rowlands-dead.html
 
 **For Remote Alaskan Communities, a Lifeline Comes From the Sky **\
@@ -34,7 +34,7 @@ https://nytimes.com/athletic/5701918/2024/08/14/trail-blazers-tv-partner-nba/
 `It's a similar refrain for Vikings fans after Wednesday's news on their rookie quarterback: You just hope it’s not one of those years.`\
 https://nytimes.com/athletic/5701828/2024/08/14/jj-mccarthy-vikings-injury-season/
 
-**Jewish Man Charged With Hate Crimes in Attacks on Muslim Neighbor**\
-`Izak Kadosh faces more than 40 charges, including attempted murder and aggravated assault. Prosecutors said the attacks, in Brooklyn, went on for months.`\
+**Jewish Man Charged With Attempted Murder in Attacks on Muslim Neighbor**\
+`Izak Kadosh faces more than 40 charges, many of them hate crimes, including attempted murder and aggravated assault. Prosecutors said the attacks, in Brooklyn, went on for months.`\
 https://nytimes.com/2024/08/14/nyregion/brooklyn-hate-crimes.html
 

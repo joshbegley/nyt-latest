@@ -1,3 +1,11 @@
+**Gena Rowlands, Actress Who Brought Raw Drama to Her Roles, Dies at 94**\
+`Known for playing on-the-verge characters, she twice earned Oscar nominations for her work in films directed by John Cassavetes, her husband.`\
+https://nytimes.com/2024/08/14/movies/gena-rowlands-dead.html
+
+**Jewish Man Charged With Attempted Murder in Attacks on Muslim Neighbor**\
+`Izak Kadosh faces more than 40 charges, many of them hate crimes, including attempted murder and aggravated assault. Prosecutors said the attacks, in Brooklyn, went on for months.`\
+https://nytimes.com/2024/08/14/nyregion/brooklyn-hate-crimes.html
+
 **Rolling Padres keep pace with Diamondbacks while claiming, and proving, narrow focus**\
 `The past few weeks have revealed a team that is blending preparation, execution and good fortune to exceed all expectations, except its own.`\
 https://nytimes.com/athletic/5701108/2024/08/14/padres-success-post-all-star-break/
