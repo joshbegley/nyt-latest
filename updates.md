@@ -1,4 +1,8 @@
 **Here is a timeline of the cease-fire talks.**\
+`As tensions in the Middle East escalate, negotiators are set to meet in Qatar to try to reach an agreement to end the war in Gaza.`\
+https://nytimes.com/2024/08/14/world/middleeast/israel-hamas-gaza-cease-fire-talks.html
+
+**Here is a timeline of the cease-fire talks.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/08/14/world/israel-iran-hamas-gaza-war/israel-hamas-gaza-cease-fire-talks
 
