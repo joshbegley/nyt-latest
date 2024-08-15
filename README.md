@@ -1,3 +1,15 @@
+**Where Lines May Be Drawn in the Sand**\
+`Damon Gulczynski wants to make sure you’re paying attention.`\
+https://nytimes.com/2024/08/14/crosswords/daily-puzzle-2024-08-15.html
+
+**Illinois Woman Is Sentenced to Nine Years for Stealing $1.5 Million in Chicken Wings**\
+`Vera Liddell, 68, pleaded guilty to felony theft for stealing more than 11,000 cases of chicken wings valued at $1.5 million, the Cook County State’s Attorney’s Office said.`\
+https://nytimes.com/2024/08/14/us/chicago-school-chicken-wings-theft.html
+
+**Kennedy Sought a Meeting With Harris to Discuss a Cabinet Post**\
+`Robert F. Kennedy Jr. was unsuccessful with his request to discuss endorsing the Democratic nominee in exchange for a top administration job, according to two people briefed on the outreach.`\
+https://nytimes.com/2024/08/14/us/politics/rfk-jr-kamala-harris-cabinet-meeting.html
+
 **Rolling Padres keep pace with Diamondbacks while claiming, and proving, narrow focus**\
 `The past few weeks have revealed a team that is blending preparation, execution and good fortune to exceed all expectations, except its own.`\
 https://nytimes.com/athletic/5701108/2024/08/14/padres-success-post-all-star-break/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5701965/2024/08/14/chargers-training-camp-tremon-mo
 **Cowboys CB Trevon Diggs returns, makes a play and 'felt good' in joint practice**\
 `Trevon Diggs intercepted a pass and Micah Parsons dominated, but the red zone defense struggled and the offense had ball security issues.`\
 https://nytimes.com/athletic/5701639/2024/08/14/dallas-cowboys-joint-practice-trevon-diggs-rams/
-
-**Blazers leaving local RSN highlights growing trend among NBA teams**\
-`NBA teams have slowly started to walk away from cable TV amid the uncertainty of regional sports networks in recent years.`\
-https://nytimes.com/athletic/5701918/2024/08/14/trail-blazers-tv-partner-nba/
-
-**J.J. McCarthy is done for the season, and the Vikings are left to pick up the pieces**\
-`It's a similar refrain for Vikings fans after Wednesday's news on their rookie quarterback: You just hope it’s not one of those years.`\
-https://nytimes.com/athletic/5701828/2024/08/14/jj-mccarthy-vikings-injury-season/
-
-**Jewish Man Charged With Attempted Murder in Attacks on Muslim Neighbor**\
-`Izak Kadosh faces more than 40 charges, many of them hate crimes, including attempted murder and aggravated assault. Prosecutors said the attacks, in Brooklyn, went on for months.`\
-https://nytimes.com/2024/08/14/nyregion/brooklyn-hate-crimes.html
 
