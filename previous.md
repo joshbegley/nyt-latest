@@ -1,3 +1,7 @@
+**Davante Adams, Raiders offense shows progress in open practice at Allegiant Stadium**\
+`Adams caught a deep pass from Aidan O'Connell on Wednesday and clearly looks more comfortable with the second-year QB. `\
+https://nytimes.com/athletic/5702188/2024/08/15/davante-adams-raiders-offense-stadium-practice/
+
 **The Economy Moves to Center Stage in the Election**\
 `Inflation is cooling but hiring is slowing as Kamala Harris and Donald Trump fine tune their pitch to voters.`\
 https://nytimes.com/2024/08/15/business/dealbook/economy-inflation-election.html
