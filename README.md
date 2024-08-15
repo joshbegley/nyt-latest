@@ -2,7 +2,7 @@
 `Yelich hoped that rest and rehab would help him avoid surgery this season.`\
 https://nytimes.com/athletic/5704265/2024/08/15/brewers-christian-yelich-season-ending-back-surgery/
 
-**Jayden Daniels, Commanders' offense flash 'attacking mentality' in Miami**\
+**Jayden Daniels, Commanders offense flash 'attacking mentality' in Miami**\
 `The rookie impressed with red zone strikes and accounted for five total TDs from inside the 20 during the joint practice vs. the Dolphins.`\
 https://nytimes.com/athletic/5703736/2024/08/15/jayden-daniels-commanders-dolphins-joint-practice/
 
