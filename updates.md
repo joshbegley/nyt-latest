@@ -1,3 +1,7 @@
+**Leonard A. Leo**\
+`News about Leonard A. Leo. Commentary and archival information about Leonard A. Leo from The New York Times.`\
+https://nytimes.com/topic/leonard-a.-leo
+
 **Democrats Lean Into Liberty and the Language of Republicans**\
 `Kamala Harris and her allies are using traditionally right-leaning messaging to argue that Republicans threaten fundamental freedoms. “Mind your own damn business!” Tim Walz recently said.`\
 https://nytimes.com/2024/08/15/us/politics/harris-walz-democrats-language.html

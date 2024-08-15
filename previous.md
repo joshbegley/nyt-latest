@@ -1,3 +1,7 @@
+**Leonard A. Leo**\
+`News about Leonard A. Leo. Commentary and archival information about Leonard A. Leo from The New York Times.`\
+https://nytimes.com/topic/leonard-a.-leo
+
 **Democrats Lean Into Liberty and the Language of Republicans**\
 `Kamala Harris and her allies are using traditionally right-leaning messaging to argue that Republicans threaten fundamental freedoms. “Mind your own damn business!” Tim Walz recently said.`\
 https://nytimes.com/2024/08/15/us/politics/harris-walz-democrats-language.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/15/dining/what-is-a-salad-anyway.html
 **John A Catsimatidis**\
 `News about John A Catsimatidis. Commentary and archival information about John A Catsimatidis from The New York Times.`\
 https://nytimes.com/topic/john-a-catsimatidis
-
-**Ukraine’s Incursion Into Russia Reveals a Dramatic Shift**\
-`The offensive was developed in secret, devised to divert Russian troops away from the front lines in Ukraine and seize territory to use as a bargaining chip.`\
-https://nytimes.com/2024/08/15/us/politics/ukraine-incursion-russia-kursk.html
 
