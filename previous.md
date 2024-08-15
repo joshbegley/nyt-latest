@@ -1,3 +1,7 @@
+**Reus joins the LA Galaxy on a free transfer**\
+`Former Borussia Dortmund midfielder Marco Reus has joined the LA Galaxy on a free transfer.`\
+https://nytimes.com/athletic/5643520/2024/08/15/marco-reus-la-galaxy-transfer/
+
 **The Windup: Judge's latest mind-boggling feat**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5703016/2024/08/15/aaron-judge-home-runs-babe-ruth-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/15/arts/lafayatte-marquis-american-revolution.html
 **Beware the Toxic and Explosive Blue Backpack This Termite Carries**\
 `Scientists studied the unusual chemical reaction used by a species of the insect in an act of self-sacrifice to save nests from invaders.`\
 https://nytimes.com/2024/08/15/science/exploding-termites-toxins.html
-
-**From Here to Eternity, a Choreographer Sinks Into the Sea**\
-`Faye Driscoll uses the ocean as her collaborator in a sunset dance celebrating the 10th anniversary of Beach Sessions.`\
-https://nytimes.com/2024/08/15/arts/dance/beach-sessions-rockaway-faye-driscoll.html
 

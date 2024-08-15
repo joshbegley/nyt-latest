@@ -1,3 +1,7 @@
+**Reus joins the LA Galaxy on a free transfer**\
+`Former Borussia Dortmund midfielder Marco Reus has joined the LA Galaxy on a free transfer.`\
+https://nytimes.com/athletic/5643520/2024/08/15/marco-reus-la-galaxy-transfer/
+
 **The Windup: Judge's latest mind-boggling feat**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5703016/2024/08/15/aaron-judge-home-runs-babe-ruth-the-windup/
