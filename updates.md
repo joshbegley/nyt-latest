@@ -1,3 +1,11 @@
+**Russia Sentences U.S. Citizen to 12 Years in Prison on Treason Charges**\
+`Ksenia Karelina is accused of donating $52 to a New York-based nonprofit that bought weapons and other equipment, including medical aid, for Ukraine’s military.`\
+https://nytimes.com/2024/08/15/world/europe/american-russia-treason.html
+
+**Tonali's return date from suspension confirmed**\
+`Sandro Tonali is likely to make his Newcastle United return in the Carabao Cup after clarification as to when his suspension expires.`\
+https://nytimes.com/athletic/5702413/2024/08/15/sandro-tonali-return-newcastle/
+
 **Breaking America with Kylian Mbappe and Co: Why La Liga wants to play in the U.S.**\
 `Senior La Liga figures are keen for a game to be played in the U.S. — the potential is huge and they are eager to capitalise`\
 https://nytimes.com/athletic/5699445/2024/08/15/kylian-mbappe-la-liga-real-madrid-barcelona-united-states/
