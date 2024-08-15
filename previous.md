@@ -1,3 +1,12 @@
+**Atlanta Falcons signing Pro Bowl safety Justin Simmons**\
+`By Dianna Russini, Jeff Howe and Josh Kendall
+The Atlanta Falcons are signing Pro Bowl safety Justin Simmons.`\
+https://nytimes.com/athletic/5703554/2024/08/15/atlanta-falcons-sign-justin-simmons/
+
+**Corey Lewandowski, Trump’s Ex-Campaign Manager, Joins Team**\
+`Mr. Lewandowski, who was fired from his post during Donald J. Trump’s 2016 run, has been a divisive and yet consistent presence in his world.`\
+https://nytimes.com/2024/08/15/us/politics/corey-lewandowski-joins-trump-campaign.html
+
 **After Shooting, Texas State Fair Bans Guns. Republicans Want Them Back.**\
 `The Texas State Fair, a beloved institution, has imposed a ban on firearms. The state attorney general, Ken Paxton, is threatening a lawsuit.`\
 https://nytimes.com/2024/08/15/us/texas-state-fair-guns-paxton.html
@@ -29,12 +38,4 @@ https://nytimes.com/2024/08/15/world/africa/sudan-chad-adre-border-crossing-reop
 **NBA schedule release: National TV games, big matchups and more**\
 `Five of the first seven days of the NBA season will have games televised nationally, whether on ESPN or TNT.`\
 https://nytimes.com/athletic/5703663/2024/08/15/nba-schedule-release-2024-25/
-
-**6 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2024/08/15/books/review/new-books-recommendations.html
-
-**Ten things from Panthers-Jets: Robert Hunt's a dawg, and a need for Stephon Gilmore?**\
-`Terrace Marshall came to play vs. the Jets, while Chuba Hubbard and Robert Hunt appear to have avoided significant injuries.`\
-https://nytimes.com/athletic/5703589/2024/08/15/carolina-panthers-injury-report-joint-practice-jets/
 

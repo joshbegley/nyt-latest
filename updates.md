@@ -1,3 +1,12 @@
+**Atlanta Falcons signing Pro Bowl safety Justin Simmons**\
+`By Dianna Russini, Jeff Howe and Josh Kendall
+The Atlanta Falcons are signing Pro Bowl safety Justin Simmons.`\
+https://nytimes.com/athletic/5703554/2024/08/15/atlanta-falcons-sign-justin-simmons/
+
+**Corey Lewandowski, Trump’s Ex-Campaign Manager, Joins Team**\
+`Mr. Lewandowski, who was fired from his post during Donald J. Trump’s 2016 run, has been a divisive and yet consistent presence in his world.`\
+https://nytimes.com/2024/08/15/us/politics/corey-lewandowski-joins-trump-campaign.html
+
 **Chiles on being stripped of medal: 'This decision feels unjust'**\
 `"I believe that at the end of this journey, the people in control will do the right thing," Chiles said.`\
 https://nytimes.com/athletic/5703645/2024/08/15/jordan-chiles-bronze-medal-comments/
