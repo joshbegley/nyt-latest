@@ -1,3 +1,19 @@
+**What Is a Salad, Anyway?**\
+`Dumpling salad, pickle salad, potato salad, bean salad — salads to some, delicious to all.`\
+https://nytimes.com/2024/08/15/dining/what-is-a-salad-anyway.html
+
+**John A Catsimatidis**\
+`News about John A Catsimatidis. Commentary and archival information about John A Catsimatidis from The New York Times.`\
+https://nytimes.com/topic/john-a-catsimatidis
+
+**Ukraine’s Incursion Into Russia Reveals a Dramatic Shift**\
+`The offensive was developed in secret, devised to divert Russian troops away from the front lines in Ukraine and seize territory to use as a bargaining chip.`\
+https://nytimes.com/2024/08/15/us/politics/ukraine-incursion-russia-kursk.html
+
+**Appointments policy for English referees to be published for first time**\
+`The policy that helps inform which match officials are chosen to appoint games in the Premier League, English Football League and Women&#8217;s Super League has been published for the first time.`\
+https://nytimes.com/athletic/5703288/2024/08/15/premier-league-referees-efl-wsl-pgmol/
+
 **Wrigley Field to hold 4 Big Ten college hockey games after NHL Winter Classic**\
 `CHICAGO — The Big Ten Conference has held football games at Wrigley Field.`\
 https://nytimes.com/athletic/5703319/2024/08/15/wrigley-field-nhl-winter-classic-big-ten-hockey/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/08/15/us/detroit-judge-sleeping-teen.html
 **Harvard Names Conservative Legal Scholar as Permanent Provost**\
 `John F. Manning has served as interim provost since March, and he is a top contender for university president.`\
 https://nytimes.com/2024/08/15/us/harvard-provist-john-manning.html
-
-**New Israeli Settlement in West Bank Would Encroach on World Heritage Site, Activists Say**\
-`An advocacy group, Peace Now, said that Israel was accelerating new claims over West Bank land in a bid to prevent the establishment of a Palestinian state.`\
-https://nytimes.com/2024/08/15/world/middleeast/israel-west-bank-settlement.html
-
-**Learning From Success With Homeless Veterans**\
-`Readers call for expansion of a program that has helped many veterans. Also: Walz’s military service; Trump’s unreality; Black doctors; farewell to WCBS Newsradio.`\
-https://nytimes.com/2024/08/15/opinion/homeless-veterans.html
-
-**Bills LB Matt Milano tears biceps muscle, will undergo surgery**\
-`It's the second time in as many seasons where Milano, one of the Bills' best defensive players, will miss significant time with an injury.`\
-https://nytimes.com/athletic/5703257/2024/08/15/matt-milano-injury-bills/
-
-**The Best Movies and TV Shows Coming to Netflix in August**\
-`This month sees the return of “Emily in Paris” and a superhero ensemble, along with a heartbreaking documentary about the daughters of imprisoned men.`\
-https://nytimes.com/2024/08/15/arts/television/netflix-new-tv-movies.html
 
