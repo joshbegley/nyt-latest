@@ -1,3 +1,19 @@
+**Harvard Settles Lawsuit Over Claims of Sexual Harassment by a Professor**\
+`Three students sued the university in 2022 over its response to reports of sexual harassment by John Comaroff, a renowned anthropology professor.`\
+https://nytimes.com/2024/08/15/education/harvard-settlement-john-comaroff.html
+
+**India’s ‘Reclaim the Night’ Protests Should Go Global**\
+`One half of the world’s population shouldn’t be afraid of one-half of each day.`\
+https://nytimes.com/live/2024/08/13/opinion/thepoint/india-reclaim-night-protest
+
+**Russell Wilson to make Steelers debut in preseason game vs. Bills**\
+`With Wilson limited, Justin Fields took a majority of the first-team reps in camp.`\
+https://nytimes.com/athletic/5703804/2024/08/15/russell-wilson-steelers-preseason-start/
+
+**Slow starts, strong finishes and a few fights: Jets-Panthers joint practice observations**\
+`Tempers flared between the teams ahead of their Saturday preseason matchup.`\
+https://nytimes.com/athletic/5703582/2024/08/15/new-york-jets-carolina-panthers-fights-joint-practice-observations-dj-reed-terrace-marshall-michael-clemons-mike-boone/
+
 **Atlanta Falcons signing Pro Bowl safety Justin Simmons**\
 `By Josh Kendall, Dianna Russini and Jeff Howe
 The Atlanta Falcons are signing Pro Bowl safety Justin Simmons.`\
