@@ -1,3 +1,7 @@
+**5.4-Magnitude Earthquake Strikes Near Taiwan**\
+`The earthquake struck off the eastern coast and was seven miles deep.`\
+https://nytimes.com/2024/08/15/world/asia/taiwan-earthquake.html
+
 **Canceling Subscriptions Could Get Easier Under New Biden Administration Rules**\
 `Some of the tactics that have consumers jumping through hoops to cancel a cable or gym membership could be banned under a new initiative launched this week by the White House.`\
 https://nytimes.com/2024/08/15/us/us-government-unsubscribe-memberships.html
