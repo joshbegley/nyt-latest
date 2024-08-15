@@ -1,3 +1,7 @@
+**Corrections: Aug. 15, 2024**\
+`Corrections that appeared in print on Thursday, Aug. 15, 2024.`\
+https://nytimes.com/2024/08/15/pageoneplus/corrections-aug-15-2024.html
+
 **FPL: Is Erling Haaland, FPL's priciest player ever, still worth it?**\
 `Haaland has the highest starting price of all-time in FPL — so is he still essential despite such a huge price tag?`\
 https://nytimes.com/athletic/5655154/2024/08/15/fantasy-premier-league-erling-haaland-price/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/14/business/kamala-harris-price-gouging-inflation.ht
 **Bowling, Selfies and the ‘Dougie’: Biden Woos Influencers at the White House**\
 `For its first conference on the creator economy, the Biden administration celebrated social media creators. The president lauded them as a “breakthrough in how we communicate.”`\
 https://nytimes.com/2024/08/14/business/biden-social-media-creators-white-house.html
-
-**10 Terrific Gena Rowlands Performances to Stream**\
-`She delivered vulnerable portraits in movies as varied as “A Woman Under the Influence,” with John Cassavetes, and the drama “The Notebook.”`\
-https://nytimes.com/2024/08/14/movies/gena-rowlands-movies.html
 
