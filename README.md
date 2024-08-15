@@ -1,3 +1,7 @@
+**2026 Prices for Drugs That Are Subject to Negotiations**\
+`The prices were made possible by the Inflation Reduction Act, a bill President Biden signed in 2022 that granted the health and human services secretary the authority to negotiate on behalf of Medicare.`\
+https://nytimes.com/2024/08/15/us/politics/drug-prices-medicare-negotiations.html
+
 **Is the Warriors front office failing Steph Curry?**\
 `Curry has shown he can still rise above on the largest stage but the current Warriors roster still presents one glaring flaw. `\
 https://nytimes.com/athletic/5684308/2024/08/15/warriors-steph-curry-future-roster/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5702704/2024/08/15/wnba-all-star-game-2025-indianap
 **Retail Sales Beat Expectations, Easing Concerns About the Economy**\
 `Sales were up 1 percent in July from the previous month. The rise was slimmer when autos and gasoline were excluded, but market reaction was favorable.`\
 https://nytimes.com/2024/08/15/business/economy/retail-sales-july-stocks.html
-
-**Spurs suspend Bissouma for PL opener after nitrous oxide video**\
-`Tottenham Hotspur have suspended midfielder Yves Bissouma for their Premier League opening match against Leicester City after footage emerged of him appearing to inhale nitrous oxide.`\
-https://nytimes.com/athletic/5702614/2024/08/15/yves-bissouma-tottenham-suspended-laughing-gas/
 
