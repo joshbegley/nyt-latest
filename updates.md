@@ -1,3 +1,7 @@
+**A Catastrophic Civil War in Sudan**\
+`How an unexpected conflict is crushing Africa’s third-largest country.`\
+https://nytimes.com/2024/08/15/briefing/sudan-civil-war.html
+
 **Russia Sentences U.S. Citizen to 12 Years in Prison on Treason Charges**\
 `Ksenia Karelina is accused of donating $52 to a New York-based nonprofit that bought weapons and other equipment, including medical aid, for Ukraine’s military.`\
 https://nytimes.com/2024/08/15/world/europe/american-russia-treason.html
