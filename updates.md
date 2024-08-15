@@ -1,3 +1,11 @@
+**Word of the Day: boycott**\
+`This word has appeared in 308 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/15/learning/word-of-the-day-boycott.html
+
+**Why did the White Sox intentionally walk Juan Soto to face Aaron Judge? 'That was crazy'**\
+`It's not often Judge swings at a pitch 3-0 out of the zone, but he took the decision to intentionally walk Soto personally.`\
+https://nytimes.com/athletic/5702179/2024/08/15/juan-soto-aaron-judge-yankees-white-sox/
+
 **Walker Buehler returns to Dodgers with familiar problems: 'Got to get the production'**\
 `The Dodgers will be patient with Buehler. But how patient?`\
 https://nytimes.com/athletic/5702178/2024/08/15/walker-buehler-returns-dodgers/
