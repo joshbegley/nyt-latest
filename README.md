@@ -1,3 +1,7 @@
+**Arrest Made in Investigation into Matthew Perry’s Death**\
+`Law enforcement agencies have been working to identify the source of the ketamine that led to the “Friends” star’s death.`\
+https://nytimes.com/2024/08/15/arts/television/matthew-perry-charges-ketamine.html
+
 **Who is Pochettino? Is this a coup for the USMNT? Will it help them at World Cup?**\
 `Argentinian Pochettino has agreed to become the next USMNT head coach - this is everything you need to know about him`\
 https://nytimes.com/athletic/5698038/2024/08/15/mauricio-pochettino-usmnt-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5702760/2024/08/15/the-falcons-add-a-star-plus-nfl-
 **Everton's Branthwaite to miss start of PL season through injury**\
 `Everton defender Jarrad Branthwaite is set to miss the start of the season through injury.`\
 https://nytimes.com/athletic/5702680/2024/08/15/jarrad-branthwaite-everton-injury-news/
-
-**Indianapolis to host 2025 WNBA All-Star Game**\
-`The game will be held at Gainbridge Fieldhouse on July 19, marking Indianapolis' first time hosting the 2025 WNBA All-Star Game.`\
-https://nytimes.com/athletic/5702704/2024/08/15/wnba-all-star-game-2025-indianapolis/
 
