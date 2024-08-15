@@ -1,5 +1,13 @@
+**Gena Rowlands, Actress Who Bought Raw Drama to Her Roles, Dies at 94**\
+`Known for playing on-the-verge characters, she was twice earned Oscar nominations for her work in films directed by John Cassavetes, her husband.`\
+https://nytimes.com/2024/08/14/movies/gena-rowlands-dead.html
+
+**For Remote Alaskan Communities, a Lifeline Comes From the Sky **\
+`In Utqiagvik, the northernmost city in the United States, nothing arrives by road. The city of about 5,000 residents relies extensively on cargo delivered by airplanes.`\
+https://nytimes.com/card/2024/08/15/business/alaska-airlines-cargo-utqiagvik
+
 **Federal Audit Orders M.T.A. to Improve Track Worker Safety**\
-`The Federal Transit Authority released the report nine months after the death of a transit worker. If the M.T.A. does not comply, it could lose funding.`\
+`The Federal Transit Administration released the report nine months after the death of a transit worker. If the M.T.A. does not comply, it could lose funding.`\
 https://nytimes.com/2024/08/14/nyregion/federal-audit-orders-mta-to-improve-track-worker-safety.html
 
 **Chargers training camp, Day 17: Tre'Mon Morris-Brash seizing opportunity**\
@@ -27,14 +35,6 @@ https://nytimes.com/2024/08/14/nyregion/brooklyn-hate-crimes.html
 https://nytimes.com/athletic/5701754/2024/08/14/harbaugh-kaepernick-chargers-coach/
 
 **Columbia President Resigns After Months of Turmoil on Campus**\
-`Nemat Shafik is the third university president to resign in the wake of strife connected to the Israel-Hamas war. She will take a job in the British government.`\
+`Nemat Shafik is the third university president to resign in the wake of turbulent congressional appearances and strife connected to the Israel-Hamas war.`\
 https://nytimes.com/2024/08/14/us/columbia-president-nemat-shafik-resigns.html
-
-**The Yankees' trade deadline moves have already not aged well. Now what?**\
-`The Yankees needed to nail their trade deadline moves for relievers, but they've backfired. Now they have to hope someone else emerges.`\
-https://nytimes.com/athletic/5701580/2024/08/14/yankees-trade-deadline-moves-analysis/
-
-**Connecticut Official Loses to Jewish Opponent After Antisemitic Comments**\
-`In an interview posted online, Anabel Figueroa made comments that have been widely condemned as antisemitic. On Tuesday, she lost her Democratic primary to a Jewish challenger.`\
-https://nytimes.com/2024/08/14/nyregion/anabel-figueroa-ct-primary-antisemitism.html
 
