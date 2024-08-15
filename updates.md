@@ -1,3 +1,7 @@
+**Seth Meyers Calls Trump ‘Desperate’ for Likes**\
+`Meyers said the former president’s return to X shows he yearns “for the spotlight and for some praise or positive coverage from anyone, anywhere.”`\
+https://nytimes.com/2024/08/15/arts/television/seth-meyers-trump-x-livestream.html
+
 **Word of the Day: boycott**\
 `This word has appeared in 308 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/15/learning/word-of-the-day-boycott.html
