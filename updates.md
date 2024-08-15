@@ -1,3 +1,7 @@
+**Giants takeaways: Making sense of the Marco Luciano-for-Grant McCray swap**\
+`There wasn't one simple explanation for why the Giants swapped one prospect for another Wednesday afternoon.`\
+https://nytimes.com/athletic/5702215/2024/08/15/sf-giants-marco-luciano-grant-mccray/
+
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/08/15/us/harris-trump-election/heres-the-latest-on-the-presidential-race
