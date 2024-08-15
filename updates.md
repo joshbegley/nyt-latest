@@ -1,3 +1,15 @@
+**ESPN fires Robert Griffin III: Sources**\
+`Griffin, who as recently as last year had been viewed as a rising star at ESPN, had two years remaining on his deal.`\
+https://nytimes.com/athletic/5703445/2024/08/15/espn-fires-robert-griffin/
+
+**Harris Plans to Ban Grocery ‘Price Gouging.’ What Does the Evidence Say?**\
+`Price increases when demand exceeds supply are textbook economics. The question is whether, and how much, the pandemic yielded an excess take.`\
+https://nytimes.com/2024/08/15/business/economy/kamala-harris-inflation-price-gouging.html
+
+**Man City set to sign Mubama following West Ham exit**\
+`Manchester City are set to complete the signing of 19-year-old forward Divin Mubama following his departure from West Ham United.`\
+https://nytimes.com/athletic/5703337/2024/08/15/divin-mubama-manchester-city-transfer/
+
 **Leonard A. Leo**\
 `News about Leonard A. Leo. Commentary and archival information about Leonard A. Leo from The New York Times.`\
 https://nytimes.com/topic/leonard-a.-leo
