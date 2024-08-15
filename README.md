@@ -1,3 +1,15 @@
+**Nugent-Bowman: Ken Holland deserves less blame for Broberg, Holloway offer sheets**\
+`Despite the mess the Oilers are in now, little of what has transpired this week with the team's two emerging talents is Holland's doing.`\
+https://nytimes.com/athletic/5702757/2024/08/15/oilers-offer-sheets-broberg-holloway-holland/
+
+**Medic’s Killing Fuels Protests and Walkouts in India**\
+`The death and apparent rape of a physician trainee reignited rage over violence against women and prompted nationwide protests by colleagues.`\
+https://nytimes.com/2024/08/15/world/asia/medics-killing-fuels-protests-and-walkouts-in-india.html
+
+**Macron Honors African Soldiers Who Helped Liberate France in World War II**\
+`Two months after D-Day, an Allied force dominated by soldiers conscripted from French colonies swept into southern France. It’s a chapter of its history that France has long obscured.`\
+https://nytimes.com/2024/08/15/world/europe/france-african-soldiers-world-war-ii.html
+
 **Wind Beat Coal Two Months in a Row for U.S. Electricity Generation**\
 `The shift occurred as the cost of wind power and other renewable energy is rapidly declining and coal is being pushed out by natural gas.`\
 https://nytimes.com/2024/08/15/climate/wind-power-coal.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5701539/2024/08/15/nba-cup-charles-barkley-tnt-wnba
 **Judge Finds Flaws in New York City’s Cannabis Enforcement Efforts**\
 `The city has appealed the judge’s ruling in favor of a convenience store in Queens that could have broader implications for enforcement.`\
 https://nytimes.com/2024/08/15/nyregion/nyc-marijuana-enforcement.html
-
-**Milan close to signing Monaco midfielder Fofana**\
-`Milan are close to completing the signing of midfielder Youssouf Fofana from Monaco in a deal worth around €25million (£21.`\
-https://nytimes.com/athletic/5674068/2024/08/15/youssouf-fofana-milan-transfer/
-
-**Sydney Lemmon Puts the Twisted Humanity Behind Tech on Broadway**\
-`After a small part in “Succession,” the actor has a breakout role in “Job,” in which she plays a content moderator having a mental breakdown.`\
-https://nytimes.com/2024/08/15/theater/sydney-lemmon-job-broadway.html
-
-**Man Utd's Snapdragon shirt sponsor deal extended by two years**\
-`Manchester United sponsor Qualcomm has triggered its two-year extension option on its front-of-shirt deal with the Premier League club.`\
-https://nytimes.com/athletic/5702630/2024/08/15/manchester-united-snapdragon-qualcomm-shirt-sponsor/
 
