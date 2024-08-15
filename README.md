@@ -1,3 +1,11 @@
+**The Final Hours: Why Biden Really Decided to Drop Out of the Race**\
+`People close to President Biden say he still believes he could have won a second term. But he came to realize that the fight would rip apart the Democratic Party that he had served his whole life.`\
+https://nytimes.com/2024/08/15/us/politics/biden-2024-election-dropped-out.html
+
+**Protesters in Bangladesh Target Supporters of Ousted Prime Minister**\
+`Armed with bamboo sticks and pipes, protesters went after suspected supporters of former Prime Minister Sheikh Hasina as they tried to hold a rally in Dhaka.`\
+https://nytimes.com/video/world/asia/100000009630607/dhaka-bangladesh-protest-violence-.html
+
 **Davante Adams, Raiders offense shows progress in open practice at Allegiant Stadium**\
 `Adams caught a deep pass from Aidan O'Connell on Wednesday and clearly looks more comfortable with the second-year QB. `\
 https://nytimes.com/athletic/5702188/2024/08/15/davante-adams-raiders-offense-stadium-practice/
