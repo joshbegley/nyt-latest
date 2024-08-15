@@ -1,3 +1,7 @@
+**How Did Mpox Become a Global Emergency? What’s Next?**\
+`The virus is evolving, and the newest version spreads more often through heterosexual populations. But the vaccines should still work.`\
+https://nytimes.com/2024/08/15/health/mpox-emergency-vaccines-treatments.html
+
 **Alan Gustafson reflects on milestone as NASCAR crew chief**\
 `Gustafson will call his 700th NASCAR Cup Series race on Sunday at Michigan International Speedway.`\
 https://nytimes.com/athletic/5702201/2024/08/15/alan-gustafson-nascar-crew-chief-race-cup-series/
