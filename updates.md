@@ -1,3 +1,7 @@
+**Mets lose control, walk 11 in loss to A's: 'Today was not a good day'**\
+`The Mets have lost 8 of 13 games, including five of their last six, as part of an up-and-down season.`\
+https://nytimes.com/athletic/5704247/2024/08/15/mets-mlb-pressure/
+
 **Jayden Daniels, Commanders offense flash 'attacking mentality' in Miami**\
 `The rookie impressed with red zone strikes and accounted for five total TDs from inside the 20 during the joint practice vs. the Dolphins.`\
 https://nytimes.com/athletic/5703736/2024/08/15/jayden-daniels-commanders-dolphins-joint-practice/

@@ -1,3 +1,7 @@
+**Mets lose control, walk 11 in loss to A's: 'Today was not a good day'**\
+`The Mets have lost 8 of 13 games, including five of their last six, as part of an up-and-down season.`\
+https://nytimes.com/athletic/5704247/2024/08/15/mets-mlb-pressure/
+
 **Brewers' Christian Yelich to undergo season-ending back surgery**\
 `Yelich hoped that rest and rehab would help him avoid surgery this season.`\
 https://nytimes.com/athletic/5704265/2024/08/15/brewers-christian-yelich-season-ending-back-surgery/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/15/us/politics/biden-harris-rally.html
 **California A.I. Bill Is Amended; Vote Is Expected by End of August**\
 `Silicon Valley companies still worry that state lawmakers are jumping the gun on regulating a still-unproven technology.`\
 https://nytimes.com/2024/08/15/technology/california-ai-bill-amended.html
-
-**Greg Kihn, Who Scored Hits With ‘Jeopardy’ and ‘The Breakup Song,’ Dies at 75**\
-`Mr. Kihn later became a popular morning disc jockey in the San Francisco Bay Area.`\
-https://nytimes.com/2024/08/15/arts/music/greg-kihn-dead.html
 
