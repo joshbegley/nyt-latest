@@ -1,3 +1,7 @@
+**ESPN fires Griffin III, Ponder in cost-cutting moves**\
+`Griffin, who as recently as last year had been viewed as a rising star at ESPN, had two years remaining on his deal.`\
+https://nytimes.com/athletic/5703445/2024/08/15/espn-fires-robert-griffin/
+
 **Unusual Origin Found for Asteroid That Killed the Dinosaurs**\
 `A study adds strong evidence to the hypothesis that the deadly rock came from a family of objects that originally formed well beyond the orbit of the planet Jupiter.`\
 https://nytimes.com/2024/08/15/science/asteroid-dinosaurs-chicxulub.html
