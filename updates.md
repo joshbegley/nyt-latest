@@ -1,3 +1,7 @@
+**Whatever the message in meeting, Kyle Schwarber's swing does more than words for Phillies**\
+`The wobbling Phillies had a clubhouse meeting, then pummeled the Marlins. They believe they have the right group to right the ship.`\
+https://nytimes.com/athletic/5702142/2024/08/14/phillies-kyle-schwarber-team-meeting/
+
 **Is Pete Alonso's big night the start of a well-timed hot streak for the Mets?**\
 `Carlos Mendoza hopes this is one of Alonso's annual torrid stretches: “He can carry a team. We've seen it."`\
 https://nytimes.com/athletic/5702091/2024/08/14/mets-pete-alonso-hot-streak/
