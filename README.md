@@ -1,3 +1,7 @@
+**Man City's Phillips to undergo Ipswich medical ahead of loan**\
+`Manchester City midfielder Kalvin Phillips is set to undergo a medical at Ipswich Town ahead of joining the club on a season-long loan deal.`\
+https://nytimes.com/athletic/5702304/2024/08/15/kalvin-phillips-ipswich-loan-man-city/
+
 **Typhoon Ampil Approaches Japan, Disrupting Flights and Trains**\
 `The powerful storm is expected to bring heavy rain, strong winds and the threat of floods and landslides to eastern Japan, including Tokyo, on Friday.`\
 https://nytimes.com/2024/08/15/world/asia/typhoon-ampil-japan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/15/insider/south-korea-labor.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/08/15/crosswords/spelling-bee-forum.html
-
-**Michael Harris II's grand slam in first at-bat off the IL sparks Braves in rout of Giants**\
-`Harris' grand slam was the Braves' third this season and second in five days.`\
-https://nytimes.com/athletic/5702258/2024/08/15/michael-harris-ii-grand-slam-giants/
 
