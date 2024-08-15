@@ -1,9 +1,29 @@
+**Anthony Edwards' Olympic experience couldn't have been better for him or the Wolves**\
+`Edwards contributed to Team USA's gold medal, and he soaked up wisdom from NBA legends in the process. That can only help him.`\
+https://nytimes.com/athletic/5696739/2024/08/15/anthony-edwards-olympics-timberwolves/
+
+**Bournemouth agree €47m deal to sign Porto striker Evanilson**\
+`Bournemouth have agreed a deal worth in the region of €47million (£40.`\
+https://nytimes.com/athletic/5702531/2024/08/15/bournemouth-evanilson-agree-deal-transfer-porto/
+
+**America Can’t Produce the Weapons It Needs for the Future. This Could Help.**\
+`The United States, Australia and Britain are making it easier to share defense technology, hoping to spur the innovations needed to keep up with China.`\
+https://nytimes.com/2024/08/15/world/australia/us-australia-uk-weapons-exports.html
+
+**Johnston: Tavares' graceful exit as Leafs captain could lead to longer stay in Toronto**\
+`There's something to be said for the way Tavares embraced the transition the Leafs ushered in by shifting the captaincy to Auston Matthews.`\
+https://nytimes.com/athletic/5701732/2024/08/15/john-tavares-auston-matthews-maple-leafs-captain/
+
+**Until Saturday: Our preseason All-America teams are out, plus die-hard fans**\
+`Welcome to Until Saturday, the five-star college football newsletter: The Athletic's preseason All-America teams are out.`\
+https://nytimes.com/athletic/5701981/2024/08/15/ohio-state-football-college-fans-until-saturday/
+
 **Voter registration data offers a hint of enthusiasm for Democrats.**\
 `By Francesca Paris`\
 https://nytimes.com/live/2024/08/15/us/harris-trump-election/voter-registration-data-offers-a-hint-of-enthusiasm-for-democrats
 
-**The Final Hours: Why Biden Really Decided to Drop Out of the Race**\
-`People close to President Biden say he still believes he could have won a second term. But he came to realize that the fight would rip apart the Democratic Party that he had served his whole life.`\
+**He Still Thought He Could Win: Inside Biden’s Decision to Drop Out**\
+`People close to President Biden say he believes he could have won a second term. But he came to realize that the fight would rip apart the Democratic Party that he had served his whole life.`\
 https://nytimes.com/2024/08/15/us/politics/biden-2024-election-dropped-out.html
 
 **Protesters in Bangladesh Target Supporters of Ousted Prime Minister**\
@@ -18,20 +38,3 @@ https://nytimes.com/athletic/5702188/2024/08/15/davante-adams-raiders-offense-st
 `Inflation is cooling but hiring is slowing as Kamala Harris and Donald Trump fine tune their pitch to voters.`\
 https://nytimes.com/2024/08/15/business/dealbook/economy-inflation-election.html
 
-**Father of Lamine Yamal stabbed, three people arrested**\
-`Three people have been arrested for alleged attempted murder after Barcelona and Spain forward Lamine Yamal&#8217;s father was stabbed on Wednesday evening.`\
-https://nytimes.com/athletic/5701622/2024/08/15/lamine-yamal-father-attack/
-
-**Giants takeaways: Making sense of the Marco Luciano-for-Grant McCray swap**\
-`There wasn't one simple explanation for why the Giants swapped one prospect for another Wednesday afternoon.`\
-https://nytimes.com/athletic/5702215/2024/08/15/sf-giants-marco-luciano-grant-mccray/
-
-**Here’s the latest on the presidential race.**\
-`By Simon J. Levien`\
-https://nytimes.com/live/2024/08/15/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**The Athletic FC: Pochettino agrees to be USMNT head coach; Mbappe's dream debut**\
-`The USMNT threw everything at Mauricio Pochettino — and it looks like they’ve got their man.`\
-https://nytimes.com/athletic/5702476/2024/08/15/newsletter-pochettino-usmnt-mbappe/
-
-**Gazan authorities mark 100 days since Israel’s closure of a key border crossing, and other news.**\
