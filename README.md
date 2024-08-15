@@ -1,3 +1,11 @@
+**Astros finish road trip on 8-game winning streak with sweep of Rays**\
+`Eight consecutive victories have Houston 2 1/2 games up in a division they've long dominated.`\
+https://nytimes.com/athletic/5702173/2024/08/15/astros-winning-streak-sweep-rays/
+
+**Biden’s Middle East Playbook Won’t Stop a Wider War Forever**\
+`America’s plan for preventing a full-blown war in the Middle East is unraveling.`\
+https://nytimes.com/2024/08/15/opinion/iran-israel-middle-east-war.html
+
 **Postecoglou's second seasons - what history and the data tell us to expect**\
 `Postecoglou's first year at Tottenham felt like the club hitting the reset button. So what does his career suggest the second will be like?`\
 https://nytimes.com/athletic/5700206/2024/08/15/ange-postecoglou-second-season-tottenham/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5630928/2024/08/15/aston-villa-season-preview-2024-
 **How hopeful are the fans of all 20 Premier League clubs feeling about their 2024-25 chances?**\
 `The eve of the season is a time for hope. There is plenty at Nottingham Forest, oddly, but at Leicester and Chelsea it's a different story`\
 https://nytimes.com/athletic/5700203/2024/08/15/premier-league-hope-survey-fans/
-
-**Joshua Zirkzee - the €1,000 wonderkid who ended up at Manchester United**\
-`The story of Zirkzee's rise to the Premier League...`\
-https://nytimes.com/athletic/5700872/2024/08/15/joshua-zirkzee-manchester-united-profile/
-
-**Back-post runs, athleticism and duel winning: What Merino would bring to Arsenal**\
-`The Real Sociedad and Spain midfielder could be heading to Arsenal - this is why they want him and what they would be getting`\
-https://nytimes.com/athletic/5658173/2024/08/15/mikel-merino-arsenal-tactical-fit/
 
