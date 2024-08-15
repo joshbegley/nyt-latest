@@ -1,4 +1,4 @@
-**Arrest Made in Investigation into Matthew Perry’s Death**\
+**Arrest Made in Investigation Into Matthew Perry’s Death**\
 `Law enforcement agencies have been working to identify the source of the ketamine that led to the “Friends” star’s death.`\
 https://nytimes.com/2024/08/15/arts/television/matthew-perry-charges-ketamine.html
 
