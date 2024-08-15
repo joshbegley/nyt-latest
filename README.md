@@ -1,3 +1,11 @@
+**Peacock's 'Gold Zone' returning for 2028 Games**\
+`"Gold Zone" ranked in the top five most-watched Olympic titles on Peacock and was a technological success given all the elements at play.`\
+https://nytimes.com/athletic/5702878/2024/08/15/gold-zone-peacock-olympics-2028/
+
+**N.J. Transit Says Thank You, and Sorry, With a Week of Free Rides**\
+`After a spate of breakdowns that caused long delays, an unscheduled “fare holiday” on the statewide transit network will start on Aug. 26.`\
+https://nytimes.com/2024/08/15/nyregion/nj-transit-fare-holiday-murphy.html
+
 **Arrest Made in Investigation Into Matthew Perry’s Death**\
 `Law enforcement agencies have been working to identify the source of the ketamine that led to the “Friends” star’s death.`\
 https://nytimes.com/2024/08/15/arts/television/matthew-perry-charges-ketamine.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5579334/2024/08/15/everton-takeover-textor-exclusiv
 **Brajan Gruda to Brighton: The Athletic 500 transfer ratings**\
 `As part of the The Athletic 500 series, we look at Brajan Gruda's move to Brighton`\
 https://nytimes.com/athletic/5700520/2024/08/15/brajan-gruda-to-brighton-the-athletic-500-transfer-ratings/
-
-**Scoop City: Players to watch in tonight Eagles Patriots matchup**\
-`Falcons acquire Matthew Judon, Vikings lose J.J. McCarthy for the year and the NFL's biggest stories.`\
-https://nytimes.com/athletic/5702760/2024/08/15/the-falcons-add-a-star-plus-nfl-preseason-week-2-begins-tonight-scoop-city/
-
-**Everton's Branthwaite to miss start of PL season through injury**\
-`Everton defender Jarrad Branthwaite is set to miss the start of the season through injury.`\
-https://nytimes.com/athletic/5702680/2024/08/15/jarrad-branthwaite-everton-injury-news/
 
