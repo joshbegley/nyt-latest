@@ -22,8 +22,8 @@ https://nytimes.com/athletic/5701981/2024/08/15/ohio-state-football-college-fans
 `By Francesca Paris`\
 https://nytimes.com/live/2024/08/15/us/harris-trump-election/voter-registration-data-offers-a-hint-of-enthusiasm-for-democrats
 
-**The Final Hours: Why Biden Really Decided to Drop Out of the Race**\
-`People close to President Biden say he still believes he could have won a second term. But he came to realize that the fight would rip apart the Democratic Party that he had served his whole life.`\
+**He Still Thought He Could Win: Inside Biden’s Decision to Drop Out**\
+`People close to President Biden say he believes he could have won a second term. But he came to realize that the fight would rip apart the Democratic Party that he had served his whole life.`\
 https://nytimes.com/2024/08/15/us/politics/biden-2024-election-dropped-out.html
 
 **Protesters in Bangladesh Target Supporters of Ousted Prime Minister**\
