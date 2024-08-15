@@ -1,3 +1,7 @@
+**How Did Mpox Become a Global Emergency? What’s Next?**\
+`The virus is evolving, and the newest version spreads more often through heterosexual populations. But the vaccines should still work.`\
+https://nytimes.com/2024/08/15/health/mpox-emergency-vaccines-treatments.html
+
 **Alan Gustafson reflects on milestone as NASCAR crew chief**\
 `Gustafson will call his 700th NASCAR Cup Series race on Sunday at Michigan International Speedway.`\
 https://nytimes.com/athletic/5702201/2024/08/15/alan-gustafson-nascar-crew-chief-race-cup-series/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5643520/2024/08/15/marco-reus-la-galaxy-transfer/
 **The Windup: Judge's latest mind-boggling feat**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5703016/2024/08/15/aaron-judge-home-runs-babe-ruth-the-windup/
-
-**The Bounce: Your early NBA Cup preview**\
-`Zach Harper and Shams Charania catch you up on league-wide news.`\
-https://nytimes.com/athletic/5701539/2024/08/15/nba-cup-charles-barkley-tnt-wnba-aja-wilson-caitlin-clark-angel-reese-nba-the-bounce/
 
