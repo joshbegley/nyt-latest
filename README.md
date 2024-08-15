@@ -1,3 +1,15 @@
+**Seahawks' defense shows big-play potential in bounce-back practice vs. Titans**\
+`Devon Witherspoon made practice's biggest play (and then taunted ex-teammate Jamal Adams), but he was hardly the only one who shined.`\
+https://nytimes.com/athletic/5703680/2024/08/15/seahawks-titans-joint-practices-defense/
+
+**Where to Eat Near a Body of Water**\
+`Yes, summer is starting to wane. Enjoy those fried seafood shacks and outdoor oyster bars now.`\
+https://nytimes.com/2024/08/15/dining/where-to-eat-near-a-body-of-water.html
+
+**Chiles on being stripped of bronze medal: 'This decision feels unjust'**\
+`"I believe that at the end of this journey, the people in control will do the right thing," Chiles said.`\
+https://nytimes.com/athletic/5703645/2024/08/15/jordan-chiles-bronze-medal-comments/
+
 **Is It Morning in Kamala Harris’s America?**\
 `The good news may finally be breaking through to voters.`\
 https://nytimes.com/2024/08/15/opinion/kamala-harris-biden-reagan.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5703589/2024/08/15/carolina-panthers-injury-report-
 **Man Arrested After Escalating Threats Condemning Support for Israel**\
 `In one attack, a Jordanian man living in Orlando broke into an energy plant in Wedgefield, Fla., where he smashed equipment, causing about $700,000 in damage.`\
 https://nytimes.com/2024/08/15/us/politics/israel-florida-vandalism.html
-
-**Notre Dame suspends men's swimming team for at least 1 year over gambling violations**\
-`The school retained a law firm this summer to conduct an external review of the program upon learning of potential issues.`\
-https://nytimes.com/athletic/5703637/2024/08/15/notre-dame-swimming-gambling-suspension/
-
-**Navalny’s Widow Disputes Russian Report on Her Husband’s Death**\
-`The Russian authorities said Aleksei A. Navalny had died of a grab bag of diseases, including heart arrhythmia triggered by hypertension.`\
-https://nytimes.com/2024/08/15/world/europe/russia-navalny-putin.html
-
-**F.B.I. Resumes Flagging Foreign Disinformation to Social Media Giants**\
-`The Justice Department set new guidelines for agents to share tips with Facebook, X and other platforms after a legal challenge prompted a suspension of that communication.`\
-https://nytimes.com/2024/08/15/business/fbi-social-media-disinformation.html
 
