@@ -1,3 +1,7 @@
+**Seth Bloom, 49, Who Brought Laughter to the Rubble of War, Dies**\
+`A virtuoso of physical comedy, he performed around the world with his wife. Most notably, he helped stage clown shows in Afghanistan.`\
+https://nytimes.com/2024/08/15/arts/seth-bloom-dead.html
+
 **Ohio State names Will Howard starting QB**\
 `Ohio State coach Ryan Day named Kansas State transfer Will Howard the Buckeyes' starting quarterback, beating out Devin Brown.`\
 https://nytimes.com/athletic/5702932/2024/08/15/will-howard-ohio-state-starting-quarterback/
