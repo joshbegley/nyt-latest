@@ -1,40 +1,40 @@
-**Man City's Phillips to undergo Ipswich medical ahead of loan**\
-`Manchester City midfielder Kalvin Phillips is set to undergo a medical at Ipswich Town ahead of joining the club on a season-long loan deal.`\
-https://nytimes.com/athletic/5702304/2024/08/15/kalvin-phillips-ipswich-loan-man-city/
+**Ukraine Is Poking the Russian Bear**\
+`Its cross-border attack shows “the war is not over”`\
+https://nytimes.com/2024/08/15/opinion/ukraine-russia-kursk.html
 
-**Typhoon Ampil Approaches Japan, Disrupting Flights and Trains**\
-`The powerful storm is expected to bring heavy rain, strong winds and the threat of floods and landslides to eastern Japan, including Tokyo, on Friday.`\
-https://nytimes.com/2024/08/15/world/asia/typhoon-ampil-japan.html
+**Seeking Calm, Columbia University Asks a Doctor to Lead**\
+`Dr. Katrina A. Armstrong replaces Nemat Shafik as president of one of the most turbulent campuses in America.`\
+https://nytimes.com/2024/08/15/us/katrina-armstrong-columbia-president.html
 
-**At a Festival Amid Industrial Ruins, Ivo van Hove Takes Charge**\
-`For the Belgian director’s first edition as leader of the Ruhrtriennale, abandoned sites are “the starting point and the end point,” he says.`\
-https://nytimes.com/2024/08/15/theater/ivo-van-hove-ruhrtriennale.html
+**Half Their Land Burned in a Decade: The California Counties Constantly on Fire**\
+`Park fire became California’s fourth largest this month. It erupted in a part of the state that is increasingly covered with the scars of wildfires.`\
+https://nytimes.com/interactive/2024/08/15/us/california-fires.html
 
-**Who’s Up Next in Japan? Here Are 5 Potential Leaders.**\
-`Japan’s Liberal Democratic Party is searching for a successor to Prime Minister Fumio Kishida. But is it willing to change to appease a dissatisfied public?`\
-https://nytimes.com/2024/08/15/world/asia/japan-prime-minister-candidates.html
+**Nevada Senate Race Now Favors Democrat, Report Says**\
+`The nonpartisan Cook Political Report moved the race from “tossup” to “lean Democrat” after polling shows Senator Jacky Rosen with a large edge.`\
+https://nytimes.com/2024/08/15/us/politics/jacky-rosen-nevada-senate.html
 
-**Kylian Mbappe's Real Madrid debut was everything he'd dreamed of**\
-`The Spanish club's new star striker scored in a 2-0 victory over Atalanta to win the UEFA Super Cup`\
-https://nytimes.com/athletic/5702265/2024/08/15/kylian-mbappe-real-madrid-debut-super-cup/
+**A Sunny New Restaurant in a Parisian Train Station**\
+`Plus: skin care inspired by Belize, a Los Angeles designer’s denim collection and more recommendations from T Magazine.`\
+https://nytimes.com/2024/08/15/t-magazine/gare-de-lyon-paris-restaurant-marius.html
 
-**Float Planned for N.Y.C. India Day Parade Is Condemned as Anti-Muslim**\
-`The float, slated for inclusion in Sunday’s parade, depicts a Hindu temple in India that was built on the site of a mosque torn down by religious extremists.`\
-https://nytimes.com/2024/08/15/nyregion/india-day-parade-ram-temple.html
+**A Three-Bedroom House in the Bay Area for Under $1 Million? Here Were Their Options.**\
+`After six years in the desert of Palm Springs, a retired couple headed north in search of new construction in Sonoma County.`\
+https://nytimes.com/interactive/2024/08/15/realestate/bay-area-sonoma-county-home-sale.html
 
-**He Survived Combat in Iraq. Did a Fellow Soldier Kill Him at Home?**\
-`Jacob Ashton and Riley Birbilas, U.S. Army specialists, deployed to Iraq together. Now Specialist Birbilas is accused of killing the other soldier at Fort Drum in upstate New York.`\
-https://nytimes.com/2024/08/15/nyregion/fort-drum-jacob-ashton-murder.html
+**America Loves a Coach. Should We Vote for One?**\
+`No one can resist the inspiring allure of “clear eyes, full hearts, can’t lose.” But politics can require a different skill set.`\
+https://nytimes.com/2024/08/15/opinion/tim-walz-coach-friday-night-lights.html
 
-**F1’s Jessica Hawkins sees motorsports milestones ahead for women, LGBTQ+ inclusivity**\
-`Hawkins is not only an advocate for girls and women within the sport but a leading voice when it comes to LGBTQ+ inclusivity.`\
-https://nytimes.com/athletic/5650259/2024/08/15/jessica-hawkins-f1-motorsports-women-lgbtq/
+**Discovering Life on Mars Should Be NASA’s Top Priority**\
+`Sending humans to other worlds is not a worthless goal. But this achievement would pale in comparison to discovering whether or not we are alone.`\
+https://nytimes.com/live/2024/08/13/opinion/thepoint/water-mars-life
 
-**In South Korea, Documenting a Divide Over Work-Life Balance**\
-`The reporter Jin Yu Young wrote about companies that have pushed their managers to work longer hours, a move that has not gone over well with some young people in the country.`\
-https://nytimes.com/2024/08/15/insider/south-korea-labor.html
+**San Francisco Moves to Lead Fight Against Deepfake Nudes**\
+`City Attorney David Chiu has filed a lawsuit seeking to permanently shutter 16 popular websites that turn images of real girls and women into pornography.`\
+https://nytimes.com/2024/08/15/us/deepfake-pornography-lawsuit-san-francisco.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/08/15/crosswords/spelling-bee-forum.html
+**36 Hours in Provincetown, Mass.**\
+`P-town offers overlapping identities: one of America’s oldest art colonies, nature preserve, thriving L.G.B.T.Q. resort and historic Portuguese fishing village.`\
+https://nytimes.com/interactive/2024/08/15/travel/things-to-do-provincetown.html
 
