@@ -1,3 +1,7 @@
+**Postecoglou's second seasons - what history and the data tell us to expect**\
+`Postecoglou's first year at Tottenham felt like the club hitting the reset button. So what does his career suggest the second will be like?`\
+https://nytimes.com/athletic/5700206/2024/08/15/ange-postecoglou-second-season-tottenham/
+
 **Crystal Palace season preview: Olise's gone, Glasner stayed, Wharton to break out**\
 `Crystal Palace begin their new Premier League campaign at the weekend when they face Brentford`\
 https://nytimes.com/athletic/5697909/2024/08/15/crystal-palace-premier-league-preview/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5700872/2024/08/15/joshua-zirkzee-manchester-united
 **Back-post runs, athleticism and duel winning: What Merino would bring to Arsenal**\
 `The Real Sociedad and Spain midfielder could be heading to Arsenal - this is why they want him and what they would be getting`\
 https://nytimes.com/athletic/5658173/2024/08/15/mikel-merino-arsenal-tactical-fit/
-
-**How Slot could learn from Dutch managers' unhappy Premier League history**\
-`As Liverpool's new manager prepares for his debut campaign, what could he learn from compatriots who tried - and failed - in England`\
-https://nytimes.com/athletic/5506610/2024/08/15/arne-slot-dutch-managers-premier-league/
 
