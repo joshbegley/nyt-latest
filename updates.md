@@ -1,3 +1,11 @@
+**The Pulse: Overnight USMNT coach news**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5701984/2024/08/15/vikings-jj-mccarthy-addison-injury-the-pulse/
+
+**Ukraine Hits Russian Airfields as It Presses Cross-Border Assault**\
+`At least two of the airfields it struck are near Kursk, where Ukrainian troops have been advancing.`\
+https://nytimes.com/2024/08/15/world/europe/russia-ukraine-airfields-kursk.html
+
 **Lawsuit seeks to allow Canadian Hockey League players to play in NCAA. Here's what it means**\
 `A proposed class-action lawsuit alleges that the NCAA is violating antitrust laws by preventing CHL from competing for NCAA teams.. `\
 https://nytimes.com/athletic/5701011/2024/08/15/ncaa-chl-rule-lawsuit/
