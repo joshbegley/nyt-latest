@@ -1,3 +1,11 @@
+**Illinois Woman Is Sentenced to Nine Years for Stealing $1.5 Million in Chicken Wings**\
+`Vera Liddell, 68, pleaded guilty to felony theft for stealing more than 11,000 cases of chicken wings valued at $1.5 million, the Cook County State’s Attorney’s Office said.`\
+https://nytimes.com/2024/08/14/us/chicago-school-chicken-wings-theft.html
+
+**Kennedy Sought a Meeting With Harris to Discuss a Cabinet Post**\
+`Robert F. Kennedy Jr. was unsuccessful with his request to discuss endorsing the Democratic nominee in exchange for a top administration job, according to two people briefed on the outreach.`\
+https://nytimes.com/2024/08/14/us/politics/rfk-jr-kamala-harris-cabinet-meeting.html
+
 **Rolling Padres keep pace with Diamondbacks while claiming, and proving, narrow focus**\
 `The past few weeks have revealed a team that is blending preparation, execution and good fortune to exceed all expectations, except its own.`\
 https://nytimes.com/athletic/5701108/2024/08/14/padres-success-post-all-star-break/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5701639/2024/08/14/dallas-cowboys-joint-practice-tr
 **Blazers leaving local RSN highlights growing trend among NBA teams**\
 `NBA teams have slowly started to walk away from cable TV amid the uncertainty of regional sports networks in recent years.`\
 https://nytimes.com/athletic/5701918/2024/08/14/trail-blazers-tv-partner-nba/
-
-**J.J. McCarthy is done for the season, and the Vikings are left to pick up the pieces**\
-`It's a similar refrain for Vikings fans after Wednesday's news on their rookie quarterback: You just hope it’s not one of those years.`\
-https://nytimes.com/athletic/5701828/2024/08/14/jj-mccarthy-vikings-injury-season/
-
-**Jewish Man Charged With Hate Crimes in Attacks on Muslim Neighbor**\
-`Izak Kadosh faces more than 40 charges, including attempted murder and aggravated assault. Prosecutors said the attacks, in Brooklyn, went on for months.`\
-https://nytimes.com/2024/08/14/nyregion/brooklyn-hate-crimes.html
 
