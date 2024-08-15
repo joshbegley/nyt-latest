@@ -1,3 +1,7 @@
+**Why Harris’s Crowds Rattled Trump**\
+`The numbers game has long been important to former President Donald J. Trump. Now he is facing a political opponent whose rally turnouts can rival his. Shawn McCreesh, political reporter, explains why the size of Kamala Harris’s crowds has unnerved Mr. Trump.`\
+https://nytimes.com/video/us/elections/100000009626971/why-harriss-crowds-rattled-trump.html
+
 **Bucks schedule takeaways: When are key matchups against East's best?**\
 `One unusual aspect of Milwaukee's schedule next season: No game on Christmas.`\
 https://nytimes.com/athletic/5703338/2024/08/15/milwaukee-bucks-2024-nba-regular-season-schedule/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5703477/2024/08/15/anthony-edwards-minnesota-timber
 **Biden and Harris Made a Joint Appearance**\
 `Also, Ukraine said it had captured a Russian town. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/08/15/briefing/biden-harris-joint-appearance-ukraine-advance-russia.html
-
-**Coco Gauff loses in final tournament before US Open**\
-`The American will now be seeded No 3 at the upcoming US Open`\
-https://nytimes.com/athletic/5704009/2024/08/15/coco-gauff-cincinnati-putintseva-tennis/
 
