@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5698038/2024/08/15/mauricio-pochettino-usmnt-world-cup/
 
 **2026 Prices for Drugs That Are Subject to Negotiations**\
-`The prices were made possible by the Inflation Reduction Act, which granted the health and human services secretary the authority to negotiate on behalf of Medicare.`\
+`The prices were made possible by the Inflation Reduction Act, which granted the health secretary the authority to negotiate on behalf of Medicare.`\
 https://nytimes.com/2024/08/15/us/politics/drug-prices-medicare-negotiations.html
 
 **Is the Warriors front office failing Steph Curry?**\
