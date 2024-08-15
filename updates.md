@@ -1,3 +1,7 @@
+**Cowboys CB Trevon Diggs returns, makes a play and 'felt good' in joint practice**\
+`Trevon Diggs intercepted a pass and Micah Parsons dominated, but the red zone defense struggled and the offense had ball security issues.`\
+https://nytimes.com/athletic/5701639/2024/08/14/dallas-cowboys-joint-practice-trevon-diggs-rams/
+
 **Blazers leaving local RSN highlights growing trend among NBA teams**\
 `NBA teams have slowly started to walk away from cable TV amid the uncertainty of regional sports networks in recent years.`\
 https://nytimes.com/athletic/5701918/2024/08/14/trail-blazers-tv-partner-nba/
