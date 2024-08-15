@@ -1,3 +1,7 @@
+**Liverpool season preview: No signings, Salah's (possible) swansong... but Slot looks ready**\
+`Can new coach Slot fill Klopp's shoes? Who could be their 2024-25 breakthrough star? And who is in the best XI?`\
+https://nytimes.com/athletic/5700826/2024/08/15/liverpool-premier-league-season-preview/
+
 **Tim Walz and JD Vance Agree to Vice-Presidential Debate**\
 `The running mates of the presidential candidates will face off on CBS on Oct. 1.`\
 https://nytimes.com/2024/08/15/us/politics/walz-vance-vp-debate-cbs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5702614/2024/08/15/yves-bissouma-tottenham-suspende
 **Anthony Edwards' Olympic experience couldn't have been better for him or the Wolves**\
 `Edwards contributed to Team USA's gold medal, and he soaked up wisdom from NBA legends in the process. That can only help him.`\
 https://nytimes.com/athletic/5696739/2024/08/15/anthony-edwards-olympics-timberwolves/
-
-**Bournemouth agree €47m deal to sign Porto striker Evanilson**\
-`Bournemouth have agreed a deal worth in the region of €47million (£40.`\
-https://nytimes.com/athletic/5702531/2024/08/15/bournemouth-evanilson-agree-deal-transfer-porto/
 

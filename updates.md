@@ -1,3 +1,7 @@
+**Liverpool season preview: No signings, Salah's (possible) swansong... but Slot looks ready**\
+`Can new coach Slot fill Klopp's shoes? Who could be their 2024-25 breakthrough star? And who is in the best XI?`\
+https://nytimes.com/athletic/5700826/2024/08/15/liverpool-premier-league-season-preview/
+
 **Tim Walz and JD Vance Agree to Vice-Presidential Debate**\
 `The running mates of the presidential candidates will face off on CBS on Oct. 1.`\
 https://nytimes.com/2024/08/15/us/politics/walz-vance-vp-debate-cbs.html
