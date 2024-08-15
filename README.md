@@ -1,3 +1,7 @@
+**Democrats Lean Into Liberty and the Language of Republicans**\
+`Kamala Harris and her allies are using traditionally right-leaning messaging to argue that Republicans threaten fundamental freedoms. “Mind your own damn business!” Tim Walz recently said.`\
+https://nytimes.com/2024/08/15/us/politics/harris-walz-democrats-language.html
+
 **What to Know About the Latest Social Security Number Breach**\
 `Hackers may have gained access to the private information of millions of people from a background check company called National Public Data. Should you be worried? We have some advice.`\
 https://nytimes.com/2024/08/15/business/social-security-numbers-stolen-hack.html
@@ -33,8 +37,4 @@ https://nytimes.com/topic/john-a-catsimatidis
 **Ukraine’s Incursion Into Russia Reveals a Dramatic Shift**\
 `The offensive was developed in secret, devised to divert Russian troops away from the front lines in Ukraine and seize territory to use as a bargaining chip.`\
 https://nytimes.com/2024/08/15/us/politics/ukraine-incursion-russia-kursk.html
-
-**Appointments policy for English referees to be published for first time**\
-`The policy that helps inform which match officials are chosen to appoint games in the Premier League, English Football League and Women&#8217;s Super League has been published for the first time.`\
-https://nytimes.com/athletic/5703288/2024/08/15/premier-league-referees-efl-wsl-pgmol/
 
