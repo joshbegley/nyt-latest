@@ -1,3 +1,15 @@
+**Wind Beat Coal Two Months in a Row for U.S. Electricity Generation**\
+`The shift occurred as the cost of wind power and other renewable energy is rapidly declining and coal is being pushed out by natural gas.`\
+https://nytimes.com/2024/08/15/climate/wind-power-coal.html
+
+**De Ligt, Mazraoui will be in squad to face Fulham, Ten Hag confirms**\
+`Manchester United manager Erik ten Hag has confirmed new signings Matthijs De Ligt and Noussair Mazraoui will be in the squad to face Fulham in their opening Premier League game on Friday.`\
+https://nytimes.com/athletic/5703038/2024/08/15/man-utd-team-news-de-ligt-mazraoui/
+
+**Menendez Will Be Replaced in Senate by Murphy Loyalist**\
+`Gov. Philip Murphy has selected George Helmy, his former chief of staff, to finish Senator Robert Menendez’s term, passing over Representative Andy Kim, the Democratic nominee.`\
+https://nytimes.com/2024/08/15/nyregion/menendez-george-helmy-senate-seat.html
+
 **Reus joins the LA Galaxy on a free transfer**\
 `Former Borussia Dortmund midfielder Marco Reus has joined the LA Galaxy on a free transfer.`\
 https://nytimes.com/athletic/5643520/2024/08/15/marco-reus-la-galaxy-transfer/
