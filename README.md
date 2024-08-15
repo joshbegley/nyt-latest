@@ -1,3 +1,7 @@
+**Why Liverpool want Mamardashvili - the 'Georgian Wall' coveted across Europe**\
+`Lightning reflexes, capable at crosses and an expert shot-stopper - no wonder Anfield executives admire Valencia's No 1`\
+https://nytimes.com/athletic/5700821/2024/08/15/liverpool-giorgi-mamardashvili-transfer-profile/
+
 **Which young players could make this year's Flames roster? Mailbag, part 2**\
 `Also: How will veterans like MacKenzie Weegar and Nazem Kadri handle the rebuild? Are the Flames headed in the right direction?`\
 https://nytimes.com/athletic/5689767/2024/08/15/flames-prospects-honzek-weegar-kadri-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5702364/2024/08/15/sonia-bompastor-chelsea-first-im
 **Day 1 of Browns-Vikings joint practices featured physicality from both teams**\
 `Plus, quarterback Deshaun Watson gets his first action against an opposing team since his season-ending shoulder injury last year. `\
 https://nytimes.com/athletic/5701760/2024/08/15/cleveland-browns-minnesota-vikings-joint-practice/
-
-**The Pulse: Overnight USMNT coach news**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5701984/2024/08/15/vikings-jj-mccarthy-addison-injury-the-pulse/
 
