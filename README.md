@@ -1,3 +1,11 @@
+**Judge Finds Flaws in New York City’s Cannabis Enforcement Efforts**\
+`The city has appealed the judge’s ruling in favor of a convenience store in Queens that could have broader implications for enforcement.`\
+https://nytimes.com/2024/08/15/nyregion/nyc-marijuana-enforcement.html
+
+**Milan close to signing Monaco midfielder Fofana**\
+`Milan are close to completing the signing of midfielder Youssouf Fofana from Monaco in a deal worth around €25million (£21.`\
+https://nytimes.com/athletic/5674068/2024/08/15/youssouf-fofana-milan-transfer/
+
 **Sydney Lemmon Puts the Twisted Humanity Behind Tech on Broadway**\
 `After a small part in “Succession,” the actor has a breakout role in “Job,” in which she plays a content moderator having a mental breakdown.`\
 https://nytimes.com/2024/08/15/theater/sydney-lemmon-job-broadway.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/15/world/asia/afghanistan-taliban-anniversary.html
 **‘Red Island’ Review: Madagascar Is Shifting Beneath Their Feet**\
 `Robin Campillo relies on the power of suggestion to sketch life in this former French colony, filtering it obliquely through a young white boy’s eyes.`\
 https://nytimes.com/2024/08/15/movies/red-island-review.html
-
-**Real Madrid mailbag: Your questions answered before new La Liga season**\
-`Rodrygo's future, Mbappe settling in, reinforcement options at the back and more as your questions are answered`\
-https://nytimes.com/athletic/5702433/2024/08/15/real-madrid-new-season-your-questions-answered/
-
-**Amid Heightened Security, Taylor Swift Prepares to Return to the Stage**\
-`Fans gathering at Wembley Stadium in London said they trusted British security officials to keep them safe.`\
-https://nytimes.com/2024/08/15/arts/music/taylor-swift-london-eras-tour-security.html
 
