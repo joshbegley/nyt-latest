@@ -1,3 +1,7 @@
+**Indianapolis to host 2025 WNBA All-Star Game**\
+`The game will be held at Gainbridge Fieldhouse on July 19, marking Indianapolis' first time hosting the 2025 WNBA All-Star Game.`\
+https://nytimes.com/athletic/5702704/2024/08/15/wnba-all-star-game-2025-indianapolis/
+
 **Retail Sales Beat Expectations, Easing Concerns About the Economy**\
 `Sales were up 1 percent in July from the previous month. The rise was slimmer when autos and gasoline were excluded, but market reaction was favorable.`\
 https://nytimes.com/2024/08/15/business/economy/retail-sales-july-stocks.html
