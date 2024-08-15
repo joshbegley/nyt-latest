@@ -1,3 +1,7 @@
+**In Plain Sight, Republicans Are Still Trying to Undermine the Election**\
+`They want to do their own research.`\
+https://nytimes.com/live/2024/08/13/opinion/thepoint/georgia-republican-election-board
+
 **Seth Bloom, 49, Who Brought Laughter to the Rubble of War, Dies**\
 `A virtuoso of physical comedy, he performed around the world with his wife. He also helped stage clown shows in Afghanistan.`\
 https://nytimes.com/2024/08/15/arts/seth-bloom-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/15/world/asia/medics-killing-fuels-protests-and-walk
 **Macron Honors African Soldiers Who Helped Liberate France in World War II**\
 `Two months after D-Day, an Allied force dominated by soldiers conscripted from French colonies swept into southern France. It’s a chapter of its history that France has long obscured.`\
 https://nytimes.com/2024/08/15/world/europe/france-african-soldiers-world-war-ii.html
-
-**Wind Beat Coal Two Months in a Row for U.S. Electricity Generation**\
-`The shift occurred as the cost of wind power and other renewable energy is rapidly declining and coal is being pushed out by natural gas.`\
-https://nytimes.com/2024/08/15/climate/wind-power-coal.html
 
