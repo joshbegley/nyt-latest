@@ -1,5 +1,21 @@
+**Closed for Months, a Gateway for Aid to Famine-Stricken Sudan Swings Open**\
+`Accused of blocking food aid for its starving people, Sudan’s military announced it would reopen the main border crossing with Chad, which it had closed for six months to U.N. relief trucks.`\
+https://nytimes.com/2024/08/15/world/africa/sudan-chad-adre-border-crossing-reopens.html
+
+**NBA schedule release: National TV games, big matchups, more**\
+`Five of the first seven days of the NBA season will have games televised nationally, whether on ESPN or TNT.`\
+https://nytimes.com/athletic/5703663/2024/08/15/nba-schedule-release-2024-25/
+
+**6 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/08/15/books/review/new-books-recommendations.html
+
+**Ten things from Panthers-Jets: Robert Hunt's a dawg, and a need for Stephon Gilmore?**\
+`Terrace Marshall came to play vs. the Jets, while Chuba Hubbard and Robert Hunt appear to have avoided significant injuries.`\
+https://nytimes.com/athletic/5703589/2024/08/15/carolina-panthers-injury-report-joint-practice-jets/
+
 **Man Arrested After Escalating Threats Condemning Support for Israel**\
-`A Jordanian citizen living in Orlando broke into an energy plant in Wedgefield, Fla., where he smashed equipment, causing about $700,000 in damage.`\
+`In one attack, a Jordanian man living in Orlando broke into an energy plant in Wedgefield, Fla., where he smashed equipment, causing about $700,000 in damage.`\
 https://nytimes.com/2024/08/15/us/politics/israel-florida-vandalism.html
 
 **Notre Dame suspends men's swimming team for at least 1 year**\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5703354/2024/08/15/pochettino-usmnt-tactics-world-c
 **As Oilers' clock ticks, let's look at where Broberg, Holloway would fit into Blues lineup**\
 `What would the Blues lineup look like if the Oilers don't match the team's offers for Philip Broberg and Dylan Holloway?`\
 https://nytimes.com/athletic/5700929/2024/08/15/oilers-blues-broberg-holloway-nhl/
-
-**Watch One Heartbreaking Scene to Understand Gena Rowlands’s Genius**\
-`In “A Woman Under the Influence,” her gloriously, terrifyingly imperfect Mabel was emblematic of the actress’s work, especially with John Cassavetes.`\
-https://nytimes.com/2024/08/15/movies/gena-rowlands-a-woman-under-the-influence.html
-
-**Intuit Dome, new home of LA Clippers, officially opens**\
-`Intuit Dome has five basketball courts and the exterior of the building is designed to look like a basketball net.`\
-https://nytimes.com/athletic/5701069/2024/08/15/intuit-dome-clippers-opening/
-
-**Harris Gonna Code Switch**\
-`It’s normal for people, especially Black Americans, to dip into colloquial speech depending on whom they’re talking to.`\
-https://nytimes.com/2024/08/15/opinion/harris-code-switch.html
-
-**Issa Hayatou, ‘the Emperor of African Soccer,’ Dies at 77**\
-`In his posts atop the governing bodies for African and global soccer, he fought to establish the continent as an equal to Europe and South America.`\
-https://nytimes.com/2024/08/15/sports/soccer/issa-hayatou-dead.html
 
