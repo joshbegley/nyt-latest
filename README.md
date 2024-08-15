@@ -1,3 +1,7 @@
+**Friday Briefing: Ukraine Takes a Russian Town**\
+`Plus, with one room, Brazil confronts its racist past.`\
+https://nytimes.com/2024/08/15/briefing/ukraine-incursion-russia-mpox-sweden-harris-biden.html
+
 **Harvard Settles Lawsuit Over Claims of Sexual Harassment by a Professor**\
 `Three students sued the university in 2022 over its response to reports of sexual harassment by John Comaroff, a renowned anthropology professor.`\
 https://nytimes.com/2024/08/15/education/harvard-settlement-john-comaroff.html
@@ -34,8 +38,4 @@ https://nytimes.com/2024/08/15/us/texas-state-fair-guns-paxton.html
 **Seahawks' defense shows big-play potential in bounce-back practice vs. Titans**\
 `Devon Witherspoon made practice's biggest play (and then taunted ex-teammate Jamal Adams), but he was hardly the only one who shined.`\
 https://nytimes.com/athletic/5703680/2024/08/15/seahawks-titans-joint-practices-defense/
-
-**Where to Eat Near a Body of Water**\
-`Yes, summer is starting to wane. Enjoy those fried seafood shacks and outdoor oyster bars now.`\
-https://nytimes.com/2024/08/15/dining/where-to-eat-near-a-body-of-water.html
 
