@@ -1,3 +1,7 @@
+**Walker Buehler returns to the Dodgers with familiar problems: 'Got to get the production'**\
+`The Dodgers will be patient with Buehler. But how patient?`\
+https://nytimes.com/athletic/5702178/2024/08/15/walker-buehler-returns-dodgers/
+
 **Fantasy football IDP league insights: Draft strategy; plus, sleepers and busts**\
 `Gary Davenport offers up advice for IDP leaguers, including draft strategy, and his top picks for sleepers and busts on the defensive side.`\
 https://nytimes.com/athletic/5701508/2024/08/15/idp-fantasy-football-2024-strategy-sleepers-busts/

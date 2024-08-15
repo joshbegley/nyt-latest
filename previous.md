@@ -1,3 +1,7 @@
+**Walker Buehler returns to the Dodgers with familiar problems: 'Got to get the production'**\
+`The Dodgers will be patient with Buehler. But how patient?`\
+https://nytimes.com/athletic/5702178/2024/08/15/walker-buehler-returns-dodgers/
+
 **Fantasy football IDP league insights: Draft strategy; plus, sleepers and busts**\
 `Gary Davenport offers up advice for IDP leaguers, including draft strategy, and his top picks for sleepers and busts on the defensive side.`\
 https://nytimes.com/athletic/5701508/2024/08/15/idp-fantasy-football-2024-strategy-sleepers-busts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5630962/2024/08/15/brighton-season-preview-2024-202
 **The story of Forest's pursuit of Ramon Sosa - and what he could add to the team**\
 `The Sosa saga explained`\
 https://nytimes.com/athletic/5698840/2024/08/15/ramon-sosa-nottingham-forest/
-
-**Aston Villa season preview: Anticipating Maatsen, Philogene returns, but light in central defence**\
-`What to expect from Villa as 2024-25 begins, bringing with it a return to the big-boy table of European football at last`\
-https://nytimes.com/athletic/5630928/2024/08/15/aston-villa-season-preview-2024-25/
 
