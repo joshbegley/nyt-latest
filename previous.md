@@ -1,3 +1,7 @@
+**As Cardinals drop below .500, their road to the playoffs is on the line**\
+`On the brink of fading, the Cardinals face the second-hardest remaining schedule in the NL to close out the regular season.`\
+https://nytimes.com/athletic/5702789/2024/08/15/cardinals-mlb-wild-card-race/
+
 **In Plain Sight, Republicans Are Still Trying to Undermine the Election**\
 `They want to do their own research.`\
 https://nytimes.com/live/2024/08/13/opinion/thepoint/georgia-republican-election-board
@@ -19,7 +23,7 @@ https://nytimes.com/2024/08/15/well/pap-smear-cervical-cancer-test-alternative.h
 https://nytimes.com/athletic/5702551/2024/08/15/denver-broncos-alternate-broadcast-aqib-talib-chris-harris/
 
 **How Did Mpox Become a Global Emergency? What’s Next?**\
-`The virus is evolving, and the newest version spreads more often through heterosexual populations. But the vaccines should still work.`\
+`The virus is evolving, and the newest version spreads more often through heterosexual populations. Sweden reported the first case outside Africa.`\
 https://nytimes.com/2024/08/15/health/mpox-emergency-vaccines-treatments.html
 
 **Alan Gustafson reflects on milestone as NASCAR crew chief**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5702757/2024/08/15/oilers-offer-sheets-broberg-holl
 **Medic’s Killing Fuels Protests and Walkouts in India**\
 `The death and apparent rape of a physician trainee reignited rage over violence against women and prompted nationwide protests by colleagues.`\
 https://nytimes.com/2024/08/15/world/asia/medics-killing-fuels-protests-and-walkouts-in-india.html
-
-**Macron Honors African Soldiers Who Helped Liberate France in World War II**\
-`Two months after D-Day, an Allied force dominated by soldiers conscripted from French colonies swept into southern France. It’s a chapter of its history that France has long obscured.`\
-https://nytimes.com/2024/08/15/world/europe/france-african-soldiers-world-war-ii.html
 

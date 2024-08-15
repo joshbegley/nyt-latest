@@ -1,3 +1,11 @@
+**As Cardinals drop below .500, their road to the playoffs is on the line**\
+`On the brink of fading, the Cardinals face the second-hardest remaining schedule in the NL to close out the regular season.`\
+https://nytimes.com/athletic/5702789/2024/08/15/cardinals-mlb-wild-card-race/
+
+**How Did Mpox Become a Global Emergency? What’s Next?**\
+`The virus is evolving, and the newest version spreads more often through heterosexual populations. Sweden reported the first case outside Africa.`\
+https://nytimes.com/2024/08/15/health/mpox-emergency-vaccines-treatments.html
+
 **In Plain Sight, Republicans Are Still Trying to Undermine the Election**\
 `They want to do their own research.`\
 https://nytimes.com/live/2024/08/13/opinion/thepoint/georgia-republican-election-board
