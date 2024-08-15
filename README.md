@@ -1,3 +1,7 @@
+**How Well Do You Know Your Disaster Movies?**\
+`From “Armageddon” to “The Towering Inferno,” a look back at decades of movie catastrophe.`\
+https://nytimes.com/interactive/2024/08/15/movies/disaster-movies.html
+
 **You’re Only as Smart as Your Emotions**\
 `We now understand that our emotions are often wise. The problem is that our culture and our institutions haven’t caught up with our knowledge.`\
 https://nytimes.com/2024/08/15/opinion/emotions-feelings-intelligence.html
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/5703582/2024/08/15/new-york-jets-carolina-panthers-
 **Bad Bunny agency case to stay with arbitrator**\
 `The judge said the dispute belongs in arbitration, which is what the union wanted when the agency asked the court to intervene.`\
 https://nytimes.com/athletic/5703790/2024/08/15/bad-bunny-mlbpa-agency-case-arbitrator/
-
-**Atlanta Falcons signing Pro Bowl safety Justin Simmons**\
-`By Josh Kendall, Dianna Russini and Jeff Howe
-The Atlanta Falcons are signing Pro Bowl safety Justin Simmons.`\
-https://nytimes.com/athletic/5703554/2024/08/15/atlanta-falcons-sign-justin-simmons/
 
