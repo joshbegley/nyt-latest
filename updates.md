@@ -1,3 +1,7 @@
+**Is the Warriors front office failing Steph Curry?**\
+`Curry has shown he can still rise above on the largest stage but the current Warriors roster still presents one glaring flaw. `\
+https://nytimes.com/athletic/5684308/2024/08/15/warriors-steph-curry-future-roster/
+
 **Liverpool season preview: No signings, Salah's (possible) swansong... but Slot looks ready**\
 `Can new coach Slot fill Klopp's shoes? Who could be their 2024-25 breakthrough star? And who is in the best XI?`\
 https://nytimes.com/athletic/5700826/2024/08/15/liverpool-premier-league-season-preview/
