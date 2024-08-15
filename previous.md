@@ -1,3 +1,7 @@
+**Gena Rowlands: A Life in Pictures**\
+`The late actress might have followed in the path of so many other studio-system bombshells. But in one explosive performance after another, Ms. Rowlands proved she had more to offer.`\
+https://nytimes.com/2024/08/15/style/gena-rowlands-photos-notebook.html
+
 **Authorities Charge Five People For Giving Matthew Perry Ketamine**\
 `Matthew Perry’s personal assistant, two doctors and two others have been indicted and charged with providing the ketamine that caused his death.`\
 https://nytimes.com/video/us/100000009631767/matthew-perry-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5703445/2024/08/15/espn-fires-robert-griffin/
 **Harris Plans to Ban Grocery ‘Price Gouging.’ What Does the Evidence Say?**\
 `Price increases when demand exceeds supply are textbook economics. The question is whether, and how much, the pandemic yielded an excess take.`\
 https://nytimes.com/2024/08/15/business/economy/kamala-harris-inflation-price-gouging.html
-
-**Man City set to sign Mubama following West Ham exit**\
-`Manchester City are set to complete the signing of 19-year-old forward Divin Mubama following his departure from West Ham United.`\
-https://nytimes.com/athletic/5703337/2024/08/15/divin-mubama-manchester-city-transfer/
 

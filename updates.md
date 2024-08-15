@@ -1,3 +1,7 @@
+**Gena Rowlands: A Life in Pictures**\
+`The late actress might have followed in the path of so many other studio-system bombshells. But in one explosive performance after another, Ms. Rowlands proved she had more to offer.`\
+https://nytimes.com/2024/08/15/style/gena-rowlands-photos-notebook.html
+
 **Authorities Charge Five People For Giving Matthew Perry Ketamine**\
 `Matthew Perry’s personal assistant, two doctors and two others have been indicted and charged with providing the ketamine that caused his death.`\
 https://nytimes.com/video/us/100000009631767/matthew-perry-death.html
