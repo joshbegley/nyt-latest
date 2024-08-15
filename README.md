@@ -1,3 +1,31 @@
+**Sydney Lemmon Puts the Twisted Humanity Behind Tech on Broadway**\
+`After a small part in “Succession,” the actor has a breakout role in “Job,” in which she plays a content moderator having a mental breakdown.`\
+https://nytimes.com/2024/08/15/theater/sydney-lemmon-job-broadway.html
+
+**Man Utd's Snapdragon shirt sponsor deal extended by two years**\
+`Manchester United sponsor Qualcomm has triggered its two-year extension option on its front-of-shirt deal with the Premier League club.`\
+https://nytimes.com/athletic/5702630/2024/08/15/manchester-united-snapdragon-qualcomm-shirt-sponsor/
+
+**This Classic Corn Chowder Is Quite Resourceful**\
+`Save the cobs to form the base of your broth, and use what you’ve got — swap coconut milk for the cream, maybe, or rice for the potato.`\
+https://nytimes.com/2024/08/15/dining/this-classic-corn-chowder-is-quite-resourceful.html
+
+**For the Man Who Plays Lafayette, It’s a Marquis Event**\
+`America’s favorite fighting Frenchman arrived for a farewell tour in 1824. A yearlong commemoration kicks off this week, and the country’s pre-eminent “Lafayette” is ready.`\
+https://nytimes.com/2024/08/15/arts/lafayatte-marquis-american-revolution.html
+
+**Beware the Toxic and Explosive Blue Backpack This Termite Carries**\
+`Scientists studied the unusual chemical reaction used by a species of the insect in an act of self-sacrifice to save nests from invaders.`\
+https://nytimes.com/2024/08/15/science/exploding-termites-toxins.html
+
+**From Here to Eternity, a Choreographer Sinks Into the Sea**\
+`Faye Driscoll uses the ocean as her collaborator in a sunset dance celebrating the 10th anniversary of Beach Sessions.`\
+https://nytimes.com/2024/08/15/arts/dance/beach-sessions-rockaway-faye-driscoll.html
+
+**On Anniversary of Taliban Takeover, Glee, Mourning and an Embrace of Jihad**\
+`Celebrations marking the third year since the U.S. withdrawal are amplifying a divide in Afghanistan over what principles it should be governed by.`\
+https://nytimes.com/2024/08/15/world/asia/afghanistan-taliban-anniversary.html
+
 **‘Red Island’ Review: Madagascar Is Shifting Beneath Their Feet**\
 `Robin Campillo relies on the power of suggestion to sketch life in this former French colony, filtering it obliquely through a young white boy’s eyes.`\
 https://nytimes.com/2024/08/15/movies/red-island-review.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/5702433/2024/08/15/real-madrid-new-season-your-ques
 **Amid Heightened Security, Taylor Swift Prepares to Return to the Stage**\
 `Fans gathering at Wembley Stadium in London said they trusted British security officials to keep them safe.`\
 https://nytimes.com/2024/08/15/arts/music/taylor-swift-london-eras-tour-security.html
-
-**Peacock's 'Gold Zone' returning for 2028 Games**\
-`"Gold Zone" ranked in the top five most-watched Olympic titles on Peacock and was a technological success given all the elements at play.`\
-https://nytimes.com/athletic/5702878/2024/08/15/gold-zone-peacock-olympics-2028/
-
-**N.J. Transit Says Thank You, and Sorry, With a Week of Free Rides**\
-`After a spate of breakdowns that caused long delays, an unscheduled “fare holiday” on the statewide transit network will start on Aug. 26.`\
-https://nytimes.com/2024/08/15/nyregion/nj-transit-fare-holiday-murphy.html
-
-**Arrest Made in Investigation Into Matthew Perry’s Death**\
-`Law enforcement agencies have been working to identify the source of the ketamine that led to the “Friends” star’s death.`\
-https://nytimes.com/2024/08/15/arts/television/matthew-perry-charges-ketamine.html
-
-**Who is Pochettino? Is this a coup for the USMNT? Will it help them at World Cup?**\
-`Argentinian Pochettino has agreed to become the next USMNT head coach - this is everything you need to know about him`\
-https://nytimes.com/athletic/5698038/2024/08/15/mauricio-pochettino-usmnt-world-cup/
-
-**2026 Prices for Drugs That Are Subject to Negotiations**\
-`The prices were made possible by the Inflation Reduction Act, which granted the health secretary the authority to negotiate on behalf of Medicare.`\
-https://nytimes.com/2024/08/15/us/politics/drug-prices-medicare-negotiations.html
-
-**Is the Warriors front office failing Steph Curry?**\
-`Curry has shown he can still rise above on the largest stage but the current Warriors roster still presents one glaring flaw. `\
-https://nytimes.com/athletic/5684308/2024/08/15/warriors-steph-curry-future-roster/
-
-**Liverpool season preview: No signings, Salah's (possible) swansong... but Slot looks ready**\
-`Can new coach Slot fill Klopp's shoes? Who could be their 2024-25 breakthrough star? And who is in the best XI?`\
-https://nytimes.com/athletic/5700826/2024/08/15/liverpool-premier-league-season-preview/
 
