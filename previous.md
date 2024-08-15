@@ -1,3 +1,7 @@
+**Bucks schedule takeaways: When are key matchups against East's best?**\
+`One unusual aspect of Milwaukee's schedule next season: No game on Christmas.`\
+https://nytimes.com/athletic/5703338/2024/08/15/milwaukee-bucks-2024-nba-regular-season-schedule/
+
 **Eric Adams and His Campaign Receive Subpoenas in Federal Investigation**\
 `A new round of federal grand jury subpoenas in the investigation of Mayor Eric Adams and his 2021 fund-raising seeks a wide range of information.`\
 https://nytimes.com/2024/08/15/nyregion/eric-adams-fbi-investigation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/15/briefing/biden-harris-joint-appearance-ukraine-ad
 **Coco Gauff loses in final tournament before US Open**\
 `The American will now be seeded No 3 at the upcoming US Open`\
 https://nytimes.com/athletic/5704009/2024/08/15/coco-gauff-cincinnati-putintseva-tennis/
-
-**Why 49ers’ quarterback Joshua Dobbs has a rugby routine before every practice**\
-`Dobbs, Brandon Allen and especially Brock Purdy looked sharp in the 49ers' longest and most intense practice of the week Thursday.`\
-https://nytimes.com/athletic/5703939/2024/08/15/joshua-dobbs-49ers-rugby-practice/
 

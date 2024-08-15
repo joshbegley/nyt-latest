@@ -1,3 +1,7 @@
+**Bucks schedule takeaways: When are key matchups against East's best?**\
+`One unusual aspect of Milwaukee's schedule next season: No game on Christmas.`\
+https://nytimes.com/athletic/5703338/2024/08/15/milwaukee-bucks-2024-nba-regular-season-schedule/
+
 **Coco Gauff loses in final tournament before US Open**\
 `The American will now be seeded No 3 at the upcoming US Open`\
 https://nytimes.com/athletic/5704009/2024/08/15/coco-gauff-cincinnati-putintseva-tennis/
