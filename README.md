@@ -1,3 +1,7 @@
+**Yankees' Judge hits his 300th career home run**\
+`Judge reached the milestone in the fewest number of games and at-bats than any other player in MLB history. `\
+https://nytimes.com/athletic/5696441/2024/08/14/yankees-aaron-judge-300-home-runs/
+
 **Where Lines May Be Drawn in the Sand**\
 `Damon Gulczynski wants to make sure you’re paying attention.`\
 https://nytimes.com/2024/08/14/crosswords/daily-puzzle-2024-08-15.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/14/nyregion/federal-audit-orders-mta-to-improve-trac
 **Chargers training camp, Day 17: Tre'Mon Morris-Brash seizing opportunity**\
 `Chris Rumph II's injury could open a spot for Morris-Brash, who has flashed in recent camp practices and the first preseason game.`\
 https://nytimes.com/athletic/5701965/2024/08/14/chargers-training-camp-tremon-morris-brash/
-
-**Cowboys CB Trevon Diggs returns, makes a play and 'felt good' in joint practice**\
-`Trevon Diggs intercepted a pass and Micah Parsons dominated, but the red zone defense struggled and the offense had ball security issues.`\
-https://nytimes.com/athletic/5701639/2024/08/14/dallas-cowboys-joint-practice-trevon-diggs-rams/
 
