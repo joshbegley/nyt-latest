@@ -1,3 +1,7 @@
+**ESPN fires Robert Griffin III: Sources**\
+`Griffin, who as recently as last year had been viewed as a rising star at ESPN, had two years remaining on his deal.`\
+https://nytimes.com/athletic/5703445/2024/08/15/espn-fires-robert-griffin/
+
 **Harris Plans to Ban Grocery ‘Price Gouging.’ What Does the Evidence Say?**\
 `Price increases when demand exceeds supply are textbook economics. The question is whether, and how much, the pandemic yielded an excess take.`\
 https://nytimes.com/2024/08/15/business/economy/kamala-harris-inflation-price-gouging.html
@@ -33,8 +37,4 @@ https://nytimes.com/topic/miguel-a.-cardona
 **Camille A Brown**\
 `News about Camille A Brown. Commentary and archival information about Camille A Brown from The New York Times.`\
 https://nytimes.com/topic/camille-a-brown
-
-**Trump Seeks to Delay His Sentencing Until After Election**\
-`Donald J. Trump, who has routinely sought delays in his four criminal cases, wants to use the extra time to fight his conviction on 34 felony counts in Manhattan.`\
-https://nytimes.com/2024/08/15/nyregion/trump-delay-sentencing-election.html
 
