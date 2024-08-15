@@ -1,3 +1,7 @@
+**2026 Prices for Drugs That Are Subject to Negotiations**\
+`The prices were made possible by the Inflation Reduction Act, which granted the health secretary the authority to negotiate on behalf of Medicare.`\
+https://nytimes.com/2024/08/15/us/politics/drug-prices-medicare-negotiations.html
+
 **Who is Pochettino? Is this a coup for the USMNT? Will it help them at World Cup?**\
 `Argentinian Pochettino has agreed to become the next USMNT head coach - this is everything you need to know about him`\
 https://nytimes.com/athletic/5698038/2024/08/15/mauricio-pochettino-usmnt-world-cup/
