@@ -1,5 +1,5 @@
 **Man Arrested After Escalating Threats Condemning Support for Israel**\
-`In one attack, the man broke into an energy plant in Wedgefield, Fla., where he smashed panels, cut wires and busted electronic equipment — causing about $700,000 in damage.`\
+`In one attack, a Jordanian citizen broke into an energy plant in Wedgefield, Fla., where he smashed panels, cut wires and busted electronic equipment — causing about $700,000 in damage.`\
 https://nytimes.com/2024/08/15/us/politics/israel-florida-vandalism.html
 
 **Notre Dame suspends men's swimming team over internal gambling violations**\
