@@ -1,3 +1,11 @@
+**Seth Bloom, 49, Who Brought Laughter to the Rubble of War, Dies**\
+`A virtuoso of physical comedy, he performed around the world with his wife. He also helped stage clown shows in Afghanistan.`\
+https://nytimes.com/2024/08/15/arts/seth-bloom-dead.html
+
+**Nuno fined, given suspended ban for VAR criticism following Everton defeat**\
+`The Football Association (FA) has fined Nuno Espirito Santo £40,000 after he questioned the integrity of match officials following Nottingham Forest&#8217;s 2-0 defeat to Everton last season.`\
+https://nytimes.com/athletic/5703050/2024/08/15/nuno-espirito-santo-fine-forest-everton/
+
 **An Alternative to the Pap Smear is Here, No Speculum Required**\
 `Starting this fall, women will be able to use a simple swab to screen for cervical cancer. The method offers an alternative to a procedure that many dread — and promises to address disparities in who develops the disease.`\
 https://nytimes.com/2024/08/15/well/pap-smear-cervical-cancer-test-alternative.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/15/world/europe/france-african-soldiers-world-war-ii
 **Wind Beat Coal Two Months in a Row for U.S. Electricity Generation**\
 `The shift occurred as the cost of wind power and other renewable energy is rapidly declining and coal is being pushed out by natural gas.`\
 https://nytimes.com/2024/08/15/climate/wind-power-coal.html
-
-**De Ligt, Mazraoui will be in squad to face Fulham, Ten Hag confirms**\
-`Manchester United manager Erik ten Hag has confirmed new signings Matthijs De Ligt and Noussair Mazraoui will be in the squad to face Fulham in their opening Premier League game on Friday.`\
-https://nytimes.com/athletic/5703038/2024/08/15/man-utd-team-news-de-ligt-mazraoui/
-
-**Menendez Will Be Replaced in Senate by Murphy Loyalist**\
-`Gov. Philip Murphy has selected George Helmy, his former chief of staff, to finish Senator Robert Menendez’s term, passing over Representative Andy Kim, the Democratic nominee.`\
-https://nytimes.com/2024/08/15/nyregion/menendez-george-helmy-senate-seat.html
 
