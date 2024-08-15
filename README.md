@@ -30,8 +30,8 @@ https://nytimes.com/topic/steven-a-ballmer
 `News about Lewis A Kaplan. Commentary and archival information about Lewis A Kaplan from The New York Times.`\
 https://nytimes.com/topic/lewis-a-kaplan
 
-**Judge Orders Teenager to Be Handcuffed for Her ‘Attitude’ on Field Trip to Court**\
-`Judge Kenneth King of the 36th District Court in Detroit also ordered the 15-year-old girl to change into a jail uniform.`\
+**Judge Orders Teenager to Be Handcuffed After She Fell Asleep on Field Trip to Court**\
+`Judge Kenneth King of the 36th District Court in Detroit also ordered the 15-year-old girl to change into a jail uniform. He said that the teenager had responded with “attitude.”`\
 https://nytimes.com/2024/08/15/us/detroit-judge-sleeping-teen.html
 
 **Harvard Names Conservative Legal Scholar as Permanent Provost**\
