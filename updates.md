@@ -1,3 +1,7 @@
+**Retail Sales Beat Expectations, Easing Concerns About the Economy**\
+`Sales were up 1 percent in July from the previous month. The rise was slimmer when autos and gasoline were excluded, but market reaction was favorable.`\
+https://nytimes.com/2024/08/15/business/economy/retail-sales-july-stocks.html
+
 **Spurs suspend Bissouma for PL opener after nitrous oxide video**\
 `Tottenham Hotspur have suspended midfielder Yves Bissouma for their Premier League opening match against Leicester City after footage emerged of him appearing to inhale nitrous oxide.`\
 https://nytimes.com/athletic/5702614/2024/08/15/yves-bissouma-tottenham-suspended-laughing-gas/
