@@ -1,3 +1,7 @@
+**Coco Gauff loses in final tournament before US Open**\
+`Defending US Open champion Coco Gauff is out of the Cincinnati Open after losing to Kazakhstan&#8217;s Yulia Putintseva in three sets on Thursday.`\
+https://nytimes.com/athletic/5704009/2024/08/15/coco-gauff-cincinnati-putintseva-tennis/
+
 **Why 49ers’ quarterback Joshua Dobbs has a rugby routine before every practice**\
 `Dobbs, Brandon Allen and especially Brock Purdy looked sharp in the 49ers' longest and most intense practice if the week on Thursday.`\
 https://nytimes.com/athletic/5703939/2024/08/15/joshua-dobbs-49ers-rugby-practice/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/15/opinion/emotions-feelings-intelligence.html
 **As Harris and Biden Take a Victory Lap on Drug Costs, She Sets the Pace**\
 `At their first joint public appearance since the shake-up of the Democratic ticket, the two leaders traded warm words and showed how they hope to use his legacy to slingshot her to the White House.`\
 https://nytimes.com/2024/08/15/us/politics/harris-biden-drug-prices-medicare.html
-
-**Plan to Build Thousands of Apartments Will Transform the East Bronx**\
-`The New York City Council approved a rezoning plan that will produce nearly 7,000 housing units, some of which will be offered at below-market rents, near four new commuter rail stations.`\
-https://nytimes.com/2024/08/15/nyregion/bronx-rezoning-housing-apartments.html
 
