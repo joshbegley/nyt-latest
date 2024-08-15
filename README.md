@@ -1,3 +1,7 @@
+**U.K. Economy Buoyed by Reports on Growth, Inflation and Jobs**\
+`After ending last year in a recession, Britain’s economy has so far bounced back this year.`\
+https://nytimes.com/2024/08/15/business/uk-economy-inflation-jobs.html
+
 **Mauricio Pochettino agrees to deal for USMNT head-coaching job**\
 `Pochettino has never managed a national team, but the former Tottenham and Chelsea coach has had plenty of success at club level.`\
 https://nytimes.com/athletic/5702243/2024/08/15/mauricio-pochettino-usmnt-head-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/15/opinion/iran-israel-middle-east-war.html
 **Postecoglou's second seasons - what history and the data tell us to expect**\
 `Postecoglou's first year at Tottenham felt like the club hitting the reset button. So what does his career suggest the second will be like?`\
 https://nytimes.com/athletic/5700206/2024/08/15/ange-postecoglou-second-season-tottenham/
-
-**Crystal Palace season preview: Olise's gone, Glasner stayed, Wharton to break out**\
-`Crystal Palace begin their new Premier League campaign at the weekend when they face Brentford`\
-https://nytimes.com/athletic/5697909/2024/08/15/crystal-palace-premier-league-preview/
 
