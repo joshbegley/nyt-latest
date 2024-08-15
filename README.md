@@ -1,3 +1,7 @@
+**Authorities Charge Five People For Giving Matthew Perry Ketamine**\
+`Matthew Perry’s personal assistant, two doctors and two others have been indicted and charged with providing the ketamine that caused his death.`\
+https://nytimes.com/video/us/100000009631767/matthew-perry-death.html
+
 **Columbia Remains Divided but Cautiously Optimistic as President Departs**\
 `The resignation of the Columbia University president, Nemat Shafik, was met with mixed reactions, but some on campus are optimistic for a fresh start.`\
 https://nytimes.com/2024/08/15/nyregion/columbia-university-shafik-resigns-students-faculty.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/15/business/economy/kamala-harris-inflation-price-go
 **Man City set to sign Mubama following West Ham exit**\
 `Manchester City are set to complete the signing of 19-year-old forward Divin Mubama following his departure from West Ham United.`\
 https://nytimes.com/athletic/5703337/2024/08/15/divin-mubama-manchester-city-transfer/
-
-**Leonard A. Leo**\
-`News about Leonard A. Leo. Commentary and archival information about Leonard A. Leo from The New York Times.`\
-https://nytimes.com/topic/leonard-a.-leo
 
