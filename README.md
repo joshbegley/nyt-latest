@@ -1,3 +1,11 @@
+**Ipswich agree deal to sign Blackburn's Szmodics**\
+`Ipswich Town have agreed a deal to sign Blackburn Rovers attacking midfielder Sammie Szmodics.`\
+https://nytimes.com/athletic/5702598/2024/08/15/sammie-szmodics-ipswich-blackburn/
+
+**NBA schedule release: 35 games I'm looking forward to in 2024-25**\
+`From conference finals rematches to Wemby's measuring-stick showdowns, here are the games to circle on next season's calendar.`\
+https://nytimes.com/athletic/5698359/2024/08/15/nba-2024-2025-schedule-release-best-games/
+
 **How Well Do You Know Your Disaster Movies?**\
 `From “Armageddon” to “The Towering Inferno,” a look back at decades of movie catastrophe.`\
 https://nytimes.com/interactive/2024/08/15/movies/disaster-movies.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/08/13/opinion/thepoint/india-reclaim-night-protest
 **Russell Wilson to make Steelers debut in preseason game vs. Bills**\
 `With Wilson limited, Justin Fields took a majority of the first-team reps in camp.`\
 https://nytimes.com/athletic/5703804/2024/08/15/russell-wilson-steelers-preseason-start/
-
-**Slow starts, strong finishes and a few fights: Jets-Panthers joint practice observations**\
-`Tempers flared between the teams ahead of their Saturday preseason matchup.`\
-https://nytimes.com/athletic/5703582/2024/08/15/new-york-jets-carolina-panthers-fights-joint-practice-observations-dj-reed-terrace-marshall-michael-clemons-mike-boone/
-
-**Bad Bunny agency case to stay with arbitrator**\
-`The judge said the dispute belongs in arbitration, which is what the union wanted when the agency asked the court to intervene.`\
-https://nytimes.com/athletic/5703790/2024/08/15/bad-bunny-mlbpa-agency-case-arbitrator/
 
