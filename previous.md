@@ -1,3 +1,7 @@
+**Brewers' Christian Yelich to undergo season-ending back surgery**\
+`Yelich hoped that rest and rehab would help him avoid surgery this season.`\
+https://nytimes.com/athletic/5704265/2024/08/15/brewers-christian-yelich-season-ending-back-surgery/
+
 **Jayden Daniels, Commanders' offense flash 'attacking mentality' in Miami**\
 `The rookie impressed with red zone strikes and accounted for five total TDs from inside the 20 during the joint practice vs. the Dolphins.`\
 https://nytimes.com/athletic/5703736/2024/08/15/jayden-daniels-commanders-dolphins-joint-practice/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/15/technology/california-ai-bill-amended.html
 **Greg Kihn, Who Scored Hits With ‘Jeopardy’ and ‘The Breakup Song,’ Dies at 75**\
 `Mr. Kihn later became a popular morning disc jockey in the San Francisco Bay Area.`\
 https://nytimes.com/2024/08/15/arts/music/greg-kihn-dead.html
-
-**In Wander Franco sexual abuse case, father of alleged victim to seek dismissal of charges**\
-`PUERTO PLATA, Dominican Republic — The father of the minor at the center of Wander Franco’s sexual abuse case intends to petition the court for a dismissal of the charges, his attorney said on Wednesday afternoon, shortly after Franco appeared in court for a hearing that would ultimately be postponed.`\
-https://nytimes.com/athletic/5702105/2024/08/15/wander-franco-sexual-abuse-case-court-proceedings/
 
