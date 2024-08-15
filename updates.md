@@ -1,3 +1,15 @@
+**Notre Dame suspends men's swimming team over internal gambling violations**\
+`The school retained a law firm this summer to conduct an external review of the program upon learning of potential issues.`\
+https://nytimes.com/athletic/5703637/2024/08/15/notre-dame-swimming-gambling-suspension/
+
+**Navalny’s Widow Disputes Russian Report on Her Husband’s Death**\
+`The Russian authorities said Aleksei A. Navalny had died of a grab bag of diseases, including heart arrhythmia triggered by hypertension.`\
+https://nytimes.com/2024/08/15/world/europe/russia-navalny-putin.html
+
+**F.B.I. Resumes Flagging Foreign Disinformation to Social Media Giants**\
+`The Justice Department set new guidelines for agents to share tips with Facebook, X and other platforms after a legal challenge prompted a suspension of that communication.`\
+https://nytimes.com/2024/08/15/business/fbi-social-media-disinformation.html
+
 **Pochettino's tactics: How he can energise the USMNT ahead of the 2026 World Cup**\
 `Golden generations don't last forever. At the very minimum, Pochettino will bring a welcome dose of belief and expertise to this U.S. one`\
 https://nytimes.com/athletic/5703354/2024/08/15/pochettino-usmnt-tactics-world-cup-2026/

@@ -1,3 +1,15 @@
+**Notre Dame suspends men's swimming team over internal gambling violations**\
+`The school retained a law firm this summer to conduct an external review of the program upon learning of potential issues.`\
+https://nytimes.com/athletic/5703637/2024/08/15/notre-dame-swimming-gambling-suspension/
+
+**Navalny’s Widow Disputes Russian Report on Her Husband’s Death**\
+`The Russian authorities said Aleksei A. Navalny had died of a grab bag of diseases, including heart arrhythmia triggered by hypertension.`\
+https://nytimes.com/2024/08/15/world/europe/russia-navalny-putin.html
+
+**F.B.I. Resumes Flagging Foreign Disinformation to Social Media Giants**\
+`The Justice Department set new guidelines for agents to share tips with Facebook, X and other platforms after a legal challenge prompted a suspension of that communication.`\
+https://nytimes.com/2024/08/15/business/fbi-social-media-disinformation.html
+
 **Pochettino's tactics: How he can energise the USMNT ahead of the 2026 World Cup**\
 `Golden generations don't last forever. At the very minimum, Pochettino will bring a welcome dose of belief and expertise to this U.S. one`\
 https://nytimes.com/athletic/5703354/2024/08/15/pochettino-usmnt-tactics-world-cup-2026/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/15/sports/soccer/issa-hayatou-dead.html
 **The Other 2024 Races with Big Climate Stakes**\
 `Outside of the presidential election, a number of down-ballot races, including Senate and state contests, could have an impact on climate policy.`\
 https://nytimes.com/2024/08/15/climate/down-ballot-races-senate-climate.html
-
-**‘Chimp Crazy’ Is a Jaw-Dropping Look at ‘Monkey Love’**\
-`From a director of “Tiger King,” the four-part HBO documentary dives into the wild, salacious and dangerous world of people who have chimpanzees as pets.`\
-https://nytimes.com/2024/08/15/arts/television/chimp-crazy-hbo-tiger-king.html
-
-**Gena Rowlands: A Life in Pictures**\
-`The late actress might have followed in the path of so many other studio-system bombshells. But in one explosive performance after another, Ms. Rowlands proved she had more to offer.`\
-https://nytimes.com/2024/08/15/style/gena-rowlands-photos-notebook.html
-
-**Authorities Charge Five People For Giving Matthew Perry Ketamine**\
-`Matthew Perry’s personal assistant, two doctors and two others have been indicted and charged with providing the ketamine that caused his death.`\
-https://nytimes.com/video/us/100000009631767/matthew-perry-death.html
 
