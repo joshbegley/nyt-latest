@@ -1,3 +1,7 @@
+**Democrats Lean Into Liberty and the Language of Republicans**\
+`Kamala Harris and her allies are using traditionally right-leaning messaging to argue that Republicans threaten fundamental freedoms. “Mind your own damn business!” Tim Walz recently said.`\
+https://nytimes.com/2024/08/15/us/politics/harris-walz-democrats-language.html
+
 **What to Know About the Latest Social Security Number Breach**\
 `Hackers may have gained access to the private information of millions of people from a background check company called National Public Data. Should you be worried? We have some advice.`\
 https://nytimes.com/2024/08/15/business/social-security-numbers-stolen-hack.html
