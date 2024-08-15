@@ -1,3 +1,7 @@
+**Is It Morning in Kamala Harris’s America?**\
+`The good news may finally be breaking through to voters.`\
+https://nytimes.com/2024/08/15/opinion/kamala-harris-biden-reagan.html
+
 **Arizona Court Sides With G.O.P. Over Abortion Language in Voter Pamphlets**\
 `The court ruled that informational brochures the state sends to voters can use the term “unborn human being” to describe an embryo or a fetus.`\
 https://nytimes.com/2024/08/15/us/arizona-supreme-court-abortion.html
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/5703589/2024/08/15/carolina-panthers-injury-report-
 `In one attack, a Jordanian man living in Orlando broke into an energy plant in Wedgefield, Fla., where he smashed equipment, causing about $700,000 in damage.`\
 https://nytimes.com/2024/08/15/us/politics/israel-florida-vandalism.html
 
-**Notre Dame suspends men's swimming team for at least 1 year**\
+**Notre Dame suspends men's swimming team for at least 1 year over gambling violations**\
 `The school retained a law firm this summer to conduct an external review of the program upon learning of potential issues.`\
 https://nytimes.com/athletic/5703637/2024/08/15/notre-dame-swimming-gambling-suspension/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/15/world/europe/russia-navalny-putin.html
 **F.B.I. Resumes Flagging Foreign Disinformation to Social Media Giants**\
 `The Justice Department set new guidelines for agents to share tips with Facebook, X and other platforms after a legal challenge prompted a suspension of that communication.`\
 https://nytimes.com/2024/08/15/business/fbi-social-media-disinformation.html
-
-**Pochettino's tactics: How he can energise the USMNT ahead of the 2026 World Cup**\
-`Golden generations don't last forever. At the very minimum, Pochettino will bring a welcome dose of belief and expertise to this U.S. one`\
-https://nytimes.com/athletic/5703354/2024/08/15/pochettino-usmnt-tactics-world-cup-2026/
 
