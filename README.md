@@ -1,3 +1,7 @@
+**Cowboys CB Trevon Diggs returns, makes a play and 'felt good' in joint practice**\
+`Trevon Diggs intercepted a pass and Micah Parsons dominated, but the red zone defense struggled and the offense had ball security issues.`\
+https://nytimes.com/athletic/5701639/2024/08/14/dallas-cowboys-joint-practice-trevon-diggs-rams/
+
 **Blazers leaving local RSN highlights growing trend among NBA teams**\
 `NBA teams have slowly started to walk away from cable TV amid the uncertainty of regional sports networks in recent years.`\
 https://nytimes.com/athletic/5701918/2024/08/14/trail-blazers-tv-partner-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/14/us/north-carolina-manhunt-prisoner-escape.html
 **It’s Instincts Over Strategy for Trump**\
 `The former president has struggled to settle on a message against Vice President Kamala Harris.`\
 https://nytimes.com/2024/08/14/us/politics/trump-harris-campaign.html
-
-**Betty A. Prashker, Book Publishing Pioneer, Is Dead at 99**\
-`A top editor and executive at two publishing houses, she was an advocate for other women in publishing, and for equal pay in an industry that had long been male-dominated.`\
-https://nytimes.com/2024/08/14/books/betty-a-prashker-dead.html
 
