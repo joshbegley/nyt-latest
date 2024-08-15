@@ -1,3 +1,7 @@
+**An Alternative to the Pap Smear Is Here, No Speculum Required**\
+`Starting this fall, women will be able to use a simple swab to screen for cervical cancer. The method offers an alternative to a procedure that many dread — and promises to address disparities in who develops the disease.`\
+https://nytimes.com/2024/08/15/well/pap-smear-cervical-cancer-test-alternative.html
+
 **The Best Movies and TV Shows Coming to Netflix in August**\
 `This month sees the return of “Emily in Paris” and a superhero ensemble, along with a heartbreaking documentary about the daughters of imprisoned men.`\
 https://nytimes.com/2024/08/15/arts/television/netflix-new-tv-movies.html
