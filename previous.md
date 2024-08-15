@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5702178/2024/08/15/walker-buehler-returns-dodgers/
 https://nytimes.com/athletic/5701508/2024/08/15/idp-fantasy-football-2024-strategy-sleepers-busts/
 
 **Astros finish road trip on 8-game winning streak with sweep of Rays**\
-`Eight consecutive victories have Houston 2 1/2 games up in a division they've long dominated.`\
+`Eight consecutive victories have Houston 2 1/2 games up in a division it's long dominated.`\
 https://nytimes.com/athletic/5702173/2024/08/15/astros-winning-streak-sweep-rays/
 
 **Biden’s Middle East Playbook Won’t Stop a Wider War Forever**\
