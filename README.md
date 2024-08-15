@@ -1,3 +1,7 @@
+**J.J. McCarthy is done for the season, and the Vikings are left to pick up the pieces**\
+`It's a similar refrain for Vikings fans after Wednesday's news on their rookie quarterback: You just hope it’s not one of those years.`\
+https://nytimes.com/athletic/5701828/2024/08/14/jj-mccarthy-vikings-injury-season/
+
 **Jewish Man Charged With Hate Crimes in Attacks on Muslim Neighbor**\
 `Izak Kadosh faces more than 40 charges, including attempted murder and aggravated assault. Prosecutors said the attacks, in Brooklyn, went on for months.`\
 https://nytimes.com/2024/08/14/nyregion/brooklyn-hate-crimes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/14/books/betty-a-prashker-dead.html
 **In Economy-Focused Speech, Trump Still Lobs Personal Attacks Against Harris**\
 `Mr. Trump’s remarks on the economy and his insults aimed at Ms. Harris suggested the Trump campaign continues to suffer growing pains as it adjusts to a new opponent.`\
 https://nytimes.com/2024/08/14/us/politics/trump-rally-asheville.html
-
-**Another ‘Nasty’ Woman Strikes Fear in Trump**\
-`Authoritarian tendencies and misogyny rise together.`\
-https://nytimes.com/2024/08/14/opinion/kamala-harris-sexism-trump.html
 
