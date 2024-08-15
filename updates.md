@@ -1,3 +1,11 @@
+**Is It Morning in Kamala Harris’s America?**\
+`The good news may finally be breaking through to voters.`\
+https://nytimes.com/2024/08/15/opinion/kamala-harris-biden-reagan.html
+
+**Notre Dame suspends men's swimming team for at least 1 year over gambling violations**\
+`The school retained a law firm this summer to conduct an external review of the program upon learning of potential issues.`\
+https://nytimes.com/athletic/5703637/2024/08/15/notre-dame-swimming-gambling-suspension/
+
 **Arizona Court Sides With G.O.P. Over Abortion Language in Voter Pamphlets**\
 `The court ruled that informational brochures the state sends to voters can use the term “unborn human being” to describe an embryo or a fetus.`\
 https://nytimes.com/2024/08/15/us/arizona-supreme-court-abortion.html
