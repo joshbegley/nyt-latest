@@ -14,8 +14,8 @@ https://nytimes.com/2024/08/15/us/politics/ukraine-incursion-russia-kursk.html
 `The policy that helps inform which match officials are chosen to appoint games in the Premier League, English Football League and Women&#8217;s Super League has been published for the first time.`\
 https://nytimes.com/athletic/5703288/2024/08/15/premier-league-referees-efl-wsl-pgmol/
 
-**Wrigley Field to hold 4 Big Ten college hockey games after NHL Winter Classic**\
-`CHICAGO — The Big Ten Conference has held football games at Wrigley Field.`\
+**Wrigley Field to hold college hockey games after Winter Classic**\
+`The event, named The Frozen Confines: Big Ten Hockey Series, will include three men’s hockey games and one women’s hockey game.`\
 https://nytimes.com/athletic/5703319/2024/08/15/wrigley-field-nhl-winter-classic-big-ten-hockey/
 
 **Glenn A. Youngkin**\
@@ -30,8 +30,8 @@ https://nytimes.com/topic/steven-a-ballmer
 `News about Lewis A Kaplan. Commentary and archival information about Lewis A Kaplan from The New York Times.`\
 https://nytimes.com/topic/lewis-a-kaplan
 
-**Judge Orders Teenager to Be Handcuffed for Her ‘Attitude’ on Field Trip to Court**\
-`Judge Kenneth King of the 36th District Court in Detroit also ordered the 15-year-old girl to change into a jail uniform.`\
+**Judge Orders Teenager to Be Handcuffed After She Fell Asleep on Field Trip to Court**\
+`Judge Kenneth King of the 36th District Court in Detroit also ordered the 15-year-old girl to change into a jail uniform. He said that the teenager had responded with “attitude.”`\
 https://nytimes.com/2024/08/15/us/detroit-judge-sleeping-teen.html
 
 **Harvard Names Conservative Legal Scholar as Permanent Provost**\

@@ -1,3 +1,11 @@
+**Wrigley Field to hold college hockey games after Winter Classic**\
+`The event, named The Frozen Confines: Big Ten Hockey Series, will include three men’s hockey games and one women’s hockey game.`\
+https://nytimes.com/athletic/5703319/2024/08/15/wrigley-field-nhl-winter-classic-big-ten-hockey/
+
+**Judge Orders Teenager to Be Handcuffed After She Fell Asleep on Field Trip to Court**\
+`Judge Kenneth King of the 36th District Court in Detroit also ordered the 15-year-old girl to change into a jail uniform. He said that the teenager had responded with “attitude.”`\
+https://nytimes.com/2024/08/15/us/detroit-judge-sleeping-teen.html
+
 **What Is a Salad, Anyway?**\
 `Dumpling salad, pickle salad, potato salad, bean salad — salads to some, delicious to all.`\
 https://nytimes.com/2024/08/15/dining/what-is-a-salad-anyway.html
