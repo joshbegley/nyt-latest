@@ -1,3 +1,15 @@
+**Wind Beat Coal Two Months in a Row for U.S. Electricity Generation**\
+`The shift occurred as the cost of wind power and other renewable energy is rapidly declining and coal is being pushed out by natural gas.`\
+https://nytimes.com/2024/08/15/climate/wind-power-coal.html
+
+**De Ligt, Mazraoui will be in squad to face Fulham, Ten Hag confirms**\
+`Manchester United manager Erik ten Hag has confirmed new signings Matthijs De Ligt and Noussair Mazraoui will be in the squad to face Fulham in their opening Premier League game on Friday.`\
+https://nytimes.com/athletic/5703038/2024/08/15/man-utd-team-news-de-ligt-mazraoui/
+
+**Menendez Will Be Replaced in Senate by Murphy Loyalist**\
+`Gov. Philip Murphy has selected George Helmy, his former chief of staff, to finish Senator Robert Menendez’s term, passing over Representative Andy Kim, the Democratic nominee.`\
+https://nytimes.com/2024/08/15/nyregion/menendez-george-helmy-senate-seat.html
+
 **Reus joins the LA Galaxy on a free transfer**\
 `Former Borussia Dortmund midfielder Marco Reus has joined the LA Galaxy on a free transfer.`\
 https://nytimes.com/athletic/5643520/2024/08/15/marco-reus-la-galaxy-transfer/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/15/theater/sydney-lemmon-job-broadway.html
 **Man Utd's Snapdragon shirt sponsor deal extended by two years**\
 `Manchester United sponsor Qualcomm has triggered its two-year extension option on its front-of-shirt deal with the Premier League club.`\
 https://nytimes.com/athletic/5702630/2024/08/15/manchester-united-snapdragon-qualcomm-shirt-sponsor/
-
-**This Classic Corn Chowder Is Quite Resourceful**\
-`Save the cobs to form the base of your broth, and use what you’ve got — swap coconut milk for the cream, maybe, or rice for the potato.`\
-https://nytimes.com/2024/08/15/dining/this-classic-corn-chowder-is-quite-resourceful.html
-
-**For the Man Who Plays Lafayette, It’s a Marquis Event**\
-`America’s favorite fighting Frenchman arrived for a farewell tour in 1824. A yearlong commemoration kicks off this week, and the country’s pre-eminent “Lafayette” is ready.`\
-https://nytimes.com/2024/08/15/arts/lafayatte-marquis-american-revolution.html
-
-**Beware the Toxic and Explosive Blue Backpack This Termite Carries**\
-`Scientists studied the unusual chemical reaction used by a species of the insect in an act of self-sacrifice to save nests from invaders.`\
-https://nytimes.com/2024/08/15/science/exploding-termites-toxins.html
 
