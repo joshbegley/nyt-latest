@@ -1,3 +1,7 @@
+**The Bounce: Your early NBA Cup preview**\
+`Zach Harper and Shams Charania catch you up on league-wide news.`\
+https://nytimes.com/athletic/5701539/2024/08/15/nba-cup-charles-barkley-tnt-wnba-aja-wilson-caitlin-clark-angel-reese-nba-the-bounce/
+
 **Judge Finds Flaws in New York City’s Cannabis Enforcement Efforts**\
 `The city has appealed the judge’s ruling in favor of a convenience store in Queens that could have broader implications for enforcement.`\
 https://nytimes.com/2024/08/15/nyregion/nyc-marijuana-enforcement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/15/arts/dance/beach-sessions-rockaway-faye-driscoll.
 **On Anniversary of Taliban Takeover, Glee, Mourning and an Embrace of Jihad**\
 `Celebrations marking the third year since the U.S. withdrawal are amplifying a divide in Afghanistan over what principles it should be governed by.`\
 https://nytimes.com/2024/08/15/world/asia/afghanistan-taliban-anniversary.html
-
-**‘Red Island’ Review: Madagascar Is Shifting Beneath Their Feet**\
-`Robin Campillo relies on the power of suggestion to sketch life in this former French colony, filtering it obliquely through a young white boy’s eyes.`\
-https://nytimes.com/2024/08/15/movies/red-island-review.html
 
