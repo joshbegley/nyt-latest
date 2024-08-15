@@ -1,4 +1,8 @@
-**Notre Dame suspends men's swimming team over internal gambling violations**\
+**Man Arrested After Escalating Threats Condemning Support for Israel**\
+`A Jordanian citizen living in Orlando broke into an energy plant in Wedgefield, Fla., where he smashed equipment, causing about $700,000 in damage.`\
+https://nytimes.com/2024/08/15/us/politics/israel-florida-vandalism.html
+
+**Notre Dame suspends men's swimming team for at least 1 year**\
 `The school retained a law firm this summer to conduct an external review of the program upon learning of potential issues.`\
 https://nytimes.com/athletic/5703637/2024/08/15/notre-dame-swimming-gambling-suspension/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/15/opinion/harris-code-switch.html
 **Issa Hayatou, ‘the Emperor of African Soccer,’ Dies at 77**\
 `In his posts atop the governing bodies for African and global soccer, he fought to establish the continent as an equal to Europe and South America.`\
 https://nytimes.com/2024/08/15/sports/soccer/issa-hayatou-dead.html
-
-**The Other 2024 Races with Big Climate Stakes**\
-`Outside of the presidential election, a number of down-ballot races, including Senate and state contests, could have an impact on climate policy.`\
-https://nytimes.com/2024/08/15/climate/down-ballot-races-senate-climate.html
 
