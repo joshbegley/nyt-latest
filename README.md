@@ -1,3 +1,7 @@
+**Canceling Subscriptions Could Get Easier Under New Biden Administration Rules**\
+`Some of the tactics that have consumers jumping through hoops to cancel a cable or gym membership could be banned under a new initiative launched this week by the White House.`\
+https://nytimes.com/2024/08/15/us/us-government-unsubscribe-memberships.html
+
 **NBA’s best offseason moves by team: Finalists crack top 10, but neither is No. 1**\
 `The final entry in our three-part series examining every team's offseason transactions and how they set up the franchise for next season.`\
 https://nytimes.com/athletic/5639300/2024/08/15/nba-offseason-rankings-2024-celtics-mavs-knicks-76ers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/15/opinion/ukraine-russia-kursk.html
 **Seeking Calm, Columbia University Asks a Doctor to Lead**\
 `Dr. Katrina A. Armstrong replaces Nemat Shafik as president of one of the most turbulent campuses in America.`\
 https://nytimes.com/2024/08/15/us/katrina-armstrong-columbia-president.html
-
-**Half Their Land Burned in a Decade: The California Counties Constantly on Fire**\
-`Park fire became California’s fourth largest this month. It erupted in a part of the state that is increasingly covered with the scars of wildfires.`\
-https://nytimes.com/interactive/2024/08/15/us/california-fires.html
 
