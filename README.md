@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5702789/2024/08/15/cardinals-mlb-wild-card-race/
 https://nytimes.com/live/2024/08/13/opinion/thepoint/georgia-republican-election-board
 
 **Seth Bloom, 49, Who Brought Laughter to the Rubble of War, Dies**\
-`A virtuoso of physical comedy, he performed around the world with his wife. He also helped stage clown shows in Afghanistan.`\
+`A virtuoso of physical comedy, he performed around the world with his wife. Most notably, he helped stage clown shows in Afghanistan.`\
 https://nytimes.com/2024/08/15/arts/seth-bloom-dead.html
 
 **Nuno fined, given suspended ban for VAR criticism following Everton defeat**\
