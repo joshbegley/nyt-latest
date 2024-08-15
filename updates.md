@@ -1,3 +1,19 @@
+**Anthony Edwards and the Timberwolves have become box-office attractions**\
+`The Wolves will be featured on a bigger stage this year after one of the best seasons in franchise history.`\
+https://nytimes.com/athletic/5703477/2024/08/15/anthony-edwards-minnesota-timberwolves-nba-schedule/
+
+**Biden and Harris Made a Joint Appearance**\
+`Also, Ukraine said it had captured a Russian town. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/08/15/briefing/biden-harris-joint-appearance-ukraine-advance-russia.html
+
+**Coco Gauff loses in final tournament before US Open**\
+`Defending US Open champion Coco Gauff is out of the Cincinnati Open after losing to Kazakhstan&#8217;s Yulia Putintseva in three sets on Thursday.`\
+https://nytimes.com/athletic/5704009/2024/08/15/coco-gauff-cincinnati-putintseva-tennis/
+
+**Why 49ers’ quarterback Joshua Dobbs has a rugby routine before every practice**\
+`Dobbs, Brandon Allen and especially Brock Purdy looked sharp in the 49ers' longest and most intense practice of the week Thursday.`\
+https://nytimes.com/athletic/5703939/2024/08/15/joshua-dobbs-49ers-rugby-practice/
+
 **Why 49ers’ quarterback Joshua Dobbs has a rugby routine before every practice**\
 `Dobbs, Brandon Allen and especially Brock Purdy looked sharp in the 49ers' longest and most intense practice if the week on Thursday.`\
 https://nytimes.com/athletic/5703939/2024/08/15/joshua-dobbs-49ers-rugby-practice/
