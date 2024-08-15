@@ -1,3 +1,7 @@
+**Peter Marshall, Longtime Host of ‘The Hollywood Squares,’ Dies at 98**\
+`He played straight man to all manner of celebrities, asking questions on what was for many years the most popular game show on television.`\
+https://nytimes.com/2024/08/15/arts/television/peter-marshall-dead.html
+
 **Ed Sheeran buys minority stake in Ipswich Town**\
 `Singer-songwriter Ed Sheeran has bought a minority stake in Premier League side Ipswich Town.`\
 https://nytimes.com/athletic/5703557/2024/08/15/ed-sheeran-ipswich-town-owner-stake/
