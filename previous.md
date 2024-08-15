@@ -15,7 +15,7 @@ https://nytimes.com/2024/08/15/business/fbi-social-media-disinformation.html
 https://nytimes.com/athletic/5703354/2024/08/15/pochettino-usmnt-tactics-world-cup-2026/
 
 **As Oilers' clock ticks, let's look at where Broberg, Holloway would fit into Blues lineup**\
-`What would the Blues' lineup look like if the Oilers don't match the team's offers for Philip Broberg and Dylan Holloway?`\
+`What would the Blues lineup look like if the Oilers don't match the team's offers for Philip Broberg and Dylan Holloway?`\
 https://nytimes.com/athletic/5700929/2024/08/15/oilers-blues-broberg-holloway-nhl/
 
 **Watch One Heartbreaking Scene to Understand Gena Rowlands’s Genius**\
