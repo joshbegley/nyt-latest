@@ -1,3 +1,7 @@
+**Alan Gustafson reflects on milestone as NASCAR crew chief**\
+`Gustafson will call his 700th NASCAR Cup Series race on Sunday at Michigan International Speedway.`\
+https://nytimes.com/athletic/5702201/2024/08/15/alan-gustafson-nascar-crew-chief-race-cup-series/
+
 **Nugent-Bowman: Ken Holland deserves less blame for Broberg, Holloway offer sheets**\
 `Despite the mess the Oilers are in now, little of what has transpired this week with the team's two emerging talents is Holland's doing.`\
 https://nytimes.com/athletic/5702757/2024/08/15/oilers-offer-sheets-broberg-holloway-holland/

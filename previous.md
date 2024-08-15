@@ -1,3 +1,7 @@
+**Alan Gustafson reflects on milestone as NASCAR crew chief**\
+`Gustafson will call his 700th NASCAR Cup Series race on Sunday at Michigan International Speedway.`\
+https://nytimes.com/athletic/5702201/2024/08/15/alan-gustafson-nascar-crew-chief-race-cup-series/
+
 **Nugent-Bowman: Ken Holland deserves less blame for Broberg, Holloway offer sheets**\
 `Despite the mess the Oilers are in now, little of what has transpired this week with the team's two emerging talents is Holland's doing.`\
 https://nytimes.com/athletic/5702757/2024/08/15/oilers-offer-sheets-broberg-holloway-holland/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5703016/2024/08/15/aaron-judge-home-runs-babe-ruth-
 **The Bounce: Your early NBA Cup preview**\
 `Zach Harper and Shams Charania catch you up on league-wide news.`\
 https://nytimes.com/athletic/5701539/2024/08/15/nba-cup-charles-barkley-tnt-wnba-aja-wilson-caitlin-clark-angel-reese-nba-the-bounce/
-
-**Judge Finds Flaws in New York City’s Cannabis Enforcement Efforts**\
-`The city has appealed the judge’s ruling in favor of a convenience store in Queens that could have broader implications for enforcement.`\
-https://nytimes.com/2024/08/15/nyregion/nyc-marijuana-enforcement.html
 
