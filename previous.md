@@ -1,3 +1,7 @@
+**Here is a timeline of the cease-fire talks.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/08/14/world/israel-iran-hamas-gaza-war/israel-hamas-gaza-cease-fire-talks
+
 **Gena Rowlands, Actress Who Bought Raw Drama to Her Roles, Dies at 94**\
 `Known for playing on-the-verge characters, she was twice earned Oscar nominations for her work in films directed by John Cassavetes, her husband.`\
 https://nytimes.com/2024/08/14/movies/gena-rowlands-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/14/nyregion/brooklyn-hate-crimes.html
 **Harbaugh offered Kaepernick coaching job with Chargers**\
 `Harbaugh coached Kaepernick from 2011 to 2014 when he played for the San Francisco 49ers.`\
 https://nytimes.com/athletic/5701754/2024/08/14/harbaugh-kaepernick-chargers-coach/
-
-**Columbia President Resigns After Months of Turmoil on Campus**\
-`Nemat Shafik is the third university president to resign in the wake of turbulent congressional appearances and strife connected to the Israel-Hamas war.`\
-https://nytimes.com/2024/08/14/us/columbia-president-nemat-shafik-resigns.html
 

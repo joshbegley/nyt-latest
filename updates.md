@@ -1,3 +1,7 @@
+**Here is a timeline of the cease-fire talks.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/08/14/world/israel-iran-hamas-gaza-war/israel-hamas-gaza-cease-fire-talks
+
 **Gena Rowlands, Actress Who Bought Raw Drama to Her Roles, Dies at 94**\
 `Known for playing on-the-verge characters, she was twice earned Oscar nominations for her work in films directed by John Cassavetes, her husband.`\
 https://nytimes.com/2024/08/14/movies/gena-rowlands-dead.html
