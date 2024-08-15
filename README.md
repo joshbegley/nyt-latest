@@ -1,3 +1,7 @@
+**What happened to the Rangers? World Series champs assess underwhelming title defense**\
+`Texas has fallen well short of expectations in 2024. What has gone wrong and how do they fix it? GM Chris Young gave us his take.`\
+https://nytimes.com/athletic/5701658/2024/08/15/rangers-world-series-champs-defense/
+
 **Hamas said it wouldn’t participate in the meeting, dimming hopes for a breakthrough.**\
 `By Aaron Boxerman and Adam Rasgon`\
 https://nytimes.com/live/2024/08/14/world/israel-iran-hamas-gaza-war/hamas-said-it-wouldnt-participate-in-the-meeting-dimming-hopes-for-a-breakthrough
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/15/t-magazine/gare-de-lyon-paris-restaurant-marius.h
 **A Three-Bedroom House in the Bay Area for Under $1 Million? Here Were Their Options.**\
 `After six years in the desert of Palm Springs, a retired couple headed north in search of new construction in Sonoma County.`\
 https://nytimes.com/interactive/2024/08/15/realestate/bay-area-sonoma-county-home-sale.html
-
-**America Loves a Coach. Should We Vote for One?**\
-`No one can resist the inspiring allure of “clear eyes, full hearts, can’t lose.” But politics can require a different skill set.`\
-https://nytimes.com/2024/08/15/opinion/tim-walz-coach-friday-night-lights.html
 
