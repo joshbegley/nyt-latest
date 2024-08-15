@@ -1,3 +1,11 @@
+**Peacock's 'Gold Zone' returning for 2028 Games**\
+`"Gold Zone" ranked in the top five most-watched Olympic titles on Peacock and was a technological success given all the elements at play.`\
+https://nytimes.com/athletic/5702878/2024/08/15/gold-zone-peacock-olympics-2028/
+
+**N.J. Transit Says Thank You, and Sorry, With a Week of Free Rides**\
+`After a spate of breakdowns that caused long delays, an unscheduled “fare holiday” on the statewide transit network will start on Aug. 26.`\
+https://nytimes.com/2024/08/15/nyregion/nj-transit-fare-holiday-murphy.html
+
 **Arrest Made in Investigation Into Matthew Perry’s Death**\
 `Law enforcement agencies have been working to identify the source of the ketamine that led to the “Friends” star’s death.`\
 https://nytimes.com/2024/08/15/arts/television/matthew-perry-charges-ketamine.html
