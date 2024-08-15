@@ -1,5 +1,5 @@
 **5.4-Magnitude Earthquake Strikes Near Taiwan**\
-`The earthquake struck off the eastern coast and was seven miles deep.`\
+`There were no immediate reports of major damage, but the island’s fire department warned of the risk of landslides in mountainous areas.`\
 https://nytimes.com/2024/08/15/world/asia/taiwan-earthquake.html
 
 **Canceling Subscriptions Could Get Easier Under New Biden Administration Rules**\
