@@ -1,3 +1,7 @@
+**Columbia Remains Divided but Cautiously Optimistic as President Departs**\
+`The resignation of the Columbia University president, Nemat Shafik, was met with mixed reactions, but some on campus are optimistic for a fresh start.`\
+https://nytimes.com/2024/08/15/nyregion/columbia-university-shafik-resigns-students-faculty.html
+
 **Peter Marshall, Longtime Host of ‘The Hollywood Squares,’ Dies at 98**\
 `He played straight man to all manner of celebrities, asking questions on what was for many years the most popular game show on television.`\
 https://nytimes.com/2024/08/15/arts/television/peter-marshall-dead.html
