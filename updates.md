@@ -1,3 +1,7 @@
+**Bad Bunny agency case to stay with arbitrator**\
+`The judge said the dispute belongs in arbitration, which is what the union wanted when the agency asked the court to intervene.`\
+https://nytimes.com/athletic/5703790/2024/08/15/bad-bunny-mlbpa-agency-case-arbitrator/
+
 **Atlanta Falcons signing Pro Bowl safety Justin Simmons**\
 `By Dianna Russini, Jeff Howe and Josh Kendall
 The Atlanta Falcons are signing Pro Bowl safety Justin Simmons.`\
