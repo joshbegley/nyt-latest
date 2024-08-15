@@ -1,3 +1,7 @@
+**Seth Meyers Calls Trump ‘Desperate’ for Likes**\
+`Meyers said the former president’s return to X shows he yearns “for the spotlight and for some praise or positive coverage from anyone, anywhere.”`\
+https://nytimes.com/2024/08/15/arts/television/seth-meyers-trump-x-livestream.html
+
 **Word of the Day: boycott**\
 `This word has appeared in 308 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/15/learning/word-of-the-day-boycott.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5697909/2024/08/15/crystal-palace-premier-league-pr
 **Why Newcastle's starting XI will be very familiar despite five signings**\
 `Newcastle's strongest starting XI against Southampton and what it tells us about their summer window so far`\
 https://nytimes.com/athletic/5700155/2024/08/15/newcastle-starting-xi-summer-window/
-
-**Man City's season preview: Off-pitch drama awaits, Bobb to shine, and Guardiola's swan song?**\
-`What to expect from City in 2024-25...`\
-https://nytimes.com/athletic/5686041/2024/08/15/manchester-city-season-preview-2024-2025/
 
