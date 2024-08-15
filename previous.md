@@ -1,3 +1,15 @@
+**Hamas said it wouldn’t participate in the meeting, dimming hopes for a breakthrough.**\
+`By Aaron Boxerman and Adam Rasgon`\
+https://nytimes.com/live/2024/08/14/world/israel-iran-hamas-gaza-war/hamas-said-it-wouldnt-participate-in-the-meeting-dimming-hopes-for-a-breakthrough
+
+**Gaza Cease-Fire Negotiators Are Set to Meet Amid Threat of Wider Conflict**\
+`Hamas said it wouldn’t participate in the meeting, dimming hopes for a breakthrough to end Israel’s war against the armed group.`\
+https://nytimes.com/live/2024/08/15/world/israel-iran-hamas-gaza-war
+
+**Michael Salfino's All-Fade team for fantasy football 2024: Jaylen Waddle, Trey McBride and more**\
+`Michael Salfino identifies the players he'll be avoiding on draft day if they go at their current ADP cost, like Miami's Jaylen Waddle.`\
+https://nytimes.com/athletic/5702058/2024/08/15/fantasy-football-2024-fades-avoids-jaylen-waddle/
+
 **Ukraine Is Poking the Russian Bear**\
 `Its cross-border attack shows “the war is not over”`\
 https://nytimes.com/2024/08/15/opinion/ukraine-russia-kursk.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2024/08/15/realestate/bay-area-sonoma-county-hom
 **America Loves a Coach. Should We Vote for One?**\
 `No one can resist the inspiring allure of “clear eyes, full hearts, can’t lose.” But politics can require a different skill set.`\
 https://nytimes.com/2024/08/15/opinion/tim-walz-coach-friday-night-lights.html
-
-**Discovering Life on Mars Should Be NASA’s Top Priority**\
-`Sending humans to other worlds is not a worthless goal. But this achievement would pale in comparison to discovering whether or not we are alone.`\
-https://nytimes.com/live/2024/08/13/opinion/thepoint/water-mars-life
-
-**San Francisco Moves to Lead Fight Against Deepfake Nudes**\
-`City Attorney David Chiu has filed a lawsuit seeking to permanently shutter 16 popular websites that turn images of real girls and women into pornography.`\
-https://nytimes.com/2024/08/15/us/deepfake-pornography-lawsuit-san-francisco.html
-
-**36 Hours in Provincetown, Mass.**\
-`P-town offers overlapping identities: one of America’s oldest art colonies, nature preserve, thriving L.G.B.T.Q. resort and historic Portuguese fishing village.`\
-https://nytimes.com/interactive/2024/08/15/travel/things-to-do-provincetown.html
 

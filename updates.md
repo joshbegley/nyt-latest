@@ -1,3 +1,15 @@
+**Hamas said it wouldn’t participate in the meeting, dimming hopes for a breakthrough.**\
+`By Aaron Boxerman and Adam Rasgon`\
+https://nytimes.com/live/2024/08/14/world/israel-iran-hamas-gaza-war/hamas-said-it-wouldnt-participate-in-the-meeting-dimming-hopes-for-a-breakthrough
+
+**Gaza Cease-Fire Negotiators Are Set to Meet Amid Threat of Wider Conflict**\
+`Hamas said it wouldn’t participate in the meeting, dimming hopes for a breakthrough to end Israel’s war against the armed group.`\
+https://nytimes.com/live/2024/08/15/world/israel-iran-hamas-gaza-war
+
+**Michael Salfino's All-Fade team for fantasy football 2024: Jaylen Waddle, Trey McBride and more**\
+`Michael Salfino identifies the players he'll be avoiding on draft day if they go at their current ADP cost, like Miami's Jaylen Waddle.`\
+https://nytimes.com/athletic/5702058/2024/08/15/fantasy-football-2024-fades-avoids-jaylen-waddle/
+
 **Ukraine Is Poking the Russian Bear**\
 `Its cross-border attack shows “the war is not over”`\
 https://nytimes.com/2024/08/15/opinion/ukraine-russia-kursk.html
