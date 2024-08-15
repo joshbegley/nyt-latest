@@ -1,3 +1,7 @@
+**Whatever the message in meeting, Kyle Schwarber's swing does more than words for Phillies**\
+`The wobbling Phillies had a clubhouse meeting, then pummeled the Marlins. They believe they have the right group to right the ship.`\
+https://nytimes.com/athletic/5702142/2024/08/14/phillies-kyle-schwarber-team-meeting/
+
 **Is Pete Alonso's big night the start of a well-timed hot streak for the Mets?**\
 `Carlos Mendoza hopes this is one of Alonso's annual torrid stretches: “He can carry a team. We've seen it."`\
 https://nytimes.com/athletic/5702091/2024/08/14/mets-pete-alonso-hot-streak/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/14/world/middleeast/israel-hamas-gaza-cease-fire-tal
 **Gena Rowlands, Actress Who Brought Raw Drama to Her Roles, Dies at 94**\
 `Known for playing on-the-verge characters, she twice earned Oscar nominations for her work in films directed by John Cassavetes, her husband.`\
 https://nytimes.com/2024/08/14/movies/gena-rowlands-dead.html
-
-**For Remote Alaskan Communities, a Lifeline Comes From the Sky **\
-`In Utqiagvik, the northernmost city in the United States, nothing arrives by road. The city of about 5,000 residents relies extensively on cargo delivered by airplanes.`\
-https://nytimes.com/card/2024/08/15/business/alaska-airlines-cargo-utqiagvik
 
