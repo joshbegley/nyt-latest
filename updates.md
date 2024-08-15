@@ -1,3 +1,7 @@
+**Federal Audit Orders M.T.A. to Improve Track Worker Safety**\
+`The Federal Transit Authority released the report nine months after the death of a transit worker. If the M.T.A. does not comply, it could lose funding.`\
+https://nytimes.com/2024/08/14/nyregion/federal-audit-orders-mta-to-improve-track-worker-safety.html
+
 **Chargers training camp, Day 17: Tre'Mon Morris-Brash seizing opportunity**\
 `Chris Rumph II's injury could open a spot for Morris-Brash, who has flashed in recent camp practices and the first preseason game.`\
 https://nytimes.com/athletic/5701965/2024/08/14/chargers-training-camp-tremon-morris-brash/
