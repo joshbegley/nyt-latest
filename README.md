@@ -1,3 +1,7 @@
+**Blazers leaving local RSN highlights growing trend among NBA teams**\
+`NBA teams have slowly started to walk away from cable TV amid the uncertainty of regional sports networks in recent years.`\
+https://nytimes.com/athletic/5701918/2024/08/14/trail-blazers-tv-partner-nba/
+
 **J.J. McCarthy is done for the season, and the Vikings are left to pick up the pieces**\
 `It's a similar refrain for Vikings fans after Wednesday's news on their rookie quarterback: You just hope it’s not one of those years.`\
 https://nytimes.com/athletic/5701828/2024/08/14/jj-mccarthy-vikings-injury-season/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/14/us/politics/trump-harris-campaign.html
 **Betty A. Prashker, Book Publishing Pioneer, Is Dead at 99**\
 `A top editor and executive at two publishing houses, she was an advocate for other women in publishing, and for equal pay in an industry that had long been male-dominated.`\
 https://nytimes.com/2024/08/14/books/betty-a-prashker-dead.html
-
-**In Economy-Focused Speech, Trump Still Lobs Personal Attacks Against Harris**\
-`Mr. Trump’s remarks on the economy and his insults aimed at Ms. Harris suggested the Trump campaign continues to suffer growing pains as it adjusts to a new opponent.`\
-https://nytimes.com/2024/08/14/us/politics/trump-rally-asheville.html
 
