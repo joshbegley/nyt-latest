@@ -1,3 +1,7 @@
+**Bad Bunny agency case to stay with arbitrator**\
+`The judge said the dispute belongs in arbitration, which is what the union wanted when the agency asked the court to intervene.`\
+https://nytimes.com/athletic/5703790/2024/08/15/bad-bunny-mlbpa-agency-case-arbitrator/
+
 **Atlanta Falcons signing Pro Bowl safety Justin Simmons**\
 `By Dianna Russini, Jeff Howe and Josh Kendall
 The Atlanta Falcons are signing Pro Bowl safety Justin Simmons.`\
@@ -34,8 +38,4 @@ https://nytimes.com/2024/08/15/us/arizona-supreme-court-abortion.html
 **Closed for Months, a Gateway for Aid to Famine-Stricken Sudan Swings Open**\
 `Accused of blocking food aid for its starving people, Sudan’s military announced it would reopen the main border crossing with Chad, which it had closed for six months to U.N. relief trucks.`\
 https://nytimes.com/2024/08/15/world/africa/sudan-chad-adre-border-crossing-reopens.html
-
-**NBA schedule release: National TV games, big matchups and more**\
-`Five of the first seven days of the NBA season will have games televised nationally, whether on ESPN or TNT.`\
-https://nytimes.com/athletic/5703663/2024/08/15/nba-schedule-release-2024-25/
 
