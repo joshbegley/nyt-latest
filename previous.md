@@ -1,3 +1,7 @@
+**Mauricio Pochettino agrees to deal for USMNT head-coaching job**\
+`Pochettino has never managed a national team, but the former Tottenham and Chelsea coach has had plenty of success at club level.`\
+https://nytimes.com/athletic/5702243/2024/08/15/mauricio-pochettino-usmnt-head-coach/
+
 **Seth Meyers Calls Trump ‘Desperate’ for Likes**\
 `Meyers said the former president’s return to X shows he yearns “for the spotlight and for some praise or positive coverage from anyone, anywhere.”`\
 https://nytimes.com/2024/08/15/arts/television/seth-meyers-trump-x-livestream.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5700206/2024/08/15/ange-postecoglou-second-season-t
 **Crystal Palace season preview: Olise's gone, Glasner stayed, Wharton to break out**\
 `Crystal Palace begin their new Premier League campaign at the weekend when they face Brentford`\
 https://nytimes.com/athletic/5697909/2024/08/15/crystal-palace-premier-league-preview/
-
-**Why Newcastle's starting XI will be very familiar despite five signings**\
-`Newcastle's strongest starting XI against Southampton and what it tells us about their summer window so far`\
-https://nytimes.com/athletic/5700155/2024/08/15/newcastle-starting-xi-summer-window/
 

@@ -1,3 +1,7 @@
+**Mauricio Pochettino agrees to deal for USMNT head-coaching job**\
+`Pochettino has never managed a national team, but the former Tottenham and Chelsea coach has had plenty of success at club level.`\
+https://nytimes.com/athletic/5702243/2024/08/15/mauricio-pochettino-usmnt-head-coach/
+
 **Why did White Sox intentionally walk Juan Soto to face Aaron Judge? Inside the surprising call**\
 `It's not often Judge swings at a pitch 3-0 out of the zone, but he took the decision to intentionally walk Soto personally.`\
 https://nytimes.com/athletic/5702179/2024/08/15/juan-soto-aaron-judge-yankees-white-sox/
