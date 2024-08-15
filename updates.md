@@ -1,3 +1,11 @@
+**Pochettino's tactics: How he can energise the USMNT ahead of the 2026 World Cup**\
+`Golden generations don't last forever. At the very minimum, Pochettino will bring a welcome dose of belief and expertise to this U.S. one`\
+https://nytimes.com/athletic/5703354/2024/08/15/pochettino-usmnt-tactics-world-cup-2026/
+
+**As Oilers' clock ticks, let's look at where Broberg, Holloway would fit into Blues lineup**\
+`What would the Blues' lineup look like if the Oilers don't match the team's offers for Philip Broberg and Dylan Holloway?`\
+https://nytimes.com/athletic/5700929/2024/08/15/oilers-blues-broberg-holloway-nhl/
+
 **Watch One Heartbreaking Scene to Understand Gena Rowlands’s Genius**\
 `In “A Woman Under the Influence,” her gloriously, terrifyingly imperfect Mabel was emblematic of the actress’s work, especially with John Cassavetes.`\
 https://nytimes.com/2024/08/15/movies/gena-rowlands-a-woman-under-the-influence.html

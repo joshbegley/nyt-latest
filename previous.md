@@ -1,3 +1,11 @@
+**Pochettino's tactics: How he can energise the USMNT ahead of the 2026 World Cup**\
+`Golden generations don't last forever. At the very minimum, Pochettino will bring a welcome dose of belief and expertise to this U.S. one`\
+https://nytimes.com/athletic/5703354/2024/08/15/pochettino-usmnt-tactics-world-cup-2026/
+
+**As Oilers' clock ticks, let's look at where Broberg, Holloway would fit into Blues lineup**\
+`What would the Blues' lineup look like if the Oilers don't match the team's offers for Philip Broberg and Dylan Holloway?`\
+https://nytimes.com/athletic/5700929/2024/08/15/oilers-blues-broberg-holloway-nhl/
+
 **Watch One Heartbreaking Scene to Understand Gena Rowlands’s Genius**\
 `In “A Woman Under the Influence,” her gloriously, terrifyingly imperfect Mabel was emblematic of the actress’s work, especially with John Cassavetes.`\
 https://nytimes.com/2024/08/15/movies/gena-rowlands-a-woman-under-the-influence.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/15/style/gena-rowlands-photos-notebook.html
 **Authorities Charge Five People For Giving Matthew Perry Ketamine**\
 `Matthew Perry’s personal assistant, two doctors and two others have been indicted and charged with providing the ketamine that caused his death.`\
 https://nytimes.com/video/us/100000009631767/matthew-perry-death.html
-
-**Columbia Remains Divided but Cautiously Optimistic as President Departs**\
-`The resignation of the Columbia University president, Nemat Shafik, was met with mixed reactions, but some on campus are optimistic for a fresh start.`\
-https://nytimes.com/2024/08/15/nyregion/columbia-university-shafik-resigns-students-faculty.html
-
-**Peter Marshall, Longtime Host of ‘The Hollywood Squares,’ Dies at 98**\
-`He played straight man to all manner of celebrities, asking questions on what was for many years the most popular game show on television.`\
-https://nytimes.com/2024/08/15/arts/television/peter-marshall-dead.html
 
