@@ -1,3 +1,7 @@
+**Fantasy football IDP league insights: Draft strategy; plus, sleepers and busts**\
+`Gary Davenport offers up advice for IDP leaguers, including draft strategy, and his top picks for sleepers and busts on the defensive side.`\
+https://nytimes.com/athletic/5701508/2024/08/15/idp-fantasy-football-2024-strategy-sleepers-busts/
+
 **Astros finish road trip on 8-game winning streak with sweep of Rays**\
 `Eight consecutive victories have Houston 2 1/2 games up in a division they've long dominated.`\
 https://nytimes.com/athletic/5702173/2024/08/15/astros-winning-streak-sweep-rays/
