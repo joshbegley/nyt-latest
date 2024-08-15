@@ -1,3 +1,11 @@
+**‘Close to You’ Review: Clumsy Overtures of Support**\
+`This formless drama featuring Elliot Page as a trans man returning home relies on improvised dialogue.`\
+https://nytimes.com/2024/08/15/movies/close-to-you-review-clumsy-overtures-of-support.html
+
+**‘Caligula: The Ultimate Cut’ Review: The Emperor’s New Clothes**\
+`With the belief that a masterpiece lurks within the mangled original 1980 release, Thomas Negovan has patched together a new version (with less skin) from the Penthouse archive.`\
+https://nytimes.com/2024/08/15/movies/caligula-the-ultimate-cut-review.html
+
 **Day 1 of Browns-Vikings joint practices featured physicality from both teams**\
 `Plus, quarterback Deshaun Watson gets his first action against an opposing team since his season-ending shoulder injury last year. `\
 https://nytimes.com/athletic/5701760/2024/08/15/cleveland-browns-minnesota-vikings-joint-practice/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5699445/2024/08/15/kylian-mbappe-la-liga-real-madri
 **Lawsuit seeks to allow Canadian Hockey League players to play in NCAA. Here's what it means**\
 `A proposed class-action lawsuit alleges that the NCAA is violating antitrust laws by preventing CHL from competing for NCAA teams.. `\
 https://nytimes.com/athletic/5701011/2024/08/15/ncaa-chl-rule-lawsuit/
-
-**Top 5 Yankees stories of the week: Catch up on the most-read NY headlines**\
-`Catchup up on the past week by checking out the most popular Yankees and MLB stories from the past week.`\
-https://nytimes.com/athletic/5697946/2024/08/15/new-york-yankees-top-stories/
-
-**California’s Crackdown on Homeless Encampments**\
-`Gov. Gavin Newsom has taken sweeping action in the wake of a landmark Supreme Court ruling.`\
-https://nytimes.com/2024/08/15/podcasts/the-daily/california-homeless-encampments.html
 
