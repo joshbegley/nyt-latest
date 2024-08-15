@@ -1,3 +1,15 @@
+**‘The Union’ Review: Old Flames and Spy Games**\
+`When a mission goes pear-shaped, a covert operative (Halle Berry) turns to a secret weapon: her high school boyfriend (Mark Wahlberg).`\
+https://nytimes.com/2024/08/15/movies/the-union-review.html
+
+**At News Conference, Donald Trump Says He’s ‘Entitled to Personal Attacks’ Against Kamala Harris**\
+`Mr. Trump suggested he has no plans to moderate the tone of his campaign even as some Republicans have pushed him to emphasize policy issues.`\
+https://nytimes.com/2024/08/15/us/politics/trump-press-conference.html
+
+**Texas Parents Fed Smoothies to Sick Daughter Who Later Died, Police Say**\
+`Miranda Sipps, 12, suffered for four days before dying while her mother and stepfather failed to seek medical treatment for her, the authorities said. Both are charged with a felony.`\
+https://nytimes.com/2024/08/15/us/texas-girl-dies-smoothie.html
+
 **Mets lose control, walk 11 in loss to A's: 'Today was not a good day'**\
 `The Mets have lost 8 of 13 games, including five of their last six, as part of an up-and-down season.`\
 https://nytimes.com/athletic/5704247/2024/08/15/mets-mlb-pressure/
