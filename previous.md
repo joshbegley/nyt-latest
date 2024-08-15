@@ -1,40 +1,40 @@
-**10 Terrific Gena Rowlands Performances to Stream**\
-`She delivered vulnerable portraits in movies as varied as “A Woman Under the Influence,” with John Cassavetes, and the drama “The Notebook.”`\
-https://nytimes.com/2024/08/14/movies/gena-rowlands-movies.html
+**Corrections: Aug. 15, 2024**\
+`Corrections that appeared in print on Thursday, Aug. 15, 2024.`\
+https://nytimes.com/2024/08/15/pageoneplus/corrections-aug-15-2024.html
 
-**Whatever the message in meeting, Kyle Schwarber's swing does more than words for Phillies**\
-`The wobbling Phillies had a clubhouse meeting, then pummeled the Marlins. They believe they have the right group to right the ship.`\
-https://nytimes.com/athletic/5702142/2024/08/14/phillies-kyle-schwarber-team-meeting/
+**FPL: Is Erling Haaland, FPL's priciest player ever, still worth it?**\
+`Haaland has the highest starting price of all-time in FPL — so is he still essential despite such a huge price tag?`\
+https://nytimes.com/athletic/5655154/2024/08/15/fantasy-premier-league-erling-haaland-price/
 
-**Is Pete Alonso's big night the start of a well-timed hot streak for the Mets?**\
-`Carlos Mendoza hopes this is one of Alonso's annual torrid stretches: “He can carry a team. We've seen it."`\
-https://nytimes.com/athletic/5702091/2024/08/14/mets-pete-alonso-hot-streak/
+**How to watch the Premier League wherever you are in the U.S., UK and Canada**\
+`The Premier League is back — here's how to watch it`\
+https://nytimes.com/athletic/5688430/2024/08/15/premier-league-how-to-watch-us-canada-uk/
 
-**Rockies place former All-Star Game MVP on waivers**\
-`Díaz, 33, was the All-Star Game MVP just over a year ago. `\
-https://nytimes.com/athletic/5702109/2024/08/14/elias-diaz-waivers-colorado-rockies/
+**Ukraine’s Incursion Into Russia Flips the Script on Putin**\
+`The reality of 130,000 displaced Russians and a chaotic official response may begin to puncture the official line that Russia is steadily heading toward victory.`\
+https://nytimes.com/2024/08/15/world/europe/ukraine-russia-incursion-putin.html
 
-**Yankees' Judge hits his 300th career home run**\
-`Judge reached the milestone in the fewest number of games and at-bats of any player in MLB history.`\
-https://nytimes.com/athletic/5696441/2024/08/14/yankees-aaron-judge-300-home-runs/
+**Thursday's MLB odds, best bets: Predictions for pitching matchups, props, playoffs and more**\
+`See pitching matchups, playoff projections, win projections and more for Thursday's MLB games.`\
+https://nytimes.com/athletic/5701492/2024/08/15/mlb-odds-best-bets-projections-august-15/
 
-**Where Lines May Be Drawn in the Sand**\
-`Damon Gulczynski wants to make sure you’re paying attention.`\
-https://nytimes.com/2024/08/14/crosswords/daily-puzzle-2024-08-15.html
+**To Solve Its Housing Crisis, Britain Turns to an Old Idea: New Towns**\
+`By reviving an idea from the 1940s, the Labour Party government is hoping to overcome the development hurdles that have plagued previous efforts with a plan to build new communities.`\
+https://nytimes.com/2024/08/15/business/uk-housing-crisis-new-towns.html
 
-**Illinois Woman Is Sentenced to Nine Years for Stealing $1.5 Million in Chicken Wings**\
-`Vera Liddell, 68, pleaded guilty to felony theft for stealing more than 11,000 cases of chicken wings valued at $1.5 million, the Cook County State’s Attorney’s Office said.`\
-https://nytimes.com/2024/08/14/us/chicago-school-chicken-wings-theft.html
+**The British Have Finally Learned to Love Peanut Butter**\
+`The land of Marmite and jam is finally embracing America’s favorite spread, after years in which it was impossible to find.`\
+https://nytimes.com/2024/08/15/dining/british-peanut-butter.html
 
-**Kennedy Sought a Meeting With Harris to Discuss a Cabinet Post**\
-`Robert F. Kennedy Jr. was unsuccessful with his request to discuss endorsing the Democratic nominee in exchange for a top administration job, according to two people briefed on the outreach.`\
-https://nytimes.com/2024/08/14/us/politics/rfk-jr-kamala-harris-cabinet-meeting.html
+**Quotation of the Day: Fleeing Sudan Conflict, Only to Find in England a Mob Menacing Them**\
+`Quotation of the Day for Thursday, August 15, 2024.`\
+https://nytimes.com/2024/08/14/pageoneplus/quotation-of-the-day-fleeing-sudan-conflict-only-to-find-in-england-a-mob-menacing-them.html
 
-**Rolling Padres keep pace with Diamondbacks while claiming, and proving, narrow focus**\
-`The past few weeks have revealed a team that is blending preparation, execution and good fortune to exceed all expectations, except its own.`\
-https://nytimes.com/athletic/5701108/2024/08/14/padres-success-post-all-star-break/
+**Harris Will Back Federal Ban on Price Gouging, Campaign Says**\
+`The vice president is leaning into an effort to partly blame big companies for inflation, as progressives have pushed her to embrace that argument.`\
+https://nytimes.com/2024/08/14/business/kamala-harris-price-gouging-inflation.html
 
-**What to Know About the State of the Cease-Fire Talks**\
-`As tensions in the Middle East escalate, negotiators are set to meet in Qatar to try to reach an agreement to end the war in Gaza. President Biden said he was “not giving up” but that it was “getting harder” to remain optimistic.`\
-https://nytimes.com/2024/08/14/world/middleeast/israel-hamas-gaza-cease-fire-talks.html
+**Bowling, Selfies and the ‘Dougie’: Biden Woos Influencers at the White House**\
+`For its first conference on the creator economy, the Biden administration celebrated social media creators. The president lauded them as a “breakthrough in how we communicate.”`\
+https://nytimes.com/2024/08/14/business/biden-social-media-creators-white-house.html
 
