@@ -1,3 +1,7 @@
+**10 Terrific Gena Rowlands Performances to Stream**\
+`She delivered vulnerable portraits in movies as varied as “A Woman Under the Influence,” with John Cassavetes, and the drama “The Notebook.”`\
+https://nytimes.com/2024/08/14/movies/gena-rowlands-movies.html
+
 **Whatever the message in meeting, Kyle Schwarber's swing does more than words for Phillies**\
 `The wobbling Phillies had a clubhouse meeting, then pummeled the Marlins. They believe they have the right group to right the ship.`\
 https://nytimes.com/athletic/5702142/2024/08/14/phillies-kyle-schwarber-team-meeting/
