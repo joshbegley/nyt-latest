@@ -1,3 +1,19 @@
+**Gena Rowlands, Actress Who Bought Raw Drama to Her Roles, Dies at 94**\
+`Known for playing on-the-verge characters, she was twice earned Oscar nominations for her work in films directed by John Cassavetes, her husband.`\
+https://nytimes.com/2024/08/14/movies/gena-rowlands-dead.html
+
+**For Remote Alaskan Communities, a Lifeline Comes From the Sky **\
+`In Utqiagvik, the northernmost city in the United States, nothing arrives by road. The city of about 5,000 residents relies extensively on cargo delivered by airplanes.`\
+https://nytimes.com/card/2024/08/15/business/alaska-airlines-cargo-utqiagvik
+
+**Federal Audit Orders M.T.A. to Improve Track Worker Safety**\
+`The Federal Transit Administration released the report nine months after the death of a transit worker. If the M.T.A. does not comply, it could lose funding.`\
+https://nytimes.com/2024/08/14/nyregion/federal-audit-orders-mta-to-improve-track-worker-safety.html
+
+**Columbia President Resigns After Months of Turmoil on Campus**\
+`Nemat Shafik is the third university president to resign in the wake of turbulent congressional appearances and strife connected to the Israel-Hamas war.`\
+https://nytimes.com/2024/08/14/us/columbia-president-nemat-shafik-resigns.html
+
 **Federal Audit Orders M.T.A. to Improve Track Worker Safety**\
 `The Federal Transit Authority released the report nine months after the death of a transit worker. If the M.T.A. does not comply, it could lose funding.`\
 https://nytimes.com/2024/08/14/nyregion/federal-audit-orders-mta-to-improve-track-worker-safety.html
