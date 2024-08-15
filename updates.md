@@ -1,3 +1,7 @@
+**Ed Sheeran buys minority stake in Ipswich Town**\
+`Singer-songwriter Ed Sheeran has bought a minority stake in Premier League side Ipswich Town.`\
+https://nytimes.com/athletic/5703557/2024/08/15/ed-sheeran-ipswich-town-owner-stake/
+
 **ESPN fires Griffin III, Ponder in cost-cutting moves**\
 `Griffin, who as recently as last year had been viewed as a rising star at ESPN, had two years remaining on his deal.`\
 https://nytimes.com/athletic/5703445/2024/08/15/espn-fires-robert-griffin/

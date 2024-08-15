@@ -1,3 +1,7 @@
+**Ed Sheeran buys minority stake in Ipswich Town**\
+`Singer-songwriter Ed Sheeran has bought a minority stake in Premier League side Ipswich Town.`\
+https://nytimes.com/athletic/5703557/2024/08/15/ed-sheeran-ipswich-town-owner-stake/
+
 **Unusual Origin Found for Asteroid That Killed the Dinosaurs**\
 `A study adds strong evidence to the hypothesis that the deadly rock came from a family of objects that originally formed well beyond the orbit of the planet Jupiter.`\
 https://nytimes.com/2024/08/15/science/asteroid-dinosaurs-chicxulub.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/15/us/politics/harris-walz-democrats-language.html
 **What to Know About the Latest Social Security Number Breach**\
 `Hackers may have gained access to the private information of millions of people from a background check company called National Public Data. Should you be worried? We have some advice.`\
 https://nytimes.com/2024/08/15/business/social-security-numbers-stolen-hack.html
-
-**Prosecutors Accuse Argentina’s Former President of Beating First Lady**\
-`A domestic violence scandal has rocked Argentina since Alberto Fernández, the country’s former president, was accused of abusing his partner, Fabiola Yáñez. He has denied the allegations.`\
-https://nytimes.com/2024/08/15/world/americas/argentina-president-fernandez-abuse.html
 
