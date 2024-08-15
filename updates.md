@@ -1,3 +1,7 @@
+**You’re Only as Smart as Your Emotions**\
+`We now understand that our emotions are often wise. The problem is that our culture and our institutions haven’t caught up with our knowledge.`\
+https://nytimes.com/2024/08/15/opinion/emotions-feelings-intelligence.html
+
 **As Harris and Biden Take a Victory Lap on Drug Costs, She Sets the Pace**\
 `At their first joint public appearance since the shake-up of the Democratic ticket, the two leaders traded warm words and showed how they hope to use his legacy to slingshot her to the White House.`\
 https://nytimes.com/2024/08/15/us/politics/harris-biden-drug-prices-medicare.html

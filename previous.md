@@ -1,3 +1,7 @@
+**You’re Only as Smart as Your Emotions**\
+`We now understand that our emotions are often wise. The problem is that our culture and our institutions haven’t caught up with our knowledge.`\
+https://nytimes.com/2024/08/15/opinion/emotions-feelings-intelligence.html
+
 **As Harris and Biden Take a Victory Lap on Drug Costs, She Sets the Pace**\
 `At their first joint public appearance since the shake-up of the Democratic ticket, the two leaders traded warm words and showed how they hope to use his legacy to slingshot her to the White House.`\
 https://nytimes.com/2024/08/15/us/politics/harris-biden-drug-prices-medicare.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5703790/2024/08/15/bad-bunny-mlbpa-agency-case-arbi
 `By Josh Kendall, Dianna Russini and Jeff Howe
 The Atlanta Falcons are signing Pro Bowl safety Justin Simmons.`\
 https://nytimes.com/athletic/5703554/2024/08/15/atlanta-falcons-sign-justin-simmons/
-
-**Corey Lewandowski, Trump’s Ex-Campaign Manager, Joins Team**\
-`Mr. Lewandowski, who was fired from his post during Donald J. Trump’s 2016 run, has been a divisive and yet consistent presence in his world.`\
-https://nytimes.com/2024/08/15/us/politics/corey-lewandowski-joins-trump-campaign.html
 
