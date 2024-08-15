@@ -1,3 +1,7 @@
+**Is the Warriors front office failing Steph Curry?**\
+`Curry has shown he can still rise above on the largest stage but the current Warriors roster still presents one glaring flaw. `\
+https://nytimes.com/athletic/5684308/2024/08/15/warriors-steph-curry-future-roster/
+
 **Liverpool season preview: No signings, Salah's (possible) swansong... but Slot looks ready**\
 `Can new coach Slot fill Klopp's shoes? Who could be their 2024-25 breakthrough star? And who is in the best XI?`\
 https://nytimes.com/athletic/5700826/2024/08/15/liverpool-premier-league-season-preview/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/15/business/economy/retail-sales-july-stocks.html
 **Spurs suspend Bissouma for PL opener after nitrous oxide video**\
 `Tottenham Hotspur have suspended midfielder Yves Bissouma for their Premier League opening match against Leicester City after footage emerged of him appearing to inhale nitrous oxide.`\
 https://nytimes.com/athletic/5702614/2024/08/15/yves-bissouma-tottenham-suspended-laughing-gas/
-
-**Anthony Edwards' Olympic experience couldn't have been better for him or the Wolves**\
-`Edwards contributed to Team USA's gold medal, and he soaked up wisdom from NBA legends in the process. That can only help him.`\
-https://nytimes.com/athletic/5696739/2024/08/15/anthony-edwards-olympics-timberwolves/
 
