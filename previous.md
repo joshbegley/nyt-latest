@@ -1,3 +1,7 @@
+**The Best Movies and TV Shows Coming to Netflix in August**\
+`This month sees the return of “Emily in Paris” and a superhero ensemble, along with a heartbreaking documentary about the daughters of imprisoned men.`\
+https://nytimes.com/2024/08/15/arts/television/netflix-new-tv-movies.html
+
 **Ohio State names Will Howard starting QB**\
 `Ohio State coach Ryan Day named Kansas State transfer Will Howard the Buckeyes' starting quarterback, beating out Devin Brown.`\
 https://nytimes.com/athletic/5702932/2024/08/15/will-howard-ohio-state-starting-quarterback/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/15/health/mpox-emergency-vaccines-treatments.html
 **Alan Gustafson reflects on milestone as NASCAR crew chief**\
 `Gustafson will call his 700th NASCAR Cup Series race on Sunday at Michigan International Speedway.`\
 https://nytimes.com/athletic/5702201/2024/08/15/alan-gustafson-nascar-crew-chief-race-cup-series/
-
-**Nugent-Bowman: Ken Holland deserves less blame for Broberg, Holloway offer sheets**\
-`Despite the mess the Oilers are in now, little of what has transpired this week with the team's two emerging talents is Holland's doing.`\
-https://nytimes.com/athletic/5702757/2024/08/15/oilers-offer-sheets-broberg-holloway-holland/
 

@@ -1,3 +1,7 @@
+**The Best Movies and TV Shows Coming to Netflix in August**\
+`This month sees the return of “Emily in Paris” and a superhero ensemble, along with a heartbreaking documentary about the daughters of imprisoned men.`\
+https://nytimes.com/2024/08/15/arts/television/netflix-new-tv-movies.html
+
 **Seth Bloom, 49, Who Brought Laughter to the Rubble of War, Dies**\
 `A virtuoso of physical comedy, he performed around the world with his wife. Most notably, he helped stage clown shows in Afghanistan.`\
 https://nytimes.com/2024/08/15/arts/seth-bloom-dead.html
