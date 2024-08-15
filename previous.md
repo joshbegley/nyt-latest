@@ -1,3 +1,7 @@
+**The Windup: Judge's latest mind-boggling feat**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5703016/2024/08/15/aaron-judge-home-runs-babe-ruth-the-windup/
+
 **The Bounce: Your early NBA Cup preview**\
 `Zach Harper and Shams Charania catch you up on league-wide news.`\
 https://nytimes.com/athletic/5701539/2024/08/15/nba-cup-charles-barkley-tnt-wnba-aja-wilson-caitlin-clark-angel-reese-nba-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/15/science/exploding-termites-toxins.html
 **From Here to Eternity, a Choreographer Sinks Into the Sea**\
 `Faye Driscoll uses the ocean as her collaborator in a sunset dance celebrating the 10th anniversary of Beach Sessions.`\
 https://nytimes.com/2024/08/15/arts/dance/beach-sessions-rockaway-faye-driscoll.html
-
-**On Anniversary of Taliban Takeover, Glee, Mourning and an Embrace of Jihad**\
-`Celebrations marking the third year since the U.S. withdrawal are amplifying a divide in Afghanistan over what principles it should be governed by.`\
-https://nytimes.com/2024/08/15/world/asia/afghanistan-taliban-anniversary.html
 

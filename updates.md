@@ -1,3 +1,7 @@
+**The Windup: Judge's latest mind-boggling feat**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5703016/2024/08/15/aaron-judge-home-runs-babe-ruth-the-windup/
+
 **The Bounce: Your early NBA Cup preview**\
 `Zach Harper and Shams Charania catch you up on league-wide news.`\
 https://nytimes.com/athletic/5701539/2024/08/15/nba-cup-charles-barkley-tnt-wnba-aja-wilson-caitlin-clark-angel-reese-nba-the-bounce/
