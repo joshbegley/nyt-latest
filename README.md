@@ -1,3 +1,7 @@
+**Ukraine Hits Russian Airfields as It Presses Cross-Border Assault**\
+`At least two of the airfields it struck are near Kursk, where Ukrainian troops have been advancing.`\
+https://nytimes.com/2024/08/15/world/europe/russia-ukraine-airfields-kursk.html
+
 **A Catastrophic Civil War in Sudan**\
 `How an unexpected conflict is crushing Africa’s third-largest country.`\
 https://nytimes.com/2024/08/15/briefing/sudan-civil-war.html
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/5702413/2024/08/15/sandro-tonali-return-newcastle/
 `Senior La Liga figures are keen for a game to be played in the U.S. — the potential is huge and they are eager to capitalise`\
 https://nytimes.com/athletic/5699445/2024/08/15/kylian-mbappe-la-liga-real-madrid-barcelona-united-states/
 
-**Lawsuit seeks to allow CHL players to play NCAA hockey: What it means, why it matters**\
+**Lawsuit seeks to allow Canadian Hockey League players to play in NCAA. Here's what it means**\
 `A proposed class-action lawsuit alleges that the NCAA is violating antitrust laws by preventing CHL from competing for NCAA teams.. `\
 https://nytimes.com/athletic/5701011/2024/08/15/ncaa-chl-rule-lawsuit/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/15/crosswords/connections-companion-432.html
 **All Eyes on Gaza Cease-Fire Talks, and Kennedy Explores a Cabinet Job**\
 `Plus, a scourge of “deepfake” Elon Musk scams.`\
 https://nytimes.com/2024/08/15/podcasts/gaza-cease-fire-talks-rfk-jr.html
-
-**Wordle Review No. 1,154**\
-`Scroll down for hints and conversation about the puzzle for Day of Week, Date, Year.`\
-https://nytimes.com/2024/08/15/crosswords/wordle-review-1154.html
 
