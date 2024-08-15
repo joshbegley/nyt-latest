@@ -1,3 +1,11 @@
+**What to Know About the Latest Social Security Number Breach**\
+`Hackers may have gained access to the private information of millions of people from a background check company called National Public Data. Should you be worried? We have some advice.`\
+https://nytimes.com/2024/08/15/business/social-security-numbers-stolen-hack.html
+
+**Prosecutors Accuse Argentina’s Former President of Beating First Lady**\
+`A domestic violence scandal has rocked Argentina since Alberto Fernández, the country’s former president, was accused of abusing his partner, Fabiola Yáñez. He has denied the allegations.`\
+https://nytimes.com/2024/08/15/world/americas/argentina-president-fernandez-abuse.html
+
 **Burning Man Has Sold Out Since 2011. Why Not This Year?**\
 `The desert arts festival returns this month after two consecutive years of challenging weather, including mud that stranded attendees, and a Covid-19 hiatus.`\
 https://nytimes.com/2024/08/15/us/burning-man-ticket-sales.html

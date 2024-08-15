@@ -1,3 +1,11 @@
+**What to Know About the Latest Social Security Number Breach**\
+`Hackers may have gained access to the private information of millions of people from a background check company called National Public Data. Should you be worried? We have some advice.`\
+https://nytimes.com/2024/08/15/business/social-security-numbers-stolen-hack.html
+
+**Prosecutors Accuse Argentina’s Former President of Beating First Lady**\
+`A domestic violence scandal has rocked Argentina since Alberto Fernández, the country’s former president, was accused of abusing his partner, Fabiola Yáñez. He has denied the allegations.`\
+https://nytimes.com/2024/08/15/world/americas/argentina-president-fernandez-abuse.html
+
 **Burning Man Has Sold Out Since 2011. Why Not This Year?**\
 `The desert arts festival returns this month after two consecutive years of challenging weather, including mud that stranded attendees, and a Covid-19 hiatus.`\
 https://nytimes.com/2024/08/15/us/burning-man-ticket-sales.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/15/us/politics/ukraine-incursion-russia-kursk.html
 **Appointments policy for English referees to be published for first time**\
 `The policy that helps inform which match officials are chosen to appoint games in the Premier League, English Football League and Women&#8217;s Super League has been published for the first time.`\
 https://nytimes.com/athletic/5703288/2024/08/15/premier-league-referees-efl-wsl-pgmol/
-
-**Wrigley Field to hold college hockey games after Winter Classic**\
-`The event, named The Frozen Confines: Big Ten Hockey Series, will include three men’s hockey games and one women’s hockey game.`\
-https://nytimes.com/athletic/5703319/2024/08/15/wrigley-field-nhl-winter-classic-big-ten-hockey/
-
-**Glenn A. Youngkin**\
-`News about Glenn A. Youngkin. Commentary and archival information about Glenn A. Youngkin from The New York Times.`\
-https://nytimes.com/topic/glenn-a.-youngkin
 
