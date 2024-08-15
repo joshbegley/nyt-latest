@@ -1,3 +1,7 @@
+**NBA’s best offseason moves by team: Finalists crack top 10, but neither is No. 1**\
+`The final entry in our three-part series examining every team's offseason transactions and how they set up the franchise for next season.`\
+https://nytimes.com/athletic/5639300/2024/08/15/nba-offseason-rankings-2024-celtics-mavs-knicks-76ers/
+
 **Mobs Attack Bangladesh’s Toppled Party as New Leaders Struggle to Keep Order**\
 `A cycle of vengeance is playing out even as the interim government is trying to establish reforms and keep order, with the police slow to return to their posts.`\
 https://nytimes.com/2024/08/15/world/asia/bangladesh-protest-violence.html
