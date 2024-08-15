@@ -1,3 +1,7 @@
+**Friday Briefing: Ukraine Takes a Russian Town**\
+`Plus, with one room, Brazil confronts its racist past.`\
+https://nytimes.com/2024/08/15/briefing/ukraine-incursion-russia-mpox-sweden-harris-biden.html
+
 **Harvard Settles Lawsuit Over Claims of Sexual Harassment by a Professor**\
 `Three students sued the university in 2022 over its response to reports of sexual harassment by John Comaroff, a renowned anthropology professor.`\
 https://nytimes.com/2024/08/15/education/harvard-settlement-john-comaroff.html
