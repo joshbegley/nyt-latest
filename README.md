@@ -1,3 +1,7 @@
+**Arizona Court Sides With G.O.P. Over Abortion Language in Voter Pamphlets**\
+`The court ruled that informational brochures the state sends to voters can use the term “unborn human being” to describe an embryo or a fetus.`\
+https://nytimes.com/2024/08/15/us/arizona-supreme-court-abortion.html
+
 **Closed for Months, a Gateway for Aid to Famine-Stricken Sudan Swings Open**\
 `Accused of blocking food aid for its starving people, Sudan’s military announced it would reopen the main border crossing with Chad, which it had closed for six months to U.N. relief trucks.`\
 https://nytimes.com/2024/08/15/world/africa/sudan-chad-adre-border-crossing-reopens.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/15/business/fbi-social-media-disinformation.html
 **Pochettino's tactics: How he can energise the USMNT ahead of the 2026 World Cup**\
 `Golden generations don't last forever. At the very minimum, Pochettino will bring a welcome dose of belief and expertise to this U.S. one`\
 https://nytimes.com/athletic/5703354/2024/08/15/pochettino-usmnt-tactics-world-cup-2026/
-
-**As Oilers' clock ticks, let's look at where Broberg, Holloway would fit into Blues lineup**\
-`What would the Blues lineup look like if the Oilers don't match the team's offers for Philip Broberg and Dylan Holloway?`\
-https://nytimes.com/athletic/5700929/2024/08/15/oilers-blues-broberg-holloway-nhl/
 
