@@ -1,3 +1,7 @@
+**In Plain Sight, Republicans Are Still Trying to Undermine the Election**\
+`They want to do their own research.`\
+https://nytimes.com/live/2024/08/13/opinion/thepoint/georgia-republican-election-board
+
 **Seth Bloom, 49, Who Brought Laughter to the Rubble of War, Dies**\
 `A virtuoso of physical comedy, he performed around the world with his wife. He also helped stage clown shows in Afghanistan.`\
 https://nytimes.com/2024/08/15/arts/seth-bloom-dead.html
