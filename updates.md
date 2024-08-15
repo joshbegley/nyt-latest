@@ -1,3 +1,7 @@
+**Walker Buehler returns to Dodgers with familiar problems: 'Got to get the production'**\
+`The Dodgers will be patient with Buehler. But how patient?`\
+https://nytimes.com/athletic/5702178/2024/08/15/walker-buehler-returns-dodgers/
+
 **Astros finish road trip on 8-game winning streak with sweep of Rays**\
 `Eight consecutive victories have Houston 2 1/2 games up in a division it's long dominated.`\
 https://nytimes.com/athletic/5702173/2024/08/15/astros-winning-streak-sweep-rays/
