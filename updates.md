@@ -1,3 +1,7 @@
+**Arizona Court Sides With G.O.P. Over Abortion Language in Voter Pamphlets**\
+`The court ruled that informational brochures the state sends to voters can use the term “unborn human being” to describe an embryo or a fetus.`\
+https://nytimes.com/2024/08/15/us/arizona-supreme-court-abortion.html
+
 **Closed for Months, a Gateway for Aid to Famine-Stricken Sudan Swings Open**\
 `Accused of blocking food aid for its starving people, Sudan’s military announced it would reopen the main border crossing with Chad, which it had closed for six months to U.N. relief trucks.`\
 https://nytimes.com/2024/08/15/world/africa/sudan-chad-adre-border-crossing-reopens.html
