@@ -1,3 +1,7 @@
+**Arrest Made in Investigation Into Matthew Perry’s Death**\
+`Law enforcement agencies have been working to identify the source of the ketamine that led to the “Friends” star’s death.`\
+https://nytimes.com/2024/08/15/arts/television/matthew-perry-charges-ketamine.html
+
 **2026 Prices for Drugs That Are Subject to Negotiations**\
 `The prices were made possible by the Inflation Reduction Act, which granted the health secretary the authority to negotiate on behalf of Medicare.`\
 https://nytimes.com/2024/08/15/us/politics/drug-prices-medicare-negotiations.html
