@@ -1,3 +1,11 @@
+**Scoop City: Players to watch in tonight Eagles Patriots matchup**\
+`Falcons acquire Matthew Judon, Vikings lose J.J. McCarthy for the year and the NFL's biggest stories.`\
+https://nytimes.com/athletic/5702760/2024/08/15/the-falcons-add-a-star-plus-nfl-preseason-week-2-begins-tonight-scoop-city/
+
+**Everton's Branthwaite to miss start of PL season through injury**\
+`Everton defender Jarrad Branthwaite is set to miss the start of the season through injury.`\
+https://nytimes.com/athletic/5702680/2024/08/15/jarrad-branthwaite-everton-injury-news/
+
 **Indianapolis to host 2025 WNBA All-Star Game**\
 `The game will be held at Gainbridge Fieldhouse on July 19, marking Indianapolis' first time hosting the 2025 WNBA All-Star Game.`\
 https://nytimes.com/athletic/5702704/2024/08/15/wnba-all-star-game-2025-indianapolis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5701732/2024/08/15/john-tavares-auston-matthews-map
 **Until Saturday: Our preseason All-America teams are out, plus die-hard fans**\
 `Welcome to Until Saturday, the five-star college football newsletter: The Athletic's preseason All-America teams are out.`\
 https://nytimes.com/athletic/5701981/2024/08/15/ohio-state-football-college-fans-until-saturday/
-
-**Voter registration data offers a hint of enthusiasm for Democrats.**\
-`By Francesca Paris`\
-https://nytimes.com/live/2024/08/15/us/harris-trump-election/voter-registration-data-offers-a-hint-of-enthusiasm-for-democrats
-
-**He Still Thought He Could Win: Inside Biden’s Decision to Drop Out**\
-`People close to President Biden say he believes he could have won a second term. But he came to realize that the fight would rip apart the Democratic Party that he had served his whole life.`\
-https://nytimes.com/2024/08/15/us/politics/biden-2024-election-dropped-out.html
 

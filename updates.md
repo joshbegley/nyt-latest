@@ -1,3 +1,11 @@
+**Scoop City: Players to watch in tonight Eagles Patriots matchup**\
+`Falcons acquire Matthew Judon, Vikings lose J.J. McCarthy for the year and the NFL's biggest stories.`\
+https://nytimes.com/athletic/5702760/2024/08/15/the-falcons-add-a-star-plus-nfl-preseason-week-2-begins-tonight-scoop-city/
+
+**Everton's Branthwaite to miss start of PL season through injury**\
+`Everton defender Jarrad Branthwaite is set to miss the start of the season through injury.`\
+https://nytimes.com/athletic/5702680/2024/08/15/jarrad-branthwaite-everton-injury-news/
+
 **Indianapolis to host 2025 WNBA All-Star Game**\
 `The game will be held at Gainbridge Fieldhouse on July 19, marking Indianapolis' first time hosting the 2025 WNBA All-Star Game.`\
 https://nytimes.com/athletic/5702704/2024/08/15/wnba-all-star-game-2025-indianapolis/
