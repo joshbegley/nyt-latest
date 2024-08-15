@@ -1,3 +1,8 @@
+**Atlanta Falcons signing Pro Bowl safety Justin Simmons**\
+`By Josh Kendall, Dianna Russini and Jeff Howe
+The Atlanta Falcons are signing Pro Bowl safety Justin Simmons.`\
+https://nytimes.com/athletic/5703554/2024/08/15/atlanta-falcons-sign-justin-simmons/
+
 **Bad Bunny agency case to stay with arbitrator**\
 `The judge said the dispute belongs in arbitration, which is what the union wanted when the agency asked the court to intervene.`\
 https://nytimes.com/athletic/5703790/2024/08/15/bad-bunny-mlbpa-agency-case-arbitrator/
