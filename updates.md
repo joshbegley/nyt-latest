@@ -1,3 +1,15 @@
+**The Bounce: Your early NBA Cup preview**\
+`Zach Harper and Shams Charania catch you up on league-wide news.`\
+https://nytimes.com/athletic/5701539/2024/08/15/nba-cup-charles-barkley-tnt-wnba-aja-wilson-caitlin-clark-angel-reese-nba-the-bounce/
+
+**Judge Finds Flaws in New York City’s Cannabis Enforcement Efforts**\
+`The city has appealed the judge’s ruling in favor of a convenience store in Queens that could have broader implications for enforcement.`\
+https://nytimes.com/2024/08/15/nyregion/nyc-marijuana-enforcement.html
+
+**Milan close to signing Monaco midfielder Fofana**\
+`Milan are close to completing the signing of midfielder Youssouf Fofana from Monaco in a deal worth around €25million (£21.`\
+https://nytimes.com/athletic/5674068/2024/08/15/youssouf-fofana-milan-transfer/
+
 **Sydney Lemmon Puts the Twisted Humanity Behind Tech on Broadway**\
 `After a small part in “Succession,” the actor has a breakout role in “Job,” in which she plays a content moderator having a mental breakdown.`\
 https://nytimes.com/2024/08/15/theater/sydney-lemmon-job-broadway.html
