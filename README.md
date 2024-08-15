@@ -1,7 +1,3 @@
-**Ukraine Hits Russian Airfields as It Presses Cross-Border Assault**\
-`At least two of the airfields it struck are near Kursk, where Ukrainian troops have been advancing.`\
-https://nytimes.com/2024/08/15/world/europe/russia-ukraine-airfields-kursk.html
-
 **A Catastrophic Civil War in Sudan**\
 `How an unexpected conflict is crushing Africa’s third-largest country.`\
 https://nytimes.com/2024/08/15/briefing/sudan-civil-war.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/08/15/crosswords/connections-companion-432.html
 **All Eyes on Gaza Cease-Fire Talks, and Kennedy Explores a Cabinet Job**\
 `Plus, a scourge of “deepfake” Elon Musk scams.`\
 https://nytimes.com/2024/08/15/podcasts/gaza-cease-fire-talks-rfk-jr.html
+
+**Wordle Review No. 1,154**\
+`Scroll down for hints and conversation about the puzzle for Day of Week, Date, Year.`\
+https://nytimes.com/2024/08/15/crosswords/wordle-review-1154.html
 
