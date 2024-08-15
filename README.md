@@ -10,8 +10,8 @@ https://nytimes.com/2024/08/14/nyregion/brooklyn-hate-crimes.html
 `Harbaugh coached Kaepernick from 2011 to 2014 when he played for the San Francisco 49ers.`\
 https://nytimes.com/athletic/5701754/2024/08/14/harbaugh-kaepernick-chargers-coach/
 
-**Columbia President Resigns After Months of Turmoil**\
-`Nemat Shafik is the third Ivy League president to resign in the wake of protests connected to the Israel-Hamas war.`\
+**Columbia President Resigns After Months of Turmoil on Campus**\
+`Nemat Shafik is the third university president to resign in the wake of strife connected to the Israel-Hamas war. She will take a job in the British government.`\
 https://nytimes.com/2024/08/14/us/columbia-president-nemat-shafik-resigns.html
 
 **The Yankees' trade deadline moves have already not aged well. Now what?**\
