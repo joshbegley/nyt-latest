@@ -1,3 +1,11 @@
+**Mobs Attack Bangladesh’s Toppled Party as New Leaders Struggle to Keep Order**\
+`A cycle of vengeance is playing out even as the interim government is trying to establish reforms and keep order, with the police slow to return to their posts.`\
+https://nytimes.com/2024/08/15/world/asia/bangladesh-protest-violence.html
+
+**Premier League strongest starting XIs and set-piece takers for 2024-25 season**\
+`Our writers pick their strongest XIs for the new season and the expected set-piece takers for each club`\
+https://nytimes.com/athletic/5695478/2024/08/15/premier-league-predicted-strongest-lineups-set-pieces/
+
 **What happened to the Rangers? World Series champs assess underwhelming title defense**\
 `Texas has fallen well short of expectations in 2024. What has gone wrong and how do they fix it? GM Chris Young gave us his take.`\
 https://nytimes.com/athletic/5701658/2024/08/15/rangers-world-series-champs-defense/

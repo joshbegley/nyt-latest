@@ -1,3 +1,11 @@
+**Mobs Attack Bangladesh’s Toppled Party as New Leaders Struggle to Keep Order**\
+`A cycle of vengeance is playing out even as the interim government is trying to establish reforms and keep order, with the police slow to return to their posts.`\
+https://nytimes.com/2024/08/15/world/asia/bangladesh-protest-violence.html
+
+**Premier League strongest starting XIs and set-piece takers for 2024-25 season**\
+`Our writers pick their strongest XIs for the new season and the expected set-piece takers for each club`\
+https://nytimes.com/athletic/5695478/2024/08/15/premier-league-predicted-strongest-lineups-set-pieces/
+
 **What happened to the Rangers? World Series champs assess underwhelming title defense**\
 `Texas has fallen well short of expectations in 2024. What has gone wrong and how do they fix it? GM Chris Young gave us his take.`\
 https://nytimes.com/athletic/5701658/2024/08/15/rangers-world-series-champs-defense/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/08/15/us/california-fires.html
 **Nevada Senate Race Now Favors Democrat, Report Says**\
 `The nonpartisan Cook Political Report moved the race from “tossup” to “lean Democrat” after polling shows Senator Jacky Rosen with a large edge.`\
 https://nytimes.com/2024/08/15/us/politics/jacky-rosen-nevada-senate.html
-
-**A Sunny New Restaurant in a Parisian Train Station**\
-`Plus: skin care inspired by Belize, a Los Angeles designer’s denim collection and more recommendations from T Magazine.`\
-https://nytimes.com/2024/08/15/t-magazine/gare-de-lyon-paris-restaurant-marius.html
-
-**A Three-Bedroom House in the Bay Area for Under $1 Million? Here Were Their Options.**\
-`After six years in the desert of Palm Springs, a retired couple headed north in search of new construction in Sonoma County.`\
-https://nytimes.com/interactive/2024/08/15/realestate/bay-area-sonoma-county-home-sale.html
 
