@@ -1,3 +1,7 @@
+**What makes Iowa's defense so good?**\
+`Since a minor scheme shift six years ago, the Hawkeyes D has ranked among the nation’s elite. But its roots extend even farther back.`\
+https://nytimes.com/athletic/5701033/2024/08/15/iowa-defense-hawkeyes-football-phil-parker/
+
 **Man City's Phillips to undergo Ipswich medical ahead of loan**\
 `Manchester City midfielder Kalvin Phillips is set to undergo a medical at Ipswich Town ahead of joining the club on a season-long loan deal.`\
 https://nytimes.com/athletic/5702304/2024/08/15/kalvin-phillips-ipswich-loan-man-city/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5650259/2024/08/15/jessica-hawkins-f1-motorsports-w
 **In South Korea, Documenting a Divide Over Work-Life Balance**\
 `The reporter Jin Yu Young wrote about companies that have pushed their managers to work longer hours, a move that has not gone over well with some young people in the country.`\
 https://nytimes.com/2024/08/15/insider/south-korea-labor.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/08/15/crosswords/spelling-bee-forum.html
 
