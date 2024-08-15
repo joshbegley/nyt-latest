@@ -1,3 +1,7 @@
+**J.J. McCarthy is done for the season, and the Vikings are left to pick up the pieces**\
+`It's a similar refrain for Vikings fans after Wednesday's news on their rookie quarterback: You just hope it’s not one of those years.`\
+https://nytimes.com/athletic/5701828/2024/08/14/jj-mccarthy-vikings-injury-season/
+
 **Jewish Man Charged With Hate Crimes in Attacks on Muslim Neighbor**\
 `Izak Kadosh faces more than 40 charges, including attempted murder and aggravated assault. Prosecutors said the attacks, in Brooklyn, went on for months.`\
 https://nytimes.com/2024/08/14/nyregion/brooklyn-hate-crimes.html
