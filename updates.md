@@ -1,3 +1,7 @@
+**Coco Gauff loses in final tournament before US Open**\
+`The American will now be seeded No 3 at the upcoming US Open`\
+https://nytimes.com/athletic/5704009/2024/08/15/coco-gauff-cincinnati-putintseva-tennis/
+
 **Eric Adams and His Campaign Receive Subpoenas in Federal Investigation**\
 `A new round of federal grand jury subpoenas in the investigation of Mayor Eric Adams and his 2021 fund-raising seeks a wide range of information.`\
 https://nytimes.com/2024/08/15/nyregion/eric-adams-fbi-investigation.html
