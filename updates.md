@@ -1,3 +1,7 @@
+**U.K. Economy Buoyed by Reports on Growth, Inflation and Jobs**\
+`After ending last year in a recession, Britain’s economy has so far bounced back this year.`\
+https://nytimes.com/2024/08/15/business/uk-economy-inflation-jobs.html
+
 **Mauricio Pochettino agrees to deal for USMNT head-coaching job**\
 `Pochettino has never managed a national team, but the former Tottenham and Chelsea coach has had plenty of success at club level.`\
 https://nytimes.com/athletic/5702243/2024/08/15/mauricio-pochettino-usmnt-head-coach/
