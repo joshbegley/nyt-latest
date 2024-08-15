@@ -1,3 +1,7 @@
+**Jewish Man Charged With Hate Crimes in Attacks on Muslim Neighbor**\
+`Izak Kadosh faces more than 40 charges, including attempted murder and aggravated assault. Prosecutors said the attacks, in Brooklyn, went on for months.`\
+https://nytimes.com/2024/08/14/nyregion/brooklyn-hate-crimes.html
+
 **Harbaugh offered Kaepernick coaching job with Chargers**\
 `Harbaugh coached Kaepernick from 2011 to 2014 when he played for the San Francisco 49ers.`\
 https://nytimes.com/athletic/5701754/2024/08/14/harbaugh-kaepernick-chargers-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/14/us/politics/trump-rally-asheville.html
 **Another ‘Nasty’ Woman Strikes Fear in Trump**\
 `Authoritarian tendencies and misogyny rise together.`\
 https://nytimes.com/2024/08/14/opinion/kamala-harris-sexism-trump.html
-
-**Patriots trade Matthew Judon to Falcons for third-round pick**\
-`Judon was blunt this offseason in expressing his disappointment in not receiving a contract extension from the Patriots.`\
-https://nytimes.com/athletic/5701786/2024/08/14/matthew-judon-falcons-patriots-trade/
 

@@ -1,3 +1,7 @@
+**Jewish Man Charged With Hate Crimes in Attacks on Muslim Neighbor**\
+`Izak Kadosh faces more than 40 charges, including attempted murder and aggravated assault. Prosecutors said the attacks, in Brooklyn, went on for months.`\
+https://nytimes.com/2024/08/14/nyregion/brooklyn-hate-crimes.html
+
 **Harbaugh offered Kaepernick coaching job with Chargers**\
 `Harbaugh coached Kaepernick from 2011 to 2014 when he played for the San Francisco 49ers.`\
 https://nytimes.com/athletic/5701754/2024/08/14/harbaugh-kaepernick-chargers-coach/
