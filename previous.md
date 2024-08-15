@@ -1,3 +1,15 @@
+**Tim Walz and JD Vance Agree to Vice-Presidential Debate**\
+`The running mates of the presidential candidates will face off on CBS on Oct. 1.`\
+https://nytimes.com/2024/08/15/us/politics/walz-vance-vp-debate-cbs.html
+
+**John Textor granted exclusivity in Everton takeover talks**\
+`American businessman John Textor has entered a period of exclusivity to pursue the purchase of Farhad Moshiri’s majority stake in Everton.`\
+https://nytimes.com/athletic/5579334/2024/08/15/everton-takeover-textor-exclusivity/
+
+**Brajan Gruda to Brighton: The Athletic 500 transfer ratings**\
+`As part of the The Athletic 500 series, we look at Brajan Gruda's move to Brighton`\
+https://nytimes.com/athletic/5700520/2024/08/15/brajan-gruda-to-brighton-the-athletic-500-transfer-ratings/
+
 **Scoop City: Players to watch in tonight Eagles Patriots matchup**\
 `Falcons acquire Matthew Judon, Vikings lose J.J. McCarthy for the year and the NFL's biggest stories.`\
 https://nytimes.com/athletic/5702760/2024/08/15/the-falcons-add-a-star-plus-nfl-preseason-week-2-begins-tonight-scoop-city/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5696739/2024/08/15/anthony-edwards-olympics-timberw
 **Bournemouth agree €47m deal to sign Porto striker Evanilson**\
 `Bournemouth have agreed a deal worth in the region of €47million (£40.`\
 https://nytimes.com/athletic/5702531/2024/08/15/bournemouth-evanilson-agree-deal-transfer-porto/
-
-**America Can’t Produce the Weapons It Needs for the Future. This Could Help.**\
-`The United States, Australia and Britain are making it easier to share defense technology, hoping to spur the innovations needed to keep up with China.`\
-https://nytimes.com/2024/08/15/world/australia/us-australia-uk-weapons-exports.html
-
-**Johnston: Tavares' graceful exit as Leafs captain could lead to longer stay in Toronto**\
-`There's something to be said for the way Tavares embraced the transition the Leafs ushered in by shifting the captaincy to Matthews.`\
-https://nytimes.com/athletic/5701732/2024/08/15/john-tavares-auston-matthews-maple-leafs-captain/
-
-**Until Saturday: Our preseason All-America teams are out, plus die-hard fans**\
-`Welcome to Until Saturday, the five-star college football newsletter: The Athletic's preseason All-America teams are out.`\
-https://nytimes.com/athletic/5701981/2024/08/15/ohio-state-football-college-fans-until-saturday/
 

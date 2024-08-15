@@ -1,3 +1,15 @@
+**Tim Walz and JD Vance Agree to Vice-Presidential Debate**\
+`The running mates of the presidential candidates will face off on CBS on Oct. 1.`\
+https://nytimes.com/2024/08/15/us/politics/walz-vance-vp-debate-cbs.html
+
+**John Textor granted exclusivity in Everton takeover talks**\
+`American businessman John Textor has entered a period of exclusivity to pursue the purchase of Farhad Moshiri’s majority stake in Everton.`\
+https://nytimes.com/athletic/5579334/2024/08/15/everton-takeover-textor-exclusivity/
+
+**Brajan Gruda to Brighton: The Athletic 500 transfer ratings**\
+`As part of the The Athletic 500 series, we look at Brajan Gruda's move to Brighton`\
+https://nytimes.com/athletic/5700520/2024/08/15/brajan-gruda-to-brighton-the-athletic-500-transfer-ratings/
+
 **Scoop City: Players to watch in tonight Eagles Patriots matchup**\
 `Falcons acquire Matthew Judon, Vikings lose J.J. McCarthy for the year and the NFL's biggest stories.`\
 https://nytimes.com/athletic/5702760/2024/08/15/the-falcons-add-a-star-plus-nfl-preseason-week-2-begins-tonight-scoop-city/
