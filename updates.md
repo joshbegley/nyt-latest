@@ -1,3 +1,7 @@
+**Lawsuit seeks to allow Canadian Hockey League players to play in NCAA. Here's what it means**\
+`A proposed class-action lawsuit alleges that the NCAA is violating antitrust laws by preventing CHL from competing for NCAA teams.. `\
+https://nytimes.com/athletic/5701011/2024/08/15/ncaa-chl-rule-lawsuit/
+
 **A Catastrophic Civil War in Sudan**\
 `How an unexpected conflict is crushing Africa’s third-largest country.`\
 https://nytimes.com/2024/08/15/briefing/sudan-civil-war.html

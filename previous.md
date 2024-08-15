@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5702413/2024/08/15/sandro-tonali-return-newcastle/
 `Senior La Liga figures are keen for a game to be played in the U.S. — the potential is huge and they are eager to capitalise`\
 https://nytimes.com/athletic/5699445/2024/08/15/kylian-mbappe-la-liga-real-madrid-barcelona-united-states/
 
-**Lawsuit seeks to allow CHL players to play NCAA hockey: What it means, why it matters**\
+**Lawsuit seeks to allow Canadian Hockey League players to play in NCAA. Here's what it means**\
 `A proposed class-action lawsuit alleges that the NCAA is violating antitrust laws by preventing CHL from competing for NCAA teams.. `\
 https://nytimes.com/athletic/5701011/2024/08/15/ncaa-chl-rule-lawsuit/
 
