@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5703680/2024/08/15/seahawks-titans-joint-practices-
 `Yes, summer is starting to wane. Enjoy those fried seafood shacks and outdoor oyster bars now.`\
 https://nytimes.com/2024/08/15/dining/where-to-eat-near-a-body-of-water.html
 
-**Chiles on being stripped of bronze medal: 'This decision feels unjust'**\
+**Chiles on being stripped of medal: 'This decision feels unjust'**\
 `"I believe that at the end of this journey, the people in control will do the right thing," Chiles said.`\
 https://nytimes.com/athletic/5703645/2024/08/15/jordan-chiles-bronze-medal-comments/
 

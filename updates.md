@@ -1,3 +1,7 @@
+**Chiles on being stripped of medal: 'This decision feels unjust'**\
+`"I believe that at the end of this journey, the people in control will do the right thing," Chiles said.`\
+https://nytimes.com/athletic/5703645/2024/08/15/jordan-chiles-bronze-medal-comments/
+
 **After Shooting, Texas State Fair Bans Guns. Republicans Want Them Back.**\
 `The Texas State Fair, a beloved institution, has imposed a ban on firearms. The state attorney general, Ken Paxton, is threatening a lawsuit.`\
 https://nytimes.com/2024/08/15/us/texas-state-fair-guns-paxton.html
