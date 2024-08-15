@@ -1,3 +1,19 @@
+**Burning Man Has Sold Out Since 2011. Why Not This Year?**\
+`The desert arts festival returns this month after two consecutive years of challenging weather, including mud that stranded attendees, and a Covid-19 hiatus.`\
+https://nytimes.com/2024/08/15/us/burning-man-ticket-sales.html
+
+**Miguel A. Cardona**\
+`News about Miguel A. Cardona. Commentary and archival information about Miguel A. Cardona from The New York Times.`\
+https://nytimes.com/topic/miguel-a.-cardona
+
+**Camille A Brown**\
+`News about Camille A Brown. Commentary and archival information about Camille A Brown from The New York Times.`\
+https://nytimes.com/topic/camille-a-brown
+
+**Trump Seeks to Delay His Sentencing Until After Election**\
+`Donald J. Trump, who has routinely sought delays in his four criminal cases, wants to use the extra time to fight his conviction on 34 felony counts in Manhattan.`\
+https://nytimes.com/2024/08/15/nyregion/trump-delay-sentencing-election.html
+
 **Wrigley Field to hold college hockey games after Winter Classic**\
 `The event, named The Frozen Confines: Big Ten Hockey Series, will include three men’s hockey games and one women’s hockey game.`\
 https://nytimes.com/athletic/5703319/2024/08/15/wrigley-field-nhl-winter-classic-big-ten-hockey/
