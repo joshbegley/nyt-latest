@@ -1,7 +1,3 @@
-**Slow starts, strong finishes and a few fights: Jets-Panthers joint practice observations**\
-`Tempers flared between the teams ahead of their Saturday preseason matchup.`\
-https://nytimes.com/athletic/5703582/2024/08/15/new-york-jets-carolina-panthers-fights-joint-practice-observations-dj-reed-terrace-marshall-michael-clemons-mike-boone/
-
 **Bad Bunny agency case to stay with arbitrator**\
 `The judge said the dispute belongs in arbitration, which is what the union wanted when the agency asked the court to intervene.`\
 https://nytimes.com/athletic/5703790/2024/08/15/bad-bunny-mlbpa-agency-case-arbitrator/
@@ -38,4 +34,8 @@ https://nytimes.com/2024/08/15/opinion/kamala-harris-biden-reagan.html
 **Arizona Court Sides With G.O.P. Over Abortion Language in Voter Pamphlets**\
 `The court ruled that informational brochures the state sends to voters can use the term “unborn human being” to describe an embryo or a fetus.`\
 https://nytimes.com/2024/08/15/us/arizona-supreme-court-abortion.html
+
+**Closed for Months, a Gateway for Aid to Famine-Stricken Sudan Swings Open**\
+`Accused of blocking food aid for its starving people, Sudan’s military announced it would reopen the main border crossing with Chad, which it had closed for six months to U.N. relief trucks.`\
+https://nytimes.com/2024/08/15/world/africa/sudan-chad-adre-border-crossing-reopens.html
 
