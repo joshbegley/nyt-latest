@@ -1,3 +1,27 @@
+**The Premier League, transfers, wages and tax: How does it all work?**\
+`Premier League transfers involve millions of pounds every year — but how do they impact the public purse?`\
+https://nytimes.com/athletic/5686297/2024/08/15/premier-league-tax-transfer-wages/
+
+**A Chinese Autonomous Driving Start-Up Is About to Go Public in the U.S.**\
+`WeRide, a $5 billion software maker, is set for an I.P.O. amid geopolitical risks and a rush by Chinese automotive tech firms to raise money in the United States.`\
+https://nytimes.com/2024/08/15/business/weride-china-ipo-nasdaq.html
+
+**A complete list of the 53 players now in Chelsea's squad**\
+`There are (too) many players at Chelsea — here's who can expect to see action in the Premier League this season and who needs to move on`\
+https://nytimes.com/athletic/5700409/2024/08/15/chelsea-53-player-squad-premier-league/
+
+**MLB bullpen report: Craig Kimbrel struggling with velocity, Michael Kopech finds success in LA and more**\
+`Greg Jewett reports on the developments across MLB bullpens that fantasy managers need to know, like Michael Kopech's hot start with LA.`\
+https://nytimes.com/athletic/5701990/2024/08/15/mlb-bullpen-report-fantasy-baseball-craig-kimbrel-michael-kopech/
+
+**Answering a tactical question about all 20 teams in the 2024-25 Premier League**\
+`No football team is perfect, so here's an area where each top-flight side can improve in the upcoming campaign`\
+https://nytimes.com/athletic/5700782/2024/08/15/one-tactical-question-for-every-club-in-the-2024-25-premier-league/
+
+**The 1934 book that shows most 'modern' football complaints have been around for a century**\
+`Herbert Chapman had some issues with contemporary football in the 1930s - many of which sound extremely familiar in 2024`\
+https://nytimes.com/athletic/5700628/2024/08/15/modern-football-complaints-not-new/
+
 **Corrections: Aug. 15, 2024**\
 `Corrections that appeared in print on Thursday, Aug. 15, 2024.`\
 https://nytimes.com/2024/08/15/pageoneplus/corrections-aug-15-2024.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5688430/2024/08/15/premier-league-how-to-watch-us-c
 **Ukraine’s Incursion Into Russia Flips the Script on Putin**\
 `The reality of 130,000 displaced Russians and a chaotic official response may begin to puncture the official line that Russia is steadily heading toward victory.`\
 https://nytimes.com/2024/08/15/world/europe/ukraine-russia-incursion-putin.html
-
-**Thursday's MLB odds, best bets: Predictions for pitching matchups, props, playoffs and more**\
-`See pitching matchups, playoff projections, win projections and more for Thursday's MLB games.`\
-https://nytimes.com/athletic/5701492/2024/08/15/mlb-odds-best-bets-projections-august-15/
-
-**To Solve Its Housing Crisis, Britain Turns to an Old Idea: New Towns**\
-`By reviving an idea from the 1940s, the Labour Party government is hoping to overcome the development hurdles that have plagued previous efforts with a plan to build new communities.`\
-https://nytimes.com/2024/08/15/business/uk-housing-crisis-new-towns.html
-
-**The British Have Finally Learned to Love Peanut Butter**\
-`The land of Marmite and jam is finally embracing America’s favorite spread, after years in which it was impossible to find.`\
-https://nytimes.com/2024/08/15/dining/british-peanut-butter.html
-
-**Quotation of the Day: Fleeing Sudan Conflict, Only to Find in England a Mob Menacing Them**\
-`Quotation of the Day for Thursday, August 15, 2024.`\
-https://nytimes.com/2024/08/14/pageoneplus/quotation-of-the-day-fleeing-sudan-conflict-only-to-find-in-england-a-mob-menacing-them.html
-
-**Harris Will Back Federal Ban on Price Gouging, Campaign Says**\
-`The vice president is leaning into an effort to partly blame big companies for inflation, as progressives have pushed her to embrace that argument.`\
-https://nytimes.com/2024/08/14/business/kamala-harris-price-gouging-inflation.html
-
-**Bowling, Selfies and the ‘Dougie’: Biden Woos Influencers at the White House**\
-`For its first conference on the creator economy, the Biden administration celebrated social media creators. The president lauded them as a “breakthrough in how we communicate.”`\
-https://nytimes.com/2024/08/14/business/biden-social-media-creators-white-house.html
 
