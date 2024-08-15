@@ -6,7 +6,7 @@ https://nytimes.com/2024/08/15/arts/television/seth-meyers-trump-x-livestream.ht
 `This word has appeared in 308 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/15/learning/word-of-the-day-boycott.html
 
-**Why did White Sox intentionally walk Juan Soto to face Aaron Judge? 'That was crazy'**\
+**Why did White Sox intentionally walk Juan Soto to face Aaron Judge? Inside the surprising call**\
 `It's not often Judge swings at a pitch 3-0 out of the zone, but he took the decision to intentionally walk Soto personally.`\
 https://nytimes.com/athletic/5702179/2024/08/15/juan-soto-aaron-judge-yankees-white-sox/
 
