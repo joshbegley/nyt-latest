@@ -1,3 +1,7 @@
+**Southampton working on deal for Villa striker Archer**\
+`Southampton are working on a deal to sign Cameron Archer from Aston Villa.`\
+https://nytimes.com/athletic/5704000/2024/08/15/cameron-archer-southampton-aston-villa/
+
 **Ipswich agree deal to sign Blackburn's Szmodics**\
 `Ipswich Town have agreed a deal to sign Blackburn Rovers attacking midfielder Sammie Szmodics.`\
 https://nytimes.com/athletic/5702598/2024/08/15/sammie-szmodics-ipswich-blackburn/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/15/education/harvard-settlement-john-comaroff.html
 **India’s ‘Reclaim the Night’ Protests Should Go Global**\
 `One half of the world’s population shouldn’t be afraid of one-half of each day.`\
 https://nytimes.com/live/2024/08/13/opinion/thepoint/india-reclaim-night-protest
-
-**Russell Wilson to make Steelers debut in preseason game vs. Bills**\
-`With Wilson limited, Justin Fields took a majority of the first-team reps in camp.`\
-https://nytimes.com/athletic/5703804/2024/08/15/russell-wilson-steelers-preseason-start/
 

@@ -1,3 +1,7 @@
+**Southampton working on deal for Villa striker Archer**\
+`Southampton are working on a deal to sign Cameron Archer from Aston Villa.`\
+https://nytimes.com/athletic/5704000/2024/08/15/cameron-archer-southampton-aston-villa/
+
 **Ipswich agree deal to sign Blackburn's Szmodics**\
 `Ipswich Town have agreed a deal to sign Blackburn Rovers attacking midfielder Sammie Szmodics.`\
 https://nytimes.com/athletic/5702598/2024/08/15/sammie-szmodics-ipswich-blackburn/
