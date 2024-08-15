@@ -1,3 +1,7 @@
+**Amid Heightened Security, Taylor Swift Prepares to Return to the Stage**\
+`Fans gathering at Wembley Stadium in London said they trusted British security officials to keep them safe.`\
+https://nytimes.com/2024/08/15/arts/music/taylor-swift-london-eras-tour-security.html
+
 **Peacock's 'Gold Zone' returning for 2028 Games**\
 `"Gold Zone" ranked in the top five most-watched Olympic titles on Peacock and was a technological success given all the elements at play.`\
 https://nytimes.com/athletic/5702878/2024/08/15/gold-zone-peacock-olympics-2028/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/15/us/politics/walz-vance-vp-debate-cbs.html
 **John Textor granted exclusivity in Everton takeover talks**\
 `American businessman John Textor has entered a period of exclusivity to pursue the purchase of Farhad Moshiri’s majority stake in Everton.`\
 https://nytimes.com/athletic/5579334/2024/08/15/everton-takeover-textor-exclusivity/
-
-**Brajan Gruda to Brighton: The Athletic 500 transfer ratings**\
-`As part of the The Athletic 500 series, we look at Brajan Gruda's move to Brighton`\
-https://nytimes.com/athletic/5700520/2024/08/15/brajan-gruda-to-brighton-the-athletic-500-transfer-ratings/
 

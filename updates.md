@@ -1,3 +1,7 @@
+**Amid Heightened Security, Taylor Swift Prepares to Return to the Stage**\
+`Fans gathering at Wembley Stadium in London said they trusted British security officials to keep them safe.`\
+https://nytimes.com/2024/08/15/arts/music/taylor-swift-london-eras-tour-security.html
+
 **Peacock's 'Gold Zone' returning for 2028 Games**\
 `"Gold Zone" ranked in the top five most-watched Olympic titles on Peacock and was a technological success given all the elements at play.`\
 https://nytimes.com/athletic/5702878/2024/08/15/gold-zone-peacock-olympics-2028/
