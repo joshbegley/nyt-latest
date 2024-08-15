@@ -1,3 +1,7 @@
+**Young Humpback Whale Spotted in Boston Harbor**\
+`A juvenile humpback whale has been splashing in Boston Harbor. The Massachusetts Bay Transportation Authority warned that ferry service could be delayed because of the whale’s presence.`\
+https://nytimes.com/video/us/100000009631164/whale-in-boston-harbor.html
+
 **ESPN fires Robert Griffin III: Sources**\
 `Griffin, who as recently as last year had been viewed as a rising star at ESPN, had two years remaining on his deal.`\
 https://nytimes.com/athletic/5703445/2024/08/15/espn-fires-robert-griffin/
