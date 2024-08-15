@@ -1,3 +1,11 @@
+**Astros finish road trip on 8-game winning streak with sweep of Rays**\
+`Eight consecutive victories have Houston 2 1/2 games up in a division they've long dominated.`\
+https://nytimes.com/athletic/5702173/2024/08/15/astros-winning-streak-sweep-rays/
+
+**Biden’s Middle East Playbook Won’t Stop a Wider War Forever**\
+`America’s plan for preventing a full-blown war in the Middle East is unraveling.`\
+https://nytimes.com/2024/08/15/opinion/iran-israel-middle-east-war.html
+
 **Postecoglou's second seasons - what history and the data tell us to expect**\
 `Postecoglou's first year at Tottenham felt like the club hitting the reset button. So what does his career suggest the second will be like?`\
 https://nytimes.com/athletic/5700206/2024/08/15/ange-postecoglou-second-season-tottenham/
