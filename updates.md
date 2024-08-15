@@ -1,3 +1,11 @@
+**Spurs suspend Bissouma for PL opener after nitrous oxide video**\
+`Tottenham Hotspur have suspended midfielder Yves Bissouma for their Premier League opening match against Leicester City after footage emerged of him appearing to inhale nitrous oxide.`\
+https://nytimes.com/athletic/5702614/2024/08/15/yves-bissouma-tottenham-suspended-laughing-gas/
+
+**Johnston: Tavares' graceful exit as Leafs captain could lead to longer stay in Toronto**\
+`There's something to be said for the way Tavares embraced the transition the Leafs ushered in by shifting the captaincy to Matthews.`\
+https://nytimes.com/athletic/5701732/2024/08/15/john-tavares-auston-matthews-maple-leafs-captain/
+
 **Anthony Edwards' Olympic experience couldn't have been better for him or the Wolves**\
 `Edwards contributed to Team USA's gold medal, and he soaked up wisdom from NBA legends in the process. That can only help him.`\
 https://nytimes.com/athletic/5696739/2024/08/15/anthony-edwards-olympics-timberwolves/

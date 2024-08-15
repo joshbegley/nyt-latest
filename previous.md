@@ -1,3 +1,7 @@
+**Spurs suspend Bissouma for PL opener after nitrous oxide video**\
+`Tottenham Hotspur have suspended midfielder Yves Bissouma for their Premier League opening match against Leicester City after footage emerged of him appearing to inhale nitrous oxide.`\
+https://nytimes.com/athletic/5702614/2024/08/15/yves-bissouma-tottenham-suspended-laughing-gas/
+
 **Anthony Edwards' Olympic experience couldn't have been better for him or the Wolves**\
 `Edwards contributed to Team USA's gold medal, and he soaked up wisdom from NBA legends in the process. That can only help him.`\
 https://nytimes.com/athletic/5696739/2024/08/15/anthony-edwards-olympics-timberwolves/
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/5702531/2024/08/15/bournemouth-evanilson-agree-deal
 https://nytimes.com/2024/08/15/world/australia/us-australia-uk-weapons-exports.html
 
 **Johnston: Tavares' graceful exit as Leafs captain could lead to longer stay in Toronto**\
-`There's something to be said for the way Tavares embraced the transition the Leafs ushered in by shifting the captaincy to Auston Matthews.`\
+`There's something to be said for the way Tavares embraced the transition the Leafs ushered in by shifting the captaincy to Matthews.`\
 https://nytimes.com/athletic/5701732/2024/08/15/john-tavares-auston-matthews-maple-leafs-captain/
 
 **Until Saturday: Our preseason All-America teams are out, plus die-hard fans**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000009630607/dhaka-bangladesh-protest-vi
 **Davante Adams, Raiders offense shows progress in open practice at Allegiant Stadium**\
 `Adams caught a deep pass from Aidan O'Connell on Wednesday and clearly looks more comfortable with the second-year QB. `\
 https://nytimes.com/athletic/5702188/2024/08/15/davante-adams-raiders-offense-stadium-practice/
-
-**The Economy Moves to Center Stage in the Election**\
-`Inflation is cooling but hiring is slowing as Kamala Harris and Donald Trump fine tune their pitch to voters.`\
-https://nytimes.com/2024/08/15/business/dealbook/economy-inflation-election.html
 
