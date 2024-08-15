@@ -1,3 +1,15 @@
+**Why 49ers’ quarterback Joshua Dobbs has a rugby routine before every practice**\
+`Dobbs, Brandon Allen and especially Brock Purdy looked sharp in the 49ers' longest and most intense practice if the week on Thursday.`\
+https://nytimes.com/athletic/5703939/2024/08/15/joshua-dobbs-49ers-rugby-practice/
+
+**Harris’s Debate Prep Is Underway at Howard University**\
+`Philippe Reines, a Democratic operative who prepared Hillary Clinton in 2016, is reprising his role as Donald J. Trump in the mock sessions ahead of the prime time matchup on Sept. 10.`\
+https://nytimes.com/2024/08/15/us/politics/harris-howard-university-debate-prep.html
+
+**Ten Hag: Zirkzee 'close' to being ready to start**\
+`Manchester United manager Erik ten Hag says new signing Joshua Zirkzee is “close” to being ready to start for the Premier League season opener against Fulham on Friday.`\
+https://nytimes.com/athletic/5703656/2024/08/15/joshua-zirkzee-man-utd-fulham/
+
 **Southampton working on deal for Villa striker Archer**\
 `Southampton are working on a deal to sign Cameron Archer from Aston Villa.`\
 https://nytimes.com/athletic/5704000/2024/08/15/cameron-archer-southampton-aston-villa/

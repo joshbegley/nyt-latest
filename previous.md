@@ -1,3 +1,15 @@
+**Why 49ers’ quarterback Joshua Dobbs has a rugby routine before every practice**\
+`Dobbs, Brandon Allen and especially Brock Purdy looked sharp in the 49ers' longest and most intense practice if the week on Thursday.`\
+https://nytimes.com/athletic/5703939/2024/08/15/joshua-dobbs-49ers-rugby-practice/
+
+**Harris’s Debate Prep Is Underway at Howard University**\
+`Philippe Reines, a Democratic operative who prepared Hillary Clinton in 2016, is reprising his role as Donald J. Trump in the mock sessions ahead of the prime time matchup on Sept. 10.`\
+https://nytimes.com/2024/08/15/us/politics/harris-howard-university-debate-prep.html
+
+**Ten Hag: Zirkzee 'close' to being ready to start**\
+`Manchester United manager Erik ten Hag says new signing Joshua Zirkzee is “close” to being ready to start for the Premier League season opener against Fulham on Friday.`\
+https://nytimes.com/athletic/5703656/2024/08/15/joshua-zirkzee-man-utd-fulham/
+
 **Southampton working on deal for Villa striker Archer**\
 `Southampton are working on a deal to sign Cameron Archer from Aston Villa.`\
 https://nytimes.com/athletic/5704000/2024/08/15/cameron-archer-southampton-aston-villa/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/15/us/politics/harris-biden-drug-prices-medicare.htm
 **Plan to Build Thousands of Apartments Will Transform the East Bronx**\
 `The New York City Council approved a rezoning plan that will produce nearly 7,000 housing units, some of which will be offered at below-market rents, near four new commuter rail stations.`\
 https://nytimes.com/2024/08/15/nyregion/bronx-rezoning-housing-apartments.html
-
-**Friday Briefing: Ukraine Takes a Russian Town**\
-`Plus, with one room, Brazil confronts its racist past.`\
-https://nytimes.com/2024/08/15/briefing/ukraine-incursion-russia-mpox-sweden-harris-biden.html
-
-**Harvard Settles Lawsuit Over Claims of Sexual Harassment by a Professor**\
-`Three students sued the university in 2022 over its response to reports of sexual harassment by John Comaroff, a renowned anthropology professor.`\
-https://nytimes.com/2024/08/15/education/harvard-settlement-john-comaroff.html
-
-**India’s ‘Reclaim the Night’ Protests Should Go Global**\
-`One half of the world’s population shouldn’t be afraid of one-half of each day.`\
-https://nytimes.com/live/2024/08/13/opinion/thepoint/india-reclaim-night-protest
 
