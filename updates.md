@@ -1,3 +1,7 @@
+**Columbia President Resigns After Months of Turmoil on Campus**\
+`Nemat Shafik is the third university president to resign in the wake of strife connected to the Israel-Hamas war. She will take a job in the British government.`\
+https://nytimes.com/2024/08/14/us/columbia-president-nemat-shafik-resigns.html
+
 **J.J. McCarthy is done for the season, and the Vikings are left to pick up the pieces**\
 `It's a similar refrain for Vikings fans after Wednesday's news on their rookie quarterback: You just hope it’s not one of those years.`\
 https://nytimes.com/athletic/5701828/2024/08/14/jj-mccarthy-vikings-injury-season/
