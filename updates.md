@@ -1,3 +1,7 @@
+**How Well Do You Know Your Disaster Movies?**\
+`From “Armageddon” to “The Towering Inferno,” a look back at decades of movie catastrophe.`\
+https://nytimes.com/interactive/2024/08/15/movies/disaster-movies.html
+
 **You’re Only as Smart as Your Emotions**\
 `We now understand that our emotions are often wise. The problem is that our culture and our institutions haven’t caught up with our knowledge.`\
 https://nytimes.com/2024/08/15/opinion/emotions-feelings-intelligence.html
