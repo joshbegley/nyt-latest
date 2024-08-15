@@ -1,4 +1,4 @@
-**Walker Buehler returns to the Dodgers with familiar problems: 'Got to get the production'**\
+**Walker Buehler returns to Dodgers with familiar problems: 'Got to get the production'**\
 `The Dodgers will be patient with Buehler. But how patient?`\
 https://nytimes.com/athletic/5702178/2024/08/15/walker-buehler-returns-dodgers/
 
