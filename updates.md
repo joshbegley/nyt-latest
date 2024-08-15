@@ -1,3 +1,7 @@
+**Day 1 of Browns-Vikings joint practices featured physicality from both teams**\
+`Plus, quarterback Deshaun Watson gets his first action against an opposing team since his season-ending shoulder injury last year. `\
+https://nytimes.com/athletic/5701760/2024/08/15/cleveland-browns-minnesota-vikings-joint-practice/
+
 **The Pulse: Overnight USMNT coach news**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5701984/2024/08/15/vikings-jj-mccarthy-addison-injury-the-pulse/
