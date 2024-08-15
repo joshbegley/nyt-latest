@@ -1,15 +1,3 @@
-**India’s ‘Reclaim the Night’ Protests Should Go Global**\
-`One half of the world’s population shouldn’t be afraid of one-half of each day.`\
-https://nytimes.com/live/2024/08/13/opinion/thepoint/india-reclaim-night-protest
-
-**Russell Wilson to make Steelers debut in preseason game vs. Bills**\
-`With Wilson limited, Justin Fields took a majority of the first-team reps in camp.`\
-https://nytimes.com/athletic/5703804/2024/08/15/russell-wilson-steelers-preseason-start/
-
-**Slow starts, strong finishes and a few fights: Jets-Panthers joint practice observations**\
-`Tempers flared between the teams ahead of their Saturday preseason matchup.`\
-https://nytimes.com/athletic/5703582/2024/08/15/new-york-jets-carolina-panthers-fights-joint-practice-observations-dj-reed-terrace-marshall-michael-clemons-mike-boone/
-
 **Bad Bunny agency case to stay with arbitrator**\
 `The judge said the dispute belongs in arbitration, which is what the union wanted when the agency asked the court to intervene.`\
 https://nytimes.com/athletic/5703790/2024/08/15/bad-bunny-mlbpa-agency-case-arbitrator/
@@ -38,4 +26,16 @@ https://nytimes.com/2024/08/15/dining/where-to-eat-near-a-body-of-water.html
 **Chiles on being stripped of medal: 'This decision feels unjust'**\
 `"I believe that at the end of this journey, the people in control will do the right thing," Chiles said.`\
 https://nytimes.com/athletic/5703645/2024/08/15/jordan-chiles-bronze-medal-comments/
+
+**Is It Morning in Kamala Harris’s America?**\
+`The good news may finally be breaking through to voters.`\
+https://nytimes.com/2024/08/15/opinion/kamala-harris-biden-reagan.html
+
+**Arizona Court Sides With G.O.P. Over Abortion Language in Voter Pamphlets**\
+`The court ruled that informational brochures the state sends to voters can use the term “unborn human being” to describe an embryo or a fetus.`\
+https://nytimes.com/2024/08/15/us/arizona-supreme-court-abortion.html
+
+**Closed for Months, a Gateway for Aid to Famine-Stricken Sudan Swings Open**\
+`Accused of blocking food aid for its starving people, Sudan’s military announced it would reopen the main border crossing with Chad, which it had closed for six months to U.N. relief trucks.`\
+https://nytimes.com/2024/08/15/world/africa/sudan-chad-adre-border-crossing-reopens.html
 
