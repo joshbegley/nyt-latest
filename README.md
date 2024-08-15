@@ -1,3 +1,7 @@
+**Falcons focused on how Matthew Judon can help pass rush, not contract talks**\
+`No NFL team has had fewer sacks in the last five years (or the last 10) than the Atlanta Falcons.`\
+https://nytimes.com/athletic/5703254/2024/08/15/falcons-matthew-judon-pass-rush/
+
 **Young Humpback Whale Spotted in Boston Harbor**\
 `A juvenile humpback whale has been splashing in Boston Harbor. The Massachusetts Bay Transportation Authority warned that ferry service could be delayed because of the whale’s presence.`\
 https://nytimes.com/video/us/100000009631164/whale-in-boston-harbor.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/15/world/americas/argentina-president-fernandez-abus
 **Burning Man Has Sold Out Since 2011. Why Not This Year?**\
 `The desert arts festival returns this month after two consecutive years of challenging weather, including mud that stranded attendees, and a Covid-19 hiatus.`\
 https://nytimes.com/2024/08/15/us/burning-man-ticket-sales.html
-
-**Miguel A. Cardona**\
-`News about Miguel A. Cardona. Commentary and archival information about Miguel A. Cardona from The New York Times.`\
-https://nytimes.com/topic/miguel-a.-cardona
 
