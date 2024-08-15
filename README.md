@@ -1,3 +1,7 @@
+**Day 1 of Browns-Vikings joint practices featured physicality from both teams**\
+`Plus, quarterback Deshaun Watson gets his first action against an opposing team since his season-ending shoulder injury last year. `\
+https://nytimes.com/athletic/5701760/2024/08/15/cleveland-browns-minnesota-vikings-joint-practice/
+
 **The Pulse: Overnight USMNT coach news**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5701984/2024/08/15/vikings-jj-mccarthy-addison-injury-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5697946/2024/08/15/new-york-yankees-top-stories/
 **California’s Crackdown on Homeless Encampments**\
 `Gov. Gavin Newsom has taken sweeping action in the wake of a landmark Supreme Court ruling.`\
 https://nytimes.com/2024/08/15/podcasts/the-daily/california-homeless-encampments.html
-
-**The Connections Companion No. 432**\
-`Scroll down for hints and conversation about the puzzle for Friday, Aug. 16, 2024.`\
-https://nytimes.com/2024/08/15/crosswords/connections-companion-432.html
 
