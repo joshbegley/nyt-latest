@@ -31,7 +31,7 @@ https://nytimes.com/athletic/5703477/2024/08/15/anthony-edwards-minnesota-timber
 https://nytimes.com/2024/08/15/briefing/biden-harris-joint-appearance-ukraine-advance-russia.html
 
 **Coco Gauff loses in final tournament before US Open**\
-`Defending US Open champion Coco Gauff is out of the Cincinnati Open after losing to Kazakhstan&#8217;s Yulia Putintseva in three sets on Thursday.`\
+`The American will now be seeded No 3 at the upcoming US Open`\
 https://nytimes.com/athletic/5704009/2024/08/15/coco-gauff-cincinnati-putintseva-tennis/
 
 **Why 49ers’ quarterback Joshua Dobbs has a rugby routine before every practice**\
