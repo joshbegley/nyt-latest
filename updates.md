@@ -1,3 +1,11 @@
+**As Harris and Biden Take a Victory Lap on Drug Costs, She Sets the Pace**\
+`At their first joint public appearance since the shake-up of the Democratic ticket, the two leaders traded warm words and showed how they hope to use his legacy to slingshot her to the White House.`\
+https://nytimes.com/2024/08/15/us/politics/harris-biden-drug-prices-medicare.html
+
+**Plan to Build Thousands of Apartments Will Transform the East Bronx**\
+`The New York City Council approved a rezoning plan that will produce nearly 7,000 housing units, some of which will be offered at below-market rents, near four new commuter rail stations.`\
+https://nytimes.com/2024/08/15/nyregion/bronx-rezoning-housing-apartments.html
+
 **Friday Briefing: Ukraine Takes a Russian Town**\
 `Plus, with one room, Brazil confronts its racist past.`\
 https://nytimes.com/2024/08/15/briefing/ukraine-incursion-russia-mpox-sweden-harris-biden.html

@@ -1,3 +1,11 @@
+**As Harris and Biden Take a Victory Lap on Drug Costs, She Sets the Pace**\
+`At their first joint public appearance since the shake-up of the Democratic ticket, the two leaders traded warm words and showed how they hope to use his legacy to slingshot her to the White House.`\
+https://nytimes.com/2024/08/15/us/politics/harris-biden-drug-prices-medicare.html
+
+**Plan to Build Thousands of Apartments Will Transform the East Bronx**\
+`The New York City Council approved a rezoning plan that will produce nearly 7,000 housing units, some of which will be offered at below-market rents, near four new commuter rail stations.`\
+https://nytimes.com/2024/08/15/nyregion/bronx-rezoning-housing-apartments.html
+
 **Friday Briefing: Ukraine Takes a Russian Town**\
 `Plus, with one room, Brazil confronts its racist past.`\
 https://nytimes.com/2024/08/15/briefing/ukraine-incursion-russia-mpox-sweden-harris-biden.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/5703554/2024/08/15/atlanta-falcons-sign-justin-simm
 **Corey Lewandowski, Trump’s Ex-Campaign Manager, Joins Team**\
 `Mr. Lewandowski, who was fired from his post during Donald J. Trump’s 2016 run, has been a divisive and yet consistent presence in his world.`\
 https://nytimes.com/2024/08/15/us/politics/corey-lewandowski-joins-trump-campaign.html
-
-**After Shooting, Texas State Fair Bans Guns. Republicans Want Them Back.**\
-`The Texas State Fair, a beloved institution, has imposed a ban on firearms. The state attorney general, Ken Paxton, is threatening a lawsuit.`\
-https://nytimes.com/2024/08/15/us/texas-state-fair-guns-paxton.html
-
-**Seahawks' defense shows big-play potential in bounce-back practice vs. Titans**\
-`Devon Witherspoon made practice's biggest play (and then taunted ex-teammate Jamal Adams), but he was hardly the only one who shined.`\
-https://nytimes.com/athletic/5703680/2024/08/15/seahawks-titans-joint-practices-defense/
 
