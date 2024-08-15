@@ -1,3 +1,7 @@
+**Authorities Charge Five People For Giving Matthew Perry Ketamine**\
+`Matthew Perry’s personal assistant, two doctors and two others have been indicted and charged with providing the ketamine that caused his death.`\
+https://nytimes.com/video/us/100000009631767/matthew-perry-death.html
+
 **Columbia Remains Divided but Cautiously Optimistic as President Departs**\
 `The resignation of the Columbia University president, Nemat Shafik, was met with mixed reactions, but some on campus are optimistic for a fresh start.`\
 https://nytimes.com/2024/08/15/nyregion/columbia-university-shafik-resigns-students-faculty.html
