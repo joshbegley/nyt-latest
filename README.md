@@ -1,3 +1,7 @@
+**Indianapolis to host 2025 WNBA All-Star Game**\
+`The game will be held at Gainbridge Fieldhouse on July 19, marking Indianapolis' first time hosting the 2025 WNBA All-Star Game.`\
+https://nytimes.com/athletic/5702704/2024/08/15/wnba-all-star-game-2025-indianapolis/
+
 **Retail Sales Beat Expectations, Easing Concerns About the Economy**\
 `Sales were up 1 percent in July from the previous month. The rise was slimmer when autos and gasoline were excluded, but market reaction was favorable.`\
 https://nytimes.com/2024/08/15/business/economy/retail-sales-july-stocks.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/15/us/harris-trump-election/voter-registration-
 **He Still Thought He Could Win: Inside Biden’s Decision to Drop Out**\
 `People close to President Biden say he believes he could have won a second term. But he came to realize that the fight would rip apart the Democratic Party that he had served his whole life.`\
 https://nytimes.com/2024/08/15/us/politics/biden-2024-election-dropped-out.html
-
-**Protesters in Bangladesh Target Supporters of Ousted Prime Minister**\
-`Armed with bamboo sticks and pipes, protesters went after suspected supporters of former Prime Minister Sheikh Hasina as they tried to hold a rally in Dhaka.`\
-https://nytimes.com/video/world/asia/100000009630607/dhaka-bangladesh-protest-violence-.html
 
