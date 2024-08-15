@@ -1,3 +1,11 @@
+**Jayden Daniels, Commanders' offense flash 'attacking mentality' in Miami**\
+`The rookie impressed with red zone strikes and accounted for five total TDs from inside the 20 during the joint practice vs. the Dolphins.`\
+https://nytimes.com/athletic/5703736/2024/08/15/jayden-daniels-commanders-dolphins-joint-practice/
+
+**Falcons signing Pro Bowl safety Justin Simmons**\
+`For the second time in 24 hours, the Falcons made a big move to help their defense after trading for veteran pass rusher Matthew Judon.`\
+https://nytimes.com/athletic/5703554/2024/08/15/atlanta-falcons-sign-justin-simmons/
+
 **Five-star DE and Hawkeyes legacy Iose Epenesa commits to Iowa**\
 `The 6-foot-4, 250-pound Epenesa is rated No. 16 overall in the Class of 2025 by 247Sports.`\
 https://nytimes.com/athletic/5693391/2024/08/15/iose-epenesa-commits-iowa-football-recruiting/

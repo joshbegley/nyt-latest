@@ -1,3 +1,11 @@
+**Jayden Daniels, Commanders' offense flash 'attacking mentality' in Miami**\
+`The rookie impressed with red zone strikes and accounted for five total TDs from inside the 20 during the joint practice vs. the Dolphins.`\
+https://nytimes.com/athletic/5703736/2024/08/15/jayden-daniels-commanders-dolphins-joint-practice/
+
+**Falcons signing Pro Bowl safety Justin Simmons**\
+`For the second time in 24 hours, the Falcons made a big move to help their defense after trading for veteran pass rusher Matthew Judon.`\
+https://nytimes.com/athletic/5703554/2024/08/15/atlanta-falcons-sign-justin-simmons/
+
 **Five-star DE and Hawkeyes legacy Iose Epenesa commits to Iowa**\
 `The 6-foot-4, 250-pound Epenesa is rated No. 16 overall in the Class of 2025 by 247Sports.`\
 https://nytimes.com/athletic/5693391/2024/08/15/iose-epenesa-commits-iowa-football-recruiting/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/15/arts/music/greg-kihn-dead.html
 **In Wander Franco sexual abuse case, father of alleged victim to seek dismissal of charges**\
 `PUERTO PLATA, Dominican Republic — The father of the minor at the center of Wander Franco’s sexual abuse case intends to petition the court for a dismissal of the charges, his attorney said on Wednesday afternoon, shortly after Franco appeared in court for a hearing that would ultimately be postponed.`\
 https://nytimes.com/athletic/5702105/2024/08/15/wander-franco-sexual-abuse-case-court-proceedings/
-
-**‘Emily in Paris’ Returns With Messier Relationships (and Wilder Outfits)**\
-`With maximalist accessories, a Hamburglar-like bodysuit and a Parisian love triangle, the Netflix show is back for a fourth season.`\
-https://nytimes.com/2024/08/15/style/emily-in-paris-returns-netflix.html
-
-**Why Harris’s Crowds Rattled Trump**\
-`The numbers game has long been important to former President Donald J. Trump. Now he is facing a political opponent whose rally turnouts can rival his. Shawn McCreesh, political reporter, explains why the size of Kamala Harris’s crowds has unnerved Mr. Trump.`\
-https://nytimes.com/video/us/elections/100000009626971/why-harriss-crowds-rattled-trump.html
 
