@@ -1,3 +1,15 @@
+**Nugent-Bowman: Ken Holland deserves less blame for Broberg, Holloway offer sheets**\
+`Despite the mess the Oilers are in now, little of what has transpired this week with the team's two emerging talents is Holland's doing.`\
+https://nytimes.com/athletic/5702757/2024/08/15/oilers-offer-sheets-broberg-holloway-holland/
+
+**Medic’s Killing Fuels Protests and Walkouts in India**\
+`The death and apparent rape of a physician trainee reignited rage over violence against women and prompted nationwide protests by colleagues.`\
+https://nytimes.com/2024/08/15/world/asia/medics-killing-fuels-protests-and-walkouts-in-india.html
+
+**Macron Honors African Soldiers Who Helped Liberate France in World War II**\
+`Two months after D-Day, an Allied force dominated by soldiers conscripted from French colonies swept into southern France. It’s a chapter of its history that France has long obscured.`\
+https://nytimes.com/2024/08/15/world/europe/france-african-soldiers-world-war-ii.html
+
 **Wind Beat Coal Two Months in a Row for U.S. Electricity Generation**\
 `The shift occurred as the cost of wind power and other renewable energy is rapidly declining and coal is being pushed out by natural gas.`\
 https://nytimes.com/2024/08/15/climate/wind-power-coal.html
