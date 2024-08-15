@@ -1,3 +1,7 @@
+**What happened to the Rangers? World Series champs assess underwhelming title defense**\
+`Texas has fallen well short of expectations in 2024. What has gone wrong and how do they fix it? GM Chris Young gave us his take.`\
+https://nytimes.com/athletic/5701658/2024/08/15/rangers-world-series-champs-defense/
+
 **Hamas said it wouldn’t participate in the meeting, dimming hopes for a breakthrough.**\
 `By Aaron Boxerman and Adam Rasgon`\
 https://nytimes.com/live/2024/08/14/world/israel-iran-hamas-gaza-war/hamas-said-it-wouldnt-participate-in-the-meeting-dimming-hopes-for-a-breakthrough
