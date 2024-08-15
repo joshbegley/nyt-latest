@@ -1,3 +1,5 @@
+**Gazan authorities mark 100 days since Israel’s closure of a key border crossing, and other news.**\
+
 **Why Liverpool want Mamardashvili - the 'Georgian Wall' coveted across Europe**\
 `Lightning reflexes, capable at crosses and an expert shot-stopper - no wonder Anfield executives admire Valencia's No 1`\
 https://nytimes.com/athletic/5700821/2024/08/15/liverpool-giorgi-mamardashvili-transfer-profile/
