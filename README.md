@@ -1,3 +1,7 @@
+**Russia Sentences U.S. Citizen to 12 Years in Prison on Treason Charges**\
+`Ksenia Karelina is accused of donating $52 to a New York-based nonprofit that bought weapons and other equipment, including medical aid, for Ukraine’s military.`\
+https://nytimes.com/2024/08/15/world/europe/american-russia-treason.html
+
 **Tonali's return date from suspension confirmed**\
 `Sandro Tonali is likely to make his Newcastle United return in the Carabao Cup after clarification as to when his suspension expires.`\
 https://nytimes.com/athletic/5702413/2024/08/15/sandro-tonali-return-newcastle/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/15/crosswords/wordle-review-1154.html
 **5.4-Magnitude Earthquake Strikes Near Taiwan**\
 `There were no immediate reports of major damage, but the island’s fire department warned of the risk of landslides in mountainous areas.`\
 https://nytimes.com/2024/08/15/world/asia/taiwan-earthquake.html
-
-**Canceling Subscriptions Could Get Easier Under New Biden Administration Rules**\
-`Some of the tactics that have consumers jumping through hoops to cancel a cable or gym membership could be banned under a new initiative launched this week by the White House.`\
-https://nytimes.com/2024/08/15/us/us-government-unsubscribe-memberships.html
 
