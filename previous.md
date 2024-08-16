@@ -1,3 +1,7 @@
+**Giants' Grant McCray clears the fence as a baseball family celebrates: 'This is the dream'**\
+`Grant McCray's father Rodney played in the majors and got to see his son's first big-league homer: "Oh man, life is about timing, isn't it?"`\
+https://nytimes.com/athletic/5704502/2024/08/15/sf-giants-grant-mccray-first-home-run/
+
 **Harbaugh offered Kaepernick coaching job with Chargers**\
 `Harbaugh coached Kaepernick from 2011 to 2014 when he played for the San Francisco 49ers.`\
 https://nytimes.com/athletic/5701754/2024/08/15/harbaugh-kaepernick-chargers-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/15/us/politics/trump-financial-disclosure-bibles-lia
 **‘The Union’ Review: Old Flames and Spy Games**\
 `When a mission goes pear-shaped, a covert operative (Halle Berry) turns to a secret weapon: her high school boyfriend (Mark Wahlberg).`\
 https://nytimes.com/2024/08/15/movies/the-union-review.html
-
-**At News Conference, Donald Trump Says He’s ‘Entitled to Personal Attacks’ Against Kamala Harris**\
-`Mr. Trump suggested he has no plans to moderate the tone of his campaign even as some Republicans have pushed him to emphasize policy issues.`\
-https://nytimes.com/2024/08/15/us/politics/trump-press-conference.html
 

@@ -1,3 +1,7 @@
+**Giants' Grant McCray clears the fence as a baseball family celebrates: 'This is the dream'**\
+`Grant McCray's father Rodney played in the majors and got to see his son's first big-league homer: "Oh man, life is about timing, isn't it?"`\
+https://nytimes.com/athletic/5704502/2024/08/15/sf-giants-grant-mccray-first-home-run/
+
 **Harbaugh offered Kaepernick coaching job with Chargers**\
 `Harbaugh coached Kaepernick from 2011 to 2014 when he played for the San Francisco 49ers.`\
 https://nytimes.com/athletic/5701754/2024/08/15/harbaugh-kaepernick-chargers-coach/
