@@ -1,3 +1,7 @@
+**What It’s Like as a Barista at One of the World’s Busiest Train Stations**\
+`Commuters fuel up daily at the Cafe Grumpy in Grand Central Terminal. Here is the man who keeps the coffee flowing.`\
+https://nytimes.com/2024/08/16/dining/barista-grand-central-terminal-cafe-grumpy.html
+
 **New Zealand Diplomat Is Victim of Armed Robbery, Paris Authorities Say**\
 `The Paris prosecutor’s office said that the diplomat had been struck in the face with the butt of a pistol. The robbery took place in Paris’s affluent 7th arrondissement.`\
 https://nytimes.com/2024/08/16/world/europe/new-zealand-robbery-paris.html
