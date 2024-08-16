@@ -1,3 +1,7 @@
+**Landon Donovan named San Diego Wave interim coach**\
+`Donovan is one of the most decorated U.S. men’s soccer players in program history with 57 goals in 157 international caps.`\
+https://nytimes.com/athletic/5705849/2024/08/16/landon-donovan-san-diego-wave-coach-nwsl/
+
 **Gaza Cease-Fire Talks to Resume in Cairo, as Mediators Race to Head Off Wider War**\
 `Top officials from the U.S., Israel, Egypt and Qatar ended two days of talks in Doha aimed at trying to resolve remaining disagreements between Israel and Hamas.`\
 https://nytimes.com/2024/08/16/world/middleeast/cease-fire-talks-doha-israel-hamas.html
@@ -11,7 +15,7 @@ https://nytimes.com/2024/08/16/style/wedding-guest-charge.html
 https://nytimes.com/athletic/5705758/2024/08/16/packers-broncos-joint-practice-observations/
 
 **Supreme Court, for Now, Blocks Expanded Protections for Transgender Students in Some States**\
-`The order came in response to a challenge by the Biden administration to Republican-led efforts to block federal rules prohibiting discrimination against transgender people in schools.`\
+`The order came in response to a Biden administration challenge to Republican-led efforts to block federal rules prohibiting discrimination against transgender people in schools.`\
 https://nytimes.com/2024/08/16/us/politics/supreme-court-transgender-discrimination-schools.html
 
 **Harris and Trump Offer a Clear Contrast on the Economy**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5703921/2024/08/16/lesley-ugochukwu-southampton-che
 **Palace's Guehi has not asked for Newcastle transfer - Glasner**\
 `Crystal Palace manager Oliver Glasner says Marc Guehi has not asked to join Newcastle United and that the final decision is up to the defender.`\
 https://nytimes.com/athletic/5705247/2024/08/16/marc-guehi-newcaste-transfer-latest/
-
-**Judge temporarily blocks Venu Sports launch**\
-`The direct-to-consumer streaming service that will combine the resources of ESPN, Fox Sports and TNT Sports, is ensnared in a lawsuit.`\
-https://nytimes.com/athletic/5705694/2024/08/16/sports-streaming-disney-warner-fox-venu-judge/
 
