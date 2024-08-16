@@ -30,7 +30,7 @@ https://nytimes.com/athletic/5705340/2024/08/16/jobe-bellingham-signs-new-contra
 `A woman named Lisa Jeanine Findley was arrested and accused of a brazen effort to foreclose on Elvis Presley’s home in Memphis.`\
 https://nytimes.com/2024/08/16/arts/music/graceland-fraud-charges-arrest.html
 
-**This Georgia Republican Defied Trump. Now He’s Fighting a Lawsuit.**\
+**This Georgia Republican Defied Trump. Now He’s Fighting a Defamation Suit.**\
 `The secretary of state, Brad Raffensperger, has spent $500,000 defending himself in court. He says the plaintiff will only settle if he endorses a debunked conspiracy theory about the 2020 election.`\
 https://nytimes.com/2024/08/16/us/politics/brad-raffensperger-2020-georgia-election.html
 
