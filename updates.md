@@ -1,3 +1,7 @@
+**Mpox Case in Sweden Sets Off Concerns of Wider Spread in Europe**\
+`Experts expect more cases to surface in European countries because of frequent travel to and from Africa, with the threat of contracting the disease raised from “very low” to “low.”`\
+https://nytimes.com/2024/08/16/world/europe/mpox-cases-sweden-europe.html
+
 **Alcaraz smashes racket in Cincinnati Monfils defeat**\
 `Carlos Alcaraz’s US Open preparations took a hit on Friday as he was beaten in the Cincinnati second round by Gael Monfils.`\
 https://nytimes.com/athletic/5705697/2024/08/16/carlos-alcaraz-monfils-cincinatti-racket/
