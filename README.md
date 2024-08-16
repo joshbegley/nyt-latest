@@ -1,3 +1,7 @@
+**What I’m Reading: Why Democracy Erodes From the Top**\
+`Three book recommendations from sunny London.`\
+https://nytimes.com/2024/08/16/world/europe/what-im-reading-why-democracy-erodes-from-the-top.html
+
 **Newcastle make Guehi bid worth up to £65m**\
 `Newcastle United have submitted a fourth bid for Crystal Palace defender Marc Guehi.`\
 https://nytimes.com/athletic/5696132/2024/08/16/marc-guehi-transfer-newcastle/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5704974/2024/08/16/rodri-man-city-injury/
 **Bengals tackling new obstacles, including injuries, after sloppy joint practice with Bears**\
 `RB Chris Evans and OT D’Ante Smith both left on carts on a rainy Thursday in Chicago, where the Bears intercepted Joe Burrow three times.`\
 https://nytimes.com/athletic/5704210/2024/08/16/bengals-bears-chris-evans-joe-burrow/
-
-**Darrell Luter Jr., young DTs and everything else we’re watching in 49ers vs. Saints**\
-`Saturday's game will be a chance to watch young defensive linemen Evan Anderson and Shakel Brown, who are vying for a spot in the rotation.`\
-https://nytimes.com/athletic/5701934/2024/08/16/49ers-saints-what-to-watch/
 
