@@ -1,3 +1,7 @@
+**Finding Summer Heat Relief in Your Hairstyle**\
+`On a hot day, getting hair off the back of your neck is often the simplest way to start cooling down. The sweeping movement is instinctual, but it is also deeply personal.`\
+https://nytimes.com/2024/08/16/us/heat-summer-hair.html
+
 **Browns defense dominant, offense shaky in joint practices with Vikings**\
 `Myles Garrett and the defense were disruptive in the joint sessions vs. Minnesota, while the Deshaun Watson-led offense was inconsistent. `\
 https://nytimes.com/athletic/5704274/2024/08/16/browns-vikings-joint-practice-training-camp/
