@@ -19,7 +19,7 @@ https://nytimes.com/2024/08/16/world/australia/ski-passes-and-weber-grills-obscu
 https://nytimes.com/interactive/2024/08/16/opinion/harris-trump-electoral-college-map.html
 
 **At 19, a Hong Kong Panda Is Finally a Mother**\
-`She is the oldest panda on record to give birth for the first time. Also unusual: the cubs were naturally conceived, a rarity for the vulnerable species.`\
+`Ying Ying is the oldest panda on record to give birth for the first time. Also unusual: her cubs were naturally conceived, a rarity for the vulnerable species.`\
 https://nytimes.com/2024/08/16/world/asia/panda-twins-hong-kong.html
 
 **How Liverpool managers start their reigns - and what it could mean for Slot**\
