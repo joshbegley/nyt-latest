@@ -1,3 +1,7 @@
+**Typhoon Ampil Lashes Eastern Japan, Forcing Evacuations**\
+`The authorities have warned that the storm, which has already flooded some streets in the Tokyo area, could bring violent winds and cause landslides.`\
+https://nytimes.com/2024/08/16/world/asia/typhoon-ampil-japan.html
+
 **Ski Passes and Weber Grills? Obscure Perks of a U.S. Alliance**\
 `The military alliance between Australia and the United States is growing ever closer. But how does the superpower value its smaller ally? Here are some clues.`\
 https://nytimes.com/2024/08/16/world/australia/ski-passes-and-weber-grills-obscure-perks-of-a-us-alliance.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5646878/2024/08/16/wrexham-fans-bond/
 **Who is Jorgen Strand Larsen: 'He's from a place where football is a religion'**\
 `Jorgen Strand Larsen's origins according to those who have known him best...`\
 https://nytimes.com/athletic/5672204/2024/08/16/jorgen-strand-larsen-background-wolves/
-
-**Chelsea are rolling along the runway under Clearlake and Boehly - they need lift-off**\
-`Chelsea go into their third season under the Clearlake-Boehly regime needing to start achieving on the pitch`\
-https://nytimes.com/athletic/5703292/2024/08/16/chelsea-clearlake-boehly-owners-analysis/
 

@@ -1,3 +1,7 @@
+**Typhoon Ampil Lashes Eastern Japan, Forcing Evacuations**\
+`The authorities have warned that the storm, which has already flooded some streets in the Tokyo area, could bring violent winds and cause landslides.`\
+https://nytimes.com/2024/08/16/world/asia/typhoon-ampil-japan.html
+
 **Ski Passes and Weber Grills? Obscure Perks of a U.S. Alliance**\
 `The military alliance between Australia and the United States is growing ever closer. But how does the superpower value its smaller ally? Here are some clues.`\
 https://nytimes.com/2024/08/16/world/australia/ski-passes-and-weber-grills-obscure-perks-of-a-us-alliance.html
