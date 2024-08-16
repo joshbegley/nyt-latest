@@ -1,3 +1,7 @@
+**Tottenham to sign Odobert from Burnley**\
+`Tottenham Hotspur have reached an agreement to sign Wilson Odobert from Burnley.`\
+https://nytimes.com/athletic/5704772/2024/08/16/wilson-odobert-tottenham-transfer/
+
 **Gary Neville joins NBC Sports as Premier League contributor for 2024-25 season**\
 `Gary Neville has joined NBC Sports as a special contributor for the network&#8217;s Premier League coverage for the 2024-25 season.`\
 https://nytimes.com/athletic/5704768/2024/08/16/gary-neville-nbc-sports-premier-league/

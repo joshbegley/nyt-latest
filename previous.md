@@ -1,3 +1,7 @@
+**Tottenham to sign Odobert from Burnley**\
+`Tottenham Hotspur have reached an agreement to sign Wilson Odobert from Burnley.`\
+https://nytimes.com/athletic/5704772/2024/08/16/wilson-odobert-tottenham-transfer/
+
 **Gary Neville joins NBC Sports as Premier League contributor for 2024-25 season**\
 `Gary Neville has joined NBC Sports as a special contributor for the network&#8217;s Premier League coverage for the 2024-25 season.`\
 https://nytimes.com/athletic/5704768/2024/08/16/gary-neville-nbc-sports-premier-league/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/16/podcasts/the-daily/air-conditioning-climate-warmi
 **The Connections Companion No. 433**\
 `Scroll down for hints and conversation about the puzzle for Saturday, Aug. 17, 2024.`\
 https://nytimes.com/2024/08/16/crosswords/connections-companion-433.html
-
-**Harris’s Strategically Vague Economic Message, and Russians Feel the War**\
-`Plus, charges in Matthew Perry’s death.`\
-https://nytimes.com/2024/08/16/podcasts/harriss-strategically-vague-economic-message-and-russians-feel-the-war.html
 
