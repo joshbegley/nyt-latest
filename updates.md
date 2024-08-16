@@ -1,3 +1,7 @@
+**Free Vasectomies and an Inflatable IUD: Abortion Rights Advocates Hit the D.N.C.**\
+`This convention is likely to be a head-on display of a new, unbridled abortion politics.`\
+https://nytimes.com/2024/08/16/us/politics/dnc-abortion-rights.html
+
 **Rutgers AD Pat Hobbs resigns after 9-year tenure**\
 `The 64-year-old Hobbs cited health-related concerns for his sudden departure from the job.`\
 https://nytimes.com/athletic/5705896/2024/08/16/rutgers-pat-hobbs-resigns/
