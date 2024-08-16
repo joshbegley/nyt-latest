@@ -1,3 +1,7 @@
+**Raiders training camp: Maxx Crosby gets into skirmish, Davante Adams misses practice**\
+`Crosby threw several punches at center Will Putnam on Thursday, while it remains unclear whether Adams will suit up against the Cowboys.`\
+https://nytimes.com/athletic/5704652/2024/08/16/raiders-training-camp-maxx-crosby-gets-into-skirmish-davante-adams-misses-practice/
+
 **Trump Names Friends and Major Donors to Oversee Transition Team**\
 `The appointment of Linda McMahon and Howard Lutnick to lead the effort is notable, as neither have been associated with Project 2025, a conservative policy plan seized on by Democrats.`\
 https://nytimes.com/2024/08/16/us/politics/trump-transition-team-2024-mcmahon-lutnick.html
