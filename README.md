@@ -1,40 +1,40 @@
-**The Orioles traded for Zach Eflin at the deadline. He could have helped the Red Sox**\
-`The Red Sox failed to sign Eflin in 2023. They couldn't acquire him in a trade in 2024. He showed Boston why they coveted him Thursday.`\
-https://nytimes.com/athletic/5704549/2024/08/15/orioles-red-sox-zach-eflin/
+**Friday Briefing**\
+`Ukraine claimed to have captured a Russian town.`\
+https://nytimes.com/2024/08/16/briefing/ukraine-mpox-sweden.html
 
-**Giants' Grant McCray clears the fence as a baseball family celebrates: 'This is the dream'**\
-`Grant McCray's father Rodney played in the majors and got to see his son's first big-league homer: "Oh man, life is about timing, isn't it?"`\
-https://nytimes.com/athletic/5704502/2024/08/15/sf-giants-grant-mccray-first-home-run/
+**FPL tips for the 2024-25 Premier League: Wildcards, Haaland, budget options and 'the template'**\
+`Here we bring together all our tips and advice in the lead up to the new FPL season`\
+https://nytimes.com/athletic/5697856/2024/08/16/fpl-tips-advice-premier-league/
 
-**Harbaugh offered Kaepernick coaching job with Chargers**\
-`Harbaugh coached Kaepernick from 2011 to 2014 when he played for the San Francisco 49ers.`\
-https://nytimes.com/athletic/5701754/2024/08/15/harbaugh-kaepernick-chargers-coach/
+**Training under the league's youngest manager: Tennis balls and brutal workouts**\
+`Fabian Hurzeler, Brighton's new 31-year-old boss, is obsessed by detail and is determined for his team to play on the front foot`\
+https://nytimes.com/athletic/5681473/2024/08/16/training-under-youngest-premier-league-manager/
 
-**Secret Service Pulls From Biden’s Protective Team to Guard Trump**\
-`In the aftermath of an assassination attempt last month, the agency has shifted members of President Biden’s protective team to the Trump campaign.`\
-https://nytimes.com/2024/08/15/us/trump-secret-service.html
+**Is Kenny Pickett the best backup QB for the Eagles? Tanner McKee's stock is rising.**\
+`Eagles coach Nick Sirianni dodged multiple questions Thursday about whether McKee outplayed Pickett.`\
+https://nytimes.com/athletic/5704234/2024/08/16/kenny-pickett-tanner-mckee-eagles/
 
-**Criss-Cross Applesauce**\
-`Kate Hawkins opens our solving weekend.`\
-https://nytimes.com/2024/08/15/crosswords/daily-puzzle-2024-08-16.html
+**A Rescue Dog Went Blind. Now She’s Helping Other Pups Avoid Her Fate.**\
+`Shola, who assisted with search-and-rescue operations in the U.K., has moved to her second act: saving other English Shepherds from blindness.`\
+https://nytimes.com/2024/08/16/world/europe/rescue-dog-blindness-dna-test.html
 
-**What we saw from the Vikings in their joint practices with the Browns**\
-`This week's joint practices with the Browns offered QB Sam Darnold experience against a different — and often dominant — defense.`\
-https://nytimes.com/athletic/5704394/2024/08/15/vikings-browns-joint-practices-sam-darnold/
+**How Does a Man Buy a Girl’s Swimsuit?**\
+`As a gay man who had adopted a daughter, I had gaps in parental knowledge.`\
+https://nytimes.com/2024/08/16/style/modern-love-gay-father-adopted-daughter.html
 
-**Four Arrested in Killing of ‘General Hospital’ Actor**\
-`The police said they arrested three men on murder charges in the fatal May 25 shooting of Johnny Wactor, 37, in Los Angeles. A fourth person was also charged.`\
-https://nytimes.com/2024/08/15/arts/television/johnny-wactor-murder-arrests.html
+**Quotation of the Day: Russians in the Kursk Region ‘Were Living Our Lives,’ Until the Incursion**\
+`Quotation of the Day for Friday, August 16, 2024.`\
+https://nytimes.com/2024/08/16/pageoneplus/quotation-of-the-day-russians-in-the-kursk-region-were-living-our-lives-until-the-incursion.html
 
-**Three Braves takeaways: Max Fried struggles, Ozzie Albies eager to see 'Wash', and more**\
-`Brian Snitker said of Fried: “He’s still fighting like heck to find himself and get in a rhythm."`\
-https://nytimes.com/athletic/5704370/2024/08/15/braves-mlb-max-fried-ron-washington/
+**Editors’ Note: Aug. 16, 2024**\
+`Corrections that appeared in print on Friday, Aug. 16, 2024.`\
+https://nytimes.com/2024/08/16/pageoneplus/editors-note-aug-16-2024.html
 
-**Rather than play short-handed, Twins place Buxton on IL**\
-`Buxton is not expected to exceed the minimum stay on the injured list.`\
-https://nytimes.com/athletic/5704382/2024/08/15/twins-byron-buxton-hip-inflammation-update/
+**The Six ‘Commitments’ That Strengthened Their Connection**\
+`Emily Swarts and Tyler Swiggett met online in New York. But she moved to Hawaii before responding to his message. Despite the distance, voice messages and handwritten letters deepened their bond.`\
+https://nytimes.com/2024/08/16/style/emily-swarts-tyler-swiggett-wedding.html
 
-**Trump Made $300,000 for Endorsing Bible, Financial Disclosure Shows**\
-`Donald J. Trump also listed $100 million in liabilities over judgments he owes in civil cases, and over $1 million in crypto holdings as he courts the industry for his campaign.`\
-https://nytimes.com/2024/08/15/us/politics/trump-financial-disclosure-bibles-liabilities.html
+**A Childhood Crush Becomes Something More in Adulthood**\
+`“We didn’t really intend to start dating,” Isabelle Davis said of her relationship with Alicia Maule. “We just never stopped talking.”`\
+https://nytimes.com/2024/08/16/style/isabelle-davis-alicia-maule-wedding.html
 
