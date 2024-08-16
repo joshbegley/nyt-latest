@@ -1,3 +1,7 @@
+**Trump Pulls in Tulsi Gabbard for Debate Prep**\
+`Tulsi Gabbard, the former Democrat who has rebranded herself as a celebrity among Donald J. Trump’s supporters, once eviscerated Kamala Harris on a debate stage.`\
+https://nytimes.com/2024/08/16/us/politics/trump-debate-tulsi-gabbard.html
+
 **Indian Kashmir to Hold Legislative Election for First Time in a Decade**\
 `Some measure of self-governance will be restored in the region, which was stripped of its semiautonomous status by Prime Minister Narendra Modi’s government.`\
 https://nytimes.com/2024/08/16/world/asia/kashmir-election.html
