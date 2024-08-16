@@ -1,4 +1,8 @@
 **Trump Says Civilian Award Is ‘Much Better’ Than Medal of Honor**\
+`The former president said Thursday the reason was because those given the nation’s highest military award are “either in very bad shape because they’ve been hit so many times by bullets, or they’re dead.”`\
+https://nytimes.com/2024/08/16/us/politics/trump-civilian-award-military-honor.html
+
+**Trump Says Civilian Award Is ‘Much Better’ Than Medal of Honor**\
 `The former president said Thursday said the reason was because those given the nation’s highest military award are “either in very bad shape because they’ve been hit so many times by bullets, or they’re dead.”`\
 https://nytimes.com/2024/08/16/us/politics/trump-civilian-award-military-honor.html
 
