@@ -1,3 +1,15 @@
+**Local News Is Dying, but Not in San Francisco**\
+`The city has become a hothouse for experimentation in local news. Could it serve as a model for the rest of the country?`\
+https://nytimes.com/2024/08/16/technology/san-francisco-local-news-resurgence.html
+
+**Notre Dame’s Riley Leonard, the small-town QB with championship ambitions**\
+`The former Duke quarterback has never been farther from home, but its impact remains.`\
+https://nytimes.com/athletic/5703541/2024/08/16/notre-dame-riley-leonard-college-football/
+
+**2024 Heisman Draft: Our 36-player search for this year's NYC hopefuls**\
+`Who will claim college football's highest individual honor in 2024? We had nine writers make four picks each, snake draft-style.`\
+https://nytimes.com/athletic/5701118/2024/08/16/heisman-trophy-2024-odds-favorites-carson-beck/
+
 **College football breakout QB watch: Who will shine in new 2024 spotlights?**\
 `From bowl-season standouts to former five-stars to transfer portal finds, our writers run down some possible breakout passers to know.`\
 https://nytimes.com/athletic/5703443/2024/08/16/college-football-breakout-quarterbacks/

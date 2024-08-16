@@ -1,3 +1,15 @@
+**Local News Is Dying, but Not in San Francisco**\
+`The city has become a hothouse for experimentation in local news. Could it serve as a model for the rest of the country?`\
+https://nytimes.com/2024/08/16/technology/san-francisco-local-news-resurgence.html
+
+**Notre Dame’s Riley Leonard, the small-town QB with championship ambitions**\
+`The former Duke quarterback has never been farther from home, but its impact remains.`\
+https://nytimes.com/athletic/5703541/2024/08/16/notre-dame-riley-leonard-college-football/
+
+**2024 Heisman Draft: Our 36-player search for this year's NYC hopefuls**\
+`Who will claim college football's highest individual honor in 2024? We had nine writers make four picks each, snake draft-style.`\
+https://nytimes.com/athletic/5701118/2024/08/16/heisman-trophy-2024-odds-favorites-carson-beck/
+
 **College football breakout QB watch: Who will shine in new 2024 spotlights?**\
 `From bowl-season standouts to former five-stars to transfer portal finds, our writers run down some possible breakout passers to know.`\
 https://nytimes.com/athletic/5703443/2024/08/16/college-football-breakout-quarterbacks/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/16/science/ancient-scribes-ergonomic-injuries.html
 **When Breaking the Dress Code Depends on Skin Color, and If You’re Skinny**\
 `A new City Council law seeks to pressure schools to undo bias in enforcing a dress code across the nation’s largest school system.`\
 https://nytimes.com/2024/08/16/nyregion/nyc-public-schools-dress-code.html
-
-**Myths, Plagues and Battles, on the 12th Floor of The Times**\
-`A group of Times employees are reading their way through Emily Wilson’s translation of the “Iliad,” the epic poem attributed to Homer.`\
-https://nytimes.com/2024/08/16/insider/myths-plagues-and-battles-on-the-12th-floor-of-the-times.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/08/16/crosswords/spelling-bee-forum.html
-
-**Late Night Tackles Trump’s Tic Tac Show and Tell**\
-`“That is not an example of inflation; it’s just two different sizes of breath mints,” Desi Lydic said on Thursday’s “The Daily Show.”`\
-https://nytimes.com/2024/08/16/arts/television/late-night-trump-tic-tac.html
 
