@@ -1,3 +1,11 @@
+**Gary Neville joins NBC Sports as Premier League contributor for 2024-25 season**\
+`Gary Neville has joined NBC Sports as a special contributor for the network&#8217;s Premier League coverage for the 2024-25 season.`\
+https://nytimes.com/athletic/5704768/2024/08/16/gary-neville-nbc-sports-premier-league/
+
+**Wide receiver/tight end roundtable: The Top 5s, the next Puka Nacua, Brock Bowers projections and more**\
+`The Athletic fantasy football crew weigh in on the WR/TE positions, sharing their Top 5 rankings, "do not draft" wideouts and more.`\
+https://nytimes.com/athletic/5703368/2024/08/16/wide-receiver-tight-end-roundtable-top-5-next-puka-nacua-brock-bowers-projections/
+
 **Why Cubs' Isaac Paredes trade looks like a different way of doing business**\
 `The Cubs knew they could acquire prospects at the deadline for Christopher Morel. Here's why they preferred to trade for an everyday player.`\
 https://nytimes.com/athletic/5703925/2024/08/16/cubs-isaac-paredes-trade/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/16/crosswords/connections-companion-433.html
 **Harris’s Strategically Vague Economic Message, and Russians Feel the War**\
 `Plus, charges in Matthew Perry’s death.`\
 https://nytimes.com/2024/08/16/podcasts/harriss-strategically-vague-economic-message-and-russians-feel-the-war.html
-
-**With or without Julio ​​Rodríguez, Mariners’ playoff hopes hinge on their bats**\
-`Only four teams with a lower OPS than the Seattle Mariners have made the playoffs in MLB's divisional era.`\
-https://nytimes.com/athletic/5703987/2024/08/16/seattle-mariners-julio-rodriguez-hitting/
-
-**Minshew Mania hits Vegas: Can the NFL journeyman be the Raiders' answer at QB?**\
-`The free-spirited QB once swigged Jack Daniels and tried to break his hand with a hammer to preserve a season of college eligibility.`\
-https://nytimes.com/athletic/5703128/2024/08/16/gardner-minshew-las-vegas-raiders-quarterback/
 
