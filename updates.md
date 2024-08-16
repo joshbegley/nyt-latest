@@ -1,3 +1,15 @@
+**Harbaugh offered Kaepernick coaching job with Chargers**\
+`Harbaugh coached Kaepernick from 2011 to 2014 when he played for the San Francisco 49ers.`\
+https://nytimes.com/athletic/5701754/2024/08/15/harbaugh-kaepernick-chargers-coach/
+
+**Secret Service Pulls From Biden’s Protective Team to Guard Trump**\
+`In the aftermath of an assassination attempt last month, the agency has shifted members of President Biden’s protective team to the Trump campaign.`\
+https://nytimes.com/2024/08/15/us/trump-secret-service.html
+
+**Criss-Cross Applesauce**\
+`Kate Hawkins opens our solving weekend.`\
+https://nytimes.com/2024/08/15/crosswords/daily-puzzle-2024-08-16.html
+
 **What we saw from the Vikings in their joint practices with the Browns**\
 `This week's joint practices with the Browns offered QB Sam Darnold experience against a different — and often dominant — defense.`\
 https://nytimes.com/athletic/5704394/2024/08/15/vikings-browns-joint-practices-sam-darnold/
