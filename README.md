@@ -26,13 +26,13 @@ https://nytimes.com/2024/08/16/podcasts/the-daily/air-conditioning-climate-warmi
 `Scroll down for hints and conversation about the puzzle for Saturday, Aug. 17, 2024.`\
 https://nytimes.com/2024/08/16/crosswords/connections-companion-433.html
 
-**With or without Julio ​​Rodríguez, Mariners’ playoff hopes hinge on their bats**\
-`Only four teams with a lower OPS than the Seattle Mariners have made the playoffs in MLB's divisional era.`\
-https://nytimes.com/athletic/5703987/2024/08/16/seattle-mariners-julio-rodriguez-hitting/
-
 **Harris’s Strategically Vague Economic Message, and Russians Feel the War**\
 `Plus, charges in Matthew Perry’s death.`\
 https://nytimes.com/2024/08/16/podcasts/harriss-strategically-vague-economic-message-and-russians-feel-the-war.html
+
+**With or without Julio ​​Rodríguez, Mariners’ playoff hopes hinge on their bats**\
+`Only four teams with a lower OPS than the Seattle Mariners have made the playoffs in MLB's divisional era.`\
+https://nytimes.com/athletic/5703987/2024/08/16/seattle-mariners-julio-rodriguez-hitting/
 
 **Minshew Mania hits Vegas: Can the NFL journeyman be the Raiders' answer at QB?**\
 `The free-spirited QB once swigged Jack Daniels and tried to break his hand with a hammer to preserve a season of college eligibility.`\
