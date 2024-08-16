@@ -1,3 +1,11 @@
+**Rodri to miss Man City vs Chelsea through injury**\
+`Pep Guardiola has confirmed that Rodri will miss Manchester City’s Premier League opener at Chelsea on Sunday.`\
+https://nytimes.com/athletic/5704974/2024/08/16/rodri-to-miss-manchester-citys-premier-league-opener-at-chelsea-through-injury/
+
+**Bengals tackling new obstacles, including injuries, after sloppy joint practice with Bears**\
+`RB Chris Evans and OT D’Ante Smith both left on carts on a rainy Thursday in Chicago, where the Bears intercepted Joe Burrow three times.`\
+https://nytimes.com/athletic/5704210/2024/08/16/bengals-bears-chris-evans-joe-burrow/
+
 **Darrell Luter Jr., young DTs and everything else we’re watching in 49ers vs. Saints**\
 `Saturday's game will be a chance to watch young defensive linemen Evan Anderson and Shakel Brown, who are vying for a spot in the rotation.`\
 https://nytimes.com/athletic/5701934/2024/08/16/49ers-saints-what-to-watch/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5704942/2024/08/16/willian-leaves-fulham-transfer-n
 **Barcelona mailbag: Your questions answered before new La Liga season**\
 `Our Barcelona correspondent Laia Cervello Herrero replies to a selection of (mostly quite complex) queries about the club`\
 https://nytimes.com/athletic/5704762/2024/08/16/barcelona-olmo-flick-yamal-laporta-la-liga/
-
-**Inmate Captured in North Carolina After Escape**\
-`Law enforcement officers captured Ramone Alston, who had been serving a life sentence for murder, at a hotel. He was moved to a high-security prison unit and will face new charges.`\
-https://nytimes.com/2024/08/16/us/north-carolina-manhunt-ramone-alston-captured.html
-
-**Ipswich complete Szmodics signing from Blackburn**\
-`Ipswich Town have completed the signing of Sammie Szmodics from Blackburn Rovers.`\
-https://nytimes.com/athletic/5704699/2024/08/16/sammie-szmodics-ipswich-transfer/
 
