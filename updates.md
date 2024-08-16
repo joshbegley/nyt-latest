@@ -1,3 +1,7 @@
+**Chelsea's Moreira joins BlueCo-owned Strasbourg**\
+`Chelsea have confirmed winger Diego Moreira has joined Strasbourg on a permanent deal.`\
+https://nytimes.com/athletic/5704831/2024/08/16/diego-moreira-strasbourg-chelsea-transfer/
+
 **The Athletic’s Friday football quiz question #17**\
 `The Athletic's weekly conundrum from inside the trivia vaults`\
 https://nytimes.com/athletic/5703559/2024/08/16/the-athletics-friday-football-quiz-question-17/
