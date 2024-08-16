@@ -1,3 +1,7 @@
+**Ski Passes and Weber Grills? Obscure Perks of a U.S. Alliance**\
+`The military alliance between Australia and the United States is growing ever closer. But how does the superpower value its smaller ally? Here are some clues.`\
+https://nytimes.com/2024/08/16/world/australia/newsletter-us-alliance-perks.html
+
 **Ancient Scribes Got Ergonomic Injuries, Too**\
 `The scriveners of ancient Egypt were more than papyrus pushers, but they suffered many of the same repetitive ailments as desk jockeys today, a new study suggests.`\
 https://nytimes.com/2024/08/16/science/ancient-scribes-ergonomic-injuries.html
