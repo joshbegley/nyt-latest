@@ -1,3 +1,7 @@
+**At 19, a Hong Kong Panda Is Finally a Mother**\
+`She is the oldest panda on record to give birth for the first time. Also unusual: the cubs were naturally conceived, a rarity for the vulnerable species.`\
+https://nytimes.com/2024/08/16/world/asia/panda-twins-hong-kong.html
+
 **Lawmakers Choose a Dynasty’s Young Heir to Lead Thailand**\
 `Paetongtarn Shinawatra, a 37-year-old daughter of the political power broker Thaksin Shinawatra, is becoming prime minister at a chaotic time.`\
 https://nytimes.com/2024/08/16/world/asia/paetongtarn-shinawatra-thailand-prime-minister.html
