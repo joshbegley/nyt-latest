@@ -1,3 +1,7 @@
+**Supreme Court, for Now, Blocks Expanded Protections for Transgender Students**\
+`The order came in response to a challenge by the Biden administration to Republican-led efforts to block federal rules prohibiting discrimination against transgender people in schools.`\
+https://nytimes.com/2024/08/16/us/politics/supreme-court-transgender-discrimination-schools.html
+
 **Harris and Trump Offer a Clear Contrast on the Economy**\
 `Both candidates embrace expansions of government power to steer economic outcomes — but in vastly different areas.`\
 https://nytimes.com/2024/08/16/business/economy/harris-trump-economy-inflation.html

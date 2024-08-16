@@ -1,3 +1,7 @@
+**Supreme Court, for Now, Blocks Expanded Protections for Transgender Students**\
+`The order came in response to a challenge by the Biden administration to Republican-led efforts to block federal rules prohibiting discrimination against transgender people in schools.`\
+https://nytimes.com/2024/08/16/us/politics/supreme-court-transgender-discrimination-schools.html
+
 **Harris and Trump Offer a Clear Contrast on the Economy**\
 `Both candidates embrace expansions of government power to steer economic outcomes — but in vastly different areas.`\
 https://nytimes.com/2024/08/16/business/economy/harris-trump-economy-inflation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/16/briefing/harris-unveiled-her-economic-agenda.html
 **Judge Blocks Joint Sports Streaming Service From 3 Media Giants**\
 `The planned service from Disney, Fox and Warner Bros. Discovery was slated to cost $42.99 a month and aimed at fans who had abandoned cable TV.`\
 https://nytimes.com/2024/08/16/business/media/fox-disney-warner-sports-streaming.html
-
-**The U.N. Calls for a Temporary Truce to Fight Polio in Gaza**\
-`Secretary General António Guterres’s public comments came just before Gazan health authorities announced the first case of the disease in the enclave in many years.`\
-https://nytimes.com/2024/08/16/world/middleeast/gaza-polio-crisis.html
 
