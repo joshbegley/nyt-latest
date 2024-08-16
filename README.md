@@ -1,3 +1,7 @@
+**Trump Is Said to Pull in Tulsi Gabbard for Debate Prep**\
+`Tulsi Gabbard, the former Democrat who has rebranded herself as a celebrity among Donald J. Trump’s supporters, once eviscerated Kamala Harris on a debate stage.`\
+https://nytimes.com/2024/08/16/us/politics/trump-debate-tulsi-gabbard.html
+
 **Israeli Settlers Attack a Palestinian Village in the West Bank**\
 `Dozens of Israeli settlers attacked the West Bank village of Jit, killing one person and leaving another one critically injured, according to Palestinian officials.`\
 https://nytimes.com/video/world/middleeast/100000009633638/israeli-settlers-west-bank-attack-.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5705133/2024/08/16/ajax-panathinaikos-penalty-shoot
 **The Best of Late Night This Week**\
 `The hosts returned from a break and had much to discuss, including former President Trump’s obsession with crowd size and Vice President Harris’s surge in the polls. Here’s what they had to say.`\
 https://nytimes.com/interactive/2024/08/16/arts/television/best-of-late-night-trump-musk.html
-
-**Bellingham signs Sunderland contract extension despite Premier League interest**\
-`Jobe Bellingham has signed a contract extension with Sunderland.`\
-https://nytimes.com/athletic/5705340/2024/08/16/jobe-bellingham-signs-new-contract/
 
