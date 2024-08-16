@@ -1,3 +1,7 @@
+**Lady Gaga and Bruno Mars’s Throwback Duet, and 8 More New Songs**\
+`Hear tracks by the Linda Lindas featuring Weird Al Yankovic, Chlöe and Anderson .Paak, Lou Reed’s early band and others.`\
+https://nytimes.com/2024/08/16/arts/music/playlist-lady-gaga-bruno-mars.html
+
 **Trump Pulls in Tulsi Gabbard for Debate Prep**\
 `Tulsi Gabbard, the former Democrat who has rebranded herself as a celebrity among Donald J. Trump’s supporters, once eviscerated Kamala Harris on a debate stage.`\
 https://nytimes.com/2024/08/16/us/politics/trump-debate-tulsi-gabbard.html
