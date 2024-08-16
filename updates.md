@@ -1,3 +1,11 @@
+**Menendez, Convicted of Taking Bribes, Ends Race for Re-election**\
+`Senator Robert Menendez of New Jersey instructed state officials on Friday to remove his name from the Nov. 5 ballot.`\
+https://nytimes.com/2024/08/16/nyregion/nj-menendez-suspends-senate-race.html
+
+**Bengals, McPherson agree to 3-year extension**\
+`McPherson, a fifth-round pick of the Bengals in 2021, has never missed a postseason field goal in his career`\
+https://nytimes.com/athletic/5705582/2024/08/16/cincinnati-bengals-kicker-extension-evan-mcpherson/
+
 **Liz Moore on ‘The God of the Woods’**\
 `The author discusses her best-selling new novel about family secrets and a missing camper.`\
 https://nytimes.com/2024/08/16/books/review/podcast-liz-moore-interview-god-of-the-woods.html
