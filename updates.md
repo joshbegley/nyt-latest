@@ -1,3 +1,7 @@
+**Gallagher to not face Man City as Atletico move stalls**\
+`Chelsea manager Enzo Maresca has confirmed Conor Gallagher will not play for Chelsea this weekend as they face Manchester City at Stamford Bridge.`\
+https://nytimes.com/athletic/5705117/2024/08/16/conor-gallagher-enzo-maresca-chelsea-transfer/
+
 **Scoop City: Preseason Week 2 watch guide**\
 `What to watch for in Week 2 of the NFL preseason, plus Drake Maye's incompletion`\
 https://nytimes.com/athletic/5705130/2024/08/16/week-2-of-the-nfl-preseason-watch-guide-scoop-city/

@@ -1,3 +1,7 @@
+**Gallagher to not face Man City as Atletico move stalls**\
+`Chelsea manager Enzo Maresca has confirmed Conor Gallagher will not play for Chelsea this weekend as they face Manchester City at Stamford Bridge.`\
+https://nytimes.com/athletic/5705117/2024/08/16/conor-gallagher-enzo-maresca-chelsea-transfer/
+
 **Scoop City: Preseason Week 2 watch guide**\
 `What to watch for in Week 2 of the NFL preseason, plus Drake Maye's incompletion`\
 https://nytimes.com/athletic/5705130/2024/08/16/week-2-of-the-nfl-preseason-watch-guide-scoop-city/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5704750/2024/08/16/fpl-advice-injury-news-ben-dinne
 **Shaqiri rejoins Basel after Chicago Fire exit**\
 `Xherdan Shaqiri has rejoined Basel on a three-year contract following his departure from Chicago Fire.`\
 https://nytimes.com/athletic/5705028/2024/08/16/xherdan-shaqiri-basel-transfer-return/
-
-**A new era, classy Kudus, and what impact will signings have?**\
-`There is excitement (and some fear) about what lies ahead at the start of Julen Lopetegui's tenure — whatever happens, it's won't be dull`\
-https://nytimes.com/athletic/5655936/2024/08/16/west-ham-united-season-preview-kudus/
 
