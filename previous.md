@@ -1,3 +1,11 @@
+**Google Pixel Documents a Fashion House in Its 20th Year**\
+`Fashion designer Phillip Lim and photographer Andy Jackson used Google Pixel 9 Pro and its AI-powered editing features in a portrait session dedicated to the women who inspired Lim’s career.`\
+https://nytimes.com/paidpost/google-pixel/google-pixel-documents-a-fashion-house-in-its-20th-year.html
+
+**Florida Woman Is Convicted of Manslaughter in Fatal Shooting of Black Neighbor**\
+`Susan Lorincz, who is white, shot Ajike Owens last June through the door of her home as the 35-year-old mother of four stood outside. The case prompted national outrage.`\
+https://nytimes.com/2024/08/16/us/susan-lorincz-verdict-manslaughter-guilty.html
+
 **Crystal Palace formally granted council permission to redevelop Selhurst Park**\
 `Croydon Council's announcement comes six-and-a-half years after planning permission was agreed in principle for a new Main Stand`\
 https://nytimes.com/athletic/5700715/2024/08/16/crystal-palace-selhurst-park-redevelopment/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/16/books/review/podcast-liz-moore-interview-god-of-t
 **Trump Says Civilian Award Is ‘Much Better’ Than Medal of Honor**\
 `The former president said Thursday the reason was because those given the nation’s highest military award are “either in very bad shape because they’ve been hit so many times by bullets, or they’re dead.”`\
 https://nytimes.com/2024/08/16/us/politics/trump-civilian-award-military-honor.html
-
-**OpenAI Says It Disrupted an Iranian Misinformation Campaign**\
-`The company said the Iranian effort, which used ChatGPT, did not gain much traction.`\
-https://nytimes.com/2024/08/16/technology/openai-chatgpt-iran-misinformation.html
-
-**7 Hot Tracks From a New Generation of Female Rappers**\
-`Listen to recent songs from Megan Thee Stallion, Ice Spice, Latto and more.`\
-https://nytimes.com/2024/08/16/arts/music/amplifier-newsletter-female-rappers.html
 
