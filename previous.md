@@ -1,40 +1,40 @@
-**Local News Is Dying, but Not in San Francisco**\
-`The city has become a hothouse for experimentation in local news. Could it serve as a model for the rest of the country?`\
-https://nytimes.com/2024/08/16/technology/san-francisco-local-news-resurgence.html
+**Falcons' roster-bubble players to watch in preseason game against Ravens**\
+`NFL teams must trim their rosters to 53 men on Aug. 27. Let's look at seven Falcons who need a good showing in Baltimore on Saturday.`\
+https://nytimes.com/athletic/5703120/2024/08/16/falcons-roster-bubble-players-preseason/
 
-**Notre Dame’s Riley Leonard, the small-town QB with championship ambitions**\
-`The former Duke quarterback has never been farther from home, but its impact remains.`\
-https://nytimes.com/athletic/5703541/2024/08/16/notre-dame-riley-leonard-college-football/
+**Greenberg: Can Caleb Williams be the next Joe Burrow? That's the Chicago hope**\
+`“You grow and you learn as time goes," said Burrow, who believes immediate playing experience is a highly drafted rookie QB's best teacher.`\
+https://nytimes.com/athletic/5704564/2024/08/16/chicago-bears-caleb-williams-joe-burrow/
 
-**2024 Heisman Draft: Our 36-player search for this year's NYC hopefuls**\
-`Who will claim college football's highest individual honor in 2024? We had nine writers make four picks each, snake draft-style.`\
-https://nytimes.com/athletic/5701118/2024/08/16/heisman-trophy-2024-odds-favorites-carson-beck/
+**Ryan Day made the right choice — the obvious choice — naming Will Howard QB1**\
+`Howard threw for 2,643 yards with 24 touchdowns and 10 interceptions at Kansas State in 2023. Now, he's the starter in Columbus.`\
+https://nytimes.com/athletic/5704054/2024/08/16/will-howard-ohio-state-quarterback-ryan-day/
 
-**College football breakout QB watch: Who will shine in new 2024 spotlights?**\
-`From bowl-season standouts to former five-stars to transfer portal finds, our writers run down some possible breakout passers to know.`\
-https://nytimes.com/athletic/5703443/2024/08/16/college-football-breakout-quarterbacks/
+**The Polls Have Shifted Toward Harris. Is It Real, or Something Else?**\
+`A review of the Trump team’s critique of our surveys, and the surprising fact that a lot of people don’t remember how they voted.`\
+https://nytimes.com/2024/08/16/upshot/polls-trump-harris.html
 
-**Hezbollah Weighs Risks of Backlash at Home in War With Israel**\
-`The militant group has vowed to retaliate against Israel for the assassination of a commander. But if that leads to an all-out war, Lebanon may turn against it.`\
-https://nytimes.com/2024/08/16/world/middleeast/hezbollah-weighs-risks-of-backlash-at-home-in-war-with-israel.html
+**U.S. Awards $1.6 Billion to Texas Instruments to Build Semiconductor Plants**\
+`The funding stems from the bipartisan CHIPS Act, which aims to bolster the production of critical semiconductors in the United States.`\
+https://nytimes.com/2024/08/16/us/politics/texas-instruments-semiconductor-grant.html
 
-**Daughter of Thailand’s Ex-Prime Minister to Be Next Leader**\
-`Paetongtarn Shinawatra was chosen by lawmakers on Friday to be the country’s next leader, two days after a court ousted the previous prime minister.`\
-https://nytimes.com/video/world/asia/100000009633491/thailand-prime-minister-paetongtarn-shinawatra.html
+**Can Musk Get Trump Elected? + Steve Ballmer’s Quest for the Facts + This Week in A.I.**\
+`This is totally unprecedented for a tech C.E.O.`\
+https://nytimes.com/2024/08/16/podcasts/hardfork-musk-trump-election.html
 
-**Cease-Fire Talks Enter 2nd Day With Wide Gaps Between Israel and Hamas**\
-`Hamas officials are not participating directly in the talks but have signaled a willingness to consider new proposals from Israel.`\
-https://nytimes.com/live/2024/08/16/world/israel-iran-hamas-gaza-war
+**The New York Times News Quiz, Aug. 16, 2024**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2024/08/16/briefing/news-quiz-ukraine-russia-trump-harris.html
 
-**The talks in Qatar are seen as a chance to reduce the risk of a wider war.**\
-`By James C. McKinley Jr.`\
-https://nytimes.com/live/2024/08/16/world/israel-iran-hamas-gaza-war/the-talks-in-qatar-are-seen-as-a-chance-to-reduce-the-risk-of-a-wider-war
+**6 New Paperbacks to Read This Week**\
+`Recommended reading from the Book Review, including titles by Maya Binyam, John Szwed, Nathan Thrall and more. `\
+https://nytimes.com/interactive/2024/08/16/books/review/new-paperbacks-thrall.html
 
-**Ancient Scribes Got Ergonomic Injuries, Too**\
-`The scriveners of ancient Egypt were more than papyrus pushers, but they suffered many of the same repetitive ailments as desk jockeys today, a new study suggests.`\
-https://nytimes.com/2024/08/16/science/ancient-scribes-ergonomic-injuries.html
+**‘Shoot Me Up With a Big One’: The Pain of Matthew Perry’s Last Days**\
+`Court papers show that Mr. Perry, the “Friends” star who had long struggled with addiction, was increasingly taking ketamine, a powerful anesthetic, in the days before he died.`\
+https://nytimes.com/2024/08/16/arts/television/matthew-perry-death-ketamine.html
 
-**When Breaking the Dress Code Depends on Skin Color, and If You’re Skinny**\
-`A new City Council law seeks to pressure schools to undo bias in enforcing a dress code across the nation’s largest school system.`\
-https://nytimes.com/2024/08/16/nyregion/nyc-public-schools-dress-code.html
+**Biden Will Designate Illinois Race Riot Site as a National Monument**\
+`The 1908 riot started by a white lynch mob in Springfield destroyed a Black neighborhood and led to the creation of the N.A.A.C.P.`\
+https://nytimes.com/2024/08/16/us/politics/biden-springfield-race-riot-monument.html
 
