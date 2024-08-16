@@ -1,3 +1,11 @@
+**The Windup: Top candidates for NL MVP**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5705312/2024/08/16/national-league-mvp-shohei-ohtani-the-windup/
+
+**Chelsea striker Mason Burstow joins Hull City in permanent transfer**\
+`Hull City have completed the signing of Chelsea striker Mason Burstow on a permanent transfer.`\
+https://nytimes.com/athletic/5705296/2024/08/16/mason-burstow-hull-chelsea-transfer/
+
 **The Big Number: 2.9%**\
 `The rate of inflation in July on a yearly basis.`\
 https://nytimes.com/2024/08/16/business/the-big-number-2-9-inflation-july.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5697155/2024/08/16/oilers-offer-sheet-defence-bouch
 **Submit your questions for a Twins mailbag**\
 `As the summer winds down, Aaron Gleeman is opening the mailbag once again. `\
 https://nytimes.com/athletic/5705209/2024/08/16/twins-mailbag-questions/
-
-**Raiders training camp: Maxx Crosby gets into skirmish, Davante Adams misses practice**\
-`Crosby threw several punches at center Will Putnam on Thursday, while it remains unclear whether Adams will suit up against the Cowboys.`\
-https://nytimes.com/athletic/5704652/2024/08/16/raiders-training-camp-maxx-crosby-gets-into-skirmish-davante-adams-misses-practice/
-
-**Trump Names Friends and Major Donors to Oversee Transition Team**\
-`The appointment of Linda McMahon and Howard Lutnick to lead the effort is notable, as neither have been associated with Project 2025, a conservative policy plan seized on by Democrats.`\
-https://nytimes.com/2024/08/16/us/politics/trump-transition-team-2024-mcmahon-lutnick.html
 

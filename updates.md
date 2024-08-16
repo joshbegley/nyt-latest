@@ -1,3 +1,11 @@
+**The Windup: Top candidates for NL MVP**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5705312/2024/08/16/national-league-mvp-shohei-ohtani-the-windup/
+
+**Chelsea striker Mason Burstow joins Hull City in permanent transfer**\
+`Hull City have completed the signing of Chelsea striker Mason Burstow on a permanent transfer.`\
+https://nytimes.com/athletic/5705296/2024/08/16/mason-burstow-hull-chelsea-transfer/
+
 **The Big Number: 2.9%**\
 `The rate of inflation in July on a yearly basis.`\
 https://nytimes.com/2024/08/16/business/the-big-number-2-9-inflation-july.html
