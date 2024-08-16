@@ -1,3 +1,7 @@
+**Lawmakers Choose a Dynasty’s Young Heir to Lead Thailand**\
+`Paetongtarn Shinawatra, a 37-year-old daughter of the political power broker Thaksin Shinawatra, is becoming prime minister at a chaotic time.`\
+https://nytimes.com/2024/08/16/world/asia/paetongtarn-shinawatra-thailand-prime-minister.html
+
 **Typhoon Ampil Lashes Eastern Japan, Forcing Evacuations**\
 `The authorities have warned that the storm, which has already flooded some streets in the Tokyo area, could bring violent winds and cause landslides.`\
 https://nytimes.com/2024/08/16/world/asia/typhoon-ampil-japan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5697776/2024/08/16/nottingham-forest-nuno-transfers
 **The Turf meeting that saved Wrexham - and the fan who helped raise £100,000 in 24 hours**\
 `Wrexham came close to the brink 13 years ago, only to be saved by their fans`\
 https://nytimes.com/athletic/5646878/2024/08/16/wrexham-fans-bond/
-
-**Who is Jorgen Strand Larsen: 'He's from a place where football is a religion'**\
-`Jorgen Strand Larsen's origins according to those who have known him best...`\
-https://nytimes.com/athletic/5672204/2024/08/16/jorgen-strand-larsen-background-wolves/
 

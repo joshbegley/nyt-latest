@@ -1,3 +1,7 @@
+**Lawmakers Choose a Dynasty’s Young Heir to Lead Thailand**\
+`Paetongtarn Shinawatra, a 37-year-old daughter of the political power broker Thaksin Shinawatra, is becoming prime minister at a chaotic time.`\
+https://nytimes.com/2024/08/16/world/asia/paetongtarn-shinawatra-thailand-prime-minister.html
+
 **Typhoon Ampil Lashes Eastern Japan, Forcing Evacuations**\
 `The authorities have warned that the storm, which has already flooded some streets in the Tokyo area, could bring violent winds and cause landslides.`\
 https://nytimes.com/2024/08/16/world/asia/typhoon-ampil-japan.html
