@@ -1,3 +1,19 @@
+**Israeli Settlers Attack a Palestinian Village in the West Bank**\
+`Dozens of Israeli settlers attacked the West Bank village of Jit, killing one person and leaving another one critically injured, according to Palestinian officials.`\
+https://nytimes.com/video/world/middleeast/100000009633638/israeli-settlers-west-bank-attack-.html
+
+**Connor Stalions lands high school coaching job**\
+`Stalions will work as the defensive coordinator at Mumford High School in Detroit this season.`\
+https://nytimes.com/athletic/5705365/2024/08/16/connor-stalions-michigan-coaching-job/
+
+**Live Q&A: Talking baseball with Eno Sarris on Friday 8/16 at 1:00 p.m. ET**\
+`Submit your questions for Eno Sarris' latest live chat about all things baseball. `\
+https://nytimes.com/athletic/5704149/2024/08/16/live-qa-talking-baseball-with-eno-sarris-on-friday-8-16-at-100-p-m-et/
+
+**Iran Expected to Delay Retaliation Over Killing of Hamas Leader, Officials Say**\
+`The delay is meant to allow mediators time to make a high-stakes push for a cease-fire to end the war in Gaza, according to U.S., Iranian and Israeli officials. But they cautioned that the situation remained fluid.`\
+https://nytimes.com/2024/08/16/world/middleeast/iran-israel-hamas-cease-fire.html
+
 **Tehran appears to be allowing mediators time to pursue cease-fire talks, according to multiple officials.**\
 `By Ronen Bergman, Julian E. Barnes, Farnaz Fassihi and Adam Rasgon`\
 https://nytimes.com/2024/08/16/world/middleeast/tehran-appears-to-be-allowing-mediators-time-to-pursue-cease-fire-talks-according-to-multiple-officials.html
