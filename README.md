@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5704780/2024/08/16/bissouma-bentancur-tottenham/
 `It shows how nervous he is about Justice Merchan’s upcoming decision.`\
 https://nytimes.com/2024/08/13/opinion/trumps-laughable-effort-to-avoid-being-sentenced-before-november.html
 
-**Trump Is Said to Pull in Tulsi Gabbard for Debate Prep**\
+**Trump Pulls in Tulsi Gabbard for Debate Prep**\
 `Tulsi Gabbard, the former Democrat who has rebranded herself as a celebrity among Donald J. Trump’s supporters, once eviscerated Kamala Harris on a debate stage.`\
 https://nytimes.com/2024/08/16/us/politics/trump-debate-tulsi-gabbard.html
 
