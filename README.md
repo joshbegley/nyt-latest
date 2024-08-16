@@ -1,3 +1,11 @@
+**Ukraine’s Push Into Russia Met Early Success. Where Does It Go From Here?**\
+`Ukraine’s forces could try advancing farther on Russian soil, or return to the front line, where Moscow is making gains. There are arguments for various options.`\
+https://nytimes.com/2024/08/16/world/europe/ukraine-russia-kursk-incursion.html
+
+**Who Is Paetongtarn Shinawatra, Thailand’s New Prime Minister?**\
+`The political heir to an influential family is now leading Thailand with no governing experience in a tumultuous time.`\
+https://nytimes.com/2024/08/16/world/asia/thailand-prime-minister-paetongtarn-shinawatra.html
+
 **Tottenham to sign Odobert from Burnley**\
 `Tottenham Hotspur have reached an agreement to sign Wilson Odobert from Burnley.`\
 https://nytimes.com/athletic/5704772/2024/08/16/wilson-odobert-tottenham-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5703284/2024/08/16/minnesota-wild-winnipeg-jets-mas
 **Dodgers' Shohei Ohtani remade himself as a base stealer, and now 40-40 is a possibility**\
 `Ohtani is on pace for 49 home runs and 47 stolen bases, prompting Dave Roberts to say: "He’s trying to dominate on every margin." `\
 https://nytimes.com/athletic/5704165/2024/08/16/dodgers-shohei-ohtani-40-40-club/
-
-**How Air-Conditioning Conquered America**\
-`Indoor cooling has transformed American life, reshaping homes, skylines and where people choose to live. As the planet warms, is that sustainable?`\
-https://nytimes.com/2024/08/16/podcasts/the-daily/air-conditioning-climate-warming.html
-
-**The Connections Companion No. 433**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 17, 2024.`\
-https://nytimes.com/2024/08/16/crosswords/connections-companion-433.html
 
