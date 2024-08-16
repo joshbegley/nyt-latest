@@ -1,3 +1,7 @@
+**Lady Gaga and Bruno Mars’s Throwback Duet, and 8 More New Songs**\
+`Hear tracks by the Linda Lindas featuring Weird Al Yankovic, Chlöe and Anderson .Paak, Lou Reed’s early band and others.`\
+https://nytimes.com/2024/08/16/arts/music/playlist-lady-gaga-bruno-mars.html
+
 **Indian Kashmir to Hold Legislative Election for First Time in a Decade**\
 `Some measure of self-governance will be restored in the region, which was stripped of its semiautonomous status by Prime Minister Narendra Modi’s government.`\
 https://nytimes.com/2024/08/16/world/asia/kashmir-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/16/business/media/charlie-moss-dead.html
 **Iran Expected to Delay Retaliation Over Killing of Hamas Leader, Officials Say**\
 `The delay is meant to allow mediators time to make a high-stakes push for a cease-fire to end the war in Gaza, according to U.S., Iranian and Israeli officials. But they cautioned that the situation remained fluid.`\
 https://nytimes.com/2024/08/16/world/middleeast/iran-israel-hamas-cease-fire.html
-
-**Jerry Fuller, Writer of ‘Young Girl’ and Other Hit Songs, Dies at 85**\
-`He located a musical sweet spot between the romantic and the risqué for Ricky Nelson, Johnny Mathis and most famously Gary Puckett and the Union Gap.`\
-https://nytimes.com/2024/08/16/arts/music/jerry-fuller-dead.html
 
