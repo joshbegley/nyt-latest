@@ -1,7 +1,3 @@
-**Florida Woman Is Convicted of Manslaughter in Fatal Shooting of Black Neighbor**\
-`Susan Lorincz, who is white, shot Ajike Owens last June through the door of her home as the 35-year-old mother of four stood outside. The case prompted national outrage.`\
-https://nytimes.com/2024/08/16/us/florida-woman-is-convicted-of-manslaughter-in-fatal-shooting-of-black-neighbor.html
-
 **Crystal Palace formally granted council permission to redevelop Selhurst Park**\
 `Croydon Council's announcement comes six-and-a-half years after planning permission was agreed in principle for a new Main Stand`\
 https://nytimes.com/athletic/5700715/2024/08/16/crystal-palace-selhurst-park-redevelopment/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/08/16/us/politics/trump-civilian-award-military-honor.h
 **OpenAI Says It Disrupted an Iranian Misinformation Campaign**\
 `The company said the Iranian effort, which used ChatGPT, did not gain much traction.`\
 https://nytimes.com/2024/08/16/technology/openai-chatgpt-iran-misinformation.html
+
+**7 Hot Tracks From a New Generation of Female Rappers**\
+`Listen to recent songs from Megan Thee Stallion, Ice Spice, Latto and more.`\
+https://nytimes.com/2024/08/16/arts/music/amplifier-newsletter-female-rappers.html
 
