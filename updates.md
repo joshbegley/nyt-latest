@@ -1,3 +1,11 @@
+**Ipswich complete Szmodics signing from Blackburn**\
+`Ipswich Town have completed the signing of Sammie Szmodics from Blackburn Rovers.`\
+https://nytimes.com/athletic/5704699/2024/08/16/sammie-szmodics-ipswich-transfer/
+
+**The War on Prices Hits the Campaign Trail**\
+`Vice President Kamala Harris is expected to make her pitch on Friday for tackling America’s affordability crunch, but many economists are skeptical.`\
+https://nytimes.com/2024/08/16/business/dealbook/harris-trump-war-on-prices.html
+
 **Chelsea's Moreira joins BlueCo-owned Strasbourg**\
 `Chelsea have confirmed winger Diego Moreira has joined Strasbourg on a permanent deal.`\
 https://nytimes.com/athletic/5704831/2024/08/16/diego-moreira-strasbourg-chelsea-transfer/
