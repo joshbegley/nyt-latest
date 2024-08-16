@@ -1,3 +1,7 @@
+**The U.N. Calls for a Temporary Truce to Fight Polio in Gaza**\
+`Secretary General António Guterres’s public comments came just before Gazan health authorities announced the first case of the disease in the enclave in many years.`\
+https://nytimes.com/2024/08/16/world/middleeast/gaza-polio-crisis.html
+
 **Harris Lays Out Her Economic Vision, Casting Trump’s as Backward-Looking**\
 `In her first major policy speech, the vice president argued that her Republican opponent was too focused on the past, painting herself as someone who would protect the middle class for generations.`\
 https://nytimes.com/2024/08/16/us/politics/kamala-harris-raleigh-nc-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/16/world/europe/mpox-cases-sweden-europe.html
 **Alcaraz smashes racket in Cincinnati Monfils defeat**\
 `Carlos Alcaraz’s US Open preparations took a hit on Friday as he was beaten in the Cincinnati second round by Gael Monfils.`\
 https://nytimes.com/athletic/5705697/2024/08/16/carlos-alcaraz-monfils-cincinatti-racket/
-
-**What It’s Like as a Barista at One of the World’s Busiest Train Stations**\
-`Commuters fuel up daily at the Cafe Grumpy in Grand Central Terminal. Here is the man who keeps the coffee flowing.`\
-https://nytimes.com/2024/08/16/dining/barista-grand-central-terminal-cafe-grumpy.html
 
