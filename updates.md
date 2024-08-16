@@ -1,3 +1,7 @@
+**Trump’s Message: Prices (Plus Gangs, A.I. and ‘Bird Cemeteries’)**\
+`Former President Donald J. Trump was supposed to focus on the price of groceries at an event on Thursday. His attention wandered.`\
+https://nytimes.com/2024/08/16/us/politics/donald-trump-campaign-2024-economy-prices.html
+
 **Lady Gaga and Bruno Mars’s Throwback Duet, and 8 More New Songs**\
 `Hear tracks by the Linda Lindas featuring Weird Al Yankovic, Chlöe and Anderson .Paak, Lou Reed’s early band and others.`\
 https://nytimes.com/2024/08/16/arts/music/playlist-lady-gaga-bruno-mars.html
