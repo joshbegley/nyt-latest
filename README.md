@@ -1,3 +1,7 @@
+**Saving Conservatism From Trumpism**\
+`Responses to a column by David French. Also: The candidates’ foreign experience; a loss of diversity in network news; school libraries; independent voters.`\
+https://nytimes.com/2024/08/16/opinion/conservatism-trump.html
+
 **If the Oilers lose Philip Broberg, it might be time for a change with Evan Bouchard**\
 `Bouchard's 2023-24 season proved that he can thrive away from Edmonton's excellent five-man top unit.`\
 https://nytimes.com/athletic/5697155/2024/08/16/oilers-offer-sheet-defence-bouchard/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5705170/2024/08/16/arsenal-2024-25-season-title-man
 **Gallagher to not face Man City as Atletico move stalls**\
 `Chelsea manager Enzo Maresca has confirmed Conor Gallagher will not play for Chelsea this weekend as they face Manchester City at Stamford Bridge.`\
 https://nytimes.com/athletic/5705117/2024/08/16/conor-gallagher-enzo-maresca-chelsea-transfer/
-
-**Scoop City: Preseason Week 2 watch guide**\
-`What to watch for in Week 2 of the NFL preseason, plus Drake Maye's incompletion`\
-https://nytimes.com/athletic/5705130/2024/08/16/week-2-of-the-nfl-preseason-watch-guide-scoop-city/
 
