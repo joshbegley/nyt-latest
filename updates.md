@@ -1,3 +1,11 @@
+**Indian Kashmir to Hold Legislative Election for First Time in a Decade**\
+`Some measure of self-governance will be restored in the region, which was stripped of its semiautonomous status by Prime Minister Narendra Modi’s government.`\
+https://nytimes.com/2024/08/16/world/asia/kashmir-election.html
+
+**Are Spurs sending the wrong message by banning Bissouma but not Bentancur?**\
+`The club’s moral stance on Bissouma jars when you compare their response to Bentancur’s racist comments towards Son earlier this summer`\
+https://nytimes.com/athletic/5704780/2024/08/16/bissouma-bentancur-tottenham/
+
 **Trump’s Laughable Effort to Avoid Being Sentenced Before November**\
 `It shows how nervous he is about Justice Merchan’s upcoming decision.`\
 https://nytimes.com/2024/08/13/opinion/trumps-laughable-effort-to-avoid-being-sentenced-before-november.html
