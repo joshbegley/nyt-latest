@@ -1,3 +1,23 @@
+**The Best of Late Night This Week**\
+`The hosts returned from a break and had much to discuss, including former President Trump’s obsession with crowd size and Vice President Harris’s surge in the polls. Here’s what they had to say.`\
+https://nytimes.com/interactive/2024/08/16/arts/television/best-of-late-night-trump-musk.html
+
+**Bellingham signs Sunderland contract extension despite Premier League interest**\
+`Jobe Bellingham has signed a contract extension with Sunderland.`\
+https://nytimes.com/athletic/5705340/2024/08/16/jobe-bellingham-signs-new-contract/
+
+**Missouri Woman Charged in Scheme to Sell Graceland**\
+`A woman named Lisa Jeanine Findley was arrested and accused of a brazen effort to foreclose on Elvis Presley’s home in Memphis.`\
+https://nytimes.com/2024/08/16/arts/music/graceland-fraud-charges-arrest.html
+
+**Georgia Election Official Under Pressure in Defamation Case**\
+`The secretary of state, Brad Raffensperger, has spent $500,000 fighting a lawsuit by a wealthy Republican. He says she will only settle it if he endorses a debunked conspiracy theory about the 2020 election.`\
+https://nytimes.com/2024/08/16/us/politics/brad-raffensperger-2020-georgia-election.html
+
+**What Minnesota’s Law on Free Tampons in Public Schools Actually Does**\
+`Conservatives have criticized Gov. Tim Walz over the law, but schools have not taken it as a mandate to put menstrual products into boys’ restrooms.`\
+https://nytimes.com/2024/08/16/us/politics/walz-free-tampons-schools-minnesota.html
+
 **The Windup: Top candidates for NL MVP**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5705312/2024/08/16/national-league-mvp-shohei-ohtani-the-windup/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5703899/2024/08/16/madden-25-nfl-ea-sports-review/
 **He Made a Game About a Joyous Journey. He Also Got a Bit Lost.**\
 `Anthony Tan was 16 when his idea for a video game about a deer caught the industry’s eye. Nine years later, he’s still working on it.`\
 https://nytimes.com/2024/08/16/arts/anthony-tan-way-to-the-woods.html
-
-**Pesto Beans, a Bowl of Summer Tenderness**\
-`This fast, straightforward recipe has all the summery flavors of pine nuts, Parmesan and basil in a bowl of soft, warm, comforting beans.`\
-https://nytimes.com/2024/08/16/dining/pesto-beans-a-bowl-of-summer-tenderness.html
-
-**Five Horror Movies to Stream Now**\
-`This month’s picks feature a zombie romance, a drug trial from hell and deathly prehistoric evil.`\
-https://nytimes.com/2024/08/16/movies/horror-movies-streaming.html
-
-**Saving Conservatism From Trumpism**\
-`Responses to a column by David French. Also: The candidates’ foreign experience; a loss of diversity in network news; school libraries; independent voters.`\
-https://nytimes.com/2024/08/16/opinion/conservatism-trump.html
-
-**If the Oilers lose Philip Broberg, it might be time for a change with Evan Bouchard**\
-`Bouchard's 2023-24 season proved that he can thrive away from Edmonton's excellent five-man top unit.`\
-https://nytimes.com/athletic/5697155/2024/08/16/oilers-offer-sheet-defence-bouchard/
-
-**Submit your questions for a Twins mailbag**\
-`As the summer winds down, Aaron Gleeman is opening the mailbag once again. `\
-https://nytimes.com/athletic/5705209/2024/08/16/twins-mailbag-questions/
 
