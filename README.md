@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/08/16/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Harris to Make Economic Pitch Before Democrats Gather Next Week**\
+`In a visit to North Carolina, the vice president is expected to lay out her economic agenda and focus on lowering the cost of living, without straying from Biden administration policies.`\
+https://nytimes.com/live/2024/08/16/us/harris-trump-election
+
 **Willian confirms Fulham exit after rejecting contract renewal**\
 `Willian has confirmed he will not be signing a new contract with Fulham and has left the club.`\
 https://nytimes.com/athletic/5704942/2024/08/16/willian-leaves-fulham-transfer-news/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5703559/2024/08/16/the-athletics-friday-football-qu
 **Apple Giving Ground on App Store Rules to Appease Regulators**\
 `The company faces pressure from governments around the world and complaints from companies that it is still too restrictive.`\
 https://nytimes.com/2024/08/16/technology/apple-epic-spotify-app-stores.html
-
-**Harris to Lay Out Economic Message Focused on High Cost of Living**\
-`The vice president’s plans represent more of a reboot of President Biden’s economic policies than a radically fresh start.`\
-https://nytimes.com/2024/08/16/us/politics/kamala-harris-economy.html
-
-**Barcelona confirm Thiago exit from Flick's coaching staff**\
-`Thiago Alcantara has left Barcelona&#8217;s coaching staff, less than a month after the club announced his temporary return.`\
-https://nytimes.com/athletic/5704806/2024/08/16/thiago-barcelona-exit-hansi-flick/
 
