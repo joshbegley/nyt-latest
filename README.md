@@ -1,3 +1,11 @@
+**If the Oilers lose Philip Broberg, it might be time for a change with Evan Bouchard**\
+`Bouchard's 2023-24 season proved that he can thrive away from Edmonton's excellent five-man top unit.`\
+https://nytimes.com/athletic/5697155/2024/08/16/oilers-offer-sheet-defence-bouchard/
+
+**Submit your questions for a Twins mailbag**\
+`As the summer winds down, Aaron Gleeman is opening the mailbag once again. `\
+https://nytimes.com/athletic/5705209/2024/08/16/twins-mailbag-questions/
+
 **Raiders training camp: Maxx Crosby gets into skirmish, Davante Adams misses practice**\
 `Crosby threw several punches at center Will Putnam on Thursday, while it remains unclear whether Adams will suit up against the Cowboys.`\
 https://nytimes.com/athletic/5704652/2024/08/16/raiders-training-camp-maxx-crosby-gets-into-skirmish-davante-adams-misses-practice/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5705117/2024/08/16/conor-gallagher-enzo-maresca-che
 **Scoop City: Preseason Week 2 watch guide**\
 `What to watch for in Week 2 of the NFL preseason, plus Drake Maye's incompletion`\
 https://nytimes.com/athletic/5705130/2024/08/16/week-2-of-the-nfl-preseason-watch-guide-scoop-city/
-
-**Romanian gymnast receives bronze medal after Chiles controversy**\
-`Ana Bărbosu received her bronze medal in a ceremony in Romania following a controversial ruling that stripped Jordan Chiles of the medal.`\
-https://nytimes.com/athletic/5705001/2024/08/16/ana-barbosu-bronze-medal-jordan-chiles-olympics/
-
-**Leicester's Daka out for several months after ankle surgery**\
-`Leicester City striker Patson Daka has been ruled out of action for several months after undergoing ankle surgery.`\
-https://nytimes.com/athletic/5705132/2024/08/16/patson-daka-injury-leicester/
 
