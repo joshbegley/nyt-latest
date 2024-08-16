@@ -1,3 +1,11 @@
+**If the Oilers lose Philip Broberg, it might be time for a change with Evan Bouchard**\
+`Bouchard's 2023-24 season proved that he can thrive away from Edmonton's excellent five-man top unit.`\
+https://nytimes.com/athletic/5697155/2024/08/16/oilers-offer-sheet-defence-bouchard/
+
+**Submit your questions for a Twins mailbag**\
+`As the summer winds down, Aaron Gleeman is opening the mailbag once again. `\
+https://nytimes.com/athletic/5705209/2024/08/16/twins-mailbag-questions/
+
 **Raiders training camp: Maxx Crosby gets into skirmish, Davante Adams misses practice**\
 `Crosby threw several punches at center Will Putnam on Thursday, while it remains unclear whether Adams will suit up against the Cowboys.`\
 https://nytimes.com/athletic/5704652/2024/08/16/raiders-training-camp-maxx-crosby-gets-into-skirmish-davante-adams-misses-practice/
