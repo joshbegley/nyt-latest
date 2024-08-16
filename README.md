@@ -1,3 +1,15 @@
+**JD Vance’s Plane Makes Emergency Landing in Milwaukee**\
+`A problem with the door seal on the Boeing 737 forced the chartered plane to return to the airport before continuing to Cincinnati.`\
+https://nytimes.com/2024/08/16/us/politics/jd-vance-plane-emergency-landing.html
+
+**Astros' Alex Bregman has swelling in right elbow, likely won't play this weekend**\
+`Bregman said he slept on his arm awkwardly “a few days ago” and “just kind of played through it.”`\
+https://nytimes.com/athletic/5705757/2024/08/16/astros-alex-bregman-elbow/
+
+**The Briefing: Manchester United 1 Fulham 0 - Zirkzee provides bite, Glazer watches on but where was Sancho?**\
+`The Premier League season began with United leaving it late as their summer signing from Bologna came off the bench to claim victory`\
+https://nytimes.com/athletic/5703086/2024/08/16/manchester-united-zirkzee-fulham-glazer-sancho-briefing/
+
 **The Giants are playing in Oakland for the last time, which is a travesty**\
 `The Giants will play the final two games of the Bay Bridge series in Oakland starting on Saturday.`\
 https://nytimes.com/athletic/5705389/2024/08/16/sf-giants-oakland-final-visit/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/16/dining/barista-grand-central-terminal-cafe-grumpy
 **New Zealand Diplomat Is Victim of Armed Robbery, Paris Authorities Say**\
 `The Paris prosecutor’s office said that the diplomat had been struck in the face with the butt of a pistol. The robbery took place in Paris’s affluent 7th arrondissement.`\
 https://nytimes.com/2024/08/16/world/europe/new-zealand-robbery-paris.html
-
-**From ‘Perfect Candidate’ to Sudden Exit: Inside the Fall of Columbia’s President**\
-`Nemat Shafik was vilified on almost all sides for her handling of the protests over the Israel-Hamas war. When given an offramp, she took it.`\
-https://nytimes.com/2024/08/16/us/columbia-president-nemat-shafik.html
-
-**Liberal group plans radio surge to turn out voters of color**\
-`The American Independent Foundation is looking to spend $15 million on radio ads in an effort to turn out Black and Hispanic voters in key states.`\
-https://nytimes.com/live/2024/08/16/us/harris-trump-election/liberal-group-plans-radio-surge-to-turn-out-voters-of-color
-
-**Google Pixel Documents a Fashion House in Its 20th Year**\
-`Fashion designer Phillip Lim and photographer Andy Jackson used Google Pixel 9 Pro and its AI-powered editing features in a portrait session dedicated to the women who inspired Lim’s career.`\
-https://nytimes.com/paidpost/google-pixel/google-pixel-documents-a-fashion-house-in-its-20th-year.html
 
