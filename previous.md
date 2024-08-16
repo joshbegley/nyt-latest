@@ -1,3 +1,15 @@
+**A new era, classy Kudus, and what impact will signings have?**\
+`There is excitement (and some fear) about what lies ahead at the start of Julen Lopetegui's tenure — whatever happens, it's won't be dull`\
+https://nytimes.com/athletic/5655936/2024/08/16/west-ham-united-season-preview-kudus/
+
+**The Price of Getting Inked**\
+`Whether it’s the expense of getting tattooed or the cost to have one removed, Americans are paying for their ink.`\
+https://nytimes.com/2024/08/16/business/tattoo-cost-economy.html
+
+**Dolphin Attacks Spoil Summer Along a Stretch of Japanese Beaches**\
+`Nearly 50 beachgoers have been attacked in the past three years. Some marine experts suspect it may be the work of a single “lonely” dolphin.`\
+https://nytimes.com/2024/08/16/world/asia/japan-dolphin-attacks.html
+
 **Ipswich complete loan signing of Phillips from Manchester City**\
 `Ipswich Town have completed the signing of midfielder Kalvin Phillips from Manchester City on a season-long loan.`\
 https://nytimes.com/athletic/5703230/2024/08/16/kalvin-phillips-ipswich-loan-manchester-city/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/16/upshot/air-conditioning-climate-change.html
 **The Athletic FC: Man City vs the Premier League; Plus: Is INEOS good for Manchester United**\
 `This season, the 115 charges brought against Manchester City by the Premier League will be furnished with a verdict.`\
 https://nytimes.com/athletic/5704851/2024/08/16/man-city-premier-league-manchester-united/
-
-**Here’s the latest on the presidential race.**\
-`By Simon J. Levien`\
-https://nytimes.com/live/2024/08/16/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Election Live Updates: Harris to Make Economic Pitch Before Democrats Gather Next Week**\
-`In a visit to North Carolina, the vice president is expected to lay out her economic agenda and focus on lowering the cost of living, without straying from Biden administration policies.`\
-https://nytimes.com/live/2024/08/16/us/harris-trump-election
-
-**Willian confirms Fulham exit after rejecting contract renewal**\
-`Willian has confirmed he will not be signing a new contract with Fulham and has left the club.`\
-https://nytimes.com/athletic/5704942/2024/08/16/willian-leaves-fulham-transfer-news/
 
