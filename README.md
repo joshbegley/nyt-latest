@@ -1,3 +1,19 @@
+**As Bird Flu Spreads, Disease Trackers Set Their Sights on Pets**\
+`Like most countries, the U.S. has no comprehensive national system for monitoring disease in companion animals — which leaves pets and people at risk.`\
+https://nytimes.com/2024/08/16/health/pets-disease-surveillance.html
+
+**Southampton sign Archer from Aston Villa**\
+`Southampton have completed the signing of Aston Villa forward Cameron Archer.`\
+https://nytimes.com/athletic/5704807/2024/08/16/cameron-archer-southampton/
+
+**A Memoir Offers an Insider’s Perspective Into the Pentagon’s U.F.O. Hunt**\
+`In “Imminent,” the former intelligence official who ran a once-secret program shares some of what he knows.`\
+https://nytimes.com/2024/08/16/books/booksupdate/imminent-luiz-elizondo.html
+
+**Arsenal team dinner after 2023-24 disappointment has sharpened focus - Arteta**\
+`Mikel Arteta says his Arsenal team were already planning new ways to topple Manchester City just hours after missing out on the Premier League title last season.`\
+https://nytimes.com/athletic/5705170/2024/08/16/arsenal-2024-25-season-title-man-city/
+
 **Gallagher to not face Man City as Atletico move stalls**\
 `Chelsea manager Enzo Maresca has confirmed Conor Gallagher will not play for Chelsea this weekend as they face Manchester City at Stamford Bridge.`\
 https://nytimes.com/athletic/5705117/2024/08/16/conor-gallagher-enzo-maresca-chelsea-transfer/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5702336/2024/08/16/kalvin-phillips-to-ipswich-the-a
 **Chargers camp: Justin Herbert out of walking boot; Easton Stick faces big opportunity**\
 `The second preseason game Saturday will be a big moment for Stick. It's time to prove to the new regime that he can back up Herbert.`\
 https://nytimes.com/athletic/5704663/2024/08/16/chargers-training-camp-justin-herbert-easton-stick/
-
-**What I’m Reading: Why Democracy Erodes From the Top**\
-`Three book recommendations from sunny London.`\
-https://nytimes.com/2024/08/16/world/europe/what-im-reading-why-democracy-erodes-from-the-top.html
-
-**Newcastle make Guehi bid worth up to £65m**\
-`Newcastle United have submitted a fourth bid for Crystal Palace defender Marc Guehi.`\
-https://nytimes.com/athletic/5696132/2024/08/16/marc-guehi-transfer-newcastle/
-
-**FPL GW1 live Q&A: Advice and injury news from Ben Dinnery**\
-`Ben Dinnery, from Premier Injuries, answers your questions on Gameweek 1`\
-https://nytimes.com/athletic/5704750/2024/08/16/fpl-advice-injury-news-ben-dinnery/
-
-**Shaqiri rejoins Basel after Chicago Fire exit**\
-`Xherdan Shaqiri has rejoined Basel on a three-year contract following his departure from Chicago Fire.`\
-https://nytimes.com/athletic/5705028/2024/08/16/xherdan-shaqiri-basel-transfer-return/
 
