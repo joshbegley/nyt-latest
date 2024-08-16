@@ -1,3 +1,7 @@
+**Trump’s Message: Prices (Plus Gangs, A.I. and ‘Bird Cemeteries’)**\
+`Former President Donald J. Trump was supposed to focus on the price of groceries at an event on Thursday. His attention wandered.`\
+https://nytimes.com/2024/08/16/us/politics/donald-trump-campaign-2024-economy-prices.html
+
 **Lady Gaga and Bruno Mars’s Throwback Duet, and 8 More New Songs**\
 `Hear tracks by the Linda Lindas featuring Weird Al Yankovic, Chlöe and Anderson .Paak, Lou Reed’s early band and others.`\
 https://nytimes.com/2024/08/16/arts/music/playlist-lady-gaga-bruno-mars.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5704149/2024/08/16/live-qa-talking-baseball-with-en
 **Charlie Moss, Whose Ads Spread Love for New York, Dies at 85**\
 `As a pioneer of Madison Avenue’s creative revolution, he collaborated on campaigns for Alka-Seltzer and other products. But his tourism pitches were a game changer.`\
 https://nytimes.com/2024/08/16/business/media/charlie-moss-dead.html
-
-**Iran Expected to Delay Retaliation Over Killing of Hamas Leader, Officials Say**\
-`The delay is meant to allow mediators time to make a high-stakes push for a cease-fire to end the war in Gaza, according to U.S., Iranian and Israeli officials. But they cautioned that the situation remained fluid.`\
-https://nytimes.com/2024/08/16/world/middleeast/iran-israel-hamas-cease-fire.html
 
