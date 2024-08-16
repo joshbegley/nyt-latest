@@ -1,3 +1,7 @@
+**Is becoming USMNT head coach the right move for Mauricio Pochettino?**\
+`Football is about timing, and that might be the best explanation for Pochettino taking the U.S. men's national team job`\
+https://nytimes.com/athletic/5703310/2024/08/16/mauricio-pochettino-usmnt/
+
 **Manchester City, the Premier League and the season everything might change**\
 `Manchester City are aiming for a fifth straight title, but that is set against the backdrop of a legal battle with the Premier League`\
 https://nytimes.com/athletic/5701869/2024/08/16/manchester-city-premier-league-charges-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5700813/2024/08/16/fantasy-baseball-waiver-wire-gra
 **The most important question in fantasy football: 'Is your league Flex9 or Flex10?'**\
 `Forget half PPR vs. PPR, the most important consideration for fantasy football, says Michael Salfino, is whether you play Flex9 or Flex10.`\
 https://nytimes.com/athletic/5704071/2024/08/16/fantasy-football-strategy-flex9-flex10/
-
-**The Premier League Bad Predictions Amnesty, 2024-25 edition**\
-`Chelsea to have multiple managers? Joe Gomez to score four to five goals? Southgate to Man United? Your new-season predictions are here...`\
-https://nytimes.com/athletic/5700299/2024/08/16/premier-league-season-predictions-amnesty-2024-25/
 
