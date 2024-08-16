@@ -1,3 +1,7 @@
+**Crystal Palace formally granted council permission to redevelop Selhurst Park**\
+`Croydon Council's announcement comes six-and-a-half years after planning permission was agreed in principle for a new Main Stand`\
+https://nytimes.com/athletic/5700715/2024/08/16/crystal-palace-selhurst-park-redevelopment/
+
 **Bournemouth sign striker Evanilson from Porto in €47m deal**\
 `Bournemouth have completed the signing of striker Evanilson from Porto in a deal worth €47million (£40.`\
 https://nytimes.com/athletic/5703262/2024/08/16/bournemouth-sign-evanilson-transfer-complete/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/16/technology/openai-chatgpt-iran-misinformation.htm
 **7 Hot Tracks From a New Generation of Female Rappers**\
 `Listen to recent songs from Megan Thee Stallion, Ice Spice, Latto and more.`\
 https://nytimes.com/2024/08/16/arts/music/amplifier-newsletter-female-rappers.html
-
-**Sancho left out of Man United squad for Premier League opener against Fulham**\
-`Jadon Sancho has been left out of Manchester United&#8217;s squad to face Fulham in their Premier League opener.`\
-https://nytimes.com/athletic/5705500/2024/08/16/man-united-sancho-fulham-squad/
 

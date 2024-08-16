@@ -1,3 +1,7 @@
+**Crystal Palace formally granted council permission to redevelop Selhurst Park**\
+`Croydon Council's announcement comes six-and-a-half years after planning permission was agreed in principle for a new Main Stand`\
+https://nytimes.com/athletic/5700715/2024/08/16/crystal-palace-selhurst-park-redevelopment/
+
 **Bournemouth sign striker Evanilson from Porto in €47m deal**\
 `Bournemouth have completed the signing of striker Evanilson from Porto in a deal worth €47million (£40.`\
 https://nytimes.com/athletic/5703262/2024/08/16/bournemouth-sign-evanilson-transfer-complete/
