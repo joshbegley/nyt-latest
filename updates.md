@@ -1,3 +1,7 @@
+**Rather than play short-handed, Twins place Buxton on IL**\
+`Buxton is not expected to exceed the minimum stay on the injured list.`\
+https://nytimes.com/athletic/5704382/2024/08/15/twins-byron-buxton-hip-inflammation-update/
+
 **Four Arrested in Killing Of ‘General Hospital’ Actor**\
 `The police said they arrested three men on murder charges in the fatal May 25 shooting of Johnny Wactor, 37, in Los Angeles. A fourth person was also charged.`\
 https://nytimes.com/2024/08/15/arts/television/johnny-wactor-murder-arrests.html

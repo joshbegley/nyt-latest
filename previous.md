@@ -6,7 +6,7 @@ https://nytimes.com/2024/08/15/arts/television/johnny-wactor-murder-arrests.html
 `Brian Snitker said of Fried: “He’s still fighting like heck to find himself and get in a rhythm."`\
 https://nytimes.com/athletic/5704370/2024/08/15/braves-mlb-max-fried-ron-washington/
 
-**Rather than play short-handed, Twins place Byron Buxton on injured list with hip inflammation**\
+**Rather than play short-handed, Twins place Buxton on IL**\
 `Buxton is not expected to exceed the minimum stay on the injured list.`\
 https://nytimes.com/athletic/5704382/2024/08/15/twins-byron-buxton-hip-inflammation-update/
 
