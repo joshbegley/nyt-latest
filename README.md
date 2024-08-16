@@ -1,3 +1,7 @@
+**The Premier League Bad Predictions Amnesty, 2024-25 edition**\
+`Chelsea to have multiple managers? Joe Gomez to score four to five goals? Southgate to Man United? Your new-season predictions are here...`\
+https://nytimes.com/athletic/5700299/2024/08/16/premier-league-season-predictions-amnesty-2024-25/
+
 **Friday Briefing**\
 `Ukraine claimed to have captured a Russian town.`\
 https://nytimes.com/2024/08/16/briefing/ukraine-mpox-sweden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/16/pageoneplus/editors-note-aug-16-2024.html
 **The Six ‘Commitments’ That Strengthened Their Connection**\
 `Emily Swarts and Tyler Swiggett met online in New York. But she moved to Hawaii before responding to his message. Despite the distance, voice messages and handwritten letters deepened their bond.`\
 https://nytimes.com/2024/08/16/style/emily-swarts-tyler-swiggett-wedding.html
-
-**A Childhood Crush Becomes Something More in Adulthood**\
-`“We didn’t really intend to start dating,” Isabelle Davis said of her relationship with Alicia Maule. “We just never stopped talking.”`\
-https://nytimes.com/2024/08/16/style/isabelle-davis-alicia-maule-wedding.html
 
