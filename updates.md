@@ -1,3 +1,11 @@
+**What’s Stopping a Deal in Gaza?**\
+`Washington now sees Benjamin Netanyahu as the chief obstacle.`\
+https://nytimes.com/2024/08/16/briefing/gaza-cease-fire-negotiations.html
+
+**Neville joins NBC Sports as Premier League contributor for 2024-25 season**\
+`Gary Neville has joined NBC Sports as a special contributor for the network&#8217;s Premier League coverage for the 2024-25 season.`\
+https://nytimes.com/athletic/5704768/2024/08/16/gary-neville-nbc-sports-premier-league/
+
 **Ukraine’s Push Into Russia Met Early Success. Where Does It Go From Here?**\
 `Ukraine’s forces could try advancing farther on Russian soil, or return to the front line, where Moscow is making gains. There are arguments for various options.`\
 https://nytimes.com/2024/08/16/world/europe/ukraine-russia-kursk-incursion.html
