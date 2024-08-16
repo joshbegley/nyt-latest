@@ -1,3 +1,7 @@
+**This Georgia Republican Defied Trump. Now He’s Fighting a Lawsuit.**\
+`The secretary of state, Brad Raffensperger, has spent $500,000 defending himself in court. He says the plaintiff will only settle if he endorses a debunked conspiracy theory about the 2020 election.`\
+https://nytimes.com/2024/08/16/us/politics/brad-raffensperger-2020-georgia-election.html
+
 **Tehran appears to be allowing mediators time to pursue cease-fire talks, according to multiple officials.**\
 `By Ronen Bergman, Julian E. Barnes, Farnaz Fassihi and Adam Rasgon`\
 https://nytimes.com/live/2024/08/16/world/israel-iran-hamas-gaza-war/tehran-appears-to-be-allowing-mediators-time-to-pursue-cease-fire-talks-according-to-multiple-officials
