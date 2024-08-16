@@ -1,3 +1,19 @@
+**Ancient Scribes Got Ergonomic Injuries, Too**\
+`The scriveners of ancient Egypt were more than papyrus pushers, but they suffered many of the same repetitive ailments as desk jockeys today, a new study suggests.`\
+https://nytimes.com/2024/08/16/science/ancient-scribes-ergonomic-injuries.html
+
+**When Breaking the Dress Code Depends on Skin Color, and If You’re Skinny**\
+`A new City Council law seeks to pressure schools to undo bias in enforcing a dress code across the nation’s largest school system.`\
+https://nytimes.com/2024/08/16/nyregion/nyc-public-schools-dress-code.html
+
+**Myths, Plagues and Battles, on the 12th Floor of The Times**\
+`A group of Times employees are reading their way through Emily Wilson’s translation of the “Iliad,” the epic poem attributed to Homer.`\
+https://nytimes.com/2024/08/16/insider/myths-plagues-and-battles-on-the-12th-floor-of-the-times.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/16/crosswords/spelling-bee-forum.html
+
 **Late Night Tackles Trump’s Tic Tac Show and Tell**\
 `“That is not an example of inflation; it’s just two different sizes of breath mints,” Desi Lydic said on Thursday’s “The Daily Show.”`\
 https://nytimes.com/2024/08/16/arts/television/late-night-trump-tic-tac.html
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2024/08/16/opinion/harris-trump-electoral-colleg
 **At 19, a Hong Kong Panda Is Finally a Mother**\
 `Ying Ying is the oldest panda on record to give birth for the first time. Also unusual: her cubs were naturally conceived, a rarity for the vulnerable species.`\
 https://nytimes.com/2024/08/16/world/asia/panda-twins-hong-kong.html
-
-**How Liverpool managers start their reigns - and what it could mean for Slot**\
-`How important is a Liverpool manager's start? We analyse Slot's predecessors in style, spending and success over their first 10 games`\
-https://nytimes.com/athletic/5703135/2024/08/16/liverpool-manager-arne-slot-start-reign/
-
-**Jack Russell, Great White Singer and Survivor of Nightclub Fire, Dies at 63**\
-`At a show in 2003 with his “Jack Russell’s Great White,” a pyrotechnics display ignited a fire that killed 100 people, including the band’s guitarist.`\
-https://nytimes.com/2024/08/16/arts/music/jack-russell-dead.html
-
-**How and why Leicester City have been frustrated in the transfer market so far**\
-`The financial impact of last year's unexpected relegation is still being felt this summer, even after Leicester's Premier League return`\
-https://nytimes.com/athletic/5702809/2024/08/16/leicester-city-transfer-window-psr/
-
-**Nuno presides over unusually settled camp as Forest swap chaos for calm**\
-`Forest’s manager is notorious for giving little away, but his body language spoke volumes: smiling, upbeat, eager to get going`\
-https://nytimes.com/athletic/5697776/2024/08/16/nottingham-forest-nuno-transfers-new-season/
 

@@ -1,3 +1,19 @@
+**Ancient Scribes Got Ergonomic Injuries, Too**\
+`The scriveners of ancient Egypt were more than papyrus pushers, but they suffered many of the same repetitive ailments as desk jockeys today, a new study suggests.`\
+https://nytimes.com/2024/08/16/science/ancient-scribes-ergonomic-injuries.html
+
+**When Breaking the Dress Code Depends on Skin Color, and If You’re Skinny**\
+`A new City Council law seeks to pressure schools to undo bias in enforcing a dress code across the nation’s largest school system.`\
+https://nytimes.com/2024/08/16/nyregion/nyc-public-schools-dress-code.html
+
+**Myths, Plagues and Battles, on the 12th Floor of The Times**\
+`A group of Times employees are reading their way through Emily Wilson’s translation of the “Iliad,” the epic poem attributed to Homer.`\
+https://nytimes.com/2024/08/16/insider/myths-plagues-and-battles-on-the-12th-floor-of-the-times.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/16/crosswords/spelling-bee-forum.html
+
 **At 19, a Hong Kong Panda Is Finally a Mother**\
 `Ying Ying is the oldest panda on record to give birth for the first time. Also unusual: her cubs were naturally conceived, a rarity for the vulnerable species.`\
 https://nytimes.com/2024/08/16/world/asia/panda-twins-hong-kong.html
