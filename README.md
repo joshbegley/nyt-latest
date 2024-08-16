@@ -1,11 +1,3 @@
-**Connor Stalions lands high school coaching job**\
-`Stalions will work as the defensive coordinator at Mumford High School in Detroit this season.`\
-https://nytimes.com/athletic/5705365/2024/08/16/connor-stalions-michigan-coaching-job/
-
-**Live Q&A: Talking baseball with Eno Sarris on Friday 8/16 at 1:00 p.m. ET**\
-`Submit your questions for Eno Sarris' latest live chat about all things baseball. `\
-https://nytimes.com/athletic/5704149/2024/08/16/live-qa-talking-baseball-with-eno-sarris-on-friday-8-16-at-100-p-m-et/
-
 **Charlie Moss, Whose Ads Spread Love for New York, Dies at 85**\
 `As a pioneer of Madison Avenue’s creative revolution, he collaborated on campaigns for Alka-Seltzer and other products. But his tourism pitches were a game changer.`\
 https://nytimes.com/2024/08/16/business/media/charlie-moss-dead.html
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/5705340/2024/08/16/jobe-bellingham-signs-new-contra
 **Missouri Woman Charged in Scheme to Sell Graceland**\
 `A woman named Lisa Jeanine Findley was arrested and accused of a brazen effort to foreclose on Elvis Presley’s home in Memphis.`\
 https://nytimes.com/2024/08/16/arts/music/graceland-fraud-charges-arrest.html
+
+**This Georgia Republican Defied Trump. Now He’s Fighting a Defamation Suit.**\
+`The secretary of state, Brad Raffensperger, has spent $500,000 defending himself in court. He says the plaintiff will only settle if he endorses a debunked conspiracy theory about the 2020 election.`\
+https://nytimes.com/2024/08/16/us/politics/brad-raffensperger-2020-georgia-election.html
+
+**What Minnesota’s Law on Free Tampons in Public Schools Actually Does**\
+`Conservatives have criticized Gov. Tim Walz over the law, but schools have not taken it as a mandate to put menstrual products into boys’ restrooms.`\
+https://nytimes.com/2024/08/16/us/politics/walz-free-tampons-schools-minnesota.html
 
