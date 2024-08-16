@@ -1,3 +1,7 @@
+**Mpox Case in Sweden Sets Off Concerns of Wider Spread in Europe**\
+`Experts expect more cases to surface in European countries because of frequent travel to and from Africa, with the threat of contracting the disease raised from “very low” to “low.”`\
+https://nytimes.com/2024/08/16/world/europe/mpox-cases-sweden-europe.html
+
 **Alcaraz smashes racket in Cincinnati Monfils defeat**\
 `Carlos Alcaraz’s US Open preparations took a hit on Friday as he was beaten in the Cincinnati second round by Gael Monfils.`\
 https://nytimes.com/athletic/5705697/2024/08/16/carlos-alcaraz-monfils-cincinatti-racket/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5700715/2024/08/16/crystal-palace-selhurst-park-red
 **Bournemouth sign striker Evanilson from Porto in €47m deal**\
 `Bournemouth have completed the signing of striker Evanilson from Porto in a deal worth €47million (£40.`\
 https://nytimes.com/athletic/5703262/2024/08/16/bournemouth-sign-evanilson-transfer-complete/
-
-**When Does a Recession Become Official?**\
-`Just look at these six indicators.`\
-https://nytimes.com/2024/08/16/opinion/recession-official-indicators-economy.html
 
