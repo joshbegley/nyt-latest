@@ -28,7 +28,7 @@ https://nytimes.com/2024/08/16/world/asia/typhoon-ampil-japan.html
 
 **Ski Passes and Weber Grills? Obscure Perks of a U.S. Alliance**\
 `The military alliance between Australia and the United States is growing ever closer. But how does the superpower value its smaller ally? Here are some clues.`\
-https://nytimes.com/2024/08/16/world/australia/ski-passes-and-weber-grills-obscure-perks-of-a-us-alliance.html
+https://nytimes.com/2024/08/16/world/australia/newsletter-us-alliance-perks.html
 
 **How Harris Has Completely Upended the Presidential Race, in 14 Maps**\
 `A Democratic strategist explains how the Electoral College math has changed since Kamala Harris entered the race.`\
