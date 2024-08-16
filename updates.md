@@ -1,3 +1,7 @@
+**Trump Names Friends and Major Donors to Oversee Transition Team**\
+`The appointment of Linda McMahon and Howard Lutnick to lead the effort is notable, as neither have been associated with Project 2025, a conservative policy plan seized on by Democrats.`\
+https://nytimes.com/2024/08/16/us/politics/trump-transition-team-2024-mcmahon-lutnick.html
+
 **As Bird Flu Spreads, Disease Trackers Set Their Sights on Pets**\
 `Like most countries, the U.S. has no comprehensive national system for monitoring disease in companion animals — which leaves pets and people at risk.`\
 https://nytimes.com/2024/08/16/health/pets-disease-surveillance.html
