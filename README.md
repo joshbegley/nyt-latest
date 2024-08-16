@@ -2,7 +2,7 @@
 `How important is a Liverpool manager's start? We analyse Slot's predecessors in style, spending and success over their first 10 games`\
 https://nytimes.com/athletic/5703135/2024/08/16/liverpool-manager-arne-slot-start-reign/
 
-**Jack Russell, ‘Great White’ Singer and Survivor of Nightclub Fire, Has Died**\
+**Jack Russell, Great White Singer and Survivor of Nightclub Fire, Has Died**\
 `At a show in 2003 with his “Jack Russell’s Great White,” a pyrotechnics display ignited a fire that killed 100 people, including the band’s guitarist.`\
 https://nytimes.com/2024/08/16/arts/music/jack-russell-dead.html
 
