@@ -1,3 +1,7 @@
+**Free Vasectomies and an Inflatable IUD: Abortion Rights Advocates Hit the D.N.C.**\
+`This convention is likely to be a head-on display of a new, unbridled abortion politics.`\
+https://nytimes.com/2024/08/16/us/politics/dnc-abortion-rights.html
+
 **Rutgers AD Pat Hobbs resigns after 9-year tenure**\
 `The 64-year-old Hobbs cited health-related concerns for his sudden departure from the job.`\
 https://nytimes.com/athletic/5705896/2024/08/16/rutgers-pat-hobbs-resigns/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/16/style/wedding-guest-charge.html
 **Packers-Broncos joint practice: Denver defense stifles Green Bay offense and more observations**\
 `Veteran running back Josh Jacobs said this was the first joint practice he's participated in that didn't involve a fight.`\
 https://nytimes.com/athletic/5705758/2024/08/16/packers-broncos-joint-practice-observations/
-
-**Supreme Court, for Now, Blocks Expanded Protections for Transgender Students in Some States**\
-`The order came in response to a Biden administration challenge to Republican-led efforts to block federal rules prohibiting discrimination against transgender people in schools.`\
-https://nytimes.com/2024/08/16/us/politics/supreme-court-transgender-discrimination-schools.html
 
