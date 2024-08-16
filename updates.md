@@ -1,3 +1,7 @@
+**Harris Lays Out Her Economic Vision, Casting Trump’s as Backward-Looking**\
+`In her first major policy speech, the vice president argued that her Republican opponent was too focused on the past, painting herself as someone who would protect the middle class for generations.`\
+https://nytimes.com/2024/08/16/us/politics/kamala-harris-raleigh-nc-economy.html
+
 **JD Vance’s Plane Makes Emergency Landing in Milwaukee**\
 `A problem with the door seal on the Boeing 737 forced the chartered plane to return to the airport before continuing to Cincinnati.`\
 https://nytimes.com/2024/08/16/us/politics/jd-vance-plane-emergency-landing.html
