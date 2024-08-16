@@ -1,3 +1,7 @@
+**Tell us: Have you been forgoing Covid tests?**\
+`It’s the fifth summer of Covid, and most people seem eager to move on. We want to understand the pervasiveness of the ignorance-is-bliss attitude.`\
+https://nytimes.com/2024/08/16/health/covid-habits-testing.html
+
 **Landon Donovan named San Diego Wave interim coach**\
 `Donovan is one of the most decorated U.S. men’s soccer players in program history with 57 goals in 157 international caps.`\
 https://nytimes.com/athletic/5705849/2024/08/16/landon-donovan-san-diego-wave-coach-nwsl/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/elections/100000009634517/harris-opportunity-econom
 **Ugochukwu completes Southampton loan**\
 `Southampton have completed the signing of midfielder Lesley Ugochukwu from Chelsea on a season-long loan.`\
 https://nytimes.com/athletic/5703921/2024/08/16/lesley-ugochukwu-southampton-chelsea-loan/
-
-**Palace's Guehi has not asked for Newcastle transfer - Glasner**\
-`Crystal Palace manager Oliver Glasner says Marc Guehi has not asked to join Newcastle United and that the final decision is up to the defender.`\
-https://nytimes.com/athletic/5705247/2024/08/16/marc-guehi-newcaste-transfer-latest/
 
