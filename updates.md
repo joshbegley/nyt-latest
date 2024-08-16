@@ -1,3 +1,7 @@
+**Sancho left out of Man United squad for Premier League opener against Fulham**\
+`Jadon Sancho has been left out of Manchester United&#8217;s squad to face Fulham in their Premier League opener.`\
+https://nytimes.com/athletic/5705500/2024/08/16/man-united-sancho-fulham-squad/
+
 **Trump’s Message: Prices (Plus Gangs, A.I. and ‘Bird Cemeteries’)**\
 `Former President Donald J. Trump was supposed to focus on the price of groceries at an event on Thursday. His attention wandered.`\
 https://nytimes.com/2024/08/16/us/politics/donald-trump-campaign-2024-economy-prices.html
