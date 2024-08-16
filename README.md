@@ -1,3 +1,15 @@
+**Bournemouth sign striker Evanilson from Porto in €47m deal**\
+`Bournemouth have completed the signing of striker Evanilson from Porto in a deal worth €47million (£40.`\
+https://nytimes.com/athletic/5703262/2024/08/16/bournemouth-sign-evanilson-transfer-complete/
+
+**When Does a Recession Become Official?**\
+`Just look at these six indicators.`\
+https://nytimes.com/2024/08/16/opinion/recession-official-indicators-economy.html
+
+**I’m Choosing Which Interns Will Get Job Offers. Do I Take Privilege Into Account?**\
+`The magazine’s Ethicist columnist on how to fairly evaluate candidates in a workplace.`\
+https://nytimes.com/2024/08/16/magazine/interns-fairness-privilege-ethics.html
+
 **Menendez, Convicted of Taking Bribes, Ends Race for Re-election**\
 `Senator Robert Menendez of New Jersey instructed state officials on Friday to remove his name from the Nov. 5 ballot.`\
 https://nytimes.com/2024/08/16/nyregion/nj-menendez-suspends-senate-race.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/16/arts/music/amplifier-newsletter-female-rappers.ht
 **Sancho left out of Man United squad for Premier League opener against Fulham**\
 `Jadon Sancho has been left out of Manchester United&#8217;s squad to face Fulham in their Premier League opener.`\
 https://nytimes.com/athletic/5705500/2024/08/16/man-united-sancho-fulham-squad/
-
-**Trump’s Message: Prices (Plus Gangs, A.I. and ‘Bird Cemeteries’)**\
-`Former President Donald J. Trump was supposed to focus on the price of groceries at an event on Thursday. His attention wandered.`\
-https://nytimes.com/2024/08/16/us/politics/donald-trump-campaign-2024-economy-prices.html
-
-**Lady Gaga and Bruno Mars’s Throwback Duet, and 8 More New Songs**\
-`Hear tracks by the Linda Lindas featuring Weird Al Yankovic, Chlöe and Anderson .Paak, Lou Reed’s early band and others.`\
-https://nytimes.com/2024/08/16/arts/music/playlist-lady-gaga-bruno-mars.html
-
-**Indian Kashmir to Hold Legislative Election for First Time in a Decade**\
-`Some measure of self-governance will be restored in the region, which was stripped of its semiautonomous status by Prime Minister Narendra Modi’s government.`\
-https://nytimes.com/2024/08/16/world/asia/kashmir-election.html
 
