@@ -1,3 +1,23 @@
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/08/16/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Harris to Make Economic Pitch Before Democrats Gather Next Week**\
+`In a visit to North Carolina, the vice president is expected to lay out her economic agenda and focus on lowering the cost of living, without straying from Biden administration policies.`\
+https://nytimes.com/live/2024/08/16/us/harris-trump-election
+
+**Willian confirms Fulham exit after rejecting contract renewal**\
+`Willian has confirmed he will not be signing a new contract with Fulham and has left the club.`\
+https://nytimes.com/athletic/5704942/2024/08/16/willian-leaves-fulham-transfer-news/
+
+**Barcelona mailbag: Your questions answered before new La Liga season**\
+`Our Barcelona correspondent Laia Cervello Herrero replies to a selection of (mostly quite complex) queries about the club`\
+https://nytimes.com/athletic/5704762/2024/08/16/barcelona-olmo-flick-yamal-laporta-la-liga/
+
+**Inmate Captured in North Carolina After Escape**\
+`Law enforcement officers captured Ramone Alston, who had been serving a life sentence for murder, at a hotel. He was moved to a high-security prison unit and will face new charges.`\
+https://nytimes.com/2024/08/16/us/north-carolina-manhunt-ramone-alston-captured.html
+
 **Ipswich complete Szmodics signing from Blackburn**\
 `Ipswich Town have completed the signing of Sammie Szmodics from Blackburn Rovers.`\
 https://nytimes.com/athletic/5704699/2024/08/16/sammie-szmodics-ipswich-transfer/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5703559/2024/08/16/the-athletics-friday-football-qu
 **Apple Giving Ground on App Store Rules to Appease Regulators**\
 `The company faces pressure from governments around the world and complaints from companies that it is still too restrictive.`\
 https://nytimes.com/2024/08/16/technology/apple-epic-spotify-app-stores.html
-
-**Harris to Lay Out Economic Message Focused on High Cost of Living**\
-`The vice president’s plans represent more of a reboot of President Biden’s economic policies than a radically fresh start.`\
-https://nytimes.com/2024/08/16/us/politics/kamala-harris-economy.html
-
-**Barcelona confirm Thiago exit from Flick's coaching staff**\
-`Thiago Alcantara has left Barcelona&#8217;s coaching staff, less than a month after the club announced his temporary return.`\
-https://nytimes.com/athletic/5704806/2024/08/16/thiago-barcelona-exit-hansi-flick/
-
-**To become more than a 30-win team, the Bulls will need a few breakout players**\
-`A revamped young squad mixed with veteran anchors isn’t expected to be in the playoff hunt. But can the Bulls make the Play-In Tournament?`\
-https://nytimes.com/athletic/5704607/2024/08/16/the-bulls-will-need-a-few-breakout-players-to-become-more-than-a-30-win-team/
-
-**The Pulse: EPL is back. Who can beat Man City?**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5704449/2024/08/16/man-city-arsenal-epl-the-pulse/
-
-**What’s Stopping a Deal in Gaza?**\
-`Washington now sees Benjamin Netanyahu as the chief obstacle.`\
-https://nytimes.com/2024/08/16/briefing/gaza-cease-fire-negotiations.html
 
