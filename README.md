@@ -1,3 +1,11 @@
+**Indian Kashmir to Hold Legislative Election for First Time in a Decade**\
+`Some measure of self-governance will be restored in the region, which was stripped of its semiautonomous status by Prime Minister Narendra Modi’s government.`\
+https://nytimes.com/2024/08/16/world/asia/kashmir-election.html
+
+**Are Spurs sending the wrong message by banning Bissouma but not Bentancur?**\
+`The club’s moral stance on Bissouma jars when you compare their response to Bentancur’s racist comments towards Son earlier this summer`\
+https://nytimes.com/athletic/5704780/2024/08/16/bissouma-bentancur-tottenham/
+
 **Trump’s Laughable Effort to Avoid Being Sentenced Before November**\
 `It shows how nervous he is about Justice Merchan’s upcoming decision.`\
 https://nytimes.com/2024/08/13/opinion/trumps-laughable-effort-to-avoid-being-sentenced-before-november.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/16/world/middleeast/iran-israel-hamas-cease-fire.htm
 **Jerry Fuller, Writer of ‘Young Girl’ and Other Hit Songs, Dies at 85**\
 `He located a musical sweet spot between the romantic and the risqué for Ricky Nelson, Johnny Mathis and most famously Gary Puckett and the Union Gap.`\
 https://nytimes.com/2024/08/16/arts/music/jerry-fuller-dead.html
-
-**‘It Ends With Us’: The Press Tour Drama, Explained**\
-`What’s happening onscreen has become secondary to the conversation about differences between Blake Lively and Justin Baldoni, her co-star and director.`\
-https://nytimes.com/2024/08/16/movies/it-ends-with-us-controversy-blake-lively-justin-baldoni.html
-
-**Comedic misses, brilliant 'keeping and 24 minutes of pure drama - the 34-kick penalty shootout**\
-`Analysing the (almost) never-ending Europa League penalty shootout between Ajax and Panathinaikos`\
-https://nytimes.com/athletic/5705133/2024/08/16/ajax-panathinaikos-penalty-shootout-analysed/
 
