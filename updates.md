@@ -1,3 +1,7 @@
+**Ipswich complete loan signing of Phillips from Manchester City**\
+`Ipswich Town have completed the signing of midfielder Kalvin Phillips from Manchester City on a season-long loan.`\
+https://nytimes.com/athletic/5703230/2024/08/16/kalvin-phillips-ipswich-loan-manchester-city/
+
 **Rodri to miss Man City vs Chelsea through injury**\
 `Pep Guardiola has confirmed that Rodri will miss Manchester City’s Premier League opener at Chelsea on Sunday.`\
 https://nytimes.com/athletic/5704974/2024/08/16/rodri-man-city-injury/

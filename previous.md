@@ -1,3 +1,7 @@
+**Ipswich complete loan signing of Phillips from Manchester City**\
+`Ipswich Town have completed the signing of midfielder Kalvin Phillips from Manchester City on a season-long loan.`\
+https://nytimes.com/athletic/5703230/2024/08/16/kalvin-phillips-ipswich-loan-manchester-city/
+
 **Rodri to miss Man City vs Chelsea through injury**\
 `Pep Guardiola has confirmed that Rodri will miss Manchester City’s Premier League opener at Chelsea on Sunday.`\
 https://nytimes.com/athletic/5704974/2024/08/16/rodri-man-city-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/16/us/harris-trump-election
 **Willian confirms Fulham exit after rejecting contract renewal**\
 `Willian has confirmed he will not be signing a new contract with Fulham and has left the club.`\
 https://nytimes.com/athletic/5704942/2024/08/16/willian-leaves-fulham-transfer-news/
-
-**Barcelona mailbag: Your questions answered before new La Liga season**\
-`Our Barcelona correspondent Laia Cervello Herrero replies to a selection of (mostly quite complex) queries about the club`\
-https://nytimes.com/athletic/5704762/2024/08/16/barcelona-olmo-flick-yamal-laporta-la-liga/
 
