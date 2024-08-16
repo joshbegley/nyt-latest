@@ -1,3 +1,15 @@
+**New Zealand Diplomat Is Victim of Armed Robbery, Paris Authorities Say**\
+`The Paris prosecutor’s office said that the diplomat had been struck in the face with the butt of a pistol. The robbery took place in Paris’s affluent 7th arrondissement.`\
+https://nytimes.com/2024/08/16/world/europe/new-zealand-robbery-paris.html
+
+**From ‘Perfect Candidate’ to Sudden Exit: Inside the Fall of Columbia’s President**\
+`Nemat Shafik was vilified on almost all sides for her handling of the protests over the Israel-Hamas war. When given an offramp, she took it.`\
+https://nytimes.com/2024/08/16/us/columbia-president-nemat-shafik.html
+
+**Liberal group plans radio surge to turn out voters of color**\
+`The American Independent Foundation is looking to spend $15 million on radio ads in an effort to turn out Black and Hispanic voters in key states.`\
+https://nytimes.com/live/2024/08/16/us/harris-trump-election/liberal-group-plans-radio-surge-to-turn-out-voters-of-color
+
 **Florida Woman Found Guilty of Manslaughter in Fatal Shooting of Black Neighbor**\
 `Susan Lorincz, who is white, shot Ajike Owens last June through the door of her home as the 35-year-old mother of four stood outside. The case prompted national outrage.`\
 https://nytimes.com/2024/08/16/us/susan-lorincz-verdict-manslaughter-guilty.html
