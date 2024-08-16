@@ -1,3 +1,15 @@
+**JD Vance’s Plane Makes Emergency Landing in Milwaukee**\
+`A problem with the door seal on the Boeing 737 forced the chartered plane to return to the airport before continuing to Cincinnati.`\
+https://nytimes.com/2024/08/16/us/politics/jd-vance-plane-emergency-landing.html
+
+**Astros' Alex Bregman has swelling in right elbow, likely won't play this weekend**\
+`Bregman said he slept on his arm awkwardly “a few days ago” and “just kind of played through it.”`\
+https://nytimes.com/athletic/5705757/2024/08/16/astros-alex-bregman-elbow/
+
+**The Briefing: Manchester United 1 Fulham 0 - Zirkzee provides bite, Glazer watches on but where was Sancho?**\
+`The Premier League season began with United leaving it late as their summer signing from Bologna came off the bench to claim victory`\
+https://nytimes.com/athletic/5703086/2024/08/16/manchester-united-zirkzee-fulham-glazer-sancho-briefing/
+
 **The Giants are playing in Oakland for the last time, which is a travesty**\
 `The Giants will play the final two games of the Bay Bridge series in Oakland starting on Saturday.`\
 https://nytimes.com/athletic/5705389/2024/08/16/sf-giants-oakland-final-visit/
