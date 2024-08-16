@@ -1,3 +1,7 @@
+**Sancho left out of Man United squad for Premier League opener against Fulham**\
+`Jadon Sancho has been left out of Manchester United&#8217;s squad to face Fulham in their Premier League opener.`\
+https://nytimes.com/athletic/5705500/2024/08/16/man-united-sancho-fulham-squad/
+
 **Trump’s Message: Prices (Plus Gangs, A.I. and ‘Bird Cemeteries’)**\
 `Former President Donald J. Trump was supposed to focus on the price of groceries at an event on Thursday. His attention wandered.`\
 https://nytimes.com/2024/08/16/us/politics/donald-trump-campaign-2024-economy-prices.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5705365/2024/08/16/connor-stalions-michigan-coachin
 **Live Q&A: Talking baseball with Eno Sarris on Friday 8/16 at 1:00 p.m. ET**\
 `Submit your questions for Eno Sarris' latest live chat about all things baseball. `\
 https://nytimes.com/athletic/5704149/2024/08/16/live-qa-talking-baseball-with-eno-sarris-on-friday-8-16-at-100-p-m-et/
-
-**Charlie Moss, Whose Ads Spread Love for New York, Dies at 85**\
-`As a pioneer of Madison Avenue’s creative revolution, he collaborated on campaigns for Alka-Seltzer and other products. But his tourism pitches were a game changer.`\
-https://nytimes.com/2024/08/16/business/media/charlie-moss-dead.html
 
