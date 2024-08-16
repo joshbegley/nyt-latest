@@ -1,3 +1,7 @@
+**Shaqiri rejoins Basel after Chicago Fire exit**\
+`Xherdan Shaqiri has rejoined Basel on a three-year contract following his departure from Chicago Fire.`\
+https://nytimes.com/athletic/5705028/2024/08/16/xherdan-shaqiri-basel-transfer-return/
+
 **A new era, classy Kudus, and what impact will signings have?**\
 `There is excitement (and some fear) about what lies ahead at the start of Julen Lopetegui's tenure — whatever happens, it's won't be dull`\
 https://nytimes.com/athletic/5655936/2024/08/16/west-ham-united-season-preview-kudus/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5701203/2024/08/16/man-city-oscar-bobb-injury-leg/
 **How Air-Conditioning Made Us Expect Arizona to Feel the Same as Maine**\
 `It’s a quiet force that contributes to a sameness across the country and to climate change.`\
 https://nytimes.com/2024/08/16/upshot/air-conditioning-climate-change.html
-
-**The Athletic FC: Man City vs the Premier League; Plus: Is INEOS good for Manchester United**\
-`This season, the 115 charges brought against Manchester City by the Premier League will be furnished with a verdict.`\
-https://nytimes.com/athletic/5704851/2024/08/16/man-city-premier-league-manchester-united/
 
