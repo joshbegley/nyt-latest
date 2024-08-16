@@ -1,3 +1,11 @@
+**To become more than a 30-win team, the Bulls will need a few breakout players**\
+`A revamped young squad mixed with veteran anchors isn’t expected to be in the playoff hunt. But can the Bulls make the Play-In Tournament?`\
+https://nytimes.com/athletic/5704607/2024/08/16/the-bulls-will-need-a-few-breakout-players-to-become-more-than-a-30-win-team/
+
+**The Pulse: EPL is back. Who can beat Man City?**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5704449/2024/08/16/man-city-arsenal-epl-the-pulse/
+
 **What’s Stopping a Deal in Gaza?**\
 `Washington now sees Benjamin Netanyahu as the chief obstacle.`\
 https://nytimes.com/2024/08/16/briefing/gaza-cease-fire-negotiations.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5703925/2024/08/16/cubs-isaac-paredes-trade/
 **LeBron James' and Anthony Davis' Olympic performance should push Lakers to go all-in**\
 `James and Davis were two of Team USA's most important players, proving they can still front a title contender — if they can get some help.`\
 https://nytimes.com/athletic/5698977/2024/08/16/lebron-james-anthony-davis-lakers-olympics/
-
-**Twins honor milestone for Christian Vázquez, whose new routine turned season around**\
-`An elaborate plan concocted by Vázquez's wife allowed the catcher to celebrate 10 years of service even though the Twins were on the road.`\
-https://nytimes.com/athletic/5704641/2024/08/16/twins-honor-christian-vazquez/
-
-**'I kind of made a home here': Mason Shaw reflects on time with Wild as he leaves for Jets**\
-`After parts of three seasons with the Wild, Shaw signed a one-year, two-way $775K deal with the rival Jets in July.`\
-https://nytimes.com/athletic/5703284/2024/08/16/minnesota-wild-winnipeg-jets-mason-shaw/
 
