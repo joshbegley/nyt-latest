@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5697856/2024/08/16/fpl-tips-advice-premier-league/
 `Fabian Hurzeler, Brighton's new 31-year-old boss, is obsessed by detail and is determined for his team to play on the front foot`\
 https://nytimes.com/athletic/5681473/2024/08/16/training-under-youngest-premier-league-manager/
 
-**Is Kenny Pickett the best backup QB for the Eagles? Tanner McKee's stock is rising.**\
+**Is Kenny Pickett the best backup QB for the Eagles? Tanner McKee's stock is rising**\
 `Eagles coach Nick Sirianni dodged multiple questions Thursday about whether McKee outplayed Pickett.`\
 https://nytimes.com/athletic/5704234/2024/08/16/kenny-pickett-tanner-mckee-eagles/
 
