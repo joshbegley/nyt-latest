@@ -1,3 +1,7 @@
+**After 19 Years, a Hong Kong Panda Finally Gives Birth**\
+`She is the oldest panda on record to give birth for the first time. Also unusual: the cubs were naturally conceived, a rarity for the vulnerable species.`\
+https://nytimes.com/2024/08/16/world/asia/panda-twins-hong-kong.html
+
 **How Liverpool managers start their reigns - and what it could mean for Slot**\
 `How important is a Liverpool manager's start? We analyse Slot's predecessors in style, spending and success over their first 10 games`\
 https://nytimes.com/athletic/5703135/2024/08/16/liverpool-manager-arne-slot-start-reign/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5702439/2024/08/16/leeds-transfer-georginio-rutter-
 **Why you can expect to see plenty of back-post crosses from Manchester City this season**\
 `Pep Guardiola is sure to have some more surprises up his sleeve but this one has been there for all to see for a while`\
 https://nytimes.com/athletic/5698116/2024/08/16/why-you-can-expect-to-see-plenty-of-back-post-crosses-from-manchester-city-this-season/
-
-**Arsenal writers on their hopes and fears for the 2024-25 season**\
-`Have Arsenal done enough in the market to catch Manchester City? What can Mikel Arteta do better? Our reporters preview the season...`\
-https://nytimes.com/athletic/5700278/2024/08/16/arsenal-writers-season-hopes-fears/
 
