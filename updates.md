@@ -1,3 +1,11 @@
+**College football breakout QB watch: Who will shine in new 2024 spotlights?**\
+`From bowl-season standouts to former five-stars to transfer portal finds, our writers run down some possible breakout passers to know.`\
+https://nytimes.com/athletic/5703443/2024/08/16/college-football-breakout-quarterbacks/
+
+**Hezbollah Weighs Risks of Backlash at Home in War With Israel**\
+`The militant group has vowed to retaliate against Israel for the assassination of a commander. But if that leads to an all-out war, Lebanon may turn against it.`\
+https://nytimes.com/2024/08/16/world/middleeast/hezbollah-weighs-risks-of-backlash-at-home-in-war-with-israel.html
+
 **Daughter of Thailand’s Ex-Prime Minister to Be Next Leader**\
 `Paetongtarn Shinawatra was chosen by lawmakers on Friday to be the country’s next leader, two days after a court ousted the previous prime minister.`\
 https://nytimes.com/video/world/asia/100000009633491/thailand-prime-minister-paetongtarn-shinawatra.html

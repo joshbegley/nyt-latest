@@ -1,3 +1,11 @@
+**College football breakout QB watch: Who will shine in new 2024 spotlights?**\
+`From bowl-season standouts to former five-stars to transfer portal finds, our writers run down some possible breakout passers to know.`\
+https://nytimes.com/athletic/5703443/2024/08/16/college-football-breakout-quarterbacks/
+
+**Hezbollah Weighs Risks of Backlash at Home in War With Israel**\
+`The militant group has vowed to retaliate against Israel for the assassination of a commander. But if that leads to an all-out war, Lebanon may turn against it.`\
+https://nytimes.com/2024/08/16/world/middleeast/hezbollah-weighs-risks-of-backlash-at-home-in-war-with-israel.html
+
 **Daughter of Thailand’s Ex-Prime Minister to Be Next Leader**\
 `Paetongtarn Shinawatra was chosen by lawmakers on Friday to be the country’s next leader, two days after a court ousted the previous prime minister.`\
 https://nytimes.com/video/world/asia/100000009633491/thailand-prime-minister-paetongtarn-shinawatra.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/16/crosswords/spelling-bee-forum.html
 **Late Night Tackles Trump’s Tic Tac Show and Tell**\
 `“That is not an example of inflation; it’s just two different sizes of breath mints,” Desi Lydic said on Thursday’s “The Daily Show.”`\
 https://nytimes.com/2024/08/16/arts/television/late-night-trump-tic-tac.html
-
-**Lawmakers Choose a Dynasty’s Young Heir to Lead Thailand**\
-`Paetongtarn Shinawatra, a 37-year-old daughter of the political power broker Thaksin Shinawatra, is becoming prime minister at a chaotic time.`\
-https://nytimes.com/2024/08/16/world/asia/paetongtarn-shinawatra-thailand-prime-minister.html
-
-**Typhoon Ampil Lashes Eastern Japan, Forcing Evacuations**\
-`The authorities have warned that the storm, which has already flooded some streets in the Tokyo area, could bring violent winds and cause landslides.`\
-https://nytimes.com/2024/08/16/world/asia/typhoon-ampil-japan.html
 
