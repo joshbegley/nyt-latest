@@ -1,3 +1,19 @@
+**The Athletic’s Friday football quiz question #17**\
+`The Athletic's weekly conundrum from inside the trivia vaults`\
+https://nytimes.com/athletic/5703559/2024/08/16/the-athletics-friday-football-quiz-question-17/
+
+**Apple Giving Ground on App Store Rules to Appease Regulators**\
+`The company faces pressure from governments around the world and complaints from companies that it is still too restrictive.`\
+https://nytimes.com/2024/08/16/technology/apple-epic-spotify-app-stores.html
+
+**Harris to Lay Out Economic Message Focused on High Cost of Living**\
+`The vice president’s plans represent more of a reboot of President Biden’s economic policies than a radically fresh start.`\
+https://nytimes.com/2024/08/16/us/politics/kamala-harris-economy.html
+
+**Barcelona confirm Thiago exit from Flick's coaching staff**\
+`Thiago Alcantara has left Barcelona&#8217;s coaching staff, less than a month after the club announced his temporary return.`\
+https://nytimes.com/athletic/5704806/2024/08/16/thiago-barcelona-exit-hansi-flick/
+
 **To become more than a 30-win team, the Bulls will need a few breakout players**\
 `A revamped young squad mixed with veteran anchors isn’t expected to be in the playoff hunt. But can the Bulls make the Play-In Tournament?`\
 https://nytimes.com/athletic/5704607/2024/08/16/the-bulls-will-need-a-few-breakout-players-to-become-more-than-a-30-win-team/
