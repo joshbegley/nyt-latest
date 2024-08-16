@@ -1,3 +1,7 @@
+**Shaqiri rejoins Basel after Chicago Fire exit**\
+`Xherdan Shaqiri has rejoined Basel on a three-year contract following his departure from Chicago Fire.`\
+https://nytimes.com/athletic/5705028/2024/08/16/xherdan-shaqiri-basel-transfer-return/
+
 **A new era, classy Kudus, and what impact will signings have?**\
 `There is excitement (and some fear) about what lies ahead at the start of Julen Lopetegui's tenure — whatever happens, it's won't be dull`\
 https://nytimes.com/athletic/5655936/2024/08/16/west-ham-united-season-preview-kudus/
