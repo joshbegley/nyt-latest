@@ -1,3 +1,7 @@
+**Four Arrested in Killing Of ‘General Hospital’ Actor**\
+`The police said they arrested three men on murder charges in the fatal May 25 shooting of Johnny Wactor, 37, in Los Angeles. A fourth person was also charged.`\
+https://nytimes.com/2024/08/15/arts/television/johnny-wactor-murder-arrests.html
+
 **Three Braves takeaways: Max Fried struggles, Ozzie Albies eager to see 'Wash', and more**\
 `Brian Snitker said of Fried: “He’s still fighting like heck to find himself and get in a rhythm."`\
 https://nytimes.com/athletic/5704370/2024/08/15/braves-mlb-max-fried-ron-washington/
