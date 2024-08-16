@@ -6,7 +6,7 @@ https://nytimes.com/paidpost/google-pixel/google-pixel-documents-a-fashion-house
 `Susan Lorincz, who is white, shot Ajike Owens last June through the door of her home as the 35-year-old mother of four stood outside. The case prompted national outrage.`\
 https://nytimes.com/2024/08/16/us/susan-lorincz-verdict-manslaughter-guilty.html
 
-**Crystal Palace formally granted council permission to redevelop Selhurst Park**\
+**Palace formally granted council permission to redevelop Selhurst Park**\
 `Croydon Council's announcement comes six-and-a-half years after planning permission was agreed in principle for a new Main Stand`\
 https://nytimes.com/athletic/5700715/2024/08/16/crystal-palace-selhurst-park-redevelopment/
 
