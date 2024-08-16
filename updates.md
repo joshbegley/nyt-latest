@@ -1,3 +1,7 @@
+**Saving Conservatism From Trumpism**\
+`Responses to a column by David French. Also: The candidates’ foreign experience; a loss of diversity in network news; school libraries; independent voters.`\
+https://nytimes.com/2024/08/16/opinion/conservatism-trump.html
+
 **If the Oilers lose Philip Broberg, it might be time for a change with Evan Bouchard**\
 `Bouchard's 2023-24 season proved that he can thrive away from Edmonton's excellent five-man top unit.`\
 https://nytimes.com/athletic/5697155/2024/08/16/oilers-offer-sheet-defence-bouchard/
