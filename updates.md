@@ -1,3 +1,7 @@
+**What I’m Reading: Why Democracy Erodes From the Top**\
+`Three book recommendations from sunny London.`\
+https://nytimes.com/2024/08/16/world/europe/what-im-reading-why-democracy-erodes-from-the-top.html
+
 **Newcastle make Guehi bid worth up to £65m**\
 `Newcastle United have submitted a fourth bid for Crystal Palace defender Marc Guehi.`\
 https://nytimes.com/athletic/5696132/2024/08/16/marc-guehi-transfer-newcastle/
