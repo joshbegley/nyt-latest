@@ -1,3 +1,7 @@
+**The Orioles traded for Zach Eflin at the deadline. He could have helped the Red Sox**\
+`The Red Sox failed to sign Eflin in 2023. They couldn't acquire him in a trade in 2024. He showed Boston why they coveted him Thursday.`\
+https://nytimes.com/athletic/5704549/2024/08/15/orioles-red-sox-zach-eflin/
+
 **Giants' Grant McCray clears the fence as a baseball family celebrates: 'This is the dream'**\
 `Grant McCray's father Rodney played in the majors and got to see his son's first big-league homer: "Oh man, life is about timing, isn't it?"`\
 https://nytimes.com/athletic/5704502/2024/08/15/sf-giants-grant-mccray-first-home-run/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5704382/2024/08/15/twins-byron-buxton-hip-inflammat
 **Trump Made $300,000 for Endorsing Bible, Financial Disclosure Shows**\
 `Donald J. Trump also listed $100 million in liabilities over judgments he owes in civil cases, and over $1 million in crypto holdings as he courts the industry for his campaign.`\
 https://nytimes.com/2024/08/15/us/politics/trump-financial-disclosure-bibles-liabilities.html
-
-**‘The Union’ Review: Old Flames and Spy Games**\
-`When a mission goes pear-shaped, a covert operative (Halle Berry) turns to a secret weapon: her high school boyfriend (Mark Wahlberg).`\
-https://nytimes.com/2024/08/15/movies/the-union-review.html
 
