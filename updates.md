@@ -1,3 +1,15 @@
+**Daughter of Thailand’s Ex-Prime Minister to Be Next Leader**\
+`Paetongtarn Shinawatra was chosen by lawmakers on Friday to be the country’s next leader, two days after a court ousted the previous prime minister.`\
+https://nytimes.com/video/world/asia/100000009633491/thailand-prime-minister-paetongtarn-shinawatra.html
+
+**Cease-Fire Talks Enter 2nd Day With Wide Gaps Between Israel and Hamas**\
+`Hamas officials are not participating directly in the talks but have signaled a willingness to consider new proposals from Israel.`\
+https://nytimes.com/live/2024/08/16/world/israel-iran-hamas-gaza-war
+
+**The talks in Qatar are seen as a chance to reduce the risk of a wider war.**\
+`By James C. McKinley Jr.`\
+https://nytimes.com/live/2024/08/16/world/israel-iran-hamas-gaza-war/the-talks-in-qatar-are-seen-as-a-chance-to-reduce-the-risk-of-a-wider-war
+
 **Ski Passes and Weber Grills? Obscure Perks of a U.S. Alliance**\
 `The military alliance between Australia and the United States is growing ever closer. But how does the superpower value its smaller ally? Here are some clues.`\
 https://nytimes.com/2024/08/16/world/australia/newsletter-us-alliance-perks.html
