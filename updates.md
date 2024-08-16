@@ -1,3 +1,11 @@
+**Ski Passes and Weber Grills? Obscure Perks of a U.S. Alliance**\
+`The military alliance between Australia and the United States is growing ever closer. But how does the superpower value its smaller ally? Here are some clues.`\
+https://nytimes.com/2024/08/16/world/australia/ski-passes-and-weber-grills-obscure-perks-of-a-us-alliance.html
+
+**How Harris Has Completely Upended the Presidential Race, in 14 Maps**\
+`A Democratic strategist explains how the Electoral College math has changed since Kamala Harris entered the race.`\
+https://nytimes.com/interactive/2024/08/16/opinion/harris-trump-electoral-college-map.html
+
 **Jack Russell, Great White Singer and Survivor of Nightclub Fire, Dies at 63**\
 `At a show in 2003 with his “Jack Russell’s Great White,” a pyrotechnics display ignited a fire that killed 100 people, including the band’s guitarist.`\
 https://nytimes.com/2024/08/16/arts/music/jack-russell-dead.html
