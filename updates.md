@@ -1,3 +1,7 @@
+**Kyle Hendricks' mind isn't on potential end of his Cubs career as free agency looms**\
+`Hendricks has his sights set on a postseason run: "Especially here at Wrigley Field in front of these fans. It doesn’t get any better."`\
+https://nytimes.com/athletic/5705854/2024/08/16/kyle-hendricks-cubs-career/
+
 **Free Vasectomies and an Inflatable IUD: Abortion Rights Advocates Hit the D.N.C.**\
 `This convention is likely to be a head-on display of a new, unbridled abortion politics.`\
 https://nytimes.com/2024/08/16/us/politics/dnc-abortion-rights.html
