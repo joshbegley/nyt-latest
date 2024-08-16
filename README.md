@@ -1,3 +1,11 @@
+**Ski Passes and Weber Grills? Obscure Perks of a U.S. Alliance**\
+`The military alliance between Australia and the United States is growing ever closer. But how does the superpower value its smaller ally? Here are some clues.`\
+https://nytimes.com/2024/08/16/world/australia/ski-passes-and-weber-grills-obscure-perks-of-a-us-alliance.html
+
+**How Harris Has Completely Upended the Presidential Race, in 14 Maps**\
+`A Democratic strategist explains how the Electoral College math has changed since Kamala Harris entered the race.`\
+https://nytimes.com/interactive/2024/08/16/opinion/harris-trump-electoral-college-map.html
+
 **After 19 Years, a Hong Kong Panda Finally Gives Birth**\
 `She is the oldest panda on record to give birth for the first time. Also unusual: the cubs were naturally conceived, a rarity for the vulnerable species.`\
 https://nytimes.com/2024/08/16/world/asia/panda-twins-hong-kong.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5672204/2024/08/16/jorgen-strand-larsen-background-
 **Chelsea are rolling along the runway under Clearlake and Boehly - they need lift-off**\
 `Chelsea go into their third season under the Clearlake-Boehly regime needing to start achieving on the pitch`\
 https://nytimes.com/athletic/5703292/2024/08/16/chelsea-clearlake-boehly-owners-analysis/
-
-**Leeds at risk of a toxic summer if Rutter's impending sale isn't spark for signings**\
-`Georginio Rutter is on the cusp of leaving Leeds for Brighton, following on from Archie Gray and Crysencio Summerville's exits`\
-https://nytimes.com/athletic/5702439/2024/08/16/leeds-transfer-georginio-rutter-signings/
-
-**Why you can expect to see plenty of back-post crosses from Manchester City this season**\
-`Pep Guardiola is sure to have some more surprises up his sleeve but this one has been there for all to see for a while`\
-https://nytimes.com/athletic/5698116/2024/08/16/why-you-can-expect-to-see-plenty-of-back-post-crosses-from-manchester-city-this-season/
 
