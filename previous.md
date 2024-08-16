@@ -1,3 +1,7 @@
+**Comedic misses, brilliant 'keeping and 24 minutes of pure drama - the 34-kick penalty shootout**\
+`Analysing the (almost) never-ending Europa League penalty shootout between Ajax and Panathinaikos`\
+https://nytimes.com/athletic/5705133/2024/08/16/ajax-panathinaikos-penalty-shootout-analysed/
+
 **The Best of Late Night This Week**\
 `The hosts returned from a break and had much to discuss, including former President Trump’s obsession with crowd size and Vice President Harris’s surge in the polls. Here’s what they had to say.`\
 https://nytimes.com/interactive/2024/08/16/arts/television/best-of-late-night-trump-musk.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/16/business/the-big-number-2-9-inflation-july.html
 **Madden NFL 25 boasts incredible detail, presentation to keep long-time fans happy**\
 `The detail of EA Sports' newest installment of its NFL video game is among the many qualities that will attract fans old and new.`\
 https://nytimes.com/athletic/5703899/2024/08/16/madden-25-nfl-ea-sports-review/
-
-**He Made a Game About a Joyous Journey. He Also Got a Bit Lost.**\
-`Anthony Tan was 16 when his idea for a video game about a deer caught the industry’s eye. Nine years later, he’s still working on it.`\
-https://nytimes.com/2024/08/16/arts/anthony-tan-way-to-the-woods.html
 
