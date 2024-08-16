@@ -1,4 +1,16 @@
-**Supreme Court, for Now, Blocks Expanded Protections for Transgender Students**\
+**Gaza Cease-Fire Talks to Resume in Cairo, as Mediators Race to Head Off Wider War**\
+`Top officials from the U.S., Israel, Egypt and Qatar ended two days of talks in Doha aimed at trying to resolve remaining disagreements between Israel and Hamas.`\
+https://nytimes.com/2024/08/16/world/middleeast/cease-fire-talks-doha-israel-hamas.html
+
+**Would You Pay to Attend a Wedding?**\
+`As wedding costs continue to increase, some couples are charging guests to attend their special day.`\
+https://nytimes.com/2024/08/16/style/wedding-guest-charge.html
+
+**Packers-Broncos joint practice: Denver defense stifles Green Bay offense and more observations**\
+`Veteran running back Josh Jacobs said this was the first joint practice he's participated in that didn't involve a fight.`\
+https://nytimes.com/athletic/5705758/2024/08/16/packers-broncos-joint-practice-observations/
+
+**Supreme Court, for Now, Blocks Expanded Protections for Transgender Students in Some States**\
 `The order came in response to a challenge by the Biden administration to Republican-led efforts to block federal rules prohibiting discrimination against transgender people in schools.`\
 https://nytimes.com/2024/08/16/us/politics/supreme-court-transgender-discrimination-schools.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5705247/2024/08/16/marc-guehi-newcaste-transfer-lat
 **Judge temporarily blocks Venu Sports launch**\
 `The direct-to-consumer streaming service that will combine the resources of ESPN, Fox Sports and TNT Sports, is ensnared in a lawsuit.`\
 https://nytimes.com/athletic/5705694/2024/08/16/sports-streaming-disney-warner-fox-venu-judge/
-
-**Emery calls for Villa striker Duran to be patient following speculation about future**\
-`Unai Emery has called for Aston Villa striker Jhon Duran to be &#8220;patient&#8221; following speculation about his future this summer.`\
-https://nytimes.com/athletic/5705663/2024/08/16/jhon-duran-villa-future-emery/
-
-**Harris Unveiled Her Economic Agenda**\
-`Also, Russia closed in on a key city in eastern Ukraine. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2024/08/16/briefing/harris-unveiled-her-economic-agenda.html
-
-**Judge Blocks Joint Sports Streaming Service From 3 Media Giants**\
-`The planned service from Disney, Fox and Warner Bros. Discovery was slated to cost $42.99 a month and aimed at fans who had abandoned cable TV.`\
-https://nytimes.com/2024/08/16/business/media/fox-disney-warner-sports-streaming.html
 
