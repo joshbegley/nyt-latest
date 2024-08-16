@@ -1,3 +1,7 @@
+**Three Braves takeaways: Max Fried struggles, Ozzie Albies eager to see 'Wash', and more**\
+`Brian Snitker said of Fried: “He’s still fighting like heck to find himself and get in a rhythm."`\
+https://nytimes.com/athletic/5704370/2024/08/15/braves-mlb-max-fried-ron-washington/
+
 **Rather than play short-handed, Twins place Byron Buxton on injured list with hip inflammation**\
 `Buxton is not expected to exceed the minimum stay on the injured list.`\
 https://nytimes.com/athletic/5704382/2024/08/15/twins-byron-buxton-hip-inflammation-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5703736/2024/08/15/jayden-daniels-commanders-dolphi
 **Falcons signing Pro Bowl safety Justin Simmons**\
 `For the second time in 24 hours, the Falcons made a big move to help their defense after trading for veteran pass rusher Matthew Judon.`\
 https://nytimes.com/athletic/5703554/2024/08/15/atlanta-falcons-sign-justin-simmons/
-
-**Five-star DE and Hawkeyes legacy Iose Epenesa commits to Iowa**\
-`The 6-foot-4, 250-pound Epenesa is rated No. 16 overall in the Class of 2025 by 247Sports.`\
-https://nytimes.com/athletic/5693391/2024/08/15/iose-epenesa-commits-iowa-football-recruiting/
 

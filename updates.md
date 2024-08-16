@@ -1,3 +1,7 @@
+**Three Braves takeaways: Max Fried struggles, Ozzie Albies eager to see 'Wash', and more**\
+`Brian Snitker said of Fried: “He’s still fighting like heck to find himself and get in a rhythm."`\
+https://nytimes.com/athletic/5704370/2024/08/15/braves-mlb-max-fried-ron-washington/
+
 **Rather than play short-handed, Twins place Byron Buxton on injured list with hip inflammation**\
 `Buxton is not expected to exceed the minimum stay on the injured list.`\
 https://nytimes.com/athletic/5704382/2024/08/15/twins-byron-buxton-hip-inflammation-update/
