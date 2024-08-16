@@ -1,3 +1,15 @@
+**New Zealand Diplomat Is Victim of Armed Robbery, Paris Authorities Say**\
+`The Paris prosecutor’s office said that the diplomat had been struck in the face with the butt of a pistol. The robbery took place in Paris’s affluent 7th arrondissement.`\
+https://nytimes.com/2024/08/16/world/europe/new-zealand-robbery-paris.html
+
+**From ‘Perfect Candidate’ to Sudden Exit: Inside the Fall of Columbia’s President**\
+`Nemat Shafik was vilified on almost all sides for her handling of the protests over the Israel-Hamas war. When given an offramp, she took it.`\
+https://nytimes.com/2024/08/16/us/columbia-president-nemat-shafik.html
+
+**Liberal group plans radio surge to turn out voters of color**\
+`The American Independent Foundation is looking to spend $15 million on radio ads in an effort to turn out Black and Hispanic voters in key states.`\
+https://nytimes.com/live/2024/08/16/us/harris-trump-election/liberal-group-plans-radio-surge-to-turn-out-voters-of-color
+
 **Google Pixel Documents a Fashion House in Its 20th Year**\
 `Fashion designer Phillip Lim and photographer Andy Jackson used Google Pixel 9 Pro and its AI-powered editing features in a portrait session dedicated to the women who inspired Lim’s career.`\
 https://nytimes.com/paidpost/google-pixel/google-pixel-documents-a-fashion-house-in-its-20th-year.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/16/magazine/interns-fairness-privilege-ethics.html
 **Menendez, Convicted of Taking Bribes, Ends Race for Re-election**\
 `Senator Robert Menendez of New Jersey instructed state officials on Friday to remove his name from the Nov. 5 ballot.`\
 https://nytimes.com/2024/08/16/nyregion/nj-menendez-suspends-senate-race.html
-
-**Bengals, McPherson agree to 3-year extension**\
-`McPherson, a fifth-round pick of the Bengals in 2021, has never missed a postseason field goal in his career`\
-https://nytimes.com/athletic/5705582/2024/08/16/cincinnati-bengals-kicker-extension-evan-mcpherson/
-
-**Liz Moore on ‘The God of the Woods’**\
-`The author discusses her best-selling new novel about family secrets and a missing camper.`\
-https://nytimes.com/2024/08/16/books/review/podcast-liz-moore-interview-god-of-the-woods.html
-
-**Trump Says Civilian Award Is ‘Much Better’ Than Medal of Honor**\
-`The former president said Thursday the reason was because those given the nation’s highest military award are “either in very bad shape because they’ve been hit so many times by bullets, or they’re dead.”`\
-https://nytimes.com/2024/08/16/us/politics/trump-civilian-award-military-honor.html
 
