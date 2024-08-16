@@ -1,3 +1,7 @@
+**Harris’s Economic Plan Could Impress a Lot of Voters**\
+`The plan she presented in Raleigh was about how to lower the cost of living.`\
+https://nytimes.com/2024/08/13/opinion/kamala-harris-economic-plan.html
+
 **Mpox Case in Sweden Sets Off Concerns of Wider Spread in Europe**\
 `Experts expect more cases to surface in European countries because of frequent travel to and from Africa, with the threat of contracting the disease raised from “very low” to “low.”`\
 https://nytimes.com/2024/08/16/world/europe/mpox-cases-sweden-europe.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/16/us/susan-lorincz-verdict-manslaughter-guilty.html
 **Palace formally granted council permission to redevelop Selhurst Park**\
 `Croydon Council's announcement comes six-and-a-half years after planning permission was agreed in principle for a new Main Stand`\
 https://nytimes.com/athletic/5700715/2024/08/16/crystal-palace-selhurst-park-redevelopment/
-
-**Bournemouth sign striker Evanilson from Porto in €47m deal**\
-`Bournemouth have completed the signing of striker Evanilson from Porto in a deal worth €47million (£40.`\
-https://nytimes.com/athletic/5703262/2024/08/16/bournemouth-sign-evanilson-transfer-complete/
 

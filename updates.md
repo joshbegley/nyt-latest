@@ -1,3 +1,7 @@
+**Harris’s Economic Plan Could Impress a Lot of Voters**\
+`The plan she presented in Raleigh was about how to lower the cost of living.`\
+https://nytimes.com/2024/08/13/opinion/kamala-harris-economic-plan.html
+
 **Mpox Case in Sweden Sets Off Concerns of Wider Spread in Europe**\
 `Experts expect more cases to surface in European countries because of frequent travel to and from Africa, with the threat of contracting the disease raised from “very low” to “low.”`\
 https://nytimes.com/2024/08/16/world/europe/mpox-cases-sweden-europe.html
