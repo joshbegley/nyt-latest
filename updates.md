@@ -1,3 +1,15 @@
+**Bournemouth sign striker Evanilson from Porto in €47m deal**\
+`Bournemouth have completed the signing of striker Evanilson from Porto in a deal worth €47million (£40.`\
+https://nytimes.com/athletic/5703262/2024/08/16/bournemouth-sign-evanilson-transfer-complete/
+
+**When Does a Recession Become Official?**\
+`Just look at these six indicators.`\
+https://nytimes.com/2024/08/16/opinion/recession-official-indicators-economy.html
+
+**I’m Choosing Which Interns Will Get Job Offers. Do I Take Privilege Into Account?**\
+`The magazine’s Ethicist columnist on how to fairly evaluate candidates in a workplace.`\
+https://nytimes.com/2024/08/16/magazine/interns-fairness-privilege-ethics.html
+
 **Menendez, Convicted of Taking Bribes, Ends Race for Re-election**\
 `Senator Robert Menendez of New Jersey instructed state officials on Friday to remove his name from the Nov. 5 ballot.`\
 https://nytimes.com/2024/08/16/nyregion/nj-menendez-suspends-senate-race.html
