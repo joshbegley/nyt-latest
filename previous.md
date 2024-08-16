@@ -1,3 +1,15 @@
+**Scoop City: Preseason Week 2 watch guide**\
+`What to watch for in Week 2 of the NFL preseason, plus Drake Maye's incompletion`\
+https://nytimes.com/athletic/5705130/2024/08/16/week-2-of-the-nfl-preseason-watch-guide-scoop-city/
+
+**Romanian gymnast receives bronze medal after Chiles controversy**\
+`Ana Bărbosu received her bronze medal in a ceremony in Romania following a controversial ruling that stripped Jordan Chiles of the medal.`\
+https://nytimes.com/athletic/5705001/2024/08/16/ana-barbosu-bronze-medal-jordan-chiles-olympics/
+
+**Leicester's Daka out for several months after ankle surgery**\
+`Leicester City striker Patson Daka has been ruled out of action for several months after undergoing ankle surgery.`\
+https://nytimes.com/athletic/5705132/2024/08/16/patson-daka-injury-leicester/
+
 **Kalvin Phillips to Ipswich: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500 series, we look at Kalvin Phillips' loan move to Ipswich`\
 https://nytimes.com/athletic/5702336/2024/08/16/kalvin-phillips-to-ipswich-the-athletic-500-transfer-ratings/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5705028/2024/08/16/xherdan-shaqiri-basel-transfer-r
 **A new era, classy Kudus, and what impact will signings have?**\
 `There is excitement (and some fear) about what lies ahead at the start of Julen Lopetegui's tenure — whatever happens, it's won't be dull`\
 https://nytimes.com/athletic/5655936/2024/08/16/west-ham-united-season-preview-kudus/
-
-**The Price of Getting Inked**\
-`Whether it’s the expense of getting tattooed or the cost to have one removed, Americans are paying for their ink.`\
-https://nytimes.com/2024/08/16/business/tattoo-cost-economy.html
-
-**Dolphin Attacks Spoil Summer Along a Stretch of Japanese Beaches**\
-`Nearly 50 beachgoers have been attacked in the past three years. Some marine experts suspect it may be the work of a single “lonely” dolphin.`\
-https://nytimes.com/2024/08/16/world/asia/japan-dolphin-attacks.html
-
-**Ipswich complete loan signing of Phillips from Manchester City**\
-`Ipswich Town have completed the signing of midfielder Kalvin Phillips from Manchester City on a season-long loan.`\
-https://nytimes.com/athletic/5703230/2024/08/16/kalvin-phillips-ipswich-loan-manchester-city/
 
