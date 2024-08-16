@@ -1,3 +1,11 @@
+**To become more than a 30-win team, the Bulls will need a few breakout players**\
+`A revamped young squad mixed with veteran anchors isn’t expected to be in the playoff hunt. But can the Bulls make the Play-In Tournament?`\
+https://nytimes.com/athletic/5704607/2024/08/16/the-bulls-will-need-a-few-breakout-players-to-become-more-than-a-30-win-team/
+
+**The Pulse: EPL is back. Who can beat Man City?**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5704449/2024/08/16/man-city-arsenal-epl-the-pulse/
+
 **What’s Stopping a Deal in Gaza?**\
 `Washington now sees Benjamin Netanyahu as the chief obstacle.`\
 https://nytimes.com/2024/08/16/briefing/gaza-cease-fire-negotiations.html
