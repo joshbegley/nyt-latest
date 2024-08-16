@@ -6,7 +6,7 @@ https://nytimes.com/2024/08/16/us/politics/dnc-abortion-rights.html
 `The 64-year-old Hobbs cited health-related concerns for his sudden departure from the job.`\
 https://nytimes.com/athletic/5705896/2024/08/16/rutgers-pat-hobbs-resigns/
 
-**Kyle Hendricks' mind isn't on the potential end of his Cubs career as free agency looms**\
+**Kyle Hendricks' mind isn't on potential end of his Cubs career as free agency looms**\
 `Hendricks has his sights set on a postseason run: "Especially here at Wrigley Field in front of these fans. It doesn’t get any better."`\
 https://nytimes.com/athletic/5705854/2024/08/16/kyle-hendricks-cubs-career/
 
