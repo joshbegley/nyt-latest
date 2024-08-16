@@ -1,3 +1,11 @@
+**Trump’s Laughable Effort to Avoid Being Sentenced Before November**\
+`It shows how nervous he is about Justice Merchan’s upcoming decision.`\
+https://nytimes.com/2024/08/13/opinion/trumps-laughable-effort-to-avoid-being-sentenced-before-november.html
+
+**Trump Is Said to Pull in Tulsi Gabbard for Debate Prep**\
+`Tulsi Gabbard, the former Democrat who has rebranded herself as a celebrity among Donald J. Trump’s supporters, once eviscerated Kamala Harris on a debate stage.`\
+https://nytimes.com/2024/08/16/us/politics/trump-debate-tulsi-gabbard.html
+
 **Israeli Settlers Attack a Palestinian Village in the West Bank**\
 `Dozens of Israeli settlers attacked the West Bank village of Jit, killing one person and leaving another one critically injured, according to Palestinian officials.`\
 https://nytimes.com/video/world/middleeast/100000009633638/israeli-settlers-west-bank-attack-.html
