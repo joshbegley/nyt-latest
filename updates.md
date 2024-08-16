@@ -1,3 +1,5 @@
+**Israel further shrinks Gaza’s ‘humanitarian zone,’ and other news.**\
+
 **Falcons' roster-bubble players to watch in preseason game against Ravens**\
 `NFL teams must trim their rosters to 53 men on Aug. 27. Let's look at seven Falcons who need a good showing in Baltimore on Saturday.`\
 https://nytimes.com/athletic/5703120/2024/08/16/falcons-roster-bubble-players-preseason/
