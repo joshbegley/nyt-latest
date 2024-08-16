@@ -1,3 +1,11 @@
+**Rodri to miss Man City vs Chelsea through injury**\
+`Pep Guardiola has confirmed that Rodri will miss Manchester City’s Premier League opener at Chelsea on Sunday.`\
+https://nytimes.com/athletic/5704974/2024/08/16/rodri-man-city-injury/
+
+**Bengals tackling new obstacles, including injuries, after sloppy joint practice with Bears**\
+`RB Chris Evans and OT D’Ante Smith both left on carts on a rainy Thursday in Chicago, where the Bears intercepted Joe Burrow three times.`\
+https://nytimes.com/athletic/5704210/2024/08/16/bengals-bears-chris-evans-joe-burrow/
+
 **Darrell Luter Jr., young DTs and everything else we’re watching in 49ers vs. Saints**\
 `Saturday's game will be a chance to watch young defensive linemen Evan Anderson and Shakel Brown, who are vying for a spot in the rotation.`\
 https://nytimes.com/athletic/5701934/2024/08/16/49ers-saints-what-to-watch/
