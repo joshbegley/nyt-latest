@@ -1,3 +1,7 @@
+**Late Night Tackles Trump’s Tic Tac Show and Tell**\
+`“That is not an example of inflation; it’s just two different sizes of breath mints,” Desi Lydic said on Thursday’s “The Daily Show.”`\
+https://nytimes.com/2024/08/16/arts/television/late-night-trump-tic-tac.html
+
 **Lawmakers Choose a Dynasty’s Young Heir to Lead Thailand**\
 `Paetongtarn Shinawatra, a 37-year-old daughter of the political power broker Thaksin Shinawatra, is becoming prime minister at a chaotic time.`\
 https://nytimes.com/2024/08/16/world/asia/paetongtarn-shinawatra-thailand-prime-minister.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5702809/2024/08/16/leicester-city-transfer-window-p
 **Nuno presides over unusually settled camp as Forest swap chaos for calm**\
 `Forest’s manager is notorious for giving little away, but his body language spoke volumes: smiling, upbeat, eager to get going`\
 https://nytimes.com/athletic/5697776/2024/08/16/nottingham-forest-nuno-transfers-new-season/
-
-**The Turf meeting that saved Wrexham - and the fan who helped raise £100,000 in 24 hours**\
-`Wrexham came close to the brink 13 years ago, only to be saved by their fans`\
-https://nytimes.com/athletic/5646878/2024/08/16/wrexham-fans-bond/
 
