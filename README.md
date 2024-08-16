@@ -1,3 +1,19 @@
+**The Athletic’s Friday football quiz question #17**\
+`The Athletic's weekly conundrum from inside the trivia vaults`\
+https://nytimes.com/athletic/5703559/2024/08/16/the-athletics-friday-football-quiz-question-17/
+
+**Apple Giving Ground on App Store Rules to Appease Regulators**\
+`The company faces pressure from governments around the world and complaints from companies that it is still too restrictive.`\
+https://nytimes.com/2024/08/16/technology/apple-epic-spotify-app-stores.html
+
+**Harris to Lay Out Economic Message Focused on High Cost of Living**\
+`The vice president’s plans represent more of a reboot of President Biden’s economic policies than a radically fresh start.`\
+https://nytimes.com/2024/08/16/us/politics/kamala-harris-economy.html
+
+**Barcelona confirm Thiago exit from Flick's coaching staff**\
+`Thiago Alcantara has left Barcelona&#8217;s coaching staff, less than a month after the club announced his temporary return.`\
+https://nytimes.com/athletic/5704806/2024/08/16/thiago-barcelona-exit-hansi-flick/
+
 **To become more than a 30-win team, the Bulls will need a few breakout players**\
 `A revamped young squad mixed with veteran anchors isn’t expected to be in the playoff hunt. But can the Bulls make the Play-In Tournament?`\
 https://nytimes.com/athletic/5704607/2024/08/16/the-bulls-will-need-a-few-breakout-players-to-become-more-than-a-30-win-team/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/08/16/world/asia/thailand-prime-minister-paetongtarn-sh
 **Tottenham to sign Odobert from Burnley**\
 `Tottenham Hotspur have reached an agreement to sign Wilson Odobert from Burnley.`\
 https://nytimes.com/athletic/5704772/2024/08/16/wilson-odobert-tottenham-transfer/
-
-**Neville joins NBC Sports as Premier League contributor for 2024-25 season**\
-`Gary Neville has joined NBC Sports as a special contributor for the network&#8217;s Premier League coverage for the 2024-25 season.`\
-https://nytimes.com/athletic/5704768/2024/08/16/gary-neville-nbc-sports-premier-league/
-
-**Wide receiver/tight end roundtable: The Top 5s, the next Puka Nacua, Brock Bowers projections and more**\
-`The Athletic fantasy football crew weigh in on the WR/TE positions, sharing their Top 5 rankings, "do not draft" wideouts and more.`\
-https://nytimes.com/athletic/5703368/2024/08/16/wide-receiver-tight-end-roundtable-top-5-next-puka-nacua-brock-bowers-projections/
-
-**Why Cubs' Isaac Paredes trade looks like a different way of doing business**\
-`The Cubs knew they could acquire prospects at the deadline for Christopher Morel. Here's why they preferred to trade for an everyday player.`\
-https://nytimes.com/athletic/5703925/2024/08/16/cubs-isaac-paredes-trade/
-
-**LeBron James' and Anthony Davis' Olympic performance should push Lakers to go all-in**\
-`James and Davis were two of Team USA's most important players, proving they can still front a title contender — if they can get some help.`\
-https://nytimes.com/athletic/5698977/2024/08/16/lebron-james-anthony-davis-lakers-olympics/
 
