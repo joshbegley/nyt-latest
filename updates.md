@@ -1,3 +1,11 @@
+**Newcastle make Guehi bid worth up to £65m**\
+`Newcastle United have submitted a fourth bid for Crystal Palace defender Marc Guehi.`\
+https://nytimes.com/athletic/5696132/2024/08/16/marc-guehi-transfer-newcastle/
+
+**FPL GW1 live Q&A: Advice and injury news from Ben Dinnery**\
+`Ben Dinnery, from Premier Injuries, answers your questions on Gameweek 1`\
+https://nytimes.com/athletic/5704750/2024/08/16/fpl-advice-injury-news-ben-dinnery/
+
 **Shaqiri rejoins Basel after Chicago Fire exit**\
 `Xherdan Shaqiri has rejoined Basel on a three-year contract following his departure from Chicago Fire.`\
 https://nytimes.com/athletic/5705028/2024/08/16/xherdan-shaqiri-basel-transfer-return/
