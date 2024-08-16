@@ -1,29 +1,40 @@
-**Russia Closes In on Key Eastern Ukrainian City Despite Kursk Incursion**\
-`A Russian advance toward Pokrovsk casts doubts on Ukraine’s hopes that its offensive in western Russia will prompt Moscow to scale back attacks elsewhere.`\
-https://nytimes.com/2024/08/16/world/europe/russia-ukraine-pokrovsk-kursk.html
+**Why Cubs' Isaac Paredes trade looks like a different way of doing business**\
+`The Cubs knew they could acquire prospects at the deadline for Christopher Morel. Here's why they preferred to trade for an everyday player.`\
+https://nytimes.com/athletic/5703925/2024/08/16/cubs-isaac-paredes-trade/
 
-**Slot defends lack of Liverpool transfer activity: 'Our squad is strong'**\
-`Arne Slot insists a lack of transfer business will not damage Liverpool’s chances of success this season.`\
-https://nytimes.com/athletic/5704763/2024/08/16/arne-slot-liverpool-transfer-business/
+**LeBron James' and Anthony Davis' Olympic performance should push Lakers to go all-in**\
+`James and Davis were two of Team USA's most important players, proving they can still front a title contender — if they can get some help.`\
+https://nytimes.com/athletic/5698977/2024/08/16/lebron-james-anthony-davis-lakers-olympics/
 
-**Finding Summer Heat Relief in Your Hairstyle**\
-`On a hot day, getting hair off the back of your neck is often the simplest way to start cooling down. The sweeping movement is instinctual, but it is also deeply personal.`\
-https://nytimes.com/2024/08/16/us/heat-summer-hair.html
+**Twins honor milestone for Christian Vázquez, whose new routine turned season around**\
+`An elaborate plan concocted by Vázquez's wife allowed the catcher to celebrate 10 years of service even though the Twins were on the road.`\
+https://nytimes.com/athletic/5704641/2024/08/16/twins-honor-christian-vazquez/
 
-**Browns defense dominant, offense shaky in joint practices with Vikings**\
-`Myles Garrett and the defense were disruptive in the joint sessions vs. Minnesota, while the Deshaun Watson-led offense was inconsistent. `\
-https://nytimes.com/athletic/5704274/2024/08/16/browns-vikings-joint-practice-training-camp/
+**'I kind of made a home here': Mason Shaw reflects on time with Wild as he leaves for Jets**\
+`After parts of three seasons with the Wild, Shaw signed a one-year, two-way $775K deal with the rival Jets in July.`\
+https://nytimes.com/athletic/5703284/2024/08/16/minnesota-wild-winnipeg-jets-mason-shaw/
 
-**How Mets marketing capitalizes on viral moments: 'You can't make these things up'**\
-`From Grimace to Seymour Weiner to OMG, it's been a social media bonanza as the Mets seek "moments that catch on truthfully" with fans.`\
-https://nytimes.com/athletic/5701924/2024/08/16/mets-marketing-viral-moments/
+**Dodgers' Shohei Ohtani remade himself as a base stealer, and now 40-40 is a possibility**\
+`Ohtani is on pace for 49 home runs and 47 stolen bases, prompting Dave Roberts to say: "He’s trying to dominate on every margin." `\
+https://nytimes.com/athletic/5704165/2024/08/16/dodgers-shohei-ohtani-40-40-club/
 
-**USWNT returns to top of FIFA world rankings after Olympic gold**\
-`The USWNT has returned to the top of FIFA&#8217;s world rankings following a 12-month absence after winning Olympic gold in Paris.`\
-https://nytimes.com/athletic/5704752/2024/08/16/uswnt-fifa-rankings-top/
+**How Air-Conditioning Conquered America**\
+`Indoor cooling has transformed American life, reshaping homes, skylines and where people choose to live. As the planet warms, is that sustainable?`\
+https://nytimes.com/2024/08/16/podcasts/the-daily/air-conditioning-climate-warming.html
 
-**The enigmatic life and complex legacy of Pinky Deras, America’s greatest Little Leaguer**\
-`No one is likely to approach the Little League numbers Pinky Deras posted ever again. But Deras himself couldn't escape their shadow.`\
-https://nytimes.com/athletic/5703670/2024/08/16/little-league-world-series-pinky-deras/
+**The Connections Companion No. 433**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 17, 2024.`\
+https://nytimes.com/2024/08/16/crosswords/connections-companion-433.html
 
-**Israel further shrinks Gaza’s ‘humanitarian zone,’ and other news.**\
+**With or without Julio ​​Rodríguez, Mariners’ playoff hopes hinge on their bats**\
+`Only four teams with a lower OPS than the Seattle Mariners have made the playoffs in MLB's divisional era.`\
+https://nytimes.com/athletic/5703987/2024/08/16/seattle-mariners-julio-rodriguez-hitting/
+
+**Harris’s Strategically Vague Economic Message, and Russians Feel the War**\
+`Plus, charges in Matthew Perry’s death.`\
+https://nytimes.com/2024/08/16/podcasts/harriss-strategically-vague-economic-message-and-russians-feel-the-war.html
+
+**Minshew Mania hits Vegas: Can the NFL journeyman be the Raiders' answer at QB?**\
+`The free-spirited QB once swigged Jack Daniels and tried to break his hand with a hammer to preserve a season of college eligibility.`\
+https://nytimes.com/athletic/5703128/2024/08/16/gardner-minshew-las-vegas-raiders-quarterback/
+
