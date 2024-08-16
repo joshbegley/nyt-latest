@@ -1,3 +1,7 @@
+**Harris Unveiled Her Economic Agenda**\
+`Also, Russia closed in on a key city in eastern Ukraine. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/08/16/briefing/harris-unveiled-her-economic-agenda.html
+
 **Kamala Harris Outlines Her Plan for an ‘Opportunity Economy’**\
 `Vice President Kamala Harris presented her economic agenda, which included lowering the cost of food, drugs, housing and other living expenses, during a speech in Raleigh, N.C., on Friday.`\
 https://nytimes.com/video/us/elections/100000009634517/harris-opportunity-economy-raleigh.html

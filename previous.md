@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5705694/2024/08/16/sports-streaming-disney-warner-f
 https://nytimes.com/athletic/5705663/2024/08/16/jhon-duran-villa-future-emery/
 
 **Harris Unveiled Her Economic Agenda**\
-`Also, Russia closed in on a key city in eastern Ukraine. Here’s the latest at the`\
+`Also, Russia closed in on a key city in eastern Ukraine. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/08/16/briefing/harris-unveiled-her-economic-agenda.html
 
 **Judge Blocks Joint Sports Streaming Service From Three Media Giants**\
