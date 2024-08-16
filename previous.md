@@ -1,3 +1,7 @@
+**How to Watch the First Harris-Trump Debate**\
+`ABC News will broadcast the debate next month, which former President Donald J. Trump briefly backed out of after President Biden withdrew from the race. Mr. Trump then changed his mind.`\
+https://nytimes.com/2024/08/16/us/politics/harris-trump-debate-when-watch.html
+
 **Harris’s Economic Plan Could Impress a Lot of Voters**\
 `The plan she presented in Raleigh was about how to lower the cost of living.`\
 https://nytimes.com/2024/08/13/opinion/kamala-harris-economic-plan.html
@@ -33,8 +37,4 @@ https://nytimes.com/paidpost/google-pixel/google-pixel-documents-a-fashion-house
 **Florida Woman Found Guilty of Manslaughter in Fatal Shooting of Black Neighbor**\
 `Susan Lorincz, who is white, shot Ajike Owens last June through the door of her home as the 35-year-old mother of four stood outside. The case prompted national outrage.`\
 https://nytimes.com/2024/08/16/us/susan-lorincz-verdict-manslaughter-guilty.html
-
-**Palace formally granted council permission to redevelop Selhurst Park**\
-`Croydon Council's announcement comes six-and-a-half years after planning permission was agreed in principle for a new Main Stand`\
-https://nytimes.com/athletic/5700715/2024/08/16/crystal-palace-selhurst-park-redevelopment/
 

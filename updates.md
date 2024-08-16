@@ -1,3 +1,7 @@
+**How to Watch the First Harris-Trump Debate**\
+`ABC News will broadcast the debate next month, which former President Donald J. Trump briefly backed out of after President Biden withdrew from the race. Mr. Trump then changed his mind.`\
+https://nytimes.com/2024/08/16/us/politics/harris-trump-debate-when-watch.html
+
 **Harris’s Economic Plan Could Impress a Lot of Voters**\
 `The plan she presented in Raleigh was about how to lower the cost of living.`\
 https://nytimes.com/2024/08/13/opinion/kamala-harris-economic-plan.html
