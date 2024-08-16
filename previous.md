@@ -18,7 +18,7 @@ https://nytimes.com/2024/08/15/crosswords/daily-puzzle-2024-08-16.html
 `This week's joint practices with the Browns offered QB Sam Darnold experience against a different — and often dominant — defense.`\
 https://nytimes.com/athletic/5704394/2024/08/15/vikings-browns-joint-practices-sam-darnold/
 
-**Four Arrested in Killing Of ‘General Hospital’ Actor**\
+**Four Arrested in Killing of ‘General Hospital’ Actor**\
 `The police said they arrested three men on murder charges in the fatal May 25 shooting of Johnny Wactor, 37, in Los Angeles. A fourth person was also charged.`\
 https://nytimes.com/2024/08/15/arts/television/johnny-wactor-murder-arrests.html
 

@@ -1,3 +1,7 @@
+**Four Arrested in Killing of ‘General Hospital’ Actor**\
+`The police said they arrested three men on murder charges in the fatal May 25 shooting of Johnny Wactor, 37, in Los Angeles. A fourth person was also charged.`\
+https://nytimes.com/2024/08/15/arts/television/johnny-wactor-murder-arrests.html
+
 **Giants' Grant McCray clears the fence as a baseball family celebrates: 'This is the dream'**\
 `Grant McCray's father Rodney played in the majors and got to see his son's first big-league homer: "Oh man, life is about timing, isn't it?"`\
 https://nytimes.com/athletic/5704502/2024/08/15/sf-giants-grant-mccray-first-home-run/
