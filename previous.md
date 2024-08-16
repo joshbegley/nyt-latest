@@ -1,3 +1,7 @@
+**The Giants are playing in Oakland for the last time, which is a travesty**\
+`The Giants will play the final two games of the Bay Bridge series in Oakland starting on Saturday.`\
+https://nytimes.com/athletic/5705389/2024/08/16/sf-giants-oakland-final-visit/
+
 **How to Watch the First Harris-Trump Debate**\
 `ABC News will broadcast the debate next month, which former President Donald J. Trump briefly backed out of after President Biden withdrew from the race. Mr. Trump then changed his mind.`\
 https://nytimes.com/2024/08/16/us/politics/harris-trump-debate-when-watch.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/16/us/harris-trump-election/liberal-group-plans
 **Google Pixel Documents a Fashion House in Its 20th Year**\
 `Fashion designer Phillip Lim and photographer Andy Jackson used Google Pixel 9 Pro and its AI-powered editing features in a portrait session dedicated to the women who inspired Lim’s career.`\
 https://nytimes.com/paidpost/google-pixel/google-pixel-documents-a-fashion-house-in-its-20th-year.html
-
-**Florida Woman Found Guilty of Manslaughter in Fatal Shooting of Black Neighbor**\
-`Susan Lorincz, who is white, shot Ajike Owens last June through the door of her home as the 35-year-old mother of four stood outside. The case prompted national outrage.`\
-https://nytimes.com/2024/08/16/us/susan-lorincz-verdict-manslaughter-guilty.html
 

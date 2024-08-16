@@ -1,3 +1,7 @@
+**The Giants are playing in Oakland for the last time, which is a travesty**\
+`The Giants will play the final two games of the Bay Bridge series in Oakland starting on Saturday.`\
+https://nytimes.com/athletic/5705389/2024/08/16/sf-giants-oakland-final-visit/
+
 **How to Watch the First Harris-Trump Debate**\
 `ABC News will broadcast the debate next month, which former President Donald J. Trump briefly backed out of after President Biden withdrew from the race. Mr. Trump then changed his mind.`\
 https://nytimes.com/2024/08/16/us/politics/harris-trump-debate-when-watch.html
