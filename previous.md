@@ -1,3 +1,11 @@
+**Russia Closes In on Key Eastern Ukrainian City Despite Kursk Incursion**\
+`A Russian advance toward Pokrovsk casts doubts on Ukraine’s hopes that its offensive in western Russia will prompt Moscow to scale back attacks elsewhere.`\
+https://nytimes.com/2024/08/16/world/europe/russia-ukraine-pokrovsk-kursk.html
+
+**Slot defends lack of Liverpool transfer activity: 'Our squad is strong'**\
+`Arne Slot insists a lack of transfer business will not damage Liverpool’s chances of success this season.`\
+https://nytimes.com/athletic/5704763/2024/08/16/arne-slot-liverpool-transfer-business/
+
 **Finding Summer Heat Relief in Your Hairstyle**\
 `On a hot day, getting hair off the back of your neck is often the simplest way to start cooling down. The sweeping movement is instinctual, but it is also deeply personal.`\
 https://nytimes.com/2024/08/16/us/heat-summer-hair.html
