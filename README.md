@@ -1,3 +1,11 @@
+**Kalvin Phillips to Ipswich: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we look at Kalvin Phillips' loan move to Ipswich`\
+https://nytimes.com/athletic/5702336/2024/08/16/kalvin-phillips-to-ipswich-the-athletic-500-transfer-ratings/
+
+**Chargers camp: Justin Herbert out of walking boot; Easton Stick faces big opportunity**\
+`The second preseason game Saturday will be a big moment for Stick. It's time to prove to the new regime that he can back up Herbert.`\
+https://nytimes.com/athletic/5704663/2024/08/16/chargers-training-camp-justin-herbert-easton-stick/
+
 **What I’m Reading: Why Democracy Erodes From the Top**\
 `Three book recommendations from sunny London.`\
 https://nytimes.com/2024/08/16/world/europe/what-im-reading-why-democracy-erodes-from-the-top.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/16/world/asia/japan-dolphin-attacks.html
 **Ipswich complete loan signing of Phillips from Manchester City**\
 `Ipswich Town have completed the signing of midfielder Kalvin Phillips from Manchester City on a season-long loan.`\
 https://nytimes.com/athletic/5703230/2024/08/16/kalvin-phillips-ipswich-loan-manchester-city/
-
-**Rodri to miss Man City vs Chelsea through injury**\
-`Pep Guardiola has confirmed that Rodri will miss Manchester City’s Premier League opener at Chelsea on Sunday.`\
-https://nytimes.com/athletic/5704974/2024/08/16/rodri-man-city-injury/
-
-**Bengals tackling new obstacles, including injuries, after sloppy joint practice with Bears**\
-`RB Chris Evans and OT D’Ante Smith both left on carts on a rainy Thursday in Chicago, where the Bears intercepted Joe Burrow three times.`\
-https://nytimes.com/athletic/5704210/2024/08/16/bengals-bears-chris-evans-joe-burrow/
 
