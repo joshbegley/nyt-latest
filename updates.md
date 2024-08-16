@@ -1,3 +1,7 @@
+**At 19, a Hong Kong Panda Is Finally a Mother**\
+`Ying Ying is the oldest panda on record to give birth for the first time. Also unusual: her cubs were naturally conceived, a rarity for the vulnerable species.`\
+https://nytimes.com/2024/08/16/world/asia/panda-twins-hong-kong.html
+
 **Late Night Tackles Trump’s Tic Tac Show and Tell**\
 `“That is not an example of inflation; it’s just two different sizes of breath mints,” Desi Lydic said on Thursday’s “The Daily Show.”`\
 https://nytimes.com/2024/08/16/arts/television/late-night-trump-tic-tac.html
