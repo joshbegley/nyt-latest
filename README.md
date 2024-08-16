@@ -1,3 +1,7 @@
+**Harris Lays Out Her Economic Vision, Casting Trump’s as Backward-Looking**\
+`In her first major policy speech, the vice president argued that her Republican opponent was too focused on the past, painting herself as someone who would protect the middle class for generations.`\
+https://nytimes.com/2024/08/16/us/politics/kamala-harris-raleigh-nc-economy.html
+
 **JD Vance’s Plane Makes Emergency Landing in Milwaukee**\
 `A problem with the door seal on the Boeing 737 forced the chartered plane to return to the airport before continuing to Cincinnati.`\
 https://nytimes.com/2024/08/16/us/politics/jd-vance-plane-emergency-landing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5705697/2024/08/16/carlos-alcaraz-monfils-cincinatt
 **What It’s Like as a Barista at One of the World’s Busiest Train Stations**\
 `Commuters fuel up daily at the Cafe Grumpy in Grand Central Terminal. Here is the man who keeps the coffee flowing.`\
 https://nytimes.com/2024/08/16/dining/barista-grand-central-terminal-cafe-grumpy.html
-
-**New Zealand Diplomat Is Victim of Armed Robbery, Paris Authorities Say**\
-`The Paris prosecutor’s office said that the diplomat had been struck in the face with the butt of a pistol. The robbery took place in Paris’s affluent 7th arrondissement.`\
-https://nytimes.com/2024/08/16/world/europe/new-zealand-robbery-paris.html
 
