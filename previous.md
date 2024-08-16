@@ -1,3 +1,7 @@
+**Charlie Moss, Whose Ads Spread Love for New York, Dies at 85**\
+`As a pioneer of Madison Avenue’s creative revolution, he collaborated on campaigns for Alka-Seltzer and other products. But his tourism pitches were a game changer.`\
+https://nytimes.com/2024/08/16/business/media/charlie-moss-dead.html
+
 **Tehran appears to be allowing mediators time to pursue cease-fire talks, according to multiple officials.**\
 `By Ronen Bergman, Julian E. Barnes, Farnaz Fassihi and Adam Rasgon`\
 https://nytimes.com/live/2024/08/16/world/israel-iran-hamas-gaza-war/tehran-appears-to-be-allowing-mediators-time-to-pursue-cease-fire-talks-according-to-multiple-officials
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/16/us/politics/brad-raffensperger-2020-georgia-elect
 **What Minnesota’s Law on Free Tampons in Public Schools Actually Does**\
 `Conservatives have criticized Gov. Tim Walz over the law, but schools have not taken it as a mandate to put menstrual products into boys’ restrooms.`\
 https://nytimes.com/2024/08/16/us/politics/walz-free-tampons-schools-minnesota.html
-
-**The Windup: Top candidates for NL MVP**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5705312/2024/08/16/national-league-mvp-shohei-ohtani-the-windup/
 

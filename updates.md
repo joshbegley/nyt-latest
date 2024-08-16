@@ -1,3 +1,7 @@
+**Charlie Moss, Whose Ads Spread Love for New York, Dies at 85**\
+`As a pioneer of Madison Avenue’s creative revolution, he collaborated on campaigns for Alka-Seltzer and other products. But his tourism pitches were a game changer.`\
+https://nytimes.com/2024/08/16/business/media/charlie-moss-dead.html
+
 **This Georgia Republican Defied Trump. Now He’s Fighting a Lawsuit.**\
 `The secretary of state, Brad Raffensperger, has spent $500,000 defending himself in court. He says the plaintiff will only settle if he endorses a debunked conspiracy theory about the 2020 election.`\
 https://nytimes.com/2024/08/16/us/politics/brad-raffensperger-2020-georgia-election.html
