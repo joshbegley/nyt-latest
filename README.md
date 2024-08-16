@@ -1,4 +1,4 @@
-**Russia Closes in on Key Eastern Ukrainian City Despite Kursk Incursion**\
+**Russia Closes In on Key Eastern Ukrainian City Despite Kursk Incursion**\
 `A Russian advance toward Pokrovsk casts doubts on Ukraine’s hopes that its offensive in western Russia will prompt Moscow to scale back attacks elsewhere.`\
 https://nytimes.com/2024/08/16/world/europe/russia-ukraine-pokrovsk-kursk.html
 
