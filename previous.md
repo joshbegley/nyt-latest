@@ -1,3 +1,11 @@
+**Brandon Aiyuk, Trent Williams and some 49ers optimism in the nick of time**\
+`Amid this trying summer, the 49ers really could use some good news about Brandon Aiyuk and Trent Williams. It might be coming soon.`\
+https://nytimes.com/athletic/5705742/2024/08/16/49ers-aiyuk-williams/
+
+**Can Brandon Sproat be a September factor for the Mets? Don't count on it**\
+`David Stearns never called up a prospect to the majors in his first full pro season during his tenure in Milwaukee.`\
+https://nytimes.com/athletic/5705870/2024/08/16/mets-brandon-sproat-prospect-call-up/
+
 **Tell us: Have you been forgoing Covid tests?**\
 `It’s the fifth summer of Covid, and most people seem eager to move on. We want to understand the pervasiveness of the ignorance-is-bliss attitude.`\
 https://nytimes.com/2024/08/16/health/covid-habits-testing.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/16/business/economy/harris-trump-economy-inflation.h
 **Maurice Williams, Whose ‘Stay’ Was a Hit for Him and Others, Dies at 86**\
 `A chart topper in 1960 for him and his doo-wop group the Zodiacs, it inspired several notable cover versions and was heard in the 1987 film “Dirty Dancing.”`\
 https://nytimes.com/2024/08/16/arts/music/maurice-williams-dead.html
-
-**Kamala Harris Outlines Her Plan for an ‘Opportunity Economy’**\
-`Vice President Kamala Harris presented her economic agenda, which included lowering the cost of food, drugs, housing and other living expenses, during a speech in Raleigh, N.C., on Friday.`\
-https://nytimes.com/video/us/elections/100000009634517/harris-opportunity-economy-raleigh.html
-
-**Ugochukwu completes Southampton loan**\
-`Southampton have completed the signing of midfielder Lesley Ugochukwu from Chelsea on a season-long loan.`\
-https://nytimes.com/athletic/5703921/2024/08/16/lesley-ugochukwu-southampton-chelsea-loan/
 

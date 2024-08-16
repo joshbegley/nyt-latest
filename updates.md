@@ -1,3 +1,11 @@
+**Brandon Aiyuk, Trent Williams and some 49ers optimism in the nick of time**\
+`Amid this trying summer, the 49ers really could use some good news about Brandon Aiyuk and Trent Williams. It might be coming soon.`\
+https://nytimes.com/athletic/5705742/2024/08/16/49ers-aiyuk-williams/
+
+**Can Brandon Sproat be a September factor for the Mets? Don't count on it**\
+`David Stearns never called up a prospect to the majors in his first full pro season during his tenure in Milwaukee.`\
+https://nytimes.com/athletic/5705870/2024/08/16/mets-brandon-sproat-prospect-call-up/
+
 **Tell us: Have you been forgoing Covid tests?**\
 `It’s the fifth summer of Covid, and most people seem eager to move on. We want to understand the pervasiveness of the ignorance-is-bliss attitude.`\
 https://nytimes.com/2024/08/16/health/covid-habits-testing.html
