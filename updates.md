@@ -1,3 +1,7 @@
+**The Orioles traded for Zach Eflin at the deadline. He could have helped the Red Sox**\
+`The Red Sox failed to sign Eflin in 2023. They couldn't acquire him in a trade in 2024. He showed Boston why they coveted him Thursday.`\
+https://nytimes.com/athletic/5704549/2024/08/15/orioles-red-sox-zach-eflin/
+
 **Four Arrested in Killing of ‘General Hospital’ Actor**\
 `The police said they arrested three men on murder charges in the fatal May 25 shooting of Johnny Wactor, 37, in Los Angeles. A fourth person was also charged.`\
 https://nytimes.com/2024/08/15/arts/television/johnny-wactor-murder-arrests.html
