@@ -1,3 +1,7 @@
+**What we saw from the Vikings in their joint practices with the Browns**\
+`This week's joint practices with the Browns offered QB Sam Darnold experience against a different — and often dominant — defense.`\
+https://nytimes.com/athletic/5704394/2024/08/15/vikings-browns-joint-practices-sam-darnold/
+
 **Four Arrested in Killing Of ‘General Hospital’ Actor**\
 `The police said they arrested three men on murder charges in the fatal May 25 shooting of Johnny Wactor, 37, in Los Angeles. A fourth person was also charged.`\
 https://nytimes.com/2024/08/15/arts/television/johnny-wactor-murder-arrests.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5704247/2024/08/15/mets-mlb-pressure/
 **Brewers' Christian Yelich to undergo season-ending back surgery**\
 `Yelich hoped that rest and rehab would help him avoid surgery this season.`\
 https://nytimes.com/athletic/5704265/2024/08/15/brewers-christian-yelich-season-ending-back-surgery/
-
-**Jayden Daniels, Commanders offense flash 'attacking mentality' in Miami**\
-`The rookie impressed with red zone strikes and accounted for five total TDs from inside the 20 during the joint practice vs. the Dolphins.`\
-https://nytimes.com/athletic/5703736/2024/08/15/jayden-daniels-commanders-dolphins-joint-practice/
 

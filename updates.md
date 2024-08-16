@@ -1,3 +1,7 @@
+**What we saw from the Vikings in their joint practices with the Browns**\
+`This week's joint practices with the Browns offered QB Sam Darnold experience against a different — and often dominant — defense.`\
+https://nytimes.com/athletic/5704394/2024/08/15/vikings-browns-joint-practices-sam-darnold/
+
 **Rather than play short-handed, Twins place Buxton on IL**\
 `Buxton is not expected to exceed the minimum stay on the injured list.`\
 https://nytimes.com/athletic/5704382/2024/08/15/twins-byron-buxton-hip-inflammation-update/
