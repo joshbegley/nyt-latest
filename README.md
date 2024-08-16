@@ -1,3 +1,15 @@
+**Tehran appears to be allowing mediators time to pursue cease-fire talks, according to multiple officials.**\
+`By Ronen Bergman, Julian E. Barnes, Farnaz Fassihi and Adam Rasgon`\
+https://nytimes.com/live/2024/08/16/world/israel-iran-hamas-gaza-war/tehran-appears-to-be-allowing-mediators-time-to-pursue-cease-fire-talks-according-to-multiple-officials
+
+**Jerry Fuller, Writer of ‘Young Girl’ and Other Hit Songs, Dies at 85**\
+`He located a musical sweet spot between the romantic and the risqué for Ricky Nelson, Johnny Mathis and most famously Gary Puckett and the Union Gap.`\
+https://nytimes.com/2024/08/16/arts/music/jerry-fuller-dead.html
+
+**‘It Ends With Us’: The Press Tour Drama, Explained**\
+`What’s happening onscreen has become secondary to the conversation about differences between Blake Lively and Justin Baldoni, her co-star and director.`\
+https://nytimes.com/2024/08/16/movies/it-ends-with-us-controversy-blake-lively-justin-baldoni.html
+
 **Comedic misses, brilliant 'keeping and 24 minutes of pure drama - the 34-kick penalty shootout**\
 `Analysing the (almost) never-ending Europa League penalty shootout between Ajax and Panathinaikos`\
 https://nytimes.com/athletic/5705133/2024/08/16/ajax-panathinaikos-penalty-shootout-analysed/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/16/us/politics/walz-free-tampons-schools-minnesota.h
 **The Windup: Top candidates for NL MVP**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5705312/2024/08/16/national-league-mvp-shohei-ohtani-the-windup/
-
-**Chelsea striker Mason Burstow joins Hull City in permanent transfer**\
-`Hull City have completed the signing of Chelsea striker Mason Burstow on a permanent transfer.`\
-https://nytimes.com/athletic/5705296/2024/08/16/mason-burstow-hull-chelsea-transfer/
-
-**The Big Number: 2.9%**\
-`The rate of inflation in July on a yearly basis.`\
-https://nytimes.com/2024/08/16/business/the-big-number-2-9-inflation-july.html
-
-**Madden NFL 25 boasts incredible detail, presentation to keep long-time fans happy**\
-`The detail of EA Sports' newest installment of its NFL video game is among the many qualities that will attract fans old and new.`\
-https://nytimes.com/athletic/5703899/2024/08/16/madden-25-nfl-ea-sports-review/
 
