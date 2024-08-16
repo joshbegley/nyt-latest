@@ -1,3 +1,7 @@
+**2024 Heisman Draft: Our 36-player search for this year's NYC hopefuls**\
+`Who will claim college football's highest individual honor in 2024? We had nine writers make four picks each, snake draft-style.`\
+https://nytimes.com/athletic/5701118/2024/08/16/heisman-trophy-2024-odds-favorites-carson-beck/
+
 **College football breakout QB watch: Who will shine in new 2024 spotlights?**\
 `From bowl-season standouts to former five-stars to transfer portal finds, our writers run down some possible breakout passers to know.`\
 https://nytimes.com/athletic/5703443/2024/08/16/college-football-breakout-quarterbacks/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/16/insider/myths-plagues-and-battles-on-the-12th-flo
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/08/16/crosswords/spelling-bee-forum.html
-
-**Late Night Tackles Trump’s Tic Tac Show and Tell**\
-`“That is not an example of inflation; it’s just two different sizes of breath mints,” Desi Lydic said on Thursday’s “The Daily Show.”`\
-https://nytimes.com/2024/08/16/arts/television/late-night-trump-tic-tac.html
 
