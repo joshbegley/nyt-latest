@@ -14,9 +14,9 @@ https://nytimes.com/athletic/5704149/2024/08/16/live-qa-talking-baseball-with-en
 `As a pioneer of Madison Avenue’s creative revolution, he collaborated on campaigns for Alka-Seltzer and other products. But his tourism pitches were a game changer.`\
 https://nytimes.com/2024/08/16/business/media/charlie-moss-dead.html
 
-**Tehran appears to be allowing mediators time to pursue cease-fire talks, according to multiple officials.**\
-`By Ronen Bergman, Julian E. Barnes, Farnaz Fassihi and Adam Rasgon`\
-https://nytimes.com/2024/08/16/world/middleeast/tehran-appears-to-be-allowing-mediators-time-to-pursue-cease-fire-talks-according-to-multiple-officials.html
+**Iran Expected to Delay Retaliation Over Killing of Hamas Leader, Officials Say**\
+`The delay is meant to allow mediators time to make a high-stakes push for a cease-fire to end the war in Gaza, according to U.S., Iranian and Israeli officials. But they cautioned that the situation remained fluid.`\
+https://nytimes.com/2024/08/16/world/middleeast/iran-israel-hamas-cease-fire.html
 
 **Jerry Fuller, Writer of ‘Young Girl’ and Other Hit Songs, Dies at 85**\
 `He located a musical sweet spot between the romantic and the risqué for Ricky Nelson, Johnny Mathis and most famously Gary Puckett and the Union Gap.`\
