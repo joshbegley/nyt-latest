@@ -1,3 +1,7 @@
+**Rather than play short-handed, Twins place Byron Buxton on injured list with hip inflammation**\
+`Buxton is not expected to exceed the minimum stay on the injured list.`\
+https://nytimes.com/athletic/5704382/2024/08/15/twins-byron-buxton-hip-inflammation-update/
+
 **Trump Made $300,000 for Endorsing Bible, Financial Disclosure Shows**\
 `Donald J. Trump also listed $100 million in liabilities over judgments he owes in civil cases, and over $1 million in crypto holdings as he courts the industry for his campaign.`\
 https://nytimes.com/2024/08/15/us/politics/trump-financial-disclosure-bibles-liabilities.html
