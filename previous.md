@@ -1,3 +1,11 @@
+**Browns defense dominant, offense shaky in joint practices with Vikings**\
+`Myles Garrett and the defense were disruptive in the joint sessions vs. Minnesota, while the Deshaun Watson-led offense was inconsistent. `\
+https://nytimes.com/athletic/5704274/2024/08/16/browns-vikings-joint-practice-training-camp/
+
+**How Mets marketing capitalizes on viral moments: 'You can't make these things up'**\
+`From Grimace to Seymour Weiner to OMG, it's been a social media bonanza as the Mets seek "moments that catch on truthfully" with fans.`\
+https://nytimes.com/athletic/5701924/2024/08/16/mets-marketing-viral-moments/
+
 **USWNT returns to top of FIFA world rankings after Olympic gold**\
 `The USWNT has returned to the top of FIFA&#8217;s world rankings following a 12-month absence after winning Olympic gold in Paris.`\
 https://nytimes.com/athletic/5704752/2024/08/16/uswnt-fifa-rankings-top/
