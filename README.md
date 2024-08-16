@@ -4,7 +4,7 @@ https://nytimes.com/2024/08/16/business/media/charlie-moss-dead.html
 
 **Tehran appears to be allowing mediators time to pursue cease-fire talks, according to multiple officials.**\
 `By Ronen Bergman, Julian E. Barnes, Farnaz Fassihi and Adam Rasgon`\
-https://nytimes.com/live/2024/08/16/world/israel-iran-hamas-gaza-war/tehran-appears-to-be-allowing-mediators-time-to-pursue-cease-fire-talks-according-to-multiple-officials
+https://nytimes.com/2024/08/16/world/middleeast/tehran-appears-to-be-allowing-mediators-time-to-pursue-cease-fire-talks-according-to-multiple-officials.html
 
 **Jerry Fuller, Writer of ‘Young Girl’ and Other Hit Songs, Dies at 85**\
 `He located a musical sweet spot between the romantic and the risqué for Ricky Nelson, Johnny Mathis and most famously Gary Puckett and the Union Gap.`\
