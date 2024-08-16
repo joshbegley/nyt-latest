@@ -1,3 +1,7 @@
+**Maurice Williams, Whose ‘Stay’ Was a Hit for Him and Others, Dies at 86**\
+`A chart topper in 1960 for him and his doo-wop group the Zodiacs, it inspired several notable cover versions and was heard in the 1987 film “Dirty Dancing.”`\
+https://nytimes.com/2024/08/16/arts/music/maurice-williams-dead.html
+
 **Harris Unveiled Her Economic Agenda**\
 `Also, Russia closed in on a key city in eastern Ukraine. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/08/16/briefing/harris-unveiled-her-economic-agenda.html

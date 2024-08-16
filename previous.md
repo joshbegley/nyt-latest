@@ -1,3 +1,7 @@
+**Maurice Williams, Whose ‘Stay’ Was a Hit for Him and Others, Dies at 86**\
+`A chart topper in 1960 for him and his doo-wop group the Zodiacs, it inspired several notable cover versions and was heard in the 1987 film “Dirty Dancing.”`\
+https://nytimes.com/2024/08/16/arts/music/maurice-williams-dead.html
+
 **Kamala Harris Outlines Her Plan for an ‘Opportunity Economy’**\
 `Vice President Kamala Harris presented her economic agenda, which included lowering the cost of food, drugs, housing and other living expenses, during a speech in Raleigh, N.C., on Friday.`\
 https://nytimes.com/video/us/elections/100000009634517/harris-opportunity-economy-raleigh.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/16/world/middleeast/gaza-polio-crisis.html
 **Harris Lays Out Her Economic Vision, Casting Trump’s as Backward-Looking**\
 `In her first major policy speech, the vice president argued that her Republican opponent was too focused on the past, painting herself as someone who would protect the middle class for generations.`\
 https://nytimes.com/2024/08/16/us/politics/kamala-harris-raleigh-nc-economy.html
-
-**JD Vance’s Plane Makes Emergency Landing in Milwaukee**\
-`A problem with the door seal on the Boeing 737 forced the chartered plane to return to the airport before continuing to Cincinnati.`\
-https://nytimes.com/2024/08/16/us/politics/jd-vance-plane-emergency-landing.html
 
