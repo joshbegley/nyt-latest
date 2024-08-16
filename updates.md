@@ -1,3 +1,11 @@
+**Ukraine’s Push Into Russia Met Early Success. Where Does It Go From Here?**\
+`Ukraine’s forces could try advancing farther on Russian soil, or return to the front line, where Moscow is making gains. There are arguments for various options.`\
+https://nytimes.com/2024/08/16/world/europe/ukraine-russia-kursk-incursion.html
+
+**Who Is Paetongtarn Shinawatra, Thailand’s New Prime Minister?**\
+`The political heir to an influential family is now leading Thailand with no governing experience in a tumultuous time.`\
+https://nytimes.com/2024/08/16/world/asia/thailand-prime-minister-paetongtarn-shinawatra.html
+
 **Tottenham to sign Odobert from Burnley**\
 `Tottenham Hotspur have reached an agreement to sign Wilson Odobert from Burnley.`\
 https://nytimes.com/athletic/5704772/2024/08/16/wilson-odobert-tottenham-transfer/
