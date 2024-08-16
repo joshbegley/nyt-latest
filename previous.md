@@ -1,3 +1,7 @@
+**Trump Made $300,000 for Endorsing Bible, Financial Disclosure Shows**\
+`Donald J. Trump also listed $100 million in liabilities over judgments he owes in civil cases, and over $1 million in crypto holdings as he courts the industry for his campaign.`\
+https://nytimes.com/2024/08/15/us/politics/trump-financial-disclosure-bibles-liabilities.html
+
 **‘The Union’ Review: Old Flames and Spy Games**\
 `When a mission goes pear-shaped, a covert operative (Halle Berry) turns to a secret weapon: her high school boyfriend (Mark Wahlberg).`\
 https://nytimes.com/2024/08/15/movies/the-union-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5693391/2024/08/15/iose-epenesa-commits-iowa-footba
 **Matt Milano out for the foreseeable future — now what?**\
 `The Bills might need to seek outside help if the current options don't pan out.`\
 https://nytimes.com/athletic/5704172/2024/08/15/buffalo-bills-matt-milano-injury-torn-bicep-recovery/
-
-**Caleb Williams, Bears 'D' make big plays, face challenges vs. Bengals in joint practice**\
-`The Bears and Bengals practiced against each other in the rain. Matt Eberflus was happy with how his rookie quarterback handled it.`\
-https://nytimes.com/athletic/5704206/2024/08/15/bears-caleb-williams-bengals-joint-practice/
 

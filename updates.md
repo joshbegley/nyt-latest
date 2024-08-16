@@ -1,3 +1,7 @@
+**Trump Made $300,000 for Endorsing Bible, Financial Disclosure Shows**\
+`Donald J. Trump also listed $100 million in liabilities over judgments he owes in civil cases, and over $1 million in crypto holdings as he courts the industry for his campaign.`\
+https://nytimes.com/2024/08/15/us/politics/trump-financial-disclosure-bibles-liabilities.html
+
 **‘The Union’ Review: Old Flames and Spy Games**\
 `When a mission goes pear-shaped, a covert operative (Halle Berry) turns to a secret weapon: her high school boyfriend (Mark Wahlberg).`\
 https://nytimes.com/2024/08/15/movies/the-union-review.html
