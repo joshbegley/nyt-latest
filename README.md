@@ -1,3 +1,11 @@
+**How Liverpool managers start their reigns - and what it could mean for Slot**\
+`How important is a Liverpool manager's start? We analyse Slot's predecessors in style, spending and success over their first 10 games`\
+https://nytimes.com/athletic/5703135/2024/08/16/liverpool-manager-arne-slot-start-reign/
+
+**Jack Russell, ‘Great White’ Singer and Survivor of Nightclub Fire, Has Died**\
+`At a show in 2003 with his “Jack Russell’s Great White,” a pyrotechnics display ignited a fire that killed 100 people, including the band’s guitarist.`\
+https://nytimes.com/2024/08/16/arts/music/jack-russell-dead.html
+
 **How and why Leicester City have been frustrated in the transfer market so far**\
 `The financial impact of last year's unexpected relegation is still being felt this summer, even after Leicester's Premier League return`\
 https://nytimes.com/athletic/5702809/2024/08/16/leicester-city-transfer-window-psr/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5698116/2024/08/16/why-you-can-expect-to-see-plenty
 **Arsenal writers on their hopes and fears for the 2024-25 season**\
 `Have Arsenal done enough in the market to catch Manchester City? What can Mikel Arteta do better? Our reporters preview the season...`\
 https://nytimes.com/athletic/5700278/2024/08/16/arsenal-writers-season-hopes-fears/
-
-**Is becoming USMNT head coach the right move for Mauricio Pochettino?**\
-`Football is about timing, and that might be the best explanation for Pochettino taking the U.S. men's national team job`\
-https://nytimes.com/athletic/5703310/2024/08/16/mauricio-pochettino-usmnt/
-
-**Manchester City, the Premier League and the season everything might change**\
-`Manchester City are aiming for a fifth straight title, but that is set against the backdrop of a legal battle with the Premier League`\
-https://nytimes.com/athletic/5701869/2024/08/16/manchester-city-premier-league-charges-season/
 
