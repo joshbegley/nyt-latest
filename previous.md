@@ -1,3 +1,7 @@
+**Alcaraz smashes racket in Cincinnati Monfils defeat**\
+`Carlos Alcaraz’s US Open preparations took a hit on Friday as he was beaten in the Cincinnati second round by Gael Monfils.`\
+https://nytimes.com/athletic/5705697/2024/08/16/carlos-alcaraz-monfils-cincinatti-racket/
+
 **What It’s Like as a Barista at One of the World’s Busiest Train Stations**\
 `Commuters fuel up daily at the Cafe Grumpy in Grand Central Terminal. Here is the man who keeps the coffee flowing.`\
 https://nytimes.com/2024/08/16/dining/barista-grand-central-terminal-cafe-grumpy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5703262/2024/08/16/bournemouth-sign-evanilson-trans
 **When Does a Recession Become Official?**\
 `Just look at these six indicators.`\
 https://nytimes.com/2024/08/16/opinion/recession-official-indicators-economy.html
-
-**I’m Choosing Which Interns Will Get Job Offers. Do I Take Privilege Into Account?**\
-`The magazine’s Ethicist columnist on how to fairly evaluate candidates in a workplace.`\
-https://nytimes.com/2024/08/16/magazine/interns-fairness-privilege-ethics.html
 
