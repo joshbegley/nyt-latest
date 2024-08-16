@@ -1,3 +1,15 @@
+**Trump Says Civilian Award Is ‘Much Better’ Than Medal of Honor**\
+`The former president said Thursday said the reason was because those given the nation’s highest military award are “either in very bad shape because they’ve been hit so many times by bullets, or they’re dead.”`\
+https://nytimes.com/2024/08/16/us/politics/trump-civilian-award-military-honor.html
+
+**OpenAI Says It Disrupted an Iranian Misinformation Campaign**\
+`The company said the Iranian effort, which used ChatGPT, did not gain much traction.`\
+https://nytimes.com/2024/08/16/technology/openai-chatgpt-iran-misinformation.html
+
+**7 Hot Tracks From a New Generation of Female Rappers**\
+`Listen to recent songs from Megan Thee Stallion, Ice Spice, Latto and more.`\
+https://nytimes.com/2024/08/16/arts/music/amplifier-newsletter-female-rappers.html
+
 **Sancho left out of Man United squad for Premier League opener against Fulham**\
 `Jadon Sancho has been left out of Manchester United&#8217;s squad to face Fulham in their Premier League opener.`\
 https://nytimes.com/athletic/5705500/2024/08/16/man-united-sancho-fulham-squad/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/13/opinion/trumps-laughable-effort-to-avoid-being-se
 **Trump Pulls in Tulsi Gabbard for Debate Prep**\
 `Tulsi Gabbard, the former Democrat who has rebranded herself as a celebrity among Donald J. Trump’s supporters, once eviscerated Kamala Harris on a debate stage.`\
 https://nytimes.com/2024/08/16/us/politics/trump-debate-tulsi-gabbard.html
-
-**Israeli Settlers Attack a Palestinian Village in the West Bank**\
-`Dozens of Israeli settlers attacked the West Bank village of Jit, killing one person and leaving another one critically injured, according to Palestinian officials.`\
-https://nytimes.com/video/world/middleeast/100000009633638/israeli-settlers-west-bank-attack-.html
-
-**Connor Stalions lands high school coaching job**\
-`Stalions will work as the defensive coordinator at Mumford High School in Detroit this season.`\
-https://nytimes.com/athletic/5705365/2024/08/16/connor-stalions-michigan-coaching-job/
-
-**Live Q&A: Talking baseball with Eno Sarris on Friday 8/16 at 1:00 p.m. ET**\
-`Submit your questions for Eno Sarris' latest live chat about all things baseball. `\
-https://nytimes.com/athletic/5704149/2024/08/16/live-qa-talking-baseball-with-eno-sarris-on-friday-8-16-at-100-p-m-et/
 
