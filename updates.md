@@ -1,3 +1,7 @@
+**Is becoming USMNT head coach the right move for Mauricio Pochettino?**\
+`Football is about timing, and that might be the best explanation for Pochettino taking the U.S. men's national team job`\
+https://nytimes.com/athletic/5703310/2024/08/16/mauricio-pochettino-usmnt/
+
 **Manchester City, the Premier League and the season everything might change**\
 `Manchester City are aiming for a fifth straight title, but that is set against the backdrop of a legal battle with the Premier League`\
 https://nytimes.com/athletic/5701869/2024/08/16/manchester-city-premier-league-charges-season/
