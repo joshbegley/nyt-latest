@@ -1,3 +1,19 @@
+**Manchester City, the Premier League and the season everything might change**\
+`Manchester City are aiming for a fifth straight title, but that is set against the backdrop of a legal battle with the Premier League`\
+https://nytimes.com/athletic/5701869/2024/08/16/manchester-city-premier-league-charges-season/
+
+**Alan Shearer: My first season without Dad leaves a void. It still feels very raw**\
+`In this emotional, powerful column, Alan Shearer remembers his dad and explains why his absence leaves a void as the new season begins`\
+https://nytimes.com/athletic/5702986/2024/08/16/alan-shearer-dad-tribute/
+
+**Inside Man Utd's seismic summer: Recruitment upheaval, job fears and aggressive youth policy**\
+`The inside story of how club have been transformed on and off the field since last season`\
+https://nytimes.com/athletic/5702983/2024/08/16/manchester-united-summer-upheaval/
+
+**Does a high goals-per-game rate automatically mean the football is more entertaining?**\
+`Everyone loves goals, but were there actually too many in the Premier League last season? `\
+https://nytimes.com/athletic/5703011/2024/08/16/does-more-goals-mean-more-entertainment/
+
 **Everton embark on the long goodbye to Goodison - The Grand Old Lady and a 'museum of memories'**\
 `This will be the final season in the club's storied home of 132 years before moving to a state-of-the-art stadium on Liverpool's waterfront`\
 https://nytimes.com/athletic/5702582/2024/08/16/everton-goodison-farewell/
