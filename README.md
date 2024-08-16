@@ -1,3 +1,7 @@
+**Trump Names Friends and Major Donors to Oversee Transition Team**\
+`The appointment of Linda McMahon and Howard Lutnick to lead the effort is notable, as neither have been associated with Project 2025, a conservative policy plan seized on by Democrats.`\
+https://nytimes.com/2024/08/16/us/politics/trump-transition-team-2024-mcmahon-lutnick.html
+
 **As Bird Flu Spreads, Disease Trackers Set Their Sights on Pets**\
 `Like most countries, the U.S. has no comprehensive national system for monitoring disease in companion animals — which leaves pets and people at risk.`\
 https://nytimes.com/2024/08/16/health/pets-disease-surveillance.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5705132/2024/08/16/patson-daka-injury-leicester/
 **Kalvin Phillips to Ipswich: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500 series, we look at Kalvin Phillips' loan move to Ipswich`\
 https://nytimes.com/athletic/5702336/2024/08/16/kalvin-phillips-to-ipswich-the-athletic-500-transfer-ratings/
-
-**Chargers camp: Justin Herbert out of walking boot; Easton Stick faces big opportunity**\
-`The second preseason game Saturday will be a big moment for Stick. It's time to prove to the new regime that he can back up Herbert.`\
-https://nytimes.com/athletic/5704663/2024/08/16/chargers-training-camp-justin-herbert-easton-stick/
 
