@@ -1,3 +1,7 @@
+**Jack Russell, Great White Singer and Survivor of Nightclub Fire, Dies at 63**\
+`At a show in 2003 with his “Jack Russell’s Great White,” a pyrotechnics display ignited a fire that killed 100 people, including the band’s guitarist.`\
+https://nytimes.com/2024/08/16/arts/music/jack-russell-dead.html
+
 **After 19 Years, a Hong Kong Panda Finally Gives Birth**\
 `She is the oldest panda on record to give birth for the first time. Also unusual: the cubs were naturally conceived, a rarity for the vulnerable species.`\
 https://nytimes.com/2024/08/16/world/asia/panda-twins-hong-kong.html
