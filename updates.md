@@ -1,3 +1,11 @@
+**Kalvin Phillips to Ipswich: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we look at Kalvin Phillips' loan move to Ipswich`\
+https://nytimes.com/athletic/5702336/2024/08/16/kalvin-phillips-to-ipswich-the-athletic-500-transfer-ratings/
+
+**Chargers camp: Justin Herbert out of walking boot; Easton Stick faces big opportunity**\
+`The second preseason game Saturday will be a big moment for Stick. It's time to prove to the new regime that he can back up Herbert.`\
+https://nytimes.com/athletic/5704663/2024/08/16/chargers-training-camp-justin-herbert-easton-stick/
+
 **What I’m Reading: Why Democracy Erodes From the Top**\
 `Three book recommendations from sunny London.`\
 https://nytimes.com/2024/08/16/world/europe/what-im-reading-why-democracy-erodes-from-the-top.html
