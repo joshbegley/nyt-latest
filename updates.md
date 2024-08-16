@@ -1,3 +1,11 @@
+**Rutgers AD Pat Hobbs resigns after 9-year tenure**\
+`The 64-year-old Hobbs cited health-related concerns for his sudden departure from the job.`\
+https://nytimes.com/athletic/5705896/2024/08/16/rutgers-pat-hobbs-resigns/
+
+**Kyle Hendricks' mind isn't on the potential end of his Cubs career as free agency looms**\
+`Hendricks has his sights set on a postseason run: "Especially here at Wrigley Field in front of these fans. It doesn’t get any better."`\
+https://nytimes.com/athletic/5705854/2024/08/16/kyle-hendricks-cubs-career/
+
 **Brandon Aiyuk, Trent Williams and some 49ers optimism in the nick of time**\
 `Amid this trying summer, the 49ers really could use some good news about Brandon Aiyuk and Trent Williams. It might be coming soon.`\
 https://nytimes.com/athletic/5705742/2024/08/16/49ers-aiyuk-williams/
