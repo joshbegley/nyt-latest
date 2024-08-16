@@ -1,3 +1,11 @@
+**Harris and Trump Offer a Clear Contrast on the Economy**\
+`Both candidates embrace expansions of government power to steer economic outcomes — but in vastly different areas.`\
+https://nytimes.com/2024/08/16/business/economy/harris-trump-economy-inflation.html
+
+**Judge Blocks Joint Sports Streaming Service From 3 Media Giants**\
+`The planned service from Disney, Fox and Warner Bros. Discovery was slated to cost $42.99 a month and aimed at fans who had abandoned cable TV.`\
+https://nytimes.com/2024/08/16/business/media/fox-disney-warner-sports-streaming.html
+
 **Maurice Williams, Whose ‘Stay’ Was a Hit for Him and Others, Dies at 86**\
 `A chart topper in 1960 for him and his doo-wop group the Zodiacs, it inspired several notable cover versions and was heard in the 1987 film “Dirty Dancing.”`\
 https://nytimes.com/2024/08/16/arts/music/maurice-williams-dead.html
