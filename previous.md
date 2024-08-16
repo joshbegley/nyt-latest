@@ -1,3 +1,7 @@
+**Liz Moore on ‘The God of the Woods’**\
+`The author discusses her best-selling new novel about family secrets and a missing camper.`\
+https://nytimes.com/2024/08/16/books/review/podcast-liz-moore-interview-god-of-the-woods.html
+
 **Trump Says Civilian Award Is ‘Much Better’ Than Medal of Honor**\
 `The former president said Thursday the reason was because those given the nation’s highest military award are “either in very bad shape because they’ve been hit so many times by bullets, or they’re dead.”`\
 https://nytimes.com/2024/08/16/us/politics/trump-civilian-award-military-honor.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5704780/2024/08/16/bissouma-bentancur-tottenham/
 **Trump’s Laughable Effort to Avoid Being Sentenced Before November**\
 `It shows how nervous he is about Justice Merchan’s upcoming decision.`\
 https://nytimes.com/2024/08/13/opinion/trumps-laughable-effort-to-avoid-being-sentenced-before-november.html
-
-**Trump Pulls in Tulsi Gabbard for Debate Prep**\
-`Tulsi Gabbard, the former Democrat who has rebranded herself as a celebrity among Donald J. Trump’s supporters, once eviscerated Kamala Harris on a debate stage.`\
-https://nytimes.com/2024/08/16/us/politics/trump-debate-tulsi-gabbard.html
 
