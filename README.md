@@ -1,3 +1,7 @@
+**Chelsea's Moreira joins BlueCo-owned Strasbourg**\
+`Chelsea have confirmed winger Diego Moreira has joined Strasbourg on a permanent deal.`\
+https://nytimes.com/athletic/5704831/2024/08/16/diego-moreira-strasbourg-chelsea-transfer/
+
 **The Athletic’s Friday football quiz question #17**\
 `The Athletic's weekly conundrum from inside the trivia vaults`\
 https://nytimes.com/athletic/5703559/2024/08/16/the-athletics-friday-football-quiz-question-17/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/16/world/europe/ukraine-russia-kursk-incursion.html
 **Who Is Paetongtarn Shinawatra, Thailand’s New Prime Minister?**\
 `The political heir to an influential family is now leading Thailand with no governing experience in a tumultuous time.`\
 https://nytimes.com/2024/08/16/world/asia/thailand-prime-minister-paetongtarn-shinawatra.html
-
-**Tottenham to sign Odobert from Burnley**\
-`Tottenham Hotspur have reached an agreement to sign Wilson Odobert from Burnley.`\
-https://nytimes.com/athletic/5704772/2024/08/16/wilson-odobert-tottenham-transfer/
 
