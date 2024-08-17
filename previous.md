@@ -1,3 +1,11 @@
+**The Times Newsroom Goes to the Democratic National Convention**\
+`Lisa Lerer, a New York Times politics reporter, will cover the D.N.C. with a host of colleagues, building a makeshift office at the event in Chicago.`\
+https://nytimes.com/2024/08/17/insider/the-times-newsroom-goes-to-the-democratic-national-convention.html
+
+**A Project That Celebrates Collaboration and Cooperation**\
+`For T Magazine, Kate Guadagnino set out to identify the many people involved in creating a single object or artistic work, including a luxury handbag, a performance piece, a pizza and more.`\
+https://nytimes.com/2024/08/17/insider/team-projects.html
+
 **PSG striker Ramos set for three months out with ankle ligament injury**\
 `Paris Saint-Germain striker Goncalo Ramos will be sidelined for at least three months after suffering a serious ligament injury to his left ankle.`\
 https://nytimes.com/athletic/5706402/2024/08/17/goncalo-ramos-injury-psg/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5706290/2024/08/17/alex-moreno-nottingham-forest-lo
 **Why Draper and Auger-Aliassime's match point should change tennis' view on video replays**\
 `The sport keeps putting players, umpires, and fans in bad situations that they should not have to experience`\
 https://nytimes.com/athletic/5706255/2024/08/17/draper-auger-aliassime-cincinnati-match-point/
-
-**How to Watch the Democratic Convention**\
-`From the major networks to cable news to public television, there are many options for tuning in to the speeches by Vice President Kamala Harris, Gov. Tim Walz and others.`\
-https://nytimes.com/2024/08/17/us/politics/dnc-2024-watch-stream-tv.html
-
-**Here’s the latest on the presidential race.**\
-`By Simon J. Levien`\
-https://nytimes.com/live/2024/08/17/us/trump-harris-election/heres-the-latest-on-the-presidential-race
 

@@ -1,3 +1,11 @@
+**The Times Newsroom Goes to the Democratic National Convention**\
+`Lisa Lerer, a New York Times politics reporter, will cover the D.N.C. with a host of colleagues, building a makeshift office at the event in Chicago.`\
+https://nytimes.com/2024/08/17/insider/the-times-newsroom-goes-to-the-democratic-national-convention.html
+
+**A Project That Celebrates Collaboration and Cooperation**\
+`For T Magazine, Kate Guadagnino set out to identify the many people involved in creating a single object or artistic work, including a luxury handbag, a performance piece, a pizza and more.`\
+https://nytimes.com/2024/08/17/insider/team-projects.html
+
 **PSG striker Ramos set for three months out with ankle ligament injury**\
 `Paris Saint-Germain striker Goncalo Ramos will be sidelined for at least three months after suffering a serious ligament injury to his left ankle.`\
 https://nytimes.com/athletic/5706402/2024/08/17/goncalo-ramos-injury-psg/
