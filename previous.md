@@ -1,3 +1,23 @@
+**A New York City Hospital System Has Been Bitten by the Acting Bug**\
+`The Northwell Health system allowed filmmakers to make documentaries following its doctors, nurses and patients. It went so well, the hospital is starting a studio to make its own.`\
+https://nytimes.com/2024/08/17/nyregion/northwell-health-hospitals-film-television.html
+
+**Diving Into New York’s Murky Green Waters, Searching for Treasure**\
+`It’s hard to see through the water, and too easy to find trash, but divers are finding joy in exploring New York.`\
+https://nytimes.com/2024/08/17/nyregion/diving-into-new-yorks-murky-green-waters-searching-for-treasure.html
+
+**How a Brooklyn Business Owner and Foodie Spends Her Sundays**\
+`Kai Avent-deLeon, who owns a lifestyle store and a restaurant in Brooklyn, starts and ends her day with her journal. In between? Friends, family and delicious food.`\
+https://nytimes.com/2024/08/17/nyregion/kai-avent-delon-brooklyn-che-sincerely-tommy.html
+
+**When N.F.L. Dreams End, NASCAR’s Pit Crews Beckon**\
+`In NASCAR, victory — and money — is often determined by seconds, one reason car racing teams are increasingly looking to hire former college athletes.`\
+https://nytimes.com/2024/08/17/business/nascar-pit-crews-football-players.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/17/crosswords/spelling-bee-forum.html
+
 **Manchester United 1-0 Fulham: Post-Palhinha midfield yet to take shape, Smith Rowe debut**\
 `The key talking points from Fulham's opening night defeat at Old Trafford`\
 https://nytimes.com/athletic/5705916/2024/08/17/manchester-united-fulham-smith-rowe/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5706049/2024/08/17/caitlin-clark-indiana-fever-merc
 **Triston Casas returns, Dom Smith DFA'd and Red Sox win slugfest vs. Corbin Burnes**\
 `Casas didn't have any big hits in his return, but his presence lengthened a lineup that put up eight runs against the AL Cy Young favorite.`\
 https://nytimes.com/athletic/5706044/2024/08/17/red-sox-triston-casas-return-dom-smith-dfa/
-
-**What Wan-Bissaka offers West Ham: Coufal competition, Premier League experience and more**\
-`The London-born right-back is only 26 but is approaching his 200th Premier League appearance`\
-https://nytimes.com/athletic/5704729/2024/08/17/wan-bissaka-west-ham-coufal-experience/
-
-**Are Real Madrid untouchable? Can Barca compete? Spain's big two and a summer of change**\
-`Our writers covering Barca and Real Madrid look ahead as the new La Liga season gets started`\
-https://nytimes.com/athletic/5704950/2024/08/17/barcelona-real-madrid-la-liga-new-season/
-
-**Sangare's tackling? Yates' defending? Danilo's dynamism? Analysing Forest's midfield options**\
-`Nuno Espirito Santo has plenty of choices for the base of his midfield. Here is a detailed evaluation of the players at his disposal`\
-https://nytimes.com/athletic/5705197/2024/08/17/analysing-nottingham-forest-midfield-options/
-
-**Ranking the best and worst Premier League away kits: Graffiti, Lynx deodorant and 'night forest'**\
-`There are some maverick designs in here... some of which are good, some of which are bad. We've ranked them all from 20 to 1...`\
-https://nytimes.com/athletic/5684536/2024/08/17/premier-league-away-kits-rankings/
-
-**Welcome to the biggest season of James Maddison's career**\
-`No Premier League player will start this new season more keen to write a new story for himself than James Maddison`\
-https://nytimes.com/athletic/5702639/2024/08/17/james-maddison-tottenham-england-season/
 
