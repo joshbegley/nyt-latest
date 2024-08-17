@@ -1,3 +1,7 @@
+**The Atlanta Braves miss Ron Washington, and it sure sounds like he misses them too**\
+`Brian Snitker talked to him, Braves players hugged him. Then Washington spent a while talking about the Braves' up-and-down season.`\
+https://nytimes.com/athletic/5706030/2024/08/16/atlanta-braves-miss-ron-washington/
+
 **Body-Camera Video Shows Chaos Around Fatal Police Shooting of N.J. Woman**\
 `New Jersey’s attorney general is investigating the killing of Victoria G. Lee, whose family has said the police escalated a nonthreatening episode. The police said Ms. Lee had a knife.`\
 https://nytimes.com/2024/08/16/nyregion/fort-lee-shooting-victoria-lee.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/16/us/politics/dnc-abortion-rights.html
 **Rutgers AD Pat Hobbs resigns after 9-year tenure**\
 `The 64-year-old Hobbs cited health-related concerns for his sudden departure from the job.`\
 https://nytimes.com/athletic/5705896/2024/08/16/rutgers-pat-hobbs-resigns/
-
-**Kyle Hendricks' mind isn't on potential end of his Cubs career as free agency looms**\
-`Hendricks has his sights set on a postseason run: "Especially here at Wrigley Field in front of these fans. It doesn’t get any better."`\
-https://nytimes.com/athletic/5705854/2024/08/16/kyle-hendricks-cubs-career/
 
