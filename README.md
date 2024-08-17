@@ -1,3 +1,7 @@
+**The Movies of 1999**\
+`Twenty-five years ago was a landmark time for cinema, with films that captured our collective hope and paranoia about the coming millennium.`\
+https://nytimes.com/2024/08/17/briefing/the-movies-of-1999.html
+
 **A New National Park That Rests on Indigenous and Industrial History**\
 `The collapse of a steel mill project during the Great Depression preserved natural lands linked to First Nations people in Windsor, Ontario.`\
 https://nytimes.com/2024/08/17/world/canada/canada-windsor-national-park.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/17/books/review/all-the-rage-virginia-nicholson.html
 **Harris Puts Four Sun Belt States Back in Play, Times/Siena Polls Find**\
 `Kamala Harris and Donald Trump are in close races across Arizona, Georgia, Nevada and North Carolina, crucial swing states that Mr. Trump had seemed en route to run away with just a few weeks ago.`\
 https://nytimes.com/2024/08/17/us/elections/kamala-harris-trump-az-nc-ga-nv.html
-
-**Harris Gains in Sun Belt as Demographic Patterns Start to Look ‘Normal’**\
-`Gains among Black, Hispanic and young voters lift her into a tie across four swing states, new Times/Siena polls show.`\
-https://nytimes.com/2024/08/17/upshot/poll-harris-trump-sun-belt.html
 
