@@ -1,3 +1,7 @@
+**Gomez's Liverpool future uncertain after omission from squad for season opener**\
+`Joe Gomez’s future at Liverpool is increasingly uncertain after he was left out of their 20-man squad for their opening Premier League game at Ipswich Town.`\
+https://nytimes.com/athletic/5706254/2024/08/17/joe-gomez-liverpool-future-transfer/
+
 **The Movies of 1999**\
 `Twenty-five years ago was a landmark time for cinema, with films that captured our collective hope and paranoia about the coming millennium.`\
 https://nytimes.com/2024/08/17/briefing/the-movies-of-1999.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/17/us/kamala-harris-prosecutor-criminal-justice-refo
 **Sausage Legs and Wax Nose Jobs: Peeling the Layers on a Century of Beauty**\
 `In “All the Rage,” the social historian Virginia Nicholson discusses the changing standards that bedeviled and enthralled a century of women.`\
 https://nytimes.com/2024/08/17/books/review/all-the-rage-virginia-nicholson.html
-
-**Harris Puts Four Sun Belt States Back in Play, Times/Siena Polls Find**\
-`Kamala Harris and Donald Trump are in close races across Arizona, Georgia, Nevada and North Carolina, crucial swing states that Mr. Trump had seemed en route to run away with just a few weeks ago.`\
-https://nytimes.com/2024/08/17/us/elections/kamala-harris-trump-az-nc-ga-nv.html
 
