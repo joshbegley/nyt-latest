@@ -1,3 +1,7 @@
+**Jelly Roll Cannot Believe How His Life Turned Out**\
+`From jail and addiction to music stardom, the singer says he’s living a “modern American fairy tale.”`\
+https://nytimes.com/2024/08/17/magazine/jelly-roll-interview.html
+
 **Kamala Harris and the Return of ‘Tough on Crime’**\
 `Over her career, her rhetoric has tracked the national mood. So do Americans now want a prosecutor-in-chief?`\
 https://nytimes.com/2024/08/17/us/kamala-harris-prosecutor-criminal-justice-reform.html
