@@ -1,3 +1,11 @@
+**Lebanese Officials Say Israeli Strike Kills at Least 10**\
+`It would be one of the deadliest attacks in the country since Israel began fighting its war in Gaza. Negotiators have been pushing to reach a cease-fire in that war, hoping to avert a wider conflagration.`\
+https://nytimes.com/2024/08/17/world/middleeast/lebanon-israel-hezbollah-strike-cease-fire.html
+
+**Joshua Zirkzee debut shows he is more than a facilitator, he is also a finisher**\
+`Manchester United's new forward has been heavily touted as a provider who will link play - but his debut goal suggests there is more`\
+https://nytimes.com/athletic/5706019/2024/08/17/zirkzee-debut-manchester-united/
+
 **Nottingham Forest complete Ramon Sosa signing**\
 `Nottingham Forest have completed the signing of Paraguay winger Ramon Sosa, bringing a long saga to a positive end.`\
 https://nytimes.com/athletic/5706115/2024/08/17/nottingham-forest-ramon-sosa-signing/
