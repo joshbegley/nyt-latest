@@ -1,3 +1,7 @@
+**Nottingham Forest complete Ramon Sosa signing**\
+`Nottingham Forest have completed the signing of Paraguay winger Ramon Sosa, bringing a long saga to a positive end.`\
+https://nytimes.com/athletic/5706115/2024/08/17/nottingham-forest-ramon-sosa-signing/
+
 **A New York City Hospital System Has Been Bitten by the Acting Bug**\
 `The Northwell Health system allowed filmmakers to make documentaries following its doctors, nurses and patients. It went so well, the hospital is starting a studio to make its own.`\
 https://nytimes.com/2024/08/17/nyregion/northwell-health-hospitals-film-television.html

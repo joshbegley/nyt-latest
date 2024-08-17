@@ -1,3 +1,7 @@
+**Nottingham Forest complete Ramon Sosa signing**\
+`Nottingham Forest have completed the signing of Paraguay winger Ramon Sosa, bringing a long saga to a positive end.`\
+https://nytimes.com/athletic/5706115/2024/08/17/nottingham-forest-ramon-sosa-signing/
+
 **A New York City Hospital System Has Been Bitten by the Acting Bug**\
 `The Northwell Health system allowed filmmakers to make documentaries following its doctors, nurses and patients. It went so well, the hospital is starting a studio to make its own.`\
 https://nytimes.com/2024/08/17/nyregion/northwell-health-hospitals-film-television.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/17/pageoneplus/corrections-aug-17-2024.html
 **Caitlin Clark paints masterpiece in Fever's win over Mercury**\
 `Clark looked poised and the Fever looked like a team prepared for a playoff push. `\
 https://nytimes.com/athletic/5706049/2024/08/17/caitlin-clark-indiana-fever-mercury-wnba/
-
-**Triston Casas returns, Dom Smith DFA'd and Red Sox win slugfest vs. Corbin Burnes**\
-`Casas didn't have any big hits in his return, but his presence lengthened a lineup that put up eight runs against the AL Cy Young favorite.`\
-https://nytimes.com/athletic/5706044/2024/08/17/red-sox-triston-casas-return-dom-smith-dfa/
 
