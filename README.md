@@ -1,3 +1,7 @@
+**Zubimendi, Liverpool and how Basque loyalty has trumped personal ambition - for now**\
+`Spain midfielder's background and close relationships to friends and family trumped lure of Anfield opportunity - but the timing was crucial`\
+https://nytimes.com/athletic/5704778/2024/08/17/martin-zubimendi-liverpool-real-sociedad/
+
 **Premier League plane watch: How often did your team fly to games on last season's run-in?**\
 `The Athletic looked at the last 10 rounds of fixtures in the 2023-24 season to find out which clubs flew to their domestic away matches`\
 https://nytimes.com/athletic/5696011/2024/08/17/premier-league-domestic-flights/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/16/nyregion/fort-lee-shooting-victoria-lee.html
 **Jace Jung and Trey Sweeney debut as the Tigers turn their eyes toward the future**\
 `Third baseman Jace Jung and shortstop Trey Sweeney both made their MLB debuts on Friday. `\
 https://nytimes.com/athletic/5706010/2024/08/16/tigers-jace-jung-trey-sweeney-debut/
-
-**Fossils Show Giant Predatory Sea Scorpions Were Distance Swimmers**\
-`Specimens of what appear to be the largest eurypterid species found in Australia could shed light on the sudden extinction of the massive arthropods.`\
-https://nytimes.com/2024/08/16/science/giant-sea-scorpions-australia.html
 
