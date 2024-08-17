@@ -1,3 +1,7 @@
+**Spencer Torkelson returns to the Tigers: 'He doesn’t have to carry the franchise'**\
+`After nearly two months in Triple A, Torkelson went 2-for-3 with a double, a triple and a walk in his return to the majors.`\
+https://nytimes.com/athletic/5706778/2024/08/17/detroit-tigers-spencer-torkelson-return/
+
 **5 Bengals who helped themselves vs. Bears, 3 who didn't and 1 who made me think**\
 `Even in a Bengals preseason loss, a few Cincinnati players continued to show reason why they will stick on the 53-man roster this year.`\
 https://nytimes.com/athletic/5706877/2024/08/17/cincinnati-bengals-chicago-bears-preseason/
