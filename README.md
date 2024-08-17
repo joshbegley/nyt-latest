@@ -1,3 +1,7 @@
+**For Your Amusement**\
+`Rebecca Goldstein and Will Nediger’s puzzle takes us along for the ride.`\
+https://nytimes.com/2024/08/17/crosswords/daily-puzzle-2024-08-18.html
+
 **Why Falcons didn't play Michael Penix Jr. in second preseason game, plus 5 more thoughts**\
 `The Falcons fell 13-12 to the Ravens. Taylor Heinicke started at QB, Chris Blair had a big game and Younghoe Koo missed three field goals.`\
 https://nytimes.com/athletic/5706837/2024/08/17/falcons-michael-penix-preseason-ravens/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/17/us/shooting-air-force-base-san-antonio.html
 **Perry Kurtz, Comedian Who Appeared on ‘America’s Got Talent,’ Dies at 73**\
 `Mr. Kurtz, who was killed in a hit-and-run on Thursday, honed his routine over decades and eventually became a recognizable face at comedy institutions.`\
 https://nytimes.com/2024/08/17/arts/television/perry-kurtz-dead-hit-run.html
-
-**Everton's Dyche 'confused' by VAR penalty overturn in defeat to Brighton**\
-`Everton manager Sean Dyche has said he is &#8220;confused&#8221; by the decision to overturn a penalty in his side&#8217;s favour in their Premier League defeat to Brighton &amp; Hove Albion on Saturday.`\
-https://nytimes.com/athletic/5706642/2024/08/17/evertons-sean-dyche-confused-by-var-penalty-overturn-in-defeat-to-brighton/
 
