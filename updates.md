@@ -1,3 +1,19 @@
+**Ravens insist they believe in their young offensive linemen. They better be right**\
+`With injuries pushing young offensive linemen to the forefront, the Ravens are once again betting on their reputable scouting staff.`\
+https://nytimes.com/athletic/5706942/2024/08/17/baltimore-ravens-preseason-training-camp-tyler-linderbaum/
+
+**Jahns: Saturday magic act proves Bears QB Caleb Williams is getting better every day**\
+`CHICAGO — It took nearly an entire half of football, but quarterback Caleb Williams finally provided everyone at Soldier Field — and those watching across the country — with glimpses of what’s to come this season and beyond.`\
+https://nytimes.com/athletic/5706970/2024/08/17/bears-caleb-williams-getting-better/
+
+**Another Outer Banks Home Collapses Into Ocean, a Stark Reminder of Climate Change**\
+`In Rodanthe, N.C., seven homes have been lost to the ocean in the last four years, as rising sea levels erode shorelines and put more buildings at risk.`\
+https://nytimes.com/2024/08/17/us/north-carolina-house-collapse-ernesto.html
+
+**Mahomes says he improvised behind-the-back pass**\
+`Mahomes pulled off the highlight-worthy throw less than two weeks after executing the trick in practice.`\
+https://nytimes.com/athletic/5707016/2024/08/17/patrick-mahomes-trick-pass-chiefs-lions/
+
 **Reds place All-Star starter Hunter Greene on IL with elbow soreness**\
 `Greene in 143.1 innings, is boasting a 2.83 ERA, a 1.02 WHIP with a 162 strikeouts and 53 BB.`\
 https://nytimes.com/athletic/5707029/2024/08/17/reds-hunter-greene-elbow-soreness/

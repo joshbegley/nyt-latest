@@ -27,7 +27,7 @@ https://nytimes.com/live/2024/08/17/us/trump-harris-election/tim-walz-plays-up-h
 https://nytimes.com/athletic/5706877/2024/08/17/cincinnati-bengals-chicago-bears-preseason/
 
 **Ryan Pressly hits injured list during Astros' toughest stretch of the season**\
-`The Astros say their setup man has a lower back strain, a problem he tried to pitch through during the club’s last road trip.`\
+`The Astros say their set-up man has a lower back strain, a problem he tried to pitch through during the club’s last road trip.`\
 https://nytimes.com/athletic/5706940/2024/08/17/astros-ryan-pressly-injured-list/
 
 **For Your Amusement**\
