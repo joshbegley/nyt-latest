@@ -1,3 +1,7 @@
+**Body-Camera Video Shows Chaos Around Fatal Police Shooting of N.J. Woman**\
+`New Jersey’s attorney general is investigating the killing of Victoria G. Lee, whose family has said the police escalated a nonthreatening episode. The police said Ms. Lee had a knife.`\
+https://nytimes.com/2024/08/16/nyregion/fort-lee-shooting-victoria-lee.html
+
 **Jace Jung and Trey Sweeney debut as the Tigers turn their eyes toward the future**\
 `Third baseman Jace Jung and shortstop Trey Sweeney both made their MLB debuts on Friday. `\
 https://nytimes.com/athletic/5706010/2024/08/16/tigers-jace-jung-trey-sweeney-debut/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5705896/2024/08/16/rutgers-pat-hobbs-resigns/
 **Kyle Hendricks' mind isn't on potential end of his Cubs career as free agency looms**\
 `Hendricks has his sights set on a postseason run: "Especially here at Wrigley Field in front of these fans. It doesn’t get any better."`\
 https://nytimes.com/athletic/5705854/2024/08/16/kyle-hendricks-cubs-career/
-
-**Brandon Aiyuk, Trent Williams and some 49ers optimism in the nick of time**\
-`Amid this trying summer, the 49ers really could use some good news about Brandon Aiyuk and Trent Williams. It might be coming soon.`\
-https://nytimes.com/athletic/5705742/2024/08/16/49ers-aiyuk-williams/
 

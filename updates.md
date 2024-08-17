@@ -1,3 +1,7 @@
+**Body-Camera Video Shows Chaos Around Fatal Police Shooting of N.J. Woman**\
+`New Jersey’s attorney general is investigating the killing of Victoria G. Lee, whose family has said the police escalated a nonthreatening episode. The police said Ms. Lee had a knife.`\
+https://nytimes.com/2024/08/16/nyregion/fort-lee-shooting-victoria-lee.html
+
 **Mets hitters attempt to adjust as they face more spin: 'This league is crazy, man'**\
 `Since the All-Star break, no team has seen more breaking balls than the Mets.`\
 https://nytimes.com/athletic/5705928/2024/08/16/mets-hitters-breaking-balls-spin/
