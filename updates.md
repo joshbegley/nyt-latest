@@ -1,3 +1,7 @@
+**The Briefing: Arsenal 2 Wolves 0 - Saka's fast start, Raya's stunning save**\
+`Arsenal managed a 2-0 win against Wolves to start their new Premier League campaign`\
+https://nytimes.com/athletic/5704913/2024/08/17/arsenal-wolves-result-analysis-report/
+
 **Are We Ever Going to Get a Civil War Film That Tells the Truth?**\
 `A few thoughts on the movie “Gettysburg.”`\
 https://nytimes.com/2024/08/17/opinion/civil-war-film-gettysburg.html
