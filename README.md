@@ -1,3 +1,7 @@
+**The Briefing: Arsenal 2 Wolves 0 - Saka's fast start, Raya's stunning save**\
+`Arsenal managed a 2-0 win against Wolves to start their new Premier League campaign`\
+https://nytimes.com/athletic/5704913/2024/08/17/arsenal-wolves-result-analysis-report/
+
 **Are We Ever Going to Get a Civil War Film That Tells the Truth?**\
 `A few thoughts on the movie “Gettysburg.”`\
 https://nytimes.com/2024/08/17/opinion/civil-war-film-gettysburg.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5706444/2024/08/17/jarell-quansah-liverpool-arne-sl
 **The Times Newsroom Goes to the Democratic National Convention**\
 `Lisa Lerer, a New York Times politics reporter, will cover the D.N.C. with a host of colleagues, building a makeshift office at the event in Chicago.`\
 https://nytimes.com/2024/08/17/insider/the-times-newsroom-goes-to-the-democratic-national-convention.html
-
-**A Project That Celebrates Collaboration and Cooperation**\
-`For T Magazine, Kate Guadagnino set out to identify the many people involved in creating a single object or artistic work, including a luxury handbag, a performance piece, a pizza and more.`\
-https://nytimes.com/2024/08/17/insider/team-projects.html
 
