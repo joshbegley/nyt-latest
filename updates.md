@@ -1,3 +1,7 @@
+**Manchester United 1-0 Fulham: Post-Palhinha midfield yet to take shape, Smith Rowe debut**\
+`The key talking points from Fulham's opening night defeat at Old Trafford`\
+https://nytimes.com/athletic/5705916/2024/08/17/manchester-united-fulham-smith-rowe/
+
 **Joshua Zirkzee debut shows he is more than a facilitator, he is also a finisher**\
 `Manchester United's new forward has been heavily touted as a provided who will link play - but his debut goal suggests there is more`\
 https://nytimes.com/athletic/5706019/2024/08/17/zirkzee-debut-manchester-united/
