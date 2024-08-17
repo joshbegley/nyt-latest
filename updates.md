@@ -1,3 +1,11 @@
+**George Santos Is Expected to Plead Guilty, People Close to the Case Say**\
+`Mr. Santos could change his mind, but witnesses in his campaign fraud case were told by federal prosecutors that he intends to plead guilty on Monday.`\
+https://nytimes.com/2024/08/17/nyregion/santos-pleads-guilty.html
+
+**West Brom 0 Leeds 0: Did Leeds miss Rutter? Has it been a tough start for Bogle?**\
+`Leeds managed a second Championship draw on the spin when they faced West Brom — here are our takeaways from the game`\
+https://nytimes.com/athletic/5706258/2024/08/17/leeds-united-west-brom-analysis/
+
 **Trump’s Media Blitz: Talk Radio, a Video Game Celebrity and Elon Musk**\
 `A whirl of appearances in media venues large and small have defined Donald Trump’s past four weeks, as he tries to wrest attention from his new opponent, Kamala Harris.`\
 https://nytimes.com/2024/08/17/business/media/trump-media-strategy.html
