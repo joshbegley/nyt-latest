@@ -1,3 +1,7 @@
+**5 Bengals who helped themselves vs. Bears, 3 who didn't and 1 who made me think**\
+`Even in a Bengals preseason loss, a few Cincinnati players continued to show reason why they will stick on the 53-man roster this year.`\
+https://nytimes.com/athletic/5706877/2024/08/17/cincinnati-bengals-chicago-bears-preseason/
+
 **Ryan Pressly hits injured list during Astros' toughest stretch of the season**\
 `The Astros say their setup man has a lower back strain, a problem he tried to pitch through during the club’s last road trip.`\
 https://nytimes.com/athletic/5706940/2024/08/17/astros-ryan-pressly-injured-list/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5706559/2024/08/17/mason-greenwood-marseille-goals-
 **Newcastle briefing: Did Schar deserve a red and time to give up on Guehi?**\
 `From 'soft' dismissals to transfer chat, we analyse the major talking points from the 1-0 win over Southampton`\
 https://nytimes.com/athletic/5706622/2024/08/17/newcastle-united-southampton-result-analysis/
-
-**Gate at Joint Base San Antonio Is Site of Two Shootings, Officials Say**\
-`Separate episodes of gunfire happened hours apart early on Saturday at a gate to the military installation. A motive was unclear, the authorities said.`\
-https://nytimes.com/2024/08/17/us/shooting-air-force-base-san-antonio.html
 

@@ -1,3 +1,7 @@
+**5 Bengals who helped themselves vs. Bears, 3 who didn't and 1 who made me think**\
+`Even in a Bengals preseason loss, a few Cincinnati players continued to show reason why they will stick on the 53-man roster this year.`\
+https://nytimes.com/athletic/5706877/2024/08/17/cincinnati-bengals-chicago-bears-preseason/
+
 **Ryan Pressly hits injured list during Astros' toughest stretch of the season**\
 `The Astros say their setup man has a lower back strain, a problem he tried to pitch through during the club’s last road trip.`\
 https://nytimes.com/athletic/5706940/2024/08/17/astros-ryan-pressly-injured-list/
