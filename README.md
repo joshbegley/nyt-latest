@@ -1,3 +1,11 @@
+**Premier League plane watch: How often did your team fly to games on last season's run-in?**\
+`The Athletic looked at the last 10 rounds of fixtures in the 2023-24 season to find out which clubs flew to their domestic away matches`\
+https://nytimes.com/athletic/5696011/2024/08/17/premier-league-domestic-flights/
+
+**Musah: 'Without God, I wouldn't be in this position - millions of people work as hard as me'**\
+`USMNT midfielder on growing up in Italy, the U.S. and England, playing for Milan and starring alongside with Bellingham, Musiala and Saka`\
+https://nytimes.com/athletic/5696895/2024/08/17/yunus-musah-ac-milan-interview/
+
 **Doubting America’s ‘Nuclear Umbrella,’ Some South Koreans Want Their Own**\
 `Washington says it would defend the South against North Korea with nuclear arms, if need be. But more and more people in the South think it should rely on itself.`\
 https://nytimes.com/2024/08/17/world/asia/south-korea-nuclear-arsenal.html
@@ -14,8 +22,8 @@ https://nytimes.com/2024/08/17/pageoneplus/quotation-of-the-day-football-dream-o
 `The head of the union, which has not backed a presidential candidate this year, asked to speak at both parties’ conventions. He spoke at the Republican convention in July.`\
 https://nytimes.com/2024/08/16/us/politics/kamala-harris-teamsters.html
 
-**The Atlanta Braves miss Ron Washington, and it sure sounds like he misses them too**\
-`Brian Snitker talked to him, Braves players hugged him. Then Washington spent a while talking about the Braves' up-and-down season.`\
+**Atlanta Braves miss Ron Washington, and it sure sounds like he misses them, too**\
+`Brian Snitker talked to him, Braves players hugged him. Then, Washington spent a while talking about the Braves' up-and-down season.`\
 https://nytimes.com/athletic/5706030/2024/08/16/atlanta-braves-miss-ron-washington/
 
 **Body-Camera Video Shows Chaos Around Fatal Police Shooting of N.J. Woman**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5706010/2024/08/16/tigers-jace-jung-trey-sweeney-de
 **Fossils Show Giant Predatory Sea Scorpions Were Distance Swimmers**\
 `Specimens of what appear to be the largest eurypterid species found in Australia could shed light on the sudden extinction of the massive arthropods.`\
 https://nytimes.com/2024/08/16/science/giant-sea-scorpions-australia.html
-
-**Thinks (On)**\
-`Brandon Koppy submits a clean, confident Saturday crossword puzzle.`\
-https://nytimes.com/2024/08/16/crosswords/daily-puzzle-2024-08-17.html
-
-**From pencil bats to Scooby spikes, Players' Weekend showcasing a different side of MLB**\
-`This weekend, players will highlight elements of their personalities, interests and charities through their bats, gloves, and spikes.`\
-https://nytimes.com/athletic/5705821/2024/08/16/players-weekend-mlb-highlights/
 
