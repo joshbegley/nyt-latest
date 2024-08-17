@@ -1,3 +1,7 @@
+**Angel Gome hospitalised after head injury**\
+`Lille midfielder Angel Gomes is in hospital after suffering a serious head injury in his side&#8217;s Ligue 1 match against Reims.`\
+https://nytimes.com/athletic/5706800/2024/08/17/angel-gomes-head-injury-lille/
+
 **De Zerbi: Greenwood's Marseille goals will help reduce controversy**\
 `Roberto De Zerbi has praised Mason Greenwood after the forward marked his Marseille debut with two goals in a 5-1 victory against Brest.`\
 https://nytimes.com/athletic/5706559/2024/08/17/mason-greenwood-marseille-goals-roberto-de-zerbi/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5706465/2024/08/17/danilo-injury-nottingham-forest/
 **Ipswich were beaten by Liverpool - but this is why they shouldn't lose heart**\
 `Kieran McKenna's side were ultimately outclassed but their display - especially from Leif Davis - boded well`\
 https://nytimes.com/athletic/5706501/2024/08/17/ipswich-town-liverpool-tactics/
-
-**Evanilson to Bournemouth: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500 series, we look at Evanilson's move to Bournemouth.`\
-https://nytimes.com/athletic/5704690/2024/08/17/evanilson-to-bournemouth-the-athletic-500-transfer-ratings/
 

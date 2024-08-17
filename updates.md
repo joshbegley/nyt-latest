@@ -1,3 +1,7 @@
+**Angel Gome hospitalised after head injury**\
+`Lille midfielder Angel Gomes is in hospital after suffering a serious head injury in his side&#8217;s Ligue 1 match against Reims.`\
+https://nytimes.com/athletic/5706800/2024/08/17/angel-gomes-head-injury-lille/
+
 **Newcastle briefing: Did Schar deserve a red and time to give up on Guehi?**\
 `From 'soft' dismissals to transfer chat, we analyse the major talking points from the 1-0 win over Southampton`\
 https://nytimes.com/athletic/5706622/2024/08/17/newcastle-united-southampton-result-analysis/
