@@ -1,3 +1,7 @@
+**Evanilson to Bournemouth: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we look at Evanilson's move to Bournemouth.`\
+https://nytimes.com/athletic/5704690/2024/08/17/evanilson-to-bournemouth-the-athletic-500-transfer-ratings/
+
 **Harris Campaign’s Legal Team Takes Shape as Election Battles Heat Up**\
 `The campaign is adding Marc Elias, one of the party’s top election lawyers, to help Democrats counter what they expect to be a contentious postelection period.`\
 https://nytimes.com/2024/08/17/us/elections/democrats-election-legal-challenges.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/17/insider/digital-camera.html
 **Rick Martínez’s Tostadas Are a Treat**\
 `One reader said, “This was one of the most delicious recipes we’ve ever made.”`\
 https://nytimes.com/2024/08/17/dining/rick-martinezs-tostadas-are-a-treat.html
-
-**Quansah substituted after aerial duels struggles - Slot**\
-`Arne Slot explained defender Jarell Quansah was taken off at half-time during Liverpool&#8217;s victory over Ipswich Town because he felt his side were not winning enough aerial duels.`\
-https://nytimes.com/athletic/5706444/2024/08/17/jarell-quansah-liverpool-arne-slot/
 
