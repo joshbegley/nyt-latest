@@ -1,3 +1,7 @@
+**Harris Campaign’s Legal Team Takes Shape as Election Battles Heat Up**\
+`The campaign is adding Marc Elias, one of the party’s top election lawyers, to help Democrats counter what they expect to be a contentious postelection period.`\
+https://nytimes.com/2024/08/17/us/elections/democrats-election-legal-challenges.html
+
 **The Briefing: Arsenal 2 Wolves 0 - Saka's fast start, Raya's stunning save**\
 `Arsenal managed a 2-0 win against Wolves to start their new Premier League campaign`\
 https://nytimes.com/athletic/5704913/2024/08/17/arsenal-wolves-result-analysis-report/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/17/dining/rick-martinezs-tostadas-are-a-treat.html
 **Quansah substituted after aerial duels struggles - Slot**\
 `Arne Slot explained defender Jarell Quansah was taken off at half-time during Liverpool&#8217;s victory over Ipswich Town because he felt his side were not winning enough aerial duels.`\
 https://nytimes.com/athletic/5706444/2024/08/17/jarell-quansah-liverpool-arne-slot/
-
-**The Times Newsroom Goes to the Democratic National Convention**\
-`Lisa Lerer, a New York Times politics reporter, will cover the D.N.C. with a host of colleagues, building a makeshift office at the event in Chicago.`\
-https://nytimes.com/2024/08/17/insider/the-times-newsroom-goes-to-the-democratic-national-convention.html
 
