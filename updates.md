@@ -1,3 +1,7 @@
+**Ipswich were beaten by Liverpool - but this is why they shouldn't lose heart**\
+`Kieran McKenna's side were ultimately outclassed but their display - especially from Leif Davis - boded well`\
+https://nytimes.com/athletic/5706501/2024/08/17/ipswich-town-liverpool-tactics/
+
 **Evanilson to Bournemouth: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500 series, we look at Evanilson's move to Bournemouth.`\
 https://nytimes.com/athletic/5704690/2024/08/17/evanilson-to-bournemouth-the-athletic-500-transfer-ratings/
