@@ -31,7 +31,7 @@ https://nytimes.com/2024/08/17/crosswords/spelling-bee-forum.html
 https://nytimes.com/athletic/5705916/2024/08/17/manchester-united-fulham-smith-rowe/
 
 **Joshua Zirkzee debut shows he is more than a facilitator, he is also a finisher**\
-`Manchester United's new forward has been heavily touted as a provided who will link play - but his debut goal suggests there is more`\
+`Manchester United's new forward has been heavily touted as a provider who will link play - but his debut goal suggests there is more`\
 https://nytimes.com/athletic/5706019/2024/08/17/zirkzee-debut-manchester-united/
 
 **Corrections: Aug. 17, 2024**\
