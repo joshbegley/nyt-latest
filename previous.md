@@ -1,3 +1,7 @@
+**Triston Casas returns, Dom Smith DFA'd and Red Sox win slugfest vs. Corbin Burnes**\
+`Casas didn't have any big hits in his return, but his presence lengthened a lineup that put up eight runs against the AL Cy Young favorite.`\
+https://nytimes.com/athletic/5706044/2024/08/17/red-sox-triston-casas-return-dom-smith-dfa/
+
 **What Wan-Bissaka offers West Ham: Coufal competition, Premier League experience and more**\
 `The London-born right-back is only 26 but is approaching his 200th Premier League appearance`\
 https://nytimes.com/athletic/5704729/2024/08/17/wan-bissaka-west-ham-coufal-experience/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5696895/2024/08/17/yunus-musah-ac-milan-interview/
 **Doubting America’s ‘Nuclear Umbrella,’ Some South Koreans Want Their Own**\
 `Washington says it would defend the South against North Korea with nuclear arms, if need be. But more and more people in the South think it should rely on itself.`\
 https://nytimes.com/2024/08/17/world/asia/south-korea-nuclear-arsenal.html
-
-**Saturday's MLB odds, best bets: Predictions for pitching matchups, props, playoffs and more**\
-`See pitching matchups, playoff projections, win projections and more for Saturday's MLB games.`\
-https://nytimes.com/athletic/5705397/2024/08/17/mlb-odds-best-bets-projections-august-17/
 
