@@ -1,3 +1,7 @@
+**Rick Martínez’s Tostadas Are a Treat**\
+`One reader said, “This was one of the most delicious recipes we’ve ever made.”`\
+https://nytimes.com/2024/08/17/dining/rick-martinezs-tostadas-are-a-treat.html
+
 **The Briefing: Arsenal 2 Wolves 0 - Saka's fast start, Raya's stunning save**\
 `Arsenal managed a 2-0 win against Wolves to start their new Premier League campaign`\
 https://nytimes.com/athletic/5704913/2024/08/17/arsenal-wolves-result-analysis-report/

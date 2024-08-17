@@ -27,7 +27,7 @@ https://nytimes.com/2024/08/17/us/politics/kamala-harris-ads.html
 https://nytimes.com/2024/08/17/insider/digital-camera.html
 
 **Rick Martínez’s Tostadas Are a Treat**\
-`“This was one of the most delicious recipes we’ve ever made.”`\
+`One reader said, “This was one of the most delicious recipes we’ve ever made.”`\
 https://nytimes.com/2024/08/17/dining/rick-martinezs-tostadas-are-a-treat.html
 
 **Quansah substituted after aerial duels struggles - Slot**\
