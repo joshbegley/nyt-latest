@@ -1,3 +1,7 @@
+**From pencil bats to Scooby spikes, Players' Weekend showcasing a different side of MLB**\
+`This weekend, players will be highlighting elements of their personalities, interests and charities through their bats, gloves, and spikes.`\
+https://nytimes.com/athletic/5705821/2024/08/16/players-weekend-mlb-highlights/
+
 **Dodgers' Tyler Glasnow goes on IL with elbow tendonitis**\
 `The Dodgers have seen 11 starting pitchers land on the injured list this season.`\
 https://nytimes.com/athletic/5705948/2024/08/16/dodgers-tyler-glasnow-elbow-injury/
