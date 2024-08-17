@@ -1,3 +1,15 @@
+**What Wan-Bissaka offers West Ham: Coufal competition, Premier League experience and more**\
+`The London-born right-back is only 26 but is approaching his 200th Premier League appearance`\
+https://nytimes.com/athletic/5704729/2024/08/17/wan-bissaka-west-ham-coufal-experience/
+
+**Are Real Madrid untouchable? Can Barca compete? Spain's big two and a summer of change**\
+`Our writers covering Barca and Real Madrid look ahead as the new La Liga season gets started`\
+https://nytimes.com/athletic/5704950/2024/08/17/barcelona-real-madrid-la-liga-new-season/
+
+**Sangare's tackling? Yates' defending? Danilo's dynamism? Analysing Forest's midfield options**\
+`Nuno Espirito Santo has plenty of choices for the base of his midfield. Here is a detailed evaluation of the players at his disposal`\
+https://nytimes.com/athletic/5705197/2024/08/17/analysing-nottingham-forest-midfield-options/
+
 **Ranking the best and worst Premier League away kits: Graffiti, Lynx deodorant and 'night forest'**\
 `There are some maverick designs in here... some of which are good, some of which are bad. We've ranked them all from 20 to 1...`\
 https://nytimes.com/athletic/5684536/2024/08/17/premier-league-away-kits-rankings/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/17/world/asia/south-korea-nuclear-arsenal.html
 **Saturday's MLB odds, best bets: Predictions for pitching matchups, props, playoffs and more**\
 `See pitching matchups, playoff projections, win projections and more for Saturday's MLB games.`\
 https://nytimes.com/athletic/5705397/2024/08/17/mlb-odds-best-bets-projections-august-17/
-
-**Quotation of the Day: Football Dream Over? NASCAR Has a Job It’d Like to Discuss.**\
-`Quotation of the Day for Saturday, August 17, 2024.`\
-https://nytimes.com/2024/08/17/pageoneplus/quotation-of-the-day-football-dream-over-nascar-has-a-job-itd-like-to-discuss.html
-
-**Teamsters Union Says Harris Has Accepted Offer to Meet Its Leaders**\
-`The head of the union, which has not backed a presidential candidate this year, asked to speak at both parties’ conventions. He spoke at the Republican convention in July.`\
-https://nytimes.com/2024/08/16/us/politics/kamala-harris-teamsters.html
-
-**Atlanta Braves miss Ron Washington, and it sure sounds like he misses them, too**\
-`Brian Snitker talked to him, Braves players hugged him. Then, Washington spent a while talking about the Braves' up-and-down season.`\
-https://nytimes.com/athletic/5706030/2024/08/16/atlanta-braves-miss-ron-washington/
 
