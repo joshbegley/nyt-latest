@@ -1,3 +1,7 @@
+**Thinks (On)**\
+`Brandon Koppy submits a clean, confident Saturday crossword puzzle.`\
+https://nytimes.com/2024/08/16/crosswords/daily-puzzle-2024-08-17.html
+
 **From pencil bats to Scooby spikes, Players' Weekend showcasing a different side of MLB**\
 `This weekend, players will be highlighting elements of their personalities, interests and charities through their bats, gloves, and spikes.`\
 https://nytimes.com/athletic/5705821/2024/08/16/players-weekend-mlb-highlights/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/16/health/covid-habits-testing.html
 **Landon Donovan named San Diego Wave interim coach**\
 `Donovan is one of the most decorated U.S. men’s soccer players in program history with 57 goals in 157 international caps.`\
 https://nytimes.com/athletic/5705849/2024/08/16/landon-donovan-san-diego-wave-coach-nwsl/
-
-**Gaza Cease-Fire Talks to Resume in Cairo, as Mediators Race to Head Off Wider War**\
-`Top officials from the U.S., Israel, Egypt and Qatar ended two days of talks in Doha aimed at trying to resolve remaining disagreements between Israel and Hamas.`\
-https://nytimes.com/2024/08/16/world/middleeast/cease-fire-talks-doha-israel-hamas.html
 
