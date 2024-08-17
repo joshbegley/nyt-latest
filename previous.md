@@ -19,7 +19,7 @@ https://nytimes.com/2024/08/17/us/north-carolina-house-collapse-ernesto.html
 https://nytimes.com/athletic/5707016/2024/08/17/patrick-mahomes-trick-pass-chiefs-lions/
 
 **Reds place All-Star starter Hunter Greene on IL with elbow soreness**\
-`Greene in 143.1 innings, is boasting a 2.83 ERA, a 1.02 WHIP with a 162 strikeouts and 53 BB.`\
+`Greene, 9-4 with a 2.83 ERA, was scheduled to start Monday in Toronto. No announcement was made as to who would make the start Monday.`\
 https://nytimes.com/athletic/5707029/2024/08/17/reds-hunter-greene-elbow-soreness/
 
 **Tim Walz plays up his Nebraska roots at rally near Omaha.**\

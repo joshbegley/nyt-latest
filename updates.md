@@ -1,3 +1,7 @@
+**Reds place All-Star starter Hunter Greene on IL with elbow soreness**\
+`Greene, 9-4 with a 2.83 ERA, was scheduled to start Monday in Toronto. No announcement was made as to who would make the start Monday.`\
+https://nytimes.com/athletic/5707029/2024/08/17/reds-hunter-greene-elbow-soreness/
+
 **New Real Estate Rules Sow Confusion, at Least in Short Term**\
 `Changes in how real estate commissions are advertised and paid went into effect this weekend. Buyers and even some agents aren’t sure what they mean.`\
 https://nytimes.com/2024/08/17/realestate/nar-commissions-rules-changes.html
