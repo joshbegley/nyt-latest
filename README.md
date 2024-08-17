@@ -1,3 +1,7 @@
+**Why Draper and Auger-Aliassime's match point should change tennis' view on video replays**\
+`The sport keeps putting players, umpires, and fans in bad situations that they should not have to experience`\
+https://nytimes.com/athletic/5706255/2024/08/17/draper-auger-aliassime-cincinnati-match-point/
+
 **How to Watch the Democratic Convention**\
 `From the major networks to cable news to public television, there are many options for tuning in to the speeches by Vice President Kamala Harris, Gov. Tim Walz and others.`\
 https://nytimes.com/2024/08/17/us/politics/dnc-2024-watch-stream-tv.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/17/opinion/masculinity-liberal-conservative.html
 **The New York Suburb Where Democrats Hope to Claw Back Victory**\
 `Long Island is an increasingly Republican stronghold, but Democrats believe they have a chance to win key House races there this year.`\
 https://nytimes.com/2024/08/17/opinion/long-island-house-election.html
-
-**After Biden Bloodletting, Dems Just Want to Have Fun!**\
-`Democrats parade to the post-coup convention.`\
-https://nytimes.com/2024/08/17/opinion/election-dnc-convention.html
 
