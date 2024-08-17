@@ -1,3 +1,7 @@
+**Lebanese Officials Say Israeli Strike Kills at Least 10**\
+`It would be one of the deadliest attacks in the country since Israel began fighting its war in Gaza. Negotiators have been pushing to reach a cease-fire in that war, hoping to avert a wider conflagration.`\
+https://nytimes.com/2024/08/17/world/middleeast/lebanon-israel-hezbollah-strike-cease-fire.html
+
 **Nottingham Forest complete Ramon Sosa signing**\
 `Nottingham Forest have completed the signing of Paraguay winger Ramon Sosa, bringing a long saga to a positive end.`\
 https://nytimes.com/athletic/5706115/2024/08/17/nottingham-forest-ramon-sosa-signing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5706019/2024/08/17/zirkzee-debut-manchester-united/
 **Corrections: Aug. 17, 2024**\
 `Corrections that appeared in print on Saturday, Aug. 17, 2024.`\
 https://nytimes.com/2024/08/17/pageoneplus/corrections-aug-17-2024.html
-
-**Caitlin Clark paints masterpiece in Fever's win over Mercury**\
-`Clark looked poised and the Fever looked like a team prepared for a playoff push. `\
-https://nytimes.com/athletic/5706049/2024/08/17/caitlin-clark-indiana-fever-mercury-wnba/
 
