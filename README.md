@@ -1,3 +1,7 @@
+**Ukraine Destroys Key Russian Bridge as It Presses On With Offensive**\
+`The bridge’s destruction is a setback for Russian supply lines as Ukraine seeks to consolidate its territorial gains in the Kursk region of western Russia.`\
+https://nytimes.com/2024/08/17/world/europe/ukraine-russia-bridge.html
+
 **Jelly Roll Cannot Believe How His Life Turned Out**\
 `From jail and addiction to music stardom, the singer says he’s living a “modern American fairy tale.”`\
 https://nytimes.com/2024/08/17/magazine/jelly-roll-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/17/style/alex-karp-palantir.html
 **Stranded in Space? NASA Doesn’t See the Starliner Astronauts That Way.**\
 `NASA doesn’t say the Boeing Starliner astronauts are ‘stranded’ on the space station, but it’s a word that a lot of people are using.`\
 https://nytimes.com/2024/08/17/science/nasa-boeing-starliner-astronauts.html
-
-**PSG complete signing of winger Doue from Rennes**\
-`Paris Saint-Germain are close to completing the signing of Desire Doue from Rennes.`\
-https://nytimes.com/athletic/5695436/2024/08/17/psg-doue-transfer-rennes/
 
