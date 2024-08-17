@@ -1,3 +1,7 @@
+**From pencil bats to Scooby spikes, Players' Weekend showcasing a different side of MLB**\
+`This weekend, players will be highlighting elements of their personalities, interests and charities through their bats, gloves, and spikes.`\
+https://nytimes.com/athletic/5705821/2024/08/16/players-weekend-mlb-highlights/
+
 **Dodgers' Tyler Glasnow goes on IL with elbow tendonitis**\
 `The Dodgers have seen 11 starting pitchers land on the injured list this season.`\
 https://nytimes.com/athletic/5705948/2024/08/16/dodgers-tyler-glasnow-elbow-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5705849/2024/08/16/landon-donovan-san-diego-wave-co
 **Gaza Cease-Fire Talks to Resume in Cairo, as Mediators Race to Head Off Wider War**\
 `Top officials from the U.S., Israel, Egypt and Qatar ended two days of talks in Doha aimed at trying to resolve remaining disagreements between Israel and Hamas.`\
 https://nytimes.com/2024/08/16/world/middleeast/cease-fire-talks-doha-israel-hamas.html
-
-**Would You Pay to Attend a Wedding?**\
-`As wedding costs continue to increase, some couples are charging guests to attend their special day.`\
-https://nytimes.com/2024/08/16/style/wedding-guest-charge.html
 
