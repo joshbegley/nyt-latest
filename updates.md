@@ -1,3 +1,15 @@
+**A New National Park That Rests on Indigenous and Industrial History**\
+`The collapse of a steel mill project during the Great Depression preserved natural lands linked to First Nations people in Windsor, Ontario.`\
+https://nytimes.com/2024/08/17/world/canada/canada-windsor-national-park.html
+
+**Wordle Review No. 1,156**\
+`Scroll down for hints and conversation about the puzzle for August 18, 2024.`\
+https://nytimes.com/2024/08/17/crosswords/wordle-review-no-1156.html
+
+**The Connections Companion No. 434**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 18, 2024.`\
+https://nytimes.com/2024/08/17/crosswords/the-connections-companion-no-434.html
+
 **Ukraine Destroys Key Russian Bridge as It Presses On With Offensive**\
 `The bridge’s destruction is a setback for Russian supply lines as Ukraine seeks to consolidate its territorial gains in the Kursk region of western Russia.`\
 https://nytimes.com/2024/08/17/world/europe/ukraine-russia-bridge.html

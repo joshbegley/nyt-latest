@@ -1,3 +1,15 @@
+**A New National Park That Rests on Indigenous and Industrial History**\
+`The collapse of a steel mill project during the Great Depression preserved natural lands linked to First Nations people in Windsor, Ontario.`\
+https://nytimes.com/2024/08/17/world/canada/canada-windsor-national-park.html
+
+**Wordle Review No. 1,156**\
+`Scroll down for hints and conversation about the puzzle for August 18, 2024.`\
+https://nytimes.com/2024/08/17/crosswords/wordle-review-no-1156.html
+
+**The Connections Companion No. 434**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 18, 2024.`\
+https://nytimes.com/2024/08/17/crosswords/the-connections-companion-no-434.html
+
 **Ukraine Destroys Key Russian Bridge as It Presses On With Offensive**\
 `The bridge’s destruction is a setback for Russian supply lines as Ukraine seeks to consolidate its territorial gains in the Kursk region of western Russia.`\
 https://nytimes.com/2024/08/17/world/europe/ukraine-russia-bridge.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/17/upshot/poll-harris-trump-sun-belt.html
 **45 Years of ‘Alien’ Movies From Worst to Best:**\
 `This xenomorph, like the franchise, is “hard to kill.”`\
 https://nytimes.com/2024/08/17/podcasts/45-years-of-alien-movies-from-worst-to-best.html
-
-**Fact-Checking Harris and Trump**\
-`Linda Qiu, a New York Times reporter who fact-checks statements made by politicians and public figures, looks at how Vice President Kamala Harris and former President Donald Trump have attacked each other and assesses whether those claims are true or not.`\
-https://nytimes.com/video/us/politics/100000009632402/fact-checking-harris-and-trump.html
-
-**Alex Karp Has Money and Power. So What Does He Want?**\
-`In a rare in-depth interview, this billionaire man of mystery, the head of Palantir Technologies, talks about war, A.I. and America’s future.`\
-https://nytimes.com/2024/08/17/style/alex-karp-palantir.html
-
-**Stranded in Space? NASA Doesn’t See the Starliner Astronauts That Way.**\
-`NASA doesn’t say the Boeing Starliner astronauts are ‘stranded’ on the space station, but it’s a word that a lot of people are using.`\
-https://nytimes.com/2024/08/17/science/nasa-boeing-starliner-astronauts.html
 
