@@ -1,3 +1,7 @@
+**Joshua Zirkzee debut shows he is more than a facilitator, he is also a finisher**\
+`Manchester United's new forward has been heavily touted as a provided who will link play - but his debut goal suggests there is more`\
+https://nytimes.com/athletic/5706019/2024/08/17/zirkzee-debut-manchester-united/
+
 **Corrections: Aug. 17, 2024**\
 `Corrections that appeared in print on Saturday, Aug. 17, 2024.`\
 https://nytimes.com/2024/08/17/pageoneplus/corrections-aug-17-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5702639/2024/08/17/james-maddison-tottenham-england
 **Zubimendi, Liverpool and how Basque loyalty has trumped personal ambition - for now**\
 `Spain midfielder's background and close relationships to friends and family trumped lure of Anfield opportunity - but the timing was crucial`\
 https://nytimes.com/athletic/5704778/2024/08/17/martin-zubimendi-liverpool-real-sociedad/
-
-**Premier League plane watch: How often did your team fly to games on last season's run-in?**\
-`The Athletic looked at the last 10 rounds of fixtures in the 2023-24 season to find out which clubs flew to their domestic away matches`\
-https://nytimes.com/athletic/5696011/2024/08/17/premier-league-domestic-flights/
 
