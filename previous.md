@@ -1,3 +1,7 @@
+**What message does Austin Dillon penalty send to NASCAR drivers?**\
+`Drivers largely expressed satisfaction with NASCAR penalizing Dillon for wrecking Joey Logano and Denny Hamlin at Richmond.`\
+https://nytimes.com/athletic/5706813/2024/08/17/austin-dillon-penalty-nascar-drivers/
+
 **Spencer Torkelson returns to the Tigers: 'He doesn’t have to carry the franchise'**\
 `After nearly two months in Triple A, Spencer Torkelson went 2-for-3 with a double, a triple and a walk in his return to the majors.`\
 https://nytimes.com/athletic/5706778/2024/08/17/detroit-tigers-spencer-torkelson-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5706642/2024/08/17/evertons-sean-dyche-confused-by-
 **Leonard Hayflick, Who Discovered Why No One Lives Forever, Dies at 96**\
 `A biomedical researcher, he found that normal cells can divide only a certain number of times before they age — which, he said, explained aging on a cellular level.`\
 https://nytimes.com/2024/08/17/science/leonard-hayflick-dead.html
-
-**David Sanders Jr. commitment extends heater for Josh Heupel, hits one of his trouble areas**\
-`Sanders, the No. 2 player in the Class of 2025 in the 247Sports Composite, picked Tennessee over Georgia, Ohio State and Nebraska.`\
-https://nytimes.com/athletic/5705423/2024/08/17/tennessee-vols-recruiting-david-sanders/
 

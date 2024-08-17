@@ -1,3 +1,7 @@
+**What message does Austin Dillon penalty send to NASCAR drivers?**\
+`Drivers largely expressed satisfaction with NASCAR penalizing Dillon for wrecking Joey Logano and Denny Hamlin at Richmond.`\
+https://nytimes.com/athletic/5706813/2024/08/17/austin-dillon-penalty-nascar-drivers/
+
 **Spencer Torkelson returns to the Tigers: 'He doesn’t have to carry the franchise'**\
 `After nearly two months in Triple A, Spencer Torkelson went 2-for-3 with a double, a triple and a walk in his return to the majors.`\
 https://nytimes.com/athletic/5706778/2024/08/17/detroit-tigers-spencer-torkelson-return/
