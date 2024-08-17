@@ -1,40 +1,40 @@
-**They’re Putting Some Fun in Funerals**\
-`Modern, even hip, mortuaries around the world are hoping to answer one question: How do we commemorate death in 2024?`\
-https://nytimes.com/2024/08/17/style/london-exit-here-funeral-homes.html
+**Kamala Harris and the Return of ‘Tough on Crime’**\
+`Over her career, her rhetoric has tracked the national mood. So do Americans now want a prosecutor-in-chief?`\
+https://nytimes.com/2024/08/17/us/kamala-harris-prosecutor-criminal-justice-reform.html
 
-**My Wild Night With Edna O’Brien**\
-`On the trail of Ralph Fiennes in 1990s Manhattan, the esteemed novelist pays a visit to a burlesque club.`\
-https://nytimes.com/2024/08/17/style/edna-obrien-irish-author-friendship.html
+**Sausage Legs and Wax Nose Jobs: Peeling the Layers on a Century of Beauty**\
+`In “All the Rage,” the social historian Virginia Nicholson discusses the changing standards that bedeviled and enthralled a century of women.`\
+https://nytimes.com/2024/08/17/books/review/all-the-rage-virginia-nicholson.html
 
-**As California Clears Homeless Camps, Two Projects Point a Way Forward**\
-`While L.A. County grapples with homelessness, elegant new housing projects in Long Beach and Venice signal the solutions — and challenges — ahead.`\
-https://nytimes.com/2024/08/17/arts/design/homeless-encampments-los-angeles-housing.html
+**Harris Puts Four Sun Belt States Back in Play, Times/Siena Polls Find**\
+`Kamala Harris and Donald Trump are in close races across Arizona, Georgia, Nevada and North Carolina, crucial swing states that Mr. Trump had seemed en route to run away with just a few weeks ago.`\
+https://nytimes.com/2024/08/17/us/elections/kamala-harris-trump-az-nc-ga-nv.html
 
-**Assessing Trump’s and Harris’s Attacks on Each Other**\
-`We examine the two candidates’ criticisms of each other’s policies, promises and records.`\
-https://nytimes.com/2024/08/17/us/politics/trump-harris-fact-check-policies-records.html
+**Harris Gains in Sun Belt as Demographic Patterns Start to Look ‘Normal’**\
+`Gains among Black, Hispanic and young voters lift her into a tie across four swing states, new Times/Siena polls show.`\
+https://nytimes.com/2024/08/17/upshot/poll-harris-trump-sun-belt.html
 
-**When Can You Alter a Landmark Building (and When Can’t You)?**\
-`Special features, such as windows with curved glass, may be difficult to replace. Repair or retrofitting might be the better option.`\
-https://nytimes.com/2024/08/17/realestate/when-can-you-alter-a-landmark-building-and-when-cant-you.html
+**45 Years of ‘Alien’ Movies From Worst to Best:**\
+`This xenomorph, like the franchise, is “hard to kill.”`\
+https://nytimes.com/2024/08/17/podcasts/45-years-of-alien-movies-from-worst-to-best.html
 
-**The Best Way to Save Money Cooking for One? Think Like a Co-op.**\
-`Shopping in bulk with a friend or neighbor can reduce costs while strengthening relationships.`\
-https://nytimes.com/2024/08/17/dining/cooking-for-one-budget.html
+**Fact-Checking Harris and Trump**\
+`Linda Qiu, a New York Times reporter who fact-checks statements made by politicians and public figures, looks at how Vice President Kamala Harris and former President Donald Trump have attacked each other and assesses whether those claims are true or not.`\
+https://nytimes.com/video/us/politics/100000009632402/fact-checking-harris-and-trump.html
 
-**How Tau Lewis Channels the Spirit World**\
-`Her first solo museum exhibition, at the Institute of Contemporary Art, Boston, is full of towering, mysterious beings. The exhibit is “all grief work,” she said.`\
-https://nytimes.com/2024/08/17/arts/tau-lewis-artist.html
+**Alex Karp Has Money and Power. So What Does He Want?**\
+`In a rare in-depth interview, this billionaire man of mystery, the head of Palantir Technologies, talks about war, A.I. and America’s future.`\
+https://nytimes.com/2024/08/17/style/alex-karp-palantir.html
 
-**Awkwafina Won’t Forget This Play’s Monologue Anytime Soon**\
-`“It gives me the chills right now thinking about it,” said the actress and comedian, who stars in the film “Jackpot!” with John Cena and Simu Liu.`\
-https://nytimes.com/2024/08/17/movies/awkwafina-interview-jackpot.html
+**Stranded in Space? NASA Doesn’t See the Starliner Astronauts That Way.**\
+`NASA doesn’t say the Boeing Starliner astronauts are ‘stranded’ on the space station, but it’s a word that a lot of people are using.`\
+https://nytimes.com/2024/08/17/science/nasa-boeing-starliner-astronauts.html
 
-**All the ‘Alien’ Movies, Ranked**\
-`With “Alien: Romulus” hitting theaters, the 45-year-old series is getting a new jolt of life. How does the latest film stack up against its predecessors?`\
-https://nytimes.com/2024/08/17/movies/alien-movies-ranked.html
+**PSG complete signing of winger Doue from Rennes**\
+`Paris Saint-Germain are close to completing the signing of Desire Doue from Rennes.`\
+https://nytimes.com/athletic/5695436/2024/08/17/psg-doue-transfer-rennes/
 
-**The Spy America Left to Rot**\
-`In “Prisoner of Lies,” Barry Werth tells the story of a young C.I.A. operative who spent two decades waiting out the postwar era in a Chinese jail cell.`\
-https://nytimes.com/2024/08/17/books/review/prisoner-of-lies-barry-werth.html
+**The Confidants Guiding Harris for the Most Important Days of Her Life**\
+`The vice president’s brain trust is younger, more racially diverse and larger than President Biden’s. Her advisers can expect a lot of phone calls in the coming weeks.`\
+https://nytimes.com/2024/08/17/us/politics/harris-inner-circle-advisers.html
 
