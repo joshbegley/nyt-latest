@@ -1,3 +1,7 @@
+**Jace Jung and Trey Sweeney debut as the Tigers turn their eyes toward the future**\
+`Third baseman Jace Jung and shortstop Trey Sweeney both made their MLB debuts on Friday. `\
+https://nytimes.com/athletic/5706010/2024/08/16/tigers-jace-jung-trey-sweeney-debut/
+
 **Fossils Show Giant Predatory Sea Scorpions Were Distance Swimmers**\
 `Specimens of what appear to be the largest eurypterid species found in Australia could shed light on the sudden extinction of the massive arthropods.`\
 https://nytimes.com/2024/08/16/science/giant-sea-scorpions-australia.html

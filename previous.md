@@ -1,3 +1,7 @@
+**Jace Jung and Trey Sweeney debut as the Tigers turn their eyes toward the future**\
+`Third baseman Jace Jung and shortstop Trey Sweeney both made their MLB debuts on Friday. `\
+https://nytimes.com/athletic/5706010/2024/08/16/tigers-jace-jung-trey-sweeney-debut/
+
 **Fossils Show Giant Predatory Sea Scorpions Were Distance Swimmers**\
 `Specimens of what appear to be the largest eurypterid species found in Australia could shed light on the sudden extinction of the massive arthropods.`\
 https://nytimes.com/2024/08/16/science/giant-sea-scorpions-australia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5705742/2024/08/16/49ers-aiyuk-williams/
 **Can Brandon Sproat be a September factor for the Mets? Don't count on it**\
 `David Stearns never called up a prospect to the majors in his first full pro season during his tenure in Milwaukee.`\
 https://nytimes.com/athletic/5705870/2024/08/16/mets-brandon-sproat-prospect-call-up/
-
-**Tell us: Have you been forgoing Covid tests?**\
-`It’s the fifth summer of Covid, and most people seem eager to move on. We want to understand the pervasiveness of the ignorance-is-bliss attitude.`\
-https://nytimes.com/2024/08/16/health/covid-habits-testing.html
 
