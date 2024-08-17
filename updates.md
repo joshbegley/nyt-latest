@@ -1,3 +1,7 @@
+**Forest's Danilo suffers broken ankle; being assessed in hospital**\
+`Nottingham Forest midfielder Danilo has suffered a broken ankle and is in hospital for further assessments.`\
+https://nytimes.com/athletic/5706465/2024/08/17/danilo-injury-nottingham-forest/
+
 **Ipswich were beaten by Liverpool - but this is why they shouldn't lose heart**\
 `Kieran McKenna's side were ultimately outclassed but their display - especially from Leif Davis - boded well`\
 https://nytimes.com/athletic/5706501/2024/08/17/ipswich-town-liverpool-tactics/
