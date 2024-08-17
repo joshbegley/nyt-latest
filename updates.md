@@ -1,3 +1,7 @@
+**Are We Ever Going to Get a Civil War Film That Tells the Truth?**\
+`A few thoughts on the movie “Gettysburg.”`\
+https://nytimes.com/2024/08/17/opinion/civil-war-film-gettysburg.html
+
 **George Santos Is Expected to Plead Guilty, People Close to the Case Say**\
 `Mr. Santos could change his mind, but witnesses in his campaign fraud case were told by federal prosecutors that he intends to plead guilty on Monday.`\
 https://nytimes.com/2024/08/17/nyregion/santos-pleads-guilty.html
