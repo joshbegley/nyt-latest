@@ -1,3 +1,7 @@
+**Dodgers' Tyler Glasnow goes on IL with elbow tendonitis**\
+`The Dodgers have seen 11 starting pitchers land on the injured list this season.`\
+https://nytimes.com/athletic/5705948/2024/08/16/dodgers-tyler-glasnow-elbow-injury/
+
 **Free Vasectomies and an Inflatable IUD: Abortion Rights Advocates Hit the D.N.C.**\
 `This convention is likely to be a head-on display of a new, unbridled abortion politics.`\
 https://nytimes.com/2024/08/16/us/politics/dnc-abortion-rights.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/16/world/middleeast/cease-fire-talks-doha-israel-ham
 **Would You Pay to Attend a Wedding?**\
 `As wedding costs continue to increase, some couples are charging guests to attend their special day.`\
 https://nytimes.com/2024/08/16/style/wedding-guest-charge.html
-
-**Packers-Broncos joint practice: Denver defense stifles Green Bay offense and more observations**\
-`Veteran running back Josh Jacobs said this was the first joint practice he's participated in that didn't involve a fight.`\
-https://nytimes.com/athletic/5705758/2024/08/16/packers-broncos-joint-practice-observations/
 

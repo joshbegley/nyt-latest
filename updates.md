@@ -1,3 +1,7 @@
+**Dodgers' Tyler Glasnow goes on IL with elbow tendonitis**\
+`The Dodgers have seen 11 starting pitchers land on the injured list this season.`\
+https://nytimes.com/athletic/5705948/2024/08/16/dodgers-tyler-glasnow-elbow-injury/
+
 **Kyle Hendricks' mind isn't on potential end of his Cubs career as free agency looms**\
 `Hendricks has his sights set on a postseason run: "Especially here at Wrigley Field in front of these fans. It doesn’t get any better."`\
 https://nytimes.com/athletic/5705854/2024/08/16/kyle-hendricks-cubs-career/
