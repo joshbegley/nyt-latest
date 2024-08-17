@@ -1,3 +1,7 @@
+**Harris Campaign’s Legal Team Takes Shape as Election Battles Heat Up**\
+`The campaign is adding Marc Elias, one of the party’s top election lawyers, to help Democrats counter what they expect to be a contentious postelection period.`\
+https://nytimes.com/2024/08/17/us/elections/democrats-election-legal-challenges.html
+
 **Rick Martínez’s Tostadas Are a Treat**\
 `One reader said, “This was one of the most delicious recipes we’ve ever made.”`\
 https://nytimes.com/2024/08/17/dining/rick-martinezs-tostadas-are-a-treat.html
