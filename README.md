@@ -1,3 +1,7 @@
+**Jelly Roll Cannot Believe How His Life Turned Out**\
+`From jail and addiction to music stardom, the singer says he’s living a “modern American fairy tale.”`\
+https://nytimes.com/2024/08/17/magazine/jelly-roll-interview.html
+
 **Kamala Harris and the Return of ‘Tough on Crime’**\
 `Over her career, her rhetoric has tracked the national mood. So do Americans now want a prosecutor-in-chief?`\
 https://nytimes.com/2024/08/17/us/kamala-harris-prosecutor-criminal-justice-reform.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/17/science/nasa-boeing-starliner-astronauts.html
 **PSG complete signing of winger Doue from Rennes**\
 `Paris Saint-Germain are close to completing the signing of Desire Doue from Rennes.`\
 https://nytimes.com/athletic/5695436/2024/08/17/psg-doue-transfer-rennes/
-
-**The Confidants Guiding Harris for the Most Important Days of Her Life**\
-`The vice president’s brain trust is younger, more racially diverse and larger than President Biden’s. Her advisers can expect a lot of phone calls in the coming weeks.`\
-https://nytimes.com/2024/08/17/us/politics/harris-inner-circle-advisers.html
 
