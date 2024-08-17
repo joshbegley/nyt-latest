@@ -1,3 +1,7 @@
+**Caitlin Clark paints masterpiece in Fever's win over Mercury**\
+`Clark looked poised and the Fever looked like a team prepared for a playoff push. `\
+https://nytimes.com/athletic/5706049/2024/08/17/caitlin-clark-indiana-fever-mercury-wnba/
+
 **Triston Casas returns, Dom Smith DFA'd and Red Sox win slugfest vs. Corbin Burnes**\
 `Casas didn't have any big hits in his return, but his presence lengthened a lineup that put up eight runs against the AL Cy Young favorite.`\
 https://nytimes.com/athletic/5706044/2024/08/17/red-sox-triston-casas-return-dom-smith-dfa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5696011/2024/08/17/premier-league-domestic-flights/
 **Musah: 'Without God, I wouldn't be in this position - millions of people work as hard as me'**\
 `USMNT midfielder on growing up in Italy, the U.S. and England, playing for Milan and starring alongside with Bellingham, Musiala and Saka`\
 https://nytimes.com/athletic/5696895/2024/08/17/yunus-musah-ac-milan-interview/
-
-**Doubting America’s ‘Nuclear Umbrella,’ Some South Koreans Want Their Own**\
-`Washington says it would defend the South against North Korea with nuclear arms, if need be. But more and more people in the South think it should rely on itself.`\
-https://nytimes.com/2024/08/17/world/asia/south-korea-nuclear-arsenal.html
 
