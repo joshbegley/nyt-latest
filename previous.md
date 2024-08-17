@@ -1,3 +1,7 @@
+**PSG striker Ramos set for three months out with ankle ligament injury**\
+`Paris Saint-Germain striker Goncalo Ramos will be sidelined for at least three months after suffering a serious ligament injury to his left ankle.`\
+https://nytimes.com/athletic/5706402/2024/08/17/goncalo-ramos-injury-psg/
+
 **The Briefing: Ipswich 0 Liverpool 2 - How did Slot spark second-half revival?**\
 `All the big talking points as Anfield's new era began with a victory at Portman Road`\
 https://nytimes.com/athletic/5703088/2024/08/17/ipswich-liverpool-premier-league-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/17/us/politics/dnc-2024-watch-stream-tv.html
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/08/17/us/trump-harris-election/heres-the-latest-on-the-presidential-race
-
-**Election Live Updates: Trump Returns to Pennsylvania to Make His Own Appeal on the Economy**\
-`A day after Vice President Kamala Harris laid out her economic vision, former President Donald J. Trump plans to focus on a topic that polls suggest remains a strength for him. Gov. Tim Walz, Harris’s running mate, is visiting a suburb of Omaha, where an Electoral College vote is up for grabs.`\
-https://nytimes.com/live/2024/08/17/us/trump-harris-election
 

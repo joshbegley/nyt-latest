@@ -1,3 +1,7 @@
+**PSG striker Ramos set for three months out with ankle ligament injury**\
+`Paris Saint-Germain striker Goncalo Ramos will be sidelined for at least three months after suffering a serious ligament injury to his left ankle.`\
+https://nytimes.com/athletic/5706402/2024/08/17/goncalo-ramos-injury-psg/
+
 **The Briefing: Ipswich 0 Liverpool 2 - How did Slot spark second-half revival?**\
 `All the big talking points as Anfield's new era began with a victory at Portman Road`\
 https://nytimes.com/athletic/5703088/2024/08/17/ipswich-liverpool-premier-league-result-analysis/
