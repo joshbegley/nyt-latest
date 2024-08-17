@@ -1,3 +1,11 @@
+**Jahns: Caleb Williams' magic act proves the Bears QB is getting better every day**\
+`CHICAGO — It took nearly an entire half of football, but quarterback Caleb Williams finally provided everyone at Soldier Field — and those watching across the country — with glimpses of what’s to come this season and beyond.`\
+https://nytimes.com/athletic/5706970/2024/08/17/bears-caleb-williams-getting-better/
+
+**Ryan Pressly hits injured list during Astros' toughest stretch of the season**\
+`The Astros say their set-up man has a lower back strain, a problem he tried to pitch through during the club’s last road trip.`\
+https://nytimes.com/athletic/5706940/2024/08/17/astros-ryan-pressly-injured-list/
+
 **Ravens insist they believe in their young offensive linemen. They better be right**\
 `With injuries pushing young offensive linemen to the forefront, the Ravens are once again betting on their reputable scouting staff.`\
 https://nytimes.com/athletic/5706942/2024/08/17/baltimore-ravens-preseason-training-camp-tyler-linderbaum/
