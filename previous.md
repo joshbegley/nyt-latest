@@ -1,3 +1,7 @@
+**Why Falcons didn't play Michael Penix Jr. in second preseason game, plus 5 more thoughts**\
+`The Falcons fell 13-12 to the Ravens. Taylor Heinicke started at QB, Chris Blair had a big game and Younghoe Koo missed three field goals.`\
+https://nytimes.com/athletic/5706837/2024/08/17/falcons-michael-penix-preseason-ravens/
+
 **What message does Austin Dillon penalty send to NASCAR drivers?**\
 `Drivers largely expressed satisfaction with NASCAR penalizing Dillon for wrecking Joey Logano and Denny Hamlin at Richmond.`\
 https://nytimes.com/athletic/5706813/2024/08/17/austin-dillon-penalty-nascar-drivers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/17/arts/television/perry-kurtz-dead-hit-run.html
 **Everton's Dyche 'confused' by VAR penalty overturn in defeat to Brighton**\
 `Everton manager Sean Dyche has said he is &#8220;confused&#8221; by the decision to overturn a penalty in his side&#8217;s favour in their Premier League defeat to Brighton &amp; Hove Albion on Saturday.`\
 https://nytimes.com/athletic/5706642/2024/08/17/evertons-sean-dyche-confused-by-var-penalty-overturn-in-defeat-to-brighton/
-
-**Leonard Hayflick, Who Discovered Why No One Lives Forever, Dies at 96**\
-`A biomedical researcher, he found that normal cells can divide only a certain number of times before they age — which, he said, explained aging on a cellular level.`\
-https://nytimes.com/2024/08/17/science/leonard-hayflick-dead.html
 

@@ -1,3 +1,7 @@
+**Why Falcons didn't play Michael Penix Jr. in second preseason game, plus 5 more thoughts**\
+`The Falcons fell 13-12 to the Ravens. Taylor Heinicke started at QB, Chris Blair had a big game and Younghoe Koo missed three field goals.`\
+https://nytimes.com/athletic/5706837/2024/08/17/falcons-michael-penix-preseason-ravens/
+
 **What message does Austin Dillon penalty send to NASCAR drivers?**\
 `Drivers largely expressed satisfaction with NASCAR penalizing Dillon for wrecking Joey Logano and Denny Hamlin at Richmond.`\
 https://nytimes.com/athletic/5706813/2024/08/17/austin-dillon-penalty-nascar-drivers/
