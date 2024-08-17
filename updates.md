@@ -1,3 +1,11 @@
+**Giants QB Daniel Jones shaking off rust or was disaster vs. Texans sign of what's to come?**\
+`Jones’ disastrous start in Saturday’s 28-10 loss to the Texans likely had some fans taking a look at the 2025 draft’s QB class.`\
+https://nytimes.com/athletic/5707011/2024/08/17/new-york-giants-daniel-jones-interceptions-texans/
+
+**NASCAR moving Clash race to Bowman Gray Stadium in 2025**\
+`NASCAR’s season-opening Clash exhibition race will shift to historic Bowman Gray Stadium in 2025.`\
+https://nytimes.com/athletic/5706645/2024/08/17/nascar-clash-race-2025-bowman-gray-stadium/
+
 **Jahns: Caleb Williams' magic act proves the Bears QB is getting better every day**\
 `After a rough start, Williams wowed the crowd at Soldier Field with a bomb to Rome Odunze while on the move. And that was just the start.`\
 https://nytimes.com/athletic/5706970/2024/08/17/bears-caleb-williams-getting-better/
