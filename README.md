@@ -1,3 +1,11 @@
+**Giants QB Daniel Jones shaking off rust or was disaster vs. Texans sign of what's to come?**\
+`Jones’ disastrous start in Saturday’s 28-10 loss to the Texans likely had some fans taking a look at the 2025 draft’s QB class.`\
+https://nytimes.com/athletic/5707011/2024/08/17/new-york-giants-daniel-jones-interceptions-texans/
+
+**NASCAR moving Clash race to Bowman Gray Stadium in 2025**\
+`NASCAR’s season-opening Clash exhibition race will shift to historic Bowman Gray Stadium in 2025.`\
+https://nytimes.com/athletic/5706645/2024/08/17/nascar-clash-race-2025-bowman-gray-stadium/
+
 **New Real Estate Rules Sow Confusion, at Least in Short Term**\
 `Changes in how real estate commissions are advertised and paid went into effect this weekend. Buyers and even some agents aren’t sure what they mean.`\
 https://nytimes.com/2024/08/17/realestate/nar-commissions-rules-changes.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/08/17/us/trump-harris-election/tim-walz-plays-up-h
 **5 Bengals who helped themselves vs. Bears, 3 who didn't and 1 who made me think**\
 `Even in a Bengals preseason loss, a few Cincinnati players continued to show reason why they will stick on the 53-man roster this year.`\
 https://nytimes.com/athletic/5706877/2024/08/17/cincinnati-bengals-chicago-bears-preseason/
-
-**Ryan Pressly hits injured list during Astros' toughest stretch of the season**\
-`The Astros say their set-up man has a lower back strain, a problem he tried to pitch through during the club’s last road trip.`\
-https://nytimes.com/athletic/5706940/2024/08/17/astros-ryan-pressly-injured-list/
-
-**For Your Amusement**\
-`Rebecca Goldstein and Will Nediger’s puzzle takes us along for the ride.`\
-https://nytimes.com/2024/08/17/crosswords/daily-puzzle-2024-08-18.html
 
