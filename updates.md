@@ -1,3 +1,7 @@
+**Joshua Zirkzee debut shows he is more than a facilitator, he is also a finisher**\
+`Manchester United's new forward has been heavily touted as a provided who will link play - but his debut goal suggests there is more`\
+https://nytimes.com/athletic/5706019/2024/08/17/zirkzee-debut-manchester-united/
+
 **Corrections: Aug. 17, 2024**\
 `Corrections that appeared in print on Saturday, Aug. 17, 2024.`\
 https://nytimes.com/2024/08/17/pageoneplus/corrections-aug-17-2024.html
