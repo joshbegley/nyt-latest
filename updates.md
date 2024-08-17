@@ -1,3 +1,7 @@
+**Ukraine Destroys Key Russian Bridge as It Presses On With Offensive**\
+`The bridge’s destruction is a setback for Russian supply lines as Ukraine seeks to consolidate its territorial gains in the Kursk region of western Russia.`\
+https://nytimes.com/2024/08/17/world/europe/ukraine-russia-bridge.html
+
 **Jelly Roll Cannot Believe How His Life Turned Out**\
 `From jail and addiction to music stardom, the singer says he’s living a “modern American fairy tale.”`\
 https://nytimes.com/2024/08/17/magazine/jelly-roll-interview.html
