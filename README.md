@@ -1,3 +1,11 @@
+**De Zerbi: Greenwood's Marseille goals will help reduce controversy**\
+`Roberto De Zerbi has praised Mason Greenwood after the forward marked his Marseille debut with two goals in a 5-1 victory against Brest.`\
+https://nytimes.com/athletic/5706559/2024/08/17/mason-greenwood-marseille-goals-roberto-de-zerbi/
+
+**Newcastle Briefing: Did Schar deserve a red and time to give up on Guehi?**\
+`From 'soft' dismissals to transfer chat, we analyse the major talking points from the 1-0 win over Southampton`\
+https://nytimes.com/athletic/5706622/2024/08/17/newcastle-united-southampton-result-analysis/
+
 **Gate at Joint Base San Antonio Is Site of Two Shootings, Officials Say**\
 `Separate episodes of gunfire happened hours apart early on Saturday at a gate to the military installation. A motive was unclear, the authorities said.`\
 https://nytimes.com/2024/08/17/us/shooting-air-force-base-san-antonio.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5706501/2024/08/17/ipswich-town-liverpool-tactics/
 **Evanilson to Bournemouth: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500 series, we look at Evanilson's move to Bournemouth.`\
 https://nytimes.com/athletic/5704690/2024/08/17/evanilson-to-bournemouth-the-athletic-500-transfer-ratings/
-
-**Harris Campaign’s Legal Team Takes Shape as Election Battles Heat Up**\
-`The campaign is adding Marc Elias, one of the party’s top election lawyers, to help Democrats counter what they expect to be a contentious postelection period.`\
-https://nytimes.com/2024/08/17/us/elections/democrats-election-legal-challenges.html
-
-**The Briefing: Arsenal 2 Wolves 0 - Saka's fast start, Raya's stunning save**\
-`Arsenal managed a 2-0 win against Wolves to start their new Premier League campaign`\
-https://nytimes.com/athletic/5704913/2024/08/17/arsenal-wolves-result-analysis-report/
 
