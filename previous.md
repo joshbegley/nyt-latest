@@ -1,3 +1,7 @@
+**New Real Estate Rules Sow Confusion, at Least in Short Term**\
+`Changes in how real estate commissions are advertised and paid went into effect this weekend. Buyers and even some agents aren’t sure what they mean.`\
+https://nytimes.com/2024/08/17/realestate/nar-commissions-rules-changes.html
+
 **Ravens insist they believe in their young offensive linemen. They better be right**\
 `With injuries pushing young offensive linemen to the forefront, the Ravens are once again betting on their reputable scouting staff.`\
 https://nytimes.com/athletic/5706942/2024/08/17/baltimore-ravens-preseason-training-camp-tyler-linderbaum/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5706940/2024/08/17/astros-ryan-pressly-injured-list
 **For Your Amusement**\
 `Rebecca Goldstein and Will Nediger’s puzzle takes us along for the ride.`\
 https://nytimes.com/2024/08/17/crosswords/daily-puzzle-2024-08-18.html
-
-**Why Falcons didn't play Michael Penix Jr. in second preseason game, plus 5 more thoughts**\
-`The Falcons fell 13-12 to the Ravens. Taylor Heinicke started at QB, Chris Blair had a big game and Younghoe Koo missed three field goals.`\
-https://nytimes.com/athletic/5706837/2024/08/17/falcons-michael-penix-preseason-ravens/
 

@@ -1,3 +1,7 @@
+**New Real Estate Rules Sow Confusion, at Least in Short Term**\
+`Changes in how real estate commissions are advertised and paid went into effect this weekend. Buyers and even some agents aren’t sure what they mean.`\
+https://nytimes.com/2024/08/17/realestate/nar-commissions-rules-changes.html
+
 **Jahns: Caleb Williams' magic act proves the Bears QB is getting better every day**\
 `CHICAGO — It took nearly an entire half of football, but quarterback Caleb Williams finally provided everyone at Soldier Field — and those watching across the country — with glimpses of what’s to come this season and beyond.`\
 https://nytimes.com/athletic/5706970/2024/08/17/bears-caleb-williams-getting-better/
