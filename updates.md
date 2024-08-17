@@ -1,3 +1,7 @@
+**Twins survive barrage of hard contact, improve to season-best 16 games over .500**\
+`Of the 15 balls hit 95 mph or better against the Twins on Friday, 11 were turned into outs.`\
+https://nytimes.com/athletic/5706048/2024/08/17/twins-carlos-santana-win-rangers/
+
 **A New National Park That Rests on Indigenous and Industrial History**\
 `The collapse of a steel mill project during the Great Depression preserved natural lands linked to First Nations people in Windsor, Ontario.`\
 https://nytimes.com/2024/08/17/world/canada/canada-windsor-national-park.html

@@ -10,6 +10,10 @@ https://nytimes.com/2024/08/17/crosswords/wordle-review-no-1156.html
 `Scroll down for hints and conversation about the puzzle for Sunday, Aug. 18, 2024.`\
 https://nytimes.com/2024/08/17/crosswords/the-connections-companion-no-434.html
 
+**Twins survive barrage of hard contact, improve to season-best 16 games over .500**\
+`Of the 15 balls hit 95 mph or better against the Twins on Friday, 11 were turned into outs.`\
+https://nytimes.com/athletic/5706048/2024/08/17/twins-carlos-santana-win-rangers/
+
 **Ukraine Destroys Key Russian Bridge as It Presses On With Offensive**\
 `The bridge’s destruction is a setback for Russian supply lines as Ukraine seeks to consolidate its territorial gains in the Kursk region of western Russia.`\
 https://nytimes.com/2024/08/17/world/europe/ukraine-russia-bridge.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/17/us/elections/kamala-harris-trump-az-nc-ga-nv.html
 **Harris Gains in Sun Belt as Demographic Patterns Start to Look ‘Normal’**\
 `Gains among Black, Hispanic and young voters lift her into a tie across four swing states, new Times/Siena polls show.`\
 https://nytimes.com/2024/08/17/upshot/poll-harris-trump-sun-belt.html
-
-**45 Years of ‘Alien’ Movies From Worst to Best:**\
-`This xenomorph, like the franchise, is “hard to kill.”`\
-https://nytimes.com/2024/08/17/podcasts/45-years-of-alien-movies-from-worst-to-best.html
 
