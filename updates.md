@@ -1,3 +1,7 @@
+**Teamsters Union Says Harris Has Accepted Offer to Meet Its Leaders**\
+`The head of the union, which has not backed a presidential candidate this year, asked to speak at both parties’ conventions. He spoke at the Republican convention in July.`\
+https://nytimes.com/2024/08/16/us/politics/kamala-harris-teamsters.html
+
 **The Atlanta Braves miss Ron Washington, and it sure sounds like he misses them too**\
 `Brian Snitker talked to him, Braves players hugged him. Then Washington spent a while talking about the Braves' up-and-down season.`\
 https://nytimes.com/athletic/5706030/2024/08/16/atlanta-braves-miss-ron-washington/
