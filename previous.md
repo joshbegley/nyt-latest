@@ -1,3 +1,7 @@
+**Merino misses Real Sociedad's La Liga opener amid Arsenal talks**\
+`Mikel Merino has been left out of Real Sociedad&#8217;s squad for their La Liga opener against Rayo Vallecano amid talks over a move to Arsenal.`\
+https://nytimes.com/athletic/5706337/2024/08/17/mikel-merino-arsenal-real-sociedad/
+
 **During Ukraine’s Incursion, Russian Conscripts Recount Surrendering in Droves**\
 `More than 300 have been processed in a prison in Ukraine, providing the country with a much-needed “exchange fund” for future swaps of prisoners of war.`\
 https://nytimes.com/2024/08/17/world/europe/ukraines-incursion-russian-conscripts.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/17/business/dealbook/dnc-democratic-party-money-mach
 **Can We Talk? The Characters in These 2 Books Can, and How**\
 `Evelyn Waugh’s garrulous embalmers; Deborah Eisenberg’s urban neurotics.`\
 https://nytimes.com/2024/08/17/books/read-like-wind-recommendations-good-dialogue.html
-
-**Matthew Perry and the People Who Prey on Addicts**\
-`Sometimes the most dangerous people are the ones who tell themselves they’re actually helping.`\
-https://nytimes.com/2024/08/17/opinion/matthew-perry-death-arrests.html
 
