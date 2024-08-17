@@ -1,3 +1,11 @@
+**The Briefing: Ipswich 0 Liverpool 2 - How did Slot spark second-half revival?**\
+`All the big talking points as Anfield's new era began with a victory at Portman Road`\
+https://nytimes.com/athletic/5703088/2024/08/17/ipswich-liverpool-premier-league-result-analysis/
+
+**Former Man United defender Jones retires, targets management**\
+`Former Manchester United defender Phil Jones has confirmed his retirement from playing and hopes to embark on a coaching career.`\
+https://nytimes.com/athletic/5706357/2024/08/17/phil-jones-retires-man-united/
+
 **Merino misses Real Sociedad's La Liga opener amid Arsenal talks**\
 `Mikel Merino has been left out of Real Sociedad&#8217;s squad for their La Liga opener against Rayo Vallecano amid talks over a move to Arsenal.`\
 https://nytimes.com/athletic/5706337/2024/08/17/mikel-merino-arsenal-real-sociedad/

@@ -1,3 +1,11 @@
+**The Briefing: Ipswich 0 Liverpool 2 - How did Slot spark second-half revival?**\
+`All the big talking points as Anfield's new era began with a victory at Portman Road`\
+https://nytimes.com/athletic/5703088/2024/08/17/ipswich-liverpool-premier-league-result-analysis/
+
+**Former Man United defender Jones retires, targets management**\
+`Former Manchester United defender Phil Jones has confirmed his retirement from playing and hopes to embark on a coaching career.`\
+https://nytimes.com/athletic/5706357/2024/08/17/phil-jones-retires-man-united/
+
 **Merino misses Real Sociedad's La Liga opener amid Arsenal talks**\
 `Mikel Merino has been left out of Real Sociedad&#8217;s squad for their La Liga opener against Rayo Vallecano amid talks over a move to Arsenal.`\
 https://nytimes.com/athletic/5706337/2024/08/17/mikel-merino-arsenal-real-sociedad/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/08/17/us/trump-harris-election/heres-the-latest-on
 **Election Live Updates: Trump Returns to Pennsylvania to Make His Own Appeal on the Economy**\
 `A day after Vice President Kamala Harris laid out her economic vision, former President Donald J. Trump plans to focus on a topic that polls suggest remains a strength for him. Gov. Tim Walz, Harris’s running mate, is visiting a suburb of Omaha, where an Electoral College vote is up for grabs.`\
 https://nytimes.com/live/2024/08/17/us/trump-harris-election
-
-**The Democratic Party’s Money Machine**\
-`The Democratic National Committee is again raising huge sums from donors, but the rise of super PACs has forced it to adapt to a new era of big-money influence.`\
-https://nytimes.com/2024/08/17/business/dealbook/dnc-democratic-party-money-machine.html
-
-**Can We Talk? The Characters in These 2 Books Can, and How**\
-`Evelyn Waugh’s garrulous embalmers; Deborah Eisenberg’s urban neurotics.`\
-https://nytimes.com/2024/08/17/books/read-like-wind-recommendations-good-dialogue.html
 
