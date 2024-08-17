@@ -18,6 +18,10 @@ https://nytimes.com/athletic/5705821/2024/08/16/players-weekend-mlb-highlights/
 `The Dodgers have seen 11 starting pitchers land on the injured list this season.`\
 https://nytimes.com/athletic/5705948/2024/08/16/dodgers-tyler-glasnow-elbow-injury/
 
+**Mets hitters attempt to adjust as they face more spin: 'This league is crazy, man'**\
+`Since the All-Star break, no team has seen more breaking balls than the Mets.`\
+https://nytimes.com/athletic/5705928/2024/08/16/mets-hitters-breaking-balls-spin/
+
 **Free Vasectomies and an Inflatable IUD: Abortion Rights Advocates Hit the D.N.C.**\
 `This convention is likely to be a head-on display of a new, unbridled abortion politics.`\
 https://nytimes.com/2024/08/16/us/politics/dnc-abortion-rights.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5705854/2024/08/16/kyle-hendricks-cubs-career/
 **Brandon Aiyuk, Trent Williams and some 49ers optimism in the nick of time**\
 `Amid this trying summer, the 49ers really could use some good news about Brandon Aiyuk and Trent Williams. It might be coming soon.`\
 https://nytimes.com/athletic/5705742/2024/08/16/49ers-aiyuk-williams/
-
-**Can Brandon Sproat be a September factor for the Mets? Don't count on it**\
-`David Stearns never called up a prospect to the majors in his first full pro season during his tenure in Milwaukee.`\
-https://nytimes.com/athletic/5705870/2024/08/16/mets-brandon-sproat-prospect-call-up/
 
