@@ -1,3 +1,7 @@
+**Gate at Joint Base San Antonio Is Site of Two Shootings, Officials Say**\
+`Separate episodes of gunfire happened hours apart early on Saturday at a gate to the military installation. A motive was unclear, the authorities said.`\
+https://nytimes.com/2024/08/17/us/shooting-air-force-base-san-antonio.html
+
 **Perry Kurtz, Comedian Who Appeared on ‘America’s Got Talent,’ Dies at 73**\
 `Mr. Kurtz, who was killed in a hit-and-run on Thursday, honed his routine over decades and eventually became a recognizable face at comedy institutions.`\
 https://nytimes.com/2024/08/17/arts/television/perry-kurtz-dead-hit-run.html

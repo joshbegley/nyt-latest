@@ -1,3 +1,7 @@
+**Gate at Joint Base San Antonio Is Site of Two Shootings, Officials Say**\
+`Separate episodes of gunfire happened hours apart early on Saturday at a gate to the military installation. A motive was unclear, the authorities said.`\
+https://nytimes.com/2024/08/17/us/shooting-air-force-base-san-antonio.html
+
 **Perry Kurtz, Comedian Who Appeared on ‘America’s Got Talent,’ Dies at 73**\
 `Mr. Kurtz, who was killed in a hit-and-run on Thursday, honed his routine over decades and eventually became a recognizable face at comedy institutions.`\
 https://nytimes.com/2024/08/17/arts/television/perry-kurtz-dead-hit-run.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/17/us/elections/democrats-election-legal-challenges.
 **The Briefing: Arsenal 2 Wolves 0 - Saka's fast start, Raya's stunning save**\
 `Arsenal managed a 2-0 win against Wolves to start their new Premier League campaign`\
 https://nytimes.com/athletic/5704913/2024/08/17/arsenal-wolves-result-analysis-report/
-
-**Are We Ever Going to Get a Civil War Film That Tells the Truth?**\
-`A few thoughts on the movie “Gettysburg.”`\
-https://nytimes.com/2024/08/17/opinion/civil-war-film-gettysburg.html
 
