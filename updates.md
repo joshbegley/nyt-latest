@@ -1,3 +1,7 @@
+**Jahns: Caleb Williams' magic act proves the Bears QB is getting better every day**\
+`After a rough start, Williams wowed the crowd at Soldier Field with a bomb to Rome Odunze while on the move. And that was just the start.`\
+https://nytimes.com/athletic/5706970/2024/08/17/bears-caleb-williams-getting-better/
+
 **Reds place All-Star starter Hunter Greene on IL with elbow soreness**\
 `Greene, 9-4 with a 2.83 ERA, was scheduled to start Monday in Toronto. No announcement was made as to who would make the start Monday.`\
 https://nytimes.com/athletic/5707029/2024/08/17/reds-hunter-greene-elbow-soreness/
