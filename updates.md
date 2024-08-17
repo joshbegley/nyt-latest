@@ -1,3 +1,7 @@
+**Mets hitters attempt to adjust as they face more spin: 'This league is crazy, man'**\
+`Since the All-Star break, no team has seen more breaking balls than the Mets.`\
+https://nytimes.com/athletic/5705928/2024/08/16/mets-hitters-breaking-balls-spin/
+
 **Jace Jung and Trey Sweeney debut as the Tigers turn their eyes toward the future**\
 `Third baseman Jace Jung and shortstop Trey Sweeney both made their MLB debuts on Friday. `\
 https://nytimes.com/athletic/5706010/2024/08/16/tigers-jace-jung-trey-sweeney-debut/
