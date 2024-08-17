@@ -1,3 +1,7 @@
+**Spencer Torkelson returns to the Tigers: 'He doesn’t have to carry the franchise'**\
+`After nearly two months in Triple A, Spencer Torkelson went 2-for-3 with a double, a triple and a walk in his return to the majors.`\
+https://nytimes.com/athletic/5706778/2024/08/17/detroit-tigers-spencer-torkelson-return/
+
 **Titans' Key's 6-game suspension overturned**\
 `Titans outside linebacker Arden Key received the suspension under the NFL's policy against performance-enhancing drugs in July.`\
 https://nytimes.com/athletic/5706727/2024/08/17/arden-key-suspension-overturned-titans/

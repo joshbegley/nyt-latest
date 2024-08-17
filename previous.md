@@ -1,3 +1,7 @@
+**Spencer Torkelson returns to the Tigers: 'He doesn’t have to carry the franchise'**\
+`After nearly two months in Triple A, Spencer Torkelson went 2-for-3 with a double, a triple and a walk in his return to the majors.`\
+https://nytimes.com/athletic/5706778/2024/08/17/detroit-tigers-spencer-torkelson-return/
+
 **Titans' Key's 6-game suspension overturned**\
 `Titans outside linebacker Arden Key received the suspension under the NFL's policy against performance-enhancing drugs in July.`\
 https://nytimes.com/athletic/5706727/2024/08/17/arden-key-suspension-overturned-titans/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/17/science/leonard-hayflick-dead.html
 **David Sanders Jr. commitment extends heater for Josh Heupel, hits one of his trouble areas**\
 `Sanders, the No. 2 player in the Class of 2025 in the 247Sports Composite, picked Tennessee over Georgia, Ohio State and Nebraska.`\
 https://nytimes.com/athletic/5705423/2024/08/17/tennessee-vols-recruiting-david-sanders/
-
-**Forest's Danilo suffers broken ankle; being assessed in hospital**\
-`Nottingham Forest midfielder Danilo has suffered a broken ankle and is in hospital for further assessments.`\
-https://nytimes.com/athletic/5706465/2024/08/17/danilo-injury-nottingham-forest/
 
