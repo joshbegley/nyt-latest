@@ -1,3 +1,7 @@
+**Everton's Dyche 'confused' by VAR penalty overturn in defeat to Brighton**\
+`Everton manager Sean Dyche has said he is &#8220;confused&#8221; by the decision to overturn a penalty in his side&#8217;s favour in their Premier League defeat to Brighton &amp; Hove Albion on Saturday.`\
+https://nytimes.com/athletic/5706642/2024/08/17/evertons-sean-dyche-confused-by-var-penalty-overturn-in-defeat-to-brighton/
+
 **Leonard Hayflick, Who Discovered Why No One Lives Forever, Dies at 98**\
 `A biomedical researcher, he found that normal cells can divide only a certain number of times before they age — which, he said, explained aging on a cellular level.`\
 https://nytimes.com/2024/08/17/science/leonard-hayflick-dead.html
