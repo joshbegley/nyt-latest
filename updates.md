@@ -1,3 +1,7 @@
+**Can We Talk? The Characters in These 2 Books Can, and How**\
+`Evelyn Waugh’s garrulous embalmers; Deborah Eisenberg’s urban neurotics.`\
+https://nytimes.com/2024/08/17/books/read-like-wind-recommendations-good-dialogue.html
+
 **Matthew Perry and the People Who Prey on Addicts**\
 `Sometimes the most dangerous people are the ones who tell themselves they’re actually helping.`\
 https://nytimes.com/2024/08/17/opinion/matthew-perry-death-arrests.html

@@ -1,3 +1,7 @@
+**Can We Talk? The Characters in These 2 Books Can, and How**\
+`Evelyn Waugh’s garrulous embalmers; Deborah Eisenberg’s urban neurotics.`\
+https://nytimes.com/2024/08/17/books/read-like-wind-recommendations-good-dialogue.html
+
 **Matthew Perry and the People Who Prey on Addicts**\
 `Sometimes the most dangerous people are the ones who tell themselves they’re actually helping.`\
 https://nytimes.com/2024/08/17/opinion/matthew-perry-death-arrests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/17/opinion/conventional-wisdom.html
 **Gomez's Liverpool future uncertain after omission from squad for season opener**\
 `Joe Gomez’s future at Liverpool is increasingly uncertain after he was left out of their 20-man squad for their opening Premier League game at Ipswich Town.`\
 https://nytimes.com/athletic/5706254/2024/08/17/joe-gomez-liverpool-future-transfer/
-
-**The Movies of 1999**\
-`Twenty-five years ago was a landmark time for cinema, with films that captured our collective hope and paranoia about the coming millennium.`\
-https://nytimes.com/2024/08/17/briefing/the-movies-of-1999.html
 
