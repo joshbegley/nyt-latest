@@ -1,3 +1,7 @@
+**Maresca: 'Better' if Chilwell leaves Chelsea this summer**\
+`Enzo Maresca confirmed Ben Chilwell can leave Chelsea during the summer transfer window as he does not fit in the new head coach&#8217;s system.`\
+https://nytimes.com/athletic/5706166/2024/08/17/ben-chilwell-chelsea-future-maresca/
+
 **Lebanese Officials Say Israeli Strike Kills at Least 10**\
 `It would be one of the deadliest attacks in the country since Israel began fighting its war in Gaza. Negotiators have been pushing to reach a cease-fire in that war, hoping to avert a wider conflagration.`\
 https://nytimes.com/2024/08/17/world/middleeast/lebanon-israel-hezbollah-strike-cease-fire.html
