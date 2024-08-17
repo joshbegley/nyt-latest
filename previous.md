@@ -1,3 +1,7 @@
+**Nottingham Forest considering loan move for Aston Villa's Moreno**\
+`Nottingham Forest are considering a move to recruit Alex Moreno on loan from Aston Villa.`\
+https://nytimes.com/athletic/5706290/2024/08/17/alex-moreno-nottingham-forest-loan/
+
 **Why Draper and Auger-Aliassime's match point should change tennis' view on video replays**\
 `The sport keeps putting players, umpires, and fans in bad situations that they should not have to experience`\
 https://nytimes.com/athletic/5706255/2024/08/17/draper-auger-aliassime-cincinnati-match-point/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/17/opinion/josh-shapiro-democrats-israel.html
 **Masculinity Is on the Ballot**\
 `Has liberalism perfected a model of modern masculinity while conservative culture slouches somewhere far behind?`\
 https://nytimes.com/2024/08/17/opinion/masculinity-liberal-conservative.html
-
-**The New York Suburb Where Democrats Hope to Claw Back Victory**\
-`Long Island is an increasingly Republican stronghold, but Democrats believe they have a chance to win key House races there this year.`\
-https://nytimes.com/2024/08/17/opinion/long-island-house-election.html
 

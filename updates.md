@@ -1,3 +1,7 @@
+**Nottingham Forest considering loan move for Aston Villa's Moreno**\
+`Nottingham Forest are considering a move to recruit Alex Moreno on loan from Aston Villa.`\
+https://nytimes.com/athletic/5706290/2024/08/17/alex-moreno-nottingham-forest-loan/
+
 **Why Draper and Auger-Aliassime's match point should change tennis' view on video replays**\
 `The sport keeps putting players, umpires, and fans in bad situations that they should not have to experience`\
 https://nytimes.com/athletic/5706255/2024/08/17/draper-auger-aliassime-cincinnati-match-point/
