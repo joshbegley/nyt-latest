@@ -1,3 +1,7 @@
+**Perry Kurtz, Comedian Who Appeared on ‘America’s Got Talent,’ Dies at 73**\
+`Mr. Kurtz, who was killed in a hit-and-run on Thursday, honed his routine over decades and eventually became a recognizable face at comedy institutions.`\
+https://nytimes.com/2024/08/17/arts/television/perry-kurtz-dead-hit-run.html
+
 **Everton's Dyche 'confused' by VAR penalty overturn in defeat to Brighton**\
 `Everton manager Sean Dyche has said he is &#8220;confused&#8221; by the decision to overturn a penalty in his side&#8217;s favour in their Premier League defeat to Brighton &amp; Hove Albion on Saturday.`\
 https://nytimes.com/athletic/5706642/2024/08/17/evertons-sean-dyche-confused-by-var-penalty-overturn-in-defeat-to-brighton/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5704913/2024/08/17/arsenal-wolves-result-analysis-r
 **Are We Ever Going to Get a Civil War Film That Tells the Truth?**\
 `A few thoughts on the movie “Gettysburg.”`\
 https://nytimes.com/2024/08/17/opinion/civil-war-film-gettysburg.html
-
-**George Santos Is Expected to Plead Guilty, People Close to the Case Say**\
-`Mr. Santos could change his mind, but witnesses in his campaign fraud case were told by federal prosecutors that he intends to plead guilty on Monday.`\
-https://nytimes.com/2024/08/17/nyregion/santos-pleads-guilty.html
 

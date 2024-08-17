@@ -1,3 +1,7 @@
+**Perry Kurtz, Comedian Who Appeared on ‘America’s Got Talent,’ Dies at 73**\
+`Mr. Kurtz, who was killed in a hit-and-run on Thursday, honed his routine over decades and eventually became a recognizable face at comedy institutions.`\
+https://nytimes.com/2024/08/17/arts/television/perry-kurtz-dead-hit-run.html
+
 **Leonard Hayflick, Who Discovered Why No One Lives Forever, Dies at 96**\
 `A biomedical researcher, he found that normal cells can divide only a certain number of times before they age — which, he said, explained aging on a cellular level.`\
 https://nytimes.com/2024/08/17/science/leonard-hayflick-dead.html
