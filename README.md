@@ -1,3 +1,7 @@
+**Teamsters Union Says Harris Has Accepted Offer to Meet Its Leaders**\
+`The head of the union, which has not backed a presidential candidate this year, asked to speak at both parties’ conventions. He spoke at the Republican convention in July.`\
+https://nytimes.com/2024/08/16/us/politics/kamala-harris-teamsters.html
+
 **The Atlanta Braves miss Ron Washington, and it sure sounds like he misses them too**\
 `Brian Snitker talked to him, Braves players hugged him. Then Washington spent a while talking about the Braves' up-and-down season.`\
 https://nytimes.com/athletic/5706030/2024/08/16/atlanta-braves-miss-ron-washington/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5705928/2024/08/16/mets-hitters-breaking-balls-spin
 **Free Vasectomies and an Inflatable IUD: Abortion Rights Advocates Hit the D.N.C.**\
 `This convention is likely to be a head-on display of a new, unbridled abortion politics.`\
 https://nytimes.com/2024/08/16/us/politics/dnc-abortion-rights.html
-
-**Rutgers AD Pat Hobbs resigns after 9-year tenure**\
-`The 64-year-old Hobbs cited health-related concerns for his sudden departure from the job.`\
-https://nytimes.com/athletic/5705896/2024/08/16/rutgers-pat-hobbs-resigns/
 
