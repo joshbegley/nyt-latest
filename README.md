@@ -7,7 +7,7 @@ https://nytimes.com/2024/08/17/realestate/nar-commissions-rules-changes.html
 https://nytimes.com/athletic/5706942/2024/08/17/baltimore-ravens-preseason-training-camp-tyler-linderbaum/
 
 **Jahns: Caleb Williams' magic act proves the Bears QB is getting better every day**\
-`CHICAGO — It took nearly an entire half of football, but quarterback Caleb Williams finally provided everyone at Soldier Field — and those watching across the country — with glimpses of what’s to come this season and beyond.`\
+`After a rough start, Williams wowed the crowd at Soldier Field with a bomb to Rome Odunze while on the move. And that was just the start.`\
 https://nytimes.com/athletic/5706970/2024/08/17/bears-caleb-williams-getting-better/
 
 **Another Outer Banks Home Collapses Into Ocean, a Stark Reminder of Climate Change**\
