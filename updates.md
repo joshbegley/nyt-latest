@@ -1,3 +1,7 @@
+**Leonard Hayflick, Who Discovered Why No One Lives Forever, Dies at 98**\
+`A biomedical researcher, he found that normal cells can divide only a certain number of times before they age — which, he said, explained aging on a cellular level.`\
+https://nytimes.com/2024/08/17/science/leonard-hayflick-dead.html
+
 **David Sanders Jr. commitment extends heater for Josh Heupel, hits one of his trouble areas**\
 `Sanders, the No. 2 player in the Class of 2025 in the 247Sports Composite, picked Tennessee over Georgia, Ohio State and Nebraska.`\
 https://nytimes.com/athletic/5705423/2024/08/17/tennessee-vols-recruiting-david-sanders/

@@ -1,3 +1,7 @@
+**Leonard Hayflick, Who Discovered Why No One Lives Forever, Dies at 98**\
+`A biomedical researcher, he found that normal cells can divide only a certain number of times before they age — which, he said, explained aging on a cellular level.`\
+https://nytimes.com/2024/08/17/science/leonard-hayflick-dead.html
+
 **David Sanders Jr. commitment extends heater for Josh Heupel, hits one of his trouble areas**\
 `Sanders, the No. 2 player in the Class of 2025 in the 247Sports Composite, picked Tennessee over Georgia, Ohio State and Nebraska.`\
 https://nytimes.com/athletic/5705423/2024/08/17/tennessee-vols-recruiting-david-sanders/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/17/nyregion/santos-pleads-guilty.html
 **West Brom 0 Leeds 0: Did Leeds miss Rutter? Has it been a tough start for Bogle?**\
 `Leeds managed a second Championship draw on the spin when they faced West Brom — here are our takeaways from the game`\
 https://nytimes.com/athletic/5706258/2024/08/17/leeds-united-west-brom-analysis/
-
-**Trump’s Media Blitz: Talk Radio, a Video Game Celebrity and Elon Musk**\
-`A whirl of appearances in media venues large and small have defined Donald Trump’s past four weeks, as he tries to wrest attention from his new opponent, Kamala Harris.`\
-https://nytimes.com/2024/08/17/business/media/trump-media-strategy.html
 
