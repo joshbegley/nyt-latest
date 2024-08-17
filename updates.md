@@ -1,3 +1,7 @@
+**Titans' Key's 6-game suspension overturned**\
+`Titans outside linebacker Arden Key received the suspension under the NFL's policy against performance-enhancing drugs in July.`\
+https://nytimes.com/athletic/5706727/2024/08/17/arden-key-suspension-overturned-titans/
+
 **Angel Gome hospitalised after head injury**\
 `Lille midfielder Angel Gomes is in hospital after suffering a serious head injury in his side&#8217;s Ligue 1 match against Reims.`\
 https://nytimes.com/athletic/5706800/2024/08/17/angel-gomes-head-injury-lille/
