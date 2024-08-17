@@ -1,3 +1,7 @@
+**The Movies of 1999**\
+`Twenty-five years ago was a landmark time for cinema, with films that captured our collective hope and paranoia about the coming millennium.`\
+https://nytimes.com/2024/08/17/briefing/the-movies-of-1999.html
+
 **Twins survive barrage of hard contact, improve to season-best 16 games over .500**\
 `Of the 15 balls hit 95 mph or better against the Twins on Friday, 11 were turned into outs.`\
 https://nytimes.com/athletic/5706048/2024/08/17/twins-carlos-santana-win-rangers/
