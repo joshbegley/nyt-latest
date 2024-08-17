@@ -1,3 +1,11 @@
+**De Zerbi: Greenwood's Marseille goals will help reduce controversy**\
+`Roberto De Zerbi has praised Mason Greenwood after the forward marked his Marseille debut with two goals in a 5-1 victory against Brest.`\
+https://nytimes.com/athletic/5706559/2024/08/17/mason-greenwood-marseille-goals-roberto-de-zerbi/
+
+**Newcastle Briefing: Did Schar deserve a red and time to give up on Guehi?**\
+`From 'soft' dismissals to transfer chat, we analyse the major talking points from the 1-0 win over Southampton`\
+https://nytimes.com/athletic/5706622/2024/08/17/newcastle-united-southampton-result-analysis/
+
 **Gate at Joint Base San Antonio Is Site of Two Shootings, Officials Say**\
 `Separate episodes of gunfire happened hours apart early on Saturday at a gate to the military installation. A motive was unclear, the authorities said.`\
 https://nytimes.com/2024/08/17/us/shooting-air-force-base-san-antonio.html
