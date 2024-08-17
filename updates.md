@@ -1,3 +1,7 @@
+**Tim Walz plays up his Nebraska roots at rally near Omaha.**\
+`By Jazmine Ulloa`\
+https://nytimes.com/live/2024/08/17/us/trump-harris-election/tim-walz-plays-up-his-nebraska-roots-at-rally-near-omaha
+
 **Spencer Torkelson returns to the Tigers: 'He doesn’t have to carry the franchise'**\
 `After nearly two months in Triple A, Torkelson went 2-for-3 with a double, a triple and a walk in his return to the majors.`\
 https://nytimes.com/athletic/5706778/2024/08/17/detroit-tigers-spencer-torkelson-return/
