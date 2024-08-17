@@ -1,3 +1,7 @@
+**Reds place All-Star starter Hunter Greene on IL with elbow soreness**\
+`Greene in 143.1 innings, is boasting a 2.83 ERA, a 1.02 WHIP with a 162 strikeouts and 53 BB.`\
+https://nytimes.com/athletic/5707029/2024/08/17/reds-hunter-greene-elbow-soreness/
+
 **Tim Walz plays up his Nebraska roots at rally near Omaha.**\
 `By Jazmine Ulloa`\
 https://nytimes.com/live/2024/08/17/us/trump-harris-election/tim-walz-plays-up-his-nebraska-roots-at-rally-near-omaha
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5706727/2024/08/17/arden-key-suspension-overturned-
 **Angel Gome hospitalised after head injury**\
 `Lille midfielder Angel Gomes is in hospital after suffering a serious head injury in his side&#8217;s Ligue 1 match against Reims.`\
 https://nytimes.com/athletic/5706800/2024/08/17/angel-gomes-head-injury-lille/
-
-**De Zerbi: Greenwood's Marseille goals will help reduce controversy**\
-`Roberto De Zerbi has praised Mason Greenwood after the forward marked his Marseille debut with two goals in a 5-1 victory against Brest.`\
-https://nytimes.com/athletic/5706559/2024/08/17/mason-greenwood-marseille-goals-roberto-de-zerbi/
 

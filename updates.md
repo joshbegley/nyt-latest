@@ -1,3 +1,7 @@
+**Reds place All-Star starter Hunter Greene on IL with elbow soreness**\
+`Greene in 143.1 innings, is boasting a 2.83 ERA, a 1.02 WHIP with a 162 strikeouts and 53 BB.`\
+https://nytimes.com/athletic/5707029/2024/08/17/reds-hunter-greene-elbow-soreness/
+
 **Tim Walz plays up his Nebraska roots at rally near Omaha.**\
 `By Jazmine Ulloa`\
 https://nytimes.com/live/2024/08/17/us/trump-harris-election/tim-walz-plays-up-his-nebraska-roots-at-rally-near-omaha
