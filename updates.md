@@ -1,3 +1,7 @@
+**Corrections: Aug. 17, 2024**\
+`Corrections that appeared in print on Saturday, Aug. 17, 2024.`\
+https://nytimes.com/2024/08/17/pageoneplus/corrections-aug-17-2024.html
+
 **Caitlin Clark paints masterpiece in Fever's win over Mercury**\
 `Clark looked poised and the Fever looked like a team prepared for a playoff push. `\
 https://nytimes.com/athletic/5706049/2024/08/17/caitlin-clark-indiana-fever-mercury-wnba/

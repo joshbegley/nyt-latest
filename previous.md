@@ -1,3 +1,7 @@
+**Corrections: Aug. 17, 2024**\
+`Corrections that appeared in print on Saturday, Aug. 17, 2024.`\
+https://nytimes.com/2024/08/17/pageoneplus/corrections-aug-17-2024.html
+
 **Caitlin Clark paints masterpiece in Fever's win over Mercury**\
 `Clark looked poised and the Fever looked like a team prepared for a playoff push. `\
 https://nytimes.com/athletic/5706049/2024/08/17/caitlin-clark-indiana-fever-mercury-wnba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5704778/2024/08/17/martin-zubimendi-liverpool-real-
 **Premier League plane watch: How often did your team fly to games on last season's run-in?**\
 `The Athletic looked at the last 10 rounds of fixtures in the 2023-24 season to find out which clubs flew to their domestic away matches`\
 https://nytimes.com/athletic/5696011/2024/08/17/premier-league-domestic-flights/
-
-**Musah: 'Without God, I wouldn't be in this position - millions of people work as hard as me'**\
-`USMNT midfielder on growing up in Italy, the U.S. and England, playing for Milan and starring alongside with Bellingham, Musiala and Saka`\
-https://nytimes.com/athletic/5696895/2024/08/17/yunus-musah-ac-milan-interview/
 
