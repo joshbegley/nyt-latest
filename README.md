@@ -1,3 +1,7 @@
+**Forest's Danilo suffers broken ankle; being assessed in hospital**\
+`Nottingham Forest midfielder Danilo has suffered a broken ankle and is in hospital for further assessments.`\
+https://nytimes.com/athletic/5706465/2024/08/17/danilo-injury-nottingham-forest/
+
 **Ipswich were beaten by Liverpool - but this is why they shouldn't lose heart**\
 `Kieran McKenna's side were ultimately outclassed but their display - especially from Leif Davis - boded well`\
 https://nytimes.com/athletic/5706501/2024/08/17/ipswich-town-liverpool-tactics/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/17/business/media/trump-media-strategy.html
 **Harris Campaign Reserves $370 Million for Swing-State Fall Ad Blitz**\
 `$200 million of that will be spent to reach voters on their phones and other devices, as Kamala Harris’s aides race to define her while drawing a contrast with Donald Trump.`\
 https://nytimes.com/2024/08/17/us/politics/kamala-harris-ads.html
-
-**Images of History, From Film to Digital**\
-`The reporter and photographer David Gonzalez once had to ship his film rolls to The Times’s Manhattan office. But in 1999, he went digital.`\
-https://nytimes.com/2024/08/17/insider/digital-camera.html
 
