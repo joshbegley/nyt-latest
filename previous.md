@@ -1,3 +1,11 @@
+**Ranking the best and worst Premier League away kits: Graffiti, Lynx deodorant and 'night forest'**\
+`There are some maverick designs in here... some of which are good, some of which are bad. We've ranked them all from 20 to 1...`\
+https://nytimes.com/athletic/5684536/2024/08/17/premier-league-away-kits-rankings/
+
+**Welcome to the biggest season of James Maddison's career**\
+`No Premier League player will start this new season more keen to write a new story for himself than James Maddison`\
+https://nytimes.com/athletic/5702639/2024/08/17/james-maddison-tottenham-england-season/
+
 **Zubimendi, Liverpool and how Basque loyalty has trumped personal ambition - for now**\
 `Spain midfielder's background and close relationships to friends and family trumped lure of Anfield opportunity - but the timing was crucial`\
 https://nytimes.com/athletic/5704778/2024/08/17/martin-zubimendi-liverpool-real-sociedad/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/16/us/politics/kamala-harris-teamsters.html
 **Atlanta Braves miss Ron Washington, and it sure sounds like he misses them, too**\
 `Brian Snitker talked to him, Braves players hugged him. Then, Washington spent a while talking about the Braves' up-and-down season.`\
 https://nytimes.com/athletic/5706030/2024/08/16/atlanta-braves-miss-ron-washington/
-
-**Body-Camera Video Shows Chaos Around Fatal Police Shooting of N.J. Woman**\
-`New Jersey’s attorney general is investigating the killing of Victoria G. Lee, whose family has said the police escalated a nonthreatening episode. The police said Ms. Lee had a knife.`\
-https://nytimes.com/2024/08/16/nyregion/fort-lee-shooting-victoria-lee.html
-
-**Jace Jung and Trey Sweeney debut as the Tigers turn their eyes toward the future**\
-`Third baseman Jace Jung and shortstop Trey Sweeney both made their MLB debuts on Friday. `\
-https://nytimes.com/athletic/5706010/2024/08/16/tigers-jace-jung-trey-sweeney-debut/
 

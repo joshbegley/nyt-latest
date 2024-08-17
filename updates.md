@@ -1,3 +1,11 @@
+**Ranking the best and worst Premier League away kits: Graffiti, Lynx deodorant and 'night forest'**\
+`There are some maverick designs in here... some of which are good, some of which are bad. We've ranked them all from 20 to 1...`\
+https://nytimes.com/athletic/5684536/2024/08/17/premier-league-away-kits-rankings/
+
+**Welcome to the biggest season of James Maddison's career**\
+`No Premier League player will start this new season more keen to write a new story for himself than James Maddison`\
+https://nytimes.com/athletic/5702639/2024/08/17/james-maddison-tottenham-england-season/
+
 **Zubimendi, Liverpool and how Basque loyalty has trumped personal ambition - for now**\
 `Spain midfielder's background and close relationships to friends and family trumped lure of Anfield opportunity - but the timing was crucial`\
 https://nytimes.com/athletic/5704778/2024/08/17/martin-zubimendi-liverpool-real-sociedad/
