@@ -1,3 +1,7 @@
+**Are We Ever Going to Get a Civil War Film That Tells the Truth?**\
+`A few thoughts on the movie “Gettysburg.”`\
+https://nytimes.com/2024/08/17/opinion/civil-war-film-gettysburg.html
+
 **George Santos Is Expected to Plead Guilty, People Close to the Case Say**\
 `Mr. Santos could change his mind, but witnesses in his campaign fraud case were told by federal prosecutors that he intends to plead guilty on Monday.`\
 https://nytimes.com/2024/08/17/nyregion/santos-pleads-guilty.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/17/insider/the-times-newsroom-goes-to-the-democratic
 **A Project That Celebrates Collaboration and Cooperation**\
 `For T Magazine, Kate Guadagnino set out to identify the many people involved in creating a single object or artistic work, including a luxury handbag, a performance piece, a pizza and more.`\
 https://nytimes.com/2024/08/17/insider/team-projects.html
-
-**PSG striker Ramos set for three months out with ankle ligament injury**\
-`Paris Saint-Germain striker Goncalo Ramos will be sidelined for at least three months after suffering a serious ligament injury to his left ankle.`\
-https://nytimes.com/athletic/5706402/2024/08/17/goncalo-ramos-injury-psg/
 
