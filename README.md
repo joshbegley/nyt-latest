@@ -1,3 +1,7 @@
+**Maresca: 'Better' if Chilwell leaves Chelsea this summer**\
+`Enzo Maresca confirmed Ben Chilwell can leave Chelsea during the summer transfer window as he does not fit in the new head coach&#8217;s system.`\
+https://nytimes.com/athletic/5706166/2024/08/17/ben-chilwell-chelsea-future-maresca/
+
 **Lebanese Officials Say Israeli Strike Kills at Least 10**\
 `It would be one of the deadliest attacks in the country since Israel began fighting its war in Gaza. Negotiators have been pushing to reach a cease-fire in that war, hoping to avert a wider conflagration.`\
 https://nytimes.com/2024/08/17/world/middleeast/lebanon-israel-hezbollah-strike-cease-fire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5705916/2024/08/17/manchester-united-fulham-smith-r
 **Joshua Zirkzee debut shows he is more than a facilitator, he is also a finisher**\
 `Manchester United's new forward has been heavily touted as a provider who will link play - but his debut goal suggests there is more`\
 https://nytimes.com/athletic/5706019/2024/08/17/zirkzee-debut-manchester-united/
-
-**Corrections: Aug. 17, 2024**\
-`Corrections that appeared in print on Saturday, Aug. 17, 2024.`\
-https://nytimes.com/2024/08/17/pageoneplus/corrections-aug-17-2024.html
 
