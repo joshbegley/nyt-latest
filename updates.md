@@ -1,3 +1,7 @@
+**Evanilson to Bournemouth: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we look at Evanilson's move to Bournemouth.`\
+https://nytimes.com/athletic/5704690/2024/08/17/evanilson-to-bournemouth-the-athletic-500-transfer-ratings/
+
 **Harris Campaign’s Legal Team Takes Shape as Election Battles Heat Up**\
 `The campaign is adding Marc Elias, one of the party’s top election lawyers, to help Democrats counter what they expect to be a contentious postelection period.`\
 https://nytimes.com/2024/08/17/us/elections/democrats-election-legal-challenges.html
