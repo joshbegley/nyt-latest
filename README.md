@@ -1,3 +1,7 @@
+**Everton's Dyche 'confused' by VAR penalty overturn in defeat to Brighton**\
+`Everton manager Sean Dyche has said he is &#8220;confused&#8221; by the decision to overturn a penalty in his side&#8217;s favour in their Premier League defeat to Brighton &amp; Hove Albion on Saturday.`\
+https://nytimes.com/athletic/5706642/2024/08/17/evertons-sean-dyche-confused-by-var-penalty-overturn-in-defeat-to-brighton/
+
 **Leonard Hayflick, Who Discovered Why No One Lives Forever, Dies at 98**\
 `A biomedical researcher, he found that normal cells can divide only a certain number of times before they age — which, he said, explained aging on a cellular level.`\
 https://nytimes.com/2024/08/17/science/leonard-hayflick-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/17/opinion/civil-war-film-gettysburg.html
 **George Santos Is Expected to Plead Guilty, People Close to the Case Say**\
 `Mr. Santos could change his mind, but witnesses in his campaign fraud case were told by federal prosecutors that he intends to plead guilty on Monday.`\
 https://nytimes.com/2024/08/17/nyregion/santos-pleads-guilty.html
-
-**West Brom 0 Leeds 0: Did Leeds miss Rutter? Has it been a tough start for Bogle?**\
-`Leeds managed a second Championship draw on the spin when they faced West Brom — here are our takeaways from the game`\
-https://nytimes.com/athletic/5706258/2024/08/17/leeds-united-west-brom-analysis/
 
