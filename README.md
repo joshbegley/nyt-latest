@@ -3,7 +3,7 @@
 https://nytimes.com/2024/08/16/crosswords/daily-puzzle-2024-08-17.html
 
 **From pencil bats to Scooby spikes, Players' Weekend showcasing a different side of MLB**\
-`This weekend, players will be highlighting elements of their personalities, interests and charities through their bats, gloves, and spikes.`\
+`This weekend, players will highlight elements of their personalities, interests and charities through their bats, gloves, and spikes.`\
 https://nytimes.com/athletic/5705821/2024/08/16/players-weekend-mlb-highlights/
 
 **Dodgers' Tyler Glasnow goes on IL with elbow tendonitis**\
