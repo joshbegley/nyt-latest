@@ -1,3 +1,11 @@
+**During Ukraine’s Incursion, Russian Conscripts Recount Surrendering in Droves**\
+`More than 300 have been processed in a prison in Ukraine, providing the country with a much-needed “exchange fund” for future swaps of prisoners of war.`\
+https://nytimes.com/2024/08/17/world/europe/ukraines-incursion-russian-conscripts.html
+
+**Biden’s Goodbye to Politics Will Begin in Earnest With His Convention Speech**\
+`It will be a bittersweet moment for the president, who left the race and turned the keys of his campaign over to Vice President Kamala Harris less than a month ago.`\
+https://nytimes.com/2024/08/17/us/politics/biden-dnc-speech.html
+
 **Nottingham Forest considering loan move for Aston Villa's Moreno**\
 `Nottingham Forest are considering a move to recruit Alex Moreno on loan from Aston Villa.`\
 https://nytimes.com/athletic/5706290/2024/08/17/alex-moreno-nottingham-forest-loan/
