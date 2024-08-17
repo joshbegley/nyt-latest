@@ -1,3 +1,19 @@
+**Trump’s Media Blitz: Talk Radio, a Video Game Celebrity and Elon Musk**\
+`A whirl of appearances in media venues large and small have defined Donald Trump’s past four weeks, as he tries to wrest attention from his new opponent, Kamala Harris.`\
+https://nytimes.com/2024/08/17/business/media/trump-media-strategy.html
+
+**Harris Campaign Reserves $370 Million for Swing-State Fall Ad Blitz**\
+`$200 million of that will be spent to reach voters on their phones and other devices, as Kamala Harris’s aides race to define her while drawing a contrast with Donald Trump.`\
+https://nytimes.com/2024/08/17/us/politics/kamala-harris-ads.html
+
+**Images of History, From Film to Digital**\
+`The reporter and photographer David Gonzalez once had to ship his film rolls to The Times’s Manhattan office. But in 1999, he went digital.`\
+https://nytimes.com/2024/08/17/insider/digital-camera.html
+
+**Rick Martínez’s Tostadas Are a Treat**\
+`“This was one of the most delicious recipes we’ve ever made.”`\
+https://nytimes.com/2024/08/17/dining/rick-martinezs-tostadas-are-a-treat.html
+
 **Quansah substituted after aerial duels struggles - Slot**\
 `Arne Slot explained defender Jarell Quansah was taken off at half-time during Liverpool&#8217;s victory over Ipswich Town because he felt his side were not winning enough aerial duels.`\
 https://nytimes.com/athletic/5706444/2024/08/17/jarell-quansah-liverpool-arne-slot/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5703088/2024/08/17/ipswich-liverpool-premier-league
 **Former Man United defender Jones retires, targets management**\
 `Former Manchester United defender Phil Jones has confirmed his retirement from playing and hopes to embark on a coaching career.`\
 https://nytimes.com/athletic/5706357/2024/08/17/phil-jones-retires-man-united/
-
-**Merino misses Real Sociedad's La Liga opener amid Arsenal talks**\
-`Mikel Merino has been left out of Real Sociedad&#8217;s squad for their La Liga opener against Rayo Vallecano amid talks over a move to Arsenal.`\
-https://nytimes.com/athletic/5706337/2024/08/17/mikel-merino-arsenal-real-sociedad/
-
-**During Ukraine’s Incursion, Russian Conscripts Recount Surrendering in Droves**\
-`More than 300 have been processed in a prison in Ukraine, providing the country with a much-needed “exchange fund” for future swaps of prisoners of war.`\
-https://nytimes.com/2024/08/17/world/europe/ukraines-incursion-russian-conscripts.html
-
-**Biden’s Goodbye to Politics Will Begin in Earnest With His Convention Speech**\
-`It will be a bittersweet moment for the president, who left the race and turned the keys of his campaign over to Vice President Kamala Harris less than a month ago.`\
-https://nytimes.com/2024/08/17/us/politics/biden-dnc-speech.html
-
-**Nottingham Forest considering loan move for Aston Villa's Moreno**\
-`Nottingham Forest are considering a move to recruit Alex Moreno on loan from Aston Villa.`\
-https://nytimes.com/athletic/5706290/2024/08/17/alex-moreno-nottingham-forest-loan/
 
