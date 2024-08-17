@@ -1,3 +1,7 @@
+**Titans' Key's 6-game suspension overturned**\
+`Titans outside linebacker Arden Key received the suspension under the NFL's policy against performance-enhancing drugs in July.`\
+https://nytimes.com/athletic/5706727/2024/08/17/arden-key-suspension-overturned-titans/
+
 **Angel Gome hospitalised after head injury**\
 `Lille midfielder Angel Gomes is in hospital after suffering a serious head injury in his side&#8217;s Ligue 1 match against Reims.`\
 https://nytimes.com/athletic/5706800/2024/08/17/angel-gomes-head-injury-lille/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5705423/2024/08/17/tennessee-vols-recruiting-david-
 **Forest's Danilo suffers broken ankle; being assessed in hospital**\
 `Nottingham Forest midfielder Danilo has suffered a broken ankle and is in hospital for further assessments.`\
 https://nytimes.com/athletic/5706465/2024/08/17/danilo-injury-nottingham-forest/
-
-**Ipswich were beaten by Liverpool - but this is why they shouldn't lose heart**\
-`Kieran McKenna's side were ultimately outclassed but their display - especially from Leif Davis - boded well`\
-https://nytimes.com/athletic/5706501/2024/08/17/ipswich-town-liverpool-tactics/
 
