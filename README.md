@@ -1,3 +1,7 @@
+**Fossils Show Giant Predatory Sea Scorpions Were Distance Swimmers**\
+`Specimens of what appear to be the largest eurypterid species found in Australia could shed light on the sudden extinction of the massive arthropods.`\
+https://nytimes.com/2024/08/16/science/giant-sea-scorpions-australia.html
+
 **Thinks (On)**\
 `Brandon Koppy submits a clean, confident Saturday crossword puzzle.`\
 https://nytimes.com/2024/08/16/crosswords/daily-puzzle-2024-08-17.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5705870/2024/08/16/mets-brandon-sproat-prospect-cal
 **Tell us: Have you been forgoing Covid tests?**\
 `It’s the fifth summer of Covid, and most people seem eager to move on. We want to understand the pervasiveness of the ignorance-is-bliss attitude.`\
 https://nytimes.com/2024/08/16/health/covid-habits-testing.html
-
-**Landon Donovan named San Diego Wave interim coach**\
-`Donovan is one of the most decorated U.S. men’s soccer players in program history with 57 goals in 157 international caps.`\
-https://nytimes.com/athletic/5705849/2024/08/16/landon-donovan-san-diego-wave-coach-nwsl/
 
