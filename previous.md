@@ -1,40 +1,40 @@
-**Maresca: 'Better' if Chilwell leaves Chelsea this summer**\
-`Enzo Maresca confirmed Ben Chilwell can leave Chelsea during the summer transfer window as he does not fit in the new head coach&#8217;s system.`\
-https://nytimes.com/athletic/5706166/2024/08/17/ben-chilwell-chelsea-future-maresca/
+**They’re Putting Some Fun in Funerals**\
+`Modern, even hip, mortuaries around the world are hoping to answer one question: How do we commemorate death in 2024?`\
+https://nytimes.com/2024/08/17/style/london-exit-here-funeral-homes.html
 
-**Lebanese Officials Say Israeli Strike Kills at Least 10**\
-`It would be one of the deadliest attacks in the country since Israel began fighting its war in Gaza. Negotiators have been pushing to reach a cease-fire in that war, hoping to avert a wider conflagration.`\
-https://nytimes.com/2024/08/17/world/middleeast/lebanon-israel-hezbollah-strike-cease-fire.html
+**My Wild Night With Edna O’Brien**\
+`On the trail of Ralph Fiennes in 1990s Manhattan, the esteemed novelist pays a visit to a burlesque club.`\
+https://nytimes.com/2024/08/17/style/edna-obrien-irish-author-friendship.html
 
-**Nottingham Forest complete Ramon Sosa signing**\
-`Nottingham Forest have completed the signing of Paraguay winger Ramon Sosa, bringing a long saga to a positive end.`\
-https://nytimes.com/athletic/5706115/2024/08/17/nottingham-forest-ramon-sosa-signing/
+**As California Clears Homeless Camps, Two Projects Point a Way Forward**\
+`While L.A. County grapples with homelessness, elegant new housing projects in Long Beach and Venice signal the solutions — and challenges — ahead.`\
+https://nytimes.com/2024/08/17/arts/design/homeless-encampments-los-angeles-housing.html
 
-**A New York City Hospital System Has Been Bitten by the Acting Bug**\
-`The Northwell Health system allowed filmmakers to make documentaries following its doctors, nurses and patients. It went so well, the hospital is starting a studio to make its own.`\
-https://nytimes.com/2024/08/17/nyregion/northwell-health-hospitals-film-television.html
+**Assessing Trump’s and Harris’s Attacks on Each Other**\
+`We examine the two candidates’ criticisms of each other’s policies, promises and records.`\
+https://nytimes.com/2024/08/17/us/politics/trump-harris-fact-check-policies-records.html
 
-**Diving Into New York’s Murky Green Waters, Searching for Treasure**\
-`It’s hard to see through the water, and too easy to find trash, but divers are finding joy in exploring New York.`\
-https://nytimes.com/2024/08/17/nyregion/diving-into-new-yorks-murky-green-waters-searching-for-treasure.html
+**When Can You Alter a Landmark Building (and When Can’t You)?**\
+`Special features, such as windows with curved glass, may be difficult to replace. Repair or retrofitting might be the better option.`\
+https://nytimes.com/2024/08/17/realestate/when-can-you-alter-a-landmark-building-and-when-cant-you.html
 
-**How a Brooklyn Business Owner and Foodie Spends Her Sundays**\
-`Kai Avent-deLeon, who owns a lifestyle store and a restaurant in Brooklyn, starts and ends her day with her journal. In between? Friends, family and delicious food.`\
-https://nytimes.com/2024/08/17/nyregion/kai-avent-delon-brooklyn-che-sincerely-tommy.html
+**The Best Way to Save Money Cooking for One? Think Like a Co-op.**\
+`Shopping in bulk with a friend or neighbor can reduce costs while strengthening relationships.`\
+https://nytimes.com/2024/08/17/dining/cooking-for-one-budget.html
 
-**When N.F.L. Dreams End, NASCAR’s Pit Crews Beckon**\
-`In NASCAR, victory — and money — is often determined by seconds, one reason car racing teams are increasingly looking to hire former college athletes.`\
-https://nytimes.com/2024/08/17/business/nascar-pit-crews-football-players.html
+**How Tau Lewis Channels the Spirit World**\
+`Her first solo museum exhibition, at the Institute of Contemporary Art, Boston, is full of towering, mysterious beings. The exhibit is “all grief work,” she said.`\
+https://nytimes.com/2024/08/17/arts/tau-lewis-artist.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/08/17/crosswords/spelling-bee-forum.html
+**Awkwafina Won’t Forget This Play’s Monologue Anytime Soon**\
+`“It gives me the chills right now thinking about it,” said the actress and comedian, who stars in the film “Jackpot!” with John Cena and Simu Liu.`\
+https://nytimes.com/2024/08/17/movies/awkwafina-interview-jackpot.html
 
-**Manchester United 1-0 Fulham: Post-Palhinha midfield yet to take shape, Smith Rowe debut**\
-`The key talking points from Fulham's opening night defeat at Old Trafford`\
-https://nytimes.com/athletic/5705916/2024/08/17/manchester-united-fulham-smith-rowe/
+**All the ‘Alien’ Movies, Ranked**\
+`With “Alien: Romulus” hitting theaters, the 45-year-old series is getting a new jolt of life. How does the latest film stack up against its predecessors?`\
+https://nytimes.com/2024/08/17/movies/alien-movies-ranked.html
 
-**Joshua Zirkzee debut shows he is more than a facilitator, he is also a finisher**\
-`Manchester United's new forward has been heavily touted as a provider who will link play - but his debut goal suggests there is more`\
-https://nytimes.com/athletic/5706019/2024/08/17/zirkzee-debut-manchester-united/
+**The Spy America Left to Rot**\
+`In “Prisoner of Lies,” Barry Werth tells the story of a young C.I.A. operative who spent two decades waiting out the postwar era in a Chinese jail cell.`\
+https://nytimes.com/2024/08/17/books/review/prisoner-of-lies-barry-werth.html
 
