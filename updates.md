@@ -1,3 +1,15 @@
+**Doubting America’s ‘Nuclear Umbrella,’ Some South Koreans Want Their Own**\
+`Washington says it would defend the South against North Korea with nuclear arms, if need be. But more and more people in the South think it should rely on itself.`\
+https://nytimes.com/2024/08/17/world/asia/south-korea-nuclear-arsenal.html
+
+**Saturday's MLB odds, best bets: Predictions for pitching matchups, props, playoffs and more**\
+`See pitching matchups, playoff projections, win projections and more for Saturday's MLB games.`\
+https://nytimes.com/athletic/5705397/2024/08/17/mlb-odds-best-bets-projections-august-17/
+
+**Quotation of the Day: Football Dream Over? NASCAR Has a Job It’d Like to Discuss.**\
+`Quotation of the Day for Saturday, August 17, 2024.`\
+https://nytimes.com/2024/08/17/pageoneplus/quotation-of-the-day-football-dream-over-nascar-has-a-job-itd-like-to-discuss.html
+
 **Teamsters Union Says Harris Has Accepted Offer to Meet Its Leaders**\
 `The head of the union, which has not backed a presidential candidate this year, asked to speak at both parties’ conventions. He spoke at the Republican convention in July.`\
 https://nytimes.com/2024/08/16/us/politics/kamala-harris-teamsters.html
