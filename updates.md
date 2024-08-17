@@ -1,3 +1,7 @@
+**Ryan Pressly hits injured list during Astros' toughest stretch of the season**\
+`The Astros say their setup man has a lower back strain, a problem he tried to pitch through during the club’s last road trip.`\
+https://nytimes.com/athletic/5706940/2024/08/17/astros-ryan-pressly-injured-list/
+
 **For Your Amusement**\
 `Rebecca Goldstein and Will Nediger’s puzzle takes us along for the ride.`\
 https://nytimes.com/2024/08/17/crosswords/daily-puzzle-2024-08-18.html
