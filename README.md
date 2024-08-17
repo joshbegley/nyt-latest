@@ -1,3 +1,7 @@
+**Quansah substituted after aerial duels struggles - Slot**\
+`Arne Slot explained defender Jarell Quansah was taken off at half-time during Liverpool&#8217;s victory over Ipswich Town because he felt his side were not winning enough aerial duels.`\
+https://nytimes.com/athletic/5706444/2024/08/17/jarell-quansah-liverpool-arne-slot/
+
 **The Times Newsroom Goes to the Democratic National Convention**\
 `Lisa Lerer, a New York Times politics reporter, will cover the D.N.C. with a host of colleagues, building a makeshift office at the event in Chicago.`\
 https://nytimes.com/2024/08/17/insider/the-times-newsroom-goes-to-the-democratic-national-convention.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/17/us/politics/biden-dnc-speech.html
 **Nottingham Forest considering loan move for Aston Villa's Moreno**\
 `Nottingham Forest are considering a move to recruit Alex Moreno on loan from Aston Villa.`\
 https://nytimes.com/athletic/5706290/2024/08/17/alex-moreno-nottingham-forest-loan/
-
-**Why Draper and Auger-Aliassime's match point should change tennis' view on video replays**\
-`The sport keeps putting players, umpires, and fans in bad situations that they should not have to experience`\
-https://nytimes.com/athletic/5706255/2024/08/17/draper-auger-aliassime-cincinnati-match-point/
 
