@@ -1,3 +1,7 @@
+**David Sanders Jr. commitment extends heater for Josh Heupel, hits one of his trouble areas**\
+`Sanders, the No. 2 player in the Class of 2025 in the 247Sports Composite, picked Tennessee over Georgia, Ohio State and Nebraska.`\
+https://nytimes.com/athletic/5705423/2024/08/17/tennessee-vols-recruiting-david-sanders/
+
 **Forest's Danilo suffers broken ankle; being assessed in hospital**\
 `Nottingham Forest midfielder Danilo has suffered a broken ankle and is in hospital for further assessments.`\
 https://nytimes.com/athletic/5706465/2024/08/17/danilo-injury-nottingham-forest/

@@ -1,3 +1,7 @@
+**David Sanders Jr. commitment extends heater for Josh Heupel, hits one of his trouble areas**\
+`Sanders, the No. 2 player in the Class of 2025 in the 247Sports Composite, picked Tennessee over Georgia, Ohio State and Nebraska.`\
+https://nytimes.com/athletic/5705423/2024/08/17/tennessee-vols-recruiting-david-sanders/
+
 **Forest's Danilo suffers broken ankle; being assessed in hospital**\
 `Nottingham Forest midfielder Danilo has suffered a broken ankle and is in hospital for further assessments.`\
 https://nytimes.com/athletic/5706465/2024/08/17/danilo-injury-nottingham-forest/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5706258/2024/08/17/leeds-united-west-brom-analysis/
 **Trump’s Media Blitz: Talk Radio, a Video Game Celebrity and Elon Musk**\
 `A whirl of appearances in media venues large and small have defined Donald Trump’s past four weeks, as he tries to wrest attention from his new opponent, Kamala Harris.`\
 https://nytimes.com/2024/08/17/business/media/trump-media-strategy.html
-
-**Harris Campaign Reserves $370 Million for Swing-State Fall Ad Blitz**\
-`$200 million of that will be spent to reach voters on their phones and other devices, as Kamala Harris’s aides race to define her while drawing a contrast with Donald Trump.`\
-https://nytimes.com/2024/08/17/us/politics/kamala-harris-ads.html
 
