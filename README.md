@@ -1,3 +1,7 @@
+**Tim Walz plays up his Nebraska roots at rally near Omaha.**\
+`By Jazmine Ulloa`\
+https://nytimes.com/live/2024/08/17/us/trump-harris-election/tim-walz-plays-up-his-nebraska-roots-at-rally-near-omaha
+
 **5 Bengals who helped themselves vs. Bears, 3 who didn't and 1 who made me think**\
 `Even in a Bengals preseason loss, a few Cincinnati players continued to show reason why they will stick on the 53-man roster this year.`\
 https://nytimes.com/athletic/5706877/2024/08/17/cincinnati-bengals-chicago-bears-preseason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5706800/2024/08/17/angel-gomes-head-injury-lille/
 **De Zerbi: Greenwood's Marseille goals will help reduce controversy**\
 `Roberto De Zerbi has praised Mason Greenwood after the forward marked his Marseille debut with two goals in a 5-1 victory against Brest.`\
 https://nytimes.com/athletic/5706559/2024/08/17/mason-greenwood-marseille-goals-roberto-de-zerbi/
-
-**Newcastle briefing: Did Schar deserve a red and time to give up on Guehi?**\
-`From 'soft' dismissals to transfer chat, we analyse the major talking points from the 1-0 win over Southampton`\
-https://nytimes.com/athletic/5706622/2024/08/17/newcastle-united-southampton-result-analysis/
 
