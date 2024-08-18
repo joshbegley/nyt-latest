@@ -1,3 +1,7 @@
+**Chargers' Easton Stick is running out of chances to prove he can back up Justin Herbert**\
+`Stick's regression this summer has been jarring. He has the worst EPA per dropback of any NFL quarterback this preseason.`\
+https://nytimes.com/athletic/5707393/2024/08/18/chargers-easton-stick-justin-herbert-backup/
+
 **Brayan Bello trending in right direction as Red Sox beat Orioles again**\
 `For 5 2/3 innings, Bello no-hit the Orioles en route to a 5-1 victory Saturday.`\
 https://nytimes.com/athletic/5707351/2024/08/18/brayan-bello-red-sox-win-orioles/
