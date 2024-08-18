@@ -1,3 +1,7 @@
+**Barcelona briefing: Lewandowski can't be dropped, Marc Bernal's impressive debut**\
+`Hansi Flick’s new era at Barcelona started with a hard-fought win away to Valencia`\
+https://nytimes.com/athletic/5707154/2024/08/18/barcelona-briefing-lewandowski-cant-be-dropped-marc-bernals-impressive-debut/
+
 **A Vice Presidential Learning Curve: How Kamala Harris Picked Her Shots**\
 `As President Biden’s understudy, Ms. Harris did not often get to lead on signature issues. But she found roles to play on abortion rights, gun safety and a Supreme Court appointment.`\
 https://nytimes.com/2024/08/18/us/politics/kamala-harris-vice-president-record.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5707404/2024/08/18/chris-sale-ronald-acuna-jr-brave
 **Chargers' Easton Stick is running out of chances to prove he can back up Justin Herbert**\
 `Stick's regression this summer has been jarring. He has the worst EPA per dropback of any NFL quarterback this preseason.`\
 https://nytimes.com/athletic/5707393/2024/08/18/chargers-easton-stick-justin-herbert-backup/
-
-**Brayan Bello trending in right direction as Red Sox beat Orioles again**\
-`For 5 2/3 innings, Bello no-hit the Orioles en route to a 5-1 victory Saturday.`\
-https://nytimes.com/athletic/5707351/2024/08/18/brayan-bello-red-sox-win-orioles/
 
