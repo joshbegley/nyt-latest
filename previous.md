@@ -1,3 +1,7 @@
+**Leicester agree deal to sign Skipp from Tottenham**\
+`Leicester City have agreed a deal to sign Oliver Skipp from Tottenham Hotspur on a permanent transfer.`\
+https://nytimes.com/athletic/5707543/2024/08/18/oliver-skipp-leicester-tottenham-transfer/
+
 **Alain Delon, Smoldering French Film Star, Dies at 88**\
 `The César-winning actor was an international favorite in the 1960s and ’70s, often sought after by the era’s great auteurs.`\
 https://nytimes.com/2024/08/18/obituaries/alain-delon-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/18/world/europe/serbia-lithium-mine.html
 **Defying Crisis in Local News, The Star Tribune Expands**\
 `The newspaper in Minneapolis is expanding its statewide coverage and changing its name to The Minnesota Star Tribune.`\
 https://nytimes.com/2024/08/18/business/media/star-tribune-minnesota.html
-
-**Venezuelans Mourn Loved Ones Killed in Protests, and Last Shreds of Democracy**\
-`The nation is in anguish as it buries its dead and enters a new era of authoritarianism.`\
-https://nytimes.com/2024/08/18/world/americas/venezuela-protester-deaths-democracy.html
 

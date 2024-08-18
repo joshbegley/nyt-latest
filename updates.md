@@ -1,3 +1,7 @@
+**Leicester agree deal to sign Skipp from Tottenham**\
+`Leicester City have agreed a deal to sign Oliver Skipp from Tottenham Hotspur on a permanent transfer.`\
+https://nytimes.com/athletic/5707543/2024/08/18/oliver-skipp-leicester-tottenham-transfer/
+
 **Alain Delon, Smoldering French Film Star, Dies at 88**\
 `The César-winning actor was an international favorite in the 1960s and ’70s, often sought after by the era’s great auteurs.`\
 https://nytimes.com/2024/08/18/obituaries/alain-delon-dead.html
