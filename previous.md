@@ -1,3 +1,7 @@
+**Corrections: Aug. 18, 2024**\
+`Corrections that appeared in print on Sunday, Aug. 18, 2024.`\
+https://nytimes.com/2024/08/18/pageoneplus/corrections-aug-18-2024.html
+
 **With Chris Sale on mound and Ronald Acuña Jr. stopping by, Braves were ready to roll**\
 `Even before the first pitch Saturday, early-arriving Braves fans at Angel Stadium saw another sight for sore eyes — Acuña.`\
 https://nytimes.com/athletic/5707404/2024/08/18/chris-sale-ronald-acuna-jr-braves-angels/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5707010/2024/08/18/la-rams-aubrey-pleasant-coach-ch
 **How did Larsen perform and what transfer business must be done?**\
 `The major talking points as Wanderers' season got off to a losing start at Arsenal `\
 https://nytimes.com/athletic/5706655/2024/08/18/wolves-transfer-briefing-larsen/
-
-**Can Saka be the 20-goal forward Arsenal need to push for the title?**\
-`Bukayo Saka scored as Arsenal beat Wolves 2-0 on Saturday - does this bode well for the rest of the season?`\
-https://nytimes.com/athletic/5706637/2024/08/18/bukayo-saka-arsenal-goals-wolves/
 
