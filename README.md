@@ -1,3 +1,7 @@
+**Lions takeaways: Hendon Hooker, Jake Bates lead standouts in win over Chiefs**\
+`Hooker deserves a chance to start next week. Meanwhile, rookie Sione Vaki might be the team's offensive MVP of the preseason so far.`\
+https://nytimes.com/athletic/5707069/2024/08/17/lions-chiefs-preseason-hendon-hooker-jake-bates/
+
 **Browns preseason: Cleveland encounters emergency situation at OT vs. Vikings**\
 `The Browns have done a lot to fortify the offensive line, but after Saturday's injuries, they may have more work to do.`\
 https://nytimes.com/athletic/5707144/2024/08/17/cleveland-browns-minnesota-vikings-preseason-germain-ifedi/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5706970/2024/08/17/bears-caleb-williams-getting-bet
 **Another Outer Banks Home Collapses Into Ocean, a Stark Reminder of Climate Change**\
 `In Rodanthe, N.C., seven homes have been lost to the ocean in the last four years, as rising sea levels erode shorelines and put more buildings at risk.`\
 https://nytimes.com/2024/08/17/us/north-carolina-house-collapse-ernesto.html
-
-**Mahomes says he improvised behind-the-back pass**\
-`Mahomes pulled off the highlight-worthy throw less than two weeks after executing the trick in practice.`\
-https://nytimes.com/athletic/5707016/2024/08/17/patrick-mahomes-trick-pass-chiefs-lions/
 
