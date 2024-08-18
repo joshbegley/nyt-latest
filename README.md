@@ -1,3 +1,11 @@
+**Vance Defends Unsubstantiated Claims About Immigration and Crime**\
+`Citing the movie “Gangs of New York,” JD Vance, the Republican vice-presidential nominee, said that immigration would create “ethnic enclaves” that spur violence and crime.`\
+https://nytimes.com/2024/08/18/us/politics/vance-immigration-gangs-of-new-york.html
+
+**Fever All-Star Caitlin Clark breaks WNBA rookie assist record**\
+`Clark passed Ticha Penicheiro, who had 225 for the Sacramento Monarchs in 1998.`\
+https://nytimes.com/athletic/5708531/2024/08/18/caitlin-clark-wnba-rookie-assist/
+
 **Brandon Nimmo exits Mets' loss with 'achy' shoulder**\
 `As they embark on one of their season&#8217;s toughest and most significant stretches, the New York Mets have a physical question mark with one of their stalwart regulars.`\
 https://nytimes.com/athletic/5708484/2024/08/18/mets-brandon-nimmo-shoulder-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5705922/2024/08/18/oilers-broberg-holloway-offer-sh
 **Elon Musk Closes X Operations in Brazil Over Fight With Judge**\
 `The billionaire said he would shutter his social network’s Brazil operations instead of complying with a Brazilian judge’s orders to suspend accounts.`\
 https://nytimes.com/2024/08/18/world/americas/elon-musk-x-brazil.html
-
-**How Slot's tweaks and Liverpool's diagonal passes unlocked Ipswich**\
-`Liverpool overcame Ipswich 2-0 in the clubs' opening game of the Premier League season – this is how they did it`\
-https://nytimes.com/athletic/5707440/2024/08/18/liverpool-arne-slot-analysis-ipswich/
-
-**To Undecided Voters, Harris Is Famous, but Unknown. They Want to Learn More.**\
-`Vice President Kamala Harris has lit a fire among loyal Democrats. But many voters still want to know more about what she stands for.`\
-https://nytimes.com/2024/08/18/us/politics/undecided-voters-kamala-harris-donald-trump.html
 
