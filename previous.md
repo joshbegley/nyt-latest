@@ -1,3 +1,15 @@
+**Russell Wilson's preseason debut does little to end Steelers' QB competition**\
+`Wilson left the door for the starting QB job open with a dull debut against the Bills, but Justin Fields didn't exactly take advantage.`\
+https://nytimes.com/athletic/5707298/2024/08/18/russell-wilsons-justin-fields-competition-preseason/
+
+**Joe Manchin Likes Kamala Harris. Here’s How He Sees Her Winning.**\
+`The senator from West Virginia assesses the Democratic Party and its path to victory in November.`\
+https://nytimes.com/2024/08/18/opinion/joe-manchin-kamala-harris.html
+
+**Trump Turned the Democratic Party Into a Pitiless Machine**\
+`The former president’s victory made it ruthlessly pragmatic.`\
+https://nytimes.com/2024/08/18/opinion/pelosi-trump-biden-harris.html
+
 **Aubrey Pleasant as Rams 'HC', WR outlook, safeties competition and more from preseason**\
 `Pleasant, the Rams' pass game coordinator, ran the show Saturday night while Sean McVay stayed upstairs. "It was a great experience."`\
 https://nytimes.com/athletic/5707010/2024/08/18/la-rams-aubrey-pleasant-coach-chargers-preseason/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5706693/2024/08/18/mohamed-salah-liverpool-ipswich/
 **Inside Conor Gallagher's chaotic wait for his Chelsea future to be resolved**\
 `Gallagher is stuck between two clubs, with the deal not yet over but no indication it will move forward`\
 https://nytimes.com/athletic/5689090/2024/08/18/conor-gallagher-chelsea-atletico-madrid/
-
-**The best, worst and weirdest new kits outside the Premier League**\
-`The Athletic's latest kit review features nods to the Eiffel Tower, Homer’s Odyssey and Blackpool Pleasure Beach`\
-https://nytimes.com/athletic/5698506/2024/08/18/kits-best-worst-weirdest-soccer/
-
-**Jayden Daniels stands tall — and kind of scares Dan Quinn — in Commanders' preseason loss**\
-`The Commanders want Daniels to protect himself on the field but the rookie QB ran into traffic Saturday rather than slide to avoid contact.`\
-https://nytimes.com/athletic/5707283/2024/08/18/jayden-daniels-commanders-dan-quinn-preseason-dolphins/
-
-**Esme Morgan on swapping WSL for NWSL: 'I've not had to say the s-word so far'**\
-`The England player on signing for Washington Spirit, why she left Manchester City, and what it means for her international ambition`\
-https://nytimes.com/athletic/5691813/2024/08/18/esme-morgan-washington-spirit/
 

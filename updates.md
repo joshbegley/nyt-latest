@@ -1,3 +1,15 @@
+**Russell Wilson's preseason debut does little to end Steelers' QB competition**\
+`Wilson left the door for the starting QB job open with a dull debut against the Bills, but Justin Fields didn't exactly take advantage.`\
+https://nytimes.com/athletic/5707298/2024/08/18/russell-wilsons-justin-fields-competition-preseason/
+
+**Joe Manchin Likes Kamala Harris. Here’s How He Sees Her Winning.**\
+`The senator from West Virginia assesses the Democratic Party and its path to victory in November.`\
+https://nytimes.com/2024/08/18/opinion/joe-manchin-kamala-harris.html
+
+**Trump Turned the Democratic Party Into a Pitiless Machine**\
+`The former president’s victory made it ruthlessly pragmatic.`\
+https://nytimes.com/2024/08/18/opinion/pelosi-trump-biden-harris.html
+
 **Aubrey Pleasant as Rams 'HC', WR outlook, safeties competition and more from preseason**\
 `Pleasant, the Rams' pass game coordinator, ran the show Saturday night while Sean McVay stayed upstairs. "It was a great experience."`\
 https://nytimes.com/athletic/5707010/2024/08/18/la-rams-aubrey-pleasant-coach-chargers-preseason/
