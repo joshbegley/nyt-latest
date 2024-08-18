@@ -1,3 +1,7 @@
+**Premier League Preview: Here We Go Again**\
+`The European soccer season is back. Here are the top story lines to watch this season.`\
+https://nytimes.com/2024/08/18/world/europe/premier-league-preview-usmnt-pochettino.html
+
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien, Michael Gold and Jazmine Ulloa`\
 https://nytimes.com/live/2024/08/18/us/harris-trump-election/heres-the-latest-on-the-presidential-race

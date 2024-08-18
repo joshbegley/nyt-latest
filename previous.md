@@ -1,3 +1,7 @@
+**Premier League Preview: Here We Go Again**\
+`The European soccer season is back. Here are the top story lines to watch this season.`\
+https://nytimes.com/2024/08/18/world/europe/premier-league-preview-usmnt-pochettino.html
+
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien, Michael Gold and Jazmine Ulloa`\
 https://nytimes.com/live/2024/08/18/us/harris-trump-election/heres-the-latest-on-the-presidential-race
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5706993/2024/08/18/bears-bengals-risers-fallers-cal
 **The Sunday Read: ‘The Man Who Couldn’t Stop Going to College’**\
 `Benjamin B. Bolger has spent his whole life amassing academic degrees. What can we learn from him?`\
 https://nytimes.com/2024/08/18/podcasts/the-daily/benjamin-bolger-college-harvard-yale.html
-
-**Colleges Can’t Say They Weren’t Warned**\
-`Three new court rulings make it clear that chaos on campus has legal consequences.`\
-https://nytimes.com/2024/08/18/opinion/ucla-harvard-protests-rulings.html
 
