@@ -1,3 +1,7 @@
+**Panathinaikos in talks with Man Utd over Pellistri deal**\
+`Panathinaikos are in talks with Manchester United over a deal for winger Facundo Pellistri.`\
+https://nytimes.com/athletic/5707823/2024/08/18/facundo-pellistri-man-united-transfer-panathinaikos/
+
 **Sterling seeks 'clarity' on Chelsea future after exclusion from matchday squad**\
 `Raheem Sterling is seeking &#8220;clarity&#8221; over his future at Chelsea after being excluded from the opening Premier League matchday squad against Manchester City.`\
 https://nytimes.com/athletic/5707944/2024/08/18/raheem-sterling-chelsea-future-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/18/opinion/europe-climate-envionment-protest.html
 **Reed: Aidan O'Connell should be the Raiders' starter, but the outlook at QB is concerning**\
 `O'Connell has delivered a better two-game sample than Gardner Minshew, but the upside still seems limited with the Raiders' second-year QB.`\
 https://nytimes.com/athletic/5707359/2024/08/18/aidan-oconnell-gardner-minshew-raiders-starting-quarterback/
-
-**Toney out of Brentford squad for Premier League opener amid Al Ahli interest**\
-`Ivan Toney has been left out of Brentford&#8217;s squad for their Premier League opener against Crystal Palace amid interest from Saudi Pro League side Al Ahli.`\
-https://nytimes.com/athletic/5707696/2024/08/18/ivan-toney-al-ahli-brentford-future/
 
