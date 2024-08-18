@@ -1,3 +1,7 @@
+**Monday Briefing: The Democratic National Convention**\
+`Plus, the dark side of Shen Yun`\
+https://nytimes.com/2024/08/18/briefing/democratic-national-convention-russia-ukraine-premier-league.html
+
 **Fernandez's Chelsea captaincy defended by Maresca after apology for racist chant**\
 `Enzo Maresca defended his decision to give Enzo Fernandez the captain’s armband for Chelsea’s 2-0 defeat against Manchester City on Sunday.`\
 https://nytimes.com/athletic/5708344/2024/08/18/enzo-fernandezs-chelsea-captaincy-defended-by-enzo-maresca-after-apology-for-racist-chant/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/18/us/politics/undecided-voters-kamala-harris-donald
 **The Briefing: Chelsea 0 Man City 2 - Did wingers justify Sterling's absence? Did Kovacic replace Rodri well?**\
 `Manchester City beat Chelsea 2-0 on Sunday afternoon to start the Premier League campaign`\
 https://nytimes.com/athletic/5707747/2024/08/18/chelsea-manchester-city-result-report-analysis/
-
-**Statue of John Lewis Replaces a Confederate Memorial in Georgia**\
-`The 12-foot-tall bronze statue of the civil rights leader was commissioned after Mr. Lewis died in 2020. It stands where a Confederate memorial was erected in 1908.`\
-https://nytimes.com/2024/08/18/us/john-lewis-statue-decatur-georgia.html
 
