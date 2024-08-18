@@ -1,3 +1,7 @@
+**Raiders to start Gardner Minshew vs. Chargers in Week 1**\
+`Antonio Pierce left the door open for both Minshew and Aidan O'Connell to end up playing at some point this season.`\
+https://nytimes.com/athletic/5708292/2024/08/18/raiders-gardner-minshew-starter-week-1/
+
 **Lowetide: Which Oilers have the most to gain from the Broberg, Holloway offer sheets?**\
 `Should Holloway and Broberg leave for St. Louis, who benefits the most in Edmonton?`\
 https://nytimes.com/athletic/5705922/2024/08/18/oilers-broberg-holloway-offer-sheets/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/18/movies/alain-delon-streaming.html
 **3 More Victims of 1921 Tulsa Race Massacre Found With Gunshot Wounds**\
 `Officials are exhuming bodies to learn more about the victims of one of the worst racial attacks in U.S. history.`\
 https://nytimes.com/2024/08/18/us/tulsa-race-massacre-victims-gunshot.html
-
-**What needs to happen for Pochettino to officially become USMNT head coach?**\
-`The USMNT have a verbal agreement with Mauricio Pochettino so what is the state of play?`\
-https://nytimes.com/athletic/5707564/2024/08/18/mauricio-pochettino-usmnt-head-coach-what-next/
 

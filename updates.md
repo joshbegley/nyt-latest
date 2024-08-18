@@ -1,3 +1,7 @@
+**Raiders to start Gardner Minshew vs. Chargers in Week 1**\
+`Antonio Pierce left the door open for both Minshew and Aidan O'Connell to end up playing at some point this season.`\
+https://nytimes.com/athletic/5708292/2024/08/18/raiders-gardner-minshew-starter-week-1/
+
 **Lowetide: Which Oilers have the most to gain from the Broberg, Holloway offer sheets?**\
 `Should Holloway and Broberg leave for St. Louis, who benefits the most in Edmonton?`\
 https://nytimes.com/athletic/5705922/2024/08/18/oilers-broberg-holloway-offer-sheets/
