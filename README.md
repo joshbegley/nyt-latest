@@ -11,7 +11,7 @@ https://nytimes.com/2024/08/18/us/politics/democratic-convention-harris-social-m
 https://nytimes.com/2024/08/18/us/east-coast-ernesto-surf.html
 
 **Quentin Johnston's development, plus other notes from Week 2 of Chargers' preseason**\
-`Johnston had only one catch for 19 yards but the plays that don't show up in the box score are evidence of the second-year WR's progress.`\
+`Johnston had only one catch for 19 yards, but the plays that don't show up in the box score are evidence of the second-year WR's progress.`\
 https://nytimes.com/athletic/5708538/2024/08/18/quentin-johnston-chargers-preseason-rams/
 
 **Vance Defends Unsubstantiated Claims About Immigration and Crime**\
