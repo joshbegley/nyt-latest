@@ -1,3 +1,7 @@
+**Toney out of Brentford squad for Premier League opener amid Al Ahli interest**\
+`Ivan Toney has been left out of Brentford&#8217;s squad for their Premier League opener against Crystal Palace amid interest from Saudi Pro League side Al Ahli.`\
+https://nytimes.com/athletic/5707696/2024/08/18/ivan-toney-al-ahli-brentford-future/
+
 **Premier League Preview: Here We Go Again**\
 `The European soccer season is back. Here are the top story lines to watch this season.`\
 https://nytimes.com/2024/08/18/world/europe/premier-league-preview-usmnt-pochettino.html
