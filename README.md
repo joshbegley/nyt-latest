@@ -1,40 +1,40 @@
+**Everton have work to do – this was no way to start final Goodison season**\
+`Everton fell to a 3-0 defeat against Brighton on the opening day of the season`\
+https://nytimes.com/athletic/5706730/2024/08/18/everton-goodison-park-brighton/
+
+**Seiya Suzuki sees a lot of balls that are called strikes. How can the Cubs solve this?**\
+`Suzuki sees a lot of pitches, and many appear to be called incorrectly. Should he start voicing his displeasure with umpires' calls? `\
+https://nytimes.com/athletic/5706835/2024/08/18/cubs-seiya-suzuki-called-strikes/
+
+**Bears risers and fallers: Caleb Williams on the run, Kyler Gordon in the backfield**\
+`Tyson Bagent and Dante Pettis had a good day against the Bengals, while Nate Davis and Ja'Tyre Carter were on the other end of the spectrum.`\
+https://nytimes.com/athletic/5706993/2024/08/18/bears-bengals-risers-fallers-caleb-williams/
+
+**The Sunday Read: ‘The Man Who Couldn’t Stop Going to College’**\
+`Benjamin B. Bolger has spent his whole life amassing academic degrees. What can we learn from him?`\
+https://nytimes.com/2024/08/18/podcasts/the-daily/benjamin-bolger-college-harvard-yale.html
+
+**Colleges Can’t Say They Weren’t Warned**\
+`Three new court rulings make it clear that chaos on campus has legal consequences.`\
+https://nytimes.com/2024/08/18/opinion/ucla-harvard-protests-rulings.html
+
+**The Connections Companion No. 435**\
+`Scroll down for hints and conversation about the puzzle for Monday, Aug. 19, 2024.`\
+https://nytimes.com/2024/08/18/crosswords/connections-companion-435.html
+
+**Jim Foley’s Legacy Helped Change Hostage Policy**\
+`Americans held captive overseas deserve all of our help.`\
+https://nytimes.com/2024/08/18/opinion/jim-foley-hostage-policy.html
+
+**Harris Can Change Biden’s Policy on Israel Just by Upholding the Law**\
+`The longstanding Leahy law can — and should — change Middle East policy.`\
+https://nytimes.com/2024/08/18/opinion/biden-israel-policy-harris.html
+
+**Wordle Review No. 1,157**\
+`Scroll down for hints and conversation about the puzzle for August 19, 2024.`\
+https://nytimes.com/2024/08/18/crosswords/wordle-review-1157.html
+
 **Blinken Travels to Israel Amid Push for Gaza Cease-Fire**\
 `The secretary of state’s trip comes days after negotiations in Qatar ended without a major breakthrough.`\
 https://nytimes.com/2024/08/18/world/middleeast/blinken-israel-gaza-hamas.html
-
-**Leicester agree deal to sign Skipp from Tottenham**\
-`Leicester City have agreed a deal to sign Oliver Skipp from Tottenham Hotspur on a permanent transfer.`\
-https://nytimes.com/athletic/5707543/2024/08/18/oliver-skipp-leicester-tottenham-transfer/
-
-**Alain Delon, Smoldering French Film Star, Dies at 88**\
-`The César-winning actor was an international favorite in the 1960s and ’70s, often sought after by the era’s great auteurs.`\
-https://nytimes.com/2024/08/18/obituaries/alain-delon-dead.html
-
-**Here are the themes for the Democratic convention.**\
-`Vice President Kamala Harris and`\
-https://nytimes.com/2024/08/18/us/politics/here-are-the-themes-for-the-democratic-convention.html
-
-**‘Alien: Romulus’ Solidifies Disney’s Box Office Rebound**\
-`After struggling in recent years, Hollywood’s biggest movie company has now delivered four hits in a row, dominating the summer with a 42 percent market share.`\
-https://nytimes.com/2024/08/18/business/media/alien-romulus-disney-box-office.html
-
-**Six Takeaways From the Magazine’s Profile of Joe Biden**\
-`His decision to quit the race ended a remarkable chapter in American political history — and started one that may yet define his legacy.`\
-https://nytimes.com/2024/08/18/magazine/biden-presidency-legacy-takeaways.html
-
-**J.B. Pritzker Is Ready to Party at a Convention He Made Happen**\
-`An unusual and chaotic set of political circumstances forced Illinois’s billionaire governor to take the lead in securing the Democratic convention for Chicago.`\
-https://nytimes.com/2024/08/18/us/politics/pritzker-democratic-convention.html
-
-**Elaine Welteroth’s Belly Chain**\
-`The former editor in chief of Teen Vogue and founder of the organization birthFund wears custom jewelry to celebrate her growing family.`\
-https://nytimes.com/2024/08/18/style/elaine-welteroth-belly-chain.html
-
-**A City of Blaring Sirens Fills With Russians Who Fled Ukraine’s Advance**\
-`In the regional capital, those who left their homes as Ukrainian forces tore into western Russia are uncertain whether they can ever return to their old lives.`\
-https://nytimes.com/2024/08/18/world/europe/a-city-of-blaring-sirens-fills-with-russians-who-fled-ukraines-advance.html
-
-**‘Bad Blood’ Stalks a Lithium Mine in Serbia**\
-`A Rio Tinto mine that Europe sees as a critical source for electric vehicle batteries has been the target of enormous protests. “I don’t need green cars. I need green apples and green grass,” said one opponent.`\
-https://nytimes.com/2024/08/18/world/europe/serbia-lithium-mine.html
 
