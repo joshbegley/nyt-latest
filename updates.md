@@ -1,3 +1,7 @@
+**Vikings stock report: Risers and fallers from preseason game vs. Browns**\
+`The Vikings won their second straight preseason game Saturday. Here are nine players who stood out in both positive and negative ways.`\
+https://nytimes.com/athletic/5707120/2024/08/17/vikings-browns-preseason-lewis-cine/
+
 **Willie Brown to Donald Trump: Mention My Name Again and Get Sued**\
 `The former president has falsely claimed that he nearly died in a helicopter ride with Mr. Brown, and that Mr. Brown said “terrible things” about Kamala Harris.`\
 https://nytimes.com/2024/08/17/us/politics/willie-brown-donald-trump-sue-lawsuit.html
