@@ -1,40 +1,40 @@
-**Flick believes Gundogan will stay at Barcelona amid doubt over his future**\
-`Barcelona head coach Hansi Flick says he believes Ilkay Gundogan will remain at Barcelona this summer amid doubts about his future.`\
-https://nytimes.com/athletic/5707507/2024/08/18/ilkay-gundogan-barcelona-future-hansi-flick/
+**Here are the themes for the Democratic convention.**\
+`Vice President Kamala Harris and`\
+https://nytimes.com/2024/08/18/us/politics/here-are-the-themes-for-the-democratic-convention.html
 
-**Barcelona briefing: Lewandowski can't be dropped, Marc Bernal's impressive debut**\
-`Hansi Flick’s new era at Barcelona started with a hard-fought win away to Valencia`\
-https://nytimes.com/athletic/5707154/2024/08/18/barcelona-briefing-lewandowski-cant-be-dropped-marc-bernals-impressive-debut/
+**‘Alien: Romulus’ Solidifies Disney’s Box Office Rebound**\
+`After struggling in recent years, Hollywood’s biggest movie company has now delivered four hits in a row, dominating the summer with a 42 percent market share.`\
+https://nytimes.com/2024/08/18/business/media/alien-romulus-disney-box-office.html
 
-**A Vice Presidential Learning Curve: How Kamala Harris Picked Her Shots**\
-`As President Biden’s understudy, Ms. Harris did not often get to lead on signature issues. But she found roles to play on abortion rights, gun safety and a Supreme Court appointment.`\
-https://nytimes.com/2024/08/18/us/politics/kamala-harris-vice-president-record.html
+**Six Takeaways From the Magazine’s Profile of Joe Biden**\
+`His decision to quit the race ended a remarkable chapter in American political history — and started one that may yet define his legacy.`\
+https://nytimes.com/2024/08/18/magazine/biden-presidency-legacy-takeaways.html
 
-**How the Israel-Hamas War Could Shape the New York City Mayoral Race**\
-`Mayor Eric Adams is a strong supporter of Israel. One of his primary opponents, Brad Lander, the comptroller, calls himself a “progressive Zionist.”`\
-https://nytimes.com/2024/08/18/nyregion/israel-gaza-lander-adams.html
+**J.B. Pritzker Is Ready to Party at a Convention He Made Happen**\
+`An unusual and chaotic set of political circumstances forced Illinois’s billionaire governor to take the lead in securing the Democratic convention for Chicago.`\
+https://nytimes.com/2024/08/18/us/politics/pritzker-democratic-convention.html
 
-**‘We Were Sitting on a Bench Resting Our Tired Legs Late in the Day’**\
-`A guide’s advice at the Met, giving up a good parking spot and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2024/08/18/nyregion/metropolitan-diary.html
+**Elaine Welteroth’s Belly Chain**\
+`The former editor in chief of Teen Vogue and founder of the organization birthFund wears custom jewelry to celebrate her growing family.`\
+https://nytimes.com/2024/08/18/style/elaine-welteroth-belly-chain.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/08/18/crosswords/spelling-bee-forum.html
+**A City of Blaring Sirens Fills With Russians Who Fled Ukraine’s Advance**\
+`In the regional capital, those who left their homes as Ukrainian forces tore into western Russia are uncertain whether they can ever return to their old lives.`\
+https://nytimes.com/2024/08/18/world/europe/a-city-of-blaring-sirens-fills-with-russians-who-fled-ukraines-advance.html
 
-**Jonas Eidevall hoping a 'proper pre-season' will help Arsenal after a summer of change**\
-`Arsenal Women's 2024-25 is starting more than 3,600 miles away from home with their first ever pre-season tour of the United States`\
-https://nytimes.com/athletic/5706226/2024/08/18/jonas-eidevall-arsenal-women/
+**‘Bad Blood’ Stalks a Lithium Mine in Serbia**\
+`A Rio Tinto mine that Europe sees as a critical source for electric vehicle batteries has been the target of enormous protests. “I don’t need green cars. I need green apples and green grass,” said one opponent.`\
+https://nytimes.com/2024/08/18/world/europe/serbia-lithium-mine.html
 
-**Leverkusen send out a message to their rivals - they will not ease off**\
-`If anyone thought Bayer Leverkusen would soften over the summer, their win in the German Super Cup suggests they should think again`\
-https://nytimes.com/athletic/5706988/2024/08/18/bayer-leverkusen-super-cup-stuttgart/
+**Defying Crisis in Local News, The Star Tribune Expands**\
+`The newspaper in Minneapolis is expanding its statewide coverage and changing its name to The Minnesota Star Tribune.`\
+https://nytimes.com/2024/08/18/business/media/star-tribune-minnesota.html
 
-**Corrections: Aug. 18, 2024**\
-`Corrections that appeared in print on Sunday, Aug. 18, 2024.`\
-https://nytimes.com/2024/08/18/pageoneplus/corrections-aug-18-2024.html
+**Venezuelans Mourn Loved Ones Killed in Protests, and Last Shreds of Democracy**\
+`The nation is in anguish as it buries its dead and enters a new era of authoritarianism.`\
+https://nytimes.com/2024/08/18/world/americas/venezuela-protester-deaths-democracy.html
 
-**With Chris Sale on mound and Ronald Acuña Jr. stopping by, Braves were ready to roll**\
-`Even before the first pitch Saturday, early-arriving Braves fans at Angel Stadium saw another sight for sore eyes — Acuña.`\
-https://nytimes.com/athletic/5707404/2024/08/18/chris-sale-ronald-acuna-jr-braves-angels/
+**Joe Biden’s Interrupted Presidency**\
+`He sought the office nearly all his life. When he finally got there, it brought out his best — and eventually his worst.`\
+https://nytimes.com/2024/08/18/magazine/joe-biden-president-legacy.html
 
