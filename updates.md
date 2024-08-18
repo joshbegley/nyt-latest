@@ -1,3 +1,7 @@
+**Explained: Why VAR could not intervene after Eze's goal was disallowed**\
+`Eberechi Eze&#8217;s disallowed free kick goal for Crystal Palace against Brentford could not be overturned by VAR because referee Samuel Barrott blew his whistle before the ball entered the net.`\
+https://nytimes.com/athletic/5707875/2024/08/18/eberechi-eze-disallowed-goal-var-why/
+
 **Breaking down the mistake that USMNT's Ethan Horvath will never want to see again**\
 `The Cardiff City goalkeeper had an afternoon to forget on Saturday and it will have set back his chances of becoming USA No 1`\
 https://nytimes.com/athletic/5707684/2024/08/18/breaking-down-ethan-horvath-mistake/

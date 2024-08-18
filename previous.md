@@ -1,3 +1,7 @@
+**Explained: Why VAR could not intervene after Eze's goal was disallowed**\
+`Eberechi Eze&#8217;s disallowed free kick goal for Crystal Palace against Brentford could not be overturned by VAR because referee Samuel Barrott blew his whistle before the ball entered the net.`\
+https://nytimes.com/athletic/5707875/2024/08/18/eberechi-eze-disallowed-goal-var-why/
+
 **The Pulse: Look at what Mahomes can do now**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5707882/2024/08/18/patrick-mahomes-behind-back-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5707696/2024/08/18/ivan-toney-al-ahli-brentford-fut
 **Premier League Preview: Here We Go Again**\
 `The European soccer season is back. Here are the top story lines to watch this season.`\
 https://nytimes.com/2024/08/18/world/europe/premier-league-preview-usmnt-pochettino.html
-
-**Here’s the latest on the presidential race.**\
-`By Simon J. Levien, Michael Gold and Jazmine Ulloa`\
-https://nytimes.com/live/2024/08/18/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 
