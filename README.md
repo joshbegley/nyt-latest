@@ -1,3 +1,7 @@
+**Matsuyama holds on to capture opening leg of FedEx Cup playoffs**\
+`Matsuyama will rise five spots in the FedEx Cup standings to advance to the second week of the PGA Tour playoffs in the No. 3 spot.`\
+https://nytimes.com/athletic/5708714/2024/08/18/hideki-matsuyama-fedex-cup-playoffs/
+
 **Three Red Sox takeaways as team splits important series with Orioles**\
 `The Red Sox have had their roadtrip to Baltimore and Houston circled for weeks. It got off to a solid start with a series split vs. the O's.`\
 https://nytimes.com/athletic/5708654/2024/08/18/red-sox-takeaways-orioles-series-split/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/18/us/politics/vance-immigration-gangs-of-new-york.h
 **Fever All-Star Caitlin Clark breaks WNBA rookie assist record**\
 `Clark passed Ticha Penicheiro, who had 225 for the Sacramento Monarchs in 1998.`\
 https://nytimes.com/athletic/5708531/2024/08/18/caitlin-clark-wnba-rookie-assist/
-
-**Brandon Nimmo exits Mets' loss with 'achy' shoulder**\
-`As they embark on one of their season&#8217;s toughest and most significant stretches, the New York Mets have a physical question mark with one of their stalwart regulars.`\
-https://nytimes.com/athletic/5708484/2024/08/18/mets-brandon-nimmo-shoulder-injury/
 
