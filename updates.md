@@ -1,3 +1,7 @@
+**Brayan Bello trending in right direction as Red Sox beat Orioles again**\
+`For 5 2/3 innings, Bello no-hit the Orioles en route to a 5-1 victory Saturday.`\
+https://nytimes.com/athletic/5707351/2024/08/18/brayan-bello-red-sox-win-orioles/
+
 **Giants are still searching for RBIs in shutout loss to A's**\
 `When it comes to having a nose for an RBI, too many middle-of-the-order Giants batters suffer from a bad case of congestion.`\
 https://nytimes.com/athletic/5707365/2024/08/18/giants-shutout-loss-athletics/
