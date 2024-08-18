@@ -1,3 +1,7 @@
+**Breaking down the mistake that USMNT's Ethan Horvath will never want to see again**\
+`The Cardiff City goalkeeper had an afternoon to forget on Saturday and it will have set back his chances of becoming his country's No 1`\
+https://nytimes.com/athletic/5707684/2024/08/18/breaking-down-ethan-horvath-mistake/
+
 **Protesters Will Converge on Chicago. City Leaders Say They’re Prepared.**\
 `Activists plan to push for policy changes on Gaza as Democrats hold their convention. Chicago officials are confident they will avoid a repeat of the chaos that unfolded in 1968.`\
 https://nytimes.com/2024/08/18/us/chicago-dnc-protests.html
