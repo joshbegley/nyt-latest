@@ -1,3 +1,7 @@
+**Vikings stock report: Risers and fallers from preseason game vs. Browns**\
+`The Vikings won their second straight preseason game Saturday. Here are nine players who stood out in both positive and negative ways.`\
+https://nytimes.com/athletic/5707120/2024/08/17/vikings-browns-preseason-lewis-cine/
+
 **Willie Brown to Donald Trump: Mention My Name Again and Get Sued**\
 `The former president has falsely claimed that he nearly died in a helicopter ride with Mr. Brown, and that Mr. Brown said “terrible things” about Kamala Harris.`\
 https://nytimes.com/2024/08/17/us/politics/willie-brown-donald-trump-sue-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5707016/2024/08/17/patrick-mahomes-trick-pass-chief
 **Reds place All-Star starter Hunter Greene on IL with elbow soreness**\
 `Greene, 9-4 with a 2.83 ERA, was scheduled to start Monday in Toronto. No announcement was made as to who would make the start Monday.`\
 https://nytimes.com/athletic/5707029/2024/08/17/reds-hunter-greene-elbow-soreness/
-
-**Tim Walz plays up his Nebraska roots at rally near Omaha.**\
-`By Jazmine Ulloa`\
-https://nytimes.com/live/2024/08/17/us/trump-harris-election/tim-walz-plays-up-his-nebraska-roots-at-rally-near-omaha
 
