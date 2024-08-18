@@ -1,3 +1,7 @@
+**The Briefing: Chelsea 0 Man City 2 - Did wingers justify Sterling's absence? Did Kovacic replace Rodri well?**\
+`Manchester City beat Chelsea 2-0 on Sunday afternoon to start the Premier League campaign`\
+https://nytimes.com/athletic/5707747/2024/08/18/chelsea-manchester-city-result-report-analysis/
+
 **The Briefing: Chelsea 0 Man City 2 - Did wingers justify Sterling absence? Did Kovacic replace Rodri well?**\
 `Manchester City beat Chelsea 2-0 on Sunday afternoon to start the Premier League campaign`\
 https://nytimes.com/athletic/5707747/2024/08/18/chelsea-manchester-city-result-report-analysis/
