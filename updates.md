@@ -1,3 +1,7 @@
+**Three Red Sox takeaways as team splits important series with Orioles**\
+`The Red Sox have had their roadtrip to Baltimore and Houston circled for weeks. It got off to a solid start with a series split vs. the O's.`\
+https://nytimes.com/athletic/5708654/2024/08/18/red-sox-takeaways-orioles-series-split/
+
 **Tim Walz and the Pull of Rural America**\
 `Responses to an essay about the vice-presidential candidate and rural values. Also: A rattled Trump; cancer screening; the S.S. United States; L.A. Olympic transit.`\
 https://nytimes.com/2024/08/18/opinion/tim-walz-rural-america.html
