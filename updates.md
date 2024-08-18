@@ -1,3 +1,7 @@
+**Matsuyama holds on to capture opening leg of FedEx Cup playoffs**\
+`Matsuyama will rise five spots in the FedEx Cup standings to advance to the second week of the PGA Tour playoffs in the No. 3 spot.`\
+https://nytimes.com/athletic/5708714/2024/08/18/hideki-matsuyama-fedex-cup-playoffs/
+
 **Three Red Sox takeaways as team splits important series with Orioles**\
 `The Red Sox have had their roadtrip to Baltimore and Houston circled for weeks. It got off to a solid start with a series split vs. the O's.`\
 https://nytimes.com/athletic/5708654/2024/08/18/red-sox-takeaways-orioles-series-split/
