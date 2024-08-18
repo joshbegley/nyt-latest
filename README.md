@@ -1,3 +1,7 @@
+**Fernandez's Chelsea captaincy defended by Maresca after apology for racist chant**\
+`Enzo Maresca defended his decision to give Enzo Fernandez the captain’s armband for Chelsea’s 2-0 defeat against Manchester City on Sunday.`\
+https://nytimes.com/athletic/5708344/2024/08/18/enzo-fernandezs-chelsea-captaincy-defended-by-enzo-maresca-after-apology-for-racist-chant/
+
 **U.S. flag football QB discusses NFL players will taking Olympic spots**\
 `Darrell “Housh” Doucette led the flag football national team to a gold medal at the 2022 World Games.`\
 https://nytimes.com/athletic/5708248/2024/08/18/us-flag-football-nfl-olympics-2028/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5707747/2024/08/18/chelsea-manchester-city-result-r
 **Statue of John Lewis Replaces a Confederate Memorial in Georgia**\
 `The 12-foot-tall bronze statue of the civil rights leader was commissioned after Mr. Lewis died in 2020. It stands where a Confederate memorial was erected in 1908.`\
 https://nytimes.com/2024/08/18/us/john-lewis-statue-decatur-georgia.html
-
-**76ers, France’s Guerschon Yabusele in serious talks on deal**\
-`Yabusele is resolving his $2.5 million contract buyout with Real Madrid as he nears a return to the NBA.`\
-https://nytimes.com/athletic/5708086/2024/08/18/76ers-guerschon-yabusele-deal/
 
