@@ -1,3 +1,7 @@
+**Where to Stream the Films of Alain Delon**\
+`A look at 10 standout films featuring the actor, who died on Sunday at 88.`\
+https://nytimes.com/2024/08/18/movies/alain-delon-streaming.html
+
 **What needs to happen for Pochettino to officially become USMNT head coach?**\
 `The USMNT have a verbal agreement with Mauricio Pochettino so what is the state of play?`\
 https://nytimes.com/athletic/5707564/2024/08/18/mauricio-pochettino-usmnt-head-coach-what-next/
