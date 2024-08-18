@@ -1,3 +1,7 @@
+**Quentin Johnston's development, plus other notes from Week 2 of Chargers' preseason**\
+`Johnston had only one catch for 19 yards but the plays that don't show up in the box score are evidence of the second-year WR's progress.`\
+https://nytimes.com/athletic/5708538/2024/08/18/quentin-johnston-chargers-preseason-rams/
+
 **Vance Defends Unsubstantiated Claims About Immigration and Crime**\
 `Citing the movie “Gangs of New York,” JD Vance, the Republican vice-presidential nominee, said that immigration would create “ethnic enclaves” that spur violence and crime.`\
 https://nytimes.com/2024/08/18/us/politics/vance-immigration-gangs-of-new-york.html
