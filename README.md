@@ -1,3 +1,7 @@
+**Statue of John Lewis Replaces a Confederate Memorial in Georgia**\
+`The 12-foot-tall bronze statue of the civil rights leader was commissioned after Mr. Lewis died in 2020. It stands where a Confederate memorial was erected in 1908.`\
+https://nytimes.com/2024/08/18/us/john-lewis-statue-decatur-georgia.html
+
 **76ers, France’s Guerschon Yabusele in serious talks on deal**\
 `Yabusele is resolving his $2.5 million contract buyout with Real Madrid as he nears a return to the NBA.`\
 https://nytimes.com/athletic/5708086/2024/08/18/76ers-guerschon-yabusele-deal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5707944/2024/08/18/raheem-sterling-chelsea-future-t
 **Explained: Why VAR could not intervene after Eze's goal was disallowed**\
 `Eberechi Eze&#8217;s disallowed free kick goal for Crystal Palace against Brentford could not be overturned by VAR because referee Samuel Barrott blew his whistle before the ball entered the net.`\
 https://nytimes.com/athletic/5707875/2024/08/18/eberechi-eze-disallowed-goal-var-why/
-
-**The Pulse: Look at what Mahomes can do now**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5707882/2024/08/18/patrick-mahomes-behind-back-the-pulse/
 
