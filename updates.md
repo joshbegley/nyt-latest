@@ -1,3 +1,7 @@
+**How did Larsen perform and what transfer business must be done?**\
+`The major talking points as Wanderers' season got off to a losing start at Arsenal `\
+https://nytimes.com/athletic/5706655/2024/08/18/wolves-transfer-briefing-larsen/
+
 **Can Saka be the 20-goal forward Arsenal need to push for the title?**\
 `Bukayo Saka scored as Arsenal beat Wolves 2-0 on Saturday - does this bode well for the rest of the season?`\
 https://nytimes.com/athletic/5706637/2024/08/18/bukayo-saka-arsenal-goals-wolves/
