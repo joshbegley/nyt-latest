@@ -1,3 +1,7 @@
+**Urged to Focus on the Economy, Trump Leans Into Attacks of Harris**\
+`At a rally in Pennsylvania, former President Donald J. Trump vacillated between criticisms of the economy and immigration and personal attacks on Vice President Kamala Harris.`\
+https://nytimes.com/2024/08/17/us/politics/trump-harris-pennsylvania.html
+
 **Lions takeaways: Hendon Hooker, Jake Bates lead standouts in win over Chiefs**\
 `Hooker deserves a chance to start next week. Meanwhile, rookie Sione Vaki might be the team's offensive MVP of the preseason so far.`\
 https://nytimes.com/athletic/5707069/2024/08/17/lions-chiefs-preseason-hendon-hooker-jake-bates/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5706942/2024/08/17/baltimore-ravens-preseason-train
 **Jahns: Caleb Williams' magic act proves the Bears QB is getting better every day**\
 `After a rough start, Williams wowed the crowd at Soldier Field with a bomb to Rome Odunze while on the move. And that was just the start.`\
 https://nytimes.com/athletic/5706970/2024/08/17/bears-caleb-williams-getting-better/
-
-**Another Outer Banks Home Collapses Into Ocean, a Stark Reminder of Climate Change**\
-`In Rodanthe, N.C., seven homes have been lost to the ocean in the last four years, as rising sea levels erode shorelines and put more buildings at risk.`\
-https://nytimes.com/2024/08/17/us/north-carolina-house-collapse-ernesto.html
 

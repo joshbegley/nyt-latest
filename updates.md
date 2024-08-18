@@ -1,3 +1,7 @@
+**Urged to Focus on the Economy, Trump Leans Into Attacks of Harris**\
+`At a rally in Pennsylvania, former President Donald J. Trump vacillated between criticisms of the economy and immigration and personal attacks on Vice President Kamala Harris.`\
+https://nytimes.com/2024/08/17/us/politics/trump-harris-pennsylvania.html
+
 **Lions takeaways: Hendon Hooker, Jake Bates lead standouts in win over Chiefs**\
 `Hooker deserves a chance to start next week. Meanwhile, rookie Sione Vaki might be the team's offensive MVP of the preseason so far.`\
 https://nytimes.com/athletic/5707069/2024/08/17/lions-chiefs-preseason-hendon-hooker-jake-bates/
