@@ -1,3 +1,7 @@
+**Breaking down the mistake that USMNT's Ethan Horvath will never want to see again**\
+`The Cardiff City goalkeeper had an afternoon to forget on Saturday and it will have set back his chances of becoming his country's No 1`\
+https://nytimes.com/athletic/5707684/2024/08/18/breaking-down-ethan-horvath-mistake/
+
 **Protesters Will Converge on Chicago. City Leaders Say They’re Prepared.**\
 `Activists plan to push for policy changes on Gaza as Democrats hold their convention. Chicago officials are confident they will avoid a repeat of the chaos that unfolded in 1968.`\
 https://nytimes.com/2024/08/18/us/chicago-dnc-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/18/briefing/art-market-downturn.html
 **Black Caviar, Champion Racehorse and Australian Icon, Dies**\
 `She won every race she ran, and her fame went beyond the insular world of horseracing.`\
 https://nytimes.com/2024/08/18/world/australia/black-caviar-racehorse-dies.html
-
-**Cowboys coach Mike McCarthy on performance vs. Raiders: 'This was a good night for us'**\
-`There was plenty to like in the Cowboys' second preseason game against the Raiders from the offense, defense and special teams.`\
-https://nytimes.com/athletic/5707485/2024/08/18/dallas-cowboys-preseason-observations-raiders/
 
