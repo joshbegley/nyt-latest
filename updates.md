@@ -1,3 +1,7 @@
+**Statue of John Lewis Replaces a Confederate Memorial in Georgia**\
+`The 12-foot-tall bronze statue of the civil rights leader was commissioned after Mr. Lewis died in 2020. It stands where a Confederate memorial was erected in 1908.`\
+https://nytimes.com/2024/08/18/us/john-lewis-statue-decatur-georgia.html
+
 **76ers, France’s Guerschon Yabusele in serious talks on deal**\
 `Yabusele is resolving his $2.5 million contract buyout with Real Madrid as he nears a return to the NBA.`\
 https://nytimes.com/athletic/5708086/2024/08/18/76ers-guerschon-yabusele-deal/
