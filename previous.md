@@ -1,3 +1,7 @@
+**The Briefing: Chelsea 0 Man City 2 - Did wingers justify Sterling exclusion? Did Kovacic impress?**\
+`Manchester City beat Chelsea 2-0 on Sunday afternoon to start the Premier League campaign`\
+https://nytimes.com/athletic/5707747/2024/08/18/chelsea-manchester-city-result-report-analysis/
+
 **Statue of John Lewis Replaces a Confederate Memorial in Georgia**\
 `The 12-foot-tall bronze statue of the civil rights leader was commissioned after Mr. Lewis died in 2020. It stands where a Confederate memorial was erected in 1908.`\
 https://nytimes.com/2024/08/18/us/john-lewis-statue-decatur-georgia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5707823/2024/08/18/facundo-pellistri-man-united-tra
 **Sterling seeks 'clarity' on Chelsea future after exclusion from matchday squad**\
 `Raheem Sterling is seeking &#8220;clarity&#8221; over his future at Chelsea after being excluded from the opening Premier League matchday squad against Manchester City.`\
 https://nytimes.com/athletic/5707944/2024/08/18/raheem-sterling-chelsea-future-transfer/
-
-**Explained: Why VAR could not intervene after Eze's goal was disallowed**\
-`Eberechi Eze&#8217;s disallowed free kick goal for Crystal Palace against Brentford could not be overturned by VAR because referee Samuel Barrott blew his whistle before the ball entered the net.`\
-https://nytimes.com/athletic/5707875/2024/08/18/eberechi-eze-disallowed-goal-var-why/
 
