@@ -1,3 +1,7 @@
+**Willie Brown to Donald Trump: Mention My Name Again and Get Sued**\
+`The former president has falsely claimed that he nearly died in a helicopter ride with Mr. Brown, and that Mr. Brown said “terrible things” about Kamala Harris.`\
+https://nytimes.com/2024/08/17/us/politics/willie-brown-donald-trump-sue-lawsuit.html
+
 **Giants QB Daniel Jones shaking off rust or was disaster vs. Texans sign of what's to come?**\
 `Jones’ disastrous start in Saturday’s 28-10 loss to the Texans likely had some fans taking a look at the 2025 draft’s QB class.`\
 https://nytimes.com/athletic/5707011/2024/08/17/new-york-giants-daniel-jones-interceptions-texans/
