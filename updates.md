@@ -1,3 +1,7 @@
+**In the face of workload concerns, Luis Severino tosses a shutout**\
+`Mets manager Carlos Mendoza had a lot to ponder, and his decision to let Severino finish the game paid dividends. For one game, anyway.`\
+https://nytimes.com/athletic/5707172/2024/08/17/mets-luis-severino-shutout/
+
 **Urged to Focus on the Economy, Trump Leans Into Attacks of Harris**\
 `At a rally in Pennsylvania, former President Donald J. Trump vacillated between criticisms of the economy and immigration and personal attacks on Vice President Kamala Harris.`\
 https://nytimes.com/2024/08/17/us/politics/trump-harris-pennsylvania.html

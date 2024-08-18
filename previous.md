@@ -1,3 +1,7 @@
+**In the face of workload concerns, Luis Severino tosses a shutout**\
+`Mets manager Carlos Mendoza had a lot to ponder, and his decision to let Severino finish the game paid dividends. For one game, anyway.`\
+https://nytimes.com/athletic/5707172/2024/08/17/mets-luis-severino-shutout/
+
 **Urged to Focus on the Economy, Trump Leans Into Attacks of Harris**\
 `At a rally in Pennsylvania, former President Donald J. Trump vacillated between criticisms of the economy and immigration and personal attacks on Vice President Kamala Harris.`\
 https://nytimes.com/2024/08/17/us/politics/trump-harris-pennsylvania.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/17/realestate/nar-commissions-rules-changes.html
 **Ravens insist they believe in their young offensive linemen. They better be right**\
 `With injuries pushing young offensive linemen to the forefront, the Ravens are once again betting on their reputable scouting staff.`\
 https://nytimes.com/athletic/5706942/2024/08/17/baltimore-ravens-preseason-training-camp-tyler-linderbaum/
-
-**Jahns: Caleb Williams' magic act proves the Bears QB is getting better every day**\
-`After a rough start, Williams wowed the crowd at Soldier Field with a bomb to Rome Odunze while on the move. And that was just the start.`\
-https://nytimes.com/athletic/5706970/2024/08/17/bears-caleb-williams-getting-better/
 
