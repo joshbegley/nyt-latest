@@ -1,3 +1,7 @@
+**People Are Rescued From Cars Amid Flash Floods in Connecticut**\
+`There were no immediate reports of injuries from the flooding, which came after some towns reported as much as nine inches of rain.`\
+https://nytimes.com/2024/08/18/nyregion/connecticut-flooding-southbury.html
+
 **Hoops Player**\
 `What does Kenneth Cortes look for in a good crossword? Location, location, location.`\
 https://nytimes.com/2024/08/18/crosswords/daily-puzzle-2024-08-19.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/18/briefing/democratic-national-convention-russia-uk
 **Fernandez's Chelsea captaincy defended by Maresca after apology for racist chant**\
 `Enzo Maresca defended his decision to give Enzo Fernandez the captain’s armband for Chelsea’s 2-0 defeat against Manchester City on Sunday.`\
 https://nytimes.com/athletic/5708344/2024/08/18/enzo-fernandezs-chelsea-captaincy-defended-by-enzo-maresca-after-apology-for-racist-chant/
-
-**U.S. flag football QB discusses NFL players taking Olympic spots**\
-`Darrell “Housh” Doucette led the flag football national team to a gold medal at the 2022 World Games.`\
-https://nytimes.com/athletic/5708248/2024/08/18/us-flag-football-nfl-olympics-2028/
 
