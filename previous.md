@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5707794/2024/08/18/vikings-sign-stephon-gilmore/
 https://nytimes.com/athletic/5707508/2024/08/18/dallas-cowboys-trey-lance-quarterback-raiders/
 
 **Breaking down the mistake that USMNT's Ethan Horvath will never want to see again**\
-`The Cardiff City goalkeeper had an afternoon to forget on Saturday and it will have set back his chances of becoming his country's No 1`\
+`The Cardiff City goalkeeper had an afternoon to forget on Saturday and it will have set back his chances of becoming USA No 1`\
 https://nytimes.com/athletic/5707684/2024/08/18/breaking-down-ethan-horvath-mistake/
 
 **Protesters Will Converge on Chicago. City Leaders Say They’re Prepared.**\

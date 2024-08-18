@@ -1,3 +1,7 @@
+**Breaking down the mistake that USMNT's Ethan Horvath will never want to see again**\
+`The Cardiff City goalkeeper had an afternoon to forget on Saturday and it will have set back his chances of becoming USA No 1`\
+https://nytimes.com/athletic/5707684/2024/08/18/breaking-down-ethan-horvath-mistake/
+
 **The Pulse: Look at what Mahomes can do now**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5707882/2024/08/18/patrick-mahomes-behind-back-the-pulse/
