@@ -1,3 +1,7 @@
+**Flick believes Gundogan will stay at Barcelona amid doubt over his future**\
+`Barcelona head coach Hansi Flick says he believes Ilkay Gundogan will remain at Barcelona this summer amid doubts about his future.`\
+https://nytimes.com/athletic/5707507/2024/08/18/ilkay-gundogan-barcelona-future-hansi-flick/
+
 **Barcelona briefing: Lewandowski can't be dropped, Marc Bernal's impressive debut**\
 `Hansi Flick’s new era at Barcelona started with a hard-fought win away to Valencia`\
 https://nytimes.com/athletic/5707154/2024/08/18/barcelona-briefing-lewandowski-cant-be-dropped-marc-bernals-impressive-debut/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/18/pageoneplus/corrections-aug-18-2024.html
 **With Chris Sale on mound and Ronald Acuña Jr. stopping by, Braves were ready to roll**\
 `Even before the first pitch Saturday, early-arriving Braves fans at Angel Stadium saw another sight for sore eyes — Acuña.`\
 https://nytimes.com/athletic/5707404/2024/08/18/chris-sale-ronald-acuna-jr-braves-angels/
-
-**Chargers' Easton Stick is running out of chances to prove he can back up Justin Herbert**\
-`Stick's regression this summer has been jarring. He has the worst EPA per dropback of any NFL quarterback this preseason.`\
-https://nytimes.com/athletic/5707393/2024/08/18/chargers-easton-stick-justin-herbert-backup/
 
