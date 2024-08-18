@@ -1,3 +1,7 @@
+**U.S. flag football QB discusses NFL players will taking Olympic spots**\
+`Darrell “Housh” Doucette led the flag football national team to a gold medal at the 2022 World Games.`\
+https://nytimes.com/athletic/5708248/2024/08/18/us-flag-football-nfl-olympics-2028/
+
 **Former NFL tackle Michael Oher discusses case against Tuohy family**\
 `In Oher's lawsuit against the Tuohys, his lawyers claim the Tuohys exploited him by using his name, image and likeness.`\
 https://nytimes.com/athletic/5708134/2024/08/18/michael-oher-nfl-tuohy-family/

@@ -1,3 +1,7 @@
+**U.S. flag football QB discusses NFL players will taking Olympic spots**\
+`Darrell “Housh” Doucette led the flag football national team to a gold medal at the 2022 World Games.`\
+https://nytimes.com/athletic/5708248/2024/08/18/us-flag-football-nfl-olympics-2028/
+
 **Former NFL tackle Michael Oher discusses case against Tuohy family**\
 `In Oher's lawsuit against the Tuohys, his lawyers claim the Tuohys exploited him by using his name, image and likeness.`\
 https://nytimes.com/athletic/5708134/2024/08/18/michael-oher-nfl-tuohy-family/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/18/us/john-lewis-statue-decatur-georgia.html
 **76ers, France’s Guerschon Yabusele in serious talks on deal**\
 `Yabusele is resolving his $2.5 million contract buyout with Real Madrid as he nears a return to the NBA.`\
 https://nytimes.com/athletic/5708086/2024/08/18/76ers-guerschon-yabusele-deal/
-
-**Where to Stream the Films of Alain Delon**\
-`A look at 10 standout films featuring the actor, who died on Sunday at 88.`\
-https://nytimes.com/2024/08/18/movies/alain-delon-streaming.html
 
