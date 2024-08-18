@@ -1,4 +1,4 @@
-**All-Star Willi Castro's late hit rallies Twins past Rangers, gain ground on Cleveland**\
+**All-Star Willi Castro's late hit rallies Twins past Rangers, gain ground on Guardians**\
 `Castro's bases-loaded single in the eighth inning propelled Minnesota to its 33rd comeback win: "It’s a confidence everybody has."`\
 https://nytimes.com/athletic/5707275/2024/08/17/twins-willi-castro/
 
