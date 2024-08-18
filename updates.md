@@ -1,3 +1,7 @@
+**Vikings signing CB Stephon Gilmore to 1-year deal**\
+`Over 165 games, Gilmore has 31 picks and 140 pass breakups.`\
+https://nytimes.com/athletic/5707794/2024/08/18/vikings-sign-stephon-gilmore/
+
 **Where to Stream the Films of Alain Delon**\
 `A look at 10 standout films featuring the actor, who died on Sunday at 88.`\
 https://nytimes.com/2024/08/18/movies/alain-delon-streaming.html
