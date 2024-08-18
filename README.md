@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien, Michael Gold and Jazmine Ulloa`\
+https://nytimes.com/live/2024/08/18/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Live Election Updates: Harris and Walz to Tour Pennsylvania, as Democrats Prepare for Chicago**\
+`Kamala Harris and her running mate, Tim Walz, are set to embark on a bus tour of a critical battleground state, a day before Democrats open their national convention in Chicago.`\
+https://nytimes.com/live/2024/08/18/us/harris-trump-election
+
 **A Sharp Downturn in the Art Market**\
 `We explore how a slowdown is affecting a rising generation of artists.`\
 https://nytimes.com/2024/08/18/briefing/art-market-downturn.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/18/podcasts/the-daily/benjamin-bolger-college-harvar
 **Colleges Can’t Say They Weren’t Warned**\
 `Three new court rulings make it clear that chaos on campus has legal consequences.`\
 https://nytimes.com/2024/08/18/opinion/ucla-harvard-protests-rulings.html
-
-**The Connections Companion No. 435**\
-`Scroll down for hints and conversation about the puzzle for Monday, Aug. 19, 2024.`\
-https://nytimes.com/2024/08/18/crosswords/connections-companion-435.html
-
-**Jim Foley’s Legacy Helped Change Hostage Policy**\
-`Americans held captive overseas deserve all of our help.`\
-https://nytimes.com/2024/08/18/opinion/jim-foley-hostage-policy.html
 
