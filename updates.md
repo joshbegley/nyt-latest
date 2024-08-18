@@ -1,3 +1,7 @@
+**With Chris Sale on mound and Ronald Acuña Jr. stopping by, Braves were ready to roll**\
+`Even before the first pitch Saturday, early-arriving Braves fans at Angel Stadium saw another sight for sore eyes — Acuña.`\
+https://nytimes.com/athletic/5707404/2024/08/18/chris-sale-ronald-acuna-jr-braves-angels/
+
 **Chargers' Easton Stick is running out of chances to prove he can back up Justin Herbert**\
 `Stick's regression this summer has been jarring. He has the worst EPA per dropback of any NFL quarterback this preseason.`\
 https://nytimes.com/athletic/5707393/2024/08/18/chargers-easton-stick-justin-herbert-backup/

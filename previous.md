@@ -1,3 +1,7 @@
+**With Chris Sale on mound and Ronald Acuña Jr. stopping by, Braves were ready to roll**\
+`Even before the first pitch Saturday, early-arriving Braves fans at Angel Stadium saw another sight for sore eyes — Acuña.`\
+https://nytimes.com/athletic/5707404/2024/08/18/chris-sale-ronald-acuna-jr-braves-angels/
+
 **Chargers' Easton Stick is running out of chances to prove he can back up Justin Herbert**\
 `Stick's regression this summer has been jarring. He has the worst EPA per dropback of any NFL quarterback this preseason.`\
 https://nytimes.com/athletic/5707393/2024/08/18/chargers-easton-stick-justin-herbert-backup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5706655/2024/08/18/wolves-transfer-briefing-larsen/
 **Can Saka be the 20-goal forward Arsenal need to push for the title?**\
 `Bukayo Saka scored as Arsenal beat Wolves 2-0 on Saturday - does this bode well for the rest of the season?`\
 https://nytimes.com/athletic/5706637/2024/08/18/bukayo-saka-arsenal-goals-wolves/
-
-**Watching Kylian Mbappe - our writers on witnessing his magic up close**\
-`As Kylian Mbappe prepares to make his Real Madrid debut, our writers reflect on what it's like to watch him live`\
-https://nytimes.com/athletic/5705299/2024/08/18/kylian-mbappe-real-madrid-psg-france-world-cup/
 
