@@ -1,3 +1,15 @@
+**3 More Victims of 1921 Tulsa Race Massacre Found With Gunshot Wounds**\
+`Officials are exhuming bodies to learn more about the victims of one of the worst racial attacks in U.S. history.`\
+https://nytimes.com/2024/08/18/us/tulsa-race-massacre-victims-gunshot.html
+
+**Marcella Hazan’s Five-Star, 12,000-Review Tomato Sauce**\
+`Its luscious simplicity is the draw: All you need are canned tomatoes, an onion cut in half, butter, salt and time.`\
+https://nytimes.com/2024/08/18/dining/marcella-hazan-tomato-sauce.html
+
+**Reactions to Danilo's injury shows how much he is loved - and how much he'll be missed**\
+`The Nottingham Forest dressing room is not short on big characters, but the Brazilian midfielder is universally respected`\
+https://nytimes.com/athletic/5707518/2024/08/18/forest-reaction-to-danilos-injury-shows-how-much-he-is-loved-and-how-much-hell-be-missed/
+
 **Panathinaikos in talks with Man Utd over Pellistri deal**\
 `Panathinaikos are in talks with Manchester United over a deal for winger Facundo Pellistri.`\
 https://nytimes.com/athletic/5707823/2024/08/18/facundo-pellistri-man-united-transfer-panathinaikos/

@@ -1,3 +1,15 @@
+**3 More Victims of 1921 Tulsa Race Massacre Found With Gunshot Wounds**\
+`Officials are exhuming bodies to learn more about the victims of one of the worst racial attacks in U.S. history.`\
+https://nytimes.com/2024/08/18/us/tulsa-race-massacre-victims-gunshot.html
+
+**Marcella Hazan’s Five-Star, 12,000-Review Tomato Sauce**\
+`Its luscious simplicity is the draw: All you need are canned tomatoes, an onion cut in half, butter, salt and time.`\
+https://nytimes.com/2024/08/18/dining/marcella-hazan-tomato-sauce.html
+
+**Reactions to Danilo's injury shows how much he is loved - and how much he'll be missed**\
+`The Nottingham Forest dressing room is not short on big characters, but the Brazilian midfielder is universally respected`\
+https://nytimes.com/athletic/5707518/2024/08/18/forest-reaction-to-danilos-injury-shows-how-much-he-is-loved-and-how-much-hell-be-missed/
+
 **Panathinaikos in talks with Man Utd over Pellistri deal**\
 `Panathinaikos are in talks with Manchester United over a deal for winger Facundo Pellistri.`\
 https://nytimes.com/athletic/5707823/2024/08/18/facundo-pellistri-man-united-transfer-panathinaikos/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5707508/2024/08/18/dallas-cowboys-trey-lance-quarte
 **Breaking down the mistake that USMNT's Ethan Horvath will never want to see again**\
 `The Cardiff City goalkeeper had an afternoon to forget on Saturday and it will have set back his chances of becoming USA No 1`\
 https://nytimes.com/athletic/5707684/2024/08/18/breaking-down-ethan-horvath-mistake/
-
-**Protesters Will Converge on Chicago. City Leaders Say They’re Prepared.**\
-`Activists plan to push for policy changes on Gaza as Democrats hold their convention. Chicago officials are confident they will avoid a repeat of the chaos that unfolded in 1968.`\
-https://nytimes.com/2024/08/18/us/chicago-dnc-protests.html
-
-**Europe’s Crackdown on Environmental Dissent Is Silencing Voices the World Needs to Hear**\
-`The tough approach has come as more Europeans sour on the green energy transition.`\
-https://nytimes.com/2024/08/18/opinion/europe-climate-envionment-protest.html
-
-**Reed: Aidan O'Connell should be the Raiders' starter, but the outlook at QB is concerning**\
-`O'Connell has delivered a better two-game sample than Gardner Minshew, but the upside still seems limited with the Raiders' second-year QB.`\
-https://nytimes.com/athletic/5707359/2024/08/18/aidan-oconnell-gardner-minshew-raiders-starting-quarterback/
 
