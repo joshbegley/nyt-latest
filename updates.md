@@ -1,3 +1,11 @@
+**Protesters Will Converge on Chicago. City Leaders Say They’re Prepared.**\
+`Activists plan to push for policy changes on Gaza as Democrats hold their convention. Chicago officials are confident they will avoid a repeat of the chaos that unfolded in 1968.`\
+https://nytimes.com/2024/08/18/us/chicago-dnc-protests.html
+
+**Europe’s Crackdown on Environmental Dissent Is Silencing Voices the World Needs to Hear**\
+`The tough approach has come as more Europeans sour on the green energy transition.`\
+https://nytimes.com/2024/08/18/opinion/europe-climate-envionment-protest.html
+
 **Reed: Aidan O'Connell should be the Raiders' starter, but the outlook at QB is concerning**\
 `O'Connell has delivered a better two-game sample than Gardner Minshew, but the upside still seems limited with the Raiders' second-year QB.`\
 https://nytimes.com/athletic/5707359/2024/08/18/aidan-oconnell-gardner-minshew-raiders-starting-quarterback/

@@ -1,3 +1,11 @@
+**Protesters Will Converge on Chicago. City Leaders Say They’re Prepared.**\
+`Activists plan to push for policy changes on Gaza as Democrats hold their convention. Chicago officials are confident they will avoid a repeat of the chaos that unfolded in 1968.`\
+https://nytimes.com/2024/08/18/us/chicago-dnc-protests.html
+
+**Europe’s Crackdown on Environmental Dissent Is Silencing Voices the World Needs to Hear**\
+`The tough approach has come as more Europeans sour on the green energy transition.`\
+https://nytimes.com/2024/08/18/opinion/europe-climate-envionment-protest.html
+
 **Reed: Aidan O'Connell should be the Raiders' starter, but the outlook at QB is concerning**\
 `O'Connell has delivered a better two-game sample than Gardner Minshew, but the upside still seems limited with the Raiders' second-year QB.`\
 https://nytimes.com/athletic/5707359/2024/08/18/aidan-oconnell-gardner-minshew-raiders-starting-quarterback/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/18/world/australia/black-caviar-racehorse-dies.html
 **Cowboys coach Mike McCarthy on performance vs. Raiders: 'This was a good night for us'**\
 `There was plenty to like in the Cowboys' second preseason game against the Raiders from the offense, defense and special teams.`\
 https://nytimes.com/athletic/5707485/2024/08/18/dallas-cowboys-preseason-observations-raiders/
-
-**Everton have work to do – this was no way to start final Goodison season**\
-`Everton fell to a 3-0 defeat against Brighton on the opening day of the season`\
-https://nytimes.com/athletic/5706730/2024/08/18/everton-goodison-park-brighton/
-
-**Seiya Suzuki sees a lot of balls that are called strikes. How can the Cubs solve this?**\
-`Suzuki sees a lot of pitches, and many appear to be called incorrectly. Should he start voicing his displeasure with umpires' calls? `\
-https://nytimes.com/athletic/5706835/2024/08/18/cubs-seiya-suzuki-called-strikes/
 
