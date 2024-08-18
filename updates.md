@@ -1,3 +1,23 @@
+**A Vice Presidential Learning Curve: How Kamala Harris Picked Her Shots**\
+`As President Biden’s understudy, Ms. Harris did not often get to lead on signature issues. But she found roles to play on abortion rights, gun safety and a Supreme Court appointment.`\
+https://nytimes.com/2024/08/18/us/politics/kamala-harris-vice-president-record.html
+
+**How the Israel-Hamas War Could Shape the New York City Mayoral Race**\
+`Mayor Eric Adams is a strong supporter of Israel. One of his primary opponents, Brad Lander, the comptroller, calls himself a “progressive Zionist.”`\
+https://nytimes.com/2024/08/18/nyregion/israel-gaza-lander-adams.html
+
+**‘We Were Sitting on a Bench Resting Our Tired Legs Late in the Day’**\
+`A guide’s advice at the Met, giving up a good parking spot and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/08/18/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/18/crosswords/spelling-bee-forum.html
+
+**Jonas Eidevall hoping a 'proper pre-season' will help Arsenal after a summer of change**\
+`Arsenal Women's 2024-25 is starting more than 3,600 miles away from home with their first ever pre-season tour of the United States`\
+https://nytimes.com/athletic/5706226/2024/08/18/jonas-eidevall-arsenal-women/
+
 **Leverkusen send out a message to their rivals - they will not ease off**\
 `If anyone thought Bayer Leverkusen would soften over the summer, their win in the German Super Cup suggests they should think again`\
 https://nytimes.com/athletic/5706988/2024/08/18/bayer-leverkusen-super-cup-stuttgart/

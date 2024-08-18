@@ -1,3 +1,23 @@
+**A Vice Presidential Learning Curve: How Kamala Harris Picked Her Shots**\
+`As President Biden’s understudy, Ms. Harris did not often get to lead on signature issues. But she found roles to play on abortion rights, gun safety and a Supreme Court appointment.`\
+https://nytimes.com/2024/08/18/us/politics/kamala-harris-vice-president-record.html
+
+**How the Israel-Hamas War Could Shape the New York City Mayoral Race**\
+`Mayor Eric Adams is a strong supporter of Israel. One of his primary opponents, Brad Lander, the comptroller, calls himself a “progressive Zionist.”`\
+https://nytimes.com/2024/08/18/nyregion/israel-gaza-lander-adams.html
+
+**‘We Were Sitting on a Bench Resting Our Tired Legs Late in the Day’**\
+`A guide’s advice at the Met, giving up a good parking spot and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/08/18/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/18/crosswords/spelling-bee-forum.html
+
+**Jonas Eidevall hoping a 'proper pre-season' will help Arsenal after a summer of change**\
+`Arsenal Women's 2024-25 is starting more than 3,600 miles away from home with their first ever pre-season tour of the United States`\
+https://nytimes.com/athletic/5706226/2024/08/18/jonas-eidevall-arsenal-women/
+
 **Leverkusen send out a message to their rivals - they will not ease off**\
 `If anyone thought Bayer Leverkusen would soften over the summer, their win in the German Super Cup suggests they should think again`\
 https://nytimes.com/athletic/5706988/2024/08/18/bayer-leverkusen-super-cup-stuttgart/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5707393/2024/08/18/chargers-easton-stick-justin-her
 **Brayan Bello trending in right direction as Red Sox beat Orioles again**\
 `For 5 2/3 innings, Bello no-hit the Orioles en route to a 5-1 victory Saturday.`\
 https://nytimes.com/athletic/5707351/2024/08/18/brayan-bello-red-sox-win-orioles/
-
-**Giants are still searching for RBIs in shutout loss to A's**\
-`When it comes to having a nose for an RBI, too many middle-of-the-order Giants batters suffer from a bad case of congestion.`\
-https://nytimes.com/athletic/5707365/2024/08/18/giants-shutout-loss-athletics/
-
-**Russell Wilson's preseason debut does little to end Steelers' QB competition**\
-`Wilson left the door for the starting QB job open with a dull debut against the Bills, but Justin Fields didn't exactly take advantage.`\
-https://nytimes.com/athletic/5707298/2024/08/18/russell-wilson-justin-fields-competition-preseason/
-
-**Joe Manchin Likes Kamala Harris. Here’s How He Sees Her Winning.**\
-`The senator from West Virginia assesses the Democratic Party and its path to victory in November.`\
-https://nytimes.com/2024/08/18/opinion/joe-manchin-kamala-harris.html
-
-**Trump Turned the Democratic Party Into a Pitiless Machine**\
-`The former president’s victory made it ruthlessly pragmatic.`\
-https://nytimes.com/2024/08/18/opinion/pelosi-trump-biden-harris.html
-
-**Aubrey Pleasant as Rams 'HC', WR outlook, safeties competition and more from preseason**\
-`Pleasant, the Rams' pass game coordinator, ran the show Saturday night while Sean McVay stayed upstairs. "It was a great experience."`\
-https://nytimes.com/athletic/5707010/2024/08/18/la-rams-aubrey-pleasant-coach-chargers-preseason/
 
