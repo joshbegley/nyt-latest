@@ -1,3 +1,7 @@
+**Cowboys coach Mike McCarthy on performance vs. Raiders: 'This was a good night for us'**\
+`There was plenty to like in the Cowboys' second preseason game against the Raiders from the offense, defense and special teams.`\
+https://nytimes.com/athletic/5707485/2024/08/18/dallas-cowboys-preseason-observations-raiders/
+
 **Everton have work to do – this was no way to start final Goodison season**\
 `Everton fell to a 3-0 defeat against Brighton on the opening day of the season`\
 https://nytimes.com/athletic/5706730/2024/08/18/everton-goodison-park-brighton/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/18/opinion/biden-israel-policy-harris.html
 **Wordle Review No. 1,157**\
 `Scroll down for hints and conversation about the puzzle for August 19, 2024.`\
 https://nytimes.com/2024/08/18/crosswords/wordle-review-1157.html
-
-**Blinken Travels to Israel Amid Push for Gaza Cease-Fire**\
-`The secretary of state’s trip comes days after negotiations in Qatar ended without a major breakthrough.`\
-https://nytimes.com/2024/08/18/world/middleeast/blinken-israel-gaza-hamas.html
 
