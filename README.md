@@ -1,3 +1,7 @@
+**Quentin Johnston's development, plus other notes from Week 2 of Chargers' preseason**\
+`Johnston had only one catch for 19 yards but the plays that don't show up in the box score are evidence of the second-year WR's progress.`\
+https://nytimes.com/athletic/5708538/2024/08/18/quentin-johnston-chargers-preseason-rams/
+
 **Vance Defends Unsubstantiated Claims About Immigration and Crime**\
 `Citing the movie “Gangs of New York,” JD Vance, the Republican vice-presidential nominee, said that immigration would create “ethnic enclaves” that spur violence and crime.`\
 https://nytimes.com/2024/08/18/us/politics/vance-immigration-gangs-of-new-york.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5708292/2024/08/18/raiders-gardner-minshew-starter-
 **Lowetide: Which Oilers have the most to gain from the Broberg, Holloway offer sheets?**\
 `Should Holloway and Broberg leave for St. Louis, who benefits the most in Edmonton?`\
 https://nytimes.com/athletic/5705922/2024/08/18/oilers-broberg-holloway-offer-sheets/
-
-**Elon Musk Closes X Operations in Brazil Over Fight With Judge**\
-`The billionaire said he would shutter his social network’s Brazil operations instead of complying with a Brazilian judge’s orders to suspend accounts.`\
-https://nytimes.com/2024/08/18/world/americas/elon-musk-x-brazil.html
 
