@@ -1,3 +1,7 @@
+**What needs to happen for Pochettino to officially become USMNT head coach?**\
+`The USMNT have a verbal agreement with Mauricio Pochettino so what is the state of play?`\
+https://nytimes.com/athletic/5707564/2024/08/18/mauricio-pochettino-usmnt-head-coach-what-next/
+
 **3 More Victims of 1921 Tulsa Race Massacre Found With Gunshot Wounds**\
 `Officials are exhuming bodies to learn more about the victims of one of the worst racial attacks in U.S. history.`\
 https://nytimes.com/2024/08/18/us/tulsa-race-massacre-victims-gunshot.html
