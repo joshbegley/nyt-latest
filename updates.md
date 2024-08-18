@@ -1,3 +1,7 @@
+**Seahawks stock report: Sam Howell on the rise after tearing up Titans**\
+`Howell looked very sharp in Nashville, while the battles at running back and wide receiver are heating up.`\
+https://nytimes.com/athletic/5707281/2024/08/18/seahawks-titans-preseason-sam-howell/
+
 **How did Larsen perform and what transfer business must be done?**\
 `The major talking points as Wanderers' season got off to a losing start at Arsenal `\
 https://nytimes.com/athletic/5706655/2024/08/18/wolves-transfer-briefing-larsen/

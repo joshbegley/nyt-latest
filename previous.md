@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5706637/2024/08/18/bukayo-saka-arsenal-goals-wolves
 `As Kylian Mbappe prepares to make his Real Madrid debut, our writers reflect on what it's like to watch him live`\
 https://nytimes.com/athletic/5705299/2024/08/18/kylian-mbappe-real-madrid-psg-france-world-cup/
 
-**Seahawks stock report: Sam Howell on the rise after tearing up the Titans**\
+**Seahawks stock report: Sam Howell on the rise after tearing up Titans**\
 `Howell looked very sharp in Nashville, while the battles at running back and wide receiver are heating up.`\
 https://nytimes.com/athletic/5707281/2024/08/18/seahawks-titans-preseason-sam-howell/
 
