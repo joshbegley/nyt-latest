@@ -1,3 +1,19 @@
+**Can Saka be the 20-goal forward Arsenal need to push for the title?**\
+`Bukayo Saka scored as Arsenal beat Wolves 2-0 on Saturday - does this bode well for the rest of the season?`\
+https://nytimes.com/athletic/5706637/2024/08/18/bukayo-saka-arsenal-goals-wolves/
+
+**Watching Kylian Mbappe - our writers on witnessing his magic up close**\
+`As Kylian Mbappe prepares to make his Real Madrid debut, our writers reflect on what it's like to watch him live`\
+https://nytimes.com/athletic/5705299/2024/08/18/kylian-mbappe-real-madrid-psg-france-world-cup/
+
+**Seahawks stock report: Sam Howell on the rise after tearing up the Titans**\
+`Howell looked very sharp in Nashville, while the battles at running back and wide receiver are heating up.`\
+https://nytimes.com/athletic/5707281/2024/08/18/seahawks-titans-preseason-sam-howell/
+
+**Mohamed Salah proves once again that he's the player Liverpool can't live without**\
+`Mohamed Salah shone for Liverpool on Saturday as they beat Ipswich Town in their opening game of the season`\
+https://nytimes.com/athletic/5706693/2024/08/18/mohamed-salah-liverpool-ipswich/
+
 **Inside Conor Gallagher's chaotic wait for his Chelsea future to be resolved**\
 `Gallagher is stuck between two clubs, with the deal not yet over but no indication it will move forward`\
 https://nytimes.com/athletic/5689090/2024/08/18/conor-gallagher-chelsea-atletico-madrid/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5707306/2024/08/18/carolina-panthers-chuba-hubbard-
 **A Family Flees and a Mother Mourns After Israeli Settlers Attack a Palestinian Village**\
 `Residents of the village in the Israeli-occupied West Bank say one Palestinian man was killed by rampaging settlers. Israel’s military confirmed the village was attacked.`\
 https://nytimes.com/2024/08/18/world/middleeast/israel-settlers-attack-jit-west-bank.html
-
-**The Office Assassin**\
-`What should I do about a friend who deliberately undermined one of her colleagues and then bragged to me about it?`\
-https://nytimes.com/2024/08/18/business/workplace-behavior-advice.html
-
-**Sunday's MLB odds, best bets: Predictions for pitching matchups, playoffs and more**\
-`See pitching matchups, playoff projections, win projections and more for Sunday's MLB games.`\
-https://nytimes.com/athletic/5705444/2024/08/18/mlb-odds-best-bets-projections-august-18/
-
-**All-Star Willi Castro's late hit rallies Twins past Rangers, gain ground on Guardians**\
-`Castro's bases-loaded single in the eighth inning propelled Minnesota to its 33rd comeback win: "It’s a confidence everybody has."`\
-https://nytimes.com/athletic/5707275/2024/08/17/twins-willi-castro/
-
-**New York Jets stock report after preseason win over Carolina Panthers**\
-`Most starters sat for both sides, but Saturday was a pivotal night for those battling for spots on a deep Jets roster.`\
-https://nytimes.com/athletic/5707201/2024/08/17/jets-panthers-preseason-score-roster-position-battles/
 

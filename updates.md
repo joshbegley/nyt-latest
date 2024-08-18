@@ -1,3 +1,19 @@
+**Can Saka be the 20-goal forward Arsenal need to push for the title?**\
+`Bukayo Saka scored as Arsenal beat Wolves 2-0 on Saturday - does this bode well for the rest of the season?`\
+https://nytimes.com/athletic/5706637/2024/08/18/bukayo-saka-arsenal-goals-wolves/
+
+**Watching Kylian Mbappe - our writers on witnessing his magic up close**\
+`As Kylian Mbappe prepares to make his Real Madrid debut, our writers reflect on what it's like to watch him live`\
+https://nytimes.com/athletic/5705299/2024/08/18/kylian-mbappe-real-madrid-psg-france-world-cup/
+
+**Seahawks stock report: Sam Howell on the rise after tearing up the Titans**\
+`Howell looked very sharp in Nashville, while the battles at running back and wide receiver are heating up.`\
+https://nytimes.com/athletic/5707281/2024/08/18/seahawks-titans-preseason-sam-howell/
+
+**Mohamed Salah proves once again that he's the player Liverpool can't live without**\
+`Mohamed Salah shone for Liverpool on Saturday as they beat Ipswich Town in their opening game of the season`\
+https://nytimes.com/athletic/5706693/2024/08/18/mohamed-salah-liverpool-ipswich/
+
 **Inside Conor Gallagher's chaotic wait for his Chelsea future to be resolved**\
 `Gallagher is stuck between two clubs, with the deal not yet over but no indication it will move forward`\
 https://nytimes.com/athletic/5689090/2024/08/18/conor-gallagher-chelsea-atletico-madrid/
