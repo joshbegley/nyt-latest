@@ -1,3 +1,7 @@
+**Giants are still searching for RBIs in shutout loss to A's**\
+`When it comes to having a nose for an RBI, too many middle-of-the-order Giants batters suffer from a bad case of congestion.`\
+https://nytimes.com/athletic/5707365/2024/08/18/giants-shutout-loss-athletics/
+
 **Russell Wilson's preseason debut does little to end Steelers' QB competition**\
 `Wilson left the door for the starting QB job open with a dull debut against the Bills, but Justin Fields didn't exactly take advantage.`\
 https://nytimes.com/athletic/5707298/2024/08/18/russell-wilsons-justin-fields-competition-preseason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5707281/2024/08/18/seahawks-titans-preseason-sam-ho
 **Mohamed Salah proves once again that he's the player Liverpool can't live without**\
 `Mohamed Salah shone for Liverpool on Saturday as they beat Ipswich Town in their opening game of the season`\
 https://nytimes.com/athletic/5706693/2024/08/18/mohamed-salah-liverpool-ipswich/
-
-**Inside Conor Gallagher's chaotic wait for his Chelsea future to be resolved**\
-`Gallagher is stuck between two clubs, with the deal not yet over but no indication it will move forward`\
-https://nytimes.com/athletic/5689090/2024/08/18/conor-gallagher-chelsea-atletico-madrid/
 
