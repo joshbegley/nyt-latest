@@ -1,3 +1,7 @@
+**Monday Briefing: The Democratic National Convention**\
+`Plus, the dark side of Shen Yun`\
+https://nytimes.com/2024/08/18/briefing/democratic-national-convention-russia-ukraine-premier-league.html
+
 **U.S. flag football QB discusses NFL players taking Olympic spots**\
 `Darrell “Housh” Doucette led the flag football national team to a gold medal at the 2022 World Games.`\
 https://nytimes.com/athletic/5708248/2024/08/18/us-flag-football-nfl-olympics-2028/
