@@ -1,3 +1,7 @@
+**Democrats’ Unity Convention Has One Giant Exception: The Gaza War**\
+`Harris campaign officials and Democratic leaders have stepped up outreach to Arab and Jewish voters before the event, but large protests are still expected.`\
+https://nytimes.com/2024/08/18/us/politics/dnc-democrats-israel-gaza.html
+
 **Cubs takeaways: Dansby Swanson's bat, a Shota Imanaga scouting report and more**\
 `Plus a health update on Hall of Famer Ryne Sandberg and next steps for Jordan Wicks.`\
 https://nytimes.com/athletic/5708723/2024/08/18/cubs-takeaways-dansby-swanson-shota-imanaga/
