@@ -1,3 +1,7 @@
+**Former NFL tackle Michael Oher discusses case against Tuohy family**\
+`In Oher's lawsuit against the Tuohys, his lawyers claim the Tuohys exploited him by using his name, image and likeness.`\
+https://nytimes.com/athletic/5708134/2024/08/18/michael-oher-nfl-tuohy-family/
+
 **Raiders to start Gardner Minshew vs. Chargers in Week 1**\
 `Antonio Pierce left the door open for both Minshew and Aidan O'Connell to end up playing at some point this season.`\
 https://nytimes.com/athletic/5708292/2024/08/18/raiders-gardner-minshew-starter-week-1/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5708086/2024/08/18/76ers-guerschon-yabusele-deal/
 **Where to Stream the Films of Alain Delon**\
 `A look at 10 standout films featuring the actor, who died on Sunday at 88.`\
 https://nytimes.com/2024/08/18/movies/alain-delon-streaming.html
-
-**3 More Victims of 1921 Tulsa Race Massacre Found With Gunshot Wounds**\
-`Officials are exhuming bodies to learn more about the victims of one of the worst racial attacks in U.S. history.`\
-https://nytimes.com/2024/08/18/us/tulsa-race-massacre-victims-gunshot.html
 
