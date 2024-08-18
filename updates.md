@@ -1,3 +1,11 @@
+**Cubs takeaways: Dansby Swanson's bat, a Shota Imanaga scouting report and more**\
+`Plus a health update on Hall of Famer Ryne Sandberg and next steps for Jordan Wicks.`\
+https://nytimes.com/athletic/5708723/2024/08/18/cubs-takeaways-dansby-swanson-shota-imanaga/
+
+**Oilers acquire Vasily Podkolzin from Canucks**\
+`Podkolzin has appeared in 137 career games with the NHL club and recorded 18 goals and 35 points.`\
+https://nytimes.com/athletic/5708725/2024/08/18/oilers-canucks-vasily-podkolzin-nhl/
+
 **Test Your Knowledge of Chicago, the Host of the Democratic National Convention**\
 `The Democrats are arriving in Chicago, the country’s third-largest city, for their first in-person convention in eight years. Take our quiz to find out how much you know about the city.`\
 https://nytimes.com/interactive/2024/08/18/us/chicago-dnc-quiz.html
