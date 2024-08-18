@@ -1,3 +1,7 @@
+**All-Star Willi Castro's late hit rallies Twins past Rangers, gain ground on Cleveland**\
+`Castro's bases-loaded single in the eighth inning propelled Minnesota to its 33rd comeback win: "It’s a confidence everybody has."`\
+https://nytimes.com/athletic/5707275/2024/08/17/twins-willi-castro/
+
 **New York Jets stock report after preseason win over Carolina Panthers**\
 `Most starters sat for both sides, but Saturday was a pivotal night for those battling for spots on a deep Jets roster.`\
 https://nytimes.com/athletic/5707201/2024/08/17/jets-panthers-preseason-score-roster-position-battles/
