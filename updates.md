@@ -1,3 +1,7 @@
+**Black Caviar, Champion Racehorse and Australian Icon, Dies**\
+`She won every race she ran, and her fame went beyond the insular world of horseracing.`\
+https://nytimes.com/2024/08/18/world/australia/black-caviar-racehorse-dies.html
+
 **Cowboys coach Mike McCarthy on performance vs. Raiders: 'This was a good night for us'**\
 `There was plenty to like in the Cowboys' second preseason game against the Raiders from the offense, defense and special teams.`\
 https://nytimes.com/athletic/5707485/2024/08/18/dallas-cowboys-preseason-observations-raiders/
