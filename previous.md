@@ -1,3 +1,15 @@
+**A Family Flees and a Mother Mourns After Israeli Settlers Attack a Palestinian Village**\
+`Residents of the village in the Israeli-occupied West Bank say one Palestinian man was killed by rampaging settlers. Israel’s military confirmed the village was attacked.`\
+https://nytimes.com/2024/08/18/world/middleeast/israel-settlers-attack-jit-west-bank.html
+
+**The Office Assassin**\
+`What should I do about a friend who deliberately undermined one of her colleagues and then bragged to me about it?`\
+https://nytimes.com/2024/08/18/business/workplace-behavior-advice.html
+
+**Sunday's MLB odds, best bets: Predictions for pitching matchups, playoffs and more**\
+`See pitching matchups, playoff projections, win projections and more for Sunday's MLB games.`\
+https://nytimes.com/athletic/5705444/2024/08/18/mlb-odds-best-bets-projections-august-18/
+
 **All-Star Willi Castro's late hit rallies Twins past Rangers, gain ground on Guardians**\
 `Castro's bases-loaded single in the eighth inning propelled Minnesota to its 33rd comeback win: "It’s a confidence everybody has."`\
 https://nytimes.com/athletic/5707275/2024/08/17/twins-willi-castro/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5707069/2024/08/17/lions-chiefs-preseason-hendon-ho
 **Browns preseason: Cleveland encounters emergency situation at OT vs. Vikings**\
 `The Browns have done a lot to fortify the offensive line, but after Saturday's injuries, they may have more work to do.`\
 https://nytimes.com/athletic/5707144/2024/08/17/cleveland-browns-minnesota-vikings-preseason-germain-ifedi/
-
-**Vikings stock report: Risers and fallers from preseason game vs. Browns**\
-`The Vikings won their second straight preseason game Saturday. Here are nine players who stood out in both positive and negative ways.`\
-https://nytimes.com/athletic/5707120/2024/08/17/vikings-browns-preseason-lewis-cine/
-
-**Willie Brown to Donald Trump: Mention My Name Again and Get Sued**\
-`The former president has falsely claimed that he nearly died in a helicopter ride with Mr. Brown, and that Mr. Brown said “terrible things” about Kamala Harris.`\
-https://nytimes.com/2024/08/17/us/politics/willie-brown-donald-trump-sue-lawsuit.html
-
-**Giants QB Daniel Jones shaking off rust or was disaster vs. Texans sign of what's to come?**\
-`Jones’ disastrous start in Saturday’s 28-10 loss to the Texans likely had some fans taking a look at the 2025 draft’s QB class.`\
-https://nytimes.com/athletic/5707011/2024/08/17/new-york-giants-daniel-jones-interceptions-texans/
 

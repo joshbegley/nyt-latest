@@ -1,3 +1,15 @@
+**A Family Flees and a Mother Mourns After Israeli Settlers Attack a Palestinian Village**\
+`Residents of the village in the Israeli-occupied West Bank say one Palestinian man was killed by rampaging settlers. Israel’s military confirmed the village was attacked.`\
+https://nytimes.com/2024/08/18/world/middleeast/israel-settlers-attack-jit-west-bank.html
+
+**The Office Assassin**\
+`What should I do about a friend who deliberately undermined one of her colleagues and then bragged to me about it?`\
+https://nytimes.com/2024/08/18/business/workplace-behavior-advice.html
+
+**Sunday's MLB odds, best bets: Predictions for pitching matchups, playoffs and more**\
+`See pitching matchups, playoff projections, win projections and more for Sunday's MLB games.`\
+https://nytimes.com/athletic/5705444/2024/08/18/mlb-odds-best-bets-projections-august-18/
+
 **All-Star Willi Castro's late hit rallies Twins past Rangers, gain ground on Guardians**\
 `Castro's bases-loaded single in the eighth inning propelled Minnesota to its 33rd comeback win: "It’s a confidence everybody has."`\
 https://nytimes.com/athletic/5707275/2024/08/17/twins-willi-castro/
