@@ -4,7 +4,7 @@ https://nytimes.com/athletic/5707365/2024/08/18/giants-shutout-loss-athletics/
 
 **Russell Wilson's preseason debut does little to end Steelers' QB competition**\
 `Wilson left the door for the starting QB job open with a dull debut against the Bills, but Justin Fields didn't exactly take advantage.`\
-https://nytimes.com/athletic/5707298/2024/08/18/russell-wilsons-justin-fields-competition-preseason/
+https://nytimes.com/athletic/5707298/2024/08/18/russell-wilson-justin-fields-competition-preseason/
 
 **Joe Manchin Likes Kamala Harris. Here’s How He Sees Her Winning.**\
 `The senator from West Virginia assesses the Democratic Party and its path to victory in November.`\
