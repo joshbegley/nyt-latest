@@ -1,3 +1,7 @@
+**Browns preseason: Cleveland encounters emergency situation at OT vs. Vikings**\
+`The Browns have done a lot to fortify the offensive line, but after Saturday's injuries, they may have more work to do.`\
+https://nytimes.com/athletic/5707144/2024/08/17/cleveland-browns-minnesota-vikings-preseason-germain-ifedi/
+
 **Vikings stock report: Risers and fallers from preseason game vs. Browns**\
 `The Vikings won their second straight preseason game Saturday. Here are nine players who stood out in both positive and negative ways.`\
 https://nytimes.com/athletic/5707120/2024/08/17/vikings-browns-preseason-lewis-cine/
