@@ -1,3 +1,7 @@
+**Sterling seeks 'clarity' on Chelsea future after exclusion from matchday squad**\
+`Raheem Sterling is seeking &#8220;clarity&#8221; over his future at Chelsea after being excluded from the opening Premier League matchday squad against Manchester City.`\
+https://nytimes.com/athletic/5707944/2024/08/18/raheem-sterling-chelsea-future-transfer/
+
 **Explained: Why VAR could not intervene after Eze's goal was disallowed**\
 `Eberechi Eze&#8217;s disallowed free kick goal for Crystal Palace against Brentford could not be overturned by VAR because referee Samuel Barrott blew his whistle before the ball entered the net.`\
 https://nytimes.com/athletic/5707875/2024/08/18/eberechi-eze-disallowed-goal-var-why/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5707359/2024/08/18/aidan-oconnell-gardner-minshew-r
 **Toney out of Brentford squad for Premier League opener amid Al Ahli interest**\
 `Ivan Toney has been left out of Brentford&#8217;s squad for their Premier League opener against Crystal Palace amid interest from Saudi Pro League side Al Ahli.`\
 https://nytimes.com/athletic/5707696/2024/08/18/ivan-toney-al-ahli-brentford-future/
-
-**Premier League Preview: Here We Go Again**\
-`The European soccer season is back. Here are the top story lines to watch this season.`\
-https://nytimes.com/2024/08/18/world/europe/premier-league-preview-usmnt-pochettino.html
 

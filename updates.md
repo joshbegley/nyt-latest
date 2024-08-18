@@ -1,3 +1,7 @@
+**Sterling seeks 'clarity' on Chelsea future after exclusion from matchday squad**\
+`Raheem Sterling is seeking &#8220;clarity&#8221; over his future at Chelsea after being excluded from the opening Premier League matchday squad against Manchester City.`\
+https://nytimes.com/athletic/5707944/2024/08/18/raheem-sterling-chelsea-future-transfer/
+
 **Explained: Why VAR could not intervene after Eze's goal was disallowed**\
 `Eberechi Eze&#8217;s disallowed free kick goal for Crystal Palace against Brentford could not be overturned by VAR because referee Samuel Barrott blew his whistle before the ball entered the net.`\
 https://nytimes.com/athletic/5707875/2024/08/18/eberechi-eze-disallowed-goal-var-why/
