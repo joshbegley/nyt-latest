@@ -1,3 +1,7 @@
+**New York Jets stock report after preseason win over Carolina Panthers**\
+`Most starters sat for both sides, but Saturday was a pivotal night for those battling for spots on a deep Jets roster.`\
+https://nytimes.com/athletic/5707201/2024/08/17/jets-panthers-preseason-score-roster-position-battles/
+
 **Mahomes says he improvised behind-the-back pass**\
 `Mahomes pulled off the highlight-worthy throw less than two weeks after executing the trick in practice.`\
 https://nytimes.com/athletic/5707016/2024/08/17/patrick-mahomes-trick-pass-chiefs-lions/

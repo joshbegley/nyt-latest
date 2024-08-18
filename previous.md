@@ -1,3 +1,7 @@
+**New York Jets stock report after preseason win over Carolina Panthers**\
+`Most starters sat for both sides, but Saturday was a pivotal night for those battling for spots on a deep Jets roster.`\
+https://nytimes.com/athletic/5707201/2024/08/17/jets-panthers-preseason-score-roster-position-battles/
+
 **Mahomes says he improvised behind-the-back pass**\
 `Mahomes pulled off the highlight-worthy throw less than two weeks after executing the trick in practice.`\
 https://nytimes.com/athletic/5707016/2024/08/17/patrick-mahomes-trick-pass-chiefs-lions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5707011/2024/08/17/new-york-giants-daniel-jones-int
 **NASCAR moving Clash race to Bowman Gray Stadium in 2025**\
 `NASCAR’s season-opening Clash exhibition race will shift to historic Bowman Gray Stadium in 2025.`\
 https://nytimes.com/athletic/5706645/2024/08/17/nascar-clash-race-2025-bowman-gray-stadium/
-
-**New Real Estate Rules Sow Confusion, at Least in Short Term**\
-`Changes in how real estate commissions are advertised and paid went into effect this weekend. Buyers and even some agents aren’t sure what they mean.`\
-https://nytimes.com/2024/08/17/realestate/nar-commissions-rules-changes.html
 
