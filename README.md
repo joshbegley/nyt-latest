@@ -1,3 +1,7 @@
+**Democrats’ Unity Convention Has One Giant Exception: The Gaza War**\
+`Harris campaign officials and Democratic leaders have stepped up outreach to Arab and Jewish voters before the event, but large protests are still expected.`\
+https://nytimes.com/2024/08/18/us/politics/dnc-democrats-israel-gaza.html
+
 **Cubs takeaways: Dansby Swanson's bat, a Shota Imanaga scouting report and more**\
 `Plus a health update on Hall of Famer Ryne Sandberg and next steps for Jordan Wicks.`\
 https://nytimes.com/athletic/5708723/2024/08/18/cubs-takeaways-dansby-swanson-shota-imanaga/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/18/crosswords/daily-puzzle-2024-08-19.html
 **Social Media Influencers to Speak at the Democratic Convention**\
 `While they have millions of followers on platforms like TikTok and Instagram, this week they will share the podium with the top tier of Democratic politics.`\
 https://nytimes.com/2024/08/18/us/politics/democratic-convention-harris-social-media-influencers.html
-
-**Hurricane Ernesto Brings High Swells and Strong Rip Currents to the East Coast**\
-`Ernesto was creating dangerous surf conditions that were expected to continue for several days, forecasters warned.`\
-https://nytimes.com/2024/08/18/us/east-coast-ernesto-surf.html
 
