@@ -1,3 +1,7 @@
+**How did Larsen perform and what transfer business must be done?**\
+`The major talking points as Wanderers' season got off to a losing start at Arsenal `\
+https://nytimes.com/athletic/5706655/2024/08/18/wolves-transfer-briefing-larsen/
+
 **Can Saka be the 20-goal forward Arsenal need to push for the title?**\
 `Bukayo Saka scored as Arsenal beat Wolves 2-0 on Saturday - does this bode well for the rest of the season?`\
 https://nytimes.com/athletic/5706637/2024/08/18/bukayo-saka-arsenal-goals-wolves/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5691813/2024/08/18/esme-morgan-washington-spirit/
 **Panthers drop preseason game, but good news is Chuba Hubbard's knee is OK**\
 `CHARLOTTE, N.`\
 https://nytimes.com/athletic/5707306/2024/08/18/carolina-panthers-chuba-hubbard-knee-injury-update/
-
-**A Family Flees and a Mother Mourns After Israeli Settlers Attack a Palestinian Village**\
-`Residents of the village in the Israeli-occupied West Bank say one Palestinian man was killed by rampaging settlers. Israel’s military confirmed the village was attacked.`\
-https://nytimes.com/2024/08/18/world/middleeast/israel-settlers-attack-jit-west-bank.html
 
