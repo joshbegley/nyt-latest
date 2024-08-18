@@ -1,3 +1,7 @@
+**Tim Walz and the Pull of Rural America**\
+`Responses to an essay about the vice-presidential candidate and rural values. Also: A rattled Trump; cancer screening; the S.S. United States; L.A. Olympic transit.`\
+https://nytimes.com/2024/08/18/opinion/tim-walz-rural-america.html
+
 **People Are Rescued From Cars Amid Flash Floods in Connecticut**\
 `There were no immediate reports of injuries from the flooding, which came after some towns reported as much as nine inches of rain.`\
 https://nytimes.com/2024/08/18/nyregion/connecticut-flooding-southbury.html
