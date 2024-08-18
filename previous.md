@@ -1,3 +1,7 @@
+**Aubrey Pleasant as Rams 'HC', WR outlook, safeties competition and more from preseason**\
+`Pleasant, the Rams' pass game coordinator, ran the show Saturday night while Sean McVay stayed upstairs. "It was a great experience."`\
+https://nytimes.com/athletic/5707010/2024/08/18/la-rams-aubrey-pleasant-coach-chargers-preseason/
+
 **How did Larsen perform and what transfer business must be done?**\
 `The major talking points as Wanderers' season got off to a losing start at Arsenal `\
 https://nytimes.com/athletic/5706655/2024/08/18/wolves-transfer-briefing-larsen/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5707283/2024/08/18/jayden-daniels-commanders-dan-qu
 **Esme Morgan on swapping WSL for NWSL: 'I've not had to say the s-word so far'**\
 `The England player on signing for Washington Spirit, why she left Manchester City, and what it means for her international ambition`\
 https://nytimes.com/athletic/5691813/2024/08/18/esme-morgan-washington-spirit/
-
-**Panthers drop preseason game, but good news is Chuba Hubbard's knee is OK**\
-`CHARLOTTE, N.`\
-https://nytimes.com/athletic/5707306/2024/08/18/carolina-panthers-chuba-hubbard-knee-injury-update/
 

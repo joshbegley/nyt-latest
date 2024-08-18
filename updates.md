@@ -1,3 +1,7 @@
+**Aubrey Pleasant as Rams 'HC', WR outlook, safeties competition and more from preseason**\
+`Pleasant, the Rams' pass game coordinator, ran the show Saturday night while Sean McVay stayed upstairs. "It was a great experience."`\
+https://nytimes.com/athletic/5707010/2024/08/18/la-rams-aubrey-pleasant-coach-chargers-preseason/
+
 **Seahawks stock report: Sam Howell on the rise after tearing up Titans**\
 `Howell looked very sharp in Nashville, while the battles at running back and wide receiver are heating up.`\
 https://nytimes.com/athletic/5707281/2024/08/18/seahawks-titans-preseason-sam-howell/
