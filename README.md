@@ -1,3 +1,7 @@
+**All-Star Willi Castro's late hit rallies Twins past Rangers, gain ground on Cleveland**\
+`Castro's bases-loaded single in the eighth inning propelled Minnesota to its 33rd comeback win: "It’s a confidence everybody has."`\
+https://nytimes.com/athletic/5707275/2024/08/17/twins-willi-castro/
+
 **New York Jets stock report after preseason win over Carolina Panthers**\
 `Most starters sat for both sides, but Saturday was a pivotal night for those battling for spots on a deep Jets roster.`\
 https://nytimes.com/athletic/5707201/2024/08/17/jets-panthers-preseason-score-roster-position-battles/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/17/us/politics/willie-brown-donald-trump-sue-lawsuit
 **Giants QB Daniel Jones shaking off rust or was disaster vs. Texans sign of what's to come?**\
 `Jones’ disastrous start in Saturday’s 28-10 loss to the Texans likely had some fans taking a look at the 2025 draft’s QB class.`\
 https://nytimes.com/athletic/5707011/2024/08/17/new-york-giants-daniel-jones-interceptions-texans/
-
-**NASCAR moving Clash race to Bowman Gray Stadium in 2025**\
-`NASCAR’s season-opening Clash exhibition race will shift to historic Bowman Gray Stadium in 2025.`\
-https://nytimes.com/athletic/5706645/2024/08/17/nascar-clash-race-2025-bowman-gray-stadium/
 
