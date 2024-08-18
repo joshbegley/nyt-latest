@@ -1,3 +1,7 @@
+**The Pulse: Look at what Mahomes can do now**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5707882/2024/08/18/patrick-mahomes-behind-back-the-pulse/
+
 **Vikings signing CB Stephon Gilmore to 1-year deal: Reports**\
 `Over 165 games, Gilmore has 31 picks and 140 pass breakups.`\
 https://nytimes.com/athletic/5707794/2024/08/18/vikings-sign-stephon-gilmore/

@@ -1,3 +1,7 @@
+**The Pulse: Look at what Mahomes can do now**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5707882/2024/08/18/patrick-mahomes-behind-back-the-pulse/
+
 **Vikings signing CB Stephon Gilmore to 1-year deal: Reports**\
 `Over 165 games, Gilmore has 31 picks and 140 pass breakups.`\
 https://nytimes.com/athletic/5707794/2024/08/18/vikings-sign-stephon-gilmore/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/18/world/europe/premier-league-preview-usmnt-pochett
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien, Michael Gold and Jazmine Ulloa`\
 https://nytimes.com/live/2024/08/18/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Live Election Updates: Harris and Walz to Tour Pennsylvania, as Democrats Prepare for Chicago**\
-`Kamala Harris and her running mate, Tim Walz, are set to embark on a bus tour of a critical battleground state, a day before Democrats open their national convention in Chicago.`\
-https://nytimes.com/live/2024/08/18/us/harris-trump-election
 
