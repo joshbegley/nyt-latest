@@ -1,3 +1,7 @@
+**Where to Stream the Films of Alain Delon**\
+`A look at 10 standout films featuring the actor, who died on Sunday at 88.`\
+https://nytimes.com/2024/08/18/movies/alain-delon-streaming.html
+
 **3 More Victims of 1921 Tulsa Race Massacre Found With Gunshot Wounds**\
 `Officials are exhuming bodies to learn more about the victims of one of the worst racial attacks in U.S. history.`\
 https://nytimes.com/2024/08/18/us/tulsa-race-massacre-victims-gunshot.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5707882/2024/08/18/patrick-mahomes-behind-back-the-
 **Vikings signing CB Stephon Gilmore to 1-year deal: Reports**\
 `Over 165 games, Gilmore has 31 picks and 140 pass breakups.`\
 https://nytimes.com/athletic/5707794/2024/08/18/vikings-sign-stephon-gilmore/
-
-**Trey Lance 'took a step' for Cowboys and flashed the potential that makes him intriguing**\
-`Trey Lance threw for 151 yards and ran for 34 while leading the Cowboys to a pair of long scoring drives Saturday.`\
-https://nytimes.com/athletic/5707508/2024/08/18/dallas-cowboys-trey-lance-quarterback-raiders/
 
