@@ -1,3 +1,7 @@
+**Three Red Sox takeaways as team splits important series with Orioles**\
+`The Red Sox have had their roadtrip to Baltimore and Houston circled for weeks. It got off to a solid start with a series split vs. the O's.`\
+https://nytimes.com/athletic/5708654/2024/08/18/red-sox-takeaways-orioles-series-split/
+
 **Tim Walz and the Pull of Rural America**\
 `Responses to an essay about the vice-presidential candidate and rural values. Also: A rattled Trump; cancer screening; the S.S. United States; L.A. Olympic transit.`\
 https://nytimes.com/2024/08/18/opinion/tim-walz-rural-america.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5708531/2024/08/18/caitlin-clark-wnba-rookie-assist
 **Brandon Nimmo exits Mets' loss with 'achy' shoulder**\
 `As they embark on one of their season&#8217;s toughest and most significant stretches, the New York Mets have a physical question mark with one of their stalwart regulars.`\
 https://nytimes.com/athletic/5708484/2024/08/18/mets-brandon-nimmo-shoulder-injury/
-
-**Monday Briefing: The Democratic National Convention**\
-`Plus, the dark side of Shen Yun`\
-https://nytimes.com/2024/08/18/briefing/democratic-national-convention-russia-ukraine-premier-league.html
 
