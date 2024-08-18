@@ -1,3 +1,7 @@
+**Willie Brown to Donald Trump: Mention My Name Again and Get Sued**\
+`The former president has falsely claimed that he nearly died in a helicopter ride with Mr. Brown, and that Mr. Brown said “terrible things” about Kamala Harris.`\
+https://nytimes.com/2024/08/17/us/politics/willie-brown-donald-trump-sue-lawsuit.html
+
 **Giants QB Daniel Jones shaking off rust or was disaster vs. Texans sign of what's to come?**\
 `Jones’ disastrous start in Saturday’s 28-10 loss to the Texans likely had some fans taking a look at the 2025 draft’s QB class.`\
 https://nytimes.com/athletic/5707011/2024/08/17/new-york-giants-daniel-jones-interceptions-texans/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5707029/2024/08/17/reds-hunter-greene-elbow-sorenes
 **Tim Walz plays up his Nebraska roots at rally near Omaha.**\
 `By Jazmine Ulloa`\
 https://nytimes.com/live/2024/08/17/us/trump-harris-election/tim-walz-plays-up-his-nebraska-roots-at-rally-near-omaha
-
-**5 Bengals who helped themselves vs. Bears, 3 who didn't and 1 who made me think**\
-`Even in a Bengals preseason loss, a few Cincinnati players continued to show reason why they will stick on the 53-man roster this year.`\
-https://nytimes.com/athletic/5706877/2024/08/17/cincinnati-bengals-chicago-bears-preseason/
 
