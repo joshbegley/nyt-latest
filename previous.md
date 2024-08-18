@@ -1,3 +1,7 @@
+**Brandon Nimmo exits Mets' loss with 'achy' shoulder**\
+`As they embark on one of their season&#8217;s toughest and most significant stretches, the New York Mets have a physical question mark with one of their stalwart regulars.`\
+https://nytimes.com/athletic/5708484/2024/08/18/mets-brandon-nimmo-shoulder-injury/
+
 **Monday Briefing: The Democratic National Convention**\
 `Plus, the dark side of Shen Yun`\
 https://nytimes.com/2024/08/18/briefing/democratic-national-convention-russia-ukraine-premier-league.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5707440/2024/08/18/liverpool-arne-slot-analysis-ips
 **To Undecided Voters, Harris Is Famous, but Unknown. They Want to Learn More.**\
 `Vice President Kamala Harris has lit a fire among loyal Democrats. But many voters still want to know more about what she stands for.`\
 https://nytimes.com/2024/08/18/us/politics/undecided-voters-kamala-harris-donald-trump.html
-
-**The Briefing: Chelsea 0 Man City 2 - Did wingers justify Sterling's absence? Did Kovacic replace Rodri well?**\
-`Manchester City beat Chelsea 2-0 on Sunday afternoon to start the Premier League campaign`\
-https://nytimes.com/athletic/5707747/2024/08/18/chelsea-manchester-city-result-report-analysis/
 
