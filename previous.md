@@ -1,3 +1,7 @@
+**A Sharp Downturn in the Art Market**\
+`We explore how a slowdown is affecting a rising generation of artists.`\
+https://nytimes.com/2024/08/18/briefing/art-market-downturn.html
+
 **Black Caviar, Champion Racehorse and Australian Icon, Dies**\
 `She won every race she ran, and her fame went beyond the insular world of horseracing.`\
 https://nytimes.com/2024/08/18/world/australia/black-caviar-racehorse-dies.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/18/crosswords/connections-companion-435.html
 **Jim Foley’s Legacy Helped Change Hostage Policy**\
 `Americans held captive overseas deserve all of our help.`\
 https://nytimes.com/2024/08/18/opinion/jim-foley-hostage-policy.html
-
-**Harris Can Change Biden’s Policy on Israel Just by Upholding the Law**\
-`The longstanding Leahy law can — and should — change Middle East policy.`\
-https://nytimes.com/2024/08/18/opinion/biden-israel-policy-harris.html
 

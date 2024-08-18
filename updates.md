@@ -1,3 +1,7 @@
+**A Sharp Downturn in the Art Market**\
+`We explore how a slowdown is affecting a rising generation of artists.`\
+https://nytimes.com/2024/08/18/briefing/art-market-downturn.html
+
 **Black Caviar, Champion Racehorse and Australian Icon, Dies**\
 `She won every race she ran, and her fame went beyond the insular world of horseracing.`\
 https://nytimes.com/2024/08/18/world/australia/black-caviar-racehorse-dies.html
