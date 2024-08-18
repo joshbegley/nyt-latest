@@ -1,3 +1,11 @@
+**Cubs takeaways: Dansby Swanson's bat, a Shota Imanaga scouting report and more**\
+`Plus a health update on Hall of Famer Ryne Sandberg and next steps for Jordan Wicks.`\
+https://nytimes.com/athletic/5708723/2024/08/18/cubs-takeaways-dansby-swanson-shota-imanaga/
+
+**Oilers acquire Vasily Podkolzin from Canucks**\
+`Podkolzin has appeared in 137 career games with the NHL club and recorded 18 goals and 35 points.`\
+https://nytimes.com/athletic/5708725/2024/08/18/oilers-canucks-vasily-podkolzin-nhl/
+
 **Test Your Knowledge of Chicago, the Host of the Democratic National Convention**\
 `The Democrats are arriving in Chicago, the country’s third-largest city, for their first in-person convention in eight years. Take our quiz to find out how much you know about the city.`\
 https://nytimes.com/interactive/2024/08/18/us/chicago-dnc-quiz.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/18/us/politics/democratic-convention-harris-social-m
 **Hurricane Ernesto Brings High Swells and Strong Rip Currents to the East Coast**\
 `Ernesto was creating dangerous surf conditions that were expected to continue for several days, forecasters warned.`\
 https://nytimes.com/2024/08/18/us/east-coast-ernesto-surf.html
-
-**Quentin Johnston's development, plus other notes from Week 2 of Chargers' preseason**\
-`Johnston had only one catch for 19 yards, but the plays that don't show up in the box score are evidence of the second-year WR's progress.`\
-https://nytimes.com/athletic/5708538/2024/08/18/quentin-johnston-chargers-preseason-rams/
-
-**Vance Defends Unsubstantiated Claims About Immigration and Crime**\
-`Citing the movie “Gangs of New York,” JD Vance, the Republican vice-presidential nominee, said that immigration would create “ethnic enclaves” that spur violence and crime.`\
-https://nytimes.com/2024/08/18/us/politics/vance-immigration-gangs-of-new-york.html
 

@@ -1,3 +1,7 @@
+**Test Your Knowledge of Chicago, the Host of the Democratic National Convention**\
+`The Democrats are arriving in Chicago, the country’s third-largest city, for their first in-person convention in eight years. Take our quiz to find out how much you know about the city.`\
+https://nytimes.com/interactive/2024/08/18/us/chicago-dnc-quiz.html
+
 **Matsuyama holds on to capture opening leg of FedEx Cup playoffs**\
 `Matsuyama will rise five spots in the FedEx Cup standings to advance to the second week of the PGA Tour playoffs in the No. 3 spot.`\
 https://nytimes.com/athletic/5708714/2024/08/18/hideki-matsuyama-fedex-cup-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5708538/2024/08/18/quentin-johnston-chargers-presea
 **Vance Defends Unsubstantiated Claims About Immigration and Crime**\
 `Citing the movie “Gangs of New York,” JD Vance, the Republican vice-presidential nominee, said that immigration would create “ethnic enclaves” that spur violence and crime.`\
 https://nytimes.com/2024/08/18/us/politics/vance-immigration-gangs-of-new-york.html
-
-**Fever All-Star Caitlin Clark breaks WNBA rookie assist record**\
-`Clark passed Ticha Penicheiro, who had 225 for the Sacramento Monarchs in 1998.`\
-https://nytimes.com/athletic/5708531/2024/08/18/caitlin-clark-wnba-rookie-assist/
 
