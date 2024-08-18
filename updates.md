@@ -1,3 +1,7 @@
+**Former NFL tackle Michael Oher discusses case against Tuohy family**\
+`In Oher's lawsuit against the Tuohys, his lawyers claim the Tuohys exploited him by using his name, image and likeness.`\
+https://nytimes.com/athletic/5708134/2024/08/18/michael-oher-nfl-tuohy-family/
+
 **Raiders to start Gardner Minshew vs. Chargers in Week 1**\
 `Antonio Pierce left the door open for both Minshew and Aidan O'Connell to end up playing at some point this season.`\
 https://nytimes.com/athletic/5708292/2024/08/18/raiders-gardner-minshew-starter-week-1/
