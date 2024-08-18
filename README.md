@@ -1,3 +1,7 @@
+**Black Caviar, Champion Racehorse and Australian Icon, Dies**\
+`She won every race she ran, and her fame went beyond the insular world of horseracing.`\
+https://nytimes.com/2024/08/18/world/australia/black-caviar-racehorse-dies.html
+
 **Cowboys coach Mike McCarthy on performance vs. Raiders: 'This was a good night for us'**\
 `There was plenty to like in the Cowboys' second preseason game against the Raiders from the offense, defense and special teams.`\
 https://nytimes.com/athletic/5707485/2024/08/18/dallas-cowboys-preseason-observations-raiders/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/18/opinion/jim-foley-hostage-policy.html
 **Harris Can Change Biden’s Policy on Israel Just by Upholding the Law**\
 `The longstanding Leahy law can — and should — change Middle East policy.`\
 https://nytimes.com/2024/08/18/opinion/biden-israel-policy-harris.html
-
-**Wordle Review No. 1,157**\
-`Scroll down for hints and conversation about the puzzle for August 19, 2024.`\
-https://nytimes.com/2024/08/18/crosswords/wordle-review-1157.html
 
