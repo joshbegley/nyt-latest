@@ -1,3 +1,7 @@
+**Chargers' Easton Stick is running out of chances to prove he can back up Justin Herbert**\
+`Stick's regression this summer has been jarring. He has the worst EPA per dropback of any NFL quarterback this preseason.`\
+https://nytimes.com/athletic/5707393/2024/08/18/chargers-easton-stick-justin-herbert-backup/
+
 **Brayan Bello trending in right direction as Red Sox beat Orioles again**\
 `For 5 2/3 innings, Bello no-hit the Orioles en route to a 5-1 victory Saturday.`\
 https://nytimes.com/athletic/5707351/2024/08/18/brayan-bello-red-sox-win-orioles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5706637/2024/08/18/bukayo-saka-arsenal-goals-wolves
 **Watching Kylian Mbappe - our writers on witnessing his magic up close**\
 `As Kylian Mbappe prepares to make his Real Madrid debut, our writers reflect on what it's like to watch him live`\
 https://nytimes.com/athletic/5705299/2024/08/18/kylian-mbappe-real-madrid-psg-france-world-cup/
-
-**Seahawks stock report: Sam Howell on the rise after tearing up Titans**\
-`Howell looked very sharp in Nashville, while the battles at running back and wide receiver are heating up.`\
-https://nytimes.com/athletic/5707281/2024/08/18/seahawks-titans-preseason-sam-howell/
 
