@@ -1,3 +1,7 @@
+**Vikings signing CB Stephon Gilmore to 1-year deal: Reports**\
+`Over 165 games, Gilmore has 31 picks and 140 pass breakups.`\
+https://nytimes.com/athletic/5707794/2024/08/18/vikings-sign-stephon-gilmore/
+
 **Trey Lance 'took a step' for Cowboys and flashed the potential that makes him intriguing**\
 `Trey Lance threw for 151 yards and ran for 34 while leading the Cowboys to a pair of long scoring drives Saturday.`\
 https://nytimes.com/athletic/5707508/2024/08/18/dallas-cowboys-trey-lance-quarterback-raiders/
