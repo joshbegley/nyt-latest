@@ -1,3 +1,11 @@
+**Giants are still searching for RBIs in shutout loss to A's**\
+`When it comes to having a nose for an RBI, too many middle-of-the-order Giants batters suffer from a bad case of congestion.`\
+https://nytimes.com/athletic/5707365/2024/08/18/giants-shutout-loss-athletics/
+
+**Russell Wilson's preseason debut does little to end Steelers' QB competition**\
+`Wilson left the door for the starting QB job open with a dull debut against the Bills, but Justin Fields didn't exactly take advantage.`\
+https://nytimes.com/athletic/5707298/2024/08/18/russell-wilson-justin-fields-competition-preseason/
+
 **Russell Wilson's preseason debut does little to end Steelers' QB competition**\
 `Wilson left the door for the starting QB job open with a dull debut against the Bills, but Justin Fields didn't exactly take advantage.`\
 https://nytimes.com/athletic/5707298/2024/08/18/russell-wilsons-justin-fields-competition-preseason/
