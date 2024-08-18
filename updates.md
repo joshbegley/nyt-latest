@@ -1,3 +1,7 @@
+**Quentin Johnston's development, plus other notes from Week 2 of Chargers' preseason**\
+`Johnston had only one catch for 19 yards, but the plays that don't show up in the box score are evidence of the second-year WR's progress.`\
+https://nytimes.com/athletic/5708538/2024/08/18/quentin-johnston-chargers-preseason-rams/
+
 **Hoops Player**\
 `What does Kenneth Cortes look for in a good crossword? Location, location, location.`\
 https://nytimes.com/2024/08/18/crosswords/daily-puzzle-2024-08-19.html
