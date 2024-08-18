@@ -1,3 +1,7 @@
+**Leverkusen send out a message to their rivals - they will not ease off**\
+`If anyone thought Bayer Leverkusen would soften over the summer, their win in the German Super Cup suggests they should think again`\
+https://nytimes.com/athletic/5706988/2024/08/18/bayer-leverkusen-super-cup-stuttgart/
+
 **Corrections: Aug. 18, 2024**\
 `Corrections that appeared in print on Sunday, Aug. 18, 2024.`\
 https://nytimes.com/2024/08/18/pageoneplus/corrections-aug-18-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/18/opinion/pelosi-trump-biden-harris.html
 **Aubrey Pleasant as Rams 'HC', WR outlook, safeties competition and more from preseason**\
 `Pleasant, the Rams' pass game coordinator, ran the show Saturday night while Sean McVay stayed upstairs. "It was a great experience."`\
 https://nytimes.com/athletic/5707010/2024/08/18/la-rams-aubrey-pleasant-coach-chargers-preseason/
-
-**How did Larsen perform and what transfer business must be done?**\
-`The major talking points as Wanderers' season got off to a losing start at Arsenal `\
-https://nytimes.com/athletic/5706655/2024/08/18/wolves-transfer-briefing-larsen/
 
