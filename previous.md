@@ -1,3 +1,7 @@
+**To Undecided Voters, Harris Is Famous, but Unknown. They Want to Learn More.**\
+`Vice President Kamala Harris has lit a fire among loyal Democrats. But many voters still want to know more about what she stands for.`\
+https://nytimes.com/2024/08/18/us/politics/undecided-voters-kamala-harris-donald-trump.html
+
 **The Briefing: Chelsea 0 Man City 2 - Did wingers justify Sterling's absence? Did Kovacic replace Rodri well?**\
 `Manchester City beat Chelsea 2-0 on Sunday afternoon to start the Premier League campaign`\
 https://nytimes.com/athletic/5707747/2024/08/18/chelsea-manchester-city-result-report-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5707518/2024/08/18/forest-reaction-to-danilos-injur
 **Panathinaikos in talks with Man Utd over Pellistri deal**\
 `Panathinaikos are in talks with Manchester United over a deal for winger Facundo Pellistri.`\
 https://nytimes.com/athletic/5707823/2024/08/18/facundo-pellistri-man-united-transfer-panathinaikos/
-
-**Sterling seeks 'clarity' on Chelsea future after exclusion from matchday squad**\
-`Raheem Sterling is seeking &#8220;clarity&#8221; over his future at Chelsea after being excluded from the opening Premier League matchday squad against Manchester City.`\
-https://nytimes.com/athletic/5707944/2024/08/18/raheem-sterling-chelsea-future-transfer/
 
