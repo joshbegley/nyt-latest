@@ -2,7 +2,7 @@
 `Enzo Maresca defended his decision to give Enzo Fernandez the captain’s armband for Chelsea’s 2-0 defeat against Manchester City on Sunday.`\
 https://nytimes.com/athletic/5708344/2024/08/18/enzo-fernandezs-chelsea-captaincy-defended-by-enzo-maresca-after-apology-for-racist-chant/
 
-**U.S. flag football QB discusses NFL players will taking Olympic spots**\
+**U.S. flag football QB discusses NFL players taking Olympic spots**\
 `Darrell “Housh” Doucette led the flag football national team to a gold medal at the 2022 World Games.`\
 https://nytimes.com/athletic/5708248/2024/08/18/us-flag-football-nfl-olympics-2028/
 
