@@ -1,3 +1,7 @@
+**Cowboys coach Mike McCarthy on performance vs. Raiders: 'This was a good night for us'**\
+`There was plenty to like in the Cowboys' second preseason game against the Raiders from the offense, defense and special teams.`\
+https://nytimes.com/athletic/5707485/2024/08/18/dallas-cowboys-preseason-observations-raiders/
+
 **Everton have work to do – this was no way to start final Goodison season**\
 `Everton fell to a 3-0 defeat against Brighton on the opening day of the season`\
 https://nytimes.com/athletic/5706730/2024/08/18/everton-goodison-park-brighton/
