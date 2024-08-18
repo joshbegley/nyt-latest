@@ -1,3 +1,7 @@
+**76ers, France’s Guerschon Yabusele in serious talks on deal**\
+`Yabusele is resolving his $2.5 million contract buyout with Real Madrid as he nears a return to the NBA.`\
+https://nytimes.com/athletic/5708086/2024/08/18/76ers-guerschon-yabusele-deal/
+
 **Where to Stream the Films of Alain Delon**\
 `A look at 10 standout films featuring the actor, who died on Sunday at 88.`\
 https://nytimes.com/2024/08/18/movies/alain-delon-streaming.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5707875/2024/08/18/eberechi-eze-disallowed-goal-var
 **The Pulse: Look at what Mahomes can do now**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5707882/2024/08/18/patrick-mahomes-behind-back-the-pulse/
-
-**Vikings signing CB Stephon Gilmore to 1-year deal**\
-`Over 165 games, Gilmore has 31 picks and 140 pass breakups.`\
-https://nytimes.com/athletic/5707794/2024/08/18/vikings-sign-stephon-gilmore/
 
