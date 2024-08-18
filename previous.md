@@ -1,3 +1,7 @@
+**Blinken Travels to Israel Amid Push for Gaza Cease-Fire**\
+`The secretary of state’s trip comes days after negotiations in Qatar ended without a major breakthrough.`\
+https://nytimes.com/2024/08/18/world/middleeast/blinken-israel-gaza-hamas.html
+
 **Leicester agree deal to sign Skipp from Tottenham**\
 `Leicester City have agreed a deal to sign Oliver Skipp from Tottenham Hotspur on a permanent transfer.`\
 https://nytimes.com/athletic/5707543/2024/08/18/oliver-skipp-leicester-tottenham-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/18/world/europe/a-city-of-blaring-sirens-fills-with-
 **‘Bad Blood’ Stalks a Lithium Mine in Serbia**\
 `A Rio Tinto mine that Europe sees as a critical source for electric vehicle batteries has been the target of enormous protests. “I don’t need green cars. I need green apples and green grass,” said one opponent.`\
 https://nytimes.com/2024/08/18/world/europe/serbia-lithium-mine.html
-
-**Defying Crisis in Local News, The Star Tribune Expands**\
-`The newspaper in Minneapolis is expanding its statewide coverage and changing its name to The Minnesota Star Tribune.`\
-https://nytimes.com/2024/08/18/business/media/star-tribune-minnesota.html
 

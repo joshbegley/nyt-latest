@@ -1,3 +1,7 @@
+**Blinken Travels to Israel Amid Push for Gaza Cease-Fire**\
+`The secretary of state’s trip comes days after negotiations in Qatar ended without a major breakthrough.`\
+https://nytimes.com/2024/08/18/world/middleeast/blinken-israel-gaza-hamas.html
+
 **Leicester agree deal to sign Skipp from Tottenham**\
 `Leicester City have agreed a deal to sign Oliver Skipp from Tottenham Hotspur on a permanent transfer.`\
 https://nytimes.com/athletic/5707543/2024/08/18/oliver-skipp-leicester-tottenham-transfer/
