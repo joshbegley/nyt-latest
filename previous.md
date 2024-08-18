@@ -1,3 +1,7 @@
+**Lowetide: Which Oilers have the most to gain from the Broberg, Holloway offer sheets?**\
+`Should Holloway and Broberg leave for St. Louis, who benefits the most in Edmonton?`\
+https://nytimes.com/athletic/5705922/2024/08/18/oilers-broberg-holloway-offer-sheets/
+
 **Elon Musk Closes X Operations in Brazil Over Fight With Judge**\
 `The billionaire said he would shutter his social network’s Brazil operations instead of complying with a Brazilian judge’s orders to suspend accounts.`\
 https://nytimes.com/2024/08/18/world/americas/elon-musk-x-brazil.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/18/us/tulsa-race-massacre-victims-gunshot.html
 **What needs to happen for Pochettino to officially become USMNT head coach?**\
 `The USMNT have a verbal agreement with Mauricio Pochettino so what is the state of play?`\
 https://nytimes.com/athletic/5707564/2024/08/18/mauricio-pochettino-usmnt-head-coach-what-next/
-
-**Marcella Hazan’s Five-Star, 12,000-Review Tomato Sauce**\
-`Its luscious simplicity is the draw: All you need are canned tomatoes, an onion cut in half, butter, salt and time.`\
-https://nytimes.com/2024/08/18/dining/marcella-hazan-tomato-sauce.html
 

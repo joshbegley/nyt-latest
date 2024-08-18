@@ -1,3 +1,7 @@
+**Lowetide: Which Oilers have the most to gain from the Broberg, Holloway offer sheets?**\
+`Should Holloway and Broberg leave for St. Louis, who benefits the most in Edmonton?`\
+https://nytimes.com/athletic/5705922/2024/08/18/oilers-broberg-holloway-offer-sheets/
+
 **Elon Musk Closes X Operations in Brazil Over Fight With Judge**\
 `The billionaire said he would shutter his social network’s Brazil operations instead of complying with a Brazilian judge’s orders to suspend accounts.`\
 https://nytimes.com/2024/08/18/world/americas/elon-musk-x-brazil.html
