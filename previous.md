@@ -1,3 +1,7 @@
+**Mahomes says he improvised behind-the-back pass**\
+`Mahomes pulled off the highlight-worthy throw less than two weeks after executing the trick in practice.`\
+https://nytimes.com/athletic/5707016/2024/08/17/patrick-mahomes-trick-pass-chiefs-lions/
+
 **In the face of workload concerns, Luis Severino tosses a shutout**\
 `Mets manager Carlos Mendoza had a lot to ponder, and his decision to let Severino finish the game paid dividends. For one game, anyway.`\
 https://nytimes.com/athletic/5707172/2024/08/17/mets-luis-severino-shutout/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5706645/2024/08/17/nascar-clash-race-2025-bowman-gr
 **New Real Estate Rules Sow Confusion, at Least in Short Term**\
 `Changes in how real estate commissions are advertised and paid went into effect this weekend. Buyers and even some agents aren’t sure what they mean.`\
 https://nytimes.com/2024/08/17/realestate/nar-commissions-rules-changes.html
-
-**Ravens insist they believe in their young offensive linemen. They better be right**\
-`With injuries pushing young offensive linemen to the forefront, the Ravens are once again betting on their reputable scouting staff.`\
-https://nytimes.com/athletic/5706942/2024/08/17/baltimore-ravens-preseason-training-camp-tyler-linderbaum/
 

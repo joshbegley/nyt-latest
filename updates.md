@@ -1,3 +1,7 @@
+**Mahomes says he improvised behind-the-back pass**\
+`Mahomes pulled off the highlight-worthy throw less than two weeks after executing the trick in practice.`\
+https://nytimes.com/athletic/5707016/2024/08/17/patrick-mahomes-trick-pass-chiefs-lions/
+
 **In the face of workload concerns, Luis Severino tosses a shutout**\
 `Mets manager Carlos Mendoza had a lot to ponder, and his decision to let Severino finish the game paid dividends. For one game, anyway.`\
 https://nytimes.com/athletic/5707172/2024/08/17/mets-luis-severino-shutout/
