@@ -1,3 +1,7 @@
+**Toney out of Brentford squad for Premier League opener amid Al Ahli interest**\
+`Ivan Toney has been left out of Brentford&#8217;s squad for their Premier League opener against Crystal Palace amid interest from Saudi Pro League side Al Ahli.`\
+https://nytimes.com/athletic/5707696/2024/08/18/ivan-toney-al-ahli-brentford-future/
+
 **Premier League Preview: Here We Go Again**\
 `The European soccer season is back. Here are the top story lines to watch this season.`\
 https://nytimes.com/2024/08/18/world/europe/premier-league-preview-usmnt-pochettino.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5706835/2024/08/18/cubs-seiya-suzuki-called-strikes
 **Bears risers and fallers: Caleb Williams on the run, Kyler Gordon in the backfield**\
 `Tyson Bagent and Dante Pettis had a good day against the Bengals, while Nate Davis and Ja'Tyre Carter were on the other end of the spectrum.`\
 https://nytimes.com/athletic/5706993/2024/08/18/bears-bengals-risers-fallers-caleb-williams/
-
-**The Sunday Read: ‘The Man Who Couldn’t Stop Going to College’**\
-`Benjamin B. Bolger has spent his whole life amassing academic degrees. What can we learn from him?`\
-https://nytimes.com/2024/08/18/podcasts/the-daily/benjamin-bolger-college-harvard-yale.html
 
