@@ -1,3 +1,15 @@
+**Hoops Player**\
+`What does Kenneth Cortes look for in a good crossword? Location, location, location.`\
+https://nytimes.com/2024/08/18/crosswords/daily-puzzle-2024-08-19.html
+
+**Social Media Influencers to Speak at the Democratic Convention**\
+`While they have millions of followers on platforms like TikTok and Instagram, this week they will share the podium with the top tier of Democratic politics.`\
+https://nytimes.com/2024/08/18/us/politics/democratic-convention-harris-social-media-influencers.html
+
+**Hurricane Ernesto Brings High Swells and Strong Rip Currents to the East Coast**\
+`Ernesto was creating dangerous surf conditions that were expected to continue for several days, forecasters warned.`\
+https://nytimes.com/2024/08/18/us/east-coast-ernesto-surf.html
+
 **Quentin Johnston's development, plus other notes from Week 2 of Chargers' preseason**\
 `Johnston had only one catch for 19 yards but the plays that don't show up in the box score are evidence of the second-year WR's progress.`\
 https://nytimes.com/athletic/5708538/2024/08/18/quentin-johnston-chargers-preseason-rams/
