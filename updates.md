@@ -1,3 +1,7 @@
+**Lions takeaways: Hendon Hooker, Jake Bates lead standouts in win over Chiefs**\
+`Hooker deserves a chance to start next week. Meanwhile, rookie Sione Vaki might be the team's offensive MVP of the preseason so far.`\
+https://nytimes.com/athletic/5707069/2024/08/17/lions-chiefs-preseason-hendon-hooker-jake-bates/
+
 **Browns preseason: Cleveland encounters emergency situation at OT vs. Vikings**\
 `The Browns have done a lot to fortify the offensive line, but after Saturday's injuries, they may have more work to do.`\
 https://nytimes.com/athletic/5707144/2024/08/17/cleveland-browns-minnesota-vikings-preseason-germain-ifedi/
