@@ -1,3 +1,7 @@
+**The A's and Giants close out a Bay Area rivalry with a final flourish of late-inning drama**\
+`The Giants closed out the last Bay Bridge series game at the Coliseum with two home runs in the 10th inning.`\
+https://nytimes.com/athletic/5708873/2024/08/18/oakland-athletics-sf-giants-bay-bridge-series-coliseum/
+
 **Democrats Unveil Convention Platform With Familiar Themes**\
 `The party is calling for tax increases on corporations and the rich while also focusing on working families, infrastructure, climate change and abortion rights.`\
 https://nytimes.com/2024/08/18/us/politics/democrats-convention-platform.html
