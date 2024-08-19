@@ -1,3 +1,7 @@
+**High Food Prices: The Causes and the Politics**\
+`Summary summary summary`\
+https://nytimes.com/2024/08/19/opinion/letters/high-food-prices.html
+
 **Several senators in highly competitive races are skipping the D.N.C.**\
 `Campaigning in red or purple states, Jon Tester of Montana, Sherrod Brown of Ohio and Jacky Rosen of Nevada are not traveling to Chicago.`\
 https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/several-senators-in-highly-competitive-races-are-skipping-the-dnc
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5709774/2024/08/19/godser-cherilus-arrested-airline
 **Five questions entering the Eagles' final preseason game**\
 `Depth and health are the main issues going into the final preseason game.`\
 https://nytimes.com/athletic/5705199/2024/08/19/eagles-vikings-final-preseason-game-questions/
-
-**Messi left out of Argentina squad after Copa injury**\
-`Lionel Messi has been left out of the Argentina squad for their upcoming World Cup qualifiers.`\
-https://nytimes.com/athletic/5709858/2024/08/19/lionel-messi-injury-argentina-squad/
 

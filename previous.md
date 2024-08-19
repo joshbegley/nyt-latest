@@ -1,3 +1,7 @@
+**Several senators in highly competitive races are skipping the D.N.C.**\
+`Campaigning in red or purple states, Jon Tester of Montana, Sherrod Brown of Ohio and Jacky Rosen of Nevada are not traveling to Chicago.`\
+https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/several-senators-in-highly-competitive-races-are-skipping-the-dnc
+
 **George A Romero**\
 `News about George A Romero. Commentary and archival information about George A Romero from The New York Times.`\
 https://nytimes.com/topic/george-a-romero
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5705199/2024/08/19/eagles-vikings-final-preseason-g
 **Messi left out of Argentina squad after Copa injury**\
 `Lionel Messi has been left out of the Argentina squad for their upcoming World Cup qualifiers.`\
 https://nytimes.com/athletic/5709858/2024/08/19/lionel-messi-injury-argentina-squad/
-
-**The Windup: Pirates tempted to shut Skenes down?**\
-`Welcome to The Windup, The Athletic's MLB newsletter. `\
-https://nytimes.com/athletic/5709834/2024/08/19/paul-skenes-pirates-danny-jansen-mlb-the-windup/
 

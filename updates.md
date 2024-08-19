@@ -1,3 +1,7 @@
+**Several senators in highly competitive races are skipping the D.N.C.**\
+`Campaigning in red or purple states, Jon Tester of Montana, Sherrod Brown of Ohio and Jacky Rosen of Nevada are not traveling to Chicago.`\
+https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/several-senators-in-highly-competitive-races-are-skipping-the-dnc
+
 **George A Romero**\
 `News about George A Romero. Commentary and archival information about George A Romero from The New York Times.`\
 https://nytimes.com/topic/george-a-romero
