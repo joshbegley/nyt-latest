@@ -1,3 +1,7 @@
+**What Are Protesters’ Rights During the D.N.C.?**\
+`The boundaries of First Amendment rights and the government’s duty to maintain public order threaten to collide this week.`\
+https://nytimes.com/2024/08/19/us/politics/what-are-protesters-rights-during-the-dnc.html
+
 **Rutter completes Brighton move from Leeds**\
 `Brighton &amp; Hove Albion have completed the signing of Georginio Rutter from Leeds United.`\
 https://nytimes.com/athletic/5702330/2024/08/19/georginio-rutter-brighton-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/19/world/middleeast/tel-aviv-bomb-hamas.html
 **Gallagher's Atletico move expected to proceed after Joao Felix agreement**\
 `Conor Gallagher&#8217;s move to Atletico Madrid is expected to proceed after Chelsea agreed a deal to sign Joao Felix from the Spanish club.`\
 https://nytimes.com/athletic/5671315/2024/08/19/conor-gallagher-transfer-atletico-chelsea/
-
-**Braves 3B Austin Riley out 6-8 weeks with fractured hand**\
-`Angels starter Jack Kochanowicz hit Riley in the right hand with a 97-mph fastball.`\
-https://nytimes.com/athletic/5710364/2024/08/19/austin-riley-braves-fractured-hand-injury/
 
