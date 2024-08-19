@@ -1,3 +1,15 @@
+**Kevin A Plank**\
+`News about Kevin A Plank. Commentary and archival information about Kevin A Plank from The New York Times.`\
+https://nytimes.com/topic/kevin-a-plank
+
+**Kings fan survey: Should Blake return? Byfield's future? Next captain? How will 2024-25 end?**\
+`Kings fans, let us know what you think about some of the big issues surrounding the team.`\
+https://nytimes.com/athletic/5705687/2024/08/19/kings-fan-survey-blake/
+
+**Source: Flyers goalie prospect prefers return to KHL, but team opposes it**\
+`The Flyers are expected to meet with Alexei Kolosov’s camp this week.`\
+https://nytimes.com/athletic/5710173/2024/08/19/flyers-goalie-prospect-khl/
+
 **How Well Do You Know Rome, and These Books Set in the City?**\
 `Try this short literary geography quiz focused on Italy’s ancient capital.`\
 https://nytimes.com/interactive/2024/08/19/books/review/rome-books-quiz.html
