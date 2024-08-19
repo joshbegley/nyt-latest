@@ -1,3 +1,15 @@
+**Jason Isbell Offers Democrats a Way to Connect With a New Audience**\
+`The Southern white, working man’s musician performs at the Democratic convention and lets loose on the state of politics in an interview.`\
+https://nytimes.com/2024/08/19/us/politics/jason-isbell-dnc.html
+
+**Delaware Democrats to Their Joyous Party: ‘Et tu, Brute?’**\
+`Convention attendees from President Biden’s home state were careful to emphasize their support for Kamala Harris. But some still expressed a sense of loss.`\
+https://nytimes.com/2024/08/19/us/politics/biden-delaware-democrats.html
+
+**Robert A. Hadden**\
+`News about Robert A. Hadden. Commentary and archival information about Robert A. Hadden from The New York Times.`\
+https://nytimes.com/topic/robert-a-hadden
+
 **Matthew Perry’s Death Shines a Harsh Light on Ketamine Treatment**\
 `Was Mr. Perry, whose struggles with substance abuse were widely known, a good candidate for a drug used to relieve depression? Doctors say his case raises thorny questions.`\
 https://nytimes.com/2024/08/19/arts/television/matthew-perry-ketamine-treatment.html
