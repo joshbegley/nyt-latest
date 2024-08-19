@@ -1,3 +1,19 @@
+**The Briefing: Sterling sums up Chelsea chaos, City grind on and Mosquera weirdness**\
+`The big talking points from the Premier League weekend - including an explosive statement, an ominous win and a digital examination`\
+https://nytimes.com/athletic/5708438/2024/08/19/chelsea-raheem-sterling-chaos/
+
+**Sterling and Chelsea: Broken trust, briefing wars and a bleak future**\
+`A day of explosive statements, awkward interviews and unanswered questions has left marquee signing in limbo`\
+https://nytimes.com/athletic/5708608/2024/08/19/chelsea-raheem-sterling-future/
+
+**The secrets of Liverpool's recruitment - revealed by the man who helped shape it**\
+`Ian Graham reveals his best signing at Anfield, behind-the-scenes tensions with Rodgers and why Klopp worked`\
+https://nytimes.com/athletic/5702345/2024/08/19/liverpool-transfers-data-ian-graham/
+
+**Sporting directors have power but no accountability - it's time to hear from them**\
+`Managers are routinely held responsible for decisions they cannot make - the executives really in charge should step up`\
+https://nytimes.com/athletic/5703435/2024/08/19/premier-league-sporting-directors/
+
 **Ivan Toney's potential Saudi Arabia move: What is happening?**\
 `Why was Toney left out against Palace on Sunday, how much would Brentford miss him, and what could happen next?`\
 https://nytimes.com/athletic/5708019/2024/08/19/ivan-toneys-brentford-saudi-arabia-al-ahlia/
