@@ -1,3 +1,7 @@
+**Here’s the Speaker Lineup for the Opening Night of the Democratic Convention**\
+`Monday’s headliners include President Biden and the first lady, Jill Biden, along with Hillary Clinton, who was defeated by Donald J. Trump in the 2016 election.`\
+https://nytimes.com/2024/08/19/us/politics/democratic-convention-speakers.html
+
 **Hamas and Islamic Jihad Claim Responsibility for Tel Aviv Bombing**\
 `The two groups described the attack as a suicide bombing, but an Israeli statement did not. If confirmed, it would be the first suicide bombing in Israel in roughly eight years.`\
 https://nytimes.com/2024/08/19/world/middleeast/tel-aviv-bomb-hamas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/19/opinion/kamala-harris-economics-trump.html
 **Robert F. Kennedy Jr. Could Be Blocked From New York’s Ballot, Again**\
 `Last week, he was booted for using a fake address. This week, a suit claims that people gathering signatures for the candidate deceived voters.`\
 https://nytimes.com/2024/08/19/nyregion/rfk-jr-new-york-ballot.html
-
-**Trying to Recover the British Museum’s Gems, and Its Reputation**\
-`The police haven’t charged anybody over the missing artifacts, but the museum is running its own investigations to get the items back.`\
-https://nytimes.com/2024/08/19/arts/design/british-museum-gems-recovery.html
 
