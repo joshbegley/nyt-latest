@@ -3,7 +3,7 @@
 https://nytimes.com/topic/karl-a-racine
 
 **Gundogan's City return is a no-brainer**\
-`Former City captain's return from Barcelona feels so obvious. It has to happen… surely?`\
+`The former City captain's return from Barcelona after just one season away feels so obvious. It has to happen… surely?`\
 https://nytimes.com/athletic/5709849/2024/08/19/ilkay-gundogans-manchester-city-return-is-a-no-brainer/
 
 **Chelsea's Humphreys set for loan with obligation move to Burnley**\
@@ -31,7 +31,7 @@ https://nytimes.com/athletic/5709996/2024/08/19/tua-tagovailoa-mike-mcdaniel-bri
 https://nytimes.com/athletic/5709891/2024/08/19/jrue-holiday-celtics-hall-of-fame-western-conference-guerschon-yabusele-76ers-nba-the-bounce/
 
 **High Food Prices: The Causes and the Politics**\
-`Summary summary summary`\
+`Readers discuss how to combat high prices. Also: The decision not to pick Josh Shapiro; preparing for campus protests; crypto’s political power. `\
 https://nytimes.com/2024/08/19/opinion/letters/high-food-prices.html
 
 **Several senators in highly competitive races are skipping the D.N.C.**\

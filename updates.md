@@ -1,3 +1,11 @@
+**Gundogan's City return is a no-brainer**\
+`The former City captain's return from Barcelona after just one season away feels so obvious. It has to happen… surely?`\
+https://nytimes.com/athletic/5709849/2024/08/19/ilkay-gundogans-manchester-city-return-is-a-no-brainer/
+
+**High Food Prices: The Causes and the Politics**\
+`Readers discuss how to combat high prices. Also: The decision not to pick Josh Shapiro; preparing for campus protests; crypto’s political power. `\
+https://nytimes.com/2024/08/19/opinion/letters/high-food-prices.html
+
 **Karl A. Racine**\
 `News about Karl A. Racine. Commentary and archival information about Karl A. Racine from The New York Times.`\
 https://nytimes.com/topic/karl-a-racine
