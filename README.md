@@ -1,3 +1,7 @@
+**U.S. Soldier’s Remains Identified More Than 80 Years After Bataan Death March**\
+`Pvt. William E. Calkins of Oregon survived the march but died at age 20 in a prison camp during World War II. His remains are set to be buried next month.`\
+https://nytimes.com/2024/08/19/us/bataan-death-march-pow.html
+
 **Sammie Szmodics to Ipswich: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500 series, we look at Sammie Szmodics's move to Ipswich`\
 https://nytimes.com/athletic/5709220/2024/08/19/sammie-szmodics-to-ipswich-the-athletic-500-transfer-ratings/
@@ -33,8 +37,4 @@ https://nytimes.com/topic/karl-a-racine
 **Gundogan's City return is a no-brainer**\
 `The former City captain's return from Barcelona after just one season away feels so obvious. It has to happen… surely?`\
 https://nytimes.com/athletic/5709849/2024/08/19/ilkay-gundogans-manchester-city-return-is-a-no-brainer/
-
-**Chelsea's Humphreys set for loan with obligation move to Burnley**\
-`Chelsea defender Bashir Humphreys is set to join Championship side Burnley on loan with an obligation to buy.`\
-https://nytimes.com/athletic/5709991/2024/08/19/bashir-humphreys-burnley-chelsea/
 
