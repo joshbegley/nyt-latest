@@ -1,3 +1,11 @@
+**Raheem Sterling... fight or flight?**\
+`It is easy to imagine how Sterling might benefit from leaving Chelsea, but it is less easy to imagine where any fresh start might be`\
+https://nytimes.com/athletic/5709266/2024/08/19/raheem-sterling-fight-or-flight/
+
+**A New Treatment for Severe Allergic Reactions — Without the Needle**\
+`A nasal spray can tamp down potentially fatal reactions, a boon to the many patients in crisis who fear using EpiPens.`\
+https://nytimes.com/2024/08/19/health/nasal-spray-shock-neffy.html
+
 **Biden Will Pass the Torch to Harris in His Convention Speech**\
 `President Biden and his top aides have spent days reworking his original address, which he expected to give as the Democratic nominee, for a new moment.`\
 https://nytimes.com/2024/08/19/us/politics/biden-democratic-national-convention-speech.html
