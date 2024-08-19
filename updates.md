@@ -1,3 +1,7 @@
+**Yusef Salaam, of ‘Central Park 5,’ to Speak at Democratic Convention**\
+`Mr. Salaam will be joined onstage in Chicago by three other men he was wrongly convicted with and will speak about the dangers of re-electing Donald Trump.`\
+https://nytimes.com/2024/08/19/nyregion/yusef-salaam-dnc-central-park-five.html
+
 **Kiyo A Matsumoto**\
 `News about Kiyo A Matsumoto. Commentary and archival information about Kiyo A Matsumoto from The New York Times.`\
 https://nytimes.com/topic/kiyo-a-matsumoto
