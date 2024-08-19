@@ -1,3 +1,7 @@
+**Tagovailoa recalls former coach Brian Flores' comments: 'You shouldn't be here'**\
+`Tagovailoa said Flores would tell him comments like, 'You suck at what you did' and 'You shouldn't be here.'`\
+https://nytimes.com/athletic/5709996/2024/08/19/tua-tagovailoa-mike-mcdaniel-brian-flores/
+
 **The Bounce: Is Jrue Holiday a future Hall of Famer?**\
 `Zach Harper and Shams Charania catch you up on league-wide news.`\
 https://nytimes.com/athletic/5709891/2024/08/19/jrue-holiday-celtics-hall-of-fame-western-conference-guerschon-yabusele-76ers-nba-the-bounce/
