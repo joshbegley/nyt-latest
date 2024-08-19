@@ -1,3 +1,13 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Folks, we have games this weekend. This is not a drill.</p>
+<p>Let me know what&#8217;s on your mind as we brace for Week 0.</p>
+`\
+https://nytimes.com/athletic/5711008/2024/08/19/submit-a-question-for-stewart-mandels-college-football-mailbag-269/
+
+**Jury Finds Parents of Gunman Not Liable in 2018 Texas School Shooting**\
+`Jurors decided instead that blame rested with the gunman, who was 17 at the time, and the company that sold him ammunition used in the shooting.`\
+https://nytimes.com/2024/08/19/us/texas-school-shooting-civil-trial.html
+
 **Landon Donovan on San Diego Wave gig: 'I don't worry about the next job'**\
 `Donovan hopes to use his experience as a player to lead San Diego through a difficult time. `\
 https://nytimes.com/athletic/5710888/2024/08/19/landon-donovan-nwsl-san-diego-wave-coach/
@@ -29,12 +39,4 @@ https://nytimes.com/2024/08/19/us/politics/iran-trump-campaign-hacking.html
 **Former Investigator Assails World Anti-Doping Agency**\
 `The agency, which has faced intense criticism for its handling of positive tests among Chinese swimmers, should be replaced by a “truly independent” organization, its former chief investigative officer said.`\
 https://nytimes.com/2024/08/19/us/politics/world-anti-doping-agency.html
-
-**Dmitri A. Muratov**\
-`News about Dmitri A. Muratov. Commentary and archival information about Dmitri A. Muratov from The New York Times.`\
-https://nytimes.com/topic/dmitri-a-muratov
-
-**Harold Meltzer, Composer of Impossible-to-Pigeonhole Works, Dies at 58**\
-`His music, which was performed by many prominent ensembles, mixed melodic themes and rich textures with the sharp-edged angularity of modernism.`\
-https://nytimes.com/2024/08/19/arts/music/harold-meltzer-dead.html
 
