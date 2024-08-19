@@ -30,7 +30,7 @@ https://nytimes.com/2024/08/18/us/politics/dnc-democrats-israel-gaza.html
 `Plus a health update on Hall of Famer Ryne Sandberg and next steps for Jordan Wicks.`\
 https://nytimes.com/athletic/5708723/2024/08/18/cubs-takeaways-dansby-swanson-shota-imanaga/
 
-**Oilers acquire Vasily Podkolzin from Canucks**\
+**Oilers acquire Podkolzin from Canucks, Emberson from Sharks**\
 `Podkolzin has appeared in 137 career games with the NHL club and recorded 18 goals and 35 points.`\
 https://nytimes.com/athletic/5708725/2024/08/18/oilers-canucks-vasily-podkolzin-nhl/
 
