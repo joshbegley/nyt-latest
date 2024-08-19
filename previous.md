@@ -1,3 +1,7 @@
+**Robert F. Kennedy Jr. Could Be Blocked From New York’s Ballot, Again**\
+`Last week, he was booted for using a fake address. This week, a suit claims that people gathering signatures for the candidate deceived voters.`\
+https://nytimes.com/2024/08/19/nyregion/rfk-jr-new-york-ballot.html
+
 **Trying to Recover the British Museum’s Gems, and Its Reputation**\
 `The police haven’t charged anybody over the missing artifacts, but the museum is running its own investigations to get the items back.`\
 https://nytimes.com/2024/08/19/arts/design/british-museum-gems-recovery.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/13/opinion/thepoint/trump-harris-communist-conv
 **Mark A Takano**\
 `News about Mark A Takano. Commentary and archival information about Mark A Takano from The New York Times.`\
 https://nytimes.com/topic/mark-a-takano
-
-**5 Tips for Making a School Lunch Your Kid Will Actually Eat**\
-`With just a few tweaks and a smidgen of planning, you can pack lunches that come home eaten.`\
-https://nytimes.com/article/school-lunch-ideas.html
 
