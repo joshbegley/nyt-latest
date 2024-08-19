@@ -1,3 +1,7 @@
+**James A Martin**\
+`News about James A Martin. Commentary and archival information about James A Martin from The New York Times.`\
+https://nytimes.com/topic/james-a-martin
+
 **Protesters Gather in Chicago on Democratic Convention’s Opening Day**\
 `Demonstrators were focused on a range of causes, but many said they were angry with the Biden administration’s approach to Israel and Gaza.`\
 https://nytimes.com/2024/08/19/us/chicago-dnc-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5710241/2024/08/19/fulham-sander-berge-burnley/
 **Jayden Daniels named Commanders starting quarterback**\
 `Daniels beat out fellow rookie Sam Hartman and veteran Marcus Mariota for the job.`\
 https://nytimes.com/athletic/5710236/2024/08/19/jayden-daniels-commanders-starting-quarterback/
-
-**Ducks fan survey: How is Verbeek doing? Will Gauthier win the Calder?**\
-`Will the Ducks make significant progress in the 2024-25 season?`\
-https://nytimes.com/athletic/5710141/2024/08/19/ducks-fan-survey-verbeek-gauthier/
 
