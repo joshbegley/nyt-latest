@@ -1,3 +1,7 @@
+**Dmitri A. Muratov**\
+`News about Dmitri A. Muratov. Commentary and archival information about Dmitri A. Muratov from The New York Times.`\
+https://nytimes.com/topic/dmitri-a-muratov
+
 **Harold Meltzer, Composer of Impossible-to-Pigeonhole Works, Dies at 58**\
 `His music, which was performed by many prominent ensembles, mixed melodic themes and rich textures with the sharp-edged angularity of modernism.`\
 https://nytimes.com/2024/08/19/arts/music/harold-meltzer-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/19/us/politics/jason-isbell-dnc.html
 **Delaware Democrats to Their Joyous Party: ‘Et tu, Brute?’**\
 `Convention attendees from President Biden’s home state were careful to emphasize their support for Kamala Harris. But some still expressed a sense of loss.`\
 https://nytimes.com/2024/08/19/us/politics/biden-delaware-democrats.html
-
-**Robert A. Hadden**\
-`News about Robert A. Hadden. Commentary and archival information about Robert A. Hadden from The New York Times.`\
-https://nytimes.com/topic/robert-a-hadden
 
