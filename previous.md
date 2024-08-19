@@ -1,3 +1,19 @@
+**Harold Meltzer, Composer of Impossible-to-Pigeonhole Works, Dies at 58**\
+`His music, which was performed by many prominent ensembles, mixed melodic themes and rich textures with the sharp-edged angularity of modernism.`\
+https://nytimes.com/2024/08/19/arts/music/harold-meltzer-dead.html
+
+**Portzline: Trade of Patrik Laine gives Blue Jackets huge cap space, a 'clean slate'**\
+`The Blue Jackets avoided a potential training-camp issue by dealing Laine to Montreal.`\
+https://nytimes.com/athletic/5710653/2024/08/19/laine-trade-canadiens-blue-jackets/
+
+**In Pennsylvania, Donald Trump goes after his old opponent as much as his new one.**\
+`Mr. Trump’s speech on Monday kicked off a week of campaign events in battleground states, as Democrats gathered in Chicago for their national convention.`\
+https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/in-pennsylvania-donald-trump-goes-after-his-old-opponent-as-much-as-his-new-one
+
+**Woman Gets 11 Years in Prison for Fatally Shooting Man She Said Trafficked Her**\
+`The Wisconsin Supreme Court ruled in 2022 that Chrystul Kizer could argue at trial that she had been justified in fatally shooting Randall Volar, through a state law that supports trafficking victims.`\
+https://nytimes.com/2024/08/19/us/chrystul-kizer-sentencing-wisconsin.html
+
 **Batty Outfits, Sappy Romances: How ‘Emily in Paris’ Keeps You Coming Back for More**\
 `A Styles group chat on Season 4 of the Netflix series, with its Eurovision preparations, Claude Monet pond and cardigans included.`\
 https://nytimes.com/2024/08/19/style/emily-in-paris-season-4-netflix.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/08/19/us/politics/biden-delaware-democrats.html
 **Robert A. Hadden**\
 `News about Robert A. Hadden. Commentary and archival information about Robert A. Hadden from The New York Times.`\
 https://nytimes.com/topic/robert-a-hadden
-
-**Matthew Perry’s Death Shines a Harsh Light on Ketamine Treatment**\
-`Was Mr. Perry, whose struggles with substance abuse were widely known, a good candidate for a drug used to relieve depression? Doctors say his case raises thorny questions.`\
-https://nytimes.com/2024/08/19/arts/television/matthew-perry-ketamine-treatment.html
-
-**Bentancur 'conscious and communicating' after head injury**\
-`Ange Postecoglou says Rodrigo Bentancur is &#8220;conscious and communicating&#8221; after suffering a head injury during Tottenham Hotspur&#8217;s 1-1 draw with Leicester City on Monday night.`\
-https://nytimes.com/athletic/5710679/2024/08/19/tottenhams-rodrigo-bentancur-head-injury/
-
-**Why Bears GM Ryan Poles is 'really impressed' with Caleb Williams so far**\
-`Poles hung out with the guys on the "Hoge & Jahns" podcast on Monday, sharing his thoughts on a variety of topics.`\
-https://nytimes.com/athletic/5710688/2024/08/19/bears-ryan-poles-caleb-williams/
-
-**Walz Family Fertility Journey Ran Not Through I.V.F. but Another Common Treatment**\
-`Unlike in vitro fertilization, the procedure used by the Walzes does not involve freezing embryos, so it has not been targeted by anti-abortion leaders.`\
-https://nytimes.com/2024/08/19/us/tim-walz-fertility-pregnancy.html
 
