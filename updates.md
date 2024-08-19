@@ -1,3 +1,11 @@
+**College football Week 0 best bets and projections plus some look-ahead bets**\
+`Austin Mock makes his first bets of the college football season with Week 0 here. He also looks ahead to some big games later in the season.`\
+https://nytimes.com/athletic/5709570/2024/08/19/college-football-week-0-best-bets-projections/
+
+**Germany's Gundogan retires from international football**\
+`Germany captain Ilkay Gundogan has retired from international football.`\
+https://nytimes.com/athletic/5710044/2024/08/19/ilkay-gundogan-retirement/
+
 **Tagovailoa recalls former coach Brian Flores' comments: 'You shouldn't be here'**\
 `Tagovailoa said Flores would tell him comments like, 'You suck at what you did' and 'You shouldn't be here.'`\
 https://nytimes.com/athletic/5709996/2024/08/19/tua-tagovailoa-mike-mcdaniel-brian-flores/

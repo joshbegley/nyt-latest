@@ -1,3 +1,11 @@
+**College football Week 0 best bets and projections plus some look-ahead bets**\
+`Austin Mock makes his first bets of the college football season with Week 0 here. He also looks ahead to some big games later in the season.`\
+https://nytimes.com/athletic/5709570/2024/08/19/college-football-week-0-best-bets-projections/
+
+**Germany's Gundogan retires from international football**\
+`Germany captain Ilkay Gundogan has retired from international football.`\
+https://nytimes.com/athletic/5710044/2024/08/19/ilkay-gundogan-retirement/
+
 **Tagovailoa recalls former coach Brian Flores' comments: 'You shouldn't be here'**\
 `Tagovailoa said Flores would tell him comments like, 'You suck at what you did' and 'You shouldn't be here.'`\
 https://nytimes.com/athletic/5709996/2024/08/19/tua-tagovailoa-mike-mcdaniel-brian-flores/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5709266/2024/08/19/raheem-sterling-fight-or-flight/
 **A New Treatment for Severe Allergic Reactions — Without the Needle**\
 `A nasal spray can tamp down potentially fatal reactions, a boon to the many patients in crisis who fear using EpiPens.`\
 https://nytimes.com/2024/08/19/health/nasal-spray-shock-neffy.html
-
-**Biden Will Pass the Torch to Harris in His Convention Speech**\
-`President Biden and his top aides have spent days reworking his original address, which he expected to give as the Democratic nominee, for a new moment.`\
-https://nytimes.com/2024/08/19/us/politics/biden-democratic-national-convention-speech.html
-
-**Chelsea agree deal to sign Joao Felix**\
-`Chelsea have reached an agreement with Atletico Madrid for the permanent signing of Portugal forward Joao Felix.`\
-https://nytimes.com/athletic/5695590/2024/08/19/joao-felix-chelsea-transfer/
 
