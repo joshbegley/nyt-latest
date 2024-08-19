@@ -1,3 +1,11 @@
+**Tennis Briefing: Will Swiatek comments change schedule? Is Sinner's hip a problem?**\
+`With the U.S. Open round the corner, Cincinnati brought renewed rivalries, calendar contention and some form for Jessica Pegula`\
+https://nytimes.com/athletic/5709224/2024/08/19/tennis-schedule-swiatek-cincinnati-open-finals/
+
+**6 Things to Watch For at the Democratic Convention**\
+`Vice President Kamala Harris has never commanded a spotlight this big. The party faces potential fractures over the war in Gaza. And Hillary Clinton’s speech will be a reminder of what might have been.`\
+https://nytimes.com/2024/08/19/us/politics/dnc-what-to-watch.html
+
 **Ukraine Strikes Bridges in Russia, Aiming to Entrap Troops**\
 `The attacks look to destroy or damage crossings over a river in the Kursk region that are Russian forces’ only routes for resupply or retreat, military analysts say.`\
 https://nytimes.com/2024/08/19/world/europe/ukraine-attacks-russia-bridges-border.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5709651/2024/08/19/manchester-city-ilkay-gundogan-t
 **Real Madrid, Kylian Mbappe and the structural costs of a Galactico attack**\
 `Sunday's opening-day draw at Mallorca revealed problems in Carlo Ancelotti's new tactical plan`\
 https://nytimes.com/athletic/5709206/2024/08/19/real-madrid-kylian-mbappe-rodrygo-vinicius-jr-jude-bellingham/
-
-**Phil Donahue, Talk Host Who Made Audiences Part of the Show, Dies at 88**\
-`Stalking the aisles, microphone in hand, he turned “The Phil Donahue Show” into a participation event, soliciting questions and comments on topics from human rights to orgies.`\
-https://nytimes.com/2024/08/19/arts/television/phil-donahue-dead.html
-
-**Henry leaves role as France Under-21 coach**\
-`Thierry Henry has stepped down from his role as head coach of the France Under-21 side.`\
-https://nytimes.com/athletic/5709583/2024/08/19/thierry-henry-france-leaves/
 
