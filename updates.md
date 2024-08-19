@@ -1,3 +1,7 @@
+**Real Madrid briefing: Mbappe frustrated on La Liga debut as Rodrygo makes his point**\
+`After being held to a 1-1 draw by Mallorca, Real Madrid's frustrations were obvious to see`\
+https://nytimes.com/athletic/5709080/2024/08/19/real-madrid-mbappe-rodrygo-anceoltti-la-liga-mallorca/
+
 **Blinken is in Israel to meet with Netanyahu and to push for a deal to end the fighting in Gaza.**\
 `By Robert Jimison`\
 https://nytimes.com/live/2024/08/19/world/israel-iran-hamas-gaza-war/blinken-is-in-israel-to-push-for-a-gaza-cease-fire-deal

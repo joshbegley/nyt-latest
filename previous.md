@@ -1,4 +1,4 @@
-**Real Madrid briefing: Mbappe's frustrated La Liga debut as Rodrygo makes his point**\
+**Real Madrid briefing: Mbappe frustrated on La Liga debut as Rodrygo makes his point**\
 `After being held to a 1-1 draw by Mallorca, Real Madrid's frustrations were obvious to see`\
 https://nytimes.com/athletic/5709080/2024/08/19/real-madrid-mbappe-rodrygo-anceoltti-la-liga-mallorca/
 
