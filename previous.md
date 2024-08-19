@@ -6,7 +6,7 @@ https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/heres-the-lates
 `Before Vice President Kamala Harris speaks on Thursday, her party will seek to define her and to present a unified front, as polls show her in a newly competitive race against Donald Trump.`\
 https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election
 
-**1 Dead and 6 Missing After Yacht Sinks off Sicily**\
+**1 Dead and 6 Missing After Yacht Sinks Off Sicily**\
 `Fifteen people have been rescued after the ship went down in a storm, and expert divers were called in given the depth of the operation.`\
 https://nytimes.com/2024/08/19/world/europe/italy-sicily-yacht-sinks.html
 

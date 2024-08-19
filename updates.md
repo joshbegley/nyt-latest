@@ -1,3 +1,7 @@
+**1 Dead and 6 Missing After Yacht Sinks Off Sicily**\
+`Fifteen people have been rescued after the ship went down in a storm, and expert divers were called in given the depth of the operation.`\
+https://nytimes.com/2024/08/19/world/europe/italy-sicily-yacht-sinks.html
+
 **Here’s the latest on the presidential race.**\
 `By Adam Nagourney and Maggie Astor`\
 https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/heres-the-latest-on-the-presidential-race
