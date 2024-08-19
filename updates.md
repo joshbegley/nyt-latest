@@ -1,3 +1,7 @@
+**Gundogan exploring options, Premier League clubs interested in Barcelona midfielder**\
+`Ilkay Gundogan is exploring his options amid the possibility of leaving Barcelona.`\
+https://nytimes.com/athletic/5709424/2024/08/19/ilkay-gundogan-transfer-barcelona/
+
 **Fantasy Premier League: What we learned from Gameweek 1**\
 `The first gameweek of the Premier League is nearly over - here's what we have learned from a Fantasy Premier League perspective`\
 https://nytimes.com/athletic/5708479/2024/08/19/fpl-gameweek1-takeaways-fernandes-jota/
