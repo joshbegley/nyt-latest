@@ -1,3 +1,7 @@
+**Kamala Harris’s Muscular Patriotism**\
+`In recent weeks, the vice president’s message has revolved around progressive patriotism.`\
+https://nytimes.com/2024/08/19/briefing/kamala-harris-tim-walz-patriotism.html
+
 **Astros takeaways: Yusei Kikuchi aces first test, a minor leaguer's view of Verlander, more**\
 `Yusei Kikuchi's first impressions of his new team are positive, and Bryan Abreu's workload is a concern with Ryan Pressly on the IL.`\
 https://nytimes.com/athletic/5708586/2024/08/19/astros-justin-verlander-yusei-kikuchi/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/19/podcasts/the-daily/kamala-harris-dnc.html
 **The Connections Companion No. 436**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Aug. 20, 2024.`\
 https://nytimes.com/2024/08/19/crosswords/connections-companion-436.html
-
-**Gaza at the Democratic Convention, and the Effort to Impeach Joe Biden**\
-`Plus, a hospital system gets into show business.`\
-https://nytimes.com/2024/08/19/podcasts/dnc-gaza-biden-impeached.html
 

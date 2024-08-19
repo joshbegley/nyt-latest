@@ -1,3 +1,7 @@
+**Astros takeaways: Yusei Kikuchi aces first test, a minor leaguer's view of Verlander, more**\
+`Yusei Kikuchi's first impressions of his new team are positive, and Bryan Abreu's workload is a concern with Ryan Pressly on the IL.`\
+https://nytimes.com/athletic/5708586/2024/08/19/astros-justin-verlander-yusei-kikuchi/
+
 **Forest considering fresh bid for Feyenoord striker Gimenez**\
 `Nottingham Forest are considering whether to make a fresh bid for Feyenoord striker Santiago Gimenez.`\
 https://nytimes.com/athletic/5709246/2024/08/19/santiago-gimenez-nottingham-forest-transfer/
