@@ -1,3 +1,7 @@
+**Kiyo A Matsumoto**\
+`News about Kiyo A Matsumoto. Commentary and archival information about Kiyo A Matsumoto from The New York Times.`\
+https://nytimes.com/topic/kiyo-a-matsumoto
+
 **Jason Isbell Offers Democrats a Way to Connect With a New Audience**\
 `The Southern white, working man’s musician performs at the Democratic convention and lets loose on the state of politics in an interview.`\
 https://nytimes.com/2024/08/19/us/politics/jason-isbell-dnc.html
