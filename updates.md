@@ -1,3 +1,11 @@
+**Henry A Waxman**\
+`News about Henry A Waxman. Commentary and archival information about Henry A Waxman from The New York Times.`\
+https://nytimes.com/topic/henry-a-waxman
+
+**Iran Is to Blame for Hacking Into Trump’s Campaign, Intelligence Officials Say**\
+`American intelligence agencies also confirmed that the effort extended to the Biden-Harris campaign, though that bid was unsuccessful.`\
+https://nytimes.com/2024/08/19/us/politics/iran-trump-campaign-hacking.html
+
 **Former Investigator Assails World Anti-Doping Agency**\
 `The agency, which has faced intense criticism for its handling of positive tests among Chinese swimmers, should be replaced by a “truly independent” organization, its former chief investigative officer said.`\
 https://nytimes.com/2024/08/19/us/politics/world-anti-doping-agency.html

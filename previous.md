@@ -1,3 +1,11 @@
+**Henry A Waxman**\
+`News about Henry A Waxman. Commentary and archival information about Henry A Waxman from The New York Times.`\
+https://nytimes.com/topic/henry-a-waxman
+
+**Iran Is to Blame for Hacking Into Trump’s Campaign, Intelligence Officials Say**\
+`American intelligence agencies also confirmed that the effort extended to the Biden-Harris campaign, though that bid was unsuccessful.`\
+https://nytimes.com/2024/08/19/us/politics/iran-trump-campaign-hacking.html
+
 **Former Investigator Assails World Anti-Doping Agency**\
 `The agency, which has faced intense criticism for its handling of positive tests among Chinese swimmers, should be replaced by a “truly independent” organization, its former chief investigative officer said.`\
 https://nytimes.com/2024/08/19/us/politics/world-anti-doping-agency.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/19/style/emily-in-paris-season-4-netflix.html
 **Yusef Salaam, of ‘Central Park 5,’ to Speak at Democratic Convention**\
 `Mr. Salaam will be joined onstage in Chicago by three other men he was wrongly convicted with and will speak about the dangers of re-electing Donald Trump.`\
 https://nytimes.com/2024/08/19/nyregion/yusef-salaam-dnc-central-park-five.html
-
-**Kiyo A Matsumoto**\
-`News about Kiyo A Matsumoto. Commentary and archival information about Kiyo A Matsumoto from The New York Times.`\
-https://nytimes.com/topic/kiyo-a-matsumoto
-
-**Jason Isbell Offers Democrats a Way to Connect With a New Audience**\
-`The Southern white, working man’s musician performs at the Democratic convention and lets loose on the state of politics in an interview.`\
-https://nytimes.com/2024/08/19/us/politics/jason-isbell-dnc.html
 
