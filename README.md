@@ -1,3 +1,7 @@
+**New York City Moves to Shut Down a Growing Migrant Encampment**\
+`Dozens of migrants have been sleeping outdoors near a large shelter complex on Randall’s Island. On Monday, the city forced them to pack up their tents and move.`\
+https://nytimes.com/2024/08/19/nyregion/homeless-migrants-encampment-randalls-island-sweep.html
+
 **U.S. Soldier’s Remains Identified More Than 80 Years After Bataan Death March**\
 `Pvt. William E. Calkins of Oregon survived the march but died at age 20 in a prison camp during World War II. His remains are set to be buried next month.`\
 https://nytimes.com/2024/08/19/us/bataan-death-march-pow.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/19/us/politics/hillary-clinton-kamala-harris.html
 **Karl A. Racine**\
 `News about Karl A. Racine. Commentary and archival information about Karl A. Racine from The New York Times.`\
 https://nytimes.com/topic/karl-a-racine
-
-**Gundogan's City return is a no-brainer**\
-`The former City captain's return from Barcelona after just one season away feels so obvious. It has to happen… surely?`\
-https://nytimes.com/athletic/5709849/2024/08/19/ilkay-gundogans-manchester-city-return-is-a-no-brainer/
 
