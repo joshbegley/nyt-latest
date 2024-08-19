@@ -1,3 +1,5 @@
+**Spots for a Late Summer Trip: Not Too Hot, Not Too Crowded**\
+
 **What to expect from The Athletic's new sports collectibles coverage**\
 `Welcome to The Athletic's sports collectibles coverage: Bringing new insight, guidance and analysis to the hobby`\
 https://nytimes.com/athletic/5705108/2024/08/19/sports-collectibles-coverage-welcome/
