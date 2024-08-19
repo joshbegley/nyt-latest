@@ -1,3 +1,11 @@
+**Yankees' Jazz Chisholm Jr. pays it forward with new 'little brother' at Little League Classic**\
+`Chisholm said that as a boy three major leaguers treated him like a little brother and he wanted to do the same for the next generation.`\
+https://nytimes.com/athletic/5708928/2024/08/19/yankees-jazz-chisholm-little-league-classic/
+
+**Mazraoui, Dalot... Martinez? Analysing Manchester United's left-back options**\
+`Erik ten Hag has a problem at left-back but he is not short of choices`\
+https://nytimes.com/athletic/5695548/2024/08/19/manchester-united-left-back-options/
+
 **John Aprea, Actor in ‘Godfather 2’ and ‘Full House,’ Dies at 83**\
 `Mr. Aprea played Salvatore “Sal” Tessio in “The Godfather, Part II” in 1974, and the father of a popular character on “Full House,” a sitcom.`\
 https://nytimes.com/2024/08/19/arts/john-aprea-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5706580/2024/08/19/brighton-attack-rutter-gruda-fer
 **Newcastle must act wisely before the window shuts - their season could depend on it**\
 `Eddie Howe's team needs to be strengthened if they are to keep competing at the top, so expect a busy final fortnight of player recruitment`\
 https://nytimes.com/athletic/5704716/2024/08/19/newcastle-transfer-window-must-act/
-
-**The Briefing: Sterling sums up Chelsea chaos, City grind on and Mosquera weirdness**\
-`The big talking points from the Premier League weekend - including an explosive statement, an ominous win and a digital examination`\
-https://nytimes.com/athletic/5708438/2024/08/19/chelsea-raheem-sterling-chaos/
-
-**Sterling and Chelsea: Broken trust, briefing wars and a bleak future**\
-`A day of explosive statements, awkward interviews and unanswered questions has left marquee signing in limbo`\
-https://nytimes.com/athletic/5708608/2024/08/19/chelsea-raheem-sterling-future/
 
