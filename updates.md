@@ -1,3 +1,15 @@
+**As new rule yields more returns, NFL doesn't rule out more tweaks**\
+`The NFL made dramatic changes to its kickoff rules in March with the intention of boosting the number of kickoff returns while also mitigating the risk for a high rate of significant injuries.`\
+https://nytimes.com/athletic/5710186/2024/08/19/new-rule-yields-more-returns-nfl-doesnt-rule-out-tweaks/
+
+**Fulham close to signing Berge from Burnley**\
+`Fulham are close to completing the signing of Burnley midfielder Sander Berge.`\
+https://nytimes.com/athletic/5710241/2024/08/19/fulham-sander-berge-burnley/
+
+**Jayden Daniels named Commanders starting quarterback**\
+`Daniels beat out fellow rookie Sam Hartman and veteran Marcus Mariota for the job.`\
+https://nytimes.com/athletic/5710236/2024/08/19/jayden-daniels-commanders-starting-quarterback/
+
 **Ducks fan survey: How is Verbeek doing? Will Gauthier win the Calder?**\
 `Will the Ducks make significant progress in the 2024-25 season?`\
 https://nytimes.com/athletic/5710141/2024/08/19/ducks-fan-survey-verbeek-gauthier/
