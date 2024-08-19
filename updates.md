@@ -1,3 +1,7 @@
+**Blinken Says Talks Are ‘Maybe the Last’ Chance for Gaza Cease-Fire**\
+`Secretary of State Antony Blinken, who was meeting with Prime Minister Benjamin Netanyahu on Monday, said recent negotiations had created room for a cease-fire and hostage release.`\
+https://nytimes.com/live/2024/08/19/world/israel-iran-hamas-gaza-war
+
 **Real Madrid briefing: Mbappe frustrated on La Liga debut as Rodrygo makes his point**\
 `After being held to a 1-1 draw by Mallorca, Real Madrid's frustrations were obvious to see`\
 https://nytimes.com/athletic/5709080/2024/08/19/real-madrid-mbappe-rodrygo-anceoltti-la-liga-mallorca/

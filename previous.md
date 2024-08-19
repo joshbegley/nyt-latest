@@ -22,8 +22,8 @@ https://nytimes.com/2024/08/19/crosswords/spelling-bee-forum.html
 `A flash flood emergency was declared for parts of Long Island early Monday, after torrential rain led to mudslides and washed-out roads in Connecticut.`\
 https://nytimes.com/2024/08/19/nyregion/long-island-flooding-rainfall-new-york.html
 
-**Blinken Says It’s a ‘Decisive Moment’ for a Gaza Cease-Fire Deal**\
-`Secretary of State Antony Blinken, who will meet with Prime Minister Benjamin Netanyahu on Monday, said recent negotiations had created room for a cease-fire and hostage release.`\
+**Blinken Says Talks Are ‘Maybe the Last’ Chance for Gaza Cease-Fire**\
+`Secretary of State Antony Blinken, who was meeting with Prime Minister Benjamin Netanyahu on Monday, said recent negotiations had created room for a cease-fire and hostage release.`\
 https://nytimes.com/live/2024/08/19/world/israel-iran-hamas-gaza-war
 
 **Blinken is in Israel to meet with Netanyahu and to push for a deal to end the fighting in Gaza.**\
