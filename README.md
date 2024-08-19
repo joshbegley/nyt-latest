@@ -1,3 +1,7 @@
+**The Democratic Convention Kicks Off**\
+`Plus, a push for a Gaza cease-fire. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/08/19/briefing/the-democratic-convention-kicks-off.html
+
 **JD Vance attacks Harris and Walz for avoiding questions and then delivers his own evasive answers.**\
 `At a campaign event in Philadelphia, Mr. Vance criticized his rivals for avoiding the news media and then deflected questions himself.`\
 https://nytimes.com/2024/08/19/us/politics/jd-vance-speech-attacks-harris-walz.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5708201/2024/08/19/leicester-tottenham-anlaysis-pre
 **Most Columbia Students Arrested During Protests Will Return to Campus**\
 `Some students who were arrested after setting up tents on campus or occupying a university building last spring are still on probation. Others could face consequences later this year.`\
 https://nytimes.com/2024/08/19/nyregion/columbia-student-arrests-discipline.html
-
-**Chargers QB Justin Herbert returns to practice**\
-`Los Angeles Chargers quarterback Justin Herbert returned to practice for the first time since sustaining an injury to the plantar fascia in his right foot earlier in training camp.`\
-https://nytimes.com/athletic/5710603/2024/08/19/chargers-justin-herbert-practice-foot-injury/
 
