@@ -1,3 +1,11 @@
+**Some Republicans Will Take Center Stage at the Democratic Convention**\
+`At least three Republicans will have prominent speaking roles this week, as the Harris campaign taps into opposition to Donald J. Trump from within his own party.`\
+https://nytimes.com/2024/08/19/us/politics/dnc-republicans.html
+
+**As new rule yields more returns, NFL doesn't rule out more tweaks**\
+`The NFL made dramatic changes to its kickoff rules in March with the intention of boosting the number of kickoff returns while also mitigating the risk of a high rate of significant injuries.`\
+https://nytimes.com/athletic/5710186/2024/08/19/new-rule-yields-more-returns-nfl-doesnt-rule-out-tweaks/
+
 **James A Martin**\
 `News about James A Martin. Commentary and archival information about James A Martin from The New York Times.`\
 https://nytimes.com/topic/james-a-martin
