@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`By Adam Nagourney and Maggie Astor`\
+https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Live Election Updates: Democrats Begin Convention Week, a Test for the Party**\
+`Before Vice President Kamala Harris speaks on Thursday, her party will seek to define her and to present a unified front, as polls show her in a newly competitive race against Donald Trump.`\
+https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election
+
 **1 Dead and 6 Missing After Yacht Sinks off Sicily**\
 `Fifteen people have been rescued after the ship went down in a storm, and expert divers were called in given the depth of the operation.`\
 https://nytimes.com/2024/08/19/world/europe/italy-sicily-yacht-sinks.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/08/13/opinion/thepoint/democratic-convention-intri
 **The Harris campaign starts a WhatsApp channel to target Latino voters.**\
 `By Jazmine Ulloa`\
 https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/the-harris-campaign-starts-a-whatsapp-channel-to-target-latino-voters
-
-**3 Women With Harrowing Pregnancy Stories Will Speak at Convention**\
-`The three women, who have been supporting the Democrats’ presidential campaign, will on Monday focus on abortion rights, a key pillar of the party’s policy goals.`\
-https://nytimes.com/2024/08/19/us/politics/harris-dnc-abortion-rights.html
-
-**A $6 Billion Breakthrough or a Drop in the Bucket?**\
-`The government is finally negotiating drug prices.`\
-https://nytimes.com/2024/08/19/opinion/drug-prices-medicare.html
 
