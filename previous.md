@@ -1,3 +1,7 @@
+**5 Tips for Making a School Lunch Your Kid Will Actually Eat**\
+`With just a few tweaks and a smidgen of planning, you can pack lunches that come home eaten.`\
+https://nytimes.com/article/school-lunch-ideas.html
+
 **The Midwest Takes Center Stage at the Democratic Convention**\
 `The Midwest is having a moment in American politics. Reid J. Epstein, a New York Times reporter covering politics who grew up in Illinois, discusses what that means as the Democrats begin their convention in Chicago.`\
 https://nytimes.com/video/us/elections/100000009633728/the-midwest-takes-center-stage-at-the-democratic-convention.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/19/nyregion/homeless-migrants-encampment-randalls-is
 **U.S. Soldier’s Remains Identified More Than 80 Years After Bataan Death March**\
 `Pvt. William E. Calkins of Oregon survived the march but died at age 20 in a prison camp during World War II. His remains are set to be buried next month.`\
 https://nytimes.com/2024/08/19/us/bataan-death-march-pow.html
-
-**Sammie Szmodics to Ipswich: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500 series, we look at Sammie Szmodics's move to Ipswich`\
-https://nytimes.com/athletic/5709220/2024/08/19/sammie-szmodics-to-ipswich-the-athletic-500-transfer-ratings/
 

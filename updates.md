@@ -1,3 +1,7 @@
+**5 Tips for Making a School Lunch Your Kid Will Actually Eat**\
+`With just a few tweaks and a smidgen of planning, you can pack lunches that come home eaten.`\
+https://nytimes.com/article/school-lunch-ideas.html
+
 **The Midwest Takes Center Stage at the Democratic Convention**\
 `The Midwest is having a moment in American politics. Reid J. Epstein, a New York Times reporter covering politics who grew up in Illinois, discusses what that means as the Democrats begin their convention in Chicago.`\
 https://nytimes.com/video/us/elections/100000009633728/the-midwest-takes-center-stage-at-the-democratic-convention.html
