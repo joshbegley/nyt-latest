@@ -1,3 +1,7 @@
+**Former Investigator Assails World Anti-Doping Agency**\
+`The agency, which has faced intense criticism for its handling of positive tests among Chinese swimmers, should be replaced by a “truly independent” organization, its former chief investigative officer said.`\
+https://nytimes.com/2024/08/19/us/politics/world-anti-doping-agency.html
+
 **Dmitri A. Muratov**\
 `News about Dmitri A. Muratov. Commentary and archival information about Dmitri A. Muratov from The New York Times.`\
 https://nytimes.com/topic/dmitri-a-muratov
@@ -33,8 +37,4 @@ https://nytimes.com/topic/kiyo-a-matsumoto
 **Jason Isbell Offers Democrats a Way to Connect With a New Audience**\
 `The Southern white, working man’s musician performs at the Democratic convention and lets loose on the state of politics in an interview.`\
 https://nytimes.com/2024/08/19/us/politics/jason-isbell-dnc.html
-
-**Delaware Democrats to Their Joyous Party: ‘Et tu, Brute?’**\
-`Convention attendees from President Biden’s home state were careful to emphasize their support for Kamala Harris. But some still expressed a sense of loss.`\
-https://nytimes.com/2024/08/19/us/politics/biden-delaware-democrats.html
 
