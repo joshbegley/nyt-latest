@@ -1,3 +1,15 @@
+**What Are Protesters’ Rights During the D.N.C.?**\
+`The boundaries of First Amendment rights and the government’s duty to maintain public order threaten to collide this week.`\
+https://nytimes.com/2024/08/19/us/politics/what-are-protesters-rights-during-the-dnc.html
+
+**Rutter completes Brighton move from Leeds**\
+`Brighton &amp; Hove Albion have completed the signing of Georginio Rutter from Leeds United.`\
+https://nytimes.com/athletic/5702330/2024/08/19/georginio-rutter-brighton-transfer/
+
+**Georginio Rutter to Brighton: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we look at Georginio Rutter's move to Brighton.`\
+https://nytimes.com/athletic/5702230/2024/08/19/georginio-rutter-to-brighton-the-athletic-500-transfer-ratings/
+
 **On the Democratic convention’s first day, Tim Walz is busy and buzzy.**\
 `By Jazmine Ulloa and Kellen Browning`\
 https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/tim-walz-convention
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/19/world/middleeast/tel-aviv-bomb-hamas.html
 **Gallagher's Atletico move expected to proceed after Joao Felix agreement**\
 `Conor Gallagher&#8217;s move to Atletico Madrid is expected to proceed after Chelsea agreed a deal to sign Joao Felix from the Spanish club.`\
 https://nytimes.com/athletic/5671315/2024/08/19/conor-gallagher-transfer-atletico-chelsea/
-
-**Braves 3B Austin Riley out 6-8 weeks with fractured hand**\
-`Angels starter Jack Kochanowicz hit Riley in the right hand with a 97-mph fastball.`\
-https://nytimes.com/athletic/5710364/2024/08/19/austin-riley-braves-fractured-hand-injury/
-
-**Some Republicans Will Take Center Stage at the Democratic Convention**\
-`At least three Republicans will have prominent speaking roles this week, as the Harris campaign taps into opposition to Donald J. Trump from within his own party.`\
-https://nytimes.com/2024/08/19/us/politics/dnc-republicans.html
-
-**James A Martin**\
-`News about James A Martin. Commentary and archival information about James A Martin from The New York Times.`\
-https://nytimes.com/topic/james-a-martin
 

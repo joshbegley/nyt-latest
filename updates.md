@@ -1,3 +1,15 @@
+**What Are Protesters’ Rights During the D.N.C.?**\
+`The boundaries of First Amendment rights and the government’s duty to maintain public order threaten to collide this week.`\
+https://nytimes.com/2024/08/19/us/politics/what-are-protesters-rights-during-the-dnc.html
+
+**Rutter completes Brighton move from Leeds**\
+`Brighton &amp; Hove Albion have completed the signing of Georginio Rutter from Leeds United.`\
+https://nytimes.com/athletic/5702330/2024/08/19/georginio-rutter-brighton-transfer/
+
+**Georginio Rutter to Brighton: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we look at Georginio Rutter's move to Brighton.`\
+https://nytimes.com/athletic/5702230/2024/08/19/georginio-rutter-to-brighton-the-athletic-500-transfer-ratings/
+
 **On the Democratic convention’s first day, Tim Walz is busy and buzzy.**\
 `By Jazmine Ulloa and Kellen Browning`\
 https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/tim-walz-convention
