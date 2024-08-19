@@ -1,3 +1,11 @@
+**NFL injury mailbag: The concern level for Jahmyr Gibbs, the Rams' passing attack and more**\
+`Greg Scholz of Inside Injuries answers your health-related NFL questions, including the prognosis of Jahmyr Gibbs' hamstring issue.`\
+https://nytimes.com/athletic/5709761/2024/08/19/nfl-injury-mailbag-jahmyr-gibbs-fantasy-football-2024/
+
+**Ruth Johnson Colvin, Founder of Literacy Volunteers, Dies at 107**\
+`Working out of her basement, and with no teaching experience, she created a nonprofit that helped people around the world learn to read.`\
+https://nytimes.com/2024/08/19/us/ruth-johnson-colvin-dead.html
+
 **Warning Signs Flash in a Labor Survey as Fed Officials Watch for Weakness**\
 `The New York Fed’s labor market survey showed cracks just as Jerome H. Powell, the Fed chair, prepares for a closely watched Friday speech.`\
 https://nytimes.com/2024/08/19/business/economy/fed-labor-jobs.html
