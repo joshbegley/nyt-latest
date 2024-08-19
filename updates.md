@@ -1,3 +1,7 @@
+**The Athletic 134: Ranking every team from No. 1 Ohio State to No. 134 Kennesaw State**\
+`Ohio State stands atop the rankings of all 134 FBS college football teams entering 2024. Where does everyone else rank?`\
+https://nytimes.com/athletic/5706595/2024/08/19/college-football-2024-preseason-rankings/
+
 **Blinken Says Talks Are ‘Maybe the Last’ Chance for Gaza Cease-Fire**\
 `Secretary of State Antony Blinken, who was meeting with Prime Minister Benjamin Netanyahu on Monday, said recent negotiations had created room for a cease-fire and hostage release.`\
 https://nytimes.com/live/2024/08/19/world/israel-iran-hamas-gaza-war
