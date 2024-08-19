@@ -1,3 +1,23 @@
+**Twins mailbag: Rocco Baldelli's résumé, 2025 pitching plans, farm system rankings**\
+`Plus revisiting the Twins' preseason over/under and discussing Carlos Santana's turnaround, Byron Buxton's value and the next Shohei Ohtani.`\
+https://nytimes.com/athletic/5706301/2024/08/19/twins-rocco-baldelli-minnesota-farm-system/
+
+**Ranking Blackhawks' best young players: Who's No. 2 after Bedard?**\
+`In his first three years, GM Kyle Davidson has deepened the Blackhawks prospect pool with 21 picks in the first three rounds of the draft.`\
+https://nytimes.com/athletic/5699899/2024/08/19/blackhawks-pipeline-rankings/
+
+**Dodgers takeaways: On Shohei Ohtani's August, Freddie Freeman's injury and more**\
+`Ohtani's strikeouts are up and his walks are down as the Triple Crown contender struggles with his swing mechanics.`\
+https://nytimes.com/athletic/5708593/2024/08/19/dodgers-clayton-kershaw-shohei-ohtani/
+
+**Antonio Conte questions players' mentality as Napoli 'melt like snow in the sunshine'**\
+`The manager had never lost on the opening day of the season, with Conte apologising 'to the people of Naples' after the thrashing at Verona`\
+https://nytimes.com/athletic/5708302/2024/08/19/conte-napoli-verona/
+
+**The Pulse: Caitlin Clark or Angel Reese?**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5705641/2024/08/19/caitlin-clark-angel-reese-rookie-wnba-the-pulse/
+
 **Kamala Harris’s Muscular Patriotism**\
 `In recent weeks, the vice president’s message has revolved around progressive patriotism.`\
 https://nytimes.com/2024/08/19/briefing/kamala-harris-tim-walz-patriotism.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5708414/2024/08/19/stephon-gilmore-signing-vikings-
 **2025 NFL Draft summer scouting: Can anyone challenge Malaki Starks for top safety spot?**\
 `In our final 2025 draft preseason positional preview, we take a look at the safeties. Is there a top-15 talent in the mix?`\
 https://nytimes.com/athletic/5708144/2024/08/19/nfl-draft-2025-scouting-safeties-malaki-starks/
-
-**Packers roster projection: Does Green Bay need a new backup QB?**\
-`Neither of Jordan Love's backups was inspiring in Sunday's 27-2 loss to the Broncos.`\
-https://nytimes.com/athletic/5708818/2024/08/19/packers-roster-projection-preseason-broncos/
-
-**This Week in Mets: Who needs to step up to carry the Mets to the playoffs?**\
-`In a tight race, manager Carlos Mendoza has a chance to stand out more as a game strategist.`\
-https://nytimes.com/athletic/5708887/2024/08/19/mets-carlos-mendoza-pete-alonso/
-
-**Watching film with Bears coach Matt Eberflus: Inside the mind of a teacher**\
-`Eberflus is a defensive teacher at heart, and he shows it through a film breakdown of four of the Bears' top plays from 2023.`\
-https://nytimes.com/athletic/5705177/2024/08/19/bears-matt-eberflus-watching-film-nfl/
-
-**The Story of Kamala Harris**\
-`A look back at the vice president’s career and the moments that shaped her politics.`\
-https://nytimes.com/2024/08/19/podcasts/the-daily/kamala-harris-dnc.html
-
-**The Connections Companion No. 436**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Aug. 20, 2024.`\
-https://nytimes.com/2024/08/19/crosswords/connections-companion-436.html
 
