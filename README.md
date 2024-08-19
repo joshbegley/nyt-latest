@@ -10,8 +10,4 @@ https://nytimes.com/athletic/5708999/2024/08/19/49ers-malik-mustapha-renardo-gre
 `See the likely path and wind arrival times for Gilma.`\
 https://nytimes.com/interactive/2024/08/19/weather/gilma-map-path-tracker.html
 
-**How to smash a tennis racket: Style, control, damage, aggression - and danger**\
-`The racket smash is a staple of tennis, but at Wimbledon, players can't hit the grass. What creativity emerges from destruction?`\
-https://nytimes.com/athletic/5613787/2024/08/19/tennis-racket-smash-penalty-danger/
-
 **Spots for a Late Summer Trip: Not Too Hot, Not Too Crowded**\
