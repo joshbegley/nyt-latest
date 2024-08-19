@@ -1,3 +1,11 @@
+**Kamalanomics, Revealed: A Solid Center-Left Agenda**\
+`And no, she hasn’t called for price controls.`\
+https://nytimes.com/2024/08/19/opinion/kamala-harris-economic-agenda.html
+
+**Harris’s Economic Plan Isn’t Perfect, but It’s Better Than Trump’s**\
+`She’s right to focus on the high cost of living, even if the details could use some tweaks.`\
+https://nytimes.com/2024/08/19/opinion/kamala-harris-economics-trump.html
+
 **Robert F. Kennedy Jr. Could Be Blocked From New York’s Ballot, Again**\
 `Last week, he was booted for using a fake address. This week, a suit claims that people gathering signatures for the candidate deceived voters.`\
 https://nytimes.com/2024/08/19/nyregion/rfk-jr-new-york-ballot.html
