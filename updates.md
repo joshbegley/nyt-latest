@@ -1,3 +1,15 @@
+**Four Writers on Kamala Harris, Hillary Clinton and How to Win the White House**\
+`Two women seeking the White House, two historic elections: what will it take to beat Donald Trump this time?`\
+https://nytimes.com/2024/08/19/opinion/kamala-harris-hillary-clinton-convention.html
+
+**The Briefing: Leicester 1 Tottenham 1 - How did Spurs lose control?**\
+`All the big talking points dissected as Spurs are held by newly-promoted Leicester`\
+https://nytimes.com/athletic/5708201/2024/08/19/leicester-tottenham-anlaysis-premier-league/
+
+**Most Columbia Students Arrested During Protests Will Return to Campus**\
+`Some students who were arrested after setting up tents on campus or occupying a university building last spring are still on probation. Others could face consequences later this year.`\
+https://nytimes.com/2024/08/19/nyregion/columbia-student-arrests-discipline.html
+
 **Chargers QB Justin Herbert returns to practice**\
 `Los Angeles Chargers quarterback Justin Herbert returned to practice for the first time since sustaining an injury to the plantar fascia in his right foot earlier in training camp.`\
 https://nytimes.com/athletic/5710603/2024/08/19/chargers-justin-herbert-practice-foot-injury/

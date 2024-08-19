@@ -1,3 +1,15 @@
+**Four Writers on Kamala Harris, Hillary Clinton and How to Win the White House**\
+`Two women seeking the White House, two historic elections: what will it take to beat Donald Trump this time?`\
+https://nytimes.com/2024/08/19/opinion/kamala-harris-hillary-clinton-convention.html
+
+**The Briefing: Leicester 1 Tottenham 1 - How did Spurs lose control?**\
+`All the big talking points dissected as Spurs are held by newly-promoted Leicester`\
+https://nytimes.com/athletic/5708201/2024/08/19/leicester-tottenham-anlaysis-premier-league/
+
+**Most Columbia Students Arrested During Protests Will Return to Campus**\
+`Some students who were arrested after setting up tents on campus or occupying a university building last spring are still on probation. Others could face consequences later this year.`\
+https://nytimes.com/2024/08/19/nyregion/columbia-student-arrests-discipline.html
+
 **Chargers QB Justin Herbert returns to practice**\
 `Los Angeles Chargers quarterback Justin Herbert returned to practice for the first time since sustaining an injury to the plantar fascia in his right foot earlier in training camp.`\
 https://nytimes.com/athletic/5710603/2024/08/19/chargers-justin-herbert-practice-foot-injury/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/tim-walz-conven
 **Blue Jackets trade Patrik Laine, 2026 pick to Canadiens**\
 `"Patrik made it clear that he thought a change of scenery was best for him," Blue Jackets GM Don Waddell said.`\
 https://nytimes.com/athletic/5710538/2024/08/19/patrik-laine-blue-jackets-canadiens-trade/
-
-**Alain Delon, Godfather of the Belted Trench**\
-`As a titan of French cinema, he dressed the part, even when playing a killer.`\
-https://nytimes.com/2024/08/19/style/alain-delon-fashion-film-france.html
-
-**Blackhawks' new NHL Winter Classic jersey leaks**\
-`With four NHL Winter Classics, two Stadium Series games and two Reverse Retro jerseys in the last 15 years, the Chicago Blackhawks are no strangers to new twists on their historic look.`\
-https://nytimes.com/athletic/5710518/2024/08/19/blackhawks-nhl-winter-classic-jersey-wrigley-field/
-
-**Here’s the Speaker Lineup for the Opening Night of the Democratic Convention**\
-`Monday’s headliners include President Biden and the first lady, Jill Biden, along with Hillary Clinton, who was defeated by Donald J. Trump in the 2016 election.`\
-https://nytimes.com/2024/08/19/us/politics/democratic-convention-speakers.html
 
