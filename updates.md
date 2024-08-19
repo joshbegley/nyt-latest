@@ -1,3 +1,11 @@
+**Sammie Szmodics to Ipswich: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we look at Sammie Szmodics's move to Ipswich`\
+https://nytimes.com/athletic/5709220/2024/08/19/sammie-szmodics-to-ipswich-the-athletic-500-transfer-ratings/
+
+**Israeli Strike on Central Gaza Kills Mother and Her Six Children, Including Quadruplets**\
+`Hala Khattab, a 36-year-old teacher, died with her 15-year-old son, four 9-year-olds -two boys and two girls- and a baby girl. Their deaths came as Secretary of State Antony J. Blinken arrived in Israel in another effort to broker a cease-fire.`\
+https://nytimes.com/video/world/middleeast/100000009636692/israeli-strike-dead-children-quadruple.html
+
 **The Run-Up: A Democratic insider’s guide to this week in Chicago.**\
 `By ‘The Run-Up’ Team`\
 https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/the-run-up-a-democratic-insiders-guide-to-this-week-in-chicago
