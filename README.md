@@ -1,3 +1,19 @@
+**Why Angels starter Griffin Canning has struggled in 2024 and what it means for his future**\
+`The Angels have long seen potential in Canning, but the former second-round pick has struggled. Will they keep him around?`\
+https://nytimes.com/athletic/5708604/2024/08/19/angels-griffin-canning-struggles-future/
+
+**How Guardiola's surprise use of De Bruyne and Bernardo helped unlock Chelsea**\
+`The Manchester City manager effectively played with inverted No 8s at Stamford Bridge, with Rico Lewis' role equally key to the team setup`\
+https://nytimes.com/athletic/5709228/2024/08/19/manchester-city-guardiola-chelsea-silva-bruyne/
+
+**Padres takeaways: Musgrove’s impact, Tatis' absence, benefits of more contact**\
+`Musgrove has looked good in two starts since returning from the IL, but the statuses of players like Tatis and Yu Darvish remain uncertain.`\
+https://nytimes.com/athletic/5706586/2024/08/19/padres-fernando-tatis-jr-joe-musgrove/
+
+**The rookie card boom, and the non-rookie card that started it all**\
+`Rookie cards have become a focal point of the collecting hobby, but over the years they've presented an odd mix of complexity and confusion`\
+https://nytimes.com/athletic/5707184/2024/08/19/rookie-cards-mantle-trout/
+
 **Twins mailbag: Rocco Baldelli's résumé, 2025 pitching plans, farm system rankings**\
 `Plus revisiting the Twins' preseason over/under and discussing Carlos Santana's turnaround, Byron Buxton's value and the next Shohei Ohtani.`\
 https://nytimes.com/athletic/5706301/2024/08/19/twins-rocco-baldelli-minnesota-farm-system/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5705641/2024/08/19/caitlin-clark-angel-reese-rookie
 **Kamala Harris’s Muscular Patriotism**\
 `In recent weeks, the vice president’s message has revolved around progressive patriotism.`\
 https://nytimes.com/2024/08/19/briefing/kamala-harris-tim-walz-patriotism.html
-
-**Astros takeaways: Yusei Kikuchi aces first test, a minor leaguer's view of Verlander, more**\
-`Yusei Kikuchi's first impressions of his new team are positive, and Bryan Abreu's workload is a concern with Ryan Pressly on the IL.`\
-https://nytimes.com/athletic/5708586/2024/08/19/astros-justin-verlander-yusei-kikuchi/
-
-**Forest considering fresh bid for Feyenoord striker Gimenez**\
-`Nottingham Forest are considering whether to make a fresh bid for Feyenoord striker Santiago Gimenez.`\
-https://nytimes.com/athletic/5709246/2024/08/19/santiago-gimenez-nottingham-forest-transfer/
-
-**Stephon Gilmore's signing adds intrigue to Brian Flores' ascending Vikings defense**\
-`The 33-year-old corner, the 2019 NFL Defensive Player of the Year, will bring experience, swagger and versatility to the Vikings defense.`\
-https://nytimes.com/athletic/5708414/2024/08/19/stephon-gilmore-signing-vikings-defense/
-
-**2025 NFL Draft summer scouting: Can anyone challenge Malaki Starks for top safety spot?**\
-`In our final 2025 draft preseason positional preview, we take a look at the safeties. Is there a top-15 talent in the mix?`\
-https://nytimes.com/athletic/5708144/2024/08/19/nfl-draft-2025-scouting-safeties-malaki-starks/
 
