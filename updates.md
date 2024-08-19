@@ -1,3 +1,7 @@
+**Real Madrid, Kylian Mbappe and the structural costs of a Galactico attack**\
+`Sunday's opening-day draw at Mallorca revealed problems in Carlo Ancelotti's new tactical plan`\
+https://nytimes.com/athletic/5709206/2024/08/19/real-madrid-kylian-mbappe-rodrygo-vinicius-jr-jude-bellingham/
+
 **Phil Donahue, Talk Host Who Made Audiences Part of the Show, Dies at 88**\
 `Stalking the aisles with microphone in hand, he turned “The Phil Donahue Show” into a participation event, soliciting questions and comments on topics ranging from human rights to orgies.`\
 https://nytimes.com/2024/08/19/arts/television/phil-donahue-dead.html
