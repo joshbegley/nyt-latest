@@ -1,3 +1,11 @@
+**How Well Do You Know Rome, and These Books Set in the City?**\
+`Try this short literary geography quiz focused on Italy’s ancient capital.`\
+https://nytimes.com/interactive/2024/08/19/books/review/rome-books-quiz.html
+
+**Trump Promotes A.I. Images to Suggest That Taylor Swift Endorsed Him**\
+`The former president has been preoccupied with the popularity of the pop music megastar, who endorsed Joseph R. Biden Jr. over him during the 2020 election.`\
+https://nytimes.com/2024/08/19/us/politics/trump-taylor-swift-ai-images.html
+
 **Mother and 6 Children Are Killed in Israeli Strike in Gaza, Family Says**\
 `A Palestinian teacher and all her children were killed in a strike in Deir al-Balah that the Israeli military said had targeted “a significant Islamic Jihad terrorist.”`\
 https://nytimes.com/2024/08/19/world/middleeast/woman-six-children-israeli-airstrike-gaza.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/19/us/politics/nevada-jacky-rosen.html
 **Jennifer Egan Looks Back at ‘A Visit From the Goon Squad’**\
 `The fourth in a series of conversations with authors appearing on our “Best Books of the 21st Century” list.`\
 https://nytimes.com/2024/08/19/books/review/podcast-jennifer-egan.html
-
-**Forest working on deal to sign Nketiah**\
-`Nottingham Forest have made Eddie Nketiah their top target to strengthen in attack and are pursuing a move to sign the striker from Arsenal.`\
-https://nytimes.com/athletic/5695935/2024/08/19/eddie-nketiah-nottingham-forest/
-
-**Hillary Clinton and Kamala Harris: Inside Their Quietly Close Bond**\
-`Mrs. Clinton, who lost out on becoming the first female president, has been a behind-the-scenes ally for the woman now vying to do so.`\
-https://nytimes.com/2024/08/19/us/politics/hillary-clinton-kamala-harris.html
 
