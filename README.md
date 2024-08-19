@@ -1,3 +1,27 @@
+**Warning Signs Flash in a Labor Survey as Fed Officials Watch for Weakness**\
+`The New York Fed’s labor market survey showed cracks just as Jerome H. Powell, the Fed chair, prepares for a closely watched Friday speech.`\
+https://nytimes.com/2024/08/19/business/economy/fed-labor-jobs.html
+
+**A Colorful, Crowd-Pleasing Zucchini Dinner**\
+`“This is an out-of-this world excellent dish! I’ve served it twice for company and all agree.”`\
+https://nytimes.com/2024/08/19/dining/zucchini-dinner.html
+
+**A Personalized Brain Pacemaker for Parkinson’s**\
+`In a new frontier for deep brain stimulation, researchers used A.I. to develop individualized algorithms, which helped a skateboarder and other patients with Parkinson’s disease.`\
+https://nytimes.com/2024/08/19/health/parkinsons-brain-pacemaker.html
+
+**This Spider Uses a Light Show to Trick Eager Male Fireflies Into Its Web**\
+`In China, the arachnids seem to somehow manipulate the flashing of a caught male firefly to resemble a female’s come-hither signal.`\
+https://nytimes.com/2024/08/19/science/spider-firefly-flash-web.html
+
+**5 Books to Make Caregiving a Little More Manageable**\
+`Health care professionals and other experts shared recommendations for anyone providing and receiving care.`\
+https://nytimes.com/2024/08/19/well/family/books-caregivers.html
+
+**Prosecutors Leave Decision on Delaying Trump’s Sentencing Up to Judge**\
+`Lawyers for Donald J. Trump had asked to move the sentencing in his Manhattan criminal case to after the election. In a letter, prosecutors disputed many of their arguments.`\
+https://nytimes.com/2024/08/19/nyregion/trump-sentencing-delay.html
+
 **Tennis Briefing: Will Swiatek comments change schedule? Is Sinner's hip a problem?**\
 `With the U.S. Open round the corner, Cincinnati brought renewed rivalries, calendar contention and some form for Jessica Pegula`\
 https://nytimes.com/athletic/5709224/2024/08/19/tennis-schedule-swiatek-cincinnati-open-finals/
@@ -13,28 +37,4 @@ https://nytimes.com/2024/08/19/world/europe/ukraine-attacks-russia-bridges-borde
 **Leicester confirm Skipp signing**\
 `Leicester City have confirmed the arrival of midfielder Oliver Skipp from Tottenham Hotspur.`\
 https://nytimes.com/athletic/5707569/2024/08/19/oliver-skipp-leicester-transfer-tottenham/
-
-**Scoop City: Denver's starting QB**\
-`Why the Steelers quarterbacks are trending down, rookie QBs are up and Bo Nix should be named the starter.`\
-https://nytimes.com/athletic/5709682/2024/08/19/scoop-city-denvers-starting-qb/
-
-**‘World News Tonight’ Producer Named President of ABC News**\
-`Almin Karamehmedovic, the senior executive producer of ABC’s flagship newscast with anchor David Muir, will run Disney’s news division.`\
-https://nytimes.com/2024/08/19/business/media/abc-news-president-karamehmedovic.html
-
-**Scoop City's AFC South Preview**\
-`A look at the AFC South, from our offseason series`\
-https://nytimes.com/athletic/5709686/2024/08/19/afc-south-preview-scoop-city/
-
-**Giants week in review: Lost opportunities, good pitching and a long, long home run**\
-`The Giants lost ground in the wild-card race and their struggles with runners in scoring position continue.`\
-https://nytimes.com/athletic/5698711/2024/08/19/sf-giants-weekly-review-risp-struggles/
-
-**City interested in Gundogan reunion**\
-`Manchester City are interested in a move for former midfielder Ilkay Gundogan.`\
-https://nytimes.com/athletic/5709651/2024/08/19/manchester-city-ilkay-gundogan-transfer-latest/
-
-**Real Madrid, Kylian Mbappe and the structural costs of a Galactico attack**\
-`Sunday's opening-day draw at Mallorca revealed problems in Carlo Ancelotti's new tactical plan`\
-https://nytimes.com/athletic/5709206/2024/08/19/real-madrid-kylian-mbappe-rodrygo-vinicius-jr-jude-bellingham/
 
