@@ -1,3 +1,27 @@
+**Warning Signs Flash in a Labor Survey as Fed Officials Watch for Weakness**\
+`The New York Fed’s labor market survey showed cracks just as Jerome H. Powell, the Fed chair, prepares for a closely watched Friday speech.`\
+https://nytimes.com/2024/08/19/business/economy/fed-labor-jobs.html
+
+**A Colorful, Crowd-Pleasing Zucchini Dinner**\
+`“This is an out-of-this world excellent dish! I’ve served it twice for company and all agree.”`\
+https://nytimes.com/2024/08/19/dining/zucchini-dinner.html
+
+**A Personalized Brain Pacemaker for Parkinson’s**\
+`In a new frontier for deep brain stimulation, researchers used A.I. to develop individualized algorithms, which helped a skateboarder and other patients with Parkinson’s disease.`\
+https://nytimes.com/2024/08/19/health/parkinsons-brain-pacemaker.html
+
+**This Spider Uses a Light Show to Trick Eager Male Fireflies Into Its Web**\
+`In China, the arachnids seem to somehow manipulate the flashing of a caught male firefly to resemble a female’s come-hither signal.`\
+https://nytimes.com/2024/08/19/science/spider-firefly-flash-web.html
+
+**5 Books to Make Caregiving a Little More Manageable**\
+`Health care professionals and other experts shared recommendations for anyone providing and receiving care.`\
+https://nytimes.com/2024/08/19/well/family/books-caregivers.html
+
+**Prosecutors Leave Decision on Delaying Trump’s Sentencing Up to Judge**\
+`Lawyers for Donald J. Trump had asked to move the sentencing in his Manhattan criminal case to after the election. In a letter, prosecutors disputed many of their arguments.`\
+https://nytimes.com/2024/08/19/nyregion/trump-sentencing-delay.html
+
 **Tennis Briefing: Will Swiatek comments change schedule? Is Sinner's hip a problem?**\
 `With the U.S. Open round the corner, Cincinnati brought renewed rivalries, calendar contention and some form for Jessica Pegula`\
 https://nytimes.com/athletic/5709224/2024/08/19/tennis-schedule-swiatek-cincinnati-open-finals/
