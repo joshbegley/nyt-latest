@@ -1,3 +1,7 @@
+**The Windup: Pirates tempted to shut Skenes down?**\
+`Welcome to The Windup, The Athletic's MLB newsletter. `\
+https://nytimes.com/athletic/5709834/2024/08/19/paul-skenes-pirates-danny-jansen-mlb-the-windup/
+
 **Three Cardinals takeaways: Frustrating week puts playoff hopes in jeopardy**\
 `As the Cardinals continue fading, manager Oli Marmol put it bluntly: "You step up to the challenge, or you're done."`\
 https://nytimes.com/athletic/5708380/2024/08/19/cardinals-playoff-chances-oli-marmol/

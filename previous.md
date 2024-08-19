@@ -1,3 +1,7 @@
+**The Windup: Pirates tempted to shut Skenes down?**\
+`Welcome to The Windup, The Athletic's MLB newsletter. `\
+https://nytimes.com/athletic/5709834/2024/08/19/paul-skenes-pirates-danny-jansen-mlb-the-windup/
+
 **Three Cardinals takeaways: Frustrating week puts playoff hopes in jeopardy**\
 `As the Cardinals continue fading, manager Oli Marmol put it bluntly: "You step up to the challenge, or you're done."`\
 https://nytimes.com/athletic/5708380/2024/08/19/cardinals-playoff-chances-oli-marmol/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/19/science/spider-firefly-flash-web.html
 **5 Books to Make Caregiving a Little More Manageable**\
 `Health care professionals and other experts shared recommendations for anyone providing and receiving care.`\
 https://nytimes.com/2024/08/19/well/family/books-caregivers.html
-
-**Prosecutors Leave Decision on Delaying Trump’s Sentencing Up to Judge**\
-`Lawyers for Donald J. Trump had asked to move the sentencing in his Manhattan criminal case to after the election. In a letter, prosecutors disputed many of their arguments.`\
-https://nytimes.com/2024/08/19/nyregion/trump-sentencing-delay.html
 
