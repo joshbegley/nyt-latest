@@ -1,3 +1,7 @@
+**Democrats Say Hi — and Bye — to President Biden**\
+`A man who spent a lifetime seeking the presidency faces his party after it forced him to step aside.`\
+https://nytimes.com/2024/08/19/us/politics/democratic-national-convention-chicago-biden-harris.html
+
 **John Harbaugh says the Ravens are closing in on their starting OL decisions**\
 `Andrew Vorhees and Daniel Faalele look like they'll be the Ravens' starting guards for the Week 1 opener against the Chiefs.`\
 https://nytimes.com/athletic/5710851/2024/08/19/baltimore-ravens-offensive-line-starters-week-1/
