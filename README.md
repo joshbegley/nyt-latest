@@ -1,3 +1,7 @@
+**Forest considering fresh bid for Feyenoord striker Gimenez**\
+`Nottingham Forest are considering whether to make a fresh bid for Feyenoord striker Santiago Gimenez.`\
+https://nytimes.com/athletic/5709246/2024/08/19/santiago-gimenez-nottingham-forest-transfer/
+
 **Stephon Gilmore's signing adds intrigue to Brian Flores' ascending Vikings defense**\
 `The 33-year-old corner, the 2019 NFL Defensive Player of the Year, will bring experience, swagger and versatility to the Vikings defense.`\
 https://nytimes.com/athletic/5708414/2024/08/19/stephon-gilmore-signing-vikings-defense/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/19/podcasts/dnc-gaza-biden-impeached.html
 **Wordle Review No. 1,158**\
 `Scroll down for hints and conversation about the puzzle for August 20, 2024.`\
 https://nytimes.com/2024/08/19/crosswords/wordle-review-1158.html
-
-**Here’s the latest on the presidential race.**\
-`By Adam Nagourney and Maggie Astor`\
-https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/heres-the-latest-on-the-presidential-race
 
