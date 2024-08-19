@@ -1,3 +1,7 @@
+**The Midwest Takes Center Stage at the Democratic Convention**\
+`The Midwest is having a moment in American politics. Reid J. Epstein, a New York Times reporter covering politics who grew up in Illinois, discusses what that means as the Democrats begin their convention in Chicago.`\
+https://nytimes.com/video/us/elections/100000009633728/the-midwest-takes-center-stage-at-the-democratic-convention.html
+
 **Kevin A Plank**\
 `News about Kevin A Plank. Commentary and archival information about Kevin A Plank from The New York Times.`\
 https://nytimes.com/topic/kevin-a-plank
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/19/us/bataan-death-march-pow.html
 **Sammie Szmodics to Ipswich: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500 series, we look at Sammie Szmodics's move to Ipswich`\
 https://nytimes.com/athletic/5709220/2024/08/19/sammie-szmodics-to-ipswich-the-athletic-500-transfer-ratings/
-
-**Israeli Strike on Central Gaza Kills Mother and Her Six Children, Including Quadruplets**\
-`Hala Khattab, a 36-year-old teacher, died with her 15-year-old son, four 9-year-olds -two boys and two girls- and a baby girl. Their deaths came as Secretary of State Antony J. Blinken arrived in Israel in another effort to broker a cease-fire.`\
-https://nytimes.com/video/world/middleeast/100000009636692/israeli-strike-dead-children-quadruple.html
 

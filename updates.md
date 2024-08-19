@@ -1,3 +1,7 @@
+**The Midwest Takes Center Stage at the Democratic Convention**\
+`The Midwest is having a moment in American politics. Reid J. Epstein, a New York Times reporter covering politics who grew up in Illinois, discusses what that means as the Democrats begin their convention in Chicago.`\
+https://nytimes.com/video/us/elections/100000009633728/the-midwest-takes-center-stage-at-the-democratic-convention.html
+
 **Kevin A Plank**\
 `News about Kevin A Plank. Commentary and archival information about Kevin A Plank from The New York Times.`\
 https://nytimes.com/topic/kevin-a-plank
