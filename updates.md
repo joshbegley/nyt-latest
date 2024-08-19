@@ -1,3 +1,11 @@
+**JD Vance attacks Harris and Walz for avoiding questions and then delivers his own evasive answers.**\
+`At a campaign event in Philadelphia, Mr. Vance criticized his rivals for avoiding the news media and then deflected questions himself.`\
+https://nytimes.com/2024/08/19/us/politics/jd-vance-speech-attacks-harris-walz.html
+
+**3 Episodes That Explain Phil Donahue’s Daytime Dominance**\
+`In his very first episode, which aired locally in Dayton, Ohio, the host, who would go on to redefine such talk shows, interviewed one of the most notorious figures in America.`\
+https://nytimes.com/2024/08/19/arts/television/phil-donahue-show-episodes.html
+
 **Tuesday Briefing: U.S. Said Israel Agreed to Cease-Fire Proposal**\
 `Plus, opening night at the Democratic convention.`\
 https://nytimes.com/2024/08/19/briefing/gaza-cease-fire-democratic-national-convention-ukraine-kursk.html

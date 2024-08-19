@@ -1,3 +1,11 @@
+**JD Vance attacks Harris and Walz for avoiding questions and then delivers his own evasive answers.**\
+`At a campaign event in Philadelphia, Mr. Vance criticized his rivals for avoiding the news media and then deflected questions himself.`\
+https://nytimes.com/2024/08/19/us/politics/jd-vance-speech-attacks-harris-walz.html
+
+**3 Episodes That Explain Phil Donahue’s Daytime Dominance**\
+`In his very first episode, which aired locally in Dayton, Ohio, the host, who would go on to redefine such talk shows, interviewed one of the most notorious figures in America.`\
+https://nytimes.com/2024/08/19/arts/television/phil-donahue-show-episodes.html
+
 **Tuesday Briefing: U.S. Said Israel Agreed to Cease-Fire Proposal**\
 `Plus, opening night at the Democratic convention.`\
 https://nytimes.com/2024/08/19/briefing/gaza-cease-fire-democratic-national-convention-ukraine-kursk.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/19/nyregion/columbia-student-arrests-discipline.html
 **Chargers QB Justin Herbert returns to practice**\
 `Los Angeles Chargers quarterback Justin Herbert returned to practice for the first time since sustaining an injury to the plantar fascia in his right foot earlier in training camp.`\
 https://nytimes.com/athletic/5710603/2024/08/19/chargers-justin-herbert-practice-foot-injury/
-
-**Nicaragua Shutters 1,500 Nonprofit Groups, Many of Them Churches**\
-`The government of President Daniel Ortega revoked the legal status of hundreds of evangelical groups as part of its crackdown on institutions that do not bow to its authority.`\
-https://nytimes.com/2024/08/19/world/americas/nicaragua-crackdown-ngos-churches.html
-
-**What Are Protesters’ Rights During the D.N.C.?**\
-`The boundaries of First Amendment rights and the government’s duty to maintain public order threaten to collide this week.`\
-https://nytimes.com/2024/08/19/us/politics/what-are-protesters-rights-during-the-dnc.html
 
