@@ -1,3 +1,11 @@
+**Yankees' Jazz Chisholm Jr. pays it forward with new 'little brother' at Little League Classic**\
+`Chisholm said that as a boy three major leaguers treated him like a little brother and he wanted to do the same for the next generation.`\
+https://nytimes.com/athletic/5708928/2024/08/19/yankees-jazz-chisholm-little-league-classic/
+
+**Mazraoui, Dalot... Martinez? Analysing Manchester United's left-back options**\
+`Erik ten Hag has a problem at left-back but he is not short of choices`\
+https://nytimes.com/athletic/5695548/2024/08/19/manchester-united-left-back-options/
+
 **John Aprea, Actor in ‘Godfather 2’ and ‘Full House,’ Dies at 83**\
 `Mr. Aprea played Salvatore “Sal” Tessio in “The Godfather, Part II” in 1974, and the father of a popular character on “Full House,” a sitcom.`\
 https://nytimes.com/2024/08/19/arts/john-aprea-dead.html
