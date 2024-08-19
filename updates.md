@@ -1,3 +1,7 @@
+**Democrats Unveil Convention Platform With Familiar Themes**\
+`The party is calling for tax increases on corporations and the rich while also focusing on working families, infrastructure, climate change and abortion rights.`\
+https://nytimes.com/2024/08/18/us/politics/democrats-convention-platform.html
+
 **Becky Hammon addresses Dearica Hamby lawsuit: 'It just didn't happen'**\
 `Hamby learned she was pregnant in July 2022, while playing for the Aces.`\
 https://nytimes.com/athletic/5708880/2024/08/18/becky-hammon-dearica-hamby-lawsuit/
