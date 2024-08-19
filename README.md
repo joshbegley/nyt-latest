@@ -1,3 +1,15 @@
+**Ducks fan survey: How is Verbeek doing? Will Gauthier win the Calder?**\
+`Will the Ducks make significant progress in the 2024-25 season?`\
+https://nytimes.com/athletic/5710141/2024/08/19/ducks-fan-survey-verbeek-gauthier/
+
+**Michel Guérard, Who Lowered the Calories in Haute Cuisine, Dies at 91**\
+`Appalled by the food options available to those seeking to lose weight, he developed a form of nouvelle cuisine for dieters at a spa in southwestern France.`\
+https://nytimes.com/2024/08/19/dining/michel-guerard-dead.html
+
+**Trump’s Archaic Vision of a Communist Convention**\
+`Out of ideas, he borrows from McCarthy’s old playbook.`\
+https://nytimes.com/live/2024/08/13/opinion/thepoint/trump-harris-communist-convention
+
 **Mark A Takano**\
 `News about Mark A Takano. Commentary and archival information about Mark A Takano from The New York Times.`\
 https://nytimes.com/topic/mark-a-takano
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5710173/2024/08/19/flyers-goalie-prospect-khl/
 **How Well Do You Know Rome, and These Books Set in the City?**\
 `Try this short literary geography quiz focused on Italy’s ancient capital.`\
 https://nytimes.com/interactive/2024/08/19/books/review/rome-books-quiz.html
-
-**Trump Promotes A.I. Images to Suggest That Taylor Swift Endorsed Him**\
-`The former president has been preoccupied with the popularity of the pop music megastar, who endorsed Joseph R. Biden Jr. over him during the 2020 election.`\
-https://nytimes.com/2024/08/19/us/politics/trump-taylor-swift-ai-images.html
-
-**Mother and 6 Children Are Killed in Israeli Strike in Gaza, Family Says**\
-`A Palestinian teacher and all her children were killed in a strike in Deir al-Balah that the Israeli military said had targeted “a significant Islamic Jihad terrorist.”`\
-https://nytimes.com/2024/08/19/world/middleeast/woman-six-children-israeli-airstrike-gaza.html
-
-**New York City Moves to Shut Down a Growing Migrant Encampment**\
-`Dozens of migrants have been sleeping outdoors near a large shelter complex on Randall’s Island. On Monday, the city forced them to pack up their tents and move.`\
-https://nytimes.com/2024/08/19/nyregion/homeless-migrants-encampment-randalls-island-sweep.html
 
