@@ -1,3 +1,7 @@
+**Democrats Unveil Convention Platform With Familiar Themes**\
+`The party is calling for tax increases on corporations and the rich while also focusing on working families, infrastructure, climate change and abortion rights.`\
+https://nytimes.com/2024/08/18/us/politics/democrats-convention-platform.html
+
 **Becky Hammon addresses Dearica Hamby lawsuit: 'It just didn't happen'**\
 `Hamby learned she was pregnant in July 2022, while playing for the Aces.`\
 https://nytimes.com/athletic/5708880/2024/08/18/becky-hammon-dearica-hamby-lawsuit/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/08/18/us/chicago-dnc-quiz.html
 **Matsuyama holds on to capture opening leg of FedEx Cup playoffs**\
 `Matsuyama will rise five spots in the FedEx Cup standings to advance to the second week of the PGA Tour playoffs in the No. 3 spot.`\
 https://nytimes.com/athletic/5708714/2024/08/18/hideki-matsuyama-fedex-cup-playoffs/
-
-**Three Red Sox takeaways as team splits important series with Orioles**\
-`The Red Sox have had their roadtrip to Baltimore and Houston circled for weeks. It got off to a solid start with a series split vs. the O's.`\
-https://nytimes.com/athletic/5708654/2024/08/18/red-sox-takeaways-orioles-series-split/
 
