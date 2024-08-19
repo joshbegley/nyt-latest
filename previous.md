@@ -1,3 +1,7 @@
+**James A Martin**\
+`News about James A Martin. Commentary and archival information about James A Martin from The New York Times.`\
+https://nytimes.com/topic/james-a-martin
+
 **Protesters Gather in Chicago on Democratic Convention’s Opening Day**\
 `Demonstrators were focused on a range of causes, but many said they were angry with the Biden administration’s approach to Israel and Gaza.`\
 https://nytimes.com/2024/08/19/us/chicago-dnc-protests.html
@@ -19,7 +23,7 @@ https://nytimes.com/2024/08/19/nyregion/rfk-jr-new-york-ballot.html
 https://nytimes.com/2024/08/19/arts/design/british-museum-gems-recovery.html
 
 **Philippines Reports First Mpox Case Since W.H.O. Declared Global Emergency**\
-`It was not clear if the patient had contracted the new, potentially more deadly strain of the disease, which first appeared outside of Africa last week, in Sweden.`\
+`It was not clear if the patient had contracted the new, potentially more deadly strain of the disease, which first appeared outside of Africa in Sweden last week.`\
 https://nytimes.com/2024/08/19/world/asia/philippines-mpox-case.html
 
 **As new rule yields more returns, NFL doesn't rule out more tweaks**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5710241/2024/08/19/fulham-sander-berge-burnley/
 **Jayden Daniels named Commanders starting quarterback**\
 `Daniels beat out fellow rookie Sam Hartman and veteran Marcus Mariota for the job.`\
 https://nytimes.com/athletic/5710236/2024/08/19/jayden-daniels-commanders-starting-quarterback/
-
-**Ducks fan survey: How is Verbeek doing? Will Gauthier win the Calder?**\
-`Will the Ducks make significant progress in the 2024-25 season?`\
-https://nytimes.com/athletic/5710141/2024/08/19/ducks-fan-survey-verbeek-gauthier/
 
