@@ -28,7 +28,7 @@ https://nytimes.com/live/2024/08/13/opinion/thepoint/democratic-convention-intri
 
 **The Harris campaign starts a WhatsApp channel to target Latino voters.**\
 `By Jazmine Ulloa`\
-https://nytimes.com/2024/08/19/us/politics/the-harris-campaign-starts-a-whatsapp-channel-to-target-latino-voters.html
+https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/the-harris-campaign-starts-a-whatsapp-channel-to-target-latino-voters
 
 **3 Women With Harrowing Pregnancy Stories Will Speak at Convention**\
 `The three women, who have been supporting the Democrats’ presidential campaign, will on Monday focus on abortion rights, a key pillar of the party’s policy goals.`\
