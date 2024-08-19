@@ -1,3 +1,15 @@
+**Ukraine Says Its Incursion Will Bring Peace. Putin’s Plans May Differ.**\
+`President Volodymyr Zelensky wants to hold Russian territory as leverage in future talks. In Moscow, many doubt the strategy.`\
+https://nytimes.com/2024/08/19/world/europe/ukraine-russia-zelensky-putin-ceasefire.html
+
+**Submit your questions for Kaitlyn McGrath’s next Blue Jays mailbag**\
+`The Blue Jays are looking ahead to the future after a disappointing first five months of the season.`\
+https://nytimes.com/athletic/5708821/2024/08/19/blue-jays-mailbag-question-submissions/
+
+**C. Notes: Swept after sweeping, Reds lack consistency to make headway in standings**\
+`The Reds were exposed on defense and pitch selection by the Royals.`\
+https://nytimes.com/athletic/5708761/2024/08/19/reds-swept-by-royals-defense-pitch-selection/
+
 **The 10 Most Intriguing Speakers at the Convention (Real and Possible)**\
 `If they get a slot, that is.`\
 https://nytimes.com/live/2024/08/13/opinion/thepoint/democratic-convention-intriguing-speakers
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/19/opinion/harris-trump-conservatives.html
 **Survivors of Doomsday Starvation Cult Testify Against Pastor and 93 Associates**\
 `An evangelical pastor in Kenya ordered his flock to shun education and medicine and starve their children to death in order to meet Jesus, witnesses in a manslaughter trial said.`\
 https://nytimes.com/2024/08/19/world/africa/kenya-doomsday-cult-trial.html
-
-**On Cat Ladies, Mama Bears and ‘Momala’**\
-`“Momala” makes for a charming political biography, but it isn’t powerful enough to counter the racial fears that nonwhite motherhood stokes in the nation.`\
-https://nytimes.com/2024/08/19/opinion/kamala-harris-momala-vance.html
-
-**Harris’s Early Campaign: Heavy on Buzz, Light on Policy**\
-`On policy, the vice president is drafting off President Biden, essentially cherry-picking the most popular parts of his agenda and betting that a younger messenger can sell them to Americans.`\
-https://nytimes.com/2024/08/19/us/politics/harris-campaign-policy.html
-
-**How a Far-Right Takeover of Georgia’s Election Board Could Swing the Election**\
-`The unelected body that shapes voting rules has a new conservative majority who question the state’s 2020 results. They now have new power to influence the results in 2024.`\
-https://nytimes.com/2024/08/19/us/politics/trump-2024-georgia-elections.html
 
