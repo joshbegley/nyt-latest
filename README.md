@@ -1,3 +1,11 @@
+**Sammie Szmodics to Ipswich: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we look at Sammie Szmodics's move to Ipswich`\
+https://nytimes.com/athletic/5709220/2024/08/19/sammie-szmodics-to-ipswich-the-athletic-500-transfer-ratings/
+
+**Israeli Strike on Central Gaza Kills Mother and Her Six Children, Including Quadruplets**\
+`Hala Khattab, a 36-year-old teacher, died with her 15-year-old son, four 9-year-olds -two boys and two girls- and a baby girl. Their deaths came as Secretary of State Antony J. Blinken arrived in Israel in another effort to broker a cease-fire.`\
+https://nytimes.com/video/world/middleeast/100000009636692/israeli-strike-dead-children-quadruple.html
+
 **The Run-Up: A Democratic insider’s guide to this week in Chicago.**\
 `By ‘The Run-Up’ Team`\
 https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/the-run-up-a-democratic-insiders-guide-to-this-week-in-chicago
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5709849/2024/08/19/ilkay-gundogans-manchester-city-
 **Chelsea's Humphreys set for loan with obligation move to Burnley**\
 `Chelsea defender Bashir Humphreys is set to join Championship side Burnley on loan with an obligation to buy.`\
 https://nytimes.com/athletic/5709991/2024/08/19/bashir-humphreys-burnley-chelsea/
-
-**Woman Who Accused Eric Adams of Assault Wrote About It Years Ago**\
-`A former Transit Police Department colleague of the mayor said she told seven people years ago that he had sexually assaulted her in 1993, according to new court filings.`\
-https://nytimes.com/2024/08/19/nyregion/eric-adams-assault-lawsuit.html
-
-**College football Week 0 best bets and projections plus some look-ahead bets**\
-`Austin Mock makes his first bets of the college football season with Week 0 here. He also looks ahead to some big games later in the season.`\
-https://nytimes.com/athletic/5709570/2024/08/19/college-football-week-0-best-bets-projections/
 
