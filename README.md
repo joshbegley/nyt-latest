@@ -1,3 +1,15 @@
+**Jason Isbell Offers Democrats a Way to Connect With a New Audience**\
+`The Southern white, working man’s musician performs at the Democratic convention and lets loose on the state of politics in an interview.`\
+https://nytimes.com/2024/08/19/us/politics/jason-isbell-dnc.html
+
+**Delaware Democrats to Their Joyous Party: ‘Et tu, Brute?’**\
+`Convention attendees from President Biden’s home state were careful to emphasize their support for Kamala Harris. But some still expressed a sense of loss.`\
+https://nytimes.com/2024/08/19/us/politics/biden-delaware-democrats.html
+
+**Robert A. Hadden**\
+`News about Robert A. Hadden. Commentary and archival information about Robert A. Hadden from The New York Times.`\
+https://nytimes.com/topic/robert-a-hadden
+
 **Matthew Perry’s Death Shines a Harsh Light on Ketamine Treatment**\
 `Was Mr. Perry, whose struggles with substance abuse were widely known, a good candidate for a drug used to relieve depression? Doctors say his case raises thorny questions.`\
 https://nytimes.com/2024/08/19/arts/television/matthew-perry-ketamine-treatment.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/us/politics/100000009639309/george-santos-guilty-plea.
 **The Democratic Convention Kicks Off**\
 `Plus, a push for a Gaza cease-fire. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/08/19/briefing/the-democratic-convention-kicks-off.html
-
-**JD Vance attacks Harris and Walz for avoiding questions and then delivers his own evasive answers.**\
-`At a campaign event in Philadelphia, Mr. Vance criticized his rivals for avoiding the news media and then deflected questions himself.`\
-https://nytimes.com/2024/08/19/us/politics/jd-vance-speech-attacks-harris-walz.html
-
-**3 Episodes That Explain Phil Donahue’s Daytime Dominance**\
-`In his very first episode, which aired locally in Dayton, Ohio, the host, who would go on to redefine such talk shows, interviewed one of the most notorious figures in America.`\
-https://nytimes.com/2024/08/19/arts/television/phil-donahue-show-episodes.html
-
-**Tuesday Briefing: U.S. Said Israel Agreed to Cease-Fire Proposal**\
-`Plus, opening night at the Democratic convention.`\
-https://nytimes.com/2024/08/19/briefing/gaza-cease-fire-democratic-national-convention-ukraine-kursk.html
 
