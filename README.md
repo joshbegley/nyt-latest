@@ -1,3 +1,7 @@
+**Mark A Takano**\
+`News about Mark A Takano. Commentary and archival information about Mark A Takano from The New York Times.`\
+https://nytimes.com/topic/mark-a-takano
+
 **5 Tips for Making a School Lunch Your Kid Will Actually Eat**\
 `With just a few tweaks and a smidgen of planning, you can pack lunches that come home eaten.`\
 https://nytimes.com/article/school-lunch-ideas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/19/world/middleeast/woman-six-children-israeli-airst
 **New York City Moves to Shut Down a Growing Migrant Encampment**\
 `Dozens of migrants have been sleeping outdoors near a large shelter complex on Randall’s Island. On Monday, the city forced them to pack up their tents and move.`\
 https://nytimes.com/2024/08/19/nyregion/homeless-migrants-encampment-randalls-island-sweep.html
-
-**U.S. Soldier’s Remains Identified More Than 80 Years After Bataan Death March**\
-`Pvt. William E. Calkins of Oregon survived the march but died at age 20 in a prison camp during World War II. His remains are set to be buried next month.`\
-https://nytimes.com/2024/08/19/us/bataan-death-march-pow.html
 
