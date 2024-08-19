@@ -1,3 +1,7 @@
+**Phillies owner John Middleton feels the promise, peril and urgency as October beckons**\
+`"You have to strike while the iron's hot. And it's hot right now. The players and the coaching staff have to understand that." `\
+https://nytimes.com/athletic/5706000/2024/08/19/john-middleton-phillies-playoffs/
+
 **Ukraine Says Its Incursion Will Bring Peace. Putin’s Plans May Differ.**\
 `President Volodymyr Zelensky wants to hold Russian territory as leverage in future talks. In Moscow, many doubt the strategy.`\
 https://nytimes.com/2024/08/19/world/europe/ukraine-russia-zelensky-putin-ceasefire.html
@@ -19,7 +23,7 @@ https://nytimes.com/live/2024/08/13/opinion/thepoint/democratic-convention-intri
 https://nytimes.com/2024/08/19/us/politics/the-harris-campaign-starts-a-whatsapp-channel-to-target-latino-voters.html
 
 **3 Women With Harrowing Pregnancy Stories Will Speak at Convention**\
-`The three women, who have become surrogates for the Democrats’ presidential campaign, will on Monday focus on abortion rights, a key pillar of the party’s policy goals.`\
+`The three women, who have been supporting the Democrats’ presidential campaign, will on Monday focus on abortion rights, a key pillar of the party’s policy goals.`\
 https://nytimes.com/2024/08/19/us/politics/harris-dnc-abortion-rights.html
 
 **A $6 Billion Breakthrough or a Drop in the Bucket?**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/19/travel/last-minute-labor-day-weekend-trips.html
 **David French on the Pro-Life Case for Kamala Harris**\
 `“I’m voting against Trump precisely because I’m conservative,” the columnist says.`\
 https://nytimes.com/2024/08/19/opinion/harris-trump-conservatives.html
-
-**Survivors of Doomsday Starvation Cult Testify Against Pastor and 93 Associates**\
-`An evangelical pastor in Kenya ordered his flock to shun education and medicine and starve their children to death in order to meet Jesus, witnesses in a manslaughter trial said.`\
-https://nytimes.com/2024/08/19/world/africa/kenya-doomsday-cult-trial.html
 
