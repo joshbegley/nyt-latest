@@ -1,3 +1,11 @@
+**Word of the Day: honorarium**\
+`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/19/learning/word-of-the-day-honorarium.html
+
+**Joshua Dobbs' electric move in the 49ers' QB2 competition**\
+`Dobbs is a much more polished version of what the 49ers hoped they'd get from Trey Lance and similar to what they loved about Sam Darnold.`\
+https://nytimes.com/athletic/5708878/2024/08/19/kawakami-joshua-dobbs-49ers-qb2-competition/
+
 **John Aprea, Actor in ‘Godfather, Part II’ and ‘Full House,’ Dies at 83**\
 `Mr. Aprea played Salvatore “Sal” Tessio in “The Godfather, Part II” in 1974, and the father of a popular character on “Full House,” a sitcom.`\
 https://nytimes.com/2024/08/19/arts/john-aprea-dead.html

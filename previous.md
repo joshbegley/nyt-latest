@@ -1,3 +1,11 @@
+**Word of the Day: honorarium**\
+`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/19/learning/word-of-the-day-honorarium.html
+
+**Joshua Dobbs' electric move in the 49ers' QB2 competition**\
+`Dobbs is a much more polished version of what the 49ers hoped they'd get from Trey Lance and similar to what they loved about Sam Darnold.`\
+https://nytimes.com/athletic/5708878/2024/08/19/kawakami-joshua-dobbs-49ers-qb2-competition/
+
 **49ers' Brock Purdy sputters without top pass catchers ... or top play caller**\
 `One of the standouts from Sunday's game was rookie receiver Jacob Cowing, who's in the mix for the role of punt returner.`\
 https://nytimes.com/athletic/5709014/2024/08/19/49ers-preseason-brock-purdy-kyle-shanahan/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/19/arts/john-aprea-dead.html
 **Wilson Odobert: What Spurs can expect from their latest signing**\
 `Tottenham have purchased a young, exciting talent with plenty of first-team experience under his belt already`\
 https://nytimes.com/athletic/5707528/2024/08/19/wilson-odobert-tottenham-position/
-
-**Duran just had to be Villa's hero at West Ham - but what happens now?**\
-`The striker made no secret of his desire to leave this summer but underlined his talent on Saturday`\
-https://nytimes.com/athletic/5700454/2024/08/19/jhon-duran-aston-villa-transfer-future/
-
-**It will take time for Palace to adapt to life without Olise - but Glasner must get it right**\
-`The departed talisman could win matches on his own and manager Glasner now faces the challenge of replicating that. How best to go about it?`\
-https://nytimes.com/athletic/5705569/2024/08/19/crystal-palace-olise-glasner/
 
