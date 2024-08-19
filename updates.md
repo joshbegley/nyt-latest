@@ -1,3 +1,7 @@
+**Chargers QB Justin Herbert returns to practice**\
+`Los Angeles Chargers quarterback Justin Herbert returned to practice for the first time since sustaining an injury to the plantar fascia in his right foot earlier in training camp.`\
+https://nytimes.com/athletic/5710603/2024/08/19/chargers-justin-herbert-practice-foot-injury/
+
 **Georginio Rutter to Brighton: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500 series, we look at Georginio Rutter's move to Brighton`\
 https://nytimes.com/athletic/5702230/2024/08/19/georginio-rutter-to-brighton-the-athletic-500-transfer-ratings/

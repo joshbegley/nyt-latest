@@ -1,4 +1,4 @@
-**Chargers Qb Justin Herbert returns to practice**\
+**Chargers QB Justin Herbert returns to practice**\
 `Los Angeles Chargers quarterback Justin Herbert returned to practice for the first time since sustaining an injury to the plantar fascia in his right foot earlier in training camp.`\
 https://nytimes.com/athletic/5710603/2024/08/19/chargers-justin-herbert-practice-foot-injury/
 
