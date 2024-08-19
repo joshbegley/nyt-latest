@@ -1,3 +1,7 @@
+**George Santos Pleads Guilty to Wire Fraud and Identity Theft**\
+`The disgraced former Republican congressman from New York was charged with 23 felony counts for a number of schemes, including stealing money from donors and lying to the government to cover his tracks.`\
+https://nytimes.com/video/us/politics/100000009639309/george-santos-guilty-plea.html
+
 **The Democratic Convention Kicks Off**\
 `Plus, a push for a Gaza cease-fire. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/08/19/briefing/the-democratic-convention-kicks-off.html

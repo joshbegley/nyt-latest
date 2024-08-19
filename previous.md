@@ -1,3 +1,7 @@
+**George Santos Pleads Guilty to Wire Fraud and Identity Theft**\
+`The disgraced former Republican congressman from New York was charged with 23 felony counts for a number of schemes, including stealing money from donors and lying to the government to cover his tracks.`\
+https://nytimes.com/video/us/politics/100000009639309/george-santos-guilty-plea.html
+
 **The Democratic Convention Kicks Off**\
 `Plus, a push for a Gaza cease-fire. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/08/19/briefing/the-democratic-convention-kicks-off.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/19/opinion/kamala-harris-hillary-clinton-convention.
 **The Briefing: Leicester 1 Tottenham 1 - How did Spurs lose control?**\
 `All the big talking points dissected as Spurs are held by newly-promoted Leicester`\
 https://nytimes.com/athletic/5708201/2024/08/19/leicester-tottenham-anlaysis-premier-league/
-
-**Most Columbia Students Arrested During Protests Will Return to Campus**\
-`Some students who were arrested after setting up tents on campus or occupying a university building last spring are still on probation. Others could face consequences later this year.`\
-https://nytimes.com/2024/08/19/nyregion/columbia-student-arrests-discipline.html
 
