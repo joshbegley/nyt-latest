@@ -15,7 +15,7 @@ https://nytimes.com/2024/08/19/us/politics/what-are-protesters-rights-during-the
 https://nytimes.com/athletic/5702330/2024/08/19/georginio-rutter-brighton-transfer/
 
 **Georginio Rutter to Brighton: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500 series, we look at Georginio Rutter's move to Brighton.`\
+`As part of The Athletic 500 series, we look at Georginio Rutter's move to Brighton`\
 https://nytimes.com/athletic/5702230/2024/08/19/georginio-rutter-to-brighton-the-athletic-500-transfer-ratings/
 
 **On the Democratic convention’s first day, Tim Walz is busy and buzzy.**\
