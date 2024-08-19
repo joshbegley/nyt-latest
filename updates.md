@@ -1,3 +1,7 @@
+**Former Investigator Assails World Anti-Doping Agency**\
+`The agency, which has faced intense criticism for its handling of positive tests among Chinese swimmers, should be replaced by a “truly independent” organization, its former chief investigative officer said.`\
+https://nytimes.com/2024/08/19/us/politics/world-anti-doping-agency.html
+
 **Dmitri A. Muratov**\
 `News about Dmitri A. Muratov. Commentary and archival information about Dmitri A. Muratov from The New York Times.`\
 https://nytimes.com/topic/dmitri-a-muratov
