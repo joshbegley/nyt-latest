@@ -1,3 +1,11 @@
+**The Bounce: Is Jrue Holiday a future Hall of Famer?**\
+`Zach Harper and Shams Charania catch you up on league-wide news.`\
+https://nytimes.com/athletic/5709891/2024/08/19/jrue-holiday-celtics-hall-of-fame-western-conference-guerschon-yabusele-76ers-nba-the-bounce/
+
+**High Food Prices: The Causes and the Politics**\
+`Summary summary summary`\
+https://nytimes.com/2024/08/19/opinion/letters/high-food-prices.html
+
 **Several senators in highly competitive races are skipping the D.N.C.**\
 `Campaigning in red or purple states, Jon Tester of Montana, Sherrod Brown of Ohio and Jacky Rosen of Nevada are not traveling to Chicago.`\
 https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/several-senators-in-highly-competitive-races-are-skipping-the-dnc
