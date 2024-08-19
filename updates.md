@@ -1,3 +1,11 @@
+**Walz Family Fertility Journey Ran Not Through I.V.F. but Another Common Treatment**\
+`Unlike in vitro fertilization, the procedure used by the Walzes does not involve freezing embryos, so it has not been targeted by anti-abortion leaders.`\
+https://nytimes.com/2024/08/19/us/tim-walz-fertility-pregnancy.html
+
+**Israel Accepts Proposal to Bridge Differences on Cease-Fire, Blinken Says**\
+`The statement by the Secretary of State put new pressure on Hamas, whose officials have called the proposal fundamentally slanted toward Israel.`\
+https://nytimes.com/2024/08/19/world/middleeast/israel-cease-fire-proposal-hamas-blinken.html
+
 **George Santos Pleads Guilty to Wire Fraud and Identity Theft**\
 `The disgraced former Republican congressman from New York was charged with 23 felony counts for a number of schemes, including stealing money from donors and lying to the government to cover his tracks.`\
 https://nytimes.com/video/us/politics/100000009639309/george-santos-guilty-plea.html
