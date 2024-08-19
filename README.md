@@ -1,3 +1,15 @@
+**As new rule yields more returns, NFL doesn't rule out more tweaks**\
+`The NFL made dramatic changes to its kickoff rules in March with the intention of boosting the number of kickoff returns while also mitigating the risk for a high rate of significant injuries.`\
+https://nytimes.com/athletic/5710186/2024/08/19/new-rule-yields-more-returns-nfl-doesnt-rule-out-tweaks/
+
+**Fulham close to signing Berge from Burnley**\
+`Fulham are close to completing the signing of Burnley midfielder Sander Berge.`\
+https://nytimes.com/athletic/5710241/2024/08/19/fulham-sander-berge-burnley/
+
+**Jayden Daniels named Commanders starting quarterback**\
+`Daniels beat out fellow rookie Sam Hartman and veteran Marcus Mariota for the job.`\
+https://nytimes.com/athletic/5710236/2024/08/19/jayden-daniels-commanders-starting-quarterback/
+
 **Ducks fan survey: How is Verbeek doing? Will Gauthier win the Calder?**\
 `Will the Ducks make significant progress in the 2024-25 season?`\
 https://nytimes.com/athletic/5710141/2024/08/19/ducks-fan-survey-verbeek-gauthier/
@@ -25,16 +37,4 @@ https://nytimes.com/video/us/elections/100000009633728/the-midwest-takes-center-
 **Kevin A Plank**\
 `News about Kevin A Plank. Commentary and archival information about Kevin A Plank from The New York Times.`\
 https://nytimes.com/topic/kevin-a-plank
-
-**Kings fan survey: Should Blake return? Byfield's future? Next captain? How will 2024-25 end?**\
-`Kings fans, let us know what you think about some of the big issues surrounding the team.`\
-https://nytimes.com/athletic/5705687/2024/08/19/kings-fan-survey-blake/
-
-**Source: Flyers goalie prospect prefers return to KHL, but team opposes it**\
-`The Flyers are expected to meet with Alexei Kolosov’s camp this week.`\
-https://nytimes.com/athletic/5710173/2024/08/19/flyers-goalie-prospect-khl/
-
-**How Well Do You Know Rome, and These Books Set in the City?**\
-`Try this short literary geography quiz focused on Italy’s ancient capital.`\
-https://nytimes.com/interactive/2024/08/19/books/review/rome-books-quiz.html
 
