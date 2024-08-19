@@ -1,3 +1,11 @@
+**Blinken Says It’s a ‘Decisive Moment’ for a Gaza Cease-fire Deal**\
+`Secretary of State Antony Blinken, who will meet with Prime Minister Benjamin Netanyahu on Monday, said recent negotiations had created room for a cease-fire and hostage release.`\
+https://nytimes.com/live/2024/08/19/world/israel-iran-hamas-gaza-war
+
+**Blinken is in Israel to push for a Gaza cease-fire deal.**\
+`By Robert Jimison`\
+https://nytimes.com/2024/08/19/world/middleeast/blinken-is-in-israel-to-push-for-a-gaza-cease-fire-deal.html
+
 **Word of the Day: honorarium**\
 `This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/19/learning/word-of-the-day-honorarium.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5708928/2024/08/19/yankees-jazz-chisholm-little-lea
 **Mazraoui, Dalot... Martinez? Analysing Manchester United's left-back options**\
 `Erik ten Hag has a problem at left-back but he is not short of choices`\
 https://nytimes.com/athletic/5695548/2024/08/19/manchester-united-left-back-options/
-
-**John Aprea, Actor in ‘Godfather, Part II’ and ‘Full House,’ Dies at 83**\
-`Mr. Aprea played Salvatore “Sal” Tessio in “The Godfather, Part II” in 1974, and the father of a popular character on “Full House,” a sitcom.`\
-https://nytimes.com/2024/08/19/arts/john-aprea-dead.html
-
-**Wilson Odobert: What Spurs can expect from their latest signing**\
-`Tottenham have purchased a young, exciting talent with plenty of first-team experience under his belt already`\
-https://nytimes.com/athletic/5707528/2024/08/19/wilson-odobert-tottenham-position/
 

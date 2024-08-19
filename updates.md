@@ -1,3 +1,11 @@
+**Blinken Says It’s a ‘Decisive Moment’ for a Gaza Cease-fire Deal**\
+`Secretary of State Antony Blinken, who will meet with Prime Minister Benjamin Netanyahu on Monday, said recent negotiations had created room for a cease-fire and hostage release.`\
+https://nytimes.com/live/2024/08/19/world/israel-iran-hamas-gaza-war
+
+**Blinken is in Israel to push for a Gaza cease-fire deal.**\
+`By Robert Jimison`\
+https://nytimes.com/2024/08/19/world/middleeast/blinken-is-in-israel-to-push-for-a-gaza-cease-fire-deal.html
+
 **Word of the Day: honorarium**\
 `This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/19/learning/word-of-the-day-honorarium.html
