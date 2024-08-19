@@ -1,3 +1,7 @@
+**Protesters Gather in Chicago on Democratic Convention’s Opening Day**\
+`Demonstrators were focused on a range of causes, but many said they were angry with the Biden administration’s approach to Israel and Gaza.`\
+https://nytimes.com/2024/08/19/us/chicago-dnc-protests.html
+
 **Kamalanomics, Revealed: A Solid Center-Left Agenda**\
 `And no, she hasn’t called for price controls.`\
 https://nytimes.com/2024/08/19/opinion/kamala-harris-economic-agenda.html

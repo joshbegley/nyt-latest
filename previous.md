@@ -1,3 +1,7 @@
+**Protesters Gather in Chicago on Democratic Convention’s Opening Day**\
+`Demonstrators were focused on a range of causes, but many said they were angry with the Biden administration’s approach to Israel and Gaza.`\
+https://nytimes.com/2024/08/19/us/chicago-dnc-protests.html
+
 **Kamalanomics, Revealed: A Solid Center-Left Agenda**\
 `And no, she hasn’t called for price controls.`\
 https://nytimes.com/2024/08/19/opinion/kamala-harris-economic-agenda.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5710236/2024/08/19/jayden-daniels-commanders-starti
 **Ducks fan survey: How is Verbeek doing? Will Gauthier win the Calder?**\
 `Will the Ducks make significant progress in the 2024-25 season?`\
 https://nytimes.com/athletic/5710141/2024/08/19/ducks-fan-survey-verbeek-gauthier/
-
-**Michel Guérard, Who Lowered the Calories in Haute Cuisine, Dies at 91**\
-`Appalled by the food options available to those seeking to lose weight, he developed a form of nouvelle cuisine for dieters at a spa in southwestern France.`\
-https://nytimes.com/2024/08/19/dining/michel-guerard-dead.html
 
