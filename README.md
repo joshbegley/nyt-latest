@@ -1,8 +1,4 @@
-**Giants week in review: Lost opportunities, good pitching and a long, long home run**\
-`The Giants lost ground in the wild-card race and their struggles with runners in scoring position continue.`\
-https://nytimes.com/athletic/5698711/2024/08/19/sf-giants-weekly-review-risp-struggles/
-
-**Man City interested in move for Gundogan as midfielder's Barcelona future in doubt**\
+**City interested in Gundogan reunion**\
 `Manchester City are interested in a move for former midfielder Ilkay Gundogan.`\
 https://nytimes.com/athletic/5709651/2024/08/19/manchester-city-ilkay-gundogan-transfer-latest/
 
