@@ -1,3 +1,23 @@
+**Phillies owner John Middleton feels the promise, peril and urgency as October beckons**\
+`"You have to strike while the iron's hot. And it's hot right now. The players and the coaching staff have to understand that." `\
+https://nytimes.com/athletic/5706000/2024/08/19/john-middleton-phillies-playoffs/
+
+**Ukraine Says Its Incursion Will Bring Peace. Putin’s Plans May Differ.**\
+`President Volodymyr Zelensky wants to hold Russian territory as leverage in future talks. In Moscow, many doubt the strategy.`\
+https://nytimes.com/2024/08/19/world/europe/ukraine-russia-zelensky-putin-ceasefire.html
+
+**Submit your questions for Kaitlyn McGrath’s next Blue Jays mailbag**\
+`The Blue Jays are looking ahead to the future after a disappointing first five months of the season.`\
+https://nytimes.com/athletic/5708821/2024/08/19/blue-jays-mailbag-question-submissions/
+
+**C. Notes: Swept after sweeping, Reds lack consistency to make headway in standings**\
+`The Reds were exposed on defense and pitch selection by the Royals.`\
+https://nytimes.com/athletic/5708761/2024/08/19/reds-swept-by-royals-defense-pitch-selection/
+
+**3 Women With Harrowing Pregnancy Stories Will Speak at Convention**\
+`The three women, who have been supporting the Democrats’ presidential campaign, will on Monday focus on abortion rights, a key pillar of the party’s policy goals.`\
+https://nytimes.com/2024/08/19/us/politics/harris-dnc-abortion-rights.html
+
 **The 10 Most Intriguing Speakers at the Convention (Real and Possible)**\
 `If they get a slot, that is.`\
 https://nytimes.com/live/2024/08/13/opinion/thepoint/democratic-convention-intriguing-speakers
