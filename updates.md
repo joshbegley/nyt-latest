@@ -1,3 +1,7 @@
+**Woman Who Accused Eric Adams of Assault Wrote About It Years Ago**\
+`A former Transit Police Department colleague of the mayor said she told seven people years ago that he had sexually assaulted her in 1993, according to new court filings.`\
+https://nytimes.com/2024/08/19/nyregion/eric-adams-assault-lawsuit.html
+
 **College football Week 0 best bets and projections plus some look-ahead bets**\
 `Austin Mock makes his first bets of the college football season with Week 0 here. He also looks ahead to some big games later in the season.`\
 https://nytimes.com/athletic/5709570/2024/08/19/college-football-week-0-best-bets-projections/
