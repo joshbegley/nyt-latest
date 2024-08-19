@@ -1,3 +1,7 @@
+**Part of Long Island Under Flash Flood Emergency After Heavy Rains**\
+`A flash flood emergency was declared for parts of Long Island early Monday, after torrential rain led to mudslides and washed-out roads in Connecticut.`\
+https://nytimes.com/2024/08/19/nyregion/long-island-flooding-rainfall-new-york.html
+
 **Blinken Says It’s a ‘Decisive Moment’ for a Gaza Cease-fire Deal**\
 `Secretary of State Antony Blinken, who will meet with Prime Minister Benjamin Netanyahu on Monday, said recent negotiations had created room for a cease-fire and hostage release.`\
 https://nytimes.com/live/2024/08/19/world/israel-iran-hamas-gaza-war
@@ -33,8 +37,4 @@ https://nytimes.com/video/weather/100000009636506/connecticut-floods-new-york.ht
 **Yankees' Jazz Chisholm Jr. pays it forward with new 'little brother' at Little League Classic**\
 `Chisholm said that as a boy three major leaguers treated him like a little brother and he wanted to do the same for the next generation.`\
 https://nytimes.com/athletic/5708928/2024/08/19/yankees-jazz-chisholm-little-league-classic/
-
-**Mazraoui, Dalot... Martinez? Analysing Manchester United's left-back options**\
-`Erik ten Hag has a problem at left-back but he is not short of choices`\
-https://nytimes.com/athletic/5695548/2024/08/19/manchester-united-left-back-options/
 
