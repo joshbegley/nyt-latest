@@ -1,3 +1,7 @@
+**George A Romero**\
+`News about George A Romero. Commentary and archival information about George A Romero from The New York Times.`\
+https://nytimes.com/topic/george-a-romero
+
 **Carl Icahn to Pay $2 Million to Settle S.E.C. Charges**\
 `The Securities and Exchange Commission had accused the billionaire investor of not disclosing that he had pledged personal stock holdings as collateral for billions of dollars in loans.`\
 https://nytimes.com/2024/08/19/business/sec-carl-icahn-stock-charges.html

@@ -1,3 +1,7 @@
+**George A Romero**\
+`News about George A Romero. Commentary and archival information about George A Romero from The New York Times.`\
+https://nytimes.com/topic/george-a-romero
+
 **Carl Icahn to Pay $2 Million to Settle S.E.C. Charges**\
 `The Securities and Exchange Commission had accused the billionaire investor of not disclosing that he had pledged personal stock holdings as collateral for billions of dollars in loans.`\
 https://nytimes.com/2024/08/19/business/sec-carl-icahn-stock-charges.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5709858/2024/08/19/lionel-messi-injury-argentina-sq
 **The Windup: Pirates tempted to shut Skenes down?**\
 `Welcome to The Windup, The Athletic's MLB newsletter. `\
 https://nytimes.com/athletic/5709834/2024/08/19/paul-skenes-pirates-danny-jansen-mlb-the-windup/
-
-**Three Cardinals takeaways: Frustrating week puts playoff hopes in jeopardy**\
-`As the Cardinals continue fading, manager Oli Marmol put it bluntly: "You step up to the challenge, or you're done."`\
-https://nytimes.com/athletic/5708380/2024/08/19/cardinals-playoff-chances-oli-marmol/
 
