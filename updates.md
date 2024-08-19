@@ -1,3 +1,7 @@
+**On the Democratic convention’s first day, Tim Walz is busy and buzzy.**\
+`By Jazmine Ulloa and Kellen Browning`\
+https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/tim-walz-convention
+
 **Blue Jackets trade Patrik Laine, 2026 pick to Canadiens**\
 `"Patrik made it clear that he thought a change of scenery was best for him," Blue Jackets GM Don Waddell said.`\
 https://nytimes.com/athletic/5710538/2024/08/19/patrik-laine-blue-jackets-canadiens-trade/
