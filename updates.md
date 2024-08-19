@@ -1,3 +1,11 @@
+**Gallagher's Atletico move expected to proceed after Joao Felix agreement**\
+`Conor Gallagher&#8217;s move to Atletico Madrid is expected to proceed after Chelsea agreed a deal to sign Joao Felix from the Spanish club.`\
+https://nytimes.com/athletic/5671315/2024/08/19/conor-gallagher-transfer-atletico-chelsea/
+
+**Braves 3B Austin Riley out 6-8 weeks with fractured hand**\
+`Angels starter Jack Kochanowicz hit Riley in the right hand with a 97-mph fastball.`\
+https://nytimes.com/athletic/5710364/2024/08/19/austin-riley-braves-fractured-hand-injury/
+
 **Some Republicans Will Take Center Stage at the Democratic Convention**\
 `At least three Republicans will have prominent speaking roles this week, as the Harris campaign taps into opposition to Donald J. Trump from within his own party.`\
 https://nytimes.com/2024/08/19/us/politics/dnc-republicans.html
