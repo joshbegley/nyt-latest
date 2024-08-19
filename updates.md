@@ -1,3 +1,11 @@
+**Mother and 6 Children Are Killed in Israeli Strike in Gaza, Family Says**\
+`A Palestinian teacher and all her children were killed in a strike in Deir al-Balah that the Israeli military said had targeted “a significant Islamic Jihad terrorist.”`\
+https://nytimes.com/2024/08/19/world/middleeast/woman-six-children-israeli-airstrike-gaza.html
+
+**Hillary Clinton and Kamala Harris: Inside Their Quietly Close Bond**\
+`Mrs. Clinton, who lost out on becoming the first female president, has been a behind-the-scenes ally for the woman now vying to do so.`\
+https://nytimes.com/2024/08/19/us/politics/hillary-clinton-kamala-harris.html
+
 **New York City Moves to Shut Down a Growing Migrant Encampment**\
 `Dozens of migrants have been sleeping outdoors near a large shelter complex on Randall’s Island. On Monday, the city forced them to pack up their tents and move.`\
 https://nytimes.com/2024/08/19/nyregion/homeless-migrants-encampment-randalls-island-sweep.html
