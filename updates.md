@@ -1,3 +1,5 @@
+**Palestinian militants carry out a suicide bombing in Tel Aviv, and other news.**\
+
 **Why Angels starter Griffin Canning has struggled in 2024 and what it means for his future**\
 `The Angels have long seen potential in Canning, but the former second-round pick has struggled. Will they keep him around?`\
 https://nytimes.com/athletic/5708604/2024/08/19/angels-griffin-canning-struggles-future/
