@@ -22,7 +22,7 @@ https://nytimes.com/athletic/5708928/2024/08/19/yankees-jazz-chisholm-little-lea
 `Erik ten Hag has a problem at left-back but he is not short of choices`\
 https://nytimes.com/athletic/5695548/2024/08/19/manchester-united-left-back-options/
 
-**John Aprea, Actor in ‘Godfather 2’ and ‘Full House,’ Dies at 83**\
+**John Aprea, Actor in ‘Godfather, Part II’ and ‘Full House,’ Dies at 83**\
 `Mr. Aprea played Salvatore “Sal” Tessio in “The Godfather, Part II” in 1974, and the father of a popular character on “Full House,” a sitcom.`\
 https://nytimes.com/2024/08/19/arts/john-aprea-dead.html
 

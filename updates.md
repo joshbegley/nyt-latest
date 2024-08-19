@@ -1,3 +1,7 @@
+**John Aprea, Actor in ‘Godfather, Part II’ and ‘Full House,’ Dies at 83**\
+`Mr. Aprea played Salvatore “Sal” Tessio in “The Godfather, Part II” in 1974, and the father of a popular character on “Full House,” a sitcom.`\
+https://nytimes.com/2024/08/19/arts/john-aprea-dead.html
+
 **49ers' Brock Purdy sputters without top pass catchers ... or top play caller**\
 `One of the standouts from Sunday's game was rookie receiver Jacob Cowing, who's in the mix for the role of punt returner.`\
 https://nytimes.com/athletic/5709014/2024/08/19/49ers-preseason-brock-purdy-kyle-shanahan/
