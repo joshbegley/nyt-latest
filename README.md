@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5709651/2024/08/19/manchester-city-ilkay-gundogan-t
 https://nytimes.com/athletic/5709206/2024/08/19/real-madrid-kylian-mbappe-rodrygo-vinicius-jr-jude-bellingham/
 
 **Phil Donahue, Talk Host Who Made Audiences Part of the Show, Dies at 88**\
-`Stalking the aisles with microphone in hand, he turned “The Phil Donahue Show” into a participation event, soliciting questions and comments on topics ranging from human rights to orgies.`\
+`Stalking the aisles, microphone in hand, he turned “The Phil Donahue Show” into a participation event, soliciting questions and comments on topics from human rights to orgies.`\
 https://nytimes.com/2024/08/19/arts/television/phil-donahue-dead.html
 
 **Henry leaves role as France Under-21 coach**\
