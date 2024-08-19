@@ -1,3 +1,11 @@
+**Chelsea agree deal to sign Joao Felix**\
+`Chelsea have reached an agreement with Atletico Madrid for the permanent signing of Portugal forward Joao Felix.`\
+https://nytimes.com/athletic/5695590/2024/08/19/joao-felix-chelsea-transfer/
+
+**Ex-NFLer Gosder Cherilus arrested after allegedly urinating on flight passenger**\
+`Cherilus was a first-round draft pick of the Detroit Lions out of Boston College in 2008.`\
+https://nytimes.com/athletic/5709774/2024/08/19/godser-cherilus-arrested-airline-urinating/
+
 **Five questions entering the Eagles' final preseason game**\
 `Depth and health are the main issues going into the final preseason game.`\
 https://nytimes.com/athletic/5705199/2024/08/19/eagles-vikings-final-preseason-game-questions/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/19/us/ruth-johnson-colvin-dead.html
 **Warning Signs Flash in a Labor Survey as Fed Officials Watch for Weakness**\
 `The New York Fed’s labor market survey showed cracks just as Jerome H. Powell, the Fed chair, prepares for a closely watched Friday speech.`\
 https://nytimes.com/2024/08/19/business/economy/fed-labor-jobs.html
-
-**A Colorful, Crowd-Pleasing Zucchini Dinner**\
-`“This is an out-of-this world excellent dish! I’ve served it twice for company and all agree.”`\
-https://nytimes.com/2024/08/19/dining/zucchini-dinner.html
-
-**A Personalized Brain Pacemaker for Parkinson’s**\
-`In a new frontier for deep brain stimulation, researchers used A.I. to develop individualized algorithms, which helped a skateboarder and other patients with Parkinson’s disease.`\
-https://nytimes.com/2024/08/19/health/parkinsons-brain-pacemaker.html
 

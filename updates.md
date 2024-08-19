@@ -1,3 +1,11 @@
+**Chelsea agree deal to sign Joao Felix**\
+`Chelsea have reached an agreement with Atletico Madrid for the permanent signing of Portugal forward Joao Felix.`\
+https://nytimes.com/athletic/5695590/2024/08/19/joao-felix-chelsea-transfer/
+
+**Ex-NFLer Gosder Cherilus arrested after allegedly urinating on flight passenger**\
+`Cherilus was a first-round draft pick of the Detroit Lions out of Boston College in 2008.`\
+https://nytimes.com/athletic/5709774/2024/08/19/godser-cherilus-arrested-airline-urinating/
+
 **Messi left out of Argentina squad after Copa injury**\
 `Lionel Messi has been left out of the Argentina squad for their upcoming World Cup qualifiers.`\
 https://nytimes.com/athletic/5709858/2024/08/19/lionel-messi-injury-argentina-squad/
