@@ -3,7 +3,7 @@
 https://nytimes.com/topic/karl-a-racine
 
 **Gundogan's City return is a no-brainer**\
-`Former City captain's return from Barcelona feels so obvious. It has to happen… surely?`\
+`The former City captain's return from Barcelona after just one season away feels so obvious. It has to happen… surely?`\
 https://nytimes.com/athletic/5709849/2024/08/19/ilkay-gundogans-manchester-city-return-is-a-no-brainer/
 
 **Chelsea's Humphreys set for loan with obligation move to Burnley**\
