@@ -1,3 +1,7 @@
+**The Athletic FC: Don't take your eyes off Chelsea, why Pochettino has not sealed USMNT deal**\
+`Today in TAFC: Sterling's stand-off with Chelsea, we rank EPL away kits - and what is the wait for Pochettino and USMNT?`\
+https://nytimes.com/athletic/5709273/2024/08/19/chelsea-pochettino-usmnt-liverpool-sterling/
+
 **Palestinian militants claim a suicide bombing in Tel Aviv, and other news.**\
 
 **What Business Wants to Learn About Harris**\
