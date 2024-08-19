@@ -1,3 +1,11 @@
+**Kamalanomics, Revealed: A Solid Center-Left Agenda**\
+`And no, she hasn’t called for price controls.`\
+https://nytimes.com/2024/08/19/opinion/kamala-harris-economic-agenda.html
+
+**Harris’s Economic Plan Isn’t Perfect, but It’s Better Than Trump’s**\
+`She’s right to focus on the high cost of living, even if the details could use some tweaks.`\
+https://nytimes.com/2024/08/19/opinion/kamala-harris-economics-trump.html
+
 **Robert F. Kennedy Jr. Could Be Blocked From New York’s Ballot, Again**\
 `Last week, he was booted for using a fake address. This week, a suit claims that people gathering signatures for the candidate deceived voters.`\
 https://nytimes.com/2024/08/19/nyregion/rfk-jr-new-york-ballot.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5710141/2024/08/19/ducks-fan-survey-verbeek-gauthie
 **Michel Guérard, Who Lowered the Calories in Haute Cuisine, Dies at 91**\
 `Appalled by the food options available to those seeking to lose weight, he developed a form of nouvelle cuisine for dieters at a spa in southwestern France.`\
 https://nytimes.com/2024/08/19/dining/michel-guerard-dead.html
-
-**Trump’s Archaic Vision of a Communist Convention**\
-`Out of ideas, he borrows from McCarthy’s old playbook.`\
-https://nytimes.com/live/2024/08/13/opinion/thepoint/trump-harris-communist-convention
-
-**Mark A Takano**\
-`News about Mark A Takano. Commentary and archival information about Mark A Takano from The New York Times.`\
-https://nytimes.com/topic/mark-a-takano
 
