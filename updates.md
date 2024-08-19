@@ -1,3 +1,7 @@
+**49ers' Brock Purdy sputters without top pass catchers ... or top play caller**\
+`One of the standouts from Sunday's game was rookie receiver Jacob Cowing, who's in the mix for the role of punt returner.`\
+https://nytimes.com/athletic/5709014/2024/08/19/49ers-preseason-brock-purdy-kyle-shanahan/
+
 **The China Hangover Is Here**\
 `The party is over for China’s economy, and poor nations around the world are feeling the effects.`\
 https://nytimes.com/2024/08/19/opinion/china-economy-debt-developing-countries.html

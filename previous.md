@@ -1,3 +1,7 @@
+**49ers' Brock Purdy sputters without top pass catchers ... or top play caller**\
+`One of the standouts from Sunday's game was rookie receiver Jacob Cowing, who's in the mix for the role of punt returner.`\
+https://nytimes.com/athletic/5709014/2024/08/19/49ers-preseason-brock-purdy-kyle-shanahan/
+
 **The China Hangover Is Here**\
 `The party is over for China’s economy, and poor nations around the world are feeling the effects.`\
 https://nytimes.com/2024/08/19/opinion/china-economy-debt-developing-countries.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5700454/2024/08/19/jhon-duran-aston-villa-transfer-
 **It will take time for Palace to adapt to life without Olise - but Glasner must get it right**\
 `The departed talisman could win matches on his own and manager Glasner now faces the challenge of replicating that. How best to go about it?`\
 https://nytimes.com/athletic/5705569/2024/08/19/crystal-palace-olise-glasner/
-
-**Haaland can just stand and watch - and do his job for City at the same time**\
-`Erling Haaland played just three passes for Manchester City against Chelsea - and that is still enough`\
-https://nytimes.com/athletic/5708389/2024/08/19/erling-haaland-manchester-city-chelsea/
 
