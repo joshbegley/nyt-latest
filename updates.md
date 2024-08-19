@@ -1,3 +1,7 @@
+**Forest considering fresh bid for Feyenoord striker Gimenez**\
+`Nottingham Forest are considering whether to make a fresh bid for Feyenoord striker Santiago Gimenez.`\
+https://nytimes.com/athletic/5709246/2024/08/19/santiago-gimenez-nottingham-forest-transfer/
+
 **Stephon Gilmore's signing adds intrigue to Brian Flores' ascending Vikings defense**\
 `The 33-year-old corner, the 2019 NFL Defensive Player of the Year, will bring experience, swagger and versatility to the Vikings defense.`\
 https://nytimes.com/athletic/5708414/2024/08/19/stephon-gilmore-signing-vikings-defense/
