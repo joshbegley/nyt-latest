@@ -1,3 +1,7 @@
+**Yusef Salaam, of ‘Central Park 5,’ to Speak at Democratic Convention**\
+`Mr. Salaam will be joined onstage in Chicago by three other men he was wrongly convicted with and will speak about the dangers of re-electing Donald Trump.`\
+https://nytimes.com/2024/08/19/nyregion/yusef-salaam-dnc-central-park-five.html
+
 **Kiyo A Matsumoto**\
 `News about Kiyo A Matsumoto. Commentary and archival information about Kiyo A Matsumoto from The New York Times.`\
 https://nytimes.com/topic/kiyo-a-matsumoto
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/19/us/tim-walz-fertility-pregnancy.html
 **Israel Accepts Proposal to Bridge Differences on Cease-Fire, Blinken Says**\
 `The statement by the Secretary of State put new pressure on Hamas, whose officials have called the proposal fundamentally slanted toward Israel.`\
 https://nytimes.com/2024/08/19/world/middleeast/israel-cease-fire-proposal-hamas-blinken.html
-
-**George Santos Pleads Guilty to Wire Fraud and Identity Theft**\
-`The disgraced former Republican congressman from New York was charged with 23 felony counts for a number of schemes, including stealing money from donors and lying to the government to cover his tracks.`\
-https://nytimes.com/video/us/politics/100000009639309/george-santos-guilty-plea.html
 
