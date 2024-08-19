@@ -1,3 +1,7 @@
+**The Harris campaign starts a WhatsApp channel to target Latino voters.**\
+`By Jazmine Ulloa`\
+https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/the-harris-campaign-starts-a-whatsapp-channel-to-target-latino-voters
+
 **1 Dead and 6 Missing After Yacht Sinks off Sicily**\
 `Fifteen people have been rescued after the ship went down in a storm, and expert divers were called in given the depth of the operation.`\
 https://nytimes.com/2024/08/19/world/europe/italy-sicily-yacht-sinks.html
