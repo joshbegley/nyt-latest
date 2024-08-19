@@ -1,3 +1,11 @@
+**How Well Do You Know Rome, and These Books Set in the City?**\
+`Try this short literary geography quiz focused on Italy’s ancient capital.`\
+https://nytimes.com/interactive/2024/08/19/books/review/rome-books-quiz.html
+
+**Trump Promotes A.I. Images to Suggest That Taylor Swift Endorsed Him**\
+`The former president has been preoccupied with the popularity of the pop music megastar, who endorsed Joseph R. Biden Jr. over him during the 2020 election.`\
+https://nytimes.com/2024/08/19/us/politics/trump-taylor-swift-ai-images.html
+
 **Mother and 6 Children Are Killed in Israeli Strike in Gaza, Family Says**\
 `A Palestinian teacher and all her children were killed in a strike in Deir al-Balah that the Israeli military said had targeted “a significant Islamic Jihad terrorist.”`\
 https://nytimes.com/2024/08/19/world/middleeast/woman-six-children-israeli-airstrike-gaza.html
