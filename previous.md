@@ -1,3 +1,11 @@
+**Five questions entering the Eagles' final preseason game**\
+`Depth and health are the main issues going into the final preseason game.`\
+https://nytimes.com/athletic/5705199/2024/08/19/eagles-vikings-final-preseason-game-questions/
+
+**Messi left out of Argentina squad for September fixtures**\
+`Lionel Messi has been left out of the Argentina squad for their upcoming World Cup qualifiers.`\
+https://nytimes.com/athletic/5709858/2024/08/19/lionel-messi-injury-argentina-squad/
+
 **The Windup: Pirates tempted to shut Skenes down?**\
 `Welcome to The Windup, The Athletic's MLB newsletter. `\
 https://nytimes.com/athletic/5709834/2024/08/19/paul-skenes-pirates-danny-jansen-mlb-the-windup/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/19/dining/zucchini-dinner.html
 **A Personalized Brain Pacemaker for Parkinson’s**\
 `In a new frontier for deep brain stimulation, researchers used A.I. to develop individualized algorithms, which helped a skateboarder and other patients with Parkinson’s disease.`\
 https://nytimes.com/2024/08/19/health/parkinsons-brain-pacemaker.html
-
-**This Spider Uses a Light Show to Trick Eager Male Fireflies Into Its Web**\
-`In China, the arachnids seem to somehow manipulate the flashing of a caught male firefly to resemble a female’s come-hither signal.`\
-https://nytimes.com/2024/08/19/science/spider-firefly-flash-web.html
-
-**5 Books to Make Caregiving a Little More Manageable**\
-`Health care professionals and other experts shared recommendations for anyone providing and receiving care.`\
-https://nytimes.com/2024/08/19/well/family/books-caregivers.html
 

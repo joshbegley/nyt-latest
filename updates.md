@@ -1,3 +1,11 @@
+**Five questions entering the Eagles' final preseason game**\
+`Depth and health are the main issues going into the final preseason game.`\
+https://nytimes.com/athletic/5705199/2024/08/19/eagles-vikings-final-preseason-game-questions/
+
+**Messi left out of Argentina squad for September fixtures**\
+`Lionel Messi has been left out of the Argentina squad for their upcoming World Cup qualifiers.`\
+https://nytimes.com/athletic/5709858/2024/08/19/lionel-messi-injury-argentina-squad/
+
 **The Windup: Pirates tempted to shut Skenes down?**\
 `Welcome to The Windup, The Athletic's MLB newsletter. `\
 https://nytimes.com/athletic/5709834/2024/08/19/paul-skenes-pirates-danny-jansen-mlb-the-windup/
