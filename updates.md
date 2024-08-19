@@ -1,3 +1,11 @@
+**Chargers Qb Justin Herbert returns to practice**\
+`Los Angeles Chargers quarterback Justin Herbert returned to practice for the first time since sustaining an injury to the plantar fascia in his right foot earlier in training camp.`\
+https://nytimes.com/athletic/5710603/2024/08/19/chargers-justin-herbert-practice-foot-injury/
+
+**Nicaragua Shutters 1,500 Nonprofit Groups, Many of Them Churches**\
+`The government of President Daniel Ortega revoked the legal status of hundreds of evangelical groups as part of its crackdown on institutions that do not bow to its authority.`\
+https://nytimes.com/2024/08/19/world/americas/nicaragua-crackdown-ngos-churches.html
+
 **What Are Protesters’ Rights During the D.N.C.?**\
 `The boundaries of First Amendment rights and the government’s duty to maintain public order threaten to collide this week.`\
 https://nytimes.com/2024/08/19/us/politics/what-are-protesters-rights-during-the-dnc.html
