@@ -1,3 +1,11 @@
+**Tuesday Briefing: U.S. Said Israel Agreed to Cease-Fire Proposal**\
+`Plus, opening night at the Democratic convention.`\
+https://nytimes.com/2024/08/19/briefing/gaza-cease-fire-democratic-national-convention-ukraine-kursk.html
+
+**Wolves make Ramsdale proposal to Arsenal**\
+`Wolverhampton Wanderers have submitted a proposal to sign Aaron Ramsdale from Arsenal.`\
+https://nytimes.com/athletic/5698376/2024/08/19/aaron-ramsdale-wolves/
+
 **What to Watch For at the Democratic National Convention**\
 `The week will be defined by a changing of the guard.`\
 https://nytimes.com/live/2024/08/13/opinion/thepoint/democratic-convention-themes
