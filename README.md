@@ -1,3 +1,11 @@
+**NFL injury mailbag: The concern level for Jahmyr Gibbs, the Rams' passing attack and more**\
+`Greg Scholz of Inside Injuries answers your health-related NFL questions, including the prognosis of Jahmyr Gibbs' hamstring issue.`\
+https://nytimes.com/athletic/5709761/2024/08/19/nfl-injury-mailbag-jahmyr-gibbs-fantasy-football-2024/
+
+**Ruth Johnson Colvin, Founder of Literacy Volunteers, Dies at 107**\
+`Working out of her basement, and with no teaching experience, she created a nonprofit that helped people around the world learn to read.`\
+https://nytimes.com/2024/08/19/us/ruth-johnson-colvin-dead.html
+
 **Warning Signs Flash in a Labor Survey as Fed Officials Watch for Weakness**\
 `The New York Fed’s labor market survey showed cracks just as Jerome H. Powell, the Fed chair, prepares for a closely watched Friday speech.`\
 https://nytimes.com/2024/08/19/business/economy/fed-labor-jobs.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5709224/2024/08/19/tennis-schedule-swiatek-cincinna
 **6 Things to Watch For at the Democratic Convention**\
 `Vice President Kamala Harris has never commanded a spotlight this big. The party faces potential fractures over the war in Gaza. And Hillary Clinton’s speech will be a reminder of what might have been.`\
 https://nytimes.com/2024/08/19/us/politics/dnc-what-to-watch.html
-
-**Ukraine Strikes Bridges in Russia, Aiming to Entrap Troops**\
-`The attacks look to destroy or damage crossings over a river in the Kursk region that are Russian forces’ only routes for resupply or retreat, military analysts say.`\
-https://nytimes.com/2024/08/19/world/europe/ukraine-attacks-russia-bridges-border.html
-
-**Leicester confirm Skipp signing**\
-`Leicester City have confirmed the arrival of midfielder Oliver Skipp from Tottenham Hotspur.`\
-https://nytimes.com/athletic/5707569/2024/08/19/oliver-skipp-leicester-transfer-tottenham/
 
