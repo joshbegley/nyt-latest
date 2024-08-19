@@ -1,3 +1,7 @@
+**Newcastle must act wisely before the window shuts - their season could depend on it**\
+`Eddie Howe's team needs to be strengthened if they are to keep competing at the top, so expect a busy final fortnight of player recruitment`\
+https://nytimes.com/athletic/5704716/2024/08/19/newcastle-transfer-window-must-act/
+
 **The Briefing: Sterling sums up Chelsea chaos, City grind on and Mosquera weirdness**\
 `The big talking points from the Premier League weekend - including an explosive statement, an ominous win and a digital examination`\
 https://nytimes.com/athletic/5708438/2024/08/19/chelsea-raheem-sterling-chaos/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5706101/2024/08/19/watching-wrexham-with-the-fans/
 **Monday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2024/08/19/briefing/democratic-national-convention-blinken-ukraine.html
-
-**Businesses Are Already Girding for Next Phase of the U.S.-China Trade War**\
-`Alarmed by the prospect of increased tariffs on Chinese goods if Donald Trump is elected, some American companies are stockpiling parts and delaying expansions.`\
-https://nytimes.com/2024/08/19/business/china-us-trade-war.html
 
