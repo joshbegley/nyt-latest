@@ -1,3 +1,7 @@
+**Batty Outfits, Sappy Romances: How ‘Emily in Paris’ Keeps You Coming Back for More**\
+`A Styles group chat on Season 4 of the Netflix series, with its Eurovision preparations, Claude Monet pond and cardigans included.`\
+https://nytimes.com/2024/08/19/style/emily-in-paris-season-4-netflix.html
+
 **Yusef Salaam, of ‘Central Park 5,’ to Speak at Democratic Convention**\
 `Mr. Salaam will be joined onstage in Chicago by three other men he was wrongly convicted with and will speak about the dangers of re-electing Donald Trump.`\
 https://nytimes.com/2024/08/19/nyregion/yusef-salaam-dnc-central-park-five.html

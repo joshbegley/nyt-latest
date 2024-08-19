@@ -1,3 +1,7 @@
+**Batty Outfits, Sappy Romances: How ‘Emily in Paris’ Keeps You Coming Back for More**\
+`A Styles group chat on Season 4 of the Netflix series, with its Eurovision preparations, Claude Monet pond and cardigans included.`\
+https://nytimes.com/2024/08/19/style/emily-in-paris-season-4-netflix.html
+
 **Yusef Salaam, of ‘Central Park 5,’ to Speak at Democratic Convention**\
 `Mr. Salaam will be joined onstage in Chicago by three other men he was wrongly convicted with and will speak about the dangers of re-electing Donald Trump.`\
 https://nytimes.com/2024/08/19/nyregion/yusef-salaam-dnc-central-park-five.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5710688/2024/08/19/bears-ryan-poles-caleb-williams/
 **Walz Family Fertility Journey Ran Not Through I.V.F. but Another Common Treatment**\
 `Unlike in vitro fertilization, the procedure used by the Walzes does not involve freezing embryos, so it has not been targeted by anti-abortion leaders.`\
 https://nytimes.com/2024/08/19/us/tim-walz-fertility-pregnancy.html
-
-**Israel Accepts Proposal to Bridge Differences on Cease-Fire, Blinken Says**\
-`The statement by the Secretary of State put new pressure on Hamas, whose officials have called the proposal fundamentally slanted toward Israel.`\
-https://nytimes.com/2024/08/19/world/middleeast/israel-cease-fire-proposal-hamas-blinken.html
 
