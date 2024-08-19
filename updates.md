@@ -1,3 +1,7 @@
+**The Run-Up: A Democratic insider’s guide to this week in Chicago.**\
+`By ‘The Run-Up’ Team`\
+https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/the-run-up-a-democratic-insiders-guide-to-this-week-in-chicago
+
 **In Nevada, Rosen Skips Convention but Hopes to Benefit From Harris’s Rise**\
 `Senator Jacky Rosen led her Republican opponent by double digits in two recent polls, but she is taking nothing for granted in her competitive and costly re-election race.`\
 https://nytimes.com/2024/08/19/us/politics/nevada-jacky-rosen.html

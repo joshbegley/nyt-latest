@@ -1,3 +1,7 @@
+**The Run-Up: A Democratic insider’s guide to this week in Chicago.**\
+`By ‘The Run-Up’ Team`\
+https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/the-run-up-a-democratic-insiders-guide-to-this-week-in-chicago
+
 **In Nevada, Rosen Skips Convention but Hopes to Benefit From Harris’s Rise**\
 `Senator Jacky Rosen led her Republican opponent by double digits in two recent polls, but she is taking nothing for granted in her competitive and costly re-election race.`\
 https://nytimes.com/2024/08/19/us/politics/nevada-jacky-rosen.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/19/nyregion/eric-adams-assault-lawsuit.html
 **College football Week 0 best bets and projections plus some look-ahead bets**\
 `Austin Mock makes his first bets of the college football season with Week 0 here. He also looks ahead to some big games later in the season.`\
 https://nytimes.com/athletic/5709570/2024/08/19/college-football-week-0-best-bets-projections/
-
-**Germany's Gundogan retires from international football**\
-`Germany captain Ilkay Gundogan has retired from international football.`\
-https://nytimes.com/athletic/5710044/2024/08/19/ilkay-gundogan-retirement/
 
