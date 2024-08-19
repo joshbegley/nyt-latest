@@ -1,3 +1,11 @@
+**Gallagher's Atletico move expected to proceed after Joao Felix agreement**\
+`Conor Gallagher&#8217;s move to Atletico Madrid is expected to proceed after Chelsea agreed a deal to sign Joao Felix from the Spanish club.`\
+https://nytimes.com/athletic/5671315/2024/08/19/conor-gallagher-transfer-atletico-chelsea/
+
+**Braves 3B Austin Riley out 6-8 weeks with fractured hand**\
+`Angels starter Jack Kochanowicz hit Riley in the right hand with a 97-mph fastball.`\
+https://nytimes.com/athletic/5710364/2024/08/19/austin-riley-braves-fractured-hand-injury/
+
 **Some Republicans Will Take Center Stage at the Democratic Convention**\
 `At least three Republicans will have prominent speaking roles this week, as the Harris campaign taps into opposition to Donald J. Trump from within his own party.`\
 https://nytimes.com/2024/08/19/us/politics/dnc-republicans.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/19/arts/design/british-museum-gems-recovery.html
 **Philippines Reports First Mpox Case Since W.H.O. Declared Global Emergency**\
 `It was not clear if the patient had contracted the new, potentially more deadly strain of the disease, which first appeared outside of Africa in Sweden last week.`\
 https://nytimes.com/2024/08/19/world/asia/philippines-mpox-case.html
-
-**As new rule yields more returns, NFL doesn't rule out more tweaks**\
-`The NFL made dramatic changes to its kickoff rules in March with the intention of boosting the number of kickoff returns while also mitigating the risk of a high rate of significant injuries.`\
-https://nytimes.com/athletic/5710186/2024/08/19/new-rule-yields-more-returns-nfl-doesnt-rule-out-tweaks/
-
-**Fulham close to signing Berge from Burnley**\
-`Fulham are close to completing the signing of Burnley midfielder Sander Berge.`\
-https://nytimes.com/athletic/5710241/2024/08/19/fulham-sander-berge-burnley/
 
