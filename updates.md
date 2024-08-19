@@ -1,3 +1,7 @@
+**Oilers acquire Podkolzin from Canucks, Emberson from Sharks**\
+`Podkolzin has appeared in 137 career games with the NHL club and recorded 18 goals and 35 points.`\
+https://nytimes.com/athletic/5708725/2024/08/18/oilers-canucks-vasily-podkolzin-nhl/
+
 **The A's and Giants close out a Bay Area rivalry with a final flourish of late-inning drama**\
 `The Giants closed out the last Bay Bridge series game at the Coliseum with two home runs in the 10th inning.`\
 https://nytimes.com/athletic/5708873/2024/08/18/oakland-athletics-sf-giants-bay-bridge-series-coliseum/
