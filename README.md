@@ -1,3 +1,7 @@
+**Biden Will Pass the Torch to Harris in His Convention Speech**\
+`President Biden and his top aides have spent days reworking his original address, which he expected to give as the Democratic nominee, for a new moment.`\
+https://nytimes.com/2024/08/19/us/politics/biden-democratic-national-convention-speech.html
+
 **Chelsea agree deal to sign Joao Felix**\
 `Chelsea have reached an agreement with Atletico Madrid for the permanent signing of Portugal forward Joao Felix.`\
 https://nytimes.com/athletic/5695590/2024/08/19/joao-felix-chelsea-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5709761/2024/08/19/nfl-injury-mailbag-jahmyr-gibbs-
 **Ruth Johnson Colvin, Founder of Literacy Volunteers, Dies at 107**\
 `Working out of her basement, and with no teaching experience, she created a nonprofit that helped people around the world learn to read.`\
 https://nytimes.com/2024/08/19/us/ruth-johnson-colvin-dead.html
-
-**Warning Signs Flash in a Labor Survey as Fed Officials Watch for Weakness**\
-`The New York Fed’s labor market survey showed cracks just as Jerome H. Powell, the Fed chair, prepares for a closely watched Friday speech.`\
-https://nytimes.com/2024/08/19/business/economy/fed-labor-jobs.html
 
