@@ -1,3 +1,7 @@
+**Hamas and Islamic Jihad Claim Responsibility for Tel Aviv Bombing**\
+`The two groups described the attack as a suicide bombing, but an Israeli statement did not. If confirmed, it would be the first suicide bombing in Israel in roughly eight years.`\
+https://nytimes.com/2024/08/19/world/middleeast/tel-aviv-bomb-hamas.html
+
 **Gallagher's Atletico move expected to proceed after Joao Felix agreement**\
 `Conor Gallagher&#8217;s move to Atletico Madrid is expected to proceed after Chelsea agreed a deal to sign Joao Felix from the Spanish club.`\
 https://nytimes.com/athletic/5671315/2024/08/19/conor-gallagher-transfer-atletico-chelsea/
