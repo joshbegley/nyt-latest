@@ -1,3 +1,15 @@
+**John Harbaugh says the Ravens are closing in on their starting OL decisions**\
+`Andrew Vorhees and Daniel Faalele look like they'll be the Ravens' starting guards for the Week 1 opener against the Chiefs.`\
+https://nytimes.com/athletic/5710851/2024/08/19/baltimore-ravens-offensive-line-starters-week-1/
+
+**How the onslaught of Bills injuries impacts cutdown day**\
+`A crop of injuries could force the Bills to make some tough decisions.`\
+https://nytimes.com/athletic/5710753/2024/08/19/buffalo-bills-injuries-cutdown-day/
+
+**Tonight, the Democrats Feature a MAGA Refugee**\
+`Emerging from the movement can feel like escaping a cult.`\
+https://nytimes.com/live/2024/08/13/opinion/thepoint/rich-logis-leaving-maga
+
 **Henry A Waxman**\
 `News about Henry A Waxman. Commentary and archival information about Henry A Waxman from The New York Times.`\
 https://nytimes.com/topic/henry-a-waxman
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5710653/2024/08/19/laine-trade-canadiens-blue-jacke
 **In Pennsylvania, Donald Trump goes after his old opponent as much as his new one.**\
 `Mr. Trump’s speech on Monday kicked off a week of campaign events in battleground states, as Democrats gathered in Chicago for their national convention.`\
 https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/in-pennsylvania-donald-trump-goes-after-his-old-opponent-as-much-as-his-new-one
-
-**Woman Gets 11 Years in Prison for Fatally Shooting Man She Said Trafficked Her**\
-`The Wisconsin Supreme Court ruled in 2022 that Chrystul Kizer could argue at trial that she had been justified in fatally shooting Randall Volar, through a state law that supports trafficking victims.`\
-https://nytimes.com/2024/08/19/us/chrystul-kizer-sentencing-wisconsin.html
-
-**Batty Outfits, Sappy Romances: How ‘Emily in Paris’ Keeps You Coming Back for More**\
-`A Styles group chat on Season 4 of the Netflix series, with its Eurovision preparations, Claude Monet pond and cardigans included.`\
-https://nytimes.com/2024/08/19/style/emily-in-paris-season-4-netflix.html
-
-**Yusef Salaam, of ‘Central Park 5,’ to Speak at Democratic Convention**\
-`Mr. Salaam will be joined onstage in Chicago by three other men he was wrongly convicted with and will speak about the dangers of re-electing Donald Trump.`\
-https://nytimes.com/2024/08/19/nyregion/yusef-salaam-dnc-central-park-five.html
 
