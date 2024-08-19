@@ -1,3 +1,11 @@
+**In Nevada, Rosen Skips Convention but Hopes to Benefit From Harris’s Rise**\
+`Senator Jacky Rosen led her Republican opponent by double digits in two recent polls, but she is taking nothing for granted in her competitive and costly re-election race.`\
+https://nytimes.com/2024/08/19/us/politics/nevada-jacky-rosen.html
+
+**Jennifer Egan Looks Back at ‘A Visit From the Goon Squad’**\
+`The fourth in a series of conversations with authors appearing on our “Best Books of the 21st Century” list.`\
+https://nytimes.com/2024/08/19/books/review/podcast-jennifer-egan.html
+
 **Forest working on deal to sign Nketiah**\
 `Nottingham Forest have made Eddie Nketiah their top target to strengthen in attack and are pursuing a move to sign the striker from Arsenal.`\
 https://nytimes.com/athletic/5695935/2024/08/19/eddie-nketiah-nottingham-forest/

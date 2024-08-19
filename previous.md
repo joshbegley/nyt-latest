@@ -1,3 +1,11 @@
+**In Nevada, Rosen Skips Convention but Hopes to Benefit From Harris’s Rise**\
+`Senator Jacky Rosen led her Republican opponent by double digits in two recent polls, but she is taking nothing for granted in her competitive and costly re-election race.`\
+https://nytimes.com/2024/08/19/us/politics/nevada-jacky-rosen.html
+
+**Jennifer Egan Looks Back at ‘A Visit From the Goon Squad’**\
+`The fourth in a series of conversations with authors appearing on our “Best Books of the 21st Century” list.`\
+https://nytimes.com/2024/08/19/books/review/podcast-jennifer-egan.html
+
 **Forest working on deal to sign Nketiah**\
 `Nottingham Forest have made Eddie Nketiah their top target to strengthen in attack and are pursuing a move to sign the striker from Arsenal.`\
 https://nytimes.com/athletic/5695935/2024/08/19/eddie-nketiah-nottingham-forest/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5709570/2024/08/19/college-football-week-0-best-bet
 **Germany's Gundogan retires from international football**\
 `Germany captain Ilkay Gundogan has retired from international football.`\
 https://nytimes.com/athletic/5710044/2024/08/19/ilkay-gundogan-retirement/
-
-**Tagovailoa recalls former coach Flores' comments: 'You shouldn't be here'**\
-`Tagovailoa said Flores would tell him comments like, 'You suck at what you did' and 'You shouldn't be here.'`\
-https://nytimes.com/athletic/5709996/2024/08/19/tua-tagovailoa-mike-mcdaniel-brian-flores/
-
-**The Bounce: Is Jrue Holiday a future Hall of Famer?**\
-`Zach Harper and Shams Charania catch you up on league-wide news.`\
-https://nytimes.com/athletic/5709891/2024/08/19/jrue-holiday-celtics-hall-of-fame-western-conference-guerschon-yabusele-76ers-nba-the-bounce/
 
