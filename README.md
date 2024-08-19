@@ -1,3 +1,15 @@
+**What to expect from The Athletic's new sports collectibles coverage**\
+`Welcome to The Athletic's sports collectibles coverage: Bringing new insight, guidance and analysis to the hobby`\
+https://nytimes.com/athletic/5705108/2024/08/19/sports-collectibles-coverage-welcome/
+
+**Sports collectors, tell us your thoughts on the industry**\
+`As we launch our coverage of the sports memorabilia and collectibles industry, we want to hear from you `\
+https://nytimes.com/athletic/5708169/2024/08/19/sports-collectors-survey/
+
+**Climate Groups Begin $55 Million Ad Campaign for Kamala Harris**\
+`Three of the ads frame Biden-Harris policies in terms of their economic, rather than environmental, benefits.`\
+https://nytimes.com/2024/08/19/us/politics/climate-ads-kamala-harris.html
+
 **Gundogan exploring options, Premier League clubs interested in Barcelona midfielder**\
 `Ilkay Gundogan is exploring his options amid the possibility of leaving Barcelona.`\
 https://nytimes.com/athletic/5709424/2024/08/19/ilkay-gundogan-transfer-barcelona/
