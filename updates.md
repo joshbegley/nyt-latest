@@ -1,3 +1,7 @@
+**Becky Hammon addresses Dearica Hamby lawsuit: 'It just didn't happen'**\
+`Hamby learned she was pregnant in July 2022, while playing for the Aces.`\
+https://nytimes.com/athletic/5708880/2024/08/18/becky-hammon-dearica-hamby-lawsuit/
+
 **Yankees call up Jasson Domínguez for Little League Classic, which may hint at bigger plan**\
 `The Martian's call-up will likely last just one game, but he could make some noise in September and beyond.`\
 https://nytimes.com/athletic/5708644/2024/08/18/yankees-jasson-dominguez-call-up-plan/
