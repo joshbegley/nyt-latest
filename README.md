@@ -1,3 +1,7 @@
+**Flash Flooding Strands People in Connecticut**\
+`In Oxford, Conn., a restaurant and its parking lot flooded, trapping more than a dozen people inside until a volunteer fire department came to help.`\
+https://nytimes.com/video/weather/100000009636506/connecticut-floods-new-york.html
+
 **Yankees' Jazz Chisholm Jr. pays it forward with new 'little brother' at Little League Classic**\
 `Chisholm said that as a boy three major leaguers treated him like a little brother and he wanted to do the same for the next generation.`\
 https://nytimes.com/athletic/5708928/2024/08/19/yankees-jazz-chisholm-little-league-classic/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5706382/2024/08/19/west-ham-fans-london-stadium-pri
 **Brighton have immense attacking depth - with Rutter, Gruda and Ferguson still to come**\
 `Brighton showed immense attacking quality against Everton — and they still have more players on the way`\
 https://nytimes.com/athletic/5706580/2024/08/19/brighton-attack-rutter-gruda-ferguson/
-
-**Newcastle must act wisely before the window shuts - their season could depend on it**\
-`Eddie Howe's team needs to be strengthened if they are to keep competing at the top, so expect a busy final fortnight of player recruitment`\
-https://nytimes.com/athletic/5704716/2024/08/19/newcastle-transfer-window-must-act/
 
