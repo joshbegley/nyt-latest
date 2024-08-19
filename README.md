@@ -1,3 +1,7 @@
+**Scoop City: Denver's starting QB**\
+`Why the Steelers quarterbacks are trending down, rookie QBs are up and Bo Nix should be named the starter.`\
+https://nytimes.com/athletic/5709682/2024/08/19/scoop-city-denvers-starting-qb/
+
 **‘World News Tonight’ Producer Named President of ABC News**\
 `Almin Karamehmedovic, the senior executive producer of ABC’s flagship newscast with anchor David Muir, will run Disney’s news division.`\
 https://nytimes.com/2024/08/19/business/media/abc-news-president-karamehmedovic.html
@@ -34,4 +38,3 @@ https://nytimes.com/athletic/5708999/2024/08/19/49ers-malik-mustapha-renardo-gre
 `See the likely path and wind arrival times for Gilma.`\
 https://nytimes.com/interactive/2024/08/19/weather/gilma-map-path-tracker.html
 
-**Spots for a Late Summer Trip: Not Too Hot, Not Too Crowded**\
