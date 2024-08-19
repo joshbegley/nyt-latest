@@ -1,3 +1,7 @@
+**The Bounce: Is Jrue Holiday a future Hall of Famer?**\
+`Zach Harper and Shams Charania catch you up on league-wide news.`\
+https://nytimes.com/athletic/5709891/2024/08/19/jrue-holiday-celtics-hall-of-fame-western-conference-guerschon-yabusele-76ers-nba-the-bounce/
+
 **High Food Prices: The Causes and the Politics**\
 `Summary summary summary`\
 https://nytimes.com/2024/08/19/opinion/letters/high-food-prices.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5695590/2024/08/19/joao-felix-chelsea-transfer/
 **Ex-NFLer Gosder Cherilus arrested after allegedly urinating on flight passenger**\
 `Cherilus was a first-round draft pick of the Detroit Lions out of Boston College in 2008.`\
 https://nytimes.com/athletic/5709774/2024/08/19/godser-cherilus-arrested-airline-urinating/
-
-**Five questions entering the Eagles' final preseason game**\
-`Depth and health are the main issues going into the final preseason game.`\
-https://nytimes.com/athletic/5705199/2024/08/19/eagles-vikings-final-preseason-game-questions/
 
