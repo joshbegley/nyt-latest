@@ -1,3 +1,11 @@
+**The China Hangover Is Here**\
+`The party is over for China’s economy, and poor nations around the world are feeling the effects.`\
+https://nytimes.com/2024/08/19/opinion/china-economy-debt-developing-countries.html
+
+**What’s on TV This Week: ‘The Anonymous’ and the Democratic National Convention**\
+`A new competition show airs on USA and Bravo. And Kamala Harris will be officially nominated as the party’s candidate across networks.`\
+https://nytimes.com/2024/08/19/arts/television/whats-on-tv-this-week-the-anonymous-and-the-democratic-national-convention.html
+
 **Flash Flooding Strands People in Connecticut**\
 `In Oxford, Conn., a restaurant and its parking lot flooded, trapping more than a dozen people inside until a volunteer fire department came to help.`\
 https://nytimes.com/video/weather/100000009636506/connecticut-floods-new-york.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5705569/2024/08/19/crystal-palace-olise-glasner/
 **Haaland can just stand and watch - and do his job for City at the same time**\
 `Erling Haaland played just three passes for Manchester City against Chelsea - and that is still enough`\
 https://nytimes.com/athletic/5708389/2024/08/19/erling-haaland-manchester-city-chelsea/
-
-**West Ham fans and the London Stadium ticket row: 'My son is heartbroken that he can't go'**\
-`West Ham fans are at odds with the club's new season ticket pricing policy. Many now feel priced out `\
-https://nytimes.com/athletic/5706382/2024/08/19/west-ham-fans-london-stadium-prices/
-
-**Brighton have immense attacking depth - with Rutter, Gruda and Ferguson still to come**\
-`Brighton showed immense attacking quality against Everton — and they still have more players on the way`\
-https://nytimes.com/athletic/5706580/2024/08/19/brighton-attack-rutter-gruda-ferguson/
 
