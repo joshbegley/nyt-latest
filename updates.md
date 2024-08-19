@@ -1,3 +1,7 @@
+**Flash Flooding Strands People in Connecticut**\
+`In Oxford, Conn., a restaurant and its parking lot flooded, trapping more than a dozen people inside until a volunteer fire department came to help.`\
+https://nytimes.com/video/weather/100000009636506/connecticut-floods-new-york.html
+
 **Yankees' Jazz Chisholm Jr. pays it forward with new 'little brother' at Little League Classic**\
 `Chisholm said that as a boy three major leaguers treated him like a little brother and he wanted to do the same for the next generation.`\
 https://nytimes.com/athletic/5708928/2024/08/19/yankees-jazz-chisholm-little-league-classic/
