@@ -1,40 +1,40 @@
-**The Athletic 134: Ranking every team from No. 1 Ohio State to No. 134 Kennesaw State**\
-`Ohio State stands atop the rankings of all 134 FBS college football teams entering 2024. Where does everyone else rank?`\
-https://nytimes.com/athletic/5706595/2024/08/19/college-football-2024-preseason-rankings/
+**The Harris campaign starts a WhatsApp channel to target Latino voters.**\
+`By Jazmine Ulloa`\
+https://nytimes.com/2024/08/19/us/politics/the-harris-campaign-starts-a-whatsapp-channel-to-target-latino-voters.html
 
-**Real Madrid briefing: Mbappe frustrated on La Liga debut as Rodrygo makes his point**\
-`After being held to a 1-1 draw by Mallorca, Real Madrid's frustrations were obvious to see`\
-https://nytimes.com/athletic/5709080/2024/08/19/real-madrid-mbappe-rodrygo-anceoltti-la-liga-mallorca/
+**3 Women With Harrowing Pregnancy Stories Will Speak at Convention**\
+`The three women, who have become surrogates for the Democrats’ presidential campaign, will on Monday focus on abortion rights, a key pillar of the party’s policy goals.`\
+https://nytimes.com/2024/08/19/us/politics/harris-dnc-abortion-rights.html
 
-**George Santos Is Expected to Plead Guilty to Crimes, Avoiding a Trial**\
-`Mr. Santos intends to enter a guilty plea and sidestep a federal trial, according to people familiar with the case.`\
-https://nytimes.com/2024/08/19/nyregion/george-santos-is-expected-to-plead-guilty-to-crimes-avoiding-a-trial.html
+**A $6 Billion Breakthrough or a Drop in the Bucket?**\
+`The government is finally negotiating drug prices.`\
+https://nytimes.com/2024/08/19/opinion/drug-prices-medicare.html
 
-**In Republican N.Y. Stronghold, Harris Ticket Lends Hope to a Democrat**\
-`Rep. Nick LaLota is questioning John Avlon’s local bona fides as they battle over who is more authentically of Long Island.`\
-https://nytimes.com/2024/08/19/nyregion/avlon-lalota-residency-congress.html
+**7 Last-Minute Escapes for Labor Day Weekend**\
+`If you’re still hoping to stretch out the last days of summer, there are places in North America that are not too hot, not too crowded and not necessarily that far away.`\
+https://nytimes.com/2024/08/19/travel/last-minute-labor-day-weekend-trips.html
 
-**What Happened to the Bus Lanes New Yorkers Were Promised?**\
-`Buses are often unreliable and slow (thanks to clogged streets), but even projects to ease these problems are getting delayed. Is Mayor Eric Adams to blame?`\
-https://nytimes.com/2024/08/19/nyregion/street-wars-bus-lanes.html
+**David French on the Pro-Life Case for Kamala Harris**\
+`“I’m voting against Trump precisely because I’m conservative,” the columnist says.`\
+https://nytimes.com/2024/08/19/opinion/harris-trump-conservatives.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/08/19/crosswords/spelling-bee-forum.html
+**Survivors of Doomsday Starvation Cult Testify Against Pastor and 93 Associates**\
+`An evangelical pastor in Kenya ordered his flock to shun education and medicine and starve their children to death in order to meet Jesus, witnesses in a manslaughter trial said.`\
+https://nytimes.com/2024/08/19/world/africa/kenya-doomsday-cult-trial.html
 
-**Part of Long Island Under Flash Flood Emergency After Heavy Rains**\
-`A flash flood emergency was declared for parts of Long Island early Monday, after torrential rain led to mudslides and washed-out roads in Connecticut.`\
-https://nytimes.com/2024/08/19/nyregion/long-island-flooding-rainfall-new-york.html
+**On Cat Ladies, Mama Bears and ‘Momala’**\
+`“Momala” makes for a charming political biography, but it isn’t powerful enough to counter the racial fears that nonwhite motherhood stokes in the nation.`\
+https://nytimes.com/2024/08/19/opinion/kamala-harris-momala-vance.html
 
-**Blinken Says Talks Are ‘Maybe the Last’ Chance for Gaza Cease-Fire**\
-`Secretary of State Antony Blinken, who was meeting with Prime Minister Benjamin Netanyahu on Monday, said recent negotiations had created room for a cease-fire and hostage release.`\
-https://nytimes.com/live/2024/08/19/world/israel-iran-hamas-gaza-war
+**Harris’s Early Campaign: Heavy on Buzz, Light on Policy**\
+`On policy, the vice president is drafting off President Biden, essentially cherry-picking the most popular parts of his agenda and betting that a younger messenger can sell them to Americans.`\
+https://nytimes.com/2024/08/19/us/politics/harris-campaign-policy.html
 
-**Blinken is in Israel to meet with Netanyahu and to push for a deal to end the fighting in Gaza.**\
-`By Robert Jimison`\
-https://nytimes.com/live/2024/08/19/world/israel-iran-hamas-gaza-war/blinken-is-in-israel-to-push-for-a-gaza-cease-fire-deal
+**How a Far-Right Takeover of Georgia’s Election Board Could Swing the Election**\
+`The unelected body that shapes voting rules has a new conservative majority who question the state’s 2020 results. They now have new power to influence the results in 2024.`\
+https://nytimes.com/2024/08/19/us/politics/trump-2024-georgia-elections.html
 
-**Word of the Day: honorarium**\
-`This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/08/19/learning/word-of-the-day-honorarium.html
+**Trekking 85 Miles With Grandpa, Scuba Diving With Grandma**\
+`With older adults staying fit longer, many are joining their grandchildren on travel adventures like wilderness hikes, bike tours and even bungee jumping.`\
+https://nytimes.com/2024/08/19/travel/grandparents-grandchildren-adventure.html
 
