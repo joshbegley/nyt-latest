@@ -1,3 +1,7 @@
+**The Athletic 134: Ranking every team from No. 1 Ohio State to No. 134 Kennesaw State**\
+`Ohio State stands atop the rankings of all 134 FBS college football teams entering 2024. Where does everyone else rank?`\
+https://nytimes.com/athletic/5706595/2024/08/19/college-football-2024-preseason-rankings/
+
 **Real Madrid briefing: Mbappe frustrated on La Liga debut as Rodrygo makes his point**\
 `After being held to a 1-1 draw by Mallorca, Real Madrid's frustrations were obvious to see`\
 https://nytimes.com/athletic/5709080/2024/08/19/real-madrid-mbappe-rodrygo-anceoltti-la-liga-mallorca/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/19/world/israel-iran-hamas-gaza-war/blinken-is-
 **Word of the Day: honorarium**\
 `This word has appeared in two articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/19/learning/word-of-the-day-honorarium.html
-
-**Joshua Dobbs' electric move in the 49ers' QB2 competition**\
-`Dobbs is a much more polished version of what the 49ers hoped they'd get from Trey Lance and similar to what they loved about Sam Darnold.`\
-https://nytimes.com/athletic/5708878/2024/08/19/kawakami-joshua-dobbs-49ers-qb2-competition/
 
