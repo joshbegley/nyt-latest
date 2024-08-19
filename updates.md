@@ -1,3 +1,7 @@
+**Stephon Gilmore's signing adds intrigue to Brian Flores' ascending Vikings defense**\
+`The 33-year-old corner, the 2019 NFL Defensive Player of the Year, will bring experience, swagger and versatility to the Vikings defense.`\
+https://nytimes.com/athletic/5708414/2024/08/19/stephon-gilmore-signing-vikings-defense/
+
 **2025 NFL Draft summer scouting: Can anyone challenge Malaki Starks for top safety spot?**\
 `In our final 2025 draft preseason positional preview, we take a look at the safeties. Is there a top-15 talent in the mix?`\
 https://nytimes.com/athletic/5708144/2024/08/19/nfl-draft-2025-scouting-safeties-malaki-starks/
