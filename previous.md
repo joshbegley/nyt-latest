@@ -1,4 +1,4 @@
-**Donovan on San Diego Wave gig: 'I don’t worry about the next job'**\
+**Landon Donovan on San Diego Wave gig: 'I don't worry about the next job'**\
 `Donovan hopes to use his experience as a player to lead San Diego through a difficult time. `\
 https://nytimes.com/athletic/5710888/2024/08/19/landon-donovan-nwsl-san-diego-wave-coach/
 
