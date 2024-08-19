@@ -1,3 +1,7 @@
+**Harris and Walz Venture Into Less-Friendly Terrain to Court Pennsylvania Voters**\
+`The Democratic presidential ticket went to the crucial swing state on Sunday to visit areas that are competitive and somewhat more conservative.`\
+https://nytimes.com/2024/08/18/us/politics/harris-walz-pennsylvania-bus-tour.html
+
 **Democrats’ Unity Convention Has One Giant Exception: The Gaza War**\
 `Harris campaign officials and Democratic leaders have stepped up outreach to Arab and Jewish voters before the event, but large protests are still expected.`\
 https://nytimes.com/2024/08/18/us/politics/dnc-democrats-israel-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/18/nyregion/connecticut-flooding-southbury.html
 **Hoops Player**\
 `What does Kenneth Cortes look for in a good crossword? Location, location, location.`\
 https://nytimes.com/2024/08/18/crosswords/daily-puzzle-2024-08-19.html
-
-**Social Media Influencers to Speak at the Democratic Convention**\
-`While they have millions of followers on platforms like TikTok and Instagram, this week they will share the podium with the top tier of Democratic politics.`\
-https://nytimes.com/2024/08/18/us/politics/democratic-convention-harris-social-media-influencers.html
 
