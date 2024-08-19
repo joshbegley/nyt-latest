@@ -1,3 +1,11 @@
+**What to Watch For at the Democratic National Convention**\
+`The week will be defined by a changing of the guard.`\
+https://nytimes.com/live/2024/08/13/opinion/thepoint/democratic-convention-themes
+
+**‘Homicide’ Is One of the Best TV Shows Ever. And It Is Finally Streaming**\
+`For years, the foundational cop drama, based on the book by David Simon (“The Wire”), languished in DVD-only purgatory. No longer.`\
+https://nytimes.com/2024/08/19/arts/television/homicide-streaming-peacock.html
+
 **Four Writers on Kamala Harris, Hillary Clinton and How to Win the White House**\
 `Two women seeking the White House, two historic elections: what will it take to beat Donald Trump this time?`\
 https://nytimes.com/2024/08/19/opinion/kamala-harris-hillary-clinton-convention.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5702330/2024/08/19/georginio-rutter-brighton-transf
 **Georginio Rutter to Brighton: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500 series, we look at Georginio Rutter's move to Brighton`\
 https://nytimes.com/athletic/5702230/2024/08/19/georginio-rutter-to-brighton-the-athletic-500-transfer-ratings/
-
-**On the Democratic convention’s first day, Tim Walz is busy and buzzy.**\
-`By Jazmine Ulloa and Kellen Browning`\
-https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/tim-walz-convention
-
-**Blue Jackets trade Patrik Laine, 2026 pick to Canadiens**\
-`"Patrik made it clear that he thought a change of scenery was best for him," Blue Jackets GM Don Waddell said.`\
-https://nytimes.com/athletic/5710538/2024/08/19/patrik-laine-blue-jackets-canadiens-trade/
 

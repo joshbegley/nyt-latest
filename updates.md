@@ -1,3 +1,11 @@
+**What to Watch For at the Democratic National Convention**\
+`The week will be defined by a changing of the guard.`\
+https://nytimes.com/live/2024/08/13/opinion/thepoint/democratic-convention-themes
+
+**‘Homicide’ Is One of the Best TV Shows Ever. And It Is Finally Streaming**\
+`For years, the foundational cop drama, based on the book by David Simon (“The Wire”), languished in DVD-only purgatory. No longer.`\
+https://nytimes.com/2024/08/19/arts/television/homicide-streaming-peacock.html
+
 **Four Writers on Kamala Harris, Hillary Clinton and How to Win the White House**\
 `Two women seeking the White House, two historic elections: what will it take to beat Donald Trump this time?`\
 https://nytimes.com/2024/08/19/opinion/kamala-harris-hillary-clinton-convention.html
