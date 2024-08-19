@@ -1,3 +1,11 @@
+**1 Dead and 6 Missing After Yacht Sinks off Sicily**\
+`Fifteen people have been rescued after the ship went down in a storm, and expert divers were called in given the depth of the operation.`\
+https://nytimes.com/2024/08/19/world/europe/italy-sicily-yacht-sinks.html
+
+**7-Eleven Gets Buyout Offer From Canadian Owner of Circle K**\
+`Japan’s Seven & i Holdings, which operates 85,000 stores, said it had received a bid from the Canadian convenience store chain Alimentation Couche-Tard.`\
+https://nytimes.com/2024/08/19/business/7-11-7-i-couche-tard-circle-k.html
+
 **Phillies owner John Middleton feels the promise, peril and urgency as October beckons**\
 `"You have to strike while the iron's hot. And it's hot right now. The players and the coaching staff have to understand that." `\
 https://nytimes.com/athletic/5706000/2024/08/19/john-middleton-phillies-playoffs/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/19/us/politics/harris-dnc-abortion-rights.html
 **A $6 Billion Breakthrough or a Drop in the Bucket?**\
 `The government is finally negotiating drug prices.`\
 https://nytimes.com/2024/08/19/opinion/drug-prices-medicare.html
-
-**7 Last-Minute Escapes for Labor Day Weekend**\
-`If you’re still hoping to stretch out the last days of summer, there are places in North America that are not too hot, not too crowded and not necessarily that far away.`\
-https://nytimes.com/2024/08/19/travel/last-minute-labor-day-weekend-trips.html
-
-**David French on the Pro-Life Case for Kamala Harris**\
-`“I’m voting against Trump precisely because I’m conservative,” the columnist says.`\
-https://nytimes.com/2024/08/19/opinion/harris-trump-conservatives.html
 
