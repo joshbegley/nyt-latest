@@ -1,5 +1,9 @@
 **Blackhawks' new NHL Winter Classic jersey leaks**\
 `With four NHL Winter Classics, two Stadium Series games and two Reverse Retro jerseys in the last 15 years, the Chicago Blackhawks are no strangers to new twists on their historic look.`\
+https://nytimes.com/athletic/5710518/2024/08/19/blackhawks-nhl-winter-classic-jersey-wrigley-field/
+
+**Blackhawks' new NHL Winter Classic jersey leaks**\
+`With four NHL Winter Classics, two Stadium Series games and two Reverse Retro jerseys in the last 15 years, the Chicago Blackhawks are no strangers to new twists on their historic look.`\
 https://nytimes.com/athletic/5710518/2024/08/19/blackhawks-nhl-winter-classic-jersey-wriglely-field/
 
 **Here’s the Speaker Lineup for the Opening Night of the Democratic Convention**\
