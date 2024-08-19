@@ -1,3 +1,15 @@
+**Matthew Perry’s Death Shines a Harsh Light on Ketamine Treatment**\
+`Was Mr. Perry, whose struggles with substance abuse were widely known, a good candidate for a drug used to relieve depression? Doctors say his case raises thorny questions.`\
+https://nytimes.com/2024/08/19/arts/television/matthew-perry-ketamine-treatment.html
+
+**Bentancur 'conscious and communicating' after head injury**\
+`Ange Postecoglou says Rodrigo Bentancur is &#8220;conscious and communicating&#8221; after suffering a head injury during Tottenham Hotspur&#8217;s 1-1 draw with Leicester City on Monday night.`\
+https://nytimes.com/athletic/5710679/2024/08/19/tottenhams-rodrigo-bentancur-head-injury/
+
+**Why Bears GM Ryan Poles is 'really impressed' with Caleb Williams so far**\
+`Poles hung out with the guys on the "Hoge & Jahns" podcast on Monday, sharing his thoughts on a variety of topics.`\
+https://nytimes.com/athletic/5710688/2024/08/19/bears-ryan-poles-caleb-williams/
+
 **Walz Family Fertility Journey Ran Not Through I.V.F. but Another Common Treatment**\
 `Unlike in vitro fertilization, the procedure used by the Walzes does not involve freezing embryos, so it has not been targeted by anti-abortion leaders.`\
 https://nytimes.com/2024/08/19/us/tim-walz-fertility-pregnancy.html

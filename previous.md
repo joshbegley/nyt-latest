@@ -1,3 +1,15 @@
+**Matthew Perry’s Death Shines a Harsh Light on Ketamine Treatment**\
+`Was Mr. Perry, whose struggles with substance abuse were widely known, a good candidate for a drug used to relieve depression? Doctors say his case raises thorny questions.`\
+https://nytimes.com/2024/08/19/arts/television/matthew-perry-ketamine-treatment.html
+
+**Bentancur 'conscious and communicating' after head injury**\
+`Ange Postecoglou says Rodrigo Bentancur is &#8220;conscious and communicating&#8221; after suffering a head injury during Tottenham Hotspur&#8217;s 1-1 draw with Leicester City on Monday night.`\
+https://nytimes.com/athletic/5710679/2024/08/19/tottenhams-rodrigo-bentancur-head-injury/
+
+**Why Bears GM Ryan Poles is 'really impressed' with Caleb Williams so far**\
+`Poles hung out with the guys on the "Hoge & Jahns" podcast on Monday, sharing his thoughts on a variety of topics.`\
+https://nytimes.com/athletic/5710688/2024/08/19/bears-ryan-poles-caleb-williams/
+
 **Walz Family Fertility Journey Ran Not Through I.V.F. but Another Common Treatment**\
 `Unlike in vitro fertilization, the procedure used by the Walzes does not involve freezing embryos, so it has not been targeted by anti-abortion leaders.`\
 https://nytimes.com/2024/08/19/us/tim-walz-fertility-pregnancy.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/19/arts/television/phil-donahue-show-episodes.html
 **Tuesday Briefing: U.S. Said Israel Agreed to Cease-Fire Proposal**\
 `Plus, opening night at the Democratic convention.`\
 https://nytimes.com/2024/08/19/briefing/gaza-cease-fire-democratic-national-convention-ukraine-kursk.html
-
-**Wolves make Ramsdale proposal to Arsenal**\
-`Wolverhampton Wanderers have submitted a proposal to sign Aaron Ramsdale from Arsenal.`\
-https://nytimes.com/athletic/5698376/2024/08/19/aaron-ramsdale-wolves/
-
-**What to Watch For at the Democratic National Convention**\
-`The week will be defined by a changing of the guard.`\
-https://nytimes.com/live/2024/08/13/opinion/thepoint/democratic-convention-themes
-
-**‘Homicide’ Is One of the Best TV Shows Ever. And It Is Finally Streaming**\
-`For years, the foundational cop drama, based on the book by David Simon (“The Wire”), languished in DVD-only purgatory. No longer.`\
-https://nytimes.com/2024/08/19/arts/television/homicide-streaming-peacock.html
 
