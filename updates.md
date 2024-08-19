@@ -1,3 +1,7 @@
+**Ivan Toney's potential Saudi Arabia move: What is happening?**\
+`Why was Toney left out against Palace on Sunday, how much would Brentford miss him, and what could happen next?`\
+https://nytimes.com/athletic/5708019/2024/08/19/ivan-toneys-brentford-saudi-arabia-al-ahlia/
+
 **Ranking Cristiano Ronaldo's biggest and most theatrical tantrums**\
 `The Portuguese superstar had another strop this weekend — but how does this outburst compare to his other famous ones?`\
 https://nytimes.com/athletic/5708051/2024/08/19/ranking-cristiano-ronaldos-biggest-tantrums/

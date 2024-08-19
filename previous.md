@@ -1,3 +1,7 @@
+**Ivan Toney's potential Saudi Arabia move: What is happening?**\
+`Why was Toney left out against Palace on Sunday, how much would Brentford miss him, and what could happen next?`\
+https://nytimes.com/athletic/5708019/2024/08/19/ivan-toneys-brentford-saudi-arabia-al-ahlia/
+
 **Ranking Cristiano Ronaldo's biggest and most theatrical tantrums**\
 `The Portuguese superstar had another strop this weekend — but how does this outburst compare to his other famous ones?`\
 https://nytimes.com/athletic/5708051/2024/08/19/ranking-cristiano-ronaldos-biggest-tantrums/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/18/pageoneplus/quotation-of-the-day-young-artists-ro
 **Corrections: Aug. 19, 2024**\
 `Corrections that appeared in print on Monday, Aug. 19, 2024.`\
 https://nytimes.com/2024/08/18/pageoneplus/corrections-aug-19-2024.html
-
-**Bo Nix puts emphatic claim on Broncos' starting QB job in breezy win vs. Packers**\
-`The rookie completed 8 of 9 passes for 140 yards and a touchdown to spark a blowout win over Green Bay on Sunday.`\
-https://nytimes.com/athletic/5708931/2024/08/18/bo-nix-broncos-starting-qb-packers/
 
