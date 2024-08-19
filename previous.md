@@ -1,3 +1,7 @@
+**Blackhawks' new NHL Winter Classic jersey leaks**\
+`With four NHL Winter Classics, two Stadium Series games and two Reverse Retro jerseys in the last 15 years, the Chicago Blackhawks are no strangers to new twists on their historic look.`\
+https://nytimes.com/athletic/5710518/2024/08/19/blackhawks-nhl-winter-classic-jersey-wriglely-field/
+
 **Here’s the Speaker Lineup for the Opening Night of the Democratic Convention**\
 `Monday’s headliners include President Biden and the first lady, Jill Biden, along with Hillary Clinton, who was defeated by Donald J. Trump in the 2016 election.`\
 https://nytimes.com/2024/08/19/us/politics/democratic-convention-speakers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/19/opinion/kamala-harris-economic-agenda.html
 **Harris’s Economic Plan Isn’t Perfect, but It’s Better Than Trump’s**\
 `She’s right to focus on the high cost of living, even if the details could use some tweaks.`\
 https://nytimes.com/2024/08/19/opinion/kamala-harris-economics-trump.html
-
-**Robert F. Kennedy Jr. Could Be Blocked From New York’s Ballot, Again**\
-`Last week, he was booted for using a fake address. This week, a suit claims that people gathering signatures for the candidate deceived voters.`\
-https://nytimes.com/2024/08/19/nyregion/rfk-jr-new-york-ballot.html
 
