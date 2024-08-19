@@ -1,3 +1,15 @@
+**Three Braves takeaways: Austin Riley wrist concern, Charlie Morton's uptick, and more**\
+`Riley had X-rays and other tests after a 97 mph fastball hit him in the right wrist, but preliminary results were inconclusive.`\
+https://nytimes.com/athletic/5708820/2024/08/18/braves-austin-riley-injury/
+
+**Harris and Walz Venture Into Less-Friendly Terrain to Court Pennsylvania Voters**\
+`The Democratic presidential ticket went to the crucial swing state on Sunday to visit areas that are competitive and somewhat more conservative.`\
+https://nytimes.com/2024/08/18/us/politics/harris-walz-pennsylvania-bus-tour.html
+
+**People Are Rescued From Cars Amid Flash Floods in Connecticut**\
+`There were no immediate reports of injuries from the flooding. The New York City area was also getting heavy rain.`\
+https://nytimes.com/2024/08/18/nyregion/connecticut-flooding-southbury.html
+
 **Democrats’ Unity Convention Has One Giant Exception: The Gaza War**\
 `Harris campaign officials and Democratic leaders have stepped up outreach to Arab and Jewish voters before the event, but large protests are still expected.`\
 https://nytimes.com/2024/08/18/us/politics/dnc-democrats-israel-gaza.html
