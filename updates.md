@@ -1,3 +1,23 @@
+**Real Madrid briefing: Mbappe's frustrated La Liga debut as Rodrygo makes his point**\
+`After being held to a 1-1 draw by Mallorca, Real Madrid's frustrations were obvious to see`\
+https://nytimes.com/athletic/5709080/2024/08/19/real-madrid-mbappe-rodrygo-anceoltti-la-liga-mallorca/
+
+**George Santos Is Expected to Plead Guilty to Crimes, Avoiding a Trial**\
+`Mr. Santos intends to enter a guilty plea and sidestep a federal trial, according to people familiar with the case.`\
+https://nytimes.com/2024/08/19/nyregion/george-santos-is-expected-to-plead-guilty-to-crimes-avoiding-a-trial.html
+
+**In Republican N.Y. Stronghold, Harris Ticket Lends Hope to a Democrat**\
+`Rep. Nick LaLota is questioning John Avlon’s local bona fides as they battle over who is more authentically of Long Island.`\
+https://nytimes.com/2024/08/19/nyregion/avlon-lalota-residency-congress.html
+
+**What Happened to the Bus Lanes New Yorkers Were Promised?**\
+`Buses are often unreliable and slow (thanks to clogged streets), but even projects to ease these problems are getting delayed. Is Mayor Eric Adams to blame?`\
+https://nytimes.com/2024/08/19/nyregion/street-wars-bus-lanes.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/19/crosswords/spelling-bee-forum.html
+
 **Blinken Says It’s a ‘Decisive Moment’ for a Gaza Cease-Fire Deal**\
 `Secretary of State Antony Blinken, who will meet with Prime Minister Benjamin Netanyahu on Monday, said recent negotiations had created room for a cease-fire and hostage release.`\
 https://nytimes.com/live/2024/08/19/world/israel-iran-hamas-gaza-war
