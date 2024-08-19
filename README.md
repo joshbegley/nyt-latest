@@ -1,3 +1,7 @@
+**Three Braves takeaways: Austin Riley wrist concern, Charlie Morton's uptick, and more**\
+`Riley had X-rays and other tests after a 97 mph fastball hit him in the right wrist, but preliminary results were inconclusive.`\
+https://nytimes.com/athletic/5708820/2024/08/18/braves-austin-riley-injury/
+
 **Harris and Walz Venture Into Less-Friendly Terrain to Court Pennsylvania Voters**\
 `The Democratic presidential ticket went to the crucial swing state on Sunday to visit areas that are competitive and somewhat more conservative.`\
 https://nytimes.com/2024/08/18/us/politics/harris-walz-pennsylvania-bus-tour.html
@@ -31,10 +35,6 @@ https://nytimes.com/athletic/5708654/2024/08/18/red-sox-takeaways-orioles-series
 https://nytimes.com/2024/08/18/opinion/tim-walz-rural-america.html
 
 **People Are Rescued From Cars Amid Flash Floods in Connecticut**\
-`There were no immediate reports of injuries from the flooding, which came after some towns reported as much as nine inches of rain.`\
+`There were no immediate reports of injuries from the flooding. The New York City area was also getting heavy rain.`\
 https://nytimes.com/2024/08/18/nyregion/connecticut-flooding-southbury.html
-
-**Hoops Player**\
-`What does Kenneth Cortes look for in a good crossword? Location, location, location.`\
-https://nytimes.com/2024/08/18/crosswords/daily-puzzle-2024-08-19.html
 
