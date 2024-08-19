@@ -1,3 +1,7 @@
+**Kamala Harris’s Muscular Patriotism**\
+`In recent weeks, the vice president’s message has revolved around progressive patriotism.`\
+https://nytimes.com/2024/08/19/briefing/kamala-harris-tim-walz-patriotism.html
+
 **Astros takeaways: Yusei Kikuchi aces first test, a minor leaguer's view of Verlander, more**\
 `Yusei Kikuchi's first impressions of his new team are positive, and Bryan Abreu's workload is a concern with Ryan Pressly on the IL.`\
 https://nytimes.com/athletic/5708586/2024/08/19/astros-justin-verlander-yusei-kikuchi/
