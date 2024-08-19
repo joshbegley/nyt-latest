@@ -1,3 +1,7 @@
+**Messi left out of Argentina squad after Copa injury**\
+`Lionel Messi has been left out of the Argentina squad for their upcoming World Cup qualifiers.`\
+https://nytimes.com/athletic/5709858/2024/08/19/lionel-messi-injury-argentina-squad/
+
 **Five questions entering the Eagles' final preseason game**\
 `Depth and health are the main issues going into the final preseason game.`\
 https://nytimes.com/athletic/5705199/2024/08/19/eagles-vikings-final-preseason-game-questions/
