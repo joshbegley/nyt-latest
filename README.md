@@ -1,3 +1,7 @@
+**Walz Family Fertility Journey Ran Not Through I.V.F. but Another Common Treatment**\
+`Unlike in vitro fertilization, the procedure used by the Walzes does not involve freezing embryos, so it has not been targeted by anti-abortion leaders.`\
+https://nytimes.com/2024/08/19/us/tim-walz-fertility-pregnancy.html
+
 **Israel Accepts Proposal to Bridge Differences on Cease-Fire, Blinken Says**\
 `The statement by the Secretary of State put new pressure on Hamas, whose officials have called the proposal fundamentally slanted toward Israel.`\
 https://nytimes.com/2024/08/19/world/middleeast/israel-cease-fire-proposal-hamas-blinken.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/13/opinion/thepoint/democratic-convention-theme
 **‘Homicide’ Is One of the Best TV Shows Ever. And It Is Finally Streaming**\
 `For years, the foundational cop drama, based on the book by David Simon (“The Wire”), languished in DVD-only purgatory. No longer.`\
 https://nytimes.com/2024/08/19/arts/television/homicide-streaming-peacock.html
-
-**Four Writers on Kamala Harris, Hillary Clinton and How to Win the White House**\
-`Two women seeking the White House, two historic elections: what will it take to beat Donald Trump this time?`\
-https://nytimes.com/2024/08/19/opinion/kamala-harris-hillary-clinton-convention.html
 
