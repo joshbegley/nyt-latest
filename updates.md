@@ -1,3 +1,7 @@
+**Biden Will Pass the Torch to Harris in His Convention Speech**\
+`President Biden and his top aides have spent days reworking his original address, which he expected to give as the Democratic nominee, for a new moment.`\
+https://nytimes.com/2024/08/19/us/politics/biden-democratic-national-convention-speech.html
+
 **Chelsea agree deal to sign Joao Felix**\
 `Chelsea have reached an agreement with Atletico Madrid for the permanent signing of Portugal forward Joao Felix.`\
 https://nytimes.com/athletic/5695590/2024/08/19/joao-felix-chelsea-transfer/
