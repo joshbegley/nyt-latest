@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`By Adam Nagourney and Maggie Astor`\
+https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Live Election Updates: Democrats Begin Convention Week, a Test for the Party**\
+`Before Vice President Kamala Harris speaks on Thursday, her party will seek to define her and to present a unified front, as polls show her in a newly competitive race against Donald Trump.`\
+https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election
+
 **The Harris campaign starts a WhatsApp channel to target Latino voters.**\
 `By Jazmine Ulloa`\
 https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/the-harris-campaign-starts-a-whatsapp-channel-to-target-latino-voters
