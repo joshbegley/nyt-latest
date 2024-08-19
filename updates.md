@@ -1,3 +1,7 @@
+**Mark A Takano**\
+`News about Mark A Takano. Commentary and archival information about Mark A Takano from The New York Times.`\
+https://nytimes.com/topic/mark-a-takano
+
 **5 Tips for Making a School Lunch Your Kid Will Actually Eat**\
 `With just a few tweaks and a smidgen of planning, you can pack lunches that come home eaten.`\
 https://nytimes.com/article/school-lunch-ideas.html
