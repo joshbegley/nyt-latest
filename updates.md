@@ -1,3 +1,7 @@
+**Bo Nix puts emphatic claim on Broncos' starting QB job in breezy win vs. Packers**\
+`The rookie completed 8 of 9 passes for 140 yards and a touchdown to spark a blowout win over Green Bay on Sunday.`\
+https://nytimes.com/athletic/5708931/2024/08/18/bo-nix-broncos-starting-qb-packers/
+
 **Quotation of the Day: Young Artists Rode a $712 Million Boom. Then Came the Bust.**\
 `Quotation of the Day for Monday, August 19, 2024.`\
 https://nytimes.com/2024/08/18/pageoneplus/quotation-of-the-day-young-artists-rode-a-712-million-boom-then-came-the-bust.html
