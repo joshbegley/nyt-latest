@@ -1,3 +1,11 @@
+**Tuesday Briefing: U.S. Said Israel Agreed to Cease-Fire Proposal**\
+`Plus, opening night at the Democratic convention.`\
+https://nytimes.com/2024/08/19/briefing/gaza-cease-fire-democratic-national-convention-ukraine-kursk.html
+
+**Wolves make Ramsdale proposal to Arsenal**\
+`Wolverhampton Wanderers have submitted a proposal to sign Aaron Ramsdale from Arsenal.`\
+https://nytimes.com/athletic/5698376/2024/08/19/aaron-ramsdale-wolves/
+
 **What to Watch For at the Democratic National Convention**\
 `The week will be defined by a changing of the guard.`\
 https://nytimes.com/live/2024/08/13/opinion/thepoint/democratic-convention-themes
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/19/world/americas/nicaragua-crackdown-ngos-churches.
 **What Are Protesters’ Rights During the D.N.C.?**\
 `The boundaries of First Amendment rights and the government’s duty to maintain public order threaten to collide this week.`\
 https://nytimes.com/2024/08/19/us/politics/what-are-protesters-rights-during-the-dnc.html
-
-**Rutter completes Brighton move from Leeds**\
-`Brighton &amp; Hove Albion have completed the signing of Georginio Rutter from Leeds United.`\
-https://nytimes.com/athletic/5702330/2024/08/19/georginio-rutter-brighton-transfer/
-
-**Georginio Rutter to Brighton: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500 series, we look at Georginio Rutter's move to Brighton`\
-https://nytimes.com/athletic/5702230/2024/08/19/georginio-rutter-to-brighton-the-athletic-500-transfer-ratings/
 
