@@ -31,7 +31,7 @@ https://nytimes.com/athletic/5709996/2024/08/19/tua-tagovailoa-mike-mcdaniel-bri
 https://nytimes.com/athletic/5709891/2024/08/19/jrue-holiday-celtics-hall-of-fame-western-conference-guerschon-yabusele-76ers-nba-the-bounce/
 
 **High Food Prices: The Causes and the Politics**\
-`Summary summary summary`\
+`Readers discuss how to combat high prices. Also: The decision not to pick Josh Shapiro; preparing for campus protests; crypto’s political power. `\
 https://nytimes.com/2024/08/19/opinion/letters/high-food-prices.html
 
 **Several senators in highly competitive races are skipping the D.N.C.**\
