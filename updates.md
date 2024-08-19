@@ -1,3 +1,19 @@
+**Karl A. Racine**\
+`News about Karl A. Racine. Commentary and archival information about Karl A. Racine from The New York Times.`\
+https://nytimes.com/topic/karl-a-racine
+
+**Gundogan's City return is a no-brainer**\
+`Former City captain's return from Barcelona feels so obvious. It has to happen… surely?`\
+https://nytimes.com/athletic/5709849/2024/08/19/ilkay-gundogans-manchester-city-return-is-a-no-brainer/
+
+**Chelsea's Humphreys set for loan with obligation move to Burnley**\
+`Chelsea defender Bashir Humphreys is set to join Championship side Burnley on loan with an obligation to buy.`\
+https://nytimes.com/athletic/5709991/2024/08/19/bashir-humphreys-burnley-chelsea/
+
+**Tagovailoa recalls former coach Flores' comments: 'You shouldn't be here'**\
+`Tagovailoa said Flores would tell him comments like, 'You suck at what you did' and 'You shouldn't be here.'`\
+https://nytimes.com/athletic/5709996/2024/08/19/tua-tagovailoa-mike-mcdaniel-brian-flores/
+
 **Woman Who Accused Eric Adams of Assault Wrote About It Years Ago**\
 `A former Transit Police Department colleague of the mayor said she told seven people years ago that he had sexually assaulted her in 1993, according to new court filings.`\
 https://nytimes.com/2024/08/19/nyregion/eric-adams-assault-lawsuit.html
