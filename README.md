@@ -1,3 +1,7 @@
+**The A's and Giants close out a Bay Area rivalry with a final flourish of late-inning drama**\
+`The Giants closed out the last Bay Bridge series game at the Coliseum with two home runs in the 10th inning.`\
+https://nytimes.com/athletic/5708873/2024/08/18/oakland-athletics-sf-giants-bay-bridge-series-coliseum/
+
 **Democrats Unveil Convention Platform With Familiar Themes**\
 `The party is calling for tax increases on corporations and the rich while also focusing on working families, infrastructure, climate change and abortion rights.`\
 https://nytimes.com/2024/08/18/us/politics/democrats-convention-platform.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5708725/2024/08/18/oilers-canucks-vasily-podkolzin-
 **Test Your Knowledge of Chicago, the Host of the Democratic National Convention**\
 `The Democrats are arriving in Chicago, the country’s third-largest city, for their first in-person convention in eight years. Take our quiz to find out how much you know about the city.`\
 https://nytimes.com/interactive/2024/08/18/us/chicago-dnc-quiz.html
-
-**Matsuyama holds on to capture opening leg of FedEx Cup playoffs**\
-`Matsuyama will rise five spots in the FedEx Cup standings to advance to the second week of the PGA Tour playoffs in the No. 3 spot.`\
-https://nytimes.com/athletic/5708714/2024/08/18/hideki-matsuyama-fedex-cup-playoffs/
 
