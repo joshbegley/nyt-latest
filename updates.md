@@ -1,3 +1,15 @@
+**John Harbaugh says the Ravens are closing in on their starting OL decisions**\
+`Andrew Vorhees and Daniel Faalele look like they'll be the Ravens' starting guards for the Week 1 opener against the Chiefs.`\
+https://nytimes.com/athletic/5710851/2024/08/19/baltimore-ravens-offensive-line-starters-week-1/
+
+**How the onslaught of Bills injuries impacts cutdown day**\
+`A crop of injuries could force the Bills to make some tough decisions.`\
+https://nytimes.com/athletic/5710753/2024/08/19/buffalo-bills-injuries-cutdown-day/
+
+**Tonight, the Democrats Feature a MAGA Refugee**\
+`Emerging from the movement can feel like escaping a cult.`\
+https://nytimes.com/live/2024/08/13/opinion/thepoint/rich-logis-leaving-maga
+
 **Henry A Waxman**\
 `News about Henry A Waxman. Commentary and archival information about Henry A Waxman from The New York Times.`\
 https://nytimes.com/topic/henry-a-waxman
