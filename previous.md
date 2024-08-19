@@ -1,3 +1,7 @@
+**Yankees call up Jasson Domínguez for Little League Classic, which may hint at bigger plan**\
+`The Martian's call-up will likely last just one game, but he could make some noise in September and beyond.`\
+https://nytimes.com/athletic/5708644/2024/08/18/yankees-jasson-dominguez-call-up-plan/
+
 **Three Braves takeaways: Austin Riley wrist concern, Charlie Morton's uptick, and more**\
 `Riley had X-rays and other tests after a 97 mph fastball hit him in the right wrist, but preliminary results were inconclusive.`\
 https://nytimes.com/athletic/5708820/2024/08/18/braves-austin-riley-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5708654/2024/08/18/red-sox-takeaways-orioles-series
 **Tim Walz and the Pull of Rural America**\
 `Responses to an essay about the vice-presidential candidate and rural values. Also: A rattled Trump; cancer screening; the S.S. United States; L.A. Olympic transit.`\
 https://nytimes.com/2024/08/18/opinion/tim-walz-rural-america.html
-
-**People Are Rescued From Cars Amid Flash Floods in Connecticut**\
-`There were no immediate reports of injuries from the flooding. The New York City area was also getting heavy rain.`\
-https://nytimes.com/2024/08/18/nyregion/connecticut-flooding-southbury.html
 
