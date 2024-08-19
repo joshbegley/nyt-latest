@@ -1,3 +1,7 @@
+**Tagovailoa recalls former coach Brian Flores' comments: 'You shouldn't be here'**\
+`Tagovailoa said Flores would tell him comments like, 'You suck at what you did' and 'You shouldn't be here.'`\
+https://nytimes.com/athletic/5709996/2024/08/19/tua-tagovailoa-mike-mcdaniel-brian-flores/
+
 **The Bounce: Is Jrue Holiday a future Hall of Famer?**\
 `Zach Harper and Shams Charania catch you up on league-wide news.`\
 https://nytimes.com/athletic/5709891/2024/08/19/jrue-holiday-celtics-hall-of-fame-western-conference-guerschon-yabusele-76ers-nba-the-bounce/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/19/us/politics/biden-democratic-national-convention-
 **Chelsea agree deal to sign Joao Felix**\
 `Chelsea have reached an agreement with Atletico Madrid for the permanent signing of Portugal forward Joao Felix.`\
 https://nytimes.com/athletic/5695590/2024/08/19/joao-felix-chelsea-transfer/
-
-**Ex-NFLer Gosder Cherilus arrested after allegedly urinating on flight passenger**\
-`Cherilus was a first-round draft pick of the Detroit Lions out of Boston College in 2008.`\
-https://nytimes.com/athletic/5709774/2024/08/19/godser-cherilus-arrested-airline-urinating/
 
