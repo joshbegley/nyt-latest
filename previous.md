@@ -1,3 +1,11 @@
+**Blue Jackets trade Patrik Laine, 2026 pick to Canadiens**\
+`"Patrik made it clear that he thought a change of scenery was best for him," Blue Jackets GM Don Waddell said.`\
+https://nytimes.com/athletic/5710538/2024/08/19/patrik-laine-blue-jackets-canadiens-trade/
+
+**Alain Delon, Godfather of the Belted Trench**\
+`As a titan of French cinema, he dressed the part, even when playing a killer.`\
+https://nytimes.com/2024/08/19/style/alain-delon-fashion-film-france.html
+
 **Blackhawks' new NHL Winter Classic jersey leaks**\
 `With four NHL Winter Classics, two Stadium Series games and two Reverse Retro jerseys in the last 15 years, the Chicago Blackhawks are no strangers to new twists on their historic look.`\
 https://nytimes.com/athletic/5710518/2024/08/19/blackhawks-nhl-winter-classic-jersey-wrigley-field/
@@ -29,12 +37,4 @@ https://nytimes.com/topic/james-a-martin
 **Protesters Gather in Chicago on Democratic Convention’s Opening Day**\
 `Demonstrators were focused on a range of causes, but many said they were angry with the Biden administration’s approach to Israel and Gaza.`\
 https://nytimes.com/2024/08/19/us/chicago-dnc-protests.html
-
-**Kamalanomics, Revealed: A Solid Center-Left Agenda**\
-`And no, she hasn’t called for price controls.`\
-https://nytimes.com/2024/08/19/opinion/kamala-harris-economic-agenda.html
-
-**Harris’s Economic Plan Isn’t Perfect, but It’s Better Than Trump’s**\
-`She’s right to focus on the high cost of living, even if the details could use some tweaks.`\
-https://nytimes.com/2024/08/19/opinion/kamala-harris-economics-trump.html
 
