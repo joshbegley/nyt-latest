@@ -1,3 +1,7 @@
+**The Democratic Convention Kicks Off**\
+`Plus, a push for a Gaza cease-fire. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/08/19/briefing/the-democratic-convention-kicks-off.html
+
 **JD Vance attacks Harris and Walz for avoiding questions and then delivers his own evasive answers.**\
 `At a campaign event in Philadelphia, Mr. Vance criticized his rivals for avoiding the news media and then deflected questions himself.`\
 https://nytimes.com/2024/08/19/us/politics/jd-vance-speech-attacks-harris-walz.html
