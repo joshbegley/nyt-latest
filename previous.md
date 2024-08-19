@@ -1,3 +1,7 @@
+**The 10 Most Intriguing Speakers at the Convention (Real and Possible)**\
+`If they get a slot, that is.`\
+https://nytimes.com/live/2024/08/13/opinion/thepoint/democratic-convention-intriguing-speakers
+
 **The Harris campaign starts a WhatsApp channel to target Latino voters.**\
 `By Jazmine Ulloa`\
 https://nytimes.com/2024/08/19/us/politics/the-harris-campaign-starts-a-whatsapp-channel-to-target-latino-voters.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/19/us/politics/harris-campaign-policy.html
 **How a Far-Right Takeover of Georgia’s Election Board Could Swing the Election**\
 `The unelected body that shapes voting rules has a new conservative majority who question the state’s 2020 results. They now have new power to influence the results in 2024.`\
 https://nytimes.com/2024/08/19/us/politics/trump-2024-georgia-elections.html
-
-**Trekking 85 Miles With Grandpa, Scuba Diving With Grandma**\
-`With older adults staying fit longer, many are joining their grandchildren on travel adventures like wilderness hikes, bike tours and even bungee jumping.`\
-https://nytimes.com/2024/08/19/travel/grandparents-grandchildren-adventure.html
 

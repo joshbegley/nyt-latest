@@ -1,3 +1,7 @@
+**The 10 Most Intriguing Speakers at the Convention (Real and Possible)**\
+`If they get a slot, that is.`\
+https://nytimes.com/live/2024/08/13/opinion/thepoint/democratic-convention-intriguing-speakers
+
 **The Harris campaign starts a WhatsApp channel to target Latino voters.**\
 `By Jazmine Ulloa`\
 https://nytimes.com/2024/08/19/us/politics/the-harris-campaign-starts-a-whatsapp-channel-to-target-latino-voters.html
