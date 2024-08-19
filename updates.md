@@ -1,3 +1,7 @@
+**Donovan on San Diego Wave gig: 'I don’t worry about the next job'**\
+`Donovan hopes to use his experience as a player to lead San Diego through a difficult time. `\
+https://nytimes.com/athletic/5710888/2024/08/19/landon-donovan-nwsl-san-diego-wave-coach/
+
 **Democrats Say Hi — and Bye — to President Biden**\
 `A man who spent a lifetime seeking the presidency faces his party after it forced him to step aside.`\
 https://nytimes.com/2024/08/19/us/politics/democratic-national-convention-chicago-biden-harris.html
