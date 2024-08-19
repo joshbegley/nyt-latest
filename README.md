@@ -1,7 +1,3 @@
-**Carl Icahn to Pay $2 Million to Settle S.E.C. Charges**\
-`The Securities and Exchange Commission had accused the billionaire investor of not disclosing that he had pledged personal stock holdings as collateral for billions of dollars in loans.`\
-https://nytimes.com/2024/08/19/business/sec-carl-icahn-stock-charges.html
-
 **Raheem Sterling... fight or flight?**\
 `It is easy to imagine how Sterling might benefit from leaving Chelsea, but it is less easy to imagine where any fresh start might be`\
 https://nytimes.com/athletic/5709266/2024/08/19/raheem-sterling-fight-or-flight/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5709834/2024/08/19/paul-skenes-pirates-danny-jansen
 **Three Cardinals takeaways: Frustrating week puts playoff hopes in jeopardy**\
 `As the Cardinals continue fading, manager Oli Marmol put it bluntly: "You step up to the challenge, or you're done."`\
 https://nytimes.com/athletic/5708380/2024/08/19/cardinals-playoff-chances-oli-marmol/
+
+**What to Know About the Blue Supermoon**\
+`The celestial event, which is visible from Sunday to Wednesday morning, probably won’t happen again until 2037.`\
+https://nytimes.com/2024/08/19/science/rare-august-blue-supermoon.html
 
