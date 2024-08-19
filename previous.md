@@ -1,3 +1,15 @@
+**Quotation of the Day: Young Artists Rode a $712 Million Boom. Then Came the Bust.**\
+`Quotation of the Day for Monday, August 19, 2024.`\
+https://nytimes.com/2024/08/18/pageoneplus/quotation-of-the-day-young-artists-rode-a-712-million-boom-then-came-the-bust.html
+
+**Corrections: Aug. 19, 2024**\
+`Corrections that appeared in print on Monday, Aug. 19, 2024.`\
+https://nytimes.com/2024/08/18/pageoneplus/corrections-aug-19-2024.html
+
+**Bo Nix puts emphatic claim on Broncos' starting QB job in breezy win vs. Packers**\
+`The rookie completed 8-of-9 passes for 140 yards and a touchdown to spark a blowout win over Green Bay Sunday.`\
+https://nytimes.com/athletic/5708931/2024/08/18/bo-nix-broncos-starting-qb-packers/
+
 **The A's and Giants close out a Bay Area rivalry with a final flourish of late-inning drama**\
 `The Giants closed out the last Bay Bridge series game at the Coliseum with two home runs in the 10th inning.`\
 https://nytimes.com/athletic/5708873/2024/08/18/oakland-athletics-sf-giants-bay-bridge-series-coliseum/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/18/us/politics/harris-walz-pennsylvania-bus-tour.htm
 **Democrats’ Unity Convention Has One Giant Exception: The Gaza War**\
 `Harris campaign officials and Democratic leaders have stepped up outreach to Arab and Jewish voters before the event, but large protests are still expected.`\
 https://nytimes.com/2024/08/18/us/politics/dnc-democrats-israel-gaza.html
-
-**Cubs takeaways: Dansby Swanson's bat, a Shota Imanaga scouting report and more**\
-`Plus a health update on Hall of Famer Ryne Sandberg and next steps for Jordan Wicks.`\
-https://nytimes.com/athletic/5708723/2024/08/18/cubs-takeaways-dansby-swanson-shota-imanaga/
-
-**Oilers acquire Podkolzin from Canucks, Emberson from Sharks**\
-`Podkolzin has appeared in 137 career games with the NHL club and recorded 18 goals and 35 points.`\
-https://nytimes.com/athletic/5708725/2024/08/18/oilers-canucks-vasily-podkolzin-nhl/
-
-**Test Your Knowledge of Chicago, the Host of the Democratic National Convention**\
-`The Democrats are arriving in Chicago, the country’s third-largest city, for their first in-person convention in eight years. Take our quiz to find out how much you know about the city.`\
-https://nytimes.com/interactive/2024/08/18/us/chicago-dnc-quiz.html
 
