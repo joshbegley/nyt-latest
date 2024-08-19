@@ -1,3 +1,15 @@
+**‘World News Tonight’ Producer Named President of ABC News**\
+`Almin Karamehmedovic, the senior executive producer of ABC’s flagship newscast with anchor David Muir, will run Disney’s news division.`\
+https://nytimes.com/2024/08/19/business/media/abc-news-president-karamehmedovic.html
+
+**Scoop City's AFC South Preview**\
+`A look at the AFC South, from our offseason series`\
+https://nytimes.com/athletic/5709686/2024/08/19/afc-south-preview-scoop-city/
+
+**Giants week in review: Lost opportunities, good pitching and a long, long home run**\
+`The Giants lost ground in the wild-card race and their struggles with runners in scoring position continue.`\
+https://nytimes.com/athletic/5698711/2024/08/19/sf-giants-weekly-review-risp-struggles/
+
 **City interested in Gundogan reunion**\
 `Manchester City are interested in a move for former midfielder Ilkay Gundogan.`\
 https://nytimes.com/athletic/5709651/2024/08/19/manchester-city-ilkay-gundogan-transfer-latest/
