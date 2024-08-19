@@ -1,3 +1,7 @@
+**Carl Icahn to Pay $2 Million to Settle S.E.C. Charges**\
+`The Securities and Exchange Commission had accused the billionaire investor of not disclosing that he had pledged personal stock holdings as collateral for billions of dollars in loans.`\
+https://nytimes.com/2024/08/19/business/sec-carl-icahn-stock-charges.html
+
 **Raheem Sterling... fight or flight?**\
 `It is easy to imagine how Sterling might benefit from leaving Chelsea, but it is less easy to imagine where any fresh start might be`\
 https://nytimes.com/athletic/5709266/2024/08/19/raheem-sterling-fight-or-flight/
