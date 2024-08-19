@@ -1,3 +1,11 @@
+**Three Cardinals takeaways: Frustrating week puts playoff hopes in jeopardy**\
+`As the Cardinals continue fading, manager Oli Marmol put it bluntly: "You step up to the challenge, or you're done."`\
+https://nytimes.com/athletic/5708380/2024/08/19/cardinals-playoff-chances-oli-marmol/
+
+**What to Know About the Blue Supermoon**\
+`The celestial event, which is visible from Sunday to Wednesday morning, probably won’t happen again until 2037.`\
+https://nytimes.com/2024/08/19/science/rare-august-blue-supermoon.html
+
 **NFL injury mailbag: The concern level for Jahmyr Gibbs, the Rams' passing attack and more**\
 `Greg Scholz of Inside Injuries answers your health-related NFL questions, including the prognosis of Jahmyr Gibbs' hamstring issue.`\
 https://nytimes.com/athletic/5709761/2024/08/19/nfl-injury-mailbag-jahmyr-gibbs-fantasy-football-2024/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/19/well/family/books-caregivers.html
 **Prosecutors Leave Decision on Delaying Trump’s Sentencing Up to Judge**\
 `Lawyers for Donald J. Trump had asked to move the sentencing in his Manhattan criminal case to after the election. In a letter, prosecutors disputed many of their arguments.`\
 https://nytimes.com/2024/08/19/nyregion/trump-sentencing-delay.html
-
-**Tennis Briefing: Will Swiatek comments change schedule? Is Sinner's hip a problem?**\
-`With the U.S. Open round the corner, Cincinnati brought renewed rivalries, calendar contention and some form for Jessica Pegula`\
-https://nytimes.com/athletic/5709224/2024/08/19/tennis-schedule-swiatek-cincinnati-open-finals/
-
-**6 Things to Watch For at the Democratic Convention**\
-`Vice President Kamala Harris has never commanded a spotlight this big. The party faces potential fractures over the war in Gaza. And Hillary Clinton’s speech will be a reminder of what might have been.`\
-https://nytimes.com/2024/08/19/us/politics/dnc-what-to-watch.html
 
