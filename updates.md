@@ -1,3 +1,11 @@
+**Forest working on deal to sign Nketiah**\
+`Nottingham Forest have made Eddie Nketiah their top target to strengthen in attack and are pursuing a move to sign the striker from Arsenal.`\
+https://nytimes.com/athletic/5695935/2024/08/19/eddie-nketiah-nottingham-forest/
+
+**Hillary Clinton and Kamala Harris: Inside Their Surprisingly Close Bond**\
+`Mrs. Clinton, who lost out on becoming the first female president, has been a behind-the-scenes ally for the woman now vying to do so.`\
+https://nytimes.com/2024/08/19/us/politics/hillary-clinton-kamala-harris.html
+
 **Gundogan's City return is a no-brainer**\
 `The former City captain's return from Barcelona after just one season away feels so obvious. It has to happen… surely?`\
 https://nytimes.com/athletic/5709849/2024/08/19/ilkay-gundogans-manchester-city-return-is-a-no-brainer/

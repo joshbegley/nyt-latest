@@ -1,3 +1,11 @@
+**Forest working on deal to sign Nketiah**\
+`Nottingham Forest have made Eddie Nketiah their top target to strengthen in attack and are pursuing a move to sign the striker from Arsenal.`\
+https://nytimes.com/athletic/5695935/2024/08/19/eddie-nketiah-nottingham-forest/
+
+**Hillary Clinton and Kamala Harris: Inside Their Surprisingly Close Bond**\
+`Mrs. Clinton, who lost out on becoming the first female president, has been a behind-the-scenes ally for the woman now vying to do so.`\
+https://nytimes.com/2024/08/19/us/politics/hillary-clinton-kamala-harris.html
+
 **Karl A. Racine**\
 `News about Karl A. Racine. Commentary and archival information about Karl A. Racine from The New York Times.`\
 https://nytimes.com/topic/karl-a-racine
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5709996/2024/08/19/tua-tagovailoa-mike-mcdaniel-bri
 **The Bounce: Is Jrue Holiday a future Hall of Famer?**\
 `Zach Harper and Shams Charania catch you up on league-wide news.`\
 https://nytimes.com/athletic/5709891/2024/08/19/jrue-holiday-celtics-hall-of-fame-western-conference-guerschon-yabusele-76ers-nba-the-bounce/
-
-**High Food Prices: The Causes and the Politics**\
-`Readers discuss how to combat high prices. Also: The decision not to pick Josh Shapiro; preparing for campus protests; crypto’s political power. `\
-https://nytimes.com/2024/08/19/opinion/letters/high-food-prices.html
-
-**Several senators in highly competitive races are skipping the D.N.C.**\
-`Campaigning in red or purple states, Jon Tester of Montana, Sherrod Brown of Ohio and Jacky Rosen of Nevada are not traveling to Chicago.`\
-https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/several-senators-in-highly-competitive-races-are-skipping-the-dnc
 
