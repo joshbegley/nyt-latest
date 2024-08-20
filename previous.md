@@ -1,3 +1,7 @@
+**At Democratic Convention, Hochul Says Trump Lacks ‘New York Values’**\
+`In one of the most high-profile speeches of her career, Gov. Kathy Hochul drew a contrast between the current and former presidents, telling attendees, “If you think you’re tired of Donald Trump, talk to a New Yorker.”`\
+https://nytimes.com/2024/08/19/nyregion/kathy-hochul-dnc-speech.html
+
 **At the Ruhrtriennale, Searching for the Sublime Among the Ruins**\
 `In the abandoned industrial sites that serve as the festival’s venues, our critic witnessed beauty struggling to be born: fitfully, clumsily and sometimes stunningly.`\
 https://nytimes.com/2024/08/19/theater/ruhrtriennale-festival-highlights.html
@@ -35,8 +39,4 @@ https://nytimes.com/2024/08/19/us/politics/democratic-national-convention-chicag
 **John Harbaugh says the Ravens are closing in on their starting OL decisions**\
 `Andrew Vorhees and Daniel Faalele look like they'll be the Ravens' starting guards for the Week 1 opener against the Chiefs.`\
 https://nytimes.com/athletic/5710851/2024/08/19/baltimore-ravens-offensive-line-starters-week-1/
-
-**How the onslaught of Bills injuries impacts cutdown day**\
-`A crop of injuries could force the Bills to make some tough decisions.`\
-https://nytimes.com/athletic/5710753/2024/08/19/buffalo-bills-injuries-cutdown-day/
 

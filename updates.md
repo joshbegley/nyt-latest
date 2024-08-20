@@ -1,3 +1,7 @@
+**At Democratic Convention, Hochul Says Trump Lacks ‘New York Values’**\
+`In one of the most high-profile speeches of her career, Gov. Kathy Hochul drew a contrast between the current and former presidents, telling attendees, “If you think you’re tired of Donald Trump, talk to a New Yorker.”`\
+https://nytimes.com/2024/08/19/nyregion/kathy-hochul-dnc-speech.html
+
 **At the Ruhrtriennale, Searching for the Sublime Among the Ruins**\
 `In the abandoned industrial sites that serve as the festival’s venues, our critic witnessed beauty struggling to be born: fitfully, clumsily and sometimes stunningly.`\
 https://nytimes.com/2024/08/19/theater/ruhrtriennale-festival-highlights.html
