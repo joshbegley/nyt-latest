@@ -1,6 +1,6 @@
 **After 62 Years, Brooklyn Says Goodbye to a Local Hardware Store**\
 `To mourn the closure of Crest Hardware, a beloved family business in Williamsburg, fans of the store held a wake and staged a second line march.`\
-https://nytimes.com/2024/08/20/style/after-62-years-brooklyn-says-goodbye-to-a-local-hardware-store.html
+https://nytimes.com/2024/08/20/style/crest-hardware-brooklyn.html
 
 **Bengals, Joe Burrow look ready for season in joint practice against Colts**\
 `The quarterback showed no signs of last year's injuries while clicking with Tee Higgins and Mike Gesicki Tuesday.`\
