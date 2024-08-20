@@ -1,3 +1,11 @@
+**Behind the Blues' successful offer sheets: 'If there is a GM code, no one emailed it to me'**\
+`GM Doug Armstrong pried Philip Broberg and Dylan Holloway from Edmonton with offer sheets that the Oilers didn't match.`\
+https://nytimes.com/athletic/5711769/2024/08/20/blues-offer-sheets-holloway-broberg/
+
+**Debbie Mucarsel-Powell Wins the Democratic Senate Nomination in Florida**\
+`The former congresswoman will challenge the Republican incumbent, Rick Scott, in November.`\
+https://nytimes.com/2024/08/20/us/mucarsel-powell-florida-senate-primary.html
+
 **When a President Speaks After Prime Time, Who Listens?**\
 `Democrats have a set of lofty goals for the convention tonight. Among them: Just do it all on time.`\
 https://nytimes.com/2024/08/20/us/politics/biden-obama-dnc-chicago.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5713148/2024/08/20/bengals-joe-burrow-joint-practic
 **Woman Lost for 4 Days in Colorado Mountains Is Rescued**\
 `Gina Chase went camping with an organization that recommended participants fast and discouraged cellphones during a spiritual retreat, the authorities said.`\
 https://nytimes.com/2024/08/20/us/colorado-missing-woman-spiritual-quest.html
-
-**Ana Navarro and Other Republican Trump Critics Appearing on D.N.C. Night 2**\
-`A White House press secretary under Mr. Trump began the Republican attacks on Trump, while Ms. Navarro, the Republican political commentator, is serving as a host for the evening.`\
-https://nytimes.com/2024/08/20/us/politics/ana-navarro-stephanie-grishamn-trump-dnc.html
-
-**Myron E. Ullman III, Executive Who Remade Macy’s and J.C. Penney, Dies at 77**\
-`As a leader behind many of the world’s best-known brands, he exuded operational know-how. He also displayed a rare humility, which helped drive his success.`\
-https://nytimes.com/2024/08/20/business/myron-e-ullman-iii-dead.html
 
