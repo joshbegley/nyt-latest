@@ -1,3 +1,15 @@
+**Myron E. Ullman III, Executive Who Remade Macy’s and J.C. Penney, Dies at 77**\
+`As a leader behind many of the world’s best-known brands, he exuded operational know-how. He also displayed a rare humility, which helped drive his success.`\
+https://nytimes.com/2024/08/20/business/myron-e-ullman-iii-dead.html
+
+**Iranian Military Official Hints Strike on Israel May Be Delayed**\
+`The comments from an Islamic Revolutionary Guards Corps leader suggested that a widely feared regional conflict might be averted, at least for the moment.`\
+https://nytimes.com/2024/08/20/world/middleeast/iran-israel-conflict.html
+
+**At the D.N.C., Chicago’s Trump Tower is a Republican enclave.**\
+`Trump cam`\
+https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/dnc-trump-tower
+
 **How to Handle the Next Campus Protest**\
 `What a university president might tell students about campus politics and the aims of education.`\
 https://nytimes.com/2024/08/20/opinion/college-protests-gaza-israel.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/20/books/review/bluff-poems-danez-smith.html
 **The Speaker Lineup for Night 2 of the Democratic National Convention**\
 `Former President Barack Obama and Michelle Obama are the headline speakers on Tuesday.`\
 https://nytimes.com/2024/08/20/us/politics/dnc-speakers-day-2-lineup.html
-
-**Como submit offer for Real Madrid's Paz**\
-`Como have submitted an offer to Real Madrid for the signing of 19-year-old attacking midfielder Nico Paz.`\
-https://nytimes.com/athletic/5713064/2024/08/20/nico-paz-real-madrid-como-transfer/
-
-**News Emmys Defend Nomination of Palestinian Journalist**\
-`A nonprofit had argued that a video from Gaza should be disqualified,  accusing the reporter of having a history of “spreading antisemitism and condoning violence.”`\
-https://nytimes.com/2024/08/20/arts/emmys-bisan-owda-gaza-al-jazeera.html
-
-**U.S. Push for Gaza Cease-Fire Falls Short on Key Points, Officials Say**\
-`Israeli and Hamas officials have downplayed the idea that a deal could be imminent, saying that mediators’ efforts have not resolved major disputes.`\
-https://nytimes.com/2024/08/20/world/middleeast/israel-hamas-us-ceasefire-gaza.html
 

@@ -1,3 +1,15 @@
+**Myron E. Ullman III, Executive Who Remade Macy’s and J.C. Penney, Dies at 77**\
+`As a leader behind many of the world’s best-known brands, he exuded operational know-how. He also displayed a rare humility, which helped drive his success.`\
+https://nytimes.com/2024/08/20/business/myron-e-ullman-iii-dead.html
+
+**Iranian Military Official Hints Strike on Israel May Be Delayed**\
+`The comments from an Islamic Revolutionary Guards Corps leader suggested that a widely feared regional conflict might be averted, at least for the moment.`\
+https://nytimes.com/2024/08/20/world/middleeast/iran-israel-conflict.html
+
+**At the D.N.C., Chicago’s Trump Tower is a Republican enclave.**\
+`Trump cam`\
+https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/dnc-trump-tower
+
 **How to Handle the Next Campus Protest**\
 `What a university president might tell students about campus politics and the aims of education.`\
 https://nytimes.com/2024/08/20/opinion/college-protests-gaza-israel.html
