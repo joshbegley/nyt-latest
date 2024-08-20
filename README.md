@@ -1,3 +1,7 @@
+**Quotation of the Day: As Mennonites Settle in Amazon, Environmentalists Raise Flags**\
+`Quotation of the Day for Tuesday, August 20, 2024.`\
+https://nytimes.com/2024/08/20/pageoneplus/quotation-of-the-day-as-mennonites-settle-in-amazon-environmentalists-raise-flags.html
+
 **Corrections: Aug. 20, 2024**\
 `Corrections that appeared in print on Tuesday, Aug. 20, 2024.`\
 https://nytimes.com/2024/08/20/pageoneplus/corrections-aug-20-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5710159/2024/08/20/premier-league-season-fans/
 **“He called them ‘suckers and losers.’”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/us/dnc-fact-check/he-called-them-suckers-and-losers
-
-**Lost Grounds: Into the Millennium - from Highbury to Hull, Feethams to Filbert Street**\
-`Arsenal's former home is now the site of plush flats but there are some sorry sights where footballing cathedrals once stood`\
-https://nytimes.com/athletic/5580347/2024/08/20/lost-grounds-stadiums-replaced-highbury-maine-road/
 
