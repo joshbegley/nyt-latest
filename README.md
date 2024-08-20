@@ -1,3 +1,7 @@
+**JD Vance mocks Chicago, calling the D.N.C.’s host city a ‘combat zone.’**\
+`Mr. Vance criticized Chicago on Tuesday as part of an attack on his Democratic rival, Tim Walz.`\
+https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/jd-vance-mocks-chicago-calling-the-dncs-host-city-a-combat-zone
+
 **In Chicago, Democrats Are Newly Hopeful They Can Win the Fight for Congress**\
 `As they gather to formally nominate Vice President Kamala Harris, top Democrats say their candidates — who they feared would be dragged to defeat by President Biden — now have the wind at their backs.`\
 https://nytimes.com/2024/08/20/us/politics/democrats-congress-harris.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5712565/2024/08/20/landon-donovan-san-diego-wave-nw
 **Gov. Roy Cooper says Harris’s campaign is surging in North Carolina.**\
 `By Sharon LaFraniere`\
 https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/gov-roy-cooper-says-harriss-campaign-is-surging-in-north-carolina
-
-**For Democrats, Midwest Is Best: Two Reporters From the Region Discuss**\
-`With a convention in Chicago and a Minnesotan on the ticket, Democrats suddenly can’t stop talking about the Midwest. We turned to our Illinois and Indiana natives to consider this development.`\
-https://nytimes.com/2024/08/20/us/politics/democrats-midwest-appeal.html
 
