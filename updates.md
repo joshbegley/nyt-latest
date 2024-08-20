@@ -1,3 +1,7 @@
+**The Transfer DealSheet: Guehi latest, Man Utd still considering Ugarte, Liverpool goalkeeper interest**\
+`This is your weekly guide to everything that is going on in the transfer window`\
+https://nytimes.com/athletic/5709221/2024/08/20/manchester-united-transfer-news-arsenal-liverpool-real-madrid-barcelona-latest/
+
 **Vardy: Guzzling red bull, shithousing - and back scoring in the Premier League**\
 `Jamie Vardy returned to the Premier League with Leicester on Monday — and unsurprisingly scored against Spurs`\
 https://nytimes.com/athletic/5710777/2024/08/20/jamie-vardy-red-bull-leicester/
