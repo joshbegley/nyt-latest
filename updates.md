@@ -1,3 +1,23 @@
+**It’s Time for Crab Soup**\
+`With Chesapeake Bay blue crab season in full swing — and tomatoes, corn and green beans at their peak — make Maryland crab soup right now.`\
+https://nytimes.com/2024/08/20/dining/maryland-crab-soup.html
+
+**Harris and Trump Shield Their Big Campaign Fund-Raisers From the Public**\
+`Political campaigns are not required to disclose the names of their fund-raising “bundlers,” but many presidential candidates have done so in recent years.`\
+https://nytimes.com/2024/08/20/us/elections/campaign-bundlers-harris-trump.html
+
+**A Desperate Kennedy Campaign, and the Mystery of 110,000 Signatures**\
+`Robert F. Kennedy Jr.’s presidential team relied on a super PAC for the signatures needed to get on the ballot in Arizona, according to people with knowledge of the operation.`\
+https://nytimes.com/2024/08/20/us/politics/robert-f-kennedy-arizona-ballot.html
+
+**Larry A Silverstein**\
+`News about Larry A Silverstein. Commentary and archival information about Larry A Silverstein from The New York Times.`\
+https://nytimes.com/topic/larry-a-silverstein
+
+**By Day, Sun Studio Draws Tourists. At Night, Musicians Lay Down Tracks.**\
+`The historic room in Memphis has a thriving after-hours life, and generations of players come to capture a bit of the magic where rock ’n’ roll took shape.`\
+https://nytimes.com/2024/08/20/arts/music/sun-studio.html
+
 **By Day, Sun Studio Draws Tourists. At Night, Musicians Lay Down Tracks.**\
 `The historic room in Memphis has a thriving after-hours life, and generations of players come to capture a bit of the magic where rock ’n’ roll took shape.`\
 https://nytimes.com/2024/08/20/arts/music/sun-studio.html
