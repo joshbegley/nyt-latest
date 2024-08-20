@@ -1,3 +1,7 @@
+**Tracking Tropical Depression Jongdari**\
+`See the likely path and wind arrival times for Jongdari.`\
+https://nytimes.com/interactive/2024/08/20/weather/jongdari-map-path-tracker.html
+
 **The Athletic FC: Introducing the youngest-ever EPL coach; City favourites in Gundogan chase**\
 `The Athletic FC  is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox`\
 https://nytimes.com/athletic/5711448/2024/08/20/transfers-gundogan-ramsdale-hurzeler-brighton/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5711527/2024/08/20/tim-weah-hamstring-juventus/
 **Everton turn down offer for Maupay from Marseille**\
 `Everton have turned down a bid from Marseille to sign Neal Maupay.`\
 https://nytimes.com/athletic/5711554/2024/08/20/everton-transfers-neal-maupay-marseille/
-
-**Hit Chinese Video Game Seeks to Curb ‘Negative Discourse’**\
-`Black Myth: Wukong tried to forbid influential overseas streamers from discussing “feminist propaganda,” Covid-19 and China’s video game industry policies.`\
-https://nytimes.com/2024/08/20/world/asia/chinese-videogame-wukong-censorship.html
 
