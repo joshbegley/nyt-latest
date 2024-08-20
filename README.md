@@ -1,3 +1,11 @@
+**In Chicago, Democrats Are Newly Hopeful They Can Win the Fight for Congress**\
+`As they gather to formally nominate Vice President Kamala Harris, top Democrats say their candidates — who they feared would be dragged to defeat by President Biden — now have the wind at their backs.`\
+https://nytimes.com/2024/08/20/us/politics/democrats-congress-harris.html
+
+**What Happened to Inflation?**\
+`In the end, Bidenomics was vindicated.`\
+https://nytimes.com/2024/08/20/opinion/inflation-biden-economy.html
+
 **Debunking fantasy football narratives tied to rookies, explosive plays, depth of target and more**\
 `Michael Salfino identifies the false narratives currently pervading fantasy football, including a couple regarding NFL rookies.`\
 https://nytimes.com/athletic/5712580/2024/08/20/fantasy-football-false-narratives-2024/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/gov-roy-cooper-says
 **For Democrats, Midwest Is Best: Two Reporters From the Region Discuss**\
 `With a convention in Chicago and a Minnesotan on the ticket, Democrats suddenly can’t stop talking about the Midwest. We turned to our Illinois and Indiana natives to consider this development.`\
 https://nytimes.com/2024/08/20/us/politics/democrats-midwest-appeal.html
-
-**Southampton sign Sporting CP's Mateus Fernandes**\
-`Southampton have completed the signing of midfielder Mateus Fernandes from Sporting CP.`\
-https://nytimes.com/athletic/5708263/2024/08/20/southampton-sign-sporting-cps-mateus-fernandes/
-
-**Biden’s Speech as Convention Begins**\
-`Readers react to his speech and offer advice for the Democrats. Also: G.O.P. After Trump; funding for maintenance; taxing tips; imperfect summer.`\
-https://nytimes.com/2024/08/20/opinion/letters/bidens-speech-convention.html
 
