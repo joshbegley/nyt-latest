@@ -1,3 +1,7 @@
+**Can Democrats Make the Case to Climate Voters?**\
+`In another year of record-breaking temperatures, Democrats are faced with the challenge of making climate change resonate with voters.`\
+https://nytimes.com/2024/08/20/climate/kamala-harris-climate-change-politics.html
+
 **Orford agrees new five-year West Ham contract**\
 `West Ham United midfielder Lewis Orford has agreed a new five-year contract.`\
 https://nytimes.com/athletic/5712617/2024/08/20/lewis-orford-west-ham-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/opinion/letters/bidens-speech-convention.html
 **The Run-Up: Steve Kerr’s patriotism and a long clap goodbye for Biden.**\
 `By ‘The Run-Up’ Team`\
 https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/the-run-up-steve-kerrs-patriotism-and-a-long-clap-goodbye-for-biden
-
-**The Women's Open is at St. Andrews. The Old Course is ready to challenge the field**\
-`The home of golf has been blown apart by the men, but should stand up and show its teeth this week.`\
-https://nytimes.com/athletic/5710646/2024/08/20/womens-open-st-andrews-old-course/
 
