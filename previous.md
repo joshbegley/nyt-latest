@@ -1,3 +1,27 @@
+**Falcons fired up about what Matthew Judon, Justin Simmons bring to Atlanta**\
+`Judon and Simmons practiced with the Falcons on Monday. Judon says, "The mission is just go and destroy everything out there.”`\
+https://nytimes.com/athletic/5710447/2024/08/20/atlanta-falcons-matthew-judon-justin-simmons/
+
+**State of the Phillies' pitching staff: What they're focused on with 6 weeks until October**\
+`There are conflicting dynamics at play in the remaining six weeks as the Phillies seek to get their rotation and bullpen ready for October.`\
+https://nytimes.com/athletic/5709946/2024/08/20/phillies-pitching-staff-playoff-race-postseason/
+
+**James Carville on How Democrats Can Win on the Economy**\
+`From the Democratic National Convention, the political strategist who coined “The economy, stupid” shares his advice for Kamala Harris’s campaign.`\
+https://nytimes.com/2024/08/20/opinion/kamala-harris-dnc-james-carville.html
+
+**‘This Is a Fight for the Soul of the Democratic Party’**\
+`The split between Democratic voters and the party over Israel is deep and has been widening for decades. One election won’t change that.`\
+https://nytimes.com/2024/08/20/opinion/democrats-gaza-dnc.html
+
+**Kamala Harris Isn’t Bluffing**\
+`So far in the 2024 election, the party known for aversion to risk has been making better risk-management decisions.`\
+https://nytimes.com/2024/08/20/opinion/kamala-harris-democrats-risk.html
+
+**The Red Sox have an innovative pitching strategy, but has the league adjusted?**\
+`Boston's pitchers were successful early this season while throwing fewer fastballs than any other staff, but hitters seem to have caught on.`\
+https://nytimes.com/athletic/5704202/2024/08/20/red-sox-pitching-strategy-league-adjustments/
+
 **In 2016, Obama Passed a Baton. Tonight, He’ll Aim to Resurrect a Movement.**\
 `In his speech at the Democratic National Convention, the former president will have the tricky task of helping to reassemble the kind of coalition that powered his own rise.`\
 https://nytimes.com/2024/08/20/us/politics/obama-dnc-harris.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/08/20/opinion/harris-biden-trump-vance.html
 **Doug Emhoff Puts His Jewish Identity at the Center of His Campaign Outreach**\
 `As he campaigns for his wife, Kamala Harris, Mr. Emhoff has said he will make fighting antisemitism a top priority if he becomes the nation’s first first gentleman.`\
 https://nytimes.com/2024/08/20/us/politics/doug-emhoff-kamala-harris.html
-
-**Harris, Needling Trump, Holds a Rally at His Convention Site**\
-`In her latest move that seems meant to get under Donald Trump’s skin, Kamala Harris will hold an event at the same Milwaukee arena where he accepted the Republican nomination.`\
-https://nytimes.com/2024/08/20/us/politics/harris-trump-rally-milwaukee-fiserv.html
-
-**Who’s Afraid of the Big, Bad Tradwife?**\
-`Why women who dress up as 1950s homemakers are driving the internet insane.`\
-https://nytimes.com/2024/08/20/magazine/tradwives-instagram.html
-
-**5 Breakouts From Classical Music’s Most Prestigious Festival**\
-`The Salzburg Festival is synonymous with excellence and fame. But it’s also a place where artists on the cusp of stardom can shine.`\
-https://nytimes.com/2024/08/20/arts/music/5-breakouts-from-salzburg-festival.html
-
-**New York City’s Trees Work Hard. Still, They Could Use a Little Help.**\
-`A chemical reaction involving emissions from cars and buildings can negate their environmental benefits. New research shows what big cities can do about it.`\
-https://nytimes.com/2024/08/20/climate/pollution-trees-clean-air.html
-
-**‘Femme,’ ‘The Teachers’ Lounge’ and More Streaming Gems**\
-`A handful of low-key but formidable dramas dominate this month’s under-the-radar recommendations on your streaming subscription services.`\
-https://nytimes.com/2024/08/20/movies/femme-the-teachers-lounge-streaming-movies.html
-
-**An Experiment in Lust, Regret and Kissing**\
-`I challenged ChatGPT to a beach read writing contest. Here are the results.`\
-https://nytimes.com/2024/08/20/opinion/beach-read-ai.html
 
