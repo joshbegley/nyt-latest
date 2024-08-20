@@ -1,3 +1,7 @@
+**“Thanks to Joe Biden and Kamala Harris, we reopened our schools.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/thanks-to-joe-biden-and-kamala-harris-we-reopened-our-schools
+
 **Ocasio-Cortez, Once an Outsider, Takes Center Stage at Convention**\
 `In a prime-time speech, Representative Alexandria Ocasio-Cortez gave a forceful endorsement of Kamala Harris, saying Ms. Harris was “for the working class, because she’s from the working class.”`\
 https://nytimes.com/2024/08/19/nyregion/aoc-dnc-speech-harris.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/19/theater/ruhrtriennale-festival-highlights.html
 **Donald Trump vows to make his medical records public but doesn’t say when.**\
 `By Michael Gold`\
 https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/donald-trump-vows-to-make-his-medical-records-public-but-doesnt-say-when
-
-**Jannik Sinner and Aryna Sabalenka win Cincinnati Masters titles**\
-`The Italian and the Belarusian staked their claims for the US Open in Ohio.`\
-https://nytimes.com/athletic/5710971/2024/08/19/sinner-sabalenka-cincinnati-open-winners-2024/
 
