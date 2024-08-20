@@ -30,7 +30,7 @@ https://nytimes.com/2024/08/20/business/dealbook/can-harris-keep-the-peace-among
 `In a short video, Vanessa Chen, 16, muses about the meaning of the current “sock war” between millennials and Gen Z.`\
 https://nytimes.com/2024/08/20/learning/a-battleground-in-an-intergenerational-conflict-the-week-9-winner-of-our-summer-reading-contest.html
 
-**How Liverpool fixed duels difficulties at Ipswich (and what it told us about Slot)**\
+**How Liverpool fixed their duels difficulties at Ipswich (and what it tells us about Slot)**\
 `Liverpool's new head coach thought they lost too many individual battles in the first half and wasn't shy about intervening at half-time`\
 https://nytimes.com/athletic/5711421/2024/08/20/liverpool-duels-ipswich-arne-slot/
 

@@ -1,3 +1,7 @@
+**How Liverpool fixed their duels difficulties at Ipswich (and what it tells us about Slot)**\
+`Liverpool's new head coach thought they lost too many individual battles in the first half and wasn't shy about intervening at half-time`\
+https://nytimes.com/athletic/5711421/2024/08/20/liverpool-duels-ipswich-arne-slot/
+
 **How Liverpool fixed duels difficulties at Ipswich (and what it told us about Slot)**\
 `Liverpool's new head coach thought they lost too many individual battles in the first half and wasn't shy about intervening at half-time`\
 https://nytimes.com/athletic/5711421/2024/08/20/liverpool-duels-ipswich-arne-slot/
