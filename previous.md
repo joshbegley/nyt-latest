@@ -1,3 +1,7 @@
+**“While schools closed and dead bodies filled morgues, Donald Trump downplayed the virus. He told us to inject bleach into our bodies. He peddled conspiracy theories across the country. We lost hundreds of thousands of Americans, and our economy collapsed.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/us/dnc-fact-check/while-schools-closed-and-dead-bodies-filled-morgues-donald-trump-downplayed-the-virus-he-told-us-to-inject-bleach-into-our-bodie
+
 **Inside the arena, Pro-Palestinian Democrats see progress, and more to be done.**\
 `A panel — sponsored by the Harris campaign — highlighted the toll of Israel’s war against Hamas in Gaza, marking the first time in decades that the party had given a platform to pro-Palestinian activists.`\
 https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/inside-the-arena-pro-palestinian-democrats-see-progress-and-more-to-be-done
@@ -24,7 +28,7 @@ https://nytimes.com/athletic/5710159/2024/08/20/premier-league-season-fans/
 
 **“He called them ‘suckers and losers.’”**\
 `By Linda Qiu`\
-https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/he-called-them-suckers-and-losers
+https://nytimes.com/live/2024/us/dnc-fact-check/he-called-them-suckers-and-losers
 
 **Lost Grounds: Into the Millennium - from Highbury to Hull, Feethams to Filbert Street**\
 `Arsenal's former home is now the site of plush flats but there are some sorry sights where footballing cathedrals once stood`\
@@ -32,9 +36,5 @@ https://nytimes.com/athletic/5580347/2024/08/20/lost-grounds-stadiums-replaced-h
 
 **“The smallest racial wealth gap in 20 years.”**\
 `By Linda Qiu`\
-https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/the-smallest-racial-wealth-gap-in-20-years
-
-**Explained: What Champions League games will be on Amazon Prime and who will be pundits?**\
-`It was over two years ago that UEFA sold its UK and Ireland Champions League rights to TNT Sports and Amazon Prime for a combined €1.7bn`\
-https://nytimes.com/athletic/5709744/2024/08/20/champions-league-amazon-prime-tv-games/
+https://nytimes.com/live/2024/us/dnc-fact-check/the-smallest-racial-wealth-gap-in-20-years
 

@@ -1,3 +1,15 @@
+**“While schools closed and dead bodies filled morgues, Donald Trump downplayed the virus. He told us to inject bleach into our bodies. He peddled conspiracy theories across the country. We lost hundreds of thousands of Americans, and our economy collapsed.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/us/dnc-fact-check/while-schools-closed-and-dead-bodies-filled-morgues-donald-trump-downplayed-the-virus-he-told-us-to-inject-bleach-into-our-bodie
+
+**“He called them ‘suckers and losers.’”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/us/dnc-fact-check/he-called-them-suckers-and-losers
+
+**“The smallest racial wealth gap in 20 years.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/us/dnc-fact-check/the-smallest-racial-wealth-gap-in-20-years
+
 **Inside the arena, Pro-Palestinian Democrats see progress, and more to be done.**\
 `A panel — sponsored by the Harris campaign — highlighted the toll of Israel’s war against Hamas in Gaza, marking the first time in decades that the party had given a platform to pro-Palestinian activists.`\
 https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/inside-the-arena-pro-palestinian-democrats-see-progress-and-more-to-be-done
