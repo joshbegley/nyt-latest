@@ -1,3 +1,15 @@
+**Broberg, Holloway going to Blues; Oilers don't match offer sheets**\
+`The Oilers will receive a second-round pick as compensation for Philip Broberg and a third-round pick for Dylan Holloway.`\
+https://nytimes.com/athletic/5706821/2024/08/20/philip-broberg-dylan-holloway-oilers-blues-offer-sheets/
+
+**Until Saturday: Meet team No. 134, plus let's discuss fall weddings**\
+`Welcome to Until Saturday, the five-star college football newsletter: Get to know new FBS member Kennesaw State.`\
+https://nytimes.com/athletic/5710139/2024/08/20/college-football-rankings-fall-weddings-until-saturday/
+
+**Bombito proves there are hidden gems in Canadian soccer - can he shine in France?**\
+`After Canada centre-back has moved to Nice in Ligue 1, he could follow Alphonso Davies' lead and conquer Europe`\
+https://nytimes.com/athletic/5711149/2024/08/20/moise-bombito-transfer-canada-colorado/
+
 **How Liverpool fixed their duels difficulties at Ipswich (and what it tells us about Slot)**\
 `Liverpool's new head coach thought they lost too many individual battles in the first half and wasn't shy about intervening at half-time`\
 https://nytimes.com/athletic/5711421/2024/08/20/liverpool-duels-ipswich-arne-slot/

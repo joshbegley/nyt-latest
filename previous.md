@@ -1,9 +1,17 @@
+**Broberg, Holloway going to Blues; Oilers don't match offer sheets**\
+`The Oilers will receive a second-round pick as compensation for Philip Broberg and a third-round pick for Dylan Holloway.`\
+https://nytimes.com/athletic/5706821/2024/08/20/philip-broberg-dylan-holloway-oilers-blues-offer-sheets/
+
+**Until Saturday: Meet team No. 134, plus let's discuss fall weddings**\
+`Welcome to Until Saturday, the five-star college football newsletter: Get to know new FBS member Kennesaw State.`\
+https://nytimes.com/athletic/5710139/2024/08/20/college-football-rankings-fall-weddings-until-saturday/
+
 **Miller Moss named USC starting QB. Plus, Trojans' transfer Malachi Nelson beat for Boise State job**\
 `Do we put too much stock into USC quarterback transfers that don't necessarily see success at their new programs?`\
 https://nytimes.com/athletic/5711733/2024/08/20/miller-moss-usc-college-football-quarterback/
 
 **Bombito proves there are hidden gems in Canadian soccer - can he shine in France?**\
-`Canadian centre-back has moved to Nice in Ligue 1 - will he follow Alphonso Davies' lead and conquer Europe?`\
+`After Canada centre-back has moved to Nice in Ligue 1, he could follow Alphonso Davies' lead and conquer Europe`\
 https://nytimes.com/athletic/5711149/2024/08/20/moise-bombito-transfer-canada-colorado/
 
 **Tuesday's MLB best bets: Predictions for pitching matchups, playoffs and more**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/20/business/dealbook/can-harris-keep-the-peace-among
 **‘A Battleground in an Intergenerational Conflict’: The Week 9 Winner of Our Summer Reading Contest**\
 `In a short video, Vanessa Chen, 16, muses about the meaning of the current “sock war” between millennials and Gen Z.`\
 https://nytimes.com/2024/08/20/learning/a-battleground-in-an-intergenerational-conflict-the-week-9-winner-of-our-summer-reading-contest.html
-
-**How Liverpool fixed their duels difficulties at Ipswich (and what it tells us about Slot)**\
-`Liverpool's new head coach thought they lost too many individual battles in the first half and wasn't shy about intervening at half-time`\
-https://nytimes.com/athletic/5711421/2024/08/20/liverpool-duels-ipswich-arne-slot/
-
-**Kenyan Accused of Serial Killings Escapes From Police Custody**\
-`Collins Jumaisi Khalusha, who is accused of killing dozens of women, and 12 other people were able to break free, the police said.`\
-https://nytimes.com/2024/08/20/world/africa/kenya-serial-killer-suspect-escape.html
 
