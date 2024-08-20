@@ -1,3 +1,7 @@
+**Word of the Day: absolve**\
+`This word has appeared in 48 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/20/learning/word-of-the-day-absolve.html
+
 **Biden’s Lackluster Speech Is a Reminder That He Couldn’t Win**\
 `The country’s spirit has moved on.`\
 https://nytimes.com/live/2024/08/13/opinion/thepoint/biden-speech-convention
