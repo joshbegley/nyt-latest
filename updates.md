@@ -1,3 +1,7 @@
+**Weah suffers hamstring injury in Juventus win**\
+`USMNT forward Tim Weah faces a period on the sidelines after picking up a hamstring injury during Juventus&#8217; 3-0 victory over Como on Monday evening.`\
+https://nytimes.com/athletic/5711527/2024/08/20/tim-weah-hamstring-juventus/
+
 **Everton turn down offer for Maupay from Marseille**\
 `Everton have turned down a bid from Marseille to sign Neal Maupay.`\
 https://nytimes.com/athletic/5711554/2024/08/20/everton-transfers-neal-maupay-marseille/
