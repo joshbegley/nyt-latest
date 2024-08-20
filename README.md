@@ -1,3 +1,7 @@
+**How to Handle the Next Campus Protest**\
+`What a university president might tell students about campus politics and the aims of education.`\
+https://nytimes.com/2024/08/20/opinion/college-protests-gaza-israel.html
+
 **Dennis A. Muilenburg**\
 `News about Dennis A. Muilenburg. Commentary and archival information about Dennis A. Muilenburg from The New York Times.`\
 https://nytimes.com/topic/dennis-a-muilenburg
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/arts/emmys-bisan-owda-gaza-al-jazeera.html
 **U.S. Push for Gaza Cease-Fire Falls Short on Key Points, Officials Say**\
 `Israeli and Hamas officials have downplayed the idea that a deal could be imminent, saying that mediators’ efforts have not resolved major disputes.`\
 https://nytimes.com/2024/08/20/world/middleeast/israel-hamas-us-ceasefire-gaza.html
-
-**Sergei A Ryabkov**\
-`News about Sergei A Ryabkov. Commentary and archival information about Sergei A Ryabkov from The New York Times.`\
-https://nytimes.com/topic/sergei-a-ryabkov
 
