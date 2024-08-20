@@ -1,3 +1,7 @@
+**Rocket Test on Remote Scottish Island Ends in Flames**\
+`As European countries push to develop more independent space capabilities, a test at one new site produced an explosion.`\
+https://nytimes.com/2024/08/20/world/europe/rocket-test-on-remote-scottish-island-ends-in-flames.html
+
 **Eric A Ulrich**\
 `News about Eric A Ulrich. Commentary and archival information about Eric A Ulrich from The New York Times.`\
 https://nytimes.com/topic/eric-a-ulrich
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/style/phil-donahue-clothes.html
 **Who’s Missing From Sunken Yacht? Tech Mogul Mike Lynch and 5 Others.**\
 `Mr. Lynch, the former chief executive of the software firm Autonomy, who was acquitted on fraud charges in June, was with friends and family when the yacht went down in a severe storm.`\
 https://nytimes.com/2024/08/20/business/dealbook/sicily-yacht-sinks-missing-passengers.html
-
-**Minyon Moore Helped Harris Rise. Now She’s Leading Her Convention.**\
-`The longtime Democratic operative’s role overseeing the convention has required her to step out from behind the scenes.`\
-https://nytimes.com/2024/08/20/us/politics/minyon-moore-kamala-harris-dnc.html
 
