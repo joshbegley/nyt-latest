@@ -1,3 +1,15 @@
+**Flores on time with Tua: 'There's things I could do better'**\
+`Brian Flores expressed regret Tuesday in how he handled his relationship with Dolphins QB Tua Tagovailoa.`\
+https://nytimes.com/athletic/5712724/2024/08/20/brian-flores-tua-tagovailoa-comments/
+
+**Tennessee Prison Is Under Federal Investigation After Reports of Abuse**\
+`State audits of the Trousdale Turner Correctional Center, outside Nashville, have suggested that understaffing and high turnover have created an unsafe environment.`\
+https://nytimes.com/2024/08/20/us/politics/tennessee-prison-investigation-abuse.html
+
+**2 Are Killed as Private Plane Crashes Into Texas Mobile Home Park**\
+`The people killed were aboard the plane, the authorities said. One woman was rescued from a burning mobile home in Odessa after the crash on Tuesday morning.`\
+https://nytimes.com/2024/08/20/us/odessa-plane-crash-texas.html
+
 **Alabama football recruiting: 5-star RB Akylin Dear flips to Tide from Ole Miss**\
 `Akylin is the No. 2-ranked running back in the Class of 2025 per the 247Sports Composite.`\
 https://nytimes.com/athletic/5712730/2024/08/20/alabama-college-football-recruiting-akylin-dear/

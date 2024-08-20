@@ -1,3 +1,15 @@
+**Flores on time with Tua: 'There's things I could do better'**\
+`Brian Flores expressed regret Tuesday in how he handled his relationship with Dolphins QB Tua Tagovailoa.`\
+https://nytimes.com/athletic/5712724/2024/08/20/brian-flores-tua-tagovailoa-comments/
+
+**Tennessee Prison Is Under Federal Investigation After Reports of Abuse**\
+`State audits of the Trousdale Turner Correctional Center, outside Nashville, have suggested that understaffing and high turnover have created an unsafe environment.`\
+https://nytimes.com/2024/08/20/us/politics/tennessee-prison-investigation-abuse.html
+
+**2 Are Killed as Private Plane Crashes Into Texas Mobile Home Park**\
+`The people killed were aboard the plane, the authorities said. One woman was rescued from a burning mobile home in Odessa after the crash on Tuesday morning.`\
+https://nytimes.com/2024/08/20/us/odessa-plane-crash-texas.html
+
 **Alabama football recruiting: 5-star RB Akylin Dear flips to Tide from Ole Miss**\
 `Akylin is the No. 2-ranked running back in the Class of 2025 per the 247Sports Composite.`\
 https://nytimes.com/athletic/5712730/2024/08/20/alabama-college-football-recruiting-akylin-dear/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5705481/2024/08/20/book-excerpt-inside-fantasy-foot
 **Tiny Love Stories: ‘It Was Scary, the Good Kind’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/08/20/style/tiny-modern-love-stories-it-was-scary-the-good-kind.html
-
-**Storm, Williams agree to rest-of-season contract**\
-`Gabby Williams led the French national team in points (15.5) and assists (2.3) en route to earning a silver medal at the Paris Olympics.`\
-https://nytimes.com/athletic/5712602/2024/08/20/gabby-williams-seattle-storm-contract/
-
-**JD Vance mocks Chicago, calling the D.N.C.’s host city a ‘combat zone.’**\
-`Mr. Vance criticized Chicago on Tuesday as part of an attack on his Democratic rival, Tim Walz.`\
-https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/jd-vance-mocks-chicago-calling-the-dncs-host-city-a-combat-zone
-
-**In Chicago, Democrats Are Newly Hopeful They Can Win the Fight for Congress**\
-`As they gather to formally nominate Vice President Kamala Harris, top Democrats say their candidates — who they feared would be dragged to defeat by President Biden — now have the wind at their backs.`\
-https://nytimes.com/2024/08/20/us/politics/democrats-congress-harris.html
 
