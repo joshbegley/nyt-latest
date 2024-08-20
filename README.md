@@ -1,3 +1,7 @@
+**Corrections: Aug. 20, 2024**\
+`Corrections that appeared in print on Tuesday, Aug. 20, 2024.`\
+https://nytimes.com/2024/08/20/pageoneplus/corrections-aug-20-2024.html
+
 **“While schools closed and dead bodies filled morgues, Donald Trump downplayed the virus. He told us to inject bleach into our bodies. He peddled conspiracy theories across the country. We lost hundreds of thousands of Americans, and our economy collapsed.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/us/dnc-fact-check/while-schools-closed-and-dead-bodies-filled-morgues-donald-trump-downplayed-the-virus-he-told-us-to-inject-bleach-into-our-bodie
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/us/dnc-fact-check/he-called-them-suckers-and-loser
 **Lost Grounds: Into the Millennium - from Highbury to Hull, Feethams to Filbert Street**\
 `Arsenal's former home is now the site of plush flats but there are some sorry sights where footballing cathedrals once stood`\
 https://nytimes.com/athletic/5580347/2024/08/20/lost-grounds-stadiums-replaced-highbury-maine-road/
-
-**“The smallest racial wealth gap in 20 years.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/us/dnc-fact-check/the-smallest-racial-wealth-gap-in-20-years
 
