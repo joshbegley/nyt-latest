@@ -1,3 +1,11 @@
+**“He created the largest debt any president had in four years with his two trillion dollars tax cut for the wealthy.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/he-created-the-largest-debt-any-president-had-in-four-years-with-his-two-trillion-dollars-tax-cut-for-the-wealthy
+
+**Watching four games in four days - and what it revealed about the new Premier League season**\
+`What do fans really think about the new campaign? We travelled to games at Manchester United, Arsenal, Chelsea and Leicester to find out`\
+https://nytimes.com/athletic/5710159/2024/08/20/premier-league-season-fans/
+
 **“He called them ‘suckers and losers.’”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/he-called-them-suckers-and-losers

@@ -1,3 +1,11 @@
+**Palace left playing risk and reward with Guehi and Andersen as deadline day looms**\
+`Bids have been lodged for both centre-halves this summer, leaving Palace contemplating when, if ever, represents the best time to sell`\
+https://nytimes.com/athletic/5708101/2024/08/20/crystal-palace-guehi-andersen-transfer/
+
+**Three Women Testify to the Effects of State Abortion Bans**\
+`One of the women, who was impregnated by her stepfather as a child, recalled Donald J. Trump’s praise for the bans as a “beautiful thing” and asked, “What is so beautiful about a child having to carry her parent’s child?”`\
+https://nytimes.com/2024/08/20/us/politics/dnc-abortion-amanda-zurawski-kaitlyn-joshua-hadley-duvall.html
+
 **“He created the largest debt any president had in four years with his two trillion dollars tax cut for the wealthy.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/he-created-the-largest-debt-any-president-had-in-four-years-with-his-two-trillion-dollars-tax-cut-for-the-wealthy
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5709614/2024/08/20/how-can-bournemouth-afford-to-sp
 **Mets' Francisco Alvarez ends his home run drought in walk-off fashion**\
 `Alvarez was in a 2-for-25 slump before beating the Orioles with a one-out blast in the ninth: "He lives for those moments."`\
 https://nytimes.com/athletic/5711178/2024/08/20/mets-francisco-alvarez-walk-off/
-
-**Tuesday Briefing**\
-`The U.S. push for a cease-fire in Gaza.`\
-https://nytimes.com/2024/08/20/briefing/gaza-talks-democratic-national-convention.html
-
-**Global Trade Needs a China Alternative. India Needs Better Ports.**\
-`Efforts to build new ports and expand existing docks could determine whether India emerges as a legitimate option for global factory production.`\
-https://nytimes.com/2024/08/20/business/india-jawaharlal-nehru-port.html
 
