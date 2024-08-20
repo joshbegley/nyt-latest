@@ -1,3 +1,7 @@
+**A Waterspout Was Seen When a Luxury Yacht Sank. What Is It?**\
+`Witnesses reported seeing the tornado-like phenomenon hit the Bayesian, a sailing yacht that sank off the coast of Sicily on Monday.`\
+https://nytimes.com/2024/08/20/world/europe/waterspout-yacht-sinks-sicily.html
+
 **Transcript: Ezra Klein on the 2024 Democratic National Convention and Joe Biden’s Legacy**\
 `The Aug. 20, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/08/20/podcasts/transcript-ezra-klein-democratic-national-convention-digest-1.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/dining/costco.html
 **Chicago Prepares for More Protests as Democrats Hold Convention**\
 `One group said it would demonstrate at the Consulate of Israel in downtown Chicago. The police said they would not tolerate violence.`\
 https://nytimes.com/2024/08/20/us/chicago-protests-dnc-israel.html
-
-**Charles R. Cross, Biographer of Cobain and Hendrix, Dies at 67**\
-`He tracked the rise of grunge as the editor of the Seattle music magazine The Rocket. He also wrote acclaimed books about two of the city’s most celebrated rock luminaries.`\
-https://nytimes.com/2024/08/20/arts/music/charles-cross-dead.html
 

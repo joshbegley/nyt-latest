@@ -1,3 +1,7 @@
+**A Waterspout Was Seen When a Luxury Yacht Sank. What Is It?**\
+`Witnesses reported seeing the tornado-like phenomenon hit the Bayesian, a sailing yacht that sank off the coast of Sicily on Monday.`\
+https://nytimes.com/2024/08/20/world/europe/waterspout-yacht-sinks-sicily.html
+
 **Transcript: Ezra Klein on the 2024 Democratic National Convention and Joe Biden’s Legacy**\
 `The Aug. 20, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/08/20/podcasts/transcript-ezra-klein-democratic-national-convention-digest-1.html
