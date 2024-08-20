@@ -1,3 +1,11 @@
+**Late Night Congratulates Biden for Staying Up So Late**\
+`When the president finally took the stage at the Democratic convention, “the cheers were so loud that even Biden could hear them,” Jimmy Fallon said.`\
+https://nytimes.com/2024/08/20/arts/television/late-night-biden-democratic-convention.html
+
+**How did Dominic Solanke perform on his Tottenham Hotspur debut?**\
+`Tottenham were held to a 1-1 draw by Leicester, this is how their new striker signing performed on Monday night`\
+https://nytimes.com/athletic/5710965/2024/08/20/dominic-solanke-tottenham-hotspur-analysis/
+
 **The Speech Biden Never Wanted to Give**\
 `“Thank you, Joe!’’ the crowd members chanted to a tearful president for his lifetime of public service. But they were also thanking him for not running again.`\
 https://nytimes.com/2024/08/20/us/politics/biden-convention.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/20/pageoneplus/corrections-aug-20-2024.html
 **“While schools closed and dead bodies filled morgues, Donald Trump downplayed the virus. He told us to inject bleach into our bodies. He peddled conspiracy theories across the country. We lost hundreds of thousands of Americans, and our economy collapsed.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/us/dnc-fact-check/while-schools-closed-and-dead-bodies-filled-morgues-donald-trump-downplayed-the-virus-he-told-us-to-inject-bleach-into-our-bodie
-
-**Inside the arena, Pro-Palestinian Democrats see progress, and more to be done.**\
-`A panel — sponsored by the Harris campaign — highlighted the toll of Israel’s war against Hamas in Gaza, marking the first time in decades that the party had given a platform to pro-Palestinian activists.`\
-https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/inside-the-arena-pro-palestinian-democrats-see-progress-and-more-to-be-done
-
-**“Trump wants to cut Social Security and Medicare.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/trump-wants-to-cut-social-security-and-medicare
 
