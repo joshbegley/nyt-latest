@@ -1,3 +1,15 @@
+**The Athletic FC: Introducing the youngest-ever EPL coach; City favourites in Gundogan chase**\
+`The Athletic FC  is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox`\
+https://nytimes.com/athletic/5711448/2024/08/20/transfers-gundogan-ramsdale-hurzeler-brighton/
+
+**Can Harris Keep the Peace Among Progressives and C.E.O.s?**\
+`The vice president garnered public endorsements from progressives at the Democratic National Convention, but she must also keep corporate supporters on board.`\
+https://nytimes.com/2024/08/20/business/dealbook/can-harris-keep-the-peace-among-progressives-and-ceos.html
+
+**‘A Battleground in an Intergenerational Conflict’: The Week 9 Winner of Our Summer Reading Contest**\
+`In a short video, Vanessa Chen, 16, muses about the meaning of the current “sock war” between millennials and Gen Z.`\
+https://nytimes.com/2024/08/20/learning/a-battleground-in-an-intergenerational-conflict-the-week-9-winner-of-our-summer-reading-contest.html
+
 **How Liverpool fixed duel difficulties at Ipswich (and what it told us about Slot)**\
 `Dutch coach thought his side lost too many individual battles and was not shy in intervening`\
 https://nytimes.com/athletic/5711421/2024/08/20/liverpool-duels-ipswich-arne-slot/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5711554/2024/08/20/everton-transfers-neal-maupay-ma
 **Hit Chinese Video Game Seeks to Curb ‘Negative Discourse’**\
 `Black Myth: Wukong tried to forbid influential overseas streamers from discussing “feminist propaganda,” Covid-19 and China’s video game industry policies.`\
 https://nytimes.com/2024/08/20/world/asia/chinese-videogame-wukong-censorship.html
-
-**Notre Dame camp lessons: Riley Leonard earned belief, but can offense catch up to defense?**\
-`What we learned about Notre Dame's biggest strengths (DBs), biggest questions (O-line) and more in preseason camp.`\
-https://nytimes.com/athletic/5711483/2024/08/20/notre-dame-football-captains-preseason-camp/
-
-**Lamine Yamal's next steps at Barcelona - and the new challenges he's already faced**\
-`The 17-year-old returned from Euro 2024 a national hero. But circumstances beyond his control made this season a difficult start`\
-https://nytimes.com/athletic/5711313/2024/08/20/lamine-yamal-barcelona-la-liga-new-season/
-
-**Zelensky Says Push Into Russia Shows the West’s Red Lines Are ‘Naïve’**\
-`President Volodymyr Zelensky of Ukraine seized on the incursion’s success to press allies to lift a longtime restriction: the use of Western-supplied long-range weapons against Russia.`\
-https://nytimes.com/2024/08/20/world/europe/ukraine-russia-war-incursion-zelensky.html
 
