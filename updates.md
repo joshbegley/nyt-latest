@@ -1,3 +1,11 @@
+**Internet Slows to a Crawl in Pakistan, Stoking Fear of a Firewall**\
+`Disruptions have fueled claims from rights groups that the Pakistani authorities are introducing technology to surveil and control the country’s internet.`\
+https://nytimes.com/2024/08/20/world/asia/pakistan-internet-government-surveillance.html
+
+**Amazon in talks to purchase Klopp documentary**\
+`Amazon Prime Video are among the streaming platforms in discussions to purchase the Liverpool documentary series which captured Jurgen Klopp’s final season as the club&#8217;s manager.`\
+https://nytimes.com/athletic/5711910/2024/08/20/liverpool-documentary-jurgen-klopp-amazon/
+
 **The Dems Just Showed That They’re a Winning Party**\
 `On the first night of the convention, Democrats honored their past and future.`\
 https://nytimes.com/video/opinion/100000009642002/the-dems-just-showed-that-theyre-a-winning-party.html
