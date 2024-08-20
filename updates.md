@@ -1,3 +1,7 @@
+**Biden’s Lackluster Speech Is a Reminder That He Couldn’t Win**\
+`The country’s spirit has moved on.`\
+https://nytimes.com/live/2024/08/13/opinion/thepoint/biden-speech-convention
+
 **Quotation of the Day: As Mennonites Settle in Amazon, Environmentalists Raise Flags**\
 `Quotation of the Day for Tuesday, August 20, 2024.`\
 https://nytimes.com/2024/08/20/pageoneplus/quotation-of-the-day-as-mennonites-settle-in-amazon-environmentalists-raise-flags.html
