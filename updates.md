@@ -1,3 +1,7 @@
+**Giants scratch Patrick Bailey but claw out a victory over White Sox**\
+`The Giants needed to go deep into their roster to turn aside an opponent that hasn't won a road series since the first week of May.`\
+https://nytimes.com/athletic/5711247/2024/08/20/giants-patrick-bailey-white-sox/
+
 **Women With Harrowing Pregnancies Address Abortion Rights**\
 `The speakers appeared at the Democratic National Convention and condemned restrictive abortion laws that have been enacted across the country.`\
 https://nytimes.com/video/us/politics/100000009640917/abortion-bans-dnc.html
