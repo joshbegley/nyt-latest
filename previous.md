@@ -1,3 +1,7 @@
+**“He called them ‘suckers and losers.’”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/he-called-them-suckers-and-losers
+
 **Lost Grounds: Into the Millennium - from Highbury to Hull, Feethams to Filbert Street**\
 `Arsenal's former home is now the site of plush flats but there are some sorry sights where footballing cathedrals once stood`\
 https://nytimes.com/athletic/5580347/2024/08/20/lost-grounds-stadiums-replaced-highbury-maine-road/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/world/americas/venezuela-opposition-leaders-argen
 **“Instead of paying $400 a month for insulin, seniors with diabetes will pay $35 a month.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/instead-of-paying-400-a-month-for-insulin-seniors-with-diabetes-will-pay-35-a-month
-
-**Last year's trash: Tee Higgins, Javonte Williams and more bounce-back targets for fantasy football 2024**\
-`Jake Ciely picks his 11 favorite players from the 2023 trash pile, who will rebound for the 2024 fantasy football season`\
-https://nytimes.com/athletic/5710641/2024/08/20/fantasy-football-last-years-trash-tee-higgins-javonte-williams/
 

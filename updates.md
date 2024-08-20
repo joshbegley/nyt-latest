@@ -1,3 +1,7 @@
+**“He called them ‘suckers and losers.’”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/he-called-them-suckers-and-losers
+
 **Lost Grounds: Into the Millennium - from Highbury to Hull, Feethams to Filbert Street**\
 `Arsenal's former home is now the site of plush flats but there are some sorry sights where footballing cathedrals once stood`\
 https://nytimes.com/athletic/5580347/2024/08/20/lost-grounds-stadiums-replaced-highbury-maine-road/

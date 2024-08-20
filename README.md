@@ -1,3 +1,11 @@
+**“He created the largest debt any president had in four years with his two trillion dollars tax cut for the wealthy.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/he-created-the-largest-debt-any-president-had-in-four-years-with-his-two-trillion-dollars-tax-cut-for-the-wealthy
+
+**Watching four games in four days - and what it revealed about the new Premier League season**\
+`What do fans really think about the new campaign? We travelled to games at Manchester United, Arsenal, Chelsea and Leicester to find out`\
+https://nytimes.com/athletic/5710159/2024/08/20/premier-league-season-fans/
+
 **“He called them ‘suckers and losers.’”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/he-called-them-suckers-and-losers
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/20/briefing/gaza-talks-democratic-national-conventio
 **Global Trade Needs a China Alternative. India Needs Better Ports.**\
 `Efforts to build new ports and expand existing docks could determine whether India emerges as a legitimate option for global factory production.`\
 https://nytimes.com/2024/08/20/business/india-jawaharlal-nehru-port.html
-
-**They Ran a Campaign in Hiding. Now They Wait.**\
-`The campaign officials for Venezuela’s opposition have sheltered in an Argentine diplomatic residence in Caracas for five months, watching the country’s turmoil from asylum.`\
-https://nytimes.com/2024/08/20/world/americas/venezuela-opposition-leaders-argentine-embassy.html
-
-**“Instead of paying $400 a month for insulin, seniors with diabetes will pay $35 a month.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/instead-of-paying-400-a-month-for-insulin-seniors-with-diabetes-will-pay-35-a-month
 
