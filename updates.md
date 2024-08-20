@@ -1,3 +1,15 @@
+**PFA awards: Foden & Shaw complete Man City double**\
+`Manchester City completed a PFA Player of the Year double on Tuesday night as midfielder Phil Foden and striker Bunny Shaw were named men&#8217;s and women&#8217;s winners for 2023-24.`\
+https://nytimes.com/athletic/5711730/2024/08/20/pfa-award-winners-foden-shaw/
+
+**Final Report on Maine Shootings Criticizes Gunman’s Army Supervisors**\
+`The report found that both local law enforcement and the Army Reserve failed to act on evidence that the gunman was dangerous before the shootings.`\
+https://nytimes.com/2024/08/20/us/maine-shootings-final-report.html
+
+**Disney Backs Down From Effort to Use Disney+ Agreement to Block Lawsuit**\
+`The entertainment company had faced a backlash after claiming that a man whose wife died after an allergic reaction to food at Disney World had waived his right to sue when he signed up for Disney+.`\
+https://nytimes.com/2024/08/20/nyregion/disney-arbitration-allergy-death-lawsuit.html
+
 **Flores on time with Tua: 'There's things I could do better'**\
 `Brian Flores expressed regret Tuesday in how he handled his relationship with Dolphins QB Tua Tagovailoa.`\
 https://nytimes.com/athletic/5712724/2024/08/20/brian-flores-tua-tagovailoa-comments/
