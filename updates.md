@@ -1,3 +1,11 @@
+**How a Law That Shields Big Tech Is Now Being Used Against It**\
+`A Massachusetts professor has filed a lawsuit against Meta using a novel interpretation of Section 230, a law known primarily for shielding social media companies from liability.`\
+https://nytimes.com/2024/08/20/technology/meta-section-230-lawsuit.html
+
+**Browns willing to engage in trade talks involving DTR: Source**\
+`Thompson-Robinson has been competing with Tyler Huntley for Cleveland's No. 3 QB job behind Deshaun Watson and Jameis Winston. `\
+https://nytimes.com/athletic/5712064/2024/08/20/browns-dorian-thompson-robinson-trade/
+
 **The Seahawks' success will hinge on their O-line (again). Is it up to the task?**\
 `Connor Williams could be an upgrade at center, and the Seahawks have perhaps the NFL's best young tackle duo, but health is a big concern.`\
 https://nytimes.com/athletic/5711101/2024/08/20/seahawks-offensive-line-connor-williams-charles-cross/
