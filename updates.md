@@ -1,3 +1,7 @@
+**David A Haggerty**\
+`News about David A Haggerty. Commentary and archival information about David A Haggerty from The New York Times.`\
+https://nytimes.com/topic/david-a-haggerty
+
 **No More Butter Chicken: Where Indian Food Finally Gets to Be Itself**\
 `Our interim critic reviews Bungalow in the East Village, where the celebrity chef Vikas Khanna’s variations on regional dishes blaze new paths without cutting corners.`\
 https://nytimes.com/2024/08/20/dining/restaurant-review-bungalow-east-village.html
