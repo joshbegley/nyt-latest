@@ -1,3 +1,7 @@
+**JD Vance mocks Chicago, calling the D.N.C.’s host city a ‘combat zone.’**\
+`Mr. Vance criticized Chicago on Tuesday as part of an attack on his Democratic rival, Tim Walz.`\
+https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/jd-vance-mocks-chicago-calling-the-dncs-host-city-a-combat-zone
+
 **In Chicago, Democrats Are Newly Hopeful They Can Win the Fight for Congress**\
 `As they gather to formally nominate Vice President Kamala Harris, top Democrats say their candidates — who they feared would be dragged to defeat by President Biden — now have the wind at their backs.`\
 https://nytimes.com/2024/08/20/us/politics/democrats-congress-harris.html
