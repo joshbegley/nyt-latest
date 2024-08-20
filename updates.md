@@ -1,3 +1,7 @@
+**How Liverpool fixed duels difficulties at Ipswich (and what it told us about Slot)**\
+`Liverpool's new head coach thought they lost too many individual battles in the first half and wasn't shy about intervening at half-time`\
+https://nytimes.com/athletic/5711421/2024/08/20/liverpool-duels-ipswich-arne-slot/
+
 **Miller Moss named USC starting QB. Plus, Trojans' transfer Malachi Nelson beat for Boise State job**\
 `Do we put too much stock into USC quarterback transfers that don't necessarily see success at their new programs?`\
 https://nytimes.com/athletic/5711733/2024/08/20/miller-moss-usc-college-football-quarterback/
