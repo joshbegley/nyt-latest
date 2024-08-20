@@ -1,3 +1,7 @@
+**Mexico’s Judges Vote to Strike, Opposing Overhaul of Legal System**\
+`President Andrés Manuel López Obrador wants judges elected, not appointed. Court workers have already walked out to protest his plan, which critics call a power grab.`\
+https://nytimes.com/2024/08/19/world/americas/mexico-judges-strike.html
+
 **Democrats and Labor Still Need Each Other**\
 `The Democratic Party’s future is tied to an economy that works not only for businesses, but for workers.`\
 https://nytimes.com/live/2024/08/13/opinion/thepoint/shawn-fain-dnc-speech
