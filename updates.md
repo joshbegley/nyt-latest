@@ -1,3 +1,11 @@
+**Judge Blocks F.T.C.’s Noncompete Rule**\
+`The Federal Trade Commission was deemed to lack the authority to bar companies from restricting their employees’ ability to go to work for rivals.`\
+https://nytimes.com/2024/08/20/business/economy/noncompete-ban-ftc-texas.html
+
+**News Emmys Defend Nomination of Palestinian Journalist**\
+`A nonprofit had argued that a video from Gaza should be disqualified accusing the reporter of having a history of “spreading antisemitism and condoning violence.”`\
+https://nytimes.com/2024/08/20/arts/emmys-bisan-owda-gaza-al-jazeera.html
+
 **This Collection of Poems Is Skeptical About Poetry’s Value. Or Is It?**\
 `Danez Smith’s “Bluff” represents a notable turning point for the poet — and maybe for American poetry as a whole.`\
 https://nytimes.com/2024/08/20/books/review/bluff-poems-danez-smith.html
