@@ -1,3 +1,7 @@
+**Surrounding Glow**\
+`Sam Buchbinder shares a few of his favorite things.`\
+https://nytimes.com/2024/08/19/crosswords/daily-puzzle-2024-08-20.html
+
 **The Chicago Vibes Shouldn’t Obscure Trump’s Continuing Threat**\
 `David Axelrod says Trump is probably still ahead.`\
 https://nytimes.com/live/2024/08/13/opinion/thepoint/trump-threat-democratic-exuberance
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/5711008/2024/08/19/submit-a-question-for-stewart-ma
 **Jury Finds Parents of Gunman Not Liable in 2018 Texas School Shooting**\
 `Jurors decided instead that blame rested with the gunman, who was 17 at the time, and the company that sold him ammunition used in the shooting.`\
 https://nytimes.com/2024/08/19/us/texas-school-shooting-civil-trial.html
-
-**Landon Donovan on San Diego Wave gig: 'I don't worry about the next job'**\
-`Donovan hopes to use his experience as a player to lead San Diego through a difficult time. `\
-https://nytimes.com/athletic/5710888/2024/08/19/landon-donovan-nwsl-san-diego-wave-coach/
 

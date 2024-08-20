@@ -1,3 +1,7 @@
+**Surrounding Glow**\
+`Sam Buchbinder shares a few of his favorite things.`\
+https://nytimes.com/2024/08/19/crosswords/daily-puzzle-2024-08-20.html
+
 **The Chicago Vibes Shouldn’t Obscure Trump’s Continuing Threat**\
 `David Axelrod says Trump is probably still ahead.`\
 https://nytimes.com/live/2024/08/13/opinion/thepoint/trump-threat-democratic-exuberance
