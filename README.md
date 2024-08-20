@@ -1,3 +1,11 @@
+**Hillary Clinton Finally Passes the Torch**\
+`“Progress is possible,” Clinton said, “but not guaranteed.”`\
+https://nytimes.com/live/2024/08/13/opinion/thepoint/hillary-clinton-dnc-speech
+
+**Dodgers finally managing their way back to full strength — for now**\
+`Max Muncy's return from injury helped the Dodgers resemble something like the roster the front office envisioned.`\
+https://nytimes.com/athletic/5711119/2024/08/19/dodgers-max-muncy-injuries/
+
 **“Thanks to Joe Biden and Kamala Harris, we reopened our schools.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/thanks-to-joe-biden-and-kamala-harris-we-reopened-our-schools
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/trump-talks-big
 **At Democratic Convention, Hochul Says Trump Lacks ‘New York Values’**\
 `In one of the most high-profile speeches of her career, Gov. Kathy Hochul drew a contrast between the current and former presidents, telling attendees, “If you think you’re tired of Donald Trump, talk to a New Yorker.”`\
 https://nytimes.com/2024/08/19/nyregion/kathy-hochul-dnc-speech.html
-
-**At the Ruhrtriennale, Searching for the Sublime Among the Ruins**\
-`In the abandoned industrial sites that serve as the festival’s venues, our critic witnessed beauty struggling to be born: fitfully, clumsily and sometimes stunningly.`\
-https://nytimes.com/2024/08/19/theater/ruhrtriennale-festival-highlights.html
-
-**Donald Trump vows to make his medical records public but doesn’t say when.**\
-`By Michael Gold`\
-https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/donald-trump-vows-to-make-his-medical-records-public-but-doesnt-say-when
 
