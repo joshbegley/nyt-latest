@@ -1,3 +1,7 @@
+**By Day, Sun Studio Draws Tourists. At Night, Musicians Lay Down Tracks.**\
+`The historic room in Memphis has a thriving after-hours life, and generations of players come to capture a bit of the magic where rock ’n’ roll took shape.`\
+https://nytimes.com/2024/08/20/arts/music/sun-studio.html
+
 **25 Years Ago, a Gay Student Sought Support. His School Turned to Tim Walz.**\
 `One student’s turbulent coming-out journey in the 1990s put Mr. Walz, then a football coach, at the center of gay rights in a Minnesota high school.`\
 https://nytimes.com/2024/08/20/us/tim-walz-gay-students.html
