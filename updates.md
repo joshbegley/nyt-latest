@@ -1,3 +1,7 @@
+**Wednesday Briefing: The U.S.’s Secret Nuclear Strategy**\
+`Plus, Ukraine’s women take over the work force.`\
+https://nytimes.com/2024/08/20/briefing/biden-nuclear-china-israel-hostages-eu-tesla-tariffs.html
+
 **Fulham reach agreement in principle to sign Andersen from Crystal Palace**\
 `Fulham have reached an agreement in principle with Crystal Palace to sign Joachim Andersen.`\
 https://nytimes.com/athletic/5698243/2024/08/20/joachim-andersen-fulham-deal/
