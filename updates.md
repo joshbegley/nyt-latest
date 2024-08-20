@@ -1,3 +1,11 @@
+**At SEA, the Jungsik Team Focuses on Southeast Asian Cuisine**\
+`Jungsik Yim and his executive chef, Jun Hee Park, serve Thai pork links with sticky rice, and fried chicken with som som tum and zabb spices.`\
+https://nytimes.com/2024/08/20/dining/sea-nyc-restaurant-news.html
+
+**Will Smael Mondon, Trevor Etienne be play in Georgia's opener?**\
+`Kirby Smart didn't announce if Smael Mondon and/or Trevor Etienne would play during Georgia's opener against Clemson.`\
+https://nytimes.com/athletic/5712453/2024/08/20/georgia-football-smael-mondon-trevor-etienne-kirby-smart/
+
 **Internet Slows to a Crawl in Pakistan, Stoking Fear of a Firewall**\
 `Disruptions have fueled claims from rights groups that the Pakistani authorities are introducing technology to surveil and control the country’s internet.`\
 https://nytimes.com/2024/08/20/world/asia/pakistan-internet-government-surveillance.html
