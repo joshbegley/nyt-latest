@@ -1,3 +1,11 @@
+**Final Report on Maine Shootings Criticizes Gunman’s Army Supervisors**\
+`The report found that both local law enforcement and the Army Reserve failed to act on evidence that the gunman was dangerous before the shootings.`\
+https://nytimes.com/2024/08/20/us/maine-shootings-final-report.html
+
+**Disney Backs Down From Effort to Use Disney+ Agreement to Block Lawsuit**\
+`The entertainment company had faced a backlash after claiming that a man whose wife died after an allergic reaction to food at Disney World had waived his right to sue when he signed up for Disney+.`\
+https://nytimes.com/2024/08/20/nyregion/disney-arbitration-allergy-death-lawsuit.html
+
 **Flores on time with Tua: 'There's things I could do better'**\
 `Brian Flores expressed regret Tuesday in how he handled his relationship with Dolphins QB Tua Tagovailoa.`\
 https://nytimes.com/athletic/5712724/2024/08/20/brian-flores-tua-tagovailoa-comments/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/20/dining/restaurant-review-bungalow-east-village.ht
 **Beyond Restoring Roe: Democrats See Moment to ‘Reimagine’ Abortion Rights**\
 `The spotlight at the convention is a dramatic shift from just four years ago, another sign of how radically the politics of abortion have changed, and how much the party is relying on the issue to rally voters.`\
 https://nytimes.com/2024/08/20/us/abortion-rights-harris-dnc.html
-
-**Book excerpt: 'Inside Fantasy Football: America's Favorite Non-Contact Sport'**\
-`Read an excerpt from Peter Funt's new book, "Inside Fantasy Football: America's Favorite Non-Contact Sport," featuring Jake Ciely.`\
-https://nytimes.com/athletic/5705481/2024/08/20/book-excerpt-inside-fantasy-football-americas-favorite-non-contact-sport/
-
-**Tiny Love Stories: ‘It Was Scary, the Good Kind’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/08/20/style/tiny-modern-love-stories-it-was-scary-the-good-kind.html
 
