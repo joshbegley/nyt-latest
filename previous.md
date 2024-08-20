@@ -1,3 +1,11 @@
+**Ocasio-Cortez, Once an Outsider, Takes Center Stage at Convention**\
+`In a prime-time speech, Representative Alexandria Ocasio-Cortez gave a forceful endorsement of Kamala Harris, saying Ms. Harris was “for the working class, because she’s from the working class.”`\
+https://nytimes.com/2024/08/19/nyregion/aoc-dnc-speech-harris.html
+
+**Flourishing with Padres, Luis Arraez still misses Minnesota, remains close to Twins teammates**\
+`“I played my whole career there,” the 2022 American League batting champion said. “I never forgot Minnesota. I miss Minnesota."`\
+https://nytimes.com/athletic/5711125/2024/08/19/padres-luis-arraez-twins-teammates/
+
 **Steve Kerr Cheers on Harris and Walz, a Fellow Coach**\
 `The Golden State Warriors coach, well known for his liberal views, wove plenty of sports references into his paean to the Democratic ticket. He also teased Tim Walz a bit.`\
 https://nytimes.com/2024/08/19/us/politics/steve-kerr-kamala-harris-dnc.html
@@ -29,14 +37,4 @@ https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/donald-trump-vo
 **Jannik Sinner and Aryna Sabalenka win Cincinnati Masters titles**\
 `The Italian and the Belarusian staked their claims for the US Open in Ohio.`\
 https://nytimes.com/athletic/5710971/2024/08/19/sinner-sabalenka-cincinnati-open-winners-2024/
-
-**Penguins promote Amanda Kessel**\
-`Kessel, a three-time Olympian, was named manager of minor league operations and assistant GM of the Wilkes-Barre/Scranton Penguins.`\
-https://nytimes.com/athletic/5710919/2024/08/19/amanda-kessel-pittsburgh-penguins-pwhl-career/
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>Folks, we have games this weekend. This is not a drill.</p>
-<p>Let me know what&#8217;s on your mind as we brace for Week 0.</p>
-`\
-https://nytimes.com/athletic/5711008/2024/08/19/submit-a-question-for-stewart-mandels-college-football-mailbag-269/
 
