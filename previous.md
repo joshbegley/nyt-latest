@@ -1,3 +1,7 @@
+**“Trump talks big about bringing back manufacturing jobs, but you know who actually did it? President Biden and Vice President Kamala Harris.”**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/trump-talks-big-about-bringing-back-manufacturing-jobs-but-you-know-who-actually-did-it-president-biden-and-vice-president-kamal
+
 **At Democratic Convention, Hochul Says Trump Lacks ‘New York Values’**\
 `In one of the most high-profile speeches of her career, Gov. Kathy Hochul drew a contrast between the current and former presidents, telling attendees, “If you think you’re tired of Donald Trump, talk to a New Yorker.”`\
 https://nytimes.com/2024/08/19/nyregion/kathy-hochul-dnc-speech.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/5710888/2024/08/19/landon-donovan-nwsl-san-diego-wa
 **Democrats Say Hi — and Bye — to President Biden**\
 `A man who spent a lifetime seeking the presidency faces his party after it forced him to step aside.`\
 https://nytimes.com/2024/08/19/us/politics/democratic-national-convention-chicago-biden-harris.html
-
-**John Harbaugh says the Ravens are closing in on their starting OL decisions**\
-`Andrew Vorhees and Daniel Faalele look like they'll be the Ravens' starting guards for the Week 1 opener against the Chiefs.`\
-https://nytimes.com/athletic/5710851/2024/08/19/baltimore-ravens-offensive-line-starters-week-1/
 
