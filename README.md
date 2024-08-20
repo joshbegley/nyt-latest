@@ -1,3 +1,11 @@
+**Typhoon Jongdari Nears South Korea, Bringing Threat of Flooding**\
+`The storm has caused flight delays in the south of the country. It is forecast to skirt the west coast before making landfall on Wednesday near Seoul.`\
+https://nytimes.com/2024/08/20/world/asia/south-korea-typhoon-jongdari.html
+
+**5 Takeaways from the ‘Love Island U.S.A.’ Season 6 Reunion**\
+`After a chaotic and fun season, even more drama unfolded on social media in the weeks that followed. This Peacock special broke everything down.`\
+https://nytimes.com/2024/08/20/arts/television/love-island-usa-season-6-reunion.html
+
 **Falcons fired up about what Matthew Judon, Justin Simmons bring to Atlanta**\
 `Judon and Simmons practiced with the Falcons on Monday. Judon says, "The mission is just go and destroy everything out there.”`\
 https://nytimes.com/athletic/5710447/2024/08/20/atlanta-falcons-matthew-judon-justin-simmons/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/20/us/politics/obama-dnc-harris.html
 **Democrats Share Their Wish List for Harris**\
 `We posed a question to Democratic National Convention attendees in Chicago: If Kamala Harris wins, what is the first thing you want her to do as president?`\
 https://nytimes.com/video/us/politics/100000009638553/dnc-attendees-kamala.html
-
-**Polls Say Trump Better Move Fast to Define Harris**\
-`But beware another historic miss by pollsters.`\
-https://nytimes.com/2024/08/20/opinion/harris-biden-trump-vance.html
-
-**Doug Emhoff Puts His Jewish Identity at the Center of His Campaign Outreach**\
-`As he campaigns for his wife, Kamala Harris, Mr. Emhoff has said he will make fighting antisemitism a top priority if he becomes the nation’s first first gentleman.`\
-https://nytimes.com/2024/08/20/us/politics/doug-emhoff-kamala-harris.html
 
