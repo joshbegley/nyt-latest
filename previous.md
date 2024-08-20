@@ -1,10 +1,18 @@
+**In Chicago, Obama Aims to Resurrect a Movement**\
+`Also, Biden approved a secret new nuclear strategy. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/08/20/briefing/obama-speech-chicago-nuclear-strategy-biden.html
+
+**Beth A Wilkinson**\
+`News about Beth A Wilkinson. Commentary and archival information about Beth A Wilkinson from The New York Times.`\
+https://nytimes.com/topic/beth-a-wilkinson
+
 **Joe Biden’s Other Legacy**\
 `The Democratic Party has bridged huge divides since 2020. Can it win?`\
 https://nytimes.com/2024/08/20/opinion/ezra-klein-podcast-democratic-convention.html
 
 **Read the Final Report on the Lewiston, Maine, Mass Shootings**\
 `An independent commission investigating the October 2023 shooting emphasized failures by both the local police and the Army Reserve.`\
-https://nytimes.com/interactive/2024/08/20/us/final-report-of-the-independent-commission-to-investigate-the-facts-of-the-tragedy-in-lewiston.html
+https://nytimes.com/interactive/2024/08/20/us/read-lewiston-maine-shooting-report.html
 
 **John A Koskinen**\
 `News about John A Koskinen. Commentary and archival information about John A Koskinen from The New York Times.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/20/us/politics/robert-kennedy-campaign-future.html
 **Wednesday Briefing: The U.S.’s Secret Nuclear Strategy**\
 `Plus, Ukraine’s women take over the work force.`\
 https://nytimes.com/2024/08/20/briefing/biden-nuclear-china-israel-hostages-eu-tesla-tariffs.html
-
-**Fulham reach agreement in principle to sign Andersen from Crystal Palace**\
-`Fulham have reached an agreement in principle with Crystal Palace to sign Joachim Andersen.`\
-https://nytimes.com/athletic/5698243/2024/08/20/joachim-andersen-fulham-deal/
-
-**The Protests in Chicago Aren’t Unruly Enough for the Right Wing**\
-`There’s not enough disorder, so some right-wing influencers are pretending the streets are in chaos.`\
-https://nytimes.com/live/2024/08/20/opinion/thepoint/chicago-protests-right-wing
 

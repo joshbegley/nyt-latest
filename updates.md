@@ -1,3 +1,15 @@
+**In Chicago, Obama Aims to Resurrect a Movement**\
+`Also, Biden approved a secret new nuclear strategy. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/08/20/briefing/obama-speech-chicago-nuclear-strategy-biden.html
+
+**Beth A Wilkinson**\
+`News about Beth A Wilkinson. Commentary and archival information about Beth A Wilkinson from The New York Times.`\
+https://nytimes.com/topic/beth-a-wilkinson
+
+**Read the Final Report on the Lewiston, Maine, Mass Shootings**\
+`An independent commission investigating the October 2023 shooting emphasized failures by both the local police and the Army Reserve.`\
+https://nytimes.com/interactive/2024/08/20/us/read-lewiston-maine-shooting-report.html
+
 **Joe Biden’s Other Legacy**\
 `The Democratic Party has bridged huge divides since 2020. Can it win?`\
 https://nytimes.com/2024/08/20/opinion/ezra-klein-podcast-democratic-convention.html
