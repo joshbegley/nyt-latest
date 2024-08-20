@@ -1,3 +1,7 @@
+**Giants scratch Patrick Bailey but claw out a victory over White Sox**\
+`The Giants needed to go deep into their roster to turn aside an opponent that hasn't won a road series since the first week of May.`\
+https://nytimes.com/athletic/5711247/2024/08/20/giants-patrick-bailey-white-sox/
+
 **Women With Harrowing Pregnancies Address Abortion Rights**\
 `The speakers appeared at the Democratic National Convention and condemned restrictive abortion laws that have been enacted across the country.`\
 https://nytimes.com/video/us/politics/100000009640917/abortion-bans-dnc.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/elections/100000009640959/biden-dnc-democratic-nati
 **Late Night Congratulates Biden for Staying Up So Late**\
 `When the president finally took the stage at the Democratic convention, “the cheers were so loud that even Biden could hear them,” Jimmy Fallon said.`\
 https://nytimes.com/2024/08/20/arts/television/late-night-biden-democratic-convention.html
-
-**How did Dominic Solanke perform on his Tottenham Hotspur debut?**\
-`Tottenham were held to a 1-1 draw by Leicester, this is how their new striker signing performed on Monday night`\
-https://nytimes.com/athletic/5710965/2024/08/20/dominic-solanke-tottenham-hotspur-analysis/
 
