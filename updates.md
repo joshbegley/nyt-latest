@@ -1,3 +1,5 @@
+**Officials say polio vaccines have yet to reach Gaza, and other news.**\
+
 **The secretary of state will press Hamas leadership through intermediaries to continue talks.**\
 `By Robert Jimison`\
 https://nytimes.com/live/2024/08/20/world/israel-iran-hamas-gaza-war/the-secretary-of-state-will-press-hamas-leadership-through-intermediaries-to-continue-talks
