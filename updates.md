@@ -1,3 +1,11 @@
+**Can Democrats Make the Case to Climate Voters?**\
+`In another year of record-breaking temperatures, Democrats are faced with the challenge of making climate change resonate with voters.`\
+https://nytimes.com/2024/08/20/climate/kamala-harris-climate-change-politics.html
+
+**Orford agrees new five-year West Ham contract**\
+`West Ham United midfielder Lewis Orford has agreed a new five-year contract.`\
+https://nytimes.com/athletic/5712617/2024/08/20/lewis-orford-west-ham-contract/
+
 **Dzhokhar A Tsarnaev**\
 `News about Dzhokhar A Tsarnaev. Commentary and archival information about Dzhokhar A Tsarnaev from The New York Times.`\
 https://nytimes.com/topic/dzhokhar-a-tsarnaev
