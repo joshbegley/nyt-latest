@@ -1,3 +1,11 @@
+**For Democrats, a Big Cast Change Plays Out Onstage**\
+`The first night of the convention introduced the party’s new protagonist, and gave the old one a curtain call.`\
+https://nytimes.com/2024/08/20/arts/television/dnc-biden-harris.html
+
+**Greenpeace Tries a Novel Tactic in Lawsuit Over Dakota Access Pipeline**\
+`The environmental group, which is being sued by the pipeline company in North Dakota, threatened to use new European rules to try to limit potential damages.`\
+https://nytimes.com/2024/08/20/climate/greenpeace-dakota-access-lawsuit-slapp.html
+
 **Broberg, Holloway going to Blues; Oilers don't match offer sheets**\
 `The Oilers will receive a second-round pick as compensation for Philip Broberg and a third-round pick for Dylan Holloway.`\
 https://nytimes.com/athletic/5706821/2024/08/20/philip-broberg-dylan-holloway-oilers-blues-offer-sheets/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/08/20/weather/jongdari-map-path-tracker.htm
 **The Athletic FC: Introducing the youngest-ever EPL coach; City favourites in Gundogan chase**\
 `The Athletic FC  is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox`\
 https://nytimes.com/athletic/5711448/2024/08/20/transfers-gundogan-ramsdale-hurzeler-brighton/
-
-**Can Harris Keep the Peace Among Progressives and C.E.O.s?**\
-`The vice president garnered public endorsements from progressives at the Democratic National Convention, but she must also keep corporate supporters on board.`\
-https://nytimes.com/2024/08/20/business/dealbook/can-harris-keep-the-peace-among-progressives-and-ceos.html
-
-**‘A Battleground in an Intergenerational Conflict’: The Week 9 Winner of Our Summer Reading Contest**\
-`In a short video, Vanessa Chen, 16, muses about the meaning of the current “sock war” between millennials and Gen Z.`\
-https://nytimes.com/2024/08/20/learning/a-battleground-in-an-intergenerational-conflict-the-week-9-winner-of-our-summer-reading-contest.html
 

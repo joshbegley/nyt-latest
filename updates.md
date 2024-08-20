@@ -1,3 +1,11 @@
+**For Democrats, a Big Cast Change Plays Out Onstage**\
+`The first night of the convention introduced the party’s new protagonist, and gave the old one a curtain call.`\
+https://nytimes.com/2024/08/20/arts/television/dnc-biden-harris.html
+
+**Greenpeace Tries a Novel Tactic in Lawsuit Over Dakota Access Pipeline**\
+`The environmental group, which is being sued by the pipeline company in North Dakota, threatened to use new European rules to try to limit potential damages.`\
+https://nytimes.com/2024/08/20/climate/greenpeace-dakota-access-lawsuit-slapp.html
+
 **Broberg, Holloway going to Blues; Oilers don't match offer sheets**\
 `The Oilers will receive a second-round pick as compensation for Philip Broberg and a third-round pick for Dylan Holloway.`\
 https://nytimes.com/athletic/5706821/2024/08/20/philip-broberg-dylan-holloway-oilers-blues-offer-sheets/
