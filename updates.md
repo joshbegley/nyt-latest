@@ -1,3 +1,7 @@
+**How to Handle the Next Campus Protest**\
+`What a university president might tell students about campus politics and the aims of education.`\
+https://nytimes.com/2024/08/20/opinion/college-protests-gaza-israel.html
+
 **News Emmys Defend Nomination of Palestinian Journalist**\
 `A nonprofit had argued that a video from Gaza should be disqualified,  accusing the reporter of having a history of “spreading antisemitism and condoning violence.”`\
 https://nytimes.com/2024/08/20/arts/emmys-bisan-owda-gaza-al-jazeera.html
