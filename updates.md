@@ -1,3 +1,11 @@
+**Ipswich agree loan deal for Chelsea striker Broja**\
+`Ipswich Town have agreed a deal to sign Chelsea striker Armando Broja on a season-long loan.`\
+https://nytimes.com/athletic/5581447/2024/08/20/armando-broja-ipswich-transfer-chelsea/
+
+**Flyers' Johansen on waivers for contract breach**\
+`The Flyers learned Ryan Johansen had a hip injury after trading for him in March. He did not play any games for the team after the trade.`\
+https://nytimes.com/athletic/5712405/2024/08/20/ryan-johansen-flyers-waivers-release/
+
 **At SEA, the Jungsik Team Focuses on Southeast Asian Cuisine**\
 `Jungsik Yim and his executive chef, Jun Hee Park, serve Thai pork links with sticky rice, and fried chicken with som som tum and zabb spices.`\
 https://nytimes.com/2024/08/20/dining/sea-nyc-restaurant-news.html

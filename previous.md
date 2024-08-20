@@ -1,3 +1,11 @@
+**Ipswich agree loan deal for Chelsea striker Broja**\
+`Ipswich Town have agreed a deal to sign Chelsea striker Armando Broja on a season-long loan.`\
+https://nytimes.com/athletic/5581447/2024/08/20/armando-broja-ipswich-transfer-chelsea/
+
+**Flyers' Johansen on waivers for contract breach**\
+`The Flyers learned Ryan Johansen had a hip injury after trading for him in March. He did not play any games for the team after the trade.`\
+https://nytimes.com/athletic/5712405/2024/08/20/ryan-johansen-flyers-waivers-release/
+
 **At SEA, the Jungsik Team Focuses on Southeast Asian Cuisine**\
 `Jungsik Yim and his executive chef, Jun Hee Park, serve Thai pork links with sticky rice, and fried chicken with som som tum and zabb spices.`\
 https://nytimes.com/2024/08/20/dining/sea-nyc-restaurant-news.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/20/us/politics/democratic-delegates-dnc.html
 **It’s Time for Crab Soup**\
 `With Chesapeake Bay blue crab season in full swing — and tomatoes, corn and green beans at their peak — make Maryland crab soup right now.`\
 https://nytimes.com/2024/08/20/dining/maryland-crab-soup.html
-
-**Harris and Trump Shield Their Big Campaign Fund-Raisers From the Public**\
-`Political campaigns are not required to disclose the names of their fund-raising “bundlers,” but many presidential candidates have done so in recent years.`\
-https://nytimes.com/2024/08/20/us/elections/campaign-bundlers-harris-trump.html
-
-**A Desperate Kennedy Campaign, and the Mystery of 110,000 Signatures**\
-`Robert F. Kennedy Jr.’s presidential team relied on a super PAC for the signatures needed to get on the ballot in Arizona, according to people with knowledge of the operation.`\
-https://nytimes.com/2024/08/20/us/politics/robert-f-kennedy-arizona-ballot.html
 
