@@ -1,3 +1,7 @@
+**This Collection of Poems Is Skeptical About Poetry’s Value. Or Is It?**\
+`Danez Smith’s “Bluff” represents a notable turning point for the poet — and maybe for American poetry as a whole.`\
+https://nytimes.com/2024/08/20/books/review/bluff-poems-danez-smith.html
+
 **The Speaker Lineup for Night 2 of the Democratic National Convention**\
 `Former President Barack Obama and Michelle Obama are the headline speakers on Tuesday.`\
 https://nytimes.com/2024/08/20/us/politics/dnc-speakers-day-2-lineup.html

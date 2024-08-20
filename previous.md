@@ -1,3 +1,7 @@
+**This Collection of Poems Is Skeptical About Poetry’s Value. Or Is It?**\
+`Danez Smith’s “Bluff” represents a notable turning point for the poet — and maybe for American poetry as a whole.`\
+https://nytimes.com/2024/08/20/books/review/bluff-poems-danez-smith.html
+
 **The Speaker Lineup for Night 2 of the Democratic National Convention**\
 `Former President Barack Obama and Michelle Obama are the headline speakers on Tuesday.`\
 https://nytimes.com/2024/08/20/us/politics/dnc-speakers-day-2-lineup.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/podcasts/transcript-ezra-klein-democratic-nationa
 **Newcastle step up conversations about possible Guehi alternatives**\
 `Newcastle United have stepped up conversations about the possibility of signing alternative centre-backs to Marc Guehi, in case a deal cannot be agreed for the Crystal Palace defender.`\
 https://nytimes.com/athletic/5712738/2024/08/20/newcastle-marc-guehi-alternatives/
-
-**In Chicago, Obama Aims to Resurrect a Movement**\
-`Also, Biden approved a secret new nuclear strategy. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2024/08/20/briefing/obama-speech-chicago-nuclear-strategy-biden.html
 
