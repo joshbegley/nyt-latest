@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5713148/2024/08/20/bengals-joe-burrow-joint-practic
 https://nytimes.com/2024/08/20/us/colorado-missing-woman-spiritual-quest.html
 
 **Ana Navarro and Other Republican Trump Critics Appearing on D.N.C. Night 2**\
-`Ms. Navarro, the Republican political commentator, is serving as a host for the evening, while an ex-aide to Melania Trump has a speaking slot.`\
+`A White House press secretary under Mr. Trump began the Republican attacks on Trump, while Ms. Navarro, the Republican political commentator, is serving as a host for the evening.`\
 https://nytimes.com/2024/08/20/us/politics/ana-navarro-stephanie-grishamn-trump-dnc.html
 
 **Myron E. Ullman III, Executive Who Remade Macy’s and J.C. Penney, Dies at 77**\
