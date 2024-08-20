@@ -1,3 +1,7 @@
+**The Transfer DealSheet: Guehi latest, Man Utd still considering Ugarte, Liverpool goalkeeper interest**\
+`This is your weekly guide to everything that is going on in the transfer window`\
+https://nytimes.com/athletic/5709221/2024/08/20/manchester-united-transfer-news-arsenal-liverpool-real-madrid-barcelona-latest/
+
 **Vardy: Guzzling red bull, shithousing - and back scoring in the Premier League**\
 `Jamie Vardy returned to the Premier League with Leicester on Monday — and unsurprisingly scored against Spurs`\
 https://nytimes.com/athletic/5710777/2024/08/20/jamie-vardy-red-bull-leicester/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/trump-wants-to-
 **Palace left playing risk and reward with Guehi and Andersen as deadline day looms**\
 `Bids have been lodged for both centre-halves this summer, leaving Palace contemplating when, if ever, represents the best time to sell`\
 https://nytimes.com/athletic/5708101/2024/08/20/crystal-palace-guehi-andersen-transfer/
-
-**Three Women Testify to the Effects of State Abortion Bans**\
-`One of the women, who was impregnated by her stepfather as a child, recalled Donald J. Trump’s praise for the bans as a “beautiful thing” and asked, “What is so beautiful about a child having to carry her parent’s child?”`\
-https://nytimes.com/2024/08/20/us/politics/dnc-abortion-amanda-zurawski-kaitlyn-joshua-hadley-duvall.html
 
