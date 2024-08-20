@@ -1,3 +1,7 @@
+**Ana Navarro and Other Republican Trump Critics Appearing on D.N.C. Night 2**\
+`Ms. Navarro, the Republican political commentator, is serving as a host for the evening, while an ex-aide to Melania Trump has a speaking slot.`\
+https://nytimes.com/2024/08/20/us/politics/ana-navarro-and-other-republican-trump-critics-appearing-on-dnc-night-2.html
+
 **Myron E. Ullman III, Executive Who Remade Macy’s and J.C. Penney, Dies at 77**\
 `As a leader behind many of the world’s best-known brands, he exuded operational know-how. He also displayed a rare humility, which helped drive his success.`\
 https://nytimes.com/2024/08/20/business/myron-e-ullman-iii-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/business/economy/noncompete-ban-ftc-texas.html
 **This Collection of Poems Is Skeptical About Poetry’s Value. Or Is It?**\
 `Danez Smith’s “Bluff” represents a notable turning point for the poet — and maybe for American poetry as a whole.`\
 https://nytimes.com/2024/08/20/books/review/bluff-poems-danez-smith.html
-
-**The Speaker Lineup for Night 2 of the Democratic National Convention**\
-`Former President Barack Obama and Michelle Obama are the headline speakers on Tuesday.`\
-https://nytimes.com/2024/08/20/us/politics/dnc-speakers-day-2-lineup.html
 
