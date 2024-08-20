@@ -1,3 +1,15 @@
+**Blinken Pushes for Gaza Cease-Fire, With Stops in Egypt and Qatar**\
+`After meetings in Israel, Secretary of State Antony J. Blinken will press Hamas leadership through intermediaries to continue talks on a deal.`\
+https://nytimes.com/live/2024/08/20/world/israel-iran-hamas-gaza-war
+
+**The secretary of state will press Hamas leadership through intermediaries to continue talks.**\
+`By Robert Jimison`\
+https://nytimes.com/2024/08/20/world/middleeast/the-secretary-of-state-will-press-hamas-leadership-through-intermediaries-to-continue-talks.html
+
+**Burnley interested in signing Man United's Hannibal**\
+`Burnley are interested in signing Manchester United midfielder Hannibal Mejbri.`\
+https://nytimes.com/athletic/5711289/2024/08/20/burnley-man-united-hannibal-transfer-interest/
+
 **Israel Says It Recovered Bodies of 6 Hostages in Gaza**\
 `All but one of the hostages were already known to have died in captivity.`\
 https://nytimes.com/2024/08/20/world/middleeast/israel-hostage-bodies-recovered-gaza.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/20/nyregion/mississippi-freedom-trail-marker-nj-dnc.
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/08/20/crosswords/spelling-bee-forum.html
-
-**Here’s Why This Jar of Weed Costs $60 at a Legal N.Y.C. Dispensary**\
-`Following the rules is expensive for dispensaries and their customers.`\
-https://nytimes.com/2024/08/20/nyregion/legal-weed-cost-nyc.html
-
-**Why Amtrak’s Equipment Keeps Breaking Down: Some of It Is 100 Years Old**\
-`An explosion at a substation in June caused just one in a series of disruptions along the Northeast Corridor this summer. Upgrades would come at enormous cost and take more than a decade.`\
-https://nytimes.com/2024/08/20/nyregion/amtrak-njtransit-delays.html
-
-**Scientists Seeking Life on Mars Heard a Signal That Hinted at the Future**\
-`In 1924, a radio receiver built for the battlefields of World War I tested the idea that humans were not alone in the solar system, heralding a century of searches for extraterrestrial life.`\
-https://nytimes.com/2024/08/20/science/mars-aliens-radio-signals.html
 

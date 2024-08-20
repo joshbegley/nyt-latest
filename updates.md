@@ -1,3 +1,15 @@
+**Blinken Pushes for Gaza Cease-Fire, With Stops in Egypt and Qatar**\
+`After meetings in Israel, Secretary of State Antony J. Blinken will press Hamas leadership through intermediaries to continue talks on a deal.`\
+https://nytimes.com/live/2024/08/20/world/israel-iran-hamas-gaza-war
+
+**The secretary of state will press Hamas leadership through intermediaries to continue talks.**\
+`By Robert Jimison`\
+https://nytimes.com/2024/08/20/world/middleeast/the-secretary-of-state-will-press-hamas-leadership-through-intermediaries-to-continue-talks.html
+
+**Burnley interested in signing Man United's Hannibal**\
+`Burnley are interested in signing Manchester United midfielder Hannibal Mejbri.`\
+https://nytimes.com/athletic/5711289/2024/08/20/burnley-man-united-hannibal-transfer-interest/
+
 **Israel Says It Recovered Bodies of 6 Hostages in Gaza**\
 `All but one of the hostages were already known to have died in captivity.`\
 https://nytimes.com/2024/08/20/world/middleeast/israel-hostage-bodies-recovered-gaza.html
