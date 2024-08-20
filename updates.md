@@ -1,3 +1,7 @@
+**When will the USWNT Olympic gold medalists be back in action?**\
+`The rules vary for Emma Hayes' players but the answer is sooner than you think…`\
+https://nytimes.com/athletic/5711297/2024/08/20/uswnt-gold-olympics-nwsl/
+
 **Broncos stock report: High marks for goal-line scheme; questions about rookie WR**\
 `The Broncos' short red zone offense, a major pain point last season, continues to show encouraging signs of a turnaround.`\
 https://nytimes.com/athletic/5709502/2024/08/20/broncos-stock-report-preseason/
