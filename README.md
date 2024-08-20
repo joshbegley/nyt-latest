@@ -1,3 +1,7 @@
+**Vardy: Guzzling red bull, shithousing - and back scoring in the Premier League**\
+`Jamie Vardy returned to the Premier League with Leicester on Monday — and unsurprisingly scored against Spurs`\
+https://nytimes.com/athletic/5710777/2024/08/20/jamie-vardy-red-bull-leicester/
+
 **Word of the Day: absolve**\
 `This word has appeared in 48 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/20/learning/word-of-the-day-absolve.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5708101/2024/08/20/crystal-palace-guehi-andersen-tr
 **Three Women Testify to the Effects of State Abortion Bans**\
 `One of the women, who was impregnated by her stepfather as a child, recalled Donald J. Trump’s praise for the bans as a “beautiful thing” and asked, “What is so beautiful about a child having to carry her parent’s child?”`\
 https://nytimes.com/2024/08/20/us/politics/dnc-abortion-amanda-zurawski-kaitlyn-joshua-hadley-duvall.html
-
-**“He created the largest debt any president had in four years with his two trillion dollars tax cut for the wealthy.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/he-created-the-largest-debt-any-president-had-in-four-years-with-his-two-trillion-dollars-tax-cut-for-the-wealthy
 
