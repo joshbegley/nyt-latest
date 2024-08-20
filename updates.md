@@ -1,3 +1,7 @@
+**Rocket Test on Remote Scottish Island Ends in Flames**\
+`As European countries push to develop more independent space capabilities, a test at one new site produced an explosion.`\
+https://nytimes.com/2024/08/20/world/europe/rocket-test-on-remote-scottish-island-ends-in-flames.html
+
 **Eric A Ulrich**\
 `News about Eric A Ulrich. Commentary and archival information about Eric A Ulrich from The New York Times.`\
 https://nytimes.com/topic/eric-a-ulrich
