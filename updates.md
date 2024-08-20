@@ -1,3 +1,11 @@
+**Michigan bolsters 2025 class with top-100 WR Andrew Marsh**\
+`After a quiet start to the 2025 cycle, Michigan has climbed to No. 12 in the composite rankings and No. 3 in the Big Ten.`\
+https://nytimes.com/athletic/5713222/2024/08/20/michigan-recruiting-andrew-marsh/
+
+**Bengals, Joe Burrow look ready for season in joint practice against Colts**\
+`The quarterback showed no signs of last year's injuries while clicking with Tee Higgins and Mike Gesicki on Tuesday.`\
+https://nytimes.com/athletic/5713148/2024/08/20/bengals-joe-burrow-joint-practice-colts/
+
 **Why 49ers rookie guard Dominick Puni is impressing even Fred Warner**\
 `The surge from Puni has come at a good time for the 49ers, who are fighting many interior offensive line injuries.`\
 https://nytimes.com/athletic/5713059/2024/08/20/49ers-dominick-puni-fred-warner/
