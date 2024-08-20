@@ -8,7 +8,7 @@ https://nytimes.com/live/2024/08/20/world/israel-iran-hamas-gaza-war
 
 **The secretary of state will press Hamas leadership through intermediaries to continue talks.**\
 `By Robert Jimison`\
-https://nytimes.com/2024/08/20/world/middleeast/the-secretary-of-state-will-press-hamas-leadership-through-intermediaries-to-continue-talks.html
+https://nytimes.com/live/2024/08/20/world/israel-iran-hamas-gaza-war/the-secretary-of-state-will-press-hamas-leadership-through-intermediaries-to-continue-talks
 
 **Burnley interested in signing Man United's Hannibal**\
 `Burnley are interested in signing Manchester United midfielder Hannibal Mejbri.`\
