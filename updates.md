@@ -1,3 +1,11 @@
+**Zelensky Says Push Into Russia Shows the West’s Red Lines Are ‘Naïve’**\
+`President Volodymyr Zelensky of Ukraine seized on the incursion’s success to press allies to lift a longtime restriction: the use of Western-supplied long-range weapons against Russia.`\
+https://nytimes.com/2024/08/20/world/europe/ukraine-russia-war-incursion-zelensky.html
+
+**Alaska Airlines’ Acquisition of Hawaiian Clears Key Antitrust Review**\
+`The airlines said the Justice Department had declined to challenge the merger in court.`\
+https://nytimes.com/2024/08/20/business/alaska-airlines-hawaiian-merger.html
+
 **When will the USWNT Olympic gold medalists be back in action?**\
 `The rules vary for Emma Hayes' players but the answer is sooner than you think…`\
 https://nytimes.com/athletic/5711297/2024/08/20/uswnt-gold-olympics-nwsl/
