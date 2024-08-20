@@ -1,3 +1,11 @@
+**JD Vance and Andy Beshear trade attacks over a remark about pregnancy caused by rape**\
+`By Michael C. Bender`\
+https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/jd-vance-and-andy-beshear-trade-attacks-over-a-remark-about-pregnancy-caused-by-rape
+
+**Kraken sign Matty Beniers to 7-year extension**\
+`The contract carries an average annual value of $7.14 million.`\
+https://nytimes.com/athletic/5712799/2024/08/20/kraken-matty-beniers-extension/
+
 **PFA awards: Foden & Shaw complete Man City double**\
 `Manchester City completed a PFA Player of the Year double on Tuesday night as midfielder Phil Foden and striker Bunny Shaw were named men&#8217;s and women&#8217;s winners for 2023-24.`\
 https://nytimes.com/athletic/5711730/2024/08/20/pfa-award-winners-foden-shaw/

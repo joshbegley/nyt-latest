@@ -1,3 +1,11 @@
+**JD Vance and Andy Beshear trade attacks over a remark about pregnancy caused by rape**\
+`By Michael C. Bender`\
+https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/jd-vance-and-andy-beshear-trade-attacks-over-a-remark-about-pregnancy-caused-by-rape
+
+**Kraken sign Matty Beniers to 7-year extension**\
+`The contract carries an average annual value of $7.14 million.`\
+https://nytimes.com/athletic/5712799/2024/08/20/kraken-matty-beniers-extension/
+
 **PFA awards: Foden & Shaw complete Man City double**\
 `Manchester City completed a PFA Player of the Year double on Tuesday night as midfielder Phil Foden and striker Bunny Shaw were named men&#8217;s and women&#8217;s winners for 2023-24.`\
 https://nytimes.com/athletic/5711730/2024/08/20/pfa-award-winners-foden-shaw/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5712730/2024/08/20/alabama-college-football-recruit
 **Biden Approved Secret Nuclear Strategy Refocusing on Chinese Threat**\
 `In a classified document approved in March, the president ordered U.S. forces to prepare for possible coordinated nuclear confrontations with Russia, China and North Korea.`\
 https://nytimes.com/2024/08/20/us/politics/biden-nuclear-china-russia.html
-
-**David A Haggerty**\
-`News about David A Haggerty. Commentary and archival information about David A Haggerty from The New York Times.`\
-https://nytimes.com/topic/david-a-haggerty
-
-**No More Butter Chicken: Where Indian Food Finally Gets to Be Itself**\
-`Our interim critic reviews Bungalow in the East Village, where the celebrity chef Vikas Khanna’s variations on regional dishes blaze new paths without cutting corners.`\
-https://nytimes.com/2024/08/20/dining/restaurant-review-bungalow-east-village.html
 
