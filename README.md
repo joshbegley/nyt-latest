@@ -1,3 +1,7 @@
+**Lowetide: Oilers' summer of loud noises reaches apex with Blues' Broberg, Holloway signings**\
+`The Oilers' 2024 offseason has proven to be a cascade of headlines. What is the result of the team's recent moves?`\
+https://nytimes.com/athletic/5711561/2024/08/20/oilers-holloway-broberg-blues/
+
 **Biden Went on Late. Democrats Offered a Culprit: ‘Raucous Applause.’**\
 `The official explanation for Monday’s elongated convention telecast prompted one CNN pundit to compliment the “amazing spin.”`\
 https://nytimes.com/2024/08/20/us/politics/biden-speech-dnc.html
