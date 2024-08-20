@@ -1,3 +1,11 @@
+**Democrats and Labor Still Need Each Other**\
+`The Democratic Party’s future is tied to an economy that works not only for businesses, but for workers.`\
+https://nytimes.com/live/2024/08/13/opinion/thepoint/shawn-fain-dnc-speech
+
+**Paramount Draws a New Bid, Complicating Deal With Skydance**\
+`The offer by Edgar Bronfman Jr. comes days before a crucial deadline in the scramble to acquire control of Paramount.`\
+https://nytimes.com/2024/08/19/business/edgar-bronfman-jr-paramount-skydance.html
+
 **Clinton Rallies Democrats Behind Harris: ‘This Is When We Break Through’**\
 `Eight years after failing to smash the “highest and hardest glass ceiling” in politics, Hillary Clinton urged her party to make Kamala Harris the nation’s first female president.`\
 https://nytimes.com/2024/08/19/us/politics/hillary-clinton-dnc-harris.html
