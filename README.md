@@ -1,3 +1,7 @@
+**Word of the Day: absolve**\
+`This word has appeared in 48 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/20/learning/word-of-the-day-absolve.html
+
 **Biden’s Lackluster Speech Is a Reminder That He Couldn’t Win**\
 `The country’s spirit has moved on.`\
 https://nytimes.com/live/2024/08/13/opinion/thepoint/biden-speech-convention
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/us/politics/dnc-abortion-amanda-zurawski-kaitlyn-
 **“He created the largest debt any president had in four years with his two trillion dollars tax cut for the wealthy.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/he-created-the-largest-debt-any-president-had-in-four-years-with-his-two-trillion-dollars-tax-cut-for-the-wealthy
-
-**Watching four games in four days - and what it revealed about the new Premier League season**\
-`What do fans really think about the new campaign? We travelled to games at Manchester United, Arsenal, Chelsea and Leicester to find out`\
-https://nytimes.com/athletic/5710159/2024/08/20/premier-league-season-fans/
 
