@@ -1,3 +1,11 @@
+**Villa winger Iling-Junior exploring loan options**\
+`Aston Villa winger Samuel Iling-Junior is exploring potential loan options ahead of the transfer window deadline.`\
+https://nytimes.com/athletic/5711323/2024/08/20/aston-villa-samuel-iling-junior-loan-transfer/
+
+**Ohio State 'knows what's at stake': Beat Michigan, win the new College Football Playoff**\
+`Most of a loaded senior class returned to Ohio State committed to ending a losing streak against Michigan and winning the CFP.`\
+https://nytimes.com/athletic/5706286/2024/08/20/ohio-state-college-football-playoff-preview-predictions/
+
 **Typhoon Jongdari Nears South Korea, Bringing Threat of Flooding**\
 `The storm has caused flight delays in the south of the country. It is forecast to skirt the west coast before making landfall on Wednesday near Seoul.`\
 https://nytimes.com/2024/08/20/world/asia/south-korea-typhoon-jongdari.html

@@ -1,3 +1,11 @@
+**Villa winger Iling-Junior exploring loan options**\
+`Aston Villa winger Samuel Iling-Junior is exploring potential loan options ahead of the transfer window deadline.`\
+https://nytimes.com/athletic/5711323/2024/08/20/aston-villa-samuel-iling-junior-loan-transfer/
+
+**Ohio State 'knows what's at stake': Beat Michigan, win the new College Football Playoff**\
+`Most of a loaded senior class returned to Ohio State committed to ending a losing streak against Michigan and winning the CFP.`\
+https://nytimes.com/athletic/5706286/2024/08/20/ohio-state-college-football-playoff-preview-predictions/
+
 **Typhoon Jongdari Nears South Korea, Bringing Threat of Flooding**\
 `The storm has caused flight delays in the south of the country. It is forecast to skirt the west coast before making landfall on Wednesday near Seoul.`\
 https://nytimes.com/2024/08/20/world/asia/south-korea-typhoon-jongdari.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/20/opinion/kamala-harris-democrats-risk.html
 **The Red Sox have an innovative pitching strategy, but has the league adjusted?**\
 `Boston's pitchers were successful early this season while throwing fewer fastballs than any other staff, but hitters seem to have caught on.`\
 https://nytimes.com/athletic/5704202/2024/08/20/red-sox-pitching-strategy-league-adjustments/
-
-**In 2016, Obama Passed a Baton. Tonight, He’ll Aim to Resurrect a Movement.**\
-`In his speech at the Democratic National Convention, the former president will have the tricky task of helping to reassemble the kind of coalition that powered his own rise.`\
-https://nytimes.com/2024/08/20/us/politics/obama-dnc-harris.html
-
-**Democrats Share Their Wish List for Harris**\
-`We posed a question to Democratic National Convention attendees in Chicago: If Kamala Harris wins, what is the first thing you want her to do as president?`\
-https://nytimes.com/video/us/politics/100000009638553/dnc-attendees-kamala.html
 
