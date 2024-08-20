@@ -1,3 +1,19 @@
+**How Costco Hacked the American Shopping Psyche**\
+`More than 100 million people visit the retailer for their groceries — and gas and TVs and gold bars and pet coffins — but saving money may not be the only motive.`\
+https://nytimes.com/2024/08/20/dining/costco.html
+
+**Chicago Prepares for More Protests as Democrats Hold Convention**\
+`One group said it would demonstrate at the Consulate of Israel in downtown Chicago. The police said they would not tolerate violence.`\
+https://nytimes.com/2024/08/20/us/chicago-protests-dnc-israel.html
+
+**Charles R. Cross, Biographer of Cobain and Hendrix, Dies at 67**\
+`He tracked the rise of grunge as the editor of the Seattle music magazine The Rocket. He also wrote acclaimed books about two of the city’s most celebrated rock luminaries.`\
+https://nytimes.com/2024/08/20/arts/music/charles-cross-dead.html
+
+**Kennedy’s Running Mate Suggests They May Drop Out of the Presidential Race and Endorse Trump.**\
+`In an interview, Nicole Shanahan appeared to concede that their independent presidential bid was not likely to end in victory.`\
+https://nytimes.com/2024/08/20/us/politics/robert-kennedy-campaign-future.html
+
 **Wednesday Briefing: The U.S.’s Secret Nuclear Strategy**\
 `Plus, Ukraine’s women take over the work force.`\
 https://nytimes.com/2024/08/20/briefing/biden-nuclear-china-israel-hostages-eu-tesla-tariffs.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5712799/2024/08/20/kraken-matty-beniers-extension/
 **PFA awards: Foden & Shaw complete Man City double**\
 `Manchester City completed a PFA Player of the Year double on Tuesday night as midfielder Phil Foden and striker Bunny Shaw were named men&#8217;s and women&#8217;s winners for 2023-24.`\
 https://nytimes.com/athletic/5711730/2024/08/20/pfa-award-winners-foden-shaw/
-
-**Final Report on Maine Shootings Criticizes Gunman’s Army Supervisors**\
-`The report found that both local law enforcement and the Army Reserve failed to act on evidence that the gunman was dangerous before the shootings.`\
-https://nytimes.com/2024/08/20/us/maine-shootings-final-report.html
-
-**Disney Backs Down From Effort to Use Disney+ Agreement to Block Lawsuit**\
-`The entertainment company had faced a backlash after claiming that a man whose wife died after an allergic reaction to food at Disney World had waived his right to sue when he signed up for Disney+.`\
-https://nytimes.com/2024/08/20/nyregion/disney-arbitration-allergy-death-lawsuit.html
-
-**Flores on time with Tua: 'There's things I could do better'**\
-`Brian Flores expressed regret Tuesday in how he handled his relationship with Dolphins QB Tua Tagovailoa.`\
-https://nytimes.com/athletic/5712724/2024/08/20/brian-flores-tua-tagovailoa-comments/
-
-**Tennessee Prison Is Under Federal Investigation After Reports of Abuse**\
-`State audits of the Trousdale Turner Correctional Center, outside Nashville, have suggested that understaffing and high turnover have created an unsafe environment.`\
-https://nytimes.com/2024/08/20/us/politics/tennessee-prison-investigation-abuse.html
 
