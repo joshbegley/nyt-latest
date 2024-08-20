@@ -1,3 +1,7 @@
+**At the Ruhrtriennale, Searching for the Sublime Among the Ruins**\
+`In the abandoned industrial sites that serve as the festival’s venues, our critic witnessed beauty struggling to be born: fitfully, clumsily and sometimes stunningly.`\
+https://nytimes.com/2024/08/19/theater/ruhrtriennale-festival-highlights.html
+
 **Donald Trump vows to make his medical records public but doesn’t say when.**\
 `By Michael Gold`\
 https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/donald-trump-vows-to-make-his-medical-records-public-but-doesnt-say-when

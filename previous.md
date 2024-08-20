@@ -1,3 +1,7 @@
+**At the Ruhrtriennale, Searching for the Sublime Among the Ruins**\
+`In the abandoned industrial sites that serve as the festival’s venues, our critic witnessed beauty struggling to be born: fitfully, clumsily and sometimes stunningly.`\
+https://nytimes.com/2024/08/19/theater/ruhrtriennale-festival-highlights.html
+
 **Donald Trump vows to make his medical records public but doesn’t say when.**\
 `By Michael Gold`\
 https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/donald-trump-vows-to-make-his-medical-records-public-but-doesnt-say-when
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/5710851/2024/08/19/baltimore-ravens-offensive-line-
 **How the onslaught of Bills injuries impacts cutdown day**\
 `A crop of injuries could force the Bills to make some tough decisions.`\
 https://nytimes.com/athletic/5710753/2024/08/19/buffalo-bills-injuries-cutdown-day/
-
-**Tonight, the Democrats Feature a MAGA Refugee**\
-`Emerging from the movement can feel like escaping a cult.`\
-https://nytimes.com/live/2024/08/13/opinion/thepoint/rich-logis-leaving-maga
 
