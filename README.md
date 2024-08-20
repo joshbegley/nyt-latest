@@ -1,3 +1,7 @@
+**The Speech Biden Never Wanted to Give**\
+`“Thank you, Joe!’’ the crowd members chanted to a tearful president for his lifetime of public service. But they were also thanking him for not running again.`\
+https://nytimes.com/2024/08/20/us/politics/biden-convention.html
+
 **The Transfer DealSheet: Guehi latest, Man Utd still considering Ugarte, Liverpool goalkeeper interest**\
 `This is your weekly guide to everything that is going on in the transfer window`\
 https://nytimes.com/athletic/5709221/2024/08/20/manchester-united-transfer-news-arsenal-liverpool-real-madrid-barcelona-latest/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/inside-the-aren
 **“Trump wants to cut Social Security and Medicare.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/trump-wants-to-cut-social-security-and-medicare
-
-**Palace left playing risk and reward with Guehi and Andersen as deadline day looms**\
-`Bids have been lodged for both centre-halves this summer, leaving Palace contemplating when, if ever, represents the best time to sell`\
-https://nytimes.com/athletic/5708101/2024/08/20/crystal-palace-guehi-andersen-transfer/
 
