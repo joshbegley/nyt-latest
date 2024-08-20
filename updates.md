@@ -1,3 +1,11 @@
+**A Look Back at Chicago Conventions of Yore**\
+`The city holds the record for hosting the most conventions and has been shaped by their outcomes.`\
+https://nytimes.com/2024/08/20/us/politics/chicago-presidential-conventions-photos.html
+
+**Behind the Obama-Harris Friendship: A Key Endorsement and a Kindred Spirit**\
+`Kamala Harris’s decision to support Barack Obama in a 2008 primary race dominated by Hillary Clinton was a political risk. It paid off, and the former president never forgot it.`\
+https://nytimes.com/2024/08/20/us/politics/harris-obama-friendship.html
+
 **NASCAR Michigan takeaways: Tyler Reddick's maturation, playoff picture and more**\
 `Tyler Reddick caps a string of recent great results with another win, the playoff picture is getting clearer, plus more from Michigan.`\
 https://nytimes.com/athletic/5712097/2024/08/20/nascar-michigan-tyler-reddick-playoffs-takeaways/
