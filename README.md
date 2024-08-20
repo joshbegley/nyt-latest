@@ -1,3 +1,7 @@
+**The Dems Just Showed That They’re a Winning Party**\
+`On the first night of the convention, Democrats honored their past and future.`\
+https://nytimes.com/video/opinion/100000009642002/the-dems-just-showed-that-theyre-a-winning-party.html
+
 **Boeing Grounds 777-9 Test Planes in Latest Setback**\
 `The airplane manufacturer said it had discovered problems with a key part of the 777-9, a large plane designed for long flights that had already been delayed by years.`\
 https://nytimes.com/2024/08/20/business/boeing-777x-grounded.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/us/tim-walz-gay-students.html
 **Week 3 of Our August Grilling Challenge: Grill Beyond the Expected**\
 `Because you can’t subsist on hot dogs alone. Plus: a really great deal on Wirecutter’s favorite olive oil.`\
 https://nytimes.com/2024/08/20/dining/week-3-of-our-august-grilling-challenge-grill-beyond-the-expected.html
-
-**Want to See a Play About Gwyneth Paltrow’s Ski Trial? How About 2?**\
-`Multiple shows at the Edinburgh Fringe make camp fun out of the 2023 civil action that spurred a thousand memes — and one of them is a triumph.`\
-https://nytimes.com/2024/08/20/theater/gwyneth-paltrow-ski-trial-edinburgh-fringe.html
 
