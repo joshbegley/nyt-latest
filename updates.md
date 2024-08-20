@@ -1,3 +1,7 @@
+**Vardy: Guzzling red bull, shithousing - and back scoring in the Premier League**\
+`Jamie Vardy returned to the Premier League with Leicester on Monday — and unsurprisingly scored against Spurs`\
+https://nytimes.com/athletic/5710777/2024/08/20/jamie-vardy-red-bull-leicester/
+
 **Word of the Day: absolve**\
 `This word has appeared in 48 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/20/learning/word-of-the-day-absolve.html
