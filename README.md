@@ -1,3 +1,7 @@
+**It’s No One’s Business How People Start or Terminate Pregnancies**\
+`Even though Republicans think the government should be involved in both.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/convention-republicans-abortion-ivf
+
 **A Waterspout Was Seen When a Luxury Yacht Sank. What Is It?**\
 `Witnesses reported seeing the tornado-like phenomenon hit the Bayesian, a sailing yacht that sank off the coast of Sicily on Monday.`\
 https://nytimes.com/2024/08/20/world/europe/waterspout-yacht-sinks-sicily.html
@@ -33,8 +37,4 @@ https://nytimes.com/topic/john-a-koskinen
 **How Costco Hacked the American Shopping Psyche**\
 `More than 100 million people visit the retailer for their groceries — and gas and TVs and gold bars and pet coffins — but saving money may not be the only motive.`\
 https://nytimes.com/2024/08/20/dining/costco.html
-
-**Chicago Prepares for More Protests as Democrats Hold Convention**\
-`One group said it would demonstrate at the Consulate of Israel in downtown Chicago. The police said they would not tolerate violence.`\
-https://nytimes.com/2024/08/20/us/chicago-protests-dnc-israel.html
 
