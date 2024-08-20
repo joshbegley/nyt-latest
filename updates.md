@@ -1,3 +1,11 @@
+**Scientists Seeking Life on Mars Heard a Signal That Hinted at the Future**\
+`In 1924, a radio receiver built for the battlefields of World War I tested the idea that humans were not alone in the solar system, heralding a century of searches for extraterrestrial life.`\
+https://nytimes.com/2024/08/20/science/mars-aliens-radio-signals.html
+
+**Biden Delivers Keynote on First Night of D.N.C.**\
+`In his speech, which lasted nearly an hour, the president touted his accomplishments, attacked Donald Trump and passed the baton to Kamala Harris.`\
+https://nytimes.com/video/us/elections/100000009640959/biden-dnc-democratic-national-convention.html
+
 **Late Night Congratulates Biden for Staying Up So Late**\
 `When the president finally took the stage at the Democratic convention, “the cheers were so loud that even Biden could hear them,” Jimmy Fallon said.`\
 https://nytimes.com/2024/08/20/arts/television/late-night-biden-democratic-convention.html
