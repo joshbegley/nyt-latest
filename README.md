@@ -1,3 +1,7 @@
+**How can Bournemouth afford to spend €47m on Evanilson?**\
+`Bournemouth signing Evanilson from Porto is an eye-catching transfer that reflects a sea change within the European football landscape`\
+https://nytimes.com/athletic/5709614/2024/08/20/how-can-bournemouth-afford-to-spend-e47million-on-evanilson/
+
 **Mets' Francisco Alvarez ends his home run drought in walk-off fashion**\
 `Alvarez was in a 2-for-25 slump before beating the Orioles with a one-out blast in the ninth: "He lives for those moments."`\
 https://nytimes.com/athletic/5711178/2024/08/20/mets-francisco-alvarez-walk-off/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/19/world/americas/mexico-judges-strike.html
 **Democrats and Labor Still Need Each Other**\
 `The Democratic Party’s future is tied to an economy that works not only for businesses, but for workers.`\
 https://nytimes.com/live/2024/08/13/opinion/thepoint/shawn-fain-dnc-speech
-
-**Paramount Draws a New Bid, Complicating Deal With Skydance**\
-`The offer by Edgar Bronfman Jr. comes days before a crucial deadline in the scramble to acquire control of Paramount.`\
-https://nytimes.com/2024/08/19/business/edgar-bronfman-jr-paramount-skydance.html
 
