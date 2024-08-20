@@ -1,3 +1,15 @@
+**Lost Grounds: Into the Millennium - from Highbury to Hull, Feethams to Filbert Street**\
+`Arsenal's former home is now the site of plush flats but there are some sorry sights where footballing cathedrals once stood`\
+https://nytimes.com/athletic/5580347/2024/08/20/lost-grounds-stadiums-replaced-highbury-maine-road/
+
+**“The smallest racial wealth gap in 20 years.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/the-smallest-racial-wealth-gap-in-20-years
+
+**Explained: What Champions League games will be on Amazon Prime and who will be pundits?**\
+`It was over two years ago that UEFA sold its UK and Ireland Champions League rights to TNT Sports and Amazon Prime for a combined €1.7bn`\
+https://nytimes.com/athletic/5709744/2024/08/20/champions-league-amazon-prime-tv-games/
+
 **How can Bournemouth afford to spend €47m on Evanilson?**\
 `Bournemouth signing Evanilson from Porto is an eye-catching transfer that reflects a sea change within the European football landscape`\
 https://nytimes.com/athletic/5709614/2024/08/20/how-can-bournemouth-afford-to-spend-e47million-on-evanilson/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/instead-of-payi
 **Last year's trash: Tee Higgins, Javonte Williams and more bounce-back targets for fantasy football 2024**\
 `Jake Ciely picks his 11 favorite players from the 2023 trash pile, who will rebound for the 2024 fantasy football season`\
 https://nytimes.com/athletic/5710641/2024/08/20/fantasy-football-last-years-trash-tee-higgins-javonte-williams/
-
-**“JD Vance says women should stay in violent marriages and pregnancies resulting from rape are simply inconvenient.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/jd-vance-says-women-should-stay-in-violent-marriages-and-pregnancies-resulting-from-rape-are-simply-inconvenient
-
-**Mexico’s Judges Vote to Strike, Opposing Overhaul of Legal System**\
-`President Andrés Manuel López Obrador wants judges elected, not appointed. Court workers have already walked out to protest his plan, which critics call a power grab.`\
-https://nytimes.com/2024/08/19/world/americas/mexico-judges-strike.html
-
-**Democrats and Labor Still Need Each Other**\
-`The Democratic Party’s future is tied to an economy that works not only for businesses, but for workers.`\
-https://nytimes.com/live/2024/08/13/opinion/thepoint/shawn-fain-dnc-speech
 
