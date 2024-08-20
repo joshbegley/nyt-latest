@@ -1,3 +1,11 @@
+**Europe Slashes Tariffs for Tesla Vehicles Made in China**\
+`The European Commission will charge the U.S. automaker an additional duty of 9 percent, much lower than tariffs levied on its Chinese peers for electric vehicles imported to Europe.`\
+https://nytimes.com/2024/08/20/business/tesla-electric-vehicle-tariffs-china.html
+
+**Maria Branyas Morera, World’s Oldest Person, Dies at 117**\
+`Ms. Morera, who cultivated a following on social media as “Super Catalan Grandma,” died peacefully in her sleep, her family said.`\
+https://nytimes.com/2024/08/20/world/europe/worlds-oldest-person-maria-branyas-dead.html
+
 **Backyard Sports relaunching popular kids video game**\
 `Pablo Sanchez, Kiesha Phillips and Pete Wheeler are back as Playground Productions announces re-release of iconic kids game.`\
 https://nytimes.com/athletic/5709969/2024/08/20/backyard-sports-return-computer-video-games/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5710139/2024/08/20/college-football-rankings-fall-w
 **Miller Moss named USC starting QB. Plus, Trojans' transfer Malachi Nelson beat for Boise State job**\
 `Do we put too much stock into USC quarterback transfers that don't necessarily see success at their new programs?`\
 https://nytimes.com/athletic/5711733/2024/08/20/miller-moss-usc-college-football-quarterback/
-
-**Bombito proves there are hidden gems in Canadian soccer - can he shine in France?**\
-`After Canada centre-back has moved to Nice in Ligue 1, he could follow Alphonso Davies' lead and conquer Europe`\
-https://nytimes.com/athletic/5711149/2024/08/20/moise-bombito-transfer-canada-colorado/
-
-**Tuesday's MLB best bets: Predictions for pitching matchups, playoffs and more**\
-`See pitching matchups, playoff projections, win projections and more for Tuesday's MLB games.`\
-https://nytimes.com/athletic/5711756/2024/08/20/mlb-odds-best-bets-projections-august-20/
 
