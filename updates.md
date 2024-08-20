@@ -1,3 +1,11 @@
+**Backyard Sports relaunching popular kids video game**\
+`Pablo Sanchez, Kiesha Phillips and Pete Wheeler are back as Playground Productions announces re-release of iconic kids game.`\
+https://nytimes.com/athletic/5709969/2024/08/20/backyard-sports-return-computer-video-games/
+
+**World No 1 Jannik Sinner sanctioned after twice testing positive for banned substance**\
+`A tribunal following an anti-doping investigation found "no fault or negligence" on the Italian's behalf`\
+https://nytimes.com/athletic/5710847/2024/08/20/jannik-sinner-doping-positive-tennis-clobestol/
+
 **Liverpool close to deal for Valencia goalkeeper Mamardashvili**\
 `Liverpool are closing in on a deal to sign goalkeeper Giorgi Mamardashvili from Valencia.`\
 https://nytimes.com/athletic/5700784/2024/08/20/liverpool-mamardashvili-transfer-close/

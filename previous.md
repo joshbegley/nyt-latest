@@ -1,3 +1,11 @@
+**Backyard Sports relaunching popular kids video game**\
+`Pablo Sanchez, Kiesha Phillips and Pete Wheeler are back as Playground Productions announces re-release of iconic kids game.`\
+https://nytimes.com/athletic/5709969/2024/08/20/backyard-sports-return-computer-video-games/
+
+**World No 1 Jannik Sinner sanctioned after twice testing positive for banned substance**\
+`A tribunal following an anti-doping investigation found "no fault or negligence" on the Italian's behalf`\
+https://nytimes.com/athletic/5710847/2024/08/20/jannik-sinner-doping-positive-tennis-clobestol/
+
 **Liverpool close to deal for Valencia goalkeeper Mamardashvili**\
 `Liverpool are closing in on a deal to sign goalkeeper Giorgi Mamardashvili from Valencia.`\
 https://nytimes.com/athletic/5700784/2024/08/20/liverpool-mamardashvili-transfer-close/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5711149/2024/08/20/moise-bombito-transfer-canada-co
 **Tuesday's MLB best bets: Predictions for pitching matchups, playoffs and more**\
 `See pitching matchups, playoff projections, win projections and more for Tuesday's MLB games.`\
 https://nytimes.com/athletic/5711756/2024/08/20/mlb-odds-best-bets-projections-august-20/
-
-**Kamala Harris’s Tan Suit Surprise**\
-`The Democratic candidate for president made an unexpected appearance on Day 1 of the party convention.`\
-https://nytimes.com/2024/08/20/style/kamala-harris-dnc-tan-suit.html
-
-**Tracking Tropical Depression Jongdari**\
-`See the likely path and wind arrival times for Jongdari.`\
-https://nytimes.com/interactive/2024/08/20/weather/jongdari-map-path-tracker.html
 
