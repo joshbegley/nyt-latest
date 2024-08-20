@@ -1,3 +1,7 @@
+**PFA awards: Foden & Shaw complete Man City double**\
+`Manchester City completed a PFA Player of the Year double on Tuesday night as midfielder Phil Foden and striker Bunny Shaw were named men&#8217;s and women&#8217;s winners for 2023-24.`\
+https://nytimes.com/athletic/5711730/2024/08/20/pfa-award-winners-foden-shaw/
+
 **Final Report on Maine Shootings Criticizes Gunman’s Army Supervisors**\
 `The report found that both local law enforcement and the Army Reserve failed to act on evidence that the gunman was dangerous before the shootings.`\
 https://nytimes.com/2024/08/20/us/maine-shootings-final-report.html
@@ -33,8 +37,4 @@ https://nytimes.com/topic/david-a-haggerty
 **No More Butter Chicken: Where Indian Food Finally Gets to Be Itself**\
 `Our interim critic reviews Bungalow in the East Village, where the celebrity chef Vikas Khanna’s variations on regional dishes blaze new paths without cutting corners.`\
 https://nytimes.com/2024/08/20/dining/restaurant-review-bungalow-east-village.html
-
-**Beyond Restoring Roe: Democrats See Moment to ‘Reimagine’ Abortion Rights**\
-`The spotlight at the convention is a dramatic shift from just four years ago, another sign of how radically the politics of abortion have changed, and how much the party is relying on the issue to rally voters.`\
-https://nytimes.com/2024/08/20/us/abortion-rights-harris-dnc.html
 
