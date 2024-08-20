@@ -1,3 +1,7 @@
+**Biden Approved Secret Nuclear Strategy Refocusing on Chinese Threat**\
+`In a classified document approved in March, the president ordered U.S. forces to prepare for possible coordinated nuclear confrontations with Russia, China and North Korea.`\
+https://nytimes.com/2024/08/20/us/politics/biden-nuclear-china-russia.html
+
 **David A Haggerty**\
 `News about David A Haggerty. Commentary and archival information about David A Haggerty from The New York Times.`\
 https://nytimes.com/topic/david-a-haggerty
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/us/politics/democrats-congress-harris.html
 **What Happened to Inflation?**\
 `In the end, Bidenomics was vindicated.`\
 https://nytimes.com/2024/08/20/opinion/inflation-biden-economy.html
-
-**Debunking fantasy football narratives tied to rookies, explosive plays, depth of target and more**\
-`Michael Salfino identifies the false narratives currently pervading fantasy football, including a couple regarding NFL rookies.`\
-https://nytimes.com/athletic/5712580/2024/08/20/fantasy-football-false-narratives-2024/
 
