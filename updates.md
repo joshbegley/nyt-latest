@@ -1,3 +1,15 @@
+**NASCAR Michigan takeaways: Tyler Reddick's maturation, playoff picture and more**\
+`Tyler Reddick caps a string of recent great results with another win, the playoff picture is getting clearer, plus more from Michigan.`\
+https://nytimes.com/athletic/5712097/2024/08/20/nascar-michigan-tyler-reddick-playoffs-takeaways/
+
+**He Wants People Restarting Their Lives to See Themselves Onstage**\
+`Tarell Alvin McCraney, the artistic director of the Geffen Playhouse in Los Angeles, is focused on bringing marginalized people to the theater.`\
+https://nytimes.com/2024/08/20/theater/tarell-alvin-mccraney-geffen-playhouse.html
+
+**ESPN to name Mike Greenberg host of 'Sunday NFL Countdown'**\
+`Greenberg, 57, receives the job over Laura Rutledge, an up-and-coming star at the network.`\
+https://nytimes.com/athletic/5712211/2024/08/20/mike-greenberg-espn-nfl-countdown/
+
 **How good is Manuel Ugarte and is he right for Manchester United?**\
 `Ugarte is a defensive midfielder who prides himself in how he defends, combining high athleticism with defensive intensity`\
 https://nytimes.com/athletic/5711441/2024/08/20/manuel-ugarte-manchester-united-psg/
