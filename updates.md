@@ -1,3 +1,15 @@
+**James A Baker III**\
+`News about James A Baker III. Commentary and archival information about James A Baker III from The New York Times.`\
+https://nytimes.com/topic/james-a-baker-iii
+
+**Gallagher flying to Spain to complete Atletico Madrid move**\
+`Chelsea midfielder Conor Gallagher is scheduled to fly to Spain on Tuesday evening in order to complete his move to Atletico Madrid.`\
+https://nytimes.com/athletic/5710130/2024/08/20/conor-gallagher-atletico-deal/
+
+**What to Expect at the Democratic National Convention in Chicago**\
+`On Day 2, Barack Obama, the nation’s first Black president, is expected to deliver soaring oratory as he implores the United States to elect its first Black female president.`\
+https://nytimes.com/2024/08/20/us/politics/what-to-expect-dnc-day-2-chicago.html
+
 **Scoop City: Fantasy football targets, players to avoid**\
 `A look at 11 fantasy football targets and players to avoid for the 2024 season`\
 https://nytimes.com/athletic/5712086/2024/08/20/scoop-city-fantasy-football-targets-players-to-avoid/
