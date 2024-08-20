@@ -1,3 +1,7 @@
+**Scoop City: Fantasy football targets, players to avoid**\
+`A look at 11 fantasy football targets and players to avoid for the 2024 season`\
+https://nytimes.com/athletic/5712086/2024/08/20/scoop-city-fantasy-football-targets-players-to-avoid/
+
 **Rocket Test on Remote Scottish Island Ends in Flames**\
 `As European countries push to develop more independent space capabilities, a test at one new site produced an explosion.`\
 https://nytimes.com/2024/08/20/world/europe/rocket-test-on-remote-scottish-island-ends-in-flames.html

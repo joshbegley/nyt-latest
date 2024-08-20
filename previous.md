@@ -1,3 +1,7 @@
+**Scoop City: Fantasy football targets, players to avoid**\
+`A look at 11 fantasy football targets and players to avoid for the 2024 season`\
+https://nytimes.com/athletic/5712086/2024/08/20/scoop-city-fantasy-football-targets-players-to-avoid/
+
 **Rocket Test on Remote Scottish Island Ends in Flames**\
 `As European countries push to develop more independent space capabilities, a test at one new site produced an explosion.`\
 https://nytimes.com/2024/08/20/world/europe/rocket-test-on-remote-scottish-island-ends-in-flames.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/arts/television/reservation-dogs-dpharaoh-woon-a-
 **Phil Donahue’s Clothes Kept the Focus on His Subjects**\
 `The talk show host made a career of exposing polarizing topics while dressed in a relatively neutral wardrobe.`\
 https://nytimes.com/2024/08/20/style/phil-donahue-clothes.html
-
-**Who’s Missing From Sunken Yacht? Tech Mogul Mike Lynch and 5 Others.**\
-`Mr. Lynch, the former chief executive of the software firm Autonomy, who was acquitted on fraud charges in June, was with friends and family when the yacht went down in a severe storm.`\
-https://nytimes.com/2024/08/20/business/dealbook/sicily-yacht-sinks-missing-passengers.html
 
