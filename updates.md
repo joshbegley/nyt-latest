@@ -1,3 +1,7 @@
+**The Pulse: Are the Chiefs inevitable?**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5711074/2024/08/20/chiefs-afc-odds-the-pulse/
+
 **Bayern's Stanisic out with knee ligament injury**\
 `Bayern Munich defender Josip Stansic will be unavailable for “several weeks” after he injured the collateral ligament in his right knee.`\
 https://nytimes.com/athletic/5711439/2024/08/20/bayern-munich-stanisic-injury/

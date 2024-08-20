@@ -1,3 +1,7 @@
+**The Pulse: Are the Chiefs inevitable?**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5711074/2024/08/20/chiefs-afc-odds-the-pulse/
+
 **Bayern's Stanisic out with knee ligament injury**\
 `Bayern Munich defender Josip Stansic will be unavailable for “several weeks” after he injured the collateral ligament in his right knee.`\
 https://nytimes.com/athletic/5711439/2024/08/20/bayern-munich-stanisic-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5699400/2024/08/20/acc-football-tiers-rankings-cfp-
 **The surprisingly difficult search for David Justice in two boxes of '90s baseball cards**\
 `Finding one David Justice baseball card was more time consuming than our writer thought, but it produced a fun look back at '90s names`\
 https://nytimes.com/athletic/5673480/2024/08/20/david-justice-baseball-cards/
-
-**Biden Leaves the Stage**\
-`On President Biden’s private pain since stepping aside, and his public message at the Democratic National Convention.`\
-https://nytimes.com/2024/08/20/podcasts/the-daily/biden-dnc-speech.html
 
