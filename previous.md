@@ -1,3 +1,7 @@
+**Storm, Williams agree to rest-of-season contract**\
+`Gabby Williams led the French national team in points (15.5) and assists (2.3) en route to earning a silver medal at the Paris Olympics.`\
+https://nytimes.com/athletic/5712602/2024/08/20/gabby-williams-seattle-storm-contract/
+
 **JD Vance mocks Chicago, calling the D.N.C.’s host city a ‘combat zone.’**\
 `Mr. Vance criticized Chicago on Tuesday as part of an attack on his Democratic rival, Tim Walz.`\
 https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/jd-vance-mocks-chicago-calling-the-dncs-host-city-a-combat-zone
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/world/americas/haiti-sanctions-martelly-president
 **Full Time: Why the Wave hired Landon Donovan**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/5712565/2024/08/20/landon-donovan-san-diego-wave-nwsl-full-time/
-
-**Gov. Roy Cooper says Harris’s campaign is surging in North Carolina.**\
-`By Sharon LaFraniere`\
-https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/gov-roy-cooper-says-harriss-campaign-is-surging-in-north-carolina
 
