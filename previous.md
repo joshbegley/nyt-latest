@@ -1,3 +1,7 @@
+**Women With Harrowing Pregnancies Address Abortion Rights**\
+`The speakers appeared at the Democratic National Convention and condemned restrictive abortion laws that have been enacted across the country.`\
+https://nytimes.com/video/us/politics/100000009640917/abortion-bans-dnc.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/08/20/crosswords/spelling-bee-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/arts/television/late-night-biden-democratic-conve
 **How did Dominic Solanke perform on his Tottenham Hotspur debut?**\
 `Tottenham were held to a 1-1 draw by Leicester, this is how their new striker signing performed on Monday night`\
 https://nytimes.com/athletic/5710965/2024/08/20/dominic-solanke-tottenham-hotspur-analysis/
-
-**The Speech Biden Never Wanted to Give**\
-`“Thank you, Joe!’’ the crowd members chanted to a tearful president for his lifetime of public service. But they were also thanking him for not running again.`\
-https://nytimes.com/2024/08/20/us/politics/biden-convention.html
 

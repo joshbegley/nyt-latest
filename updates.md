@@ -1,3 +1,7 @@
+**Women With Harrowing Pregnancies Address Abortion Rights**\
+`The speakers appeared at the Democratic National Convention and condemned restrictive abortion laws that have been enacted across the country.`\
+https://nytimes.com/video/us/politics/100000009640917/abortion-bans-dnc.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/08/20/crosswords/spelling-bee-forum.html
