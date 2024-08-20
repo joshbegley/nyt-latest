@@ -1,3 +1,7 @@
+**Israel Says It Recovered Bodies of 6 Hostages in Gaza**\
+`All but one of the hostages were already known to have died in captivity.`\
+https://nytimes.com/2024/08/20/world/middleeast/israel-hostage-bodies-recovered-gaza.html
+
 **Search to Resume for Missing Passengers of Yacht That Sank Off Sicily**\
 `Divers have been searching the hull of the Bayesian for passengers including the British entrepreneur Mike Lynch. Witnesses said it was hit by a waterspout during a sudden storm.`\
 https://nytimes.com/2024/08/20/world/europe/italy-yacht-palermo-search.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/nyregion/amtrak-njtransit-delays.html
 **Scientists Seeking Life on Mars Heard a Signal That Hinted at the Future**\
 `In 1924, a radio receiver built for the battlefields of World War I tested the idea that humans were not alone in the solar system, heralding a century of searches for extraterrestrial life.`\
 https://nytimes.com/2024/08/20/science/mars-aliens-radio-signals.html
-
-**Biden Delivers Keynote on First Night of D.N.C.**\
-`In his speech, which lasted nearly an hour, the president touted his accomplishments, attacked Donald Trump and passed the baton to Kamala Harris.`\
-https://nytimes.com/video/us/elections/100000009640959/biden-dnc-democratic-national-convention.html
 
