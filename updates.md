@@ -1,3 +1,11 @@
+**Bengals, Joe Burrow look ready for season in joint practice against Colts**\
+`The quarterback showed no signs of last year's injuries while clicking with Tee Higgins and Mike Gesicki Tuesday.`\
+https://nytimes.com/athletic/5713148/2024/08/20/bengals-joe-burrow-joint-practice-colts/
+
+**Woman Lost for 4 Days in Colorado Mountains Is Rescued**\
+`Gina Chase went camping with an organization that recommended participants fast and discouraged cellphones during a spiritual retreat, the authorities said.`\
+https://nytimes.com/2024/08/20/us/colorado-missing-woman-spiritual-quest.html
+
 **Ana Navarro and Other Republican Trump Critics Appearing on D.N.C. Night 2**\
 `Ms. Navarro, the Republican political commentator, is serving as a host for the evening, while an ex-aide to Melania Trump has a speaking slot.`\
 https://nytimes.com/2024/08/20/us/politics/ana-navarro-stephanie-grishamn-trump-dnc.html

@@ -1,3 +1,11 @@
+**Bengals, Joe Burrow look ready for season in joint practice against Colts**\
+`The quarterback showed no signs of last year's injuries while clicking with Tee Higgins and Mike Gesicki Tuesday.`\
+https://nytimes.com/athletic/5713148/2024/08/20/bengals-joe-burrow-joint-practice-colts/
+
+**Woman Lost for 4 Days in Colorado Mountains Is Rescued**\
+`Gina Chase went camping with an organization that recommended participants fast and discouraged cellphones during a spiritual retreat, the authorities said.`\
+https://nytimes.com/2024/08/20/us/colorado-missing-woman-spiritual-quest.html
+
 **Ana Navarro and Other Republican Trump Critics Appearing on D.N.C. Night 2**\
 `Ms. Navarro, the Republican political commentator, is serving as a host for the evening, while an ex-aide to Melania Trump has a speaking slot.`\
 https://nytimes.com/2024/08/20/us/politics/ana-navarro-stephanie-grishamn-trump-dnc.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/in-a-speech-meant-t
 **Eating Meat Is Linked With Diabetes Risk, New Studies Suggest**\
 `The research builds on previous findings connecting red and processed meats with Type 2 diabetes.`\
 https://nytimes.com/2024/08/20/well/eat/red-meat-diabetes-study.html
-
-**Judge Blocks F.T.C.’s Noncompete Rule**\
-`The Federal Trade Commission was deemed to lack the authority to bar companies from restricting their employees’ ability to go to work for rivals.`\
-https://nytimes.com/2024/08/20/business/economy/noncompete-ban-ftc-texas.html
-
-**This Collection of Poems Is Skeptical About Poetry’s Value. Or Is It?**\
-`Danez Smith’s “Bluff” represents a notable turning point for the poet — and maybe for American poetry as a whole.`\
-https://nytimes.com/2024/08/20/books/review/bluff-poems-danez-smith.html
 
