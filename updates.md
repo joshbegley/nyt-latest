@@ -1,3 +1,11 @@
+**Dzhokhar A Tsarnaev**\
+`News about Dzhokhar A Tsarnaev. Commentary and archival information about Dzhokhar A Tsarnaev from The New York Times.`\
+https://nytimes.com/topic/dzhokhar-a-tsarnaev
+
+**U.S. Sanctions Former Haitian President for Drug Trafficking**\
+`The Treasury Department said former President Michel Martelly’s actions have contributed significantly to the unraveling of security in the country.`\
+https://nytimes.com/2024/08/20/world/americas/haiti-sanctions-martelly-president.html
+
 **Full Time: Why the Wave hired Landon Donovan**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/5712565/2024/08/20/landon-donovan-san-diego-wave-nwsl-full-time/

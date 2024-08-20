@@ -1,3 +1,7 @@
+**Orford agrees new five-year West Ham contract**\
+`West Ham United midfielder Lewis Orford has agreed a new five-year contract.`\
+https://nytimes.com/athletic/5712617/2024/08/20/lewis-orford-west-ham-contract/
+
 **Dzhokhar A Tsarnaev**\
 `News about Dzhokhar A Tsarnaev. Commentary and archival information about Dzhokhar A Tsarnaev from The New York Times.`\
 https://nytimes.com/topic/dzhokhar-a-tsarnaev
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/the-run-up-steve-ke
 **The Women's Open is at St. Andrews. The Old Course is ready to challenge the field**\
 `The home of golf has been blown apart by the men, but should stand up and show its teeth this week.`\
 https://nytimes.com/athletic/5710646/2024/08/20/womens-open-st-andrews-old-course/
-
-**Ukrainian Lawmakers Pass Bill Aiming to Ban Russian-Aligned Church**\
-`The measure, which awaits President Volodymyr Zelensky’s signature, would further a long, post-Soviet split between two of the world’s largest Orthodox communities.`\
-https://nytimes.com/2024/08/20/world/europe/ukraine-orthodox-church-russia.html
 
