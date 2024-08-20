@@ -1,3 +1,7 @@
+**Everton turn down offer for Maupay from Marseille**\
+`Everton have turned down a bid from Marseille to sign Neal Maupay.`\
+https://nytimes.com/athletic/5711554/2024/08/20/everton-transfers-neal-maupay-marseille/
+
 **Hit Chinese Video Game Seeks to Curb ‘Negative Discourse’**\
 `Black Myth: Wukong tried to forbid influential overseas streamers from discussing “feminist propaganda,” Covid-19 and China’s video game industry policies.`\
 https://nytimes.com/2024/08/20/world/asia/chinese-videogame-wukong-censorship.html
