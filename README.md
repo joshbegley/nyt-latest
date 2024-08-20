@@ -1,3 +1,7 @@
+**Wednesday Briefing: The U.S.’s Secret Nuclear Strategy**\
+`Plus, Ukraine’s women take over the work force.`\
+https://nytimes.com/2024/08/20/briefing/biden-nuclear-china-israel-hostages-eu-tesla-tariffs.html
+
 **Fulham reach agreement in principle to sign Andersen from Crystal Palace**\
 `Fulham have reached an agreement in principle with Crystal Palace to sign Joachim Andersen.`\
 https://nytimes.com/athletic/5698243/2024/08/20/joachim-andersen-fulham-deal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5712724/2024/08/20/brian-flores-tua-tagovailoa-comm
 **Tennessee Prison Is Under Federal Investigation After Reports of Abuse**\
 `State audits of the Trousdale Turner Correctional Center, outside Nashville, have suggested that understaffing and high turnover have created an unsafe environment.`\
 https://nytimes.com/2024/08/20/us/politics/tennessee-prison-investigation-abuse.html
-
-**2 Are Killed as Private Plane Crashes Into Texas Mobile Home Park**\
-`The people killed were aboard the plane, the authorities said. One woman was rescued from a burning mobile home in Odessa after the crash on Tuesday morning.`\
-https://nytimes.com/2024/08/20/us/odessa-plane-crash-texas.html
 
