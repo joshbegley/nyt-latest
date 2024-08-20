@@ -1,3 +1,7 @@
+**Fulham reach agreement in principle to sign Andersen from Crystal Palace**\
+`Fulham have reached an agreement in principle with Crystal Palace to sign Joachim Andersen.`\
+https://nytimes.com/athletic/5698243/2024/08/20/joachim-andersen-fulham-deal/
+
 **The Protests in Chicago Aren’t Unruly Enough for the Right Wing**\
 `There’s not enough disorder, so some right-wing influencers are pretending the streets are in chaos.`\
 https://nytimes.com/live/2024/08/20/opinion/thepoint/chicago-protests-right-wing
