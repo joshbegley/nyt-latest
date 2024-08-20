@@ -1,3 +1,11 @@
+**Tuesday's MLB best bets: Predictions for pitching matchups, playoffs and more**\
+`See pitching matchups, playoff projections, win projections and more for Tuesday's MLB games.`\
+https://nytimes.com/athletic/5711756/2024/08/20/mlb-odds-best-bets-projections-august-20/
+
+**Kamala Harris’s Tan Suit Surprise**\
+`The Democratic candidate for president made an unexpected appearance on Day 1 of the party convention.`\
+https://nytimes.com/2024/08/20/style/kamala-harris-dnc-tan-suit.html
+
 **Tracking Tropical Depression Jongdari**\
 `See the likely path and wind arrival times for Jongdari.`\
 https://nytimes.com/interactive/2024/08/20/weather/jongdari-map-path-tracker.html
