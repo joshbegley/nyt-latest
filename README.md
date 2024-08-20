@@ -19,7 +19,7 @@ https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/only-in-america-us-
 https://nytimes.com/2024/08/20/style/crest-hardware-brooklyn.html
 
 **Bengals, Joe Burrow look ready for season in joint practice against Colts**\
-`The quarterback showed no signs of last year's injuries while clicking with Tee Higgins and Mike Gesicki Tuesday.`\
+`The quarterback showed no signs of last year's injuries while clicking with Tee Higgins and Mike Gesicki on Tuesday.`\
 https://nytimes.com/athletic/5713148/2024/08/20/bengals-joe-burrow-joint-practice-colts/
 
 **Woman Lost for 4 Days in Colorado Mountains Is Rescued**\
