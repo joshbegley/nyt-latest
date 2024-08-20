@@ -1,3 +1,7 @@
+**Browns willing to engage in trade talks involving DTR: Source**\
+`Thompson-Robinson has been competing with Tyler Huntley for Cleveland's No. 3 QB job behind Deshaun Watson and Jameis Winston. `\
+https://nytimes.com/athletic/5712064/2024/08/20/browns-dorian-thompson-robinson-trade/
+
 **The Seahawks' success will hinge on their O-line (again). Is it up to the task?**\
 `Connor Williams could be an upgrade at center, and the Seahawks have perhaps the NFL's best young tackle duo, but health is a big concern.`\
 https://nytimes.com/athletic/5711101/2024/08/20/seahawks-offensive-line-connor-williams-charles-cross/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5711237/2024/08/20/patrik-laine-canadiens-blue-jack
 **Europe Slashes Tariffs for Tesla Vehicles Made in China**\
 `The European Commission will charge the U.S. automaker an additional duty of 9 percent, much lower than tariffs levied on its Chinese peers for electric vehicles imported to Europe.`\
 https://nytimes.com/2024/08/20/business/tesla-electric-vehicle-tariffs-china.html
-
-**Maria Branyas Morera, World’s Oldest Person, Dies at 117**\
-`Ms. Morera, who cultivated a following on social media as “Super Catalan Grandma,” died peacefully in her sleep, her family said.`\
-https://nytimes.com/2024/08/20/world/europe/worlds-oldest-person-maria-branyas-dead.html
 
