@@ -1,3 +1,7 @@
+**The Chicago Vibes Shouldn’t Obscure Trump’s Continuing Threat**\
+`David Axelrod says Trump is probably still ahead.`\
+https://nytimes.com/live/2024/08/13/opinion/thepoint/trump-threat-democratic-exuberance
+
 **“Trump talks big about bringing back manufacturing jobs, but you know who actually did it? President Biden and Vice President Kamala Harris.”**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/trump-talks-big-about-bringing-back-manufacturing-jobs-but-you-know-who-actually-did-it-president-biden-and-vice-president-kamal
@@ -35,8 +39,4 @@ https://nytimes.com/2024/08/19/us/texas-school-shooting-civil-trial.html
 **Landon Donovan on San Diego Wave gig: 'I don't worry about the next job'**\
 `Donovan hopes to use his experience as a player to lead San Diego through a difficult time. `\
 https://nytimes.com/athletic/5710888/2024/08/19/landon-donovan-nwsl-san-diego-wave-coach/
-
-**Democrats Say Hi — and Bye — to President Biden**\
-`A man who spent a lifetime seeking the presidency faces his party after it forced him to step aside.`\
-https://nytimes.com/2024/08/19/us/politics/democratic-national-convention-chicago-biden-harris.html
 
