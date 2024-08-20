@@ -18,7 +18,7 @@ https://nytimes.com/athletic/5711289/2024/08/20/burnley-man-united-hannibal-tran
 `All but one of the hostages were already known to have died in captivity.`\
 https://nytimes.com/2024/08/20/world/middleeast/israel-hostage-bodies-recovered-gaza.html
 
-**Search to Resume for Missing Passengers of Yacht That Sank Off Sicily**\
+**Search Resumes for Missing Passengers of Yacht That Sank Off Sicily**\
 `Divers have been searching the hull of the Bayesian for passengers including the British entrepreneur Mike Lynch. Witnesses said it was hit by a waterspout during a sudden storm.`\
 https://nytimes.com/2024/08/20/world/europe/italy-yacht-palermo-search.html
 
