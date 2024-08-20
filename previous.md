@@ -1,3 +1,7 @@
+**Alabama football recruiting: 5-star RB Akylin Dear flips to Tide from Ole Miss**\
+`Akylin is the No. 2-ranked running back in the Class of 2025 per the 247Sports Composite.`\
+https://nytimes.com/athletic/5712730/2024/08/20/alabama-college-football-recruiting-akylin-dear/
+
 **Biden Approved Secret Nuclear Strategy Refocusing on Chinese Threat**\
 `In a classified document approved in March, the president ordered U.S. forces to prepare for possible coordinated nuclear confrontations with Russia, China and North Korea.`\
 https://nytimes.com/2024/08/20/us/politics/biden-nuclear-china-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/jd-vance-mocks-chic
 **In Chicago, Democrats Are Newly Hopeful They Can Win the Fight for Congress**\
 `As they gather to formally nominate Vice President Kamala Harris, top Democrats say their candidates — who they feared would be dragged to defeat by President Biden — now have the wind at their backs.`\
 https://nytimes.com/2024/08/20/us/politics/democrats-congress-harris.html
-
-**What Happened to Inflation?**\
-`In the end, Bidenomics was vindicated.`\
-https://nytimes.com/2024/08/20/opinion/inflation-biden-economy.html
 
