@@ -1,3 +1,7 @@
+**Beth A Wilkinson**\
+`News about Beth A Wilkinson. Commentary and archival information about Beth A Wilkinson from The New York Times.`\
+https://nytimes.com/topic/beth-a-wilkinson
+
 **Joe Biden’s Other Legacy**\
 `The Democratic Party has bridged huge divides since 2020. Can it win?`\
 https://nytimes.com/2024/08/20/opinion/ezra-klein-podcast-democratic-convention.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/briefing/biden-nuclear-china-israel-hostages-eu-t
 **Fulham reach agreement in principle to sign Andersen from Crystal Palace**\
 `Fulham have reached an agreement in principle with Crystal Palace to sign Joachim Andersen.`\
 https://nytimes.com/athletic/5698243/2024/08/20/joachim-andersen-fulham-deal/
-
-**The Protests in Chicago Aren’t Unruly Enough for the Right Wing**\
-`There’s not enough disorder, so some right-wing influencers are pretending the streets are in chaos.`\
-https://nytimes.com/live/2024/08/20/opinion/thepoint/chicago-protests-right-wing
 
