@@ -1,3 +1,11 @@
+**Bayern's Stanisic out with knee ligament injury**\
+`Bayern Munich defender Josip Stansic will be unavailable for “several weeks” after he injured the collateral ligament in his right knee.`\
+https://nytimes.com/athletic/5711439/2024/08/20/bayern-munich-stanisic-injury/
+
+**Cowboys' second-year kicker Brandon Aubrey performing on a 'different level'**\
+`A year ago, Brandon Aubrey was just trying to make the team. He nailed a 66-yarder Saturday and is one of the NFL's top kickers.`\
+https://nytimes.com/athletic/5711253/2024/08/20/dallas-cowboys-brandon-aubrey-all-pro-kicker/
+
 **How Biden Changed His Party**\
 `We explore three ways the president has shaped the Democratic Party.`\
 https://nytimes.com/2024/08/20/briefing/joe-biden-dnc-legacy.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5673480/2024/08/20/david-justice-baseball-cards/
 **Biden Leaves the Stage**\
 `On President Biden’s private pain since stepping aside, and his public message at the Democratic National Convention.`\
 https://nytimes.com/2024/08/20/podcasts/the-daily/biden-dnc-speech.html
-
-**The Connections Companion No. 437**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 21, 2024.`\
-https://nytimes.com/2024/08/20/crosswords/connections-companion-437.html
-
-**Wordle Review No. 1,159**\
-`Scroll down for hints and conversation about the puzzle for August 21, 2024.`\
-https://nytimes.com/2024/08/20/crosswords/wordle-review-1159.html
 
