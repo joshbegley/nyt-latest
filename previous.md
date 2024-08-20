@@ -1,3 +1,7 @@
+**Steve Kerr Cheers on Harris and Walz, a Fellow Coach**\
+`The Golden State Warriors coach, well known for his liberal views, wove plenty of sports references into his paean to the Democratic ticket. He also teased Tim Walz a bit.`\
+https://nytimes.com/2024/08/19/us/politics/steve-kerr-kamala-harris-dnc.html
+
 **Surrounding Glow**\
 `Sam Buchbinder shares a few of his favorite things.`\
 https://nytimes.com/2024/08/19/crosswords/daily-puzzle-2024-08-20.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/5710919/2024/08/19/amanda-kessel-pittsburgh-penguin
 <p>Let me know what&#8217;s on your mind as we brace for Week 0.</p>
 `\
 https://nytimes.com/athletic/5711008/2024/08/19/submit-a-question-for-stewart-mandels-college-football-mailbag-269/
-
-**Jury Finds Parents of Gunman Not Liable in 2018 Texas School Shooting**\
-`Jurors decided instead that blame rested with the gunman, who was 17 at the time, and the company that sold him ammunition used in the shooting.`\
-https://nytimes.com/2024/08/19/us/texas-school-shooting-civil-trial.html
 

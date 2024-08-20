@@ -1,3 +1,7 @@
+**Steve Kerr Cheers on Harris and Walz, a Fellow Coach**\
+`The Golden State Warriors coach, well known for his liberal views, wove plenty of sports references into his paean to the Democratic ticket. He also teased Tim Walz a bit.`\
+https://nytimes.com/2024/08/19/us/politics/steve-kerr-kamala-harris-dnc.html
+
 **Surrounding Glow**\
 `Sam Buchbinder shares a few of his favorite things.`\
 https://nytimes.com/2024/08/19/crosswords/daily-puzzle-2024-08-20.html
