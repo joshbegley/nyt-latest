@@ -1,3 +1,11 @@
+**Boeing Grounds 777-9 Test Planes in Latest Setback**\
+`The airplane manufacturer said it had discovered problems with a key part of the 777-9, a large plane designed for long flights that had already been delayed by years.`\
+https://nytimes.com/2024/08/20/business/boeing-777x-grounded.html
+
+**How Two Democrats Jumped Into Politics and Ended Up as Delegates**\
+`Janet Diaz and Tameko Patterson barely knew each other before this year, but both had long journeys into the political arena. Now they are rooming together and representing their party in Chicago.`\
+https://nytimes.com/2024/08/20/us/politics/democratic-delegates-dnc.html
+
 **It’s Time for Crab Soup**\
 `With Chesapeake Bay blue crab season in full swing — and tomatoes, corn and green beans at their peak — make Maryland crab soup right now.`\
 https://nytimes.com/2024/08/20/dining/maryland-crab-soup.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/20/dining/week-3-of-our-august-grilling-challenge-gr
 **Want to See a Play About Gwyneth Paltrow’s Ski Trial? How About 2?**\
 `Multiple shows at the Edinburgh Fringe make camp fun out of the 2023 civil action that spurred a thousand memes — and one of them is a triumph.`\
 https://nytimes.com/2024/08/20/theater/gwyneth-paltrow-ski-trial-edinburgh-fringe.html
-
-**Disciplinary Charges Against Top New York Police Official Are Dismissed**\
-`An oversight board had recommended that Jeffrey Maddrey, the chief of department, be punished for interfering with an arrest. Commissioner Edward Caban dismissed the case.`\
-https://nytimes.com/2024/08/20/nyregion/jeffrey-maddrey-disciplinary-charges-dismissed.html
-
-**Lowetide: Oilers' summer of loud noises reaches apex with Blues' Broberg, Holloway signings**\
-`The Oilers' 2024 offseason has proven to be a cascade of headlines. What is the result of the team's recent moves?`\
-https://nytimes.com/athletic/5711561/2024/08/20/oilers-holloway-broberg-blues/
 

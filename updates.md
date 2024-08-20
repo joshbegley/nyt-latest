@@ -1,3 +1,11 @@
+**Boeing Grounds 777-9 Test Planes in Latest Setback**\
+`The airplane manufacturer said it had discovered problems with a key part of the 777-9, a large plane designed for long flights that had already been delayed by years.`\
+https://nytimes.com/2024/08/20/business/boeing-777x-grounded.html
+
+**How Two Democrats Jumped Into Politics and Ended Up as Delegates**\
+`Janet Diaz and Tameko Patterson barely knew each other before this year, but both had long journeys into the political arena. Now they are rooming together and representing their party in Chicago.`\
+https://nytimes.com/2024/08/20/us/politics/democratic-delegates-dnc.html
+
 **It’s Time for Crab Soup**\
 `With Chesapeake Bay blue crab season in full swing — and tomatoes, corn and green beans at their peak — make Maryland crab soup right now.`\
 https://nytimes.com/2024/08/20/dining/maryland-crab-soup.html
