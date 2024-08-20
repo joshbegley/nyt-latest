@@ -27,7 +27,7 @@ https://nytimes.com/2024/08/20/us/politics/dnc-speakers-day-2-lineup.html
 https://nytimes.com/athletic/5713064/2024/08/20/nico-paz-real-madrid-como-transfer/
 
 **News Emmys Defend Nomination of Palestinian Journalist**\
-`A nonprofit had argued that a video from Gaza should be disqualified accusing the reporter of having a history of “spreading antisemitism and condoning violence.”`\
+`A nonprofit had argued that a video from Gaza should be disqualified,  accusing the reporter of having a history of “spreading antisemitism and condoning violence.”`\
 https://nytimes.com/2024/08/20/arts/emmys-bisan-owda-gaza-al-jazeera.html
 
 **U.S. Push for Gaza Cease-Fire Falls Short on Key Points, Officials Say**\

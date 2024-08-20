@@ -1,3 +1,7 @@
+**News Emmys Defend Nomination of Palestinian Journalist**\
+`A nonprofit had argued that a video from Gaza should be disqualified,  accusing the reporter of having a history of “spreading antisemitism and condoning violence.”`\
+https://nytimes.com/2024/08/20/arts/emmys-bisan-owda-gaza-al-jazeera.html
+
 **Dennis A. Muilenburg**\
 `News about Dennis A. Muilenburg. Commentary and archival information about Dennis A. Muilenburg from The New York Times.`\
 https://nytimes.com/topic/dennis-a-muilenburg
