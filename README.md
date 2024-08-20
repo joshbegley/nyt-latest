@@ -1,3 +1,7 @@
+**Broberg, Holloway going to Blues; Oilers don't match offer sheets**\
+`The Oilers will receive a second-round pick as compensation for Philip Broberg and a third-round pick for Dylan Holloway.`\
+https://nytimes.com/athletic/5706821/2024/08/20/philip-broberg-dylan-holloway-oilers-blues-offer-sheets/
+
 **Until Saturday: Meet team No. 134, plus let's discuss fall weddings**\
 `Welcome to Until Saturday, the five-star college football newsletter: Get to know new FBS member Kennesaw State.`\
 https://nytimes.com/athletic/5710139/2024/08/20/college-football-rankings-fall-weddings-until-saturday/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/business/dealbook/can-harris-keep-the-peace-among
 **‘A Battleground in an Intergenerational Conflict’: The Week 9 Winner of Our Summer Reading Contest**\
 `In a short video, Vanessa Chen, 16, muses about the meaning of the current “sock war” between millennials and Gen Z.`\
 https://nytimes.com/2024/08/20/learning/a-battleground-in-an-intergenerational-conflict-the-week-9-winner-of-our-summer-reading-contest.html
-
-**How Liverpool fixed their duels difficulties at Ipswich (and what it tells us about Slot)**\
-`Liverpool's new head coach thought they lost too many individual battles in the first half and wasn't shy about intervening at half-time`\
-https://nytimes.com/athletic/5711421/2024/08/20/liverpool-duels-ipswich-arne-slot/
 
