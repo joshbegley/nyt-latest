@@ -1,3 +1,7 @@
+**The Dems Just Showed That They’re a Winning Party**\
+`On the first night of the convention, Democrats honored their past and future.`\
+https://nytimes.com/video/opinion/100000009642002/the-dems-just-showed-that-theyre-a-winning-party.html
+
 **Boeing Grounds 777-9 Test Planes in Latest Setback**\
 `The airplane manufacturer said it had discovered problems with a key part of the 777-9, a large plane designed for long flights that had already been delayed by years.`\
 https://nytimes.com/2024/08/20/business/boeing-777x-grounded.html
