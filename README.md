@@ -1,4 +1,4 @@
-**JD Vance and Andy Beshear trade attacks over a remark about pregnancy caused by rape**\
+**JD Vance and Andy Beshear trade attacks over a remark about pregnancy caused by rape.**\
 `By Michael C. Bender`\
 https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/jd-vance-and-andy-beshear-trade-attacks-over-a-remark-about-pregnancy-caused-by-rape
 
