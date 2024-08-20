@@ -1,3 +1,11 @@
+**Dzhokhar A Tsarnaev**\
+`News about Dzhokhar A Tsarnaev. Commentary and archival information about Dzhokhar A Tsarnaev from The New York Times.`\
+https://nytimes.com/topic/dzhokhar-a-tsarnaev
+
+**U.S. Sanctions Former Haitian President for Drug Trafficking**\
+`The Treasury Department said former President Michel Martelly’s actions have contributed significantly to the unraveling of security in the country.`\
+https://nytimes.com/2024/08/20/world/americas/haiti-sanctions-martelly-president.html
+
 **Full Time: Why the Wave hired Landon Donovan**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/5712565/2024/08/20/landon-donovan-san-diego-wave-nwsl-full-time/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5710646/2024/08/20/womens-open-st-andrews-old-cours
 **Ukrainian Lawmakers Pass Bill Aiming to Ban Russian-Aligned Church**\
 `The measure, which awaits President Volodymyr Zelensky’s signature, would further a long, post-Soviet split between two of the world’s largest Orthodox communities.`\
 https://nytimes.com/2024/08/20/world/europe/ukraine-orthodox-church-russia.html
-
-**7 New Collaborations You Should Hear Now**\
-`Hear music from pairings that include Lady Gaga and Bruno Mars, and Post Malone and Chris Stapleton.`\
-https://nytimes.com/2024/08/20/arts/music/amplifier-newsletter-lady-gaga-post-malone.html
-
-**Mohamed A El-Erian**\
-`News about Mohamed A El-Erian. Commentary and archival information about Mohamed A El-Erian from The New York Times.`\
-https://nytimes.com/topic/mohamed-a-el-erian
 
