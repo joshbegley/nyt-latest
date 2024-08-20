@@ -1,3 +1,7 @@
+**The Protests in Chicago Aren’t Unruly Enough for the Right Wing**\
+`There’s not enough disorder, so some right-wing influencers are pretending the streets are in chaos.`\
+https://nytimes.com/live/2024/08/13/opinion/thepoint/chicago-protests-right-wing
+
 **JD Vance and Andy Beshear trade attacks over a remark about pregnancy caused by rape.**\
 `By Michael C. Bender`\
 https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/jd-vance-and-andy-beshear-trade-attacks-over-a-remark-about-pregnancy-caused-by-rape
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/us/odessa-plane-crash-texas.html
 **Alabama football recruiting: 5-star RB Akylin Dear flips to Tide from Ole Miss**\
 `Akylin is the No. 2-ranked running back in the Class of 2025 per the 247Sports Composite.`\
 https://nytimes.com/athletic/5712730/2024/08/20/alabama-college-football-recruiting-akylin-dear/
-
-**Biden Approved Secret Nuclear Strategy Refocusing on Chinese Threat**\
-`In a classified document approved in March, the president ordered U.S. forces to prepare for possible coordinated nuclear confrontations with Russia, China and North Korea.`\
-https://nytimes.com/2024/08/20/us/politics/biden-nuclear-china-russia.html
 
