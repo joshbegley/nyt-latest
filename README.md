@@ -1,3 +1,7 @@
+**News Emmys Defend Nomination of Palestinian Journalist**\
+`A nonprofit had argued that a video from Gaza should be disqualified because the reporter had a history of “spreading antisemitism and condoning violence.”`\
+https://nytimes.com/2024/08/20/arts/emmys-bisan-owda-gaza-al-jazeera.html
+
 **U.S. Push for Gaza Cease-Fire Falls Short on Key Points, Officials Say**\
 `Israeli and Hamas officials have downplayed the idea that a deal could be imminent, saying that mediators’ efforts have not resolved major disputes.`\
 https://nytimes.com/2024/08/20/world/middleeast/israel-hamas-us-ceasefire-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/topic/beth-a-wilkinson
 **Joe Biden’s Other Legacy**\
 `The Democratic Party has bridged huge divides since 2020. Can it win?`\
 https://nytimes.com/2024/08/20/opinion/ezra-klein-podcast-democratic-convention.html
-
-**Read the Final Report on the Lewiston, Maine, Mass Shootings**\
-`An independent commission investigating the October 2023 shooting emphasized failures by both the local police and the Army Reserve.`\
-https://nytimes.com/interactive/2024/08/20/us/read-lewiston-maine-shooting-report.html
 
