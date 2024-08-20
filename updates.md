@@ -1,3 +1,7 @@
+**Kennedy’s Running Mate Suggests They May Drop Out of the Presidential Race and Endorse Trump**\
+`In an interview, Nicole Shanahan appeared to concede that their independent presidential bid was not likely to end in victory.`\
+https://nytimes.com/2024/08/20/us/politics/robert-kennedy-campaign-future.html
+
 **How Costco Hacked the American Shopping Psyche**\
 `More than 100 million people visit the retailer for their groceries — and gas and TVs and gold bars and pet coffins — but saving money may not be the only motive.`\
 https://nytimes.com/2024/08/20/dining/costco.html

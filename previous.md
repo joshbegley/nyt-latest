@@ -10,7 +10,7 @@ https://nytimes.com/2024/08/20/us/chicago-protests-dnc-israel.html
 `He tracked the rise of grunge as the editor of the Seattle music magazine The Rocket. He also wrote acclaimed books about two of the city’s most celebrated rock luminaries.`\
 https://nytimes.com/2024/08/20/arts/music/charles-cross-dead.html
 
-**Kennedy’s Running Mate Suggests They May Drop Out of the Presidential Race and Endorse Trump.**\
+**Kennedy’s Running Mate Suggests They May Drop Out of the Presidential Race and Endorse Trump**\
 `In an interview, Nicole Shanahan appeared to concede that their independent presidential bid was not likely to end in victory.`\
 https://nytimes.com/2024/08/20/us/politics/robert-kennedy-campaign-future.html
 
