@@ -1,3 +1,7 @@
+**How a Law That Shields Big Tech Is Now Being Used Against It**\
+`A Massachusetts professor has filed a lawsuit against Meta using a novel interpretation of Section 230, a law known primarily for shielding social media companies from liability.`\
+https://nytimes.com/2024/08/20/technology/meta-section-230-lawsuit.html
+
 **Browns willing to engage in trade talks involving DTR: Source**\
 `Thompson-Robinson has been competing with Tyler Huntley for Cleveland's No. 3 QB job behind Deshaun Watson and Jameis Winston. `\
 https://nytimes.com/athletic/5712064/2024/08/20/browns-dorian-thompson-robinson-trade/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/us/politics/minyon-moore-kamala-harris-dnc.html
 **Why the Patrik Laine trade feels familiar but represents a shift for the Canadiens**\
 `In Laine, the Canadiens not only acquired an undervalued asset, but also a player who could help them reach their modest goals.  `\
 https://nytimes.com/athletic/5711237/2024/08/20/patrik-laine-canadiens-blue-jackets-trade/
-
-**Europe Slashes Tariffs for Tesla Vehicles Made in China**\
-`The European Commission will charge the U.S. automaker an additional duty of 9 percent, much lower than tariffs levied on its Chinese peers for electric vehicles imported to Europe.`\
-https://nytimes.com/2024/08/20/business/tesla-electric-vehicle-tariffs-china.html
 
