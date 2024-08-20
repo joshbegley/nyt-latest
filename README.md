@@ -1,3 +1,11 @@
+**Tuesday's MLB best bets: Predictions for pitching matchups, playoffs and more**\
+`See pitching matchups, playoff projections, win projections and more for Tuesday's MLB games.`\
+https://nytimes.com/athletic/5711756/2024/08/20/mlb-odds-best-bets-projections-august-20/
+
+**Kamala Harris’s Tan Suit Surprise**\
+`The Democratic candidate for president made an unexpected appearance on Day 1 of the party convention.`\
+https://nytimes.com/2024/08/20/style/kamala-harris-dnc-tan-suit.html
+
 **Tracking Tropical Depression Jongdari**\
 `See the likely path and wind arrival times for Jongdari.`\
 https://nytimes.com/interactive/2024/08/20/weather/jongdari-map-path-tracker.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/08/20/world/israel-iran-hamas-gaza-war/the-biden-a
 **Leigh Diffey on his new role as NBC's NASCAR voice, his Olympics experience and more**\
 `Leigh Diffey talks about taking over NBC's NASCAR Cup Series play-by-play role, his experience in Paris, his 100-meter final call and more.`\
 https://nytimes.com/athletic/5710769/2024/08/20/leigh-diffey-nascar-nbc-broadcaster-paris-olympics/
-
-**Weah suffers hamstring injury in Juventus win**\
-`USMNT forward Tim Weah faces a period on the sidelines after picking up a hamstring injury during Juventus&#8217; 3-0 victory over Como on Monday evening.`\
-https://nytimes.com/athletic/5711527/2024/08/20/tim-weah-hamstring-juventus/
-
-**Everton turn down offer for Maupay from Marseille**\
-`Everton have turned down a bid from Marseille to sign Neal Maupay.`\
-https://nytimes.com/athletic/5711554/2024/08/20/everton-transfers-neal-maupay-marseille/
 
