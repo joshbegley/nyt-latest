@@ -1,3 +1,7 @@
+**Liverpool close to deal for Valencia goalkeeper Mamardashvili**\
+`Liverpool are closing in on a deal to sign goalkeeper Giorgi Mamardashvili from Valencia.`\
+https://nytimes.com/athletic/5700784/2024/08/20/liverpool-mamardashvili-transfer-close/
+
 **For Democrats, a Big Cast Change Plays Out Onstage**\
 `The first night of the convention introduced the party’s new protagonist, and gave the old one a curtain call.`\
 https://nytimes.com/2024/08/20/arts/television/dnc-biden-harris.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/style/kamala-harris-dnc-tan-suit.html
 **Tracking Tropical Depression Jongdari**\
 `See the likely path and wind arrival times for Jongdari.`\
 https://nytimes.com/interactive/2024/08/20/weather/jongdari-map-path-tracker.html
-
-**The Athletic FC: Introducing the youngest-ever EPL coach; City favourites in Gundogan chase**\
-`The Athletic FC  is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox`\
-https://nytimes.com/athletic/5711448/2024/08/20/transfers-gundogan-ramsdale-hurzeler-brighton/
 
