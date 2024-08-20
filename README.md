@@ -1,3 +1,7 @@
+**ESPN to name Andrew Greenberg host of 'Sunday NFL Countdown'**\
+`Greenberg, 57, receives the job over Laura Rutledge, an up-and-coming star at the network.`\
+https://nytimes.com/athletic/5712211/2024/08/20/mike-greenberg-espn-nfl-countdown/
+
 **How good is Manuel Ugarte and is he right for Manchester United?**\
 `Ugarte is a defensive midfielder who prides himself in how he defends, combining high athleticism with defensive intensity`\
 https://nytimes.com/athletic/5711441/2024/08/20/manuel-ugarte-manchester-united-psg/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5712086/2024/08/20/scoop-city-fantasy-football-targ
 **Rocket Test on Remote Scottish Island Ends in Flames**\
 `As European countries push to develop more independent space capabilities, a test at one new site produced an explosion.`\
 https://nytimes.com/2024/08/20/world/europe/rocket-test-on-remote-scottish-island-ends-in-flames.html
-
-**Eric A Ulrich**\
-`News about Eric A Ulrich. Commentary and archival information about Eric A Ulrich from The New York Times.`\
-https://nytimes.com/topic/eric-a-ulrich
 
