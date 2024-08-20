@@ -1,3 +1,15 @@
+**25 Years Ago, a Gay Student Sought Support. His School Turned to Tim Walz.**\
+`One student’s turbulent coming-out journey in the 1990s put Mr. Walz, then a football coach, at the center of gay rights in a Minnesota high school.`\
+https://nytimes.com/2024/08/20/us/tim-walz-gay-students.html
+
+**Week 3 of Our August Grilling Challenge: Grill Beyond the Expected**\
+`Because you can’t subsist on hot dogs alone. Plus: a really great deal on Wirecutter’s favorite olive oil.`\
+https://nytimes.com/2024/08/20/dining/week-3-of-our-august-grilling-challenge-grill-beyond-the-expected.html
+
+**Want to See a Play About Gwyneth Paltrow’s Ski Trial? How About 2?**\
+`Multiple shows at the Edinburgh Fringe make camp fun out of the 2023 civil action that spurred a thousand memes — and one of them is a triumph.`\
+https://nytimes.com/2024/08/20/theater/gwyneth-paltrow-ski-trial-edinburgh-fringe.html
+
 **Disciplinary Charges Against Top New York Police Official Are Dismissed**\
 `An oversight board had recommended that Jeffrey Maddrey, the chief of department, be punished for interfering with an arrest. Commissioner Edward Caban dismissed the case.`\
 https://nytimes.com/2024/08/20/nyregion/jeffrey-maddrey-disciplinary-charges-dismissed.html
