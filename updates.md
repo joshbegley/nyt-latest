@@ -1,3 +1,11 @@
+**The secretary of state will press Hamas leadership through intermediaries to continue talks.**\
+`By Robert Jimison`\
+https://nytimes.com/live/2024/08/20/world/israel-iran-hamas-gaza-war/the-secretary-of-state-will-press-hamas-leadership-through-intermediaries-to-continue-talks
+
+**Search Resumes for Missing Passengers of Yacht That Sank Off Sicily**\
+`Divers have been searching the hull of the Bayesian for passengers including the British entrepreneur Mike Lynch. Witnesses said it was hit by a waterspout during a sudden storm.`\
+https://nytimes.com/2024/08/20/world/europe/italy-yacht-palermo-search.html
+
 **A Swiss Dilemma: How to Get Old Bombs Out of Deep Lakes?**\
 `Switzerland is offering $58,000 in prize money for ideas to remove munitions from the depths, in case they start polluting. The catch: The cure can’t be worse than the problem.`\
 https://nytimes.com/2024/08/20/world/europe/switzerland-lakes-munitions-bombs-prize.html
