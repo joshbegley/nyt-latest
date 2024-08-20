@@ -1,3 +1,7 @@
+**Here’s what to watch today in Chicago.**\
+`By Jonathan Weisman`\
+https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/heres-what-to-watch-today-in-chicago
+
 **Villa winger Iling-Junior exploring loan options**\
 `Aston Villa winger Samuel Iling-Junior is exploring potential loan options ahead of the transfer window deadline.`\
 https://nytimes.com/athletic/5711323/2024/08/20/aston-villa-samuel-iling-junior-loan-transfer/
