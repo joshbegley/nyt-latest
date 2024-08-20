@@ -1,3 +1,11 @@
+**How Liverpool fixed duel difficulties at Ipswich (and what it told us about Slot)**\
+`Dutch coach thought his side lost too many individual battles and was not shy in intervening`\
+https://nytimes.com/athletic/5711421/2024/08/20/liverpool-duels-ipswich-arne-slot/
+
+**Kenyan Accused of Serial Killings Escapes From Police Custody**\
+`Collins Jumaisi Khalusha, who is accused of killing dozens of women, and 12 other people were able to break free, the police said.`\
+https://nytimes.com/2024/08/20/world/africa/kenya-serial-killer-suspect-escape.html
+
 **The Biden administration expresses optimism, but the two sides say major disagreements remain unresolved.**\
 `By Ronen Bergman, Adam Rasgon and Aaron Boxerman`\
 https://nytimes.com/live/2024/08/20/world/israel-iran-hamas-gaza-war/the-biden-administration-expresses-optimism-but-the-two-sides-say-major-disagreements-remain-unresolved
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5711313/2024/08/20/lamine-yamal-barcelona-la-liga-n
 **Zelensky Says Push Into Russia Shows the West’s Red Lines Are ‘Naïve’**\
 `President Volodymyr Zelensky of Ukraine seized on the incursion’s success to press allies to lift a longtime restriction: the use of Western-supplied long-range weapons against Russia.`\
 https://nytimes.com/2024/08/20/world/europe/ukraine-russia-war-incursion-zelensky.html
-
-**Alaska Airlines’ Acquisition of Hawaiian Clears Key Antitrust Review**\
-`The airlines said the Justice Department had declined to challenge the merger in court.`\
-https://nytimes.com/2024/08/20/business/alaska-airlines-hawaiian-merger.html
-
-**Broncos stock report: High marks for goal-line scheme; questions about rookie WR**\
-`The Broncos' short red zone offense, a major pain point last season, continues to show encouraging signs of a turnaround.`\
-https://nytimes.com/athletic/5709502/2024/08/20/broncos-stock-report-preseason/
 
