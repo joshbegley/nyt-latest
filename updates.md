@@ -1,3 +1,7 @@
+**Debunking fantasy football narratives tied to rookies, explosive plays, depth of target and more**\
+`Michael Salfino identifies the false narratives currently pervading fantasy football, including a couple regarding NFL rookies.`\
+https://nytimes.com/athletic/5712580/2024/08/20/fantasy-football-false-narratives-2024/
+
 **Can Democrats Make the Case to Climate Voters?**\
 `In another year of record-breaking temperatures, Democrats are faced with the challenge of making climate change resonate with voters.`\
 https://nytimes.com/2024/08/20/climate/kamala-harris-climate-change-politics.html
