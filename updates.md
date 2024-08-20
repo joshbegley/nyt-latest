@@ -1,3 +1,11 @@
+**Broncos stock report: High marks for goal-line scheme; questions about rookie WR**\
+`The Broncos' short red zone offense, a major pain point last season, continues to show encouraging signs of a turnaround.`\
+https://nytimes.com/athletic/5709502/2024/08/20/broncos-stock-report-preseason/
+
+**Tafur: Why the Raiders shifted gears and went with Gardner Minshew as starting QB**\
+`Minshew's scrambling ability is a better fit for Luke Getsy's offense, especially with O-line questions and a tough opening schedule.`\
+https://nytimes.com/athletic/5710729/2024/08/20/gardner-minshew-raiders-starting-qb/
+
 **The Pulse: Are the Chiefs inevitable?**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5711074/2024/08/20/chiefs-afc-odds-the-pulse/

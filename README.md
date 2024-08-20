@@ -26,7 +26,7 @@ https://nytimes.com/2024/08/20/briefing/joe-biden-dnc-legacy.html
 `Manchester City are frontrunners to re-sign Ilkay Gundogan.`\
 https://nytimes.com/athletic/5709515/2024/08/20/man-city-ilkay-gundogan-transfer/
 
-**When will the USWNT Olympic gold medallists be back in action?**\
+**When will the USWNT Olympic gold medalists be back in action?**\
 `The rules vary for Emma Hayes' players but the answer is sooner than you think…`\
 https://nytimes.com/athletic/5711297/2024/08/20/uswnt-gold-olympics-nwsl/
 
