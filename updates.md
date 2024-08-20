@@ -1,3 +1,11 @@
+**Bayern's Stanisic out with knee ligament injury**\
+`Bayern Munich defender Josip Stansic will be unavailable for “several weeks” after he injured the collateral ligament in his right knee.`\
+https://nytimes.com/athletic/5711439/2024/08/20/bayern-munich-stanisic-injury/
+
+**Cowboys' second-year kicker Brandon Aubrey performing on a 'different level'**\
+`A year ago, Brandon Aubrey was just trying to make the team. He nailed a 66-yarder Saturday and is one of the NFL's top kickers.`\
+https://nytimes.com/athletic/5711253/2024/08/20/dallas-cowboys-brandon-aubrey-all-pro-kicker/
+
 **How Biden Changed His Party**\
 `We explore three ways the president has shaped the Democratic Party.`\
 https://nytimes.com/2024/08/20/briefing/joe-biden-dnc-legacy.html
