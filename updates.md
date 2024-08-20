@@ -1,3 +1,7 @@
+**Notre Dame camp lessons: Riley Leonard earned belief, but can offense catch up to defense?**\
+`What we learned about Notre Dame's biggest strengths (DBs), biggest questions (O-line) and more in preseason camp.`\
+https://nytimes.com/athletic/5711483/2024/08/20/notre-dame-football-captains-preseason-camp/
+
 **Lamine Yamal's next steps at Barcelona - and the new challenges he's already faced**\
 `The 17-year-old returned from Euro 2024 a national hero. But circumstances beyond his control made this season a difficult start`\
 https://nytimes.com/athletic/5711313/2024/08/20/lamine-yamal-barcelona-la-liga-new-season/
