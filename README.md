@@ -1,3 +1,15 @@
+**Who’s Missing From Sunken Yacht? Tech Mogul Mike Lynch and 5 Others.**\
+`Mr. Lynch, the former chief executive of the software firm Autonomy, who was acquitted on fraud charges in June, was with friends and family when the yacht went down in a severe storm.`\
+https://nytimes.com/2024/08/20/business/dealbook/sicily-yacht-sinks-missing-passengers.html
+
+**Minyon Moore Helped Harris Rise. Now She’s Leading Her Convention.**\
+`The longtime Democratic operative’s role overseeing the convention has required her to step out from behind the scenes.`\
+https://nytimes.com/2024/08/20/us/politics/minyon-moore-kamala-harris-dnc.html
+
+**Why the Patrik Laine trade feels familiar but represents a shift for the Canadiens**\
+`In Laine, the Canadiens not only acquired an undervalued asset, but also a player who could help them reach their modest goals.  `\
+https://nytimes.com/athletic/5711237/2024/08/20/patrik-laine-canadiens-blue-jackets-trade/
+
 **Europe Slashes Tariffs for Tesla Vehicles Made in China**\
 `The European Commission will charge the U.S. automaker an additional duty of 9 percent, much lower than tariffs levied on its Chinese peers for electric vehicles imported to Europe.`\
 https://nytimes.com/2024/08/20/business/tesla-electric-vehicle-tariffs-china.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/20/arts/television/dnc-biden-harris.html
 **Greenpeace Tries a Novel Tactic in Lawsuit Over Dakota Access Pipeline**\
 `The environmental group, which is being sued by the pipeline company in North Dakota, threatened to use new European rules to try to limit potential damages.`\
 https://nytimes.com/2024/08/20/climate/greenpeace-dakota-access-lawsuit-slapp.html
-
-**Broberg, Holloway going to Blues; Oilers don't match offer sheets**\
-`The Oilers will receive a second-round pick as compensation for Philip Broberg and a third-round pick for Dylan Holloway.`\
-https://nytimes.com/athletic/5706821/2024/08/20/philip-broberg-dylan-holloway-oilers-blues-offer-sheets/
-
-**Until Saturday: Meet team No. 134, plus let's discuss fall weddings**\
-`Welcome to Until Saturday, the five-star college football newsletter: Get to know new FBS member Kennesaw State.`\
-https://nytimes.com/athletic/5710139/2024/08/20/college-football-rankings-fall-weddings-until-saturday/
-
-**Miller Moss named USC starting QB. Plus, Trojans' transfer Malachi Nelson beat for Boise State job**\
-`Do we put too much stock into USC quarterback transfers that don't necessarily see success at their new programs?`\
-https://nytimes.com/athletic/5711733/2024/08/20/miller-moss-usc-college-football-quarterback/
 
