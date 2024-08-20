@@ -1,3 +1,11 @@
+**How good is Manuel Ugarte and is he right for Manchester United?**\
+`Ugarte is a defensive midfielder who prides himself in how he defends, combining high athleticism with defensive intensity`\
+https://nytimes.com/athletic/5711441/2024/08/20/manuel-ugarte-manchester-united-psg/
+
+**Maui Invitational 2024 bracket includes UConn, UNC, Iowa State as event returns to main site**\
+`The tournament returns to Lahaina this November after wildfires last year forced the tournament’s relocation to Honolulu.`\
+https://nytimes.com/athletic/5712200/2024/08/20/maui-invitational-college-basketball-bracket-location/
+
 **Cubs drop Héctor Neris and promote Jack Neely from Triple A as focus shifts toward the future**\
 `Neris delivered for the Cubs in many ways, but it was a high-wire act. The team now wants to get an up-close look at Neely.`\
 https://nytimes.com/athletic/5712183/2024/08/20/cubs-hector-neris-jack-neely/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/20/world/europe/rocket-test-on-remote-scottish-islan
 **Eric A Ulrich**\
 `News about Eric A Ulrich. Commentary and archival information about Eric A Ulrich from The New York Times.`\
 https://nytimes.com/topic/eric-a-ulrich
-
-**How a Law That Shields Big Tech Is Now Being Used Against It**\
-`A Massachusetts professor has filed a lawsuit against Meta using a novel interpretation of Section 230, a law known primarily for shielding social media companies from liability.`\
-https://nytimes.com/2024/08/20/technology/meta-section-230-lawsuit.html
-
-**Browns willing to engage in trade talks involving DTR: Source**\
-`Thompson-Robinson has been competing with Tyler Huntley for Cleveland's No. 3 QB job behind Deshaun Watson and Jameis Winston. `\
-https://nytimes.com/athletic/5712064/2024/08/20/browns-dorian-thompson-robinson-trade/
 

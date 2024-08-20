@@ -1,3 +1,11 @@
+**How good is Manuel Ugarte and is he right for Manchester United?**\
+`Ugarte is a defensive midfielder who prides himself in how he defends, combining high athleticism with defensive intensity`\
+https://nytimes.com/athletic/5711441/2024/08/20/manuel-ugarte-manchester-united-psg/
+
+**Maui Invitational 2024 bracket includes UConn, UNC, Iowa State as event returns to main site**\
+`The tournament returns to Lahaina this November after wildfires last year forced the tournament’s relocation to Honolulu.`\
+https://nytimes.com/athletic/5712200/2024/08/20/maui-invitational-college-basketball-bracket-location/
+
 **Cubs drop Héctor Neris and promote Jack Neely from Triple A as focus shifts toward the future**\
 `Neris delivered for the Cubs in many ways, but it was a high-wire act. The team now wants to get an up-close look at Neely.`\
 https://nytimes.com/athletic/5712183/2024/08/20/cubs-hector-neris-jack-neely/
