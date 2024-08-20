@@ -1,3 +1,7 @@
+**Fantasy football by the numbers: 25 need-to-know metrics for the 2024 season**\
+`KC Joyner shares 25 statistics from this past NFL season that can help inform fantasy football managers for the upcoming 2024 campaign.`\
+https://nytimes.com/athletic/5710237/2024/08/20/fantasy-football-2024-25-need-to-know-stats/
+
 **The Democrats Throw Joe Biden a Goodbye Party**\
 `Night One of the D.N.C. saw an extended ovation for the president and a roster of star speakers.`\
 https://nytimes.com/2024/08/20/podcasts/the-democrats-throw-joe-biden-a-goodbye-party.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5711323/2024/08/20/aston-villa-samuel-iling-junior-
 **Ohio State 'knows what's at stake': Beat Michigan, win the new College Football Playoff**\
 `Most of a loaded senior class returned to Ohio State committed to ending a losing streak against Michigan and winning the CFP.`\
 https://nytimes.com/athletic/5706286/2024/08/20/ohio-state-college-football-playoff-preview-predictions/
-
-**Typhoon Jongdari Nears South Korea, Bringing Threat of Flooding**\
-`The storm has caused flight delays in the south of the country. It is forecast to skirt the west coast before making landfall on Wednesday near Seoul.`\
-https://nytimes.com/2024/08/20/world/asia/south-korea-typhoon-jongdari.html
 

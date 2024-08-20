@@ -1,3 +1,7 @@
+**Fantasy football by the numbers: 25 need-to-know metrics for the 2024 season**\
+`KC Joyner shares 25 statistics from this past NFL season that can help inform fantasy football managers for the upcoming 2024 campaign.`\
+https://nytimes.com/athletic/5710237/2024/08/20/fantasy-football-2024-25-need-to-know-stats/
+
 **The Democrats Throw Joe Biden a Goodbye Party**\
 `Night One of the D.N.C. saw an extended ovation for the president and a roster of star speakers.`\
 https://nytimes.com/2024/08/20/podcasts/the-democrats-throw-joe-biden-a-goodbye-party.html
