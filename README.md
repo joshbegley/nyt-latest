@@ -1,3 +1,11 @@
+**Broncos stock report: High marks for goal-line scheme; questions about rookie WR**\
+`The Broncos' short red zone offense, a major pain point last season, continues to show encouraging signs of a turnaround.`\
+https://nytimes.com/athletic/5709502/2024/08/20/broncos-stock-report-preseason/
+
+**Tafur: Why the Raiders shifted gears and went with Gardner Minshew as starting QB**\
+`Minshew's scrambling ability is a better fit for Luke Getsy's offense, especially with O-line questions and a tough opening schedule.`\
+https://nytimes.com/athletic/5710729/2024/08/20/gardner-minshew-raiders-starting-qb/
+
 **The Pulse: Are the Chiefs inevitable?**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5711074/2024/08/20/chiefs-afc-odds-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5710237/2024/08/20/fantasy-football-2024-25-need-to
 **The Democrats Throw Joe Biden a Goodbye Party**\
 `Night One of the D.N.C. saw an extended ovation for the president and a roster of star speakers.`\
 https://nytimes.com/2024/08/20/podcasts/the-democrats-throw-joe-biden-a-goodbye-party.html
-
-**ACC football tiers: Who can compete for a College Football Playoff spot?**\
-`It's a new era for the ACC with Cal, Stanford and SMU joining. Here's how we're predicting ACC football in 2024 as the CFP expands to 12.`\
-https://nytimes.com/athletic/5699400/2024/08/20/acc-football-tiers-rankings-cfp-projections/
-
-**The surprisingly difficult search for David Justice in two boxes of '90s baseball cards**\
-`Finding one David Justice baseball card was more time consuming than our writer thought, but it produced a fun look back at '90s names`\
-https://nytimes.com/athletic/5673480/2024/08/20/david-justice-baseball-cards/
 
