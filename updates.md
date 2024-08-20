@@ -1,3 +1,7 @@
+**How Biden Changed His Party**\
+`We explore three ways the president has shaped the Democratic Party.`\
+https://nytimes.com/2024/08/20/briefing/joe-biden-dnc-legacy.html
+
 **Man City frontrunners to sign Gundogan from Barcelona**\
 `Manchester City are frontrunners to re-sign Ilkay Gundogan.`\
 https://nytimes.com/athletic/5709515/2024/08/20/man-city-ilkay-gundogan-transfer/
