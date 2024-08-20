@@ -1,3 +1,11 @@
+**Read the Final Report on the Lewiston, Maine, Mass Shootings**\
+`An independent commission investigating the October 2023 shooting emphasized failures by both the local police and the Army Reserve.`\
+https://nytimes.com/interactive/2024/08/20/us/final-report-of-the-independent-commission-to-investigate-the-facts-of-the-tragedy-in-lewiston.html
+
+**John A Koskinen**\
+`News about John A Koskinen. Commentary and archival information about John A Koskinen from The New York Times.`\
+https://nytimes.com/topic/john-a-koskinen
+
 **Kennedy’s Running Mate Suggests They May Drop Out of the Presidential Race and Endorse Trump**\
 `In an interview, Nicole Shanahan appeared to concede that their independent presidential bid was not likely to end in victory.`\
 https://nytimes.com/2024/08/20/us/politics/robert-kennedy-campaign-future.html
