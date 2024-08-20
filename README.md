@@ -1,3 +1,15 @@
+**James A Baker III**\
+`News about James A Baker III. Commentary and archival information about James A Baker III from The New York Times.`\
+https://nytimes.com/topic/james-a-baker-iii
+
+**Gallagher flying to Spain to complete Atletico Madrid move**\
+`Chelsea midfielder Conor Gallagher is scheduled to fly to Spain on Tuesday evening in order to complete his move to Atletico Madrid.`\
+https://nytimes.com/athletic/5710130/2024/08/20/conor-gallagher-atletico-deal/
+
+**What to Expect at the Democratic National Convention in Chicago**\
+`On Day 2, Barack Obama, the nation’s first Black president, is expected to deliver soaring oratory as he implores the United States to elect its first Black female president.`\
+https://nytimes.com/2024/08/20/us/politics/what-to-expect-dnc-day-2-chicago.html
+
 **Scoop City: Fantasy football targets, players to avoid**\
 `A look at 11 fantasy football targets and players to avoid for the 2024 season`\
 https://nytimes.com/athletic/5712086/2024/08/20/scoop-city-fantasy-football-targets-players-to-avoid/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5711101/2024/08/20/seahawks-offensive-line-connor-w
 **Risking His Own Extinction to Rescue the Rarest of Flowers**\
 `Carlos Magdalena, whose botanical adventures have shades of Indiana Jones, was a driving force in saving the world’s smallest water lily and finding the largest one. He has been called the “plant messiah.”`\
 https://nytimes.com/2024/08/20/world/europe/carlos-magdalena-flowers-royal-botanic-gardens-kew.html
-
-**Five Weeknight Chicken Recipes That I Cook Again and Again**\
-`Several are made in one pan, most should be eaten with rice and all are fantastic.`\
-https://nytimes.com/2024/08/20/dining/five-weeknight-chicken-dinner-recipes.html
-
-**‘Reservation Dogs’ Showed D’Pharaoh Woon-A-Tai What Is Possible**\
-`The actor received his first Emmy nomination for his performance on the acclaimed Native comedy. In an interview, he talks about breaking down stereotypes, and possibly reviving his character.`\
-https://nytimes.com/2024/08/20/arts/television/reservation-dogs-dpharaoh-woon-a-tai.html
-
-**Phil Donahue’s Clothes Kept the Focus on His Subjects**\
-`The talk show host made a career of exposing polarizing topics while dressed in a relatively neutral wardrobe.`\
-https://nytimes.com/2024/08/20/style/phil-donahue-clothes.html
 
