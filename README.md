@@ -1,3 +1,7 @@
+**A Swiss Dilemma: How to Get Old Bombs Out of Deep Lakes?**\
+`Switzerland is offering $58,000 in prize money for ideas to remove munitions from the depths, in case they start polluting. The catch: The cure can’t be worse than the problem.`\
+https://nytimes.com/2024/08/20/world/europe/switzerland-lakes-munitions-bombs-prize.html
+
 **Blinken Pushes for Gaza Cease-Fire, With Stops in Egypt and Qatar**\
 `After meetings in Israel, Secretary of State Antony J. Blinken will press Hamas leadership through intermediaries to continue talks on a deal.`\
 https://nytimes.com/live/2024/08/20/world/israel-iran-hamas-gaza-war
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/crosswords/spelling-bee-forum.html
 **Mississippi’s Freedom Trail Will Now Extend All the Way to New Jersey**\
 `As Democrats rally in Chicago around Kamala Harris, civil rights veterans will mark the 60th anniversary of history-changing testimony at a past convention in Atlantic City, N.J.`\
 https://nytimes.com/2024/08/20/nyregion/mississippi-freedom-trail-marker-nj-dnc.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/08/20/crosswords/spelling-bee-forum.html
 
