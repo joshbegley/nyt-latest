@@ -1,3 +1,11 @@
+**No More Butter Chicken: Where Indian Food Finally Gets to Be Itself**\
+`Our interim critic reviews Bungalow in the East Village, where the celebrity chef Vikas Khanna’s variations on regional dishes blaze new paths without cutting corners.`\
+https://nytimes.com/2024/08/20/dining/restaurant-review-bungalow-east-village.html
+
+**Beyond Restoring Roe: Democrats See Moment to ‘Reimagine’ Abortion Rights**\
+`The spotlight at the convention is a dramatic shift from just four years ago, another sign of how radically the politics of abortion have changed, and how much the party is relying on the issue to rally voters.`\
+https://nytimes.com/2024/08/20/us/abortion-rights-harris-dnc.html
+
 **Book excerpt: 'Inside Fantasy Football: America's Favorite Non-Contact Sport'**\
 `Read an excerpt from Peter Funt's new book, "Inside Fantasy Football: America's Favorite Non-Contact Sport," featuring Jake Ciely.`\
 https://nytimes.com/athletic/5705481/2024/08/20/book-excerpt-inside-fantasy-football-americas-favorite-non-contact-sport/

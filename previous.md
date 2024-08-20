@@ -1,3 +1,11 @@
+**No More Butter Chicken: Where Indian Food Finally Gets to Be Itself**\
+`Our interim critic reviews Bungalow in the East Village, where the celebrity chef Vikas Khanna’s variations on regional dishes blaze new paths without cutting corners.`\
+https://nytimes.com/2024/08/20/dining/restaurant-review-bungalow-east-village.html
+
+**Beyond Restoring Roe: Democrats See Moment to ‘Reimagine’ Abortion Rights**\
+`The spotlight at the convention is a dramatic shift from just four years ago, another sign of how radically the politics of abortion have changed, and how much the party is relying on the issue to rally voters.`\
+https://nytimes.com/2024/08/20/us/abortion-rights-harris-dnc.html
+
 **Book excerpt: 'Inside Fantasy Football: America's Favorite Non-Contact Sport'**\
 `Read an excerpt from Peter Funt's new book, "Inside Fantasy Football: America's Favorite Non-Contact Sport," featuring Jake Ciely.`\
 https://nytimes.com/athletic/5705481/2024/08/20/book-excerpt-inside-fantasy-football-americas-favorite-non-contact-sport/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5712580/2024/08/20/fantasy-football-false-narrative
 **Can Democrats Make the Case to Climate Voters?**\
 `In another year of record-breaking temperatures, Democrats are faced with the challenge of making climate change resonate with voters.`\
 https://nytimes.com/2024/08/20/climate/kamala-harris-climate-change-politics.html
-
-**Orford agrees new five-year West Ham contract**\
-`West Ham United midfielder Lewis Orford has agreed a new five-year contract.`\
-https://nytimes.com/athletic/5712617/2024/08/20/lewis-orford-west-ham-contract/
-
-**Dzhokhar A Tsarnaev**\
-`News about Dzhokhar A Tsarnaev. Commentary and archival information about Dzhokhar A Tsarnaev from The New York Times.`\
-https://nytimes.com/topic/dzhokhar-a-tsarnaev
 
