@@ -1,6 +1,6 @@
 **Ana Navarro and Other Republican Trump Critics Appearing on D.N.C. Night 2**\
 `Ms. Navarro, the Republican political commentator, is serving as a host for the evening, while an ex-aide to Melania Trump has a speaking slot.`\
-https://nytimes.com/2024/08/20/us/politics/ana-navarro-and-other-republican-trump-critics-appearing-on-dnc-night-2.html
+https://nytimes.com/2024/08/20/us/politics/ana-navarro-stephanie-grishamn-trump-dnc.html
 
 **Myron E. Ullman III, Executive Who Remade Macy’s and J.C. Penney, Dies at 77**\
 `As a leader behind many of the world’s best-known brands, he exuded operational know-how. He also displayed a rare humility, which helped drive his success.`\
