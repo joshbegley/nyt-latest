@@ -1,3 +1,7 @@
+**After 62 Years, Brooklyn Says Goodbye to a Local Hardware Store**\
+`To mourn the closure of Crest Hardware, a beloved family business in Williamsburg, fans of the store held a wake and staged a second line march.`\
+https://nytimes.com/2024/08/20/style/after-62-years-brooklyn-says-goodbye-to-a-local-hardware-store.html
+
 **Bengals, Joe Burrow look ready for season in joint practice against Colts**\
 `The quarterback showed no signs of last year's injuries while clicking with Tee Higgins and Mike Gesicki Tuesday.`\
 https://nytimes.com/athletic/5713148/2024/08/20/bengals-joe-burrow-joint-practice-colts/
@@ -33,8 +37,4 @@ https://nytimes.com/topic/dennis-a-muilenburg
 **In a speech meant to focus on crime, Donald Trump meanders off script.**\
 `By Michael Gold`\
 https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/in-a-speech-meant-to-focus-on-crime-donald-trump-meanders-off-script
-
-**Eating Meat Is Linked With Diabetes Risk, New Studies Suggest**\
-`The research builds on previous findings connecting red and processed meats with Type 2 diabetes.`\
-https://nytimes.com/2024/08/20/well/eat/red-meat-diabetes-study.html
 
