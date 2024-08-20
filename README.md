@@ -1,3 +1,7 @@
+**Michigan bolsters 2025 class with top-100 WR Andrew Marsh**\
+`After a quiet start to the 2025 cycle, Michigan has climbed to No. 12 in the composite rankings and No. 3 in the Big Ten.`\
+https://nytimes.com/athletic/5713222/2024/08/20/michigan-recruiting-andrew-marsh/
+
 **Why 49ers rookie guard Dominick Puni is impressing even Fred Warner**\
 `The surge from Puni has come at a good time for the 49ers, who are fighting many interior offensive line injuries.`\
 https://nytimes.com/athletic/5713059/2024/08/20/49ers-dominick-puni-fred-warner/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/business/myron-e-ullman-iii-dead.html
 **Iranian Military Official Hints Strike on Israel May Be Delayed**\
 `The comments from an Islamic Revolutionary Guards Corps leader suggested that a widely feared regional conflict might be averted, at least for the moment.`\
 https://nytimes.com/2024/08/20/world/middleeast/iran-israel-conflict.html
-
-**At the D.N.C., Chicago’s Trump Tower is a Republican enclave.**\
-`Trump cam`\
-https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/dnc-trump-tower
 

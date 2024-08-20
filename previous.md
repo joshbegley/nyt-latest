@@ -1,3 +1,11 @@
+**Why 49ers rookie guard Dominick Puni is impressing even Fred Warner**\
+`The surge from Puni has come at a good time for the 49ers, who are fighting many interior offensive line injuries.`\
+https://nytimes.com/athletic/5713059/2024/08/20/49ers-dominick-puni-fred-warner/
+
+**Jeffrey A. Rosen**\
+`News about Jeffrey A. Rosen. Commentary and archival information about Jeffrey A. Rosen from The New York Times.`\
+https://nytimes.com/topic/jeffrey-a-rosen
+
 **Only in America? U.S. leaders love to tout humble origins that aren’t so exceptional.**\
 `By Annie Karni`\
 https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/only-in-america-us-leaders-love-to-tout-humble-origins-that-arent-so-exceptional
@@ -15,7 +23,7 @@ https://nytimes.com/athletic/5713148/2024/08/20/bengals-joe-burrow-joint-practic
 https://nytimes.com/2024/08/20/us/colorado-missing-woman-spiritual-quest.html
 
 **Ana Navarro and Other Republican Trump Critics Appearing on D.N.C. Night 2**\
-`Ms. Navarro, the Republican political commentator, is serving as a host for the evening, while an ex-aide to Melania Trump has a speaking slot.`\
+`A White House press secretary under Mr. Trump began the Republican attacks on Trump, while Ms. Navarro, the Republican political commentator, is serving as a host for the evening.`\
 https://nytimes.com/2024/08/20/us/politics/ana-navarro-stephanie-grishamn-trump-dnc.html
 
 **Myron E. Ullman III, Executive Who Remade Macy’s and J.C. Penney, Dies at 77**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/20/world/middleeast/iran-israel-conflict.html
 **At the D.N.C., Chicago’s Trump Tower is a Republican enclave.**\
 `Trump cam`\
 https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/dnc-trump-tower
-
-**How to Handle the Next Campus Protest**\
-`What a university president might tell students about campus politics and the aims of education.`\
-https://nytimes.com/2024/08/20/opinion/college-protests-gaza-israel.html
-
-**Dennis A. Muilenburg**\
-`News about Dennis A. Muilenburg. Commentary and archival information about Dennis A. Muilenburg from The New York Times.`\
-https://nytimes.com/topic/dennis-a-muilenburg
 
