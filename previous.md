@@ -1,3 +1,7 @@
+**“Donald Trump wants to put our 1787 constitution through his Project 2025 paper shredder.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/donald-trump-wants-to-put-our-1787-constitution-through-his-project-2025-paper-shredder
+
 **Hillary Clinton Finally Passes the Torch**\
 `“Progress is possible,” Clinton said, “but not guaranteed.”`\
 https://nytimes.com/live/2024/08/13/opinion/thepoint/hillary-clinton-dnc-speech
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/13/opinion/thepoint/trump-threat-democratic-exu
 **“Trump talks big about bringing back manufacturing jobs, but you know who actually did it? President Biden and Vice President Kamala Harris.”**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/trump-talks-big-about-bringing-back-manufacturing-jobs-but-you-know-who-actually-did-it-president-biden-and-vice-president-kamal
-
-**At Democratic Convention, Hochul Says Trump Lacks ‘New York Values’**\
-`In one of the most high-profile speeches of her career, Gov. Kathy Hochul drew a contrast between the current and former presidents, telling attendees, “If you think you’re tired of Donald Trump, talk to a New Yorker.”`\
-https://nytimes.com/2024/08/19/nyregion/kathy-hochul-dnc-speech.html
 

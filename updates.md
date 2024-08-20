@@ -1,3 +1,7 @@
+**“Donald Trump wants to put our 1787 constitution through his Project 2025 paper shredder.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/donald-trump-wants-to-put-our-1787-constitution-through-his-project-2025-paper-shredder
+
 **Hillary Clinton Finally Passes the Torch**\
 `“Progress is possible,” Clinton said, “but not guaranteed.”`\
 https://nytimes.com/live/2024/08/13/opinion/thepoint/hillary-clinton-dnc-speech
