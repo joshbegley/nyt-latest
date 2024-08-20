@@ -1,3 +1,11 @@
+**Alabama, GM Courtney Morgan agree to new market-setting deal**\
+`Alabama and Morgan agreed to a new three-year deal that will pay him roughly $825,000 per year, a source briefed on the deal confirmed.`\
+https://nytimes.com/athletic/5711127/2024/08/19/alabama-courtney-morgan-contract-usc/
+
+**Blue Jays takeaways: Bowden Francis making statement; Kevin Gausman sets an example**\
+`Francis is making his case to be part of the rotation next season, taking home AL Player of the Week honors.`\
+https://nytimes.com/athletic/5711136/2024/08/19/blue-jays-takeaways-bowden-francis-kevin-gausman/
+
 **“Donald Trump wants to put our 1787 constitution through his Project 2025 paper shredder.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/donald-trump-wants-to-put-our-1787-constitution-through-his-project-2025-paper-shredder
