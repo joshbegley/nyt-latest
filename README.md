@@ -1,3 +1,7 @@
+**Biden’s Speech as Convention Begins**\
+`Readers react to his speech and offer advice for the Democrats. Also: G.O.P. After Trump; funding for maintenance; taxing tips; imperfect summer.`\
+https://nytimes.com/2024/08/20/opinion/letters/bidens-speech-convention.html
+
 **The Run-Up: Steve Kerr’s patriotism and a long clap goodbye for Biden.**\
 `By ‘The Run-Up’ Team`\
 https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/the-run-up-steve-kerrs-patriotism-and-a-long-clap-goodbye-for-biden
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/dining/sea-nyc-restaurant-news.html
 **Will Smael Mondon, Trevor Etienne be play in Georgia's opener?**\
 `Kirby Smart didn't announce if Smael Mondon and/or Trevor Etienne would play during Georgia's opener against Clemson.`\
 https://nytimes.com/athletic/5712453/2024/08/20/georgia-football-smael-mondon-trevor-etienne-kirby-smart/
-
-**Internet Slows to a Crawl in Pakistan, Stoking Fear of a Firewall**\
-`Disruptions have fueled claims from rights groups that the Pakistani authorities are introducing technology to surveil and control the country’s internet.`\
-https://nytimes.com/2024/08/20/world/asia/pakistan-internet-government-surveillance.html
 
