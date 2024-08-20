@@ -1,3 +1,11 @@
+**Inside the arena, Pro-Palestinian Democrats see progress, and more to be done.**\
+`A panel — sponsored by the Harris campaign — highlighted the toll of Israel’s war against Hamas in Gaza, marking the first time in decades that the party had given a platform to pro-Palestinian activists.`\
+https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/inside-the-arena-pro-palestinian-democrats-see-progress-and-more-to-be-done
+
+**“Trump wants to cut Social Security and Medicare.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/trump-wants-to-cut-social-security-and-medicare
+
 **Palace left playing risk and reward with Guehi and Andersen as deadline day looms**\
 `Bids have been lodged for both centre-halves this summer, leaving Palace contemplating when, if ever, represents the best time to sell`\
 https://nytimes.com/athletic/5708101/2024/08/20/crystal-palace-guehi-andersen-transfer/
