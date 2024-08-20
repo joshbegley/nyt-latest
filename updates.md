@@ -1,3 +1,7 @@
+**Clinton Rallies Democrats Behind Harris: ‘This Is When We Break Through’**\
+`Eight years after failing to smash the “highest and hardest glass ceiling” in politics, Hillary Clinton urged her party to make Kamala Harris the nation’s first female president.`\
+https://nytimes.com/2024/08/19/us/politics/hillary-clinton-dnc-harris.html
+
 **Alabama, GM Courtney Morgan agree to new market-setting deal**\
 `Alabama and Morgan agreed to a new three-year deal that will pay him roughly $825,000 per year, a source briefed on the deal confirmed.`\
 https://nytimes.com/athletic/5711127/2024/08/19/alabama-courtney-morgan-contract-usc/
