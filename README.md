@@ -1,3 +1,7 @@
+**How Biden Changed His Party**\
+`We explore three ways the president has shaped the Democratic Party.`\
+https://nytimes.com/2024/08/20/briefing/joe-biden-dnc-legacy.html
+
 **Man City frontrunners to sign Gundogan from Barcelona**\
 `Manchester City are frontrunners to re-sign Ilkay Gundogan.`\
 https://nytimes.com/athletic/5709515/2024/08/20/man-city-ilkay-gundogan-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/crosswords/connections-companion-437.html
 **Wordle Review No. 1,159**\
 `Scroll down for hints and conversation about the puzzle for August 21, 2024.`\
 https://nytimes.com/2024/08/20/crosswords/wordle-review-1159.html
-
-**Here’s what to watch today in Chicago.**\
-`By Jonathan Weisman`\
-https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/heres-what-to-watch-today-in-chicago
 
