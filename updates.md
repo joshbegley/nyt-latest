@@ -1,3 +1,11 @@
+**The Biden administration expresses optimism, but the two sides say major disagreements remain unresolved.**\
+`By Ronen Bergman, Adam Rasgon and Aaron Boxerman`\
+https://nytimes.com/live/2024/08/20/world/israel-iran-hamas-gaza-war/the-biden-administration-expresses-optimism-but-the-two-sides-say-major-disagreements-remain-unresolved
+
+**Leigh Diffey on his new role as NBC's NASCAR voice, his Olympics experience and more**\
+`Leigh Diffey talks about taking over NBC's NASCAR Cup Series play-by-play role, his experience in Paris, his 100-meter final call and more.`\
+https://nytimes.com/athletic/5710769/2024/08/20/leigh-diffey-nascar-nbc-broadcaster-paris-olympics/
+
 **Weah suffers hamstring injury in Juventus win**\
 `USMNT forward Tim Weah faces a period on the sidelines after picking up a hamstring injury during Juventus&#8217; 3-0 victory over Como on Monday evening.`\
 https://nytimes.com/athletic/5711527/2024/08/20/tim-weah-hamstring-juventus/

@@ -1,3 +1,11 @@
+**The Biden administration expresses optimism, but the two sides say major disagreements remain unresolved.**\
+`By Ronen Bergman, Adam Rasgon and Aaron Boxerman`\
+https://nytimes.com/live/2024/08/20/world/israel-iran-hamas-gaza-war/the-biden-administration-expresses-optimism-but-the-two-sides-say-major-disagreements-remain-unresolved
+
+**Leigh Diffey on his new role as NBC's NASCAR voice, his Olympics experience and more**\
+`Leigh Diffey talks about taking over NBC's NASCAR Cup Series play-by-play role, his experience in Paris, his 100-meter final call and more.`\
+https://nytimes.com/athletic/5710769/2024/08/20/leigh-diffey-nascar-nbc-broadcaster-paris-olympics/
+
 **Weah suffers hamstring injury in Juventus win**\
 `USMNT forward Tim Weah faces a period on the sidelines after picking up a hamstring injury during Juventus&#8217; 3-0 victory over Como on Monday evening.`\
 https://nytimes.com/athletic/5711527/2024/08/20/tim-weah-hamstring-juventus/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/20/business/alaska-airlines-hawaiian-merger.html
 **Broncos stock report: High marks for goal-line scheme; questions about rookie WR**\
 `The Broncos' short red zone offense, a major pain point last season, continues to show encouraging signs of a turnaround.`\
 https://nytimes.com/athletic/5709502/2024/08/20/broncos-stock-report-preseason/
-
-**Tafur: Why the Raiders shifted gears and went with Gardner Minshew as starting QB**\
-`Minshew's scrambling ability is a better fit for Luke Getsy's offense, especially with O-line questions and a tough opening schedule.`\
-https://nytimes.com/athletic/5710729/2024/08/20/gardner-minshew-raiders-starting-qb/
-
-**The Pulse: Are the Chiefs inevitable?**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5711074/2024/08/20/chiefs-afc-odds-the-pulse/
 
