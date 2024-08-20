@@ -1,3 +1,7 @@
+**Eric A Ulrich**\
+`News about Eric A Ulrich. Commentary and archival information about Eric A Ulrich from The New York Times.`\
+https://nytimes.com/topic/eric-a-ulrich
+
 **How a Law That Shields Big Tech Is Now Being Used Against It**\
 `A Massachusetts professor has filed a lawsuit against Meta using a novel interpretation of Section 230, a law known primarily for shielding social media companies from liability.`\
 https://nytimes.com/2024/08/20/technology/meta-section-230-lawsuit.html
