@@ -1,3 +1,7 @@
+**“JD Vance says women should stay in violent marriages and pregnancies resulting from rape are simply inconvenient.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/jd-vance-says-women-should-stay-in-violent-marriages-and-pregnancies-resulting-from-rape-are-simply-inconvenient
+
 **Mexico’s Judges Vote to Strike, Opposing Overhaul of Legal System**\
 `President Andrés Manuel López Obrador wants judges elected, not appointed. Court workers have already walked out to protest his plan, which critics call a power grab.`\
 https://nytimes.com/2024/08/19/world/americas/mexico-judges-strike.html

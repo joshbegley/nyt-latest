@@ -1,3 +1,7 @@
+**“JD Vance says women should stay in violent marriages and pregnancies resulting from rape are simply inconvenient.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/jd-vance-says-women-should-stay-in-violent-marriages-and-pregnancies-resulting-from-rape-are-simply-inconvenient
+
 **Mexico’s Judges Vote to Strike, Opposing Overhaul of Legal System**\
 `President Andrés Manuel López Obrador wants judges elected, not appointed. Court workers have already walked out to protest his plan, which critics call a power grab.`\
 https://nytimes.com/2024/08/19/world/americas/mexico-judges-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/13/opinion/thepoint/hillary-clinton-dnc-speech
 **Dodgers finally managing their way back to full strength — for now**\
 `Max Muncy's return from injury helped the Dodgers resemble something like the roster the front office envisioned.`\
 https://nytimes.com/athletic/5711119/2024/08/19/dodgers-max-muncy-injuries/
-
-**“Thanks to Joe Biden and Kamala Harris, we reopened our schools.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/thanks-to-joe-biden-and-kamala-harris-we-reopened-our-schools
 
