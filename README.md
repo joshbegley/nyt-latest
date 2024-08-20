@@ -1,3 +1,11 @@
+**A Look Back at Chicago Conventions of Yore**\
+`The city holds the record for hosting the most conventions and has been shaped by their outcomes.`\
+https://nytimes.com/2024/08/20/us/politics/chicago-presidential-conventions-photos.html
+
+**Behind the Obama-Harris Friendship: A Key Endorsement and a Kindred Spirit**\
+`Kamala Harris’s decision to support Barack Obama in a 2008 primary race dominated by Hillary Clinton was a political risk. It paid off, and the former president never forgot it.`\
+https://nytimes.com/2024/08/20/us/politics/harris-obama-friendship.html
+
 **NASCAR Michigan takeaways: Tyler Reddick's maturation, playoff picture and more**\
 `Tyler Reddick caps a string of recent great results with another win, the playoff picture is getting clearer, plus more from Michigan.`\
 https://nytimes.com/athletic/5712097/2024/08/20/nascar-michigan-tyler-reddick-playoffs-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5712145/2024/08/20/guardians-dodgers-injuries-franc
 **James A Baker III**\
 `News about James A Baker III. Commentary and archival information about James A Baker III from The New York Times.`\
 https://nytimes.com/topic/james-a-baker-iii
-
-**Gallagher flying to Spain to complete Atletico Madrid move**\
-`Chelsea midfielder Conor Gallagher is scheduled to fly to Spain on Tuesday evening in order to complete his move to Atletico Madrid.`\
-https://nytimes.com/athletic/5710130/2024/08/20/conor-gallagher-atletico-deal/
-
-**What to Expect at the Democratic National Convention in Chicago**\
-`On Day 2, Barack Obama, the nation’s first Black president, is expected to deliver soaring oratory as he implores the United States to elect its first Black female president.`\
-https://nytimes.com/2024/08/20/us/politics/what-to-expect-dnc-day-2-chicago.html
 
