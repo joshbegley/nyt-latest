@@ -1,3 +1,11 @@
+**The Speaker Lineup for Night 2 of the Democratic National Convention**\
+`Former President Barack Obama and Michelle Obama are the headline speakers on Tuesday.`\
+https://nytimes.com/2024/08/20/us/politics/dnc-speakers-day-2-lineup.html
+
+**Como submit offer for Real Madrid's Paz**\
+`Como have submitted an offer to Real Madrid for the signing of 19-year-old attacking midfielder Nico Paz.`\
+https://nytimes.com/athletic/5713064/2024/08/20/nico-paz-real-madrid-como-transfer/
+
 **News Emmys Defend Nomination of Palestinian Journalist**\
 `A nonprofit had argued that a video from Gaza should be disqualified because the reporter had a history of “spreading antisemitism and condoning violence.”`\
 https://nytimes.com/2024/08/20/arts/emmys-bisan-owda-gaza-al-jazeera.html
