@@ -1,3 +1,7 @@
+**Biden’s Lackluster Speech Is a Reminder That He Couldn’t Win**\
+`The country’s spirit has moved on.`\
+https://nytimes.com/live/2024/08/13/opinion/thepoint/biden-speech-convention
+
 **Quotation of the Day: As Mennonites Settle in Amazon, Environmentalists Raise Flags**\
 `Quotation of the Day for Tuesday, August 20, 2024.`\
 https://nytimes.com/2024/08/20/pageoneplus/quotation-of-the-day-as-mennonites-settle-in-amazon-environmentalists-raise-flags.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/he-created-the-
 **Watching four games in four days - and what it revealed about the new Premier League season**\
 `What do fans really think about the new campaign? We travelled to games at Manchester United, Arsenal, Chelsea and Leicester to find out`\
 https://nytimes.com/athletic/5710159/2024/08/20/premier-league-season-fans/
-
-**“He called them ‘suckers and losers.’”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/us/dnc-fact-check/he-called-them-suckers-and-losers
 
