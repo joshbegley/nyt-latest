@@ -1,3 +1,11 @@
+**Book excerpt: 'Inside Fantasy Football: America's Favorite Non-Contact Sport'**\
+`Read an excerpt from Peter Funt's new book, "Inside Fantasy Football: America's Favorite Non-Contact Sport," featuring Jake Ciely.`\
+https://nytimes.com/athletic/5705481/2024/08/20/book-excerpt-inside-fantasy-football-americas-favorite-non-contact-sport/
+
+**Tiny Love Stories: ‘It Was Scary, the Good Kind’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/08/20/style/tiny-modern-love-stories-it-was-scary-the-good-kind.html
+
 **Storm, Williams agree to rest-of-season contract**\
 `Gabby Williams led the French national team in points (15.5) and assists (2.3) en route to earning a silver medal at the Paris Olympics.`\
 https://nytimes.com/athletic/5712602/2024/08/20/gabby-williams-seattle-storm-contract/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5712617/2024/08/20/lewis-orford-west-ham-contract/
 **Dzhokhar A Tsarnaev**\
 `News about Dzhokhar A Tsarnaev. Commentary and archival information about Dzhokhar A Tsarnaev from The New York Times.`\
 https://nytimes.com/topic/dzhokhar-a-tsarnaev
-
-**U.S. Sanctions Former Haitian President for Drug Trafficking**\
-`The Treasury Department said former President Michel Martelly’s actions have contributed significantly to the unraveling of security in the country.`\
-https://nytimes.com/2024/08/20/world/americas/haiti-sanctions-martelly-president.html
-
-**Full Time: Why the Wave hired Landon Donovan**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/5712565/2024/08/20/landon-donovan-san-diego-wave-nwsl-full-time/
 

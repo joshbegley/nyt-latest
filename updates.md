@@ -1,3 +1,11 @@
+**Book excerpt: 'Inside Fantasy Football: America's Favorite Non-Contact Sport'**\
+`Read an excerpt from Peter Funt's new book, "Inside Fantasy Football: America's Favorite Non-Contact Sport," featuring Jake Ciely.`\
+https://nytimes.com/athletic/5705481/2024/08/20/book-excerpt-inside-fantasy-football-americas-favorite-non-contact-sport/
+
+**Tiny Love Stories: ‘It Was Scary, the Good Kind’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/08/20/style/tiny-modern-love-stories-it-was-scary-the-good-kind.html
+
 **Storm, Williams agree to rest-of-season contract**\
 `Gabby Williams led the French national team in points (15.5) and assists (2.3) en route to earning a silver medal at the Paris Olympics.`\
 https://nytimes.com/athletic/5712602/2024/08/20/gabby-williams-seattle-storm-contract/
