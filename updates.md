@@ -1,3 +1,15 @@
+**Dennis A. Muilenburg**\
+`News about Dennis A. Muilenburg. Commentary and archival information about Dennis A. Muilenburg from The New York Times.`\
+https://nytimes.com/topic/dennis-a-muilenburg
+
+**In a speech meant to focus on crime, Donald Trump meanders off script.**\
+`By Michael Gold`\
+https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/in-a-speech-meant-to-focus-on-crime-donald-trump-meanders-off-script
+
+**Eating Meat Is Linked With Diabetes Risk, New Studies Suggest**\
+`The research builds on previous findings connecting red and processed meats with Type 2 diabetes.`\
+https://nytimes.com/2024/08/20/well/eat/red-meat-diabetes-study.html
+
 **Judge Blocks F.T.C.’s Noncompete Rule**\
 `The Federal Trade Commission was deemed to lack the authority to bar companies from restricting their employees’ ability to go to work for rivals.`\
 https://nytimes.com/2024/08/20/business/economy/noncompete-ban-ftc-texas.html
