@@ -1,3 +1,11 @@
+**Internet Slows to a Crawl in Pakistan, Stoking Fear of a Firewall**\
+`Disruptions have fueled claims from rights groups that the Pakistani authorities are introducing technology to surveil and control the country’s internet.`\
+https://nytimes.com/2024/08/20/world/asia/pakistan-internet-government-surveillance.html
+
+**Amazon in talks to purchase Klopp documentary**\
+`Amazon Prime Video are among the streaming platforms in discussions to purchase the Liverpool documentary series which captured Jurgen Klopp’s final season as the club&#8217;s manager.`\
+https://nytimes.com/athletic/5711910/2024/08/20/liverpool-documentary-jurgen-klopp-amazon/
+
 **The Dems Just Showed That They’re a Winning Party**\
 `On the first night of the convention, Democrats honored their past and future.`\
 https://nytimes.com/video/opinion/100000009642002/the-dems-just-showed-that-theyre-a-winning-party.html
@@ -29,12 +37,4 @@ https://nytimes.com/topic/larry-a-silverstein
 **By Day, Sun Studio Draws Tourists. At Night, Musicians Lay Down Tracks.**\
 `The historic room in Memphis has a thriving after-hours life, and generations of players come to capture a bit of the magic where rock ’n’ roll took shape.`\
 https://nytimes.com/2024/08/20/arts/music/sun-studio.html
-
-**25 Years Ago, a Gay Student Sought Support. His School Turned to Tim Walz.**\
-`One student’s turbulent coming-out journey in the 1990s put Mr. Walz, then a football coach, at the center of gay rights in a Minnesota high school.`\
-https://nytimes.com/2024/08/20/us/tim-walz-gay-students.html
-
-**Week 3 of Our August Grilling Challenge: Grill Beyond the Expected**\
-`Because you can’t subsist on hot dogs alone. Plus: a really great deal on Wirecutter’s favorite olive oil.`\
-https://nytimes.com/2024/08/20/dining/week-3-of-our-august-grilling-challenge-grill-beyond-the-expected.html
 
