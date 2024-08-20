@@ -1,3 +1,7 @@
+**Here’s what to watch today in Chicago.**\
+`By Jonathan Weisman`\
+https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/heres-what-to-watch-today-in-chicago
+
 **Villa winger Iling-Junior exploring loan options**\
 `Aston Villa winger Samuel Iling-Junior is exploring potential loan options ahead of the transfer window deadline.`\
 https://nytimes.com/athletic/5711323/2024/08/20/aston-villa-samuel-iling-junior-loan-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/opinion/democrats-gaza-dnc.html
 **Kamala Harris Isn’t Bluffing**\
 `So far in the 2024 election, the party known for aversion to risk has been making better risk-management decisions.`\
 https://nytimes.com/2024/08/20/opinion/kamala-harris-democrats-risk.html
-
-**The Red Sox have an innovative pitching strategy, but has the league adjusted?**\
-`Boston's pitchers were successful early this season while throwing fewer fastballs than any other staff, but hitters seem to have caught on.`\
-https://nytimes.com/athletic/5704202/2024/08/20/red-sox-pitching-strategy-league-adjustments/
 
