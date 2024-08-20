@@ -1,3 +1,15 @@
+**Donald Trump vows to make his medical records public but doesn’t say when.**\
+`By Michael Gold`\
+https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/donald-trump-vows-to-make-his-medical-records-public-but-doesnt-say-when
+
+**Sinner, Sabalenka win Cincinnati Masters titles**\
+`The Italian and the Belarusian staked their claims for the US Open in Ohio.`\
+https://nytimes.com/athletic/5710971/2024/08/19/sinner-sabalenka-cincinnati-open-winners-2024/
+
+**Penguins promote Amanda Kessel**\
+`Kessel, a three-time Olympian, was named manager of minor league operations and assistant GM of the Wilkes-Barre/Scranton Penguins.`\
+https://nytimes.com/athletic/5710919/2024/08/19/amanda-kessel-pittsburgh-penguins-pwhl-career/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>Folks, we have games this weekend. This is not a drill.</p>
 <p>Let me know what&#8217;s on your mind as we brace for Week 0.</p>
@@ -27,16 +39,4 @@ https://nytimes.com/athletic/5710753/2024/08/19/buffalo-bills-injuries-cutdown-d
 **Tonight, the Democrats Feature a MAGA Refugee**\
 `Emerging from the movement can feel like escaping a cult.`\
 https://nytimes.com/live/2024/08/13/opinion/thepoint/rich-logis-leaving-maga
-
-**Henry A Waxman**\
-`News about Henry A Waxman. Commentary and archival information about Henry A Waxman from The New York Times.`\
-https://nytimes.com/topic/henry-a-waxman
-
-**Iran Is to Blame for Hacking Into Trump’s Campaign, Intelligence Officials Say**\
-`American intelligence agencies also confirmed that the effort extended to the Biden-Harris campaign, though that bid was unsuccessful.`\
-https://nytimes.com/2024/08/19/us/politics/iran-trump-campaign-hacking.html
-
-**Former Investigator Assails World Anti-Doping Agency**\
-`The agency, which has faced intense criticism for its handling of positive tests among Chinese swimmers, should be replaced by a “truly independent” organization, its former chief investigative officer said.`\
-https://nytimes.com/2024/08/19/us/politics/world-anti-doping-agency.html
 

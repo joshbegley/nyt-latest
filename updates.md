@@ -1,3 +1,15 @@
+**Donald Trump vows to make his medical records public but doesn’t say when.**\
+`By Michael Gold`\
+https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/donald-trump-vows-to-make-his-medical-records-public-but-doesnt-say-when
+
+**Sinner, Sabalenka win Cincinnati Masters titles**\
+`The Italian and the Belarusian staked their claims for the US Open in Ohio.`\
+https://nytimes.com/athletic/5710971/2024/08/19/sinner-sabalenka-cincinnati-open-winners-2024/
+
+**Penguins promote Amanda Kessel**\
+`Kessel, a three-time Olympian, was named manager of minor league operations and assistant GM of the Wilkes-Barre/Scranton Penguins.`\
+https://nytimes.com/athletic/5710919/2024/08/19/amanda-kessel-pittsburgh-penguins-pwhl-career/
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>Folks, we have games this weekend. This is not a drill.</p>
 <p>Let me know what&#8217;s on your mind as we brace for Week 0.</p>
