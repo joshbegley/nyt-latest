@@ -1,3 +1,11 @@
+**Man City frontrunners to sign Gundogan from Barcelona**\
+`Manchester City are frontrunners to re-sign Ilkay Gundogan.`\
+https://nytimes.com/athletic/5709515/2024/08/20/man-city-ilkay-gundogan-transfer/
+
+**When will the USWNT Olympic gold medallists be back in action?**\
+`The rules vary for Emma Hayes' players but the answer is sooner than you think…`\
+https://nytimes.com/athletic/5711297/2024/08/20/uswnt-gold-olympics-nwsl/
+
 **Fantasy football by the numbers: 25 need-to-know metrics for the 2024 season**\
 `KC Joyner shares 25 statistics from this past NFL season that can help inform fantasy football managers for the upcoming 2024 campaign.`\
 https://nytimes.com/athletic/5710237/2024/08/20/fantasy-football-2024-25-need-to-know-stats/
