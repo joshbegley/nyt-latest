@@ -1,3 +1,11 @@
+**Palace left playing risk and reward with Guehi and Andersen as deadline day looms**\
+`Bids have been lodged for both centre-halves this summer, leaving Palace contemplating when, if ever, represents the best time to sell`\
+https://nytimes.com/athletic/5708101/2024/08/20/crystal-palace-guehi-andersen-transfer/
+
+**Three Women Testify to the Effects of State Abortion Bans**\
+`One of the women, who was impregnated by her stepfather as a child, recalled Donald J. Trump’s praise for the bans as a “beautiful thing” and asked, “What is so beautiful about a child having to carry her parent’s child?”`\
+https://nytimes.com/2024/08/20/us/politics/dnc-abortion-amanda-zurawski-kaitlyn-joshua-hadley-duvall.html
+
 **“He created the largest debt any president had in four years with his two trillion dollars tax cut for the wealthy.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/he-created-the-largest-debt-any-president-had-in-four-years-with-his-two-trillion-dollars-tax-cut-for-the-wealthy

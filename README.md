@@ -1,3 +1,11 @@
+**Inside the arena, Pro-Palestinian Democrats see progress, and more to be done.**\
+`A panel — sponsored by the Harris campaign — highlighted the toll of Israel’s war against Hamas in Gaza, marking the first time in decades that the party had given a platform to pro-Palestinian activists.`\
+https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/inside-the-arena-pro-palestinian-democrats-see-progress-and-more-to-be-done
+
+**“Trump wants to cut Social Security and Medicare.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/trump-wants-to-cut-social-security-and-medicare
+
 **Palace left playing risk and reward with Guehi and Andersen as deadline day looms**\
 `Bids have been lodged for both centre-halves this summer, leaving Palace contemplating when, if ever, represents the best time to sell`\
 https://nytimes.com/athletic/5708101/2024/08/20/crystal-palace-guehi-andersen-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/the-smallest-ra
 **Explained: What Champions League games will be on Amazon Prime and who will be pundits?**\
 `It was over two years ago that UEFA sold its UK and Ireland Champions League rights to TNT Sports and Amazon Prime for a combined €1.7bn`\
 https://nytimes.com/athletic/5709744/2024/08/20/champions-league-amazon-prime-tv-games/
-
-**How can Bournemouth afford to spend €47m on Evanilson?**\
-`Bournemouth signing Evanilson from Porto is an eye-catching transfer that reflects a sea change within the European football landscape`\
-https://nytimes.com/athletic/5709614/2024/08/20/how-can-bournemouth-afford-to-spend-e47million-on-evanilson/
-
-**Mets' Francisco Alvarez ends his home run drought in walk-off fashion**\
-`Alvarez was in a 2-for-25 slump before beating the Orioles with a one-out blast in the ninth: "He lives for those moments."`\
-https://nytimes.com/athletic/5711178/2024/08/20/mets-francisco-alvarez-walk-off/
 
