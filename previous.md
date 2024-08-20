@@ -1,3 +1,11 @@
+**Cubs drop Héctor Neris and promote Jack Neely from Triple A as focus shifts toward the future**\
+`Neris delivered for the Cubs in many ways, but it was a high-wire act. The team now wants to get an up-close look at Neely.`\
+https://nytimes.com/athletic/5712183/2024/08/20/cubs-hector-neris-jack-neely/
+
+**The Windup: Are the Guardians going to be OK?**\
+`Welcome to The Windup, The Athletic's daily MLB newsletter.`\
+https://nytimes.com/athletic/5712145/2024/08/20/guardians-dodgers-injuries-francisco-alvarez-mets-mlb-the-windup/
+
 **James A Baker III**\
 `News about James A Baker III. Commentary and archival information about James A Baker III from The New York Times.`\
 https://nytimes.com/topic/james-a-baker-iii
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/20/technology/meta-section-230-lawsuit.html
 **Browns willing to engage in trade talks involving DTR: Source**\
 `Thompson-Robinson has been competing with Tyler Huntley for Cleveland's No. 3 QB job behind Deshaun Watson and Jameis Winston. `\
 https://nytimes.com/athletic/5712064/2024/08/20/browns-dorian-thompson-robinson-trade/
-
-**The Seahawks' success will hinge on their O-line (again). Is it up to the task?**\
-`Connor Williams could be an upgrade at center, and the Seahawks have perhaps the NFL's best young tackle duo, but health is a big concern.`\
-https://nytimes.com/athletic/5711101/2024/08/20/seahawks-offensive-line-connor-williams-charles-cross/
-
-**Risking His Own Extinction to Rescue the Rarest of Flowers**\
-`Carlos Magdalena, whose botanical adventures have shades of Indiana Jones, was a driving force in saving the world’s smallest water lily and finding the largest one. He has been called the “plant messiah.”`\
-https://nytimes.com/2024/08/20/world/europe/carlos-magdalena-flowers-royal-botanic-gardens-kew.html
 

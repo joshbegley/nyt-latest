@@ -1,3 +1,11 @@
+**Cubs drop Héctor Neris and promote Jack Neely from Triple A as focus shifts toward the future**\
+`Neris delivered for the Cubs in many ways, but it was a high-wire act. The team now wants to get an up-close look at Neely.`\
+https://nytimes.com/athletic/5712183/2024/08/20/cubs-hector-neris-jack-neely/
+
+**The Windup: Are the Guardians going to be OK?**\
+`Welcome to The Windup, The Athletic's daily MLB newsletter.`\
+https://nytimes.com/athletic/5712145/2024/08/20/guardians-dodgers-injuries-francisco-alvarez-mets-mlb-the-windup/
+
 **James A Baker III**\
 `News about James A Baker III. Commentary and archival information about James A Baker III from The New York Times.`\
 https://nytimes.com/topic/james-a-baker-iii
