@@ -1,3 +1,7 @@
+**Newcastle step up conversations about possible Guehi alternatives**\
+`Newcastle United have stepped up conversations about the possibility of signing alternative centre-backs to Marc Guehi, in case a deal cannot be agreed for the Crystal Palace defender.`\
+https://nytimes.com/athletic/5712738/2024/08/20/newcastle-marc-guehi-alternatives/
+
 **In Chicago, Obama Aims to Resurrect a Movement**\
 `Also, Biden approved a secret new nuclear strategy. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/08/20/briefing/obama-speech-chicago-nuclear-strategy-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/arts/music/charles-cross-dead.html
 **Kennedy’s Running Mate Suggests They May Drop Out of the Presidential Race and Endorse Trump**\
 `In an interview, Nicole Shanahan appeared to concede that their independent presidential bid was not likely to end in victory.`\
 https://nytimes.com/2024/08/20/us/politics/robert-kennedy-campaign-future.html
-
-**Wednesday Briefing: The U.S.’s Secret Nuclear Strategy**\
-`Plus, Ukraine’s women take over the work force.`\
-https://nytimes.com/2024/08/20/briefing/biden-nuclear-china-israel-hostages-eu-tesla-tariffs.html
 
