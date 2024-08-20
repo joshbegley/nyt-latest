@@ -1,3 +1,23 @@
+**The Run-Up: Steve Kerr’s patriotism and a long clap goodbye for Biden.**\
+`By ‘The Run-Up’ Team`\
+https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/the-run-up-steve-kerrs-patriotism-and-a-long-clap-goodbye-for-biden
+
+**The Women's Open is at St. Andrews. The Old Course is ready to challenge the field**\
+`The home of golf has been blown apart by the men, but should stand up and show its teeth this week.`\
+https://nytimes.com/athletic/5710646/2024/08/20/womens-open-st-andrews-old-course/
+
+**Ukrainian Lawmakers Pass Bill Aiming to Ban Russian-Aligned Church**\
+`The measure, which awaits President Volodymyr Zelensky’s signature, would further a long, post-Soviet split between two of the world’s largest Orthodox communities.`\
+https://nytimes.com/2024/08/20/world/europe/ukraine-orthodox-church-russia.html
+
+**7 New Collaborations You Should Hear Now**\
+`Hear music from pairings that include Lady Gaga and Bruno Mars, and Post Malone and Chris Stapleton.`\
+https://nytimes.com/2024/08/20/arts/music/amplifier-newsletter-lady-gaga-post-malone.html
+
+**Mohamed A El-Erian**\
+`News about Mohamed A El-Erian. Commentary and archival information about Mohamed A El-Erian from The New York Times.`\
+https://nytimes.com/topic/mohamed-a-el-erian
+
 **Ipswich agree loan deal for Chelsea striker Broja**\
 `Ipswich Town have agreed a deal to sign Chelsea striker Armando Broja on a season-long loan.`\
 https://nytimes.com/athletic/5581447/2024/08/20/armando-broja-ipswich-transfer-chelsea/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5712453/2024/08/20/georgia-football-smael-mondon-tr
 **Internet Slows to a Crawl in Pakistan, Stoking Fear of a Firewall**\
 `Disruptions have fueled claims from rights groups that the Pakistani authorities are introducing technology to surveil and control the country’s internet.`\
 https://nytimes.com/2024/08/20/world/asia/pakistan-internet-government-surveillance.html
-
-**Amazon in talks to purchase Klopp documentary**\
-`Amazon Prime Video are among the streaming platforms in discussions to purchase the Liverpool documentary series which captured Jurgen Klopp’s final season as the club&#8217;s manager.`\
-https://nytimes.com/athletic/5711910/2024/08/20/liverpool-documentary-jurgen-klopp-amazon/
-
-**The Dems Just Showed That They’re a Winning Party**\
-`On the first night of the convention, Democrats honored their past and future.`\
-https://nytimes.com/video/opinion/100000009642002/the-dems-just-showed-that-theyre-a-winning-party.html
-
-**Boeing Grounds 777-9 Test Planes in Latest Setback**\
-`The airplane manufacturer said it had discovered problems with a key part of the 777-9, a large plane designed for long flights that had already been delayed by years.`\
-https://nytimes.com/2024/08/20/business/boeing-777x-grounded.html
-
-**How Two Democrats Jumped Into Politics and Ended Up as Delegates**\
-`Janet Diaz and Tameko Patterson barely knew each other before this year, but both had long journeys into the political arena. Now they are rooming together and representing their party in Chicago.`\
-https://nytimes.com/2024/08/20/us/politics/democratic-delegates-dnc.html
-
-**It’s Time for Crab Soup**\
-`With Chesapeake Bay blue crab season in full swing — and tomatoes, corn and green beans at their peak — make Maryland crab soup right now.`\
-https://nytimes.com/2024/08/20/dining/maryland-crab-soup.html
 
