@@ -1,3 +1,7 @@
+**Hit Chinese Video Game Seeks to Curb ‘Negative Discourse’**\
+`Black Myth: Wukong tried to forbid influential overseas streamers from discussing “feminist propaganda,” Covid-19 and China’s video game industry policies.`\
+https://nytimes.com/2024/08/20/world/asia/chinese-videogame-wukong-censorship.html
+
 **Notre Dame camp lessons: Riley Leonard earned belief, but can offense catch up to defense?**\
 `What we learned about Notre Dame's biggest strengths (DBs), biggest questions (O-line) and more in preseason camp.`\
 https://nytimes.com/athletic/5711483/2024/08/20/notre-dame-football-captains-preseason-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5711439/2024/08/20/bayern-munich-stanisic-injury/
 **Cowboys' second-year kicker Brandon Aubrey performing on a 'different level'**\
 `A year ago, Brandon Aubrey was just trying to make the team. He nailed a 66-yarder Saturday and is one of the NFL's top kickers.`\
 https://nytimes.com/athletic/5711253/2024/08/20/dallas-cowboys-brandon-aubrey-all-pro-kicker/
-
-**How Biden Changed His Party**\
-`We explore three ways the president has shaped the Democratic Party.`\
-https://nytimes.com/2024/08/20/briefing/joe-biden-dnc-legacy.html
 

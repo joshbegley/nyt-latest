@@ -1,3 +1,7 @@
+**Hit Chinese Video Game Seeks to Curb ‘Negative Discourse’**\
+`Black Myth: Wukong tried to forbid influential overseas streamers from discussing “feminist propaganda,” Covid-19 and China’s video game industry policies.`\
+https://nytimes.com/2024/08/20/world/asia/chinese-videogame-wukong-censorship.html
+
 **Notre Dame camp lessons: Riley Leonard earned belief, but can offense catch up to defense?**\
 `What we learned about Notre Dame's biggest strengths (DBs), biggest questions (O-line) and more in preseason camp.`\
 https://nytimes.com/athletic/5711483/2024/08/20/notre-dame-football-captains-preseason-camp/
