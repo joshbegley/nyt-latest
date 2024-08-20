@@ -1,3 +1,11 @@
+**Read the Final Report on the Lewiston, Maine, Mass Shootings**\
+`An independent commission investigating the October 2023 shooting emphasized failures by both the local police and the Army Reserve.`\
+https://nytimes.com/interactive/2024/08/20/us/final-report-of-the-independent-commission-to-investigate-the-facts-of-the-tragedy-in-lewiston.html
+
+**John A Koskinen**\
+`News about John A Koskinen. Commentary and archival information about John A Koskinen from The New York Times.`\
+https://nytimes.com/topic/john-a-koskinen
+
 **How Costco Hacked the American Shopping Psyche**\
 `More than 100 million people visit the retailer for their groceries — and gas and TVs and gold bars and pet coffins — but saving money may not be the only motive.`\
 https://nytimes.com/2024/08/20/dining/costco.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/08/20/opinion/thepoint/chicago-protests-right-wing
 **JD Vance and Andy Beshear trade attacks over a remark about pregnancy caused by rape.**\
 `By Michael C. Bender`\
 https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/jd-vance-and-andy-beshear-trade-attacks-over-a-remark-about-pregnancy-caused-by-rape
-
-**Kraken sign Matty Beniers to 7-year extension**\
-`The contract carries an average annual value of $7.14 million.`\
-https://nytimes.com/athletic/5712799/2024/08/20/kraken-matty-beniers-extension/
-
-**PFA awards: Foden & Shaw complete Man City double**\
-`Manchester City completed a PFA Player of the Year double on Tuesday night as midfielder Phil Foden and striker Bunny Shaw were named men&#8217;s and women&#8217;s winners for 2023-24.`\
-https://nytimes.com/athletic/5711730/2024/08/20/pfa-award-winners-foden-shaw/
 
