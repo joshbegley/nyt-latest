@@ -1,3 +1,7 @@
+**Eric A Ulrich**\
+`News about Eric A Ulrich. Commentary and archival information about Eric A Ulrich from The New York Times.`\
+https://nytimes.com/topic/eric-a-ulrich
+
 **How a Law That Shields Big Tech Is Now Being Used Against It**\
 `A Massachusetts professor has filed a lawsuit against Meta using a novel interpretation of Section 230, a law known primarily for shielding social media companies from liability.`\
 https://nytimes.com/2024/08/20/technology/meta-section-230-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/business/dealbook/sicily-yacht-sinks-missing-pass
 **Minyon Moore Helped Harris Rise. Now She’s Leading Her Convention.**\
 `The longtime Democratic operative’s role overseeing the convention has required her to step out from behind the scenes.`\
 https://nytimes.com/2024/08/20/us/politics/minyon-moore-kamala-harris-dnc.html
-
-**Why the Patrik Laine trade feels familiar but represents a shift for the Canadiens**\
-`In Laine, the Canadiens not only acquired an undervalued asset, but also a player who could help them reach their modest goals.  `\
-https://nytimes.com/athletic/5711237/2024/08/20/patrik-laine-canadiens-blue-jackets-trade/
 
