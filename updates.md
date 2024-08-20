@@ -1,3 +1,7 @@
+**Only in America? U.S. leaders love to tout humble origins that aren’t so exceptional.**\
+`By Annie Karni`\
+https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/only-in-america-us-leaders-love-to-tout-humble-origins-that-arent-so-exceptional
+
 **After 62 Years, Brooklyn Says Goodbye to a Local Hardware Store**\
 `To mourn the closure of Crest Hardware, a beloved family business in Williamsburg, fans of the store held a wake and staged a second line march.`\
 https://nytimes.com/2024/08/20/style/crest-hardware-brooklyn.html
