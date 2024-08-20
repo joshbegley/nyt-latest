@@ -1,3 +1,7 @@
+**Search to Resume for Missing Passengers of Yacht That Sank Off Sicily**\
+`Divers have been searching the hull of the Bayesian for passengers including the British entrepreneur Mike Lynch. Witnesses said it was hit by a waterspout during a sudden storm.`\
+https://nytimes.com/2024/08/20/world/europe/italy-yacht-palermo-search.html
+
 **Giants scratch Patrick Bailey but claw out a victory over White Sox**\
 `The Giants needed to go deep into their roster to turn aside an opponent that hasn't won a road series since the first week of May.`\
 https://nytimes.com/athletic/5711247/2024/08/20/giants-patrick-bailey-white-sox/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/science/mars-aliens-radio-signals.html
 **Biden Delivers Keynote on First Night of D.N.C.**\
 `In his speech, which lasted nearly an hour, the president touted his accomplishments, attacked Donald Trump and passed the baton to Kamala Harris.`\
 https://nytimes.com/video/us/elections/100000009640959/biden-dnc-democratic-national-convention.html
-
-**Late Night Congratulates Biden for Staying Up So Late**\
-`When the president finally took the stage at the Democratic convention, “the cheers were so loud that even Biden could hear them,” Jimmy Fallon said.`\
-https://nytimes.com/2024/08/20/arts/television/late-night-biden-democratic-convention.html
 
