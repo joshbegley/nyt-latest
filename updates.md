@@ -1,3 +1,7 @@
+**Bombito proves there are hidden gems in Canadian soccer - can he shine in France?**\
+`Canadian centre-back has moved to Nice in Ligue 1 - will he follow Alphonso Davies' lead and conquer Europe?`\
+https://nytimes.com/athletic/5711149/2024/08/20/moise-bombito-transfer-canada-colorado/
+
 **Tuesday's MLB best bets: Predictions for pitching matchups, playoffs and more**\
 `See pitching matchups, playoff projections, win projections and more for Tuesday's MLB games.`\
 https://nytimes.com/athletic/5711756/2024/08/20/mlb-odds-best-bets-projections-august-20/

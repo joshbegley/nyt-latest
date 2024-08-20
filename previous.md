@@ -1,3 +1,7 @@
+**Bombito proves there are hidden gems in Canadian soccer - can he shine in France?**\
+`Canadian centre-back has moved to Nice in Ligue 1 - will he follow Alphonso Davies' lead and conquer Europe?`\
+https://nytimes.com/athletic/5711149/2024/08/20/moise-bombito-transfer-canada-colorado/
+
 **Tuesday's MLB best bets: Predictions for pitching matchups, playoffs and more**\
 `See pitching matchups, playoff projections, win projections and more for Tuesday's MLB games.`\
 https://nytimes.com/athletic/5711756/2024/08/20/mlb-odds-best-bets-projections-august-20/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/world/africa/kenya-serial-killer-suspect-escape.h
 **The Biden administration expresses optimism, but the two sides say major disagreements remain unresolved.**\
 `By Ronen Bergman, Adam Rasgon and Aaron Boxerman`\
 https://nytimes.com/live/2024/08/20/world/israel-iran-hamas-gaza-war/the-biden-administration-expresses-optimism-but-the-two-sides-say-major-disagreements-remain-unresolved
-
-**Leigh Diffey on his new role as NBC's NASCAR voice, his Olympics experience and more**\
-`Leigh Diffey talks about taking over NBC's NASCAR Cup Series play-by-play role, his experience in Paris, his 100-meter final call and more.`\
-https://nytimes.com/athletic/5710769/2024/08/20/leigh-diffey-nascar-nbc-broadcaster-paris-olympics/
 
