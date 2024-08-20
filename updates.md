@@ -1,3 +1,11 @@
+**Quotation of the Day: As Mennonites Settle in Amazon, Environmentalists Raise Flags**\
+`Quotation of the Day for Tuesday, August 20, 2024.`\
+https://nytimes.com/2024/08/20/pageoneplus/quotation-of-the-day-as-mennonites-settle-in-amazon-environmentalists-raise-flags.html
+
+**Corrections: Aug. 20, 2024**\
+`Corrections that appeared in print on Tuesday, Aug. 20, 2024.`\
+https://nytimes.com/2024/08/20/pageoneplus/corrections-aug-20-2024.html
+
 **“While schools closed and dead bodies filled morgues, Donald Trump downplayed the virus. He told us to inject bleach into our bodies. He peddled conspiracy theories across the country. We lost hundreds of thousands of Americans, and our economy collapsed.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/us/dnc-fact-check/while-schools-closed-and-dead-bodies-filled-morgues-donald-trump-downplayed-the-virus-he-told-us-to-inject-bleach-into-our-bodie
