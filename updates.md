@@ -1,3 +1,7 @@
+**Joe Biden’s Other Legacy**\
+`The Democratic Party has bridged huge divides since 2020. Can it win?`\
+https://nytimes.com/2024/08/20/opinion/ezra-klein-podcast-democratic-convention.html
+
 **Read the Final Report on the Lewiston, Maine, Mass Shootings**\
 `An independent commission investigating the October 2023 shooting emphasized failures by both the local police and the Army Reserve.`\
 https://nytimes.com/interactive/2024/08/20/us/final-report-of-the-independent-commission-to-investigate-the-facts-of-the-tragedy-in-lewiston.html
