@@ -1,3 +1,7 @@
+**Liverpool close to deal for Valencia goalkeeper Mamardashvili**\
+`Liverpool are closing in on a deal to sign goalkeeper Giorgi Mamardashvili from Valencia.`\
+https://nytimes.com/athletic/5700784/2024/08/20/liverpool-mamardashvili-transfer-close/
+
 **For Democrats, a Big Cast Change Plays Out Onstage**\
 `The first night of the convention introduced the party’s new protagonist, and gave the old one a curtain call.`\
 https://nytimes.com/2024/08/20/arts/television/dnc-biden-harris.html
