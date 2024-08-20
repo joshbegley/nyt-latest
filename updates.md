@@ -1,3 +1,15 @@
+**U.S. Push for Gaza Cease-Fire Falls Short on Key Points, Officials Say**\
+`Israeli and Hamas officials have downplayed the idea that a deal could be imminent, saying that mediators’ efforts have not resolved major disputes.`\
+https://nytimes.com/2024/08/20/world/middleeast/israel-hamas-us-ceasefire-gaza.html
+
+**Sergei A Ryabkov**\
+`News about Sergei A Ryabkov. Commentary and archival information about Sergei A Ryabkov from The New York Times.`\
+https://nytimes.com/topic/sergei-a-ryabkov
+
+**It’s No One’s Business How People Start or Terminate Pregnancies**\
+`Even though Republicans think the government should be involved in both.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/convention-republicans-abortion-ivf
+
 **A Waterspout Was Seen When a Luxury Yacht Sank. What Is It?**\
 `Witnesses reported seeing the tornado-like phenomenon hit the Bayesian, a sailing yacht that sank off the coast of Sicily on Monday.`\
 https://nytimes.com/2024/08/20/world/europe/waterspout-yacht-sinks-sicily.html

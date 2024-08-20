@@ -1,3 +1,15 @@
+**U.S. Push for Gaza Cease-Fire Falls Short on Key Points, Officials Say**\
+`Israeli and Hamas officials have downplayed the idea that a deal could be imminent, saying that mediators’ efforts have not resolved major disputes.`\
+https://nytimes.com/2024/08/20/world/middleeast/israel-hamas-us-ceasefire-gaza.html
+
+**Sergei A Ryabkov**\
+`News about Sergei A Ryabkov. Commentary and archival information about Sergei A Ryabkov from The New York Times.`\
+https://nytimes.com/topic/sergei-a-ryabkov
+
+**It’s No One’s Business How People Start or Terminate Pregnancies**\
+`Even though Republicans think the government should be involved in both.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/convention-republicans-abortion-ivf
+
 **A Waterspout Was Seen When a Luxury Yacht Sank. What Is It?**\
 `Witnesses reported seeing the tornado-like phenomenon hit the Bayesian, a sailing yacht that sank off the coast of Sicily on Monday.`\
 https://nytimes.com/2024/08/20/world/europe/waterspout-yacht-sinks-sicily.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/20/opinion/ezra-klein-podcast-democratic-convention.
 **Read the Final Report on the Lewiston, Maine, Mass Shootings**\
 `An independent commission investigating the October 2023 shooting emphasized failures by both the local police and the Army Reserve.`\
 https://nytimes.com/interactive/2024/08/20/us/read-lewiston-maine-shooting-report.html
-
-**John A Koskinen**\
-`News about John A Koskinen. Commentary and archival information about John A Koskinen from The New York Times.`\
-https://nytimes.com/topic/john-a-koskinen
-
-**How Costco Hacked the American Shopping Psyche**\
-`More than 100 million people visit the retailer for their groceries — and gas and TVs and gold bars and pet coffins — but saving money may not be the only motive.`\
-https://nytimes.com/2024/08/20/dining/costco.html
-
-**Chicago Prepares for More Protests as Democrats Hold Convention**\
-`One group said it would demonstrate at the Consulate of Israel in downtown Chicago. The police said they would not tolerate violence.`\
-https://nytimes.com/2024/08/20/us/chicago-protests-dnc-israel.html
 
