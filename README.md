@@ -1,3 +1,7 @@
+**Miller Moss named USC starting QB. Plus, Trojans' transfer Malachi Nelson beat for Boise State job**\
+`Do we put too much stock into USC quarterback transfers that don't necessarily see success at their new programs?`\
+https://nytimes.com/athletic/5711733/2024/08/20/miller-moss-usc-college-football-quarterback/
+
 **Bombito proves there are hidden gems in Canadian soccer - can he shine in France?**\
 `Canadian centre-back has moved to Nice in Ligue 1 - will he follow Alphonso Davies' lead and conquer Europe?`\
 https://nytimes.com/athletic/5711149/2024/08/20/moise-bombito-transfer-canada-colorado/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5711421/2024/08/20/liverpool-duels-ipswich-arne-slo
 **Kenyan Accused of Serial Killings Escapes From Police Custody**\
 `Collins Jumaisi Khalusha, who is accused of killing dozens of women, and 12 other people were able to break free, the police said.`\
 https://nytimes.com/2024/08/20/world/africa/kenya-serial-killer-suspect-escape.html
-
-**The Biden administration expresses optimism, but the two sides say major disagreements remain unresolved.**\
-`By Ronen Bergman, Adam Rasgon and Aaron Boxerman`\
-https://nytimes.com/live/2024/08/20/world/israel-iran-hamas-gaza-war/the-biden-administration-expresses-optimism-but-the-two-sides-say-major-disagreements-remain-unresolved
 
