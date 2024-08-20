@@ -1,3 +1,7 @@
+**Debunking fantasy football narratives tied to rookies, explosive plays, depth of target and more**\
+`Michael Salfino identifies the false narratives currently pervading fantasy football, including a couple regarding NFL rookies.`\
+https://nytimes.com/athletic/5712580/2024/08/20/fantasy-football-false-narratives-2024/
+
 **Can Democrats Make the Case to Climate Voters?**\
 `In another year of record-breaking temperatures, Democrats are faced with the challenge of making climate change resonate with voters.`\
 https://nytimes.com/2024/08/20/climate/kamala-harris-climate-change-politics.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5708263/2024/08/20/southampton-sign-sporting-cps-ma
 **Biden’s Speech as Convention Begins**\
 `Readers react to his speech and offer advice for the Democrats. Also: G.O.P. After Trump; funding for maintenance; taxing tips; imperfect summer.`\
 https://nytimes.com/2024/08/20/opinion/letters/bidens-speech-convention.html
-
-**The Run-Up: Steve Kerr’s patriotism and a long clap goodbye for Biden.**\
-`By ‘The Run-Up’ Team`\
-https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/the-run-up-steve-kerrs-patriotism-and-a-long-clap-goodbye-for-biden
 
