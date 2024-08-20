@@ -1,3 +1,11 @@
+**Behind the Blues' successful offer sheets: 'If there is a GM code, no one emailed it to me'**\
+`GM Doug Armstrong pried Philip Broberg and Dylan Holloway from Edmonton with offer sheets that the Oilers didn't match.`\
+https://nytimes.com/athletic/5711769/2024/08/20/blues-offer-sheets-holloway-broberg/
+
+**Debbie Mucarsel-Powell Wins the Democratic Senate Nomination in Florida**\
+`The former congresswoman will challenge the Republican incumbent, Rick Scott, in November.`\
+https://nytimes.com/2024/08/20/us/mucarsel-powell-florida-senate-primary.html
+
 **When a President Speaks After Prime Time, Who Listens?**\
 `Democrats have a set of lofty goals for the convention tonight. Among them: Just do it all on time.`\
 https://nytimes.com/2024/08/20/us/politics/biden-obama-dnc-chicago.html
