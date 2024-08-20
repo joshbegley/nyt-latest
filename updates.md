@@ -1,3 +1,7 @@
+**When a President Speaks After Prime Time, Who Listens?**\
+`Democrats have a set of lofty goals for the convention tonight. Among them: Just do it all on time.`\
+https://nytimes.com/2024/08/20/us/politics/biden-obama-dnc-chicago.html
+
 **Michigan bolsters 2025 class with top-100 WR Andrew Marsh**\
 `After a quiet start to the 2025 cycle, Michigan has climbed to No. 12 in the composite rankings and No. 3 in the Big Ten.`\
 https://nytimes.com/athletic/5713222/2024/08/20/michigan-recruiting-andrew-marsh/

@@ -1,3 +1,7 @@
+**When a President Speaks After Prime Time, Who Listens?**\
+`Democrats have a set of lofty goals for the convention tonight. Among them: Just do it all on time.`\
+https://nytimes.com/2024/08/20/us/politics/biden-obama-dnc-chicago.html
+
 **Michigan bolsters 2025 class with top-100 WR Andrew Marsh**\
 `After a quiet start to the 2025 cycle, Michigan has climbed to No. 12 in the composite rankings and No. 3 in the Big Ten.`\
 https://nytimes.com/athletic/5713222/2024/08/20/michigan-recruiting-andrew-marsh/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/us/politics/ana-navarro-stephanie-grishamn-trump-
 **Myron E. Ullman III, Executive Who Remade Macy’s and J.C. Penney, Dies at 77**\
 `As a leader behind many of the world’s best-known brands, he exuded operational know-how. He also displayed a rare humility, which helped drive his success.`\
 https://nytimes.com/2024/08/20/business/myron-e-ullman-iii-dead.html
-
-**Iranian Military Official Hints Strike on Israel May Be Delayed**\
-`The comments from an Islamic Revolutionary Guards Corps leader suggested that a widely feared regional conflict might be averted, at least for the moment.`\
-https://nytimes.com/2024/08/20/world/middleeast/iran-israel-conflict.html
 
