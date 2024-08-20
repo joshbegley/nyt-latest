@@ -1,3 +1,11 @@
+**The Chicago Vibes Shouldn’t Obscure Trump’s Continuing Threat**\
+`David Axelrod says Trump is probably still ahead.`\
+https://nytimes.com/live/2024/08/13/opinion/thepoint/trump-threat-democratic-exuberance
+
+**Jannik Sinner and Aryna Sabalenka win Cincinnati Masters titles**\
+`The Italian and the Belarusian staked their claims for the US Open in Ohio.`\
+https://nytimes.com/athletic/5710971/2024/08/19/sinner-sabalenka-cincinnati-open-winners-2024/
+
 **“Trump talks big about bringing back manufacturing jobs, but you know who actually did it? President Biden and Vice President Kamala Harris.”**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/08/19/us/dnc-harris-trump-election/trump-talks-big-about-bringing-back-manufacturing-jobs-but-you-know-who-actually-did-it-president-biden-and-vice-president-kamal
