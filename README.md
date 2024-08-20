@@ -1,3 +1,7 @@
+**Lamine Yamal's next steps at Barcelona - and the new challenges he's already faced**\
+`The 17-year-old returned from Euro 2024 a national hero. But circumstances beyond his control made this season a difficult start`\
+https://nytimes.com/athletic/5711313/2024/08/20/lamine-yamal-barcelona-la-liga-new-season/
+
 **Zelensky Says Push Into Russia Shows the West’s Red Lines Are ‘Naïve’**\
 `President Volodymyr Zelensky of Ukraine seized on the incursion’s success to press allies to lift a longtime restriction: the use of Western-supplied long-range weapons against Russia.`\
 https://nytimes.com/2024/08/20/world/europe/ukraine-russia-war-incursion-zelensky.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/briefing/joe-biden-dnc-legacy.html
 **Man City frontrunners to sign Gundogan from Barcelona**\
 `Manchester City are frontrunners to re-sign Ilkay Gundogan.`\
 https://nytimes.com/athletic/5709515/2024/08/20/man-city-ilkay-gundogan-transfer/
-
-**When will the USWNT Olympic gold medalists be back in action?**\
-`The rules vary for Emma Hayes' players but the answer is sooner than you think…`\
-https://nytimes.com/athletic/5711297/2024/08/20/uswnt-gold-olympics-nwsl/
 
