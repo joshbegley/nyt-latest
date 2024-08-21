@@ -1,3 +1,7 @@
+**Women’s Cricket World Cup Moved From Bangladesh Because of Unrest**\
+`The United Arab Emirates will host the tournament after many governments advised against traveling to Bangladesh.`\
+https://nytimes.com/2024/08/21/sports/cricket-world-cup-t20-bangladesh-uae.html
+
 **‘I Am the Only Person Stupid Enough to Speak After Michelle Obama’**\
 `So said former President Barack Obama after his wife electrified the Democratic National Convention. The delegates loved him, but they really loved her.`\
 https://nytimes.com/2024/08/21/us/politics/obamas-convention.html
