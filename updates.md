@@ -1,3 +1,11 @@
+**Special teams coach Trevor Reilly no longer on Colorado staff**\
+`Following Reilly’s departure, just two on-field Colorado staffers are still in the same roles they held when the 2023 season began.`\
+https://nytimes.com/athletic/5713283/2024/08/20/deion-sanders-trevor-reilly-colorado-coach/
+
+**4 Questions to Ask Before Reuniting With an Ex-Partner**\
+`As Jennifer Lopez and Ben Affleck show, rekindling an old romance is risky. We asked couples counselors what you should ask before diving back in.`\
+https://nytimes.com/2024/08/20/well/family/affleck-lopez-divorce-reunite-ex.html
+
 **Uncommitted delegates protesting the war in Gaza are trying to make their voices heard.**\
 `By Jonathan Weisman`\
 https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/uncommitted-delegates-protesting-the-war-in-gaza-are-trying-to-make-their-voices-heard
