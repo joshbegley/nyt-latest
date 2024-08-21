@@ -1,3 +1,7 @@
+**Special teams coordinator Trevor Reilly no longer on Colorado staff**\
+`Following Reilly’s departure, just two on-field Colorado staffers are still in the same roles they held when the 2023 season began.`\
+https://nytimes.com/athletic/5713283/2024/08/20/deion-sanders-trevor-reilly-colorado-coach/
+
 **Special teams coach Trevor Reilly no longer on Colorado staff**\
 `Following Reilly’s departure, just two on-field Colorado staffers are still in the same roles they held when the 2023 season began.`\
 https://nytimes.com/athletic/5713283/2024/08/20/deion-sanders-trevor-reilly-colorado-coach/
