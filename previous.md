@@ -1,3 +1,11 @@
+**Padres’ Ha-Seong Kim (shoulder) goes on injured list for first time in career**\
+`The Padres recalled infielder Matthew Batten in Kim's place, though the 2023 Gold Glover could return as soon as Aug. 29.`\
+https://nytimes.com/athletic/5713318/2024/08/20/ha-seong-kim-first-il-stint/
+
+**Why the Cardinals optioned Jordan Walker and released Brandon Crawford**\
+`The Cardinals hope shaking up the roster will spark some momentum, but recent moves require an explanation. `\
+https://nytimes.com/athletic/5713137/2024/08/20/cardinals-jordan-walker-brandon-crawford/
+
 **Why Brett Gardner won't attend Yankees' 2009 World Series celebration**\
 `Gardner's absence was the most notable on a list of attendees that includes Derek Jeter, Alex Rodriguez, CC Sabathia and others.`\
 https://nytimes.com/athletic/5713298/2024/08/20/brett-gardner-2009-world-series-celebration-absence/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/20/us/mucarsel-powell-florida-senate-primary.html
 **When a President Speaks After Prime Time, Who Listens?**\
 `Democrats have a set of lofty goals for the convention tonight. Among them: Just do it all on time.`\
 https://nytimes.com/2024/08/20/us/politics/biden-obama-dnc-chicago.html
-
-**Michigan bolsters 2025 class with top-100 WR Andrew Marsh**\
-`After a quiet start to the 2025 cycle, Michigan has climbed to No. 12 in the composite rankings and No. 3 in the Big Ten.`\
-https://nytimes.com/athletic/5713222/2024/08/20/michigan-recruiting-andrew-marsh/
-
-**Why 49ers rookie guard Dominick Puni is impressing even Fred Warner**\
-`The surge from Puni has come at a good time for the 49ers, who are fighting many interior offensive line injuries.`\
-https://nytimes.com/athletic/5713059/2024/08/20/49ers-dominick-puni-fred-warner/
 

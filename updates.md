@@ -1,3 +1,11 @@
+**Padres’ Ha-Seong Kim (shoulder) goes on injured list for first time in career**\
+`The Padres recalled infielder Matthew Batten in Kim's place, though the 2023 Gold Glover could return as soon as Aug. 29.`\
+https://nytimes.com/athletic/5713318/2024/08/20/ha-seong-kim-first-il-stint/
+
+**Why the Cardinals optioned Jordan Walker and released Brandon Crawford**\
+`The Cardinals hope shaking up the roster will spark some momentum, but recent moves require an explanation. `\
+https://nytimes.com/athletic/5713137/2024/08/20/cardinals-jordan-walker-brandon-crawford/
+
 **Why Brett Gardner won't attend Yankees' 2009 World Series celebration**\
 `Gardner's absence was the most notable on a list of attendees that includes Derek Jeter, Alex Rodriguez, CC Sabathia and others.`\
 https://nytimes.com/athletic/5713298/2024/08/20/brett-gardner-2009-world-series-celebration-absence/
