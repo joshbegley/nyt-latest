@@ -1,3 +1,7 @@
+**What we learned from a high-intensity Bills practice week**\
+`The Bills had two fully-padded practices and did a lot of 11-on-11 work.`\
+https://nytimes.com/athletic/5715301/2024/08/21/buffalo-bills-practice-cole-bishop-mike-edwards-tyler-bass/
+
 **Ana Navarro addresses Republican remarks on communism with her own story.**\
 `By Jazmine Ulloa`\
 https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/ana-navarro-addresses-republican-remarks-on-communism-with-her-own-story
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/08/21/world/israel-iran-hamas-gaza-war/the-war-in-
 **'The team in New York': Jets are feeling themselves after beating up on Giants**\
 `Aaron Rodgers and the Jets offense bounced back from Monday's disappointing practice in a very big way.`\
 https://nytimes.com/athletic/5715343/2024/08/21/jets-giants-joint-practice-observations/
-
-**Paramount Extends Talks With New Bidder, Unsettling Skydance Deal**\
-`Edgar Bronfman Jr. and his bidding group now have until September to sell Paramount on their offer.`\
-https://nytimes.com/2024/08/21/business/media/paramount-skydance-bronfman.html
 
