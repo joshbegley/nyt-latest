@@ -1,3 +1,7 @@
+**Bo Nix named Broncos starting QB**\
+`Nix will become the Broncos first rookie quarterback to start a Week 1 game since John Elway in 1983.`\
+https://nytimes.com/athletic/5712010/2024/08/21/bo-nix-broncos-starting-quarterback/
+
 **A J Hinch**\
 `News about A J Hinch. Commentary and archival information about A J Hinch from The New York Times.`\
 https://nytimes.com/topic/a-j-hinch
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/21/science/first-cells-rain.html
 **Paul A Slough**\
 `News about Paul A Slough. Commentary and archival information about Paul A Slough from The New York Times.`\
 https://nytimes.com/topic/paul-a-slough
-
-**Nicholas A Slatten**\
-`News about Nicholas A Slatten. Commentary and archival information about Nicholas A Slatten from The New York Times.`\
-https://nytimes.com/topic/nicholas-a-slatten
 
