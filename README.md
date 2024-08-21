@@ -1,3 +1,11 @@
+**Conor Gallagher completes Atletico Madrid transfer from Chelsea**\
+`Atletico Madrid have completed the signing of midfielder Conor Gallagher from Chelsea.`\
+https://nytimes.com/athletic/5711520/2024/08/21/conor-gallagher-atletico-madrid-transfer-chelsea/
+
+**Florida State ready to go from College Football Playoff's biggest snub to first-round bye**\
+`The Seminoles are the preseason pick to repeat as ACC champions despite losing 10 NFL Draft picks from last year's 13-1 team. `\
+https://nytimes.com/athletic/5688104/2024/08/21/florida-state-college-football-playoff-case-projection/
+
 **Walmart Dumps Entire Stake in China’s JD.com**\
 `Walmart’s divestiture comes as its e-commerce partner has struggled to maintain its market share in the country’s cutthroat online sales industry.`\
 https://nytimes.com/2024/08/21/business/walmart-jd-com-china.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5712736/2024/08/21/red-sox-takeaways-kristian-campb
 **Alabama camp report: Captains named, defensive updates, the mystery of LaMarcus Fox**\
 `Tyler Booker, Deontae Lawson, Jalen Milroe and Malachi Moore were voted permanent team captains by their teammates after Tuesday's practice.`\
 https://nytimes.com/athletic/5712785/2024/08/21/alabama-football-captains-defense/
-
-**How Falcons' helmet cams are honing play calling, cadence and dad jokes**\
-`The Falcons are using helmet cameras on their top two quarterbacks, eliciting some playful complaints from the players.`\
-https://nytimes.com/athletic/5712468/2024/08/21/falcons-helmet-cameras-kirk-cousins/
-
-**For Tim Walz, the Convention Is Like Marrying Into a Very Large Family**\
-`Every Democrat in Chicago wants to meet him, and maybe give him a hug. “I love him,” one delegate said. “He reminds me of Chris Farley — you know, the man down by the river.”`\
-https://nytimes.com/2024/08/21/us/politics/tim-walz-convention-democrats.html
 
