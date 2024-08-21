@@ -1,3 +1,15 @@
+**Investors Brace for a Jobs Wipeout**\
+`Economists forecast that a revision to payrolls data could undercut a robust picture of the labor market, further pressuring the Federal Reserve to cut rates.`\
+https://nytimes.com/2024/08/21/business/dealbook/jobs-data-revisions-fed.html
+
+**The Athletic FC: Liverpool's Salah conundrum, City eye Kyogo, revisiting the Silverdome**\
+`Today in TAFC: Liverpool and Salah face a tricky decision, Man City make moves in the market, and we revisit the Silverdome in Detroit`\
+https://nytimes.com/athletic/5713872/2024/08/21/liverpool-salah-deal-city-transfer-kyogo/
+
+**Courtland Sutton, Austin Ekeler among Dane Martinez’s latest round of 'my guys' for fantasy football 2024**\
+`Dane Martinez shares another round of "my guys" — players with fantasy football ADPs too nice to ignore — like Courtland Sutton.`\
+https://nytimes.com/athletic/5713276/2024/08/21/my-guys-top-targets-fantasy-football-2024/
+
 **Russia Said It Repelled a Large Ukrainian Drone Attack on Moscow**\
 `The attack came as Kyiv presses on with a cross-border offensive into western Russia that has rattled the Kremlin.`\
 https://nytimes.com/2024/08/21/world/europe/ukraine-attack-moscow.html

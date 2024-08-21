@@ -1,3 +1,15 @@
+**Investors Brace for a Jobs Wipeout**\
+`Economists forecast that a revision to payrolls data could undercut a robust picture of the labor market, further pressuring the Federal Reserve to cut rates.`\
+https://nytimes.com/2024/08/21/business/dealbook/jobs-data-revisions-fed.html
+
+**The Athletic FC: Liverpool's Salah conundrum, City eye Kyogo, revisiting the Silverdome**\
+`Today in TAFC: Liverpool and Salah face a tricky decision, Man City make moves in the market, and we revisit the Silverdome in Detroit`\
+https://nytimes.com/athletic/5713872/2024/08/21/liverpool-salah-deal-city-transfer-kyogo/
+
+**Courtland Sutton, Austin Ekeler among Dane Martinez’s latest round of 'my guys' for fantasy football 2024**\
+`Dane Martinez shares another round of "my guys" — players with fantasy football ADPs too nice to ignore — like Courtland Sutton.`\
+https://nytimes.com/athletic/5713276/2024/08/21/my-guys-top-targets-fantasy-football-2024/
+
 **Russia Said It Repelled a Large Ukrainian Drone Attack on Moscow**\
 `The attack came as Kyiv presses on with a cross-border offensive into western Russia that has rattled the Kremlin.`\
 https://nytimes.com/2024/08/21/world/europe/ukraine-attack-moscow.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5709986/2024/08/21/joao-felix-to-chelsea-the-athlet
 **Chelsea complete Joao Felix signing from Atletico Madrid**\
 `Chelsea have completed the signing of Joao Felix from Atletico Madrid.`\
 https://nytimes.com/athletic/5712397/2024/08/21/chelsea-joao-felix-transfer/
-
-**Macy’s Reports Lower Sales as Shoppers Cut Back**\
-`Department store chains have struggled as consumers, squeezed by budget constraints, spend less time and money at their stores.`\
-https://nytimes.com/2024/08/21/business/macys-2nd-quarter-earnings.html
-
-**The Pulse: Inside a sport’s frustrating fight for popularity**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5713301/2024/08/21/erin-matson-field-hockey-olympics-the-pulse/
-
-**Thailand Reports Mpox Case in Traveler Who Arrived From Africa**\
-`Officials are testing if the patient has the new version of the virus. If confirmed, it would be Thailand’s first case involving Clade Ib mpox.`\
-https://nytimes.com/2024/08/21/world/asia/thailand-mpox.html
 
