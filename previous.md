@@ -1,3 +1,7 @@
+**Charlene Marshall, Central Figure in a Celebrity Scandal, Dies at 79**\
+`Her husband, Anthony, was convicted of defrauding his wealthy mother, Brooke Astor. But in the tabloids, Mrs. Marshall often seemed to be the one on trial.`\
+https://nytimes.com/2024/08/21/nyregion/charlene-marshall-dead.html
+
 **Forest sign Moreno on loan from Villa**\
 `Nottingham Forest have confirmed the signing of Aston Villa defender Alex Moreno on a season-long loan.`\
 https://nytimes.com/athletic/5712633/2024/08/21/nottingham-forest-sign-alex-moreno/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5715192/2024/08/21/austin-dillon-nascar-appeal-deni
 **Gen-Z Delegates Push for Change at the D.N.C.**\
 `The Harris campaign has unlocked a wave of enthusiasm among young voters. But how do Democrats plan to fix the real-world problems impacting their lives? We spoke to four young delegates about the issues driving Gen-Z.`\
 https://nytimes.com/video/us/politics/100000009648070/dnc-genz-delegates-voters.html
-
-**Submit questions for 'The Athletic NBA Show' podcast mailbag**\
-`Have a question about the NBA offseason? Send them in for our next episode of "The Athletic NBA Show."`\
-https://nytimes.com/athletic/5715057/2024/08/21/submit-questions-for-the-athletic-nba-show-podcast-mailbag/
 

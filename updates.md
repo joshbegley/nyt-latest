@@ -1,3 +1,7 @@
+**Charlene Marshall, Central Figure in a Celebrity Scandal, Dies at 79**\
+`Her husband, Anthony, was convicted of defrauding his wealthy mother, Brooke Astor. But in the tabloids, Mrs. Marshall often seemed to be the one on trial.`\
+https://nytimes.com/2024/08/21/nyregion/charlene-marshall-dead.html
+
 **Forest sign Moreno on loan from Villa**\
 `Nottingham Forest have confirmed the signing of Aston Villa defender Alex Moreno on a season-long loan.`\
 https://nytimes.com/athletic/5712633/2024/08/21/nottingham-forest-sign-alex-moreno/
