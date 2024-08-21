@@ -1,3 +1,7 @@
+**Mark A. Morgan**\
+`News about Mark A. Morgan. Commentary and archival information about Mark A. Morgan from The New York Times.`\
+https://nytimes.com/topic/mark-a-morgan
+
 **Bo Nix named Broncos starting QB**\
 `Nix will become the Broncos first rookie quarterback to start a Week 1 game since John Elway in 1983.`\
 https://nytimes.com/athletic/5712010/2024/08/21/bo-nix-broncos-starting-quarterback/
