@@ -1,4 +1,8 @@
 **Who’s the Change Candidate?**\
+`Inside the fight over who most represents change ahead of November.`\
+https://nytimes.com/2024/08/21/briefing/harris-trump-2024-election-change.html
+
+**Who’s the Change Candidate?**\
 `We explore the battle over who is the candidate of change.`\
 https://nytimes.com/2024/08/21/briefing/harris-trump-2024-election-change.html
 

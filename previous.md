@@ -1,5 +1,5 @@
 **Who’s the Change Candidate?**\
-`We explore the battle over who is the candidate of change.`\
+`Inside the fight over who most represents change ahead of November.`\
 https://nytimes.com/2024/08/21/briefing/harris-trump-2024-election-change.html
 
 **Gallagher and Joao Felix moves speak for Chelsea's attraction to mystery boxes**\
