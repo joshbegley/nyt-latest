@@ -1,3 +1,7 @@
+**Montana Certifies Signatures for November Abortion Question**\
+`Also on Tuesday, Arizona’s Supreme Court rejected a challenge to a similar ballot measure. That means at least nine states will vote on whether to establish a constitutional right to abortion.`\
+https://nytimes.com/2024/08/20/us/montana-abortion-rights.html
+
 **Mets' Little League defense lowlights loss: 'It's an absolute mess!'**\
 `NEW YORK — A sloppy loss for the New York Mets reached an embarrassing nadir in the top of the ninth inning when they committed a misplay and multiple errors on one shallow fly ball from Gunnar Henderson.`\
 https://nytimes.com/athletic/5713518/2024/08/20/mets-orioles-little-league-defense/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/us/politics/harris-rally-milwaukee-dnc.html
 **“Within two months of taking office, our government did respond. We passed the American Rescue Plan, which provided $1,400 for every man, woman and child in the working class. We extended and expanded benefits for the unemployed.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/within-two-months-of-taking-office-our-government-did-respond-we-passed-the-american-rescue-plan-which-provided-1400-for-every-m
-
-**Something in the Air**\
-`Stacey Yaruss McCullough makes her New York Times debut.`\
-https://nytimes.com/2024/08/20/crosswords/daily-puzzle-2024-08-21.html
 

@@ -1,3 +1,7 @@
+**Montana Certifies Signatures for November Abortion Question**\
+`Also on Tuesday, Arizona’s Supreme Court rejected a challenge to a similar ballot measure. That means at least nine states will vote on whether to establish a constitutional right to abortion.`\
+https://nytimes.com/2024/08/20/us/montana-abortion-rights.html
+
 **Mets' Little League defense lowlights loss: 'It's an absolute mess!'**\
 `NEW YORK — A sloppy loss for the New York Mets reached an embarrassing nadir in the top of the ninth inning when they committed a misplay and multiple errors on one shallow fly ball from Gunnar Henderson.`\
 https://nytimes.com/athletic/5713518/2024/08/20/mets-orioles-little-league-defense/
