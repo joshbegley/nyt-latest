@@ -1,3 +1,7 @@
+**“Donald Trump and JD Vance want to dismantle our health care system, repeal the Affordable Care Act and eliminate protections for pre-existing conditions.”**\
+`By Linda Qiu`\
+https://nytimes.com/2024/08/20/us/donald-trump-and-jd-vance-want-to-dismantle-our-health-care-system-repeal-the-affordable-care-act-and-eliminate-protections-for-.html
+
 **Doug Emhoff, Both Earnest and Poking Fun at Himself, Talks Up His Wife**\
 `The second gentleman drew on his relationship with Kamala Harris in his speech at the Democratic convention, telling a story about a bumbling voice mail message he left her early on.`\
 https://nytimes.com/2024/08/20/us/politics/doug-emhoff-speech.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/take-it-from-an-act
 **“Donald told us to inject bleach.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/donald-told-us-to-inject-bleach
-
-**Man Who U.S. Says Faked Death to Avoid Child Support Gets 81 Months in Prison**\
-`The man, Jesse Kipf, hacked into state death registry systems to fake his own death in part to avoid paying more than $100,000 in child support, federal prosecutors said.`\
-https://nytimes.com/2024/08/20/us/20xp-jesse-kipf-hacking-sentenced-kentucky.html
 
