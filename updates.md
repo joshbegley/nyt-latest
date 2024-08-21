@@ -1,3 +1,7 @@
+**Here’s what to expect in Chicago on Wednesday.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/08/21/us/harriz-walz-dnc-trump/heres-what-to-expect-in-chicago-on-wednesday
+
 **Croatia dual national Sigur switches to Canada**\
 `The midfielder has previously spoken of his allegiance to Croatia but has applied to play for Canada instead`\
 https://nytimes.com/athletic/5712845/2024/08/21/canada-croatia-niko-sigur-switch/

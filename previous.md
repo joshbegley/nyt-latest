@@ -1,3 +1,7 @@
+**Here’s what to expect in Chicago on Wednesday.**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/08/21/us/harriz-walz-dnc-trump/heres-what-to-expect-in-chicago-on-wednesday
+
 **Croatia dual national Sigur switches to Canada**\
 `The midfielder has previously spoken of his allegiance to Croatia but has applied to play for Canada instead`\
 https://nytimes.com/athletic/5712845/2024/08/21/canada-croatia-niko-sigur-switch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5713234/2024/08/21/yankees-anthony-volpe-struggles-
 **High school football 2024 guide: National matchups, top talent, QB recruits**\
 `The high football season begins in earnest this weekend with some huge matchups featuring some of the top recruits in the country. `\
 https://nytimes.com/athletic/5711063/2024/08/21/high-school-football-matchups-talent-recruitment-2/
-
-**City reach agreement with Gundogan over return to Etihad Stadium**\
-`Manchester City and Ilkay Gundogan have reached a full agreement for the German to re-sign for the Premier League side.`\
-https://nytimes.com/athletic/5711610/2024/08/21/manchester-city-ilkay-gundogan-barcelona/
 
