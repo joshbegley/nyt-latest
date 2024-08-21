@@ -1,3 +1,15 @@
+**Bill Clinton, From Star to Scandal to Statesman, Seeks to Lift Up Harris**\
+`Mr. Clinton’s political history of boom and bust has made him one of the most enduring figures of modern American life, if not always its most accepted.`\
+https://nytimes.com/2024/08/21/us/politics/bill-clinton-dnc-speech.html
+
+**Ex-U.S. Airman Charged With Child Pornography Appears in Russian Propaganda Video**\
+`“I don’t consider myself a traitor,” said Wilmer Puello-Mota, who has enlisted in the Russian military.`\
+https://nytimes.com/2024/08/21/world/europe/wilmer-puello-mota-airman-russia.html
+
+**Israel and Hezbollah Trade Cross-Border Strikes**\
+`The strikes, in eastern Lebanon and the Israeli-controlled Golan Heights, underscored how months of talks have failed to stop either the war in Gaza or the related conflict along the Lebanese border.`\
+https://nytimes.com/2024/08/21/world/middleeast/israel-hezbollah-strikes.html
+
 **A McDonald’s name tag becomes a middle-class badge of honor on the D.N.C. stage.**\
 `By Kellen Browning`\
 https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/a-mcdonalds-name-tag-becomes-a-middle-class-badge-of-honor-on-the-dnc-stage
@@ -21,16 +33,4 @@ https://nytimes.com/topic/james-a-wolfe
 **The Speaker Lineup for Night 3 of the Democratic National Convention**\
 `The vice-presidential nominee, Gov. Tim Walz of Minnesota, will deliver the night’s closing remarks. Other speakers include former President Bill Clinton and Representative Nancy Pelosi.`\
 https://nytimes.com/2024/08/21/us/politics/dnc-speakers-day-3-lineup.html
-
-**Democrats Look to Redefine Trump**\
-`Also, the U.S. added far fewer jobs than previously reported. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2024/08/21/briefing/democrats-donald-trump-jobs-numbers-revised.html
-
-**Hadley Duvall Says Her Abortion Speech Will ‘Keep My Heart Full’**\
-`Ms. Duvall, a sexual abuse survivor, was one of three women who shared their personal stories at the Democratic convention to support Vice President Kamala Harris.`\
-https://nytimes.com/2024/08/21/us/politics/hadley-duvall-dnc-abortion.html
-
-**Yankees' Aaron Judge has 'no response' for Staten Island Little League coach that ripped him**\
-`South Shore manager Bob Laterza criticized the slugger on Monday for not waving to his players at the Little League Classic on Sunday. `\
-https://nytimes.com/athletic/5715319/2024/08/21/yankees-aaron-judge-little-league-coach/
 
