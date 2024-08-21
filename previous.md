@@ -1,3 +1,7 @@
+**Leeds agree deal to sign ex-Man Utd youngster Ramazani**\
+`Leeds United have agreed a deal to sign Belgian forward Largie Ramazani from Almeria.`\
+https://nytimes.com/athletic/5715053/2024/08/21/leeds-united-largie-ramazani/
+
 **Cardinals option Nolan Gorman to Triple A in latest roster shakeup**\
 `The decision came after Gorman's August OPS dropped to .508. He was hitting just .212 on the month and had not homered or driven in a run.`\
 https://nytimes.com/athletic/5714748/2024/08/21/cardinals-nolan-gorman-optioned/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5712885/2024/08/21/jannik-sinner-doping-case-player
 **Texas Stopped Busing Migrants to Democratic Cities in Late June**\
 `Gov. Greg Abbott’s busing program forced Democrats to talk about the border. But a dramatic drop in the number of migrants has left the buses idle.`\
 https://nytimes.com/2024/08/21/us/texas-busing-migrants-abbott-democrats.html
-
-**We All Live in Vegas Now**\
-`America is becoming a nation of gamblers. Why?`\
-https://nytimes.com/2024/08/21/opinion/online-betting-gambling.html
 

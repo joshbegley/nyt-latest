@@ -1,3 +1,7 @@
+**Leeds agree deal to sign ex-Man Utd youngster Ramazani**\
+`Leeds United have agreed a deal to sign Belgian forward Largie Ramazani from Almeria.`\
+https://nytimes.com/athletic/5715053/2024/08/21/leeds-united-largie-ramazani/
+
 **Cardinals option Nolan Gorman to Triple A in latest roster shakeup**\
 `The decision came after Gorman's August OPS dropped to .508. He was hitting just .212 on the month and had not homered or driven in a run.`\
 https://nytimes.com/athletic/5714748/2024/08/21/cardinals-nolan-gorman-optioned/
