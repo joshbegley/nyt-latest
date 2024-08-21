@@ -1,3 +1,11 @@
+**Nicholas A DiMarzio**\
+`News about Nicholas A DiMarzio. Commentary and archival information about Nicholas A DiMarzio from The New York Times.`\
+https://nytimes.com/topic/nicholas-a-dimarzio
+
+**Chelsea give Sterling, Chalobah shirt numbers to Neto, Joao Felix**\
+`Chelsea have given Raheem Sterling&#8217;s squad number to new signing Pedro Neto.`\
+https://nytimes.com/athletic/5714507/2024/08/21/pedro-neto-joao-felix-chelsea-shrit-number/
+
 **Police Break Up Ultra-Orthodox Israelis Protesting Military Draft**\
 `Israeli police officers scuffled with groups of ultra-Orthodox men protesting against military conscription in front of a draft center in Jerusalem.`\
 https://nytimes.com/video/world/middleeast/100000009646593/ultra-orthodox-protest-jerusalem.html

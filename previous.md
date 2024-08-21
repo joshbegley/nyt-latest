@@ -1,3 +1,11 @@
+**Nicholas A DiMarzio**\
+`News about Nicholas A DiMarzio. Commentary and archival information about Nicholas A DiMarzio from The New York Times.`\
+https://nytimes.com/topic/nicholas-a-dimarzio
+
+**Chelsea give Sterling, Chalobah shirt numbers to Neto, Joao Felix**\
+`Chelsea have given Raheem Sterling&#8217;s squad number to new signing Pedro Neto.`\
+https://nytimes.com/athletic/5714507/2024/08/21/pedro-neto-joao-felix-chelsea-shrit-number/
+
 **Police Break Up Ultra-Orthodox Israelis Protesting Military Draft**\
 `Israeli police officers scuffled with groups of ultra-Orthodox men protesting against military conscription in front of a draft center in Jerusalem.`\
 https://nytimes.com/video/world/middleeast/100000009646593/ultra-orthodox-protest-jerusalem.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/21/climate/climate-policy-harris.html
 **Coming Soon to Jersey City: A Gleaming Home for the Symphony**\
 `The New Jersey Symphony, which long lacked a permanent space, will move into a 550-seat theater that it hopes to make a hub for concerts and classes.`\
 https://nytimes.com/2024/08/21/arts/music/new-jersey-symphony-new-concert-hall.html
-
-**The Windup: Mariners' all-time waste of pitching prowess**\
-`The Athletic's daily MLB newsletter.`\
-https://nytimes.com/athletic/5714422/2024/08/21/seattle-mariners-pitching-the-windup/
-
-**Man Utd winger Pellistri joins Panathinaikos**\
-`Panathinaikos have completed the signing of Manchester United forward Facundo Pellistri.`\
-https://nytimes.com/athletic/5711493/2024/08/21/facundo-pellistri-joins-panathinaikos/
 
