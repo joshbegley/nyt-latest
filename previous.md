@@ -1,3 +1,11 @@
+**Martinez signs new Villa contract until 2029**\
+`Emi Martinez has signed a new contract with Aston Villa until 2029.`\
+https://nytimes.com/athletic/5714265/2024/08/21/emi-martinez-aston-villa-contract/
+
+**Ford Pulls Back Its Electric Vehicle Push**\
+`The automaker said it would invest less in battery-powered cars and scrap a planned electric three-row sport utility vehicle.`\
+https://nytimes.com/2024/08/21/business/economy/ford-ev-plant-delay.html
+
 **Germany's Neuer retires from international football**\
 `Germany goalkeeper Manuel Neuer has confirmed his retirement from international football.`\
 https://nytimes.com/athletic/5714226/2024/08/21/manuel-neuer-germany-retires/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/21/world/asia/thailand-politician-hits-journalist-pb
 **Hundreds of Ultra-Orthodox Israelis Clash With Police Over Draft**\
 `Protests over military conscription highlight the rising tensions surrounding a court order overturning a decades-long exemption for the religious community.`\
 https://nytimes.com/2024/08/21/world/middleeast/israel-orthodox-draft-protest.html
-
-**As 49ers training camp winds down, 1 thought on every offensive player**\
-`Persons of interest as cut-down day looms include Isaac Guerendo and a pair of former third-round picks: Danny Gray and Cameron Latu.`\
-https://nytimes.com/athletic/5713149/2024/08/21/49ers-training-camp-offensive-roster/
-
-**Should We Tell Our Tween Daughter That Her Father Had a Nose Job?**\
-`When a couple’s 12-year-old starts to point out that no one else in the family seems to have a nose like hers, they can’t agree whether to tell her why.`\
-https://nytimes.com/2024/08/21/style/nose-job-discussion-child.html
 

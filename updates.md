@@ -1,3 +1,11 @@
+**Martinez signs new Villa contract until 2029**\
+`Emi Martinez has signed a new contract with Aston Villa until 2029.`\
+https://nytimes.com/athletic/5714265/2024/08/21/emi-martinez-aston-villa-contract/
+
+**Ford Pulls Back Its Electric Vehicle Push**\
+`The automaker said it would invest less in battery-powered cars and scrap a planned electric three-row sport utility vehicle.`\
+https://nytimes.com/2024/08/21/business/economy/ford-ev-plant-delay.html
+
 **Germany's Neuer retires from international football**\
 `Germany goalkeeper Manuel Neuer has confirmed his retirement from international football.`\
 https://nytimes.com/athletic/5714226/2024/08/21/manuel-neuer-germany-retires/
