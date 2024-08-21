@@ -1,3 +1,7 @@
+**Walmart Dumps Entire Stake in China’s JD.com**\
+`Walmart’s divestiture comes as its e-commerce partner has struggled to maintain its market share in the country’s cutthroat online sales industry.`\
+https://nytimes.com/2024/08/21/business/walmart-jd-com-china.html
+
 **Could Royals star Bobby Witt Jr. be the first player in decades to hit .400 ... at home?**\
 `Even as batting averages continue to fall across MLB, Witt is chasing .400 at spacious Kauffmann Field. `\
 https://nytimes.com/athletic/5712920/2024/08/21/bobby-witt-mlb-royals-400-hitter/
