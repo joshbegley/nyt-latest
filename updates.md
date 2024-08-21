@@ -1,3 +1,11 @@
+**No one injured during fire emergency at Cowboys training camp hotel**\
+`The emergency occurred Tuesday afternoon in one of the hotel's guest rooms, which was empty at the time of the incident, the team said.`\
+https://nytimes.com/athletic/5713354/2024/08/20/dallas-cowboys-training-camp-fire/
+
+**Chargers training camp, Day 20: JT Woods getting extended audition at cornerback**\
+`A 2022 third-round pick who has disappointed at safety, Woods has been a playmaker at cornerback since switching positions last week.`\
+https://nytimes.com/athletic/5713350/2024/08/20/chargers-training-camp-day-20-jt-woods-getting-extended-audition-at-cornerback/
+
 **History Shows How Autoworkers Could Be Crucial for Harris**\
 `Especially given Trump’s admiration for breaking strikes.`\
 https://nytimes.com/live/2024/08/20/opinion/thepoint/auto-workers-harris-campaign
