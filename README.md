@@ -2,7 +2,7 @@
 `News about Glenn A Fine. Commentary and archival information about Glenn A Fine from The New York Times.`\
 https://nytimes.com/topic/glenn-a-fine
 
-**Fed Minutes Showed a Cut ‘Likely’ Coming in September**\
+**Fed Minutes Show a Cut ‘Likely’ to Come in September**\
 `Even before a disappointing July jobs report, Federal Reserve officials thought they would probably cut rates at their Sept. 17-18 meeting.`\
 https://nytimes.com/2024/08/21/business/economy/fed-minutes-cut-likely.html
 
