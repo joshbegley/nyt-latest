@@ -1,3 +1,11 @@
+**Giants takeaways on 3 streaking hitting prospects**\
+`While several position player prospects have disappointed, Bryce Eldridge, James Tibbs III and Bo Davidson are having noteworthy seasons.`\
+https://nytimes.com/athletic/5712305/2024/08/21/sf-giants-takeaways-bryce-eldridge-james-tibbs/
+
+**My Race Through the Mini Crossword Archive**\
+`In March, Young Chung set a formidable goal for herself: Solve 3,600 Minis before the puzzle’s 10th anniversary on Aug. 21.`\
+https://nytimes.com/2024/08/21/crosswords/mini-crossword-archive.html
+
 **Joao Felix to Chelsea: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500 series, we look at Joao Felix's move from Atletico Madrid to Chelsea`\
 https://nytimes.com/athletic/5709986/2024/08/21/joao-felix-to-chelsea-the-athletic-500-transfer-ratings/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5713767/2024/08/21/everton-roman-dixon-sean-dyche-r
 **Feldman's College Football Playoff bracket: Who's in and who's out after camp?**\
 `Which teams impressed enough during fall practice to project into our updated College Football Playoff field? `\
 https://nytimes.com/athletic/5710227/2024/08/21/college-football-playoff-field-kansas-state-projections/
-
-**Is Anyone Crashing This Unity Convention?**\
-`It’s not the chaos many feared, but protesters and uncommitted delegates are pushing their cause.`\
-https://nytimes.com/2024/08/21/podcasts/is-anyone-crashing-this-unity-convention.html
-
-**Javier Báez will always be a Cubs legend but there is no magic in his return to Wrigley**\
-`Báez returned to Chicago scuffling through another season with the Tigers, who must be looking to get out from under his big contract.`\
-https://nytimes.com/athletic/5713557/2024/08/21/tigers-cubs-javier-baez-return-wrigley/
 
