@@ -1,3 +1,7 @@
+**What we learned from a high-intensity Bills practice week**\
+`The Bills had two fully-padded practices and did a lot of 11-on-11 work.`\
+https://nytimes.com/athletic/5715301/2024/08/21/buffalo-bills-practice-cole-bishop-mike-edwards-tyler-bass/
+
 **Ana Navarro addresses Republican remarks on communism with her own story.**\
 `By Jazmine Ulloa`\
 https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/ana-navarro-addresses-republican-remarks-on-communism-with-her-own-story
