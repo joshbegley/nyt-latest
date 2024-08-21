@@ -1,3 +1,7 @@
+**Thursday Briefing: Russia Says Ukraine Aimed Drones at Moscow**\
+`Plus, China’s “road-trip auntie.”`\
+https://nytimes.com/2024/08/21/briefing/ukraine-russia-israel-hezbollah-harris-trump.html
+
 **Charlene Marshall, Central Figure in a Celebrity Scandal, Dies at 79**\
 `Her husband, Anthony, was convicted of defrauding his wealthy mother, Brooke Astor. But in the tabloids, Mrs. Marshall often seemed to be the one on trial.`\
 https://nytimes.com/2024/08/21/nyregion/charlene-marshall-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/21/us/missing-woman-hospital-sacramento-lawsuit.html
 **NASCAR denies Austin Dillon's appeal to be reinstated into playoffs**\
 `Dillon took out two drivers in the final lap at Richmond Raceway in an attempt to bulldoze his way into the playoffs.`\
 https://nytimes.com/athletic/5715192/2024/08/21/austin-dillon-nascar-appeal-denied/
-
-**Gen-Z Delegates Push for Change at the D.N.C.**\
-`The Harris campaign has unlocked a wave of enthusiasm among young voters. But how do Democrats plan to fix the real-world problems impacting their lives? We spoke to four young delegates about the issues driving Gen-Z.`\
-https://nytimes.com/video/us/politics/100000009648070/dnc-genz-delegates-voters.html
 
