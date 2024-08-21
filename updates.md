@@ -1,3 +1,11 @@
+**Conor Gallagher completes Atletico Madrid transfer from Chelsea**\
+`Atletico Madrid have completed the signing of midfielder Conor Gallagher from Chelsea.`\
+https://nytimes.com/athletic/5711520/2024/08/21/conor-gallagher-atletico-madrid-transfer-chelsea/
+
+**Florida State ready to go from College Football Playoff's biggest snub to first-round bye**\
+`The Seminoles are the preseason pick to repeat as ACC champions despite losing 10 NFL Draft picks from last year's 13-1 team. `\
+https://nytimes.com/athletic/5688104/2024/08/21/florida-state-college-football-playoff-case-projection/
+
 **Walmart Dumps Entire Stake in China’s JD.com**\
 `Walmart’s divestiture comes as its e-commerce partner has struggled to maintain its market share in the country’s cutthroat online sales industry.`\
 https://nytimes.com/2024/08/21/business/walmart-jd-com-china.html
