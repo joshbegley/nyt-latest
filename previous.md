@@ -1,3 +1,7 @@
+**Jesse Winker and the Mets have a signature moment: 'It's what you play for'**\
+`Winker’s first home run as a Met provided good vibes as they headed off for a crucial road trip through San Diego and Arizona.`\
+https://nytimes.com/athletic/5715288/2024/08/21/mets-jesse-winker-walk-off/
+
 **Aides to Trump and Netanyahu deny reports that they discussed cease-fire talks.**\
 `By Maggie Haberman, Jonathan Swan and Isabel Kershner`\
 https://nytimes.com/live/2024/08/21/world/israel-iran-hamas-gaza-war/aides-to-trump-and-netanyahu-deny-reports-that-they-discussed-cease-fire-talks
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/21/business/economy/bls-jobs-revision-data-leak.html
 **Pakistan Arrests Man Over Disinformation That Helped Spur U.K. Riots**\
 `Local police sources indicated that the arrest was made at the request of the British authorities, although there was no official confirmation.`\
 https://nytimes.com/2024/08/21/world/asia/pakistan-arrest-southport-riots.html
-
-**It’s Prime Time for Democrats to Stick to Their Scripts**\
-`Convention planners need to be ruthless about scheduling, or risk losing their audience.`\
-https://nytimes.com/live/2024/08/20/opinion/thepoint/convention-speakers-scheduling-primetime
 

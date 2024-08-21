@@ -1,3 +1,7 @@
+**Jesse Winker and the Mets have a signature moment: 'It's what you play for'**\
+`Winker’s first home run as a Met provided good vibes as they headed off for a crucial road trip through San Diego and Arizona.`\
+https://nytimes.com/athletic/5715288/2024/08/21/mets-jesse-winker-walk-off/
+
 **Aides to Trump and Netanyahu deny reports that they discussed cease-fire talks.**\
 `By Maggie Haberman, Jonathan Swan and Isabel Kershner`\
 https://nytimes.com/live/2024/08/21/world/israel-iran-hamas-gaza-war/aides-to-trump-and-netanyahu-deny-reports-that-they-discussed-cease-fire-talks
