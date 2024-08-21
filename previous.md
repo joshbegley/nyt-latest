@@ -1,3 +1,11 @@
+**Forest sign Moreno on loan from Villa**\
+`Nottingham Forest have confirmed the signing of Aston Villa defender Alex Moreno on a season-long loan.`\
+https://nytimes.com/athletic/5712633/2024/08/21/nottingham-forest-sign-alex-moreno/
+
+**While the Public Awaited Jobs Data, Wall Street Firms Got a Look**\
+`A report was delayed on the Bureau of Labor Statistics website, but some investors got it in the meantime, raising new questions about agency practices.`\
+https://nytimes.com/2024/08/21/business/economy/bls-jobs-revision-data-leak.html
+
 **Pakistan Arrests Man Over Disinformation That Helped Spur U.K. Riots**\
 `Local police sources indicated that the arrest was made at the request of the British authorities, although there was no official confirmation.`\
 https://nytimes.com/2024/08/21/world/asia/pakistan-arrest-southport-riots.html
@@ -25,12 +33,4 @@ https://nytimes.com/video/us/politics/100000009648070/dnc-genz-delegates-voters.
 **Submit questions for 'The Athletic NBA Show' podcast mailbag**\
 `Have a question about the NBA offseason? Send them in for our next episode of "The Athletic NBA Show."`\
 https://nytimes.com/athletic/5715057/2024/08/21/submit-questions-for-the-athletic-nba-show-podcast-mailbag/
-
-**Democrats Use the Convention to Try to Define Trump as a Self-Interested Fraud**\
-`Speeches and videos seek to shrink Donald Trump in order to rise above him, as Kamala Harris and her allies work to minimize him and disengage from him.`\
-https://nytimes.com/2024/08/21/us/politics/harris-attack-lines-trump.html
-
-**In Chicago, Democrats Warn of Threat to Democracy**\
-`Even amid a more optimistic vibe, convention speakers remind delegates of Donald J. Trump’s efforts to overturn the 2020 election.`\
-https://nytimes.com/2024/08/21/us/elections/democratic-convention-democracy.html
 

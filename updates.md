@@ -1,3 +1,11 @@
+**Forest sign Moreno on loan from Villa**\
+`Nottingham Forest have confirmed the signing of Aston Villa defender Alex Moreno on a season-long loan.`\
+https://nytimes.com/athletic/5712633/2024/08/21/nottingham-forest-sign-alex-moreno/
+
+**While the Public Awaited Jobs Data, Wall Street Firms Got a Look**\
+`A report was delayed on the Bureau of Labor Statistics website, but some investors got it in the meantime, raising new questions about agency practices.`\
+https://nytimes.com/2024/08/21/business/economy/bls-jobs-revision-data-leak.html
+
 **Pakistan Arrests Man Over Disinformation That Helped Spur U.K. Riots**\
 `Local police sources indicated that the arrest was made at the request of the British authorities, although there was no official confirmation.`\
 https://nytimes.com/2024/08/21/world/asia/pakistan-arrest-southport-riots.html
