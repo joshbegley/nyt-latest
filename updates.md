@@ -1,3 +1,11 @@
+**Cubs' release of Héctor Neris brings questions but is another sign team's looking forward**\
+`Neris had become an uncomfortable watch and Jack Neely was performing well in the minors. It was time to consider the future of the bullpen.`\
+https://nytimes.com/athletic/5713393/2024/08/20/cubs-release-hector-neris-bullpen-analysis/
+
+**Bernie Sanders Would Like a Word or Two With Kamala Harris**\
+`His list of policy promises put her on the hot seat.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/bernie-sanders-kamala-harris
+
 **Harris, in a Show of Force, Holds a Large Rally 80 Miles From Her Convention**\
 `The two-city rally, with Democrats celebrating at their convention in Chicago and an arena in Milwaukee, was a pointed rejoinder to Donald Trump and a significant flexing of the party’s muscle.`\
 https://nytimes.com/2024/08/20/us/politics/harris-rally-milwaukee-dnc.html
