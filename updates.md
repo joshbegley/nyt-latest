@@ -1,3 +1,7 @@
+**Harris Campaigns in Milwaukee During Day 2 of D.N.C.**\
+`Vice President Kamala Harris and her running mate, Gov. Tim Walz, rallied the crowds the critical battleground state of Wisconsin.`\
+https://nytimes.com/video/us/elections/100000009646048/harris-rally-milwaukee-dnc.html
+
 **“Donald Trump and JD Vance want to dismantle our health care system, repeal the Affordable Care Act and eliminate protections for pre-existing conditions.”**\
 `By Linda Qiu`\
 https://nytimes.com/2024/08/20/us/donald-trump-and-jd-vance-want-to-dismantle-our-health-care-system-repeal-the-affordable-care-act-and-eliminate-protections-for-.html
