@@ -1,3 +1,7 @@
+**Gen-Z Delegates Push for Change at the D.N.C.**\
+`The Harris campaign has unlocked a wave of enthusiasm among young voters. But how do Democrats plan to fix the real-world problems impacting their lives? We spoke to four young delegates about the issues driving Gen-Z.`\
+https://nytimes.com/video/us/politics/100000009648070/dnc-genz-delegates-voters.html
+
 **Submit questions for 'The Athletic NBA Show' podcast mailbag**\
 `Have a question about the NBA offseason? Send them in for our next episode of "The Athletic NBA Show."`\
 https://nytimes.com/athletic/5715057/2024/08/21/submit-questions-for-the-athletic-nba-show-podcast-mailbag/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/21/magazine/class-action-settlement-ethics.html
 **Glenn A Fine**\
 `News about Glenn A Fine. Commentary and archival information about Glenn A Fine from The New York Times.`\
 https://nytimes.com/topic/glenn-a-fine
-
-**Fed Minutes Show a Cut ‘Likely’ to Come in September**\
-`Even before a disappointing July jobs report, Federal Reserve officials thought they would probably cut rates at their Sept. 17-18 meeting.`\
-https://nytimes.com/2024/08/21/business/economy/fed-minutes-cut-likely.html
 

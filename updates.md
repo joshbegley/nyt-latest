@@ -1,3 +1,7 @@
+**Gen-Z Delegates Push for Change at the D.N.C.**\
+`The Harris campaign has unlocked a wave of enthusiasm among young voters. But how do Democrats plan to fix the real-world problems impacting their lives? We spoke to four young delegates about the issues driving Gen-Z.`\
+https://nytimes.com/video/us/politics/100000009648070/dnc-genz-delegates-voters.html
+
 **Submit questions for 'The Athletic NBA Show' podcast mailbag**\
 `Have a question about the NBA offseason? Send them in for our next episode of "The Athletic NBA Show."`\
 https://nytimes.com/athletic/5715057/2024/08/21/submit-questions-for-the-athletic-nba-show-podcast-mailbag/
