@@ -1,3 +1,7 @@
+**Thailand Reports Mpox Case in Traveler Who Arrived From Africa**\
+`Officials are testing if the patient has the new version of the virus. If confirmed, it would be Thailand’s first case involving Clade Ib mpox.`\
+https://nytimes.com/2024/08/21/world/asia/thailand-mpox.html
+
 **Access all areas at NBC: Three Premier League games, a Winnebago and tactical sushi**\
 `The Athletic is invited behind the scenes at NBC for the Premier League games at Old Trafford, the London Stadium and Stamford Bridge`\
 https://nytimes.com/athletic/5712144/2024/08/21/premier-league-nbc-epl-lowe/
