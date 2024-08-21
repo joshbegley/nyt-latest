@@ -18,7 +18,7 @@ https://nytimes.com/athletic/5713283/2024/08/20/deion-sanders-trevor-reilly-colo
 `As Jennifer Lopez and Ben Affleck show, rekindling an old romance is risky. We asked couples counselors what you should ask before diving back in.`\
 https://nytimes.com/2024/08/20/well/family/affleck-lopez-divorce-reunite-ex.html
 
-**Uncommitted delegates protesting the war in Gaza are trying to make their voices heard.**\
+**Here’s why some delegates are voting ‘present.’**\
 `By Jonathan Weisman`\
 https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/uncommitted-delegates-protesting-the-war-in-gaza-are-trying-to-make-their-voices-heard
 

@@ -1,3 +1,7 @@
+**Here’s why some delegates are voting ‘present.’**\
+`By Jonathan Weisman`\
+https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/uncommitted-delegates-protesting-the-war-in-gaza-are-trying-to-make-their-voices-heard
+
 **Padres’ Ha-Seong Kim (shoulder) goes on injured list for first time in career**\
 `The Padres recalled infielder Matthew Batten in Kim's place, though the 2023 Gold Glover could return as soon as Aug. 29.`\
 https://nytimes.com/athletic/5713318/2024/08/20/ha-seong-kim-first-il-stint/
