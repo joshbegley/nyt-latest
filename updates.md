@@ -1,3 +1,7 @@
+**Onana is bringing height and awareness to Villa's midfield - he is now Emery's key man**\
+`Onana was the one Villa midfield signing this summer that was bought for the here and now - he's made an impressive start `\
+https://nytimes.com/athletic/5706712/2024/08/21/amadou-onana-aston-villa-unai-emery/
+
 **Introducing the newest ground on the Ninety-Two Club's list: Hayes Lane, Bromley**\
 `Richard Sutcliffe visits the newest destination for fans out to tick off visits to all 92 stadiums in English football's top four divisions`\
 https://nytimes.com/athletic/5697757/2024/08/21/bromley-the-92-club/
