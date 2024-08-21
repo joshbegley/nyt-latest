@@ -1,3 +1,7 @@
+**Onana is bringing height and awareness to Villa's midfield - he is now Emery's key man**\
+`Onana was the one Villa midfield signing this summer that was bought for the here and now - he's made an impressive start `\
+https://nytimes.com/athletic/5706712/2024/08/21/amadou-onana-aston-villa-unai-emery/
+
 **Introducing the newest ground on the Ninety-Two Club's list: Hayes Lane, Bromley**\
 `Richard Sutcliffe visits the newest destination for fans out to tick off visits to all 92 stadiums in English football's top four divisions`\
 https://nytimes.com/athletic/5697757/2024/08/21/bromley-the-92-club/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5711784/2024/08/21/mohamed-salah-liverpool-contract
 **How Palmer went from schoolkid to superstar - by the scout who found him**\
 `The new PFA Young Player of the Year has had a dizzying rise to stardom but the man who discovered him is not surprised`\
 https://nytimes.com/athletic/5697773/2024/08/21/cole-palmer-chelsea-manchester-city-scout/
-
-**Reynaldo López excels in IL return, as injury-plagued and resilient Braves top Phillies**\
-`The Braves are battered and bruised, but they're not giving in. Behind López's 10 strikeouts, Atlanta topped Philadelphia. `\
-https://nytimes.com/athletic/5713580/2024/08/21/reynaldo-lopez-excels-in-return/
 
