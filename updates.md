@@ -1,3 +1,19 @@
+**Michelle Obama Suits the Moment**\
+`On Day 2 of the Democratic National Convention, the former first lady (and her husband) suited up for the next stage.`\
+https://nytimes.com/2024/08/21/style/michelle-obama-dnc-fashion.html
+
+**Should the Raiders be worried about their offensive line, even as Kolton Miller returns?**\
+`Despite the return of their first-string left tackle from the PUP list, the Raiders have dealt with injuries to two other likely starters.`\
+https://nytimes.com/athletic/5713330/2024/08/21/raiders-offensive-line-kolton-miller/
+
+**‘Hannah Gadsby: Woof’ Review: A Comic’s Pet Themes**\
+`In a soul-baring new show at the Edinburgh Fringe, the Australian stand-up leans once again into fears, anxieties and mental health worries.`\
+https://nytimes.com/2024/08/21/arts/hannah-gadsby-woof-review.html
+
+**Barack Obama’s Speech Was a Reminder of the Possible**\
+`Harris is selling something different, but would continue his legacy.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/obama-convention-speech-harris
+
 **Obama’s Speech Was a Reminder of the Possible**\
 `Harris is selling something different, but would continue his legacy.`\
 https://nytimes.com/live/2024/08/20/opinion/thepoint/obama-convention-speech-harris
