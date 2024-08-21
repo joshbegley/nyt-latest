@@ -1,3 +1,11 @@
+**Biden’s Exit Transformed Democratic Fund-Raising**\
+`When Vice President Kamala Harris became the party’s nominee, the money started to flow.`\
+https://nytimes.com/2024/08/21/us/politics/biden-harris-fundraising.html
+
+**Submit your questions for Pete Sampson’s Notre Dame football mailbag**\
+`What's on your mind about the Irish with the trip to Texas A&M just days away?`\
+https://nytimes.com/athletic/5714500/2024/08/21/notre-dame-football-mailbag-questions-13/
+
 **Worrall close to completing Burnley move from Nottingham Forest**\
 `Former Nottingham Forest captain Joe Worrall is close to completing a permanent move to Burnley.`\
 https://nytimes.com/athletic/5714413/2024/08/21/joe-worrall-burnley-nottingham-forest/
