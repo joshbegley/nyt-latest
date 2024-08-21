@@ -1,3 +1,7 @@
+**The best up-and-coming men's tennis players to watch in 2024 and beyond**\
+`Which ATP tennis players are poised to become the 'next gen' for the men's game?`\
+https://nytimes.com/athletic/5711343/2024/08/21/atp-next-gen-best-young-tennis-players-men/
+
 **Struggling starters put Dodgers in a confounding place: 'It's not ideal'**\
 `Los Angeles faces having to allow two pitchers to figure things out while the division is still very much in the balance.`\
 https://nytimes.com/athletic/5713691/2024/08/21/dodgers-walker-buehler/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5713659/2024/08/21/padres-twins-comeback-jurickson-
 **Late Night Suspects Convention Is a ‘Bitter Pill’ for Biden**\
 `“All night, Democrats were chanting ‘We love you, Joe!’ while Biden must have been thinking, ‘Um, apparently not as much as others,” Jimmy Fallon said.`\
 https://nytimes.com/2024/08/21/arts/television/late-night-biden-dnc.html
-
-**Word of the Day: prolific**\
-`This word has appeared in 738 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/08/21/learning/word-of-the-day-prolific.html
 
