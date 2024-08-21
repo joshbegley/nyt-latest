@@ -1,3 +1,11 @@
+**Dylan Raiola named Nebraska's starting QB**\
+`Raiola, a 2024 top-10 recruit, is the first true freshman to start a season opener for Nebraska since Adrian Martinez in 2018.`\
+https://nytimes.com/athletic/5714549/2024/08/21/true-freshman-dylan-raiola-named-nebraskas-starting-qb-for-season-opener/
+
+**A ‘Speedy Little Star’ May Be on Course to Escape Our Galaxy**\
+`The so-called hypervelocity object, which is either a low-mass star or a brown dwarf, is traveling through the Milky Way at around a million miles an hour.`\
+https://nytimes.com/2024/08/21/science/speeding-star-escape-galaxy.html
+
 **Nicholas A DiMarzio**\
 `News about Nicholas A DiMarzio. Commentary and archival information about Nicholas A DiMarzio from The New York Times.`\
 https://nytimes.com/topic/nicholas-a-dimarzio
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5714413/2024/08/21/joe-worrall-burnley-nottingham-f
 **WBC reveals 2026 tournament schedule, format**\
 `The United States, which finished runner-up to Japan in 2023, will be in Pool B with Mexico, Italy, Great Britain.`\
 https://nytimes.com/athletic/5714377/2024/08/21/world-baseball-classic-2026-schedule/
-
-**Harris Goes Light on Climate Policy. Green Leaders Are OK With That.**\
-`President Biden made climate change a cornerstone of his agenda. Vice President Kamala Harris has yet to detail her own plan.`\
-https://nytimes.com/2024/08/21/climate/climate-policy-harris.html
-
-**Coming Soon to Jersey City: A Gleaming Home for the Symphony**\
-`The New Jersey Symphony, which long lacked a permanent space, will move into a 550-seat theater that it hopes to make a hub for concerts and classes.`\
-https://nytimes.com/2024/08/21/arts/music/new-jersey-symphony-new-concert-hall.html
 
