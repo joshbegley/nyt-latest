@@ -6,7 +6,7 @@ https://nytimes.com/2024/08/21/world/asia/thailand-mpox.html
 `The Athletic is invited behind the scenes at NBC for the Premier League games at Old Trafford, the London Stadium and Stamford Bridge`\
 https://nytimes.com/athletic/5712144/2024/08/21/premier-league-nbc-epl-lowe/
 
-**Everton have a right-back shortage - is Roman Dixon ready for the first-team?**\
+**Everton have a right-back shortage - is Roman Dixon ready for the first team?**\
 `Sean Dyche's three senior right-backs will not feature against Spurs. It means the impressive 19-year-old could get the call on Saturday`\
 https://nytimes.com/athletic/5713767/2024/08/21/everton-roman-dixon-sean-dyche-right-back/
 
