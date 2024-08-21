@@ -1,3 +1,11 @@
+**History Shows How Autoworkers Could Be Crucial for Harris**\
+`Especially given Trump’s admiration for breaking strikes.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/auto-workers-harris-campaign
+
+**Colts' Anthony Richardson struggles in practice with Bengals: 'Is that all he does is run?'**\
+`Richardson ended Tuesday's practice against the Bengals 10-of-20 passing with one INT, one touchdown and a lot of frustration.`\
+https://nytimes.com/athletic/5713201/2024/08/20/indianapolis-colts-anthony-richardson-bengals-practice/
+
 **U.S. Army Soldier Charged With Lying About Ties to Insurrectionist Group**\
 `The soldier, Kai Liam Nix, 20, who was stationed at Fort Liberty in North Carolina, is also accused of illegally selling firearms.`\
 https://nytimes.com/2024/08/20/us/north-carolina-soldier-arrested-guns-trafficking.html
