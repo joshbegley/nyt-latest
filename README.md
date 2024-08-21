@@ -1,3 +1,7 @@
+**Walmart Dumps Entire Stake in China’s JD.com**\
+`Walmart’s divestiture comes as its e-commerce partner has struggled to maintain its market share in the country’s cutthroat online sales industry.`\
+https://nytimes.com/2024/08/21/business/walmart-jd-com-china.html
+
 **Could Royals star Bobby Witt Jr. be the first player in decades to hit .400 ... at home?**\
 `Even as batting averages continue to fall across MLB, Witt is chasing .400 at spacious Kauffmann Field. `\
 https://nytimes.com/athletic/5712920/2024/08/21/bobby-witt-mlb-royals-400-hitter/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5712468/2024/08/21/falcons-helmet-cameras-kirk-cous
 **For Tim Walz, the Convention Is Like Marrying Into a Very Large Family**\
 `Every Democrat in Chicago wants to meet him, and maybe give him a hug. “I love him,” one delegate said. “He reminds me of Chris Farley — you know, the man down by the river.”`\
 https://nytimes.com/2024/08/21/us/politics/tim-walz-convention-democrats.html
-
-**Celebrity Assistants Have an Impossible Job. I Know, Because I Was One.**\
-`I was Harvey Weinstein’s assistant. I understand all too well the toxic nature of the relationship between celebrities and the people they employ.`\
-https://nytimes.com/2024/08/21/opinion/mattew-perry-assistant-overdose.html
 
