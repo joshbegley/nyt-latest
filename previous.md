@@ -23,7 +23,7 @@ https://nytimes.com/2024/08/21/pageoneplus/corrections-aug-21-2024.html
 https://nytimes.com/2024/08/21/pageoneplus/quotation-of-the-day-braving-the-wild-to-rescue-the-rarest-of-flowers.html
 
 **Here Is the Kamala Harris Roll Call Playlist**\
-`As each state delegation was called on, it was accompanied by a song.`\
+`As each state delegation was called on, the moment was accompanied by a song.`\
 https://nytimes.com/2024/08/21/us/elections/harris-dnc-roll-call-dj-cassidy.html
 
 **Onana is bringing height and awareness to Villa's midfield - he is now Emery's key man**\

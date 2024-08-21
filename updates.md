@@ -1,3 +1,7 @@
+**Here Is the Kamala Harris Roll Call Playlist**\
+`As each state delegation was called on, the moment was accompanied by a song.`\
+https://nytimes.com/2024/08/21/us/elections/harris-dnc-roll-call-dj-cassidy.html
+
 **Word of the Day: prolific**\
 `This word has appeared in 738 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/21/learning/word-of-the-day-prolific.html
