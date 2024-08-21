@@ -1,3 +1,7 @@
+**Cooper DeJean 'excited' for potential Eagles preseason debut**\
+`Plus, notes from the last practice of training camp.`\
+https://nytimes.com/athletic/5714849/2024/08/21/cooper-dejean-eagles-preseason-debut/
+
 **Joseph A Ripp**\
 `News about Joseph A Ripp. Commentary and archival information about Joseph A Ripp from The New York Times.`\
 https://nytimes.com/topic/joseph-a-ripp
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/21/us/babysitter-manslaughter-sentencing-florida.htm
 **Studio Pulls ‘Megalopolis’ Trailer Featuring Fake Review Quotes**\
 `To promote Francis Ford Coppola’s epic, the spot used supposed lines from The Times, The New Yorker and others to suggest critics were wrong about him.`\
 https://nytimes.com/2024/08/21/movies/megalopolis-trailer-fake-quotes.html
-
-**On the bubble: Jalen Graham and other 49ers face final chance to earn their spot**\
-`One of the hardest positions to winnow down this year might be cornerback, where eight players are vying for perhaps five roster spots.`\
-https://nytimes.com/athletic/5715522/2024/08/21/49ers-roster-bubble-jalen-graham/
 
