@@ -1,3 +1,7 @@
+**Grandchildren of Two Past Democratic Presidents Say Harris Is Party’s Future**\
+`Jack Schlossberg, grandson of John F. Kennedy, and Jason Carter, grandson of Jimmy Carter, told the Democratic convention on Tuesday that Kamala Harris was the natural heir to their ancestors’ legacy.`\
+https://nytimes.com/2024/08/20/us/politics/jack-schlossberg-jason-carter-dnc.html
+
 **Behind the Blues' successful offer sheets: 'If there is a GM code, no one emailed it to me'**\
 `GM Doug Armstrong pried Philip Broberg and Dylan Holloway from Edmonton with offer sheets that the Oilers didn't match.`\
 https://nytimes.com/athletic/5711769/2024/08/20/blues-offer-sheets-holloway-broberg/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/style/crest-hardware-brooklyn.html
 **Bengals, Joe Burrow look ready for season in joint practice against Colts**\
 `The quarterback showed no signs of last year's injuries while clicking with Tee Higgins and Mike Gesicki on Tuesday.`\
 https://nytimes.com/athletic/5713148/2024/08/20/bengals-joe-burrow-joint-practice-colts/
-
-**Woman Lost for 4 Days in Colorado Mountains Is Rescued**\
-`Gina Chase went camping with an organization that recommended participants fast and discouraged cellphones during a spiritual retreat, the authorities said.`\
-https://nytimes.com/2024/08/20/us/colorado-missing-woman-spiritual-quest.html
 
