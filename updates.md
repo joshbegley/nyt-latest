@@ -1,3 +1,11 @@
+**Blackhawks fan survey: The captaincy, the draft, and the state of the rebuild**\
+`After roughly 1,700 Blackhawks fans voted in our survey, the results are in: Optimism still reigns — to an extent.`\
+https://nytimes.com/athletic/5708214/2024/08/21/2024-25-blackhawks-fan-survey-connor-bedard-captaincy-nhl-draft-and-rebuild/
+
+**Gunman Kills 3 People at School in Bosnia**\
+`The attacker, a school employee, used a “military weapon, an automatic rifle” before then attempting to kill himself, a police spokesman said.`\
+https://nytimes.com/2024/08/21/world/europe/bosnia-school-shooting.html
+
 **Investors Brace for a Jobs Wipeout**\
 `Economists forecast that a revision to payrolls data could undercut a robust picture of the labor market, further pressuring the Federal Reserve to cut rates.`\
 https://nytimes.com/2024/08/21/business/dealbook/jobs-data-revisions-fed.html
