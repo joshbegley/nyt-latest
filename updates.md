@@ -1,3 +1,7 @@
+**Germany's Neuer retires from international football**\
+`Germany goalkeeper Manuel Neuer has confirmed his retirement from international football.`\
+https://nytimes.com/athletic/5714226/2024/08/21/manuel-neuer-germany-retires/
+
 **Arsenal's Patino set to join Deportivo in £1m deal**\
 `Charlie Patino is close to making a permanent departure from Arsenal to join Deportivo La Coruna in a transfer worth around £1million with a sell-on clause included.`\
 https://nytimes.com/athletic/5714246/2024/08/21/charlie-patino-deportivo-transfer-arsenal/

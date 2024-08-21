@@ -1,3 +1,7 @@
+**Germany's Neuer retires from international football**\
+`Germany goalkeeper Manuel Neuer has confirmed his retirement from international football.`\
+https://nytimes.com/athletic/5714226/2024/08/21/manuel-neuer-germany-retires/
+
 **Arsenal's Patino set to join Deportivo in £1m deal**\
 `Charlie Patino is close to making a permanent departure from Arsenal to join Deportivo La Coruna in a transfer worth around £1million with a sell-on clause included.`\
 https://nytimes.com/athletic/5714246/2024/08/21/charlie-patino-deportivo-transfer-arsenal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5713149/2024/08/21/49ers-training-camp-offensive-ro
 **Should We Tell Our Tween Daughter That Her Father Had a Nose Job?**\
 `When a couple’s 12-year-old starts to point out that no one else in the family seems to have a nose like hers, they can’t agree whether to tell her why.`\
 https://nytimes.com/2024/08/21/style/nose-job-discussion-child.html
-
-**Peltola Finishes First in Alaska House Primary, With Begich as Top Challenger**\
-`The conservative son of a prominent liberal Alaska political family came in second in a ranked-choice primary that could play out similarly to 2022, when Republicans split their votes and elected a Democrat.`\
-https://nytimes.com/2024/08/21/us/politics/peltola-alaska-house-primary-dahlstrom-begich.html
 
