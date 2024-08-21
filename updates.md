@@ -1,3 +1,7 @@
+**Late Night Suspects Convention Is a ‘Bitter Pill’ for Biden**\
+`“All night, Democrats were chanting ‘We love you, Joe!’ while Biden must have been thinking, ‘Um, apparently not as much as others,” Jimmy Fallon said.`\
+https://nytimes.com/2024/08/21/arts/television/late-night-biden-dnc.html
+
 **Here Is the Kamala Harris Roll Call Playlist**\
 `As each state delegation was called on, the moment was accompanied by a song.`\
 https://nytimes.com/2024/08/21/us/elections/harris-dnc-roll-call-dj-cassidy.html

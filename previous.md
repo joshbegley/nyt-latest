@@ -1,3 +1,7 @@
+**Late Night Suspects Convention Is a ‘Bitter Pill’ for Biden**\
+`“All night, Democrats were chanting ‘We love you, Joe!’ while Biden must have been thinking, ‘Um, apparently not as much as others,” Jimmy Fallon said.`\
+https://nytimes.com/2024/08/21/arts/television/late-night-biden-dnc.html
+
 **Word of the Day: prolific**\
 `This word has appeared in 738 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/21/learning/word-of-the-day-prolific.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5706712/2024/08/21/amadou-onana-aston-villa-unai-em
 **Introducing the newest ground on the Ninety-Two Club's list: Hayes Lane, Bromley**\
 `Richard Sutcliffe visits the newest destination for fans out to tick off visits to all 92 stadiums in English football's top four divisions`\
 https://nytimes.com/athletic/5697757/2024/08/21/bromley-the-92-club/
-
-**D.N.C. Holds Enthusiastic Roll Call to Nominate Harris**\
-`Delegates from each state and territory cast votes to nominate Vice President Kamala Harris as the official standard-bearer of the Democratic Party.`\
-https://nytimes.com/video/us/elections/100000009646174/dnc-roll-call-chicago-kamala-harris.html
 
