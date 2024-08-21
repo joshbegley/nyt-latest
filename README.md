@@ -1,3 +1,11 @@
+**What’s in the Latest U.S. Proposal for a Gaza Cease-Fire?**\
+`The Biden administration is pushing for a deal between Israel and Hamas with renewed urgency after months of lagging talks. Here’s a closer look at what the main differences appear to be.`\
+https://nytimes.com/2024/08/21/world/middleeast/gaza-ceasefire-proposal-israel-hamas.html
+
+**Maresca on Chelsea squad: 'It is not a mess that it looks like from outside'**\
+`Enzo Maresca insists Chelsea are not in a mess over the size of their squad and denied he has been brutal over the axing of senior players like Raheem Sterling.`\
+https://nytimes.com/athletic/5714238/2024/08/21/chelsea-squad-enzo-maresca/
+
 **Inmate Who Escaped Mississippi Courthouse Is Captured After Standoff in Chicago**\
 `The authorities had been searching for Joshua Zimmerman, wanted for murder and other crimes, for nearly 70 days. He was barricaded overnight in a restaurant.`\
 https://nytimes.com/2024/08/21/us/escaped-mississippi-inmate-chicago-restaurant.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5713080/2024/08/21/detroit-lions-wide-receivers-cut
 **Fulham submit offer for Lyon's Cherki**\
 `Fulham have submitted an offer for Lyon attacking midfielder Rayan Cherki.`\
 https://nytimes.com/athletic/5713946/2024/08/21/fulham-transfers-rayan-cherki/
-
-**Chase Elliott on what he'd change about NASCAR and more: 12 Questions**\
-`Hendrick Motorsports star Chase Elliott gives his thoughts on the NASCAR schedule, keeping his own schedule under control and more.`\
-https://nytimes.com/athletic/5712726/2024/08/21/chase-elliott-nascar-12-questions/
-
-**Sterling keen to leave Chelsea on permanent basis**\
-`Raheem Sterling has expressed a preference to leave Chelsea on a permanent basis after it became clear that at present he is not part of the club&#8217;s plans going forward.`\
-https://nytimes.com/athletic/5712124/2024/08/21/raheem-sterling-chelsea-transfer-permanent/
 
