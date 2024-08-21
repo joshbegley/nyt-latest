@@ -1,3 +1,15 @@
+**Bill Clinton, From Star to Scandal to Statesman, Seeks to Lift Up Harris**\
+`Mr. Clinton’s political history of boom and bust has made him one of the most enduring figures of modern American life, if not always its most accepted.`\
+https://nytimes.com/2024/08/21/us/politics/bill-clinton-dnc-speech.html
+
+**Ex-U.S. Airman Charged With Child Pornography Appears in Russian Propaganda Video**\
+`“I don’t consider myself a traitor,” said Wilmer Puello-Mota, who has enlisted in the Russian military.`\
+https://nytimes.com/2024/08/21/world/europe/wilmer-puello-mota-airman-russia.html
+
+**Israel and Hezbollah Trade Cross-Border Strikes**\
+`The strikes, in eastern Lebanon and the Israeli-controlled Golan Heights, underscored how months of talks have failed to stop either the war in Gaza or the related conflict along the Lebanese border.`\
+https://nytimes.com/2024/08/21/world/middleeast/israel-hezbollah-strikes.html
+
 **A McDonald’s name tag becomes a middle-class badge of honor on the D.N.C. stage.**\
 `By Kellen Browning`\
 https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/a-mcdonalds-name-tag-becomes-a-middle-class-badge-of-honor-on-the-dnc-stage
