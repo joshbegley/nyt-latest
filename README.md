@@ -1,3 +1,7 @@
+**Thailand Reports Mpox Case in Traveler Who Arrived From Africa**\
+`Officials are testing if the patient has the new version of the virus. If confirmed, it would be Thailand’s first case involving Clade Ib mpox.`\
+https://nytimes.com/2024/08/21/world/asia/thailand-mpox.html
+
 **Access all areas at NBC: Three Premier League games, a Winnebago and tactical sushi**\
 `The Athletic is invited behind the scenes at NBC for the Premier League games at Old Trafford, the London Stadium and Stamford Bridge`\
 https://nytimes.com/athletic/5712144/2024/08/21/premier-league-nbc-epl-lowe/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5710347/2024/08/21/eddie-nketiah-nottingham-forest-
 **Video Shows the Aftermath of a Bus Crash in Iran that Killed Dozens**\
 `The wreckage of the vehicle that overturned in Iran, killing at least 28 pilgrims from Pakistan, in footage broadcast on an Iranian TV channel.`\
 https://nytimes.com/video/world/middleeast/100000009646446/video-shows-aftermath-of-bus-crash-in-iran-that-killed-dozens.html
-
-**Cutdown day preview: Will Vikings part with Lewis Cine? Will any undrafted players stick?**\
-`Roster cutdown day is less than a week away, and the Vikings will have tough decisions to make on both lines and in the secondary.`\
-https://nytimes.com/athletic/5712323/2024/08/21/minnesota-vikings-cuts-lewis-cine-jaren-hall/
 
