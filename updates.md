@@ -1,3 +1,7 @@
+**The Democrats’ Answer to Hulk Hogan**\
+`Tim Walz will embody his party’s retort to the mega-masculinity of Trumpism on display last month.`\
+https://nytimes.com/2024/08/21/us/politics/the-democrats-answer-to-hulk-hogan.html
+
 **Cooper DeJean 'excited' for potential Eagles preseason debut**\
 `Plus, notes from the last practice of training camp.`\
 https://nytimes.com/athletic/5714849/2024/08/21/cooper-dejean-eagles-preseason-debut/

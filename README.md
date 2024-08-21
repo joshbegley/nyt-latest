@@ -1,3 +1,7 @@
+**Giants crack under the pressure in damaging loss to White Sox: 'We came out flat'**\
+`"(W)e all have to put our heads down and we have to win every game. You can't say that, right? But you've got to think that way," Webb said.`\
+https://nytimes.com/athletic/5715674/2024/08/21/sf-giants-loss-white-sox/
+
 **The Democrats’ Answer to Hulk Hogan**\
 `Tim Walz will embody his party’s retort to the mega-masculinity of Trumpism on display last month.`\
 https://nytimes.com/2024/08/21/us/politics/the-democrats-answer-to-hulk-hogan.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5715301/2024/08/21/buffalo-bills-practice-cole-bish
 **Ana Navarro addresses Republican remarks on communism with her own story.**\
 `By Jazmine Ulloa`\
 https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/ana-navarro-addresses-republican-remarks-on-communism-with-her-own-story
-
-**Ex-Babysitter Gets 3 Years in Prison in 2019 Death of Man She Injured as a Baby**\
-`Terry McKirchy, 62, violently shook Benjamin Dowling while babysitting for him in 1984, prosecutors said. She was charged with murder after he died from his injuries 35 years later.`\
-https://nytimes.com/2024/08/21/us/babysitter-manslaughter-sentencing-florida.html
 
