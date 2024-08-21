@@ -1,3 +1,7 @@
+**Something in the Air**\
+`Stacey Yaruss McCullough makes her New York Times debut.`\
+https://nytimes.com/2024/08/20/crosswords/daily-puzzle-2024-08-21.html
+
 **Convention Insider: Chuck Schumer Takes Chicago**\
 `Nearly 800 miles from home in Brooklyn, the Senate majority leader found friends galore at the convention.`\
 https://nytimes.com/2024/08/20/us/elections/chuck-schumer-dnc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/us/north-carolina-soldier-arrested-guns-trafficki
 **Jennifer Lopez Files for Divorce From Ben Affleck**\
 `The A-list couple, who married in 2022, had attempted to rekindle their romance after close to two decades.`\
 https://nytimes.com/2024/08/20/style/jennifer-lopez-ben-affleck-divorce.html
-
-**Padres’ Ha-Seong Kim (shoulder) goes on injured list for first time in career**\
-`The Padres recalled infielder Matthew Batten in Kim's place, though the 2023 Gold Glover could return as soon as Aug. 29.`\
-https://nytimes.com/athletic/5713318/2024/08/20/ha-seong-kim-first-il-stint/
 

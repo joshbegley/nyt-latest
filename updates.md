@@ -1,3 +1,7 @@
+**Something in the Air**\
+`Stacey Yaruss McCullough makes her New York Times debut.`\
+https://nytimes.com/2024/08/20/crosswords/daily-puzzle-2024-08-21.html
+
 **Convention Insider: Chuck Schumer Takes Chicago**\
 `Nearly 800 miles from home in Brooklyn, the Senate majority leader found friends galore at the convention.`\
 https://nytimes.com/2024/08/20/us/elections/chuck-schumer-dnc.html
