@@ -1,3 +1,11 @@
+**Special teams coach Trevor Reilly no longer on Colorado staff**\
+`Following Reilly’s departure, just two on-field Colorado staffers are still in the same roles they held when the 2023 season began.`\
+https://nytimes.com/athletic/5713283/2024/08/20/deion-sanders-trevor-reilly-colorado-coach/
+
+**4 Questions to Ask Before Reuniting With an Ex-Partner**\
+`As Jennifer Lopez and Ben Affleck show, rekindling an old romance is risky. We asked couples counselors what you should ask before diving back in.`\
+https://nytimes.com/2024/08/20/well/family/affleck-lopez-divorce-reunite-ex.html
+
 **Uncommitted delegates protesting the war in Gaza are trying to make their voices heard.**\
 `By Jonathan Weisman`\
 https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/uncommitted-delegates-protesting-the-war-in-gaza-are-trying-to-make-their-voices-heard
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5713059/2024/08/20/49ers-dominick-puni-fred-warner/
 **Jeffrey A. Rosen**\
 `News about Jeffrey A. Rosen. Commentary and archival information about Jeffrey A. Rosen from The New York Times.`\
 https://nytimes.com/topic/jeffrey-a-rosen
-
-**Only in America? U.S. leaders love to tout humble origins that aren’t so exceptional.**\
-`By Annie Karni`\
-https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/only-in-america-us-leaders-love-to-tout-humble-origins-that-arent-so-exceptional
-
-**After 62 Years, Brooklyn Says Goodbye to a Local Hardware Store**\
-`To mourn the closure of Crest Hardware, a beloved family business in Williamsburg, fans of the store held a wake and staged a second line march.`\
-https://nytimes.com/2024/08/20/style/crest-hardware-brooklyn.html
 
