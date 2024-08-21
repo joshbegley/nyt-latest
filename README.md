@@ -1,3 +1,7 @@
+**Ana Navarro addresses Republican remarks on communism with her own story.**\
+`By Jazmine Ulloa`\
+https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/ana-navarro-addresses-republican-remarks-on-communism-with-her-own-story
+
 **Ex-Babysitter Gets 3 Years in Prison in 2019 Death of Man She Injured as a Baby**\
 `Terry McKirchy, 62, violently shook Benjamin Dowling while babysitting for him in 1984, prosecutors said. She was charged with murder after he died from his injuries 35 years later.`\
 https://nytimes.com/2024/08/21/us/babysitter-manslaughter-sentencing-florida.html
@@ -7,7 +11,7 @@ https://nytimes.com/2024/08/21/us/babysitter-manslaughter-sentencing-florida.htm
 https://nytimes.com/2024/08/21/movies/megalopolis-trailer-fake-quotes.html
 
 **On the bubble: Jalen Graham and other 49ers face final chance to earn their spot**\
-`One of the hardest positions to winnow down this year might be cornerback where eight players are vying for perhaps five roster spots.`\
+`One of the hardest positions to winnow down this year might be cornerback, where eight players are vying for perhaps five roster spots.`\
 https://nytimes.com/athletic/5715522/2024/08/21/49ers-roster-bubble-jalen-graham/
 
 **Transcript: Ezra Klein on Barack Obama and Michelle Obama’s Convention Speeches**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5715343/2024/08/21/jets-giants-joint-practice-obser
 **Paramount Extends Talks With New Bidder, Unsettling Skydance Deal**\
 `Edgar Bronfman Jr. and his bidding group now have until September to sell Paramount on their offer.`\
 https://nytimes.com/2024/08/21/business/media/paramount-skydance-bronfman.html
-
-**Convention Insider: Lauren Underwood Is Right at Home in Chicago**\
-`The congresswoman is in her home city, and has been a selfie magnet for sorority sisters and young Democrats.`\
-https://nytimes.com/2024/08/21/us/politics/lauren-underwood-dnc-chicago.html
 
