@@ -1,3 +1,7 @@
+**Javier Báez will always be a Cubs legend but there is no magic in his return to Wrigley**\
+`Báez returned to Chicago scuffling through another season with the Tigers, who must be looking to get out from under his big contract.`\
+https://nytimes.com/athletic/5713557/2024/08/21/tigers-cubs-javier-baez-return-wrigley/
+
 **Who’s the Change Candidate?**\
 `Inside the fight over who most represents change ahead of November.`\
 https://nytimes.com/2024/08/21/briefing/harris-trump-2024-election-change.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5711883/2024/08/21/packers-mailbag-sean-clifford-mi
 **Big Ten football tiers: How many of the 18 teams can make new Playoff?**\
 `The expanded Big Ten has two national title contenders, multiple teams that can make a CFP run and others in the midst of a rebuild.`\
 https://nytimes.com/athletic/5700994/2024/08/21/big-ten-football-tiers-rankings-cfp-projections/
-
-**Hollinger: The 5 best under-the-radar moves from the NBA offseason**\
-`These transactions from the past couple of months deserve a little more attention than they received initially. Let's give it to them.`\
-https://nytimes.com/athletic/5711191/2024/08/21/nba-underrated-trades-signings-klay-thompson-tyus-jones/
 
