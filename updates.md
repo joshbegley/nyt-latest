@@ -1,3 +1,11 @@
+**Hadley Duvall Says Her Abortion Speech Will ‘Keep My Heart Full’**\
+`Ms. Duvall, a sexual abuse survivor, was one of three women who shared their personal stories at the Democratic convention to support Vice President Kamala Harris.`\
+https://nytimes.com/2024/08/21/us/politics/hadley-duvall-dnc-abortion.html
+
+**SEC announces football tiebreakers for 16-team era**\
+`The SEC also discussed a player availability report similar to the NFL and the Big Ten, but have not yet finalized it.`\
+https://nytimes.com/athletic/5715256/2024/08/21/sec-football-tiebreaker-rules-2024-championship-game/
+
 **Yankees' Aaron Judge has 'no response' for Staten Island Little League coach that ripped him**\
 `South Shore manager Bob Laterza criticized the slugger on Monday for not waving to his players at the Little League Classic on Sunday. `\
 https://nytimes.com/athletic/5715319/2024/08/21/yankees-aaron-judge-little-league-coach/

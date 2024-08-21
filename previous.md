@@ -1,3 +1,7 @@
+**Hadley Duvall Says Her Abortion Speech Will ‘Keep My Heart Full’**\
+`Ms. Duvall, a sexual abuse survivor, was one of three women who shared their personal stories at the Democratic convention to support Vice President Kamala Harris.`\
+https://nytimes.com/2024/08/21/us/politics/hadley-duvall-dnc-abortion.html
+
 **Yankees' Aaron Judge has 'no response' for Staten Island Little League coach that ripped him**\
 `South Shore manager Bob Laterza criticized the slugger on Monday for not waving to his players at the Little League Classic on Sunday. `\
 https://nytimes.com/athletic/5715319/2024/08/21/yankees-aaron-judge-little-league-coach/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/5715319/2024/08/21/yankees-aaron-judge-little-leagu
 https://nytimes.com/2024/08/21/opinion/ezra-klein-podcast-dnc-digest-2.html
 
 **SEC announces football tiebreakers for 16-team era**\
-`The SEC also discussed a player availability report similar but have not yet finalized it.`\
+`The SEC also discussed a player availability report similar to the NFL and the Big Ten, but have not yet finalized it.`\
 https://nytimes.com/athletic/5715256/2024/08/21/sec-football-tiebreaker-rules-2024-championship-game/
 
 **Andy Kim, Who Cleaned the Capitol After Jan. 6, Will Address the Convention**\
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/08/21/world/israel-iran-hamas-gaza-war/aides-to-tr
 **Liberals Needed a Beyoncé Moment. Kamala Harris Is Delivering One.**\
 `The vice president is giving Democrats what they want while disorienting Donald Trump.`\
 https://nytimes.com/2024/08/21/opinion/kamala-harris-beyonce-convention.html
-
-**Dozens of Protesters Arrested in Chicago as Democrats Meet**\
-`At least 55 demonstrators, including three journalists, were detained on Tuesday night after protesters gathered outside the Israeli consulate and then scuffled with the police.`\
-https://nytimes.com/2024/08/21/us/chicago-dnc-protest-arrests.html
 
