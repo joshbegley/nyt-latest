@@ -1,3 +1,11 @@
+**Nicholas A Slatten**\
+`News about Nicholas A Slatten. Commentary and archival information about Nicholas A Slatten from The New York Times.`\
+https://nytimes.com/topic/nicholas-a-slatten
+
+**What’s in Our Queue? ‘Dear Ex’ and More**\
+`I cover news in China and Taiwan with a focus on the technology sector for The Times. Here are five things I’ve been watching, reading and listening to.`\
+https://nytimes.com/interactive/2024/08/21/arts/editors-recommendations-dearex.html
+
 **Submit questions for Tim Kawakami's August mailbag**\
 `This ought to be a good time for a surprise mailbag edition. Fire away. `\
 https://nytimes.com/athletic/5714795/2024/08/21/submit-questions-for-tim-kawakamis-august-mailbag/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/21/us/politics/dnc-delegates.html
 **The Very Effective Schlubbiness of Doug Emhoff**\
 `For many Jews of his age, Emhoff’s path to the convention stage has been astonishingly familiar.`\
 https://nytimes.com/live/2024/08/20/opinion/thepoint/doug-emhoff-american-jews
-
-**Bill Pascrell Jr., 14-Term House Democrat From N.J., Dies at 87**\
-`An outspoken progressive, he vigorously opposed President Donald J. Trump and focused on legislation to help “regular Americans pay their bills.”`\
-https://nytimes.com/2024/08/21/nyregion/bill-pascrell-dead.html
-
-**As N.Y.C. Reading Scores Slip Under New Program, Officials Urge Patience**\
-`Math scores notched upward in the city, and officials said the drop in reading was explained in part by an effort to change reading instruction and retrain hundreds of teachers.`\
-https://nytimes.com/2024/08/21/nyregion/nyc-math-reading-test-scores.html
 

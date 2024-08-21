@@ -1,3 +1,11 @@
+**Nicholas A Slatten**\
+`News about Nicholas A Slatten. Commentary and archival information about Nicholas A Slatten from The New York Times.`\
+https://nytimes.com/topic/nicholas-a-slatten
+
+**What’s in Our Queue? ‘Dear Ex’ and More**\
+`I cover news in China and Taiwan with a focus on the technology sector for The Times. Here are five things I’ve been watching, reading and listening to.`\
+https://nytimes.com/interactive/2024/08/21/arts/editors-recommendations-dearex.html
+
 **Submit questions for Tim Kawakami's August mailbag**\
 `This ought to be a good time for a surprise mailbag edition. Fire away. `\
 https://nytimes.com/athletic/5714795/2024/08/21/submit-questions-for-tim-kawakamis-august-mailbag/
