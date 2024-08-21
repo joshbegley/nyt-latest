@@ -1,3 +1,7 @@
+**Doug Emhoff, Both Earnest and Poking Fun at Himself, Talks Up His Wife**\
+`The second gentleman drew on his relationship with Kamala Harris in his speech at the Democratic convention, telling a story about a bumbling voice mail message he left her early on.`\
+https://nytimes.com/2024/08/20/us/politics/doug-emhoff-speech.html
+
 **With a chance to topple decimated Braves, Phillies kick series off with a dud**\
 `The Braves may be depleted, but they aren't letting up, and it's up to the first-place Phillies to respond.`\
 https://nytimes.com/athletic/5713534/2024/08/20/phillies-braves-begins-with-dud/
