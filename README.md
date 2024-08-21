@@ -1,3 +1,7 @@
+**Uncommitted delegates protesting the war in Gaza are trying to make their voices heard.**\
+`By Jonathan Weisman`\
+https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/uncommitted-delegates-protesting-the-war-in-gaza-are-trying-to-make-their-voices-heard
+
 **Grandchildren of Two Past Democratic Presidents Say Harris Is Party’s Future**\
 `Jack Schlossberg, grandson of John F. Kennedy, and Jason Carter, grandson of Jimmy Carter, told the Democratic convention on Tuesday that Kamala Harris was the natural heir to their ancestors’ legacy.`\
 https://nytimes.com/2024/08/20/us/politics/jack-schlossberg-jason-carter-dnc.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/only-in-america-us-
 **After 62 Years, Brooklyn Says Goodbye to a Local Hardware Store**\
 `To mourn the closure of Crest Hardware, a beloved family business in Williamsburg, fans of the store held a wake and staged a second line march.`\
 https://nytimes.com/2024/08/20/style/crest-hardware-brooklyn.html
-
-**Bengals, Joe Burrow look ready for season in joint practice against Colts**\
-`The quarterback showed no signs of last year's injuries while clicking with Tee Higgins and Mike Gesicki on Tuesday.`\
-https://nytimes.com/athletic/5713148/2024/08/20/bengals-joe-burrow-joint-practice-colts/
 
