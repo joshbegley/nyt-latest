@@ -1,3 +1,7 @@
+**Pakistan Arrests Man Over Disinformation That Helped Spur U.K. Riots**\
+`Local police sources indicated that the arrest was made at the request of the British authorities, although there was no official confirmation.`\
+https://nytimes.com/2024/08/21/world/asia/pakistan-arrest-southport-riots.html
+
 **It’s Prime Time for Democrats to Stick to Their Scripts**\
 `Convention planners need to be ruthless about scheduling, or risk losing their audience.`\
 https://nytimes.com/live/2024/08/20/opinion/thepoint/convention-speakers-scheduling-primetime
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/21/us/politics/harris-attack-lines-trump.html
 **In Chicago, Democrats Warn of Threat to Democracy**\
 `Even amid a more optimistic vibe, convention speakers remind delegates of Donald J. Trump’s efforts to overturn the 2020 election.`\
 https://nytimes.com/2024/08/21/us/elections/democratic-convention-democracy.html
-
-**Leeds agree deal to sign ex-Man Utd youngster Ramazani**\
-`Leeds United have agreed a deal to sign Belgian forward Largie Ramazani from Almeria.`\
-https://nytimes.com/athletic/5715053/2024/08/21/leeds-united-largie-ramazani/
 
