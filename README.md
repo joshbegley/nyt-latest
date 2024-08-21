@@ -1,3 +1,11 @@
+**Sooners dip into Texas to land 5-star OT Michael Fasusi**\
+`Fasusi, originally from Nigeria, is ranked No. 12 overall and the No. 3 offensive tackle in the 247Sports Composite.`\
+https://nytimes.com/athletic/5714236/2024/08/21/oklahoma-recruiting-michael-fasusi/
+
+**A Woman’s Family Reported Her Missing. Her Body Was in Hospital Storage, Lawsuit Says.**\
+`Jessie Peterson, 31, died at a hospital in April 2023. Her family members, who filed a missing persons report, were not told that she had died until a year later, according to a negligence lawsuit.`\
+https://nytimes.com/2024/08/21/us/missing-woman-hospital-sacramento-lawsuit.html
+
 **Austin Dillon's appeal to be reinstated into NASCAR playoffs denied**\
 `Dillon took out two drivers in the final lap at Richmond Raceway in an attempt to bulldoze his way into the playoffs.`\
 https://nytimes.com/athletic/5715192/2024/08/21/austin-dillon-nascar-appeal-denied/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5715053/2024/08/21/leeds-united-largie-ramazani/
 **Cardinals option Nolan Gorman to Triple A in latest roster shakeup**\
 `The decision came after Gorman's August OPS dropped to .508. He was hitting just .212 on the month and had not homered or driven in a run.`\
 https://nytimes.com/athletic/5714748/2024/08/21/cardinals-nolan-gorman-optioned/
-
-**Kennedy Will Address His ‘Path Forward’ as Campaign Struggles**\
-`Robert F. Kennedy Jr. is running out of money and out of time to get on the ballot in various states. Rather than campaigning, he’s in court.`\
-https://nytimes.com/2024/08/21/nyregion/rfk-jr-presidential-campaign-speech.html
-
-**Should I Take My Share of a Class-Action Settlement I Think Could Be Bogus?**\
-`The magazine’s Ethicist columnist on whether it’s wrong to participate in a lawsuit you don’t really believe in.`\
-https://nytimes.com/2024/08/21/magazine/class-action-settlement-ethics.html
 
