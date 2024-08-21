@@ -1,8 +1,16 @@
+**“Donald told us to inject bleach.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/donald-told-us-to-inject-bleach
+
+**Man Who Faked Death to Avoid Child Support Gets 81 Months in Prison, U.S. Says**\
+`The man, Jesse Kipf, hacked into state death registry systems to fake his own death in part to avoid paying more than $100,000 in child support, federal prosecutors said.`\
+https://nytimes.com/2024/08/20/us/20xp-jesse-kipf-hacking-sentenced-kentucky.html
+
 **Cubs' release of Héctor Neris brings questions but is another sign team's looking forward**\
 `Neris had become an uncomfortable watch and Jack Neely was performing well in the minors. It was time to consider the future of the bullpen.`\
 https://nytimes.com/athletic/5713393/2024/08/20/cubs-release-hector-neris-bullpen-analysis/
 
-**Bernie Sanders Would Like a Word or Two With Kamala Harris**\
+**Bernie Throws a Curve Ball at Kamala**\
 `His list of policy promises put her on the hot seat.`\
 https://nytimes.com/live/2024/08/20/opinion/thepoint/bernie-sanders-kamala-harris
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5713389/2024/08/20/astros-outfield-problems-wilyer-
 **Delegates ‘Get Low’ With Lil Jon in a Musical Roll-Call Vote for Harris**\
 `The rapper, representing Georgia, briefly stole the show in Chicago with a surprise performance during a lively yet symbolic vote. Vice President Kamala Harris is already the party’s nominee.`\
 https://nytimes.com/2024/08/20/us/politics/lil-jon-dnc-harris.html
-
-**No one injured during fire emergency at Cowboys training camp hotel**\
-`The emergency occurred Tuesday afternoon in one of the hotel's guest rooms, which was empty at the time of the incident, the team said.`\
-https://nytimes.com/athletic/5713354/2024/08/20/dallas-cowboys-training-camp-fire/
-
-**Chargers training camp, Day 20: JT Woods getting extended audition at cornerback**\
-`A 2022 third-round pick who has disappointed at safety, Woods has been a playmaker at cornerback since switching positions last week.`\
-https://nytimes.com/athletic/5713350/2024/08/20/chargers-jt-woods-training-camp/
 
