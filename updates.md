@@ -1,3 +1,15 @@
+**Could That Garage Be Apartments? New York Hunts for Places to Build.**\
+`Mayor Eric Adams will sign an executive order that directs every city agency to investigate whether they have land that can be developed.`\
+https://nytimes.com/2024/08/21/nyregion/ny-housing-libraries-garages.html
+
+**A Photographer’s Deep Dive Into Murky Waters**\
+`Michael Turek recently descended 20 feet beneath the waves off New York’s coast to photograph divers who brave the green-tinged waters.`\
+https://nytimes.com/2024/08/21/insider/a-photographers-deep-dive-into-murky-waters.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/21/crosswords/spelling-bee-forum.html
+
 **Women’s Cricket World Cup Moved From Bangladesh Because of Unrest**\
 `The United Arab Emirates will host the tournament after many governments advised against traveling to Bangladesh.`\
 https://nytimes.com/2024/08/21/sports/cricket-world-cup-t20-bangladesh-uae.html
