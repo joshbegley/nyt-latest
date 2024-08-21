@@ -1,3 +1,11 @@
+**Bill Pascrell Jr., 14-Term House Democrat From N.J., Dies at 87**\
+`An outspoken progressive, he vigorously opposed President Donald J. Trump and focused on legislation to help “regular Americans pay their bills.”`\
+https://nytimes.com/2024/08/21/nyregion/bill-pascrell-dead.html
+
+**As N.Y.C. Reading Scores Slip Under New Program, Officials Urge Patience**\
+`Math scores notched upward in the city, and officials said the drop in reading was explained in part by an effort to change reading instruction and retrain hundreds of teachers.`\
+https://nytimes.com/2024/08/21/nyregion/nyc-math-reading-test-scores.html
+
 **Black and Latino Enrollment at M.I.T. Drops Significantly**\
 `Asian American students made up almost half of the 2028 class — the first admitted since the end of affirmative action.`\
 https://nytimes.com/2024/08/21/us/mit-black-latino-enrollment-affirmative-action.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5710761/2024/08/21/oakland-ballers-fan-ownership-sh
 **Dylan Raiola named Nebraska's starting QB**\
 `Raiola, a 2024 top-10 recruit, is the first true freshman to start a season opener for Nebraska since Adrian Martinez in 2018.`\
 https://nytimes.com/athletic/5714549/2024/08/21/true-freshman-dylan-raiola-named-nebraskas-starting-qb-for-season-opener/
-
-**A ‘Speedy Little Star’ May Be on Course to Escape Our Galaxy**\
-`The so-called hypervelocity object, which is either a low-mass star or a brown dwarf, is traveling through the Milky Way at around a million miles an hour.`\
-https://nytimes.com/2024/08/21/science/speeding-star-escape-galaxy.html
-
-**Nicholas A DiMarzio**\
-`News about Nicholas A DiMarzio. Commentary and archival information about Nicholas A DiMarzio from The New York Times.`\
-https://nytimes.com/topic/nicholas-a-dimarzio
 

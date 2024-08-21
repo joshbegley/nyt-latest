@@ -1,3 +1,11 @@
+**Bill Pascrell Jr., 14-Term House Democrat From N.J., Dies at 87**\
+`An outspoken progressive, he vigorously opposed President Donald J. Trump and focused on legislation to help “regular Americans pay their bills.”`\
+https://nytimes.com/2024/08/21/nyregion/bill-pascrell-dead.html
+
+**As N.Y.C. Reading Scores Slip Under New Program, Officials Urge Patience**\
+`Math scores notched upward in the city, and officials said the drop in reading was explained in part by an effort to change reading instruction and retrain hundreds of teachers.`\
+https://nytimes.com/2024/08/21/nyregion/nyc-math-reading-test-scores.html
+
 **Black and Latino Enrollment at M.I.T. Drops Significantly**\
 `Asian American students made up almost half of the 2028 class — the first admitted since the end of affirmative action.`\
 https://nytimes.com/2024/08/21/us/mit-black-latino-enrollment-affirmative-action.html
