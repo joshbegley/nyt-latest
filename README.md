@@ -1,3 +1,11 @@
+**Blackhawks fan survey: The captaincy, the draft, and the state of the rebuild**\
+`After roughly 1,700 Blackhawks fans voted in our survey, the results are in: Optimism still reigns — to an extent.`\
+https://nytimes.com/athletic/5708214/2024/08/21/2024-25-blackhawks-fan-survey-connor-bedard-captaincy-nhl-draft-and-rebuild/
+
+**Gunman Kills 3 People at School in Bosnia**\
+`The attacker, a school employee, used a “military weapon, an automatic rifle” before then attempting to kill himself, a police spokesman said.`\
+https://nytimes.com/2024/08/21/world/europe/bosnia-school-shooting.html
+
 **Investors Brace for a Jobs Wipeout**\
 `Economists forecast that a revision to payrolls data could undercut a robust picture of the labor market, further pressuring the Federal Reserve to cut rates.`\
 https://nytimes.com/2024/08/21/business/dealbook/jobs-data-revisions-fed.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5712305/2024/08/21/sf-giants-takeaways-bryce-eldrid
 **My Race Through the Mini Crossword Archive**\
 `In March, Young Chung set a formidable goal for herself: Solve 3,600 Minis before the puzzle’s 10th anniversary on Aug. 21.`\
 https://nytimes.com/2024/08/21/crosswords/mini-crossword-archive.html
-
-**Joao Felix to Chelsea: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500 series, we look at Joao Felix's move from Atletico Madrid to Chelsea`\
-https://nytimes.com/athletic/5709986/2024/08/21/joao-felix-to-chelsea-the-athletic-500-transfer-ratings/
-
-**Chelsea complete Joao Felix signing from Atletico Madrid**\
-`Chelsea have completed the signing of Joao Felix from Atletico Madrid.`\
-https://nytimes.com/athletic/5712397/2024/08/21/chelsea-joao-felix-transfer/
 
