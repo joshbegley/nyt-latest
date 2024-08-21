@@ -1,3 +1,15 @@
+**With a chance to topple decimated Braves, Phillies kick series off with a dud**\
+`The Braves may be depleted, but they aren't letting up, and it's up to the first-place Phillies to respond.`\
+https://nytimes.com/athletic/5713534/2024/08/20/phillies-braves-begins-with-dud/
+
+**Michelle Obama Absolutely Takes Apart Donald Trump**\
+`No doublespeak, no metaphors — just straight talk.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/michelle-obama-dnc-speech
+
+**Daniel A. Nigro**\
+`News about Daniel A. Nigro. Commentary and archival information about Daniel A. Nigro from The New York Times.`\
+https://nytimes.com/topic/daniel-a-nigro
+
 **Bernie Throws a Curve Ball at Kamala**\
 `His list of policy promises puts her on the hot seat.`\
 https://nytimes.com/live/2024/08/20/opinion/thepoint/bernie-sanders-kamala-harris
