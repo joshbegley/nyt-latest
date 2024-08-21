@@ -1,3 +1,7 @@
+**Donald Trump, Back at an Outdoor Rally, Returns to Familiar Habits**\
+`In a speech intended to be about national security, Mr. Trump continued personal attacks on Kamala Harris and asked for validation in doing so from the crowd.`\
+https://nytimes.com/2024/08/21/us/politics/trump-rally-north-carolina.html
+
 **James A. Wolfe**\
 `News about James A. Wolfe. Commentary and archival information about James A. Wolfe from The New York Times.`\
 https://nytimes.com/topic/james-a-wolfe

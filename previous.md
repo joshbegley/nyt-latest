@@ -1,3 +1,7 @@
+**Donald Trump, Back at an Outdoor Rally, Returns to Familiar Habits**\
+`In a speech intended to be about national security, Mr. Trump continued personal attacks on Kamala Harris and asked for validation in doing so from the crowd.`\
+https://nytimes.com/2024/08/21/us/politics/trump-rally-north-carolina.html
+
 **James A. Wolfe**\
 `News about James A. Wolfe. Commentary and archival information about James A. Wolfe from The New York Times.`\
 https://nytimes.com/topic/james-a-wolfe
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5715256/2024/08/21/sec-football-tiebreaker-rules-20
 **Andy Kim, Who Cleaned the Capitol After Jan. 6, Will Address the Convention**\
 `The likely next senator from New Jersey said he would deliver a message about the importance of service and participation to safeguard democracy.`\
 https://nytimes.com/2024/08/21/world/europe/andy-kim-new-jersey-dnc.html
-
-**U.S. Investigating Americans Who Worked With Russian State Television**\
-`The F.B.I. raided the homes of two prominent commentators on Russian state television channels as part of an effort to blunt attempts to influence November’s election.`\
-https://nytimes.com/2024/08/21/technology/us-fbi-russia-election-disinformation.html
 
