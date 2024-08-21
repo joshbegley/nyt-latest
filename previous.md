@@ -1,3 +1,7 @@
+**Feldman's College Football Playoff bracket: Who's in and who's out after camp?**\
+`Which teams impressed enough during fall practice to project into our updated College Football Playoff field? `\
+https://nytimes.com/athletic/5710227/2024/08/21/college-football-playoff-field-kansas-state-projections/
+
 **Is Anyone Crashing This Unity Convention?**\
 `It’s not the chaos many feared, but protesters and uncommitted delegates are pushing their cause.`\
 https://nytimes.com/2024/08/21/podcasts/is-anyone-crashing-this-unity-convention.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5709772/2024/08/21/lions-world-cup-usa-silverdome-v
 **Inside Ukraine’s Invasion of Russia**\
 `What the unlikely incursion could mean for the war.`\
 https://nytimes.com/2024/08/21/podcasts/the-daily/ukraines-russia-incursion.html
-
-**Packers mailbag: Kicker competition, backup QBs, O-line shuffling and more**\
-`Will the Packers make a trade before roster cutdown day? How about looking elsewhere for a kicker or backup quarterback?`\
-https://nytimes.com/athletic/5711883/2024/08/21/packers-mailbag-sean-clifford-michael-pratt/
 

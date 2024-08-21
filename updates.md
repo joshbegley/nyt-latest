@@ -1,3 +1,7 @@
+**Feldman's College Football Playoff bracket: Who's in and who's out after camp?**\
+`Which teams impressed enough during fall practice to project into our updated College Football Playoff field? `\
+https://nytimes.com/athletic/5710227/2024/08/21/college-football-playoff-field-kansas-state-projections/
+
 **Is Anyone Crashing This Unity Convention?**\
 `It’s not the chaos many feared, but protesters and uncommitted delegates are pushing their cause.`\
 https://nytimes.com/2024/08/21/podcasts/is-anyone-crashing-this-unity-convention.html
