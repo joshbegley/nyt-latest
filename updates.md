@@ -1,3 +1,19 @@
+**Why Kamala’s Mom Is More ‘Brat’ Than She Is**\
+`Shyamala Gopalan created the context for the vice president’s “brat” energy.`\
+https://nytimes.com/video/opinion/100000009644712/why-kamalas-mom-is-more-brat-than-she-is.html
+
+**Peter A DeFazio**\
+`News about Peter A DeFazio. Commentary and archival information about Peter A DeFazio from The New York Times.`\
+https://nytimes.com/topic/peter-a-defazio
+
+**Paul A Engelmayer**\
+`News about Paul A Engelmayer. Commentary and archival information about Paul A Engelmayer from The New York Times.`\
+https://nytimes.com/topic/paul-a-engelmayer
+
+**The Convention’s Happiest Democrats? The ‘Pretty Psyched’ Minnesotans.**\
+`The unexpected rise of a native son, Tim Walz, has thrilled his local compatriots in Chicago. “The Minnesota delegation is, like, buzzing,” said Senator Tina Smith.`\
+https://nytimes.com/2024/08/21/us/politics/minnesota-dnc-democrat-tim-walz.html
+
 **What ‘It Ends With Us’ Gets Wrong (and Right) About Domestic Abuse**\
 `Its depiction of love-bombing and psychological abuse rings true, experts say, but other oversimplified aspects could send a dangerous message.`\
 https://nytimes.com/2024/08/21/movies/it-ends-with-us-domestic-violence.html
