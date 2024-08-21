@@ -1,7 +1,3 @@
-**Michelle Obama Suits the Moment**\
-`On Day 2 of the Democratic National Convention, the former first lady (and her husband) suited up for the next stage.`\
-https://nytimes.com/2024/08/21/style/michelle-obama-dnc-fashion.html
-
 **Should the Raiders be worried about their offensive line, even as Kolton Miller returns?**\
 `Despite the return of their first-string left tackle from the PUP list, the Raiders have dealt with injuries to two other likely starters.`\
 https://nytimes.com/athletic/5713330/2024/08/21/raiders-offensive-line-kolton-miller/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/08/21/us/politics/hunter-biden-tax-charges.html
 **What’s in the Latest U.S. Proposal for a Gaza Cease-Fire?**\
 `The Biden administration is pushing for a deal between Israel and Hamas with renewed urgency after months of lagging talks. Here’s a closer look at what the main differences appear to be.`\
 https://nytimes.com/2024/08/21/world/middleeast/gaza-ceasefire-proposal-israel-hamas.html
+
+**Maresca on Chelsea squad: 'It is not a mess that it looks like from outside'**\
+`Enzo Maresca insists Chelsea are not in a mess over the size of their squad and denied he has been brutal over the axing of senior players like Raheem Sterling.`\
+https://nytimes.com/athletic/5714238/2024/08/21/chelsea-squad-enzo-maresca/
 

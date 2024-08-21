@@ -1,3 +1,7 @@
+**Barack Obama’s Speech Was a Reminder of the Possible**\
+`Harris is selling something different, but would continue his legacy.`\
+https://nytimes.com/2024/08/20/opinion/obama-convention-speech-harris.html
+
 **Michelle Obama Suits the Moment**\
 `On Day 2 of the Democratic National Convention, the former first lady (and her husband) suited up for the next stage.`\
 https://nytimes.com/2024/08/21/style/michelle-obama-dnc-fashion.html
