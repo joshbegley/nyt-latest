@@ -1,3 +1,7 @@
+**U.S. Army Soldier Charged With Lying About Ties to Insurrectionist Group**\
+`The soldier, Kai Liam Nix, 20, who was stationed at Fort Liberty in North Carolina, is also accused of illegally selling firearms.`\
+https://nytimes.com/2024/08/20/us/north-carolina-soldier-arrested-guns-trafficking.html
+
 **Jennifer Lopez Files for Divorce From Ben Affleck**\
 `The A-list couple, who married in 2022, had attempted to rekindle their romance after close to two decades.`\
 https://nytimes.com/2024/08/20/style/jennifer-lopez-ben-affleck-divorce.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/20/us/politics/jack-schlossberg-jason-carter-dnc.htm
 **Behind the Blues' successful offer sheets: 'If there is a GM code, no one emailed it to me'**\
 `GM Doug Armstrong pried Philip Broberg and Dylan Holloway from Edmonton with offer sheets that the Oilers didn't match.`\
 https://nytimes.com/athletic/5711769/2024/08/20/blues-offer-sheets-holloway-broberg/
-
-**Debbie Mucarsel-Powell Wins the Democratic Senate Nomination in Florida**\
-`The former congresswoman will challenge the Republican incumbent, Rick Scott, in November.`\
-https://nytimes.com/2024/08/20/us/mucarsel-powell-florida-senate-primary.html
 

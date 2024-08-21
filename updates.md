@@ -1,3 +1,7 @@
+**U.S. Army Soldier Charged With Lying About Ties to Insurrectionist Group**\
+`The soldier, Kai Liam Nix, 20, who was stationed at Fort Liberty in North Carolina, is also accused of illegally selling firearms.`\
+https://nytimes.com/2024/08/20/us/north-carolina-soldier-arrested-guns-trafficking.html
+
 **Jennifer Lopez Files for Divorce From Ben Affleck**\
 `The A-list couple, who married in 2022, had attempted to rekindle their romance after close to two decades.`\
 https://nytimes.com/2024/08/20/style/jennifer-lopez-ben-affleck-divorce.html
