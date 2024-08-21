@@ -1,3 +1,7 @@
+**The Democrats’ Answer to Hulk Hogan**\
+`Tim Walz will embody his party’s retort to the mega-masculinity of Trumpism on display last month.`\
+https://nytimes.com/2024/08/21/us/politics/the-democrats-answer-to-hulk-hogan.html
+
 **Cooper DeJean 'excited' for potential Eagles preseason debut**\
 `Plus, notes from the last practice of training camp.`\
 https://nytimes.com/athletic/5714849/2024/08/21/cooper-dejean-eagles-preseason-debut/
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/ana-navarro-address
 **Ex-Babysitter Gets 3 Years in Prison in 2019 Death of Man She Injured as a Baby**\
 `Terry McKirchy, 62, violently shook Benjamin Dowling while babysitting for him in 1984, prosecutors said. She was charged with murder after he died from his injuries 35 years later.`\
 https://nytimes.com/2024/08/21/us/babysitter-manslaughter-sentencing-florida.html
-
-**Studio Pulls ‘Megalopolis’ Trailer Featuring Fake Review Quotes**\
-`To promote Francis Ford Coppola’s epic, the spot used supposed lines from The Times, The New Yorker and others to suggest critics were wrong about him.`\
-https://nytimes.com/2024/08/21/movies/megalopolis-trailer-fake-quotes.html
 

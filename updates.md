@@ -1,3 +1,7 @@
+**Cooper DeJean 'excited' for potential Eagles preseason debut**\
+`Plus, notes from the last practice of training camp.`\
+https://nytimes.com/athletic/5714849/2024/08/21/cooper-dejean-eagles-preseason-debut/
+
 **Joseph A Ripp**\
 `News about Joseph A Ripp. Commentary and archival information about Joseph A Ripp from The New York Times.`\
 https://nytimes.com/topic/joseph-a-ripp
