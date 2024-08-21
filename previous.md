@@ -1,3 +1,11 @@
+**‘Worst-Case’ Disaster for Antarctic Ice Looks Less Likely, Study Finds**\
+`Global warming is putting the continent’s ice at risk of destruction in many forms. But one especially calamitous scenario might be a less pressing concern, a new study found.`\
+https://nytimes.com/2024/08/21/climate/antarctic-ice-cliff-collapse.html
+
+**How Did the First Cells Arise? With a Little Rain, Study Finds.**\
+`Researchers stumbled upon an ingredient that can stabilize droplets of genetic material: water.`\
+https://nytimes.com/2024/08/21/science/first-cells-rain.html
+
 **Paul A Slough**\
 `News about Paul A Slough. Commentary and archival information about Paul A Slough from The New York Times.`\
 https://nytimes.com/topic/paul-a-slough
@@ -25,12 +33,4 @@ https://nytimes.com/topic/david-a-tepper
 **Richard A. Carranza**\
 `News about Richard A. Carranza. Commentary and archival information about Richard A. Carranza from The New York Times.`\
 https://nytimes.com/topic/richard-a-carranza
-
-**On Harris’s Price-Gouging Ban, Allies and Foes May Have the Wrong Idea**\
-`The plan does not appear to amount to government price controls. It also might not bring down grocery bills anytime soon.`\
-https://nytimes.com/2024/08/21/business/economy/harris-price-gouging-ban-groceries.html
-
-**Three Delegates, Decades Apart in Age, Converge at the Democratic Convention**\
-`Some participants have been attending for decades, while others will be voting in their first general election this year.`\
-https://nytimes.com/2024/08/21/us/politics/dnc-delegates.html
 

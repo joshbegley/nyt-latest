@@ -1,3 +1,11 @@
+**‘Worst-Case’ Disaster for Antarctic Ice Looks Less Likely, Study Finds**\
+`Global warming is putting the continent’s ice at risk of destruction in many forms. But one especially calamitous scenario might be a less pressing concern, a new study found.`\
+https://nytimes.com/2024/08/21/climate/antarctic-ice-cliff-collapse.html
+
+**How Did the First Cells Arise? With a Little Rain, Study Finds.**\
+`Researchers stumbled upon an ingredient that can stabilize droplets of genetic material: water.`\
+https://nytimes.com/2024/08/21/science/first-cells-rain.html
+
 **Paul A Slough**\
 `News about Paul A Slough. Commentary and archival information about Paul A Slough from The New York Times.`\
 https://nytimes.com/topic/paul-a-slough
