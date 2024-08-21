@@ -1,3 +1,7 @@
+**Austin Dillon's appeal to be reinstated into NASCAR playoffs denied**\
+`Dillon took out two drivers in the final lap at Richmond Raceway in an attempt to bulldoze his way into the playoffs.`\
+https://nytimes.com/athletic/5715192/2024/08/21/austin-dillon-nascar-appeal-denied/
+
 **Gen-Z Delegates Push for Change at the D.N.C.**\
 `The Harris campaign has unlocked a wave of enthusiasm among young voters. But how do Democrats plan to fix the real-world problems impacting their lives? We spoke to four young delegates about the issues driving Gen-Z.`\
 https://nytimes.com/video/us/politics/100000009648070/dnc-genz-delegates-voters.html
