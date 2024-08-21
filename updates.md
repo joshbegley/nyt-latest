@@ -1,3 +1,11 @@
+**James A. Wolfe**\
+`News about James A. Wolfe. Commentary and archival information about James A. Wolfe from The New York Times.`\
+https://nytimes.com/topic/james-a-wolfe
+
+**The Speaker Lineup for Night 3 of the Democratic National Convention**\
+`The vice-presidential nominee, Gov. Tim Walz of Minnesota, will deliver the night’s closing remarks. Other speakers include former President Bill Clinton and Representative Nancy Pelosi.`\
+https://nytimes.com/2024/08/21/us/politics/dnc-speakers-day-3-lineup.html
+
 **Democrats Look to Redefine Trump**\
 `Also, the U.S. added far fewer jobs than previously reported. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/08/21/briefing/democrats-donald-trump-jobs-numbers-revised.html

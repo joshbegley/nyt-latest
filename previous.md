@@ -1,3 +1,11 @@
+**James A. Wolfe**\
+`News about James A. Wolfe. Commentary and archival information about James A. Wolfe from The New York Times.`\
+https://nytimes.com/topic/james-a-wolfe
+
+**The Speaker Lineup for Night 3 of the Democratic National Convention**\
+`The vice-presidential nominee, Gov. Tim Walz of Minnesota, will deliver the night’s closing remarks. Other speakers include former President Bill Clinton and Representative Nancy Pelosi.`\
+https://nytimes.com/2024/08/21/us/politics/dnc-speakers-day-3-lineup.html
+
 **Democrats Look to Redefine Trump**\
 `Also, the U.S. added far fewer jobs than previously reported. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/08/21/briefing/democrats-donald-trump-jobs-numbers-revised.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/21/world/europe/andy-kim-new-jersey-dnc.html
 **U.S. Investigating Americans Who Worked With Russian State Television**\
 `The F.B.I. raided the homes of two prominent commentators on Russian state television channels as part of an effort to blunt attempts to influence November’s election.`\
 https://nytimes.com/2024/08/21/technology/us-fbi-russia-election-disinformation.html
-
-**Jesse Winker and the Mets have a signature moment: 'It's what you play for'**\
-`Winker’s first home run as a Met provided good vibes as they headed off for a crucial road trip through San Diego and Arizona.`\
-https://nytimes.com/athletic/5715288/2024/08/21/mets-jesse-winker-walk-off/
-
-**Aides to Trump and Netanyahu deny reports that they discussed cease-fire talks.**\
-`By Maggie Haberman, Jonathan Swan and Isabel Kershner`\
-https://nytimes.com/live/2024/08/21/world/israel-iran-hamas-gaza-war/aides-to-trump-and-netanyahu-deny-reports-that-they-discussed-cease-fire-talks
 
