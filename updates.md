@@ -1,3 +1,11 @@
+**Access all areas at NBC: Three Premier League games, a Winnebago and tactical sushi**\
+`The Athletic is invited behind the scenes at NBC for the Premier League games at Old Trafford, the London Stadium and Stamford Bridge`\
+https://nytimes.com/athletic/5712144/2024/08/21/premier-league-nbc-epl-lowe/
+
+**Everton have a right-back shortage - is Roman Dixon ready for the first-team?**\
+`Sean Dyche's three senior right-backs will not feature against Spurs. It means the impressive 19-year-old could get the call on Saturday`\
+https://nytimes.com/athletic/5713767/2024/08/21/everton-roman-dixon-sean-dyche-right-back/
+
 **Feldman's College Football Playoff bracket: Who's in and who's out after camp?**\
 `Which teams impressed enough during fall practice to project into our updated College Football Playoff field? `\
 https://nytimes.com/athletic/5710227/2024/08/21/college-football-playoff-field-kansas-state-projections/
