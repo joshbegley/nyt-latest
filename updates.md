@@ -1,3 +1,7 @@
+**“Take it from an actual billionaire, Trump is rich in only one thing: Stupidity.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/take-it-from-an-actual-billionaire-trump-is-rich-in-only-one-thing-stupidity
+
 **Man Who U.S. Says Faked Death to Avoid Child Support Gets 81 Months in Prison**\
 `The man, Jesse Kipf, hacked into state death registry systems to fake his own death in part to avoid paying more than $100,000 in child support, federal prosecutors said.`\
 https://nytimes.com/2024/08/20/us/20xp-jesse-kipf-hacking-sentenced-kentucky.html
