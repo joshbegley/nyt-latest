@@ -1,3 +1,7 @@
+**Submit questions for Tim Kawakami's August mailbag**\
+`This ought to be a good time for a surprise mailbag edition. Fire away. `\
+https://nytimes.com/athletic/5714795/2024/08/21/submit-questions-for-tim-kawakamis-august-mailbag/
+
 **Basketball Hall of Famer Alvin Attles dies at 87**\
 `Attles was selected by the Philadelphia Warriors with the No. 39 pick in the 1960 NBA Draft.`\
 https://nytimes.com/athletic/5714667/2024/08/21/alvin-attles-dead-warriors-nba/

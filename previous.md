@@ -1,3 +1,7 @@
+**Submit questions for Tim Kawakami's August mailbag**\
+`This ought to be a good time for a surprise mailbag edition. Fire away. `\
+https://nytimes.com/athletic/5714795/2024/08/21/submit-questions-for-tim-kawakamis-august-mailbag/
+
 **Basketball Hall of Famer Alvin Attles dies at 87**\
 `Attles was selected by the Philadelphia Warriors with the No. 39 pick in the 1960 NBA Draft.`\
 https://nytimes.com/athletic/5714667/2024/08/21/alvin-attles-dead-warriors-nba/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/21/nyregion/bill-pascrell-dead.html
 **As N.Y.C. Reading Scores Slip Under New Program, Officials Urge Patience**\
 `Math scores notched upward in the city, and officials said the drop in reading was explained in part by an effort to change reading instruction and retrain hundreds of teachers.`\
 https://nytimes.com/2024/08/21/nyregion/nyc-math-reading-test-scores.html
-
-**At M.I.T., Black and Latino Enrollment Drops Sharply After Affirmative Action Ban**\
-`Asian American students made up almost half of the 2028 class — the first admitted since the end of affirmative action.`\
-https://nytimes.com/2024/08/21/us/mit-black-latino-enrollment-affirmative-action.html
 
