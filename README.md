@@ -1,3 +1,7 @@
+**Chase Elliott on what he'd change about NASCAR and more: 12 Questions**\
+`Hendrick Motorsports star Chase Elliott gives his thoughts on the NASCAR schedule, keeping his own schedule under control and more.`\
+https://nytimes.com/athletic/5712726/2024/08/21/chase-elliott-nascar-12-questions/
+
 **Sterling keen to leave Chelsea on permanent basis**\
 `Raheem Sterling has expressed a preference to leave Chelsea on a permanent basis after it became clear that at present he is not part of the club&#8217;s plans going forward.`\
 https://nytimes.com/athletic/5712124/2024/08/21/raheem-sterling-chelsea-transfer-permanent/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/21/world/middleeast/iran-crash-arbaeen-pilgrims-paki
 **Rosenthal: The Mariners' listless offense is wasting their dominant pitching staff**\
 `'We have very much underperformed our own expectations, based on our talent,' Mariners president of baseball operations Jerry Dipoto said.`\
 https://nytimes.com/athletic/5713968/2024/08/21/seattle-mariners-offense-pitching-jerry-dipoto/
-
-**Giants takeaways on 3 streaking hitting prospects**\
-`While several position player prospects have disappointed, Bryce Eldridge, James Tibbs III and Bo Davidson are having noteworthy seasons.`\
-https://nytimes.com/athletic/5712305/2024/08/21/sf-giants-takeaways-bryce-eldridge-james-tibbs/
 
