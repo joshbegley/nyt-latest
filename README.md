@@ -2,7 +2,7 @@
 `Its depiction of love-bombing and psychological abuse rings true, experts say, but other oversimplified aspects could send a dangerous message.`\
 https://nytimes.com/2024/08/21/movies/it-ends-with-us-domestic-violence.html
 
-**Divers Find 2 Bodies From Yacht That Sank off Sicily**\
+**Divers Find 2 Bodies From Yacht That Sank Off Sicily**\
 `The discovery came after the vessel sank this week in what some witnesses described as a waterspout, or a small tornado, during a violent downpour. No names were immediately released.`\
 https://nytimes.com/2024/08/21/world/europe/sicily-yacht-bayesian-bodies-found.html
 
