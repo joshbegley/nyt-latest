@@ -1,3 +1,11 @@
+**Bo Nix named Broncos starting QB**\
+`Nix will become the Broncos first rookie quarterback to start a Week 1 game since John Elway in 1983.`\
+https://nytimes.com/athletic/5712010/2024/08/21/bo-nix-broncos-starting-quarterback/
+
+**A J Hinch**\
+`News about A J Hinch. Commentary and archival information about A J Hinch from The New York Times.`\
+https://nytimes.com/topic/a-j-hinch
+
 **'Just do the best you can': Exhaustion is part of it for the Women's Open field**\
 `The LPGA asks the best golfers to criss-cross the world before finally arriving in Scotland to play the Old Course this week.`\
 https://nytimes.com/athletic/5711408/2024/08/21/womens-open-lpga-tour-schedule/
