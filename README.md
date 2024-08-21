@@ -1,3 +1,11 @@
+**Cubs' release of Héctor Neris brings questions but is another sign team's looking forward**\
+`Neris had become an uncomfortable watch and Jack Neely was performing well in the minors. It was time to consider the future of the bullpen.`\
+https://nytimes.com/athletic/5713393/2024/08/20/cubs-release-hector-neris-bullpen-analysis/
+
+**Bernie Sanders Would Like a Word or Two With Kamala Harris**\
+`His list of policy promises put her on the hot seat.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/bernie-sanders-kamala-harris
+
 **Harris, in a Show of Force, Holds a Large Rally 80 Miles From Her Convention**\
 `The two-city rally, with Democrats celebrating at their convention in Chicago and an arena in Milwaukee, was a pointed rejoinder to Donald Trump and a significant flexing of the party’s muscle.`\
 https://nytimes.com/2024/08/20/us/politics/harris-rally-milwaukee-dnc.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5713354/2024/08/20/dallas-cowboys-training-camp-fir
 **Chargers training camp, Day 20: JT Woods getting extended audition at cornerback**\
 `A 2022 third-round pick who has disappointed at safety, Woods has been a playmaker at cornerback since switching positions last week.`\
 https://nytimes.com/athletic/5713350/2024/08/20/chargers-jt-woods-training-camp/
-
-**History Shows How Autoworkers Could Be Crucial for Harris**\
-`Especially given Trump’s admiration for breaking strikes.`\
-https://nytimes.com/live/2024/08/20/opinion/thepoint/auto-workers-harris-campaign
-
-**Colts' Anthony Richardson struggles in practice with Bengals: 'Is that all he does is run?'**\
-`Richardson ended Tuesday's practice against the Bengals 10-of-20 passing with one INT, one touchdown and a lot of frustration.`\
-https://nytimes.com/athletic/5713201/2024/08/20/indianapolis-colts-anthony-richardson-bengals-practice/
 
