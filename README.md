@@ -1,3 +1,15 @@
+**How do Arsenal handle Nwaneri, Lewis-Skelly and their best emerging talent?**\
+`Arsenal have a crop of very talented young players - but getting them up to first-team level is a long and thorough task years in the making`\
+https://nytimes.com/athletic/5643686/2024/08/21/arsenal-ethan-nwaneri-myles-lewis-skelly/
+
+**Mosquera plays and trains on the edge - he will need to be careful**\
+`The defender's competitive side nearly got the better of him in Wolves' Premier League opener against Arsenal`\
+https://nytimes.com/athletic/5711796/2024/08/21/yerson-mosquera-wolves-defender/
+
+**Fantasy football staff sleepers: Ray Davis, Greg Dortch and 12 more value picks**\
+`After a few preseason weeks of surveying the NFL landscape, The Athletic fantasy football staff shares their updated sleepers for 2024.`\
+https://nytimes.com/athletic/5712727/2024/08/21/fantasy-football-staff-sleepers-ray-davis-greg-dortch-and-12-more-value-picks/
+
 **The Debate: Which new signings stood out most in the Premier League's opening round?**\
 `Which new signing impressed you most in the season's first round of Premier League matches? Two of our writers give their choices...`\
 https://nytimes.com/athletic/5710225/2024/08/21/premier-league-transfers-debut-standout/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/21/world/asia/china-road-trip-auntie-divorce.html
 **Fight for Control of Central Bank Threatens Libya’s Uneasy Peace**\
 `The country has settled into a tense east-west divide, but turmoil around the central bank, which handles Libya’s oil riches, has worsened a fraying, fragile political setup.`\
 https://nytimes.com/2024/08/21/world/middleeast/libya-central-bank-political-stability.html
-
-**Bears 'Hard Knocks' takeaways: Pursuing Matthew Judon, Caleb Williams' highlights**\
-`The best episode of the season did what the show does best: took viewers behind the scenes for enlightening and entertaining moments.`\
-https://nytimes.com/athletic/5713563/2024/08/20/bears-hard-knocks-episode-3-ryan-poles/
-
-**Harris Campaigns in Milwaukee During Day 2 of D.N.C.**\
-`Vice President Kamala Harris and her running mate, Gov. Tim Walz, rallied the crowds the critical battleground state of Wisconsin.`\
-https://nytimes.com/video/us/elections/100000009646048/harris-rally-milwaukee-dnc.html
-
-**“Donald Trump and JD Vance want to dismantle our health care system, repeal the Affordable Care Act and eliminate protections for pre-existing conditions.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/08/20/us/dnc-fact-check/donald-trump-and-jd-vance-want-to-dismantle-our-health-care-system-repeal-the-affordable-care-act-and-eliminate-protections-for-
 
