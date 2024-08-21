@@ -1,3 +1,7 @@
+**Hard Work and Fizzy Drinks: What It Takes to Live Past 110**\
+`They are called supercentenarians, and they have seen it all.`\
+https://nytimes.com/2024/08/21/arts/oldest-people-advice-long-life-supercentenarians.html
+
 **Conor Gallagher completes Atletico Madrid transfer from Chelsea**\
 `Atletico Madrid have completed the signing of midfielder Conor Gallagher from Chelsea.`\
 https://nytimes.com/athletic/5711520/2024/08/21/conor-gallagher-atletico-madrid-transfer-chelsea/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5711610/2024/08/21/manchester-city-ilkay-gundogan-b
 **Red Sox prospect takeaways: Kristian Campbell promoted, Marcelo Mayer to IL**\
 `The Red Sox “Big Three” prospects reached Triple A last week, and this week a fast-rising Campbell brought his hot bat to the level.`\
 https://nytimes.com/athletic/5712736/2024/08/21/red-sox-takeaways-kristian-campbell-marcelo-mayer/
-
-**Alabama camp report: Captains named, defensive updates, the mystery of LaMarcus Fox**\
-`Tyler Booker, Deontae Lawson, Jalen Milroe and Malachi Moore were voted permanent team captains by their teammates after Tuesday's practice.`\
-https://nytimes.com/athletic/5712785/2024/08/21/alabama-football-captains-defense/
 

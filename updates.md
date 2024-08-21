@@ -1,3 +1,7 @@
+**Hard Work and Fizzy Drinks: What It Takes to Live Past 110**\
+`They are called supercentenarians, and they have seen it all.`\
+https://nytimes.com/2024/08/21/arts/oldest-people-advice-long-life-supercentenarians.html
+
 **Conor Gallagher completes Atletico Madrid transfer from Chelsea**\
 `Atletico Madrid have completed the signing of midfielder Conor Gallagher from Chelsea.`\
 https://nytimes.com/athletic/5711520/2024/08/21/conor-gallagher-atletico-madrid-transfer-chelsea/
