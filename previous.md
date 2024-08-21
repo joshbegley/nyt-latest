@@ -1,3 +1,7 @@
+**Alex Bregman’s injury could limit his availability at third base**\
+`"Some little gremlins in there are causing some swelling that I’m just going to have to try to mitigate," Bregman said regarding his elbow.`\
+https://nytimes.com/athletic/5715433/2024/08/21/houston-astros-alex-bregman-third-base/
+
 **Bill Clinton, From Star to Scandal to Statesman, Seeks to Lift Up Harris**\
 `Mr. Clinton’s political history of boom and bust has made him one of the most enduring figures of modern American life, if not always its most accepted.`\
 https://nytimes.com/2024/08/21/us/politics/bill-clinton-dnc-speech.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/21/us/politics/trump-rally-north-carolina.html
 **James A. Wolfe**\
 `News about James A. Wolfe. Commentary and archival information about James A. Wolfe from The New York Times.`\
 https://nytimes.com/topic/james-a-wolfe
-
-**The Speaker Lineup for Night 3 of the Democratic National Convention**\
-`The vice-presidential nominee, Gov. Tim Walz of Minnesota, will deliver the night’s closing remarks. Other speakers include former President Bill Clinton and Representative Nancy Pelosi.`\
-https://nytimes.com/2024/08/21/us/politics/dnc-speakers-day-3-lineup.html
 
