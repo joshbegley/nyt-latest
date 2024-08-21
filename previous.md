@@ -1,10 +1,14 @@
+**Bears 'Hard Knocks' takeaways: Pursuing Matthew Judon, Caleb Williams' highlights**\
+`The best episode of the season did what the show does best: took viewers behind the scenes for enlightening and entertaining moments.`\
+https://nytimes.com/athletic/5713563/2024/08/20/bears-hard-knocks-episode-3-ryan-poles/
+
 **Harris Campaigns in Milwaukee During Day 2 of D.N.C.**\
 `Vice President Kamala Harris and her running mate, Gov. Tim Walz, rallied the crowds the critical battleground state of Wisconsin.`\
 https://nytimes.com/video/us/elections/100000009646048/harris-rally-milwaukee-dnc.html
 
 **“Donald Trump and JD Vance want to dismantle our health care system, repeal the Affordable Care Act and eliminate protections for pre-existing conditions.”**\
 `By Linda Qiu`\
-https://nytimes.com/2024/08/20/us/donald-trump-and-jd-vance-want-to-dismantle-our-health-care-system-repeal-the-affordable-care-act-and-eliminate-protections-for-.html
+https://nytimes.com/live/2024/08/20/us/dnc-fact-check/donald-trump-and-jd-vance-want-to-dismantle-our-health-care-system-repeal-the-affordable-care-act-and-eliminate-protections-for-
 
 **Doug Emhoff, Both Earnest and Poking Fun at Himself, Talks Up His Wife**\
 `The second gentleman drew on his relationship with Kamala Harris in his speech at the Democratic convention, telling a story about a bumbling voice mail message he left her early on.`\
@@ -31,10 +35,6 @@ https://nytimes.com/2024/08/20/us/montana-abortion-rights.html
 https://nytimes.com/athletic/5713518/2024/08/20/mets-orioles-little-league-defense/
 
 **A G.O.P. mayor in Arizona urged moderates to vote for the ‘adults in the room.’**\
-`By Kellen Browning`\
+`John Giles, the Republican mayor of Mesa, Ariz., is the most prominent Republican to back Kamala Harris in Arizona, a longtime conservative bastion that has been trending purple in recent elections.`\
 https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/a-gop-mayor-in-arizona-urged-moderates-to-vote-for-the-adults-in-the-room
-
-**“Take it from an actual billionaire, Trump is rich in only one thing: Stupidity.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/take-it-from-an-actual-billionaire-trump-is-rich-in-only-one-thing-stupidity
 
