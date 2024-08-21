@@ -1,3 +1,7 @@
+**Joao Felix to Chelsea: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we look at Joao Felix's move from Atletico Madrid to Chelsea`\
+https://nytimes.com/athletic/5709986/2024/08/21/joao-felix-to-chelsea-the-athletic-500-transfer-ratings/
+
 **Chelsea complete Joao Felix signing from Atletico Madrid**\
 `Chelsea have completed the signing of Joao Felix from Atletico Madrid.`\
 https://nytimes.com/athletic/5712397/2024/08/21/chelsea-joao-felix-transfer/

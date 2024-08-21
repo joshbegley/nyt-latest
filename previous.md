@@ -1,3 +1,7 @@
+**Joao Felix to Chelsea: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we look at Joao Felix's move from Atletico Madrid to Chelsea`\
+https://nytimes.com/athletic/5709986/2024/08/21/joao-felix-to-chelsea-the-athletic-500-transfer-ratings/
+
 **Chelsea complete Joao Felix signing from Atletico Madrid**\
 `Chelsea have completed the signing of Joao Felix from Atletico Madrid.`\
 https://nytimes.com/athletic/5712397/2024/08/21/chelsea-joao-felix-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/21/podcasts/is-anyone-crashing-this-unity-convention
 **Javier Báez will always be a Cubs legend but there is no magic in his return to Wrigley**\
 `Báez returned to Chicago scuffling through another season with the Tigers, who must be looking to get out from under his big contract.`\
 https://nytimes.com/athletic/5713557/2024/08/21/tigers-cubs-javier-baez-return-wrigley/
-
-**Who’s the Change Candidate?**\
-`Inside the fight over who most represents change ahead of November.`\
-https://nytimes.com/2024/08/21/briefing/harris-trump-2024-election-change.html
 
