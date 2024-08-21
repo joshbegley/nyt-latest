@@ -1,3 +1,11 @@
+**Convention Insider: Chuck Schumer Takes Chicago**\
+`Nearly 800 miles from home in Brooklyn, the Senate majority leader found friends galore at the convention.`\
+https://nytimes.com/2024/08/20/us/elections/chuck-schumer-dnc.html
+
+**As Astros search for outfield stability, former prospect Wilyer Abreu flourishes in Boston**\
+`An acceptable answer to this outfield problem is not arriving any time soon. That one slipped away is a fate Houston must accept.`\
+https://nytimes.com/athletic/5713389/2024/08/20/astros-outfield-problems-wilyer-abreu/
+
 **Delegates ‘Get Low’ With Lil Jon in a Musical Roll-Call Vote for Harris**\
 `The rapper, representing Georgia, briefly stole the show in Chicago with a surprise performance during a lively yet symbolic vote. Vice President Kamala Harris is already the party’s nominee.`\
 https://nytimes.com/2024/08/20/us/politics/lil-jon-dnc-harris.html
