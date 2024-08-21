@@ -10,7 +10,7 @@ https://nytimes.com/2024/08/20/us/20xp-jesse-kipf-hacking-sentenced-kentucky.htm
 `Neris had become an uncomfortable watch and Jack Neely was performing well in the minors. It was time to consider the future of the bullpen.`\
 https://nytimes.com/athletic/5713393/2024/08/20/cubs-release-hector-neris-bullpen-analysis/
 
-**Bernie Sanders Would Like a Word or Two With Kamala Harris**\
+**Bernie Throws a Curve Ball at Kamala**\
 `His list of policy promises put her on the hot seat.`\
 https://nytimes.com/live/2024/08/20/opinion/thepoint/bernie-sanders-kamala-harris
 
