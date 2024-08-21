@@ -1,3 +1,7 @@
+**Late-round fliers: Rico Dowdle, Greg Dortch among the top post-120 ADP targets for fantasy football 2024**\
+`John Laghezza names his All-120+ ADP team, and explains why Rico Dowdle might be the best fantasy RB value going in the double-digit rounds.`\
+https://nytimes.com/athletic/5709920/2024/08/21/late-round-fliers-adp-targets-fantasy-football-2024/
+
 **Corrections: Aug. 21, 2024**\
 `Corrections that appeared in print on Wednesday, Aug. 21, 2024.`\
 https://nytimes.com/2024/08/21/pageoneplus/corrections-aug-21-2024.html
