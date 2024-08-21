@@ -1,3 +1,11 @@
+**Corrections: Aug. 21, 2024**\
+`Corrections that appeared in print on Wednesday, Aug. 21, 2024.`\
+https://nytimes.com/2024/08/21/pageoneplus/corrections-aug-21-2024.html
+
+**Quotation of the Day: Braving the Wild to Rescue the Rarest of Flowers**\
+`Quotation of the Day for Wednesday, August 21, 2024.`\
+https://nytimes.com/2024/08/21/pageoneplus/quotation-of-the-day-braving-the-wild-to-rescue-the-rarest-of-flowers.html
+
 **Here Is the Kamala Harris Roll Call Playlist**\
 `As each state delegation was called on, it was accompanied by a song.`\
 https://nytimes.com/2024/08/21/us/elections/harris-dnc-roll-call-dj-cassidy.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5702908/2024/08/21/what-gruda-brings-to-brighton/
 **Eddie Nketiah to Nottingham Forest? All the key questions answered**\
 `How would the forward fit into Forest's squad? Would it be a good move for his career? Does selling make sense for Arsenal?`\
 https://nytimes.com/athletic/5712047/2024/08/21/nketiah-nottingham-forest-questions-answered/
-
-**Bundesliga season preview: Bayern Munich the underdogs, and can anyone beat Bayer Leverkusen?**\
-`We look ahead to Vincent Kompany's step up as Bayern coach, Xabi Alonso's title defence and many more storylines to follow`\
-https://nytimes.com/athletic/5705002/2024/08/21/bundesliga-new-season-bayern-leverkusen-dortmund-leipzig/
-
-**Salah's Liverpool contract: What's going on?**\
-`What is the state of play on Egyptian's deal, which expires next summer - and who could seek to capitalise?`\
-https://nytimes.com/athletic/5711784/2024/08/21/mohamed-salah-liverpool-contract-latest/
 

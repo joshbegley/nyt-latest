@@ -1,3 +1,11 @@
+**Corrections: Aug. 21, 2024**\
+`Corrections that appeared in print on Wednesday, Aug. 21, 2024.`\
+https://nytimes.com/2024/08/21/pageoneplus/corrections-aug-21-2024.html
+
+**Quotation of the Day: Braving the Wild to Rescue the Rarest of Flowers**\
+`Quotation of the Day for Wednesday, August 21, 2024.`\
+https://nytimes.com/2024/08/21/pageoneplus/quotation-of-the-day-braving-the-wild-to-rescue-the-rarest-of-flowers.html
+
 **Here Is the Kamala Harris Roll Call Playlist**\
 `As each state delegation was called on, it was accompanied by a song.`\
 https://nytimes.com/2024/08/21/us/elections/harris-dnc-roll-call-dj-cassidy.html
