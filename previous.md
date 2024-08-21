@@ -1,3 +1,7 @@
+**Paul A Slough**\
+`News about Paul A Slough. Commentary and archival information about Paul A Slough from The New York Times.`\
+https://nytimes.com/topic/paul-a-slough
+
 **Nicholas A Slatten**\
 `News about Nicholas A Slatten. Commentary and archival information about Nicholas A Slatten from The New York Times.`\
 https://nytimes.com/topic/nicholas-a-slatten
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/21/business/economy/harris-price-gouging-ban-groceri
 **Three Delegates, Decades Apart in Age, Converge at the Democratic Convention**\
 `Some participants have been attending for decades, while others will be voting in their first general election this year.`\
 https://nytimes.com/2024/08/21/us/politics/dnc-delegates.html
-
-**The Very Effective Schlubbiness of Doug Emhoff**\
-`For many Jews of his age, Emhoff’s path to the convention stage has been astonishingly familiar.`\
-https://nytimes.com/live/2024/08/20/opinion/thepoint/doug-emhoff-american-jews
 

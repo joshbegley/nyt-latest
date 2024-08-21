@@ -1,3 +1,7 @@
+**Paul A Slough**\
+`News about Paul A Slough. Commentary and archival information about Paul A Slough from The New York Times.`\
+https://nytimes.com/topic/paul-a-slough
+
 **Nicholas A Slatten**\
 `News about Nicholas A Slatten. Commentary and archival information about Nicholas A Slatten from The New York Times.`\
 https://nytimes.com/topic/nicholas-a-slatten
