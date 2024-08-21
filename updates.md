@@ -1,3 +1,15 @@
+**What Do Tim Walz and Travis Kelce Have in Common? Jock Insurance.**\
+`They are also examples of a kind of easy masculine confidence we seem to have all but forgotten`\
+https://nytimes.com/2024/08/21/opinion/tim-walz-football.html
+
+**Browns' Pierre Strong Jr. leaves practice in ambulance**\
+`Pierre Strong Jr. walked into the practice facility with a member of the Browns training staff before being placed in an ambulance.`\
+https://nytimes.com/athletic/5715001/2024/08/21/browns-pierre-strong-jr-ambulance/
+
+**A J Green**\
+`News about A J Green. Commentary and archival information about A J Green from The New York Times.`\
+https://nytimes.com/topic/a-j-green
+
 **Convention Insider: Ro Khanna Never Skips Breakfast**\
 `The Silicon Valley congressman is spending his time going to 15 state delegation breakfasts and maybe, just maybe, laying groundwork for higher office.`\
 https://nytimes.com/2024/08/21/us/politics/ro-khanna-dnc.html
