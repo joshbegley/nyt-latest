@@ -1,3 +1,11 @@
+**History Shows How Autoworkers Could Be Crucial for Harris**\
+`Especially given Trump’s admiration for breaking strikes.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/auto-workers-harris-campaign
+
+**Colts' Anthony Richardson struggles in practice with Bengals: 'Is that all he does is run?'**\
+`Richardson ended Tuesday's practice against the Bengals 10-of-20 passing with one INT, one touchdown and a lot of frustration.`\
+https://nytimes.com/athletic/5713201/2024/08/20/indianapolis-colts-anthony-richardson-bengals-practice/
+
 **U.S. Army Soldier Charged With Lying About Ties to Insurrectionist Group**\
 `The soldier, Kai Liam Nix, 20, who was stationed at Fort Liberty in North Carolina, is also accused of illegally selling firearms.`\
 https://nytimes.com/2024/08/20/us/north-carolina-soldier-arrested-guns-trafficking.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/20/well/family/affleck-lopez-divorce-reunite-ex.html
 **Here’s why some delegates are voting ‘present.’**\
 `By Jonathan Weisman`\
 https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/uncommitted-delegates-protesting-the-war-in-gaza-are-trying-to-make-their-voices-heard
-
-**Grandchildren of Two Past Democratic Presidents Say Harris Is Party’s Future**\
-`Jack Schlossberg, grandson of John F. Kennedy, and Jason Carter, grandson of Jimmy Carter, told the Democratic convention on Tuesday that Kamala Harris was the natural heir to their ancestors’ legacy.`\
-https://nytimes.com/2024/08/20/us/politics/jack-schlossberg-jason-carter-dnc.html
-
-**Behind the Blues' successful offer sheets: 'If there is a GM code, no one emailed it to me'**\
-`GM Doug Armstrong pried Philip Broberg and Dylan Holloway from Edmonton with offer sheets that the Oilers didn't match.`\
-https://nytimes.com/athletic/5711769/2024/08/20/blues-offer-sheets-holloway-broberg/
 
