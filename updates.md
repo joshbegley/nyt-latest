@@ -1,3 +1,7 @@
+**Bernie Throws a Curve Ball at Kamala**\
+`His list of policy promises puts her on the hot seat.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/bernie-sanders-kamala-harris
+
 **Montana Certifies Signatures for November Abortion Question**\
 `Also on Tuesday, Arizona’s Supreme Court rejected a challenge to a similar ballot measure. That means at least nine states will vote on whether to establish a constitutional right to abortion.`\
 https://nytimes.com/2024/08/20/us/montana-abortion-rights.html

@@ -27,7 +27,7 @@ https://nytimes.com/2024/08/20/us/20xp-jesse-kipf-hacking-sentenced-kentucky.htm
 https://nytimes.com/athletic/5713393/2024/08/20/cubs-release-hector-neris-bullpen-analysis/
 
 **Bernie Throws a Curve Ball at Kamala**\
-`His list of policy promises put her on the hot seat.`\
+`His list of policy promises puts her on the hot seat.`\
 https://nytimes.com/live/2024/08/20/opinion/thepoint/bernie-sanders-kamala-harris
 
 **Harris, in a Show of Force, Holds a Large Rally 80 Miles From Her Convention**\
