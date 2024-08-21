@@ -35,6 +35,6 @@ https://nytimes.com/athletic/5711784/2024/08/21/mohamed-salah-liverpool-contract
 https://nytimes.com/athletic/5697773/2024/08/21/cole-palmer-chelsea-manchester-city-scout/
 
 **Reynaldo López excels in IL return, as injury-plagued and resilient Braves top Phillies**\
-`The Braves are battered and bruised, but they're not giving in. Behind Reynaldo López's 10 strikeouts, Atlanta topped Philadelphia. `\
+`The Braves are battered and bruised, but they're not giving in. Behind López's 10 strikeouts, Atlanta topped Philadelphia. `\
 https://nytimes.com/athletic/5713580/2024/08/21/reynaldo-lopez-excels-in-return/
 
