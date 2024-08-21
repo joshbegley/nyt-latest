@@ -1,3 +1,7 @@
+**Sterling keen to leave Chelsea on permanent basis**\
+`Raheem Sterling has expressed a preference to leave Chelsea on a permanent basis after it became clear that at present he is not part of the club&#8217;s plans going forward.`\
+https://nytimes.com/athletic/5712124/2024/08/21/raheem-sterling-chelsea-transfer-permanent/
+
 **Blackhawks fan survey: The captaincy, the draft, and the state of the rebuild**\
 `After roughly 1,700 Blackhawks fans voted in our survey, the results are in: Optimism still reigns — to an extent.`\
 https://nytimes.com/athletic/5708214/2024/08/21/2024-25-blackhawks-fan-survey-connor-bedard-captaincy-nhl-draft-and-rebuild/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5713968/2024/08/21/seattle-mariners-offense-pitchin
 **Giants takeaways on 3 streaking hitting prospects**\
 `While several position player prospects have disappointed, Bryce Eldridge, James Tibbs III and Bo Davidson are having noteworthy seasons.`\
 https://nytimes.com/athletic/5712305/2024/08/21/sf-giants-takeaways-bryce-eldridge-james-tibbs/
-
-**My Race Through the Mini Crossword Archive**\
-`In March, Young Chung set a formidable goal for herself: Solve 3,600 Minis before the puzzle’s 10th anniversary on Aug. 21.`\
-https://nytimes.com/2024/08/21/crosswords/mini-crossword-archive.html
 
