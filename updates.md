@@ -1,3 +1,7 @@
+**Chelsea complete Joao Felix signing from Atletico Madrid**\
+`Chelsea have completed the signing of Joao Felix from Atletico Madrid.`\
+https://nytimes.com/athletic/5712397/2024/08/21/chelsea-joao-felix-transfer/
+
 **Macy’s Reports Lower Sales as Shoppers Cut Back**\
 `Department store chains have struggled as consumers, squeezed by budget constraints, spend less time and money at their stores.`\
 https://nytimes.com/2024/08/21/business/macys-2nd-quarter-earnings.html

@@ -1,3 +1,7 @@
+**Chelsea complete Joao Felix signing from Atletico Madrid**\
+`Chelsea have completed the signing of Joao Felix from Atletico Madrid.`\
+https://nytimes.com/athletic/5712397/2024/08/21/chelsea-joao-felix-transfer/
+
 **Macy’s Reports Lower Sales as Shoppers Cut Back**\
 `Department store chains have struggled as consumers, squeezed by budget constraints, spend less time and money at their stores.`\
 https://nytimes.com/2024/08/21/business/macys-2nd-quarter-earnings.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5713557/2024/08/21/tigers-cubs-javier-baez-return-w
 **Who’s the Change Candidate?**\
 `Inside the fight over who most represents change ahead of November.`\
 https://nytimes.com/2024/08/21/briefing/harris-trump-2024-election-change.html
-
-**Gallagher and Joao Felix moves speak for Chelsea's attraction to mystery boxes**\
-`Chelsea have sold Conor Gallagher to Atletico Madrid, ending his long-term association with the club`\
-https://nytimes.com/athletic/5711569/2024/08/21/conor-gallagher-joao-felix-chelsea/
 
