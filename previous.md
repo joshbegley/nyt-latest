@@ -1,3 +1,11 @@
+**The Party’s After-Parties: Once Dreary Democrats Remember How to Have Fun**\
+`“This is a group that’s not used to being happy — they’re used to complaining,” one reveler noted. For now, at least, the rise of Kamala Harris has changed that.`\
+https://nytimes.com/2024/08/21/us/elections/democratic-convention-chicago-late-night-parties.html
+
+**Here’s What to Expect at the Democratic National Convention on Day 3**\
+`All eyes will be on Gov. Tim Walz as he formally accepts the Democratic Party’s nomination for vice president on Wednesday night.`\
+https://nytimes.com/2024/08/21/us/politics/what-to-expect-dnc-day-3-chicago.html
+
 **Oakland Ballers launch investment round for fans**\
 `The maximum amount the Ballers can raise through this round of funding is $1.235 million. The listed value of the team is $26.235 million.`\
 https://nytimes.com/athletic/5710761/2024/08/21/oakland-ballers-fan-ownership-shares/
@@ -25,12 +33,4 @@ https://nytimes.com/video/world/middleeast/100000009646593/ultra-orthodox-protes
 **Biden’s Exit Transformed Democratic Fund-Raising**\
 `When Vice President Kamala Harris became the party’s nominee, the money started to flow.`\
 https://nytimes.com/2024/08/21/us/politics/biden-harris-fundraising.html
-
-**Submit your questions for Pete Sampson’s Notre Dame football mailbag**\
-`What's on your mind about the Irish with the trip to Texas A&M just days away?`\
-https://nytimes.com/athletic/5714500/2024/08/21/notre-dame-football-mailbag-questions-13/
-
-**Worrall close to completing Burnley move from Nottingham Forest**\
-`Former Nottingham Forest captain Joe Worrall is close to completing a permanent move to Burnley.`\
-https://nytimes.com/athletic/5714413/2024/08/21/joe-worrall-burnley-nottingham-forest/
 

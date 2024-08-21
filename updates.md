@@ -1,3 +1,11 @@
+**The Party’s After-Parties: Once Dreary Democrats Remember How to Have Fun**\
+`“This is a group that’s not used to being happy — they’re used to complaining,” one reveler noted. For now, at least, the rise of Kamala Harris has changed that.`\
+https://nytimes.com/2024/08/21/us/elections/democratic-convention-chicago-late-night-parties.html
+
+**Here’s What to Expect at the Democratic National Convention on Day 3**\
+`All eyes will be on Gov. Tim Walz as he formally accepts the Democratic Party’s nomination for vice president on Wednesday night.`\
+https://nytimes.com/2024/08/21/us/politics/what-to-expect-dnc-day-3-chicago.html
+
 **Oakland Ballers launch investment round for fans**\
 `The maximum amount the Ballers can raise through this round of funding is $1.235 million. The listed value of the team is $26.235 million.`\
 https://nytimes.com/athletic/5710761/2024/08/21/oakland-ballers-fan-ownership-shares/
