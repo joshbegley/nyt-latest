@@ -1,40 +1,40 @@
-**Here’s what to expect in Chicago on Wednesday.**\
-`By Michael D. Shear`\
-https://nytimes.com/live/2024/08/21/us/harriz-walz-dnc-trump/heres-what-to-expect-in-chicago-on-wednesday
+**Video Shows Aftermath of Bus Crash in Iran That Killed Dozens**\
+`Shia Muslim pilgrims from Pakistan were traveling to the Iraqi city of Karbala for a religious festival when their vehicle overturned in Iran, killing at least 28 of those onboard. At least 23 other passengers were wounded, 14 of them critically.`\
+https://nytimes.com/video/world/middleeast/100000009646446/video-shows-aftermath-of-bus-crash-in-iran-that-killed-dozens.html
 
-**Croatia dual national Sigur switches to Canada**\
-`The midfielder has previously spoken of his allegiance to Croatia but has applied to play for Canada instead`\
-https://nytimes.com/athletic/5712845/2024/08/21/canada-croatia-niko-sigur-switch/
+**Cutdown day preview: Will Vikings part with Lewis Cine? Will any undrafted players stick?**\
+`Roster cutdown day is less than a week away, and the Vikings will have tough decisions to make on both lines and in the secondary.`\
+https://nytimes.com/athletic/5712323/2024/08/21/minnesota-vikings-cuts-lewis-cine-jaren-hall/
 
-**Hard Work and Fizzy Drinks: What It Takes to Live Past 110**\
-`They are called supercentenarians, and they have seen it all.`\
-https://nytimes.com/2024/08/21/arts/oldest-people-advice-long-life-supercentenarians.html
+**Inside the Silverdome, the first indoor World Cup stadium**\
+`In 2016, our writer went inside the 1994 World Cup stadium in the suburbs of Detroit that was revolutionary in many ways`\
+https://nytimes.com/athletic/5709772/2024/08/21/lions-world-cup-usa-silverdome-visit/
 
-**Gallagher completes Atletico transfer from Chelsea**\
-`Atletico Madrid have completed the signing of midfielder Conor Gallagher from Chelsea.`\
-https://nytimes.com/athletic/5711520/2024/08/21/conor-gallagher-atletico-madrid-transfer-chelsea/
+**Inside Ukraine’s Invasion of Russia**\
+`What the unlikely incursion could mean for the war.`\
+https://nytimes.com/2024/08/21/podcasts/the-daily/ukraines-russia-incursion.html
 
-**Florida State ready to go from College Football Playoff's biggest snub to first-round bye**\
-`The Seminoles are the preseason pick to repeat as ACC champions despite losing 10 NFL Draft picks from last year's 13-1 team. `\
-https://nytimes.com/athletic/5688104/2024/08/21/florida-state-college-football-playoff-case-projection/
+**Packers mailbag: Kicker competition, backup QBs, O-line shuffling and more**\
+`Will the Packers make a trade before roster cutdown day? How about looking elsewhere for a kicker or backup quarterback?`\
+https://nytimes.com/athletic/5711883/2024/08/21/packers-mailbag-sean-clifford-michael-pratt/
 
-**Walmart Dumps Entire Stake in China’s JD.com**\
-`Walmart’s divestiture comes as its e-commerce partner has struggled to maintain its market share in the country’s cutthroat online sales industry.`\
-https://nytimes.com/2024/08/21/business/walmart-jd-com-china.html
+**Big Ten football tiers: How many of the 18 teams can make new Playoff?**\
+`The expanded Big Ten has two national title contenders, multiple teams that can make a CFP run and others in the midst of a rebuild.`\
+https://nytimes.com/athletic/5700994/2024/08/21/big-ten-football-tiers-rankings-cfp-projections/
 
-**Could Royals star Bobby Witt Jr. be the first player in decades to hit .400 ... at home?**\
-`Even as batting averages continue to fall across MLB, Witt is chasing .400 at spacious Kauffmann Field. `\
-https://nytimes.com/athletic/5712920/2024/08/21/bobby-witt-mlb-royals-400-hitter/
+**Hollinger: The 5 best under-the-radar moves from the NBA offseason**\
+`These transactions from the past couple of months deserve a little more attention than they received initially. Let's give it to them.`\
+https://nytimes.com/athletic/5711191/2024/08/21/nba-underrated-trades-signings-klay-thompson-tyus-jones/
 
-**Knicks' rotation projections, No. 2 offensive options after Jalen Brunson and more**\
-`Fred Katz answers some of your Knicks questions in Part 2 of a mailbag.`\
-https://nytimes.com/athletic/5712520/2024/08/21/knicks-mailbag-rotation-projections/
+**The Connections Companion No. 438**\
+`Scroll down for hints and conversation about the puzzle for Thursday, Aug. 22, 2024.`\
+https://nytimes.com/2024/08/21/crosswords/connections-companion-438.html
 
-**Yankees takeaways: What to make of the Anthony Volpe discourse**\
-`In Year 2, Volpe has continued to struggle. Why do the Yankees believe he'll reach his potential? `\
-https://nytimes.com/athletic/5713234/2024/08/21/yankees-anthony-volpe-struggles-analysis/
+**The Obamas Electrify in Chicago, and a Secret U.S. Nuclear Defense Plan**\
+`Plus, eating meat may raise diabetes risk, studies suggest.`\
+https://nytimes.com/2024/08/21/podcasts/obama-dnc-nuclear.html
 
-**High school football 2024 guide: National matchups, top talent, QB recruits**\
-`The high football season begins in earnest this weekend with some huge matchups featuring some of the top recruits in the country. `\
-https://nytimes.com/athletic/5711063/2024/08/21/high-school-football-matchups-talent-recruitment-2/
+**Wordle Review No. 1,160**\
+`Scroll down for hints and conversation about the puzzle for Day of Week, Date, Year.`\
+https://nytimes.com/2024/08/21/crosswords/wordle-review-1160.html
 
