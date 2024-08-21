@@ -1,3 +1,7 @@
+**Joseph A Ripp**\
+`News about Joseph A Ripp. Commentary and archival information about Joseph A Ripp from The New York Times.`\
+https://nytimes.com/topic/joseph-a-ripp
+
 **Chargers training camp, Day 21: Justin Herbert dazzles in 'elite' practice**\
 `Herbert has been sharp since returning from a 2 1/2-week absence due to a foot injury. `\
 https://nytimes.com/athletic/5715627/2024/08/21/justin-herbert-chargers-training-camp-elite/
