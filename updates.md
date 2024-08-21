@@ -1,3 +1,7 @@
+**Gallagher completes Atletico transfer from Chelsea**\
+`Atletico Madrid have completed the signing of midfielder Conor Gallagher from Chelsea.`\
+https://nytimes.com/athletic/5711520/2024/08/21/conor-gallagher-atletico-madrid-transfer-chelsea/
+
 **Here’s what to expect in Chicago on Wednesday.**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/08/21/us/harriz-walz-dnc-trump/heres-what-to-expect-in-chicago-on-wednesday

@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5712845/2024/08/21/canada-croatia-niko-sigur-switch
 `They are called supercentenarians, and they have seen it all.`\
 https://nytimes.com/2024/08/21/arts/oldest-people-advice-long-life-supercentenarians.html
 
-**Conor Gallagher completes Atletico Madrid transfer from Chelsea**\
+**Gallagher completes Atletico transfer from Chelsea**\
 `Atletico Madrid have completed the signing of midfielder Conor Gallagher from Chelsea.`\
 https://nytimes.com/athletic/5711520/2024/08/21/conor-gallagher-atletico-madrid-transfer-chelsea/
 
