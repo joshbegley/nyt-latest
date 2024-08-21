@@ -1,3 +1,7 @@
+**Doug Emhoff’s Powerfully Ordinary American Jewish Life**\
+`For many Jews of his age, Emhoff’s path to the convention stage has been astonishingly familiar.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/doug-emhoff-american-jews
+
 **Bill Pascrell Jr., 14-Term House Democrat From N.J., Dies at 87**\
 `An outspoken progressive, he vigorously opposed President Donald J. Trump and focused on legislation to help “regular Americans pay their bills.”`\
 https://nytimes.com/2024/08/21/nyregion/bill-pascrell-dead.html

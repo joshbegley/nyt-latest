@@ -1,3 +1,7 @@
+**Doug Emhoff’s Powerfully Ordinary American Jewish Life**\
+`For many Jews of his age, Emhoff’s path to the convention stage has been astonishingly familiar.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/doug-emhoff-american-jews
+
 **Bill Pascrell Jr., 14-Term House Democrat From N.J., Dies at 87**\
 `An outspoken progressive, he vigorously opposed President Donald J. Trump and focused on legislation to help “regular Americans pay their bills.”`\
 https://nytimes.com/2024/08/21/nyregion/bill-pascrell-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/21/us/politics/what-to-expect-dnc-day-3-chicago.html
 **Oakland Ballers launch investment round for fans**\
 `The maximum amount the Ballers can raise through this round of funding is $1.235 million. The listed value of the team is $26.235 million.`\
 https://nytimes.com/athletic/5710761/2024/08/21/oakland-ballers-fan-ownership-shares/
-
-**Dylan Raiola named Nebraska's starting QB**\
-`Raiola, a 2024 top-10 recruit, is the first true freshman to start a season opener for Nebraska since Adrian Martinez in 2018.`\
-https://nytimes.com/athletic/5714549/2024/08/21/true-freshman-dylan-raiola-named-nebraskas-starting-qb-for-season-opener/
 
