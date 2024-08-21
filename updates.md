@@ -1,3 +1,11 @@
+**WBC reveals 2026 tournament schedule, format**\
+`The United States, which finished runner-up to Japan in 2023, will be in Pool B with Mexico, Italy, Great Britain.`\
+https://nytimes.com/athletic/5714377/2024/08/21/world-baseball-classic-2026-schedule/
+
+**An Easy Buttermilk Peach Cobbler to Whip Up on a Weeknight**\
+`It’s just about the summery-est thing you can do with the last of the season’s stone fruits.`\
+https://nytimes.com/2024/08/21/dining/peach-cobbler.html
+
 **Harris Goes Light on Climate Policy. Green Leaders Are OK With That.**\
 `President Biden made climate change a cornerstone of his agenda. Vice President Kamala Harris has yet to detail her own plan.`\
 https://nytimes.com/2024/08/21/climate/climate-policy-harris.html
