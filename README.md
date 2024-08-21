@@ -1,3 +1,7 @@
+**Joseph A Ripp**\
+`News about Joseph A Ripp. Commentary and archival information about Joseph A Ripp from The New York Times.`\
+https://nytimes.com/topic/joseph-a-ripp
+
 **Joey Votto, legendary Reds first baseman, retires after 17 seasons**\
 `Votto played his entire MLB career with the Reds, amassing a Hall of Fame resume that includes 2,135 hits and the 2010 NL MVP Award.`\
 https://nytimes.com/athletic/5715661/2024/08/21/joey-votto-retirement-reds/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/21/movies/megalopolis-trailer-fake-quotes.html
 **On the bubble: Jalen Graham and other 49ers face final chance to earn their spot**\
 `One of the hardest positions to winnow down this year might be cornerback, where eight players are vying for perhaps five roster spots.`\
 https://nytimes.com/athletic/5715522/2024/08/21/49ers-roster-bubble-jalen-graham/
-
-**Transcript: Ezra Klein on Barack Obama and Michelle Obama’s Convention Speeches**\
-`The August 21, 2024, episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2024/08/21/podcasts/transcript-ezra-klein-dnc-digest.html
 
