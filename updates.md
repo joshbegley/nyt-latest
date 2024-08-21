@@ -1,3 +1,15 @@
+**Glenn A Fine**\
+`News about Glenn A Fine. Commentary and archival information about Glenn A Fine from The New York Times.`\
+https://nytimes.com/topic/glenn-a-fine
+
+**Fed Minutes Showed a Cut ‘Likely’ Coming in September**\
+`Even before a disappointing July jobs report, Federal Reserve officials thought they would probably cut rates at their Sept. 17-18 meeting.`\
+https://nytimes.com/2024/08/21/business/economy/fed-minutes-cut-likely.html
+
+**Norwich exploring deal to sign Real Madrid's Reinier on loan**\
+`Norwich City are exploring a deal to sign Real Madrid midfielder Reinier Jesus on loan.`\
+https://nytimes.com/athletic/5706235/2024/08/21/reinier-jesus-norwich-real-madrid/
+
 **'Different rules': What the reaction to Sinner's doping case says about tennis and integrity**\
 `Tennis is a sport of double standards. Players know this — but when they are perceived in matters of integrity, they catch light`\
 https://nytimes.com/athletic/5712885/2024/08/21/jannik-sinner-doping-case-player-reaction-moore-shapovalov-kyrgios/
