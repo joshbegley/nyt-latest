@@ -1,3 +1,11 @@
+**Ana Navarro addresses Republican remarks on communism with her own story.**\
+`By Jazmine Ulloa`\
+https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/ana-navarro-addresses-republican-remarks-on-communism-with-her-own-story
+
+**On the bubble: Jalen Graham and other 49ers face final chance to earn their spot**\
+`One of the hardest positions to winnow down this year might be cornerback, where eight players are vying for perhaps five roster spots.`\
+https://nytimes.com/athletic/5715522/2024/08/21/49ers-roster-bubble-jalen-graham/
+
 **Ex-Babysitter Gets 3 Years in Prison in 2019 Death of Man She Injured as a Baby**\
 `Terry McKirchy, 62, violently shook Benjamin Dowling while babysitting for him in 1984, prosecutors said. She was charged with murder after he died from his injuries 35 years later.`\
 https://nytimes.com/2024/08/21/us/babysitter-manslaughter-sentencing-florida.html
