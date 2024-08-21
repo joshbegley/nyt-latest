@@ -1,10 +1,14 @@
+**Delegates ‘Get Low’ With Lil Jon in a Musical Roll-Call Vote for Harris**\
+`The rapper, representing Georgia, briefly stole the show in Chicago with a surprise performance during a lively yet symbolic vote. Vice President Kamala Harris is already the party’s nominee.`\
+https://nytimes.com/2024/08/20/us/politics/lil-jon-dnc-harris.html
+
 **No one injured during fire emergency at Cowboys training camp hotel**\
 `The emergency occurred Tuesday afternoon in one of the hotel's guest rooms, which was empty at the time of the incident, the team said.`\
 https://nytimes.com/athletic/5713354/2024/08/20/dallas-cowboys-training-camp-fire/
 
 **Chargers training camp, Day 20: JT Woods getting extended audition at cornerback**\
 `A 2022 third-round pick who has disappointed at safety, Woods has been a playmaker at cornerback since switching positions last week.`\
-https://nytimes.com/athletic/5713350/2024/08/20/chargers-training-camp-day-20-jt-woods-getting-extended-audition-at-cornerback/
+https://nytimes.com/athletic/5713350/2024/08/20/chargers-jt-woods-training-camp/
 
 **History Shows How Autoworkers Could Be Crucial for Harris**\
 `Especially given Trump’s admiration for breaking strikes.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5713137/2024/08/20/cardinals-jordan-walker-brandon-
 **Why Brett Gardner won't attend Yankees' 2009 World Series celebration**\
 `Gardner's absence was the most notable on a list of attendees that includes Derek Jeter, Alex Rodriguez, CC Sabathia and others.`\
 https://nytimes.com/athletic/5713298/2024/08/20/brett-gardner-2009-world-series-celebration-absence/
-
-**Special teams coordinator Trevor Reilly no longer on Colorado staff**\
-`Following Reilly’s departure, just two on-field Colorado staffers are still in the same roles they held when the 2023 season began.`\
-https://nytimes.com/athletic/5713283/2024/08/20/deion-sanders-trevor-reilly-colorado-coach/
 
