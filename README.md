@@ -28,7 +28,7 @@ https://nytimes.com/athletic/5713276/2024/08/21/my-guys-top-targets-fantasy-foot
 
 **Russia Said It Repelled a Large Ukrainian Drone Attack on Moscow**\
 `The attack came as Kyiv presses on with a cross-border offensive into western Russia that has rattled the Kremlin.`\
-https://nytimes.com/2024/08/21/world/europe/ukraine-attack-moscow.html
+https://nytimes.com/2024/08/21/world/europe/ukraine-russia-drone-attack-moscow.html
 
 **Bus of Pilgrims From Pakistan Crashes in Iran, Killing at Least 28**\
 `Iranian state media reported that the passengers were traveling to the Iraqi city of Karbala for Arbaeen, a Shiite Muslim holiday.`\
