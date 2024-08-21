@@ -1,3 +1,15 @@
+**Ex-Babysitter Gets 3 Years in Prison in 2019 Death of Man She Injured as a Baby**\
+`Terry McKirchy, 62, violently shook Benjamin Dowling while babysitting for him in 1984, prosecutors said. She was charged with murder after he died from his injuries 35 years later.`\
+https://nytimes.com/2024/08/21/us/babysitter-manslaughter-sentencing-florida.html
+
+**Studio Pulls ‘Megalopolis’ Trailer Featuring Fake Review Quotes**\
+`To promote Francis Ford Coppola’s epic, the spot used supposed lines from The Times, The New Yorker and others to suggest critics were wrong about him.`\
+https://nytimes.com/2024/08/21/movies/megalopolis-trailer-fake-quotes.html
+
+**On the bubble: Jalen Graham and other 49ers face final chance to earn their spot**\
+`One of the hardest positions to winnow down this year might be cornerback where eight players are vying for perhaps five roster spots.`\
+https://nytimes.com/athletic/5715522/2024/08/21/49ers-roster-bubble-jalen-graham/
+
 **Transcript: Ezra Klein on Barack Obama and Michelle Obama’s Convention Speeches**\
 `The August 21, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/08/21/podcasts/transcript-ezra-klein-dnc-digest.html
