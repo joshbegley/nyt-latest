@@ -1,3 +1,11 @@
+**Word of the Day: prolific**\
+`This word has appeared in 738 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/21/learning/word-of-the-day-prolific.html
+
+**Barack Obama Calls for Unity in Soaring D.N.C. Speech**\
+`Former President Barack Obama blamed politicians and social media algorithms for deepening social and political divisions among Americans.`\
+https://nytimes.com/video/us/politics/100000009646272/barack-obama-dnc-unity.html
+
 **Full Transcript of Michelle Obama’s Speech at the Democratic Convention**\
 `The former first lady spoke for just over 20 minutes and told the convention that “hope is making a comeback.”`\
 https://nytimes.com/2024/08/21/us/politics/michelle-obama-dnc-speech-transcript.html
