@@ -1,3 +1,7 @@
+**Maresca on Chelsea squad: 'It is not a mess that it looks like from outside'**\
+`Enzo Maresca insists Chelsea are not in a mess over the size of their squad and denied he has been brutal over the axing of senior players like Raheem Sterling.`\
+https://nytimes.com/athletic/5714238/2024/08/21/chelsea-squad-enzo-maresca/
+
 **Barack Obama’s Speech Was a Reminder of the Possible**\
 `Harris is selling something different, but would continue his legacy.`\
 https://nytimes.com/2024/08/20/opinion/obama-convention-speech-harris.html
