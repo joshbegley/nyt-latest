@@ -1,3 +1,11 @@
+**David A Tepper**\
+`News about David A Tepper. Commentary and archival information about David A Tepper from The New York Times.`\
+https://nytimes.com/topic/david-a-tepper
+
+**Richard A. Carranza**\
+`News about Richard A. Carranza. Commentary and archival information about Richard A. Carranza from The New York Times.`\
+https://nytimes.com/topic/richard-a-carranza
+
 **On Harris’s Price-Gouging Ban, Allies and Foes May Have the Wrong Idea**\
 `The plan does not appear to amount to government price controls. It also might not bring down grocery bills anytime soon.`\
 https://nytimes.com/2024/08/21/business/economy/harris-price-gouging-ban-groceries.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/21/us/mit-black-latino-enrollment-affirmative-action
 **Scoop City: Would Dak leave for $60 million?**\
 `Would a team really pay Prescott $60 million? We look at that, plus preseason standouts and the Falcons latest acquisition.`\
 https://nytimes.com/athletic/5714599/2024/08/21/scoop-city-would-dak-leave-for-60-million/
-
-**Did You Meet Someone Special This Summer?**\
-`Do you have a summer meet-cute story? Whether it was a chance encounter at the beach or a spontaneous date that turned into something more, we want to hear about your summer romances.`\
-https://nytimes.com/2024/08/21/style/summer-meet-cute.html
-
-**The Party’s After-Parties: Once Dreary Democrats Remember How to Have Fun**\
-`“This is a group that’s not used to being happy — they’re used to complaining,” one reveler noted. For now, at least, the rise of Kamala Harris has changed that.`\
-https://nytimes.com/2024/08/21/us/elections/democratic-convention-chicago-late-night-parties.html
 
