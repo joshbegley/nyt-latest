@@ -1,3 +1,15 @@
+**Submit questions for 'The Athletic NBA Show' podcast mailbag**\
+`Have a question about the NBA offseason? Send them in for our next episode of "The Athletic NBA Show."`\
+https://nytimes.com/athletic/5715057/2024/08/21/submit-questions-for-the-athletic-nba-show-podcast-mailbag/
+
+**Democrats Use the Convention to Try to Define Trump as a Self-Interested Fraud**\
+`Speeches and videos seek to shrink Donald Trump in order to rise above him, as Kamala Harris and her allies work to minimize him and disengage from him.`\
+https://nytimes.com/2024/08/21/us/politics/harris-attack-lines-trump.html
+
+**In Chicago, Democrats Warn of Threat to Democracy**\
+`Even amid a more optimistic vibe, convention speakers remind delegates of Donald J. Trump’s efforts to overturn the 2020 election.`\
+https://nytimes.com/2024/08/21/us/elections/democratic-convention-democracy.html
+
 **Leeds agree deal to sign ex-Man Utd youngster Ramazani**\
 `Leeds United have agreed a deal to sign Belgian forward Largie Ramazani from Almeria.`\
 https://nytimes.com/athletic/5715053/2024/08/21/leeds-united-largie-ramazani/
