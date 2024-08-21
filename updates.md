@@ -1,3 +1,11 @@
+**Convention Insider: Ro Khanna Never Skips Breakfast**\
+`The Silicon Valley congressman is spending his time going to 15 state delegation breakfasts and maybe, just maybe, laying groundwork for higher office.`\
+https://nytimes.com/2024/08/21/us/politics/ro-khanna-dnc.html
+
+**Kevin A Hassett**\
+`News about Kevin A Hassett. Commentary and archival information about Kevin A Hassett from The New York Times.`\
+https://nytimes.com/topic/kevin-a-hassett
+
 **Mark A. Morgan**\
 `News about Mark A. Morgan. Commentary and archival information about Mark A. Morgan from The New York Times.`\
 https://nytimes.com/topic/mark-a-morgan

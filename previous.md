@@ -1,3 +1,11 @@
+**Convention Insider: Ro Khanna Never Skips Breakfast**\
+`The Silicon Valley congressman is spending his time going to 15 state delegation breakfasts and maybe, just maybe, laying groundwork for higher office.`\
+https://nytimes.com/2024/08/21/us/politics/ro-khanna-dnc.html
+
+**Kevin A Hassett**\
+`News about Kevin A Hassett. Commentary and archival information about Kevin A Hassett from The New York Times.`\
+https://nytimes.com/topic/kevin-a-hassett
+
 **Mark A. Morgan**\
 `News about Mark A. Morgan. Commentary and archival information about Mark A. Morgan from The New York Times.`\
 https://nytimes.com/topic/mark-a-morgan
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5714850/2024/08/21/patriots-starting-qb-decision-pr
 **Divert Great Lakes Water to California?**\
 `Readers discuss a guest essay about dealing with groundwater depletion. Also: Feeling hopeful; no comparison between medals; nix “no problem.”`\
 https://nytimes.com/2024/08/21/opinion/letters/divert-great-lakes-water.html
-
-**‘Worst-Case’ Disaster for Antarctic Ice Looks Less Likely, Study Finds**\
-`Global warming is putting the continent’s ice at risk of destruction in many forms. But one especially calamitous scenario might be a less pressing concern, a new study found.`\
-https://nytimes.com/2024/08/21/climate/antarctic-ice-cliff-collapse.html
-
-**How Did the First Cells Arise? With a Little Rain, Study Finds.**\
-`Researchers stumbled upon an ingredient that can stabilize droplets of genetic material: water.`\
-https://nytimes.com/2024/08/21/science/first-cells-rain.html
 
