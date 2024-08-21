@@ -1,3 +1,7 @@
+**Full Transcript of Michelle Obama’s Speech at the Democratic Convention**\
+`The former first lady spoke for just over 20 minutes and told the convention that “hope is making a comeback.”`\
+https://nytimes.com/2024/08/21/us/politics/michelle-obama-dnc-speech-transcript.html
+
 **Late-round fliers: Rico Dowdle, Greg Dortch among the top post-120 ADP targets for fantasy football 2024**\
 `John Laghezza names his All-120+ ADP team, and explains why Rico Dowdle might be the best fantasy RB value going in the double-digit rounds.`\
 https://nytimes.com/athletic/5709920/2024/08/21/late-round-fliers-adp-targets-fantasy-football-2024/

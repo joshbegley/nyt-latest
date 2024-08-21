@@ -1,3 +1,7 @@
+**Full Transcript of Michelle Obama’s Speech at the Democratic Convention**\
+`The former first lady spoke for just over 20 minutes and told the convention that “hope is making a comeback.”`\
+https://nytimes.com/2024/08/21/us/politics/michelle-obama-dnc-speech-transcript.html
+
 **Late-round fliers: Rico Dowdle, Greg Dortch among the top post-120 ADP targets for fantasy football 2024**\
 `John Laghezza names his All-120+ ADP team, and explains why Rico Dowdle might be the best fantasy RB value going in the double-digit rounds.`\
 https://nytimes.com/athletic/5709920/2024/08/21/late-round-fliers-adp-targets-fantasy-football-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5709272/2024/08/21/brenden-aaronson-leeds-united/
 **Why are Manchester United still so vulnerable to counter-attacks?**\
 `Fulham did not create many clear-cut chances on Friday, but they had plenty of opportunities to do so. United still have a problem...`\
 https://nytimes.com/athletic/5711545/2024/08/21/manchester-united-counter-attacks-analysis/
-
-**Penetrative dribbling, dangerous passing and interceptions - what Gruda brings to Brighton**\
-`A detailed analysis of winger Gruda's style of play, strengths and weaknesses - as well as how he will fit into Fabian Hurzeler's plans`\
-https://nytimes.com/athletic/5702908/2024/08/21/what-gruda-brings-to-brighton/
 
