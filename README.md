@@ -1,3 +1,11 @@
+**Word of the Day: prolific**\
+`This word has appeared in 738 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/21/learning/word-of-the-day-prolific.html
+
+**Barack Obama Calls for Unity in Soaring D.N.C. Speech**\
+`Former President Barack Obama blamed politicians and social media algorithms for deepening social and political divisions among Americans.`\
+https://nytimes.com/video/us/politics/100000009646272/barack-obama-dnc-unity.html
+
 **Full Transcript of Michelle Obama’s Speech at the Democratic Convention**\
 `The former first lady spoke for just over 20 minutes and told the convention that “hope is making a comeback.”`\
 https://nytimes.com/2024/08/21/us/politics/michelle-obama-dnc-speech-transcript.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5697757/2024/08/21/bromley-the-92-club/
 **D.N.C. Holds Enthusiastic Roll Call to Nominate Harris**\
 `Delegates from each state and territory cast votes to nominate Vice President Kamala Harris as the official standard-bearer of the Democratic Party.`\
 https://nytimes.com/video/us/elections/100000009646174/dnc-roll-call-chicago-kamala-harris.html
-
-**How Brenden Aaronson can win over Leeds United fans**\
-`Brenden Aaronson has returned to Leeds this season and been cast as a villain — how can he recover from this?`\
-https://nytimes.com/athletic/5709272/2024/08/21/brenden-aaronson-leeds-united/
-
-**Why are Manchester United still so vulnerable to counter-attacks?**\
-`Fulham did not create many clear-cut chances on Friday, but they had plenty of opportunities to do so. United still have a problem...`\
-https://nytimes.com/athletic/5711545/2024/08/21/manchester-united-counter-attacks-analysis/
 
