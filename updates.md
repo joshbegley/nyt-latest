@@ -1,3 +1,19 @@
+**How U.S. Farms Could Start a Bird Flu Pandemic**\
+`The virus is poised to become a permanent presence in cattle, raising the odds of an eventual outbreak among people.`\
+https://nytimes.com/2024/08/21/health/bird-flu-cattle-pandemic.html
+
+**Begovic set for Everton medical**\
+`Asmir Begovic is set for a medical this week ahead of re-joining Everton on a free transfer.`\
+https://nytimes.com/athletic/5711664/2024/08/21/asmir-begovic-everton-transfer/
+
+**Chelsea sign France striker Ribadeira**\
+`Chelsea Women have signed France international Louna Ribadeira from Paris FC.`\
+https://nytimes.com/athletic/5714282/2024/08/21/chelsea-women-sign-louna-ribadeira/
+
+**Michelle Obama Suits the Moment**\
+`On Day 2 of the Democratic National Convention, the former first lady (and her husband) suited up for the next stage.`\
+https://nytimes.com/2024/08/21/style/michelle-obama-dnc-fashion.html
+
 **Maresca on Chelsea squad: 'It is not a mess that it looks like from outside'**\
 `Enzo Maresca insists Chelsea are not in a mess over the size of their squad and denied he has been brutal over the axing of senior players like Raheem Sterling.`\
 https://nytimes.com/athletic/5714238/2024/08/21/chelsea-squad-enzo-maresca/
