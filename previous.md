@@ -1,3 +1,11 @@
+**Harris, in a Show of Force, Holds a Large Rally 80 Miles From Her Convention**\
+`The two-city rally, with Democrats celebrating at their convention in Chicago and an arena in Milwaukee, was a pointed rejoinder to Donald Trump and a significant flexing of the party’s muscle.`\
+https://nytimes.com/2024/08/20/us/politics/harris-rally-milwaukee-dnc.html
+
+**“Within two months of taking office, our government did respond. We passed the American Rescue Plan, which provided $1,400 for every man, woman and child in the working class. We extended and expanded benefits for the unemployed.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/within-two-months-of-taking-office-our-government-did-respond-we-passed-the-american-rescue-plan-which-provided-1400-for-every-m
+
 **Something in the Air**\
 `Stacey Yaruss McCullough makes her New York Times debut.`\
 https://nytimes.com/2024/08/20/crosswords/daily-puzzle-2024-08-21.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/08/20/opinion/thepoint/auto-workers-harris-campaig
 **Colts' Anthony Richardson struggles in practice with Bengals: 'Is that all he does is run?'**\
 `Richardson ended Tuesday's practice against the Bengals 10-of-20 passing with one INT, one touchdown and a lot of frustration.`\
 https://nytimes.com/athletic/5713201/2024/08/20/indianapolis-colts-anthony-richardson-bengals-practice/
-
-**U.S. Army Soldier Charged With Lying About Ties to Insurrectionist Group**\
-`The soldier, Kai Liam Nix, 20, who was stationed at Fort Liberty in North Carolina, is also accused of illegally selling firearms.`\
-https://nytimes.com/2024/08/20/us/north-carolina-soldier-arrested-guns-trafficking.html
-
-**Jennifer Lopez Files for Divorce From Ben Affleck**\
-`The A-list couple, who married in 2022, had attempted to rekindle their romance after close to two decades.`\
-https://nytimes.com/2024/08/20/style/jennifer-lopez-ben-affleck-divorce.html
 
