@@ -1,3 +1,11 @@
+**Ex-Babysitter Gets 3 Years in Prison in 2019 Death of Man She Injured as a Baby**\
+`Terry McKirchy, 62, violently shook Benjamin Dowling while babysitting for him in 1984, prosecutors said. She was charged with murder after he died from his injuries 35 years later.`\
+https://nytimes.com/2024/08/21/us/babysitter-manslaughter-sentencing-florida.html
+
+**Studio Pulls ‘Megalopolis’ Trailer Featuring Fake Review Quotes**\
+`To promote Francis Ford Coppola’s epic, the spot used supposed lines from The Times, The New Yorker and others to suggest critics were wrong about him.`\
+https://nytimes.com/2024/08/21/movies/megalopolis-trailer-fake-quotes.html
+
 **On the bubble: Jalen Graham and other 49ers face final chance to earn their spot**\
 `One of the hardest positions to winnow down this year might be cornerback where eight players are vying for perhaps five roster spots.`\
 https://nytimes.com/athletic/5715522/2024/08/21/49ers-roster-bubble-jalen-graham/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/21/business/media/paramount-skydance-bronfman.html
 **Convention Insider: Lauren Underwood Is Right at Home in Chicago**\
 `The congresswoman is in her home city, and has been a selfie magnet for sorority sisters and young Democrats.`\
 https://nytimes.com/2024/08/21/us/politics/lauren-underwood-dnc-chicago.html
-
-**Richard A Posner**\
-`News about Richard A Posner. Commentary and archival information about Richard A Posner from The New York Times.`\
-https://nytimes.com/topic/richard-a-posner
-
-**Alex Bregman’s injury could limit his availability at third base**\
-`"Some little gremlins in there are causing some swelling that I’m just going to have to try to mitigate," Bregman said regarding his elbow.`\
-https://nytimes.com/athletic/5715433/2024/08/21/houston-astros-alex-bregman-third-base/
 
