@@ -1,3 +1,11 @@
+**Cardinals option Nolan Gorman to Triple A in latest roster shakeup**\
+`The decision came after Gorman's August OPS dropped to .508. He was hitting just .212 on the month and had not homered or driven in a run.`\
+https://nytimes.com/athletic/5714748/2024/08/21/cardinals-nolan-gorman-optioned/
+
+**Kennedy Will Address His ‘Path Forward’ as Campaign Struggles**\
+`Robert F. Kennedy Jr. is running out of money and out of time to get on the ballot in various states. Rather than campaigning, he’s in court.`\
+https://nytimes.com/2024/08/21/nyregion/rfk-jr-presidential-campaign-speech.html
+
 **Should I Take My Share of a Class-Action Settlement I Think Could Be Bogus?**\
 `The magazine’s Ethicist columnist on whether it’s wrong to participate in a lawsuit you don’t really believe in.`\
 https://nytimes.com/2024/08/21/magazine/class-action-settlement-ethics.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/21/us/texas-busing-migrants-abbott-democrats.html
 **We All Live in Vegas Now**\
 `America is becoming a nation of gamblers. Why?`\
 https://nytimes.com/2024/08/21/opinion/online-betting-gambling.html
-
-**Al Attles, a Golden State Warrior in Name and in Spirit, Dies at 87**\
-`He was known as the Destroyer for his gritty intensity as a player. He later coached Golden State to an N.B.A. championship and served as its general manager.`\
-https://nytimes.com/2024/08/21/sports/al-attles-dead.html
-
-**Michael A McFaul**\
-`News about Michael A McFaul. Commentary and archival information about Michael A McFaul from The New York Times.`\
-https://nytimes.com/topic/michael-a-mcfaul
 

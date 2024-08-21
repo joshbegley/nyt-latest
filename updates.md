@@ -1,3 +1,11 @@
+**Cardinals option Nolan Gorman to Triple A in latest roster shakeup**\
+`The decision came after Gorman's August OPS dropped to .508. He was hitting just .212 on the month and had not homered or driven in a run.`\
+https://nytimes.com/athletic/5714748/2024/08/21/cardinals-nolan-gorman-optioned/
+
+**Kennedy Will Address His ‘Path Forward’ as Campaign Struggles**\
+`Robert F. Kennedy Jr. is running out of money and out of time to get on the ballot in various states. Rather than campaigning, he’s in court.`\
+https://nytimes.com/2024/08/21/nyregion/rfk-jr-presidential-campaign-speech.html
+
 **Should I Take My Share of a Class-Action Settlement I Think Could Be Bogus?**\
 `The magazine’s Ethicist columnist on whether it’s wrong to participate in a lawsuit you don’t really believe in.`\
 https://nytimes.com/2024/08/21/magazine/class-action-settlement-ethics.html
