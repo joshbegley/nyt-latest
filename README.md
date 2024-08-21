@@ -1,3 +1,19 @@
+**Why Kamala’s Mom Is More ‘Brat’ Than She Is**\
+`Shyamala Gopalan created the context for the vice president’s “brat” energy.`\
+https://nytimes.com/video/opinion/100000009644712/why-kamalas-mom-is-more-brat-than-she-is.html
+
+**Peter A DeFazio**\
+`News about Peter A DeFazio. Commentary and archival information about Peter A DeFazio from The New York Times.`\
+https://nytimes.com/topic/peter-a-defazio
+
+**Paul A Engelmayer**\
+`News about Paul A Engelmayer. Commentary and archival information about Paul A Engelmayer from The New York Times.`\
+https://nytimes.com/topic/paul-a-engelmayer
+
+**The Convention’s Happiest Democrats? The ‘Pretty Psyched’ Minnesotans.**\
+`The unexpected rise of a native son, Tim Walz, has thrilled his local compatriots in Chicago. “The Minnesota delegation is, like, buzzing,” said Senator Tina Smith.`\
+https://nytimes.com/2024/08/21/us/politics/minnesota-dnc-democrat-tim-walz.html
+
 **What ‘It Ends With Us’ Gets Wrong (and Right) About Domestic Abuse**\
 `Its depiction of love-bombing and psychological abuse rings true, experts say, but other oversimplified aspects could send a dangerous message.`\
 https://nytimes.com/2024/08/21/movies/it-ends-with-us-domestic-violence.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/08/21/health/bird-flu-cattle-pandemic.html
 **Begovic set for Everton medical**\
 `Asmir Begovic is set for a medical this week ahead of re-joining Everton on a free transfer.`\
 https://nytimes.com/athletic/5711664/2024/08/21/asmir-begovic-everton-transfer/
-
-**Chelsea sign France striker Ribadeira**\
-`Chelsea Women have signed France international Louna Ribadeira from Paris FC.`\
-https://nytimes.com/athletic/5714282/2024/08/21/chelsea-women-sign-louna-ribadeira/
-
-**Michelle Obama Suits the Moment**\
-`On Day 2 of the Democratic National Convention, the former first lady (and her husband) suited up for the next stage.`\
-https://nytimes.com/2024/08/21/style/michelle-obama-dnc-fashion.html
-
-**Should the Raiders be worried about their offensive line, even as Kolton Miller returns?**\
-`Despite the return of their first-string left tackle from the PUP list, the Raiders have dealt with injuries to two other likely starters.`\
-https://nytimes.com/athletic/5713330/2024/08/21/raiders-offensive-line-kolton-miller/
-
-**‘Hannah Gadsby: Woof’ Review: A Comic’s Pet Themes**\
-`In a soul-baring new show at the Edinburgh Fringe, the Australian stand-up leans once again into fears, anxieties and mental health worries.`\
-https://nytimes.com/2024/08/21/arts/hannah-gadsby-woof-review.html
 
