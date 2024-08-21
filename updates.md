@@ -1,3 +1,7 @@
+**Dozens of Protesters Arrested in Chicago as Democrats Meet**\
+`Demonstrators gathered outside the Israeli consulate on Tuesday, then scuffled with the police.`\
+https://nytimes.com/2024/08/21/us/chicago-dnc-protest-arrests.html
+
 **Thursday Briefing: Russia Says Ukraine Aimed Drones at Moscow**\
 `Plus, China’s “road-trip auntie.”`\
 https://nytimes.com/2024/08/21/briefing/ukraine-russia-israel-hezbollah-harris-trump.html
