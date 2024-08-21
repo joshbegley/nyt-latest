@@ -1,3 +1,7 @@
+**Thursday Briefing: Russia Says Ukraine Aimed Drones at Moscow**\
+`Plus, China’s “road-trip auntie.”`\
+https://nytimes.com/2024/08/21/briefing/ukraine-russia-israel-hezbollah-harris-trump.html
+
 **Charlene Marshall, Central Figure in a Celebrity Scandal, Dies at 79**\
 `Her husband, Anthony, was convicted of defrauding his wealthy mother, Brooke Astor. But in the tabloids, Mrs. Marshall often seemed to be the one on trial.`\
 https://nytimes.com/2024/08/21/nyregion/charlene-marshall-dead.html
