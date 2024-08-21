@@ -1,3 +1,19 @@
+**What ‘It Ends With Us’ Gets Wrong (and Right) About Domestic Abuse**\
+`Its depiction of love-bombing and psychological abuse rings true, experts say, but other oversimplified aspects could send a dangerous message.`\
+https://nytimes.com/2024/08/21/movies/it-ends-with-us-domestic-violence.html
+
+**Divers Find 2 Bodies From Yacht That Sank off Sicily**\
+`The discovery came after the vessel sank this week in what some witnesses described as a waterspout, or a small tornado, during a violent downpour. No names were immediately released.`\
+https://nytimes.com/2024/08/21/world/europe/sicily-yacht-bayesian-bodies-found.html
+
+**Congress Asks Regulators About ‘Troubling’ Health Insurance Tactics**\
+`Lawmakers are zeroing in on MultiPlan, a firm that has helped insurers cut payments while sometimes leaving patients with large bills.`\
+https://nytimes.com/2024/08/21/us/congress-multiplan-health-insurance-medical-bills.html
+
+**U.S. Added 818,000 Fewer Jobs Than Reported Earlier**\
+`The Labor Department issued revised figures for the 12 months through March that point to greater economic fragility.`\
+https://nytimes.com/2024/08/21/business/economy/us-jobs-economy.html
+
 **How U.S. Farms Could Start a Bird Flu Pandemic**\
 `The virus is poised to become a permanent presence in cattle, raising the odds of an eventual outbreak among people.`\
 https://nytimes.com/2024/08/21/health/bird-flu-cattle-pandemic.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5713330/2024/08/21/raiders-offensive-line-kolton-mi
 **‘Hannah Gadsby: Woof’ Review: A Comic’s Pet Themes**\
 `In a soul-baring new show at the Edinburgh Fringe, the Australian stand-up leans once again into fears, anxieties and mental health worries.`\
 https://nytimes.com/2024/08/21/arts/hannah-gadsby-woof-review.html
-
-**Barack Obama’s Speech Was a Reminder of the Possible**\
-`Harris is selling something different, but would continue his legacy.`\
-https://nytimes.com/2024/08/20/opinion/obama-convention-speech-harris.html
-
-**Martinez signs new Villa contract until 2029**\
-`Emi Martinez has signed a new contract with Aston Villa until 2029.`\
-https://nytimes.com/athletic/5714265/2024/08/21/emi-martinez-aston-villa-contract/
-
-**Ford Pulls Back Its Electric Vehicle Push**\
-`The automaker said it would invest less in battery-powered cars and scrap a planned electric three-row sport utility vehicle.`\
-https://nytimes.com/2024/08/21/business/economy/ford-ev-plant-delay.html
-
-**Germany's Neuer retires from international football**\
-`Germany goalkeeper Manuel Neuer has confirmed his retirement from international football.`\
-https://nytimes.com/athletic/5714226/2024/08/21/manuel-neuer-germany-retires/
 
