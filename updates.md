@@ -1,3 +1,15 @@
+**Aides to Trump and Netanyahu deny reports that they discussed cease-fire talks.**\
+`By Maggie Haberman, Jonathan Swan and Isabel Kershner`\
+https://nytimes.com/live/2024/08/21/world/israel-iran-hamas-gaza-war/aides-to-trump-and-netanyahu-deny-reports-that-they-discussed-cease-fire-talks
+
+**Liberals Needed a Beyoncé Moment. Kamala Harris Is Delivering One.**\
+`The vice president is giving Democrats what they want while disorienting Donald Trump.`\
+https://nytimes.com/2024/08/21/opinion/kamala-harris-beyonce-convention.html
+
+**Dozens of Protesters Arrested in Chicago as Democrats Meet**\
+`At least 55 demonstrators, including three journalists, were detained on Tuesday night after protesters gathered outside the Israeli consulate and then scuffled with the police.`\
+https://nytimes.com/2024/08/21/us/chicago-dnc-protest-arrests.html
+
 **Dozens of Protesters Arrested in Chicago as Democrats Meet**\
 `Demonstrators gathered outside the Israeli consulate on Tuesday, then scuffled with the police.`\
 https://nytimes.com/2024/08/21/us/chicago-dnc-protest-arrests.html
