@@ -1,3 +1,7 @@
+**Divert Great Lakes Water to California?**\
+`Readers discuss a guest essay about dealing with groundwater depletion. Also: Feeling hopeful; no comparison between medals; nix “no problem.”`\
+https://nytimes.com/2024/08/21/opinion/letters/divert-great-lakes-water.html
+
 **‘Worst-Case’ Disaster for Antarctic Ice Looks Less Likely, Study Finds**\
 `Global warming is putting the continent’s ice at risk of destruction in many forms. But one especially calamitous scenario might be a less pressing concern, a new study found.`\
 https://nytimes.com/2024/08/21/climate/antarctic-ice-cliff-collapse.html
