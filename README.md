@@ -1,3 +1,7 @@
+**On the bubble: Jalen Graham and other 49ers face final chance to earn their spot**\
+`One of the hardest positions to winnow down this year might be cornerback where eight players are vying for perhaps five roster spots.`\
+https://nytimes.com/athletic/5715522/2024/08/21/49ers-roster-bubble-jalen-graham/
+
 **Transcript: Ezra Klein on Barack Obama and Michelle Obama’s Convention Speeches**\
 `The August 21, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/08/21/podcasts/transcript-ezra-klein-dnc-digest.html
@@ -29,8 +33,4 @@ https://nytimes.com/topic/richard-a-posner
 **Alex Bregman’s injury could limit his availability at third base**\
 `"Some little gremlins in there are causing some swelling that I’m just going to have to try to mitigate," Bregman said regarding his elbow.`\
 https://nytimes.com/athletic/5715433/2024/08/21/houston-astros-alex-bregman-third-base/
-
-**Bill Clinton, From Star to Scandal to Statesman, Seeks to Lift Up Harris**\
-`Mr. Clinton’s political history of boom and bust has made him one of the most enduring figures of modern American life, if not always its most accepted.`\
-https://nytimes.com/2024/08/21/us/politics/bill-clinton-dnc-speech.html
 
