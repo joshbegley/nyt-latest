@@ -1,3 +1,7 @@
+**Worrall close to completing Burnley move from Nottingham Forest**\
+`Former Nottingham Forest captain Joe Worrall is close to completing a permanent move to Burnley.`\
+https://nytimes.com/athletic/5714413/2024/08/21/joe-worrall-burnley-nottingham-forest/
+
 **WBC reveals 2026 tournament schedule, format**\
 `The United States, which finished runner-up to Japan in 2023, will be in Pool B with Mexico, Italy, Great Britain.`\
 https://nytimes.com/athletic/5714377/2024/08/21/world-baseball-classic-2026-schedule/

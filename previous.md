@@ -1,3 +1,7 @@
+**Worrall close to completing Burnley move from Nottingham Forest**\
+`Former Nottingham Forest captain Joe Worrall is close to completing a permanent move to Burnley.`\
+https://nytimes.com/athletic/5714413/2024/08/21/joe-worrall-burnley-nottingham-forest/
+
 **WBC reveals 2026 tournament schedule, format**\
 `The United States, which finished runner-up to Japan in 2023, will be in Pool B with Mexico, Italy, Great Britain.`\
 https://nytimes.com/athletic/5714377/2024/08/21/world-baseball-classic-2026-schedule/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/21/technology/ai-election-campaigns.html
 **Why Kamala’s Mom Is More ‘Brat’ Than She Is**\
 `Shyamala Gopalan created the context for the vice president’s “brat” energy.`\
 https://nytimes.com/video/opinion/100000009644712/why-kamalas-mom-is-more-brat-than-she-is.html
-
-**Peter A DeFazio**\
-`News about Peter A DeFazio. Commentary and archival information about Peter A DeFazio from The New York Times.`\
-https://nytimes.com/topic/peter-a-defazio
 
