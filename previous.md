@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5715661/2024/08/21/joey-votto-retirement-reds/
 https://nytimes.com/2024/08/21/us/georgia-prison-drone-smuggle.html
 
 **Chargers training camp, Day 21: Justin Herbert dazzles in 'elite' practice**\
-`Herbert has been sharp since returning from a 2 1/2 week absence due to a foot injury. `\
+`Herbert has been sharp since returning from a 2 1/2-week absence due to a foot injury. `\
 https://nytimes.com/athletic/5715627/2024/08/21/justin-herbert-chargers-training-camp-elite/
 
 **What we learned from a high-intensity Bills practice week**\
