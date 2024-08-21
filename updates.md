@@ -1,3 +1,7 @@
+**Macy’s Reports Lower Sales as Shoppers Cut Back**\
+`Department store chains have struggled as consumers, squeezed by budget constraints, spend less time and money at their stores.`\
+https://nytimes.com/2024/08/21/business/macys-2nd-quarter-earnings.html
+
 **The Pulse: Inside a sport’s frustrating fight for popularity**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5713301/2024/08/21/erin-matson-field-hockey-olympics-the-pulse/
