@@ -1,3 +1,11 @@
+**The Pulse: Inside a sport’s frustrating fight for popularity**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5713301/2024/08/21/erin-matson-field-hockey-olympics-the-pulse/
+
+**Everton have a right-back shortage - is Roman Dixon ready for the first team?**\
+`Sean Dyche's three senior right-backs won't feature against Spurs on Saturday. It means the impressive 19-year-old could get the call...`\
+https://nytimes.com/athletic/5713767/2024/08/21/everton-roman-dixon-sean-dyche-right-back/
+
 **Thailand Reports Mpox Case in Traveler Who Arrived From Africa**\
 `Officials are testing if the patient has the new version of the virus. If confirmed, it would be Thailand’s first case involving Clade Ib mpox.`\
 https://nytimes.com/2024/08/21/world/asia/thailand-mpox.html

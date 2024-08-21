@@ -1,3 +1,7 @@
+**The Pulse: Inside a sport’s frustrating fight for popularity**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5713301/2024/08/21/erin-matson-field-hockey-olympics-the-pulse/
+
 **Thailand Reports Mpox Case in Traveler Who Arrived From Africa**\
 `Officials are testing if the patient has the new version of the virus. If confirmed, it would be Thailand’s first case involving Clade Ib mpox.`\
 https://nytimes.com/2024/08/21/world/asia/thailand-mpox.html
@@ -6,8 +10,8 @@ https://nytimes.com/2024/08/21/world/asia/thailand-mpox.html
 `The Athletic is invited behind the scenes at NBC for the Premier League games at Old Trafford, the London Stadium and Stamford Bridge`\
 https://nytimes.com/athletic/5712144/2024/08/21/premier-league-nbc-epl-lowe/
 
-**Everton have a right-back shortage - is Roman Dixon ready for the first-team?**\
-`Sean Dyche's three senior right-backs will not feature against Spurs. It means the impressive 19-year-old could get the call on Saturday`\
+**Everton have a right-back shortage - is Roman Dixon ready for the first team?**\
+`Sean Dyche's three senior right-backs won't feature against Spurs on Saturday. It means the impressive 19-year-old could get the call...`\
 https://nytimes.com/athletic/5713767/2024/08/21/everton-roman-dixon-sean-dyche-right-back/
 
 **Feldman's College Football Playoff bracket: Who's in and who's out after camp?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5711569/2024/08/21/conor-gallagher-joao-felix-chels
 **Forest close to agreeing fee to sign Nketiah**\
 `Nottingham Forest are close to agreeing a fee with Arsenal for the transfer of Eddie Nketiah, while talks also progress on personal terms.`\
 https://nytimes.com/athletic/5710347/2024/08/21/eddie-nketiah-nottingham-forest-transfer-arsenal/
-
-**Video Shows the Aftermath of a Bus Crash in Iran that Killed Dozens**\
-`The wreckage of the vehicle that overturned in Iran, killing at least 28 pilgrims from Pakistan, in footage broadcast on an Iranian TV channel.`\
-https://nytimes.com/video/world/middleeast/100000009646446/video-shows-aftermath-of-bus-crash-in-iran-that-killed-dozens.html
 
