@@ -1,3 +1,7 @@
+**Russia Said It Repelled a Large Ukrainian Drone Attack on Moscow**\
+`The attack came as Kyiv presses on with a cross-border offensive into western Russia that has rattled the Kremlin.`\
+https://nytimes.com/2024/08/21/world/europe/ukraine-russia-drone-attack-moscow.html
+
 **Chase Elliott on what he'd change about NASCAR and more: 12 Questions**\
 `Hendrick Motorsports star Chase Elliott gives his thoughts on the NASCAR schedule, keeping his own schedule under control and more.`\
 https://nytimes.com/athletic/5712726/2024/08/21/chase-elliott-nascar-12-questions/
