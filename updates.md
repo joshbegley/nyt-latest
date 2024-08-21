@@ -1,3 +1,19 @@
+**Why are Manchester United still so vulnerable to counter-attacks?**\
+`Fulham did not create many clear-cut chances on Friday, but they had plenty of opportunities to do so. United still have a problem...`\
+https://nytimes.com/athletic/5711545/2024/08/21/manchester-united-counter-attacks-analysis/
+
+**Penetrative dribbling, dangerous passing and interceptions - what Gruda brings to Brighton**\
+`A detailed analysis of winger Gruda's style of play, strengths and weaknesses - as well as how he will fit into Fabian Hurzeler's plans`\
+https://nytimes.com/athletic/5702908/2024/08/21/what-gruda-brings-to-brighton/
+
+**Eddie Nketiah to Nottingham Forest? All the key questions answered**\
+`How would the forward fit into Forest's squad? Would it be a good move for his career? Does selling make sense for Arsenal?`\
+https://nytimes.com/athletic/5712047/2024/08/21/nketiah-nottingham-forest-questions-answered/
+
+**Bundesliga season preview: Bayern Munich the underdogs, and can anyone beat Bayer Leverkusen?**\
+`We look ahead to Vincent Kompany's step up as Bayern coach, Xabi Alonso's title defence and many more storylines to follow`\
+https://nytimes.com/athletic/5705002/2024/08/21/bundesliga-new-season-bayern-leverkusen-dortmund-leipzig/
+
 **Salah's Liverpool contract: What's going on?**\
 `What is the state of play on Egyptian's deal, which expires next summer - and who could seek to capitalise?`\
 https://nytimes.com/athletic/5711784/2024/08/21/mohamed-salah-liverpool-contract-latest/
