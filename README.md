@@ -1,15 +1,3 @@
-**Could That Garage Be Apartments? New York Hunts for Places to Build.**\
-`Mayor Eric Adams will sign an executive order that directs every city agency to investigate whether they have land that can be developed.`\
-https://nytimes.com/2024/08/21/nyregion/ny-housing-libraries-garages.html
-
-**A Photographer’s Deep Dive Into Murky Waters**\
-`Michael Turek recently descended 20 feet beneath the waves off New York’s coast to photograph divers who brave the green-tinged waters.`\
-https://nytimes.com/2024/08/21/insider/a-photographers-deep-dive-into-murky-waters.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/08/21/crosswords/spelling-bee-forum.html
-
 **Women’s Cricket World Cup Moved From Bangladesh Because of Unrest**\
 `The United Arab Emirates will host the tournament after many governments advised against traveling to Bangladesh.`\
 https://nytimes.com/2024/08/21/sports/cricket-world-cup-t20-bangladesh-uae.html
@@ -37,4 +25,16 @@ https://nytimes.com/2024/08/21/learning/word-of-the-day-prolific.html
 **Barack Obama Calls for Unity in Soaring D.N.C. Speech**\
 `Former President Barack Obama blamed politicians and social media algorithms for deepening social and political divisions among Americans.`\
 https://nytimes.com/video/us/politics/100000009646272/barack-obama-dnc-unity.html
+
+**Full Transcript of Michelle Obama’s Speech at the Democratic Convention**\
+`The former first lady spoke for just over 20 minutes and told the convention that “hope is making a comeback.”`\
+https://nytimes.com/2024/08/21/us/politics/michelle-obama-dnc-speech-transcript.html
+
+**Late-round fliers: Rico Dowdle, Greg Dortch among the top post-120 ADP targets for fantasy football 2024**\
+`John Laghezza names his All-120+ ADP team, and explains why Rico Dowdle might be the best fantasy RB value going in the double-digit rounds.`\
+https://nytimes.com/athletic/5709920/2024/08/21/late-round-fliers-adp-targets-fantasy-football-2024/
+
+**Corrections: Aug. 21, 2024**\
+`Corrections that appeared in print on Wednesday, Aug. 21, 2024.`\
+https://nytimes.com/2024/08/21/pageoneplus/corrections-aug-21-2024.html
 
