@@ -1,3 +1,7 @@
+**Here Is the Kamala Harris Roll Call Playlist**\
+`As each state delegation was called on, it was accompanied by a song.`\
+https://nytimes.com/2024/08/21/us/elections/harris-dnc-roll-call-dj-cassidy.html
+
 **Onana is bringing height and awareness to Villa's midfield - he is now Emery's key man**\
 `Onana was the one Villa midfield signing this summer that was bought for the here and now - he's made an impressive start `\
 https://nytimes.com/athletic/5706712/2024/08/21/amadou-onana-aston-villa-unai-emery/

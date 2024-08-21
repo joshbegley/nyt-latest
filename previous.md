@@ -1,3 +1,7 @@
+**Here Is the Kamala Harris Roll Call Playlist**\
+`As each state delegation was called on, it was accompanied by a song.`\
+https://nytimes.com/2024/08/21/us/elections/harris-dnc-roll-call-dj-cassidy.html
+
 **Onana is bringing height and awareness to Villa's midfield - he is now Emery's key man**\
 `Onana was the one Villa midfield signing this summer that was bought for the here and now - he's made an impressive start `\
 https://nytimes.com/athletic/5706712/2024/08/21/amadou-onana-aston-villa-unai-emery/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5705002/2024/08/21/bundesliga-new-season-bayern-lev
 **Salah's Liverpool contract: What's going on?**\
 `What is the state of play on Egyptian's deal, which expires next summer - and who could seek to capitalise?`\
 https://nytimes.com/athletic/5711784/2024/08/21/mohamed-salah-liverpool-contract-latest/
-
-**How Palmer went from schoolkid to superstar - by the scout who found him**\
-`The new PFA Young Player of the Year has had a dizzying rise to stardom but the man who discovered him is not surprised`\
-https://nytimes.com/athletic/5697773/2024/08/21/cole-palmer-chelsea-manchester-city-scout/
 
