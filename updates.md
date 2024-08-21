@@ -1,3 +1,7 @@
+**Chargers training camp, Day 21: Justin Herbert dazzles in 'elite' practice**\
+`Herbert has been sharp since returning from a 2 1/2 week absence due to a foot injury. `\
+https://nytimes.com/athletic/5715627/2024/08/21/justin-herbert-chargers-training-camp-elite/
+
 **What we learned from a high-intensity Bills practice week**\
 `The Bills had two fully-padded practices and did a lot of 11-on-11 work.`\
 https://nytimes.com/athletic/5715301/2024/08/21/buffalo-bills-practice-cole-bishop-mike-edwards-tyler-bass/
