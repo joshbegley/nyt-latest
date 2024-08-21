@@ -1,3 +1,7 @@
+**Police Break Up Ultra-Orthodox Israelis Protesting Military Draft**\
+`Israeli police officers scuffled with groups of ultra-Orthodox men protesting against military conscription in front of a draft center in Jerusalem.`\
+https://nytimes.com/video/world/middleeast/100000009646593/ultra-orthodox-protest-jerusalem.html
+
 **Biden’s Exit Transformed Democratic Fund-Raising**\
 `When Vice President Kamala Harris became the party’s nominee, the money started to flow.`\
 https://nytimes.com/2024/08/21/us/politics/biden-harris-fundraising.html

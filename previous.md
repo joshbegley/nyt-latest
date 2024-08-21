@@ -1,3 +1,7 @@
+**Police Break Up Ultra-Orthodox Israelis Protesting Military Draft**\
+`Israeli police officers scuffled with groups of ultra-Orthodox men protesting against military conscription in front of a draft center in Jerusalem.`\
+https://nytimes.com/video/world/middleeast/100000009646593/ultra-orthodox-protest-jerusalem.html
+
 **Biden’s Exit Transformed Democratic Fund-Raising**\
 `When Vice President Kamala Harris became the party’s nominee, the money started to flow.`\
 https://nytimes.com/2024/08/21/us/politics/biden-harris-fundraising.html
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/5714422/2024/08/21/seattle-mariners-pitching-the-wi
 **Man Utd winger Pellistri joins Panathinaikos**\
 `Panathinaikos have completed the signing of Manchester United forward Facundo Pellistri.`\
 https://nytimes.com/athletic/5711493/2024/08/21/facundo-pellistri-joins-panathinaikos/
-
-**An Easy Buttermilk Peach Cobbler to Whip Up on a Weeknight**\
-`It’s just about the summery-est thing you can do with the last of the season’s stone fruits.`\
-https://nytimes.com/2024/08/21/dining/peach-cobbler.html
-
-**Why Kamala Harris’s Mom Is More ‘Brat’ Than She Is**\
-`Shyamala Gopalan created the context for the vice president’s “brat” energy.`\
-https://nytimes.com/2024/08/21/opinion/kamala-harris-mother-shayamala.html
 
