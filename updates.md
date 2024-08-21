@@ -1,3 +1,7 @@
+**Struggling starters put Dodgers in a confounding place: 'It's not ideal'**\
+`Los Angeles faces having to allow two pitchers to figure things out while the division is still very much in the balance.`\
+https://nytimes.com/athletic/5713691/2024/08/21/dodgers-walker-buehler/
+
 **Twins bullpen implodes for 4 runs, again, in loss to Padres**\
 `Two days after Minnesota's bullpen evaporated a four-run lead in nine pitches, Twins relievers surrendered another four-spot.`\
 https://nytimes.com/athletic/5713653/2024/08/21/twins-lose-bullpen-padres/

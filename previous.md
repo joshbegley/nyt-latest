@@ -1,3 +1,7 @@
+**Struggling starters put Dodgers in a confounding place: 'It's not ideal'**\
+`Los Angeles faces having to allow two pitchers to figure things out while the division is still very much in the balance.`\
+https://nytimes.com/athletic/5713691/2024/08/21/dodgers-walker-buehler/
+
 **Could That Garage Be Apartments? New York Hunts for Places to Build.**\
 `Mayor Eric Adams will sign an executive order that directs every city agency to investigate whether they have land that can be developed.`\
 https://nytimes.com/2024/08/21/nyregion/ny-housing-libraries-garages.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/21/arts/television/late-night-biden-dnc.html
 **Word of the Day: prolific**\
 `This word has appeared in 738 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/21/learning/word-of-the-day-prolific.html
-
-**Barack Obama Calls for Unity in Soaring D.N.C. Speech**\
-`Former President Barack Obama blamed politicians and social media algorithms for deepening social and political divisions among Americans.`\
-https://nytimes.com/video/us/politics/100000009646272/barack-obama-dnc-unity.html
 
