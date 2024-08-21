@@ -1,3 +1,7 @@
+**Women’s Cricket World Cup Moved From Bangladesh Because of Unrest**\
+`The United Arab Emirates will host the tournament after many governments advised against traveling to Bangladesh.`\
+https://nytimes.com/2024/08/21/sports/cricket-world-cup-t20-bangladesh-uae.html
+
 **‘I Am the Only Person Stupid Enough to Speak After Michelle Obama’**\
 `So said former President Barack Obama after his wife electrified the Democratic National Convention. The delegates loved him, but they really loved her.`\
 https://nytimes.com/2024/08/21/us/politics/obamas-convention.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5709920/2024/08/21/late-round-fliers-adp-targets-fa
 **Corrections: Aug. 21, 2024**\
 `Corrections that appeared in print on Wednesday, Aug. 21, 2024.`\
 https://nytimes.com/2024/08/21/pageoneplus/corrections-aug-21-2024.html
-
-**Quotation of the Day: Braving the Wild to Rescue the Rarest of Flowers**\
-`Quotation of the Day for Wednesday, August 21, 2024.`\
-https://nytimes.com/2024/08/21/pageoneplus/quotation-of-the-day-braving-the-wild-to-rescue-the-rarest-of-flowers.html
 
