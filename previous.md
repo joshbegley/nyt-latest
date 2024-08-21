@@ -1,3 +1,31 @@
+**The Debate: Which new signings stood out most in the Premier League's opening round?**\
+`Which new signing impressed you most in the season's first round of Premier League matches? Two of our writers give their choices...`\
+https://nytimes.com/athletic/5710225/2024/08/21/premier-league-transfers-debut-standout/
+
+**Wednesday Briefing**\
+`The second night of the Democratic National Convention.`\
+https://nytimes.com/2024/08/21/briefing/dnc-harris-ukraine-gaza.html
+
+**Wednesday's MLB best bets: Predictions for pitching matchups, playoffs and more**\
+`See pitching matchups, playoff projections, win projections and more for Wednesday's MLB games.`\
+https://nytimes.com/athletic/5711777/2024/08/21/mlb-odds-best-bets-projections-august-21/
+
+**Russia Seeks to Turn Humbling Incursion Into Military Gains**\
+`Two weeks after Ukraine launched its surprise attack, Russian forces have recovered from the initial shock and are now trying to exploit the expansion of the war to their battlefield advantage.`\
+https://nytimes.com/2024/08/21/world/europe/russian-response-ukraine-incursion.html
+
+**They Spouted Hate Online. Then They Were Arrested.**\
+`As hundreds of people appear in court for their role in recent anti-immigrant riots in Britain, several are accused of fueling disorder through online posts, raising questions about the limits of free speech.`\
+https://nytimes.com/2024/08/21/world/europe/they-spouted-hate-online-then-they-were-arrested.html
+
+**China’s ‘Road Trip Auntie’ Is Ready for a New Milestone: Divorce**\
+`Su Min became an internet sensation for leaving behind an abusive husband to drive across China alone. Now she’s ending the marriage, but there will be a price.`\
+https://nytimes.com/2024/08/21/world/asia/china-road-trip-auntie-divorce.html
+
+**Fight for Control of Central Bank Threatens Libya’s Uneasy Peace**\
+`The country has settled into a tense east-west divide, but turmoil around the central bank, which handles Libya’s oil riches, has worsened a fraying, fragile political setup.`\
+https://nytimes.com/2024/08/21/world/middleeast/libya-central-bank-political-stability.html
+
 **Bears 'Hard Knocks' takeaways: Pursuing Matthew Judon, Caleb Williams' highlights**\
 `The best episode of the season did what the show does best: took viewers behind the scenes for enlightening and entertaining moments.`\
 https://nytimes.com/athletic/5713563/2024/08/20/bears-hard-knocks-episode-3-ryan-poles/
@@ -9,32 +37,4 @@ https://nytimes.com/video/us/elections/100000009646048/harris-rally-milwaukee-dn
 **“Donald Trump and JD Vance want to dismantle our health care system, repeal the Affordable Care Act and eliminate protections for pre-existing conditions.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/08/20/us/dnc-fact-check/donald-trump-and-jd-vance-want-to-dismantle-our-health-care-system-repeal-the-affordable-care-act-and-eliminate-protections-for-
-
-**Doug Emhoff, Both Earnest and Poking Fun at Himself, Talks Up His Wife**\
-`The second gentleman drew on his relationship with Kamala Harris in his speech at the Democratic convention, telling a story about a bumbling voice mail message he left her early on.`\
-https://nytimes.com/2024/08/20/us/politics/doug-emhoff-speech.html
-
-**With a chance to topple decimated Braves, Phillies kick series off with a dud**\
-`The Braves may be depleted, but they aren't letting up, and it's up to the first-place Phillies to respond.`\
-https://nytimes.com/athletic/5713534/2024/08/20/phillies-braves-begins-with-dud/
-
-**Michelle Obama Absolutely Takes Apart Donald Trump**\
-`No doublespeak, no metaphors — just straight talk.`\
-https://nytimes.com/live/2024/08/20/opinion/thepoint/michelle-obama-dnc-speech
-
-**Daniel A. Nigro**\
-`News about Daniel A. Nigro. Commentary and archival information about Daniel A. Nigro from The New York Times.`\
-https://nytimes.com/topic/daniel-a-nigro
-
-**Montana Certifies Signatures for November Abortion Question**\
-`Also on Tuesday, Arizona’s Supreme Court rejected a challenge to a similar ballot measure. That means at least nine states will vote on whether to establish a constitutional right to abortion.`\
-https://nytimes.com/2024/08/20/us/montana-abortion-rights.html
-
-**Mets' Little League defense lowlights loss: 'It's an absolute mess!'**\
-`NEW YORK — A sloppy loss for the New York Mets reached an embarrassing nadir in the top of the ninth inning when they committed a misplay and multiple errors on one shallow fly ball from Gunnar Henderson.`\
-https://nytimes.com/athletic/5713518/2024/08/20/mets-orioles-little-league-defense/
-
-**A G.O.P. mayor in Arizona urged moderates to vote for the ‘adults in the room.’**\
-`John Giles, the Republican mayor of Mesa, Ariz., is the most prominent Republican to back Kamala Harris in Arizona, a longtime conservative bastion that has been trending purple in recent elections.`\
-https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/a-gop-mayor-in-arizona-urged-moderates-to-vote-for-the-adults-in-the-room
 
