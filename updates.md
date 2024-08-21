@@ -1,3 +1,11 @@
+**Should I Take My Share of a Class-Action Settlement I Think Could Be Bogus?**\
+`The magazine’s Ethicist columnist on whether it’s wrong to participate in a lawsuit you don’t really believe in.`\
+https://nytimes.com/2024/08/21/magazine/class-action-settlement-ethics.html
+
+**What players' reaction to Sinner's doping case says about their trust in their sport**\
+`Tennis is a sport of double standards. Players know this — but when they are perceived in matters of integrity, they catch light`\
+https://nytimes.com/athletic/5712885/2024/08/21/jannik-sinner-doping-case-player-reaction-moore-shapovalov-kyrgios/
+
 **Fed Minutes Show a Cut ‘Likely’ to Come in September**\
 `Even before a disappointing July jobs report, Federal Reserve officials thought they would probably cut rates at their Sept. 17-18 meeting.`\
 https://nytimes.com/2024/08/21/business/economy/fed-minutes-cut-likely.html
