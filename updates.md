@@ -1,3 +1,15 @@
+**Is Anyone Crashing This Unity Convention?**\
+`It’s not the chaos many feared, but protesters and uncommitted delegates are pushing their cause.`\
+https://nytimes.com/2024/08/21/podcasts/is-anyone-crashing-this-unity-convention.html
+
+**Javier Báez will always be a Cubs legend but there is no magic in his return to Wrigley**\
+`Báez returned to Chicago scuffling through another season with the Tigers, who must be looking to get out from under his big contract.`\
+https://nytimes.com/athletic/5713557/2024/08/21/tigers-cubs-javier-baez-return-wrigley/
+
+**Video Shows the Aftermath of a Bus Crash in Iran that Killed Dozens**\
+`The wreckage of the vehicle that overturned in Iran, killing at least 28 pilgrims from Pakistan, in footage broadcast on an Iranian TV channel.`\
+https://nytimes.com/video/world/middleeast/100000009646446/video-shows-aftermath-of-bus-crash-in-iran-that-killed-dozens.html
+
 **Who’s the Change Candidate?**\
 `Inside the fight over who most represents change ahead of November.`\
 https://nytimes.com/2024/08/21/briefing/harris-trump-2024-election-change.html

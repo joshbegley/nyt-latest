@@ -1,3 +1,11 @@
+**Is Anyone Crashing This Unity Convention?**\
+`It’s not the chaos many feared, but protesters and uncommitted delegates are pushing their cause.`\
+https://nytimes.com/2024/08/21/podcasts/is-anyone-crashing-this-unity-convention.html
+
+**Javier Báez will always be a Cubs legend but there is no magic in his return to Wrigley**\
+`Báez returned to Chicago scuffling through another season with the Tigers, who must be looking to get out from under his big contract.`\
+https://nytimes.com/athletic/5713557/2024/08/21/tigers-cubs-javier-baez-return-wrigley/
+
 **Who’s the Change Candidate?**\
 `Inside the fight over who most represents change ahead of November.`\
 https://nytimes.com/2024/08/21/briefing/harris-trump-2024-election-change.html
@@ -10,8 +18,8 @@ https://nytimes.com/athletic/5711569/2024/08/21/conor-gallagher-joao-felix-chels
 `Nottingham Forest are close to agreeing a fee with Arsenal for the transfer of Eddie Nketiah, while talks also progress on personal terms.`\
 https://nytimes.com/athletic/5710347/2024/08/21/eddie-nketiah-nottingham-forest-transfer-arsenal/
 
-**Video Shows Aftermath of Bus Crash in Iran That Killed Dozens**\
-`Shia Muslim pilgrims from Pakistan were traveling to the Iraqi city of Karbala for a religious festival when their vehicle overturned in Iran, killing at least 28 of those onboard. At least 23 other passengers were wounded, 14 of them critically.`\
+**Video Shows the Aftermath of a Bus Crash in Iran that Killed Dozens**\
+`The wreckage of the vehicle that overturned in Iran, killing at least 28 pilgrims from Pakistan, in footage broadcast on an Iranian TV channel.`\
 https://nytimes.com/video/world/middleeast/100000009646446/video-shows-aftermath-of-bus-crash-in-iran-that-killed-dozens.html
 
 **Cutdown day preview: Will Vikings part with Lewis Cine? Will any undrafted players stick?**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/21/podcasts/the-daily/ukraines-russia-incursion.html
 **Packers mailbag: Kicker competition, backup QBs, O-line shuffling and more**\
 `Will the Packers make a trade before roster cutdown day? How about looking elsewhere for a kicker or backup quarterback?`\
 https://nytimes.com/athletic/5711883/2024/08/21/packers-mailbag-sean-clifford-michael-pratt/
-
-**Big Ten football tiers: How many of the 18 teams can make new Playoff?**\
-`The expanded Big Ten has two national title contenders, multiple teams that can make a CFP run and others in the midst of a rebuild.`\
-https://nytimes.com/athletic/5700994/2024/08/21/big-ten-football-tiers-rankings-cfp-projections/
-
-**Hollinger: The 5 best under-the-radar moves from the NBA offseason**\
-`These transactions from the past couple of months deserve a little more attention than they received initially. Let's give it to them.`\
-https://nytimes.com/athletic/5711191/2024/08/21/nba-underrated-trades-signings-klay-thompson-tyus-jones/
 
