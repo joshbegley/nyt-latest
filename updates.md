@@ -1,3 +1,19 @@
+**Introducing the newest ground on the Ninety-Two Club's list: Hayes Lane, Bromley**\
+`Richard Sutcliffe visits the newest destination for fans out to tick off visits to all 92 stadiums in English football's top four divisions`\
+https://nytimes.com/athletic/5697757/2024/08/21/bromley-the-92-club/
+
+**D.N.C. Holds Enthusiastic Roll Call to Nominate Harris**\
+`Delegates from each state and territory cast votes to nominate Vice President Kamala Harris as the official standard-bearer of the Democratic Party.`\
+https://nytimes.com/video/us/elections/100000009646174/dnc-roll-call-chicago-kamala-harris.html
+
+**How Brenden Aaronson can win over Leeds United fans**\
+`Brenden Aaronson has returned to Leeds this season and been cast as a villain — how can he recover from this?`\
+https://nytimes.com/athletic/5709272/2024/08/21/brenden-aaronson-leeds-united/
+
+**Reynaldo López excels in IL return, as injury-plagued and resilient Braves top Phillies**\
+`The Braves are battered and bruised, but they're not giving in. Behind López's 10 strikeouts, Atlanta topped Philadelphia. `\
+https://nytimes.com/athletic/5713580/2024/08/21/reynaldo-lopez-excels-in-return/
+
 **Why are Manchester United still so vulnerable to counter-attacks?**\
 `Fulham did not create many clear-cut chances on Friday, but they had plenty of opportunities to do so. United still have a problem...`\
 https://nytimes.com/athletic/5711545/2024/08/21/manchester-united-counter-attacks-analysis/

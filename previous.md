@@ -1,3 +1,15 @@
+**Introducing the newest ground on the Ninety-Two Club's list: Hayes Lane, Bromley**\
+`Richard Sutcliffe visits the newest destination for fans out to tick off visits to all 92 stadiums in English football's top four divisions`\
+https://nytimes.com/athletic/5697757/2024/08/21/bromley-the-92-club/
+
+**D.N.C. Holds Enthusiastic Roll Call to Nominate Harris**\
+`Delegates from each state and territory cast votes to nominate Vice President Kamala Harris as the official standard-bearer of the Democratic Party.`\
+https://nytimes.com/video/us/elections/100000009646174/dnc-roll-call-chicago-kamala-harris.html
+
+**How Brenden Aaronson can win over Leeds United fans**\
+`Brenden Aaronson has returned to Leeds this season and been cast as a villain — how can he recover from this?`\
+https://nytimes.com/athletic/5709272/2024/08/21/brenden-aaronson-leeds-united/
+
 **Why are Manchester United still so vulnerable to counter-attacks?**\
 `Fulham did not create many clear-cut chances on Friday, but they had plenty of opportunities to do so. United still have a problem...`\
 https://nytimes.com/athletic/5711545/2024/08/21/manchester-united-counter-attacks-analysis/
@@ -23,18 +35,6 @@ https://nytimes.com/athletic/5711784/2024/08/21/mohamed-salah-liverpool-contract
 https://nytimes.com/athletic/5697773/2024/08/21/cole-palmer-chelsea-manchester-city-scout/
 
 **Reynaldo López excels in IL return, as injury-plagued and resilient Braves top Phillies**\
-`The Braves are battered and bruised, but they're not giving in. Behind Reynaldo López's 10 strikeouts, Atlanta topped Philadelphia. `\
+`The Braves are battered and bruised, but they're not giving in. Behind López's 10 strikeouts, Atlanta topped Philadelphia. `\
 https://nytimes.com/athletic/5713580/2024/08/21/reynaldo-lopez-excels-in-return/
-
-**Michelle Obama, Thrashing Trump, Suggests the Presidency Is a ‘Black Job’**\
-`The former first lady enthralled a packed arena on Tuesday evening with one of the Democratic National Convention’s most emphatic takedowns of Donald J. Trump.`\
-https://nytimes.com/2024/08/21/us/politics/michelle-obama-dnc-speech.html
-
-**Cardinals leave bases loaded in ninth, fall six games out of playoff picture**\
-`Paul Goldschmidt and Nolan Gorman struck out to end it as the Cardinals' frustration mounts.`\
-https://nytimes.com/athletic/5713523/2024/08/21/cardinals-brewers-paul-goldschmidt/
-
-**How do Arsenal handle Nwaneri, Lewis-Skelly and their best emerging talent?**\
-`Arsenal have a crop of very talented young players - but getting them up to first-team level is a long and thorough task years in the making`\
-https://nytimes.com/athletic/5643686/2024/08/21/arsenal-ethan-nwaneri-myles-lewis-skelly/
 
