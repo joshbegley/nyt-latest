@@ -26,7 +26,7 @@ https://nytimes.com/2024/08/21/nyregion/bill-pascrell-dead.html
 `Math scores notched upward in the city, and officials said the drop in reading was explained in part by an effort to change reading instruction and retrain hundreds of teachers.`\
 https://nytimes.com/2024/08/21/nyregion/nyc-math-reading-test-scores.html
 
-**Black and Latino Enrollment at M.I.T. Drops Significantly After End of Affirmative Action**\
+**At M.I.T., Black and Latino Enrollment Drops Sharply After Affirmative Action Ban**\
 `Asian American students made up almost half of the 2028 class — the first admitted since the end of affirmative action.`\
 https://nytimes.com/2024/08/21/us/mit-black-latino-enrollment-affirmative-action.html
 
