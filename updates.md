@@ -1,3 +1,7 @@
+**Croatia dual national Sigur switches to Canada**\
+`The midfielder has previously spoken of his allegiance to Croatia but has applied to play for Canada instead`\
+https://nytimes.com/athletic/5712845/2024/08/21/canada-croatia-niko-sigur-switch/
+
 **Hard Work and Fizzy Drinks: What It Takes to Live Past 110**\
 `They are called supercentenarians, and they have seen it all.`\
 https://nytimes.com/2024/08/21/arts/oldest-people-advice-long-life-supercentenarians.html

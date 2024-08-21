@@ -1,3 +1,7 @@
+**Croatia dual national Sigur switches to Canada**\
+`The midfielder has previously spoken of his allegiance to Croatia but has applied to play for Canada instead`\
+https://nytimes.com/athletic/5712845/2024/08/21/canada-croatia-niko-sigur-switch/
+
 **Hard Work and Fizzy Drinks: What It Takes to Live Past 110**\
 `They are called supercentenarians, and they have seen it all.`\
 https://nytimes.com/2024/08/21/arts/oldest-people-advice-long-life-supercentenarians.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5711063/2024/08/21/high-school-football-matchups-ta
 **City reach agreement with Gundogan over return to Etihad Stadium**\
 `Manchester City and Ilkay Gundogan have reached a full agreement for the German to re-sign for the Premier League side.`\
 https://nytimes.com/athletic/5711610/2024/08/21/manchester-city-ilkay-gundogan-barcelona/
-
-**Red Sox prospect takeaways: Kristian Campbell promoted, Marcelo Mayer to IL**\
-`The Red Sox “Big Three” prospects reached Triple A last week, and this week a fast-rising Campbell brought his hot bat to the level.`\
-https://nytimes.com/athletic/5712736/2024/08/21/red-sox-takeaways-kristian-campbell-marcelo-mayer/
 
