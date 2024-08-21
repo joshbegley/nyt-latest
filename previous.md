@@ -1,3 +1,7 @@
+**Oakland Ballers launch investment round for fans**\
+`The maximum amount the Ballers can raise through this round of funding is $1.235 million. The listed value of the team is $26.235 million.`\
+https://nytimes.com/athletic/5710761/2024/08/21/oakland-ballers-fan-ownership-shares/
+
 **Dylan Raiola named Nebraska's starting QB**\
 `Raiola, a 2024 top-10 recruit, is the first true freshman to start a season opener for Nebraska since Adrian Martinez in 2018.`\
 https://nytimes.com/athletic/5714549/2024/08/21/true-freshman-dylan-raiola-named-nebraskas-starting-qb-for-season-opener/
@@ -12,7 +16,7 @@ https://nytimes.com/topic/nicholas-a-dimarzio
 
 **Chelsea give Sterling, Chalobah shirt numbers to Neto, Joao Felix**\
 `Chelsea have given Raheem Sterling&#8217;s squad number to new signing Pedro Neto.`\
-https://nytimes.com/athletic/5714507/2024/08/21/pedro-neto-joao-felix-chelsea-shrit-number/
+https://nytimes.com/athletic/5714507/2024/08/21/pedro-neto-joao-felix-chelsea-shirt-numbers/
 
 **Police Break Up Ultra-Orthodox Israelis Protesting Military Draft**\
 `Israeli police officers scuffled with groups of ultra-Orthodox men protesting against military conscription in front of a draft center in Jerusalem.`\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5714500/2024/08/21/notre-dame-football-mailbag-ques
 **Worrall close to completing Burnley move from Nottingham Forest**\
 `Former Nottingham Forest captain Joe Worrall is close to completing a permanent move to Burnley.`\
 https://nytimes.com/athletic/5714413/2024/08/21/joe-worrall-burnley-nottingham-forest/
-
-**WBC reveals 2026 tournament schedule, format**\
-`The United States, which finished runner-up to Japan in 2023, will be in Pool B with Mexico, Italy, Great Britain.`\
-https://nytimes.com/athletic/5714377/2024/08/21/world-baseball-classic-2026-schedule/
 

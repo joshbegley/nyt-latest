@@ -1,3 +1,11 @@
+**Oakland Ballers launch investment round for fans**\
+`The maximum amount the Ballers can raise through this round of funding is $1.235 million. The listed value of the team is $26.235 million.`\
+https://nytimes.com/athletic/5710761/2024/08/21/oakland-ballers-fan-ownership-shares/
+
+**Chelsea give Sterling, Chalobah shirt numbers to Neto, Joao Felix**\
+`Chelsea have given Raheem Sterling&#8217;s squad number to new signing Pedro Neto.`\
+https://nytimes.com/athletic/5714507/2024/08/21/pedro-neto-joao-felix-chelsea-shirt-numbers/
+
 **Dylan Raiola named Nebraska's starting QB**\
 `Raiola, a 2024 top-10 recruit, is the first true freshman to start a season opener for Nebraska since Adrian Martinez in 2018.`\
 https://nytimes.com/athletic/5714549/2024/08/21/true-freshman-dylan-raiola-named-nebraskas-starting-qb-for-season-opener/
