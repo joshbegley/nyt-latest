@@ -1,3 +1,11 @@
+**Harris Goes Light on Climate Policy. Green Leaders Are OK With That.**\
+`President Biden made climate change a cornerstone of his agenda. Vice President Kamala Harris has yet to detail her own plan.`\
+https://nytimes.com/2024/08/21/climate/climate-policy-harris.html
+
+**Coming Soon to Jersey City: A Gleaming Home for the Symphony**\
+`The New Jersey Symphony, which long lacked a permanent space, will move into a 550-seat theater that it hopes to make a hub for concerts and classes.`\
+https://nytimes.com/2024/08/21/arts/music/new-jersey-symphony-new-concert-hall.html
+
 **The Windup: Mariners' all-time waste of pitching prowess**\
 `The Athletic's daily MLB newsletter.`\
 https://nytimes.com/athletic/5714422/2024/08/21/seattle-mariners-pitching-the-windup/
@@ -29,12 +37,4 @@ https://nytimes.com/topic/peter-a-defazio
 **Paul A Engelmayer**\
 `News about Paul A Engelmayer. Commentary and archival information about Paul A Engelmayer from The New York Times.`\
 https://nytimes.com/topic/paul-a-engelmayer
-
-**The Convention’s Happiest Democrats? The ‘Pretty Psyched’ Minnesotans.**\
-`The unexpected rise of a native son, Tim Walz, has thrilled his local compatriots in Chicago. “The Minnesota delegation is, like, buzzing,” said Senator Tina Smith.`\
-https://nytimes.com/2024/08/21/us/politics/minnesota-dnc-democrat-tim-walz.html
-
-**What ‘It Ends With Us’ Gets Wrong (and Right) About Domestic Abuse**\
-`Its depiction of love-bombing and psychological abuse rings true, experts say, but other oversimplified aspects could send a dangerous message.`\
-https://nytimes.com/2024/08/21/movies/it-ends-with-us-domestic-violence.html
 
