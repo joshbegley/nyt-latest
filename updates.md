@@ -1,3 +1,19 @@
+**Man Utd winger Pellistri joins Panathinaikos**\
+`Panathinaikos have completed the signing of Manchester United forward Facundo Pellistri.`\
+https://nytimes.com/athletic/5711493/2024/08/21/facundo-pellistri-joins-panathinaikos/
+
+**An Easy Buttermilk Peach Cobbler to Whip Up on a Weeknight**\
+`It’s just about the summery-est thing you can do with the last of the season’s stone fruits.`\
+https://nytimes.com/2024/08/21/dining/an-easy-buttermilk-peach-cobbler-to-whip-up-on-a-weeknight.html
+
+**Why Kamala Harris’s Mom Is More ‘Brat’ Than She Is**\
+`Shyamala Gopalan created the context for the vice president’s “brat” energy.`\
+https://nytimes.com/2024/08/21/opinion/kamala-harris-mother-shayamala.html
+
+**The Year of the A.I. Election That Wasn’t**\
+`More than 30 tech companies have pitched A.I. tools to political campaigns for November’s election. The campaigns have been wary.`\
+https://nytimes.com/2024/08/21/technology/ai-election-campaigns.html
+
 **Why Kamala’s Mom Is More ‘Brat’ Than She Is**\
 `Shyamala Gopalan created the context for the vice president’s “brat” energy.`\
 https://nytimes.com/video/opinion/100000009644712/why-kamalas-mom-is-more-brat-than-she-is.html

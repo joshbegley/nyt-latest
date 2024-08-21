@@ -1,3 +1,19 @@
+**Man Utd winger Pellistri joins Panathinaikos**\
+`Panathinaikos have completed the signing of Manchester United forward Facundo Pellistri.`\
+https://nytimes.com/athletic/5711493/2024/08/21/facundo-pellistri-joins-panathinaikos/
+
+**An Easy Buttermilk Peach Cobbler to Whip Up on a Weeknight**\
+`It’s just about the summery-est thing you can do with the last of the season’s stone fruits.`\
+https://nytimes.com/2024/08/21/dining/an-easy-buttermilk-peach-cobbler-to-whip-up-on-a-weeknight.html
+
+**Why Kamala Harris’s Mom Is More ‘Brat’ Than She Is**\
+`Shyamala Gopalan created the context for the vice president’s “brat” energy.`\
+https://nytimes.com/2024/08/21/opinion/kamala-harris-mother-shayamala.html
+
+**The Year of the A.I. Election That Wasn’t**\
+`More than 30 tech companies have pitched A.I. tools to political campaigns for November’s election. The campaigns have been wary.`\
+https://nytimes.com/2024/08/21/technology/ai-election-campaigns.html
+
 **Why Kamala’s Mom Is More ‘Brat’ Than She Is**\
 `Shyamala Gopalan created the context for the vice president’s “brat” energy.`\
 https://nytimes.com/video/opinion/100000009644712/why-kamalas-mom-is-more-brat-than-she-is.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/08/21/movies/it-ends-with-us-domestic-violence.html
 **Divers Find 2 Bodies From Yacht That Sank Off Sicily**\
 `The discovery came after the vessel sank this week in what some witnesses described as a waterspout, or a small tornado, during a violent downpour. No names were immediately released.`\
 https://nytimes.com/2024/08/21/world/europe/sicily-yacht-bayesian-bodies-found.html
-
-**Congress Asks Regulators About ‘Troubling’ Health Insurance Tactics**\
-`Lawmakers are zeroing in on MultiPlan, a firm that has helped insurers cut payments while sometimes leaving patients with large bills.`\
-https://nytimes.com/2024/08/21/us/congress-multiplan-health-insurance-medical-bills.html
-
-**U.S. Added 818,000 Fewer Jobs Than Reported Earlier**\
-`The Labor Department issued revised figures for the 12 months through March that point to greater economic fragility.`\
-https://nytimes.com/2024/08/21/business/economy/us-jobs-economy.html
-
-**How U.S. Farms Could Start a Bird Flu Pandemic**\
-`The virus is poised to become a permanent presence in cattle, raising the odds of an eventual outbreak among people.`\
-https://nytimes.com/2024/08/21/health/bird-flu-cattle-pandemic.html
-
-**Begovic set for Everton medical**\
-`Asmir Begovic is set for a medical this week ahead of re-joining Everton on a free transfer.`\
-https://nytimes.com/athletic/5711664/2024/08/21/asmir-begovic-everton-transfer/
 
