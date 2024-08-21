@@ -1,3 +1,7 @@
+**Fulham submit offer for Lyon's Cherki**\
+`Fulham have submitted an offer for Lyon attacking midfielder Rayan Cherki.`\
+https://nytimes.com/athletic/5713946/2024/08/21/fulham-transfers-rayan-cherki/
+
 **Chase Elliott on what he'd change about NASCAR and more: 12 Questions**\
 `Hendrick Motorsports star Chase Elliott gives his thoughts on the NASCAR schedule, keeping his own schedule under control and more.`\
 https://nytimes.com/athletic/5712726/2024/08/21/chase-elliott-nascar-12-questions/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/21/world/europe/ukraine-russia-drone-attack-moscow.h
 **Bus of Pilgrims From Pakistan Crashes in Iran, Killing at Least 28**\
 `Iranian state media reported that the passengers were traveling to the Iraqi city of Karbala for Arbaeen, a Shiite Muslim holiday.`\
 https://nytimes.com/2024/08/21/world/middleeast/iran-crash-arbaeen-pilgrims-pakistan-karbala.html
-
-**Rosenthal: The Mariners' listless offense is wasting their dominant pitching staff**\
-`'We have very much underperformed our own expectations, based on our talent,' Mariners president of baseball operations Jerry Dipoto said.`\
-https://nytimes.com/athletic/5713968/2024/08/21/seattle-mariners-offense-pitching-jerry-dipoto/
 

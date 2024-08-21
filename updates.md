@@ -1,3 +1,7 @@
+**Fulham submit offer for Lyon's Cherki**\
+`Fulham have submitted an offer for Lyon attacking midfielder Rayan Cherki.`\
+https://nytimes.com/athletic/5713946/2024/08/21/fulham-transfers-rayan-cherki/
+
 **Russia Said It Repelled a Large Ukrainian Drone Attack on Moscow**\
 `The attack came as Kyiv presses on with a cross-border offensive into western Russia that has rattled the Kremlin.`\
 https://nytimes.com/2024/08/21/world/europe/ukraine-russia-drone-attack-moscow.html
