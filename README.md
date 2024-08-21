@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5714236/2024/08/21/oklahoma-recruiting-michael-fasu
 `Jessie Peterson, 31, died at a hospital in April 2023. Her family members, who filed a missing persons report, were not told that she had died until a year later, according to a negligence lawsuit.`\
 https://nytimes.com/2024/08/21/us/missing-woman-hospital-sacramento-lawsuit.html
 
-**Austin Dillon's appeal to be reinstated into NASCAR playoffs denied**\
+**NASCAR denies Austin Dillon's appeal to be reinstated into playoffs**\
 `Dillon took out two drivers in the final lap at Richmond Raceway in an attempt to bulldoze his way into the playoffs.`\
 https://nytimes.com/athletic/5715192/2024/08/21/austin-dillon-nascar-appeal-denied/
 
