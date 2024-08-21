@@ -1,3 +1,7 @@
+**Why Brett Gardner won't attend Yankees' 2009 World Series celebration**\
+`Gardner's absence was the most notable on a list of attendees that includes Derek Jeter, Alex Rodriguez, CC Sabathia and others.`\
+https://nytimes.com/athletic/5713298/2024/08/20/brett-gardner-2009-world-series-celebration-absence/
+
 **Special teams coordinator Trevor Reilly no longer on Colorado staff**\
 `Following Reilly’s departure, just two on-field Colorado staffers are still in the same roles they held when the 2023 season began.`\
 https://nytimes.com/athletic/5713283/2024/08/20/deion-sanders-trevor-reilly-colorado-coach/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5713222/2024/08/20/michigan-recruiting-andrew-marsh
 **Why 49ers rookie guard Dominick Puni is impressing even Fred Warner**\
 `The surge from Puni has come at a good time for the 49ers, who are fighting many interior offensive line injuries.`\
 https://nytimes.com/athletic/5713059/2024/08/20/49ers-dominick-puni-fred-warner/
-
-**Jeffrey A. Rosen**\
-`News about Jeffrey A. Rosen. Commentary and archival information about Jeffrey A. Rosen from The New York Times.`\
-https://nytimes.com/topic/jeffrey-a-rosen
 
