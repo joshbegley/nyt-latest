@@ -1,3 +1,15 @@
+**How do Arsenal handle Nwaneri, Lewis-Skelly and their best emerging talent?**\
+`Arsenal have a crop of very talented young players - but getting them up to first-team level is a long and thorough task years in the making`\
+https://nytimes.com/athletic/5643686/2024/08/21/arsenal-ethan-nwaneri-myles-lewis-skelly/
+
+**Mosquera plays and trains on the edge - he will need to be careful**\
+`The defender's competitive side nearly got the better of him in Wolves' Premier League opener against Arsenal`\
+https://nytimes.com/athletic/5711796/2024/08/21/yerson-mosquera-wolves-defender/
+
+**Fantasy football staff sleepers: Ray Davis, Greg Dortch and 12 more value picks**\
+`After a few preseason weeks of surveying the NFL landscape, The Athletic fantasy football staff shares their updated sleepers for 2024.`\
+https://nytimes.com/athletic/5712727/2024/08/21/fantasy-football-staff-sleepers-ray-davis-greg-dortch-and-12-more-value-picks/
+
 **The Debate: Which new signings stood out most in the Premier League's opening round?**\
 `Which new signing impressed you most in the season's first round of Premier League matches? Two of our writers give their choices...`\
 https://nytimes.com/athletic/5710225/2024/08/21/premier-league-transfers-debut-standout/
