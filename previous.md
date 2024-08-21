@@ -1,3 +1,15 @@
+**Should We Tell Our Tween Daughter That Her Father Had a Nose Job?**\
+`When a couple’s 12-year-old starts to point out that no one else in the family seems to have a nose like hers, they can’t agree whether to tell her why.`\
+https://nytimes.com/2024/08/21/style/nose-job-discussion-child.html
+
+**Peltola Finishes First in Alaska House Primary, With Begich as Top Challenger**\
+`The conservative son of a prominent liberal Alaska political family came in second in a ranked-choice primary that could play out similarly to 2022, when Republicans split their votes and elected a Democrat.`\
+https://nytimes.com/2024/08/21/us/politics/peltola-alaska-house-primary-dahlstrom-begich.html
+
+**Reevaluating the Lions' wide receivers as cut day approaches**\
+`Exploring the Lions' options if no one steps up to claim the open WR spot.`\
+https://nytimes.com/athletic/5713080/2024/08/21/detroit-lions-wide-receivers-cut-down-day/
+
 **Fulham submit offer for Lyon's Cherki**\
 `Fulham have submitted an offer for Lyon attacking midfielder Rayan Cherki.`\
 https://nytimes.com/athletic/5713946/2024/08/21/fulham-transfers-rayan-cherki/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/21/business/dealbook/jobs-data-revisions-fed.html
 **The Athletic FC: Liverpool's Salah conundrum, City eye Kyogo, revisiting the Silverdome**\
 `Today in TAFC: Liverpool and Salah face a tricky decision, Man City make moves in the market, and we revisit the Silverdome in Detroit`\
 https://nytimes.com/athletic/5713872/2024/08/21/liverpool-salah-deal-city-transfer-kyogo/
-
-**Courtland Sutton, Austin Ekeler among Dane Martinez’s latest round of 'my guys' for fantasy football 2024**\
-`Dane Martinez shares another round of "my guys" — players with fantasy football ADPs too nice to ignore — like Courtland Sutton.`\
-https://nytimes.com/athletic/5713276/2024/08/21/my-guys-top-targets-fantasy-football-2024/
-
-**Russia Said It Repelled a Large Ukrainian Drone Attack on Moscow**\
-`The attack came as Kyiv presses on with a cross-border offensive into western Russia that has rattled the Kremlin.`\
-https://nytimes.com/2024/08/21/world/europe/ukraine-russia-drone-attack-moscow.html
-
-**Bus of Pilgrims From Pakistan Crashes in Iran, Killing at Least 28**\
-`Iranian state media reported that the passengers were traveling to the Iraqi city of Karbala for Arbaeen, a Shiite Muslim holiday.`\
-https://nytimes.com/2024/08/21/world/middleeast/iran-crash-arbaeen-pilgrims-pakistan-karbala.html
 
