@@ -1,3 +1,11 @@
+**Mets' Little League defense lowlights loss: 'It's an absolute mess!'**\
+`NEW YORK — A sloppy loss for the New York Mets reached an embarrassing nadir in the top of the ninth inning when they committed a misplay and multiple errors on one shallow fly ball from Gunnar Henderson.`\
+https://nytimes.com/athletic/5713518/2024/08/20/mets-orioles-little-league-defense/
+
+**A G.O.P. mayor in Arizona urged moderates to vote for the ‘adults in the room.’**\
+`By Kellen Browning`\
+https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/a-gop-mayor-in-arizona-urged-moderates-to-vote-for-the-adults-in-the-room
+
 **“Take it from an actual billionaire, Trump is rich in only one thing: Stupidity.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/take-it-from-an-actual-billionaire-trump-is-rich-in-only-one-thing-stupidity
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/within-two-months-o
 **Something in the Air**\
 `Stacey Yaruss McCullough makes her New York Times debut.`\
 https://nytimes.com/2024/08/20/crosswords/daily-puzzle-2024-08-21.html
-
-**Convention Insider: Chuck Schumer Takes Chicago**\
-`Nearly 800 miles from home in Brooklyn, the Senate majority leader found friends galore at the convention.`\
-https://nytimes.com/2024/08/20/us/elections/chuck-schumer-dnc.html
-
-**As Astros search for outfield stability, former prospect Wilyer Abreu flourishes in Boston**\
-`An acceptable answer to this outfield problem is not arriving any time soon. That one slipped away is a fate Houston must accept.`\
-https://nytimes.com/athletic/5713389/2024/08/20/astros-outfield-problems-wilyer-abreu/
 
