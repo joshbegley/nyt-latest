@@ -1,3 +1,15 @@
+**A McDonald’s name tag becomes a middle-class badge of honor on the D.N.C. stage.**\
+`By Kellen Browning`\
+https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/a-mcdonalds-name-tag-becomes-a-middle-class-badge-of-honor-on-the-dnc-stage
+
+**Stephanie A Miner**\
+`News about Stephanie A Miner. Commentary and archival information about Stephanie A Miner from The New York Times.`\
+https://nytimes.com/topic/stephanie-a-miner
+
+**F.A.A. Refers More Unruly Passenger Cases to Justice Department**\
+`A surge in disruptive passenger behavior since the beginning of the pandemic has put pressure on the Federal Aviation Administration.`\
+https://nytimes.com/2024/08/21/us/politics/faa-unruly-passengers-fbi.html
+
 **Donald Trump, Back at an Outdoor Rally, Returns to Familiar Habits**\
 `In a speech intended to be about national security, Mr. Trump continued personal attacks on Kamala Harris and asked for validation in doing so from the crowd.`\
 https://nytimes.com/2024/08/21/us/politics/trump-rally-north-carolina.html
