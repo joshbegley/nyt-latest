@@ -1,3 +1,7 @@
+**Obama’s Speech Was a Reminder of the Possible**\
+`Harris is selling something different, but would continue his legacy.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/obama-convention-speech-harris
+
 **Martinez signs new Villa contract until 2029**\
 `Emi Martinez has signed a new contract with Aston Villa until 2029.`\
 https://nytimes.com/athletic/5714265/2024/08/21/emi-martinez-aston-villa-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/21/us/escaped-mississippi-inmate-chicago-restaurant.
 **Thai Politician Is Under Fire After Slapping a Journalist on Camera**\
 `Videos of Prawit Wongsuwan, a former deputy prime minister, hitting a female reporter in the head prompted angry demands for an investigation in Thailand.`\
 https://nytimes.com/2024/08/21/world/asia/thailand-politician-hits-journalist-pbs.html
-
-**Hundreds of Ultra-Orthodox Israelis Clash With Police Over Draft**\
-`Protests over military conscription highlight the rising tensions surrounding a court order overturning a decades-long exemption for the religious community.`\
-https://nytimes.com/2024/08/21/world/middleeast/israel-orthodox-draft-protest.html
 

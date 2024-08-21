@@ -1,3 +1,7 @@
+**Obama’s Speech Was a Reminder of the Possible**\
+`Harris is selling something different, but would continue his legacy.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/obama-convention-speech-harris
+
 **Martinez signs new Villa contract until 2029**\
 `Emi Martinez has signed a new contract with Aston Villa until 2029.`\
 https://nytimes.com/athletic/5714265/2024/08/21/emi-martinez-aston-villa-contract/
