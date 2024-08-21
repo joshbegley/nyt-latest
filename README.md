@@ -2,7 +2,7 @@
 `By Linda Qiu`\
 https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/donald-told-us-to-inject-bleach
 
-**Man Who Faked Death to Avoid Child Support Gets 81 Months in Prison, U.S. Says**\
+**Man U.S. Says Faked Death to Avoid Child Support Gets 81 Months in Prison**\
 `The man, Jesse Kipf, hacked into state death registry systems to fake his own death in part to avoid paying more than $100,000 in child support, federal prosecutors said.`\
 https://nytimes.com/2024/08/20/us/20xp-jesse-kipf-hacking-sentenced-kentucky.html
 
