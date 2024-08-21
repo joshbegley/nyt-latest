@@ -1,3 +1,7 @@
+**At M.I.T., Black and Latino Enrollment Drops Sharply After Affirmative Action Ban**\
+`Asian American students made up almost half of the 2028 class — the first admitted since the end of affirmative action.`\
+https://nytimes.com/2024/08/21/us/mit-black-latino-enrollment-affirmative-action.html
+
 **David A Tepper**\
 `News about David A Tepper. Commentary and archival information about David A Tepper from The New York Times.`\
 https://nytimes.com/topic/david-a-tepper
