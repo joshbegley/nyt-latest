@@ -1,3 +1,7 @@
+**Why Brett Gardner won't attend Yankees' 2009 World Series celebration**\
+`Gardner's absence was the most notable on a list of attendees that includes Derek Jeter, Alex Rodriguez, CC Sabathia and others.`\
+https://nytimes.com/athletic/5713298/2024/08/20/brett-gardner-2009-world-series-celebration-absence/
+
 **Special teams coordinator Trevor Reilly no longer on Colorado staff**\
 `Following Reilly’s departure, just two on-field Colorado staffers are still in the same roles they held when the 2023 season began.`\
 https://nytimes.com/athletic/5713283/2024/08/20/deion-sanders-trevor-reilly-colorado-coach/
