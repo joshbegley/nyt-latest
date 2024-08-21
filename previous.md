@@ -1,3 +1,7 @@
+**Democrats Look to Redefine Trump**\
+`Also, the U.S. added far fewer jobs than previously reported. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/08/21/briefing/democrats-donald-trump-jobs-numbers-revised.html
+
 **Hadley Duvall Says Her Abortion Speech Will ‘Keep My Heart Full’**\
 `Ms. Duvall, a sexual abuse survivor, was one of three women who shared their personal stories at the Democratic convention to support Vice President Kamala Harris.`\
 https://nytimes.com/2024/08/21/us/politics/hadley-duvall-dnc-abortion.html
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/5715319/2024/08/21/yankees-aaron-judge-little-leagu
 https://nytimes.com/2024/08/21/opinion/ezra-klein-podcast-dnc-digest-2.html
 
 **SEC announces football tiebreakers for 16-team era**\
-`The SEC also discussed a player availability report similar to the NFL and the Big Ten, but have not yet finalized it.`\
+`The SEC also discussed a player availability report similar to the NFL and the Big Ten, but has not yet finalized it.`\
 https://nytimes.com/athletic/5715256/2024/08/21/sec-football-tiebreaker-rules-2024-championship-game/
 
 **Andy Kim, Who Cleaned the Capitol After Jan. 6, Will Address the Convention**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5715288/2024/08/21/mets-jesse-winker-walk-off/
 **Aides to Trump and Netanyahu deny reports that they discussed cease-fire talks.**\
 `By Maggie Haberman, Jonathan Swan and Isabel Kershner`\
 https://nytimes.com/live/2024/08/21/world/israel-iran-hamas-gaza-war/aides-to-trump-and-netanyahu-deny-reports-that-they-discussed-cease-fire-talks
-
-**Liberals Needed a Beyoncé Moment. Kamala Harris Is Delivering One.**\
-`The vice president is giving Democrats what they want while disorienting Donald Trump.`\
-https://nytimes.com/2024/08/21/opinion/kamala-harris-beyonce-convention.html
 

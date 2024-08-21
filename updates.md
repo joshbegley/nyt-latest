@@ -1,3 +1,11 @@
+**Democrats Look to Redefine Trump**\
+`Also, the U.S. added far fewer jobs than previously reported. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/08/21/briefing/democrats-donald-trump-jobs-numbers-revised.html
+
+**SEC announces football tiebreakers for 16-team era**\
+`The SEC also discussed a player availability report similar to the NFL and the Big Ten, but has not yet finalized it.`\
+https://nytimes.com/athletic/5715256/2024/08/21/sec-football-tiebreaker-rules-2024-championship-game/
+
 **Hadley Duvall Says Her Abortion Speech Will ‘Keep My Heart Full’**\
 `Ms. Duvall, a sexual abuse survivor, was one of three women who shared their personal stories at the Democratic convention to support Vice President Kamala Harris.`\
 https://nytimes.com/2024/08/21/us/politics/hadley-duvall-dnc-abortion.html
