@@ -1,3 +1,7 @@
+**The Windup: Mariners' all-time waste of pitching prowess**\
+`The Athletic's daily MLB newsletter.`\
+https://nytimes.com/athletic/5714422/2024/08/21/seattle-mariners-pitching-the-windup/
+
 **Man Utd winger Pellistri joins Panathinaikos**\
 `Panathinaikos have completed the signing of Manchester United forward Facundo Pellistri.`\
 https://nytimes.com/athletic/5711493/2024/08/21/facundo-pellistri-joins-panathinaikos/

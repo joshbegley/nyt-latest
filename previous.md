@@ -1,3 +1,7 @@
+**The Windup: Mariners' all-time waste of pitching prowess**\
+`The Athletic's daily MLB newsletter.`\
+https://nytimes.com/athletic/5714422/2024/08/21/seattle-mariners-pitching-the-windup/
+
 **Man Utd winger Pellistri joins Panathinaikos**\
 `Panathinaikos have completed the signing of Manchester United forward Facundo Pellistri.`\
 https://nytimes.com/athletic/5711493/2024/08/21/facundo-pellistri-joins-panathinaikos/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/21/us/politics/minnesota-dnc-democrat-tim-walz.html
 **What ‘It Ends With Us’ Gets Wrong (and Right) About Domestic Abuse**\
 `Its depiction of love-bombing and psychological abuse rings true, experts say, but other oversimplified aspects could send a dangerous message.`\
 https://nytimes.com/2024/08/21/movies/it-ends-with-us-domestic-violence.html
-
-**Divers Find 2 Bodies From Yacht That Sank Off Sicily**\
-`The discovery came after the vessel sank this week in what some witnesses described as a waterspout, or a small tornado, during a violent downpour. No names were immediately released.`\
-https://nytimes.com/2024/08/21/world/europe/sicily-yacht-bayesian-bodies-found.html
 
