@@ -1,3 +1,7 @@
+**It’s Prime Time for Democrats to Stick to Their Scripts**\
+`Convention planners need to be ruthless about scheduling, or risk losing their audience.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/convention-speakers-scheduling-primetime
+
 **Sooners dip into Texas to land 5-star OT Michael Fasusi**\
 `Fasusi, originally from Nigeria, is ranked No. 12 overall and the No. 3 offensive tackle in the 247Sports Composite.`\
 https://nytimes.com/athletic/5714236/2024/08/21/oklahoma-recruiting-michael-fasusi/

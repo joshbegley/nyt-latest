@@ -1,3 +1,7 @@
+**It’s Prime Time for Democrats to Stick to Their Scripts**\
+`Convention planners need to be ruthless about scheduling, or risk losing their audience.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/convention-speakers-scheduling-primetime
+
 **Sooners dip into Texas to land 5-star OT Michael Fasusi**\
 `Fasusi, originally from Nigeria, is ranked No. 12 overall and the No. 3 offensive tackle in the 247Sports Composite.`\
 https://nytimes.com/athletic/5714236/2024/08/21/oklahoma-recruiting-michael-fasusi/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/21/us/elections/democratic-convention-democracy.html
 **Leeds agree deal to sign ex-Man Utd youngster Ramazani**\
 `Leeds United have agreed a deal to sign Belgian forward Largie Ramazani from Almeria.`\
 https://nytimes.com/athletic/5715053/2024/08/21/leeds-united-largie-ramazani/
-
-**Cardinals option Nolan Gorman to Triple A in latest roster shakeup**\
-`The decision came after Gorman's August OPS dropped to .508. He was hitting just .212 on the month and had not homered or driven in a run.`\
-https://nytimes.com/athletic/5714748/2024/08/21/cardinals-nolan-gorman-optioned/
 
