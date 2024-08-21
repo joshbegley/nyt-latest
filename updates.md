@@ -1,3 +1,11 @@
+**Chase Elliott on what he'd change about NASCAR and more: 12 Questions**\
+`Hendrick Motorsports star Chase Elliott gives his thoughts on the NASCAR schedule, keeping his own schedule under control and more.`\
+https://nytimes.com/athletic/5712726/2024/08/21/chase-elliott-nascar-12-questions/
+
+**Sterling keen to leave Chelsea on permanent basis**\
+`Raheem Sterling has expressed a preference to leave Chelsea on a permanent basis after it became clear that at present he is not part of the club&#8217;s plans going forward.`\
+https://nytimes.com/athletic/5712124/2024/08/21/raheem-sterling-chelsea-transfer-permanent/
+
 **Blackhawks fan survey: The captaincy, the draft, and the state of the rebuild**\
 `After roughly 1,700 Blackhawks fans voted in our survey, the results are in: Optimism still reigns — to an extent.`\
 https://nytimes.com/athletic/5708214/2024/08/21/2024-25-blackhawks-fan-survey-connor-bedard-captaincy-nhl-draft-and-rebuild/
