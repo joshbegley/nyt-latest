@@ -1,4 +1,12 @@
-**Doug Emhoff’s Powerfully Ordinary American Jewish Life**\
+**On Harris’s Price-Gouging Ban, Allies and Foes May Have the Wrong Idea**\
+`The plan does not appear to amount to government price controls. It also might not bring down grocery bills anytime soon.`\
+https://nytimes.com/2024/08/21/business/economy/harris-price-gouging-ban-groceries.html
+
+**Three Delegates, Decades Apart in Age, Converge at the Democratic Convention**\
+`Some participants have been attending for decades, while others will be voting in their first general election this year.`\
+https://nytimes.com/2024/08/21/us/politics/dnc-delegates.html
+
+**The Very Effective Schlubbiness of Doug Emhoff**\
 `For many Jews of his age, Emhoff’s path to the convention stage has been astonishingly familiar.`\
 https://nytimes.com/live/2024/08/20/opinion/thepoint/doug-emhoff-american-jews
 
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/21/style/summer-meet-cute.html
 **The Party’s After-Parties: Once Dreary Democrats Remember How to Have Fun**\
 `“This is a group that’s not used to being happy — they’re used to complaining,” one reveler noted. For now, at least, the rise of Kamala Harris has changed that.`\
 https://nytimes.com/2024/08/21/us/elections/democratic-convention-chicago-late-night-parties.html
-
-**Here’s What to Expect at the Democratic National Convention on Day 3**\
-`All eyes will be on Gov. Tim Walz as he formally accepts the Democratic Party’s nomination for vice president on Wednesday night.`\
-https://nytimes.com/2024/08/21/us/politics/what-to-expect-dnc-day-3-chicago.html
-
-**Oakland Ballers launch investment round for fans**\
-`The maximum amount the Ballers can raise through this round of funding is $1.235 million. The listed value of the team is $26.235 million.`\
-https://nytimes.com/athletic/5710761/2024/08/21/oakland-ballers-fan-ownership-shares/
 
