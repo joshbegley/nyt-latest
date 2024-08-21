@@ -1,3 +1,11 @@
+**Convention Insider: Lauren Underwood Is Right at Home in Chicago**\
+`The congresswoman is in her home city, and has been a selfie magnet for sorority sisters and young Democrats.`\
+https://nytimes.com/2024/08/21/us/politics/lauren-underwood-dnc-chicago.html
+
+**Richard A Posner**\
+`News about Richard A Posner. Commentary and archival information about Richard A Posner from The New York Times.`\
+https://nytimes.com/topic/richard-a-posner
+
 **Alex Bregman’s injury could limit his availability at third base**\
 `"Some little gremlins in there are causing some swelling that I’m just going to have to try to mitigate," Bregman said regarding his elbow.`\
 https://nytimes.com/athletic/5715433/2024/08/21/houston-astros-alex-bregman-third-base/
