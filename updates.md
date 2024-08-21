@@ -1,3 +1,7 @@
+**Twins bullpen implodes for 4 runs, again, in loss to Padres**\
+`Two days after Minnesota's bullpen evaporated a four-run lead in nine pitches, Twins relievers surrendered another four-spot.`\
+https://nytimes.com/athletic/5713653/2024/08/21/twins-lose-bullpen-padres/
+
 **Could That Garage Be Apartments? New York Hunts for Places to Build.**\
 `Mayor Eric Adams will sign an executive order that directs every city agency to investigate whether they have land that can be developed.`\
 https://nytimes.com/2024/08/21/nyregion/ny-housing-libraries-garages.html

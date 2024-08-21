@@ -18,7 +18,7 @@ https://nytimes.com/2024/08/21/sports/cricket-world-cup-t20-bangladesh-uae.html
 `So said former President Barack Obama after his wife electrified the Democratic National Convention. The delegates loved him, but they really loved her.`\
 https://nytimes.com/2024/08/21/us/politics/obamas-convention.html
 
-**Twins bullpen implodes for 4 runs, again, in loss to San Diego**\
+**Twins bullpen implodes for 4 runs, again, in loss to Padres**\
 `Two days after Minnesota's bullpen evaporated a four-run lead in nine pitches, Twins relievers surrendered another four-spot.`\
 https://nytimes.com/athletic/5713653/2024/08/21/twins-lose-bullpen-padres/
 
