@@ -1,3 +1,15 @@
+**‘I Am the Only Person Stupid Enough to Speak After Michelle Obama’**\
+`So said former President Barack Obama after his wife electrified the Democratic National Convention. The delegates loved him, but they really loved her.`\
+https://nytimes.com/2024/08/21/us/politics/obamas-convention.html
+
+**Twins bullpen implodes for 4 runs, again, in loss to San Diego**\
+`Two days after Minnesota's bullpen evaporated a four-run lead in nine pitches, Twins relievers surrendered another four-spot.`\
+https://nytimes.com/athletic/5713653/2024/08/21/twins-lose-bullpen-padres/
+
+**With another comeback, the Padres are building an air of inevitability**\
+`Amid one of the best regular-season stretches in franchise history, the Padres lassoed their ninth series win in 10 tries on Tuesday.`\
+https://nytimes.com/athletic/5713659/2024/08/21/padres-twins-comeback-jurickson-profar/
+
 **Late Night Suspects Convention Is a ‘Bitter Pill’ for Biden**\
 `“All night, Democrats were chanting ‘We love you, Joe!’ while Biden must have been thinking, ‘Um, apparently not as much as others,” Jimmy Fallon said.`\
 https://nytimes.com/2024/08/21/arts/television/late-night-biden-dnc.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/21/pageoneplus/corrections-aug-21-2024.html
 **Quotation of the Day: Braving the Wild to Rescue the Rarest of Flowers**\
 `Quotation of the Day for Wednesday, August 21, 2024.`\
 https://nytimes.com/2024/08/21/pageoneplus/quotation-of-the-day-braving-the-wild-to-rescue-the-rarest-of-flowers.html
-
-**Here Is the Kamala Harris Roll Call Playlist**\
-`As each state delegation was called on, the moment was accompanied by a song.`\
-https://nytimes.com/2024/08/21/us/elections/harris-dnc-roll-call-dj-cassidy.html
-
-**Onana is bringing height and awareness to Villa's midfield - he is now Emery's key man**\
-`Onana was the one Villa midfield signing this summer that was bought for the here and now - he's made an impressive start `\
-https://nytimes.com/athletic/5706712/2024/08/21/amadou-onana-aston-villa-unai-emery/
-
-**Introducing the newest ground on the Ninety-Two Club's list: Hayes Lane, Bromley**\
-`Richard Sutcliffe visits the newest destination for fans out to tick off visits to all 92 stadiums in English football's top four divisions`\
-https://nytimes.com/athletic/5697757/2024/08/21/bromley-the-92-club/
 

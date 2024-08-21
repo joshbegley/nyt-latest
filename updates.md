@@ -1,3 +1,15 @@
+**‘I Am the Only Person Stupid Enough to Speak After Michelle Obama’**\
+`So said former President Barack Obama after his wife electrified the Democratic National Convention. The delegates loved him, but they really loved her.`\
+https://nytimes.com/2024/08/21/us/politics/obamas-convention.html
+
+**Twins bullpen implodes for 4 runs, again, in loss to San Diego**\
+`Two days after Minnesota's bullpen evaporated a four-run lead in nine pitches, Twins relievers surrendered another four-spot.`\
+https://nytimes.com/athletic/5713653/2024/08/21/twins-lose-bullpen-padres/
+
+**With another comeback, the Padres are building an air of inevitability**\
+`Amid one of the best regular-season stretches in franchise history, the Padres lassoed their ninth series win in 10 tries on Tuesday.`\
+https://nytimes.com/athletic/5713659/2024/08/21/padres-twins-comeback-jurickson-profar/
+
 **Late Night Suspects Convention Is a ‘Bitter Pill’ for Biden**\
 `“All night, Democrats were chanting ‘We love you, Joe!’ while Biden must have been thinking, ‘Um, apparently not as much as others,” Jimmy Fallon said.`\
 https://nytimes.com/2024/08/21/arts/television/late-night-biden-dnc.html
