@@ -1,3 +1,11 @@
+**Arsenal's Patino set to join Deportivo in £1m deal**\
+`Charlie Patino is close to making a permanent departure from Arsenal to join Deportivo La Coruna in a transfer worth around £1million with a sell-on clause included.`\
+https://nytimes.com/athletic/5714246/2024/08/21/charlie-patino-deportivo-transfer-arsenal/
+
+**Biden Is Leaving the Spotlight. His Son’s Legal Troubles Are Not.**\
+`A preliminary hearing on Wednesday will determine the contours of the tax trial Hunter Biden faces in September. It is often a forum for discussions that could lead to a plea deal.`\
+https://nytimes.com/2024/08/21/us/politics/hunter-biden-tax-charges.html
+
 **What’s in the Latest U.S. Proposal for a Gaza Cease-Fire?**\
 `The Biden administration is pushing for a deal between Israel and Hamas with renewed urgency after months of lagging talks. Here’s a closer look at what the main differences appear to be.`\
 https://nytimes.com/2024/08/21/world/middleeast/gaza-ceasefire-proposal-israel-hamas.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/21/style/nose-job-discussion-child.html
 **Peltola Finishes First in Alaska House Primary, With Begich as Top Challenger**\
 `The conservative son of a prominent liberal Alaska political family came in second in a ranked-choice primary that could play out similarly to 2022, when Republicans split their votes and elected a Democrat.`\
 https://nytimes.com/2024/08/21/us/politics/peltola-alaska-house-primary-dahlstrom-begich.html
-
-**Reevaluating the Lions' wide receivers as cut day approaches**\
-`Exploring the Lions' options if no one steps up to claim the open WR spot.`\
-https://nytimes.com/athletic/5713080/2024/08/21/detroit-lions-wide-receivers-cut-down-day/
-
-**Fulham submit offer for Lyon's Cherki**\
-`Fulham have submitted an offer for Lyon attacking midfielder Rayan Cherki.`\
-https://nytimes.com/athletic/5713946/2024/08/21/fulham-transfers-rayan-cherki/
 
