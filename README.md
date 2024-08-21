@@ -1,4 +1,12 @@
-**Obama’s Speech Was a Reminder of the Possible**\
+**Should the Raiders be worried about their offensive line, even as Kolton Miller returns?**\
+`Despite the return of their first-string left tackle from the PUP list, the Raiders have dealt with injuries to two other likely starters.`\
+https://nytimes.com/athletic/5713330/2024/08/21/raiders-offensive-line-kolton-miller/
+
+**‘Hannah Gadsby: Woof’ Review: A Comic’s Pet Themes**\
+`In a soul-baring new show at the Edinburgh Fringe, the Australian stand-up leans once again into fears, anxieties and mental health worries.`\
+https://nytimes.com/2024/08/21/arts/hannah-gadsby-woof-review.html
+
+**Barack Obama’s Speech Was a Reminder of What’s Possible**\
 `Harris is selling something different, but would continue his legacy.`\
 https://nytimes.com/live/2024/08/20/opinion/thepoint/obama-convention-speech-harris
 
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/21/world/middleeast/gaza-ceasefire-proposal-israel-h
 **Maresca on Chelsea squad: 'It is not a mess that it looks like from outside'**\
 `Enzo Maresca insists Chelsea are not in a mess over the size of their squad and denied he has been brutal over the axing of senior players like Raheem Sterling.`\
 https://nytimes.com/athletic/5714238/2024/08/21/chelsea-squad-enzo-maresca/
-
-**Inmate Who Escaped Mississippi Courthouse Is Captured After Standoff in Chicago**\
-`The authorities had been searching for Joshua Zimmerman, wanted for murder and other crimes, for nearly 70 days. He was barricaded overnight in a restaurant.`\
-https://nytimes.com/2024/08/21/us/escaped-mississippi-inmate-chicago-restaurant.html
-
-**Thai Politician Is Under Fire After Slapping a Journalist on Camera**\
-`Videos of Prawit Wongsuwan, a former deputy prime minister, hitting a female reporter in the head prompted angry demands for an investigation in Thailand.`\
-https://nytimes.com/2024/08/21/world/asia/thailand-politician-hits-journalist-pbs.html
 
