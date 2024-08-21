@@ -1,3 +1,11 @@
+**Mets' Little League defense lowlights loss: 'It's an absolute mess!'**\
+`NEW YORK — A sloppy loss for the New York Mets reached an embarrassing nadir in the top of the ninth inning when they committed a misplay and multiple errors on one shallow fly ball from Gunnar Henderson.`\
+https://nytimes.com/athletic/5713518/2024/08/20/mets-orioles-little-league-defense/
+
+**A G.O.P. mayor in Arizona urged moderates to vote for the ‘adults in the room.’**\
+`By Kellen Browning`\
+https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/a-gop-mayor-in-arizona-urged-moderates-to-vote-for-the-adults-in-the-room
+
 **“Take it from an actual billionaire, Trump is rich in only one thing: Stupidity.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/take-it-from-an-actual-billionaire-trump-is-rich-in-only-one-thing-stupidity
