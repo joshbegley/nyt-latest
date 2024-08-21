@@ -1,3 +1,7 @@
+**Mark A. Morgan**\
+`News about Mark A. Morgan. Commentary and archival information about Mark A. Morgan from The New York Times.`\
+https://nytimes.com/topic/mark-a-morgan
+
 **Bo Nix named Broncos starting QB**\
 `Nix will become the Broncos first rookie quarterback to start a Week 1 game since John Elway in 1983.`\
 https://nytimes.com/athletic/5712010/2024/08/21/bo-nix-broncos-starting-quarterback/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/21/climate/antarctic-ice-cliff-collapse.html
 **How Did the First Cells Arise? With a Little Rain, Study Finds.**\
 `Researchers stumbled upon an ingredient that can stabilize droplets of genetic material: water.`\
 https://nytimes.com/2024/08/21/science/first-cells-rain.html
-
-**Paul A Slough**\
-`News about Paul A Slough. Commentary and archival information about Paul A Slough from The New York Times.`\
-https://nytimes.com/topic/paul-a-slough
 
