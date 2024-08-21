@@ -1,3 +1,7 @@
+**Jennifer Lopez Files for Divorce From Ben Affleck**\
+`The A-list couple, who married in 2022, had attempted to rekindle their romance after close to two decades.`\
+https://nytimes.com/2024/08/20/style/jennifer-lopez-ben-affleck-divorce.html
+
 **Here’s why some delegates are voting ‘present.’**\
 `By Jonathan Weisman`\
 https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/uncommitted-delegates-protesting-the-war-in-gaza-are-trying-to-make-their-voices-heard

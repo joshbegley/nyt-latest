@@ -1,3 +1,7 @@
+**Jennifer Lopez Files for Divorce From Ben Affleck**\
+`The A-list couple, who married in 2022, had attempted to rekindle their romance after close to two decades.`\
+https://nytimes.com/2024/08/20/style/jennifer-lopez-ben-affleck-divorce.html
+
 **Padres’ Ha-Seong Kim (shoulder) goes on injured list for first time in career**\
 `The Padres recalled infielder Matthew Batten in Kim's place, though the 2023 Gold Glover could return as soon as Aug. 29.`\
 https://nytimes.com/athletic/5713318/2024/08/20/ha-seong-kim-first-il-stint/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5711769/2024/08/20/blues-offer-sheets-holloway-brob
 **Debbie Mucarsel-Powell Wins the Democratic Senate Nomination in Florida**\
 `The former congresswoman will challenge the Republican incumbent, Rick Scott, in November.`\
 https://nytimes.com/2024/08/20/us/mucarsel-powell-florida-senate-primary.html
-
-**When a President Speaks After Prime Time, Who Listens?**\
-`Democrats have a set of lofty goals for the convention tonight. Among them: Just do it all on time.`\
-https://nytimes.com/2024/08/20/us/politics/biden-obama-dnc-chicago.html
 
