@@ -1,3 +1,7 @@
+**The best up-and-coming men's tennis players to watch in 2024 and beyond**\
+`Which ATP tennis players are poised to become the 'next gen' for the men's game?`\
+https://nytimes.com/athletic/5711343/2024/08/21/atp-next-gen-best-young-tennis-players-men/
+
 **Struggling starters put Dodgers in a confounding place: 'It's not ideal'**\
 `Los Angeles faces having to allow two pitchers to figure things out while the division is still very much in the balance.`\
 https://nytimes.com/athletic/5713691/2024/08/21/dodgers-walker-buehler/
