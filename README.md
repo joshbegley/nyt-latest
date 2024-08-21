@@ -1,3 +1,15 @@
+**Yankees' Aaron Judge has 'no response' for Staten Island Little League coach that ripped him**\
+`South Shore manager Bob Laterza criticized the slugger on Monday for not waving to his players at the Little League Classic on Sunday. `\
+https://nytimes.com/athletic/5715319/2024/08/21/yankees-aaron-judge-little-league-coach/
+
+**The Obamas Strike Back**\
+`Could the former first couple’s convention speeches signal a return to Obamaism?`\
+https://nytimes.com/2024/08/21/opinion/ezra-klein-podcast-dnc-digest-2.html
+
+**SEC announces football tiebreakers for 16-team era**\
+`The SEC also discussed a player availability report similar but have not yet finalized it.`\
+https://nytimes.com/athletic/5715256/2024/08/21/sec-football-tiebreaker-rules-2024-championship-game/
+
 **Andy Kim, Who Cleaned the Capitol After Jan. 6, Will Address the Convention**\
 `The likely next senator from New Jersey said he would deliver a message about the importance of service and participation to safeguard democracy.`\
 https://nytimes.com/2024/08/21/world/europe/andy-kim-new-jersey-dnc.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/08/21/opinion/kamala-harris-beyonce-convention.html
 **Dozens of Protesters Arrested in Chicago as Democrats Meet**\
 `At least 55 demonstrators, including three journalists, were detained on Tuesday night after protesters gathered outside the Israeli consulate and then scuffled with the police.`\
 https://nytimes.com/2024/08/21/us/chicago-dnc-protest-arrests.html
-
-**Thursday Briefing: Russia Says Ukraine Aimed Drones at Moscow**\
-`Plus, China’s “road-trip auntie.”`\
-https://nytimes.com/2024/08/21/briefing/ukraine-russia-israel-hezbollah-harris-trump.html
-
-**Charlene Marshall, Central Figure in a Celebrity Scandal, Dies at 79**\
-`Her husband, Anthony, was convicted of defrauding his wealthy mother, Brooke Astor. But in the tabloids, Mrs. Marshall often seemed to be the one on trial.`\
-https://nytimes.com/2024/08/21/nyregion/charlene-marshall-dead.html
-
-**Forest sign Moreno on loan from Villa**\
-`Nottingham Forest have confirmed the signing of Aston Villa defender Alex Moreno on a season-long loan.`\
-https://nytimes.com/athletic/5712633/2024/08/21/nottingham-forest-sign-alex-moreno/
 
