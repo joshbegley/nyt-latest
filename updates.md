@@ -1,3 +1,11 @@
+**Transcript: Ezra Klein on Barack Obama and Michelle Obama’s Convention Speeches**\
+`The August 21, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/08/21/podcasts/transcript-ezra-klein-dnc-digest.html
+
+**A Bookshop Cancels an Event Over a Rabbi’s Zionism, Prompting Outrage**\
+`Shortly before a talk between a Jewish author and a liberal rabbi, a manager at Powerhouse Arena in Brooklyn barred the rabbi from participating, saying, “We don’t want a Zionist onstage.”`\
+https://nytimes.com/2024/08/21/nyregion/powerhouse-books-andy-bachman-event-cancelled-zionist.html
+
 **The war in Gaza vies for the main stage at the Democratic National Convention.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/08/21/world/israel-iran-hamas-gaza-war/the-war-in-gaza-vies-for-the-main-stage-at-the-democratic-national-convention

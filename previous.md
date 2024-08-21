@@ -1,3 +1,11 @@
+**Transcript: Ezra Klein on Barack Obama and Michelle Obama’s Convention Speeches**\
+`The August 21, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/08/21/podcasts/transcript-ezra-klein-dnc-digest.html
+
+**A Bookshop Cancels an Event Over a Rabbi’s Zionism, Prompting Outrage**\
+`Shortly before a talk between a Jewish author and a liberal rabbi, a manager at Powerhouse Arena in Brooklyn barred the rabbi from participating, saying, “We don’t want a Zionist onstage.”`\
+https://nytimes.com/2024/08/21/nyregion/powerhouse-books-andy-bachman-event-cancelled-zionist.html
+
 **The war in Gaza vies for the main stage at the Democratic National Convention.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/08/21/world/israel-iran-hamas-gaza-war/the-war-in-gaza-vies-for-the-main-stage-at-the-democratic-national-convention
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5715433/2024/08/21/houston-astros-alex-bregman-thir
 **Bill Clinton, From Star to Scandal to Statesman, Seeks to Lift Up Harris**\
 `Mr. Clinton’s political history of boom and bust has made him one of the most enduring figures of modern American life, if not always its most accepted.`\
 https://nytimes.com/2024/08/21/us/politics/bill-clinton-dnc-speech.html
-
-**Ex-U.S. Airman Charged With Child Pornography Appears in Russian Propaganda Video**\
-`“I don’t consider myself a traitor,” said Wilmer Puello-Mota, who has enlisted in the Russian military.`\
-https://nytimes.com/2024/08/21/world/europe/wilmer-puello-mota-airman-russia.html
-
-**Israel and Hezbollah Trade Cross-Border Strikes**\
-`The strikes, in eastern Lebanon and the Israeli-controlled Golan Heights, underscored how months of talks have failed to stop either the war in Gaza or the related conflict along the Lebanese border.`\
-https://nytimes.com/2024/08/21/world/middleeast/israel-hezbollah-strikes.html
 
