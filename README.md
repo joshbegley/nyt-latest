@@ -1,3 +1,7 @@
+**WBC reveals 2026 tournament schedule, format**\
+`The United States, which finished runner-up to Japan in 2023, will be in Pool B with Mexico, Italy, Great Britain.`\
+https://nytimes.com/athletic/5714377/2024/08/21/world-baseball-classic-2026-schedule/
+
 **Harris Goes Light on Climate Policy. Green Leaders Are OK With That.**\
 `President Biden made climate change a cornerstone of his agenda. Vice President Kamala Harris has yet to detail her own plan.`\
 https://nytimes.com/2024/08/21/climate/climate-policy-harris.html
@@ -16,7 +20,7 @@ https://nytimes.com/athletic/5711493/2024/08/21/facundo-pellistri-joins-panathin
 
 **An Easy Buttermilk Peach Cobbler to Whip Up on a Weeknight**\
 `It’s just about the summery-est thing you can do with the last of the season’s stone fruits.`\
-https://nytimes.com/2024/08/21/dining/an-easy-buttermilk-peach-cobbler-to-whip-up-on-a-weeknight.html
+https://nytimes.com/2024/08/21/dining/peach-cobbler.html
 
 **Why Kamala Harris’s Mom Is More ‘Brat’ Than She Is**\
 `Shyamala Gopalan created the context for the vice president’s “brat” energy.`\
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000009644712/why-kamalas-mom-is-more-brat-t
 **Peter A DeFazio**\
 `News about Peter A DeFazio. Commentary and archival information about Peter A DeFazio from The New York Times.`\
 https://nytimes.com/topic/peter-a-defazio
-
-**Paul A Engelmayer**\
-`News about Paul A Engelmayer. Commentary and archival information about Paul A Engelmayer from The New York Times.`\
-https://nytimes.com/topic/paul-a-engelmayer
 
