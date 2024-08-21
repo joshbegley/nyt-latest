@@ -1,3 +1,7 @@
+**Black and Latino Enrollment at M.I.T. Drops Significantly**\
+`Asian American students made up almost half of the 2028 class — the first admitted since the end of affirmative action.`\
+https://nytimes.com/2024/08/21/us/mit-black-latino-enrollment-affirmative-action.html
+
 **Scoop City: Would Dak leave for $60 million?**\
 `Would a team really pay Prescott $60 million? We look at that, plus preseason standouts and the Falcons latest acquisition.`\
 https://nytimes.com/athletic/5714599/2024/08/21/scoop-city-would-dak-leave-for-60-million/

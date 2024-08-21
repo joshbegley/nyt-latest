@@ -1,3 +1,7 @@
+**Black and Latino Enrollment at M.I.T. Drops Significantly**\
+`Asian American students made up almost half of the 2028 class — the first admitted since the end of affirmative action.`\
+https://nytimes.com/2024/08/21/us/mit-black-latino-enrollment-affirmative-action.html
+
 **Scoop City: Would Dak leave for $60 million?**\
 `Would a team really pay Prescott $60 million? We look at that, plus preseason standouts and the Falcons latest acquisition.`\
 https://nytimes.com/athletic/5714599/2024/08/21/scoop-city-would-dak-leave-for-60-million/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/21/science/speeding-star-escape-galaxy.html
 **Nicholas A DiMarzio**\
 `News about Nicholas A DiMarzio. Commentary and archival information about Nicholas A DiMarzio from The New York Times.`\
 https://nytimes.com/topic/nicholas-a-dimarzio
-
-**Chelsea give Sterling, Chalobah shirt numbers to Neto, Joao Felix**\
-`Chelsea have given Raheem Sterling&#8217;s squad number to new signing Pedro Neto.`\
-https://nytimes.com/athletic/5714507/2024/08/21/pedro-neto-joao-felix-chelsea-shirt-numbers/
 
