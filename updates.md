@@ -1,3 +1,7 @@
+**Basketball Hall of Famer Alvin Attles dies at 87**\
+`Attles was selected by the Philadelphia Warriors with the No. 39 pick in the 1960 NBA Draft.`\
+https://nytimes.com/athletic/5714667/2024/08/21/alvin-attles-dead-warriors-nba/
+
 **At M.I.T., Black and Latino Enrollment Drops Sharply After Affirmative Action Ban**\
 `Asian American students made up almost half of the 2028 class — the first admitted since the end of affirmative action.`\
 https://nytimes.com/2024/08/21/us/mit-black-latino-enrollment-affirmative-action.html
