@@ -1,3 +1,15 @@
+**With a chance to topple decimated Braves, Phillies kick series off with a dud**\
+`The Braves may be depleted, but they aren't letting up, and it's up to the first-place Phillies to respond.`\
+https://nytimes.com/athletic/5713534/2024/08/20/phillies-braves-begins-with-dud/
+
+**Michelle Obama Absolutely Takes Apart Donald Trump**\
+`No doublespeak, no metaphors — just straight talk.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/michelle-obama-dnc-speech
+
+**Daniel A. Nigro**\
+`News about Daniel A. Nigro. Commentary and archival information about Daniel A. Nigro from The New York Times.`\
+https://nytimes.com/topic/daniel-a-nigro
+
 **Montana Certifies Signatures for November Abortion Question**\
 `Also on Tuesday, Arizona’s Supreme Court rejected a challenge to a similar ballot measure. That means at least nine states will vote on whether to establish a constitutional right to abortion.`\
 https://nytimes.com/2024/08/20/us/montana-abortion-rights.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/20/us/20xp-jesse-kipf-hacking-sentenced-kentucky.htm
 **Cubs' release of Héctor Neris brings questions but is another sign team's looking forward**\
 `Neris had become an uncomfortable watch and Jack Neely was performing well in the minors. It was time to consider the future of the bullpen.`\
 https://nytimes.com/athletic/5713393/2024/08/20/cubs-release-hector-neris-bullpen-analysis/
-
-**Bernie Throws a Curve Ball at Kamala**\
-`His list of policy promises puts her on the hot seat.`\
-https://nytimes.com/live/2024/08/20/opinion/thepoint/bernie-sanders-kamala-harris
-
-**Harris, in a Show of Force, Holds a Large Rally 80 Miles From Her Convention**\
-`The two-city rally, with Democrats celebrating at their convention in Chicago and an arena in Milwaukee, was a pointed rejoinder to Donald Trump and a significant flexing of the party’s muscle.`\
-https://nytimes.com/2024/08/20/us/politics/harris-rally-milwaukee-dnc.html
-
-**“Within two months of taking office, our government did respond. We passed the American Rescue Plan, which provided $1,400 for every man, woman and child in the working class. We extended and expanded benefits for the unemployed.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/08/20/us/harris-walz-dnc-trump/within-two-months-of-taking-office-our-government-did-respond-we-passed-the-american-rescue-plan-which-provided-1400-for-every-m
 
