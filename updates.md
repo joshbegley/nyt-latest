@@ -1,3 +1,11 @@
+**Joey Votto, legendary Reds first baseman, retires after 17 seasons**\
+`Votto played his entire MLB career with the Reds, amassing a Hall of Fame resume that includes 2,135 hits and the 2010 NL MVP Award.`\
+https://nytimes.com/athletic/5715661/2024/08/21/joey-votto-retirement-reds/
+
+**Inmates Used Drones to Smuggle Drugs Into Georgia Prisons, U.S. Says**\
+`The authorities charged nearly two dozen people with taking part in schemes over five years beginning in 2019 to deliver drugs and other contraband to inmates in Georgia state prisons.`\
+https://nytimes.com/2024/08/21/us/georgia-prison-drone-smuggle.html
+
 **Chargers training camp, Day 21: Justin Herbert dazzles in 'elite' practice**\
 `Herbert has been sharp since returning from a 2 1/2 week absence due to a foot injury. `\
 https://nytimes.com/athletic/5715627/2024/08/21/justin-herbert-chargers-training-camp-elite/
