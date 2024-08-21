@@ -1,5 +1,13 @@
+**Aides to Trump and Netanyahu deny reports that they discussed cease-fire talks.**\
+`By Maggie Haberman, Jonathan Swan and Isabel Kershner`\
+https://nytimes.com/live/2024/08/21/world/israel-iran-hamas-gaza-war/aides-to-trump-and-netanyahu-deny-reports-that-they-discussed-cease-fire-talks
+
+**Liberals Needed a Beyoncé Moment. Kamala Harris Is Delivering One.**\
+`The vice president is giving Democrats what they want while disorienting Donald Trump.`\
+https://nytimes.com/2024/08/21/opinion/kamala-harris-beyonce-convention.html
+
 **Dozens of Protesters Arrested in Chicago as Democrats Meet**\
-`Demonstrators gathered outside the Israeli consulate on Tuesday, then scuffled with the police.`\
+`At least 55 demonstrators, including three journalists, were detained on Tuesday night after protesters gathered outside the Israeli consulate and then scuffled with the police.`\
 https://nytimes.com/2024/08/21/us/chicago-dnc-protest-arrests.html
 
 **Thursday Briefing: Russia Says Ukraine Aimed Drones at Moscow**\
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/21/world/asia/pakistan-arrest-southport-riots.html
 **It’s Prime Time for Democrats to Stick to Their Scripts**\
 `Convention planners need to be ruthless about scheduling, or risk losing their audience.`\
 https://nytimes.com/live/2024/08/20/opinion/thepoint/convention-speakers-scheduling-primetime
-
-**Sooners dip into Texas to land 5-star OT Michael Fasusi**\
-`Fasusi, originally from Nigeria, is ranked No. 12 overall and the No. 3 offensive tackle in the 247Sports Composite.`\
-https://nytimes.com/athletic/5714236/2024/08/21/oklahoma-recruiting-michael-fasusi/
-
-**A Woman’s Family Reported Her Missing. Her Body Was in Hospital Storage, Lawsuit Says.**\
-`Jessie Peterson, 31, died at a hospital in April 2023. Her family members, who filed a missing persons report, were not told that she had died until a year later, according to a negligence lawsuit.`\
-https://nytimes.com/2024/08/21/us/missing-woman-hospital-sacramento-lawsuit.html
 
