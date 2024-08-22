@@ -1,3 +1,11 @@
+**An Economic Soft Landing, or a Rockies Letdown?**\
+`Investors are anxiously awaiting Jerome Powell’s policy speech at a symposium in Jackson Hole, Wyo. on Friday, as labor data suggests the economy is slowing.`\
+https://nytimes.com/2024/08/22/business/dealbook/soft-landing-powell-jackson-hole.html
+
+**How will Tom Brady do? Are you ready for Netflix games? Six big NFL media questions for 2024**\
+`Tom Brady's much anticipated Fox debut, Bill Belichick's future in broadcasting and more big NFL media questions for the 2024 season.`\
+https://nytimes.com/athletic/5714067/2024/08/22/nfl-media-questions-tom-brady-netflix-bill-belichick/
+
 **Sphen, Penguin Whose Gay Love Story Earned Global Fame, Dies**\
 `For six years, Sphen and Magic were devoted partners, adoptive parents and queer icons. After Sphen died this month at age 11, Magic began singing.`\
 https://nytimes.com/2024/08/22/world/australia/sphen-gay-penguin-dead.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5716358/2024/08/22/pierre-dwomoh-watford-transfers/
 **Man United's Oyedele set for Legia Warsaw transfer**\
 `Manchester United midfielder Maxi Oyedele is set to join Polish club Legia Warsaw on a permanent basis.`\
 https://nytimes.com/athletic/5716323/2024/08/22/maxi-oyedele-man-united-transfers/
-
-**New NWSL CBA was 10 months in the making: 'Caffeine was having no effect on me'**\
-`NWSL commissioner Jessica Berman initiated renegotiations early after the 2023 Women's World Cup.`\
-https://nytimes.com/athletic/5715418/2024/08/22/nwsl-cba-players-union/
-
-**A Film Festival Founded in a War Zone, Still Going Strong**\
-`The Sarajevo Film Festival, now 30 years old, grew out of underground screenings during the siege of the city. Those roots still define the event’s character.`\
-https://nytimes.com/2024/08/22/movies/sarajevo-film-festival.html
 

@@ -1,3 +1,11 @@
+**An Economic Soft Landing, or a Rockies Letdown?**\
+`Investors are anxiously awaiting Jerome Powell’s policy speech at a symposium in Jackson Hole, Wyo. on Friday, as labor data suggests the economy is slowing.`\
+https://nytimes.com/2024/08/22/business/dealbook/soft-landing-powell-jackson-hole.html
+
+**How will Tom Brady do? Are you ready for Netflix games? Six big NFL media questions for 2024**\
+`Tom Brady's much anticipated Fox debut, Bill Belichick's future in broadcasting and more big NFL media questions for the 2024 season.`\
+https://nytimes.com/athletic/5714067/2024/08/22/nfl-media-questions-tom-brady-netflix-bill-belichick/
+
 **Sphen, Penguin Whose Gay Love Story Earned Global Fame, Dies**\
 `For six years, Sphen and Magic were devoted partners, adoptive parents and queer icons. After Sphen died this month at age 11, Magic began singing.`\
 https://nytimes.com/2024/08/22/world/australia/sphen-gay-penguin-dead.html
