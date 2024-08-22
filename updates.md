@@ -1,3 +1,7 @@
+**New NWSL CBA was 10 months in the making: 'Caffeine was having no effect on me'**\
+`NWSL commissioner Jessica Berman initiated renegotiations early after the 2023 Women's World Cup.`\
+https://nytimes.com/athletic/5715418/2024/08/22/nwsl-cba-players-union/
+
 **A Film Festival Founded in a War Zone, Still Going Strong**\
 `The Sarajevo Film Festival, now 30 years old, grew out of underground screenings during the siege of the city. Those roots still define the event’s character.`\
 https://nytimes.com/2024/08/22/movies/sarajevo-film-festival.html
