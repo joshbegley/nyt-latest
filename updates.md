@@ -1,3 +1,15 @@
+**Yankees’ Aaron Judge is on pace for 60 home runs. Here’s what the clubhouse is saying**\
+`“It felt like every time he was up to bat it was either a homer or a walk, and that’s exactly what’s happening now,” said Nestor Cortes.`\
+https://nytimes.com/athletic/5715991/2024/08/21/yankees-aaron-judge-60-homer-pace-clubhouse-reaction/
+
+**Josh Shapiro Just Showed How to Win Pennsylvania**\
+`The state wants specifics, not vibes.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/shapiro-democrats-pennsylvania
+
+**Letitia James Fights to Preserve Trump’s Penalty of Over $450 Million**\
+`Ms. James, New York’s attorney general, argued that the civil fraud judgment, which the former president has appealed, should stand. It could wipe out his cash reserves.`\
+https://nytimes.com/2024/08/21/nyregion/letitia-james-trump-fraud-penalty.html
+
 **Oprah Celebrates Kamala as a Child of Immigrants**\
 `Oprah Winfrey spoke on the third night of the Democratic convention and gave Kamala Harris a full-throated endorsement and said that voting for her is “common sense.”`\
 https://nytimes.com/video/us/elections/100000009651453/oprah-celebrates-kamala-as-a-child-of-immigrants.html
