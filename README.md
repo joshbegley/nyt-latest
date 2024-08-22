@@ -2,6 +2,10 @@
 `The most effective ones tend to combine several emissions-cutting strategies, not a stand-alone approach, according to an examination of 1,500 policies globally.`\
 https://nytimes.com/2024/08/22/climate/climate-policies.html
 
+**Brentford sign Van den Berg from Liverpool**\
+`Liverpool defender Sepp van den Berg has signed for Brentford.`\
+https://nytimes.com/athletic/5712168/2024/08/22/van-den-berg-brentford-transfer/
+
 **Israel ordered people to leave as it said it had ‘intensified’ operations in central Gaza.**\
 `By Raja Abdulrahim and Abu Bakr Bashir`\
 https://nytimes.com/live/2024/08/22/world/israel-hamas-iran-gaza-war/israeli-evacuation-orders-force-thousands-of-palestinians-to-flee-parts-of-central-gaza-again
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/22/well/covid-vaccines-boosters.html
 **New Covid Shots Were Approved. But Who Will Get Them?**\
 `Many older Americans, including those in nursing homes, aren’t getting booster shots.`\
 https://nytimes.com/2024/08/22/health/covid-booster-vaccines.html
-
-**The Hot Accessory at the D.N.C.? Accessories.**\
-`Democrats wore blue nails, hats and pearls to show their support for Vice President Kamala Harris.`\
-https://nytimes.com/2024/08/22/style/dnc-fashion-photos.html
 
