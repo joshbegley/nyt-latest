@@ -1,3 +1,7 @@
+**Joey Votto reflects on decision to retire, falling short of dream to play for Blue Jays**\
+`"I can say to the very last pitch I was giving my very all. But there's an end for all athletes. Time is undefeated, as they say."`\
+https://nytimes.com/athletic/5716110/2024/08/22/joey-votto-retirement-blue-jays/
+
 **Guatemala Arrests Seven Over 2022 Deaths of 53 Migrants in Texas**\
 `The police said the arrested people include the leader of the group involved in the 2022 smuggling operation. He faces extradition to the United States.`\
 https://nytimes.com/2024/08/22/us/guatemala-arrests-deaths-migrants.html

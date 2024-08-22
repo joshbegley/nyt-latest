@@ -1,3 +1,7 @@
+**Joey Votto reflects on decision to retire, falling short of dream to play for Blue Jays**\
+`"I can say to the very last pitch I was giving my very all. But there's an end for all athletes. Time is undefeated, as they say."`\
+https://nytimes.com/athletic/5716110/2024/08/22/joey-votto-retirement-blue-jays/
+
 **Guatemala Arrests Seven Over 2022 Deaths of 53 Migrants in Texas**\
 `The police said the arrested people include the leader of the group involved in the 2022 smuggling operation. He faces extradition to the United States.`\
 https://nytimes.com/2024/08/22/us/guatemala-arrests-deaths-migrants.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5712108/2024/08/22/fantasy-premier-league-watkins-n
 **Labor Dispute Halts Rail Freight in Canada, Raising Supply Chain Concerns**\
 `The shutdown could disrupt trade with the United States and other countries, as well as causing serious economic consequences within Canada.`\
 https://nytimes.com/2024/08/22/world/canada/canada-freight-trains.html
-
-**Will Fullkrug be the answer to West Ham's long search for a seasoned No 9?**\
-`West Ham have not had much luck in their search for a No 9 - will Fullkrug buck the trend and score the goals the Julen Lopetegui era needs?`\
-https://nytimes.com/athletic/5709577/2024/08/22/niclas-fullkrug-west-ham-striker-michail-antonio/
 
