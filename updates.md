@@ -1,3 +1,15 @@
+**The Biggest Speech of Kamala Harris’s Life**\
+`Also, Canada’s rail shutdown could disrupt the U.S. economy. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/08/22/briefing/harris-convention-speech-mpox-case-thailand.html
+
+**Israel Orders New Evacuations, Forcing Gazans to Flee Again**\
+`As the Israeli military ordered people to leave parts of central and southern Gaza, a surgeon said that hospital workers were asking, “Where can we go, what are we going to do?”`\
+https://nytimes.com/2024/08/22/world/middleeast/gaza-evacuation-israel-war.html
+
+**What I’m reading: A ‘Book of the Century’ I’d Somehow Missed**\
+`“The Last Samurai,” which has nothing to do with the Tom Cruise movie of the same name, is as good as everyone says.`\
+https://nytimes.com/2024/08/22/world/europe/interpreter-books-last-samurai.html
+
 **Rick Pitino has ceremonial sword, bullhorn stolen**\
 `According to a university statement, the theft occurred around 8 p.m. in an office in the athletics department building.`\
 https://nytimes.com/athletic/5717816/2024/08/22/rick-pitino-stolen-sword-bullhorn-st-johns/
