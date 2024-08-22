@@ -1,3 +1,7 @@
+**Oprah Celebrates Kamala as a Child of Immigrants**\
+`Oprah Winfrey spoke on the third night of the Democratic convention and gave Kamala Harris a full-throated endorsement and said that voting for her is “common sense.”`\
+https://nytimes.com/video/us/elections/100000009651453/oprah-celebrates-kamala-as-a-child-of-immigrants.html
+
 **Letitia James Fights to Preserve Trump’s More Than $450 Million Penalty**\
 `Ms. James, New York’s attorney general, argued that the civil fraud judgment, which the former president has appealed, should stand. It could wipe out his cash reserves.`\
 https://nytimes.com/2024/08/21/nyregion/letitia-james-trump-fraud-penalty.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/21/us/politics/oprah-winfrey-kamala-harris-dnc.html
 **Rosecrans: Joey Votto never exceeded his expectations, but was everything baseball needed**\
 `Votto cemented himself as one of the most memorable and accomplished players in the history of the Reds.`\
 https://nytimes.com/athletic/5715840/2024/08/21/joey-votto-retirement-rosecrans/
-
-**Bill Clinton Says Trump Is About ‘Me, Myself and I’**\
-`Former President Bill Clinton portrayed Donald J. Trump as a candidate who was only concerned about himself, and not about voters.`\
-https://nytimes.com/video/us/elections/100000009651374/dnc-bill-clinton.html
 
