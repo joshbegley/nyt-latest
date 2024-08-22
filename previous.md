@@ -1,3 +1,7 @@
+**The War in Gaza Finally Gets a Moment on the Convention Stage**\
+`But it was about the suffering of the hostages, and didn’t go much further.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/gaza-hostage-parents-convention
+
 **Mindy Kaling Goes From ‘Cooking With Kamala’ to Hosting Her Convention**\
 `Ms. Kaling, like Vice President Kamala Harris, is Indian American. They once cooked masala dosa together in a 2019 YouTube video.`\
 https://nytimes.com/2024/08/21/us/politics/mindy-kaling-dnc-host.html
@@ -29,8 +33,4 @@ https://nytimes.com/topic/george-a-otoole-jr
 **Taylor Swift Says She Felt ‘Fear’ and ‘Guilt’ After Canceled Vienna Shows**\
 `The three stops in Austria on the pop star’s Eras Tour were canceled after the authorities discovered a terrorist plot targeting the concerts.`\
 https://nytimes.com/2024/08/21/arts/music/taylor-swift-vienna-eras-tour.html
-
-**Giants crack under the pressure in damaging loss to White Sox: 'We came out flat'**\
-`"(W)e all have to put our heads down and we have to win every game. You can't say that, right? But you've got to think that way," Webb said.`\
-https://nytimes.com/athletic/5715674/2024/08/21/sf-giants-loss-white-sox/
 
