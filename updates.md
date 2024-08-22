@@ -1,3 +1,11 @@
+**Letitia James Fights to Preserve Trump’s More Than $450 Million Penalty**\
+`Ms. James, New York’s attorney general, argued that the civil fraud judgment, which the former president has appealed, should stand. It could wipe out his cash reserves.`\
+https://nytimes.com/2024/08/21/nyregion/letitia-james-trump-fraud-penalty.html
+
+**Rookie Simeon Woods Richardson delivers again as Twins end trip with blowout win**\
+`Woods Richardson has provided a pick-me-up for the Twins more often than not this season.`\
+https://nytimes.com/athletic/5715983/2024/08/21/twins-simeon-woods-richardson-padres-win/
+
 **Bill Clinton’s Quiet Warning**\
 `His tone was warm, relaxed, conversational and uplifting.`\
 https://nytimes.com/live/2024/08/20/opinion/thepoint/bill-clinton-dnc-speech
