@@ -1,3 +1,7 @@
+**Farm Workers Union Battles California Grower Owned by Democratic Donors**\
+`Wonderful Nurseries, owned by Stewart and Lynda Resnick, has sued the state to overturn a labor organizing law championed by the United Farm Workers.`\
+https://nytimes.com/2024/08/22/business/economy/wonderful-company-united-farm-workers-union.html
+
 **What Kamala Harris’s Leadership Means for the Democratic Party**\
 `Less than a month after Democrats changed their nominee in a remarkable political shake-up, Kamala Harris has her party thinking it can win. Astead W. Herndon, a national politics reporter for The New York Times and the host of the politics podcast “The Run-Up,” reports from Chicago.`\
 https://nytimes.com/video/us/elections/100000009641916/the-run-up-dispatch-dnc.html

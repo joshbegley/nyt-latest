@@ -1,3 +1,11 @@
+**Everything You Need to Know About the 2024 U.S. Open**\
+`The tournament runs Aug. 26 to Sept. 8 at the Billie Jean King National Tennis Center in New York City.`\
+https://nytimes.com/2024/08/22/sports/us-open-guide-tennis.html
+
+**Thursday's MLB odds: Pitching matchups, playoff projections and more**\
+`See pitching matchups, playoff projections, win projections and more for Thursday's MLB games.`\
+https://nytimes.com/athletic/5716630/2024/08/22/mlb-odds-best-bets-projections-august-22/
+
 **Farm Workers Union Battles California Grower Owned by Democratic Donors**\
 `Wonderful Nurseries, owned by Stewart and Lynda Resnick, has sued the state to overturn a labor organizing law championed by the United Farm Workers.`\
 https://nytimes.com/2024/08/22/business/economy/wonderful-company-united-farm-workers-union.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5716566/2024/08/22/everton-team-news-tarkowski-bran
 **Until Saturday: Week 0 is here, plus a 12-team Playoff projection**\
 `Welcome to Until Saturday, the five-star college football newsletter: We have games this week and a Playoff bracket prediction.`\
 https://nytimes.com/athletic/5715447/2024/08/22/college-football-week-o-cfp-bracket-until-saturday/
-
-**Sexual assault lawsuit against Dwight Howard dropped**\
-`The man who filed the suit in July 2023 dismissed all claims he asserted against Howard with prejudice, according to a Monday court filing.`\
-https://nytimes.com/athletic/5715962/2024/08/22/dwight-howard-lawsuit-dropped-sexual-assault/
-
-**E.U. Naval Ship Rescues Crew of Oil Tanker Hit by Missiles in Red Sea**\
-`The incident appeared to be the most serious in weeks involving commercial shipping off Yemen’s coast. The Houthis, who have been attacking ships in solidarity with Hamas, did not claim responsibility.`\
-https://nytimes.com/2024/08/22/world/middleeast/red-sea-oil-tanker-missiles.html
 
