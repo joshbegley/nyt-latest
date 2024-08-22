@@ -1,3 +1,7 @@
+**Gus Walz Let It All Out During His Father’s Convention Speech**\
+`The 17-year-old’s tearful support for his father, Gov. Tim Walz, inspired a hashtag (#ThatsMyDad) and partisan bickering on social media.`\
+https://nytimes.com/2024/08/22/style/gus-walz-dnc-social-media.html
+
 **Second Memphis Officer to Change Plea in Death of Tyre Nichols**\
 `Court documents show that the former officer is set to change his not-guilty plea to federal charges, less than three weeks before he was set to face trial.`\
 https://nytimes.com/2024/08/22/us/tyre-nichols-officer-plea.html
