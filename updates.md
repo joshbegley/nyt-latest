@@ -1,3 +1,11 @@
+**Guatemala Arrests Seven Over 2022 Deaths of 53 Migrants in Texas**\
+`The police said the arrested people include the leader of the group involved in the 2022 smuggling operation. He faces extradition to the United States.`\
+https://nytimes.com/2024/08/22/us/guatemala-arrests-deaths-migrants.html
+
+**Tim Walz and His Party Are the New Small-Town Conservatives**\
+`They look after neighbors, they care about children and they take pride in the military.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/tim-walz-small-town-conservatives
+
 **Wednesday Night Lights: To Vouch for Coach Walz, His Old Players Step Up**\
 `Fifteen men clad in football jerseys took the stage at the Democratic National Convention as the Mankato West High School fight song played.`\
 https://nytimes.com/2024/08/22/us/politics/football-players-walz-dnc.html
