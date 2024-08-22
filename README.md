@@ -1,3 +1,7 @@
+**Farm Workers Union Battles California Grower Owned by Democratic Donors**\
+`Wonderful Nurseries, owned by Stewart and Lynda Resnick, has sued the state to overturn a labor organizing law championed by the United Farm Workers.`\
+https://nytimes.com/2024/08/22/business/economy/wonderful-company-united-farm-workers-union.html
+
 **What Kamala Harris’s Leadership Means for the Democratic Party**\
 `Less than a month after Democrats changed their nominee in a remarkable political shake-up, Kamala Harris has her party thinking it can win. Astead W. Herndon, a national politics reporter for The New York Times and the host of the politics podcast “The Run-Up,” reports from Chicago.`\
 https://nytimes.com/video/us/elections/100000009641916/the-run-up-dispatch-dnc.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5715962/2024/08/22/dwight-howard-lawsuit-dropped-se
 **E.U. Naval Ship Rescues Crew of Oil Tanker Hit by Missiles in Red Sea**\
 `The incident appeared to be the most serious in weeks involving commercial shipping off Yemen’s coast. The Houthis, who have been attacking ships in solidarity with Hamas, did not claim responsibility.`\
 https://nytimes.com/2024/08/22/world/middleeast/red-sea-oil-tanker-missiles.html
-
-**The Athletic FC: Inside De Ligt's move to United, how Real Madrid built their incredible squad**\
-`Today in TAFC: We explain the reasons and influences behind De Ligt's move to Man Utd. Plus: How Real Madrid have built their squad.`\
-https://nytimes.com/athletic/5716250/2024/08/22/de-ligt-united-real-madrid-building-squad/
 
