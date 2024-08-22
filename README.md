@@ -1,3 +1,11 @@
+**Bill Clinton Says Trump Is About ‘Me, Myself and I’**\
+`Former President Bill Clinton portrayed Donald J. Trump as a candidate who was only concerned about himself, and not about voters.`\
+https://nytimes.com/video/us/elections/100000009651374/dnc-bill-clinton.html
+
+**Google Joins $250 Million Deal to Support Newsrooms in California**\
+`The agreement includes $70 million from the state, which needs legislative approval. Some lawmakers objected, calling for a more comprehensive solution with tech companies.`\
+https://nytimes.com/2024/08/21/business/google-california-news-funding.html
+
 **“Since the end of the Cold War in 1989, America has created about 51 million new jobs. I swear I checked this three times. Even I couldn’t believe it. What’s the score? Democrats 50, Republicans one.”**\
 `By Ana Swanson`\
 https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/since-the-end-of-the-cold-war-in-1989-america-has-created-about-51-million-new-jobs-i-swear-i-checked-this-three-times-whats-the
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/21/us/seattle-dog-walker-carjacking.html
 **Former Oath Keepers Lawyer Pleads Guilty to Tampering With Jan. 6 Evidence**\
 `Kellye SoRelle admitted to telling members of the far-right group to illegally delete their text messages after the mob attack.`\
 https://nytimes.com/2024/08/21/us/politics/oath-keepers-lawyer-jan-6.html
-
-**Bill Clinton is giving his 12th D.N.C. speech. Here’s a look back.**\
-`The 42nd president has experienced highs and lows as a speaker at Democratic National Conventions across nearly half a century.`\
-https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/bill-clinton-is-giving-his-12th-dnc-speech-heres-a-look-back
-
-**Jets dominate, then taunt Giants: 'They can do that. They won on the day'**\
-`The intensity the Giants displayed in practices with the Lions earlier in camp was mostly absent from Wednesday's practice with the Jets.`\
-https://nytimes.com/athletic/5715797/2024/08/21/new-york-giants-jets-practice-taunt/
 

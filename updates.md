@@ -1,3 +1,7 @@
+**“Since the end of the Cold War in 1989, America has created about 51 million new jobs. I swear I checked this three times. Even I couldn’t believe it. What’s the score? Democrats 50, Republicans one.”**\
+`By Ana Swanson`\
+https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/since-the-end-of-the-cold-war-in-1989-america-has-created-about-51-million-new-jobs-i-swear-i-checked-this-three-times-whats-the
+
 **“Since the end of the Cold War in 1989, America has created about 51 million new jobs. I swear I checked this three times. What’s the score? Democrats 50, Republicans one.”**\
 `By Ana Swanson`\
 https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/since-the-end-of-the-cold-war-in-1989-america-has-created-about-51-million-new-jobs-i-swear-i-checked-this-three-times-whats-the
