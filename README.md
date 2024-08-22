@@ -1,36 +1,36 @@
-**Who will earn the Group of 5's spot in the CFP? Meet the contenders**\
-`For the first time, the best team from the Group of 5 is guaranteed a shot at a national championship. Who will earn that bid?`\
-https://nytimes.com/athletic/5714078/2024/08/22/group-of-5-conference-preview-playoff-contenders/
+**‘Querelle’: Fassbinder’s Defiant Swan Song**\
+`Anthology Film Archives is screening Rainer Werner Fassbinder’s 1982 film, based on Jean Genet’s novel, about a young sailor’s criminal and erotic escapades.`\
+https://nytimes.com/2024/08/22/movies/querelle-anthology-film-archives.html
 
-**Divers Recover 5th Body After Sinking of Yacht Off Sicily**\
-`The discovery leaves just one more person missing after the vessel went down this week carrying 10 crew members and 12 passengers, including the British tech entrepreneur Mike Lynch.`\
-https://nytimes.com/2024/08/22/world/europe/italy-sicily-yacht-bodies-found.html
+**Matt Berry Is Afraid of Heights, Not Comedy**\
+`His performance as a debauched vampire in “What We Do in the Shadows” earned him an Emmy nod. It has also often had him dangling 50 feet off the ground.`\
+https://nytimes.com/2024/08/22/arts/television/matt-berry-emmy-what-we-do-shadows.html
 
-**Real Betis in advanced talks with Barcelona over Roque loan**\
-`Real Betis are in advanced talks with Barcelona over the loan signing of striker Vitor Roque.`\
-https://nytimes.com/athletic/5713853/2024/08/22/vitor-roque-betis-loan-transfer-barcelona/
+**Tressie McMillan Cottom on Why Trump Is Struggling to Box Harris In**\
+`A columnist argues that Harris’s campaign is smart to downplay the vice president’s identity.`\
+https://nytimes.com/2024/08/22/opinion/tressie-cottom-trump-kamala-harris.html
 
-**Rick Steves, TV Travel Guide, Says He Has Prostate Cancer**\
-`Mr. Steves said the cancer had not spread and he will travel to France for work before having surgery next month.`\
-https://nytimes.com/2024/08/22/travel/rick-steves-prostate-cancer.html
+**Homes for Sale in New York and New Jersey**\
+`This week’s properties are a six-bedroom house in Albertson, N.Y., and a five-bedroom in Montclair, N.J.`\
+https://nytimes.com/2024/08/22/realestate/housing-market-near-nyc.html
 
-**Oprah, Football and Freedom: Highlights From the Democratic Convention**\
-`On Day 3, Gov. Tim Walz sought to rid the Democrats of their elite image. But another star was Oprah Winfrey, who mesmerized the crowd with an appeal for common sense and decency.`\
-https://nytimes.com/2024/08/22/us/politics/dnc-takeaways-tim-walz.html
+**Fulham complete Berge signing from Burnley**\
+`Fulham have completed the signing of midfielder Sander Berge from Burnley.`\
+https://nytimes.com/athletic/5714002/2024/08/22/sander-berge-fulham-transfer-burnley/
 
-**The Hard Way Into the U.S. Open: The Battle of the Qualifiers**\
-`Thirty-two spots remain unclaimed in the tournament, and the math is as brutal as it is simple. Win three matches, and you’re in.`\
-https://nytimes.com/2024/08/22/nyregion/michael-zheng-us-open.html
+**Eco Art Is ‘In.’ Must It Always Speak Loudly?**\
+`As the climate alarm sounds, artists seem to want to instruct us. Two sculptors stray from the crowd with ambiguous, beautiful and frightening ecological works.`\
+https://nytimes.com/2024/08/22/arts/design/eco-art-jenny-kendler-michael-wang.html
 
-**The U.S. Open Is Free This Week. Yes, Really.**\
-`“Fan Week” draws thousands during the qualifying rounds of the tournament, no tickets necessary. You still have to pay for the cocktails, of course.`\
-https://nytimes.com/2024/08/22/nyregion/usopen-free-week.html
+**Homes for Sale in Manhattan and Brooklyn**\
+`This week’s properties are in the Gramercy Park neighborhood, Manhattan Valley and Downtown Brooklyn.`\
+https://nytimes.com/2024/08/22/realestate/housing-market-nyc.html
 
-**The Trials of a Paralympian Whose Disability Doesn’t Always Show**\
-`Christie Raleigh Crossley has trained for most of her life to be an Olympic swimmer. After surviving two car crashes and a brain tumor, she is finally going for gold.`\
-https://nytimes.com/2024/08/22/nyregion/paralympics-swimmer-christie-raleigh-crossley.html
+**Trump May Claim Credit for Stock Surges, but the Reality Is Far More Complicated**\
+`On Wall Street, claims that a president is responsible for the fate of the stock market are largely dismissed as bluster.`\
+https://nytimes.com/2024/08/22/business/trump-stock-market.html
 
-**In the Wake of Tragedy, CrossFit Faces an Identity Crisis**\
-`CrossFit has found success as a training exercise for everyone. But the CrossFit Games may tell a different story.`\
-https://nytimes.com/2024/08/22/style/in-the-wake-of-tragedy-crossfit-faces-an-identity-crisis.html
+**Where Are New Apartments Being Built in the U.S.?**\
+`All over, with 500,000 new units expected to be completed in 2024.`\
+https://nytimes.com/2024/08/22/realestate/new-apartment-units-rent-us.html
 
