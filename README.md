@@ -22,9 +22,9 @@ https://nytimes.com/2024/08/22/us/missouri-court-marcellus-williams-execution.ht
 `Dubas made one of his biggest moves since taking control of the Penguins, and it looks like a very good deal for now and the future.`\
 https://nytimes.com/athletic/5717235/2024/08/22/penguins-rutger-mcgroarty-trade-kyle-dubas/
 
-**Families say hostage autopsies reveal bullets, raising new questions about captives’ deaths.**\
-`By Ephrat Livni and Johnatan Reiss`\
-https://nytimes.com/live/2024/08/22/world/israel-hamas-iran-gaza-war/families-say-hostage-autopsies-reveal-bullets-raising-new-questions-about-captives-deaths
+**Families Say Hostage Autopsies Reveal Bullets in the Bodies of Hostages**\
+`The revelation raised new question about how the hostages were killed while in captivity.`\
+https://nytimes.com/2024/08/22/world/middleeast/israeli-hostages-autopsies.html
 
 **Gus Walz Let It All Out During His Father’s Convention Speech**\
 `The 17-year-old’s tearful support for his father, Gov. Tim Walz, inspired a hashtag (#ThatsMyDad) and partisan bickering on social media.`\
