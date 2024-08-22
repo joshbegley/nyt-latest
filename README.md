@@ -1,3 +1,19 @@
+**Relatively few new players started on the Premier League's opening weekend - but why?**\
+`Across the 17 clubs to remain in the Premier League from last season, only 14 new signings started on the opening weekend`\
+https://nytimes.com/athletic/5712347/2024/08/22/premier-league-starting-xi-changes/
+
+**Tim Walz, Accepting V.P. Nomination, Tells Democrats to ‘Leave It on the Field’**\
+`Completing his transformation into a party leader, Mr. Walz played up his Midwestern roots and his time as a football coach. “It’s the fourth quarter,” he said. “We’re down a field goal.”`\
+https://nytimes.com/2024/08/22/us/politics/tim-walz-dnc.html
+
+**Geoff Duncan, a Georgia never-Trumper, urges other Republicans to support Harris.**\
+`By Maya King`\
+https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/geoff-duncan-a-georgia-never-trumper-urges-other-republicans-to-support-harris
+
+**Iowa coach Kirk Ferentz, assistant receive 1-game suspensions**\
+`The suspension is related to an NCAA investigation, but it is unclear whether the sanction is imposed by Iowa or the NCAA.`\
+https://nytimes.com/athletic/5716016/2024/08/22/kirk-ferentz-jon-budmayr-iowa-coaching-suspension/
+
 **“Page 451 says the only legitimate family is a married mother and father where only the father works.”**\
 `By Linda Qiu`\
 https://nytimes.com/2024/08/22/us/page-451-says-the-only-legitimate-family-is-a-married-mother-and-father-where-only-the-father-works.html
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/5711563/2024/08/22/premier-league-manangers-evoluti
 **A Combat Medic’s Quest to Change Tributes to Fallen Soldiers**\
 `Iryna Tsybukh, who was killed on the front line in Ukraine, wanted to humanize the way Kyiv commemorated the war dead. She also left notes for her own funeral.`\
 https://nytimes.com/2024/08/22/world/europe/ukraine-iryna-tsybukh-military-funerals.html
-
-**The War in Gaza Is Making Thousands of Orphans**\
-`Extended families, hospital staff and volunteers are stepping in to care for Gaza’s many newly orphaned children, some of whom are injured, traumatized and haunted by memories of their parents.`\
-https://nytimes.com/2024/08/22/world/middleeast/gaza-orphans.html
-
-**“They’ll repeal the Affordable Care Act.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/theyll-repeal-the-affordable-care-act
-
-**A great NL East rivalry is reborn as Phillies score late win over Braves**\
-`Every trip to Truist Park — no matter the standings — is a reminder of the ultimate target for the Phillies.`\
-https://nytimes.com/athletic/5716039/2024/08/21/phillies-braves-great-rivalry/
-
-**Braves veteran hitting coach Kevin Seitzer addresses challenging year for offense**\
-`The Braves had a powerhouse offense last season but now sit in the middle of the pack: "It’s really far from last year."`\
-https://nytimes.com/athletic/5715979/2024/08/21/braves-hitting-coach-kevin-seitzer/
 
