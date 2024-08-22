@@ -1,3 +1,7 @@
+**Lewis Hamilton champions F1 return to Africa, says sport can't 'ignore' continent**\
+`Hamilton also expressed mixed feelings about losing longtime race engineer Pete Bonnington, who won't be joining him at Ferrari in 2025. `\
+https://nytimes.com/athletic/5717249/2024/08/22/f1-lewis-hamilton-africa-mercedes-pete-bonnington/
+
 **Urgent Calls for Action on the Climate**\
 `Readers discuss a science article about potentially irreversible changes. Also: Elect a felon?; my dad and Coach Walz; revised jobs report; key to happiness.`\
 https://nytimes.com/2024/08/22/opinion/letters/action-on-climate.html
