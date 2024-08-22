@@ -1,3 +1,7 @@
+**Bill Clinton is giving his 12th D.N.C. speech. Here’s a look back.**\
+`The 42nd president has experienced highs and lows as a speaker at Democratic National Conventions across nearly half a century.`\
+https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/bill-clinton-is-giving-his-12th-dnc-speech-heres-a-look-back
+
 **Jets dominate, then taunt Giants: 'They can do that. They won on the day'**\
 `The intensity the Giants displayed in practices with the Lions earlier in camp was mostly absent from Wednesday's practice with the Jets.`\
 https://nytimes.com/athletic/5715797/2024/08/21/new-york-giants-jets-practice-taunt/
