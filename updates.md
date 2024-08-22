@@ -1,3 +1,11 @@
+**Convention Insider: The Unexpected Reappearance of John Edwards**\
+`Mr. Edwards was once a rising star, but his political career evaporated amid scandal. And yet, there he was, reconnecting with old associates at the Democratic convention.`\
+https://nytimes.com/2024/08/22/us/elections/john-edwards-dnc.html
+
+**Mike Lynch, Tech Mogul Acquitted of Fraud, Dies at 59**\
+`The British entrepreneur, who was found not guilty of fraud charges in the sale of his company to Hewlett-Packard, was celebrating his acquittal when his yacht that sank off the coast of Sicily in a storm.`\
+https://nytimes.com/2024/08/22/business/dealbook/mike-lynch-dead-tech-mogul.html
+
 **Stephen Nedoroscik to star on 'Dancing with the Stars'**\
 `When asked if he plans on dancing with his glasses on or off, Nedoroscik said he may use his famed eyewear to his advantage.`\
 https://nytimes.com/athletic/5716656/2024/08/22/stephen-nedoroscik-dancing-with-the-stars/
