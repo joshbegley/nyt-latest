@@ -1,3 +1,7 @@
+**Our Election 2024 Student Conversation Forums**\
+`Starting Sept. 10, we’re inviting teenagers to reflect on their civic and political values, beliefs and identity and share their perspectives on current issues.`\
+https://nytimes.com/2024/08/22/learning/our-election-2024-student-conversation-forums.html
+
 **QB Matthew Stafford fully practices vs. Houston in Texas heat: Rams takeaways**\
 `Stafford competes against the Texans in Thursday's practice, but don't expect key players or key depth players to play Saturday.`\
 https://nytimes.com/athletic/5717180/2024/08/22/la-rams-matthew-stafford-practice-texans/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/22/climate/climate-workers-wanted.html
 **Leeds sign Belgian forward Ramazani from Almeria**\
 `Leeds United have completed the signing of Largie Ramazani from Spanish side Almeria for an undisclosed fee, subject to a work permit.`\
 https://nytimes.com/athletic/5717255/2024/08/22/leeds-united-sign-largie-ramazani/
-
-**Counting All the Fish in the Sea May Be Even Trickier Than Scientists Thought**\
-`A new study suggests that estimates of the health of the world’s fisheries may be too optimistic.`\
-https://nytimes.com/2024/08/22/climate/fish-stocks-overcounting.html
 
