@@ -1,3 +1,11 @@
+**Texas, Texas A&M ADs eye moving future games to Black Friday**\
+`Both Longhorns AD Chris Del Conte and Aggies AD Trev Alberts said they hope the game is played annually.`\
+https://nytimes.com/athletic/5717689/2024/08/22/texas-texas-am-rivalry-schedule-black-friday/
+
+**NASCAR sanctions Denny Hamlin for engine infraction**\
+`The engine in question is one Hamlin had in his car when he won this spring at Bristol Motor Speedway.`\
+https://nytimes.com/athletic/5717645/2024/08/22/denny-hamlin-nascar-points-penalty-joe-gibbs-racing/
+
 **Autopsies of Israeli Hostages Recovered From Gaza Reveal Bullets, Families Say**\
 `The revelation raised new questions about how the hostages were killed while in captivity.`\
 https://nytimes.com/2024/08/22/world/middleeast/israeli-hostages-autopsies.html
