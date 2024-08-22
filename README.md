@@ -1,4 +1,4 @@
-**Letitia James Fights to Preserve Trump’s Over $450 Million Fraud Penalty**\
+**Letitia James Fights to Preserve Trump’s More Than $450 Million Penalty**\
 `Ms. James, New York’s attorney general, argued that the civil fraud judgment, which the former president has appealed, should stand. It could wipe out his cash reserves.`\
 https://nytimes.com/2024/08/21/nyregion/letitia-james-trump-fraud-penalty.html
 
