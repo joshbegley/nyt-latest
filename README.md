@@ -8,7 +8,7 @@ https://nytimes.com/2024/08/22/books/review/new-books-recommendations.html
 
 **A Deep Dive on Dip for Dinner**\
 `Starting with Ali Slagle’s fresh tomato and yogurt dip, a new two-step recipe with sweet acidity and garlicky bite.`\
-https://nytimes.com/2024/08/22/dining/a-deep-dive-on-dip-for-dinner.html
+https://nytimes.com/2024/08/22/dining/easy-dips-dinner.html
 
 **A TikTok Cucumber Craze Has Iceland in a Pickle**\
 `Icelandic cooks, eager to try the latest social media trend, are amused and a little surprised by their empty produce aisles.`\
@@ -22,7 +22,7 @@ https://nytimes.com/athletic/5716549/2024/08/22/georgia-hall-womens-open-old-cou
 `By ‘The Run-Up’ Team`\
 https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/the-run-up-what-elizabeth-warren-and-other-leaders-think-of-a-harris-led-party
 
-**The Emotional Support Parrots vs. the Co-op Board**\
+**They Tried to Evict Her Emotional Support Parrots. She Won $165,000.**\
 `Three pet parrots at a Manhattan apartment building irritated their neighbors, who moved to evict them and their owner. The owner took the neighbors to court and won $165,000 in damages.`\
 https://nytimes.com/2024/08/22/nyregion/nyc-parrots-apartment-court.html
 
