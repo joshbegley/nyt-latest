@@ -1,3 +1,7 @@
+**Wemby's trajectory with Spurs, Zach Edey's impact on Grizzles and Southwest division rankings**\
+`Kelly Iko answers your questions about the Spurs, Rockets, Grizzlies and the rest of the Southwest Division in his latest mailbag. `\
+https://nytimes.com/athletic/5712613/2024/08/22/spurs-wembanyama-rockets-grizzlies-mailbag/
+
 **'I just knew that I had to work for it': Kadyn Proctor talks his return to Alabama**\
 `Once back, he needed to ingratiate himself into the new culture. Now, with kickoff nearing, Proctor is starting to feel like he never left.`\
 https://nytimes.com/athletic/5716027/2024/08/22/kadyn-proctor-alabama-return/
