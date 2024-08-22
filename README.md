@@ -1,3 +1,7 @@
+**A Film Festival Founded in a War Zone, Still Going Strong**\
+`The Sarajevo Film Festival, now 30 years old, grew out of underground screenings during the siege of the city. Those roots still define the event’s character.`\
+https://nytimes.com/2024/08/22/movies/sarajevo-film-festival.html
+
 **Trippier wants to leave Newcastle, Everton interested**\
 `Kieran Trippier wants to leave Newcastle United before the transfer window closes, with Everton among the clubs keen to sign the England full-back.`\
 https://nytimes.com/athletic/5716282/2024/08/22/newcastle-transfer-kieran-trippier-everton/
@@ -30,4 +34,3 @@ https://nytimes.com/2024/08/22/movies/mountains-review.html
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5715955/2024/08/22/caleb-williams-jayden-daniels-bo-nix-nfl-rookies-the-pulse/
 
-**The crew of a stricken tanker is evacuated in the Red Sea, and other news.**\
