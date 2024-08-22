@@ -1,3 +1,19 @@
+**In Majorca, a One-Room Home With Sheep for Neighbors**\
+`How a couple transformed a tumbledown shepherd’s hut into a spare but functional retreat with views of the Balearic Sea.`\
+https://nytimes.com/2024/08/22/t-magazine/majorca-home.html
+
+**What Drives Kamala Harris: The Art of the Possible**\
+`As she prepares to formally accept the Democratic nomination on Thursday night, what the vice president may be offering the nation is a future defined by the fine print.`\
+https://nytimes.com/2024/08/22/us/politics/kamala-harris-policy-change.html
+
+**German Support for Ukraine Comes Under New Strains**\
+`With a budget shortfall for 2025 and evidence mounting that Ukraine blew up natural-gas pipelines between Germany and Russia, German aid to Ukraine is under pressure.`\
+https://nytimes.com/2024/08/22/world/europe/germany-ukraine-aid-scholz.html
+
+**Whooping Cough Is Coming Back**\
+`Cases dropped during the pandemic, but are now climbing once more. Here’s what to know.`\
+https://nytimes.com/2024/08/22/well/whooping-cough-symptoms-pertussis.html
+
 **Arsenal reach Merino agreement with Real Sociedad**\
 `Arsenal have reached an agreement in principle to sign Mikel Merino from Real Sociedad.`\
 https://nytimes.com/athletic/5700950/2024/08/22/arsenal-mikel-merino-transfer-agree-real-sociedad/

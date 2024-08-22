@@ -1,3 +1,19 @@
+**In Majorca, a One-Room Home With Sheep for Neighbors**\
+`How a couple transformed a tumbledown shepherd’s hut into a spare but functional retreat with views of the Balearic Sea.`\
+https://nytimes.com/2024/08/22/t-magazine/majorca-home.html
+
+**What Drives Kamala Harris: The Art of the Possible**\
+`As she prepares to formally accept the Democratic nomination on Thursday night, what the vice president may be offering the nation is a future defined by the fine print.`\
+https://nytimes.com/2024/08/22/us/politics/kamala-harris-policy-change.html
+
+**German Support for Ukraine Comes Under New Strains**\
+`With a budget shortfall for 2025 and evidence mounting that Ukraine blew up natural-gas pipelines between Germany and Russia, German aid to Ukraine is under pressure.`\
+https://nytimes.com/2024/08/22/world/europe/germany-ukraine-aid-scholz.html
+
+**Whooping Cough Is Coming Back**\
+`Cases dropped during the pandemic, but are now climbing once more. Here’s what to know.`\
+https://nytimes.com/2024/08/22/well/whooping-cough-symptoms-pertussis.html
+
 **Tim Walz Gets His Glow-Up**\
 `The vice-presidential candidate steps out of his flannels and into the spotlight.`\
 https://nytimes.com/2024/08/22/style/tim-walz-dnc.html
@@ -17,20 +33,4 @@ https://nytimes.com/2024/08/22/us/politics/kamala-harris-senate.html
 **Noah Lyles would accept Tyreek Hill's challenge in 'legit' race**\
 `Lyles said he'd race Hill only if it was a 100-meter dash.`\
 https://nytimes.com/athletic/5716627/2024/08/22/noah-lyles-tyreek-hill-race/
-
-**Arsenal reach Merino agreement with Real Sociedad**\
-`Arsenal have reached an agreement in principle to sign Mikel Merino from Real Sociedad.`\
-https://nytimes.com/athletic/5700950/2024/08/22/arsenal-mikel-merino-transfer-agree-real-sociedad/
-
-**Browns trade K Cade York to Commanders: Source**\
-`With York arriving, Washington released Riley Patterson, who was the lone kicker on the Commanders preseason roster.`\
-https://nytimes.com/athletic/5716838/2024/08/22/browns-trade-cade-york-commanders/
-
-**Stephen Nedoroscik to star on 'Dancing with the Stars'**\
-`When asked if he plans on dancing with his glasses on or off, Nedoroscik said he may use his famed eyewear to his advantage.`\
-https://nytimes.com/athletic/5716656/2024/08/22/stephen-nedoroscik-dancing-with-the-stars/
-
-**The Windup: Why Joey Votto called it a career**\
-`Welcome to The Windup, The Athletic's daily MLB newsletter. `\
-https://nytimes.com/athletic/5716820/2024/08/22/joey-votto-retire-reds-player-height-mlb-the-windup/
 
