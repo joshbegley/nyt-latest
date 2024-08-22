@@ -1,3 +1,7 @@
+**Who Are Kamala Harris’s 1.5 Million New Donors?**\
+`President Biden’s exit from the presidential race brought a surge of new donors to the Democratic campaign. They tended to be younger, and from areas with slightly higher proportions of Black and college-educated residents.`\
+https://nytimes.com/interactive/2024/08/22/us/elections/kamala-harris-donors.html
+
 **Kawakami Mailbag, Part 1: The future of Farhan Zaidi, where the Warriors go from here**\
 `Thoughts on what solid steps the Giants can take, which stars the Warriors might target next and the Valkyries' future.`\
 https://nytimes.com/athletic/5715909/2024/08/22/giants-farhan-zaidi-warriors-as-valkyries-kawakami-mailbag/
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/08/20/opinion/thepoint/harris-speech-four-points
 **Judge John Hodgman on Defenestration Alternatives**\
 `Do we need a word for doing it in reverse?`\
 https://nytimes.com/2024/08/22/magazine/judge-john-hodgman-on-defenestration-alternatives.html
-
-**‘Pachinko’ Is a Gorgeous Epic of Love and Struggle**\
-`Based on the novel by Min Jin Lee, this thoughtful series about a Korean family across generations returns to Apple TV+ for a second season.`\
-https://nytimes.com/2024/08/22/arts/television/pachinko-season-2-apple.html
 
