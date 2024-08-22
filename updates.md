@@ -1,3 +1,7 @@
+**Ukraine Cites Modi Visit as the Fruit of an Emerging Diplomatic Push**\
+`Officials say efforts to engage neutral nations like India along with the military incursion into Russia will strengthen Ukraine’s hand in any peace talks.`\
+https://nytimes.com/2024/08/22/world/europe/ukraine-india-modi-diplomacy.html
+
 **Friday Briefing: A Brutal Reality for Women in India**\
 `Plus, saying goodbye to a penguin and an icon.`\
 https://nytimes.com/2024/08/22/briefing/india-violence-women-mpox-thailand-kamala-harris.html
