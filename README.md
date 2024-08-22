@@ -1,3 +1,7 @@
+**Trump’s Made-Up ‘Kamala Crime Wave’**\
+`The ex-president’s claims about violent crime go beyond even his usual disregard for facts.`\
+https://nytimes.com/2024/08/22/opinion/kamala-harris-trump-crime.html
+
 **At the border, Trump goes after Harris on immigration but continues personal insults.**\
 `Donald Trump claimed Kamala Harris lacked the work ethic to handle immigration. He’s been urged by some Republicans to focus more on policy, but he’s defended his continued personal attacks.`\
 https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/at-the-border-trump-goes-after-harris-on-immigration-but-continues-personal-insults
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/22/world/middleeast/gaza-evacuation-israel-war.html
 **What I’m reading: A ‘Book of the Century’ I’d Somehow Missed**\
 `“The Last Samurai,” which has nothing to do with the Tom Cruise movie of the same name, is as good as everyone says.`\
 https://nytimes.com/2024/08/22/world/europe/interpreter-books-last-samurai.html
-
-**Rick Pitino has ceremonial sword, bullhorn stolen**\
-`According to a university statement, the theft occurred around 8 p.m. in an office in the athletics department building.`\
-https://nytimes.com/athletic/5717816/2024/08/22/rick-pitino-stolen-sword-bullhorn-st-johns/
 
