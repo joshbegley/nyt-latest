@@ -1,3 +1,11 @@
+**Let a Palestinian Speak**\
+`It’s the right thing for Democrats to do, and it’s strategically smart.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/democratic-convention-palestinian-speaker
+
+**Shapiro decries Trump’s social-media attack as an ‘antisemitic trope.’**\
+`Trump emphasized the Jewish governor’s faith and questioned his record on Israel, even though Shapiro does not make the nation’s foreign policy.`\
+https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/shapiro-decries-trumps-social-media-attack-as-an-antisemitic-trope
+
 **Trump Warms to Kennedy and Belittles Walz in Fox News Appearance**\
 `Donald J. Trump said he would welcome the endorsement of Robert F. Kennedy Jr., who is expected to end his presidential campaign.`\
 https://nytimes.com/2024/08/22/us/politics/trump-rfk-jr-walz-fox.html
@@ -23,14 +31,6 @@ https://nytimes.com/athletic/5716549/2024/08/22/georgia-hall-womens-open-old-cou
 https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/the-run-up-what-elizabeth-warren-and-other-leaders-think-of-a-harris-led-party
 
 **They Tried to Evict Her Emotional Support Parrots. She Won $165,000.**\
-`Three pet parrots at a Manhattan apartment building irritated their neighbors, who moved to evict them and their owner. The owner took the neighbors to court and won $165,000 in damages.`\
+`Three pet parrots at a Manhattan apartment building irritated their neighbors, who moved to evict them and their owner. The owner took the neighbors to court and was awarded damages.`\
 https://nytimes.com/2024/08/22/nyregion/nyc-parrots-apartment-court.html
-
-**‘Between the Temples’ Review: A Widower Walks Into a Bar**\
-`And meets his former music teacher, upending his life, in Nathan Silver’s touching comedy, starring Jason Schwartzman and Carol Kane.`\
-https://nytimes.com/2024/08/22/movies/between-the-temples-review.html
-
-**Miami (Ohio) coach says Alabama 'illegally recruited' kicker in transfer portal**\
-`Asked about having to replace former placekicker Graham Nicholson this week, Chuck Martin detailed his perspective on the transfer portal.`\
-https://nytimes.com/athletic/5717010/2024/08/22/miami-ohio-alabama-chuck-martin-graham-nicholson/
 
