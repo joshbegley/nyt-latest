@@ -1,3 +1,11 @@
+**Fund-Raiser for Jan. 6 Defendants Will Be Held at Trump’s Golf Club**\
+`Mr. Trump is said to not be attending the event, although an invitation lists him as an “invited guest speaker.” It will be held two months before Election Day.`\
+https://nytimes.com/2024/08/22/us/politics/fund-raiser-jan-6-defendants-trump-golf-club.html
+
+**Garrison Keillor on Tim Walz, ‘Minnesota Nice’ and Small-Town Appeal**\
+`Mr. Keillor said the vice-presidential candidate, a hunter and a football coach, used authenticity to win his congressional district.`\
+https://nytimes.com/2024/08/22/arts/tim-walz-minnesota-nice-garrison-keillor.html
+
 **Trump’s Made-Up ‘Kamala Crime Wave’**\
 `The ex-president’s claims about violent crime go beyond even his usual disregard for facts.`\
 https://nytimes.com/2024/08/22/opinion/kamala-harris-trump-crime.html
