@@ -1,3 +1,11 @@
+**Arsenal reach Mikel Merino agreement with Real Sociedad**\
+`Arsenal have reached an agreement in principle to sign Mikel Merino from Real Sociedad.`\
+https://nytimes.com/athletic/5700950/2024/08/22/arsenal-mikel-merino-transfer-agree-real-sociedad/
+
+**Browns trade K Cade York to Commanders: Source**\
+`With York arriving, Washington released Riley Patterson, who was the lone kicker on the Commanders preseason roster.`\
+https://nytimes.com/athletic/5716838/2024/08/22/browns-trade-cade-york-commanders/
+
 **Convention Insider: The Unexpected Reappearance of John Edwards**\
 `Mr. Edwards was once a rising star, but his political career evaporated amid scandal. And yet, there he was, reconnecting with old associates at the Democratic convention.`\
 https://nytimes.com/2024/08/22/us/elections/john-edwards-dnc.html
