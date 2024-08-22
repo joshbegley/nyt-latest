@@ -1,3 +1,7 @@
+**Volcano Erupts Near Fishing Town in Iceland**\
+`The latest eruption, the sixth since December, is part of increased volcanic activity that began in 2021.`\
+https://nytimes.com/2024/08/22/world/europe/iceland-volcano-eruption.html
+
 **In a Likely Overture to China, Nepal Lifts Ban on TikTok**\
 `The move signaled that Nepal’s new prime minister, who has cultivated ties with China, would continue on that path.`\
 https://nytimes.com/2024/08/22/world/asia/nepal-tiktok-china.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/22/us/dr-oumair-aejaz-detroit-charged.html
 **Convention Insider: Bernie Sanders Is in on the Joke**\
 `Mr. Sanders, the curmudgeonly senator from Vermont, is exuding something like optimism about the future of the progressive movement.`\
 https://nytimes.com/2024/08/22/us/politics/bernie-sanders-dnc.html
-
-**Yankees’ Alex Verdugo addresses brutal slump: ‘Going through (expletive)’**\
-`Verdugo’s long-running struggles appear to be weighing on him as much as ever.`\
-https://nytimes.com/athletic/5717988/2024/08/22/alex-verdugo-yankees-slump/
 

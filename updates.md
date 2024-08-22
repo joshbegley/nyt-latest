@@ -1,3 +1,7 @@
+**Volcano Erupts Near Fishing Town in Iceland**\
+`The latest eruption, the sixth since December, is part of increased volcanic activity that began in 2021.`\
+https://nytimes.com/2024/08/22/world/europe/iceland-volcano-eruption.html
+
 **In a Likely Overture to China, Nepal Lifts Ban on TikTok**\
 `The move signaled that Nepal’s new prime minister, who has cultivated ties with China, would continue on that path.`\
 https://nytimes.com/2024/08/22/world/asia/nepal-tiktok-china.html
