@@ -1,3 +1,7 @@
+**Who will earn the Group of 5's spot in the CFP? Meet the contenders**\
+`For the first time, the best team from the Group of 5 is guaranteed a shot at a national championship. Who will earn that bid?`\
+https://nytimes.com/athletic/5714078/2024/08/22/group-of-5-conference-preview-playoff-contenders/
+
 **Divers Recover 5th Body After Sinking of Yacht Off Sicily**\
 `The discovery leaves just one more person missing after the vessel went down this week carrying 10 crew members and 12 passengers, including the British tech entrepreneur Mike Lynch.`\
 https://nytimes.com/2024/08/22/world/europe/italy-sicily-yacht-bodies-found.html
