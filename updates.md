@@ -1,3 +1,19 @@
+**“Page 451 says the only legitimate family is a married mother and father where only the father works.”**\
+`By Linda Qiu`\
+https://nytimes.com/2024/08/22/us/page-451-says-the-only-legitimate-family-is-a-married-mother-and-father-where-only-the-father-works.html
+
+**19 Things Seen and Heard at the Convention**\
+`Illustrated scenes and thoughts from delegates and others at the Democratic Convention.`\
+https://nytimes.com/interactive/2024/08/22/us/politics/dnc-quotes-conversation.html
+
+**Joao Felix has hard work ahead of him to convince Chelsea fans - but why?**\
+`Joao Felix's return to Chelsea has been met with indifference from their supporters - he has a point to prove to a sceptical fanbase`\
+https://nytimes.com/athletic/5711444/2024/08/22/joao-felix-has-hard-work-ahead-of-him-to-convince-chelsea-fans-but-why/
+
+**New ideas, adaptation, evolution - how the best Premier League managers stay one step ahead**\
+`What seemed novel 20 years ago is the minimum requirement to excel in football nowadays - continued success requires constant evolution`\
+https://nytimes.com/athletic/5711563/2024/08/22/premier-league-manangers-evolution/
+
 **A Combat Medic’s Quest to Change Tributes to Fallen Soldiers**\
 `Iryna Tsybukh, who was killed on the front line in Ukraine, wanted to humanize the way Kyiv commemorated the war dead. She also left notes for her own funeral.`\
 https://nytimes.com/2024/08/22/world/europe/ukraine-iryna-tsybukh-military-funerals.html
