@@ -1,3 +1,7 @@
+**Arsenal reach Merino agreement with Real Sociedad**\
+`Arsenal have reached an agreement in principle to sign Mikel Merino from Real Sociedad.`\
+https://nytimes.com/athletic/5700950/2024/08/22/arsenal-mikel-merino-transfer-agree-real-sociedad/
+
 **Tim Walz Gets His Glow-Up**\
 `The vice-presidential candidate steps out of his flannels and into the spotlight.`\
 https://nytimes.com/2024/08/22/style/tim-walz-dnc.html

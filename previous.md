@@ -18,7 +18,7 @@ https://nytimes.com/2024/08/22/us/politics/kamala-harris-senate.html
 `Lyles said he'd race Hill only if it was a 100-meter dash.`\
 https://nytimes.com/athletic/5716627/2024/08/22/noah-lyles-tyreek-hill-race/
 
-**Arsenal reach Mikel Merino agreement with Real Sociedad**\
+**Arsenal reach Merino agreement with Real Sociedad**\
 `Arsenal have reached an agreement in principle to sign Mikel Merino from Real Sociedad.`\
 https://nytimes.com/athletic/5700950/2024/08/22/arsenal-mikel-merino-transfer-agree-real-sociedad/
 
