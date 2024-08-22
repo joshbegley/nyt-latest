@@ -1,3 +1,15 @@
+**6 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/08/22/books/review/new-books-recommendations.html
+
+**A Deep Dive on Dip for Dinner**\
+`Starting with Ali Slagle’s fresh tomato and yogurt dip, a new two-step recipe with sweet acidity and garlicky bite.`\
+https://nytimes.com/2024/08/22/dining/a-deep-dive-on-dip-for-dinner.html
+
+**A TikTok Cucumber Craze Has Iceland in a Pickle**\
+`Icelandic cooks, eager to try the latest social media trend, are amused and a little surprised by their empty produce aisles.`\
+https://nytimes.com/2024/08/22/world/europe/cucumber-iceland-tiktok-trend.html
+
 **Georgia Hall is comfortable at the Old Course. It's helping her in this Women's Open**\
 `Hall, the 2018 Open champion, closed with an eagle to get to 1-under-par and within striking distance of the leader.`\
 https://nytimes.com/athletic/5716549/2024/08/22/georgia-hall-womens-open-old-course/
