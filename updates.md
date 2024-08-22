@@ -1,3 +1,15 @@
+**U.S. Open draw 2024: Luck for Djokovic? Relief for Swiatek? Danger for Raducanu**\
+`The fourth Grand Slam begins on Monday, and the draws offer some blockbuster first-round matches as well as intrigue`\
+https://nytimes.com/athletic/5717411/2024/08/22/us-open-draw-2024-djokovic-alcaraz-sinner-raducanu-osaka/
+
+**After Some Columbia Donors Pause Gifts, Medical School Gets $400 Million**\
+`The donation is the largest the medical school has received and comes after other donors pulled back because of Columbia’s response to pro-Palestinian demonstrations.`\
+https://nytimes.com/2024/08/22/nyregion/columbia-medical-school-donation-vagelos.html
+
+**Families Say Hostage Autopsies Reveal Bullets in the Bodies of Hostages**\
+`The revelation raised new question about how the hostages were killed while in captivity.`\
+https://nytimes.com/2024/08/22/world/middleeast/israeli-hostages-autopsies.html
+
 **Veterans Say Attacks on Candidates’ Service Records Are a Turnoff**\
 `Many veterans say that disparaging an opponent’s military service, as JD Vance has done with Tim Walz, is unhelpful, and they want to hear about current issues instead.`\
 https://nytimes.com/2024/08/22/us/veterans-walz-vance-record.html

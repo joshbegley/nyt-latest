@@ -22,8 +22,8 @@ https://nytimes.com/2024/08/22/us/missouri-court-marcellus-williams-execution.ht
 `Dubas made one of his biggest moves since taking control of the Penguins, and it looks like a very good deal for now and the future.`\
 https://nytimes.com/athletic/5717235/2024/08/22/penguins-rutger-mcgroarty-trade-kyle-dubas/
 
-**Families Say Hostage Autopsies Reveal Bullets in the Bodies of Hostages**\
-`The revelation raised new question about how the hostages were killed while in captivity.`\
+**Autopsies of Israeli Hostages Recovered From Gaza Reveal Bullets, Families Say**\
+`The revelation raised new questions about how the hostages were killed while in captivity.`\
 https://nytimes.com/2024/08/22/world/middleeast/israeli-hostages-autopsies.html
 
 **Gus Walz Let It All Out During His Father’s Convention Speech**\
