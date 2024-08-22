@@ -1,3 +1,7 @@
+**Kamala Harris’s Political Pragmatism**\
+`Kamala Harris may be offering the nation a future defined by the fine print, focused on accomplishing what can be done now.`\
+https://nytimes.com/video/us/elections/100000009642241/kamala-harriss-political-pragmatism.html
+
 **Lewis Hamilton champions F1 return to Africa, says sport can't 'ignore' continent**\
 `Hamilton also expressed mixed feelings about losing longtime race engineer Pete Bonnington, who won't be joining him at Ferrari in 2025. `\
 https://nytimes.com/athletic/5717249/2024/08/22/f1-lewis-hamilton-africa-mercedes-pete-bonnington/

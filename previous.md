@@ -1,3 +1,7 @@
+**Kamala Harris’s Political Pragmatism**\
+`Kamala Harris may be offering the nation a future defined by the fine print, focused on accomplishing what can be done now.`\
+https://nytimes.com/video/us/elections/100000009642241/kamala-harriss-political-pragmatism.html
+
 **Urgent Calls for Action on the Climate**\
 `Readers discuss a science article about potentially irreversible changes. Also: Elect a felon?; my dad and Coach Walz; revised jobs report; key to happiness.`\
 https://nytimes.com/2024/08/22/opinion/letters/action-on-climate.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/22/climate/fish-stocks-overcounting.html
 **Many Climate Policies Struggle to Cut Emissions, Study Finds**\
 `The most effective ones tend to combine several emissions-cutting strategies, not a stand-alone approach, according to an examination of 1,500 policies globally.`\
 https://nytimes.com/2024/08/22/climate/climate-policies.html
-
-**Brentford sign Van den Berg from Liverpool**\
-`Liverpool defender Sepp van den Berg has signed for Brentford.`\
-https://nytimes.com/athletic/5712168/2024/08/22/van-den-berg-brentford-transfer/
 
