@@ -1,3 +1,7 @@
+**Braves veteran hitting coach Kevin Seitzer addresses challenging year for offense**\
+`The Braves had a powerhouse offense last season but now sit in the middle of the pack: "It’s really far from last year."`\
+https://nytimes.com/athletic/5715979/2024/08/21/braves-hitting-coach-kevin-seitzer/
+
 **Oprah Celebrates Kamala as a Child of Immigrants**\
 `Oprah Winfrey spoke on the third night of the Democratic convention. She gave Kamala Harris a full-throated endorsement, saying that voting for her is “common sense.”`\
 https://nytimes.com/video/us/elections/100000009651453/oprah-celebrates-kamala-as-a-child-of-immigrants.html

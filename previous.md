@@ -1,3 +1,7 @@
+**Braves veteran hitting coach Kevin Seitzer addresses challenging year for offense**\
+`The Braves had a powerhouse offense last season but now sit in the middle of the pack: "It’s really far from last year."`\
+https://nytimes.com/athletic/5715979/2024/08/21/braves-hitting-coach-kevin-seitzer/
+
 **Trump Wants to Distance Himself From Project 2025. Democrats Are Trying Not to Let Him.**\
 `The conservative policy proposal has been front and center at the Democratic convention this week, as Democrats look to tie the controversial document to the former president.`\
 https://nytimes.com/2024/08/21/us/politics/project-2025-kenan-thompson.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/08/20/opinion/thepoint/bill-clinton-dnc-speech
 **Josh Shapiro, a finalist to be Harris’s running mate, makes his case for her.**\
 `By Nicholas Nehamas`\
 https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/josh-shapiro-kamala-harris-dnc
-
-**Nancy Pelosi, Mother of Dragons**\
-`There’s no contest between viability and sentimentality.`\
-https://nytimes.com/live/2024/08/20/opinion/thepoint/dowd-pelosi-dragons-biden
 
