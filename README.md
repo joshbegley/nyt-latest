@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5716820/2024/08/22/joey-votto-retire-reds-player-he
 https://nytimes.com/athletic/5716826/2024/08/22/john-sterling-yankees-broadcast-postseason/
 
 **Convention Insider: The Unexpected Reappearance of John Edwards**\
-`Once a rising star, Mr. Edwards’s political career evaporated amid  scandal. And yet, there he was, reconnecting with old associates at the Democratic convention.`\
+`Mr. Edwards was once a rising star, but his political career evaporated amid scandal. And yet, there he was, reconnecting with old associates at the Democratic convention.`\
 https://nytimes.com/2024/08/22/us/elections/john-edwards-dnc.html
 
 **Leicester agree fee with Palace for Ayew**\
