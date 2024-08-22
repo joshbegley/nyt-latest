@@ -1,3 +1,19 @@
+**How Real Madrid built a super squad: The plan and people behind a new Galactico era**\
+`Kylian Mbappe, Jude Bellingham, Vinicius Jr, Rodrygo - Madrid's squad is packed full of talent. This is how they put it together`\
+https://nytimes.com/athletic/5712413/2024/08/22/real-madrid-mbappe-vinicius-rodrygo-bellingham-perez-ancelotti/
+
+**Rico Lewis has made superb progress but his limited game time is understandable**\
+`The 19-year-old has been a revelation under Pep Guardiola but due to his size and fierce competition for places, his rotation makes sense`\
+https://nytimes.com/athletic/5714399/2024/08/22/rico-lewis-manchester-city-progress/
+
+**How De Ligt deal was sealed by Ten Hag texts, a perfect profile and lifelong love**\
+`The Dutch defender's move to Old Trafford is the realisation of a long-held personal ambition - this is how it happened`\
+https://nytimes.com/athletic/5705404/2024/08/22/matthijs-de-ligt-manchester-united-inside-deal/
+
+**“Page 451 says the only legitimate family is a married mother and father where only the father works.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/22/us/dnc-fact-check/page-451-says-the-only-legitimate-family-is-a-married-mother-and-father-where-only-the-father-works
+
 **Van Dijk's Liverpool contract: What's going on?**\
 `What we're hearing about the Anfield captain's future as the clock ticks down on his current deal`\
 https://nytimes.com/athletic/5713729/2024/08/22/virgil-van-dijk-liverpool-contract-latest/
