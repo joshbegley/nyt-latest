@@ -1,4 +1,4 @@
-**Trump Pardon Recipient Accused of Assaulting Wife and Father-in-Law**\
+**Trump Clemency Recipient Accused of Assaulting Wife and Father-in-Law**\
 `Jonathan Braun, whose drug sentence was commuted by Donald Trump shortly before he left office, was charged on Long Island, the latest incident to raise questions of how clemency applications were vetted.`\
 https://nytimes.com/2024/08/21/us/politics/jonathan-braun-assault.html
 
