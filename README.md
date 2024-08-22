@@ -11,7 +11,7 @@ https://nytimes.com/2024/08/22/world/canada/canada-freight-trains.html
 https://nytimes.com/athletic/5709577/2024/08/22/niclas-fullkrug-west-ham-striker-michail-antonio/
 
 **Full Transcript of Tim Walz’s Speech at the Democratic Convention**\
-`The Minnesota governor compared the election to a football game, vowing that and he and Vice President Kamala Harris would fight “one yard at time” and “leave it on the field.”`\
+`The Minnesota governor compared the election to a football game, vowing that and he and Vice President Kamala Harris would fight “one yard at a time” and “leave it on the field.”`\
 https://nytimes.com/2024/08/22/us/politics/tim-walz-dnc-speech-transcript.html
 
 **Poise, intelligence and a perfect partner to Winks - what Skipp brings to Leicester**\
