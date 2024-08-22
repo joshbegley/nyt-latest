@@ -1,3 +1,7 @@
+**At the border, Trump goes after Harris on immigration but continues personal insults.**\
+`Donald Trump claimed Kamala Harris lacked the work ethic to handle immigration. He’s been urged by some Republicans to focus more on policy, but he’s defended his continued personal attacks.`\
+https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/at-the-border-trump-goes-after-harris-on-immigration-but-continues-personal-insults
+
 **Michigan Doctor Accused of Recording Nude Images in Hospitals and Changing Rooms**\
 `Dr. Oumair Aejaz recorded women and children in a swimming school’s changing room, the police said. The authorities also say he filmed patients in hospitals.`\
 https://nytimes.com/2024/08/22/us/dr-oumair-aejaz-detroit-charged.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/22/world/europe/interpreter-books-last-samurai.html
 **Rick Pitino has ceremonial sword, bullhorn stolen**\
 `According to a university statement, the theft occurred around 8 p.m. in an office in the athletics department building.`\
 https://nytimes.com/athletic/5717816/2024/08/22/rick-pitino-stolen-sword-bullhorn-st-johns/
-
-**Ons Jabeur withdraws from U.S. Open with shoulder injury**\
-`Ons Jabeur, the 2022 U.`\
-https://nytimes.com/athletic/5717827/2024/08/22/ons-jabeur-us-open-withdrawal-injury/
 
