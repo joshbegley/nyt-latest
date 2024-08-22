@@ -1,3 +1,11 @@
+**Mets takeaways on the rotation: Fixing Jose Quintana, waiting on Christian Scott and Kodai Senga**\
+`If the Mets really wanted to replace Quintana, the next man up would probably be Tylor Megill — who is struggling at Triple A. `\
+https://nytimes.com/athletic/5715290/2024/08/22/mets-jose-quintana-christian-scott/
+
+**Players in Japan could push for free agency change, opening door for earlier moves to MLB**\
+`The Japan Professional Baseball Players Association is challenging norms on two fronts, pushing for free agency changes and NIL rights.`\
+https://nytimes.com/athletic/5714332/2024/08/22/japan-npb-union-free-agency-nil-rights/
+
 **Biden said that talks in Cairo could ‘remove any remaining obstacles,’ but Israel and Hamas are skeptical.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/08/22/world/israel-hamas-iran-gaza-war/biden-said-that-talks-in-cairo-could-remove-any-remaining-obstacles-but-israel-and-hamas-are-skeptical
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/22/us/politics/harris-speech-preview.html
 **It’s Kamala Harris’s Party Now. What’s Different?**\
 `Senator Elizabeth Warren, U.A.W. president Shawn Fain and Chicago mayor Brandon Johnson on the passing of the torch.`\
 https://nytimes.com/2024/08/22/podcasts/its-kamala-harriss-party-now-whats-different.html
-
-**Seeking a New Start in Southern California for Less Than $800,000**\
-`A retired schoolteacher scoured San Diego County for a condo with proximity to three important things: her mother, her grandson and the beach. Here’s where she found it.`\
-https://nytimes.com/interactive/2024/08/22/realestate/socal-home-buying-orange-county.html
-
-**Jennifer Lopez Is Becoming an Elizabeth Taylor for a New Generation**\
-`“I resented my fame,” Taylor said, “until I realized I could use it.”`\
-https://nytimes.com/2024/08/22/opinion/jlo-ben-affleck-divorce.html
 

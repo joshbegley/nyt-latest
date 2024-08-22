@@ -1,3 +1,11 @@
+**Mets takeaways on the rotation: Fixing Jose Quintana, waiting on Christian Scott and Kodai Senga**\
+`If the Mets really wanted to replace Quintana, the next man up would probably be Tylor Megill — who is struggling at Triple A. `\
+https://nytimes.com/athletic/5715290/2024/08/22/mets-jose-quintana-christian-scott/
+
+**Players in Japan could push for free agency change, opening door for earlier moves to MLB**\
+`The Japan Professional Baseball Players Association is challenging norms on two fronts, pushing for free agency changes and NIL rights.`\
+https://nytimes.com/athletic/5714332/2024/08/22/japan-npb-union-free-agency-nil-rights/
+
 **Biden said that talks in Cairo could ‘remove any remaining obstacles,’ but Israel and Hamas are skeptical.**\
 `By Isabel Kershner`\
 https://nytimes.com/live/2024/08/22/world/israel-hamas-iran-gaza-war/biden-said-that-talks-in-cairo-could-remove-any-remaining-obstacles-but-israel-and-hamas-are-skeptical
