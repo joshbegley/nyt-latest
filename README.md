@@ -1,3 +1,11 @@
+**Israel Orders New Evacuations, Forcing Gazans to Flee Again**\
+`As the Israeli military ordered people to leave parts of central and southern Gaza, a surgeon said that hospital workers were asking, “Where can we go, what are we going to do?”`\
+https://nytimes.com/2024/08/22/world/middleeast/gaza-evacuation-israel-war.html
+
+**What I’m reading: A ‘Book of the Century’ I’d Somehow Missed**\
+`“The Last Samurai,” which has nothing to do with the Tom Cruise movie of the same name, is as good as everyone says.`\
+https://nytimes.com/2024/08/22/world/europe/interpreter-books-last-samurai.html
+
 **Rick Pitino has ceremonial sword, bullhorn stolen**\
 `According to a university statement, the theft occurred around 8 p.m. in an office in the athletics department building.`\
 https://nytimes.com/athletic/5717816/2024/08/22/rick-pitino-stolen-sword-bullhorn-st-johns/
@@ -25,12 +33,4 @@ https://nytimes.com/interactive/2024/08/22/us/elections/kamala-harris-donors.htm
 **Kawakami Mailbag, Part 1: The future of Farhan Zaidi, where the Warriors go from here**\
 `Thoughts on what solid steps the Giants can take, which stars the Warriors might target next and the Valkyries' future.`\
 https://nytimes.com/athletic/5715909/2024/08/22/giants-farhan-zaidi-warriors-as-valkyries-kawakami-mailbag/
-
-**Supreme Court Allows Arizona to Enforce, for Now, Law Tightening New Voter Registrations**\
-`But the justices kept blocking a provision that bars already-registered residents from voting by mail or for president until they prove their citizenship.`\
-https://nytimes.com/2024/08/22/us/politics/supreme-court-arizona-voter-registration-law.html
-
-**Can the Democratic Party Reclaim Freedom?**\
-`The third night of the Democratic National Convention was the party’s pitch to be the defender of freedom.`\
-https://nytimes.com/2024/08/22/opinion/ezra-klein-podcast-dnc-digest-3.html
 
