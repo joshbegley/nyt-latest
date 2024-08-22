@@ -1,3 +1,11 @@
+**George A O'Toole Jr**\
+`News about George A O'Toole Jr. Commentary and archival information about George A O'Toole Jr from The New York Times.`\
+https://nytimes.com/topic/george-a-otoole-jr
+
+**Taylor Swift Says She Felt ‘Fear’ and ‘Guilt’ After Cancled Vienna Shows**\
+`The three stops in Austria on the pop star’s Eras Tour were canceled after the authorities discovered a terrorist plot targeting the concerts.`\
+https://nytimes.com/2024/08/21/arts/music/taylor-swift-vienna-eras-tour.html
+
 **Giants crack under the pressure in damaging loss to White Sox: 'We came out flat'**\
 `"(W)e all have to put our heads down and we have to win every game. You can't say that, right? But you've got to think that way," Webb said.`\
 https://nytimes.com/athletic/5715674/2024/08/21/sf-giants-loss-white-sox/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/21/us/georgia-prison-drone-smuggle.html
 **Chargers training camp, Day 21: Justin Herbert dazzles in 'elite' practice**\
 `Herbert has been sharp since returning from a 2 1/2-week absence due to a foot injury. `\
 https://nytimes.com/athletic/5715627/2024/08/21/justin-herbert-chargers-training-camp-elite/
-
-**What we learned from a high-intensity Bills practice week**\
-`The Bills had two fully-padded practices and did a lot of 11-on-11 work.`\
-https://nytimes.com/athletic/5715301/2024/08/21/buffalo-bills-practice-cole-bishop-mike-edwards-tyler-bass/
-
-**Ana Navarro addresses Republican remarks on communism with her own story.**\
-`By Jazmine Ulloa`\
-https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/ana-navarro-addresses-republican-remarks-on-communism-with-her-own-story
 
