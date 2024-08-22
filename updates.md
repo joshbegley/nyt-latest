@@ -1,3 +1,15 @@
+**Courtois announces he will not play for Belgium under Tedesco**\
+`Belgium goalkeeper Thibaut Courtois has announced he will not play for the national team for as long as Domenico Tedesco is manager.`\
+https://nytimes.com/athletic/5717414/2024/08/22/thibaut-courtois-belgium-tedesco/
+
+**Climate Workers Wanted**\
+`A group of federal programs are aimed at helping America’s work force adapt to climate change.`\
+https://nytimes.com/2024/08/22/climate/climate-workers-wanted.html
+
+**Leeds sign Belgian forward Ramazani from Almeria**\
+`Leeds United have completed the signing of Largie Ramazani from Spanish side Almeria for an undisclosed fee, subject to a work permit.`\
+https://nytimes.com/athletic/5717255/2024/08/22/leeds-united-sign-largie-ramazani/
+
 **Venezuela’s Supreme Court, Loyal to Maduro, Rules Him Election Winner**\
 `The court did not share voting data to back up its decision despite demands from Venezuelans and international election observers that the government produce evidence of his victory.`\
 https://nytimes.com/2024/08/22/world/americas/venezuela-supreme-court-maduro-election.html
