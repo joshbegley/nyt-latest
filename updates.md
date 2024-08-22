@@ -1,3 +1,11 @@
+**30-Year Mortgage Rate Dips to 6.46%; Home Sales Rise**\
+`Home buyers this week saw the lowest average rate since early 2023, and existing-home sales rebounded in July. Analysts predict more relief ahead.`\
+https://nytimes.com/2024/08/22/business/economy/mortgage-rates-august.html
+
+**What’s Vexing Donald Trump Now? Kamala Harris’s Looks**\
+`From the vice president’s looks to the “angel” judge at his trial, the former president can’t help commenting on the appearance of others — especially in relation to himself.`\
+https://nytimes.com/2024/08/22/style/trump-harris-style.html
+
 **Silvio Santos, Provocative Brazilian Television Host, Dies at 93**\
 `He was best known for the long-running variety show “Programa Silvio Santos,” on which he charmed his audiences with gimmicks and showcased a range of performers.`\
 https://nytimes.com/2024/08/22/world/americas/silvio-santos-dead.html
