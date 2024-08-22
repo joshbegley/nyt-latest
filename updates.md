@@ -1,3 +1,7 @@
+**Angels extend general manager Perry Minasian**\
+`Minasian has held the role since 2021, and the Angels have yet to have a winning season in that span.`\
+https://nytimes.com/athletic/5717403/2024/08/22/angels-extend-general-manager-perry-minasian-with-multi-year-deal-sources/
+
 **An Ode to Bill Clinton**\
 `Though he has aged, the flashes of the old fire brought back warm memories.`\
 https://nytimes.com/live/2024/08/20/opinion/thepoint/an-ode-to-bill-clinton
