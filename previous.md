@@ -1,3 +1,15 @@
+**Our Reporter on the Biggest Speech of Tim Walz’s Career**\
+`Gov.`\
+https://nytimes.com/video/us/elections/100000009651540/tim-walz-dnc-speech-analysis.html
+
+**Zandvoort circuit breakdown: Tight turns and steep banks define F1's Dutch GP**\
+`The tire-eating circuit pits drivers against a winding course among the sand dunes on the coast of the North Sea.`\
+https://nytimes.com/athletic/5714852/2024/08/22/zandvoort-circuit-dutch-gp-f1/
+
+**Why Too Few Homes Get Built in the U.S.**\
+`We explore why it could take a long time to fix — and what policymakers are doing about it.`\
+https://nytimes.com/2024/08/22/briefing/us-housing-crisis.html
+
 **West Ham keen on PSG midfielder Soler but move depends on sales**\
 `West Ham United are keen on signing Paris Saint-Germain Carlos Soler but any move for the midfielder depends on player sales at the Premier League side.`\
 https://nytimes.com/athletic/5674032/2024/08/22/west-ham-carlos-soler-transfer/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5714783/2024/08/22/minnesota-vikings-josh-mccown-jj
 **Sean Payton needed just 16 passes to know Bo Nix was his quarterback**\
 `The coach detailed the process that led the Broncos to Bo Nix, and the draft-night drama that unfolded before they got their guy.`\
 https://nytimes.com/athletic/5714309/2024/08/22/sean-payton-bo-nix-denver-broncos-draft-week-1-starter/
-
-**Top 5 Yankees stories of the week: Catch up on the most-read NY headlines**\
-`Catch up on the past week by checking out the most popular Yankees and MLB stories.`\
-https://nytimes.com/athletic/5714954/2024/08/22/top-5-yankees-stories-of-the-week-catch-up-on-the-most-read-ny-headlines/
-
-**Seven Browns players to watch in preseason finale vs. Seahawks**\
-`Who are some names you should know ahead of the preseason finale? And which players might be competing for spots on the 53-man roster? `\
-https://nytimes.com/athletic/5715386/2024/08/22/browns-preseason-finale-seahawks/
-
-**The Republican Plan to Challenge a Harris Victory**\
-`How a right-wing takeover of an obscure, unelected board in Georgia could swing the election.`\
-https://nytimes.com/2024/08/22/podcasts/the-daily/georgia-election-board.html
 

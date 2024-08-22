@@ -1,3 +1,15 @@
+**Our Reporter on the Biggest Speech of Tim Walz’s Career**\
+`Gov.`\
+https://nytimes.com/video/us/elections/100000009651540/tim-walz-dnc-speech-analysis.html
+
+**Zandvoort circuit breakdown: Tight turns and steep banks define F1's Dutch GP**\
+`The tire-eating circuit pits drivers against a winding course among the sand dunes on the coast of the North Sea.`\
+https://nytimes.com/athletic/5714852/2024/08/22/zandvoort-circuit-dutch-gp-f1/
+
+**Why Too Few Homes Get Built in the U.S.**\
+`We explore why it could take a long time to fix — and what policymakers are doing about it.`\
+https://nytimes.com/2024/08/22/briefing/us-housing-crisis.html
+
 **West Ham keen on PSG midfielder Soler but move depends on sales**\
 `West Ham United are keen on signing Paris Saint-Germain Carlos Soler but any move for the midfielder depends on player sales at the Premier League side.`\
 https://nytimes.com/athletic/5674032/2024/08/22/west-ham-carlos-soler-transfer/
