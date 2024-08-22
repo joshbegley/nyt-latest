@@ -1,3 +1,7 @@
+**Trump’s Made-Up ‘Kamala Crime Wave’**\
+`The ex-president’s claims about violent crime go beyond even his usual disregard for facts.`\
+https://nytimes.com/2024/08/22/opinion/kamala-harris-trump-crime.html
+
 **At the border, Trump goes after Harris on immigration but continues personal insults.**\
 `Donald Trump claimed Kamala Harris lacked the work ethic to handle immigration. He’s been urged by some Republicans to focus more on policy, but he’s defended his continued personal attacks.`\
 https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/at-the-border-trump-goes-after-harris-on-immigration-but-continues-personal-insults
