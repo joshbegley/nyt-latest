@@ -1,3 +1,19 @@
+**Our Election 2024 Student Conversation Forums**\
+`Starting Sept. 10, we’re inviting teenagers to reflect on their civic and political values, beliefs and identity and share their perspectives on current issues.`\
+https://nytimes.com/2024/08/22/learning/our-election-2024-student-conversation-forums.html
+
+**QB Matthew Stafford fully practices vs. Houston in Texas heat: Rams takeaways**\
+`Stafford competes against the Texans in Thursday's practice, but don't expect key players or key depth players to play Saturday.`\
+https://nytimes.com/athletic/5717180/2024/08/22/la-rams-matthew-stafford-practice-texans/
+
+**Convention Insider: This Union Leader Is a Hug Machine**\
+`Lee Saunders, the president of the American Federation of State, County and Municipal Employees, is in high spirits at a convention where union leaders have been treated well.`\
+https://nytimes.com/2024/08/22/us/politics/lee-saunders-afscme-democratic-convention.html
+
+**Climate Workers Wanted**\
+`A group of federal programs is aimed at helping America’s work force adapt to climate change.`\
+https://nytimes.com/2024/08/22/climate/climate-workers-wanted.html
+
 **An Ode to Bill Clinton**\
 `Though he has aged, the flashes of the old fire brought back warm memories.`\
 https://nytimes.com/live/2024/08/20/opinion/thepoint/an-ode-to-bill-clinton
