@@ -1,3 +1,7 @@
+**What Kamala Harris’s Leadership Means for the Democratic Party**\
+`Less than a month after Democrats changed their nominee in a remarkable political shake-up, Kamala Harris has her party thinking it can win. Astead W. Herndon, a national politics reporter for The New York Times and the host of the politics podcast “The Run-Up,” reports from Chicago.`\
+https://nytimes.com/video/us/elections/100000009641916/the-run-up-dispatch-dnc.html
+
 **Falcons CB A.J. Terrell lands 4-year, $81 million contract extension**\
 `The contract makes Terrell the second highest-paid cornerback in the NFL, just behind the Green Bay Packers' Jaire Alexander.`\
 https://nytimes.com/athletic/5716550/2024/08/22/falcons-aj-terrell-contract/

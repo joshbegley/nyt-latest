@@ -1,3 +1,7 @@
+**What Kamala Harris’s Leadership Means for the Democratic Party**\
+`Less than a month after Democrats changed their nominee in a remarkable political shake-up, Kamala Harris has her party thinking it can win. Astead W. Herndon, a national politics reporter for The New York Times and the host of the politics podcast “The Run-Up,” reports from Chicago.`\
+https://nytimes.com/video/us/elections/100000009641916/the-run-up-dispatch-dnc.html
+
 **Falcons CB A.J. Terrell lands 4-year, $81 million contract extension**\
 `The contract makes Terrell the second highest-paid cornerback in the NFL, just behind the Green Bay Packers' Jaire Alexander.`\
 https://nytimes.com/athletic/5716550/2024/08/22/falcons-aj-terrell-contract/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/22/world/middleeast/red-sea-oil-tanker-missiles.html
 **The Athletic FC: Inside De Ligt's move to United, how Real Madrid built their incredible squad**\
 `Today in TAFC: We explain the reasons and influences behind De Ligt's move to Man Utd. Plus: How Real Madrid have built their squad.`\
 https://nytimes.com/athletic/5716250/2024/08/22/de-ligt-united-real-madrid-building-squad/
-
-**Tracking Tropical Storm Shanshan**\
-`See the likely path and wind arrival times for Shanshan.`\
-https://nytimes.com/interactive/2024/08/22/weather/shanshan-map-path-tracker.html
 
