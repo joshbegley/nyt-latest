@@ -1,3 +1,11 @@
+**End the Meal With Dessert (At Another Restaurant)**\
+`Sometimes restaurant dessert menus can be lacking. Luckily, there’s always a better option not too far away.`\
+https://nytimes.com/2024/08/22/dining/end-the-meal-with-dessert-at-another-restaurant.html
+
+**Missouri Court Halts Deal to Spare Prisoner From Execution**\
+`The State Supreme Court said the trial had to hold a hearing before accepting a deal that would give the man a sentence of life without parole.`\
+https://nytimes.com/2024/08/22/us/missouri-court-marcellus-williams-execution.html
+
 **Yohe: With McGroarty trade, Dubas starts to hit stride**\
 `Dubas made one of his biggest moves since taking control of the Penguins, and it looks like a very good deal for now and the future.`\
 https://nytimes.com/athletic/5717235/2024/08/22/penguins-rutger-mcgroarty-trade-kyle-dubas/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/22/us/politics/beyonce-freedom-kamala-harris.html
 **Second-Largest Diamond Ever Found Is Discovered in Botswana**\
 `The diamond was unearthed using new technology, and miners hope it will bring back luster to a struggling industry.`\
 https://nytimes.com/2024/08/22/world/africa/large-diamond-botswana.html
-
-**11 Ways to Teach the 2024 Election With The New York Times**\
-`Join our election-related forums, create a multimedia project, monitor misinformation, talk to journalists and more.`\
-https://nytimes.com/2024/08/22/learning/2024-election-teaching-resources.html
-
-**Joe Worrall helped give Nottingham Forest fans a reason to care again**\
-`Forest are waving goodbye to a player that provided a unique connection between supporters and their teams. He deserves to be lauded`\
-https://nytimes.com/athletic/5716224/2024/08/22/joe-worrall-nottingham-forest-burnley-departure/
 
