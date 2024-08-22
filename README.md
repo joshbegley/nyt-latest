@@ -1,3 +1,11 @@
+**‘This Is the Convention of the Woman’**\
+`Every night, some of the most famous men in politics seemed to play more of a supporting role.`\
+https://nytimes.com/2024/08/22/us/politics/dnc-harris-obama-clinton-women.html
+
+**Members of ‘Central Park 5’ Say Trump Is Too Dangerous for Second Term**\
+`In a prime-time speech at the Democratic National Convention, four of the five men exonerated in the 1989 assault of a female jogger said Donald J. Trump’s public attacks were devastating.`\
+https://nytimes.com/2024/08/22/nyregion/central-park-5-dnc-trump.html
+
 **How Black women commanded the convention.**\
 `By Maya King`\
 https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/how-black-women-commanded-the-convention
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/22/us/politics/fund-raiser-jan-6-defendants-trump-go
 **Garrison Keillor on Tim Walz, ‘Minnesota Nice’ and Small-Town Appeal**\
 `Mr. Keillor said the vice-presidential candidate, a hunter and a football coach, used authenticity to win his congressional district.`\
 https://nytimes.com/2024/08/22/arts/tim-walz-minnesota-nice-garrison-keillor.html
-
-**Trump’s Made-Up ‘Kamala Crime Wave’**\
-`The ex-president’s claims about violent crime go beyond even his usual disregard for facts.`\
-https://nytimes.com/2024/08/22/opinion/kamala-harris-trump-crime.html
-
-**At the border, Trump goes after Harris on immigration but continues personal insults.**\
-`Donald Trump claimed Kamala Harris lacked the work ethic to handle immigration. He’s been urged by some Republicans to focus more on policy, but he’s defended his continued personal attacks.`\
-https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/at-the-border-trump-goes-after-harris-on-immigration-but-continues-personal-insults
 
