@@ -1,3 +1,7 @@
+**Everton potentially down to 14 fit players with Tarkowski a doubt for Spurs**\
+`Everton manager Sean Dyche has admitted his squad is already “stretched” just a week into the new season, with a fresh injury concern over James Tarkowski potentially leaving them with as few as 14 available first-team players for Saturday’s trip to Tottenham Hotspur.`\
+https://nytimes.com/athletic/5716566/2024/08/22/everton-team-news-tarkowski-branthwaite-injury/
+
 **Until Saturday: Week 0 is here, plus a 12-team Playoff projection**\
 `Welcome to Until Saturday, the five-star college football newsletter: We have games this week and a Playoff bracket prediction.`\
 https://nytimes.com/athletic/5715447/2024/08/22/college-football-week-o-cfp-bracket-until-saturday/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5714067/2024/08/22/nfl-media-questions-tom-brady-ne
 **Sphen, Penguin Whose Gay Love Story Earned Global Fame, Dies**\
 `For six years, Sphen and Magic were devoted partners, adoptive parents and queer icons. After Sphen died this month at age 11, Magic began singing.`\
 https://nytimes.com/2024/08/22/world/australia/sphen-gay-penguin-dead.html
-
-**Raiders undrafted rookies Carter Bradley, Will Putnam fighting hard for a roster spot**\
-`Bradley, the son of former Raiders and current Colts defensive coordinator Gus Bradley, will see extensive action Friday vs. the 49ers.`\
-https://nytimes.com/athletic/5715568/2024/08/22/raiders-udfa-carter-bradley-will-putnam/
 
