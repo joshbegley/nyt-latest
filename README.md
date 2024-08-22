@@ -1,3 +1,11 @@
+**Thursday Briefing**\
+`Hostilities between Israel and Hezbollah.`\
+https://nytimes.com/2024/08/22/briefing/israel-hezbollah-walz.html
+
+**Tim Walz Accepts the V.P. Nomination**\
+`Gov. Tim Walz of Minnesota introduced his family and rallied the crowd to get behind Kamala Harris in “the fourth quarter” of the election.`\
+https://nytimes.com/video/us/elections/100000009651576/tim-walz-accepts-the-vp-nomination.html
+
 **FPL: Which Gameweek 1 disappointments should you keep or sell?**\
 `From Ollie Watkins to Darwin Nunez, Holly Shand explores what to do with players who failed to deliver for you in Gameweek 1`\
 https://nytimes.com/athletic/5712108/2024/08/22/fantasy-premier-league-watkins-nkunku-eze-sell-keep/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5713725/2024/08/22/bruno-guimaraes-newcastle-united
 **Are Spurs set for a rethink in their hunt for a new midfielder?**\
 `Spurs have deemed a dynamic midfielder as a priority for much of this transfer window, but they could decide to settle for what they have`\
 https://nytimes.com/athletic/5705290/2024/08/22/tottenham-midfielder-transfer-window-2/
-
-**How Real Madrid built a super squad: The plan and people behind a new Galactico era**\
-`Kylian Mbappe, Jude Bellingham, Vinicius Jr, Rodrygo - Madrid's squad is packed full of talent. This is how they put it together`\
-https://nytimes.com/athletic/5712413/2024/08/22/real-madrid-mbappe-vinicius-rodrygo-bellingham-perez-ancelotti/
-
-**Rico Lewis has made superb progress but his limited game time is understandable**\
-`The 19-year-old has been a revelation under Pep Guardiola but due to his size and fierce competition for places, his rotation makes sense`\
-https://nytimes.com/athletic/5714399/2024/08/22/rico-lewis-manchester-city-progress/
 
