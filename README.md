@@ -1,3 +1,7 @@
+**Jonathan A Ferrell**\
+`News about Jonathan A Ferrell. Commentary and archival information about Jonathan A Ferrell from The New York Times.`\
+https://nytimes.com/topic/jonathan-a-ferrell
+
 **George A O'Toole Jr**\
 `News about George A O'Toole Jr. Commentary and archival information about George A O'Toole Jr from The New York Times.`\
 https://nytimes.com/topic/george-a-otoole-jr
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5715661/2024/08/21/joey-votto-retirement-reds/
 **Inmates Used Drones to Smuggle Drugs Into Georgia Prisons, U.S. Says**\
 `The authorities charged nearly two dozen people with taking part in schemes over five years beginning in 2019 to deliver drugs and other contraband to inmates in Georgia state prisons.`\
 https://nytimes.com/2024/08/21/us/georgia-prison-drone-smuggle.html
-
-**Chargers training camp, Day 21: Justin Herbert dazzles in 'elite' practice**\
-`Herbert has been sharp since returning from a 2 1/2-week absence due to a foot injury. `\
-https://nytimes.com/athletic/5715627/2024/08/21/justin-herbert-chargers-training-camp-elite/
 
