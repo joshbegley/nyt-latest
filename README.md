@@ -1,3 +1,7 @@
+**Ukraine Cites Modi Visit as the Fruit of an Emerging Diplomatic Push**\
+`Officials say efforts to engage neutral nations like India along with the military incursion into Russia will strengthen Ukraine’s hand in any peace talks.`\
+https://nytimes.com/2024/08/22/world/europe/ukraine-india-modi-diplomacy.html
+
 **Friday Briefing: A Brutal Reality for Women in India**\
 `Plus, saying goodbye to a penguin and an icon.`\
 https://nytimes.com/2024/08/22/briefing/india-violence-women-mpox-thailand-kamala-harris.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/22/dining/dessert-nyc-bars-restaurants.html
 **Missouri Court Halts Deal to Spare Prisoner From Execution**\
 `The State Supreme Court said the trial had to hold a hearing before accepting a deal that would give the man a sentence of life without parole.`\
 https://nytimes.com/2024/08/22/us/missouri-court-marcellus-williams-execution.html
-
-**Yohe: With McGroarty trade, Dubas starts to hit stride**\
-`Dubas made one of his biggest moves since taking control of the Penguins, and it looks like a very good deal for now and the future.`\
-https://nytimes.com/athletic/5717235/2024/08/22/penguins-rutger-mcgroarty-trade-kyle-dubas/
 
