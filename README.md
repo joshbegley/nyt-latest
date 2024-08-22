@@ -24,7 +24,7 @@ https://nytimes.com/2024/08/22/us/veterans-walz-vance-record.html
 
 **End the Meal With Dessert (At Another Restaurant)**\
 `Sometimes restaurant dessert menus can be lacking. Luckily, there’s always a better option not too far away.`\
-https://nytimes.com/2024/08/22/dining/end-the-meal-with-dessert-at-another-restaurant.html
+https://nytimes.com/2024/08/22/dining/dessert-nyc-bars-restaurants.html
 
 **Missouri Court Halts Deal to Spare Prisoner From Execution**\
 `The State Supreme Court said the trial had to hold a hearing before accepting a deal that would give the man a sentence of life without parole.`\
