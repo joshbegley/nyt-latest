@@ -1,3 +1,7 @@
+**Why These 15 Young Voters Aren't Rushing to Kamala Harris Like Their Peers**\
+`Participants discuss what it would take for Harris or Trump to win their votes.`\
+https://nytimes.com/interactive/2024/08/22/opinion/young-voters-focus-group.html
+
 **Thursday Briefing**\
 `Hostilities between Israel and Hezbollah.`\
 https://nytimes.com/2024/08/22/briefing/israel-hezbollah-walz.html

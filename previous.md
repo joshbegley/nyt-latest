@@ -1,3 +1,7 @@
+**Why These 15 Young Voters Aren't Rushing to Kamala Harris Like Their Peers**\
+`Participants discuss what it would take for Harris or Trump to win their votes.`\
+https://nytimes.com/interactive/2024/08/22/opinion/young-voters-focus-group.html
+
 **Thursday Briefing**\
 `Hostilities between Israel and Hezbollah.`\
 https://nytimes.com/2024/08/22/briefing/israel-hezbollah-walz.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5713923/2024/08/22/oliver-skipp-leicester-transfer/
 **Captaincy emboldens Bruno Guimaraes - and lifts all of Newcastle United**\
 `Handing the talismanic midfielder the armband makes sense - Eddie Howe has rewarded loyalty and Guimaraes' growing maturity`\
 https://nytimes.com/athletic/5713725/2024/08/22/bruno-guimaraes-newcastle-united-captain/
-
-**Are Spurs set for a rethink in their hunt for a new midfielder?**\
-`Spurs have deemed a dynamic midfielder as a priority for much of this transfer window, but they could decide to settle for what they have`\
-https://nytimes.com/athletic/5705290/2024/08/22/tottenham-midfielder-transfer-window-2/
 
