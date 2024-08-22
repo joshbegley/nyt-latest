@@ -1,3 +1,7 @@
+**The Meaning Behind Beyoncé’s ‘Freedom,’ the Harris Campaign Anthem**\
+`The song is a driving force behind Vice President Kamala Harris’s latest campaign ad. But the song’s origins offer deeper significance for a candidate hoping to make history.`\
+https://nytimes.com/2024/08/22/us/politics/beyonce-freedom-kamala-harris.html
+
 **The deeper meaning behind Beyoncé’s ‘Freedom,’ the Harris campaign anthem.**\
 `By Salamishah Tillet`\
 https://nytimes.com/2024/08/22/us/politics/beyonce-freedom-kamala-harris.html
