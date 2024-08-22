@@ -1,3 +1,11 @@
+**Oprah Winfrey Speaks at D.N.C., Revealing Short Film on the American Dream**\
+`The appearance was kept under wraps until the talk-show host turned billionaire media mogul stepped onstage, to deafening cheers from her hometown crowd.`\
+https://nytimes.com/2024/08/21/us/politics/oprah-winfrey-kamala-harris-dnc.html
+
+**Rosecrans: Joey Votto never exceeded his expectations, but was everything baseball needed**\
+`Votto cemented himself as one of the most memorable and accomplished players in the history of the Reds.`\
+https://nytimes.com/athletic/5715840/2024/08/21/joey-votto-retirement-rosecrans/
+
 **Bill Clinton Says Trump Is About ‘Me, Myself and I’**\
 `Former President Bill Clinton portrayed Donald J. Trump as a candidate who was only concerned about himself, and not about voters.`\
 https://nytimes.com/video/us/elections/100000009651374/dnc-bill-clinton.html
