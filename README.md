@@ -1,3 +1,11 @@
+**Watford in advanced talks to sign Antwerp's Dwomoh**\
+`Watford are in advanced talks with Royal Antwerp over the signing of Pierre Dwomoh.`\
+https://nytimes.com/athletic/5716358/2024/08/22/pierre-dwomoh-watford-transfers/
+
+**Man United's Oyedele set for Legia Warsaw transfer**\
+`Manchester United midfielder Maxi Oyedele is set to join Polish club Legia Warsaw on a permanent basis.`\
+https://nytimes.com/athletic/5716323/2024/08/22/maxi-oyedele-man-united-transfers/
+
 **New NWSL CBA was 10 months in the making: 'Caffeine was having no effect on me'**\
 `NWSL commissioner Jessica Berman initiated renegotiations early after the 2023 Women's World Cup.`\
 https://nytimes.com/athletic/5715418/2024/08/22/nwsl-cba-players-union/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/22/movies/strange-darling-review.html
 **Girona in advanced talks to sign Watford's Yaser Asprilla**\
 `Girona are confident of progressing with a deal to sign Watford&#8217;s Yaser Asprilla with clubs now engaged in talks.`\
 https://nytimes.com/athletic/5716291/2024/08/22/girona-transfers-watford-yaser-asprilla/
-
-**‘I’ll Be Your Mirror’ Review: A Mourning Journey**\
-`This visually elegant indie follows a soft-spoken Swiss widow visiting Japan.`\
-https://nytimes.com/2024/08/22/movies/ill-be-your-mirror-review.html
-
-**‘Mountains’ Review: Razing Houses, Building a Future**\
-`This feature debut from Monica Sorelle observes the tensions in an immigrant family in the Little Haiti neighborhood of Miami.`\
-https://nytimes.com/2024/08/22/movies/mountains-review.html
 
