@@ -1,3 +1,7 @@
+**Yankees’ Alex Verdugo addresses brutal slump: ‘Going through (expletive)’**\
+`Verdugo’s long-running struggles appear to be weighing on him as much as ever.`\
+https://nytimes.com/athletic/5717988/2024/08/22/alex-verdugo-yankees-slump/
+
 **Jury in New Orleans Awards $1 Million to Teen Raped by Police Officer**\
 `The officer, Rodney Vicknair, who died in prison this year, met the girl while taking her to a hospital after she was sexually assaulted by another man, prosecutors said.`\
 https://nytimes.com/2024/08/22/us/new-orleans-officer-sexual-assault.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5715439/2024/08/22/leicester-mls-fuchs-ancelotti-ch
 **Crypto Lobbyist Charged With Breaking Campaign Finance Rules**\
 `The charges against Michelle Bond, the former head of a crypto industry trade group, are part of the continuing legal fallout from the collapse of the FTX crypto exchange.`\
 https://nytimes.com/2024/08/22/technology/ftx-crypto-campaign-finance.html
-
-**Tracking Tropical Storm Hone**\
-`See the likely path and wind arrival times for Hone.`\
-https://nytimes.com/interactive/2024/08/22/weather/hone-map-path-tracker.html
 
