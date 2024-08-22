@@ -1,3 +1,7 @@
+**Gus Walz Let It All Out During His Father’s Convention Speech**\
+`The 17-year-old’s tearful support for his father, Gov. Tim Walz, inspired a hashtag (#ThatsMyDad) and partisan bickering on social media.`\
+https://nytimes.com/2024/08/22/style/gus-walz-dnc-social-media.html
+
 **Second Memphis Officer to Change Plea in Death of Tyre Nichols**\
 `Court documents show that the former officer is set to change his not-guilty plea to federal charges, less than three weeks before he was set to face trial.`\
 https://nytimes.com/2024/08/22/us/tyre-nichols-officer-plea.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/22/us/elections/kennedy-dropout-polls.html
 **MLB bullpen report: A closer timeshare in Tampa Bay, Lucas Erceg flexing in Kansas City and more**\
 `Greg Jewett touches on all the latest MLB bullpen developments, from a new closer timeshare in Tampa Bay to Lucas Erceg rising fast in KC.`\
 https://nytimes.com/athletic/5717451/2024/08/22/mlb-bullpen-report-fantasy-baseball-saves-lucas-erceg/
-
-**Worrall completes Burnley move**\
-`Joe Worrall has completed his move from Nottingham Forest to Burnley for an undisclosed fee.`\
-https://nytimes.com/athletic/5716511/2024/08/22/joe-worrall-burnley-forest-transfer/
 
