@@ -1,3 +1,11 @@
+**Quotation of the Day: For China’s Road Trip Heroine, A Bold Step on a New Journey**\
+`Quotation of the Day for Thursday, August 22, 2024.`\
+https://nytimes.com/2024/08/22/pageoneplus/quotation-of-the-day-for-chinas-road-trip-heroine-a-bold-step-on-a-new-journey.html
+
+**Corrections: Aug. 22, 2024**\
+`Corrections that appeared in print on Thursday, Aug. 22, 2024.`\
+https://nytimes.com/2024/08/22/pageoneplus/corrections-aug-22-2024.html
+
 **Word of the Day: resonate**\
 `This word has appeared in 434 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/22/learning/word-of-the-day-resonate.html
