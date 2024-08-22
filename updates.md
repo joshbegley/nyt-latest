@@ -1,3 +1,11 @@
+**Jets dominate, then taunt Giants: 'They can do that. They won on the day'**\
+`The intensity the Giants displayed in practices with the Lions earlier in camp was mostly absent from Wednesday's practice with the Jets.`\
+https://nytimes.com/athletic/5715797/2024/08/21/new-york-giants-jets-practice-taunt/
+
+**Jeffrey A Sinclair**\
+`News about Jeffrey A Sinclair. Commentary and archival information about Jeffrey A Sinclair from The New York Times.`\
+https://nytimes.com/topic/jeffrey-a-sinclair
+
 **The War in Gaza Finally Gets a Moment on the Convention Stage**\
 `But it was about the suffering of the hostages, and didn’t go much further.`\
 https://nytimes.com/live/2024/08/20/opinion/thepoint/gaza-hostage-parents-convention
