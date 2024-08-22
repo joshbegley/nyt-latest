@@ -1,3 +1,11 @@
+**Harris Leans on Memory of Her Mother, as She Reintroduces Herself**\
+`The definitional power of parenthood has been an unofficial theme of the Democratic convention this week. And Shyamala Gopalan Harris, the vice president’s mother, is a main character.`\
+https://nytimes.com/2024/08/22/us/politics/kamala-harris-mother.html
+
+**Peter Dykstra, Pioneering CNN Climate Journalist, Dies at 67**\
+`A former Greenpeace official, he drew on his command of environmental subjects to persuade his bosses at the cable channel to cover climate issues.`\
+https://nytimes.com/2024/08/22/climate/peter-dysktra-dead.html
+
 **Ukraine Cites Modi Visit as the Fruit of an Emerging Diplomatic Push**\
 `Officials say efforts to engage neutral nations like India along with the military incursion into Russia will strengthen Ukraine’s hand in any peace talks.`\
 https://nytimes.com/2024/08/22/world/europe/ukraine-india-modi-diplomacy.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/22/nyregion/columbia-medical-school-donation-vagelos
 **Veterans Say Attacks on Candidates’ Service Records Are a Turnoff**\
 `Many veterans say that disparaging an opponent’s military service, as JD Vance has done with Tim Walz, is unhelpful, and they want to hear about current issues instead.`\
 https://nytimes.com/2024/08/22/us/veterans-walz-vance-record.html
-
-**End the Meal With Dessert (At Another Restaurant)**\
-`Sometimes restaurant dessert menus can be lacking. Luckily, there’s always a better option not too far away.`\
-https://nytimes.com/2024/08/22/dining/dessert-nyc-bars-restaurants.html
-
-**Missouri Court Halts Deal to Spare Prisoner From Execution**\
-`The State Supreme Court said the trial had to hold a hearing before accepting a deal that would give the man a sentence of life without parole.`\
-https://nytimes.com/2024/08/22/us/missouri-court-marcellus-williams-execution.html
 
