@@ -1,3 +1,11 @@
+**What to expect on the convention’s last night.**\
+`By Adam Nagourney`\
+https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/what-to-expect-on-the-conventions-last-night
+
+**D.N.C. Live Updates: Kamala Harris to Seal Her Nomination With High-Stakes Speech**\
+`Her acceptance speech will close the Democratic convention in Chicago, capping a week of the party’s biggest names making the case for Ms. Harris and her running mate, Tim Walz.`\
+https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news
+
 **Dynasty league deep sleepers: In search of the next De'Von Achane and Puka Nacua**\
 `Jeff Haverlack goes through his favorite high-upside targets going outside the first round of 2024 dynasty league rookie drafts.`\
 https://nytimes.com/athletic/5714666/2024/08/22/dynasty-league-deep-sleepers-fantasy-football-2024/

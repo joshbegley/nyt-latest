@@ -1,3 +1,11 @@
+**What to expect on the convention’s last night.**\
+`By Adam Nagourney`\
+https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/what-to-expect-on-the-conventions-last-night
+
+**D.N.C. Live Updates: Kamala Harris to Seal Her Nomination With High-Stakes Speech**\
+`Her acceptance speech will close the Democratic convention in Chicago, capping a week of the party’s biggest names making the case for Ms. Harris and her running mate, Tim Walz.`\
+https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news
+
 **Dynasty league deep sleepers: In search of the next De'Von Achane and Puka Nacua**\
 `Jeff Haverlack goes through his favorite high-upside targets going outside the first round of 2024 dynasty league rookie drafts.`\
 https://nytimes.com/athletic/5714666/2024/08/22/dynasty-league-deep-sleepers-fantasy-football-2024/
@@ -25,12 +33,4 @@ https://nytimes.com/live/2024/08/22/world/israel-hamas-iran-gaza-war
 **Babe Ruth's 'called shot' jersey could break auction records. Experts are mixed on its authenticity**\
 `The jersey is expected to become the most expensive game-worn sports memorabilia in history, but authenticating it has been somewhat tricky.`\
 https://nytimes.com/athletic/5712554/2024/08/22/babe-ruths-called-shot-jersey-auction/
-
-**SEC win projections, best bets: Georgia is the top dog, but how will Texas and OU adapt?**\
-`Austin Mock's projection model looks at the SEC and has win totals and conference title chances for all 16 teams in the league.`\
-https://nytimes.com/athletic/5714760/2024/08/22/sec-win-projections-best-bets/
-
-**Sevilla set to sign Brighton's Valentin Barco in loan transfer**\
-`Sevilla are negotiating a deal to sign Brighton defender Valentin Barco on loan.`\
-https://nytimes.com/athletic/5713816/2024/08/22/valentin-barco-loan-transfer-sevilla-brighton/
 
