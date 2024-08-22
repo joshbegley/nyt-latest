@@ -1,3 +1,11 @@
+**Fund-Raiser for Jan. 6 Defendants Will Be Held at Trump’s Golf Club**\
+`Mr. Trump is said to not be attending the event, although an invitation lists him as an “invited guest speaker.” It will be held two months before Election Day.`\
+https://nytimes.com/2024/08/22/us/politics/fund-raiser-jan-6-defendants-trump-golf-club.html
+
+**Garrison Keillor on Tim Walz, ‘Minnesota Nice’ and Small-Town Appeal**\
+`Mr. Keillor said the vice-presidential candidate, a hunter and a football coach, used authenticity to win his congressional district.`\
+https://nytimes.com/2024/08/22/arts/tim-walz-minnesota-nice-garrison-keillor.html
+
 **Trump’s Made-Up ‘Kamala Crime Wave’**\
 `The ex-president’s claims about violent crime go beyond even his usual disregard for facts.`\
 https://nytimes.com/2024/08/22/opinion/kamala-harris-trump-crime.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/22/us/new-orleans-officer-sexual-assault.html
 **The Biggest Speech of Kamala Harris’s Life**\
 `Also, Canada’s rail shutdown could disrupt the U.S. economy. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/08/22/briefing/harris-convention-speech-mpox-case-thailand.html
-
-**Israel Orders New Evacuations, Forcing Gazans to Flee Again**\
-`As the Israeli military ordered people to leave parts of central and southern Gaza, a surgeon said that hospital workers were asking, “Where can we go, what are we going to do?”`\
-https://nytimes.com/2024/08/22/world/middleeast/gaza-evacuation-israel-war.html
-
-**What I’m reading: A ‘Book of the Century’ I’d Somehow Missed**\
-`“The Last Samurai,” which has nothing to do with the Tom Cruise movie of the same name, is as good as everyone says.`\
-https://nytimes.com/2024/08/22/world/europe/interpreter-books-last-samurai.html
 
