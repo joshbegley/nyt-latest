@@ -1,3 +1,7 @@
+**Convention Insider: Jasmine Crockett Would Like to Introduce Herself**\
+`The representative from Texas, who overcame a “pit in my stomach” onstage this week, is emerging as an influential surrogate for the Harris campaign.`\
+https://nytimes.com/2024/08/22/us/politics/dnc-jasmine-crockett-speech.html
+
 **The Four Points That Harris’s Speech Needs to Emphasize**\
 `With millions of Americans listening to her for the first time, Harris can’t miss the opportunity.`\
 https://nytimes.com/live/2024/08/20/opinion/thepoint/harris-speech-four-points
