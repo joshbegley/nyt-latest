@@ -1,3 +1,15 @@
+**Russia Opens New Cases Against Journalists Who Covered Ukrainian Incursion**\
+`Moscow said it was investigating three more reporters, including a CNN correspondent, who crossed into Russian territory to cover the fighting.`\
+https://nytimes.com/2024/08/22/world/europe/russia-journalists-ukraine-incursion.html
+
+**Harris Leans on Memory of Her Mother, as She Reintroduces Herself**\
+`The definitional power of parenthood has been an unofficial theme of the Democratic convention this week. And Shyamala Gopalan Harris, the vice president’s mother, is a main character.`\
+https://nytimes.com/2024/08/22/us/politics/kamala-harris-mother.html
+
+**Peter Dykstra, Pioneering CNN Climate Journalist, Dies at 67**\
+`A former Greenpeace official, he drew on his command of environmental subjects to persuade his bosses at the cable channel to cover climate issues.`\
+https://nytimes.com/2024/08/22/climate/peter-dysktra-dead.html
+
 **Ukraine Cites Modi Visit as the Fruit of an Emerging Diplomatic Push**\
 `Officials say efforts to engage neutral nations like India along with the military incursion into Russia will strengthen Ukraine’s hand in any peace talks.`\
 https://nytimes.com/2024/08/22/world/europe/ukraine-india-modi-diplomacy.html
