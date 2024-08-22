@@ -1,3 +1,11 @@
+**In a Likely Overture to China, Nepal Lifts Ban on TikTok**\
+`The move signaled that Nepal’s new prime minister, who has cultivated ties with China, would continue on that path.`\
+https://nytimes.com/2024/08/22/world/asia/nepal-tiktok-china.html
+
+**'We got dogs': Packers defensive front comes to play in joint practice against Ravens**\
+`Green Bay successfully got through two joint practices this summer against the Broncos and Ravens without any fights.`\
+https://nytimes.com/athletic/5717673/2024/08/22/packers-defense-joint-practice-ravens/
+
 **Fund-Raiser for Jan. 6 Defendants Will Be Held at Trump’s Golf Club**\
 `Mr. Trump is said to not be attending the event, although an invitation lists him as an “invited guest speaker.” It will be held two months before Election Day.`\
 https://nytimes.com/2024/08/22/us/politics/fund-raiser-jan-6-defendants-trump-golf-club.html
