@@ -1,3 +1,7 @@
+**Word of the Day: resonate**\
+`This word has appeared in 434 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/22/learning/word-of-the-day-resonate.html
+
 **'We needed that': Nolan Arenado's walk-off grand slam snaps Cardinals' losing skid**\
 `Arenado had one thought when he strode to the plate with the bases loaded in the bottom of the 10th: "Just get the ball to the outfield."`\
 https://nytimes.com/athletic/5716092/2024/08/22/nolan-arenado-walk-off-grand-slam-cardinals-brewers/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/22/briefing/israel-hezbollah-walz.html
 **Tim Walz Accepts the V.P. Nomination**\
 `Gov. Tim Walz of Minnesota introduced his family and rallied the crowd to get behind Kamala Harris in “the fourth quarter” of the election.`\
 https://nytimes.com/video/us/elections/100000009651576/tim-walz-accepts-the-vp-nomination.html
-
-**FPL: Which Gameweek 1 disappointments should you keep or sell?**\
-`From Ollie Watkins to Darwin Nunez, Holly Shand explores what to do with players who failed to deliver for you in Gameweek 1`\
-https://nytimes.com/athletic/5712108/2024/08/22/fantasy-premier-league-watkins-nkunku-eze-sell-keep/
 
