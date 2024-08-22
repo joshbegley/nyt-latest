@@ -1,3 +1,19 @@
+**Joe Worrall helped give Nottingham Forest fans a reason to care again**\
+`Forest are waving goodbye to a player that provided a unique connection between supporters and their teams. He deserves to be lauded`\
+https://nytimes.com/athletic/5716224/2024/08/22/joe-worrall-nottingham-forest-burnley-departure/
+
+**Kennedy’s Decision Is Unlikely to Change the Race Dramatically**\
+`Robert F. Kennedy Jr.’s support had started to fall long before Kamala Harris stepped in as the Democratic nominee, and in polls his backers say they are less likely to vote.`\
+https://nytimes.com/2024/08/22/us/elections/kennedy-dropout-polls.html
+
+**MLB bullpen report: A closer timeshare in Tampa Bay, Lucas Erceg flexing in Kansas City and more**\
+`Greg Jewett touches on all the latest MLB bullpen developments, from a new closer timeshare in Tampa Bay to Lucas Erceg rising fast in KC.`\
+https://nytimes.com/athletic/5717451/2024/08/22/mlb-bullpen-report-fantasy-baseball-saves-lucas-erceg/
+
+**Worrall completes Burnley move**\
+`Joe Worrall has completed his move from Nottingham Forest to Burnley for an undisclosed fee.`\
+https://nytimes.com/athletic/5716511/2024/08/22/joe-worrall-burnley-forest-transfer/
+
 **Angels extend general manager Perry Minasian with multi-year deal: Sources**\
 `Minasian has held the role since 2021, and the Angels have yet to have a winning season in that span.`\
 https://nytimes.com/athletic/5717403/2024/08/22/angels-extend-general-manager-perry-minasian-with-multi-year-deal-sources/
