@@ -1,3 +1,7 @@
+**An Ode to Bill Clinton**\
+`Though he has aged, the flashes of the old fire brought back warm memories.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/an-ode-to-bill-clinton
+
 **The Hidden Grammatical Reason That ‘Weird’ Works**\
 `The surprising story behind the word that shook up American politics`\
 https://nytimes.com/2024/08/22/opinion/the-hidden-grammatical-reason-that-weird-works.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/22/world/americas/venezuela-supreme-court-maduro-ele
 **Kamala Harris’s Political Pragmatism**\
 `Kamala Harris may be offering the nation a future defined by the fine print, focused on accomplishing what can be done now.`\
 https://nytimes.com/video/us/elections/100000009642241/kamala-harriss-political-pragmatism.html
-
-**Urgent Calls for Action on the Climate**\
-`Readers discuss a science article about potentially irreversible changes. Also: Elect a felon?; my dad and Coach Walz; revised jobs report; key to happiness.`\
-https://nytimes.com/2024/08/22/opinion/letters/action-on-climate.html
 
