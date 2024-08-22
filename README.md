@@ -1,3 +1,7 @@
+**NHL trade grades: Jets, Penguins swap top prospects Rutger McGroarty, Brayden Yager**\
+`Both players are strong pro prospects with similar profiles in terms of two-way play and offensive upside.`\
+https://nytimes.com/athletic/5717181/2024/08/22/rutger-mcgroarty-brayden-yager-trade-jets-penguins-nhl/
+
 **Which Democrats Landed Coveted Slots for the Final Night of the D.N.C.?**\
 `Vice President Kamala Harris will accept the party’s nomination for president to close out the convention in Chicago.`\
 https://nytimes.com/2024/08/22/us/politics/dnc-speaker-schedule-final-night.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5716664/2024/08/22/seattle-mariners-expected-to-fir
 **Jets trade Rutger McGroarty to Penguins**\
 `Winnipeg drafted McGroarty with the No. 14 pick in 2022.`\
 https://nytimes.com/athletic/5717066/2024/08/22/rutger-mcgroarty-trade-jets-penguins/
-
-**Pro-Palestinian Democrats organize last-minute push to speak on the convention stage.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/dnc-pro-palestinian-protests
 
