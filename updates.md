@@ -1,3 +1,7 @@
+**Venezuela’s Supreme Court, Loyal to Maduro, Rules Him Election Winner**\
+`The court did not share voting data to back up its decision despite demands from Venezuelans and international election observers that the government produce evidence of his victory.`\
+https://nytimes.com/2024/08/22/world/americas/venezuela-supreme-court-maduro-election.html
+
 **Kamala Harris’s Political Pragmatism**\
 `Kamala Harris may be offering the nation a future defined by the fine print, focused on accomplishing what can be done now.`\
 https://nytimes.com/video/us/elections/100000009642241/kamala-harriss-political-pragmatism.html
