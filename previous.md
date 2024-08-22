@@ -1,5 +1,9 @@
+**Rick Pitino has ceremonial sword, bullhorn stolen**\
+`According to a university statement, the theft occurred around 8 p.m. in an office in the athletics department building.`\
+https://nytimes.com/athletic/5717816/2024/08/22/rick-pitino-stolen-sword-bullhorn-st-johns/
+
 **Ons Jabeur withdraws from U.S. Open with shoulder injury**\
-`Ons Jabeur, the 2022 US Open finalist and former world No 2, has withdrawn from this year’s tournament with a shoulder injury.`\
+`Ons Jabeur, the 2022 U.`\
 https://nytimes.com/athletic/5717827/2024/08/22/ons-jabeur-us-open-withdrawal-injury/
 
 **Christian Fuchs on 'special' Leicester City and 'the toughest league in the world'**\
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/22/us/politics/supreme-court-arizona-voter-registrat
 **Can the Democratic Party Reclaim Freedom?**\
 `The third night of the Democratic National Convention was the party’s pitch to be the defender of freedom.`\
 https://nytimes.com/2024/08/22/opinion/ezra-klein-podcast-dnc-digest-3.html
-
-**Trading Jahan Dotson shows rebuilding Commanders aren't waiting for a miracle**\
-`General manager Adam Peters and company are focused on bringing in the right pieces to fill out Washington's roster. `\
-https://nytimes.com/athletic/5717650/2024/08/22/commanders-jahan-dotson-trade-eagles/
 

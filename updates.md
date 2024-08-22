@@ -1,3 +1,11 @@
+**Rick Pitino has ceremonial sword, bullhorn stolen**\
+`According to a university statement, the theft occurred around 8 p.m. in an office in the athletics department building.`\
+https://nytimes.com/athletic/5717816/2024/08/22/rick-pitino-stolen-sword-bullhorn-st-johns/
+
+**Ons Jabeur withdraws from U.S. Open with shoulder injury**\
+`Ons Jabeur, the 2022 U.`\
+https://nytimes.com/athletic/5717827/2024/08/22/ons-jabeur-us-open-withdrawal-injury/
+
 **Ons Jabeur withdraws from U.S. Open with shoulder injury**\
 `Ons Jabeur, the 2022 US Open finalist and former world No 2, has withdrawn from this year’s tournament with a shoulder injury.`\
 https://nytimes.com/athletic/5717827/2024/08/22/ons-jabeur-us-open-withdrawal-injury/
