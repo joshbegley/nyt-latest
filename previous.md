@@ -1,3 +1,15 @@
+**Tim Walz Gets His Glow-Up**\
+`The vice-presidential candidate steps out of his flannels and into the spotlight.`\
+https://nytimes.com/2024/08/22/style/tim-walz-dnc.html
+
+**Despite Trump’s Accusations, Democrats Have Largely Avoided Medicare for All**\
+`The policy has played little role at the Democratic National Convention. Republicans continue to suggest Vice President Kamala Harris would pursue it as president.`\
+https://nytimes.com/2024/08/22/us/politics/harris-medicare-for-all.html
+
+**Case against Hall of Famer Lawrence Taylor closed**\
+`Authorities arrested Taylor in July for failing to report his residence change as a registered sex offender.`\
+https://nytimes.com/athletic/5716634/2024/08/22/lawrence-taylor-arrest-case-closed/
+
 **For Harris, the Senate Was a Springboard and a Chance to Form Alliances**\
 `The vice president forged important relationships in her four years on Capitol Hill, but she cast some of her most significant votes after moving to the White House.`\
 https://nytimes.com/2024/08/22/us/politics/kamala-harris-senate.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5716656/2024/08/22/stephen-nedoroscik-dancing-with-
 **The Windup: Why Joey Votto called it a career**\
 `Welcome to The Windup, The Athletic's daily MLB newsletter. `\
 https://nytimes.com/athletic/5716820/2024/08/22/joey-votto-retire-reds-player-height-mlb-the-windup/
-
-**John Sterling may return to call Yankees postseason**\
-`This week, Sterling made a brief appearance in the Yankees booth, teaming up with analyst Suzyn Waldman to call a few innings.`\
-https://nytimes.com/athletic/5716826/2024/08/22/john-sterling-yankees-broadcast-postseason/
-
-**Convention Insider: The Unexpected Reappearance of John Edwards**\
-`Mr. Edwards was once a rising star, but his political career evaporated amid scandal. And yet, there he was, reconnecting with old associates at the Democratic convention.`\
-https://nytimes.com/2024/08/22/us/elections/john-edwards-dnc.html
-
-**Leicester agree fee with Palace for Ayew**\
-`Leicester City have agreed a fee with Crystal Palace for striker Jordan Ayew.`\
-https://nytimes.com/athletic/5700254/2024/08/22/jordan-ayew-leicester-transfer/
 
