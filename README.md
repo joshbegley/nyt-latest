@@ -1,3 +1,11 @@
+**Michigan Doctor Accused of Recording Nude Images in Hospitals and Changing Rooms**\
+`Dr. Oumair Aejaz recorded women and children in a swimming school’s changing room, the police said. The authorities also say he filmed patients in hospitals.`\
+https://nytimes.com/2024/08/22/us/dr-oumair-aejaz-detroit-charged.html
+
+**Convention Insider: Bernie Sanders Is in on the Joke**\
+`Mr. Sanders, the curmudgeonly senator from Vermont, is exuding something like optimism about the future of the progressive movement.`\
+https://nytimes.com/2024/08/22/us/politics/bernie-sanders-dnc.html
+
 **Yankees’ Alex Verdugo addresses brutal slump: ‘Going through (expletive)’**\
 `Verdugo’s long-running struggles appear to be weighing on him as much as ever.`\
 https://nytimes.com/athletic/5717988/2024/08/22/alex-verdugo-yankees-slump/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5717816/2024/08/22/rick-pitino-stolen-sword-bullhor
 **Ons Jabeur withdraws from U.S. Open with shoulder injury**\
 `Ons Jabeur, the 2022 U.`\
 https://nytimes.com/athletic/5717827/2024/08/22/ons-jabeur-us-open-withdrawal-injury/
-
-**Christian Fuchs on 'special' Leicester City and 'the toughest league in the world'**\
-`A Premier League title-winner with Leicester City, Fuchs is now honing his craft as an assistant with Charlotte FC in MLS`\
-https://nytimes.com/athletic/5715439/2024/08/22/leicester-mls-fuchs-ancelotti-charlotte/
-
-**Crypto Lobbyist Charged With Breaking Campaign Finance Rules**\
-`The charges against Michelle Bond, the former head of a crypto industry trade group, are part of the continuing legal fallout from the collapse of the FTX crypto exchange.`\
-https://nytimes.com/2024/08/22/technology/ftx-crypto-campaign-finance.html
 
