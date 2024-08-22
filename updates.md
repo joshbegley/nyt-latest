@@ -1,3 +1,7 @@
+**Mindy Kaling Goes From ‘Cooking With Kamala’ to Hosting Her Convention**\
+`Ms. Kaling, like Vice President Kamala Harris, is Indian American. They once cooked masala dosa together in a 2019 YouTube video.`\
+https://nytimes.com/2024/08/21/us/politics/mindy-kaling-dnc-host.html
+
 **Parents of Gaza Hostage Make Somber Plea for Middle East Peace**\
 `Jon Polin and Rachel Goldberg, whose 23-year-old son is being held by Hamas, told Democratic convention attendees that there was a “surplus of agony” in the war in Gaza.`\
 https://nytimes.com/2024/08/21/us/politics/hersh-goldberg-polin-gaza-hostage.html

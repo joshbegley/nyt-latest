@@ -1,3 +1,7 @@
+**Mindy Kaling Goes From ‘Cooking With Kamala’ to Hosting Her Convention**\
+`Ms. Kaling, like Vice President Kamala Harris, is Indian American. They once cooked masala dosa together in a 2019 YouTube video.`\
+https://nytimes.com/2024/08/21/us/politics/mindy-kaling-dnc-host.html
+
 **Parents of Gaza Hostage Make Somber Plea for Middle East Peace**\
 `Jon Polin and Rachel Goldberg, whose 23-year-old son is being held by Hamas, told Democratic convention attendees that there was a “surplus of agony” in the war in Gaza.`\
 https://nytimes.com/2024/08/21/us/politics/hersh-goldberg-polin-gaza-hostage.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/21/arts/music/taylor-swift-vienna-eras-tour.html
 **Giants crack under the pressure in damaging loss to White Sox: 'We came out flat'**\
 `"(W)e all have to put our heads down and we have to win every game. You can't say that, right? But you've got to think that way," Webb said.`\
 https://nytimes.com/athletic/5715674/2024/08/21/sf-giants-loss-white-sox/
-
-**The Democrats’ Answer to Hulk Hogan**\
-`Tim Walz will embody his party’s retort to the mega-masculinity of Trumpism on display last month.`\
-https://nytimes.com/2024/08/21/us/politics/the-democrats-answer-to-hulk-hogan.html
 
