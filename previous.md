@@ -1,3 +1,11 @@
+**What to expect on the convention’s last night.**\
+`Vice President Kamala Harris is set to take the stage to formally accept her party’s nomination to be president.`\
+https://nytimes.com/2024/08/22/us/politics/dnc-last-day.html
+
+**The Starbucks C.E.O.’s New Commute: 1,000 Miles on a Corporate Jet**\
+`Brian Niccol, the incoming head of Starbucks, has a C-suite perk that has raised eyebrows in post-pandemic office culture: an interstate commute on a plane.`\
+https://nytimes.com/2024/08/22/business/starbucks-ceo-commute-jet-brian-niccols.html
+
 **Russian Attitudes About Putin Might Be Shifting**\
 `Negative remarks on social media have increased since Ukrainian troops launched an incursion, according to a firm that tracks Russian attitudes.`\
 https://nytimes.com/2024/08/22/us/politics/russia-putin-attitudes-social-media.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/22/nyregion/eric-adams-dnc-convention.html
 **Cash Cobain Is Steering Drill Rap’s Sexy Swerve**\
 `The rapper and producer’s lusty rhymes and unorthodox samples have made hits for hip-hop’s most lascivious luminaries. With a new album, he aims to join them.`\
 https://nytimes.com/2024/08/22/arts/music/cash-cobain-drill.html
-
-**2024 fantasy football cheat sheet: A fully customizable rankings and projections generator**\
-`Ready to win your fantasy football leagues with a customizable set of rankings and projections? Jake Ciely shows you the way!`\
-https://nytimes.com/athletic/5475262/2024/08/22/2024-fantasy-football-cheat-sheet-generator-customizable-rankings-and-projections-tool/
-
-**Intuit Dome: Where Art Competes With Hot Dogs, Beer and Busy Fans**\
-`At the impressive new home of the Los Angeles Clippers, new artworks foster a community spirit. But there are no outright slam dunks here.`\
-https://nytimes.com/2024/08/22/arts/design/intuit-dome-clippers-stadium-public-art.html
 
