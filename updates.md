@@ -1,3 +1,11 @@
+**Everything You Need to Know About the 2024 U.S. Open**\
+`The tournament runs Aug. 26 to Sept. 8 at the Billie Jean King National Tennis Center in New York City.`\
+https://nytimes.com/2024/08/22/sports/us-open-guide-tennis.html
+
+**Thursday's MLB odds: Pitching matchups, playoff projections and more**\
+`See pitching matchups, playoff projections, win projections and more for Thursday's MLB games.`\
+https://nytimes.com/athletic/5716630/2024/08/22/mlb-odds-best-bets-projections-august-22/
+
 **Farm Workers Union Battles California Grower Owned by Democratic Donors**\
 `Wonderful Nurseries, owned by Stewart and Lynda Resnick, has sued the state to overturn a labor organizing law championed by the United Farm Workers.`\
 https://nytimes.com/2024/08/22/business/economy/wonderful-company-united-farm-workers-union.html
