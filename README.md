@@ -1,3 +1,7 @@
+**Real Betis in advanced talks with Barcelona over Roque loan**\
+`Real Betis are in advanced talks with Barcelona over the loan signing of striker Vitor Roque.`\
+https://nytimes.com/athletic/5713853/2024/08/22/vitor-roque-betis-loan-transfer-barcelona/
+
 **Rick Steves, TV Travel Guide, Says He Has Prostate Cancer**\
 `Mr. Steves said the cancer had not spread and he will travel to France for work before having surgery next month.`\
 https://nytimes.com/2024/08/22/travel/rick-steves-prostate-cancer.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/22/crosswords/spelling-bee-forum.html
 **Seth Meyers Approves of the Obamas Dissing Donald Trump**\
 `The “Late Night” host remarked that former President Barack Obama burned Donald Trump “without even saying a word” on Day 2 of the D.N.C.`\
 https://nytimes.com/2024/08/22/arts/television/seth-meyers-obama-trump.html
-
-**Quotation of the Day: For China’s Road Trip Heroine, A Bold Step on a New Journey**\
-`Quotation of the Day for Thursday, August 22, 2024.`\
-https://nytimes.com/2024/08/22/pageoneplus/quotation-of-the-day-for-chinas-road-trip-heroine-a-bold-step-on-a-new-journey.html
 
