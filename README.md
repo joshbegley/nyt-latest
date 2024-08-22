@@ -1,3 +1,7 @@
+**Venezuela’s Supreme Court, Loyal to Maduro, Rules Him Election Winner**\
+`The court did not share voting data to back up its decision despite demands from Venezuelans and international election observers that the government produce evidence of his victory.`\
+https://nytimes.com/2024/08/22/world/americas/venezuela-supreme-court-maduro-election.html
+
 **Kamala Harris’s Political Pragmatism**\
 `Kamala Harris may be offering the nation a future defined by the fine print, focused on accomplishing what can be done now.`\
 https://nytimes.com/video/us/elections/100000009642241/kamala-harriss-political-pragmatism.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/22/us/politics/dnc-speaker-schedule-final-night.html
 **Counting All the Fish in the Sea May Be Even Trickier Than Scientists Thought**\
 `A new study suggests that estimates of the health of the world’s fisheries may be too optimistic.`\
 https://nytimes.com/2024/08/22/climate/fish-stocks-overcounting.html
-
-**Many Climate Policies Struggle to Cut Emissions, Study Finds**\
-`The most effective ones tend to combine several emissions-cutting strategies, not a stand-alone approach, according to an examination of 1,500 policies globally.`\
-https://nytimes.com/2024/08/22/climate/climate-policies.html
 
