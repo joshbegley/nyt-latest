@@ -1,3 +1,7 @@
+**Divers Recover 5th Body After Sinking of Yacht Off Sicily**\
+`The discovery leaves just one more person missing after the vessel went down this week carrying 10 crew members and 12 passengers, including the British tech entrepreneur Mike Lynch.`\
+https://nytimes.com/2024/08/22/world/europe/italy-sicily-yacht-bodies-found.html
+
 **Real Betis in advanced talks with Barcelona over Roque loan**\
 `Real Betis are in advanced talks with Barcelona over the loan signing of striker Vitor Roque.`\
 https://nytimes.com/athletic/5713853/2024/08/22/vitor-roque-betis-loan-transfer-barcelona/
