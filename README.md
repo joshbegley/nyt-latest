@@ -1,3 +1,11 @@
+**Israeli evacuation orders force thousands of Palestinians to flee parts of central Gaza again.**\
+`By Raja Abdulrahim and Abu Bakr Bashir`\
+https://nytimes.com/live/2024/08/22/world/israel-hamas-iran-gaza-war/israeli-evacuation-orders-force-thousands-of-palestinians-to-flee-parts-of-central-gaza-again
+
+**Convention Insider: Cory Booker Never Stops**\
+`The New Jersey senator is giving speeches, posing for selfies, schmoozing with delegates. How many breakfasts has he attended at the D.N.C.? Fifteen so far.`\
+https://nytimes.com/2024/08/22/us/politics/corey-booker-new-jersey-democratic-convention.html
+
 **Mariners expected to fire manager Scott Servais**\
 `Wilson, 55, was a catcher for the Mariners from 1994 to 2005. `\
 https://nytimes.com/athletic/5716664/2024/08/22/seattle-mariners-expected-to-fire-scott-servais-name-dan-wilson-manager/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/22/style/dnc-fashion-photos.html
 **Is Bounce: Is Zion Williamson in his best shape ever?**\
 `Zach Harper and Shams Charania catch you up on leaguewide news.`\
 https://nytimes.com/athletic/5714934/2024/08/22/zion-williamson-pelicans-nba-slam-magazine-the-bounce/
-
-**Finding fantasy football values like Alvin Kamara and Gabe Davis by looking at expected snap count**\
-`Michael Salfino looks at expected snap count to find players who are being undervalued based on the latest 2024 fantasy football ADP data.`\
-https://nytimes.com/athletic/5717185/2024/08/22/fatasy-football-2024-snap-count-adp-values/
-
-**Man Utd agree deal to sign Kone, 18, from Malian side Guidars FC**\
-`Manchester United have agreed a deal to sign Sekou Kone, an 18-year-old from Malian side Guidars FC.`\
-https://nytimes.com/athletic/5717196/2024/08/22/man-utd-transfers-sekou-kone-who/
 
