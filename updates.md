@@ -1,3 +1,11 @@
+**Word of the Day: resonate**\
+`This word has appeared in 434 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/22/learning/word-of-the-day-resonate.html
+
+**'We needed that': Nolan Arenado's walk-off grand slam snaps Cardinals' losing skid**\
+`Arenado had one thought when he strode to the plate with the bases loaded in the bottom of the 10th: "Just get the ball to the outfield."`\
+https://nytimes.com/athletic/5716092/2024/08/22/nolan-arenado-walk-off-grand-slam-cardinals-brewers/
+
 **Joey Votto reflects on decision to retire, falling short of dream to play for Blue Jays**\
 `"I can say to the very last pitch I was giving my very all. But there's an end for all athletes. Time is undefeated, as they say."`\
 https://nytimes.com/athletic/5716110/2024/08/22/joey-votto-retirement-blue-jays/
