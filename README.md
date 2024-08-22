@@ -1,3 +1,7 @@
+**Van Dijk's Liverpool contract: What's going on?**\
+`What we're hearing about the Anfield captain's future as the clock ticks down on his current deal`\
+https://nytimes.com/athletic/5713729/2024/08/22/virgil-van-dijk-liverpool-contract-latest/
+
 **Relatively few new players started on the Premier League's opening weekend - but why?**\
 `Across the 17 clubs to remain in the Premier League from last season, only 14 new signings started on the opening weekend`\
 https://nytimes.com/athletic/5712347/2024/08/22/premier-league-starting-xi-changes/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5711444/2024/08/22/joao-felix-has-hard-work-ahead-o
 **New ideas, adaptation, evolution - how the best Premier League managers stay one step ahead**\
 `What seemed novel 20 years ago is the minimum requirement to excel in football nowadays - continued success requires constant evolution`\
 https://nytimes.com/athletic/5711563/2024/08/22/premier-league-manangers-evolution/
-
-**A Combat Medic’s Quest to Change Tributes to Fallen Soldiers**\
-`Iryna Tsybukh, who was killed on the front line in Ukraine, wanted to humanize the way Kyiv commemorated the war dead. She also left notes for her own funeral.`\
-https://nytimes.com/2024/08/22/world/europe/ukraine-iryna-tsybukh-military-funerals.html
 
