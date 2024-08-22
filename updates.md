@@ -1,3 +1,7 @@
+**Scoop City: Pressure on Anthony Richardson tonight**\
+`A look at four storylines to follow as the NFL's third week of preseason action kicks off tonight`\
+https://nytimes.com/athletic/5716468/2024/08/22/scoop-city-pressure-on-anthony-richardson-tonight/
+
 **An Easy Vegetarian Dinner That Starts With Corn**\
 `Seared on a sheet pan with crisp pillows of tofu and green chiles, corn kernels are the center of this summery recipe.`\
 https://nytimes.com/2024/08/22/dining/easy-vegetarian-corn-dinner.html
