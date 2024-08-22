@@ -1,3 +1,7 @@
+**Arsenal reach Merino agreement with Real Sociedad**\
+`Arsenal have reached an agreement in principle to sign Mikel Merino from Real Sociedad.`\
+https://nytimes.com/athletic/5700950/2024/08/22/arsenal-mikel-merino-transfer-agree-real-sociedad/
+
 **In Majorca, a One-Room Home With Sheep for Neighbors**\
 `How a couple transformed a tumbledown shepherd’s hut into a spare but functional retreat with views of the Balearic Sea.`\
 https://nytimes.com/2024/08/22/t-magazine/majorca-home.html
