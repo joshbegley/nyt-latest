@@ -1,3 +1,7 @@
+**Real Betis in advanced talks with Barcelona over Roque loan**\
+`Real Betis are in advanced talks with Barcelona over the loan signing of striker Vitor Roque.`\
+https://nytimes.com/athletic/5713853/2024/08/22/vitor-roque-betis-loan-transfer-barcelona/
+
 **Rick Steves, TV Travel Guide, Says He Has Prostate Cancer**\
 `Mr. Steves said the cancer had not spread and he will travel to France for work before having surgery next month.`\
 https://nytimes.com/2024/08/22/travel/rick-steves-prostate-cancer.html
