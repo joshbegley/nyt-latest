@@ -1,3 +1,7 @@
+**Tim Walz and His Party Are the New Small-Town Conservatives**\
+`They look after neighbors, they care about children, and they take pride in the military.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/tim-walz-and-his-party-are-the-new-small-town-conservatives
+
 **Wednesday Night Lights: To Vouch for Coach Walz, His Old Players Step Up**\
 `Fifteen men clad in football jerseys took the stage at the Democratic National Convention as the Mankato West High School fight song played.`\
 https://nytimes.com/2024/08/22/us/politics/football-players-walz-dnc.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5709577/2024/08/22/niclas-fullkrug-west-ham-striker
 **Full Transcript of Tim Walz’s Speech at the Democratic Convention**\
 `The Minnesota governor compared the election to a football game, vowing that and he and Vice President Kamala Harris would fight “one yard at a time” and “leave it on the field.”`\
 https://nytimes.com/2024/08/22/us/politics/tim-walz-dnc-speech-transcript.html
-
-**Poise, intelligence and a perfect partner to Winks - what Skipp brings to Leicester**\
-`Leicester are short in other areas but Cooper pushed for midfielder Skipp's arrival - will he now get the players he wants in attack?`\
-https://nytimes.com/athletic/5713923/2024/08/22/oliver-skipp-leicester-transfer/
 
