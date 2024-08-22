@@ -1,3 +1,7 @@
+**Scoop City: Pressure on Anthony Richardson tonight**\
+`A look at four storylines to follow as the NFL's third week of preseason action kicks off tonight`\
+https://nytimes.com/athletic/5716468/2024/08/22/scoop-city-pressure-on-anthony-richardson-tonight/
+
 **An Easy Vegetarian Dinner That Starts With Corn**\
 `Seared on a sheet pan with crisp pillows of tofu and green chiles, corn kernels are the center of this summery recipe.`\
 https://nytimes.com/2024/08/22/dining/easy-vegetarian-corn-dinner.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/22/world/asia/thailand-mpox.html
 **Forest's Danilo to undergo surgery after 'serious' ankle injury - Nuno**\
 `Nuno Espirito Santo says Danilo will &#8220;come back stronger&#8221; as he confirmed that the Nottingham Forest midfielder will undergo surgery to repair his broken ankle next week.`\
 https://nytimes.com/athletic/5716588/2024/08/22/danilo-injury-surgery-nottingham-forest/
-
-**Everton potentially down to 14 fit players with Tarkowski a doubt for Spurs**\
-`Everton manager Sean Dyche has admitted his squad is already “stretched” just a week into the new season, with a fresh injury concern over James Tarkowski potentially leaving them with as few as 14 available first-team players for Saturday’s trip to Tottenham Hotspur.`\
-https://nytimes.com/athletic/5716566/2024/08/22/everton-team-news-tarkowski-branthwaite-injury/
 
