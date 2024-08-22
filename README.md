@@ -1,6 +1,10 @@
+**Uncommitted Delegates Call For a Palestinian Voice on D.N.C. Stage**\
+`Sabrene Odeh, 29, an uncommitted delegate from Washington State, said the group is pushing for a speaker of Palestinian descent address the Democratic National Convention from the main stage.`\
+https://nytimes.com/video/us/politics/100000009652042/uncommitted-delegates-dnc-palestinians-gaza.html
+
 **A Recipe for When You Want a Sandwich but Should Maybe Eat a Salad**\
 `Behold: Kia Damon’s easy and satisfying chicken gyro chopped salad.`\
-https://nytimes.com/2024/08/22/dining/a-recipe-for-when-you-want-a-sandwich-but-should-maybe-eat-a-salad.html
+https://nytimes.com/2024/08/22/dining/chicken-gyro-salad.html
 
 **Hughes brothers named NHL 25 cover stars**\
 `The Hughes brothers are the first siblings to appear on an EA Sports NHL video game cover together.`\
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/22/dining/easy-vegetarian-corn-dinner.html
 **Everything You Need to Know About the 2024 U.S. Open**\
 `The tournament runs Aug. 26 to Sept. 8 at the Billie Jean King National Tennis Center in New York City.`\
 https://nytimes.com/2024/08/22/sports/us-open-guide-tennis.html
-
-**Thursday's MLB odds: Pitching matchups, playoff projections and more**\
-`See pitching matchups, playoff projections, win projections and more for Thursday's MLB games.`\
-https://nytimes.com/athletic/5716630/2024/08/22/mlb-odds-best-bets-projections-august-22/
 

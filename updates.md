@@ -1,3 +1,15 @@
+**A Recipe for When You Want a Sandwich but Should Maybe Eat a Salad**\
+`Behold: Kia Damon’s easy and satisfying chicken gyro chopped salad.`\
+https://nytimes.com/2024/08/22/dining/a-recipe-for-when-you-want-a-sandwich-but-should-maybe-eat-a-salad.html
+
+**Hughes brothers named NHL 25 cover stars**\
+`The Hughes brothers are the first siblings to appear on an EA Sports NHL video game cover together.`\
+https://nytimes.com/athletic/5714821/2024/08/22/hughes-brothers-ea-sports-nhl/
+
+**Mike Lynch, Tech Mogul Acquitted of Fraud, Dies at 59**\
+`The British entrepreneur, who was acquitted of fraud charges in the sale of his company to Hewlett-Packard, was celebrating his acquittal on a yacht that sank off the coast of Sicily in a storm.`\
+https://nytimes.com/2024/08/22/business/dealbook/mike-lynch-dead-tech-mogul.html
+
 **‘Coach Walz’ Leads a Democratic Pep Rally**\
 `The vice-presidential nominee’s prime-time debut offered football analogies and an alternative to Trumpian masculinity.`\
 https://nytimes.com/2024/08/22/arts/television/tim-walz-dnc.html

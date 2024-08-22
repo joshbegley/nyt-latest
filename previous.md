@@ -1,3 +1,15 @@
+**A Recipe for When You Want a Sandwich but Should Maybe Eat a Salad**\
+`Behold: Kia Damon’s easy and satisfying chicken gyro chopped salad.`\
+https://nytimes.com/2024/08/22/dining/a-recipe-for-when-you-want-a-sandwich-but-should-maybe-eat-a-salad.html
+
+**Hughes brothers named NHL 25 cover stars**\
+`The Hughes brothers are the first siblings to appear on an EA Sports NHL video game cover together.`\
+https://nytimes.com/athletic/5714821/2024/08/22/hughes-brothers-ea-sports-nhl/
+
+**Mike Lynch, Tech Mogul Acquitted of Fraud, Dies at 59**\
+`The British entrepreneur, who was acquitted of fraud charges in the sale of his company to Hewlett-Packard, was celebrating his acquittal on a yacht that sank off the coast of Sicily in a storm.`\
+https://nytimes.com/2024/08/22/business/dealbook/mike-lynch-dead-tech-mogul.html
+
 **‘Coach Walz’ Leads a Democratic Pep Rally**\
 `The vice-presidential nominee’s prime-time debut offered football analogies and an alternative to Trumpian masculinity.`\
 https://nytimes.com/2024/08/22/arts/television/tim-walz-dnc.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/08/22/sports/us-open-guide-tennis.html
 **Thursday's MLB odds: Pitching matchups, playoff projections and more**\
 `See pitching matchups, playoff projections, win projections and more for Thursday's MLB games.`\
 https://nytimes.com/athletic/5716630/2024/08/22/mlb-odds-best-bets-projections-august-22/
-
-**Farm Workers Union Battles California Grower Owned by Democratic Donors**\
-`Wonderful Nurseries, owned by Stewart and Lynda Resnick, has sued the state to overturn a labor organizing law championed by the United Farm Workers.`\
-https://nytimes.com/2024/08/22/business/economy/wonderful-company-united-farm-workers-union.html
-
-**What Kamala Harris’s Leadership Means for the Democratic Party**\
-`Less than a month after Democrats changed their nominee in a remarkable political shake-up, Kamala Harris has her party thinking it can win. Astead W. Herndon, a national politics reporter for The New York Times and the host of the politics podcast “The Run-Up,” reports from Chicago.`\
-https://nytimes.com/video/us/elections/100000009641916/the-run-up-dispatch-dnc.html
-
-**Falcons CB A.J. Terrell lands 4-year, $81 million contract extension**\
-`The contract makes Terrell the second highest-paid cornerback in the NFL, just behind the Green Bay Packers' Jaire Alexander.`\
-https://nytimes.com/athletic/5716550/2024/08/22/falcons-aj-terrell-contract/
 
