@@ -1,3 +1,19 @@
+**Urgent Calls for Action on the Climate**\
+`Readers discuss a science article about potentially irreversible changes. Also: Elect a felon?; my dad and Coach Walz; revised jobs report; key to happiness.`\
+https://nytimes.com/2024/08/22/opinion/letters/action-on-climate.html
+
+**Lewis Hamilton champions F1 return to Africa, says sport can't 'ignore' continent**\
+`Hamilton also expressed mixed feelings about longtime race engineer Pete Bonnington, who won't be joining him at Ferrari in 2025. `\
+https://nytimes.com/athletic/5717249/2024/08/22/f1-lewis-hamilton-africa-mercedes-pete-bonnington/
+
+**Astros in agreement with reliever Héctor Neris: Sources**\
+`Neris returns to Houston, where he pitched in 2022 and 2023. `\
+https://nytimes.com/athletic/5717299/2024/08/22/astros-sign-hector-neris/
+
+**Theater Breaks Ties With Ivo van Hove After Report on Bullying**\
+`An investigation found that a “culture of fear” had developed at the International Theater Amsterdam during the years when the star director led the company.`\
+https://nytimes.com/2024/08/22/theater/ivo-van-hove-international-theater-amsterdam.html
+
 **Jets trade Rutger McGroarty to Penguins**\
 `The Penguins have signed McGroarty to a three-year entry-level contract, according to the source.`\
 https://nytimes.com/athletic/5717066/2024/08/22/rutger-mcgroarty-trade-jets-penguins/
