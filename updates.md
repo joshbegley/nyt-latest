@@ -1,3 +1,7 @@
+**Lions defense puts offense to work on scrimmage day**\
+`The offense got off to a terrible start, but later improved.`\
+https://nytimes.com/athletic/5715378/2024/08/21/detroit-lions-training-camp-practice-scrimmage/
+
 **Taylor Swift Says She Felt ‘Fear’ and ‘Guilt’ After Canceled Vienna Shows**\
 `The three stops in Austria on the pop star’s Eras Tour were canceled after the authorities discovered a terrorist plot targeting the concerts.`\
 https://nytimes.com/2024/08/21/arts/music/taylor-swift-vienna-eras-tour.html
