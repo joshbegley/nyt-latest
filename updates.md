@@ -1,3 +1,11 @@
+**Thursday Briefing**\
+`Hostilities between Israel and Hezbollah.`\
+https://nytimes.com/2024/08/22/briefing/israel-hezbollah-walz.html
+
+**Tim Walz Accepts the V.P. Nomination**\
+`Gov. Tim Walz of Minnesota introduced his family and rallied the crowd to get behind Kamala Harris in “the fourth quarter” of the election.`\
+https://nytimes.com/video/us/elections/100000009651576/tim-walz-accepts-the-vp-nomination.html
+
 **FPL: Which Gameweek 1 disappointments should you keep or sell?**\
 `From Ollie Watkins to Darwin Nunez, Holly Shand explores what to do with players who failed to deliver for you in Gameweek 1`\
 https://nytimes.com/athletic/5712108/2024/08/22/fantasy-premier-league-watkins-nkunku-eze-sell-keep/
