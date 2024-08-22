@@ -1,3 +1,7 @@
+**Crypto Lobbyist Charged With Breaking Campaign Finance Rules**\
+`The charges against Michelle Bond, the former head of a crypto industry trade group, are part of the continuing legal fallout from the collapse of the FTX crypto exchange.`\
+https://nytimes.com/2024/08/22/technology/ftx-crypto-campaign-finance.html
+
 **Tracking Tropical Storm Hone**\
 `See the likely path and wind arrival times for Hone.`\
 https://nytimes.com/interactive/2024/08/22/weather/hone-map-path-tracker.html
