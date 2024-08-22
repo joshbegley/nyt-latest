@@ -1,11 +1,3 @@
-**The vice-presidential nominee’s home state has the largest bloc of ‘uncommitted’ delegates.**\
-`By Charles Homans`\
-https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/the-vice-presidential-nominees-home-state-has-the-largest-bloc-of-uncommitted-delegates
-
-**Tough Nut to Crack**\
-`Brad Wiegmann’s puzzle theme is hard to pronounce.`\
-https://nytimes.com/2024/08/21/crosswords/daily-puzzle-2024-08-22.html
-
 **“Trump was the mastermind of the G.O.P. tax scam where 83 percent of the benefits went to the wealthiest 1 percent in America.”**\
 `By Andrew Duehren`\
 https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/trump-was-the-mastermind-of-the-gop-tax-scam-where-83-percent-of-the-benefits-went-to-the-wealthiest-1-percent-in-america
@@ -33,4 +25,12 @@ https://nytimes.com/athletic/5715797/2024/08/21/new-york-giants-jets-practice-ta
 **Jeffrey A Sinclair**\
 `News about Jeffrey A Sinclair. Commentary and archival information about Jeffrey A Sinclair from The New York Times.`\
 https://nytimes.com/topic/jeffrey-a-sinclair
+
+**The War in Gaza Finally Gets a Moment on the Convention Stage**\
+`But it was about the suffering of the hostages, and didn’t go much further.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/gaza-hostage-parents-convention
+
+**Mindy Kaling Goes From ‘Cooking With Kamala’ to Hosting Her Convention**\
+`Ms. Kaling, like Vice President Kamala Harris, is Indian American. They once cooked masala dosa together in a 2019 YouTube video.`\
+https://nytimes.com/2024/08/21/us/politics/mindy-kaling-dnc-host.html
 
