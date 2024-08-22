@@ -1,3 +1,7 @@
+**An Economic Soft Landing, or a Rockies Letdown?**\
+`Investors are anxiously awaiting Jerome Powell’s policy speech at a symposium in Jackson Hole, Wyo., on Friday, as labor data suggests the economy is slowing.`\
+https://nytimes.com/2024/08/22/business/dealbook/soft-landing-powell-jackson-hole.html
+
 **Everton potentially down to 14 fit players with Tarkowski a doubt for Spurs**\
 `Everton manager Sean Dyche has admitted his squad is already “stretched” just a week into the new season, with a fresh injury concern over James Tarkowski potentially leaving them with as few as 14 available first-team players for Saturday’s trip to Tottenham Hotspur.`\
 https://nytimes.com/athletic/5716566/2024/08/22/everton-team-news-tarkowski-branthwaite-injury/
