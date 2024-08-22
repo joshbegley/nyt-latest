@@ -1,3 +1,15 @@
+**Stephen Nedoroscik to star on 'Dancing with the Stars'**\
+`When asked if he plans on dancing with his glasses on or off, Nedoroscik said he may use his famed eyewear to his advantage.`\
+https://nytimes.com/athletic/5716656/2024/08/22/stephen-nedoroscik-dancing-with-the-stars/
+
+**The Windup: Why Joey Votto called it a career**\
+`Welcome to The Windup, The Athletic's daily MLB newsletter. `\
+https://nytimes.com/athletic/5716820/2024/08/22/joey-votto-retire-reds-player-height-mlb-the-windup/
+
+**John Sterling may return to call Yankees postseason**\
+`This week, Sterling made a brief appearance in the Yankees booth, teaming up with analyst Suzyn Waldman to call a few innings.`\
+https://nytimes.com/athletic/5716826/2024/08/22/john-sterling-yankees-broadcast-postseason/
+
 **Convention Insider: The Unexpected Reappearance of John Edwards**\
 `Once a rising star, Mr. Edwards’s political career evaporated amid  scandal. And yet, there he was, reconnecting with old associates at the Democratic convention.`\
 https://nytimes.com/2024/08/22/us/elections/john-edwards-dnc.html

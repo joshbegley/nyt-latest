@@ -31,6 +31,6 @@ https://nytimes.com/2024/08/22/dining/chicken-gyro-salad.html
 https://nytimes.com/athletic/5714821/2024/08/22/hughes-brothers-ea-sports-nhl/
 
 **Mike Lynch, Tech Mogul Acquitted of Fraud, Dies at 59**\
-`The British entrepreneur, who was acquitted of fraud charges in the sale of his company to Hewlett-Packard, was celebrating his acquittal on a yacht that sank off the coast of Sicily in a storm.`\
+`The British entrepreneur, who was found not guilty of fraud charges in the sale of his company to Hewlett-Packard, was celebrating his acquittal when his yacht that sank off the coast of Sicily in a storm.`\
 https://nytimes.com/2024/08/22/business/dealbook/mike-lynch-dead-tech-mogul.html
 

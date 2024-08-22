@@ -1,3 +1,15 @@
+**Stephen Nedoroscik to star on 'Dancing with the Stars'**\
+`When asked if he plans on dancing with his glasses on or off, Nedoroscik said he may use his famed eyewear to his advantage.`\
+https://nytimes.com/athletic/5716656/2024/08/22/stephen-nedoroscik-dancing-with-the-stars/
+
+**The Windup: Why Joey Votto called it a career**\
+`Welcome to The Windup, The Athletic's daily MLB newsletter. `\
+https://nytimes.com/athletic/5716820/2024/08/22/joey-votto-retire-reds-player-height-mlb-the-windup/
+
+**John Sterling may return to call Yankees postseason**\
+`This week, Sterling made a brief appearance in the Yankees booth, teaming up with analyst Suzyn Waldman to call a few innings.`\
+https://nytimes.com/athletic/5716826/2024/08/22/john-sterling-yankees-broadcast-postseason/
+
 **Convention Insider: The Unexpected Reappearance of John Edwards**\
 `Once a rising star, Mr. Edwards’s political career evaporated amid  scandal. And yet, there he was, reconnecting with old associates at the Democratic convention.`\
 https://nytimes.com/2024/08/22/us/elections/john-edwards-dnc.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5714821/2024/08/22/hughes-brothers-ea-sports-nhl/
 **Mike Lynch, Tech Mogul Acquitted of Fraud, Dies at 59**\
 `The British entrepreneur, who was acquitted of fraud charges in the sale of his company to Hewlett-Packard, was celebrating his acquittal on a yacht that sank off the coast of Sicily in a storm.`\
 https://nytimes.com/2024/08/22/business/dealbook/mike-lynch-dead-tech-mogul.html
-
-**‘Coach Walz’ Leads a Democratic Pep Rally**\
-`The vice-presidential nominee’s prime-time debut offered football analogies and an alternative to Trumpian masculinity.`\
-https://nytimes.com/2024/08/22/arts/television/tim-walz-dnc.html
-
-**A JD Vance Remix Goes Viral on TikTok, as Political Memes Change Shape**\
-`A mash-up of years-old comments by the Ohio senator with a hip-hop track is finding a broad audience. It’s part of a new genre of videos on the app.`\
-https://nytimes.com/2024/08/22/business/jd-vance-never-trump-guy-tiktok.html
-
-**Scoop City: Pressure on Anthony Richardson tonight**\
-`A look at four storylines to follow as the NFL's third week of preseason action kicks off tonight`\
-https://nytimes.com/athletic/5716468/2024/08/22/scoop-city-pressure-on-anthony-richardson-tonight/
 
