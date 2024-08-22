@@ -1,3 +1,11 @@
+**Trading Jahan Dotson shows rebuilding Commanders aren't waiting for a miracle**\
+`General manager Adam Peters and company are focused on bringing in the right pieces to fill out Washington's roster. `\
+https://nytimes.com/athletic/5717650/2024/08/22/commanders-jahan-dotson-trade-eagles/
+
+**Tropical Storm Hone Forms East of Hawaii**\
+`The storm was about 1,000 miles east-southeast of the Hawaiian islands, which were expected to receive strong wind, rainfall and swells in the coming days.`\
+https://nytimes.com/2024/08/22/weather/hawaii-hone-wind-forecast.html
+
 **Convention Insider: Jasmine Crockett Would Like to Introduce Herself**\
 `The representative from Texas, who overcame a “pit in my stomach” onstage this week, is emerging as an influential surrogate for the Harris campaign.`\
 https://nytimes.com/2024/08/22/us/politics/dnc-jasmine-crockett-speech.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/22/world/europe/russia-journalists-ukraine-incursion
 **Harris Leans on Memory of Her Mother, as She Reintroduces Herself**\
 `The definitional power of parenthood has been an unofficial theme of the Democratic convention this week. And Shyamala Gopalan Harris, the vice president’s mother, is a main character.`\
 https://nytimes.com/2024/08/22/us/politics/kamala-harris-mother.html
-
-**Peter Dykstra, Pioneering CNN Climate Journalist, Dies at 67**\
-`A former Greenpeace official, he drew on his command of environmental subjects to persuade his bosses at the cable channel to cover climate issues.`\
-https://nytimes.com/2024/08/22/climate/peter-dysktra-dead.html
-
-**Ukraine Cites Modi Visit as the Fruit of an Emerging Diplomatic Push**\
-`Officials say efforts to engage neutral nations like India along with the military incursion into Russia will strengthen Ukraine’s hand in any peace talks.`\
-https://nytimes.com/2024/08/22/world/europe/ukraine-india-modi-diplomacy.html
 
