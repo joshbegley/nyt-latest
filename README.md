@@ -1,3 +1,11 @@
+**Until Saturday: Week 0 is here, plus a 12-team Playoff projection**\
+`Welcome to Until Saturday, the five-star college football newsletter: We have games this week and a Playoff bracket prediction.`\
+https://nytimes.com/athletic/5715447/2024/08/22/college-football-week-o-cfp-bracket-until-saturday/
+
+**Sexual assault lawsuit against Dwight Howard dropped**\
+`The man who filed the suit in July 2023 dismissed all claims he asserted against Howard with prejudice, according to a Monday court filing.`\
+https://nytimes.com/athletic/5715962/2024/08/22/dwight-howard-lawsuit-dropped-sexual-assault/
+
 **E.U. Naval Ship Rescues Crew of Oil Tanker Hit by Missiles in Red Sea**\
 `The incident appeared to be the most serious in weeks involving commercial shipping off Yemen’s coast. The Houthis, who have been attacking ships in solidarity with Hamas, did not claim responsibility.`\
 https://nytimes.com/2024/08/22/world/middleeast/red-sea-oil-tanker-missiles.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/22/world/australia/sphen-gay-penguin-dead.html
 **Raiders undrafted rookies Carter Bradley, Will Putnam fighting hard for a roster spot**\
 `Bradley, the son of former Raiders and current Colts defensive coordinator Gus Bradley, will see extensive action Friday vs. the 49ers.`\
 https://nytimes.com/athletic/5715568/2024/08/22/raiders-udfa-carter-bradley-will-putnam/
-
-**One thought on Nick Bosa, Fred Warner and every 49ers defensive player**\
-`The 49ers defense features a big load of talent and has, so far, stayed relatively healthy. Now, the roster cutdown is coming. `\
-https://nytimes.com/athletic/5710655/2024/08/22/49ers-training-camp-defensive-roster/
-
-**Golden Knights fan survey: Which player is most important? How confident do you feel?**\
-`How long will Vegas' championship window remain open? How confident are you in the front office and Bruce Cassidy?`\
-https://nytimes.com/athletic/5715631/2024/08/22/golden-knights-offseason-playoffs/
 
