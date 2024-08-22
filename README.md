@@ -1,3 +1,7 @@
+**Crypto Lobbyist Charged With Breaking Campaign Finance Rules**\
+`The charges against Michelle Bond, the former head of a crypto industry trade group, are part of the continuing legal fallout from the collapse of the FTX crypto exchange.`\
+https://nytimes.com/2024/08/22/technology/ftx-crypto-campaign-finance.html
+
 **Tracking Tropical Storm Hone**\
 `See the likely path and wind arrival times for Hone.`\
 https://nytimes.com/interactive/2024/08/22/weather/hone-map-path-tracker.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/22/weather/hawaii-hone-wind-forecast.html
 **Convention Insider: Jasmine Crockett Would Like to Introduce Herself**\
 `The representative from Texas, who overcame a “pit in my stomach” onstage this week, is emerging as an influential surrogate for the Harris campaign.`\
 https://nytimes.com/2024/08/22/us/politics/dnc-jasmine-crockett-speech.html
-
-**The Four Points That Harris’s Speech Needs to Emphasize**\
-`With millions of Americans listening to her for the first time, Harris can’t miss the opportunity.`\
-https://nytimes.com/live/2024/08/20/opinion/thepoint/harris-speech-four-points
 
