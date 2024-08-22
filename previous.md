@@ -1,3 +1,7 @@
+**West Ham keen on PSG midfielder Soler but move depends on sales**\
+`West Ham United are keen on signing Paris Saint-Germain Carlos Soler but any move for the midfielder depends on player sales at the Premier League side.`\
+https://nytimes.com/athletic/5674032/2024/08/22/west-ham-carlos-soler-transfer/
+
 **Wemby's trajectory with Spurs, Zach Edey's impact on Grizzles and Southwest division rankings**\
 `Kelly Iko answers your questions about the Spurs, Rockets, Grizzlies and the rest of the Southwest Division in his latest mailbag. `\
 https://nytimes.com/athletic/5712613/2024/08/22/spurs-wembanyama-rockets-grizzlies-mailbag/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5715386/2024/08/22/browns-preseason-finale-seahawks
 **The Republican Plan to Challenge a Harris Victory**\
 `How a right-wing takeover of an obscure, unelected board in Georgia could swing the election.`\
 https://nytimes.com/2024/08/22/podcasts/the-daily/georgia-election-board.html
-
-**Zay Flowers wants to be great for Ravens, who need it from the wide receiver**\
-`Flowers isn't resting on the laurels of his strong rookie season as Baltimore, with Super Bowl aspirations, begins a tough AFC road.`\
-https://nytimes.com/athletic/5691939/2024/08/22/zay-flowers-ravens-lamar-jackson/
 
