@@ -1,3 +1,11 @@
+**“They’ll repeal the Affordable Care Act.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/theyll-repeal-the-affordable-care-act
+
+**A great NL East rivalry is reborn as Phillies score late win over Braves**\
+`Every trip to Truist Park — no matter the standings — is a reminder of the ultimate target for the Phillies.`\
+https://nytimes.com/athletic/5716039/2024/08/21/phillies-braves-great-rivalry/
+
 **Braves veteran hitting coach Kevin Seitzer addresses challenging year for offense**\
 `The Braves had a powerhouse offense last season but now sit in the middle of the pack: "It’s really far from last year."`\
 https://nytimes.com/athletic/5715979/2024/08/21/braves-hitting-coach-kevin-seitzer/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/21/nyregion/letitia-james-trump-fraud-penalty.html
 **Rookie Simeon Woods Richardson delivers again as Twins end trip with blowout win**\
 `Woods Richardson has provided a pick-me-up for the Twins more often than not this season.`\
 https://nytimes.com/athletic/5715983/2024/08/21/twins-simeon-woods-richardson-padres-win/
-
-**Bill Clinton’s Quiet Warning**\
-`His tone was warm, relaxed, conversational and uplifting.`\
-https://nytimes.com/live/2024/08/20/opinion/thepoint/bill-clinton-dnc-speech
-
-**Josh Shapiro, a finalist to be Harris’s running mate, makes his case for her.**\
-`By Nicholas Nehamas`\
-https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/josh-shapiro-kamala-harris-dnc
 
