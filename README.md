@@ -1,3 +1,7 @@
+**Russia Opens New Cases Against Journalists Who Covered Ukrainian Incursion**\
+`Moscow said it was investigating three more reporters, including a CNN correspondent, who crossed into Russian territory to cover the fighting.`\
+https://nytimes.com/2024/08/22/world/europe/russia-journalists-ukraine-incursion.html
+
 **Harris Leans on Memory of Her Mother, as She Reintroduces Herself**\
 `The definitional power of parenthood has been an unofficial theme of the Democratic convention this week. And Shyamala Gopalan Harris, the vice president’s mother, is a main character.`\
 https://nytimes.com/2024/08/22/us/politics/kamala-harris-mother.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5717411/2024/08/22/us-open-draw-2024-djokovic-alcar
 **After Some Columbia Donors Pause Gifts, Medical School Gets $400 Million**\
 `The donation is the largest the medical school has received and comes after other donors pulled back because of Columbia’s response to pro-Palestinian demonstrations.`\
 https://nytimes.com/2024/08/22/nyregion/columbia-medical-school-donation-vagelos.html
-
-**Veterans Say Attacks on Candidates’ Service Records Are a Turnoff**\
-`Many veterans say that disparaging an opponent’s military service, as JD Vance has done with Tim Walz, is unhelpful, and they want to hear about current issues instead.`\
-https://nytimes.com/2024/08/22/us/veterans-walz-vance-record.html
 
