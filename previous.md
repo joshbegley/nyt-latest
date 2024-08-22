@@ -1,3 +1,15 @@
+**Judge John Hodgman on Defenestration Alternatives**\
+`Do we need a word for doing it in reverse?`\
+https://nytimes.com/2024/08/22/magazine/judge-john-hodgman-on-defenestration-alternatives.html
+
+**‘Pachinko’ Is a Gorgeous Epic of Love and Struggle**\
+`Based on the novel by Min Jin Lee, this thoughtful series about a Korean family across generations returns to Apple TV+ for a second season.`\
+https://nytimes.com/2024/08/22/arts/television/pachinko-season-2-apple.html
+
+**Textor submits final bid to take over Crystal Palace**\
+`John Textor&#8217;s Eagle Football Group has made a final bid to take over Crystal Palace.`\
+https://nytimes.com/athletic/5199977/2024/08/22/crystal-palace-takeover-john-textor/
+
 **Russia Opens New Cases Against Journalists Who Covered Ukrainian Incursion**\
 `Moscow said it was investigating three more reporters, including a CNN correspondent, who crossed into Russian territory to cover the fighting.`\
 https://nytimes.com/2024/08/22/world/europe/russia-journalists-ukraine-incursion.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/08/22/briefing/india-violence-women-mpox-thailand-kamal
 **Texas, Texas A&M ADs eye moving future games to Black Friday**\
 `Both Longhorns AD Chris Del Conte and Aggies AD Trev Alberts said they hope the game is played annually.`\
 https://nytimes.com/athletic/5717689/2024/08/22/texas-texas-am-rivalry-schedule-black-friday/
-
-**NASCAR sanctions Denny Hamlin for engine infraction**\
-`The engine in question is one Hamlin had in his car when he won this spring at Bristol Motor Speedway.`\
-https://nytimes.com/athletic/5717645/2024/08/22/denny-hamlin-nascar-points-penalty-joe-gibbs-racing/
-
-**U.S. Open draw 2024: Luck for Djokovic? Relief for Swiatek? Danger for Raducanu**\
-`The fourth Grand Slam begins on Monday, and the draws offer some blockbuster first-round matches as well as intrigue`\
-https://nytimes.com/athletic/5717411/2024/08/22/us-open-draw-2024-djokovic-alcaraz-sinner-raducanu-osaka/
-
-**After Some Columbia Donors Pause Gifts, Medical School Gets $400 Million**\
-`The donation is the largest the medical school has received and comes after other donors pulled back because of Columbia’s response to pro-Palestinian demonstrations.`\
-https://nytimes.com/2024/08/22/nyregion/columbia-medical-school-donation-vagelos.html
 

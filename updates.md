@@ -1,3 +1,15 @@
+**Judge John Hodgman on Defenestration Alternatives**\
+`Do we need a word for doing it in reverse?`\
+https://nytimes.com/2024/08/22/magazine/judge-john-hodgman-on-defenestration-alternatives.html
+
+**‘Pachinko’ Is a Gorgeous Epic of Love and Struggle**\
+`Based on the novel by Min Jin Lee, this thoughtful series about a Korean family across generations returns to Apple TV+ for a second season.`\
+https://nytimes.com/2024/08/22/arts/television/pachinko-season-2-apple.html
+
+**Textor submits final bid to take over Crystal Palace**\
+`John Textor&#8217;s Eagle Football Group has made a final bid to take over Crystal Palace.`\
+https://nytimes.com/athletic/5199977/2024/08/22/crystal-palace-takeover-john-textor/
+
 **Russia Opens New Cases Against Journalists Who Covered Ukrainian Incursion**\
 `Moscow said it was investigating three more reporters, including a CNN correspondent, who crossed into Russian territory to cover the fighting.`\
 https://nytimes.com/2024/08/22/world/europe/russia-journalists-ukraine-incursion.html
