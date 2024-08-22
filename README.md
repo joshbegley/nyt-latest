@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5716250/2024/08/22/de-ligt-united-real-madrid-build
 https://nytimes.com/interactive/2024/08/22/weather/shanshan-map-path-tracker.html
 
 **An Economic Soft Landing, or a Rockies Letdown?**\
-`Investors are anxiously awaiting Jerome Powell’s policy speech at a symposium in Jackson Hole, Wyo. on Friday, as labor data suggests the economy is slowing.`\
+`Investors are anxiously awaiting Jerome Powell’s policy speech at a symposium in Jackson Hole, Wyo., on Friday, as labor data suggests the economy is slowing.`\
 https://nytimes.com/2024/08/22/business/dealbook/soft-landing-powell-jackson-hole.html
 
 **How will Tom Brady do? Are you ready for Netflix games? Six big NFL media questions for 2024**\
