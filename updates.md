@@ -1,3 +1,11 @@
+**Dynasty league deep sleepers: In search of the next De'Von Achane and Puka Nacua**\
+`Jeff Haverlack goes through his favorite high-upside targets going outside the first round of 2024 dynasty league rookie drafts.`\
+https://nytimes.com/athletic/5714666/2024/08/22/dynasty-league-deep-sleepers-fantasy-football-2024/
+
+**Lynch Yacht Sinking Off Sicily Proves as Baffling as It Is Tragic**\
+`As bodies were recovered, the authorities and experts wondered how a $40 million, stable and secure vessel could have sunk so quickly.`\
+https://nytimes.com/2024/08/22/world/europe/sicily-yacht-mike-lynch.html
+
 **Mets takeaways on the rotation: Fixing Jose Quintana, waiting on Christian Scott and Kodai Senga**\
 `If the Mets really wanted to replace Quintana, the next man up would probably be Tylor Megill — who is struggling at Triple A. `\
 https://nytimes.com/athletic/5715290/2024/08/22/mets-jose-quintana-christian-scott/
