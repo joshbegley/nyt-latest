@@ -1,36 +1,36 @@
-**What Drives Kamala Harris: The Art of the Possible**\
-`As she prepares to formally accept the Democratic nomination on Thursday night, what the vice president may be offering the nation is a future defined by the fine print.`\
-https://nytimes.com/2024/08/22/us/politics/kamala-harris-policy-change.html
+**Cash Cobain Is Steering Drill Rap’s Sexy Swerve**\
+`The rapper and producer’s lusty rhymes and unorthodox samples have made hits for hip-hop’s most lascivious luminaries. With a new album, he aims to join them.`\
+https://nytimes.com/2024/08/22/arts/music/cash-cobain-drill.html
 
-**German Support for Ukraine Comes Under New Strains**\
-`With a budget shortfall for 2025 and evidence mounting that Ukraine blew up natural-gas pipelines between Germany and Russia, German aid to Ukraine is under pressure.`\
-https://nytimes.com/2024/08/22/world/europe/germany-ukraine-aid-scholz.html
+**Intuit Dome: Where Art Competes With Hot Dogs, Beer and Busy Fans**\
+`At the impressive new home of the Los Angeles Clippers, new artworks foster a community spirit. But there are no outright slam dunks here.`\
+https://nytimes.com/2024/08/22/arts/design/intuit-dome-clippers-stadium-public-art.html
 
-**Whooping Cough Is Coming Back**\
-`Cases dropped during the pandemic, but are now climbing once more. Here’s what to know.`\
-https://nytimes.com/2024/08/22/well/whooping-cough-symptoms-pertussis.html
+**The Meaning — and Power — of Kamala Harris’s Smile**\
+`Hers is a deliberate sparkle. Not unlike … Ronald Reagan’s.`\
+https://nytimes.com/2024/08/22/opinion/kamala-harris-joy.html
 
-**Tim Walz Gets His Glow-Up**\
-`The vice-presidential candidate steps out of his flannels and into the spotlight.`\
-https://nytimes.com/2024/08/22/style/tim-walz-dnc.html
+**What Canada’s Rail Shutdown Could Mean for Trade**\
+`Rail labor disruptions in Canada tend to be brief, but a prolonged stoppage could hurt farmers, automakers and other businesses.`\
+https://nytimes.com/2024/08/22/business/economy/canada-rail-strike-us-economy.html
 
-**Despite Trump’s Accusations, Democrats Have Largely Avoided Medicare for All**\
-`The policy has played little role at the Democratic National Convention. Republicans continue to suggest Vice President Kamala Harris would pursue it as president.`\
-https://nytimes.com/2024/08/22/us/politics/harris-medicare-for-all.html
+**What We Know About Kamala Harris’s $5 Trillion Tax Plan So Far**\
+`The vice president supports the tax increases proposed by the Biden White House, according to her campaign.`\
+https://nytimes.com/2024/08/22/us/politics/kamala-harris-tax-plan.html
 
-**Case against Hall of Famer Lawrence Taylor closed**\
-`Authorities arrested Taylor in July for failing to report his residence change as a registered sex offender.`\
-https://nytimes.com/athletic/5716634/2024/08/22/lawrence-taylor-arrest-case-closed/
+**Commanders trade WR Jahan Dotson to Eagles**\
+`Dotson's addition should make for one of the best wide receiver trios in the NFL with Dotson joining A.J. Brown and DeVonta Smith.`\
+https://nytimes.com/athletic/5716963/2024/08/22/jahan-dotson-trade-eagles-commanders/
 
-**For Harris, the Senate Was a Springboard and a Chance to Form Alliances**\
-`The vice president forged important relationships in her four years on Capitol Hill, but she cast some of her most significant votes after moving to the White House.`\
-https://nytimes.com/2024/08/22/us/politics/kamala-harris-senate.html
+**Is Kyle Larson a better all-arounder than Max Verstappen? The F1 star responds**\
+`What does Max Verstappen think of Kyle Larson's comments? "That's fine. Everyone thinks their own way, right?"`\
+https://nytimes.com/athletic/5716858/2024/08/22/kyle-larson-max-verstappen-best-all-around-driver/
 
-**Noah Lyles would accept Tyreek Hill's challenge in 'legit' race**\
-`Lyles said he'd race Hill only if it was a 100-meter dash.`\
-https://nytimes.com/athletic/5716627/2024/08/22/noah-lyles-tyreek-hill-race/
+**Arkansas Supreme Court Denies Bid to Get Abortion Measure on the Ballot**\
+`A majority on the state Supreme Court sided with the secretary of state, who had rejected a citizen group’s petition for failing to submit some of the necessary paperwork.`\
+https://nytimes.com/2024/08/22/us/politics/arkansas-abortion-amendment.html
 
-**Arsenal reach Merino agreement with Real Sociedad**\
-`Arsenal have reached an agreement in principle to sign Mikel Merino from Real Sociedad.`\
-https://nytimes.com/athletic/5700950/2024/08/22/arsenal-mikel-merino-transfer-agree-real-sociedad/
+**In Majorca, a One-Room Home With Sheep for Neighbors**\
+`How a couple transformed a tumbledown shepherd’s hut into a spare but functional retreat with views of the Balearic Sea.`\
+https://nytimes.com/2024/08/22/t-magazine/majorca-home.html
 
