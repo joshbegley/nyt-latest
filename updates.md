@@ -1,3 +1,7 @@
+**The Athletic FC: Inside De Ligt's move to United, how Real Madrid built their incredible squad**\
+`Today in TAFC: We explain the reasons and influences behind De Ligt's move to Man Utd. Plus: How Real Madrid have built their squad.`\
+https://nytimes.com/athletic/5716250/2024/08/22/de-ligt-united-real-madrid-building-squad/
+
 **Tracking Tropical Storm Shanshan**\
 `See the likely path and wind arrival times for Shanshan.`\
 https://nytimes.com/interactive/2024/08/22/weather/shanshan-map-path-tracker.html

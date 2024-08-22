@@ -1,3 +1,7 @@
+**The Athletic FC: Inside De Ligt's move to United, how Real Madrid built their incredible squad**\
+`Today in TAFC: We explain the reasons and influences behind De Ligt's move to Man Utd. Plus: How Real Madrid have built their squad.`\
+https://nytimes.com/athletic/5716250/2024/08/22/de-ligt-united-real-madrid-building-squad/
+
 **Tracking Tropical Storm Shanshan**\
 `See the likely path and wind arrival times for Shanshan.`\
 https://nytimes.com/interactive/2024/08/22/weather/shanshan-map-path-tracker.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5715631/2024/08/22/golden-knights-offseason-playoff
 **Russia Pushes Forward in Ukraine’s East as Kursk Offensive Slows**\
 `The Ukrainians must defend a critical front in their country’s east, including the city of Pokrovsk, while trying to press forward in western Russia.`\
 https://nytimes.com/2024/08/22/world/europe/ukraine-russia-war-kursk-incursion-pokrovsk.html
-
-**Watford in advanced talks to sign Antwerp's Dwomoh**\
-`Watford are in advanced talks with Royal Antwerp over the signing of Pierre Dwomoh.`\
-https://nytimes.com/athletic/5716358/2024/08/22/pierre-dwomoh-watford-transfers/
 
