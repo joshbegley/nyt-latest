@@ -1,3 +1,7 @@
+**The Four Points That Harris’s Speech Needs to Emphasize**\
+`With millions of Americans listening to her for the first time, Harris can’t miss the opportunity.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/harris-speech-four-points
+
 **Judge John Hodgman on Defenestration Alternatives**\
 `Do we need a word for doing it in reverse?`\
 https://nytimes.com/2024/08/22/magazine/judge-john-hodgman-on-defenestration-alternatives.html

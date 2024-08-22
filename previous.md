@@ -1,3 +1,7 @@
+**The Four Points That Harris’s Speech Needs to Emphasize**\
+`With millions of Americans listening to her for the first time, Harris can’t miss the opportunity.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/harris-speech-four-points
+
 **Judge John Hodgman on Defenestration Alternatives**\
 `Do we need a word for doing it in reverse?`\
 https://nytimes.com/2024/08/22/magazine/judge-john-hodgman-on-defenestration-alternatives.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/22/world/europe/ukraine-india-modi-diplomacy.html
 **Friday Briefing: A Brutal Reality for Women in India**\
 `Plus, saying goodbye to a penguin and an icon.`\
 https://nytimes.com/2024/08/22/briefing/india-violence-women-mpox-thailand-kamala-harris.html
-
-**Texas, Texas A&M ADs eye moving future games to Black Friday**\
-`Both Longhorns AD Chris Del Conte and Aggies AD Trev Alberts said they hope the game is played annually.`\
-https://nytimes.com/athletic/5717689/2024/08/22/texas-texas-am-rivalry-schedule-black-friday/
 
