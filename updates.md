@@ -1,3 +1,11 @@
+**The War in Gaza Finally Gets a Moment on the Convention Stage**\
+`But it was about the suffering of the hostages, and didn’t go much further.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/gaza-hostage-parents-convention
+
+**Mindy Kaling Goes From ‘Cooking With Kamala’ to Hosting Her Convention**\
+`Ms. Kaling, like Vice President Kamala Harris, is Indian American. They once cooked masala dosa together in a 2019 YouTube video.`\
+https://nytimes.com/2024/08/21/us/politics/mindy-kaling-dnc-host.html
+
 **The vice-presidential nominee’s home state has the largest bloc of ‘uncommitted’ delegates.**\
 `By Charles Homans`\
 https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/the-vice-presidential-nominees-home-state-has-the-largest-bloc-of-uncommitted-delegates
