@@ -1,3 +1,11 @@
+**End the Meal With Dessert (At Another Restaurant)**\
+`Sometimes restaurant dessert menus can be lacking. Luckily, there’s always a better option not too far away.`\
+https://nytimes.com/2024/08/22/dining/end-the-meal-with-dessert-at-another-restaurant.html
+
+**Missouri Court Halts Deal to Spare Prisoner From Execution**\
+`The State Supreme Court said the trial had to hold a hearing before accepting a deal that would give the man a sentence of life without parole.`\
+https://nytimes.com/2024/08/22/us/missouri-court-marcellus-williams-execution.html
+
 **Yohe: With McGroarty trade, Dubas starts to hit stride**\
 `Dubas made one of his biggest moves since taking control of the Penguins, and it looks like a very good deal for now and the future.`\
 https://nytimes.com/athletic/5717235/2024/08/22/penguins-rutger-mcgroarty-trade-kyle-dubas/
