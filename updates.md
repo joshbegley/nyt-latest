@@ -1,3 +1,7 @@
+**Jonathan A Ferrell**\
+`News about Jonathan A Ferrell. Commentary and archival information about Jonathan A Ferrell from The New York Times.`\
+https://nytimes.com/topic/jonathan-a-ferrell
+
 **George A O'Toole Jr**\
 `News about George A O'Toole Jr. Commentary and archival information about George A O'Toole Jr from The New York Times.`\
 https://nytimes.com/topic/george-a-otoole-jr
