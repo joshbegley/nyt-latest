@@ -1,3 +1,11 @@
+**Bill Clinton Says Trump Is About ‘Me, Myself and I’**\
+`Former President Bill Clinton portrayed Donald J. Trump as a candidate who was only concerned about himself, and not about voters.`\
+https://nytimes.com/video/us/elections/100000009651374/dnc-bill-clinton.html
+
+**Google Joins $250 Million Deal to Support Newsrooms in California**\
+`The agreement includes $70 million from the state, which needs legislative approval. Some lawmakers objected, calling for a more comprehensive solution with tech companies.`\
+https://nytimes.com/2024/08/21/business/google-california-news-funding.html
+
 **“Since the end of the Cold War in 1989, America has created about 51 million new jobs. I swear I checked this three times. Even I couldn’t believe it. What’s the score? Democrats 50, Republicans one.”**\
 `By Ana Swanson`\
 https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/since-the-end-of-the-cold-war-in-1989-america-has-created-about-51-million-new-jobs-i-swear-i-checked-this-three-times-whats-the
