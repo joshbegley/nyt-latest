@@ -1,36 +1,36 @@
+**'I just knew that I had to work for it': Kadyn Proctor talks his return to Alabama**\
+`Once back, he needed to ingratiate himself into the new culture. Now, with kickoff nearing, Proctor is starting to feel like he never left.`\
+https://nytimes.com/athletic/5716027/2024/08/22/kadyn-proctor-alabama-return/
+
+**Red Bull Salzburg complete signing of Clark from Liverpool**\
+`Red Bull Salzburg have completed the signing of midfielder Bobby Clark from Liverpool.`\
+https://nytimes.com/athletic/5716237/2024/08/22/bobby-clark-red-bull-salzburg-transfer-liverpool/
+
+**How NFL journeyman Josh McCown is a key facet of the Vikings' QB development plan**\
+`The longtime QB is taking the best lessons from his former coaches and working with Kevin O'Connell to generate signal caller success.`\
+https://nytimes.com/athletic/5714783/2024/08/22/minnesota-vikings-josh-mccown-jj-mccarthy-qb/
+
+**Sean Payton needed just 16 passes to know Bo Nix was his quarterback**\
+`The coach detailed the process that led the Broncos to Bo Nix, and the draft-night drama that unfolded before they got their guy.`\
+https://nytimes.com/athletic/5714309/2024/08/22/sean-payton-bo-nix-denver-broncos-draft-week-1-starter/
+
+**Top 5 Yankees stories of the week: Catch up on the most-read NY headlines**\
+`Catch up on the past week by checking out the most popular Yankees and MLB stories.`\
+https://nytimes.com/athletic/5714954/2024/08/22/top-5-yankees-stories-of-the-week-catch-up-on-the-most-read-ny-headlines/
+
+**Seven Browns players to watch in preseason finale vs. Seahawks**\
+`Who are some names you should know ahead of the preseason finale? And which players might be competing for spots on the 53-man roster? `\
+https://nytimes.com/athletic/5715386/2024/08/22/browns-preseason-finale-seahawks/
+
 **The Republican Plan to Challenge a Harris Victory**\
 `How a right-wing takeover of an obscure, unelected board in Georgia could swing the election.`\
 https://nytimes.com/2024/08/22/podcasts/the-daily/georgia-election-board.html
 
-**With Utah football 20 years on from a game-changing undefeated season, is the Playoff next?**\
-`Utah is the preseason pick to win the Big 12. It's known for a tenacious defense, a determined run game and, recently, a familiar QB. `\
-https://nytimes.com/athletic/5713197/2024/08/22/utah-college-football-playoff-projections-preview/
+**Zay Flowers wants to be great for Ravens, who need it from the wide receiver**\
+`Flowers isn't resting on the laurels of his strong rookie season as Baltimore, with Super Bowl aspirations, begins a tough AFC road.`\
+https://nytimes.com/athletic/5691939/2024/08/22/zay-flowers-ravens-lamar-jackson/
 
 **Commanders' 'athletic freak' Tyler Owens is performing out of this world**\
 `The rookie undrafted free agent who tested among the top safeties at the NFL combine has a solid chance to make Washington's 53-man roster.`\
 https://nytimes.com/athletic/5715486/2024/08/22/washington-commanders-tyler-owens/
-
-**If Bears thrive, expect assistant GM Ian Cunningham to be running his own team next year**\
-`Cunningham has worked alongside some of the best executives in the NFL. Now he's on the cusp of of achieving a lifelong goal.`\
-https://nytimes.com/athletic/5712058/2024/08/22/ian-cunningham-chicago-bears-general-manager/
-
-**The Connections Companion No. 439**\
-`Scroll down for hints and conversation about the puzzle for Friday, Aug. 23, 2024.`\
-https://nytimes.com/2024/08/22/crosswords/connections-companion-439.html
-
-**Wordle Review No. 1,161**\
-`Scroll down for hints and conversation about the puzzle for August 23, 2024.`\
-https://nytimes.com/2024/08/22/crosswords/wordle-review-1161.html
-
-**What to expect on the convention’s last night.**\
-`By Adam Nagourney`\
-https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/what-to-expect-on-the-conventions-last-night
-
-**D.N.C. Live Updates: Kamala Harris to Seal Her Nomination With High-Stakes Speech**\
-`Her acceptance speech will close the Democratic convention in Chicago, capping a week of the party’s biggest names making the case for Ms. Harris and her running mate, Tim Walz.`\
-https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news
-
-**Dynasty league deep sleepers: In search of the next De'Von Achane and Puka Nacua**\
-`Jeff Haverlack goes through his favorite high-upside targets going outside the first round of 2024 dynasty league rookie drafts.`\
-https://nytimes.com/athletic/5714666/2024/08/22/dynasty-league-deep-sleepers-fantasy-football-2024/
 
