@@ -1,3 +1,7 @@
+**An Ode to Bill Clinton**\
+`Though he has aged, the flashes of the old fire brought back warm memories.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/an-ode-to-bill-clinton
+
 **Joe Worrall helped give Nottingham Forest fans a reason to care again**\
 `Forest are waving goodbye to a player that provided a unique connection between supporters and their teams. He deserves to be lauded`\
 https://nytimes.com/athletic/5716224/2024/08/22/joe-worrall-nottingham-forest-burnley-departure/
