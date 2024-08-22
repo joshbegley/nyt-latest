@@ -1,3 +1,7 @@
+**Wemby's trajectory with Spurs, Zach Edey's impact on Grizzles and Southwest division rankings**\
+`Kelly Iko answers your questions about the Spurs, Rockets, Grizzlies and the rest of the Southwest Division in his latest mailbag. `\
+https://nytimes.com/athletic/5712613/2024/08/22/spurs-wembanyama-rockets-grizzlies-mailbag/
+
 **'I just knew that I had to work for it': Kadyn Proctor talks his return to Alabama**\
 `Once back, he needed to ingratiate himself into the new culture. Now, with kickoff nearing, Proctor is starting to feel like he never left.`\
 https://nytimes.com/athletic/5716027/2024/08/22/kadyn-proctor-alabama-return/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/22/podcasts/the-daily/georgia-election-board.html
 **Zay Flowers wants to be great for Ravens, who need it from the wide receiver**\
 `Flowers isn't resting on the laurels of his strong rookie season as Baltimore, with Super Bowl aspirations, begins a tough AFC road.`\
 https://nytimes.com/athletic/5691939/2024/08/22/zay-flowers-ravens-lamar-jackson/
-
-**Commanders' 'athletic freak' Tyler Owens is performing out of this world**\
-`The rookie undrafted free agent who tested among the top safeties at the NFL combine has a solid chance to make Washington's 53-man roster.`\
-https://nytimes.com/athletic/5715486/2024/08/22/washington-commanders-tyler-owens/
 
