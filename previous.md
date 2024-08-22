@@ -1,3 +1,7 @@
+**Trump Warms to Kennedy and Belittles Walz in Fox News Appearance**\
+`Donald J. Trump said he would welcome the endorsement of Robert F. Kennedy Jr., who is expected to end his presidential campaign.`\
+https://nytimes.com/2024/08/22/us/politics/trump-rfk-jr-walz-fox.html
+
 **6 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/08/22/books/review/new-books-recommendations.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/22/movies/between-the-temples-review.html
 **Miami (Ohio) coach says Alabama 'illegally recruited' kicker in transfer portal**\
 `Asked about having to replace former placekicker Graham Nicholson this week, Chuck Martin detailed his perspective on the transfer portal.`\
 https://nytimes.com/athletic/5717010/2024/08/22/miami-ohio-alabama-chuck-martin-graham-nicholson/
-
-**NFL makes in-person gambling policy education mandatory for players**\
-`Coaches, scouts, and all other team and league employees, including game officials and referees, also are required to receive the training.`\
-https://nytimes.com/athletic/5717096/2024/08/22/nfl-gambling-policy-education/
 

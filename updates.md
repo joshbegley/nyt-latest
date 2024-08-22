@@ -1,3 +1,7 @@
+**Trump Warms to Kennedy and Belittles Walz in Fox News Appearance**\
+`Donald J. Trump said he would welcome the endorsement of Robert F. Kennedy Jr., who is expected to end his presidential campaign.`\
+https://nytimes.com/2024/08/22/us/politics/trump-rfk-jr-walz-fox.html
+
 **6 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/08/22/books/review/new-books-recommendations.html
