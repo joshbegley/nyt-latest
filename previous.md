@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Shanshan**\
+`See the likely path and wind arrival times for Shanshan.`\
+https://nytimes.com/interactive/2024/08/22/weather/shanshan-map-path-tracker.html
+
 **An Economic Soft Landing, or a Rockies Letdown?**\
 `Investors are anxiously awaiting Jerome Powell’s policy speech at a symposium in Jackson Hole, Wyo. on Friday, as labor data suggests the economy is slowing.`\
 https://nytimes.com/2024/08/22/business/dealbook/soft-landing-powell-jackson-hole.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/22/world/europe/ukraine-russia-war-kursk-incursion-p
 **Watford in advanced talks to sign Antwerp's Dwomoh**\
 `Watford are in advanced talks with Royal Antwerp over the signing of Pierre Dwomoh.`\
 https://nytimes.com/athletic/5716358/2024/08/22/pierre-dwomoh-watford-transfers/
-
-**Man United's Oyedele set for Legia Warsaw transfer**\
-`Manchester United midfielder Maxi Oyedele is set to join Polish club Legia Warsaw on a permanent basis.`\
-https://nytimes.com/athletic/5716323/2024/08/22/maxi-oyedele-man-united-transfers/
 
