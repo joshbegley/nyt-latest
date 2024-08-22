@@ -1,3 +1,7 @@
+**An Easy Vegetarian Dinner That Starts With Corn**\
+`Seared on a sheet pan with crisp pillows of tofu and green chiles, corn kernels are the center of this summery recipe.`\
+https://nytimes.com/2024/08/22/dining/easy-vegetarian-corn-dinner.html
+
 **Everything You Need to Know About the 2024 U.S. Open**\
 `The tournament runs Aug. 26 to Sept. 8 at the Billie Jean King National Tennis Center in New York City.`\
 https://nytimes.com/2024/08/22/sports/us-open-guide-tennis.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5716588/2024/08/22/danilo-injury-surgery-nottingham
 **Everton potentially down to 14 fit players with Tarkowski a doubt for Spurs**\
 `Everton manager Sean Dyche has admitted his squad is already “stretched” just a week into the new season, with a fresh injury concern over James Tarkowski potentially leaving them with as few as 14 available first-team players for Saturday’s trip to Tottenham Hotspur.`\
 https://nytimes.com/athletic/5716566/2024/08/22/everton-team-news-tarkowski-branthwaite-injury/
-
-**Until Saturday: Week 0 is here, plus a 12-team Playoff projection**\
-`Welcome to Until Saturday, the five-star college football newsletter: We have games this week and a Playoff bracket prediction.`\
-https://nytimes.com/athletic/5715447/2024/08/22/college-football-week-o-cfp-bracket-until-saturday/
 
