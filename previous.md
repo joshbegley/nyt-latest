@@ -1,3 +1,11 @@
+**For Harris, the Senate Was a Springboard and a Chance to Form Alliances**\
+`The vice president forged important relationships in her four years on Capitol Hill, but she cast some of her most significant votes after moving to the White House.`\
+https://nytimes.com/2024/08/22/us/politics/kamala-harris-senate.html
+
+**Noah Lyles would accept Tyreek Hill's challenge in 'legit' race**\
+`Lyles said he'd race Hill only if it was a 100-meter dash.`\
+https://nytimes.com/athletic/5716627/2024/08/22/noah-lyles-tyreek-hill-race/
+
 **Arsenal reach Mikel Merino agreement with Real Sociedad**\
 `Arsenal have reached an agreement in principle to sign Mikel Merino from Real Sociedad.`\
 https://nytimes.com/athletic/5700950/2024/08/22/arsenal-mikel-merino-transfer-agree-real-sociedad/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/22/us/elections/john-edwards-dnc.html
 **Leicester agree fee with Palace for Ayew**\
 `Leicester City have agreed a fee with Crystal Palace for striker Jordan Ayew.`\
 https://nytimes.com/athletic/5700254/2024/08/22/jordan-ayew-leicester-transfer/
-
-**Uncommitted Delegates Call For a Palestinian Voice on D.N.C. Stage**\
-`Sabrene Odeh, 29, an uncommitted delegate from Washington State, said the group is pushing for a speaker of Palestinian descent address the Democratic National Convention from the main stage.`\
-https://nytimes.com/video/us/politics/100000009652042/uncommitted-delegates-dnc-palestinians-gaza.html
-
-**A Recipe for When You Want a Sandwich but Should Maybe Eat a Salad**\
-`Behold: Kia Damon’s easy and satisfying chicken gyro chopped salad.`\
-https://nytimes.com/2024/08/22/dining/chicken-gyro-salad.html
 
