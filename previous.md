@@ -1,3 +1,7 @@
+**Wednesday Night Lights: To Vouch for Coach Walz, His Old Players Step Up**\
+`Fifteen men clad in football jerseys took the stage at the Democratic National Convention as the Mankato West High School fight song played.`\
+https://nytimes.com/2024/08/22/us/politics/football-players-walz-dnc.html
+
 **Why These 15 Young Voters Aren't Rushing to Kamala Harris Like Their Peers**\
 `Participants discuss what it would take for Harris or Trump to win their votes.`\
 https://nytimes.com/interactive/2024/08/22/opinion/young-voters-focus-group.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/22/us/politics/tim-walz-dnc-speech-transcript.html
 **Poise, intelligence and a perfect partner to Winks - what Skipp brings to Leicester**\
 `Leicester are short in other areas but Cooper pushed for midfielder Skipp's arrival - will he now get the players he wants in attack?`\
 https://nytimes.com/athletic/5713923/2024/08/22/oliver-skipp-leicester-transfer/
-
-**Captaincy emboldens Bruno Guimaraes - and lifts all of Newcastle United**\
-`Handing the talismanic midfielder the armband makes sense - Eddie Howe has rewarded loyalty and Guimaraes' growing maturity`\
-https://nytimes.com/athletic/5713725/2024/08/22/bruno-guimaraes-newcastle-united-captain/
 

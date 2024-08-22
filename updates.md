@@ -1,3 +1,7 @@
+**Wednesday Night Lights: To Vouch for Coach Walz, His Old Players Step Up**\
+`Fifteen men clad in football jerseys took the stage at the Democratic National Convention as the Mankato West High School fight song played.`\
+https://nytimes.com/2024/08/22/us/politics/football-players-walz-dnc.html
+
 **Why These 15 Young Voters Aren't Rushing to Kamala Harris Like Their Peers**\
 `Participants discuss what it would take for Harris or Trump to win their votes.`\
 https://nytimes.com/interactive/2024/08/22/opinion/young-voters-focus-group.html
