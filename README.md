@@ -10,6 +10,10 @@ https://nytimes.com/athletic/5715568/2024/08/22/raiders-udfa-carter-bradley-will
 `The 49ers defense features a big load of talent and has, so far, stayed relatively healthy. Now, the roster cutdown is coming. `\
 https://nytimes.com/athletic/5710655/2024/08/22/49ers-training-camp-defensive-roster/
 
+**Golden Knights fan survey: Which player is most important? How confident do you feel?**\
+`How long will Vegas' championship window remain open? How confident are you in the front office and Bruce Cassidy?`\
+https://nytimes.com/athletic/5715631/2024/08/22/golden-knights-offseason-playoffs/
+
 **Russia Pushes Forward in Ukraine’s East as Kursk Offensive Slows**\
 `The Ukrainians must defend a critical front in their country’s east, including the city of Pokrovsk, while trying to press forward in western Russia.`\
 https://nytimes.com/2024/08/22/world/europe/ukraine-russia-war-kursk-incursion-pokrovsk.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5715418/2024/08/22/nwsl-cba-players-union/
 **A Film Festival Founded in a War Zone, Still Going Strong**\
 `The Sarajevo Film Festival, now 30 years old, grew out of underground screenings during the siege of the city. Those roots still define the event’s character.`\
 https://nytimes.com/2024/08/22/movies/sarajevo-film-festival.html
-
-**Trippier wants to leave Newcastle, Everton interested**\
-`Kieran Trippier wants to leave Newcastle United before the transfer window closes, with Everton among the clubs keen to sign the England full-back.`\
-https://nytimes.com/athletic/5716282/2024/08/22/newcastle-transfer-kieran-trippier-everton/
 
