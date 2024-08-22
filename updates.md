@@ -1,3 +1,11 @@
+**Michigan Doctor Accused of Recording Nude Images in Hospitals and Changing Rooms**\
+`Dr. Oumair Aejaz recorded women and children in a swimming school’s changing room, the police said. The authorities also say he filmed patients in hospitals.`\
+https://nytimes.com/2024/08/22/us/dr-oumair-aejaz-detroit-charged.html
+
+**Convention Insider: Bernie Sanders Is in on the Joke**\
+`Mr. Sanders, the curmudgeonly senator from Vermont, is exuding something like optimism about the future of the progressive movement.`\
+https://nytimes.com/2024/08/22/us/politics/bernie-sanders-dnc.html
+
 **Yankees’ Alex Verdugo addresses brutal slump: ‘Going through (expletive)’**\
 `Verdugo’s long-running struggles appear to be weighing on him as much as ever.`\
 https://nytimes.com/athletic/5717988/2024/08/22/alex-verdugo-yankees-slump/
