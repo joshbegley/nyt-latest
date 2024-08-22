@@ -1,3 +1,7 @@
+**How Black women commanded the convention.**\
+`By Maya King`\
+https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/how-black-women-commanded-the-convention
+
 **‘The Crow’ Review: Resurrected and It Feels So Bad**\
 `Hoping to skate by off moody vibes, this revamp of “The Crow” comic book series seems derived from a flattened, Hot Topic image of the hero.`\
 https://nytimes.com/2024/08/22/movies/the-crow-review.html

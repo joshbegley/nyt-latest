@@ -1,3 +1,7 @@
+**How Black women commanded the convention.**\
+`By Maya King`\
+https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/how-black-women-commanded-the-convention
+
 **‘The Crow’ Review: Resurrected and It Feels So Bad**\
 `Hoping to skate by off moody vibes, this revamp of “The Crow” comic book series seems derived from a flattened, Hot Topic image of the hero.`\
 https://nytimes.com/2024/08/22/movies/the-crow-review.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/22/opinion/kamala-harris-trump-crime.html
 **At the border, Trump goes after Harris on immigration but continues personal insults.**\
 `Donald Trump claimed Kamala Harris lacked the work ethic to handle immigration. He’s been urged by some Republicans to focus more on policy, but he’s defended his continued personal attacks.`\
 https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/at-the-border-trump-goes-after-harris-on-immigration-but-continues-personal-insults
-
-**Michigan Doctor Accused of Recording Nude Images in Hospitals and Changing Rooms**\
-`Dr. Oumair Aejaz recorded women and children in a swimming school’s changing room, the police said. The authorities also say he filmed patients in hospitals.`\
-https://nytimes.com/2024/08/22/us/dr-oumair-aejaz-detroit-charged.html
 
