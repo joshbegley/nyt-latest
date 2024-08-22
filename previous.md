@@ -1,3 +1,7 @@
+**Counting All the Fish in the Sea May Be Even Trickier Than Scientists Thought**\
+`A new study suggests that estimates of the health of the world’s fisheries may be too optimistic.`\
+https://nytimes.com/2024/08/22/climate/fish-stocks-overcounting.html
+
 **Venezuela’s Supreme Court, Loyal to Maduro, Rules Him Election Winner**\
 `The court did not share voting data to back up its decision despite demands from Venezuelans and international election observers that the government produce evidence of his victory.`\
 https://nytimes.com/2024/08/22/world/americas/venezuela-supreme-court-maduro-election.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5717181/2024/08/22/rutger-mcgroarty-brayden-yager-t
 **Which Democrats Landed Coveted Slots for the Final Night of the D.N.C.?**\
 `Vice President Kamala Harris will accept the party’s nomination for president to close out the convention in Chicago.`\
 https://nytimes.com/2024/08/22/us/politics/dnc-speaker-schedule-final-night.html
-
-**Counting All the Fish in the Sea May Be Even Trickier Than Scientists Thought**\
-`A new study suggests that estimates of the health of the world’s fisheries may be too optimistic.`\
-https://nytimes.com/2024/08/22/climate/fish-stocks-overcounting.html
 
