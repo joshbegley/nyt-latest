@@ -12,7 +12,7 @@ https://nytimes.com/athletic/5717495/2024/08/22/jason-heyward-designated-for-ass
 
 **The deeper meaning behind Beyoncé’s ‘Freedom,’ the Harris campaign anthem.**\
 `By Salamishah Tillet`\
-https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/the-deeper-meaning-behind-beyonces-freedom-the-harris-campaign-anthem
+https://nytimes.com/2024/08/22/us/politics/beyonce-freedom-kamala-harris.html
 
 **Second-Largest Diamond Ever Found Is Discovered in Botswana**\
 `The diamond was unearthed using new technology, and miners hope it will bring back luster to a struggling industry.`\
