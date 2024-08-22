@@ -1,3 +1,5 @@
+**The crew of a stricken tanker is evacuated in the Red Sea, and other news.**\
+
 **Our Reporter on the Biggest Speech of Tim Walz’s Career**\
 `Gov.`\
 https://nytimes.com/video/us/elections/100000009651540/tim-walz-dnc-speech-analysis.html
