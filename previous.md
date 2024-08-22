@@ -1,3 +1,7 @@
+**“Since the end of the Cold War in 1989, America has created about 51 million new jobs. I swear I checked this three times. What’s the score? Democrats 50, Republicans one.”**\
+`By Ana Swanson`\
+https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/since-the-end-of-the-cold-war-in-1989-america-has-created-about-51-million-new-jobs-i-swear-i-checked-this-three-times-whats-the
+
 **The vice-presidential nominee’s home state has the largest bloc of ‘uncommitted’ delegates.**\
 `By Charles Homans`\
 https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/the-vice-presidential-nominees-home-state-has-the-largest-bloc-of-uncommitted-delegates
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/bill-clinton-is-giv
 **Jets dominate, then taunt Giants: 'They can do that. They won on the day'**\
 `The intensity the Giants displayed in practices with the Lions earlier in camp was mostly absent from Wednesday's practice with the Jets.`\
 https://nytimes.com/athletic/5715797/2024/08/21/new-york-giants-jets-practice-taunt/
-
-**Jeffrey A Sinclair**\
-`News about Jeffrey A Sinclair. Commentary and archival information about Jeffrey A Sinclair from The New York Times.`\
-https://nytimes.com/topic/jeffrey-a-sinclair
 
