@@ -1,3 +1,11 @@
+**Russian Attitudes About Putin Might Be Shifting**\
+`Negative remarks on social media have increased since Ukrainian troops launched an incursion, according to a firm that tracks Russian attitudes.`\
+https://nytimes.com/2024/08/22/us/politics/russia-putin-attitudes-social-media.html
+
+**Liverpool's Van den Berg set for Brentford medical**\
+`Sepp van den Berg is set for a medical at Brentford ahead of his proposed transfer from Liverpool.`\
+https://nytimes.com/athletic/5712168/2024/08/22/liverpool-van-den-berg-brentford-transfer/
+
 **30-Year Mortgage Rate Dips to 6.46%; Home Sales Rise**\
 `Home buyers this week saw the lowest average rate since early 2023, and existing-home sales rebounded in July. Analysts predict more relief ahead.`\
 https://nytimes.com/2024/08/22/business/economy/mortgage-rates-august.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5475262/2024/08/22/2024-fantasy-football-cheat-shee
 **Intuit Dome: Where Art Competes With Hot Dogs, Beer and Busy Fans**\
 `At the impressive new home of the Los Angeles Clippers, new artworks foster a community spirit. But there are no outright slam dunks here.`\
 https://nytimes.com/2024/08/22/arts/design/intuit-dome-clippers-stadium-public-art.html
-
-**The Meaning — and Power — of Kamala Harris’s Smile**\
-`Hers is a deliberate sparkle. Not unlike … Ronald Reagan’s.`\
-https://nytimes.com/2024/08/22/opinion/kamala-harris-joy.html
-
-**What Canada’s Rail Shutdown Could Mean for Trade**\
-`Rail labor disruptions in Canada tend to be brief, but a prolonged stoppage could hurt farmers, automakers and other businesses.`\
-https://nytimes.com/2024/08/22/business/economy/canada-rail-strike-us-economy.html
 
