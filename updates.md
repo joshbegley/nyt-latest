@@ -1,3 +1,11 @@
+**Yohe: With McGroarty trade, Dubas starts to hit stride**\
+`Dubas made one of his biggest moves since taking control of the Penguins, and it looks like a very good deal for now and the future.`\
+https://nytimes.com/athletic/5717235/2024/08/22/penguins-rutger-mcgroarty-trade-kyle-dubas/
+
+**Families say hostage autopsies reveal bullets, raising new questions about captives’ deaths.**\
+`By Ephrat Livni and Johnatan Reiss`\
+https://nytimes.com/live/2024/08/22/world/israel-hamas-iran-gaza-war/families-say-hostage-autopsies-reveal-bullets-raising-new-questions-about-captives-deaths
+
 **The Meaning Behind Beyoncé’s ‘Freedom,’ the Harris Campaign Anthem**\
 `The song is a driving force behind Vice President Kamala Harris’s latest campaign ad. But the song’s origins offer deeper significance for a candidate hoping to make history.`\
 https://nytimes.com/2024/08/22/us/politics/beyonce-freedom-kamala-harris.html
