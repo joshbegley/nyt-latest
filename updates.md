@@ -1,3 +1,7 @@
+**Giants crack under the pressure in damaging loss to White Sox: 'We came out flat'**\
+`"(W)e all have to put our heads down and we have to win every game. You can't say that, right? But you've got to think that way," Webb said.`\
+https://nytimes.com/athletic/5715674/2024/08/21/sf-giants-loss-white-sox/
+
 **The Democrats’ Answer to Hulk Hogan**\
 `Tim Walz will embody his party’s retort to the mega-masculinity of Trumpism on display last month.`\
 https://nytimes.com/2024/08/21/us/politics/the-democrats-answer-to-hulk-hogan.html
