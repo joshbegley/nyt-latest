@@ -1,3 +1,7 @@
+**In Majorca, a One-Room Home With Sheep for Neighbors**\
+`How a couple transformed a tumbledown shepherd’s hut into a spare but functional retreat with views of the Balearic Sea.`\
+https://nytimes.com/2024/08/22/t-magazine/majorca-home.html
+
 **What Drives Kamala Harris: The Art of the Possible**\
 `As she prepares to formally accept the Democratic nomination on Thursday night, what the vice president may be offering the nation is a future defined by the fine print.`\
 https://nytimes.com/2024/08/22/us/politics/kamala-harris-policy-change.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/22/us/politics/kamala-harris-senate.html
 **Noah Lyles would accept Tyreek Hill's challenge in 'legit' race**\
 `Lyles said he'd race Hill only if it was a 100-meter dash.`\
 https://nytimes.com/athletic/5716627/2024/08/22/noah-lyles-tyreek-hill-race/
-
-**Arsenal reach Merino agreement with Real Sociedad**\
-`Arsenal have reached an agreement in principle to sign Mikel Merino from Real Sociedad.`\
-https://nytimes.com/athletic/5700950/2024/08/22/arsenal-mikel-merino-transfer-agree-real-sociedad/
 
