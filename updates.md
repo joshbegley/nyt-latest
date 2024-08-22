@@ -1,3 +1,7 @@
+**Veterans Say Attacks on Candidates’ Service Records Are a Turnoff**\
+`Many veterans say that disparaging an opponent’s military service, as JD Vance has done with Tim Walz, is unhelpful, and they want to hear about current issues instead.`\
+https://nytimes.com/2024/08/22/us/veterans-walz-vance-record.html
+
 **End the Meal With Dessert (At Another Restaurant)**\
 `Sometimes restaurant dessert menus can be lacking. Luckily, there’s always a better option not too far away.`\
 https://nytimes.com/2024/08/22/dining/end-the-meal-with-dessert-at-another-restaurant.html
