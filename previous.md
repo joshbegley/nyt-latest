@@ -1,3 +1,19 @@
+**Bill Clinton’s Quiet Warning**\
+`His tone was warm, relaxed, conversational and uplifting.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/bill-clinton-dnc-speech
+
+**Josh Shapiro, a finalist to be Harris’s running mate, makes his case for her.**\
+`By Nicholas Nehamas`\
+https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/josh-shapiro-kamala-harris-dnc
+
+**Nancy Pelosi, Mother of Dragons**\
+`There’s no contest between viability and sentimentality.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/dowd-pelosi-dragons-biden
+
+**The Trump campaign attacked Walz’s service record. It backfired.**\
+`By Michael C. Bender`\
+https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/the-trump-campaign-attacked-walzs-service-record-it-backfired
+
 **Oprah Winfrey Speaks at D.N.C., Revealing Short Film on the American Dream**\
 `The appearance was kept under wraps until the talk-show host turned billionaire media mogul stepped onstage, to deafening cheers from her hometown crowd.`\
 https://nytimes.com/2024/08/21/us/politics/oprah-winfrey-kamala-harris-dnc.html
@@ -17,20 +33,4 @@ https://nytimes.com/2024/08/21/business/google-california-news-funding.html
 **“Since the end of the Cold War in 1989, America has created about 51 million new jobs. I swear I checked this three times. Even I couldn’t believe it. What’s the score? Democrats 50, Republicans one.”**\
 `By Ana Swanson`\
 https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/since-the-end-of-the-cold-war-in-1989-america-has-created-about-51-million-new-jobs-i-swear-i-checked-this-three-times-whats-the
-
-**The vice-presidential nominee’s home state has the largest bloc of ‘uncommitted’ delegates.**\
-`By Charles Homans`\
-https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/the-vice-presidential-nominees-home-state-has-the-largest-bloc-of-uncommitted-delegates
-
-**Tough Nut to Crack**\
-`Brad Wiegmann’s puzzle theme is hard to pronounce.`\
-https://nytimes.com/2024/08/21/crosswords/daily-puzzle-2024-08-22.html
-
-**“Trump was the mastermind of the G.O.P. tax scam where 83 percent of the benefits went to the wealthiest 1 percent in America.”**\
-`By Andrew Duehren`\
-https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/trump-was-the-mastermind-of-the-gop-tax-scam-where-83-percent-of-the-benefits-went-to-the-wealthiest-1-percent-in-america
-
-**Tina Charles moves into second on WNBA all-time scoring list**\
-`Charles claimed second on the list while playing against the WNBA all-time points leader Diana Taurasi, who has 10,500 points.`\
-https://nytimes.com/athletic/5715853/2024/08/21/tina-charles-wnba-all-time-scoring-list/
 
