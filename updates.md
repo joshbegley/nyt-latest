@@ -1,3 +1,7 @@
+**Autopsies of Israeli Hostages Recovered From Gaza Reveal Bullets, Families Say**\
+`The revelation raised new questions about how the hostages were killed while in captivity.`\
+https://nytimes.com/2024/08/22/world/middleeast/israeli-hostages-autopsies.html
+
 **U.S. Open draw 2024: Luck for Djokovic? Relief for Swiatek? Danger for Raducanu**\
 `The fourth Grand Slam begins on Monday, and the draws offer some blockbuster first-round matches as well as intrigue`\
 https://nytimes.com/athletic/5717411/2024/08/22/us-open-draw-2024-djokovic-alcaraz-sinner-raducanu-osaka/
