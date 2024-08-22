@@ -1,3 +1,15 @@
+**How Real Madrid built a super squad: The plan and people behind a new Galactico era**\
+`Kylian Mbappe, Jude Bellingham, Vinicius Jr, Rodrygo - Madrid's squad is packed full of talent. This is how they put it together`\
+https://nytimes.com/athletic/5712413/2024/08/22/real-madrid-mbappe-vinicius-rodrygo-bellingham-perez-ancelotti/
+
+**Rico Lewis has made superb progress but his limited game time is understandable**\
+`The 19-year-old has been a revelation under Pep Guardiola but due to his size and fierce competition for places, his rotation makes sense`\
+https://nytimes.com/athletic/5714399/2024/08/22/rico-lewis-manchester-city-progress/
+
+**How De Ligt deal was sealed by Ten Hag texts, a perfect profile and lifelong love**\
+`The Dutch defender's move to Old Trafford is the realisation of a long-held personal ambition - this is how it happened`\
+https://nytimes.com/athletic/5705404/2024/08/22/matthijs-de-ligt-manchester-united-inside-deal/
+
 **Van Dijk's Liverpool contract: What's going on?**\
 `What we're hearing about the Anfield captain's future as the clock ticks down on his current deal`\
 https://nytimes.com/athletic/5713729/2024/08/22/virgil-van-dijk-liverpool-contract-latest/
@@ -20,17 +32,5 @@ https://nytimes.com/athletic/5716016/2024/08/22/kirk-ferentz-jon-budmayr-iowa-co
 
 **“Page 451 says the only legitimate family is a married mother and father where only the father works.”**\
 `By Linda Qiu`\
-https://nytimes.com/2024/08/22/us/page-451-says-the-only-legitimate-family-is-a-married-mother-and-father-where-only-the-father-works.html
-
-**19 Things Seen and Heard at the Convention**\
-`Illustrated scenes and thoughts from delegates and others at the Democratic Convention.`\
-https://nytimes.com/interactive/2024/08/22/us/politics/dnc-quotes-conversation.html
-
-**Joao Felix has hard work ahead of him to convince Chelsea fans - but why?**\
-`Joao Felix's return to Chelsea has been met with indifference from their supporters - he has a point to prove to a sceptical fanbase`\
-https://nytimes.com/athletic/5711444/2024/08/22/joao-felix-has-hard-work-ahead-of-him-to-convince-chelsea-fans-but-why/
-
-**New ideas, adaptation, evolution - how the best Premier League managers stay one step ahead**\
-`What seemed novel 20 years ago is the minimum requirement to excel in football nowadays - continued success requires constant evolution`\
-https://nytimes.com/athletic/5711563/2024/08/22/premier-league-manangers-evolution/
+https://nytimes.com/live/2024/08/22/us/dnc-fact-check/page-451-says-the-only-legitimate-family-is-a-married-mother-and-father-where-only-the-father-works
 
