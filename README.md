@@ -1,3 +1,19 @@
+**Biden said that talks in Cairo could ‘remove any remaining obstacles,’ but Israel and Hamas are skeptical.**\
+`By Isabel Kershner`\
+https://nytimes.com/live/2024/08/22/world/israel-hamas-iran-gaza-war/biden-said-that-talks-in-cairo-could-remove-any-remaining-obstacles-but-israel-and-hamas-are-skeptical
+
+**Officials Try to Salvage Negotiations for a Cease-Fire in Gaza**\
+`Biden said that talks in Cairo could “remove any remaining obstacles,” but Israel and Hamas are skeptical.`\
+https://nytimes.com/live/2024/08/22/world/israel-hamas-iran-gaza-war
+
+**Babe Ruth's 'called shot' jersey could break auction records. Experts are mixed on its authenticity**\
+`The jersey is expected to become the most expensive game-worn sports memorabilia in history, but authenticating it has been somewhat tricky.`\
+https://nytimes.com/athletic/5712554/2024/08/22/babe-ruths-called-shot-jersey-auction/
+
+**SEC win projections, best bets: Georgia is the top dog, but how will Texas and OU adapt?**\
+`Austin Mock's projection model looks at the SEC and has win totals and conference title chances for all 16 teams in the league.`\
+https://nytimes.com/athletic/5714760/2024/08/22/sec-win-projections-best-bets/
+
 **Sevilla set to sign Brighton's Valentin Barco in loan transfer**\
 `Sevilla are negotiating a deal to sign Brighton defender Valentin Barco on loan.`\
 https://nytimes.com/athletic/5713816/2024/08/22/valentin-barco-loan-transfer-sevilla-brighton/
@@ -17,20 +33,4 @@ https://nytimes.com/interactive/2024/08/22/realestate/socal-home-buying-orange-c
 **Jennifer Lopez Is Becoming an Elizabeth Taylor for a New Generation**\
 `“I resented my fame,” Taylor said, “until I realized I could use it.”`\
 https://nytimes.com/2024/08/22/opinion/jlo-ben-affleck-divorce.html
-
-**23 Lesser-Known Facts About Kamala Harris**\
-`Beyond the headlines, Ms. Harris has taken ballet, collected Converse sneakers and felt the influence of her grandfather, a diplomat.`\
-https://nytimes.com/2024/08/22/us/elections/kamala-harris-facts.html
-
-**In Copenhagen, a Rooftop With a Farm and a Bar**\
-`Plus: a forest-inspired perfume, a Derrick Adams exhibition and more recommendations from T Magazine.`\
-https://nytimes.com/2024/08/22/t-magazine/in-copenhagen-a-rooftop-with-a-farm-and-a-bar.html
-
-**Is India a Safe Place for Women? Another Brutal Killing Raises the Question.**\
-`The rape and murder of a trainee doctor at her own hospital has brought up, once again, uncomfortable truths about a country that wants to be a global leader.`\
-https://nytimes.com/2024/08/22/world/asia/india-women-safety-rape.html
-
-**Where Harris Has Gained and Lost Support Compared With Biden**\
-`Gains among women are one example of her distinctive mark on the race.`\
-https://nytimes.com/2024/08/22/upshot/kamala-harris-polling-groups.html
 
