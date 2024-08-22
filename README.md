@@ -1,3 +1,7 @@
+**Joe Worrall helped give Nottingham Forest fans a reason to care again**\
+`Forest are waving goodbye to a player that provided a unique connection between supporters and their teams. He deserves to be lauded`\
+https://nytimes.com/athletic/5716224/2024/08/22/joe-worrall-nottingham-forest-burnley-departure/
+
 **Kennedy’s Decision Is Unlikely to Change the Race Dramatically**\
 `Robert F. Kennedy Jr.’s support had started to fall long before Kamala Harris stepped in as the Democratic nominee, and in polls his backers say they are less likely to vote.`\
 https://nytimes.com/2024/08/22/us/elections/kennedy-dropout-polls.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5717180/2024/08/22/la-rams-matthew-stafford-practic
 **Convention Insider: This Union Leader Is a Hug Machine**\
 `Lee Saunders, the president of the American Federation of State, County and Municipal Employees, is in high spirits at a convention where union leaders have been treated well.`\
 https://nytimes.com/2024/08/22/us/politics/lee-saunders-afscme-democratic-convention.html
-
-**An Ode to Bill Clinton**\
-`Though he has aged, the flashes of the old fire brought back warm memories.`\
-https://nytimes.com/live/2024/08/20/opinion/thepoint/an-ode-to-bill-clinton
 
