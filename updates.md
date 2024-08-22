@@ -1,3 +1,11 @@
+**Russian Attitudes About Putin Might Be Shifting**\
+`Negative remarks on social media have increased since Ukrainian troops launched an incursion, according to a firm that tracks Russian attitudes.`\
+https://nytimes.com/2024/08/22/us/politics/russia-putin-attitudes-social-media.html
+
+**Liverpool's Van den Berg set for Brentford medical**\
+`Sepp van den Berg is set for a medical at Brentford ahead of his proposed transfer from Liverpool.`\
+https://nytimes.com/athletic/5712168/2024/08/22/liverpool-van-den-berg-brentford-transfer/
+
 **30-Year Mortgage Rate Dips to 6.46%; Home Sales Rise**\
 `Home buyers this week saw the lowest average rate since early 2023, and existing-home sales rebounded in July. Analysts predict more relief ahead.`\
 https://nytimes.com/2024/08/22/business/economy/mortgage-rates-august.html
