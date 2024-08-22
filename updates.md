@@ -1,3 +1,19 @@
+**Convention Insider: The Unexpected Reappearance of John Edwards**\
+`Once a rising star, Mr. Edwards’s political career evaporated amid  scandal. And yet, there he was, reconnecting with old associates at the Democratic convention.`\
+https://nytimes.com/2024/08/22/us/elections/john-edwards-dnc.html
+
+**Leicester agree fee with Palace for Ayew**\
+`Leicester City have agreed a fee with Crystal Palace for striker Jordan Ayew.`\
+https://nytimes.com/athletic/5700254/2024/08/22/jordan-ayew-leicester-transfer/
+
+**Uncommitted Delegates Call For a Palestinian Voice on D.N.C. Stage**\
+`Sabrene Odeh, 29, an uncommitted delegate from Washington State, said the group is pushing for a speaker of Palestinian descent address the Democratic National Convention from the main stage.`\
+https://nytimes.com/video/us/politics/100000009652042/uncommitted-delegates-dnc-palestinians-gaza.html
+
+**A Recipe for When You Want a Sandwich but Should Maybe Eat a Salad**\
+`Behold: Kia Damon’s easy and satisfying chicken gyro chopped salad.`\
+https://nytimes.com/2024/08/22/dining/chicken-gyro-salad.html
+
 **A Recipe for When You Want a Sandwich but Should Maybe Eat a Salad**\
 `Behold: Kia Damon’s easy and satisfying chicken gyro chopped salad.`\
 https://nytimes.com/2024/08/22/dining/a-recipe-for-when-you-want-a-sandwich-but-should-maybe-eat-a-salad.html
