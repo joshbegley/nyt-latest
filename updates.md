@@ -1,3 +1,7 @@
+**Many Climate Policies Struggle to Cut Emissions, Study Finds**\
+`The most effective ones tend to combine several emissions-cutting strategies, not a stand-alone approach, according to an examination of 1,500 policies globally.`\
+https://nytimes.com/2024/08/22/climate/climate-policies.html
+
 **Israeli evacuation orders force thousands of Palestinians to flee parts of central Gaza again.**\
 `By Raja Abdulrahim and Abu Bakr Bashir`\
 https://nytimes.com/live/2024/08/22/world/israel-hamas-iran-gaza-war/israeli-evacuation-orders-force-thousands-of-palestinians-to-flee-parts-of-central-gaza-again

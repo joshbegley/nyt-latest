@@ -1,3 +1,7 @@
+**Many Climate Policies Struggle to Cut Emissions, Study Finds**\
+`The most effective ones tend to combine several emissions-cutting strategies, not a stand-alone approach, according to an examination of 1,500 policies globally.`\
+https://nytimes.com/2024/08/22/climate/climate-policies.html
+
 **Israeli evacuation orders force thousands of Palestinians to flee parts of central Gaza again.**\
 `By Raja Abdulrahim and Abu Bakr Bashir`\
 https://nytimes.com/live/2024/08/22/world/israel-hamas-iran-gaza-war/israeli-evacuation-orders-force-thousands-of-palestinians-to-flee-parts-of-central-gaza-again
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/22/health/covid-booster-vaccines.html
 **The Hot Accessory at the D.N.C.? Accessories.**\
 `Democrats wore blue nails, hats and pearls to show their support for Vice President Kamala Harris.`\
 https://nytimes.com/2024/08/22/style/dnc-fashion-photos.html
-
-**Is Bounce: Is Zion Williamson in his best shape ever?**\
-`Zach Harper and Shams Charania catch you up on leaguewide news.`\
-https://nytimes.com/athletic/5714934/2024/08/22/zion-williamson-pelicans-nba-slam-magazine-the-bounce/
 
