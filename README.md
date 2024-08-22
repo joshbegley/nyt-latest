@@ -10,8 +10,8 @@ https://nytimes.com/2024/08/22/us/tyre-nichols-officer-plea.html
 `Heyward has hit .197/.254/.344 with just two home runs since the start of July.`\
 https://nytimes.com/athletic/5717495/2024/08/22/jason-heyward-designated-for-assignment-dodgers/
 
-**The deeper meaning behind Beyoncé’s ‘Freedom,’ the Harris campaign anthem.**\
-`By Salamishah Tillet`\
+**The Meaning Behind Beyoncé’s ‘Freedom,’ the Harris Campaign Anthem**\
+`The song is a driving force behind Vice President Kamala Harris’s latest campaign ad. But the song’s origins offer deeper significance for a candidate hoping to make history.`\
 https://nytimes.com/2024/08/22/us/politics/beyonce-freedom-kamala-harris.html
 
 **Second-Largest Diamond Ever Found Is Discovered in Botswana**\

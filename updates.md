@@ -1,3 +1,7 @@
+**The deeper meaning behind Beyoncé’s ‘Freedom,’ the Harris campaign anthem.**\
+`By Salamishah Tillet`\
+https://nytimes.com/2024/08/22/us/politics/beyonce-freedom-kamala-harris.html
+
 **Gus Walz Let It All Out During His Father’s Convention Speech**\
 `The 17-year-old’s tearful support for his father, Gov. Tim Walz, inspired a hashtag (#ThatsMyDad) and partisan bickering on social media.`\
 https://nytimes.com/2024/08/22/style/gus-walz-dnc-social-media.html
