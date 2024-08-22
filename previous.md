@@ -1,3 +1,7 @@
+**‘The Crow’ Review: Resurrected and It Feels So Bad**\
+`Hoping to skate by off moody vibes, this revamp of “The Crow” comic book series seems derived from a flattened, Hot Topic image of the hero.`\
+https://nytimes.com/2024/08/22/movies/the-crow-review.html
+
 **Volcano Erupts Near Fishing Town in Iceland**\
 `The latest eruption, the sixth since December, is part of increased volcanic activity that began in 2021.`\
 https://nytimes.com/2024/08/22/world/europe/iceland-volcano-eruption.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/at-the-border-tr
 **Michigan Doctor Accused of Recording Nude Images in Hospitals and Changing Rooms**\
 `Dr. Oumair Aejaz recorded women and children in a swimming school’s changing room, the police said. The authorities also say he filmed patients in hospitals.`\
 https://nytimes.com/2024/08/22/us/dr-oumair-aejaz-detroit-charged.html
-
-**Convention Insider: Bernie Sanders Is in on the Joke**\
-`Mr. Sanders, the curmudgeonly senator from Vermont, is exuding something like optimism about the future of the progressive movement.`\
-https://nytimes.com/2024/08/22/us/politics/bernie-sanders-dnc.html
 

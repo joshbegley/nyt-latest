@@ -1,3 +1,7 @@
+**‘The Crow’ Review: Resurrected and It Feels So Bad**\
+`Hoping to skate by off moody vibes, this revamp of “The Crow” comic book series seems derived from a flattened, Hot Topic image of the hero.`\
+https://nytimes.com/2024/08/22/movies/the-crow-review.html
+
 **Volcano Erupts Near Fishing Town in Iceland**\
 `The latest eruption, the sixth since December, is part of increased volcanic activity that began in 2021.`\
 https://nytimes.com/2024/08/22/world/europe/iceland-volcano-eruption.html
