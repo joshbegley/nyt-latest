@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5717451/2024/08/22/mlb-bullpen-report-fantasy-baseb
 `Joe Worrall has completed his move from Nottingham Forest to Burnley for an undisclosed fee.`\
 https://nytimes.com/athletic/5716511/2024/08/22/joe-worrall-burnley-forest-transfer/
 
-**Angels extend general manager Perry Minasian with multi-year deal: Sources**\
+**Angels extend general manager Perry Minasian**\
 `Minasian has held the role since 2021, and the Angels have yet to have a winning season in that span.`\
 https://nytimes.com/athletic/5717403/2024/08/22/angels-extend-general-manager-perry-minasian-with-multi-year-deal-sources/
 
