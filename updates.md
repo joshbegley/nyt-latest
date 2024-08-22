@@ -1,3 +1,11 @@
+**The vice-presidential nominee’s home state has the largest bloc of ‘uncommitted’ delegates.**\
+`By Charles Homans`\
+https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/the-vice-presidential-nominees-home-state-has-the-largest-bloc-of-uncommitted-delegates
+
+**Tough Nut to Crack**\
+`Brad Wiegmann’s puzzle theme is hard to pronounce.`\
+https://nytimes.com/2024/08/21/crosswords/daily-puzzle-2024-08-22.html
+
 **The War in Gaza Finally Gets a Moment on the Convention Stage**\
 `But it was about the suffering of the hostages, and didn’t go much further.`\
 https://nytimes.com/live/2024/08/20/opinion/thepoint/gaza-hostage-parents-convention
