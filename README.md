@@ -1,3 +1,15 @@
+**Courtois announces he will not play for Belgium under Tedesco**\
+`Belgium goalkeeper Thibaut Courtois has announced he will not play for the national team for as long as Domenico Tedesco is manager.`\
+https://nytimes.com/athletic/5717414/2024/08/22/thibaut-courtois-belgium-tedesco/
+
+**Climate Workers Wanted**\
+`A group of federal programs are aimed at helping America’s work force adapt to climate change.`\
+https://nytimes.com/2024/08/22/climate/climate-workers-wanted.html
+
+**Leeds sign Belgian forward Ramazani from Almeria**\
+`Leeds United have completed the signing of Largie Ramazani from Spanish side Almeria for an undisclosed fee, subject to a work permit.`\
+https://nytimes.com/athletic/5717255/2024/08/22/leeds-united-sign-largie-ramazani/
+
 **Counting All the Fish in the Sea May Be Even Trickier Than Scientists Thought**\
 `A new study suggests that estimates of the health of the world’s fisheries may be too optimistic.`\
 https://nytimes.com/2024/08/22/climate/fish-stocks-overcounting.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5717249/2024/08/22/f1-lewis-hamilton-africa-mercede
 **Astros in agreement with reliever Héctor Neris: Sources**\
 `Neris returns to Houston, where he pitched in 2022 and 2023. `\
 https://nytimes.com/athletic/5717299/2024/08/22/astros-sign-hector-neris/
-
-**Theater Breaks Ties With Ivo van Hove After Report on Bullying**\
-`An investigation found that a “culture of fear” had developed at the International Theater Amsterdam during the years when the star director led the company.`\
-https://nytimes.com/2024/08/22/theater/ivo-van-hove-international-theater-amsterdam.html
-
-**NHL trade grades: Jets, Penguins swap top prospects Rutger McGroarty, Brayden Yager**\
-`Both players are strong pro prospects with similar profiles in terms of two-way play and offensive upside.`\
-https://nytimes.com/athletic/5717181/2024/08/22/rutger-mcgroarty-brayden-yager-trade-jets-penguins-nhl/
-
-**Which Democrats Landed Coveted Slots for the Final Night of the D.N.C.?**\
-`Vice President Kamala Harris will accept the party’s nomination for president to close out the convention in Chicago.`\
-https://nytimes.com/2024/08/22/us/politics/dnc-speaker-schedule-final-night.html
 
