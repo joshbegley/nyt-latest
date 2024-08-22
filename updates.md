@@ -1,3 +1,7 @@
+**An Easy Vegetarian Dinner That Starts With Corn**\
+`Seared on a sheet pan with crisp pillows of tofu and green chiles, corn kernels are the center of this summery recipe.`\
+https://nytimes.com/2024/08/22/dining/easy-vegetarian-corn-dinner.html
+
 **Everything You Need to Know About the 2024 U.S. Open**\
 `The tournament runs Aug. 26 to Sept. 8 at the Billie Jean King National Tennis Center in New York City.`\
 https://nytimes.com/2024/08/22/sports/us-open-guide-tennis.html
