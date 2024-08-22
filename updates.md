@@ -1,3 +1,7 @@
+**E.U. Naval Ship Rescues Crew of Oil Tanker Hit by Missiles in Red Sea**\
+`The incident appeared to be the most serious in weeks involving commercial shipping off Yemen’s coast. The Houthis, who have been attacking ships in solidarity with Hamas, did not claim responsibility.`\
+https://nytimes.com/2024/08/22/world/middleeast/red-sea-oil-tanker-missiles.html
+
 **The Athletic FC: Inside De Ligt's move to United, how Real Madrid built their incredible squad**\
 `Today in TAFC: We explain the reasons and influences behind De Ligt's move to Man Utd. Plus: How Real Madrid have built their squad.`\
 https://nytimes.com/athletic/5716250/2024/08/22/de-ligt-united-real-madrid-building-squad/

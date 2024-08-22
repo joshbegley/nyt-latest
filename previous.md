@@ -1,3 +1,7 @@
+**E.U. Naval Ship Rescues Crew of Oil Tanker Hit by Missiles in Red Sea**\
+`The incident appeared to be the most serious in weeks involving commercial shipping off Yemen’s coast. The Houthis, who have been attacking ships in solidarity with Hamas, did not claim responsibility.`\
+https://nytimes.com/2024/08/22/world/middleeast/red-sea-oil-tanker-missiles.html
+
 **The Athletic FC: Inside De Ligt's move to United, how Real Madrid built their incredible squad**\
 `Today in TAFC: We explain the reasons and influences behind De Ligt's move to Man Utd. Plus: How Real Madrid have built their squad.`\
 https://nytimes.com/athletic/5716250/2024/08/22/de-ligt-united-real-madrid-building-squad/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5710655/2024/08/22/49ers-training-camp-defensive-ro
 **Golden Knights fan survey: Which player is most important? How confident do you feel?**\
 `How long will Vegas' championship window remain open? How confident are you in the front office and Bruce Cassidy?`\
 https://nytimes.com/athletic/5715631/2024/08/22/golden-knights-offseason-playoffs/
-
-**Russia Pushes Forward in Ukraine’s East as Kursk Offensive Slows**\
-`The Ukrainians must defend a critical front in their country’s east, including the city of Pokrovsk, while trying to press forward in western Russia.`\
-https://nytimes.com/2024/08/22/world/europe/ukraine-russia-war-kursk-incursion-pokrovsk.html
 
