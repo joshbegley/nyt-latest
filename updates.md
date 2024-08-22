@@ -1,3 +1,15 @@
+**NHL trade grades: Jets, Penguins swap top prospects Rutger McGroarty, Brayden Yager**\
+`Both players are strong pro prospects with similar profiles in terms of two-way play and offensive upside.`\
+https://nytimes.com/athletic/5717181/2024/08/22/rutger-mcgroarty-brayden-yager-trade-jets-penguins-nhl/
+
+**Which Democrats Landed Coveted Slots for the Final Night of the D.N.C.?**\
+`Vice President Kamala Harris will accept the party’s nomination for president to close out the convention in Chicago.`\
+https://nytimes.com/2024/08/22/us/politics/dnc-speaker-schedule-final-night.html
+
+**Counting All the Fish in the Sea May Be Even Trickier Than Scientists Thought**\
+`A new study suggests that estimates of the health of the world’s fisheries may be too optimistic.`\
+https://nytimes.com/2024/08/22/climate/fish-stocks-overcounting.html
+
 **Brentford sign Van den Berg from Liverpool**\
 `Liverpool defender Sepp van den Berg has signed for Brentford.`\
 https://nytimes.com/athletic/5712168/2024/08/22/van-den-berg-brentford-transfer/
