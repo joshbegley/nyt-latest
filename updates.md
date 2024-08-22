@@ -1,3 +1,27 @@
+**Second Memphis Officer to Change Plea in Death of Tyre Nichols**\
+`Court documents show that the former officer is set to change his not-guilty plea to federal charges, less than three weeks before he was set to face trial.`\
+https://nytimes.com/2024/08/22/us/tyre-nichols-officer-plea.html
+
+**Dodgers DFA Jason Heyward amid roster crunch**\
+`Heyward has hit .197/.254/.344 with just two home runs since the start of July.`\
+https://nytimes.com/athletic/5717495/2024/08/22/jason-heyward-designated-for-assignment-dodgers/
+
+**The deeper meaning behind Beyoncé’s ‘Freedom,’ the Harris campaign anthem.**\
+`By Salamishah Tillet`\
+https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/the-deeper-meaning-behind-beyonces-freedom-the-harris-campaign-anthem
+
+**Second-Largest Diamond Ever Found Is Discovered in Botswana**\
+`The diamond was unearthed using new technology, and miners hope it will bring back luster to a struggling industry.`\
+https://nytimes.com/2024/08/22/world/africa/large-diamond-botswana.html
+
+**11 Ways to Teach the 2024 Election With The New York Times**\
+`Join our election-related forums, create a multimedia project, monitor misinformation, talk to journalists and more.`\
+https://nytimes.com/2024/08/22/learning/2024-election-teaching-resources.html
+
+**Joe Worrall helped give Nottingham Forest fans a reason to care again**\
+`Forest are waving goodbye to a player that provided a unique connection between supporters and their teams. He deserves to be lauded`\
+https://nytimes.com/athletic/5716224/2024/08/22/joe-worrall-nottingham-forest-burnley-departure/
+
 **Angels extend general manager Perry Minasian**\
 `Minasian has held the role since 2021, and the Angels have yet to have a winning season in that span.`\
 https://nytimes.com/athletic/5717403/2024/08/22/angels-extend-general-manager-perry-minasian-with-multi-year-deal-sources/
