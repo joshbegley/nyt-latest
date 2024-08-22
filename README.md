@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5715991/2024/08/21/yankees-aaron-judge-60-homer-pac
 https://nytimes.com/live/2024/08/20/opinion/thepoint/shapiro-democrats-pennsylvania
 
 **Oprah Celebrates Kamala as a Child of Immigrants**\
-`Oprah Winfrey spoke on the third night of the Democratic convention and gave Kamala Harris a full-throated endorsement and said that voting for her is “common sense.”`\
+`Oprah Winfrey spoke on the third night of the Democratic convention. She gave Kamala Harris a full-throated endorsement, saying that voting for her is “common sense.”`\
 https://nytimes.com/video/us/elections/100000009651453/oprah-celebrates-kamala-as-a-child-of-immigrants.html
 
 **Letitia James Fights to Preserve Trump’s Penalty of Over $450 Million**\
