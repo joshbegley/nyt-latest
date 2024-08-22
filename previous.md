@@ -1,36 +1,36 @@
-**Who will earn the Group of 5's spot in the CFP? Meet the contenders**\
-`For the first time, the best team from the Group of 5 is guaranteed a shot at a national championship. Who will earn that bid?`\
-https://nytimes.com/athletic/5714078/2024/08/22/group-of-5-conference-preview-playoff-contenders/
+**Sevilla set to sign Brighton's Valentin Barco in loan transfer**\
+`Sevilla are negotiating a deal to sign Brighton defender Valentin Barco on loan.`\
+https://nytimes.com/athletic/5713816/2024/08/22/valentin-barco-loan-transfer-sevilla-brighton/
 
-**Divers Recover 5th Body After Sinking of Yacht Off Sicily**\
-`The discovery leaves just one more person missing after the vessel went down this week carrying 10 crew members and 12 passengers, including the British tech entrepreneur Mike Lynch.`\
-https://nytimes.com/2024/08/22/world/europe/italy-sicily-yacht-bodies-found.html
+**How Kamala Harris Is Preparing for the Biggest Speech of Her Life**\
+`Her convention address on Thursday will tell the story of her middle-class upbringing, cast the 2024 race as the future versus the past and appeal to patriotism.`\
+https://nytimes.com/2024/08/22/us/politics/harris-speech-preview.html
 
-**Real Betis in advanced talks with Barcelona over Roque loan**\
-`Real Betis are in advanced talks with Barcelona over the loan signing of striker Vitor Roque.`\
-https://nytimes.com/athletic/5713853/2024/08/22/vitor-roque-betis-loan-transfer-barcelona/
+**It’s Kamala Harris’s Party Now. What’s Different?**\
+`Senator Elizabeth Warren, U.A.W. president Shawn Fain and Chicago mayor Brandon Johnson on the passing of the torch.`\
+https://nytimes.com/2024/08/22/podcasts/its-kamala-harriss-party-now-whats-different.html
 
-**Rick Steves, TV Travel Guide, Says He Has Prostate Cancer**\
-`Mr. Steves said the cancer had not spread and he will travel to France for work before having surgery next month.`\
-https://nytimes.com/2024/08/22/travel/rick-steves-prostate-cancer.html
+**Seeking a New Start in Southern California for Less Than $800,000**\
+`A retired schoolteacher scoured San Diego County for a condo with proximity to three important things: her mother, her grandson and the beach. Here’s where she found it.`\
+https://nytimes.com/interactive/2024/08/22/realestate/socal-home-buying-orange-county.html
 
-**Oprah, Football and Freedom: Highlights From the Democratic Convention**\
-`On Day 3, Gov. Tim Walz sought to rid the Democrats of their elite image. But another star was Oprah Winfrey, who mesmerized the crowd with an appeal for common sense and decency.`\
-https://nytimes.com/2024/08/22/us/politics/dnc-takeaways-tim-walz.html
+**Jennifer Lopez Is Becoming an Elizabeth Taylor for a New Generation**\
+`“I resented my fame,” Taylor said, “until I realized I could use it.”`\
+https://nytimes.com/2024/08/22/opinion/jlo-ben-affleck-divorce.html
 
-**The Hard Way Into the U.S. Open: The Battle of the Qualifiers**\
-`Thirty-two spots remain unclaimed in the tournament, and the math is as brutal as it is simple. Win three matches, and you’re in.`\
-https://nytimes.com/2024/08/22/nyregion/michael-zheng-us-open.html
+**23 Lesser-Known Facts About Kamala Harris**\
+`Beyond the headlines, Ms. Harris has taken ballet, collected Converse sneakers and felt the influence of her grandfather, a diplomat.`\
+https://nytimes.com/2024/08/22/us/elections/kamala-harris-facts.html
 
-**The U.S. Open Is Free This Week. Yes, Really.**\
-`“Fan Week” draws thousands during the qualifying rounds of the tournament, no tickets necessary. You still have to pay for the cocktails, of course.`\
-https://nytimes.com/2024/08/22/nyregion/usopen-free-week.html
+**In Copenhagen, a Rooftop With a Farm and a Bar**\
+`Plus: a forest-inspired perfume, a Derrick Adams exhibition and more recommendations from T Magazine.`\
+https://nytimes.com/2024/08/22/t-magazine/in-copenhagen-a-rooftop-with-a-farm-and-a-bar.html
 
-**The Trials of a Paralympian Whose Disability Doesn’t Always Show**\
-`Christie Raleigh Crossley has trained for most of her life to be an Olympic swimmer. After surviving two car crashes and a brain tumor, she is finally going for gold.`\
-https://nytimes.com/2024/08/22/nyregion/paralympics-swimmer-christie-raleigh-crossley.html
+**Is India a Safe Place for Women? Another Brutal Killing Raises the Question.**\
+`The rape and murder of a trainee doctor at her own hospital has brought up, once again, uncomfortable truths about a country that wants to be a global leader.`\
+https://nytimes.com/2024/08/22/world/asia/india-women-safety-rape.html
 
-**In the Wake of Tragedy, CrossFit Faces an Identity Crisis**\
-`CrossFit has found success as a training exercise for everyone. But the CrossFit Games may tell a different story.`\
-https://nytimes.com/2024/08/22/style/in-the-wake-of-tragedy-crossfit-faces-an-identity-crisis.html
+**Where Harris Has Gained and Lost Support Compared With Biden**\
+`Gains among women are one example of her distinctive mark on the race.`\
+https://nytimes.com/2024/08/22/upshot/kamala-harris-polling-groups.html
 
