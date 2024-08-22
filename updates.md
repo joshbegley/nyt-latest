@@ -1,3 +1,7 @@
+**Jets trade Rutger McGroarty to Penguins**\
+`The Penguins have signed McGroarty to a three-year entry-level contract, according to the source.`\
+https://nytimes.com/athletic/5717066/2024/08/22/rutger-mcgroarty-trade-jets-penguins/
+
 **NHL trade grades: Jets, Penguins swap top prospects Rutger McGroarty, Brayden Yager**\
 `Both players are strong pro prospects with similar profiles in terms of two-way play and offensive upside.`\
 https://nytimes.com/athletic/5717181/2024/08/22/rutger-mcgroarty-brayden-yager-trade-jets-penguins-nhl/

@@ -31,6 +31,6 @@ https://nytimes.com/2024/08/22/us/politics/corey-booker-new-jersey-democratic-co
 https://nytimes.com/athletic/5716664/2024/08/22/seattle-mariners-expected-to-fire-scott-servais-name-dan-wilson-manager/
 
 **Jets trade Rutger McGroarty to Penguins**\
-`Winnipeg drafted McGroarty with the No. 14 pick in 2022.`\
+`The Penguins have signed McGroarty to a three-year entry-level contract, according to the source.`\
 https://nytimes.com/athletic/5717066/2024/08/22/rutger-mcgroarty-trade-jets-penguins/
 
