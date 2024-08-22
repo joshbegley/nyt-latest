@@ -1,6 +1,10 @@
+**Guatemala Arrests Seven Over 2022 Deaths of 53 Migrants in Texas**\
+`The police said the arrested people include the leader of the group involved in the 2022 smuggling operation. He faces extradition to the United States.`\
+https://nytimes.com/2024/08/22/us/guatemala-arrests-deaths-migrants.html
+
 **Tim Walz and His Party Are the New Small-Town Conservatives**\
-`They look after neighbors, they care about children, and they take pride in the military.`\
-https://nytimes.com/live/2024/08/20/opinion/thepoint/tim-walz-and-his-party-are-the-new-small-town-conservatives
+`They look after neighbors, they care about children and they take pride in the military.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/tim-walz-small-town-conservatives
 
 **Wednesday Night Lights: To Vouch for Coach Walz, His Old Players Step Up**\
 `Fifteen men clad in football jerseys took the stage at the Democratic National Convention as the Mankato West High School fight song played.`\
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/22/world/canada/canada-freight-trains.html
 **Will Fullkrug be the answer to West Ham's long search for a seasoned No 9?**\
 `West Ham have not had much luck in their search for a No 9 - will Fullkrug buck the trend and score the goals the Julen Lopetegui era needs?`\
 https://nytimes.com/athletic/5709577/2024/08/22/niclas-fullkrug-west-ham-striker-michail-antonio/
-
-**Full Transcript of Tim Walz’s Speech at the Democratic Convention**\
-`The Minnesota governor compared the election to a football game, vowing that and he and Vice President Kamala Harris would fight “one yard at a time” and “leave it on the field.”`\
-https://nytimes.com/2024/08/22/us/politics/tim-walz-dnc-speech-transcript.html
 
