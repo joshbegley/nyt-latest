@@ -1,36 +1,36 @@
-**‘Querelle’: Fassbinder’s Defiant Swan Song**\
-`Anthology Film Archives is screening Rainer Werner Fassbinder’s 1982 film, based on Jean Genet’s novel, about a young sailor’s criminal and erotic escapades.`\
-https://nytimes.com/2024/08/22/movies/querelle-anthology-film-archives.html
+**Sevilla set to sign Brighton's Valentin Barco in loan transfer**\
+`Sevilla are negotiating a deal to sign Brighton defender Valentin Barco on loan.`\
+https://nytimes.com/athletic/5713816/2024/08/22/valentin-barco-loan-transfer-sevilla-brighton/
 
-**Matt Berry Is Afraid of Heights, Not Comedy**\
-`His performance as a debauched vampire in “What We Do in the Shadows” earned him an Emmy nod. It has also often had him dangling 50 feet off the ground.`\
-https://nytimes.com/2024/08/22/arts/television/matt-berry-emmy-what-we-do-shadows.html
+**How Kamala Harris Is Preparing for the Biggest Speech of Her Life**\
+`Her convention address on Thursday will tell the story of her middle-class upbringing, cast the 2024 race as the future versus the past and appeal to patriotism.`\
+https://nytimes.com/2024/08/22/us/politics/harris-speech-preview.html
 
-**Tressie McMillan Cottom on Why Trump Is Struggling to Box Harris In**\
-`A columnist argues that Harris’s campaign is smart to downplay the vice president’s identity.`\
-https://nytimes.com/2024/08/22/opinion/tressie-cottom-trump-kamala-harris.html
+**It’s Kamala Harris’s Party Now. What’s Different?**\
+`Senator Elizabeth Warren, U.A.W. president Shawn Fain and Chicago mayor Brandon Johnson on the passing of the torch.`\
+https://nytimes.com/2024/08/22/podcasts/its-kamala-harriss-party-now-whats-different.html
 
-**Homes for Sale in New York and New Jersey**\
-`This week’s properties are a six-bedroom house in Albertson, N.Y., and a five-bedroom in Montclair, N.J.`\
-https://nytimes.com/2024/08/22/realestate/housing-market-near-nyc.html
+**Seeking a New Start in Southern California for Less Than $800,000**\
+`A retired schoolteacher scoured San Diego County for a condo with proximity to three important things: her mother, her grandson and the beach. Here’s where she found it.`\
+https://nytimes.com/interactive/2024/08/22/realestate/socal-home-buying-orange-county.html
 
-**Fulham complete Berge signing from Burnley**\
-`Fulham have completed the signing of midfielder Sander Berge from Burnley.`\
-https://nytimes.com/athletic/5714002/2024/08/22/sander-berge-fulham-transfer-burnley/
+**Jennifer Lopez Is Becoming an Elizabeth Taylor for a New Generation**\
+`“I resented my fame,” Taylor said, “until I realized I could use it.”`\
+https://nytimes.com/2024/08/22/opinion/jlo-ben-affleck-divorce.html
 
-**Eco Art Is ‘In.’ Must It Always Speak Loudly?**\
-`As the climate alarm sounds, artists seem to want to instruct us. Two sculptors stray from the crowd with ambiguous, beautiful and frightening ecological works.`\
-https://nytimes.com/2024/08/22/arts/design/eco-art-jenny-kendler-michael-wang.html
+**23 Lesser-Known Facts About Kamala Harris**\
+`Beyond the headlines, Ms. Harris has taken ballet, collected Converse sneakers and felt the influence of her grandfather, a diplomat.`\
+https://nytimes.com/2024/08/22/us/elections/kamala-harris-facts.html
 
-**Homes for Sale in Manhattan and Brooklyn**\
-`This week’s properties are in the Gramercy Park neighborhood, Manhattan Valley and Downtown Brooklyn.`\
-https://nytimes.com/2024/08/22/realestate/housing-market-nyc.html
+**In Copenhagen, a Rooftop With a Farm and a Bar**\
+`Plus: a forest-inspired perfume, a Derrick Adams exhibition and more recommendations from T Magazine.`\
+https://nytimes.com/2024/08/22/t-magazine/in-copenhagen-a-rooftop-with-a-farm-and-a-bar.html
 
-**Trump May Claim Credit for Stock Surges, but the Reality Is Far More Complicated**\
-`On Wall Street, claims that a president is responsible for the fate of the stock market are largely dismissed as bluster.`\
-https://nytimes.com/2024/08/22/business/trump-stock-market.html
+**Is India a Safe Place for Women? Another Brutal Killing Raises the Question.**\
+`The rape and murder of a trainee doctor at her own hospital has brought up, once again, uncomfortable truths about a country that wants to be a global leader.`\
+https://nytimes.com/2024/08/22/world/asia/india-women-safety-rape.html
 
-**Where Are New Apartments Being Built in the U.S.?**\
-`All over, with 500,000 new units expected to be completed in 2024.`\
-https://nytimes.com/2024/08/22/realestate/new-apartment-units-rent-us.html
+**Where Harris Has Gained and Lost Support Compared With Biden**\
+`Gains among women are one example of her distinctive mark on the race.`\
+https://nytimes.com/2024/08/22/upshot/kamala-harris-polling-groups.html
 
