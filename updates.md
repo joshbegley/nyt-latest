@@ -1,3 +1,11 @@
+**Ons Jabeur withdraws from U.S. Open with shoulder injury**\
+`Ons Jabeur, the 2022 US Open finalist and former world No 2, has withdrawn from this year’s tournament with a shoulder injury.`\
+https://nytimes.com/athletic/5717827/2024/08/22/ons-jabeur-us-open-withdrawal-injury/
+
+**Christian Fuchs on 'special' Leicester City and 'the toughest league in the world'**\
+`A Premier League title-winner with Leicester City, Fuchs is now honing his craft as an assistant with Charlotte FC in MLS`\
+https://nytimes.com/athletic/5715439/2024/08/22/leicester-mls-fuchs-ancelotti-charlotte/
+
 **Crypto Lobbyist Charged With Breaking Campaign Finance Rules**\
 `The charges against Michelle Bond, the former head of a crypto industry trade group, are part of the continuing legal fallout from the collapse of the FTX crypto exchange.`\
 https://nytimes.com/2024/08/22/technology/ftx-crypto-campaign-finance.html

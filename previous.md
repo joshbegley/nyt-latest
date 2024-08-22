@@ -1,3 +1,11 @@
+**Ons Jabeur withdraws from U.S. Open with shoulder injury**\
+`Ons Jabeur, the 2022 US Open finalist and former world No 2, has withdrawn from this year’s tournament with a shoulder injury.`\
+https://nytimes.com/athletic/5717827/2024/08/22/ons-jabeur-us-open-withdrawal-injury/
+
+**Christian Fuchs on 'special' Leicester City and 'the toughest league in the world'**\
+`A Premier League title-winner with Leicester City, Fuchs is now honing his craft as an assistant with Charlotte FC in MLS`\
+https://nytimes.com/athletic/5715439/2024/08/22/leicester-mls-fuchs-ancelotti-charlotte/
+
 **Crypto Lobbyist Charged With Breaking Campaign Finance Rules**\
 `The charges against Michelle Bond, the former head of a crypto industry trade group, are part of the continuing legal fallout from the collapse of the FTX crypto exchange.`\
 https://nytimes.com/2024/08/22/technology/ftx-crypto-campaign-finance.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/22/opinion/ezra-klein-podcast-dnc-digest-3.html
 **Trading Jahan Dotson shows rebuilding Commanders aren't waiting for a miracle**\
 `General manager Adam Peters and company are focused on bringing in the right pieces to fill out Washington's roster. `\
 https://nytimes.com/athletic/5717650/2024/08/22/commanders-jahan-dotson-trade-eagles/
-
-**Tropical Storm Hone Forms East of Hawaii**\
-`The storm was about 1,000 miles east-southeast of the Hawaiian islands, which were expected to receive strong wind, rainfall and swells in the coming days.`\
-https://nytimes.com/2024/08/22/weather/hawaii-hone-wind-forecast.html
-
-**Convention Insider: Jasmine Crockett Would Like to Introduce Herself**\
-`The representative from Texas, who overcame a “pit in my stomach” onstage this week, is emerging as an influential surrogate for the Harris campaign.`\
-https://nytimes.com/2024/08/22/us/politics/dnc-jasmine-crockett-speech.html
 
