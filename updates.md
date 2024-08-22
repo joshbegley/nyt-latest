@@ -1,3 +1,7 @@
+**Parents of Gaza Hostage Make Somber Plea for Middle East Peace**\
+`Jon Polin and Rachel Goldberg, whose 23-year-old son is being held by Hamas, told Democratic convention attendees that there was a “surplus of agony” in the war in Gaza.`\
+https://nytimes.com/2024/08/21/us/politics/hersh-goldberg-polin-gaza-hostage.html
+
 **Trump Clemency Recipient Accused of Assaulting Wife and Father-in-Law**\
 `Jonathan Braun, whose drug sentence was commuted by Donald Trump shortly before he left office, was charged on Long Island, the latest incident to raise questions of how clemency applications were vetted.`\
 https://nytimes.com/2024/08/21/us/politics/jonathan-braun-assault.html

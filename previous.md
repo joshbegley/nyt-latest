@@ -1,3 +1,7 @@
+**Parents of Gaza Hostage Make Somber Plea for Middle East Peace**\
+`Jon Polin and Rachel Goldberg, whose 23-year-old son is being held by Hamas, told Democratic convention attendees that there was a “surplus of agony” in the war in Gaza.`\
+https://nytimes.com/2024/08/21/us/politics/hersh-goldberg-polin-gaza-hostage.html
+
 **Trump Clemency Recipient Accused of Assaulting Wife and Father-in-Law**\
 `Jonathan Braun, whose drug sentence was commuted by Donald Trump shortly before he left office, was charged on Long Island, the latest incident to raise questions of how clemency applications were vetted.`\
 https://nytimes.com/2024/08/21/us/politics/jonathan-braun-assault.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5715674/2024/08/21/sf-giants-loss-white-sox/
 **The Democrats’ Answer to Hulk Hogan**\
 `Tim Walz will embody his party’s retort to the mega-masculinity of Trumpism on display last month.`\
 https://nytimes.com/2024/08/21/us/politics/the-democrats-answer-to-hulk-hogan.html
-
-**Cooper DeJean 'excited' for potential Eagles preseason debut**\
-`Plus, notes from the last practice of training camp.`\
-https://nytimes.com/athletic/5714849/2024/08/21/cooper-dejean-eagles-preseason-debut/
 
