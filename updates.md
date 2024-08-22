@@ -1,3 +1,19 @@
+**Let a Palestinian Speak**\
+`It’s the right thing for Democrats to do, and it’s strategically smart.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/democratic-convention-palestinian-speaker
+
+**Shapiro decries Trump’s social-media attack as an ‘antisemitic trope.’**\
+`Trump emphasized the Jewish governor’s faith and questioned his record on Israel, even though Shapiro does not make the nation’s foreign policy.`\
+https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/shapiro-decries-trumps-social-media-attack-as-an-antisemitic-trope
+
+**A Deep Dive on Dip for Dinner**\
+`Starting with Ali Slagle’s fresh tomato and yogurt dip, a new two-step recipe with sweet acidity and garlicky bite.`\
+https://nytimes.com/2024/08/22/dining/easy-dips-dinner.html
+
+**They Tried to Evict Her Emotional Support Parrots. She Won $165,000.**\
+`Three pet parrots at a Manhattan apartment building irritated their neighbors, who moved to evict them and their owner. The owner took the neighbors to court and was awarded damages.`\
+https://nytimes.com/2024/08/22/nyregion/nyc-parrots-apartment-court.html
+
 **Trump Warms to Kennedy and Belittles Walz in Fox News Appearance**\
 `Donald J. Trump said he would welcome the endorsement of Robert F. Kennedy Jr., who is expected to end his presidential campaign.`\
 https://nytimes.com/2024/08/22/us/politics/trump-rfk-jr-walz-fox.html
