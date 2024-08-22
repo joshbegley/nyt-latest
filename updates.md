@@ -1,3 +1,11 @@
+**A Combat Medic’s Quest to Change Tributes to Fallen Soldiers**\
+`Iryna Tsybukh, who was killed on the front line in Ukraine, wanted to humanize the way Kyiv commemorated the war dead. She also left notes for her own funeral.`\
+https://nytimes.com/2024/08/22/world/europe/ukraine-iryna-tsybukh-military-funerals.html
+
+**The War in Gaza Is Making Thousands of Orphans**\
+`Extended families, hospital staff and volunteers are stepping in to care for Gaza’s many newly orphaned children, some of whom are injured, traumatized and haunted by memories of their parents.`\
+https://nytimes.com/2024/08/22/world/middleeast/gaza-orphans.html
+
 **“They’ll repeal the Affordable Care Act.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/08/21/us/harris-walz-dnc-trump/theyll-repeal-the-affordable-care-act
