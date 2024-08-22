@@ -1,3 +1,7 @@
+**Oprah Celebrates Kamala as a Child of Immigrants**\
+`Oprah Winfrey spoke on the third night of the Democratic convention. She gave Kamala Harris a full-throated endorsement, saying that voting for her is “common sense.”`\
+https://nytimes.com/video/us/elections/100000009651453/oprah-celebrates-kamala-as-a-child-of-immigrants.html
+
 **Trump Wants to Distance Himself From Project 2025. Democrats Are Trying Not to Let Him.**\
 `The conservative policy proposal has been front and center at the Democratic convention this week, as Democrats look to tie the controversial document to the former president.`\
 https://nytimes.com/2024/08/21/us/politics/project-2025-kenan-thompson.html
