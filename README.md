@@ -1,3 +1,11 @@
+**Texas, Texas A&M ADs eye moving future games to Black Friday**\
+`Both Longhorns AD Chris Del Conte and Aggies AD Trev Alberts said they hope the game is played annually.`\
+https://nytimes.com/athletic/5717689/2024/08/22/texas-texas-am-rivalry-schedule-black-friday/
+
+**NASCAR sanctions Denny Hamlin for engine infraction**\
+`The engine in question is one Hamlin had in his car when he won this spring at Bristol Motor Speedway.`\
+https://nytimes.com/athletic/5717645/2024/08/22/denny-hamlin-nascar-points-penalty-joe-gibbs-racing/
+
 **U.S. Open draw 2024: Luck for Djokovic? Relief for Swiatek? Danger for Raducanu**\
 `The fourth Grand Slam begins on Monday, and the draws offer some blockbuster first-round matches as well as intrigue`\
 https://nytimes.com/athletic/5717411/2024/08/22/us-open-draw-2024-djokovic-alcaraz-sinner-raducanu-osaka/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5717235/2024/08/22/penguins-rutger-mcgroarty-trade-
 **Autopsies of Israeli Hostages Recovered From Gaza Reveal Bullets, Families Say**\
 `The revelation raised new questions about how the hostages were killed while in captivity.`\
 https://nytimes.com/2024/08/22/world/middleeast/israeli-hostages-autopsies.html
-
-**Gus Walz Let It All Out During His Father’s Convention Speech**\
-`The 17-year-old’s tearful support for his father, Gov. Tim Walz, inspired a hashtag (#ThatsMyDad) and partisan bickering on social media.`\
-https://nytimes.com/2024/08/22/style/gus-walz-dnc-social-media.html
-
-**Second Memphis Officer to Change Plea in Death of Tyre Nichols**\
-`Court documents show that the former officer is set to change his not-guilty plea to federal charges, less than three weeks before he was set to face trial.`\
-https://nytimes.com/2024/08/22/us/tyre-nichols-officer-plea.html
 
