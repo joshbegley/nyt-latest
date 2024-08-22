@@ -1,3 +1,11 @@
+**Angels extend general manager Perry Minasian with multi-year deal: Sources**\
+`Minasian has held the role since 2021, and the Angels have yet to have a winning season in that span.`\
+https://nytimes.com/athletic/5717403/2024/08/22/angels-extend-general-manager-perry-minasian-with-multi-year-deal-sources/
+
+**Signs of Taylor Swift on Wrists at the Democratic Convention**\
+`Friendship bracelets, after being adopted by the pop star’s fans, have now been embraced by convention attendees as a way to build community.`\
+https://nytimes.com/2024/08/22/style/taylor-swift-friendship-bracelets-dnc.html
+
 **Our Election 2024 Student Conversation Forums**\
 `Starting Sept. 10, we’re inviting teenagers to reflect on their civic and political values, beliefs and identity and share their perspectives on current issues.`\
 https://nytimes.com/2024/08/22/learning/our-election-2024-student-conversation-forums.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5717172/2024/08/22/2024-us-open-odds-alcaraz-sabale
 **Courtois announces he will not play for Belgium under Tedesco**\
 `Belgium goalkeeper Thibaut Courtois has announced he will not play for the national team for as long as Domenico Tedesco is manager.`\
 https://nytimes.com/athletic/5717414/2024/08/22/thibaut-courtois-belgium-tedesco/
-
-**Climate Workers Wanted**\
-`A group of federal programs is aimed at helping America’s work force adapt to climate change.`\
-https://nytimes.com/2024/08/22/climate/climate-workers-wanted.html
-
-**Leeds sign Belgian forward Ramazani from Almeria**\
-`Leeds United have completed the signing of Largie Ramazani from Spanish side Almeria for an undisclosed fee, subject to a work permit.`\
-https://nytimes.com/athletic/5717255/2024/08/22/leeds-united-sign-largie-ramazani/
 

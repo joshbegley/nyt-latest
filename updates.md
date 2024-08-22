@@ -1,3 +1,11 @@
+**Angels extend general manager Perry Minasian with multi-year deal: Sources**\
+`Minasian has held the role since 2021, and the Angels have yet to have a winning season in that span.`\
+https://nytimes.com/athletic/5717403/2024/08/22/angels-extend-general-manager-perry-minasian-with-multi-year-deal-sources/
+
+**Signs of Taylor Swift on Wrists at the Democratic Convention**\
+`Friendship bracelets, after being adopted by the pop star’s fans, have now been embraced by convention attendees as a way to build community.`\
+https://nytimes.com/2024/08/22/style/taylor-swift-friendship-bracelets-dnc.html
+
 **Our Election 2024 Student Conversation Forums**\
 `Starting Sept. 10, we’re inviting teenagers to reflect on their civic and political values, beliefs and identity and share their perspectives on current issues.`\
 https://nytimes.com/2024/08/22/learning/our-election-2024-student-conversation-forums.html
