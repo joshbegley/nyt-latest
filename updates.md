@@ -1,3 +1,7 @@
+**Trump Wants to Distance Himself From Project 2025. Democrats Are Trying Not to Let Him.**\
+`The conservative policy proposal has been front and center at the Democratic convention this week, as Democrats look to tie the controversial document to the former president.`\
+https://nytimes.com/2024/08/21/us/politics/project-2025-kenan-thompson.html
+
 **Yankees’ Aaron Judge is on pace for 60 home runs. Here’s what the clubhouse is saying**\
 `“It felt like every time he was up to bat it was either a homer or a walk, and that’s exactly what’s happening now,” said Nestor Cortes.`\
 https://nytimes.com/athletic/5715991/2024/08/21/yankees-aaron-judge-60-homer-pace-clubhouse-reaction/
