@@ -1,3 +1,7 @@
+**Rick Steves, TV Travel Guide, Says He Has Prostate Cancer**\
+`Mr. Steves said the cancer had not spread and he will travel to France for work before having surgery next month.`\
+https://nytimes.com/2024/08/22/travel/rick-steves-prostate-cancer.html
+
 **Oprah, Football and Freedom: Highlights From the Democratic Convention**\
 `On Day 3, Gov. Tim Walz sought to rid the Democrats of their elite image. But another star was Oprah Winfrey, who mesmerized the crowd with an appeal for common sense and decency.`\
 https://nytimes.com/2024/08/22/us/politics/dnc-takeaways-tim-walz.html

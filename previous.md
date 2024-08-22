@@ -1,3 +1,7 @@
+**Rick Steves, TV Travel Guide, Says He Has Prostate Cancer**\
+`Mr. Steves said the cancer had not spread and he will travel to France for work before having surgery next month.`\
+https://nytimes.com/2024/08/22/travel/rick-steves-prostate-cancer.html
+
 **Oprah, Football and Freedom: Highlights From the Democratic Convention**\
 `On Day 3, Gov. Tim Walz sought to rid the Democrats of their elite image. But another star was Oprah Winfrey, who mesmerized the crowd with an appeal for common sense and decency.`\
 https://nytimes.com/2024/08/22/us/politics/dnc-takeaways-tim-walz.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/22/arts/television/seth-meyers-obama-trump.html
 **Quotation of the Day: For China’s Road Trip Heroine, A Bold Step on a New Journey**\
 `Quotation of the Day for Thursday, August 22, 2024.`\
 https://nytimes.com/2024/08/22/pageoneplus/quotation-of-the-day-for-chinas-road-trip-heroine-a-bold-step-on-a-new-journey.html
-
-**Corrections: Aug. 22, 2024**\
-`Corrections that appeared in print on Thursday, Aug. 22, 2024.`\
-https://nytimes.com/2024/08/22/pageoneplus/corrections-aug-22-2024.html
 
