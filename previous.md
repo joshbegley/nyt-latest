@@ -1,3 +1,7 @@
+**Can the Democratic Party Reclaim Freedom?**\
+`The third night of the Democratic National Convention was the party’s pitch to be the defender of freedom.`\
+https://nytimes.com/2024/08/22/opinion/ezra-klein-podcast-dnc-digest-3.html
+
 **Trading Jahan Dotson shows rebuilding Commanders aren't waiting for a miracle**\
 `General manager Adam Peters and company are focused on bringing in the right pieces to fill out Washington's roster. `\
 https://nytimes.com/athletic/5717650/2024/08/22/commanders-jahan-dotson-trade-eagles/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5199977/2024/08/22/crystal-palace-takeover-john-tex
 **Russia Opens New Cases Against Journalists Who Covered Ukrainian Incursion**\
 `Moscow said it was investigating three more reporters, including a CNN correspondent, who crossed into Russian territory to cover the fighting.`\
 https://nytimes.com/2024/08/22/world/europe/russia-journalists-ukraine-incursion.html
-
-**Harris Leans on Memory of Her Mother, as She Reintroduces Herself**\
-`The definitional power of parenthood has been an unofficial theme of the Democratic convention this week. And Shyamala Gopalan Harris, the vice president’s mother, is a main character.`\
-https://nytimes.com/2024/08/22/us/politics/kamala-harris-mother.html
 

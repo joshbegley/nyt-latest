@@ -1,3 +1,7 @@
+**Can the Democratic Party Reclaim Freedom?**\
+`The third night of the Democratic National Convention was the party’s pitch to be the defender of freedom.`\
+https://nytimes.com/2024/08/22/opinion/ezra-klein-podcast-dnc-digest-3.html
+
 **Trading Jahan Dotson shows rebuilding Commanders aren't waiting for a miracle**\
 `General manager Adam Peters and company are focused on bringing in the right pieces to fill out Washington's roster. `\
 https://nytimes.com/athletic/5717650/2024/08/22/commanders-jahan-dotson-trade-eagles/
