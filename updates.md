@@ -1,3 +1,15 @@
+**Falcons CB A.J. Terrell lands 4-year, $81 million contract extension**\
+`The contract makes Terrell the second highest-paid cornerback in the NFL, just behind the Green Bay Packers' Jaire Alexander.`\
+https://nytimes.com/athletic/5716550/2024/08/22/falcons-aj-terrell-contract/
+
+**Thailand Confirms Its First Case of New, Deadlier Mpox Version**\
+`The Clade Ib version of the virus had not been detected outside Africa until last week, when a case in Sweden raised concerns about a wider outbreak.`\
+https://nytimes.com/2024/08/22/world/asia/thailand-mpox.html
+
+**Forest's Danilo to undergo surgery after 'serious' ankle injury - Nuno**\
+`Nuno Espirito Santo says Danilo will &#8220;come back stronger&#8221; as he confirmed that the Nottingham Forest midfielder will undergo surgery to repair his broken ankle next week.`\
+https://nytimes.com/athletic/5716588/2024/08/22/danilo-injury-surgery-nottingham-forest/
+
 **An Economic Soft Landing, or a Rockies Letdown?**\
 `Investors are anxiously awaiting Jerome Powell’s policy speech at a symposium in Jackson Hole, Wyo., on Friday, as labor data suggests the economy is slowing.`\
 https://nytimes.com/2024/08/22/business/dealbook/soft-landing-powell-jackson-hole.html

@@ -1,3 +1,15 @@
+**Falcons CB A.J. Terrell lands 4-year, $81 million contract extension**\
+`The contract makes Terrell the second highest-paid cornerback in the NFL, just behind the Green Bay Packers' Jaire Alexander.`\
+https://nytimes.com/athletic/5716550/2024/08/22/falcons-aj-terrell-contract/
+
+**Thailand Confirms Its First Case of New, Deadlier Mpox Version**\
+`The Clade Ib version of the virus had not been detected outside Africa until last week, when a case in Sweden raised concerns about a wider outbreak.`\
+https://nytimes.com/2024/08/22/world/asia/thailand-mpox.html
+
+**Forest's Danilo to undergo surgery after 'serious' ankle injury - Nuno**\
+`Nuno Espirito Santo says Danilo will &#8220;come back stronger&#8221; as he confirmed that the Nottingham Forest midfielder will undergo surgery to repair his broken ankle next week.`\
+https://nytimes.com/athletic/5716588/2024/08/22/danilo-injury-surgery-nottingham-forest/
+
 **Everton potentially down to 14 fit players with Tarkowski a doubt for Spurs**\
 `Everton manager Sean Dyche has admitted his squad is already “stretched” just a week into the new season, with a fresh injury concern over James Tarkowski potentially leaving them with as few as 14 available first-team players for Saturday’s trip to Tottenham Hotspur.`\
 https://nytimes.com/athletic/5716566/2024/08/22/everton-team-news-tarkowski-branthwaite-injury/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5716250/2024/08/22/de-ligt-united-real-madrid-build
 **Tracking Tropical Storm Shanshan**\
 `See the likely path and wind arrival times for Shanshan.`\
 https://nytimes.com/interactive/2024/08/22/weather/shanshan-map-path-tracker.html
-
-**An Economic Soft Landing, or a Rockies Letdown?**\
-`Investors are anxiously awaiting Jerome Powell’s policy speech at a symposium in Jackson Hole, Wyo., on Friday, as labor data suggests the economy is slowing.`\
-https://nytimes.com/2024/08/22/business/dealbook/soft-landing-powell-jackson-hole.html
-
-**How will Tom Brady do? Are you ready for Netflix games? Six big NFL media questions for 2024**\
-`Tom Brady's much anticipated Fox debut, Bill Belichick's future in broadcasting and more big NFL media questions for the 2024 season.`\
-https://nytimes.com/athletic/5714067/2024/08/22/nfl-media-questions-tom-brady-netflix-bill-belichick/
-
-**Sphen, Penguin Whose Gay Love Story Earned Global Fame, Dies**\
-`For six years, Sphen and Magic were devoted partners, adoptive parents and queer icons. After Sphen died this month at age 11, Magic began singing.`\
-https://nytimes.com/2024/08/22/world/australia/sphen-gay-penguin-dead.html
 
