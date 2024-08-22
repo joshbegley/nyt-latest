@@ -1,3 +1,11 @@
+**Trump Pardon Recipient Accused of Assaulting Wife and Father-in-Law**\
+`Jonathan Braun, whose drug sentence was commuted by Donald Trump shortly before he left office, was charged on Long Island, the latest incident to raise questions of how clemency applications were vetted.`\
+https://nytimes.com/2024/08/21/us/politics/jonathan-braun-assault.html
+
+**Convention Insider: Wes Moore Is in Constant Demand**\
+`For the governor of Maryland and his staff, logistics — and local cuisine — can be challenge.`\
+https://nytimes.com/2024/08/21/us/elections/wes-moore-democratic-national-convention.html
+
 **Lions defense puts offense to work on scrimmage day**\
 `The offense got off to a terrible start, but later improved.`\
 https://nytimes.com/athletic/5715378/2024/08/21/detroit-lions-training-camp-practice-scrimmage/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/21/us/politics/the-democrats-answer-to-hulk-hogan.ht
 **Cooper DeJean 'excited' for potential Eagles preseason debut**\
 `Plus, notes from the last practice of training camp.`\
 https://nytimes.com/athletic/5714849/2024/08/21/cooper-dejean-eagles-preseason-debut/
-
-**Joseph A Ripp**\
-`News about Joseph A Ripp. Commentary and archival information about Joseph A Ripp from The New York Times.`\
-https://nytimes.com/topic/joseph-a-ripp
-
-**Joey Votto, legendary Reds first baseman, retires after 17 seasons**\
-`Votto played his entire MLB career with the Reds, amassing a Hall of Fame resume that includes 2,135 hits and the 2010 NL MVP Award.`\
-https://nytimes.com/athletic/5715661/2024/08/21/joey-votto-retirement-reds/
 

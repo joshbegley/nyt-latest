@@ -1,3 +1,11 @@
+**Trump Pardon Recipient Accused of Assaulting Wife and Father-in-Law**\
+`Jonathan Braun, whose drug sentence was commuted by Donald Trump shortly before he left office, was charged on Long Island, the latest incident to raise questions of how clemency applications were vetted.`\
+https://nytimes.com/2024/08/21/us/politics/jonathan-braun-assault.html
+
+**Convention Insider: Wes Moore Is in Constant Demand**\
+`For the governor of Maryland and his staff, logistics — and local cuisine — can be challenge.`\
+https://nytimes.com/2024/08/21/us/elections/wes-moore-democratic-national-convention.html
+
 **Lions defense puts offense to work on scrimmage day**\
 `The offense got off to a terrible start, but later improved.`\
 https://nytimes.com/athletic/5715378/2024/08/21/detroit-lions-training-camp-practice-scrimmage/
