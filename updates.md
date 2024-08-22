@@ -1,3 +1,7 @@
+**Taylor Swift Says She Felt ‘Fear’ and ‘Guilt’ After Canceled Vienna Shows**\
+`The three stops in Austria on the pop star’s Eras Tour were canceled after the authorities discovered a terrorist plot targeting the concerts.`\
+https://nytimes.com/2024/08/21/arts/music/taylor-swift-vienna-eras-tour.html
+
 **Jonathan A Ferrell**\
 `News about Jonathan A Ferrell. Commentary and archival information about Jonathan A Ferrell from The New York Times.`\
 https://nytimes.com/topic/jonathan-a-ferrell
