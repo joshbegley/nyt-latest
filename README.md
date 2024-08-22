@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Hone**\
+`See the likely path and wind arrival times for Hone.`\
+https://nytimes.com/interactive/2024/08/22/weather/hone-map-path-tracker.html
+
 **Who Are Kamala Harris’s 1.5 Million New Donors?**\
 `President Biden’s exit from the presidential race brought a surge of new donors to the Democratic campaign. They tended to be younger, and from areas with slightly higher proportions of Black and college-educated residents.`\
 https://nytimes.com/interactive/2024/08/22/us/elections/kamala-harris-donors.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/22/us/politics/dnc-jasmine-crockett-speech.html
 **The Four Points That Harris’s Speech Needs to Emphasize**\
 `With millions of Americans listening to her for the first time, Harris can’t miss the opportunity.`\
 https://nytimes.com/live/2024/08/20/opinion/thepoint/harris-speech-four-points
-
-**Judge John Hodgman on Defenestration Alternatives**\
-`Do we need a word for doing it in reverse?`\
-https://nytimes.com/2024/08/22/magazine/judge-john-hodgman-on-defenestration-alternatives.html
 
