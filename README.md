@@ -1,3 +1,7 @@
+**'We needed that': Nolan Arenado's walk-off grand slam snaps Cardinals' losing skid**\
+`Arenado had one thought when he strode to the plate with the bases loaded in the bottom of the 10th: "Just get the ball to the outfield."`\
+https://nytimes.com/athletic/5716092/2024/08/22/nolan-arenado-walk-off-grand-slam-cardinals-brewers/
+
 **Joey Votto reflects on decision to retire, falling short of dream to play for Blue Jays**\
 `"I can say to the very last pitch I was giving my very all. But there's an end for all athletes. Time is undefeated, as they say."`\
 https://nytimes.com/athletic/5716110/2024/08/22/joey-votto-retirement-blue-jays/
@@ -29,8 +33,4 @@ https://nytimes.com/video/us/elections/100000009651576/tim-walz-accepts-the-vp-n
 **FPL: Which Gameweek 1 disappointments should you keep or sell?**\
 `From Ollie Watkins to Darwin Nunez, Holly Shand explores what to do with players who failed to deliver for you in Gameweek 1`\
 https://nytimes.com/athletic/5712108/2024/08/22/fantasy-premier-league-watkins-nkunku-eze-sell-keep/
-
-**Labor Dispute Halts Rail Freight in Canada, Raising Supply Chain Concerns**\
-`The shutdown could disrupt trade with the United States and other countries, as well as causing serious economic consequences within Canada.`\
-https://nytimes.com/2024/08/22/world/canada/canada-freight-trains.html
 
