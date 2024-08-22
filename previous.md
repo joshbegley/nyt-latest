@@ -1,3 +1,7 @@
+**Jury in New Orleans Awards $1 Million to Teen Raped by Police Officer**\
+`The officer, Rodney Vicknair, who died in prison this year, met the girl while taking her to a hospital after she was sexually assaulted by another man, prosecutors said.`\
+https://nytimes.com/2024/08/22/us/new-orleans-officer-sexual-assault.html
+
 **The Biggest Speech of Kamala Harris’s Life**\
 `Also, Canada’s rail shutdown could disrupt the U.S. economy. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/08/22/briefing/harris-convention-speech-mpox-case-thailand.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/22/technology/ftx-crypto-campaign-finance.html
 **Tracking Tropical Storm Hone**\
 `See the likely path and wind arrival times for Hone.`\
 https://nytimes.com/interactive/2024/08/22/weather/hone-map-path-tracker.html
-
-**Who Are Kamala Harris’s 1.5 Million New Donors?**\
-`President Biden’s exit from the presidential race brought a surge of new donors to the Democratic campaign. They tended to be younger, and from areas with slightly higher proportions of Black and college-educated residents.`\
-https://nytimes.com/interactive/2024/08/22/us/elections/kamala-harris-donors.html
 
