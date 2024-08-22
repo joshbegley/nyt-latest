@@ -1,3 +1,11 @@
+**‘Coach Walz’ Leads a Democratic Pep Rally**\
+`The vice-presidential nominee’s prime-time debut offered football analogies and an alternative to Trumpian masculinity.`\
+https://nytimes.com/2024/08/22/arts/television/tim-walz-dnc.html
+
+**A JD Vance Remix Goes Viral on TikTok, as Political Memes Change Shape**\
+`A mash-up of years-old comments by the Ohio senator with a hip-hop track is finding a broad audience. It’s part of a new genre of videos on the app.`\
+https://nytimes.com/2024/08/22/business/jd-vance-never-trump-guy-tiktok.html
+
 **Scoop City: Pressure on Anthony Richardson tonight**\
 `A look at four storylines to follow as the NFL's third week of preseason action kicks off tonight`\
 https://nytimes.com/athletic/5716468/2024/08/22/scoop-city-pressure-on-anthony-richardson-tonight/
@@ -25,12 +33,4 @@ https://nytimes.com/video/us/elections/100000009641916/the-run-up-dispatch-dnc.h
 **Falcons CB A.J. Terrell lands 4-year, $81 million contract extension**\
 `The contract makes Terrell the second highest-paid cornerback in the NFL, just behind the Green Bay Packers' Jaire Alexander.`\
 https://nytimes.com/athletic/5716550/2024/08/22/falcons-aj-terrell-contract/
-
-**Thailand Confirms Its First Case of New, Deadlier Mpox Version**\
-`The Clade Ib version of the virus had not been detected outside Africa until last week, when a case in Sweden raised concerns about a wider outbreak.`\
-https://nytimes.com/2024/08/22/world/asia/thailand-mpox.html
-
-**Forest's Danilo to undergo surgery after 'serious' ankle injury - Nuno**\
-`Nuno Espirito Santo says Danilo will &#8220;come back stronger&#8221; as he confirmed that the Nottingham Forest midfielder will undergo surgery to repair his broken ankle next week.`\
-https://nytimes.com/athletic/5716588/2024/08/22/danilo-injury-surgery-nottingham-forest/
 

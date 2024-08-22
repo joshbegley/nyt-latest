@@ -1,3 +1,11 @@
+**‘Coach Walz’ Leads a Democratic Pep Rally**\
+`The vice-presidential nominee’s prime-time debut offered football analogies and an alternative to Trumpian masculinity.`\
+https://nytimes.com/2024/08/22/arts/television/tim-walz-dnc.html
+
+**A JD Vance Remix Goes Viral on TikTok, as Political Memes Change Shape**\
+`A mash-up of years-old comments by the Ohio senator with a hip-hop track is finding a broad audience. It’s part of a new genre of videos on the app.`\
+https://nytimes.com/2024/08/22/business/jd-vance-never-trump-guy-tiktok.html
+
 **Scoop City: Pressure on Anthony Richardson tonight**\
 `A look at four storylines to follow as the NFL's third week of preseason action kicks off tonight`\
 https://nytimes.com/athletic/5716468/2024/08/22/scoop-city-pressure-on-anthony-richardson-tonight/
