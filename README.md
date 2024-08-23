@@ -1,3 +1,11 @@
+**Juventus in Sancho talks: How Man Utd deal could be structured and analysis**\
+`Juventus are keen on Jadon Sancho but a deal for the forward would not be straightforward`\
+https://nytimes.com/athletic/5718971/2024/08/23/jadon-sancho-juventus-manchester-united/
+
+**At Edinburgh Festival, Sometimes Simpler is Better**\
+`The event’s best theater production avoided the gimmicks of other shows in favor of well-drawn characters and well-written dialogue.`\
+https://nytimes.com/2024/08/23/theater/edinburgh-international-festival.html
+
 **Bonadei succeeds Renard as France Women head coach**\
 `Herve Renard has been replaced as France Women head coach by his former assistant Laurent Bonadei.`\
 https://nytimes.com/athletic/5719077/2024/08/23/laurent-bonadei-succeeds-herve-renard-as-france-women-head-coach/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/23/business/media/john-lansing-dead.html
 **Robert F. Kennedy Jr. Is Expected to End his Independent Presidential Campaign**\
 `Kennedy filed paperwork Thursday to withdraw from the ballot in Arizona, and has been in talks about endorsing Donald J. Trump.`\
 https://nytimes.com/2024/08/23/us/elections/rfk-campaign-arizona.html
-
-**Fed Chair Powell Signals ‘Time Has Come’ for September Rate Cut**\
-`Jerome H. Powell used a speech in Jackson Hole to signal that the Federal Reserve will begin to cut rates on Sept. 18, and to voice wariness about the job market.`\
-https://nytimes.com/2024/08/23/business/economy/fed-rates-powell-jackson-hole.html
-
-**Guggenheim Curator Will Stage Exhibition of Caribbean Diaspora**\
-`The National Gallery of Jamaica has selected Ashley James to organize the 2024 Kingston Biennial, which opens in December.`\
-https://nytimes.com/2024/08/23/arts/design/kingston-biennial-ashley-james.html
 

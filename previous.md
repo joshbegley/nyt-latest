@@ -1,3 +1,15 @@
+**Bonadei succeeds Renard as France Women head coach**\
+`Herve Renard has been replaced as France Women head coach by his former assistant Laurent Bonadei.`\
+https://nytimes.com/athletic/5719077/2024/08/23/laurent-bonadei-succeeds-herve-renard-as-france-women-head-coach/
+
+**Biden’s National Security Adviser Will Visit China Next Week**\
+`A final meeting between President Biden and China’s leader, Xi Jinping, is also likely to come up.`\
+https://nytimes.com/2024/08/23/us/politics/biden-china-us.html
+
+**Kamala Harris’s Main-Character Energy**\
+`Accepting the nomination, the vice president completed a whirlwind ascent — and sought to finally supplant Donald Trump at the center of America’s political drama.`\
+https://nytimes.com/2024/08/23/arts/television/kamala-harris-acceptance-speech-dnc.html
+
 **Nick Suzuki’s belief in Canadiens reinforced by Patrik Laine trade**\
 `Suzuki was consulted on the Laine trade and endorsed it because it will only help him reach his lofty goals.`\
 https://nytimes.com/athletic/5718388/2024/08/23/canadiens-patrik-laine-trade-nick-suzuki/
@@ -21,16 +33,4 @@ https://nytimes.com/2024/08/23/business/economy/fed-rates-powell-jackson-hole.ht
 **Guggenheim Curator Will Stage Exhibition of Caribbean Diaspora**\
 `The National Gallery of Jamaica has selected Ashley James to organize the 2024 Kingston Biennial, which opens in December.`\
 https://nytimes.com/2024/08/23/arts/design/kingston-biennial-ashley-james.html
-
-**Book Club: Let’s Talk About ‘My Brilliant Friend’**\
-`The first novel in Elena Ferrante’s Neapolitan quartet was just voted the best book of the 21st century. We like it too.`\
-https://nytimes.com/2024/08/23/books/review/podcast-ferrante-my-brilliant-friend.html
-
-**Prisoners Stage Deadly Mutiny in Southern Russia**\
-`In the latest in a series of such uprisings, at least one guard died after inmates took control of part of a maximum security jail in the Volgograd region`\
-https://nytimes.com/2024/08/23/world/europe/russia-prison-mutiny.html
-
-**Oilers depth chart projection: Evaluating a revamped roster**\
-`New GM Stan Bowman very well could make more changes, but here's where Edmonton's roster stacks up now.`\
-https://nytimes.com/athletic/5715336/2024/08/23/edmonton-oilers-roster-projection-2024-25/
 

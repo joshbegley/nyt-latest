@@ -1,3 +1,15 @@
+**Bonadei succeeds Renard as France Women head coach**\
+`Herve Renard has been replaced as France Women head coach by his former assistant Laurent Bonadei.`\
+https://nytimes.com/athletic/5719077/2024/08/23/laurent-bonadei-succeeds-herve-renard-as-france-women-head-coach/
+
+**Biden’s National Security Adviser Will Visit China Next Week**\
+`A final meeting between President Biden and China’s leader, Xi Jinping, is also likely to come up.`\
+https://nytimes.com/2024/08/23/us/politics/biden-china-us.html
+
+**Kamala Harris’s Main-Character Energy**\
+`Accepting the nomination, the vice president completed a whirlwind ascent — and sought to finally supplant Donald Trump at the center of America’s political drama.`\
+https://nytimes.com/2024/08/23/arts/television/kamala-harris-acceptance-speech-dnc.html
+
 **Nick Suzuki’s belief in Canadiens reinforced by Patrik Laine trade**\
 `Suzuki was consulted on the Laine trade and endorsed it because it will only help him reach his lofty goals.`\
 https://nytimes.com/athletic/5718388/2024/08/23/canadiens-patrik-laine-trade-nick-suzuki/
