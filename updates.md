@@ -1,3 +1,5 @@
+**Harris walks a fine line on Gaza, and other news.**\
+
 **Our experts' College Football Playoff, Heisman and national title predictions**\
 `Ohio State is our staff's most popular national championship choice. Who else makes our 12-team College Football Playoff bracket?`\
 https://nytimes.com/athletic/5716431/2024/08/23/college-football-playoff-heisman-predictions/
