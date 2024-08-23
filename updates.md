@@ -1,3 +1,11 @@
+**Three Israeli settlers are detained in an attack on a Palestinian village.**\
+`Dozens of masked settlers rampaged through the village of Jit on Aug. 15, shooting and killing one man and setting fire to property, residents said.`\
+https://nytimes.com/live/2024/08/23/world/israel-hamas-gaza-war/three-israeli-settlers-are-detained-in-an-attack-on-a-palestinian-village
+
+**Mediators plan to resume cease-fire talks next week, officials say, as Israel pushes its demands.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/08/23/world/israel-hamas-gaza-war/mediators-plan-to-resume-cease-fire-talks-next-week-officials-say-as-israel-pushes-its-demands
+
 **Matsuyama (back) withdraws from BMW Championship**\
 `Hideki Matsuyama's spot at next week's Tour Championship is secure if he can play.`\
 https://nytimes.com/athletic/5719206/2024/08/23/hideki-matsuyama-injury-withdraw-bmw-championship/
