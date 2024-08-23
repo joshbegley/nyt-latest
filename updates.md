@@ -1,3 +1,11 @@
+**Ipswich agree deal to sign Sunderland's Clarke**\
+`Ipswich Town have agreed a deal to sign Sunderland winger Jack Clarke.`\
+https://nytimes.com/athletic/5715340/2024/08/23/ipswich-town-jack-clarke-transfer/
+
+**Harris Wants America to See Itself in Her**\
+`The vice president’s speech sought to reassure Americans of her values even as many may be unfamiliar with her background.`\
+https://nytimes.com/2024/08/23/us/politics/kamala-harris-dnc-speech-values.html
+
 **Kamala Takes Chicago**\
 `The Democratic presidential nominee`\
 https://nytimes.com/2024/08/23/opinion/kamala-harris-speech.html
