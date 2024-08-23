@@ -1,3 +1,7 @@
+**Final Colts 53-man roster projection: Why Jelani Woods made cut but Sam Ehlinger didn't**\
+`The Colts must trim their roster to 53 players by Tuesday evening. They have a few tough decisions to make. `\
+https://nytimes.com/athletic/5714496/2024/08/22/indianapolis-colts-roster-projection-final-53/
+
 **Angels' Perry Minasian gets 2-year extension, now it's time for him to shop smarter: Blum**\
 `Analysis: Minasian has yet to prove that he can be a winning GM for what is ostensibly a small-market team.`\
 https://nytimes.com/athletic/5718201/2024/08/22/angels-perry-minasian-extension-analysis/

@@ -1,3 +1,7 @@
+**Final Colts 53-man roster projection: Why Jelani Woods made cut but Sam Ehlinger didn't**\
+`The Colts must trim their roster to 53 players by Tuesday evening. They have a few tough decisions to make. `\
+https://nytimes.com/athletic/5714496/2024/08/22/indianapolis-colts-roster-projection-final-53/
+
 **Kennedy Withdraws From Presidential Contest in Arizona**\
 `Robert F. Kennedy Jr., an independent candidate, is set to give an address on Friday about the future of his campaign.`\
 https://nytimes.com/2024/08/22/us/elections/rfk-jr-arizona-withdraw.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/08/20/opinion/thepoint/donald-trump-central-park-f
 **With Ella Emhoff, the D.N.C. Keeps Its Family Theme Going**\
 `The stepdaughter of Kamala Harris took the stage alongside Ms. Harris’s niece and goddaughter.`\
 https://nytimes.com/2024/08/22/style/ella-emhoff-dnc-harris.html
-
-**Kerry Washington Knows TV Politics. Now She’s Hosting a Real Party.**\
-`The star of the hit show “Scandal” is emcee for the final night’s program at the Democratic National Convention.`\
-https://nytimes.com/2024/08/22/us/politics/kerry-washington-dnc.html
 
