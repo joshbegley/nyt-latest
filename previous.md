@@ -1,36 +1,36 @@
-**The 100 transfers you need to know for the 2024 college football season**\
-`Coaches’ on-the-ground observations in August played a vital role in compiling our rankings of the transfers set to make the biggest splash.`\
-https://nytimes.com/athletic/5714910/2024/08/23/college-footbal-transfer-portal-rankings/
+**Horse Racing Is Starved for Star Power. Could Thorpedo Anna Change That?**\
+`On Saturday, Kenny McPeek’s 3-year-old will try to be the first filly since 1915 to win the Travers Stakes. It could be a boon for a sport whose popularity has dipped.`\
+https://nytimes.com/2024/08/23/business/travers-stakes-thorpedo-anna.html
 
-**Sydney Metro Expands, Opening to Celebrity-Level Fanfare**\
-`In a mostly car-dependent country where public transportation in major cities can be best described as “decent,” the expansion felt momentous.`\
-https://nytimes.com/2024/08/23/world/australia/sydney-metro.html
+**Putin Is Losing Control of His Narrative**\
+`The surprise incursion into Kursk has given Ukraine an advantage over Russia in the propaganda battle, an important front in this conflict.`\
+https://nytimes.com/2024/08/23/opinion/putin-ukraine-kursk.html
 
-**'I consider myself lucky': Dominic Thiem and the agonising what-ifs of tennis**\
-`When the Austrian collapsed to the ground in celebration on a silent Arthur Ashe in 2020, he had finally made it. He could have had more`\
-https://nytimes.com/athletic/5713759/2024/08/23/dominic-thiem-interview-how-a-u-s-open-title-became-the-start-of-a-tennis-ending/
+**Two Armed Rebels Who Led a Nation: A Love Story**\
+`José Mujica and Lucía Topolansky have long been married to one another — and their leftist political cause.`\
+https://nytimes.com/2024/08/23/world/americas/uruguay-mujica-love-story.html
 
-**Ipswich agree deal to sign Sunderland's Clarke**\
-`Ipswich Town have agreed a deal to sign Sunderland winger Jack Clarke.`\
-https://nytimes.com/athletic/5715340/2024/08/23/ipswich-town-jack-clarke-transfer/
+**Gus Walz Reminds Me of My Son**\
+`If the Harris-Walz ticket wins, will parents of people who struggle with being different at last find a powerful advocate in the White House?`\
+https://nytimes.com/2024/08/23/opinion/tim-walz-son-gus.html
 
-**Harris Wants America to See Itself in Her**\
-`The vice president’s speech sought to reassure Americans of her values even as many may be unfamiliar with her background.`\
-https://nytimes.com/2024/08/23/us/politics/kamala-harris-dnc-speech-values.html
+**The New York Times News Quiz, August 23, 2024**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2024/08/23/briefing/news-quiz-dnc-harris-trump-ai.html
 
-**Kamala Takes Chicago**\
-`The Democratic presidential nominee`\
-https://nytimes.com/2024/08/23/opinion/kamala-harris-speech.html
+**5 Things to Do This Weekend**\
+`A selection of entertainment highlights this weekend, including the comedy “Between the Temples.”`\
+https://nytimes.com/interactive/2024/08/23/arts/weekend-editors-picks-between-the-temples.html
 
-**What Voters Outside the Democratic Bubble Thought of Harris’s Speech**\
-`They are not (yet) leaping onto the Democratic Party bandwagon. But one undecided voter said, “Maybe it’s not as hard to vote for her.”`\
-https://nytimes.com/2024/08/23/us/democratic-national-convention-kamala-harris-speech-undecided-voters.html
+**Medication Mistakes Pharmacists Want You to Stop Making**\
+`Common habits like storing pills in your medicine cabinet can reduce their effectiveness, experts say.`\
+https://nytimes.com/2024/08/23/well/medication-mistakes.html
 
-**The Mets, leaning on each other down the stretch, open road trip with win**\
-`A win in San Diego showed why the bottom of the Mets' roster holds importance during this final handful of weeks.`\
-https://nytimes.com/athletic/5718602/2024/08/23/mets-win-padres-iglesias-vientos/
+**10 New Movies Our Critics Are Talking About This Week**\
+`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
+https://nytimes.com/2024/08/23/movies/new-movies-this-week-critics.html
 
-**Jon Stewart Goes Live From Chicago on the Last Night of the D.N.C.**\
-`After Kamala Harris accepted the nomination, Stewart mused: “How funny would it have been if at the end she was like, ‘But seriously, though: not for me.’”`\
-https://nytimes.com/2024/08/23/arts/television/jon-stewart-democratic-national-convention.html
+**In ‘Shogun,’ Anna Sawai Drew On the Power of Silence. And Mozart.**\
+`“It gives me confidence,” she said about her first Emmy nomination, for best actress in a drama. “I have such bad impostor syndrome.”`\
+https://nytimes.com/2024/08/23/arts/television/anna-sawai-shogun-emmy-award.html
 
