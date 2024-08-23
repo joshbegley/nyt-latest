@@ -1,3 +1,7 @@
+**If Your Debt Is Ballooning, There Are Steps You Can Take**\
+`More borrowers have been falling behind on their credit card bills and are paying more for basic banking services, like A.T.M. fees.`\
+https://nytimes.com/2024/08/23/your-money/managing-debt-credit-cards-loans.html
+
 **Ukraine Steps Up Strikes Into Russia as Moscow Pushes Ahead in the East**\
 `Ukraine struck a port across from Crimea and damaged a cargo ferry. But Kyiv’s forces continued to struggle in eastern areas under a relentless Russian assault.`\
 https://nytimes.com/2024/08/23/world/europe/ukraine-russia-war-crimea.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5718838/2024/08/23/real-madrid-jude-bellingham-inju
 **Bills players with the most to gain or lose in the preseason finale**\
 `Injuries have created opportunities for some players to play their way into a roster spot.`\
 https://nytimes.com/athletic/5717677/2024/08/23/buffalo-bills-carolina-panthers-preseason-players/
-
-**Ranking the top 10 NL rookies: Who will prevail in Rookie of the Year race?**\
-`This is how I see the NL Rookie of the Year race with about five weeks remaining in the season. `\
-https://nytimes.com/athletic/5717742/2024/08/23/national-league-rookie-of-the-year-race/
 
