@@ -6,7 +6,7 @@ https://nytimes.com/2024/08/22/us/politics/kamala-harris-dnc-speech.html
 `By Andrew Duehren`\
 https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/he-doesnt-actually-fight-for-the-middle-class-instead-he-fights-for-himself-and-his-billionaire-friends-and-he-will-give-them-an
 
-**Bears' Douglass Coleman III stretchered off field in preseason game**\
+**Bears' Douglas Coleman III stretchered off field in preseason game**\
 `Coleman was motionless for several minutes after trying to make a routine tackle while medical staff from both teams attended to him.`\
 https://nytimes.com/athletic/5718385/2024/08/22/douglas-coleman-bears-injury-stretcher/
 

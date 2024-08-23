@@ -1,3 +1,15 @@
+**Harris Promises to Chart ‘New Way Forward’ as She Accepts Nomination**\
+`Vice President Kamala Harris delivered a searing rebuke of former President Donald J. Trump, casting him as a threat to democracy, global stability and women’s rights.`\
+https://nytimes.com/2024/08/22/us/politics/kamala-harris-dnc-speech.html
+
+**“He doesn’t actually fight for the middle class. Instead, he fights for himself and his billionaire friends. And he will give them another round of tax breaks that will add up to $5 trillion to the national debt.”**\
+`By Andrew Duehren`\
+https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/he-doesnt-actually-fight-for-the-middle-class-instead-he-fights-for-himself-and-his-billionaire-friends-and-he-will-give-them-an
+
+**Bears' Douglass Coleman III stretchered off field in preseason game**\
+`Coleman was motionless for several minutes after trying to make a routine tackle while medical staff from both teams attended to him.`\
+https://nytimes.com/athletic/5718385/2024/08/22/douglas-coleman-bears-injury-stretcher/
+
 **‘That Woman From Michigan’ Twists the Knife on Trump**\
 `Gov. Gretchen Whitmer makes the case for tough women.`\
 https://nytimes.com/live/2024/08/20/opinion/thepoint/whitmer-michigan-harris
