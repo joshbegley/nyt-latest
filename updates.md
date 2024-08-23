@@ -1,3 +1,11 @@
+**Brian Robinson Jr., Romeo Doubs among latest additions to Jay Felicio's "My Guys" for fantasy football 2024**\
+`Jay Felicio adds a couple Commanders to his "My Guys" list for fantasy football 2024, including running back Brian Robinson Jr. `\
+https://nytimes.com/athletic/5719298/2024/08/23/my-guys-jay-felicio-fantasy-football-2024/
+
+**What Harris Has to Do Next, and Fast**\
+`A good convention speech isn’t enough to earn the trust of voters.`\
+https://nytimes.com/2024/08/20/opinion/kamala-harris-democratic-convention.html
+
 **The Big Number: 818,000**\
 `The Labor Department issued a huge downward revision on jobs figures for the 12 months that ended in March, pointing to greater cracks in the economy.`\
 https://nytimes.com/2024/08/23/business/the-big-number-818000-jobs-revision.html
