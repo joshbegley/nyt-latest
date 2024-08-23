@@ -1,3 +1,7 @@
+**Robert F. Kennedy Jr. is Expected to End his Independent Presidential Campaign**\
+`Kennedy filed paperwork Thursday to withdraw from the ballot in Arizona, and has been in talks about endorsing Donald J. Trump.`\
+https://nytimes.com/2024/08/23/us/elections/rfk-campaign-arizona.html
+
 **Fed Chair Powell Signals ‘Time Has Come’ for September Rate Cut**\
 `Jerome H. Powell used a speech in Jackson Hole to signal that the Federal Reserve will begin to cut rates on Sept. 18, and to voice wariness about the job market.`\
 https://nytimes.com/2024/08/23/business/economy/fed-rates-powell-jackson-hole.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/23/us/politics/harris-dnc-momentum.html
 **Olmo Barca's limbo: Why €60m summer signing still cannot play for them**\
 `The Spain international arrived in a big deal with RB Leipzig after shining at Euro 2024 - but he still has to wait to make his debut`\
 https://nytimes.com/athletic/5718867/2024/08/23/dani-olmo-barcelona-la-liga-registration-update/
-
-**Rodri likely to miss Ipswich, Gundogan ready to play - Guardiola**\
-`Pep Guardiola says that Rodri is unlikely to feature against Ipswich this weekend but suggested that Ilkay Gundogan could play following his return to the club.`\
-https://nytimes.com/athletic/5719020/2024/08/23/rodri-man-city-injury-gundogan/
 

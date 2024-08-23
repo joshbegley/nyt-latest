@@ -1,3 +1,7 @@
+**Robert F. Kennedy Jr. is Expected to End his Independent Presidential Campaign**\
+`Kennedy filed paperwork Thursday to withdraw from the ballot in Arizona, and has been in talks about endorsing Donald J. Trump.`\
+https://nytimes.com/2024/08/23/us/elections/rfk-campaign-arizona.html
+
 **Fed Chair Powell Signals ‘Time Has Come’ for September Rate Cut**\
 `Jerome H. Powell used a speech in Jackson Hole to signal that the Federal Reserve will begin to cut rates on Sept. 18, and to voice wariness about the job market.`\
 https://nytimes.com/2024/08/23/business/economy/fed-rates-powell-jackson-hole.html
