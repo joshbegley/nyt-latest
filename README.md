@@ -1,3 +1,7 @@
+**Ilkay Gundogan to Manchester City: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we look at Ilkay Gundogan's move to Manchester City`\
+https://nytimes.com/athletic/5709931/2024/08/23/ilkay-gundogan-manchester-city-ratings/
+
 **Juventus in Sancho talks: How Man Utd deal could be structured - and analysis**\
 `Juventus are keen on Jadon Sancho but a deal for the forward would not be straightforward`\
 https://nytimes.com/athletic/5718971/2024/08/23/jadon-sancho-juventus-manchester-united/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/23/NYT-Presents/lie-to-fly-joseph-emerson-pilot.html
 **John Lansing, Who Guided NPR Through Tumultuous Times, Dies at 67**\
 `He led the broadcasting organization during the coronavirus pandemic, a decline in revenue and a period of extreme political polarization.`\
 https://nytimes.com/2024/08/23/business/media/john-lansing-dead.html
-
-**Robert F. Kennedy Jr. Is Expected to End his Independent Presidential Campaign**\
-`Kennedy filed paperwork Thursday to withdraw from the ballot in Arizona, and has been in talks about endorsing Donald J. Trump.`\
-https://nytimes.com/2024/08/23/us/elections/rfk-campaign-arizona.html
 
