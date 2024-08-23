@@ -1,3 +1,7 @@
+**With the Mariners at a crisis point, Jerry Dipoto promotes Dan Wilson to manager**\
+`GM Jerry Dipoto hopes a turnaround is coming in the weeks ahead. But after Thursday’s news, a cratering summer reached a new low. `\
+https://nytimes.com/athletic/5718198/2024/08/22/mariners-name-dan-wilson-manager-analysis/
+
 **On National TV, an Innocent Man Denounces a Felon**\
 `Donald Trump has refused to admit he was wrong about the Central Park Five.`\
 https://nytimes.com/live/2024/08/20/opinion/thepoint/donald-trump-central-park-five
