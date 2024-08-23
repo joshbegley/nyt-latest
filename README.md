@@ -1,3 +1,7 @@
+**Modi Arrives in Kyiv as Ukraine Pushes Diplomacy**\
+`Ukrainian officials were portraying the visit by Prime Minister Narendra Modi of India as a welcome show of support for their country during the war with Russia.`\
+https://nytimes.com/2024/08/23/world/europe/ukraine-modi-india.html
+
 **Teams have doubled down on off-speed pitches to silence Phillies bats since break**\
 `No team in baseball has seen fewer fastballs since the All-Star break than the Phillies. The scouting report is clear. `\
 https://nytimes.com/athletic/5718428/2024/08/23/phillies-offense-struggles-since-all-star-break/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5717913/2024/08/23/cubs-justin-steele-success-isaac
 **Hollinger: The most under-scrutinized moves from the NBA offseason**\
 `I wouldn't call these transactions "overrated," but several factors surrounding them present more than a few questions.`\
 https://nytimes.com/athletic/5716007/2024/08/23/nba-overrated-trades-signings-immanuel-quickley-max-christie/
-
-**At the Democratic Convention, a Historic Nomination**\
-`What story did the Democrats tell about Kamala Harris? And will it be enough to win?`\
-https://nytimes.com/2024/08/23/podcasts/the-daily/kamala-harris-nomination.html
 
