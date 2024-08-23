@@ -1,3 +1,7 @@
+**Rodri likely to miss Ipswich, Gundogan ready to play - Guardiola**\
+`Pep Guardiola says that Rodri is unlikely to feature against Ipswich this weekend but suggested that Ilkay Gundogan could play following his return to the club.`\
+https://nytimes.com/athletic/5719020/2024/08/23/rodri-man-city-injury-gundogan/
+
 **Coming of Age in 2024: Explore Your Political Identity and Values**\
 `What can you show or tell us to help explain what it’s like to grow up in this political moment? Submit in words, images, audio or video, from Oct. 2 to Nov. 4.`\
 https://nytimes.com/2024/08/23/learning/coming-of-age-in-2024-explore-your-political-identity-and-values.html
