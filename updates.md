@@ -1,3 +1,15 @@
+**Fed Chair Powell Signals ‘Time Has Come’ for September Rate Cut**\
+`Jerome H. Powell used a speech in Jackson Hole to signal that the Federal Reserve will begin to cut rates on Sept. 18, and to voice wariness about the job market.`\
+https://nytimes.com/2024/08/23/business/economy/fed-rates-powell-jackson-hole.html
+
+**Guggenheim Curator Will Stage Exhibition of Caribbean Diaspora**\
+`The National Gallery of Jamaica has selected Ashley James to organize the 2024 Kingston Biennial, which opens in December.`\
+https://nytimes.com/2024/08/23/arts/design/kingston-biennial-ashley-james.html
+
+**Book Club: Let’s Talk About ‘My Brilliant Friend’**\
+`The first novel in Elena Ferrante’s Neapolitan quartet was just voted the best book of the 21st century. We like it too.`\
+https://nytimes.com/2024/08/23/books/review/podcast-ferrante-my-brilliant-friend.html
+
 **Prisoners Stage Deadly Mutiny in Southern Russia**\
 `In the latest in a series of such uprisings, at least one guard died after inmates took control of part of a maximum security jail in the Volgograd region`\
 https://nytimes.com/2024/08/23/world/europe/russia-prison-mutiny.html
