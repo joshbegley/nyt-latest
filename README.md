@@ -1,3 +1,15 @@
+**‘Joy,’ ‘Freedom,’ ‘Goldilocks’: Kamala Harris’s Democratic Party in 7 Keywords**\
+`As Democrats coalesce around their candidate, here are some of the words that define the party now.`\
+https://nytimes.com/2024/08/23/books/review/democratic-national-convention-kamala-harris.html
+
+**Chelsea optimistic on Romelu Lukaku transfer to Napoli**\
+`Chelsea are growing in optimism that a deal to sell Romelu Lukaku to Napoli can be agreed this weekend.`\
+https://nytimes.com/athletic/5719658/2024/08/23/romelu-lukaku-napoli-transfer-chelsea/
+
+**Kawakami Mailbag, Part 2: All 49ers and their tricky negotiations**\
+`Also discussed: Why haven't the 49ers been on "Hard Knocks," which player could be a surprise, and is Jed York running everything?`\
+https://nytimes.com/athletic/5716781/2024/08/23/49ers-brandon-aiyuk-holdout-negotiation-mailbag-kawakami/
+
 **Sabrina Carpenter Slices Up Her Sunny Image, and 7 More New Songs**\
 `Hear tracks by Yaeji, Amythyst Kiah featuring Billy Strings, Broadcast and more.`\
 https://nytimes.com/2024/08/23/arts/music/playlist-sabrina-carpenter-amythyst-kiah.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/08/23/us/abortion-ballot-measures-have-had-success-this
 **Menendez’s Senate Replacement Has Been a Democrat for Just 5 Months**\
 `George Helmy was selected for the temporary job by Philip Murphy, New Jersey’s Democratic governor. He said he will caucus and vote with the Democratic Party.`\
 https://nytimes.com/2024/08/23/nyregion/george-helmy-bob-menendez-murphy.html
-
-**France’s Political Truce for the Olympics Is Over. Now What?**\
-`Lucie Castets, a relatively obscure bureaucrat, is the left’s choice to be prime minister. Just one person stands in her way: the president.`\
-https://nytimes.com/2024/08/23/world/europe/france-prime-minister-castets-macron.html
-
-**Greenwood begins process of declaring for Jamaica**\
-`Mason Greenwood has begun the process of gathering personal documents so he can gain Jamaican citizenship and play for the country at international level.`\
-https://nytimes.com/athletic/5719534/2024/08/23/mason-greenwood-jamaica-steve-mcclaren/
-
-**What Stood Out About Michelle Obama’s Speech**\
-`The list of speakers at the Democratic National Convention was long. Astead Herndon, a national politics reporter and the host of “The Run-Up” at The New York Times, explains why Michelle Obama’s speech stood out to him the most.`\
-https://nytimes.com/video/us/elections/100000009653733/what-stood-out-about-michelle-obamas-speech.html
 
