@@ -1,3 +1,5 @@
+**The Secret to a Perfect Smash Burger**\
+
 **Three Israeli settlers are detained in an attack on a Palestinian village.**\
 `Dozens of masked settlers rampaged through the village of Jit on Aug. 15, shooting and killing one man and setting fire to property, residents said.`\
 https://nytimes.com/live/2024/08/23/world/israel-hamas-gaza-war/three-israeli-settlers-are-detained-in-an-attack-on-a-palestinian-village
