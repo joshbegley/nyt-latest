@@ -1,3 +1,7 @@
+**On Gaza, Democrats’ Most Divisive Issue, Harris Embraces Biden’s Balancing Act**\
+`With her party torn between pro-Israel Democrats and younger progressives, she’s looking for a way to quiet one major issue until after the election.`\
+https://nytimes.com/2024/08/23/us/politics/kamala-harris-gaza-israel.html
+
 **Dialing In to Fox News, Trump Offers a Rambling Rebuttal to Harris’s Speech**\
 `The network ended the live interview after 10 minutes. Beeps could be heard as the former president seemed to accidentally press the buttons on the keypad of his phone.`\
 https://nytimes.com/2024/08/23/us/politics/trump-reaction-harris-dnc.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/us/elections/100000009654120/central-park-five-trump-d
 **U.S. Plans to Accuse Software Maker of Enabling Collusion on Rents**\
 `The Justice Department is set to file an antitrust suit against the real estate company RealPage alleging illegal price-fixing facilitated by algorithms.`\
 https://nytimes.com/2024/08/23/business/economy/realpage-doj-antitrust-suit-rent.html
-
-**Wan-Bissaka v Coufal - the West Ham right-back battle that could run and run**\
-`Wan Bissaka has not signed to be a second choice, Coufal has seen off competition before - who will win out for Lopetegui?`\
-https://nytimes.com/athletic/5716219/2024/08/23/aaron-wan-bissaka-vladimir-coufal-west-ham-lopetegui/
 
