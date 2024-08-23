@@ -1,3 +1,7 @@
+**Jake Ciely’s 2024 fantasy football projections vs. Average Draft Position**\
+`Jake Ciely explains his rationale for the 15 biggest differences from his projections compared to 2024 fantasy football ADP.`\
+https://nytimes.com/athletic/5719732/2024/08/23/jake-cielys-2024-fantasy-football-projections-vs-average-draft-position-15-biggest-differences/
+
 **Kamala Harris, Hoping to Build Momentum, Plans Battleground State Tour Next Week**\
 `After accepting the nomination, Ms. Harris was flying back to Washington on Friday for a weekend respite before returning to the campaign trail next week.`\
 https://nytimes.com/2024/08/23/us/politics/harris-battleground-state-tour.html
