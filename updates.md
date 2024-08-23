@@ -1,3 +1,11 @@
+**Harris’s Convention Speech Seen by 29 Million, a Narrow Win Over Trump’s**\
+`Overall, TV viewership of the Democratic National Convention in Chicago was up 14 percent from the Republicans’ event last month.`\
+https://nytimes.com/2024/08/23/business/media/kamala-harris-dnc-viewers-ratings.html
+
+**Harris Needed to Sound Tough on Foreign Policy, and She Did**\
+`The convention successfully painted Trump as the candidate who won’t stand up for American interests.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/harris-foreign-policy
+
 **In Las Vegas, Trump Calls Harris a ‘Copycat’ Over ‘No Tax on Tips’ Plan**\
 `The rivals have zeroed in on service industry workers in Nevada, a swing state where polls show a tight race.`\
 https://nytimes.com/2024/08/23/us/politics/trump-harris-no-tax-tips.html

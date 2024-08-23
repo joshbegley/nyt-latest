@@ -1,3 +1,11 @@
+**Harris’s Convention Speech Seen by 29 Million, a Narrow Win Over Trump’s**\
+`Overall, TV viewership of the Democratic National Convention in Chicago was up 14 percent from the Republicans’ event last month.`\
+https://nytimes.com/2024/08/23/business/media/kamala-harris-dnc-viewers-ratings.html
+
+**Harris Needed to Sound Tough on Foreign Policy, and She Did**\
+`The convention successfully painted Trump as the candidate who won’t stand up for American interests.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/harris-foreign-policy
+
 **In Las Vegas, Trump Calls Harris a ‘Copycat’ Over ‘No Tax on Tips’ Plan**\
 `The rivals have zeroed in on service industry workers in Nevada, a swing state where polls show a tight race.`\
 https://nytimes.com/2024/08/23/us/politics/trump-harris-no-tax-tips.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/23/sports/autoracing/scott-bloomquist-dead.html
 **Blue Jays mailbag part 2: Identifying the major roster holes heading into the offseason**\
 `Can the Blue Jays build a World Series contender in just three moves? Is there a way for the club to re-gain fans' trust in management?`\
 https://nytimes.com/athletic/5719771/2024/08/23/blue-jays-mailbag-roster-holes/
-
-**Knife Attack Kills at Least 3 People at Festival in Western Germany**\
-`The attack took place in Solingen during a celebration of the 650th anniversary of the city’s founding.`\
-https://nytimes.com/2024/08/23/world/europe/germany-knife-attack-festival.html
-
-**Former Florida Deputy Who Killed Airman Is Charged With Manslaughter**\
-`Eddie Duran fatally shot Senior Airman Roger Fortson on May 3 when he opened his apartment door, holding a gun pointed to the ground.`\
-https://nytimes.com/2024/08/23/us/florida-deputy-manslaughter-roger-fortson.html
 
