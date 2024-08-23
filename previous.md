@@ -1,3 +1,7 @@
+**NFL suspends Rams LT Alaric Jackson for 2 games**\
+`Jackson has not practiced since the first week of training camp after suffering what the Rams said was an ankle injury`\
+https://nytimes.com/athletic/5719934/2024/08/23/alaric-jackson-suspended-la-rams-nfl/
+
 **Tennessee baseball coach Tony Vitello to earn $3 million annually**\
 `Vitello guided the Volunteers to the 2024 national title and will now have his salary doubled with the five-year contract extension.`\
 https://nytimes.com/athletic/5719879/2024/08/23/tennessee-baseball-tony-vitello-3-million/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5719525/2024/08/23/canucks-offseason-thatcher-demko
 **16 Republican-Led States Challenge Program to Aid Undocumented Spouses**\
 `The new Biden administration initiative, which could put many undocumented spouses of Americans on a path to U.S. citizenship, began taking applications this week.`\
 https://nytimes.com/2024/08/23/us/republican-states-undocumented-immigrants.html
-
-**Big 12 renewing discussions about adding UConn**\
-`Big 12 commissioner Brett Yormark has repeatedly expressed his desire to position the Big 12 as the nation’s premier basketball conference.`\
-https://nytimes.com/athletic/5719604/2024/08/23/big-12-expansion-uconn-pursuit/
 

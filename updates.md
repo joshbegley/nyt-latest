@@ -1,3 +1,7 @@
+**NFL suspends Rams LT Alaric Jackson for 2 games**\
+`Jackson has not practiced since the first week of training camp after suffering what the Rams said was an ankle injury`\
+https://nytimes.com/athletic/5719934/2024/08/23/alaric-jackson-suspended-la-rams-nfl/
+
 **Tennessee baseball coach Tony Vitello to earn $3 million annually**\
 `Vitello guided the Volunteers to the 2024 national title and will now have his salary doubled with the five-year contract extension.`\
 https://nytimes.com/athletic/5719879/2024/08/23/tennessee-baseball-tony-vitello-3-million/
