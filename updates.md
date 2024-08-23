@@ -1,3 +1,7 @@
+**Best, Worst and Weirdest Moments of the Democratic Convention**\
+`The party’s four-day gathering featured memorable zingers, self-effacing humor and more than a few lines that didn’t land.`\
+https://nytimes.com/2024/08/23/us/politics/best-worst-moments-dnc.html
+
 **5 Takeaways From the Democratic Convention**\
 `A history-making candidate told grounded stories. Democrats expanded their anti-Trump playbook. And even if something “magical is in the air” for the party, as Michelle Obama said, there’s a hard road ahead.`\
 https://nytimes.com/2024/08/23/us/politics/dnc-harris-chicago-takeaways.html

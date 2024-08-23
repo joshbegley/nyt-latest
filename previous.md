@@ -15,7 +15,7 @@ https://nytimes.com/2024/08/23/us/politics/kamala-harris-speech-transcript.html
 https://nytimes.com/2024/08/23/us/politics/democrats-patriotism-convention-harris.html
 
 **Best, Worst and Weirdest Moments of the Democratic Convention**\
-`The four-day party gathering featured memorable zingers, self-effacing humor and more than a few lines that didn’t land.`\
+`The party’s four-day gathering featured memorable zingers, self-effacing humor and more than a few lines that didn’t land.`\
 https://nytimes.com/2024/08/23/us/politics/best-worst-moments-dnc.html
 
 **‘Central Park 5’ Describe Trump’s Character**\
