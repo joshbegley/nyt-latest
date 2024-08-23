@@ -1,3 +1,7 @@
+**As Ukraine Pushes Into Russia, Its Next Steps Are Unclear**\
+`American officials are not convinced that Ukraine intends to hold its position in Russia long term.`\
+https://nytimes.com/2024/08/23/us/politics/ukraine-incursion-russia-buffer-zone.html
+
 **Ex-Austin Peay assistant arrested in human trafficking investigation**\
 `Former assistant coach Patrick Kugler was charged with one count of trafficking for sexual servitude.`\
 https://nytimes.com/athletic/5719009/2024/08/23/austin-peay-patrick-kugler-human-trafficking-arrest/
@@ -20,7 +24,7 @@ https://nytimes.com/2024/08/23/style/kamala-harris-dnc-suit.html
 
 **Some Oct. 7 Victims Say They Won’t Participate in Government Memorial**\
 `Relatives of hostages being held in Gaza and some communities on Israel’s southern border argue the Israeli government should focus on freeing their loved ones.`\
-https://nytimes.com/2024/08/23/world/middleeast/oct-7-hostages-government-memorial.html
+https://nytimes.com/2024/08/23/world/middleeast/israel-gaza-oct-7-memorial.html
 
 **Girona complete Asprilla signing from Watford**\
 `Girona have completed the signing of Yaser Asprilla from Watford in an overall transfer worth €24million.`\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5719375/2024/08/23/yaser-asprilla-girona-transfer-w
 **The Best of Late Night This Week**\
 `The Democratic National Convention was the talk of late night this week, particularly the speeches given by President Biden, the Obamas and, of course, Vice President Kamala Harris, who accepted the nomination.`\
 https://nytimes.com/interactive/2024/08/23/arts/television/best-of-late-night-dnc.html
-
-**Harris’s New Strategy: Equate Fighting Climate Change With ‘Freedom’**\
-`The Harris campaign isn’t offering details on climate policy but is framing the fight to protect the environment as one of patriotism.`\
-https://nytimes.com/2024/08/23/climate/kamala-harris-climate-strategy.html
 

@@ -1,3 +1,11 @@
+**As Ukraine Pushes Into Russia, Its Next Steps Are Unclear**\
+`American officials are not convinced that Ukraine intends to hold its position in Russia long term.`\
+https://nytimes.com/2024/08/23/us/politics/ukraine-incursion-russia-buffer-zone.html
+
+**Some Oct. 7 Victims Say They Won’t Participate in Government Memorial**\
+`Relatives of hostages being held in Gaza and some communities on Israel’s southern border argue the Israeli government should focus on freeing their loved ones.`\
+https://nytimes.com/2024/08/23/world/middleeast/israel-gaza-oct-7-memorial.html
+
 **Ex-Austin Peay assistant arrested in human trafficking investigation**\
 `Former assistant coach Patrick Kugler was charged with one count of trafficking for sexual servitude.`\
 https://nytimes.com/athletic/5719009/2024/08/23/austin-peay-patrick-kugler-human-trafficking-arrest/
