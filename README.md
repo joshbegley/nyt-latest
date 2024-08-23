@@ -1,8 +1,12 @@
+**CFB's elimination of spring transfer portal window moves to D-I Council**\
+`The spring portal window has been especially frustrating for coaches, who finish spring practice and still don’t know their complete team.`\
+https://nytimes.com/athletic/5719696/2024/08/23/college-football-spring-transfer-window-removed/
+
 **Chelsea's Tino Anjorin in Empoli talks over permanent transfer**\
 `Chelsea midfielder Tino Anjorin is in talks with Empoli over joining the Serie A club in a permanent transfer.`\
 https://nytimes.com/athletic/5719809/2024/08/23/tino-anjorin-empoli-chelsea-transfers/
 
-**Robert F. Kennedy Jr. Endorses Trump and Suspends His Independent Bid for President**\
+**Robert F. Kennedy Jr. Suspends His Independent Bid for President and Endorses Trump**\
 `Mr. Kennedy said he will remove his name from the ballot in battleground states, so as not to be a spoiler.`\
 https://nytimes.com/2024/08/23/us/elections/rfk-jr-suspends-campaign-presidential-race.html
 
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/23/us/atlanta-brain-surgery-skull-lawsuit.html
 **‘Joy,’ ‘Freedom,’ ‘Goldilocks’: Kamala Harris’s Democratic Party in 7 Keywords**\
 `As Democrats coalesce around their candidate, here are some of the words that define the party now.`\
 https://nytimes.com/2024/08/23/books/review/democratic-national-convention-kamala-harris.html
-
-**Chelsea optimistic on Romelu Lukaku transfer to Napoli**\
-`Chelsea are growing in optimism that a deal to sell Romelu Lukaku to Napoli can be agreed this weekend.`\
-https://nytimes.com/athletic/5719658/2024/08/23/romelu-lukaku-napoli-transfer-chelsea/
 
