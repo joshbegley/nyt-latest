@@ -1,3 +1,11 @@
+**Robert F. Kennedy Jr. Suspends Presidential Campaign**\
+`Robert F. Kennedy Jr. announced he was suspending his troubled independent campaign for the presidency, and endorsed Donald J. Trump.`\
+https://nytimes.com/video/us/elections/100000009655600/robert-f-kennedy-suspends-independent-campaign.html
+
+**Glasner targets two Palace signings following unsettling transfer exits**\
+`Crystal Palace manager Oliver Glasner says his squad has been unsettled by transfer activity this week as he targets at least two more signings before next Friday&#8217;s deadline.`\
+https://nytimes.com/athletic/5719991/2024/08/23/crystal-palace-transfers-glasner/
+
 **Paralympics Will Drop Ban on Olympic Rings Tattoos**\
 `Athletes had previously been forced — under threat of expulsion — to cover the symbol because of a rule against body advertising.`\
 https://nytimes.com/2024/08/23/style/paralympics-olympic-rings-tattoo-ban.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5719873/2024/08/23/deion-sanders-colorado-football-
 **Danny Jansen to join Red Sox's lineup at start of suspended game vs. Blue Jays, play for both teams**\
 `Jansen will be the first player in MLB history to play for both teams in the same game.`\
 https://nytimes.com/athletic/5719956/2024/08/23/danny-jansen-red-sox-blue-jays-suspended-game/
-
-**NFL suspends Rams LT Alaric Jackson for 2 games**\
-`Jackson has not practiced since the first week of training camp after suffering what the Rams said was an ankle injury`\
-https://nytimes.com/athletic/5719934/2024/08/23/alaric-jackson-suspended-la-rams-nfl/
-
-**Tennessee baseball coach Tony Vitello to earn $3 million annually**\
-`Vitello guided the Volunteers to the 2024 national title and will now have his salary doubled with the five-year contract extension.`\
-https://nytimes.com/athletic/5719879/2024/08/23/tennessee-baseball-tony-vitello-3-million/
 

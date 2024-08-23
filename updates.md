@@ -1,3 +1,11 @@
+**Robert F. Kennedy Jr. Suspends Presidential Campaign**\
+`Robert F. Kennedy Jr. announced he was suspending his troubled independent campaign for the presidency, and endorsed Donald J. Trump.`\
+https://nytimes.com/video/us/elections/100000009655600/robert-f-kennedy-suspends-independent-campaign.html
+
+**Glasner targets two Palace signings following unsettling transfer exits**\
+`Crystal Palace manager Oliver Glasner says his squad has been unsettled by transfer activity this week as he targets at least two more signings before next Friday&#8217;s deadline.`\
+https://nytimes.com/athletic/5719991/2024/08/23/crystal-palace-transfers-glasner/
+
 **Paralympics Will Drop Ban on Olympic Rings Tattoos**\
 `Athletes had previously been forced — under threat of expulsion — to cover the symbol because of a rule against body advertising.`\
 https://nytimes.com/2024/08/23/style/paralympics-olympic-rings-tattoo-ban.html
