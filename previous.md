@@ -1,3 +1,7 @@
+**Democrats Say the Joy Is Back. Here’s What the Data Says.**\
+`We asked voters to describe their feelings about the election in one word. Joy has jumped; so has anxiety.`\
+https://nytimes.com/interactive/2024/08/23/us/elections/2024-election-feelings-harris-trump.html
+
 **Fed’s Powell Signals an Upcoming Rate Cut in Jackson Hole Remarks**\
 `Jerome H. Powell indicated the Federal Reserve will begin to cut interest rates in September, but stopped short of stating how large that move might be.`\
 https://nytimes.com/video/business/economy/100000009654594/feds-powell-rate-cut-in-jackson-hole.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/23/well/school-nurse-advice-parent-mistakes.html
 **Trump says he will have a ‘very good’ relationship with Gov. Brian Kemp after endorsement.**\
 `Donald J. Trump, who called Mr. Kemp a “bad guy” earlier this month, told Fox News that the governor had been “very nice” in supporting his campaign.`\
 https://nytimes.com/live/2024/08/23/us/harris-dnc-trump-election/trump-says-he-will-have-a-very-good-relationship-with-gov-brian-kemp-after-endorsement
-
-**Along U.S. Route 144, Scenes of the Demoralizing American Grind**\
-`In “Orange Blossom Trail,” the photographer Joshua Lutz and the author George Saunders pay tribute to the hard living across one stretch of American highway.`\
-https://nytimes.com/2024/08/23/books/review/orange-blossom-trail-joshua-lutz-george-saunders.html
 

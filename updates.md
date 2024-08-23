@@ -1,3 +1,7 @@
+**Democrats Say the Joy Is Back. Here’s What the Data Says.**\
+`We asked voters to describe their feelings about the election in one word. Joy has jumped; so has anxiety.`\
+https://nytimes.com/interactive/2024/08/23/us/elections/2024-election-feelings-harris-trump.html
+
 **Fed’s Powell Signals an Upcoming Rate Cut in Jackson Hole Remarks**\
 `Jerome H. Powell indicated the Federal Reserve will begin to cut interest rates in September, but stopped short of stating how large that move might be.`\
 https://nytimes.com/video/business/economy/100000009654594/feds-powell-rate-cut-in-jackson-hole.html
