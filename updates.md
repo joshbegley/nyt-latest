@@ -1,3 +1,7 @@
+**Transcript: Ezra Klein on Kamala Harris’s Convention Speech**\
+`The Aug. 23, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/08/23/podcasts/transcript-ezra-klein-on-kamala-harriss-convention-speech.html
+
 **Scott Bloomquist, Champion Dirt-Track Driver, Dies at 60**\
 `Styling himself as a rebel, he won more than 600 races and nine championships in a 40-year career.`\
 https://nytimes.com/2024/08/23/sports/autoracing/scott-bloomquist-dead.html
