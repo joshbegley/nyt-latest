@@ -1,3 +1,19 @@
+**The Big Number: 818,000**\
+`The Labor Department issued a huge downward revision on jobs figures for the 12 months that ended in March, pointing to greater cracks in the economy.`\
+https://nytimes.com/2024/08/23/business/the-big-number-818000-jobs-revision.html
+
+**What Harris Has to Do Next, and Fast**\
+`A good convention speech isn’t enough to earn the trust of voters.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/kamala-harris-democratic-convention
+
+**Man United's Fish joins Cardiff in permanent transfer**\
+`Will Fish has joined Cardiff City in a permanent transfer from Manchester United.`\
+https://nytimes.com/athletic/5716570/2024/08/23/will-fish-man-united-transfers/
+
+**Sevilla complete Barco loan signing from Brighton**\
+`Brighton defender Valentin Barco has joined Sevilla on a season-long loan deal.`\
+https://nytimes.com/athletic/5719321/2024/08/23/valentin-barco-sevilla-loan-brighton/
+
 **Fulham complete signing of Andersen from Crystal Palace**\
 `Fulham have completed the signing of defender Joachim Andersen from Crystal Palace.`\
 https://nytimes.com/athletic/5712961/2024/08/23/joachim-andersen-fulham-transfer/
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/5719191/2024/08/23/lee-carsley-england-staff-cole-l
 **Lionel Messi to return before end of MLS season - Martino**\
 `Tata Martino has guaranteed that Lionel Messi will return before the end of the MLS regular season.`\
 https://nytimes.com/athletic/5719216/2024/08/23/messi-return-inter-miami-mls/
-
-**Democrats Say the Joy Is Back. Here’s What the Data Says.**\
-`We asked voters to describe their feelings about the election in one word. Joy has jumped; so has anxiety.`\
-https://nytimes.com/interactive/2024/08/23/us/elections/2024-election-feelings-harris-trump.html
-
-**Fed’s Powell Signals an Upcoming Rate Cut in Jackson Hole Remarks**\
-`Jerome H. Powell indicated the Federal Reserve will begin to cut interest rates in September, but stopped short of stating how large that move might be.`\
-https://nytimes.com/video/business/economy/100000009654594/feds-powell-rate-cut-in-jackson-hole.html
-
-**Are These the Most Beautiful Islands in Greece?**\
-`A guide to Sifnos, Milos and Serifos, where seaside tavernas, stylish hotels and ceramics abound.`\
-https://nytimes.com/2024/08/23/t-magazine/sifnos-milos-serifos-cyclades-travel-guide-greece.html
-
-**McKennie signs Juventus contract extension**\
-`Juventus midfielder Weston McKennie has signed a new contract with the club.`\
-https://nytimes.com/athletic/5719131/2024/08/23/weston-mckennie-juventus-contract/
 

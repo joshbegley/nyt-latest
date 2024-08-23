@@ -1,3 +1,19 @@
+**The Big Number: 818,000**\
+`The Labor Department issued a huge downward revision on jobs figures for the 12 months that ended in March, pointing to greater cracks in the economy.`\
+https://nytimes.com/2024/08/23/business/the-big-number-818000-jobs-revision.html
+
+**What Harris Has to Do Next, and Fast**\
+`A good convention speech isn’t enough to earn the trust of voters.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/kamala-harris-democratic-convention
+
+**Man United's Fish joins Cardiff in permanent transfer**\
+`Will Fish has joined Cardiff City in a permanent transfer from Manchester United.`\
+https://nytimes.com/athletic/5716570/2024/08/23/will-fish-man-united-transfers/
+
+**Sevilla complete Barco loan signing from Brighton**\
+`Brighton defender Valentin Barco has joined Sevilla on a season-long loan deal.`\
+https://nytimes.com/athletic/5719321/2024/08/23/valentin-barco-sevilla-loan-brighton/
+
 **Fulham complete signing of Andersen from Crystal Palace**\
 `Fulham have completed the signing of defender Joachim Andersen from Crystal Palace.`\
 https://nytimes.com/athletic/5712961/2024/08/23/joachim-andersen-fulham-transfer/
