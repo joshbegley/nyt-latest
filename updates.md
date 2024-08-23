@@ -1,3 +1,7 @@
+**'I consider myself lucky': Dominic Thiem and the agonising what-ifs of tennis**\
+`When the Austrian collapsed to the ground in celebration on a silent Arthur Ashe in 2020, he had finally made it. He could have had more`\
+https://nytimes.com/athletic/5713759/2024/08/23/dominic-thiem-interview-how-a-u-s-open-title-became-the-start-of-a-tennis-ending/
+
 **Ipswich agree deal to sign Sunderland's Clarke**\
 `Ipswich Town have agreed a deal to sign Sunderland winger Jack Clarke.`\
 https://nytimes.com/athletic/5715340/2024/08/23/ipswich-town-jack-clarke-transfer/
