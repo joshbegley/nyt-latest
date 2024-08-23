@@ -1,3 +1,7 @@
+**Matsuyama (back) withdraws from BMW Championship**\
+`Hideki Matsuyama's spot at next week's Tour Championship is secure if he can play.`\
+https://nytimes.com/athletic/5719206/2024/08/23/hideki-matsuyama-injury-withdraw-bmw-championship/
+
 **As Ukraine Pushes Into Russia, Its Next Steps Are Unclear**\
 `American officials are not convinced that Ukraine intends to hold its position in Russia long term.`\
 https://nytimes.com/2024/08/23/us/politics/ukraine-incursion-russia-buffer-zone.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/23/world/middleeast/israel-gaza-oct-7-memorial.html
 **Girona complete Asprilla signing from Watford**\
 `Girona have completed the signing of Yaser Asprilla from Watford in an overall transfer worth €24million.`\
 https://nytimes.com/athletic/5719375/2024/08/23/yaser-asprilla-girona-transfer-watford/
-
-**The Best of Late Night This Week**\
-`The Democratic National Convention was the talk of late night this week, particularly the speeches given by President Biden, the Obamas and, of course, Vice President Kamala Harris, who accepted the nomination.`\
-https://nytimes.com/interactive/2024/08/23/arts/television/best-of-late-night-dnc.html
 
