@@ -1,3 +1,11 @@
+**The Windup: Mariners' collapse hits crisis mode**\
+`Welcome to The Windup, The Athletic's daily MLB newsletter. `\
+https://nytimes.com/athletic/5719171/2024/08/23/mariners-scott-servais-dodgers-injuries-mlb-the-windup/
+
+**Kyler Murray, Rachaad White added to Gary Davenport's list of 'My Guys' for fantasy football 2024**\
+`Gary Davenport updates his "My Guys" list for fantasy football 2024, welcoming Kyler Murray and Rachaad White into the fold. `\
+https://nytimes.com/athletic/5719173/2024/08/23/my-guys-gary-davenport-fantasy-football-2024/
+
 **Cole, Lescott join Carsley's England coaching staff**\
 `Ashley Cole and Joleon Lescott have joined the backroom staff of England&#8217;s interim manager Lee Carsley.`\
 https://nytimes.com/athletic/5719191/2024/08/23/lee-carsley-england-staff-cole-lescott/
