@@ -6,7 +6,7 @@ https://nytimes.com/2024/08/22/us/elections/rfk-jr-arizona-withdraw.html
 `Kamala Harris has left them giddy but dazed.`\
 https://nytimes.com/live/2024/08/20/opinion/thepoint/detroit-democrats-harris
 
-**Angels' Perry Minasian gets 2-year extension, now it's time for him shop smarter: Blum**\
+**Angels' Perry Minasian gets 2-year extension, now it's time for him to shop smarter: Blum**\
 `Analysis: Minasian has yet to prove that he can be a winning GM for what is ostensibly a small-market team.`\
 https://nytimes.com/athletic/5718201/2024/08/22/angels-perry-minasian-extension-analysis/
 

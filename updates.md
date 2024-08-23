@@ -1,3 +1,7 @@
+**Angels' Perry Minasian gets 2-year extension, now it's time for him to shop smarter: Blum**\
+`Analysis: Minasian has yet to prove that he can be a winning GM for what is ostensibly a small-market team.`\
+https://nytimes.com/athletic/5718201/2024/08/22/angels-perry-minasian-extension-analysis/
+
 **Kennedy Withdraws From Presidential Contest in Arizona**\
 `Robert F. Kennedy Jr., an independent candidate, is set to give an address on Friday about the future of his campaign.`\
 https://nytimes.com/2024/08/22/us/elections/rfk-jr-arizona-withdraw.html
