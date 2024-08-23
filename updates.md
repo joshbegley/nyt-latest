@@ -1,3 +1,11 @@
+**Juventus in Sancho talks: How Man Utd deal could be structured - and analysis**\
+`Juventus are keen on Jadon Sancho but a deal for the forward would not be straightforward`\
+https://nytimes.com/athletic/5718971/2024/08/23/jadon-sancho-juventus-manchester-united/
+
+**At Edinburgh Festival, Sometimes Simpler is Better**\
+`The event’s best theater production avoided the gimmicks of other shows in favor of well-drawn characters and well-written dialogue.`\
+https://nytimes.com/2024/08/23/theater/edinburgh-international-festival.html
+
 **Bonadei succeeds Renard as France Women head coach**\
 `Herve Renard has been replaced as France Women head coach by his former assistant Laurent Bonadei.`\
 https://nytimes.com/athletic/5719077/2024/08/23/laurent-bonadei-succeeds-herve-renard-as-france-women-head-coach/
