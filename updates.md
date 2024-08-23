@@ -1,3 +1,15 @@
+**The Mets, leaning on each other down the stretch, open road trip with win**\
+`A win in San Diego showed why the bottom of the Mets' roster holds importance during this final handful of weeks.`\
+https://nytimes.com/athletic/5718602/2024/08/23/mets-win-padres-iglesias-vientos/
+
+**Jon Stewart Goes Live From Chicago on the Last Night of the D.N.C.**\
+`After Kamala Harris accepted the nomination, Stewart mused: “How funny would it have been if at the end she was like, ‘But seriously, though: not for me.’”`\
+https://nytimes.com/2024/08/23/arts/television/jon-stewart-democratic-national-convention.html
+
+**Alpine promotes Doohan, will become second rookie on 2025 grid**\
+`Stay informed on all the biggest stories in Formula 1.`\
+https://nytimes.com/athletic/5718267/2024/08/23/jack-doohan-alpine-2025/
+
 **‘Incoming’ Review: Not Another Teen Movie**\
 `Freshman engage in some fairly predictable debauchery in this routine high school gross-out comedy streaming on Netflix.`\
 https://nytimes.com/2024/08/23/movies/incoming-review.html
