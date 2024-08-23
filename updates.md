@@ -1,3 +1,11 @@
+**Tennessee baseball coach Tony Vitello to earn $3 million annually**\
+`Vitello guided the Volunteers to the 2024 national title and will now have his salary doubled with the five-year contract extension.`\
+https://nytimes.com/athletic/5719879/2024/08/23/tennessee-baseball-tony-vitello-3-million/
+
+**NFL suspends Cardinals WR Zay Jones for 5 games**\
+`Arizona signed Jones on a one-year deal in May and he’s had a strong training camp, positioning himself for a significant role this season.`\
+https://nytimes.com/athletic/5719878/2024/08/23/zay-jones-suspended-arizona-cardinals-nfl/
+
 **Judge Blocks E.P.A. From Using Civil Rights Law in Pollution Case**\
 `The decision is a setback for a Biden administration strategy for protecting minority communities with numerous polluting industries nearby.`\
 https://nytimes.com/2024/08/23/climate/epa-civil-rights-climate-justice.html

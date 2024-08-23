@@ -1,3 +1,11 @@
+**Tennessee baseball coach Tony Vitello to earn $3 million annually**\
+`Vitello guided the Volunteers to the 2024 national title and will now have his salary doubled with the five-year contract extension.`\
+https://nytimes.com/athletic/5719879/2024/08/23/tennessee-baseball-tony-vitello-3-million/
+
+**NFL suspends Cardinals WR Zay Jones for 5 games**\
+`Arizona signed Jones on a one-year deal in May and he’s had a strong training camp, positioning himself for a significant role this season.`\
+https://nytimes.com/athletic/5719878/2024/08/23/zay-jones-suspended-arizona-cardinals-nfl/
+
 **Judge Blocks E.P.A. From Using Civil Rights Law in Pollution Case**\
 `The decision is a setback for a Biden administration strategy for protecting minority communities with numerous polluting industries nearby.`\
 https://nytimes.com/2024/08/23/climate/epa-civil-rights-climate-justice.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/23/us/republican-states-undocumented-immigrants.html
 **Big 12 renewing discussions about adding UConn**\
 `Big 12 commissioner Brett Yormark has repeatedly expressed his desire to position the Big 12 as the nation’s premier basketball conference.`\
 https://nytimes.com/athletic/5719604/2024/08/23/big-12-expansion-uconn-pursuit/
-
-**Padres reinstate Yu Darvish from restricted list**\
-`Darvish is back on the injured list with a left groin strain, although he is believed to be past that ailment.`\
-https://nytimes.com/athletic/5719855/2024/08/23/yu-darvish-return-restricted-list-padres/
-
-**An Ex-Friend Had an Affair With My Husband. Doesn’t She Owe Me a Sit-Down?**\
-`The magazine’s Ethicist columnist on heartbreak and friendship splits.`\
-https://nytimes.com/2024/08/23/magazine/friend-affair-husband-ethics.html
 
