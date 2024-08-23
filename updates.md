@@ -1,3 +1,7 @@
+**Kamala Harris, Hoping to Build Momentum, Plans Battleground State Tour Next Week**\
+`After accepting the nomination, Ms. Harris was flying back to Washington on Friday for a weekend respite before returning to the campaign trail next week.`\
+https://nytimes.com/2024/08/23/us/politics/harris-battleground-state-tour.html
+
 **U.S. Tightens Technology Controls to Target Russian War Machine**\
 `The Biden administration announced new penalties on shell companies and suppliers that were feeding Russia’s war against Ukraine.`\
 https://nytimes.com/2024/08/23/us/politics/us-russia-technology-penalties.html
