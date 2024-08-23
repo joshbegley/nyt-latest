@@ -1,3 +1,7 @@
+**The Defining Moments of the D.N.C. Finale**\
+`In accepting the nomination, Kamala Harris told her story and made a pitch for the coalition of voters she’ll need.`\
+https://nytimes.com/2024/08/23/podcasts/the-defining-moments-of-the-dnc-finale.html
+
 **The Athletic’s Friday football quiz question #18**\
 `The Athletic's weekly conundrum from inside the trivia vaults`\
 https://nytimes.com/athletic/5710436/2024/08/23/the-athletics-friday-football-quiz-question-18/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/23/business/china-nepal-pokhara-airport.html
 **The Pulse: College football is back, looking different**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5717560/2024/08/23/college-football-week-0-the-pulse/
-
-**Why Kamala Harris’s Centrism is Working**\
-`The vice president’s convention speech embodied her efforts to win over swing voters.`\
-https://nytimes.com/2024/08/23/briefing/kamala-harris-convention-speech.html
 

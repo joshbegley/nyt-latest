@@ -1,3 +1,7 @@
+**The Defining Moments of the D.N.C. Finale**\
+`In accepting the nomination, Kamala Harris told her story and made a pitch for the coalition of voters she’ll need.`\
+https://nytimes.com/2024/08/23/podcasts/the-defining-moments-of-the-dnc-finale.html
+
 **The Athletic’s Friday football quiz question #18**\
 `The Athletic's weekly conundrum from inside the trivia vaults`\
 https://nytimes.com/athletic/5710436/2024/08/23/the-athletics-friday-football-quiz-question-18/
