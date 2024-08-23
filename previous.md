@@ -1,3 +1,27 @@
+**‘Incoming’ Review: Not Another Teen Movie**\
+`Freshman engage in some fairly predictable debauchery in this routine high school gross-out comedy streaming on Netflix.`\
+https://nytimes.com/2024/08/23/movies/incoming-review.html
+
+**Free Booze, a Lake Cruise and Selfies Galore: How Democrats Courted Influencers at the D.N.C.**\
+`Democrats gave social media figures the V.I.P. treatment this week in an aggressive attempt to pump feeds with pro-Harris posts.`\
+https://nytimes.com/2024/08/23/us/politics/dnc-social-media-influencers.html
+
+**David Copperfield Vanished. The Problem of His Penthouse Remains.**\
+`Residents at the Galleria in Manhattan sued Mr. Copperfield, saying he left his once-ornate condominium in disrepair.`\
+https://nytimes.com/2024/08/23/nyregion/david-copperfield-penthouse-lawsuit.html
+
+**At the Ballpark, a Reporter Roots for Lahaina**\
+`Last year, a Times reporter covered the wildfires that destroyed a town on the island of Maui. This year, he cheered on a team from Maui as it made its way to the Little League World Series.`\
+https://nytimes.com/2024/08/23/insider/lahaina-little-league.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/23/crosswords/spelling-bee-forum.html
+
+**Wordle Review No. 1,162**\
+`Scroll down for hints and conversation about the puzzle for August 24, 2024.`\
+https://nytimes.com/2024/08/23/crosswords/wordle-review-1162.html
+
 **South Korea Battery Plant Rushed Production Before Deadly Fire, Police Say**\
 `The fire, one of the country’s worst industrial disasters in recent years, happened as the factory was rushing to fulfill a military contract, the authorities said.`\
 https://nytimes.com/2024/08/23/world/asia/south-korea-battery-fire.html
@@ -9,28 +33,4 @@ https://nytimes.com/athletic/5718321/2024/08/23/padres-mets-depth-questions/
 **Chelsea have been mocked - but how many of the outcasts would make Maresca's team better?**\
 `Barring Chalobah and Petrovic, the other members of Chelsea's misfits really are better off being sold before the transfer window closes`\
 https://nytimes.com/athletic/5718331/2024/08/23/chelseas-outcasts-squad-enzo-maresca/
-
-**Democrats Taste Victory in November. But Are They Too Confident?**\
-`At the Democratic National Convention, party leaders warned against happy talk and said former President Donald J. Trump remains a formidable opponent.`\
-https://nytimes.com/2024/08/23/us/politics/democrats-harris-convention.html
-
-**Celebrities and Notable Faces in the Crowd at the Democratic Convention**\
-`See some of the prominent people spotted at Chicago’s United Center this week as Democrats gathered to nominate Vice President Kamala Harris for president.`\
-https://nytimes.com/interactive/2024/08/23/us/politics/dnc-crowd-guests-celebrities.html
-
-**Word of the Day: smattering**\
-`This word has appeared in 136 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/08/23/learning/word-of-the-day-smattering.html
-
-**On Gaza, Democrats’ Most Divisive Issue, Harris Embraces Biden’s Balancing Act**\
-`With her party torn between pro-Israel Democrats and younger progressives, she’s looking for a way to quiet one major issue until after the election.`\
-https://nytimes.com/2024/08/23/us/politics/kamala-harris-gaza-israel.html
-
-**Dialing In to Fox News, Trump Offers a Rambling Rebuttal to Harris’s Speech**\
-`The network ended the live interview after 10 minutes. Beeps could be heard as the former president seemed to accidentally press the buttons on the keypad of his phone.`\
-https://nytimes.com/2024/08/23/us/politics/trump-reaction-harris-dnc.html
-
-**5 Takeaways From the Democratic Convention**\
-`A history-making candidate told grounded stories. Democrats expanded their anti-Trump playbook. And even if something “magical is in the air” for the party, as Michelle Obama said, there’s a hard road ahead.`\
-https://nytimes.com/2024/08/23/us/politics/dnc-harris-chicago-takeaways.html
 
