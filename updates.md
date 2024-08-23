@@ -1,3 +1,11 @@
+**No issue with Rodrygo over 'fake' WhatsApp message - Ancelotti**\
+`Real Madrid head Carlo Ancelotti says Rodrygo has assured him a WhatsApp message complaining about his role in the team was &#8220;fake&#8221;.`\
+https://nytimes.com/athletic/5718803/2024/08/23/rodrygo-whatsapp-message-ancelotti/
+
+**Bournemouth working on deal to sign Kepa from Chelsea**\
+`Bournemouth are working on deal to sign goalkeeper Kepa Arrizabalaga from Chelsea.`\
+https://nytimes.com/athletic/5718902/2024/08/23/bournemouth-kepa-transfer-chelsea/
+
 **Chelsea could sign striker before transfer deadline – Maresca**\
 `Chelsea head coach Enzo Maresca has revealed he would like to sign another striker before the transfer window shuts next week.`\
 https://nytimes.com/athletic/5718763/2024/08/23/chelsea-transfers-striker-enzo-maresca/

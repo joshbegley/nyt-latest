@@ -1,3 +1,11 @@
+**No issue with Rodrygo over 'fake' WhatsApp message - Ancelotti**\
+`Real Madrid head Carlo Ancelotti says Rodrygo has assured him a WhatsApp message complaining about his role in the team was &#8220;fake&#8221;.`\
+https://nytimes.com/athletic/5718803/2024/08/23/rodrygo-whatsapp-message-ancelotti/
+
+**Bournemouth working on deal to sign Kepa from Chelsea**\
+`Bournemouth are working on deal to sign goalkeeper Kepa Arrizabalaga from Chelsea.`\
+https://nytimes.com/athletic/5718902/2024/08/23/bournemouth-kepa-transfer-chelsea/
+
 **Chelsea could sign striker before transfer deadline – Maresca**\
 `Chelsea head coach Enzo Maresca has revealed he would like to sign another striker before the transfer window shuts next week.`\
 https://nytimes.com/athletic/5718763/2024/08/23/chelsea-transfers-striker-enzo-maresca/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/23/world/asia/bangladesh-deadly-floods.html
 **The Donor Report Card on Harris**\
 `Taxes, antitrust, closer ties with business: These were some of the issues corporate backers sought more clarity on at the Democratic National Convention.`\
 https://nytimes.com/2024/08/23/business/dealbook/donors-democratic-convention-harris.html
-
-**Colts QB Anthony Richardson's roller-coaster night in Cincinnati a preview of what's to come?**\
-`The first drive Thursday night was precise, purposeful and damn near perfect. After that, Richardson's play was a little choppier.`\
-https://nytimes.com/athletic/5718558/2024/08/23/indianapolis-colts-anthony-richardson-preseason-bengals/
-
-**Final Body Is Recovered From Yacht That Sank Off Sicily**\
-`Hannah Lynch, the 18-year-old daughter of the British tech entrepreneur Mike Lynch, was part of a group that had been celebrating her father’s victory in a high-profile fraud case.`\
-https://nytimes.com/2024/08/23/world/europe/italy-sicily-yacht-lynch.html
 
