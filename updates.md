@@ -1,3 +1,15 @@
+**If This T-Shirt Offends You, It’s Working**\
+`You can sense the tenor of each convention at the merch stands.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/democratic-convention-tshirts
+
+**Kirk Ferentz got caught tampering, but that doesn't mean Iowa should slow down**\
+`On the transfer portal superhighway, everyone speeds. Iowa got caught and will pay the price. But it doesn't mean the Hawkeyes should stop.`\
+https://nytimes.com/athletic/5718003/2024/08/22/iowa-football-ncaa-violation-kirk-ferentz-cade-mcnamara/
+
+**Transcript: Ezra Klein on How the Democratic Party Is Talking About Freedom**\
+`The August 22, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/08/22/podcasts/transcript-ezra-klein-dnc.html
+
 **‘This Is the Convention of the Woman’**\
 `Every night, some of the most famous men in politics seemed to play more of a supporting role.`\
 https://nytimes.com/2024/08/22/us/politics/dnc-harris-obama-clinton-women.html
