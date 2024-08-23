@@ -1,3 +1,19 @@
+**The White House signals long-term support for Israel, hoping to avert a regional war.**\
+`By Lara Jakes`\
+https://nytimes.com/live/2024/08/22/world/israel-hamas-iran-gaza-war/the-white-house-signals-long-term-support-for-israel-hoping-to-avert-a-regional-war
+
+**With $20 Billion Weapons Deal, U.S. Aims to Help Israel and Deter Iran**\
+`The White House, which has told Congress it is allowing a large package of future arms sales to Israel, has tried to contain opposition to the deal while working to avert a regional war.`\
+https://nytimes.com/live/2024/08/23/world/israel-hamas-gaza-war
+
+**Weird & Wild MLB History Watch: 5 players poised to rewrite the record book**\
+`Some special history could await Juan Soto, Aaron Judge, Bobby Witt Jr., Elly De La Cruz and Shohei Ohtani in September. `\
+https://nytimes.com/athletic/5718066/2024/08/23/mlb-players-records-september/
+
+**Five recently debuted starting pitchers who might be best set up for success**\
+`This list of pitchers includes two young Twins, two starters with interesting changeups and someone who spent nine years in the minors.`\
+https://nytimes.com/athletic/5715221/2024/08/23/mlb-starting-pitcher-debuts-success/
+
 **Mapping Ukraine’s Surprise Invasion of Russia**\
 `Ukraine has captured dozens of Russian settlements, adding a new twist to a war that had largely settled into grueling fighting in eastern Ukraine.`\
 https://nytimes.com/interactive/2024/08/23/world/europe/ukraine-russia-kursk-invasion-map.html
@@ -17,20 +33,4 @@ https://nytimes.com/2024/08/23/podcasts/what-happened-to-the-ai-election-chatgpt
 **Conan O’Brien’s Secret (Hot) Sauce**\
 `How the comedian has stayed so funny, for so long.`\
 https://nytimes.com/2024/08/23/podcasts/conan-obriens-secret-hot-sauce.html
-
-**Billionaire Donors Have It Out for This Legal Prodigy, but President Harris Will Need Her**\
-`Lina Khan of the F.T.C. would be crucial to efforts to combat price gouging.`\
-https://nytimes.com/2024/08/23/opinion/lina-khan-antitrust-harris.html
-
-**Horse Racing Is Starved for Star Power. Could Thorpedo Anna Change That?**\
-`On Saturday, Kenny McPeek’s 3-year-old will try to be the first filly since 1915 to win the Travers Stakes. It could be a boon for a sport whose popularity has dipped.`\
-https://nytimes.com/2024/08/23/business/travers-stakes-thorpedo-anna.html
-
-**Putin Is Losing Control of His Narrative**\
-`The surprise incursion into Kursk has given Ukraine an advantage over Russia in the propaganda battle, an important front in this conflict.`\
-https://nytimes.com/2024/08/23/opinion/putin-ukraine-kursk.html
-
-**Two Armed Rebels Who Led a Nation: A Love Story**\
-`José Mujica and Lucía Topolansky have long been married to one another — and their leftist political cause.`\
-https://nytimes.com/2024/08/23/world/americas/uruguay-mujica-love-story.html
 
