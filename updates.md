@@ -1,3 +1,11 @@
+**CFB's elimination of spring transfer portal window moves to D-I Council**\
+`The spring portal window has been especially frustrating for coaches, who finish spring practice and still don’t know their complete team.`\
+https://nytimes.com/athletic/5719696/2024/08/23/college-football-spring-transfer-window-removed/
+
+**Robert F. Kennedy Jr. Suspends His Independent Bid for President and Endorses Trump**\
+`Mr. Kennedy said he will remove his name from the ballot in battleground states, so as not to be a spoiler.`\
+https://nytimes.com/2024/08/23/us/elections/rfk-jr-suspends-campaign-presidential-race.html
+
 **Chelsea's Tino Anjorin in Empoli talks over permanent transfer**\
 `Chelsea midfielder Tino Anjorin is in talks with Empoli over joining the Serie A club in a permanent transfer.`\
 https://nytimes.com/athletic/5719809/2024/08/23/tino-anjorin-empoli-chelsea-transfers/
