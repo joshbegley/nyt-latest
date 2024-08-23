@@ -1,3 +1,7 @@
+**What to Know About the Business Execs With Mike Lynch on His Yacht**\
+`The two business figures, both associates of the tech mogul, went missing after the superyacht they were on sank off the coast of Sicily.`\
+https://nytimes.com/2024/08/23/business/dealbook/morvillo-bloomer-mike-lynch-yacht.html
+
 **Brian Robinson Jr., Romeo Doubs among latest additions to Jay Felicio's "My Guys" for fantasy football 2024**\
 `Jay Felicio adds a couple Commanders to his "My Guys" list for fantasy football 2024, including running back Brian Robinson Jr. `\
 https://nytimes.com/athletic/5719298/2024/08/23/my-guys-jay-felicio-fantasy-football-2024/
