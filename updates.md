@@ -1,3 +1,11 @@
+**Nepal Asks China to Wipe Away a Loan It Can’t Afford to Pay Back**\
+`A new government in Nepal formally asked for relief from a $216 million debt it incurred for construction of an airport in Pokhara that has been beset by problems.`\
+https://nytimes.com/2024/08/23/business/china-nepal-pokhara-airport.html
+
+**The Pulse: College football is back, looking different**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5717560/2024/08/23/college-football-week-0-the-pulse/
+
 **Why Kamala Harris’s Centrism is Working**\
 `The vice president’s convention speech embodied her efforts to win over swing voters.`\
 https://nytimes.com/2024/08/23/briefing/kamala-harris-convention-speech.html
