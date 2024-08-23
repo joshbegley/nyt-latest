@@ -1,3 +1,7 @@
+**16 Republican-Led States Challenge Program to Aid Undocumented Spouses**\
+`The new Biden administration initiative, which could put many undocumented spouses of Americans on a path to U.S. citizenship, began taking applications this week.`\
+https://nytimes.com/2024/08/23/us/republican-states-undocumented-immigrants.html
+
 **What we're hearing about Thatcher Demko and the end of the Canucks' offseason**\
 `Are the Canucks looking at insurance options in goal? And what's going on with the goalie coaching?`\
 https://nytimes.com/athletic/5719525/2024/08/23/canucks-offseason-thatcher-demko/

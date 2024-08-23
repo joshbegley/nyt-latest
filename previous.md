@@ -2,7 +2,7 @@
 `Are the Canucks looking at insurance options in goal? And what's going on with the goalie coaching?`\
 https://nytimes.com/athletic/5719525/2024/08/23/canucks-offseason-thatcher-demko/
 
-**16 Republican-led States Challenge Program to Aid Undocumented Spouses**\
+**16 Republican-Led States Challenge Program to Aid Undocumented Spouses**\
 `The new Biden administration initiative, which could put many undocumented spouses of Americans on a path to U.S. citizenship, began taking applications this week.`\
 https://nytimes.com/2024/08/23/us/republican-states-undocumented-immigrants.html
 
