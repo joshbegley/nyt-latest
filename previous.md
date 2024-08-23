@@ -1,3 +1,11 @@
+**Fed’s Powell Signals an Upcoming Rate Cut in Jackson Hole Remarks**\
+`Jerome H. Powell indicated the Federal Reserve will begin to cut interest rates in September, but stopped short of stating how large that move might be.`\
+https://nytimes.com/video/business/economy/100000009654594/feds-powell-rate-cut-in-jackson-hole.html
+
+**Are These the Most Beautiful Islands in Greece?**\
+`A guide to Sifnos, Milos and Serifos, where seaside tavernas, stylish hotels and ceramics abound.`\
+https://nytimes.com/2024/08/23/t-magazine/sifnos-milos-serifos-cyclades-travel-guide-greece.html
+
 **McKennie signs Juventus contract extension**\
 `Juventus midfielder Weston McKennie has signed a new contract with the club.`\
 https://nytimes.com/athletic/5719131/2024/08/23/weston-mckennie-juventus-contract/
@@ -25,12 +33,4 @@ https://nytimes.com/live/2024/08/23/us/harris-dnc-trump-election/trump-says-he-w
 **Along U.S. Route 144, Scenes of the Demoralizing American Grind**\
 `In “Orange Blossom Trail,” the photographer Joshua Lutz and the author George Saunders pay tribute to the hard living across one stretch of American highway.`\
 https://nytimes.com/2024/08/23/books/review/orange-blossom-trail-joshua-lutz-george-saunders.html
-
-**Ilkay Gundogan to Manchester City: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500 series, we look at Ilkay Gundogan's move to Manchester City`\
-https://nytimes.com/athletic/5709931/2024/08/23/ilkay-gundogan-manchester-city-ratings/
-
-**Juventus in Sancho talks: How deal could be structured - and analysis**\
-`Juventus are keen on Sancho but reaching an agreement with Manchester United over the 24-year-old England forward won't be straightforward`\
-https://nytimes.com/athletic/5718971/2024/08/23/jadon-sancho-juventus-manchester-united/
 

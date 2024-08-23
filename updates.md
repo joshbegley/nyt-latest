@@ -1,3 +1,11 @@
+**Fed’s Powell Signals an Upcoming Rate Cut in Jackson Hole Remarks**\
+`Jerome H. Powell indicated the Federal Reserve will begin to cut interest rates in September, but stopped short of stating how large that move might be.`\
+https://nytimes.com/video/business/economy/100000009654594/feds-powell-rate-cut-in-jackson-hole.html
+
+**Are These the Most Beautiful Islands in Greece?**\
+`A guide to Sifnos, Milos and Serifos, where seaside tavernas, stylish hotels and ceramics abound.`\
+https://nytimes.com/2024/08/23/t-magazine/sifnos-milos-serifos-cyclades-travel-guide-greece.html
+
 **Juventus in Sancho talks: How deal could be structured - and analysis**\
 `Juventus are keen on Sancho but reaching an agreement with Manchester United over the 24-year-old England forward won't be straightforward`\
 https://nytimes.com/athletic/5718971/2024/08/23/jadon-sancho-juventus-manchester-united/
