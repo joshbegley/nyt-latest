@@ -1,3 +1,15 @@
+**‘Joy,’ ‘Freedom,’ ‘Goldilocks’: Kamala Harris’s Democratic Party in 7 Keywords**\
+`As Democrats coalesce around their candidate, here are some of the words that define the party now.`\
+https://nytimes.com/2024/08/23/books/review/democratic-national-convention-kamala-harris.html
+
+**Chelsea optimistic on Romelu Lukaku transfer to Napoli**\
+`Chelsea are growing in optimism that a deal to sell Romelu Lukaku to Napoli can be agreed this weekend.`\
+https://nytimes.com/athletic/5719658/2024/08/23/romelu-lukaku-napoli-transfer-chelsea/
+
+**Kawakami Mailbag, Part 2: All 49ers and their tricky negotiations**\
+`Also discussed: Why haven't the 49ers been on "Hard Knocks," which player could be a surprise, and is Jed York running everything?`\
+https://nytimes.com/athletic/5716781/2024/08/23/49ers-brandon-aiyuk-holdout-negotiation-mailbag-kawakami/
+
 **Sabrina Carpenter Slices Up Her Sunny Image, and 7 More New Songs**\
 `Hear tracks by Yaeji, Amythyst Kiah featuring Billy Strings, Broadcast and more.`\
 https://nytimes.com/2024/08/23/arts/music/playlist-sabrina-carpenter-amythyst-kiah.html
