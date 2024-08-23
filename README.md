@@ -1,8 +1,12 @@
+**Along U.S. Route 144, Scenes of the Demoralizing American Grind**\
+`In “Orange Blossom Trail,” the photographer Joshua Lutz and the author George Saunders pay tribute to the hard living across one stretch of American highway.`\
+https://nytimes.com/2024/08/23/books/review/orange-blossom-trail-joshua-lutz-george-saunders.html
+
 **Ilkay Gundogan to Manchester City: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500 series, we look at Ilkay Gundogan's move to Manchester City`\
 https://nytimes.com/athletic/5709931/2024/08/23/ilkay-gundogan-manchester-city-ratings/
 
-**Juventus in Sancho talks: How Man Utd deal could be structured - and analysis**\
+**Juventus in Sancho talks: How deal could be structured - and analysis**\
 `Juventus are keen on Jadon Sancho but a deal for the forward would not be straightforward`\
 https://nytimes.com/athletic/5718971/2024/08/23/jadon-sancho-juventus-manchester-united/
 
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5718388/2024/08/23/canadiens-patrik-laine-trade-nic
 **‘Lie to Fly’: The Story of the Pilot Accused of Attempting to Down a Plane After Taking Mushrooms**\
 `Our new documentary explores why many pilots struggle to seek mental health treatment, and the urgent calls for industry reform.`\
 https://nytimes.com/2024/08/23/NYT-Presents/lie-to-fly-joseph-emerson-pilot.html
-
-**John Lansing, Who Guided NPR Through Tumultuous Times, Dies at 67**\
-`He led the broadcasting organization during the coronavirus pandemic, a decline in revenue and a period of extreme political polarization.`\
-https://nytimes.com/2024/08/23/business/media/john-lansing-dead.html
 

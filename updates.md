@@ -1,3 +1,7 @@
+**Ilkay Gundogan to Manchester City: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we look at Ilkay Gundogan's move to Manchester City`\
+https://nytimes.com/athletic/5709931/2024/08/23/ilkay-gundogan-manchester-city-ratings/
+
 **Juventus in Sancho talks: How Man Utd deal could be structured - and analysis**\
 `Juventus are keen on Jadon Sancho but a deal for the forward would not be straightforward`\
 https://nytimes.com/athletic/5718971/2024/08/23/jadon-sancho-juventus-manchester-united/
