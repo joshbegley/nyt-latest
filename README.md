@@ -1,3 +1,7 @@
+**El Ghazi receives €1.5m Mainz payout after unfair dismissal**\
+`Anwar El Ghazi says he has received a payout from Mainz after a German court found he was unfairly dismissed by the club over a social media post about the Israel-Gaza war.`\
+https://nytimes.com/athletic/5719487/2024/08/23/anwar-el-ghazi-gaza-israel-mainz/
+
 **Top Nationals prospect Dylan Crews to be promoted to big leagues: Source**\
 `Crews, the No. 2 pick in the 2023 MLB Draft, was recently ranked the No. 7 prospect in MLB by Keith Law.`\
 https://nytimes.com/athletic/5719627/2024/08/23/dylan-crews-nationals-promoted-major-leagues/
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/08/20/opinion/thepoint/harris-gaza-israel-conventi
 **On Truth Social, Donald Trump Tries to Refashion Himself as Supportive of Abortion Rights**\
 `His post about “reproductive rights” appeared to be an attempt to cast himself as a political moderate on an issue that has the potential to be damaging to him in November.`\
 https://nytimes.com/2024/08/23/us/politics/trump-abortion-truth-social.html
-
-**Here’s Your Olympic Gold Medal. And Your Buffalo.**\
-`Winning at the Games sometimes brings unexpected rewards.`\
-https://nytimes.com/2024/08/23/sports/arshad-nadeem-javelin-gold-olympics-buffalo.html
 
