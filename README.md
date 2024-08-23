@@ -1,3 +1,7 @@
+**Why Kamala Harris’s Centrism is Working**\
+`The vice president’s convention speech embodied her efforts to win over swing voters.`\
+https://nytimes.com/2024/08/23/briefing/kamala-harris-convention-speech.html
+
 **The Biggest Speech of Kamala Harris’s Career**\
 `Presenting herself as a pragmatic leader who could unite all Americans behind a “new way forward,” Vice President Kamala Harris accepted the Democratic Party’s nomination for president. Zolan Kanno-Youngs, a White House correspondent for The New York Times, gives his takeaways.`\
 https://nytimes.com/video/us/elections/100000009653802/kamala-harris-dnc-acceptance-speech-analysis.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5699276/2024/08/23/oregon-college-football-playoff-
 **Gundogan completes Man City return: 'I can't wait to wear the City shirt again'**\
 `Manchester City have completed the signing of Ilkay Gundogan.`\
 https://nytimes.com/athletic/5713813/2024/08/23/ilkay-gundogan-manchester-city-transfer/
-
-**Cubs takeaways: Steele backing up breakout 2023, Paredes' struggles and Neely rebounds**\
-`Steele wants to be consistent on the mound, Paredes is not off to a good start in a Cubs uniform and Neely debuts.`\
-https://nytimes.com/athletic/5717913/2024/08/23/cubs-justin-steele-success-isaac-paredes-struggles/
 
