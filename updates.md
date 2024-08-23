@@ -1,3 +1,11 @@
+**On National TV, an Innocent Man Denounces a Felon**\
+`Donald Trump has refused to admit he was wrong about the Central Park Five.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/donald-trump-central-park-five
+
+**With Ella Emhoff, the D.N.C. Keeps Its Family Theme Going**\
+`The stepdaughter of Kamala Harris took the stage alongside Ms. Harris’s niece and goddaughter.`\
+https://nytimes.com/2024/08/22/style/ella-emhoff-dnc-harris.html
+
 **Kerry Washington Knows TV Politics. Now She’s Hosting a Real Party.**\
 `The star of the hit show “Scandal” is emcee for the final night’s program at the Democratic National Convention.`\
 https://nytimes.com/2024/08/22/us/politics/kerry-washington-dnc.html
