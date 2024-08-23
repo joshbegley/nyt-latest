@@ -1,3 +1,19 @@
+**Wan-Bissaka v Coufal - the West Ham right-back battle that could run and run**\
+`Wan Bissaka has not signed to be a second choice, Coufal has seen off competition before - who will win out for Lopetegui?`\
+https://nytimes.com/athletic/5716219/2024/08/23/aaron-wan-bissaka-vladimir-coufal-west-ham-lopetegui/
+
+**Why Neto was much more than stats - and will be welcomed back to Molineux**\
+`Pedro Neto didn't fulfil his potential at Wolves due to injuries - but he is sure to get a warm welcome when he returns with Chelsea`\
+https://nytimes.com/athletic/5716515/2024/08/23/why-pedro-neto-molineux-chelsea-wolves/
+
+**'All hands on deck' for Houston Astros, baseball's most bizarre juggernaut, to keep lead**\
+`“For us to win, we need everyone,” manager Joe Espada said. “And I mean everyone.” The Astros beat the Orioles 6-0 Thursday.`\
+https://nytimes.com/athletic/5718414/2024/08/23/astros-win-orioles-ben-gamel/
+
+**Serie A is getting serious about the United States. Can Pulisic and Co cut through?**\
+`The landmark moment comes on Saturday, when AC Milan travel to Parma in Italy's top flight`\
+https://nytimes.com/athletic/5716216/2024/08/23/serie-a-united-states-tv-ac-milan-pulisic/
+
 **James Milner targets Premier League appearance record - and new Brighton role may help**\
 `Milner could thrive in a Fabian Hurzeler midfield and will take the team's set pieces now that Pascal Gross has moved on `\
 https://nytimes.com/athletic/5710393/2024/08/23/milner-brighton-epl-record-appearances/
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/5716615/2024/08/23/alexander-arnold-liverpool-contr
 **Red Bull's Mario Gomez on the Bundesliga's global appeal and the rise of Red Bull**\
 `The former striker is a key figure for Red Bull Soccer. He explains how his clubs identify talent and why the Bundesliga needs global fans`\
 https://nytimes.com/athletic/5710327/2024/08/23/mario-gomez-red-bull-leipzig-leeds-bundesliga-interview/
-
-**Bosnich analyses Martinez: 'His arrogance is insecurity too - he's the best in the world'**\
-`Mark Bosnich starred for Aston Villa at the start of the Premier League - and he's now an avid watcher and fan of Unai Emery's No 1 `\
-https://nytimes.com/athletic/5702296/2024/08/23/mark-bosnich-emiliano-martinez-aston-villa-goalkeepers/
-
-**Dele and Everton - what's next?**\
-`There is a will on both sides for Dele to stay and relaunch his career at Everton - he has impressed squad members and Sean Dyche`\
-https://nytimes.com/athletic/5716240/2024/08/23/dele-everton-future-contract/
-
-**Fantasy baseball waiver wire: Cade Povich, Jorge Polanco and more adds; plus, two-start pitchers and stashes**\
-`John Laghezza crunches the advanced analytics to find the best of this week's waiver wire, leading him to Seattle veteran 2B Jorge Polanco.`\
-https://nytimes.com/athletic/5716667/2024/08/23/fantasy-baseball-waiver-wire-cade-povich-jorge-polanco-and-more-adds-plus-two-start-pitchers-and-stashes/
-
-**Kamala Harris’s Stepdaughter Ella Emhoff Speaks at the D.N.C.**\
-`Continuing the D.N.C.’s family theme, Vice President Kamala Harris’s stepdaughter Ella Emhoff took the stage on Thursday night.`\
-https://nytimes.com/video/us/politics/100000009654069/kamala-harris-stepdaughter-ella.html
 
