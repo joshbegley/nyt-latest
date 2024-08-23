@@ -1,3 +1,11 @@
+**Harris Faces Challenge of Translating Convention Joy to Fall Momentum**\
+`The newly anointed Democratic presidential nominee revived a demoralized party. But as she leaves Chicago, a bruising, closely fought contest awaits her.`\
+https://nytimes.com/2024/08/23/us/politics/harris-dnc-momentum.html
+
+**Olmo Barca's limbo: Why €60m summer signing still cannot play for them**\
+`The Spain international arrived in a big deal with RB Leipzig after shining at Euro 2024 - but he still has to wait to make his debut`\
+https://nytimes.com/athletic/5718867/2024/08/23/dani-olmo-barcelona-la-liga-registration-update/
+
 **Rodri likely to miss Ipswich, Gundogan ready to play - Guardiola**\
 `Pep Guardiola says that Rodri is unlikely to feature against Ipswich this weekend but suggested that Ilkay Gundogan could play following his return to the club.`\
 https://nytimes.com/athletic/5719020/2024/08/23/rodri-man-city-injury-gundogan/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5718160/2024/08/23/nascar-bowman-gray-stadium-ben-k
 **No issue with Rodrygo over 'fake' WhatsApp message - Ancelotti**\
 `Real Madrid head Carlo Ancelotti says Rodrygo has assured him a WhatsApp message complaining about his role in the team was &#8220;fake&#8221;.`\
 https://nytimes.com/athletic/5718803/2024/08/23/rodrygo-whatsapp-message-ancelotti/
-
-**Bournemouth working on deal to sign Kepa from Chelsea**\
-`Bournemouth are working on deal to sign goalkeeper Kepa Arrizabalaga from Chelsea.`\
-https://nytimes.com/athletic/5718902/2024/08/23/bournemouth-kepa-transfer-chelsea/
-
-**Chelsea could sign striker before transfer deadline – Maresca**\
-`Chelsea head coach Enzo Maresca has revealed he would like to sign another striker before the transfer window shuts next week.`\
-https://nytimes.com/athletic/5718763/2024/08/23/chelsea-transfers-striker-enzo-maresca/
 
