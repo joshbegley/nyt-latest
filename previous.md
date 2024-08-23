@@ -1,3 +1,7 @@
+**Trump says he will have a ‘very good’ relationship with Gov. Brian Kemp after endorsement.**\
+`Donald J. Trump, who called Mr. Kemp a “bad guy” earlier this month, told Fox News that the governor had been “very nice” in supporting his campaign.`\
+https://nytimes.com/live/2024/08/23/us/harris-dnc-trump-election/trump-says-he-will-have-a-very-good-relationship-with-gov-brian-kemp-after-endorsement
+
 **Along U.S. Route 144, Scenes of the Demoralizing American Grind**\
 `In “Orange Blossom Trail,” the photographer Joshua Lutz and the author George Saunders pay tribute to the hard living across one stretch of American highway.`\
 https://nytimes.com/2024/08/23/books/review/orange-blossom-trail-joshua-lutz-george-saunders.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/23/arts/television/kamala-harris-acceptance-speech-d
 **Nick Suzuki’s belief in Canadiens reinforced by Patrik Laine trade**\
 `Suzuki was consulted on the Laine trade and endorsed it because it will only help him reach his lofty goals.`\
 https://nytimes.com/athletic/5718388/2024/08/23/canadiens-patrik-laine-trade-nick-suzuki/
-
-**‘Lie to Fly’: The Story of the Pilot Accused of Attempting to Down a Plane After Taking Mushrooms**\
-`Our new documentary explores why many pilots struggle to seek mental health treatment, and the urgent calls for industry reform.`\
-https://nytimes.com/2024/08/23/NYT-Presents/lie-to-fly-joseph-emerson-pilot.html
 
