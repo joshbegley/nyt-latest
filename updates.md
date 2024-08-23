@@ -1,3 +1,7 @@
+**Why Kamala Harris’s Centrism is Working**\
+`The vice president’s convention speech embodied her efforts to win over swing voters.`\
+https://nytimes.com/2024/08/23/briefing/kamala-harris-convention-speech.html
+
 **The Biggest Speech of Kamala Harris’s Career**\
 `Presenting herself as a pragmatic leader who could unite all Americans behind a “new way forward,” Vice President Kamala Harris accepted the Democratic Party’s nomination for president. Zolan Kanno-Youngs, a White House correspondent for The New York Times, gives his takeaways.`\
 https://nytimes.com/video/us/elections/100000009653802/kamala-harris-dnc-acceptance-speech-analysis.html
