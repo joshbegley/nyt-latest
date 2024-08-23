@@ -1,3 +1,7 @@
+**Creed Humphrey, Chiefs agree to massive 4-year, $72 million extension**\
+`Humphrey, 25, was a Pro Bowl selection the last two seasons, when the Chiefs took home back-to-back Super Bowl titles.`\
+https://nytimes.com/athletic/5718180/2024/08/22/creed-humphrey-contract-extension-kansas-city-chiefs/
+
 **As some at-risk incumbents stayed home, Senate hopefuls addressed the delegates.**\
 `By Catie Edmondson`\
 https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/as-some-at-risk-incumbents-stayed-home-senate-hopefuls-addressed-the-delegates
