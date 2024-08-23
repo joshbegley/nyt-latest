@@ -1,3 +1,7 @@
+**Ukraine Steps Up Strikes Into Russia as Moscow Pushes Ahead in the East**\
+`Ukraine struck a port across from Crimea and damaged a cargo ferry. But Kyiv’s forces continued to struggle in eastern areas under a relentless Russian assault.`\
+https://nytimes.com/2024/08/23/world/europe/ukraine-russia-war-crimea.html
+
 **At Bowman Gray Stadium, Ben Kennedy gets tour of NASCAR history, and his own**\
 `NASCAR's master of the schedule paid a visit to his latest innovation — a trip to NASCAR's past, full of his own family's history.`\
 https://nytimes.com/athletic/5718160/2024/08/23/nascar-bowman-gray-stadium-ben-kennedy/

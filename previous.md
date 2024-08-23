@@ -1,3 +1,7 @@
+**Ukraine Steps Up Strikes Into Russia as Moscow Pushes Ahead in the East**\
+`Ukraine struck a port across from Crimea and damaged a cargo ferry. But Kyiv’s forces continued to struggle in eastern areas under a relentless Russian assault.`\
+https://nytimes.com/2024/08/23/world/europe/ukraine-russia-war-crimea.html
+
 **At Bowman Gray Stadium, Ben Kennedy gets tour of NASCAR history, and his own**\
 `NASCAR's master of the schedule paid a visit to his latest innovation — a trip to NASCAR's past, full of his own family's history.`\
 https://nytimes.com/athletic/5718160/2024/08/23/nascar-bowman-gray-stadium-ben-kennedy/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5717677/2024/08/23/buffalo-bills-carolina-panthers-
 **Ranking the top 10 NL rookies: Who will prevail in Rookie of the Year race?**\
 `This is how I see the NL Rookie of the Year race with about five weeks remaining in the season. `\
 https://nytimes.com/athletic/5717742/2024/08/23/national-league-rookie-of-the-year-race/
-
-**Deadly Floods Strike Troubled Bangladesh**\
-`Disaster has hit just weeks after mass protests led to a lethal crackdown and then prompted the abrupt flight of the long-serving prime minister.`\
-https://nytimes.com/2024/08/23/world/asia/bangladesh-deadly-floods.html
 
