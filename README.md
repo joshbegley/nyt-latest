@@ -1,3 +1,7 @@
+**Padres finally drop consecutive games as depth questions return to fore**\
+`The Padres' month-long hot streak has bought them some margin for error in the standings. But depth is paramount.`\
+https://nytimes.com/athletic/5718321/2024/08/23/padres-mets-depth-questions/
+
 **Chelsea have been mocked - but how many of the outcasts would make Maresca's team better?**\
 `Barring Chalobah and Petrovic, the other members of Chelsea's misfits really are better off being sold before the transfer window closes`\
 https://nytimes.com/athletic/5718331/2024/08/23/chelseas-outcasts-squad-enzo-maresca/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/23/us/politics/dnc-harris-chicago-takeaways.html
 **‘I Was Witnessing a Revolution’: The Best and Worst Moments From Night 4 of the Democratic Convention**\
 `What our columnists and contributors thought of speeches by Gretchen Whitmer, Roy Cooper and Kamala Harris.`\
 https://nytimes.com/2024/08/23/opinion/scorecard-night-4-democratic-convention.html
-
-**Full Transcript of Kamala Harris’s Speech at the Democratic Convention**\
-`The vice president’s remarks lasted roughly 35 minutes on the final night of the convention in Chicago.`\
-https://nytimes.com/2024/08/23/us/politics/kamala-harris-speech-transcript.html
 
