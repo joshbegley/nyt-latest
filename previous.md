@@ -1,3 +1,19 @@
+**What Stood Out About Michelle Obama’s Speech**\
+`The list of speakers at the Democratic National Convention was long. Astead Herndon, a national politics reporter and the host of “The Run-Up” at The New York Times, explains why Michelle Obama’s speech stood out to him the most.`\
+https://nytimes.com/video/us/elections/100000009653733/what-stood-out-about-michelle-obamas-speech.html
+
+**Sinner parts company with fitness coach, physiotherapist after doping ruling**\
+`Jannik Sinner has parted ways with his fitness coach and physiotherapist, the two men at the heart of the doping case involving the world’s top-ranked player that rocked the tennis world this week.`\
+https://nytimes.com/athletic/5719527/2024/08/23/jannik-sinner-clostebol-fitness-coach-physiotherapist/
+
+**Lifting the Curtain of Shen Yun to Reveal a Dark Side**\
+`Two New York Times reporters spent about 10 months investigating claims that the dance group had emotionally manipulated young performers and left many of their injuries untreated.`\
+https://nytimes.com/2024/08/23/insider/shen-yun-investigation.html
+
+**8 Correct Answers to ‘What Was the Song of the Summer?’**\
+`Revisit contenders from Sabrina Carpenter, Kendrick Lamar and Billie Eilish.`\
+https://nytimes.com/2024/08/23/arts/music/amplifier-newsletter-sabrina-carpenter-espresso.html
+
 **Joachim Andersen to Fulham: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500 series, we rate Joachim Andersen's move to Fulham.`\
 https://nytimes.com/athletic/5700330/2024/08/23/joachim-andersen-to-fulham-the-athletic-500-transfer-ratings/
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/5719490/2024/08/23/seahawks-bears-darrell-taylor-tr
 **Drinking Water Is at Risk in Parts of Long Island, Study Finds**\
 `Decades of pumping have allowed saltwater to threaten the aquifers that supply many communities, including Long Beach and Great Neck.`\
 https://nytimes.com/2024/08/23/climate/drinking-water-long-island.html
-
-**Joyful Feelings as Democratic Convention Concludes**\
-`“Yes, Michelle Obama, hope has made a spectacular comeback,” one reader writes. Also: Help for drinkers; “nudification” apps; eat your beans.`\
-https://nytimes.com/2024/08/23/opinion/letters/joyful-democratic-convention.html
-
-**Guantánamo Hearing Cut Short by Crisis on Defense Team in U.S.S. Cole Case**\
-`A military judge allowed the lead lawyer to leave next month, but his successor has not yet received the security clearance she needs to take over his responsibilities.`\
-https://nytimes.com/2024/08/23/us/politics/guantanamo-hearing-uss-cole-case.html
-
-**Iceland Volcano Erupts for Sixth Time in Less Than a Year**\
-`A volcano in Iceland near the town of Grindavik erupted on Thursday. Experts say the zone may continue to generate eruptions for years, potentially leading to the endangerment of nearby populated areas.`\
-https://nytimes.com/video/world/europe/100000009654638/iceland-volcano.html
-
-**The Pantry Staple That Can Change Your Cooking**\
-`There are so many kinds of red-pepper flakes. Getting to know them all can give your dishes a glow up.`\
-https://nytimes.com/2024/08/23/dining/red-chile-flake-recipe.html
 
