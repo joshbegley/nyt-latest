@@ -1,3 +1,7 @@
+**Denny Hamlin, rivals react to heavy NASCAR engine penalty**\
+`"Our room for error is gone now, and we just hope to get through the rounds," Hamlin said.`\
+https://nytimes.com/athletic/5720124/2024/08/23/denny-hamlin-nascar-engine-penalty/
+
 **Harris’s Convention Speech Seen by 29 Million, a Narrow Win Over Trump’s**\
 `Overall, TV viewership of the Democratic National Convention in Chicago was up 14 percent from the Republicans’ event last month.`\
 https://nytimes.com/2024/08/23/business/media/kamala-harris-dnc-viewers-ratings.html
