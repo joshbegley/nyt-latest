@@ -1,3 +1,7 @@
+**Our experts' College Football Playoff, Heisman and national title predictions**\
+`Ohio State is our staff's most popular national championship choice. Who else makes our 12-team College Football Playoff bracket?`\
+https://nytimes.com/athletic/5716431/2024/08/23/college-football-playoff-heisman-predictions/
+
 **Slot explains Liverpool transfer exits: 'It's always difficult'**\
 `Arne Slot has explained Liverpool&#8217;s decision to sell some of the club&#8217;s talented youngsters this summer.`\
 https://nytimes.com/athletic/5718640/2024/08/23/liverpool-transfers-van-den-berg-carvalho/
