@@ -1,3 +1,23 @@
+**McKennie signs Juventus contract extension**\
+`Juventus midfielder Weston McKennie has signed a new contract with the club.`\
+https://nytimes.com/athletic/5719131/2024/08/23/weston-mckennie-juventus-contract/
+
+**I Just Love Button Mushrooms**\
+`Whether browned in butter and stuffed with cheese or, as in this mushroom and eggplant yassa, simmered with caramelized onion and brightened with lime.`\
+https://nytimes.com/2024/08/23/dining/i-just-love-button-mushrooms.html
+
+**The Hidden Splendors of Cleveland’s Museums**\
+`It’s not too late to enjoy some lake weather in Cleveland, where the ice cream is fabulous and there’s never any shortage of art to see — let our critic tell you where.`\
+https://nytimes.com/2024/08/23/arts/design/cleveland-musuems-roundup.html
+
+**Five International Movies to Stream Now**\
+`In this month’s picks, a yoga teacher in Argentina adjusts to life after divorce, a young woman in London struggles to move past her painful past and more.`\
+https://nytimes.com/2024/08/23/movies/international-movies-streaming.html
+
+**What School Nurses Want Parents to Know**\
+`The stalwarts of children’s health shared their tips and gripes.`\
+https://nytimes.com/2024/08/23/well/school-nurse-advice-parent-mistakes.html
+
 **Trump says he will have a ‘very good’ relationship with Gov. Brian Kemp after endorsement.**\
 `Donald J. Trump, who called Mr. Kemp a “bad guy” earlier this month, told Fox News that the governor had been “very nice” in supporting his campaign.`\
 https://nytimes.com/live/2024/08/23/us/harris-dnc-trump-election/trump-says-he-will-have-a-very-good-relationship-with-gov-brian-kemp-after-endorsement
@@ -13,24 +33,4 @@ https://nytimes.com/athletic/5709931/2024/08/23/ilkay-gundogan-manchester-city-r
 **Juventus in Sancho talks: How deal could be structured - and analysis**\
 `Juventus are keen on Jadon Sancho but a deal for the forward would not be straightforward`\
 https://nytimes.com/athletic/5718971/2024/08/23/jadon-sancho-juventus-manchester-united/
-
-**At Edinburgh Festival, Sometimes Simpler is Better**\
-`The event’s best theater production avoided the gimmicks of other shows in favor of well-drawn characters and well-written dialogue.`\
-https://nytimes.com/2024/08/23/theater/edinburgh-international-festival.html
-
-**Bonadei succeeds Renard as France Women head coach**\
-`Herve Renard has been replaced as France Women head coach by his former assistant Laurent Bonadei.`\
-https://nytimes.com/athletic/5719077/2024/08/23/laurent-bonadei-succeeds-herve-renard-as-france-women-head-coach/
-
-**Biden’s National Security Adviser Will Visit China Next Week**\
-`A final meeting between President Biden and China’s leader, Xi Jinping, is also likely to come up.`\
-https://nytimes.com/2024/08/23/us/politics/biden-china-us.html
-
-**Kamala Harris’s Main-Character Energy**\
-`Accepting the nomination, the vice president completed a whirlwind ascent — and sought to finally supplant Donald Trump at the center of America’s political drama.`\
-https://nytimes.com/2024/08/23/arts/television/kamala-harris-acceptance-speech-dnc.html
-
-**Nick Suzuki’s belief in Canadiens reinforced by Patrik Laine trade**\
-`Suzuki was consulted on the Laine trade and endorsed it because it will only help him reach his lofty goals.`\
-https://nytimes.com/athletic/5718388/2024/08/23/canadiens-patrik-laine-trade-nick-suzuki/
 
