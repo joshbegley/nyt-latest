@@ -1,3 +1,7 @@
+**“He intends to enact what is, in effect, a national sales tax — call it a Trump tax — that would raise prices on middle-class families by almost $4,000 a year.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/he-intends-to-enact-what-is-in-effect-a-national-sales-tax-call-it-a-trump-tax-that-would-raise-prices-on-middle-class-families-
+
 **Harris Promises to Chart ‘New Way Forward’ as She Accepts Nomination**\
 `Vice President Kamala Harris delivered a searing rebuke of former President Donald J. Trump, casting him as a threat to democracy, global stability and women’s rights.`\
 https://nytimes.com/2024/08/22/us/politics/kamala-harris-dnc-speech.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/08/20/opinion/thepoint/detroit-democrats-harris
 **Angels' Perry Minasian gets 2-year extension, now it's time for him to shop smarter: Blum**\
 `Analysis: Minasian has yet to prove that he can be a winning GM for what is ostensibly a small-market team.`\
 https://nytimes.com/athletic/5718201/2024/08/22/angels-perry-minasian-extension-analysis/
-
-**“He invited Russia to do — and these are his words, not mine — ‘whatever the hell they want.’”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/he-invited-russia-to-do-and-these-are-his-words-not-mine-whatever-the-hell-they-want
 
