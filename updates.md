@@ -1,3 +1,7 @@
+**Greenwood begins process of declaring for Jamaica**\
+`Mason Greenwood has begun the process of gathering personal documents so he can gain Jamaican citizenship and play for the country at international level.`\
+https://nytimes.com/athletic/5719534/2024/08/23/mason-greenwood-jamaica-steve-mcclaren/
+
 **What Stood Out About Michelle Obama’s Speech**\
 `The list of speakers at the Democratic National Convention was long. Astead Herndon, a national politics reporter and the host of “The Run-Up” at The New York Times, explains why Michelle Obama’s speech stood out to him the most.`\
 https://nytimes.com/video/us/elections/100000009653733/what-stood-out-about-michelle-obamas-speech.html

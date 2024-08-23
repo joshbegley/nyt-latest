@@ -1,3 +1,7 @@
+**Greenwood begins process of declaring for Jamaica**\
+`Mason Greenwood has begun the process of gathering personal documents so he can gain Jamaican citizenship and play for the country at international level.`\
+https://nytimes.com/athletic/5719534/2024/08/23/mason-greenwood-jamaica-steve-mcclaren/
+
 **What Stood Out About Michelle Obama’s Speech**\
 `The list of speakers at the Democratic National Convention was long. Astead Herndon, a national politics reporter and the host of “The Run-Up” at The New York Times, explains why Michelle Obama’s speech stood out to him the most.`\
 https://nytimes.com/video/us/elections/100000009653733/what-stood-out-about-michelle-obamas-speech.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/23/us/politics/dnc-wealthy-donors-parties.html
 **Seahawks trade Darrell Taylor to Bears**\
 `Taylor will help fill Chicago's pass-rushing needs after the team missed on acquiring Matthew Judon.`\
 https://nytimes.com/athletic/5719490/2024/08/23/seahawks-bears-darrell-taylor-trade/
-
-**Drinking Water Is at Risk in Parts of Long Island, Study Finds**\
-`Decades of pumping have allowed saltwater to threaten the aquifers that supply many communities, including Long Beach and Great Neck.`\
-https://nytimes.com/2024/08/23/climate/drinking-water-long-island.html
 
