@@ -1,3 +1,7 @@
+**Kerry Washington Knows TV Politics. Now She’s Hosting a Real Party.**\
+`The star of the hit show “Scandal” is emcee for the final night’s program at the Democratic National Convention.`\
+https://nytimes.com/2024/08/22/us/politics/kerry-washington-dnc.html
+
 **Creed Humphrey, Chiefs agree to massive 4-year, $72 million extension**\
 `Humphrey, 25, was a Pro Bowl selection the last two seasons, when the Chiefs took home back-to-back Super Bowl titles.`\
 https://nytimes.com/athletic/5718180/2024/08/22/creed-humphrey-contract-extension-kansas-city-chiefs/
