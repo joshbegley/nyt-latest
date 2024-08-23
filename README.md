@@ -1,3 +1,7 @@
+**D-Backs' Jordan Montgomery says Scott Boras 'kind of butchered' his free-agency negotiations**\
+`Jordan Montgomery, fresh off his October heroics with the Texas Rangers, appeared positioned for a free-agent payday.`\
+https://nytimes.com/athletic/5720161/2024/08/23/jordan-montgomery-scott-boras-butchered-free-agency/
+
 **Denny Hamlin, rivals react to heavy NASCAR engine penalty**\
 `"Our room for error is gone now, and we just hope to get through the rounds," Hamlin said.`\
 https://nytimes.com/athletic/5720124/2024/08/23/denny-hamlin-nascar-engine-penalty/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/23/us/politics/rfk-jr-campaign.html
 **Transcript: Ezra Klein on Kamala Harris’s Convention Speech**\
 `The Aug. 23, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/08/23/podcasts/transcript-ezra-klein-on-kamala-harriss-convention-speech.html
-
-**Scott Bloomquist, Champion Dirt-Track Driver, Dies at 60**\
-`Styling himself as a rebel, he won more than 600 races and nine championships in a 40-year career.`\
-https://nytimes.com/2024/08/23/sports/autoracing/scott-bloomquist-dead.html
 
