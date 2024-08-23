@@ -1,3 +1,15 @@
+**Democrats Show That Republicans Aren’t the Only Ones Who Can Wrap Themselves in the Flag**\
+`From references to the Olympics to odes to freedom, Democrats used their nominating convention to stake their claim on patriotism.`\
+https://nytimes.com/2024/08/23/us/politics/democrats-patriotism-convention-harris.html
+
+**Best, Worst and Weirdest Moments of the Democratic Convention**\
+`The four-day party gathering featured memorable zingers, self-effacing humor and more than a few lines that didn’t land.`\
+https://nytimes.com/2024/08/23/us/politics/best-worst-moments-dnc.html
+
+**‘Central Park 5’ Describe Trump’s Character**\
+`The men – who now prefer to be called the Exonerated Five — recalled how Donald Trump spent $85,000 on a full-page ad in The New York Times calling for their execution.`\
+https://nytimes.com/video/us/elections/100000009654120/central-park-five-trump-dnc-exonerated.html
+
 **U.S. Plans to Accuse Software Maker of Enabling Collusion on Rents**\
 `The Justice Department is set to file an antitrust suit against the real estate company RealPage alleging illegal price-fixing facilitated by algorithms.`\
 https://nytimes.com/2024/08/23/business/economy/realpage-doj-antitrust-suit-rent.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5716216/2024/08/23/serie-a-united-states-tv-ac-mila
 **James Milner targets Premier League appearance record - and new Brighton role may help**\
 `Milner could thrive in a Fabian Hurzeler midfield and will take the team's set pieces now that Pascal Gross has moved on `\
 https://nytimes.com/athletic/5710393/2024/08/23/milner-brighton-epl-record-appearances/
-
-**FPL Gameweek 2 preview: Is Vardy an option? What to do with Quansah and Barco?**\
-`He had a goalscoring GW1 - and would take Leicester's penalties - so is it worth you bringing in the 37-year-old Jamie Vardy?`\
-https://nytimes.com/athletic/5713154/2024/08/23/fantasy-premier-league-gw2-tips-advice/
-
-**Row Z: Chelsea are not a mess, Tottenham are winners and Preston are excitable**\
-`In the first of our new weekly column, Tim Spiers takes a sideways look at the peculiarities and downright absurdities of the beautiful game`\
-https://nytimes.com/athletic/5716703/2024/08/23/row-z-chelsea-tottenham-city-preston-duran/
-
-**Trent Alexander-Arnold's Liverpool contract: What's going on?**\
-`The Liverpool academy graduate, who idolised Steven Gerrard, is approaching his peak years and securing his future must be a priority`\
-https://nytimes.com/athletic/5716615/2024/08/23/alexander-arnold-liverpool-contract-latest/
 
