@@ -1,3 +1,11 @@
+**‘This Is the Convention of the Woman’**\
+`Every night, some of the most famous men in politics seemed to play more of a supporting role.`\
+https://nytimes.com/2024/08/22/us/politics/dnc-harris-obama-clinton-women.html
+
+**Members of ‘Central Park 5’ Say Trump Is Too Dangerous for Second Term**\
+`In a prime-time speech at the Democratic National Convention, four of the five men exonerated in the 1989 assault of a female jogger said Donald J. Trump’s public attacks were devastating.`\
+https://nytimes.com/2024/08/22/nyregion/central-park-5-dnc-trump.html
+
 **How Black women commanded the convention.**\
 `By Maya King`\
 https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/how-black-women-commanded-the-convention

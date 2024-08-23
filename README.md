@@ -1,3 +1,15 @@
+**If This T-Shirt Offends You, It’s Working**\
+`You can sense the tenor of each convention at the merch stands.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/democratic-convention-tshirts
+
+**Kirk Ferentz got caught tampering, but that doesn't mean Iowa should slow down**\
+`On the transfer portal superhighway, everyone speeds. Iowa got caught and will pay the price. But it doesn't mean the Hawkeyes should stop.`\
+https://nytimes.com/athletic/5718003/2024/08/22/iowa-football-ncaa-violation-kirk-ferentz-cade-mcnamara/
+
+**Transcript: Ezra Klein on How the Democratic Party Is Talking About Freedom**\
+`The August 22, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/08/22/podcasts/transcript-ezra-klein-dnc.html
+
 **‘This Is the Convention of the Woman’**\
 `Every night, some of the most famous men in politics seemed to play more of a supporting role.`\
 https://nytimes.com/2024/08/22/us/politics/dnc-harris-obama-clinton-women.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/08/22/world/europe/iceland-volcano-eruption.html
 **In a Likely Overture to China, Nepal Lifts Ban on TikTok**\
 `The move signaled that Nepal’s new prime minister, who has cultivated ties with China, would continue on that path.`\
 https://nytimes.com/2024/08/22/world/asia/nepal-tiktok-china.html
-
-**'We got dogs': Packers defensive front comes to play in joint practice against Ravens**\
-`Green Bay successfully got through two joint practices this summer against the Broncos and Ravens without any fights.`\
-https://nytimes.com/athletic/5717673/2024/08/22/packers-defense-joint-practice-ravens/
-
-**Fund-Raiser for Jan. 6 Defendants Will Be Held at Trump’s Golf Club**\
-`Mr. Trump is said to not be attending the event, although an invitation lists him as an “invited guest speaker.” It will be held two months before Election Day.`\
-https://nytimes.com/2024/08/22/us/politics/fund-raiser-jan-6-defendants-trump-golf-club.html
-
-**Garrison Keillor on Tim Walz, ‘Minnesota Nice’ and Small-Town Appeal**\
-`Mr. Keillor said the vice-presidential candidate, a hunter and a football coach, used authenticity to win his congressional district.`\
-https://nytimes.com/2024/08/22/arts/tim-walz-minnesota-nice-garrison-keillor.html
 
