@@ -1,3 +1,11 @@
+**Chelsea's Tino Anjorin in Empoli talks over permanent transfer**\
+`Chelsea midfielder Tino Anjorin is in talks with Empoli over joining the Serie A club in a permanent transfer.`\
+https://nytimes.com/athletic/5719809/2024/08/23/tino-anjorin-empoli-chelsea-transfers/
+
+**Robert F. Kennedy Jr. Endorses Trump and Suspends His Independent Bid for President**\
+`Mr. Kennedy said he will remove his name from the ballot in battleground states, so as not to be a spoiler.`\
+https://nytimes.com/2024/08/23/us/elections/rfk-jr-suspends-campaign-presidential-race.html
+
 **Logan Sargeant's F1 future remains in doubt as Williams Racing boss praises his growth**\
 `F1? Williams reserve driver? Indycar? After a year and a half of F1 experience, Logan Sargeant must define his next chapter.`\
 https://nytimes.com/athletic/5719169/2024/08/23/f1-logan-sargeant-williams-racing/
