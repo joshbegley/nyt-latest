@@ -1,3 +1,7 @@
+**Fulham complete signing of Andersen from Crystal Palace**\
+`Fulham have completed the signing of defender Joachim Andersen from Crystal Palace.`\
+https://nytimes.com/athletic/5712961/2024/08/23/joachim-andersen-fulham-transfer/
+
 **The Windup: Mariners' collapse hits crisis mode**\
 `Welcome to The Windup, The Athletic's daily MLB newsletter. `\
 https://nytimes.com/athletic/5719171/2024/08/23/mariners-scott-servais-dodgers-injuries-mlb-the-windup/
