@@ -1,3 +1,7 @@
+**Chelsea have been mocked - but how many of the outcasts would make Maresca's team better?**\
+`Barring Chalobah and Petrovic, the other members of Chelsea's misfits really are better off being sold before the transfer window closes`\
+https://nytimes.com/athletic/5718331/2024/08/23/chelseas-outcasts-squad-enzo-maresca/
+
 **Democrats Taste Victory in November. But Are They Too Confident?**\
 `At the Democratic National Convention, party leaders warned against happy talk and said former President Donald J. Trump remains a formidable opponent.`\
 https://nytimes.com/2024/08/23/us/politics/democrats-harris-convention.html
