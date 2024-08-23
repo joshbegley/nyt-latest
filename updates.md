@@ -1,3 +1,7 @@
+**Word of the Day: smattering**\
+`This word has appeared in 136 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/23/learning/word-of-the-day-smattering.html
+
 **On Gaza, Democrats’ Most Divisive Issue, Harris Embraces Biden’s Balancing Act**\
 `With her party torn between pro-Israel Democrats and younger progressives, she’s looking for a way to quiet one major issue until after the election.`\
 https://nytimes.com/2024/08/23/us/politics/kamala-harris-gaza-israel.html
