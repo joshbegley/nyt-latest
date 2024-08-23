@@ -1,36 +1,36 @@
-**Braves rookie Schwellenbach continues to impress in series-clinching win over Phillies**\
-`"He does all the little things that winning pitchers do,” Brian Snitker said of the Braves' latest rookie pitching sensation.`\
-https://nytimes.com/athletic/5718411/2024/08/22/braves-spencer-schwellenbach-phillies-success/
+**Friday Briefing**\
+`The final night of the Democratic National Convention.`\
+https://nytimes.com/2024/08/23/briefing/kamala-harris-ukraine-yacht.html
 
-**Kamala Harris Just Showed She Knows How to Win**\
-`Elections are about contrasts. She presented a stirring one.`\
-https://nytimes.com/live/2024/08/20/opinion/thepoint/kamala-harris-speech-convention
+**Families of Dead Hostages Vent Anger at Israeli Leaders Over War**\
+`After Israel recovered the bodies of six men who died in Hamas captivity in Gaza, survivors accused the government of sinking the chances of hostages returning alive through a cease-fire deal.`\
+https://nytimes.com/2024/08/23/world/middleeast/dead-hostages-families-anger.html
 
-**“Donald Trump was asked what he would do about Social Security and Medicare, and he said, and I quote, ‘There is a lot you can do in terms of cutting.’”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/08/22/us/dnc-harris-fact-check/donald-trump-was-asked-what-he-would-do-about-social-security-and-medicare-and-he-said-and-i-quote-there-is-a-lot-you-can-do-in-
+**Friday's MLB odds, best bets: Pitching matchups, playoff projections and more**\
+`See pitching matchups, playoff projections, win projections and more for Friday's MLB games.`\
+https://nytimes.com/athletic/5716652/2024/08/23/mlb-odds-best-bets-projections-august-23/
 
-**“A serial liar, cheater, thief who looked soldiers in the eye, then turned around and called fallen heroes suckers and losers.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/08/22/us/dnc-harris-fact-check/a-serial-liar-cheater-thief-who-looked-soldiers-in-the-eye-then-turned-around-and-called-fallen-heroes-suckers-and-losers
+**A History Museum Shows How China Wants to Remake Hong Kong**\
+`A new exhibit calls for the city’s residents to be patriotic, loyal to the Chinese Communist Party and ever vigilant to supposed threats to the state.`\
+https://nytimes.com/2024/08/23/world/asia/hong-kong-history-museum.html
 
-**“He intends to enact what is, in effect, a national sales tax — call it a Trump tax — that would raise prices on middle-class families by almost $4,000 a year.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/08/22/us/dnc-harris-fact-check/he-intends-to-enact-what-is-in-effect-a-national-sales-tax-call-it-a-trump-tax-that-would-raise-prices-on-middle-class-families-
+**‘The Killer’ Review: John Woo With a French Twist**\
+`Woo’s new version of his Hong Kong action movie “The Killer,” starring Nathalie Emmanuel and Omar Sy, may be a remake, but it’s not a retread.`\
+https://nytimes.com/2024/08/23/movies/the-killer-review.html
 
-**Harris Promises to Chart ‘New Way Forward’ as She Accepts Nomination**\
-`Vice President Kamala Harris delivered a searing rebuke of former President Donald J. Trump, casting him as a threat to democracy, global stability and women’s rights.`\
-https://nytimes.com/2024/08/22/us/politics/kamala-harris-dnc-speech.html
+**Corrections: Aug. 23, 2024**\
+`Corrections that appeared in print on Friday, Aug. 23, 2024.`\
+https://nytimes.com/2024/08/23/pageoneplus/corrections-aug-23-2024.html
 
-**“He doesn’t actually fight for the middle class. Instead, he fights for himself and his billionaire friends. And he will give them another round of tax breaks that will add up to $5 trillion to the national debt.”**\
-`By Andrew Duehren`\
-https://nytimes.com/live/2024/08/22/us/dnc-harris-fact-check/he-doesnt-actually-fight-for-the-middle-class-instead-he-fights-for-himself-and-his-billionaire-friends-and-he-will-give-them-an
+**Quotation of the Day: The Starbucks C.E.O.’s New Commute: A Thousand Miles on the Company Plane**\
+`Quotation of the Day for Friday, August 23, 2024.`\
+https://nytimes.com/2024/08/23/pageoneplus/quotation-of-the-day-the-starbucks-ceos-new-commute-a-thousand-miles-on-the-company-plane.html
 
-**Bears' Douglas Coleman III stretchered off field in preseason game**\
-`Coleman was motionless for several minutes after trying to make a routine tackle while medical staff from both teams attended to him.`\
-https://nytimes.com/athletic/5718385/2024/08/22/douglas-coleman-bears-injury-stretcher/
+**Why Jackson Hole Is the Fed’s Biggest Shindig**\
+`The Federal Reserve Bank of Kansas City’s annual conference in Wyoming gets a lot of buzz. Here’s why it matters for Wall Street and the economy.`\
+https://nytimes.com/2024/08/23/business/economy/jackson-hole-powell-speech.html
 
-**‘That Woman From Michigan’ Twists the Knife on Trump**\
-`Gov. Gretchen Whitmer makes the case for tough women.`\
-https://nytimes.com/live/2024/08/20/opinion/thepoint/whitmer-michigan-harris
+**Slow and Steady Wins the Game of Love for These Sports Professionals**\
+`The pandemic forced Monica McNutt, a basketball commentator, and Justin Jackson, the director of basketball operations for the National Basketball Players Association, to continue their relationship from afar.`\
+https://nytimes.com/2024/08/23/style/monica-mcnutt-justin-jackson-wedding.html
 
