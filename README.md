@@ -1,3 +1,7 @@
+**Bellingham set for month out with lower leg injury**\
+`Real Madrid midfielder Jude Bellingham faces a month on the sidelines after sustaining a muscle injury in his lower right leg.`\
+https://nytimes.com/athletic/5718838/2024/08/23/real-madrid-jude-bellingham-injury/
+
 **Bills players with the most to gain or lose in the preseason finale**\
 `Injuries have created opportunities for some players to play their way into a roster spot.`\
 https://nytimes.com/athletic/5717677/2024/08/23/buffalo-bills-carolina-panthers-preseason-players/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/23/podcasts/the-defining-moments-of-the-dnc-finale.h
 **The Athletic’s Friday football quiz question #18**\
 `The Athletic's weekly conundrum from inside the trivia vaults`\
 https://nytimes.com/athletic/5710436/2024/08/23/the-athletics-friday-football-quiz-question-18/
-
-**FPL Q&A: FPL Gameweek 2 advice from Ben Dinnery**\
-`Join Ben Dinnery for a live Gameweek 2 Fantasy Premier League Q&A from 4pm UK time on Friday`\
-https://nytimes.com/athletic/5716229/2024/08/23/fantasy-premier-league-advice-injury-news-gw2/
 
