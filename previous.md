@@ -1,3 +1,11 @@
+**Logan Sargeant's F1 future remains in doubt as Williams Racing boss praises his growth**\
+`F1? Williams reserve driver? Indycar? After a year and a half of F1 experience, Logan Sargeant must define his next chapter.`\
+https://nytimes.com/athletic/5719169/2024/08/23/f1-logan-sargeant-williams-racing/
+
+**Fenerbahce say Kadioglu given permission to travel for Brighton transfer**\
+`Fenerbahce say they have given permission for Ferdi Kadioglu to travel to Brighton &amp; Hove Albion for talks over his possible transfer.`\
+https://nytimes.com/athletic/5702447/2024/08/23/ferdi-kadioglu-brighton-transfer-fenerbahce/
+
 **El Ghazi says he has received €1.5m Mainz payout after unfair dismissal**\
 `Anwar El Ghazi says he has received a payout from Mainz after a German court found he was unfairly dismissed by the club over a social media post about the Israel-Gaza war.`\
 https://nytimes.com/athletic/5719487/2024/08/23/anwar-el-ghazi-gaza-israel-mainz/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5716781/2024/08/23/49ers-brandon-aiyuk-holdout-nego
 **Sabrina Carpenter Slices Up Her Sunny Image, and 7 More New Songs**\
 `Hear tracks by Yaeji, Amythyst Kiah featuring Billy Strings, Broadcast and more.`\
 https://nytimes.com/2024/08/23/arts/music/playlist-sabrina-carpenter-amythyst-kiah.html
-
-**On Gaza, Harris Successfully Threaded the Needle**\
-`She didn’t explicitly criticize Israel, but she did support Palestinian self-determination.`\
-https://nytimes.com/live/2024/08/20/opinion/thepoint/harris-gaza-israel-convention
-
-**On Truth Social, Donald Trump Tries to Refashion Himself as Supportive of Abortion Rights**\
-`His post about “reproductive rights” appeared to be an attempt to cast himself as a political moderate on an issue that has the potential to be damaging to him in November.`\
-https://nytimes.com/2024/08/23/us/politics/trump-abortion-truth-social.html
 

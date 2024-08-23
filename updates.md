@@ -1,3 +1,11 @@
+**Logan Sargeant's F1 future remains in doubt as Williams Racing boss praises his growth**\
+`F1? Williams reserve driver? Indycar? After a year and a half of F1 experience, Logan Sargeant must define his next chapter.`\
+https://nytimes.com/athletic/5719169/2024/08/23/f1-logan-sargeant-williams-racing/
+
+**Fenerbahce say Kadioglu given permission to travel for Brighton transfer**\
+`Fenerbahce say they have given permission for Ferdi Kadioglu to travel to Brighton &amp; Hove Albion for talks over his possible transfer.`\
+https://nytimes.com/athletic/5702447/2024/08/23/ferdi-kadioglu-brighton-transfer-fenerbahce/
+
 **El Ghazi says he has received €1.5m Mainz payout after unfair dismissal**\
 `Anwar El Ghazi says he has received a payout from Mainz after a German court found he was unfairly dismissed by the club over a social media post about the Israel-Gaza war.`\
 https://nytimes.com/athletic/5719487/2024/08/23/anwar-el-ghazi-gaza-israel-mainz/
