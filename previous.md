@@ -1,3 +1,11 @@
+**Beyoncé Rumors Briefly Took Center Stage. Kamala Harris Grabbed It Back.**\
+`Unsubstantiated rumors that the star would appear at the Democratic National Convention, perhaps alongside Taylor Swift, created a daylong frenzy. Then the headliner took control.`\
+https://nytimes.com/2024/08/23/arts/music/beyonce-rumors-kamala-harris-dnc.html
+
+**The Next Generation**\
+`By Todd Heisler and Tim Balk`\
+https://nytimes.com/live/2024/08/23/us/harris-dnc-trump-election/the-next-generation
+
 **Democrats Are Upbeat, but Face a Tough Race Ahead**\
 `Also, Powell said the “time has come” for interest rate cuts. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/08/23/briefing/democrats-after-convention-fed-rate-cut.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/23/us/politics/secret-service-trump-shooting.html
 **Sharks acquire top goalie prospect Yaroslav Askarov**\
 `Askarov, 22, was selected No. 11 by Nashville in 2020 and has starred for the AHL Milwaukee Admirals 2022.`\
 https://nytimes.com/athletic/5719933/2024/08/23/yaroslav-askarov-trade-sharks-predators-nhl/
-
-**The Next Generation**\
-`A single image captures the significant moment for young women in America.`\
-https://nytimes.com/2024/08/23/us/elections/the-next-generation.html
-
-**Kamala Harris Wants to Win**\
-`The Democratic presidential nominee’s speech on Thursday night sought to persuade.`\
-https://nytimes.com/2024/08/23/opinion/ezra-klein-podcast-dnc-recap.html
 
