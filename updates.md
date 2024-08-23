@@ -1,3 +1,7 @@
+**D-Backs' Jordan Montgomery says Scott Boras 'kind of butchered' his free-agency negotiations**\
+`Jordan Montgomery, fresh off his October heroics with the Texas Rangers, appeared positioned for a free-agent payday.`\
+https://nytimes.com/athletic/5720161/2024/08/23/jordan-montgomery-scott-boras-butchered-free-agency/
+
 **Denny Hamlin, rivals react to heavy NASCAR engine penalty**\
 `"Our room for error is gone now, and we just hope to get through the rounds," Hamlin said.`\
 https://nytimes.com/athletic/5720124/2024/08/23/denny-hamlin-nascar-engine-penalty/
