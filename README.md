@@ -1,3 +1,7 @@
+**France’s Political Truce for the Olympics Is Over. Now What?**\
+`Lucie Castets, a relatively obscure bureaucrat, is the left’s choice to be prime minister. Just one person stands in her way: the president.`\
+https://nytimes.com/2024/08/23/world/europe/france-prime-minister-castets-macron.html
+
 **Greenwood begins process of declaring for Jamaica**\
 `Mason Greenwood has begun the process of gathering personal documents so he can gain Jamaican citizenship and play for the country at international level.`\
 https://nytimes.com/athletic/5719534/2024/08/23/mason-greenwood-jamaica-steve-mcclaren/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5719589/2024/08/23/hall-of-fame-revisions-eligibili
 **Inside the Democratic Schmoozefest, Where Hotel Lobbies Are ‘Prime Territory’**\
 `The real jockeying for power in Chicago this week took place a few miles from the Democratic convention, in the lobbies and bars and hallways of the Four Seasons and Ritz-Carlton hotels.`\
 https://nytimes.com/2024/08/23/us/politics/dnc-wealthy-donors-parties.html
-
-**Seahawks trade Darrell Taylor to Bears**\
-`Taylor will help fill Chicago's pass-rushing needs after the team missed on acquiring Matthew Judon.`\
-https://nytimes.com/athletic/5719490/2024/08/23/seahawks-bears-darrell-taylor-trade/
 
