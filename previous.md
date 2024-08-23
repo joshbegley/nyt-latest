@@ -3,7 +3,7 @@
 https://nytimes.com/2024/08/23/us/florida-deputy-manslaughter-roger-fortson.html
 
 **Diamond Sports drops Mavericks, but promises to broadcast 2024-25 NBA, NHL seasons**\
-`Diamond Sports said it has agreed to broadcast games for 13 NBA and nine NHL teams during the leagues' 2024-25 seasons.`\
+`The group that broadcasts the Bally-branded regional sports networks said it has agreed to air games for 13 NBA and nine NHL teams. `\
 https://nytimes.com/athletic/5720080/2024/08/23/diamond-sports-nba-nhl-broadcast-rights/
 
 **Democrats Are Building a Tricky Fandom Around Kamala Harris**\
