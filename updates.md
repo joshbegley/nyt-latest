@@ -1,3 +1,11 @@
+**“He intends to enact what is, in effect, a national sales tax — call it a Trump tax — that would raise prices on middle-class families by almost $4,000 a year.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/he-intends-to-enact-what-is-in-effect-a-national-sales-tax-call-it-a-trump-tax-that-would-raise-prices-on-middle-class-families-
+
+**Bears' Douglas Coleman III stretchered off field in preseason game**\
+`Coleman was motionless for several minutes after trying to make a routine tackle while medical staff from both teams attended to him.`\
+https://nytimes.com/athletic/5718385/2024/08/22/douglas-coleman-bears-injury-stretcher/
+
 **Harris Promises to Chart ‘New Way Forward’ as She Accepts Nomination**\
 `Vice President Kamala Harris delivered a searing rebuke of former President Donald J. Trump, casting him as a threat to democracy, global stability and women’s rights.`\
 https://nytimes.com/2024/08/22/us/politics/kamala-harris-dnc-speech.html
