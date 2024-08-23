@@ -1,3 +1,7 @@
+**Coming of Age in 2024: Explore Your Political Identity and Values**\
+`What can you show or tell us to help explain what it’s like to grow up in this political moment? Submit in words, images, audio or video, from Oct. 2 to Nov. 4.`\
+https://nytimes.com/2024/08/23/learning/coming-of-age-in-2024-explore-your-political-identity-and-values.html
+
 **Kamara set for injury return in a 'few weeks' - Emery**\
 `Aston Villa manager Unai Emery says Boubacar Kamara is scheduled to return to first-team training in &#8220;a few weeks&#8221;.`\
 https://nytimes.com/athletic/5718989/2024/08/23/aston-villa-kamara-injury/

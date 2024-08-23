@@ -1,3 +1,7 @@
+**Coming of Age in 2024: Explore Your Political Identity and Values**\
+`What can you show or tell us to help explain what it’s like to grow up in this political moment? Submit in words, images, audio or video, from Oct. 2 to Nov. 4.`\
+https://nytimes.com/2024/08/23/learning/coming-of-age-in-2024-explore-your-political-identity-and-values.html
+
 **Kamara set for injury return in a 'few weeks' - Emery**\
 `Aston Villa manager Unai Emery says Boubacar Kamara is scheduled to return to first-team training in &#8220;a few weeks&#8221;.`\
 https://nytimes.com/athletic/5718989/2024/08/23/aston-villa-kamara-injury/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5718763/2024/08/23/chelsea-transfers-striker-enzo-m
 **The Athletic FC: Analysing 'world's best' Martinez, inside Gundogan's City return**\
 `Today in TAFC: Mark Bosnich analyses Emi Martinez, Serie A targets a U.S TV audience - and Arsenal are on the cusp of capturing Merino`\
 https://nytimes.com/athletic/5718745/2024/08/23/martinez-worlds-best-gundogan-city-transfer-serie-a-tv-audience/
-
-**Bellingham set for month out with lower leg injury**\
-`Real Madrid midfielder Jude Bellingham faces a month on the sidelines after sustaining a muscle injury in his lower right leg.`\
-https://nytimes.com/athletic/5718838/2024/08/23/real-madrid-jude-bellingham-injury/
 
