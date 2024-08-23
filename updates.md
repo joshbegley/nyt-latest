@@ -1,3 +1,7 @@
+**Juventus in Sancho talks: How deal could be structured - and analysis**\
+`Juventus are keen on Sancho but a deal with Manchester United for the 24-year-old England forward would not be straightforward`\
+https://nytimes.com/athletic/5718971/2024/08/23/jadon-sancho-juventus-manchester-united/
+
 **McKennie signs Juventus contract extension**\
 `Juventus midfielder Weston McKennie has signed a new contract with the club.`\
 https://nytimes.com/athletic/5719131/2024/08/23/weston-mckennie-juventus-contract/

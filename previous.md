@@ -31,6 +31,6 @@ https://nytimes.com/2024/08/23/books/review/orange-blossom-trail-joshua-lutz-geo
 https://nytimes.com/athletic/5709931/2024/08/23/ilkay-gundogan-manchester-city-ratings/
 
 **Juventus in Sancho talks: How deal could be structured - and analysis**\
-`Juventus are keen on Jadon Sancho but a deal for the forward would not be straightforward`\
+`Juventus are keen on Sancho but a deal with Manchester United for the 24-year-old England forward would not be straightforward`\
 https://nytimes.com/athletic/5718971/2024/08/23/jadon-sancho-juventus-manchester-united/
 
