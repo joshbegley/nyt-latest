@@ -1,3 +1,7 @@
+**With Ella Emhoff, the D.N.C. Keeps Its Family Theme Going**\
+`The stepdaughter of Kamala Harris took the stage alongside Ms. Harris’s niece and goddaughter.`\
+https://nytimes.com/2024/08/22/style/ella-emhoff-dnc-harris.html
+
 **Kerry Washington Knows TV Politics. Now She’s Hosting a Real Party.**\
 `The star of the hit show “Scandal” is emcee for the final night’s program at the Democratic National Convention.`\
 https://nytimes.com/2024/08/22/us/politics/kerry-washington-dnc.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/22/us/politics/dnc-harris-obama-clinton-women.html
 **Members of ‘Central Park 5’ Say Trump Is Too Dangerous for Second Term**\
 `In a prime-time speech at the Democratic National Convention, four of the five men exonerated in the 1989 assault of a female jogger said Donald J. Trump’s public attacks were devastating.`\
 https://nytimes.com/2024/08/22/nyregion/central-park-5-dnc-trump.html
-
-**How Black women commanded the convention.**\
-`By Maya King`\
-https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/how-black-women-commanded-the-convention
 
