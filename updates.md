@@ -1,3 +1,7 @@
+**Warm-Up Pieces**\
+`Taylor Johnson and Rafael Musa are veteran constructors who are collaborating on a  New York Times Crossword for the first time.`\
+https://nytimes.com/2024/08/22/crosswords/daily-puzzle-2024-08-23.html
+
 **With the Mariners at a crisis point, Jerry Dipoto promotes Dan Wilson to manager**\
 `GM Dipoto hopes a turnaround is coming in the weeks ahead. But after Thursday’s news, a cratering summer reached a new low. `\
 https://nytimes.com/athletic/5718198/2024/08/22/mariners-name-dan-wilson-manager-analysis/
