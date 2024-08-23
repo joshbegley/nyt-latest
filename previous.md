@@ -1,3 +1,7 @@
+**U.S. Tightens Technology Controls to Target Russian War Machine**\
+`The Biden administration announced new penalties on shell companies and suppliers that were feeding Russia’s war against Ukraine.`\
+https://nytimes.com/2024/08/23/us/politics/us-russia-technology-penalties.html
+
 **CFB's elimination of spring transfer portal window moves to D-I Council**\
 `The spring portal window has been especially frustrating for coaches, who finish spring practice and still don’t know their complete team.`\
 https://nytimes.com/athletic/5719696/2024/08/23/college-football-spring-transfer-window-removed/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5719627/2024/08/23/dylan-crews-nationals-promoted-m
 **Atlanta Hospital Lost Part of Man’s Skull, a Lawsuit Says**\
 `A piece of Fernando Cluster’s skull was removed during emergency brain surgery in 2022. But when it was time to put it back, the hospital couldn’t find it, the suit says.`\
 https://nytimes.com/2024/08/23/us/atlanta-brain-surgery-skull-lawsuit.html
-
-**‘Joy,’ ‘Freedom,’ ‘Goldilocks’: Kamala Harris’s Democratic Party in 7 Keywords**\
-`As Democrats coalesce around their candidate, here are some of the words that define the party now.`\
-https://nytimes.com/2024/08/23/books/review/democratic-national-convention-kamala-harris.html
 

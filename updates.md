@@ -1,3 +1,7 @@
+**U.S. Tightens Technology Controls to Target Russian War Machine**\
+`The Biden administration announced new penalties on shell companies and suppliers that were feeding Russia’s war against Ukraine.`\
+https://nytimes.com/2024/08/23/us/politics/us-russia-technology-penalties.html
+
 **CFB's elimination of spring transfer portal window moves to D-I Council**\
 `The spring portal window has been especially frustrating for coaches, who finish spring practice and still don’t know their complete team.`\
 https://nytimes.com/athletic/5719696/2024/08/23/college-football-spring-transfer-window-removed/
