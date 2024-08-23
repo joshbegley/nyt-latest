@@ -1,3 +1,7 @@
+**Kamala Harris, Hoping to Build Momentum, Plans Battleground State Tour Next Week**\
+`After accepting the nomination, Ms. Harris was flying back to Washington on Friday for a weekend respite before returning to the campaign trail next week.`\
+https://nytimes.com/2024/08/23/us/politics/harris-battleground-state-tour.html
+
 **U.S. Tightens Technology Controls to Target Russian War Machine**\
 `The Biden administration announced new penalties on shell companies and suppliers that were feeding Russia’s war against Ukraine.`\
 https://nytimes.com/2024/08/23/us/politics/us-russia-technology-penalties.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5719487/2024/08/23/anwar-el-ghazi-gaza-israel-mainz
 **Top Nationals prospect Dylan Crews to be promoted to big leagues: Source**\
 `Crews, the No. 2 pick in the 2023 MLB Draft, was recently ranked the No. 7 prospect in MLB by Keith Law.`\
 https://nytimes.com/athletic/5719627/2024/08/23/dylan-crews-nationals-promoted-major-leagues/
-
-**Atlanta Hospital Lost Part of Man’s Skull, a Lawsuit Says**\
-`A piece of Fernando Cluster’s skull was removed during emergency brain surgery in 2022. But when it was time to put it back, the hospital couldn’t find it, the suit says.`\
-https://nytimes.com/2024/08/23/us/atlanta-brain-surgery-skull-lawsuit.html
 
