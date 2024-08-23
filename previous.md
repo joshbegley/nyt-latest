@@ -1,3 +1,7 @@
+**Menendez’s Senate Replacement Has Been a Democrat for Just 5 Months**\
+`George Helmy was selected for the temporary job by Philip Murphy, New Jersey’s Democratic governor. He said he will caucus and vote with the Democratic Party.`\
+https://nytimes.com/2024/08/23/nyregion/george-helmy-bob-menendez-murphy.html
+
 **France’s Political Truce for the Olympics Is Over. Now What?**\
 `Lucie Castets, a relatively obscure bureaucrat, is the left’s choice to be prime minister. Just one person stands in her way: the president.`\
 https://nytimes.com/2024/08/23/world/europe/france-prime-minister-castets-macron.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5700330/2024/08/23/joachim-andersen-to-fulham-the-a
 **Pro Football HOF revises eligibility requirements for coaches**\
 `Coaches now will only have to wait a year for eligibility after retirement as opposed to the previous five-year period`\
 https://nytimes.com/athletic/5719589/2024/08/23/hall-of-fame-revisions-eligibility-coaches/
-
-**Inside the Democratic Schmoozefest, Where Hotel Lobbies Are ‘Prime Territory’**\
-`The real jockeying for power in Chicago this week took place a few miles from the Democratic convention, in the lobbies and bars and hallways of the Four Seasons and Ritz-Carlton hotels.`\
-https://nytimes.com/2024/08/23/us/politics/dnc-wealthy-donors-parties.html
 

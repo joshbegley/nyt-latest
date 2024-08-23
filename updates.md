@@ -1,3 +1,7 @@
+**Menendez’s Senate Replacement Has Been a Democrat for Just 5 Months**\
+`George Helmy was selected for the temporary job by Philip Murphy, New Jersey’s Democratic governor. He said he will caucus and vote with the Democratic Party.`\
+https://nytimes.com/2024/08/23/nyregion/george-helmy-bob-menendez-murphy.html
+
 **France’s Political Truce for the Olympics Is Over. Now What?**\
 `Lucie Castets, a relatively obscure bureaucrat, is the left’s choice to be prime minister. Just one person stands in her way: the president.`\
 https://nytimes.com/2024/08/23/world/europe/france-prime-minister-castets-macron.html
