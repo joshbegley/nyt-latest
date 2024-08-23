@@ -1,3 +1,7 @@
+**Israel Presses for Gaza Border Presence as Part of Cease-Fire Deal**\
+`Mediators in truce negotiations, including the C.I.A. director and President Biden’s Middle East envoy, are seeking a summit next week to keep the struggling talks alive.`\
+https://nytimes.com/2024/08/23/world/middleeast/israel-gaza-egypt-border-cease-fire.html
+
 **Robert F. Kennedy Jr. Suspends Presidential Campaign**\
 `Robert F. Kennedy Jr. announced he was suspending his troubled independent campaign for the presidency, and endorsed Donald J. Trump.`\
 https://nytimes.com/video/us/elections/100000009655600/robert-f-kennedy-suspends-independent-campaign.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/23/opinion/ezra-klein-podcast-dnc-recap.html
 **Sanders, Buffs will no longer answer questions from local columnist**\
 `Sean Keeler, who works as a columnist at the paper and does not cover Colorado full-time, will still be credentialed for events.`\
 https://nytimes.com/athletic/5719873/2024/08/23/deion-sanders-colorado-football-denver-columnist/
-
-**Danny Jansen to join Red Sox's lineup at start of suspended game vs. Blue Jays, play for both teams**\
-`Jansen will be the first player in MLB history to play for both teams in the same game.`\
-https://nytimes.com/athletic/5719956/2024/08/23/danny-jansen-red-sox-blue-jays-suspended-game/
 

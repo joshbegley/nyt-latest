@@ -1,3 +1,7 @@
+**Israel Presses for Gaza Border Presence as Part of Cease-Fire Deal**\
+`Mediators in truce negotiations, including the C.I.A. director and President Biden’s Middle East envoy, are seeking a summit next week to keep the struggling talks alive.`\
+https://nytimes.com/2024/08/23/world/middleeast/israel-gaza-egypt-border-cease-fire.html
+
 **Robert F. Kennedy Jr. Suspends Presidential Campaign**\
 `Robert F. Kennedy Jr. announced he was suspending his troubled independent campaign for the presidency, and endorsed Donald J. Trump.`\
 https://nytimes.com/video/us/elections/100000009655600/robert-f-kennedy-suspends-independent-campaign.html
