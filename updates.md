@@ -1,3 +1,15 @@
+**Joachim Andersen to Fulham: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we rate Joachim Andersen's move to Fulham.`\
+https://nytimes.com/athletic/5700330/2024/08/23/joachim-andersen-to-fulham-the-athletic-500-transfer-ratings/
+
+**Pro Football HOF revises eligibility requirements for coaches**\
+`Coaches now will only have to wait a year for eligibility after retirement as opposed to the previous five-year period`\
+https://nytimes.com/athletic/5719589/2024/08/23/hall-of-fame-revisions-eligibility-coaches/
+
+**Inside the Democratic Schmoozefest, Where Hotel Lobbies Are ‘Prime Territory’**\
+`The real jockeying for power in Chicago this week took place a few miles from the Democratic convention, in the lobbies and bars and hallways of the Four Seasons and Ritz-Carlton hotels.`\
+https://nytimes.com/2024/08/23/us/politics/dnc-wealthy-donors-parties.html
+
 **Seahawks trade Darrell Taylor to Bears**\
 `Taylor will help fill Chicago's pass-rushing needs after the team missed on acquiring Matthew Judon.`\
 https://nytimes.com/athletic/5719490/2024/08/23/seahawks-bears-darrell-taylor-trade/
