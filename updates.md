@@ -1,3 +1,11 @@
+**In Las Vegas, Trump Calls Harris a ‘Copycat’ Over ‘No Tax on Tips’ Plan**\
+`The rivals have zeroed in on service industry workers in Nevada, a swing state where polls show a tight race.`\
+https://nytimes.com/2024/08/23/us/politics/trump-harris-no-tax-tips.html
+
+**Police Investigate Deadly Knife Attack in Western Germany**\
+`The attack took place in a central square in Solingen, Germany, during a festival celebrating the town’s 650th anniversary.`\
+https://nytimes.com/video/world/europe/100000009655818/germany-solingen-knife-attack.html
+
 **Meet the Rural Voters Who Could Swing North Carolina’s Election**\
 `Residents in Wilson County worry about the rising costs of goods and housing — but mostly they just want to get along.`\
 https://nytimes.com/interactive/2024/08/23/us/elections/north-carolina-rural-voters.html
