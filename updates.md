@@ -1,3 +1,15 @@
+**Democrats Show That Republicans Aren’t the Only Ones Who Can Wrap Themselves in the Flag**\
+`From references to the Olympics to odes to freedom, Democrats used their nominating convention to stake their claim on patriotism.`\
+https://nytimes.com/2024/08/23/us/politics/democrats-patriotism-convention-harris.html
+
+**Best, Worst and Weirdest Moments of the Democratic Convention**\
+`The four-day party gathering featured memorable zingers, self-effacing humor and more than a few lines that didn’t land.`\
+https://nytimes.com/2024/08/23/us/politics/best-worst-moments-dnc.html
+
+**‘Central Park 5’ Describe Trump’s Character**\
+`The men – who now prefer to be called the Exonerated Five — recalled how Donald Trump spent $85,000 on a full-page ad in The New York Times calling for their execution.`\
+https://nytimes.com/video/us/elections/100000009654120/central-park-five-trump-dnc-exonerated.html
+
 **U.S. Plans to Accuse Software Maker of Enabling Collusion on Rents**\
 `The Justice Department is set to file an antitrust suit against the real estate company RealPage alleging illegal price-fixing facilitated by algorithms.`\
 https://nytimes.com/2024/08/23/business/economy/realpage-doj-antitrust-suit-rent.html
