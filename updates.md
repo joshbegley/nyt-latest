@@ -1,3 +1,15 @@
+**Ranking the top 10 NL rookies: Who will prevail in Rookie of the Year race?**\
+`This is how I see the NL Rookie of the Year race with about five weeks remaining in the season. `\
+https://nytimes.com/athletic/5717742/2024/08/23/national-league-rookie-of-the-year-race/
+
+**Deadly Floods Strike Troubled Bangladesh**\
+`Disaster has hit just weeks after mass protests led to a lethal crackdown and then prompted the abrupt flight of the long-serving prime minister.`\
+https://nytimes.com/2024/08/23/world/asia/bangladesh-deadly-floods.html
+
+**The Donor Report Card on Harris**\
+`Taxes, antitrust, closer ties with business: These were some of the issues corporate backers sought more clarity on at the Democratic National Convention.`\
+https://nytimes.com/2024/08/23/business/dealbook/donors-democratic-convention-harris.html
+
 **Colts QB Anthony Richardson's roller-coaster night in Cincinnati a preview of what's to come?**\
 `The first drive Thursday night was precise, purposeful and damn near perfect. After that, Richardson's play was a little choppier.`\
 https://nytimes.com/athletic/5718558/2024/08/23/indianapolis-colts-anthony-richardson-preseason-bengals/
