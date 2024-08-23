@@ -1,3 +1,7 @@
+**Dialing In to Fox News, Trump Offers a Rambling Rebuttal to Harris’s Speech**\
+`The network ended the live interview after 10 minutes. Beeps could be heard as the former president seemed to accidentally press the buttons on the keypad of his phone.`\
+https://nytimes.com/2024/08/23/us/politics/trump-reaction-harris-dnc.html
+
 **Best, Worst and Weirdest Moments of the Democratic Convention**\
 `The party’s four-day gathering featured memorable zingers, self-effacing humor and more than a few lines that didn’t land.`\
 https://nytimes.com/2024/08/23/us/politics/best-worst-moments-dnc.html

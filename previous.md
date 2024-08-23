@@ -1,3 +1,7 @@
+**Dialing In to Fox News, Trump Offers a Rambling Rebuttal to Harris’s Speech**\
+`The network ended the live interview after 10 minutes. Beeps could be heard as the former president seemed to accidentally press the buttons on the keypad of his phone.`\
+https://nytimes.com/2024/08/23/us/politics/trump-reaction-harris-dnc.html
+
 **5 Takeaways From the Democratic Convention**\
 `A history-making candidate told grounded stories. Democrats expanded their anti-Trump playbook. And even if something “magical is in the air” for the party, as Michelle Obama said, there’s a hard road ahead.`\
 https://nytimes.com/2024/08/23/us/politics/dnc-harris-chicago-takeaways.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/23/business/economy/realpage-doj-antitrust-suit-rent
 **Wan-Bissaka v Coufal - the West Ham right-back battle that could run and run**\
 `Wan Bissaka has not signed to be a second choice, Coufal has seen off competition before - who will win out for Lopetegui?`\
 https://nytimes.com/athletic/5716219/2024/08/23/aaron-wan-bissaka-vladimir-coufal-west-ham-lopetegui/
-
-**Why Neto was much more than stats - and will be welcomed back to Molineux**\
-`Pedro Neto didn't fulfil his potential at Wolves due to injuries - but he is sure to get a warm welcome when he returns with Chelsea`\
-https://nytimes.com/athletic/5716515/2024/08/23/why-pedro-neto-molineux-chelsea-wolves/
 
