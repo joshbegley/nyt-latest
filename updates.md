@@ -1,3 +1,11 @@
+**Kamala Takes Chicago**\
+`The Democratic presidential nominee`\
+https://nytimes.com/2024/08/23/opinion/kamala-harris-speech.html
+
+**What Voters Outside the Democratic Bubble Thought of Harris’s Speech**\
+`They are not (yet) leaping onto the Democratic Party bandwagon. But one undecided voter said, “Maybe it’s not as hard to vote for her.”`\
+https://nytimes.com/2024/08/23/us/democratic-national-convention-kamala-harris-speech-undecided-voters.html
+
 **The Mets, leaning on each other down the stretch, open road trip with win**\
 `A win in San Diego showed why the bottom of the Mets' roster holds importance during this final handful of weeks.`\
 https://nytimes.com/athletic/5718602/2024/08/23/mets-win-padres-iglesias-vientos/

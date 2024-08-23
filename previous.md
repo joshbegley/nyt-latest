@@ -1,3 +1,11 @@
+**Kamala Takes Chicago**\
+`The Democratic presidential nominee`\
+https://nytimes.com/2024/08/23/opinion/kamala-harris-speech.html
+
+**What Voters Outside the Democratic Bubble Thought of Harris’s Speech**\
+`They are not (yet) leaping onto the Democratic Party bandwagon. But one undecided voter said, “Maybe it’s not as hard to vote for her.”`\
+https://nytimes.com/2024/08/23/us/democratic-national-convention-kamala-harris-speech-undecided-voters.html
+
 **The Mets, leaning on each other down the stretch, open road trip with win**\
 `A win in San Diego showed why the bottom of the Mets' roster holds importance during this final handful of weeks.`\
 https://nytimes.com/athletic/5718602/2024/08/23/mets-win-padres-iglesias-vientos/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/23/nyregion/david-copperfield-penthouse-lawsuit.html
 **At the Ballpark, a Reporter Roots for Lahaina**\
 `Last year, a Times reporter covered the wildfires that destroyed a town on the island of Maui. This year, he cheered on a team from Maui as it made its way to the Little League World Series.`\
 https://nytimes.com/2024/08/23/insider/lahaina-little-league.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/08/23/crosswords/spelling-bee-forum.html
-
-**Wordle Review No. 1,162**\
-`Scroll down for hints and conversation about the puzzle for August 24, 2024.`\
-https://nytimes.com/2024/08/23/crosswords/wordle-review-1162.html
 
