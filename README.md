@@ -1,4 +1,4 @@
-**Juventus in Sancho talks: How Man Utd deal could be structured and analysis**\
+**Juventus in Sancho talks: How Man Utd deal could be structured - and analysis**\
 `Juventus are keen on Jadon Sancho but a deal for the forward would not be straightforward`\
 https://nytimes.com/athletic/5718971/2024/08/23/jadon-sancho-juventus-manchester-united/
 
