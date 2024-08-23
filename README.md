@@ -1,3 +1,7 @@
+**Kamara set for injury return in a 'few weeks' - Emery**\
+`Aston Villa manager Unai Emery says Boubacar Kamara is scheduled to return to first-team training in &#8220;a few weeks&#8221;.`\
+https://nytimes.com/athletic/5718989/2024/08/23/aston-villa-kamara-injury/
+
 **If Your Debt Is Ballooning, There Are Steps You Can Take**\
 `More borrowers have been falling behind on their credit card bills and are paying more for basic banking services, like A.T.M. fees.`\
 https://nytimes.com/2024/08/23/your-money/managing-debt-credit-cards-loans.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5718745/2024/08/23/martinez-worlds-best-gundogan-ci
 **Bellingham set for month out with lower leg injury**\
 `Real Madrid midfielder Jude Bellingham faces a month on the sidelines after sustaining a muscle injury in his lower right leg.`\
 https://nytimes.com/athletic/5718838/2024/08/23/real-madrid-jude-bellingham-injury/
-
-**Bills players with the most to gain or lose in the preseason finale**\
-`Injuries have created opportunities for some players to play their way into a roster spot.`\
-https://nytimes.com/athletic/5717677/2024/08/23/buffalo-bills-carolina-panthers-preseason-players/
 
