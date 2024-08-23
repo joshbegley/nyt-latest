@@ -1,3 +1,15 @@
+**Prisoners Stage Deadly Mutiny in Southern Russia**\
+`In the latest in a series of such uprisings, at least one guard died after inmates took control of part of a maximum security jail in the Volgograd region`\
+https://nytimes.com/2024/08/23/world/europe/russia-prison-mutiny.html
+
+**Oilers depth chart projection: Evaluating a revamped roster**\
+`New GM Stan Bowman very well could make more changes, but here's where Edmonton's roster stacks up now.`\
+https://nytimes.com/athletic/5715336/2024/08/23/edmonton-oilers-roster-projection-2024-25/
+
+**Olympics drove interest in women's sports cards, Snoop Dogg pins and more**\
+`The broad appeal of the Olympics helped boost a variety of collectibles `\
+https://nytimes.com/athletic/5714495/2024/08/23/olympics-collectibles-snoop-dogg/
+
 **Harris Faces Challenge of Translating Convention Joy to Fall Momentum**\
 `The newly anointed Democratic presidential nominee revived a demoralized party. But as she leaves Chicago, a bruising, closely fought contest awaits her.`\
 https://nytimes.com/2024/08/23/us/politics/harris-dnc-momentum.html
