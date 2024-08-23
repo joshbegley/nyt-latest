@@ -1,3 +1,7 @@
+**‘That Woman From Michigan’ Twists the Knife on Trump**\
+`Gov. Gretchen Whitmer makes the case for tough women.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/whitmer-michigan-harris
+
 **Final Colts 53-man roster projection: Why Jelani Woods made cut but Sam Ehlinger didn't**\
 `The Colts must trim their roster to 53 players by Tuesday evening. They have a few tough decisions to make. `\
 https://nytimes.com/athletic/5714496/2024/08/22/indianapolis-colts-roster-projection-final-53/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5718198/2024/08/22/mariners-name-dan-wilson-manager
 **On National TV, an Innocent Man Denounces a Felon**\
 `Donald Trump has refused to admit he was wrong about the Central Park Five.`\
 https://nytimes.com/live/2024/08/20/opinion/thepoint/donald-trump-central-park-five
-
-**With Ella Emhoff, the D.N.C. Keeps Its Family Theme Going**\
-`The stepdaughter of Kamala Harris took the stage alongside Ms. Harris’s niece and goddaughter.`\
-https://nytimes.com/2024/08/22/style/ella-emhoff-dnc-harris.html
 
