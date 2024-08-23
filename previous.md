@@ -1,6 +1,14 @@
+**“Donald Trump was asked what he would do about Social Security and Medicare, and he said, and I quote, ‘There is a lot you can do in terms of cutting.’”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/22/us/dnc-harris-fact-check/donald-trump-was-asked-what-he-would-do-about-social-security-and-medicare-and-he-said-and-i-quote-there-is-a-lot-you-can-do-in-
+
+**“A serial liar, cheater, thief who looked soldiers in the eye, then turned around and called fallen heroes suckers and losers.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/22/us/dnc-harris-fact-check/a-serial-liar-cheater-thief-who-looked-soldiers-in-the-eye-then-turned-around-and-called-fallen-heroes-suckers-and-losers
+
 **“He intends to enact what is, in effect, a national sales tax — call it a Trump tax — that would raise prices on middle-class families by almost $4,000 a year.”**\
 `By Linda Qiu`\
-https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/he-intends-to-enact-what-is-in-effect-a-national-sales-tax-call-it-a-trump-tax-that-would-raise-prices-on-middle-class-families-
+https://nytimes.com/live/2024/08/22/us/dnc-harris-fact-check/he-intends-to-enact-what-is-in-effect-a-national-sales-tax-call-it-a-trump-tax-that-would-raise-prices-on-middle-class-families-
 
 **Harris Promises to Chart ‘New Way Forward’ as She Accepts Nomination**\
 `Vice President Kamala Harris delivered a searing rebuke of former President Donald J. Trump, casting him as a threat to democracy, global stability and women’s rights.`\
@@ -8,7 +16,7 @@ https://nytimes.com/2024/08/22/us/politics/kamala-harris-dnc-speech.html
 
 **“He doesn’t actually fight for the middle class. Instead, he fights for himself and his billionaire friends. And he will give them another round of tax breaks that will add up to $5 trillion to the national debt.”**\
 `By Andrew Duehren`\
-https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/he-doesnt-actually-fight-for-the-middle-class-instead-he-fights-for-himself-and-his-billionaire-friends-and-he-will-give-them-an
+https://nytimes.com/live/2024/08/22/us/dnc-harris-fact-check/he-doesnt-actually-fight-for-the-middle-class-instead-he-fights-for-himself-and-his-billionaire-friends-and-he-will-give-them-an
 
 **Bears' Douglas Coleman III stretchered off field in preseason game**\
 `Coleman was motionless for several minutes after trying to make a routine tackle while medical staff from both teams attended to him.`\
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5714496/2024/08/22/indianapolis-colts-roster-projec
 **Kennedy Withdraws From Presidential Contest in Arizona**\
 `Robert F. Kennedy Jr., an independent candidate, is set to give an address on Friday about the future of his campaign.`\
 https://nytimes.com/2024/08/22/us/elections/rfk-jr-arizona-withdraw.html
-
-**In Detroit, Democrats Can Hardly Believe What They’re Watching**\
-`Kamala Harris has left them giddy but dazed.`\
-https://nytimes.com/live/2024/08/20/opinion/thepoint/detroit-democrats-harris
-
-**Angels' Perry Minasian gets 2-year extension, now it's time for him to shop smarter: Blum**\
-`Analysis: Minasian has yet to prove that he can be a winning GM for what is ostensibly a small-market team.`\
-https://nytimes.com/athletic/5718201/2024/08/22/angels-perry-minasian-extension-analysis/
 

@@ -1,3 +1,19 @@
+**“Donald Trump was asked what he would do about Social Security and Medicare, and he said, and I quote, ‘There is a lot you can do in terms of cutting.’”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/22/us/dnc-harris-fact-check/donald-trump-was-asked-what-he-would-do-about-social-security-and-medicare-and-he-said-and-i-quote-there-is-a-lot-you-can-do-in-
+
+**“A serial liar, cheater, thief who looked soldiers in the eye, then turned around and called fallen heroes suckers and losers.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/22/us/dnc-harris-fact-check/a-serial-liar-cheater-thief-who-looked-soldiers-in-the-eye-then-turned-around-and-called-fallen-heroes-suckers-and-losers
+
+**“He intends to enact what is, in effect, a national sales tax — call it a Trump tax — that would raise prices on middle-class families by almost $4,000 a year.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/22/us/dnc-harris-fact-check/he-intends-to-enact-what-is-in-effect-a-national-sales-tax-call-it-a-trump-tax-that-would-raise-prices-on-middle-class-families-
+
+**“He doesn’t actually fight for the middle class. Instead, he fights for himself and his billionaire friends. And he will give them another round of tax breaks that will add up to $5 trillion to the national debt.”**\
+`By Andrew Duehren`\
+https://nytimes.com/live/2024/08/22/us/dnc-harris-fact-check/he-doesnt-actually-fight-for-the-middle-class-instead-he-fights-for-himself-and-his-billionaire-friends-and-he-will-give-them-an
+
 **“He intends to enact what is, in effect, a national sales tax — call it a Trump tax — that would raise prices on middle-class families by almost $4,000 a year.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/he-intends-to-enact-what-is-in-effect-a-national-sales-tax-call-it-a-trump-tax-that-would-raise-prices-on-middle-class-families-
