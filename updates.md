@@ -1,3 +1,7 @@
+**At Bowman Gray Stadium, Ben Kennedy gets tour of NASCAR history, and his own**\
+`NASCAR's master of the schedule paid a visit to his latest innovation — a trip to NASCAR's past, full of his own family's history.`\
+https://nytimes.com/athletic/5718160/2024/08/23/nascar-bowman-gray-stadium-ben-kennedy/
+
 **No issue with Rodrygo over 'fake' WhatsApp message - Ancelotti**\
 `Real Madrid head Carlo Ancelotti says Rodrygo has assured him a WhatsApp message complaining about his role in the team was &#8220;fake&#8221;.`\
 https://nytimes.com/athletic/5718803/2024/08/23/rodrygo-whatsapp-message-ancelotti/
