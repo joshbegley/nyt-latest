@@ -1,3 +1,7 @@
+**The Biggest Speech of Kamala Harris’s Career**\
+`Presenting herself as a pragmatic leader who could unite all Americans behind a “new way forward,” Vice President Kamala Harris accepted the Democratic Party’s nomination for president. Zolan Kanno-Youngs, a White House correspondent for The New York Times, gives his takeaways.`\
+https://nytimes.com/video/us/elections/100000009653802/kamala-harris-dnc-acceptance-speech-analysis.html
+
 **Modi Arrives in Kyiv as Ukraine Pushes Diplomacy**\
 `Ukrainian officials were portraying the visit by Prime Minister Narendra Modi of India as a welcome show of support for their country during the war with Russia.`\
 https://nytimes.com/2024/08/23/world/europe/ukraine-modi-india.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5713813/2024/08/23/ilkay-gundogan-manchester-city-t
 **Cubs takeaways: Steele backing up breakout 2023, Paredes' struggles and Neely rebounds**\
 `Steele wants to be consistent on the mound, Paredes is not off to a good start in a Cubs uniform and Neely debuts.`\
 https://nytimes.com/athletic/5717913/2024/08/23/cubs-justin-steele-success-isaac-paredes-struggles/
-
-**Hollinger: The most under-scrutinized moves from the NBA offseason**\
-`I wouldn't call these transactions "overrated," but several factors surrounding them present more than a few questions.`\
-https://nytimes.com/athletic/5716007/2024/08/23/nba-overrated-trades-signings-immanuel-quickley-max-christie/
 
