@@ -1,3 +1,15 @@
+**Chelsea could sign striker before transfer deadline – Maresca**\
+`Chelsea head coach Enzo Maresca has revealed he would like to sign another striker before the transfer window shuts next week.`\
+https://nytimes.com/athletic/5718763/2024/08/23/chelsea-transfers-striker-enzo-maresca/
+
+**The Athletic FC: Analysing 'world's best' Martinez, inside Gundogan's City return**\
+`Today in TAFC: Mark Bosnich analyses Emi Martinez, Serie A targets a U.S TV audience - and Arsenal are on the cusp of capturing Merino`\
+https://nytimes.com/athletic/5718745/2024/08/23/martinez-worlds-best-gundogan-city-transfer-serie-a-tv-audience/
+
+**Bellingham set for month out with lower leg injury**\
+`Real Madrid midfielder Jude Bellingham faces a month on the sidelines after sustaining a muscle injury in his lower right leg.`\
+https://nytimes.com/athletic/5718838/2024/08/23/real-madrid-jude-bellingham-injury/
+
 **Bills players with the most to gain or lose in the preseason finale**\
 `Injuries have created opportunities for some players to play their way into a roster spot.`\
 https://nytimes.com/athletic/5717677/2024/08/23/buffalo-bills-carolina-panthers-preseason-players/

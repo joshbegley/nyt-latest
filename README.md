@@ -1,11 +1,3 @@
-**Chelsea could sign striker before transfer deadline – Maresca**\
-`Chelsea head coach Enzo Maresca has revealed he would like to sign another striker before the transfer window shuts next week.`\
-https://nytimes.com/athletic/5718763/2024/08/23/chelsea-transfers-striker-enzo-maresca/
-
-**The Athletic FC: Analysing 'world's best' Martinez, inside Gundogan's City return**\
-`Today in TAFC: Mark Bosnich analyses Emi Martinez, Serie A targets a U.S TV audience - and Arsenal are on the cusp of capturing Merino`\
-https://nytimes.com/athletic/5718745/2024/08/23/martinez-worlds-best-gundogan-city-transfer-serie-a-tv-audience/
-
 **Bellingham set for month out with lower leg injury**\
 `Real Madrid midfielder Jude Bellingham faces a month on the sidelines after sustaining a muscle injury in his lower right leg.`\
 https://nytimes.com/athletic/5718838/2024/08/23/real-madrid-jude-bellingham-injury/
@@ -33,4 +25,12 @@ https://nytimes.com/athletic/5718558/2024/08/23/indianapolis-colts-anthony-richa
 **Final Body Is Recovered From Yacht That Sank Off Sicily**\
 `Hannah Lynch, the 18-year-old daughter of the British tech entrepreneur Mike Lynch, was part of a group that had been celebrating her father’s victory in a high-profile fraud case.`\
 https://nytimes.com/2024/08/23/world/europe/italy-sicily-yacht-lynch.html
+
+**The Defining Moments of the D.N.C. Finale**\
+`In accepting the nomination, Kamala Harris told her story and made a pitch for the coalition of voters she’ll need.`\
+https://nytimes.com/2024/08/23/podcasts/the-defining-moments-of-the-dnc-finale.html
+
+**The Athletic’s Friday football quiz question #18**\
+`The Athletic's weekly conundrum from inside the trivia vaults`\
+https://nytimes.com/athletic/5710436/2024/08/23/the-athletics-friday-football-quiz-question-18/
 
