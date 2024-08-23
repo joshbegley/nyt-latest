@@ -14,6 +14,10 @@ https://nytimes.com/athletic/5719696/2024/08/23/college-football-spring-transfer
 `Chelsea midfielder Tino Anjorin is in talks with Empoli over joining the Serie A club in a permanent transfer.`\
 https://nytimes.com/athletic/5719809/2024/08/23/tino-anjorin-empoli-chelsea-transfers/
 
+**Jake Ciely’s 2024 fantasy football projections vs. Average Draft Position**\
+`Jake Ciely explains his rationale for the 15 biggest differences from his projections compared to 2024 fantasy football ADP.`\
+https://nytimes.com/athletic/5719732/2024/08/23/jake-cielys-2024-fantasy-football-projections-vs-average-draft-position-15-biggest-differences/
+
 **Robert F. Kennedy Jr. Suspends His Independent Bid for President and Endorses Trump**\
 `Mr. Kennedy said he will remove his name from the ballot in battleground states, so as not to be a spoiler.`\
 https://nytimes.com/2024/08/23/us/elections/rfk-jr-suspends-campaign-presidential-race.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5702447/2024/08/23/ferdi-kadioglu-brighton-transfer
 **El Ghazi says he has received €1.5m Mainz payout after unfair dismissal**\
 `Anwar El Ghazi says he has received a payout from Mainz after a German court found he was unfairly dismissed by the club over a social media post about the Israel-Gaza war.`\
 https://nytimes.com/athletic/5719487/2024/08/23/anwar-el-ghazi-gaza-israel-mainz/
-
-**Top Nationals prospect Dylan Crews to be promoted to big leagues: Source**\
-`Crews, the No. 2 pick in the 2023 MLB Draft, was recently ranked the No. 7 prospect in MLB by Keith Law.`\
-https://nytimes.com/athletic/5719627/2024/08/23/dylan-crews-nationals-promoted-major-leagues/
 
