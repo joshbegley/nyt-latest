@@ -1,3 +1,7 @@
+**“He invited Russia to do — and these are his words, not mine — ‘whatever the hell they want.’”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/he-invited-russia-to-do-and-these-are-his-words-not-mine-whatever-the-hell-they-want
+
 **Warm-Up Pieces**\
 `Taylor Johnson and Rafael Musa are veteran constructors who are collaborating on a  New York Times Crossword for the first time.`\
 https://nytimes.com/2024/08/22/crosswords/daily-puzzle-2024-08-23.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/as-some-at-risk-
 **If This T-Shirt Offends You, It’s Working**\
 `You can sense the tenor of each convention at the merch stands.`\
 https://nytimes.com/live/2024/08/20/opinion/thepoint/democratic-convention-tshirts
-
-**Kirk Ferentz got caught tampering, but that doesn't mean Iowa should slow down**\
-`On the transfer portal superhighway, everyone speeds. Iowa got caught and will pay the price. But it doesn't mean the Hawkeyes should stop.`\
-https://nytimes.com/athletic/5718003/2024/08/22/iowa-football-ncaa-violation-kirk-ferentz-cade-mcnamara/
 
