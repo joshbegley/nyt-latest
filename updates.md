@@ -1,3 +1,11 @@
+**Fantasy baseball waiver wire: Cade Povich, Jorge Polanco and more adds; plus, two-start pitchers and stashes**\
+`John Laghezza crunches the advanced analytics to find the best of this week's waiver wire, leading him to Seattle veteran 2B Jorge Polanco.`\
+https://nytimes.com/athletic/5716667/2024/08/23/fantasy-baseball-waiver-wire-cade-povich-jorge-polanco-and-more-adds-plus-two-start-pitchers-and-stashes/
+
+**Kamala Harris’s Stepdaughter Ella Emhoff Speaks at the D.N.C.**\
+`Continuing the D.N.C.’s family theme, Vice President Kamala Harris’s stepdaughter Ella Emhoff took the stage on Thursday night.`\
+https://nytimes.com/video/us/politics/100000009654069/kamala-harris-stepdaughter-ella.html
+
 **Friday Briefing**\
 `The final night of the Democratic National Convention.`\
 https://nytimes.com/2024/08/23/briefing/kamala-harris-ukraine-yacht.html
