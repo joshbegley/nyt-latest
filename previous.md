@@ -1,5 +1,5 @@
 **With the Mariners at a crisis point, Jerry Dipoto promotes Dan Wilson to manager**\
-`GM Jerry Dipoto hopes a turnaround is coming in the weeks ahead. But after Thursday’s news, a cratering summer reached a new low. `\
+`GM Dipoto hopes a turnaround is coming in the weeks ahead. But after Thursday’s news, a cratering summer reached a new low. `\
 https://nytimes.com/athletic/5718198/2024/08/22/mariners-name-dan-wilson-manager-analysis/
 
 **On National TV, an Innocent Man Denounces a Felon**\
@@ -14,7 +14,7 @@ https://nytimes.com/2024/08/22/style/ella-emhoff-dnc-harris.html
 `The star of the hit show “Scandal” is emcee for the final night’s program at the Democratic National Convention.`\
 https://nytimes.com/2024/08/22/us/politics/kerry-washington-dnc.html
 
-**Creed Humphrey, Chiefs agree to massive 4-year, $72 million extension**\
+**Chiefs make Creed Humphrey NFL's top-paid center: Source**\
 `Humphrey, 25, was a Pro Bowl selection the last two seasons, when the Chiefs took home back-to-back Super Bowl titles.`\
 https://nytimes.com/athletic/5718180/2024/08/22/creed-humphrey-contract-extension-kansas-city-chiefs/
 

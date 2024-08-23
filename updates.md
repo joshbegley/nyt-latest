@@ -1,4 +1,12 @@
 **With the Mariners at a crisis point, Jerry Dipoto promotes Dan Wilson to manager**\
+`GM Dipoto hopes a turnaround is coming in the weeks ahead. But after Thursday’s news, a cratering summer reached a new low. `\
+https://nytimes.com/athletic/5718198/2024/08/22/mariners-name-dan-wilson-manager-analysis/
+
+**Chiefs make Creed Humphrey NFL's top-paid center: Source**\
+`Humphrey, 25, was a Pro Bowl selection the last two seasons, when the Chiefs took home back-to-back Super Bowl titles.`\
+https://nytimes.com/athletic/5718180/2024/08/22/creed-humphrey-contract-extension-kansas-city-chiefs/
+
+**With the Mariners at a crisis point, Jerry Dipoto promotes Dan Wilson to manager**\
 `GM Jerry Dipoto hopes a turnaround is coming in the weeks ahead. But after Thursday’s news, a cratering summer reached a new low. `\
 https://nytimes.com/athletic/5718198/2024/08/22/mariners-name-dan-wilson-manager-analysis/
 
