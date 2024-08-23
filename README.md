@@ -1,3 +1,15 @@
+**Prisoners Stage Deadly Mutiny in Southern Russia**\
+`In the latest in a series of such uprisings, at least one guard died after inmates took control of part of a maximum security jail in the Volgograd region`\
+https://nytimes.com/2024/08/23/world/europe/russia-prison-mutiny.html
+
+**Oilers depth chart projection: Evaluating a revamped roster**\
+`New GM Stan Bowman very well could make more changes, but here's where Edmonton's roster stacks up now.`\
+https://nytimes.com/athletic/5715336/2024/08/23/edmonton-oilers-roster-projection-2024-25/
+
+**Olympics drove interest in women's sports cards, Snoop Dogg pins and more**\
+`The broad appeal of the Olympics helped boost a variety of collectibles `\
+https://nytimes.com/athletic/5714495/2024/08/23/olympics-collectibles-snoop-dogg/
+
 **Harris Faces Challenge of Translating Convention Joy to Fall Momentum**\
 `The newly anointed Democratic presidential nominee revived a demoralized party. But as she leaves Chicago, a bruising, closely fought contest awaits her.`\
 https://nytimes.com/2024/08/23/us/politics/harris-dnc-momentum.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5718989/2024/08/23/aston-villa-kamara-injury/
 **If Your Debt Is Ballooning, There Are Steps You Can Take**\
 `More borrowers have been falling behind on their credit card bills and are paying more for basic banking services, like A.T.M. fees.`\
 https://nytimes.com/2024/08/23/your-money/managing-debt-credit-cards-loans.html
-
-**Ukraine Steps Up Strikes Into Russia as Moscow Pushes Ahead in the East**\
-`Ukraine struck a port across from Crimea and damaged a cargo ferry. But Kyiv’s forces continued to struggle in eastern areas under a relentless Russian assault.`\
-https://nytimes.com/2024/08/23/world/europe/ukraine-russia-war-crimea.html
-
-**At Bowman Gray Stadium, Ben Kennedy gets tour of NASCAR history, and his own**\
-`NASCAR's master of the schedule paid a visit to his latest innovation — a trip to NASCAR's past, full of his own family's history.`\
-https://nytimes.com/athletic/5718160/2024/08/23/nascar-bowman-gray-stadium-ben-kennedy/
-
-**No issue with Rodrygo over 'fake' WhatsApp message - Ancelotti**\
-`Real Madrid head Carlo Ancelotti says Rodrygo has assured him a WhatsApp message complaining about his role in the team was &#8220;fake&#8221;.`\
-https://nytimes.com/athletic/5718803/2024/08/23/rodrygo-whatsapp-message-ancelotti/
 
