@@ -1,3 +1,7 @@
+**Bills players with the most to gain or lose in the preseason finale**\
+`Injuries have created opportunities for some players to play their way into a roster spot.`\
+https://nytimes.com/athletic/5717677/2024/08/23/buffalo-bills-carolina-panthers-preseason-players/
+
 **Ranking the top 10 NL rookies: Who will prevail in Rookie of the Year race?**\
 `This is how I see the NL Rookie of the Year race with about five weeks remaining in the season. `\
 https://nytimes.com/athletic/5717742/2024/08/23/national-league-rookie-of-the-year-race/
