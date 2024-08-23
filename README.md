@@ -1,3 +1,11 @@
+**What we're hearing about Thatcher Demko and the end of the Canucks' offseason**\
+`Are the Canucks looking at insurance options in goal? And what's going on with the goalie coaching?`\
+https://nytimes.com/athletic/5719525/2024/08/23/canucks-offseason-thatcher-demko/
+
+**16 Republican-Led States Challenge Program to Aid Undocumented Spouses**\
+`The new Biden administration initiative, which could put many undocumented spouses of Americans on a path to U.S. citizenship, began taking applications this week.`\
+https://nytimes.com/2024/08/23/us/republican-states-undocumented-immigrants.html
+
 **Big 12 renewing discussions about adding UConn**\
 `Big 12 commissioner Brett Yormark has repeatedly expressed his desire to position the Big 12 as the nation’s premier basketball conference.`\
 https://nytimes.com/athletic/5719604/2024/08/23/big-12-expansion-uconn-pursuit/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5719696/2024/08/23/college-football-spring-transfer
 **Chelsea's Tino Anjorin in Empoli talks over permanent transfer**\
 `Chelsea midfielder Tino Anjorin is in talks with Empoli over joining the Serie A club in a permanent transfer.`\
 https://nytimes.com/athletic/5719809/2024/08/23/tino-anjorin-empoli-chelsea-transfers/
-
-**Jake Ciely’s 2024 fantasy football projections vs. Average Draft Position**\
-`Jake Ciely explains his rationale for the 15 biggest differences from his projections compared to 2024 fantasy football ADP.`\
-https://nytimes.com/athletic/5719732/2024/08/23/jake-cielys-2024-fantasy-football-projections-vs-average-draft-position-15-biggest-differences/
-
-**Robert F. Kennedy Jr. Endorses Trump and Suspends His Independent Bid for President**\
-`Mr. Kennedy said he will remove his name from the ballot in battleground states, so as not to be a spoiler.`\
-https://nytimes.com/2024/08/23/us/elections/rfk-jr-suspends-campaign-presidential-race.html
 
