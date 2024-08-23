@@ -1,3 +1,11 @@
+**Democrats Taste Victory in November. But Are They Too Confident?**\
+`At the Democratic National Convention, party leaders warned against happy talk and said former President Donald J. Trump remains a formidable opponent.`\
+https://nytimes.com/2024/08/23/us/politics/democrats-harris-convention.html
+
+**Celebrities and Notable Faces in the Crowd at the Democratic Convention**\
+`See some of the prominent people spotted at Chicago’s United Center this week as Democrats gathered to nominate Vice President Kamala Harris for president.`\
+https://nytimes.com/interactive/2024/08/23/us/politics/dnc-crowd-guests-celebrities.html
+
 **Word of the Day: smattering**\
 `This word has appeared in 136 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/23/learning/word-of-the-day-smattering.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/23/us/politics/kamala-harris-speech-transcript.html
 **Democrats Show That Republicans Aren’t the Only Ones Who Can Wrap Themselves in the Flag**\
 `From references to the Olympics to odes to freedom, Democrats used their nominating convention to stake their claim on patriotism.`\
 https://nytimes.com/2024/08/23/us/politics/democrats-patriotism-convention-harris.html
-
-**Best, Worst and Weirdest Moments of the Democratic Convention**\
-`The party’s four-day gathering featured memorable zingers, self-effacing humor and more than a few lines that didn’t land.`\
-https://nytimes.com/2024/08/23/us/politics/best-worst-moments-dnc.html
-
-**‘Central Park 5’ Describe Trump’s Character**\
-`The men – who now prefer to be called the Exonerated Five — recalled how Donald Trump spent $85,000 on a full-page ad in The New York Times calling for their execution.`\
-https://nytimes.com/video/us/elections/100000009654120/central-park-five-trump-dnc-exonerated.html
 

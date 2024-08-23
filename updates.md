@@ -1,3 +1,11 @@
+**Democrats Taste Victory in November. But Are They Too Confident?**\
+`At the Democratic National Convention, party leaders warned against happy talk and said former President Donald J. Trump remains a formidable opponent.`\
+https://nytimes.com/2024/08/23/us/politics/democrats-harris-convention.html
+
+**Celebrities and Notable Faces in the Crowd at the Democratic Convention**\
+`See some of the prominent people spotted at Chicago’s United Center this week as Democrats gathered to nominate Vice President Kamala Harris for president.`\
+https://nytimes.com/interactive/2024/08/23/us/politics/dnc-crowd-guests-celebrities.html
+
 **Word of the Day: smattering**\
 `This word has appeared in 136 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/23/learning/word-of-the-day-smattering.html
