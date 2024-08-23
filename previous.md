@@ -1,3 +1,7 @@
+**The 100 transfers you need to know for the 2024 college football season**\
+`Coaches’ on-the-ground observations in August played a vital role in compiling our rankings of the transfers set to make the biggest splash.`\
+https://nytimes.com/athletic/5714910/2024/08/23/college-footbal-transfer-portal-rankings/
+
 **Sydney Metro Expands, Opening to Celebrity-Level Fanfare**\
 `In a mostly car-dependent country where public transportation in major cities can be best described as “decent,” the expansion felt momentous.`\
 https://nytimes.com/2024/08/23/world/australia/sydney-metro.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5718602/2024/08/23/mets-win-padres-iglesias-vientos
 **Jon Stewart Goes Live From Chicago on the Last Night of the D.N.C.**\
 `After Kamala Harris accepted the nomination, Stewart mused: “How funny would it have been if at the end she was like, ‘But seriously, though: not for me.’”`\
 https://nytimes.com/2024/08/23/arts/television/jon-stewart-democratic-national-convention.html
-
-**Alpine promotes Doohan, will become second rookie on 2025 grid**\
-`Stay informed on all the biggest stories in Formula 1.`\
-https://nytimes.com/athletic/5718267/2024/08/23/jack-doohan-alpine-2025/
 
