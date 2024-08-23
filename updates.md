@@ -1,3 +1,7 @@
+**“He invited Russia to do — and these are his words, not mine — ‘whatever the hell they want.’”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/he-invited-russia-to-do-and-these-are-his-words-not-mine-whatever-the-hell-they-want
+
 **Warm-Up Pieces**\
 `Taylor Johnson and Rafael Musa are veteran constructors who are collaborating on a  New York Times Crossword for the first time.`\
 https://nytimes.com/2024/08/22/crosswords/daily-puzzle-2024-08-23.html
