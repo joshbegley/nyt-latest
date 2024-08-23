@@ -1,3 +1,15 @@
+**Peace Talks at Swiss Resort Beckoned. Sudan’s Divided Generals Wouldn’t Go.**\
+`American-led mediators secured famine relief for needy areas. But with Sudan’s military failing to attend, a cease-fire was far out of reach.`\
+https://nytimes.com/2024/08/23/world/africa/sudan-military-cease-fire-talks.html
+
+**Helen Fisher, Who Researched the Brain’s Love Circuitry, Dies at 79**\
+`A biological anthropologist, she worked with colleagues to confirm for the first time that love is hard-wired in the brain.`\
+https://nytimes.com/2024/08/23/science/helen-fisher-dead.html
+
+**Luckily for Kennedy, Trump Has Low Hiring Standards**\
+`All Trump requires of Kennedy is a willingness to bow down to him.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/kennedy-withdraw-trump
+
 **What we're hearing about Thatcher Demko and the end of the Canucks' offseason**\
 `Are the Canucks looking at insurance options in goal? And what's going on with the goalie coaching?`\
 https://nytimes.com/athletic/5719525/2024/08/23/canucks-offseason-thatcher-demko/
@@ -21,16 +33,4 @@ https://nytimes.com/2024/08/23/magazine/friend-affair-husband-ethics.html
 **Kamala Harris, Hoping to Build Momentum, Plans Battleground State Tour Next Week**\
 `After accepting the nomination, Ms. Harris was flying back to Washington on Friday for a weekend respite before returning to the campaign trail next week.`\
 https://nytimes.com/2024/08/23/us/politics/harris-battleground-state-tour.html
-
-**U.S. Tightens Technology Controls to Target Russian War Machine**\
-`The Biden administration announced new penalties on shell companies and suppliers that were feeding Russia’s war against Ukraine.`\
-https://nytimes.com/2024/08/23/us/politics/us-russia-technology-penalties.html
-
-**CFB's elimination of spring transfer portal window moves to D-I Council**\
-`The spring portal window has been especially frustrating for coaches, who finish spring practice and still don’t know their complete team.`\
-https://nytimes.com/athletic/5719696/2024/08/23/college-football-spring-transfer-window-removed/
-
-**Chelsea's Tino Anjorin in Empoli talks over permanent transfer**\
-`Chelsea midfielder Tino Anjorin is in talks with Empoli over joining the Serie A club in a permanent transfer.`\
-https://nytimes.com/athletic/5719809/2024/08/23/tino-anjorin-empoli-chelsea-transfers/
 

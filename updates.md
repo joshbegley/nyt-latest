@@ -1,3 +1,15 @@
+**Peace Talks at Swiss Resort Beckoned. Sudan’s Divided Generals Wouldn’t Go.**\
+`American-led mediators secured famine relief for needy areas. But with Sudan’s military failing to attend, a cease-fire was far out of reach.`\
+https://nytimes.com/2024/08/23/world/africa/sudan-military-cease-fire-talks.html
+
+**Helen Fisher, Who Researched the Brain’s Love Circuitry, Dies at 79**\
+`A biological anthropologist, she worked with colleagues to confirm for the first time that love is hard-wired in the brain.`\
+https://nytimes.com/2024/08/23/science/helen-fisher-dead.html
+
+**Luckily for Kennedy, Trump Has Low Hiring Standards**\
+`All Trump requires of Kennedy is a willingness to bow down to him.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/kennedy-withdraw-trump
+
 **16 Republican-Led States Challenge Program to Aid Undocumented Spouses**\
 `The new Biden administration initiative, which could put many undocumented spouses of Americans on a path to U.S. citizenship, began taking applications this week.`\
 https://nytimes.com/2024/08/23/us/republican-states-undocumented-immigrants.html
