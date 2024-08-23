@@ -1,3 +1,7 @@
+**Word of the Day: smattering**\
+`This word has appeared in 136 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/23/learning/word-of-the-day-smattering.html
+
 **On Gaza, Democrats’ Most Divisive Issue, Harris Embraces Biden’s Balancing Act**\
 `With her party torn between pro-Israel Democrats and younger progressives, she’s looking for a way to quiet one major issue until after the election.`\
 https://nytimes.com/2024/08/23/us/politics/kamala-harris-gaza-israel.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/23/us/politics/best-worst-moments-dnc.html
 **‘Central Park 5’ Describe Trump’s Character**\
 `The men – who now prefer to be called the Exonerated Five — recalled how Donald Trump spent $85,000 on a full-page ad in The New York Times calling for their execution.`\
 https://nytimes.com/video/us/elections/100000009654120/central-park-five-trump-dnc-exonerated.html
-
-**U.S. Plans to Accuse Software Maker of Enabling Collusion on Rents**\
-`The Justice Department is set to file an antitrust suit against the real estate company RealPage alleging illegal price-fixing facilitated by algorithms.`\
-https://nytimes.com/2024/08/23/business/economy/realpage-doj-antitrust-suit-rent.html
 

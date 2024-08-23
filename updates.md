@@ -1,3 +1,7 @@
+**On Gaza, Democrats’ Most Divisive Issue, Harris Embraces Biden’s Balancing Act**\
+`With her party torn between pro-Israel Democrats and younger progressives, she’s looking for a way to quiet one major issue until after the election.`\
+https://nytimes.com/2024/08/23/us/politics/kamala-harris-gaza-israel.html
+
 **Dialing In to Fox News, Trump Offers a Rambling Rebuttal to Harris’s Speech**\
 `The network ended the live interview after 10 minutes. Beeps could be heard as the former president seemed to accidentally press the buttons on the keypad of his phone.`\
 https://nytimes.com/2024/08/23/us/politics/trump-reaction-harris-dnc.html
