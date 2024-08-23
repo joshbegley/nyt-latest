@@ -1,3 +1,7 @@
+**Hamraoui joins Saudi side Al-Shabab**\
+`Former Paris Saint-Germain midfielder Kheira Hamraoui has signed with Saudi Arabia women&#8217;s Premier League side Al-Shabab.`\
+https://nytimes.com/athletic/5717690/2024/08/23/kheira-hamraoui-saudi-al-shabab/
+
 **Nepal Asks China to Wipe Away a Loan It Can’t Afford to Pay Back**\
 `A new government in Nepal formally asked for relief from a $216 million debt it incurred for construction of an airport in Pokhara that has been beset by problems.`\
 https://nytimes.com/2024/08/23/business/china-nepal-pokhara-airport.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5716208/2024/08/23/ilkay-gundogan-barcelona-man-cit
 **Who'll make the Vikings' 53-man roster, who won't and who needs a big finish?**\
 `With the Vikings' final preseason game on tap Saturday, we examine the players who are looking good, not so good and everywhere in between.`\
 https://nytimes.com/athletic/5717074/2024/08/23/vikings-53-man-roster-preview/
-
-**Ravens WR Sean Ryan hasn't been alone on his journey to the NFL**\
-`The 2023 undrafted free agent's adopted parents provided love, support and resources that helped change the young man's outlook.`\
-https://nytimes.com/athletic/5716086/2024/08/23/baltimore-ravens-receiver-sean-ryan/
 

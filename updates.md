@@ -1,3 +1,7 @@
+**Hamraoui joins Saudi side Al-Shabab**\
+`Former Paris Saint-Germain midfielder Kheira Hamraoui has signed with Saudi Arabia women&#8217;s Premier League side Al-Shabab.`\
+https://nytimes.com/athletic/5717690/2024/08/23/kheira-hamraoui-saudi-al-shabab/
+
 **Nepal Asks China to Wipe Away a Loan It Can’t Afford to Pay Back**\
 `A new government in Nepal formally asked for relief from a $216 million debt it incurred for construction of an airport in Pokhara that has been beset by problems.`\
 https://nytimes.com/2024/08/23/business/china-nepal-pokhara-airport.html
