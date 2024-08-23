@@ -1,3 +1,11 @@
+**The Windup: Mariners' collapse hits crisis mode**\
+`Welcome to The Windup, The Athletic's daily MLB newsletter. `\
+https://nytimes.com/athletic/5719171/2024/08/23/mariners-scott-servais-dodgers-injuries-mlb-the-windup/
+
+**Kyler Murray, Rachaad White added to Gary Davenport's list of 'My Guys' for fantasy football 2024**\
+`Gary Davenport updates his "My Guys" list for fantasy football 2024, welcoming Kyler Murray and Rachaad White into the fold. `\
+https://nytimes.com/athletic/5719173/2024/08/23/my-guys-gary-davenport-fantasy-football-2024/
+
 **Cole, Lescott join Carsley's England coaching staff**\
 `Ashley Cole and Joleon Lescott have joined the backroom staff of England&#8217;s interim manager Lee Carsley.`\
 https://nytimes.com/athletic/5719191/2024/08/23/lee-carsley-england-staff-cole-lescott/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5719131/2024/08/23/weston-mckennie-juventus-contrac
 **I Just Love Button Mushrooms**\
 `Whether browned in butter and stuffed with cheese or, as in this mushroom and eggplant yassa, simmered with caramelized onion and brightened with lime.`\
 https://nytimes.com/2024/08/23/dining/i-just-love-button-mushrooms.html
-
-**The Hidden Splendors of Cleveland’s Museums**\
-`It’s not too late to enjoy some lake weather in Cleveland, where the ice cream is fabulous and there’s never any shortage of art to see — let our critic tell you where.`\
-https://nytimes.com/2024/08/23/arts/design/cleveland-musuems-roundup.html
-
-**Five International Movies to Stream Now**\
-`In this month’s picks, a yoga teacher in Argentina adjusts to life after divorce, a young woman in London struggles to move past her painful past and more.`\
-https://nytimes.com/2024/08/23/movies/international-movies-streaming.html
 
