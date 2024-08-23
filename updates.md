@@ -1,3 +1,11 @@
+**Along U.S. Route 144, Scenes of the Demoralizing American Grind**\
+`In “Orange Blossom Trail,” the photographer Joshua Lutz and the author George Saunders pay tribute to the hard living across one stretch of American highway.`\
+https://nytimes.com/2024/08/23/books/review/orange-blossom-trail-joshua-lutz-george-saunders.html
+
+**Juventus in Sancho talks: How deal could be structured - and analysis**\
+`Juventus are keen on Jadon Sancho but a deal for the forward would not be straightforward`\
+https://nytimes.com/athletic/5718971/2024/08/23/jadon-sancho-juventus-manchester-united/
+
 **Ilkay Gundogan to Manchester City: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500 series, we look at Ilkay Gundogan's move to Manchester City`\
 https://nytimes.com/athletic/5709931/2024/08/23/ilkay-gundogan-manchester-city-ratings/
