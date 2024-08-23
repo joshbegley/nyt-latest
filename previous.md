@@ -1,3 +1,11 @@
+**Scott Bloomquist, Champion Dirt-Track Driver, Dies at 60**\
+`Styling himself as a rebel, he won more than 600 races and nine championships in a 40-year career.`\
+https://nytimes.com/2024/08/23/sports/autoracing/scott-bloomquist-dead.html
+
+**Blue Jays mailbag part 2: Identifying the major roster holes heading into the offseason**\
+`Can the Blue Jays build a World Series contender in just three moves? Is there a way for the club to re-gain fans' trust in management?`\
+https://nytimes.com/athletic/5719771/2024/08/23/blue-jays-mailbag-roster-holes/
+
 **Knife Attack Kills at Least 3 People at Festival in Western Germany**\
 `The attack took place in Solingen during a celebration of the 650th anniversary of the city’s founding.`\
 https://nytimes.com/2024/08/23/world/europe/germany-knife-attack-festival.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/23/us/politics/trump-jan-6-mini-trial.html
 **Beyoncé Rumors Briefly Took Center Stage. Kamala Harris Grabbed It Back.**\
 `Unsubstantiated rumors that the star would appear at the Democratic National Convention, perhaps alongside Taylor Swift, created a daylong frenzy. Then the headliner took control.`\
 https://nytimes.com/2024/08/23/arts/music/beyonce-rumors-kamala-harris-dnc.html
-
-**The Next Generation**\
-`By Todd Heisler and Tim Balk`\
-https://nytimes.com/live/2024/08/23/us/harris-dnc-trump-election/the-next-generation
-
-**Democrats Are Upbeat, but Face a Tough Race Ahead**\
-`Also, Powell said the “time has come” for interest rate cuts. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2024/08/23/briefing/democrats-after-convention-fed-rate-cut.html
 

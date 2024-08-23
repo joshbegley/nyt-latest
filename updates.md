@@ -1,3 +1,11 @@
+**Scott Bloomquist, Champion Dirt-Track Driver, Dies at 60**\
+`Styling himself as a rebel, he won more than 600 races and nine championships in a 40-year career.`\
+https://nytimes.com/2024/08/23/sports/autoracing/scott-bloomquist-dead.html
+
+**Blue Jays mailbag part 2: Identifying the major roster holes heading into the offseason**\
+`Can the Blue Jays build a World Series contender in just three moves? Is there a way for the club to re-gain fans' trust in management?`\
+https://nytimes.com/athletic/5719771/2024/08/23/blue-jays-mailbag-roster-holes/
+
 **Knife Attack Kills at Least 3 People at Festival in Western Germany**\
 `The attack took place in Solingen during a celebration of the 650th anniversary of the city’s founding.`\
 https://nytimes.com/2024/08/23/world/europe/germany-knife-attack-festival.html
