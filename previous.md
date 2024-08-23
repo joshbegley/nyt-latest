@@ -1,3 +1,23 @@
+**What we're hearing about Thatcher Demko and the end of the Canucks' offseason**\
+`Are the Canucks looking at insurance options in goal? And what's going on with the goalie coaching?`\
+https://nytimes.com/athletic/5719525/2024/08/23/canucks-offseason-thatcher-demko/
+
+**16 Republican-led States Challenge Program to Aid Undocumented Spouses**\
+`The new Biden administration initiative, which could put many undocumented spouses of Americans on a path to U.S. citizenship, began taking applications this week.`\
+https://nytimes.com/2024/08/23/us/republican-states-undocumented-immigrants.html
+
+**Big 12 renewing discussions about adding UConn**\
+`Big 12 commissioner Brett Yormark has repeatedly expressed his desire to position the Big 12 as the nation’s premier basketball conference.`\
+https://nytimes.com/athletic/5719604/2024/08/23/big-12-expansion-uconn-pursuit/
+
+**Padres reinstate Yu Darvish from restricted list**\
+`Darvish is back on the injured list with a left groin strain, although he is believed to be past that ailment.`\
+https://nytimes.com/athletic/5719855/2024/08/23/yu-darvish-return-restricted-list-padres/
+
+**An Ex-Friend Had an Affair With My Husband. Doesn’t She Owe Me a Sit-Down?**\
+`The magazine’s Ethicist columnist on heartbreak and friendship splits.`\
+https://nytimes.com/2024/08/23/magazine/friend-affair-husband-ethics.html
+
 **Kamala Harris, Hoping to Build Momentum, Plans Battleground State Tour Next Week**\
 `After accepting the nomination, Ms. Harris was flying back to Washington on Friday for a weekend respite before returning to the campaign trail next week.`\
 https://nytimes.com/2024/08/23/us/politics/harris-battleground-state-tour.html
@@ -13,24 +33,4 @@ https://nytimes.com/athletic/5719696/2024/08/23/college-football-spring-transfer
 **Chelsea's Tino Anjorin in Empoli talks over permanent transfer**\
 `Chelsea midfielder Tino Anjorin is in talks with Empoli over joining the Serie A club in a permanent transfer.`\
 https://nytimes.com/athletic/5719809/2024/08/23/tino-anjorin-empoli-chelsea-transfers/
-
-**Jake Ciely’s 2024 fantasy football projections vs. Average Draft Position**\
-`Jake Ciely explains his rationale for the 15 biggest differences from his projections compared to 2024 fantasy football ADP.`\
-https://nytimes.com/athletic/5719732/2024/08/23/jake-cielys-2024-fantasy-football-projections-vs-average-draft-position-15-biggest-differences/
-
-**Robert F. Kennedy Jr. Suspends His Independent Bid for President and Endorses Trump**\
-`Mr. Kennedy said he will remove his name from the ballot in battleground states, so as not to be a spoiler.`\
-https://nytimes.com/2024/08/23/us/elections/rfk-jr-suspends-campaign-presidential-race.html
-
-**Logan Sargeant's F1 future remains in doubt as Williams Racing boss praises his growth**\
-`F1? Williams reserve driver? Indycar? After a year and a half of F1 experience, Logan Sargeant must define his next chapter.`\
-https://nytimes.com/athletic/5719169/2024/08/23/f1-logan-sargeant-williams-racing/
-
-**Fenerbahce say Kadioglu given permission to travel for Brighton transfer**\
-`Fenerbahce say they have given permission for Ferdi Kadioglu to travel to Brighton &amp; Hove Albion for talks over his possible transfer.`\
-https://nytimes.com/athletic/5702447/2024/08/23/ferdi-kadioglu-brighton-transfer-fenerbahce/
-
-**El Ghazi says he has received €1.5m Mainz payout after unfair dismissal**\
-`Anwar El Ghazi says he has received a payout from Mainz after a German court found he was unfairly dismissed by the club over a social media post about the Israel-Gaza war.`\
-https://nytimes.com/athletic/5719487/2024/08/23/anwar-el-ghazi-gaza-israel-mainz/
 

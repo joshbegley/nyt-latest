@@ -1,3 +1,23 @@
+**What we're hearing about Thatcher Demko and the end of the Canucks' offseason**\
+`Are the Canucks looking at insurance options in goal? And what's going on with the goalie coaching?`\
+https://nytimes.com/athletic/5719525/2024/08/23/canucks-offseason-thatcher-demko/
+
+**16 Republican-led States Challenge Program to Aid Undocumented Spouses**\
+`The new Biden administration initiative, which could put many undocumented spouses of Americans on a path to U.S. citizenship, began taking applications this week.`\
+https://nytimes.com/2024/08/23/us/republican-states-undocumented-immigrants.html
+
+**Big 12 renewing discussions about adding UConn**\
+`Big 12 commissioner Brett Yormark has repeatedly expressed his desire to position the Big 12 as the nation’s premier basketball conference.`\
+https://nytimes.com/athletic/5719604/2024/08/23/big-12-expansion-uconn-pursuit/
+
+**Padres reinstate Yu Darvish from restricted list**\
+`Darvish is back on the injured list with a left groin strain, although he is believed to be past that ailment.`\
+https://nytimes.com/athletic/5719855/2024/08/23/yu-darvish-return-restricted-list-padres/
+
+**An Ex-Friend Had an Affair With My Husband. Doesn’t She Owe Me a Sit-Down?**\
+`The magazine’s Ethicist columnist on heartbreak and friendship splits.`\
+https://nytimes.com/2024/08/23/magazine/friend-affair-husband-ethics.html
+
 **Jake Ciely’s 2024 fantasy football projections vs. Average Draft Position**\
 `Jake Ciely explains his rationale for the 15 biggest differences from his projections compared to 2024 fantasy football ADP.`\
 https://nytimes.com/athletic/5719732/2024/08/23/jake-cielys-2024-fantasy-football-projections-vs-average-draft-position-15-biggest-differences/
