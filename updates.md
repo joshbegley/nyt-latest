@@ -1,3 +1,11 @@
+**Democrats Are Building a Tricky Fandom Around Kamala Harris**\
+`But celebrity may not be compatible with democracy.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/harris-democrats-fandom-celebrity
+
+**Why Mpox Vaccines Aren’t Flowing to Africans in Desperate Need**\
+`Drugmakers have supplies ready to ship that are necessary to stop a potential pandemic. But W.H.O. regulations have slowed access.`\
+https://nytimes.com/2024/08/23/health/mpox-vaccines-who-africa.html
+
 **Prosecutors Unlikely to Seek ‘Mini-Trial’ in Trump Jan. 6 Case**\
 `Jack Smith, the special counsel, is said to be leaning against requesting a public courtroom hearing where he could broadly set out the evidence that the former president sought to overturn the 2020 election.`\
 https://nytimes.com/2024/08/23/us/politics/trump-jan-6-mini-trial.html
