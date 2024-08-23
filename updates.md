@@ -1,3 +1,11 @@
+**Harris Faces Challenge of Translating Convention Joy to Fall Momentum**\
+`The newly anointed Democratic presidential nominee revived a demoralized party. But as she leaves Chicago, a bruising, closely fought contest awaits her.`\
+https://nytimes.com/2024/08/23/us/politics/harris-dnc-momentum.html
+
+**Olmo Barca's limbo: Why €60m summer signing still cannot play for them**\
+`The Spain international arrived in a big deal with RB Leipzig after shining at Euro 2024 - but he still has to wait to make his debut`\
+https://nytimes.com/athletic/5718867/2024/08/23/dani-olmo-barcelona-la-liga-registration-update/
+
 **Rodri likely to miss Ipswich, Gundogan ready to play - Guardiola**\
 `Pep Guardiola says that Rodri is unlikely to feature against Ipswich this weekend but suggested that Ilkay Gundogan could play following his return to the club.`\
 https://nytimes.com/athletic/5719020/2024/08/23/rodri-man-city-injury-gundogan/
