@@ -1,3 +1,7 @@
+**U.S. Plans to Accuse Software Maker of Enabling Collusion on Rents**\
+`The Justice Department is set to file an antitrust suit against the real estate company RealPage alleging illegal price-fixing facilitated by algorithms.`\
+https://nytimes.com/2024/08/23/business/economy/realpage-doj-antitrust-suit-rent.html
+
 **Wan-Bissaka v Coufal - the West Ham right-back battle that could run and run**\
 `Wan Bissaka has not signed to be a second choice, Coufal has seen off competition before - who will win out for Lopetegui?`\
 https://nytimes.com/athletic/5716219/2024/08/23/aaron-wan-bissaka-vladimir-coufal-west-ham-lopetegui/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5716703/2024/08/23/row-z-chelsea-tottenham-city-pre
 **Trent Alexander-Arnold's Liverpool contract: What's going on?**\
 `The Liverpool academy graduate, who idolised Steven Gerrard, is approaching his peak years and securing his future must be a priority`\
 https://nytimes.com/athletic/5716615/2024/08/23/alexander-arnold-liverpool-contract-latest/
-
-**Red Bull's Mario Gomez on the Bundesliga's global appeal and the rise of Red Bull**\
-`The former striker is a key figure for Red Bull Soccer. He explains how his clubs identify talent and why the Bundesliga needs global fans`\
-https://nytimes.com/athletic/5710327/2024/08/23/mario-gomez-red-bull-leipzig-leeds-bundesliga-interview/
 

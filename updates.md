@@ -1,3 +1,7 @@
+**U.S. Plans to Accuse Software Maker of Enabling Collusion on Rents**\
+`The Justice Department is set to file an antitrust suit against the real estate company RealPage alleging illegal price-fixing facilitated by algorithms.`\
+https://nytimes.com/2024/08/23/business/economy/realpage-doj-antitrust-suit-rent.html
+
 **Wan-Bissaka v Coufal - the West Ham right-back battle that could run and run**\
 `Wan Bissaka has not signed to be a second choice, Coufal has seen off competition before - who will win out for Lopetegui?`\
 https://nytimes.com/athletic/5716219/2024/08/23/aaron-wan-bissaka-vladimir-coufal-west-ham-lopetegui/
