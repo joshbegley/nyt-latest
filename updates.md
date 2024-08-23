@@ -1,3 +1,7 @@
+**France’s Political Truce for the Olympics Is Over. Now What?**\
+`Lucie Castets, a relatively obscure bureaucrat, is the left’s choice to be prime minister. Just one person stands in her way: the president.`\
+https://nytimes.com/2024/08/23/world/europe/france-prime-minister-castets-macron.html
+
 **Greenwood begins process of declaring for Jamaica**\
 `Mason Greenwood has begun the process of gathering personal documents so he can gain Jamaican citizenship and play for the country at international level.`\
 https://nytimes.com/athletic/5719534/2024/08/23/mason-greenwood-jamaica-steve-mcclaren/
