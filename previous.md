@@ -1,3 +1,23 @@
+**The Athletic’s Friday football quiz question #18**\
+`The Athletic's weekly conundrum from inside the trivia vaults`\
+https://nytimes.com/athletic/5710436/2024/08/23/the-athletics-friday-football-quiz-question-18/
+
+**FPL Q&A: FPL Gameweek 2 advice from Ben Dinnery**\
+`Join Ben Dinnery for a live Gameweek 2 Fantasy Premier League Q&A from 4pm UK time on Friday`\
+https://nytimes.com/athletic/5716229/2024/08/23/fantasy-premier-league-advice-injury-news-gw2/
+
+**Zach Wilson has been energized by Broncos experience. But what comes next?**\
+`On the heels of a rocky preseason game against Green Bay, Wilson has put together his best week of practice. Will he make Denver's roster?`\
+https://nytimes.com/athletic/5717735/2024/08/23/zach-wilson-denver-broncos-qb/
+
+**Which dual nationals are Jesse Marsch and Canada looking to recruit next?**\
+`Sigur could be the first of many dual nationals joining Canada ahead of the 2026 World Cup`\
+https://nytimes.com/athletic/5716246/2024/08/23/canada-mens-soccer-dual-nationals/
+
+**How Nottingham Forest will rehabilitate Danilo - physically and psychologically**\
+`The Brazilian midfielder faces a lengthy period in recovery after suffering a serious ankle fracture in his club's opening league game`\
+https://nytimes.com/athletic/5716931/2024/08/23/danilo-nottingham-forest-ankle-rehabilitation/
+
 **Hamraoui joins Saudi side Al-Shabab**\
 `Former Paris Saint-Germain midfielder Kheira Hamraoui has signed with Saudi Arabia women&#8217;s Premier League side Al-Shabab.`\
 https://nytimes.com/athletic/5717690/2024/08/23/kheira-hamraoui-saudi-al-shabab/
@@ -13,24 +33,4 @@ https://nytimes.com/athletic/5717560/2024/08/23/college-football-week-0-the-puls
 **Why Kamala Harris’s Centrism is Working**\
 `The vice president’s convention speech embodied her efforts to win over swing voters.`\
 https://nytimes.com/2024/08/23/briefing/kamala-harris-convention-speech.html
-
-**The Biggest Speech of Kamala Harris’s Career**\
-`Presenting herself as a pragmatic leader who could unite all Americans behind a “new way forward,” Vice President Kamala Harris accepted the Democratic Party’s nomination for president. Zolan Kanno-Youngs, a White House correspondent for The New York Times, gives his takeaways.`\
-https://nytimes.com/video/us/elections/100000009653802/kamala-harris-dnc-acceptance-speech-analysis.html
-
-**Modi Arrives in Kyiv as Ukraine Pushes Diplomacy**\
-`Ukrainian officials were portraying the visit by Prime Minister Narendra Modi of India as a welcome show of support for their country during the war with Russia.`\
-https://nytimes.com/2024/08/23/world/europe/ukraine-modi-india.html
-
-**Teams have doubled down on off-speed pitches to silence Phillies bats since break**\
-`No team in baseball has seen fewer fastballs since the All-Star break than the Phillies. The scouting report is clear. `\
-https://nytimes.com/athletic/5718428/2024/08/23/phillies-offense-struggles-since-all-star-break/
-
-**Ilkay Gundogan's Barcelona exit to move back to Man City - the inside story**\
-`A phone call with Pep Guardiola, his plans to coach and Barca's stricken finances were all big factors in the transfer`\
-https://nytimes.com/athletic/5716208/2024/08/23/ilkay-gundogan-barcelona-man-city-inside-story/
-
-**Who'll make the Vikings' 53-man roster, who won't and who needs a big finish?**\
-`With the Vikings' final preseason game on tap Saturday, we examine the players who are looking good, not so good and everywhere in between.`\
-https://nytimes.com/athletic/5717074/2024/08/23/vikings-53-man-roster-preview/
 
