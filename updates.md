@@ -1,3 +1,7 @@
+**Modi Arrives in Kyiv as Ukraine Pushes Diplomacy**\
+`Ukrainian officials were portraying the visit by Prime Minister Narendra Modi of India as a welcome show of support for their country during the war with Russia.`\
+https://nytimes.com/2024/08/23/world/europe/ukraine-modi-india.html
+
 **Teams have doubled down on off-speed pitches to silence Phillies bats since break**\
 `No team in baseball has seen fewer fastballs since the All-Star break than the Phillies. The scouting report is clear. `\
 https://nytimes.com/athletic/5718428/2024/08/23/phillies-offense-struggles-since-all-star-break/
