@@ -1,3 +1,11 @@
+**Ipswich agree deal to sign Sunderland's Clarke**\
+`Ipswich Town have agreed a deal to sign Sunderland winger Jack Clarke.`\
+https://nytimes.com/athletic/5715340/2024/08/23/ipswich-town-jack-clarke-transfer/
+
+**Harris Wants America to See Itself in Her**\
+`The vice president’s speech sought to reassure Americans of her values even as many may be unfamiliar with her background.`\
+https://nytimes.com/2024/08/23/us/politics/kamala-harris-dnc-speech-values.html
+
 **Kamala Takes Chicago**\
 `The Democratic presidential nominee`\
 https://nytimes.com/2024/08/23/opinion/kamala-harris-speech.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/23/movies/incoming-review.html
 **Free Booze, a Lake Cruise and Selfies Galore: How Democrats Courted Influencers at the D.N.C.**\
 `Democrats gave social media figures the V.I.P. treatment this week in an aggressive attempt to pump feeds with pro-Harris posts.`\
 https://nytimes.com/2024/08/23/us/politics/dnc-social-media-influencers.html
-
-**David Copperfield Vanished. The Problem of His Penthouse Remains.**\
-`Residents at the Galleria in Manhattan sued Mr. Copperfield, saying he left his once-ornate condominium in disrepair.`\
-https://nytimes.com/2024/08/23/nyregion/david-copperfield-penthouse-lawsuit.html
-
-**At the Ballpark, a Reporter Roots for Lahaina**\
-`Last year, a Times reporter covered the wildfires that destroyed a town on the island of Maui. This year, he cheered on a team from Maui as it made its way to the Little League World Series.`\
-https://nytimes.com/2024/08/23/insider/lahaina-little-league.html
 
