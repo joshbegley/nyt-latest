@@ -1,3 +1,7 @@
+**Democrats Are Upbeat, but Face a Tough Race Ahead**\
+`Also, Powell said the “time has come” for interest rate cuts. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/08/23/briefing/democrats-after-convention-fed-rate-cut.html
+
 **Israel Presses for Gaza Border Presence as Part of Cease-Fire Deal**\
 `Mediators in truce negotiations, including the C.I.A. director and President Biden’s Middle East envoy, are seeking a summit next week to keep the struggling talks alive.`\
 https://nytimes.com/2024/08/23/world/middleeast/israel-gaza-egypt-border-cease-fire.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/23/us/elections/the-next-generation.html
 **Kamala Harris Wants to Win**\
 `The Democratic presidential nominee’s speech on Thursday night sought to persuade.`\
 https://nytimes.com/2024/08/23/opinion/ezra-klein-podcast-dnc-recap.html
-
-**Sanders, Buffs will no longer answer questions from local columnist**\
-`Sean Keeler, who works as a columnist at the paper and does not cover Colorado full-time, will still be credentialed for events.`\
-https://nytimes.com/athletic/5719873/2024/08/23/deion-sanders-colorado-football-denver-columnist/
 

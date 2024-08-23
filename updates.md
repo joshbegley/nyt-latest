@@ -1,3 +1,7 @@
+**Democrats Are Upbeat, but Face a Tough Race Ahead**\
+`Also, Powell said the “time has come” for interest rate cuts. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/08/23/briefing/democrats-after-convention-fed-rate-cut.html
+
 **Israel Presses for Gaza Border Presence as Part of Cease-Fire Deal**\
 `Mediators in truce negotiations, including the C.I.A. director and President Biden’s Middle East envoy, are seeking a summit next week to keep the struggling talks alive.`\
 https://nytimes.com/2024/08/23/world/middleeast/israel-gaza-egypt-border-cease-fire.html
