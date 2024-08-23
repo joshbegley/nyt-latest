@@ -1,3 +1,11 @@
+**Top Nationals prospect Dylan Crews to be promoted to big leagues: Source**\
+`Crews, the No. 2 pick in the 2023 MLB Draft, was recently ranked the No. 7 prospect in MLB by Keith Law.`\
+https://nytimes.com/athletic/5719627/2024/08/23/dylan-crews-nationals-promoted-major-leagues/
+
+**Atlanta Hospital Lost Part of Man’s Skull, a Lawsuit Says**\
+`A piece of Fernando Cluster’s skull was removed during emergency brain surgery in 2022. But when it was time to put it back, the hospital couldn’t find it, the suit says.`\
+https://nytimes.com/2024/08/23/us/atlanta-brain-surgery-skull-lawsuit.html
+
 **‘Joy,’ ‘Freedom,’ ‘Goldilocks’: Kamala Harris’s Democratic Party in 7 Keywords**\
 `As Democrats coalesce around their candidate, here are some of the words that define the party now.`\
 https://nytimes.com/2024/08/23/books/review/democratic-national-convention-kamala-harris.html
