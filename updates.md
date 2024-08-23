@@ -1,3 +1,7 @@
+**Kamara set for injury return in a 'few weeks' - Emery**\
+`Aston Villa manager Unai Emery says Boubacar Kamara is scheduled to return to first-team training in &#8220;a few weeks&#8221;.`\
+https://nytimes.com/athletic/5718989/2024/08/23/aston-villa-kamara-injury/
+
 **If Your Debt Is Ballooning, There Are Steps You Can Take**\
 `More borrowers have been falling behind on their credit card bills and are paying more for basic banking services, like A.T.M. fees.`\
 https://nytimes.com/2024/08/23/your-money/managing-debt-credit-cards-loans.html
