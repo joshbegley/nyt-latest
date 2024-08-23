@@ -1,3 +1,11 @@
+**Colts QB Anthony Richardson's roller-coaster night in Cincinnati a preview of what's to come?**\
+`The first drive Thursday night was precise, purposeful and damn near perfect. After that, Richardson's play was a little choppier.`\
+https://nytimes.com/athletic/5718558/2024/08/23/indianapolis-colts-anthony-richardson-preseason-bengals/
+
+**Final Body Is Recovered From Yacht That Sank Off Sicily**\
+`Hannah Lynch, the 18-year-old daughter of the British tech entrepreneur Mike Lynch, was part of a group that had been celebrating her father’s victory in a high-profile fraud case.`\
+https://nytimes.com/2024/08/23/world/europe/italy-sicily-yacht-lynch.html
+
 **The Defining Moments of the D.N.C. Finale**\
 `In accepting the nomination, Kamala Harris told her story and made a pitch for the coalition of voters she’ll need.`\
 https://nytimes.com/2024/08/23/podcasts/the-defining-moments-of-the-dnc-finale.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5716931/2024/08/23/danilo-nottingham-forest-ankle-r
 **Hamraoui joins Saudi side Al-Shabab**\
 `Former Paris Saint-Germain midfielder Kheira Hamraoui has signed with Saudi Arabia women&#8217;s Premier League side Al-Shabab.`\
 https://nytimes.com/athletic/5717690/2024/08/23/kheira-hamraoui-saudi-al-shabab/
-
-**Nepal Asks China to Wipe Away a Loan It Can’t Afford to Pay Back**\
-`A new government in Nepal formally asked for relief from a $216 million debt it incurred for construction of an airport in Pokhara that has been beset by problems.`\
-https://nytimes.com/2024/08/23/business/china-nepal-pokhara-airport.html
-
-**The Pulse: College football is back, looking different**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5717560/2024/08/23/college-football-week-0-the-pulse/
 
