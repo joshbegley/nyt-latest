@@ -1,3 +1,11 @@
+**Nepal Asks China to Wipe Away a Loan It Can’t Afford to Pay Back**\
+`A new government in Nepal formally asked for relief from a $216 million debt it incurred for construction of an airport in Pokhara that has been beset by problems.`\
+https://nytimes.com/2024/08/23/business/china-nepal-pokhara-airport.html
+
+**The Pulse: College football is back, looking different**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5717560/2024/08/23/college-football-week-0-the-pulse/
+
 **Why Kamala Harris’s Centrism is Working**\
 `The vice president’s convention speech embodied her efforts to win over swing voters.`\
 https://nytimes.com/2024/08/23/briefing/kamala-harris-convention-speech.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5717074/2024/08/23/vikings-53-man-roster-preview/
 **Ravens WR Sean Ryan hasn't been alone on his journey to the NFL**\
 `The 2023 undrafted free agent's adopted parents provided love, support and resources that helped change the young man's outlook.`\
 https://nytimes.com/athletic/5716086/2024/08/23/baltimore-ravens-receiver-sean-ryan/
-
-**Oregon Playoff Prospectus: Are Ducks ready to win a national championship?**\
-`Oregon hasn't made the Playoff since 2014, but as it joins the Big Ten, its expectations are rightfully as high as ever.`\
-https://nytimes.com/athletic/5699276/2024/08/23/oregon-college-football-playoff-predictions-preview/
-
-**Gundogan completes Man City return: 'I can't wait to wear the City shirt again'**\
-`Manchester City have completed the signing of Ilkay Gundogan.`\
-https://nytimes.com/athletic/5713813/2024/08/23/ilkay-gundogan-manchester-city-transfer/
 
