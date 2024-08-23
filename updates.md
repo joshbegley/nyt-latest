@@ -1,3 +1,7 @@
+**Seahawks trade Darrell Taylor to Bears**\
+`Taylor will help fill Chicago's pass-rushing needs after the team missed on acquiring Matthew Judon.`\
+https://nytimes.com/athletic/5719490/2024/08/23/seahawks-bears-darrell-taylor-trade/
+
 **Drinking Water Is at Risk in Parts of Long Island, Study Finds**\
 `Decades of pumping have allowed saltwater to threaten the aquifers that supply many communities, including Long Beach and Great Neck.`\
 https://nytimes.com/2024/08/23/climate/drinking-water-long-island.html
