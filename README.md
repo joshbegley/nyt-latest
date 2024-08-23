@@ -1,3 +1,7 @@
+**What to Know About the Business Execs With Mike Lynch on His Yacht**\
+`The two business figures, both associates of the tech mogul, went missing after the superyacht they were on sank off the coast of Sicily.`\
+https://nytimes.com/2024/08/23/business/dealbook/morvillo-bloomer-mike-lynch-yacht.html
+
 **Brian Robinson Jr., Romeo Doubs among latest additions to Jay Felicio's "My Guys" for fantasy football 2024**\
 `Jay Felicio adds a couple Commanders to his "My Guys" list for fantasy football 2024, including running back Brian Robinson Jr. `\
 https://nytimes.com/athletic/5719298/2024/08/23/my-guys-jay-felicio-fantasy-football-2024/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5719171/2024/08/23/mariners-scott-servais-dodgers-i
 **Kyler Murray, Rachaad White added to Gary Davenport's list of 'My Guys' for fantasy football 2024**\
 `Gary Davenport updates his "My Guys" list for fantasy football 2024, welcoming Kyler Murray and Rachaad White into the fold. `\
 https://nytimes.com/athletic/5719173/2024/08/23/my-guys-gary-davenport-fantasy-football-2024/
-
-**Cole, Lescott join Carsley's England coaching staff**\
-`Ashley Cole and Joleon Lescott have joined the backroom staff of England&#8217;s interim manager Lee Carsley.`\
-https://nytimes.com/athletic/5719191/2024/08/23/lee-carsley-england-staff-cole-lescott/
 
