@@ -1,3 +1,11 @@
+**5 Takeaways From the Democratic Convention**\
+`A history-making candidate told grounded stories. Democrats expanded their anti-Trump playbook. And even if something “magical is in the air” for the party, as Michelle Obama said, there’s a hard road ahead.`\
+https://nytimes.com/2024/08/23/us/politics/dnc-harris-chicago-takeaways.html
+
+**‘I Was Witnessing a Revolution’: The Best and Worst Moments From Night 4 of the Democratic Convention**\
+`What our columnists and contributors thought of speeches by Gretchen Whitmer, Roy Cooper and Kamala Harris.`\
+https://nytimes.com/2024/08/23/opinion/scorecard-night-4-democratic-convention.html
+
 **Full Transcript of Kamala Harris’s Speech at the Democratic Convention**\
 `The vice president’s remarks lasted roughly 35 minutes on the final night of the convention in Chicago.`\
 https://nytimes.com/2024/08/23/us/politics/kamala-harris-speech-transcript.html
