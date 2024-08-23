@@ -4,7 +4,7 @@ https://nytimes.com/athletic/5718411/2024/08/22/braves-spencer-schwellenbach-phi
 
 **Kamala Harris Just Showed She Knows How to Win**\
 `Elections are about contrasts. She presented a stirring one.`\
-https://nytimes.com/live/2024/08/20/opinion/thepoint/kamala-harris-speech-convention
+https://nytimes.com/2024/08/20/opinion/kamala-harris-speech-convention.html
 
 **“Donald Trump was asked what he would do about Social Security and Medicare, and he said, and I quote, ‘There is a lot you can do in terms of cutting.’”**\
 `By Linda Qiu`\

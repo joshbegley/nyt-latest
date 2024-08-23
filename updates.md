@@ -1,3 +1,11 @@
+**Braves rookie Schwellenbach continues to impress in series-clinching win over Phillies**\
+`"He does all the little things that winning pitchers do,” Brian Snitker said of the Braves' latest rookie pitching sensation.`\
+https://nytimes.com/athletic/5718411/2024/08/22/braves-spencer-schwellenbach-phillies-success/
+
+**Kamala Harris Just Showed She Knows How to Win**\
+`Elections are about contrasts. She presented a stirring one.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/kamala-harris-speech-convention
+
 **“Donald Trump was asked what he would do about Social Security and Medicare, and he said, and I quote, ‘There is a lot you can do in terms of cutting.’”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/08/22/us/dnc-harris-fact-check/donald-trump-was-asked-what-he-would-do-about-social-security-and-medicare-and-he-said-and-i-quote-there-is-a-lot-you-can-do-in-

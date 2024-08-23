@@ -1,3 +1,11 @@
+**Braves rookie Schwellenbach continues to impress in series-clinching win over Phillies**\
+`"He does all the little things that winning pitchers do,” Brian Snitker said of the Braves' latest rookie pitching sensation.`\
+https://nytimes.com/athletic/5718411/2024/08/22/braves-spencer-schwellenbach-phillies-success/
+
+**Kamala Harris Just Showed She Knows How to Win**\
+`Elections are about contrasts. She presented a stirring one.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/kamala-harris-speech-convention
+
 **“Donald Trump was asked what he would do about Social Security and Medicare, and he said, and I quote, ‘There is a lot you can do in terms of cutting.’”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/08/22/us/dnc-harris-fact-check/donald-trump-was-asked-what-he-would-do-about-social-security-and-medicare-and-he-said-and-i-quote-there-is-a-lot-you-can-do-in-
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5718385/2024/08/22/douglas-coleman-bears-injury-str
 **‘That Woman From Michigan’ Twists the Knife on Trump**\
 `Gov. Gretchen Whitmer makes the case for tough women.`\
 https://nytimes.com/live/2024/08/20/opinion/thepoint/whitmer-michigan-harris
-
-**Final Colts 53-man roster projection: Why Jelani Woods made cut but Sam Ehlinger didn't**\
-`The Colts must trim their roster to 53 players by Tuesday evening. They have a few tough decisions to make. `\
-https://nytimes.com/athletic/5714496/2024/08/22/indianapolis-colts-roster-projection-final-53/
-
-**Kennedy Withdraws From Presidential Contest in Arizona**\
-`Robert F. Kennedy Jr., an independent candidate, is set to give an address on Friday about the future of his campaign.`\
-https://nytimes.com/2024/08/22/us/elections/rfk-jr-arizona-withdraw.html
 
