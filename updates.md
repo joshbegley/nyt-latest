@@ -1,3 +1,7 @@
+**Padres finally drop consecutive games as depth questions return to fore**\
+`The Padres' month-long hot streak has bought them some margin for error in the standings. But depth is paramount.`\
+https://nytimes.com/athletic/5718321/2024/08/23/padres-mets-depth-questions/
+
 **Chelsea have been mocked - but how many of the outcasts would make Maresca's team better?**\
 `Barring Chalobah and Petrovic, the other members of Chelsea's misfits really are better off being sold before the transfer window closes`\
 https://nytimes.com/athletic/5718331/2024/08/23/chelseas-outcasts-squad-enzo-maresca/
