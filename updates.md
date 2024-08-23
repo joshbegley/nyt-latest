@@ -1,3 +1,7 @@
+**If Your Debt Is Ballooning, There Are Steps You Can Take**\
+`More borrowers have been falling behind on their credit card bills and are paying more for basic banking services, like A.T.M. fees.`\
+https://nytimes.com/2024/08/23/your-money/managing-debt-credit-cards-loans.html
+
 **Ukraine Steps Up Strikes Into Russia as Moscow Pushes Ahead in the East**\
 `Ukraine struck a port across from Crimea and damaged a cargo ferry. But Kyiv’s forces continued to struggle in eastern areas under a relentless Russian assault.`\
 https://nytimes.com/2024/08/23/world/europe/ukraine-russia-war-crimea.html
