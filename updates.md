@@ -1,3 +1,7 @@
+**Knife Attack Kills at Least 3 People at Festival in Western Germany**\
+`The attack took place in Solingen during a celebration of the 650th anniversary of the city’s founding.`\
+https://nytimes.com/2024/08/23/world/europe/germany-knife-attack-festival.html
+
 **Diamond Sports drops Mavericks, but promises to broadcast 2024-25 NBA, NHL seasons**\
 `The group that broadcasts the Bally-branded regional sports networks said it has agreed to air games for 13 NBA and nine NHL teams. `\
 https://nytimes.com/athletic/5720080/2024/08/23/diamond-sports-nba-nhl-broadcast-rights/

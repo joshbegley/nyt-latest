@@ -1,3 +1,7 @@
+**Knife Attack Kills at Least 3 People at Festival in Western Germany**\
+`The attack took place in Solingen during a celebration of the 650th anniversary of the city’s founding.`\
+https://nytimes.com/2024/08/23/world/europe/germany-knife-attack-festival.html
+
 **Former Florida Deputy Who Killed Airman Is Charged With Manslaughter**\
 `Eddie Duran fatally shot Senior Airman Roger Fortson on May 3 when he opened his apartment door, holding a gun pointed to the ground.`\
 https://nytimes.com/2024/08/23/us/florida-deputy-manslaughter-roger-fortson.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/08/23/us/harris-dnc-trump-election/the-next-genera
 **Democrats Are Upbeat, but Face a Tough Race Ahead**\
 `Also, Powell said the “time has come” for interest rate cuts. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/08/23/briefing/democrats-after-convention-fed-rate-cut.html
-
-**Israel Presses for Gaza Border Presence as Part of Cease-Fire Deal**\
-`Mediators in truce negotiations, including the C.I.A. director and President Biden’s Middle East envoy, are seeking a summit next week to keep the struggling talks alive.`\
-https://nytimes.com/2024/08/23/world/middleeast/israel-gaza-egypt-border-cease-fire.html
 
