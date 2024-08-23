@@ -1,3 +1,7 @@
+**Transcript: Ezra Klein on Kamala Harris’s Convention Speech**\
+`The Aug. 23, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/08/23/podcasts/transcript-ezra-klein-on-kamala-harriss-convention-speech.html
+
 **Scott Bloomquist, Champion Dirt-Track Driver, Dies at 60**\
 `Styling himself as a rebel, he won more than 600 races and nine championships in a 40-year career.`\
 https://nytimes.com/2024/08/23/sports/autoracing/scott-bloomquist-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/23/health/mpox-vaccines-who-africa.html
 **Prosecutors Unlikely to Seek ‘Mini-Trial’ in Trump Jan. 6 Case**\
 `Jack Smith, the special counsel, is said to be leaning against requesting a public courtroom hearing where he could broadly set out the evidence that the former president sought to overturn the 2020 election.`\
 https://nytimes.com/2024/08/23/us/politics/trump-jan-6-mini-trial.html
-
-**Beyoncé Rumors Briefly Took Center Stage. Kamala Harris Grabbed It Back.**\
-`Unsubstantiated rumors that the star would appear at the Democratic National Convention, perhaps alongside Taylor Swift, created a daylong frenzy. Then the headliner took control.`\
-https://nytimes.com/2024/08/23/arts/music/beyonce-rumors-kamala-harris-dnc.html
 
