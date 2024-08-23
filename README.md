@@ -1,3 +1,7 @@
+**Creed Humphrey, Chiefs agree to massive 4-year, $72 million extension**\
+`Humphrey, 25, was a Pro Bowl selection the last two seasons, when the Chiefs took home back-to-back Super Bowl titles.`\
+https://nytimes.com/athletic/5718180/2024/08/22/creed-humphrey-contract-extension-kansas-city-chiefs/
+
 **As some at-risk incumbents stayed home, Senate hopefuls addressed the delegates.**\
 `By Catie Edmondson`\
 https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/as-some-at-risk-incumbents-stayed-home-senate-hopefuls-addressed-the-delegates
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/08/22/us/harris-dnc-election-news/how-black-women-
 **‘The Crow’ Review: Resurrected and It Feels So Bad**\
 `Hoping to skate by off moody vibes, this revamp of “The Crow” comic book series seems derived from a flattened, Hot Topic image of the hero.`\
 https://nytimes.com/2024/08/22/movies/the-crow-review.html
-
-**Volcano Erupts Near Fishing Town in Iceland**\
-`The latest eruption, the sixth since December, is part of increased volcanic activity that began in 2021.`\
-https://nytimes.com/2024/08/22/world/europe/iceland-volcano-eruption.html
 
