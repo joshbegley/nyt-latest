@@ -1,3 +1,7 @@
+**Paralympics Will Drop Ban on Olympic Rings Tattoos**\
+`Athletes had previously been forced — under threat of expulsion — to cover the symbol because of a rule against body advertising.`\
+https://nytimes.com/2024/08/23/style/paralympics-olympic-rings-tattoo-ban.html
+
 **5 Secret Service Agents Involved in Trump Rally Are Reassigned**\
 `The agents will remain on the agency payroll while investigations continue into failures that allowed a gunman to shoot at the former president last month.`\
 https://nytimes.com/2024/08/23/us/politics/secret-service-trump-shooting.html
