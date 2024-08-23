@@ -1,3 +1,7 @@
+**South Korea Battery Plant Rushed Production Before Deadly Fire, Police Say**\
+`The fire, one of the country’s worst industrial disasters in recent years, happened as the factory was rushing to fulfill a military contract, the authorities said.`\
+https://nytimes.com/2024/08/23/world/asia/south-korea-battery-fire.html
+
 **Padres finally drop consecutive games as depth questions return to fore**\
 `The Padres' month-long hot streak has bought them some margin for error in the standings. But depth is paramount.`\
 https://nytimes.com/athletic/5718321/2024/08/23/padres-mets-depth-questions/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/23/us/politics/trump-reaction-harris-dnc.html
 **5 Takeaways From the Democratic Convention**\
 `A history-making candidate told grounded stories. Democrats expanded their anti-Trump playbook. And even if something “magical is in the air” for the party, as Michelle Obama said, there’s a hard road ahead.`\
 https://nytimes.com/2024/08/23/us/politics/dnc-harris-chicago-takeaways.html
-
-**‘I Was Witnessing a Revolution’: The Best and Worst Moments From Night 4 of the Democratic Convention**\
-`What our columnists and contributors thought of speeches by Gretchen Whitmer, Roy Cooper and Kamala Harris.`\
-https://nytimes.com/2024/08/23/opinion/scorecard-night-4-democratic-convention.html
 
