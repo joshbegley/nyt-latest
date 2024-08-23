@@ -1,3 +1,7 @@
+**El Ghazi says he has received €1.5m Mainz payout after unfair dismissal**\
+`Anwar El Ghazi says he has received a payout from Mainz after a German court found he was unfairly dismissed by the club over a social media post about the Israel-Gaza war.`\
+https://nytimes.com/athletic/5719487/2024/08/23/anwar-el-ghazi-gaza-israel-mainz/
+
 **Top Nationals prospect Dylan Crews to be promoted to big leagues: Source**\
 `Crews, the No. 2 pick in the 2023 MLB Draft, was recently ranked the No. 7 prospect in MLB by Keith Law.`\
 https://nytimes.com/athletic/5719627/2024/08/23/dylan-crews-nationals-promoted-major-leagues/
