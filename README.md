@@ -1,3 +1,15 @@
+**Fed Chair Powell Signals ‘Time Has Come’ for September Rate Cut**\
+`Jerome H. Powell used a speech in Jackson Hole to signal that the Federal Reserve will begin to cut rates on Sept. 18, and to voice wariness about the job market.`\
+https://nytimes.com/2024/08/23/business/economy/fed-rates-powell-jackson-hole.html
+
+**Guggenheim Curator Will Stage Exhibition of Caribbean Diaspora**\
+`The National Gallery of Jamaica has selected Ashley James to organize the 2024 Kingston Biennial, which opens in December.`\
+https://nytimes.com/2024/08/23/arts/design/kingston-biennial-ashley-james.html
+
+**Book Club: Let’s Talk About ‘My Brilliant Friend’**\
+`The first novel in Elena Ferrante’s Neapolitan quartet was just voted the best book of the 21st century. We like it too.`\
+https://nytimes.com/2024/08/23/books/review/podcast-ferrante-my-brilliant-friend.html
+
 **Prisoners Stage Deadly Mutiny in Southern Russia**\
 `In the latest in a series of such uprisings, at least one guard died after inmates took control of part of a maximum security jail in the Volgograd region`\
 https://nytimes.com/2024/08/23/world/europe/russia-prison-mutiny.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5718867/2024/08/23/dani-olmo-barcelona-la-liga-regi
 **Rodri likely to miss Ipswich, Gundogan ready to play - Guardiola**\
 `Pep Guardiola says that Rodri is unlikely to feature against Ipswich this weekend but suggested that Ilkay Gundogan could play following his return to the club.`\
 https://nytimes.com/athletic/5719020/2024/08/23/rodri-man-city-injury-gundogan/
-
-**Coming of Age in 2024: Explore Your Political Identity and Values**\
-`What can you show or tell us to help explain what it’s like to grow up in this political moment? Submit in words, images, audio or video, from Oct. 2 to Nov. 4.`\
-https://nytimes.com/2024/08/23/learning/coming-of-age-in-2024-explore-your-political-identity-and-values.html
-
-**Kamara set for injury return in a 'few weeks' - Emery**\
-`Aston Villa manager Unai Emery says Boubacar Kamara is scheduled to return to first-team training in &#8220;a few weeks&#8221;.`\
-https://nytimes.com/athletic/5718989/2024/08/23/aston-villa-kamara-injury/
-
-**If Your Debt Is Ballooning, There Are Steps You Can Take**\
-`More borrowers have been falling behind on their credit card bills and are paying more for basic banking services, like A.T.M. fees.`\
-https://nytimes.com/2024/08/23/your-money/managing-debt-credit-cards-loans.html
 
