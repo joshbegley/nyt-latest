@@ -1,3 +1,11 @@
+**James Milner targets Premier League appearance record - and new Brighton role may help**\
+`Milner could thrive in a Fabian Hurzeler midfield and will take the team's set pieces now that Pascal Gross has moved on `\
+https://nytimes.com/athletic/5710393/2024/08/23/milner-brighton-epl-record-appearances/
+
+**FPL Gameweek 2 preview: Is Vardy an option? What to do with Quansah and Barco?**\
+`He had a goalscoring GW1 - and would take Leicester's penalties - so is it worth you bringing in the 37-year-old Jamie Vardy?`\
+https://nytimes.com/athletic/5713154/2024/08/23/fantasy-premier-league-gw2-tips-advice/
+
 **Row Z: Chelsea are not a mess, Tottenham are winners and Preston are excitable**\
 `In the first of our new weekly column, Tim Spiers takes a sideways look at the peculiarities and downright absurdities of the beautiful game`\
 https://nytimes.com/athletic/5716703/2024/08/23/row-z-chelsea-tottenham-city-preston-duran/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5716667/2024/08/23/fantasy-baseball-waiver-wire-cad
 **Kamala Harris’s Stepdaughter Ella Emhoff Speaks at the D.N.C.**\
 `Continuing the D.N.C.’s family theme, Vice President Kamala Harris’s stepdaughter Ella Emhoff took the stage on Thursday night.`\
 https://nytimes.com/video/us/politics/100000009654069/kamala-harris-stepdaughter-ella.html
-
-**Friday Briefing**\
-`The final night of the Democratic National Convention.`\
-https://nytimes.com/2024/08/23/briefing/kamala-harris-ukraine-yacht.html
-
-**Families of Dead Hostages Vent Anger at Israeli Leaders Over War**\
-`After Israel recovered the bodies of six men who died in Hamas captivity in Gaza, survivors accused the government of sinking the chances of hostages returning alive through a cease-fire deal.`\
-https://nytimes.com/2024/08/23/world/middleeast/dead-hostages-families-anger.html
 
