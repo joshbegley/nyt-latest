@@ -1,3 +1,7 @@
+**Judge Blocks E.P.A. From Using Civil Rights Law in Pollution Case**\
+`The decision is a setback for a Biden administration strategy for protecting minority communities with numerous polluting industries nearby.`\
+https://nytimes.com/2024/08/23/climate/epa-civil-rights-climate-justice.html
+
 **Peace Talks at Swiss Resort Beckoned. Sudan’s Divided Generals Wouldn’t Go.**\
 `American-led mediators secured famine relief for needy areas. But with Sudan’s military failing to attend, a cease-fire was far out of reach.`\
 https://nytimes.com/2024/08/23/world/africa/sudan-military-cease-fire-talks.html
