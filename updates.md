@@ -1,3 +1,7 @@
+**Sydney Metro Expands, Opening to Celebrity-Level Fanfare**\
+`In a mostly car-dependent country where public transportation in major cities can be best described as “decent,” the expansion felt momentous.`\
+https://nytimes.com/2024/08/23/world/australia/sydney-metro.html
+
 **'I consider myself lucky': Dominic Thiem and the agonising what-ifs of tennis**\
 `When the Austrian collapsed to the ground in celebration on a silent Arthur Ashe in 2020, he had finally made it. He could have had more`\
 https://nytimes.com/athletic/5713759/2024/08/23/dominic-thiem-interview-how-a-u-s-open-title-became-the-start-of-a-tennis-ending/
