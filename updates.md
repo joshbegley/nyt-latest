@@ -1,3 +1,7 @@
+**Drinking Water Is at Risk in Parts of Long Island, Study Finds**\
+`Decades of pumping have allowed saltwater to threaten the aquifers that supply many communities, including Long Beach and Great Neck.`\
+https://nytimes.com/2024/08/23/climate/drinking-water-long-island.html
+
 **Joyful Feelings as Democratic Convention Concludes**\
 `“Yes, Michelle Obama, hope has made a spectacular comeback,” one reader writes. Also: Help for drinkers; “nudification” apps; eat your beans.`\
 https://nytimes.com/2024/08/23/opinion/letters/joyful-democratic-convention.html
