@@ -1,3 +1,7 @@
+**Slot explains Liverpool transfer exits: 'It's always difficult'**\
+`Arne Slot has explained Liverpool&#8217;s decision to sell some of the club&#8217;s talented youngsters this summer.`\
+https://nytimes.com/athletic/5718640/2024/08/23/liverpool-transfers-van-den-berg-carvalho/
+
 **The White House signals long-term support for Israel, hoping to avert a regional war.**\
 `By Lara Jakes`\
 https://nytimes.com/live/2024/08/22/world/israel-hamas-iran-gaza-war/the-white-house-signals-long-term-support-for-israel-hoping-to-avert-a-regional-war
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5718565/2024/08/23/chiefs-roster-projection-final-5
 **What Happened to the A.I. Election? + ChatGPT for Mayor + The Productivity Tools We’re Using**\
 `“It’s happening, but people don’t want it public.”`\
 https://nytimes.com/2024/08/23/podcasts/what-happened-to-the-ai-election-chatgpt-for-mayor-the-productivity-tools-were-using.html
-
-**Conan O’Brien’s Secret (Hot) Sauce**\
-`How the comedian has stayed so funny, for so long.`\
-https://nytimes.com/2024/08/23/podcasts/conan-obriens-secret-hot-sauce.html
 

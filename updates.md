@@ -1,3 +1,7 @@
+**Slot explains Liverpool transfer exits: 'It's always difficult'**\
+`Arne Slot has explained Liverpool&#8217;s decision to sell some of the club&#8217;s talented youngsters this summer.`\
+https://nytimes.com/athletic/5718640/2024/08/23/liverpool-transfers-van-den-berg-carvalho/
+
 **The White House signals long-term support for Israel, hoping to avert a regional war.**\
 `By Lara Jakes`\
 https://nytimes.com/live/2024/08/22/world/israel-hamas-iran-gaza-war/the-white-house-signals-long-term-support-for-israel-hoping-to-avert-a-regional-war
