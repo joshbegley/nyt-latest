@@ -1,3 +1,7 @@
+**Bills players with the most to gain or lose in the preseason finale**\
+`Injuries have created opportunities for some players to play their way into a roster spot.`\
+https://nytimes.com/athletic/5717677/2024/08/23/buffalo-bills-carolina-panthers-preseason-players/
+
 **Ranking the top 10 NL rookies: Who will prevail in Rookie of the Year race?**\
 `This is how I see the NL Rookie of the Year race with about five weeks remaining in the season. `\
 https://nytimes.com/athletic/5717742/2024/08/23/national-league-rookie-of-the-year-race/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5710436/2024/08/23/the-athletics-friday-football-qu
 **FPL Q&A: FPL Gameweek 2 advice from Ben Dinnery**\
 `Join Ben Dinnery for a live Gameweek 2 Fantasy Premier League Q&A from 4pm UK time on Friday`\
 https://nytimes.com/athletic/5716229/2024/08/23/fantasy-premier-league-advice-injury-news-gw2/
-
-**Zach Wilson has been energized by Broncos experience. But what comes next?**\
-`On the heels of a rocky preseason game against Green Bay, Wilson has put together his best week of practice. Will he make Denver's roster?`\
-https://nytimes.com/athletic/5717735/2024/08/23/zach-wilson-denver-broncos-qb/
 
