@@ -1,3 +1,7 @@
+**Full Transcript of Kamala Harris’s Speech at the Democratic Convention**\
+`The vice president’s remarks lasted roughly 35 minutes on the final night of the convention in Chicago.`\
+https://nytimes.com/2024/08/23/us/politics/kamala-harris-speech-transcript.html
+
 **Democrats Show That Republicans Aren’t the Only Ones Who Can Wrap Themselves in the Flag**\
 `From references to the Olympics to odes to freedom, Democrats used their nominating convention to stake their claim on patriotism.`\
 https://nytimes.com/2024/08/23/us/politics/democrats-patriotism-convention-harris.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5718414/2024/08/23/astros-win-orioles-ben-gamel/
 **Serie A is getting serious about the United States. Can Pulisic and Co cut through?**\
 `The landmark moment comes on Saturday, when AC Milan travel to Parma in Italy's top flight`\
 https://nytimes.com/athletic/5716216/2024/08/23/serie-a-united-states-tv-ac-milan-pulisic/
-
-**James Milner targets Premier League appearance record - and new Brighton role may help**\
-`Milner could thrive in a Fabian Hurzeler midfield and will take the team's set pieces now that Pascal Gross has moved on `\
-https://nytimes.com/athletic/5710393/2024/08/23/milner-brighton-epl-record-appearances/
 

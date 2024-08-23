@@ -1,3 +1,7 @@
+**Full Transcript of Kamala Harris’s Speech at the Democratic Convention**\
+`The vice president’s remarks lasted roughly 35 minutes on the final night of the convention in Chicago.`\
+https://nytimes.com/2024/08/23/us/politics/kamala-harris-speech-transcript.html
+
 **Democrats Show That Republicans Aren’t the Only Ones Who Can Wrap Themselves in the Flag**\
 `From references to the Olympics to odes to freedom, Democrats used their nominating convention to stake their claim on patriotism.`\
 https://nytimes.com/2024/08/23/us/politics/democrats-patriotism-convention-harris.html
