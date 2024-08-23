@@ -1,4 +1,16 @@
-**Robert F. Kennedy Jr. is Expected to End his Independent Presidential Campaign**\
+**Nick Suzuki’s belief in Canadiens reinforced by Patrik Laine trade**\
+`Suzuki was consulted on the Laine trade and endorsed it because it will only help him reach his lofty goals.`\
+https://nytimes.com/athletic/5718388/2024/08/23/canadiens-patrik-laine-trade-nick-suzuki/
+
+**‘Lie to Fly’: The Story of the Pilot Accused of Attempting to Down a Plane After Taking Mushrooms**\
+`Our new documentary explores why many pilots struggle to seek mental health treatment, and the urgent calls for industry reform.`\
+https://nytimes.com/2024/08/23/NYT-Presents/lie-to-fly-joseph-emerson-pilot.html
+
+**John Lansing, Who Guided NPR Through Tumultuous Times, Dies at 67**\
+`He led the broadcasting organization during the coronavirus pandemic, a decline in revenue and a period of extreme political polarization.`\
+https://nytimes.com/2024/08/23/business/media/john-lansing-dead.html
+
+**Robert F. Kennedy Jr. Is Expected to End his Independent Presidential Campaign**\
 `Kennedy filed paperwork Thursday to withdraw from the ballot in Arizona, and has been in talks about endorsing Donald J. Trump.`\
 https://nytimes.com/2024/08/23/us/elections/rfk-campaign-arizona.html
 
@@ -21,16 +33,4 @@ https://nytimes.com/2024/08/23/world/europe/russia-prison-mutiny.html
 **Oilers depth chart projection: Evaluating a revamped roster**\
 `New GM Stan Bowman very well could make more changes, but here's where Edmonton's roster stacks up now.`\
 https://nytimes.com/athletic/5715336/2024/08/23/edmonton-oilers-roster-projection-2024-25/
-
-**Olympics drove interest in women's sports cards, Snoop Dogg pins and more**\
-`The broad appeal of the Olympics helped boost a variety of collectibles `\
-https://nytimes.com/athletic/5714495/2024/08/23/olympics-collectibles-snoop-dogg/
-
-**Harris Faces Challenge of Translating Convention Joy to Fall Momentum**\
-`The newly anointed Democratic presidential nominee revived a demoralized party. But as she leaves Chicago, a bruising, closely fought contest awaits her.`\
-https://nytimes.com/2024/08/23/us/politics/harris-dnc-momentum.html
-
-**Olmo Barca's limbo: Why €60m summer signing still cannot play for them**\
-`The Spain international arrived in a big deal with RB Leipzig after shining at Euro 2024 - but he still has to wait to make his debut`\
-https://nytimes.com/athletic/5718867/2024/08/23/dani-olmo-barcelona-la-liga-registration-update/
 

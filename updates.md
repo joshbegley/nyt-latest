@@ -1,3 +1,19 @@
+**Nick Suzuki’s belief in Canadiens reinforced by Patrik Laine trade**\
+`Suzuki was consulted on the Laine trade and endorsed it because it will only help him reach his lofty goals.`\
+https://nytimes.com/athletic/5718388/2024/08/23/canadiens-patrik-laine-trade-nick-suzuki/
+
+**‘Lie to Fly’: The Story of the Pilot Accused of Attempting to Down a Plane After Taking Mushrooms**\
+`Our new documentary explores why many pilots struggle to seek mental health treatment, and the urgent calls for industry reform.`\
+https://nytimes.com/2024/08/23/NYT-Presents/lie-to-fly-joseph-emerson-pilot.html
+
+**John Lansing, Who Guided NPR Through Tumultuous Times, Dies at 67**\
+`He led the broadcasting organization during the coronavirus pandemic, a decline in revenue and a period of extreme political polarization.`\
+https://nytimes.com/2024/08/23/business/media/john-lansing-dead.html
+
+**Robert F. Kennedy Jr. Is Expected to End his Independent Presidential Campaign**\
+`Kennedy filed paperwork Thursday to withdraw from the ballot in Arizona, and has been in talks about endorsing Donald J. Trump.`\
+https://nytimes.com/2024/08/23/us/elections/rfk-campaign-arizona.html
+
 **Robert F. Kennedy Jr. is Expected to End his Independent Presidential Campaign**\
 `Kennedy filed paperwork Thursday to withdraw from the ballot in Arizona, and has been in talks about endorsing Donald J. Trump.`\
 https://nytimes.com/2024/08/23/us/elections/rfk-campaign-arizona.html
