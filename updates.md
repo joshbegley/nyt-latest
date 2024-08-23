@@ -1,3 +1,7 @@
+**South Korea Battery Plant Rushed Production Before Deadly Fire, Police Say**\
+`The fire, one of the country’s worst industrial disasters in recent years, happened as the factory was rushing to fulfill a military contract, the authorities said.`\
+https://nytimes.com/2024/08/23/world/asia/south-korea-battery-fire.html
+
 **Padres finally drop consecutive games as depth questions return to fore**\
 `The Padres' month-long hot streak has bought them some margin for error in the standings. But depth is paramount.`\
 https://nytimes.com/athletic/5718321/2024/08/23/padres-mets-depth-questions/
