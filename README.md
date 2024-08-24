@@ -1,3 +1,7 @@
+**After a Big Week for Democrats, One Good Day for Trump**\
+`Former President Donald J. Trump talked policy in Las Vegas and seemed almost chipper. In Arizona, he reveled in the endorsement of a former campaign rival, Robert F. Kennedy Jr.`\
+https://nytimes.com/2024/08/23/us/elections/trump-kennedy-harris-election.html
+
 **Affectionate Way to Walk**\
 `Ryan McCarty’s Saturday puzzle takes us on an exhilarating path.`\
 https://nytimes.com/2024/08/23/crosswords/daily-puzzle-2024-08-24.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/23/business/media/kamala-harris-dnc-viewers-ratings.
 **Harris Needed to Sound Tough on Foreign Policy, and She Did**\
 `The convention successfully painted Trump as the candidate who won’t stand up for American interests.`\
 https://nytimes.com/live/2024/08/20/opinion/thepoint/harris-foreign-policy
-
-**In Las Vegas, Trump Calls Harris a ‘Copycat’ Over ‘No Tax on Tips’ Plan**\
-`The rivals have zeroed in on service industry workers in Nevada, a swing state where polls show a tight race.`\
-https://nytimes.com/2024/08/23/us/politics/trump-harris-no-tax-tips.html
 
