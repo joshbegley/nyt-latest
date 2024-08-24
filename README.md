@@ -1,3 +1,11 @@
+**Eagles 53-man roster projection before final cuts**\
+`Final cuts will be made on Tuesday.`\
+https://nytimes.com/athletic/5720641/2024/08/24/philadelphia-eagles-preseason-53-man-roster-projection/
+
+**Bowden Francis misses history after no-no foiled but gains momentum in Blue Jays rotation**\
+`Francis missed history by three outs Saturday but was brilliant over eight innings with a career-high 12 strikeouts.`\
+https://nytimes.com/athletic/5721402/2024/08/24/bowden-francis-blue-jays-angels/
+
 **Packers 53-man projection: Is the Week 1 kicker currently on the roster?**\
 `Green Bay has a couple of tricky roster decisions to make before Tuesday's cutdown deadline.`\
 https://nytimes.com/athletic/5721248/2024/08/24/packers-roster-53-man-projection/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5721054/2024/08/24/yankees-cc-sabathia-brett-gardne
 **Shane van Gisbergen joins Trackhouse Racing for 2025 Cup Series**\
 `Team owner Justin Marks announced the move at Daytona International Speedway, the site of that night’s Cup race.`\
 https://nytimes.com/athletic/5721263/2024/08/24/shane-van-gisbergen-joins-trackhouse-racing/
-
-**Boeing Starliner Astronauts Will Return to Earth in SpaceX Vehicle**\
-`NASA announced that two astronauts aboard the International Space Station will have their stay extended by several months and that they will return on a SpaceX capsule because of problems with the Boeing Starliner.`\
-https://nytimes.com/video/science/100000009656201/boeing-starliner-spacex.html
-
-**Final Bills 53-man roster projection as the preseason ends**\
-`Just a handful of positions were up for grabs.`\
-https://nytimes.com/athletic/5720909/2024/08/24/final-buffalo-bills-53-man-roster-projection-preseason/
 
