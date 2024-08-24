@@ -1,3 +1,11 @@
+**Hamas Agrees to Meet With Mediators in Cairo Ahead of Cease-Fire Talks**\
+`Fighting has raged in Gaza even as the United States, Qatar and Egypt have pushed for a deal, with Israeli strikes overnight killing dozens, according to emergency responders in Gaza.`\
+https://nytimes.com/2024/08/24/world/middleeast/israel-gaza-war.html
+
+**It's the year of the running back in the Big 12**\
+`“Every week I’m asking if we were ever going to play anyone who doesn't have a back that we're scared of,” Oklahoma State's Mike Gundy said.`\
+https://nytimes.com/athletic/5716871/2024/08/24/big-12-running-backs-ollie-gordon-tahj-brooks/
+
 **Out of Season**\
 `Summer’s coming to a close soon. You’re still, to some extent, in control of how you spend the time.`\
 https://nytimes.com/2024/08/24/briefing/out-of-season.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/24/crosswords/connections-companion-441.html
 **The DMZ Is an Unhealed Wound for Korea. It’s Also a Source of Great Honey.**\
 `The heavily fortified area separating North and South Korea is home to a biodiverse landscape and is a place of deep meaning for nearby farmers whose bees can fly freely through it.`\
 https://nytimes.com/2024/08/24/world/asia/south-korea-dmz-honey.html
-
-**What we learned about Michigan this preseason: Is there any clarity at QB?**\
-`The start of the Sherrone Moore era of Michigan football is upon us. Here's what we know and don't know about the Wolverines after camp.`\
-https://nytimes.com/athletic/5719953/2024/08/24/michigan-football-quarterbacks-preseason-camp/
-
-**Childhood Stardom Is Rough. Jenna Ortega Is Still Recovering.**\
-`The actress talks about learning to protect herself and the hard lessons of early fame.`\
-https://nytimes.com/2024/08/24/magazine/jenna-ortega-interview.html
 
