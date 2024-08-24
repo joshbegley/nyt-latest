@@ -1,3 +1,7 @@
+**Explosions Outside a France Synagogue Were a Terrorist Attack, Prosecutors Say**\
+`Politicians quickly condemned the attack, at a time when antisemitic incidents have been on the rise in France.`\
+https://nytimes.com/2024/08/24/world/europe/france-synagogue-explosion-antisemitism.html
+
 **The Briefing: Manchester City 4 Ipswich 1 - Haaland hat-trick, City's 191-second blitz**\
 `Three goals in less than four minutes put City in control and Haaland capped the afternoon off with a hat-trick`\
 https://nytimes.com/athletic/5718688/2024/08/24/manchester-city-ipswich-haaland-result/
