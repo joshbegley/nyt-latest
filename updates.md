@@ -1,4 +1,8 @@
 **Mets' Paul Blackburn injured in lopsided loss to Padres: 'It doesn't feel great'**\
+`The Mets struck out 14 times, tying their season high, as they fell another game behind the Braves.`\
+https://nytimes.com/athletic/5720423/2024/08/24/mets-paul-blackburn-injured/
+
+**Mets' Paul Blackburn injured in lopsided loss to Padres: 'It doesn't feel great'**\
 `The Mets struck out 14 times, tying their season-high, as they fell another game behind the Braves.`\
 https://nytimes.com/athletic/5720423/2024/08/24/mets-paul-blackburn-injured/
 
