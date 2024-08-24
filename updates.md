@@ -1,3 +1,7 @@
+**Childhood Stardom Is Rough. Jenna Ortega Is Still Recovering.**\
+`The actress talks about learning to protect herself and the hard lessons of early fame.`\
+https://nytimes.com/2024/08/24/magazine/jenna-ortega-interview.html
+
 **Why Harris’s Barrier-Breaking Bid Feels Nothing Like Hillary Clinton’s**\
 `The first-female-president energy of 2016 has been replaced by a more serious tone, with Democrats warning gravely of the new frontiers in the post-Roe era.`\
 https://nytimes.com/2024/08/24/us/politics/harris-clinton-women-feminism.html
