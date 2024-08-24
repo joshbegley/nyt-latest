@@ -1,3 +1,7 @@
+**Chargers 53-man roster projection: A close call between Simi Fehoko and Brenden Rice**\
+`It's unlikely the Chargers will keep more than six receivers and Fehoko's production — including Saturday's TD — gives him the edge.`\
+https://nytimes.com/athletic/5721027/2024/08/24/chargers-roster-projection-simi-fehoko-brenden-rice/
+
 **Michelsen nearly defaulted after hitting ball into crowd**\
 `The most famous default for ball abuse in recent times came in the 2020 U.S. Open, when Novak Djokovic was defaulted from his match. `\
 https://nytimes.com/athletic/5721404/2024/08/24/alex-michelsen-default-winston-salem-final/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5720909/2024/08/24/final-buffalo-bills-53-man-roste
 **Commanders to build Sean Taylor statue**\
 `Taylor, a fan favorite, had 302 career tackles, 12 interceptions, 41 passes defended and eight forced fumbles.`\
 https://nytimes.com/athletic/5721173/2024/08/24/sean-taylor-statue-washington-commanders/
-
-**Lilia Vu can feel another Women's Open championship in her grasp**\
-`Vu will begin Sunday's final round one shot back of Jiyai Shin and one shot ahead of Nelly Korda.`\
-https://nytimes.com/athletic/5720916/2024/08/24/lilia-vu-womens-open-jiyai-shin/
 

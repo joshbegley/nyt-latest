@@ -1,3 +1,7 @@
+**Chargers 53-man roster projection: A close call between Simi Fehoko and Brenden Rice**\
+`It's unlikely the Chargers will keep more than six receivers and Fehoko's production — including Saturday's TD — gives him the edge.`\
+https://nytimes.com/athletic/5721027/2024/08/24/chargers-roster-projection-simi-fehoko-brenden-rice/
+
 **Michelsen nearly defaulted after hitting ball into crowd**\
 `The most famous default for ball abuse in recent times came in the 2020 U.S. Open, when Novak Djokovic was defaulted from his match. `\
 https://nytimes.com/athletic/5721404/2024/08/24/alex-michelsen-default-winston-salem-final/
