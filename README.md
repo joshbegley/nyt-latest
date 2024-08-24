@@ -1,3 +1,11 @@
+**Vikings 53-man roster projection before cutdown day: Who earned the final spots?**\
+`Will Minnesota keep QB Jaren Hall on the final 53-man roster? And could one of the team's cornerbacks soon be traded?`\
+https://nytimes.com/athletic/5721043/2024/08/24/vikings-roster-53-man-projection/
+
+**Mike Tomlin won’t say it yet, but it’s obvious: Russell Wilson is the Steelers’ QB1**\
+`Tomlin won't name a winner of the "competition" until next week, but everything points toward Wilson starting over Justin Fields.`\
+https://nytimes.com/athletic/5721013/2024/08/24/russell-wilson-justin-fields-steelers-qb-competition/
+
 **Panthers final roster projection: Receiver on the trading block? Help at edge rusher needed?**\
 `Terrace Marshall scored Saturday against the Bills. Will he earn a spot on the Panthers' 53-man roster or another team's?`\
 https://nytimes.com/athletic/5720978/2024/08/24/carolina-panthers-final-roster-projection/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5718632/2024/08/24/jack-clarke-ipswich-transfer/
 **Derek Jeter, former Yankees weigh in on whether Alex Rodriguez belongs in Monument Park**\
 `Rodriguez joined his fellow members of the 2009 World Series team at Yankees Old Timers Day on Saturday.`\
 https://nytimes.com/athletic/5720760/2024/08/24/derek-jeter-alex-rodriguez-yankees-monument-park/
-
-**Should We Be Worried About Population Decline?**\
-`Readers discuss a guest essay that argued that we should be.`\
-https://nytimes.com/2024/08/24/opinion/population-decline.html
-
-**Deion Sanders after reporter ban: 'I'm not built to hate'**\
-`Sanders says he doesn’t feel persecuted or propelled by outside criticism after the university banned Denver Post columnist Sean Keeler.`\
-https://nytimes.com/athletic/5720900/2024/08/24/deion-sanders-colorado-reporter-ban/
 
