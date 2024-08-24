@@ -1,3 +1,15 @@
+**Emma Raducanu knows tennis moves on quickly more than most, from Andy Murray or not**\
+`The 2021 U.S. Open champion has faced criticism for minimising Murray's impact. In reality, it's tennis that is indifferent to its players`\
+https://nytimes.com/athletic/5720817/2024/08/24/emma-raducanu-us-open-andy-murray/
+
+**The Briefing: Villa 0 Arsenal 2 - Should Trossard start? What's wrong with Watkins? Raya's rewards**\
+`Arsenal dug in to claim an impressive win at Villa Park - these are the key talking points from an intriguing encounter`\
+https://nytimes.com/athletic/5718704/2024/08/24/aston-villa-0-arsenal-2-trossard-raya-watkins/
+
+**Bowen says ball boy ‘all good’ after appearing to get stuck under West Ham fans**\
+`West Ham United captain Jarrod Bowen says the Crystal Palace ball boy who avoided avoiding injury in their Premier League game at Selhurst Park is &#8220;all good.`\
+https://nytimes.com/athletic/5720818/2024/08/24/west-ham-ball-boy-crystal-palace/
+
 **Overlooked No More: Mabel Addis, Who Pioneered Storytelling in Video Gaming**\
 `She was a teacher when she participated in an educational experiment with IBM. As a result, she became the first female video game designer.`\
 https://nytimes.com/2024/08/24/obituaries/mabel-addis-overlooked.html
