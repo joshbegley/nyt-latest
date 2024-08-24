@@ -1,3 +1,7 @@
+**Porto sign Atletico's Omorodion for €15m after €40m Chelsea move collapsed**\
+`Porto have completed the signing of Atletico Madrid striker Samu Omorodion for €15million (£12.`\
+https://nytimes.com/athletic/5720492/2024/08/24/samu-omorodion-porto-atletico-transfer/
+
 **Mariners turn to unlikely hero, start the Dan Wilson era with a walk-off victory**\
 `It took a four-run rally and a walk-off hit, but the Mariners won Wilson's debut. "This is the start of something great, we hope."`\
 https://nytimes.com/athletic/5720470/2024/08/24/mariners-sf-giants-dan-wilson-debut/

@@ -1,3 +1,7 @@
+**Porto sign Atletico's Omorodion for €15m after €40m Chelsea move collapsed**\
+`Porto have completed the signing of Atletico Madrid striker Samu Omorodion for €15million (£12.`\
+https://nytimes.com/athletic/5720492/2024/08/24/samu-omorodion-porto-atletico-transfer/
+
 **Mariners turn to unlikely hero, start the Dan Wilson era with a walk-off victory**\
 `It took a four-run rally and a walk-off hit, but the Mariners won Wilson's debut. "This is the start of something great, we hope."`\
 https://nytimes.com/athletic/5720470/2024/08/24/mariners-sf-giants-dan-wilson-debut/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5715609/2024/08/24/49ers-roster-projection-jacob-co
 **Dodgers' Shohei Ohtani hits walk-off grand slam to become MLB's sixth 40-40 player**\
 `Manager Dave Roberts said the 40-40 milestone has been on Ohtani's radar since spring training.`\
 https://nytimes.com/athletic/5717648/2024/08/24/dodgers-shohei-ohtani-40-40/
-
-**Yankees' Aaron Judge on pace to hit 62 home runs: 'You're witnessing greatness'**\
-`Judge hit his 49th home run of the season in the Yankees' 3-0 win over the Rockies on Friday night.`\
-https://nytimes.com/athletic/5720048/2024/08/24/yankees-aaron-judge-home-runs-rockies/
 
