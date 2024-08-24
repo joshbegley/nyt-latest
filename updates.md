@@ -1,3 +1,7 @@
+**After a Big Week for Democrats, One Good Day for Trump**\
+`Former President Donald J. Trump talked policy in Las Vegas and seemed almost chipper. In Arizona, he reveled in the endorsement of a former campaign rival, Robert F. Kennedy Jr.`\
+https://nytimes.com/2024/08/23/us/elections/trump-kennedy-harris-election.html
+
 **Affectionate Way to Walk**\
 `Ryan McCarty’s Saturday puzzle takes us on an exhilarating path.`\
 https://nytimes.com/2024/08/23/crosswords/daily-puzzle-2024-08-24.html
