@@ -1,3 +1,7 @@
+**Words Used at the Democratic and Republican National Conventions**\
+`Counting frequently spoken words and phrases at both events.`\
+https://nytimes.com/interactive/2024/08/23/us/politics/rnc-dnc-words.html
+
 **D-Backs' Jordan Montgomery says Scott Boras 'kind of butchered' his free-agency negotiations**\
 `Jordan Montgomery, fresh off his October heroics with the Texas Rangers, appeared positioned for a free-agent payday.`\
 https://nytimes.com/athletic/5720161/2024/08/23/jordan-montgomery-scott-boras-butchered-free-agency/
@@ -29,8 +33,4 @@ https://nytimes.com/interactive/2024/08/23/us/elections/north-carolina-rural-vot
 **A Campaign That Just Started Is Almost Over**\
 `Here’s my road map to the campaign’s remaining 74 days. If you blink, you might miss it.`\
 https://nytimes.com/2024/08/23/us/politics/rfk-jr-campaign.html
-
-**Transcript: Ezra Klein on Kamala Harris’s Convention Speech**\
-`The Aug. 23, 2024, episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2024/08/23/podcasts/transcript-ezra-klein-on-kamala-harriss-convention-speech.html
 
