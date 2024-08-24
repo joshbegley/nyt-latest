@@ -1,3 +1,11 @@
+**Hettie Jones, Poet and Author Who Nurtured the Beats, Dies at 90**\
+`She and her husband, LeRoi Jones, published works by their literary friends. After he left her and became Amiri Baraka, she found her own voice.`\
+https://nytimes.com/2024/08/24/books/hettie-jones-dead.html
+
+**Former Mariners manager Lou Piniella praises Dan Wilson, the team's new skipper**\
+`Wilson, the longtime catcher for Piniella's Seattle teams, was named as the franchise's manager on Thursday.`\
+https://nytimes.com/athletic/5721002/2024/08/24/mariners-lou-piniella-dan-wilson/
+
 **Aidan Birr's walk-off field goal lifts Georgia Tech to upset of Florida State**\
 `Florida State falls to Georgia Tech in the season opener for college football.`\
 https://nytimes.com/athletic/5720921/2024/08/24/florida-state-upset-georgia-tech-ireland/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5720817/2024/08/24/emma-raducanu-us-open-andy-murra
 **The Briefing: Villa 0 Arsenal 2 - Should Trossard start? What's wrong with Watkins? Raya's rewards**\
 `Arsenal dug in to claim an impressive win at Villa Park. These are the key talking points from an intriguing encounter`\
 https://nytimes.com/athletic/5718704/2024/08/24/aston-villa-0-arsenal-2-trossard-raya-watkins/
-
-**Bowen says ball boy ‘all good’ after appearing to get stuck under West Ham fans**\
-`West Ham United captain Jarrod Bowen says the Crystal Palace ball boy who avoided avoiding injury in their Premier League game at Selhurst Park is &#8220;all good.`\
-https://nytimes.com/athletic/5720818/2024/08/24/west-ham-ball-boy-crystal-palace/
-
-**Overlooked No More: Mabel Addis, Who Pioneered Storytelling in Video Gaming**\
-`She was a teacher when she participated in an educational experiment with IBM. As a result, she became the first female video game designer.`\
-https://nytimes.com/2024/08/24/obituaries/mabel-addis-overlooked.html
 
