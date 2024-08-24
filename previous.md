@@ -1,3 +1,7 @@
+**Overlooked No More: Mabel Addis, Who Pioneered Storytelling in Video Gaming**\
+`She was a teacher when she participated in an educational experiment with IBM. As a result, she became the first female video game designer.`\
+https://nytimes.com/2024/08/24/obituaries/mabel-addis-overlooked.html
+
 **F1 Dutch GP preview: Lando Norris can spoil Max Verstappen’s Zandvoort homecoming**\
 `Plus: Williams' weekend goes up in smoke, Ferrari and Mercedes scuffle and tumultuous weather looms.`\
 https://nytimes.com/athletic/5720729/2024/08/24/f1-dutch-gp-preview-verstappen-norris/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5718689/2024/08/24/tottenham-4-everton-0-bissouma-o
 **How Media Outlets on the Right and Left Covered Kennedy’s Trump Endorsement**\
 `Conservative coverage of Robert F. Kennedy Jr.’s decision to suspend his presidential campaign focused on the potential boon for the former president. Liberal outlets downplayed the impact it would have.`\
 https://nytimes.com/2024/08/24/business/media/rfk-jr-trump-endorsement-media.html
-
-**Explosions Outside a France Synagogue Were a Terrorist Attack, Prosecutors Say**\
-`Politicians quickly condemned the attack, at a time when antisemitic incidents have been on the rise in France.`\
-https://nytimes.com/2024/08/24/world/europe/france-synagogue-explosion-antisemitism.html
 
