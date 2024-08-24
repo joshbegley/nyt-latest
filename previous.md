@@ -1,3 +1,7 @@
+**Boeing Starliner Astronauts Will Return to Earth in SpaceX Vehicle**\
+`NASA announced that two astronauts aboard the International Space Station will have their stay extended by several months and that they will return on a SpaceX capsule because of problems with the Boeing Starliner.`\
+https://nytimes.com/video/science/100000009656201/boeing-starliner-spacex.html
+
 **Final Bills 53-man roster projection as the preseason ends**\
 `Just a handful of positions were up for grabs.`\
 https://nytimes.com/athletic/5720909/2024/08/24/final-buffalo-bills-53-man-roster-projection-preseason/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5721043/2024/08/24/vikings-roster-53-man-projection
 **Mike Tomlin won’t say it yet, but it’s obvious: Russell Wilson is the Steelers’ QB1**\
 `Tomlin won't name a winner of the "competition" until next week, but everything points toward Wilson starting over Justin Fields.`\
 https://nytimes.com/athletic/5721013/2024/08/24/russell-wilson-justin-fields-steelers-qb-competition/
-
-**Panthers final roster projection: Receiver on the trading block? Help at edge rusher needed?**\
-`Terrace Marshall scored Saturday against the Bills. Will he earn a spot on the Panthers' 53-man roster or another team's?`\
-https://nytimes.com/athletic/5720978/2024/08/24/carolina-panthers-final-roster-projection/
 
