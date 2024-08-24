@@ -1,3 +1,7 @@
+**The N.F.L. May Soon Welcome a New Kind of Owner**\
+`At a meeting next week, team owners are expected to approve rules that would allow private equity firms to invest in their franchises.`\
+https://nytimes.com/2024/08/24/business/dealbook/nfl-football-private-equity.html
+
 **Canada drone scandal: How did it happen, questions over Herdman's role, what must change**\
 `There are continued concerns over drone usage in Canada and questions about the role of John Herdman, now in charge at Toronto FC`\
 https://nytimes.com/athletic/5719108/2024/08/24/canada-drone-herdman-olympics-investigation/
