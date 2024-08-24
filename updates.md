@@ -1,3 +1,7 @@
+**Mariners turn to unlikely hero, start the Dan Wilson era with a walk-off victory**\
+`It took a four-run rally and a walk-off hit, but the Mariners won Wilson's debut. "This is the start of something great, we hope."`\
+https://nytimes.com/athletic/5720470/2024/08/24/mariners-sf-giants-dan-wilson-debut/
+
 **The Hottest Commodity at the U.S. Open? Shade.**\
 `The tennis tournament, like the rest of New York City, is adapting to climate change.`\
 https://nytimes.com/2024/08/24/nyregion/us-open-nyc-climate-change.html
