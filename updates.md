@@ -1,3 +1,7 @@
+**The Briefing: Tottenham 4 Everton 0 - Bissouma's stunner, Odobert's instant impression and central Son**\
+`Yves Bissouma, a double from Son and Cristian Romero helped Spurs rip apart Everton - The Athletic analyses a routine win`\
+https://nytimes.com/athletic/5718689/2024/08/24/tottenham-4-everton-0-bissouma-odobert-son-heung-min/
+
 **In Hawaii, a Sense of Alertness Without Panic Ahead of Tropical Storm Hone**\
 `Although the storm is not expected to pass directly over the Big Island, forecasters warned of threats including flooding and damaging winds.`\
 https://nytimes.com/2024/08/24/us/tropical-storm-hone-hawaii-residents.html
