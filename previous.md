@@ -1,3 +1,7 @@
+**Celtic's Matt O'Riley close to Brighton move**\
+`Brighton &amp; Hove Albion are close to completing the signing of Matt O&#8217;Riley from Celtic.`\
+https://nytimes.com/athletic/5671450/2024/08/24/matt-oriley-brighton-transfer/
+
 **Kevin Paredes interview: 'Not making the Copa squad broke me, but I am using it as fuel'**\
 `The 21-year-old discusses what it was like playing at the Olympics after not being selected for USMNT and his aims for the Bundesliga season`\
 https://nytimes.com/athletic/5714271/2024/08/24/kevin-paredes-usmnt-wolfsburg-interview/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5719489/2024/08/24/broncos-cardinals-preseason-rost
 **Keeping a Light on After Loss**\
 `When my friend and collaborator died before our comedy show opened on Broadway, I mourned him from the stage.`\
 https://nytimes.com/2024/08/24/opinion/broadway-comedy-grief.html
-
-**Busload of Indian Tourists in Nepal Plunges Into River, Killing at Least 27**\
-`Nepal, a poor and mountainous country, has long struggled with road safety.`\
-https://nytimes.com/2024/08/24/world/asia/nepal-deadly-bus-crash.html
 

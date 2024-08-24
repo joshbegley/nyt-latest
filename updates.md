@@ -1,3 +1,7 @@
+**Celtic's Matt O'Riley close to Brighton move**\
+`Brighton &amp; Hove Albion are close to completing the signing of Matt O&#8217;Riley from Celtic.`\
+https://nytimes.com/athletic/5671450/2024/08/24/matt-oriley-brighton-transfer/
+
 **Kevin Paredes interview: 'Not making the Copa squad broke me, but I am using it as fuel'**\
 `The 21-year-old discusses what it was like playing at the Olympics after not being selected for USMNT and his aims for the Bundesliga season`\
 https://nytimes.com/athletic/5714271/2024/08/24/kevin-paredes-usmnt-wolfsburg-interview/
