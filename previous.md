@@ -1,3 +1,7 @@
+**The DMZ Is an Unhealed Wound for Korea. It’s Also a Source of Great Honey.**\
+`The heavily fortified area separating North and South Korea is home to a biodiverse landscape and is a place of deep meaning for nearby farmers whose bees can fly freely through it.`\
+https://nytimes.com/2024/08/24/world/asia/south-korea-dmz-honey.html
+
 **What we learned about Michigan this preseason: Is there any clarity at QB?**\
 `The start of the Sherrone Moore era of Michigan football is upon us. Here's what we know and don't know about the Wolverines after camp.`\
 https://nytimes.com/athletic/5719953/2024/08/24/michigan-football-quarterbacks-preseason-camp/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/24/science/omens-babylonians-tablets-eclipses.html
 **The Hunt for the Next ‘Baby Reindeer’**\
 `Inside the Edinburgh Festival Fringe`\
 https://nytimes.com/2024/08/24/podcasts/the-hunt-for-the-next-baby-reindeer.html
-
-**In Critical Border District, Republican Pairs Immigrant Story With Tough Stance**\
-`Representative Juan Ciscomani is seeking a second term by promoting his immigrant biography, but his record in Congress could alienate voters in his Arizona district bordering Mexico.`\
-https://nytimes.com/2024/08/24/us/politics/ciscomani-reelection-immigration.html
 
