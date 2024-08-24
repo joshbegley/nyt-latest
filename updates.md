@@ -1,3 +1,15 @@
+**The Hottest Commodity at the U.S. Open? Shade.**\
+`The tennis tournament, like the rest of New York City, is adapting to climate change.`\
+https://nytimes.com/2024/08/24/nyregion/us-open-nyc-climate-change.html
+
+**How a Children’s Museum Director Spends Her Sundays**\
+`Kate Mirand Calleri, the director of education at the Brooklyn Children’s Museum, braves tarantulas and crowded subways before relaxing with “Antiques Roadshow.”`\
+https://nytimes.com/2024/08/24/nyregion/brooklyn-childrens-museum.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/24/crosswords/spelling-bee-forum.html
+
 **Mets' Paul Blackburn injured in lopsided loss to Padres: 'It doesn't feel great'**\
 `The Mets struck out 14 times, tying their season high, as they fell another game behind the Braves.`\
 https://nytimes.com/athletic/5720423/2024/08/24/mets-paul-blackburn-injured/
