@@ -1,3 +1,7 @@
+**Stone Island: How a luxury label became a must-have footballing fashion item**\
+`Stone Island clothing was associated with hooliganism in football in the 1980s – now it is a label the likes of Guardiola and Haaland wear`\
+https://nytimes.com/athletic/5441980/2024/08/24/stone-island/
+
 **In a Grim Palestinian Refugee Community, People See Hope in Hamas**\
 `In Ein al-Hilweh, Lebanon, long mired in poverty and despair, Hamas recruitment is up and the downtrodden air has given way to defiance and celebration.`\
 https://nytimes.com/2024/08/24/world/middleeast/palestinian-refugees-hamas-lebanon.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/24/pageoneplus/corrections-aug-24-2024.html
 **After a Big Week for Democrats, One Good Day for Trump**\
 `Former President Donald J. Trump talked policy in Las Vegas and seemed almost chipper. In Arizona, he reveled in the endorsement of a former campaign rival, Robert F. Kennedy Jr.`\
 https://nytimes.com/2024/08/23/us/elections/trump-kennedy-harris-election.html
-
-**Affectionate Way to Walk**\
-`Ryan McCarty’s Saturday puzzle takes us on an exhilarating path.`\
-https://nytimes.com/2024/08/23/crosswords/daily-puzzle-2024-08-24.html
 
