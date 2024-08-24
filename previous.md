@@ -1,36 +1,36 @@
-**Can Grunting During Exercise Give You an Edge?**\
-`Some people can’t help letting out a little noise during a hard workout. It might serve a purpose.`\
-https://nytimes.com/2024/08/24/well/grunting-gym-exercise.html
+**Why Harris’s Barrier-Breaking Bid Feels Nothing Like Hillary Clinton’s**\
+`The first-female-president energy of 2016 has been replaced by a more serious tone, with Democrats warning gravely of the new frontiers in the post-Roe era.`\
+https://nytimes.com/2024/08/24/us/politics/harris-clinton-women-feminism.html
 
-**A French Museum Has Global Needs (but It Can’t Have New Jersey)**\
-`The Pompidou Center is creating international outposts to help fund a renovation of its Paris home. What happens now that Jersey City has pulled out?`\
-https://nytimes.com/2024/08/24/arts/design/pompidou-center-international-outposts.html
+**Trump’s Carefully Scripted Week Kept Veering Off Script**\
+`Despite calls by his advisers to focus on the issues, former President Donald J. Trump has made it clear that he intends to keep running his campaign his way.`\
+https://nytimes.com/2024/08/24/us/politics/trump-campaign-2024.html
 
-**A Super Saturday When the Stars Played On and On at the U.S. Open**\
-`The greatest day in tennis? Sept. 8, 1984, with its 165 games played over 12 hours, stands out.`\
-https://nytimes.com/2024/08/24/sports/tennis/us-open-super-saturday.html
+**NASA to Say if Boeing Starliner Astronauts Will Stay Longer on Space Station**\
+`The agency’s leaders are meeting on Saturday to decide whether Suni Williams and Butch Wilmore can safely fly home to Earth on the vehicle that carried them to orbit.`\
+https://nytimes.com/2024/08/24/science/nasa-starliner-astronauts.html
 
-**Marina Cicogna’s Glamorous, Cinematic Legacy**\
-`Cicogna, who died in November, was the face of the Venice Film Festival for decades and a pioneer for women in the Italian film industry. She also knew how to throw a party.`\
-https://nytimes.com/2024/08/24/movies/venice-film-festival-marina-cicogna.html
+**Rajeev Ram and His Partner Just Keep Winning U.S. Open Doubles**\
+`They have won three years in a row and are on an 18-match winning streak.`\
+https://nytimes.com/2024/08/24/sports/tennis/us-open-rajeev-ram-doubles.html
 
-**How to Soothe an Itchy Bug Bite**\
-`There are a number of ways to stop scratching, from medicines to mental tricks.`\
-https://nytimes.com/2024/08/24/well/itchy-mosquito-bites.html
+**Ancient Tablets Foretold Doom Awaiting Babylonian Kings**\
+`A new translation of cuneiform relics from the second millennium B.C. highlights the warnings that astrologers saw in eclipses.`\
+https://nytimes.com/2024/08/24/science/omens-babylonians-tablets-eclipses.html
 
-**Not Only for Killing: Drones Are Now Detecting Land Mines in Ukraine**\
-`Ukraine is a beta test for embedding artificial intelligence and other new technologies in drones and robots to find deadly land mines, saving lives and allowing military forces to advance more quickly.`\
-https://nytimes.com/2024/08/24/world/europe/ukraine-land-mines-drones.html
+**The Hunt for the Next ‘Baby Reindeer’**\
+`Inside the Edinburgh Festival Fringe`\
+https://nytimes.com/2024/08/24/podcasts/the-hunt-for-the-next-baby-reindeer.html
 
-**Bad Decisions and Second Chances That Lead to Love: 4 New Romance Novels**\
-`Our columnist reviews books by Danica Nava, Courtney Milan, Zen Cho and Karelia and Fay Stetz-Waters.`\
-https://nytimes.com/2024/08/24/books/review/new-romance-books.html
+**In Critical Border District, Republican Pairs Immigrant Story With Tough Stance**\
+`Representative Juan Ciscomani is seeking a second term by promoting his immigrant biography, but his record in Congress could alienate voters in his Arizona district bordering Mexico.`\
+https://nytimes.com/2024/08/24/us/politics/ciscomani-reelection-immigration.html
 
-**Many Gen Z Men Feel Left Behind. Some See Trump as an Answer.**\
-`Men under 30 are much more likely to support Donald Trump than women their age. It’s a far bigger gender gap than in older generations.`\
-https://nytimes.com/2024/08/24/upshot/trump-polls-young-men.html
+**Liza Colón-Zayas’s Medallion**\
+`The heirloom, passed down by her grandmother, connects the Emmy-nominated actress to her Puerto Rican heritage.`\
+https://nytimes.com/2024/08/24/style/liza-colon-zayass-medallion.html
 
-**How Elon Musk Got Tangled Up in Blue**\
-`Twitter Blue, a revamped subscription service that let users buy verified badges, was the first big test for the platform’s new owner. It didn’t go well.`\
-https://nytimes.com/2024/08/24/technology/elon-musk-twitter-blue.html
+**Sometimes Protest Movements Are a Slow, Slow Burn**\
+`In “To the Success of Our Hopeless Cause,” Benjamin Nathans takes stock of the generation of dissidents who helped loosen the bonds of tyranny in the Soviet Union.`\
+https://nytimes.com/2024/08/24/books/review/to-the-success-of-our-hopeless-cause-benjamin-nathans.html
 
