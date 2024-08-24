@@ -1,3 +1,7 @@
+**Mets' Paul Blackburn injured in lopsided loss to Padres: 'It doesn't feel great'**\
+`The Mets struck out 14 times, tying their season-high, as they fell another game behind the Braves.`\
+https://nytimes.com/athletic/5720423/2024/08/24/mets-paul-blackburn-injured/
+
 **Raiders 53-man roster projection: Is Tyreik McAllister's big game enough to earn a spot?**\
 `McAllister had an 81-yard punt return and a 35-yard catch for a touchdown in the Raiders' preseason finale against the 49ers.`\
 https://nytimes.com/athletic/5715616/2024/08/24/raiders-53-man-roster-projection-tyreik-mcallister/
