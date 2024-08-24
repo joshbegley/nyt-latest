@@ -1,3 +1,7 @@
+**Panthers final roster projection: Receiver on the trading block? Help at edge rusher needed?**\
+`Terrace Marshall scored Saturday against the Bills. Will he earn a spot on the Panthers' 53-man roster or another team's?`\
+https://nytimes.com/athletic/5720978/2024/08/24/carolina-panthers-final-roster-projection/
+
 **Season-opening upset: How did Georgia Tech knock off FSU?**\
 `No. 10 Florida State falls to Georgia Tech in the season opener for college football in an ACC showdown in Ireland.`\
 https://nytimes.com/athletic/5720921/2024/08/24/florida-state-upset-georgia-tech-ireland/

@@ -1,3 +1,7 @@
+**Panthers final roster projection: Receiver on the trading block? Help at edge rusher needed?**\
+`Terrace Marshall scored Saturday against the Bills. Will he earn a spot on the Panthers' 53-man roster or another team's?`\
+https://nytimes.com/athletic/5720978/2024/08/24/carolina-panthers-final-roster-projection/
+
 **Cowboys' DaRon Bland (foot) likely out 6-8 weeks**\
 `Bland's injury is a huge blow to the Cowboys after he led the NFL in interceptions (nine) and interception return yards (209) in 2023.`\
 https://nytimes.com/athletic/5720952/2024/08/24/daron-bland-surgery-dallas-cowboys/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/24/opinion/population-decline.html
 **Deion Sanders after reporter ban: 'I'm not built to hate'**\
 `Sanders says he doesn’t feel persecuted or propelled by outside criticism after the university banned Denver Post columnist Sean Keeler.`\
 https://nytimes.com/athletic/5720900/2024/08/24/deion-sanders-colorado-reporter-ban/
-
-**Emma Raducanu knows tennis moves on quickly more than most, from Andy Murray or not**\
-`The 2021 U.S. Open champion has faced criticism for minimising Murray's impact. In reality, it's tennis that is indifferent to its players`\
-https://nytimes.com/athletic/5720817/2024/08/24/emma-raducanu-us-open-andy-murray/
 
