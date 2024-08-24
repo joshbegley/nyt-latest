@@ -1,5 +1,9 @@
+**The Briefing: Manchester City 4 Ipswich 1 - Haaland hat-trick, City's 191-second blitz**\
+`Three goals in less than four minutes put City in control and Haaland capped the afternoon off with a hat-trick`\
+https://nytimes.com/athletic/5718688/2024/08/24/manchester-city-ipswich-haaland-result/
+
 **The Briefing: Tottenham 4 Everton 0 - Bissouma's stunner, Odobert's instant impression and central Son**\
-`Yves Bissouma, a double from Son and Cristian Romero helped Spurs rip apart Everton - The Athletic analysed a routine win`\
+`Yves Bissouma, a double from Son and Cristian Romero helped Spurs rip apart Everton - The Athletic analyses a routine win`\
 https://nytimes.com/athletic/5718689/2024/08/24/tottenham-4-everton-0-bissoumas-odobert-son-heung-min/
 
 **How Media Outlets on the Right and Left Covered Kennedy’s Trump Endorsement**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5719108/2024/08/24/canada-drone-herdman-olympics-in
 **Real Madrid's Lunin expected to stay at club this summer**\
 `Real Madrid goalkeeper Andriy Lunin is expected to stay at the club this summer.`\
 https://nytimes.com/athletic/5720609/2024/08/24/real-madrid-lunin-stay-transfer/
-
-**The Briefing: Brighton 2 Man United 1 - Ten Hag's false nines, Amad's influence, transfers to come?**\
-`Manchester United's defensive deficiencies again came to the fore in defeat to Brighton - Carl Anka analyses the action`\
-https://nytimes.com/athletic/5718687/2024/08/24/brighton-2-manchester-united-1-ten-hag-amad/
 
