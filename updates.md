@@ -1,3 +1,11 @@
+**Hummels in advanced talks with Real Sociedad**\
+`Real Sociedad are in advanced talks to sign Mats Hummels as a free agent.`\
+https://nytimes.com/athletic/5683366/2024/08/24/mats-hummels-real-sociedad-transfer/
+
+**Final Falcons 53-man roster projection: Did DeAngelo Malone, Kentavius Street secure roles?**\
+`NFL teams must trim their rosters to the regular season limit of 53 by Tuesday. Atlanta has some tough decisions to make at several spots.`\
+https://nytimes.com/athletic/5720178/2024/08/24/falcons-roster-projection-final-53/
+
 **Celtic's Matt O'Riley close to Brighton move**\
 `Brighton &amp; Hove Albion are close to completing the signing of Matt O&#8217;Riley from Celtic.`\
 https://nytimes.com/athletic/5671450/2024/08/24/matt-oriley-brighton-transfer/
