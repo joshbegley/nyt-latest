@@ -1,3 +1,7 @@
+**What we learned about Michigan this preseason: Is there any clarity at QB?**\
+`The start of the Sherrone Moore era of Michigan football is upon us. Here's what we know and don't know about the Wolverines after camp.`\
+https://nytimes.com/athletic/5719953/2024/08/24/michigan-football-quarterbacks-preseason-camp/
+
 **Childhood Stardom Is Rough. Jenna Ortega Is Still Recovering.**\
 `The actress talks about learning to protect herself and the hard lessons of early fame.`\
 https://nytimes.com/2024/08/24/magazine/jenna-ortega-interview.html
