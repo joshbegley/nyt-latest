@@ -1,3 +1,7 @@
+**Onstage Together in Arizona, Trump and Kennedy Signal New Alliance**\
+`Robert F. Kennedy Jr., who suspended his independent presidential bid earlier on Friday, was embraced by Donald J. Trump at a rally in Arizona. But the union’s political impact remains unclear.`\
+https://nytimes.com/2024/08/23/us/politics/trump-and-kennedy-arizona-endorsement.html
+
 **Words Used at the Democratic and Republican National Conventions**\
 `Counting frequently spoken words and phrases at both events.`\
 https://nytimes.com/interactive/2024/08/23/us/politics/rnc-dnc-words.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/world/europe/100000009655818/germany-solingen-knife-at
 **Meet the Rural Voters Who Could Swing North Carolina’s Election**\
 `Residents in Wilson County worry about the rising costs of goods and housing — but mostly they just want to get along.`\
 https://nytimes.com/interactive/2024/08/23/us/elections/north-carolina-rural-voters.html
-
-**A Campaign That Just Started Is Almost Over**\
-`Here’s my road map to the campaign’s remaining 74 days. If you blink, you might miss it.`\
-https://nytimes.com/2024/08/23/us/politics/rfk-jr-campaign.html
 
