@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5720817/2024/08/24/emma-raducanu-us-open-andy-murray/
 
 **The Briefing: Villa 0 Arsenal 2 - Should Trossard start? What's wrong with Watkins? Raya's rewards**\
-`Arsenal dug in to claim an impressive win at Villa Park - these are the key talking points from an intriguing encounter`\
+`Arsenal dug in to claim an impressive win at Villa Park. These are the key talking points from an intriguing encounter`\
 https://nytimes.com/athletic/5718704/2024/08/24/aston-villa-0-arsenal-2-trossard-raya-watkins/
 
 **Bowen says ball boy ‘all good’ after appearing to get stuck under West Ham fans**\

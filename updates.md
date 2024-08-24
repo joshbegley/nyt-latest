@@ -1,3 +1,7 @@
+**The Briefing: Villa 0 Arsenal 2 - Should Trossard start? What's wrong with Watkins? Raya's rewards**\
+`Arsenal dug in to claim an impressive win at Villa Park. These are the key talking points from an intriguing encounter`\
+https://nytimes.com/athletic/5718704/2024/08/24/aston-villa-0-arsenal-2-trossard-raya-watkins/
+
 **Emma Raducanu knows tennis moves on quickly more than most, from Andy Murray or not**\
 `The 2021 U.S. Open champion has faced criticism for minimising Murray's impact. In reality, it's tennis that is indifferent to its players`\
 https://nytimes.com/athletic/5720817/2024/08/24/emma-raducanu-us-open-andy-murray/
