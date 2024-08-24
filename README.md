@@ -1,3 +1,15 @@
+**Emma Raducanu knows tennis moves on quickly more than most, from Andy Murray or not**\
+`The 2021 U.S. Open champion has faced criticism for minimising Murray's impact. In reality, it's tennis that is indifferent to its players`\
+https://nytimes.com/athletic/5720817/2024/08/24/emma-raducanu-us-open-andy-murray/
+
+**The Briefing: Villa 0 Arsenal 2 - Should Trossard start? What's wrong with Watkins? Raya's rewards**\
+`Arsenal dug in to claim an impressive win at Villa Park - these are the key talking points from an intriguing encounter`\
+https://nytimes.com/athletic/5718704/2024/08/24/aston-villa-0-arsenal-2-trossard-raya-watkins/
+
+**Bowen says ball boy ‘all good’ after appearing to get stuck under West Ham fans**\
+`West Ham United captain Jarrod Bowen says the Crystal Palace ball boy who avoided avoiding injury in their Premier League game at Selhurst Park is &#8220;all good.`\
+https://nytimes.com/athletic/5720818/2024/08/24/west-ham-ball-boy-crystal-palace/
+
 **Overlooked No More: Mabel Addis, Who Pioneered Storytelling in Video Gaming**\
 `She was a teacher when she participated in an educational experiment with IBM. As a result, she became the first female video game designer.`\
 https://nytimes.com/2024/08/24/obituaries/mabel-addis-overlooked.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5720830/2024/08/24/antonee-robinson-injury-surgery-
 **In Hawaii, a Sense of Alertness Without Panic Ahead of Tropical Storm Hone**\
 `Although the storm is not expected to pass directly over the Big Island, forecasters warned of threats including flooding and damaging winds.`\
 https://nytimes.com/2024/08/24/us/tropical-storm-hone-hawaii-residents.html
-
-**The Briefing: Manchester City 4 Ipswich 1 - Haaland hat-trick, City's 191-second blitz**\
-`Three goals in less than four minutes put City in control and Haaland capped the afternoon off with a hat-trick`\
-https://nytimes.com/athletic/5718688/2024/08/24/manchester-city-ipswich-haaland-result/
-
-**The Briefing: Tottenham 4 Everton 0 - Bissouma's stunner, Odobert's instant impression and central Son**\
-`Yves Bissouma, a double from Son and Cristian Romero helped Spurs rip apart Everton - The Athletic analyses a routine win`\
-https://nytimes.com/athletic/5718689/2024/08/24/tottenham-4-everton-0-bissouma-odobert-son-heung-min/
-
-**How Media Outlets on the Right and Left Covered Kennedy’s Trump Endorsement**\
-`Conservative coverage of Robert F. Kennedy Jr.’s decision to suspend his presidential campaign focused on the potential boon for the former president. Liberal outlets downplayed the impact it would have.`\
-https://nytimes.com/2024/08/24/business/media/rfk-jr-trump-endorsement-media.html
 
