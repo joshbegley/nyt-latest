@@ -1,3 +1,7 @@
+**Aidan Birr's walk-off field goal lifts Georgia Tech to upset of Florida State**\
+`Florida State falls to Georgia Tech in the season opener for college football.`\
+https://nytimes.com/athletic/5720921/2024/08/24/florida-state-upset-georgia-tech-ireland/
+
 **Ipswich sign Clarke from Sunderland in £15m deal**\
 `Ipswich Town have completed the signing of Jack Clarke from Sunderland.`\
 https://nytimes.com/athletic/5718632/2024/08/24/jack-clarke-ipswich-transfer/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5720818/2024/08/24/west-ham-ball-boy-crystal-palace
 **Overlooked No More: Mabel Addis, Who Pioneered Storytelling in Video Gaming**\
 `She was a teacher when she participated in an educational experiment with IBM. As a result, she became the first female video game designer.`\
 https://nytimes.com/2024/08/24/obituaries/mabel-addis-overlooked.html
-
-**F1 Dutch GP preview: Lando Norris can spoil Max Verstappen’s Zandvoort homecoming**\
-`Plus: Williams' weekend goes up in smoke, Ferrari and Mercedes scuffle and tumultuous weather looms.`\
-https://nytimes.com/athletic/5720729/2024/08/24/f1-dutch-gp-preview-verstappen-norris/
 
