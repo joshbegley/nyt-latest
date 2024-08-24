@@ -1,3 +1,11 @@
+**An Early, Original Print by W. Eugene Smith**\
+`W. Eugene Smith was known for his war photography. But a photo he took of a trough as a teenager in Wichita, Kan., helped kick-start his career.`\
+https://nytimes.com/2024/08/24/insider/an-early-original-print-by-w-eugene-smith.html
+
+**This Roasted Dill Salmon Is a Thing of Beauty**\
+`“I have made this numerous times, and it is one of my favorite recipes,” writes a reader.`\
+https://nytimes.com/2024/08/24/dining/how-to-roast-salmon.html
+
 **The N.F.L. May Soon Welcome a New Kind of Owner**\
 `At a meeting next week, team owners are expected to approve rules that would allow private equity firms to invest in their franchises.`\
 https://nytimes.com/2024/08/24/business/dealbook/nfl-football-private-equity.html
