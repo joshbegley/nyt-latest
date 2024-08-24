@@ -1,3 +1,7 @@
+**Canada drone scandal: How did it happen, questions over Herdman's role, what must change**\
+`There are continued concerns over drone usage in Canada and questions about the role of John Herdman, now in charge at Toronto FC`\
+https://nytimes.com/athletic/5719108/2024/08/24/canada-drone-herdman-olympics-investigation/
+
 **Real Madrid's Lunin expected to stay at club this summer**\
 `Real Madrid goalkeeper Andriy Lunin is expected to stay at the club this summer.`\
 https://nytimes.com/athletic/5720609/2024/08/24/real-madrid-lunin-stay-transfer/
