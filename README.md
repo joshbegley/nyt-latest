@@ -1,3 +1,7 @@
+**Mariners turn to unlikely hero, start the Dan Wilson era with a walk-off victory**\
+`It took a four-run rally and a walk-off hit, but the Mariners won Wilson's debut. "This is the start of something great, we hope."`\
+https://nytimes.com/athletic/5720470/2024/08/24/mariners-sf-giants-dan-wilson-debut/
+
 **The Hottest Commodity at the U.S. Open? Shade.**\
 `The tennis tournament, like the rest of New York City, is adapting to climate change.`\
 https://nytimes.com/2024/08/24/nyregion/us-open-nyc-climate-change.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5717648/2024/08/24/dodgers-shohei-ohtani-40-40/
 **Yankees' Aaron Judge on pace to hit 62 home runs: 'You're witnessing greatness'**\
 `Judge hit his 49th home run of the season in the Yankees' 3-0 win over the Rockies on Friday night.`\
 https://nytimes.com/athletic/5720048/2024/08/24/yankees-aaron-judge-home-runs-rockies/
-
-**Fantasy baseball notebook: Looking ahead to 2025, including a 'too early' draft**\
-`The Rates & Barrels podcast crew spent time looking ahead to 2025 this past week, and DVR shares the highlights, including an early draft.`\
-https://nytimes.com/athletic/5714570/2024/08/24/fantasy-baseball-notebook-early-look-2025-draft/
 
