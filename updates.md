@@ -1,3 +1,11 @@
+**Commanders to build Sean Taylor statue**\
+`Taylor, a fan favorite, had 302 career tackles, 12 interceptions, 41 passes defended and eight forced fumbles.`\
+https://nytimes.com/athletic/5721173/2024/08/24/sean-taylor-statue-washington-commanders/
+
+**Lilia Vu can feel another Women's Open championship in her grasp**\
+`Vu will begin Sunday's final round one shot back of Jiyai Shin and one shot ahead of Nelly Korda.`\
+https://nytimes.com/athletic/5720916/2024/08/24/lilia-vu-womens-open-jiyai-shin/
+
 **Ravens final 53-man roster projection: Toughest calls on defensive side of the ball**\
 `How many defensive backs will Baltimore keep on its 53-man roster heading into Week 1? And which receivers will make the final cut?`\
 https://nytimes.com/athletic/5720333/2024/08/24/baltimore-ravens-roster-53-man-projection/
