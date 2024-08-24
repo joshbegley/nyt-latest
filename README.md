@@ -1,3 +1,11 @@
+**Ronda Rousey Apologizes for Reposting Sandy Hook Conspiracy Video**\
+`The former U.F.C. star apologized after Reddit users asked her about the video she shared 11 years ago. She called it “the single most regrettable decision of my life.”`\
+https://nytimes.com/2024/08/24/us/ronda-rousey-sandy-hook-apology.html
+
+**Why Yankees’ CC Sabathia wishes Brett Gardner was at 2009 World Series celebration**\
+`“Gardy was such a big part of this culture," Sabathia said.`\
+https://nytimes.com/athletic/5721054/2024/08/24/yankees-cc-sabathia-brett-gardner-2009-world-series-celebration/
+
 **Shane van Gisbergen joins Trackhouse Racing for 2025 Cup Series**\
 `Team owner Justin Marks announced the move at Daytona International Speedway, the site of that night’s Cup race.`\
 https://nytimes.com/athletic/5721263/2024/08/24/shane-van-gisbergen-joins-trackhouse-racing/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5720333/2024/08/24/baltimore-ravens-roster-53-man-p
 **Rams roster prediction: Stetson Bennett at QB3, suspension affects OL, ILB sleeper**\
 `How will two suspensions affect the Rams' Week 1 roster? How man receivers will Sean McVay keep?`\
 https://nytimes.com/athletic/5720804/2024/08/24/la-rams-final-roster-projection/
-
-**Tom Brown Jr., World-Renowned Survivalist, Is Dead at 74**\
-`For decades, he ran a school in the New Jersey wilderness that taught thousands of students how to survive and even thrive in the great outdoors.`\
-https://nytimes.com/2024/08/24/nyregion/tom-brown-jr-dead.html
-
-**Vikings 53-man roster projection before cutdown day: Who earned the final spots?**\
-`Will Minnesota keep QB Jaren Hall on the final 53-man roster? And could one of the team's cornerbacks soon be traded?`\
-https://nytimes.com/athletic/5721043/2024/08/24/vikings-roster-53-man-projection/
 
