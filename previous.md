@@ -1,3 +1,7 @@
+**In Hawaii, a Sense of Alertness Without Panic Ahead of Tropical Storm Hone**\
+`Although the storm is not expected to pass directly over the Big Island, forecasters warned of threats including flooding and damaging winds.`\
+https://nytimes.com/2024/08/24/us/tropical-storm-hone-hawaii-residents.html
+
 **The Briefing: Manchester City 4 Ipswich 1 - Haaland hat-trick, City's 191-second blitz**\
 `Three goals in less than four minutes put City in control and Haaland capped the afternoon off with a hat-trick`\
 https://nytimes.com/athletic/5718688/2024/08/24/manchester-city-ipswich-haaland-result/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/24/dining/how-to-roast-salmon.html
 **Canada drone scandal: How did it happen, questions over Herdman's role, what must change**\
 `There are continued concerns over drone usage in Canada and questions about the role of John Herdman, now in charge at Toronto FC`\
 https://nytimes.com/athletic/5719108/2024/08/24/canada-drone-herdman-olympics-investigation/
-
-**Real Madrid's Lunin expected to stay at club this summer**\
-`Real Madrid goalkeeper Andriy Lunin is expected to stay at the club this summer.`\
-https://nytimes.com/athletic/5720609/2024/08/24/real-madrid-lunin-stay-transfer/
 

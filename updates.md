@@ -1,3 +1,7 @@
+**In Hawaii, a Sense of Alertness Without Panic Ahead of Tropical Storm Hone**\
+`Although the storm is not expected to pass directly over the Big Island, forecasters warned of threats including flooding and damaging winds.`\
+https://nytimes.com/2024/08/24/us/tropical-storm-hone-hawaii-residents.html
+
 **Explosions Outside a France Synagogue Were a Terrorist Attack, Prosecutors Say**\
 `Politicians quickly condemned the attack, at a time when antisemitic incidents have been on the rise in France.`\
 https://nytimes.com/2024/08/24/world/europe/france-synagogue-explosion-antisemitism.html
