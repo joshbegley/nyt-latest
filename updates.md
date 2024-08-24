@@ -1,3 +1,7 @@
+**Class of 2025 5-star DB Jonah Williams commits to Texas**\
+`Williams, ranked No. 10 overall in the 247Sports Composite, chose the Longhorns over LSU, Texas A&M, Oregon and USC.`\
+https://nytimes.com/athletic/5720564/2024/08/24/texas-recruiting-jonah-williams/
+
 **'Just personally, it's sad': Dodgers' decision to cut Jason Heyward hits home for Freddie Freeman**\
 `Heyward and Freeman have had a long-standing friendship since very early in their careers.`\
 https://nytimes.com/athletic/5721428/2024/08/24/dodgers-jason-heyward-freddie-freeman/
