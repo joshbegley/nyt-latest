@@ -1,3 +1,11 @@
+**Should We Be Worried About Population Decline?**\
+`Readers discuss a guest essay that argued that we should be.`\
+https://nytimes.com/2024/08/24/opinion/population-decline.html
+
+**Deion Sanders after reporter ban: 'I'm not built to hate'**\
+`Sanders says he doesn’t feel persecuted or propelled by outside criticism after the university banned Denver Post columnist Sean Keeler.`\
+https://nytimes.com/athletic/5720900/2024/08/24/deion-sanders-colorado-reporter-ban/
+
 **Emma Raducanu knows tennis moves on quickly more than most, from Andy Murray or not**\
 `The 2021 U.S. Open champion has faced criticism for minimising Murray's impact. In reality, it's tennis that is indifferent to its players`\
 https://nytimes.com/athletic/5720817/2024/08/24/emma-raducanu-us-open-andy-murray/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/24/us/politics/kamala-harris-father.html
 **Fire Destroys Grandstand From ‘A League of Their Own’**\
 `The field and wooden grandstand in Ontario, Calif., were the backdrop for the 1992 movie about a women’s baseball league.`\
 https://nytimes.com/2024/08/24/us/jay-littleton-baseball-field-fire.html
-
-**U.S. defender Robinson praised after recovery from two surgeries this summer**\
-`Fulham head coach Marco Silva has praised Antonee Robinson&#8217;s powers of recovery after the USMNT international impressed for his club despite undergoing surgery on his groin and his wrist during a demanding summer.`\
-https://nytimes.com/athletic/5720830/2024/08/24/antonee-robinson-injury-surgery-usmnt-fulham/
-
-**In Hawaii, a Sense of Alertness Without Panic Ahead of Tropical Storm Hone**\
-`Although the storm is not expected to pass directly over the Big Island, forecasters warned of threats including flooding and damaging winds.`\
-https://nytimes.com/2024/08/24/us/tropical-storm-hone-hawaii-residents.html
 

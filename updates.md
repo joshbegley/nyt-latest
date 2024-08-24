@@ -1,3 +1,11 @@
+**Should We Be Worried About Population Decline?**\
+`Readers discuss a guest essay that argued that we should be.`\
+https://nytimes.com/2024/08/24/opinion/population-decline.html
+
+**Deion Sanders after reporter ban: 'I'm not built to hate'**\
+`Sanders says he doesn’t feel persecuted or propelled by outside criticism after the university banned Denver Post columnist Sean Keeler.`\
+https://nytimes.com/athletic/5720900/2024/08/24/deion-sanders-colorado-reporter-ban/
+
 **The Briefing: Villa 0 Arsenal 2 - Should Trossard start? What's wrong with Watkins? Raya's rewards**\
 `Arsenal dug in to claim an impressive win at Villa Park. These are the key talking points from an intriguing encounter`\
 https://nytimes.com/athletic/5718704/2024/08/24/aston-villa-0-arsenal-2-trossard-raya-watkins/
