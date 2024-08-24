@@ -1,3 +1,7 @@
+**Tom Brown Jr., World-Renowned Survivalist, Is Dead at 74**\
+`For decades, he ran a school in the New Jersey wilderness that taught thousands of students how to survive and even thrive in the great outdoors.`\
+https://nytimes.com/2024/08/24/nyregion/tom-brown-jr-dead.html
+
 **Vikings 53-man roster projection before cutdown day: Who earned the final spots?**\
 `Will Minnesota keep QB Jaren Hall on the final 53-man roster? And could one of the team's cornerbacks soon be traded?`\
 https://nytimes.com/athletic/5721043/2024/08/24/vikings-roster-53-man-projection/

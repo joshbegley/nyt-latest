@@ -1,3 +1,7 @@
+**Tom Brown Jr., World-Renowned Survivalist, Is Dead at 74**\
+`For decades, he ran a school in the New Jersey wilderness that taught thousands of students how to survive and even thrive in the great outdoors.`\
+https://nytimes.com/2024/08/24/nyregion/tom-brown-jr-dead.html
+
 **Vikings 53-man roster projection before cutdown day: Who earned the final spots?**\
 `Will Minnesota keep QB Jaren Hall on the final 53-man roster? And could one of the team's cornerbacks soon be traded?`\
 https://nytimes.com/athletic/5721043/2024/08/24/vikings-roster-53-man-projection/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5720921/2024/08/24/florida-state-upset-georgia-tech
 **Ipswich sign Clarke from Sunderland in £15m deal**\
 `Ipswich Town have completed the signing of Jack Clarke from Sunderland.`\
 https://nytimes.com/athletic/5718632/2024/08/24/jack-clarke-ipswich-transfer/
-
-**Derek Jeter, former Yankees weigh in on whether Alex Rodriguez belongs in Monument Park**\
-`Rodriguez joined his fellow members of the 2009 World Series team at Yankees Old Timers Day on Saturday.`\
-https://nytimes.com/athletic/5720760/2024/08/24/derek-jeter-alex-rodriguez-yankees-monument-park/
 
