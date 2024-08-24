@@ -1,3 +1,7 @@
+**'Just personally, it's sad': Dodgers' decision to cut Jason Heyward hits home for Freddie Freeman**\
+`Heyward and Freeman have had a long-standing friendship since very early in their careers.`\
+https://nytimes.com/athletic/5721428/2024/08/24/dodgers-jason-heyward-freddie-freeman/
+
 **Eagles 53-man roster projection before final cuts**\
 `Final cuts will be made on Tuesday.`\
 https://nytimes.com/athletic/5720641/2024/08/24/philadelphia-eagles-preseason-53-man-roster-projection/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/24/us/ronda-rousey-sandy-hook-apology.html
 **Why Yankees’ CC Sabathia wishes Brett Gardner was at 2009 World Series celebration**\
 `“Gardy was such a big part of this culture," Sabathia said.`\
 https://nytimes.com/athletic/5721054/2024/08/24/yankees-cc-sabathia-brett-gardner-2009-world-series-celebration/
-
-**Shane van Gisbergen joins Trackhouse Racing for 2025 Cup Series**\
-`Team owner Justin Marks announced the move at Daytona International Speedway, the site of that night’s Cup race.`\
-https://nytimes.com/athletic/5721263/2024/08/24/shane-van-gisbergen-joins-trackhouse-racing/
 
