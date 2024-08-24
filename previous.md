@@ -1,3 +1,7 @@
+**Explosions Outside a France Synagogue Were a Terrorist Attack, Prosecutors Say**\
+`Politicians quickly condemned the attack, at a time when antisemitic incidents have been on the rise in France.`\
+https://nytimes.com/2024/08/24/world/europe/explosions-outside-a-france-synagogue-were-a-terrorist-attack-prosecutors-say.html
+
 **Biden’s Asylum Restrictions Are Working as Predicted, and as Warned**\
 `Border numbers are down significantly. But migrant activists say the restrictions President Biden imposed in June are weeding out people who may have legitimate claims of asylum.`\
 https://nytimes.com/2024/08/24/us/politics/biden-asylum-restrictions.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/24/us/iowa-monkey-torture.html
 **Cameroon coach alleges country's FA has physically threatened him, intimidated players**\
 `The Cameroon men&#8217;s national team head coach Marc Brys has alleged he has been subjected to &#8220;physical threats&#8221;, deprived of basic equipment and his players were sent threatening letters &#8220;designed to demoralise them&#8221; by the Cameroon Football Association (Fecafoot) during his first international window as head coach in June.`\
 https://nytimes.com/athletic/5717163/2024/08/24/marc-brys-cameroon-etoo/
-
-**What We Know About the Knife Attack in Germany That Killed 3**\
-`The police have launched a manhunt for the perpetrator, who stabbed people at a city festival before slipping away.`\
-https://nytimes.com/2024/08/24/world/europe/solingen-germany-knife-attack.html
 

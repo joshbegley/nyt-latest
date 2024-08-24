@@ -1,3 +1,7 @@
+**Explosions Outside a France Synagogue Were a Terrorist Attack, Prosecutors Say**\
+`Politicians quickly condemned the attack, at a time when antisemitic incidents have been on the rise in France.`\
+https://nytimes.com/2024/08/24/world/europe/explosions-outside-a-france-synagogue-were-a-terrorist-attack-prosecutors-say.html
+
 **Biden’s Asylum Restrictions Are Working as Predicted, and as Warned**\
 `Border numbers are down significantly. But migrant activists say the restrictions President Biden imposed in June are weeding out people who may have legitimate claims of asylum.`\
 https://nytimes.com/2024/08/24/us/politics/biden-asylum-restrictions.html
