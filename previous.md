@@ -1,3 +1,7 @@
+**Shane van Gisbergen joins Trackhouse Racing for 2025 Cup Series**\
+`Team owner Justin Marks announced the move at Daytona International Speedway, the site of that night’s Cup race.`\
+https://nytimes.com/athletic/5721263/2024/08/24/shane-van-gisbergen-joins-trackhouse-racing/
+
 **Boeing Starliner Astronauts Will Return to Earth in SpaceX Vehicle**\
 `NASA announced that two astronauts aboard the International Space Station will have their stay extended by several months and that they will return on a SpaceX capsule because of problems with the Boeing Starliner.`\
 https://nytimes.com/video/science/100000009656201/boeing-starliner-spacex.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/24/nyregion/tom-brown-jr-dead.html
 **Vikings 53-man roster projection before cutdown day: Who earned the final spots?**\
 `Will Minnesota keep QB Jaren Hall on the final 53-man roster? And could one of the team's cornerbacks soon be traded?`\
 https://nytimes.com/athletic/5721043/2024/08/24/vikings-roster-53-man-projection/
-
-**Mike Tomlin won’t say it yet, but it’s obvious: Russell Wilson is the Steelers’ QB1**\
-`Tomlin won't name a winner of the "competition" until next week, but everything points toward Wilson starting over Justin Fields.`\
-https://nytimes.com/athletic/5721013/2024/08/24/russell-wilson-justin-fields-steelers-qb-competition/
 

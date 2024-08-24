@@ -1,3 +1,7 @@
+**Shane van Gisbergen joins Trackhouse Racing for 2025 Cup Series**\
+`Team owner Justin Marks announced the move at Daytona International Speedway, the site of that night’s Cup race.`\
+https://nytimes.com/athletic/5721263/2024/08/24/shane-van-gisbergen-joins-trackhouse-racing/
+
 **Boeing Starliner Astronauts Will Return to Earth in SpaceX Vehicle**\
 `NASA announced that two astronauts aboard the International Space Station will have their stay extended by several months and that they will return on a SpaceX capsule because of problems with the Boeing Starliner.`\
 https://nytimes.com/video/science/100000009656201/boeing-starliner-spacex.html
