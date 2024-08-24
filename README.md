@@ -1,3 +1,7 @@
+**F1 Dutch GP preview: Lando Norris can spoil Max Verstappen’s Zandvoort homecoming**\
+`Plus: Williams' weekend goes up in smoke, Ferrari and Mercedes scuffle and tumultuous weather looms.`\
+https://nytimes.com/athletic/5720729/2024/08/24/f1-dutch-gp-preview-verstappen-norris/
+
 **‘Run, Kamala, Run’: Mention of Harris’s Father Was a Rare Homage to a Fleeting Figure**\
 `In her convention speech, Kamala Harris told of being inspired by her father, a prominent economist who was otherwise largely a footnote in her personal story.`\
 https://nytimes.com/2024/08/24/us/politics/kamala-harris-father.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/24/business/media/rfk-jr-trump-endorsement-media.htm
 **Explosions Outside a France Synagogue Were a Terrorist Attack, Prosecutors Say**\
 `Politicians quickly condemned the attack, at a time when antisemitic incidents have been on the rise in France.`\
 https://nytimes.com/2024/08/24/world/europe/france-synagogue-explosion-antisemitism.html
-
-**Biden’s Asylum Restrictions Are Working as Predicted, and as Warned**\
-`Border numbers are down significantly. But migrant activists say the restrictions President Biden imposed in June are weeding out people who may have legitimate claims of asylum.`\
-https://nytimes.com/2024/08/24/us/politics/biden-asylum-restrictions.html
 
