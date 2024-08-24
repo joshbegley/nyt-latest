@@ -1,3 +1,7 @@
+**Dodgers' Shohei Ohtani hits walk-off grand slam to become MLB's sixth 40-40 player**\
+`Manager Dave Roberts said the 40-40 milestone has been on Ohtani's radar since spring training.`\
+https://nytimes.com/athletic/5717648/2024/08/24/dodgers-shohei-ohtani-40-40/
+
 **Yankees' Aaron Judge on pace to hit 62 home runs: 'You're witnessing greatness'**\
 `Judge hit his 49th home run of the season in the Yankees' 3-0 win over the Rockies on Friday night.`\
 https://nytimes.com/athletic/5720048/2024/08/24/yankees-aaron-judge-home-runs-rockies/
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/5714570/2024/08/24/fantasy-baseball-notebook-early-
 https://nytimes.com/athletic/5720088/2024/08/24/leeds-united-willy-gnonto-transfer/
 
 **MLBPA asks judge to hold Bad Bunny-backed player agency in contempt**\
-`The MLBPA claims that Rimas Sports is defying an order to handle their dispute according to the union’s agent regulations.`\
+`The MLBPA claims Rimas Sports is defying an order to handle its dispute according to the union's agent regulations.`\
 https://nytimes.com/athletic/5720350/2024/08/24/mlbpa-bad-bunny-agency-contempt-court/
 
 **Gerrard was tipped to be Klopp's successor - where is his managerial career at?**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5719153/2024/08/24/raheem-sterling-transfer-options
 **Stone Island: How a luxury label became a must-have footballing fashion item**\
 `Stone Island clothing was associated with hooliganism in football in the 1980s – now it is a label the likes of Guardiola and Haaland wear`\
 https://nytimes.com/athletic/5441980/2024/08/24/stone-island/
-
-**In a Grim Palestinian Refugee Community, People See Hope in Hamas**\
-`In Ein al-Hilweh, Lebanon, long mired in poverty and despair, Hamas recruitment is up and the downtrodden air has given way to defiance and celebration.`\
-https://nytimes.com/2024/08/24/world/middleeast/palestinian-refugees-hamas-lebanon.html
 

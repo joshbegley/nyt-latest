@@ -1,3 +1,11 @@
+**Dodgers' Shohei Ohtani hits walk-off grand slam to become MLB's sixth 40-40 player**\
+`Manager Dave Roberts said the 40-40 milestone has been on Ohtani's radar since spring training.`\
+https://nytimes.com/athletic/5717648/2024/08/24/dodgers-shohei-ohtani-40-40/
+
+**MLBPA asks judge to hold Bad Bunny-backed player agency in contempt**\
+`The MLBPA claims Rimas Sports is defying an order to handle its dispute according to the union's agent regulations.`\
+https://nytimes.com/athletic/5720350/2024/08/24/mlbpa-bad-bunny-agency-contempt-court/
+
 **Yankees' Aaron Judge on pace to hit 62 home runs: 'You're witnessing greatness'**\
 `Judge hit his 49th home run of the season in the Yankees' 3-0 win over the Rockies on Friday night.`\
 https://nytimes.com/athletic/5720048/2024/08/24/yankees-aaron-judge-home-runs-rockies/
