@@ -1,3 +1,7 @@
+**Fire Destroys Grandstand From ‘A League of Their Own’**\
+`The field and wooden grandstand in Ontario, Calif., were the backdrop for the 1992 movie about a women’s baseball league.`\
+https://nytimes.com/2024/08/24/us/jay-littleton-baseball-field-fire.html
+
 **U.S. defender Robinson praised after recovery from two surgeries this summer**\
 `Fulham head coach Marco Silva has praised Antonee Robinson&#8217;s powers of recovery after the USMNT international impressed for his club despite undergoing surgery on his groin and his wrist during a demanding summer.`\
 https://nytimes.com/athletic/5720830/2024/08/24/antonee-robinson-injury-surgery-usmnt-fulham/
