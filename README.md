@@ -1,3 +1,7 @@
+**Childhood Stardom Is Rough. Jenna Ortega Is Still Recovering.**\
+`The actress talks about learning to protect herself and the hard lessons of early fame.`\
+https://nytimes.com/2024/08/24/magazine/jenna-ortega-interview.html
+
 **Why Harris’s Barrier-Breaking Bid Feels Nothing Like Hillary Clinton’s**\
 `The first-female-president energy of 2016 has been replaced by a more serious tone, with Democrats warning gravely of the new frontiers in the post-Roe era.`\
 https://nytimes.com/2024/08/24/us/politics/harris-clinton-women-feminism.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/24/us/politics/ciscomani-reelection-immigration.html
 **Liza Colón-Zayas’s Medallion**\
 `The heirloom, passed down by her grandmother, connects the Emmy-nominated actress to her Puerto Rican heritage.`\
 https://nytimes.com/2024/08/24/style/liza-colon-zayass-medallion.html
-
-**Sometimes Protest Movements Are a Slow, Slow Burn**\
-`In “To the Success of Our Hopeless Cause,” Benjamin Nathans takes stock of the generation of dissidents who helped loosen the bonds of tyranny in the Soviet Union.`\
-https://nytimes.com/2024/08/24/books/review/to-the-success-of-our-hopeless-cause-benjamin-nathans.html
 
