@@ -1,3 +1,7 @@
+**Real Madrid's Lunin expected to stay at club this summer**\
+`Real Madrid goalkeeper Andriy Lunin is expected to stay at the club this summer.`\
+https://nytimes.com/athletic/5720609/2024/08/24/real-madrid-lunin-stay-transfer/
+
 **The Briefing: Brighton 2 Man United 1 - Ten Hag's false nines, Amad's influence, transfers to come?**\
 `Manchester United's defensive deficiencies again came to the fore in defeat to Brighton - Carl Anka analyses the action`\
 https://nytimes.com/athletic/5718687/2024/08/24/brighton-2-manchester-united-1-ten-hag-amad/
@@ -30,4 +34,3 @@ https://nytimes.com/2024/08/24/business/dealbook/nfl-football-private-equity.htm
 `His bid to buy Paramount pits one son of a billionaire against the son of another.`\
 https://nytimes.com/2024/08/24/business/dealbook/edgar-bronfman-paramount.html
 
-**New York Is Huge. These Books Help Cut It Down to Size.**\
