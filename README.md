@@ -1,3 +1,7 @@
+**Canada drone scandal: How did it happen, questions over Herdman's role, what must change**\
+`There are continued concerns over drone usage in Canada and questions about the role of John Herdman, now in charge at Toronto FC`\
+https://nytimes.com/athletic/5719108/2024/08/24/canada-drone-herdman-olympics-investigation/
+
 **Real Madrid's Lunin expected to stay at club this summer**\
 `Real Madrid goalkeeper Andriy Lunin is expected to stay at the club this summer.`\
 https://nytimes.com/athletic/5720609/2024/08/24/real-madrid-lunin-stay-transfer/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/24/world/europe/yacht-sinking-sicily.html
 **The N.F.L. May Soon Welcome a New Kind of Minority Owner**\
 `At a meeting next week, team owners are expected to approve rules that would allow private equity firms to invest in their franchises.`\
 https://nytimes.com/2024/08/24/business/dealbook/nfl-football-private-equity.html
-
-**Who Is Edgar Bronfman Jr., Paramount’s 11th-Hour Suitor?**\
-`His bid to buy Paramount pits one son of a billionaire against the son of another.`\
-https://nytimes.com/2024/08/24/business/dealbook/edgar-bronfman-paramount.html
 
