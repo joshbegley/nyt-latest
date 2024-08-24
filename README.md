@@ -1,3 +1,7 @@
+**U.S. defender Robinson praised after recovery from two surgeries this summer**\
+`Fulham head coach Marco Silva has praised Antonee Robinson&#8217;s powers of recovery after the USMNT international impressed for his club despite undergoing surgery on his groin and his wrist during a demanding summer.`\
+https://nytimes.com/athletic/5720830/2024/08/24/antonee-robinson-injury-surgery-usmnt-fulham/
+
 **In Hawaii, a Sense of Alertness Without Panic Ahead of Tropical Storm Hone**\
 `Although the storm is not expected to pass directly over the Big Island, forecasters warned of threats including flooding and damaging winds.`\
 https://nytimes.com/2024/08/24/us/tropical-storm-hone-hawaii-residents.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/24/insider/an-early-original-print-by-w-eugene-smith
 **This Roasted Dill Salmon Is a Thing of Beauty**\
 `“I have made this numerous times, and it is one of my favorite recipes,” one reader said.`\
 https://nytimes.com/2024/08/24/dining/how-to-roast-salmon.html
-
-**Canada drone scandal: How did it happen, questions over Herdman's role, what must change**\
-`There are continued concerns over drone usage in Canada and questions about the role of John Herdman, now in charge at Toronto FC`\
-https://nytimes.com/athletic/5719108/2024/08/24/canada-drone-herdman-olympics-investigation/
 
