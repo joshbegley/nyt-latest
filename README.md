@@ -10,7 +10,7 @@ https://nytimes.com/2024/08/24/books/hettie-jones-dead.html
 `Wilson, the longtime catcher for Piniella's Seattle teams, was named as the franchise's manager on Thursday.`\
 https://nytimes.com/athletic/5721002/2024/08/24/mariners-lou-piniella-dan-wilson/
 
-**Aidan Birr's walk-off field goal lifts Georgia Tech to upset of Florida State**\
+**Season-opening upset: How did Georgia Tech knock off FSU?**\
 `No. 10 Florida State falls to Georgia Tech in the season opener for college football in an ACC showdown in Ireland.`\
 https://nytimes.com/athletic/5720921/2024/08/24/florida-state-upset-georgia-tech-ireland/
 
