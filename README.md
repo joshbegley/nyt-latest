@@ -1,3 +1,23 @@
+**The Cubs' outlook should be much brighter with 2 Rookie of the Year candidates**\
+`The Cubs added two productive rookies, but they're in a worse position in the standings than they were at the end of last season.`\
+https://nytimes.com/athletic/5720087/2024/08/24/cubs-rookie-of-the-year-shota-imanaga-michael-busch/
+
+**Deion Sanders talks a lot about character but his bully tactics show very little of it**\
+`As a head coach, Sanders must handle criticism. But he's never done it well, going back to his days as a pro football and baseball player.`\
+https://nytimes.com/athletic/5720229/2024/08/24/deion-sanders-sean-keeler-colorado-college-football/
+
+**With Freight Off the Rails, Rare Open Tracks for Passenger Trains**\
+`The brief lockout of freight railway workers gave Via Rail Canada trains a temporary reprieve from their second-class status.`\
+https://nytimes.com/2024/08/24/world/canada/canada-freight-via-rail.html
+
+**Wordle Review No. 1,163**\
+`Scroll down for hints and conversation about the puzzle for August 25, 2024.`\
+https://nytimes.com/2024/08/24/crosswords/wordle-review-1163.html
+
+**The Connections Companion No. 441**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 25, 2024.`\
+https://nytimes.com/2024/08/24/crosswords/connections-companion-441.html
+
 **The DMZ Is an Unhealed Wound for Korea. It’s Also a Source of Great Honey.**\
 `The heavily fortified area separating North and South Korea is home to a biodiverse landscape and is a place of deep meaning for nearby farmers whose bees can fly freely through it.`\
 https://nytimes.com/2024/08/24/world/asia/south-korea-dmz-honey.html
@@ -13,24 +33,4 @@ https://nytimes.com/2024/08/24/magazine/jenna-ortega-interview.html
 **Why Harris’s Barrier-Breaking Bid Feels Nothing Like Hillary Clinton’s**\
 `The first-female-president energy of 2016 has been replaced by a more serious tone, with Democrats warning gravely of the new frontiers in the post-Roe era.`\
 https://nytimes.com/2024/08/24/us/politics/harris-clinton-women-feminism.html
-
-**Trump’s Carefully Scripted Week Kept Veering Off Script**\
-`Despite calls by his advisers to focus on the issues, former President Donald J. Trump has made it clear that he intends to keep running his campaign his way.`\
-https://nytimes.com/2024/08/24/us/politics/trump-campaign-2024.html
-
-**NASA to Say if Boeing Starliner Astronauts Will Stay Longer on Space Station**\
-`The agency’s leaders are meeting on Saturday to decide whether Suni Williams and Butch Wilmore can safely fly home to Earth on the vehicle that carried them to orbit.`\
-https://nytimes.com/2024/08/24/science/nasa-starliner-astronauts.html
-
-**Rajeev Ram and His Partner Just Keep Winning U.S. Open Doubles**\
-`They have won three years in a row and are on an 18-match winning streak.`\
-https://nytimes.com/2024/08/24/sports/tennis/us-open-rajeev-ram-doubles.html
-
-**Ancient Tablets Foretold Doom Awaiting Babylonian Kings**\
-`A new translation of cuneiform relics from the second millennium B.C. highlights the warnings that astrologers saw in eclipses.`\
-https://nytimes.com/2024/08/24/science/omens-babylonians-tablets-eclipses.html
-
-**The Hunt for the Next ‘Baby Reindeer’**\
-`Inside the Edinburgh Festival Fringe`\
-https://nytimes.com/2024/08/24/podcasts/the-hunt-for-the-next-baby-reindeer.html
 
