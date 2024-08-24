@@ -1,3 +1,7 @@
+**Packers 53-man projection: Is the Week 1 kicker currently on the roster?**\
+`Green Bay has a couple of tricky roster decisions to make before Tuesday's cutdown deadline.`\
+https://nytimes.com/athletic/5721248/2024/08/24/packers-roster-53-man-projection/
+
 **Chargers 53-man roster projection: A close call between Simi Fehoko and Brenden Rice**\
 `It's unlikely the Chargers will keep more than six receivers and Fehoko's production — including Saturday's TD — gives him the edge.`\
 https://nytimes.com/athletic/5721027/2024/08/24/chargers-roster-projection-simi-fehoko-brenden-rice/
@@ -29,8 +33,4 @@ https://nytimes.com/video/science/100000009656201/boeing-starliner-spacex.html
 **Final Bills 53-man roster projection as the preseason ends**\
 `Just a handful of positions were up for grabs.`\
 https://nytimes.com/athletic/5720909/2024/08/24/final-buffalo-bills-53-man-roster-projection-preseason/
-
-**Commanders to build Sean Taylor statue**\
-`Taylor, a fan favorite, had 302 career tackles, 12 interceptions, 41 passes defended and eight forced fumbles.`\
-https://nytimes.com/athletic/5721173/2024/08/24/sean-taylor-statue-washington-commanders/
 

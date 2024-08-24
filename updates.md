@@ -1,3 +1,7 @@
+**Packers 53-man projection: Is the Week 1 kicker currently on the roster?**\
+`Green Bay has a couple of tricky roster decisions to make before Tuesday's cutdown deadline.`\
+https://nytimes.com/athletic/5721248/2024/08/24/packers-roster-53-man-projection/
+
 **Chargers 53-man roster projection: A close call between Simi Fehoko and Brenden Rice**\
 `It's unlikely the Chargers will keep more than six receivers and Fehoko's production — including Saturday's TD — gives him the edge.`\
 https://nytimes.com/athletic/5721027/2024/08/24/chargers-roster-projection-simi-fehoko-brenden-rice/
