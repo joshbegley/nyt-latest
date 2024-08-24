@@ -1,3 +1,7 @@
+**On Ukraine’s Independence Day, Zelensky Celebrates Push Into Russia**\
+`Although the cross-border offensive carries risks, it has been a rare recent battlefield success for Ukrainian troops and caught Moscow flat-footed.`\
+https://nytimes.com/2024/08/24/world/europe/zelensky-independence-day-ukraine-russia-offensive.html
+
 **Hummels in advanced talks with Real Sociedad**\
 `Real Sociedad are in advanced talks to sign Mats Hummels as a free agent.`\
 https://nytimes.com/athletic/5683366/2024/08/24/mats-hummels-real-sociedad-transfer/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/24/opinion/harris-trump-housing-inflation.html
 **Bangladesh Needs a New Story**\
 `My country must break the cycle of denial and revenge that has divided and held it back for decades.`\
 https://nytimes.com/2024/08/24/opinion/bangladesh-revolution-memory.html
-
-**Daffy Donald, Turning Pea Green With Envy**\
-`Trump, who usually keeps others off-balance, is unbalanced by Kamala.`\
-https://nytimes.com/2024/08/24/opinion/trump-harris-dnc-election.html
 
