@@ -1,3 +1,7 @@
+**Onstage Together in Arizona, Trump and Kennedy Signal New Alliance**\
+`Robert F. Kennedy Jr., who suspended his independent presidential bid earlier on Friday, was embraced by Donald J. Trump at a rally in Arizona. But the union’s political impact remains unclear.`\
+https://nytimes.com/2024/08/23/us/politics/trump-and-kennedy-arizona-endorsement.html
+
 **Words Used at the Democratic and Republican National Conventions**\
 `Counting frequently spoken words and phrases at both events.`\
 https://nytimes.com/interactive/2024/08/23/us/politics/rnc-dnc-words.html
