@@ -1,3 +1,7 @@
+**‘Run, Kamala, Run’: Mention of Harris’s Father Was a Rare Homage to a Fleeting Figure**\
+`In her convention speech, Kamala Harris told of being inspired by her father, a prominent economist who was otherwise largely a footnote in her personal story.`\
+https://nytimes.com/2024/08/24/us/politics/kamala-harris-father.html
+
 **Fire Destroys Grandstand From ‘A League of Their Own’**\
 `The field and wooden grandstand in Ontario, Calif., were the backdrop for the 1992 movie about a women’s baseball league.`\
 https://nytimes.com/2024/08/24/us/jay-littleton-baseball-field-fire.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/24/world/europe/france-synagogue-explosion-antisemit
 **Biden’s Asylum Restrictions Are Working as Predicted, and as Warned**\
 `Border numbers are down significantly. But migrant activists say the restrictions President Biden imposed in June are weeding out people who may have legitimate claims of asylum.`\
 https://nytimes.com/2024/08/24/us/politics/biden-asylum-restrictions.html
-
-**An Early, Original Print by W. Eugene Smith**\
-`W. Eugene Smith was known for his war photography. But a photo he took of a trough as a teenager in Wichita, Kan., helped kick-start his career.`\
-https://nytimes.com/2024/08/24/insider/an-early-original-print-by-w-eugene-smith.html
 

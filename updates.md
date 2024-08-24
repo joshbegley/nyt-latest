@@ -1,3 +1,7 @@
+**‘Run, Kamala, Run’: Mention of Harris’s Father Was a Rare Homage to a Fleeting Figure**\
+`In her convention speech, Kamala Harris told of being inspired by her father, a prominent economist who was otherwise largely a footnote in her personal story.`\
+https://nytimes.com/2024/08/24/us/politics/kamala-harris-father.html
+
 **Fire Destroys Grandstand From ‘A League of Their Own’**\
 `The field and wooden grandstand in Ontario, Calif., were the backdrop for the 1992 movie about a women’s baseball league.`\
 https://nytimes.com/2024/08/24/us/jay-littleton-baseball-field-fire.html
