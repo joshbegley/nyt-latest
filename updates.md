@@ -1,3 +1,7 @@
+**Words Used at the Democratic and Republican National Conventions**\
+`Counting frequently spoken words and phrases at both events.`\
+https://nytimes.com/interactive/2024/08/23/us/politics/rnc-dnc-words.html
+
 **D-Backs' Jordan Montgomery says Scott Boras 'kind of butchered' his free-agency negotiations**\
 `Jordan Montgomery, fresh off his October heroics with the Texas Rangers, appeared positioned for a free-agent payday.`\
 https://nytimes.com/athletic/5720161/2024/08/23/jordan-montgomery-scott-boras-butchered-free-agency/
