@@ -1,3 +1,7 @@
+**How Media Outlets on the Right and Left Covered Kennedy’s Trump Endorsement**\
+`Conservative coverage of Robert F. Kennedy Jr.’s decision to suspend his presidential campaign focused on the potential boon for the former president. Liberal outlets downplayed the impact it would have.`\
+https://nytimes.com/2024/08/24/business/media/rfk-jr-trump-endorsement-media.html
+
 **Explosions Outside a France Synagogue Were a Terrorist Attack, Prosecutors Say**\
 `Politicians quickly condemned the attack, at a time when antisemitic incidents have been on the rise in France.`\
 https://nytimes.com/2024/08/24/world/europe/explosions-outside-a-france-synagogue-were-a-terrorist-attack-prosecutors-say.html

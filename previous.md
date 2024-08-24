@@ -1,3 +1,7 @@
+**How Media Outlets on the Right and Left Covered Kennedy’s Trump Endorsement**\
+`Conservative coverage of Robert F. Kennedy Jr.’s decision to suspend his presidential campaign focused on the potential boon for the former president. Liberal outlets downplayed the impact it would have.`\
+https://nytimes.com/2024/08/24/business/media/rfk-jr-trump-endorsement-media.html
+
 **Explosions Outside a France Synagogue Were a Terrorist Attack, Prosecutors Say**\
 `Politicians quickly condemned the attack, at a time when antisemitic incidents have been on the rise in France.`\
 https://nytimes.com/2024/08/24/world/europe/explosions-outside-a-france-synagogue-were-a-terrorist-attack-prosecutors-say.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5718687/2024/08/24/brighton-2-manchester-united-1-t
 **Iowa Man Helped Distribute ‘Sadistic’ Videos Showing Torture of Monkeys, U.S. Says**\
 `Philip Colt Moss, 41, paid another man for videos of monkeys being sexually abused, tortured and killed, prosecutors said. A child in Indonesia made the videos, according to a previous indictment.`\
 https://nytimes.com/2024/08/24/us/iowa-monkey-torture.html
-
-**Cameroon coach alleges country's FA has physically threatened him, intimidated players**\
-`The Cameroon men&#8217;s national team head coach Marc Brys has alleged he has been subjected to &#8220;physical threats&#8221;, deprived of basic equipment and his players were sent threatening letters &#8220;designed to demoralise them&#8221; by the Cameroon Football Association (Fecafoot) during his first international window as head coach in June.`\
-https://nytimes.com/athletic/5717163/2024/08/24/marc-brys-cameroon-etoo/
 
