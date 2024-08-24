@@ -1,3 +1,7 @@
+**Affectionate Way to Walk**\
+`Ryan McCarty’s Saturday puzzle takes us on an exhilarating path.`\
+https://nytimes.com/2024/08/23/crosswords/daily-puzzle-2024-08-24.html
+
 **Jose Altuve gifts superfan bat after home run blast**\
 `“I asked him, ‘If you hit a home run, can I have your bat?,’” said Christopher Disalvo, a 4-foot-4 infielder with a baseball obsession.`\
 https://nytimes.com/athletic/5720215/2024/08/23/jose-altuve-bat-fan-astros/
