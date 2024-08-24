@@ -1,4 +1,8 @@
 **The Briefing: Brighton 2 Man United 1 - Ten Hag's false nines, Amad's influence, transfers to come?**\
+`Manchester United's defensive deficiencies again came to the fore in defeat to Brighton - Carl Anka analyses the action`\
+https://nytimes.com/athletic/5718687/2024/08/24/brighton-2-manchester-united-1-ten-hag-amad/
+
+**The Briefing: Brighton 2 Man United 1 - Ten Hag's false nines, Amad's influence, transfers to come?**\
 `Manchester United's defensive deficiencies again came to the fore in defeat to Brighton - Carl Anka analysed the action`\
 https://nytimes.com/athletic/5718687/2024/08/24/brighton-2-manchester-united-1-ten-hag-amad/
 
