@@ -1,3 +1,7 @@
+**Ravens final 53-man roster projection: Toughest calls on defensive side of the ball**\
+`How many defensive backs will Baltimore keep on its 53-man roster heading into Week 1? And which receivers will make the final cut?`\
+https://nytimes.com/athletic/5720333/2024/08/24/baltimore-ravens-roster-53-man-projection/
+
 **Rams roster prediction: Stetson Bennett at QB3, suspension affects OL, ILB sleeper**\
 `How will two suspensions affect the Rams' Week 1 roster? How man receivers will Sean McVay keep?`\
 https://nytimes.com/athletic/5720804/2024/08/24/la-rams-final-roster-projection/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/24/books/hettie-jones-dead.html
 **Former Mariners manager Lou Piniella praises Dan Wilson, the team's new skipper**\
 `Wilson, the longtime catcher for Piniella's Seattle teams, was named as the franchise's manager on Thursday.`\
 https://nytimes.com/athletic/5721002/2024/08/24/mariners-lou-piniella-dan-wilson/
-
-**Season-opening upset: How did Georgia Tech knock off FSU?**\
-`No. 10 Florida State falls to Georgia Tech in the season opener for college football in an ACC showdown in Ireland.`\
-https://nytimes.com/athletic/5720921/2024/08/24/florida-state-upset-georgia-tech-ireland/
 
