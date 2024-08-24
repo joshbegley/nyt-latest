@@ -1,3 +1,7 @@
+**Mets' Paul Blackburn injured in lopsided loss to Padres: 'It doesn't feel great'**\
+`The Mets struck out 14 times, tying their season-high, as they fell another game behind the Braves.`\
+https://nytimes.com/athletic/5720423/2024/08/24/mets-paul-blackburn-injured/
+
 **Raiders 53-man roster projection: Is Tyreik McAllister's big game enough to earn a spot?**\
 `McAllister had an 81-yard punt return and a 35-yard catch for a touchdown in the Raiders' preseason finale against the 49ers.`\
 https://nytimes.com/athletic/5715616/2024/08/24/raiders-53-man-roster-projection-tyreik-mcallister/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5720350/2024/08/24/mlbpa-bad-bunny-agency-contempt-
 **Gerrard was tipped to be Klopp's successor - where is his managerial career at?**\
 `As Gerrard begins his second season at Al Ettifaq, Arne Slot will manage his first Premier League match at Anfield – what could have been...`\
 https://nytimes.com/athletic/5715303/2024/08/24/steven-gerrard-saudi-managerial-career/
-
-**Textor to be Everton's saviour? Forgive the scepticism but this club do not easily deal in hope**\
-`Supporters have already watched bids from MSP Capital, 777 and The Friedkin Group collapse and questions remain for the club's latest suitor`\
-https://nytimes.com/athletic/5719121/2024/08/24/everton-textor-777-friedkin-moshiri/
 
