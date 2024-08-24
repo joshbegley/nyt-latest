@@ -1,36 +1,36 @@
-**Solomon set for Leeds medical ahead of loan move**\
-`Tottenham Hotspur winger Manor Solomon is to undergo a medical today (Saturday) ahead of a loan move to Championship side Leeds United.`\
-https://nytimes.com/athletic/5720485/2024/08/24/manor-solomon-leeds-tottenham-transfer/
+**Can Grunting During Exercise Give You an Edge?**\
+`Some people can’t help letting out a little noise during a hard workout. It might serve a purpose.`\
+https://nytimes.com/2024/08/24/well/grunting-gym-exercise.html
 
-**Porto sign Atletico's Omorodion for €15m after €40m Chelsea move collapsed**\
-`Porto have completed the signing of Atletico Madrid striker Samu Omorodion for €15million (£12.`\
-https://nytimes.com/athletic/5720492/2024/08/24/samu-omorodion-porto-atletico-transfer/
+**A French Museum Has Global Needs (but It Can’t Have New Jersey)**\
+`The Pompidou Center is creating international outposts to help fund a renovation of its Paris home. What happens now that Jersey City has pulled out?`\
+https://nytimes.com/2024/08/24/arts/design/pompidou-center-international-outposts.html
 
-**Mariners turn to unlikely hero, start the Dan Wilson era with a walk-off victory**\
-`It took a four-run rally and a walk-off hit, but the Mariners won Wilson's debut. "This is the start of something great, we hope."`\
-https://nytimes.com/athletic/5720470/2024/08/24/mariners-sf-giants-dan-wilson-debut/
+**A Super Saturday When the Stars Played On and On at the U.S. Open**\
+`The greatest day in tennis? Sept. 8, 1984, with its 165 games played over 12 hours, stands out.`\
+https://nytimes.com/2024/08/24/sports/tennis/us-open-super-saturday.html
 
-**The Hottest Commodity at the U.S. Open? Shade.**\
-`The tennis tournament, like the rest of New York City, is adapting to climate change.`\
-https://nytimes.com/2024/08/24/nyregion/us-open-nyc-climate-change.html
+**Marina Cicogna’s Glamorous, Cinematic Legacy**\
+`Cicogna, who died in November, was the face of the Venice Film Festival for decades and a pioneer for women in the Italian film industry. She also knew how to throw a party.`\
+https://nytimes.com/2024/08/24/movies/venice-film-festival-marina-cicogna.html
 
-**How a Children’s Museum Director Spends Her Sundays**\
-`Kate Mirand Calleri, the director of education at the Brooklyn Children’s Museum, braves tarantulas and crowded subways before relaxing with “Antiques Roadshow.”`\
-https://nytimes.com/2024/08/24/nyregion/brooklyn-childrens-museum.html
+**How to Soothe an Itchy Bug Bite**\
+`There are a number of ways to stop scratching, from medicines to mental tricks.`\
+https://nytimes.com/2024/08/24/well/itchy-mosquito-bites.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/08/24/crosswords/spelling-bee-forum.html
+**Not Only for Killing: Drones Are Now Detecting Land Mines in Ukraine**\
+`Ukraine is a beta test for embedding artificial intelligence and other new technologies in drones and robots to find deadly land mines, saving lives and allowing military forces to advance more quickly.`\
+https://nytimes.com/2024/08/24/world/europe/ukraine-land-mines-drones.html
 
-**Mets' Paul Blackburn injured in lopsided loss to Padres: 'It doesn't feel great'**\
-`The Mets struck out 14 times, tying their season high, as they fell another game behind the Braves.`\
-https://nytimes.com/athletic/5720423/2024/08/24/mets-paul-blackburn-injured/
+**Bad Decisions and Second Chances That Lead to Love: 4 New Romance Novels**\
+`Our columnist reviews books by Danica Nava, Courtney Milan, Zen Cho and Karelia and Fay Stetz-Waters.`\
+https://nytimes.com/2024/08/24/books/review/new-romance-books.html
 
-**Raiders 53-man roster projection: Is Tyreik McAllister's big game enough to earn a spot?**\
-`McAllister had an 81-yard punt return and a 35-yard catch for a touchdown in the Raiders' preseason finale against the 49ers.`\
-https://nytimes.com/athletic/5715616/2024/08/24/raiders-53-man-roster-projection-tyreik-mcallister/
+**Many Gen Z Men Feel Left Behind. Some See Trump as an Answer.**\
+`Men under 30 are much more likely to support Donald Trump than women their age. It’s a far bigger gender gap than in older generations.`\
+https://nytimes.com/2024/08/24/upshot/trump-polls-young-men.html
 
-**49ers 53-man roster projection: Did Jacob Cowing, Isaac Guerendo secure their roles?**\
-`Tough decisions for the 49ers include whether to keep two or three quarterbacks and whether to go deep at cornerback and light at safety.`\
-https://nytimes.com/athletic/5715609/2024/08/24/49ers-roster-projection-jacob-cowing-isaac-guerendo/
+**How Elon Musk Got Tangled Up in Blue**\
+`Twitter Blue, a revamped subscription service that let users buy verified badges, was the first big test for the platform’s new owner. It didn’t go well.`\
+https://nytimes.com/2024/08/24/technology/elon-musk-twitter-blue.html
 
