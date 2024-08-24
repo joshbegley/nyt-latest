@@ -1,3 +1,7 @@
+**Out of Season**\
+`Summer’s coming to a close soon. You’re still, to some extent, in control of how you spend the time.`\
+https://nytimes.com/2024/08/24/briefing/out-of-season.html
+
 **The Cubs' outlook should be much brighter with 2 Rookie of the Year candidates**\
 `The Cubs added two productive rookies, but they're in a worse position in the standings than they were at the end of last season.`\
 https://nytimes.com/athletic/5720087/2024/08/24/cubs-rookie-of-the-year-shota-imanaga-michael-busch/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5719953/2024/08/24/michigan-football-quarterbacks-p
 **Childhood Stardom Is Rough. Jenna Ortega Is Still Recovering.**\
 `The actress talks about learning to protect herself and the hard lessons of early fame.`\
 https://nytimes.com/2024/08/24/magazine/jenna-ortega-interview.html
-
-**Why Harris’s Barrier-Breaking Bid Feels Nothing Like Hillary Clinton’s**\
-`The first-female-president energy of 2016 has been replaced by a more serious tone, with Democrats warning gravely of the new frontiers in the post-Roe era.`\
-https://nytimes.com/2024/08/24/us/politics/harris-clinton-women-feminism.html
 
