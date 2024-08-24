@@ -1,3 +1,7 @@
+**Sterling wants to leave Chelsea – but which teams suit him best tactically?**\
+`Raheem Sterling was left out of Chelsea's first squad of the season in the Premier League and looks likely to leave`\
+https://nytimes.com/athletic/5719153/2024/08/24/raheem-sterling-transfer-options-chelsea/
+
 **Stone Island: How a luxury label became a must-have footballing fashion item**\
 `Stone Island clothing was associated with hooliganism in football in the 1980s – now it is a label the likes of Guardiola and Haaland wear`\
 https://nytimes.com/athletic/5441980/2024/08/24/stone-island/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/24/pageoneplus/quotation-of-the-day-philosopher-pres
 **Corrections: Aug. 24, 2024**\
 `Corrections that appeared in print on Saturday, Aug. 24, 2024.`\
 https://nytimes.com/2024/08/24/pageoneplus/corrections-aug-24-2024.html
-
-**After a Big Week for Democrats, One Good Day for Trump**\
-`Former President Donald J. Trump talked policy in Las Vegas and seemed almost chipper. In Arizona, he reveled in the endorsement of a former campaign rival, Robert F. Kennedy Jr.`\
-https://nytimes.com/2024/08/23/us/elections/trump-kennedy-harris-election.html
 
