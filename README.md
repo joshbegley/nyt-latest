@@ -1,3 +1,11 @@
+**'He was at times unplayable': Why Leeds must keep Gnonto**\
+`The winger who, a year ago, was pushing for a move to Everton is even more important to this squad now`\
+https://nytimes.com/athletic/5720088/2024/08/24/leeds-united-willy-gnonto-transfer/
+
+**MLBPA asks judge to hold Bad Bunny-backed player agency in contempt**\
+`The MLBPA claims that Rimas Sports is defying an order to handle their dispute according to the union’s agent regulations.`\
+https://nytimes.com/athletic/5720350/2024/08/24/mlbpa-bad-bunny-agency-contempt-court/
+
 **Gerrard was tipped to be Klopp's successor - where is his managerial career at?**\
 `As Gerrard begins his second season at Al Ettifaq, Arne Slot will manage his first Premier League match at Anfield – what could have been...`\
 https://nytimes.com/athletic/5715303/2024/08/24/steven-gerrard-saudi-managerial-career/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/24/world/europe/scotland-boars.html
 **For Young Cambodians, a Mobile History Lesson From a Dark Time**\
 `Most people in Cambodia are under 30, born long after the horrific rule of the Khmer Rouge. A bus is touring the country to make sure it’s not forgotten.`\
 https://nytimes.com/2024/08/24/world/asia/cambodia-khmer-rouge-museum-bus.html
-
-**Saturday's MLB odds, best bets: Pitching matchups, playoff projections and more**\
-`See pitching matchups, playoff projections, win projections and more for Saturday's MLB games.`\
-https://nytimes.com/athletic/5719157/2024/08/24/mlb-odds-best-bets-projections-august-24/
-
-**Why 7-Eleven Is a National Treasure in Japan**\
-`Convenience stores are a part of the country’s culture, meaning that the foreign buyout bid for 7-Eleven, the largest chain, could be a hard sell in Japan.`\
-https://nytimes.com/2024/08/24/business/7-eleven-japan-couche-tard.html
 
