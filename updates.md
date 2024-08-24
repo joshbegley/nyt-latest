@@ -1,3 +1,7 @@
+**'Just personally, it's sad': Dodgers' decision to cut Jason Heyward hits home for Freddie Freeman**\
+`Heyward and Freeman have had a long-standing friendship since very early in their careers.`\
+https://nytimes.com/athletic/5721428/2024/08/24/dodgers-jason-heyward-freddie-freeman/
+
 **Eagles 53-man roster projection before final cuts**\
 `Final cuts will be made on Tuesday.`\
 https://nytimes.com/athletic/5720641/2024/08/24/philadelphia-eagles-preseason-53-man-roster-projection/
