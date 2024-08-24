@@ -1,3 +1,11 @@
+**Ipswich sign Clarke from Sunderland in £15m deal**\
+`Ipswich Town have completed the signing of Jack Clarke from Sunderland.`\
+https://nytimes.com/athletic/5718632/2024/08/24/jack-clarke-ipswich-transfer/
+
+**Derek Jeter, former Yankees weigh in on whether Alex Rodriguez belongs in Monument Park**\
+`Rodriguez joined his fellow members of the 2009 World Series team at Yankees Old Timers Day on Saturday.`\
+https://nytimes.com/athletic/5720760/2024/08/24/derek-jeter-alex-rodriguez-yankees-monument-park/
+
 **Should We Be Worried About Population Decline?**\
 `Readers discuss a guest essay that argued that we should be.`\
 https://nytimes.com/2024/08/24/opinion/population-decline.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/24/obituaries/mabel-addis-overlooked.html
 **F1 Dutch GP preview: Lando Norris can spoil Max Verstappen’s Zandvoort homecoming**\
 `Plus: Williams' weekend goes up in smoke, Ferrari and Mercedes scuffle and tumultuous weather looms.`\
 https://nytimes.com/athletic/5720729/2024/08/24/f1-dutch-gp-preview-verstappen-norris/
-
-**‘Run, Kamala, Run’: Mention of Harris’s Father Was a Rare Homage to a Fleeting Figure**\
-`In her convention speech, Kamala Harris told of being inspired by her father, a prominent economist who was otherwise largely a footnote in her personal story.`\
-https://nytimes.com/2024/08/24/us/politics/kamala-harris-father.html
-
-**Fire Destroys Grandstand From ‘A League of Their Own’**\
-`The field and wooden grandstand in Ontario, Calif., were the backdrop for the 1992 movie about a women’s baseball league.`\
-https://nytimes.com/2024/08/24/us/jay-littleton-baseball-field-fire.html
 

@@ -1,3 +1,11 @@
+**Ipswich sign Clarke from Sunderland in £15m deal**\
+`Ipswich Town have completed the signing of Jack Clarke from Sunderland.`\
+https://nytimes.com/athletic/5718632/2024/08/24/jack-clarke-ipswich-transfer/
+
+**Derek Jeter, former Yankees weigh in on whether Alex Rodriguez belongs in Monument Park**\
+`Rodriguez joined his fellow members of the 2009 World Series team at Yankees Old Timers Day on Saturday.`\
+https://nytimes.com/athletic/5720760/2024/08/24/derek-jeter-alex-rodriguez-yankees-monument-park/
+
 **Should We Be Worried About Population Decline?**\
 `Readers discuss a guest essay that argued that we should be.`\
 https://nytimes.com/2024/08/24/opinion/population-decline.html
