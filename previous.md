@@ -1,3 +1,7 @@
+**Rams roster prediction: Stetson Bennett at QB3, suspension affects OL, ILB sleeper**\
+`How will two suspensions affect the Rams' Week 1 roster? How man receivers will Sean McVay keep?`\
+https://nytimes.com/athletic/5720804/2024/08/24/la-rams-final-roster-projection/
+
 **Tom Brown Jr., World-Renowned Survivalist, Is Dead at 74**\
 `For decades, he ran a school in the New Jersey wilderness that taught thousands of students how to survive and even thrive in the great outdoors.`\
 https://nytimes.com/2024/08/24/nyregion/tom-brown-jr-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5721002/2024/08/24/mariners-lou-piniella-dan-wilson
 **Season-opening upset: How did Georgia Tech knock off FSU?**\
 `No. 10 Florida State falls to Georgia Tech in the season opener for college football in an ACC showdown in Ireland.`\
 https://nytimes.com/athletic/5720921/2024/08/24/florida-state-upset-georgia-tech-ireland/
-
-**Ipswich sign Clarke from Sunderland in £15m deal**\
-`Ipswich Town have completed the signing of Jack Clarke from Sunderland.`\
-https://nytimes.com/athletic/5718632/2024/08/24/jack-clarke-ipswich-transfer/
 
