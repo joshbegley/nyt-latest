@@ -1,3 +1,7 @@
+**Solomon set for Leeds medical ahead of loan move**\
+`Tottenham Hotspur winger Manor Solomon is to undergo a medical ahead of a loan move to Championship side Leeds United.`\
+https://nytimes.com/athletic/5720485/2024/08/24/manor-solomon-leeds-tottenham-transfer/
+
 **Porto sign Atletico's Omorodion for €15m after €40m Chelsea move collapsed**\
 `Porto have completed the signing of Atletico Madrid striker Samu Omorodion for €15million (£12.`\
 https://nytimes.com/athletic/5720492/2024/08/24/samu-omorodion-porto-atletico-transfer/

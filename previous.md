@@ -1,3 +1,7 @@
+**Solomon set for Leeds medical ahead of loan move**\
+`Tottenham Hotspur winger Manor Solomon is to undergo a medical ahead of a loan move to Championship side Leeds United.`\
+https://nytimes.com/athletic/5720485/2024/08/24/manor-solomon-leeds-tottenham-transfer/
+
 **Porto sign Atletico's Omorodion for €15m after €40m Chelsea move collapsed**\
 `Porto have completed the signing of Atletico Madrid striker Samu Omorodion for €15million (£12.`\
 https://nytimes.com/athletic/5720492/2024/08/24/samu-omorodion-porto-atletico-transfer/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5715616/2024/08/24/raiders-53-man-roster-projection
 **49ers 53-man roster projection: Did Jacob Cowing, Isaac Guerendo secure their roles?**\
 `Tough decisions for the 49ers include whether to keep two or three quarterbacks and whether to go deep at cornerback and light at safety.`\
 https://nytimes.com/athletic/5715609/2024/08/24/49ers-roster-projection-jacob-cowing-isaac-guerendo/
-
-**Dodgers' Shohei Ohtani hits walk-off grand slam to become MLB's sixth 40-40 player**\
-`Manager Dave Roberts said the 40-40 milestone has been on Ohtani's radar since spring training.`\
-https://nytimes.com/athletic/5717648/2024/08/24/dodgers-shohei-ohtani-40-40/
 
