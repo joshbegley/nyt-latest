@@ -1,3 +1,7 @@
+**Michelsen nearly defaulted after hitting ball into crowd**\
+`The most famous default for ball abuse in recent times came in the 2020 U.S. Open, when Novak Djokovic was defaulted from his match. `\
+https://nytimes.com/athletic/5721404/2024/08/24/alex-michelsen-default-winston-salem-final/
+
 **Is There an Echo in Here?**\
 `Hear that? It’s John Kugelman, with a clamorous Sunday puzzle.`\
 https://nytimes.com/2024/08/24/crosswords/daily-puzzle-2024-08-25.html

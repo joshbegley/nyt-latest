@@ -1,3 +1,7 @@
+**Michelsen nearly defaulted after hitting ball into crowd**\
+`The most famous default for ball abuse in recent times came in the 2020 U.S. Open, when Novak Djokovic was defaulted from his match. `\
+https://nytimes.com/athletic/5721404/2024/08/24/alex-michelsen-default-winston-salem-final/
+
 **Is There an Echo in Here?**\
 `Hear that? It’s John Kugelman, with a clamorous Sunday puzzle.`\
 https://nytimes.com/2024/08/24/crosswords/daily-puzzle-2024-08-25.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5721173/2024/08/24/sean-taylor-statue-washington-co
 **Lilia Vu can feel another Women's Open championship in her grasp**\
 `Vu will begin Sunday's final round one shot back of Jiyai Shin and one shot ahead of Nelly Korda.`\
 https://nytimes.com/athletic/5720916/2024/08/24/lilia-vu-womens-open-jiyai-shin/
-
-**Ravens final 53-man roster projection: Toughest calls on defensive side of the ball**\
-`How many defensive backs will Baltimore keep on its 53-man roster heading into Week 1? And which receivers will make the final cut?`\
-https://nytimes.com/athletic/5720333/2024/08/24/baltimore-ravens-roster-53-man-projection/
 
