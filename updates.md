@@ -1,3 +1,11 @@
+**The Briefing: Tottenham 4 Everton 0 - Bissouma's stunner, Odobert's instant impression and central Son**\
+`Yves Bissouma, a double from Son and Cristian Romero helped Spurs rip apart Everton - The Athletic analysed a routine win`\
+https://nytimes.com/athletic/5718689/2024/08/24/tottenham-4-everton-0-bissoumas-odobert-son-heung-min/
+
+**This Roasted Dill Salmon Is a Thing of Beauty**\
+`“I have made this numerous times, and it is one of my favorite recipes,” one reader said.`\
+https://nytimes.com/2024/08/24/dining/how-to-roast-salmon.html
+
 **How Media Outlets on the Right and Left Covered Kennedy’s Trump Endorsement**\
 `Conservative coverage of Robert F. Kennedy Jr.’s decision to suspend his presidential campaign focused on the potential boon for the former president. Liberal outlets downplayed the impact it would have.`\
 https://nytimes.com/2024/08/24/business/media/rfk-jr-trump-endorsement-media.html
