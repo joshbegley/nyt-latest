@@ -1,3 +1,11 @@
+**Raiders 53-man roster projection: Is Tyreik McAllister's big game enough to earn a spot?**\
+`McAllister had an 81-yard punt return and a 35-yard catch for a touchdown in the Raiders' preseason finale against the 49ers.`\
+https://nytimes.com/athletic/5715616/2024/08/24/raiders-53-man-roster-projection-tyreik-mcallister/
+
+**49ers 53-man roster projection: Did Jacob Cowing, Isaac Guerendo secure their roles?**\
+`Tough decisions for the 49ers include whether to keep two or three quarterbacks and whether to go deep at cornerback and light at safety.`\
+https://nytimes.com/athletic/5715609/2024/08/24/49ers-roster-projection-jacob-cowing-isaac-guerendo/
+
 **Dodgers' Shohei Ohtani hits walk-off grand slam to become MLB's sixth 40-40 player**\
 `Manager Dave Roberts said the 40-40 milestone has been on Ohtani's radar since spring training.`\
 https://nytimes.com/athletic/5717648/2024/08/24/dodgers-shohei-ohtani-40-40/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5715303/2024/08/24/steven-gerrard-saudi-managerial-
 **Textor to be Everton's saviour? Forgive the scepticism but this club do not easily deal in hope**\
 `Supporters have already watched bids from MSP Capital, 777 and The Friedkin Group collapse and questions remain for the club's latest suitor`\
 https://nytimes.com/athletic/5719121/2024/08/24/everton-textor-777-friedkin-moshiri/
-
-**Sterling wants to leave Chelsea – but which teams suit him best tactically?**\
-`Raheem Sterling was left out of Chelsea's first squad of the season in the Premier League and looks likely to leave`\
-https://nytimes.com/athletic/5719153/2024/08/24/raheem-sterling-transfer-options-chelsea/
-
-**Stone Island: How a luxury label became a must-have footballing fashion item**\
-`Stone Island clothing was associated with hooliganism in football in the 1980s – now it is a label the likes of Guardiola and Haaland wear`\
-https://nytimes.com/athletic/5441980/2024/08/24/stone-island/
 
