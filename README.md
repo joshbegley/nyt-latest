@@ -1,3 +1,11 @@
+**Commanders to build Sean Taylor statue**\
+`Taylor, a fan favorite, had 302 career tackles, 12 interceptions, 41 passes defended and eight forced fumbles.`\
+https://nytimes.com/athletic/5721173/2024/08/24/sean-taylor-statue-washington-commanders/
+
+**Lilia Vu can feel another Women's Open championship in her grasp**\
+`Vu will begin Sunday's final round one shot back of Jiyai Shin and one shot ahead of Nelly Korda.`\
+https://nytimes.com/athletic/5720916/2024/08/24/lilia-vu-womens-open-jiyai-shin/
+
 **Ravens final 53-man roster projection: Toughest calls on defensive side of the ball**\
 `How many defensive backs will Baltimore keep on its 53-man roster heading into Week 1? And which receivers will make the final cut?`\
 https://nytimes.com/athletic/5720333/2024/08/24/baltimore-ravens-roster-53-man-projection/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5720978/2024/08/24/carolina-panthers-final-roster-p
 **Cowboys' DaRon Bland (foot) likely out 6-8 weeks**\
 `Bland's injury is a huge blow to the Cowboys after he led the NFL in interceptions (nine) and interception return yards (209) in 2023.`\
 https://nytimes.com/athletic/5720952/2024/08/24/daron-bland-surgery-dallas-cowboys/
-
-**Hettie Jones, Poet and Author Who Nurtured the Beats, Dies at 90**\
-`She and her husband, LeRoi Jones, published works by their literary friends. After he left her and became Amiri Baraka, she found her own voice.`\
-https://nytimes.com/2024/08/24/books/hettie-jones-dead.html
-
-**Former Mariners manager Lou Piniella praises Dan Wilson, the team's new skipper**\
-`Wilson, the longtime catcher for Piniella's Seattle teams, was named as the franchise's manager on Thursday.`\
-https://nytimes.com/athletic/5721002/2024/08/24/mariners-lou-piniella-dan-wilson/
 
