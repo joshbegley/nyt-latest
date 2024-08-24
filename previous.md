@@ -1,3 +1,7 @@
+**Final Bills 53-man roster projection as the preseason ends**\
+`Just a handful of positions were up for grabs.`\
+https://nytimes.com/athletic/5720909/2024/08/24/final-buffalo-bills-53-man-roster-projection-preseason/
+
 **Commanders to build Sean Taylor statue**\
 `Taylor, a fan favorite, had 302 career tackles, 12 interceptions, 41 passes defended and eight forced fumbles.`\
 https://nytimes.com/athletic/5721173/2024/08/24/sean-taylor-statue-washington-commanders/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5721013/2024/08/24/russell-wilson-justin-fields-ste
 **Panthers final roster projection: Receiver on the trading block? Help at edge rusher needed?**\
 `Terrace Marshall scored Saturday against the Bills. Will he earn a spot on the Panthers' 53-man roster or another team's?`\
 https://nytimes.com/athletic/5720978/2024/08/24/carolina-panthers-final-roster-projection/
-
-**Cowboys' DaRon Bland (foot) likely out 6-8 weeks**\
-`Bland's injury is a huge blow to the Cowboys after he led the NFL in interceptions (nine) and interception return yards (209) in 2023.`\
-https://nytimes.com/athletic/5720952/2024/08/24/daron-bland-surgery-dallas-cowboys/
 

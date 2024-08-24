@@ -1,3 +1,7 @@
+**Final Bills 53-man roster projection as the preseason ends**\
+`Just a handful of positions were up for grabs.`\
+https://nytimes.com/athletic/5720909/2024/08/24/final-buffalo-bills-53-man-roster-projection-preseason/
+
 **Commanders to build Sean Taylor statue**\
 `Taylor, a fan favorite, had 302 career tackles, 12 interceptions, 41 passes defended and eight forced fumbles.`\
 https://nytimes.com/athletic/5721173/2024/08/24/sean-taylor-statue-washington-commanders/
