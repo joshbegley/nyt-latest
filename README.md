@@ -1,3 +1,7 @@
+**Class of 2025 5-star DB Jonah Williams commits to Texas**\
+`Williams, ranked No. 10 overall in the 247Sports Composite, chose the Longhorns over LSU, Texas A&M, Oregon and USC.`\
+https://nytimes.com/athletic/5720564/2024/08/24/texas-recruiting-jonah-williams/
+
 **'Just personally, it's sad': Dodgers' decision to cut Jason Heyward hits home for Freddie Freeman**\
 `Heyward and Freeman have had a long-standing friendship since very early in their careers.`\
 https://nytimes.com/athletic/5721428/2024/08/24/dodgers-jason-heyward-freddie-freeman/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/24/crosswords/daily-puzzle-2024-08-25.html
 **Ronda Rousey Apologizes for Reposting Sandy Hook Conspiracy Video**\
 `The former U.F.C. star apologized after Reddit users asked her about the video she shared 11 years ago. She called it “the single most regrettable decision of my life.”`\
 https://nytimes.com/2024/08/24/us/ronda-rousey-sandy-hook-apology.html
-
-**Why Yankees’ CC Sabathia wishes Brett Gardner was at 2009 World Series celebration**\
-`“Gardy was such a big part of this culture," Sabathia said.`\
-https://nytimes.com/athletic/5721054/2024/08/24/yankees-cc-sabathia-brett-gardner-2009-world-series-celebration/
 
