@@ -1,3 +1,7 @@
+**Biden’s Asylum Restrictions Are Working as Predicted, and as Warned**\
+`Border numbers are down significantly. But migrant activists say the restrictions President Biden imposed in June are weeding out people who may have legitimate claims of asylum.`\
+https://nytimes.com/2024/08/24/us/politics/biden-asylum-restrictions.html
+
 **An Early, Original Print by W. Eugene Smith**\
 `W. Eugene Smith was known for his war photography. But a photo he took of a trough as a teenager in Wichita, Kan., helped kick-start his career.`\
 https://nytimes.com/2024/08/24/insider/an-early-original-print-by-w-eugene-smith.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5717163/2024/08/24/marc-brys-cameroon-etoo/
 **What We Know About the Knife Attack in Germany That Killed 3**\
 `The police have launched a manhunt for the perpetrator, who stabbed people at a city festival before slipping away.`\
 https://nytimes.com/2024/08/24/world/europe/solingen-germany-knife-attack.html
-
-**Barcelona's Christensen expected to miss a month with Achilles injury**\
-`Barcelona’s Andreas Christensen is expected to miss a month with an injury to his left Achilles.`\
-https://nytimes.com/athletic/5720580/2024/08/24/andreas-christensen-injury-barcelona/
 

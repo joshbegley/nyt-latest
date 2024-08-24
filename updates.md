@@ -1,3 +1,7 @@
+**Biden’s Asylum Restrictions Are Working as Predicted, and as Warned**\
+`Border numbers are down significantly. But migrant activists say the restrictions President Biden imposed in June are weeding out people who may have legitimate claims of asylum.`\
+https://nytimes.com/2024/08/24/us/politics/biden-asylum-restrictions.html
+
 **An Early, Original Print by W. Eugene Smith**\
 `W. Eugene Smith was known for his war photography. But a photo he took of a trough as a teenager in Wichita, Kan., helped kick-start his career.`\
 https://nytimes.com/2024/08/24/insider/an-early-original-print-by-w-eugene-smith.html
