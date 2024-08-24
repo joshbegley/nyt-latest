@@ -1,3 +1,11 @@
+**Ronda Rousey Apologizes for Reposting Sandy Hook Conspiracy Video**\
+`The former U.F.C. star apologized after Reddit users asked her about the video she shared 11 years ago. She called it “the single most regrettable decision of my life.”`\
+https://nytimes.com/2024/08/24/us/ronda-rousey-sandy-hook-apology.html
+
+**Why Yankees’ CC Sabathia wishes Brett Gardner was at 2009 World Series celebration**\
+`“Gardy was such a big part of this culture," Sabathia said.`\
+https://nytimes.com/athletic/5721054/2024/08/24/yankees-cc-sabathia-brett-gardner-2009-world-series-celebration/
+
 **Shane van Gisbergen joins Trackhouse Racing for 2025 Cup Series**\
 `Team owner Justin Marks announced the move at Daytona International Speedway, the site of that night’s Cup race.`\
 https://nytimes.com/athletic/5721263/2024/08/24/shane-van-gisbergen-joins-trackhouse-racing/
