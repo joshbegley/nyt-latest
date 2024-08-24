@@ -1,3 +1,7 @@
+**Jose Altuve gifts superfan bat after home run blast**\
+`“I asked him, ‘If you hit a home run, can I have your bat?,’” said Christopher Disalvo, a 4-foot-4 infielder with a baseball obsession.`\
+https://nytimes.com/athletic/5720215/2024/08/23/jose-altuve-bat-fan-astros/
+
 **Onstage Together in Arizona, Trump and Kennedy Signal New Alliance**\
 `Robert F. Kennedy Jr., who suspended his independent presidential bid earlier on Friday, was embraced by Donald J. Trump at a rally in Arizona. But the union’s political impact remains unclear.`\
 https://nytimes.com/2024/08/23/us/politics/trump-and-kennedy-arizona-endorsement.html

@@ -1,3 +1,7 @@
+**Jose Altuve gifts superfan bat after home run blast**\
+`“I asked him, ‘If you hit a home run, can I have your bat?,’” said Christopher Disalvo, a 4-foot-4 infielder with a baseball obsession.`\
+https://nytimes.com/athletic/5720215/2024/08/23/jose-altuve-bat-fan-astros/
+
 **Onstage Together in Arizona, Trump and Kennedy Signal New Alliance**\
 `Robert F. Kennedy Jr., who suspended his independent presidential bid earlier on Friday, was embraced by Donald J. Trump at a rally in Arizona. But the union’s political impact remains unclear.`\
 https://nytimes.com/2024/08/23/us/politics/trump-and-kennedy-arizona-endorsement.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/23/us/politics/trump-harris-no-tax-tips.html
 **Police Investigate Deadly Knife Attack in Western Germany**\
 `The attack took place in a central square in Solingen, Germany, during a festival celebrating the town’s 650th anniversary.`\
 https://nytimes.com/video/world/europe/100000009655818/germany-solingen-knife-attack.html
-
-**Meet the Rural Voters Who Could Swing North Carolina’s Election**\
-`Residents in Wilson County worry about the rising costs of goods and housing — but mostly they just want to get along.`\
-https://nytimes.com/interactive/2024/08/23/us/elections/north-carolina-rural-voters.html
 
