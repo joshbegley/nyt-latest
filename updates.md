@@ -1,3 +1,7 @@
+**Fantasy baseball notebook: Looking ahead to 2025, including a 'too early' draft**\
+`The Rates & Barrels podcast crew spent time looking ahead to 2025 this past week, and DVR shares the highlights, including an early draft.`\
+https://nytimes.com/athletic/5714570/2024/08/24/fantasy-baseball-notebook-early-look-2025-draft/
+
 **'He was at times unplayable': Why Leeds must keep Gnonto**\
 `The winger who, a year ago, was pushing for a move to Everton is even more important to this squad now`\
 https://nytimes.com/athletic/5720088/2024/08/24/leeds-united-willy-gnonto-transfer/
