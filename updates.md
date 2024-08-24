@@ -1,3 +1,11 @@
+**'He was at times unplayable': Why Leeds must keep Gnonto**\
+`The winger who, a year ago, was pushing for a move to Everton is even more important to this squad now`\
+https://nytimes.com/athletic/5720088/2024/08/24/leeds-united-willy-gnonto-transfer/
+
+**MLBPA asks judge to hold Bad Bunny-backed player agency in contempt**\
+`The MLBPA claims that Rimas Sports is defying an order to handle their dispute according to the union’s agent regulations.`\
+https://nytimes.com/athletic/5720350/2024/08/24/mlbpa-bad-bunny-agency-contempt-court/
+
 **Gerrard was tipped to be Klopp's successor - where is his managerial career at?**\
 `As Gerrard begins his second season at Al Ettifaq, Arne Slot will manage his first Premier League match at Anfield – what could have been...`\
 https://nytimes.com/athletic/5715303/2024/08/24/steven-gerrard-saudi-managerial-career/
