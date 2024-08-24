@@ -1,3 +1,7 @@
+**Is There an Echo in Here?**\
+`Hear that? It’s John Kugelman, with a clamorous Sunday puzzle.`\
+https://nytimes.com/2024/08/24/crosswords/daily-puzzle-2024-08-25.html
+
 **Ronda Rousey Apologizes for Reposting Sandy Hook Conspiracy Video**\
 `The former U.F.C. star apologized after Reddit users asked her about the video she shared 11 years ago. She called it “the single most regrettable decision of my life.”`\
 https://nytimes.com/2024/08/24/us/ronda-rousey-sandy-hook-apology.html

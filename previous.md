@@ -1,3 +1,7 @@
+**Is There an Echo in Here?**\
+`Hear that? It’s John Kugelman, with a clamorous Sunday puzzle.`\
+https://nytimes.com/2024/08/24/crosswords/daily-puzzle-2024-08-25.html
+
 **Ronda Rousey Apologizes for Reposting Sandy Hook Conspiracy Video**\
 `The former U.F.C. star apologized after Reddit users asked her about the video she shared 11 years ago. She called it “the single most regrettable decision of my life.”`\
 https://nytimes.com/2024/08/24/us/ronda-rousey-sandy-hook-apology.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5720916/2024/08/24/lilia-vu-womens-open-jiyai-shin/
 **Ravens final 53-man roster projection: Toughest calls on defensive side of the ball**\
 `How many defensive backs will Baltimore keep on its 53-man roster heading into Week 1? And which receivers will make the final cut?`\
 https://nytimes.com/athletic/5720333/2024/08/24/baltimore-ravens-roster-53-man-projection/
-
-**Rams roster prediction: Stetson Bennett at QB3, suspension affects OL, ILB sleeper**\
-`How will two suspensions affect the Rams' Week 1 roster? How man receivers will Sean McVay keep?`\
-https://nytimes.com/athletic/5720804/2024/08/24/la-rams-final-roster-projection/
 
