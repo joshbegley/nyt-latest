@@ -1,3 +1,15 @@
+**The Hottest Commodity at the U.S. Open? Shade.**\
+`The tennis tournament, like the rest of New York City, is adapting to climate change.`\
+https://nytimes.com/2024/08/24/nyregion/us-open-nyc-climate-change.html
+
+**How a Children’s Museum Director Spends Her Sundays**\
+`Kate Mirand Calleri, the director of education at the Brooklyn Children’s Museum, braves tarantulas and crowded subways before relaxing with “Antiques Roadshow.”`\
+https://nytimes.com/2024/08/24/nyregion/brooklyn-childrens-museum.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/24/crosswords/spelling-bee-forum.html
+
 **Mets' Paul Blackburn injured in lopsided loss to Padres: 'It doesn't feel great'**\
 `The Mets struck out 14 times, tying their season high, as they fell another game behind the Braves.`\
 https://nytimes.com/athletic/5720423/2024/08/24/mets-paul-blackburn-injured/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5720048/2024/08/24/yankees-aaron-judge-home-runs-ro
 **Fantasy baseball notebook: Looking ahead to 2025, including a 'too early' draft**\
 `The Rates & Barrels podcast crew spent time looking ahead to 2025 this past week, and DVR shares the highlights, including an early draft.`\
 https://nytimes.com/athletic/5714570/2024/08/24/fantasy-baseball-notebook-early-look-2025-draft/
-
-**'He was at times unplayable': Why Leeds must keep Gnonto**\
-`The winger who, a year ago, was pushing for a move to Everton is even more important to this squad now`\
-https://nytimes.com/athletic/5720088/2024/08/24/leeds-united-willy-gnonto-transfer/
-
-**MLBPA asks judge to hold Bad Bunny-backed player agency in contempt**\
-`The MLBPA claims Rimas Sports is defying an order to handle its dispute according to the union's agent regulations.`\
-https://nytimes.com/athletic/5720350/2024/08/24/mlbpa-bad-bunny-agency-contempt-court/
-
-**Gerrard was tipped to be Klopp's successor - where is his managerial career at?**\
-`As Gerrard begins his second season at Al Ettifaq, Arne Slot will manage his first Premier League match at Anfield – what could have been...`\
-https://nytimes.com/athletic/5715303/2024/08/24/steven-gerrard-saudi-managerial-career/
 
