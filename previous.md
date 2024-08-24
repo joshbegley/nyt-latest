@@ -1,3 +1,11 @@
+**Gerrard was tipped to be Klopp's successor - where is his managerial career at?**\
+`As Gerrard begins his second season at Al Ettifaq, Arne Slot will manage his first Premier League match at Anfield – what could have been...`\
+https://nytimes.com/athletic/5715303/2024/08/24/steven-gerrard-saudi-managerial-career/
+
+**Textor to be Everton's saviour? Forgive the scepticism but this club do not easily deal in hope**\
+`Supporters have already watched bids from MSP Capital, 777 and The Friedkin Group collapse and questions remain for the club's latest suitor`\
+https://nytimes.com/athletic/5719121/2024/08/24/everton-textor-777-friedkin-moshiri/
+
 **Sterling wants to leave Chelsea – but which teams suit him best tactically?**\
 `Raheem Sterling was left out of Chelsea's first squad of the season in the Premier League and looks likely to leave`\
 https://nytimes.com/athletic/5719153/2024/08/24/raheem-sterling-transfer-options-chelsea/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5719157/2024/08/24/mlb-odds-best-bets-projections-a
 **Why 7-Eleven Is a National Treasure in Japan**\
 `Convenience stores are a part of the country’s culture, meaning that the foreign buyout bid for 7-Eleven, the largest chain, could be a hard sell in Japan.`\
 https://nytimes.com/2024/08/24/business/7-eleven-japan-couche-tard.html
-
-**Quotation of the Day: Philosopher President, Near His End, on How to Be Truly Free**\
-`Quotation of the Day for Saturday, August 24, 2024.`\
-https://nytimes.com/2024/08/24/pageoneplus/quotation-of-the-day-philosopher-president-near-his-end-on-how-to-be-truly-free.html
-
-**Corrections: Aug. 24, 2024**\
-`Corrections that appeared in print on Saturday, Aug. 24, 2024.`\
-https://nytimes.com/2024/08/24/pageoneplus/corrections-aug-24-2024.html
 
