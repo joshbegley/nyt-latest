@@ -1,3 +1,7 @@
+**Fire Destroys Grandstand From ‘A League of Their Own’**\
+`The field and wooden grandstand in Ontario, Calif., were the backdrop for the 1992 movie about a women’s baseball league.`\
+https://nytimes.com/2024/08/24/us/jay-littleton-baseball-field-fire.html
+
 **U.S. defender Robinson praised after recovery from two surgeries this summer**\
 `Fulham head coach Marco Silva has praised Antonee Robinson&#8217;s powers of recovery after the USMNT international impressed for his club despite undergoing surgery on his groin and his wrist during a demanding summer.`\
 https://nytimes.com/athletic/5720830/2024/08/24/antonee-robinson-injury-surgery-usmnt-fulham/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/24/us/politics/biden-asylum-restrictions.html
 **An Early, Original Print by W. Eugene Smith**\
 `W. Eugene Smith was known for his war photography. But a photo he took of a trough as a teenager in Wichita, Kan., helped kick-start his career.`\
 https://nytimes.com/2024/08/24/insider/an-early-original-print-by-w-eugene-smith.html
-
-**This Roasted Dill Salmon Is a Thing of Beauty**\
-`“I have made this numerous times, and it is one of my favorite recipes,” one reader said.`\
-https://nytimes.com/2024/08/24/dining/how-to-roast-salmon.html
 
