@@ -1,36 +1,36 @@
+**Kevin Paredes interview: 'Not making the Copa squad broke me, but I am using it as fuel'**\
+`The 21-year-old discusses what it was like playing at the Olympics after not being selected for USMNT and his aims for the Bundesliga season`\
+https://nytimes.com/athletic/5714271/2024/08/24/kevin-paredes-usmnt-wolfsburg-interview/
+
+**Pochettino expected to be with U.S. team for Canada game next month**\
+`Mauricio Pochettino and his staff are expected to join the U.`\
+https://nytimes.com/athletic/5720499/2024/08/24/mauricio-pochettino-usmnt-when/
+
+**Republicans Are Right: One Party Is ‘Anti-Family and Anti-Kid’**\
+`When right-wingers pursue policies that mire children in poverty, it takes gall to preen about their family values.`\
+https://nytimes.com/2024/08/24/opinion/family-children-democrats-republicans.html
+
+**Plan Beats No Plan**\
+`The candidates’ housing plans offer a window on how they would govern.`\
+https://nytimes.com/2024/08/24/opinion/harris-trump-housing-inflation.html
+
+**Bangladesh Needs a New Story**\
+`My country must break the cycle of denial and revenge that has divided and held it back for decades.`\
+https://nytimes.com/2024/08/24/opinion/bangladesh-revolution-memory.html
+
+**Daffy Donald, Turning Pea Green With Envy**\
+`Trump, who usually keeps others off-balance, is unbalanced by Kamala.`\
+https://nytimes.com/2024/08/24/opinion/trump-harris-dnc-election.html
+
+**Ten Broncos players to watch during Sunday's preseason finale**\
+`Rookie WR Troy Franklin could use a strong outing Sunday after struggling through the first two preseason games.`\
+https://nytimes.com/athletic/5719489/2024/08/24/broncos-cardinals-preseason-roster/
+
+**Keeping a Light on After Loss**\
+`When my friend and collaborator died before our comedy show opened on Broadway, I mourned him from the stage.`\
+https://nytimes.com/2024/08/24/opinion/broadway-comedy-grief.html
+
 **Busload of Indian Tourists in Nepal Plunges Into River, Killing at Least 27**\
 `Nepal, a poor and mountainous country, has long struggled with road safety.`\
 https://nytimes.com/2024/08/24/world/asia/nepal-deadly-bus-crash.html
-
-**Hamas Agrees to Meet With Mediators in Cairo Ahead of Cease-Fire Talks**\
-`Fighting has raged in Gaza even as the United States, Qatar and Egypt have pushed for a deal, with Israeli strikes overnight killing dozens, according to emergency responders in Gaza.`\
-https://nytimes.com/2024/08/24/world/middleeast/israel-gaza-war.html
-
-**It's the year of the running back in the Big 12**\
-`“Every week I’m asking if we were ever going to play anyone who doesn't have a back that we're scared of,” Oklahoma State's Mike Gundy said.`\
-https://nytimes.com/athletic/5716871/2024/08/24/big-12-running-backs-ollie-gordon-tahj-brooks/
-
-**Out of Season**\
-`Summer’s coming to a close soon. You’re still, to some extent, in control of how you spend the time.`\
-https://nytimes.com/2024/08/24/briefing/out-of-season.html
-
-**The Cubs' outlook should be much brighter with 2 Rookie of the Year candidates**\
-`The Cubs added two productive rookies, but they're in a worse position in the standings than they were at the end of last season.`\
-https://nytimes.com/athletic/5720087/2024/08/24/cubs-rookie-of-the-year-shota-imanaga-michael-busch/
-
-**Deion Sanders talks a lot about character but his bully tactics show very little of it**\
-`As a head coach, Sanders must handle criticism. But he's never done it well, going back to his days as a pro football and baseball player.`\
-https://nytimes.com/athletic/5720229/2024/08/24/deion-sanders-sean-keeler-colorado-college-football/
-
-**With Freight Off the Rails, Rare Open Tracks for Passenger Trains**\
-`The brief lockout of freight railway workers gave Via Rail Canada trains a temporary reprieve from their second-class status.`\
-https://nytimes.com/2024/08/24/world/canada/canada-freight-via-rail.html
-
-**Wordle Review No. 1,163**\
-`Scroll down for hints and conversation about the puzzle for August 25, 2024.`\
-https://nytimes.com/2024/08/24/crosswords/wordle-review-1163.html
-
-**The Connections Companion No. 441**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Aug. 25, 2024.`\
-https://nytimes.com/2024/08/24/crosswords/connections-companion-441.html
 
