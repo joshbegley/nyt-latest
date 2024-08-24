@@ -1,3 +1,7 @@
+**Busload of Indian Tourists in Nepal Plunges Into River, Killing at Least 27**\
+`Nepal, a poor and mountainous country, has long struggled with road safety.`\
+https://nytimes.com/2024/08/24/world/asia/nepal-deadly-bus-crash.html
+
 **Hamas Agrees to Meet With Mediators in Cairo Ahead of Cease-Fire Talks**\
 `Fighting has raged in Gaza even as the United States, Qatar and Egypt have pushed for a deal, with Israeli strikes overnight killing dozens, according to emergency responders in Gaza.`\
 https://nytimes.com/2024/08/24/world/middleeast/israel-gaza-war.html

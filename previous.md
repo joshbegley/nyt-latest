@@ -1,3 +1,7 @@
+**Busload of Indian Tourists in Nepal Plunges Into River, Killing at Least 27**\
+`Nepal, a poor and mountainous country, has long struggled with road safety.`\
+https://nytimes.com/2024/08/24/world/asia/nepal-deadly-bus-crash.html
+
 **Hamas Agrees to Meet With Mediators in Cairo Ahead of Cease-Fire Talks**\
 `Fighting has raged in Gaza even as the United States, Qatar and Egypt have pushed for a deal, with Israeli strikes overnight killing dozens, according to emergency responders in Gaza.`\
 https://nytimes.com/2024/08/24/world/middleeast/israel-gaza-war.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/24/crosswords/wordle-review-1163.html
 **The Connections Companion No. 441**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Aug. 25, 2024.`\
 https://nytimes.com/2024/08/24/crosswords/connections-companion-441.html
-
-**The DMZ Is an Unhealed Wound for Korea. It’s Also a Source of Great Honey.**\
-`The heavily fortified area separating North and South Korea is home to a biodiverse landscape and is a place of deep meaning for nearby farmers whose bees can fly freely through it.`\
-https://nytimes.com/2024/08/24/world/asia/south-korea-dmz-honey.html
 
