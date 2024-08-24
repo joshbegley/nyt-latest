@@ -1,3 +1,7 @@
+**U.S. defender Robinson praised after recovery from two surgeries this summer**\
+`Fulham head coach Marco Silva has praised Antonee Robinson&#8217;s powers of recovery after the USMNT international impressed for his club despite undergoing surgery on his groin and his wrist during a demanding summer.`\
+https://nytimes.com/athletic/5720830/2024/08/24/antonee-robinson-injury-surgery-usmnt-fulham/
+
 **The Briefing: Tottenham 4 Everton 0 - Bissouma's stunner, Odobert's instant impression and central Son**\
 `Yves Bissouma, a double from Son and Cristian Romero helped Spurs rip apart Everton - The Athletic analyses a routine win`\
 https://nytimes.com/athletic/5718689/2024/08/24/tottenham-4-everton-0-bissouma-odobert-son-heung-min/
