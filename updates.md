@@ -1,3 +1,11 @@
+**Cowboys' DaRon Bland (foot) likely out 6-8 weeks**\
+`Bland's injury is a huge blow to the Cowboys after he led the NFL in interceptions (nine) and interception return yards (209) in 2023.`\
+https://nytimes.com/athletic/5720952/2024/08/24/daron-bland-surgery-dallas-cowboys/
+
+**Aidan Birr's walk-off field goal lifts Georgia Tech to upset of Florida State**\
+`No. 10 Florida State falls to Georgia Tech in the season opener for college football in an ACC showdown in Ireland.`\
+https://nytimes.com/athletic/5720921/2024/08/24/florida-state-upset-georgia-tech-ireland/
+
 **Hettie Jones, Poet and Author Who Nurtured the Beats, Dies at 90**\
 `She and her husband, LeRoi Jones, published works by their literary friends. After he left her and became Amiri Baraka, she found her own voice.`\
 https://nytimes.com/2024/08/24/books/hettie-jones-dead.html
