@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`By Vivek Shankar`\
+https://nytimes.com/live/2024/08/24/world/israel-hamas-gaza-war/heres-the-latest
+
 **Giants got Camilo Doval's attention — and benefits were immediate in win at Seattle**\
 `Doval returned to the Giants on Saturday, but not as the closer.`\
 https://nytimes.com/athletic/5721562/2024/08/24/giants-camilo-doval-win-mariners/
