@@ -1,3 +1,7 @@
+**The Briefing: Wolves 2-6 Chelsea - Madueke runs riot, the Portuguese connection and anyone for chaos?**\
+`Chelsea recorded an eye-catching first Premier League win under Enzo Maresca by scoring six stunning goals at Molineux to sink Wolves`\
+https://nytimes.com/athletic/5718712/2024/08/25/chelsea-wolves-madueke-palmer-briefing/
+
 **Oh, This Eggplant Lasagna? It Was Nothing.**\
 `If you roast the eggplant ahead of time, you’re just a half-hour away from a gorgeous, gluten-free vegetarian dinner.`\
 https://nytimes.com/2024/08/25/dining/eggplant-lasagna-vegetarian-lasagna.html

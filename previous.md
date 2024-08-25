@@ -1,3 +1,7 @@
+**The Briefing: Wolves 2-6 Chelsea - Madueke runs riot, the Portuguese connection and anyone for chaos?**\
+`Chelsea recorded an eye-catching first Premier League win under Enzo Maresca by scoring six stunning goals at Molineux to sink Wolves`\
+https://nytimes.com/athletic/5718712/2024/08/25/chelsea-wolves-madueke-palmer-briefing/
+
 **Oh, This Eggplant Lasagna? It Was Nothing.**\
 `If you roast the eggplant ahead of time, you’re just a half-hour away from a gorgeous, gluten-free vegetarian dinner.`\
 https://nytimes.com/2024/08/25/dining/eggplant-lasagna-vegetarian-lasagna.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5722032/2024/08/25/scott-mctominay-napoli-man-utd-t
 **German Prosecutors Say They Suspect Terrorist Link in Festival Stabbings**\
 `The police say they have arrested a man they believe killed three people and wounded eight others at a festival in the town of Solingen, in western Germany.`\
 https://nytimes.com/2024/08/25/world/europe/germany-festival-attack.html
-
-**College Football Playoff 2024 projections: Our 12-team bracket after FSU's opening loss**\
-`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
-https://nytimes.com/athletic/5701128/2024/08/25/college-football-playoff-projections-odds/
 
