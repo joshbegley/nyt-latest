@@ -1,3 +1,7 @@
+**Barcelona 2 Athletic 1: Leader Yamal, Williams' hot reception, Flick's methods working**\
+`Barcelona have off-field issues to address but Hansi Flick is making a quietly impressive start as head coach. It helps having Yamal...`\
+https://nytimes.com/athletic/5721814/2024/08/25/barcelona-yamal-lewandowski-flick-pedri/
+
 **What if China Invades? For Taiwan, a TV Show Raises Tough Questions.**\
 `Some think the drama, “Zero Day,” helps Taiwan confront an increasingly plausible scenario. Others say the show is alarmist and a tool of the government.`\
 https://nytimes.com/2024/08/25/world/asia/china-taiwan-zero-day-tv-show.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/25/us/politics/israel-hamas-sinwar.html
 **Why Opening a Roth Account May Be a Good Move, No Matter Your Age**\
 `These savings accounts, which are often pitched to young investors, can be a good investment option for older and retired workers.`\
 https://nytimes.com/2024/08/25/business/roth-retirement-account-older-workers.html
-
-**How a Migrant Accused of Rape Was Freed and Charged With Rape Again**\
-`A failure of cooperation between New York City and federal authorities allowed Daniel Davon-Bonilla, a 24-year-old from Nicaragua, to slip out of the grasp of law enforcement.`\
-https://nytimes.com/2024/08/25/nyregion/migrant-rape-assault-coney-island.html
 
