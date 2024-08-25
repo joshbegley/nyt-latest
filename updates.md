@@ -1,3 +1,7 @@
+**Fauci Recovering From West Nile Virus Infection**\
+`The former director of the National Institute of Allergy and Infectious Diseases had been hospitalized and was expected to make a full recovery, a spokeswoman said.`\
+https://nytimes.com/2024/08/25/us/fauci-west-nile-virus-hospitalized.html
+
 **In a Region on Edge, Israel and Hezbollah Launch Major Attacks on Each Other**\
 `The escalating strikes across the Israel-Lebanon border fueled fears of a bigger conflagration, but both sides signaled that they were de-escalating, for now.`\
 https://nytimes.com/2024/08/25/world/middleeast/israel-hezbollah-hamas-gaza-iran.html
