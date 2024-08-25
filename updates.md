@@ -1,3 +1,7 @@
+**What You May Not Know About the Fish You Eat**\
+`Readers suggest steps to ensure that seafood is safe, legally caught and properly labeled. Also: The G.O.P.’s Catholic conundrum; blocking emotions.`\
+https://nytimes.com/2024/08/25/opinion/letters/the-fish-you-eat.html
+
 **The Briefing: Wolves 2-6 Chelsea - Madueke runs riot, the Portuguese connection and anyone for chaos?**\
 `Chelsea recorded an eye-catching first Premier League win under Enzo Maresca by scoring six stunning goals at Molineux to sink Wolves`\
 https://nytimes.com/athletic/5718712/2024/08/25/chelsea-wolves-madueke-palmer-briefing/

@@ -1,3 +1,7 @@
+**What You May Not Know About the Fish You Eat**\
+`Readers suggest steps to ensure that seafood is safe, legally caught and properly labeled. Also: The G.O.P.’s Catholic conundrum; blocking emotions.`\
+https://nytimes.com/2024/08/25/opinion/letters/the-fish-you-eat.html
+
 **The Briefing: Wolves 2-6 Chelsea - Madueke runs riot, the Portuguese connection and anyone for chaos?**\
 `Chelsea recorded an eye-catching first Premier League win under Enzo Maresca by scoring six stunning goals at Molineux to sink Wolves`\
 https://nytimes.com/athletic/5718712/2024/08/25/chelsea-wolves-madueke-palmer-briefing/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5721989/2024/08/25/usc-football-game-lsu-lincoln-ri
 **Napoli reach €30m agreement to sign McTominay**\
 `Napoli have reached an agreement with Manchester United to sign Scott McTominay.`\
 https://nytimes.com/athletic/5722032/2024/08/25/scott-mctominay-napoli-man-utd-transfer/
-
-**German Prosecutors Say They Suspect Terrorist Link in Festival Stabbings**\
-`The police say they have arrested a man they believe killed three people and wounded eight others at a festival in the town of Solingen, in western Germany.`\
-https://nytimes.com/2024/08/25/world/europe/germany-festival-attack.html
 
