@@ -1,4 +1,8 @@
 **French Authorities Arrest Suspect in Synagogue Attack**\
+`Antiterrorism prosecutors said officers had taken a man into custody in connection with a blast outside a synagogue.`\
+https://nytimes.com/2024/08/25/world/europe/france-synagogue-arrest.html
+
+**French Authorities Arrest Suspect in Synagogue Attack**\
 `Antiterrorism prosecutors said officers had taken one person into custody for a blast outside a synagogue.`\
 https://nytimes.com/2024/08/25/world/europe/france-synagogue-arrest.html
 
