@@ -1,3 +1,7 @@
+**Israel and Hezbollah Trade Heavy Air Attacks**\
+`Israel on Sunday launched what it described as a pre-emptive strike against a major attack that Hezbollah was planning on Israeli territory. Hezbollah fired its own barrage later in the day.`\
+https://nytimes.com/video/world/middleeast/100000009656752/israel-hezbollah-lebanon-strikes.html
+
 **USMNT midfielder Tessmann set for Lyon medical**\
 `USMNT midfielder Tanner Tessmann is set to undergo a medical before completing a move from Venezia midfielder to Lyon.`\
 https://nytimes.com/athletic/5721139/2024/08/25/tanner-tessmann-lyon-transfer/

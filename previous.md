@@ -1,3 +1,7 @@
+**Israel and Hezbollah Trade Heavy Air Attacks**\
+`Israel on Sunday launched what it described as a pre-emptive strike against a major attack that Hezbollah was planning on Israeli territory. Hezbollah fired its own barrage later in the day.`\
+https://nytimes.com/video/world/middleeast/100000009656752/israel-hezbollah-lebanon-strikes.html
+
 **USMNT midfielder Tessmann set for Lyon medical**\
 `USMNT midfielder Tanner Tessmann is set to undergo a medical before completing a move from Venezia midfielder to Lyon.`\
 https://nytimes.com/athletic/5721139/2024/08/25/tanner-tessmann-lyon-transfer/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/25/us/fauci-west-nile-virus-hospitalized.html
 **In a Region on Edge, Israel and Hezbollah Launch Major Attacks on Each Other**\
 `The escalating strikes across the Israel-Lebanon border fueled fears of a bigger conflagration, but both sides signaled that they were de-escalating, for now.`\
 https://nytimes.com/2024/08/25/world/middleeast/israel-hezbollah-hamas-gaza-iran.html
-
-**Michigan receives NCAA formal notice of allegations**\
-`The NCAA is investigating Michigan's alleged sign-stealing scheme to collect video footage of opponents’ signals. `\
-https://nytimes.com/athletic/5722786/2024/08/25/michigan-notice-of-allegations/
 
