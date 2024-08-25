@@ -1,3 +1,7 @@
+**Former West Ham defender Ogbonna agrees one-year deal to join Watford**\
+`Former West Ham defender Angelo Ogbonna has agreed a one year deal with Watford.`\
+https://nytimes.com/athletic/5721909/2024/08/25/ogbonna-watford-transfer-west-ham/
+
 **Separate Attacks Near Ukraine-Russia Border Kill Civilians, Officials Say**\
 `Five people were killed in a Russian town, the local authorities said, while Ukraine reported three dead in a mortar and drone attack.`\
 https://nytimes.com/2024/08/25/world/europe/ukraine-russia-attacks.html
