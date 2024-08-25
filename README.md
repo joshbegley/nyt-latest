@@ -1,3 +1,7 @@
+**Yu Darvish’s agent praises A.J. Preller for Padres GM’s handling of unique situation**\
+`Preller offered to allow Darvish to continue being paid when he took an indefinite leave of absence to tend to a private family matter.`\
+https://nytimes.com/athletic/5721580/2024/08/24/yu-darvish-agent-praises-a-j-preller/
+
 **From Bass-o-matic to Bass-dra-matic: Bills kicker still battling inconsistency**\
 `The kicker is keeping his cool through struggles that date back to last season.`\
 https://nytimes.com/athletic/5721427/2024/08/24/buffalo-bills-tyler-bass-kicker-inconsistency/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5721428/2024/08/24/dodgers-jason-heyward-freddie-fr
 **Eagles 53-man roster projection before final cuts**\
 `Final cuts will be made on Tuesday.`\
 https://nytimes.com/athletic/5720641/2024/08/24/philadelphia-eagles-preseason-53-man-roster-projection/
-
-**Bowden Francis misses history after no-no foiled but gains momentum in Blue Jays rotation**\
-`Francis missed history by three outs Saturday but was brilliant over eight innings with a career-high 12 strikeouts.`\
-https://nytimes.com/athletic/5721402/2024/08/24/bowden-francis-blue-jays-angels/
 
