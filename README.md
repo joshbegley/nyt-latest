@@ -1,3 +1,7 @@
+**Liverpool's Alisson says he turned down an 'attractive' Saudi offer this summer**\
+`Liverpool goalkeeper Alisson has revealed he turned down a lucrative offer to move to a club in the Saudi Pro League this summer.`\
+https://nytimes.com/athletic/5721902/2024/08/25/alisson-liverpool-saudi-transfer/
+
 **Former West Ham defender Ogbonna agrees one-year deal to join Watford**\
 `Former West Ham defender Angelo Ogbonna has agreed a one year deal with Watford.`\
 https://nytimes.com/athletic/5721909/2024/08/25/ogbonna-watford-transfer-west-ham/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/25/us/politics/harris-democrats-immigration.html
 **Apple Rethinks Its Movie Strategy After a String of Misses**\
 `“Wolfs,” a new film starring George Clooney and Brad Pitt, was going to get a robust theatrical release. But the company is curtailing that plan.`\
 https://nytimes.com/2024/08/25/business/media/apple-movies-theaters-wolfs.html
-
-**Soaring Insurance Costs Could ‘End’ Affordable Housing, Developers Warn**\
-`Developers and landlords of subsidized housing, who cannot raise rents or charge more for starter homes, say property insurance increases could put them out of business.`\
-https://nytimes.com/2024/08/25/business/soaring-insurance-costs-could-end-affordable-housing-developers-warn.html
 
