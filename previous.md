@@ -1,3 +1,7 @@
+**Dozens Are Killed in Two Unrelated Bus Crashes in Pakistan**\
+`One of the accidents killed 12 people who were returning from a religious pilgrimage to Iraq, officials said.`\
+https://nytimes.com/2024/08/25/world/asia/bus-crashes-pakistan.html
+
 **Lando Norris wins the Dutch Grand Prix, narrows title gap to Max Verstappen**\
 `Norris made up for a slow start with one of the best drives of his life – tightening F1's title fight. `\
 https://nytimes.com/athletic/5722143/2024/08/25/f1-lando-norris-dutch-grand-prix/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5701128/2024/08/25/college-football-playoff-project
 **French Authorities Arrest Suspect in Synagogue Attack**\
 `Antiterrorism prosecutors said officers had taken a man into custody in connection with a blast outside a synagogue.`\
 https://nytimes.com/2024/08/25/world/europe/france-synagogue-arrest.html
-
-**The Courts That Made Them: Coco Gauff and Pompey Park**\
-`The defending U.S. Open champion grew up on public courts in Delray Beach, Florida`\
-https://nytimes.com/athletic/5480321/2024/08/25/coco-gauff-tennis-courts-pompey-park-delray-beach/
 

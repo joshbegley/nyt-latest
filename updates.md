@@ -1,3 +1,7 @@
+**Dozens Are Killed in Two Unrelated Bus Crashes in Pakistan**\
+`One of the accidents killed 12 people who were returning from a religious pilgrimage to Iraq, officials said.`\
+https://nytimes.com/2024/08/25/world/asia/bus-crashes-pakistan.html
+
 **Lando Norris wins the Dutch Grand Prix, narrows title gap to Max Verstappen**\
 `Norris made up for a slow start with one of the best drives of his life – tightening F1's title fight. `\
 https://nytimes.com/athletic/5722143/2024/08/25/f1-lando-norris-dutch-grand-prix/
