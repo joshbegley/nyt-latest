@@ -1,3 +1,11 @@
+**Van Dijk 'very calm' about Liverpool future amid contract situation**\
+`Liverpool defender Virgil van Dijk says he is “very calm” about his future at the club as he enters the final season of his contract.`\
+https://nytimes.com/athletic/5722709/2024/08/25/virgil-van-dijk-liverpool-contract/
+
+**Lowetide: Oilers' search for ideal Darnell Nurse partner marches on**\
+`Nurse has faced tough opposition over his nine NHL seasons. The results have been deemed not enough. So who's best suited to play with him?`\
+https://nytimes.com/athletic/5720645/2024/08/25/edmonton-oilers-darnell-nurse-defense-partner/
+
 **At Daytona, Wood Brothers get historic 100th win and set off a celebration**\
 `The historic NASCAR team, which dominated the sport in the 1960s and 70s, picked up an emotional win No. 100 on Saturday at Daytona.`\
 https://nytimes.com/athletic/5722496/2024/08/25/wood-brothers-racing-daytona-nascar-100th-win/
