@@ -1,3 +1,7 @@
+**Barcelona 2 Athletic 1: Leader Yamal, Williams' hot reception, Flick's methods working**\
+`Barcelona have off-field issues to address but Hansi Flick is making a quietly impressive start as head coach. It helps having Yamal...`\
+https://nytimes.com/athletic/5721814/2024/08/25/barcelona-yamal-lewandowski-flick-pedri/
+
 **What if China Invades? For Taiwan, a TV Show Raises Tough Questions.**\
 `Some think the drama, “Zero Day,” helps Taiwan confront an increasingly plausible scenario. Others say the show is alarmist and a tool of the government.`\
 https://nytimes.com/2024/08/25/world/asia/china-taiwan-zero-day-tv-show.html
