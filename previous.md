@@ -1,3 +1,15 @@
+**Questions for Investigators Trying to Unravel Mystery of Luxury Yacht’s Sinking**\
+`The investigators searching for answers about the shipwreck, leaving seven dead, face questions about extreme weather and possible human error or problems with the yacht itself.`\
+https://nytimes.com/2024/08/25/world/europe/bayesian-yacht-investigation.html
+
+**The Young Frenchman Striving to Give Voice to a Troubled Area**\
+`As a teenager, Amine Kessaci confronted Emmanuel Macron, founded an environmental group and lost a brother to drug violence. At 20, he almost won a National Assembly seat.`\
+https://nytimes.com/2024/08/25/world/europe/marseille-france-amine-kessaci.html
+
+**Sunday's MLB odds, best bets: Pitching matchups, playoff projections and more**\
+`See pitching matchups, playoff projections, win projections and more for Sunday's MLB games.`\
+https://nytimes.com/athletic/5719199/2024/08/25/mlb-odds-best-bets-projections-august-25/
+
 **Braves' Raisel Iglesias rarely placed among MLB's top closers, but he should be**\
 `The last Brave to finish a season with a lower ERA than Iglesias in at least as many appearances was Craig Kimbrel in 2013. `\
 https://nytimes.com/athletic/5721677/2024/08/24/braves-raisel-iglesias-top-closers/
@@ -21,16 +33,4 @@ https://nytimes.com/live/2024/08/24/world/israel-hamas-gaza-war/heres-the-latest
 **Giants got Camilo Doval's attention — and benefits were immediate in win at Seattle**\
 `Doval returned to the Giants on Saturday, but not as the closer.`\
 https://nytimes.com/athletic/5721562/2024/08/24/giants-camilo-doval-win-mariners/
-
-**Yu Darvish’s agent praises A.J. Preller for Padres GM’s handling of unique situation**\
-`Preller offered to allow Darvish to continue being paid when he took an indefinite leave of absence to tend to a private family matter.`\
-https://nytimes.com/athletic/5721580/2024/08/24/yu-darvish-agent-praises-a-j-preller/
-
-**From Bass-o-matic to Bass-dra-matic: Bills kicker still battling inconsistency**\
-`The kicker is keeping his cool through struggles that date back to last season.`\
-https://nytimes.com/athletic/5721427/2024/08/24/buffalo-bills-tyler-bass-kicker-inconsistency/
-
-**A 1-run loss accentuates the Astros' frustrating in-season carousel at first base**\
-`Eight players have appeared at first base since the Astros jettisoned José Abreu in mid-June, and it remains their biggest weakness.`\
-https://nytimes.com/athletic/5721540/2024/08/24/astros-one-run-loss-orioles-first-base/
 

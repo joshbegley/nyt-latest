@@ -1,3 +1,15 @@
+**Questions for Investigators Trying to Unravel Mystery of Luxury Yacht’s Sinking**\
+`The investigators searching for answers about the shipwreck, leaving seven dead, face questions about extreme weather and possible human error or problems with the yacht itself.`\
+https://nytimes.com/2024/08/25/world/europe/bayesian-yacht-investigation.html
+
+**The Young Frenchman Striving to Give Voice to a Troubled Area**\
+`As a teenager, Amine Kessaci confronted Emmanuel Macron, founded an environmental group and lost a brother to drug violence. At 20, he almost won a National Assembly seat.`\
+https://nytimes.com/2024/08/25/world/europe/marseille-france-amine-kessaci.html
+
+**Sunday's MLB odds, best bets: Pitching matchups, playoff projections and more**\
+`See pitching matchups, playoff projections, win projections and more for Sunday's MLB games.`\
+https://nytimes.com/athletic/5719199/2024/08/25/mlb-odds-best-bets-projections-august-25/
+
 **Here’s the latest on the conflict.**\
 `By Vivek Shankar`\
 https://nytimes.com/live/2024/08/24/world/israel-hamas-gaza-war/heres-the-latest
