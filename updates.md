@@ -1,3 +1,11 @@
+**What’s on TV This Week: ‘Inside the N.F.L.’ and ‘The Bachelorette: Men Tell All’**\
+`The CW airs their annual show. Jenn Tran confronts her past suitors on ABC.`\
+https://nytimes.com/2024/08/25/arts/television/whats-on-tv-this-week-inside-the-nfl-and-the-bachelorette-men-tell-all.html
+
+**To Whom It May Concern: America and Europe Need Each Other**\
+`The trans-Atlantic alliance can continue as the tight-knit partnership we have known for the past 75 years, or unravel.`\
+https://nytimes.com/2024/08/25/opinion/international-world/america-europe-trans-atlantic-alliance.html
+
 **Trying to Head Off War, U.S. Moves Naval Forces Closer to Israel**\
 `American officials are sending a signal to Iran and its allies, in the form of two aircraft carrier groups and an attack submarine.`\
 https://nytimes.com/2024/08/25/world/middleeast/us-aircraft-carriers-submarine.html
