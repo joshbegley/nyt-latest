@@ -1,3 +1,15 @@
+**On Hawaii’s Big Island, Hurricane Hone Brings Heavy Rain but No Major Damage**\
+`About 15,000 customers were without power on early Sunday, but  neither the winds nor the flooding from the storm were dramatic.`\
+https://nytimes.com/2024/08/25/us/hurricane-hone-hawaii-damage.html
+
+**Lydia Ko and the shot that gave her the Women's Open championship**\
+`Ko's 3-wood at the Road Hole lifted her above a crowded, star-studded leaderboard.`\
+https://nytimes.com/athletic/5722030/2024/08/25/lydia-ko-womens-open-st-andrews-road-hole/
+
+**Three Braves takeaways: Fill-ins like Ramón Laureano help Braves keep pace**\
+`Laureano and other players off signed off the scrap heap have impressed since moving into Atlanta’s lineup.`\
+https://nytimes.com/athletic/5722927/2024/08/25/bravess-michael-harris-ramon-laureano/
+
 **Forest make new Gimenez bid but still short of Feyenoord's valuation**\
 `Nottingham Forest have made a fresh bid for Santiago Gimenez but the offer is still thought to fall below Feyenoord’s valuation of the striker.`\
 https://nytimes.com/athletic/5722944/2024/08/25/nottingham-forest-santiago-gimenez/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5721993/2024/08/25/james-rodriguez-rayo-vallecano-t
 **City have considered Orri Oskarsson move as Erling Haaland back-up**\
 `Manchester City have considered a move to sign coveted talent Orri Oskarsson from FC Copenhagen as back-up to Erling Haaland.`\
 https://nytimes.com/athletic/5722867/2024/08/25/manchester-city-orri-oskarsson-transfer/
-
-**Republicans are combing Tim Walz’s record for misstatements.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/08/25/us/harris-trump-election/republicans-are-combing-tim-walzs-record-for-misstatements
-
-**Monday Briefing: Israel and Hezbollah Exchange Major Attacks**\
-`Plus, DMZ honey.`\
-https://nytimes.com/2024/08/25/briefing/israel-hezbollah-telegram-germany-stabbing-isis.html
-
-**Fauci Recovering From West Nile Virus Infection**\
-`The former director of the National Institute of Allergy and Infectious Diseases had been hospitalized and was expected to make a full recovery, a spokeswoman said.`\
-https://nytimes.com/2024/08/25/us/fauci-west-nile-virus-hospitalized.html
 
