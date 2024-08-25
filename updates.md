@@ -1,3 +1,7 @@
+**Cardinals lose Willson Contreras to broken finger**\
+`Already fighting to stay in playoff contention, the St.`\
+https://nytimes.com/athletic/5721646/2024/08/24/cardinals-willson-contreras-broken-finger/
+
 **Here’s the latest.**\
 `By Vivek Shankar`\
 https://nytimes.com/live/2024/08/24/world/israel-hamas-gaza-war/heres-the-latest

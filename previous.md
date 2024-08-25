@@ -1,3 +1,7 @@
+**Cardinals lose Willson Contreras to broken finger**\
+`Already fighting to stay in playoff contention, the St.`\
+https://nytimes.com/athletic/5721646/2024/08/24/cardinals-willson-contreras-broken-finger/
+
 **Here’s the latest.**\
 `By Vivek Shankar`\
 https://nytimes.com/live/2024/08/24/world/israel-hamas-gaza-war/heres-the-latest
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5721526/2024/08/24/shohei-ohtani-throws-first-time/
 **Final Cowboys 53-man roster projection: Does DaRon Bland's injury affect decisions?**\
 `Deuce Vaughn or Royce Freeman for fourth running back? How will the Cowboys deal with the temporary loss of All-Pro DaRon Bland?`\
 https://nytimes.com/athletic/5720588/2024/08/24/dallas-cowboys-final-roster-projection/
-
-**Class of 2025 5-star DB Jonah Williams commits to Texas**\
-`Williams, ranked No. 10 overall in the 247Sports Composite, chose the Longhorns over LSU, Texas A&M, Oregon and USC.`\
-https://nytimes.com/athletic/5720564/2024/08/24/texas-recruiting-jonah-williams/
 
