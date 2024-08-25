@@ -1,3 +1,7 @@
+**Telegram’s Top Executive Pavel Durov Reportedly Detained in France**\
+`The founder of Telegram, an app with more than 900 million users, was taken into custody by authorities, French media reported.`\
+https://nytimes.com/2024/08/25/technology/pavel-durov-telegram-detained-france.html
+
 **Notre Dame Playoff Prospectus: Can Irish win big in college football's new era?**\
 `The expanded College Football Playoff gives independent Notre Dame a new goal to play for. It's up to Marcus Freeman to make it happen.`\
 https://nytimes.com/athletic/5715183/2024/08/25/notre-dame-college-football-playoff-predictions-preview/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/25/opinion/maine-lobster-climate-change-election.htm
 **Wordle Review No. 1,164**\
 `Scroll down for hints and conversation about the puzzle for August 26, 2024.`\
 https://nytimes.com/2024/08/25/crosswords/wordle-review-1164.html
-
-**Here’s what to know about Hezbollah, the Iran-backed militia.**\
-`By Vivian Yee`\
-https://nytimes.com/live/2024/08/24/world/israel-hamas-gaza-war/heres-what-to-know-about-hezbollah-the-iran-backed-militia
 
