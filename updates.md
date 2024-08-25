@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Hector**\
+`See the likely path and wind arrival times for Hector.`\
+https://nytimes.com/interactive/2024/08/25/weather/hector-map-path-tracker.html
+
 **Brainpower Measures**\
 `Refrain from making assumptions about Zachary David Levy’s puzzle.`\
 https://nytimes.com/2024/08/25/crosswords/daily-puzzle-2024-08-26.html
