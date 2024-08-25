@@ -1,3 +1,11 @@
+**City have considered Orri Oskarsson move as Erling Haaland back-up**\
+`Manchester City have considered a move to sign coveted talent Orri Oskarsson from FC Copenhagen as back-up to Erling Haaland.`\
+https://nytimes.com/athletic/5722867/2024/08/25/manchester-city-orri-oskarsson-transfer/
+
+**Republicans are combing Tim Walz’s record for misstatements.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/08/25/us/harris-trump-election/republicans-are-combing-tim-walzs-record-for-misstatements
+
 **Monday Briefing: Israel and Hezbollah Exchange Major Attacks**\
 `Plus, DMZ honey.`\
 https://nytimes.com/2024/08/25/briefing/israel-hezbollah-telegram-germany-stabbing-isis.html
