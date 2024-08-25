@@ -1,3 +1,39 @@
+**Trey Lance just needs to play: 'I think he'll play in this league for a long time'**\
+`Lance threw for 323 yards and ran for 90 Saturday. But he showed that he's not ready to be Dak Prescott's backup yet.`\
+https://nytimes.com/athletic/5721627/2024/08/25/trey-lance-dallas-cowboys-quarterback-interceptions/
+
+**As Kamala Harris Claims Oakland, Berkeley Forgives**\
+`The vice president has virtually erased Berkeley, Calif., her hometown, from her campaign biography. The residents of “the People’s Republic” say they get it.`\
+https://nytimes.com/2024/08/25/us/politics/kamala-harris-berkeley-hometown.html
+
+**Dashed Hopes and Big Breaks: What It’s Like to Work on Cold Cases**\
+`This month, significant breakthroughs were announced in several murder cases that had been dormant for decades. Investigators explained what cracking these can look like.`\
+https://nytimes.com/2024/08/25/us/cold-case-murder-investigation-police.html
+
+**Final Jets 53-man roster projection: Which bubble players helped themselves most?**\
+`Israel Abanikanda had perhaps the best run of his career, at just the right time in the preseason finale. Did he earn a roster spot?`\
+https://nytimes.com/athletic/5721604/2024/08/25/jets-roster-cuts-preseason-finale/
+
+**On Immigration, Harris and Democrats Walk a Delicate — and Harder — Line**\
+`The message Democrats put forward at their convention last week, a tougher line than in decades, reflects how deeply immigration remains a political vulnerability for the party.`\
+https://nytimes.com/2024/08/25/us/politics/harris-democrats-immigration.html
+
+**Apple Rethinks Its Movie Strategy After a String of Misses**\
+`“Wolfs,” a new film starring George Clooney and Brad Pitt, was going to get a robust theatrical release. But the company is curtailing that plan.`\
+https://nytimes.com/2024/08/25/business/media/apple-movies-theaters-wolfs.html
+
+**Soaring Insurance Costs Could ‘End’ Affordable Housing, Developers Warn**\
+`Developers and landlords of subsidized housing, who cannot raise rents or charge more for starter homes, say property insurance increases could put them out of business.`\
+https://nytimes.com/2024/08/25/business/soaring-insurance-costs-could-end-affordable-housing-developers-warn.html
+
+**How Giants rookie Elijah Chatman went from minicamp tryout to near-lock to make the team**\
+`Between his "freakish" strength and the speed and effort he put on display in Houston, Chatman has made a name for himself this summer. `\
+https://nytimes.com/athletic/5719733/2024/08/25/new-york-giants-elijah-chatman-roster-53/
+
+**Battle-Hardened Poets Fuel a Literary Revival in Ukraine**\
+`With verses that capture the raw emotions of the war and resonate deeply with the population, Ukrainian poets have emerged as some of the country’s most influential voices.`\
+https://nytimes.com/2024/08/25/world/europe/ukraine-poets-russia-war.html
+
 **These Are Our Favorite Movies From 1999. What Are Yours?**\
 `In our view, these eight comedies, dramas and more have attained classic status 25 years later. Let us know your own picks.`\
 https://nytimes.com/2024/08/25/movies/1999-movies-critics.html
