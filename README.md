@@ -1,3 +1,11 @@
+**Fulham 2 Leicester City 1: Arsenal old boys shine, Silva still wants a winger**\
+`The key talking points after Fulham's Premier League win over Leicester City - and they are still active in window`\
+https://nytimes.com/athletic/5720865/2024/08/25/fulham-leicester-arsenal-smith-rowe-transfer/
+
+**How should Liverpool fans react to the sale of their young players?**\
+`Significant funds have been raised this summer through the sale of youngsters, with Bobby Clark the first of 'Klopp's Kids' to fly the nest`\
+https://nytimes.com/athletic/5716423/2024/08/25/liverpool-youngsters-hughes-slot-clark-berg/
+
 **Kylian Mbappe's Bernabeu debut: How Ronaldo, Beckham and others started at Real Madrid**\
 `With Madrid's new star set for his Bernabeu bow, we look back at some other key debuts at the ground`\
 https://nytimes.com/athletic/5719143/2024/08/25/kylian-mbappe-bernabeu-debut-real-madrid-ronaldo-beckham/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/25/world/europe/marseille-france-amine-kessaci.html
 **Sunday's MLB odds, best bets: Pitching matchups, playoff projections and more**\
 `See pitching matchups, playoff projections, win projections and more for Sunday's MLB games.`\
 https://nytimes.com/athletic/5719199/2024/08/25/mlb-odds-best-bets-projections-august-25/
-
-**Braves' Raisel Iglesias rarely placed among MLB's top closers, but he should be**\
-`The last Brave to finish a season with a lower ERA than Iglesias in at least as many appearances was Craig Kimbrel in 2013. `\
-https://nytimes.com/athletic/5721677/2024/08/24/braves-raisel-iglesias-top-closers/
-
-**Pablo López outduels former teammate Sonny Gray as Twins shut out Cardinals**\
-`Billed as a battle between two old friends and teammates, Saturday's contest served more as a platform for how good López continues to be.`\
-https://nytimes.com/athletic/5721669/2024/08/24/pablo-lopez-outduels-sonny-gray-twins-shutout/
 

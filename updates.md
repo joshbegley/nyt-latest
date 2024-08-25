@@ -1,3 +1,15 @@
+**Kylian Mbappe's Bernabeu debut: How Ronaldo, Beckham and others started at Real Madrid**\
+`With Madrid's new star set for his Bernabeu bow, we look back at some other key debuts at the ground`\
+https://nytimes.com/athletic/5719143/2024/08/25/kylian-mbappe-bernabeu-debut-real-madrid-ronaldo-beckham/
+
+**This is how Ipswich raced into a historic lead, before City snatched it back**\
+`Newly-promoted Ipswich took a shock lead at champions Manchester City… and then conceded three goals in 191 seconds`\
+https://nytimes.com/athletic/5720869/2024/08/25/premier-league-manchester-city-ipswich-goals/
+
+**We watched every minute of Cristiano Ronaldo's YouTube channel so you never have to**\
+`Tim Spiers watched every minute of Cristiano Ronaldo's record-breaking YouTube channel. Now he needs a lie down`\
+https://nytimes.com/athletic/5718836/2024/08/25/cristiano-ronaldo-youtube-channel/
+
 **Is there something happening at Brighton?**\
 `Brighton are spending big this summer and have backed it up on the pitch - and their new signings have yet to make an impact`\
 https://nytimes.com/athletic/5720610/2024/08/25/brighton-premier-league-transfer-200m/
