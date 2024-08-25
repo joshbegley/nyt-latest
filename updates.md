@@ -1,3 +1,7 @@
+**USC football: 7 thoughts on the Trojans as they enter LSU game week**\
+`Who will start at right guard? What will D’Anton Lynn’s defense look like in a competitive environment? Will special teams improve?`\
+https://nytimes.com/athletic/5721989/2024/08/25/usc-football-game-lsu-lincoln-riley/
+
 **Napoli reach €30m agreement to sign McTominay**\
 `Napoli have reached an agreement with Manchester United to sign Scott McTominay.`\
 https://nytimes.com/athletic/5722032/2024/08/25/scott-mctominay-napoli-man-utd-transfer/
