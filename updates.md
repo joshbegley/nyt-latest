@@ -1,3 +1,7 @@
+**Here’s the latest on the presidential race.**\
+`By Neil Vigdor`\
+https://nytimes.com/live/2024/08/25/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
 **Barcelona defender Faye joins Rennes in €10.3 million deal**\
 `Stade Rennais have completed the signing of Barcelona defender Mika Faye.`\
 https://nytimes.com/athletic/5721968/2024/08/25/barcelona-mika-faye-rennes-transfer/
