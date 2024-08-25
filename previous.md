@@ -15,7 +15,7 @@ https://nytimes.com/2024/08/25/crosswords/daily-puzzle-2024-08-26.html
 https://nytimes.com/athletic/5722943/2024/08/25/blue-jays-bowden-francis-no-hitter-bid/
 
 **On Hawaii’s Big Island, Hurricane Hone Brings Heavy Rain but No Major Damage**\
-`About 15,000 customers were without power on early Sunday, but neither the winds nor the flooding from the storm were dramatic.`\
+`More than 20,000 customers were without power by Sunday afternoon, but neither the winds nor the flooding from the storm were dramatic.`\
 https://nytimes.com/2024/08/25/us/hurricane-hone-hawaii-damage.html
 
 **Lydia Ko and the shot that gave her the Women's Open championship**\

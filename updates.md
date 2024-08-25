@@ -1,3 +1,7 @@
+**On Hawaii’s Big Island, Hurricane Hone Brings Heavy Rain but No Major Damage**\
+`More than 20,000 customers were without power by Sunday afternoon, but neither the winds nor the flooding from the storm were dramatic.`\
+https://nytimes.com/2024/08/25/us/hurricane-hone-hawaii-damage.html
+
 **Red Sox takeaways: Home woes continue in sweep; Rafael Devers hits 200th homer**\
 `The Red Sox have the worst home record of any MLB team with an overall record better than .500 after being swept at Fenway by Arizona.`\
 https://nytimes.com/athletic/5722909/2024/08/25/red-sox-takeaways-home-losses-rafael-dever-200-homer/
