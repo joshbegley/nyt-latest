@@ -1,3 +1,7 @@
+**Lando Norris wins the Dutch Grand Prix, narrows title gap to Max Verstappen**\
+`Norris made up for a slow start with one of the best drives of his life – tightening F1's title fight. `\
+https://nytimes.com/athletic/5722143/2024/08/25/f1-lando-norris-dutch-grand-prix/
+
 **Rams LB Ernest Jones on trading block: Source**\
 `Jones has recorded 320 tackles and 5 1/2 sacks in his three seasons with the Rams.`\
 https://nytimes.com/athletic/5722079/2024/08/25/ernest-jones-rams-trade/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/25/world/europe/france-synagogue-arrest.html
 **The Courts That Made Them: Coco Gauff and Pompey Park**\
 `The defending U.S. Open champion grew up on public courts in Delray Beach, Florida`\
 https://nytimes.com/athletic/5480321/2024/08/25/coco-gauff-tennis-courts-pompey-park-delray-beach/
-
-**49ers' Isaac Guerendo faces new question after big return: Keep No. 49?**\
-`The 49ers rookie running back might be their top option to return kicks following his 93-yard runback against the Raiders. `\
-https://nytimes.com/athletic/5720872/2024/08/25/49ers-isaac-guerendo-jersey-number/
 

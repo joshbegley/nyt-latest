@@ -1,3 +1,7 @@
+**Lando Norris wins the Dutch Grand Prix, narrows title gap to Max Verstappen**\
+`Norris made up for a slow start with one of the best drives of his life – tightening F1's title fight. `\
+https://nytimes.com/athletic/5722143/2024/08/25/f1-lando-norris-dutch-grand-prix/
+
 **French Authorities Arrest Suspect in Synagogue Attack**\
 `Antiterrorism prosecutors said officers had taken a man into custody in connection with a blast outside a synagogue.`\
 https://nytimes.com/2024/08/25/world/europe/france-synagogue-arrest.html
