@@ -1,3 +1,23 @@
+**Trying to Head Off War, U.S. Moves Naval Forces Closer to Israel**\
+`American officials are sending a signal to Iran and its allies, in the form of two aircraft carrier groups and an attack submarine.`\
+https://nytimes.com/2024/08/25/world/middleeast/us-aircraft-carriers-submarine.html
+
+**Harbaugh lauds Justin Herberts leadership in stuck elevator**\
+`“Who’s got it better than those guys that were on that elevator?!” Harbaugh asked Saturday.`\
+https://nytimes.com/athletic/5721706/2024/08/25/jim-harbaugh-justin-herberts-elevator-leadership/
+
+**Quotation of the Day: Unusual Breed of Dog in Virginia Could Save Life and Limb in Ukraine**\
+`Quotation of the Day for Sunday, August 25, 2024.`\
+https://nytimes.com/2024/08/25/pageoneplus/quotation-of-the-day-unusual-breed-of-dog-in-virginia-could-save-life-and-limb-in-ukraine.html
+
+**Look past Manchester United's familiar mistakes and you might just see… progress**\
+`There was enough evidence here at Brighton and on the opening weekend against Fulham that efforts are being made at marginal gains`\
+https://nytimes.com/athletic/5720806/2024/08/25/manchester-united-ten-hag-progress/
+
+**Corrections: Aug. 25, 2024**\
+`Corrections that appeared in print on Sunday, Aug. 25, 2025.`\
+https://nytimes.com/2024/08/25/pageoneplus/corrections-aug-25-2024.html
+
 **Fulham 2 Leicester City 1: Arsenal old boys shine, Silva still wants a winger**\
 `The key talking points after Fulham's Premier League win over Leicester City - and they are still active in window`\
 https://nytimes.com/athletic/5720865/2024/08/25/fulham-leicester-arsenal-smith-rowe-transfer/
@@ -13,24 +33,4 @@ https://nytimes.com/athletic/5719143/2024/08/25/kylian-mbappe-bernabeu-debut-rea
 **This is how Ipswich raced into a historic lead, before City snatched it back**\
 `Newly-promoted Ipswich took a shock lead at champions Manchester City… and then conceded three goals in 191 seconds`\
 https://nytimes.com/athletic/5720869/2024/08/25/premier-league-manchester-city-ipswich-goals/
-
-**We watched every minute of Cristiano Ronaldo's YouTube channel so you never have to**\
-`Tim Spiers watched every minute of Cristiano Ronaldo's record-breaking YouTube channel. Now he needs a lie down`\
-https://nytimes.com/athletic/5718836/2024/08/25/cristiano-ronaldo-youtube-channel/
-
-**Is there something happening at Brighton?**\
-`Brighton are spending big this summer and have backed it up on the pitch - and their new signings have yet to make an impact`\
-https://nytimes.com/athletic/5720610/2024/08/25/brighton-premier-league-transfer-200m/
-
-**Questions for Investigators Trying to Unravel Mystery of Luxury Yacht’s Sinking**\
-`The investigators searching for answers about the shipwreck, leaving seven dead, face questions about extreme weather and possible human error or problems with the yacht itself.`\
-https://nytimes.com/2024/08/25/world/europe/bayesian-yacht-investigation.html
-
-**The Young Frenchman Striving to Give Voice to a Troubled Area**\
-`As a teenager, Amine Kessaci confronted Emmanuel Macron, founded an environmental group and lost a brother to drug violence. At 20, he almost won a National Assembly seat.`\
-https://nytimes.com/2024/08/25/world/europe/marseille-france-amine-kessaci.html
-
-**Sunday's MLB odds, best bets: Pitching matchups, playoff projections and more**\
-`See pitching matchups, playoff projections, win projections and more for Sunday's MLB games.`\
-https://nytimes.com/athletic/5719199/2024/08/25/mlb-odds-best-bets-projections-august-25/
 
