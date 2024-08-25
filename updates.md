@@ -1,3 +1,7 @@
+**In Lebanon, some Hezbollah supporters wonder if its attack went far enough.**\
+`By Hwaida Saad and Euan Ward`\
+https://nytimes.com/live/2024/08/24/world/israel-hamas-gaza-war/in-lebanon-some-hezbollah-supporters-wonder-if-its-attack-went-far-enough
+
 **Fashion and the Convention**\
 `The Times’s fashion critic explores the deliberate choices behind politicians’ outfits.`\
 https://nytimes.com/2024/08/25/briefing/dnc-rnc-fashion.html
