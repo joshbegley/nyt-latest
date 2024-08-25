@@ -1,3 +1,7 @@
+**USMNT midfielder Tessmann set for Lyon medical**\
+`USMNT midfielder Tanner Tessmann is set to undergo a medical before completing a move from Venezia midfielder to Lyon.`\
+https://nytimes.com/athletic/5721139/2024/08/25/tanner-tessmann-lyon-transfer/
+
 **The Pulse: An early college football stunner**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/5721728/2024/08/25/florida-state-georgia-tech-college-football-npb-the-pulse/
