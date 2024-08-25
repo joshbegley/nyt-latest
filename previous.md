@@ -1,3 +1,7 @@
+**'Serena and Venus said I can be myself': Black American tennis players and U.S. star power**\
+`How Black Americans became some of the biggest stars in U.S. tennis — transcending a predominantly White sport.`\
+https://nytimes.com/athletic/5713134/2024/08/25/black-american-tennis-history-williams-gauff-ashe/
+
 **Naomi Osaka’s Ruffles and Bows**\
 `The tennis star unveils her U.S. Open look, made by Nike and the designer Yoon Ahn. It has tulle, ribbons and frills — call it “Lolita goth.”`\
 https://nytimes.com/2024/08/25/style/naomi-osaka-us-open-nike.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/25/nyregion/migrant-rape-assault-coney-island.html
 **Would a Group Opposed to Police Blow the Whistle on Its Founder?**\
 `The leader of Raheem AI had a plan to hold law enforcement accountable, but his lavish expenditures derailed the organization.`\
 https://nytimes.com/2024/08/25/us/brandon-anderson-rahim-ai.html
-
-**How JD Vance Found His Way to the Catholic Church**\
-`In his 30s, the Republican vice-presidential nominee read works on theology, mysticism, and political and moral philosophy. And he discovered his faith.`\
-https://nytimes.com/2024/08/25/us/jd-vance-catholic-church-conversion.html
 
