@@ -1,3 +1,11 @@
+**In a Region on Edge, Israel and Hezbollah Launch Major Attacks on Each Other**\
+`The escalating strikes across the Israel-Lebanon border fueled fears of a bigger conflagration, but both sides signaled that they were de-escalating, for now.`\
+https://nytimes.com/2024/08/25/world/middleeast/israel-hezbollah-hamas-gaza-iran.html
+
+**Michigan receives NCAA formal notice of allegations**\
+`The NCAA is investigating Michigan's alleged sign-stealing scheme to collect video footage of opponents’ signals. `\
+https://nytimes.com/athletic/5722786/2024/08/25/michigan-notice-of-allegations/
+
 **Umpire carted off, hit by Stanton's broken bat**\
 `Giancarlo Stanton’s bat snapped at the handle and struck home-plate umpire Nick Mahrley in the left side of the head and neck.`\
 https://nytimes.com/athletic/5722801/2024/08/25/umpire-carted-off-yankees/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5722661/2024/08/25/jamarr-chase-practice-bengals/
 **Van Dijk 'very calm' about Liverpool future amid contract situation**\
 `Liverpool defender Virgil van Dijk says he is “very calm” about his future at the club as he enters the final season of his contract.`\
 https://nytimes.com/athletic/5722709/2024/08/25/virgil-van-dijk-liverpool-contract/
-
-**Lowetide: Oilers' search for ideal Darnell Nurse partner marches on**\
-`Nurse has faced tough opposition over his nine NHL seasons. The results have been deemed not enough. So who's best suited to play with him?`\
-https://nytimes.com/athletic/5720645/2024/08/25/edmonton-oilers-darnell-nurse-defense-partner/
-
-**At Daytona, Wood Brothers get historic 100th win and set off a celebration**\
-`The historic NASCAR team, which dominated the sport in the 1960s and 70s, picked up an emotional win No. 100 on Saturday at Daytona.`\
-https://nytimes.com/athletic/5722496/2024/08/25/wood-brothers-racing-daytona-nascar-100th-win/
 
