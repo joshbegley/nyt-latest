@@ -1,3 +1,7 @@
+**Separate Attacks Near Ukraine-Russia Border Kill Civilians, Officials Say**\
+`Five people were killed in a Russian town, the local authorities said, while Ukraine reported three dead in a mortar and drone attack.`\
+https://nytimes.com/2024/08/25/world/europe/ukraine-russia-attacks.html
+
 **Trey Lance just needs to play: 'I think he'll play in this league for a long time'**\
 `Lance threw for 323 yards and ran for 90 Saturday. But he showed that he's not ready to be Dak Prescott's backup yet.`\
 https://nytimes.com/athletic/5721627/2024/08/25/trey-lance-dallas-cowboys-quarterback-interceptions/

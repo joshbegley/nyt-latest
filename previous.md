@@ -1,3 +1,7 @@
+**Separate Attacks Near Ukraine-Russia Border Kill Civilians, Officials Say**\
+`Five people were killed in a Russian town, the local authorities said, while Ukraine reported three dead in a mortar and drone attack.`\
+https://nytimes.com/2024/08/25/world/europe/ukraine-russia-attacks.html
+
 **Trey Lance just needs to play: 'I think he'll play in this league for a long time'**\
 `Lance threw for 323 yards and ran for 90 Saturday. But he showed that he's not ready to be Dak Prescott's backup yet.`\
 https://nytimes.com/athletic/5721627/2024/08/25/trey-lance-dallas-cowboys-quarterback-interceptions/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/25/business/soaring-insurance-costs-could-end-afford
 **How Giants rookie Elijah Chatman went from minicamp tryout to near-lock to make the team**\
 `Between his "freakish" strength and the speed and effort he put on display in Houston, Chatman has made a name for himself this summer. `\
 https://nytimes.com/athletic/5719733/2024/08/25/new-york-giants-elijah-chatman-roster-53/
-
-**Battle-Hardened Poets Fuel a Literary Revival in Ukraine**\
-`With verses that capture the raw emotions of the war and resonate deeply with the population, Ukrainian poets have emerged as some of the country’s most influential voices.`\
-https://nytimes.com/2024/08/25/world/europe/ukraine-poets-russia-war.html
 
