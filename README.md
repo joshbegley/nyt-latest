@@ -1,3 +1,15 @@
+**At Daytona, Wood Brothers get historic 100th win and set off a celebration**\
+`The historic NASCAR team, which dominated the sport in the 1960s and 70s, picked up an emotional win No. 100 on Saturday at Daytona.`\
+https://nytimes.com/athletic/5722496/2024/08/25/wood-brothers-racing-daytona-nascar-100th-win/
+
+**Lando Norris signals his F1 championship threat – on Max Verstappen's home turf,**\
+`Winning by the margin Norris did on Sunday, on Verstappen's home turf, certainly sent a message that F1's championship fight is on.`\
+https://nytimes.com/athletic/5722420/2024/08/25/f1-lando-norris-dutch-gp/
+
+**Vance defends tariffs and claims Trump would veto a national abortion ban.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/08/25/us/harris-trump-election/vance-defends-tariffs-and-claims-trump-would-veto-a-national-abortion-ban
+
 **Gundogan is back at City - charged with creating more history, not rewriting it**\
 `The midfielder was given a rapturous reception after his shock return. He felt the love from Guardiola, his team-mates and the fans`\
 https://nytimes.com/athletic/5720803/2024/08/25/ilkay-gundogan-manchester-city-pep-guardiola/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5718714/2024/08/25/liverpool-slot-diaz-brentford/
 **Ravens offensive line coach Joe D’Alessandris dies at 70**\
 `D’Alessandris had recently taken leave from the Ravens and was hospitalized for an “acute illness.”`\
 https://nytimes.com/athletic/5722306/2024/08/25/joe-dalessandris-ravens-death/
-
-**Forest sign David Carmo, loan defender to Olympiacos**\
-`Nottingham Forest have completed the signing of David Carmo from Porto — with the defender immediately returning to Olympiacos on loan.`\
-https://nytimes.com/athletic/5722511/2024/08/25/nottingham-forest-david-carmo-olympiacos/
-
-**Bissouma was fortunate to be back in the team - he must continue to repay Postecoglou**\
-`The Mali midfielder let his football do the talking after a club suspension meant he missed the opener against Leicester City`\
-https://nytimes.com/athletic/5721155/2024/08/25/yves-bissouma-tottenham-postecoglou-goal/
-
-**Jack Draper bruised by 'cheat' accusations after Auger-Aliassime match point controversy**\
-`British No 1 Jack Draper says he thought about the controversial ending to his Cincinnati win against Felix Auger-Aliassime for “four days non-stop.`\
-https://nytimes.com/athletic/5721451/2024/08/25/jack-draper-match-point-auger-aliassime/
 
