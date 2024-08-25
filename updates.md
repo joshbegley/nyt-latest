@@ -1,3 +1,7 @@
+**Here’s the latest on the conflict.**\
+`By Vivek Shankar`\
+https://nytimes.com/live/2024/08/24/world/israel-hamas-gaza-war/heres-the-latest
+
 **Braves' Raisel Iglesias rarely placed among MLB's top closers, but he should be**\
 `The last Brave to finish a season with a lower ERA than Iglesias in at least as many appearances was Craig Kimbrel in 2013. `\
 https://nytimes.com/athletic/5721677/2024/08/24/braves-raisel-iglesias-top-closers/
