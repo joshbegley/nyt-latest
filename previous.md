@@ -1,3 +1,11 @@
+**Grand Canyon Hiker Missing After Flash Floods and Evacuations**\
+`More than 100 people were evacuated after flash flooding in the Havasupai Indian Reservation near Grand Canyon National Park.`\
+https://nytimes.com/2024/08/25/us/grand-canyon-flooding-missing-hiker.html
+
+**Ja’Marr Chase returns to Bengals practice amid contract situation**\
+`The wide receiver has been holding in but was back on the field Sunday two weeks before the season opener.`\
+https://nytimes.com/athletic/5722661/2024/08/25/jamarr-chase-practice-bengals/
+
 **Van Dijk 'very calm' about Liverpool future amid contract situation**\
 `Liverpool defender Virgil van Dijk says he is “very calm” about his future at the club as he enters the final season of his contract.`\
 https://nytimes.com/athletic/5722709/2024/08/25/virgil-van-dijk-liverpool-contract/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5720803/2024/08/25/ilkay-gundogan-manchester-city-p
 **After predawn blasts, an Israeli border town braces for more attacks to come.**\
 `By Johnatan Reiss and Aaron Boxerman`\
 https://nytimes.com/live/2024/08/24/world/israel-hamas-gaza-war/after-predawn-blasts-an-israeli-border-town-braces-for-more-attacks-to-come
-
-**Russell Malone, Acclaimed Jazz Guitarist, Dies at 60**\
-`He first gained attention with Jimmy Smith and went on to work with Harry Connick Jr., Diana Krall and Ron Carter. He also had a distinguished solo career.`\
-https://nytimes.com/2024/08/25/arts/music/russell-malone-dead.html
-
-**Palace considering Nketiah move**\
-`Crystal Palace are considering a move for Arsenal striker Eddie Nketiah.`\
-https://nytimes.com/athletic/5722562/2024/08/25/crystal-palace-eddie-nketiah-transfer/
 

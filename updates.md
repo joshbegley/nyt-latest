@@ -1,3 +1,11 @@
+**Grand Canyon Hiker Missing After Flash Floods and Evacuations**\
+`More than 100 people were evacuated after flash flooding in the Havasupai Indian Reservation near Grand Canyon National Park.`\
+https://nytimes.com/2024/08/25/us/grand-canyon-flooding-missing-hiker.html
+
+**Ja’Marr Chase returns to Bengals practice amid contract situation**\
+`The wide receiver has been holding in but was back on the field Sunday two weeks before the season opener.`\
+https://nytimes.com/athletic/5722661/2024/08/25/jamarr-chase-practice-bengals/
+
 **Van Dijk 'very calm' about Liverpool future amid contract situation**\
 `Liverpool defender Virgil van Dijk says he is “very calm” about his future at the club as he enters the final season of his contract.`\
 https://nytimes.com/athletic/5722709/2024/08/25/virgil-van-dijk-liverpool-contract/
