@@ -1,3 +1,19 @@
+**Forest sign David Carmo, loan defender to Olympiacos**\
+`Nottingham Forest have completed the signing of David Carmo from Porto — with the defender immediately returning to Olympiacos on loan.`\
+https://nytimes.com/athletic/5722511/2024/08/25/nottingham-forest-david-carmo-olympiacos/
+
+**Bissouma was fortunate to be back in the team - he must continue to repay Postecoglou**\
+`The Mali midfielder let his football do the talking after a club suspension meant he missed the opener against Leicester City`\
+https://nytimes.com/athletic/5721155/2024/08/25/yves-bissouma-tottenham-postecoglou-goal/
+
+**Jack Draper bruised by 'cheat' accusations after Auger-Aliassime match point controversy**\
+`British No 1 Jack Draper says he thought about the controversial ending to his Cincinnati win against Felix Auger-Aliassime for “four days non-stop.`\
+https://nytimes.com/athletic/5721451/2024/08/25/jack-draper-match-point-auger-aliassime/
+
+**Nketiah's Forest move off**\
+`Nottingham Forest&#8217;s move for Eddie Nketiah has broken down after an agreement with the Arsenal striker could not be finalised.`\
+https://nytimes.com/athletic/5714188/2024/08/25/eddie-nketiah-transfer-nottingham-forest-arsenal/
+
 **Iraola blames VAR for Bournemouth's disallowed goal against Newcastle**\
 `Bournemouth head coach Andoni Iraola expressed his frustration with VAR after Bournemouth were denied a late winner in their 1-1 draw with Newcastle United.`\
 https://nytimes.com/athletic/5722479/2024/08/25/bournemouth-newcastle-disallowed-goal-handball-iraola/
