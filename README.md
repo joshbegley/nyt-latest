@@ -1,3 +1,7 @@
+**The Pulse: An early college football stunner**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
+https://nytimes.com/athletic/5721728/2024/08/25/florida-state-georgia-tech-college-football-npb-the-pulse/
+
 **James Rodriguez close to Rayo Vallecano move**\
 `James Rodriguez is close to signing for La Liga side Rayo Vallecano.`\
 https://nytimes.com/athletic/5721993/2024/08/25/james-rodriguez-rayo-vallecano-transfer/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5722786/2024/08/25/michigan-notice-of-allegations/
 **Umpire hit in head by Stanton's broken bat**\
 `Giancarlo Stanton’s bat snapped at the handle and struck home-plate umpire Nick Mahrley in the left side of the head and neck.`\
 https://nytimes.com/athletic/5722801/2024/08/25/umpire-carted-off-yankees/
-
-**Fanatics lists Marvin Harrison Sr. as defendant in suit**\
-`The legal battle between Fanatics and Marvin Harrison Jr. took another turn with the apparel and collectibles company's latest filing.`\
-https://nytimes.com/athletic/5722412/2024/08/25/marvin-harrison-jr-sr-fanatics-lawsuit/
 
