@@ -1,3 +1,7 @@
+**Pablo López outduels former teammate Sonny Gray as Twins shut out Cardinals**\
+`Billed as a battle between two old friends and teammates, Saturday's contest served more as a platform for how good López continues to be.`\
+https://nytimes.com/athletic/5721669/2024/08/24/pablo-lopez-outduels-sonny-gray-twins-shutout/
+
 **Final Giants 53-man roster projection: Is Azeez Ojulari a trade candidate?**\
 `The Giants must trim their roster to 53 players by Tuesday evening. They have a few tough decisions to make. `\
 https://nytimes.com/athletic/5720231/2024/08/24/new-york-giants-roster-projection-azeez-ojulari/
