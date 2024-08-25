@@ -1,3 +1,7 @@
+**From Bass-o-matic to Bass-dra-matic: Bills kicker still battling inconsistency**\
+`The kicker is keeping his cool through struggles that date back to last season.`\
+https://nytimes.com/athletic/5721427/2024/08/24/buffalo-bills-tyler-bass-kicker-inconsistency/
+
 **A 1-run loss accentuates the Astros' frustrating in-season carousel at first base**\
 `Eight players have appeared at first base since the Astros jettisoned José Abreu in mid-June, and it remains their biggest weakness.`\
 https://nytimes.com/athletic/5721540/2024/08/24/astros-one-run-loss-orioles-first-base/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5720641/2024/08/24/philadelphia-eagles-preseason-53
 **Bowden Francis misses history after no-no foiled but gains momentum in Blue Jays rotation**\
 `Francis missed history by three outs Saturday but was brilliant over eight innings with a career-high 12 strikeouts.`\
 https://nytimes.com/athletic/5721402/2024/08/24/bowden-francis-blue-jays-angels/
-
-**Packers final 53-man projection: Is the Week 1 kicker currently on the roster?**\
-`Green Bay has a couple of tricky roster decisions to make before Tuesday's cutdown deadline.`\
-https://nytimes.com/athletic/5721248/2024/08/24/packers-roster-53-man-projection/
 
