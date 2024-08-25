@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5722562/2024/08/25/crystal-palace-eddie-nketiah-transfer/
 
 **The Briefing: Liverpool 2 Brentford 0: Diaz's finishing, Slot's control, Konate's importance**\
-`We look at all the action as Arne Slot sealed victory in his first Premier League match at Anfield as Liverpool manager.`\
+`We look at all the action as Arne Slot’s side sealed victory in the Dutchman’s first Premier League match at Anfield as Liverpool manager`\
 https://nytimes.com/athletic/5718714/2024/08/25/liverpool-slot-diaz-brentford/
 
 **Ravens offensive line coach Joe D’Alessandris dies at 70**\
