@@ -1,3 +1,15 @@
+**These Are Our Favorite Movies From 1999. What Are Yours?**\
+`In our view, these eight comedies, dramas and more have attained classic status 25 years later. Let us know your own picks.`\
+https://nytimes.com/2024/08/25/movies/1999-movies-critics.html
+
+**An Impressive Monument to Christopher Isherwood, Man of Letters (and Lovers)**\
+`Though it downplays unflattering details, Katherine Bucknell’s big biography hails the 20th-century writer as an early advocate for the “chosen family.”`\
+https://nytimes.com/2024/08/25/books/review/christopher-isherwood-inside-out-katherine-bucknell.html
+
+**Why Were Justice Dept. Officials Scared to Talk to This Book’s Author?**\
+`In “Where Tyranny Begins,” the journalist David Rohde reveals how former President Donald Trump tried to use the federal law enforcement agency to help himself and punish his foes.`\
+https://nytimes.com/2024/08/25/books/review/where-tyranny-begins-david-rohde.html
+
 **Barcelona 2 Athletic 1: Leader Yamal, Williams' hot reception, Flick's methods working**\
 `Barcelona have off-field issues to address but Hansi Flick is making a quietly impressive start as head coach. It helps having Yamal...`\
 https://nytimes.com/athletic/5721814/2024/08/25/barcelona-yamal-lewandowski-flick-pedri/
@@ -21,16 +33,4 @@ https://nytimes.com/2024/08/25/style/sauna-finnish-embassy-washington.html
 **‘I Noticed That the Woman in the Orange Shirt Was Losing Her Balance’**\
 `Trying not to fall on a moving train, a message between old friends and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://nytimes.com/2024/08/25/nyregion/metropolitan-diary.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/08/25/crosswords/spelling-bee-forum.html
-
-**Israel’s Hunt for the Elusive Leader of Hamas**\
-`Yahya Sinwar’s ability to evade capture or death has denied Israel a military success in a war that began after he planned the Oct. 7 attacks.`\
-https://nytimes.com/2024/08/25/us/politics/israel-hamas-sinwar.html
-
-**Why Opening a Roth Account May Be a Good Move, No Matter Your Age**\
-`These savings accounts, which are often pitched to young investors, can be a good investment option for older and retired workers.`\
-https://nytimes.com/2024/08/25/business/roth-retirement-account-older-workers.html
 
