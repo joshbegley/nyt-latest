@@ -1,3 +1,7 @@
+**Fanatics lists Marvin Harrison Sr. as defendant in suit**\
+`The legal battle between Fanatics and Marvin Harrison Jr. took another turn with the apparel and collectibles company's latest filing.`\
+https://nytimes.com/athletic/5722412/2024/08/25/marvin-harrison-jr-sr-fanatics-lawsuit/
+
 **While the U.S. Open was partying, ATP and WTA players had a job to do**\
 `As the top players put the finishing touches on their U.S. Open preparation, tennis continues elsewhere`\
 https://nytimes.com/athletic/5721982/2024/08/25/us-open-fan-week-atp-wta-tennis-tour-calendar/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5722496/2024/08/25/wood-brothers-racing-daytona-nas
 **Lando Norris signals his F1 championship threat – on Max Verstappen's home turf,**\
 `Winning by the margin Norris did on Sunday, on Verstappen's home turf, certainly sent a message that F1's championship fight is on.`\
 https://nytimes.com/athletic/5722420/2024/08/25/f1-lando-norris-dutch-gp/
-
-**Vance defends tariffs and claims Trump would veto a national abortion ban.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/08/25/us/harris-trump-election/vance-defends-tariffs-and-claims-trump-would-veto-a-national-abortion-ban
 
