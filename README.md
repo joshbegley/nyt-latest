@@ -1,3 +1,7 @@
+**Monday Briefing: Israel and Hezbollah Exchange Major Attacks**\
+`Plus, DMZ honey.`\
+https://nytimes.com/2024/08/25/briefing/israel-hezbollah-telegram-germany-stabbing-isis.html
+
 **Fauci Recovering From West Nile Virus Infection**\
 `The former director of the National Institute of Allergy and Infectious Diseases had been hospitalized and was expected to make a full recovery, a spokeswoman said.`\
 https://nytimes.com/2024/08/25/us/fauci-west-nile-virus-hospitalized.html
@@ -10,7 +14,7 @@ https://nytimes.com/2024/08/25/world/middleeast/israel-hezbollah-hamas-gaza-iran
 `The NCAA is investigating Michigan's alleged sign-stealing scheme to collect video footage of opponents’ signals. `\
 https://nytimes.com/athletic/5722786/2024/08/25/michigan-notice-of-allegations/
 
-**Umpire carted off, hit by Stanton's broken bat**\
+**Umpire hit in head by Stanton's broken bat**\
 `Giancarlo Stanton’s bat snapped at the handle and struck home-plate umpire Nick Mahrley in the left side of the head and neck.`\
 https://nytimes.com/athletic/5722801/2024/08/25/umpire-carted-off-yankees/
 
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5722724/2024/08/25/aaron-judge-home-runs-yankees/
 **Grand Canyon Hiker Missing After Flash Floods and Evacuations**\
 `More than 100 people were evacuated after flash flooding in the Havasupai Indian Reservation near Grand Canyon National Park.`\
 https://nytimes.com/2024/08/25/us/grand-canyon-flooding-missing-hiker.html
-
-**Ja’Marr Chase returns to Bengals practice amid contract situation**\
-`The wide receiver has been holding in but was back on the field Sunday two weeks before the season opener.`\
-https://nytimes.com/athletic/5722661/2024/08/25/jamarr-chase-practice-bengals/
 
