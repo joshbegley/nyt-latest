@@ -1,3 +1,7 @@
+**Oh, This Eggplant Lasagna? It Was Nothing.**\
+`If you roast the eggplant ahead of time, you’re just a half-hour away from a gorgeous, gluten-free vegetarian dinner.`\
+https://nytimes.com/2024/08/25/dining/eggplant-lasagna-vegetarian-lasagna.html
+
 **Dozens Are Killed in Two Unrelated Bus Crashes in Pakistan**\
 `One of the accidents killed 12 people who were returning from a religious pilgrimage to Iraq, officials said.`\
 https://nytimes.com/2024/08/25/world/asia/bus-crashes-pakistan.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/25/world/europe/germany-festival-attack.html
 **College Football Playoff 2024 projections: Our 12-team bracket after FSU's opening loss**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/08/25/college-football-playoff-projections-odds/
-
-**French Authorities Arrest Suspect in Synagogue Attack**\
-`Antiterrorism prosecutors said officers had taken a man into custody in connection with a blast outside a synagogue.`\
-https://nytimes.com/2024/08/25/world/europe/france-synagogue-arrest.html
 
