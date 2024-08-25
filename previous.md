@@ -1,3 +1,7 @@
+**Giants got Camilo Doval's attention — and benefits were immediate in win at Seattle**\
+`Doval returned to the Giants on Saturday, but not as the closer.`\
+https://nytimes.com/athletic/5721562/2024/08/24/giants-camilo-doval-win-mariners/
+
 **Yu Darvish’s agent praises A.J. Preller for Padres GM’s handling of unique situation**\
 `Preller offered to allow Darvish to continue being paid when he took an indefinite leave of absence to tend to a private family matter.`\
 https://nytimes.com/athletic/5721580/2024/08/24/yu-darvish-agent-praises-a-j-preller/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5720564/2024/08/24/texas-recruiting-jonah-williams/
 **'Just personally, it's sad': Dodgers' decision to cut Jason Heyward hits home for Freddie Freeman**\
 `Heyward and Freeman have had a long-standing friendship since very early in their careers.`\
 https://nytimes.com/athletic/5721428/2024/08/24/dodgers-jason-heyward-freddie-freeman/
-
-**Eagles 53-man roster projection before final cuts**\
-`Final cuts will be made on Tuesday.`\
-https://nytimes.com/athletic/5720641/2024/08/24/philadelphia-eagles-preseason-53-man-roster-projection/
 
