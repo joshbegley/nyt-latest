@@ -1,3 +1,7 @@
+**Keegan Bradley survives Adam Scott to win BMW Championship by 1 shot**\
+`The FedEx Cup playoff event win is Bradley’s seventh career PGA Tour victory.`\
+https://nytimes.com/athletic/5723016/2024/08/25/keegan-bradley-wins-bmw-championship/
+
 **On Hawaii’s Big Island, Hurricane Hone Brings Heavy Rain but No Major Damage**\
 `More than 20,000 customers were without power by Sunday afternoon, but neither the winds nor the flooding from the storm were dramatic.`\
 https://nytimes.com/2024/08/25/us/hurricane-hone-hawaii-damage.html

@@ -1,3 +1,7 @@
+**Keegan Bradley survives Adam Scott to win BMW Championship by 1 shot**\
+`The FedEx Cup playoff event win is Bradley’s seventh career PGA Tour victory.`\
+https://nytimes.com/athletic/5723016/2024/08/25/keegan-bradley-wins-bmw-championship/
+
 **Red Sox takeaways: Home woes continue in sweep; Rafael Devers hits 200th homer**\
 `The Red Sox have the worst home record of any MLB team with an overall record better than .500 after being swept at Fenway by Arizona.`\
 https://nytimes.com/athletic/5722909/2024/08/25/red-sox-takeaways-home-losses-rafael-dever-200-homer/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5722927/2024/08/25/bravess-michael-harris-ramon-lau
 **Forest make new Gimenez bid but still short of Feyenoord's valuation**\
 `Nottingham Forest have made a fresh bid for Santiago Gimenez but the offer is still thought to fall below Feyenoord’s valuation of the striker.`\
 https://nytimes.com/athletic/5722944/2024/08/25/nottingham-forest-santiago-gimenez/
-
-**Israel and Hezbollah Trade Heavy Air Attacks**\
-`Israel on Sunday launched what it described as a pre-emptive strike against a major attack that Hezbollah was planning on Israeli territory. Hezbollah fired its own barrage later in the day.`\
-https://nytimes.com/video/world/middleeast/100000009656752/israel-hezbollah-lebanon-strikes.html
 
