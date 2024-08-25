@@ -1,3 +1,7 @@
+**Here’s the latest on the presidential race.**\
+`By Neil Vigdor`\
+https://nytimes.com/live/2024/08/25/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
 **Barcelona defender Faye joins Rennes in €10.3 million deal**\
 `Stade Rennais have completed the signing of Barcelona defender Mika Faye.`\
 https://nytimes.com/athletic/5721968/2024/08/25/barcelona-mika-faye-rennes-transfer/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5718808/2024/08/25/ipswich-transfers-dara-oshea/
 **What we learned about Bears after 2 trades for D-linemen, early roster moves**\
 `GM Ryan Poles is always looking to improve his roster, and he added two D-linemen over the weekend, days before final cuts are due.`\
 https://nytimes.com/athletic/5721258/2024/08/25/chicago-bears-trades-roster-moves/
-
-**Trossard and a compelling case to take Martinelli's place in Arsenal's team**\
-`Trossard was clearly frustrated not to start against Villa - is it time he had a regular run in Arteta's starting XI over Martinelli?`\
-https://nytimes.com/athletic/5721104/2024/08/25/arsenal-leandro-trossard-gabriel-martinelli/
 
