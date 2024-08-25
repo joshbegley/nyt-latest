@@ -1,3 +1,7 @@
+**Final Giants 53-man roster projection: Is Azeez Ojulari a trade candidate?**\
+`The Giants must trim their roster to 53 players by Tuesday evening. They have a few tough decisions to make. `\
+https://nytimes.com/athletic/5720231/2024/08/24/new-york-giants-roster-projection-azeez-ojulari/
+
 **Cardinals lose Willson Contreras to broken finger**\
 `Already fighting to stay in playoff contention, the St.`\
 https://nytimes.com/athletic/5721646/2024/08/24/cardinals-willson-contreras-broken-finger/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5721271/2024/08/24/detroit-lions-53-man-roster-proj
 **Ohtani throws off mound for first time since surgery**\
 `The organization has ruled out any chance of Ohtani pitching in big league games for them this season.`\
 https://nytimes.com/athletic/5721526/2024/08/24/shohei-ohtani-throws-first-time/
-
-**Final Cowboys 53-man roster projection: Does DaRon Bland's injury affect decisions?**\
-`Deuce Vaughn or Royce Freeman for fourth running back? How will the Cowboys deal with the temporary loss of All-Pro DaRon Bland?`\
-https://nytimes.com/athletic/5720588/2024/08/24/dallas-cowboys-final-roster-projection/
 
