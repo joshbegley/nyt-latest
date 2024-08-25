@@ -1,3 +1,11 @@
+**Palace considering Nketiah move**\
+`Crystal Palace are considering a move for Arsenal striker Eddie Nketiah.`\
+https://nytimes.com/athletic/5722562/2024/08/25/crystal-palace-eddie-nketiah-transfer/
+
+**The Briefing: Liverpool 2 Brentford 0: Diaz's finishing, Slot's control, Konate's importance**\
+`We look at all the action as Arne Slot sealed victory in his first Premier League match at Anfield as Liverpool manager.`\
+https://nytimes.com/athletic/5718714/2024/08/25/liverpool-slot-diaz-brentford/
+
 **Ravens offensive line coach Joe D’Alessandris dies at 70**\
 `D’Alessandris had recently taken leave from the Ravens and was hospitalized for an “acute illness.”`\
 https://nytimes.com/athletic/5722306/2024/08/25/joe-dalessandris-ravens-death/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5722479/2024/08/25/bournemouth-newcastle-disallowed
 **NASCAR Daytona takeaways: Harrison Burton earns his way into the playoffs**\
 `Anything can happen at Daytona, and on Saturday, Harrison Burton — last place in points — earned a spot in the playoffs with a massive win.`\
 https://nytimes.com/athletic/5722337/2024/08/25/nascar-daytona-takeaways-harrison-burton-playoffs/
-
-**Mitzi McCall, Comedian Who Confronted Beatlemania and Lost, Dies at 93**\
-`She and her husband had the bad luck to make their “Ed Sullivan Show” debut the same night as the Beatles. They bombed. But their careers would recover.`\
-https://nytimes.com/2024/08/25/arts/television/mitzi-mccall-dead.html
-
-**Madueke apologises for insulting Wolverhampton: 'I'm sure it's a nice town'**\
-`Chelsea winger Noni Madueke has apologised after a social media post in which he insulted Wolverhampton.`\
-https://nytimes.com/athletic/5722380/2024/08/25/noni-madueke-wolverhampton-chelsea-apology/
 
