@@ -1,3 +1,7 @@
+**Yu Darvish’s agent praises A.J. Preller for Padres GM’s handling of unique situation**\
+`Preller offered to allow Darvish to continue being paid when he took an indefinite leave of absence to tend to a private family matter.`\
+https://nytimes.com/athletic/5721580/2024/08/24/yu-darvish-agent-praises-a-j-preller/
+
 **From Bass-o-matic to Bass-dra-matic: Bills kicker still battling inconsistency**\
 `The kicker is keeping his cool through struggles that date back to last season.`\
 https://nytimes.com/athletic/5721427/2024/08/24/buffalo-bills-tyler-bass-kicker-inconsistency/
