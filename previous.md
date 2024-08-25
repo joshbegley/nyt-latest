@@ -1,3 +1,7 @@
+**Red Sox takeaways: Home woes continue in sweep; Rafael Devers hits 200th homer**\
+`The Red Sox have the worst home record of any MLB team with an overall record better than .500 after being swept at Fenway by Arizona.`\
+https://nytimes.com/athletic/5722909/2024/08/25/red-sox-takeaways-home-losses-rafael-dever-200-homer/
+
 **Tracking Tropical Storm Hector**\
 `See the likely path and wind arrival times for Hector.`\
 https://nytimes.com/interactive/2024/08/25/weather/hector-map-path-tracker.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5722944/2024/08/25/nottingham-forest-santiago-gimen
 **Israel and Hezbollah Trade Heavy Air Attacks**\
 `Israel on Sunday launched what it described as a pre-emptive strike against a major attack that Hezbollah was planning on Israeli territory. Hezbollah fired its own barrage later in the day.`\
 https://nytimes.com/video/world/middleeast/100000009656752/israel-hezbollah-lebanon-strikes.html
-
-**USMNT midfielder Tessmann set for Lyon medical**\
-`USMNT midfielder Tanner Tessmann is set to undergo a medical before completing a move from Venezia midfielder to Lyon.`\
-https://nytimes.com/athletic/5721139/2024/08/25/tanner-tessmann-lyon-transfer/
 

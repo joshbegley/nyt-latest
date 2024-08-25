@@ -1,3 +1,7 @@
+**Red Sox takeaways: Home woes continue in sweep; Rafael Devers hits 200th homer**\
+`The Red Sox have the worst home record of any MLB team with an overall record better than .500 after being swept at Fenway by Arizona.`\
+https://nytimes.com/athletic/5722909/2024/08/25/red-sox-takeaways-home-losses-rafael-dever-200-homer/
+
 **Tracking Tropical Storm Hector**\
 `See the likely path and wind arrival times for Hector.`\
 https://nytimes.com/interactive/2024/08/25/weather/hector-map-path-tracker.html
