@@ -1,3 +1,15 @@
+**Kylian Mbappe's Bernabeu debut: How Ronaldo, Beckham and others started at Real Madrid**\
+`With Madrid's new star set for his Bernabeu bow, we look back at some other key debuts at the ground`\
+https://nytimes.com/athletic/5719143/2024/08/25/kylian-mbappe-bernabeu-debut-real-madrid-ronaldo-beckham/
+
+**This is how Ipswich raced into a historic lead, before City snatched it back**\
+`Newly-promoted Ipswich took a shock lead at champions Manchester City… and then conceded three goals in 191 seconds`\
+https://nytimes.com/athletic/5720869/2024/08/25/premier-league-manchester-city-ipswich-goals/
+
+**We watched every minute of Cristiano Ronaldo's YouTube channel so you never have to**\
+`Tim Spiers watched every minute of Cristiano Ronaldo's record-breaking YouTube channel. Now he needs a lie down`\
+https://nytimes.com/athletic/5718836/2024/08/25/cristiano-ronaldo-youtube-channel/
+
 **Is there something happening at Brighton?**\
 `Brighton are spending big this summer and have backed it up on the pitch - and their new signings have yet to make an impact`\
 https://nytimes.com/athletic/5720610/2024/08/25/brighton-premier-league-transfer-200m/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5721677/2024/08/24/braves-raisel-iglesias-top-close
 **Pablo López outduels former teammate Sonny Gray as Twins shut out Cardinals**\
 `Billed as a battle between two old friends and teammates, Saturday's contest served more as a platform for how good López continues to be.`\
 https://nytimes.com/athletic/5721669/2024/08/24/pablo-lopez-outduels-sonny-gray-twins-shutout/
-
-**Final Giants 53-man roster projection: Is Azeez Ojulari a trade candidate?**\
-`The Giants must trim their roster to 53 players by Tuesday evening. They have a few tough decisions to make. `\
-https://nytimes.com/athletic/5720231/2024/08/24/new-york-giants-roster-projection-azeez-ojulari/
-
-**Cardinals lose Willson Contreras to broken finger**\
-`Already fighting to stay in playoff contention, the St.`\
-https://nytimes.com/athletic/5721646/2024/08/24/cardinals-willson-contreras-broken-finger/
-
-**Here’s the latest on the conflict.**\
-`By Vivek Shankar`\
-https://nytimes.com/live/2024/08/24/world/israel-hamas-gaza-war/heres-the-latest
 
