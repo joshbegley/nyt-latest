@@ -1,3 +1,7 @@
+**From Bass-o-matic to Bass-dra-matic: Bills kicker still battling inconsistency**\
+`The kicker is keeping his cool through struggles that date back to last season.`\
+https://nytimes.com/athletic/5721427/2024/08/24/buffalo-bills-tyler-bass-kicker-inconsistency/
+
 **A 1-run loss accentuates the Astros' frustrating in-season carousel at first base**\
 `Eight players have appeared at first base since the Astros jettisoned José Abreu in mid-June, and it remains their biggest weakness.`\
 https://nytimes.com/athletic/5721540/2024/08/24/astros-one-run-loss-orioles-first-base/
