@@ -1,3 +1,7 @@
+**Browns 53-man projection: Tackle health would boost offense, but uncertainty looms**\
+`Injuries to Jedrick Wills Jr. and Jack Conklin complicate finalizing a roster with "one or two" open spots entering the preseason finale.`\
+https://nytimes.com/athletic/5721754/2024/08/25/browns-53-man-projection-preseason-seahawks/
+
 **What’s on TV This Week: ‘Inside the N.F.L.’ and ‘The Bachelorette: Men Tell All’**\
 `The CW airs their annual show. Jenn Tran confronts her past suitors on ABC.`\
 https://nytimes.com/2024/08/25/arts/television/whats-on-tv-this-week-inside-the-nfl-and-the-bachelorette-men-tell-all.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/25/pageoneplus/corrections-aug-25-2024.html
 **Fulham 2 Leicester City 1: Arsenal old boys shine, Silva still wants a winger**\
 `The key talking points after Fulham's Premier League win over Leicester City - and they are still active in window`\
 https://nytimes.com/athletic/5720865/2024/08/25/fulham-leicester-arsenal-smith-rowe-transfer/
-
-**How should Liverpool fans react to the sale of their young players?**\
-`Significant funds have been raised this summer through the sale of youngsters, with Bobby Clark the first of 'Klopp's Kids' to fly the nest`\
-https://nytimes.com/athletic/5716423/2024/08/25/liverpool-youngsters-hughes-slot-clark-berg/
 

@@ -1,3 +1,7 @@
+**Browns 53-man projection: Tackle health would boost offense, but uncertainty looms**\
+`Injuries to Jedrick Wills Jr. and Jack Conklin complicate finalizing a roster with "one or two" open spots entering the preseason finale.`\
+https://nytimes.com/athletic/5721754/2024/08/25/browns-53-man-projection-preseason-seahawks/
+
 **What’s on TV This Week: ‘Inside the N.F.L.’ and ‘The Bachelorette: Men Tell All’**\
 `The CW airs their annual show. Jenn Tran confronts her past suitors on ABC.`\
 https://nytimes.com/2024/08/25/arts/television/whats-on-tv-this-week-inside-the-nfl-and-the-bachelorette-men-tell-all.html
