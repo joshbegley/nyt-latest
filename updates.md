@@ -1,3 +1,7 @@
+**In a Region on Edge, Israel and Hezbollah Launch Major Attacks on Each Other**\
+`The escalating strikes across the Israel-Lebanon border fueled fears of a bigger conflagration, but both sides signaled that they were de-escalating, for now.`\
+https://nytimes.com/2024/08/25/world/middleeast/israel-hezbollah-hamas-gaza-iran.html
+
 **Lowetide: Oilers' search for ideal Darnell Nurse partner marches on**\
 `Nurse has faced tough opposition over his nine NHL seasons. The results have been deemed not enough. So who's best suited to play with him?`\
 https://nytimes.com/athletic/5720645/2024/08/25/edmonton-oilers-darnell-nurse-defense-partner/
