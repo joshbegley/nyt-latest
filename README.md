@@ -1,3 +1,7 @@
+**Former West Ham defender Ogbonna agrees one-year deal to join Watford**\
+`Former West Ham defender Angelo Ogbonna has agreed a one year deal with Watford.`\
+https://nytimes.com/athletic/5721909/2024/08/25/ogbonna-watford-transfer-west-ham/
+
 **Separate Attacks Near Ukraine-Russia Border Kill Civilians, Officials Say**\
 `Five people were killed in a Russian town, the local authorities said, while Ukraine reported three dead in a mortar and drone attack.`\
 https://nytimes.com/2024/08/25/world/europe/ukraine-russia-attacks.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/25/business/media/apple-movies-theaters-wolfs.html
 **Soaring Insurance Costs Could ‘End’ Affordable Housing, Developers Warn**\
 `Developers and landlords of subsidized housing, who cannot raise rents or charge more for starter homes, say property insurance increases could put them out of business.`\
 https://nytimes.com/2024/08/25/business/soaring-insurance-costs-could-end-affordable-housing-developers-warn.html
-
-**How Giants rookie Elijah Chatman went from minicamp tryout to near-lock to make the team**\
-`Between his "freakish" strength and the speed and effort he put on display in Houston, Chatman has made a name for himself this summer. `\
-https://nytimes.com/athletic/5719733/2024/08/25/new-york-giants-elijah-chatman-roster-53/
 
