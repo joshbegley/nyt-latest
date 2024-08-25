@@ -1,3 +1,7 @@
+**Fashion and the Convention**\
+`The Times’s fashion critic explores the deliberate choices behind politicians’ outfits.`\
+https://nytimes.com/2024/08/25/briefing/dnc-rnc-fashion.html
+
 **Man City midfielder Perrone joins Como on loan**\
 `Manchester City midfielder Maximo Perrone has joined Serie A side Como on loan on a season-long loan.`\
 https://nytimes.com/athletic/5721952/2024/08/25/man-city-perrone-como-loan/
