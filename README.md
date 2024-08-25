@@ -1,5 +1,5 @@
-**Mets' Francisco Lindor creating MVP debate: 'He needs to be in the conversation'**\
-`Lindor’s MVP candidacy is more than just the contrarian part of the brain working overdrive.`\
+**'He needs to be in the conversation': Mets' Francisco Lindor creating MVP debate**\
+`Lindor's MVP candidacy is more than just the contrarian part of the brain working in overdrive.`\
 https://nytimes.com/athletic/5721790/2024/08/25/mets-francisco-lindor-mvp-race/
 
 **Here’s a timeline of recent strikes and retaliations in the region.**\
