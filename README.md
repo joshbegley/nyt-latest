@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Hector**\
+`See the likely path and wind arrival times for Hector.`\
+https://nytimes.com/interactive/2024/08/25/weather/hector-map-path-tracker.html
+
 **Brainpower Measures**\
 `Refrain from making assumptions about Zachary David Levy’s puzzle.`\
 https://nytimes.com/2024/08/25/crosswords/daily-puzzle-2024-08-26.html
@@ -29,8 +33,4 @@ https://nytimes.com/video/world/middleeast/100000009656752/israel-hezbollah-leba
 **USMNT midfielder Tessmann set for Lyon medical**\
 `USMNT midfielder Tanner Tessmann is set to undergo a medical before completing a move from Venezia midfielder to Lyon.`\
 https://nytimes.com/athletic/5721139/2024/08/25/tanner-tessmann-lyon-transfer/
-
-**The Pulse: An early college football stunner**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
-https://nytimes.com/athletic/5721728/2024/08/25/florida-state-georgia-tech-college-football-npb-the-pulse/
 
