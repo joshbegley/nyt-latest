@@ -1,3 +1,7 @@
+**After Attacks, Israel and Hezbollah Swiftly Move to Talk of Containment**\
+`Hezbollah’s long-dreaded retaliation for the killing of a senior commander appeared to be over before it began. But analysts said tensions could yet escalate further.`\
+https://nytimes.com/2024/08/25/world/middleeast/israel-hezbollah-attacks-escalation.html
+
 **Here’s the latest on the presidential race.**\
 `By Neil Vigdor`\
 https://nytimes.com/live/2024/08/25/us/harris-trump-election/heres-the-latest-on-the-presidential-race
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/25/world/middleeast/israel-hezbollah-attacks.html
 **Ipswich Town sign Burnley defender O'Shea in £15m deal**\
 `Ipswich Town have completed the signing of Burnley defender Dara O&#8217;Shea in a deal worth around £15million ($19.`\
 https://nytimes.com/athletic/5718808/2024/08/25/ipswich-transfers-dara-oshea/
-
-**What we learned about Bears after 2 trades for D-linemen, early roster moves**\
-`GM Ryan Poles is always looking to improve his roster, and he added two D-linemen over the weekend, days before final cuts are due.`\
-https://nytimes.com/athletic/5721258/2024/08/25/chicago-bears-trades-roster-moves/
 

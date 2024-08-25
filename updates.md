@@ -1,3 +1,7 @@
+**After Attacks, Israel and Hezbollah Swiftly Move to Talk of Containment**\
+`Hezbollah’s long-dreaded retaliation for the killing of a senior commander appeared to be over before it began. But analysts said tensions could yet escalate further.`\
+https://nytimes.com/2024/08/25/world/middleeast/israel-hezbollah-attacks-escalation.html
+
 **Here’s the latest on the presidential race.**\
 `By Neil Vigdor`\
 https://nytimes.com/live/2024/08/25/us/harris-trump-election/heres-the-latest-on-the-presidential-race
