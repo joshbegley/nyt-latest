@@ -1,3 +1,7 @@
+**NASCAR Daytona takeaways: Harrison Burton earns his way into the playoffs**\
+`Anything can happen at Daytona, and on Saturday, Harrison Burton — last place in points — earned a spot in the playoffs with a massive win.`\
+https://nytimes.com/athletic/5722337/2024/08/25/nascar-daytona-takeaways-harrison-burton-playoffs/
+
 **Mitzi McCall, Comedian Who Confronted Beatlemania and Lost, Dies at 93**\
 `She and her husband had the bad luck to make their “Ed Sullivan Show” debut the same night as the Beatles. They bombed. But their careers would recover.`\
 https://nytimes.com/2024/08/25/arts/television/mitzi-mccall-dead.html
