@@ -1,3 +1,7 @@
+**While the U.S. Open was partying, ATP and WTA players had a job to do**\
+`As the top players put the finishing touches on their U.S. Open preparation, tennis continues elsewhere`\
+https://nytimes.com/athletic/5721982/2024/08/25/us-open-fan-week-atp-wta-tennis-tour-calendar/
+
 **Yankees' Aaron Judge hits 50th home run of season**\
 `Judge entered the day on pace to hit 61 home runs.`\
 https://nytimes.com/athletic/5722724/2024/08/25/aaron-judge-home-runs-yankees/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5722420/2024/08/25/f1-lando-norris-dutch-gp/
 **Vance defends tariffs and claims Trump would veto a national abortion ban.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/08/25/us/harris-trump-election/vance-defends-tariffs-and-claims-trump-would-veto-a-national-abortion-ban
-
-**Gundogan is back at City - charged with creating more history, not rewriting it**\
-`The midfielder was given a rapturous reception after his shock return. He felt the love from Guardiola, his team-mates and the fans`\
-https://nytimes.com/athletic/5720803/2024/08/25/ilkay-gundogan-manchester-city-pep-guardiola/
 
