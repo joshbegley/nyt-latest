@@ -1,3 +1,7 @@
+**French Authorities Arrest Suspect in Synagogue Attack**\
+`Antiterrorism prosecutors said officers had taken one person into custody for a blast outside a synagogue.`\
+https://nytimes.com/2024/08/25/world/europe/france-synagogue-arrest.html
+
 **Rams LB Ernest Jones on trading block: Source**\
 `Jones has recorded 320 tackles and 5 1/2 sacks in his three seasons with the Rams.`\
 https://nytimes.com/athletic/5722079/2024/08/25/ernest-jones-rams-trade/
