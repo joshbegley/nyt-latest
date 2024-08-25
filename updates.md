@@ -1,4 +1,8 @@
 **On Hawaii’s Big Island, Hurricane Hone Brings Heavy Rain but No Major Damage**\
+`About 15,000 customers were without power on early Sunday, but neither the winds nor the flooding from the storm were dramatic.`\
+https://nytimes.com/2024/08/25/us/hurricane-hone-hawaii-damage.html
+
+**On Hawaii’s Big Island, Hurricane Hone Brings Heavy Rain but No Major Damage**\
 `About 15,000 customers were without power on early Sunday, but  neither the winds nor the flooding from the storm were dramatic.`\
 https://nytimes.com/2024/08/25/us/hurricane-hone-hawaii-damage.html
 
