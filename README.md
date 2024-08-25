@@ -1,3 +1,7 @@
+**Here’s a timeline of recent strikes and retaliations in the region.**\
+`Tensions in the Middle East had been high for weeks before Israel and Hezbollah began a more intense series of cross-border attacks early Sunday.`\
+https://nytimes.com/2024/08/24/world/middleeast/israel-hezbollah-iran-timeline.html
+
 **Browns 53-man projection: Tackle health would boost offense, but uncertainty looms**\
 `Injuries to Jedrick Wills Jr. and Jack Conklin complicate finalizing a roster with "one or two" open spots entering the preseason finale.`\
 https://nytimes.com/athletic/5721754/2024/08/25/browns-53-man-projection-preseason-seahawks/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5720806/2024/08/25/manchester-united-ten-hag-progre
 **Corrections: Aug. 25, 2024**\
 `Corrections that appeared in print on Sunday, Aug. 25, 2025.`\
 https://nytimes.com/2024/08/25/pageoneplus/corrections-aug-25-2024.html
-
-**Fulham 2 Leicester City 1: Arsenal old boys shine, Silva still wants a winger**\
-`The key talking points after Fulham's Premier League win over Leicester City - and they are still active in window`\
-https://nytimes.com/athletic/5720865/2024/08/25/fulham-leicester-arsenal-smith-rowe-transfer/
 
