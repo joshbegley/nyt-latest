@@ -1,6 +1,22 @@
+**Arsenal's Jesus to undergo scan on 'slight' groin injury**\
+`Mikel Arteta says striker Gabriel Jesus will undergo an MRI scan to determine the severity of what Arsenal described as a ‘slight’ groin injury.`\
+https://nytimes.com/athletic/5720676/2024/08/25/gabriel-jesus-injury-arsenal-latest/
+
+**How the Latest Israel-Hezbollah Strikes Unfolded**\
+`Israel and the Lebanese militia Hezbollah carried out some of their heaviest cross-border attacks in months on Sunday morning.`\
+https://nytimes.com/2024/08/25/world/middleeast/israel-hezbollah-attacks.html
+
+**Ipswich Town sign Burnley defender O'Shea in £15m deal**\
+`Ipswich Town have completed the signing of Burnley defender Dara O&#8217;Shea in a deal worth around £15million ($19.`\
+https://nytimes.com/athletic/5718808/2024/08/25/ipswich-transfers-dara-oshea/
+
 **What we learned about Bears after 2 trades for D-linemen, early roster moves**\
 `GM Ryan Poles is always looking to improve his roster, and he added two D-linemen over the weekend, days before final cuts are due.`\
 https://nytimes.com/athletic/5721258/2024/08/25/chicago-bears-trades-roster-moves/
+
+**Trossard and a compelling case to take Martinelli's place in Arsenal's team**\
+`Trossard was clearly frustrated not to start against Villa - is it time he had a regular run in Arteta's starting XI over Martinelli?`\
+https://nytimes.com/athletic/5721104/2024/08/25/arsenal-leandro-trossard-gabriel-martinelli/
 
 **Telegram’s Top Executive Pavel Durov Reportedly Detained in France**\
 `The founder of Telegram, an app with more than 900 million users, was taken into custody by authorities, French media reported.`\
@@ -17,20 +33,4 @@ https://nytimes.com/2024/08/25/opinion/christianity-evangelicals-persecution-fai
 **Harris Campaign Says It Raised $82 Million During Convention Week**\
 `The four-day total includes one of the best fund-raising hours of Vice President Kamala Harris’s presidential bid, according to the campaign, which has now raised $540 million in the last month.`\
 https://nytimes.com/2024/08/25/us/politics/kamala-harris-fundraising.html
-
-**The Connections Companion No. 442**\
-`Scroll down for hints and conversation about the puzzle for Monday, Aug. 26, 2024`\
-https://nytimes.com/2024/08/25/crosswords/connections-companion-442.html
-
-**There Are a Bazillion Possible Starbucks Orders — and It’s Killing the Company**\
-`Starbucks is struggling with an overly complex menu.`\
-https://nytimes.com/2024/08/25/opinion/starbucks-order-app-third-place.html
-
-**Kamala Harris Begins to Sketch a New Economic Vision**\
-`The vice president is beginning to tell a new story about how the economy works, which could serve as the basis for a governing philosophy that crosses party lines.`\
-https://nytimes.com/2024/08/25/opinion/kamala-harris-economy-trade-antitrust.html
-
-**The Politics of a Hard Day’s Work for Lobstermen in a Changing Climate**\
-`There are places in America where climate change feels close at hand — and also far away from politics, partly because of how much work there is to do.`\
-https://nytimes.com/2024/08/25/opinion/maine-lobster-climate-change-election.html
 
