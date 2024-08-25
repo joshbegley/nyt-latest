@@ -1,3 +1,7 @@
+**Fashion and the Convention**\
+`The Times’s fashion critic explores the deliberate choices behind politicians’ outfits.`\
+https://nytimes.com/2024/08/25/briefing/dnc-rnc-fashion.html
+
 **Man City midfielder Perrone joins Como on loan**\
 `Manchester City midfielder Maximo Perrone has joined Serie A side Como on loan on a season-long loan.`\
 https://nytimes.com/athletic/5721952/2024/08/25/man-city-perrone-como-loan/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/25/technology/pavel-durov-telegram-detained-france.h
 **Notre Dame Playoff Prospectus: Can Irish win big in college football's new era?**\
 `The expanded College Football Playoff gives independent Notre Dame a new goal to play for. It's up to Marcus Freeman to make it happen.`\
 https://nytimes.com/athletic/5715183/2024/08/25/notre-dame-college-football-playoff-predictions-preview/
-
-**The Christian Persecution Narrative Rings Hollow**\
-`We are still trying to figure out how to disentangle church from state (and vice versa).`\
-https://nytimes.com/2024/08/25/opinion/christianity-evangelicals-persecution-faith.html
 
