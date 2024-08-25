@@ -1,3 +1,7 @@
+**Ohtani throws off mound for first time since surgery**\
+`The organization has ruled out any chance of Ohtani pitching in big league games for them this season.`\
+https://nytimes.com/athletic/5721526/2024/08/24/shohei-ohtani-throws-first-time/
+
 **Final Cowboys 53-man roster projection: Does DaRon Bland's injury affect decisions?**\
 `Deuce Vaughn or Royce Freeman for fourth running back? How will the Cowboys deal with the temporary loss of All-Pro DaRon Bland?`\
 https://nytimes.com/athletic/5720588/2024/08/24/dallas-cowboys-final-roster-projection/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5721027/2024/08/24/chargers-roster-projection-simi-
 **Michelsen nearly defaulted after hitting ball into crowd**\
 `The most famous default for ball abuse in recent times came in the 2020 U.S. Open, when Novak Djokovic was defaulted from his match. `\
 https://nytimes.com/athletic/5721404/2024/08/24/alex-michelsen-default-winston-salem-final/
-
-**Is There an Echo in Here?**\
-`Hear that? It’s John Kugelman, with a clamorous Sunday puzzle.`\
-https://nytimes.com/2024/08/24/crosswords/daily-puzzle-2024-08-25.html
 
