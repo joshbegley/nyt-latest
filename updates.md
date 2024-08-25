@@ -1,3 +1,7 @@
+**What if China Invades? For Taiwan, a TV Show Raises Tough Questions.**\
+`Some think the drama, “Zero Day,” helps Taiwan confront an increasingly plausible scenario. Others say the show is alarmist and a tool of the government.`\
+https://nytimes.com/2024/08/25/world/asia/china-taiwan-zero-day-tv-show.html
+
 **'Serena and Venus said I can be myself': Black American tennis players and U.S. star power**\
 `How Black Americans became some of the biggest stars in U.S. tennis — transcending a predominantly White sport.`\
 https://nytimes.com/athletic/5713134/2024/08/25/black-american-tennis-history-williams-gauff-ashe/

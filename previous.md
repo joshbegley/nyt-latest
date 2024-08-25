@@ -1,3 +1,7 @@
+**What if China Invades? For Taiwan, a TV Show Raises Tough Questions.**\
+`Some think the drama, “Zero Day,” helps Taiwan confront an increasingly plausible scenario. Others say the show is alarmist and a tool of the government.`\
+https://nytimes.com/2024/08/25/world/asia/china-taiwan-zero-day-tv-show.html
+
 **'Serena and Venus said I can be myself': Black American tennis players and U.S. star power**\
 `How Black Americans became some of the biggest stars in U.S. tennis — transcending a predominantly White sport.`\
 https://nytimes.com/athletic/5713134/2024/08/25/black-american-tennis-history-williams-gauff-ashe/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/25/business/roth-retirement-account-older-workers.ht
 **How a Migrant Accused of Rape Was Freed and Charged With Rape Again**\
 `A failure of cooperation between New York City and federal authorities allowed Daniel Davon-Bonilla, a 24-year-old from Nicaragua, to slip out of the grasp of law enforcement.`\
 https://nytimes.com/2024/08/25/nyregion/migrant-rape-assault-coney-island.html
-
-**Would a Group Opposed to Police Blow the Whistle on Its Founder?**\
-`The leader of Raheem AI had a plan to hold law enforcement accountable, but his lavish expenditures derailed the organization.`\
-https://nytimes.com/2024/08/25/us/brandon-anderson-rahim-ai.html
 
