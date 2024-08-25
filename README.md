@@ -1,3 +1,7 @@
+**Iraola blames VAR for Bournemouth's disallowed goal against Newcastle**\
+`Bournemouth head coach Andoni Iraola expressed his frustration with VAR after Bournemouth were denied a late winner in their 1-1 draw with Newcastle United.`\
+https://nytimes.com/athletic/5722479/2024/08/25/bournemouth-newcastle-disallowed-goal-handball-iraola/
+
 **NASCAR Daytona takeaways: Harrison Burton earns his way into the playoffs**\
 `Anything can happen at Daytona, and on Saturday, Harrison Burton — last place in points — earned a spot in the playoffs with a massive win.`\
 https://nytimes.com/athletic/5722337/2024/08/25/nascar-daytona-takeaways-harrison-burton-playoffs/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/25/world/asia/bus-crashes-pakistan.html
 **Lando Norris wins the Dutch Grand Prix, narrows title gap to Max Verstappen**\
 `Norris made up for a slow start with one of the best drives of his life – tightening F1's title fight. `\
 https://nytimes.com/athletic/5722143/2024/08/25/f1-lando-norris-dutch-grand-prix/
-
-**Rams LB Ernest Jones on trading block: Source**\
-`Jones has recorded 320 tackles and 5 1/2 sacks in his three seasons with the Rams.`\
-https://nytimes.com/athletic/5722079/2024/08/25/ernest-jones-rams-trade/
 
