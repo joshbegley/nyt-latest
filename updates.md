@@ -1,3 +1,7 @@
+**49ers' Isaac Guerendo faces new question after big return: Keep No. 49?**\
+`The 49ers rookie running back might be their top option to return kicks following his 93-yard runback against the Raiders. `\
+https://nytimes.com/athletic/5720872/2024/08/25/49ers-isaac-guerendo-jersey-number/
+
 **After Attacks, Israel and Hezbollah Swiftly Move to Talk of Containment**\
 `Hezbollah’s long-dreaded retaliation for the killing of a senior commander appeared to be over before it began. But analysts said tensions could yet escalate further.`\
 https://nytimes.com/2024/08/25/world/middleeast/israel-hezbollah-attacks-escalation.html

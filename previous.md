@@ -1,3 +1,7 @@
+**49ers' Isaac Guerendo faces new question after big return: Keep No. 49?**\
+`The 49ers rookie running back might be their top option to return kicks following his 93-yard runback against the Raiders. `\
+https://nytimes.com/athletic/5720872/2024/08/25/49ers-isaac-guerendo-jersey-number/
+
 **After Attacks, Israel and Hezbollah Swiftly Move to Talk of Containment**\
 `Hezbollah’s long-dreaded retaliation for the killing of a senior commander appeared to be over before it began. But analysts said tensions could yet escalate further.`\
 https://nytimes.com/2024/08/25/world/middleeast/israel-hezbollah-attacks-escalation.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5720676/2024/08/25/gabriel-jesus-injury-arsenal-lat
 **How the Latest Israel-Hezbollah Strikes Unfolded**\
 `Israel and the Lebanese militia Hezbollah carried out some of their heaviest cross-border attacks in months on Sunday morning.`\
 https://nytimes.com/2024/08/25/world/middleeast/israel-hezbollah-attacks.html
-
-**Ipswich Town sign Burnley defender O'Shea in £15m deal**\
-`Ipswich Town have completed the signing of Burnley defender Dara O&#8217;Shea in a deal worth around £15million ($19.`\
-https://nytimes.com/athletic/5718808/2024/08/25/ipswich-transfers-dara-oshea/
 
