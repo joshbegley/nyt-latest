@@ -1,3 +1,7 @@
+**Notre Dame Playoff Prospectus: Can Irish win big in college football's new era?**\
+`The expanded College Football Playoff gives independent Notre Dame a new goal to play for. It's up to Marcus Freeman to make it happen.`\
+https://nytimes.com/athletic/5715183/2024/08/25/notre-dame-college-football-playoff-predictions-preview/
+
 **The Christian Persecution Narrative Rings Hollow**\
 `We are still trying to figure out how to disentangle church from state (and vice versa).`\
 https://nytimes.com/2024/08/25/opinion/christianity-evangelicals-persecution-faith.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/25/crosswords/wordle-review-1164.html
 **Here’s what to know about Hezbollah, the Iran-backed militia.**\
 `By Vivian Yee`\
 https://nytimes.com/live/2024/08/24/world/israel-hamas-gaza-war/heres-what-to-know-about-hezbollah-the-iran-backed-militia
-
-**Liverpool's Alisson says he turned down an 'attractive' Saudi offer this summer**\
-`Liverpool goalkeeper Alisson has revealed he turned down a lucrative offer to move to a club in the Saudi Pro League this summer.`\
-https://nytimes.com/athletic/5721902/2024/08/25/alisson-liverpool-saudi-transfer/
 

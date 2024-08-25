@@ -1,3 +1,7 @@
+**Notre Dame Playoff Prospectus: Can Irish win big in college football's new era?**\
+`The expanded College Football Playoff gives independent Notre Dame a new goal to play for. It's up to Marcus Freeman to make it happen.`\
+https://nytimes.com/athletic/5715183/2024/08/25/notre-dame-college-football-playoff-predictions-preview/
+
 **The Christian Persecution Narrative Rings Hollow**\
 `We are still trying to figure out how to disentangle church from state (and vice versa).`\
 https://nytimes.com/2024/08/25/opinion/christianity-evangelicals-persecution-faith.html
