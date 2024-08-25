@@ -1,3 +1,7 @@
+**Final Lions 53-man roster projection before cutdown day**\
+`Final cuts are due on Tuesday.`\
+https://nytimes.com/athletic/5721271/2024/08/24/detroit-lions-53-man-roster-projection-preseason/
+
 **Chargers 53-man roster projection: Close call between Simi Fehoko and Brenden Rice**\
 `It's unlikely the Chargers will keep more than six receivers and Fehoko's production — including Saturday's TD — gives him the edge.`\
 https://nytimes.com/athletic/5721027/2024/08/24/chargers-roster-projection-simi-fehoko-brenden-rice/
