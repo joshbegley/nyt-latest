@@ -1,3 +1,7 @@
+**Forest make new Gimenez bid but still short of Feyenoord's valuation**\
+`Nottingham Forest have made a fresh bid for Santiago Gimenez but the offer is still thought to fall below Feyenoord’s valuation of the striker.`\
+https://nytimes.com/athletic/5722944/2024/08/25/nottingham-forest-santiago-gimenez/
+
 **Israel and Hezbollah Trade Heavy Air Attacks**\
 `Israel on Sunday launched what it described as a pre-emptive strike against a major attack that Hezbollah was planning on Israeli territory. Hezbollah fired its own barrage later in the day.`\
 https://nytimes.com/video/world/middleeast/100000009656752/israel-hezbollah-lebanon-strikes.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/25/briefing/israel-hezbollah-telegram-germany-stabbi
 **Fauci Recovering From West Nile Virus Infection**\
 `The former director of the National Institute of Allergy and Infectious Diseases had been hospitalized and was expected to make a full recovery, a spokeswoman said.`\
 https://nytimes.com/2024/08/25/us/fauci-west-nile-virus-hospitalized.html
-
-**In a Region on Edge, Israel and Hezbollah Launch Major Attacks on Each Other**\
-`The escalating strikes across the Israel-Lebanon border fueled fears of a bigger conflagration, but both sides signaled that they were de-escalating, for now.`\
-https://nytimes.com/2024/08/25/world/middleeast/israel-hezbollah-hamas-gaza-iran.html
 
