@@ -1,3 +1,7 @@
+**Final Giants 53-man roster projection: Is Azeez Ojulari a trade candidate?**\
+`The Giants must trim their roster to 53 players by Tuesday evening. They have a few tough decisions to make. `\
+https://nytimes.com/athletic/5720231/2024/08/24/new-york-giants-roster-projection-azeez-ojulari/
+
 **Cardinals lose Willson Contreras to broken finger**\
 `Already fighting to stay in playoff contention, the St.`\
 https://nytimes.com/athletic/5721646/2024/08/24/cardinals-willson-contreras-broken-finger/
