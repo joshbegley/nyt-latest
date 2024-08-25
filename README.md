@@ -1,3 +1,7 @@
+**Gundogan is back at City - charged with creating more history, not rewriting it**\
+`The midfielder was given a rapturous reception after his shock return. He felt the love from Guardiola, his team-mates and the fans`\
+https://nytimes.com/athletic/5720803/2024/08/25/ilkay-gundogan-manchester-city-pep-guardiola/
+
 **After predawn blasts, an Israeli border town braces for more attacks to come.**\
 `By Johnatan Reiss and Aaron Boxerman`\
 https://nytimes.com/live/2024/08/24/world/israel-hamas-gaza-war/after-predawn-blasts-an-israeli-border-town-braces-for-more-attacks-to-come
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5721155/2024/08/25/yves-bissouma-tottenham-postecog
 **Jack Draper bruised by 'cheat' accusations after Auger-Aliassime match point controversy**\
 `British No 1 Jack Draper says he thought about the controversial ending to his Cincinnati win against Felix Auger-Aliassime for “four days non-stop.`\
 https://nytimes.com/athletic/5721451/2024/08/25/jack-draper-match-point-auger-aliassime/
-
-**Nketiah's Forest move off**\
-`Nottingham Forest&#8217;s move for Eddie Nketiah has broken down after an agreement with the Arsenal striker could not be finalised.`\
-https://nytimes.com/athletic/5714188/2024/08/25/eddie-nketiah-transfer-nottingham-forest-arsenal/
 
