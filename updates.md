@@ -1,3 +1,7 @@
+**James Rodriguez close to Rayo Vallecano move**\
+`James Rodriguez is close to signing for La Liga side Rayo Vallecano.`\
+https://nytimes.com/athletic/5721993/2024/08/25/james-rodriguez-rayo-vallecano-transfer/
+
 **City have considered Orri Oskarsson move as Erling Haaland back-up**\
 `Manchester City have considered a move to sign coveted talent Orri Oskarsson from FC Copenhagen as back-up to Erling Haaland.`\
 https://nytimes.com/athletic/5722867/2024/08/25/manchester-city-orri-oskarsson-transfer/

@@ -1,3 +1,7 @@
+**James Rodriguez close to Rayo Vallecano move**\
+`James Rodriguez is close to signing for La Liga side Rayo Vallecano.`\
+https://nytimes.com/athletic/5721993/2024/08/25/james-rodriguez-rayo-vallecano-transfer/
+
 **City have considered Orri Oskarsson move as Erling Haaland back-up**\
 `Manchester City have considered a move to sign coveted talent Orri Oskarsson from FC Copenhagen as back-up to Erling Haaland.`\
 https://nytimes.com/athletic/5722867/2024/08/25/manchester-city-orri-oskarsson-transfer/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5722801/2024/08/25/umpire-carted-off-yankees/
 **Fanatics lists Marvin Harrison Sr. as defendant in suit**\
 `The legal battle between Fanatics and Marvin Harrison Jr. took another turn with the apparel and collectibles company's latest filing.`\
 https://nytimes.com/athletic/5722412/2024/08/25/marvin-harrison-jr-sr-fanatics-lawsuit/
-
-**While the U.S. Open was partying, ATP and WTA players had a job to do**\
-`As the top players put the finishing touches on their U.S. Open preparation, tennis continues elsewhere`\
-https://nytimes.com/athletic/5721982/2024/08/25/us-open-fan-week-atp-wta-tennis-tour-calendar/
 
