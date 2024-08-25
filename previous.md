@@ -1,3 +1,7 @@
+**Man City midfielder Perrone joins Como on loan**\
+`Manchester City midfielder Maximo Perrone has joined Serie A side Como on loan on a season-long loan.`\
+https://nytimes.com/athletic/5721952/2024/08/25/man-city-perrone-como-loan/
+
 **Arsenal's Jesus to undergo scan on 'slight' groin injury**\
 `Mikel Arteta says striker Gabriel Jesus will undergo an MRI scan to determine the severity of what Arsenal described as a ‘slight’ groin injury.`\
 https://nytimes.com/athletic/5720676/2024/08/25/gabriel-jesus-injury-arsenal-latest/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5715183/2024/08/25/notre-dame-college-football-play
 **The Christian Persecution Narrative Rings Hollow**\
 `We are still trying to figure out how to disentangle church from state (and vice versa).`\
 https://nytimes.com/2024/08/25/opinion/christianity-evangelicals-persecution-faith.html
-
-**Harris Campaign Says It Raised $82 Million During Convention Week**\
-`The four-day total includes one of the best fund-raising hours of Vice President Kamala Harris’s presidential bid, according to the campaign, which has now raised $540 million in the last month.`\
-https://nytimes.com/2024/08/25/us/politics/kamala-harris-fundraising.html
 

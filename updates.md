@@ -1,3 +1,7 @@
+**Man City midfielder Perrone joins Como on loan**\
+`Manchester City midfielder Maximo Perrone has joined Serie A side Como on loan on a season-long loan.`\
+https://nytimes.com/athletic/5721952/2024/08/25/man-city-perrone-como-loan/
+
 **Arsenal's Jesus to undergo scan on 'slight' groin injury**\
 `Mikel Arteta says striker Gabriel Jesus will undergo an MRI scan to determine the severity of what Arsenal described as a ‘slight’ groin injury.`\
 https://nytimes.com/athletic/5720676/2024/08/25/gabriel-jesus-injury-arsenal-latest/
