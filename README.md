@@ -1,3 +1,7 @@
+**Is there something happening at Brighton?**\
+`Brighton are spending big this summer and have backed it up on the pitch - and their new signings have yet to make an impact`\
+https://nytimes.com/athletic/5720610/2024/08/25/brighton-premier-league-transfer-200m/
+
 **Questions for Investigators Trying to Unravel Mystery of Luxury Yacht’s Sinking**\
 `The investigators searching for answers about the shipwreck, leaving seven dead, face questions about extreme weather and possible human error or problems with the yacht itself.`\
 https://nytimes.com/2024/08/25/world/europe/bayesian-yacht-investigation.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5721646/2024/08/24/cardinals-willson-contreras-brok
 **Here’s the latest on the conflict.**\
 `By Vivek Shankar`\
 https://nytimes.com/live/2024/08/24/world/israel-hamas-gaza-war/heres-the-latest
-
-**Giants got Camilo Doval's attention — and benefits were immediate in win at Seattle**\
-`Doval returned to the Giants on Saturday, but not as the closer.`\
-https://nytimes.com/athletic/5721562/2024/08/24/giants-camilo-doval-win-mariners/
 
