@@ -1,3 +1,7 @@
+**Fauci Recovering From West Nile Virus Infection**\
+`The former director of the National Institute of Allergy and Infectious Diseases had been hospitalized and was expected to make a full recovery, a spokeswoman said.`\
+https://nytimes.com/2024/08/25/us/fauci-west-nile-virus-hospitalized.html
+
 **In a Region on Edge, Israel and Hezbollah Launch Major Attacks on Each Other**\
 `The escalating strikes across the Israel-Lebanon border fueled fears of a bigger conflagration, but both sides signaled that they were de-escalating, for now.`\
 https://nytimes.com/2024/08/25/world/middleeast/israel-hezbollah-hamas-gaza-iran.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/25/us/grand-canyon-flooding-missing-hiker.html
 **Ja’Marr Chase returns to Bengals practice amid contract situation**\
 `The wide receiver has been holding in but was back on the field Sunday two weeks before the season opener.`\
 https://nytimes.com/athletic/5722661/2024/08/25/jamarr-chase-practice-bengals/
-
-**Van Dijk 'very calm' about Liverpool future amid contract situation**\
-`Liverpool defender Virgil van Dijk says he is “very calm” about his future at the club as he enters the final season of his contract.`\
-https://nytimes.com/athletic/5722709/2024/08/25/virgil-van-dijk-liverpool-contract/
 
