@@ -1,3 +1,11 @@
+**Palace considering Nketiah move**\
+`Crystal Palace are considering a move for Arsenal striker Eddie Nketiah.`\
+https://nytimes.com/athletic/5722562/2024/08/25/crystal-palace-eddie-nketiah-transfer/
+
+**The Briefing: Liverpool 2 Brentford 0: Diaz's finishing, Slot's control, Konate's importance**\
+`We look at all the action as Arne Slot sealed victory in his first Premier League match at Anfield as Liverpool manager.`\
+https://nytimes.com/athletic/5718714/2024/08/25/liverpool-slot-diaz-brentford/
+
 **Ravens offensive line coach Joe D’Alessandris dies at 70**\
 `D’Alessandris had recently taken leave from the Ravens and was hospitalized for an “acute illness.”`\
 https://nytimes.com/athletic/5722306/2024/08/25/joe-dalessandris-ravens-death/
