@@ -1,3 +1,7 @@
+**USMNT midfielder Tessmann set for Lyon medical**\
+`USMNT midfielder Tanner Tessmann is set to undergo a medical before completing a move from Venezia midfielder to Lyon.`\
+https://nytimes.com/athletic/5721139/2024/08/25/tanner-tessmann-lyon-transfer/
+
 **The Pulse: An early college football stunner**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter. `\
 https://nytimes.com/athletic/5721728/2024/08/25/florida-state-georgia-tech-college-football-npb-the-pulse/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/25/world/middleeast/israel-hezbollah-hamas-gaza-iran
 **Michigan receives NCAA formal notice of allegations**\
 `The NCAA is investigating Michigan's alleged sign-stealing scheme to collect video footage of opponents’ signals. `\
 https://nytimes.com/athletic/5722786/2024/08/25/michigan-notice-of-allegations/
-
-**Umpire hit in head by Stanton's broken bat**\
-`Giancarlo Stanton’s bat snapped at the handle and struck home-plate umpire Nick Mahrley in the left side of the head and neck.`\
-https://nytimes.com/athletic/5722801/2024/08/25/umpire-carted-off-yankees/
 
