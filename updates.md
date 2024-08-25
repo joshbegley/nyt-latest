@@ -1,3 +1,15 @@
+**At Daytona, Wood Brothers get historic 100th win and set off a celebration**\
+`The historic NASCAR team, which dominated the sport in the 1960s and 70s, picked up an emotional win No. 100 on Saturday at Daytona.`\
+https://nytimes.com/athletic/5722496/2024/08/25/wood-brothers-racing-daytona-nascar-100th-win/
+
+**Lando Norris signals his F1 championship threat – on Max Verstappen's home turf,**\
+`Winning by the margin Norris did on Sunday, on Verstappen's home turf, certainly sent a message that F1's championship fight is on.`\
+https://nytimes.com/athletic/5722420/2024/08/25/f1-lando-norris-dutch-gp/
+
+**Vance defends tariffs and claims Trump would veto a national abortion ban.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/08/25/us/harris-trump-election/vance-defends-tariffs-and-claims-trump-would-veto-a-national-abortion-ban
+
 **Gundogan is back at City - charged with creating more history, not rewriting it**\
 `The midfielder was given a rapturous reception after his shock return. He felt the love from Guardiola, his team-mates and the fans`\
 https://nytimes.com/athletic/5720803/2024/08/25/ilkay-gundogan-manchester-city-pep-guardiola/
