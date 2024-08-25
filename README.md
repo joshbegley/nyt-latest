@@ -1,3 +1,7 @@
+**USC football: 7 thoughts on the Trojans as they enter LSU game week**\
+`Who will start at right guard? What will D’Anton Lynn’s defense look like in a competitive environment? Will special teams improve?`\
+https://nytimes.com/athletic/5721989/2024/08/25/usc-football-game-lsu-lincoln-riley/
+
 **Napoli reach €30m agreement to sign McTominay**\
 `Napoli have reached an agreement with Manchester United to sign Scott McTominay.`\
 https://nytimes.com/athletic/5722032/2024/08/25/scott-mctominay-napoli-man-utd-transfer/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/25/world/middleeast/israel-hezbollah-attacks-escalat
 **Here’s the latest on the presidential race.**\
 `By Neil Vigdor`\
 https://nytimes.com/live/2024/08/25/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Barcelona defender Faye joins Rennes in €10.3 million deal**\
-`Stade Rennais have completed the signing of Barcelona defender Mika Faye.`\
-https://nytimes.com/athletic/5721968/2024/08/25/barcelona-mika-faye-rennes-transfer/
 
