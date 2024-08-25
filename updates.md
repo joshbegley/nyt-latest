@@ -1,3 +1,7 @@
+**Napoli reach €30m agreement to sign McTominay**\
+`Napoli have reached an agreement with Manchester United to sign Scott McTominay.`\
+https://nytimes.com/athletic/5722032/2024/08/25/scott-mctominay-napoli-man-utd-transfer/
+
 **German Prosecutors Say They Suspect Terrorist Link in Festival Stabbings**\
 `The police say they have arrested a man they believe killed three people and wounded eight others at a festival in the town of Solingen, in western Germany.`\
 https://nytimes.com/2024/08/25/world/europe/germany-festival-attack.html

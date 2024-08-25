@@ -1,3 +1,7 @@
+**Napoli reach €30m agreement to sign McTominay**\
+`Napoli have reached an agreement with Manchester United to sign Scott McTominay.`\
+https://nytimes.com/athletic/5722032/2024/08/25/scott-mctominay-napoli-man-utd-transfer/
+
 **German Prosecutors Say They Suspect Terrorist Link in Festival Stabbings**\
 `The police say they have arrested a man they believe killed three people and wounded eight others at a festival in the town of Solingen, in western Germany.`\
 https://nytimes.com/2024/08/25/world/europe/germany-festival-attack.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/08/25/us/harris-trump-election/heres-the-latest-on
 **Barcelona defender Faye joins Rennes in €10.3 million deal**\
 `Stade Rennais have completed the signing of Barcelona defender Mika Faye.`\
 https://nytimes.com/athletic/5721968/2024/08/25/barcelona-mika-faye-rennes-transfer/
-
-**In Lebanon, some Hezbollah supporters wonder if its attack went far enough.**\
-`By Hwaida Saad and Euan Ward`\
-https://nytimes.com/live/2024/08/24/world/israel-hamas-gaza-war/in-lebanon-some-hezbollah-supporters-wonder-if-its-attack-went-far-enough
 
