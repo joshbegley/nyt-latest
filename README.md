@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`By Vivek Shankar`\
+https://nytimes.com/live/2024/08/24/world/israel-hamas-gaza-war/heres-the-latest
+
 **Giants got Camilo Doval's attention — and benefits were immediate in win at Seattle**\
 `Doval returned to the Giants on Saturday, but not as the closer.`\
 https://nytimes.com/athletic/5721562/2024/08/24/giants-camilo-doval-win-mariners/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5720588/2024/08/24/dallas-cowboys-final-roster-proj
 **Class of 2025 5-star DB Jonah Williams commits to Texas**\
 `Williams, ranked No. 10 overall in the 247Sports Composite, chose the Longhorns over LSU, Texas A&M, Oregon and USC.`\
 https://nytimes.com/athletic/5720564/2024/08/24/texas-recruiting-jonah-williams/
-
-**'Just personally, it's sad': Dodgers' decision to cut Jason Heyward hits home for Freddie Freeman**\
-`Heyward and Freeman have had a long-standing friendship since very early in their careers.`\
-https://nytimes.com/athletic/5721428/2024/08/24/dodgers-jason-heyward-freddie-freeman/
 
