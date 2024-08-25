@@ -26,7 +26,7 @@ https://nytimes.com/athletic/5720641/2024/08/24/philadelphia-eagles-preseason-53
 `Francis missed history by three outs Saturday but was brilliant over eight innings with a career-high 12 strikeouts.`\
 https://nytimes.com/athletic/5721402/2024/08/24/bowden-francis-blue-jays-angels/
 
-**Packers 53-man projection: Is the Week 1 kicker currently on the roster?**\
+**Packers final 53-man projection: Is the Week 1 kicker currently on the roster?**\
 `Green Bay has a couple of tricky roster decisions to make before Tuesday's cutdown deadline.`\
 https://nytimes.com/athletic/5721248/2024/08/24/packers-roster-53-man-projection/
 

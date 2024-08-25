@@ -1,3 +1,7 @@
+**Packers final 53-man projection: Is the Week 1 kicker currently on the roster?**\
+`Green Bay has a couple of tricky roster decisions to make before Tuesday's cutdown deadline.`\
+https://nytimes.com/athletic/5721248/2024/08/24/packers-roster-53-man-projection/
+
 **Final Lions 53-man roster projection before cutdown day**\
 `Final cuts are due on Tuesday.`\
 https://nytimes.com/athletic/5721271/2024/08/24/detroit-lions-53-man-roster-projection-preseason/
