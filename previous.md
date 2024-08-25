@@ -1,3 +1,7 @@
+**Yankees' Aaron Judge hits 50th home run of season**\
+`Judge entered the day on pace to hit 61 home runs.`\
+https://nytimes.com/athletic/5722724/2024/08/25/aaron-judge-home-runs-yankees/
+
 **Grand Canyon Hiker Missing After Flash Floods and Evacuations**\
 `More than 100 people were evacuated after flash flooding in the Havasupai Indian Reservation near Grand Canyon National Park.`\
 https://nytimes.com/2024/08/25/us/grand-canyon-flooding-missing-hiker.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/08/25/us/harris-trump-election/vance-defends-tarif
 **Gundogan is back at City - charged with creating more history, not rewriting it**\
 `The midfielder was given a rapturous reception after his shock return. He felt the love from Guardiola, his team-mates and the fans`\
 https://nytimes.com/athletic/5720803/2024/08/25/ilkay-gundogan-manchester-city-pep-guardiola/
-
-**After predawn blasts, an Israeli border town braces for more attacks to come.**\
-`By Johnatan Reiss and Aaron Boxerman`\
-https://nytimes.com/live/2024/08/24/world/israel-hamas-gaza-war/after-predawn-blasts-an-israeli-border-town-braces-for-more-attacks-to-come
 

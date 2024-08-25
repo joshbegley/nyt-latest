@@ -1,3 +1,7 @@
+**Yankees' Aaron Judge hits 50th home run of season**\
+`Judge entered the day on pace to hit 61 home runs.`\
+https://nytimes.com/athletic/5722724/2024/08/25/aaron-judge-home-runs-yankees/
+
 **Grand Canyon Hiker Missing After Flash Floods and Evacuations**\
 `More than 100 people were evacuated after flash flooding in the Havasupai Indian Reservation near Grand Canyon National Park.`\
 https://nytimes.com/2024/08/25/us/grand-canyon-flooding-missing-hiker.html
