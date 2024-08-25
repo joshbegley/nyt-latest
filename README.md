@@ -1,3 +1,7 @@
+**Babe Ruth 'called shot' jersey sells for record $24M**\
+`The jersey auction smashed the record for the most expensive piece of sports memorabilia in history.`\
+https://nytimes.com/athletic/5722039/2024/08/25/babe-ruth-jersey-called-shot-auction/
+
 **USC football: 7 thoughts on the Trojans as they enter LSU game week**\
 `Who will start at right guard? What will D’Anton Lynn’s defense look like in a competitive environment? Will special teams improve?`\
 https://nytimes.com/athletic/5721989/2024/08/25/usc-football-game-lsu-lincoln-riley/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5720872/2024/08/25/49ers-isaac-guerendo-jersey-numb
 **After Attacks, Israel and Hezbollah Swiftly Move to Talk of Containment**\
 `Hezbollah’s long-dreaded retaliation for the killing of a senior commander appeared to be over before it began. But analysts said tensions could yet escalate further.`\
 https://nytimes.com/2024/08/25/world/middleeast/israel-hezbollah-attacks-escalation.html
-
-**Here’s the latest on the presidential race.**\
-`By Neil Vigdor`\
-https://nytimes.com/live/2024/08/25/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 
