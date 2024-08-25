@@ -1,3 +1,7 @@
+**Braves' Raisel Iglesias rarely placed among MLB's top closers, but he should be**\
+`The last Brave to finish a season with a lower ERA than Iglesias in at least as many appearances was Craig Kimbrel in 2013. `\
+https://nytimes.com/athletic/5721677/2024/08/24/braves-raisel-iglesias-top-closers/
+
 **Pablo López outduels former teammate Sonny Gray as Twins shut out Cardinals**\
 `Billed as a battle between two old friends and teammates, Saturday's contest served more as a platform for how good López continues to be.`\
 https://nytimes.com/athletic/5721669/2024/08/24/pablo-lopez-outduels-sonny-gray-twins-shutout/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5721427/2024/08/24/buffalo-bills-tyler-bass-kicker-
 **A 1-run loss accentuates the Astros' frustrating in-season carousel at first base**\
 `Eight players have appeared at first base since the Astros jettisoned José Abreu in mid-June, and it remains their biggest weakness.`\
 https://nytimes.com/athletic/5721540/2024/08/24/astros-one-run-loss-orioles-first-base/
-
-**Final Lions 53-man roster projection before cutdown day**\
-`Final cuts are due on Tuesday.`\
-https://nytimes.com/athletic/5721271/2024/08/24/detroit-lions-53-man-roster-projection-preseason/
 

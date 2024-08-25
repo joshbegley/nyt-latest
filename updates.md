@@ -1,3 +1,7 @@
+**Braves' Raisel Iglesias rarely placed among MLB's top closers, but he should be**\
+`The last Brave to finish a season with a lower ERA than Iglesias in at least as many appearances was Craig Kimbrel in 2013. `\
+https://nytimes.com/athletic/5721677/2024/08/24/braves-raisel-iglesias-top-closers/
+
 **Pablo López outduels former teammate Sonny Gray as Twins shut out Cardinals**\
 `Billed as a battle between two old friends and teammates, Saturday's contest served more as a platform for how good López continues to be.`\
 https://nytimes.com/athletic/5721669/2024/08/24/pablo-lopez-outduels-sonny-gray-twins-shutout/
