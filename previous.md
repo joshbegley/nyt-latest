@@ -1,3 +1,7 @@
+**Mitzi McCall, Comedian Who Confronted Beatlemania and Lost, Dies at 93**\
+`She and her husband had the bad luck to make their “Ed Sullivan Show” debut the same night as the Beatles. They bombed. But their careers would recover.`\
+https://nytimes.com/2024/08/25/arts/television/mitzi-mccall-dead.html
+
 **Madueke apologises for insulting Wolverhampton: 'I'm sure it's a nice town'**\
 `Chelsea winger Noni Madueke has apologised after a social media post in which he insulted Wolverhampton.`\
 https://nytimes.com/athletic/5722380/2024/08/25/noni-madueke-wolverhampton-chelsea-apology/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5722079/2024/08/25/ernest-jones-rams-trade/
 **Babe Ruth 'called shot' jersey sells for record $24M**\
 `The jersey auction smashed the record for the most expensive piece of sports memorabilia in history.`\
 https://nytimes.com/athletic/5722039/2024/08/25/babe-ruth-jersey-called-shot-auction/
-
-**USC football: 7 thoughts on the Trojans as they enter LSU game week**\
-`Who will start at right guard? What will D’Anton Lynn’s defense look like in a competitive environment? Will special teams improve?`\
-https://nytimes.com/athletic/5721989/2024/08/25/usc-football-game-lsu-lincoln-riley/
 

@@ -1,3 +1,7 @@
+**NASCAR Daytona takeaways: Harrison Burton earns his way into the playoffs**\
+`Anything can happen at Daytona, and on Saturday, Harrison Burton — last place in points — earned a spot in the playoffs with a massive win.`\
+https://nytimes.com/athletic/5722337/2024/08/25/nascar-daytona-takeaways-harrison-burton-playoffs/
+
 **Mitzi McCall, Comedian Who Confronted Beatlemania and Lost, Dies at 93**\
 `She and her husband had the bad luck to make their “Ed Sullivan Show” debut the same night as the Beatles. They bombed. But their careers would recover.`\
 https://nytimes.com/2024/08/25/arts/television/mitzi-mccall-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5722143/2024/08/25/f1-lando-norris-dutch-grand-prix
 **Rams LB Ernest Jones on trading block: Source**\
 `Jones has recorded 320 tackles and 5 1/2 sacks in his three seasons with the Rams.`\
 https://nytimes.com/athletic/5722079/2024/08/25/ernest-jones-rams-trade/
-
-**Babe Ruth 'called shot' jersey sells for record $24M**\
-`The jersey auction smashed the record for the most expensive piece of sports memorabilia in history.`\
-https://nytimes.com/athletic/5722039/2024/08/25/babe-ruth-jersey-called-shot-auction/
 

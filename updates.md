@@ -1,3 +1,7 @@
+**Mitzi McCall, Comedian Who Confronted Beatlemania and Lost, Dies at 93**\
+`She and her husband had the bad luck to make their “Ed Sullivan Show” debut the same night as the Beatles. They bombed. But their careers would recover.`\
+https://nytimes.com/2024/08/25/arts/television/mitzi-mccall-dead.html
+
 **Madueke apologises for insulting Wolverhampton: 'I'm sure it's a nice town'**\
 `Chelsea winger Noni Madueke has apologised after a social media post in which he insulted Wolverhampton.`\
 https://nytimes.com/athletic/5722380/2024/08/25/noni-madueke-wolverhampton-chelsea-apology/
