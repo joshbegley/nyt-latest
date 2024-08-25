@@ -1,3 +1,11 @@
+**Brainpower Measures**\
+`Refrain from making assumptions about Zachary David Levy’s puzzle.`\
+https://nytimes.com/2024/08/25/crosswords/daily-puzzle-2024-08-26.html
+
+**Blue Jays takeaways: Bowden Francis joins near-miss club and Chris Bassitt has his back**\
+`Angels outfielder Taylor Ward seemed to dismiss Francis. Bassitt let it be known that he didn't agree with Ward's assessment.`\
+https://nytimes.com/athletic/5722943/2024/08/25/blue-jays-bowden-francis-no-hitter-bid/
+
 **On Hawaii’s Big Island, Hurricane Hone Brings Heavy Rain but No Major Damage**\
 `About 15,000 customers were without power on early Sunday, but neither the winds nor the flooding from the storm were dramatic.`\
 https://nytimes.com/2024/08/25/us/hurricane-hone-hawaii-damage.html
