@@ -1,3 +1,7 @@
+**German Prosecutors Say They Suspect Terrorist Link in Festival Stabbings**\
+`The police say they have arrested a man they believe killed three people and wounded eight others at a festival in the town of Solingen, in western Germany.`\
+https://nytimes.com/2024/08/25/world/europe/germany-festival-attack.html
+
 **College Football Playoff 2024 projections: Our 12-team bracket after FSU's opening loss**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/08/25/college-football-playoff-projections-odds/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5721968/2024/08/25/barcelona-mika-faye-rennes-trans
 **In Lebanon, some Hezbollah supporters wonder if its attack went far enough.**\
 `By Hwaida Saad and Euan Ward`\
 https://nytimes.com/live/2024/08/24/world/israel-hamas-gaza-war/in-lebanon-some-hezbollah-supporters-wonder-if-its-attack-went-far-enough
-
-**Fashion and the Convention**\
-`The Times’s fashion critic explores the deliberate choices behind politicians’ outfits.`\
-https://nytimes.com/2024/08/25/briefing/dnc-rnc-fashion.html
 
