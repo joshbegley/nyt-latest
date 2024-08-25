@@ -1,3 +1,7 @@
+**Russell Malone, Acclaimed Jazz Guitarist, Dies at 60**\
+`He first gained attention with Jimmy Smith and went on to work with Harry Connick Jr., Diana Krall and Ron Carter. He also had a distinguished solo career.`\
+https://nytimes.com/2024/08/25/arts/music/russell-malone-dead.html
+
 **Palace considering Nketiah move**\
 `Crystal Palace are considering a move for Arsenal striker Eddie Nketiah.`\
 https://nytimes.com/athletic/5722562/2024/08/25/crystal-palace-eddie-nketiah-transfer/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5714188/2024/08/25/eddie-nketiah-transfer-nottingha
 **Iraola blames VAR for Bournemouth's disallowed goal against Newcastle**\
 `Bournemouth head coach Andoni Iraola expressed his frustration with VAR after Bournemouth were denied a late winner in their 1-1 draw with Newcastle United.`\
 https://nytimes.com/athletic/5722479/2024/08/25/bournemouth-newcastle-disallowed-goal-handball-iraola/
-
-**NASCAR Daytona takeaways: Harrison Burton earns his way into the playoffs**\
-`Anything can happen at Daytona, and on Saturday, Harrison Burton — last place in points — earned a spot in the playoffs with a massive win.`\
-https://nytimes.com/athletic/5722337/2024/08/25/nascar-daytona-takeaways-harrison-burton-playoffs/
 

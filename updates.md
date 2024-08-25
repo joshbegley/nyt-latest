@@ -1,3 +1,7 @@
+**Russell Malone, Acclaimed Jazz Guitarist, Dies at 60**\
+`He first gained attention with Jimmy Smith and went on to work with Harry Connick Jr., Diana Krall and Ron Carter. He also had a distinguished solo career.`\
+https://nytimes.com/2024/08/25/arts/music/russell-malone-dead.html
+
 **The Briefing: Liverpool 2 Brentford 0: Diaz's finishing, Slot's control, Konate's importance**\
 `We look at all the action as Arne Slot’s side sealed victory in the Dutchman’s first Premier League match at Anfield as Liverpool manager`\
 https://nytimes.com/athletic/5718714/2024/08/25/liverpool-slot-diaz-brentford/
