@@ -1,3 +1,7 @@
+**Could Yankees’ Aaron Judge hit 73 home runs someday? Teammates weigh in**\
+`“If there’s any guy in the league who can” surpass Bonds, right fielder Juan Soto said, “it’s going to be (Judge).”`\
+https://nytimes.com/athletic/5723121/2024/08/25/yankees-aaron-judge-barry-bonds-home-run-record/
+
 **Keegan Bradley survives Adam Scott to win BMW Championship by 1 shot**\
 `The FedEx Cup playoff event win is Bradley’s seventh career PGA Tour victory.`\
 https://nytimes.com/athletic/5723016/2024/08/25/keegan-bradley-wins-bmw-championship/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5722030/2024/08/25/lydia-ko-womens-open-st-andrews-
 **Three Braves takeaways: Fill-ins like Ramón Laureano help Braves keep pace**\
 `Laureano and other players off signed off the scrap heap have impressed since moving into Atlanta’s lineup.`\
 https://nytimes.com/athletic/5722927/2024/08/25/bravess-michael-harris-ramon-laureano/
-
-**Forest make new Gimenez bid but still short of Feyenoord's valuation**\
-`Nottingham Forest have made a fresh bid for Santiago Gimenez but the offer is still thought to fall below Feyenoord’s valuation of the striker.`\
-https://nytimes.com/athletic/5722944/2024/08/25/nottingham-forest-santiago-gimenez/
 

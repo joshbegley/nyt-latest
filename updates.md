@@ -1,3 +1,7 @@
+**Could Yankees’ Aaron Judge hit 73 home runs someday? Teammates weigh in**\
+`“If there’s any guy in the league who can” surpass Bonds, right fielder Juan Soto said, “it’s going to be (Judge).”`\
+https://nytimes.com/athletic/5723121/2024/08/25/yankees-aaron-judge-barry-bonds-home-run-record/
+
 **Keegan Bradley survives Adam Scott to win BMW Championship by 1 shot**\
 `The FedEx Cup playoff event win is Bradley’s seventh career PGA Tour victory.`\
 https://nytimes.com/athletic/5723016/2024/08/25/keegan-bradley-wins-bmw-championship/
