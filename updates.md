@@ -1,3 +1,11 @@
+**Monday Briefing: Israel and Hezbollah Exchange Major Attacks**\
+`Plus, DMZ honey.`\
+https://nytimes.com/2024/08/25/briefing/israel-hezbollah-telegram-germany-stabbing-isis.html
+
+**Umpire hit in head by Stanton's broken bat**\
+`Giancarlo Stanton’s bat snapped at the handle and struck home-plate umpire Nick Mahrley in the left side of the head and neck.`\
+https://nytimes.com/athletic/5722801/2024/08/25/umpire-carted-off-yankees/
+
 **Fauci Recovering From West Nile Virus Infection**\
 `The former director of the National Institute of Allergy and Infectious Diseases had been hospitalized and was expected to make a full recovery, a spokeswoman said.`\
 https://nytimes.com/2024/08/25/us/fauci-west-nile-virus-hospitalized.html
