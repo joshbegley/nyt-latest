@@ -1,3 +1,7 @@
+**Babe Ruth 'called shot' jersey sells for record $24M**\
+`The jersey auction smashed the record for the most expensive piece of sports memorabilia in history.`\
+https://nytimes.com/athletic/5722039/2024/08/25/babe-ruth-jersey-called-shot-auction/
+
 **USC football: 7 thoughts on the Trojans as they enter LSU game week**\
 `Who will start at right guard? What will D’Anton Lynn’s defense look like in a competitive environment? Will special teams improve?`\
 https://nytimes.com/athletic/5721989/2024/08/25/usc-football-game-lsu-lincoln-riley/
