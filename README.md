@@ -1,3 +1,7 @@
+**Mets' Francisco Lindor creating MVP debate: 'He needs to be in the conversation'**\
+`Lindor’s MVP candidacy is more than just the contrarian part of the brain working overdrive.`\
+https://nytimes.com/athletic/5721790/2024/08/25/mets-francisco-lindor-mvp-race/
+
 **Here’s a timeline of recent strikes and retaliations in the region.**\
 `Tensions in the Middle East had been high for weeks before Israel and Hezbollah began a more intense series of cross-border attacks early Sunday.`\
 https://nytimes.com/2024/08/24/world/middleeast/israel-hezbollah-iran-timeline.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/25/pageoneplus/quotation-of-the-day-unusual-breed-of
 **Look past Manchester United's familiar mistakes and you might just see… progress**\
 `There was enough evidence here at Brighton and on the opening weekend against Fulham that efforts are being made at marginal gains`\
 https://nytimes.com/athletic/5720806/2024/08/25/manchester-united-ten-hag-progress/
-
-**Corrections: Aug. 25, 2024**\
-`Corrections that appeared in print on Sunday, Aug. 25, 2025.`\
-https://nytimes.com/2024/08/25/pageoneplus/corrections-aug-25-2024.html
 
