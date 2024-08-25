@@ -1,3 +1,7 @@
+**Gundogan is back at City - charged with creating more history, not rewriting it**\
+`The midfielder was given a rapturous reception after his shock return. He felt the love from Guardiola, his team-mates and the fans`\
+https://nytimes.com/athletic/5720803/2024/08/25/ilkay-gundogan-manchester-city-pep-guardiola/
+
 **After predawn blasts, an Israeli border town braces for more attacks to come.**\
 `By Johnatan Reiss and Aaron Boxerman`\
 https://nytimes.com/live/2024/08/24/world/israel-hamas-gaza-war/after-predawn-blasts-an-israeli-border-town-braces-for-more-attacks-to-come
