@@ -1,3 +1,7 @@
+**Greenberg: White Sox lose 100th game in familiar, 'beating a dead horse' fashion**\
+`You can often win in life and baseball just by showing up, but the 2024 White Sox make losing look easy. Sunday it was 9-4 to the Tigers.`\
+https://nytimes.com/athletic/5723015/2024/08/25/white-sox-lose-100th-game-greenberg/
+
 **Could Yankees’ Aaron Judge hit 73 home runs someday? Teammates weigh in**\
 `“If there’s any guy in the league who can” surpass Bonds, right fielder Juan Soto said, “it’s going to be (Judge).”`\
 https://nytimes.com/athletic/5723121/2024/08/25/yankees-aaron-judge-barry-bonds-home-run-record/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/25/us/hurricane-hone-hawaii-damage.html
 **Lydia Ko and the shot that gave her the Women's Open championship**\
 `Ko's 3-wood at the Road Hole lifted her above a crowded, star-studded leaderboard.`\
 https://nytimes.com/athletic/5722030/2024/08/25/lydia-ko-womens-open-st-andrews-road-hole/
-
-**Three Braves takeaways: Fill-ins like Ramón Laureano help Braves keep pace**\
-`Laureano and other players off signed off the scrap heap have impressed since moving into Atlanta’s lineup.`\
-https://nytimes.com/athletic/5722927/2024/08/25/bravess-michael-harris-ramon-laureano/
 

@@ -1,3 +1,7 @@
+**Greenberg: White Sox lose 100th game in familiar, 'beating a dead horse' fashion**\
+`You can often win in life and baseball just by showing up, but the 2024 White Sox make losing look easy. Sunday it was 9-4 to the Tigers.`\
+https://nytimes.com/athletic/5723015/2024/08/25/white-sox-lose-100th-game-greenberg/
+
 **Could Yankees’ Aaron Judge hit 73 home runs someday? Teammates weigh in**\
 `“If there’s any guy in the league who can” surpass Bonds, right fielder Juan Soto said, “it’s going to be (Judge).”`\
 https://nytimes.com/athletic/5723121/2024/08/25/yankees-aaron-judge-barry-bonds-home-run-record/
