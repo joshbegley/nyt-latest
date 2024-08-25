@@ -1,3 +1,7 @@
+**Madueke apologises for insulting Wolverhampton: 'I'm sure it's a nice town'**\
+`Chelsea winger Noni Madueke has apologised after a social media post in which he insulted Wolverhampton.`\
+https://nytimes.com/athletic/5722380/2024/08/25/noni-madueke-wolverhampton-chelsea-apology/
+
 **What You May Not Know About the Fish You Eat**\
 `Readers suggest steps to ensure that seafood is safe, legally caught and properly labeled. Also: The G.O.P.’s Catholic conundrum; blocking emotions.`\
 https://nytimes.com/2024/08/25/opinion/letters/the-fish-you-eat.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5722039/2024/08/25/babe-ruth-jersey-called-shot-auc
 **USC football: 7 thoughts on the Trojans as they enter LSU game week**\
 `Who will start at right guard? What will D’Anton Lynn’s defense look like in a competitive environment? Will special teams improve?`\
 https://nytimes.com/athletic/5721989/2024/08/25/usc-football-game-lsu-lincoln-riley/
-
-**Napoli reach €30m agreement to sign McTominay**\
-`Napoli have reached an agreement with Manchester United to sign Scott McTominay.`\
-https://nytimes.com/athletic/5722032/2024/08/25/scott-mctominay-napoli-man-utd-transfer/
 

@@ -1,3 +1,7 @@
+**Madueke apologises for insulting Wolverhampton: 'I'm sure it's a nice town'**\
+`Chelsea winger Noni Madueke has apologised after a social media post in which he insulted Wolverhampton.`\
+https://nytimes.com/athletic/5722380/2024/08/25/noni-madueke-wolverhampton-chelsea-apology/
+
 **What You May Not Know About the Fish You Eat**\
 `Readers suggest steps to ensure that seafood is safe, legally caught and properly labeled. Also: The G.O.P.’s Catholic conundrum; blocking emotions.`\
 https://nytimes.com/2024/08/25/opinion/letters/the-fish-you-eat.html
