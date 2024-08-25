@@ -1,3 +1,7 @@
+**Umpire carted off, hit by Stanton's broken bat**\
+`Giancarlo Stanton’s bat snapped at the handle and struck home-plate umpire Nick Mahrley in the left side of the head and neck.`\
+https://nytimes.com/athletic/5722801/2024/08/25/umpire-carted-off-yankees/
+
 **Fanatics lists Marvin Harrison Sr. as defendant in suit**\
 `The legal battle between Fanatics and Marvin Harrison Jr. took another turn with the apparel and collectibles company's latest filing.`\
 https://nytimes.com/athletic/5722412/2024/08/25/marvin-harrison-jr-sr-fanatics-lawsuit/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5720645/2024/08/25/edmonton-oilers-darnell-nurse-de
 **At Daytona, Wood Brothers get historic 100th win and set off a celebration**\
 `The historic NASCAR team, which dominated the sport in the 1960s and 70s, picked up an emotional win No. 100 on Saturday at Daytona.`\
 https://nytimes.com/athletic/5722496/2024/08/25/wood-brothers-racing-daytona-nascar-100th-win/
-
-**Lando Norris signals his F1 championship threat – on Max Verstappen's home turf,**\
-`Winning by the margin Norris did on Sunday, on Verstappen's home turf, certainly sent a message that F1's championship fight is on.`\
-https://nytimes.com/athletic/5722420/2024/08/25/f1-lando-norris-dutch-gp/
 
