@@ -1,3 +1,7 @@
+**While the U.S. Open was partying, ATP and WTA players had a job to do**\
+`As the top players put the finishing touches on their U.S. Open preparation, tennis continues elsewhere`\
+https://nytimes.com/athletic/5721982/2024/08/25/us-open-fan-week-atp-wta-tennis-tour-calendar/
+
 **Yankees' Aaron Judge hits 50th home run of season**\
 `Judge entered the day on pace to hit 61 home runs.`\
 https://nytimes.com/athletic/5722724/2024/08/25/aaron-judge-home-runs-yankees/
