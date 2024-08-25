@@ -1,3 +1,7 @@
+**Final Cowboys 53-man roster projection: Does DaRon Bland's injury affect decisions?**\
+`Deuce Vaughn or Royce Freeman for fourth running back? How will the Cowboys deal with the temporary loss of All-Pro DaRon Bland?`\
+https://nytimes.com/athletic/5720588/2024/08/24/dallas-cowboys-final-roster-projection/
+
 **Class of 2025 5-star DB Jonah Williams commits to Texas**\
 `Williams, ranked No. 10 overall in the 247Sports Composite, chose the Longhorns over LSU, Texas A&M, Oregon and USC.`\
 https://nytimes.com/athletic/5720564/2024/08/24/texas-recruiting-jonah-williams/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5721404/2024/08/24/alex-michelsen-default-winston-s
 **Is There an Echo in Here?**\
 `Hear that? It’s John Kugelman, with a clamorous Sunday puzzle.`\
 https://nytimes.com/2024/08/24/crosswords/daily-puzzle-2024-08-25.html
-
-**Ronda Rousey Apologizes for Reposting Sandy Hook Conspiracy Video**\
-`The former U.F.C. star apologized after Reddit users asked her about the video she shared 11 years ago. She called it “the single most regrettable decision of my life.”`\
-https://nytimes.com/2024/08/24/us/ronda-rousey-sandy-hook-apology.html
 

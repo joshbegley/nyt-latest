@@ -1,3 +1,7 @@
+**Final Cowboys 53-man roster projection: Does DaRon Bland's injury affect decisions?**\
+`Deuce Vaughn or Royce Freeman for fourth running back? How will the Cowboys deal with the temporary loss of All-Pro DaRon Bland?`\
+https://nytimes.com/athletic/5720588/2024/08/24/dallas-cowboys-final-roster-projection/
+
 **Class of 2025 5-star DB Jonah Williams commits to Texas**\
 `Williams, ranked No. 10 overall in the 247Sports Composite, chose the Longhorns over LSU, Texas A&M, Oregon and USC.`\
 https://nytimes.com/athletic/5720564/2024/08/24/texas-recruiting-jonah-williams/
