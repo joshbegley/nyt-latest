@@ -1,3 +1,7 @@
+**Forest sign David Carmo, loan defender to Olympiacos**\
+`Nottingham Forest have completed the signing of David Carmo from Porto — with the defender immediately returning to Olympiacos on loan.`\
+https://nytimes.com/athletic/5722511/2024/08/25/nottingham-forest-david-carmo-olympiacos/
+
 **Bissouma was fortunate to be back in the team - he must continue to repay Postecoglou**\
 `The Mali midfielder let his football do the talking after a club suspension meant he missed the opener against Leicester City`\
 https://nytimes.com/athletic/5721155/2024/08/25/yves-bissouma-tottenham-postecoglou-goal/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5722380/2024/08/25/noni-madueke-wolverhampton-chels
 **What You May Not Know About the Fish You Eat**\
 `Readers suggest steps to ensure that seafood is safe, legally caught and properly labeled. Also: The G.O.P.’s Catholic conundrum; blocking emotions.`\
 https://nytimes.com/2024/08/25/opinion/letters/the-fish-you-eat.html
-
-**The Briefing: Wolves 2-6 Chelsea - Madueke runs riot, the Portuguese connection and anyone for chaos?**\
-`Chelsea recorded an eye-catching first Premier League win under Enzo Maresca by scoring six stunning goals at Molineux to sink Wolves`\
-https://nytimes.com/athletic/5718712/2024/08/25/chelsea-wolves-madueke-palmer-briefing/
 
