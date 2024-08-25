@@ -1,3 +1,15 @@
+**How a Migrant Accused of Rape Was Freed and Charged With Rape Again**\
+`A failure of cooperation between New York City and federal authorities allowed Daniel Davon-Bonilla, a 24-year-old from Nicaragua, to slip out of the grasp of law enforcement.`\
+https://nytimes.com/2024/08/25/nyregion/migrant-rape-assault-coney-island.html
+
+**Would a Group Opposed to Police Blow the Whistle on Its Founder?**\
+`The leader of Raheem AI had a plan to hold law enforcement accountable, but his lavish expenditures derailed the organization.`\
+https://nytimes.com/2024/08/25/us/brandon-anderson-rahim-ai.html
+
+**How JD Vance Found His Way to the Catholic Church**\
+`In his 30s, the Republican vice-presidential nominee read works on theology, mysticism, and political and moral philosophy. And he discovered his faith.`\
+https://nytimes.com/2024/08/25/us/jd-vance-catholic-church-conversion.html
+
 **'He needs to be in the conversation': Mets' Francisco Lindor creating MVP debate**\
 `Lindor's MVP candidacy is more than just the contrarian part of the brain working in overdrive.`\
 https://nytimes.com/athletic/5721790/2024/08/25/mets-francisco-lindor-mvp-race/
