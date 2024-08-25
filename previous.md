@@ -1,3 +1,7 @@
+**Ravens offensive line coach Joe D’Alessandris dies at 70**\
+`D’Alessandris had recently taken leave from the Ravens and was hospitalized for an “acute illness.”`\
+https://nytimes.com/athletic/5722306/2024/08/25/joe-dalessandris-ravens-death/
+
 **Forest sign David Carmo, loan defender to Olympiacos**\
 `Nottingham Forest have completed the signing of David Carmo from Porto — with the defender immediately returning to Olympiacos on loan.`\
 https://nytimes.com/athletic/5722511/2024/08/25/nottingham-forest-david-carmo-olympiacos/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/25/arts/television/mitzi-mccall-dead.html
 **Madueke apologises for insulting Wolverhampton: 'I'm sure it's a nice town'**\
 `Chelsea winger Noni Madueke has apologised after a social media post in which he insulted Wolverhampton.`\
 https://nytimes.com/athletic/5722380/2024/08/25/noni-madueke-wolverhampton-chelsea-apology/
-
-**What You May Not Know About the Fish You Eat**\
-`Readers suggest steps to ensure that seafood is safe, legally caught and properly labeled. Also: The G.O.P.’s Catholic conundrum; blocking emotions.`\
-https://nytimes.com/2024/08/25/opinion/letters/the-fish-you-eat.html
 

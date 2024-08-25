@@ -1,3 +1,7 @@
+**Ravens offensive line coach Joe D’Alessandris dies at 70**\
+`D’Alessandris had recently taken leave from the Ravens and was hospitalized for an “acute illness.”`\
+https://nytimes.com/athletic/5722306/2024/08/25/joe-dalessandris-ravens-death/
+
 **Forest sign David Carmo, loan defender to Olympiacos**\
 `Nottingham Forest have completed the signing of David Carmo from Porto — with the defender immediately returning to Olympiacos on loan.`\
 https://nytimes.com/athletic/5722511/2024/08/25/nottingham-forest-david-carmo-olympiacos/
