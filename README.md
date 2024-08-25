@@ -1,3 +1,7 @@
+**Pablo López outduels former teammate Sonny Gray as Twins shut out Cardinals**\
+`Billed as a battle between two old friends and teammates, Saturday's contest served more as a platform for how good López continues to be.`\
+https://nytimes.com/athletic/5721669/2024/08/24/pablo-lopez-outduels-sonny-gray-twins-shutout/
+
 **Final Giants 53-man roster projection: Is Azeez Ojulari a trade candidate?**\
 `The Giants must trim their roster to 53 players by Tuesday evening. They have a few tough decisions to make. `\
 https://nytimes.com/athletic/5720231/2024/08/24/new-york-giants-roster-projection-azeez-ojulari/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5721540/2024/08/24/astros-one-run-loss-orioles-firs
 **Final Lions 53-man roster projection before cutdown day**\
 `Final cuts are due on Tuesday.`\
 https://nytimes.com/athletic/5721271/2024/08/24/detroit-lions-53-man-roster-projection-preseason/
-
-**Ohtani throws off mound for first time since surgery**\
-`The organization has ruled out any chance of Ohtani pitching in big league games for them this season.`\
-https://nytimes.com/athletic/5721526/2024/08/24/shohei-ohtani-throws-first-time/
 
