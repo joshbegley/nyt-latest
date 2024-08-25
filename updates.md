@@ -1,3 +1,7 @@
+**The Pulse: An early college football stunner**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter. `\
+https://nytimes.com/athletic/5721728/2024/08/25/florida-state-georgia-tech-college-football-npb-the-pulse/
+
 **James Rodriguez close to Rayo Vallecano move**\
 `James Rodriguez is close to signing for La Liga side Rayo Vallecano.`\
 https://nytimes.com/athletic/5721993/2024/08/25/james-rodriguez-rayo-vallecano-transfer/
