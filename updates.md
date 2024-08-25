@@ -1,3 +1,7 @@
+**Rams LB Ernest Jones on trading block: Source**\
+`Jones has recorded 320 tackles and 5 1/2 sacks in his three seasons with the Rams.`\
+https://nytimes.com/athletic/5722079/2024/08/25/ernest-jones-rams-trade/
+
 **Babe Ruth 'called shot' jersey sells for record $24M**\
 `The jersey auction smashed the record for the most expensive piece of sports memorabilia in history.`\
 https://nytimes.com/athletic/5722039/2024/08/25/babe-ruth-jersey-called-shot-auction/
