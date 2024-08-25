@@ -1,3 +1,7 @@
+**What we learned about Bears after 2 trades for D-linemen, early roster moves**\
+`GM Ryan Poles is always looking to improve his roster, and he added two D-linemen over the weekend, days before final cuts are due.`\
+https://nytimes.com/athletic/5721258/2024/08/25/chicago-bears-trades-roster-moves/
+
 **Telegram’s Top Executive Pavel Durov Reportedly Detained in France**\
 `The founder of Telegram, an app with more than 900 million users, was taken into custody by authorities, French media reported.`\
 https://nytimes.com/2024/08/25/technology/pavel-durov-telegram-detained-france.html

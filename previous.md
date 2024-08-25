@@ -1,3 +1,7 @@
+**What we learned about Bears after 2 trades for D-linemen, early roster moves**\
+`GM Ryan Poles is always looking to improve his roster, and he added two D-linemen over the weekend, days before final cuts are due.`\
+https://nytimes.com/athletic/5721258/2024/08/25/chicago-bears-trades-roster-moves/
+
 **Telegram’s Top Executive Pavel Durov Reportedly Detained in France**\
 `The founder of Telegram, an app with more than 900 million users, was taken into custody by authorities, French media reported.`\
 https://nytimes.com/2024/08/25/technology/pavel-durov-telegram-detained-france.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/25/opinion/kamala-harris-economy-trade-antitrust.htm
 **The Politics of a Hard Day’s Work for Lobstermen in a Changing Climate**\
 `There are places in America where climate change feels close at hand — and also far away from politics, partly because of how much work there is to do.`\
 https://nytimes.com/2024/08/25/opinion/maine-lobster-climate-change-election.html
-
-**Wordle Review No. 1,164**\
-`Scroll down for hints and conversation about the puzzle for August 26, 2024.`\
-https://nytimes.com/2024/08/25/crosswords/wordle-review-1164.html
 
