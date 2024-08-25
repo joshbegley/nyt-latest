@@ -1,3 +1,15 @@
+**College Football Playoff 2024 projections: Our 12-team bracket after FSU's opening loss**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/08/25/college-football-playoff-projections-odds/
+
+**French Authorities Arrest Suspect in Synagogue Attack**\
+`Antiterrorism prosecutors said officers had taken one person thought to be responsible into custody for a blast outside a synagogue.`\
+https://nytimes.com/2024/08/25/world/europe/france-synagogue-arrest.html
+
+**The Courts That Made Them: Coco Gauff and Pompey Park**\
+`The defending U.S. Open champion grew up on public courts in Delray Beach, Florida`\
+https://nytimes.com/athletic/5480321/2024/08/25/coco-gauff-tennis-courts-pompey-park-delray-beach/
+
 **49ers' Isaac Guerendo faces new question after big return: Keep No. 49?**\
 `The 49ers rookie running back might be their top option to return kicks following his 93-yard runback against the Raiders. `\
 https://nytimes.com/athletic/5720872/2024/08/25/49ers-isaac-guerendo-jersey-number/
