@@ -1,3 +1,7 @@
+**Here’s a timeline of recent strikes and retaliations in the region.**\
+`Tensions in the Middle East had been high for weeks before Israel and Hezbollah began a more intense series of cross-border attacks early Sunday.`\
+https://nytimes.com/2024/08/24/world/middleeast/israel-hezbollah-iran-timeline.html
+
 **Browns 53-man projection: Tackle health would boost offense, but uncertainty looms**\
 `Injuries to Jedrick Wills Jr. and Jack Conklin complicate finalizing a roster with "one or two" open spots entering the preseason finale.`\
 https://nytimes.com/athletic/5721754/2024/08/25/browns-53-man-projection-preseason-seahawks/
