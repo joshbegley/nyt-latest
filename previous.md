@@ -1,3 +1,7 @@
+**A 1-run loss accentuates the Astros' frustrating in-season carousel at first base**\
+`Eight players have appeared at first base since the Astros jettisoned José Abreu in mid-June, and it remains their biggest weakness.`\
+https://nytimes.com/athletic/5721540/2024/08/24/astros-one-run-loss-orioles-first-base/
+
 **Final Lions 53-man roster projection before cutdown day**\
 `Final cuts are due on Tuesday.`\
 https://nytimes.com/athletic/5721271/2024/08/24/detroit-lions-53-man-roster-projection-preseason/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5721402/2024/08/24/bowden-francis-blue-jays-angels/
 **Packers final 53-man projection: Is the Week 1 kicker currently on the roster?**\
 `Green Bay has a couple of tricky roster decisions to make before Tuesday's cutdown deadline.`\
 https://nytimes.com/athletic/5721248/2024/08/24/packers-roster-53-man-projection/
-
-**Chargers 53-man roster projection: Close call between Simi Fehoko and Brenden Rice**\
-`It's unlikely the Chargers will keep more than six receivers and Fehoko's production — including Saturday's TD — gives him the edge.`\
-https://nytimes.com/athletic/5721027/2024/08/24/chargers-roster-projection-simi-fehoko-brenden-rice/
 

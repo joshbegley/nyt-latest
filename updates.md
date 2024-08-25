@@ -1,3 +1,7 @@
+**A 1-run loss accentuates the Astros' frustrating in-season carousel at first base**\
+`Eight players have appeared at first base since the Astros jettisoned José Abreu in mid-June, and it remains their biggest weakness.`\
+https://nytimes.com/athletic/5721540/2024/08/24/astros-one-run-loss-orioles-first-base/
+
 **Packers final 53-man projection: Is the Week 1 kicker currently on the roster?**\
 `Green Bay has a couple of tricky roster decisions to make before Tuesday's cutdown deadline.`\
 https://nytimes.com/athletic/5721248/2024/08/24/packers-roster-53-man-projection/
