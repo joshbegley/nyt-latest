@@ -1,3 +1,7 @@
+**Mets' Francisco Lindor creating MVP debate: 'He needs to be in the conversation'**\
+`Lindor’s MVP candidacy is more than just the contrarian part of the brain working overdrive.`\
+https://nytimes.com/athletic/5721790/2024/08/25/mets-francisco-lindor-mvp-race/
+
 **Here’s a timeline of recent strikes and retaliations in the region.**\
 `Tensions in the Middle East had been high for weeks before Israel and Hezbollah began a more intense series of cross-border attacks early Sunday.`\
 https://nytimes.com/2024/08/24/world/middleeast/israel-hezbollah-iran-timeline.html
