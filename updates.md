@@ -1,3 +1,7 @@
+**NASCAR Daytona takeaways: Harrison Burton earns his way into the playoffs**\
+`Anything can happen at Daytona, and on Saturday, Harrison Burton — last place in points — earned a spot in the playoffs with a massive win.`\
+https://nytimes.com/athletic/5722337/2024/08/25/nascar-daytona-takeaways-harrison-burton-playoffs/
+
 **Russell Malone, Acclaimed Jazz Guitarist, Dies at 60**\
 `He first gained attention with Jimmy Smith and went on to work with Harry Connick Jr., Diana Krall and Ron Carter. He also had a distinguished solo career.`\
 https://nytimes.com/2024/08/25/arts/music/russell-malone-dead.html
