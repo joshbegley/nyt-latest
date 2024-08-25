@@ -1,3 +1,7 @@
+**Umpire carted off, hit by Stanton's broken bat**\
+`Giancarlo Stanton’s bat snapped at the handle and struck home-plate umpire Nick Mahrley in the left side of the head and neck.`\
+https://nytimes.com/athletic/5722801/2024/08/25/umpire-carted-off-yankees/
+
 **Fanatics lists Marvin Harrison Sr. as defendant in suit**\
 `The legal battle between Fanatics and Marvin Harrison Jr. took another turn with the apparel and collectibles company's latest filing.`\
 https://nytimes.com/athletic/5722412/2024/08/25/marvin-harrison-jr-sr-fanatics-lawsuit/
