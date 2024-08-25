@@ -1,3 +1,15 @@
+**Bissouma was fortunate to be back in the team - he must continue to repay Postecoglou**\
+`The Mali midfielder let his football do the talking after a club suspension meant he missed the opener against Leicester City`\
+https://nytimes.com/athletic/5721155/2024/08/25/yves-bissouma-tottenham-postecoglou-goal/
+
+**Jack Draper bruised by 'cheat' accusations after Auger-Aliassime match point controversy**\
+`British No 1 Jack Draper says he thought about the controversial ending to his Cincinnati win against Felix Auger-Aliassime for “four days non-stop.`\
+https://nytimes.com/athletic/5721451/2024/08/25/jack-draper-match-point-auger-aliassime/
+
+**Nketiah's Forest move off**\
+`Nottingham Forest&#8217;s move for Eddie Nketiah has broken down after an agreement with the Arsenal striker could not be finalised.`\
+https://nytimes.com/athletic/5714188/2024/08/25/eddie-nketiah-transfer-nottingham-forest-arsenal/
+
 **Iraola blames VAR for Bournemouth's disallowed goal against Newcastle**\
 `Bournemouth head coach Andoni Iraola expressed his frustration with VAR after Bournemouth were denied a late winner in their 1-1 draw with Newcastle United.`\
 https://nytimes.com/athletic/5722479/2024/08/25/bournemouth-newcastle-disallowed-goal-handball-iraola/
@@ -21,16 +33,4 @@ https://nytimes.com/2024/08/25/opinion/letters/the-fish-you-eat.html
 **The Briefing: Wolves 2-6 Chelsea - Madueke runs riot, the Portuguese connection and anyone for chaos?**\
 `Chelsea recorded an eye-catching first Premier League win under Enzo Maresca by scoring six stunning goals at Molineux to sink Wolves`\
 https://nytimes.com/athletic/5718712/2024/08/25/chelsea-wolves-madueke-palmer-briefing/
-
-**Oh, This Eggplant Lasagna? It Was Nothing.**\
-`If you roast the eggplant ahead of time, you’re just a half-hour away from a gorgeous, gluten-free vegetarian dinner.`\
-https://nytimes.com/2024/08/25/dining/eggplant-lasagna-vegetarian-lasagna.html
-
-**Dozens Are Killed in Two Unrelated Bus Crashes in Pakistan**\
-`One of the accidents killed 12 people who were returning from a religious pilgrimage to Iraq, officials said.`\
-https://nytimes.com/2024/08/25/world/asia/bus-crashes-pakistan.html
-
-**Lando Norris wins the Dutch Grand Prix, narrows title gap to Max Verstappen**\
-`Norris made up for a slow start with one of the best drives of his life – tightening F1's title fight. `\
-https://nytimes.com/athletic/5722143/2024/08/25/f1-lando-norris-dutch-grand-prix/
 
