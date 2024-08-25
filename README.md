@@ -23,7 +23,7 @@ https://nytimes.com/2024/08/25/world/europe/germany-festival-attack.html
 https://nytimes.com/athletic/5701128/2024/08/25/college-football-playoff-projections-odds/
 
 **French Authorities Arrest Suspect in Synagogue Attack**\
-`Antiterrorism prosecutors said officers had taken one person into custody for a blast outside a synagogue.`\
+`Antiterrorism prosecutors said officers had taken a man into custody in connection with a blast outside a synagogue.`\
 https://nytimes.com/2024/08/25/world/europe/france-synagogue-arrest.html
 
 **The Courts That Made Them: Coco Gauff and Pompey Park**\
