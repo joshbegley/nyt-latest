@@ -1,3 +1,7 @@
+**Barcelona defender Faye joins Rennes in €10.3 million deal**\
+`Stade Rennais have completed the signing of Barcelona defender Mika Faye.`\
+https://nytimes.com/athletic/5721968/2024/08/25/barcelona-mika-faye-rennes-transfer/
+
 **In Lebanon, some Hezbollah supporters wonder if its attack went far enough.**\
 `By Hwaida Saad and Euan Ward`\
 https://nytimes.com/live/2024/08/24/world/israel-hamas-gaza-war/in-lebanon-some-hezbollah-supporters-wonder-if-its-attack-went-far-enough
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5721258/2024/08/25/chicago-bears-trades-roster-move
 **Trossard and a compelling case to take Martinelli's place in Arsenal's team**\
 `Trossard was clearly frustrated not to start against Villa - is it time he had a regular run in Arteta's starting XI over Martinelli?`\
 https://nytimes.com/athletic/5721104/2024/08/25/arsenal-leandro-trossard-gabriel-martinelli/
-
-**Telegram’s Top Executive Pavel Durov Reportedly Detained in France**\
-`The founder of Telegram, an app with more than 900 million users, was taken into custody by authorities, French media reported.`\
-https://nytimes.com/2024/08/25/technology/pavel-durov-telegram-detained-france.html
 
