@@ -1,3 +1,7 @@
+**Aston Villa's Cash set to miss a month with hamstring injury**\
+`Aston Villa defender Matty Cash is set to miss a month of action with a hamstring injury.`\
+https://nytimes.com/athletic/5723632/2024/08/26/matty-cash-injury-aston-villa/
+
 **Sterling prioritising Chelsea contract situation before any transfer talks**\
 `Raheem Sterling’s priority is to resolve his contractual situation at Chelsea before holding talks with suitors over a move before the transfer window closes.`\
 https://nytimes.com/athletic/5723654/2024/08/26/raheem-sterling-chelsea-transfer-contract/
