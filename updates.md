@@ -1,3 +1,7 @@
+**Packers acquiring QB Malik Willis from Titans**\
+`The deal comes after Sean Clifford, Jordan Love’s backup in 2023, had an underwhelming camp.`\
+https://nytimes.com/athletic/5725266/2024/08/26/malik-willis-packers-titans-trade/
+
 **Inflation Is Fading, Statistically and Politically**\
 `The cost of living may not be the G.O.P.’s, um, trump card.`\
 https://nytimes.com/2024/08/26/opinion/inflation-trump-harris-powell.html
