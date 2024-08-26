@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5720745/2024/08/26/brighton-matt-oriley-transfer/
 
 **Deion Sanders partners with bank to open accounts for players' children**\
-`The children of the eight players on Colorado's team will receive $2,121, a nod to Sanders’ signature number. `\
+`The children of eight players on Colorado's team will receive $2,121, a nod to Sanders’ signature number. `\
 https://nytimes.com/athletic/5724023/2024/08/26/deion-sanders-colorado-bank-children/
 
 **Chiefs to sign WR JuJu Smith-Schuster: Source**\
