@@ -1,3 +1,7 @@
+**U.S. Open day 2: What to watch as Alcaraz and Swiatek start their campaigns**\
+`Follow live coverage of the U.`\
+https://nytimes.com/athletic/5724431/2024/08/26/us-open-2024-watch-guide-day-2-sinner-alcaraz-swiatek/
+
 **U.S. Open today: What to watch at the Billie Jean King Tennis Center on day two**\
 `Follow live coverage of the U.`\
 https://nytimes.com/athletic/5724431/2024/08/26/us-open-2024-watch-guide-day-2-sinner-alcaraz-swiatek/
