@@ -1,3 +1,11 @@
+**Canada Will Impose 100% Tariffs on Chinese Electric Vehicles**\
+`The new tariffs announced by Prime Minister Justin Trudeau will match levies imposed by President Biden and could further strain relations between Canada and China.`\
+https://nytimes.com/2024/08/26/business/canada-ev-tariffs-china.html
+
+**San Francisco Giants week in review: Another .500 week within a .500 season**\
+`The Giants' journey towards a .500 continued unabated, as they won three and lost three, even though they played a series against Chicago.`\
+https://nytimes.com/athletic/5723385/2024/08/26/sf-giants-week-in-review-500-record/
+
 **Duke's Cooper Flagg signs shoe deal with New Balance**\
 `The reigning Gatorade National Player of the Year and five-star recruit grew up just 25 miles from New Balance’s manufacturing plant.`\
 https://nytimes.com/athletic/5724179/2024/08/26/cooper-flagg-duke-new-balance-shoe/
