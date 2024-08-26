@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/08/26/briefing/monday-briefing-israel-hezbollah-germany.html
+
 **West Ham thrill at Max Kilman impact as defender starts justifying lofty fee**\
 `The big-money summer arrival from Wolves was excellent at Selhurst Park and even showcased his abilities going forward`\
 https://nytimes.com/athletic/5720596/2024/08/26/kilman-west-ham-lopotegui-palace/
