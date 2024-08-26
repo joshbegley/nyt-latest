@@ -1,3 +1,7 @@
+**Assassination Task Force Visits Butler as Right Wing Promises a ‘Parallel’ Inquiry**\
+`As members of the newly formed bipartisan task force investigating the assassination attempt on former President Donald J. Trump began their work, some hard-right Republicans were already warning of a cover-up.`\
+https://nytimes.com/2024/08/26/us/politics/trump-assassination-task-force-visits-site.html
+
 **Jill Stein Will Remain on the Ballot in Wisconsin After Court Order**\
 `The Wisconsin Supreme Court denied a Democratic challenge to the Green Party candidate’s ballot access in the state.`\
 https://nytimes.com/2024/08/26/us/politics/jill-stein-wisconsin.html
