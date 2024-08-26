@@ -1,3 +1,7 @@
+**The Windup: Will Aaron Judge ever hit 73?**\
+`The Windup is The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/5724341/2024/08/26/aaron-judge-home-runs-the-windup/
+
 **Uber Fined $324 Million by Dutch Watchdog Over Driver Data Protection**\
 `The authorities in the Netherlands said the ride-hailing company had violated European data protection laws when it sent sensitive information to the United States.`\
 https://nytimes.com/2024/08/26/business/uber-netherlands-fine-driver-data.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/26/business/energy-environment/tritan-renew-plastic-
 **Sven-Goran Eriksson obituary: Calm, dignified, positive but never a pushover**\
 `The former England, Lazio, Benfica and Sampdoria manager, who has died at the age of 76, enjoyed a nomadic career around the globe`\
 https://nytimes.com/athletic/5722811/2024/08/26/sven-goran-eriksson-england/
-
-**Trump and Harris Embody a Stark Partisan Divide on Fighting Poverty**\
-`The two presidential candidates can both point to records of pushing poverty rates down, but their approaches could hardly be more different.`\
-https://nytimes.com/2024/08/26/us/politics/trump-harris-poverty-policies.html
 
