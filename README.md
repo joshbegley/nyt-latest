@@ -1,3 +1,7 @@
+**Dam Collapse Devastates Region in Eastern Sudan**\
+`The Arba’at dam fell apart after days of heavy rain, killing villagers and flooding communities.`\
+https://nytimes.com/2024/08/26/world/africa/sudan-arbaat-dam-collapse.html
+
 **Wisconsin Week 1 depth chart: Injury sparks more D-line questions**\
 `Fickell confirmed Monday that starting defensive lineman James Thompson Jr. had surgery last week and could miss the entire season.`\
 https://nytimes.com/athletic/5724738/2024/08/26/wisconsin-college-football-depth-chart-week-1/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5724758/2024/08/26/lando-norris-dutch-gp-larson-ver
 **2 Men Charged With Damaging Ancient Rock Formation at Lake Mead**\
 `In a video from April, two men appear to be pushing large red rocks — estimated to be over 100 million years old — over the edge of a cliff at Lake Mead National Recreation Area in Nevada.`\
 https://nytimes.com/2024/08/26/us/lake-mead-rock-formations-indicted.html
-
-**Liverpool considering move for Juventus' Chiesa**\
-`Liverpool are considering a move for Juventus winger Federico Chiesa.`\
-https://nytimes.com/athletic/5724589/2024/08/26/federico-chiesa-liverpool-juventus-transfer/
 
