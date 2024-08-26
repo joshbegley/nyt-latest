@@ -1,5 +1,9 @@
 **Ex-England manager Eriksson dies aged 76**\
 `Former England and Manchester City manager Sven-Goran Eriksson has died at the age of 76.`\
+https://nytimes.com/athletic/5713966/2024/08/26/sven-goran-eriksson-dies/
+
+**Ex-England manager Eriksson dies aged 76**\
+`Former England and Manchester City manager Sven-Goran Eriksson has died at the age of 76.`\
 https://nytimes.com/athletic/5713966/2024/08/26/sven-goran-eriksson-dies-dies/
 
 **Padres takeaways: Jackson Merrill delivers another big swing in ROY race**\
