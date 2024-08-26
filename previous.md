@@ -1,3 +1,7 @@
+**Latino Civil Rights Group Demands Inquiry Into Texas Voter Fraud Raids**\
+`The organization said many of those targeted by the raids, conducted by a unit created by the Texas attorney general, Ken Paxton, were Democratic leaders and election volunteers.`\
+https://nytimes.com/2024/08/25/us/texas-latinos-democrats-raids-paxton.html
+
 **Who will start at QB for the Patriots in Week 1?**\
 `Maye seemed to outplay Brissett, who sustained an injury to his arm, in the team’s final preseason game Sunday.`\
 https://nytimes.com/athletic/5723277/2024/08/25/drake-maye-jacoby-brissett-patriots-starting-quarterback/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5723015/2024/08/25/white-sox-lose-100th-game-greenb
 **Could Yankees’ Aaron Judge hit 73 home runs someday? Teammates weigh in**\
 `“If there’s any guy in the league who can” surpass Barry Bonds, right fielder Juan Soto said, “it’s going to be (Judge).”`\
 https://nytimes.com/athletic/5723121/2024/08/25/yankees-aaron-judge-barry-bonds-home-run-record/
-
-**Keegan Bradley survives Adam Scott to win BMW Championship by 1 shot**\
-`The FedEx Cup playoff event win is Bradley’s seventh career PGA Tour victory.`\
-https://nytimes.com/athletic/5723016/2024/08/25/keegan-bradley-wins-bmw-championship/
 

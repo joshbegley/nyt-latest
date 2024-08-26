@@ -1,3 +1,7 @@
+**Latino Civil Rights Group Demands Inquiry Into Texas Voter Fraud Raids**\
+`The organization said many of those targeted by the raids, conducted by a unit created by the Texas attorney general, Ken Paxton, were Democratic leaders and election volunteers.`\
+https://nytimes.com/2024/08/25/us/texas-latinos-democrats-raids-paxton.html
+
 **Who will start at QB for the Patriots in Week 1?**\
 `Maye seemed to outplay Brissett, who sustained an injury to his arm, in the team’s final preseason game Sunday.`\
 https://nytimes.com/athletic/5723277/2024/08/25/drake-maye-jacoby-brissett-patriots-starting-quarterback/
