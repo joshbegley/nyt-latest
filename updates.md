@@ -1,3 +1,11 @@
+**Ex-England manager Eriksson dies aged 76**\
+`Former England and Manchester City manager Sven-Goran Eriksson has died at the age of 76.`\
+https://nytimes.com/athletic/5713966/2024/08/26/sven-goran-eriksson-dies-dies/
+
+**Padres takeaways: Jackson Merrill delivers another big swing in ROY race**\
+`It looks like Merrill has an edge over Paul Skenes in the Rookie of the Year race, plus Joe Musgrove had another encouraging performance.`\
+https://nytimes.com/athletic/5723388/2024/08/26/padres-jackson-merrill-rookie-of-the-year-race/
+
 **Dodgers takeaways: Gavin Stone's development, Shohei Ohtani's next task and more**\
 `Gavin Stone delivered seven innings of one-run ball in the Dodgers' win, impressing a former teammate now in the opposing dugout.`\
 https://nytimes.com/athletic/5723106/2024/08/26/dodgers-gavin-stone-shohei-ohtani/
