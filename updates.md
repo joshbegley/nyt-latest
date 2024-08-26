@@ -1,3 +1,11 @@
+**1 Tourist Is Dead and 2 Are Trapped After Ice Wall Collapses in Iceland**\
+`The tourists were part of a group exploring a glacier in southeastern Iceland when an ice canyon wall collapsed. A fourth tourist was rescued, officials said.`\
+https://nytimes.com/2024/08/25/world/europe/iceland-cave-collapse.html
+
+**Colorado Republicans Vote Out Party Chair Following Anti-Gay Posts**\
+`State Republicans accused Dave Williams, who was ousted in a landslide vote, of dividing the party with “hateful narratives,” most recently against the L.G.B.T.Q. community.`\
+https://nytimes.com/2024/08/25/us/colorado-gop-chair.html
+
 **Greenberg: White Sox lose 100th game in familiar, 'beating a dead horse' fashion**\
 `You can often win in life and baseball just by showing up, but the 2024 White Sox make losing look easy. Sunday it was 9-4 to the Tigers.`\
 https://nytimes.com/athletic/5723015/2024/08/25/white-sox-lose-100th-game-greenberg/
