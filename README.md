@@ -1,3 +1,11 @@
+**Canada Will Impose 100% Tariffs on Chinese Electric Vehicles**\
+`The new tariffs announced by Prime Minister Justin Trudeau will match levies imposed by President Biden and could further strain relations between Canada and China.`\
+https://nytimes.com/2024/08/26/business/canada-ev-tariffs-china.html
+
+**San Francisco Giants week in review: Another .500 week within a .500 season**\
+`The Giants' journey towards a .500 continued unabated, as they won three and lost three, even though they played a series against Chicago.`\
+https://nytimes.com/athletic/5723385/2024/08/26/sf-giants-week-in-review-500-record/
+
 **Duke's Cooper Flagg signs shoe deal with New Balance**\
 `The reigning Gatorade National Player of the Year and five-star recruit grew up just 25 miles from New Balance’s manufacturing plant.`\
 https://nytimes.com/athletic/5724179/2024/08/26/cooper-flagg-duke-new-balance-shoe/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/26/world/asia/pakistan-baluchistan-attacks.html
 **Can You Guess These Novels That Originally Got Bad Times Reviews?**\
 `Some works that went on to become popular literary classics first got mixed or bad reviews. Try this short quiz to see if you recognize the novels as described by their original reviewers in The Times.`\
 https://nytimes.com/interactive/2024/08/26/books/booksupdate/panned-books-quiz.html
-
-**Choose Your Own Meatball Adventure**\
-`Play with the protein, spices, herbs and aromatics in this meatball recipe to get the exact combination you want for tonight’s dinner.`\
-https://nytimes.com/2024/08/26/dining/meatballs.html
-
-**How did college football’s two-minute warning work in Week 0?**\
-`The two-minute warning did not add any extra TV timeouts as fans feared. Week 0 just had some unusual games. `\
-https://nytimes.com/athletic/5723737/2024/08/26/college-football-two-minute-warning-commercials/
 
