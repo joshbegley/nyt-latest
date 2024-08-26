@@ -1,3 +1,7 @@
+**Solomon's Leeds move set to be completed on Tuesday**\
+`Manor Solomon is set to complete his move from Tottenham Hotspur to Leeds United on Tuesday.`\
+https://nytimes.com/athletic/5722188/2024/08/26/manor-solomon-leeds-transfer-tottenham/
+
 **Seahawks LB Uchenna Nwosu to start season on IR: Reports**\
 `Nwosu was injured on a play that was ruled a chop block. `\
 https://nytimes.com/athletic/5724796/2024/08/26/seahawks-uchenna-nwosu-ir/
@@ -29,8 +33,4 @@ https://nytimes.com/interactive/2024/08/26/books/21c-checklist-printable.html
 **Gus Walz Brought Out Both the Joy and the Cruelty**\
 `He deserved the kind of treatment any person does.`\
 https://nytimes.com/2024/08/26/opinion/gus-walz-cry-dnc.html
-
-**What Kamala Harris Needs to Do to Take on China**\
-`Washington cannot win “the competition for the 21st century” against Beijing by itself.`\
-https://nytimes.com/2024/08/26/opinion/kamala-harris-china.html
 
