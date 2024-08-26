@@ -1,7 +1,3 @@
-**Deion Sanders partners with bank to open accounts for players' children**\
-`The children of the eight players on Colorado's team will receive $2,121, a nod to Sanders’ signature number. `\
-https://nytimes.com/athletic/5724023/2024/08/26/deion-sanders-colorado-bank-chiildren/
-
 **Chiefs to sign WR JuJu Smith-Schuster: Source**\
 `Smith-Schuster was released by the Patriots earlier this month after spending one season in New England.`\
 https://nytimes.com/athletic/5724019/2024/08/26/chiefs-signing-juju-smith-schuster/
@@ -19,7 +15,7 @@ https://nytimes.com/athletic/5723706/2024/08/26/hannibal-mejbri-burnley-man-unit
 https://nytimes.com/athletic/5723897/2024/08/26/nick-chubb-injury-start-pup-list-browns/
 
 **Learner Tien's 28-match win streak earned a U.S. Open wildcard - now just one win will do**\
-`The 18-year-old talent didn't grow up in awe of tennis. Instead, he picked up a racket, and the sport — and some kismet — did the rest`\
+`The 18-year-old talent didn't grow up in awe of tennis. Instead, he picked up a racket, and the sport - and some kismet - did the rest`\
 https://nytimes.com/athletic/5723060/2024/08/26/learner-tien-us-open-tennis-win-streak/
 
 **Trump Tussles With Harris Over ABC Debate**\
@@ -33,4 +29,8 @@ https://nytimes.com/2024/08/26/world/asia/china-surveillance-japan-airspace.html
 **Danny Jansen to make MLB history by playing for both teams in same game on Monday**\
 `Back in June, Jansen was playing for the Blue Jays. When the rain delay was called, Jansen was at the plate with one out and one on.`\
 https://nytimes.com/athletic/5723028/2024/08/26/danny-jansen-mlb-history-same-team-red-sox-blue-jays/
+
+**Trabzonspor make offer for Burnley captain Brownhill**\
+`Trabzonspor have made a bid of €4m for Burnley captain Josh Brownhill.`\
+https://nytimes.com/athletic/5723684/2024/08/26/burnley-transfers-josh-brownhill-trabzonspor/
 
