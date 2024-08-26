@@ -1,3 +1,11 @@
+**Trump Suggests He May Skip Debate With Kamala Harris on ABC**\
+`The former president derided the network in a social media post and questioned why he would participate in the debate, which is scheduled for Sept. 10.`\
+https://nytimes.com/2024/08/26/us/politics/trump-harris-debate-abc.html
+
+**In a First, a Chinese Military Plane Breaches Japan’s Territorial Airspace**\
+`The territorial violation by China is the latest in a series of events amplifying tensions between Beijing and Japan.`\
+https://nytimes.com/2024/08/26/world/asia/china-surveillance-japan-airspace.html
+
 **Danny Jansen to make MLB history by playing for both teams in same game on Monday**\
 `Back in June, Jansen was playing for the Blue Jays. When the rain delay was called, Jansen was at the plate with one out and one on.`\
 https://nytimes.com/athletic/5723028/2024/08/26/danny-jansen-mlb-history-same-team-red-sox-blue-jays/
