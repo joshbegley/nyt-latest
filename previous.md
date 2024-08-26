@@ -1,3 +1,11 @@
+**What Kamala Harris Needs to Do to Take on China**\
+`Washington cannot win “the competition for the 21st century” against Beijing by itself.`\
+https://nytimes.com/2024/08/26/opinion/kamala-harris-china.html
+
+**Telegram Turmoil Threatens Dominant Chronicle of the War in Ukraine**\
+`The detention of Telegram’s founder has highlighted the messaging app’s outsized status in Europe’s deadliest war since World War II.`\
+https://nytimes.com/2024/08/26/world/europe/telegram-russia-ukraine-war.html
+
 **Isabel Wilkerson Looks Back at ‘The Warmth of Other Suns’**\
 `The fifth in a series of conversations with authors appearing on our “Best Books of the 21st Century” list.`\
 https://nytimes.com/2024/08/26/books/review/podcast-warmth-of-other-suns.html
