@@ -1,3 +1,7 @@
+**U.S. Open Tuesday: What to watch at the Billie Jean King Tennis Center on Day 2**\
+`Day 2 of the U.S. Open brings the top half of the men's and women's singles onto the court in Flushing Meadows.`\
+https://nytimes.com/athletic/5724431/2024/08/26/us-open-2024-watch-guide-day-2-sinner-alcaraz-swiatek/
+
 **Sid Eudy, Wrestler Known as ‘Sid Vicious’ and ‘Sycho Sid,’ Dies at 63**\
 `The 6-foot-9 wrestling champion faced off against some of the industry’s biggest names, including Shawn Michaels and Hulk Hogan.`\
 https://nytimes.com/2024/08/26/sports/sid-eudy-dead.html
