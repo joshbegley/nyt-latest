@@ -1,3 +1,7 @@
+**Monday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/08/26/briefing/monday-briefing-israel-hezbollah-germany.html
+
 **West Ham thrill at Max Kilman impact as defender starts justifying lofty fee**\
 `The big-money summer arrival from Wolves was excellent at Selhurst Park and even showcased his abilities going forward`\
 https://nytimes.com/athletic/5720596/2024/08/26/kilman-west-ham-lopotegui-palace/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5721833/2024/08/26/forest-away-milenkovic-nuno-sout
 **How Crystal Palace crumbled after a week of disruption: 'We were a little bit shaken'**\
 `Oliver Glasner admitted his players had been unsettled after seeing Joachim Andersen and Jordan Ayew depart - with reinforcements required`\
 https://nytimes.com/athletic/5709496/2024/08/26/crystal-palace-glasner-andersen-ayew-guehi/
-
-**Wolves were open and naive in chastening defeat - O'Neil and the club are at a crossroads**\
-`Sunday's defeat asked as many questions about the shape and style of O’Neil’s Wolves team as it did about the club’s transfer plans`\
-https://nytimes.com/athletic/5722520/2024/08/26/wolves-chelsea-oneil-defeat/
 
