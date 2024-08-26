@@ -1,3 +1,7 @@
+**Inflation Is Fading, Statistically and Politically**\
+`The cost of living may not be the G.O.P.’s, um, trump card.`\
+https://nytimes.com/2024/08/26/opinion/inflation-trump-harris-powell.html
+
 **Rudy Franchi, Who Put Movies at the Center of a Technicolor Life, Dies at 85**\
 `He brought French classics to New York, published a film magazine, worked as a Hollywood publicist and (as seen on “Antiques Roadshow”) thrived selling vintage posters and kitsch.`\
 https://nytimes.com/2024/08/26/movies/rudy-franchi-dead.html
