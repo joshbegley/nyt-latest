@@ -1,3 +1,11 @@
+**Big Ten announces 2024 tiebreakers for league title game**\
+`The Big Ten finalized its tiebreaking procedures to determine which teams participate in its 2024 championship game, the league announced Monday.`\
+https://nytimes.com/athletic/5724387/2024/08/26/big-ten-football-tiebreaker-rules-2024-championship-game/
+
+**Marcelo Mayer likely out for the season with lumbar strain**\
+`Mayer left a game on July 30 with lower back tightness that was initially expected to be a minor injury but his recovery stalled.`\
+https://nytimes.com/athletic/5724443/2024/08/26/red-sox-marcelo-mayer-lumbar-strain/
+
 **Hungry for Clean Energy, Facebook Looks to a New Type of Geothermal**\
 `As electricity demand from data centers soars, Meta and Google are looking at a novel solution: harnessing clean heat far below Earth’s surface.`\
 https://nytimes.com/2024/08/26/climate/meta-facebook-geothermal-fracking-energy.html
