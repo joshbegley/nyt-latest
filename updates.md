@@ -1,3 +1,5 @@
+**A blast sends people fleeing from a hospital in central Gaza, and other news.**\
+
 **Why California Is Considering Banning Food Dyes in Schools**\
 `Concerns about their risks have been swirling for years. Here’s what the science suggests.`\
 https://nytimes.com/2024/08/26/well/eat/food-dye-california-ban.html
