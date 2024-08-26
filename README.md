@@ -1,3 +1,12 @@
+**In Desperate Need of Homes of Their Own**\
+`A groundbreaking report examines the nationwide capacity crisis at animal shelters,
+the barriers to pet ownership and solutions that can help place or keep pets in loving homes.`\
+https://nytimes.com/paidpost/hills-pet-nutrition/in-desperate-need-of-homes-of-their-own.html
+
+**Captain of Sunken Yacht Under Investigation in Deaths on Ship**\
+`The investigation does not necessarily imply that formal charges will follow against the captain, James Cutfield.`\
+https://nytimes.com/2024/08/26/world/europe/captain-sunken-yacht-bayesian-investigation-deaths.html
+
 **Atletico exploring loan deal for City's Nunes**\
 `Atletico Madrid are exploring the potential loan signing of Manchester City midfielder Matheus Nunes.`\
 https://nytimes.com/athletic/5724493/2024/08/26/matheus-nunes-atletico-madrid-manchester-city/
@@ -25,12 +34,4 @@ https://nytimes.com/video/us/elections/100000009657751/trump-debate-rules.html
 **Russia Strikes Ukrainian Cities With Missiles and Drones**\
 `Cities across Ukraine were hit in a widespread attack that also targeted energy infrastructure, Ukrainian officials said.`\
 https://nytimes.com/video/world/europe/100000009657350/russia-ukraine-strikes.html
-
-**Flames hire Jon Abbott as new play-by-play voice**\
-`Abbott has 24 years of broadcasting experience and was most recently with the Ottawa Senators doing play-by-play for TSN.`\
-https://nytimes.com/athletic/5724176/2024/08/26/flames-jon-abbott-sportsnet-tv/
-
-**NBA asks judge to dismiss lawsuit filed by WBD**\
-`Warner Bros. Discovery, which owns TNT, and has been a NBA rightsholder for 35 years`\
-https://nytimes.com/athletic/5724303/2024/08/26/nba-wbd-lawsuit-tv-deal-matching-rights/
 
