@@ -1,3 +1,7 @@
+**Duke's Cooper Flagg signs shoe deal with New Balance**\
+`The reigning Gatorade National Player of the Year and five-star recruit grew up just 25 miles from New Balance’s manufacturing plant.`\
+https://nytimes.com/athletic/5724179/2024/08/26/cooper-flagg-duke-new-balance-shoe/
+
 **Now an Acclaimed Restaurateur, He Long Concealed a Secret**\
 `Arjav Ezekiel rose through the restaurant ranks becoming a sommelier and opening Birdie’s in Austin, Texas. Few knew of his past as an undocumented immigrant.`\
 https://nytimes.com/2024/08/26/dining/drinks/arjav-ezekiel-restaurateur-undocumented-immigrant.html
