@@ -1,3 +1,11 @@
+**Democrats Look to End the Electability Question**\
+`The party is battling a squishy, often self-reinforcing concept about the perceived ability to win.`\
+https://nytimes.com/2024/08/26/us/politics/democrats-harris-trump.html
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>OK, folks, no more dress rehearsals.`\
+https://nytimes.com/athletic/5725374/2024/08/26/submit-a-question-for-stewart-mandels-college-football-mailbag-270/
+
 **U.S. Open Tuesday: What to watch at the Billie Jean King Tennis Center on Day 2**\
 `Day 2 of the U.S. Open brings the top half of the men's and women's singles onto the court in Flushing Meadows.`\
 https://nytimes.com/athletic/5724431/2024/08/26/us-open-2024-watch-guide-day-2-sinner-alcaraz-swiatek/

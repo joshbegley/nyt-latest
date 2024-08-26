@@ -1,3 +1,11 @@
+**Democrats Look to End the Electability Question**\
+`The party is battling a squishy, often self-reinforcing concept about the perceived ability to win.`\
+https://nytimes.com/2024/08/26/us/politics/democrats-harris-trump.html
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>OK, folks, no more dress rehearsals.`\
+https://nytimes.com/athletic/5725374/2024/08/26/submit-a-question-for-stewart-mandels-college-football-mailbag-270/
+
 **Sid Eudy, Wrestler Known as ‘Sid Vicious’ and ‘Sycho Sid,’ Dies at 63**\
 `The 6-foot-9 wrestling champion faced off against some of the industry’s biggest names, including Shawn Michaels and Hulk Hogan.`\
 https://nytimes.com/2024/08/26/sports/sid-eudy-dead.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/26/movies/rudy-franchi-dead.html
 **Wrestler Sid Eudy dies at 63**\
 `Sid Eudy a six-time world champion, died after battling cancer for several years, his son Gunnar announced Monday.`\
 https://nytimes.com/athletic/5724830/2024/08/26/sid-eudy-wrestler-death/
-
-**Danny Jansen makes history in resumption of suspended game but Red Sox hitting woes continue**\
-`"Leaving a stamp like that on the game, it’s strange and it’s interesting. I’m grateful for the opportunity to have that," Jansen said.`\
-https://nytimes.com/athletic/5725092/2024/08/26/danny-jansen-red-sox-blue-jays-both-teams/
-
-**Why the NFLPA vetoed the revised emergency 3rd QB rule**\
-`The rule would have allowed a practice squad QB to serve as the emergency third QB without ever having to sign to the 53-man roster.`\
-https://nytimes.com/athletic/5724530/2024/08/26/nflpa-expansion-emergency-third-quarterback-rule/
 
