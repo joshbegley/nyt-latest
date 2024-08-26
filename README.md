@@ -1,5 +1,5 @@
 **Big Ten announces 2024 tiebreakers for league title game**\
-`The Big Ten finalized its tiebreaking procedures to determine which teams participate in its 2024 championship game, the league announced Monday.`\
+`The Big Ten finalized its tiebreaking procedures to determine which teams participate in its 2024 championship game.`\
 https://nytimes.com/athletic/5724387/2024/08/26/big-ten-football-tiebreaker-rules-2024-championship-game/
 
 **Marcelo Mayer likely out for the season with lumbar strain**\
