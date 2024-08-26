@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5725147/2024/08/26/javier-baez-tigers-hip-surgery/
 
 **How Cowboys plan to be smart as they ramp-up CeeDee Lamb in his return**\
-`Lamb is expected back Tuesday at the Cowboys' practice, but how much he does will be determined by the training staff.`\
+`Lamb is expected back Tuesday at the Cowboys practice, but how much he does will be determined by the training staff.`\
 https://nytimes.com/athletic/5725097/2024/08/26/ceedee-lamb-contract-mccarthy-comments/
 
 **Democrats Sue Georgia Election Board, Warning of ‘Chaos’**\
