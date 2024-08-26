@@ -1,3 +1,11 @@
+**Dodgers takeaways: Gavin Stone's development, Shohei Ohtani's next task and more**\
+`Gavin Stone delivered seven innings of one-run ball in the Dodgers' win, impressing a former teammate now in the opposing dugout.`\
+https://nytimes.com/athletic/5723106/2024/08/26/dodgers-gavin-stone-shohei-ohtani/
+
+**Raiders' preseason star Tyreik McAllister on verge of making 53-man roster**\
+`McAllister came from a Division II school and hadn't played WR in six years. Plus, what could Las Vegas be looking for on the waiver wire?`\
+https://nytimes.com/athletic/5723125/2024/08/26/tyreik-mcallister-raiders-53-man-roster/
+
 **Dangerous Heat Returns to Central and Eastern U.S. This Week**\
 `High heat and humidity could make it feel like 115 degrees Fahrenheit in parts of the country this week, forecasters warned.`\
 https://nytimes.com/2024/08/26/us/extreme-heat-advisories.html
