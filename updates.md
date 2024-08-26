@@ -1,3 +1,11 @@
+**Harris and Trump Squabbled Over Debate Rules**\
+`Also, Russia attacked Ukraine’s energy infrastructure. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/08/26/briefing/trump-harris-debate-russia-ukraine-strikes.html
+
+**Deadly Landslide Strikes Ketchikan, Alaska**\
+`The disaster killed one person and injured three in the town. Researchers said heavy rains preceding the disaster may have played a role.`\
+https://nytimes.com/2024/08/26/climate/alaska-landslide-ketchikan.html
+
 **How a Federal Court in New Orleans Is Driving the Conservative Agenda**\
 `Today, the U.S. Fifth Circuit Court of Appeals is an outlier. But a Trump victory in November could transform it into the standard-bearer of MAGA-era jurisprudence.`\
 https://nytimes.com/2024/08/26/us/new-orleans-appeals-court-trump.html
