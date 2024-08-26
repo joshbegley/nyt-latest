@@ -1,3 +1,15 @@
+**Notre Dame's depth chart release: 4 thoughts on the Irish heading into Week 1**\
+`Notre Dame plans to take one of the least experienced offensive lines in school history into raucous Kyle Field on Saturday night.`\
+https://nytimes.com/athletic/5724935/2024/08/26/notre-dame-depth-chart-texas-am/
+
+**Tuesday Briefing: Russia Launches a Large-Scale Attack**\
+`Plus, badminton instead of sex.`\
+https://nytimes.com/2024/08/26/briefing/ukraine-russia-harris-trump-pakistan.html
+
+**Eric Butler, 49, Dies; Promoted ‘Restorative Justice’ for Young People**\
+`As a counselor, he embraced an alternative to “zero tolerance” disciplinary policies that are disproportionately meted out to Black students.`\
+https://nytimes.com/2024/08/26/us/eric-butler-dead.html
+
 **Dam Collapse Devastates Region in Eastern Sudan**\
 `The Arba’at dam fell apart after days of heavy rain, killing villagers and flooding communities.`\
 https://nytimes.com/2024/08/26/world/africa/sudan-arbaat-dam-collapse.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/08/26/us/politics/trump-documents-appeal-jack-smith.htm
 **Solomon's Leeds move set to be completed on Tuesday**\
 `Manor Solomon is set to complete his move from Tottenham Hotspur to Leeds United on Tuesday.`\
 https://nytimes.com/athletic/5722188/2024/08/26/manor-solomon-leeds-transfer-tottenham/
-
-**Seahawks LB Uchenna Nwosu to miss multiple weeks: Reports**\
-`Nwosu was injured on a play that was ruled a chop block. `\
-https://nytimes.com/athletic/5724796/2024/08/26/seahawks-uchenna-nwosu-ir/
-
-**Prime Tire: Breaking down F1's brewing title fight**\
-`Welcome to Prime Tire, The Athletic’s twice-weekly F1 newsletter.`\
-https://nytimes.com/athletic/5724758/2024/08/26/lando-norris-dutch-gp-larson-verstappen-prime-tire/
-
-**2 Men Charged With Damaging Ancient Rock Formation at Lake Mead**\
-`In a video from April, two men appear to be pushing large red rocks — estimated to be over 100 million years old — over the edge of a cliff at Lake Mead National Recreation Area in Nevada.`\
-https://nytimes.com/2024/08/26/us/lake-mead-rock-formations-indicted.html
 

@@ -1,3 +1,15 @@
+**Notre Dame's depth chart release: 4 thoughts on the Irish heading into Week 1**\
+`Notre Dame plans to take one of the least experienced offensive lines in school history into raucous Kyle Field on Saturday night.`\
+https://nytimes.com/athletic/5724935/2024/08/26/notre-dame-depth-chart-texas-am/
+
+**Tuesday Briefing: Russia Launches a Large-Scale Attack**\
+`Plus, badminton instead of sex.`\
+https://nytimes.com/2024/08/26/briefing/ukraine-russia-harris-trump-pakistan.html
+
+**Eric Butler, 49, Dies; Promoted ‘Restorative Justice’ for Young People**\
+`As a counselor, he embraced an alternative to “zero tolerance” disciplinary policies that are disproportionately meted out to Black students.`\
+https://nytimes.com/2024/08/26/us/eric-butler-dead.html
+
 **Dam Collapse Devastates Region in Eastern Sudan**\
 `The Arba’at dam fell apart after days of heavy rain, killing villagers and flooding communities.`\
 https://nytimes.com/2024/08/26/world/africa/sudan-arbaat-dam-collapse.html
