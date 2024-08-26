@@ -1,3 +1,12 @@
+**In Desperate Need of Homes of Their Own**\
+`A groundbreaking report examines the nationwide capacity crisis at animal shelters,
+the barriers to pet ownership and solutions that can help place or keep pets in loving homes.`\
+https://nytimes.com/paidpost/hills-pet-nutrition/in-desperate-need-of-homes-of-their-own.html
+
+**Captain of Sunken Yacht Under Investigation in Deaths on Ship**\
+`The investigation does not necessarily imply that formal charges will follow against the captain, James Cutfield.`\
+https://nytimes.com/2024/08/26/world/europe/captain-sunken-yacht-bayesian-investigation-deaths.html
+
 **Atletico exploring loan deal for City's Nunes**\
 `Atletico Madrid are exploring the potential loan signing of Manchester City midfielder Matheus Nunes.`\
 https://nytimes.com/athletic/5724493/2024/08/26/matheus-nunes-atletico-madrid-manchester-city/
