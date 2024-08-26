@@ -1,3 +1,11 @@
+**Alabama High School Quarterback Dies After Sustaining Head Injury**\
+`Caden Tellier suffered a critical brain injury after being tackled in the third quarter of a game on Friday night, school officials in Selma said.`\
+https://nytimes.com/2024/08/26/us/alabama-high-school-football-death.html
+
+**Scoop City: Risers and fallers after preseason**\
+`A look at the best and worst performances of preseason Week 3.`\
+https://nytimes.com/athletic/5724544/2024/08/26/scoop-city-risers-and-fallers-after-preseason/
+
 **In Desperate Need of Homes of Their Own**\
 `A groundbreaking report examines the nationwide capacity crisis at animal shelters,
 the barriers to pet ownership and solutions that can help place or keep pets in loving homes.`\
@@ -26,12 +34,4 @@ https://nytimes.com/2024/08/26/climate/meta-facebook-geothermal-fracking-energy.
 **Georgia will be without Roderick Robinson against Clemson**\
 `Robinson, who is Georgia's leading returning rusher, had toe surgery and will be out for several weeks, if not months.`\
 https://nytimes.com/athletic/5723886/2024/08/26/georgia-football-roderick-robinson-injury/
-
-**Trump Still ‘Thinking About’ Participating in Presidential Debate**\
-`During a campaign stop in northern Virginia, Donald Trump raised the possibility of not participating in the presidential debate with Vice President Kamala Harris on ABC News, claiming that the network’s executives and anchors were biased against him.`\
-https://nytimes.com/video/us/elections/100000009657751/trump-debate-rules.html
-
-**Russia Strikes Ukrainian Cities With Missiles and Drones**\
-`Cities across Ukraine were hit in a widespread attack that also targeted energy infrastructure, Ukrainian officials said.`\
-https://nytimes.com/video/world/europe/100000009657350/russia-ukraine-strikes.html
 
