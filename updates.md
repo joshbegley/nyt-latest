@@ -1,3 +1,7 @@
+**Will teams like Ole Miss, Kansas State be in or out? College Football Playoff Bubble Watch**\
+`This is Bubble Watch, a new weekly check-in chronicling the ebbs and flows of a season that is about newfound hope.`\
+https://nytimes.com/athletic/5723036/2024/08/26/bubble-watch-college-football-playoff/
+
 **Cubs takeaways: Pete Crow-Armstrong’s turning point, the closer question and more**\
 `Notes include how Anthony Santander could fit into the Cubs' offseason plans and why prospects might find hitting in the majors challenging.`\
 https://nytimes.com/athletic/5722941/2024/08/26/cubs-pete-crow-armstrong-turnaround/
