@@ -1,3 +1,7 @@
+**Why the NFLPA vetoed the revised emergency 3rd QB rule**\
+`The rule would have allowed a practice squad QB to serve as the emergency third QB without ever having to sign to the 53-man roster.`\
+https://nytimes.com/athletic/5724530/2024/08/26/nflpa-expansion-emergency-third-quarterback-rule/
+
 **How Cowboys plan to be smart as they ramp-up CeeDee Lamb in his return**\
 `Lamb is expected back Tuesday at the Cowboys practice, but how much he does will be determined by the training staff.`\
 https://nytimes.com/athletic/5725097/2024/08/26/ceedee-lamb-contract-mccarthy-comments/
