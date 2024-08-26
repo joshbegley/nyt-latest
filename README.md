@@ -1,3 +1,11 @@
+**Jill Stein Will Remain on the Ballot in Wisconsin After Court Order**\
+`The Wisconsin Supreme Court denied a Democratic challenge to the Green Party candidate’s ballot access in the state.`\
+https://nytimes.com/2024/08/26/us/politics/jill-stein-wisconsin.html
+
+**Trump Hits Harris Over ‘Humiliation’ in Military’s Afghan Exit**\
+`Courting military votes, Donald Trump visited Arlington National Cemetery to observe the anniversary of a deadly Kabul bombing and then spoke at a National Guard group’s conference.`\
+https://nytimes.com/2024/08/26/us/politics/trump-harris-afghanistan-withdrawal.html
+
 **Why defending a Grand Slam title is so difficult - and how Coco Gauff plans to do it**\
 `The U.S. Open champion is balancing the aura and pressure of defending a title in Flushing Meadows. Other players know how tough it is.`\
 https://nytimes.com/athletic/5724817/2024/08/26/why-defending-grand-slam-tennis-title-rare/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5724995/2024/08/26/penn-state-athletic-director-pat
 **Notre Dame's depth chart release: 4 thoughts on the Irish heading into Week 1**\
 `Notre Dame plans to take one of the least experienced offensive lines in school history into raucous Kyle Field on Saturday night.`\
 https://nytimes.com/athletic/5724935/2024/08/26/notre-dame-depth-chart-texas-am/
-
-**Tuesday Briefing: Russia Launches a Large-Scale Attack**\
-`Plus, badminton instead of sex.`\
-https://nytimes.com/2024/08/26/briefing/ukraine-russia-harris-trump-pakistan.html
-
-**Eric Butler, 49, Dies; Promoted ‘Restorative Justice’ for Young People**\
-`As a counselor, he embraced an alternative to “zero tolerance” disciplinary policies that are disproportionately meted out to Black students.`\
-https://nytimes.com/2024/08/26/us/eric-butler-dead.html
 
