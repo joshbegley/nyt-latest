@@ -1,3 +1,11 @@
+**Harris and Trump Squabbled Over Debate Rules**\
+`Also, Russia attacked Ukraine’s energy infrastructure. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/08/26/briefing/trump-harris-debate-russia-ukraine-strikes.html
+
+**Deadly Landslide Strikes Ketchikan, Alaska**\
+`The disaster killed one person and injured three in the town. Researchers said heavy rains preceding the disaster may have played a role.`\
+https://nytimes.com/2024/08/26/climate/alaska-landslide-ketchikan.html
+
 **How a Federal Court in New Orleans Is Driving the Conservative Agenda**\
 `Today, the U.S. Fifth Circuit Court of Appeals is an outlier. But a Trump victory in November could transform it into the standard-bearer of MAGA-era jurisprudence.`\
 https://nytimes.com/2024/08/26/us/new-orleans-appeals-court-trump.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/26/world/africa/sudan-arbaat-dam-collapse.html
 **Wisconsin Week 1 depth chart: Injury sparks more D-line questions**\
 `Fickell confirmed Monday that starting defensive lineman James Thompson Jr. had surgery last week and could miss the entire season.`\
 https://nytimes.com/athletic/5724738/2024/08/26/wisconsin-college-football-depth-chart-week-1/
-
-**Evacuations halt the U.N.’s humanitarian missions in Gaza, at least temporarily.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/08/26/world/israel-hamas-gaza-war/evacuations-halt-the-uns-humanitarian-missions-in-gaza-at-least-temporarily
-
-**What’s Dining Out Like For a Vegetarian New Yorker? Share Your Experience.**\
-`The New York Times Food team wants to hear your stories, to help inform our reporting.`\
-https://nytimes.com/2024/08/26/us/vegetarian-restaurants-nyc.html
 
