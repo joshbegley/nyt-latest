@@ -1,3 +1,7 @@
+**China to Hold Live-Fire Drills Near War-Torn Myanmar**\
+`Beijing likely wants to signal to Myanmar’s junta leaders that they should return to peace talks and de-escalate the conflict, analysts said.`\
+https://nytimes.com/2024/08/26/world/asia/china-drills-myanmar-war.html
+
 **Big 12 tiers: Wide-open race has 6 CFP contenders, including Kansas — but not Colorado**\
 `Deion Sanders and Colorado get the headlines, but the new-look Big 12's long list of CFP contenders doesn't include the Buffaloes.`\
 https://nytimes.com/athletic/5717279/2024/08/26/big-12-football-tiers-rankings-cfp-projections/
