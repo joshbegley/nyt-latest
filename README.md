@@ -1,3 +1,7 @@
+**Inflation Is Fading, Statistically and Politically**\
+`The cost of living may not be the G.O.P.’s, um, trump card.`\
+https://nytimes.com/2024/08/26/opinion/inflation-trump-harris-powell.html
+
 **Rudy Franchi, Who Put Movies at the Center of a Technicolor Life, Dies at 85**\
 `He brought French classics to New York, published a film magazine, worked as a Hollywood publicist and (as seen on “Antiques Roadshow”) thrived selling vintage posters and kitsch.`\
 https://nytimes.com/2024/08/26/movies/rudy-franchi-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/26/us/elections/georgia-elections-lawsuit-democrats.
 **Three Los Angeles Museums Team Up to Acquire Art**\
 `The Hammer, LACMA and MOCA are establishing a joint collection, starting off with a gift of 260 works from the collectors Jarl and Pamela Mohn.`\
 https://nytimes.com/2024/08/26/arts/design/hammer-lacma-moca-museums-los-angeles-collection.html
-
-**Assassination Task Force Visits Butler as Right Wing Promises a ‘Parallel’ Inquiry**\
-`As members of the newly formed bipartisan task force investigating the assassination attempt on former President Donald J. Trump began their work, some hard-right Republicans were already warning of a cover-up.`\
-https://nytimes.com/2024/08/26/us/politics/trump-assassination-task-force-visits-site.html
 
