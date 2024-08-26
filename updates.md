@@ -1,3 +1,11 @@
+**Democrats Sue Georgia Election Board, Warning of ‘Chaos’**\
+`The board recently passed new rules aimed at altering the process for certifying elections. The lawsuit says such changes are illegal.`\
+https://nytimes.com/2024/08/26/us/elections/georgia-elections-lawsuit-democrats.html
+
+**Three Los Angeles Museums Team Up to Acquire Art**\
+`The Hammer, LACMA and MOCA are establishing a joint collection, starting off with a gift of 260 works from the collectors Jarl and Pamela Mohn.`\
+https://nytimes.com/2024/08/26/arts/design/hammer-lacma-moca-museums-los-angeles-collection.html
+
 **Assassination Task Force Visits Butler as Right Wing Promises a ‘Parallel’ Inquiry**\
 `As members of the newly formed bipartisan task force investigating the assassination attempt on former President Donald J. Trump began their work, some hard-right Republicans were already warning of a cover-up.`\
 https://nytimes.com/2024/08/26/us/politics/trump-assassination-task-force-visits-site.html
