@@ -1,3 +1,7 @@
+**Will teams like Ole Miss, Kansas State be in or out? College Football Playoff Bubble Watch**\
+`This is Bubble Watch, a new weekly check-in chronicling the ebbs and flows of a season that is about newfound hope.`\
+https://nytimes.com/athletic/5723036/2024/08/26/bubble-watch-college-football-playoff/
+
 **Cubs takeaways: Pete Crow-Armstrong’s turning point, the closer question and more**\
 `Notes include how Anthony Santander could fit into the Cubs' offseason plans and why prospects might find hitting in the majors challenging.`\
 https://nytimes.com/athletic/5722941/2024/08/26/cubs-pete-crow-armstrong-turnaround/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5723433/2024/08/26/nwsl-cba-spirit-trinity-rodman-t
 **Penn State Playoff Prospectus: 12-team CFP arrives at perfect time for James Franklin**\
 `Frequently good under Franklin, Penn State is still trying to make a leap forward. The expansion of the CFP provides a stage to do it.`\
 https://nytimes.com/athletic/5716970/2024/08/26/penn-state-college-football-playoff-projections-preview/
-
-**Trump vs. Harris on the Economy**\
-`A Times economic policy reporter breaks down the candidates’ plans on the issue.`\
-https://nytimes.com/2024/08/26/podcasts/the-daily/trump-harris-economy.html
 
