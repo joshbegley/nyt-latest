@@ -1,3 +1,7 @@
+**Sean Combs Fights Lawsuit by Music Producer Alleging Sexual Misconduct**\
+`The hip-hop mogul’s lawyers are seeking the dismissal of a suit from Rodney Jones Jr., arguing it is baseless and “replete with far-fetched tales of misconduct.”`\
+https://nytimes.com/2024/08/26/arts/music/diddy-sean-combs-rodney-jones-dismiss.html
+
 **Sean McVay on Ernest Jones trade talk, more**\
 `McVay discussed the Rams' potential issues on the O-line and how other injured players are coming along.`\
 https://nytimes.com/athletic/5724721/2024/08/26/rams-ernest-jones-trade-alaric-jackson-suspension/
@@ -30,4 +34,3 @@ https://nytimes.com/2024/08/26/technology/pavel-durov-telegram-founder.html
 `Charlie Patino has joined Deportivo La Coruna on a permanent deal from Arsenal.`\
 https://nytimes.com/athletic/5724652/2024/08/26/charlie-patino-deportivo-arsenal-transfer/
 
-**A blast sends people fleeing from a hospital in central Gaza, and other news.**\
