@@ -6,7 +6,7 @@ https://nytimes.com/2024/08/26/us/politics/trump-documents-appeal-jack-smith.htm
 `Manor Solomon is set to complete his move from Tottenham Hotspur to Leeds United on Tuesday.`\
 https://nytimes.com/athletic/5722188/2024/08/26/manor-solomon-leeds-transfer-tottenham/
 
-**Seahawks LB Uchenna Nwosu to start season on IR: Reports**\
+**Seahawks LB Uchenna Nwosu to miss multiple weeks: Reports**\
 `Nwosu was injured on a play that was ruled a chop block. `\
 https://nytimes.com/athletic/5724796/2024/08/26/seahawks-uchenna-nwosu-ir/
 

@@ -1,3 +1,7 @@
+**Seahawks LB Uchenna Nwosu to miss multiple weeks: Reports**\
+`Nwosu was injured on a play that was ruled a chop block. `\
+https://nytimes.com/athletic/5724796/2024/08/26/seahawks-uchenna-nwosu-ir/
+
 **Prosecutors Appeal Dismissal of Trump Documents Case**\
 `The special counsel, Jack Smith, argued that Judge Aileen Cannon had erred in throwing out charges against Donald Trump of improperly holding national security secrets after leaving office.`\
 https://nytimes.com/2024/08/26/us/politics/trump-documents-appeal-jack-smith.html
