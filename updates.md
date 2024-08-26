@@ -1,3 +1,7 @@
+**Cubs takeaways: Pete Crow-Armstrong’s turning point, the closer question and more**\
+`Notes include how Anthony Santander could fit into the Cubs' offseason plans and why prospects might find hitting in the majors challenging.`\
+https://nytimes.com/athletic/5722941/2024/08/26/cubs-pete-crow-armstrong-turnaround/
+
 **Astros takeaways: An early free-agent target, another pitcher setback and Kyle Tucker's status**\
 `The Astros could be in the market for a slugger they faced over the weekend. Meanwhile, they might need to re-examine their rehab regimens.`\
 https://nytimes.com/athletic/5723124/2024/08/26/astros-free-agent-target-kyle-tucker-timeline/

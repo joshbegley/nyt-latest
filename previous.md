@@ -1,3 +1,7 @@
+**Cubs takeaways: Pete Crow-Armstrong’s turning point, the closer question and more**\
+`Notes include how Anthony Santander could fit into the Cubs' offseason plans and why prospects might find hitting in the majors challenging.`\
+https://nytimes.com/athletic/5722941/2024/08/26/cubs-pete-crow-armstrong-turnaround/
+
 **Astros takeaways: An early free-agent target, another pitcher setback and Kyle Tucker's status**\
 `The Astros could be in the market for a slugger they faced over the weekend. Meanwhile, they might need to re-examine their rehab regimens.`\
 https://nytimes.com/athletic/5723124/2024/08/26/astros-free-agent-target-kyle-tucker-timeline/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5716970/2024/08/26/penn-state-college-football-play
 **Trump vs. Harris on the Economy**\
 `A Times economic policy reporter breaks down the candidates’ plans on the issue.`\
 https://nytimes.com/2024/08/26/podcasts/the-daily/trump-harris-economy.html
-
-**Three Cardinals takeaways: St. Louis posts key series wins despite chaotic week**\
-`Lars Nootbaar's two-run single in the ninth helped spark an improbable rally over the Twins.`\
-https://nytimes.com/athletic/5722818/2024/08/26/cardinals-wild-card-race/
 
