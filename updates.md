@@ -1,3 +1,7 @@
+**Who will start at QB for the Patriots in Week 1?**\
+`Maye seemed to outplay Brissett, who sustained an injury to his arm, in the team’s final preseason game Sunday.`\
+https://nytimes.com/athletic/5723277/2024/08/25/drake-maye-jacoby-brissett-patriots-starting-quarterback/
+
 **Giants takeaways: Robbie Ray adds to rotation injury woes, Heliot Ramos hits 20th homer**\
 `Ray got hurt in his return to Seattle, Ramos continues to impress and the Giants are having fun despite their place in the standings.`\
 https://nytimes.com/athletic/5723262/2024/08/25/sf-giants-robbie-ray-injury-heliot-ramos-20-home-runs/
