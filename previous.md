@@ -1,3 +1,7 @@
+**Tigers' Javier Báez to have season-ending hip surgery**\
+`Báez, hitting only .184 with six home runs this season, missed time earlier in the year with lumbar spine inflammation.`\
+https://nytimes.com/athletic/5725147/2024/08/26/javier-baez-tigers-hip-surgery/
+
 **How Cowboys plan to be smart as they ramp-up CeeDee Lamb in his return**\
 `Lamb is expected back Tuesday at the Cowboys' practice, but how much he does will be determined by the training staff.`\
 https://nytimes.com/athletic/5725097/2024/08/26/ceedee-lamb-contract-mccarthy-comments/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5724817/2024/08/26/why-defending-grand-slam-tennis-
 **Kroger’s Nearly $25 Billion Merger Is Bad for Shoppers, F.T.C. Says**\
 `The Federal Trade Commission, which is trying to block Kroger’s plan to acquire Albertsons, said in court that the merger of grocery giants would also hurt workers’ pay and benefits.`\
 https://nytimes.com/2024/08/26/business/economy/ftc-kroger-albertsons-merger-court.html
-
-**Harris and Trump Squabbled Over Debate Rules**\
-`Also, Russia attacked Ukraine’s energy infrastructure. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2024/08/26/briefing/trump-harris-debate-russia-ukraine-strikes.html
 
