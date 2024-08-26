@@ -1,3 +1,7 @@
+**Real Madrid briefing: Endrick steals the Mbappe show, Guler in the Bellingham role and more**\
+`After last weekend's disappointing 1-1 draw at Mallorca, champions Madrid got their first win of the new La Liga season`\
+https://nytimes.com/athletic/5722905/2024/08/26/real-madrid-mbappe-endrick-bellingham-valladolid-guler/
+
 **Rashid Johnson Will Have Career Survey at Guggenheim in 2025**\
 `A major exhibition by the acclaimed artist will fill Frank Lloyd Wright’s rotunda with plants and artwork. Johnson stepped down from the Guggenheim’s board last year.`\
 https://nytimes.com/2024/08/26/arts/design/rashid-johnson-guggenheim.html
