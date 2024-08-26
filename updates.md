@@ -1,3 +1,7 @@
+**Word of the Day: menial**\
+`This word has appeared in 38 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/26/learning/word-of-the-day-menial.html
+
 **Quotation of the Day: From War’s Carnage Springs a Renaissance of Ukrainian Poetry**\
 `Quotation of the Day for Monday, August 26, 2024.`\
 https://nytimes.com/2024/08/26/pageoneplus/quotation-of-the-day-from-wars-carnage-springs-a-renaissance-of-ukrainian-poetry.html
