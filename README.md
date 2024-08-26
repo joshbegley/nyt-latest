@@ -1,3 +1,7 @@
+**China to Hold Live-Fire Drills Near War-Torn Myanmar**\
+`Beijing likely wants to signal to Myanmar’s junta leaders that they should return to peace talks and de-escalate the conflict, analysts said.`\
+https://nytimes.com/2024/08/26/world/asia/china-drills-myanmar-war.html
+
 **Big 12 tiers: Wide-open race has 6 CFP contenders, including Kansas — but not Colorado**\
 `Deion Sanders and Colorado get the headlines, but the new-look Big 12's long list of CFP contenders doesn't include the Buffaloes.`\
 https://nytimes.com/athletic/5717279/2024/08/26/big-12-football-tiers-rankings-cfp-projections/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5715508/2024/08/26/nfl-qb-rankings-2024-patrick-mah
 **Ten thoughts on Ravens' pending roster decisions as cutdown day looms**\
 `Will Baltimore have a No. 3 RB on its initial 53-man roster, and how many players will be kept solely due to their special teams ability?`\
 https://nytimes.com/athletic/5722646/2024/08/26/ravens-roster-cutdown-decisions/
-
-**Bears camp superlatives: Caleb Williams, Montez Sweat, Austin Booker stand out**\
-`With Bears training camp in the books, which had a memorable summer at Halas Hall and what questions remain?`\
-https://nytimes.com/athletic/5722747/2024/08/26/bears-training-camp-standouts-caleb-williams-montez-sweat/
 
