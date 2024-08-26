@@ -1,3 +1,7 @@
+**Dangerous Heat Returns to Central and Eastern U.S. This Week**\
+`High heat and humidity could make it feel like 115 degrees Fahrenheit in parts of the country this week, forecasters warned.`\
+https://nytimes.com/2024/08/26/us/extreme-heat-advisories.html
+
 **China to Hold Live-Fire Drills Near War-Torn Myanmar**\
 `Beijing likely wants to signal to Myanmar’s junta leaders that they should return to peace talks and de-escalate the conflict, analysts said.`\
 https://nytimes.com/2024/08/26/world/asia/china-drills-myanmar-war.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5722812/2024/08/26/danny-parkins-is-ready-to-start-
 **NFL QB Tiers 2024: Only 2 join Mahomes in Tier 1; Rodgers, Herbert drop out**\
 `Aaron Rodgers missed Tier 1 for the first time in the 11th annual survey of 50 NFL coaches and execs. His successor in Green Bay surged.`\
 https://nytimes.com/athletic/5715508/2024/08/26/nfl-qb-rankings-2024-patrick-mahomes/
-
-**Ten thoughts on Ravens' pending roster decisions as cutdown day looms**\
-`Will Baltimore have a No. 3 RB on its initial 53-man roster, and how many players will be kept solely due to their special teams ability?`\
-https://nytimes.com/athletic/5722646/2024/08/26/ravens-roster-cutdown-decisions/
 
