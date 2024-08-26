@@ -26,8 +26,8 @@ https://nytimes.com/2024/08/26/nyregion/nyc-bus-subway-fare-evasion.html
 `Jared Isaacman is leading three other privately trained astronauts on a SpaceX vehicle for Polaris Dawn, a mission that will include a daring spacewalk.`\
 https://nytimes.com/2024/08/26/science/spacex-polaris-dawn-mission-spacewalk.html
 
-**Real Madrid briefing: Endrick steals the Mbappe show, Guler in the Bellingham role**\
-`After last weekend's disappointing draw at Mallorca, Real Madrid got their first win of the new La Liga season`\
+**Real Madrid briefing: Endrick steals the Mbappe show, Guler in the Bellingham role and more**\
+`After last weekend's disappointing 1-1 draw at Mallorca, champions Madrid got their first win of the new La Liga season`\
 https://nytimes.com/athletic/5722905/2024/08/26/real-madrid-mbappe-endrick-bellingham-valladolid-guler/
 
 **Word of the Day: menial**\
