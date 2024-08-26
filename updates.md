@@ -1,3 +1,7 @@
+**Harris and Trump Squabble Over Debate Rules as ABC Matchup Looms**\
+`The former president derided the network and questioned why he would participate, while the vice president called for each candidate’s microphone to be left on for the entirety of the Sept. 10 event.`\
+https://nytimes.com/2024/08/26/us/politics/trump-harris-debate-abc.html
+
 **Deion Sanders partners with bank to open accounts for players' children**\
 `The children of eight players on Colorado's team will receive $2,121, a nod to Sanders’ signature number. `\
 https://nytimes.com/athletic/5724023/2024/08/26/deion-sanders-colorado-bank-children/
