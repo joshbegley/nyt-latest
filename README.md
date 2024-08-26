@@ -1,3 +1,7 @@
+**Browns' Chubb to miss at least first 4 games: Sources**\
+`In 2023, Jerome Ford filled some of Chubb's void in the Browns' offense, totaling 813 yards on 204 carries as the fill-in starter.`\
+https://nytimes.com/athletic/5723897/2024/08/26/nick-chubb-injury-start-pup-list-browns/
+
 **Learner Tien's 28-match win streak earned a U.S. Open wildcard - now just one win will do**\
 `The 18-year-old talent didn't grow up in awe of tennis. Instead, he picked up a racket, and the sport — and some kismet — did the rest`\
 https://nytimes.com/athletic/5723060/2024/08/26/learner-tien-us-open-tennis-win-streak/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5723654/2024/08/26/raheem-sterling-chelsea-transfer
 **The Pulse: Aaron Rodgers doubters emerge**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5719539/2024/08/26/aaron-rodgers-patrick-mahomes-nfl-qb-survey-the-pulse/
-
-**As Polio Vaccines Arrive in Gaza, Distributing Them Is the Next Challenge**\
-`UNICEF is pushing for a pause in the fighting to allow health workers to get two doses to every child, after Gaza recorded its first polio case in 25 years.`\
-https://nytimes.com/2024/08/26/world/middleeast/gaza-polio-vaccine.html
 
