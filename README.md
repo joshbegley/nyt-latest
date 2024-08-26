@@ -1,3 +1,7 @@
+**Barcelona set to register Olmo**\
+`Dani Olmo’s La Liga’s registration as a Barcelona player is set to be temporarily approved by the competition body, meaning he is now likely to make his debut on Tuesday at Rayo Vallecano.`\
+https://nytimes.com/athletic/5724435/2024/08/26/barcelona-dani-olmo-registered/
+
 **Cowboys, WR Ceedee Lamb agree to multi-year extension: Sources**\
 `Lamb’s deal makes him the NFL’s second highest-paid wide receiver, trailing only Minnesota’s Justin Jefferson.`\
 https://nytimes.com/athletic/5673669/2024/08/26/cowboys-ceedee-lamb-extension/
@@ -30,8 +34,4 @@ https://nytimes.com/paidpost/hills-pet-nutrition/in-desperate-need-of-homes-of-t
 **Captain of Sunken Yacht Under Investigation in Deaths on Ship**\
 `The investigation does not necessarily imply that formal charges will follow against the captain, James Cutfield.`\
 https://nytimes.com/2024/08/26/world/europe/captain-sunken-yacht-bayesian-investigation-deaths.html
-
-**Atletico exploring loan deal for City's Nunes**\
-`Atletico Madrid are exploring the potential loan signing of Manchester City midfielder Matheus Nunes.`\
-https://nytimes.com/athletic/5724493/2024/08/26/matheus-nunes-atletico-madrid-manchester-city/
 
