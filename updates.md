@@ -1,3 +1,7 @@
+**Sterling prioritising Chelsea contract situation before any transfer talks**\
+`Raheem Sterling’s priority is to resolve his contractual situation at Chelsea before holding talks with suitors over a move before the transfer window closes.`\
+https://nytimes.com/athletic/5723654/2024/08/26/raheem-sterling-chelsea-transfer-contract/
+
 **The Pulse: Aaron Rodgers doubters emerge**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5719539/2024/08/26/aaron-rodgers-patrick-mahomes-nfl-qb-survey-the-pulse/
