@@ -1,3 +1,7 @@
+**Evacuations halt the U.N.’s humanitarian missions in Gaza, at least temporarily.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/08/26/world/israel-hamas-gaza-war/evacuations-halt-the-uns-humanitarian-missions-in-gaza-at-least-temporarily
+
 **What’s Dining Out Like For a Vegetarian New Yorker? Share Your Experience.**\
 `The New York Times Food team wants to hear your stories, to help inform our reporting.`\
 https://nytimes.com/2024/08/26/us/vegetarian-restaurants-nyc.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5724589/2024/08/26/federico-chiesa-liverpool-juvent
 **Sean Combs Fights Lawsuit by Music Producer Alleging Sexual Misconduct**\
 `The hip-hop mogul’s lawyers are seeking the dismissal of a suit from Rodney Jones Jr., arguing it is baseless and “replete with far-fetched tales of misconduct.”`\
 https://nytimes.com/2024/08/26/arts/music/diddy-sean-combs-rodney-jones-dismiss.html
-
-**Sean McVay on Ernest Jones trade talk, more**\
-`McVay discussed the Rams' potential issues on the O-line and how other injured players are coming along.`\
-https://nytimes.com/athletic/5724721/2024/08/26/rams-ernest-jones-trade-alaric-jackson-suspension/
 

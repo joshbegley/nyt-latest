@@ -1,3 +1,7 @@
+**What’s Dining Out Like For a Vegetarian New Yorker? Share Your Experience.**\
+`The New York Times Food team wants to hear your stories, to help inform our reporting.`\
+https://nytimes.com/2024/08/26/us/vegetarian-restaurants-nyc.html
+
 **Seahawks LB Uchenna Nwosu to miss multiple weeks: Reports**\
 `Nwosu was injured on a play that was ruled a chop block. `\
 https://nytimes.com/athletic/5724796/2024/08/26/seahawks-uchenna-nwosu-ir/

@@ -1,3 +1,7 @@
+**What’s Dining Out Like For a Vegetarian New Yorker? Share Your Experience.**\
+`The New York Times Food team wants to hear your stories, to help inform our reporting.`\
+https://nytimes.com/2024/08/26/us/vegetarian-restaurants-nyc.html
+
 **Prosecutors Appeal Dismissal of Trump Documents Case**\
 `The special counsel, Jack Smith, argued that Judge Aileen Cannon had erred in throwing out charges against Donald Trump of improperly holding national security secrets after leaving office.`\
 https://nytimes.com/2024/08/26/us/politics/trump-documents-appeal-jack-smith.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/26/arts/music/diddy-sean-combs-rodney-jones-dismiss.
 **Sean McVay on Ernest Jones trade talk, more**\
 `McVay discussed the Rams' potential issues on the O-line and how other injured players are coming along.`\
 https://nytimes.com/athletic/5724721/2024/08/26/rams-ernest-jones-trade-alaric-jackson-suspension/
-
-**The 100 Best Books of the 21st Century: A Printable List**\
-`Print this version to keep track of what you’ve read and what you’d like to read.`\
-https://nytimes.com/interactive/2024/08/26/books/21c-checklist-printable.html
 
