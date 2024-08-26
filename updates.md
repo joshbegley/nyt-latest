@@ -1,3 +1,7 @@
+**Quotation of the Day: From War’s Carnage Springs a Renaissance of Ukrainian Poetry**\
+`Quotation of the Day for Monday, August 26, 2024.`\
+https://nytimes.com/2024/08/26/pageoneplus/quotation-of-the-day-from-wars-carnage-springs-a-renaissance-of-ukrainian-poetry.html
+
 **The Coming War Nobody Is Talking About**\
 `East Africa is on the cusp of conflict.`\
 https://nytimes.com/2024/08/26/opinion/ethiopia-somalia-conflict.html
