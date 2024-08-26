@@ -1,3 +1,7 @@
+**Atletico exploring loan deal for City's Nunes**\
+`Atletico Madrid are exploring the potential loan signing of Manchester City midfielder Matheus Nunes.`\
+https://nytimes.com/athletic/5724493/2024/08/26/matheus-nunes-atletico-madrid-manchester-city/
+
 **Big Ten announces 2024 tiebreakers for league title game**\
 `The Big Ten finalized its tiebreaking procedures to determine which teams participate in its 2024 championship game.`\
 https://nytimes.com/athletic/5724387/2024/08/26/big-ten-football-tiebreaker-rules-2024-championship-game/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5724176/2024/08/26/flames-jon-abbott-sportsnet-tv/
 **NBA asks judge to dismiss lawsuit filed by WBD**\
 `Warner Bros. Discovery, which owns TNT, and has been a NBA rightsholder for 35 years`\
 https://nytimes.com/athletic/5724303/2024/08/26/nba-wbd-lawsuit-tv-deal-matching-rights/
-
-**Telegram Founder’s Arrest Part of Broad Investigation, French Prosecutors Say**\
-`A case was opened last month to investigate child pornography, drug sales, fraud and other criminal activities on the platform. The app’s founder, Pavel Durov, was detained over the weekend near Paris.`\
-https://nytimes.com/2024/08/26/business/telegram-founder-arrest-france.html
 
