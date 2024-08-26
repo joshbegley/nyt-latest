@@ -1,3 +1,7 @@
+**Why California Is Considering Banning Food Dyes in Schools**\
+`Concerns about their risks have been swirling for years. Here’s what the science suggests.`\
+https://nytimes.com/2024/08/26/well/eat/food-dye-california-ban.html
+
 **Another New Leader for Indianapolis Museum Roiled by Racism Outcry**\
 `Le Monte Booker will be the institution’s third leader in four years. The previous president and chief executive left last year after just over a year on the job.`\
 https://nytimes.com/2024/08/26/arts/design/indianapolis-museum-le-monte-booker.html

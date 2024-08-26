@@ -1,3 +1,7 @@
+**Why California Is Considering Banning Food Dyes in Schools**\
+`Concerns about their risks have been swirling for years. Here’s what the science suggests.`\
+https://nytimes.com/2024/08/26/well/eat/food-dye-california-ban.html
+
 **Another New Leader for Indianapolis Museum Roiled by Racism Outcry**\
 `Le Monte Booker will be the institution’s third leader in four years. The previous president and chief executive left last year after just over a year on the job.`\
 https://nytimes.com/2024/08/26/arts/design/indianapolis-museum-le-monte-booker.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5724429/2024/08/26/browns-offensive-linemen-jack-co
 **Alabama High School Football Player Dies After Sustaining Head Injury**\
 `Caden Tellier, a quarterback, suffered a critical brain injury after being tackled in the third quarter of a game on Friday night, school officials in Selma said.`\
 https://nytimes.com/2024/08/26/us/alabama-high-school-football-death.html
-
-**Scoop City: Risers and fallers after preseason**\
-`A look at the best and worst performances of preseason Week 3.`\
-https://nytimes.com/athletic/5724544/2024/08/26/scoop-city-risers-and-fallers-after-preseason/
 
