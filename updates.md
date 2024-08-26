@@ -1,3 +1,11 @@
+**Final Broncos 53-man roster projection after Denver wraps up 3-0 preseason**\
+`Zach Wilson's strong performance in a rout of the Cardinals likely cemented his spot on the Broncos' roster.`\
+https://nytimes.com/athletic/5722742/2024/08/25/broncos-53-man-roster-projection-final/
+
+**Commanders owner Josh Harris sets 'realistic target' for new stadium by 2030**\
+`"Right now we’re focused on things that unify the team around our football team and unify the city around our football team," Harris said.`\
+https://nytimes.com/athletic/5723216/2024/08/25/josh-harris-commanders-stadium-season-comments/
+
 **1 Tourist Is Dead and 2 Are Trapped After Ice Wall Collapses in Iceland**\
 `The tourists were part of a group exploring a glacier in southeastern Iceland when an ice canyon wall collapsed. A fourth tourist was rescued, officials said.`\
 https://nytimes.com/2024/08/25/world/europe/iceland-cave-collapse.html
