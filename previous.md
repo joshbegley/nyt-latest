@@ -1,4 +1,12 @@
-**U.S. Open day 2: What to watch as Alcaraz and Swiatek start their campaigns**\
+**Sid Eudy, Wrestler Known as ‘Sid Vicious’ and ‘Sycho Sid,’ Dies at 63**\
+`The 6-foot-9 wrestling champion faced off against some of the industry’s biggest names, including Shawn Michaels and Hulk Hogan.`\
+https://nytimes.com/2024/08/26/sports/sid-eudy-dead.html
+
+**49ers' Darrell Luter Jr. could be a bridge to the team's future at cornerback**\
+`The 49ers are deep with veteran CBs, but none are signed beyond this season. Enter Luter, who intercepted his college QB on Friday.`\
+https://nytimes.com/athletic/5724895/2024/08/26/49ers-darrell-luter-cornerback-future-interception/
+
+**U.S. Open Tuesday: What to watch at the Billie Jean King Tennis Center on Day 2**\
 `Follow live coverage of the U.`\
 https://nytimes.com/athletic/5724431/2024/08/26/us-open-2024-watch-guide-day-2-sinner-alcaraz-swiatek/
 
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5725092/2024/08/26/danny-jansen-red-sox-blue-jays-b
 **Why the NFLPA vetoed the revised emergency 3rd QB rule**\
 `The rule would have allowed a practice squad QB to serve as the emergency third QB without ever having to sign to the 53-man roster.`\
 https://nytimes.com/athletic/5724530/2024/08/26/nflpa-expansion-emergency-third-quarterback-rule/
-
-**Tigers' Javier Báez to have season-ending hip surgery**\
-`Báez, hitting only .184 with six home runs this season, missed time earlier in the year with lumbar spine inflammation.`\
-https://nytimes.com/athletic/5725147/2024/08/26/javier-baez-tigers-hip-surgery/
-
-**How Cowboys plan to be smart as they ramp-up CeeDee Lamb in his return**\
-`Lamb is expected back Tuesday at the Cowboys practice, but how much he does will be determined by the training staff.`\
-https://nytimes.com/athletic/5725097/2024/08/26/ceedee-lamb-contract-mccarthy-comments/
 

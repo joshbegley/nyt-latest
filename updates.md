@@ -1,3 +1,15 @@
+**Sid Eudy, Wrestler Known as ‘Sid Vicious’ and ‘Sycho Sid,’ Dies at 63**\
+`The 6-foot-9 wrestling champion faced off against some of the industry’s biggest names, including Shawn Michaels and Hulk Hogan.`\
+https://nytimes.com/2024/08/26/sports/sid-eudy-dead.html
+
+**49ers' Darrell Luter Jr. could be a bridge to the team's future at cornerback**\
+`The 49ers are deep with veteran CBs, but none are signed beyond this season. Enter Luter, who intercepted his college QB on Friday.`\
+https://nytimes.com/athletic/5724895/2024/08/26/49ers-darrell-luter-cornerback-future-interception/
+
+**U.S. Open Tuesday: What to watch at the Billie Jean King Tennis Center on Day 2**\
+`Follow live coverage of the U.`\
+https://nytimes.com/athletic/5724431/2024/08/26/us-open-2024-watch-guide-day-2-sinner-alcaraz-swiatek/
+
 **U.S. Open day 2: What to watch as Alcaraz and Swiatek start their campaigns**\
 `Follow live coverage of the U.`\
 https://nytimes.com/athletic/5724431/2024/08/26/us-open-2024-watch-guide-day-2-sinner-alcaraz-swiatek/
