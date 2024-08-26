@@ -1,3 +1,7 @@
+**Burnley agree deal to sign Man United's Hannibal**\
+`Burnley have agreed a deal to sign Hannibal Mejbri from Manchester United on loan with an obligation to buy.`\
+https://nytimes.com/athletic/5723706/2024/08/26/hannibal-mejbri-burnley-man-united-transfers/
+
 **Browns' Chubb to miss at least first 4 games: Sources**\
 `In 2023, Jerome Ford filled some of Chubb's void in the Browns' offense, totaling 813 yards on 204 carries as the fill-in starter.`\
 https://nytimes.com/athletic/5723897/2024/08/26/nick-chubb-injury-start-pup-list-browns/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5723632/2024/08/26/matty-cash-injury-aston-villa/
 **Sterling prioritising Chelsea contract situation before any transfer talks**\
 `Raheem Sterling’s priority is to resolve his contractual situation at Chelsea before holding talks with suitors over a move before the transfer window closes.`\
 https://nytimes.com/athletic/5723654/2024/08/26/raheem-sterling-chelsea-transfer-contract/
-
-**The Pulse: Aaron Rodgers doubters emerge**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5719539/2024/08/26/aaron-rodgers-patrick-mahomes-nfl-qb-survey-the-pulse/
 
