@@ -1,3 +1,7 @@
+**Palace close to agreeing Nketiah deal**\
+`Crystal Palace are close to agreeing a deal to sign Arsenal striker Eddie Nketiah.`\
+https://nytimes.com/athletic/5722738/2024/08/26/eddie-nketiah-crystal-palace-transfer/
+
 **Burnley agree deal to sign Man United's Hannibal**\
 `Burnley have agreed a deal to sign Hannibal Mejbri from Manchester United on loan with an obligation to buy.`\
 https://nytimes.com/athletic/5723706/2024/08/26/hannibal-mejbri-burnley-man-united-transfers/
