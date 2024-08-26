@@ -1,3 +1,7 @@
+**Liverpool considering approach for Juventus' Chiesa**\
+`Liverpool are considering a move for Juventus winger Federico Chiesa.`\
+https://nytimes.com/athletic/5724589/2024/08/26/federico-chiesa-liverpool-juventus-transfer/
+
 **Sean Combs Fights Lawsuit by Music Producer Alleging Sexual Misconduct**\
 `The hip-hop mogul’s lawyers are seeking the dismissal of a suit from Rodney Jones Jr., arguing it is baseless and “replete with far-fetched tales of misconduct.”`\
 https://nytimes.com/2024/08/26/arts/music/diddy-sean-combs-rodney-jones-dismiss.html

@@ -1,3 +1,7 @@
+**Liverpool considering approach for Juventus' Chiesa**\
+`Liverpool are considering a move for Juventus winger Federico Chiesa.`\
+https://nytimes.com/athletic/5724589/2024/08/26/federico-chiesa-liverpool-juventus-transfer/
+
 **Sean Combs Fights Lawsuit by Music Producer Alleging Sexual Misconduct**\
 `The hip-hop mogul’s lawyers are seeking the dismissal of a suit from Rodney Jones Jr., arguing it is baseless and “replete with far-fetched tales of misconduct.”`\
 https://nytimes.com/2024/08/26/arts/music/diddy-sean-combs-rodney-jones-dismiss.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/26/books/review/podcast-warmth-of-other-suns.html
 **How Telegram’s Founder Went From Russia’s Mark Zuckerberg to Wanted Man**\
 `Pavel Durov’s anti-establishment streak helped him create one of the world’s biggest online platforms, which emphasizes free speech. It also put a target on his back.`\
 https://nytimes.com/2024/08/26/technology/pavel-durov-telegram-founder.html
-
-**Arsenal's Patino completes Deportivo move**\
-`Charlie Patino has joined Deportivo La Coruna on a permanent deal from Arsenal.`\
-https://nytimes.com/athletic/5724652/2024/08/26/charlie-patino-deportivo-arsenal-transfer/
 
