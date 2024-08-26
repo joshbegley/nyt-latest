@@ -1,3 +1,7 @@
+**Notre Dame's depth chart release: 4 thoughts on the Irish heading into Week 1**\
+`Notre Dame plans to take one of the least experienced offensive lines in school history into raucous Kyle Field on Saturday night.`\
+https://nytimes.com/athletic/5724935/2024/08/26/notre-dame-depth-chart-texas-am/
+
 **Tuesday Briefing: Russia Launches a Large-Scale Attack**\
 `Plus, badminton instead of sex.`\
 https://nytimes.com/2024/08/26/briefing/ukraine-russia-harris-trump-pakistan.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/26/us/politics/trump-documents-appeal-jack-smith.htm
 **Solomon's Leeds move set to be completed on Tuesday**\
 `Manor Solomon is set to complete his move from Tottenham Hotspur to Leeds United on Tuesday.`\
 https://nytimes.com/athletic/5722188/2024/08/26/manor-solomon-leeds-transfer-tottenham/
-
-**Seahawks LB Uchenna Nwosu to miss multiple weeks: Reports**\
-`Nwosu was injured on a play that was ruled a chop block. `\
-https://nytimes.com/athletic/5724796/2024/08/26/seahawks-uchenna-nwosu-ir/
 
