@@ -1,36 +1,36 @@
-**Gossiping Is Fun. It’s Natural. And These People Won’t Do It.**\
-`Gossip is a universal feature of human culture. It’s also the target of passionate, widespread censure.`\
-https://nytimes.com/2024/08/26/opinion/gossiping-fun-natural-complain.html
+**Phillies takeaways on Bryce Harper, Taijuan Walker and more entering a key week**\
+`The Phillies are 11-11 in August with a .761 OPS that ranks 11th in Major League Baseball. It just hasn't felt like that.`\
+https://nytimes.com/athletic/5723329/2024/08/26/phillies-bryce-harper-taijuan-walker/
 
-**In This Fleet, Funny Novel, a Writer Makes Art and Sells Out in Hollywood**\
-`In “Colored Television,” by Danzy Senna, a struggling writer in a mixed-race family is seduced by the taste of luxury that comes with house-sitting.`\
-https://nytimes.com/2024/08/26/books/review/danzy-senna-colored-television.html
+**No Evidence That Maduro Won, a Top Venezuelan Election Official Says**\
+`In an interview with The New York Times, an electoral council official expressed grave doubts about claims to victory by the authoritarian president, Nicolás Maduro.`\
+https://nytimes.com/2024/08/26/world/americas/maduro-venezuela-election-results.html
 
-**What to Know About Getting a DNR Order**\
-`A “do not resuscitate” order can help you communicate your priorities for medical treatment. Here’s what to consider — and how to increase the chances that your wishes are upheld.`\
-https://nytimes.com/2024/08/26/well/dnr-orders.html
+**Harris Has the Momentum. But Trump Has the Edge on What Matters Most.**\
+`With early voting only weeks away, the race is still a close one.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/harris-trump-election-polls
 
-**The Cyclone Suddenly Goes Silent in Coney Island**\
-`The 97-year-old roller coaster, a New York landmark, was taken out of service temporarily after a crack was detected in its machinery.`\
-https://nytimes.com/2024/08/26/nyregion/cyclone-coney-island-closed.html
+**We’re Still Talking About Kamala Harris**\
+`The convention may be over, but there’s still a lot to discuss.`\
+https://nytimes.com/2024/08/26/opinion/harris-walz-democratic-convention.html
 
-**This Year Is on Track to Be the Deadliest Ever for Humanitarian Workers**\
-`The president of the International Federation of Red Cross and Red Crescent Societies makes an impassioned plea for protecting humanitarian aid workers.`\
-https://nytimes.com/2024/08/26/opinion/humanitarian-deaths-red-cross.html
+**Sabrina Carpenter Is Gloriously Sly and Merciless**\
+`The pop singer and songwriter’s new album, “Short n’ Sweet,” lives up to her ubiquitous summer hits.`\
+https://nytimes.com/2024/08/26/arts/music/sabrina-carpenter-short-n-sweet-review.html
 
-**A 95-Square-Foot Caravan Inspired by Roald Dahl**\
-`The multimedia artist Yto Barrada has turned the tiny wagon in her Moroccan garden into a guesthouse.`\
-https://nytimes.com/2024/08/26/t-magazine/caravan-guesthouse-tangier-morocco.html
+**Museum to Part With Cranach Portrait That Was Sold to Flee the Nazis**\
+`The Allentown Art Museum agreed to sell the work, by Lucas Cranach the Elder and his workshop, to settle a restitution claim by a Jewish family, which will share in the proceeds.`\
+https://nytimes.com/2024/08/26/arts/museum-to-part-with-cranach-portrait-that-was-sold-to-flee-the-nazis.html
 
-**Republican Donors: Do You Know Where Your Money Goes?**\
-`We know the rules on political giving are broken, but so are the rules on spending.`\
-https://nytimes.com/2024/08/26/opinion/republican-donors-money-ttump.html
+**In Praise of Overstuffed Bookshelves**\
+`To walk past the bookcases in our family’s house is to make a different study of the history of time.`\
+https://nytimes.com/2024/08/26/opinion/in-praise-of-overstuffed-bookshelves.html
 
-**A Brooch That Diana Vreeland Kept on Her Night Stand, Reimagined**\
-`A new Tiffany & Co. jewelry collection mines the archive of the designer Jean Schlumberger.`\
-https://nytimes.com/2024/08/26/t-magazine/tiffany-necklace-jean-schlumberger.html
+**Is It Better to Be Over- or Underdressed?**\
+`A reader seeks guidance on striking the right balance between casual and formal attire at events without a defined dress code.`\
+https://nytimes.com/2024/08/26/style/under-over-dressed-events.html
 
-**Love Them or Hate Them, This Couple Reign in Russian Literature**\
-`For Richard Pevear and Larissa Volokhonsky, translating together extended naturally from their relationship as husband and wife. Now, it is their life’s work.`\
-https://nytimes.com/2024/08/26/books/larissa-volokhonsky-richard-pevear.html
+**$825,000 Homes in California**\
+`A midcentury retreat in Idyllwild, a two-bedroom condominium in Playa del Rey and a two-bedroom townhouse in Campbell.`\
+https://nytimes.com/2024/08/26/realestate/825000-dollar-homes-california.html
 
