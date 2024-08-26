@@ -1,3 +1,7 @@
+**Trump Suggests He May Skip Debate With Kamala Harris on ABC**\
+`The former president derided the network in a social media post and questioned why he would participate in the debate, which is scheduled for Sept. 10.`\
+https://nytimes.com/2024/08/26/us/politics/trump-harris-debate-abc.html
+
 **In a First, a Chinese Military Plane Breaches Japan’s Territorial Airspace**\
 `The territorial violation by China is the latest in a series of events amplifying tensions between Beijing and Japan.`\
 https://nytimes.com/2024/08/26/world/asia/china-surveillance-japan-airspace.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/26/world/middleeast/gaza-polio-vaccine.html
 **The final sprint has begun. Here’s the latest on the presidential race.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/08/26/us/harris-trump-election/the-final-sprint-has-begun-heres-the-latest-on-the-presidential-race
-
-**The Athletic FC: Chelsea's 53 players, 6 goals, 1 apology; 'keeper howlers and Superman save**\
-`Today in The Athletic FC: Madueke scores hat-trick on the pitch, apologises off it. Plus: Goalkeeper howlers and Remarkable Raya...`\
-https://nytimes.com/athletic/5721864/2024/08/26/chelseas-53-players-6-goals-1-apology-keeper-howlers-and-superman-save/
 
