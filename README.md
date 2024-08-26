@@ -1,3 +1,19 @@
+**This Week in Mets: Is Francisco Lindor having the best season ever by a Mets position player?**\
+`Beyond his bat, Lindor plays Gold Glove-caliber defense at a premium position, anchoring an otherwise mediocre defensive infield.`\
+https://nytimes.com/athletic/5723321/2024/08/26/mets-mlb-francisco-lindor-best-season/
+
+**Knicks storylines: Julius Randle's fit, Jalen Brunson's role offensively and more**\
+`How different will the Knicks be? Does Mikal Bridges sign an extension?`\
+https://nytimes.com/athletic/5719860/2024/08/26/knicks-storylines-julius-randle-jalen-brunson/
+
+**As MLB veterans head south for money and opportunity, the Mexican League has its moment**\
+`New MLB rules have cut down opportunities for veteran players, and Mexican teams are luring them with boosted pay and improved facilities.`\
+https://nytimes.com/athletic/5722544/2024/08/26/mlb-veterans-mexican-league/
+
+**Fighting Sexual Temptation? Play Badminton, Hong Kong Tells Teenagers.**\
+`Top officials in the Chinese territory have defended new sex education guidance that critics call regressive. Young people are amused.`\
+https://nytimes.com/2024/08/26/world/asia/hong-kong-sex-education-badminton.html
+
 **Are Notre Dame's wide receivers better? Can Irish play better on the road? Mailbag**\
 `Denbrock will have an inexperienced offensive line to work with. How will that affect his first year with the Irish?`\
 https://nytimes.com/athletic/5721201/2024/08/26/notre-dame-football-offense-mike-denbrock/
@@ -17,20 +33,4 @@ https://nytimes.com/2024/08/26/world/americas/maduro-venezuela-election-results.
 **Harris Has the Momentum. But Trump Has the Edge on What Matters Most.**\
 `With early voting only weeks away, the race is still a close one.`\
 https://nytimes.com/live/2024/08/20/opinion/thepoint/harris-trump-election-polls
-
-**We’re Still Talking About Kamala Harris**\
-`The convention may be over, but there’s still a lot to discuss.`\
-https://nytimes.com/2024/08/26/opinion/harris-walz-democratic-convention.html
-
-**Sabrina Carpenter Is Gloriously Sly and Merciless**\
-`The pop singer and songwriter’s new album, “Short n’ Sweet,” lives up to her ubiquitous summer hits.`\
-https://nytimes.com/2024/08/26/arts/music/sabrina-carpenter-short-n-sweet-review.html
-
-**Museum to Part With Cranach Portrait That Was Sold to Flee the Nazis**\
-`The Allentown Art Museum agreed to sell the work, by Lucas Cranach the Elder and his workshop, to settle a restitution claim by a Jewish family, which will share in the proceeds.`\
-https://nytimes.com/2024/08/26/arts/museum-to-part-with-cranach-portrait-that-was-sold-to-flee-the-nazis.html
-
-**In Praise of Overstuffed Bookshelves**\
-`To walk past the bookcases in our family’s house is to make a different study of the history of time.`\
-https://nytimes.com/2024/08/26/opinion/in-praise-of-overstuffed-bookshelves.html
 
