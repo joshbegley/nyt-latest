@@ -1,3 +1,7 @@
+**Post Malone Returns to No. 1 With His Country Debut, ‘F-1 Trillion’**\
+`The shape-shifting pop songwriter’s new album debuts atop the Billboard 200, and Chappell Roan’s “Midwest Princess” holds at No. 2.`\
+https://nytimes.com/2024/08/26/arts/music/post-malone-f-1-trillion-billboard-chart.html
+
 **Wave of Attacks Rattles a Restive Province in Pakistan**\
 `At least 38 people have been killed in several assaults across Baluchistan Province since Sunday in what appears to be part of a campaign by armed separatists in the region.`\
 https://nytimes.com/2024/08/26/world/asia/pakistan-baluchistan-attacks.html
