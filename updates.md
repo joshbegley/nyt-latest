@@ -1,3 +1,7 @@
+**Prosecutors Appeal Dismissal of Trump Documents Case**\
+`The special counsel, Jack Smith, argued that Judge Aileen Cannon had erred in throwing out charges against Donald Trump of improperly holding national security secrets after leaving office.`\
+https://nytimes.com/2024/08/26/us/politics/trump-documents-appeal-jack-smith.html
+
 **Solomon's Leeds move set to be completed on Tuesday**\
 `Manor Solomon is set to complete his move from Tottenham Hotspur to Leeds United on Tuesday.`\
 https://nytimes.com/athletic/5722188/2024/08/26/manor-solomon-leeds-transfer-tottenham/
