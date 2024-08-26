@@ -1,3 +1,11 @@
+**Dodgers takeaways: Gavin Stone's development, Shohei Ohtani's next task and more**\
+`Gavin Stone delivered seven innings of one-run ball in the Dodgers' win, impressing a former teammate now in the opposing dugout.`\
+https://nytimes.com/athletic/5723106/2024/08/26/dodgers-gavin-stone-shohei-ohtani/
+
+**Raiders' preseason star Tyreik McAllister on verge of making 53-man roster**\
+`McAllister came from a Division II school and hadn't played WR in six years. Plus, what could Las Vegas be looking for on the waiver wire?`\
+https://nytimes.com/athletic/5723125/2024/08/26/tyreik-mcallister-raiders-53-man-roster/
+
 **Dangerous Heat Returns to Central and Eastern U.S. This Week**\
 `High heat and humidity could make it feel like 115 degrees Fahrenheit in parts of the country this week, forecasters warned.`\
 https://nytimes.com/2024/08/26/us/extreme-heat-advisories.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5722941/2024/08/26/cubs-pete-crow-armstrong-turnaro
 **Astros takeaways: An early free-agent target, another pitcher setback and Kyle Tucker's status**\
 `The Astros could be in the market for a slugger they faced over the weekend. Meanwhile, they might need to re-examine their rehab regimens.`\
 https://nytimes.com/athletic/5723124/2024/08/26/astros-free-agent-target-kyle-tucker-timeline/
-
-**Greenberg: Danny Parkins is ready to start his new life as a national TV talking head**\
-`The former Chicago sports-talk radio personality is in New York preparing to co-host the first episode of “Breakfast Ball" on FS1.`\
-https://nytimes.com/athletic/5722812/2024/08/26/danny-parkins-is-ready-to-start-his-new-life-as-a-national-tv-talking-head/
-
-**NFL QB Tiers 2024: Only 2 join Mahomes in Tier 1; Rodgers, Herbert drop out**\
-`Aaron Rodgers missed Tier 1 for the first time in the 11th annual survey of 50 NFL coaches and execs. His successor in Green Bay surged.`\
-https://nytimes.com/athletic/5715508/2024/08/26/nfl-qb-rankings-2024-patrick-mahomes/
 
