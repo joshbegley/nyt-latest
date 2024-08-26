@@ -1,3 +1,7 @@
+**Palace close to agreeing Nketiah deal**\
+`Crystal Palace are close to agreeing a deal to sign Arsenal striker Eddie Nketiah.`\
+https://nytimes.com/athletic/5722738/2024/08/26/eddie-nketiah-crystal-palace-transfer/
+
 **Burnley agree deal to sign Man United's Hannibal**\
 `Burnley have agreed a deal to sign Hannibal Mejbri from Manchester United on loan with an obligation to buy.`\
 https://nytimes.com/athletic/5723706/2024/08/26/hannibal-mejbri-burnley-man-united-transfers/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5723684/2024/08/26/burnley-transfers-josh-brownhill
 **Aston Villa's Cash set to miss a month with hamstring injury**\
 `Aston Villa defender Matty Cash is set to miss a month of action with a hamstring injury.`\
 https://nytimes.com/athletic/5723632/2024/08/26/matty-cash-injury-aston-villa/
-
-**Sterling prioritising Chelsea contract situation before any transfer talks**\
-`Raheem Sterling’s priority is to resolve his contractual situation at Chelsea before holding talks with suitors over a move before the transfer window closes.`\
-https://nytimes.com/athletic/5723654/2024/08/26/raheem-sterling-chelsea-transfer-contract/
 
