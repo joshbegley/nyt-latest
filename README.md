@@ -1,3 +1,11 @@
+**Are Notre Dame's wide receivers better? Can Irish play better on the road? Mailbag**\
+`Denbrock will have an inexperienced offensive line to work with. How will that affect his first year with the Irish?`\
+https://nytimes.com/athletic/5721201/2024/08/26/notre-dame-football-offense-mike-denbrock/
+
+**How I'm predicting Ohio State's season: Will it end in a national championship?**\
+`Ryan Day and Ohio State face immense pressure to win in 2024. Here's how I see the season playing out, week by week.`\
+https://nytimes.com/athletic/5719729/2024/08/26/ohio-state-football-predictions-2024-schedule/
+
 **Phillies takeaways on Bryce Harper, Taijuan Walker and more entering a key week**\
 `The Phillies are 11-11 in August with a .761 OPS that ranks 11th in Major League Baseball. It just hasn't felt like that.`\
 https://nytimes.com/athletic/5723329/2024/08/26/phillies-bryce-harper-taijuan-walker/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/26/arts/museum-to-part-with-cranach-portrait-that-wa
 **In Praise of Overstuffed Bookshelves**\
 `To walk past the bookcases in our family’s house is to make a different study of the history of time.`\
 https://nytimes.com/2024/08/26/opinion/in-praise-of-overstuffed-bookshelves.html
-
-**Is It Better to Be Over- or Underdressed?**\
-`A reader seeks guidance on striking the right balance between casual and formal attire at events without a defined dress code.`\
-https://nytimes.com/2024/08/26/style/under-over-dressed-events.html
-
-**$825,000 Homes in California**\
-`A midcentury retreat in Idyllwild, a two-bedroom condominium in Playa del Rey and a two-bedroom townhouse in Campbell.`\
-https://nytimes.com/2024/08/26/realestate/825000-dollar-homes-california.html
 
