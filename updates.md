@@ -1,3 +1,7 @@
+**The Windup: Will Aaron Judge ever hit 73?**\
+`The Windup is The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/5724341/2024/08/26/aaron-judge-home-runs-the-windup/
+
 **Uber Fined $324 Million by Dutch Watchdog Over Driver Data Protection**\
 `The authorities in the Netherlands said the ride-hailing company had violated European data protection laws when it sent sensitive information to the United States.`\
 https://nytimes.com/2024/08/26/business/uber-netherlands-fine-driver-data.html
