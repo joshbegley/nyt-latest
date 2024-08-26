@@ -1,3 +1,15 @@
+**Is Your Plastic Bottle Really Made From Recycled Plastic?**\
+`A green accounting method called “mass balance” certifies that something was manufactured with recycled plastic — just not necessarily much of the bottle making the claim.`\
+https://nytimes.com/2024/08/26/business/energy-environment/tritan-renew-plastic-bottles-recycled.html
+
+**Sven-Goran Eriksson obituary: Calm, dignified, positive but never a pushover**\
+`The former England, Lazio, Benfica and Sampdoria manager, who has died at the age of 76, enjoyed a nomadic career around the globe`\
+https://nytimes.com/athletic/5722811/2024/08/26/sven-goran-eriksson-england/
+
+**Trump and Harris Embody a Stark Partisan Divide on Fighting Poverty**\
+`The two presidential candidates can both point to records of pushing poverty rates down, but their approaches could hardly be more different.`\
+https://nytimes.com/2024/08/26/us/politics/trump-harris-poverty-policies.html
+
 **Canada Will Impose 100% Tariffs on Chinese Electric Vehicles**\
 `The new tariffs announced by Prime Minister Justin Trudeau will match levies imposed by President Biden and could further strain relations between Canada and China.`\
 https://nytimes.com/2024/08/26/business/canada-ev-tariffs-china.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5723752/2024/08/26/anthony-edwards-magic-johnson-la
 **The 'skill' beef: Magic, Isiah fire back at Edwards**\
 `“I don't never respond to a guy that's never won a championship,” Johnson said. “There's not nothing to really say."`\
 https://nytimes.com/athletic/5724027/2024/08/26/anthony-edwards-magic-johnson-beef-explainer/
-
-**Post Malone Returns to No. 1 With His Country Debut, ‘F-1 Trillion’**\
-`The shape-shifting pop songwriter’s new album debuts atop the Billboard 200, and Chappell Roan’s “Midwest Princess” holds at No. 2.`\
-https://nytimes.com/2024/08/26/arts/music/post-malone-f-1-trillion-billboard-chart.html
-
-**Wave of Attacks Rattles a Restive Province in Pakistan**\
-`At least 38 people have been killed in several assaults across Baluchistan Province since Sunday in what appears to be part of a campaign by armed separatists in the region.`\
-https://nytimes.com/2024/08/26/world/asia/pakistan-baluchistan-attacks.html
-
-**Can You Guess These Novels That Originally Got Bad Times Reviews?**\
-`Some works that went on to become popular literary classics first got mixed or bad reviews. Try this short quiz to see if you recognize the novels as described by their original reviewers in The Times.`\
-https://nytimes.com/interactive/2024/08/26/books/booksupdate/panned-books-quiz.html
 
