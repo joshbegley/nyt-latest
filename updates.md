@@ -1,3 +1,11 @@
+**Can You Guess These Novels That Originally Got Bad Times Reviews?**\
+`Some works that went on to become popular literary classics first got mixed or bad reviews. Try this short quiz to see if you recognize the novels as described by their original reviewers in The Times.`\
+https://nytimes.com/interactive/2024/08/26/books/booksupdate/panned-books-quiz.html
+
+**Choose Your Own Meatball Adventure**\
+`Play with the protein, spices, herbs and aromatics in this meatball recipe to get the exact combination you want for tonight’s dinner.`\
+https://nytimes.com/2024/08/26/dining/meatballs.html
+
 **How did college football’s two-minute warning work in Week 0?**\
 `The two-minute warning did not add any extra TV timeouts as fans feared. Week 0 just had some unusual games. `\
 https://nytimes.com/athletic/5723737/2024/08/26/college-football-two-minute-warning-commercials/

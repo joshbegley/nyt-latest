@@ -1,3 +1,11 @@
+**Can You Guess These Novels That Originally Got Bad Times Reviews?**\
+`Some works that went on to become popular literary classics first got mixed or bad reviews. Try this short quiz to see if you recognize the novels as described by their original reviewers in The Times.`\
+https://nytimes.com/interactive/2024/08/26/books/booksupdate/panned-books-quiz.html
+
+**Choose Your Own Meatball Adventure**\
+`Play with the protein, spices, herbs and aromatics in this meatball recipe to get the exact combination you want for tonight’s dinner.`\
+https://nytimes.com/2024/08/26/dining/meatballs.html
+
 **How did college football’s two-minute warning work in Week 0?**\
 `The two-minute warning did not add any extra TV timeouts as fans feared. Week 0 just had some unusual games. `\
 https://nytimes.com/athletic/5723737/2024/08/26/college-football-two-minute-warning-commercials/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5723706/2024/08/26/hannibal-mejbri-burnley-man-unit
 **Browns' Chubb to miss at least first 4 games: Sources**\
 `In 2023, Jerome Ford filled some of Chubb's void in the Browns' offense, totaling 813 yards on 204 carries as the fill-in starter.`\
 https://nytimes.com/athletic/5723897/2024/08/26/nick-chubb-injury-start-pup-list-browns/
-
-**Learner Tien's 28-match win streak earned a U.S. Open wildcard - now just one win will do**\
-`The 18-year-old talent didn't grow up in awe of tennis. Instead, he picked up a racket, and the sport - and some kismet - did the rest`\
-https://nytimes.com/athletic/5723060/2024/08/26/learner-tien-us-open-tennis-win-streak/
-
-**Harris and Trump Squabble Over Debate Rules as ABC Matchup Looms**\
-`The former president derided the network and questioned why he would participate, while the vice president called for each candidate’s microphone to be left on for the entirety of the Sept. 10 event.`\
-https://nytimes.com/2024/08/26/us/politics/trump-harris-debate-abc.html
 
