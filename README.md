@@ -1,3 +1,7 @@
+**Chiefs to sign WR JuJu Smith-Schuster: Source**\
+`Smith-Schuster was released by the Patriots earlier this month after spending one season in New England.`\
+https://nytimes.com/athletic/5724019/2024/08/26/chiefs-signing-juju-smith-schuster/
+
 **Palace close to agreeing Nketiah deal**\
 `Crystal Palace are close to agreeing a deal to sign Arsenal striker Eddie Nketiah.`\
 https://nytimes.com/athletic/5722738/2024/08/26/eddie-nketiah-crystal-palace-transfer/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5723028/2024/08/26/danny-jansen-mlb-history-same-te
 **Trabzonspor make offer for Burnley captain Brownhill**\
 `Trabzonspor have made a bid of €4m for Burnley captain Josh Brownhill.`\
 https://nytimes.com/athletic/5723684/2024/08/26/burnley-transfers-josh-brownhill-trabzonspor/
-
-**Aston Villa's Cash set to miss a month with hamstring injury**\
-`Aston Villa defender Matty Cash is set to miss a month of action with a hamstring injury.`\
-https://nytimes.com/athletic/5723632/2024/08/26/matty-cash-injury-aston-villa/
 
