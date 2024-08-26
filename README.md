@@ -1,3 +1,7 @@
+**Padres takeaways: Jackson Merrill delivers another big swing in ROY race**\
+`It looks like Merrill has an edge over Paul Skenes in the Rookie of the Year race, plus Joe Musgrove had another encouraging performance.`\
+https://nytimes.com/athletic/5723388/2024/08/26/padres-jackson-merrill-rookie-of-the-year-race/
+
 **Dodgers takeaways: Gavin Stone's development, Shohei Ohtani's next task and more**\
 `Gavin Stone delivered seven innings of one-run ball in the Dodgers' win, impressing a former teammate now in the opposing dugout.`\
 https://nytimes.com/athletic/5723106/2024/08/26/dodgers-gavin-stone-shohei-ohtani/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5723036/2024/08/26/bubble-watch-college-football-pl
 **Cubs takeaways: Pete Crow-Armstrong’s turning point, the closer question and more**\
 `Notes include how Anthony Santander could fit into the Cubs' offseason plans and why prospects might find hitting in the majors challenging.`\
 https://nytimes.com/athletic/5722941/2024/08/26/cubs-pete-crow-armstrong-turnaround/
-
-**Astros takeaways: An early free-agent target, another pitcher setback and Kyle Tucker's status**\
-`The Astros could be in the market for a slugger they faced over the weekend. Meanwhile, they might need to re-examine their rehab regimens.`\
-https://nytimes.com/athletic/5723124/2024/08/26/astros-free-agent-target-kyle-tucker-timeline/
 
