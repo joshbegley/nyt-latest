@@ -1,3 +1,7 @@
+**Who will start at QB for the Patriots in Week 1?**\
+`Maye seemed to outplay Brissett, who sustained an injury to his arm, in the team’s final preseason game Sunday.`\
+https://nytimes.com/athletic/5723277/2024/08/25/drake-maye-jacoby-brissett-patriots-starting-quarterback/
+
 **Giants takeaways: Robbie Ray adds to rotation injury woes, Heliot Ramos hits 20th homer**\
 `Ray got hurt in his return to Seattle, Ramos continues to impress and the Giants are having fun despite their place in the standings.`\
 https://nytimes.com/athletic/5723262/2024/08/25/sf-giants-robbie-ray-injury-heliot-ramos-20-home-runs/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5723121/2024/08/25/yankees-aaron-judge-barry-bonds-
 **Keegan Bradley survives Adam Scott to win BMW Championship by 1 shot**\
 `The FedEx Cup playoff event win is Bradley’s seventh career PGA Tour victory.`\
 https://nytimes.com/athletic/5723016/2024/08/25/keegan-bradley-wins-bmw-championship/
-
-**Red Sox takeaways: Home woes continue in sweep; Rafael Devers hits 200th homer**\
-`The Red Sox have the worst home record of any MLB team with an overall record better than .500 after being swept at Fenway by Arizona.`\
-https://nytimes.com/athletic/5722909/2024/08/25/red-sox-takeaways-home-losses-rafael-dever-200-homer/
 
