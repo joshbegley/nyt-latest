@@ -1,3 +1,7 @@
+**Astros takeaways: An early free-agent target, another pitcher setback and Kyle Tucker's status**\
+`The Astros could be in the market for a slugger they faced over the weekend. Meanwhile, they might need to re-examine their rehab regimens.`\
+https://nytimes.com/athletic/5723124/2024/08/26/astros-free-agent-target-kyle-tucker-timeline/
+
 **Greenberg: Danny Parkins is ready to start his new life as a national TV talking head**\
 `The former Chicago sports-talk radio personality is in New York preparing to co-host the first episode of “Breakfast Ball" on FS1.`\
 https://nytimes.com/athletic/5722812/2024/08/26/danny-parkins-is-ready-to-start-his-new-life-as-a-national-tv-talking-head/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/26/podcasts/the-daily/trump-harris-economy.html
 **Three Cardinals takeaways: St. Louis posts key series wins despite chaotic week**\
 `Lars Nootbaar's two-run single in the ninth helped spark an improbable rally over the Twins.`\
 https://nytimes.com/athletic/5722818/2024/08/26/cardinals-wild-card-race/
-
-**Wordle Review No. 1,165**\
-`Scroll down for hints and conversation about the puzzle for August 27, 2024.`\
-https://nytimes.com/2024/08/26/crosswords/wordle-review-1165.html
 
