@@ -1,3 +1,7 @@
+**NBA asks judge to dismiss lawsuit filed by WBD**\
+`Warner Bros. Discovery, which owns TNT, and has been a NBA rightsholder for 35 years`\
+https://nytimes.com/athletic/5724303/2024/08/26/nba-wbd-lawsuit-tv-deal-matching-rights/
+
 **Telegram Founder’s Arrest Part of Broad Investigation, French Prosecutors Say**\
 `A case was opened last month to investigate child pornography, drug sales, fraud and other criminal activities on the platform. The app’s founder, Pavel Durov, was detained over the weekend near Paris.`\
 https://nytimes.com/2024/08/26/business/telegram-founder-arrest-france.html
