@@ -1,3 +1,7 @@
+**Burnley agree deal to sign Man United's Hannibal**\
+`Burnley have agreed a deal to sign Hannibal Mejbri from Manchester United on loan with an obligation to buy.`\
+https://nytimes.com/athletic/5723706/2024/08/26/hannibal-mejbri-burnley-man-united-transfers/
+
 **Browns' Chubb to miss at least first 4 games: Sources**\
 `In 2023, Jerome Ford filled some of Chubb's void in the Browns' offense, totaling 813 yards on 204 carries as the fill-in starter.`\
 https://nytimes.com/athletic/5723897/2024/08/26/nick-chubb-injury-start-pup-list-browns/
