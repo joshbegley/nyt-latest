@@ -1,3 +1,11 @@
+**Russia Strikes Ukrainian Cities With Missiles and Drones**\
+`Cities across Ukraine were hit in a widespread attack that also targeted energy infrastructure, Ukrainian officials said.`\
+https://nytimes.com/video/world/europe/100000009657350/russia-ukraine-strikes.html
+
+**Flames hire Jon Abbott as new play-by-play voice**\
+`Abbott has 24 years of broadcasting experience and was most recently with the Ottawa Senators doing play-by-play for TSN.`\
+https://nytimes.com/athletic/5724176/2024/08/26/flames-jon-abbott-sportsnet-tv/
+
 **NBA asks judge to dismiss lawsuit filed by WBD**\
 `Warner Bros. Discovery, which owns TNT, and has been a NBA rightsholder for 35 years`\
 https://nytimes.com/athletic/5724303/2024/08/26/nba-wbd-lawsuit-tv-deal-matching-rights/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5723922/2024/08/26/college-football-week-1-best-bet
 **Will Bengals deal at cutdown day? What team's history shows about trades, waivers**\
 `Is there another Billy Price-like heist to be had and could Samaje Perine make a return to Cincinnati?`\
 https://nytimes.com/athletic/5724168/2024/08/26/bengals-trades-waivers-cutdown-day/
-
-**USMNT Player Tracker: McKennie reward, Pulisic parla Italiano and Estrela's Sporting chance**\
-`The high-profile members of the USMNT's European contingent endured a sense of deja vu as they embarked upon new domestic club campaigns`\
-https://nytimes.com/athletic/5723670/2024/08/26/usmnt-mckennie-pulisic-estrela-tracker/
-
-**NWSLPA announces initial list of eligible free agents**\
-`“On Women’s Equality Day, we celebrate the pioneers who fought tirelessly to win the right to vote,” Tori Huster, NWSLPA president, said.`\
-https://nytimes.com/athletic/5724189/2024/08/26/nwsl-free-agents-players-list/
 

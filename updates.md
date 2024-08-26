@@ -1,3 +1,11 @@
+**Russia Strikes Ukrainian Cities With Missiles and Drones**\
+`Cities across Ukraine were hit in a widespread attack that also targeted energy infrastructure, Ukrainian officials said.`\
+https://nytimes.com/video/world/europe/100000009657350/russia-ukraine-strikes.html
+
+**Flames hire Jon Abbott as new play-by-play voice**\
+`Abbott has 24 years of broadcasting experience and was most recently with the Ottawa Senators doing play-by-play for TSN.`\
+https://nytimes.com/athletic/5724176/2024/08/26/flames-jon-abbott-sportsnet-tv/
+
 **NBA asks judge to dismiss lawsuit filed by WBD**\
 `Warner Bros. Discovery, which owns TNT, and has been a NBA rightsholder for 35 years`\
 https://nytimes.com/athletic/5724303/2024/08/26/nba-wbd-lawsuit-tv-deal-matching-rights/
