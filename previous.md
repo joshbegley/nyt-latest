@@ -1,3 +1,11 @@
+**For His Second Trip to Space, Billionaire Has Grander, Riskier Aspirations**\
+`Jared Isaacman is leading three other privately trained astronauts on a SpaceX vehicle for Polaris Dawn, a mission that will include a daring spacewalk.`\
+https://nytimes.com/2024/08/26/science/spacex-polaris-dawn-mission-spacewalk.html
+
+**Real Madrid briefing: Endrick steals the Mbappe show, Guler in the Bellingham role**\
+`After last weekend's disappointing draw at Mallorca, Real Madrid got their first win of the new La Liga season`\
+https://nytimes.com/athletic/5722905/2024/08/26/real-madrid-mbappe-endrick-bellingham-valladolid-guler/
+
 **Word of the Day: menial**\
 `This word has appeared in 38 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/26/learning/word-of-the-day-menial.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5722505/2024/08/26/newcastle-away-eddie-howe-transf
 **Chelsea need to be creative in final week of transfer window - is a fire sale inevitable?**\
 `Chelsea need departures - but conditions and leverage are not favourable. Most importantly, time is not their friend`\
 https://nytimes.com/athletic/5720242/2024/08/26/chelsea-fire-sale-transfer-window/
-
-**Everton's start is breeding anxiety, apathy and anger**\
-`Everton have made their worst start to a Premier League campaign after two games - what's going wrong and how can they fix it?`\
-https://nytimes.com/athletic/5721310/2024/08/26/everton-start-sean-dyche/
-
-**Aston Villa's "chess" games with Arsenal followed the trend of congested central areas and finishing being the difference**\
-`Unai Emery took a lot of heart from Villa's display in the defeat to Arsenal - his battles with Mikel Arteta are decided by fine margins`\
-https://nytimes.com/athletic/5721011/2024/08/26/aston-villa-and-arsenals-matches-have-become-a-meeting-of-chess-grandmasters/
 

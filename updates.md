@@ -1,3 +1,11 @@
+**For His Second Trip to Space, Billionaire Has Grander, Riskier Aspirations**\
+`Jared Isaacman is leading three other privately trained astronauts on a SpaceX vehicle for Polaris Dawn, a mission that will include a daring spacewalk.`\
+https://nytimes.com/2024/08/26/science/spacex-polaris-dawn-mission-spacewalk.html
+
+**Real Madrid briefing: Endrick steals the Mbappe show, Guler in the Bellingham role**\
+`After last weekend's disappointing draw at Mallorca, Real Madrid got their first win of the new La Liga season`\
+https://nytimes.com/athletic/5722905/2024/08/26/real-madrid-mbappe-endrick-bellingham-valladolid-guler/
+
 **Word of the Day: menial**\
 `This word has appeared in 38 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/26/learning/word-of-the-day-menial.html
