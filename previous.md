@@ -1,3 +1,19 @@
+**Cowboys, WR Ceedee Lamb agree to multi-year extension: Sources**\
+`Lamb’s deal makes him the NFL’s second highest-paid wide receiver, trailing only Minnesota’s Justin Jefferson.`\
+https://nytimes.com/athletic/5673669/2024/08/26/cowboys-ceedee-lamb-extension/
+
+**NASCAR finalizing deal to add Cup Series race in Mexico City**\
+`NASCAR is set to take its top series outside the U.S. for the first time since 1958, with a 2025 race headed to Mexico City, sources say.`\
+https://nytimes.com/athletic/5724286/2024/08/26/nascar-mexico-city-cup-series-race-2025/
+
+**Lowetide: Will the Oilers entrust Stuart Skinner with another playoff run?**\
+`Cap room accrued by the trade deadline might allow Oilers management to at least contemplate an upgrade in net.`\
+https://nytimes.com/athletic/5722238/2024/08/26/oilers-stuart-skinner-playoffs-stats/
+
+**Browns will have Jack Conklin and Jedrick Wills on active roster, but uncertainty remains**\
+`Plus, could Cleveland look to upgrade its running back and tight end depth following cutdown day? `\
+https://nytimes.com/athletic/5724429/2024/08/26/browns-offensive-linemen-jack-conklin-jedrick-wills/
+
 **Alabama High School Football Player Dies After Sustaining Head Injury**\
 `Caden Tellier, a quarterback, suffered a critical brain injury after being tackled in the third quarter of a game on Friday night, school officials in Selma said.`\
 https://nytimes.com/2024/08/26/us/alabama-high-school-football-death.html
@@ -18,20 +34,4 @@ https://nytimes.com/2024/08/26/world/europe/captain-sunken-yacht-bayesian-invest
 **Atletico exploring loan deal for City's Nunes**\
 `Atletico Madrid are exploring the potential loan signing of Manchester City midfielder Matheus Nunes.`\
 https://nytimes.com/athletic/5724493/2024/08/26/matheus-nunes-atletico-madrid-manchester-city/
-
-**Big Ten announces 2024 tiebreakers for league title game**\
-`The Big Ten finalized its tiebreaking procedures to determine which teams participate in its 2024 championship game.`\
-https://nytimes.com/athletic/5724387/2024/08/26/big-ten-football-tiebreaker-rules-2024-championship-game/
-
-**Marcelo Mayer likely out for the season with lumbar strain**\
-`Mayer left a game on July 30 with lower back tightness that was initially expected to be a minor injury but his recovery stalled.`\
-https://nytimes.com/athletic/5724443/2024/08/26/red-sox-marcelo-mayer-lumbar-strain/
-
-**Hungry for Clean Energy, Facebook Looks to a New Type of Geothermal**\
-`As electricity demand from data centers soars, Meta and Google are looking at a novel solution: harnessing clean heat far below Earth’s surface.`\
-https://nytimes.com/2024/08/26/climate/meta-facebook-geothermal-fracking-energy.html
-
-**Georgia will be without Roderick Robinson against Clemson**\
-`Robinson, who is Georgia's leading returning rusher, had toe surgery and will be out for several weeks, if not months.`\
-https://nytimes.com/athletic/5723886/2024/08/26/georgia-football-roderick-robinson-injury/
 
