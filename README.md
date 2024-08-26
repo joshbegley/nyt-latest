@@ -1,3 +1,7 @@
+**NBA asks judge to dismiss lawsuit filed by WBD**\
+`Warner Bros. Discovery, which owns TNT, and has been a NBA rightsholder for 35 years`\
+https://nytimes.com/athletic/5724303/2024/08/26/nba-wbd-lawsuit-tv-deal-matching-rights/
+
 **Telegram Founder’s Arrest Part of Broad Investigation, French Prosecutors Say**\
 `A case was opened last month to investigate child pornography, drug sales, fraud and other criminal activities on the platform. The app’s founder, Pavel Durov, was detained over the weekend near Paris.`\
 https://nytimes.com/2024/08/26/business/telegram-founder-arrest-france.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5723670/2024/08/26/usmnt-mckennie-pulisic-estrela-t
 **NWSLPA announces initial list of eligible free agents**\
 `“On Women’s Equality Day, we celebrate the pioneers who fought tirelessly to win the right to vote,” Tori Huster, NWSLPA president, said.`\
 https://nytimes.com/athletic/5724189/2024/08/26/nwsl-free-agents-players-list/
-
-**Do rookie receivers produce better late in the season, peaking during the fantasy football playoffs?**\
-`Michael Salfino runs the numbers to test the narrative that first-year receivers tend to get better as their rookie seasons progress.`\
-https://nytimes.com/athletic/5724230/2024/08/26/fantasy-football-narrative-rookie-wr-better-late/
 
