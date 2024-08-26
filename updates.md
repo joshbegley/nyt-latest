@@ -1,3 +1,7 @@
+**Dam Collapse Devastates Region in Eastern Sudan**\
+`The Arba’at dam fell apart after days of heavy rain, killing villagers and flooding communities.`\
+https://nytimes.com/2024/08/26/world/africa/sudan-arbaat-dam-collapse.html
+
 **Wisconsin Week 1 depth chart: Injury sparks more D-line questions**\
 `Fickell confirmed Monday that starting defensive lineman James Thompson Jr. had surgery last week and could miss the entire season.`\
 https://nytimes.com/athletic/5724738/2024/08/26/wisconsin-college-football-depth-chart-week-1/
