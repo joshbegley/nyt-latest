@@ -1,3 +1,7 @@
+**Barcelona set to register Olmo**\
+`Dani Olmo’s La Liga’s registration as a Barcelona player is set to be temporarily approved by the competition body, meaning he is now likely to make his debut on Tuesday at Rayo Vallecano.`\
+https://nytimes.com/athletic/5724435/2024/08/26/barcelona-dani-olmo-registered/
+
 **Cowboys, WR Ceedee Lamb agree to multi-year extension: Sources**\
 `Lamb’s deal makes him the NFL’s second highest-paid wide receiver, trailing only Minnesota’s Justin Jefferson.`\
 https://nytimes.com/athletic/5673669/2024/08/26/cowboys-ceedee-lamb-extension/
