@@ -1,3 +1,7 @@
+**Mets split with Padres: Three takeaways after blowing a late lead**\
+`Vientos hit a single and a home run to boost his team-leading OPS but the Mets unraveled over the final two innings.`\
+https://nytimes.com/athletic/5723330/2024/08/25/mets-jose-butto-mark-vientos/
+
 **Latino Civil Rights Group Demands Inquiry Into Texas Voter Fraud Raids**\
 `The organization said many of those targeted by the raids, conducted by a unit created by the Texas attorney general, Ken Paxton, were Democratic leaders and election volunteers.`\
 https://nytimes.com/2024/08/25/us/texas-latinos-democrats-raids-paxton.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/25/us/colorado-gop-chair.html
 **Greenberg: White Sox lose 100th game in familiar, 'beating a dead horse' fashion**\
 `You can often win in life and baseball just by showing up, but the 2024 White Sox make losing look easy. Sunday it was 9-4 to the Tigers.`\
 https://nytimes.com/athletic/5723015/2024/08/25/white-sox-lose-100th-game-greenberg/
-
-**Could Yankees’ Aaron Judge hit 73 home runs someday? Teammates weigh in**\
-`“If there’s any guy in the league who can” surpass Barry Bonds, right fielder Juan Soto said, “it’s going to be (Judge).”`\
-https://nytimes.com/athletic/5723121/2024/08/25/yankees-aaron-judge-barry-bonds-home-run-record/
 

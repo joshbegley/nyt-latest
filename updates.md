@@ -1,3 +1,7 @@
+**Mets split with Padres: Three takeaways after blowing a late lead**\
+`Vientos hit a single and a home run to boost his team-leading OPS but the Mets unraveled over the final two innings.`\
+https://nytimes.com/athletic/5723330/2024/08/25/mets-jose-butto-mark-vientos/
+
 **Latino Civil Rights Group Demands Inquiry Into Texas Voter Fraud Raids**\
 `The organization said many of those targeted by the raids, conducted by a unit created by the Texas attorney general, Ken Paxton, were Democratic leaders and election volunteers.`\
 https://nytimes.com/2024/08/25/us/texas-latinos-democrats-raids-paxton.html
