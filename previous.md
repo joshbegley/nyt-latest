@@ -1,3 +1,7 @@
+**Learner Tien's 28-match win streak earned a U.S. Open wildcard - now just one win will do**\
+`The 18-year-old talent didn't grow up in awe of tennis. Instead, he picked up a racket, and the sport — and some kismet — did the rest`\
+https://nytimes.com/athletic/5723060/2024/08/26/learner-tien-us-open-tennis-win-streak/
+
 **Trump Suggests He May Skip Debate With Kamala Harris on ABC**\
 `The former president derided the network in a social media post and questioned why he would participate in the debate, which is scheduled for Sept. 10.`\
 https://nytimes.com/2024/08/26/us/politics/trump-harris-debate-abc.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5719539/2024/08/26/aaron-rodgers-patrick-mahomes-nf
 **As Polio Vaccines Arrive in Gaza, Distributing Them Is the Next Challenge**\
 `UNICEF is pushing for a pause in the fighting to allow health workers to get two doses to every child, after Gaza recorded its first polio case in 25 years.`\
 https://nytimes.com/2024/08/26/world/middleeast/gaza-polio-vaccine.html
-
-**The final sprint has begun. Here’s the latest on the presidential race.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/08/26/us/harris-trump-election/the-final-sprint-has-begun-heres-the-latest-on-the-presidential-race
 
