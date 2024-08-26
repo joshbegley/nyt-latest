@@ -1,3 +1,11 @@
+**Big 12 tiers: Wide-open race has 6 CFP contenders, including Kansas — but not Colorado**\
+`Deion Sanders and Colorado get the headlines, but the new-look Big 12's long list of CFP contenders doesn't include the Buffaloes.`\
+https://nytimes.com/athletic/5717279/2024/08/26/big-12-football-tiers-rankings-cfp-projections/
+
+**The Benefits of Shorter Campaigns**\
+`Presidential campaigns are marathons. Not this year.`\
+https://nytimes.com/2024/08/26/briefing/presidential-campaigns.html
+
 **Will teams like Ole Miss, Kansas State be in or out? College Football Playoff Bubble Watch**\
 `This is Bubble Watch, a new weekly check-in chronicling the ebbs and flows of a season that is about newfound hope.`\
 https://nytimes.com/athletic/5723036/2024/08/26/bubble-watch-college-football-playoff/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5722646/2024/08/26/ravens-roster-cutdown-decisions/
 **Bears camp superlatives: Caleb Williams, Montez Sweat, Austin Booker stand out**\
 `With Bears training camp in the books, which had a memorable summer at Halas Hall and what questions remain?`\
 https://nytimes.com/athletic/5722747/2024/08/26/bears-training-camp-standouts-caleb-williams-montez-sweat/
-
-**NWSL players show unified support for new CBA: 'We said now'**\
-`Multiple Spirit players were directly involved with CBA negotiations.`\
-https://nytimes.com/athletic/5723433/2024/08/26/nwsl-cba-spirit-trinity-rodman-trades/
-
-**Penn State Playoff Prospectus: 12-team CFP arrives at perfect time for James Franklin**\
-`Frequently good under Franklin, Penn State is still trying to make a leap forward. The expansion of the CFP provides a stage to do it.`\
-https://nytimes.com/athletic/5716970/2024/08/26/penn-state-college-football-playoff-projections-preview/
 

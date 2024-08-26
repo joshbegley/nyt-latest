@@ -1,3 +1,11 @@
+**Big 12 tiers: Wide-open race has 6 CFP contenders, including Kansas — but not Colorado**\
+`Deion Sanders and Colorado get the headlines, but the new-look Big 12's long list of CFP contenders doesn't include the Buffaloes.`\
+https://nytimes.com/athletic/5717279/2024/08/26/big-12-football-tiers-rankings-cfp-projections/
+
+**The Benefits of Shorter Campaigns**\
+`Presidential campaigns are marathons. Not this year.`\
+https://nytimes.com/2024/08/26/briefing/presidential-campaigns.html
+
 **Will teams like Ole Miss, Kansas State be in or out? College Football Playoff Bubble Watch**\
 `This is Bubble Watch, a new weekly check-in chronicling the ebbs and flows of a season that is about newfound hope.`\
 https://nytimes.com/athletic/5723036/2024/08/26/bubble-watch-college-football-playoff/
