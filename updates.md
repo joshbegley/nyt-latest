@@ -1,3 +1,7 @@
+**Browns' Chubb to miss at least first 4 games: Sources**\
+`In 2023, Jerome Ford filled some of Chubb's void in the Browns' offense, totaling 813 yards on 204 carries as the fill-in starter.`\
+https://nytimes.com/athletic/5723897/2024/08/26/nick-chubb-injury-start-pup-list-browns/
+
 **Trump Tussles With Harris Over ABC Debate**\
 `The former president derided the network in a social media post and questioned why he would participate in the debate, which is scheduled for Sept. 10.`\
 https://nytimes.com/2024/08/26/us/politics/trump-harris-debate-abc.html
