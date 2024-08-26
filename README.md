@@ -1,3 +1,15 @@
+**The Briefing: Arsenal breakthrough, Madueke's reminder for Chelsea - and goalkeeper gaffes**\
+`The big talking points from the Premier League weekend - including Arsenal setting the standard, Madueke's treble and Pickford's problems`\
+https://nytimes.com/athletic/5722657/2024/08/26/arsenal-arteta-madueke-goalkeepers-everton/
+
+**Jodie Grinham, the archer aiming for a Paralympic medal at 28 weeks pregnant**\
+`Grinham has needed to adapt her shooting technique and training in the last seven months but that is only part of her story`\
+https://nytimes.com/athletic/5720551/2024/08/26/paralympics-pregnant-archer-jodie-grinham/
+
+**Anfield welcomes Slot with open arms - but greater tests await his post-Klopp evolution**\
+`Arne Slot has had the perfect start as Liverpool manager, but there will be bigger challenges to face in the coming weeks`\
+https://nytimes.com/athletic/5722809/2024/08/26/arne-slot-liverpool-anfield/
+
 **What we learnt from Kompany's Bayern opener: Inherited issues, Olise debut, Musiala's role**\
 `The German giants led 1-0, trailed 2-1 but still prevailed at Wolfsburg to kick off Vincent Kompany's tenure as manager in the Bundesliga`\
 https://nytimes.com/athletic/5722488/2024/08/26/bayern-kompany-olise-musiala/
@@ -21,16 +33,4 @@ https://nytimes.com/2024/08/26/world/europe/uk-fox-hunting-ban-status.html
 **Why Nippon Steel’s $15 Billion Takeover of U.S. Steel Is in Peril**\
 `The proposed merger of Japanese and American industrial giants, which proponents say would benefit both countries, is ensnared by political and labor opposition.`\
 https://nytimes.com/2024/08/26/business/nippon-steel-us-steel.html
-
-**Monday's MLB odds: Pitching matchups, playoff projections, best bets**\
-`See pitching matchups, playoff projections, win projections and more for Monday's MLB games.`\
-https://nytimes.com/athletic/5719239/2024/08/26/mlb-odds-best-bets-projections-august-26/
-
-**Mets split with Padres: Three takeaways after blowing a late lead**\
-`Vientos hit a single and a home run to boost his team-leading OPS but the Mets unraveled over the final two innings.`\
-https://nytimes.com/athletic/5723330/2024/08/25/mets-jose-butto-mark-vientos/
-
-**Latino Civil Rights Group Demands Inquiry Into Texas Voter Fraud Raids**\
-`The organization said many of those targeted by the raids, conducted by a unit created by the Texas attorney general, Ken Paxton, were Democratic leaders and election volunteers.`\
-https://nytimes.com/2024/08/25/us/texas-latinos-democrats-raids-paxton.html
 
