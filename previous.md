@@ -1,3 +1,7 @@
+**How a Federal Court in New Orleans Is Driving the Conservative Agenda**\
+`Today, the U.S. Fifth Circuit Court of Appeals is an outlier. But a Trump victory in November could transform it into the standard-bearer of MAGA-era jurisprudence.`\
+https://nytimes.com/2024/08/26/us/new-orleans-appeals-court-trump.html
+
 **What AD Pat Kraft's contract extension means for Penn State football**\
 `Kraft's contract runs through June 30, 2032 with an average compensation of $2.26 million per year.`\
 https://nytimes.com/athletic/5724995/2024/08/26/penn-state-athletic-director-pat-kraft-college-football/
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/08/26/world/israel-hamas-gaza-war/evacuations-halt
 **What’s Dining Out Like For a Vegetarian New Yorker? Share Your Experience.**\
 `The New York Times Food team wants to hear your stories, to help inform our reporting.`\
 https://nytimes.com/2024/08/26/us/vegetarian-restaurants-nyc.html
-
-**Prosecutors Appeal Dismissal of Trump Documents Case**\
-`The special counsel, Jack Smith, argued that Judge Aileen Cannon had erred in throwing out charges against Donald Trump of improperly holding national security secrets after leaving office.`\
-https://nytimes.com/2024/08/26/us/politics/trump-documents-appeal-jack-smith.html
 

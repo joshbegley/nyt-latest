@@ -1,3 +1,7 @@
+**How a Federal Court in New Orleans Is Driving the Conservative Agenda**\
+`Today, the U.S. Fifth Circuit Court of Appeals is an outlier. But a Trump victory in November could transform it into the standard-bearer of MAGA-era jurisprudence.`\
+https://nytimes.com/2024/08/26/us/new-orleans-appeals-court-trump.html
+
 **What AD Pat Kraft's contract extension means for Penn State football**\
 `Kraft's contract runs through June 30, 2032 with an average compensation of $2.26 million per year.`\
 https://nytimes.com/athletic/5724995/2024/08/26/penn-state-athletic-director-pat-kraft-college-football/
