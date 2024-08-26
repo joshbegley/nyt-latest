@@ -1,3 +1,15 @@
+**What we learnt from Kompany's Bayern opener: Inherited issues, Olise debut, Musiala's role**\
+`The German giants led 1-0, trailed 2-1 but still prevailed at Wolfsburg to kick off Vincent Kompany's tenure as manager in the Bundesliga`\
+https://nytimes.com/athletic/5722488/2024/08/26/bayern-kompany-olise-musiala/
+
+**How Brighton's high line harmed and helped Manchester United**\
+`Fabian Hurzeler's risk was rewarded as Brighton beat Manchester United, but it was extremely close to going wrong `\
+https://nytimes.com/athletic/5721330/2024/08/26/brighton-manchester-united-hurzeler-ten-hag-tactics/
+
+**Sterling, USMNT No 1 Turner and more players who could move before Friday's transfer deadline**\
+`A whole host of internationals need a move before the deadline - The Athletic assesses ten players who look likely to move on`\
+https://nytimes.com/athletic/5718801/2024/08/26/sterling-usmnt-turner-transfer-deadline/
+
 **Arsenal's manipulation and movement eventually allowed runners to break Villa's line**\
 `Arsenal had a plan to get behind Villa's defence, but it took until the second half for it to be executed correctly.`\
 https://nytimes.com/athletic/5721820/2024/08/26/arsenal-runners-aston-villa/

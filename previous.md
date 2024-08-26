@@ -1,3 +1,15 @@
+**What we learnt from Kompany's Bayern opener: Inherited issues, Olise debut, Musiala's role**\
+`The German giants led 1-0, trailed 2-1 but still prevailed at Wolfsburg to kick off Vincent Kompany's tenure as manager in the Bundesliga`\
+https://nytimes.com/athletic/5722488/2024/08/26/bayern-kompany-olise-musiala/
+
+**How Brighton's high line harmed and helped Manchester United**\
+`Fabian Hurzeler's risk was rewarded as Brighton beat Manchester United, but it was extremely close to going wrong `\
+https://nytimes.com/athletic/5721330/2024/08/26/brighton-manchester-united-hurzeler-ten-hag-tactics/
+
+**Sterling, USMNT No 1 Turner and more players who could move before Friday's transfer deadline**\
+`A whole host of internationals need a move before the deadline - The Athletic assesses ten players who look likely to move on`\
+https://nytimes.com/athletic/5718801/2024/08/26/sterling-usmnt-turner-transfer-deadline/
+
 **Arsenal's manipulation and movement eventually allowed runners to break Villa's line**\
 `Arsenal had a plan to get behind Villa's defence, but it took until the second half for it to be executed correctly.`\
 https://nytimes.com/athletic/5721820/2024/08/26/arsenal-runners-aston-villa/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5723330/2024/08/25/mets-jose-butto-mark-vientos/
 **Latino Civil Rights Group Demands Inquiry Into Texas Voter Fraud Raids**\
 `The organization said many of those targeted by the raids, conducted by a unit created by the Texas attorney general, Ken Paxton, were Democratic leaders and election volunteers.`\
 https://nytimes.com/2024/08/25/us/texas-latinos-democrats-raids-paxton.html
-
-**Who will start at QB for the Patriots in Week 1?**\
-`Maye seemed to outplay Brissett, who sustained an injury to his arm, in the team’s final preseason game Sunday.`\
-https://nytimes.com/athletic/5723277/2024/08/25/drake-maye-jacoby-brissett-patriots-starting-quarterback/
-
-**Giants takeaways: Robbie Ray adds to rotation injury woes, Heliot Ramos hits 20th homer**\
-`Ray got hurt in his return to Seattle, Ramos continues to impress and the Giants are having fun despite their place in the standings.`\
-https://nytimes.com/athletic/5723262/2024/08/25/sf-giants-robbie-ray-injury-heliot-ramos-20-home-runs/
-
-**Final Broncos 53-man roster projection after Denver wraps up 3-0 preseason**\
-`Zach Wilson's strong performance in a rout of the Cardinals likely cemented his spot on the Broncos' roster.`\
-https://nytimes.com/athletic/5722742/2024/08/25/broncos-53-man-roster-projection-final/
 
