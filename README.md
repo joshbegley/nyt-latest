@@ -7,7 +7,7 @@ https://nytimes.com/2024/08/26/sports/sid-eudy-dead.html
 https://nytimes.com/athletic/5724895/2024/08/26/49ers-darrell-luter-cornerback-future-interception/
 
 **U.S. Open Tuesday: What to watch at the Billie Jean King Tennis Center on Day 2**\
-`Follow live coverage of the U.`\
+`Day 2 of the U.S. Open brings the top half of the men's and women's singles onto the court in Flushing Meadows.`\
 https://nytimes.com/athletic/5724431/2024/08/26/us-open-2024-watch-guide-day-2-sinner-alcaraz-swiatek/
 
 **Packers acquiring QB Malik Willis from Titans**\
