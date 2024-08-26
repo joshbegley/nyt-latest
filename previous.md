@@ -1,3 +1,15 @@
+**Nottingham Forest embrace streetwise approach to pose a threat on the road**\
+`Forest have leant heavily on home form to preserve Premier League status, but their win at Southampton was a third in a row on their travels`\
+https://nytimes.com/athletic/5721833/2024/08/26/forest-away-milenkovic-nuno-southampton/
+
+**How Crystal Palace crumbled after a week of disruption: 'We were a little bit shaken'**\
+`Oliver Glasner admitted his players had been unsettled after seeing Joachim Andersen and Jordan Ayew depart - with reinforcements required`\
+https://nytimes.com/athletic/5709496/2024/08/26/crystal-palace-glasner-andersen-ayew-guehi/
+
+**Wolves were open and naive in chastening defeat - O'Neil and the club are at a crossroads**\
+`Sunday's defeat asked as many questions about the shape and style of O’Neil’s Wolves team as it did about the club’s transfer plans`\
+https://nytimes.com/athletic/5722520/2024/08/26/wolves-chelsea-oneil-defeat/
+
 **The Briefing: Arsenal breakthrough, Madueke's reminder for Chelsea - and goalkeeper gaffes**\
 `The big talking points from the Premier League weekend - including Arsenal setting the standard, Madueke's treble and Pickford's problems`\
 https://nytimes.com/athletic/5722657/2024/08/26/arsenal-arteta-madueke-goalkeepers-everton/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5721330/2024/08/26/brighton-manchester-united-hurze
 **Sterling, USMNT No 1 Turner and more players who could move before Friday's transfer deadline**\
 `A whole host of internationals need a move before the deadline - The Athletic assesses ten players who look likely to move on`\
 https://nytimes.com/athletic/5718801/2024/08/26/sterling-usmnt-turner-transfer-deadline/
-
-**Arsenal's manipulation and movement eventually allowed runners to break Villa's line**\
-`Arsenal had a plan to get behind Villa's defence, but it took until the second half for it to be executed correctly.`\
-https://nytimes.com/athletic/5721820/2024/08/26/arsenal-runners-aston-villa/
-
-**Fox Hunters in the U.K. Want Protected Status Under Discrimination Law**\
-`A lobbying group is preparing a bid to define hunting with animals as a protected belief. Many experts have questions.`\
-https://nytimes.com/2024/08/26/world/europe/uk-fox-hunting-ban-status.html
-
-**Why Nippon Steel’s $15 Billion Takeover of U.S. Steel Is in Peril**\
-`The proposed merger of Japanese and American industrial giants, which proponents say would benefit both countries, is ensnared by political and labor opposition.`\
-https://nytimes.com/2024/08/26/business/nippon-steel-us-steel.html
 

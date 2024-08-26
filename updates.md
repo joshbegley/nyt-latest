@@ -1,3 +1,15 @@
+**Nottingham Forest embrace streetwise approach to pose a threat on the road**\
+`Forest have leant heavily on home form to preserve Premier League status, but their win at Southampton was a third in a row on their travels`\
+https://nytimes.com/athletic/5721833/2024/08/26/forest-away-milenkovic-nuno-southampton/
+
+**How Crystal Palace crumbled after a week of disruption: 'We were a little bit shaken'**\
+`Oliver Glasner admitted his players had been unsettled after seeing Joachim Andersen and Jordan Ayew depart - with reinforcements required`\
+https://nytimes.com/athletic/5709496/2024/08/26/crystal-palace-glasner-andersen-ayew-guehi/
+
+**Wolves were open and naive in chastening defeat - O'Neil and the club are at a crossroads**\
+`Sunday's defeat asked as many questions about the shape and style of O’Neil’s Wolves team as it did about the club’s transfer plans`\
+https://nytimes.com/athletic/5722520/2024/08/26/wolves-chelsea-oneil-defeat/
+
 **The Briefing: Arsenal breakthrough, Madueke's reminder for Chelsea - and goalkeeper gaffes**\
 `The big talking points from the Premier League weekend - including Arsenal setting the standard, Madueke's treble and Pickford's problems`\
 https://nytimes.com/athletic/5722657/2024/08/26/arsenal-arteta-madueke-goalkeepers-everton/
