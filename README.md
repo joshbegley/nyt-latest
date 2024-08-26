@@ -1,3 +1,15 @@
+**Now an Acclaimed Restaurateur, He Long Concealed a Secret**\
+`Arjav Ezekiel rose through the restaurant ranks becoming a sommelier and opening Birdie’s in Austin, Texas. Few knew of his past as an undocumented immigrant.`\
+https://nytimes.com/2024/08/26/dining/drinks/arjav-ezekiel-restaurateur-undocumented-immigrant.html
+
+**The Bounce: Beef Court: Anthony Edwards vs. Magic Johnson**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5723752/2024/08/26/anthony-edwards-magic-johnson-lakers-timberwolves-nba-kobe-bryant-lakers-the-bounce/
+
+**The 'skill' beef: Magic, Isiah fire back at Edwards**\
+`“I don't never respond to a guy that's never won a championship,” Johnson said. “There's not nothing to really say."`\
+https://nytimes.com/athletic/5724027/2024/08/26/anthony-edwards-magic-johnson-beef-explainer/
+
 **Post Malone Returns to No. 1 With His Country Debut, ‘F-1 Trillion’**\
 `The shape-shifting pop songwriter’s new album debuts atop the Billboard 200, and Chappell Roan’s “Midwest Princess” holds at No. 2.`\
 https://nytimes.com/2024/08/26/arts/music/post-malone-f-1-trillion-billboard-chart.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5723737/2024/08/26/college-football-two-minute-warn
 **Brighton complete O'Riley signing**\
 `Brighton &amp; Hove Albion have completed the signing of Matt O&#8217;Riley from Celtic.`\
 https://nytimes.com/athletic/5720745/2024/08/26/brighton-matt-oriley-transfer/
-
-**Deion Sanders partners with bank to open accounts for players' children**\
-`The children of eight players on Colorado's team will receive $2,121, a nod to Sanders’ signature number. `\
-https://nytimes.com/athletic/5724023/2024/08/26/deion-sanders-colorado-bank-children/
-
-**Chiefs to sign WR JuJu Smith-Schuster: Source**\
-`Smith-Schuster was released by the Patriots earlier this month after spending one season in New England.`\
-https://nytimes.com/athletic/5724019/2024/08/26/chiefs-signing-juju-smith-schuster/
-
-**Palace close to agreeing Nketiah deal**\
-`Crystal Palace are close to agreeing a deal to sign Arsenal striker Eddie Nketiah.`\
-https://nytimes.com/athletic/5722738/2024/08/26/eddie-nketiah-crystal-palace-transfer/
 
