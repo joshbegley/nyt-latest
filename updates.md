@@ -1,3 +1,11 @@
+**Telegram Founder’s Arrest Part of Broad Investigation, French Prosecutors Say**\
+`A case was opened last month to investigate child pornography, drug sales, fraud and other criminal activities on the platform. The app’s founder, Pavel Durov, was detained over the weekend near Paris.`\
+https://nytimes.com/2024/08/26/business/telegram-founder-arrest-france.html
+
+**What We Can Learn From Tim Walz and Gus**\
+`Parents of neurodivergent children praise a guest essay by Tina Brown. Also: Is Trump funny? RFK Jr.’s endorsement of Trump; antitrust law.`\
+https://nytimes.com/2024/08/26/opinion/letters/tim-walz-gus-neurodivergent.html
+
 **Sven-Goran Eriksson obituary: Calm, dignified, positive, but never a pushover**\
 `The former England, Lazio, Benfica and Sampdoria manager, who has died at the age of 76, enjoyed a nomadic career around the globe`\
 https://nytimes.com/athletic/5722811/2024/08/26/sven-goran-eriksson-england/

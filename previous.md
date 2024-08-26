@@ -1,3 +1,11 @@
+**Telegram Founder’s Arrest Part of Broad Investigation, French Prosecutors Say**\
+`A case was opened last month to investigate child pornography, drug sales, fraud and other criminal activities on the platform. The app’s founder, Pavel Durov, was detained over the weekend near Paris.`\
+https://nytimes.com/2024/08/26/business/telegram-founder-arrest-france.html
+
+**What We Can Learn From Tim Walz and Gus**\
+`Parents of neurodivergent children praise a guest essay by Tina Brown. Also: Is Trump funny? RFK Jr.’s endorsement of Trump; antitrust law.`\
+https://nytimes.com/2024/08/26/opinion/letters/tim-walz-gus-neurodivergent.html
+
 **The Windup: Will Aaron Judge ever hit 73?**\
 `The Windup is The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/5724341/2024/08/26/aaron-judge-home-runs-the-windup/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5724189/2024/08/26/nwsl-free-agents-players-list/
 **Do rookie receivers produce better late in the season, peaking during the fantasy football playoffs?**\
 `Michael Salfino runs the numbers to test the narrative that first-year receivers tend to get better as their rookie seasons progress.`\
 https://nytimes.com/athletic/5724230/2024/08/26/fantasy-football-narrative-rookie-wr-better-late/
-
-**Is Your Plastic Bottle Really Made From Recycled Plastic?**\
-`A green accounting method called “mass balance” certifies that something was manufactured with recycled plastic — just not necessarily much of the bottle making the claim.`\
-https://nytimes.com/2024/08/26/business/energy-environment/tritan-renew-plastic-bottles-recycled.html
-
-**Sven-Goran Eriksson obituary: Calm, dignified, positive, but never a pushover**\
-`The former England, Lazio, Benfica and Sampdoria manager, who has died at the age of 76, enjoyed a nomadic career around the globe`\
-https://nytimes.com/athletic/5722811/2024/08/26/sven-goran-eriksson-england/
 
