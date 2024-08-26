@@ -1,3 +1,7 @@
+**Evacuations halt the U.N.’s humanitarian missions in Gaza, at least temporarily.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/08/26/world/israel-hamas-gaza-war/evacuations-halt-the-uns-humanitarian-missions-in-gaza-at-least-temporarily
+
 **What’s Dining Out Like For a Vegetarian New Yorker? Share Your Experience.**\
 `The New York Times Food team wants to hear your stories, to help inform our reporting.`\
 https://nytimes.com/2024/08/26/us/vegetarian-restaurants-nyc.html
