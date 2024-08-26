@@ -1,3 +1,15 @@
+**Now an Acclaimed Restaurateur, He Long Concealed a Secret**\
+`Arjav Ezekiel rose through the restaurant ranks becoming a sommelier and opening Birdie’s in Austin, Texas. Few knew of his past as an undocumented immigrant.`\
+https://nytimes.com/2024/08/26/dining/drinks/arjav-ezekiel-restaurateur-undocumented-immigrant.html
+
+**The Bounce: Beef Court: Anthony Edwards vs. Magic Johnson**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5723752/2024/08/26/anthony-edwards-magic-johnson-lakers-timberwolves-nba-kobe-bryant-lakers-the-bounce/
+
+**The 'skill' beef: Magic, Isiah fire back at Edwards**\
+`“I don't never respond to a guy that's never won a championship,” Johnson said. “There's not nothing to really say."`\
+https://nytimes.com/athletic/5724027/2024/08/26/anthony-edwards-magic-johnson-beef-explainer/
+
 **Post Malone Returns to No. 1 With His Country Debut, ‘F-1 Trillion’**\
 `The shape-shifting pop songwriter’s new album debuts atop the Billboard 200, and Chappell Roan’s “Midwest Princess” holds at No. 2.`\
 https://nytimes.com/2024/08/26/arts/music/post-malone-f-1-trillion-billboard-chart.html
