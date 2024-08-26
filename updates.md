@@ -1,3 +1,11 @@
+**Jansen to make MLB history as Red Sox, Blue Jays resume**\
+`Back in June, Jansen was playing for the Blue Jays. When the rain delay was called, Jansen was at the plate with one out and one on.`\
+https://nytimes.com/athletic/5723028/2024/08/26/danny-jansen-mlb-history-same-team-red-sox-blue-jays/
+
+**Trabzonspor make offer for Burnley captain Brownhill**\
+`Trabzonspor have made a bid of €4m for Burnley captain Josh Brownhill.`\
+https://nytimes.com/athletic/5723684/2024/08/26/burnley-transfers-josh-brownhill-trabzonspor/
+
 **Aston Villa's Cash set to miss a month with hamstring injury**\
 `Aston Villa defender Matty Cash is set to miss a month of action with a hamstring injury.`\
 https://nytimes.com/athletic/5723632/2024/08/26/matty-cash-injury-aston-villa/

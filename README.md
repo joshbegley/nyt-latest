@@ -1,4 +1,4 @@
-**Jansen to make MLB history as Red Sox, Blue Jays resume**\
+**Danny Jansen to make MLB history by playing for both teams in same game on Monday**\
 `Back in June, Jansen was playing for the Blue Jays. When the rain delay was called, Jansen was at the plate with one out and one on.`\
 https://nytimes.com/athletic/5723028/2024/08/26/danny-jansen-mlb-history-same-team-red-sox-blue-jays/
 
