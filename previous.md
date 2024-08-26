@@ -1,3 +1,7 @@
+**How did college football’s two-minute warning work in Week 0?**\
+`The two-minute warning did not add any extra TV timeouts as fans feared. Week 0 just had some unusual games. `\
+https://nytimes.com/athletic/5723737/2024/08/26/college-football-two-minute-warning-commercials/
+
 **Brighton complete O'Riley signing**\
 `Brighton &amp; Hove Albion have completed the signing of Matt O&#8217;Riley from Celtic.`\
 https://nytimes.com/athletic/5720745/2024/08/26/brighton-matt-oriley-transfer/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5723060/2024/08/26/learner-tien-us-open-tennis-win-
 **Harris and Trump Squabble Over Debate Rules as ABC Matchup Looms**\
 `The former president derided the network and questioned why he would participate, while the vice president called for each candidate’s microphone to be left on for the entirety of the Sept. 10 event.`\
 https://nytimes.com/2024/08/26/us/politics/trump-harris-debate-abc.html
-
-**In a First, a Chinese Military Plane Breaches Japan’s Territorial Airspace**\
-`The territorial violation by China is the latest in a series of events amplifying tensions between Beijing and Japan.`\
-https://nytimes.com/2024/08/26/world/asia/china-surveillance-japan-airspace.html
 
