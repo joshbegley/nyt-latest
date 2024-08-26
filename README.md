@@ -26,8 +26,8 @@ https://nytimes.com/athletic/5723897/2024/08/26/nick-chubb-injury-start-pup-list
 `The 18-year-old talent didn't grow up in awe of tennis. Instead, he picked up a racket, and the sport - and some kismet - did the rest`\
 https://nytimes.com/athletic/5723060/2024/08/26/learner-tien-us-open-tennis-win-streak/
 
-**Trump Tussles With Harris Over ABC Debate**\
-`The former president derided the network in a social media post and questioned why he would participate in the debate, which is scheduled for Sept. 10.`\
+**Harris and Trump Squabble Over Debate Rules as ABC Matchup Looms**\
+`The former president derided the network and questioned why he would participate, while the vice president called for each candidate’s microphone to be left on for the entirety of the Sept. 10 event.`\
 https://nytimes.com/2024/08/26/us/politics/trump-harris-debate-abc.html
 
 **In a First, a Chinese Military Plane Breaches Japan’s Territorial Airspace**\
