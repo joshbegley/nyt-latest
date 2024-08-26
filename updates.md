@@ -1,3 +1,11 @@
+**Atletico exploring loan deal for City's Nunes**\
+`Atletico Madrid are exploring the potential loan signing of Manchester City midfielder Matheus Nunes.`\
+https://nytimes.com/athletic/5724493/2024/08/26/matheus-nunes-atletico-madrid-manchester-city/
+
+**Big Ten announces 2024 tiebreakers for league title game**\
+`The Big Ten finalized its tiebreaking procedures to determine which teams participate in its 2024 championship game.`\
+https://nytimes.com/athletic/5724387/2024/08/26/big-ten-football-tiebreaker-rules-2024-championship-game/
+
 **Big Ten announces 2024 tiebreakers for league title game**\
 `The Big Ten finalized its tiebreaking procedures to determine which teams participate in its 2024 championship game, the league announced Monday.`\
 https://nytimes.com/athletic/5724387/2024/08/26/big-ten-football-tiebreaker-rules-2024-championship-game/
