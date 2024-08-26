@@ -1,3 +1,7 @@
+**Giants takeaways: Robbie Ray adds to rotation injury woes, Heliot Ramos hits 20th homer**\
+`Ray got hurt in his return to Seattle, Ramos continues to impress and the Giants are having fun despite their place in the standings.`\
+https://nytimes.com/athletic/5723262/2024/08/25/sf-giants-robbie-ray-injury-heliot-ramos-20-home-runs/
+
 **Final Broncos 53-man roster projection after Denver wraps up 3-0 preseason**\
 `Zach Wilson's strong performance in a rout of the Cardinals likely cemented his spot on the Broncos' roster.`\
 https://nytimes.com/athletic/5722742/2024/08/25/broncos-53-man-roster-projection-final/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5723016/2024/08/25/keegan-bradley-wins-bmw-champion
 **Red Sox takeaways: Home woes continue in sweep; Rafael Devers hits 200th homer**\
 `The Red Sox have the worst home record of any MLB team with an overall record better than .500 after being swept at Fenway by Arizona.`\
 https://nytimes.com/athletic/5722909/2024/08/25/red-sox-takeaways-home-losses-rafael-dever-200-homer/
-
-**Tracking Tropical Storm Hector**\
-`See the likely path and wind arrival times for Hector.`\
-https://nytimes.com/interactive/2024/08/25/weather/hector-map-path-tracker.html
 
