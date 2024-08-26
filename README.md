@@ -1,3 +1,11 @@
+**Another New Leader for Indianapolis Museum Roiled by Racism Outcry**\
+`Le Monte Booker will be the institution’s third leader in four years. The previous president and chief executive left last year after just over a year on the job.`\
+https://nytimes.com/2024/08/26/arts/design/indianapolis-museum-le-monte-booker.html
+
+**U.S. will keep the Roosevelt aircraft carrier in the Middle East, amid tensions.**\
+`By Eric Schmitt`\
+https://nytimes.com/live/2024/08/26/world/israel-hamas-gaza-war/us-will-keep-the-roosevelt-aircraft-carrier-in-the-middle-east-amid-tensions
+
 **Barcelona set to register Olmo**\
 `Dani Olmo’s La Liga’s registration as a Barcelona player is set to be temporarily approved by the competition body, meaning he is now likely to make his debut on Tuesday at Rayo Vallecano.`\
 https://nytimes.com/athletic/5724435/2024/08/26/barcelona-dani-olmo-registered/
@@ -25,13 +33,4 @@ https://nytimes.com/2024/08/26/us/alabama-high-school-football-death.html
 **Scoop City: Risers and fallers after preseason**\
 `A look at the best and worst performances of preseason Week 3.`\
 https://nytimes.com/athletic/5724544/2024/08/26/scoop-city-risers-and-fallers-after-preseason/
-
-**In Desperate Need of Homes of Their Own**\
-`A groundbreaking report examines the nationwide capacity crisis at animal shelters,
-the barriers to pet ownership and solutions that can help place or keep pets in loving homes.`\
-https://nytimes.com/paidpost/hills-pet-nutrition/in-desperate-need-of-homes-of-their-own.html
-
-**Captain of Sunken Yacht Under Investigation in Deaths on Ship**\
-`The investigation does not necessarily imply that formal charges will follow against the captain, James Cutfield.`\
-https://nytimes.com/2024/08/26/world/europe/captain-sunken-yacht-bayesian-investigation-deaths.html
 
