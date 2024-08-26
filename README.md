@@ -1,36 +1,36 @@
-**Russia Pounds Ukraine With Missiles and Drones, Ukrainian Authorities Say**\
-`Kyiv and Kharkiv, the two biggest cities in Ukraine, were among those struck in what a top official called a “massive Russian attack,” that also hit energy infrastructure.`\
-https://nytimes.com/2024/08/26/world/europe/russia-ukraine-missiles-kyiv.html
+**Greenberg: Danny Parkins is ready to start his new life as a national TV talking head**\
+`The former Chicago sports-talk radio personality is in New York preparing to co-host the first episode of “Breakfast Ball" on FS1.`\
+https://nytimes.com/athletic/5722812/2024/08/26/danny-parkins-is-ready-to-start-his-new-life-as-a-national-tv-talking-head/
 
-**This Week in Mets: Is Francisco Lindor having the best season ever by a Mets position player?**\
-`Beyond his bat, Lindor plays Gold Glove-caliber defense at a premium position, anchoring an otherwise mediocre defensive infield.`\
-https://nytimes.com/athletic/5723321/2024/08/26/mets-mlb-francisco-lindor-best-season/
+**NFL QB Tiers 2024: Only 2 join Mahomes in Tier 1; Rodgers, Herbert drop out**\
+`Aaron Rodgers missed Tier 1 for the first time in the 11th annual survey of 50 NFL coaches and execs. His successor in Green Bay surged.`\
+https://nytimes.com/athletic/5715508/2024/08/26/nfl-qb-rankings-2024-patrick-mahomes/
 
-**Knicks storylines: Julius Randle's fit, Jalen Brunson's role offensively and more**\
-`How different will the Knicks be? Does Mikal Bridges sign an extension?`\
-https://nytimes.com/athletic/5719860/2024/08/26/knicks-storylines-julius-randle-jalen-brunson/
+**Ten thoughts on Ravens' pending roster decisions as cutdown day looms**\
+`Will Baltimore have a No. 3 RB on its initial 53-man roster, and how many players will be kept solely due to their special teams ability?`\
+https://nytimes.com/athletic/5722646/2024/08/26/ravens-roster-cutdown-decisions/
 
-**As MLB veterans head south for money and opportunity, the Mexican League has its moment**\
-`New MLB rules have cut down opportunities for veteran players, and Mexican teams are luring them with boosted pay and improved facilities.`\
-https://nytimes.com/athletic/5722544/2024/08/26/mlb-veterans-mexican-league/
+**Bears camp superlatives: Caleb Williams, Montez Sweat, Austin Booker stand out**\
+`With Bears training camp in the books, which had a memorable summer at Halas Hall and what questions remain?`\
+https://nytimes.com/athletic/5722747/2024/08/26/bears-training-camp-standouts-caleb-williams-montez-sweat/
 
-**Fighting Sexual Temptation? Play Badminton, Hong Kong Tells Teenagers.**\
-`Top officials in the Chinese territory have defended new sex education guidance that critics call regressive. Young people are amused.`\
-https://nytimes.com/2024/08/26/world/asia/hong-kong-sex-education-badminton.html
+**NWSL players show unified support for new CBA: 'We said now'**\
+`Multiple Spirit players were directly involved with CBA negotiations.`\
+https://nytimes.com/athletic/5723433/2024/08/26/nwsl-cba-spirit-trinity-rodman-trades/
 
-**Are Notre Dame's wide receivers better? Can Irish play better on the road? Mailbag**\
-`Denbrock will have an inexperienced offensive line to work with. How will that affect his first year with the Irish?`\
-https://nytimes.com/athletic/5721201/2024/08/26/notre-dame-football-offense-mike-denbrock/
+**Penn State Playoff Prospectus: 12-team CFP arrives at perfect time for James Franklin**\
+`Frequently good under Franklin, Penn State is still trying to make a leap forward. The expansion of the CFP provides a stage to do it.`\
+https://nytimes.com/athletic/5716970/2024/08/26/penn-state-college-football-playoff-projections-preview/
 
-**How I'm predicting Ohio State's season: Will it end in a national championship?**\
-`Ryan Day and Ohio State face immense pressure to win in 2024. Here's how I see the season playing out, week by week.`\
-https://nytimes.com/athletic/5719729/2024/08/26/ohio-state-football-predictions-2024-schedule/
+**Trump vs. Harris on the Economy**\
+`A Times economic policy reporter breaks down the candidates’ plans on the issue.`\
+https://nytimes.com/2024/08/26/podcasts/the-daily/trump-harris-economy.html
 
-**Phillies takeaways on Bryce Harper, Taijuan Walker and more entering a key week**\
-`The Phillies are 11-11 in August with a .761 OPS that ranks 11th in Major League Baseball. It just hasn't felt like that.`\
-https://nytimes.com/athletic/5723329/2024/08/26/phillies-bryce-harper-taijuan-walker/
+**Three Cardinals takeaways: St. Louis posts key series wins despite chaotic week**\
+`Lars Nootbaar's two-run single in the ninth helped spark an improbable rally over the Twins.`\
+https://nytimes.com/athletic/5722818/2024/08/26/cardinals-wild-card-race/
 
-**No Evidence That Maduro Won, a Top Venezuelan Election Official Says**\
-`In an interview with The New York Times, an electoral council official expressed grave doubts about claims to victory by the authoritarian president, Nicolás Maduro.`\
-https://nytimes.com/2024/08/26/world/americas/maduro-venezuela-election-results.html
+**Wordle Review No. 1,165**\
+`Scroll down for hints and conversation about the puzzle for August 27, 2024.`\
+https://nytimes.com/2024/08/26/crosswords/wordle-review-1165.html
 
