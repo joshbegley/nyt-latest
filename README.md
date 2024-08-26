@@ -1,7 +1,3 @@
-**The final sprint has begun. Here’s the latest on the presidential race.**\
-`By Maggie Astor`\
-https://nytimes.com/live/2024/08/26/us/harris-trump-election/the-final-sprint-has-begun-heres-the-latest-on-the-presidential-race
-
 **The Athletic FC: Chelsea's 53 players, 6 goals, 1 apology; 'keeper howlers and Superman save**\
 `Today in The Athletic FC: Madueke scores hat-trick on the pitch, apologises off it. Plus: Goalkeeper howlers and Remarkable Raya...`\
 https://nytimes.com/athletic/5721864/2024/08/26/chelseas-53-players-6-goals-1-apology-keeper-howlers-and-superman-save/
