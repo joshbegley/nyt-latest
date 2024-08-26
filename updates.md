@@ -1,3 +1,7 @@
+**Giants takeaways: Robbie Ray adds to rotation injury woes, Heliot Ramos hits 20th homer**\
+`Ray got hurt in his return to Seattle, Ramos continues to impress and the Giants are having fun despite their place in the standings.`\
+https://nytimes.com/athletic/5723262/2024/08/25/sf-giants-robbie-ray-injury-heliot-ramos-20-home-runs/
+
 **Could Yankees’ Aaron Judge hit 73 home runs someday? Teammates weigh in**\
 `“If there’s any guy in the league who can” surpass Barry Bonds, right fielder Juan Soto said, “it’s going to be (Judge).”`\
 https://nytimes.com/athletic/5723121/2024/08/25/yankees-aaron-judge-barry-bonds-home-run-record/
