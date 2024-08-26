@@ -2,7 +2,7 @@
 `The 18-year-old talent didn't grow up in awe of tennis. Instead, he picked up a racket, and the sport — and some kismet — did the rest`\
 https://nytimes.com/athletic/5723060/2024/08/26/learner-tien-us-open-tennis-win-streak/
 
-**Trump Suggests He May Skip Debate With Kamala Harris on ABC**\
+**Trump Tussles With Harris Over ABC Debate**\
 `The former president derided the network in a social media post and questioned why he would participate in the debate, which is scheduled for Sept. 10.`\
 https://nytimes.com/2024/08/26/us/politics/trump-harris-debate-abc.html
 
