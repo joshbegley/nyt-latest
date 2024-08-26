@@ -1,3 +1,7 @@
+**Duke's Cooper Flagg signs shoe deal with New Balance**\
+`The reigning Gatorade National Player of the Year and five-star recruit grew up just 25 miles from New Balance’s manufacturing plant.`\
+https://nytimes.com/athletic/5724179/2024/08/26/cooper-flagg-duke-new-balance-shoe/
+
 **Now an Acclaimed Restaurateur, He Long Concealed a Secret**\
 `Arjav Ezekiel rose through the restaurant ranks becoming a sommelier and opening Birdie’s in Austin, Texas. Few knew of his past as an undocumented immigrant.`\
 https://nytimes.com/2024/08/26/dining/drinks/arjav-ezekiel-restaurateur-undocumented-immigrant.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/26/dining/meatballs.html
 **How did college football’s two-minute warning work in Week 0?**\
 `The two-minute warning did not add any extra TV timeouts as fans feared. Week 0 just had some unusual games. `\
 https://nytimes.com/athletic/5723737/2024/08/26/college-football-two-minute-warning-commercials/
-
-**Brighton complete O'Riley signing**\
-`Brighton &amp; Hove Albion have completed the signing of Matt O&#8217;Riley from Celtic.`\
-https://nytimes.com/athletic/5720745/2024/08/26/brighton-matt-oriley-transfer/
 
