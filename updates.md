@@ -1,3 +1,7 @@
+**Sven-Goran Eriksson obituary: Calm, dignified, positive, but never a pushover**\
+`The former England, Lazio, Benfica and Sampdoria manager, who has died at the age of 76, enjoyed a nomadic career around the globe`\
+https://nytimes.com/athletic/5722811/2024/08/26/sven-goran-eriksson-england/
+
 **The Windup: Will Aaron Judge ever hit 73?**\
 `The Windup is The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/5724341/2024/08/26/aaron-judge-home-runs-the-windup/

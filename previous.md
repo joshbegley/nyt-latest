@@ -30,7 +30,7 @@ https://nytimes.com/athletic/5724230/2024/08/26/fantasy-football-narrative-rooki
 `A green accounting method called “mass balance” certifies that something was manufactured with recycled plastic — just not necessarily much of the bottle making the claim.`\
 https://nytimes.com/2024/08/26/business/energy-environment/tritan-renew-plastic-bottles-recycled.html
 
-**Sven-Goran Eriksson obituary: Calm, dignified, positive but never a pushover**\
+**Sven-Goran Eriksson obituary: Calm, dignified, positive, but never a pushover**\
 `The former England, Lazio, Benfica and Sampdoria manager, who has died at the age of 76, enjoyed a nomadic career around the globe`\
 https://nytimes.com/athletic/5722811/2024/08/26/sven-goran-eriksson-england/
 
