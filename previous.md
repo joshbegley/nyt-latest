@@ -1,36 +1,36 @@
-**Rashid Johnson Will Have Career Survey at Guggenheim in 2025**\
-`A major exhibition by the acclaimed artist will fill Frank Lloyd Wright’s rotunda with plants and artwork. Johnson stepped down from the Guggenheim’s board last year.`\
-https://nytimes.com/2024/08/26/arts/design/rashid-johnson-guggenheim.html
+**Gossiping Is Fun. It’s Natural. And These People Won’t Do It.**\
+`Gossip is a universal feature of human culture. It’s also the target of passionate, widespread censure.`\
+https://nytimes.com/2024/08/26/opinion/gossiping-fun-natural-complain.html
 
-**Parisians Are Choosing Bikes Over Cars. Will New Yorkers Do That, Too?**\
-`The transformation of cycling access in Paris over the past few years may have lessons for New York and its car-clogged streets.`\
-https://nytimes.com/2024/08/26/nyregion/street-wars-bike-lanes-paris.html
+**In This Fleet, Funny Novel, a Writer Makes Art and Sells Out in Hollywood**\
+`In “Colored Television,” by Danzy Senna, a struggling writer in a mixed-race family is seduced by the taste of luxury that comes with house-sitting.`\
+https://nytimes.com/2024/08/26/books/review/danzy-senna-colored-television.html
 
-**Bridging the Uplifting and the Harrowing in San Francisco**\
-`Heather Knight, the San Francisco bureau chief for The New York Times, strives to reflect all sides and perspectives of the city.`\
-https://nytimes.com/2024/08/26/insider/san-francisco-bureau-chief.html
+**What to Know About Getting a DNR Order**\
+`A “do not resuscitate” order can help you communicate your priorities for medical treatment. Here’s what to consider — and how to increase the chances that your wishes are upheld.`\
+https://nytimes.com/2024/08/26/well/dnr-orders.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/08/26/crosswords/spelling-bee-forum.html
+**The Cyclone Suddenly Goes Silent in Coney Island**\
+`The 97-year-old roller coaster, a New York landmark, was taken out of service temporarily after a crack was detected in its machinery.`\
+https://nytimes.com/2024/08/26/nyregion/cyclone-coney-island-closed.html
 
-**A Trial Asks: If Grocery Rivals Merge, Do Workers Suffer?**\
-`As Kroger seeks to acquire Albertsons, federal regulators argue that the biggest supermarket combination in history will hurt not only consumers, but workers as well.`\
-https://nytimes.com/2024/08/26/business/kroger-albertsons-merger-union-workers.html
+**This Year Is on Track to Be the Deadliest Ever for Humanitarian Workers**\
+`The president of the International Federation of Red Cross and Red Crescent Societies makes an impassioned plea for protecting humanitarian aid workers.`\
+https://nytimes.com/2024/08/26/opinion/humanitarian-deaths-red-cross.html
 
-**Fare Evasion Surges on N.Y.C. Buses, Where 48% of Riders Fail to Pay**\
-`New York’s bus system has one of the worst fare evasion problems of any major city in the world. The problem is worse in the buses than in the subway.`\
-https://nytimes.com/2024/08/26/nyregion/nyc-bus-subway-fare-evasion.html
+**A 95-Square-Foot Caravan Inspired by Roald Dahl**\
+`The multimedia artist Yto Barrada has turned the tiny wagon in her Moroccan garden into a guesthouse.`\
+https://nytimes.com/2024/08/26/t-magazine/caravan-guesthouse-tangier-morocco.html
 
-**For His Second Trip to Space, Billionaire Has Grander, Riskier Aspirations**\
-`Jared Isaacman is leading three other privately trained astronauts on a SpaceX vehicle for Polaris Dawn, a mission that will include a daring spacewalk.`\
-https://nytimes.com/2024/08/26/science/spacex-polaris-dawn-mission-spacewalk.html
+**Republican Donors: Do You Know Where Your Money Goes?**\
+`We know the rules on political giving are broken, but so are the rules on spending.`\
+https://nytimes.com/2024/08/26/opinion/republican-donors-money-ttump.html
 
-**Real Madrid briefing: Endrick steals the Mbappe show, Guler in the Bellingham role and more**\
-`After last weekend's disappointing 1-1 draw at Mallorca, champions Madrid got their first win of the new La Liga season`\
-https://nytimes.com/athletic/5722905/2024/08/26/real-madrid-mbappe-endrick-bellingham-valladolid-guler/
+**A Brooch That Diana Vreeland Kept on Her Night Stand, Reimagined**\
+`A new Tiffany & Co. jewelry collection mines the archive of the designer Jean Schlumberger.`\
+https://nytimes.com/2024/08/26/t-magazine/tiffany-necklace-jean-schlumberger.html
 
-**Word of the Day: menial**\
-`This word has appeared in 38 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/08/26/learning/word-of-the-day-menial.html
+**Love Them or Hate Them, This Couple Reign in Russian Literature**\
+`For Richard Pevear and Larissa Volokhonsky, translating together extended naturally from their relationship as husband and wife. Now, it is their life’s work.`\
+https://nytimes.com/2024/08/26/books/larissa-volokhonsky-richard-pevear.html
 
