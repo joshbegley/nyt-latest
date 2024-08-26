@@ -1,3 +1,19 @@
+**The conflicts in Gaza and Lebanon remain stuck, even if a wider Middle East war has been averted for now, analysts say.**\
+`By Patrick Kingsley`\
+https://nytimes.com/live/2024/08/26/world/israel-hamas-gaza-war/the-conflicts-in-gaza-and-lebanon-remain-stuck-even-if-a-wider-middle-east-war-has-been-averted-for-now-analysts-say
+
+**Gaza cease-fire talks will continue in Cairo, officials say.**\
+`By Julian E. Barnes and James C. McKinley Jr.`\
+https://nytimes.com/live/2024/08/26/world/israel-hamas-gaza-war/gaza-cease-fire-talks-will-continue-in-cairo-officials-say
+
+**Israel’s Conflicts With Hamas and Hezbollah Show No Sign of Easing**\
+`After heavy Israel-Hezbollah strikes, the conflicts in Gaza and Lebanon remain stuck, even if a wider Middle East war has been averted for now, analysts say.`\
+https://nytimes.com/live/2024/08/26/world/israel-hamas-gaza-war
+
+**College Football Coaching Tiers: Who's rising and falling entering 2024?**\
+`We weighed everything from measurable success (including championships) to resources to length of track record and more.`\
+https://nytimes.com/athletic/5722244/2024/08/26/college-football-coach-2024-rankings-tiers/
+
 **Rashid Johnson Will Have Career Survey at Guggenheim in 2025**\
 `A major exhibition by the acclaimed artist will fill Frank Lloyd Wright’s rotunda with plants and artwork. Johnson stepped down from the Guggenheim’s board last year.`\
 https://nytimes.com/2024/08/26/arts/design/rashid-johnson-guggenheim.html
@@ -17,20 +33,4 @@ https://nytimes.com/2024/08/26/crosswords/spelling-bee-forum.html
 **A Trial Asks: If Grocery Rivals Merge, Do Workers Suffer?**\
 `As Kroger seeks to acquire Albertsons, federal regulators argue that the biggest supermarket combination in history will hurt not only consumers, but workers as well.`\
 https://nytimes.com/2024/08/26/business/kroger-albertsons-merger-union-workers.html
-
-**Fare Evasion Surges on N.Y.C. Buses, Where 48% of Riders Fail to Pay**\
-`New York’s bus system has one of the worst fare evasion problems of any major city in the world. The problem is worse in the buses than in the subway.`\
-https://nytimes.com/2024/08/26/nyregion/nyc-bus-subway-fare-evasion.html
-
-**For His Second Trip to Space, Billionaire Has Grander, Riskier Aspirations**\
-`Jared Isaacman is leading three other privately trained astronauts on a SpaceX vehicle for Polaris Dawn, a mission that will include a daring spacewalk.`\
-https://nytimes.com/2024/08/26/science/spacex-polaris-dawn-mission-spacewalk.html
-
-**Real Madrid briefing: Endrick steals the Mbappe show, Guler in the Bellingham role and more**\
-`After last weekend's disappointing 1-1 draw at Mallorca, champions Madrid got their first win of the new La Liga season`\
-https://nytimes.com/athletic/5722905/2024/08/26/real-madrid-mbappe-endrick-bellingham-valladolid-guler/
-
-**Word of the Day: menial**\
-`This word has appeared in 38 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/08/26/learning/word-of-the-day-menial.html
 
