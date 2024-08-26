@@ -1,3 +1,7 @@
+**Russia Pounds Ukraine With Missiles and Drones, Ukrainian Authorities Say**\
+`Kyiv and Kharkiv, the two biggest cities in Ukraine, were among those struck in what a top official called a “massive Russian attack,” that also hit energy infrastructure.`\
+https://nytimes.com/2024/08/26/world/europe/russia-ukraine-missiles-kyiv.html
+
 **This Week in Mets: Is Francisco Lindor having the best season ever by a Mets position player?**\
 `Beyond his bat, Lindor plays Gold Glove-caliber defense at a premium position, anchoring an otherwise mediocre defensive infield.`\
 https://nytimes.com/athletic/5723321/2024/08/26/mets-mlb-francisco-lindor-best-season/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5723329/2024/08/26/phillies-bryce-harper-taijuan-wa
 **No Evidence That Maduro Won, a Top Venezuelan Election Official Says**\
 `In an interview with The New York Times, an electoral council official expressed grave doubts about claims to victory by the authoritarian president, Nicolás Maduro.`\
 https://nytimes.com/2024/08/26/world/americas/maduro-venezuela-election-results.html
-
-**Harris Has the Momentum. But Trump Has the Edge on What Matters Most.**\
-`With early voting only weeks away, the race is still a close one.`\
-https://nytimes.com/live/2024/08/20/opinion/thepoint/harris-trump-election-polls
 
