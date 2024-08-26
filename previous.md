@@ -1,3 +1,7 @@
+**Wave of Attacks Rattles a Restive Province in Pakistan**\
+`At least 38 people have been killed in several assaults across Baluchistan Province since Sunday in what appears to be part of a campaign by armed separatists in the region.`\
+https://nytimes.com/2024/08/26/world/asia/pakistan-baluchistan-attacks.html
+
 **Can You Guess These Novels That Originally Got Bad Times Reviews?**\
 `Some works that went on to become popular literary classics first got mixed or bad reviews. Try this short quiz to see if you recognize the novels as described by their original reviewers in The Times.`\
 https://nytimes.com/interactive/2024/08/26/books/booksupdate/panned-books-quiz.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5722738/2024/08/26/eddie-nketiah-crystal-palace-tra
 **Burnley agree deal to sign Man United's Hannibal**\
 `Burnley have agreed a deal to sign Hannibal Mejbri from Manchester United on loan with an obligation to buy.`\
 https://nytimes.com/athletic/5723706/2024/08/26/hannibal-mejbri-burnley-man-united-transfers/
-
-**Browns' Chubb to miss at least first 4 games: Sources**\
-`In 2023, Jerome Ford filled some of Chubb's void in the Browns' offense, totaling 813 yards on 204 carries as the fill-in starter.`\
-https://nytimes.com/athletic/5723897/2024/08/26/nick-chubb-injury-start-pup-list-browns/
 

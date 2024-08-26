@@ -1,3 +1,7 @@
+**Wave of Attacks Rattles a Restive Province in Pakistan**\
+`At least 38 people have been killed in several assaults across Baluchistan Province since Sunday in what appears to be part of a campaign by armed separatists in the region.`\
+https://nytimes.com/2024/08/26/world/asia/pakistan-baluchistan-attacks.html
+
 **Can You Guess These Novels That Originally Got Bad Times Reviews?**\
 `Some works that went on to become popular literary classics first got mixed or bad reviews. Try this short quiz to see if you recognize the novels as described by their original reviewers in The Times.`\
 https://nytimes.com/interactive/2024/08/26/books/booksupdate/panned-books-quiz.html
