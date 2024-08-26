@@ -1,3 +1,11 @@
+**The 100 Best Books of the 21st Century: A Printable List**\
+`Print this version to keep track of what you’ve read and what you’d like to read.`\
+https://nytimes.com/interactive/2024/08/26/books/21c-checklist-printable.html
+
+**Gus Walz Brought Out Both the Joy and the Cruelty**\
+`He deserved the kind of treatment any person does.`\
+https://nytimes.com/2024/08/26/opinion/gus-walz-cry-dnc.html
+
 **What Kamala Harris Needs to Do to Take on China**\
 `Washington cannot win “the competition for the 21st century” against Beijing by itself.`\
 https://nytimes.com/2024/08/26/opinion/kamala-harris-china.html
