@@ -1,3 +1,11 @@
+**Why defending a Grand Slam title is so difficult - and how Coco Gauff plans to do it**\
+`The U.S. Open champion is balancing the aura and pressure of defending a title in Flushing Meadows. Other players know how tough it is.`\
+https://nytimes.com/athletic/5724817/2024/08/26/why-defending-grand-slam-tennis-title-rare/
+
+**Kroger’s Nearly $25 Billion Merger Is Bad for Shoppers, F.T.C. Says**\
+`The Federal Trade Commission, which is trying to block Kroger’s plan to acquire Albertsons, said in court that the merger of grocery giants would also hurt workers’ pay and benefits.`\
+https://nytimes.com/2024/08/26/business/economy/ftc-kroger-albertsons-merger-court.html
+
 **Harris and Trump Squabbled Over Debate Rules**\
 `Also, Russia attacked Ukraine’s energy infrastructure. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2024/08/26/briefing/trump-harris-debate-russia-ukraine-strikes.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/26/briefing/ukraine-russia-harris-trump-pakistan.htm
 **Eric Butler, 49, Dies; Promoted ‘Restorative Justice’ for Young People**\
 `As a counselor, he embraced an alternative to “zero tolerance” disciplinary policies that are disproportionately meted out to Black students.`\
 https://nytimes.com/2024/08/26/us/eric-butler-dead.html
-
-**Dam Collapse Devastates Region in Eastern Sudan**\
-`The Arba’at dam fell apart after days of heavy rain, killing villagers and flooding communities.`\
-https://nytimes.com/2024/08/26/world/africa/sudan-arbaat-dam-collapse.html
-
-**Wisconsin Week 1 depth chart: Injury sparks more D-line questions**\
-`Fickell confirmed Monday that starting defensive lineman James Thompson Jr. had surgery last week and could miss the entire season.`\
-https://nytimes.com/athletic/5724738/2024/08/26/wisconsin-college-football-depth-chart-week-1/
 
