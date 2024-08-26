@@ -1,3 +1,7 @@
+**Word of the Day: menial**\
+`This word has appeared in 38 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/26/learning/word-of-the-day-menial.html
+
 **Quotation of the Day: From War’s Carnage Springs a Renaissance of Ukrainian Poetry**\
 `Quotation of the Day for Monday, August 26, 2024.`\
 https://nytimes.com/2024/08/26/pageoneplus/quotation-of-the-day-from-wars-carnage-springs-a-renaissance-of-ukrainian-poetry.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5721310/2024/08/26/everton-start-sean-dyche/
 **Aston Villa's "chess" games with Arsenal followed the trend of congested central areas and finishing being the difference**\
 `Unai Emery took a lot of heart from Villa's display in the defeat to Arsenal - his battles with Mikel Arteta are decided by fine margins`\
 https://nytimes.com/athletic/5721011/2024/08/26/aston-villa-and-arsenals-matches-have-become-a-meeting-of-chess-grandmasters/
-
-**Leicester need to add bite and brawn to their front line - a crucial week awaits**\
-`Steve Cooper would not be drawn on additions, but his newly-promoted side need a forward with more physicality to compete in the top flight`\
-https://nytimes.com/athletic/5721878/2024/08/26/leicester-cooper-forwards-transfers/
 
