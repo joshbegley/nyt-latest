@@ -1,3 +1,11 @@
+**Another New Leader for Indianapolis Museum Roiled by Racism Outcry**\
+`Le Monte Booker will be the institution’s third leader in four years. The previous president and chief executive left last year after just over a year on the job.`\
+https://nytimes.com/2024/08/26/arts/design/indianapolis-museum-le-monte-booker.html
+
+**U.S. will keep the Roosevelt aircraft carrier in the Middle East, amid tensions.**\
+`By Eric Schmitt`\
+https://nytimes.com/live/2024/08/26/world/israel-hamas-gaza-war/us-will-keep-the-roosevelt-aircraft-carrier-in-the-middle-east-amid-tensions
+
 **Barcelona set to register Olmo**\
 `Dani Olmo’s La Liga’s registration as a Barcelona player is set to be temporarily approved by the competition body, meaning he is now likely to make his debut on Tuesday at Rayo Vallecano.`\
 https://nytimes.com/athletic/5724435/2024/08/26/barcelona-dani-olmo-registered/
