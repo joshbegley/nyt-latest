@@ -1,3 +1,7 @@
+**Could Yankees’ Aaron Judge hit 73 home runs someday? Teammates weigh in**\
+`“If there’s any guy in the league who can” surpass Barry Bonds, right fielder Juan Soto said, “it’s going to be (Judge).”`\
+https://nytimes.com/athletic/5723121/2024/08/25/yankees-aaron-judge-barry-bonds-home-run-record/
+
 **Final Broncos 53-man roster projection after Denver wraps up 3-0 preseason**\
 `Zach Wilson's strong performance in a rout of the Cardinals likely cemented his spot on the Broncos' roster.`\
 https://nytimes.com/athletic/5722742/2024/08/25/broncos-53-man-roster-projection-final/
