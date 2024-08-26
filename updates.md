@@ -1,3 +1,7 @@
+**The Coming War Nobody Is Talking About**\
+`East Africa is on the cusp of conflict.`\
+https://nytimes.com/2024/08/26/opinion/ethiopia-somalia-conflict.html
+
 **Monday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2024/08/26/briefing/monday-briefing-israel-hezbollah-germany.html

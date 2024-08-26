@@ -1,3 +1,7 @@
+**The Coming War Nobody Is Talking About**\
+`East Africa is on the cusp of conflict.`\
+https://nytimes.com/2024/08/26/opinion/ethiopia-somalia-conflict.html
+
 **Monday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2024/08/26/briefing/monday-briefing-israel-hezbollah-germany.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5721878/2024/08/26/leicester-cooper-forwards-transf
 **Nottingham Forest embrace streetwise approach to pose a threat on the road**\
 `Forest have leant heavily on home form to preserve Premier League status, but their win at Southampton was a third in a row on their travels`\
 https://nytimes.com/athletic/5721833/2024/08/26/forest-away-milenkovic-nuno-southampton/
-
-**How Crystal Palace crumbled after a week of disruption: 'We were a little bit shaken'**\
-`Oliver Glasner admitted his players had been unsettled after seeing Joachim Andersen and Jordan Ayew depart - with reinforcements required`\
-https://nytimes.com/athletic/5709496/2024/08/26/crystal-palace-glasner-andersen-ayew-guehi/
 
