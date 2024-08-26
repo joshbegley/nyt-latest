@@ -1,3 +1,7 @@
+**What AD Pat Kraft's contract extension means for Penn State football**\
+`Kraft's contract runs through June 30, 2032 with an average compensation of $2.26 million per year.`\
+https://nytimes.com/athletic/5724995/2024/08/26/penn-state-athletic-director-pat-kraft-college-football/
+
 **Notre Dame's depth chart release: 4 thoughts on the Irish heading into Week 1**\
 `Notre Dame plans to take one of the least experienced offensive lines in school history into raucous Kyle Field on Saturday night.`\
 https://nytimes.com/athletic/5724935/2024/08/26/notre-dame-depth-chart-texas-am/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/26/us/vegetarian-restaurants-nyc.html
 **Prosecutors Appeal Dismissal of Trump Documents Case**\
 `The special counsel, Jack Smith, argued that Judge Aileen Cannon had erred in throwing out charges against Donald Trump of improperly holding national security secrets after leaving office.`\
 https://nytimes.com/2024/08/26/us/politics/trump-documents-appeal-jack-smith.html
-
-**Solomon's Leeds move set to be completed on Tuesday**\
-`Manor Solomon is set to complete his move from Tottenham Hotspur to Leeds United on Tuesday.`\
-https://nytimes.com/athletic/5722188/2024/08/26/manor-solomon-leeds-transfer-tottenham/
 
