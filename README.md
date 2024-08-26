@@ -1,3 +1,7 @@
+**Assassination Task Force Visits Butler as Right Wing Promises a ‘Parallel’ Inquiry**\
+`As members of the newly formed bipartisan task force investigating the assassination attempt on former President Donald J. Trump began their work, some hard-right Republicans were already warning of a cover-up.`\
+https://nytimes.com/2024/08/26/us/politics/trump-assassination-task-force-visits-site.html
+
 **Jill Stein Will Remain on the Ballot in Wisconsin After Court Order**\
 `The Wisconsin Supreme Court denied a Democratic challenge to the Green Party candidate’s ballot access in the state.`\
 https://nytimes.com/2024/08/26/us/politics/jill-stein-wisconsin.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/26/us/new-orleans-appeals-court-trump.html
 **What AD Pat Kraft's contract extension means for Penn State football**\
 `Kraft's contract runs through June 30, 2032 with an average compensation of $2.26 million per year.`\
 https://nytimes.com/athletic/5724995/2024/08/26/penn-state-athletic-director-pat-kraft-college-football/
-
-**Notre Dame's depth chart release: 4 thoughts on the Irish heading into Week 1**\
-`Notre Dame plans to take one of the least experienced offensive lines in school history into raucous Kyle Field on Saturday night.`\
-https://nytimes.com/athletic/5724935/2024/08/26/notre-dame-depth-chart-texas-am/
 
