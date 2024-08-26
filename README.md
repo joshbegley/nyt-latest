@@ -1,3 +1,7 @@
+**Packers acquiring QB Malik Willis from Titans**\
+`The deal comes after Sean Clifford, Jordan Love’s backup in 2023, had an underwhelming camp.`\
+https://nytimes.com/athletic/5725266/2024/08/26/malik-willis-packers-titans-trade/
+
 **Inflation Is Fading, Statistically and Politically**\
 `The cost of living may not be the G.O.P.’s, um, trump card.`\
 https://nytimes.com/2024/08/26/opinion/inflation-trump-harris-powell.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5725097/2024/08/26/ceedee-lamb-contract-mccarthy-co
 **Democrats Sue Georgia Election Board, Warning of ‘Chaos’**\
 `The board recently passed new rules aimed at altering the process for certifying elections. The lawsuit says such changes are illegal.`\
 https://nytimes.com/2024/08/26/us/elections/georgia-elections-lawsuit-democrats.html
-
-**Three Los Angeles Museums Team Up to Acquire Art**\
-`The Hammer, LACMA and MOCA are establishing a joint collection, starting off with a gift of 260 works from the collectors Jarl and Pamela Mohn.`\
-https://nytimes.com/2024/08/26/arts/design/hammer-lacma-moca-museums-los-angeles-collection.html
 
