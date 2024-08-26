@@ -1,5 +1,5 @@
-**Alabama High School Quarterback Dies After Sustaining Head Injury**\
-`Caden Tellier suffered a critical brain injury after being tackled in the third quarter of a game on Friday night, school officials in Selma said.`\
+**Alabama High School Football Player Dies After Sustaining Head Injury**\
+`Caden Tellier, a quarterback, suffered a critical brain injury after being tackled in the third quarter of a game on Friday night, school officials in Selma said.`\
 https://nytimes.com/2024/08/26/us/alabama-high-school-football-death.html
 
 **Scoop City: Risers and fallers after preseason**\
