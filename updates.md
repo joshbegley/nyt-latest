@@ -1,3 +1,15 @@
+**Brighton complete O'Riley signing**\
+`Brighton &amp; Hove Albion have completed the signing of Matt O&#8217;Riley from Celtic.`\
+https://nytimes.com/athletic/5720745/2024/08/26/brighton-matt-oriley-transfer/
+
+**Deion Sanders partners with bank to open accounts for players' children**\
+`The children of the eight players on Colorado's team will receive $2,121, a nod to Sanders’ signature number. `\
+https://nytimes.com/athletic/5724023/2024/08/26/deion-sanders-colorado-bank-children/
+
+**Learner Tien's 28-match win streak earned a U.S. Open wildcard - now just one win will do**\
+`The 18-year-old talent didn't grow up in awe of tennis. Instead, he picked up a racket, and the sport - and some kismet - did the rest`\
+https://nytimes.com/athletic/5723060/2024/08/26/learner-tien-us-open-tennis-win-streak/
+
 **Deion Sanders partners with bank to open accounts for players' children**\
 `The children of the eight players on Colorado's team will receive $2,121, a nod to Sanders’ signature number. `\
 https://nytimes.com/athletic/5724023/2024/08/26/deion-sanders-colorado-bank-chiildren/
