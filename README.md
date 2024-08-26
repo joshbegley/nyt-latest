@@ -1,3 +1,11 @@
+**Democrats Sue Georgia Election Board, Warning of ‘Chaos’**\
+`The board recently passed new rules aimed at altering the process for certifying elections. The lawsuit says such changes are illegal.`\
+https://nytimes.com/2024/08/26/us/elections/georgia-elections-lawsuit-democrats.html
+
+**Three Los Angeles Museums Team Up to Acquire Art**\
+`The Hammer, LACMA and MOCA are establishing a joint collection, starting off with a gift of 260 works from the collectors Jarl and Pamela Mohn.`\
+https://nytimes.com/2024/08/26/arts/design/hammer-lacma-moca-museums-los-angeles-collection.html
+
 **Assassination Task Force Visits Butler as Right Wing Promises a ‘Parallel’ Inquiry**\
 `As members of the newly formed bipartisan task force investigating the assassination attempt on former President Donald J. Trump began their work, some hard-right Republicans were already warning of a cover-up.`\
 https://nytimes.com/2024/08/26/us/politics/trump-assassination-task-force-visits-site.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/26/briefing/trump-harris-debate-russia-ukraine-strik
 **Deadly Landslide Strikes Ketchikan, Alaska**\
 `The disaster killed one person and injured three in the town. Researchers said heavy rains preceding the disaster may have played a role.`\
 https://nytimes.com/2024/08/26/climate/alaska-landslide-ketchikan.html
-
-**How a Federal Court in New Orleans Is Driving the Conservative Agenda**\
-`Today, the U.S. Fifth Circuit Court of Appeals is an outlier. But a Trump victory in November could transform it into the standard-bearer of MAGA-era jurisprudence.`\
-https://nytimes.com/2024/08/26/us/new-orleans-appeals-court-trump.html
-
-**What AD Pat Kraft's contract extension means for Penn State football**\
-`Kraft's contract runs through June 30, 2032 with an average compensation of $2.26 million per year.`\
-https://nytimes.com/athletic/5724995/2024/08/26/penn-state-athletic-director-pat-kraft-college-football/
 
