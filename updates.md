@@ -1,3 +1,7 @@
+**Trump Still ‘Thinking About’ Participating in Presidential Debate**\
+`During a campaign stop in northern Virginia, Donald Trump raised the possibility of not participating in the presidential debate with Vice President Kamala Harris on ABC News, claiming that the network’s executives and anchors were biased against him.`\
+https://nytimes.com/video/us/elections/100000009657751/trump-debate-rules.html
+
 **Russia Strikes Ukrainian Cities With Missiles and Drones**\
 `Cities across Ukraine were hit in a widespread attack that also targeted energy infrastructure, Ukrainian officials said.`\
 https://nytimes.com/video/world/europe/100000009657350/russia-ukraine-strikes.html

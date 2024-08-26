@@ -1,3 +1,7 @@
+**Trump Still ‘Thinking About’ Participating in Presidential Debate**\
+`During a campaign stop in northern Virginia, Donald Trump raised the possibility of not participating in the presidential debate with Vice President Kamala Harris on ABC News, claiming that the network’s executives and anchors were biased against him.`\
+https://nytimes.com/video/us/elections/100000009657751/trump-debate-rules.html
+
 **Russia Strikes Ukrainian Cities With Missiles and Drones**\
 `Cities across Ukraine were hit in a widespread attack that also targeted energy infrastructure, Ukrainian officials said.`\
 https://nytimes.com/video/world/europe/100000009657350/russia-ukraine-strikes.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/26/business/uber-netherlands-fine-driver-data.html
 **Austin's Mock's 5 best bets for college football Week 1**\
 `Austin Mock shares his five best bets for college football Week 1, plus the best value for each line as it moves.`\
 https://nytimes.com/athletic/5723922/2024/08/26/college-football-week-1-best-bets-north-carolina-florida-miami/
-
-**Will Bengals deal at cutdown day? What team's history shows about trades, waivers**\
-`Is there another Billy Price-like heist to be had and could Samaje Perine make a return to Cincinnati?`\
-https://nytimes.com/athletic/5724168/2024/08/26/bengals-trades-waivers-cutdown-day/
 
