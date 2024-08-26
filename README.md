@@ -1,6 +1,18 @@
+**Uber Fined $324 Million by Dutch Watchdog Over Driver Data Protection**\
+`The authorities in the Netherlands said the ride-hailing company had violated European data protection laws when it sent sensitive information to the United States.`\
+https://nytimes.com/2024/08/26/business/uber-netherlands-fine-driver-data.html
+
+**Austin's Mock's 5 best bets for college football Week 1**\
+`Austin Mock shares his five best bets for college football Week 1, plus the best value for each line as it moves.`\
+https://nytimes.com/athletic/5723922/2024/08/26/college-football-week-1-best-bets-north-carolina-florida-miami/
+
 **Will Bengals deal at cutdown day? What team's history shows about trades, waivers**\
 `Is there another Billy Price-like heist to be had and could Samaje Perine make a return to Cincinnati?`\
 https://nytimes.com/athletic/5724168/2024/08/26/bengals-trades-waivers-cutdown-day/
+
+**USMNT Player Tracker: McKennie reward, Pulisic parla Italiano and Estrela's Sporting chance**\
+`The high-profile members of the USMNT's European contingent endured a sense of deja vu as they embarked upon new domestic club campaigns`\
+https://nytimes.com/athletic/5723670/2024/08/26/usmnt-mckennie-pulisic-estrela-tracker/
 
 **NWSLPA announces initial list of eligible free agents**\
 `“On Women’s Equality Day, we celebrate the pioneers who fought tirelessly to win the right to vote,” Tori Huster, NWSLPA president, said.`\
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5722811/2024/08/26/sven-goran-eriksson-england/
 **Trump and Harris Embody a Stark Partisan Divide on Fighting Poverty**\
 `The two presidential candidates can both point to records of pushing poverty rates down, but their approaches could hardly be more different.`\
 https://nytimes.com/2024/08/26/us/politics/trump-harris-poverty-policies.html
-
-**Canada Will Impose 100% Tariffs on Chinese Electric Vehicles**\
-`The new tariffs announced by Prime Minister Justin Trudeau will match levies imposed by President Biden and could further strain relations between Canada and China.`\
-https://nytimes.com/2024/08/26/business/canada-ev-tariffs-china.html
-
-**San Francisco Giants week in review: Another .500 week within a .500 season**\
-`The Giants' journey towards a .500 continued unabated, as they won three and lost three, even though they played a series against Chicago.`\
-https://nytimes.com/athletic/5723385/2024/08/26/sf-giants-week-in-review-500-record/
-
-**Duke's Cooper Flagg signs shoe deal with New Balance**\
-`The reigning Gatorade National Player of the Year and five-star recruit grew up just 25 miles from New Balance’s manufacturing plant.`\
-https://nytimes.com/athletic/5724179/2024/08/26/cooper-flagg-duke-new-balance-shoe/
 
