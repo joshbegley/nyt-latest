@@ -1,3 +1,7 @@
+**Sean McVay on Ernest Jones trade talk, more**\
+`McVay discussed the Rams' potential issues on the O-line and how other injured players are coming along.`\
+https://nytimes.com/athletic/5724721/2024/08/26/rams-ernest-jones-trade-alaric-jackson-suspension/
+
 **The 100 Best Books of the 21st Century: A Printable List**\
 `Print this version to keep track of what you’ve read and what you’d like to read.`\
 https://nytimes.com/interactive/2024/08/26/books/21c-checklist-printable.html
