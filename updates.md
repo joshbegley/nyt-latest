@@ -1,3 +1,7 @@
+**Wisconsin Week 1 depth chart: Injury sparks more D-line questions**\
+`Fickell confirmed Monday that starting defensive lineman James Thompson Jr. had surgery last week and could miss the entire season.`\
+https://nytimes.com/athletic/5724738/2024/08/26/wisconsin-college-football-depth-chart-week-1/
+
 **Evacuations halt the U.N.’s humanitarian missions in Gaza, at least temporarily.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/08/26/world/israel-hamas-gaza-war/evacuations-halt-the-uns-humanitarian-missions-in-gaza-at-least-temporarily

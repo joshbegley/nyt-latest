@@ -1,3 +1,7 @@
+**Wisconsin Week 1 depth chart: Injury sparks more D-line questions**\
+`Fickell confirmed Monday that starting defensive lineman James Thompson Jr. had surgery last week and could miss the entire season.`\
+https://nytimes.com/athletic/5724738/2024/08/26/wisconsin-college-football-depth-chart-week-1/
+
 **Evacuations halt the U.N.’s humanitarian missions in Gaza, at least temporarily.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/08/26/world/israel-hamas-gaza-war/evacuations-halt-the-uns-humanitarian-missions-in-gaza-at-least-temporarily
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/26/us/lake-mead-rock-formations-indicted.html
 **Liverpool considering move for Juventus' Chiesa**\
 `Liverpool are considering a move for Juventus winger Federico Chiesa.`\
 https://nytimes.com/athletic/5724589/2024/08/26/federico-chiesa-liverpool-juventus-transfer/
-
-**Sean Combs Fights Lawsuit by Music Producer Alleging Sexual Misconduct**\
-`The hip-hop mogul’s lawyers are seeking the dismissal of a suit from Rodney Jones Jr., arguing it is baseless and “replete with far-fetched tales of misconduct.”`\
-https://nytimes.com/2024/08/26/arts/music/diddy-sean-combs-rodney-jones-dismiss.html
 
