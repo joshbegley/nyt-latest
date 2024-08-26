@@ -1,3 +1,7 @@
+**U.S. Open today: What to watch at the Billie Jean King Tennis Center on day two**\
+`Follow live coverage of the U.`\
+https://nytimes.com/athletic/5724431/2024/08/26/us-open-2024-watch-guide-day-2-sinner-alcaraz-swiatek/
+
 **Packers acquiring QB Malik Willis from Titans**\
 `The deal comes after Sean Clifford, Jordan Love’s backup in 2023, had an underwhelming camp.`\
 https://nytimes.com/athletic/5725266/2024/08/26/malik-willis-packers-titans-trade/
