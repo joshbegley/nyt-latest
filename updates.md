@@ -1,3 +1,19 @@
+**Is This the Edinburgh Fringe, or a Wellness Convention?**\
+`Grief narratives were in vogue, and psychological maladies, too, at the annual Scottish arts showcase.`\
+https://nytimes.com/2024/08/27/theater/edinburgh-fringe.html
+
+**How to Turn August Grilling Into Autumn Grilling**\
+`With the right gear — and excellent recipes — you can keep grilling well past Labor Day weekend.`\
+https://nytimes.com/2024/08/27/dining/how-to-turn-august-grilling-into-autumn-grilling.html
+
+**Israeli Military Rescues Eighth Hostage Alive From Gaza**\
+`Israeli soldiers and special forces found Farhan al-Qadi by chance as they were combing through a tunnel network in southern Gaza.`\
+https://nytimes.com/video/world/middleeast/100000009659803/israel-hostage-rescue.html
+
+**Oklahoma's DeMarco Murray suspended for recruiting violations**\
+`The NCAA announced punishments on Tuesday for recruiting violations committed by the Oklahoma football program, including a one-game suspension for DeMarco Murray, the Sooners running backs coach and former NFL All-Pro, for contacting recruits prior to permissible contact periods.`\
+https://nytimes.com/athletic/5726630/2024/08/27/oklahoma-football-demarco-murray-suspended-ncaa/
+
 **Patriots cut Zappe; Purdy, Thompson only '22 QBs still with drafting team**\
 `Only two of the nine quarterbacks taken in the 2022 NFL Draft remain with the team that selected them`\
 https://nytimes.com/athletic/5726614/2024/08/27/bailey-zappe-patriots-release/

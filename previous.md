@@ -1,5 +1,17 @@
+**Is This the Edinburgh Fringe, or a Wellness Convention?**\
+`Grief narratives were in vogue, and psychological maladies, too, at the annual Scottish arts showcase.`\
+https://nytimes.com/2024/08/27/theater/edinburgh-fringe.html
+
+**How to Turn August Grilling Into Autumn Grilling**\
+`With the right gear — and excellent recipes — you can keep grilling well past Labor Day weekend.`\
+https://nytimes.com/2024/08/27/dining/how-to-turn-august-grilling-into-autumn-grilling.html
+
+**Israeli Military Rescues Eighth Hostage Alive From Gaza**\
+`Israeli soldiers and special forces found Farhan al-Qadi by chance as they were combing through a tunnel network in southern Gaza.`\
+https://nytimes.com/video/world/middleeast/100000009659803/israel-hostage-rescue.html
+
 **Oklahoma's DeMarco Murray suspended for recruiting violations**\
-`The NCAA announced punishments on Tuesday for recruiting violations committed by the Oklahoma football program, including a one-game suspension for DeMarco Murray, the Sooners running backs coach and former NFL All-Pro, for impermissibly contacting recruits during a dead period.`\
+`The NCAA announced punishments on Tuesday for recruiting violations committed by the Oklahoma football program, including a one-game suspension for DeMarco Murray, the Sooners running backs coach and former NFL All-Pro, for contacting recruits prior to permissible contact periods.`\
 https://nytimes.com/athletic/5726630/2024/08/27/oklahoma-football-demarco-murray-suspended-ncaa/
 
 **Wolves close to agreement for Palace's Johnstone**\
@@ -21,16 +33,4 @@ https://nytimes.com/2024/08/27/upshot/connections-bot-faq.html
 **USMNT midfielder Tanner Tessmann joins Lyon from Venezia**\
 `Lyon have completed the signing of USMNT midfielder Tanner Tessmann from Venezia.`\
 https://nytimes.com/athletic/5726644/2024/08/27/tanner-tessmann-lyon-usmnt-transfer/
-
-**A Pianist Who’s Not Afraid to Improvise on Mozart**\
-`Robert Levin has long argued that Mozart would have made up new material while performing, and he follows the master in a series of dazzling recordings.`\
-https://nytimes.com/2024/08/27/arts/music/robert-levin-mozart-keyboard.html
-
-**Russia Bombards Ukrainian Cities for a Second Day**\
-`An early morning barrage hit several locations across Ukraine, including a hotel in Kryvyi Rih where at least four people were killed and several others wounded, Ukrainian officials said.`\
-https://nytimes.com/video/world/europe/100000009659644/ukraine-russia-missile-drone-attacks.html
-
-**How RFK Jr. Went From Environmental Champion to Trump Backer**\
-`Kennedy’s former co-workers in the environmental movement aren’t surprised that he endorsed Trump, who has called climate change a “hoax.”`\
-https://nytimes.com/2024/08/27/climate/rfk-jr-trump-climate-change.html
 
