@@ -1,3 +1,7 @@
+**Liverpool sign Mamardashvili from Valencia**\
+`Liverpool have completed the signing of goalkeeper Giorgi Mamardashvili from Valencia.`\
+https://nytimes.com/athletic/5724171/2024/08/27/liverpool-mamardashvili-transfer-loan-complete/
+
 **Rams trading LB Ernest Jones to Titans: Sources**\
 `Jones is coming off a 2023 season where he picked up 145 total tackles and 4 1/2 sacks.`\
 https://nytimes.com/athletic/5726914/2024/08/27/ernest-jones-rams-titans-trade/
