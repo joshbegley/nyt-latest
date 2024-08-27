@@ -1,3 +1,7 @@
+**Word of the Day: hatchling**\
+`This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/27/learning/word-of-the-day-hatchling.html
+
 **Corrections: Aug. 27, 2024**\
 `Corrections that appeared in print on Tuesday, Aug. 27, 2024.`\
 https://nytimes.com/2024/08/27/pageoneplus/corrections-aug-27-2024.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5725462/2024/08/27/us-open-american-tennis-shelton-
 **Rutter to Brighton - inside the deal: How last-minute bid sealed club-record signing**\
 `Brighton triggered Rutter's £40m release clause at Leeds on the night it was due to expire. This is why they did it...`\
 https://nytimes.com/athletic/5711318/2024/08/27/georginio-rutter-brighton-transfers/
-
-**Do Real Madrid have a problem with ACL injuries?**\
-`Real Madrid have suffered six anterior cruciate ligament problems over the past 12 months. Here's how the club views things`\
-https://nytimes.com/athletic/5723628/2024/08/27/real-madrid-acl-injuries-camavinga-militao-alaba/
 

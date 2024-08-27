@@ -1,3 +1,7 @@
+**Word of the Day: hatchling**\
+`This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/27/learning/word-of-the-day-hatchling.html
+
 **Corrections: Aug. 27, 2024**\
 `Corrections that appeared in print on Tuesday, Aug. 27, 2024.`\
 https://nytimes.com/2024/08/27/pageoneplus/corrections-aug-27-2024.html
