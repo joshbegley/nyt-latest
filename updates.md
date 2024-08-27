@@ -1,3 +1,7 @@
+**Who Is Qaid Farhan al-Qadi, the Rescued Hostage?**\
+`Mr. al-Qadi, a member of Israel’s Bedouin Arab minority, was working as a security guard at Kibbutz Magen, near the Gaza border, when he was abducted.`\
+https://nytimes.com/2024/08/27/world/middleeast/who-is-qaid-farhan-al-qadi-israel-hostage.html
+
 **Goalkeeper Szczesny retires from football**\
 `Former Juventus and Arsenal goalkeeper Wojciech Szczesny has announced his retirement from professional football at the age of 34.`\
 https://nytimes.com/athletic/5555518/2024/08/27/wojciech-szczesny-retires-juventus/
