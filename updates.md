@@ -1,3 +1,15 @@
+**2 Dead, 1 Injured at Delta Maintenance Facility Near Atlanta Airport**\
+`The workers were at the “wheel and brake shop” of the maintenance facility when the accident occurred, Delta said.`\
+https://nytimes.com/2024/08/27/us/delta-atlanta-deaths.html
+
+**Danielle Collins upset by Caroline Dolehide in final Grand Slam tournament**\
+`NEW YORK — This isn&#8217;t how it was supposed to be.`\
+https://nytimes.com/athletic/5726839/2024/08/27/danielle-collins-us-open-caroline-dolehide/
+
+**Anaheim Ducks shift games away from Bally Sports, announce free streaming option**\
+`Victory+ will be the Ducks' main partner for local broadcasts and other programming.`\
+https://nytimes.com/athletic/5725635/2024/08/27/anaheim-ducks-tv-schedule-streaming/
+
 **9 Surprising Songs Sampled in Classic Hip-Hop Tracks**\
 `Hear where moments of Kraftwerk, Enya, Herb Alpert and more ended up in producers’ deft hands.`\
 https://nytimes.com/2024/08/27/arts/music/amplifier-newsletter-hip-hop-samples.html

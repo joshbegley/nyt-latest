@@ -1,3 +1,15 @@
+**2 Dead, 1 Injured at Delta Maintenance Facility Near Atlanta Airport**\
+`The workers were at the “wheel and brake shop” of the maintenance facility when the accident occurred, Delta said.`\
+https://nytimes.com/2024/08/27/us/delta-atlanta-deaths.html
+
+**Danielle Collins upset by Caroline Dolehide in final Grand Slam tournament**\
+`NEW YORK — This isn&#8217;t how it was supposed to be.`\
+https://nytimes.com/athletic/5726839/2024/08/27/danielle-collins-us-open-caroline-dolehide/
+
+**Anaheim Ducks shift games away from Bally Sports, announce free streaming option**\
+`Victory+ will be the Ducks' main partner for local broadcasts and other programming.`\
+https://nytimes.com/athletic/5725635/2024/08/27/anaheim-ducks-tv-schedule-streaming/
+
 **9 Surprising Songs Sampled in Classic Hip-Hop Tracks**\
 `Hear where moments of Kraftwerk, Enya, Herb Alpert and more ended up in producers’ deft hands.`\
 https://nytimes.com/2024/08/27/arts/music/amplifier-newsletter-hip-hop-samples.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5726198/2024/08/27/joao-cancelo-al-hilal-transfer-m
 **Tiny Love Stories: ‘I Love Your Pigtails’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/08/27/style/tiny-modern-love-stories-i-love-your-pigtails.html
-
-**Mikel Merino to Arsenal: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500 series, we look at Mikel Merino's move to Arsenal`\
-https://nytimes.com/athletic/5668118/2024/08/27/mikel-merino-to-arsenal-the-athletic-500-transfer-ratings/
-
-**Oasis: Timeline of a Sibling Rivalry for the Ages**\
-`When Liam and Noel Gallagher get together, hide the tambourines.`\
-https://nytimes.com/2024/08/27/arts/music/oasis-reunion-gallagher-breakup-feud.html
-
-**Which NFL players have been added to the PUP list? Explaining the rules and differences**\
-`Players such as Cleveland Browns RB Nick Chubb and Minnesota Vikings TE T.J. Hockenson are on PUP to start the 2024 regular season.`\
-https://nytimes.com/athletic/5726470/2024/08/27/nfl-pup-list-rules-faq/
 
