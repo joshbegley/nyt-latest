@@ -1,3 +1,7 @@
+**Clarity on O-line, linebacker lineups: Projecting Ohio State's Week 1 depth chart**\
+`Coach Ryan Day offered insights Tuesday into what to expect the lineup to look like Saturday against Akron. `\
+https://nytimes.com/athletic/5727024/2024/08/27/ohio-state-football-depth-chart-week-one/
+
 **Astros close to signing Jason Heyward: Sources**\
 `The Los Angeles Dodgers designated Heyward for assignment last week to clear a roster spot for Chris Taylor.`\
 https://nytimes.com/athletic/5727027/2024/08/27/jason-heyward-astros-signing/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/27/style/us-open-gala.html
 **Mamardashvili and a 'special power' that set him on the path to Liverpool**\
 `The Georgian has always been talented, but it is his mentality that impressed those who have known him longest`\
 https://nytimes.com/athletic/5724183/2024/08/27/giorgi-mamardashvili-liverpool-transfer-profile/
-
-**Liverpool working to complete Chiesa transfer from Juventus**\
-`Liverpool are working to complete the signing of Federico Chiesa before the transfer market shuts.`\
-https://nytimes.com/athletic/5724919/2024/08/27/liverpool-chiesa-transfer-juventus/
 

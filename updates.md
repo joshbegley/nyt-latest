@@ -1,3 +1,7 @@
+**Clarity on O-line, linebacker lineups: Projecting Ohio State's Week 1 depth chart**\
+`Coach Ryan Day offered insights Tuesday into what to expect the lineup to look like Saturday against Akron. `\
+https://nytimes.com/athletic/5727024/2024/08/27/ohio-state-football-depth-chart-week-one/
+
 **Astros close to signing Jason Heyward: Sources**\
 `The Los Angeles Dodgers designated Heyward for assignment last week to clear a roster spot for Chris Taylor.`\
 https://nytimes.com/athletic/5727027/2024/08/27/jason-heyward-astros-signing/
