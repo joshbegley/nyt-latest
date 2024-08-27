@@ -1,3 +1,11 @@
+**Hamburg defender Vuskovic's ban for positive EPO test extended by CAS**\
+`Hamburg SV defender Mario Vuskovic has had his doping ban extended by two years by the Court of Arbitration for Sport (CAS).`\
+https://nytimes.com/athletic/5726490/2024/08/27/mario-vuskovic-ban-epo-cas/
+
+**MLB scouting notebook: NL East players we could see in September, including the potential return of Ian Anderson**\
+`Andrea Arcadipane examines some interesting players/prospects who could be promoted to their MLB club when rosters expand in September.  `\
+https://nytimes.com/athletic/5726417/2024/08/27/mlb-scouting-notebook-nl-east-players-we-could-see-in-september-including-the-potential-return-of-ian-anderson/
+
 **What Across-the-Board Tariffs Could Mean for the Global Economy**\
 `Donald J. Trump, the Republican presidential nominee, has floated the idea of a 10 percent tariff on all U.S. imports, a plan that economists say could badly damage trade.`\
 https://nytimes.com/2024/08/27/business/trump-tariffs-us-trade.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5726426/2024/08/27/jason-mccourty-espn-analyst/
 **Telegram’s Loudest Defender: The Global Crypto Industry**\
 `When the messaging app’s founder, Pavel Durov, was arrested, he received a flood of support from a multitrillion-dollar industry that relies on it.`\
 https://nytimes.com/2024/08/27/technology/telegram-crypto-industry-defender.html
-
-**Trump to Put Kennedy and Gabbard on His Transition Team**\
-`Mr. Kennedy and Ms. Gabbard, who had been progressive Democrats for many years, will join the former president’s sons and Senator JD Vance, his running mate, as honorary co-chairs.`\
-https://nytimes.com/2024/08/27/us/politics/trump-transition-rfk-tulsi-gabbard.html
-
-**Why Arsenal made Mikel Merino their 'win-now' signing**\
-`Merino doesn't fit Arsenal's typical transfer strategy but Arteta believes the Spaniard can fill the role he once earmarked for Kai Havertz`\
-https://nytimes.com/athletic/5720483/2024/08/27/arsenal-mikel-merino-arteta-transfer-signing/
 

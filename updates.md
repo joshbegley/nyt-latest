@@ -1,3 +1,11 @@
+**Hamburg defender Vuskovic's ban for positive EPO test extended by CAS**\
+`Hamburg SV defender Mario Vuskovic has had his doping ban extended by two years by the Court of Arbitration for Sport (CAS).`\
+https://nytimes.com/athletic/5726490/2024/08/27/mario-vuskovic-ban-epo-cas/
+
+**MLB scouting notebook: NL East players we could see in September, including the potential return of Ian Anderson**\
+`Andrea Arcadipane examines some interesting players/prospects who could be promoted to their MLB club when rosters expand in September.  `\
+https://nytimes.com/athletic/5726417/2024/08/27/mlb-scouting-notebook-nl-east-players-we-could-see-in-september-including-the-potential-return-of-ian-anderson/
+
 **What Across-the-Board Tariffs Could Mean for the Global Economy**\
 `Donald J. Trump, the Republican presidential nominee, has floated the idea of a 10 percent tariff on all U.S. imports, a plan that economists say could badly damage trade.`\
 https://nytimes.com/2024/08/27/business/trump-tariffs-us-trade.html
