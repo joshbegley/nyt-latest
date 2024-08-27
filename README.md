@@ -1,3 +1,7 @@
+**Mariah Carey Says Her Mother and Sister Died on the Same Day**\
+`Ms. Carey, who has spoken and written extensively about her complicated relationship with her family, said the deaths had led to an “impossible time.”`\
+https://nytimes.com/2024/08/27/arts/music/mariah-carey-mom-sister-dead.html
+
 **Chelsea agree Harvey Vale deal with Al Ettifaq**\
 `Chelsea have agreed an undisclosed fee with Saudi Pro League club Al Ettifaq for the sale of academy graduate Harvey Vale.`\
 https://nytimes.com/athletic/5726031/2024/08/27/chelsea-harvey-vale-al-ettifaq-saudi-transfer/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5725166/2024/08/27/dodgers-ryan-pepiot-trade-rays/
 **Here’s the latest on the presidential race.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/08/27/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Election Live Updates: Vance Heads to Michigan as Campaigns Focus on Battlegrounds**\
-`Donald Trump’s running mate, Senator JD Vance, will visit the key swing state before a fund-raiser in Nashville. Senator Elizabeth Warren, an important surrogate for Kamala Harris on the economy, will stump in Wisconsin.`\
-https://nytimes.com/live/2024/08/27/us/harris-trump-election
 
