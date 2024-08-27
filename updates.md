@@ -1,3 +1,11 @@
+**Bears include Velus Jones Jr., DeAndre Carter on initial 53-man roster: 5 takeaways**\
+`The Bears likely will be in the market for a long snapper with Patrick Scales headed to IR and Cameron Lyons waived on Tuesday.`\
+https://nytimes.com/athletic/5727281/2024/08/27/bears-roster-velus-jones-deandre-carter/
+
+**The Special Counsel Filed Revised Charges Against Trump**\
+`Also, Israeli forces rescued a hostage from Gaza. Here’s the latest from the end of Tuesday.`\
+https://nytimes.com/2024/08/27/briefing/trump-revised-charges-israel-gaza-hostage.html
+
 **Man Charged With Tupac Shakur’s Murder Loses Bid for Release**\
 `A judge declined to release Duane Keith Davis, whose trial is scheduled for March, after a dispute over the source of the bail funds.`\
 https://nytimes.com/2024/08/27/arts/music/tupac-keefe-d-duane-keith-davis-bail.html

@@ -1,3 +1,11 @@
+**Bears include Velus Jones Jr., DeAndre Carter on initial 53-man roster: 5 takeaways**\
+`The Bears likely will be in the market for a long snapper with Patrick Scales headed to IR and Cameron Lyons waived on Tuesday.`\
+https://nytimes.com/athletic/5727281/2024/08/27/bears-roster-velus-jones-deandre-carter/
+
+**The Special Counsel Filed Revised Charges Against Trump**\
+`Also, Israeli forces rescued a hostage from Gaza. Here’s the latest from the end of Tuesday.`\
+https://nytimes.com/2024/08/27/briefing/trump-revised-charges-israel-gaza-hostage.html
+
 **Man Charged With Tupac Shakur’s Murder Loses Bid for Release**\
 `A judge declined to release Duane Keith Davis, whose trial is scheduled for March, after a dispute over the source of the bail funds.`\
 https://nytimes.com/2024/08/27/arts/music/tupac-keefe-d-duane-keith-davis-bail.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/27/world/middleeast/iran-nuclear-talks-khamenei.html
 **Packers RB AJ Dillon lands on season-ending IR with stinger**\
 `Dillon missed three games late last season with a stinger and will now miss his fifth season in the league with another.`\
 https://nytimes.com/athletic/5727244/2024/08/27/packers-aj-dillon-injured-reserve/
-
-**CNN’s Dana Bash to Interview Harris and Walz on Thursday**\
-`The joint interview will air on CNN at 9 p.m. Eastern.`\
-https://nytimes.com/2024/08/27/business/kamala-harris-dana-bash-interview-cnn.html
-
-**The Gender Gap Among Gen Z Voters, Explained**\
-`Claire Cain Miller spoke with eight young women supporting Harris, and eight young men backing Trump. Here’s what she learned.`\
-https://nytimes.com/2024/08/27/insider/the-gender-gap-among-gen-z-voters-explained.html
 
