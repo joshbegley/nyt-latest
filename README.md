@@ -1,3 +1,7 @@
+**German City Becomes Reluctant Symbol of a Nation’s Migration Battles**\
+`After a stabbing attack that prosecutors say was committed by a Syrian who was rejected for asylum, the city of Solingen finds itself at the center of a longstanding debate.`\
+https://nytimes.com/2024/08/27/world/europe/germany-solingen-migration-far-right.html
+
 **City's Cancelo close to Al Hilal move**\
 `Manchester City full-back Joao Cancelo is close to joining Al Hilal.`\
 https://nytimes.com/athletic/5716200/2024/08/27/joao-cancelo-al-hilal-saudi-transfer/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/5716200/2024/08/27/joao-cancelo-al-hilal-saudi-tran
 `Hockenson tore his ACL during the Vikings' Week 18 loss to the Detroit Lions last season.`\
 https://nytimes.com/athletic/5726110/2024/08/27/tj-hockenson-vikings-pup/
 
-**Who Is Qaid Farhan al-Qadi, the Rescued Hostage?**\
+**Who Is Farhan al-Qadi, the Rescued Hostage?**\
 `Mr. al-Qadi, a member of Israel’s Bedouin Arab minority, was working as a security guard at Kibbutz Magen, near the Gaza border, when he was abducted.`\
 https://nytimes.com/2024/08/27/world/middleeast/who-is-qaid-farhan-al-qadi-israel-hostage.html
 
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/27/style/paris-puces-flea-market.html
 **What to Know About the Hostages Israel Has Rescued During the War in Gaza**\
 `Israeli forces have freed eight hostages in military operations in Gaza since Oct. 7, out of the approximately 250 abducted in the Hamas-led attacks.`\
 https://nytimes.com/2024/08/27/world/middleeast/israel-hostages-rescued-hamas-gaza.html
-
-**Mariah Carey Says Her Mother and Sister Died on the Same Day**\
-`Ms. Carey, who has spoken and written extensively about her complicated relationship with her family, said the deaths had led to an “impossible time.”`\
-https://nytimes.com/2024/08/27/arts/music/mariah-carey-mom-sister-dead.html
 
