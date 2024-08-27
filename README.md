@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5725635/2024/08/27/anaheim-ducks-tv-schedule-stream
 `Hear where moments of Kraftwerk, Enya, Herb Alpert and more ended up in producers’ deft hands.`\
 https://nytimes.com/2024/08/27/arts/music/amplifier-newsletter-hip-hop-samples.html
 
-**Orcas Ram a Sailboat Off Northern Spain**\
+**Scientists Have a New Theory About Why Orcas Are Attacking Boats**\
 `A pod of orcas damaged a boat and left its two-person crew stranded. It was the latest in a string of attacks that research suggests could be used for hunting practice.`\
 https://nytimes.com/2024/08/27/world/europe/spain-orcas-boat-ramming.html
 
