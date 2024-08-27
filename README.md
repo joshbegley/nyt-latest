@@ -1,3 +1,11 @@
+**Man City defender Cancelo joins Al Hilal in €25m deal**\
+`Manchester City defender Joao Cancelo has completed his move to Al Hilal.`\
+https://nytimes.com/athletic/5726198/2024/08/27/joao-cancelo-al-hilal-transfer-man-city/
+
+**Tiny Love Stories: ‘I Love Your Pigtails’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/08/27/style/tiny-modern-love-stories-i-love-your-pigtails.html
+
 **Mikel Merino to Arsenal: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500 series, we look at Mikel Merino's move to Arsenal`\
 https://nytimes.com/athletic/5668118/2024/08/27/mikel-merino-to-arsenal-the-athletic-500-transfer-ratings/
@@ -25,12 +33,4 @@ https://nytimes.com/video/world/middleeast/100000009659803/israel-hostage-rescue
 **Oklahoma's DeMarco Murray suspended for recruiting violations**\
 `The NCAA announced punishments on Tuesday for recruiting violations committed by the Oklahoma football program, including a one-game suspension for DeMarco Murray, the Sooners running backs coach and former NFL All-Pro, for contacting recruits prior to permissible contact periods.`\
 https://nytimes.com/athletic/5726630/2024/08/27/oklahoma-football-demarco-murray-suspended-ncaa/
-
-**Wolves close to agreement for Palace's Johnstone**\
-`Wolverhampton Wanderers close to reaching an agreement with Crystal Palace to sign goalkeeper Sam Johnstone.`\
-https://nytimes.com/athletic/5726707/2024/08/27/sam-johnstone-wolves-crystal-palace-transfer/
-
-**Patriots cut Zappe; Purdy, Thompson only '22 QBs still with drafting team**\
-`Only two of the nine quarterbacks taken in the 2022 NFL Draft remain with the team that selected them`\
-https://nytimes.com/athletic/5726614/2024/08/27/bailey-zappe-patriots-release/
 
