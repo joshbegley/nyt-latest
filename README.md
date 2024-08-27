@@ -1,3 +1,7 @@
+**Typhoon Shanshan Approaches Japan, Bringing Heavy Rain and Winds**\
+`Japan’s southern islands were forecast to receive the most rain. The powerful storm has forced flight cancellations and disrupted high-speed rail travel.`\
+https://nytimes.com/2024/08/27/world/asia/japan-typhoon-shanshan.html
+
 **Fantasy Premier League: Gameweek 2 Review**\
 `From frustrations over Isak and Watkins to the budget defenders emerging as viable options - these at the talking points from Gameweek 2`\
 https://nytimes.com/athletic/5722881/2024/08/27/fantasy-premier-league-rogers-nkunku-haaland/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/5723606/2024/08/27/ryan-gravenberch-liverpool-no6/
 `Postecoglou isn't really too bothered about Spurs' ruthlessness - as long as performance levels match what they produced against Everton`\
 https://nytimes.com/athletic/5717228/2024/08/27/tottenham-ange-postecoglou-performances/
 
-**At the U.S. Open, the Americans take care of business, as New York dares to expect**\
+**At the U.S. Open, Americans take care of business as New York dares to expect**\
 `The American players largely took care of business in New York, where the pressure of a home Grand Slam can be inspiration or doom.`\
 https://nytimes.com/athletic/5725462/2024/08/27/us-open-american-tennis-shelton-gauff-tiafoe-fritz/
 
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5725098/2024/08/27/free-guys-13-endgame-2024-fantas
 **What makes Everton the Premier League's bleakest club**\
 `Fans haranguing players at a London train station was just the latest instalment of the club's joyless recent history`\
 https://nytimes.com/athletic/5724065/2024/08/27/everton-premier-league-misery/
-
-**Business of Football: FIFA, Google and the Streisand effect - and searching for Man City legal fees**\
-`Sir Keir Starmer's Labour back football governance bill, Mark Goldbridge turning a tidy profit and brighter days lie ahead for Reading`\
-https://nytimes.com/athletic/5722320/2024/08/27/fifa-google-city-epl-efl-business/
 
