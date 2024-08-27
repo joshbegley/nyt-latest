@@ -1,3 +1,7 @@
+**At the U.S. Open, the Americans take care of business, as New York dares to expect**\
+`The American players largely took care of business in New York, where the pressure of a home Grand Slam can be inspiration or doom.`\
+https://nytimes.com/athletic/5725462/2024/08/27/us-open-american-tennis-shelton-gauff-tiafoe-fritz/
+
 **Rutter to Brighton - inside the deal: How last-minute bid sealed club-record signing**\
 `Brighton triggered Rutter's £40m release clause at Leeds on the night it was due to expire. This is why they did it...`\
 https://nytimes.com/athletic/5711318/2024/08/27/georginio-rutter-brighton-transfers/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5725355/2024/08/27/stock-up-stock-down-preseason-fa
 **What Newcastle can expect from Sandro Tonali 2.0: 'A quicker and better player'**\
 `After a 10-month ban for breaking rules on gambling, the second act of Tonali's footballing life is about to begin...`\
 https://nytimes.com/athletic/5723810/2024/08/27/sandro-tonali-return-for-newcastle/
-
-**Lost Grounds: The recent movers, a ghostly stadium and many magical memories**\
-`Our travelling odyssey round the lost Football League grounds comes to an end - here's how Upton Park, Ninian Park and others now look`\
-https://nytimes.com/athletic/5616626/2024/08/27/lost-grounds-upton-park-ninian-park-millmoor/
 

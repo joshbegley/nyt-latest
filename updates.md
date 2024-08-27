@@ -1,3 +1,7 @@
+**At the U.S. Open, the Americans take care of business, as New York dares to expect**\
+`The American players largely took care of business in New York, where the pressure of a home Grand Slam can be inspiration or doom.`\
+https://nytimes.com/athletic/5725462/2024/08/27/us-open-american-tennis-shelton-gauff-tiafoe-fritz/
+
 **Rutter to Brighton - inside the deal: How last-minute bid sealed club-record signing**\
 `Brighton triggered Rutter's £40m release clause at Leeds on the night it was due to expire. This is why they did it...`\
 https://nytimes.com/athletic/5711318/2024/08/27/georginio-rutter-brighton-transfers/
