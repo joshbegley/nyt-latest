@@ -1,3 +1,11 @@
+**Preseason rookie winners and losers: Which 2024 first-round picks thrived in August?**\
+`It's way, way too early to declare any 2024 first-round picks as busts, but some did get off to better starts than others in preseason.`\
+https://nytimes.com/athletic/5720559/2024/08/27/nfl-draft-preseason-rookies-winners-caleb-williams-malik-nabers/
+
+**College football bowl projections: Preseason picks from CFP to Bahamas Bowl**\
+`Get ready for a new era in college football filled with more season-long intrigue than ever before. Let the predictions and arguments begin.`\
+https://nytimes.com/athletic/5722213/2024/08/27/college-football-preseason-bowl-projections-playoff/
+
 **Faced With the Boeing Starliner’s Flaws, NASA Gets a Couple of Things Right**\
 `Redundancy, it seems, has paid off.`\
 https://nytimes.com/live/2024/08/20/opinion/thepoint/nasa-starliner-astronauts-space
