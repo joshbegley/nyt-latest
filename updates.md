@@ -1,3 +1,11 @@
+**Can We Be a Little Less Selective With Our Moral Outrage?**\
+`Here are some alternative focal points for outrage for college students from Columbia to Berkeley.`\
+https://nytimes.com/2024/08/27/opinion/gaza-protests-venezuela.html
+
+**Man Is First to Be Charged in New York With Wearing a Mask in Public**\
+`Wesslin Omar Ramirez Castillo was frisked and charged with knife possession after the police stopped him for wearing a ski mask.`\
+https://nytimes.com/2024/08/27/nyregion/face-mask-ban-charges-nyc.html
+
 **Dan Evans beats Karen Khachanov in longest match in U.S. Open history**\
 `Dan Evans beat Karen Khachanov on a roaring Court 6 to win the longest match in U.`\
 https://nytimes.com/athletic/5727605/2024/08/27/us-open-longest-match-tennis-evans-khachanov/
