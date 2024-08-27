@@ -1,3 +1,7 @@
+**Which NFL players have been added to the PUP list? Explaining the rules and differences**\
+`Players such as Cleveland Browns RB Nick Chubb and Minnesota Vikings TE T.J. Hockenson are on PUP to start the 2024 regular season.`\
+https://nytimes.com/athletic/5726470/2024/08/27/nfl-pup-list-rules-faq/
+
 **Is This the Edinburgh Fringe, or a Wellness Convention?**\
 `Grief narratives were in vogue, and psychological maladies, too, at the annual Scottish arts showcase.`\
 https://nytimes.com/2024/08/27/theater/edinburgh-fringe.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/27/style/peress-lingerie-closing.html
 **Connections Bot F.A.Q.**\
 `Introducing a daily, personalized analysis tool for Connections fans.`\
 https://nytimes.com/2024/08/27/upshot/connections-bot-faq.html
-
-**USMNT midfielder Tanner Tessmann joins Lyon from Venezia**\
-`Lyon have completed the signing of USMNT midfielder Tanner Tessmann from Venezia.`\
-https://nytimes.com/athletic/5726644/2024/08/27/tanner-tessmann-lyon-usmnt-transfer/
 
