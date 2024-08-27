@@ -1,3 +1,11 @@
+**Trump Suggests Debate Rules Are Set. Harris’s Team Says Otherwise.**\
+`The two have been tussling over whether microphones will be muted when a candidate isn’t speaking during the debate, which is scheduled for Sept. 10.`\
+https://nytimes.com/2024/08/27/us/politics/trump-abc-debate-rules.html
+
+**‘No Barrier’ to Nuclear Talks With U.S., Iran’s Supreme Leader Says**\
+`It was unclear if Ayatollah Ali Khamenei’s comments signaled any shift in Iran’s stance, but the country’s new president has called for an accord that would relieve Western sanctions against it.`\
+https://nytimes.com/2024/08/27/world/middleeast/iran-nuclear-talks-khamenei.html
+
 **Packers RB AJ Dillon lands on season-ending IR with stinger**\
 `Dillon missed three games late last season with a stinger and will now miss his fifth season in the league with another.`\
 https://nytimes.com/athletic/5727244/2024/08/27/packers-aj-dillon-injured-reserve/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/27/us/politics/ntsb-helicopter-crash-west-virginia.h
 **Why We Cover What Politicians Wear**\
 `For both men and women, clothes can be an important tool for communication. Often, there’s strategy behind the style.`\
 https://nytimes.com/2024/08/27/style/why-the-new-york-times-covers-what-politicians-wear.html
-
-**Wednesday Briefing: A Look at Harris’s Polling Lead**\
-`Plus, looking for love in Shanghai.`\
-https://nytimes.com/2024/08/27/briefing/harris-trump-gaza-hostage-us-china.html
-
-**Special Counsel Revises Trump Election Indictment to Address Immunity Ruling**\
-`Jack Smith’s filing, in the case charging the former president with plotting to overturn the 2020 election, came in response to the Supreme Court’s ruling giving former presidents broad immunity.`\
-https://nytimes.com/2024/08/27/us/politics/trump-indictment-election-jan-6.html
 
