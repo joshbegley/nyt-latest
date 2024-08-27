@@ -1,3 +1,11 @@
+**Cellphone Bans in Schools? New York Is ‘Not There Yet,’ Mayor Says**\
+`Districts and states across the United States have supported restrictions on student usage, but New York City’s leaders are backing away from the idea because of logistical concerns.`\
+https://nytimes.com/2024/08/27/nyregion/school-cellphone-bans-nyc.html
+
+**49ers 53-man roster analysis: Talanoa Hufanga comes off PUP; still waiting on Trent Williams**\
+`The 49ers' initial roster doesn't include Trent Williams, but considering it has just two tackles they clearly expect to land him soon.`\
+https://nytimes.com/athletic/5725477/2024/08/27/49ers-53-man-roster-hufanga-williams/
+
 **Can We Be a Little Less Selective With Our Moral Outrage?**\
 `Here are some alternative focal points for outrage for college students from Columbia to Berkeley.`\
 https://nytimes.com/2024/08/27/opinion/gaza-protests-venezuela.html

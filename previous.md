@@ -1,3 +1,11 @@
+**Cellphone Bans in Schools? New York Is ‘Not There Yet,’ Mayor Says**\
+`Districts and states across the United States have supported restrictions on student usage, but New York City’s leaders are backing away from the idea because of logistical concerns.`\
+https://nytimes.com/2024/08/27/nyregion/school-cellphone-bans-nyc.html
+
+**49ers 53-man roster analysis: Talanoa Hufanga comes off PUP; still waiting on Trent Williams**\
+`The 49ers' initial roster doesn't include Trent Williams, but considering it has just two tackles they clearly expect to land him soon.`\
+https://nytimes.com/athletic/5725477/2024/08/27/49ers-53-man-roster-hufanga-williams/
+
 **Can We Be a Little Less Selective With Our Moral Outrage?**\
 `Here are some alternative focal points for outrage for college students from Columbia to Berkeley.`\
 https://nytimes.com/2024/08/27/opinion/gaza-protests-venezuela.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5725475/2024/08/27/raiders-53-man-roster-mcallister
 **Commanders 53-man roster following cutdown day: Which recent draft picks were retained?**\
 `Washington trimmed its roster from 90 to 53, and did so by jettisoning another bushel of players acquired over the previous four years.`\
 https://nytimes.com/athletic/5727285/2024/08/27/commanders-53-man-roster-cutdown-day/
-
-**The Geography of Unequal Recovery**\
-`The U.S. economy has added roughly 19 millions jobs in four years. But as of the end of 2023, 43 percent of counties still hadn’t regained all the jobs they lost in the early months of the pandemic.`\
-https://nytimes.com/interactive/2024/08/27/business/economy/jobs-election-county.html
-
-**New York Jets 53-man roster: One thought on every player who made the cut**\
-`From 10 offensive linemen to three undrafted defensive linemen, a look at the 2024 Jets.`\
-https://nytimes.com/athletic/5725113/2024/08/27/new-york-jets-53-man-roster-cuts-review/
 
