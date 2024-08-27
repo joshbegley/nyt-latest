@@ -1,3 +1,7 @@
+**What to Know About the Rare Mosquito-Borne Illness Eastern Equine Encephalitis**\
+`The disease has caused one death in New Hampshire and the virus has also been identified in humans in neighboring states, health officials said.`\
+https://nytimes.com/2024/08/27/us/massachusetts-eee-mosquito-disease.html
+
 **Scientists Have a New Theory About Why Orcas Are Attacking Boats**\
 `A pod of orcas damaged a boat and left its two-person crew stranded. It was the latest in a string of attacks that research suggests could be used for hunting practice.`\
 https://nytimes.com/2024/08/27/world/europe/spain-orcas-boat-ramming.html
