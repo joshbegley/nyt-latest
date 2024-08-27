@@ -1,3 +1,11 @@
+**Astros close to signing Jason Heyward: Sources**\
+`The Los Angeles Dodgers designated Heyward for assignment last week to clear a roster spot for Chris Taylor.`\
+https://nytimes.com/athletic/5727027/2024/08/27/jason-heyward-astros-signing/
+
+**Why Economists Worry About Trumpflation**\
+`And why they may not be worrying enough.`\
+https://nytimes.com/2024/08/27/opinion/trump-inflation.html
+
 **Everton in talks to sign Mangala on loan from Lyon**\
 `Everton are in talks to sign former Nottingham Forest midfielder Orel Mangala from Lyon on a season-long loan.`\
 https://nytimes.com/athletic/5726704/2024/08/27/orel-mangala-everton-lyon/
