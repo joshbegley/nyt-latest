@@ -1,3 +1,11 @@
+**Man City defender Cancelo joins Al Hilal in €25m deal**\
+`Manchester City defender Joao Cancelo has completed his move to Al Hilal.`\
+https://nytimes.com/athletic/5726198/2024/08/27/joao-cancelo-al-hilal-transfer-man-city/
+
+**Tiny Love Stories: ‘I Love Your Pigtails’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/08/27/style/tiny-modern-love-stories-i-love-your-pigtails.html
+
 **Mikel Merino to Arsenal: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500 series, we look at Mikel Merino's move to Arsenal`\
 https://nytimes.com/athletic/5668118/2024/08/27/mikel-merino-to-arsenal-the-athletic-500-transfer-ratings/
