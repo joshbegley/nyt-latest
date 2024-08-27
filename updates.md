@@ -1,3 +1,7 @@
+**Rams trading LB Ernest Jones to Titans: Sources**\
+`Jones is coming off a 2023 season where he picked up 145 total tackles and 4 1/2 sacks.`\
+https://nytimes.com/athletic/5726914/2024/08/27/ernest-jones-rams-titans-trade/
+
 **Tulsi Gabbard’s Trumpy Transition Is Now Complete**\
 `The former president is clearly hoping some of Gabbard’s mojo rubs off on him.`\
 https://nytimes.com/live/2024/08/20/opinion/thepoint/tulsi-gabbard-trump-transition
