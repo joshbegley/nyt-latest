@@ -1,3 +1,7 @@
+**Take the Wheel**\
+`Julia Hoepner makes her New York Times debut.`\
+https://nytimes.com/2024/08/26/crosswords/daily-puzzle-2024-08-27.html
+
 **Edgar Bronfman Jr. Drops Pursuit of Paramount**\
 `Mr. Bronfman had frantically put a bid together over the last week even as Paramount raised questions about his financing.`\
 https://nytimes.com/2024/08/26/business/bronfman-drops-paramount-pursuit.html

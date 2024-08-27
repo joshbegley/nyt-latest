@@ -1,3 +1,7 @@
+**Take the Wheel**\
+`Julia Hoepner makes her New York Times debut.`\
+https://nytimes.com/2024/08/26/crosswords/daily-puzzle-2024-08-27.html
+
 **Edgar Bronfman Jr. Drops Pursuit of Paramount**\
 `Mr. Bronfman had frantically put a bid together over the last week even as Paramount raised questions about his financing.`\
 https://nytimes.com/2024/08/26/business/bronfman-drops-paramount-pursuit.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/26/sports/sid-eudy-dead.html
 **49ers' Darrell Luter Jr. could be a bridge to the team's future at cornerback**\
 `The 49ers are deep with veteran CBs, but none are signed beyond this season. Enter Luter, who intercepted his college QB on Friday.`\
 https://nytimes.com/athletic/5724895/2024/08/26/49ers-darrell-luter-cornerback-future-interception/
-
-**U.S. Open Tuesday: What to watch at the Billie Jean King Tennis Center on Day 2**\
-`Day 2 of the U.S. Open brings the top half of the men's and women's singles onto the court in Flushing Meadows.`\
-https://nytimes.com/athletic/5724431/2024/08/26/us-open-2024-watch-guide-day-2-sinner-alcaraz-swiatek/
 
