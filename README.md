@@ -1,3 +1,7 @@
+**Vikings' T.J. Hockenson will remain on PUP list**\
+`Hockenson tore his ACL during the Vikings' Week 18 loss to the Detroit Lions last season.`\
+https://nytimes.com/athletic/5726110/2024/08/27/tj-hockenson-vikings-pup/
+
 **Who Is Qaid Farhan al-Qadi, the Rescued Hostage?**\
 `Mr. al-Qadi, a member of Israel’s Bedouin Arab minority, was working as a security guard at Kibbutz Magen, near the Gaza border, when he was abducted.`\
 https://nytimes.com/2024/08/27/world/middleeast/who-is-qaid-farhan-al-qadi-israel-hostage.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/27/arts/music/mariah-carey-mom-sister-dead.html
 **Chelsea agree Harvey Vale deal with Al Ettifaq**\
 `Chelsea have agreed an undisclosed fee with Saudi Pro League club Al Ettifaq for the sale of academy graduate Harvey Vale.`\
 https://nytimes.com/athletic/5726031/2024/08/27/chelsea-harvey-vale-al-ettifaq-saudi-transfer/
-
-**Ipswich in advanced talks to sign Luton's Ogbene**\
-`Ipswich Town are in advanced talks to sign Chiedozie Ogbene from Luton Town.`\
-https://nytimes.com/athletic/5725727/2024/08/27/chiedozie-ogbene-ipswich-transfer/
 
