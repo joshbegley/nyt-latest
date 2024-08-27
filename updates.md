@@ -1,3 +1,19 @@
+**Packers RB AJ Dillon lands on season-ending IR with stinger**\
+`Dillon missed three games late last season with a stinger and will now miss his fifth season in the league with another.`\
+https://nytimes.com/athletic/5727244/2024/08/27/packers-aj-dillon-injured-reserve/
+
+**CNN’s Dana Bash to Interview Harris and Walz on Thursday**\
+`The joint interview will air on CNN at 9 p.m. Eastern.`\
+https://nytimes.com/2024/08/27/technology/kamala-harris-interview-cnn.html
+
+**The Gender Gap Among Gen Z Voters, Explained**\
+`Claire Cain Miller spoke with eight young women supporting Harris, and eight young men backing Trump. Here’s what she learned.`\
+https://nytimes.com/2024/08/27/insider/the-gender-gap-among-gen-z-voters-explained.html
+
+**Heat Deaths Have Doubled in the U.S. in Recent Decades, Study Finds**\
+`The finding comes as a late-August heat wave bears down on a significant part of the country.`\
+https://nytimes.com/2024/08/27/climate/heat-deaths.html
+
 **Heat Deaths Doubled in the U.S. in Recent Decades, Study Says**\
 `As a late-August heat wave bears down on a significant part of the U.S., new numbers indicate that deaths have increased in recent years.`\
 https://nytimes.com/2024/08/27/climate/heat-deaths.html
