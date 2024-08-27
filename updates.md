@@ -1,3 +1,7 @@
+**Russia Launches Deadly New Wave of Missiles and Drones at Ukraine**\
+`The bombardment that began on Monday could have additional significance, coming three weeks after the Ukrainian military’s incursion into Russia’s Kursk region.`\
+https://nytimes.com/2024/08/27/world/europe/ukraine-russia-kyiv-kursk.html
+
 **Why Is the Loneliness Epidemic so Hard to Cure?**\
 `Maybe because we aren’t thinking about it in the right way.`\
 https://nytimes.com/2024/08/27/magazine/loneliness-epidemic-cure.html
