@@ -1,3 +1,11 @@
+**Ipswich in advanced talks to sign Luton's Ogbene**\
+`Ipswich Town are in advanced talks to sign Chiedozie Ogbene from Luton Town.`\
+https://nytimes.com/athletic/5725727/2024/08/27/chiedozie-ogbene-ipswich-transfer/
+
+**What We Know About the Telegram Founder’s Arrest**\
+`Pavel Durov has been detained in France, as part of wide-ranging investigation into criminal activities on the messaging platform he runs.`\
+https://nytimes.com/2024/08/27/business/telegram-pavel-durov-arrest-explained.html
+
 **Here are the latest developments.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/08/27/world/israel-hamas-gaza-war/here-are-the-latest-developments
@@ -25,12 +33,4 @@ https://nytimes.com/live/2024/08/27/us/harris-trump-election
 **Dread Lingers in Mideast After Israel-Hezbollah Clashes**\
 `For people across the region, any relief that the adversaries had stepped back from a wider war mixed with fears that the conflicts in Gaza and Lebanon remained unresolved.`\
 https://nytimes.com/2024/08/27/world/middleeast/israel-hezbollah-gaza-conflict.html
-
-**Nketiah given permission for Crystal Palace medical**\
-`Eddie Nketiah has been given permission to undergo a medical at Crystal Palace.`\
-https://nytimes.com/athletic/5724107/2024/08/27/crystal-palace-eddie-nketiah-medical/
-
-**Liverpool considering Morton loan offer from Leverkusen**\
-`Liverpool are considering a loan offer from Bayer Leverkusen for Tyler Morton.`\
-https://nytimes.com/athletic/5725875/2024/08/27/stefan-bajcetic-liverpool-tyler-morton/
 

@@ -1,3 +1,7 @@
+**Here are the latest developments.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/08/27/world/israel-hamas-gaza-war/here-are-the-latest-developments
+
 **The Athletic FC: Everton's increasing struggles, Manchester United close to Ugarte deal**\
 `Today in The Athletic FC: Everton struggling on and off the pitch, Manchester United close to Ugarte deal`\
 https://nytimes.com/athletic/5725807/2024/08/27/everton-struggles-manchester-united-ugarte-deal/
