@@ -1,3 +1,7 @@
+**Vikings 53-man roster review: One thought on every player who made the cut**\
+`We break down the Vikings' initial 53-man roster ahead of Wednesday's waiver claims. How will they fill the holes at RB and KR?`\
+https://nytimes.com/athletic/5727303/2024/08/27/minnesota-vikings-53-man-roster-analysis/
+
 **Brighton's Matt O’Riley suffers injury on debut**\
 `Brighton &amp; Hove Albion head coach Fabian Hurzeler is hopeful the injury sustained by new signing Matt O’Riley isn’t as severe &#8220;as it looks&#8221; but confirmed that the midfielder &#8220;couldn&#8217;t put any weight on his ankle.`\
 https://nytimes.com/athletic/5727386/2024/08/27/matt-oriley-brighton-injury-debut/
