@@ -1,3 +1,7 @@
+**Mikel Merino to Arsenal: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we look at Mikel Merino's move to Arsenal`\
+https://nytimes.com/athletic/5668118/2024/08/27/mikel-merino-to-arsenal-the-athletic-500-transfer-ratings/
+
 **Oasis: Timeline of a Sibling Rivalry for the Ages**\
 `When Liam and Noel Gallagher get together, hide the tambourines.`\
 https://nytimes.com/2024/08/27/arts/music/oasis-reunion-gallagher-breakup-feud.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5726707/2024/08/27/sam-johnstone-wolves-crystal-pal
 **Patriots cut Zappe; Purdy, Thompson only '22 QBs still with drafting team**\
 `Only two of the nine quarterbacks taken in the 2022 NFL Draft remain with the team that selected them`\
 https://nytimes.com/athletic/5726614/2024/08/27/bailey-zappe-patriots-release/
-
-**For Its Famous Clientele, Peress was More Than a Lingerie Shop**\
-`For more than 90 years the Upper East Side shop served socially ambitious women, including Brooke Astor, Gloria Vanderbilt, Diana Vreeland, Barbara Walters, Madonna and many more.`\
-https://nytimes.com/2024/08/27/style/peress-lingerie-closing.html
 
