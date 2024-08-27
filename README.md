@@ -1,3 +1,7 @@
+**Liverpool sign Mamardashvili from Valencia**\
+`Liverpool have completed the signing of goalkeeper Giorgi Mamardashvili from Valencia.`\
+https://nytimes.com/athletic/5724171/2024/08/27/liverpool-mamardashvili-transfer-loan-complete/
+
 **Rams trading LB Ernest Jones to Titans: Sources**\
 `Jones is coming off a 2023 season where he picked up 145 total tackles and 4 1/2 sacks.`\
 https://nytimes.com/athletic/5726914/2024/08/27/ernest-jones-rams-titans-trade/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/27/us/massachusetts-eee-mosquito-disease.html
 **2 Dead, 1 Injured at Delta Maintenance Facility Near Atlanta Airport**\
 `The workers were at the “wheel and brake shop” of the maintenance facility when the accident occurred, Delta said.`\
 https://nytimes.com/2024/08/27/us/delta-atlanta-deaths.html
-
-**Danielle Collins upset by Caroline Dolehide in final Grand Slam tournament**\
-`NEW YORK — This isn&#8217;t how it was supposed to be.`\
-https://nytimes.com/athletic/5726839/2024/08/27/danielle-collins-us-open-caroline-dolehide/
 
