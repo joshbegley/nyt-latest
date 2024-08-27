@@ -1,3 +1,7 @@
+**Nketiah given permission for Crystal Palace medical**\
+`Eddie Nketiah has been given permission to undergo a medical at Crystal Palace.`\
+https://nytimes.com/athletic/5724107/2024/08/27/crystal-palace-eddie-nketiah-medical/
+
 **Liverpool considering Morton loan offer from Leverkusen**\
 `Liverpool are considering a loan offer from Bayer Leverkusen for Tyler Morton.`\
 https://nytimes.com/athletic/5725875/2024/08/27/stefan-bajcetic-liverpool-tyler-morton/
