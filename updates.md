@@ -1,3 +1,11 @@
+**Tulsi Gabbard’s Trumpy Transition Is Now Complete**\
+`The former president is clearly hoping some of Gabbard’s mojo rubs off on him.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/tulsi-gabbard-trump-transition
+
+**Why Karolina Muchova's behind-the-back lob is the best shot of the U.S. Open so far**\
+`The Czech locked down shot of the tournament with a stunning feat of balance and strength`\
+https://nytimes.com/athletic/5726699/2024/08/27/us-open-best-shot-muchova-lob/
+
 **Chiefs release WR Kadarius Toney: Source**\
 `The move was foreshadowed with Monday's signing of receiver JuJu Smith-Schuster as well as the Chiefs efforts to remake their receiver room.`\
 https://nytimes.com/athletic/5726890/2024/08/27/kadarius-toney-released-chiefs-roster-cutdown/

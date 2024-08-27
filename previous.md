@@ -1,3 +1,11 @@
+**Tulsi Gabbard’s Trumpy Transition Is Now Complete**\
+`The former president is clearly hoping some of Gabbard’s mojo rubs off on him.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/tulsi-gabbard-trump-transition
+
+**Why Karolina Muchova's behind-the-back lob is the best shot of the U.S. Open so far**\
+`The Czech locked down shot of the tournament with a stunning feat of balance and strength`\
+https://nytimes.com/athletic/5726699/2024/08/27/us-open-best-shot-muchova-lob/
+
 **Chiefs release WR Kadarius Toney: Source**\
 `The move was foreshadowed with Monday's signing of receiver JuJu Smith-Schuster as well as the Chiefs efforts to remake their receiver room.`\
 https://nytimes.com/athletic/5726890/2024/08/27/kadarius-toney-released-chiefs-roster-cutdown/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5726839/2024/08/27/danielle-collins-us-open-carolin
 **Anaheim Ducks shift games away from Bally Sports, announce free streaming option**\
 `Victory+ will be the Ducks' main partner for local broadcasts and other programming.`\
 https://nytimes.com/athletic/5725635/2024/08/27/anaheim-ducks-tv-schedule-streaming/
-
-**9 Surprising Songs Sampled in Classic Hip-Hop Tracks**\
-`Hear where moments of Kraftwerk, Enya, Herb Alpert and more ended up in producers’ deft hands.`\
-https://nytimes.com/2024/08/27/arts/music/amplifier-newsletter-hip-hop-samples.html
-
-**Scientists Have a New Theory About Why Orcas Are Attacking Boats**\
-`A pod of orcas damaged a boat and left its two-person crew stranded. It was the latest in a string of attacks that research suggests could be used for hunting practice.`\
-https://nytimes.com/2024/08/27/world/europe/spain-orcas-boat-ramming.html
 
