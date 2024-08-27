@@ -1,3 +1,7 @@
+**At an Israeli hospital, the rescued hostage tells his family about his ordeal.**\
+`Farhan al-Qadi, who was recovering in a medical center in southern Israel, told relatives and friends he had spent much of his captivity in darkness.`\
+https://nytimes.com/2024/08/27/world/middleeast/israel-hostage-hospital.html
+
 **Submit your Red Wings questions for Max Bultman's mailbag**\
 `Send in your questions, and Max may answer them in an upcoming mailbag.`\
 https://nytimes.com/athletic/5727163/2024/08/27/red-wings-mailbag-prompt-max-bultman/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/27/us/politics/vance-trump-michigan-china-gotion.htm
 **Browns' Hall Jr. placed on exempt list following arrest**\
 `Hall will still be paid, but he won't count on the Browns' 53-man roster and isn't allowed to participate in team activities.`\
 https://nytimes.com/athletic/5727101/2024/08/27/mike-hall-exempt-list-browns/
-
-**Adams’s Pick for Top Lawyer Is Grilled by Skeptical Council Members**\
-`Members of the City Council questioned the record of Randy Mastro, a former federal prosecutor and aide to Mayor Rudolph W. Giuliani.`\
-https://nytimes.com/2024/08/27/nyregion/randy-mastro-hearing.html
 
