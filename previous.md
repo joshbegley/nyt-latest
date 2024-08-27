@@ -1,3 +1,7 @@
+**Dread Lingers in Mideast After Israel-Hezbollah Clashes**\
+`For people across the region, any relief that the adversaries had stepped back from a wider war mixed with fears that the conflicts in Gaza and Lebanon remained unresolved.`\
+https://nytimes.com/2024/08/27/world/middleeast/israel-hezbollah-gaza-conflict.html
+
 **Nketiah given permission for Crystal Palace medical**\
 `Eddie Nketiah has been given permission to undergo a medical at Crystal Palace.`\
 https://nytimes.com/athletic/5724107/2024/08/27/crystal-palace-eddie-nketiah-medical/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/27/well/eli-lilly-zepbound-price.html
 **21 Questions for Harris**\
 `We’re asking unanswered questions for her potential administration.`\
 https://nytimes.com/2024/08/27/briefing/21-questions-for-harris.html
-
-**Villa's Iling-Junior joins Bologna on loan**\
-`Aston Villa&#8217;s Samuel Iling-Junior has completed a season-long loan move to Bologna.`\
-https://nytimes.com/athletic/5723562/2024/08/27/samuel-iling-junior-bologna-loan-aston-villa/
 
