@@ -1,3 +1,15 @@
+**Villa's Iling-Junior joins Bologna on loan**\
+`Aston Villa&#8217;s Samuel Iling-Junior has completed a season-long loan move to Bologna.`\
+https://nytimes.com/athletic/5723562/2024/08/27/samuel-iling-junior-bologna-loan-aston-villa/
+
+**SEC football tiers: Will expanded league dominate new 12-team Playoff?**\
+`The SEC has a new look with Texas and Oklahoma joining, creating a lengthy list of College Football Playoff contenders.`\
+https://nytimes.com/athletic/5717275/2024/08/27/sec-football-tiers-rankings-cfp-projections/
+
+**Twins' patience with Trevor Larnach pays off —and even more production is 'expected'**\
+`In danger of falling out of the Twins' plans, Larnach is crushing fastballs and putting up more of a fight against off-speed pitches.`\
+https://nytimes.com/athletic/5722000/2024/08/27/trevor-larnach-minnesota-twins/
+
 **At the site of his career apex, Chas McCormick confronts a crossroads**\
 `The struggling outfielder returned to Citizens Bank Park, where his ninth-inning catch saved Game 5 of the 2022 World Series. `\
 https://nytimes.com/athletic/5725417/2024/08/27/astros-chas-mccormick-philadelphia/
@@ -21,16 +33,4 @@ https://nytimes.com/2024/08/27/podcasts/the-daily/hacking-2024-election.html
 **Cubs prospect Cam Smith rides 6-game homer streak to a promotion: 'He’s an 80-grade makeup'**\
 `The Cubs took the 21-year-old third baseman with the 14th pick in July and he's already moving up in their system.`\
 https://nytimes.com/athletic/5725396/2024/08/27/cubs-prospect-cam-smith/
-
-**How this year's NFL roster cutdown is different than years past**\
-`Over the next 48 hours, all 32 teams will combine to complete over 1,200 transactions.`\
-https://nytimes.com/athletic/5724128/2024/08/27/nfl-roster-cutdown-day-rule-change/
-
-**The Connections Companion No. 444**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Aug. 28, 2024.`\
-https://nytimes.com/2024/08/27/crosswords/connections-companion-444.html
-
-**Chelsea complete signing of Genk goalkeeper Penders**\
-`Chelsea have completed the signing of Belgian goalkeeper Mike Penders from Genk.`\
-https://nytimes.com/athletic/5666632/2024/08/27/mike-penders-chelsea-transfer/
 
