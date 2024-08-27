@@ -1,3 +1,7 @@
+**Humanitarian operations in Gaza resume, haltingly, following a pause, the U.N. says.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/08/27/world/israel-hamas-gaza-war/humanitarian-operations-in-gaza-resume-haltingly-following-a-pause-the-un-says
+
 **Liverpool sign Mamardashvili from Valencia**\
 `Liverpool have completed the signing of goalkeeper Giorgi Mamardashvili from Valencia.`\
 https://nytimes.com/athletic/5724171/2024/08/27/liverpool-mamardashvili-transfer-loan-complete/
