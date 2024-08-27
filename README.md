@@ -1,3 +1,7 @@
+**Twins' Bailey Ober learns when it rains, it pours with career-worst outing**\
+`Before thunder and lightning caused a long delay, Ober gave up nine runs in just two innings against Atlanta.`\
+https://nytimes.com/athletic/5725622/2024/08/27/bailey-ober-career-worst-loss-twins-braves/
+
 **Typhoon Shanshan Approaches Japan, Bringing Heavy Rain and Winds**\
 `Japan’s southern islands were forecast to receive the most rain. The powerful storm has forced flight cancellations and disrupted high-speed rail travel.`\
 https://nytimes.com/2024/08/27/world/asia/japan-typhoon-shanshan.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5723628/2024/08/27/real-madrid-acl-injuries-camavin
 **‘Free guys’: 13 endgame 2024 fantasy football draft picks who could be league winners**\
 `Jake Ciely goes beyond ADP No. 180 to tout the typically undrafted players who could emerge and make an impact in fantasy football 2024.`\
 https://nytimes.com/athletic/5725098/2024/08/27/free-guys-13-endgame-2024-fantasy-football-draft-picks-who-could-be-league-winners/
-
-**What makes Everton the Premier League's bleakest club**\
-`Fans haranguing players at a London train station was just the latest instalment of the club's joyless recent history`\
-https://nytimes.com/athletic/5724065/2024/08/27/everton-premier-league-misery/
 
