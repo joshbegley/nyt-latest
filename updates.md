@@ -1,3 +1,7 @@
+**Oasis Announces Reunion Tour After 15 Years of Brotherly War**\
+`Liam and Noel Gallagher’s 1990s Britpop band will play dates in Britain and Ireland in 2025.`\
+https://nytimes.com/2024/08/27/arts/music/oasis-reunion-tour.html
+
 **Nigeria confirm Bruno Labbadia as new head coach**\
 `Nigeria have appointed Bruno Labbadia as their new head coach.`\
 https://nytimes.com/athletic/5725683/2024/08/27/bruno-labbadia-nigeria-head-coach/
