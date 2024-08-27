@@ -1,3 +1,7 @@
+**Everton in talks to sign Mangala on loan from Lyon**\
+`Everton are in talks to sign former Nottingham Forest midfielder Orel Mangala from Lyon on a season-long loan.`\
+https://nytimes.com/athletic/5726704/2024/08/27/orel-mangala-everton-lyon/
+
 **Hostage’s Release Shines a Spotlight on Israel’s Bedouins**\
 `The Bedouins of the Negev desert suffered painful losses on Oct. 7, but less attention has been focused on their plight than on some of the other victims of the Hamas-led attack.`\
 https://nytimes.com/2024/08/27/world/middleeast/israel-gaza-hostage-bedouin.html
