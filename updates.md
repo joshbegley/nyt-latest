@@ -1,3 +1,11 @@
+**Danielle Collins has what she wanted from tennis. That doesn't make a U.S. Open exit easier**\
+`NEW YORK — Pro tennis rarely does sentimentality, and on Monday at the U.`\
+https://nytimes.com/athletic/5726839/2024/08/27/danielle-collins-us-open-caroline-dolehide/
+
+**Hostage’s Rescue Shines a Spotlight on Israel’s Bedouins**\
+`The Bedouins of the Negev desert suffered painful losses on Oct. 7, but less attention has been focused on their plight than on some of the other victims of the Hamas-led attack.`\
+https://nytimes.com/2024/08/27/world/middleeast/israel-gaza-hostage-bedouin.html
+
 **Clarity on O-line, linebacker lineups: Projecting Ohio State's Week 1 depth chart**\
 `Coach Ryan Day offered insights Tuesday into what to expect the lineup to look like Saturday against Akron. `\
 https://nytimes.com/athletic/5727024/2024/08/27/ohio-state-football-depth-chart-week-one/
