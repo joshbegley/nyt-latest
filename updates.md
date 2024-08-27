@@ -1,3 +1,7 @@
+**Don’t Call the Telegram Chief Executive’s Arrest a Free Speech Infringement — Yet**\
+`Some early details suggest the issue here isn’t one of free speech, but of criminal activity.`\
+https://nytimes.com/2024/08/20/opinion/pavel-durov-telegram-arrest.html
+
 **Kennedy Says Trump Will ‘Make Americans Healthy.’ His Record Suggests Otherwise.**\
 `As president, Donald J. Trump slashed protections for clean air and water and weakened school nutrition standards.`\
 https://nytimes.com/2024/08/27/climate/rfk-jr-trump-chemicals-pesticides.html
