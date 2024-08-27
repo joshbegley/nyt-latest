@@ -1,3 +1,7 @@
+**Man Is Charged With Arson in California Wildfire That Destroyed 13 Homes**\
+`The Thompson fire also burned over 3,700 acres and forced the evacuation of 26,000 residents.`\
+https://nytimes.com/2024/08/26/us/california-thompson-fire-arson-arrest.html
+
 **Judge Pauses Biden Administration Program That Aids Undocumented Spouses**\
 `Ruling in favor of 16 Republican-led states that sued the administration, a federal judge put the program on hold while the court considers the merits of the case.`\
 https://nytimes.com/2024/08/26/us/undocumented-spouses-biden-administration.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5724431/2024/08/26/us-open-2024-watch-guide-day-2-s
 **Packers acquiring QB Malik Willis from Titans**\
 `The deal comes after Sean Clifford, Jordan Love’s backup in 2023, had an underwhelming camp.`\
 https://nytimes.com/athletic/5725266/2024/08/26/malik-willis-packers-titans-trade/
-
-**Inflation Is Fading, Statistically and Politically**\
-`The cost of living may not be the G.O.P.’s, um, trump card.`\
-https://nytimes.com/2024/08/26/opinion/inflation-trump-harris-powell.html
 
