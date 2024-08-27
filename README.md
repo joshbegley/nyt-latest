@@ -1,3 +1,15 @@
+**Police Hope Dog Breeder’s Missing Dobermans Can Shed Light on His Death**\
+`The police in central Colorado are tracking down Doberman puppies to help solve the potential homicide of a local dog breeder who was killed last week.`\
+https://nytimes.com/2024/08/27/us/colorado-dog-breeder-killed-dobermans.html
+
+**Robert F. Kennedy Jr. Sawed the Head Off a Whale and Drove It Home, Daughter Says**\
+`Three decades later, an environmental organization is calling for an investigation.`\
+https://nytimes.com/2024/08/27/us/politics/rfk-jr-whale-head.html
+
+**Panthers 53-man roster: Where biggest needs remain, plus bottom of WR group gets overhaul**\
+`The initial Panthers' roster is thin at outside linebacker and they could be in the market for another corner and possibly a tight end.`\
+https://nytimes.com/athletic/5726891/2024/08/27/carolina-panthers-final-53-player-roster/
+
 **How the Politics of the Gaza War Engulfed the Melbourne Symphony**\
 `The orchestra faced criticism for canceling a performance by a pianist who spoke about the war. Now a top leader has departed and the ensemble has opened an inquiry.`\
 https://nytimes.com/2024/08/27/arts/music/melbourne-symphony-israel-gaza-war.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5727024/2024/08/27/ohio-state-football-depth-chart-
 **Astros close to signing Jason Heyward: Sources**\
 `The Los Angeles Dodgers designated Heyward for assignment last week to clear a roster spot for Chris Taylor.`\
 https://nytimes.com/athletic/5727027/2024/08/27/jason-heyward-astros-signing/
-
-**Why Economists Worry About Trumpflation**\
-`And why they may not be worrying enough.`\
-https://nytimes.com/2024/08/27/opinion/trump-inflation.html
-
-**Danielle Collins has what she wanted from tennis. That doesn't make a U.S. Open exit easier**\
-`NEW YORK — Pro tennis rarely does sentimentality, and on Monday at the U.`\
-https://nytimes.com/athletic/5726839/2024/08/27/danielle-collins-us-open-caroline-dolehide/
-
-**Everton in talks to sign Mangala on loan from Lyon**\
-`Everton are in talks to sign former Nottingham Forest midfielder Orel Mangala from Lyon on a season-long loan.`\
-https://nytimes.com/athletic/5726704/2024/08/27/orel-mangala-everton-lyon/
 
