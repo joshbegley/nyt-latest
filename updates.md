@@ -1,3 +1,7 @@
+**Bryce Harper likes his swings — except the one that won a game — and the Phillies will take it**\
+`"It's good for us. Right? He's a big cog in the lineup," Kyle Schwarber said of Harper.`\
+https://nytimes.com/athletic/5725570/2024/08/26/phillies-bryce-harper-walk-off-astros-progress/
+
 **Two Bodies Found in Rice University Dorm Room in Possible Murder-Suicide**\
 `A female student was fatally shot. A man who was not a student had a self-inflicted gunshot wound, the university president said.`\
 https://nytimes.com/2024/08/26/us/rice-university-shooting-homicide.html
