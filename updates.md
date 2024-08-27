@@ -1,3 +1,19 @@
+**Jannik Sinner wins first match since doping case ruling at U.S. Open**\
+`NEW YORK — A week after the news that he had twice tested positive for a banned anabolic steroid, Jannik Sinner walked onto Arthur Ashe Stadium Tuesday and played like someone who had a lot on his mind.`\
+https://nytimes.com/athletic/5727293/2024/08/27/jannik-sinner-us-open-doping-ruling/
+
+**Ex-Mississippi Jail Worker Arrested in Escape of Inmate Who Was Found Near D.N.C.**\
+`Ronnie Hunt, 32, who worked for DeSoto County Sheriff’s Office, is accused of aiding the prisoner, who escaped wearing plain clothes and walked out of a door with no handcuffs or shackles.`\
+https://nytimes.com/2024/08/27/us/mississippi-jailer-arrested-inmate-escape.html
+
+**Patriots 53-man roster review: One thought on every player who made the cut**\
+`A look at the Patriots' initial 53-man roster with one thought on each player. `\
+https://nytimes.com/athletic/5727204/2024/08/27/new-england-patriots-53-man-roster-analysis/
+
+**CNN’s Dana Bash to Interview Harris and Walz on Thursday**\
+`The joint interview will air on CNN at 9 p.m. Eastern.`\
+https://nytimes.com/2024/08/27/business/kamala-harris-dana-bash-interview-cnn.html
+
 **Trump Suggests Debate Rules Are Set. Harris’s Team Says Otherwise.**\
 `The two have been tussling over whether microphones will be muted when a candidate isn’t speaking during the debate, which is scheduled for Sept. 10.`\
 https://nytimes.com/2024/08/27/us/politics/trump-abc-debate-rules.html
