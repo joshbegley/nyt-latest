@@ -1,3 +1,11 @@
+**Israeli commandos found the hostage by chance while capturing a tunnel, officials say.**\
+`Israeli officials said soldiers had been combing a Hamas tunnel network underneath southern Gaza when they stumbled across Farhan Al-Qadi.`\
+https://nytimes.com/live/2024/08/27/world/israel-hamas-gaza-war/israel-hostage-rescue
+
+**Trump to Put Kennedy and Gabbard on His Transition Team**\
+`Mr. Kennedy and Ms. Gabbard, who had been progressive Democrats for many years, will join the former president’s sons and Senator JD Vance, his running mate, as honorary co-chairs.`\
+https://nytimes.com/2024/08/27/us/politics/trump-transition-rfk-tulsi-gabbard.html
+
 **Israeli commandos found the hostage by chance while capturing a tunnel.**\
 `Israeli officials said soldiers had been combing a Hamas tunnel network underneath southern Gaza when they stumbled across Farhan Al-Qadi.`\
 https://nytimes.com/live/2024/08/27/world/israel-hamas-gaza-war/israel-hostage-rescue
