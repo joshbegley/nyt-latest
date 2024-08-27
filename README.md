@@ -1,3 +1,11 @@
+**Can We Be a Little Less Selective With Our Moral Outrage?**\
+`Here are some alternative focal points for outrage for college students from Columbia to Berkeley.`\
+https://nytimes.com/2024/08/27/opinion/gaza-protests-venezuela.html
+
+**Man Is First to Be Charged in New York With Wearing a Mask in Public**\
+`Wesslin Omar Ramirez Castillo was frisked and charged with knife possession after the police stopped him for wearing a ski mask.`\
+https://nytimes.com/2024/08/27/nyregion/face-mask-ban-charges-nyc.html
+
 **Dan Evans beats Karen Khachanov in longest match in U.S. Open history**\
 `Dan Evans beat Karen Khachanov on a roaring Court 6 to win the longest match in U.`\
 https://nytimes.com/athletic/5727605/2024/08/27/us-open-longest-match-tennis-evans-khachanov/
@@ -25,12 +33,4 @@ https://nytimes.com/interactive/2024/08/27/business/economy/jobs-election-county
 **New York Jets 53-man roster: One thought on every player who made the cut**\
 `From 10 offensive linemen to three undrafted defensive linemen, a look at the 2024 Jets.`\
 https://nytimes.com/athletic/5725113/2024/08/27/new-york-jets-53-man-roster-cuts-review/
-
-**Falcons keep Taylor Heinicke, not Kevin King on initial 53-man roster: 5 takeaways**\
-`Wide receiver Chris Blair was another surprising cut by the Falcons as they kept only five receivers on the initial roster.`\
-https://nytimes.com/athletic/5727417/2024/08/27/falcons-roster-taylor-heinicke-kevin-king/
-
-**Cowboys 53-man roster: Strength at LB, what's the plan at RB, intriguing depth options**\
-`With CeeDee Lamb back, the WRs could have a say as the team's top position or the development of the rookies could point to the O-line.`\
-https://nytimes.com/athletic/5726920/2024/08/27/dallas-cowboys-final-53-player-roster/
 
