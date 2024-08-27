@@ -20,7 +20,7 @@ https://nytimes.com/athletic/5726914/2024/08/27/ernest-jones-rams-titans-trade/
 
 **Tulsi Gabbard’s Trumpy Transition Is Now Complete**\
 `The former president is clearly hoping some of Gabbard’s mojo rubs off on him.`\
-https://nytimes.com/live/2024/08/20/opinion/thepoint/tulsi-gabbard-trump-transition
+https://nytimes.com/live/2024/08/27/opinion/thepoint/tulsi-gabbard-trump-transition
 
 **Why Karolina Muchova's behind-the-back lob is the best shot of the U.S. Open so far**\
 `The Czech locked down shot of the tournament with a stunning feat of balance and strength`\
