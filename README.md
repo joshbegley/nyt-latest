@@ -12,7 +12,7 @@ https://nytimes.com/athletic/5727244/2024/08/27/packers-aj-dillon-injured-reserv
 
 **CNN’s Dana Bash to Interview Harris and Walz on Thursday**\
 `The joint interview will air on CNN at 9 p.m. Eastern.`\
-https://nytimes.com/2024/08/27/technology/kamala-harris-interview-cnn.html
+https://nytimes.com/2024/08/27/business/kamala-harris-dana-bash-interview-cnn.html
 
 **The Gender Gap Among Gen Z Voters, Explained**\
 `Claire Cain Miller spoke with eight young women supporting Harris, and eight young men backing Trump. Here’s what she learned.`\
