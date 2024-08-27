@@ -1,5 +1,17 @@
-**Heat Deaths Doubled in the U.S. in Recent Decades, Study Says**\
-`As a late-August heat wave bears down on a significant part of the U.S., new numbers indicate that deaths have increased in recent years.`\
+**Packers RB AJ Dillon lands on season-ending IR with stinger**\
+`Dillon missed three games late last season with a stinger and will now miss his fifth season in the league with another.`\
+https://nytimes.com/athletic/5727244/2024/08/27/packers-aj-dillon-injured-reserve/
+
+**CNN’s Dana Bash to Interview Harris and Walz on Thursday**\
+`The joint interview will air on CNN at 9 p.m. Eastern.`\
+https://nytimes.com/2024/08/27/technology/kamala-harris-interview-cnn.html
+
+**The Gender Gap Among Gen Z Voters, Explained**\
+`Claire Cain Miller spoke with eight young women supporting Harris, and eight young men backing Trump. Here’s what she learned.`\
+https://nytimes.com/2024/08/27/insider/the-gender-gap-among-gen-z-voters-explained.html
+
+**Heat Deaths Have Doubled in the U.S. in Recent Decades, Study Finds**\
+`The finding comes as a late-August heat wave bears down on a significant part of the country.`\
 https://nytimes.com/2024/08/27/climate/heat-deaths.html
 
 **Eighth-grader dies after suffering injury during football practice**\
@@ -21,16 +33,4 @@ https://nytimes.com/2024/08/27/briefing/harris-trump-gaza-hostage-us-china.html
 **Special Counsel Revises Trump Election Indictment to Address Immunity Ruling**\
 `Jack Smith’s filing, in the case charging the former president with plotting to overturn the 2020 election, came in response to the Supreme Court’s ruling giving former presidents broad immunity.`\
 https://nytimes.com/2024/08/27/us/politics/trump-indictment-election-jan-6.html
-
-**Harris’s Ad-War Message: Trump Is Pro-Billionaire, She Worked at McDonald’s**\
-`The ads, focused on cutting costs, are meant to win over voters who believe Donald Trump would be better on the economy. They also signal a shift in tone from President Biden.`\
-https://nytimes.com/2024/08/27/us/politics/harris-trump-ads-economy.html
-
-**Read the Revised Indictment in the Federal Election Subversion Case**\
-`Federal prosecutors issued another version of an indictment accusing former President Donald J. Trump of plotting to overturn the 2020 election after the Supreme Court granted former presidents broad immunity for official acts.`\
-https://nytimes.com/interactive/2024/08/27/us/politics/trump-jan-6-indictment-jack-smith.html
-
-**The most expensive game-worn jerseys in each sport, and which could break the new record**\
-`Babe Ruth's 1932 "called shot" jersey set a new record for most expensive sports memorabilia item ever sold, but can anything top it? `\
-https://nytimes.com/athletic/5725508/2024/08/27/sports-jerseys-game-worn-most-expensive-babe-ruth/
 
