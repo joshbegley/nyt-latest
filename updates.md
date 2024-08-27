@@ -1,3 +1,7 @@
+**Israeli Forces Rescue Hostage in Gaza as Strikes Kill at Least 20 Palestinians**\
+`A Bedouin Arab citizen of Israel was rescued after Israeli commandos found him alone in an underground warren, apparently abandoned by his captors.`\
+https://nytimes.com/2024/08/27/world/middleeast/israel-hostage-rescue-gaza.html
+
 **Kawakami: 49ers' 2024 draft class > the previous three draft classes**\
 `After mostly missing on the previous three draft classes, the 49ers desperately needed the 2024 class to hit. It's already hitting big.`\
 https://nytimes.com/athletic/5724899/2024/08/27/49ers-2024-draft-class-the-previous-three-draft-classes-already-and-by-a-lot/
