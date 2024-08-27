@@ -1,3 +1,15 @@
+**Kelce bros. ink $100 million deal for 'New Heights'**\
+`Travis and Jason Kelce signed a deal with Amazon's podcast network Wondery to be the new home of their podcast.`\
+https://nytimes.com/athletic/5726238/2024/08/27/new-heights-travis-jason-kelce-wondery-amazon-deal/
+
+**Pro-Trump super PAC to begin $60 million ad campaign next week.**\
+`By Theodore Schleifer`\
+https://nytimes.com/live/2024/08/27/us/harris-trump-election/trump-pac-right-for-america
+
+**Buckley: Bailey Zappe wasn't the Patriots' QB of the Future, but he had some happy moments**\
+`Remember Zappe Fever? At a time when so many other things were going wrong, the replacement to the replacement once heard cheers in Boston.`\
+https://nytimes.com/athletic/5707345/2024/08/27/patriots-bailey-zappe-waived/
+
 **In ‘Only Murders in the Building,’ This Actor Is Above Suspicion**\
 `For years, Michael Cyril Creighton hoped one of his small TV parts would evolve into something more. With “Only Murders,” it finally happened.`\
 https://nytimes.com/2024/08/27/arts/television/only-murders-in-the-building-michael-cyril-creighton.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5726338/2024/08/27/fantasy-football-2024-saquon-bar
 **PFA pushing to stop 'bomb squads' as strategy for forcing player exits**\
 `The Professional Footballers’ Association (PFA) is pushing for clubs to stop using &#8216;bomb squads&#8217; as a way to force unwanted players to leave.`\
 https://nytimes.com/athletic/5726144/2024/08/27/pfa-bomb-squad-premier-league/
-
-**Full Time: What does the new NWSL CBA mean for players?**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/5726247/2024/08/27/nwsl-cba-megan-rapinoe-full-time/
-
-**Sancho likely to leave Man United, Juventus and Chelsea in talks**\
-`Jadon Sancho is likely to leave Manchester United permanently or on loan before the transfer window closes — and the club are in talks with Juventus and Chelsea about a deal for the 24-year-old winger.`\
-https://nytimes.com/athletic/5726262/2024/08/27/manchester-united-transfers-jadon-sancho-chelsea-juventus/
-
-**Tua hasn't heard from Flores after criticizing former coach**\
-`Tagovailoa said it's more important for a head coach to support a team's quarterback more than any other position on the team.`\
-https://nytimes.com/athletic/5726172/2024/08/27/tua-tagovailoa-brian-flores-dolphins/
 

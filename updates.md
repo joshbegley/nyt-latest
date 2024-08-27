@@ -1,3 +1,15 @@
+**Kelce bros. ink $100 million deal for 'New Heights'**\
+`Travis and Jason Kelce signed a deal with Amazon's podcast network Wondery to be the new home of their podcast.`\
+https://nytimes.com/athletic/5726238/2024/08/27/new-heights-travis-jason-kelce-wondery-amazon-deal/
+
+**Pro-Trump super PAC to begin $60 million ad campaign next week.**\
+`By Theodore Schleifer`\
+https://nytimes.com/live/2024/08/27/us/harris-trump-election/trump-pac-right-for-america
+
+**Buckley: Bailey Zappe wasn't the Patriots' QB of the Future, but he had some happy moments**\
+`Remember Zappe Fever? At a time when so many other things were going wrong, the replacement to the replacement once heard cheers in Boston.`\
+https://nytimes.com/athletic/5707345/2024/08/27/patriots-bailey-zappe-waived/
+
 **In ‘Only Murders in the Building,’ This Actor Is Above Suspicion**\
 `For years, Michael Cyril Creighton hoped one of his small TV parts would evolve into something more. With “Only Murders,” it finally happened.`\
 https://nytimes.com/2024/08/27/arts/television/only-murders-in-the-building-michael-cyril-creighton.html
