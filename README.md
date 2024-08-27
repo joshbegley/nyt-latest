@@ -1,3 +1,7 @@
+**Rutter to Brighton - inside the deal: How last-minute bid sealed club-record signing**\
+`Brighton triggered Rutter's £40m release clause at Leeds on the night it was due to expire. This is why they did it...`\
+https://nytimes.com/athletic/5711318/2024/08/27/georginio-rutter-brighton-transfers/
+
 **Do Real Madrid have a problem with ACL injuries?**\
 `Real Madrid have suffered six anterior cruciate ligament problems over the past 12 months. Here's how the club views things`\
 https://nytimes.com/athletic/5723628/2024/08/27/real-madrid-acl-injuries-camavinga-militao-alaba/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5723810/2024/08/27/sandro-tonali-return-for-newcast
 **Lost Grounds: The recent movers, a ghostly stadium and many magical memories**\
 `Our travelling odyssey round the lost Football League grounds comes to an end - here's how Upton Park, Ninian Park and others now look`\
 https://nytimes.com/athletic/5616626/2024/08/27/lost-grounds-upton-park-ninian-park-millmoor/
-
-**Managing players that suffered international heartbreak**\
-`Crystal Palace have a raft of players that finished as runners-up in international tournaments and now need to be treated with compassion`\
-https://nytimes.com/athletic/5721089/2024/08/27/crystal-palace-international-psychology-guehi-eze-mateta/
 
