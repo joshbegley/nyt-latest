@@ -1,3 +1,11 @@
+**Wednesday Briefing: A Look at Harris’s Polling Lead**\
+`Plus, looking for love in Shanghai.`\
+https://nytimes.com/2024/08/27/briefing/harris-trump-gaza-hostage-us-china.html
+
+**Special Counsel Revises Trump Election Indictment to Address Immunity Ruling**\
+`Jack Smith filed a superseding indictment in the case charging the former president with plotting to overturn the 2020 election in response to the Supreme Court’s ruling giving former presidents broad immunity.`\
+https://nytimes.com/2024/08/27/us/politics/trump-indictment-election-jan-6.html
+
 **Harris’s Ad-War Message: Trump Is Pro-Billionaire, She Worked at McDonald’s**\
 `The ads, focused on cutting costs, are meant to win over voters who believe Donald Trump would be better on the economy. They also signal a shift in tone from President Biden.`\
 https://nytimes.com/2024/08/27/us/politics/harris-trump-ads-economy.html
