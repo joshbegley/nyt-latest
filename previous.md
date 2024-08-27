@@ -1,3 +1,15 @@
+**With Dams Removed, Salmon Will Have the Run of a Western River**\
+`The nation’s largest dam removal project is nearly complete after a lengthy campaign by Native tribes to restore the river at the California-Oregon border.`\
+https://nytimes.com/2024/08/27/us/klamath-dam-removal-salmon.html
+
+**Scoop City: Notable cutdown-day moves, so far**\
+`A look at gems within the fantasy football draft kit and cutdown-day casualties`\
+https://nytimes.com/athletic/5726213/2024/08/27/ceedee-lambs-triumph-plus-notable-cutdown-day-moves-scoop-city/
+
+**Napoli agree deal to sign Lukaku from Chelsea**\
+`Napoli have agreed a deal to sign Romelu Lukaku from Chelsea.`\
+https://nytimes.com/athletic/5697639/2024/08/27/romelu-lukaku-napoli-chelsea-transfer/
+
 **German City Becomes Reluctant Symbol of a Nation’s Migration Battles**\
 `After a stabbing attack that prosecutors say was committed by a Syrian who was rejected for asylum, the city of Solingen finds itself at the center of a longstanding debate.`\
 https://nytimes.com/2024/08/27/world/europe/germany-solingen-migration-far-right.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5555518/2024/08/27/wojciech-szczesny-retires-juvent
 **49ers to add $200M in Levi's Stadium upgrades**\
 `The 49ers will offer enhanced Wi-Fi technology this season and add 4K video boards before the 2025 season.`\
 https://nytimes.com/athletic/5719760/2024/08/27/levis-stadium-upgrades-49ers-super-bowl-world-cup/
-
-**Connor Stalions addresses Central Michigan sideline photos for first time**\
-`Central Michigan released a statement on Tuesday morning following the documentary's release.`\
-https://nytimes.com/athletic/5725975/2024/08/27/connor-stalions-central-michigan-sideline-photos/
-
-**One Woman’s Quest to Map the Paris Flea Market**\
-`The world-famous stalls have plenty of vintage finds, as long as you know where to look and what to expect.`\
-https://nytimes.com/2024/08/27/style/paris-puces-flea-market.html
-
-**What to Know About the Hostages Israel Has Rescued During the War in Gaza**\
-`Israeli forces have freed eight hostages in military operations in Gaza since Oct. 7, out of the approximately 250 abducted in the Hamas-led attacks.`\
-https://nytimes.com/2024/08/27/world/middleeast/israel-hostages-rescued-hamas-gaza.html
 

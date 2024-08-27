@@ -1,3 +1,15 @@
+**With Dams Removed, Salmon Will Have the Run of a Western River**\
+`The nation’s largest dam removal project is nearly complete after a lengthy campaign by Native tribes to restore the river at the California-Oregon border.`\
+https://nytimes.com/2024/08/27/us/klamath-dam-removal-salmon.html
+
+**Scoop City: Notable cutdown-day moves, so far**\
+`A look at gems within the fantasy football draft kit and cutdown-day casualties`\
+https://nytimes.com/athletic/5726213/2024/08/27/ceedee-lambs-triumph-plus-notable-cutdown-day-moves-scoop-city/
+
+**Napoli agree deal to sign Lukaku from Chelsea**\
+`Napoli have agreed a deal to sign Romelu Lukaku from Chelsea.`\
+https://nytimes.com/athletic/5697639/2024/08/27/romelu-lukaku-napoli-chelsea-transfer/
+
 **Vikings' T.J. Hockenson will remain on PUP list**\
 `Hockenson tore his ACL during the Vikings' Week 16 loss to the Detroit Lions last season.`\
 https://nytimes.com/athletic/5726110/2024/08/27/tj-hockenson-vikings-pup/
