@@ -1,3 +1,7 @@
+**Man Is Charged With Arson in California Wildfire That Destroyed 13 Homes**\
+`The Thompson fire also burned over 3,700 acres and forced the evacuation of 26,000 residents.`\
+https://nytimes.com/2024/08/26/us/california-thompson-fire-arson-arrest.html
+
 **Former Aides to Bush, Romney and McCain Back Harris Over Trump**\
 `The former Republican staffers’ support of the Democratic ticket reflects how former President Donald J. Trump has transformed the Republican Party.`\
 https://nytimes.com/2024/08/26/us/politics/harris-trump-bush-romney-mccain.html
