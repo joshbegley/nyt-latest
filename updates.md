@@ -1,3 +1,11 @@
+**Another Icon-of-the-Seas-Style Megaship? Make That 3 More.**\
+`Royal Caribbean and other companies are aggressively building over-the-top ships. “Today’s cruisezillas make the Titanic look like a small fishing boat,” noted one sustainability specialist.`\
+https://nytimes.com/2024/08/27/travel/icon-of-the-seas-new-ships.html
+
+**The Windup: MLB time travel, explained**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5726526/2024/08/27/danny-jansen-two-teams-game-the-windup/
+
 **Hamburg defender Vuskovic's ban for positive EPO test extended by CAS**\
 `Hamburg SV defender Mario Vuskovic has had his doping ban extended by two years by the Court of Arbitration for Sport (CAS).`\
 https://nytimes.com/athletic/5726490/2024/08/27/mario-vuskovic-ban-epo-cas/
