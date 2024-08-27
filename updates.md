@@ -1,3 +1,7 @@
+**Scientists Have a New Theory About Why Orcas Are Attacking Boats**\
+`A pod of orcas damaged a boat and left its two-person crew stranded. It was the latest in a string of attacks that research suggests could be used for hunting practice.`\
+https://nytimes.com/2024/08/27/world/europe/spain-orcas-boat-ramming.html
+
 **2 Dead, 1 Injured at Delta Maintenance Facility Near Atlanta Airport**\
 `The workers were at the “wheel and brake shop” of the maintenance facility when the accident occurred, Delta said.`\
 https://nytimes.com/2024/08/27/us/delta-atlanta-deaths.html
