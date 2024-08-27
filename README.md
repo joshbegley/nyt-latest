@@ -1,3 +1,7 @@
+**Edgar Bronfman Jr. Drops Pursuit of Paramount**\
+`Mr. Bronfman has frantically put a bid together over the last week even as Paramount raised questions about his financing.`\
+https://nytimes.com/2024/08/26/business/bronfman-drops-paramount-pursuit.html
+
 **Man Is Charged With Arson in California Wildfire That Destroyed 13 Homes**\
 `The Thompson fire also burned over 3,700 acres and forced the evacuation of 26,000 residents.`\
 https://nytimes.com/2024/08/26/us/california-thompson-fire-arson-arrest.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5724895/2024/08/26/49ers-darrell-luter-cornerback-f
 **U.S. Open Tuesday: What to watch at the Billie Jean King Tennis Center on Day 2**\
 `Day 2 of the U.S. Open brings the top half of the men's and women's singles onto the court in Flushing Meadows.`\
 https://nytimes.com/athletic/5724431/2024/08/26/us-open-2024-watch-guide-day-2-sinner-alcaraz-swiatek/
-
-**Packers acquiring QB Malik Willis from Titans**\
-`The deal comes after Sean Clifford, Jordan Love’s backup in 2023, had an underwhelming camp.`\
-https://nytimes.com/athletic/5725266/2024/08/26/malik-willis-packers-titans-trade/
 
