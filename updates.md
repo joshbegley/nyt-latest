@@ -1,3 +1,5 @@
+**Israel launches a deadly airstrike in the West Bank, and other news.**\
+
 **Preseason rookie winners and losers: Which 2024 first-round picks thrived in August?**\
 `It's way, way too early to declare any 2024 first-round picks as busts, but some did get off to better starts than others in preseason.`\
 https://nytimes.com/athletic/5720559/2024/08/27/nfl-draft-preseason-rookies-winners-caleb-williams-malik-nabers/
