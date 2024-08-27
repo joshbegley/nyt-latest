@@ -1,3 +1,11 @@
+**Bengals' cutdown day takeaways: Ja'Marr Chase relief, Amarius Mims' timeline**\
+`Keep an eye on running back and defensive tackle as Cincinnati now looks to the waiver wire to address needs.`\
+https://nytimes.com/athletic/5727703/2024/08/27/bengals-cutdown-day-takeaways-chase-mims/
+
+**Colts cut day takeaways: TE Jelani Woods out for season; did Indy choose wrong QB3?**\
+`Did the Colts make the right call keeping Sam Ehlinger over Jason Bean? `\
+https://nytimes.com/athletic/5727612/2024/08/27/indianapolis-colts-cut-day-takeaways-jelani-woods-sam-ehlinger/
+
 **First Jan. 6 Rioter to Enter Capitol Gets More Than 4 Years in Prison**\
 `Michael Sparks, 47, was the first rioter to breach the Capitol and among the first to be confronted by the U.S. Capitol Police Officer Eugene Goodman.`\
 https://nytimes.com/2024/08/27/us/politics/jan-6-riot-michael-sparks-sentence.html

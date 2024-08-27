@@ -1,3 +1,11 @@
+**Bengals' cutdown day takeaways: Ja'Marr Chase relief, Amarius Mims' timeline**\
+`Keep an eye on running back and defensive tackle as Cincinnati now looks to the waiver wire to address needs.`\
+https://nytimes.com/athletic/5727703/2024/08/27/bengals-cutdown-day-takeaways-chase-mims/
+
+**Colts cut day takeaways: TE Jelani Woods out for season; did Indy choose wrong QB3?**\
+`Did the Colts make the right call keeping Sam Ehlinger over Jason Bean? `\
+https://nytimes.com/athletic/5727612/2024/08/27/indianapolis-colts-cut-day-takeaways-jelani-woods-sam-ehlinger/
+
 **Chargers' initial 53-man roster: Easton Stick is the backup QB ... for now**\
 `The Chargers figure to heavily monitor the waiver wire and trade market in the coming days to try to upgrade behind Justin Herbert.`\
 https://nytimes.com/athletic/5727526/2024/08/27/chargers-initial-53-roster-easton-stick/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/27/nyregion/school-cellphone-bans-nyc.html
 **49ers 53-man roster analysis: Talanoa Hufanga comes off PUP; still waiting on Trent Williams**\
 `The 49ers' initial roster doesn't include Williams, but considering it has just two tackles, they clearly expect to land him soon.`\
 https://nytimes.com/athletic/5725477/2024/08/27/49ers-53-man-roster-hufanga-williams/
-
-**Can We Be a Little Less Selective With Our Moral Outrage?**\
-`Here are some alternative focal points for outrage for college students from Columbia to Berkeley.`\
-https://nytimes.com/2024/08/27/opinion/gaza-protests-venezuela.html
-
-**Man Is First to Be Charged in New York With Wearing a Mask in Public**\
-`Wesslin Omar Ramirez Castillo was frisked and charged with knife possession after the police stopped him for wearing a ski mask.`\
-https://nytimes.com/2024/08/27/nyregion/face-mask-ban-charges-nyc.html
 
