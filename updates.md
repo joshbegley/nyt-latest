@@ -1,3 +1,11 @@
+**Ranking the top 10 AL rookies — with 5 in the mix in tight Rookie of the Year race**\
+`This is how I see the American League Rookie of the Year race with five weeks remaining. `\
+https://nytimes.com/athletic/5725446/2024/08/27/american-league-rookie-of-the-year-race/
+
+**A Popular Weight Loss Drug Is Getting a Price Cut**\
+`Eli Lilly will now sell cheaper vials of Zepbound, presenting a direct challenge to telehealth companies that offer compounded versions of the medication.`\
+https://nytimes.com/2024/08/27/well/eli-lilly-zepbound-price.html
+
 **21 Questions for Harris**\
 `We’re asking unanswered questions for her potential administration.`\
 https://nytimes.com/2024/08/27/briefing/21-questions-for-harris.html

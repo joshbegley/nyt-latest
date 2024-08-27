@@ -1,3 +1,11 @@
+**Ranking the top 10 AL rookies — with 5 in the mix in tight Rookie of the Year race**\
+`This is how I see the American League Rookie of the Year race with five weeks remaining. `\
+https://nytimes.com/athletic/5725446/2024/08/27/american-league-rookie-of-the-year-race/
+
+**A Popular Weight Loss Drug Is Getting a Price Cut**\
+`Eli Lilly will now sell cheaper vials of Zepbound, presenting a direct challenge to telehealth companies that offer compounded versions of the medication.`\
+https://nytimes.com/2024/08/27/well/eli-lilly-zepbound-price.html
+
 **21 Questions for Harris**\
 `We’re asking unanswered questions for her potential administration.`\
 https://nytimes.com/2024/08/27/briefing/21-questions-for-harris.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/27/podcasts/russia-ukraine-ftc-fights-grocery-merger
 **With spark plug Corbin Carroll thriving again, surging Diamondbacks firing on all cylinders**\
 `The Diamondbacks are proving they're no one-year wonder, with their star showing that his rookie of the year campaign was just the start.`\
 https://nytimes.com/athletic/5725119/2024/08/27/corbin-carroll-diamondbacks-spark-plug/
-
-**In the 12-team CFP era, can LSU upgrade its wild-card contender brand?**\
-`A title doesn’t look to be in the cards this year on paper, but the CFP is the new benchmark, and anything can happen in Baton Rouge.`\
-https://nytimes.com/athletic/5722755/2024/08/27/lsu-college-football-playoff-projections-preview/
-
-**The First Major Cyberattack of the 2024 Election**\
-`Iran is to blame for hacking into the Trump campaign and trying to breach the Biden-Harris campaign, U.S. intelligence officials said.`\
-https://nytimes.com/2024/08/27/podcasts/the-daily/hacking-2024-election.html
 
