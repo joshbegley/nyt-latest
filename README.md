@@ -1,3 +1,7 @@
+**21 Questions for Harris**\
+`We’re asking unanswered questions for her potential administration.`\
+https://nytimes.com/2024/08/27/briefing/21-questions-for-harris.html
+
 **Villa's Iling-Junior joins Bologna on loan**\
 `Aston Villa&#8217;s Samuel Iling-Junior has completed a season-long loan move to Bologna.`\
 https://nytimes.com/athletic/5723562/2024/08/27/samuel-iling-junior-bologna-loan-aston-villa/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5722755/2024/08/27/lsu-college-football-playoff-pro
 **The First Major Cyberattack of the 2024 Election**\
 `Iran is to blame for hacking into the Trump campaign and trying to breach the Biden-Harris campaign, U.S. intelligence officials said.`\
 https://nytimes.com/2024/08/27/podcasts/the-daily/hacking-2024-election.html
-
-**Cubs prospect Cam Smith rides 6-game homer streak to a promotion: 'He’s an 80-grade makeup'**\
-`The Cubs took the 21-year-old third baseman with the 14th pick in July and he's already moving up in their system.`\
-https://nytimes.com/athletic/5725396/2024/08/27/cubs-prospect-cam-smith/
 
