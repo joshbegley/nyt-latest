@@ -1,3 +1,15 @@
+**Kawakami: 49ers' 2024 draft class > the previous three draft classes**\
+`After mostly missing on the previous three draft classes, the 49ers desperately needed the 2024 class to hit. It's already hitting big.`\
+https://nytimes.com/athletic/5724899/2024/08/27/49ers-2024-draft-class-the-previous-three-draft-classes-already-and-by-a-lot/
+
+**Seahawks 53-man roster: Plenty of surprises, Uchenna Nwosu avoids IR**\
+`The Seahawks kept two undrafted free agents while cutting a rookie draft pick and a former top pick. They also might not be done yet.`\
+https://nytimes.com/athletic/5727314/2024/08/27/seahawks-roster-cuts-53-cutdown/
+
+**Israeli Forces Rescue Hostage in Gaza as Strikes Kill At Least 20 Palestinians**\
+`A Bedouin Arab citizen of Israel was rescued after Israeli commandos found him alone in an underground warren, apparently abandoned by his captors.`\
+https://nytimes.com/2024/08/27/world/middleeast/israel-hostage-rescue-gaza.html
+
 **Bengals' cutdown day takeaways: Ja'Marr Chase relief, Amarius Mims' timeline**\
 `Keep an eye on running back and defensive tackle as Cincinnati now looks to the waiver wire to address needs.`\
 https://nytimes.com/athletic/5727703/2024/08/27/bengals-cutdown-day-takeaways-chase-mims/
