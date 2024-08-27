@@ -1,3 +1,7 @@
+**Commanders 53-man roster following cutdown day: Which recent draft picks were retained?**\
+`Washington trimmed its roster from 90 to 53, and did so by jettisoning another bushel of players acquired over the previous four years.`\
+https://nytimes.com/athletic/5727285/2024/08/27/commanders-53-man-roster-cutdown-day/
+
 **The Geography of Unequal Recovery**\
 `The U.S. economy has added roughly 19 millions jobs in four years. But as of the end of 2023, 43 percent of counties still hadn’t regained all the jobs they lost in the early months of the pandemic.`\
 https://nytimes.com/interactive/2024/08/27/business/economy/jobs-election-county.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5727324/2024/08/27/gonzaga-steele-venters-achilles-
 **Vikings 53-man roster review: One thought on every player who made the cut**\
 `We break down the Vikings' initial 53-man roster ahead of Wednesday's waiver claims. How will they fill the holes at RB and KR?`\
 https://nytimes.com/athletic/5727303/2024/08/27/minnesota-vikings-53-man-roster-analysis/
-
-**Brighton's Matt O’Riley suffers injury on debut**\
-`Brighton &amp; Hove Albion head coach Fabian Hurzeler is hopeful the injury sustained by new signing Matt O’Riley isn’t as severe &#8220;as it looks&#8221; but confirmed that the midfielder &#8220;couldn&#8217;t put any weight on his ankle.`\
-https://nytimes.com/athletic/5727386/2024/08/27/matt-oriley-brighton-injury-debut/
 
