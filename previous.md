@@ -1,3 +1,19 @@
+**Brighton's Matt O’Riley suffers injury on debut**\
+`Brighton &amp; Hove Albion head coach Fabian Hurzeler is hopeful the injury sustained by new signing Matt O’Riley isn’t as severe &#8220;as it looks&#8221; but confirmed that the midfielder &#8220;couldn&#8217;t put any weight on his ankle.`\
+https://nytimes.com/athletic/5727386/2024/08/27/matt-oriley-brighton-injury-debut/
+
+**A Bargain at the Opera: Philadelphia Offers All Seats for as Low as $11**\
+`Seeking new audiences, Opera Philadelphia is putting in place a pay-what-you-can model, one of the first of its kind by a major opera company.`\
+https://nytimes.com/2024/08/27/arts/music/opera-philadelphia-pay-what-you-wish.html
+
+**After Israel’s Hostage Rescue, Could There Finally Be a Cease-Fire Deal?**\
+`A majority of Israelis support a cease-fire in exchange for the remaining hostages.`\
+https://nytimes.com/live/2024/08/27/opinion/thepoint/hostage-rescue-ceasefire-israel-gaza
+
+**Man Dies After Boat Flips on Colorado River in Grand Canyon**\
+`The death of an 80-year-old man was the fifth fatality there in a month, officials said.`\
+https://nytimes.com/2024/08/27/us/grand-canyon-colorado-river-death.html
+
 **Who is Franco Colapinto and what can Williams expect from Logan Sargeant's replacement?**\
 `Williams will give the young Argentine a long look for nine races before Carlos Sainz joins in 2025. `\
 https://nytimes.com/athletic/5726649/2024/08/27/franco-colapinto-f1-williams-logan-sargeant/
@@ -17,20 +33,4 @@ https://nytimes.com/2024/08/27/briefing/trump-revised-charges-israel-gaza-hostag
 **Man Charged With Tupac Shakur’s Murder Loses Bid for Release**\
 `A judge declined to release Duane Keith Davis, whose trial is scheduled for March, after a dispute over the source of the bail funds.`\
 https://nytimes.com/2024/08/27/arts/music/tupac-keefe-d-duane-keith-davis-bail.html
-
-**Jannik Sinner wins first match since doping case ruling at U.S. Open**\
-`NEW YORK — A week after the news that he had twice tested positive for a banned anabolic steroid, Jannik Sinner walked onto Arthur Ashe Stadium Tuesday and played like someone who had a lot on his mind.`\
-https://nytimes.com/athletic/5727293/2024/08/27/jannik-sinner-us-open-doping-ruling/
-
-**Ex-Mississippi Jail Worker Arrested in Escape of Inmate Who Was Found Near D.N.C.**\
-`Ronnie Hunt, 32, who worked for DeSoto County Sheriff’s Office, is accused of aiding the prisoner, who escaped wearing plain clothes and walked out of a door with no handcuffs or shackles.`\
-https://nytimes.com/2024/08/27/us/mississippi-jailer-arrested-inmate-escape.html
-
-**Patriots 53-man roster review: One thought on every player who made the cut**\
-`A look at the Patriots' initial 53-man roster with one thought on each player. `\
-https://nytimes.com/athletic/5727204/2024/08/27/new-england-patriots-53-man-roster-analysis/
-
-**Trump Suggests Debate Rules Are Set. Harris’s Team Says Otherwise.**\
-`The two have been tussling over whether microphones will be muted when a candidate isn’t speaking during the debate, which is scheduled for Sept. 10.`\
-https://nytimes.com/2024/08/27/us/politics/trump-abc-debate-rules.html
 
