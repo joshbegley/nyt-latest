@@ -1,3 +1,7 @@
+**NFL owners allow private equity firms to buy limited stakes in teams**\
+`NFL ownership rules previously only allowed for a limited number of approved partners, but not investment firms.`\
+https://nytimes.com/athletic/5727359/2024/08/27/nfl-owners-private-equity-firms/
+
 **Bears include Velus Jones Jr., DeAndre Carter on initial 53-man roster: 5 takeaways**\
 `The Bears likely will be in the market for a long snapper with Patrick Scales headed to IR and Cameron Lyons waived on Tuesday.`\
 https://nytimes.com/athletic/5727281/2024/08/27/bears-roster-velus-jones-deandre-carter/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/27/us/politics/trump-abc-debate-rules.html
 **‘No Barrier’ to Nuclear Talks With U.S., Iran’s Supreme Leader Says**\
 `It was unclear if Ayatollah Ali Khamenei’s comments signaled any shift in Iran’s stance, but the country’s new president has called for an accord that would relieve Western sanctions against it.`\
 https://nytimes.com/2024/08/27/world/middleeast/iran-nuclear-talks-khamenei.html
-
-**Packers RB AJ Dillon lands on season-ending IR with stinger**\
-`Dillon missed three games late last season with a stinger and will now miss his fifth season in the league with another.`\
-https://nytimes.com/athletic/5727244/2024/08/27/packers-aj-dillon-injured-reserve/
 
