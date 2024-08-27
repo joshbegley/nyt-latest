@@ -1,3 +1,11 @@
+**Submit your Red Wings questions for Max Bultman's mailbag**\
+`Send in your questions, and Max may answer them in an upcoming mailbag.`\
+https://nytimes.com/athletic/5727163/2024/08/27/red-wings-mailbag-prompt-max-bultman/
+
+**On Nick Saban's 'College GameDay' debut: 'This is my gig, and it’s hard'**\
+`Saban made his "College GameDay" debut on Saturday from Ireland, and it was glorious.`\
+https://nytimes.com/athletic/5727011/2024/08/27/nick-saban-gameday-debut/
+
 **Astros close to signing Jason Heyward: Sources**\
 `The Los Angeles Dodgers designated Heyward for assignment last week to clear a roster spot for Chris Taylor.`\
 https://nytimes.com/athletic/5727027/2024/08/27/jason-heyward-astros-signing/
