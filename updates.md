@@ -1,3 +1,7 @@
+**Two Bodies Found in Rice University Dorm Room in Possible Murder-Suicide**\
+`A female student was fatally shot. A man who is not believed to have been a student had what appeared to be a self-inflicted gunshot wound, a university spokesman said.`\
+https://nytimes.com/2024/08/26/us/rice-university-shooting-homicide.html
+
 **Take the Wheel**\
 `Julia Hoepner makes her New York Times debut.`\
 https://nytimes.com/2024/08/26/crosswords/daily-puzzle-2024-08-27.html

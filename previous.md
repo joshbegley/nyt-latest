@@ -1,3 +1,7 @@
+**Two Bodies Found in Rice University Dorm Room in Possible Murder-Suicide**\
+`A female student was fatally shot. A man who is not believed to have been a student had what appeared to be a self-inflicted gunshot wound, a university spokesman said.`\
+https://nytimes.com/2024/08/26/us/rice-university-shooting-homicide.html
+
 **Take the Wheel**\
 `Julia Hoepner makes her New York Times debut.`\
 https://nytimes.com/2024/08/26/crosswords/daily-puzzle-2024-08-27.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5725374/2024/08/26/submit-a-question-for-stewart-ma
 **Sid Eudy, Wrestler Known as ‘Sid Vicious’ and ‘Sycho Sid,’ Dies at 63**\
 `The 6-foot-9 wrestling champion faced off against some of the industry’s biggest names, including Shawn Michaels and Hulk Hogan.`\
 https://nytimes.com/2024/08/26/sports/sid-eudy-dead.html
-
-**49ers' Darrell Luter Jr. could be a bridge to the team's future at cornerback**\
-`The 49ers are deep with veteran CBs, but none are signed beyond this season. Enter Luter, who intercepted his college QB on Friday.`\
-https://nytimes.com/athletic/5724895/2024/08/26/49ers-darrell-luter-cornerback-future-interception/
 
