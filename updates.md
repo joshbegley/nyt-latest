@@ -1,3 +1,11 @@
+**How the Politics of the Gaza War Engulfed the Melbourne Symphony**\
+`The orchestra faced criticism for canceling a performance by a pianist who spoke about the war. Now a top leader has departed and the ensemble has opened an inquiry.`\
+https://nytimes.com/2024/08/27/arts/music/melbourne-symphony-israel-gaza-war.html
+
+**To Lure Michigan Voters, Trump Campaign Stokes China Fears**\
+`JD Vance, the Republican vice-presidential nominee, waded into a fight over plans by Gotion, a Chinese battery plant, to build a factory in Michigan.`\
+https://nytimes.com/2024/08/27/us/politics/vance-trump-michigan-china-gotion.html
+
 **Browns' Hall Jr. placed on exempt list following arrest**\
 `Hall will still be paid, but he won't count on the Browns' 53-man roster and isn't allowed to participate in team activities.`\
 https://nytimes.com/athletic/5727101/2024/08/27/mike-hall-exempt-list-browns/
