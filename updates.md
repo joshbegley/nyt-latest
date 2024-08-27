@@ -1,3 +1,7 @@
+**Looking for Information on L.G.B.T.Q. Travel to Florida? Don’t Ask Florida.**\
+`The state’s travel website recently removed pages dedicated to L.G.B.T.Q. travel. Some Floridians aren’t happy about it.`\
+https://nytimes.com/2024/08/27/travel/florida-lgbtq-travel.html
+
 **What to Know About the Rare Mosquito-Borne Illness Eastern Equine Encephalitis**\
 `The disease has caused one death in New Hampshire and the virus has also been identified in humans in neighboring states, health officials said.`\
 https://nytimes.com/2024/08/27/us/massachusetts-eee-mosquito-disease.html
