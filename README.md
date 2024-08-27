@@ -10,11 +10,15 @@ https://nytimes.com/athletic/5727027/2024/08/27/jason-heyward-astros-signing/
 `And why they may not be worrying enough.`\
 https://nytimes.com/2024/08/27/opinion/trump-inflation.html
 
+**Danielle Collins has what she wanted from tennis. That doesn't make a U.S. Open exit easier**\
+`NEW YORK — Pro tennis rarely does sentimentality, and on Monday at the U.`\
+https://nytimes.com/athletic/5726839/2024/08/27/danielle-collins-us-open-caroline-dolehide/
+
 **Everton in talks to sign Mangala on loan from Lyon**\
 `Everton are in talks to sign former Nottingham Forest midfielder Orel Mangala from Lyon on a season-long loan.`\
 https://nytimes.com/athletic/5726704/2024/08/27/orel-mangala-everton-lyon/
 
-**Hostage’s Release Shines a Spotlight on Israel’s Bedouins**\
+**Hostage’s Rescue Shines a Spotlight on Israel’s Bedouins**\
 `The Bedouins of the Negev desert suffered painful losses on Oct. 7, but less attention has been focused on their plight than on some of the other victims of the Hamas-led attack.`\
 https://nytimes.com/2024/08/27/world/middleeast/israel-gaza-hostage-bedouin.html
 
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/27/us/guantanamo-detainees-moved.html
 **A U.S. Open Party So Exclusive, Andy Roddick Just Got His Invite**\
 `An opening-night gala featured celebrities like Lin-Manuel Miranda, Alec Baldwin, Anna Wintour and Mr. Roddick (who won the tournament in 2003).`\
 https://nytimes.com/2024/08/27/style/us-open-gala.html
-
-**Mamardashvili and a 'special power' that set him on the path to Liverpool**\
-`The Georgian has always been talented, but it is his mentality that impressed those who have known him longest`\
-https://nytimes.com/athletic/5724183/2024/08/27/giorgi-mamardashvili-liverpool-transfer-profile/
 
