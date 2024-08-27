@@ -1,7 +1,3 @@
-**Tuesday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2024/08/27/briefing/ukraine-russia-harris-trump-israel.html
-
 **A Mercedes-Benz Fire Jolts South Korea’s E.V. Transition**\
 `The government is aggressively promoting electric cars. But a dramatic blaze in an underground lot has left some potential buyers worried about safety.`\
 https://nytimes.com/2024/08/27/world/asia/south-korea-electric-vehicle-fire.html
@@ -33,4 +29,8 @@ https://nytimes.com/athletic/5725570/2024/08/26/phillies-bryce-harper-walk-off-a
 **Padres agree to minor-league deal with Elias Díaz**\
 `The Rockies released the 2023 All-Star Game MVP on Aug. 16.`\
 https://nytimes.com/athletic/5725488/2024/08/26/padres-elias-diaz-minor-league-deal/
+
+**In the Hamptons, Doug Emhoff calls Kamala Harris a ‘joyful warrior.’**\
+`By Nate Schweber`\
+https://nytimes.com/live/2024/08/26/us/harris-trump-election/in-the-hamptons-doug-emhoff-calls-kamala-harris-a-joyful-warrior
 
