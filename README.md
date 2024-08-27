@@ -1,3 +1,7 @@
+**Goalkeeper Szczesny retires from football**\
+`Former Juventus and Arsenal goalkeeper Wojciech Szczesny has announced his retirement from professional football at the age of 34.`\
+https://nytimes.com/athletic/5555518/2024/08/27/wojciech-szczesny-retires-juventus/
+
 **49ers to add $200M in Levi's Stadium upgrades**\
 `The 49ers will offer enhanced Wi-Fi technology this season and add 4K video boards before the 2025 season.`\
 https://nytimes.com/athletic/5719760/2024/08/27/levis-stadium-upgrades-49ers-super-bowl-world-cup/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5725727/2024/08/27/chiedozie-ogbene-ipswich-transfe
 **What We Know About the Telegram Founder’s Arrest**\
 `Pavel Durov has been detained in France, as part of wide-ranging investigation into criminal activities on the messaging platform he runs.`\
 https://nytimes.com/2024/08/27/business/telegram-pavel-durov-arrest-explained.html
-
-**Here are the latest developments.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/08/27/world/israel-hamas-gaza-war/here-are-the-latest-developments
 
