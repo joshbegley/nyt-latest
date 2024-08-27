@@ -1,3 +1,11 @@
+**Preseason rookie winners and losers: Which 2024 first-round picks thrived in August?**\
+`It's way, way too early to declare any 2024 first-round picks as busts, but some did get off to better starts than others in preseason.`\
+https://nytimes.com/athletic/5720559/2024/08/27/nfl-draft-preseason-rookies-winners-caleb-williams-malik-nabers/
+
+**College football bowl projections: Preseason picks from CFP to Bahamas Bowl**\
+`Get ready for a new era in college football filled with more season-long intrigue than ever before. Let the predictions and arguments begin.`\
+https://nytimes.com/athletic/5722213/2024/08/27/college-football-preseason-bowl-projections-playoff/
+
 **Faced With the Boeing Starliner’s Flaws, NASA Gets a Couple of Things Right**\
 `Redundancy, it seems, has paid off.`\
 https://nytimes.com/live/2024/08/20/opinion/thepoint/nasa-starliner-astronauts-space
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/27/business/energy-environment/tesla-electric-vehicl
 **The Short-Sighted Economic Populism of Harris and Trump**\
 `It’s worrisome to see the candidates talk down to voters.`\
 https://nytimes.com/2024/08/27/opinion/harris-trump-economic-populism.html
-
-**When Your Child Is an Animal**\
-`The charged cultural conversation about pets and children — see “Chimp Crazy,” “childless cat ladies” and more — reveals the hidden contradictions of family life.`\
-https://nytimes.com/2024/08/27/arts/chimp-crazy-vance-cats.html
-
-**Abraham Lincoln’s Wiliest Trick Should Be a Lesson for Biden**\
-`A model of how a lame duck can nobly serve the nation`\
-https://nytimes.com/2024/08/27/opinion/abraham-lincoln-lesson-biden.html
 
