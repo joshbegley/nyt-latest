@@ -1,3 +1,15 @@
+**Why Is the Loneliness Epidemic so Hard to Cure?**\
+`Maybe because we aren’t thinking about it in the right way.`\
+https://nytimes.com/2024/08/27/magazine/loneliness-epidemic-cure.html
+
+**The Finest, Funnest, Most Freeing Footwear**\
+`Go ahead and wear your rubber sandals — even in New York City.`\
+https://nytimes.com/2024/08/27/magazine/flip-flops-new-york.html
+
+**McTominay to travel today to complete Napoli move**\
+`Manchester United midfielder Scott McTominay is expected to travel today (Tuesday) to complete his move to Napoli.`\
+https://nytimes.com/athletic/5722138/2024/08/27/napoli-scott-mctominay-man-utd/
+
 **U.S. Open day 1 recap: Djokovic eases in as fans roam around**\
 `The defending men's champion sailed through, while new crowd rules paid dividends on the terraces.`\
 https://nytimes.com/athletic/5724771/2024/08/27/us-open-recap-day-1-results-analysis-gauff/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5724956/2024/08/27/connor-stalions-netflix-document
 **What we learned (and mostly didn't) from the Connor Stalions documentary on Netflix**\
 `“Sign Stealer,” released as part of Netflix’s “Untold” series, illustrates the absurdity of the Connor Stalions drama without clear answers.`\
 https://nytimes.com/athletic/5724469/2024/08/27/connor-stalions-netflix-sign-stealer-review/
-
-**His Siblings Gathered to Sell the Family Home. Then He Started Shooting.**\
-`Joseph DeLucia, despondent over the sale of the Long Island house where he lived with his mother, killed three siblings, a niece and himself, the police said.`\
-https://nytimes.com/2024/08/27/nyregion/murder-suicide-long-island-syosset.html
-
-**For Italian Tennis Stars, a Little Corner of Rome in the East Village**\
-`A trattoria on the Lower East Side has become the de facto lounge for  Italians at the U.S. Open.`\
-https://nytimes.com/2024/08/27/nyregion/usopen-tennis-italy.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/08/27/crosswords/spelling-bee-forum.html
 

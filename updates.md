@@ -1,3 +1,15 @@
+**Why Is the Loneliness Epidemic so Hard to Cure?**\
+`Maybe because we aren’t thinking about it in the right way.`\
+https://nytimes.com/2024/08/27/magazine/loneliness-epidemic-cure.html
+
+**The Finest, Funnest, Most Freeing Footwear**\
+`Go ahead and wear your rubber sandals — even in New York City.`\
+https://nytimes.com/2024/08/27/magazine/flip-flops-new-york.html
+
+**McTominay to travel today to complete Napoli move**\
+`Manchester United midfielder Scott McTominay is expected to travel today (Tuesday) to complete his move to Napoli.`\
+https://nytimes.com/athletic/5722138/2024/08/27/napoli-scott-mctominay-man-utd/
+
 **U.S. Open day 1 recap: Djokovic eases in as fans roam around**\
 `The defending men's champion sailed through, while new crowd rules paid dividends on the terraces.`\
 https://nytimes.com/athletic/5724771/2024/08/27/us-open-recap-day-1-results-analysis-gauff/
