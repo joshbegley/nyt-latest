@@ -1,3 +1,7 @@
+**Don’t Call the Telegram Chief Executive’s Arrest a Free Speech Infringement — Yet**\
+`Some early details suggest the issue here isn’t one of free speech, but of criminal activity.`\
+https://nytimes.com/2024/08/20/opinion/pavel-durov-telegram-arrest.html
+
 **Kennedy Says Trump Will ‘Make Americans Healthy.’ His Record Suggests Otherwise.**\
 `As president, Donald J. Trump slashed protections for clean air and water and weakened school nutrition standards.`\
 https://nytimes.com/2024/08/27/climate/rfk-jr-trump-chemicals-pesticides.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/27/business/trump-tariffs-us-trade.html
 **What is the Creator Classic? Inside the PGA Tour's attempt to bring in YouTube golfers**\
 `Tour Championship week starts with 16 popular YouTubers playing live stroke-play golf at East Lake.`\
 https://nytimes.com/athletic/5726263/2024/08/27/creator-classic-pga-tour-youtube-golf-influencers/
-
-**Bournemouth's Anthony undergoing medical ahead of Burnley loan**\
-`Bournemouth winger Jaidon Anthony is undergoing a medical ahead of joining Burnley on a season-long loan.`\
-https://nytimes.com/athletic/5726129/2024/08/27/jaidon-anthony-burnley-loan-transfer/
 
