@@ -1,3 +1,11 @@
+**Padres agree to minor-league deal with Elias Díaz**\
+`The Rockies released the 2023 All-Star Game MVP on Aug. 16.`\
+https://nytimes.com/athletic/5725488/2024/08/26/padres-elias-diaz-minor-league-deal/
+
+**In the Hamptons, Doug Emhoff calls Kamala Harris a ‘joyful warrior.’**\
+`By Nate Schweber`\
+https://nytimes.com/live/2024/08/26/us/harris-trump-election/in-the-hamptons-doug-emhoff-calls-kamala-harris-a-joyful-warrior
+
 **Two Bodies Found in Rice University Dorm Room in Possible Murder-Suicide**\
 `A female student was fatally shot. A man who is not believed to have been a student had what appeared to be a self-inflicted gunshot wound, a university spokesman said.`\
 https://nytimes.com/2024/08/26/us/rice-university-shooting-homicide.html
