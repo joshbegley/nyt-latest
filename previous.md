@@ -1,4 +1,4 @@
-**Steelers 53-man roster: Beanie Bishop wins a job, and more moves might be coming**\
+**Steelers 53-man roster: Beanie Bishop wins a job, while more moves might be coming**\
 `The Steelers kept only five wideouts, pointing to the possibility of a waiver wire addition. They could also use help at OL, DL and DB.`\
 https://nytimes.com/athletic/5727348/2024/08/27/steelers-roster-cuts-53-cutdown/
 
