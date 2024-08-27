@@ -1,36 +1,36 @@
-**On the Covid ‘Off-Ramp’: No Tests, Isolation or Masks**\
-`For many, Covid is increasingly regarded like the common cold. A scratchy throat and canceled plans bring a bewildering new critique from friends: You shouldn’t have tested.`\
-https://nytimes.com/2024/08/27/health/covid-19-tests-vaccines-masks.html
+**Faced With the Boeing Starliner’s Flaws, NASA Gets a Couple of Things Right**\
+`Redundancy, it seems, has paid off.`\
+https://nytimes.com/live/2024/08/20/opinion/thepoint/nasa-starliner-astronauts-space
 
-**For a Night on the Town, Try Leather and Lace**\
-`This fall, men’s wear is all about embracing the darkness.`\
-https://nytimes.com/2024/08/27/t-magazine/leather-lace-mens-fashion-fall.html
+**Breaking Up Google Isn’t Nearly Enough**\
+`To end Google’s monopoly on search, the company should be required to disgorge its data on what we’re searching for.`\
+https://nytimes.com/2024/08/27/opinion/google-monopoly-ruling-break-up.html
 
-**He Bought a (Miniature) Zoo**\
-`The painter Walton Ford has amassed dozens of vintage German animal figurines.`\
-https://nytimes.com/2024/08/27/t-magazine/walton-ford-animal-figurine-collection.html
+**Why is Kirk Cousins a Tier 2 quarterback? 'He's the reason everybody is flowing'**\
+`Cousins got his highest ranking yet in Mike Sando's Quarterback Tiers this year. His new teammates think they know why.`\
+https://nytimes.com/athletic/5723992/2024/08/27/kirk-cousins-falcons-quarterback-tiers/
 
-**At Michigan, Activists Take Over and Shut Down Student Government**\
-`Pro-Palestinian protesters won council elections, and have refused to fund campus groups, like the men’s Ultimate Frisbee team, unless their divestment demands are met.`\
-https://nytimes.com/2024/08/27/us/umich-gaza-protests-student-government.html
+**5 Fresh Takes on Summer Classics for Labor Day**\
+`Packed with sun-sweet fruits and vegetables, these easy recipes are perfect for any party.`\
+https://nytimes.com/2024/08/27/dining/labor-day-cookout-recipes.html
 
-**19 New Books Coming in September**\
-`New novels by Sally Rooney and Richard Powers, a memoir by the first Black woman on the Supreme Court — and more.`\
-https://nytimes.com/2024/08/27/books/review/new-september-fall-books.html
+**Will Harris’s Lead Last? A Few Questions That Will Shape the Answer.**\
+`A certain kind of change candidate that is proving tough for Donald Trump to attack.`\
+https://nytimes.com/2024/08/27/upshot/harris-trump-polling-bounce.html
 
-**5 Ways to Feel More Connected, According to Dr. Ruth**\
-`In ‘The Joy of Connections,’ a book set to publish shortly after her death at 96, America’s best-known sex therapist offered practical strategies for anyone feeling lonely.`\
-https://nytimes.com/2024/08/27/well/dr-ruth-lessons-the-joy-of-connections.html
+**Tesla’s Rivals Still Can’t Use Its Superchargers**\
+`Elon Musk’s plan to open Tesla’s charging network is proceeding slowly. Nobody is entirely sure why, or when that might change.`\
+https://nytimes.com/2024/08/27/business/energy-environment/tesla-electric-vehicle-charging.html
 
-**How Much Bloodshed Is Behind the Bananas You Eat?**\
-`In June, a Florida jury found Chiquita Brands liable for the deaths of eight men killed by a Colombian paramilitary group the company had financed.`\
-https://nytimes.com/2024/08/27/opinion/chiquita-banana-killings-colombia-auc.html
+**The Short-Sighted Economic Populism of Harris and Trump**\
+`It’s worrisome to see the candidates talk down to voters.`\
+https://nytimes.com/2024/08/27/opinion/harris-trump-economic-populism.html
 
-**Is DEET Bug Spray Harmful?**\
-`Some worry that this active ingredient is toxic. Here’s what we know about its effect on human health.`\
-https://nytimes.com/2024/08/27/well/deet-bug-spray.html
+**When Your Child Is an Animal**\
+`The charged cultural conversation about pets and children — see “Chimp Crazy,” “childless cat ladies” and more — reveals the hidden contradictions of family life.`\
+https://nytimes.com/2024/08/27/arts/chimp-crazy-vance-cats.html
 
-**4,000 Miles, 6 Small Towns: A Whistle-Stop Tour of America**\
-`Most people who ride Amtrak’s Empire Builder route between Chicago and Seattle watch the heartland whiz by. Our writer hopped off to explore a few remarkable places you might otherwise miss.`\
-https://nytimes.com/2024/08/27/travel/amtrak-empire-builder-train-small-towns.html
+**Abraham Lincoln’s Wiliest Trick Should Be a Lesson for Biden**\
+`A model of how a lame duck can nobly serve the nation`\
+https://nytimes.com/2024/08/27/opinion/abraham-lincoln-lesson-biden.html
 
