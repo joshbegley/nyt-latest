@@ -1,9 +1,13 @@
+**Why We Cover What Politicians Wear**\
+`For both men and women, clothes can be an important tool for communication. Often, there’s strategy behind the style.`\
+https://nytimes.com/2024/08/27/style/why-the-new-york-times-covers-what-politicians-wear.html
+
 **Wednesday Briefing: A Look at Harris’s Polling Lead**\
 `Plus, looking for love in Shanghai.`\
 https://nytimes.com/2024/08/27/briefing/harris-trump-gaza-hostage-us-china.html
 
 **Special Counsel Revises Trump Election Indictment to Address Immunity Ruling**\
-`Jack Smith filed a superseding indictment in the case charging the former president with plotting to overturn the 2020 election in response to the Supreme Court’s ruling giving former presidents broad immunity.`\
+`Jack Smith’s filing, in the case charging the former president with plotting to overturn the 2020 election, came in response to the Supreme Court’s ruling giving former presidents broad immunity.`\
 https://nytimes.com/2024/08/27/us/politics/trump-indictment-election-jan-6.html
 
 **Harris’s Ad-War Message: Trump Is Pro-Billionaire, She Worked at McDonald’s**\
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/27/world/middleeast/israel-hostage-hospital.html
 **Submit your Red Wings questions for Max Bultman's mailbag**\
 `Send in your questions, and Max may answer them in an upcoming mailbag.`\
 https://nytimes.com/athletic/5727163/2024/08/27/red-wings-mailbag-prompt-max-bultman/
-
-**On Nick Saban's 'College GameDay' debut: 'This is my gig, and it’s hard'**\
-`Saban made his "College GameDay" debut on Saturday from Ireland, and it was glorious.`\
-https://nytimes.com/athletic/5727011/2024/08/27/nick-saban-gameday-debut/
 

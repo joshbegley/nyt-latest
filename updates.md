@@ -1,3 +1,11 @@
+**Why We Cover What Politicians Wear**\
+`For both men and women, clothes can be an important tool for communication. Often, there’s strategy behind the style.`\
+https://nytimes.com/2024/08/27/style/why-the-new-york-times-covers-what-politicians-wear.html
+
+**Special Counsel Revises Trump Election Indictment to Address Immunity Ruling**\
+`Jack Smith’s filing, in the case charging the former president with plotting to overturn the 2020 election, came in response to the Supreme Court’s ruling giving former presidents broad immunity.`\
+https://nytimes.com/2024/08/27/us/politics/trump-indictment-election-jan-6.html
+
 **Wednesday Briefing: A Look at Harris’s Polling Lead**\
 `Plus, looking for love in Shanghai.`\
 https://nytimes.com/2024/08/27/briefing/harris-trump-gaza-hostage-us-china.html
