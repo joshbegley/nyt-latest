@@ -18,7 +18,7 @@ https://nytimes.com/2024/08/27/arts/music/massive-attack-climate-change.html
 `The team will play at Northwest Stadium following an eight-year naming rights deal with Northwest Federal Credit Union.`\
 https://nytimes.com/athletic/5726184/2024/08/27/commanders-stadium-naming-rights-deal/
 
-**This National Guard Crowd Likes What It Hears from Trump**\
+**This National Guard Crowd Likes What It Hears From Trump**\
 `Former President Donald J. Trump got a warm welcome from an audience willing to overlook his past tussles with the military.`\
 https://nytimes.com/2024/08/27/us/elections/trump-national-guard.html
 

@@ -1,3 +1,7 @@
+**This National Guard Crowd Likes What It Hears From Trump**\
+`Former President Donald J. Trump got a warm welcome from an audience willing to overlook his past tussles with the military.`\
+https://nytimes.com/2024/08/27/us/elections/trump-national-guard.html
+
 **Full Time: What does the new NWSL CBA mean for players?**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/5726247/2024/08/27/nwsl-cba-megan-rapinoe-full-time/
