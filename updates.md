@@ -1,3 +1,11 @@
+**Typhoon Shanshan Approaches Japan, Bringing Heavy Rain and Winds**\
+`Japan’s southern islands were forecast to receive the most rain. The powerful storm has forced flight cancellations and disrupted high-speed rail travel.`\
+https://nytimes.com/2024/08/27/world/asia/japan-typhoon-shanshan.html
+
+**At the U.S. Open, Americans take care of business as New York dares to expect**\
+`The American players largely took care of business in New York, where the pressure of a home Grand Slam can be inspiration or doom.`\
+https://nytimes.com/athletic/5725462/2024/08/27/us-open-american-tennis-shelton-gauff-tiafoe-fritz/
+
 **Fantasy Premier League: Gameweek 2 Review**\
 `From frustrations over Isak and Watkins to the budget defenders emerging as viable options - these at the talking points from Gameweek 2`\
 https://nytimes.com/athletic/5722881/2024/08/27/fantasy-premier-league-rogers-nkunku-haaland/
