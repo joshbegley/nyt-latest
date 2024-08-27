@@ -1,36 +1,36 @@
-**Russia Launches Deadly New Wave of Missiles and Drones at Ukraine**\
-`The bombardment that began on Monday could have additional significance, coming three weeks after the Ukrainian military’s incursion into Russia’s Kursk region.`\
-https://nytimes.com/2024/08/27/world/europe/ukraine-russia-kyiv-kursk.html
+**On the Covid ‘Off-Ramp’: No Tests, Isolation or Masks**\
+`For many, Covid is increasingly regarded like the common cold. A scratchy throat and canceled plans bring a bewildering new critique from friends: You shouldn’t have tested.`\
+https://nytimes.com/2024/08/27/health/covid-19-tests-vaccines-masks.html
 
-**Why Is the Loneliness Epidemic so Hard to Cure?**\
-`Maybe because we aren’t thinking about it in the right way.`\
-https://nytimes.com/2024/08/27/magazine/loneliness-epidemic-cure.html
+**For a Night on the Town, Try Leather and Lace**\
+`This fall, men’s wear is all about embracing the darkness.`\
+https://nytimes.com/2024/08/27/t-magazine/leather-lace-mens-fashion-fall.html
 
-**The Finest, Funnest, Most Freeing Footwear**\
-`Go ahead and wear your rubber sandals — even in New York City.`\
-https://nytimes.com/2024/08/27/magazine/flip-flops-new-york.html
+**He Bought a (Miniature) Zoo**\
+`The painter Walton Ford has amassed dozens of vintage German animal figurines.`\
+https://nytimes.com/2024/08/27/t-magazine/walton-ford-animal-figurine-collection.html
 
-**McTominay to travel today to complete Napoli move**\
-`Manchester United midfielder Scott McTominay is expected to travel today (Tuesday) to complete his move to Napoli.`\
-https://nytimes.com/athletic/5722138/2024/08/27/napoli-scott-mctominay-man-utd/
+**At Michigan, Activists Take Over and Shut Down Student Government**\
+`Pro-Palestinian protesters won council elections, and have refused to fund campus groups, like the men’s Ultimate Frisbee team, unless their divestment demands are met.`\
+https://nytimes.com/2024/08/27/us/umich-gaza-protests-student-government.html
 
-**U.S. Open day 1 recap: Djokovic eases in as fans roam around**\
-`The defending men's champion sailed through, while new crowd rules paid dividends on the terraces.`\
-https://nytimes.com/athletic/5724771/2024/08/27/us-open-recap-day-1-results-analysis-gauff/
+**19 New Books Coming in September**\
+`New novels by Sally Rooney and Richard Powers, a memoir by the first Black woman on the Supreme Court — and more.`\
+https://nytimes.com/2024/08/27/books/review/new-september-fall-books.html
 
-**Ugarte travelling for Manchester United medical ahead of €60m transfer**\
-`Manuel Ugarte is travelling today (August 27) to undergo a medical ahead of completing a proposed move to Manchester United for €50million (£42.`\
-https://nytimes.com/athletic/5700753/2024/08/27/manuel-ugarte-manchester-united-transfer/
+**5 Ways to Feel More Connected, According to Dr. Ruth**\
+`In ‘The Joy of Connections,’ a book set to publish shortly after her death at 96, America’s best-known sex therapist offered practical strategies for anyone feeling lonely.`\
+https://nytimes.com/2024/08/27/well/dr-ruth-lessons-the-joy-of-connections.html
 
-**Oasis Announces Reunion Tour After 15 Years of Brotherly War**\
-`Liam and Noel Gallagher’s 1990s Britpop band will play dates in Britain and Ireland in 2025.`\
-https://nytimes.com/2024/08/27/arts/music/oasis-reunion-tour.html
+**How Much Bloodshed Is Behind the Bananas You Eat?**\
+`In June, a Florida jury found Chiquita Brands liable for the deaths of eight men killed by a Colombian paramilitary group the company had financed.`\
+https://nytimes.com/2024/08/27/opinion/chiquita-banana-killings-colombia-auc.html
 
-**Nigeria confirm Bruno Labbadia as new head coach**\
-`Nigeria have appointed Bruno Labbadia as their new head coach.`\
-https://nytimes.com/athletic/5725683/2024/08/27/bruno-labbadia-nigeria-head-coach/
+**Is DEET Bug Spray Harmful?**\
+`Some worry that this active ingredient is toxic. Here’s what we know about its effect on human health.`\
+https://nytimes.com/2024/08/27/well/deet-bug-spray.html
 
-**Mandel: Don't be fooled, Connor Stalions is not a victim in his own sign-stealing scheme**\
-`Stalions offers his side of the story in the new Netflix documentary "Untold: Sign Stealer." But he's not a credible narrator.`\
-https://nytimes.com/athletic/5724956/2024/08/27/connor-stalions-netflix-documentary-untold-sign-stealer-victim/
+**4,000 Miles, 6 Small Towns: A Whistle-Stop Tour of America**\
+`Most people who ride Amtrak’s Empire Builder route between Chicago and Seattle watch the heartland whiz by. Our writer hopped off to explore a few remarkable places you might otherwise miss.`\
+https://nytimes.com/2024/08/27/travel/amtrak-empire-builder-train-small-towns.html
 
