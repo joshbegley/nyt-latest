@@ -1,3 +1,7 @@
+**How Saquon Barkley and Derrick Henry could impact the fantasy football value of Jalen Hurts and Lamar Jackson**\
+`KC Joyner breaks down the numbers to determine what Saquon Barkley and Derrick Henry might mean for the fantasy value of their quarterbacks.`\
+https://nytimes.com/athletic/5726338/2024/08/27/fantasy-football-2024-saquon-barkley-derrick-henry-jalen-hurts-lamar-jackson/
+
 **PFA pushing to stop 'bomb squads' as strategy for forcing player exits**\
 `The Professional Footballers’ Association (PFA) is pushing for clubs to stop using &#8216;bomb squads&#8217; as a way to force unwanted players to leave.`\
 https://nytimes.com/athletic/5726144/2024/08/27/pfa-bomb-squad-premier-league/

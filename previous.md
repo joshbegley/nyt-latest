@@ -1,3 +1,7 @@
+**How Saquon Barkley and Derrick Henry could impact the fantasy football value of Jalen Hurts and Lamar Jackson**\
+`KC Joyner breaks down the numbers to determine what Saquon Barkley and Derrick Henry might mean for the fantasy value of their quarterbacks.`\
+https://nytimes.com/athletic/5726338/2024/08/27/fantasy-football-2024-saquon-barkley-derrick-henry-jalen-hurts-lamar-jackson/
+
 **PFA pushing to stop 'bomb squads' as strategy for forcing player exits**\
 `The Professional Footballers’ Association (PFA) is pushing for clubs to stop using &#8216;bomb squads&#8217; as a way to force unwanted players to leave.`\
 https://nytimes.com/athletic/5726144/2024/08/27/pfa-bomb-squad-premier-league/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/27/us/elections/trump-national-guard.html
 **Manchester United are finally learning the art of the summer sale**\
 `Forget signings - working out when best to sell players is just as vital, and United finally seem to be getting the hang of it`\
 https://nytimes.com/athletic/4757969/2024/08/27/manchester-united-transfers-sales/
-
-**Far-Right Israeli Minister Draws Anger for Comments on Disputed Holy Site**\
-`In the latest in a series of provocations, Itamar Ben-Gvir agreed that a new synagogue should be built at the site, which Jews call the Temple Mount and Muslims know as the Aqsa Mosque.`\
-https://nytimes.com/2024/08/27/world/middleeast/israel-ben-gvir-al-aqsa.html
 
