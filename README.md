@@ -1,3 +1,11 @@
+**Astros close to signing Jason Heyward: Sources**\
+`The Los Angeles Dodgers designated Heyward for assignment last week to clear a roster spot for Chris Taylor.`\
+https://nytimes.com/athletic/5727027/2024/08/27/jason-heyward-astros-signing/
+
+**Why Economists Worry About Trumpflation**\
+`And why they may not be worrying enough.`\
+https://nytimes.com/2024/08/27/opinion/trump-inflation.html
+
 **Everton in talks to sign Mangala on loan from Lyon**\
 `Everton are in talks to sign former Nottingham Forest midfielder Orel Mangala from Lyon on a season-long loan.`\
 https://nytimes.com/athletic/5726704/2024/08/27/orel-mangala-everton-lyon/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5724183/2024/08/27/giorgi-mamardashvili-liverpool-t
 **Liverpool working to complete Chiesa transfer from Juventus**\
 `Liverpool are working to complete the signing of Federico Chiesa before the transfer market shuts.`\
 https://nytimes.com/athletic/5724919/2024/08/27/liverpool-chiesa-transfer-juventus/
-
-**Humanitarian operations in Gaza resume, haltingly, following a pause, the U.N. says.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/08/27/world/israel-hamas-gaza-war/humanitarian-operations-in-gaza-resume-haltingly-following-a-pause-the-un-says
-
-**Liverpool sign Mamardashvili from Valencia**\
-`Liverpool have completed the signing of goalkeeper Giorgi Mamardashvili from Valencia.`\
-https://nytimes.com/athletic/5724171/2024/08/27/liverpool-mamardashvili-transfer-loan-complete/
 
