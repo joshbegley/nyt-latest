@@ -1,3 +1,11 @@
+**Ipswich in advanced talks to sign Luton's Ogbene**\
+`Ipswich Town are in advanced talks to sign Chiedozie Ogbene from Luton Town.`\
+https://nytimes.com/athletic/5725727/2024/08/27/chiedozie-ogbene-ipswich-transfer/
+
+**What We Know About the Telegram Founder’s Arrest**\
+`Pavel Durov has been detained in France, as part of wide-ranging investigation into criminal activities on the messaging platform he runs.`\
+https://nytimes.com/2024/08/27/business/telegram-pavel-durov-arrest-explained.html
+
 **Here are the latest developments.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/08/27/world/israel-hamas-gaza-war/here-are-the-latest-developments
