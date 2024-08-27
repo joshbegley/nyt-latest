@@ -1,3 +1,7 @@
+**Trump to Put Kennedy and Gabbard on his Transition Team**\
+`Mr. Kennedy and Ms. Gabbard, who had been progressive Democrats for many years, will join the former president’s sons and Senator JD Vance, his running mate, as honorary co-chairs.`\
+https://nytimes.com/2024/08/27/us/politics/trump-transition-rfk-tulsi-gabbard.html
+
 **Why Arsenal made Mikel Merino their 'win-now' signing**\
 `Merino doesn't fit Arsenal's typical transfer strategy but Arteta believes the Spaniard can fill the role he once earmarked for Kai Havertz`\
 https://nytimes.com/athletic/5720483/2024/08/27/arsenal-mikel-merino-arteta-transfer-signing/
