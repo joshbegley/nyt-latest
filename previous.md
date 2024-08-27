@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5727672/2024/08/27/sec-availability-report-kirby-sm
 https://nytimes.com/athletic/5727362/2024/08/27/browns-53-man-roster-cutdown-day/
 
 **First Jan. 6 Rioter to Enter Capitol Gets More Than 4 Years in Prison**\
-`Michael Sparks, 57, was the first rioter to breach the Capitol and among the first to be confronted by the U.S. Capitol Police Officer Eugene Goodman.`\
+`Michael Sparks, 47, was the first rioter to breach the Capitol and among the first to be confronted by the U.S. Capitol Police Officer Eugene Goodman.`\
 https://nytimes.com/2024/08/27/us/politics/jan-6-riot-michael-sparks-sentence.html
 
 **Israeli Forces Rescue Hostage in Gaza as Strikes Kill Scores of Palestinians**\

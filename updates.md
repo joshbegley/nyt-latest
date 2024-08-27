@@ -1,3 +1,7 @@
+**First Jan. 6 Rioter to Enter Capitol Gets More Than 4 Years in Prison**\
+`Michael Sparks, 47, was the first rioter to breach the Capitol and among the first to be confronted by the U.S. Capitol Police Officer Eugene Goodman.`\
+https://nytimes.com/2024/08/27/us/politics/jan-6-riot-michael-sparks-sentence.html
+
 **Chargers' initial 53-man roster: Easton Stick is the backup QB ... for now**\
 `The Chargers figure to heavily monitor the waiver wire and trade market in the coming days to try to upgrade behind Justin Herbert.`\
 https://nytimes.com/athletic/5727526/2024/08/27/chargers-initial-53-roster-easton-stick/
