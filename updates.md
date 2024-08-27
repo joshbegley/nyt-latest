@@ -1,3 +1,7 @@
+**Mikel Merino to Arsenal: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we look at Mikel Merino's move to Arsenal`\
+https://nytimes.com/athletic/5668118/2024/08/27/mikel-merino-to-arsenal-the-athletic-500-transfer-ratings/
+
 **Oasis: Timeline of a Sibling Rivalry for the Ages**\
 `When Liam and Noel Gallagher get together, hide the tambourines.`\
 https://nytimes.com/2024/08/27/arts/music/oasis-reunion-gallagher-breakup-feud.html
