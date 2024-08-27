@@ -1,3 +1,11 @@
+**At the site of his career apex, Chas McCormick confronts a crossroads**\
+`The struggling outfielder returned to Citizens Bank Park, where his ninth-inning catch saved Game 5 of the 2022 World Series. `\
+https://nytimes.com/athletic/5725417/2024/08/27/astros-chas-mccormick-philadelphia/
+
+**Russia Pounds Wide Swath of Ukraine, and F.T.C. Fights Grocery Merger**\
+`Plus, the rock band Oasis is back.`\
+https://nytimes.com/2024/08/27/podcasts/russia-ukraine-ftc-fights-grocery-merger.html
+
 **With spark plug Corbin Carroll thriving again, surging Diamondbacks firing on all cylinders**\
 `The Diamondbacks are proving they're no one-year wonder, with their star showing that his rookie of the year campaign was just the start.`\
 https://nytimes.com/athletic/5725119/2024/08/27/corbin-carroll-diamondbacks-spark-plug/
@@ -26,8 +34,3 @@ https://nytimes.com/2024/08/27/crosswords/connections-companion-444.html
 `Chelsea have completed the signing of Belgian goalkeeper Mike Penders from Genk.`\
 https://nytimes.com/athletic/5666632/2024/08/27/mike-penders-chelsea-transfer/
 
-**Top Biden Aide Visits China to Reinforce U.S. Strategy**\
-`The national security adviser, Jake Sullivan, will raise thorny issues like Taiwan and Russia with only months left before a new administration takes office.`\
-https://nytimes.com/2024/08/27/world/asia/sullivan-biden-china-xi.html
-
-**Israel launches a deadly airstrike in the West Bank, and other news.**\
