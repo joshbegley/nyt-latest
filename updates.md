@@ -1,3 +1,7 @@
+**Vikings' T.J. Hockenson will remain on PUP list**\
+`Hockenson tore his ACL during the Vikings' Week 16 loss to the Detroit Lions last season.`\
+https://nytimes.com/athletic/5726110/2024/08/27/tj-hockenson-vikings-pup/
+
 **German City Becomes Reluctant Symbol of a Nation’s Migration Battles**\
 `After a stabbing attack that prosecutors say was committed by a Syrian who was rejected for asylum, the city of Solingen finds itself at the center of a longstanding debate.`\
 https://nytimes.com/2024/08/27/world/europe/germany-solingen-migration-far-right.html
