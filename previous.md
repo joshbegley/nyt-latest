@@ -1,3 +1,7 @@
+**Tell Us: What’s Your Favorite Book About Politics?**\
+`Share your thoughts with the On Politics newsletter.`\
+https://nytimes.com/2024/08/27/us/politics/tell-us-whats-your-favorite-book-about-politics.html
+
 **At an Israeli hospital, the rescued hostage tells his family about his ordeal.**\
 `Farhan al-Qadi, who was recovering in a medical center in southern Israel, told relatives and friends he had spent much of his captivity in darkness.`\
 https://nytimes.com/2024/08/27/world/middleeast/israel-hostage-hospital.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/27/arts/music/melbourne-symphony-israel-gaza-war.htm
 **To Lure Michigan Voters, Trump Campaign Stokes China Fears**\
 `JD Vance, the Republican vice-presidential nominee, waded into a fight over plans by Gotion, a Chinese battery plant, to build a factory in Michigan.`\
 https://nytimes.com/2024/08/27/us/politics/vance-trump-michigan-china-gotion.html
-
-**Browns' Hall Jr. placed on exempt list following arrest**\
-`Hall will still be paid, but he won't count on the Browns' 53-man roster and isn't allowed to participate in team activities.`\
-https://nytimes.com/athletic/5727101/2024/08/27/mike-hall-exempt-list-browns/
 
