@@ -1,3 +1,11 @@
+**Judge Pauses Biden Administration Program That Aids Undocumented Spouses**\
+`Ruling in favor of 16 Republican-led states that sued the administration, a federal judge put the program on hold while the court considers the merits of the case.`\
+https://nytimes.com/2024/08/26/us/undocumented-spouses-biden-administration.html
+
+**Former aides to Bush, Romney and McCain back Harris over Trump.**\
+`The former Republican staffers’ support of the Democratic ticket reflects how former President Donald J. Trump has transformed the Republican Party.`\
+https://nytimes.com/live/2024/08/26/us/harris-trump-election/former-aides-to-bush-romney-and-mccain-back-harris-over-trump
+
 **Democrats Look to End the Electability Question**\
 `The party is battling a squishy, often self-reinforcing concept about the perceived ability to win.`\
 https://nytimes.com/2024/08/26/us/politics/democrats-harris-trump.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5725266/2024/08/26/malik-willis-packers-titans-trad
 **Inflation Is Fading, Statistically and Politically**\
 `The cost of living may not be the G.O.P.’s, um, trump card.`\
 https://nytimes.com/2024/08/26/opinion/inflation-trump-harris-powell.html
-
-**Rudy Franchi, Who Put Movies at the Center of a Technicolor Life, Dies at 85**\
-`He brought French classics to New York, published a film magazine, worked as a Hollywood publicist and (as seen on “Antiques Roadshow”) thrived selling vintage posters and kitsch.`\
-https://nytimes.com/2024/08/26/movies/rudy-franchi-dead.html
-
-**Wrestler Sid Eudy dies at 63**\
-`Sid Eudy a six-time world champion, died after battling cancer for several years, his son Gunnar announced Monday.`\
-https://nytimes.com/athletic/5724830/2024/08/26/sid-eudy-wrestler-death/
 
