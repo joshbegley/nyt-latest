@@ -1,3 +1,15 @@
+**Fantasy Premier League: Gameweek 2 Review**\
+`From frustrations over Isak and Watkins to the budget defenders emerging as viable options - these at the talking points from Gameweek 2`\
+https://nytimes.com/athletic/5722881/2024/08/27/fantasy-premier-league-rogers-nkunku-haaland/
+
+**Is Gravenberch ending Liverpool's No 6 debate?**\
+`Midfielder has reinvented himself under Arne Slot to suggest he could be a solution to a long-running problem`\
+https://nytimes.com/athletic/5723606/2024/08/27/ryan-gravenberch-liverpool-no6/
+
+**Performances will always be the priority for Postecoglou**\
+`Postecoglou isn't really too bothered about Spurs' ruthlessness - as long as performance levels match what they produced against Everton`\
+https://nytimes.com/athletic/5717228/2024/08/27/tottenham-ange-postecoglou-performances/
+
 **At the U.S. Open, the Americans take care of business, as New York dares to expect**\
 `The American players largely took care of business in New York, where the pressure of a home Grand Slam can be inspiration or doom.`\
 https://nytimes.com/athletic/5725462/2024/08/27/us-open-american-tennis-shelton-gauff-tiafoe-fritz/
