@@ -1,3 +1,23 @@
+**The Athletic FC: Everton's increasing struggles, Manchester United close to Ugarte deal**\
+`Today in The Athletic FC: Everton struggling on and off the pitch, Manchester United close to Ugarte deal`\
+https://nytimes.com/athletic/5725807/2024/08/27/everton-struggles-manchester-united-ugarte-deal/
+
+**Statistics that prove the Giants are the most average team that was ever average**\
+`You may assume the Giants are the worst team in a lot of categories. But, like their record, they've been merely average in most areas.`\
+https://nytimes.com/athletic/5719359/2024/08/27/sf-giants-statistical-breakdown-average-stats/
+
+**Ryan Pepiot reflects on Dodgers trade, opportunity with Tampa Bay: 'A blessing'**\
+`Pepiot has been able to develop in the majors with the Rays, who acquired him from the Dodgers in the deal that sent Tyler Glasnow to L.A.`\
+https://nytimes.com/athletic/5725166/2024/08/27/dodgers-ryan-pepiot-trade-rays/
+
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/08/27/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Vance Heads to Michigan as Campaigns Focus on Battlegrounds**\
+`Donald Trump’s running mate, Senator JD Vance, will visit the key swing state before a fund-raiser in Nashville. Senator Elizabeth Warren, an important surrogate for Kamala Harris on the economy, will stump in Wisconsin.`\
+https://nytimes.com/live/2024/08/27/us/harris-trump-election
+
 **Dread Lingers in Mideast After Israel-Hezbollah Clashes**\
 `For people across the region, any relief that the adversaries had stepped back from a wider war mixed with fears that the conflicts in Gaza and Lebanon remained unresolved.`\
 https://nytimes.com/2024/08/27/world/middleeast/israel-hezbollah-gaza-conflict.html
@@ -13,24 +33,4 @@ https://nytimes.com/athletic/5725875/2024/08/27/stefan-bajcetic-liverpool-tyler-
 **Kepa set for Bournemouth medical ahead of loan move from Chelsea**\
 `Kepa Arrizabalaga will undergo a medical at Bournemouth ahead of joining the club on a season-long loan from Chelsea.`\
 https://nytimes.com/athletic/5635363/2024/08/27/kepa-arrizabalaga-bournemouth-loan-chelsea-transfer/
-
-**The Pulse: Lamar Jackson or Josh Allen?**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5724692/2024/08/27/lamar-jackson-josh-allen-qb-the-pulse/
-
-**NHL European tour highlights: Debating Alex Ovechkin's record pace, hockey's 'highest game' and more**\
-`Also in Prague, David Pastrnak gave his view of the Bruins' offseason moves and Sabres players praised Rasmus Dahlin's leadership.`\
-https://nytimes.com/athletic/5724282/2024/08/27/nhl-player-tour-ovechkin-pastrnak/
-
-**Ranking the top 10 AL rookies — with 5 in the mix in tight Rookie of the Year race**\
-`This is how I see the American League Rookie of the Year race with five weeks remaining. `\
-https://nytimes.com/athletic/5725446/2024/08/27/american-league-rookie-of-the-year-race/
-
-**A Popular Weight Loss Drug Is Getting a Price Cut**\
-`Eli Lilly will now sell cheaper vials of Zepbound, presenting a direct challenge to telehealth companies that offer compounded versions of the medication.`\
-https://nytimes.com/2024/08/27/well/eli-lilly-zepbound-price.html
-
-**21 Questions for Harris**\
-`We’re asking unanswered questions for her potential administration.`\
-https://nytimes.com/2024/08/27/briefing/21-questions-for-harris.html
 
