@@ -1,3 +1,7 @@
+**U.S. Open day 1 recap: Djokovic eases in as fans roam around**\
+`The defending men's champion sailed through, while new crowd rules paid dividends on the terraces.`\
+https://nytimes.com/athletic/5724771/2024/08/27/us-open-recap-day-1-results-analysis-gauff/
+
 **Ugarte travelling for Manchester United medical ahead of €60m transfer**\
 `Manuel Ugarte is travelling today (August 27) to undergo a medical ahead of completing a proposed move to Manchester United for €50million (£42.`\
 https://nytimes.com/athletic/5700753/2024/08/27/manuel-ugarte-manchester-united-transfer/
