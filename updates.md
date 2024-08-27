@@ -1,4 +1,8 @@
 **Edgar Bronfman Jr. Drops Pursuit of Paramount**\
+`Mr. Bronfman had frantically put a bid together over the last week even as Paramount raised questions about his financing.`\
+https://nytimes.com/2024/08/26/business/bronfman-drops-paramount-pursuit.html
+
+**Edgar Bronfman Jr. Drops Pursuit of Paramount**\
 `Mr. Bronfman has frantically put a bid together over the last week even as Paramount raised questions about his financing.`\
 https://nytimes.com/2024/08/26/business/bronfman-drops-paramount-pursuit.html
 
