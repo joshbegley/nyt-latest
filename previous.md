@@ -1,3 +1,11 @@
+**Full Time: What does the new NWSL CBA mean for players?**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/5726247/2024/08/27/nwsl-cba-megan-rapinoe-full-time/
+
+**Sancho likely to leave Man United, Juventus and Chelsea in talks**\
+`Jadon Sancho is likely to leave Manchester United permanently or on loan before the transfer window closes — and the club are in talks with Juventus and Chelsea about a deal for the 24-year-old winger.`\
+https://nytimes.com/athletic/5726262/2024/08/27/manchester-united-transfers-jadon-sancho-chelsea-juventus/
+
 **Tua hasn't heard from Flores after criticizing former coach**\
 `Tagovailoa said it's more important for a head coach to support a team's quarterback more than any other position on the team.`\
 https://nytimes.com/athletic/5726172/2024/08/27/tua-tagovailoa-brian-flores-dolphins/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/27/world/middleeast/israel-ben-gvir-al-aqsa.html
 **‘Only Murders in the Building’ Goes to Hollywood**\
 `The murder mystery comedy returns with more celebrities than ever but in a winking, self-aware way.`\
 https://nytimes.com/2024/08/27/arts/television/only-murders-in-the-building-season-4.html
-
-**With Dams Removed, Salmon Will Have the Run of a Western River**\
-`The nation’s largest dam removal project is nearly complete after a lengthy campaign by Native tribes to restore the river at the California-Oregon border.`\
-https://nytimes.com/2024/08/27/us/klamath-dam-removal-salmon.html
-
-**Scoop City: Notable cutdown-day moves, so far**\
-`A look at gems within the fantasy football draft kit and cutdown-day casualties`\
-https://nytimes.com/athletic/5726213/2024/08/27/ceedee-lambs-triumph-plus-notable-cutdown-day-moves-scoop-city/
 

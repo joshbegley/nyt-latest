@@ -1,3 +1,11 @@
+**Full Time: What does the new NWSL CBA mean for players?**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/5726247/2024/08/27/nwsl-cba-megan-rapinoe-full-time/
+
+**Sancho likely to leave Man United, Juventus and Chelsea in talks**\
+`Jadon Sancho is likely to leave Manchester United permanently or on loan before the transfer window closes — and the club are in talks with Juventus and Chelsea about a deal for the 24-year-old winger.`\
+https://nytimes.com/athletic/5726262/2024/08/27/manchester-united-transfers-jadon-sancho-chelsea-juventus/
+
 **Tua hasn't heard from Flores after criticizing former coach**\
 `Tagovailoa said it's more important for a head coach to support a team's quarterback more than any other position on the team.`\
 https://nytimes.com/athletic/5726172/2024/08/27/tua-tagovailoa-brian-flores-dolphins/
