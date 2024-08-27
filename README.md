@@ -1,7 +1,3 @@
-**49ers to add $200M in Levi's Stadium upgrades**\
-`The 49ers will offer enhanced Wi-Fi technology this season and add 4K video boards before the 2025 season.`\
-https://nytimes.com/athletic/5719760/2024/08/27/levis-stadium-upgrades-49ers-super-bowl-world-cup/
-
 **Connor Stalions addresses Central Michigan sideline photos for first time**\
 `Central Michigan released a statement on Tuesday morning following the documentary's release.`\
 https://nytimes.com/athletic/5725975/2024/08/27/connor-stalions-central-michigan-sideline-photos/
@@ -33,4 +29,8 @@ https://nytimes.com/2024/08/27/business/telegram-pavel-durov-arrest-explained.ht
 **Here are the latest developments.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/08/27/world/israel-hamas-gaza-war/here-are-the-latest-developments
+
+**The Athletic FC: Everton's increasing struggles, Manchester United close to Ugarte deal**\
+`Today in The Athletic FC: Everton struggling on and off the pitch, Manchester United close to Ugarte deal`\
+https://nytimes.com/athletic/5725807/2024/08/27/everton-struggles-manchester-united-ugarte-deal/
 
