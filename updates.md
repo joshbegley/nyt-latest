@@ -1,3 +1,7 @@
+**Who is Franco Colapinto and what can Williams expect from Logan Sargeant's replacement?**\
+`Williams will give the young Argentine a long look for nine races before Carlos Sainz joins in 2025. `\
+https://nytimes.com/athletic/5726649/2024/08/27/franco-colapinto-f1-williams-logan-sargeant/
+
 **NFL owners allow private equity firms to buy limited stakes in teams**\
 `NFL ownership rules previously only allowed for a limited number of approved partners, but not investment firms.`\
 https://nytimes.com/athletic/5727359/2024/08/27/nfl-owners-private-equity-firms/

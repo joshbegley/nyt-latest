@@ -1,3 +1,7 @@
+**Who is Franco Colapinto and what can Williams expect from Logan Sargeant's replacement?**\
+`Williams will give the young Argentine a long look for nine races before Carlos Sainz joins in 2025. `\
+https://nytimes.com/athletic/5726649/2024/08/27/franco-colapinto-f1-williams-logan-sargeant/
+
 **NFL owners allow private equity firms to buy limited stakes in teams**\
 `NFL ownership rules previously only allowed for a limited number of approved partners, but not investment firms.`\
 https://nytimes.com/athletic/5727359/2024/08/27/nfl-owners-private-equity-firms/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5727204/2024/08/27/new-england-patriots-53-man-rost
 **Trump Suggests Debate Rules Are Set. Harris’s Team Says Otherwise.**\
 `The two have been tussling over whether microphones will be muted when a candidate isn’t speaking during the debate, which is scheduled for Sept. 10.`\
 https://nytimes.com/2024/08/27/us/politics/trump-abc-debate-rules.html
-
-**‘No Barrier’ to Nuclear Talks With U.S., Iran’s Supreme Leader Says**\
-`It was unclear if Ayatollah Ali Khamenei’s comments signaled any shift in Iran’s stance, but the country’s new president has called for an accord that would relieve Western sanctions against it.`\
-https://nytimes.com/2024/08/27/world/middleeast/iran-nuclear-talks-khamenei.html
 
