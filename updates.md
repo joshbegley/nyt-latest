@@ -1,3 +1,15 @@
+**9 Surprising Songs Sampled in Classic Hip-Hop Tracks**\
+`Hear where moments of Kraftwerk, Enya, Herb Alpert and more ended up in producers’ deft hands.`\
+https://nytimes.com/2024/08/27/arts/music/amplifier-newsletter-hip-hop-samples.html
+
+**Orcas Ram a Sailboat Off Northern Spain**\
+`A pod of orcas damaged a boat and left its two-person crew stranded. It was the latest in a string of attacks that research suggests could be used for hunting practice.`\
+https://nytimes.com/2024/08/27/world/europe/spain-orcas-boat-ramming.html
+
+**Williams F1 had to replace Logan Sargeant. Why didn't it turn to Lawson or Schumacher?**\
+`The lone American on the F1 grid forced his team's hand with poor form. But Williams seemed to pass over two promising names to replace him.`\
+https://nytimes.com/athletic/5726623/2024/08/27/logan-sargeant-williams-f1-liam-lawson-mick-schumacher/
+
 **Tonali 'excited' for Newcastle return after 10-month suspension**\
 `Sandro Tonali feels like a “new player, a new transfer,” following the end of his 10-month ban for betting offences and has paid an emotional tribute to Newcastle United fans for treating him as “if I’d been here for 10 years.`\
 https://nytimes.com/athletic/5726800/2024/08/27/sandro-tonali-newcastle/
