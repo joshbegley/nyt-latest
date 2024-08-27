@@ -1,3 +1,7 @@
+**Ugarte travelling for Manchester United medical ahead of €60m transfer**\
+`Manuel Ugarte is travelling today (August 27) to undergo a medical ahead of completing a proposed move to Manchester United for €50million (£42.`\
+https://nytimes.com/athletic/5700753/2024/08/27/manuel-ugarte-manchester-united-transfer/
+
 **Oasis Announces Reunion Tour After 15 Years of Brotherly War**\
 `Liam and Noel Gallagher’s 1990s Britpop band will play dates in Britain and Ireland in 2025.`\
 https://nytimes.com/2024/08/27/arts/music/oasis-reunion-tour.html
