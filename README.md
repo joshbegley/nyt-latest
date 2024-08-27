@@ -1,3 +1,7 @@
+**Humanitarian operations in Gaza resume, haltingly, following a pause, the U.N. says.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/08/27/world/israel-hamas-gaza-war/humanitarian-operations-in-gaza-resume-haltingly-following-a-pause-the-un-says
+
 **Liverpool sign Mamardashvili from Valencia**\
 `Liverpool have completed the signing of goalkeeper Giorgi Mamardashvili from Valencia.`\
 https://nytimes.com/athletic/5724171/2024/08/27/liverpool-mamardashvili-transfer-loan-complete/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/27/travel/florida-lgbtq-travel.html
 **What to Know About the Rare Mosquito-Borne Illness Eastern Equine Encephalitis**\
 `The disease has caused one death in New Hampshire and the virus has also been identified in humans in neighboring states, health officials said.`\
 https://nytimes.com/2024/08/27/us/massachusetts-eee-mosquito-disease.html
-
-**2 Dead, 1 Injured at Delta Maintenance Facility Near Atlanta Airport**\
-`The workers were at the “wheel and brake shop” of the maintenance facility when the accident occurred, Delta said.`\
-https://nytimes.com/2024/08/27/us/delta-atlanta-deaths.html
 
