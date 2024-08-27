@@ -1,3 +1,11 @@
+**USMNT midfielder Tanner Tessmann joins Lyon from Venezia**\
+`Lyon have completed the signing of USMNT midfielder Tanner Tessmann from Venezia.`\
+https://nytimes.com/athletic/5726644/2024/08/27/tanner-tessmann-lyon-usmnt-transfer/
+
+**A Pianist Who’s Not Afraid to Improvise on Mozart**\
+`Robert Levin has long argued that Mozart would have made up new material while performing, and he follows the master in a series of dazzling recordings.`\
+https://nytimes.com/2024/08/27/arts/music/robert-levin-mozart-keyboard.html
+
 **Russia Bombards Ukrainian Cities for a Second Day**\
 `An early morning barrage hit several locations across Ukraine, including a hotel in Kryvyi Rih where at least four people were killed and several others wounded, Ukrainian officials said.`\
 https://nytimes.com/video/world/europe/100000009659644/ukraine-russia-missile-drone-attacks.html
