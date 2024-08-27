@@ -1,3 +1,11 @@
+**Chiefs release WR Kadarius Toney: Source**\
+`The move was foreshadowed with Monday's signing of receiver JuJu Smith-Schuster as well as the Chiefs efforts to remake their receiver room.`\
+https://nytimes.com/athletic/5726890/2024/08/27/kadarius-toney-released-chiefs-roster-cutdown/
+
+**Brighton complete £25m signing of defender Kadioglu from Fenerbahce**\
+`Brighton and Hove Albion have completed the signing of defender Ferdi Kadioglu from Fenerbahce in a deal worth around £25million ($33m).`\
+https://nytimes.com/athletic/5720527/2024/08/27/ferdi-kadioglu-brighton-transfer/
+
 **Looking for Information on L.G.B.T.Q. Travel to Florida? Don’t Ask Florida.**\
 `The state’s travel website recently removed pages dedicated to L.G.B.T.Q. travel. Some Floridians aren’t happy about it.`\
 https://nytimes.com/2024/08/27/travel/florida-lgbtq-travel.html
