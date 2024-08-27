@@ -1,3 +1,7 @@
+**Nketiah given permission for Crystal Palace medical**\
+`Eddie Nketiah has been given permission to undergo a medical at Crystal Palace.`\
+https://nytimes.com/athletic/5724107/2024/08/27/crystal-palace-eddie-nketiah-medical/
+
 **Liverpool considering Morton loan offer from Leverkusen**\
 `Liverpool are considering a loan offer from Bayer Leverkusen for Tyler Morton.`\
 https://nytimes.com/athletic/5725875/2024/08/27/stefan-bajcetic-liverpool-tyler-morton/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/27/briefing/21-questions-for-harris.html
 **Villa's Iling-Junior joins Bologna on loan**\
 `Aston Villa&#8217;s Samuel Iling-Junior has completed a season-long loan move to Bologna.`\
 https://nytimes.com/athletic/5723562/2024/08/27/samuel-iling-junior-bologna-loan-aston-villa/
-
-**SEC football tiers: Will expanded league dominate new 12-team Playoff?**\
-`The SEC has a new look with Texas and Oklahoma joining, creating a lengthy list of College Football Playoff contenders.`\
-https://nytimes.com/athletic/5717275/2024/08/27/sec-football-tiers-rankings-cfp-projections/
 
