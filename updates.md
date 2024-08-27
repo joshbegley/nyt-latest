@@ -1,3 +1,11 @@
+**Commanders sign stadium naming rights deal**\
+`The team will play at Northwest Stadium following an eight-year naming rights deal with Northwest Federal Credit Union.`\
+https://nytimes.com/athletic/5726184/2024/08/27/commanders-stadium-naming-rights-deal/
+
+**This National Guard Crowd Likes What It Hears from Trump**\
+`Former President Donald J. Trump got a warm welcome from an audience willing to overlook his past tussles with the military.`\
+https://nytimes.com/2024/08/27/us/elections/trump-national-guard.html
+
 **Manchester United are finally learning the art of the summer sale**\
 `Forget signings - working out when best to sell players is just as vital, and United finally seem to be getting the hang of it`\
 https://nytimes.com/athletic/4757969/2024/08/27/manchester-united-transfers-sales/
