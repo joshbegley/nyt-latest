@@ -1,3 +1,11 @@
+**For Its Famous Clientele, Peress was More Than a Lingerie Shop**\
+`For more than 90 years the Upper East Side shop served socially ambitious women, including Brooke Astor, Gloria Vanderbilt, Diana Vreeland, Barbara Walters, Madonna and many more.`\
+https://nytimes.com/2024/08/27/style/peress-lingerie-closing.html
+
+**Connections Bot F.A.Q.**\
+`Introducing a daily, personalized analysis tool for Connections fans.`\
+https://nytimes.com/2024/08/27/upshot/connections-bot-faq.html
+
 **Logan Sargeant out at Williams Racing**\
 `Sargeant joined the grid last season and only scored one point during his time in F1.`\
 https://nytimes.com/athletic/5726606/2024/08/27/logan-sargeant-franco-colapinto-williams-racing-formula-one/
