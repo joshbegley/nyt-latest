@@ -1,7 +1,3 @@
-**On Nick Saban's 'College GameDay' debut: 'This is my gig, and it’s hard'**\
-`Saban made his "College GameDay" debut on Saturday from Ireland, and it was glorious.`\
-https://nytimes.com/athletic/5727011/2024/08/27/nick-saban-gameday-debut/
-
 **Police Hope Dog Breeder’s Missing Dobermans Can Shed Light on His Death**\
 `The police in central Colorado are tracking down Doberman puppies to help solve the potential homicide of a local dog breeder who was killed last week.`\
 https://nytimes.com/2024/08/27/us/colorado-dog-breeder-killed-dobermans.html
@@ -33,4 +29,8 @@ https://nytimes.com/2024/08/27/nyregion/randy-mastro-hearing.html
 **Clarity on O-line, linebacker lineups: Projecting Ohio State's Week 1 depth chart**\
 `Coach Ryan Day offered insights Tuesday into what to expect the lineup to look like Saturday against Akron. `\
 https://nytimes.com/athletic/5727024/2024/08/27/ohio-state-football-depth-chart-week-one/
+
+**Astros close to signing Jason Heyward: Sources**\
+`The Los Angeles Dodgers designated Heyward for assignment last week to clear a roster spot for Chris Taylor.`\
+https://nytimes.com/athletic/5727027/2024/08/27/jason-heyward-astros-signing/
 
