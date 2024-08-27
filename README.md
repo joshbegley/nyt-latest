@@ -1,3 +1,7 @@
+**Rams trading LB Ernest Jones to Titans: Sources**\
+`Jones is coming off a 2023 season where he picked up 145 total tackles and 4 1/2 sacks.`\
+https://nytimes.com/athletic/5726914/2024/08/27/ernest-jones-rams-titans-trade/
+
 **Tulsi Gabbard’s Trumpy Transition Is Now Complete**\
 `The former president is clearly hoping some of Gabbard’s mojo rubs off on him.`\
 https://nytimes.com/live/2024/08/20/opinion/thepoint/tulsi-gabbard-trump-transition
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/27/us/delta-atlanta-deaths.html
 **Danielle Collins upset by Caroline Dolehide in final Grand Slam tournament**\
 `NEW YORK — This isn&#8217;t how it was supposed to be.`\
 https://nytimes.com/athletic/5726839/2024/08/27/danielle-collins-us-open-caroline-dolehide/
-
-**Anaheim Ducks shift games away from Bally Sports, announce free streaming option**\
-`Victory+ will be the Ducks' main partner for local broadcasts and other programming.`\
-https://nytimes.com/athletic/5725635/2024/08/27/anaheim-ducks-tv-schedule-streaming/
 
