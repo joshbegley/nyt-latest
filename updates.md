@@ -1,3 +1,7 @@
+**Edgar Bronfman Jr. Drops Pursuit of Paramount**\
+`Mr. Bronfman has frantically put a bid together over the last week even as Paramount raised questions about his financing.`\
+https://nytimes.com/2024/08/26/business/bronfman-drops-paramount-pursuit.html
+
 **Man Is Charged With Arson in California Wildfire That Destroyed 13 Homes**\
 `The Thompson fire also burned over 3,700 acres and forced the evacuation of 26,000 residents.`\
 https://nytimes.com/2024/08/26/us/california-thompson-fire-arson-arrest.html
