@@ -1,3 +1,11 @@
+**Tua hasn't heard from Flores after criticizing former coach**\
+`Tagovailoa said it's more important for a head coach to support a team's quarterback more than any other position on the team.`\
+https://nytimes.com/athletic/5726172/2024/08/27/tua-tagovailoa-brian-flores-dolphins/
+
+**Is This Concert the Gold Standard for a Green Gig?**\
+`Coldplay and Billie Eilish have tried to drive down carbon emissions while touring, but the British band Massive Attack has tried to take the efforts even further.`\
+https://nytimes.com/2024/08/27/arts/music/massive-attack-climate-change.html
+
 **Commanders sign stadium naming rights deal**\
 `The team will play at Northwest Stadium following an eight-year naming rights deal with Northwest Federal Credit Union.`\
 https://nytimes.com/athletic/5726184/2024/08/27/commanders-stadium-naming-rights-deal/
