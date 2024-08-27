@@ -1,3 +1,11 @@
+**The Pulse: Lamar Jackson or Josh Allen?**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5724692/2024/08/27/lamar-jackson-josh-allen-qb-the-pulse/
+
+**NHL European tour highlights: Debating Alex Ovechkin's record pace, hockey's 'highest game' and more**\
+`Also in Prague, David Pastrnak gave his view of the Bruins' offseason moves and Sabres players praised Rasmus Dahlin's leadership.`\
+https://nytimes.com/athletic/5724282/2024/08/27/nhl-player-tour-ovechkin-pastrnak/
+
 **Ranking the top 10 AL rookies — with 5 in the mix in tight Rookie of the Year race**\
 `This is how I see the American League Rookie of the Year race with five weeks remaining. `\
 https://nytimes.com/athletic/5725446/2024/08/27/american-league-rookie-of-the-year-race/
