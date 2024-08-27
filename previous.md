@@ -6,7 +6,7 @@ https://nytimes.com/athletic/5726630/2024/08/27/oklahoma-football-demarco-murray
 `Wolverhampton Wanderers close to reaching an agreement with Crystal Palace to sign goalkeeper Sam Johnstone.`\
 https://nytimes.com/athletic/5726707/2024/08/27/sam-johnstone-wolves-crystal-palace-transfer/
 
-**Patriots cut Zappe; Purdy, Thompson as 2022 QBs with drafting team**\
+**Patriots cut Zappe; Purdy, Thompson only '22 QBs still with drafting team**\
 `Only two of the nine quarterbacks taken in the 2022 NFL Draft remain with the team that selected them`\
 https://nytimes.com/athletic/5726614/2024/08/27/bailey-zappe-patriots-release/
 

@@ -1,3 +1,7 @@
+**Patriots cut Zappe; Purdy, Thompson only '22 QBs still with drafting team**\
+`Only two of the nine quarterbacks taken in the 2022 NFL Draft remain with the team that selected them`\
+https://nytimes.com/athletic/5726614/2024/08/27/bailey-zappe-patriots-release/
+
 **Oklahoma's DeMarco Murray suspended for recruiting violations**\
 `The NCAA announced punishments on Tuesday for recruiting violations committed by the Oklahoma football program, including a one-game suspension for DeMarco Murray, the Sooners running backs coach and former NFL All-Pro, for impermissibly contacting recruits during a dead period.`\
 https://nytimes.com/athletic/5726630/2024/08/27/oklahoma-football-demarco-murray-suspended-ncaa/
