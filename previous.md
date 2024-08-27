@@ -1,3 +1,15 @@
+**Lost Grounds: The recent movers, a ghostly stadium and many magical memories**\
+`Our travelling odyssey round the lost Football League grounds comes to an end - here's how Upton Park, Ninian Park and others now look`\
+https://nytimes.com/athletic/5616626/2024/08/27/lost-grounds-upton-park-ninian-park-millmoor/
+
+**Managing players that suffered international heartbreak**\
+`Crystal Palace have a raft of players that finished as runners-up in international tournaments and now need to be treated with compassion`\
+https://nytimes.com/athletic/5721089/2024/08/27/crystal-palace-international-psychology-guehi-eze-mateta/
+
+**Tuesday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/08/27/briefing/ukraine-russia-harris-trump-israel.html
+
 **A Mercedes-Benz Fire Jolts South Korea’s E.V. Transition**\
 `The government is aggressively promoting electric cars. But a dramatic blaze in an underground lot has left some potential buyers worried about safety.`\
 https://nytimes.com/2024/08/27/world/asia/south-korea-electric-vehicle-fire.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5725019/2024/08/27/mlb-odds-best-bets-projections-a
 **From People’s Park to Ikea, Shanghai’s Seniors Look for Love**\
 `China has more people 65 or older than any other country, and more and more of them are unattached.`\
 https://nytimes.com/2024/08/27/business/china-seniors-dating-shanghai.html
-
-**Bryce Harper likes his swings — except the one that won a game — the Phillies will take it**\
-`"It's good for us. Right? He's a big cog in the lineup," Kyle Schwarber said of Harper.`\
-https://nytimes.com/athletic/5725570/2024/08/26/phillies-bryce-harper-walk-off-astros-progress/
-
-**Padres agree to minor-league deal with Elias Díaz**\
-`The Rockies released the 2023 All-Star Game MVP on Aug. 16.`\
-https://nytimes.com/athletic/5725488/2024/08/26/padres-elias-diaz-minor-league-deal/
-
-**In the Hamptons, Doug Emhoff calls Kamala Harris a ‘joyful warrior.’**\
-`By Nate Schweber`\
-https://nytimes.com/live/2024/08/26/us/harris-trump-election/in-the-hamptons-doug-emhoff-calls-kamala-harris-a-joyful-warrior
 

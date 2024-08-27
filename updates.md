@@ -1,3 +1,15 @@
+**Lost Grounds: The recent movers, a ghostly stadium and many magical memories**\
+`Our travelling odyssey round the lost Football League grounds comes to an end - here's how Upton Park, Ninian Park and others now look`\
+https://nytimes.com/athletic/5616626/2024/08/27/lost-grounds-upton-park-ninian-park-millmoor/
+
+**Managing players that suffered international heartbreak**\
+`Crystal Palace have a raft of players that finished as runners-up in international tournaments and now need to be treated with compassion`\
+https://nytimes.com/athletic/5721089/2024/08/27/crystal-palace-international-psychology-guehi-eze-mateta/
+
+**Tuesday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/08/27/briefing/ukraine-russia-harris-trump-israel.html
+
 **A Mercedes-Benz Fire Jolts South Korea’s E.V. Transition**\
 `The government is aggressively promoting electric cars. But a dramatic blaze in an underground lot has left some potential buyers worried about safety.`\
 https://nytimes.com/2024/08/27/world/asia/south-korea-electric-vehicle-fire.html
