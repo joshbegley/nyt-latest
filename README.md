@@ -1,3 +1,7 @@
+**Looking for Information on L.G.B.T.Q. Travel to Florida? Don’t Ask Florida.**\
+`The state’s travel website recently removed pages dedicated to L.G.B.T.Q. travel. Some Floridians aren’t happy about it.`\
+https://nytimes.com/2024/08/27/travel/florida-lgbtq-travel.html
+
 **What to Know About the Rare Mosquito-Borne Illness Eastern Equine Encephalitis**\
 `The disease has caused one death in New Hampshire and the virus has also been identified in humans in neighboring states, health officials said.`\
 https://nytimes.com/2024/08/27/us/massachusetts-eee-mosquito-disease.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5726623/2024/08/27/logan-sargeant-williams-f1-liam-
 **Tonali 'excited' for Newcastle return after 10-month suspension**\
 `Sandro Tonali feels like a “new player, a new transfer,” following the end of his 10-month ban for betting offences and has paid an emotional tribute to Newcastle United fans for treating him as “if I’d been here for 10 years.`\
 https://nytimes.com/athletic/5726800/2024/08/27/sandro-tonali-newcastle/
-
-**Man City defender Cancelo joins Al Hilal in €25m deal**\
-`Manchester City defender Joao Cancelo has completed his move to Al Hilal.`\
-https://nytimes.com/athletic/5726198/2024/08/27/joao-cancelo-al-hilal-transfer-man-city/
 
