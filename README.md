@@ -1,4 +1,4 @@
-**Israeli commandos found the hostage by chance while capturing a tunnel.**\
+**Israeli commandos found the hostage by chance while capturing a tunnel, officials say.**\
 `Israeli officials said soldiers had been combing a Hamas tunnel network underneath southern Gaza when they stumbled across Farhan Al-Qadi.`\
 https://nytimes.com/live/2024/08/27/world/israel-hamas-gaza-war/israel-hostage-rescue
 
