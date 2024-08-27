@@ -1,3 +1,7 @@
+**Man Charged With Tupac Shakur’s Murder Loses Bid for Release**\
+`A judge declined to release Duane Keith Davis, whose trial is scheduled for March, after a dispute over the source of the bail funds.`\
+https://nytimes.com/2024/08/27/arts/music/tupac-keefe-d-duane-keith-davis-bail.html
+
 **Jannik Sinner wins first match since doping case ruling at U.S. Open**\
 `NEW YORK — A week after the news that he had twice tested positive for a banned anabolic steroid, Jannik Sinner walked onto Arthur Ashe Stadium Tuesday and played like someone who had a lot on his mind.`\
 https://nytimes.com/athletic/5727293/2024/08/27/jannik-sinner-us-open-doping-ruling/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/27/business/kamala-harris-dana-bash-interview-cnn.ht
 **The Gender Gap Among Gen Z Voters, Explained**\
 `Claire Cain Miller spoke with eight young women supporting Harris, and eight young men backing Trump. Here’s what she learned.`\
 https://nytimes.com/2024/08/27/insider/the-gender-gap-among-gen-z-voters-explained.html
-
-**Heat Deaths Have Doubled in the U.S. in Recent Decades, Study Finds**\
-`The finding comes as a late-August heat wave bears down on a significant part of the country.`\
-https://nytimes.com/2024/08/27/climate/heat-deaths.html
 
