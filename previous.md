@@ -1,3 +1,7 @@
+**Israeli Forces Rescue Hostage in Gaza as Strikes Kill Scores of Palestinians**\
+`A Bedouin Arab citizen of Israel was rescued after Israeli commandos found him alone in an underground warren, apparently abandoned by his captors.`\
+https://nytimes.com/2024/08/27/world/middleeast/israel-hostage-rescue-gaza.html
+
 **Cellphone Bans in Schools? New York Is ‘Not There Yet,’ Mayor Says**\
 `Districts and states across the United States have supported restrictions on student usage, but New York City’s leaders are backing away from the idea because of logistical concerns.`\
 https://nytimes.com/2024/08/27/nyregion/school-cellphone-bans-nyc.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5727393/2024/08/27/buffalo-bills-2024-initial-53-ma
 **Raiders 53-man roster: Preseason finale seals deal for Tyreik McAllister, Ramel Keyton**\
 `The Raiders went with youth at wide receiver in adding the converted UFL running back McAllister and the undrafted rookie Keyton.`\
 https://nytimes.com/athletic/5725475/2024/08/27/raiders-53-man-roster-mcallister-keyton/
-
-**Commanders 53-man roster following cutdown day: Which recent draft picks were retained?**\
-`Washington trimmed its roster from 90 to 53, and did so by jettisoning another bushel of players acquired over the previous four years.`\
-https://nytimes.com/athletic/5727285/2024/08/27/commanders-53-man-roster-cutdown-day/
 

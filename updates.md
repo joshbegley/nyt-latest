@@ -1,3 +1,7 @@
+**Israeli Forces Rescue Hostage in Gaza as Strikes Kill Scores of Palestinians**\
+`A Bedouin Arab citizen of Israel was rescued after Israeli commandos found him alone in an underground warren, apparently abandoned by his captors.`\
+https://nytimes.com/2024/08/27/world/middleeast/israel-hostage-rescue-gaza.html
+
 **Cellphone Bans in Schools? New York Is ‘Not There Yet,’ Mayor Says**\
 `Districts and states across the United States have supported restrictions on student usage, but New York City’s leaders are backing away from the idea because of logistical concerns.`\
 https://nytimes.com/2024/08/27/nyregion/school-cellphone-bans-nyc.html
