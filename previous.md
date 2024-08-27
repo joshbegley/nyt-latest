@@ -1,3 +1,15 @@
+**What Across-the-Board Tariffs Could Mean for the Global Economy**\
+`Donald J. Trump, the Republican presidential nominee, has floated the idea of a 10 percent tariff on all U.S. imports, a plan that economists say could badly damage trade.`\
+https://nytimes.com/2024/08/27/business/trump-tariffs-us-trade.html
+
+**What is the Creator Classic? Inside the PGA Tour's attempt to bring in YouTube golfers**\
+`Tour Championship week starts with 16 popular YouTubers playing live stroke-play golf at East Lake.`\
+https://nytimes.com/athletic/5726263/2024/08/27/creator-classic-pga-tour-youtube-golf-influencers/
+
+**Bournemouth's Anthony undergoing medical ahead of Burnley loan**\
+`Bournemouth winger Jaidon Anthony is undergoing a medical ahead of joining Burnley on a season-long loan.`\
+https://nytimes.com/athletic/5726129/2024/08/27/jaidon-anthony-burnley-loan-transfer/
+
 **Israeli commandos found the hostage by chance while capturing a tunnel, officials say.**\
 `Israeli officials said soldiers had been combing a Hamas tunnel network underneath southern Gaza when they stumbled across Farhan Al-Qadi.`\
 https://nytimes.com/live/2024/08/27/world/israel-hamas-gaza-war/israel-hostage-rescue
@@ -21,16 +33,4 @@ https://nytimes.com/2024/08/27/us/politics/trump-transition-rfk-tulsi-gabbard.ht
 **Why Arsenal made Mikel Merino their 'win-now' signing**\
 `Merino doesn't fit Arsenal's typical transfer strategy but Arteta believes the Spaniard can fill the role he once earmarked for Kai Havertz`\
 https://nytimes.com/athletic/5720483/2024/08/27/arsenal-mikel-merino-arteta-transfer-signing/
-
-**A New Destination for Indian Cuisine in Queens**\
-`Oh! Calcutta opens in Long Island City; Grand Brasserie fills Vanderbilt Hall with Parisian flair and more restaurant news.`\
-https://nytimes.com/2024/08/27/dining/nyc-restaurants-ohcalcutta-queens-grand-brasserie.html
-
-**Kelce bros. ink $100 million deal for 'New Heights'**\
-`Travis and Jason Kelce signed a deal with Amazon's podcast network Wondery to be the new home of their podcast.`\
-https://nytimes.com/athletic/5726238/2024/08/27/new-heights-travis-jason-kelce-wondery-amazon-deal/
-
-**Pro-Trump super PAC to begin $60 million ad campaign next week.**\
-`By Theodore Schleifer`\
-https://nytimes.com/live/2024/08/27/us/harris-trump-election/trump-pac-right-for-america
 
