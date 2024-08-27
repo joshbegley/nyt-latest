@@ -1,3 +1,7 @@
+**Liverpool considering Morton loan offer from Leverkusen**\
+`Liverpool are considering a loan offer from Bayer Leverkusen for Tyler Morton.`\
+https://nytimes.com/athletic/5725875/2024/08/27/stefan-bajcetic-liverpool-tyler-morton/
+
 **Kepa set for Bournemouth medical ahead of loan move from Chelsea**\
 `Kepa Arrizabalaga will undergo a medical at Bournemouth ahead of joining the club on a season-long loan from Chelsea.`\
 https://nytimes.com/athletic/5635363/2024/08/27/kepa-arrizabalaga-bournemouth-loan-chelsea-transfer/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5723562/2024/08/27/samuel-iling-junior-bologna-loan
 **SEC football tiers: Will expanded league dominate new 12-team Playoff?**\
 `The SEC has a new look with Texas and Oklahoma joining, creating a lengthy list of College Football Playoff contenders.`\
 https://nytimes.com/athletic/5717275/2024/08/27/sec-football-tiers-rankings-cfp-projections/
-
-**Twins' patience with Trevor Larnach pays off —and even more production is 'expected'**\
-`In danger of falling out of the Twins' plans, Larnach is crushing fastballs and putting up more of a fight against off-speed pitches.`\
-https://nytimes.com/athletic/5722000/2024/08/27/trevor-larnach-minnesota-twins/
 

@@ -1,3 +1,7 @@
+**Liverpool considering Morton loan offer from Leverkusen**\
+`Liverpool are considering a loan offer from Bayer Leverkusen for Tyler Morton.`\
+https://nytimes.com/athletic/5725875/2024/08/27/stefan-bajcetic-liverpool-tyler-morton/
+
 **Kepa set for Bournemouth medical ahead of loan move from Chelsea**\
 `Kepa Arrizabalaga will undergo a medical at Bournemouth ahead of joining the club on a season-long loan from Chelsea.`\
 https://nytimes.com/athletic/5635363/2024/08/27/kepa-arrizabalaga-bournemouth-loan-chelsea-transfer/
