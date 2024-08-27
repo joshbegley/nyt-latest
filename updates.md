@@ -1,3 +1,7 @@
+**Lions' initial 53-man roster with analysis**\
+`The Lions are short of 53 players, which guarantees more moves in the near future.`\
+https://nytimes.com/athletic/5727246/2024/08/27/detroit-lions-initial-53-man-roster-analysis/
+
 **Israeli Forces Rescue Hostage in Gaza as Strikes Kill at Least 20 Palestinians**\
 `A Bedouin Arab citizen of Israel was rescued after Israeli commandos found him alone in an underground warren, apparently abandoned by his captors.`\
 https://nytimes.com/2024/08/27/world/middleeast/israel-hostage-rescue-gaza.html
