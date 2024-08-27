@@ -1,3 +1,7 @@
+**Kepa set for Bournemouth medical ahead of loan move from Chelsea**\
+`Kepa Arrizabalaga will undergo a medical at Bournemouth ahead of joining the club on a season-long loan from Chelsea.`\
+https://nytimes.com/athletic/5635363/2024/08/27/kepa-arrizabalaga-bournemouth-loan-chelsea-transfer/
+
 **The Pulse: Lamar Jackson or Josh Allen?**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5724692/2024/08/27/lamar-jackson-josh-allen-qb-the-pulse/

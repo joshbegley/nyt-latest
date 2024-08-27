@@ -1,3 +1,7 @@
+**Kepa set for Bournemouth medical ahead of loan move from Chelsea**\
+`Kepa Arrizabalaga will undergo a medical at Bournemouth ahead of joining the club on a season-long loan from Chelsea.`\
+https://nytimes.com/athletic/5635363/2024/08/27/kepa-arrizabalaga-bournemouth-loan-chelsea-transfer/
+
 **The Pulse: Lamar Jackson or Josh Allen?**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5724692/2024/08/27/lamar-jackson-josh-allen-qb-the-pulse/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5717275/2024/08/27/sec-football-tiers-rankings-cfp-
 **Twins' patience with Trevor Larnach pays off —and even more production is 'expected'**\
 `In danger of falling out of the Twins' plans, Larnach is crushing fastballs and putting up more of a fight against off-speed pitches.`\
 https://nytimes.com/athletic/5722000/2024/08/27/trevor-larnach-minnesota-twins/
-
-**At the site of his career apex, Chas McCormick confronts a crossroads**\
-`The struggling outfielder returned to Citizens Bank Park, where his ninth-inning catch saved Game 5 of the 2022 World Series. `\
-https://nytimes.com/athletic/5725417/2024/08/27/astros-chas-mccormick-philadelphia/
 
