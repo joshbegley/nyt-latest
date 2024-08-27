@@ -1,3 +1,11 @@
+**Browns' Hall Jr. placed on exempt list following arrest**\
+`Hall will still be paid, but he won't count on the Browns' 53-man roster and isn't allowed to participate in team activities.`\
+https://nytimes.com/athletic/5727101/2024/08/27/mike-hall-exempt-list-browns/
+
+**Adams’s Pick for Top Lawyer Is Grilled by Skeptical Council Members**\
+`Members of the City Council questioned the record of Randy Mastro, a former federal prosecutor and aide to Mayor Rudolph W. Giuliani.`\
+https://nytimes.com/2024/08/27/nyregion/randy-mastro-hearing.html
+
 **Danielle Collins has what she wanted from tennis. That doesn't make a U.S. Open exit easier**\
 `NEW YORK — Pro tennis rarely does sentimentality, and on Monday at the U.`\
 https://nytimes.com/athletic/5726839/2024/08/27/danielle-collins-us-open-caroline-dolehide/

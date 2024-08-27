@@ -1,3 +1,11 @@
+**Browns' Hall Jr. placed on exempt list following arrest**\
+`Hall will still be paid, but he won't count on the Browns' 53-man roster and isn't allowed to participate in team activities.`\
+https://nytimes.com/athletic/5727101/2024/08/27/mike-hall-exempt-list-browns/
+
+**Adams’s Pick for Top Lawyer Is Grilled by Skeptical Council Members**\
+`Members of the City Council questioned the record of Randy Mastro, a former federal prosecutor and aide to Mayor Rudolph W. Giuliani.`\
+https://nytimes.com/2024/08/27/nyregion/randy-mastro-hearing.html
+
 **Clarity on O-line, linebacker lineups: Projecting Ohio State's Week 1 depth chart**\
 `Coach Ryan Day offered insights Tuesday into what to expect the lineup to look like Saturday against Akron. `\
 https://nytimes.com/athletic/5727024/2024/08/27/ohio-state-football-depth-chart-week-one/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/27/world/middleeast/israel-gaza-hostage-bedouin.html
 **Until Saturday: Coaching tiers' new look, plus Georgia Tech's upset**\
 `Welcome to Until Saturday, the five-star college football newsletter: Without Nick Saban, the coaching tiers look different.`\
 https://nytimes.com/athletic/5725387/2024/08/27/college-football-coaching-tiers-georgia-tech-florida-state-until-saturday/
-
-**Guantánamo Detainees Moved Amid Structural Problems at Showcase Prison**\
-`The military, which in 2021 disclosed its last major internal relocation of Guantánamo prisoners, declined to discuss this week’s security operation.`\
-https://nytimes.com/2024/08/27/us/guantanamo-detainees-moved.html
-
-**A U.S. Open Party So Exclusive, Andy Roddick Just Got His Invite**\
-`An opening-night gala featured celebrities like Lin-Manuel Miranda, Alec Baldwin, Anna Wintour and Mr. Roddick (who won the tournament in 2003).`\
-https://nytimes.com/2024/08/27/style/us-open-gala.html
 
