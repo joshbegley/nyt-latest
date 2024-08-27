@@ -1,3 +1,7 @@
+**Mariah Carey Says Her Mother and Sister Died on the Same Day**\
+`Ms. Carey, who has spoken and written extensively about her complicated relationship with her family, said the deaths had led to an “impossible time.”`\
+https://nytimes.com/2024/08/27/arts/music/mariah-carey-mom-sister-dead.html
+
 **Chelsea agree Harvey Vale deal with Al Ettifaq**\
 `Chelsea have agreed an undisclosed fee with Saudi Pro League club Al Ettifaq for the sale of academy graduate Harvey Vale.`\
 https://nytimes.com/athletic/5726031/2024/08/27/chelsea-harvey-vale-al-ettifaq-saudi-transfer/
