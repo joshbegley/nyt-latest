@@ -1,3 +1,7 @@
+**Twins' Bailey Ober learns when it rains, it pours with career-worst outing**\
+`Before thunder and lightning caused a long delay, Ober gave up nine runs in just two innings against Atlanta.`\
+https://nytimes.com/athletic/5725622/2024/08/27/bailey-ober-career-worst-loss-twins-braves/
+
 **At U.S. Open, Americans take care of business as New York dares to expect**\
 `The American players largely took care of business in New York, where the pressure of a home Grand Slam can be inspiration or doom.`\
 https://nytimes.com/athletic/5725462/2024/08/27/us-open-american-tennis-shelton-gauff-tiafoe-fritz/
