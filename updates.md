@@ -1,3 +1,19 @@
+**The Geography of Unequal Recovery**\
+`The U.S. economy has added roughly 19 millions jobs in four years. But as of the end of 2023, 43 percent of counties still hadn’t regained all the jobs they lost in the early months of the pandemic.`\
+https://nytimes.com/interactive/2024/08/27/business/economy/jobs-election-county.html
+
+**New York Jets 53-man roster: One thought on every player who made the cut**\
+`From 10 offensive linemen to three undrafted defensive linemen, a look at the 2024 Jets.`\
+https://nytimes.com/athletic/5725113/2024/08/27/new-york-jets-53-man-roster-cuts-review/
+
+**Falcons keep Taylor Heinicke, not Kevin King on initial 53-man roster: 5 takeaways**\
+`Wide receiver Chris Blair was another surprising cut by the Falcons as they kept only five receivers on the initial roster.`\
+https://nytimes.com/athletic/5727417/2024/08/27/falcons-roster-taylor-heinicke-kevin-king/
+
+**Cowboys 53-man roster: Strength at LB, what's the plan at RB, intriguing depth options**\
+`With CeeDee Lamb back, the WRs could have a say as the team's top position or the development of the rookies could point to the O-line.`\
+https://nytimes.com/athletic/5726920/2024/08/27/dallas-cowboys-final-53-player-roster/
+
 **Steelers 53-man roster: Beanie Bishop wins a job, while more moves might be coming**\
 `The Steelers kept only five wideouts, pointing to the possibility of a waiver wire addition. They could also use help at OL, DL and DB.`\
 https://nytimes.com/athletic/5727348/2024/08/27/steelers-roster-cuts-53-cutdown/
