@@ -1,3 +1,11 @@
+**Mexico Pauses Diplomatic Ties With U.S. Amid Clash Over Judicial Overhaul**\
+`President López Obrador’s proposed changes to the judiciary are sparking a diplomatic fight with the United States in the last weeks of his presidency.`\
+https://nytimes.com/2024/08/27/world/americas/mexico-us-pause-relations.html
+
+**Lexi Thompson tabbed for U.S. Solheim Cup team**\
+`This year marks Thompson's seventh consecutive time representing the U.S. at the Solheim Cup.`\
+https://nytimes.com/athletic/5726501/2024/08/27/lexi-thompson-captains-picks-us-solheim-cup-team/
+
 **Don’t Call the Telegram Chief Executive’s Arrest a Free Speech Infringement — Yet**\
 `Some early details suggest the issue here isn’t one of free speech, but of criminal activity.`\
 https://nytimes.com/2024/08/20/opinion/pavel-durov-telegram-arrest.html

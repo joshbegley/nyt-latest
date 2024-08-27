@@ -1,3 +1,11 @@
+**Mexico Pauses Diplomatic Ties With U.S. Amid Clash Over Judicial Overhaul**\
+`President López Obrador’s proposed changes to the judiciary are sparking a diplomatic fight with the United States in the last weeks of his presidency.`\
+https://nytimes.com/2024/08/27/world/americas/mexico-us-pause-relations.html
+
+**Lexi Thompson tabbed for U.S. Solheim Cup team**\
+`This year marks Thompson's seventh consecutive time representing the U.S. at the Solheim Cup.`\
+https://nytimes.com/athletic/5726501/2024/08/27/lexi-thompson-captains-picks-us-solheim-cup-team/
+
 **Don’t Call the Telegram Chief Executive’s Arrest a Free Speech Infringement — Yet**\
 `Some early details suggest the issue here isn’t one of free speech, but of criminal activity.`\
 https://nytimes.com/2024/08/20/opinion/pavel-durov-telegram-arrest.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5726490/2024/08/27/mario-vuskovic-ban-epo-cas/
 **MLB scouting notebook: NL East players we could see in September, including the potential return of Ian Anderson**\
 `Andrea Arcadipane examines some interesting players/prospects who could be promoted to their MLB club when rosters expand in September.  `\
 https://nytimes.com/athletic/5726417/2024/08/27/mlb-scouting-notebook-nl-east-players-we-could-see-in-september-including-the-potential-return-of-ian-anderson/
-
-**What Across-the-Board Tariffs Could Mean for the Global Economy**\
-`Donald J. Trump, the Republican presidential nominee, has floated the idea of a 10 percent tariff on all U.S. imports, a plan that economists say could badly damage trade.`\
-https://nytimes.com/2024/08/27/business/trump-tariffs-us-trade.html
-
-**What is the Creator Classic? Inside the PGA Tour's attempt to bring in YouTube golfers**\
-`Tour Championship week starts with 16 popular YouTubers playing live stroke-play golf at East Lake.`\
-https://nytimes.com/athletic/5726263/2024/08/27/creator-classic-pga-tour-youtube-golf-influencers/
 
