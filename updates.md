@@ -1,3 +1,7 @@
+**PFA pushing to stop 'bomb squads' as strategy for forcing player exits**\
+`The Professional Footballers’ Association (PFA) is pushing for clubs to stop using &#8216;bomb squads&#8217; as a way to force unwanted players to leave.`\
+https://nytimes.com/athletic/5726144/2024/08/27/pfa-bomb-squad-premier-league/
+
 **This National Guard Crowd Likes What It Hears From Trump**\
 `Former President Donald J. Trump got a warm welcome from an audience willing to overlook his past tussles with the military.`\
 https://nytimes.com/2024/08/27/us/elections/trump-national-guard.html

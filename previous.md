@@ -1,3 +1,7 @@
+**PFA pushing to stop 'bomb squads' as strategy for forcing player exits**\
+`The Professional Footballers’ Association (PFA) is pushing for clubs to stop using &#8216;bomb squads&#8217; as a way to force unwanted players to leave.`\
+https://nytimes.com/athletic/5726144/2024/08/27/pfa-bomb-squad-premier-league/
+
 **Full Time: What does the new NWSL CBA mean for players?**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/5726247/2024/08/27/nwsl-cba-megan-rapinoe-full-time/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/4757969/2024/08/27/manchester-united-transfers-sale
 **Far-Right Israeli Minister Draws Anger for Comments on Disputed Holy Site**\
 `In the latest in a series of provocations, Itamar Ben-Gvir agreed that a new synagogue should be built at the site, which Jews call the Temple Mount and Muslims know as the Aqsa Mosque.`\
 https://nytimes.com/2024/08/27/world/middleeast/israel-ben-gvir-al-aqsa.html
-
-**‘Only Murders in the Building’ Goes to Hollywood**\
-`The murder mystery comedy returns with more celebrities than ever but in a winking, self-aware way.`\
-https://nytimes.com/2024/08/27/arts/television/only-murders-in-the-building-season-4.html
 
