@@ -1,3 +1,19 @@
+**The Geography of Unequal Recovery**\
+`The U.S. economy has added roughly 19 millions jobs in four years. But as of the end of 2023, 43 percent of counties still hadn’t regained all the jobs they lost in the early months of the pandemic.`\
+https://nytimes.com/interactive/2024/08/27/business/economy/jobs-election-county.html
+
+**New York Jets 53-man roster: One thought on every player who made the cut**\
+`From 10 offensive linemen to three undrafted defensive linemen, a look at the 2024 Jets.`\
+https://nytimes.com/athletic/5725113/2024/08/27/new-york-jets-53-man-roster-cuts-review/
+
+**Falcons keep Taylor Heinicke, not Kevin King on initial 53-man roster: 5 takeaways**\
+`Wide receiver Chris Blair was another surprising cut by the Falcons as they kept only five receivers on the initial roster.`\
+https://nytimes.com/athletic/5727417/2024/08/27/falcons-roster-taylor-heinicke-kevin-king/
+
+**Cowboys 53-man roster: Strength at LB, what's the plan at RB, intriguing depth options**\
+`With CeeDee Lamb back, the WRs could have a say as the team's top position or the development of the rookies could point to the O-line.`\
+https://nytimes.com/athletic/5726920/2024/08/27/dallas-cowboys-final-53-player-roster/
+
 **Steelers 53-man roster: Beanie Bishop wins a job, while more moves might be coming**\
 `The Steelers kept only five wideouts, pointing to the possibility of a waiver wire addition. They could also use help at OL, DL and DB.`\
 https://nytimes.com/athletic/5727348/2024/08/27/steelers-roster-cuts-53-cutdown/
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/5727303/2024/08/27/minnesota-vikings-53-man-roster-
 **Brighton's Matt O’Riley suffers injury on debut**\
 `Brighton &amp; Hove Albion head coach Fabian Hurzeler is hopeful the injury sustained by new signing Matt O’Riley isn’t as severe &#8220;as it looks&#8221; but confirmed that the midfielder &#8220;couldn&#8217;t put any weight on his ankle.`\
 https://nytimes.com/athletic/5727386/2024/08/27/matt-oriley-brighton-injury-debut/
-
-**A Bargain at the Opera: Philadelphia Offers All Seats for as Low as $11**\
-`Seeking new audiences, Opera Philadelphia is putting in place a pay-what-you-can model, one of the first of its kind by a major opera company.`\
-https://nytimes.com/2024/08/27/arts/music/opera-philadelphia-pay-what-you-wish.html
-
-**After Israel’s Hostage Rescue, Could There Finally Be a Cease-Fire Deal?**\
-`A majority of Israelis support a cease-fire in exchange for the remaining hostages.`\
-https://nytimes.com/live/2024/08/27/opinion/thepoint/hostage-rescue-ceasefire-israel-gaza
-
-**Man Dies After Boat Flips on Colorado River in Grand Canyon**\
-`The death of an 80-year-old man was the fifth fatality there in a month, officials said.`\
-https://nytimes.com/2024/08/27/us/grand-canyon-colorado-river-death.html
-
-**Who is Franco Colapinto and what can Williams expect from Logan Sargeant's replacement?**\
-`Williams will give the young Argentine a long look for nine races before Carlos Sainz joins in 2025. `\
-https://nytimes.com/athletic/5726649/2024/08/27/franco-colapinto-f1-williams-logan-sargeant/
 
