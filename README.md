@@ -1,3 +1,11 @@
+**Tua hasn't heard from Flores after criticizing former coach**\
+`Tagovailoa said it's more important for a head coach to support a team's quarterback more than any other position on the team.`\
+https://nytimes.com/athletic/5726172/2024/08/27/tua-tagovailoa-brian-flores-dolphins/
+
+**Is This Concert the Gold Standard for a Green Gig?**\
+`Coldplay and Billie Eilish have tried to drive down carbon emissions while touring, but the British band Massive Attack has tried to take the efforts even further.`\
+https://nytimes.com/2024/08/27/arts/music/massive-attack-climate-change.html
+
 **Commanders sign stadium naming rights deal**\
 `The team will play at Northwest Stadium following an eight-year naming rights deal with Northwest Federal Credit Union.`\
 https://nytimes.com/athletic/5726184/2024/08/27/commanders-stadium-naming-rights-deal/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/27/us/klamath-dam-removal-salmon.html
 **Scoop City: Notable cutdown-day moves, so far**\
 `A look at gems within the fantasy football draft kit and cutdown-day casualties`\
 https://nytimes.com/athletic/5726213/2024/08/27/ceedee-lambs-triumph-plus-notable-cutdown-day-moves-scoop-city/
-
-**Napoli agree deal to sign Lukaku from Chelsea**\
-`Napoli have agreed a deal to sign Romelu Lukaku from Chelsea.`\
-https://nytimes.com/athletic/5697639/2024/08/27/romelu-lukaku-napoli-chelsea-transfer/
-
-**German City Becomes Reluctant Symbol of a Nation’s Migration Battles**\
-`After a stabbing attack that prosecutors say was committed by a Syrian who was rejected for asylum, the city of Solingen finds itself at the center of a longstanding debate.`\
-https://nytimes.com/2024/08/27/world/europe/germany-solingen-migration-far-right.html
 
