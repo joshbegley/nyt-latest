@@ -1,3 +1,15 @@
+**Harris’s Ad-War Message: Trump Is Pro-Billionaire, She Worked at McDonald’s**\
+`The ads, focused on cutting costs, are meant to win over voters who believe Donald Trump would be better on the economy. They also signal a shift in tone from President Biden.`\
+https://nytimes.com/2024/08/27/us/politics/harris-trump-ads-economy.html
+
+**Read the Revised Indictment in the Federal Election Subversion Case**\
+`Federal prosecutors issued another version of an indictment accusing former President Donald J. Trump of plotting to overturn the 2020 election after the Supreme Court granted former presidents broad immunity for official acts.`\
+https://nytimes.com/interactive/2024/08/27/us/politics/trump-jan-6-indictment-jack-smith.html
+
+**The most expensive game-worn jerseys in each sport, and which could break the new record**\
+`Babe Ruth's 1932 "called shot" jersey set a new record for most expensive sports memorabilia item ever sold, but can anything top it? `\
+https://nytimes.com/athletic/5725508/2024/08/27/sports-jerseys-game-worn-most-expensive-babe-ruth/
+
 **Tell Us: What’s Your Favorite Book About Politics?**\
 `Share your thoughts with the On Politics newsletter.`\
 https://nytimes.com/2024/08/27/us/politics/tell-us-whats-your-favorite-book-about-politics.html

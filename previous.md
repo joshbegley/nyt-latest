@@ -1,3 +1,15 @@
+**Harris’s Ad-War Message: Trump Is Pro-Billionaire, She Worked at McDonald’s**\
+`The ads, focused on cutting costs, are meant to win over voters who believe Donald Trump would be better on the economy. They also signal a shift in tone from President Biden.`\
+https://nytimes.com/2024/08/27/us/politics/harris-trump-ads-economy.html
+
+**Read the Revised Indictment in the Federal Election Subversion Case**\
+`Federal prosecutors issued another version of an indictment accusing former President Donald J. Trump of plotting to overturn the 2020 election after the Supreme Court granted former presidents broad immunity for official acts.`\
+https://nytimes.com/interactive/2024/08/27/us/politics/trump-jan-6-indictment-jack-smith.html
+
+**The most expensive game-worn jerseys in each sport, and which could break the new record**\
+`Babe Ruth's 1932 "called shot" jersey set a new record for most expensive sports memorabilia item ever sold, but can anything top it? `\
+https://nytimes.com/athletic/5725508/2024/08/27/sports-jerseys-game-worn-most-expensive-babe-ruth/
+
 **Tell Us: What’s Your Favorite Book About Politics?**\
 `Share your thoughts with the On Politics newsletter.`\
 https://nytimes.com/2024/08/27/us/politics/tell-us-whats-your-favorite-book-about-politics.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/08/27/us/colorado-dog-breeder-killed-dobermans.html
 **Robert F. Kennedy Jr. Sawed the Head Off a Whale and Drove It Home, Daughter Says**\
 `Three decades later, an environmental organization is calling for an investigation.`\
 https://nytimes.com/2024/08/27/us/politics/rfk-jr-whale-head.html
-
-**Panthers 53-man roster: Where biggest needs remain, plus bottom of WR group gets new look**\
-`The initial Panthers' roster is thin at outside linebacker and they could be in the market for another corner and possibly a tight end.`\
-https://nytimes.com/athletic/5726891/2024/08/27/carolina-panthers-final-53-player-roster/
-
-**How the Politics of the Gaza War Engulfed the Melbourne Symphony**\
-`The orchestra faced criticism for canceling a performance by a pianist who spoke about the war. Now a top leader has departed and the ensemble has opened an inquiry.`\
-https://nytimes.com/2024/08/27/arts/music/melbourne-symphony-israel-gaza-war.html
-
-**To Lure Michigan Voters, Trump Campaign Stokes China Fears**\
-`JD Vance, the Republican vice-presidential nominee, waded into a fight over plans by Gotion, a Chinese battery plant, to build a factory in Michigan.`\
-https://nytimes.com/2024/08/27/us/politics/vance-trump-michigan-china-gotion.html
 
