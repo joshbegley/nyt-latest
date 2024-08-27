@@ -1,3 +1,7 @@
+**Logan Sargeant out at Williams Racing**\
+`Sargeant joined the grid last season and only scored one point during his time in F1.`\
+https://nytimes.com/athletic/5726606/2024/08/27/logan-sargeant-franco-colapinto-williams-racing-formula-one/
+
 **USMNT midfielder Tanner Tessmann joins Lyon from Venezia**\
 `Lyon have completed the signing of USMNT midfielder Tanner Tessmann from Venezia.`\
 https://nytimes.com/athletic/5726644/2024/08/27/tanner-tessmann-lyon-usmnt-transfer/

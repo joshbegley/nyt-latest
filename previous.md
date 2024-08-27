@@ -24,7 +24,7 @@ https://nytimes.com/2024/08/27/opinion/letters/trump-vs-harris-dowd.html
 
 **Logan Sargeant out at Williams Racing**\
 `Sargeant joined the grid last season and only scored one point during his time in F1.`\
-https://nytimes.com/athletic/5726606/2024/08/27/logan-sargent-franco-colapinto-williams-racing-formula-one/
+https://nytimes.com/athletic/5726606/2024/08/27/logan-sargeant-franco-colapinto-williams-racing-formula-one/
 
 **Harris and Trump Embrace Tariffs, Though Their Approaches Differ**\
 `Both Democrats and Republicans are expressing support for tariffs, but their proposals are dramatically different in scale.`\
