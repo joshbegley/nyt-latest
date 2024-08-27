@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5726426/2024/08/27/jason-mccourty-espn-analyst/
 `When the messaging app’s founder, Pavel Durov, was arrested, he received a flood of support from a multitrillion-dollar industry that relies on it.`\
 https://nytimes.com/2024/08/27/technology/telegram-crypto-industry-defender.html
 
-**Trump to Put Kennedy and Gabbard on his Transition Team**\
+**Trump to Put Kennedy and Gabbard on His Transition Team**\
 `Mr. Kennedy and Ms. Gabbard, who had been progressive Democrats for many years, will join the former president’s sons and Senator JD Vance, his running mate, as honorary co-chairs.`\
 https://nytimes.com/2024/08/27/us/politics/trump-transition-rfk-tulsi-gabbard.html
 
