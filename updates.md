@@ -1,3 +1,7 @@
+**City's Cancelo close to Al Hilal move**\
+`Manchester City full-back Joao Cancelo is close to joining Al Hilal.`\
+https://nytimes.com/athletic/5716200/2024/08/27/joao-cancelo-al-hilal-saudi-transfer/
+
 **Vikings' T.J. Hockenson will remain on PUP list**\
 `Hockenson tore his ACL during the Vikings' Week 18 loss to the Detroit Lions last season.`\
 https://nytimes.com/athletic/5726110/2024/08/27/tj-hockenson-vikings-pup/
