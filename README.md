@@ -1,3 +1,7 @@
+**Oasis: Timeline of a Sibling Rivalry for the Ages**\
+`When Liam and Noel Gallagher get together, hide the tambourines.`\
+https://nytimes.com/2024/08/27/arts/music/oasis-reunion-gallagher-breakup-feud.html
+
 **Which NFL players have been added to the PUP list? Explaining the rules and differences**\
 `Players such as Cleveland Browns RB Nick Chubb and Minnesota Vikings TE T.J. Hockenson are on PUP to start the 2024 regular season.`\
 https://nytimes.com/athletic/5726470/2024/08/27/nfl-pup-list-rules-faq/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5726614/2024/08/27/bailey-zappe-patriots-release/
 **For Its Famous Clientele, Peress was More Than a Lingerie Shop**\
 `For more than 90 years the Upper East Side shop served socially ambitious women, including Brooke Astor, Gloria Vanderbilt, Diana Vreeland, Barbara Walters, Madonna and many more.`\
 https://nytimes.com/2024/08/27/style/peress-lingerie-closing.html
-
-**Connections Bot F.A.Q.**\
-`Introducing a daily, personalized analysis tool for Connections fans.`\
-https://nytimes.com/2024/08/27/upshot/connections-bot-faq.html
 
