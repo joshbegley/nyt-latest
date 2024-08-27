@@ -1,3 +1,7 @@
+**NFL owners allow private equity firms to buy limited stakes in teams**\
+`NFL ownership rules previously only allowed for a limited number of approved partners, but not investment firms.`\
+https://nytimes.com/athletic/5727359/2024/08/27/nfl-owners-private-equity-firms/
+
 **Bears include Velus Jones Jr., DeAndre Carter on initial 53-man roster: 5 takeaways**\
 `The Bears likely will be in the market for a long snapper with Patrick Scales headed to IR and Cameron Lyons waived on Tuesday.`\
 https://nytimes.com/athletic/5727281/2024/08/27/bears-roster-velus-jones-deandre-carter/
