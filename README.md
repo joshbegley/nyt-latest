@@ -1,3 +1,19 @@
+**Dan Evans beats Karen Khachanov in longest match in U.S. Open history**\
+`Dan Evans beat Karen Khachanov on a roaring Court 6 to win the longest match in U.`\
+https://nytimes.com/athletic/5727605/2024/08/27/us-open-longest-match-tennis-evans-khachanov/
+
+**The Big Border Change Harris Isn’t Talking About**\
+`A Biden administration border policy that has had a dramatic impact isn’t getting campaign play.`\
+https://nytimes.com/2024/08/27/us/politics/harris-border-immigration-democrats.html
+
+**Bills 2024 initial 53-man roster, plus analysis**\
+`The initial 53-man roster is set but there will be more moves in the coming days.`\
+https://nytimes.com/athletic/5727393/2024/08/27/buffalo-bills-2024-initial-53-man-roster-plus-analysis/
+
+**Raiders 53-man roster: Preseason finale seals deal for Tyreik McAllister, Ramel Keyton**\
+`The Raiders went with youth at wide receiver in adding the converted UFL running back McAllister and the undrafted rookie Keyton.`\
+https://nytimes.com/athletic/5725475/2024/08/27/raiders-53-man-roster-mcallister-keyton/
+
 **Commanders 53-man roster following cutdown day: Which recent draft picks were retained?**\
 `Washington trimmed its roster from 90 to 53, and did so by jettisoning another bushel of players acquired over the previous four years.`\
 https://nytimes.com/athletic/5727285/2024/08/27/commanders-53-man-roster-cutdown-day/
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/5727417/2024/08/27/falcons-roster-taylor-heinicke-k
 **Cowboys 53-man roster: Strength at LB, what's the plan at RB, intriguing depth options**\
 `With CeeDee Lamb back, the WRs could have a say as the team's top position or the development of the rookies could point to the O-line.`\
 https://nytimes.com/athletic/5726920/2024/08/27/dallas-cowboys-final-53-player-roster/
-
-**Steelers 53-man roster: Beanie Bishop wins a job, while more moves might be coming**\
-`The Steelers kept only five wideouts, pointing to the possibility of a waiver wire addition. They could also use help at OL, DL and DB.`\
-https://nytimes.com/athletic/5727348/2024/08/27/steelers-roster-cuts-53-cutdown/
-
-**Sean Payton continues massive roster overhaul as Broncos set 53-man roster**\
-`Only 14 of the 53 players who were on Denver's roster in Week 1 in 2022 remained as the Broncos finalized this season's roster Tuesday.`\
-https://nytimes.com/athletic/5726938/2024/08/27/sean-payton-broncos-53-man-roster/
-
-**Gonzaga's Steele Venters sustains season-ending Achilles injury**\
-`After rehabbing all year, the 6-foot-7 wing was expected to start and play an integral role for Gonzaga this season.`\
-https://nytimes.com/athletic/5727324/2024/08/27/gonzaga-steele-venters-achilles-injury/
-
-**Vikings 53-man roster review: One thought on every player who made the cut**\
-`We break down the Vikings' initial 53-man roster ahead of Wednesday's waiver claims. How will they fill the holes at RB and KR?`\
-https://nytimes.com/athletic/5727303/2024/08/27/minnesota-vikings-53-man-roster-analysis/
 
