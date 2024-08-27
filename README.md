@@ -1,3 +1,7 @@
+**Corrections: Aug. 27, 2024**\
+`Corrections that appeared in print on Tuesday, Aug. 27, 2024.`\
+https://nytimes.com/2024/08/27/pageoneplus/corrections-aug-27-2024.html
+
 **Twins' Bailey Ober learns when it rains, it pours with career-worst outing**\
 `Before thunder and lightning caused a long delay, Ober gave up nine runs in just two innings against Atlanta.`\
 https://nytimes.com/athletic/5725622/2024/08/27/bailey-ober-career-worst-loss-twins-braves/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5711318/2024/08/27/georginio-rutter-brighton-transf
 **Do Real Madrid have a problem with ACL injuries?**\
 `Real Madrid have suffered six anterior cruciate ligament problems over the past 12 months. Here's how the club views things`\
 https://nytimes.com/athletic/5723628/2024/08/27/real-madrid-acl-injuries-camavinga-militao-alaba/
-
-**‘Free guys’: 13 endgame 2024 fantasy football draft picks who could be league winners**\
-`Jake Ciely goes beyond ADP No. 180 to tout the typically undrafted players who could emerge and make an impact in fantasy football 2024.`\
-https://nytimes.com/athletic/5725098/2024/08/27/free-guys-13-endgame-2024-fantasy-football-draft-picks-who-could-be-league-winners/
 
