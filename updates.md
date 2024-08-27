@@ -1,3 +1,7 @@
+**21 Questions for Harris**\
+`We’re asking unanswered questions for her potential administration.`\
+https://nytimes.com/2024/08/27/briefing/21-questions-for-harris.html
+
 **Villa's Iling-Junior joins Bologna on loan**\
 `Aston Villa&#8217;s Samuel Iling-Junior has completed a season-long loan move to Bologna.`\
 https://nytimes.com/athletic/5723562/2024/08/27/samuel-iling-junior-bologna-loan-aston-villa/
