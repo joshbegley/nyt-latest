@@ -1,3 +1,15 @@
+**Connor Stalions addresses Central Michigan sideline photos for first time**\
+`Central Michigan released a statement on Tuesday morning following the documentary's release.`\
+https://nytimes.com/athletic/5725975/2024/08/27/connor-stalions-central-michigan-sideline-photos/
+
+**One Woman’s Quest to Map the Paris Flea Market**\
+`The world-famous stalls have plenty of vintage finds, as long as you know where to look and what to expect.`\
+https://nytimes.com/2024/08/27/style/paris-puces-flea-market.html
+
+**What to Know About the Hostages Israel Has Rescued During the War in Gaza**\
+`Israeli forces have freed eight hostages in military operations in Gaza since Oct. 7, out of the approximately 250 abducted in the Hamas-led attacks.`\
+https://nytimes.com/2024/08/27/world/middleeast/israel-hostages-rescued-hamas-gaza.html
+
 **Mariah Carey Says Her Mother and Sister Died on the Same Day**\
 `Ms. Carey, who has spoken and written extensively about her complicated relationship with her family, said the deaths had led to an “impossible time.”`\
 https://nytimes.com/2024/08/27/arts/music/mariah-carey-mom-sister-dead.html
@@ -21,16 +33,4 @@ https://nytimes.com/live/2024/08/27/world/israel-hamas-gaza-war/here-are-the-lat
 **The Athletic FC: Everton's increasing struggles, Manchester United close to Ugarte deal**\
 `Today in The Athletic FC: Everton struggling on and off the pitch, Manchester United close to Ugarte deal`\
 https://nytimes.com/athletic/5725807/2024/08/27/everton-struggles-manchester-united-ugarte-deal/
-
-**Statistics that prove the Giants are the most average team that was ever average**\
-`You may assume the Giants are the worst team in a lot of categories. But, like their record, they've been merely average in most areas.`\
-https://nytimes.com/athletic/5719359/2024/08/27/sf-giants-statistical-breakdown-average-stats/
-
-**Ryan Pepiot reflects on Dodgers trade, opportunity with Tampa Bay: 'A blessing'**\
-`Pepiot has been able to develop in the majors with the Rays, who acquired him from the Dodgers in the deal that sent Tyler Glasnow to L.A.`\
-https://nytimes.com/athletic/5725166/2024/08/27/dodgers-ryan-pepiot-trade-rays/
-
-**Here’s the latest on the presidential race.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/08/27/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 
