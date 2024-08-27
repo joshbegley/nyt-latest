@@ -1,3 +1,11 @@
+**Kennedy Says Trump Will ‘Make Americans Healthy.’ His Record Suggests Otherwise.**\
+`As president, Donald J. Trump slashed protections for clean air and water and weakened school nutrition standards.`\
+https://nytimes.com/2024/08/27/climate/rfk-jr-trump-chemicals-pesticides.html
+
+**Feyenoord's Bijlow says Southampton move broke down due to medical issue**\
+`Feyenoord goalkeeper Justin Bijlow says an issue in a medical examination saw his move to Southampton break down.`\
+https://nytimes.com/athletic/5726529/2024/08/27/justin-bijlow-southampton-medical-feyenoord/
+
 **Another Icon-of-the-Seas-Style Megaship? Make That 3 More.**\
 `Royal Caribbean and other companies are aggressively building over-the-top ships. “Today’s cruisezillas make the Titanic look like a small fishing boat,” noted one sustainability specialist.`\
 https://nytimes.com/2024/08/27/travel/icon-of-the-seas-new-ships.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5726263/2024/08/27/creator-classic-pga-tour-youtube
 **Bournemouth's Anthony undergoing medical ahead of Burnley loan**\
 `Bournemouth winger Jaidon Anthony is undergoing a medical ahead of joining Burnley on a season-long loan.`\
 https://nytimes.com/athletic/5726129/2024/08/27/jaidon-anthony-burnley-loan-transfer/
-
-**Israeli commandos found the hostage by chance while capturing a tunnel, officials say.**\
-`Israeli officials said soldiers had been combing a Hamas tunnel network underneath southern Gaza when they stumbled across Farhan Al-Qadi.`\
-https://nytimes.com/live/2024/08/27/world/israel-hamas-gaza-war/israel-hostage-rescue
-
-**On Stonehenge and Mispronouncing ‘Kamala’: The Winners of Our Week 10 Summer Reading Contest**\
-`As our contest comes to a close, we honor both a video and an essay, and hear from students and judges about their experiences participating this year.`\
-https://nytimes.com/2024/08/27/learning/on-stonehenge-and-mispronouncing-kamala-the-winners-of-our-week-10-summer-reading-contest.html
 
