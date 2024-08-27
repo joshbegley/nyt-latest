@@ -1,3 +1,7 @@
+**What to Know About the Rare Mosquito-Borne Illness Eastern Equine Encephalitis**\
+`The disease has caused one death in New Hampshire and the virus has also been identified in humans in neighboring states, health officials said.`\
+https://nytimes.com/2024/08/27/us/massachusetts-eee-mosquito-disease.html
+
 **2 Dead, 1 Injured at Delta Maintenance Facility Near Atlanta Airport**\
 `The workers were at the “wheel and brake shop” of the maintenance facility when the accident occurred, Delta said.`\
 https://nytimes.com/2024/08/27/us/delta-atlanta-deaths.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5726800/2024/08/27/sandro-tonali-newcastle/
 **Man City defender Cancelo joins Al Hilal in €25m deal**\
 `Manchester City defender Joao Cancelo has completed his move to Al Hilal.`\
 https://nytimes.com/athletic/5726198/2024/08/27/joao-cancelo-al-hilal-transfer-man-city/
-
-**Tiny Love Stories: ‘I Love Your Pigtails’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/08/27/style/tiny-modern-love-stories-i-love-your-pigtails.html
 
