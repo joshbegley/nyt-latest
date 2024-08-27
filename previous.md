@@ -1,3 +1,27 @@
+**Nigeria confirm Bruno Labbadia as new head coach**\
+`Nigeria have appointed Bruno Labbadia as their new head coach.`\
+https://nytimes.com/athletic/5725683/2024/08/27/bruno-labbadia-nigeria-head-coach/
+
+**Mandel: Don't be fooled, Connor Stalions is not a victim in his own sign-stealing scheme**\
+`Stalions offers his side of the story in the new Netflix documentary "Untold: Sign Stealer." But he's not a credible narrator.`\
+https://nytimes.com/athletic/5724956/2024/08/27/connor-stalions-netflix-documentary-untold-sign-stealer-victim/
+
+**What we learned (and mostly didn't) from the Connor Stalions documentary on Netflix**\
+`“Sign Stealer,” released as part of Netflix’s “Untold” series, illustrates the absurdity of the Connor Stalions drama without clear answers.`\
+https://nytimes.com/athletic/5724469/2024/08/27/connor-stalions-netflix-sign-stealer-review/
+
+**His Siblings Gathered to Sell the Family Home. Then He Started Shooting.**\
+`Joseph DeLucia, despondent over the sale of the Long Island house where he lived with his mother, killed three siblings, a niece and himself, the police said.`\
+https://nytimes.com/2024/08/27/nyregion/murder-suicide-long-island-syosset.html
+
+**For Italian Tennis Stars, a Little Corner of Rome in the East Village**\
+`A trattoria on the Lower East Side has become the de facto lounge for  Italians at the U.S. Open.`\
+https://nytimes.com/2024/08/27/nyregion/usopen-tennis-italy.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/27/crosswords/spelling-bee-forum.html
+
 **The Transfer DealSheet: Sancho latest, Chelsea striker hunt, Toney, Guehi and more**\
 `This is your weekly round-up of all the latest news from across the world of transfers`\
 https://nytimes.com/athletic/5723572/2024/08/27/manchester-united-arsenal-transfer-news-liverpool-real-madrid-barcelona/
@@ -9,28 +33,4 @@ https://nytimes.com/2024/08/27/learning/word-of-the-day-hatchling.html
 **Corrections: Aug. 27, 2024**\
 `Corrections that appeared in print on Tuesday, Aug. 27, 2024.`\
 https://nytimes.com/2024/08/27/pageoneplus/corrections-aug-27-2024.html
-
-**Twins' Bailey Ober learns when it rains, it pours with career-worst outing**\
-`Before thunder and lightning caused a long delay, Ober gave up nine runs in just two innings against Atlanta.`\
-https://nytimes.com/athletic/5725622/2024/08/27/bailey-ober-career-worst-loss-twins-braves/
-
-**Typhoon Shanshan Approaches Japan, Bringing Heavy Rain and Winds**\
-`Japan’s southern islands were forecast to receive the most rain. The powerful storm has forced flight cancellations and disrupted high-speed rail travel.`\
-https://nytimes.com/2024/08/27/world/asia/japan-typhoon-shanshan.html
-
-**Fantasy Premier League: Gameweek 2 Review**\
-`From frustrations over Isak and Watkins to the budget defenders emerging as viable options - these at the talking points from Gameweek 2`\
-https://nytimes.com/athletic/5722881/2024/08/27/fantasy-premier-league-rogers-nkunku-haaland/
-
-**Is Gravenberch ending Liverpool's No 6 debate?**\
-`Midfielder has reinvented himself under Arne Slot to suggest he could be a solution to a long-running problem`\
-https://nytimes.com/athletic/5723606/2024/08/27/ryan-gravenberch-liverpool-no6/
-
-**Performances will always be the priority for Postecoglou**\
-`Postecoglou isn't really too bothered about Spurs' ruthlessness - as long as performance levels match what they produced against Everton`\
-https://nytimes.com/athletic/5717228/2024/08/27/tottenham-ange-postecoglou-performances/
-
-**At U.S. Open, Americans take care of business as New York dares to expect**\
-`The American players largely took care of business in New York, where the pressure of a home Grand Slam can be inspiration or doom.`\
-https://nytimes.com/athletic/5725462/2024/08/27/us-open-american-tennis-shelton-gauff-tiafoe-fritz/
 
