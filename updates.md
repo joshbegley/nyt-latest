@@ -1,3 +1,15 @@
+**Heat Deaths Doubled in the U.S. in Recent Decades, Study Says**\
+`As a late-August heat wave bears down on a significant part of the U.S., new numbers indicate that deaths have increased in recent years.`\
+https://nytimes.com/2024/08/27/climate/heat-deaths.html
+
+**Eighth-grader dies after suffering injury during football practice**\
+`His father is now pushing for players to receive Guardian Caps, soft-shell covers used on helmets that can help prevent head injuries.`\
+https://nytimes.com/athletic/5727144/2024/08/27/west-virginia-youth-football-head-injury-death/
+
+**Safety Agency Cites Lax Inspections and Federal Oversight in Deadly Helicopter Crash**\
+`The N.T.S.B. says a lack of F.A.A. oversight contributed to a 2022 helicopter crash in West Virginia, in which six people were killed.`\
+https://nytimes.com/2024/08/27/us/politics/ntsb-helicopter-crash-west-virginia.html
+
 **Why We Cover What Politicians Wear**\
 `For both men and women, clothes can be an important tool for communication. Often, there’s strategy behind the style.`\
 https://nytimes.com/2024/08/27/style/why-the-new-york-times-covers-what-politicians-wear.html
