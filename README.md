@@ -1,3 +1,11 @@
+**USMNT midfielder Tanner Tessmann joins Lyon from Venezia**\
+`Lyon have completed the signing of USMNT midfielder Tanner Tessmann from Venezia.`\
+https://nytimes.com/athletic/5726644/2024/08/27/tanner-tessmann-lyon-usmnt-transfer/
+
+**A Pianist Who’s Not Afraid to Improvise on Mozart**\
+`Robert Levin has long argued that Mozart would have made up new material while performing, and he follows the master in a series of dazzling recordings.`\
+https://nytimes.com/2024/08/27/arts/music/robert-levin-mozart-keyboard.html
+
 **Russia Bombards Ukrainian Cities for a Second Day**\
 `An early morning barrage hit several locations across Ukraine, including a hotel in Kryvyi Rih where at least four people were killed and several others wounded, Ukrainian officials said.`\
 https://nytimes.com/video/world/europe/100000009659644/ukraine-russia-missile-drone-attacks.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/27/us/politics/trump-harris-tariffs.html
 **Mexico Pauses Diplomatic Ties With U.S. Amid Clash Over Judicial Overhaul**\
 `President López Obrador’s proposed changes to the judiciary are sparking a diplomatic fight with the United States in the last weeks of his presidency.`\
 https://nytimes.com/2024/08/27/world/americas/mexico-us-pause-relations.html
-
-**Lexi Thompson tabbed for U.S. Solheim Cup team**\
-`This year marks Thompson's seventh consecutive time representing the U.S. at the Solheim Cup.`\
-https://nytimes.com/athletic/5726501/2024/08/27/lexi-thompson-captains-picks-us-solheim-cup-team/
-
-**Don’t Call the Telegram Chief Executive’s Arrest a Free Speech Infringement — Yet**\
-`Some early details suggest the issue here isn’t one of free speech, but of criminal activity.`\
-https://nytimes.com/2024/08/20/opinion/pavel-durov-telegram-arrest.html
 
