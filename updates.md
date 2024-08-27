@@ -1,3 +1,7 @@
+**Chelsea agree Harvey Vale deal with Al Ettifaq**\
+`Chelsea have agreed an undisclosed fee with Saudi Pro League club Al Ettifaq for the sale of academy graduate Harvey Vale.`\
+https://nytimes.com/athletic/5726031/2024/08/27/chelsea-harvey-vale-al-ettifaq-saudi-transfer/
+
 **Ipswich in advanced talks to sign Luton's Ogbene**\
 `Ipswich Town are in advanced talks to sign Chiedozie Ogbene from Luton Town.`\
 https://nytimes.com/athletic/5725727/2024/08/27/chiedozie-ogbene-ipswich-transfer/
