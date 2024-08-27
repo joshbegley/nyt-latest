@@ -1,3 +1,11 @@
+**Why Arsenal made Mikel Merino their 'win-now' signing**\
+`Merino doesn't fit Arsenal's typical transfer strategy but Arteta believes the Spaniard can fill the role he once earmarked for Kai Havertz`\
+https://nytimes.com/athletic/5720483/2024/08/27/arsenal-mikel-merino-arteta-transfer-signing/
+
+**A New Destination for Indian Cuisine in Queens**\
+`Oh! Calcutta opens in Long Island City; Grand Brasserie fills Vanderbilt Hall with Parisian flair and more restaurant news.`\
+https://nytimes.com/2024/08/27/dining/nyc-restaurants-ohcalcutta-queens-grand-brasserie.html
+
 **Kelce bros. ink $100 million deal for 'New Heights'**\
 `Travis and Jason Kelce signed a deal with Amazon's podcast network Wondery to be the new home of their podcast.`\
 https://nytimes.com/athletic/5726238/2024/08/27/new-heights-travis-jason-kelce-wondery-amazon-deal/
