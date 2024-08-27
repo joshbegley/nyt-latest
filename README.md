@@ -1,3 +1,7 @@
+**Gonzaga's Steele Venters sustains season-ending Achilles injury**\
+`After rehabbing all year, the 6-foot-7 wing was expected to start and play an integral role for Gonzaga this season.`\
+https://nytimes.com/athletic/5727324/2024/08/27/gonzaga-steele-venters-achilles-injury/
+
 **Vikings 53-man roster review: One thought on every player who made the cut**\
 `We break down the Vikings' initial 53-man roster ahead of Wednesday's waiver claims. How will they fill the holes at RB and KR?`\
 https://nytimes.com/athletic/5727303/2024/08/27/minnesota-vikings-53-man-roster-analysis/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5727359/2024/08/27/nfl-owners-private-equity-firms/
 **Bears include Velus Jones Jr., DeAndre Carter on initial 53-man roster: 5 takeaways**\
 `The Bears likely will be in the market for a long snapper with Patrick Scales headed to IR and Cameron Lyons waived on Tuesday.`\
 https://nytimes.com/athletic/5727281/2024/08/27/bears-roster-velus-jones-deandre-carter/
-
-**The Special Counsel Filed Revised Charges Against Trump**\
-`Also, Israeli forces rescued a hostage from Gaza. Here’s the latest from the end of Tuesday.`\
-https://nytimes.com/2024/08/27/briefing/trump-revised-charges-israel-gaza-hostage.html
 
