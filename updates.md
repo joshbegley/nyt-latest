@@ -1,3 +1,7 @@
+**Two Bodies Found in Rice University Dorm Room in Possible Murder-Suicide**\
+`A female student was fatally shot. A man who was not a student had a self-inflicted gunshot wound, the university president said.`\
+https://nytimes.com/2024/08/26/us/rice-university-shooting-homicide.html
+
 **Padres agree to minor-league deal with Elias Díaz**\
 `The Rockies released the 2023 All-Star Game MVP on Aug. 16.`\
 https://nytimes.com/athletic/5725488/2024/08/26/padres-elias-diaz-minor-league-deal/
