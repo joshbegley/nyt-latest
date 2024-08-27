@@ -1,3 +1,7 @@
+**Former Aides to Bush, Romney and McCain Back Harris Over Trump**\
+`The former Republican staffers’ support of the Democratic ticket reflects how former President Donald J. Trump has transformed the Republican Party.`\
+https://nytimes.com/2024/08/26/us/politics/harris-trump-bush-romney-mccain.html
+
 **Judge Pauses Biden Administration Program That Aids Undocumented Spouses**\
 `Ruling in favor of 16 Republican-led states that sued the administration, a federal judge put the program on hold while the court considers the merits of the case.`\
 https://nytimes.com/2024/08/26/us/undocumented-spouses-biden-administration.html
