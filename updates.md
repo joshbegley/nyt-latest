@@ -1,3 +1,7 @@
+**Oasis: Timeline of a Sibling Rivalry for the Ages**\
+`When Liam and Noel Gallagher get together, hide the tambourines.`\
+https://nytimes.com/2024/08/27/arts/music/oasis-reunion-gallagher-breakup-feud.html
+
 **Which NFL players have been added to the PUP list? Explaining the rules and differences**\
 `Players such as Cleveland Browns RB Nick Chubb and Minnesota Vikings TE T.J. Hockenson are on PUP to start the 2024 regular season.`\
 https://nytimes.com/athletic/5726470/2024/08/27/nfl-pup-list-rules-faq/
