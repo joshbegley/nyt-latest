@@ -1,3 +1,7 @@
+**Which NFL players have been added to the PUP list? Explaining the rules and differences**\
+`Players such as Cleveland Browns RB Nick Chubb and Minnesota Vikings TE T.J. Hockenson are on PUP to start the 2024 regular season.`\
+https://nytimes.com/athletic/5726470/2024/08/27/nfl-pup-list-rules-faq/
+
 **Is This the Edinburgh Fringe, or a Wellness Convention?**\
 `Grief narratives were in vogue, and psychological maladies, too, at the annual Scottish arts showcase.`\
 https://nytimes.com/2024/08/27/theater/edinburgh-fringe.html
