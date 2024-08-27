@@ -1,3 +1,15 @@
+**Mamardashvili and a 'special power' that set him on the path to Liverpool**\
+`The Georgian has always been talented, but it is his mentality that impressed those who have known him longest`\
+https://nytimes.com/athletic/5724183/2024/08/27/giorgi-mamardashvili-liverpool-transfer-profile/
+
+**Liverpool working to complete Chiesa transfer from Juventus**\
+`Liverpool are working to complete the signing of Federico Chiesa before the transfer market shuts.`\
+https://nytimes.com/athletic/5724919/2024/08/27/liverpool-chiesa-transfer-juventus/
+
+**Tulsi Gabbard’s Trumpy Transition Is Now Complete**\
+`The former president is clearly hoping some of Gabbard’s mojo rubs off on him.`\
+https://nytimes.com/live/2024/08/27/opinion/thepoint/tulsi-gabbard-trump-transition
+
 **Humanitarian operations in Gaza resume, haltingly, following a pause, the U.N. says.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/08/27/world/israel-hamas-gaza-war/humanitarian-operations-in-gaza-resume-haltingly-following-a-pause-the-un-says
