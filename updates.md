@@ -1,3 +1,11 @@
+**Steelers 53-man roster: Beanie Bishop wins a job, and more moves might be coming**\
+`The Steelers kept only five wideouts, pointing to the possibility of a waiver wire addition. They could also use help at OL, DL and DB.`\
+https://nytimes.com/athletic/5727348/2024/08/27/steelers-roster-cuts-53-cutdown/
+
+**Sean Payton continues massive roster overhaul as Broncos set 53-man roster**\
+`Only 14 of the 53 players who were on Denver's roster in Week 1 in 2022 remained as the Broncos finalized this season's roster Tuesday.`\
+https://nytimes.com/athletic/5726938/2024/08/27/sean-payton-broncos-53-man-roster/
+
 **Gonzaga's Steele Venters sustains season-ending Achilles injury**\
 `After rehabbing all year, the 6-foot-7 wing was expected to start and play an integral role for Gonzaga this season.`\
 https://nytimes.com/athletic/5727324/2024/08/27/gonzaga-steele-venters-achilles-injury/
