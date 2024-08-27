@@ -1,3 +1,15 @@
+**Oklahoma's DeMarco Murray suspended for recruiting violations**\
+`The NCAA announced punishments on Tuesday for recruiting violations committed by the Oklahoma football program, including a one-game suspension for DeMarco Murray, the Sooners running backs coach and former NFL All-Pro, for impermissibly contacting recruits during a dead period.`\
+https://nytimes.com/athletic/5726630/2024/08/27/oklahoma-football-demarco-murray-suspended-ncaa/
+
+**Wolves close to agreement for Palace's Johnstone**\
+`Wolverhampton Wanderers close to reaching an agreement with Crystal Palace to sign goalkeeper Sam Johnstone.`\
+https://nytimes.com/athletic/5726707/2024/08/27/sam-johnstone-wolves-crystal-palace-transfer/
+
+**Patriots cut Zappe; Purdy, Thompson as 2022 QBs with drafting team**\
+`Only two of the nine quarterbacks taken in the 2022 NFL Draft remain with the team that selected them`\
+https://nytimes.com/athletic/5726614/2024/08/27/bailey-zappe-patriots-release/
+
 **For Its Famous Clientele, Peress was More Than a Lingerie Shop**\
 `For more than 90 years the Upper East Side shop served socially ambitious women, including Brooke Astor, Gloria Vanderbilt, Diana Vreeland, Barbara Walters, Madonna and many more.`\
 https://nytimes.com/2024/08/27/style/peress-lingerie-closing.html
