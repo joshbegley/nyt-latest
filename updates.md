@@ -1,3 +1,7 @@
+**Gonzaga's Steele Venters sustains season-ending Achilles injury**\
+`After rehabbing all year, the 6-foot-7 wing was expected to start and play an integral role for Gonzaga this season.`\
+https://nytimes.com/athletic/5727324/2024/08/27/gonzaga-steele-venters-achilles-injury/
+
 **Vikings 53-man roster review: One thought on every player who made the cut**\
 `We break down the Vikings' initial 53-man roster ahead of Wednesday's waiver claims. How will they fill the holes at RB and KR?`\
 https://nytimes.com/athletic/5727303/2024/08/27/minnesota-vikings-53-man-roster-analysis/
