@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5723606/2024/08/27/ryan-gravenberch-liverpool-no6/
 `Postecoglou isn't really too bothered about Spurs' ruthlessness - as long as performance levels match what they produced against Everton`\
 https://nytimes.com/athletic/5717228/2024/08/27/tottenham-ange-postecoglou-performances/
 
-**At the U.S. Open, Americans take care of business as New York dares to expect**\
+**At U.S. Open, Americans take care of business as New York dares to expect**\
 `The American players largely took care of business in New York, where the pressure of a home Grand Slam can be inspiration or doom.`\
 https://nytimes.com/athletic/5725462/2024/08/27/us-open-american-tennis-shelton-gauff-tiafoe-fritz/
 
