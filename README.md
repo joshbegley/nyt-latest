@@ -1,4 +1,28 @@
-**Bryce Harper likes his swings — except the one that won a game — and the Phillies will take it**\
+**A Mercedes-Benz Fire Jolts South Korea’s E.V. Transition**\
+`The government is aggressively promoting electric cars. But a dramatic blaze in an underground lot has left some potential buyers worried about safety.`\
+https://nytimes.com/2024/08/27/world/asia/south-korea-electric-vehicle-fire.html
+
+**In Eastern Ukraine, Terrifying Bombardment and Near Total Destruction**\
+`Powerful guided “glide bombs” have helped Russia raze entire towns with ever greater speed. “When you drive into a ruined town, it’s like hopelessness,” one soldier said.`\
+https://nytimes.com/2024/08/27/world/europe/ukraine-russia-donetsk-bomb.html
+
+**Prosecutor Turned Politician: Could Britain’s Leader Show Harris a Path to Power?**\
+`Like Kamala Harris, Prime Minister Keir Starmer was a prosecutor before embracing politics. The two share a few other traits.`\
+https://nytimes.com/2024/08/27/world/europe/kamala-harris-keir-starmer-prosecutor-politician.html
+
+**To Stay Relevant, a Spanish Energy Giant Turns to Waste**\
+`Repsol figures that there is still life in vehicle fuels as long as they can be portrayed as low carbon.`\
+https://nytimes.com/2024/08/27/business/biofuel-alternative-fuel-green-energy.html
+
+**Tuesday's MLB odds, best bets: Pitching matchups, playoff projections and more**\
+`See pitching matchups, playoff projections, win projections and more for Tuesday's MLB games.`\
+https://nytimes.com/athletic/5725019/2024/08/27/mlb-odds-best-bets-projections-august-27/
+
+**From People’s Park to Ikea, Shanghai’s Seniors Look for Love**\
+`China has more people 65 or older than any other country, and more and more of them are unattached.`\
+https://nytimes.com/2024/08/27/business/china-seniors-dating-shanghai.html
+
+**Bryce Harper likes his swings — except the one that won a game — the Phillies will take it**\
 `"It's good for us. Right? He's a big cog in the lineup," Kyle Schwarber said of Harper.`\
 https://nytimes.com/athletic/5725570/2024/08/26/phillies-bryce-harper-walk-off-astros-progress/
 
@@ -9,28 +33,4 @@ https://nytimes.com/athletic/5725488/2024/08/26/padres-elias-diaz-minor-league-d
 **In the Hamptons, Doug Emhoff calls Kamala Harris a ‘joyful warrior.’**\
 `By Nate Schweber`\
 https://nytimes.com/live/2024/08/26/us/harris-trump-election/in-the-hamptons-doug-emhoff-calls-kamala-harris-a-joyful-warrior
-
-**Two Bodies Found in Rice University Dorm Room in Possible Murder-Suicide**\
-`A female student was fatally shot. A man who was not a student had a self-inflicted gunshot wound, the university president said.`\
-https://nytimes.com/2024/08/26/us/rice-university-shooting-homicide.html
-
-**Take the Wheel**\
-`Julia Hoepner makes her New York Times debut.`\
-https://nytimes.com/2024/08/26/crosswords/daily-puzzle-2024-08-27.html
-
-**Edgar Bronfman Jr. Drops Pursuit of Paramount**\
-`Mr. Bronfman had frantically put a bid together over the last week even as Paramount raised questions about his financing.`\
-https://nytimes.com/2024/08/26/business/bronfman-drops-paramount-pursuit.html
-
-**Man Is Charged With Arson in California Wildfire That Destroyed 13 Homes**\
-`The Thompson fire also burned over 3,700 acres and forced the evacuation of 26,000 residents.`\
-https://nytimes.com/2024/08/26/us/california-thompson-fire-arson-arrest.html
-
-**Judge Pauses Biden Administration Program That Aids Undocumented Spouses**\
-`Ruling in favor of 16 Republican-led states that sued the administration, a federal judge put the program on hold while the court considers the merits of the case.`\
-https://nytimes.com/2024/08/26/us/undocumented-spouses-biden-administration.html
-
-**Former Aides to Bush, Romney and McCain Back Harris Over Trump**\
-`The former Republican staffers’ support of the Democratic ticket reflects how former President Donald J. Trump has transformed the Republican Party.`\
-https://nytimes.com/2024/08/26/us/politics/harris-trump-bush-romney-mccain.html
 
