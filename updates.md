@@ -1,3 +1,7 @@
+**Corrections: Aug. 27, 2024**\
+`Corrections that appeared in print on Tuesday, Aug. 27, 2024.`\
+https://nytimes.com/2024/08/27/pageoneplus/corrections-aug-27-2024.html
+
 **Twins' Bailey Ober learns when it rains, it pours with career-worst outing**\
 `Before thunder and lightning caused a long delay, Ober gave up nine runs in just two innings against Atlanta.`\
 https://nytimes.com/athletic/5725622/2024/08/27/bailey-ober-career-worst-loss-twins-braves/
