@@ -1,3 +1,7 @@
+**First Jan. 6 Rioter to Enter Capitol Gets More Than 4 Years in Prison**\
+`Michael Sparks, 57, was the first rioter to breach the Capitol and among the first to be confronted by the U.S. Capitol Police Officer Eugene Goodman.`\
+https://nytimes.com/2024/08/27/us/politics/jan-6-riot-michael-sparks-sentence.html
+
 **Israeli Forces Rescue Hostage in Gaza as Strikes Kill Scores of Palestinians**\
 `A Bedouin Arab citizen of Israel was rescued after Israeli commandos found him alone in an underground warren, apparently abandoned by his captors.`\
 https://nytimes.com/2024/08/27/world/middleeast/israel-hostage-rescue-gaza.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/27/us/politics/harris-border-immigration-democrats.h
 **Bills 2024 initial 53-man roster, plus analysis**\
 `The initial 53-man roster is set but there will be more moves in the coming days.`\
 https://nytimes.com/athletic/5727393/2024/08/27/buffalo-bills-2024-initial-53-man-roster-plus-analysis/
-
-**Raiders 53-man roster: Preseason finale seals deal for Tyreik McAllister, Ramel Keyton**\
-`The Raiders went with youth at wide receiver in adding the converted UFL running back McAllister and the undrafted rookie Keyton.`\
-https://nytimes.com/athletic/5725475/2024/08/27/raiders-53-man-roster-mcallister-keyton/
 
