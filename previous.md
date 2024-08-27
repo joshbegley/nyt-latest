@@ -1,3 +1,7 @@
+**Tonali 'excited' for Newcastle return after 10-month suspension**\
+`Sandro Tonali feels like a “new player, a new transfer,” following the end of his 10-month ban for betting offences and has paid an emotional tribute to Newcastle United fans for treating him as “if I’d been here for 10 years.`\
+https://nytimes.com/athletic/5726800/2024/08/27/sandro-tonali-newcastle/
+
 **Man City defender Cancelo joins Al Hilal in €25m deal**\
 `Manchester City defender Joao Cancelo has completed his move to Al Hilal.`\
 https://nytimes.com/athletic/5726198/2024/08/27/joao-cancelo-al-hilal-transfer-man-city/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/27/dining/how-to-turn-august-grilling-into-autumn-gr
 **Israeli Military Rescues Eighth Hostage Alive From Gaza**\
 `Israeli soldiers and special forces found Farhan al-Qadi by chance as they were combing through a tunnel network in southern Gaza.`\
 https://nytimes.com/video/world/middleeast/100000009659803/israel-hostage-rescue.html
-
-**Oklahoma's DeMarco Murray suspended for recruiting violations**\
-`The NCAA announced punishments on Tuesday for recruiting violations committed by the Oklahoma football program, including a one-game suspension for DeMarco Murray, the Sooners running backs coach and former NFL All-Pro, for contacting recruits prior to permissible contact periods.`\
-https://nytimes.com/athletic/5726630/2024/08/27/oklahoma-football-demarco-murray-suspended-ncaa/
 
