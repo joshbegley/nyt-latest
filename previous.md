@@ -1,3 +1,15 @@
+**Chargers' initial 53-man roster: Easton Stick is the backup QB ... for now**\
+`The Chargers figure to heavily monitor the waiver wire and trade market in the coming days to try to upgrade behind Justin Herbert.`\
+https://nytimes.com/athletic/5727526/2024/08/27/chargers-initial-53-roster-easton-stick/
+
+**SEC appears headed to implementing availability report**\
+`An SEC availability report would apply to only conference games, and there are none this week.`\
+https://nytimes.com/athletic/5727672/2024/08/27/sec-availability-report-kirby-smart/
+
+**Browns keep 4 QBs on initial 53-man roster as cutdown day brings a few mild surprises**\
+`More moves are likely coming over the next two days for Cleveland, with waivers being processed around the league on Wednesday. `\
+https://nytimes.com/athletic/5727362/2024/08/27/browns-53-man-roster-cutdown-day/
+
 **First Jan. 6 Rioter to Enter Capitol Gets More Than 4 Years in Prison**\
 `Michael Sparks, 57, was the first rioter to breach the Capitol and among the first to be confronted by the U.S. Capitol Police Officer Eugene Goodman.`\
 https://nytimes.com/2024/08/27/us/politics/jan-6-riot-michael-sparks-sentence.html
@@ -11,7 +23,7 @@ https://nytimes.com/2024/08/27/world/middleeast/israel-hostage-rescue-gaza.html
 https://nytimes.com/2024/08/27/nyregion/school-cellphone-bans-nyc.html
 
 **49ers 53-man roster analysis: Talanoa Hufanga comes off PUP; still waiting on Trent Williams**\
-`The 49ers' initial roster doesn't include Trent Williams, but considering it has just two tackles they clearly expect to land him soon.`\
+`The 49ers' initial roster doesn't include Williams, but considering it has just two tackles, they clearly expect to land him soon.`\
 https://nytimes.com/athletic/5725477/2024/08/27/49ers-53-man-roster-hufanga-williams/
 
 **Can We Be a Little Less Selective With Our Moral Outrage?**\
@@ -21,16 +33,4 @@ https://nytimes.com/2024/08/27/opinion/gaza-protests-venezuela.html
 **Man Is First to Be Charged in New York With Wearing a Mask in Public**\
 `Wesslin Omar Ramirez Castillo was frisked and charged with knife possession after the police stopped him for wearing a ski mask.`\
 https://nytimes.com/2024/08/27/nyregion/face-mask-ban-charges-nyc.html
-
-**Dan Evans beats Karen Khachanov in longest match in U.S. Open history**\
-`Dan Evans beat Karen Khachanov on a roaring Court 6 to win the longest match in U.`\
-https://nytimes.com/athletic/5727605/2024/08/27/us-open-longest-match-tennis-evans-khachanov/
-
-**The Big Border Change Harris Isn’t Talking About**\
-`A Biden administration border policy that has had a dramatic impact isn’t getting campaign play.`\
-https://nytimes.com/2024/08/27/us/politics/harris-border-immigration-democrats.html
-
-**Bills 2024 initial 53-man roster, plus analysis**\
-`The initial 53-man roster is set but there will be more moves in the coming days.`\
-https://nytimes.com/athletic/5727393/2024/08/27/buffalo-bills-2024-initial-53-man-roster-plus-analysis/
 
