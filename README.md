@@ -30,7 +30,7 @@ https://nytimes.com/athletic/5727362/2024/08/27/browns-53-man-roster-cutdown-day
 `Michael Sparks, 47, was the first rioter to breach the Capitol and among the first to be confronted by the U.S. Capitol Police Officer Eugene Goodman.`\
 https://nytimes.com/2024/08/27/us/politics/jan-6-riot-michael-sparks-sentence.html
 
-**Israeli Forces Rescue Hostage in Gaza as Strikes Kill At Least 20 Palestinians**\
+**Israeli Forces Rescue Hostage in Gaza as Strikes Kill at Least 20 Palestinians**\
 `A Bedouin Arab citizen of Israel was rescued after Israeli commandos found him alone in an underground warren, apparently abandoned by his captors.`\
 https://nytimes.com/2024/08/27/world/middleeast/israel-hostage-rescue-gaza.html
 
