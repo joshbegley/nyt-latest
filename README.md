@@ -1,3 +1,7 @@
+**Chelsea agree Harvey Vale deal with Al Ettifaq**\
+`Chelsea have agreed an undisclosed fee with Saudi Pro League club Al Ettifaq for the sale of academy graduate Harvey Vale.`\
+https://nytimes.com/athletic/5726031/2024/08/27/chelsea-harvey-vale-al-ettifaq-saudi-transfer/
+
 **Ipswich in advanced talks to sign Luton's Ogbene**\
 `Ipswich Town are in advanced talks to sign Chiedozie Ogbene from Luton Town.`\
 https://nytimes.com/athletic/5725727/2024/08/27/chiedozie-ogbene-ipswich-transfer/
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/08/27/us/harris-trump-election/heres-the-latest-on
 **Election Live Updates: Vance Heads to Michigan as Campaigns Focus on Battlegrounds**\
 `Donald Trump’s running mate, Senator JD Vance, will visit the key swing state before a fund-raiser in Nashville. Senator Elizabeth Warren, an important surrogate for Kamala Harris on the economy, will stump in Wisconsin.`\
 https://nytimes.com/live/2024/08/27/us/harris-trump-election
-
-**Dread Lingers in Mideast After Israel-Hezbollah Clashes**\
-`For people across the region, any relief that the adversaries had stepped back from a wider war mixed with fears that the conflicts in Gaza and Lebanon remained unresolved.`\
-https://nytimes.com/2024/08/27/world/middleeast/israel-hezbollah-gaza-conflict.html
 
