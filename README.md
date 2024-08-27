@@ -1,3 +1,11 @@
+**Russia Bombards Ukrainian Cities for a Second Day**\
+`An early morning barrage hit several locations across Ukraine, including a hotel in Kryvyi Rih where at least four people were killed and several others wounded, Ukrainian officials said.`\
+https://nytimes.com/video/world/europe/100000009659644/ukraine-russia-missile-drone-attacks.html
+
+**How RFK Jr. Went From Environmental Champion to Trump Backer**\
+`Kennedy’s former co-workers in the environmental movement aren’t surprised that he endorsed Trump, who has called climate change a “hoax.”`\
+https://nytimes.com/2024/08/27/climate/rfk-jr-trump-climate-change.html
+
 **Why do Liverpool want Chiesa - and would he be a good fit?**\
 `What would Italian winger offer at Anfield and what could it mean for Mohamed Salah?`\
 https://nytimes.com/athletic/5726506/2024/08/27/liverpool-federico-chiesa-transfer-tactics/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5726501/2024/08/27/lexi-thompson-captains-picks-us-
 **Don’t Call the Telegram Chief Executive’s Arrest a Free Speech Infringement — Yet**\
 `Some early details suggest the issue here isn’t one of free speech, but of criminal activity.`\
 https://nytimes.com/2024/08/20/opinion/pavel-durov-telegram-arrest.html
-
-**Kennedy Says Trump Will ‘Make Americans Healthy.’ His Record Suggests Otherwise.**\
-`As president, Donald J. Trump slashed protections for clean air and water and weakened school nutrition standards.`\
-https://nytimes.com/2024/08/27/climate/rfk-jr-trump-chemicals-pesticides.html
-
-**Feyenoord's Bijlow says Southampton move broke down due to medical issue**\
-`Feyenoord goalkeeper Justin Bijlow says an issue in a medical examination saw his move to Southampton break down.`\
-https://nytimes.com/athletic/5726529/2024/08/27/justin-bijlow-southampton-medical-feyenoord/
 
