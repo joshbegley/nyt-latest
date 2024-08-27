@@ -1,3 +1,11 @@
+**Steelers 53-man roster: Beanie Bishop wins a job, and more moves might be coming**\
+`The Steelers kept only five wideouts, pointing to the possibility of a waiver wire addition. They could also use help at OL, DL and DB.`\
+https://nytimes.com/athletic/5727348/2024/08/27/steelers-roster-cuts-53-cutdown/
+
+**Sean Payton continues massive roster overhaul as Broncos set 53-man roster**\
+`Only 14 of the 53 players who were on Denver's roster in Week 1 in 2022 remained as the Broncos finalized this season's roster Tuesday.`\
+https://nytimes.com/athletic/5726938/2024/08/27/sean-payton-broncos-53-man-roster/
+
 **Gonzaga's Steele Venters sustains season-ending Achilles injury**\
 `After rehabbing all year, the 6-foot-7 wing was expected to start and play an integral role for Gonzaga this season.`\
 https://nytimes.com/athletic/5727324/2024/08/27/gonzaga-steele-venters-achilles-injury/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/27/us/grand-canyon-colorado-river-death.html
 **Who is Franco Colapinto and what can Williams expect from Logan Sargeant's replacement?**\
 `Williams will give the young Argentine a long look for nine races before Carlos Sainz joins in 2025. `\
 https://nytimes.com/athletic/5726649/2024/08/27/franco-colapinto-f1-williams-logan-sargeant/
-
-**NFL owners allow private equity firms to buy limited stakes in teams**\
-`NFL ownership rules previously only allowed for a limited number of approved partners, but not investment firms.`\
-https://nytimes.com/athletic/5727359/2024/08/27/nfl-owners-private-equity-firms/
-
-**Bears include Velus Jones Jr., DeAndre Carter on initial 53-man roster: 5 takeaways**\
-`The Bears likely will be in the market for a long snapper with Patrick Scales headed to IR and Cameron Lyons waived on Tuesday.`\
-https://nytimes.com/athletic/5727281/2024/08/27/bears-roster-velus-jones-deandre-carter/
 
