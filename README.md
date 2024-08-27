@@ -1,3 +1,11 @@
+**For Its Famous Clientele, Peress was More Than a Lingerie Shop**\
+`For more than 90 years the Upper East Side shop served socially ambitious women, including Brooke Astor, Gloria Vanderbilt, Diana Vreeland, Barbara Walters, Madonna and many more.`\
+https://nytimes.com/2024/08/27/style/peress-lingerie-closing.html
+
+**Connections Bot F.A.Q.**\
+`Introducing a daily, personalized analysis tool for Connections fans.`\
+https://nytimes.com/2024/08/27/upshot/connections-bot-faq.html
+
 **USMNT midfielder Tanner Tessmann joins Lyon from Venezia**\
 `Lyon have completed the signing of USMNT midfielder Tanner Tessmann from Venezia.`\
 https://nytimes.com/athletic/5726644/2024/08/27/tanner-tessmann-lyon-usmnt-transfer/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/27/opinion/letters/trump-vs-harris-dowd.html
 **Logan Sargeant out at Williams Racing**\
 `Sargeant joined the grid last season and only scored one point during his time in F1.`\
 https://nytimes.com/athletic/5726606/2024/08/27/logan-sargeant-franco-colapinto-williams-racing-formula-one/
-
-**Harris and Trump Embrace Tariffs, Though Their Approaches Differ**\
-`Both Democrats and Republicans are expressing support for tariffs, but their proposals are dramatically different in scale.`\
-https://nytimes.com/2024/08/27/us/politics/trump-harris-tariffs.html
-
-**Mexico Pauses Diplomatic Ties With U.S. Amid Clash Over Judicial Overhaul**\
-`President López Obrador’s proposed changes to the judiciary are sparking a diplomatic fight with the United States in the last weeks of his presidency.`\
-https://nytimes.com/2024/08/27/world/americas/mexico-us-pause-relations.html
 
