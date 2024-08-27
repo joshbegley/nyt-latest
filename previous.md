@@ -1,3 +1,7 @@
+**The Transfer DealSheet: Sancho latest, Chelsea striker hunt, Toney, Guehi and more**\
+`This is your weekly round-up of all the latest news from across the world of transfers`\
+https://nytimes.com/athletic/5723572/2024/08/27/manchester-united-arsenal-transfer-news-liverpool-real-madrid-barcelona/
+
 **Word of the Day: hatchling**\
 `This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/27/learning/word-of-the-day-hatchling.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5717228/2024/08/27/tottenham-ange-postecoglou-perfo
 **At U.S. Open, Americans take care of business as New York dares to expect**\
 `The American players largely took care of business in New York, where the pressure of a home Grand Slam can be inspiration or doom.`\
 https://nytimes.com/athletic/5725462/2024/08/27/us-open-american-tennis-shelton-gauff-tiafoe-fritz/
-
-**Rutter to Brighton - inside the deal: How last-minute bid sealed club-record signing**\
-`Brighton triggered Rutter's £40m release clause at Leeds on the night it was due to expire. This is why they did it...`\
-https://nytimes.com/athletic/5711318/2024/08/27/georginio-rutter-brighton-transfers/
 

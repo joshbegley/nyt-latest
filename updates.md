@@ -1,3 +1,7 @@
+**The Transfer DealSheet: Sancho latest, Chelsea striker hunt, Toney, Guehi and more**\
+`This is your weekly round-up of all the latest news from across the world of transfers`\
+https://nytimes.com/athletic/5723572/2024/08/27/manchester-united-arsenal-transfer-news-liverpool-real-madrid-barcelona/
+
 **Word of the Day: hatchling**\
 `This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/27/learning/word-of-the-day-hatchling.html
