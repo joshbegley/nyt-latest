@@ -1,3 +1,7 @@
+**Oasis Announces Reunion Tour After 15 Years of Brotherly War**\
+`Liam and Noel Gallagher’s 1990s Britpop band will play dates in Britain and Ireland in 2025.`\
+https://nytimes.com/2024/08/27/arts/music/oasis-reunion-tour.html
+
 **Nigeria confirm Bruno Labbadia as new head coach**\
 `Nigeria have appointed Bruno Labbadia as their new head coach.`\
 https://nytimes.com/athletic/5725683/2024/08/27/bruno-labbadia-nigeria-head-coach/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5723572/2024/08/27/manchester-united-arsenal-transf
 **Word of the Day: hatchling**\
 `This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/27/learning/word-of-the-day-hatchling.html
-
-**Corrections: Aug. 27, 2024**\
-`Corrections that appeared in print on Tuesday, Aug. 27, 2024.`\
-https://nytimes.com/2024/08/27/pageoneplus/corrections-aug-27-2024.html
 
