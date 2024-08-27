@@ -1,3 +1,7 @@
+**Bryce Harper likes his swings — except the one that won a game — and the Phillies will take it**\
+`"It's good for us. Right? He's a big cog in the lineup," Kyle Schwarber said of Harper.`\
+https://nytimes.com/athletic/5725570/2024/08/26/phillies-bryce-harper-walk-off-astros-progress/
+
 **Padres agree to minor-league deal with Elias Díaz**\
 `The Rockies released the 2023 All-Star Game MVP on Aug. 16.`\
 https://nytimes.com/athletic/5725488/2024/08/26/padres-elias-diaz-minor-league-deal/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/26/us/undocumented-spouses-biden-administration.html
 **Former Aides to Bush, Romney and McCain Back Harris Over Trump**\
 `The former Republican staffers’ support of the Democratic ticket reflects how former President Donald J. Trump has transformed the Republican Party.`\
 https://nytimes.com/2024/08/26/us/politics/harris-trump-bush-romney-mccain.html
-
-**Democrats Look to End the Electability Question**\
-`The party is battling a squishy, often self-reinforcing concept about the perceived ability to win.`\
-https://nytimes.com/2024/08/26/us/politics/democrats-harris-trump.html
 
