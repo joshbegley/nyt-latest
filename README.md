@@ -1,3 +1,15 @@
+**Fantasy Premier League: Gameweek 2 Review**\
+`From frustrations over Isak and Watkins to the budget defenders emerging as viable options - these at the talking points from Gameweek 2`\
+https://nytimes.com/athletic/5722881/2024/08/27/fantasy-premier-league-rogers-nkunku-haaland/
+
+**Is Gravenberch ending Liverpool's No 6 debate?**\
+`Midfielder has reinvented himself under Arne Slot to suggest he could be a solution to a long-running problem`\
+https://nytimes.com/athletic/5723606/2024/08/27/ryan-gravenberch-liverpool-no6/
+
+**Performances will always be the priority for Postecoglou**\
+`Postecoglou isn't really too bothered about Spurs' ruthlessness - as long as performance levels match what they produced against Everton`\
+https://nytimes.com/athletic/5717228/2024/08/27/tottenham-ange-postecoglou-performances/
+
 **At the U.S. Open, the Americans take care of business, as New York dares to expect**\
 `The American players largely took care of business in New York, where the pressure of a home Grand Slam can be inspiration or doom.`\
 https://nytimes.com/athletic/5725462/2024/08/27/us-open-american-tennis-shelton-gauff-tiafoe-fritz/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5724065/2024/08/27/everton-premier-league-misery/
 **Business of Football: FIFA, Google and the Streisand effect - and searching for Man City legal fees**\
 `Sir Keir Starmer's Labour back football governance bill, Mark Goldbridge turning a tidy profit and brighter days lie ahead for Reading`\
 https://nytimes.com/athletic/5722320/2024/08/27/fifa-google-city-epl-efl-business/
-
-**How do people working in football watch football?**\
-`No one falls in love with football because of expected-goals models, but learning different aspects of the game can add to the enjoyment`\
-https://nytimes.com/athletic/5698185/2024/08/27/how-do-people-working-in-football-watch-football/
-
-**Preseason fantasy football risers, fallers: Cooper Kupp, Mark Andrews and more**\
-`Dane Martinez identifies three players, like Cooper Kupp, seeing their stock rise this preseason, in addition to three players in decline.`\
-https://nytimes.com/athletic/5725355/2024/08/27/stock-up-stock-down-preseason-fantasy-football-2024/
-
-**What Newcastle can expect from Sandro Tonali 2.0: 'A quicker and better player'**\
-`After a 10-month ban for breaking rules on gambling, the second act of Tonali's footballing life is about to begin...`\
-https://nytimes.com/athletic/5723810/2024/08/27/sandro-tonali-return-for-newcastle/
 
