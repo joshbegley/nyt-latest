@@ -1,3 +1,15 @@
+**Manchester United are finally learning the art of the summer sale**\
+`Forget signings - working out when best to sell players is just as vital, and United finally seem to be getting the hang of it`\
+https://nytimes.com/athletic/4757969/2024/08/27/manchester-united-transfers-sales/
+
+**Far-Right Israeli Minister Draws Anger for Comments on Disputed Holy Site**\
+`In the latest in a series of provocations, Itamar Ben-Gvir agreed that a new synagogue should be built at the site, which Jews call the Temple Mount and Muslims know as the Aqsa Mosque.`\
+https://nytimes.com/2024/08/27/world/middleeast/israel-ben-gvir-al-aqsa.html
+
+**‘Only Murders in the Building’ Goes to Hollywood**\
+`The murder mystery comedy returns with more celebrities than ever but in a winking, self-aware way.`\
+https://nytimes.com/2024/08/27/arts/television/only-murders-in-the-building-season-4.html
+
 **With Dams Removed, Salmon Will Have the Run of a Western River**\
 `The nation’s largest dam removal project is nearly complete after a lengthy campaign by Native tribes to restore the river at the California-Oregon border.`\
 https://nytimes.com/2024/08/27/us/klamath-dam-removal-salmon.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5716200/2024/08/27/joao-cancelo-al-hilal-saudi-tran
 **Vikings' T.J. Hockenson will remain on PUP list**\
 `Hockenson tore his ACL during the Vikings' Week 16 loss to the Detroit Lions last season.`\
 https://nytimes.com/athletic/5726110/2024/08/27/tj-hockenson-vikings-pup/
-
-**Who Is Farhan al-Qadi, the Rescued Hostage?**\
-`Mr. al-Qadi, a member of Israel’s Bedouin Arab minority, was working as a security guard at Kibbutz Magen, near the Gaza border, when he was abducted.`\
-https://nytimes.com/2024/08/27/world/middleeast/who-is-qaid-farhan-al-qadi-israel-hostage.html
-
-**Goalkeeper Szczesny retires from football**\
-`Former Juventus and Arsenal goalkeeper Wojciech Szczesny has announced his retirement from professional football at the age of 34.`\
-https://nytimes.com/athletic/5555518/2024/08/27/wojciech-szczesny-retires-juventus/
-
-**49ers to add $200M in Levi's Stadium upgrades**\
-`The 49ers will offer enhanced Wi-Fi technology this season and add 4K video boards before the 2025 season.`\
-https://nytimes.com/athletic/5719760/2024/08/27/levis-stadium-upgrades-49ers-super-bowl-world-cup/
 
