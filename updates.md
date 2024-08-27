@@ -1,3 +1,11 @@
+**Trump Suggests Debate Rules Are Set. Harris’s Team Says Otherwise.**\
+`The two have been tussling over whether microphones will be muted when a candidate isn’t speaking during the debate, which is scheduled for Sept. 10.`\
+https://nytimes.com/2024/08/27/us/politics/trump-abc-debate-rules.html
+
+**‘No Barrier’ to Nuclear Talks With U.S., Iran’s Supreme Leader Says**\
+`It was unclear if Ayatollah Ali Khamenei’s comments signaled any shift in Iran’s stance, but the country’s new president has called for an accord that would relieve Western sanctions against it.`\
+https://nytimes.com/2024/08/27/world/middleeast/iran-nuclear-talks-khamenei.html
+
 **Packers RB AJ Dillon lands on season-ending IR with stinger**\
 `Dillon missed three games late last season with a stinger and will now miss his fifth season in the league with another.`\
 https://nytimes.com/athletic/5727244/2024/08/27/packers-aj-dillon-injured-reserve/
