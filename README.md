@@ -1,3 +1,7 @@
+**Troubled Hedge Fund Two Sigma Replaces Feuding Founders**\
+`The multibillion-dollar trading firm said that its billionaire co-chief executives, John Overdeck and David Siegel, would step down.`\
+https://nytimes.com/2024/08/28/business/two-sigma-founders-replaced.html
+
 **Italians Fight for the Right to Feast on the Beach**\
 `For those who feel priced out of expensive, privatized seaside clubs in Italy, elaborate lunch spreads feel like the last bastion of good spirits.`\
 https://nytimes.com/2024/08/28/dining/italians-beach-picnic-lunch.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/28/dining/summer-menu-tomatoes-plums.html
 **The Windup: You'll never guess who's back (again)**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5729139/2024/08/28/rich-hill-red-sox-the-windup/
-
-**Meet the Trans Actress Who Could Make Oscar History**\
-`Karla Sofía Gascón plays a drug kingpin who undergoes gender-affirming surgery in a performance that wowed Cannes. Is the academy next?`\
-https://nytimes.com/2024/08/28/movies/karla-sofia-gascon-emilia-perez-oscar.html
 
