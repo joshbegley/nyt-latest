@@ -1,3 +1,19 @@
+**Scientists Discover Similar Dinosaur Footprints on Opposite Sides of the Atlantic**\
+`More than 260 similar footprints found in Brazil and Cameroon help us understand a region that broke apart millions of years ago.`\
+https://nytimes.com/2024/08/28/science/dinosaur-tracks-brazil-cameroon.html
+
+**Waterline Breaks Force Grand Canyon to Halt Hotel Stays on South Rim**\
+`The popular destination has put strict water restrictions into effect before one of summer’s busiest weekends.`\
+https://nytimes.com/2024/08/28/us/grand-canyon-hotels-water.html
+
+**Falcons trade QB Taylor Heinicke to Chargers**\
+`Heinicke made the Falcons’ 53-man roster as a third quarterback, but his prospects of playing time in Atlanta were not great.`\
+https://nytimes.com/athletic/5730360/2024/08/28/taylor-heinicke-chargers-falcons-trade/
+
+**Clark breaks WNBA record for most 3-pointers by a rookie**\
+`In addition to 3-pointers, Clark also leads the league in total assists and turnovers.`\
+https://nytimes.com/athletic/5730347/2024/08/28/caitlin-clark-wnba-rookie-3-point-record/
+
 **Giants place Thairo Estrada, Taylor Rogers, Tyler Matzek on waivers: Source**\
 `Estrada was the team's Opening Day second baseman and has been a top defender the past two years but has struggled at the plate.`\
 https://nytimes.com/athletic/5730302/2024/08/28/sf-giants-thairo-estrada-taylor-rogers-tyler-matzek-waivers/
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/5729591/2024/08/28/broncos-roster-wide-receivers/
 **The Challenge of Interviewing Kamala Harris**\
 `‘She didn’t break eye contact. It was intense. You feel on trial.’`\
 https://nytimes.com/2024/08/28/us/politics/kamala-harris-interviews.html
-
-**Can Democrats Win Back Latino Voters by Treating Them Like Everyone Else?**\
-`Democrats seem to be recognizing that Latinos have the same hodgepodge mix of priorities as other voters. Will that help them make up ground lost to Donald J. Trump?`\
-https://nytimes.com/2024/08/28/us/politics/democrats-latino-election-campaign-2024.html
-
-**Tulsi Gabbard, Robert Kennedy and Trump’s ‘Game of Thrones’**\
-`Sycophants still line up to play his game.`\
-https://nytimes.com/2024/08/28/opinion/trump-kennedy-gabbard.html
-
-**Is Europe a Model for America? Or a Warning?**\
-`The continent softens the edges of capitalism and achieves impressive well-being, but it overregulates and is struggling to keep up.`\
-https://nytimes.com/2024/08/28/opinion/europe-america-future.html
-
-**Clinging to playoff hopes, Cubs pull off dramatic comeback to sweep Pirates**\
-`Christian Bethancourt had a seven-RBIs day, helping the Cubs keep momentum as they try to break back into the wild-card race.`\
-https://nytimes.com/athletic/5730107/2024/08/28/cubs-sweep-pirates-christian-bethancourt/
 
