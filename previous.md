@@ -1,3 +1,11 @@
+**What Is the West Bank and Who Controls It?**\
+`Renewed violence has cast the a spotlight on the territory, where more than 600 Palestinians have been killed in clashes with the Israeli military since Oct. 7.`\
+https://nytimes.com/2024/08/28/world/middleeast/west-bank-what-where-who.html
+
+**Trump Reposts Crude Sexual Remark About Harris on Truth Social**\
+`Though the former president has a history of making crass insults about opponents, the reposts signal his willingness to continue to shatter longstanding political norms.`\
+https://nytimes.com/2024/08/28/us/politics/trump-truth-social-posts.html
+
 **Thursday Briefing: Israel Launches Major West Bank Raids**\
 `Plus, charges for Telegram’s founder.`\
 https://nytimes.com/2024/08/28/briefing/israel-west-bank-raids-telegram-founder-charges-harris-waltz-congress.html
@@ -22,15 +30,7 @@ https://nytimes.com/interactive/2024/08/28/opinion/columnists/28collins-your-sum
 `Bishop Reginald T. Jackson, a leader of the A.M.E. Church, turned Georgia into a political machine for Democrats by mobilizing voters of faith. Now, he is leaving the state just months before the November election.`\
 https://nytimes.com/2024/08/28/us/politics/georgia-faith-voters-bishop-jackson.html
 
-**A Parisian Finds Patriotism in Designing Paralympics Costumes**\
+**A Parisian Found Patriotism as He Designed Paralympics Costumes**\
 `Louis-Gabriel Nouchi was given an enormous task: create 700 distinctive garments for people with disabilities for the event’s opening ceremony.`\
 https://nytimes.com/2024/08/28/style/paralympics-opening-ceremony-designer.html
-
-**At Costco, Shopping for Clues About Consumers**\
-`The reporter Ben Ryder Howe traveled far and wide to better understand Americans’ love of the membership-only retail store.`\
-https://nytimes.com/2024/08/28/insider/costco-membership.html
-
-**YES, MSG Networks to launch app showing local NY games**\
-`The Mets and SNY are not involved, as they do not have a direct-to-consumer product.`\
-https://nytimes.com/athletic/5727667/2024/08/28/yes-msg-network-gotham-sports-app-launch/
 
