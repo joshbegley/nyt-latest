@@ -1,3 +1,7 @@
+**Wide receiver position created Broncos' toughest choices. Did they get it right?**\
+`Cutting Tim Patrick was an "extremely difficult" choice, but Broncos believe they have built a well-rounded room of targets for Bo Nix.`\
+https://nytimes.com/athletic/5729591/2024/08/28/broncos-roster-wide-receivers/
+
 **The Challenge of Interviewing Kamala Harris**\
 `‘She didn’t break eye contact. It was intense. You feel on trial.’`\
 https://nytimes.com/2024/08/28/us/politics/kamala-harris-interviews.html
