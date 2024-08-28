@@ -1,3 +1,15 @@
+**How Merino's arrival at Arsenal will impact their midfield**\
+`With Arteta hellbent on dominating or ‘suffocating’ opposition teams, Merino could see Arsenal end up defending even higher up the pitch`\
+https://nytimes.com/athletic/5725878/2024/08/28/mikel-merino-arsenal-midfield-analysis/
+
+**Everton boost morale thanks to impressive Ndiaye, hard-working Beto and new boys**\
+`Sean Dyche gave the fans what they had been asking for with starts for Ndiaye, Lindstrom and O'Brien — while Beto caught the eye, too`\
+https://nytimes.com/athletic/5728247/2024/08/28/everton-ndiaye-obrien-lindstrom-beto/
+
+**Lowetide: What to expect from Oilers rookies in 2024-25**\
+`The Oilers losing two young players to the Blues via offer sheet has opened up some opportunity.`\
+https://nytimes.com/athletic/5725601/2024/08/28/edmonton-oilers-rookies-2024-25/
+
 **The Rise of Fare Evasion**\
 `We explore why people are ignoring public transit’s most basic rule.`\
 https://nytimes.com/2024/08/28/briefing/fare-evasion-new-york-bus-subway.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5726737/2024/08/28/fantasy-football-faab-guide/
 **Drew Brees: Arch Manning, young QBs need 50 'high-quality starts' to be ready for NFL stage**\
 `Should Manning stay and start multiple seasons at Texas? Is NIL ruining college football? Brees weighed in on multiple topics.`\
 https://nytimes.com/athletic/5723924/2024/08/28/drew-brees-interview-nil-arch-manning/
-
-**Alabama Playoff Prospectus: Can Tide keep the Nick Saban standard alive under Kalen DeBoer?**\
-`Alabama has a new-look coaching staff, but there's still a lot of talent on the roster and expectations for a 12-team Playoff berth.`\
-https://nytimes.com/athletic/5720541/2024/08/28/alabama-college-football-playoff-preview-predictions/
-
-**Ranking all 28 Angels who played third since Anthony Rendon signed his $245 million deal**\
-`Since Rendon signed his big contract, a staggering 28 other players have manned third base for the Angels. We rank them — every single one.`\
-https://nytimes.com/athletic/5722974/2024/08/28/angels-anthony-rendon-third-base-ranking/
-
-**'Just going to be me': Brandin Podziemski opens up on trade rumors, pressure and more**\
-`Podziemski, 21, enters his second season in Golden State likely with a starting spot following Klay Thompson’s departure.`\
-https://nytimes.com/athletic/5705669/2024/08/28/brandin-podziemski-warriors-lauri-markkanen/
 
