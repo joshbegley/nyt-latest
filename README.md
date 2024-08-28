@@ -1,7 +1,3 @@
-**Twins notes: Royce Lewis works out at second, Joe Ryan's regular season officially ends**\
-`There's not a high chance Lewis will play second in games, but Rocco Baldelli thinks working there will improve Lewis' overall defense.`\
-https://nytimes.com/athletic/5727836/2024/08/27/twins-royce-lewis-second-base-work/
-
 **Rams initial 53-man roster: One takeaway for every player who made the cut**\
 `Rams coach Sean McVay addressed the team trading LB Ernest Jones on Tuesday. "He was really impressive for us in what he did," McVay said.`\
 https://nytimes.com/athletic/5727105/2024/08/27/la-rams-final-53-player-roster/
@@ -33,4 +29,8 @@ https://nytimes.com/athletic/5727526/2024/08/27/chargers-initial-53-roster-easto
 **SEC appears headed to implementing availability report**\
 `An SEC availability report would apply to only conference games, and there are none this week.`\
 https://nytimes.com/athletic/5727672/2024/08/27/sec-availability-report-kirby-smart/
+
+**Browns keep 4 QBs on initial 53-man roster as cutdown day brings a few mild surprises**\
+`More moves are likely coming over the next two days for Cleveland, with waivers being processed around the league Wednesday. `\
+https://nytimes.com/athletic/5727362/2024/08/27/browns-53-man-roster-cutdown-day/
 
