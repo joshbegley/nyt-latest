@@ -1,3 +1,7 @@
+**Paris Paralympics 2024: A complete guide to what's on and the stars to watch out for**\
+`Everything you need to know to get the most from the Paralympics - including when the big names are competing`\
+https://nytimes.com/athletic/5725891/2024/08/28/paralympics-paris-2024-complete-guide-athletes/
+
 **‘We are in the first stages of this operation,’ an Israeli military spokesman says.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/08/28/world/israel-hamas-gaza-war/we-are-in-the-first-stages-of-this-operation-an-israeli-military-spokesman-says
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5705669/2024/08/28/brandin-podziemski-warriors-laur
 **Bears' Cole Kmet comes from an athletic family that may have saved the best for last**\
 `Cooper Kmet, in his senior year at St. Viator High School, is a rising prospect who is just starting to generate college interest.`\
 https://nytimes.com/athletic/5726805/2024/08/28/bears-cole-kmet-family/
-
-**'We feel like we have something to prove': Is unranked Wisconsin embracing underdog role?**\
-`This season represents an opportunity to put the program on the right path and establish an upward trajectory for Luke Fickell.`\
-https://nytimes.com/athletic/5727132/2024/08/28/wisconsin-football-unranked-underdog/
 

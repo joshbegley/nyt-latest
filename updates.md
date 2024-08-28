@@ -1,3 +1,7 @@
+**Paris Paralympics 2024: A complete guide to what's on and the stars to watch out for**\
+`Everything you need to know to get the most from the Paralympics - including when the big names are competing`\
+https://nytimes.com/athletic/5725891/2024/08/28/paralympics-paris-2024-complete-guide-athletes/
+
 **‘We are in the first stages of this operation,’ an Israeli military spokesman says.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/08/28/world/israel-hamas-gaza-war/we-are-in-the-first-stages-of-this-operation-an-israeli-military-spokesman-says
