@@ -1,3 +1,15 @@
+**Can Democrats Win Back Latino Voters by Treating Them Like Everyone Else?**\
+`Democrats seem to be recognizing that Latinos have the same hodgepodge mix of priorities as other voters. Will that help them make up ground lost to Donald J. Trump?`\
+https://nytimes.com/2024/08/28/us/politics/democrats-latino-election-campaign-2024.html
+
+**Tulsi Gabbard, Robert Kennedy and Trump’s ‘Game of Thrones’**\
+`Sycophants still line up to play his game.`\
+https://nytimes.com/2024/08/28/opinion/trump-kennedy-gabbard.html
+
+**Is Europe a Model for America? Or a Warning?**\
+`The continent softens the edges of capitalism and achieves impressive well-being, but it overregulates and is struggling to keep up.`\
+https://nytimes.com/2024/08/28/opinion/europe-america-future.html
+
 **Clinging to playoff hopes, Cubs pull off dramatic comeback to sweep Pirates**\
 `Christian Bethancourt had a seven-RBIs day, helping the Cubs keep momentum as they try to break back into the wild-card race.`\
 https://nytimes.com/athletic/5730107/2024/08/28/cubs-sweep-pirates-christian-bethancourt/
@@ -21,16 +33,4 @@ https://nytimes.com/2024/08/28/business/media/ofra-bikel-dead.html
 **Why Packers are rolling the dice at kicker and backup QB to start the season**\
 `Brayden Narveson and Malik Willis will be the Packers' kicker and backup QB, respectively, after both spending camp with the Titans.`\
 https://nytimes.com/athletic/5729909/2024/08/28/packers-kicker-backup-qb-gutekunst-lafleur/
-
-**49ers WR Aiyuk not at practice Wednesday: Latest on his hold-in**\
-`Aiyuk's hold-in is continuing even past the 53-man cutdown. `\
-https://nytimes.com/athletic/5729949/2024/08/28/brandon-aiyuk-49ers-practice-hold-in/
-
-**Salesman for Moving Company That Held Goods Hostage Gets 2-Year Sentence**\
-`Andre Prince, who was convicted of conspiracy to commit wire fraud, used a “stage name” as he worked for companies that also frequently swapped identities.`\
-https://nytimes.com/2024/08/28/nyregion/moving-companies-fraud-scheme-sentence.html
-
-**Buckley: Why it's so important for Jerod Mayo to take ownership of Patriots' QB decision**\
-`Who will be the Patriots' starting quarterback in Week 1? We still don't know, but Mayo made clear who will be doing the deciding.`\
-https://nytimes.com/athletic/5730076/2024/08/28/jerod-mayo-patriots-qb-drake-maye-jacoby-brissett/
 

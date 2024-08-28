@@ -1,3 +1,15 @@
+**Clinging to playoff hopes, Cubs pull off dramatic comeback to sweep Pirates**\
+`Christian Bethancourt had a seven-RBIs day, helping the Cubs keep momentum as they try to break back into the wild-card race.`\
+https://nytimes.com/athletic/5730107/2024/08/28/cubs-sweep-pirates-christian-bethancourt/
+
+**California Legislature Approves Bill Proposing Sweeping A.I. Restrictions**\
+`Gov. Gavin Newsom must now decide whether to sign into law the fiercely debated legislation.`\
+https://nytimes.com/2024/08/28/technology/california-ai-safety-bill.html
+
+**Foreign Citizens Charged With Carrying Out Swatting Attacks on U.S. Officials**\
+`The two men also made false reports about bomb threats at the Capitol and at religious buildings, with prosecutors documenting more than 100 hoax calls.`\
+https://nytimes.com/2024/08/28/us/foreign-citizens-swatting.html
+
 **Trump Sees a World on Fire, and Says He Knows Who’s to Blame**\
 `Former President Donald J. Trump blames President Biden for crises around the globe. But the reality is that presidents inherit a world already hurtling through history.`\
 https://nytimes.com/2024/08/28/us/politics/trump-biden-iran-gaza-afghanistan-ukraine.html

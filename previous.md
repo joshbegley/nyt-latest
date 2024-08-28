@@ -1,3 +1,15 @@
+**Clinging to playoff hopes, Cubs pull off dramatic comeback to sweep Pirates**\
+`Christian Bethancourt had a seven-RBIs day, helping the Cubs keep momentum as they try to break back into the wild-card race.`\
+https://nytimes.com/athletic/5730107/2024/08/28/cubs-sweep-pirates-christian-bethancourt/
+
+**California Legislature Approves Bill Proposing Sweeping A.I. Restrictions**\
+`Gov. Gavin Newsom must now decide whether to sign into law the fiercely debated legislation.`\
+https://nytimes.com/2024/08/28/technology/california-ai-safety-bill.html
+
+**Foreign Citizens Charged With Carrying Out Swatting Attacks on U.S. Officials**\
+`The two men also made false reports about bomb threats at the Capitol and at religious buildings, with prosecutors documenting more than 100 hoax calls.`\
+https://nytimes.com/2024/08/28/us/foreign-citizens-swatting.html
+
 **Trump Sees a World on Fire, and Says He Knows Who’s to Blame**\
 `Former President Donald J. Trump blames President Biden for crises around the globe. But the reality is that presidents inherit a world already hurtling through history.`\
 https://nytimes.com/2024/08/28/us/politics/trump-biden-iran-gaza-afghanistan-ukraine.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/08/28/nyregion/moving-companies-fraud-scheme-sentence.h
 **Buckley: Why it's so important for Jerod Mayo to take ownership of Patriots' QB decision**\
 `Who will be the Patriots' starting quarterback in Week 1? We still don't know, but Mayo made clear who will be doing the deciding.`\
 https://nytimes.com/athletic/5730076/2024/08/28/jerod-mayo-patriots-qb-drake-maye-jacoby-brissett/
-
-**Red Bull Salzburg reach agreement with Liverpool to sign Bajcetic on loan**\
-`Red Bull Salzburg have reached an agreement with Liverpool to sign Stefan Bajcetic on loan, despite a late hijack attempt from Barcelona.`\
-https://nytimes.com/athletic/5730109/2024/08/28/liverpool-bajcetic-salzburg-loan-agree-transfer/
-
-**Former Officer Charged With Killing Woman Whose Death Was Ruled a Suicide**\
-`Sandra Birchmore was pregnant when she was found dead in Canton, Mass., in 2021, and she had told the officer that he was the father, federal prosecutors said.`\
-https://nytimes.com/2024/08/28/us/sandra-birchmore-stoughton-police-death.html
-
-**Fulham's Vinicius in talks to join Red Bull Bragantino**\
-`RB Bragantino are in talks with Fulham over the signing of Carlos Vinicius.`\
-https://nytimes.com/athletic/5729947/2024/08/28/fulhams-carlos-vinicius-in-talks-to-join-red-bull-bragantino/
 
