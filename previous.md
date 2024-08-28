@@ -1,3 +1,11 @@
+**5 More People Die From Listeria Linked to Boar’s Head Meats, C.D.C. Says**\
+`The nationwide outbreak that started in May has been connected to eight deaths. The C.D.C. is advising people not to eat any recalled products.`\
+https://nytimes.com/2024/08/28/us/listeria-outbreak-boars-head-meats.html
+
+**Would-Be Trump Assassin’s Interest in Violence Went Back to 2019**\
+`F.B.I. officials said the profile that has emerged of Thomas Crooks, based on an analysis of his electronics, resembles that of a mass shooter more than a politically motivated assassin.`\
+https://nytimes.com/2024/08/28/us/politics/thomas-crooks-trump-fbi.html
+
 **Russia Bars Numerous U.S. Journalists From the Country**\
 `The list of barred journalists includes the top editor of The Wall Street Journal. Dozens of other Americans are also forbidden to enter Russia, which said the move was in response to sanctions against it.`\
 https://nytimes.com/2024/08/28/business/media/russia-bars-american-journalists.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/28/us/politics/pelosi-trump-jan-6-video.html
 **Arsenal's Fabio Vieira rejoins Porto on season-long loan**\
 `Arsenal&#8217;s Fabio Vieira has rejoined former club Porto on a season-long loan deal.`\
 https://nytimes.com/athletic/5720682/2024/08/28/fabio-vieira-arsenal-loan-porto/
-
-**Corrections: Aug. 28, 2024**\
-`Corrections that appeared in print on Wednesday, Aug. 28, 2024.`\
-https://nytimes.com/2024/08/28/pageoneplus/corrections-aug-28-2024.html
-
-**Telegram Founder Charged With Wide Range of Crimes in France**\
-`Pavel Durov was arrested near Paris over the weekend as part of a broad investigation into criminal activity on the platform.`\
-https://nytimes.com/2024/08/28/business/telegram-ceo-pavel-durov-charged.html
 
