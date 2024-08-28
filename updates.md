@@ -1,3 +1,11 @@
+**Jack Smith’s New Case Against Trump Is Much Stronger Than His Old One**\
+`In this case, less is truly more.`\
+https://nytimes.com/live/2024/08/27/opinion/thepoint/jack-smith-trump-election
+
+**The Mosquito-Borne Virus Raising Alarms in the Northeast**\
+`Recent infections from the Eastern equine encephalitis virus are worrying health officials. Severe cases can be deadly or leave lasting injuries.`\
+https://nytimes.com/2024/08/28/health/eastern-equine-encephalitis-prevention.html
+
 **Nvidia Revenue Jumps 122% in Positive Sign for Tech’s A.I. Boom**\
 `Expectations for the chipmaker have been through the roof because of its dominance in a key component for artificial intelligence systems.`\
 https://nytimes.com/2024/08/28/technology/nvidia-earnings-ai-stocks.html
