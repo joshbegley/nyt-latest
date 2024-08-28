@@ -1,3 +1,7 @@
+**Rams initial 53-man roster: One takeaway for every player who made the cut**\
+`Rams coach Sean McVay addressed the team trading LB Ernest Jones on Tuesday. "He was really impressive for us in what he did," McVay said.`\
+https://nytimes.com/athletic/5727105/2024/08/27/la-rams-final-53-player-roster/
+
 **Lions' initial 53-man roster with analysis**\
 `The Lions are short of 53 players, which guarantees more moves in the near future.`\
 https://nytimes.com/athletic/5727246/2024/08/27/detroit-lions-initial-53-man-roster-analysis/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5727672/2024/08/27/sec-availability-report-kirby-sm
 **Browns keep 4 QBs on initial 53-man roster as cutdown day brings a few mild surprises**\
 `More moves are likely coming over the next two days for Cleveland, with waivers being processed around the league on Wednesday. `\
 https://nytimes.com/athletic/5727362/2024/08/27/browns-53-man-roster-cutdown-day/
-
-**First Jan. 6 Rioter to Enter Capitol Gets More Than 4 Years in Prison**\
-`Michael Sparks, 47, was the first rioter to breach the Capitol and among the first to be confronted by the U.S. Capitol Police Officer Eugene Goodman.`\
-https://nytimes.com/2024/08/27/us/politics/jan-6-riot-michael-sparks-sentence.html
 
