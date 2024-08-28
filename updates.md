@@ -1,3 +1,19 @@
+**Berkshire Hathaway Hits $1 Trillion in Market Value**\
+`Warren Buffett’s conglomerate joined a small club of companies that have crossed the mark.`\
+https://nytimes.com/2024/08/28/business/berkshire-hathaway-trillion-market-cap.html
+
+**Wolves close to signing midfielder Andre from Fluminese**\
+`Wolves are close to signing Fluminese&#8217;s Andre with the midfielder due to fly to England for a medical.`\
+https://nytimes.com/athletic/5729756/2024/08/28/wovles-andre-transfer-close/
+
+**US Open, ESPN reach new 12-year deal**\
+`The deal is worth $170 million per year and $2.04 billion in total, sources briefed on the deal said.`\
+https://nytimes.com/athletic/5729737/2024/08/28/us-open-espn-contract-broadcasting-channel/
+
+**Telegram Founder Charged With Wide Range of Crimes in France**\
+`Pavel Durov was arrested near Paris over the weekend as part of a broad investigation into criminal activity on the platform.`\
+https://nytimes.com/2024/08/28/business/telegram-ceo-pavel-durov-charged.html
+
 **House G.O.P. Releases Jan. 6 Videos of Pelosi, Seeking to Shift Blame From Trump**\
 `In recordings shot for a documentary, the House speaker at the time rages about the attack on the Capitol and says she takes responsibility for not pushing the police to prepare better for violence by Trump supporters.`\
 https://nytimes.com/2024/08/28/us/politics/pelosi-trump-jan-6-video.html
