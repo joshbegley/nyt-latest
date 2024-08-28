@@ -1,3 +1,11 @@
+**Nvidia Revenue Jumps 122% in Positive Sign for Tech’s A.I. Boom**\
+`Expectations for the chipmaker have been through the roof because of its dominance in a key component for artificial intelligence systems.`\
+https://nytimes.com/2024/08/28/technology/nvidia-earnings-ai-stocks.html
+
+**Texas Touted Removing 1 Million From Voter Rolls. Most Had Moved or Died.**\
+`Gov. Greg Abbott celebrated the purge, but the numbers were in line with routine culling from the past. Democrats said some removals sent a chilling message to Latino voters.`\
+https://nytimes.com/2024/08/28/us/texas-voter-rolls-abbott.html
+
 **Texas Touted Removing 1 Million From Voter Rolls. Most Had Moved or Died.**\
 `Gov. Greg Abbott celebrated a purge of voter rolls, but the numbers were in line with routine culling from the past. Democrats warned that some of the removals sent a chilling message to Latino voters.`\
 https://nytimes.com/2024/08/28/us/texas-voter-rolls-abbott.html
