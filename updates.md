@@ -1,3 +1,11 @@
+**Chase misses practice, Bengals coach calls it 'day-to-day situation'**\
+`"I think I probably put my foot in my mouth and this is a day-to-day situation," coach Taylor told reporters after Wednesday's practice.`\
+https://nytimes.com/athletic/5729919/2024/08/28/jamarr-chase-misses-practice-bengals-coach-calls-it-day-to-day-situation/
+
+**Google’s Antitrust Defeat Opens the Door to Lawsuit From Yelp**\
+`Yelp complained for more than a decade that Google tilted the search market in its favor. After its rival’s landmark legal loss, it finally decided to sue.`\
+https://nytimes.com/2024/08/28/technology/google-yelp-lawsuit.html
+
 **Jack Smith’s New Case Against Trump Is Much Stronger Than His Old One**\
 `In this case, less is truly more.`\
 https://nytimes.com/live/2024/08/27/opinion/thepoint/jack-smith-trump-election
