@@ -1,6 +1,6 @@
 **U.S. Open day 2: Record losing streak continues, Paolini and Andreescu's rivalry evolves**\
 `The second day in Flushing Meadows brought the unluckiest loser, the Grand Slam rivalry of 2024, and more turmoil for the Greek.`\
-https://nytimes.com/athletic/5726740/2024/08/28/u-s-open-recap-paolini-and-andreescu-extend-rivalry-as-tsitsipas-toils/
+https://nytimes.com/athletic/5726740/2024/08/28/us-open-recap-day-2-tsitsipas-paolini-andreescu/
 
 **Don’t look now, but the Detroit Tigers are back above .500**\
 `A look at the youthful vibes that have powered the Tigers to wins in 12 of their past 15 games. `\

@@ -1,3 +1,11 @@
+**U.S. Open day 2: Record losing streak continues, Paolini and Andreescu's rivalry evolves**\
+`The second day in Flushing Meadows brought the unluckiest loser, the Grand Slam rivalry of 2024, and more turmoil for the Greek.`\
+https://nytimes.com/athletic/5726740/2024/08/28/u-s-open-recap-paolini-and-andreescu-extend-rivalry-as-tsitsipas-toils/
+
+**Don’t look now, but the Detroit Tigers are back above .500**\
+`A look at the youthful vibes that have powered the Tigers to wins in 12 of their past 15 games. `\
+https://nytimes.com/athletic/5728158/2024/08/28/detroit-tigers-win-above-500/
+
 **Manny Machado is getting back to full strength. That bodes well for the Padres**\
 `Monday and Tuesday brought Machado's most promising two-game stretch of the season as San Diego kept winning.`\
 https://nytimes.com/athletic/5727889/2024/08/28/manny-machado-home-runs-padres/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5716629/2024/08/28/uefa-ucl-europa-draw-swiss/
 **What does your Premier League club need to do before the transfer deadline?**\
 `There are only three days left until the transfer deadline — what does your club need to do?`\
 https://nytimes.com/athletic/5726410/2024/08/28/premier-league-transfer-window-deadline/
-
-**Dynasty league deliberations: Final preseason thoughts, including risers, fallers and more**\
-`Jeff Haverlack wraps up the preseason with his dynasty league thoughts, including his top players on the rise — Jameson Williams among them.`\
-https://nytimes.com/athletic/5726586/2024/08/28/dynasty-league-deliberations-final-preseason-thoughts-including-risers-fallers-and-more/
-
-**Typhoon Shanshan Lashes Japan With Torrential Rain**\
-`Some flights and trains were canceled, and rescuers in the central region were searching for three people whose home was struck by a landslide.`\
-https://nytimes.com/2024/08/28/world/asia/typhoon-shanshan-japan.html
 
