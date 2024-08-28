@@ -1,3 +1,7 @@
+**Southampton agree £25m deal to sign Arsenal's Ramsdale on loan**\
+`Southampton have agreed a £25million deal to sign Arsenal goalkeeper Aaron Ramsdale.`\
+https://nytimes.com/athletic/5719499/2024/08/28/aaron-ramsdale-southampton-transfer-arsenal/
+
 **Supreme Court Blocks, for Now, Another Biden Student Debt Plan**\
 `The move followed a decision last year that the Biden administration had overstepped its authority by trying to forgive more than $400 billion in student loans.`\
 https://nytimes.com/2024/08/28/us/politics/supreme-court-biden-student-loans.html
