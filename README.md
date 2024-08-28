@@ -1,3 +1,15 @@
+**Should I Report My Friends’ Cocaine Dealer?**\
+`The magazine’s Ethicist columnist on the duty one has to mitigate drug-related harm.`\
+https://nytimes.com/2024/08/28/magazine/cocaine-dealer-friends-ethics.html
+
+**Even the Supreme Court Can’t Save Trump From Himself**\
+`Poor Trump. He probably thought he was in the clear.`\
+https://nytimes.com/live/2024/08/27/opinion/thepoint/jack-smith-trump
+
+**2025 NASCAR Cup Series schedule to shake up playoff tracks**\
+`NASCAR is changing up its playoff rotation among the notable changes to the 2025 Cup schedule, a copy of which was obtained by The Athletic.`\
+https://nytimes.com/athletic/5728556/2024/08/28/2025-nascar-cup-series-schedule-playoffs/
+
 **Serena Williams Reflects on Her Life and Legacy in a New Docuseries**\
 `“In the Arena: Serena Williams,” an eight-part documentary on ESPN+, revisits the highs and lows of the star’s career and considers her impact on tennis and beyond.`\
 https://nytimes.com/2024/08/28/arts/television/serena-williams-in-the-arena.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5725658/2024/08/28/dalvin-cook-cowboys-signing/
 **Westbrook to wear No. 4, clears air on number change**\
 `"I chose to mark this new change with a 'new' number," Russell Westbrook said about why he'll wear No. 4 with the Nuggets.`\
 https://nytimes.com/athletic/5728895/2024/08/28/russell-westbrook-number-change-nuggets/
-
-**How Wall Street Learned About Last Week’s Labor Data Before the Public**\
-`The Labor Department provided insight into a recent lapse in which revised payrolls data were given out à la carte before they were online.`\
-https://nytimes.com/2024/08/28/business/economy/wall-street-labor-data-leak.html
-
-**Fulham interested in Lyon's Nuamah as Cherki pursuit ends**\
-`Fulham are interested in a move for Lyon winger Ernest Nuamah, with the club no longer pursuing attacking midfielder Rayan Cherki.`\
-https://nytimes.com/athletic/5728960/2024/08/28/ernest-nuamah-rayan-cherki-fulham-transfer/
-
-**UEFA facing legal threat over new Champions League format**\
-`Chilean sports consultant Leandro Shara has threatened to sue European football&#8217;s governing body UEFA for the “unauthorised and unfair use” of the “league phase” format it is introducing for its three club competitions this season.`\
-https://nytimes.com/athletic/5728678/2024/08/28/uefa-champions-league-format-legal-threat/
 
