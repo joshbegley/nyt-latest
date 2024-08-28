@@ -1,3 +1,7 @@
+**Giants place Thairo Estrada, Tyler Matzek on waivers: Source**\
+`Estrada was the team's Opening Day second baseman and has been a top defender the past two years but has struggled at the plate.`\
+https://nytimes.com/athletic/5730302/2024/08/28/sf-giants-thairo-estrada-tyler-matzek-waivers/
+
 **Ice bags are the U.S. Open's hottest accessory. Cooling players down is the hottest topic**\
 `At least once a year, Flushing Meadows turns into a tumble dryer — and one professor believes players could cool down better.`\
 https://nytimes.com/athletic/5730111/2024/08/28/us-open-weather-heat-cool-down-players/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/28/opinion/europe-america-future.html
 **Clinging to playoff hopes, Cubs pull off dramatic comeback to sweep Pirates**\
 `Christian Bethancourt had a seven-RBIs day, helping the Cubs keep momentum as they try to break back into the wild-card race.`\
 https://nytimes.com/athletic/5730107/2024/08/28/cubs-sweep-pirates-christian-bethancourt/
-
-**California Legislature Approves Bill Proposing Sweeping A.I. Restrictions**\
-`Gov. Gavin Newsom must now decide whether to sign into law the fiercely debated legislation.`\
-https://nytimes.com/2024/08/28/technology/california-ai-safety-bill.html
 

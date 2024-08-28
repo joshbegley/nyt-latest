@@ -1,3 +1,7 @@
+**Giants place Thairo Estrada, Tyler Matzek on waivers: Source**\
+`Estrada was the team's Opening Day second baseman and has been a top defender the past two years but has struggled at the plate.`\
+https://nytimes.com/athletic/5730302/2024/08/28/sf-giants-thairo-estrada-tyler-matzek-waivers/
+
 **Wide receiver position created Broncos' toughest choices. Did they get it right?**\
 `Cutting Tim Patrick was an "extremely difficult" choice, but the Broncos believe they have built a well-rounded room of targets for Bo Nix.`\
 https://nytimes.com/athletic/5729591/2024/08/28/broncos-roster-wide-receivers/
