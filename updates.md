@@ -1,3 +1,11 @@
+**$100 Million Podcast Deals Are Back, but Not for Just Any Celebrity**\
+`After partnerships with famous names fizzled in previous years, podcast companies are paying stars — like Travis and Jason Kelce — with a proven track record as hosts.`\
+https://nytimes.com/2024/08/28/arts/travis-jason-kelce-new-heights-podcast-wondery.html
+
+**Betty Halbreich, World’s ‘Most Famous Personal Shopper,’ Dies at 96**\
+`She was a local New York secret before gaining wider renown as the dressing-room companion of rich, powerful women. A dark past lay beneath her savoir faire.`\
+https://nytimes.com/2024/08/28/fashion/betty-halbreich-dead.html
+
 **The Most Exciting Hotels in London Right Now**\
 `From big brands to quirky independents, the city’s newest accommodations are luxurious in ways both quiet and not.`\
 https://nytimes.com/2024/08/28/t-magazine/london-hotels.html

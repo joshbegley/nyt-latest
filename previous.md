@@ -1,3 +1,11 @@
+**$100 Million Podcast Deals Are Back, but Not for Just Any Celebrity**\
+`After partnerships with famous names fizzled in previous years, podcast companies are paying stars — like Travis and Jason Kelce — with a proven track record as hosts.`\
+https://nytimes.com/2024/08/28/arts/travis-jason-kelce-new-heights-podcast-wondery.html
+
+**Betty Halbreich, World’s ‘Most Famous Personal Shopper,’ Dies at 96**\
+`She was a local New York secret before gaining wider renown as the dressing-room companion of rich, powerful women. A dark past lay beneath her savoir faire.`\
+https://nytimes.com/2024/08/28/fashion/betty-halbreich-dead.html
+
 **The Most Exciting Hotels in London Right Now**\
 `From big brands to quirky independents, the city’s newest accommodations are luxurious in ways both quiet and not.`\
 https://nytimes.com/2024/08/28/t-magazine/london-hotels.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/28/climate/canada-wildfires-emissions-carbon.html
 **U.K.’s Starmer Wants to ‘Turn a Corner on Brexit.’ What Does That Mean?**\
 `On a trip to Germany, Prime Minister Keir Starmer exchanged warm words with Germany’s chancellor, Olaf Scholz. But a reset with the European Union will depend on actions too.`\
 https://nytimes.com/2024/08/28/world/europe/keir-starmer-britain-germany-brexit.html
-
-**Criticizing a Conservative’s Advice for Trump**\
-`Readers discuss a guest essay by Rich Lowry, National Review editor. Also: Debate rules; more campaign substance; pap smears; hospital abortions; hats.`\
-https://nytimes.com/2024/08/28/opinion/letters/rich-lowry-trump.html
-
-**Vikings mailbag: Submit your Week 1 questions now for reporter Alec Lewis**\
-`The initial 53-man roster is finalized. What are you wondering about with the Vikings now that the season is on the horizon?`\
-https://nytimes.com/athletic/5729244/2024/08/28/minnesota-vikings-mailbag-week-1-alec-lewis/
 
