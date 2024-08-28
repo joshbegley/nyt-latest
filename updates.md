@@ -1,3 +1,7 @@
+**Arsenal exploring deal for Wigan goalkeeper Tickle**\
+`Arsenal are exploring a deal to sign Wigan Athletic goalkeeper Sam Tickle.`\
+https://nytimes.com/athletic/5728232/2024/08/28/sam-tickle-arsenal-wigan-transfer/
+
 **Iran has smuggled arms to the West Bank to foment unrest, officials say.**\
 `By Farnaz Fassihi, Ronen Bergman and Eric Schmitt`\
 https://nytimes.com/live/2024/08/28/world/israel-hamas-gaza-war/iran-has-smuggled-arms-to-the-west-bank-to-foment-unrest-officials-say
