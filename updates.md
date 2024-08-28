@@ -1,3 +1,7 @@
+**OpenAI in Talks for Deal That Would Value Company at $100 Billion**\
+`While some young A.I. companies have struggled to compete with the tech industry’s giants, OpenAI has been rapidly expanding.`\
+https://nytimes.com/2024/08/28/technology/openai-valuation-funding-deal.html
+
 **Scientists Discover Similar Dinosaur Footprints on Opposite Sides of the Atlantic**\
 `More than 260 similar footprints found in Brazil and Cameroon help us understand a region that broke apart millions of years ago.`\
 https://nytimes.com/2024/08/28/science/dinosaur-tracks-brazil-cameroon.html
