@@ -1,3 +1,15 @@
+**The Best Summer Dinner Is Also the Easiest**\
+`A simple, savory tomato carpaccio begins this menu from David Tanis, followed by tender fish and a crisp plum-almond crumble.`\
+https://nytimes.com/2024/08/28/dining/summer-menu-tomatoes-plums.html
+
+**The Windup: You'll never guess who's back (again)**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5729139/2024/08/28/rich-hill-red-sox-the-windup/
+
+**Meet the Trans Actress Who Could Make Oscar History**\
+`Karla Sofía Gascón plays a drug kingpin who undergoes gender-affirming surgery in a performance that wowed Cannes. Is the academy next?`\
+https://nytimes.com/2024/08/28/movies/karla-sofia-gascon-emilia-perez-oscar.html
+
 **U.S., Chinese Officials Discuss Future Talks Between Biden and Xi**\
 `In talks in Beijing, the two sides made clear that many differences remain over Taiwan, technology export controls and trade disputes.`\
 https://nytimes.com/2024/08/28/world/asia/us-china-biden-xi.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5728556/2024/08/28/2025-nascar-cup-series-schedule-
 **Serena Williams Reflects on Her Life and Legacy in a New Docuseries**\
 `“In the Arena: Serena Williams,” an eight-part documentary on ESPN+, revisits the highs and lows of the star’s career and considers her impact on tennis and beyond.`\
 https://nytimes.com/2024/08/28/arts/television/serena-williams-in-the-arena.html
-
-**How Wildfire Smoke Threatens Health**\
-`As wildfires grow more frequent and more intense, scientists are studying how their smoke might harm our health.`\
-https://nytimes.com/interactive/2024/08/28/well/wildfire-smoke-health.html
-
-**These 6 Exercises Are Fundamental to How You Move**\
-`Practicing these movements can make everyday tasks — like carrying groceries and walking up stairs — easier.`\
-https://nytimes.com/2024/08/28/well/move/range-of-motion-exercises.html
-
-**You Say Tomato, I Say Risotto**\
-`David Tanis’s fast, five-star recipe is a perfect peak tomato meal.`\
-https://nytimes.com/2024/08/28/dining/you-say-tomato-i-say-risotto.html
 

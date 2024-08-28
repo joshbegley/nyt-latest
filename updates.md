@@ -1,3 +1,11 @@
+**U.S., Chinese Officials Discuss Future Talks Between Biden and Xi**\
+`In talks in Beijing, the two sides made clear that many differences remain over Taiwan, technology export controls and trade disputes.`\
+https://nytimes.com/2024/08/28/world/asia/us-china-biden-xi.html
+
+**What Will We Do With Our Free Power?**\
+`The price of solar power is plummeting faster than we ever expected.`\
+https://nytimes.com/2024/08/28/opinion/solar-power-free-energy.html
+
 **Should I Report My Friends’ Cocaine Dealer?**\
 `The magazine’s Ethicist columnist on the duty one has to mitigate drug-related harm.`\
 https://nytimes.com/2024/08/28/magazine/cocaine-dealer-friends-ethics.html

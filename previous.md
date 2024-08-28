@@ -1,3 +1,11 @@
+**U.S., Chinese Officials Discuss Future Talks Between Biden and Xi**\
+`In talks in Beijing, the two sides made clear that many differences remain over Taiwan, technology export controls and trade disputes.`\
+https://nytimes.com/2024/08/28/world/asia/us-china-biden-xi.html
+
+**What Will We Do With Our Free Power?**\
+`The price of solar power is plummeting faster than we ever expected.`\
+https://nytimes.com/2024/08/28/opinion/solar-power-free-energy.html
+
 **Should I Report My Friends’ Cocaine Dealer?**\
 `The magazine’s Ethicist columnist on the duty one has to mitigate drug-related harm.`\
 https://nytimes.com/2024/08/28/magazine/cocaine-dealer-friends-ethics.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/28/well/move/range-of-motion-exercises.html
 **You Say Tomato, I Say Risotto**\
 `David Tanis’s fast, five-star recipe is a perfect peak tomato meal.`\
 https://nytimes.com/2024/08/28/dining/you-say-tomato-i-say-risotto.html
-
-**Cowboys sign free agent RB Dalvin Cook to practice squad: Reports**\
-`Cook signed with the Ravens in January for the postseason after the New York Jets released him.`\
-https://nytimes.com/athletic/5725658/2024/08/28/dalvin-cook-cowboys-signing/
-
-**Westbrook to wear No. 4, clears air on number change**\
-`"I chose to mark this new change with a 'new' number," Russell Westbrook said about why he'll wear No. 4 with the Nuggets.`\
-https://nytimes.com/athletic/5728895/2024/08/28/russell-westbrook-number-change-nuggets/
 
