@@ -16,7 +16,7 @@ https://nytimes.com/athletic/5726511/2024/08/28/us-open-day-3-best-matches-to-wa
 
 **Israel’s Military Raids West Bank in Broad Operation**\
 `The Palestinian Health Ministry said at least nine people had been killed. Israel’s foreign minister, Israel Katz, said evacuations may be necessary in the West Bank as the military conducted operations there.`\
-https://nytimes.com/2024/08/28/world/middleeast/israel-west-bank-raids.html
+https://nytimes.com/live/2024/08/28/world/israel-hamas-gaza-war/israel-west-bank-raids
 
 **Michael Crichton’s Estate Calls New Show an Unauthorized ‘ER’ Remake in Lawsuit**\
 `The best-selling author’s estate has filed suit over “The Pitt,” an upcoming series, claiming that it is an unauthorized reboot of the hit hospital drama.`\

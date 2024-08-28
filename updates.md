@@ -1,3 +1,7 @@
+**Israel’s Military Raids West Bank in Broad Operation**\
+`The Palestinian Health Ministry said at least nine people had been killed. Israel’s foreign minister, Israel Katz, said evacuations may be necessary in the West Bank as the military conducted operations there.`\
+https://nytimes.com/live/2024/08/28/world/israel-hamas-gaza-war/israel-west-bank-raids
+
 **Uruguayan player dies after collapsing during Copa Libertadores game**\
 `Uruguayan footballer Juan Izquierdo has died at the age of 27 after collapsing on the pitch during a Copa Libertadores fixture.`\
 https://nytimes.com/athletic/5728209/2024/08/28/juan-izquierdo-dies-club-nacional-copa-libertadores/
