@@ -1,3 +1,7 @@
+**The Most Exciting Hotels in London Right Now**\
+`From big brands to quirky independents, the city’s newest accommodations are luxurious in ways both quiet and not.`\
+https://nytimes.com/2024/08/28/t-magazine/london-hotels.html
+
 **Sarah Palin Is Granted New Libel Trial Against The New York Times**\
 `A federal appeals court said that the judge overseeing the original trial, which Ms. Palin lost, had wrongly excluded evidence and might have swayed jurors as they were deliberating.`\
 https://nytimes.com/2024/08/28/business/media/sarah-palin-libel-trial-new-york-times.html
