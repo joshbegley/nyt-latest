@@ -1,3 +1,7 @@
+**A Rare but Dangerous Mosquito-Borne Virus Is Changing Routines in Massachusetts**\
+`Ten communities are at high or critical risk from Eastern equine encephalitis, which killed a man in New Hampshire this month and sickened two people in Massachusetts and Vermont.`\
+https://nytimes.com/2024/08/28/us/mosquito-virus-eee-massachusetts.html
+
 **A 4-Year-Old Boy Breaks a 3,500-Year-Old Jar at an Israeli Museum**\
 `The child, who had been visiting the Hecht Museum in Haifa, wanted to know what was in the jar, his father said. He and his family have been invited to return when the artifact is restored.`\
 https://nytimes.com/2024/08/28/world/middleeast/4-year-old-boy-jar-hecht-museum.html
