@@ -1,3 +1,23 @@
+**Voting Rights Leaders Step Up Election Initiatives After Texas Raids**\
+`Groups working to get voters to the polls are expanding training and communications with election officials in anticipation of challenges.`\
+https://nytimes.com/2024/08/28/us/politics/voters-texas-raids.html
+
+**On Kobe Bryant Day, a Celebration of Love and Basketball**\
+`Malika Andrews first caught the attention of fellow N.B.A. journalist Dave McMenamin as she conducted an interview with LeBron James.`\
+https://nytimes.com/2024/08/28/style/malika-andrews-dave-mcmenamin-kobe-bryant-day.html
+
+**Jenna Ortega Has Fans Lining Up at the Venice Film Festival**\
+`After the actors’ strike muted the 2023 edition, this year’s event is being powered by stars like the “Beetlejuice Beetlejuice” actress and her castmates.`\
+https://nytimes.com/2024/08/28/movies/jenna-ortega-beetlejuice-venice-film-festival.html
+
+**Canada’s Wildfires Were a Top Global Emitter Last Year, Study Says**\
+`The blazes produced more planet-warming carbon than almost any country, researchers found. That could upend key calculations on the pace of global warming.`\
+https://nytimes.com/2024/08/28/climate/canada-wildfires-emissions-carbon.html
+
+**U.K.’s Starmer Wants to ‘Turn a Corner on Brexit.’ What Does That Mean?**\
+`On a trip to Germany, Prime Minister Keir Starmer exchanged warm words with Germany’s chancellor, Olaf Scholz. But a reset with the European Union will depend on actions too.`\
+https://nytimes.com/2024/08/28/world/europe/keir-starmer-britain-germany-brexit.html
+
 **Criticizing a Conservative’s Advice for Trump**\
 `Readers discuss a guest essay by Rich Lowry, National Review editor. Also: Debate rules; more campaign substance; pap smears; hospital abortions; hats.`\
 https://nytimes.com/2024/08/28/opinion/letters/rich-lowry-trump.html
@@ -13,24 +33,4 @@ https://nytimes.com/2024/08/28/us/politics/congress-races-new-york-california.ht
 **In Boston, Walz assails Trump on labor and previews Harris’s debate: ‘It’s going to be good.’**\
 `By Kellen Browning`\
 https://nytimes.com/live/2024/08/28/us/harris-trump-election/in-boston-walz-assails-trump-on-labor-and-previews-harriss-debate-its-going-to-be-good
-
-**Monahan: PGA Tour, PIF working without deadline for agreement**\
-`PGA Tour commissioner Jay Monahan insisted negotiations remain ongoing 8 months after original deadline.`\
-https://nytimes.com/athletic/5729181/2024/08/28/pga-tour-pif-liv-golf-agreement-monahan/
-
-**Troubled Hedge Fund Two Sigma Replaces Feuding Founders**\
-`The multibillion-dollar trading firm said that its billionaire co-chief executives, John Overdeck and David Siegel, would step down.`\
-https://nytimes.com/2024/08/28/business/two-sigma-founders-replaced.html
-
-**Italians Fight for the Right to Feast on the Beach**\
-`For those who feel priced out of expensive, privatized seaside clubs in Italy, elaborate lunch spreads feel like the last bastion of good spirits.`\
-https://nytimes.com/2024/08/28/dining/italians-beach-picnic-lunch.html
-
-**Google Says It Fixed Image Generator That Failed to Depict White People**\
-`The company will allow users of its Gemini chatbot to create images of people with artificial intelligence after disabling the feature six months ago.`\
-https://nytimes.com/2024/08/28/technology/google-gemini-ai-image-generator.html
-
-**Giorgi Mamardashvili to Liverpool: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500 series, we look at goalkeeper Mamardashvili's deal to join Liverpool from Spanish side Valencia`\
-https://nytimes.com/athletic/5700453/2024/08/28/giorgi-mamardashvili-to-liverpool-the-athletic-500-transfer-ratings/
 
