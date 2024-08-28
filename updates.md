@@ -1,3 +1,7 @@
+**Google Says It Fixed Image Generator That Failed to Depict White People**\
+`The company will allow users of its Gemini chatbot to create images of people with artificial intelligence after disabling the feature six months ago.`\
+https://nytimes.com/2024/08/28/technology/google-image-generator.html
+
 **Giorgi Mamardashvili to Liverpool: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500 series, we look at goalkeeper Mamardashvili's deal to join Liverpool from Spanish side Valencia`\
 https://nytimes.com/athletic/5700453/2024/08/28/giorgi-mamardashvili-to-liverpool-the-athletic-500-transfer-ratings/
