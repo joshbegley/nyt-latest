@@ -1,3 +1,7 @@
+**What’s in Our Queue? ‘Godzilla Minus One’ and More**\
+`I’m a national correspondent covering guns and culture. Here are five things I’ve watched, read or played recently.`\
+https://nytimes.com/interactive/2024/08/28/arts/editors-recommendations-godzilla.html
+
 **Russell Wilson’s redemption or last ride? The QB’s legacy hangs in the balance**\
 `Four years ago, Wilson was a unanimous top tier QB on a Hall of Fame track. Now, he's fighting for his NFL future with the Steelers.`\
 https://nytimes.com/athletic/5725185/2024/08/28/russell-wilson-steelers-legacy-future/
