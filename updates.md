@@ -1,3 +1,11 @@
+**When life gives Mauricio Pochettino lemons, he believes the good times are coming**\
+`Potential new USMNT head coach Pochettino is a keen believer in auras, energy, and the power of a citrus fruit...`\
+https://nytimes.com/athletic/5724688/2024/08/28/pochettino-lemons-usmnt/
+
+**Jenin, a Target of Israeli Raids, Is a Symbol of Defiance for Palestinians**\
+`For decades, Jenin has played a role as a center of opposition to occupying powers.`\
+https://nytimes.com/2024/08/28/world/middleeast/jenin-west-bank-history-israel-palestinians.html
+
 **LeBron James’ high school jersey from first SI cover going to auction**\
 `On February 3, 2002, Michael LeBrecht, an assistant photographer for Sports Illustrated, showed up to the gym at St.`\
 https://nytimes.com/athletic/5727956/2024/08/28/lebron-james-high-school-jersey-auction-sports-illustrated/

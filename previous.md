@@ -1,3 +1,11 @@
+**When life gives Mauricio Pochettino lemons, he believes the good times are coming**\
+`Potential new USMNT head coach Pochettino is a keen believer in auras, energy, and the power of a citrus fruit...`\
+https://nytimes.com/athletic/5724688/2024/08/28/pochettino-lemons-usmnt/
+
+**Jenin, a Target of Israeli Raids, Is a Symbol of Defiance for Palestinians**\
+`For decades, Jenin has played a role as a center of opposition to occupying powers.`\
+https://nytimes.com/2024/08/28/world/middleeast/jenin-west-bank-history-israel-palestinians.html
+
 **LeBron James’ high school jersey from first SI cover going to auction**\
 `On February 3, 2002, Michael LeBrecht, an assistant photographer for Sports Illustrated, showed up to the gym at St.`\
 https://nytimes.com/athletic/5727956/2024/08/28/lebron-james-high-school-jersey-auction-sports-illustrated/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5728552/2024/08/28/marc-bernal-barcelona-injury/
 **Liverpool or Manchester United: Which club is bigger? - The Debate**\
 `England's two most successful sides face each other on Sunday — but which can lay claim to being the bigger club? Two writers discuss`\
 https://nytimes.com/athletic/5724725/2024/08/28/liverpool-manchester-united-biggest-club/
-
-**Golden Knights fan survey results: Big expectations for Eichel, but optimism is waning**\
-`How optimistic is the fan base after a first-round playoff exit and the goal-scoring exodus in free agency? `\
-https://nytimes.com/athletic/5724540/2024/08/28/golden-knights-fans-eichel/
-
-**Kings fan survey results: Improvement not expected, mixed messages on Blake**\
-`Almost two-thirds of respondents don't expect the Kings to advance to the second round this season.`\
-https://nytimes.com/athletic/5725045/2024/08/28/los-angeles-kings-fans-blake/
 
