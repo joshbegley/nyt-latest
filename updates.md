@@ -1,3 +1,11 @@
+**Elon Musk, Eyeing 2024 Edge, Hires Republican Political Adviser**\
+`The move suggests that Mr. Musk, the world’s richest person, is preparing to become even more involved in the presidential campaign and beyond.`\
+https://nytimes.com/2024/08/28/us/politics/elon-musk-political-adviser.html
+
+**Former Las Vegas Official Convicted in Journalist’s Murder**\
+`The highly unusual killing had raised fears about press freedom and the risks facing local journalists.`\
+https://nytimes.com/2024/08/28/us/las-vegas-journalist-murder-trial-verdict.html
+
 **Southampton agree £25m deal to sign Arsenal's Ramsdale on loan**\
 `Southampton have reached an agreement with Arsenal for the permanent transfer of goalkeeper Aaron Ramsdale for a fee of £25million.`\
 https://nytimes.com/athletic/5719499/2024/08/28/aaron-ramsdale-southampton-transfer-arsenal/
