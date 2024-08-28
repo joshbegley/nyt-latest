@@ -1,3 +1,11 @@
+**What does your Premier League club need to do before the transfer deadline?**\
+`There are only three days left until the transfer deadline — what does your club need to do?`\
+https://nytimes.com/athletic/5726410/2024/08/28/premier-league-transfer-window-deadline/
+
+**Dynasty league deliberations: Final preseason thoughts, including risers, fallers and more**\
+`Jeff Haverlack wraps up the preseason with his dynasty league thoughts, including his top players on the rise — Jameson Williams among them.`\
+https://nytimes.com/athletic/5726586/2024/08/28/dynasty-league-deliberations-final-preseason-thoughts-including-risers-fallers-and-more/
+
 **Typhoon Shanshan Lashes Japan With Torrential Rain**\
 `Some flights and trains were canceled, and rescuers in the central region were searching for three people whose home was struck by a landslide.`\
 https://nytimes.com/2024/08/28/world/asia/typhoon-shanshan-japan.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5728092/2024/08/28/bears-hard-knocks-ian-wheeler-au
 **Wednesday's MLB odds, best bets: Pitching matchups, playoff projections and more**\
 `See pitching matchups, playoff projections, win projections and more for Wednesday's MLB games.`\
 https://nytimes.com/athletic/5725068/2024/08/28/mlb-odds-best-bets-projections-august-28/
-
-**Africa’s Debt Crisis Has ‘Catastrophic Implications’ for the World**\
-`Crushing obligations to foreign creditors that have few precedents have sapped numerous African nations of growth and stoked social instability.`\
-https://nytimes.com/2024/08/28/business/african-debt-crisis.html
-
-**Can Tech Executives Be Held Responsible for What Happens on Their Platforms?**\
-`The arrest of Pavel Durov, Telegram’s founder, as part of an investigation into illicit activities on the messaging app set off worries about the personal liability of tech executives.`\
-https://nytimes.com/2024/08/28/technology/durov-telegram-liability-platforms.html
 
