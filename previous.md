@@ -1,3 +1,19 @@
+**Vikings mailbag: Submit your Week 1 questions now for reporter Alec Lewis**\
+`The initial 53-man roster is finalized. What are you wondering about with the Vikings now that the season is on the horizon?`\
+https://nytimes.com/athletic/5729244/2024/08/28/minnesota-vikings-mailbag-week-1-alec-lewis/
+
+**Far From Presidential Battlegrounds, Blue States Could Decide Congress**\
+`New York and California have become unlikely focal points in the fight for control of the House, as Democrats toil to appeal to wary voters in districts won by President Biden.`\
+https://nytimes.com/2024/08/28/us/politics/congress-races-new-york-california.html
+
+**In Boston, Walz assails Trump on labor and previews Harris’s debate: ‘It’s going to be good.’**\
+`By Kellen Browning`\
+https://nytimes.com/live/2024/08/28/us/harris-trump-election/in-boston-walz-assails-trump-on-labor-and-previews-harriss-debate-its-going-to-be-good
+
+**Monahan: PGA Tour, PIF working without deadline for agreement**\
+`PGA Tour commissioner Jay Monahan insisted negotiations remain ongoing 8 months after original deadline.`\
+https://nytimes.com/athletic/5729181/2024/08/28/pga-tour-pif-liv-golf-agreement-monahan/
+
 **Troubled Hedge Fund Two Sigma Replaces Feuding Founders**\
 `The multibillion-dollar trading firm said that its billionaire co-chief executives, John Overdeck and David Siegel, would step down.`\
 https://nytimes.com/2024/08/28/business/two-sigma-founders-replaced.html
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/5700453/2024/08/28/giorgi-mamardashvili-to-liverpoo
 **Olmo changed the course of the game after he was introduced at half-time**\
 `Dani Olmo's debut was worth the wait — in 45 minutes he stole the show to continue Hansi Flick's perfect start `\
 https://nytimes.com/athletic/5728277/2024/08/28/dani-olmo-barcelona-debut/
-
-**Welcome to UW-Whitewater, the bedrock of the U.S. Paralympic wheelchair basketball teams**\
-`Of the 12 members on the Team USA men’s wheelchair basketball in Paris, six are alums of UW-Whitewater, the most of any university`\
-https://nytimes.com/athletic/5726882/2024/08/28/whitewater-us-paralympic-wheelchair-basketball-2024-paris/
-
-**Major market movers: Rachaad White, Rashee Rice among recent risers, fallers in fantasy football drafts**\
-`Michael Salfino looks at the most recent trends in fantasy football ADP, explaining the major value changes to Rasheed Rice and many more. `\
-https://nytimes.com/athletic/5729120/2024/08/28/late-august-adp-risers-fallers-fantasy-football-2024/
-
-**The Best Summer Dinner Is Also the Easiest**\
-`A simple, savory tomato carpaccio begins this menu from David Tanis, followed by tender fish and a crisp plum-almond crumble.`\
-https://nytimes.com/2024/08/28/dining/summer-menu-tomatoes-plums.html
-
-**The Windup: You'll never guess who's back (again)**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5729139/2024/08/28/rich-hill-red-sox-the-windup/
 
