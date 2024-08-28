@@ -1,3 +1,7 @@
+**Why they stayed: The seniors who gave Notre Dame its Playoff expectations**\
+`Convincing Howard Cross, Jack Kiser, Rylie Mills and Xavier Watts to return, in that order, was crucial for Marcus Freeman and Notre Dame.`\
+https://nytimes.com/athletic/5728452/2024/08/28/notre-dame-football-cross-watts-kiser-mills/
+
 **Wordle Review No. 1,166**\
 `Scroll down for hints and conversation about the puzzle for August 28, 2024.`\
 https://nytimes.com/2024/08/28/crosswords/wordle-review-1166.html
