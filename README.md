@@ -1,3 +1,11 @@
+**Barcelona briefing: Olmo's perfect start, Pedri shines again, misery for Marc Bernal**\
+`Barcelona's 2-1 victory at Rayo Vallecano extended their perfect start to the new La Liga season`\
+https://nytimes.com/athletic/5728206/2024/08/28/barcelona-briefing-olmos-perfect-start-pedri-shines-again-misery-for-marc-bernal/
+
+**Naomi Osaka and the gravity of a superstar at the U.S. Open**\
+`The two-time U.S. Open champion may be a wildcard with a ranking of No. 88, but nothing can stop her transcendence of tennis.`\
+https://nytimes.com/athletic/5727372/2024/08/28/naomi-osaka-us-open/
+
 **Word of the Day: atrophy**\
 `This word has appeared in 36 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/28/learning/word-of-the-day-atrophy.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/28/sports/soccer/juan-izquierdo-dead.html
 **Elliot Anderson: Newcastle's loss is already Forest's considerable gain**\
 `Elliot Anderson wasn't expecting to leave, Eddie Howe didn't want him to depart - Forest are thrilled with their new midfielder `\
 https://nytimes.com/athletic/5726806/2024/08/28/elliot-anderson-nottingham-forest-newcastle-transfer/
-
-**Villa's cohort of runners bait opponents into pressing high. This is how they do it**\
-`Emery is tweaking a few in-possession principles to embolden his runners - it may be the next stage of his Villa team's evolution`\
-https://nytimes.com/athletic/5725798/2024/08/28/aston-villas-runners-rogers/
-
-**INEOS’ cycling team are in freefall - should Manchester United be worried?**\
-`As the new co-owner's United revolution gathers pace, what lessons can be learned from the mistakes made by the INEOS Grenadiers?`\
-https://nytimes.com/athletic/5719162/2024/08/28/ineos-cycling-team-are-in-freefall-should-manchester-united-be-worried/
 
