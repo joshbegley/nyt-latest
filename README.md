@@ -1,3 +1,15 @@
+**House G.O.P. Releases Jan. 6 Videos of Pelosi, Seeking to Shift Blame From Trump**\
+`In recordings shot for a documentary, the House speaker at the time rages about the attack on the Capitol and says she takes responsibility for not pushing the police to prepare better for violence by Trump supporters.`\
+https://nytimes.com/2024/08/28/us/politics/pelosi-trump-jan-6-video.html
+
+**Arsenal's Fabio Vieira rejoins Porto on season-long loan**\
+`Arsenal&#8217;s Fabio Vieira has rejoined former club Porto on a season-long loan deal.`\
+https://nytimes.com/athletic/5720682/2024/08/28/fabio-vieira-arsenal-loan-porto/
+
+**Corrections: Aug. 28, 2024**\
+`Corrections that appeared in print on Wednesday, Aug. 28, 2024.`\
+https://nytimes.com/2024/08/28/pageoneplus/corrections-aug-28-2024.html
+
 **Telegram Founder Charged With Wide Range of Crimes in France**\
 `Pavel Durov was arrested near Paris over the weekend as part of a broad investigation into criminal activity on the platform.`\
 https://nytimes.com/2024/08/28/business/telegram-pavel-durov-charged.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5729751/2024/08/28/juventus-koopmeiners-atalanta-tr
 **A 4-Year-Old Boy Breaks a 3,500-Year-Old Jar at an Israeli Museum**\
 `The child, who had been visiting the Hecht Museum in Haifa, wanted to know what was in the jar, his father said. He and his family have been invited to return when the artifact is restored.`\
 https://nytimes.com/2024/08/28/world/middleeast/4-year-old-boy-jar-hecht-museum.html
-
-**Alastair Carruthers, 79, Dies; Pioneered the Cosmetic Use of Botox**\
-`With his wife, Dr. Jean Carruthers, he conducted hundreds of studies on the wrinkle-erasing properties of the neurotoxin that causes botulism. The work revolutionized beauty care.`\
-https://nytimes.com/2024/08/28/health/alastair-carruthers-dead.html
-
-**Police Searched for a Murder Suspect for Months. Then He Fell Through the Ceiling.**\
-`Deario Wilkerson of Memphis is charged with first-degree murder in connection with a killing in an April shooting, the authorities said.`\
-https://nytimes.com/2024/08/28/us/tennessee-murder-suspect-ceiling-fall.html
-
-**Submit your questions for Jeremy Rutherford’s St. Louis Blues mailbag**\
-`Have a question about the Blues? Submit it here and The Athletic’s Jeremy Rutherford will address a selection in his upcoming mailbag.`\
-https://nytimes.com/athletic/5729738/2024/08/28/st-louis-blues-jeremy-rutherford-mailbag-august-2024/
 
