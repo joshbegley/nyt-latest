@@ -1,3 +1,15 @@
+**Giants cut day takeaways: Tommy DeVito survives; where to expect waiver wire additions**\
+`The Giants' 53-man roster is set. But not for long. "The roster's still fluid,” coach Brian Daboll said.`\
+https://nytimes.com/athletic/5727420/2024/08/27/new-york-giants-cut-day-53-takeaways/
+
+**Travis Kelce buys stake in racehorse with fitting name: Swift Delivery**\
+`Kelce recently bought a stake in a 3-year-old gelding that notably shares a portion of his name with Taylor Swift.`\
+https://nytimes.com/athletic/5727783/2024/08/27/travis-kelce-swift-delivery-racehorse-ownership/
+
+**Cardinals DFA Shawn Armstrong in another controversial roster move**\
+`St. Louis acquired Armstrong roughly four weeks ago from the Tampa Bay Rays in a trade for outfielder Dylan Carlson.`\
+https://nytimes.com/athletic/5727614/2024/08/27/cardinals-designate-shawn-armstrong-for-assignment/
+
 **Explaining the Eagles' initial 53-man roster decisions**\
 `Eagles GM Howie Roseman said the team is still incomplete.`\
 https://nytimes.com/athletic/5727071/2024/08/27/philadelphia-eagles-initial-53-man-roster-analysis/
