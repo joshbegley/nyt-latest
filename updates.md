@@ -1,3 +1,11 @@
+**Leicester hopeful of completing El Khannouss signing**\
+`Leicester City are hopeful of completing the signing of Morocco attacking midfielder Bilal El Khannouss in the coming days.`\
+https://nytimes.com/athletic/5728300/2024/08/28/bilal-el-khannouss-leicester-transfer/
+
+**Why should Yankees fans believe in team's bullpen ahead of postseason? Matt Blake answers**\
+`Blake believes Clay Holmes has been more effective than blown saves indicate, plus he discusses potential changes to the bullpen's makeup.`\
+https://nytimes.com/athletic/5727037/2024/08/28/yankees-bullpen-analysis-matt-blake/
+
 **Ogbene joins Ipswich from Luton on four-year deal**\
 `Ipswich Town have completed the signing of Chiedozie Ogbene from Luton Town.`\
 https://nytimes.com/athletic/5728267/2024/08/28/chiedozie-ogbene-ipswich-transfer-complete/
