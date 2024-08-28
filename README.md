@@ -1,3 +1,7 @@
+**Hoffenheim make approach to sign Diao, 18, from Real Betis**\
+`Hoffenheim have approached Real Betis over signing Assane Diao.`\
+https://nytimes.com/athletic/5728298/2024/08/28/assane-diao-transfer-betis-hoffenheim/
+
 **How Merino's arrival at Arsenal will impact their midfield**\
 `With Arteta hellbent on dominating or ‘suffocating’ opposition teams, Merino could see Arsenal end up defending even higher up the pitch`\
 https://nytimes.com/athletic/5725878/2024/08/28/mikel-merino-arsenal-midfield-analysis/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5728014/2024/08/28/jose-alavardo-absence-phillies-b
 **The fantasy football FAAB guide: How to maximize your waiver wire budget**\
 `Michael Waterloo explains the dos and don'ts of how to manage your FAAB budget throughout the fantasy football season.`\
 https://nytimes.com/athletic/5726737/2024/08/28/fantasy-football-faab-guide/
-
-**Drew Brees: Arch Manning, young QBs need 50 'high-quality starts' to be ready for NFL stage**\
-`Should Manning stay and start multiple seasons at Texas? Is NIL ruining college football? Brees weighed in on multiple topics.`\
-https://nytimes.com/athletic/5723924/2024/08/28/drew-brees-interview-nil-arch-manning/
 
