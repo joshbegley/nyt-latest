@@ -1,3 +1,11 @@
+**Russell Wilson’s redemption or last ride? The QB’s legacy hangs in the balance**\
+`Four years ago, Wilson was a unanimous top tier QB on a Hall of Fame track. Now, he's fighting for his NFL future with the Steelers.`\
+https://nytimes.com/athletic/5725185/2024/08/28/russell-wilson-steelers-legacy-future/
+
+**How Jannik Sinner and the team that made him world No. 1 became a tennis Rorschach test**\
+`The story of his rise to the top of the sport was one of a team he built. Then he blew it up.`\
+https://nytimes.com/athletic/5727699/2024/08/28/jannik-sinner-team-world-number-one-tennis/
+
 **Barcelona trying to hijack Red Bull Salzburg's move for Liverpool's Bajcetic**\
 `Barcelona are trying to hijack Red Bull Salzburg&#8217;s signing of Liverpool midfielder Stefan Bajcetic on a season-long loan.`\
 https://nytimes.com/athletic/5716444/2024/08/28/stefan-bajcetic-barcelona-liverpool-transfer/
