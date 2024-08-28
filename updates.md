@@ -1,3 +1,7 @@
+**Buckley: Why it's so important for Jerod Mayo to take ownership of Patriots' QB decision**\
+`Who will be the Patriots' starting quarterback in Week 1? We still don't know, but Mayo made clear who will be doing the deciding.`\
+https://nytimes.com/athletic/5730076/2024/08/28/jerod-mayo-patriots-qb-drake-maye-jacoby-brissett/
+
 **Salesman for Moving Company That Held Goods Hostage Gets 2-Year Sentence**\
 `Andre Prince, who was convicted of conspiracy to commit wire fraud, used a “stage name” as he worked for companies that also frequently swapped identities.`\
 https://nytimes.com/2024/08/28/nyregion/moving-companies-fraud-scheme-sentence.html

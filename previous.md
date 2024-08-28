@@ -2,7 +2,7 @@
 `Andre Prince, who was convicted of conspiracy to commit wire fraud, used a “stage name” as he worked for companies that also frequently swapped identities.`\
 https://nytimes.com/2024/08/28/nyregion/moving-companies-fraud-scheme-sentence.html
 
-**Jerod Mayo says QB1 choice — Jacoby Brissett or Drake Maye — will be 'my decision to make'**\
+**Buckley: Why it's so important for Jerod Mayo to take ownership of Patriots' QB decision**\
 `Who will be the Patriots' starting quarterback in Week 1? We still don't know, but Mayo made clear who will be doing the deciding.`\
 https://nytimes.com/athletic/5730076/2024/08/28/jerod-mayo-patriots-qb-drake-maye-jacoby-brissett/
 
