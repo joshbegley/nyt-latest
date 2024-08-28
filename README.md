@@ -1,3 +1,7 @@
+**What’s in Our Queue? ‘Godzilla Minus One’ and More**\
+`I’m a national correspondent covering guns and culture. Here are five things I’ve watched, read or played recently.`\
+https://nytimes.com/interactive/2024/08/28/arts/editors-recommendations-godzilla.html
+
 **Barcelona trying to hijack Red Bull Salzburg's move for Liverpool's Bajcetic**\
 `Barcelona are trying to hijack Red Bull Salzburg&#8217;s signing of Liverpool midfielder Stefan Bajcetic on a season-long loan.`\
 https://nytimes.com/athletic/5716444/2024/08/28/stefan-bajcetic-barcelona-liverpool-transfer/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5727699/2024/08/28/jannik-sinner-team-world-number-
 **Steelers name Russell Wilson starting QB**\
 `Wilson had the edge on Justin Fields since the QB "competition" began. Now the question becomes: Can he keep the job?`\
 https://nytimes.com/athletic/5726398/2024/08/28/russell-wilson-starter-justin-fields-steelers/
-
-**Trump Tells Dr. Phil, Without Evidence, That Harris and Biden Bear Some Blame for Shooting**\
-`The former president accused the president and vice president of denying him sufficient Secret Service protection, echoing remarks he made on social media in July.`\
-https://nytimes.com/2024/08/28/us/politics/trump-dr-phil-interview-assassination-attempt.html
 
