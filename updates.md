@@ -1,3 +1,7 @@
+**Iran has smuggled arms to the West Bank to foment unrest, officials say.**\
+`By Farnaz Fassihi, Ronen Bergman and Eric Schmitt`\
+https://nytimes.com/live/2024/08/28/world/israel-hamas-gaza-war/iran-has-smuggled-arms-to-the-west-bank-to-foment-unrest-officials-say
+
 **Tour Championship odds, picks, DFS: Schauffele has course history on his side**\
 `Dennis Esser looks ahead to the 2024 Tour Championship. Scottie Scheffler and Xander Schauffele are the favorites.`\
 https://nytimes.com/athletic/5726918/2024/08/28/pga-tour-championship-odds-picks-dfs/

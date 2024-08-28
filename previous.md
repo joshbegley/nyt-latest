@@ -1,3 +1,7 @@
+**Iran has smuggled arms to the West Bank to foment unrest, officials say.**\
+`By Farnaz Fassihi, Ronen Bergman and Eric Schmitt`\
+https://nytimes.com/live/2024/08/28/world/israel-hamas-gaza-war/iran-has-smuggled-arms-to-the-west-bank-to-foment-unrest-officials-say
+
 **Tour Championship odds, picks, DFS: Schauffele has course history on his side**\
 `Dennis Esser looks ahead to the 2024 Tour Championship. Scottie Scheffler and Xander Schauffele are the favorites.`\
 https://nytimes.com/athletic/5726918/2024/08/28/pga-tour-championship-odds-picks-dfs/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/28/opinion/harris-walz-georgia-bus.html
 **Harris and Walz Point Their Campaign Bus to Rural Georgia**\
 `The Democrats’ presidential ticket will head to the Sun Belt, aiming to sway voters in more conservative areas to their side.`\
 https://nytimes.com/2024/08/28/us/politics/harris-walz-georgia-bus-tour.html
-
-**Last Crusade of Mexico’s President: A Drastic Redesign of the Judiciary**\
-`A showdown over plans to reshape the entire judiciary is raising fears over the effect on the rule of law in Mexico and trade with the United States.`\
-https://nytimes.com/2024/08/28/world/americas/mexico-judicial-changes-analysis.html
 
