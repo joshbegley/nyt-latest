@@ -1,3 +1,11 @@
+**Texas Touted Removing 1 Million From Voter Rolls. Most Had Moved or Died.**\
+`Gov. Greg Abbott celebrated a purge of voter rolls, but the numbers were in line with routine culling from the past. Democrats warned that some of the removals sent a chilling message to Latino voters.`\
+https://nytimes.com/2024/08/28/us/texas-voter-rolls-abbott.html
+
+**New Blackhawks goalie Brossoit expected to miss 5-7 weeks**\
+`Laurent Brossoit was so excited to finally be completely healthy and have a full offseason to train for the upcoming NHL season.`\
+https://nytimes.com/athletic/5729802/2024/08/28/blackhawks-laurent-brossoit-surgery/
+
 **Violence is growing in the West Bank, but the Israeli military is mainly focusing on only one kind.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/08/28/world/israel-hamas-gaza-war/violence-is-growing-in-the-west-bank-but-the-israeli-military-is-mainly-focusing-on-only-one-kind
