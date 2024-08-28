@@ -1,3 +1,7 @@
+**The Rise of Fare Evasion**\
+`We explore why people are ignoring public transit’s most basic rule.`\
+https://nytimes.com/2024/08/28/briefing/fare-evasion-new-york-bus-subway.html
+
 **Paris Paralympics 2024: A complete guide to what's on and the stars to watch out for**\
 `Everything you need to know to get the most from the Paralympics - including when the big names are competing`\
 https://nytimes.com/athletic/5725891/2024/08/28/paralympics-paris-2024-complete-guide-athletes/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5722974/2024/08/28/angels-anthony-rendon-third-base
 **'Just going to be me': Brandin Podziemski opens up on trade rumors, pressure and more**\
 `Podziemski, 21, enters his second season in Golden State likely with a starting spot following Klay Thompson’s departure.`\
 https://nytimes.com/athletic/5705669/2024/08/28/brandin-podziemski-warriors-lauri-markkanen/
-
-**Bears' Cole Kmet comes from an athletic family that may have saved the best for last**\
-`Cooper Kmet, in his senior year at St. Viator High School, is a rising prospect who is just starting to generate college interest.`\
-https://nytimes.com/athletic/5726805/2024/08/28/bears-cole-kmet-family/
 
