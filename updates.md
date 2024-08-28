@@ -1,3 +1,7 @@
+**Israeli forces carry out raids and airstrikes in the West Bank. Here are the latest developments.**\
+`The Palestinian Health Ministry said at least nine people had been killed. Israel’s foreign minister, Israel Katz, said evacuations may be necessary in the West Bank as the military conducted operations there.`\
+https://nytimes.com/live/2024/08/28/world/israel-hamas-gaza-war/israel-west-bank-raids
+
 **Israeli forces carry out raids and airstrikes in the West Bank.**\
 `The Palestinian Health Ministry said at least nine people had been killed. Israel’s foreign minister, Israel Katz, said evacuations may be necessary in the West Bank as the military conducted operations there.`\
 https://nytimes.com/live/2024/08/28/world/israel-hamas-gaza-war/israel-west-bank-raids
