@@ -1,3 +1,11 @@
+**Quotation of the Day: Brazil’s Wetland Fires Taking Toll on Wild Animals**\
+`Quotation of the Day for Wednesday, August 28, 2024.`\
+https://nytimes.com/2024/08/28/pageoneplus/quotation-of-the-day-brazils-wetland-fires-taking-toll-on-wild-animals.html
+
+**Maurer: MLS remains committed to Leagues Cup despite tough sell to fans**\
+`The competition’s format was completely overhauled last year to feature every team in MLS and Liga MX, the Mexican top-flight`\
+https://nytimes.com/athletic/5727785/2024/08/28/leagues-cup-mls-opinion/
+
 **U.S. Open day 3 watch guide: Novak Djokovic and Coco Gauff continue title defense**\
 `Day 3 of the U.S. Open moves the tournament on to the second round, with the bottom half of the draw returning for their next matchups.`\
 https://nytimes.com/athletic/5726511/2024/08/28/us-open-day-3-best-matches-to-watch/

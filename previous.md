@@ -1,3 +1,11 @@
+**Quotation of the Day: Brazil’s Wetland Fires Taking Toll on Wild Animals**\
+`Quotation of the Day for Wednesday, August 28, 2024.`\
+https://nytimes.com/2024/08/28/pageoneplus/quotation-of-the-day-brazils-wetland-fires-taking-toll-on-wild-animals.html
+
+**Maurer: MLS remains committed to Leagues Cup despite tough sell to fans**\
+`The competition’s format was completely overhauled last year to feature every team in MLS and Liga MX, the Mexican top-flight`\
+https://nytimes.com/athletic/5727785/2024/08/28/leagues-cup-mls-opinion/
+
 **U.S. Open day 3 watch guide: Novak Djokovic and Coco Gauff continue title defense**\
 `Day 3 of the U.S. Open moves the tournament on to the second round, with the bottom half of the draw returning for their next matchups.`\
 https://nytimes.com/athletic/5726511/2024/08/28/us-open-day-3-best-matches-to-watch/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5728206/2024/08/28/barcelona-olmo-rayo-pedri-bernal
 **Naomi Osaka and the gravity of a superstar at the U.S. Open**\
 `The two-time U.S. Open champion may be a wildcard with a ranking of No. 88, but nothing can stop her transcendence of tennis.`\
 https://nytimes.com/athletic/5727372/2024/08/28/naomi-osaka-us-open/
-
-**Word of the Day: atrophy**\
-`This word has appeared in 36 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/08/28/learning/word-of-the-day-atrophy.html
-
-**How the Mets' Sean Manaea is turning himself into Chris Sale — with the results to match**\
-`The Mets are 18-8 when Manaea starts this season. No team has won more games behind a starter on the mound.`\
-https://nytimes.com/athletic/5728184/2024/08/28/mets-sean-manaea-chris-sale-pitching/
 
