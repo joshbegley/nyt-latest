@@ -1,3 +1,7 @@
+**Villa's cohort of runners bait opponents into pressing high. This is how they do it**\
+`Emery is tweaking a few in-possession principles to embolden his runners - it may be the next stage of his Villa team's evolution`\
+https://nytimes.com/athletic/5725798/2024/08/28/aston-villas-runners-rogers/
+
 **INEOS’ cycling team are in freefall - should Manchester United be worried?**\
 `As the new co-owner's United revolution gathers pace, what lessons can be learned from the mistakes made by the INEOS Grenadiers?`\
 https://nytimes.com/athletic/5719162/2024/08/28/ineos-cycling-team-are-in-freefall-should-manchester-united-be-worried/

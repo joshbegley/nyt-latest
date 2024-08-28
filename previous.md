@@ -1,3 +1,7 @@
+**Villa's cohort of runners bait opponents into pressing high. This is how they do it**\
+`Emery is tweaking a few in-possession principles to embolden his runners - it may be the next stage of his Villa team's evolution`\
+https://nytimes.com/athletic/5725798/2024/08/28/aston-villas-runners-rogers/
+
 **INEOS’ cycling team are in freefall - should Manchester United be worried?**\
 `As the new co-owner's United revolution gathers pace, what lessons can be learned from the mistakes made by the INEOS Grenadiers?`\
 https://nytimes.com/athletic/5719162/2024/08/28/ineos-cycling-team-are-in-freefall-should-manchester-united-be-worried/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/28/world/canada/quebec-gaspe-poutine-casse-croutes.h
 **For Russia, Repelling Incursion Matters Less Than Advancing in Donbas**\
 `Despite its overwhelming firepower, Russia has been unable for weeks to push Ukrainian troops back across the border, with the failure as much the result of priorities as a lack of personnel.`\
 https://nytimes.com/2024/08/28/world/europe/russia-ukraine-incursion-war.html
-
-**With Hezbollah-Israel Conflict Contained, Stage May Be Set for Limited Iranian Retaliation**\
-`After weeks of bracing for retaliations that could spark a broader regional war, Hezbollah’s strikes on Israel indicate that Iran, like its Lebanese ally, is likely to choose a response that favors hemming in the risk of escalation.`\
-https://nytimes.com/2024/08/28/world/europe/hezbollah-iran-retaliation-israel-risk.html
 
