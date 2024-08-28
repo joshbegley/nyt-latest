@@ -1,3 +1,15 @@
+**Should I Report My Friends’ Cocaine Dealer?**\
+`The magazine’s Ethicist columnist on the duty one has to mitigate drug-related harm.`\
+https://nytimes.com/2024/08/28/magazine/cocaine-dealer-friends-ethics.html
+
+**Even the Supreme Court Can’t Save Trump From Himself**\
+`Poor Trump. He probably thought he was in the clear.`\
+https://nytimes.com/live/2024/08/27/opinion/thepoint/jack-smith-trump
+
+**2025 NASCAR Cup Series schedule to shake up playoff tracks**\
+`NASCAR is changing up its playoff rotation among the notable changes to the 2025 Cup schedule, a copy of which was obtained by The Athletic.`\
+https://nytimes.com/athletic/5728556/2024/08/28/2025-nascar-cup-series-schedule-playoffs/
+
 **Serena Williams Reflects on Her Life and Legacy in a New Docuseries**\
 `“In the Arena: Serena Williams,” an eight-part documentary on ESPN+, revisits the highs and lows of the star’s career and considers her impact on tennis and beyond.`\
 https://nytimes.com/2024/08/28/arts/television/serena-williams-in-the-arena.html
