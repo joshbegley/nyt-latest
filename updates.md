@@ -1,3 +1,7 @@
+**Michael Crichton’s Estate Calls New Show an Unauthorized ‘ER’ Remake in Lawsuit**\
+`The best-selling author’s estate has filed suit over “The Pitt,” an upcoming series, claiming that it is an unauthorized reboot of the hit hospital drama.`\
+https://nytimes.com/2024/08/28/arts/television/michael-crichton-er-pitt-lawsuit.html
+
 **Barcelona briefing: Olmo's perfect start, Pedri shines again, misery for Marc Bernal**\
 `Barcelona's 2-1 victory at Rayo Vallecano extended their perfect start to the new La Liga season`\
 https://nytimes.com/athletic/5728206/2024/08/28/barcelona-olmo-rayo-pedri-bernal-la-liga/
