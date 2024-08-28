@@ -1,3 +1,7 @@
+**'Disgrace' Baroness Grey-Thompson had to 'crawl off' train - ParalympicsGB chief**\
+`ParalympicsGB chef de mission Penny Briscoe said it is an “absolute disgrace” that 11-time Paralympic gold medallist Baroness Tanni Grey-Thompson was forced to &#8220;crawl off&#8221; a train.`\
+https://nytimes.com/athletic/5728667/2024/08/28/tanni-grey-thompson-train-paralympics/
+
 **Barcelona's Bernal suffers ACL injury**\
 `Barcelona midfielder Marc Bernal is expected to miss the remainder of the season after suffering an anterior cruciate ligament (ACL) injury.`\
 https://nytimes.com/athletic/5728552/2024/08/28/marc-bernal-barcelona-injury/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/28/us/politics/democrats-pennsylvania-campaigns.html
 **Speed test: What do NHL Edge stats and experts say about Blues' offseason acquisitions?**\
 `Former NHL coach Bruce Boudreau, along with an anonymous league scout, give their opinions on the Blues' newest players.`\
 https://nytimes.com/athletic/5634552/2024/08/28/blues-offseason-additions-speed/
-
-**Palace agree Lacroix fee with Wolfsburg**\
-`Crystal Palace have agreed a fee to sign defender Maxence Lacroix from Wolfsburg.`\
-https://nytimes.com/athletic/5728567/2024/08/28/maxence-lacroix-crystal-palace-transfer/
 
