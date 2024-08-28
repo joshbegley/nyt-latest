@@ -1,3 +1,11 @@
+**Explaining the Eagles' initial 53-man roster decisions**\
+`Eagles GM Howie Roseman said the team is still incomplete.`\
+https://nytimes.com/athletic/5727071/2024/08/27/philadelphia-eagles-initial-53-man-roster-analysis/
+
+**Cardinals DFA Shawn Armstrong in yet another controversial roster move**\
+`St. Louis acquired Armstrong roughly four weeks ago from the Tampa Bay Rays in a trade for outfielder Dylan Carlson.`\
+https://nytimes.com/athletic/5727614/2024/08/27/cardinals-designate-shawn-armstrong-for-assignment/
+
 **Twins notes: Royce Lewis works out at second, Joe Ryan's regular season officially ends**\
 `There's not a high chance Lewis will play second in games, but Rocco Baldelli thinks working there will improve Lewis' overall defense.`\
 https://nytimes.com/athletic/5727836/2024/08/27/twins-royce-lewis-second-base-work/

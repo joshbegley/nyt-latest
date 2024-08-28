@@ -1,3 +1,11 @@
+**Explaining the Eagles' initial 53-man roster decisions**\
+`Eagles GM Howie Roseman said the team is still incomplete.`\
+https://nytimes.com/athletic/5727071/2024/08/27/philadelphia-eagles-initial-53-man-roster-analysis/
+
+**Cardinals DFA Shawn Armstrong in yet another controversial roster move**\
+`St. Louis acquired Armstrong roughly four weeks ago from the Tampa Bay Rays in a trade for outfielder Dylan Carlson.`\
+https://nytimes.com/athletic/5727614/2024/08/27/cardinals-designate-shawn-armstrong-for-assignment/
+
 **Twins notes: Royce Lewis works out at second, Joe Ryan's regular season officially ends**\
 `There's not a high chance Lewis will play second in games, but Rocco Baldelli thinks working there will improve Lewis' overall defense.`\
 https://nytimes.com/athletic/5727836/2024/08/27/twins-royce-lewis-second-base-work/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5727703/2024/08/27/bengals-cutdown-day-takeaways-ch
 **Colts cut day takeaways: TE Jelani Woods out for season; did Indy choose wrong QB3?**\
 `Did the Colts make the right call keeping Sam Ehlinger over Jason Bean? `\
 https://nytimes.com/athletic/5727612/2024/08/27/indianapolis-colts-cut-day-takeaways-jelani-woods-sam-ehlinger/
-
-**Chargers' initial 53-man roster: Easton Stick is the backup QB ... for now**\
-`The Chargers figure to heavily monitor the waiver wire and trade market in the coming days to try to upgrade behind Justin Herbert.`\
-https://nytimes.com/athletic/5727526/2024/08/27/chargers-initial-53-roster-easton-stick/
-
-**SEC appears headed to implementing availability report**\
-`An SEC availability report would apply to only conference games, and there are none this week.`\
-https://nytimes.com/athletic/5727672/2024/08/27/sec-availability-report-kirby-smart/
 
