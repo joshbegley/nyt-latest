@@ -1,3 +1,7 @@
+**A 4-Year-Old Boy Breaks a 3,500-Year-Old Jar at an Israeli Museum**\
+`The child, who had been visiting the Hecht Museum in Haifa, wanted to know what was in the jar, his father said. He and his family have been invited to return when the artifact is restored.`\
+https://nytimes.com/2024/08/28/world/middleeast/4-year-old-boy-jar-hecht-museum.html
+
 **Alastair Carruthers, 79, Dies; Pioneered the Cosmetic Use of Botox**\
 `With his wife, Dr. Jean Carruthers, he conducted hundreds of studies on the wrinkle-erasing properties of the neurotoxin that causes botulism. The work revolutionized beauty care.`\
 https://nytimes.com/2024/08/28/health/alastair-carruthers-dead.html
