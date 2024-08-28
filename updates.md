@@ -1,3 +1,19 @@
+**Hoffenheim make approach to sign Diao, 18, from Real Betis**\
+`Hoffenheim have approached Real Betis over signing Assane Diao.`\
+https://nytimes.com/athletic/5728298/2024/08/28/assane-diao-transfer-betis-hoffenheim/
+
+**How Merino's arrival at Arsenal will impact their midfield**\
+`With Arteta hellbent on dominating or ‘suffocating’ opposition teams, Merino could see Arsenal end up defending even higher up the pitch`\
+https://nytimes.com/athletic/5725878/2024/08/28/mikel-merino-arsenal-midfield-analysis/
+
+**Everton boost morale thanks to impressive Ndiaye, hard-working Beto and new boys**\
+`Sean Dyche gave the fans what they had been asking for with starts for Ndiaye, Lindstrom and O'Brien — while Beto caught the eye, too`\
+https://nytimes.com/athletic/5728247/2024/08/28/everton-ndiaye-obrien-lindstrom-beto/
+
+**Lowetide: What to expect from Oilers rookies in 2024-25**\
+`The Oilers losing two young players to the Blues via offer sheet has opened up some opportunity.`\
+https://nytimes.com/athletic/5725601/2024/08/28/edmonton-oilers-rookies-2024-25/
+
 **The Rise of Fare Evasion**\
 `We explore why people are ignoring public transit’s most basic rule.`\
 https://nytimes.com/2024/08/28/briefing/fare-evasion-new-york-bus-subway.html
