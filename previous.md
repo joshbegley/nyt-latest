@@ -1,3 +1,7 @@
+**Uruguayan Soccer Player Dies Days After Collapsing During a Match**\
+`Juan Izquierdo, 27, suffered cardiac arrest on Aug. 22 while he was playing for Nacional against São Paulo in Brazil.`\
+https://nytimes.com/2024/08/28/sports/soccer/juan-izquierdo-dead.html
+
 **Elliot Anderson: Newcastle's loss is already Forest's considerable gain**\
 `Elliot Anderson wasn't expecting to leave, Eddie Howe didn't want him to depart - Forest are thrilled with their new midfielder `\
 https://nytimes.com/athletic/5726806/2024/08/28/elliot-anderson-nottingham-forest-newcastle-transfer/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/28/world/asia/typhoon-shanshan-japan.html
 **Wednesday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2024/08/28/briefing/trump-indictment-hostage-gaza.html
-
-**In Quebec’s Casse-Croûtes, Fast Food for a Short but Sweet Summer**\
-`By now, the most famous product of Quebec’s casse-croûtes, the poutine, has gone international. But can the guédille or the pinso ever become just as popular?`\
-https://nytimes.com/2024/08/28/world/canada/quebec-gaspe-poutine-casse-croutes.html
 

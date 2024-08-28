@@ -1,3 +1,7 @@
+**Uruguayan Soccer Player Dies Days After Collapsing During a Match**\
+`Juan Izquierdo, 27, suffered cardiac arrest on Aug. 22 while he was playing for Nacional against São Paulo in Brazil.`\
+https://nytimes.com/2024/08/28/sports/soccer/juan-izquierdo-dead.html
+
 **Elliot Anderson: Newcastle's loss is already Forest's considerable gain**\
 `Elliot Anderson wasn't expecting to leave, Eddie Howe didn't want him to depart - Forest are thrilled with their new midfielder `\
 https://nytimes.com/athletic/5726806/2024/08/28/elliot-anderson-nottingham-forest-newcastle-transfer/
