@@ -1,3 +1,7 @@
+**Manny Machado is getting back to full strength. That bodes well for the Padres**\
+`Monday and Tuesday brought Machado's most promising two-game stretch of the season as San Diego kept winning.`\
+https://nytimes.com/athletic/5727889/2024/08/28/manny-machado-home-runs-padres/
+
 **Uruguayan Soccer Player Dies Days After Collapsing During a Match**\
 `Juan Izquierdo, 27, suffered cardiac arrest on Aug. 22 while he was playing for Nacional against São Paulo in Brazil.`\
 https://nytimes.com/2024/08/28/sports/soccer/juan-izquierdo-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5726586/2024/08/28/dynasty-league-deliberations-fin
 **Typhoon Shanshan Lashes Japan With Torrential Rain**\
 `Some flights and trains were canceled, and rescuers in the central region were searching for three people whose home was struck by a landslide.`\
 https://nytimes.com/2024/08/28/world/asia/typhoon-shanshan-japan.html
-
-**Wednesday Briefing**\
-`Here’s what you need to know.`\
-https://nytimes.com/2024/08/28/briefing/trump-indictment-hostage-gaza.html
 
