@@ -1,3 +1,7 @@
+**Here are the latest developments.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/08/28/world/israel-hamas-gaza-war/here-are-the-latest-developments
+
 **Lankshear set to stay at Spurs and be involved with first team**\
 `Tottenham Hotspur striker Will Lankshear is set to stay at the club this season despite receiving several loan offers.`\
 https://nytimes.com/athletic/5726209/2024/08/28/tottenham-will-lankshear-loan-transfer/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/28/briefing/fare-evasion-new-york-bus-subway.html
 **Paris Paralympics 2024: A complete guide to what's on and the stars to watch out for**\
 `Everything you need to know to get the most from the Paralympics - including when the big names are competing`\
 https://nytimes.com/athletic/5725891/2024/08/28/paralympics-paris-2024-complete-guide-athletes/
-
-**‘We are in the first stages of this operation,’ an Israeli military spokesman says.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/08/28/world/israel-hamas-gaza-war/we-are-in-the-first-stages-of-this-operation-an-israeli-military-spokesman-says
 

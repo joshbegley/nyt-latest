@@ -1,3 +1,7 @@
+**Here are the latest developments.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/08/28/world/israel-hamas-gaza-war/here-are-the-latest-developments
+
 **Lankshear set to stay at Spurs and be involved with first team**\
 `Tottenham Hotspur striker Will Lankshear is set to stay at the club this season despite receiving several loan offers.`\
 https://nytimes.com/athletic/5726209/2024/08/28/tottenham-will-lankshear-loan-transfer/
