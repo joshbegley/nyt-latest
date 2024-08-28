@@ -1,3 +1,23 @@
+**Scientists Discover Similar Dinosaur Footprints on Opposite Sides of the Atlantic**\
+`More than 260 similar footprints found in Brazil and Cameroon help us understand a region that broke apart millions of years ago.`\
+https://nytimes.com/2024/08/28/science/dinosaur-tracks-brazil-cameroon.html
+
+**Waterline Breaks Force Grand Canyon to Halt Hotel Stays on South Rim**\
+`The popular destination has put strict water restrictions into effect before one of summer’s busiest weekends.`\
+https://nytimes.com/2024/08/28/us/grand-canyon-hotels-water.html
+
+**Falcons trade QB Taylor Heinicke to Chargers**\
+`Heinicke made the Falcons’ 53-man roster as a third quarterback, but his prospects of playing time in Atlanta were not great.`\
+https://nytimes.com/athletic/5730360/2024/08/28/taylor-heinicke-chargers-falcons-trade/
+
+**Clark breaks WNBA record for most 3-pointers by a rookie**\
+`In addition to 3-pointers, Clark also leads the league in total assists and turnovers.`\
+https://nytimes.com/athletic/5730347/2024/08/28/caitlin-clark-wnba-rookie-3-point-record/
+
+**Giants place Thairo Estrada, Taylor Rogers, Tyler Matzek on waivers: Source**\
+`Estrada was the team's Opening Day second baseman and has been a top defender the past two years but has struggled at the plate.`\
+https://nytimes.com/athletic/5730302/2024/08/28/sf-giants-thairo-estrada-taylor-rogers-tyler-matzek-waivers/
+
 **Giants place Thairo Estrada, Tyler Matzek on waivers: Source**\
 `Estrada was the team's Opening Day second baseman and has been a top defender the past two years but has struggled at the plate.`\
 https://nytimes.com/athletic/5730302/2024/08/28/sf-giants-thairo-estrada-taylor-rogers-tyler-matzek-waivers/
