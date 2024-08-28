@@ -1,4 +1,4 @@
-**Michael Crichton’s Estate Sues Warner Bros. Over ‘ER’ Remake**\
+**Michael Crichton’s Estate Calls New Show an Unauthorized ‘ER’ Remake in Lawsuit**\
 `The best-selling author’s estate has filed suit over “The Pitt,” an upcoming series, claiming that it is an unauthorized reboot of the hit hospital drama.`\
 https://nytimes.com/2024/08/28/arts/television/michael-crichton-er-pitt-lawsuit.html
 
