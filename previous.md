@@ -1,3 +1,11 @@
+**Militia Group Member Gets 5 Years in Prison in Jan. 6 Capitol Riot**\
+`Dan Edwin Wilson, 48, of Louisville, Ky., messaged in a group chat that he was prepared to lay his life on the line, prosecutors said. “It is time for good men to do bad things,” he wrote.`\
+https://nytimes.com/2024/08/28/us/jan-6-riot-dan-wilson-sentenced.html
+
+**Your End-of-Summer Politics Quiz Is Here**\
+`How closely have you been following the news these last few months? Let’s find out.`\
+https://nytimes.com/interactive/2024/08/28/opinion/columnists/28collins-your-summer-politics-quiz-is-here.html
+
 **In the Battle for Georgia, Democrats Lose a Key Fighter**\
 `Bishop Reginald T. Jackson, a leader of the A.M.E. Church, turned Georgia into a political machine for Democrats by mobilizing voters of faith. Now, he is leaving the state just months before the November election.`\
 https://nytimes.com/2024/08/28/us/politics/georgia-faith-voters-bishop-jackson.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/28/technology/google-yelp-lawsuit.html
 **Jack Smith’s New Case Against Trump Is Much Stronger Than His Old One**\
 `In this case, less is truly more.`\
 https://nytimes.com/live/2024/08/27/opinion/thepoint/jack-smith-trump-election
-
-**The Mosquito-Borne Virus Raising Alarms in the Northeast**\
-`Recent infections from the Eastern equine encephalitis virus are worrying health officials. Severe cases can be deadly or leave lasting injuries.`\
-https://nytimes.com/2024/08/28/health/eastern-equine-encephalitis-prevention.html
-
-**Nvidia Revenue Jumps 122% in Positive Sign for Tech’s A.I. Boom**\
-`Expectations for the chipmaker have been through the roof because of its dominance in a key component for artificial intelligence systems.`\
-https://nytimes.com/2024/08/28/technology/nvidia-earnings-ai-stocks.html
 

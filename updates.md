@@ -1,3 +1,11 @@
+**Militia Group Member Gets 5 Years in Prison in Jan. 6 Capitol Riot**\
+`Dan Edwin Wilson, 48, of Louisville, Ky., messaged in a group chat that he was prepared to lay his life on the line, prosecutors said. “It is time for good men to do bad things,” he wrote.`\
+https://nytimes.com/2024/08/28/us/jan-6-riot-dan-wilson-sentenced.html
+
+**Your End-of-Summer Politics Quiz Is Here**\
+`How closely have you been following the news these last few months? Let’s find out.`\
+https://nytimes.com/interactive/2024/08/28/opinion/columnists/28collins-your-summer-politics-quiz-is-here.html
+
 **In the Battle for Georgia, Democrats Lose a Key Fighter**\
 `Bishop Reginald T. Jackson, a leader of the A.M.E. Church, turned Georgia into a political machine for Democrats by mobilizing voters of faith. Now, he is leaving the state just months before the November election.`\
 https://nytimes.com/2024/08/28/us/politics/georgia-faith-voters-bishop-jackson.html
