@@ -1,3 +1,11 @@
+**Steelers name Russell Wilson starting QB**\
+`Wilson had the edge on Fields since the QB "competition" began. Now the question becomes: Can he keep the job?`\
+https://nytimes.com/athletic/5726398/2024/08/28/russell-wilson-starter-justin-fields-steelers/
+
+**Trump Tells Dr. Phil, Without Evidence, That Harris and Biden Bear Some Blame for Shooting**\
+`The former president accused the president and vice president of denying him sufficient Secret Service protection, echoing remarks he made on social media in July.`\
+https://nytimes.com/2024/08/28/us/politics/trump-dr-phil-interview-assassination-attempt.html
+
 **C.I.A. Warning Helped Thwart ISIS Attack at Taylor Swift Concert in Vienna**\
 `The agency provided information about several suspects that led to arrests, the deputy director said.`\
 https://nytimes.com/2024/08/28/us/politics/cia-isis-warning-taylor-swift-concert.html

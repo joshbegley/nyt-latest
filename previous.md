@@ -1,3 +1,11 @@
+**Steelers name Russell Wilson starting QB**\
+`Wilson had the edge on Fields since the QB "competition" began. Now the question becomes: Can he keep the job?`\
+https://nytimes.com/athletic/5726398/2024/08/28/russell-wilson-starter-justin-fields-steelers/
+
+**Trump Tells Dr. Phil, Without Evidence, That Harris and Biden Bear Some Blame for Shooting**\
+`The former president accused the president and vice president of denying him sufficient Secret Service protection, echoing remarks he made on social media in July.`\
+https://nytimes.com/2024/08/28/us/politics/trump-dr-phil-interview-assassination-attempt.html
+
 **C.I.A. Warning Helped Thwart ISIS Attack at Taylor Swift Concert in Vienna**\
 `The agency provided information about several suspects that led to arrests, the deputy director said.`\
 https://nytimes.com/2024/08/28/us/politics/cia-isis-warning-taylor-swift-concert.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/28/us/politics/voters-texas-raids.html
 **On Kobe Bryant Day, a Celebration of Love and Basketball**\
 `Malika Andrews first caught the attention of fellow N.B.A. journalist Dave McMenamin as she conducted an interview with LeBron James.`\
 https://nytimes.com/2024/08/28/style/malika-andrews-dave-mcmenamin-kobe-bryant-day.html
-
-**Jenna Ortega Has Fans Lining Up at the Venice Film Festival**\
-`After the actors’ strike muted the 2023 edition, this year’s event is being powered by stars like the “Beetlejuice Beetlejuice” actress and her castmates.`\
-https://nytimes.com/2024/08/28/movies/jenna-ortega-beetlejuice-venice-film-festival.html
-
-**Canada’s Wildfires Were a Top Global Emitter Last Year, Study Says**\
-`The blazes produced more planet-warming carbon than almost any country, researchers found. That could upend key calculations on the pace of global warming.`\
-https://nytimes.com/2024/08/28/climate/canada-wildfires-emissions-carbon.html
 
