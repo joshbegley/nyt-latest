@@ -1,3 +1,7 @@
+**Why they stayed: The seniors who gave Notre Dame its Playoff expectations**\
+`Convincing Howard Cross, Jack Kiser, Rylie Mills and Xavier Watts to return, in that order, was crucial for Marcus Freeman and Notre Dame.`\
+https://nytimes.com/athletic/5728452/2024/08/28/notre-dame-football-cross-watts-kiser-mills/
+
 **Wordle Review No. 1,166**\
 `Scroll down for hints and conversation about the puzzle for August 28, 2024.`\
 https://nytimes.com/2024/08/28/crosswords/wordle-review-1166.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5728377/2024/08/28/ramsdale-sa-johnstone-arsenal-go
 **'Disgrace' Baroness Grey-Thompson had to 'crawl off' train - ParalympicsGB chief**\
 `ParalympicsGB chef de mission Penny Briscoe said it is an “absolute disgrace” that 11-time Paralympic gold medallist Baroness Tanni Grey-Thompson was forced to &#8220;crawl off&#8221; a train.`\
 https://nytimes.com/athletic/5728667/2024/08/28/tanni-grey-thompson-train-paralympics/
-
-**Barcelona's Bernal suffers ACL injury**\
-`Barcelona midfielder Marc Bernal is expected to miss the remainder of the season after suffering an anterior cruciate ligament (ACL) injury.`\
-https://nytimes.com/athletic/5728552/2024/08/28/marc-bernal-barcelona-injury/
 
