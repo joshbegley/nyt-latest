@@ -1,3 +1,15 @@
+**‘No one can go outside’: People in the West Bank say they are trapped in their homes.**\
+`By Adam Rasgon, Raja Abdulrahim and Aaron Boxerman`\
+https://nytimes.com/live/2024/08/28/world/israel-hamas-gaza-war/no-one-can-go-outside-people-in-the-west-bank-say-they-are-trapped-in-their-homes
+
+**Our Bigger Brains Came With a Downside: Faster Aging**\
+`A study comparing chimpanzee and human brains suggests that the regions that grew the most during human evolution are the most susceptible to aging.`\
+https://nytimes.com/2024/08/28/science/chimpanzee-brain-aging.html
+
+**Jake Ciely's 2024 Fantasy Football Rankings: Post NFL Draft ranks update**\
+`Now that the dust has settled on the 2024 NFL Draft, Jake Ciely has updated his fantasys football rankings. `\
+https://nytimes.com/athletic/5454803/2024/08/28/2024-fantasy-football-rankings/
+
 **Messi returns to Inter Miami training**\
 `Lionel Messi today rejoined Inter Miami’s squad for training, but in a limited capacity.`\
 https://nytimes.com/athletic/5729354/2024/08/28/lionel-messi-inter-miami-training-return/
