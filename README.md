@@ -1,3 +1,7 @@
+**Mormon Church Broadens Restrictions for Transgender Members**\
+`The new guidance prohibits those pursuing gender transition from working with children, and bans baptism for those who have transitioned both medically and socially.`\
+https://nytimes.com/2024/08/27/us/mormon-church-transgender.html
+
 **Rich Hill returns. Can he bolster the Red Sox's pitching for the stretch run?**\
 `Hill is confident he can make a positive contribution. “I wouldn't be doing this if I didn’t love the game,” he said.`\
 https://nytimes.com/athletic/5728037/2024/08/27/rich-hill-red-sox-return-2024/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5727614/2024/08/27/cardinals-designate-shawn-armstr
 **Twins notes: Royce Lewis works out at second, Joe Ryan's regular season officially ends**\
 `There's not a high chance Lewis will play second in games, but Rocco Baldelli thinks working there will improve Lewis' overall defense.`\
 https://nytimes.com/athletic/5727836/2024/08/27/twins-royce-lewis-second-base-work/
-
-**Rams initial 53-man roster: One takeaway for every player who made the cut**\
-`Rams coach Sean McVay addressed the team trading LB Ernest Jones on Tuesday. "He was really impressive for us in what he did," McVay said.`\
-https://nytimes.com/athletic/5727105/2024/08/27/la-rams-final-53-player-roster/
 
