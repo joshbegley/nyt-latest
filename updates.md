@@ -1,3 +1,7 @@
+**Uruguay's Nunez given five-match ban for Copa America melee**\
+`CONMEBOL has announced sanctions stemming from the melee between Uruguay players and Colombia fans at this summer’s Copa America.`\
+https://nytimes.com/athletic/5728887/2024/08/28/uruguay-bans-colomnia-copa-america/
+
 **Recent Israeli Raids in the West Bank: A Timeline**\
 `Israel has ramped up a crackdown in the Israeli-occupied territory since before the Israel-Hamas war began last Oct. 7. Here are some of the major raids.`\
 https://nytimes.com/2024/08/28/world/middleeast/israel-palestinian-west-bank-clashes-timeline.html

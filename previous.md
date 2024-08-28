@@ -2,6 +2,10 @@
 `Israel has ramped up a crackdown in the Israeli-occupied territory since before the Israel-Hamas war began last Oct. 7. Here are some of the major raids.`\
 https://nytimes.com/2024/08/28/world/middleeast/israel-palestinian-west-bank-clashes-timeline.html
 
+**Uruguay's Nunez given five-match ban for Copa America melee**\
+`CONMEBOL has announced sanctions stemming from the melee between Uruguay players and Colombia fans at this summer’s Copa America.`\
+https://nytimes.com/athletic/5728887/2024/08/28/uruguay-bans-colomnia-copa-america/
+
 **Why they stayed: The seniors who gave Notre Dame its Playoff expectations**\
 `Convincing Howard Cross, Jack Kiser, Rylie Mills and Xavier Watts to return, in that order, was crucial for Marcus Freeman and Notre Dame.`\
 https://nytimes.com/athletic/5728452/2024/08/28/notre-dame-football-cross-watts-kiser-mills/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/28/style/past-relationships-red-flags.html
 **Shelling Kills 6 in Ukraine as Russia Pushes Ahead in East**\
 `The rest of the country, though, was largely spared from another consecutive night of large-scale Russian bombardment.`\
 https://nytimes.com/2024/08/28/world/europe/ukraine-russia-donetsk.html
-
-**Ramsdale, Sa, Johnstone: Goalkeeper merry-go-round waiting to be resolved before deadline**\
-`It feels as though a series of dominos are waiting to fall for goalkeeper moves in the transfer market`\
-https://nytimes.com/athletic/5728377/2024/08/28/ramsdale-sa-johnstone-arsenal-goalkeeper-transfer/
 
