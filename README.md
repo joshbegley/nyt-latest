@@ -1,3 +1,7 @@
+**Michael Crichton’s Estate Sues Warner Bros. Over ‘ER’ Remake**\
+`The best-selling author’s estate has filed suit over “The Pitt,” an upcoming series, claiming that it is an unauthorized reboot of the hit hospital drama.`\
+https://nytimes.com/2024/08/28/arts/television/michael-crichton-er-pitt-lawsuit.html
+
 **For Years, He Has Saved Lives in Rural America. Who Will Take His Place?**\
 `Volunteer ambulance squads are running out of volunteers. What happens when Bob VanCoughnett retires?`\
 https://nytimes.com/2024/08/28/nyregion/ambulance-corps-volunteers.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5726740/2024/08/28/us-open-recap-day-2-tsitsipas-pa
 **Don’t look now, but the Detroit Tigers are back above .500**\
 `A look at the youthful vibes that have powered the Tigers to wins in 12 of their past 15 games. `\
 https://nytimes.com/athletic/5728158/2024/08/28/detroit-tigers-win-above-500/
-
-**Manny Machado is getting back to full strength. That bodes well for the Padres**\
-`Monday and Tuesday brought Machado's most promising two-game stretch of the season as San Diego kept winning.`\
-https://nytimes.com/athletic/5727889/2024/08/28/manny-machado-home-runs-padres/
 
