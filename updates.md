@@ -1,3 +1,7 @@
+**Tour Championship odds, picks, DFS: Schauffele has course history on his side**\
+`Dennis Esser looks ahead to the 2024 Tour Championship. Scottie Scheffler and Xander Schauffele are the favorites.`\
+https://nytimes.com/athletic/5726918/2024/08/28/pga-tour-championship-odds-picks-dfs/
+
 **Leicester hopeful of completing El Khannouss signing**\
 `Leicester City are hopeful of completing the signing of Morocco attacking midfielder Bilal El Khannouss in the coming days.`\
 https://nytimes.com/athletic/5728300/2024/08/28/bilal-el-khannouss-leicester-transfer/

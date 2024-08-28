@@ -1,3 +1,7 @@
+**Tour Championship odds, picks, DFS: Schauffele has course history on his side**\
+`Dennis Esser looks ahead to the 2024 Tour Championship. Scottie Scheffler and Xander Schauffele are the favorites.`\
+https://nytimes.com/athletic/5726918/2024/08/28/pga-tour-championship-odds-picks-dfs/
+
 **Leicester hopeful of completing El Khannouss signing**\
 `Leicester City are hopeful of completing the signing of Morocco attacking midfielder Bilal El Khannouss in the coming days.`\
 https://nytimes.com/athletic/5728300/2024/08/28/bilal-el-khannouss-leicester-transfer/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/28/us/politics/harris-walz-georgia-bus-tour.html
 **Last Crusade of Mexico’s President: A Drastic Redesign of the Judiciary**\
 `A showdown over plans to reshape the entire judiciary is raising fears over the effect on the rule of law in Mexico and trade with the United States.`\
 https://nytimes.com/2024/08/28/world/americas/mexico-judicial-changes-analysis.html
-
-**Boeing’s No Good, Never-Ending Tailspin Might Take NASA With It**\
-`NASA’s quest to return astronauts to the moon is tied to the success — and failure — of Boeing and its engineers.`\
-https://nytimes.com/2024/08/28/opinion/nasa-boeing-starliner-moon.html
 
