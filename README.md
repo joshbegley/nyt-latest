@@ -1,3 +1,7 @@
+**The Mosquito-Borne Virus Raising Alarms in the Northeast**\
+`Recent infections from the Eastern equine encephalitis virus are worrying health officials. Severe cases can be deadly or leave lasting injuries.`\
+https://nytimes.com/2024/08/28/health/eastern-equine-encephalitis-prevention.html
+
 **Nvidia Revenue Jumps 122% in Positive Sign for Tech’s A.I. Boom**\
 `Expectations for the chipmaker have been through the roof because of its dominance in a key component for artificial intelligence systems.`\
 https://nytimes.com/2024/08/28/technology/nvidia-earnings-ai-stocks.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5729792/2024/08/28/dani-ceballos-real-madrid-betis-
 **5 More People Die From Listeria Linked to Boar’s Head Meats, C.D.C. Says**\
 `The nationwide outbreak that started in May has been connected to eight deaths. The C.D.C. is advising people not to eat any recalled products.`\
 https://nytimes.com/2024/08/28/us/listeria-outbreak-boars-head-meats.html
-
-**Would-Be Trump Assassin’s Interest in Violence Went Back to 2019**\
-`F.B.I. officials said the profile that has emerged of Thomas Crooks, based on an analysis of his electronics, resembles that of a mass shooter more than a politically motivated assassin.`\
-https://nytimes.com/2024/08/28/us/politics/thomas-crooks-trump-fbi.html
 
