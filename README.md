@@ -1,3 +1,11 @@
+**Algerian Man Charged Over Synagogue Arson Attack in France**\
+`The man expressed deep hatred of Jews and said he had acted to “support the Palestinian cause,” according to French antiterrorism prosecutors.`\
+https://nytimes.com/2024/08/28/world/europe/france-synagogue-arson-attack-charges.html
+
+**Harris Tours Georgia as Democrats See the State Fully in Play**\
+`The vice president on Wednesday began a bus tour in the rural southeastern corner of the state, as her campaign focuses heavily on Georgia and North Carolina, another Sun Belt battleground.`\
+https://nytimes.com/2024/08/28/us/politics/harris-georgia-trump.html
+
 **What Is the West Bank and Who Controls It?**\
 `Renewed violence has cast the a spotlight on the territory, where more than 600 Palestinians have been killed in clashes with the Israeli military since Oct. 7.`\
 https://nytimes.com/2024/08/28/world/middleeast/west-bank-what-where-who.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/28/us/jan-6-riot-dan-wilson-sentenced.html
 **Your End-of-Summer Politics Quiz Is Here**\
 `How closely have you been following the news these last few months? Let’s find out.`\
 https://nytimes.com/interactive/2024/08/28/opinion/columnists/28collins-your-summer-politics-quiz-is-here.html
-
-**In the Battle for Georgia, Democrats Lose a Key Fighter**\
-`Bishop Reginald T. Jackson, a leader of the A.M.E. Church, turned Georgia into a political machine for Democrats by mobilizing voters of faith. Now, he is leaving the state just months before the November election.`\
-https://nytimes.com/2024/08/28/us/politics/georgia-faith-voters-bishop-jackson.html
-
-**A Parisian Found Patriotism as He Designed Paralympics Costumes**\
-`Louis-Gabriel Nouchi was given an enormous task: create 700 distinctive garments for people with disabilities for the event’s opening ceremony.`\
-https://nytimes.com/2024/08/28/style/paralympics-opening-ceremony-designer.html
 
