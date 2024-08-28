@@ -1,3 +1,15 @@
+**Thursday Briefing: Israel Launches Major West Bank Raids**\
+`Plus, charges for Telegram’s founder.`\
+https://nytimes.com/2024/08/28/briefing/israel-west-bank-raids-telegram-founder-charges-harris-waltz-congress.html
+
+**Scoop City: Week 1 impact rookies and injuries**\
+`My four biggest takeaways from three weeks of "NFL football", plus an update on notable injuries.`\
+https://nytimes.com/athletic/5730029/2024/08/28/scoop-city-week-1-impact-rookies-and-injuries/
+
+**PSG defender Mukiele joins Bayer Leverkusen on loan**\
+`Paris Saint-Germain defender Nordi Mukiele has joined Bayer Leverkusen on a season-long loan.`\
+https://nytimes.com/athletic/5729963/2024/08/28/psg-mukiele-leverkusen-loan-transfer/
+
 **Militia Group Member Gets 5 Years in Prison in Jan. 6 Capitol Riot**\
 `Dan Edwin Wilson, 48, of Louisville, Ky., messaged in a group chat that he was prepared to lay his life on the line, prosecutors said. “It is time for good men to do bad things,” he wrote.`\
 https://nytimes.com/2024/08/28/us/jan-6-riot-dan-wilson-sentenced.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/08/28/insider/costco-membership.html
 **YES, MSG Networks to launch app showing local NY games**\
 `The Mets and SNY are not involved, as they do not have a direct-to-consumer product.`\
 https://nytimes.com/athletic/5727667/2024/08/28/yes-msg-network-gotham-sports-app-launch/
-
-**Chase misses practice, Bengals coach calls it 'day-to-day situation'**\
-`"I think I probably put my foot in my mouth and this is a day-to-day situation," coach Taylor told reporters after Wednesday's practice.`\
-https://nytimes.com/athletic/5729919/2024/08/28/jamarr-chase-misses-practice-bengals-coach-calls-it-day-to-day-situation/
-
-**Google’s Antitrust Defeat Opens the Door to Lawsuit From Yelp**\
-`Yelp complained for more than a decade that Google tilted the search market in its favor. After its rival’s landmark legal loss, it finally decided to sue.`\
-https://nytimes.com/2024/08/28/technology/google-yelp-lawsuit.html
-
-**Jack Smith’s New Case Against Trump Is Much Stronger Than His Old One**\
-`In this case, less is truly more.`\
-https://nytimes.com/live/2024/08/27/opinion/thepoint/jack-smith-trump-election
 

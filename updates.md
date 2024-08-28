@@ -1,3 +1,15 @@
+**Thursday Briefing: Israel Launches Major West Bank Raids**\
+`Plus, charges for Telegram’s founder.`\
+https://nytimes.com/2024/08/28/briefing/israel-west-bank-raids-telegram-founder-charges-harris-waltz-congress.html
+
+**Scoop City: Week 1 impact rookies and injuries**\
+`My four biggest takeaways from three weeks of "NFL football", plus an update on notable injuries.`\
+https://nytimes.com/athletic/5730029/2024/08/28/scoop-city-week-1-impact-rookies-and-injuries/
+
+**PSG defender Mukiele joins Bayer Leverkusen on loan**\
+`Paris Saint-Germain defender Nordi Mukiele has joined Bayer Leverkusen on a season-long loan.`\
+https://nytimes.com/athletic/5729963/2024/08/28/psg-mukiele-leverkusen-loan-transfer/
+
 **Militia Group Member Gets 5 Years in Prison in Jan. 6 Capitol Riot**\
 `Dan Edwin Wilson, 48, of Louisville, Ky., messaged in a group chat that he was prepared to lay his life on the line, prosecutors said. “It is time for good men to do bad things,” he wrote.`\
 https://nytimes.com/2024/08/28/us/jan-6-riot-dan-wilson-sentenced.html
