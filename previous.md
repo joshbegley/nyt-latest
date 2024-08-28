@@ -1,3 +1,7 @@
+**A Rare but Dangerous Mosquito-Borne Virus Is Changing Routines in Massachusetts**\
+`Ten communities are at high or critical risk from Eastern equine encephalitis, which killed a man in New Hampshire this month and sickened two people in Massachusetts and Vermont.`\
+https://nytimes.com/2024/08/28/us/a-rare-but-dangerous-mosquito-borne-virus-is-changing-routines-in-massachusetts.html
+
 **Elon Musk, Eyeing 2024 Edge, Hires Republican Political Adviser**\
 `The move suggests that Mr. Musk, the world’s richest person, is preparing to become even more involved in the presidential campaign and beyond.`\
 https://nytimes.com/2024/08/28/us/politics/elon-musk-political-adviser.html
@@ -29,8 +33,4 @@ https://nytimes.com/interactive/2024/08/28/arts/editors-recommendations-godzilla
 **Barcelona trying to hijack Red Bull Salzburg's move for Liverpool's Bajcetic**\
 `Barcelona are trying to hijack Red Bull Salzburg&#8217;s signing of Liverpool midfielder Stefan Bajcetic on a season-long loan.`\
 https://nytimes.com/athletic/5716444/2024/08/28/stefan-bajcetic-barcelona-liverpool-transfer/
-
-**Russell Wilson’s redemption or last ride? The QB’s legacy hangs in the balance**\
-`Four years ago, Wilson was a unanimous top tier QB on a Hall of Fame track. Now, he's fighting for his NFL future with the Steelers.`\
-https://nytimes.com/athletic/5725185/2024/08/28/russell-wilson-steelers-legacy-future/
 
