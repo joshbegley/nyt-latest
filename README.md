@@ -1,3 +1,7 @@
+**Liverpool close to signing Chiesa from Juventus**\
+`Liverpool are closing in on an agreement to sign Juventus forward Federico Chiesa.`\
+https://nytimes.com/athletic/5727124/2024/08/28/federico-chiesa-liverpool-transfer/
+
 **Ross Chastain on competing, expectations and, of course, watermelons: 12 Questions**\
 `Ross Chastain talks competitiveness, expectations for his team, what makes a good watermelon and more ahead of the regular-season finale.`\
 https://nytimes.com/athletic/5726487/2024/08/28/ross-chastain-nascar-watermelons-12-questions/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5728247/2024/08/28/everton-ndiaye-obrien-lindstrom-
 **Lowetide: What to expect from Oilers rookies in 2024-25**\
 `The Oilers losing two young players to the Blues via offer sheet has opened up some opportunity.`\
 https://nytimes.com/athletic/5725601/2024/08/28/edmonton-oilers-rookies-2024-25/
-
-**The Rise of Fare Evasion**\
-`We explore why people are ignoring public transit’s most basic rule.`\
-https://nytimes.com/2024/08/28/briefing/fare-evasion-new-york-bus-subway.html
 
