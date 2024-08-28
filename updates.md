@@ -1,3 +1,15 @@
+**The Best Summer Dinner Is Also the Easiest**\
+`A simple, savory tomato carpaccio begins this menu from David Tanis, followed by tender fish and a crisp plum-almond crumble.`\
+https://nytimes.com/2024/08/28/dining/summer-menu-tomatoes-plums.html
+
+**The Windup: You'll never guess who's back (again)**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5729139/2024/08/28/rich-hill-red-sox-the-windup/
+
+**Meet the Trans Actress Who Could Make Oscar History**\
+`Karla Sofía Gascón plays a drug kingpin who undergoes gender-affirming surgery in a performance that wowed Cannes. Is the academy next?`\
+https://nytimes.com/2024/08/28/movies/karla-sofia-gascon-emilia-perez-oscar.html
+
 **U.S., Chinese Officials Discuss Future Talks Between Biden and Xi**\
 `In talks in Beijing, the two sides made clear that many differences remain over Taiwan, technology export controls and trade disputes.`\
 https://nytimes.com/2024/08/28/world/asia/us-china-biden-xi.html
