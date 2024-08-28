@@ -24,7 +24,7 @@ https://nytimes.com/2024/08/28/pageoneplus/corrections-aug-28-2024.html
 
 **Telegram Founder Charged With Wide Range of Crimes in France**\
 `Pavel Durov was arrested near Paris over the weekend as part of a broad investigation into criminal activity on the platform.`\
-https://nytimes.com/2024/08/28/business/telegram-pavel-durov-charged.html
+https://nytimes.com/2024/08/28/business/telegram-ceo-pavel-durov-charged.html
 
 **Straddling Tense Divide, Family of Bedouin Hostage Celebrates His Release and Pray for Cease-Fire**\
 `The marginalized Bedouin community suffered deaths and abductions during the Hamas-led Oct. 7 attack, and also ache for their Palestinian relatives in Gaza.`\
