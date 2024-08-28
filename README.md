@@ -1,3 +1,15 @@
+**A Rare but Dangerous Mosquito-Borne Virus Is Changing Routines in Massachusetts**\
+`Ten communities are at high or critical risk from Eastern equine encephalitis, which killed a man in New Hampshire this month and sickened two people in Massachusetts and Vermont.`\
+https://nytimes.com/2024/08/28/us/a-rare-but-dangerous-mosquito-borne-virus-is-changing-routines-in-massachusetts.html
+
+**Elon Musk, Eyeing 2024 Edge, Hires Republican Political Adviser**\
+`The move suggests that Mr. Musk, the world’s richest person, is preparing to become even more involved in the presidential campaign and beyond.`\
+https://nytimes.com/2024/08/28/us/politics/elon-musk-political-adviser.html
+
+**Former Las Vegas Official Convicted in Journalist’s Murder**\
+`The highly unusual killing had raised fears about press freedom and the risks facing local journalists.`\
+https://nytimes.com/2024/08/28/us/las-vegas-journalist-murder-trial-verdict.html
+
 **Southampton agree £25m deal to sign Arsenal's Ramsdale on loan**\
 `Southampton have reached an agreement with Arsenal for the permanent transfer of goalkeeper Aaron Ramsdale for a fee of £25million.`\
 https://nytimes.com/athletic/5719499/2024/08/28/aaron-ramsdale-southampton-transfer-arsenal/
@@ -21,16 +33,4 @@ https://nytimes.com/interactive/2024/08/28/arts/editors-recommendations-godzilla
 **Barcelona trying to hijack Red Bull Salzburg's move for Liverpool's Bajcetic**\
 `Barcelona are trying to hijack Red Bull Salzburg&#8217;s signing of Liverpool midfielder Stefan Bajcetic on a season-long loan.`\
 https://nytimes.com/athletic/5716444/2024/08/28/stefan-bajcetic-barcelona-liverpool-transfer/
-
-**Russell Wilson’s redemption or last ride? The QB’s legacy hangs in the balance**\
-`Four years ago, Wilson was a unanimous top tier QB on a Hall of Fame track. Now, he's fighting for his NFL future with the Steelers.`\
-https://nytimes.com/athletic/5725185/2024/08/28/russell-wilson-steelers-legacy-future/
-
-**Evans retires from international football**\
-`Jonny Evans, the Manchester United and Northern Ireland defender, has announced his retirement from international football with immediate effect.`\
-https://nytimes.com/athletic/5729441/2024/08/28/northern-ireland-jonny-evans-retires/
-
-**‘No one can go outside’: People in the West Bank say they are trapped in their homes.**\
-`By Adam Rasgon, Raja Abdulrahim and Aaron Boxerman`\
-https://nytimes.com/live/2024/08/28/world/israel-hamas-gaza-war/no-one-can-go-outside-people-in-the-west-bank-say-they-are-trapped-in-their-homes
 
