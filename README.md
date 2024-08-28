@@ -1,36 +1,36 @@
-**Palace considering move for Bournemouth goalkeeper Travers**\
-`Crystal Palace are considering a move for Bournemouth goalkeeper Mark Travers as a potential replacement for Sam Johnstone.`\
-https://nytimes.com/athletic/5728332/2024/08/28/mark-travers-crystal-palace-bournemouth-transfer/
+**Drew Brees: Arch Manning, young QBs need 50 'high-quality starts' to be ready for NFL stage**\
+`Should Manning stay and start multiple seasons at Texas? Is NIL ruining college football? Brees weighed in on multiple topics.`\
+https://nytimes.com/athletic/5723924/2024/08/28/drew-brees-interview-nil-arch-manning/
 
-**Arsenal exploring deal for Wigan goalkeeper Tickle**\
-`Arsenal are exploring a deal to sign Wigan Athletic goalkeeper Sam Tickle.`\
-https://nytimes.com/athletic/5728232/2024/08/28/sam-tickle-arsenal-wigan-transfer/
+**Alabama Playoff Prospectus: Can Tide keep the Nick Saban standard alive under Kalen DeBoer?**\
+`Alabama has a new-look coaching staff, but there's still a lot of talent on the roster and expectations for a 12-team Playoff berth.`\
+https://nytimes.com/athletic/5720541/2024/08/28/alabama-college-football-playoff-preview-predictions/
 
-**Iran has smuggled arms to the West Bank to foment unrest, officials say.**\
-`By Farnaz Fassihi, Ronen Bergman and Eric Schmitt`\
-https://nytimes.com/live/2024/08/28/world/israel-hamas-gaza-war/iran-has-smuggled-arms-to-the-west-bank-to-foment-unrest-officials-say
+**Ranking all 28 Angels who played third since Anthony Rendon signed his $245 million deal**\
+`Since Rendon signed his big contract, a staggering 28 other players have manned third base for the Angels. We rank them — every single one.`\
+https://nytimes.com/athletic/5722974/2024/08/28/angels-anthony-rendon-third-base-ranking/
 
-**Tour Championship odds, picks, DFS: Schauffele has course history on his side**\
-`Dennis Esser looks ahead to the 2024 Tour Championship. Scottie Scheffler and Xander Schauffele are the favorites.`\
-https://nytimes.com/athletic/5726918/2024/08/28/pga-tour-championship-odds-picks-dfs/
+**'Just going to be me': Brandin Podziemski opens up on trade rumors, pressure and more**\
+`Podziemski, 21, enters his second season in Golden State likely with a starting spot following Klay Thompson’s departure.`\
+https://nytimes.com/athletic/5705669/2024/08/28/brandin-podziemski-warriors-lauri-markkanen/
 
-**Leicester hopeful of completing El Khannouss signing**\
-`Leicester City are hopeful of completing the signing of Morocco attacking midfielder Bilal El Khannouss in the coming days.`\
-https://nytimes.com/athletic/5728300/2024/08/28/bilal-el-khannouss-leicester-transfer/
+**Bears' Cole Kmet comes from an athletic family that may have saved the best for last**\
+`Cooper Kmet, in his senior year at St. Viator High School, is a rising prospect who is just starting to generate college interest.`\
+https://nytimes.com/athletic/5726805/2024/08/28/bears-cole-kmet-family/
 
-**Why should Yankees fans believe in team's bullpen ahead of postseason? Matt Blake answers**\
-`Blake believes Clay Holmes has been more effective than blown saves indicate, plus he discusses potential changes to the bullpen's makeup.`\
-https://nytimes.com/athletic/5727037/2024/08/28/yankees-bullpen-analysis-matt-blake/
+**'We feel like we have something to prove': Is unranked Wisconsin embracing underdog role?**\
+`This season represents an opportunity to put the program on the right path and establish an upward trajectory for Luke Fickell.`\
+https://nytimes.com/athletic/5727132/2024/08/28/wisconsin-football-unranked-underdog/
 
-**Ogbene joins Ipswich from Luton on four-year deal**\
-`Ipswich Town have completed the signing of Chiedozie Ogbene from Luton Town.`\
-https://nytimes.com/athletic/5728267/2024/08/28/chiedozie-ogbene-ipswich-transfer-complete/
+**The War That Won’t End**\
+`The war in Gaza has been going on for almost a year. Why have Israel and Hamas not reached a cease-fire?`\
+https://nytimes.com/2024/08/28/podcasts/the-daily/israel-gaza-hamas.html
 
-**How the Federal Cases Against Trump Came Sputtering Back to Life**\
-`After legal setbacks and long delays, Jack Smith, the special counsel, is signaling that he will pursue both the classified documents and election cases through the homestretch of the presidential campaign.`\
-https://nytimes.com/2024/08/28/us/politics/trump-documents-election-cases.html
+**Federal Cases Against Trump Revived, and Israeli Forces Raid West Bank**\
+`Plus, a new theory about orca boat attacks.`\
+https://nytimes.com/2024/08/28/podcasts/federal-cases-trump-west-bank.html
 
-**What the World Looks Like if We Take Trump at His Word**\
-`The former president’s plans for a second term are very likely to have unintended consequences.`\
-https://nytimes.com/2024/08/28/opinion/trump-tariffs-deportation-economy.html
+**Spirit owner Michele Kang wants to expand investment in women's soccer: 'I can be a catalyst'**\
+`Kang already owns the Spirit, Lyon and London City Lionesses.`\
+https://nytimes.com/athletic/5727056/2024/08/28/washington-spirit-global-womens-soccer/
 
