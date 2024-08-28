@@ -1,3 +1,7 @@
+**Barcelona's Bernal suffers ACL injury**\
+`Barcelona midfielder Marc Bernal is expected to miss the remainder of the season after suffering an anterior cruciate ligament (ACL) injury.`\
+https://nytimes.com/athletic/5728552/2024/08/28/marc-bernal-barcelona-injury/
+
 **Liverpool or Manchester United: Which club is bigger? - The Debate**\
 `England's two most successful sides face each other on Sunday — but which can lay claim to being the bigger club? Two writers discuss`\
 https://nytimes.com/athletic/5724725/2024/08/28/liverpool-manchester-united-biggest-club/
