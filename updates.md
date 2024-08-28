@@ -1,3 +1,7 @@
+**The Challenge of Interviewing Kamala Harris**\
+`‘She didn’t break eye contact. It was intense. You feel on trial.’`\
+https://nytimes.com/2024/08/28/us/politics/kamala-harris-interviews.html
+
 **Can Democrats Win Back Latino Voters by Treating Them Like Everyone Else?**\
 `Democrats seem to be recognizing that Latinos have the same hodgepodge mix of priorities as other voters. Will that help them make up ground lost to Donald J. Trump?`\
 https://nytimes.com/2024/08/28/us/politics/democrats-latino-election-campaign-2024.html
