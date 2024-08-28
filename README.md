@@ -1,3 +1,7 @@
+**Salesman for Moving Company That Held Goods Hostage Gets 2-Year Sentence**\
+`Andre Prince, who was convicted of conspiracy to commit wire fraud, used a “stage name” as he worked for companies that also frequently swapped identities.`\
+https://nytimes.com/2024/08/28/nyregion/moving-companies-fraud-scheme-sentence.html
+
 **Jerod Mayo says QB1 choice — Jacoby Brissett or Drake Maye — will be 'my decision to make'**\
 `Who will be the Patriots' starting quarterback in Week 1? We still don't know, but Mayo made clear who will be doing the deciding.`\
 https://nytimes.com/athletic/5730076/2024/08/28/jerod-mayo-patriots-qb-drake-maye-jacoby-brissett/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/28/us/politics/harris-georgia-trump.html
 **What Is the West Bank and Who Controls It?**\
 `Renewed violence has cast the a spotlight on the territory, where more than 600 Palestinians have been killed in clashes with the Israeli military since Oct. 7.`\
 https://nytimes.com/2024/08/28/world/middleeast/west-bank-what-where-who.html
-
-**Trump Reposts Crude Sexual Remark About Harris on Truth Social**\
-`Though the former president has a history of making crass insults about opponents, the reposts signal his willingness to continue to shatter longstanding political norms.`\
-https://nytimes.com/2024/08/28/us/politics/trump-truth-social-posts.html
 
