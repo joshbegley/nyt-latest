@@ -1,36 +1,36 @@
-**To Live in a Wild Sea**\
-`An 86-year-old woman’s decision to end her life raises complex questions about life and death for a filmmaker.`\
-https://nytimes.com/video/opinion/100000009532365/to-live-in-a-wild-sea.html
+**What Does It Take to Become a Prodigy Scam Artist?**\
+`In “Never Saw Me Coming,” Tanya Smith tells of her life as a young financial criminal — and the harsh prison sentence that changed everything.`\
+https://nytimes.com/2024/08/28/books/review/never-saw-me-coming-tanya-smith.html
 
-**Why are other Big Ten schools not over the Connor Stalions saga**\
-`The NCAA is weighing in, and the documentary is out. But in the Big Ten, there’s still bitterness associated with the Stalions situation.`\
-https://nytimes.com/athletic/5727639/2024/08/28/connor-stalions-scandal-big-ten/
+**A Rich, Gingery Tea Cake With Restorative Powers**\
+`A mother’s cure for the blues is transformed into a lively treat.`\
+https://nytimes.com/2024/08/28/magazine/ginger-tea-cake-recipe.html
 
-**Uruguayan player dies after collapsing during Copa Libertadores game**\
-`Uruguayan footballer Juan Izquierdo has died at the age of 27 after collapsing on the pitch during a Copa Libertadores fixture.`\
-https://nytimes.com/athletic/5728209/2024/08/28/juan-izquierdo-dies-club-nacional-copa-libertadores/
+**You Will Grow Old Waiting for Your Favorite Show to Come Back**\
+`Remember “Severance”? Remember “Stranger Things”? Today’s leisurely TV schedules are taxing memories and changing the experience.`\
+https://nytimes.com/2024/08/28/arts/television/rings-of-power-stranger-things-severance-return.html
 
-**Quotation of the Day: Brazil’s Wetland Fires Taking Toll on Wild Animals**\
-`Quotation of the Day for Wednesday, August 28, 2024.`\
-https://nytimes.com/2024/08/28/pageoneplus/quotation-of-the-day-brazils-wetland-fires-taking-toll-on-wild-animals.html
+**At Clemente Bar, a Love Story Between Chef and Artist**\
+`The chef Daniel Humm’s new cocktail bar is a collaboration with the Italian painter Francesco Clemente.`\
+https://nytimes.com/2024/08/28/dining/francesco-clemente-daniel-humm-nyc-bar.html
 
-**Maurer: MLS remains committed to Leagues Cup despite tough sell to fans**\
-`The competition’s format was completely overhauled last year to feature every team in MLS and Liga MX, the Mexican top-flight`\
-https://nytimes.com/athletic/5727785/2024/08/28/leagues-cup-mls-opinion/
+**Did You Even Go to the U.S. Open if You Didn’t Get a Hat?**\
+`The symbol of the tennis tournament — in Queens and beyond — is a simple cap with a logo and the year. The older the better.`\
+https://nytimes.com/2024/08/28/style/us-open-hats.html
 
-**U.S. Open day 3 watch guide: Novak Djokovic and Coco Gauff continue title defense**\
-`Day 3 of the U.S. Open moves the tournament on to the second round, with the bottom half of the draw returning for their next matchups.`\
-https://nytimes.com/athletic/5726511/2024/08/28/us-open-day-3-best-matches-to-watch/
+**In a Historic Cairo High-Rise, Apartments That Might Inspire a Longer Stay**\
+`The Immobilia Building, which was once the city’s tallest structure, is home to four new luxurious guest suites.`\
+https://nytimes.com/2024/08/28/t-magazine/apartments-cairo-immobilia.html
 
-**Israeli forces carry out raids and airstrikes in the West Bank. Here are the latest developments.**\
-`The Palestinian Health Ministry said at least nine people had been killed. Israel’s foreign minister, Israel Katz, said evacuations may be necessary in the West Bank as the military conducted operations there.`\
-https://nytimes.com/live/2024/08/28/world/israel-hamas-gaza-war/israel-west-bank-raids
+**Trading Porsches for a Houseboat and a Gentler Way of Life**\
+`Rocked by success, a “wallpaper guy” has found peace and a tolerable amount of society on a canal in Amsterdam.`\
+https://nytimes.com/2024/08/28/style/wallpaper-designer-vintage-houseboat-amsterdam.html
 
-**Michael Crichton’s Estate Calls New Show an Unauthorized ‘ER’ Remake in Lawsuit**\
-`The best-selling author’s estate has filed suit over “The Pitt,” an upcoming series, claiming that it is an unauthorized reboot of the hit hospital drama.`\
-https://nytimes.com/2024/08/28/arts/television/michael-crichton-er-pitt-lawsuit.html
+**4 New Crime Novels Thrumming With Menace**\
+`Our mystery columnist reviews books by Scott Phillips, Morgan Richter, Snowden Wright and Jamie Harrison.`\
+https://nytimes.com/2024/08/28/books/review/new-mystery-crime-novels.html
 
-**For Years, He Has Saved Lives in Rural America. Who Will Take His Place?**\
-`Volunteer ambulance squads are running out of volunteers. What happens when Bob VanCoughnett retires?`\
-https://nytimes.com/2024/08/28/nyregion/ambulance-corps-volunteers.html
+**Yes, Tree Collecting Is a Thing**\
+`A new book explores the obsession and explains why it’s not exactly like collecting dolls: “It puts people in touch with their own mortality.”`\
+https://nytimes.com/2024/08/28/realestate/tree-collectors.html
 
