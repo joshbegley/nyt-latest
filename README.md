@@ -1,4 +1,4 @@
-**Giants place Thairo Estrada, Tyler Matzek on waivers: Source**\
+**Giants place Thairo Estrada, Taylor Rogers, Tyler Matzek on waivers: Source**\
 `Estrada was the team's Opening Day second baseman and has been a top defender the past two years but has struggled at the plate.`\
 https://nytimes.com/athletic/5730302/2024/08/28/sf-giants-thairo-estrada-taylor-rogers-tyler-matzek-waivers/
 
