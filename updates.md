@@ -1,3 +1,7 @@
+**Israel Began a Major Military Operation in the West Bank**\
+`Also, the Supreme Court blocked another Biden student debt plan, for now. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/08/28/briefing/israel-raids-west-bank-biden-student-loans.html
+
 **Algerian Man Charged Over Synagogue Arson Attack in France**\
 `The man expressed deep hatred of Jews and said he had acted to “support the Palestinian cause,” according to French antiterrorism prosecutors.`\
 https://nytimes.com/2024/08/28/world/europe/france-synagogue-arson-attack-charges.html

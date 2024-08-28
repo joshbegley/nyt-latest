@@ -1,3 +1,7 @@
+**Israel Began a Major Military Operation in the West Bank**\
+`Also, the Supreme Court blocked another Biden student debt plan, for now. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/08/28/briefing/israel-raids-west-bank-biden-student-loans.html
+
 **Algerian Man Charged Over Synagogue Arson Attack in France**\
 `The man expressed deep hatred of Jews and said he had acted to “support the Palestinian cause,” according to French antiterrorism prosecutors.`\
 https://nytimes.com/2024/08/28/world/europe/france-synagogue-arson-attack-charges.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5729963/2024/08/28/psg-mukiele-leverkusen-loan-tran
 **Militia Group Member Gets 5 Years in Prison in Jan. 6 Capitol Riot**\
 `Dan Edwin Wilson, 48, of Louisville, Ky., messaged in a group chat that he was prepared to lay his life on the line, prosecutors said. “It is time for good men to do bad things,” he wrote.`\
 https://nytimes.com/2024/08/28/us/jan-6-riot-dan-wilson-sentenced.html
-
-**Your End-of-Summer Politics Quiz Is Here**\
-`How closely have you been following the news these last few months? Let’s find out.`\
-https://nytimes.com/interactive/2024/08/28/opinion/columnists/28collins-your-summer-politics-quiz-is-here.html
 
