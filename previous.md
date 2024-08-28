@@ -1,3 +1,11 @@
+**Why Packers are rolling the dice at kicker and backup QB to start the season**\
+`Brayden Narveson and Malik Willis will be the Packers' kicker and backup QB, respectively, after both spending camp with the Titans.`\
+https://nytimes.com/athletic/5729909/2024/08/28/packers-kicker-backup-qb-gutekunst-lafleur/
+
+**49ers WR Aiyuk not at practice Wednesday: Latest on his hold-in**\
+`Aiyuk's hold-in is continuing even past the 53-man cutdown. `\
+https://nytimes.com/athletic/5729949/2024/08/28/brandon-aiyuk-49ers-practice-hold-in/
+
 **Salesman for Moving Company That Held Goods Hostage Gets 2-Year Sentence**\
 `Andre Prince, who was convicted of conspiracy to commit wire fraud, used a “stage name” as he worked for companies that also frequently swapped identities.`\
 https://nytimes.com/2024/08/28/nyregion/moving-companies-fraud-scheme-sentence.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/28/briefing/israel-raids-west-bank-biden-student-loa
 **Algerian Man Charged Over Synagogue Arson Attack in France**\
 `The man expressed deep hatred of Jews and said he had acted to “support the Palestinian cause,” according to French antiterrorism prosecutors.`\
 https://nytimes.com/2024/08/28/world/europe/france-synagogue-arson-attack-charges.html
-
-**Harris Tours Georgia as Democrats See the State Fully in Play**\
-`The vice president on Wednesday began a bus tour in the rural southeastern corner of the state, as her campaign focuses heavily on Georgia and North Carolina, another Sun Belt battleground.`\
-https://nytimes.com/2024/08/28/us/politics/harris-georgia-trump.html
-
-**What Is the West Bank and Who Controls It?**\
-`Renewed violence has cast the a spotlight on the territory, where more than 600 Palestinians have been killed in clashes with the Israeli military since Oct. 7.`\
-https://nytimes.com/2024/08/28/world/middleeast/west-bank-what-where-who.html
 

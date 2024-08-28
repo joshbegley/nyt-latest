@@ -1,3 +1,11 @@
+**Why Packers are rolling the dice at kicker and backup QB to start the season**\
+`Brayden Narveson and Malik Willis will be the Packers' kicker and backup QB, respectively, after both spending camp with the Titans.`\
+https://nytimes.com/athletic/5729909/2024/08/28/packers-kicker-backup-qb-gutekunst-lafleur/
+
+**49ers WR Aiyuk not at practice Wednesday: Latest on his hold-in**\
+`Aiyuk's hold-in is continuing even past the 53-man cutdown. `\
+https://nytimes.com/athletic/5729949/2024/08/28/brandon-aiyuk-49ers-practice-hold-in/
+
 **Buckley: Why it's so important for Jerod Mayo to take ownership of Patriots' QB decision**\
 `Who will be the Patriots' starting quarterback in Week 1? We still don't know, but Mayo made clear who will be doing the deciding.`\
 https://nytimes.com/athletic/5730076/2024/08/28/jerod-mayo-patriots-qb-drake-maye-jacoby-brissett/
