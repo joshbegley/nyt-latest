@@ -1,3 +1,11 @@
+**For Years, He Has Saved Lives in Rural America. Who Will Take His Place?**\
+`Volunteer ambulance squads are running out of volunteers. What happens when Bob VanCoughnett retires?`\
+https://nytimes.com/2024/08/28/nyregion/ambulance-corps-volunteers.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/28/crosswords/spelling-bee-forum.html
+
 **Barcelona briefing: Olmo's perfect start, Pedri shines again, misery for Marc Bernal**\
 `Barcelona's 2-1 victory at Rayo Vallecano extended their perfect start to the new La Liga season`\
 https://nytimes.com/athletic/5728206/2024/08/28/barcelona-briefing-olmos-perfect-start-pedri-shines-again-misery-for-marc-bernal/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5728158/2024/08/28/detroit-tigers-win-above-500/
 **Manny Machado is getting back to full strength. That bodes well for the Padres**\
 `Monday and Tuesday brought Machado's most promising two-game stretch of the season as San Diego kept winning.`\
 https://nytimes.com/athletic/5727889/2024/08/28/manny-machado-home-runs-padres/
-
-**Uruguayan Soccer Player Dies Days After Collapsing During a Match**\
-`Juan Izquierdo, 27, suffered cardiac arrest on Aug. 22 while he was playing for Nacional against São Paulo in Brazil.`\
-https://nytimes.com/2024/08/28/sports/soccer/juan-izquierdo-dead.html
-
-**Elliot Anderson: Newcastle's loss is already Forest's considerable gain**\
-`Elliot Anderson wasn't expecting to leave, Eddie Howe didn't want him to depart - Forest are thrilled with their new midfielder `\
-https://nytimes.com/athletic/5726806/2024/08/28/elliot-anderson-nottingham-forest-newcastle-transfer/
 
