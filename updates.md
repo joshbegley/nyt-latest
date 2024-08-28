@@ -1,3 +1,11 @@
+**Russia Bars Numerous U.S. Journalists From the Country**\
+`The list of barred journalists includes the top editor of The Wall Street Journal. Dozens of other Americans are also forbidden to enter Russia, which said the move was in response to sanctions against it.`\
+https://nytimes.com/2024/08/28/business/media/russia-bars-american-journalists.html
+
+**Sister Theresa Kane, 87, Dies; Challenged Pope on Ordaining Women**\
+`A progressive nun, she used a welcome address before Pope John Paul II in 1979 to call for equality in the ranks of the Roman Catholic Church.`\
+https://nytimes.com/2024/08/28/us/sister-theresa-kane-dead.html
+
 **Berkshire Hathaway Hits $1 Trillion in Market Value**\
 `Warren Buffett’s conglomerate joined a small club of companies that have crossed the mark.`\
 https://nytimes.com/2024/08/28/business/berkshire-hathaway-trillion-market-cap.html
