@@ -1,3 +1,7 @@
+**Barcelona's Bernal suffers ACL injury**\
+`Barcelona midfielder Marc Bernal is expected to miss the remainder of the season after suffering an anterior cruciate ligament (ACL) injury.`\
+https://nytimes.com/athletic/5728552/2024/08/28/marc-bernal-barcelona-injury/
+
 **Liverpool or Manchester United: Which club is bigger? - The Debate**\
 `England's two most successful sides face each other on Sunday — but which can lay claim to being the bigger club? Two writers discuss`\
 https://nytimes.com/athletic/5724725/2024/08/28/liverpool-manchester-united-biggest-club/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5634552/2024/08/28/blues-offseason-additions-speed/
 **Palace agree Lacroix fee with Wolfsburg**\
 `Crystal Palace have agreed a fee to sign defender Maxence Lacroix from Wolfsburg.`\
 https://nytimes.com/athletic/5728567/2024/08/28/maxence-lacroix-crystal-palace-transfer/
-
-**The Athletic FC: Why Arsenal signed Merino, Tonali's road to redemption, Leagues Cup 'a joke'**\
-`Today in The Athletic FC: Why Arsenal signed Merino, inside Tonali's comeback after a betting ban, all the transfer latest.`\
-https://nytimes.com/athletic/5728358/2024/08/28/merino-arsenal-tonali-redemption-leagues-cup/
 
