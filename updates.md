@@ -1,3 +1,7 @@
+**Lankshear set to stay at Spurs and be involved with first team**\
+`Tottenham Hotspur striker Will Lankshear is set to stay at the club this season despite receiving several loan offers.`\
+https://nytimes.com/athletic/5726209/2024/08/28/tottenham-will-lankshear-loan-transfer/
+
 **Ravens' initial 53-man roster features no surprises. But it's fair to ask, what's next?**\
 `Eight of Baltimore’s nine rookie draft picks made the team. And for the 20th time in 21 seasons, the Ravens kept an undrafted free agent. `\
 https://nytimes.com/athletic/5728098/2024/08/28/ravens-53-man-roster-cutdown-day/
