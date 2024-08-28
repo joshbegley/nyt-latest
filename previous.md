@@ -1,3 +1,11 @@
+**To Live in a Wild Sea**\
+`An 86-year-old woman’s decision to end her life raises complex questions about life and death for a filmmaker.`\
+https://nytimes.com/video/opinion/100000009532365/to-live-in-a-wild-sea.html
+
+**Why are other Big Ten schools not over the Connor Stalions saga**\
+`The NCAA is weighing in, and the documentary is out. But in the Big Ten, there’s still bitterness associated with the Stalions situation.`\
+https://nytimes.com/athletic/5727639/2024/08/28/connor-stalions-scandal-big-ten/
+
 **Uruguayan player dies after collapsing during Copa Libertadores game**\
 `Uruguayan footballer Juan Izquierdo has died at the age of 27 after collapsing on the pitch during a Copa Libertadores fixture.`\
 https://nytimes.com/athletic/5728209/2024/08/28/juan-izquierdo-dies-club-nacional-copa-libertadores/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/28/arts/television/michael-crichton-er-pitt-lawsuit.
 **For Years, He Has Saved Lives in Rural America. Who Will Take His Place?**\
 `Volunteer ambulance squads are running out of volunteers. What happens when Bob VanCoughnett retires?`\
 https://nytimes.com/2024/08/28/nyregion/ambulance-corps-volunteers.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/08/28/crosswords/spelling-bee-forum.html
-
-**Barcelona briefing: Olmo's perfect start, Pedri shines again, misery for Marc Bernal**\
-`Barcelona's 2-1 victory at Rayo Vallecano extended their perfect start to the new La Liga season`\
-https://nytimes.com/athletic/5728206/2024/08/28/barcelona-olmo-rayo-pedri-bernal-la-liga/
 

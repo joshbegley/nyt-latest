@@ -1,3 +1,11 @@
+**To Live in a Wild Sea**\
+`An 86-year-old woman’s decision to end her life raises complex questions about life and death for a filmmaker.`\
+https://nytimes.com/video/opinion/100000009532365/to-live-in-a-wild-sea.html
+
+**Why are other Big Ten schools not over the Connor Stalions saga**\
+`The NCAA is weighing in, and the documentary is out. But in the Big Ten, there’s still bitterness associated with the Stalions situation.`\
+https://nytimes.com/athletic/5727639/2024/08/28/connor-stalions-scandal-big-ten/
+
 **Israeli forces carry out raids and airstrikes in the West Bank. Here are the latest developments.**\
 `The Palestinian Health Ministry said at least nine people had been killed. Israel’s foreign minister, Israel Katz, said evacuations may be necessary in the West Bank as the military conducted operations there.`\
 https://nytimes.com/live/2024/08/28/world/israel-hamas-gaza-war/israel-west-bank-raids
