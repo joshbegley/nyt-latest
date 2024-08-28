@@ -1,3 +1,7 @@
+**Trump Team Clashed With Official at Arlington National Cemetery**\
+`The military cemetery said in a statement that federal law prohibits political campaigning on the grounds, and that “there was an incident, and a report was filed.”`\
+https://nytimes.com/2024/08/27/us/politics/trump-arlington-cemetery-clash.html
+
 **Court Call**\
 `Jesse Goldberg goes puzzle-hopping.`\
 https://nytimes.com/2024/08/27/crosswords/daily-puzzle-2024-08-28.html

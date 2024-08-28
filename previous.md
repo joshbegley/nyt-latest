@@ -1,3 +1,7 @@
+**Trump Team Clashed With Official at Arlington National Cemetery**\
+`The military cemetery said in a statement that federal law prohibits political campaigning on the grounds, and that “there was an incident, and a report was filed.”`\
+https://nytimes.com/2024/08/27/us/politics/trump-arlington-cemetery-clash.html
+
 **Court Call**\
 `Jesse Goldberg goes puzzle-hopping.`\
 https://nytimes.com/2024/08/27/crosswords/daily-puzzle-2024-08-28.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5727105/2024/08/27/la-rams-final-53-player-roster/
 **Lions' initial 53-man roster with analysis**\
 `The Lions are short of 53 players, which guarantees more moves in the near future.`\
 https://nytimes.com/athletic/5727246/2024/08/27/detroit-lions-initial-53-man-roster-analysis/
-
-**Kawakami: 49ers' 2024 draft class > the previous three draft classes**\
-`After mostly missing on the previous three draft classes, the 49ers desperately needed the 2024 class to hit. It's already hitting big.`\
-https://nytimes.com/athletic/5724899/2024/08/27/49ers-2024-draft-class-the-previous-three-draft-classes-already-and-by-a-lot/
 
