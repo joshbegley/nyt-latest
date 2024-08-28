@@ -1,3 +1,11 @@
+**Trump Sees a World on Fire, and Says He Knows Who’s to Blame**\
+`Former President Donald J. Trump blames President Biden for crises around the globe. But the reality is that presidents inherit a world already hurtling through history.`\
+https://nytimes.com/2024/08/28/us/politics/trump-biden-iran-gaza-afghanistan-ukraine.html
+
+**Ofra Bikel, Filmmaker With a Focus on Criminal Justice, Dies at 94**\
+`Her award-winning documentaries for PBS’s “Frontline” series shed light on serious flaws in several cases and helped lead to the release of 13 prisoners.`\
+https://nytimes.com/2024/08/28/business/media/ofra-bikel-dead.html
+
 **Why Packers are rolling the dice at kicker and backup QB to start the season**\
 `Brayden Narveson and Malik Willis will be the Packers' kicker and backup QB, respectively, after both spending camp with the Titans.`\
 https://nytimes.com/athletic/5729909/2024/08/28/packers-kicker-backup-qb-gutekunst-lafleur/
