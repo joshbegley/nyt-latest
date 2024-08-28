@@ -2,7 +2,7 @@
 `Ten communities are at high or critical risk from Eastern equine encephalitis, which killed a man in New Hampshire this month and sickened two people in Massachusetts and Vermont.`\
 https://nytimes.com/2024/08/28/us/a-rare-but-dangerous-mosquito-borne-virus-is-changing-routines-in-massachusetts.html
 
-**Elon Musk, Eyeing 2024 Edge, Hires Republican Political Adviser**\
+**Elon Musk, Eyeing Edge for Trump, Hires Republican Political Adviser**\
 `The move suggests that Mr. Musk, the world’s richest person, is preparing to become even more involved in the presidential campaign and beyond.`\
 https://nytimes.com/2024/08/28/us/politics/elon-musk-political-adviser.html
 
