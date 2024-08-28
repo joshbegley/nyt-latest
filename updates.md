@@ -1,3 +1,11 @@
+**Word of the Day: atrophy**\
+`This word has appeared in 36 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/28/learning/word-of-the-day-atrophy.html
+
+**How the Mets' Sean Manaea is turning himself into Chris Sale — with the results to match**\
+`The Mets are 18-8 when Manaea starts this season. No team has won more games behind a starter on the mound.`\
+https://nytimes.com/athletic/5728184/2024/08/28/mets-sean-manaea-chris-sale-pitching/
+
 **U.S. Open day 2: Record losing streak continues, Paolini and Andreescu's rivalry evolves**\
 `The second day in Flushing Meadows brought the unluckiest loser, the Grand Slam rivalry of 2024, and more turmoil for the Greek.`\
 https://nytimes.com/athletic/5726740/2024/08/28/us-open-recap-day-2-tsitsipas-paolini-andreescu/
