@@ -1,3 +1,7 @@
+**Barcelona trying to hijack Red Bull Salzburg's move for Liverpool's Bajcetic**\
+`Barcelona are trying to hijack Red Bull Salzburg&#8217;s signing of Liverpool midfielder Stefan Bajcetic on a season-long loan.`\
+https://nytimes.com/athletic/5716444/2024/08/28/stefan-bajcetic-barcelona-liverpool-transfer/
+
 **Evans retires from international football**\
 `Jonny Evans, the Manchester United and Northern Ireland defender, has announced his retirement from international football with immediate effect.`\
 https://nytimes.com/athletic/5729441/2024/08/28/northern-ireland-jonny-evans-retires/
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/5729354/2024/08/28/lionel-messi-inter-miami-trainin
 https://nytimes.com/athletic/5727699/2024/08/28/jannik-sinner-team-world-number-one-tennis/
 
 **Steelers name Russell Wilson starting QB**\
-`Wilson had the edge on Fields since the QB "competition" began. Now the question becomes: Can he keep the job?`\
+`Wilson had the edge on Justin Fields since the QB "competition" began. Now the question becomes: Can he keep the job?`\
 https://nytimes.com/athletic/5726398/2024/08/28/russell-wilson-starter-justin-fields-steelers/
 
 **Trump Tells Dr. Phil, Without Evidence, That Harris and Biden Bear Some Blame for Shooting**\
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/28/us/politics/trump-dr-phil-interview-assassination
 **C.I.A. Warning Helped Thwart ISIS Attack at Taylor Swift Concert in Vienna**\
 `The agency provided information about several suspects that led to arrests, the deputy director said.`\
 https://nytimes.com/2024/08/28/us/politics/cia-isis-warning-taylor-swift-concert.html
-
-**Jake Ciely's 2024 Fantasy Football Rankings: Post NFL Draft ranks update**\
-`Now that the dust has settled on the 2024 NFL Draft, Jake Ciely has updated his fantasys football rankings. `\
-https://nytimes.com/athletic/5454803/2024/08/28/2024-fantasy-football-rankings/
 

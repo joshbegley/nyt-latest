@@ -1,3 +1,11 @@
+**Barcelona trying to hijack Red Bull Salzburg's move for Liverpool's Bajcetic**\
+`Barcelona are trying to hijack Red Bull Salzburg&#8217;s signing of Liverpool midfielder Stefan Bajcetic on a season-long loan.`\
+https://nytimes.com/athletic/5716444/2024/08/28/stefan-bajcetic-barcelona-liverpool-transfer/
+
+**Steelers name Russell Wilson starting QB**\
+`Wilson had the edge on Justin Fields since the QB "competition" began. Now the question becomes: Can he keep the job?`\
+https://nytimes.com/athletic/5726398/2024/08/28/russell-wilson-starter-justin-fields-steelers/
+
 **Evans retires from international football**\
 `Jonny Evans, the Manchester United and Northern Ireland defender, has announced his retirement from international football with immediate effect.`\
 https://nytimes.com/athletic/5729441/2024/08/28/northern-ireland-jonny-evans-retires/
