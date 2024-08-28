@@ -1,8 +1,16 @@
+**Giants cut day takeaways: Tommy DeVito survives; where to expect waiver wire additions**\
+`The Giants' 53-man roster is set. But not for long. "The roster's still fluid,” coach Brian Daboll said.`\
+https://nytimes.com/athletic/5727420/2024/08/27/new-york-giants-cut-day-53-takeaways/
+
+**Travis Kelce buys stake in racehorse with fitting name: Swift Delivery**\
+`Kelce recently bought a stake in a 3-year-old gelding that notably shares a portion of his name with Taylor Swift.`\
+https://nytimes.com/athletic/5727783/2024/08/27/travis-kelce-swift-delivery-racehorse-ownership/
+
 **Explaining the Eagles' initial 53-man roster decisions**\
 `Eagles GM Howie Roseman said the team is still incomplete.`\
 https://nytimes.com/athletic/5727071/2024/08/27/philadelphia-eagles-initial-53-man-roster-analysis/
 
-**Cardinals DFA Shawn Armstrong in yet another controversial roster move**\
+**Cardinals DFA Shawn Armstrong in another controversial roster move**\
 `St. Louis acquired Armstrong roughly four weeks ago from the Tampa Bay Rays in a trade for outfielder Dylan Carlson.`\
 https://nytimes.com/athletic/5727614/2024/08/27/cardinals-designate-shawn-armstrong-for-assignment/
 
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5724899/2024/08/27/49ers-2024-draft-class-the-previ
 **Seahawks 53-man roster: Plenty of surprises, Uchenna Nwosu avoids IR**\
 `The Seahawks kept two undrafted free agents while cutting a rookie draft pick and a former top pick. They also might not be done yet.`\
 https://nytimes.com/athletic/5727314/2024/08/27/seahawks-roster-cuts-53-cutdown/
-
-**Bengals' cutdown day takeaways: Ja'Marr Chase relief, Amarius Mims' timeline**\
-`Keep an eye on running back and defensive tackle as Cincinnati now looks to the waiver wire to address needs.`\
-https://nytimes.com/athletic/5727703/2024/08/27/bengals-cutdown-day-takeaways-chase-mims/
-
-**Colts cut day takeaways: TE Jelani Woods out for season; did Indy choose wrong QB3?**\
-`Did the Colts make the right call keeping Sam Ehlinger over Jason Bean? `\
-https://nytimes.com/athletic/5727612/2024/08/27/indianapolis-colts-cut-day-takeaways-jelani-woods-sam-ehlinger/
 
