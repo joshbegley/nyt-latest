@@ -1,3 +1,11 @@
+**Canada’s Wildfires Were a Top Global Emitter Last Year, Study Says**\
+`The blazes produced more planet-warming carbon than almost any country, researchers found. That could upend key calculations on the pace of global warming.`\
+https://nytimes.com/2024/08/28/climate/canada-wildfires-emissions-carbon.html
+
+**U.K.’s Starmer Wants to ‘Turn a Corner on Brexit.’ What Does That Mean?**\
+`On a trip to Germany, Prime Minister Keir Starmer exchanged warm words with Germany’s chancellor, Olaf Scholz. But a reset with the European Union will depend on actions too.`\
+https://nytimes.com/2024/08/28/world/europe/uks-starmer-wants-to-turn-a-corner-on-brexit-what-does-that-mean.html
+
 **Criticizing a Conservative’s Advice for Trump**\
 `Readers discuss a guest essay by Rich Lowry, National Review editor. Also: Debate rules; more campaign substance; pap smears; hospital abortions; hats.`\
 https://nytimes.com/2024/08/28/opinion/letters/rich-lowry-trump.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/28/business/two-sigma-founders-replaced.html
 **Italians Fight for the Right to Feast on the Beach**\
 `For those who feel priced out of expensive, privatized seaside clubs in Italy, elaborate lunch spreads feel like the last bastion of good spirits.`\
 https://nytimes.com/2024/08/28/dining/italians-beach-picnic-lunch.html
-
-**Google Says It Fixed Image Generator That Failed to Depict White People**\
-`The company will allow users of its Gemini chatbot to create images of people with artificial intelligence after disabling the feature six months ago.`\
-https://nytimes.com/2024/08/28/technology/google-gemini-ai-image-generator.html
-
-**Giorgi Mamardashvili to Liverpool: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500 series, we look at goalkeeper Mamardashvili's deal to join Liverpool from Spanish side Valencia`\
-https://nytimes.com/athletic/5700453/2024/08/28/giorgi-mamardashvili-to-liverpool-the-athletic-500-transfer-ratings/
 
