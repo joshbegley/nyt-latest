@@ -1,3 +1,7 @@
+**Palace considering move for Bournemouth goalkeeper Travers**\
+`Crystal Palace are considering a move for Bournemouth goalkeeper Mark Travers as a potential replacement for Sam Johnstone.`\
+https://nytimes.com/athletic/5728332/2024/08/28/mark-travers-crystal-palace-bournemouth-transfer/
+
 **Arsenal exploring deal for Wigan goalkeeper Tickle**\
 `Arsenal are exploring a deal to sign Wigan Athletic goalkeeper Sam Tickle.`\
 https://nytimes.com/athletic/5728232/2024/08/28/sam-tickle-arsenal-wigan-transfer/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/28/us/politics/trump-documents-election-cases.html
 **What the World Looks Like if We Take Trump at His Word**\
 `The former president’s plans for a second term are very likely to have unintended consequences.`\
 https://nytimes.com/2024/08/28/opinion/trump-tariffs-deportation-economy.html
-
-**Kamala Harris and Tim Walz Are Road-Tripping Through Georgia. Could They Actually Win There?**\
-`They plan to show up across the state and fight for every vote.`\
-https://nytimes.com/2024/08/28/opinion/harris-walz-georgia-bus.html
 
