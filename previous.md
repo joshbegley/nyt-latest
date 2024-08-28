@@ -1,3 +1,19 @@
+**Violence is growing in the West Bank, but the Israeli military is mainly focusing on only one kind.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/08/28/world/israel-hamas-gaza-war/violence-is-growing-in-the-west-bank-but-the-israeli-military-is-mainly-focusing-on-only-one-kind
+
+**At Least 10 Killed as Israeli Military Steps Up West Bank Raids**\
+`Hundreds of troops entered cities in the occupied territory, targeting Palestinian militants. It was a significant escalation after months of raids that have unfolded alongside the war in Gaza.`\
+https://nytimes.com/2024/08/28/world/middleeast/israel-west-bank-jenin.html
+
+**Election Worker Charged With Taking Kickbacks for Polling Place Jobs**\
+`Federal prosecutors said Nicole Torres sold election jobs to Bronx residents for $150 apiece. It is just the most recent smudge on the reputation of the New York City Board of Elections.`\
+https://nytimes.com/2024/08/28/nyregion/bronx-election-polls-worker-bribe.html
+
+**Real Madrid considering offers for midfielder Dani Ceballos**\
+`The 28-year-old has reiterated his desire to leave the Bernabeu for regular playing time`\
+https://nytimes.com/athletic/5729792/2024/08/28/dani-ceballos-real-madrid-betis-monaco-transfer/
+
 **5 More People Die From Listeria Linked to Boar’s Head Meats, C.D.C. Says**\
 `The nationwide outbreak that started in May has been connected to eight deaths. The C.D.C. is advising people not to eat any recalled products.`\
 https://nytimes.com/2024/08/28/us/listeria-outbreak-boars-head-meats.html
@@ -14,23 +30,7 @@ https://nytimes.com/2024/08/28/business/media/russia-bars-american-journalists.h
 `A progressive nun, she used a welcome address before Pope John Paul II in 1979 to call for equality in the ranks of the Roman Catholic Church.`\
 https://nytimes.com/2024/08/28/us/sister-theresa-kane-dead.html
 
-**Berkshire Hathaway Hits $1 Trillion in Market Value**\
+**Warren Buffett’s Berkshire Hathaway Hits $1 Trillion in Market Value**\
 `Warren Buffett’s conglomerate joined a small club of companies that have crossed the mark.`\
 https://nytimes.com/2024/08/28/business/berkshire-hathaway-trillion-market-cap.html
-
-**Wolves close to signing midfielder Andre from Fluminese**\
-`Wolves are close to signing Fluminese&#8217;s Andre with the midfielder due to fly to England for a medical.`\
-https://nytimes.com/athletic/5729756/2024/08/28/wovles-andre-transfer-close/
-
-**US Open, ESPN reach new 12-year deal**\
-`The deal is worth $170 million per year and $2.04 billion in total, sources briefed on the deal said.`\
-https://nytimes.com/athletic/5729737/2024/08/28/us-open-espn-contract-broadcasting-channel/
-
-**House G.O.P. Releases Jan. 6 Videos of Pelosi, Seeking to Shift Blame From Trump**\
-`In recordings shot for a documentary, the House speaker at the time rages about the attack on the Capitol and says she takes responsibility for not pushing the police to prepare better for violence by Trump supporters.`\
-https://nytimes.com/2024/08/28/us/politics/pelosi-trump-jan-6-video.html
-
-**Arsenal's Fabio Vieira rejoins Porto on season-long loan**\
-`Arsenal&#8217;s Fabio Vieira has rejoined former club Porto on a season-long loan deal.`\
-https://nytimes.com/athletic/5720682/2024/08/28/fabio-vieira-arsenal-loan-porto/
 

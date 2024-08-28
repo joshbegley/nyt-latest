@@ -1,3 +1,23 @@
+**Violence is growing in the West Bank, but the Israeli military is mainly focusing on only one kind.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/08/28/world/israel-hamas-gaza-war/violence-is-growing-in-the-west-bank-but-the-israeli-military-is-mainly-focusing-on-only-one-kind
+
+**At Least 10 Killed as Israeli Military Steps Up West Bank Raids**\
+`Hundreds of troops entered cities in the occupied territory, targeting Palestinian militants. It was a significant escalation after months of raids that have unfolded alongside the war in Gaza.`\
+https://nytimes.com/2024/08/28/world/middleeast/israel-west-bank-jenin.html
+
+**Election Worker Charged With Taking Kickbacks for Polling Place Jobs**\
+`Federal prosecutors said Nicole Torres sold election jobs to Bronx residents for $150 apiece. It is just the most recent smudge on the reputation of the New York City Board of Elections.`\
+https://nytimes.com/2024/08/28/nyregion/bronx-election-polls-worker-bribe.html
+
+**Real Madrid considering offers for midfielder Dani Ceballos**\
+`The 28-year-old has reiterated his desire to leave the Bernabeu for regular playing time`\
+https://nytimes.com/athletic/5729792/2024/08/28/dani-ceballos-real-madrid-betis-monaco-transfer/
+
+**Warren Buffett’s Berkshire Hathaway Hits $1 Trillion in Market Value**\
+`Warren Buffett’s conglomerate joined a small club of companies that have crossed the mark.`\
+https://nytimes.com/2024/08/28/business/berkshire-hathaway-trillion-market-cap.html
+
 **5 More People Die From Listeria Linked to Boar’s Head Meats, C.D.C. Says**\
 `The nationwide outbreak that started in May has been connected to eight deaths. The C.D.C. is advising people not to eat any recalled products.`\
 https://nytimes.com/2024/08/28/us/listeria-outbreak-boars-head-meats.html
