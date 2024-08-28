@@ -1,3 +1,7 @@
+**Wordle Review No. 1,166**\
+`Scroll down for hints and conversation about the puzzle for August 28, 2024.`\
+https://nytimes.com/2024/08/28/crosswords/wordle-review-1166.html
+
 **When life gives Mauricio Pochettino lemons, he believes the good times are coming**\
 `Potential new USMNT head coach Pochettino is a keen believer in auras, energy, and the power of a citrus fruit...`\
 https://nytimes.com/athletic/5724688/2024/08/28/pochettino-lemons-usmnt/
