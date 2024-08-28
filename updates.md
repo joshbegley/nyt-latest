@@ -1,3 +1,7 @@
+**Rich Hill returns. Can he bolster the Red Sox's pitching for the stretch run?**\
+`Hill is confident he can make a positive contribution. “I wouldn't be doing this if I didn’t love the game,” he said.`\
+https://nytimes.com/athletic/5728037/2024/08/27/rich-hill-red-sox-return-2024/
+
 **Trump Team Clashed With Official at Arlington National Cemetery**\
 `The military cemetery said in a statement that federal law prohibits political campaigning on the grounds, and that “there was an incident, and a report was filed.”`\
 https://nytimes.com/2024/08/27/us/politics/trump-arlington-cemetery-clash.html

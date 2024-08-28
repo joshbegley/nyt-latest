@@ -1,3 +1,7 @@
+**Rich Hill returns. Can he bolster the Red Sox's pitching for the stretch run?**\
+`Hill is confident he can make a positive contribution. “I wouldn't be doing this if I didn’t love the game,” he said.`\
+https://nytimes.com/athletic/5728037/2024/08/27/rich-hill-red-sox-return-2024/
+
 **Trump Team Clashed With Official at Arlington National Cemetery**\
 `The military cemetery said in a statement that federal law prohibits political campaigning on the grounds, and that “there was an incident, and a report was filed.”`\
 https://nytimes.com/2024/08/27/us/politics/trump-arlington-cemetery-clash.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5727836/2024/08/27/twins-royce-lewis-second-base-wo
 **Rams initial 53-man roster: One takeaway for every player who made the cut**\
 `Rams coach Sean McVay addressed the team trading LB Ernest Jones on Tuesday. "He was really impressive for us in what he did," McVay said.`\
 https://nytimes.com/athletic/5727105/2024/08/27/la-rams-final-53-player-roster/
-
-**Lions' initial 53-man roster with analysis**\
-`The Lions are short of 53 players, which guarantees more moves in the near future.`\
-https://nytimes.com/athletic/5727246/2024/08/27/detroit-lions-initial-53-man-roster-analysis/
 
