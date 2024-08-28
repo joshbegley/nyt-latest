@@ -1,3 +1,11 @@
+**Kouri Richins to Stand Trial for Murder in Husband’s Poisoning. Here’s What to Know.**\
+`The Utah mother of three wrote a children’s book about coping with grief after her husband’s death. Prosecutors say she mixed a lethal dose of fentanyl into his drink.`\
+https://nytimes.com/article/kouri-richins-husband-murder-trial.html
+
+**Juventus complete signing of midfielder Koopmeiners from Atalanta**\
+`Juventus have completed the signing of midfielder Teun Koopmeiners from Atalanta.`\
+https://nytimes.com/athletic/5729751/2024/08/28/juventus-koopmeiners-atalanta-transfer-complete/
+
 **A Rare but Dangerous Mosquito-Borne Virus Is Changing Routines in Massachusetts**\
 `Ten communities are at high or critical risk from Eastern equine encephalitis, which killed a man in New Hampshire this month and sickened two people in Massachusetts and Vermont.`\
 https://nytimes.com/2024/08/28/us/mosquito-virus-eee-massachusetts.html
