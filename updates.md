@@ -1,3 +1,7 @@
+**Rams initial 53-man roster: One takeaway for every player who made the cut**\
+`Rams coach Sean McVay addressed the team trading LB Ernest Jones on Tuesday. "He was really impressive for us in what he did," McVay said.`\
+https://nytimes.com/athletic/5727105/2024/08/27/la-rams-final-53-player-roster/
+
 **Lions' initial 53-man roster with analysis**\
 `The Lions are short of 53 players, which guarantees more moves in the near future.`\
 https://nytimes.com/athletic/5727246/2024/08/27/detroit-lions-initial-53-man-roster-analysis/
