@@ -1,3 +1,7 @@
+**‘We are in the first stages of this operation,’ an Israeli military spokesman says.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/08/28/world/israel-hamas-gaza-war/we-are-in-the-first-stages-of-this-operation-an-israeli-military-spokesman-says
+
 **José Alvarado's abrupt departure leaves void for Phillies: How they could adjust bullpen mix**\
 `The Phillies could change the bullpen mix with more frequency in September as they audition different arms and wait for Alvarado to return.`\
 https://nytimes.com/athletic/5728014/2024/08/28/jose-alavardo-absence-phillies-bullpen-options/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5726805/2024/08/28/bears-cole-kmet-family/
 **'We feel like we have something to prove': Is unranked Wisconsin embracing underdog role?**\
 `This season represents an opportunity to put the program on the right path and establish an upward trajectory for Luke Fickell.`\
 https://nytimes.com/athletic/5727132/2024/08/28/wisconsin-football-unranked-underdog/
-
-**The War That Won’t End**\
-`The war in Gaza has been going on for almost a year. Why have Israel and Hamas not reached a cease-fire?`\
-https://nytimes.com/2024/08/28/podcasts/the-daily/israel-gaza-hamas.html
 

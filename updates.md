@@ -1,3 +1,7 @@
+**‘We are in the first stages of this operation,’ an Israeli military spokesman says.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/08/28/world/israel-hamas-gaza-war/we-are-in-the-first-stages-of-this-operation-an-israeli-military-spokesman-says
+
 **The fantasy football FAAB guide: How to maximize your waiver wire budget**\
 `Michael Waterloo explains the dos and don'ts of how to manage your FAAB budget throughout the fantasy football season.`\
 https://nytimes.com/athletic/5726737/2024/08/28/fantasy-football-faab-guide/
