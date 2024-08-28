@@ -1,4 +1,8 @@
 **Giants cut day takeaways: Tommy DeVito survives; where to expect waiver wire additions**\
+`The 53-man roster is set. But bottom-of-the-depth-chart players shouldn't exhale yet. "The roster's still fluid,” coach Brian Daboll said.`\
+https://nytimes.com/athletic/5727420/2024/08/27/new-york-giants-cut-day-53-takeaways/
+
+**Giants cut day takeaways: Tommy DeVito survives; where to expect waiver wire additions**\
 `The Giants' 53-man roster is set. But not for long. "The roster's still fluid,” coach Brian Daboll said.`\
 https://nytimes.com/athletic/5727420/2024/08/27/new-york-giants-cut-day-53-takeaways/
 
