@@ -1,6 +1,6 @@
 **Giants place Thairo Estrada, Tyler Matzek on waivers: Source**\
 `Estrada was the team's Opening Day second baseman and has been a top defender the past two years but has struggled at the plate.`\
-https://nytimes.com/athletic/5730302/2024/08/28/sf-giants-thairo-estrada-tyler-matzek-waivers/
+https://nytimes.com/athletic/5730302/2024/08/28/sf-giants-thairo-estrada-taylor-rogers-tyler-matzek-waivers/
 
 **Ice bags are the U.S. Open's hottest accessory. Cooling players down is the hottest topic**\
 `At least once a year, Flushing Meadows turns into a tumble dryer — and one professor believes players could cool down better.`\
