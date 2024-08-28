@@ -1,3 +1,11 @@
+**Leicester hopeful of completing El Khannouss signing**\
+`Leicester City are hopeful of completing the signing of Morocco attacking midfielder Bilal El Khannouss in the coming days.`\
+https://nytimes.com/athletic/5728300/2024/08/28/bilal-el-khannouss-leicester-transfer/
+
+**Why should Yankees fans believe in team's bullpen ahead of postseason? Matt Blake answers**\
+`Blake believes Clay Holmes has been more effective than blown saves indicate, plus he discusses potential changes to the bullpen's makeup.`\
+https://nytimes.com/athletic/5727037/2024/08/28/yankees-bullpen-analysis-matt-blake/
+
 **Ogbene joins Ipswich from Luton on four-year deal**\
 `Ipswich Town have completed the signing of Chiedozie Ogbene from Luton Town.`\
 https://nytimes.com/athletic/5728267/2024/08/28/chiedozie-ogbene-ipswich-transfer-complete/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/28/world/americas/mexico-judicial-changes-analysis.h
 **Boeing’s No Good, Never-Ending Tailspin Might Take NASA With It**\
 `NASA’s quest to return astronauts to the moon is tied to the success — and failure — of Boeing and its engineers.`\
 https://nytimes.com/2024/08/28/opinion/nasa-boeing-starliner-moon.html
-
-**‘A Terrible President’: 12 Times Robert F. Kennedy Jr. Criticized Trump**\
-`Mr. Kennedy’s recent alliance with Donald J. Trump represented a sharp reversal of a long-combative relationship.`\
-https://nytimes.com/2024/08/28/us/politics/rfk-trump-criticisms.html
-
-**Surgeon General: Helping Stressed-Out Parents Should Be an Urgent Priority**\
-`Raising children is crucial work. Why don’t we treat it that way? `\
-https://nytimes.com/2024/08/28/opinion/surgeon-general-stress-parents.html
 
