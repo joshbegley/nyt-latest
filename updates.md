@@ -1,3 +1,11 @@
+**Algerian Man Charged Over Synagogue Arson Attack in France**\
+`The man expressed deep hatred of Jews and said he had acted to “support the Palestinian cause,” according to French antiterrorism prosecutors.`\
+https://nytimes.com/2024/08/28/world/europe/france-synagogue-arson-attack-charges.html
+
+**Harris Tours Georgia as Democrats See the State Fully in Play**\
+`The vice president on Wednesday began a bus tour in the rural southeastern corner of the state, as her campaign focuses heavily on Georgia and North Carolina, another Sun Belt battleground.`\
+https://nytimes.com/2024/08/28/us/politics/harris-georgia-trump.html
+
 **What Is the West Bank and Who Controls It?**\
 `Renewed violence has cast the a spotlight on the territory, where more than 600 Palestinians have been killed in clashes with the Israeli military since Oct. 7.`\
 https://nytimes.com/2024/08/28/world/middleeast/west-bank-what-where-who.html
