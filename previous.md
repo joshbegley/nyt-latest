@@ -1,3 +1,15 @@
+**Telegram Founder Charged With Wide Range of Crimes in France**\
+`Pavel Durov was arrested near Paris over the weekend as part of a broad investigation into criminal activity on the platform.`\
+https://nytimes.com/2024/08/28/business/telegram-pavel-durov-charged.html
+
+**Straddling Tense Divide, Family of Bedouin Hostage Celebrates His Release and Pray for Cease-Fire**\
+`The marginalized Bedouin community suffered deaths and abductions during the Hamas-led Oct. 7 attack, and also ache for their Palestinian relatives in Gaza.`\
+https://nytimes.com/2024/08/28/world/middleeast/israel-gaza-war-ceasefire.html
+
+**Elite Girls’ School Offers Free Ride to Families Making $100,000 or Less**\
+`The Brearley School, on the Upper East Side of Manhattan, hopes to diversify its student body with a free tuition program.`\
+https://nytimes.com/2024/08/28/nyregion/brearley-school-free-tuition-manhattan.html
+
 **Kouri Richins to Stand Trial for Murder in Husband’s Poisoning. Here’s What to Know.**\
 `The Utah mother of three wrote a children’s book about coping with grief after her husband’s death. Prosecutors say she mixed a lethal dose of fentanyl into his drink.`\
 https://nytimes.com/article/kouri-richins-husband-murder-trial.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/08/28/us/tennessee-murder-suspect-ceiling-fall.html
 **Submit your questions for Jeremy Rutherford’s St. Louis Blues mailbag**\
 `Have a question about the Blues? Submit it here and The Athletic’s Jeremy Rutherford will address a selection in his upcoming mailbag.`\
 https://nytimes.com/athletic/5729738/2024/08/28/st-louis-blues-jeremy-rutherford-mailbag-august-2024/
-
-**A Rare but Dangerous Mosquito-Borne Virus Is Changing Routines in Massachusetts**\
-`Ten communities are at high or critical risk from Eastern equine encephalitis, which killed a man in New Hampshire this month and sickened two people in Massachusetts and Vermont.`\
-https://nytimes.com/2024/08/28/us/mosquito-virus-eee-massachusetts.html
-
-**Elon Musk, Eyeing Edge for Trump, Hires Republican Political Adviser**\
-`The move suggests that Mr. Musk, the world’s richest person, is preparing to become even more involved in the presidential campaign and beyond.`\
-https://nytimes.com/2024/08/28/us/politics/elon-musk-political-adviser.html
-
-**Former Las Vegas Official Convicted in Journalist’s Murder**\
-`The highly unusual killing had raised fears about press freedom and the risks facing local journalists.`\
-https://nytimes.com/2024/08/28/us/las-vegas-journalist-murder-trial-verdict.html
 

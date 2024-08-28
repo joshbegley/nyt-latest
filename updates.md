@@ -1,3 +1,15 @@
+**Telegram Founder Charged With Wide Range of Crimes in France**\
+`Pavel Durov was arrested near Paris over the weekend as part of a broad investigation into criminal activity on the platform.`\
+https://nytimes.com/2024/08/28/business/telegram-pavel-durov-charged.html
+
+**Straddling Tense Divide, Family of Bedouin Hostage Celebrates His Release and Pray for Cease-Fire**\
+`The marginalized Bedouin community suffered deaths and abductions during the Hamas-led Oct. 7 attack, and also ache for their Palestinian relatives in Gaza.`\
+https://nytimes.com/2024/08/28/world/middleeast/israel-gaza-war-ceasefire.html
+
+**Elite Girls’ School Offers Free Ride to Families Making $100,000 or Less**\
+`The Brearley School, on the Upper East Side of Manhattan, hopes to diversify its student body with a free tuition program.`\
+https://nytimes.com/2024/08/28/nyregion/brearley-school-free-tuition-manhattan.html
+
 **Kouri Richins to Stand Trial for Murder in Husband’s Poisoning. Here’s What to Know.**\
 `The Utah mother of three wrote a children’s book about coping with grief after her husband’s death. Prosecutors say she mixed a lethal dose of fentanyl into his drink.`\
 https://nytimes.com/article/kouri-richins-husband-murder-trial.html
