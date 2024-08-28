@@ -1,3 +1,7 @@
+**Palace considering move for Bournemouth goalkeeper Travers**\
+`Crystal Palace are considering a move for Bournemouth goalkeeper Mark Travers as a potential replacement for Sam Johnstone.`\
+https://nytimes.com/athletic/5728332/2024/08/28/mark-travers-crystal-palace-bournemouth-transfer/
+
 **Arsenal exploring deal for Wigan goalkeeper Tickle**\
 `Arsenal are exploring a deal to sign Wigan Athletic goalkeeper Sam Tickle.`\
 https://nytimes.com/athletic/5728232/2024/08/28/sam-tickle-arsenal-wigan-transfer/
