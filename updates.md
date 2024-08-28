@@ -1,3 +1,7 @@
+**Recent Israeli Raids in the West Bank: A Timeline**\
+`Israel has ramped up a crackdown in the Israeli-occupied territory since before the Israel-Hamas war began last Oct. 7. Here are some of the major raids.`\
+https://nytimes.com/2024/08/28/world/middleeast/israel-palestinian-west-bank-clashes-timeline.html
+
 **Jenin, a Target of Israeli Raids, Is a Symbol of Rebellion for Palestinians**\
 `For decades, Jenin has played a role as a center of opposition to occupying powers.`\
 https://nytimes.com/2024/08/28/world/middleeast/jenin-west-bank-history-israel-palestinians.html

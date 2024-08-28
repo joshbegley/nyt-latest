@@ -1,3 +1,7 @@
+**Recent Israeli Raids in the West Bank: A Timeline**\
+`Israel has ramped up a crackdown in the Israeli-occupied territory since before the Israel-Hamas war began last Oct. 7. Here are some of the major raids.`\
+https://nytimes.com/2024/08/28/world/middleeast/israel-palestinian-west-bank-clashes-timeline.html
+
 **Why they stayed: The seniors who gave Notre Dame its Playoff expectations**\
 `Convincing Howard Cross, Jack Kiser, Rylie Mills and Xavier Watts to return, in that order, was crucial for Marcus Freeman and Notre Dame.`\
 https://nytimes.com/athletic/5728452/2024/08/28/notre-dame-football-cross-watts-kiser-mills/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/28/world/europe/ukraine-russia-donetsk.html
 **Ramsdale, Sa, Johnstone: Goalkeeper merry-go-round waiting to be resolved before deadline**\
 `It feels as though a series of dominos are waiting to fall for goalkeeper moves in the transfer market`\
 https://nytimes.com/athletic/5728377/2024/08/28/ramsdale-sa-johnstone-arsenal-goalkeeper-transfer/
-
-**'Disgrace' Baroness Grey-Thompson had to 'crawl off' train - ParalympicsGB chief**\
-`ParalympicsGB chef de mission Penny Briscoe said it is an “absolute disgrace” that 11-time Paralympic gold medallist Baroness Tanni Grey-Thompson was forced to &#8220;crawl off&#8221; a train.`\
-https://nytimes.com/athletic/5728667/2024/08/28/tanni-grey-thompson-train-paralympics/
 
