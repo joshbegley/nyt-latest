@@ -1,3 +1,7 @@
+**Colts GM Chris Ballard not worried about job security entering eighth season**\
+`Ballard has unwavering conviction in his team-building philosophy. “It’s what we believe. If it gets me fired, so be it.”`\
+https://nytimes.com/athletic/5730055/2024/08/28/indianapolis-colts-chris-ballard-gm-job-security/
+
 **Wide receiver position created Broncos' toughest choices. Did they get it right?**\
 `Cutting Tim Patrick was an "extremely difficult" choice, but Broncos believe they have built a well-rounded room of targets for Bo Nix.`\
 https://nytimes.com/athletic/5729591/2024/08/28/broncos-roster-wide-receivers/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/28/technology/california-ai-safety-bill.html
 **Foreign Citizens Charged With Carrying Out Swatting Attacks on U.S. Officials**\
 `The two men also made false reports about bomb threats at the Capitol and at religious buildings, with prosecutors documenting more than 100 hoax calls.`\
 https://nytimes.com/2024/08/28/us/foreign-citizens-swatting.html
-
-**Trump Sees a World on Fire, and Says He Knows Who’s to Blame**\
-`Former President Donald J. Trump blames President Biden for crises around the globe. But the reality is that presidents inherit a world already hurtling through history.`\
-https://nytimes.com/2024/08/28/us/politics/trump-biden-iran-gaza-afghanistan-ukraine.html
 
