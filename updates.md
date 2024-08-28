@@ -1,3 +1,7 @@
+**Ross Chastain on competing, expectations and, of course, watermelons: 12 Questions**\
+`Ross Chastain talks competitiveness, expectations for his team, what makes a good watermelon and more ahead of the regular-season finale.`\
+https://nytimes.com/athletic/5726487/2024/08/28/ross-chastain-nascar-watermelons-12-questions/
+
 **Here are the latest developments.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/08/28/world/israel-hamas-gaza-war/here-are-the-latest-developments
