@@ -31,6 +31,6 @@ https://nytimes.com/athletic/5727526/2024/08/27/chargers-initial-53-roster-easto
 https://nytimes.com/athletic/5727672/2024/08/27/sec-availability-report-kirby-smart/
 
 **Browns keep 4 QBs on initial 53-man roster as cutdown day brings a few mild surprises**\
-`More moves are likely coming over the next two days for Cleveland, with waivers being processed around the league on Wednesday. `\
+`More moves are likely coming over the next two days for Cleveland, with waivers being processed around the league Wednesday. `\
 https://nytimes.com/athletic/5727362/2024/08/27/browns-53-man-roster-cutdown-day/
 

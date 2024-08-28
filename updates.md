@@ -1,3 +1,7 @@
+**Browns keep 4 QBs on initial 53-man roster as cutdown day brings a few mild surprises**\
+`More moves are likely coming over the next two days for Cleveland, with waivers being processed around the league Wednesday. `\
+https://nytimes.com/athletic/5727362/2024/08/27/browns-53-man-roster-cutdown-day/
+
 **Rams initial 53-man roster: One takeaway for every player who made the cut**\
 `Rams coach Sean McVay addressed the team trading LB Ernest Jones on Tuesday. "He was really impressive for us in what he did," McVay said.`\
 https://nytimes.com/athletic/5727105/2024/08/27/la-rams-final-53-player-roster/
