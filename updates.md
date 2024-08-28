@@ -1,3 +1,7 @@
+**José Alvarado's abrupt departure leaves void for Phillies: How they could adjust bullpen mix**\
+`The Phillies could change the bullpen mix with more frequency in September as they audition different arms and wait for Alvarado to return.`\
+https://nytimes.com/athletic/5728014/2024/08/28/jose-alavardo-absence-phillies-bullpen-options/
+
 **Drew Brees: Arch Manning, young QBs need 50 'high-quality starts' to be ready for NFL stage**\
 `Should Manning stay and start multiple seasons at Texas? Is NIL ruining college football? Brees weighed in on multiple topics.`\
 https://nytimes.com/athletic/5723924/2024/08/28/drew-brees-interview-nil-arch-manning/
