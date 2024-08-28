@@ -1,3 +1,11 @@
+**Maresca on Chelsea first-team exiles: 'They are not going to get any minutes'**\
+`Enzo Maresca has warned that Raheem Sterling and Chelsea’s other first-team exiles will not get minutes under him if they stay at the club beyond Friday’s transfer deadline.`\
+https://nytimes.com/athletic/5729585/2024/08/28/chelsea-sterling-chilwell-maresca-transfer/
+
+**North Carolina Is Now a Prime Presidential Battleground**\
+`Political analysts here tell me that they’re struck by the burst of energy for the Harris campaign.`\
+https://nytimes.com/live/2024/08/27/opinion/thepoint/north-carolina-election-battleground
+
 **What’s in Our Queue? ‘Godzilla Minus One’ and More**\
 `I’m a national correspondent covering guns and culture. Here are five things I’ve watched, read or played recently.`\
 https://nytimes.com/interactive/2024/08/28/arts/editors-recommendations-godzilla.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/28/science/chimpanzee-brain-aging.html
 **Messi returns to Inter Miami training**\
 `Lionel Messi today rejoined Inter Miami’s squad for training, but in a limited capacity.`\
 https://nytimes.com/athletic/5729354/2024/08/28/lionel-messi-inter-miami-training-return/
-
-**How Jannik Sinner and the team that made him world No. 1 became a tennis Rorschach test**\
-`The story of his rise to the top of the sport was one of a team he built. Then he blew it up.`\
-https://nytimes.com/athletic/5727699/2024/08/28/jannik-sinner-team-world-number-one-tennis/
-
-**Steelers name Russell Wilson starting QB**\
-`Wilson had the edge on Justin Fields since the QB "competition" began. Now the question becomes: Can he keep the job?`\
-https://nytimes.com/athletic/5726398/2024/08/28/russell-wilson-starter-justin-fields-steelers/
 

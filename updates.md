@@ -1,3 +1,11 @@
+**Maresca on Chelsea first-team exiles: 'They are not going to get any minutes'**\
+`Enzo Maresca has warned that Raheem Sterling and Chelsea’s other first-team exiles will not get minutes under him if they stay at the club beyond Friday’s transfer deadline.`\
+https://nytimes.com/athletic/5729585/2024/08/28/chelsea-sterling-chilwell-maresca-transfer/
+
+**North Carolina Is Now a Prime Presidential Battleground**\
+`Political analysts here tell me that they’re struck by the burst of energy for the Harris campaign.`\
+https://nytimes.com/live/2024/08/27/opinion/thepoint/north-carolina-election-battleground
+
 **What’s in Our Queue? ‘Godzilla Minus One’ and More**\
 `I’m a national correspondent covering guns and culture. Here are five things I’ve watched, read or played recently.`\
 https://nytimes.com/interactive/2024/08/28/arts/editors-recommendations-godzilla.html
