@@ -1,3 +1,7 @@
+**Sarah Palin Is Granted New Libel Trial Against The New York Times**\
+`A federal appeals court said that the judge overseeing the original trial, which Ms. Palin lost, had wrongly excluded evidence and might have swayed jurors as they were deliberating.`\
+https://nytimes.com/2024/08/28/business/media/sarah-palin-libel-trial-new-york-times.html
+
 **Voting Rights Leaders Step Up Election Initiatives After Texas Raids**\
 `Groups working to get voters to the polls are expanding training and communications with election officials in anticipation of challenges.`\
 https://nytimes.com/2024/08/28/us/politics/voters-texas-raids.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5729244/2024/08/28/minnesota-vikings-mailbag-week-1
 **Far From Presidential Battlegrounds, Blue States Could Decide Congress**\
 `New York and California have become unlikely focal points in the fight for control of the House, as Democrats toil to appeal to wary voters in districts won by President Biden.`\
 https://nytimes.com/2024/08/28/us/politics/congress-races-new-york-california.html
-
-**In Boston, Walz assails Trump on labor and previews Harris’s debate: ‘It’s going to be good.’**\
-`By Kellen Browning`\
-https://nytimes.com/live/2024/08/28/us/harris-trump-election/in-boston-walz-assails-trump-on-labor-and-previews-harriss-debate-its-going-to-be-good
 
