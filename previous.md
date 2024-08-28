@@ -1,3 +1,7 @@
+**Nearly 400,000 Customers Without Power in Michigan After Thunderstorms**\
+`More than eight million people across the Midwest were under a severe thunderstorm watch late Tuesday.`\
+https://nytimes.com/2024/08/27/us/michigan-power-outages-storms.html
+
 **Mormon Church Broadens Restrictions for Transgender Members**\
 `The new guidance prohibits those pursuing gender transition from working with children, and bans baptism for those who have transitioned both medically and socially.`\
 https://nytimes.com/2024/08/27/us/mormon-church-transgender.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5727071/2024/08/27/philadelphia-eagles-initial-53-m
 **Cardinals DFA Shawn Armstrong in another controversial roster move**\
 `St. Louis acquired Armstrong roughly four weeks ago from the Tampa Bay Rays in a trade for outfielder Dylan Carlson.`\
 https://nytimes.com/athletic/5727614/2024/08/27/cardinals-designate-shawn-armstrong-for-assignment/
-
-**Twins notes: Royce Lewis works out at second, Joe Ryan's regular season officially ends**\
-`There's not a high chance Lewis will play second in games, but Rocco Baldelli thinks working there will improve Lewis' overall defense.`\
-https://nytimes.com/athletic/5727836/2024/08/27/twins-royce-lewis-second-base-work/
 

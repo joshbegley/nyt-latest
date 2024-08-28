@@ -1,3 +1,7 @@
+**Nearly 400,000 Customers Without Power in Michigan After Thunderstorms**\
+`More than eight million people across the Midwest were under a severe thunderstorm watch late Tuesday.`\
+https://nytimes.com/2024/08/27/us/michigan-power-outages-storms.html
+
 **Mormon Church Broadens Restrictions for Transgender Members**\
 `The new guidance prohibits those pursuing gender transition from working with children, and bans baptism for those who have transitioned both medically and socially.`\
 https://nytimes.com/2024/08/27/us/mormon-church-transgender.html
