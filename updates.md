@@ -1,3 +1,7 @@
+**Cowboys sign free agent RB Dalvin Cook: Reports**\
+`Cook signed with the Ravens in January for the postseason after the New York Jets released him.`\
+https://nytimes.com/athletic/5725658/2024/08/28/dalvin-cook-cowboys-signing/
+
 **Westbrook to wear No. 4, clears air on number change**\
 `"I chose to mark this new change with a 'new' number," Russell Westbrook said about why he'll wear No. 4 with the Nuggets.`\
 https://nytimes.com/athletic/5728895/2024/08/28/russell-westbrook-number-change-nuggets/
