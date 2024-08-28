@@ -1,3 +1,7 @@
+**Evans retires from international football**\
+`Jonny Evans, the Manchester United and Northern Ireland defender, has announced his retirement from international football with immediate effect.`\
+https://nytimes.com/athletic/5729441/2024/08/28/northern-ireland-jonny-evans-retires/
+
 **‘No one can go outside’: People in the West Bank say they are trapped in their homes.**\
 `By Adam Rasgon, Raja Abdulrahim and Aaron Boxerman`\
 https://nytimes.com/live/2024/08/28/world/israel-hamas-gaza-war/no-one-can-go-outside-people-in-the-west-bank-say-they-are-trapped-in-their-homes
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/28/us/politics/cia-isis-warning-taylor-swift-concert
 **Jake Ciely's 2024 Fantasy Football Rankings: Post NFL Draft ranks update**\
 `Now that the dust has settled on the 2024 NFL Draft, Jake Ciely has updated his fantasys football rankings. `\
 https://nytimes.com/athletic/5454803/2024/08/28/2024-fantasy-football-rankings/
-
-**$100 Million Podcast Deals Are Back, but Not for Just Any Celebrity**\
-`After partnerships with famous names fizzled in previous years, podcast companies are paying stars — like Travis and Jason Kelce — with a proven track record as hosts.`\
-https://nytimes.com/2024/08/28/arts/travis-jason-kelce-new-heights-podcast-wondery.html
 

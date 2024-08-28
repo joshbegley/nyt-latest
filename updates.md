@@ -1,3 +1,7 @@
+**Evans retires from international football**\
+`Jonny Evans, the Manchester United and Northern Ireland defender, has announced his retirement from international football with immediate effect.`\
+https://nytimes.com/athletic/5729441/2024/08/28/northern-ireland-jonny-evans-retires/
+
 **‘No one can go outside’: People in the West Bank say they are trapped in their homes.**\
 `By Adam Rasgon, Raja Abdulrahim and Aaron Boxerman`\
 https://nytimes.com/live/2024/08/28/world/israel-hamas-gaza-war/no-one-can-go-outside-people-in-the-west-bank-say-they-are-trapped-in-their-homes
