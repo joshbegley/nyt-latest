@@ -1,3 +1,7 @@
+**Sarah Palin Is Granted New Libel Trial Against The New York Times**\
+`A federal appeals court said that the judge overseeing the original trial, which Ms. Palin lost, had wrongly excluded evidence and might have swayed jurors as they were deliberating.`\
+https://nytimes.com/2024/08/28/business/media/sarah-palin-libel-trial-new-york-times.html
+
 **Voting Rights Leaders Step Up Election Initiatives After Texas Raids**\
 `Groups working to get voters to the polls are expanding training and communications with election officials in anticipation of challenges.`\
 https://nytimes.com/2024/08/28/us/politics/voters-texas-raids.html
