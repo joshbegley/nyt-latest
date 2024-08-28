@@ -1,3 +1,7 @@
+**Italians Fight for the Right to Feast on the Beach**\
+`For those who feel priced out of expensive, privatized seaside clubs in Italy, elaborate lunch spreads feel like the last bastion of good spirits.`\
+https://nytimes.com/2024/08/28/dining/italians-beach-picnic-lunch.html
+
 **Google Says It Fixed Image Generator That Failed to Depict White People**\
 `The company will allow users of its Gemini chatbot to create images of people with artificial intelligence after disabling the feature six months ago.`\
 https://nytimes.com/2024/08/28/technology/google-image-generator.html

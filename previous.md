@@ -1,3 +1,7 @@
+**Italians Fight for the Right to Feast on the Beach**\
+`For those who feel priced out of expensive, privatized seaside clubs in Italy, elaborate lunch spreads feel like the last bastion of good spirits.`\
+https://nytimes.com/2024/08/28/dining/italians-beach-picnic-lunch.html
+
 **Google Says It Fixed Image Generator That Failed to Depict White People**\
 `The company will allow users of its Gemini chatbot to create images of people with artificial intelligence after disabling the feature six months ago.`\
 https://nytimes.com/2024/08/28/technology/google-image-generator.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5729139/2024/08/28/rich-hill-red-sox-the-windup/
 **Meet the Trans Actress Who Could Make Oscar History**\
 `Karla Sofía Gascón plays a drug kingpin who undergoes gender-affirming surgery in a performance that wowed Cannes. Is the academy next?`\
 https://nytimes.com/2024/08/28/movies/karla-sofia-gascon-emilia-perez-oscar.html
-
-**U.S., Chinese Officials Discuss Future Talks Between Biden and Xi**\
-`In talks in Beijing, the two sides made clear that many differences remain over Taiwan, technology export controls and trade disputes.`\
-https://nytimes.com/2024/08/28/world/asia/us-china-biden-xi.html
 
