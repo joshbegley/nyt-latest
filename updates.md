@@ -1,3 +1,15 @@
+**Red Bull Salzburg reach agreement with Liverpool to sign Bajcetic on loan**\
+`Red Bull Salzburg have reached an agreement with Liverpool to sign Stefan Bajcetic on loan, despite a late hijack attempt from Barcelona.`\
+https://nytimes.com/athletic/5730109/2024/08/28/liverpool-bajcetic-salzburg-loan-agree-transfer/
+
+**Former Officer Charged With Killing Woman Whose Death Was Ruled a Suicide**\
+`Sandra Birchmore was pregnant when she was found dead in Canton, Mass., in 2021, and she had told the officer that he was the father, federal prosecutors said.`\
+https://nytimes.com/2024/08/28/us/sandra-birchmore-stoughton-police-death.html
+
+**Fulham's Vinicius in talks to join Red Bull Bragantino**\
+`RB Bragantino are in talks with Fulham over the signing of Carlos Vinicius.`\
+https://nytimes.com/athletic/5729947/2024/08/28/fulhams-carlos-vinicius-in-talks-to-join-red-bull-bragantino/
+
 **Israel Began a Major Military Operation in the West Bank**\
 `Also, the Supreme Court blocked another Biden student debt plan, for now. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/08/28/briefing/israel-raids-west-bank-biden-student-loans.html
