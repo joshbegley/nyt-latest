@@ -1,3 +1,7 @@
+**Westbrook to wear No. 4, clears air on number change**\
+`"I chose to mark this new change with a 'new' number," Russell Westbrook said about why he'll wear No. 4 with the Nuggets.`\
+https://nytimes.com/athletic/5728895/2024/08/28/russell-westbrook-number-change-nuggets/
+
 **How Wall Street Learned About Last Week’s Labor Data Before the Public**\
 `The Labor Department provided insight into a recent lapse in which revised payrolls data were given out à la carte before they were online.`\
 https://nytimes.com/2024/08/28/business/economy/wall-street-labor-data-leak.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5728452/2024/08/28/notre-dame-football-cross-watts-
 **Wordle Review No. 1,166**\
 `Scroll down for hints and conversation about the puzzle for August 28, 2024.`\
 https://nytimes.com/2024/08/28/crosswords/wordle-review-1166.html
-
-**When life gives Mauricio Pochettino lemons, he believes the good times are coming**\
-`Potential new USMNT head coach Pochettino is a keen believer in auras, energy, and the power of a citrus fruit...`\
-https://nytimes.com/athletic/5724688/2024/08/28/pochettino-lemons-usmnt/
 
