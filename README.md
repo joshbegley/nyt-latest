@@ -1,3 +1,11 @@
+**Ofra Bikel, Filmmaker With a Focus on Criminal Justice, Dies at 94**\
+`Her award-winning documentaries for PBS’s “Frontline” series shed light on serious flaws in several cases and helped lead to the release of 13 prisoners.`\
+https://nytimes.com/2024/08/28/business/media/ofra-bikel-dead.html
+
+**Why Packers are rolling the dice at kicker and backup QB to start the season**\
+`Brayden Narveson and Malik Willis will be the Packers' kicker and backup QB, respectively, after both spending camp with the Titans.`\
+https://nytimes.com/athletic/5729909/2024/08/28/packers-kicker-backup-qb-gutekunst-lafleur/
+
 **49ers WR Aiyuk not at practice Wednesday: Latest on his hold-in**\
 `Aiyuk's hold-in is continuing even past the 53-man cutdown. `\
 https://nytimes.com/athletic/5729949/2024/08/28/brandon-aiyuk-49ers-practice-hold-in/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5729947/2024/08/28/fulhams-carlos-vinicius-in-talks
 **Israel Began a Major Military Operation in the West Bank**\
 `Also, the Supreme Court blocked another Biden student debt plan, for now. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/08/28/briefing/israel-raids-west-bank-biden-student-loans.html
-
-**Algerian Man Charged Over Synagogue Arson Attack in France**\
-`The man expressed deep hatred of Jews and said he had acted to “support the Palestinian cause,” according to French antiterrorism prosecutors.`\
-https://nytimes.com/2024/08/28/world/europe/france-synagogue-arson-attack-charges.html
-
-**Harris Tours Georgia as Democrats See the State Fully in Play**\
-`The vice president on Wednesday began a bus tour in the rural southeastern corner of the state, as her campaign focuses heavily on Georgia and North Carolina, another Sun Belt battleground.`\
-https://nytimes.com/2024/08/28/us/politics/harris-georgia-trump.html
 
