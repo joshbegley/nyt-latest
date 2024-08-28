@@ -1,3 +1,7 @@
+**Elliot Anderson: Newcastle's loss is already Forest's considerable gain**\
+`Elliot Anderson wasn't expecting to leave, Eddie Howe didn't want him to depart - Forest are thrilled with their new midfielder `\
+https://nytimes.com/athletic/5726806/2024/08/28/elliot-anderson-nottingham-forest-newcastle-transfer/
+
 **Villa's cohort of runners bait opponents into pressing high. This is how they do it**\
 `Emery is tweaking a few in-possession principles to embolden his runners - it may be the next stage of his Villa team's evolution`\
 https://nytimes.com/athletic/5725798/2024/08/28/aston-villas-runners-rogers/

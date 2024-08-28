@@ -1,3 +1,7 @@
+**Elliot Anderson: Newcastle's loss is already Forest's considerable gain**\
+`Elliot Anderson wasn't expecting to leave, Eddie Howe didn't want him to depart - Forest are thrilled with their new midfielder `\
+https://nytimes.com/athletic/5726806/2024/08/28/elliot-anderson-nottingham-forest-newcastle-transfer/
+
 **Villa's cohort of runners bait opponents into pressing high. This is how they do it**\
 `Emery is tweaking a few in-possession principles to embolden his runners - it may be the next stage of his Villa team's evolution`\
 https://nytimes.com/athletic/5725798/2024/08/28/aston-villas-runners-rogers/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/28/briefing/trump-indictment-hostage-gaza.html
 **In Quebec’s Casse-Croûtes, Fast Food for a Short but Sweet Summer**\
 `By now, the most famous product of Quebec’s casse-croûtes, the poutine, has gone international. But can the guédille or the pinso ever become just as popular?`\
 https://nytimes.com/2024/08/28/world/canada/quebec-gaspe-poutine-casse-croutes.html
-
-**For Russia, Repelling Incursion Matters Less Than Advancing in Donbas**\
-`Despite its overwhelming firepower, Russia has been unable for weeks to push Ukrainian troops back across the border, with the failure as much the result of priorities as a lack of personnel.`\
-https://nytimes.com/2024/08/28/world/europe/russia-ukraine-incursion-war.html
 
