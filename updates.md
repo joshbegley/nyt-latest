@@ -1,3 +1,7 @@
+**Ravens' initial 53-man roster features no surprises. But it's fair to ask, what's next?**\
+`Eight of Baltimore’s nine rookie draft picks made the team. And for the 20th time in 21 seasons, the Ravens kept an undrafted free agent. `\
+https://nytimes.com/athletic/5728098/2024/08/28/ravens-53-man-roster-cutdown-day/
+
 **Hoffenheim make approach to sign Diao, 18, from Real Betis**\
 `Hoffenheim have approached Real Betis over signing Assane Diao.`\
 https://nytimes.com/athletic/5728298/2024/08/28/assane-diao-transfer-betis-hoffenheim/

@@ -1,3 +1,7 @@
+**Ravens' initial 53-man roster features no surprises. But it's fair to ask, what's next?**\
+`Eight of Baltimore’s nine rookie draft picks made the team. And for the 20th time in 21 seasons, the Ravens kept an undrafted free agent. `\
+https://nytimes.com/athletic/5728098/2024/08/28/ravens-53-man-roster-cutdown-day/
+
 **Hoffenheim make approach to sign Diao, 18, from Real Betis**\
 `Hoffenheim have approached Real Betis over signing Assane Diao.`\
 https://nytimes.com/athletic/5728298/2024/08/28/assane-diao-transfer-betis-hoffenheim/
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/08/28/world/israel-hamas-gaza-war/we-are-in-the-fi
 **José Alvarado's abrupt departure leaves void for Phillies: How they could adjust bullpen mix**\
 `The Phillies could change the bullpen mix with more frequency in September as they audition different arms and wait for Alvarado to return.`\
 https://nytimes.com/athletic/5728014/2024/08/28/jose-alavardo-absence-phillies-bullpen-options/
-
-**The fantasy football FAAB guide: How to maximize your waiver wire budget**\
-`Michael Waterloo explains the dos and don'ts of how to manage your FAAB budget throughout the fantasy football season.`\
-https://nytimes.com/athletic/5726737/2024/08/28/fantasy-football-faab-guide/
 
