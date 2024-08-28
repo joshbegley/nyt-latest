@@ -1,3 +1,11 @@
+**‘No one can go outside’: People in the West Bank say they are trapped in their homes.**\
+`By Adam Rasgon, Raja Abdulrahim and Aaron Boxerman`\
+https://nytimes.com/live/2024/08/28/world/israel-hamas-gaza-war/no-one-can-go-outside-people-in-the-west-bank-say-they-are-trapped-in-their-homes
+
+**Our Bigger Brains Came With a Downside: Faster Aging**\
+`A study comparing chimpanzee and human brains suggests that the regions that grew the most during human evolution are the most susceptible to aging.`\
+https://nytimes.com/2024/08/28/science/chimpanzee-brain-aging.html
+
 **Messi returns to Inter Miami training**\
 `Lionel Messi today rejoined Inter Miami’s squad for training, but in a limited capacity.`\
 https://nytimes.com/athletic/5729354/2024/08/28/lionel-messi-inter-miami-training-return/
@@ -18,19 +26,11 @@ https://nytimes.com/2024/08/28/us/politics/trump-dr-phil-interview-assassination
 `The agency provided information about several suspects that led to arrests, the deputy director said.`\
 https://nytimes.com/2024/08/28/us/politics/cia-isis-warning-taylor-swift-concert.html
 
+**Jake Ciely's 2024 Fantasy Football Rankings: Post NFL Draft ranks update**\
+`Now that the dust has settled on the 2024 NFL Draft, Jake Ciely has updated his fantasys football rankings. `\
+https://nytimes.com/athletic/5454803/2024/08/28/2024-fantasy-football-rankings/
+
 **$100 Million Podcast Deals Are Back, but Not for Just Any Celebrity**\
 `After partnerships with famous names fizzled in previous years, podcast companies are paying stars — like Travis and Jason Kelce — with a proven track record as hosts.`\
 https://nytimes.com/2024/08/28/arts/travis-jason-kelce-new-heights-podcast-wondery.html
-
-**Betty Halbreich, World’s ‘Most Famous Personal Shopper,’ Dies at 96**\
-`She was a local New York secret before gaining wider renown as the dressing-room companion of rich, powerful women. A dark past lay beneath her savoir faire.`\
-https://nytimes.com/2024/08/28/fashion/betty-halbreich-dead.html
-
-**The Most Exciting Hotels in London Right Now**\
-`From big brands to quirky independents, the city’s newest accommodations are luxurious in ways both quiet and not.`\
-https://nytimes.com/2024/08/28/t-magazine/london-hotels.html
-
-**Sarah Palin Is Granted New Libel Trial Against The New York Times**\
-`A federal appeals court said the judge overseeing the original trial, which Ms. Palin lost, had wrongly excluded evidence and might have swayed jurors as they were deliberating.`\
-https://nytimes.com/2024/08/28/business/media/sarah-palin-libel-trial-new-york-times.html
 
