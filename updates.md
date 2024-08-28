@@ -1,3 +1,11 @@
+**What does your Premier League club need to do before the transfer deadline?**\
+`There are only three days left until the transfer deadline — what does your club need to do?`\
+https://nytimes.com/athletic/5726410/2024/08/28/premier-league-transfer-window-deadline/
+
+**Dynasty league deliberations: Final preseason thoughts, including risers, fallers and more**\
+`Jeff Haverlack wraps up the preseason with his dynasty league thoughts, including his top players on the rise — Jameson Williams among them.`\
+https://nytimes.com/athletic/5726586/2024/08/28/dynasty-league-deliberations-final-preseason-thoughts-including-risers-fallers-and-more/
+
 **Typhoon Shanshan Lashes Japan With Torrential Rain**\
 `Some flights and trains were canceled, and rescuers in the central region were searching for three people whose home was struck by a landslide.`\
 https://nytimes.com/2024/08/28/world/asia/typhoon-shanshan-japan.html
