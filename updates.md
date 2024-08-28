@@ -1,3 +1,15 @@
+**House G.O.P. Releases Jan. 6 Videos of Pelosi, Seeking to Shift Blame From Trump**\
+`In recordings shot for a documentary, the House speaker at the time rages about the attack on the Capitol and says she takes responsibility for not pushing the police to prepare better for violence by Trump supporters.`\
+https://nytimes.com/2024/08/28/us/politics/pelosi-trump-jan-6-video.html
+
+**Arsenal's Fabio Vieira rejoins Porto on season-long loan**\
+`Arsenal&#8217;s Fabio Vieira has rejoined former club Porto on a season-long loan deal.`\
+https://nytimes.com/athletic/5720682/2024/08/28/fabio-vieira-arsenal-loan-porto/
+
+**Corrections: Aug. 28, 2024**\
+`Corrections that appeared in print on Wednesday, Aug. 28, 2024.`\
+https://nytimes.com/2024/08/28/pageoneplus/corrections-aug-28-2024.html
+
 **Telegram Founder Charged With Wide Range of Crimes in France**\
 `Pavel Durov was arrested near Paris over the weekend as part of a broad investigation into criminal activity on the platform.`\
 https://nytimes.com/2024/08/28/business/telegram-pavel-durov-charged.html
