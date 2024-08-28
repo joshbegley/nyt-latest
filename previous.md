@@ -1,3 +1,7 @@
+**C.I.A. Warning Helped Thwart ISIS Attack at Taylor Swift Concert in Vienna**\
+`The agency provided information about several suspects that led to arrests, the deputy director said.`\
+https://nytimes.com/2024/08/28/us/politics/cia-isis-warning-taylor-swift-concert.html
+
 **$100 Million Podcast Deals Are Back, but Not for Just Any Celebrity**\
 `After partnerships with famous names fizzled in previous years, podcast companies are paying stars — like Travis and Jason Kelce — with a proven track record as hosts.`\
 https://nytimes.com/2024/08/28/arts/travis-jason-kelce-new-heights-podcast-wondery.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/28/movies/jenna-ortega-beetlejuice-venice-film-festi
 **Canada’s Wildfires Were a Top Global Emitter Last Year, Study Says**\
 `The blazes produced more planet-warming carbon than almost any country, researchers found. That could upend key calculations on the pace of global warming.`\
 https://nytimes.com/2024/08/28/climate/canada-wildfires-emissions-carbon.html
-
-**U.K.’s Starmer Wants to ‘Turn a Corner on Brexit.’ What Does That Mean?**\
-`On a trip to Germany, Prime Minister Keir Starmer exchanged warm words with Germany’s chancellor, Olaf Scholz. But a reset with the European Union will depend on actions too.`\
-https://nytimes.com/2024/08/28/world/europe/keir-starmer-britain-germany-brexit.html
 

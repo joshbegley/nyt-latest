@@ -1,3 +1,7 @@
+**C.I.A. Warning Helped Thwart ISIS Attack at Taylor Swift Concert in Vienna**\
+`The agency provided information about several suspects that led to arrests, the deputy director said.`\
+https://nytimes.com/2024/08/28/us/politics/cia-isis-warning-taylor-swift-concert.html
+
 **$100 Million Podcast Deals Are Back, but Not for Just Any Celebrity**\
 `After partnerships with famous names fizzled in previous years, podcast companies are paying stars — like Travis and Jason Kelce — with a proven track record as hosts.`\
 https://nytimes.com/2024/08/28/arts/travis-jason-kelce-new-heights-podcast-wondery.html
