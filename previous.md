@@ -1,3 +1,7 @@
+**Major market movers: Rachaad White, Rashee Rice among recent risers, fallers in fantasy football drafts**\
+`Michael Salfino looks at the most recent trends in fantasy football ADP, explaining the major value changes to Rasheed Rice and many more. `\
+https://nytimes.com/athletic/5729120/2024/08/28/late-august-adp-risers-fallers-fantasy-football-2024/
+
 **The Best Summer Dinner Is Also the Easiest**\
 `A simple, savory tomato carpaccio begins this menu from David Tanis, followed by tender fish and a crisp plum-almond crumble.`\
 https://nytimes.com/2024/08/28/dining/summer-menu-tomatoes-plums.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/08/27/opinion/thepoint/jack-smith-trump
 **2025 NASCAR Cup Series schedule to shake up playoff tracks**\
 `NASCAR is changing up its playoff rotation among the notable changes to the 2025 Cup schedule, a copy of which was obtained by The Athletic.`\
 https://nytimes.com/athletic/5728556/2024/08/28/2025-nascar-cup-series-schedule-playoffs/
-
-**Serena Williams Reflects on Her Life and Legacy in a New Docuseries**\
-`“In the Arena: Serena Williams,” an eight-part documentary on ESPN+, revisits the highs and lows of the star’s career and considers her impact on tennis and beyond.`\
-https://nytimes.com/2024/08/28/arts/television/serena-williams-in-the-arena.html
 

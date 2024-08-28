@@ -1,3 +1,7 @@
+**Major market movers: Rachaad White, Rashee Rice among recent risers, fallers in fantasy football drafts**\
+`Michael Salfino looks at the most recent trends in fantasy football ADP, explaining the major value changes to Rasheed Rice and many more. `\
+https://nytimes.com/athletic/5729120/2024/08/28/late-august-adp-risers-fallers-fantasy-football-2024/
+
 **The Best Summer Dinner Is Also the Easiest**\
 `A simple, savory tomato carpaccio begins this menu from David Tanis, followed by tender fish and a crisp plum-almond crumble.`\
 https://nytimes.com/2024/08/28/dining/summer-menu-tomatoes-plums.html

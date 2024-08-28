@@ -1,3 +1,15 @@
+**Giorgi Mamardashvili to Liverpool: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we look at goalkeeper Mamardashvili's deal to join Liverpool from Spanish side Valencia`\
+https://nytimes.com/athletic/5700453/2024/08/28/giorgi-mamardashvili-to-liverpool-the-athletic-500-transfer-ratings/
+
+**Olmo changed the course of the game after he was introduced at half-time**\
+`Dani Olmo's debut was worth the wait — in 45 minutes he stole the show to continue Hansi Flick's perfect start `\
+https://nytimes.com/athletic/5728277/2024/08/28/dani-olmo-barcelona-debut/
+
+**Welcome to UW-Whitewater, the bedrock of the U.S. Paralympic wheelchair basketball teams**\
+`Of the 12 members on the Team USA men’s wheelchair basketball in Paris, six are alums of UW-Whitewater, the most of any university`\
+https://nytimes.com/athletic/5726882/2024/08/28/whitewater-us-paralympic-wheelchair-basketball-2024-paris/
+
 **Major market movers: Rachaad White, Rashee Rice among recent risers, fallers in fantasy football drafts**\
 `Michael Salfino looks at the most recent trends in fantasy football ADP, explaining the major value changes to Rasheed Rice and many more. `\
 https://nytimes.com/athletic/5729120/2024/08/28/late-august-adp-risers-fallers-fantasy-football-2024/
@@ -21,16 +33,4 @@ https://nytimes.com/2024/08/28/world/asia/us-china-biden-xi.html
 **What Will We Do With Our Free Power?**\
 `The price of solar power is plummeting faster than we ever expected.`\
 https://nytimes.com/2024/08/28/opinion/solar-power-free-energy.html
-
-**Should I Report My Friends’ Cocaine Dealer?**\
-`The magazine’s Ethicist columnist on the duty one has to mitigate drug-related harm.`\
-https://nytimes.com/2024/08/28/magazine/cocaine-dealer-friends-ethics.html
-
-**Even the Supreme Court Can’t Save Trump From Himself**\
-`Poor Trump. He probably thought he was in the clear.`\
-https://nytimes.com/live/2024/08/27/opinion/thepoint/jack-smith-trump
-
-**2025 NASCAR Cup Series schedule to shake up playoff tracks**\
-`NASCAR is changing up its playoff rotation among the notable changes to the 2025 Cup schedule, a copy of which was obtained by The Athletic.`\
-https://nytimes.com/athletic/5728556/2024/08/28/2025-nascar-cup-series-schedule-playoffs/
 
