@@ -1,3 +1,7 @@
+**Criticizing a Conservative’s Advice for Trump**\
+`Readers discuss a guest essay by Rich Lowry, National Review editor. Also: Debate rules; more campaign substance; pap smears; hospital abortions; hats.`\
+https://nytimes.com/2024/08/28/opinion/letters/rich-lowry-trump.html
+
 **Vikings mailbag: Submit your Week 1 questions now for reporter Alec Lewis**\
 `The initial 53-man roster is finalized. What are you wondering about with the Vikings now that the season is on the horizon?`\
 https://nytimes.com/athletic/5729244/2024/08/28/minnesota-vikings-mailbag-week-1-alec-lewis/
