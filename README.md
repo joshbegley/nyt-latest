@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5727785/2024/08/28/leagues-cup-mls-opinion/
 `Day 3 of the U.S. Open moves the tournament on to the second round, with the bottom half of the draw returning for their next matchups.`\
 https://nytimes.com/athletic/5726511/2024/08/28/us-open-day-3-best-matches-to-watch/
 
-**Israel carries out raids and airstrikes in the West Bank.**\
+**Israeli forces carry out raids and airstrikes in the West Bank.**\
 `The Palestinian Health Ministry said at least nine people had been killed. Israel’s foreign minister, Israel Katz, said evacuations may be necessary in the West Bank as the military conducted operations there.`\
 https://nytimes.com/live/2024/08/28/world/israel-hamas-gaza-war/israel-west-bank-raids
 
