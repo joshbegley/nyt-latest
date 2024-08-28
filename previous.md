@@ -1,3 +1,7 @@
+**Ice bags are the U.S. Open's hottest accessory. Cooling players down is the hottest topic**\
+`At least once a year, Flushing Meadows turns into a tumble dryer — and one professor believes players could cool down better.`\
+https://nytimes.com/athletic/5730111/2024/08/28/us-open-weather-heat-cool-down-players/
+
 **Colts GM Chris Ballard not worried about job security entering eighth season**\
 `Ballard has unwavering conviction in his team-building philosophy. “It’s what we believe. If it gets me fired, so be it.”`\
 https://nytimes.com/athletic/5730055/2024/08/28/indianapolis-colts-chris-ballard-gm-job-security/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5730107/2024/08/28/cubs-sweep-pirates-christian-bet
 **California Legislature Approves Bill Proposing Sweeping A.I. Restrictions**\
 `Gov. Gavin Newsom must now decide whether to sign into law the fiercely debated legislation.`\
 https://nytimes.com/2024/08/28/technology/california-ai-safety-bill.html
-
-**Foreign Citizens Charged With Carrying Out Swatting Attacks on U.S. Officials**\
-`The two men also made false reports about bomb threats at the Capitol and at religious buildings, with prosecutors documenting more than 100 hoax calls.`\
-https://nytimes.com/2024/08/28/us/foreign-citizens-swatting.html
 

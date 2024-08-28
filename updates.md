@@ -1,3 +1,7 @@
+**Ice bags are the U.S. Open's hottest accessory. Cooling players down is the hottest topic**\
+`At least once a year, Flushing Meadows turns into a tumble dryer — and one professor believes players could cool down better.`\
+https://nytimes.com/athletic/5730111/2024/08/28/us-open-weather-heat-cool-down-players/
+
 **Colts GM Chris Ballard not worried about job security entering eighth season**\
 `Ballard has unwavering conviction in his team-building philosophy. “It’s what we believe. If it gets me fired, so be it.”`\
 https://nytimes.com/athletic/5730055/2024/08/28/indianapolis-colts-chris-ballard-gm-job-security/
