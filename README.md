@@ -1,3 +1,7 @@
+**Court Call**\
+`Jesse Goldberg goes puzzle-hopping.`\
+https://nytimes.com/2024/08/27/crosswords/daily-puzzle-2024-08-28.html
+
 **Giants cut day takeaways: Tommy DeVito survives; where to expect waiver wire additions**\
 `The 53-man roster is set. But bottom-of-the-depth-chart players shouldn't exhale yet. "The roster's still fluid,” coach Brian Daboll said.`\
 https://nytimes.com/athletic/5727420/2024/08/27/new-york-giants-cut-day-53-takeaways/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5727246/2024/08/27/detroit-lions-initial-53-man-ros
 **Kawakami: 49ers' 2024 draft class > the previous three draft classes**\
 `After mostly missing on the previous three draft classes, the 49ers desperately needed the 2024 class to hit. It's already hitting big.`\
 https://nytimes.com/athletic/5724899/2024/08/27/49ers-2024-draft-class-the-previous-three-draft-classes-already-and-by-a-lot/
-
-**Seahawks 53-man roster: Plenty of surprises, Uchenna Nwosu avoids IR**\
-`The Seahawks kept two undrafted free agents while cutting a rookie draft pick and a former top pick. They also might not be done yet.`\
-https://nytimes.com/athletic/5727314/2024/08/27/seahawks-roster-cuts-53-cutdown/
 
