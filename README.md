@@ -1,3 +1,11 @@
+**Messi returns to Inter Miami training**\
+`Lionel Messi today rejoined Inter Miami’s squad for training, but in a limited capacity.`\
+https://nytimes.com/athletic/5729354/2024/08/28/lionel-messi-inter-miami-training-return/
+
+**How Jannik Sinner and the team that made him world No. 1 became a tennis Rorschach test**\
+`The story of his rise to the top of tennis was one of a team he built. Then he blew it up.`\
+https://nytimes.com/athletic/5727699/2024/08/28/jannik-sinner-team-world-number-one-tennis/
+
 **Steelers name Russell Wilson starting QB**\
 `Wilson had the edge on Fields since the QB "competition" began. Now the question becomes: Can he keep the job?`\
 https://nytimes.com/athletic/5726398/2024/08/28/russell-wilson-starter-justin-fields-steelers/
@@ -23,14 +31,6 @@ https://nytimes.com/2024/08/28/fashion/betty-halbreich-dead.html
 https://nytimes.com/2024/08/28/t-magazine/london-hotels.html
 
 **Sarah Palin Is Granted New Libel Trial Against The New York Times**\
-`A federal appeals court said that the judge overseeing the original trial, which Ms. Palin lost, had wrongly excluded evidence and might have swayed jurors as they were deliberating.`\
+`A federal appeals court said the judge overseeing the original trial, which Ms. Palin lost, had wrongly excluded evidence and might have swayed jurors as they were deliberating.`\
 https://nytimes.com/2024/08/28/business/media/sarah-palin-libel-trial-new-york-times.html
-
-**Voting Rights Leaders Step Up Election Initiatives After Texas Raids**\
-`Groups working to get voters to the polls are expanding training and communications with election officials in anticipation of challenges.`\
-https://nytimes.com/2024/08/28/us/politics/voters-texas-raids.html
-
-**On Kobe Bryant Day, a Celebration of Love and Basketball**\
-`Malika Andrews first caught the attention of fellow N.B.A. journalist Dave McMenamin as she conducted an interview with LeBron James.`\
-https://nytimes.com/2024/08/28/style/malika-andrews-dave-mcmenamin-kobe-bryant-day.html
 
