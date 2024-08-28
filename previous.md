@@ -10,7 +10,7 @@ https://nytimes.com/2024/08/28/crosswords/wordle-review-1166.html
 `Potential new USMNT head coach Pochettino is a keen believer in auras, energy, and the power of a citrus fruit...`\
 https://nytimes.com/athletic/5724688/2024/08/28/pochettino-lemons-usmnt/
 
-**Jenin, a Target of Israeli Raids, Is a Symbol of Defiance for Palestinians**\
+**Jenin, a Target of Israeli Raids, Is a Symbol of Rebellion for Palestinians**\
 `For decades, Jenin has played a role as a center of opposition to occupying powers.`\
 https://nytimes.com/2024/08/28/world/middleeast/jenin-west-bank-history-israel-palestinians.html
 

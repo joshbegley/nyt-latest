@@ -1,3 +1,7 @@
+**Jenin, a Target of Israeli Raids, Is a Symbol of Rebellion for Palestinians**\
+`For decades, Jenin has played a role as a center of opposition to occupying powers.`\
+https://nytimes.com/2024/08/28/world/middleeast/jenin-west-bank-history-israel-palestinians.html
+
 **Shelling Kills 6 in Ukraine as Russia Pushes Ahead in East**\
 `The rest of the country, though, was largely spared from another consecutive night of large-scale Russian bombardment.`\
 https://nytimes.com/2024/08/28/world/europe/ukraine-russia-donetsk.html
