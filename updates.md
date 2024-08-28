@@ -1,3 +1,7 @@
+**Liverpool close to signing Chiesa from Juventus**\
+`Liverpool are closing in on an agreement to sign Juventus forward Federico Chiesa.`\
+https://nytimes.com/athletic/5727124/2024/08/28/federico-chiesa-liverpool-transfer/
+
 **Ross Chastain on competing, expectations and, of course, watermelons: 12 Questions**\
 `Ross Chastain talks competitiveness, expectations for his team, what makes a good watermelon and more ahead of the regular-season finale.`\
 https://nytimes.com/athletic/5726487/2024/08/28/ross-chastain-nascar-watermelons-12-questions/
