@@ -1,3 +1,7 @@
+**Westbrook to wear No. 4, clears air on number change**\
+`"I chose to mark this new change with a 'new' number," Russell Westbrook said about why he'll wear No. 4 with the Nuggets.`\
+https://nytimes.com/athletic/5728895/2024/08/28/russell-westbrook-number-change-nuggets/
+
 **How Wall Street Learned About Last Week’s Labor Data Before the Public**\
 `The Labor Department provided insight into a recent lapse in which revised payrolls data were given out à la carte before they were online.`\
 https://nytimes.com/2024/08/28/business/economy/wall-street-labor-data-leak.html
