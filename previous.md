@@ -1,3 +1,7 @@
+**Israel’s Military Raids West Bank in Broad Operation**\
+`The Palestinian Health Ministry said at least nine people had been killed. Israel’s foreign minister, Israel Katz, said evacuations may be necessary in the West Bank as the military conducted operations there.`\
+https://nytimes.com/2024/08/28/world/middleeast/israel-west-bank-raids.html
+
 **Michael Crichton’s Estate Calls New Show an Unauthorized ‘ER’ Remake in Lawsuit**\
 `The best-selling author’s estate has filed suit over “The Pitt,” an upcoming series, claiming that it is an unauthorized reboot of the hit hospital drama.`\
 https://nytimes.com/2024/08/28/arts/television/michael-crichton-er-pitt-lawsuit.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5728184/2024/08/28/mets-sean-manaea-chris-sale-pitc
 **U.S. Open day 2: Record losing streak continues, Paolini and Andreescu's rivalry evolves**\
 `The second day in Flushing Meadows brought the unluckiest loser, the Grand Slam rivalry of 2024, and more turmoil for the Greek.`\
 https://nytimes.com/athletic/5726740/2024/08/28/us-open-recap-day-2-tsitsipas-paolini-andreescu/
-
-**Don’t look now, but the Detroit Tigers are back above .500**\
-`A look at the youthful vibes that have powered the Tigers to wins in 12 of their past 15 games. `\
-https://nytimes.com/athletic/5728158/2024/08/28/detroit-tigers-win-above-500/
 
