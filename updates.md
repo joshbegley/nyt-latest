@@ -1,3 +1,7 @@
+**Michael Crichton’s Estate Sues Warner Bros. Over ‘ER’ Remake**\
+`The best-selling author’s estate has filed suit over “The Pitt,” an upcoming series, claiming that it is an unauthorized reboot of the hit hospital drama.`\
+https://nytimes.com/2024/08/28/arts/television/michael-crichton-er-pitt-lawsuit.html
+
 **For Years, He Has Saved Lives in Rural America. Who Will Take His Place?**\
 `Volunteer ambulance squads are running out of volunteers. What happens when Bob VanCoughnett retires?`\
 https://nytimes.com/2024/08/28/nyregion/ambulance-corps-volunteers.html
