@@ -1,3 +1,7 @@
+**Jerod Mayo says QB1 choice — Jacoby Brissett or Drake Maye — will be 'my decision to make'**\
+`Who will be the Patriots' starting quarterback in Week 1? We still don't know, but Mayo made clear who will be doing the deciding.`\
+https://nytimes.com/athletic/5730076/2024/08/28/jerod-mayo-patriots-qb-drake-maye-jacoby-brissett/
+
 **Red Bull Salzburg reach agreement with Liverpool to sign Bajcetic on loan**\
 `Red Bull Salzburg have reached an agreement with Liverpool to sign Stefan Bajcetic on loan, despite a late hijack attempt from Barcelona.`\
 https://nytimes.com/athletic/5730109/2024/08/28/liverpool-bajcetic-salzburg-loan-agree-transfer/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/28/world/middleeast/west-bank-what-where-who.html
 **Trump Reposts Crude Sexual Remark About Harris on Truth Social**\
 `Though the former president has a history of making crass insults about opponents, the reposts signal his willingness to continue to shatter longstanding political norms.`\
 https://nytimes.com/2024/08/28/us/politics/trump-truth-social-posts.html
-
-**Thursday Briefing: Israel Launches Major West Bank Raids**\
-`Plus, charges for Telegram’s founder.`\
-https://nytimes.com/2024/08/28/briefing/israel-west-bank-raids-telegram-founder-charges-harris-waltz-congress.html
 
