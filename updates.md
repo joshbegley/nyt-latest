@@ -1,3 +1,7 @@
+**Supreme Court Blocks, for Now, Another Biden Student Debt Plan**\
+`The move followed a decision last year that the Biden administration had overstepped its authority by trying to forgive more than $400 billion in student loans.`\
+https://nytimes.com/2024/08/28/us/politics/supreme-court-biden-student-loans.html
+
 **Maresca on Chelsea first-team exiles: 'They are not going to get any minutes'**\
 `Enzo Maresca has warned that Raheem Sterling and Chelsea’s other first-team exiles will not get minutes under him if they stay at the club beyond Friday’s transfer deadline.`\
 https://nytimes.com/athletic/5729585/2024/08/28/chelsea-sterling-chilwell-maresca-transfer/
