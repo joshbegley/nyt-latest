@@ -1,3 +1,7 @@
+**Troubled Hedge Fund Two Sigma Replaces Feuding Founders**\
+`The multibillion-dollar trading firm said that its billionaire co-chief executives, John Overdeck and David Siegel, would step down.`\
+https://nytimes.com/2024/08/28/business/two-sigma-founders-replaced.html
+
 **Google Says It Fixed Image Generator That Failed to Depict White People**\
 `The company will allow users of its Gemini chatbot to create images of people with artificial intelligence after disabling the feature six months ago.`\
 https://nytimes.com/2024/08/28/technology/google-gemini-ai-image-generator.html
