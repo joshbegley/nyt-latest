@@ -1,3 +1,11 @@
+**Palace agree Lacroix fee with Wolfsburg**\
+`Crystal Palace have agreed a fee to sign defender Maxence Lacroix from Wolfsburg.`\
+https://nytimes.com/athletic/5728567/2024/08/28/maxence-lacroix-crystal-palace-transfer/
+
+**The Athletic FC: Why Arsenal signed Merino, Tonali's road to redemption, Leagues Cup 'a joke'**\
+`Today in The Athletic FC: Why Arsenal signed Merino, inside Tonali's comeback after a betting ban, all the transfer latest.`\
+https://nytimes.com/athletic/5728358/2024/08/28/merino-arsenal-tonali-redemption-leagues-cup/
+
 **Liverpool close to signing Chiesa from Juventus**\
 `Liverpool are closing in on an agreement to sign Juventus forward Federico Chiesa.`\
 https://nytimes.com/athletic/5727124/2024/08/28/federico-chiesa-liverpool-transfer/
