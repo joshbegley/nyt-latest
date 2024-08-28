@@ -1,3 +1,11 @@
+**Elon Musk, Eyeing Edge for Trump, Hires Republican Political Adviser**\
+`The move suggests that Mr. Musk, the world’s richest person, is preparing to become even more involved in the presidential campaign and beyond.`\
+https://nytimes.com/2024/08/28/us/politics/elon-musk-political-adviser.html
+
+**Supreme Court, for Now, Keeps Block on Revamped Biden Student Debt Plan**\
+`The new plan was part of a piecemeal approach to student debt after the justices rejected a proposal last year that would have canceled more than $400 billion in loans.`\
+https://nytimes.com/2024/08/28/us/politics/supreme-court-biden-student-loans.html
+
 **A Rare but Dangerous Mosquito-Borne Virus Is Changing Routines in Massachusetts**\
 `Ten communities are at high or critical risk from Eastern equine encephalitis, which killed a man in New Hampshire this month and sickened two people in Massachusetts and Vermont.`\
 https://nytimes.com/2024/08/28/us/a-rare-but-dangerous-mosquito-borne-virus-is-changing-routines-in-massachusetts.html

@@ -2,7 +2,7 @@
 `Ten communities are at high or critical risk from Eastern equine encephalitis, which killed a man in New Hampshire this month and sickened two people in Massachusetts and Vermont.`\
 https://nytimes.com/2024/08/28/us/a-rare-but-dangerous-mosquito-borne-virus-is-changing-routines-in-massachusetts.html
 
-**Elon Musk, Eyeing 2024 Edge, Hires Republican Political Adviser**\
+**Elon Musk, Eyeing Edge for Trump, Hires Republican Political Adviser**\
 `The move suggests that Mr. Musk, the world’s richest person, is preparing to become even more involved in the presidential campaign and beyond.`\
 https://nytimes.com/2024/08/28/us/politics/elon-musk-political-adviser.html
 
@@ -14,8 +14,8 @@ https://nytimes.com/2024/08/28/us/las-vegas-journalist-murder-trial-verdict.html
 `Southampton have reached an agreement with Arsenal for the permanent transfer of goalkeeper Aaron Ramsdale for a fee of £25million.`\
 https://nytimes.com/athletic/5719499/2024/08/28/aaron-ramsdale-southampton-transfer-arsenal/
 
-**Supreme Court Blocks, for Now, Another Biden Student Debt Plan**\
-`The move followed a decision last year that the Biden administration had overstepped its authority by trying to forgive more than $400 billion in student loans.`\
+**Supreme Court, for Now, Keeps Block on Revamped Biden Student Debt Plan**\
+`The new plan was part of a piecemeal approach to student debt after the justices rejected a proposal last year that would have canceled more than $400 billion in loans.`\
 https://nytimes.com/2024/08/28/us/politics/supreme-court-biden-student-loans.html
 
 **Maresca on Chelsea first-team exiles: 'They are not going to get any minutes'**\
