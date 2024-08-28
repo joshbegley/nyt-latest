@@ -1,3 +1,11 @@
+**INEOS’ cycling team are in freefall - should Manchester United be worried?**\
+`As the new co-owner's United revolution gathers pace, what lessons can be learned from the mistakes made by the INEOS Grenadiers?`\
+https://nytimes.com/athletic/5719162/2024/08/28/ineos-cycling-team-are-in-freefall-should-manchester-united-be-worried/
+
+**Explained: The Champions League draw, the Swiss Model and how selection is going digital**\
+`UEFA has a new-look elite club competition and a new draw process for it to boot, so The Athletic explains how it will all work`\
+https://nytimes.com/athletic/5716629/2024/08/28/uefa-ucl-europa-draw-swiss/
+
 **What does your Premier League club need to do before the transfer deadline?**\
 `There are only three days left until the transfer deadline — what does your club need to do?`\
 https://nytimes.com/athletic/5726410/2024/08/28/premier-league-transfer-window-deadline/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/28/world/europe/russia-ukraine-incursion-war.html
 **With Hezbollah-Israel Conflict Contained, Stage May Be Set for Limited Iranian Retaliation**\
 `After weeks of bracing for retaliations that could spark a broader regional war, Hezbollah’s strikes on Israel indicate that Iran, like its Lebanese ally, is likely to choose a response that favors hemming in the risk of escalation.`\
 https://nytimes.com/2024/08/28/world/europe/hezbollah-iran-retaliation-israel-risk.html
-
-**Bears 'Hard Knocks' takeaways: Ian Wheeler's injury, Austin Reed's comedy chops**\
-`Wheeler's ACL tear and his interactions with his mother and GM Ryan Poles brought the penultimate episode to an emotional conclusion.`\
-https://nytimes.com/athletic/5728092/2024/08/28/bears-hard-knocks-ian-wheeler-austin-reed/
-
-**Wednesday's MLB odds, best bets: Pitching matchups, playoff projections and more**\
-`See pitching matchups, playoff projections, win projections and more for Wednesday's MLB games.`\
-https://nytimes.com/athletic/5725068/2024/08/28/mlb-odds-best-bets-projections-august-28/
 

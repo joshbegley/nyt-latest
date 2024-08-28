@@ -1,3 +1,11 @@
+**INEOS’ cycling team are in freefall - should Manchester United be worried?**\
+`As the new co-owner's United revolution gathers pace, what lessons can be learned from the mistakes made by the INEOS Grenadiers?`\
+https://nytimes.com/athletic/5719162/2024/08/28/ineos-cycling-team-are-in-freefall-should-manchester-united-be-worried/
+
+**Explained: The Champions League draw, the Swiss Model and how selection is going digital**\
+`UEFA has a new-look elite club competition and a new draw process for it to boot, so The Athletic explains how it will all work`\
+https://nytimes.com/athletic/5716629/2024/08/28/uefa-ucl-europa-draw-swiss/
+
 **What does your Premier League club need to do before the transfer deadline?**\
 `There are only three days left until the transfer deadline — what does your club need to do?`\
 https://nytimes.com/athletic/5726410/2024/08/28/premier-league-transfer-window-deadline/
