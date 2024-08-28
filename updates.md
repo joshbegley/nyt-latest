@@ -1,3 +1,23 @@
+**Serena Williams Reflects on Her Life and Legacy in a New Docuseries**\
+`“In the Arena: Serena Williams,” an eight-part documentary on ESPN+, revisits the highs and lows of the star’s career and considers her impact on tennis and beyond.`\
+https://nytimes.com/2024/08/28/arts/television/serena-williams-in-the-arena.html
+
+**How Wildfire Smoke Threatens Health**\
+`As wildfires grow more frequent and more intense, scientists are studying how their smoke might harm our health.`\
+https://nytimes.com/interactive/2024/08/28/well/wildfire-smoke-health.html
+
+**These 6 Exercises Are Fundamental to How You Move**\
+`Practicing these movements can make everyday tasks — like carrying groceries and walking up stairs — easier.`\
+https://nytimes.com/2024/08/28/well/move/range-of-motion-exercises.html
+
+**You Say Tomato, I Say Risotto**\
+`David Tanis’s fast, five-star recipe is a perfect peak tomato meal.`\
+https://nytimes.com/2024/08/28/dining/you-say-tomato-i-say-risotto.html
+
+**Cowboys sign free agent RB Dalvin Cook to practice squad: Reports**\
+`Cook signed with the Ravens in January for the postseason after the New York Jets released him.`\
+https://nytimes.com/athletic/5725658/2024/08/28/dalvin-cook-cowboys-signing/
+
 **Cowboys sign free agent RB Dalvin Cook: Reports**\
 `Cook signed with the Ravens in January for the postseason after the New York Jets released him.`\
 https://nytimes.com/athletic/5725658/2024/08/28/dalvin-cook-cowboys-signing/

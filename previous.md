@@ -1,4 +1,20 @@
-**Cowboys sign free agent RB Dalvin Cook: Reports**\
+**Serena Williams Reflects on Her Life and Legacy in a New Docuseries**\
+`“In the Arena: Serena Williams,” an eight-part documentary on ESPN+, revisits the highs and lows of the star’s career and considers her impact on tennis and beyond.`\
+https://nytimes.com/2024/08/28/arts/television/serena-williams-in-the-arena.html
+
+**How Wildfire Smoke Threatens Health**\
+`As wildfires grow more frequent and more intense, scientists are studying how their smoke might harm our health.`\
+https://nytimes.com/interactive/2024/08/28/well/wildfire-smoke-health.html
+
+**These 6 Exercises Are Fundamental to How You Move**\
+`Practicing these movements can make everyday tasks — like carrying groceries and walking up stairs — easier.`\
+https://nytimes.com/2024/08/28/well/move/range-of-motion-exercises.html
+
+**You Say Tomato, I Say Risotto**\
+`David Tanis’s fast, five-star recipe is a perfect peak tomato meal.`\
+https://nytimes.com/2024/08/28/dining/you-say-tomato-i-say-risotto.html
+
+**Cowboys sign free agent RB Dalvin Cook to practice squad: Reports**\
 `Cook signed with the Ravens in January for the postseason after the New York Jets released him.`\
 https://nytimes.com/athletic/5725658/2024/08/28/dalvin-cook-cowboys-signing/
 
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/5728960/2024/08/28/ernest-nuamah-rayan-cherki-fulha
 **UEFA facing legal threat over new Champions League format**\
 `Chilean sports consultant Leandro Shara has threatened to sue European football&#8217;s governing body UEFA for the “unauthorised and unfair use” of the “league phase” format it is introducing for its three club competitions this season.`\
 https://nytimes.com/athletic/5728678/2024/08/28/uefa-champions-league-format-legal-threat/
-
-**At Los Angeles Galleries, Savoring the Waning Days of Summer**\
-`During an often quiet season in the art world, several outstanding solo shows and one group show offer a feast for the eye and the mind.`\
-https://nytimes.com/2024/08/28/arts/design/los-angeles-galleries-lacma-gagosian-the-pit.html
-
-**Recent Israeli Raids in the West Bank: A Timeline**\
-`Israel has ramped up a crackdown in the Israeli-occupied territory since before the Israel-Hamas war began last Oct. 7. Here are some of the major raids.`\
-https://nytimes.com/2024/08/28/world/middleeast/israel-palestinian-west-bank-clashes-timeline.html
-
-**Uruguay's Nunez given five-match ban for Copa America melee**\
-`CONMEBOL has announced sanctions stemming from the melee between Uruguay players and Colombia fans at this summer’s Copa America.`\
-https://nytimes.com/athletic/5728887/2024/08/28/uruguay-bans-colombia-copa-america/
-
-**Why they stayed: The seniors who gave Notre Dame its Playoff expectations**\
-`Convincing Howard Cross, Jack Kiser, Rylie Mills and Xavier Watts to return, in that order, was crucial for Marcus Freeman and Notre Dame.`\
-https://nytimes.com/athletic/5728452/2024/08/28/notre-dame-football-cross-watts-kiser-mills/
 
