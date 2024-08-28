@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5730111/2024/08/28/us-open-weather-heat-cool-down-p
 https://nytimes.com/athletic/5730055/2024/08/28/indianapolis-colts-chris-ballard-gm-job-security/
 
 **Wide receiver position created Broncos' toughest choices. Did they get it right?**\
-`Cutting Tim Patrick was an "extremely difficult" choice, but Broncos believe they have built a well-rounded room of targets for Bo Nix.`\
+`Cutting Tim Patrick was an "extremely difficult" choice, but the Broncos believe they have built a well-rounded room of targets for Bo Nix.`\
 https://nytimes.com/athletic/5729591/2024/08/28/broncos-roster-wide-receivers/
 
 **The Challenge of Interviewing Kamala Harris**\
