@@ -1,3 +1,7 @@
+**The Rise of Fare Evasion**\
+`We explore why people are ignoring public transit’s most basic rule.`\
+https://nytimes.com/2024/08/28/briefing/fare-evasion-new-york-bus-subway.html
+
 **Paris Paralympics 2024: A complete guide to what's on and the stars to watch out for**\
 `Everything you need to know to get the most from the Paralympics - including when the big names are competing`\
 https://nytimes.com/athletic/5725891/2024/08/28/paralympics-paris-2024-complete-guide-athletes/
