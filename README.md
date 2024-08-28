@@ -1,3 +1,11 @@
+**Word of the Day: atrophy**\
+`This word has appeared in 36 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/28/learning/word-of-the-day-atrophy.html
+
+**How the Mets' Sean Manaea is turning himself into Chris Sale — with the results to match**\
+`The Mets are 18-8 when Manaea starts this season. No team has won more games behind a starter on the mound.`\
+https://nytimes.com/athletic/5728184/2024/08/28/mets-sean-manaea-chris-sale-pitching/
+
 **U.S. Open day 2: Record losing streak continues, Paolini and Andreescu's rivalry evolves**\
 `The second day in Flushing Meadows brought the unluckiest loser, the Grand Slam rivalry of 2024, and more turmoil for the Greek.`\
 https://nytimes.com/athletic/5726740/2024/08/28/us-open-recap-day-2-tsitsipas-paolini-andreescu/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5725798/2024/08/28/aston-villas-runners-rogers/
 **INEOS’ cycling team are in freefall - should Manchester United be worried?**\
 `As the new co-owner's United revolution gathers pace, what lessons can be learned from the mistakes made by the INEOS Grenadiers?`\
 https://nytimes.com/athletic/5719162/2024/08/28/ineos-cycling-team-are-in-freefall-should-manchester-united-be-worried/
-
-**Explained: The Champions League draw, the Swiss Model and how selection is going digital**\
-`UEFA has a new-look elite club competition and a new draw process for it to boot, so The Athletic explains how it will all work`\
-https://nytimes.com/athletic/5716629/2024/08/28/uefa-ucl-europa-draw-swiss/
-
-**What does your Premier League club need to do before the transfer deadline?**\
-`There are only three days left until the transfer deadline — what does your club need to do?`\
-https://nytimes.com/athletic/5726410/2024/08/28/premier-league-transfer-window-deadline/
 
