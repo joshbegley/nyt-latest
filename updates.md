@@ -1,3 +1,15 @@
+**Alastair Carruthers, 79, Dies; Pioneered the Cosmetic Use of Botox**\
+`With his wife, Dr. Jean Carruthers, he conducted hundreds of studies on the wrinkle-erasing properties of the neurotoxin that causes botulism. The work revolutionized beauty care.`\
+https://nytimes.com/2024/08/28/health/alastair-carruthers-dead.html
+
+**Police Searched for a Murder Suspect for Months. Then He Fell Through the Ceiling.**\
+`Deario Wilkerson of Memphis is charged with first-degree murder in connection with a killing in an April shooting, the authorities said.`\
+https://nytimes.com/2024/08/28/us/tennessee-murder-suspect-ceiling-fall.html
+
+**Submit your questions for Jeremy Rutherford’s St. Louis Blues mailbag**\
+`Have a question about the Blues? Submit it here and The Athletic’s Jeremy Rutherford will address a selection in his upcoming mailbag.`\
+https://nytimes.com/athletic/5729738/2024/08/28/st-louis-blues-jeremy-rutherford-mailbag-august-2024/
+
 **Elon Musk, Eyeing Edge for Trump, Hires Republican Political Adviser**\
 `The move suggests that Mr. Musk, the world’s richest person, is preparing to become even more involved in the presidential campaign and beyond.`\
 https://nytimes.com/2024/08/28/us/politics/elon-musk-political-adviser.html
