@@ -1,3 +1,7 @@
+**Shelling Kills 6 in Ukraine as Russia Pushes Ahead in East**\
+`The rest of the country, though, was largely spared from another consecutive night of large-scale Russian bombardment.`\
+https://nytimes.com/2024/08/28/world/europe/ukraine-russia-donetsk.html
+
 **Why they stayed: The seniors who gave Notre Dame its Playoff expectations**\
 `Convincing Howard Cross, Jack Kiser, Rylie Mills and Xavier Watts to return, in that order, was crucial for Marcus Freeman and Notre Dame.`\
 https://nytimes.com/athletic/5728452/2024/08/28/notre-dame-football-cross-watts-kiser-mills/
