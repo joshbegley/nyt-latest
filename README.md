@@ -1,3 +1,7 @@
+**Google Says It Fixed Image Generator That Failed to Depict White People**\
+`The company will allow users of its Gemini chatbot to create images of people with artificial intelligence after disabling the feature six months ago.`\
+https://nytimes.com/2024/08/28/technology/google-image-generator.html
+
 **Giorgi Mamardashvili to Liverpool: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500 series, we look at goalkeeper Mamardashvili's deal to join Liverpool from Spanish side Valencia`\
 https://nytimes.com/athletic/5700453/2024/08/28/giorgi-mamardashvili-to-liverpool-the-athletic-500-transfer-ratings/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/28/movies/karla-sofia-gascon-emilia-perez-oscar.html
 **U.S., Chinese Officials Discuss Future Talks Between Biden and Xi**\
 `In talks in Beijing, the two sides made clear that many differences remain over Taiwan, technology export controls and trade disputes.`\
 https://nytimes.com/2024/08/28/world/asia/us-china-biden-xi.html
-
-**What Will We Do With Our Free Power?**\
-`The price of solar power is plummeting faster than we ever expected.`\
-https://nytimes.com/2024/08/28/opinion/solar-power-free-energy.html
 
