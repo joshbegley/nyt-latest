@@ -1,3 +1,15 @@
+**Alastair Carruthers, 79, Dies; Pioneered the Cosmetic Use of Botox**\
+`With his wife, Dr. Jean Carruthers, he conducted hundreds of studies on the wrinkle-erasing properties of the neurotoxin that causes botulism. The work revolutionized beauty care.`\
+https://nytimes.com/2024/08/28/health/alastair-carruthers-dead.html
+
+**Police Searched for a Murder Suspect for Months. Then He Fell Through the Ceiling.**\
+`Deario Wilkerson of Memphis is charged with first-degree murder in connection with a killing in an April shooting, the authorities said.`\
+https://nytimes.com/2024/08/28/us/tennessee-murder-suspect-ceiling-fall.html
+
+**Submit your questions for Jeremy Rutherford’s St. Louis Blues mailbag**\
+`Have a question about the Blues? Submit it here and The Athletic’s Jeremy Rutherford will address a selection in his upcoming mailbag.`\
+https://nytimes.com/athletic/5729738/2024/08/28/st-louis-blues-jeremy-rutherford-mailbag-august-2024/
+
 **A Rare but Dangerous Mosquito-Borne Virus Is Changing Routines in Massachusetts**\
 `Ten communities are at high or critical risk from Eastern equine encephalitis, which killed a man in New Hampshire this month and sickened two people in Massachusetts and Vermont.`\
 https://nytimes.com/2024/08/28/us/a-rare-but-dangerous-mosquito-borne-virus-is-changing-routines-in-massachusetts.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/08/28/us/politics/supreme-court-biden-student-loans.htm
 **Maresca on Chelsea first-team exiles: 'They are not going to get any minutes'**\
 `Enzo Maresca has warned that Raheem Sterling and Chelsea’s other first-team exiles will not get minutes under him if they stay at the club beyond Friday’s transfer deadline.`\
 https://nytimes.com/athletic/5729585/2024/08/28/chelsea-sterling-chilwell-maresca-transfer/
-
-**North Carolina Is Now a Prime Presidential Battleground**\
-`Political analysts here tell me that they’re struck by the burst of energy for the Harris campaign.`\
-https://nytimes.com/live/2024/08/27/opinion/thepoint/north-carolina-election-battleground
-
-**What’s in Our Queue? ‘Godzilla Minus One’ and More**\
-`I’m a national correspondent covering guns and culture. Here are five things I’ve watched, read or played recently.`\
-https://nytimes.com/interactive/2024/08/28/arts/editors-recommendations-godzilla.html
-
-**Barcelona trying to hijack Red Bull Salzburg's move for Liverpool's Bajcetic**\
-`Barcelona are trying to hijack Red Bull Salzburg&#8217;s signing of Liverpool midfielder Stefan Bajcetic on a season-long loan.`\
-https://nytimes.com/athletic/5716444/2024/08/28/stefan-bajcetic-barcelona-liverpool-transfer/
 
