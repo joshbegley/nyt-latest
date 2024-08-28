@@ -1,3 +1,7 @@
+**Mormon Church Broadens Restrictions for Transgender Members**\
+`The new guidance prohibits those pursuing gender transition from working with children, and bans baptism for those who have transitioned both medically and socially.`\
+https://nytimes.com/2024/08/27/us/mormon-church-transgender.html
+
 **Rich Hill returns. Can he bolster the Red Sox's pitching for the stretch run?**\
 `Hill is confident he can make a positive contribution. “I wouldn't be doing this if I didn’t love the game,” he said.`\
 https://nytimes.com/athletic/5728037/2024/08/27/rich-hill-red-sox-return-2024/
