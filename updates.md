@@ -1,3 +1,7 @@
+**U.S. Open day 3 watch guide: Novak Djokovic and Coco Gauff continue title defense**\
+`Day 3 of the U.S. Open moves the tournament on to the second round, with the bottom half of the draw returning for their next matchups.`\
+https://nytimes.com/athletic/5726511/2024/08/28/us-open-day-3-best-matches-to-watch/
+
 **Israel’s Military Raids West Bank in Broad Operation**\
 `The Palestinian Health Ministry said at least nine people had been killed. Israel’s foreign minister, Israel Katz, said evacuations may be necessary in the West Bank as the military conducted operations there.`\
 https://nytimes.com/2024/08/28/world/middleeast/israel-west-bank-raids.html

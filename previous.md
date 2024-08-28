@@ -1,3 +1,7 @@
+**U.S. Open day 3 watch guide: Novak Djokovic and Coco Gauff continue title defense**\
+`Day 3 of the U.S. Open moves the tournament on to the second round, with the bottom half of the draw returning for their next matchups.`\
+https://nytimes.com/athletic/5726511/2024/08/28/us-open-day-3-best-matches-to-watch/
+
 **Israel’s Military Raids West Bank in Broad Operation**\
 `The Palestinian Health Ministry said at least nine people had been killed. Israel’s foreign minister, Israel Katz, said evacuations may be necessary in the West Bank as the military conducted operations there.`\
 https://nytimes.com/2024/08/28/world/middleeast/israel-west-bank-raids.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/28/learning/word-of-the-day-atrophy.html
 **How the Mets' Sean Manaea is turning himself into Chris Sale — with the results to match**\
 `The Mets are 18-8 when Manaea starts this season. No team has won more games behind a starter on the mound.`\
 https://nytimes.com/athletic/5728184/2024/08/28/mets-sean-manaea-chris-sale-pitching/
-
-**U.S. Open day 2: Record losing streak continues, Paolini and Andreescu's rivalry evolves**\
-`The second day in Flushing Meadows brought the unluckiest loser, the Grand Slam rivalry of 2024, and more turmoil for the Greek.`\
-https://nytimes.com/athletic/5726740/2024/08/28/us-open-recap-day-2-tsitsipas-paolini-andreescu/
 
