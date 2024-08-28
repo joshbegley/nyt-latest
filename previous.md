@@ -1,36 +1,36 @@
-**Nearly 400,000 Customers Without Power in Michigan After Thunderstorms**\
-`More than eight million people across the Midwest were under a severe thunderstorm watch late Tuesday.`\
-https://nytimes.com/2024/08/27/us/michigan-power-outages-storms.html
+**Typhoon Shanshan Lashes Japan With Torrential Rain**\
+`Some flights and trains were canceled, and rescuers in the central region were searching for three people whose home was struck by a landslide.`\
+https://nytimes.com/2024/08/28/world/asia/typhoon-shanshan-japan.html
 
-**Mormon Church Broadens Restrictions for Transgender Members**\
-`The new guidance prohibits those pursuing gender transition from working with children, and bans baptism for those who have transitioned both medically and socially.`\
-https://nytimes.com/2024/08/27/us/mormon-church-transgender.html
+**Wednesday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/08/28/briefing/trump-indictment-hostage-gaza.html
 
-**Rich Hill returns. Can he bolster the Red Sox's pitching for the stretch run?**\
-`Hill is confident he can make a positive contribution. “I wouldn't be doing this if I didn’t love the game,” he said.`\
-https://nytimes.com/athletic/5728037/2024/08/27/rich-hill-red-sox-return-2024/
+**In Quebec’s Casse-Croûtes, Fast Food for a Short but Sweet Summer**\
+`By now, the most famous product of Quebec’s casse-croûtes, the poutine, has gone international. But can the guédille or the pinso ever become just as popular?`\
+https://nytimes.com/2024/08/28/world/canada/quebec-gaspe-poutine-casse-croutes.html
 
-**Trump Team Clashed With Official at Arlington National Cemetery**\
-`The military cemetery said in a statement that federal law prohibits political campaigning on the grounds, and that “there was an incident, and a report was filed.”`\
-https://nytimes.com/2024/08/27/us/politics/trump-arlington-cemetery-clash.html
+**For Russia, Repelling Incursion Matters Less Than Advancing in Donbas**\
+`Despite its overwhelming firepower, Russia has been unable for weeks to push Ukrainian troops back across the border, with the failure as much the result of priorities as a lack of personnel.`\
+https://nytimes.com/2024/08/28/world/europe/russia-ukraine-incursion-war.html
 
-**Court Call**\
-`Jesse Goldberg goes puzzle-hopping.`\
-https://nytimes.com/2024/08/27/crosswords/daily-puzzle-2024-08-28.html
+**With Hezbollah-Israel Conflict Contained, Stage May Be Set for Limited Iranian Retaliation**\
+`After weeks of bracing for retaliations that could spark a broader regional war, Hezbollah’s strikes on Israel indicate that Iran, like its Lebanese ally, is likely to choose a response that favors hemming in the risk of escalation.`\
+https://nytimes.com/2024/08/28/world/europe/hezbollah-iran-retaliation-israel-risk.html
 
-**Giants cut day takeaways: Tommy DeVito survives; where to expect waiver wire additions**\
-`The 53-man roster is set. But bottom-of-the-depth-chart players shouldn't exhale yet. "The roster's still fluid,” coach Brian Daboll said.`\
-https://nytimes.com/athletic/5727420/2024/08/27/new-york-giants-cut-day-53-takeaways/
+**Bears 'Hard Knocks' takeaways: Ian Wheeler's injury, Austin Reed's comedy chops**\
+`Wheeler's ACL tear and his interactions with his mother and GM Ryan Poles brought the penultimate episode to an emotional conclusion.`\
+https://nytimes.com/athletic/5728092/2024/08/28/bears-hard-knocks-ian-wheeler-austin-reed/
 
-**Travis Kelce buys stake in racehorse with fitting name: Swift Delivery**\
-`Kelce recently bought a stake in a 3-year-old gelding that notably shares a portion of his name with Taylor Swift.`\
-https://nytimes.com/athletic/5727783/2024/08/27/travis-kelce-swift-delivery-racehorse-ownership/
+**Wednesday's MLB odds, best bets: Pitching matchups, playoff projections and more**\
+`See pitching matchups, playoff projections, win projections and more for Wednesday's MLB games.`\
+https://nytimes.com/athletic/5725068/2024/08/28/mlb-odds-best-bets-projections-august-28/
 
-**Explaining the Eagles' initial 53-man roster decisions**\
-`Eagles GM Howie Roseman said the team is still incomplete.`\
-https://nytimes.com/athletic/5727071/2024/08/27/philadelphia-eagles-initial-53-man-roster-analysis/
+**Africa’s Debt Crisis Has ‘Catastrophic Implications’ for the World**\
+`Crushing obligations to foreign creditors that have few precedents have sapped numerous African nations of growth and stoked social instability.`\
+https://nytimes.com/2024/08/28/business/african-debt-crisis.html
 
-**Cardinals DFA Shawn Armstrong in another controversial roster move**\
-`St. Louis acquired Armstrong roughly four weeks ago from the Tampa Bay Rays in a trade for outfielder Dylan Carlson.`\
-https://nytimes.com/athletic/5727614/2024/08/27/cardinals-designate-shawn-armstrong-for-assignment/
+**Can Tech Executives Be Held Responsible for What Happens on Their Platforms?**\
+`The arrest of Pavel Durov, Telegram’s founder, as part of an investigation into illicit activities on the messaging app set off worries about the personal liability of tech executives.`\
+https://nytimes.com/2024/08/28/technology/durov-telegram-liability-platforms.html
 
