@@ -1,3 +1,7 @@
+**The fantasy football FAAB guide: How to maximize your waiver wire budget**\
+`Michael Waterloo explains the dos and don'ts of how to manage your FAAB budget throughout the fantasy football season.`\
+https://nytimes.com/athletic/5726737/2024/08/28/fantasy-football-faab-guide/
+
 **José Alvarado's abrupt departure leaves void for Phillies: How they could adjust bullpen mix**\
 `The Phillies could change the bullpen mix with more frequency in September as they audition different arms and wait for Alvarado to return.`\
 https://nytimes.com/athletic/5728014/2024/08/28/jose-alavardo-absence-phillies-bullpen-options/

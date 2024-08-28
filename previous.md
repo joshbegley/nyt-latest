@@ -2,6 +2,10 @@
 `The Phillies could change the bullpen mix with more frequency in September as they audition different arms and wait for Alvarado to return.`\
 https://nytimes.com/athletic/5728014/2024/08/28/jose-alavardo-absence-phillies-bullpen-options/
 
+**The fantasy football FAAB guide: How to maximize your waiver wire budget**\
+`Michael Waterloo explains the dos and don'ts of how to manage your FAAB budget throughout the fantasy football season.`\
+https://nytimes.com/athletic/5726737/2024/08/28/fantasy-football-faab-guide/
+
 **Drew Brees: Arch Manning, young QBs need 50 'high-quality starts' to be ready for NFL stage**\
 `Should Manning stay and start multiple seasons at Texas? Is NIL ruining college football? Brees weighed in on multiple topics.`\
 https://nytimes.com/athletic/5723924/2024/08/28/drew-brees-interview-nil-arch-manning/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5727132/2024/08/28/wisconsin-football-unranked-unde
 **The War That Won’t End**\
 `The war in Gaza has been going on for almost a year. Why have Israel and Hamas not reached a cease-fire?`\
 https://nytimes.com/2024/08/28/podcasts/the-daily/israel-gaza-hamas.html
-
-**Federal Cases Against Trump Revived, and Israeli Forces Raid West Bank**\
-`Plus, a new theory about orca boat attacks.`\
-https://nytimes.com/2024/08/28/podcasts/federal-cases-trump-west-bank.html
 
