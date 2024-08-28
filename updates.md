@@ -1,3 +1,7 @@
+**Uruguayan player dies after collapsing during Copa Libertadores game**\
+`Uruguayan footballer Juan Izquierdo has died at the age of 27 after collapsing on the pitch during a Copa Libertadores fixture.`\
+https://nytimes.com/athletic/5728209/2024/08/28/juan-izquierdo-dies-club-nacional-copa-libertadores/
+
 **Quotation of the Day: Brazil’s Wetland Fires Taking Toll on Wild Animals**\
 `Quotation of the Day for Wednesday, August 28, 2024.`\
 https://nytimes.com/2024/08/28/pageoneplus/quotation-of-the-day-brazils-wetland-fires-taking-toll-on-wild-animals.html
