@@ -1,3 +1,11 @@
+**LeBron James’ high school jersey from first SI cover going to auction**\
+`On February 3, 2002, Michael LeBrecht, an assistant photographer for Sports Illustrated, showed up to the gym at St.`\
+https://nytimes.com/athletic/5727956/2024/08/28/lebron-james-high-school-jersey-auction-sports-illustrated/
+
+**Should I Be Worried That My New Boyfriend Admits to Being a Cad?**\
+`A reader is concerned that a new beau’s frequent references to jumping ship in past relationships may be laying the groundwork for him to do it with her.`\
+https://nytimes.com/2024/08/28/style/past-relationships-red-flags.html
+
 **Shelling Kills 6 in Eastern Ukraine**\
 `The rest of the country, though, was largely spared from another consecutive night of large-scale Russian bombardment.`\
 https://nytimes.com/2024/08/28/world/europe/ukraine-russia-donetsk.html
