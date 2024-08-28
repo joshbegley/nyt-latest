@@ -1,4 +1,8 @@
 **Southampton agree £25m deal to sign Arsenal's Ramsdale on loan**\
+`Southampton have reached an agreement with Arsenal for the permanent transfer of goalkeeper Aaron Ramsdale for a fee of £25million.`\
+https://nytimes.com/athletic/5719499/2024/08/28/aaron-ramsdale-southampton-transfer-arsenal/
+
+**Southampton agree £25m deal to sign Arsenal's Ramsdale on loan**\
 `Southampton have agreed a £25million deal to sign Arsenal goalkeeper Aaron Ramsdale.`\
 https://nytimes.com/athletic/5719499/2024/08/28/aaron-ramsdale-southampton-transfer-arsenal/
 
