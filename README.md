@@ -1,3 +1,7 @@
+**New Blackhawks goalie Brossoit expected to miss 5-7 weeks**\
+`Laurent Brossoit was so excited to finally be completely healthy and have a full offseason to train for the upcoming NHL season.`\
+https://nytimes.com/athletic/5729802/2024/08/28/blackhawks-laurent-brossoit-surgery/
+
 **Violence is growing in the West Bank, but the Israeli military is mainly focusing on only one kind.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/08/28/world/israel-hamas-gaza-war/violence-is-growing-in-the-west-bank-but-the-israeli-military-is-mainly-focusing-on-only-one-kind
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/28/business/media/russia-bars-american-journalists.h
 **Sister Theresa Kane, 87, Dies; Challenged Pope on Ordaining Women**\
 `A progressive nun, she used a welcome address before Pope John Paul II in 1979 to call for equality in the ranks of the Roman Catholic Church.`\
 https://nytimes.com/2024/08/28/us/sister-theresa-kane-dead.html
-
-**Berkshire Hathaway Hits $1 Trillion in Market Value**\
-`Warren Buffett’s conglomerate joined a small club of companies that have crossed the mark.`\
-https://nytimes.com/2024/08/28/business/berkshire-hathaway-trillion-market-cap.html
 
