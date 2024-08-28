@@ -1,3 +1,11 @@
+**Barcelona briefing: Olmo's perfect start, Pedri shines again, misery for Marc Bernal**\
+`Barcelona's 2-1 victory at Rayo Vallecano extended their perfect start to the new La Liga season`\
+https://nytimes.com/athletic/5728206/2024/08/28/barcelona-briefing-olmos-perfect-start-pedri-shines-again-misery-for-marc-bernal/
+
+**Naomi Osaka and the gravity of a superstar at the U.S. Open**\
+`The two-time U.S. Open champion may be a wildcard with a ranking of No. 88, but nothing can stop her transcendence of tennis.`\
+https://nytimes.com/athletic/5727372/2024/08/28/naomi-osaka-us-open/
+
 **Word of the Day: atrophy**\
 `This word has appeared in 36 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/28/learning/word-of-the-day-atrophy.html
