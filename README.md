@@ -1,3 +1,7 @@
+**OpenAI in Talks for Deal That Would Value Company at $100 Billion**\
+`While some young A.I. companies have struggled to compete with the tech industry’s giants, OpenAI has been rapidly expanding.`\
+https://nytimes.com/2024/08/28/technology/openai-valuation-funding-deal.html
+
 **Scientists Discover Similar Dinosaur Footprints on Opposite Sides of the Atlantic**\
 `More than 260 similar footprints found in Brazil and Cameroon help us understand a region that broke apart millions of years ago.`\
 https://nytimes.com/2024/08/28/science/dinosaur-tracks-brazil-cameroon.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5730055/2024/08/28/indianapolis-colts-chris-ballard
 **Wide receiver position created Broncos' toughest choices. Did they get it right?**\
 `Cutting Tim Patrick was an "extremely difficult" choice, but the Broncos believe they have built a well-rounded room of targets for Bo Nix.`\
 https://nytimes.com/athletic/5729591/2024/08/28/broncos-roster-wide-receivers/
-
-**The Challenge of Interviewing Kamala Harris**\
-`‘She didn’t break eye contact. It was intense. You feel on trial.’`\
-https://nytimes.com/2024/08/28/us/politics/kamala-harris-interviews.html
 
