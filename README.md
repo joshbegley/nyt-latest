@@ -1,3 +1,7 @@
+**Jack Smith’s New Case Against Trump Is Much Stronger Than His Old One**\
+`In this case, less is truly more.`\
+https://nytimes.com/live/2024/08/27/opinion/thepoint/jack-smith-trump-election
+
 **The Mosquito-Borne Virus Raising Alarms in the Northeast**\
 `Recent infections from the Eastern equine encephalitis virus are worrying health officials. Severe cases can be deadly or leave lasting injuries.`\
 https://nytimes.com/2024/08/28/health/eastern-equine-encephalitis-prevention.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/28/nyregion/bronx-election-polls-worker-bribe.html
 **Real Madrid considering offers for midfielder Dani Ceballos**\
 `The 28-year-old has reiterated his desire to leave the Bernabeu for regular playing time`\
 https://nytimes.com/athletic/5729792/2024/08/28/dani-ceballos-real-madrid-betis-monaco-transfer/
-
-**5 More People Die From Listeria Linked to Boar’s Head Meats, C.D.C. Says**\
-`The nationwide outbreak that started in May has been connected to eight deaths. The C.D.C. is advising people not to eat any recalled products.`\
-https://nytimes.com/2024/08/28/us/listeria-outbreak-boars-head-meats.html
 
