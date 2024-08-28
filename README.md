@@ -1,3 +1,7 @@
+**Typhoon Shanshan Lashes Japan With Torrential Rain**\
+`Some flights and trains were canceled, and rescuers in the central region were searching for three people whose home was struck by a landslide.`\
+https://nytimes.com/2024/08/28/world/asia/typhoon-shanshan-japan.html
+
 **Wednesday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2024/08/28/briefing/trump-indictment-hostage-gaza.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/28/business/african-debt-crisis.html
 **Can Tech Executives Be Held Responsible for What Happens on Their Platforms?**\
 `The arrest of Pavel Durov, Telegram’s founder, as part of an investigation into illicit activities on the messaging app set off worries about the personal liability of tech executives.`\
 https://nytimes.com/2024/08/28/technology/durov-telegram-liability-platforms.html
-
-**Nearly 400,000 Customers Without Power in Michigan After Thunderstorms**\
-`More than eight million people across the Midwest were under a severe thunderstorm watch late Tuesday.`\
-https://nytimes.com/2024/08/27/us/michigan-power-outages-storms.html
 
