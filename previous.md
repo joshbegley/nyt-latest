@@ -1,3 +1,15 @@
+**Talanoa Hufanga, Isaac Yiadom return to bolster 49ers' secondary**\
+`Charvarius Ward thinks the 49ers can field the NFL's best secondary. This week's returns to practice can help toward that goal. `\
+https://nytimes.com/athletic/5732547/2024/08/29/49ers-secondary-nfl-talanoa-hufanga/
+
+**Ancelotti says Real Madrid lacking 'balance' after Las Palmas draw**\
+`Carlo Ancelotti says Real Madrid do not “have a good balance” after being held to a 1-1 draw against Las Palmas.`\
+https://nytimes.com/athletic/5732905/2024/08/29/carlo-ancelotti-real-madrid-las-palmas/
+
+**Colorado to Relocate Gray Wolves Less Than a Year After Their Release**\
+`The plan, amid accusations that the wolves were attacking livestock in the area, is potentially a setback for the state’s ambitious reintroduction program, experts say.`\
+https://nytimes.com/2024/08/29/climate/colorado-wolves-relocation-livestock.html
+
 **Pentagon says it will aid Secret Service ahead of election.**\
 `The`\
 https://nytimes.com/live/2024/08/29/us/harris-trump-election/pentagon-says-it-will-aid-secret-service-ahead-of-election
@@ -7,7 +19,7 @@ https://nytimes.com/live/2024/08/29/us/harris-trump-election/pentagon-says-it-wi
 https://nytimes.com/athletic/5732740/2024/08/29/dak-prescott-contract-negotiation-dallas-cowboys/
 
 **Padres takeaways: September, a decision to bunt and Manny Machado’s return to form**\
-`Elias Díaz seems poised to join the Padres when rosters expand, Juricskon Profar defends his instincts and Machado is heating up.`\
+`Elias Díaz seems poised to join the Padres when rosters expand, Jurickson Profar defends his instincts and Machado is heating up.`\
 https://nytimes.com/athletic/5732813/2024/08/29/padres-september-roster-jurickson-profar-manny-machado/
 
 **Toll Reaches 17 Dead in Israel’s West Bank Raid, Including a Militant Commander**\
@@ -21,16 +33,4 @@ https://nytimes.com/2024/08/29/us/politics/donors-harris-tax-ultrawealthy.html
 **What Is Palestinian Islamic Jihad?**\
 `The militant group was founded in Gaza in the 1980s, but remains far smaller and holds less sway than Hamas.`\
 https://nytimes.com/2024/08/29/world/middleeast/palestinian-islamic-jihad-muhammad-jaber.html
-
-**Greek Port City Inundated With Over 100 Tons of Dead Fish**\
-`The authorities in central Greece have dredged more than 100 tons of dead fish from the waters around the port of Volos, a scenic summer destination.`\
-https://nytimes.com/video/world/europe/100000009664498/greece-fish-volos-tourism.html
-
-**Pelosi’s Car Passed Near Pipe Bomb on Jan. 6, According to New Video**\
-`As the then-speaker was being evacuated from an overrun Capitol, her security detail drove her near a pipe bomb at the Democratic National Committee headquarters that had yet to be rendered fully safe.`\
-https://nytimes.com/2024/08/29/us/politics/pelosi-jan-6-pipe-bomb.html
-
-**To Beat Trump, Democrats Seek to Help Anti-Abortion Candidate**\
-`Randall Terry, a longtime leader in the anti-abortion movement, is running a third-party campaign for president.`\
-https://nytimes.com/2024/08/29/us/politics/trump-terry-anti-abortion.html
 

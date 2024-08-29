@@ -1,3 +1,19 @@
+**Talanoa Hufanga, Isaac Yiadom return to bolster 49ers' secondary**\
+`Charvarius Ward thinks the 49ers can field the NFL's best secondary. This week's returns to practice can help toward that goal. `\
+https://nytimes.com/athletic/5732547/2024/08/29/49ers-secondary-nfl-talanoa-hufanga/
+
+**Ancelotti says Real Madrid lacking 'balance' after Las Palmas draw**\
+`Carlo Ancelotti says Real Madrid do not “have a good balance” after being held to a 1-1 draw against Las Palmas.`\
+https://nytimes.com/athletic/5732905/2024/08/29/carlo-ancelotti-real-madrid-las-palmas/
+
+**Colorado to Relocate Gray Wolves Less Than a Year After Their Release**\
+`The plan, amid accusations that the wolves were attacking livestock in the area, is potentially a setback for the state’s ambitious reintroduction program, experts say.`\
+https://nytimes.com/2024/08/29/climate/colorado-wolves-relocation-livestock.html
+
+**Padres takeaways: September, a decision to bunt and Manny Machado’s return to form**\
+`Elias Díaz seems poised to join the Padres when rosters expand, Jurickson Profar defends his instincts and Machado is heating up.`\
+https://nytimes.com/athletic/5732813/2024/08/29/padres-september-roster-jurickson-profar-manny-machado/
+
 **Pentagon says it will aid Secret Service ahead of election.**\
 `The`\
 https://nytimes.com/live/2024/08/29/us/harris-trump-election/pentagon-says-it-will-aid-secret-service-ahead-of-election
