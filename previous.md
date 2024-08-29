@@ -1,3 +1,7 @@
+**Son of Spanish Actor Is Convicted of Murdering Colombian Surgeon in Thailand**\
+`Daniel Sancho Bronchalo was sentenced to life imprisonment after a court in Koh Samui ruled that he was guilty of murdering Edwin Arrieta Arteaga last year.`\
+https://nytimes.com/2024/08/29/world/asia/thailand-daniel-sancho-bronchalo-murder.html
+
 **Cooper hopeful on Leicester transfers and expects player exits**\
 `Steve Cooper says Leicester City will be trying to add to the squad before tomorrow’s transfer deadline, and said some players could be leaving too.`\
 https://nytimes.com/athletic/5731506/2024/08/29/leicester-transfers-steve-cooper/
@@ -16,6 +20,6 @@ https://nytimes.com/athletic/5730206/2024/08/29/commanders-nfl-leadership-offsea
 
 **‘The Lord of The Rings: The Rings of Power’ Season 2, Episode 2: Strange Weather**\
 `The Stranger tries his hand again at magic but with mixed results. For now, Sauron does it better.`\
-https://nytimes.com/2024/08/29/arts/television/the-lord-of-the-rings-the-rings-of-power-recap-episode-2.html
+https://nytimes.com/2024/08/29/arts/television/the-rings-of-power-season-2-episode-2-recap.html
 
 **Hostages’ relatives protest at the Gaza border, and other news.**\
