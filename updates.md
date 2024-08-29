@@ -1,3 +1,15 @@
+**In Georgia, Local Officials Express Frustration Over New Election Rules**\
+`The State Election Board recently approved procedures that the people who run elections across the state said would make the process less secure and their jobs more difficult.`\
+https://nytimes.com/2024/08/29/us/elections/georgia-state-board-of-elections.html
+
+**The Giants' rotation is ailing, but in an entirely predictable way**\
+`With the benefit of hindsight, I'm not sure how anyone — myself included — thought this rotation construction was going to work out at all.`\
+https://nytimes.com/athletic/5730709/2024/08/29/sf-giants-rotation-injuries-construction/
+
+**England call-up for Angel Gomes, the Man United academy graduate now starring for Lille**\
+`He lifted the Under-17 World Cup as captain and won the Under-21 Euros last year - now Gomes has chance to remind everyone of his quality`\
+https://nytimes.com/athletic/5731707/2024/08/29/angel-gomes-england-man-united-lille/
+
 **The Windup: Even Ohtani's dog is crushing it**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5731782/2024/08/29/ohtani-dog-decoy-bobblehead-the-windup/
