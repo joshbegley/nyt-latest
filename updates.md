@@ -1,3 +1,11 @@
+**Ohtani's dog Decoy steals Dodgers fans' hearts after first pitch**\
+`Decoy, the star of L.A.'s bobblehead night, ran the ceremonial first pitch to Ohtani.`\
+https://nytimes.com/athletic/5730721/2024/08/28/shohei-ohtani-dodgers-dog-bobblehead/
+
+**Brayan Bello dazzles in best start of his career as Red Sox pick up another key win**\
+`Bello threw eight innings for the first time in his career, utilizing his reincorporated four-seam fastball.`\
+https://nytimes.com/athletic/5730735/2024/08/28/brayan-bello-red-sox-career-best/
+
 **Backpage Founder Gets Five Years in Case That Shut Down Website**\
 `Michael Lacey, 76, co-founded the website that became known for its ads for prostitution. He was convicted on a money laundering charge in a case that included accusations of sex trafficking.`\
 https://nytimes.com/2024/08/28/us/backpage-michael-lacey-sentenced.html

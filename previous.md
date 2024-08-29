@@ -1,3 +1,11 @@
+**Ohtani's dog Decoy steals Dodgers fans' hearts after first pitch**\
+`Decoy, the star of L.A.'s bobblehead night, ran the ceremonial first pitch to Ohtani.`\
+https://nytimes.com/athletic/5730721/2024/08/28/shohei-ohtani-dodgers-dog-bobblehead/
+
+**Brayan Bello dazzles in best start of his career as Red Sox pick up another key win**\
+`Bello threw eight innings for the first time in his career, utilizing his reincorporated four-seam fastball.`\
+https://nytimes.com/athletic/5730735/2024/08/28/brayan-bello-red-sox-career-best/
+
 **Backpage Founder Gets Five Years in Case That Shut Down Website**\
 `Michael Lacey, 76, co-founded the website that became known for its ads for prostitution. He was convicted on a money laundering charge in a case that included accusations of sex trafficking.`\
 https://nytimes.com/2024/08/28/us/backpage-michael-lacey-sentenced.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/28/us/politics/biden-student-loans-supreme-court.htm
 **Jose Altuve's home-plate steal provides spark for Astros club that needed one**\
 `Altuve's dash home set the tone for the Astros' victory, including Spencer Arrighetti's near no-hitter and Yordan Alvarez's three homers. `\
 https://nytimes.com/athletic/5730547/2024/08/28/jose-altuve-provides-astros-with-spark/
-
-**Taijuan Walker hits a new low. Would the Phillies eat the millions left on his contract?**\
-`The Phillies owe Walker roughly $39M. Eating that much money would be unprecedented in club history, but it's been done by other teams.`\
-https://nytimes.com/athletic/5730442/2024/08/28/taijuan-walker-struggles-phillies-options/
-
-**As 49ers' roster comes into focus, so do the weak spots for the upcoming season**\
-`The 49ers had two healthy running backs at Wednesday's practice, although two more are expected to be back on the field next week.`\
-https://nytimes.com/athletic/5730396/2024/08/28/49ers-roster-weak-spots/
 
