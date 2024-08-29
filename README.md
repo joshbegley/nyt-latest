@@ -26,7 +26,7 @@ https://nytimes.com/2024/08/29/dining/three-restaurants-where-you-dont-have-to-s
 `Welcome to Until Saturday, the five-star college football newsletter: Getting you ready for Week 1 of the college football season.`\
 https://nytimes.com/athletic/5730699/2024/08/29/college-football-week-1-until-saturday/
 
-**Officials Investigating After More Than 40 Horses Die From Contaminated Feed**\
+**More Than 40 Horses Die on Oklahoma Ranch After Eating Contaminated Feed**\
 `Agriculture departments in Oklahoma and Kansas are investigating the deaths on the Beutler ranch, a legacy breeder of livestock that supplies the nation’s rodeos.`\
 https://nytimes.com/2024/08/29/us/horse-dead-ranch-oklahoma.html
 

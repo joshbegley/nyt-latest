@@ -1,3 +1,11 @@
+**Major Publishers Sue Florida Over Banned School Library Books**\
+`A state law limits sexual content in school libraries. But several publishing companies say it has led to a “regime of strict censorship” in school districts.`\
+https://nytimes.com/2024/08/29/us/florida-book-ban-lawsuit.html
+
+**Cardinals to put Tommy Pham on waivers: Sources**\
+`The move suggests St. Louis could pivot to leaning on some of its younger talent during the final month of the season.`\
+https://nytimes.com/athletic/5732490/2024/08/29/cardinals-tommy-pham-waivers-2/
+
 **Leicester complete El Khannouss signing**\
 `Leicester City have completed the signing of Morocco attacking midfielder Bilal El Khannouss from Genk.`\
 https://nytimes.com/athletic/5732517/2024/08/29/bilal-el-khannouss-leicester-signing/
