@@ -1,3 +1,11 @@
+**Toll Reaches 17 Dead in Israel’s West Bank Raid, Including a Militant Commander**\
+`The operation is the largest Israeli military incursion in over a year into the West Bank, which has become a third front in a conflict also being fought in Gaza and along the border with Lebanon.`\
+https://nytimes.com/2024/08/29/world/middleeast/israel-west-bank-raid.html
+
+**What is Palestinian Islamic Jihad?**\
+`By Eve Sampson`\
+https://nytimes.com/2024/08/29/world/middleeast/what-is-palestinian-islamic-jihad.html
+
 **Donors Quietly Push Harris to Drop Tax on Ultrawealthy**\
 `Vice President Kamala Harris’s fund-raising has benefited from a surge of interest from Silicon Valley and Wall Street.`\
 https://nytimes.com/2024/08/29/us/politics/donors-harris-tax-ultrawealthy.html
