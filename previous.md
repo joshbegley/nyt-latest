@@ -30,7 +30,7 @@ https://nytimes.com/athletic/5730407/2024/08/29/nebraska-football-matt-rhule-reb
 `Kepler hasn't been able to repeat last year's strong second half, and trade and free-agent misfires have hurt the Twins' bullpen depth.`\
 https://nytimes.com/athletic/5728529/2024/08/29/minnesota-twins-bullpen-max-kepler-michael-tonkins/
 
-**‘Slingshot’ Review: Trapped in Space**\
-`The paranoia sets in all too quickly in this spare psychological thriller, starring Laurence Fishburne and Casey Affleck.`\
-https://nytimes.com/2024/08/29/movies/slingshot-review.html
+**The Athletic FC: Aaron Ramsdale and the Premier League's wild goalkeeper trade**\
+`Transfer deadline day latest, Nottingham Forest's extraordinary goalkeeper and the importance of stadium atmospheres`\
+https://nytimes.com/athletic/5731118/2024/08/29/aaron-ramsdale-and-the-premier-leagues-wild-goalkeeper-trade/
 

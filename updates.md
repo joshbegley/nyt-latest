@@ -1,3 +1,7 @@
+**The Athletic FC: Aaron Ramsdale and the Premier League's wild goalkeeper trade**\
+`Transfer deadline day latest, Nottingham Forest's extraordinary goalkeeper and the importance of stadium atmospheres`\
+https://nytimes.com/athletic/5731118/2024/08/29/aaron-ramsdale-and-the-premier-leagues-wild-goalkeeper-trade/
+
 **England defender Trippier announces international retirement**\
 `England defender Kieran Trippier has announced his retirement from international football.`\
 https://nytimes.com/athletic/5731182/2024/08/29/kieran-trippier-retires-england/
