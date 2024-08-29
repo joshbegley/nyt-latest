@@ -1,3 +1,7 @@
+**Friday Briefing: A Defining Harris Interview**\
+`Plus, a picnic battle on Italy’s beaches.`\
+https://nytimes.com/2024/08/29/briefing/harris-interview-polio-vaccines-us-china.html
+
 **Arsenal exploring move for Bournemouth goalkeeper Neto as Garcia talks hit impasse**\
 `Arsenal are exploring a move for Bournemouth goalkeeper Neto after hitting an impasse in talks over Espanyol&#8217;s Joan Garcia.`\
 https://nytimes.com/athletic/5732552/2024/08/29/arsenal-neto-bournemouth-transfer/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5732435/2024/08/29/falcons-raheem-morris-steelers-t
 **Major Publishers Sue Florida Over Banned School Library Books**\
 `A state law limits sexual content in school libraries. But several publishing companies say it has led to a “regime of strict censorship” in school districts.`\
 https://nytimes.com/2024/08/29/us/florida-book-ban-lawsuit.html
-
-**Leicester complete El Khannouss signing**\
-`Leicester City have completed the signing of Morocco attacking midfielder Bilal El Khannouss from Genk.`\
-https://nytimes.com/athletic/5732517/2024/08/29/bilal-el-khannouss-leicester-signing/
 
