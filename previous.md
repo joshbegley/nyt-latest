@@ -1,3 +1,7 @@
+**College football Week 1 model projections: Predicted scores for every game**\
+`Austin Mock is back at it, using his model to project the point total and score for every Week 1 college football game.`\
+https://nytimes.com/athletic/5731620/2024/08/29/college-football-week-1-model-projections-scores/
+
 **In Georgia, Local Officials Express Frustration Over New Election Rules**\
 `The State Election Board recently approved procedures that the people who run elections across the state said would make the process less secure and their jobs more difficult.`\
 https://nytimes.com/2024/08/29/us/elections/georgia-state-board-of-elections.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5731497/2024/08/29/aaron-hickey-injury-brentford/
 **Telluride Film Festival Embraces a Political and Topical Lineup**\
 `The films partly reflect the business realities of Hollywood, which is still grappling with the aftereffects of the writers’ and actors’ strikes last year.`\
 https://nytimes.com/2024/08/29/business/media/telluride-film-festival-political.html
-
-**Spicy Grilled Shrimp, Grilled Corn With Honeyed Goat Cheese and Peach Upside-Down Cake**\
-`Who says summer is ending?`\
-https://nytimes.com/2024/08/29/dining/spicy-grilled-shrimp-grilled-corn-with-honeyed-goat-cheese-and-peach-upside-down-cake.html
 
