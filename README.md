@@ -10,8 +10,8 @@ https://nytimes.com/athletic/5730274/2024/08/28/buffalo-bills-gm-beane-2024-rost
 `The Giants retired the Hall of Fame defensive end's number in 1935. It was the first number sidelined in pro football history.`\
 https://nytimes.com/athletic/5730323/2024/08/28/malik-nabers-ny-giants-jersey-unretired/
 
-**Trump Images at Grave Dismay Family of Green Beret Buried at Arlington**\
-`After a confrontation with Trump campaign officials, a cemetery employee declined to press charges and military officials said it was because she feared retribution from Donald Trump’s supporters.`\
+**Trump Videos at Arlington Stir More Fallout After Gravesite Visit**\
+`A family of a Green Beret buried there expressed concern about videos and photos taken by his grave. And a cemetery employee declined to press charges after an altercation with the Trump team, fearing retribution.`\
 https://nytimes.com/2024/08/28/us/politics/trump-arlington-cemetery.html
 
 **OpenAI in Talks for Deal That Would Value Company at $100 Billion**\
