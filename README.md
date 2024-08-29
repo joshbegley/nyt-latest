@@ -1,3 +1,7 @@
+**As 49ers' roster comes into focus, so do the weak spots for the upcoming season**\
+`The 49ers had two healthy running backs at Wednesday's practice, although two more are expected to be back on the field next week.`\
+https://nytimes.com/athletic/5730396/2024/08/28/49ers-roster-weak-spots/
+
 **What we learned from Brandon Beane after he set the 2024 roster**\
 `The Bills are remaining steady on Tyler Bass and Matt Milano.`\
 https://nytimes.com/athletic/5730274/2024/08/28/buffalo-bills-gm-beane-2024-roster/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5730360/2024/08/28/taylor-heinicke-chargers-falcons
 **Clark breaks WNBA record for most 3-pointers by a rookie**\
 `In addition to 3-pointers, Clark also leads the league in total assists and turnovers.`\
 https://nytimes.com/athletic/5730347/2024/08/28/caitlin-clark-wnba-rookie-3-point-record/
-
-**Giants place Thairo Estrada, Taylor Rogers, Tyler Matzek on waivers: Source**\
-`Estrada was the team's Opening Day second baseman and has been a top defender the past two years but has struggled at the plate.`\
-https://nytimes.com/athletic/5730302/2024/08/28/sf-giants-thairo-estrada-taylor-rogers-tyler-matzek-waivers/
 
