@@ -1,3 +1,7 @@
+**Barcelona's transfer window raises the question: Why would you want to sign for them?**\
+`Dani Olmo's registration drama and the circumstances of Ilkay Gundogan's exit have made for a dramatic few months`\
+https://nytimes.com/athletic/5731670/2024/08/29/barcelona-transfers-olmo-gundogan-registrations-la-liga/
+
 **NFL has no plans to further modify new-look kickoff**\
 `League exec Jeff Miller said 70 percent of the kickoffs during preseason games were returned.`\
 https://nytimes.com/athletic/5732041/2024/08/29/nfl-kickoff-rule-scrimmage-line/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5731905/2024/08/29/rashee-rice-exempt-list-chiefs/
 **Lions GM Brad Holmes targets Super Bowl as he discusses 2024 roster**\
 `Brad Holmes was clear about the team's goal for the season.`\
 https://nytimes.com/athletic/5731627/2024/08/29/detroit-lions-roster-gm-brad-holmes-ray-agnew/
-
-**How loud is Kyle Field? Why Texas A&M is an intimidating challenge for Notre Dame**\
-`What makes Texas A&M's Kyle Field so loud? It's the capacity of 102,733, of course, but also the way the stadium has been renovated.`\
-https://nytimes.com/athletic/5731832/2024/08/29/texas-am-kyle-field-notre-dame/
 
