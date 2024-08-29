@@ -1,3 +1,11 @@
+**Chiesa completes Liverpool move from Juventus**\
+`Liverpool have confirmed the signing of Federico Chiesa from Juventus in a £12.`\
+https://nytimes.com/athletic/5729230/2024/08/29/federico-chiesa-completes-liverpool-move/
+
+**‘The Lord of the Rings: The Rings of Power’ Season 2 Premiere: All That Glitters**\
+`The new season picks up roughly where Season 1 left off — with most of the same strengths and flaws.`\
+https://nytimes.com/2024/08/29/arts/television/the-lord-of-the-rings-the-rings-of-power-recap-season-2-premiere.html
+
 **What NFL agents think of Aiyuk's contract negotiation tactics**\
 `NFL agents offered mixed responses when asked about one of the biggest preseason topics impacting the San Francisco 49ers.`\
 https://nytimes.com/athletic/5730213/2024/08/29/brandon-aiyuk-contract-negotiations-nfl-agents/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5728869/2024/08/29/jacoby-brissett-patriots-startin
 **Court Orders South Korea to Take Stronger Action on Climate Change**\
 `A ruling by the Constitutional Court declared the nation’s current measures insufficient and a violation of the rights of future generations.`\
 https://nytimes.com/2024/08/29/world/asia/south-korea-climate-action-verdict-youth.html
-
-**U.S. Open day 3 recap: Shelton and Tiafoe set up the match of the tournament so far**\
-`Two of the most electrifying American players meet for the second successive tournament.`\
-https://nytimes.com/athletic/5730032/2024/08/29/us-open-recap-shelton-tiafoe/
-
-**Cameron Skattebo, as Arizona State shifts to the Big 12, meets a new audience**\
-`One of the more unique players in college football, Cameron Skattebo is hoping for a breakout year as Arizona State moves conferences.`\
-https://nytimes.com/athletic/5730025/2024/08/29/cameron-skattebo-arizona-state-big-12-running-back/
 
