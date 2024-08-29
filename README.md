@@ -1,3 +1,7 @@
+**Skye Writing**\
+`Simeon Seigel sets a course for puzzling adventure.`\
+https://nytimes.com/2024/08/28/crosswords/daily-puzzle-2024-08-29.html
+
 **Brazil Threatens to Ban Elon Musk’s X**\
 `The country’s Supreme Court gave the service 24 hours to name a legal representative in Brazil or face suspension.`\
 https://nytimes.com/2024/08/28/technology/brazil-x-ban-elon-musk.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5730396/2024/08/28/49ers-roster-weak-spots/
 **What we learned from Brandon Beane after he set the 2024 roster**\
 `The Bills are remaining steady on Tyler Bass and Matt Milano.`\
 https://nytimes.com/athletic/5730274/2024/08/28/buffalo-bills-gm-beane-2024-roster/
-
-**Nabers to wear retired No. 1 with Flaherty family's permission**\
-`The Giants retired the Hall of Fame defensive end's number in 1935. It was the first number sidelined in pro football history.`\
-https://nytimes.com/athletic/5730323/2024/08/28/malik-nabers-ny-giants-jersey-unretired/
 
