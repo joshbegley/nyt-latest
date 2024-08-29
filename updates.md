@@ -1,3 +1,19 @@
+**NFL has no plans to further modify new-look kickoff**\
+`League exec Jeff Miller said 70 percent of the kickoffs during preseason games were returned.`\
+https://nytimes.com/athletic/5732041/2024/08/29/nfl-kickoff-rule-scrimmage-line/
+
+**Champions League draw analysed: Best games, breakout stars and top eight predictions**\
+`The new-look Champions League draw threw up its fair share of intrigue. Our experts analyse the big talking points`\
+https://nytimes.com/athletic/5731894/2024/08/29/champions-league-league-phase-draw-predictions/
+
+**Ahead of dream Ferrari move, Lewis Hamilton feels the tifosi’s embrace at Monza**\
+`F1's most popular driver is experiencing the spotlight at Monza this weekend in a brand new way. `\
+https://nytimes.com/athletic/5731926/2024/08/29/f1-lewis-hamilton-italian-gp-ferrari/
+
+**Lions GM Brad Holmes targets Super Bowl as he discusses 2024 roster**\
+`Brad Holmes was clear about the team's goal for the season.`\
+https://nytimes.com/athletic/5731627/2024/08/29/detroit-lions-roster-gm-brad-holmes-ray-agnew/
+
 **How loud is Kyle Field? Why Texas A&M is an intimidating challenge for Notre Dame**\
 `What makes Texas A&M's Kyle Field so loud? It's the capacity of 102,733, of course, but also the way the stadium has been renovated.`\
 https://nytimes.com/athletic/5731832/2024/08/29/texas-am-kyle-field-notre-dame/
