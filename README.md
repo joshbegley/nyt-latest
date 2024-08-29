@@ -1,3 +1,7 @@
+**Google’s Fate**\
+`We explain the next steps in the Google monopoly case.`\
+https://nytimes.com/2024/08/29/briefing/googles-fate.html
+
 **F1 Italian GP track breakdown: How drivers brave Monza, the 'Temple of Speed'**\
 `Also known as 'la Pista Magica', Monza is the fastest track on the F1 calendar — driver's spend 80% of each lap on full throttle. `\
 https://nytimes.com/athletic/5729745/2024/08/29/monza-italian-gp-f1/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5726864/2024/08/29/nfl-2024-qb-strength-of-schedule
 **Why Tipping Is Everywhere**\
 `In the United States, many say tipping is expected in more places these days. Here’s how tipping culture exploded.`\
 https://nytimes.com/2024/08/29/podcasts/the-daily/tipping-trump-harris.html
-
-**Israel Steps Up West Bank Raids, and Trump’s Arlington Incident**\
-`Plus, the Paralympics begin in Paris.`\
-https://nytimes.com/2024/08/29/podcasts/israel-west-bank-trump-arlington.html
 
