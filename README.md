@@ -1,3 +1,7 @@
+**‘The Lord of the Rings: The Rings of Power’ Season 2, Episode 3: Forging Ahead**\
+`Arondir is back, along with some other major characters not yet seen this season. And this installment asks: Is Mordor maybe an OK place to live?`\
+https://nytimes.com/2024/08/29/arts/television/the-lord-of-the-rings-of-power-recap-episode-3.html
+
 **Tino Anjorin completes Empoli transfer from Chelsea**\
 `Tino Anjorin has completed a permanent transfer to Empoli from Chelsea.`\
 https://nytimes.com/athletic/5731618/2024/08/29/tino-anjorin-chelsea-empoli-transfer/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5731506/2024/08/29/leicester-transfers-steve-cooper
 **Leeds working to sign Isaac Schmidt from St. Gallen**\
 `Leeds United are working on a deal to sign St.`\
 https://nytimes.com/athletic/5731466/2024/08/29/isaac-schmidt-leeds-transfer/
-
-**Federico Chiesa to Liverpool: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500 series, we look at Italy forward Chiesa's move to Liverpool from Juventus`\
-https://nytimes.com/athletic/5726022/2024/08/29/federico-chiesa-to-liverpool-transfer-ratings/
 
