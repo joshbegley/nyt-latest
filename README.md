@@ -1,3 +1,7 @@
+**Elena Rybakina withdraws from U.S. Open**\
+`This is the seventh time that the Kazakh world No. 4 has withdrawn from a tournament — or retired from a match — in 2024.`\
+https://nytimes.com/athletic/5732608/2024/08/29/elena-rybakina-withdrawal-us-open/
+
 **‘Climate-Friendly’ Meat? Regulators Tighten Scrutiny of Label Buzzwords.**\
 `The new guidelines from the Agriculture Department encourage third-party assessments of environment-related claims, which have come under fire.`\
 https://nytimes.com/2024/08/29/climate/usda-meat-chicken-climate-labels.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/29/world/americas/honduras-extradition-us.html
 **Angels' top pitching prospects Caden Dana, Sam Aldegheri to debut**\
 `Dana is the Angels’ top pitching prospect, and Aldegheri will be the first pitcher born and raised in Italy to pitch in MLB.`\
 https://nytimes.com/athletic/5732519/2024/08/29/angels-caden-dana-sam-aldegheri-call-up/
-
-**Read the 2006 application**\
-`Applying for a White House fellowship in 2006, Wes Moore, then a 27-year-old Army veteran, wrote that he had been awarded “the Bronze Star Medal.”`\
-https://nytimes.com/interactive/2024/08/29/us/politics/wes-moore-bio.html
 
