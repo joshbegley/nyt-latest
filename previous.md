@@ -1,3 +1,7 @@
+**SEC adopts comprehensive system for player availability reports**\
+`The reporting system will include football, basketball and baseball. `\
+https://nytimes.com/athletic/5732420/2024/08/29/sec-player-availability-reports-football-basketball-baseball/
+
 **A Father Found His Son, but a Happy Ending Remains Elusive**\
 `Shawn Hubler, who covers California for The Times, shares how she balances objectivity with empathy while reporting on homelessness.`\
 https://nytimes.com/2024/08/29/insider/a-father-found-his-son-but-a-happy-ending-remains-elusive.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/29/climate/grand-teton-yellowstone-climate-change.ht
 **Punish the Creators of Deepfakes, Not the Women in Them**\
 `Advances in technology are frequently twisted from their original use and employed to humiliate women.`\
 https://nytimes.com/live/2024/08/27/opinion/thepoint/deepfake-pornography-women-assault
-
-**Ravens GM Eric DeCosta understands there might be 'hiccups' with younger O-line**\
-`Baltimore will rely on many recent draft picks to help fill voids along the O-line. Also, DeCosta spoke on the team's backup QB situation.`\
-https://nytimes.com/athletic/5732255/2024/08/29/ravens-gm-eric-decosta-understands-there-might-be-hiccups-with-younger-o-line/
 

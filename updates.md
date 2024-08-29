@@ -1,3 +1,7 @@
+**SEC adopts comprehensive system for player availability reports**\
+`The reporting system will include football, basketball and baseball. `\
+https://nytimes.com/athletic/5732420/2024/08/29/sec-player-availability-reports-football-basketball-baseball/
+
 **A Father Found His Son, but a Happy Ending Remains Elusive**\
 `Shawn Hubler, who covers California for The Times, shares how she balances objectivity with empathy while reporting on homelessness.`\
 https://nytimes.com/2024/08/29/insider/a-father-found-his-son-but-a-happy-ending-remains-elusive.html
