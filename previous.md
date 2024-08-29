@@ -1,3 +1,11 @@
+**Final fantasy football preseason takeaways: Surprise rookies, a new top RB handcuff contender and more**\
+`Jay Felicio shares his final thoughts on the preseason that was, highlighting some rookies showing surprising upside, like Denver QB Bo Nix.`\
+https://nytimes.com/athletic/5730198/2024/08/29/fantasy-football-2024-preseason-takeaways/
+
+**Referee Welch retires to take up managerial role with PGMOL**\
+`Rebecca Welch, the referee who made history as the first woman to officiate Premier League and EFL matches, has announced her retirement from on-field duties to take up a managerial role with the Professional Game Match Officials Limited (PGMOL).`\
+https://nytimes.com/athletic/5731122/2024/08/29/rebecca-welch-retires-pgmol/
+
 **Real Madrid's Rodriguez set to join Getafe in loan deal**\
 `Getafe are set to sign Real Madrid striker Alvaro Rodriguez on a season-long loan.`\
 https://nytimes.com/athletic/5731051/2024/08/29/real-madrid-transfers-alvaro-rodriguez-getafe-loan/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/29/movies/the-wasp-review.html
 **‘The Deliverance’ Review: The Power of Camp Compels Him**\
 `Lee Daniels directs Andra Day and Glenn Close in an exorcism tale that includes melodrama along with the scares.`\
 https://nytimes.com/2024/08/29/movies/the-deliverance-review.html
-
-**‘Seeking Mavis Beacon’ Review: A Search for a Black Luminary**\
-`Two digital sleuths set out to find the woman who lent her image to computer software in this scattered documentary.`\
-https://nytimes.com/2024/08/29/movies/seeking-mavis-beacon-review.html
-
-**‘Reagan’ Review: The Gipper Takes on Moscow**\
-`In this unabashed love letter to former president Ronald Reagan, Dennis Quaid fights the Cold War with conviction.`\
-https://nytimes.com/2024/08/29/movies/ronald-reagan-review-dennis-quaid.html
 

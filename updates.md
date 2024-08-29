@@ -1,3 +1,11 @@
+**Final fantasy football preseason takeaways: Surprise rookies, a new top RB handcuff contender and more**\
+`Jay Felicio shares his final thoughts on the preseason that was, highlighting some rookies showing surprising upside, like Denver QB Bo Nix.`\
+https://nytimes.com/athletic/5730198/2024/08/29/fantasy-football-2024-preseason-takeaways/
+
+**Referee Welch retires to take up managerial role with PGMOL**\
+`Rebecca Welch, the referee who made history as the first woman to officiate Premier League and EFL matches, has announced her retirement from on-field duties to take up a managerial role with the Professional Game Match Officials Limited (PGMOL).`\
+https://nytimes.com/athletic/5731122/2024/08/29/rebecca-welch-retires-pgmol/
+
 **Real Madrid's Rodriguez set to join Getafe in loan deal**\
 `Getafe are set to sign Real Madrid striker Alvaro Rodriguez on a season-long loan.`\
 https://nytimes.com/athletic/5731051/2024/08/29/real-madrid-transfers-alvaro-rodriguez-getafe-loan/
