@@ -1,3 +1,7 @@
+**What we learned from Brandon Beane after he set the 2024 roster**\
+`The Bills are remaining steady on Tyler Bass and Matt Milano.`\
+https://nytimes.com/athletic/5730274/2024/08/28/buffalo-bills-gm-beane-2024-roster/
+
 **Nabers to wear retired No. 1 with Flaherty family's permission**\
 `The Giants retired the Hall of Fame defensive end's number in 1935. It was the first number sidelined in pro football history.`\
 https://nytimes.com/athletic/5730323/2024/08/28/malik-nabers-ny-giants-jersey-unretired/

@@ -1,3 +1,7 @@
+**What we learned from Brandon Beane after he set the 2024 roster**\
+`The Bills are remaining steady on Tyler Bass and Matt Milano.`\
+https://nytimes.com/athletic/5730274/2024/08/28/buffalo-bills-gm-beane-2024-roster/
+
 **Nabers to wear retired No. 1 with Flaherty family's permission**\
 `The Giants retired the Hall of Fame defensive end's number in 1935. It was the first number sidelined in pro football history.`\
 https://nytimes.com/athletic/5730323/2024/08/28/malik-nabers-ny-giants-jersey-unretired/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5730347/2024/08/28/caitlin-clark-wnba-rookie-3-poin
 **Giants place Thairo Estrada, Taylor Rogers, Tyler Matzek on waivers: Source**\
 `Estrada was the team's Opening Day second baseman and has been a top defender the past two years but has struggled at the plate.`\
 https://nytimes.com/athletic/5730302/2024/08/28/sf-giants-thairo-estrada-taylor-rogers-tyler-matzek-waivers/
-
-**Ice bags are the U.S. Open's hottest accessory. Cooling players down is the hottest topic**\
-`At least once a year, Flushing Meadows turns into a tumble dryer — and one professor believes players could cool down better.`\
-https://nytimes.com/athletic/5730111/2024/08/28/us-open-weather-heat-cool-down-players/
 
