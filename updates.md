@@ -1,3 +1,7 @@
+**Google’s Fate**\
+`We explain the next steps in the Google monopoly case.`\
+https://nytimes.com/2024/08/29/briefing/googles-fate.html
+
 **F1 Italian GP track breakdown: How drivers brave Monza, the 'Temple of Speed'**\
 `Also known as 'la Pista Magica', Monza is the fastest track on the F1 calendar — driver's spend 80% of each lap on full throttle. `\
 https://nytimes.com/athletic/5729745/2024/08/29/monza-italian-gp-f1/
