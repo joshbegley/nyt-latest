@@ -1,3 +1,11 @@
+**Death Toll in Israel’s West Bank Raids Rises to 17, Palestinian News Agency Says**\
+`Israel’s military said it killed five people in a gun battle in a mosque, as its operation in the West Bank entered a second day.`\
+https://nytimes.com/live/2024/08/29/world/israel-hamas-gaza-war
+
+**Israel’s military says it killed 5 people in a gun battle in a West Bank mosque.**\
+`By Victoria Kim and Rawan Sheikh Ahmad`\
+https://nytimes.com/2024/08/29/world/middleeast/israels-military-says-it-killed-5-people-in-a-gun-battle-in-a-west-bank-mosque.html
+
 **Nagelsmann names new-look Germany squad for Nations League**\
 `Germany head coach Julian Nagelsmann has named his first squad since the international retirements of Manuel Neuer, Thomas Muller, Ilkay Gundogan and Toni Kroos.`\
 https://nytimes.com/athletic/5730970/2024/08/29/germany-squad-new-nations-league/
