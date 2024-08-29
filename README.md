@@ -1,3 +1,11 @@
+**30-Year Mortgage Rate Falls Again, Now at 6.35%**\
+`Further declines could encourage more activity from buyers and sellers.`\
+https://nytimes.com/2024/08/29/business/mortgage-rates.html
+
+**Buckley: Jerod Mayo makes Jacoby Brissett the Patriots' starter, but it’s still complicated**\
+`If it was truly a QB competition between Brissett and Drake Maye, the rookie should probably be starting. This was something else at play.`\
+https://nytimes.com/athletic/5731830/2024/08/29/patriots-jerod-mayo-jacoby-brissett-drake-maye/
+
 **Trump Should Be Scared — Very Scared — of Debating Kamala Harris**\
 `If she keeps her cool, he’ll surely lose his.`\
 https://nytimes.com/2024/08/29/opinion/trump-kamala-harris-debate.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/29/us/elections/georgia-state-board-of-elections.htm
 **The Giants' rotation is ailing, but in an entirely predictable way**\
 `With the benefit of hindsight, I'm not sure how anyone — myself included — thought this rotation construction was going to work out at all.`\
 https://nytimes.com/athletic/5730709/2024/08/29/sf-giants-rotation-injuries-construction/
-
-**England call-up for Angel Gomes, the Man United academy graduate now starring for Lille**\
-`He lifted the Under-17 World Cup as captain and won the Under-21 Euros last year - now Gomes has chance to remind everyone of his quality`\
-https://nytimes.com/athletic/5731707/2024/08/29/angel-gomes-england-man-united-lille/
-
-**The Windup: Even Ohtani's dog is crushing it**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5731782/2024/08/29/ohtani-dog-decoy-bobblehead-the-windup/
 
