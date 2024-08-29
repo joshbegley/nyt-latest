@@ -1,3 +1,11 @@
+**Zaha close to joining Lyon on loan from Galatasaray**\
+`Galatasaray winger Wilfried Zaha is close to joining Lyon on loan.`\
+https://nytimes.com/athletic/5732263/2024/08/29/wilfried-zaha-lyon-loan/
+
+**Don't call it a rebuild: 4 thoughts on Panthers' waiver claims and retooling process**\
+`The Panthers took advantage of their waiver-claim position, grabbing six players with a focus on big corners and an eye on edge rushers.`\
+https://nytimes.com/athletic/5732220/2024/08/29/carolina-panthers-waiver-claims-roster-building/
+
 **Forest bid for Kelleher rejected by Liverpool**\
 `Liverpool have rejected a cash plus player offer from Nottingham Forest for goalkeeper Caoimhin Kelleher.`\
 https://nytimes.com/athletic/5732182/2024/08/29/nottingham-forest-bid-caoimhin-kelleher/
