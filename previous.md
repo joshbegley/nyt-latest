@@ -1,3 +1,11 @@
+**West Ham 1 Bournemouth 0: Potential outgoings? Soler arrival? How did new boys play?**\
+`West Ham beat Bournemouth 1-0 in the Carabao Cup on Wednesday — this is what that means`\
+https://nytimes.com/athletic/5729601/2024/08/29/west-ham-bournemouth-analysis-report/
+
+**Marcos Alonso joins Celta Vigo after Barcelona exit**\
+`Marcos Alonso has joined Celta Vigo after leaving Barcelona earlier this summer.`\
+https://nytimes.com/athletic/5730934/2024/08/29/marcos-alonso-celta-vigo-transfer-barcelona/
+
 **Struggling Teenagers Left Out in New Push to Overhaul Reading**\
 `Districts like New York are revamping elementary school reading instruction. But the middle and high schoolers who don’t read proficiently are an afterthought.`\
 https://nytimes.com/2024/08/29/nyregion/older-students-reading-instruction.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5730886/2024/08/29/mets-blow-late-lead-diamondbacks
 **Wolves 2 Burnley 0: Guedes' road to redemption? Transfer window latest?**\
 `Wolves overcame Burnley 2-0 on Wednesday night to advance in the Carabao Cup — this is what we learned from the game and going forward`\
 https://nytimes.com/athletic/5730372/2024/08/29/wolves-burnley-analysis-report/
-
-**Word of the Day: avaricious**\
-`This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/08/29/learning/word-of-the-day-avaricious.html
-
-**'Nole against the world': The fan who stole the show as Djokovic toiled through in New York**\
-`Zoran Pavlovic was dressed in a white t-shirt Wednesday night, the figure of Novak Djokovic emblazoned across the chest.`\
-https://nytimes.com/athletic/5730825/2024/08/29/novak-djokovic-us-open-super-fan/
 

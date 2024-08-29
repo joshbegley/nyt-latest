@@ -1,3 +1,11 @@
+**West Ham 1 Bournemouth 0: Potential outgoings? Soler arrival? How did new boys play?**\
+`West Ham beat Bournemouth 1-0 in the Carabao Cup on Wednesday — this is what that means`\
+https://nytimes.com/athletic/5729601/2024/08/29/west-ham-bournemouth-analysis-report/
+
+**Marcos Alonso joins Celta Vigo after Barcelona exit**\
+`Marcos Alonso has joined Celta Vigo after leaving Barcelona earlier this summer.`\
+https://nytimes.com/athletic/5730934/2024/08/29/marcos-alonso-celta-vigo-transfer-barcelona/
+
 **Struggling Teenagers Left Out in New Push to Overhaul Reading**\
 `Districts like New York are revamping elementary school reading instruction. But the middle and high schoolers who don’t read proficiently are an afterthought.`\
 https://nytimes.com/2024/08/29/nyregion/older-students-reading-instruction.html
