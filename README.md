@@ -1,3 +1,11 @@
+**The Giants' rotation is ailing, but in an entirely predictable way**\
+`With the benefit of hindsight, I'm not sure how anyone — myself included — thought this rotation construction was going to work out at all.`\
+https://nytimes.com/athletic/5730709/2024/08/29/sf-giants-rotation-injuries-construction/
+
+**England call-up for Angel Gomes, the Man United academy graduate now starring for Lille**\
+`He lifted the U17 World Cup as captain and won the U21 Euros last year - now Gomes has chance to remind everyone of his quality.`\
+https://nytimes.com/athletic/5731707/2024/08/29/angel-gomes-england-man-united-lille/
+
 **The Windup: Even Ohtani's dog is crushing it**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5731782/2024/08/29/ohtani-dog-decoy-bobblehead-the-windup/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/29/dining/spicy-grilled-shrimp-grilled-corn-with-hon
 **Mount out for 4-5 weeks with hamstring injury**\
 `Manchester United midfielder Mason Mount is set to be sidelined for four to five weeks with a hamstring injury.`\
 https://nytimes.com/athletic/5731561/2024/08/29/mason-mount-injury-man-united/
-
-**Democratic House Candidate Cleared in New York Harassment Inquiry**\
-`The findings may help the candidate, State Senator John Mannion, in his bid to unseat Representative Brandon Williams in a tossup race.`\
-https://nytimes.com/2024/08/29/nyregion/mannion-williams-investigation.html
-
-**Ask me anything: Leave a question for James Mirtle's next article**\
-`With rookie camps starting soon, we're taking questions that could be part of a future column or mailbag.`\
-https://nytimes.com/athletic/5731659/2024/08/29/maple-leafs-nhl-questions/
 
