@@ -1,3 +1,8 @@
+**What to watch at U.S. Open on day 4: Alcaraz and Swiatek look to progress**\
+`Follow live coverage of day four at the 2024 US Open
+Day 4 of the U.`\
+https://nytimes.com/athletic/5729579/2024/08/29/what-to-watch-at-u-s-open-on-day-4-carlos-alcaraz-and-iga-swiatek-look-to-progress/
+
 **West Ham 1 Bournemouth 0: Potential outgoings? Soler arrival? How did new boys play?**\
 `West Ham beat Bournemouth 1-0 in the Carabao Cup on Wednesday — this is what that means`\
 https://nytimes.com/athletic/5729601/2024/08/29/west-ham-bournemouth-analysis-report/
@@ -29,8 +34,4 @@ https://nytimes.com/2024/08/29/pageoneplus/corrections-aug-29-2024.html
 **'We've got an uphill battle': Mets blow another late lead in a key game**\
 `Wednesday was the second "worst loss of the season" the Mets have endured in the last four days.`\
 https://nytimes.com/athletic/5730886/2024/08/29/mets-blow-late-lead-diamondbacks/
-
-**Wolves 2 Burnley 0: Guedes' road to redemption? Transfer window latest?**\
-`Wolves overcame Burnley 2-0 on Wednesday night to advance in the Carabao Cup — this is what we learned from the game and going forward`\
-https://nytimes.com/athletic/5730372/2024/08/29/wolves-burnley-analysis-report/
 
