@@ -1,3 +1,11 @@
+**How to Fend Off Mosquitoes**\
+`We asked experts how to keep the pests away from your house and protect yourself from bites when you go outdoors.`\
+https://nytimes.com/article/how-stop-mosquito-bites.html
+
+**NASCAR's 2025 Cup Series schedule changes, ranked from best to worst**\
+`From Mexico City to booting Homestead to March, here are our thoughts on the changes coming to the 2025 NASCAR Cup Series schedule.`\
+https://nytimes.com/athletic/5729398/2024/08/29/2025-nascar-cup-series-schedule-changes-ranked/
+
 **Cruise Ship Worker Sentenced to 30 Years for Hiding Cameras in Bathrooms**\
 `The former employee of Royal Caribbean told investigators that he had been secretly recording people, including children, since December 2023.`\
 https://nytimes.com/2024/08/29/us/royal-caribbean-employee-hidden-camera-sentence.html
@@ -18,19 +26,11 @@ https://nytimes.com/2024/08/29/climate/factory-farming-transfarmation-project.ht
 `With the new extension, Curry now has $178 million left on his contract, according to data from Spotrac.`\
 https://nytimes.com/athletic/5732009/2024/08/29/steph-curry-warriors-contract-extension/
 
-**Why the Nashville Predators committed to Juuse Saros over top goaltending prospect Yaroslav Askarov**\
+**Why the Predators committed to Juuse Saros over top goaltending prospect Yaroslav Askarov**\
 `Saros and Predators general manager Barry Trotz take us inside the decision to sign a contract that carries the goalie through 2033.`\
 https://nytimes.com/athletic/5729417/2024/08/29/predators-juuse-saros-yaroslav-askarov/
 
 **Chiefs' Rashee Rice not heading to commissioner's exempt list**\
 `League exec Jeff Miller said the league continues to closely monitor developments regarding Rice and his legal problems this offseason.`\
 https://nytimes.com/athletic/5731905/2024/08/29/rashee-rice-exempt-list-chiefs/
-
-**F-16 Fighter Jet, Recently Supplied to Ukraine, Crashes**\
-`A Western official said the advanced fighter crashed while defending against a Russian aerial assault. It was not clear how it was destroyed, but the loss is a symbolic blow to Ukraine, given the planes’ prominence.`\
-https://nytimes.com/2024/08/29/world/europe/f-16-ukraine-crash.html
-
-**Trump Aide ‘Abruptly Pushed Aside’ an Arlington Cemetery Official, the Army Says**\
-`The statement from the Army is the first detailed description of an altercation that took place on Monday, as Mr. Trump appeared for a wreath-laying ceremony.`\
-https://nytimes.com/2024/08/29/us/politics/trump-arlington-cemetery-army.html
 
