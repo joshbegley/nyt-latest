@@ -1,36 +1,36 @@
-**The Connections Companion No. 446**\
-`Scroll down for hints and conversation about the puzzle for Friday, Aug. 30, 2024.`\
-https://nytimes.com/2024/08/29/crosswords/connections-companion-446.html
+**Week 1's top 10 college football games: Rivalries, ranked matchups and CFP implications**\
+`Clemson-Georgia and Notre Dame-Texas A&M are the headliners, but keep an eye on FSU, Oklahoma State, Boise State and, of course, Colorado.`\
+https://nytimes.com/athletic/5729165/2024/08/29/college-football-schedule-week-one-top-games/
 
-**Wordle Review No. 1,168**\
-`Scroll down for hints and conversation about the puzzle for August 30, 2024.`\
-https://nytimes.com/2024/08/29/crosswords/wordle-review-1168.html
+**How to watch college football in 2024: A guide to the new-look lineup**\
+`The SEC is moving to ABC, and CBS in all in on the Big Ten. Got it? There are plenty more changes to how fans will take in the action.`\
+https://nytimes.com/athletic/5730788/2024/08/29/college-football-tv-guide-channels-2024/
 
-**Top Biden Aide Holds Rare Talks With Chinese Military General**\
-`Jake Sullivan also met with China’s top leader, Xi Jinping, who said the United States should “find a correct way for the two major countries to get along.”`\
-https://nytimes.com/2024/08/29/world/asia/china-us-sullivan-xi.html
+**Can Ole Miss be trusted to meet College Football Playoff expectations?**\
+`Is Ole Miss ready to compete for a Playoff spot? It looks like the Rebels are improved up front, and that may be the key to the CFP.`\
+https://nytimes.com/athletic/5720081/2024/08/29/ole-miss-college-football-playoff-preview-predictions/
 
-**Why is Bears GM Ryan Poles excited? 'The group of guys, it's really special'**\
-`We heard from the Bears' GM after he set the initial 53-man roster. He talked Caleb Williams, the offensive line, Matt Eberflus and more.`\
-https://nytimes.com/athletic/5730180/2024/08/29/bears-preseason-excitement-ryan-poles/
+**Ranking NFL schedules by opposing QBs: Patriots, Raiders face the toughest roads**\
+`For the second year in a row, the Patriots face a stacked slate of quarterbacks, as AFC teams have eight of the nine hardest schedules.`\
+https://nytimes.com/athletic/5726864/2024/08/29/nfl-2024-qb-strength-of-schedule-rankings/
 
-**Salah 'not thinking' about future amid Liverpool contract uncertainty**\
-`Mohamed Salah insists he is relaxed about his contract situation at Liverpool.`\
-https://nytimes.com/athletic/5731014/2024/08/29/mohamed-salah-liverpool-contract-expires/
+**Why Tipping Is Everywhere**\
+`In the United States, many say tipping is expected in more places these days. Here’s how tipping culture exploded.`\
+https://nytimes.com/2024/08/29/podcasts/the-daily/tipping-trump-harris.html
 
-**Will Bill Belichick coach again? A hoodie-shaped cloud looms over NFL in 2024**\
-`If the Cowboys, Eagles or Bills start the season slowly, the speculation about Belichick is going to dial way up.`\
-https://nytimes.com/athletic/5726222/2024/08/29/bill-belichick-coach-nfl-2024-eagles-cowboys-bills/
+**Israel Steps Up West Bank Raids, and Trump’s Arlington Incident**\
+`Plus, the Paralympics begin in Paris.`\
+https://nytimes.com/2024/08/29/podcasts/israel-west-bank-trump-arlington.html
 
-**Brighton's Matt O'Riley 'needs surgery' after ankle injury on debut**\
-`Brighton &amp; Hove Albion&#8217;s new signing Matt O&#8217;Riley needs surgery on left ankle ligament damage.`\
-https://nytimes.com/athletic/5731033/2024/08/29/matt-oriley-brighton-injury/
+**As Rangers broadcaster Sam Rosen approaches retirement, his energy has 'never, ever waned'**\
+`Each game matters to Rosen, and his approach has helped the games matter to fans, too.`\
+https://nytimes.com/athletic/5729019/2024/08/29/ny-rangers-sam-rosen-retirement/
 
-**NFL agent survey: 31 reps on best organizations, Mahomes' value and Dak's next deal**\
-`In our sixth annual agent survey, reps offered thoughts on everything from QB contracts to top talent evaluators to ways to improve the NFL.`\
-https://nytimes.com/athletic/5629974/2024/08/29/nfl-agent-survey-best-worst-franchises-patrick-mahomes-dak-prescott/
+**Top 5 Yankees stories of the week: Catch up on the most-read NY headlines**\
+`Catch up on the past week by checking out the most popular Yankees and MLB stories.`\
+https://nytimes.com/athletic/5729316/2024/08/29/new-york-yankees-headlines-standings-stats/
 
-**Emmanuel Clase, Zack Britton and a reliever's rocky path to the Cy Young Award**\
-`Cleveland's Emmanuel Clase is authoring an all-time great relief season; haven't been enough to win a Cy Young lately.  `\
-https://nytimes.com/athletic/5730051/2024/08/29/cy-young-award-reliever-emmanuel-clase/
+**Pistons fan survey results: What we learned about your expectations for 2024**\
+`The results are in. See how fans feel about the coming season and state of the Pistons' franchise.`\
+https://nytimes.com/athletic/5728563/2024/08/29/detroit-pistons-cade-cunningham-jaden-ivey-fan-survey/
 
