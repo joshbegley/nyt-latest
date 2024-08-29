@@ -1,3 +1,11 @@
+**Nabers to wear retired No. 1 with Flaherty family's permission**\
+`The Giants retired the Hall of Fame defensive end's number in 1935. It was the first number sidelined in pro football history.`\
+https://nytimes.com/athletic/5730323/2024/08/28/malik-nabers-ny-giants-jersey-unretired/
+
+**Trump Images at Grave Dismay Family of Green Beret Buried at Arlington**\
+`After a confrontation with Trump campaign officials, a cemetery employee declined to press charges and military officials said it was because she feared retribution from Donald Trump’s supporters.`\
+https://nytimes.com/2024/08/28/us/politics/trump-arlington-cemetery.html
+
 **OpenAI in Talks for Deal That Would Value Company at $100 Billion**\
 `While some young A.I. companies have struggled to compete with the tech industry’s giants, OpenAI has been rapidly expanding.`\
 https://nytimes.com/2024/08/28/technology/openai-valuation-funding-deal.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5730302/2024/08/28/sf-giants-thairo-estrada-taylor-
 **Ice bags are the U.S. Open's hottest accessory. Cooling players down is the hottest topic**\
 `At least once a year, Flushing Meadows turns into a tumble dryer — and one professor believes players could cool down better.`\
 https://nytimes.com/athletic/5730111/2024/08/28/us-open-weather-heat-cool-down-players/
-
-**Colts GM Chris Ballard not worried about job security entering eighth season**\
-`Ballard has unwavering conviction in his team-building philosophy. “It’s what we believe. If it gets me fired, so be it.”`\
-https://nytimes.com/athletic/5730055/2024/08/28/indianapolis-colts-chris-ballard-gm-job-security/
-
-**Wide receiver position created Broncos' toughest choices. Did they get it right?**\
-`Cutting Tim Patrick was an "extremely difficult" choice, but the Broncos believe they have built a well-rounded room of targets for Bo Nix.`\
-https://nytimes.com/athletic/5729591/2024/08/28/broncos-roster-wide-receivers/
 
