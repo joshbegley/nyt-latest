@@ -1,3 +1,7 @@
+**Climate Change Comes to the Grand Tetons**\
+`In one of North America’s most stunning mountain ranges, melting glaciers and warmer temperatures are raising fears of ecological tipping points.`\
+https://nytimes.com/2024/08/29/climate/grand-teton-yellowstone-climate-change.html
+
 **Punish the Creators of Deepfakes, Not the Women in Them**\
 `Advances in technology are frequently twisted from their original use and employed to humiliate women.`\
 https://nytimes.com/live/2024/08/27/opinion/thepoint/deepfake-pornography-women-assault
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5732220/2024/08/29/carolina-panthers-waiver-claims-
 **Forest bid for Kelleher rejected by Liverpool**\
 `Liverpool have rejected a cash plus player offer from Nottingham Forest for goalkeeper Caoimhin Kelleher.`\
 https://nytimes.com/athletic/5732182/2024/08/29/nottingham-forest-bid-caoimhin-kelleher/
-
-**University of Virginia Suspends Tours That Emphasized Ties to Slavery**\
-`A group of conservative alumni said the student-led tours were overly focused on the school’s history of using enslaved laborers.`\
-https://nytimes.com/2024/08/29/us/university-of-virginia-tours-slavery.html
 
