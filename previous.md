@@ -1,3 +1,7 @@
+**Madrid players will 'leave the pitch' over racist abuse - Vinicius**\
+`Real Madrid&#8217;s Vinicius Junior has said he and his team-mates will walk off the pitch if they suffer racist abuse.`\
+https://nytimes.com/athletic/5730923/2024/08/29/vinicius-racism-real-madrid/
+
 **What to watch at U.S. Open on day 4: Alcaraz and Swiatek look to progress**\
 `Follow live coverage of day four at the 2024 US Open
 Day 4 of the U.`\
@@ -30,8 +34,4 @@ https://nytimes.com/2024/08/29/nyregion/mayor-adams-dinkins.html
 **Corrections: Aug. 29, 2024**\
 `Corrections that appeared in print on Thursday, Aug. 29, 2024.`\
 https://nytimes.com/2024/08/29/pageoneplus/corrections-aug-29-2024.html
-
-**'We've got an uphill battle': Mets blow another late lead in a key game**\
-`Wednesday was the second "worst loss of the season" the Mets have endured in the last four days.`\
-https://nytimes.com/athletic/5730886/2024/08/29/mets-blow-late-lead-diamondbacks/
 
