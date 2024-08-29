@@ -1,3 +1,15 @@
+**Thursday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/08/28/briefing/telegram-israel-west-bank-trump-harris.html
+
+**Hong Kong Journalists to Get Verdict in Test Case for Press Freedom**\
+`The ruling in the Stand News trial comes as news media outlets face increasing pressure from the authorities amid a national security clampdown.`\
+https://nytimes.com/2024/08/28/world/asia/hong-kong-stand-news-verdict.html
+
+**As Twins' free fall continues, Byron Buxton still needs to up intensity before rehab game**\
+`Buxton isn't yet ready for a rehab assignment. Plus, David Festa dueled an NL Cy Young Award contender in a mistake-filled loss.`\
+https://nytimes.com/athletic/5730754/2024/08/28/twins-byron-buxton-rehab-update/
+
 **Brady facing TV restrictions amid Raiders partial ownership bid process**\
 `The restrictions begin immediately as the transaction is pending and going through the review process, the source said.`\
 https://nytimes.com/athletic/5730662/2024/08/28/tom-brady-raiders-ownership-restrictions-fox/

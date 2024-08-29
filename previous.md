@@ -1,9 +1,17 @@
+**Thursday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/08/28/briefing/telegram-israel-west-bank-trump-harris.html
+
+**Hong Kong Journalists to Get Verdict in Test Case for Press Freedom**\
+`The ruling in the Stand News trial comes as news media outlets face increasing pressure from the authorities amid a national security clampdown.`\
+https://nytimes.com/2024/08/28/world/asia/hong-kong-stand-news-verdict.html
+
 **Brady facing TV restrictions amid Raiders partial ownership bid process**\
 `The restrictions begin immediately as the transaction is pending and going through the review process, the source said.`\
 https://nytimes.com/athletic/5730662/2024/08/28/tom-brady-raiders-ownership-restrictions-fox/
 
 **As Twins' free fall continues, Byron Buxton still needs to up intensity before rehab game**\
-`Buxton isn't yet ready for a rehab assignment, plus David Festa dueled an NL Cy Young Award contender in a mistake-filled loss.`\
+`Buxton isn't yet ready for a rehab assignment. Plus, David Festa dueled an NL Cy Young Award contender in a mistake-filled loss.`\
 https://nytimes.com/athletic/5730754/2024/08/28/twins-byron-buxton-rehab-update/
 
 **Ohtani's dog Decoy steals Dodgers fans' hearts with first pitch**\
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/28/crosswords/daily-puzzle-2024-08-29.html
 **Brazil Threatens to Ban Elon Musk’s X**\
 `The country’s Supreme Court gave the service 24 hours to name a legal representative in Brazil or face suspension.`\
 https://nytimes.com/2024/08/28/technology/brazil-x-ban-elon-musk.html
-
-**Kawakami: A dramatic 49ers-Brandon Aiyuk showdown and the signs of a break-up in progress**\
-`The 49ers challenged Brandon Aiyuk to practice on Wednesday or face discipline. He didn't practice. Next up: major, major consequences.`\
-https://nytimes.com/athletic/5730266/2024/08/28/49ers-brandon-aiyuk-contract-showdown/
-
-**Typhoon Shanshan Makes Landfall in Southern Japan**\
-`The risk of life-threatening landslides and floods was rapidly increasing in parts of Kyushu Island as the storm lashed it with relentless rain, the authorities warned.`\
-https://nytimes.com/2024/08/28/world/asia/typhoon-shanshan-japan-landfall.html
 
