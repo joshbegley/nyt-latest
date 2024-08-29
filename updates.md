@@ -1,3 +1,7 @@
+**Cruise Ship Worker Sentenced to 30 Years for Hiding Cameras in Bathrooms**\
+`The former employee of Royal Caribbean told investigators that he had been secretly recording people, including children, since December 2023.`\
+https://nytimes.com/2024/08/29/us/royal-caribbean-employee-hidden-camera-sentence.html
+
 **7 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/08/29/books/review/new-books-recommendations.html
