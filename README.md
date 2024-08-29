@@ -14,10 +14,6 @@ https://nytimes.com/athletic/5731894/2024/08/29/champions-league-league-phase-dr
 `F1's most popular driver is experiencing the spotlight at Monza this weekend in a brand new way. `\
 https://nytimes.com/athletic/5731926/2024/08/29/f1-lewis-hamilton-italian-gp-ferrari/
 
-**Liverpool to face Real Madrid, Arsenal take on PSG in Champions League draw**\
-`Liverpool have been drawn against Real Madrid in the league phase of the 2024-25 Champions League, while Arsenal will play Paris Saint-Germain.`\
-https://nytimes.com/athletic/5731889/2024/08/29/champions-league-draw-liverpool-real-madrid/
-
 **NASCAR's 2025 Cup Series schedule changes, ranked from best to worst**\
 `From Mexico City to booting Homestead to March, here are our thoughts on the changes coming to the 2025 NASCAR Cup Series schedule.`\
 https://nytimes.com/athletic/5729398/2024/08/29/2025-nascar-cup-series-schedule-changes-ranked/
@@ -33,4 +29,8 @@ https://nytimes.com/athletic/5729417/2024/08/29/predators-juuse-saros-yaroslav-a
 **Chiefs' Rashee Rice not heading to commissioner's exempt list**\
 `League exec Jeff Miller said the league continues to closely monitor developments regarding Rice and his legal problems this offseason.`\
 https://nytimes.com/athletic/5731905/2024/08/29/rashee-rice-exempt-list-chiefs/
+
+**Lions GM Brad Holmes targets Super Bowl as he discusses 2024 roster**\
+`Brad Holmes was clear about the team's goal for the season.`\
+https://nytimes.com/athletic/5731627/2024/08/29/detroit-lions-roster-gm-brad-holmes-ray-agnew/
 
