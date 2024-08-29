@@ -1,3 +1,7 @@
+**Barcelona's transfer window raises the question: Why would you want to sign for them?**\
+`Dani Olmo's registration drama and the circumstances of Ilkay Gundogan's exit have made for a dramatic few months`\
+https://nytimes.com/athletic/5731670/2024/08/29/barcelona-transfers-olmo-gundogan-registrations-la-liga/
+
 **NFL has no plans to further modify new-look kickoff**\
 `League exec Jeff Miller said 70 percent of the kickoffs during preseason games were returned.`\
 https://nytimes.com/athletic/5732041/2024/08/29/nfl-kickoff-rule-scrimmage-line/
