@@ -1,3 +1,7 @@
+**'We've got an uphill battle': Mets blow another late lead in a key game**\
+`It was the second “worst loss of the season” the Mets have endured in the last four days.`\
+https://nytimes.com/athletic/5730886/2024/08/29/mets-blow-late-lead-diamondbacks/
+
 **Wolves 2 Burnley 0: Guedes' road to redemption? Transfer window latest?**\
 `Wolves overcame Burnley 2-0 on Wednesday night to advance in the Carabao Cup — this is what we learned from the game and going forward`\
 https://nytimes.com/athletic/5730372/2024/08/29/wolves-burnley-analysis-report/
