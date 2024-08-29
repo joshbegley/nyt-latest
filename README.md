@@ -1,3 +1,23 @@
+**Salah 'not thinking' about future amid Liverpool contract uncertainty**\
+`Mohamed Salah insists he is relaxed about his contract situation at Liverpool.`\
+https://nytimes.com/athletic/5731014/2024/08/29/mohamed-salah-liverpool-contract-expires/
+
+**Will Bill Belichick coach again? A hoodie-shaped cloud looms over NFL in 2024**\
+`If the Cowboys, Eagles or Bills start the season slowly, the speculation about Belichick is going to dial way up.`\
+https://nytimes.com/athletic/5726222/2024/08/29/bill-belichick-coach-nfl-2024-eagles-cowboys-bills/
+
+**Brighton's Matt O'Riley 'needs surgery' after ankle injury on debut**\
+`Brighton &amp; Hove Albion&#8217;s new signing Matt O&#8217;Riley needs surgery on left ankle ligament damage.`\
+https://nytimes.com/athletic/5731033/2024/08/29/matt-oriley-brighton-injury/
+
+**NFL agent survey: 31 reps on best organizations, Mahomes' value and Dak's next deal**\
+`In our sixth annual agent survey, reps offered thoughts on everything from QB contracts to top talent evaluators to ways to improve the NFL.`\
+https://nytimes.com/athletic/5629974/2024/08/29/nfl-agent-survey-best-worst-franchises-patrick-mahomes-dak-prescott/
+
+**Emmanuel Clase, Zack Britton and a reliever's rocky path to the Cy Young Award**\
+`Cleveland's Emmanuel Clase is authoring an all-time great relief season; haven't been enough to win a Cy Young lately.  `\
+https://nytimes.com/athletic/5730051/2024/08/29/cy-young-award-reliever-emmanuel-clase/
+
 **How will Michigan follow a national title? Predicting Sherrone Moore’s first season**\
 `Previewing the 2024 Michigan season, which comes with numerous questions on offense and a difficult schedule — but Playoff potential.`\
 https://nytimes.com/athletic/5729480/2024/08/29/michigan-wolverines-football-preview-predictions-schedule/
@@ -13,24 +33,4 @@ https://nytimes.com/2024/08/29/opinion/trump-harris-joy-maga-2024.html
 **In Brooklyn, Two First-Time Buyers Weigh Classic Charm vs. Industrial Chic**\
 `Searching in Clinton Hill and Bedford-Stuyvesant, a young couple endeavored to find a sunny place with a decent kitchen and not too many stairs.`\
 https://nytimes.com/interactive/2024/08/29/realestate/brooklyn-home-buy.html
-
-**Attractions and Accessories for the Tennis Obsessed**\
-`Plus: tableware that channels rural Britain, illustrated pastry boxes and more recommendations from T Magazine.`\
-https://nytimes.com/2024/08/29/t-magazine/tennis-accessories-fashion.html
-
-**Whale Beheading, Bear Carcass Dumping and Trump Boosting, Oh My!**\
-`Yes, it gets worse than Mitt Romney’s dog.`\
-https://nytimes.com/live/2024/08/27/opinion/thepoint/whale-beheading-bear-carcass-dumping-and-trump-boosting-oh-my
-
-**Jayson Tatum discusses Olympic benching 'debate,' raising son Deuce and more**\
-`The Celtics star opened up to The Athletic about the conversation around Paris experience and defending the NBA title next season.`\
-https://nytimes.com/athletic/5729821/2024/08/29/jayson-tatum-team-usa-benching-boston-celtics/
-
-**5 Classical Music Albums You Can Listen to Right Now**\
-`Debuts by Joana Mallwitz and Aigul Akhmetshina, as well as the Juilliard String Quartet’s vintage Schoenberg, are among the highlights.`\
-https://nytimes.com/2024/08/29/arts/music/5-classical-music-albums-you-can-listen-to-right-now.html
-
-**Three Great Documentaries to Stream**\
-`This month’s picks involve a high-wire showman, a self-dramatizing tennis star and a Brazilian director reflecting on his past.`\
-https://nytimes.com/2024/08/29/movies/documentaries-streaming.html
 
