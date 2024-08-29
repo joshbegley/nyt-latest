@@ -1,3 +1,7 @@
+**Cameron Skattebo, as Arizona State shifts to the Big 12, meets a new audience**\
+`One of the more unique players in college football, Cameron Skattebo is hoping for a breakout year as Arizona State moves conferences.`\
+https://nytimes.com/athletic/5730025/2024/08/29/cameron-skattebo-arizona-state-big-12-running-back/
+
 **Villa working on deal to sign Geertruida from Feyenoord**\
 `Aston Villa are making progress in their hopes of signing Feyenoord defender Lutsharel Geertruida.`\
 https://nytimes.com/athletic/5711419/2024/08/29/aston-villa-lutsharel-geertruida/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5729116/2024/08/29/shohei-ohtani-topps-fanatics-tra
 **A Father’s Search for a Son Who Didn’t Want to Be Found**\
 `Bob Garrison was determined to rescue his son from the streets. The path was more difficult than he had imagined.`\
 https://nytimes.com/2024/08/29/us/father-son-search-homeless.html
-
-**CJ Stroud leads PSA fantasy team of players with most cards graded this year**\
-`Travis Kelce is not the tight end with the most cards graded this year`\
-https://nytimes.com/athletic/5729170/2024/08/29/psa-fantasy-team-stroud/
 
