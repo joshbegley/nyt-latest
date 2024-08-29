@@ -1,3 +1,7 @@
+**The Times earlier interviewed Muhammad Jaber, the militant leader just killed by Israel.**\
+`By Steven Erlanger`\
+https://nytimes.com/live/2024/08/29/world/israel-hamas-gaza-war/the-times-interviewed-muhammad-jaber-the-militant-leader-who-was-just-killed-by-israeli-forces
+
 **Google’s Fate**\
 `We explain the next steps in the Google monopoly case.`\
 https://nytimes.com/2024/08/29/briefing/googles-fate.html
