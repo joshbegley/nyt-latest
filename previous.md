@@ -1,3 +1,7 @@
+**Aaron Rodgers, Ezekiel Elliott among Renee Miller’s final 'My Guys' list for fantasy football 2024**\
+`Renee Miller's latest list of draft-day favorites for fantasy football includes a couple veterans, like Dallas running back Ezekiel Elliott.`\
+https://nytimes.com/athletic/5729661/2024/08/29/final-my-guys-renee-miller-fantasy-football-2024/
+
 **How style impacts atmosphere (and how atmosphere can prompt a change of style)**\
 `How style and atmosphere interact at English football matches`\
 https://nytimes.com/athletic/5726361/2024/08/29/style-effect-on-atmosphere-premier-league/
@@ -29,8 +33,4 @@ https://nytimes.com/card/2024/08/29/world/africa/mpox-outbreak-africa-congo
 **The Woman Shaking Up German Politics From the East**\
 `Sahra Wagenknecht, a former Communist, has founded her own party to respond to German grievances about migrants, crime and the dangers of the war in Ukraine.`\
 https://nytimes.com/2024/08/29/world/europe/germany-politics-wagenknecht.html
-
-**Inquiry Into ‘Killer Nurse’ Won’t Weigh Key Question: Is She Innocent?**\
-`More than 20 experts have called on the U.K. government to delay a public inquiry into the case of Lucy Letby, who was convicted of murdering babies, because of growing concerns about the evidence.`\
-https://nytimes.com/2024/08/29/world/europe/lucy-letby-innocent-inquiry-nurse-babies.html
 

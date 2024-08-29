@@ -1,3 +1,7 @@
+**Aaron Rodgers, Ezekiel Elliott among Renee Miller’s final 'My Guys' list for fantasy football 2024**\
+`Renee Miller's latest list of draft-day favorites for fantasy football includes a couple veterans, like Dallas running back Ezekiel Elliott.`\
+https://nytimes.com/athletic/5729661/2024/08/29/final-my-guys-renee-miller-fantasy-football-2024/
+
 **How style impacts atmosphere (and how atmosphere can prompt a change of style)**\
 `How style and atmosphere interact at English football matches`\
 https://nytimes.com/athletic/5726361/2024/08/29/style-effect-on-atmosphere-premier-league/
