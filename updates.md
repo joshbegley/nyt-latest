@@ -1,3 +1,7 @@
+**Grealish, Madueke included in England squad for Nations League**\
+`Jack Grealish and Noni Madueke have been included in Lee Carsley&#8217;s first England squad for the upcoming Nations League fixtures.`\
+https://nytimes.com/athletic/5731346/2024/08/29/england-squad-nations-league-grealish-madueke/
+
 **Senators rank No. 5 in NHL Pipeline Rankings for 2024**\
 `Ottawa's system is propped up by three true building-block types of talents who have star potential at premium positions.`\
 https://nytimes.com/athletic/5631754/2024/08/29/ottawa-senators-nhl-prospect-pipeline-rankings-2024/
