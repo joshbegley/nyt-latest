@@ -1,3 +1,7 @@
+**Why the Nashville Predators committed to Juuse Saros over top goaltending prospect Yaroslav Askarov**\
+`Saros and Predators general manager Barry Trotz take us inside the decision to sign a contract that carries the goalie through 2033.`\
+https://nytimes.com/athletic/5729417/2024/08/29/predators-juuse-saros-yaroslav-askarov/
+
 **Chiefs' Rashee Rice not heading to commissioner's exempt list**\
 `League exec Jeff Miller said the league continues to closely monitor developments regarding Rice and his legal problems this offseason.`\
 https://nytimes.com/athletic/5731905/2024/08/29/rashee-rice-exempt-list-chiefs/
