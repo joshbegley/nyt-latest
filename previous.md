@@ -1,3 +1,7 @@
+**Villa working on deal to sign Geertruida from Feyenoord**\
+`Aston Villa are making progress in their hopes of signing Feyenoord defender Lutsharel Geertruida.`\
+https://nytimes.com/athletic/5711419/2024/08/29/aston-villa-lutsharel-geertruida/
+
 **Danilo targeting December return from ankle injury - Nuno**\
 `Nottingham Forest hope Danilo could be back in training by December following successful surgery to repair his broken ankle.`\
 https://nytimes.com/athletic/5731128/2024/08/29/danilo-injury-forest/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/29/us/father-son-search-homeless.html
 **CJ Stroud leads PSA fantasy team of players with most cards graded this year**\
 `Travis Kelce is not the tight end with the most cards graded this year`\
 https://nytimes.com/athletic/5729170/2024/08/29/psa-fantasy-team-stroud/
-
-**Lee Pearson, Paralympic great, suspended by British Equestrian**\
-`Lee Pearson, one of Great Britain’s most successful Paralympians, has been suspended by British Equestrian amid an ongoing investigation into his conduct.`\
-https://nytimes.com/athletic/5731205/2024/08/29/lee-pearson-paralympics-equestrian-suspension/
 

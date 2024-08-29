@@ -1,3 +1,7 @@
+**Villa working on deal to sign Geertruida from Feyenoord**\
+`Aston Villa are making progress in their hopes of signing Feyenoord defender Lutsharel Geertruida.`\
+https://nytimes.com/athletic/5711419/2024/08/29/aston-villa-lutsharel-geertruida/
+
 **Danilo targeting December return from ankle injury - Nuno**\
 `Nottingham Forest hope Danilo could be back in training by December following successful surgery to repair his broken ankle.`\
 https://nytimes.com/athletic/5731128/2024/08/29/danilo-injury-forest/
