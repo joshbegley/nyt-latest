@@ -1,3 +1,7 @@
+**Zaha close to joining Lyon on loan from Galatasaray**\
+`Galatasaray winger Wilfried Zaha is close to joining Lyon on loan.`\
+https://nytimes.com/athletic/5732263/2024/08/29/wilfried-zaha-lyon-loan/
+
 **Don't call it a rebuild: 4 thoughts on Panthers' waiver claims and retooling process**\
 `The Panthers took advantage of their waiver-claim position, grabbing six players with a focus on big corners and an eye on edge rushers.`\
 https://nytimes.com/athletic/5732220/2024/08/29/carolina-panthers-waiver-claims-roster-building/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/29/movies/maria-callas-biopic-angelina-jolie-venice.
 **Investigation Into Yacht That Sank Off Sicily Broadens**\
 `Prosecutors are looking into the actions of two other crew members in connection with the sinking of the luxury yacht Bayesian, which caused the deaths of seven people.`\
 https://nytimes.com/2024/08/29/world/europe/bayesian-yacht-sicily-mike-lynch-investigation-crew.html
-
-**The Haason Reddick holdout remains the Jets' uncomfortable truth**\
-`With Week 1 fast approaching, the Jets are still grappling with the absence of their newly-acquired star.`\
-https://nytimes.com/athletic/5732047/2024/08/29/haason-reddick-new-york-jets-holdout-gm-joe-douglas-agent-tory-dandy/
 
