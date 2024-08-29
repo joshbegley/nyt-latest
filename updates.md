@@ -1,3 +1,11 @@
+**England defender Trippier announces international retirement**\
+`England defender Kieran Trippier has announced his retirement from international football.`\
+https://nytimes.com/athletic/5731182/2024/08/29/kieran-trippier-retires-england/
+
+**Ukraine Says It Struck at 2 Oil Depots Inside Russia**\
+`Kyiv is pressing its drone campaign while lobbying allies for permission to use weapons supplied by NATO countries for strikes deep inside Russia.`\
+https://nytimes.com/2024/08/29/world/europe/ukraine-russia-oil-depots.html
+
 **Final fantasy football preseason takeaways: Surprise rookies, a new top RB handcuff contender and more**\
 `Jay Felicio shares his final thoughts on the preseason that was, highlighting some rookies showing surprising upside, like Denver QB Bo Nix.`\
 https://nytimes.com/athletic/5730198/2024/08/29/fantasy-football-2024-preseason-takeaways/

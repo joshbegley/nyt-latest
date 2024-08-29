@@ -1,3 +1,11 @@
+**England defender Trippier announces international retirement**\
+`England defender Kieran Trippier has announced his retirement from international football.`\
+https://nytimes.com/athletic/5731182/2024/08/29/kieran-trippier-retires-england/
+
+**Ukraine Says It Struck at 2 Oil Depots Inside Russia**\
+`Kyiv is pressing its drone campaign while lobbying allies for permission to use weapons supplied by NATO countries for strikes deep inside Russia.`\
+https://nytimes.com/2024/08/29/world/europe/ukraine-russia-oil-depots.html
+
 **Final fantasy football preseason takeaways: Surprise rookies, a new top RB handcuff contender and more**\
 `Jay Felicio shares his final thoughts on the preseason that was, highlighting some rookies showing surprising upside, like Denver QB Bo Nix.`\
 https://nytimes.com/athletic/5730198/2024/08/29/fantasy-football-2024-preseason-takeaways/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5728529/2024/08/29/minnesota-twins-bullpen-max-kepl
 **‘Slingshot’ Review: Trapped in Space**\
 `The paranoia sets in all too quickly in this spare psychological thriller, starring Laurence Fishburne and Casey Affleck.`\
 https://nytimes.com/2024/08/29/movies/slingshot-review.html
-
-**‘The Wasp’ Review: A Feminine Face-Off**\
-`This twisty psycho-thriller, about two childhood friends reunited under eerily ambiguous circumstances, is above all a dramatic showcase for its stars, Naomie Harris and Natalie Dormer.`\
-https://nytimes.com/2024/08/29/movies/the-wasp-review.html
-
-**‘The Deliverance’ Review: The Power of Camp Compels Him**\
-`Lee Daniels directs Andra Day and Glenn Close in an exorcism tale that includes melodrama along with the scares.`\
-https://nytimes.com/2024/08/29/movies/the-deliverance-review.html
 
