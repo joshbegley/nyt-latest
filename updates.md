@@ -1,3 +1,7 @@
+**With small details and big pitches, Tigers just keep winning**\
+`The Tigers have won six in a row and 13 of 16, now only 4 1/2 games out of a wild-card spot. `\
+https://nytimes.com/athletic/5730821/2024/08/29/detroit-tigers-win-angels-pitching/
+
 **FPL: How to take advantage of the biggest upcoming fixture swings**\
 `It sounds simple, but signing players with the easiest fixture runs ahead works - these are the teams and individuals to target`\
 https://nytimes.com/athletic/5727215/2024/08/29/fantasy-premier-league-fixture-swings/

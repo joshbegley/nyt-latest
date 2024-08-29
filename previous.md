@@ -1,3 +1,7 @@
+**With small details and big pitches, Tigers just keep winning**\
+`The Tigers have won six in a row and 13 of 16, now only 4 1/2 games out of a wild-card spot. `\
+https://nytimes.com/athletic/5730821/2024/08/29/detroit-tigers-win-angels-pitching/
+
 **FPL: How to take advantage of the biggest upcoming fixture swings**\
 `It sounds simple, but signing players with the easiest fixture runs ahead works - these are the teams and individuals to target`\
 https://nytimes.com/athletic/5727215/2024/08/29/fantasy-premier-league-fixture-swings/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5726361/2024/08/29/style-effect-on-atmosphere-premi
 **Selhurst Park at 100: Why one of England's least loved grounds really matters**\
 `Crystal Palace's home proves there is a place for gloriously chaotic — if ramshackle — stadiums in the modern Premier League`\
 https://nytimes.com/athletic/5724054/2024/08/29/selhurst-park-crystal-palace-100-years/
-
-**Paris Paralympics 2024: How the classification system works**\
-`The system of classification is intended to guarantee fair competition and uphold the integrity of the Games. But how does it all work?`\
-https://nytimes.com/athletic/5729340/2024/08/29/paralympic-games-classification-guide/
 
