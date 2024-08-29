@@ -1,3 +1,15 @@
+**Honduras Says It Will End Extradition Treaty With United States**\
+`Honduran leaders were angered after the U.S. ambassador to the country criticized the defense minister and a top general. The extradition treaty, over a century old, has been used to extradite dozens of politicians, including a former president.`\
+https://nytimes.com/2024/08/29/world/americas/honduras-extradition-us.html
+
+**Angels top pitching prospects Caden Dana, Sam Aldegheri to debut**\
+`Dana is the Angels’ top pitching prospect, and Aldegheri will be the first pitcher born and raised in Italy to pitch in MLB.`\
+https://nytimes.com/athletic/5732519/2024/08/29/angels-caden-dana-sam-aldegheri-call-up/
+
+**Wes Moore and the Bronze Star He Claimed but Never Received**\
+`For years, the Maryland governor has faced questions about whether he had wrongfully said he had a Bronze Star. He insisted no. But an old document proves otherwise.`\
+https://nytimes.com/2024/08/29/us/politics/wes-moore-bronze-star.html
+
 **Read the 2006 application**\
 `Applying for a White House fellowship in 2006, Wes Moore, then a 27-year-old Army veteran, wrote that he had been awarded “the Bronze Star Medal.”`\
 https://nytimes.com/interactive/2024/08/29/us/politics/wes-moore-bio.html
