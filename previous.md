@@ -1,3 +1,15 @@
+**Naked Emperors and Crypto Campaign Cash**\
+`Why a mostly useless industry dominates corporate political spending.`\
+https://nytimes.com/2024/08/29/opinion/cryptocurrency-election.html
+
+**49ers, Brandon Aiyuk agree to multiyear contract extension: Source**\
+`The extension ends a difficult contract stalemate that included Aiyuk conducting a "hold-in" at training camp.`\
+https://nytimes.com/athletic/5656049/2024/08/29/brandon-aiyuk-contract-extension-san-francisco-49ers/
+
+**With Court Victories, Conservatives Push Back on Biden Policies**\
+`Legal challenges have blocked many of the policies that President Biden saw as critical to his legacy, on issues like immigration and student loans.`\
+https://nytimes.com/2024/08/29/us/politics/biden-courts-immigration-student-loans-title-ix.html
+
 **Denzel Ward says he won't consider retirement, feels good about long-term health**\
 `"I love playing this game," the three-time Pro Bowler said. "I really don't see myself stepping away from this game anytime soon." `\
 https://nytimes.com/athletic/5732940/2024/08/29/browns-denzel-ward-retirement-concussion/
@@ -21,16 +33,4 @@ https://nytimes.com/2024/08/29/climate/colorado-wolves-relocation-livestock.html
 **Pentagon says it will aid Secret Service ahead of election.**\
 `The`\
 https://nytimes.com/live/2024/08/29/us/harris-trump-election/pentagon-says-it-will-aid-secret-service-ahead-of-election
-
-**Dak Prescott carries all the leverage in negotiations with Cowboys — and he knows it**\
-`The Cowboys have won 12 regular-season games three years in a row, but they have gone 1-3 in the playoffs.`\
-https://nytimes.com/athletic/5732740/2024/08/29/dak-prescott-contract-negotiation-dallas-cowboys/
-
-**Padres takeaways: September, a decision to bunt and Manny Machado’s return to form**\
-`Elias Díaz seems poised to join the Padres when rosters expand, Jurickson Profar defends his instincts and Machado is heating up.`\
-https://nytimes.com/athletic/5732813/2024/08/29/padres-september-roster-jurickson-profar-manny-machado/
-
-**Toll Reaches 17 Dead in Israel’s West Bank Raid, Including a Militant Commander**\
-`The operation is the largest Israeli military incursion in over a year into the West Bank, which has become a third front in a conflict also being fought in Gaza and along the border with Lebanon.`\
-https://nytimes.com/2024/08/29/world/middleeast/israel-west-bank-raid.html
 

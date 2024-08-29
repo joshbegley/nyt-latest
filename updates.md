@@ -1,3 +1,15 @@
+**Naked Emperors and Crypto Campaign Cash**\
+`Why a mostly useless industry dominates corporate political spending.`\
+https://nytimes.com/2024/08/29/opinion/cryptocurrency-election.html
+
+**49ers, Brandon Aiyuk agree to multiyear contract extension: Source**\
+`The extension ends a difficult contract stalemate that included Aiyuk conducting a "hold-in" at training camp.`\
+https://nytimes.com/athletic/5656049/2024/08/29/brandon-aiyuk-contract-extension-san-francisco-49ers/
+
+**With Court Victories, Conservatives Push Back on Biden Policies**\
+`Legal challenges have blocked many of the policies that President Biden saw as critical to his legacy, on issues like immigration and student loans.`\
+https://nytimes.com/2024/08/29/us/politics/biden-courts-immigration-student-loans-title-ix.html
+
 **Denzel Ward says he won't consider retirement, feels good about long-term health**\
 `"I love playing this game," the three-time Pro Bowler said. "I really don't see myself stepping away from this game anytime soon." `\
 https://nytimes.com/athletic/5732940/2024/08/29/browns-denzel-ward-retirement-concussion/
