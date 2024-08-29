@@ -1,3 +1,7 @@
+**Brady facing TV restrictions amid Raiders partial ownership bid process**\
+`The restrictions begin immediately as the transaction is pending and going through the review process, the source said.`\
+https://nytimes.com/athletic/5730662/2024/08/28/tom-brady-raiders-ownership-restrictions-fox/
+
 **As Twins' free fall continues, Byron Buxton still needs to up intensity before rehab game**\
 `Buxton isn't yet ready for a rehab assignment, plus David Festa dueled an NL Cy Young Award contender in a mistake-filled loss.`\
 https://nytimes.com/athletic/5730754/2024/08/28/twins-byron-buxton-rehab-update/

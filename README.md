@@ -1,3 +1,7 @@
+**Hong Kong Journalists to Get Verdict in Test Case for Press Freedom**\
+`The ruling in the Stand News trial comes as news media outlets face increasing pressure from the authorities amid a national security clampdown.`\
+https://nytimes.com/2024/08/28/world/asia/hong-kong-stand-news-verdict.html
+
 **Brady facing TV restrictions amid Raiders partial ownership bid process**\
 `The restrictions begin immediately as the transaction is pending and going through the review process, the source said.`\
 https://nytimes.com/athletic/5730662/2024/08/28/tom-brady-raiders-ownership-restrictions-fox/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/28/technology/brazil-x-ban-elon-musk.html
 **Kawakami: A dramatic 49ers-Brandon Aiyuk showdown and the signs of a break-up in progress**\
 `The 49ers challenged Brandon Aiyuk to practice on Wednesday or face discipline. He didn't practice. Next up: major, major consequences.`\
 https://nytimes.com/athletic/5730266/2024/08/28/49ers-brandon-aiyuk-contract-showdown/
-
-**Typhoon Shanshan Makes Landfall in Southern Japan**\
-`The risk of life-threatening landslides and floods was rapidly increasing in parts of Kyushu Island as the storm lashed it with relentless rain, the authorities warned.`\
-https://nytimes.com/2024/08/28/world/asia/typhoon-shanshan-japan-landfall.html
 
