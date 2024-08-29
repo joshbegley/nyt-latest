@@ -1,3 +1,7 @@
+**Read the 2006 application**\
+`Applying for a White House fellowship in 2006, Wes Moore, then a 27-year-old Army veteran, wrote that he had been awarded “the Bronze Star Medal.”`\
+https://nytimes.com/interactive/2024/08/29/us/politics/wes-moore-bio.html
+
 **Wes Moore and the Bronze Star He Claimed but Never Received**\
 `For years, the Maryland governor has faced questions about whether he had wrongfully said he had a Bronze Star. He insisted no. But a 2006 application proves otherwise.`\
 https://nytimes.com/2024/08/29/us/politics/wes-moore-bronze-star.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/08/29/us/harris-trump-election/cnn-dana-bash
 **Three Restaurants Where You Don’t Have to Shout**\
 `The trick is to avoid restaurants that are completely vibeless. It can be done.`\
 https://nytimes.com/2024/08/29/dining/three-restaurants-where-you-dont-have-to-shout.html
-
-**Until Saturday: College football Week 1 viewing guide, plus title, Heisman picks**\
-`Welcome to Until Saturday, the five-star college football newsletter: Getting you ready for Week 1 of the college football season.`\
-https://nytimes.com/athletic/5730699/2024/08/29/college-football-week-1-until-saturday/
 
