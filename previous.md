@@ -1,4 +1,4 @@
-**Ohtani's dog Decoy steals Dodgers fans' hearts after first pitch**\
+**Ohtani's dog Decoy steals Dodgers fans' hearts with first pitch**\
 `Decoy, the star of L.A.'s bobblehead night, ran the ceremonial first pitch to Ohtani.`\
 https://nytimes.com/athletic/5730721/2024/08/28/shohei-ohtani-dodgers-dog-bobblehead/
 
