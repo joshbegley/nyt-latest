@@ -1,3 +1,7 @@
+**Grealish, Madueke included in England squad for Nations League**\
+`Jack Grealish and Noni Madueke have been included in Lee Carsley&#8217;s first England squad for the upcoming Nations League fixtures.`\
+https://nytimes.com/athletic/5731346/2024/08/29/england-squad-nations-league-grealish-madueke/
+
 **Senators rank No. 5 in NHL Pipeline Rankings for 2024**\
 `Ottawa's system is propped up by three true building-block types of talents who have star potential at premium positions.`\
 https://nytimes.com/athletic/5631754/2024/08/29/ottawa-senators-nhl-prospect-pipeline-rankings-2024/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5711419/2024/08/29/aston-villa-lutsharel-geertruida
 **Danilo targeting December return from ankle injury - Nuno**\
 `Nottingham Forest hope Danilo could be back in training by December following successful surgery to repair his broken ankle.`\
 https://nytimes.com/athletic/5731128/2024/08/29/danilo-injury-forest/
-
-**Here’s the latest on the presidential race.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/08/29/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 
