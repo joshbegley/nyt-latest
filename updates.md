@@ -1,3 +1,7 @@
+**Cooper hopeful on Leicester transfers and expects player exits**\
+`Steve Cooper says Leicester City will be trying to add to the squad before tomorrow’s transfer deadline, and said some players could be leaving too.`\
+https://nytimes.com/athletic/5731506/2024/08/29/leicester-transfers-steve-cooper/
+
 **Leeds working to sign Isaac Schmidt from St. Gallen**\
 `Leeds United are working on a deal to sign St.`\
 https://nytimes.com/athletic/5731466/2024/08/29/isaac-schmidt-leeds-transfer/
