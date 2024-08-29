@@ -26,9 +26,9 @@ https://nytimes.com/athletic/5732490/2024/08/29/cardinals-tommy-pham-waivers-2/
 `The subway isn't just buried in the bedrock of New York City — it's embedded within its fiction, too. These archival photographs and literary quotes transport you through time.`\
 https://nytimes.com/interactive/2024/08/29/books/new-york-subways-history-literature.html
 
-**Meet the interviewer: CNN’s Dana Bash.**\
-`How Ms. Bash handles Thursday’s interview may play an outsize role in shaping voters’ perception of Ms. Harris.`\
-https://nytimes.com/live/2024/08/29/us/harris-trump-election/cnn-dana-bash
+**Meet the Interviewer: CNN’s Dana Bash**\
+`How Ms. Bash handles Thursday’s interview may play an outsize role in shaping voters’ perception of Kamala Harris.`\
+https://nytimes.com/2024/08/29/us/politics/cnn-dana-bash.html
 
 **Three Restaurants Where You Don’t Have to Shout**\
 `The trick is to avoid restaurants that are completely vibeless. It can be done.`\
