@@ -1,3 +1,11 @@
+**Talking Honestly About Feelings of Regret**\
+`Readers discuss a guest essay about feeling regret about having children. Also: Moved by Gus Walz; Trumpian masculinity; too many choices at Starbucks.`\
+https://nytimes.com/2024/08/29/opinion/letters/parenting-regret.html
+
+**Jack Del Rio joining Wisconsin as senior adviser**\
+`The 61-year-old Del Rio will assist both sides of the ball, in personnel and Badgers coach Luke Fickell.`\
+https://nytimes.com/athletic/5732244/2024/08/29/wisconsin-badgers-jack-del-rio/
+
 **This Biopic Could Be Angelina Jolie’s Oscar Comeback**\
 `“Maria,” about the opera diva Maria Callas, plays to the star’s strengths. Its Venice Film Festival debut was timed so the actress could avoid Brad Pitt.`\
 https://nytimes.com/2024/08/29/movies/maria-callas-biopic-angelina-jolie-venice.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5731834/2024/08/29/mlb-bullpen-report-edwin-diaz-ro
 **How Biden’s Senate Allies Helped Push Him From the Race**\
 `The president’s allies in the chamber he so revered feared he would drag them down and spoil his own legacy, and played a more assertive role than was previously known in his stepping aside.`\
 https://nytimes.com/2024/08/29/us/politics/senate-democrats-biden-drop-out.html
-
-**Alpine F1 French factory workers plan peaceful protest at Italian GP**\
-`Renault, Alpine's parent company, plans to end F1 engine production from 2026. `\
-https://nytimes.com/athletic/5732130/2024/08/29/alpine-f1-worker-protest-italian-gp/
-
-**Why Jurgen Klopp was at the Paralympics: 'This story has to be told. My friend is super special'**\
-`The former Liverpool manager was in Paris to support his friend and raise awareness for the Paralympics`\
-https://nytimes.com/athletic/5731843/2024/08/29/jurgen-klopp-badminton-wojtek-czyz-paralympics/
 

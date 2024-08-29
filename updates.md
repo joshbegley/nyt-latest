@@ -1,3 +1,11 @@
+**Talking Honestly About Feelings of Regret**\
+`Readers discuss a guest essay about feeling regret about having children. Also: Moved by Gus Walz; Trumpian masculinity; too many choices at Starbucks.`\
+https://nytimes.com/2024/08/29/opinion/letters/parenting-regret.html
+
+**Jack Del Rio joining Wisconsin as senior adviser**\
+`The 61-year-old Del Rio will assist both sides of the ball, in personnel and Badgers coach Luke Fickell.`\
+https://nytimes.com/athletic/5732244/2024/08/29/wisconsin-badgers-jack-del-rio/
+
 **This Biopic Could Be Angelina Jolie’s Oscar Comeback**\
 `“Maria,” about the opera diva Maria Callas, plays to the star’s strengths. Its Venice Film Festival debut was timed so the actress could avoid Brad Pitt.`\
 https://nytimes.com/2024/08/29/movies/maria-callas-biopic-angelina-jolie-venice.html
