@@ -1,3 +1,7 @@
+**The Bounce: Will LeBron James, fellow NBA stars deliver on Netflix?**\
+`Zach Harper and Shams Charania catch you up on leaguewide news.`\
+https://nytimes.com/athletic/5731401/2024/08/29/lebron-james-jayson-tatum-netflix-celtics-nba-the-bounce/
+
 **30-Year Mortgage Rate Falls Again, Now at 6.35%**\
 `Further declines could encourage more activity from buyers and sellers.`\
 https://nytimes.com/2024/08/29/business/mortgage-rates.html
