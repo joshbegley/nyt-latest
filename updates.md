@@ -1,3 +1,11 @@
+**Pentagon says it will aid Secret Service ahead of election.**\
+`The`\
+https://nytimes.com/live/2024/08/29/us/harris-trump-election/pentagon-says-it-will-aid-secret-service-ahead-of-election
+
+**What Is Palestinian Islamic Jihad?**\
+`The militant group was founded in Gaza in the 1980s, but remains far smaller and holds less sway than Hamas.`\
+https://nytimes.com/2024/08/29/world/middleeast/palestinian-islamic-jihad-muhammad-jaber.html
+
 **Dak Prescott carries all the leverage in negotiations with Cowboys — and he knows it**\
 `The Cowboys have won 12 regular-season games three years in a row, but they have gone 1-3 in the playoffs.`\
 https://nytimes.com/athletic/5732740/2024/08/29/dak-prescott-contract-negotiation-dallas-cowboys/

@@ -1,3 +1,7 @@
+**Pentagon says it will aid Secret Service ahead of election.**\
+`The`\
+https://nytimes.com/live/2024/08/29/us/harris-trump-election/pentagon-says-it-will-aid-secret-service-ahead-of-election
+
 **Dak Prescott carries all the leverage in negotiations with Cowboys — and he knows it**\
 `The Cowboys have won 12 regular-season games three years in a row, but they have gone 1-3 in the playoffs.`\
 https://nytimes.com/athletic/5732740/2024/08/29/dak-prescott-contract-negotiation-dallas-cowboys/
@@ -14,9 +18,9 @@ https://nytimes.com/2024/08/29/world/middleeast/israel-west-bank-raid.html
 `Vice President Kamala Harris’s fund-raising has benefited from a surge of interest from Silicon Valley and Wall Street.`\
 https://nytimes.com/2024/08/29/us/politics/donors-harris-tax-ultrawealthy.html
 
-**What is Palestinian Islamic Jihad?**\
-`By Eve Sampson`\
-https://nytimes.com/2024/08/29/world/middleeast/what-is-palestinian-islamic-jihad.html
+**What Is Palestinian Islamic Jihad?**\
+`The militant group was founded in Gaza in the 1980s, but remains far smaller and holds less sway than Hamas.`\
+https://nytimes.com/2024/08/29/world/middleeast/palestinian-islamic-jihad-muhammad-jaber.html
 
 **Greek Port City Inundated With Over 100 Tons of Dead Fish**\
 `The authorities in central Greece have dredged more than 100 tons of dead fish from the waters around the port of Volos, a scenic summer destination.`\
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/29/us/politics/pelosi-jan-6-pipe-bomb.html
 **To Beat Trump, Democrats Seek to Help Anti-Abortion Candidate**\
 `Randall Terry, a longtime leader in the anti-abortion movement, is running a third-party campaign for president.`\
 https://nytimes.com/2024/08/29/us/politics/trump-terry-anti-abortion.html
-
-**Harris Sat for Her First Major Interview as a Candidate**\
-`Also, Israel agreed to pauses in the war for polio vaccinations. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2024/08/29/briefing/harris-interview-cnn-walz-school-nurses-advice.html
 
