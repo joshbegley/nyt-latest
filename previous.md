@@ -1,3 +1,7 @@
+**China Dominates the Situation Room But Not the Campaign Trail**\
+`The thorny issues raised by America’s most potent geopolitical challenge are reduced to platitudes.`\
+https://nytimes.com/2024/08/29/us/politics/trump-harris-china-tiktok.html
+
 **Harris, Before CNN Interview Runs, Presses Attack Against Trump in Georgia**\
 `At a rally in Savannah, the vice president hit her rival over familiar topics like abortion rights and Project 2025, saying he represented a “full-on assault” on basic freedoms.`\
 https://nytimes.com/2024/08/29/us/politics/harris-trump-georgia.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5732358/2024/08/29/us-open-jumbo-tennis-ball/
 **Talanoa Hufanga, Isaac Yiadom return to bolster 49ers' secondary**\
 `Charvarius Ward thinks the 49ers can field the NFL's best secondary. This week's returns to practice can help toward that goal. `\
 https://nytimes.com/athletic/5732547/2024/08/29/49ers-secondary-nfl-talanoa-hufanga/
-
-**Ancelotti says Real Madrid lacking 'balance' after Las Palmas draw**\
-`Carlo Ancelotti says Real Madrid do not “have a good balance” after being held to a 1-1 draw against Las Palmas.`\
-https://nytimes.com/athletic/5732905/2024/08/29/carlo-ancelotti-real-madrid-las-palmas/
 
