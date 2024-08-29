@@ -1,3 +1,7 @@
+**Ryan Day knew Ohio State had to change. He started with himself.**\
+`Day has a strong reputation as a play-caller, but for Ohio State to get where it needs to be, he realized that change started at the top.`\
+https://nytimes.com/athletic/5729376/2024/08/29/ryan-day-ohio-state-football-coach/
+
 **Joy Can Do More Than Beat Trump**\
 `It can push MAGA back to the periphery of American life.`\
 https://nytimes.com/2024/08/29/opinion/trump-harris-joy-maga-2024.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/29/movies/documentaries-streaming.html
 **Sabrina Carpenter Never Misses Her Target on ‘Short n’ Sweet’**\
 `The singer’s new album is smart, sly and filled with fury, our critic says.`\
 https://nytimes.com/2024/08/29/podcasts/sabrina-carpenter-short-n-sweet.html
-
-**How Does Mpox Spread, and Who Is Most at Risk?**\
-`Here’s what scientists have learned about the virus, which was recently declared a global health emergency.`\
-https://nytimes.com/2024/08/29/well/mpox-health-risks-vaccine.html
 

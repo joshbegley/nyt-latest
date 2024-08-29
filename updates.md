@@ -1,3 +1,7 @@
+**Ryan Day knew Ohio State had to change. He started with himself.**\
+`Day has a strong reputation as a play-caller, but for Ohio State to get where it needs to be, he realized that change started at the top.`\
+https://nytimes.com/athletic/5729376/2024/08/29/ryan-day-ohio-state-football-coach/
+
 **Joy Can Do More Than Beat Trump**\
 `It can push MAGA back to the periphery of American life.`\
 https://nytimes.com/2024/08/29/opinion/trump-harris-joy-maga-2024.html
