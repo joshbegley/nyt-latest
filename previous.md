@@ -1,3 +1,7 @@
+**Namibia, Facing Drought, Plans to Kill Elephants for Meat**\
+`The Southern African country plans to butcher over 700 wild animals, including 83 elephants and 300 zebras, to feed people and, it hopes, cut down on dangerous cross-species encounters.`\
+https://nytimes.com/2024/08/29/world/africa/namibia-drought-elephants-meat.html
+
 **In cutting Lewis Cine, GM Kwesi Adofo-Mensah reflects critically on Vikings' 2022 draft class**\
 `Adofo-Mensah and coach Kevin O'Connell discussed how things have changed in prospect evaluation since their initial draft in Minnesota.`\
 https://nytimes.com/athletic/5732476/2024/08/29/vikings-lewis-cine-kwesi-adofo-mensah-draft/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5732552/2024/08/29/arsenal-neto-bournemouth-transfe
 **Phillies move Taijuan Walker to bullpen for remainder of 2024**\
 `Rather than eat roughly $39 million to release Walker, the Phillies will move the underperforming starter to the bullpen for mop-up duty.`\
 https://nytimes.com/athletic/5724639/2024/08/29/taijuan-walker-phillies-bullpen/
-
-**Honduras Says It Will End Extradition Treaty With United States**\
-`Honduran leaders, angered after remarks by the U.S. ambassador, said they would terminate the century-old extradition treaty, which was recently used to extradite a former president.`\
-https://nytimes.com/2024/08/29/world/americas/honduras-extradition-us.html
 
