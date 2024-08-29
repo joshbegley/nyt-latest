@@ -1,3 +1,15 @@
+**The Connections Companion No. 446**\
+`Scroll down for hints and conversation about the puzzle for Friday, Aug. 30, 2024.`\
+https://nytimes.com/2024/08/29/crosswords/connections-companion-446.html
+
+**Wordle Review No. 1,168**\
+`Scroll down for hints and conversation about the puzzle for August 30, 2024.`\
+https://nytimes.com/2024/08/29/crosswords/wordle-review-1168.html
+
+**Top Biden Aide Holds Rare Talks With Chinese Military General**\
+`Jake Sullivan also met with China’s top leader, Xi Jinping, who said the United States should “find a correct way for the two major countries to get along.”`\
+https://nytimes.com/2024/08/29/world/asia/china-us-sullivan-xi.html
+
 **Why is Bears GM Ryan Poles excited? 'The group of guys, it's really special'**\
 `We heard from the Bears' GM after he set the initial 53-man roster. He talked Caleb Williams, the offensive line, Matt Eberflus and more.`\
 https://nytimes.com/athletic/5730180/2024/08/29/bears-preseason-excitement-ryan-poles/
