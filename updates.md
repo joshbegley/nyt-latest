@@ -1,3 +1,7 @@
+**Leeds working to sign Isaac Schmidt from St. Gallen**\
+`Leeds United are working on a deal to sign St.`\
+https://nytimes.com/athletic/5731466/2024/08/29/isaac-schmidt-leeds-transfer/
+
 **Federico Chiesa to Liverpool: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500 series, we look at Italy forward Chiesa's move to Liverpool from Juventus`\
 https://nytimes.com/athletic/5726022/2024/08/29/federico-chiesa-to-liverpool-transfer-ratings/
