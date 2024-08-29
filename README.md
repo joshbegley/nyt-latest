@@ -1,3 +1,11 @@
+**Wes Moore and the Bronze Star He Claimed but Never Received**\
+`For years, the Maryland governor has faced questions about whether he had wrongfully said he had a Bronze Star. He insisted no. But a 2006 application proves otherwise.`\
+https://nytimes.com/2024/08/29/us/politics/wes-moore-bronze-star.html
+
+**Falcons turn attention to season opener after setting roster, trading Taylor Heinicke**\
+`The Falcons finalized the Heinicke trade with the Chargers and are revving up Matthew Judon and Justin Simmons to face the Steelers.`\
+https://nytimes.com/athletic/5732435/2024/08/29/falcons-raheem-morris-steelers-taylor-heinicke/
+
 **Major Publishers Sue Florida Over Banned School Library Books**\
 `A state law limits sexual content in school libraries. But several publishing companies say it has led to a “regime of strict censorship” in school districts.`\
 https://nytimes.com/2024/08/29/us/florida-book-ban-lawsuit.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/29/dining/three-restaurants-where-you-dont-have-to-s
 **Until Saturday: College football Week 1 viewing guide, plus title, Heisman picks**\
 `Welcome to Until Saturday, the five-star college football newsletter: Getting you ready for Week 1 of the college football season.`\
 https://nytimes.com/athletic/5730699/2024/08/29/college-football-week-1-until-saturday/
-
-**More Than 40 Horses Die on Oklahoma Ranch After Eating Contaminated Feed**\
-`Agriculture departments in Oklahoma and Kansas are investigating the deaths on the Beutler ranch, a legacy breeder of livestock that supplies the nation’s rodeos.`\
-https://nytimes.com/2024/08/29/us/horse-dead-ranch-oklahoma.html
-
-**Man City set to offer McAtee new deal after turning down summer bids**\
-`Manchester city are ready to offer midfielder James McAtee a new contract after rebuffing bids of up to £30million during the summer transfer window.`\
-https://nytimes.com/athletic/5732366/2024/08/29/james-mcatee-manchester-city-contract/
 
