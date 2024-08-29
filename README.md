@@ -1,11 +1,3 @@
-**Flaws Persist in F.B.I.’s Handling of Child Sex Abuse Cases, Watchdog Says**\
-`The Justice Department’s inspector general cited significant improvements even as he identified structural issues, like high caseloads, that continue to hamper progress.`\
-https://nytimes.com/2024/08/29/us/politics/fbi-nassar-sexual-abuse-cases.html
-
-**Betty Jean Hall, Who Fought for Coal- Mining Jobs for Women, Dies at 78**\
-`She was a fiery lawyer from eastern Kentucky who charged coal companies with discrimination for their refusal to hire women. Her campaign was a success.`\
-https://nytimes.com/2024/08/29/us/betty-jean-hall-dead.html
-
 **College football Week 1 model projections: Predicted scores for every game**\
 `Austin Mock is back at it, using his model to project the point total and score for every Week 1 college football game.`\
 https://nytimes.com/athletic/5731620/2024/08/29/college-football-week-1-model-projections-scores/
@@ -33,4 +25,12 @@ https://nytimes.com/athletic/5728437/2024/08/29/mason-mount-manchester-united-in
 **A ‘Life Review’ Can Be Powerful, at Any Age**\
 `Reflecting on the past, through writing or conversation, can help us better appreciate where we are — and where we’re going.`\
 https://nytimes.com/2024/08/29/well/mind/life-review-therapy.html
+
+**Hickey suffers injury setback after undergoing hamstring surgery**\
+`Brentford full-back Aaron Hickey will miss the majority of the 2024-25 season after undergoing hamstring surgery.`\
+https://nytimes.com/athletic/5731497/2024/08/29/aaron-hickey-injury-brentford/
+
+**Telluride Film Festival Embraces a Political and Topical Lineup**\
+`The films partly reflect the business realities of Hollywood, which is still grappling with the aftereffects of the writers’ and actors’ strikes last year.`\
+https://nytimes.com/2024/08/29/business/media/telluride-film-festival-political.html
 
