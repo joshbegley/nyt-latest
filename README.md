@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5732552/2024/08/29/arsenal-neto-bournemouth-transfer/
 
 **Phillies move Taijuan Walker to bullpen for remainder of 2024**\
-`Rather than eat roughly $39 million to release Walker, the Phillies will move the underperforming starter to the bullpen. `\
+`Rather than eat roughly $39 million to release Walker, the Phillies will move the underperforming starter to the bullpen for mop-up duty.`\
 https://nytimes.com/athletic/5724639/2024/08/29/taijuan-walker-phillies-bullpen/
 
 **Honduras Says It Will End Extradition Treaty With United States**\
