@@ -1,3 +1,15 @@
+**Northwestern hires Mark Jackson as athletic director**\
+`Jackson heads to Northwestern after leading Villanova’s athletics department since 2015.`\
+https://nytimes.com/athletic/5732113/2024/08/29/mark-jackson-northwestern-athletic-director/
+
+**Liverpool to face Real Madrid, Arsenal take on PSG in Champions League draw**\
+`Liverpool have been drawn against Real Madrid in the league phase of the 2024-25 Champions League, while Arsenal will play Paris Saint-Germain.`\
+https://nytimes.com/athletic/5731889/2024/08/29/champions-league-draw-liverpool-real-madrid/
+
+**Curry, Warriors agree to 1-year extension**\
+`With the new extension, Curry now has $178 million left on his contract, according to data from Spotrac.`\
+https://nytimes.com/athletic/5732009/2024/08/29/steph-curry-warriors-contract-extension/
+
 **Barcelona's transfer window raises the question: Why would you want to sign for them?**\
 `Dani Olmo's registration drama and the circumstances of Ilkay Gundogan's exit have made for a dramatic few months`\
 https://nytimes.com/athletic/5731670/2024/08/29/barcelona-transfers-olmo-gundogan-registrations-la-liga/
