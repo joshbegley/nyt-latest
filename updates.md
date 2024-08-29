@@ -1,3 +1,7 @@
+**Corrections: Aug. 29, 2024**\
+`Corrections that appeared in print on Thursday, Aug. 29, 2024.`\
+https://nytimes.com/2024/08/29/pageoneplus/corrections-aug-29-2024.html
+
 **'We've got an uphill battle': Mets blow another late lead in a key game**\
 `Wednesday was the second "worst loss of the season" the Mets have endured in the last four days.`\
 https://nytimes.com/athletic/5730886/2024/08/29/mets-blow-late-lead-diamondbacks/
