@@ -1,3 +1,11 @@
+**How style impacts atmosphere (and how atmosphere can prompt a change of style)**\
+`How style and atmosphere interact at English football matches`\
+https://nytimes.com/athletic/5726361/2024/08/29/style-effect-on-atmosphere-premier-league/
+
+**Selhurst Park at 100: Why one of England's least loved grounds really matters**\
+`Crystal Palace's home proves there is a place for gloriously chaotic — if ramshackle — stadiums in the modern Premier League`\
+https://nytimes.com/athletic/5724054/2024/08/29/selhurst-park-crystal-palace-100-years/
+
 **Paris Paralympics 2024: How the classification system works**\
 `The system of classification is intended to guarantee fair competition and uphold the integrity of the Games. But how does it all work?`\
 https://nytimes.com/athletic/5729340/2024/08/29/paralympic-games-classification-guide/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/29/world/europe/germany-politics-wagenknecht.html
 **Inquiry Into ‘Killer Nurse’ Won’t Weigh Key Question: Is She Innocent?**\
 `More than 20 experts have called on the U.K. government to delay a public inquiry into the case of Lucy Letby, who was convicted of murdering babies, because of growing concerns about the evidence.`\
 https://nytimes.com/2024/08/29/world/europe/lucy-letby-innocent-inquiry-nurse-babies.html
-
-**Thursday's MLB odds, projections: Best bets for pitching matchups, every game**\
-`See pitching matchups, playoff projections, win projections and more for Thursday's MLB games.`\
-https://nytimes.com/athletic/5730193/2024/08/29/mlb-odds-best-bets-projections-august-29/
-
-**Can China Tech Find a Home in Silicon Valley?**\
-`Entrepreneurs and venture capitalists are setting up firms across the Pacific, only to find that any investment with Chinese ties is a hard sell.`\
-https://nytimes.com/2024/08/29/business/china-venture-capital.html
 

@@ -1,3 +1,11 @@
+**How style impacts atmosphere (and how atmosphere can prompt a change of style)**\
+`How style and atmosphere interact at English football matches`\
+https://nytimes.com/athletic/5726361/2024/08/29/style-effect-on-atmosphere-premier-league/
+
+**Selhurst Park at 100: Why one of England's least loved grounds really matters**\
+`Crystal Palace's home proves there is a place for gloriously chaotic — if ramshackle — stadiums in the modern Premier League`\
+https://nytimes.com/athletic/5724054/2024/08/29/selhurst-park-crystal-palace-100-years/
+
 **Paris Paralympics 2024: How the classification system works**\
 `The system of classification is intended to guarantee fair competition and uphold the integrity of the Games. But how does it all work?`\
 https://nytimes.com/athletic/5729340/2024/08/29/paralympic-games-classification-guide/
