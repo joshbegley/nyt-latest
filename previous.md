@@ -1,3 +1,11 @@
+**Real Madrid's Rodriguez set to join Getafe in loan deal**\
+`Getafe are set to sign Real Madrid striker Alvaro Rodriguez on a season-long loan.`\
+https://nytimes.com/athletic/5731051/2024/08/29/real-madrid-transfers-alvaro-rodriguez-getafe-loan/
+
+**Marseille set to sign Maupay from Everton**\
+`Everton striker Neal Maupay is close to joining Marseille.`\
+https://nytimes.com/athletic/5731108/2024/08/29/marseille-neal-maupay-everton/
+
 **Matt Rhule is convincing. But does he have Nebraska ready for a long-awaited rebirth?**\
 `Evidence exists a long-awaited turnaround could be close. The hype is growing. But Nebraska still has to prove it's changed under Rhule.`\
 https://nytimes.com/athletic/5730407/2024/08/29/nebraska-football-matt-rhule-rebirth/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/29/movies/seeking-mavis-beacon-review.html
 **‘Reagan’ Review: The Gipper Takes on Moscow**\
 `In this unabashed love letter to former president Ronald Reagan, Dennis Quaid fights the Cold War with conviction.`\
 https://nytimes.com/2024/08/29/movies/ronald-reagan-review-dennis-quaid.html
-
-**Will Johnson has been special for Michigan. Could he be the No. 1 pick in April's draft?**\
-`If Will Johnson delivers another standout season, he could have a chance to make NFL Draft history for his position. `\
-https://nytimes.com/athletic/5714290/2024/08/29/michigan-will-johnson-2025-nfl-draft-film/
-
-**‘1992’ Review: Can They Get Along?**\
-`The uproar that followed the Rodney King verdict serves as a mere backdrop for fathers and sons to work out their issues in a heist thriller.`\
-https://nytimes.com/2024/08/29/movies/1992-review.html
 

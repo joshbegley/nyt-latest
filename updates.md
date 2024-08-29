@@ -1,3 +1,11 @@
+**Real Madrid's Rodriguez set to join Getafe in loan deal**\
+`Getafe are set to sign Real Madrid striker Alvaro Rodriguez on a season-long loan.`\
+https://nytimes.com/athletic/5731051/2024/08/29/real-madrid-transfers-alvaro-rodriguez-getafe-loan/
+
+**Marseille set to sign Maupay from Everton**\
+`Everton striker Neal Maupay is close to joining Marseille.`\
+https://nytimes.com/athletic/5731108/2024/08/29/marseille-neal-maupay-everton/
+
 **Matt Rhule is convincing. But does he have Nebraska ready for a long-awaited rebirth?**\
 `Evidence exists a long-awaited turnaround could be close. The hype is growing. But Nebraska still has to prove it's changed under Rhule.`\
 https://nytimes.com/athletic/5730407/2024/08/29/nebraska-football-matt-rhule-rebirth/
