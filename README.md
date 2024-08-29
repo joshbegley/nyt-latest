@@ -1,3 +1,7 @@
+**Top Biden Aide Holds Rare Talks With Chinese Military General**\
+`Jake Sullivan also met with China’s top leader, Xi Jinping, who said the United States should “find a correct way for the two major countries to get along.”`\
+https://nytimes.com/2024/08/29/world/asia/china-us-sullivan-xi.html
+
 **Why is Bears GM Ryan Poles excited? 'The group of guys, it's really special'**\
 `We heard from the Bears' GM after he set the initial 53-man roster. He talked Caleb Williams, the offensive line, Matt Eberflus and more.`\
 https://nytimes.com/athletic/5730180/2024/08/29/bears-preseason-excitement-ryan-poles/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5729480/2024/08/29/michigan-wolverines-football-pre
 **Ryan Day knew Ohio State had to change. He started with himself.**\
 `Day has a strong reputation as a play-caller, but for Ohio State to get where it needs to be, he realized that change started at the top.`\
 https://nytimes.com/athletic/5729376/2024/08/29/ryan-day-ohio-state-football-coach/
-
-**Joy Can Do More Than Beat Trump**\
-`It can push MAGA back to the periphery of American life.`\
-https://nytimes.com/2024/08/29/opinion/trump-harris-joy-maga-2024.html
 
