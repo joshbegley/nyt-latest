@@ -1,3 +1,15 @@
+**Officials Investigating After More Than 40 Horses Die From Contaminated Feed**\
+`Agriculture departments in Oklahoma and Kansas are investigating the deaths on the Beutler ranch, a legacy breeder of livestock that supplies the nation’s rodeos.`\
+https://nytimes.com/2024/08/29/us/horse-dead-ranch-oklahoma.html
+
+**Man City set to offer McAtee new deal after turning down summer bids**\
+`Manchester city are ready to offer midfielder James McAtee a new contract after rebuffing bids of up to £30million during the summer transfer window.`\
+https://nytimes.com/athletic/5732366/2024/08/29/james-mcatee-manchester-city-contract/
+
+**Brighton submit offer for Nordsjaelland striker Harder**\
+`Brighton &amp; Hove Albion have submitted a €20million offer to Nordsjaelland for striker Conrad Harder.`\
+https://nytimes.com/athletic/5732443/2024/08/29/conrad-harder-brighton-transfer/
+
 **SEC adopts comprehensive system for player availability reports**\
 `The reporting system will include football, basketball and baseball. `\
 https://nytimes.com/athletic/5732420/2024/08/29/sec-player-availability-reports-football-basketball-baseball/
