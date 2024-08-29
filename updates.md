@@ -1,3 +1,7 @@
+**Israel has emphasized the move is not the first step to a cease-fire.**\
+`By Lara Jakes and Ephrat Livni`\
+https://nytimes.com/live/2024/08/29/world/israel-hamas-gaza-war/hfo-israel-has-emphasized-the-move-is-not-the-first-step-to-a-cease-fire
+
 **The Bounce: Will LeBron James, fellow NBA stars deliver on Netflix?**\
 `Zach Harper and Shams Charania catch you up on leaguewide news.`\
 https://nytimes.com/athletic/5731401/2024/08/29/lebron-james-jayson-tatum-netflix-celtics-nba-the-bounce/
