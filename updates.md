@@ -1,3 +1,15 @@
+**How to Fend Off Mosquitoes**\
+`We asked experts how to keep the pests away from your house and protect yourself from bites when you go outdoors.`\
+https://nytimes.com/article/how-stop-mosquito-bites.html
+
+**NASCAR's 2025 Cup Series schedule changes, ranked from best to worst**\
+`From Mexico City to booting Homestead to March, here are our thoughts on the changes coming to the 2025 NASCAR Cup Series schedule.`\
+https://nytimes.com/athletic/5729398/2024/08/29/2025-nascar-cup-series-schedule-changes-ranked/
+
+**Why the Predators committed to Juuse Saros over top goaltending prospect Yaroslav Askarov**\
+`Saros and Predators general manager Barry Trotz take us inside the decision to sign a contract that carries the goalie through 2033.`\
+https://nytimes.com/athletic/5729417/2024/08/29/predators-juuse-saros-yaroslav-askarov/
+
 **Cruise Ship Worker Sentenced to 30 Years for Hiding Cameras in Bathrooms**\
 `The former employee of Royal Caribbean told investigators that he had been secretly recording people, including children, since December 2023.`\
 https://nytimes.com/2024/08/29/us/royal-caribbean-employee-hidden-camera-sentence.html
