@@ -1,3 +1,7 @@
+**How the U.S. Open jumbo tennis ball became a cute, yellow harbinger of doom**\
+`The WIlson jumbo tennis ball is one of the sights of the U.S. Open. Players on the cusp of losing want it out of their sight`\
+https://nytimes.com/athletic/5732358/2024/08/29/us-open-jumbo-tennis-ball/
+
 **Talanoa Hufanga, Isaac Yiadom return to bolster 49ers' secondary**\
 `Charvarius Ward thinks the 49ers can field the NFL's best secondary. This week's returns to practice can help toward that goal. `\
 https://nytimes.com/athletic/5732547/2024/08/29/49ers-secondary-nfl-talanoa-hufanga/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/29/world/middleeast/israel-west-bank-raid.html
 **Donors Quietly Push Harris to Drop Tax on Ultrawealthy**\
 `Vice President Kamala Harris’s fund-raising has benefited from a surge of interest from Silicon Valley and Wall Street.`\
 https://nytimes.com/2024/08/29/us/politics/donors-harris-tax-ultrawealthy.html
-
-**What Is Palestinian Islamic Jihad?**\
-`The militant group was founded in Gaza in the 1980s, but remains far smaller and holds less sway than Hamas.`\
-https://nytimes.com/2024/08/29/world/middleeast/palestinian-islamic-jihad-muhammad-jaber.html
 
