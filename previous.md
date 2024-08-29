@@ -1,3 +1,15 @@
+**Chiefs' Rashee Rice not heading to commissioner's exempt list**\
+`League exec Jeff Miller said the league continues to closely monitor developments regarding Rice and his legal problems this offseason.`\
+https://nytimes.com/athletic/5731905/2024/08/29/rashee-rice-exempt-list-chiefs/
+
+**F-16 Fighter Jet, Recently Supplied to Ukraine, Crashes**\
+`A Western official said the advanced fighter crashed while defending against a Russian aerial assault. It was not clear how it was destroyed, but the loss is a symbolic blow to Ukraine, given the planes’ prominence.`\
+https://nytimes.com/2024/08/29/world/europe/f-16-ukraine-crash.html
+
+**Trump Aide ‘Abruptly Pushed Aside’ an Arlington Cemetery Official, the Army Says**\
+`The statement from the Army is the first detailed description of an altercation that took place on Monday, as Mr. Trump appeared for a wreath-laying ceremony.`\
+https://nytimes.com/2024/08/29/us/politics/trump-arlington-cemetery-army.html
+
 **Here’s What We Know About the Oil Tanker Stuck in the Red Sea**\
 `The MV Delta Sounion was carrying a million barrels of crude oil when it was attacked by Houthi rebels. On fire and crewless, it now poses an environmental risk.`\
 https://nytimes.com/2024/08/29/world/middleeast/oil-tanker-red-sea-yemen-houthi-attack.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5731915/2024/08/29/jaguars-sign-former-rugby-star-l
 **Israel has emphasized the move is not the first step to a cease-fire.**\
 `By Lara Jakes and Ephrat Livni`\
 https://nytimes.com/live/2024/08/29/world/israel-hamas-gaza-war/hfo-israel-has-emphasized-the-move-is-not-the-first-step-to-a-cease-fire
-
-**The Bounce: Will LeBron James, fellow NBA stars deliver on Netflix?**\
-`Zach Harper and Shams Charania catch you up on leaguewide news.`\
-https://nytimes.com/athletic/5731401/2024/08/29/lebron-james-jayson-tatum-netflix-celtics-nba-the-bounce/
-
-**30-Year Mortgage Rate Falls Again, Now at 6.35%**\
-`Further declines could encourage more activity from buyers and sellers.`\
-https://nytimes.com/2024/08/29/business/mortgage-rates.html
-
-**Buckley: Jerod Mayo makes Jacoby Brissett the Patriots' starter, but it’s still complicated**\
-`If it was truly a QB competition between Brissett and Drake Maye, the rookie should probably be starting. This was something else at play.`\
-https://nytimes.com/athletic/5731830/2024/08/29/patriots-jerod-mayo-jacoby-brissett-drake-maye/
 

@@ -1,3 +1,15 @@
+**Chiefs' Rashee Rice not heading to commissioner's exempt list**\
+`League exec Jeff Miller said the league continues to closely monitor developments regarding Rice and his legal problems this offseason.`\
+https://nytimes.com/athletic/5731905/2024/08/29/rashee-rice-exempt-list-chiefs/
+
+**F-16 Fighter Jet, Recently Supplied to Ukraine, Crashes**\
+`A Western official said the advanced fighter crashed while defending against a Russian aerial assault. It was not clear how it was destroyed, but the loss is a symbolic blow to Ukraine, given the planes’ prominence.`\
+https://nytimes.com/2024/08/29/world/europe/f-16-ukraine-crash.html
+
+**Trump Aide ‘Abruptly Pushed Aside’ an Arlington Cemetery Official, the Army Says**\
+`The statement from the Army is the first detailed description of an altercation that took place on Monday, as Mr. Trump appeared for a wreath-laying ceremony.`\
+https://nytimes.com/2024/08/29/us/politics/trump-arlington-cemetery-army.html
+
 **Here’s What We Know About the Oil Tanker Stuck in the Red Sea**\
 `The MV Delta Sounion was carrying a million barrels of crude oil when it was attacked by Houthi rebels. On fire and crewless, it now poses an environmental risk.`\
 https://nytimes.com/2024/08/29/world/middleeast/oil-tanker-red-sea-yemen-houthi-attack.html
