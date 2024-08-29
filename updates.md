@@ -1,3 +1,11 @@
+**Nabers to wear retired No. 1 with Flaherty family's permission**\
+`The Giants retired the Hall of Fame defensive end's number in 1935. It was the first number sidelined in pro football history.`\
+https://nytimes.com/athletic/5730323/2024/08/28/malik-nabers-ny-giants-jersey-unretired/
+
+**Trump Images at Grave Dismay Family of Green Beret Buried at Arlington**\
+`After a confrontation with Trump campaign officials, a cemetery employee declined to press charges and military officials said it was because she feared retribution from Donald Trump’s supporters.`\
+https://nytimes.com/2024/08/28/us/politics/trump-arlington-cemetery.html
+
 **OpenAI in Talks for Deal That Would Value Company at $100 Billion**\
 `While some young A.I. companies have struggled to compete with the tech industry’s giants, OpenAI has been rapidly expanding.`\
 https://nytimes.com/2024/08/28/technology/openai-valuation-funding-deal.html
