@@ -1,3 +1,7 @@
+**Separated From Co-Workers, Man Endures Freezing Night in the Rockies Before Rescue**\
+`Steve Stephanides of Florida stopped to take a break while his colleagues continued up a mountain trail, the authorities said. He got lost on his way back and was found the next day by rescue teams.`\
+https://nytimes.com/2024/08/29/us/colorado-hiker-found-corporate-retreat.html
+
 **United Nations to Begin Polio Vaccine Campaign in Gaza**\
 `The World Health Organization’s top representative in Gaza said Israel agreed to temporarily pause its military operations in designated areas during the hours vaccines would be administered to children.`\
 https://nytimes.com/video/world/middleeast/100000009664406/gaza-polio-vaccine-un.html
