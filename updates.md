@@ -1,3 +1,7 @@
+**Padres takeaways: September, a decision to bunt and Manny Machado’s return to form**\
+`Elias Díaz seems poised to join the Padres when rosters expand, Juricskon Profar defends his instincts and Machado is heating up.`\
+https://nytimes.com/athletic/5732813/2024/08/29/padres-september-roster-jurickson-profar-manny-machado/
+
 **Toll Reaches 17 Dead in Israel’s West Bank Raid, Including a Militant Commander**\
 `The operation is the largest Israeli military incursion in over a year into the West Bank, which has become a third front in a conflict also being fought in Gaza and along the border with Lebanon.`\
 https://nytimes.com/2024/08/29/world/middleeast/israel-west-bank-raid.html

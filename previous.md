@@ -1,3 +1,7 @@
+**Padres takeaways: September, a decision to bunt and Manny Machado’s return to form**\
+`Elias Díaz seems poised to join the Padres when rosters expand, Juricskon Profar defends his instincts and Machado is heating up.`\
+https://nytimes.com/athletic/5732813/2024/08/29/padres-september-roster-jurickson-profar-manny-machado/
+
 **Toll Reaches 17 Dead in Israel’s West Bank Raid, Including a Militant Commander**\
 `The operation is the largest Israeli military incursion in over a year into the West Bank, which has become a third front in a conflict also being fought in Gaza and along the border with Lebanon.`\
 https://nytimes.com/2024/08/29/world/middleeast/israel-west-bank-raid.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/29/briefing/harris-interview-cnn-walz-school-nurses-
 **Namibia, Facing Drought, Plans to Kill Elephants for Meat**\
 `The Southern African country plans to butcher over 700 wild animals, including 83 elephants and 300 zebras, to feed people and, it hopes, cut down on dangerous cross-species encounters.`\
 https://nytimes.com/2024/08/29/world/africa/namibia-drought-elephants-meat.html
-
-**In cutting Lewis Cine, GM Kwesi Adofo-Mensah reflects critically on Vikings' 2022 draft class**\
-`Adofo-Mensah and coach Kevin O'Connell discussed how things have changed in prospect evaluation since their initial draft in Minnesota.`\
-https://nytimes.com/athletic/5732476/2024/08/29/vikings-lewis-cine-kwesi-adofo-mensah-draft/
 
