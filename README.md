@@ -1,3 +1,7 @@
+**Trump Should Be Scared — Very Scared — of Debating Kamala Harris**\
+`If she keeps her cool, he’ll surely lose his.`\
+https://nytimes.com/2024/08/29/opinion/trump-kamala-harris-debate.html
+
 **England under Lee Carsley: Fresh energy, new blood in midfield and a few familiar faces**\
 `Noni Madueke and Angel Gomes provide some fresh energy among four new faces, while there are recalls for Jack Grealish and Harry Maguire`\
 https://nytimes.com/athletic/5728690/2024/08/29/england-carsley-gomes-grealish/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5731707/2024/08/29/angel-gomes-england-man-united-l
 **The Windup: Even Ohtani's dog is crushing it**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5731782/2024/08/29/ohtani-dog-decoy-bobblehead-the-windup/
-
-**Mount was trying to reboot at Manchester United - what happens now?**\
-`MIdfielder has shown a renewed energy and purpose before his injury at Brighton, although long-term questions remain`\
-https://nytimes.com/athletic/5728437/2024/08/29/mason-mount-manchester-united-injury/
 
