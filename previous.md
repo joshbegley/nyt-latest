@@ -1,3 +1,7 @@
+**Backpage Founder Gets Five Years in Case That Shut Down Website**\
+`Michael Lacey, 76, co-founded the website that became known for its ads for prostitution. He was convicted on a money laundering charge in a case that included accusations of sex trafficking.`\
+https://nytimes.com/2024/08/28/us/backpage-michael-lacey-sentenced.html
+
 **Skye Writing**\
 `Simeon Seigel sets a course for puzzling adventure.`\
 https://nytimes.com/2024/08/28/crosswords/daily-puzzle-2024-08-29.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5730442/2024/08/28/taijuan-walker-struggles-phillie
 **As 49ers' roster comes into focus, so do the weak spots for the upcoming season**\
 `The 49ers had two healthy running backs at Wednesday's practice, although two more are expected to be back on the field next week.`\
 https://nytimes.com/athletic/5730396/2024/08/28/49ers-roster-weak-spots/
-
-**What we learned from Brandon Beane after he set the 2024 roster**\
-`The Bills are remaining steady on Tyler Bass and Matt Milano.`\
-https://nytimes.com/athletic/5730274/2024/08/28/buffalo-bills-gm-beane-2024-roster/
 

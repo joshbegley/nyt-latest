@@ -1,3 +1,7 @@
+**Backpage Founder Gets Five Years in Case That Shut Down Website**\
+`Michael Lacey, 76, co-founded the website that became known for its ads for prostitution. He was convicted on a money laundering charge in a case that included accusations of sex trafficking.`\
+https://nytimes.com/2024/08/28/us/backpage-michael-lacey-sentenced.html
+
 **Skye Writing**\
 `Simeon Seigel sets a course for puzzling adventure.`\
 https://nytimes.com/2024/08/28/crosswords/daily-puzzle-2024-08-29.html
