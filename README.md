@@ -1,3 +1,7 @@
+**Corrections: Aug. 29, 2024**\
+`Corrections that appeared in print on Thursday, Aug. 29, 2024.`\
+https://nytimes.com/2024/08/29/pageoneplus/corrections-aug-29-2024.html
+
 **'We've got an uphill battle': Mets blow another late lead in a key game**\
 `Wednesday was the second "worst loss of the season" the Mets have endured in the last four days.`\
 https://nytimes.com/athletic/5730886/2024/08/29/mets-blow-late-lead-diamondbacks/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5730821/2024/08/29/detroit-tigers-win-angels-pitchi
 **FPL: How to take advantage of the biggest upcoming fixture swings**\
 `It sounds simple, but signing players with the easiest fixture runs ahead works - these are the teams and individuals to target`\
 https://nytimes.com/athletic/5727215/2024/08/29/fantasy-premier-league-fixture-swings/
-
-**At Missouri Hearing, Lawyers Spar Over Fate of Prisoner on Death Row**\
-`The case of Marcellus Williams, 55, who has maintained his innocence in a 1998 killing, has pitted a local prosecutor against the state’s attorney general.`\
-https://nytimes.com/2024/08/29/us/marcellus-williams-death-penalty-hearing.html
 
