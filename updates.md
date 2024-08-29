@@ -1,3 +1,7 @@
+**Punish the Creators of Deepfakes, Not the Women in Them**\
+`Advances in technology are frequently twisted from their original use and employed to humiliate women.`\
+https://nytimes.com/live/2024/08/27/opinion/thepoint/deepfake-pornography-women-assault
+
 **Ravens GM Eric DeCosta understands there might be 'hiccups' with younger O-line**\
 `Baltimore will rely on many recent draft picks to help fill voids along the O-line. Also, DeCosta spoke on the team's backup QB situation.`\
 https://nytimes.com/athletic/5732255/2024/08/29/ravens-gm-eric-decosta-understands-there-might-be-hiccups-with-younger-o-line/
