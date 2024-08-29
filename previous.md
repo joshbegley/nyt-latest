@@ -1,3 +1,7 @@
+**Where Does Biden’s Student Loan Debt Plan Stand? Here’s What to Know.**\
+`The Supreme Court refused to allow a key part of President Biden’s student debt plan to move forward. Here’s what’s left of it, and who could still benefit.`\
+https://nytimes.com/2024/08/28/us/politics/biden-student-loans-supreme-court.html
+
 **Taijuan Walker hits a new low. Would the Phillies eat the millions left on his contract?**\
 `The Phillies owe Walker roughly $39M. Eating that much money would be unprecedented in club history, but it's been done by other teams.`\
 https://nytimes.com/athletic/5730442/2024/08/28/taijuan-walker-struggles-phillies-options/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/28/science/dinosaur-tracks-brazil-cameroon.html
 **Waterline Breaks Force Grand Canyon to Halt Hotel Stays on South Rim**\
 `The popular destination has put strict water restrictions into effect before one of summer’s busiest weekends.`\
 https://nytimes.com/2024/08/28/us/grand-canyon-hotels-water.html
-
-**Falcons trade QB Taylor Heinicke to Chargers**\
-`Heinicke made the Falcons’ 53-man roster as a third quarterback, but his prospects of playing time in Atlanta were not great.`\
-https://nytimes.com/athletic/5730360/2024/08/28/taylor-heinicke-chargers-falcons-trade/
 
