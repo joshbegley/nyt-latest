@@ -1,3 +1,7 @@
+**Lee Pearson, Paralympic great, suspended by British Equestrian**\
+`Lee Pearson, one of Great Britain’s most successful Paralympians, has been suspended by British Equestrian amid an ongoing investigation into his conduct.`\
+https://nytimes.com/athletic/5731205/2024/08/29/lee-pearson-paralympics-equestrian-suspension/
+
 **The Athletic FC: Aaron Ramsdale and the Premier League's wild goalkeeper trade**\
 `Transfer deadline day latest, Nottingham Forest's extraordinary goalkeeper and the importance of stadium atmospheres`\
 https://nytimes.com/athletic/5731118/2024/08/29/aaron-ramsdale-and-the-premier-leagues-wild-goalkeeper-trade/
