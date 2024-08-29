@@ -1,3 +1,11 @@
+**Typhoon Shanshan Makes Landfall in Southern Japan**\
+`The risk of life-threatening landslides and floods was rapidly increasing in parts of Kyushu Island as the storm lashed it with relentless rain, the authorities warned.`\
+https://nytimes.com/2024/08/28/world/asia/typhoon-shanshan-japan-landfall.html
+
+**Jose Altuve's home-plate steal provides spark for Astros club that needed one**\
+`Altuve's dash home set the tone for the Astros' victory, including Spencer Arrighetti's near no-hitter and Yordan Alvarez's three homers. `\
+https://nytimes.com/athletic/5730547/2024/08/28/jose-altuve-provides-astros-with-spark/
+
 **Jose Altuve's home plate steal provides a spark for an Astros club that needed one**\
 `Altuve's dash home set the tone for the Astros' victory, including Spencer Arrighetti's near no-hitter and Yordan Alvarez's three homers. `\
 https://nytimes.com/athletic/5730547/2024/08/28/jose-altuve-provides-astros-with-spark/

@@ -1,8 +1,12 @@
+**Typhoon Shanshan Makes Landfall in Southern Japan**\
+`The risk of life-threatening landslides and floods was rapidly increasing in parts of Kyushu Island as the storm lashed it with relentless rain, the authorities warned.`\
+https://nytimes.com/2024/08/28/world/asia/typhoon-shanshan-japan-landfall.html
+
 **Where Does Biden’s Student Loan Debt Plan Stand? Here’s What to Know.**\
 `The Supreme Court refused to allow a key part of President Biden’s student debt plan to move forward. Here’s what’s left of it, and who could still benefit.`\
 https://nytimes.com/2024/08/28/us/politics/biden-student-loans-supreme-court.html
 
-**Jose Altuve's home plate steal provides a spark for an Astros club that needed one**\
+**Jose Altuve's home-plate steal provides spark for Astros club that needed one**\
 `Altuve's dash home set the tone for the Astros' victory, including Spencer Arrighetti's near no-hitter and Yordan Alvarez's three homers. `\
 https://nytimes.com/athletic/5730547/2024/08/28/jose-altuve-provides-astros-with-spark/
 
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/28/us/politics/trump-arlington-cemetery.html
 **OpenAI in Talks for Deal That Would Value Company at $100 Billion**\
 `While some young A.I. companies have struggled to compete with the tech industry’s giants, OpenAI has been rapidly expanding.`\
 https://nytimes.com/2024/08/28/technology/openai-valuation-funding-deal.html
-
-**Scientists Discover Similar Dinosaur Footprints on Opposite Sides of the Atlantic**\
-`More than 260 similar footprints found in Brazil and Cameroon help us understand a region that broke apart millions of years ago.`\
-https://nytimes.com/2024/08/28/science/dinosaur-tracks-brazil-cameroon.html
 
