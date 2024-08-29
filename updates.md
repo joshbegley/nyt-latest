@@ -1,3 +1,7 @@
+**Chelsea's Petrovic to join BlueCo-owned Strasbourg on loan**\
+`Chelsea goalkeeper Djordje Petrovic will join Strasbourg on a season-long loan deal subject to a medical.`\
+https://nytimes.com/athletic/5731013/2024/08/29/djordje-petrovic-strasbourg-loan-chelsea-transfers/
+
 **Week 1's top 10 college football games: Rivalries, ranked matchups and CFP implications**\
 `Clemson-Georgia and Notre Dame-Texas A&M are the headliners, but keep an eye on FSU, Oklahoma State, Boise State and, of course, Colorado.`\
 https://nytimes.com/athletic/5729165/2024/08/29/college-football-schedule-week-one-top-games/
