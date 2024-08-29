@@ -1,3 +1,19 @@
+**Struggling Teenagers Left Out in New Push to Overhaul Reading**\
+`Districts like New York are revamping elementary school reading instruction. But the middle and high schoolers who don’t read proficiently are an afterthought.`\
+https://nytimes.com/2024/08/29/nyregion/older-students-reading-instruction.html
+
+**Does Alexa Chung Still Have ‘It’?**\
+`She calls herself a “geriatric ‘it’ girl.” The brand Madewell calls her an “original muse.” Just don’t call this look “indie sleaze.”`\
+https://nytimes.com/2024/08/29/style/alexa-chung-madewell.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/29/crosswords/spelling-bee-forum.html
+
+**Eric Adams Calls Himself ‘Dinkins 2.’ Can It Get Him Re-Elected?**\
+`Mayor Adams is hoping to persuade his base of Black middle-class and older voters that his re-election bid is being undermined just as David Dinkins’s was in 1993.`\
+https://nytimes.com/2024/08/29/nyregion/mayor-adams-dinkins.html
+
 **Corrections: Aug. 29, 2024**\
 `Corrections that appeared in print on Thursday, Aug. 29, 2024.`\
 https://nytimes.com/2024/08/29/pageoneplus/corrections-aug-29-2024.html
@@ -17,20 +33,4 @@ https://nytimes.com/2024/08/29/learning/word-of-the-day-avaricious.html
 **'Nole against the world': The fan who stole the show as Djokovic toiled through in New York**\
 `Zoran Pavlovic was dressed in a white t-shirt Wednesday night, the figure of Novak Djokovic emblazoned across the chest.`\
 https://nytimes.com/athletic/5730825/2024/08/29/novak-djokovic-us-open-super-fan/
-
-**The High Price of Safety in El Salvador**\
-`Under President Nayib Bukele, Salvadorans have swapped their rights for quiet streets. How long can that tradeoff be maintained?`\
-https://nytimes.com/2024/08/29/opinion/el-salvador-safety-bukele.html
-
-**The Specter of Nazism Is Haunting Germany**\
-`The focus on the far right’s traditional symbols has proved unsuccessful.`\
-https://nytimes.com/2024/08/29/opinion/germany-afd-elections.html
-
-**With small details and big pitches, Tigers just keep winning**\
-`The Tigers have won six in a row and 13 of 16, now only 4 1/2 games out of a wild-card spot. `\
-https://nytimes.com/athletic/5730821/2024/08/29/detroit-tigers-win-angels-pitching/
-
-**FPL: How to take advantage of the biggest upcoming fixture swings**\
-`It sounds simple, but signing players with the easiest fixture runs ahead works - these are the teams and individuals to target`\
-https://nytimes.com/athletic/5727215/2024/08/29/fantasy-premier-league-fixture-swings/
 
