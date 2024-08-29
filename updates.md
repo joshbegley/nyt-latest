@@ -1,3 +1,7 @@
+**Skye Writing**\
+`Simeon Seigel sets a course for puzzling adventure.`\
+https://nytimes.com/2024/08/28/crosswords/daily-puzzle-2024-08-29.html
+
 **Brazil Threatens to Ban Elon Musk’s X**\
 `The country’s Supreme Court gave the service 24 hours to name a legal representative in Brazil or face suspension.`\
 https://nytimes.com/2024/08/28/technology/brazil-x-ban-elon-musk.html
