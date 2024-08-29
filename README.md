@@ -1,3 +1,7 @@
+**Mets bullpen notes: Dedniel Núñez hits the injured list again**\
+`The Mets have some optimism that Núñez can make a swift recovery but the outlook is tougher for Sean Reid-Foley.`\
+https://nytimes.com/athletic/5732577/2024/08/29/mets-bullpen-dedniel-nunez/
+
 **Friday Briefing: A Defining Harris Interview**\
 `Plus, a picnic battle on Italy’s beaches.`\
 https://nytimes.com/2024/08/29/briefing/harris-interview-polio-vaccines-us-china.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/29/us/politics/wes-moore-bronze-star.html
 **Falcons turn attention to season opener after setting roster, trading Taylor Heinicke**\
 `The Falcons finalized the Heinicke trade with the Chargers and are revving up Matthew Judon and Justin Simmons to face the Steelers.`\
 https://nytimes.com/athletic/5732435/2024/08/29/falcons-raheem-morris-steelers-taylor-heinicke/
-
-**Major Publishers Sue Florida Over Banned School Library Books**\
-`A state law limits sexual content in school libraries. But several publishing companies say it has led to a “regime of strict censorship” in school districts.`\
-https://nytimes.com/2024/08/29/us/florida-book-ban-lawsuit.html
 
