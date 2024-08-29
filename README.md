@@ -1,3 +1,7 @@
+**'Nole against the world': The fan who stole the show as Djokovic toiled through in New York**\
+`Zoran Pavlovic was dressed in a white t-shirt Wednesday night, the figure of Novak Djokovic emblazoned across the chest.`\
+https://nytimes.com/athletic/5730825/2024/08/29/novak-djokovic-us-open-super-fan/
+
 **The High Price of Safety in El Salvador**\
 `Under President Nayib Bukele, Salvadorans have swapped their rights for quiet streets. How long can that tradeoff be maintained?`\
 https://nytimes.com/2024/08/29/opinion/el-salvador-safety-bukele.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5728409/2024/08/29/enzo-maresca-chelsea-analysis/
 **How the Basque Country made 'machine' Merino perfect for Arteta's Arsenal**\
 `Arsenal new signing Merino is from the same part of Spain as their manager Arteta - and the area produces lots of successful sportspeople`\
 https://nytimes.com/athletic/5728374/2024/08/29/mikel-merino-arsenal-basque/
-
-**Aaron Rodgers, Ezekiel Elliott among Renee Miller’s final 'My Guys' list for fantasy football 2024**\
-`Renee Miller's latest list of draft-day favorites for fantasy football includes a couple veterans, like Dallas running back Ezekiel Elliott.`\
-https://nytimes.com/athletic/5729661/2024/08/29/final-my-guys-renee-miller-fantasy-football-2024/
 
