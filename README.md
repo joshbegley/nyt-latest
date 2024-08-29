@@ -1,3 +1,7 @@
+**Separated From Co-Workers, Man Endures Freezing Night in the Rockies Before Rescue**\
+`Steve Stephanides of Florida stopped to take a break while his colleagues continued up a mountain trail, the authorities said. He got lost on his way back and was found the next day by rescue teams.`\
+https://nytimes.com/2024/08/29/us/colorado-hiker-found-corporate-retreat.html
+
 **United Nations to Begin Polio Vaccine Campaign in Gaza**\
 `The World Health Organization’s top representative in Gaza said Israel agreed to temporarily pause its military operations in designated areas during the hours vaccines would be administered to children.`\
 https://nytimes.com/video/world/middleeast/100000009664406/gaza-polio-vaccine-un.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/29/us/sedona-prince-ncaa-basketball.html
 **Zaha close to joining Lyon on loan from Galatasaray**\
 `Galatasaray winger Wilfried Zaha is close to joining Lyon on loan.`\
 https://nytimes.com/athletic/5732263/2024/08/29/wilfried-zaha-lyon-loan/
-
-**Don't call it a rebuild: 4 thoughts on Panthers' waiver claims and retooling process**\
-`The Panthers took advantage of their waiver-claim position, grabbing six players with a focus on big corners and an eye on edge rushers.`\
-https://nytimes.com/athletic/5732220/2024/08/29/carolina-panthers-waiver-claims-roster-building/
 
