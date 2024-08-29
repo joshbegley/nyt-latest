@@ -1,3 +1,15 @@
+**This Biopic Could Be Angelina Jolie’s Oscar Comeback**\
+`“Maria,” about the opera diva Maria Callas, plays to the star’s strengths. Its Venice Film Festival debut was timed so the actress could avoid Brad Pitt.`\
+https://nytimes.com/2024/08/29/movies/maria-callas-biopic-angelina-jolie-venice.html
+
+**Investigation Into Yacht That Sank Off Sicily Broadens**\
+`Prosecutors are looking into the actions of two other crew members in connection with the sinking of the luxury yacht Bayesian, which caused the deaths of seven people.`\
+https://nytimes.com/2024/08/29/world/europe/bayesian-yacht-sicily-mike-lynch-investigation-crew.html
+
+**The Haason Reddick holdout remains the Jets' uncomfortable truth**\
+`With Week 1 fast approaching, the Jets are still grappling with the absence of their newly-acquired star.`\
+https://nytimes.com/athletic/5732047/2024/08/29/haason-reddick-new-york-jets-holdout-gm-joe-douglas-agent-tory-dandy/
+
 **The Return of the Donahue Man**\
 `Much has been made of a new masculinity in this election cycle, but the biggest public transformation for men might be the role of the husband.`\
 https://nytimes.com/2024/08/29/style/new-masculinity-doug-emhoff-tim-walz.html
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5732130/2024/08/29/alpine-f1-worker-protest-italian
 **Why Jurgen Klopp was at the Paralympics: 'This story has to be told. My friend is super special'**\
 `The former Liverpool manager was in Paris to support his friend and raise awareness for the Paralympics`\
 https://nytimes.com/athletic/5731843/2024/08/29/jurgen-klopp-badminton-wojtek-czyz-paralympics/
-
-**Inside the Frantic U.S. Efforts to Contain a Mideast Disaster**\
-`A bigger disaster may have been avoided, even as the region continues to teeter on the brink of wider war.`\
-https://nytimes.com/2024/08/29/us/politics/us-biden-israel-iran-war.html
-
-**100-Plus Tons of Dead Fish, and Their Smell, Swamp a Greek Port City**\
-`The mass deaths of the fish were most likely caused by climate change. The vacation area and its businesses have been suffering since.`\
-https://nytimes.com/2024/08/29/world/europe/dead-fish-greece.html
-
-**Supreme Court Paves Way for Execution of Prisoner With Parkinson’s**\
-`The 57-year-old Florida man, convicted in the 1994 killing of a college student, argued that lethal injection would cause him “needless pain and suffering” because of the disease.`\
-https://nytimes.com/2024/08/29/us/politics/supreme-court-death-penalty-cole.html
 

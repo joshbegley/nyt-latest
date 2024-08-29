@@ -1,3 +1,15 @@
+**This Biopic Could Be Angelina Jolie’s Oscar Comeback**\
+`“Maria,” about the opera diva Maria Callas, plays to the star’s strengths. Its Venice Film Festival debut was timed so the actress could avoid Brad Pitt.`\
+https://nytimes.com/2024/08/29/movies/maria-callas-biopic-angelina-jolie-venice.html
+
+**Investigation Into Yacht That Sank Off Sicily Broadens**\
+`Prosecutors are looking into the actions of two other crew members in connection with the sinking of the luxury yacht Bayesian, which caused the deaths of seven people.`\
+https://nytimes.com/2024/08/29/world/europe/bayesian-yacht-sicily-mike-lynch-investigation-crew.html
+
+**The Haason Reddick holdout remains the Jets' uncomfortable truth**\
+`With Week 1 fast approaching, the Jets are still grappling with the absence of their newly-acquired star.`\
+https://nytimes.com/athletic/5732047/2024/08/29/haason-reddick-new-york-jets-holdout-gm-joe-douglas-agent-tory-dandy/
+
 **The Return of the Donahue Man**\
 `Much has been made of a new masculinity in this election cycle, but the biggest public transformation for men might be the role of the husband.`\
 https://nytimes.com/2024/08/29/style/new-masculinity-doug-emhoff-tim-walz.html
