@@ -1,3 +1,7 @@
+**Taijuan Walker hits a new low. Would the Phillies eat the millions left on his contract?**\
+`The Phillies owe Walker roughly $39M. Eating that much money would be unprecedented in club history, but it's been done by other teams.`\
+https://nytimes.com/athletic/5730442/2024/08/28/taijuan-walker-struggles-phillies-options/
+
 **As 49ers' roster comes into focus, so do the weak spots for the upcoming season**\
 `The 49ers had two healthy running backs at Wednesday's practice, although two more are expected to be back on the field next week.`\
 https://nytimes.com/athletic/5730396/2024/08/28/49ers-roster-weak-spots/
