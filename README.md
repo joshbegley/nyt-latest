@@ -3,7 +3,7 @@
 https://nytimes.com/interactive/2024/08/29/us/politics/wes-moore-bio.html
 
 **Wes Moore and the Bronze Star He Claimed but Never Received**\
-`For years, the Maryland governor has faced questions about whether he had wrongfully said he had a Bronze Star. He insisted no. But a 2006 application proves otherwise.`\
+`For years, the Maryland governor has faced questions about whether he had wrongfully said he had a Bronze Star. He insisted no. But an old document proves otherwise.`\
 https://nytimes.com/2024/08/29/us/politics/wes-moore-bronze-star.html
 
 **Falcons turn attention to season opener after setting roster, trading Taylor Heinicke**\

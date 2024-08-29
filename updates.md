@@ -1,3 +1,15 @@
+**Read the 2006 application**\
+`Applying for a White House fellowship in 2006, Wes Moore, then a 27-year-old Army veteran, wrote that he had been awarded “the Bronze Star Medal.”`\
+https://nytimes.com/interactive/2024/08/29/us/politics/wes-moore-bio.html
+
+**Wes Moore and the Bronze Star He Claimed but Never Received**\
+`For years, the Maryland governor has faced questions about whether he had wrongfully said he had a Bronze Star. He insisted no. But a 2006 application proves otherwise.`\
+https://nytimes.com/2024/08/29/us/politics/wes-moore-bronze-star.html
+
+**Falcons turn attention to season opener after setting roster, trading Taylor Heinicke**\
+`The Falcons finalized the Heinicke trade with the Chargers and are revving up Matthew Judon and Justin Simmons to face the Steelers.`\
+https://nytimes.com/athletic/5732435/2024/08/29/falcons-raheem-morris-steelers-taylor-heinicke/
+
 **More Than 40 Horses Die on Oklahoma Ranch After Eating Contaminated Feed**\
 `Agriculture departments in Oklahoma and Kansas are investigating the deaths on the Beutler ranch, a legacy breeder of livestock that supplies the nation’s rodeos.`\
 https://nytimes.com/2024/08/29/us/horse-dead-ranch-oklahoma.html
