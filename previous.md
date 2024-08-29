@@ -1,3 +1,7 @@
+**Bruce Feldman's Week 1 college football picks against the spread**\
+`Week 1 offers a pretty loaded schedule, with several games featuring two preseason Top 25 teams squaring off.`\
+https://nytimes.com/athletic/5729786/2024/08/29/college-football-week-1-picks-spread-predictions/
+
 **Death Toll in Israel’s West Bank Raids Rises to 17, Palestinian News Agency Says**\
 `Israel’s military said it killed five people in a gun battle in a mosque, as its operation in the West Bank entered a second day.`\
 https://nytimes.com/live/2024/08/29/world/israel-hamas-gaza-war
@@ -30,8 +34,4 @@ https://nytimes.com/athletic/5729601/2024/08/29/west-ham-bournemouth-analysis-re
 **Marcos Alonso joins Celta Vigo after Barcelona exit**\
 `Marcos Alonso has joined Celta Vigo after leaving Barcelona earlier this summer.`\
 https://nytimes.com/athletic/5730934/2024/08/29/marcos-alonso-celta-vigo-transfer-barcelona/
-
-**Struggling Teenagers Left Out in New Push to Overhaul Reading**\
-`Districts like New York are revamping elementary school reading instruction. But the middle and high schoolers who don’t read proficiently are an afterthought.`\
-https://nytimes.com/2024/08/29/nyregion/older-students-reading-instruction.html
 
