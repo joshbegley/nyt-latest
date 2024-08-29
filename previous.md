@@ -1,3 +1,7 @@
+**Denzel Ward says he won't consider retirement, feels good about long-term health**\
+`"I love playing this game," the three-time Pro Bowler said. "I really don't see myself stepping away from this game anytime soon." `\
+https://nytimes.com/athletic/5732940/2024/08/29/browns-denzel-ward-retirement-concussion/
+
 **How the U.S. Open jumbo tennis ball became a cute, yellow harbinger of doom**\
 `The oversized WIlson ball, used for autographs, is everywhere. Players on the cusp of losing want it out of their sight.`\
 https://nytimes.com/athletic/5732358/2024/08/29/us-open-jumbo-tennis-ball/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5732813/2024/08/29/padres-september-roster-jurickso
 **Toll Reaches 17 Dead in Israel’s West Bank Raid, Including a Militant Commander**\
 `The operation is the largest Israeli military incursion in over a year into the West Bank, which has become a third front in a conflict also being fought in Gaza and along the border with Lebanon.`\
 https://nytimes.com/2024/08/29/world/middleeast/israel-west-bank-raid.html
-
-**Donors Quietly Push Harris to Drop Tax on Ultrawealthy**\
-`Vice President Kamala Harris’s fund-raising has benefited from a surge of interest from Silicon Valley and Wall Street.`\
-https://nytimes.com/2024/08/29/us/politics/donors-harris-tax-ultrawealthy.html
 

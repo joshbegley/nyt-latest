@@ -1,3 +1,7 @@
+**Denzel Ward says he won't consider retirement, feels good about long-term health**\
+`"I love playing this game," the three-time Pro Bowler said. "I really don't see myself stepping away from this game anytime soon." `\
+https://nytimes.com/athletic/5732940/2024/08/29/browns-denzel-ward-retirement-concussion/
+
 **How the U.S. Open jumbo tennis ball became a cute, yellow harbinger of doom**\
 `The oversized WIlson ball, used for autographs, is everywhere. Players on the cusp of losing want it out of their sight.`\
 https://nytimes.com/athletic/5732358/2024/08/29/us-open-jumbo-tennis-ball/
