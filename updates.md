@@ -1,3 +1,11 @@
+**Nagelsmann names new-look Germany squad for Nations League**\
+`Germany head coach Julian Nagelsmann has named his first squad since the international retirements of Manuel Neuer, Thomas Muller, Ilkay Gundogan and Toni Kroos.`\
+https://nytimes.com/athletic/5730970/2024/08/29/germany-squad-new-nations-league/
+
+**Kepa Arrizabalaga joins Bournemouth on loan from Chelsea**\
+`Bournemouth have confirmed the signing of Kepa Arrizabalaga on a season-long loan from Chelsea.`\
+https://nytimes.com/athletic/5728785/2024/08/29/kepa-arrizabalaga-bournemouth-chelsea-loan/
+
 **Madrid players will 'leave the pitch' over racist abuse - Vinicius**\
 `Real Madrid&#8217;s Vinicius Junior has said he and his team-mates will walk off the pitch if they suffer racist abuse.`\
 https://nytimes.com/athletic/5730923/2024/08/29/vinicius-racism-real-madrid/

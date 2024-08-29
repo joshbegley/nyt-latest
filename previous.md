@@ -1,3 +1,11 @@
+**Nagelsmann names new-look Germany squad for Nations League**\
+`Germany head coach Julian Nagelsmann has named his first squad since the international retirements of Manuel Neuer, Thomas Muller, Ilkay Gundogan and Toni Kroos.`\
+https://nytimes.com/athletic/5730970/2024/08/29/germany-squad-new-nations-league/
+
+**Kepa Arrizabalaga joins Bournemouth on loan from Chelsea**\
+`Bournemouth have confirmed the signing of Kepa Arrizabalaga on a season-long loan from Chelsea.`\
+https://nytimes.com/athletic/5728785/2024/08/29/kepa-arrizabalaga-bournemouth-chelsea-loan/
+
 **Madrid players will 'leave the pitch' over racist abuse - Vinicius**\
 `Real Madrid&#8217;s Vinicius Junior has said he and his team-mates will walk off the pitch if they suffer racist abuse.`\
 https://nytimes.com/athletic/5730923/2024/08/29/vinicius-racism-real-madrid/
@@ -26,12 +34,4 @@ https://nytimes.com/2024/08/29/style/alexa-chung-madewell.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/08/29/crosswords/spelling-bee-forum.html
-
-**Eric Adams Calls Himself ‘Dinkins 2.’ Can It Get Him Re-Elected?**\
-`Mayor Adams is hoping to persuade his base of Black middle-class and older voters that his re-election bid is being undermined just as David Dinkins’s was in 1993.`\
-https://nytimes.com/2024/08/29/nyregion/mayor-adams-dinkins.html
-
-**Corrections: Aug. 29, 2024**\
-`Corrections that appeared in print on Thursday, Aug. 29, 2024.`\
-https://nytimes.com/2024/08/29/pageoneplus/corrections-aug-29-2024.html
 
