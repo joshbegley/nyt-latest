@@ -1,3 +1,7 @@
+**FPL: How to take advantage of the biggest upcoming fixture swings**\
+`It sounds simple, but signing players with the easiest fixture runs ahead works - these are the teams and individuals to target`\
+https://nytimes.com/athletic/5727215/2024/08/29/fantasy-premier-league-fixture-swings/
+
 **At Missouri Hearing, Lawyers Spar Over Fate of Prisoner on Death Row**\
 `The case of Marcellus Williams, 55, who has maintained his innocence in a 1998 killing, has pitted a local prosecutor against the state’s attorney general.`\
 https://nytimes.com/2024/08/29/us/marcellus-williams-death-penalty-hearing.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5724054/2024/08/29/selhurst-park-crystal-palace-100
 **Paris Paralympics 2024: How the classification system works**\
 `The system of classification is intended to guarantee fair competition and uphold the integrity of the Games. But how does it all work?`\
 https://nytimes.com/athletic/5729340/2024/08/29/paralympic-games-classification-guide/
-
-**Transfer deadline day signings who had important tactical impacts on their clubs**\
-`From Rooney to Palmer, we look at late transfers in a window that went on to change the way their new club played`\
-https://nytimes.com/athletic/5726161/2024/08/29/deadline-day-transfers-tactical-impact/
 
