@@ -1,3 +1,7 @@
+**'Nole against the world': The fan who stole the show as Djokovic toiled through in New York**\
+`Zoran Pavlovic was dressed in a white t-shirt Wednesday night, the figure of Novak Djokovic emblazoned across the chest.`\
+https://nytimes.com/athletic/5730825/2024/08/29/novak-djokovic-us-open-super-fan/
+
 **The High Price of Safety in El Salvador**\
 `Under President Nayib Bukele, Salvadorans have swapped their rights for quiet streets. How long can that tradeoff be maintained?`\
 https://nytimes.com/2024/08/29/opinion/el-salvador-safety-bukele.html
