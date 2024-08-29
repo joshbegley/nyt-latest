@@ -1,4 +1,4 @@
-**Arsenal exploring move for Bournemouth goalkeeper Neto**\
+**Arsenal exploring move for Bournemouth goalkeeper Neto as Garcia talks hit impasse**\
 `Arsenal are exploring a move for Bournemouth goalkeeper Neto after hitting an impasse in talks over Espanyol&#8217;s Joan Garcia.`\
 https://nytimes.com/athletic/5732552/2024/08/29/arsenal-neto-bournemouth-transfer/
 
