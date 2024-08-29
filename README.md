@@ -1,3 +1,7 @@
+**The Windup: Even Ohtani's dog is crushing it**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5731782/2024/08/29/ohtani-dog-decoy-bobblehead-the-windup/
+
 **Mount was trying to reboot at Manchester United - what happens now?**\
 `MIdfielder has shown a renewed energy and purpose before his injury at Brighton, although long-term questions remain`\
 https://nytimes.com/athletic/5728437/2024/08/29/mason-mount-manchester-united-injury/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/29/nyregion/mannion-williams-investigation.html
 **Ask me anything: Leave a question for James Mirtle's next article**\
 `With rookie camps starting soon, we're taking questions that could be part of a future column or mailbag.`\
 https://nytimes.com/athletic/5731659/2024/08/29/maple-leafs-nhl-questions/
-
-**‘The Rings of Power’ Season 2, Episode 3: Forging Ahead**\
-`Arondir is back, along with some other major characters not yet seen this season. And this installment asks: Is Mordor maybe an OK place to live?`\
-https://nytimes.com/2024/08/29/arts/television/the-rings-of-power-season-2-episode-3-recap.html
 
