@@ -1,3 +1,11 @@
+**30-Year Mortgage Rate Falls Again, Now at 6.35%**\
+`Further declines could encourage more activity from buyers and sellers.`\
+https://nytimes.com/2024/08/29/business/mortgage-rates.html
+
+**Buckley: Jerod Mayo makes Jacoby Brissett the Patriots' starter, but it’s still complicated**\
+`If it was truly a QB competition between Brissett and Drake Maye, the rookie should probably be starting. This was something else at play.`\
+https://nytimes.com/athletic/5731830/2024/08/29/patriots-jerod-mayo-jacoby-brissett-drake-maye/
+
 **Trump Should Be Scared — Very Scared — of Debating Kamala Harris**\
 `If she keeps her cool, he’ll surely lose his.`\
 https://nytimes.com/2024/08/29/opinion/trump-kamala-harris-debate.html
