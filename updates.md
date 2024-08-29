@@ -1,3 +1,11 @@
+**F1 Italian GP track breakdown: How drivers brave Monza, the 'Temple of Speed'**\
+`Also known as 'la Pista Magica', Monza is the fastest track on the F1 calendar — driver's spend 80% of each lap on full throttle. `\
+https://nytimes.com/athletic/5729745/2024/08/29/monza-italian-gp-f1/
+
+**World Food Program Halts Gaza Aid Deliveries After Workers Are Attacked**\
+`The U.N. agency said that none of its employees were harmed in the shooting, which occurred Tuesday night near an Israeli military checkpoint.`\
+https://nytimes.com/2024/08/29/world/middleeast/un-world-food-program-gaza.html
+
 **Chelsea's Petrovic to join BlueCo-owned Strasbourg on loan**\
 `Chelsea goalkeeper Djordje Petrovic will join Strasbourg on a season-long loan deal subject to a medical.`\
 https://nytimes.com/athletic/5731013/2024/08/29/djordje-petrovic-strasbourg-loan-chelsea-transfers/

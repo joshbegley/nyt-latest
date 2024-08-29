@@ -1,3 +1,11 @@
+**F1 Italian GP track breakdown: How drivers brave Monza, the 'Temple of Speed'**\
+`Also known as 'la Pista Magica', Monza is the fastest track on the F1 calendar — driver's spend 80% of each lap on full throttle. `\
+https://nytimes.com/athletic/5729745/2024/08/29/monza-italian-gp-f1/
+
+**World Food Program Halts Gaza Aid Deliveries After Workers Are Attacked**\
+`The U.N. agency said that none of its employees were harmed in the shooting, which occurred Tuesday night near an Israeli military checkpoint.`\
+https://nytimes.com/2024/08/29/world/middleeast/un-world-food-program-gaza.html
+
 **Chelsea's Petrovic to join BlueCo-owned Strasbourg on loan**\
 `Chelsea goalkeeper Djordje Petrovic will join Strasbourg on a season-long loan deal subject to a medical.`\
 https://nytimes.com/athletic/5731013/2024/08/29/djordje-petrovic-strasbourg-loan-chelsea-transfers/
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/29/podcasts/the-daily/tipping-trump-harris.html
 **Israel Steps Up West Bank Raids, and Trump’s Arlington Incident**\
 `Plus, the Paralympics begin in Paris.`\
 https://nytimes.com/2024/08/29/podcasts/israel-west-bank-trump-arlington.html
-
-**As Rangers broadcaster Sam Rosen approaches retirement, his energy has 'never, ever waned'**\
-`Each game matters to Rosen, and his approach has helped the games matter to fans, too.`\
-https://nytimes.com/athletic/5729019/2024/08/29/ny-rangers-sam-rosen-retirement/
-
-**Top 5 Yankees stories of the week: Catch up on the most-read NY headlines**\
-`Catch up on the past week by checking out the most popular Yankees and MLB stories.`\
-https://nytimes.com/athletic/5729316/2024/08/29/new-york-yankees-headlines-standings-stats/
 
