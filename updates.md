@@ -1,3 +1,11 @@
+**As 49ers' roster comes into focus, so do the weak spots for the upcoming season**\
+`The 49ers had two healthy running backs at Wednesday's practice, although two more are expected to be back on the field next week.`\
+https://nytimes.com/athletic/5730396/2024/08/28/49ers-roster-weak-spots/
+
+**Trump Videos at Arlington Stir More Fallout After Gravesite Visit**\
+`A family of a Green Beret buried there expressed concern about videos and photos taken by his grave. And a cemetery employee declined to press charges after an altercation with the Trump team, fearing retribution.`\
+https://nytimes.com/2024/08/28/us/politics/trump-arlington-cemetery.html
+
 **What we learned from Brandon Beane after he set the 2024 roster**\
 `The Bills are remaining steady on Tyler Bass and Matt Milano.`\
 https://nytimes.com/athletic/5730274/2024/08/28/buffalo-bills-gm-beane-2024-roster/
