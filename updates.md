@@ -1,3 +1,7 @@
+**Elena Rybakina withdraws from U.S. Open**\
+`This is the seventh time that the Kazakh world No. 4 has withdrawn from a tournament — or retired from a match — in 2024.`\
+https://nytimes.com/athletic/5732608/2024/08/29/elena-rybakina-withdrawal-us-open/
+
 **‘Climate-Friendly’ Meat? Regulators Tighten Scrutiny of Label Buzzwords.**\
 `The new guidelines from the Agriculture Department encourage third-party assessments of environment-related claims, which have come under fire.`\
 https://nytimes.com/2024/08/29/climate/usda-meat-chicken-climate-labels.html
