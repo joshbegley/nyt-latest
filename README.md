@@ -1,3 +1,11 @@
+**Hickey suffers injury setback after undergoing hamstring surgery**\
+`Brentford full-back Aaron Hickey will miss the majority of the 2024-25 season after undergoing hamstring surgery.`\
+https://nytimes.com/athletic/5731497/2024/08/29/aaron-hickey-injury-brentford/
+
+**Telluride Film Festival Embraces a Political and Topical Lineup**\
+`The films partly reflect the business realities of Hollywood, which is still grappling with the aftereffects of the writers’ and actors’ strikes last year.`\
+https://nytimes.com/2024/08/29/business/media/telluride-film-festival-political.html
+
 **Spicy Grilled Shrimp, Grilled Corn With Honeyed Goat Cheese and Peach Upside-Down Cake**\
 `Who says summer is ending?`\
 https://nytimes.com/2024/08/29/dining/spicy-grilled-shrimp-grilled-corn-with-honeyed-goat-cheese-and-peach-upside-down-cake.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5731618/2024/08/29/tino-anjorin-chelsea-empoli-tran
 **Lukaku completes permanent Napoli transfer from Chelsea**\
 `Romelu Lukaku has joined Napoli from Chelsea in a permanent transfer.`\
 https://nytimes.com/athletic/5726066/2024/08/29/chelsea-romelu-lukaku-napoli-transfer/
-
-**Scoop City: The toughest QBs to rank**\
-`Scoop City is The Athletic&#8217;s daily NFL newsletter.`\
-https://nytimes.com/athletic/5731616/2024/08/29/nfl-quarterback-rankings-scoop-city/
-
-**Browns restructure Watson's contract, release Huntley**\
-`Cleveland created about $35 million in 2024 salary-cap space and increased future cap commitments on Watson's five-year deal.`\
-https://nytimes.com/athletic/5731495/2024/08/29/deshaun-watson-contract-browns-tyler-huntley/
 
