@@ -1,3 +1,11 @@
+**How Dana Bash Handled Past Interviews With Kamala Harris**\
+`The CNN anchor has been a firm-but-fair interlocutor in three previous interviews with Ms. Harris in the past few years.`\
+https://nytimes.com/2024/08/29/business/media/cnn-dana-bash-harris-interview.html
+
+**49ers, Brandon Aiyuk agree to 4-year extension**\
+`The extension ends a difficult contract stalemate that included Aiyuk conducting a "hold-in" at training camp.`\
+https://nytimes.com/athletic/5656049/2024/08/29/brandon-aiyuk-contract-extension-san-francisco-49ers/
+
 **Trump ‘tasked his E.P.A. with addressing dangerous chemicals like PFAS to ensure safe firefighter gear.’**\
 `By Lisa Friedman`\
 https://nytimes.com/live/2024/08/29/us/harris-trump-election/trump-tasked-his-epa-with-addressing-dangerous-chemicals-like-pfas-to-ensure-safe-firefighter-gear
