@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5732420/2024/08/29/sec-player-availability-reports-
 https://nytimes.com/2024/08/29/insider/a-father-found-his-son-but-a-happy-ending-remains-elusive.html
 
 **Brighton submit offer for Nordsjaelland striker Harder**\
-`<p>Brighton &amp; Hove Albion have submitted a €20million offer to Nordsjaelland for striker Conrad Harder.`\
+`Brighton &amp; Hove Albion have submitted a €20million offer to Nordsjaelland for striker Conrad Harder.`\
 https://nytimes.com/athletic/5732443/2024/08/29/conrad-harder-brighton-transfer/
 
 **Apple and Nvidia in Talks to Invest in OpenAI**\
