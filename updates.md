@@ -1,3 +1,11 @@
+**Spicy Grilled Shrimp, Grilled Corn With Honeyed Goat Cheese and Peach Upside-Down Cake**\
+`Who says summer is ending?`\
+https://nytimes.com/2024/08/29/dining/spicy-grilled-shrimp-grilled-corn-with-honeyed-goat-cheese-and-peach-upside-down-cake.html
+
+**Mount out for 4-5 weeks with hamstring injury**\
+`Manchester United midfielder Mason Mount is set to be sidelined for four to five weeks with a hamstring injury.`\
+https://nytimes.com/athletic/5731561/2024/08/29/mason-mount-injury-man-united/
+
 **Democratic House Candidate Cleared in New York Harassment Inquiry**\
 `The findings may help the candidate, State Senator John Mannion, in his bid to unseat Representative Brandon Williams in a tossup race.`\
 https://nytimes.com/2024/08/29/nyregion/mannion-williams-investigation.html

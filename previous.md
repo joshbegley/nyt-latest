@@ -1,3 +1,11 @@
+**Spicy Grilled Shrimp, Grilled Corn With Honeyed Goat Cheese and Peach Upside-Down Cake**\
+`Who says summer is ending?`\
+https://nytimes.com/2024/08/29/dining/spicy-grilled-shrimp-grilled-corn-with-honeyed-goat-cheese-and-peach-upside-down-cake.html
+
+**Mount out for 4-5 weeks with hamstring injury**\
+`Manchester United midfielder Mason Mount is set to be sidelined for four to five weeks with a hamstring injury.`\
+https://nytimes.com/athletic/5731561/2024/08/29/mason-mount-injury-man-united/
+
 **Democratic House Candidate Cleared in New York Harassment Inquiry**\
 `The findings may help the candidate, State Senator John Mannion, in his bid to unseat Representative Brandon Williams in a tossup race.`\
 https://nytimes.com/2024/08/29/nyregion/mannion-williams-investigation.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5731616/2024/08/29/nfl-quarterback-rankings-scoop-c
 **Browns restructure Watson's contract, release Huntley**\
 `Cleveland created about $35 million in 2024 salary-cap space and increased future cap commitments on Watson's five-year deal.`\
 https://nytimes.com/athletic/5731495/2024/08/29/deshaun-watson-contract-browns-tyler-huntley/
-
-**At Arlington, Trump Returns to the Politics of the ‘Forever Wars’**\
-`The 2024 presidential race is the first in 24 years without a major American ground war, but Donald J. Trump continues to stoke division over the post-9/11 conflicts that helped give rise to his movement.`\
-https://nytimes.com/2024/08/29/us/politics/trump-arlington.html
-
-**Son of Spanish Actor Is Convicted of Murdering Colombian Surgeon in Thailand**\
-`Daniel Sancho Bronchalo was sentenced to life imprisonment after a court in Koh Samui ruled that he was guilty of murdering Edwin Arrieta Arteaga last year.`\
-https://nytimes.com/2024/08/29/world/asia/thailand-daniel-sancho-bronchalo-murder.html
 
