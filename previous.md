@@ -1,3 +1,11 @@
+**Donors Quietly Push Harris to Drop Tax on Ultrawealthy**\
+`Vice President Kamala Harris’s fund-raising has benefited from a surge of interest from Silicon Valley and Wall Street.`\
+https://nytimes.com/2024/08/29/us/politics/donors-harris-tax-ultrawealthy.html
+
+**What is Palestinian Islamic Jihad?**\
+`By Eve Sampson`\
+https://nytimes.com/live/2024/08/29/world/israel-hamas-gaza-war/what-is-palestinian-islamic-jihad
+
 **Greek Port City Inundated With Over 100 Tons of Dead Fish**\
 `The authorities in central Greece have dredged more than 100 tons of dead fish from the waters around the port of Volos, a scenic summer destination.`\
 https://nytimes.com/video/world/europe/100000009664498/greece-fish-volos-tourism.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5732476/2024/08/29/vikings-lewis-cine-kwesi-adofo-m
 **Elena Rybakina withdraws from U.S. Open**\
 `This is the seventh time that the Kazakh world No. 4 has withdrawn from a tournament — or retired from a match — in 2024.`\
 https://nytimes.com/athletic/5732608/2024/08/29/elena-rybakina-withdrawal-us-open/
-
-**‘Climate-Friendly’ Meat? Regulators Tighten Scrutiny of Label Buzzwords.**\
-`The new guidelines from the Agriculture Department encourage third-party assessments of environment-related claims, which have come under fire.`\
-https://nytimes.com/2024/08/29/climate/usda-meat-chicken-climate-labels.html
-
-**Author of ‘White Fragility’ Faces Accusations of Plagiarism**\
-`An anonymous complaint filed with the University of Washington raises questions about attribution in Robin DiAngelo’s Ph.D. thesis, which was published 20 years ago.`\
-https://nytimes.com/2024/08/29/books/robin-diangelo-white-fragility-accusation-plagiarism.html
 

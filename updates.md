@@ -1,3 +1,11 @@
+**Donors Quietly Push Harris to Drop Tax on Ultrawealthy**\
+`Vice President Kamala Harris’s fund-raising has benefited from a surge of interest from Silicon Valley and Wall Street.`\
+https://nytimes.com/2024/08/29/us/politics/donors-harris-tax-ultrawealthy.html
+
+**What is Palestinian Islamic Jihad?**\
+`By Eve Sampson`\
+https://nytimes.com/live/2024/08/29/world/israel-hamas-gaza-war/what-is-palestinian-islamic-jihad
+
 **Greek Port City Inundated With Over 100 Tons of Dead Fish**\
 `The authorities in central Greece have dredged more than 100 tons of dead fish from the waters around the port of Volos, a scenic summer destination.`\
 https://nytimes.com/video/world/europe/100000009664498/greece-fish-volos-tourism.html
