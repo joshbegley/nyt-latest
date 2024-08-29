@@ -1,3 +1,11 @@
+**Senators rank No. 5 in NHL Pipeline Rankings for 2024**\
+`Ottawa's system is propped up by three true building-block types of talents who have star potential at premium positions.`\
+https://nytimes.com/athletic/5631754/2024/08/29/ottawa-senators-nhl-prospect-pipeline-rankings-2024/
+
+**Push for Gender Equality in E.U.’s Top Roles Looks Set to Fall Short**\
+`Ursula von der Leyen, the European Commission president, asked member countries to nominate both men and women for commission roles.`\
+https://nytimes.com/2024/08/29/world/europe/eu-commission-gender-women.html
+
 **Pats choose vet QB Brissett over rookie Maye for Week 1**\
 `FOXBORO, Mass.`\
 https://nytimes.com/athletic/5728869/2024/08/29/jacoby-brissett-patriots-starting-qb-drake-maye/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5731128/2024/08/29/danilo-injury-forest/
 **Here’s the latest on the presidential race.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/08/29/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Election Live Updates: Barnstorming Georgia, Harris and Walz Will Sit for CNN Interview**\
-`Donald Trump has a busy day ahead as well, ending with a town hall in Wisconsin.`\
-https://nytimes.com/live/2024/08/29/us/harris-trump-election
-
-**My reaction to the Blues coming in 16th in Corey Pronman's 2024 NHL prospect pipeline rankings**\
-`The Athletic's prospects expert has the Blues at No. 16 overall and wasn't as glowing about prospect Dalibor Dvorsky as some have been.`\
-https://nytimes.com/athletic/5729222/2024/08/29/st-louis-blues-prospect-rankings-nhl/
 

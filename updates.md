@@ -1,3 +1,11 @@
+**Senators rank No. 5 in NHL Pipeline Rankings for 2024**\
+`Ottawa's system is propped up by three true building-block types of talents who have star potential at premium positions.`\
+https://nytimes.com/athletic/5631754/2024/08/29/ottawa-senators-nhl-prospect-pipeline-rankings-2024/
+
+**Push for Gender Equality in E.U.’s Top Roles Looks Set to Fall Short**\
+`Ursula von der Leyen, the European Commission president, asked member countries to nominate both men and women for commission roles.`\
+https://nytimes.com/2024/08/29/world/europe/eu-commission-gender-women.html
+
 **Pats choose vet QB Brissett over rookie Maye for Week 1**\
 `FOXBORO, Mass.`\
 https://nytimes.com/athletic/5728869/2024/08/29/jacoby-brissett-patriots-starting-qb-drake-maye/
