@@ -1,4 +1,8 @@
 **'We've got an uphill battle': Mets blow another late lead in a key game**\
+`Wednesday was the second "worst loss of the season" the Mets have endured in the last four days.`\
+https://nytimes.com/athletic/5730886/2024/08/29/mets-blow-late-lead-diamondbacks/
+
+**'We've got an uphill battle': Mets blow another late lead in a key game**\
 `It was the second “worst loss of the season” the Mets have endured in the last four days.`\
 https://nytimes.com/athletic/5730886/2024/08/29/mets-blow-late-lead-diamondbacks/
 
