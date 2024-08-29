@@ -1,3 +1,7 @@
+**Why is Bears GM Ryan Poles excited? 'The group of guys, it's really special'**\
+`We heard from the Bears' GM after he set the initial 53-man roster. He talked Caleb Williams, the offensive line, Matt Eberflus and more.`\
+https://nytimes.com/athletic/5730180/2024/08/29/bears-preseason-excitement-ryan-poles/
+
 **Salah 'not thinking' about future amid Liverpool contract uncertainty**\
 `Mohamed Salah insists he is relaxed about his contract situation at Liverpool.`\
 https://nytimes.com/athletic/5731014/2024/08/29/mohamed-salah-liverpool-contract-expires/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5729376/2024/08/29/ryan-day-ohio-state-football-coa
 **Joy Can Do More Than Beat Trump**\
 `It can push MAGA back to the periphery of American life.`\
 https://nytimes.com/2024/08/29/opinion/trump-harris-joy-maga-2024.html
-
-**In Brooklyn, Two First-Time Buyers Weigh Classic Charm vs. Industrial Chic**\
-`Searching in Clinton Hill and Bedford-Stuyvesant, a young couple endeavored to find a sunny place with a decent kitchen and not too many stairs.`\
-https://nytimes.com/interactive/2024/08/29/realestate/brooklyn-home-buy.html
 
