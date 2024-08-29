@@ -1,3 +1,7 @@
+**Leeds agree deal in principle to sign Japan international Tanaka**\
+`Leeds United have agreed a deal in principle to sign Japan international Ao Tanaka.`\
+https://nytimes.com/athletic/5730960/2024/08/29/ao-tanaka-leeds-transfers/
+
 **The Times earlier interviewed Muhammad Jaber, the militant leader just killed by Israel.**\
 `By Steven Erlanger`\
 https://nytimes.com/live/2024/08/29/world/israel-hamas-gaza-war/the-times-interviewed-muhammad-jaber-the-militant-leader-who-was-just-killed-by-israeli-forces
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5730788/2024/08/29/college-football-tv-guide-channe
 **Can Ole Miss be trusted to meet College Football Playoff expectations?**\
 `Is Ole Miss ready to compete for a Playoff spot? It looks like the Rebels are improved up front, and that may be the key to the CFP.`\
 https://nytimes.com/athletic/5720081/2024/08/29/ole-miss-college-football-playoff-preview-predictions/
-
-**Ranking NFL schedules by opposing QBs: Patriots, Raiders face the toughest roads**\
-`For the second year in a row, the Patriots face a stacked slate of quarterbacks, as AFC teams have eight of the nine hardest schedules.`\
-https://nytimes.com/athletic/5726864/2024/08/29/nfl-2024-qb-strength-of-schedule-rankings/
 
