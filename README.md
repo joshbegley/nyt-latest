@@ -1,3 +1,11 @@
+**Mount was trying to reboot at Manchester United - what happens now?**\
+`MIdfielder has shown a renewed energy and purpose before his injury at Brighton, although long-term questions remain`\
+https://nytimes.com/athletic/5728437/2024/08/29/mason-mount-manchester-united-injury/
+
+**A ‘Life Review’ Can Be Powerful, at Any Age**\
+`Reflecting on the past, through writing or conversation, can help us better appreciate where we are — and where we’re going.`\
+https://nytimes.com/2024/08/29/well/mind/life-review-therapy.html
+
 **Hickey suffers injury setback after undergoing hamstring surgery**\
 `Brentford full-back Aaron Hickey will miss the majority of the 2024-25 season after undergoing hamstring surgery.`\
 https://nytimes.com/athletic/5731497/2024/08/29/aaron-hickey-injury-brentford/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5731659/2024/08/29/maple-leafs-nhl-questions/
 **‘The Rings of Power’ Season 2, Episode 3: Forging Ahead**\
 `Arondir is back, along with some other major characters not yet seen this season. And this installment asks: Is Mordor maybe an OK place to live?`\
 https://nytimes.com/2024/08/29/arts/television/the-rings-of-power-season-2-episode-3-recap.html
-
-**Tino Anjorin completes Empoli transfer from Chelsea**\
-`Tino Anjorin has completed a permanent transfer to Empoli from Chelsea.`\
-https://nytimes.com/athletic/5731618/2024/08/29/tino-anjorin-chelsea-empoli-transfer/
-
-**Lukaku completes permanent Napoli transfer from Chelsea**\
-`Romelu Lukaku has joined Napoli from Chelsea in a permanent transfer.`\
-https://nytimes.com/athletic/5726066/2024/08/29/chelsea-romelu-lukaku-napoli-transfer/
 
