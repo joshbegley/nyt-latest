@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5726066/2024/08/29/chelsea-romelu-lukaku-napoli-tra
 https://nytimes.com/athletic/5731616/2024/08/29/nfl-quarterback-rankings-scoop-city/
 
 **Browns restructure Watson's contract, release Huntley**\
-`Cleveland created about $35 million in 2024 salary-cap space and increased future cap commitments on his five-year deal.`\
+`Cleveland created about $35 million in 2024 salary-cap space and increased future cap commitments on Watson's five-year deal.`\
 https://nytimes.com/athletic/5731495/2024/08/29/deshaun-watson-contract-browns-tyler-huntley/
 
 **At Arlington, Trump Returns to the Politics of the ‘Forever Wars’**\
