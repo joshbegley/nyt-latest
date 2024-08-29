@@ -1,3 +1,7 @@
+**Lee Pearson, Paralympic great, suspended by British Equestrian**\
+`Lee Pearson, one of Great Britain’s most successful Paralympians, has been suspended by British Equestrian amid an ongoing investigation into his conduct.`\
+https://nytimes.com/athletic/5731205/2024/08/29/lee-pearson-paralympics-equestrian-suspension/
+
 **England defender Trippier announces international retirement**\
 `England defender Kieran Trippier has announced his retirement from international football.`\
 https://nytimes.com/athletic/5731182/2024/08/29/kieran-trippier-retires-england/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5730407/2024/08/29/nebraska-football-matt-rhule-reb
 **Twins takeaways: Bullpen blunders, Max Kepler's struggles, Michael Tonkin's return**\
 `Kepler hasn't been able to repeat last year's strong second half, and trade and free-agent misfires have hurt the Twins' bullpen depth.`\
 https://nytimes.com/athletic/5728529/2024/08/29/minnesota-twins-bullpen-max-kepler-michael-tonkins/
-
-**The Athletic FC: Aaron Ramsdale and the Premier League's wild goalkeeper trade**\
-`Transfer deadline day latest, Nottingham Forest's extraordinary goalkeeper and the importance of stadium atmospheres`\
-https://nytimes.com/athletic/5731118/2024/08/29/aaron-ramsdale-and-the-premier-leagues-wild-goalkeeper-trade/
 
