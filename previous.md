@@ -1,3 +1,11 @@
+**The High Price of Safety in El Salvador**\
+`Under President Nayib Bukele, Salvadorans have swapped their rights for quiet streets. How long can that tradeoff be maintained?`\
+https://nytimes.com/2024/08/29/opinion/el-salvador-safety-bukele.html
+
+**The Specter of Nazism Is Haunting Germany**\
+`The focus on the far right’s traditional symbols has proved unsuccessful.`\
+https://nytimes.com/2024/08/29/opinion/germany-afd-elections.html
+
 **With small details and big pitches, Tigers just keep winning**\
 `The Tigers have won six in a row and 13 of 16, now only 4 1/2 games out of a wild-card spot. `\
 https://nytimes.com/athletic/5730821/2024/08/29/detroit-tigers-win-angels-pitching/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5728374/2024/08/29/mikel-merino-arsenal-basque/
 **Aaron Rodgers, Ezekiel Elliott among Renee Miller’s final 'My Guys' list for fantasy football 2024**\
 `Renee Miller's latest list of draft-day favorites for fantasy football includes a couple veterans, like Dallas running back Ezekiel Elliott.`\
 https://nytimes.com/athletic/5729661/2024/08/29/final-my-guys-renee-miller-fantasy-football-2024/
-
-**How style impacts atmosphere (and how atmosphere can prompt a change of style)**\
-`How style and atmosphere interact at English football matches`\
-https://nytimes.com/athletic/5726361/2024/08/29/style-effect-on-atmosphere-premier-league/
-
-**Selhurst Park at 100: Why one of England's least loved grounds really matters**\
-`Crystal Palace's home proves there is a place for gloriously chaotic — if ramshackle — stadiums in the modern Premier League`\
-https://nytimes.com/athletic/5724054/2024/08/29/selhurst-park-crystal-palace-100-years/
 

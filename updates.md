@@ -1,3 +1,11 @@
+**The High Price of Safety in El Salvador**\
+`Under President Nayib Bukele, Salvadorans have swapped their rights for quiet streets. How long can that tradeoff be maintained?`\
+https://nytimes.com/2024/08/29/opinion/el-salvador-safety-bukele.html
+
+**The Specter of Nazism Is Haunting Germany**\
+`The focus on the far right’s traditional symbols has proved unsuccessful.`\
+https://nytimes.com/2024/08/29/opinion/germany-afd-elections.html
+
 **With small details and big pitches, Tigers just keep winning**\
 `The Tigers have won six in a row and 13 of 16, now only 4 1/2 games out of a wild-card spot. `\
 https://nytimes.com/athletic/5730821/2024/08/29/detroit-tigers-win-angels-pitching/
