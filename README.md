@@ -22,7 +22,7 @@ https://nytimes.com/athletic/5732482/2024/08/29/broncos-bo-nix-owner-greg-penner
 `Why a mostly useless industry dominates corporate political spending.`\
 https://nytimes.com/2024/08/29/opinion/cryptocurrency-election.html
 
-**49ers, Brandon Aiyuk agree to multiyear contract extension: Source**\
+**49ers, Brandon Aiyuk agree to 4-year extension**\
 `The extension ends a difficult contract stalemate that included Aiyuk conducting a "hold-in" at training camp.`\
 https://nytimes.com/athletic/5656049/2024/08/29/brandon-aiyuk-contract-extension-san-francisco-49ers/
 
