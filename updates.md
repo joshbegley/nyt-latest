@@ -1,3 +1,7 @@
+**The Windup: Even Ohtani's dog is crushing it**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5731782/2024/08/29/ohtani-dog-decoy-bobblehead-the-windup/
+
 **Mount was trying to reboot at Manchester United - what happens now?**\
 `MIdfielder has shown a renewed energy and purpose before his injury at Brighton, although long-term questions remain`\
 https://nytimes.com/athletic/5728437/2024/08/29/mason-mount-manchester-united-injury/
