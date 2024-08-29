@@ -1,3 +1,8 @@
+**What to watch at U.S. Open on day 4: Alcaraz and Swiatek look to progress**\
+`Follow live coverage of day four at the 2024 US Open
+Day 4 of the U.`\
+https://nytimes.com/athletic/5729579/2024/08/29/what-to-watch-at-u-s-open-on-day-4-carlos-alcaraz-and-iga-swiatek-look-to-progress/
+
 **West Ham 1 Bournemouth 0: Potential outgoings? Soler arrival? How did new boys play?**\
 `West Ham beat Bournemouth 1-0 in the Carabao Cup on Wednesday — this is what that means`\
 https://nytimes.com/athletic/5729601/2024/08/29/west-ham-bournemouth-analysis-report/
