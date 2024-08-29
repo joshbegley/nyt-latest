@@ -1,3 +1,7 @@
+**Toll Reaches 17 Dead in Israel’s West Bank Raid, Including a Militant Commander**\
+`The operation is the largest Israeli military incursion in over a year into the West Bank, which has become a third front in a conflict also being fought in Gaza and along the border with Lebanon.`\
+https://nytimes.com/2024/08/29/world/middleeast/israel-west-bank-raid.html
+
 **Donors Quietly Push Harris to Drop Tax on Ultrawealthy**\
 `Vice President Kamala Harris’s fund-raising has benefited from a surge of interest from Silicon Valley and Wall Street.`\
 https://nytimes.com/2024/08/29/us/politics/donors-harris-tax-ultrawealthy.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/29/world/africa/namibia-drought-elephants-meat.html
 **In cutting Lewis Cine, GM Kwesi Adofo-Mensah reflects critically on Vikings' 2022 draft class**\
 `Adofo-Mensah and coach Kevin O'Connell discussed how things have changed in prospect evaluation since their initial draft in Minnesota.`\
 https://nytimes.com/athletic/5732476/2024/08/29/vikings-lewis-cine-kwesi-adofo-mensah-draft/
-
-**Elena Rybakina withdraws from U.S. Open**\
-`This is the seventh time that the Kazakh world No. 4 has withdrawn from a tournament — or retired from a match — in 2024.`\
-https://nytimes.com/athletic/5732608/2024/08/29/elena-rybakina-withdrawal-us-open/
 
