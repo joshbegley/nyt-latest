@@ -1,3 +1,5 @@
+**Hostages’ relatives protest at the Gaza border, and other news.**\
+
 **What NFL agents think of Aiyuk's contract negotiation tactics**\
 `NFL agents offered mixed responses when asked about one of the biggest preseason topics impacting the San Francisco 49ers.`\
 https://nytimes.com/athletic/5730213/2024/08/29/brandon-aiyuk-contract-negotiations-nfl-agents/
