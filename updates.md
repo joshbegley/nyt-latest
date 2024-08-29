@@ -1,3 +1,15 @@
+**Mets bullpen notes: Dedniel Núñez hits the injured list again**\
+`The Mets have some optimism that Núñez can make a swift recovery but the outlook is tougher for Sean Reid-Foley.`\
+https://nytimes.com/athletic/5732577/2024/08/29/mets-bullpen-dedniel-nunez/
+
+**Friday Briefing: A Defining Harris Interview**\
+`Plus, a picnic battle on Italy’s beaches.`\
+https://nytimes.com/2024/08/29/briefing/harris-interview-polio-vaccines-us-china.html
+
+**Honduras Says It Will End Extradition Treaty With United States**\
+`Honduran leaders, angered after remarks by the U.S. ambassador, said they would terminate the century-old extradition treaty, which was recently used to extradite a former president.`\
+https://nytimes.com/2024/08/29/world/americas/honduras-extradition-us.html
+
 **Arsenal exploring move for Bournemouth goalkeeper Neto as Garcia talks hit impasse**\
 `Arsenal are exploring a move for Bournemouth goalkeeper Neto after hitting an impasse in talks over Espanyol&#8217;s Joan Garcia.`\
 https://nytimes.com/athletic/5732552/2024/08/29/arsenal-neto-bournemouth-transfer/
