@@ -1,3 +1,7 @@
+**As Twins' free fall continues, Byron Buxton still needs to up intensity before rehab game**\
+`Buxton isn't yet ready for a rehab assignment, plus David Festa dueled an NL Cy Young Award contender in a mistake-filled loss.`\
+https://nytimes.com/athletic/5730754/2024/08/28/twins-byron-buxton-rehab-update/
+
 **Ohtani's dog Decoy steals Dodgers fans' hearts with first pitch**\
 `Decoy, the star of L.A.'s bobblehead night, ran the ceremonial first pitch to Ohtani.`\
 https://nytimes.com/athletic/5730721/2024/08/28/shohei-ohtani-dodgers-dog-bobblehead/
