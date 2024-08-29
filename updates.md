@@ -1,3 +1,7 @@
+**Greek Port City Inundated With Over 100 Tons of Dead Fish**\
+`The authorities in central Greece have dredged more than 100 tons of dead fish from the waters around the port of Volos, a scenic summer destination.`\
+https://nytimes.com/video/world/europe/100000009664498/greece-fish-volos-tourism.html
+
 **Pelosi’s Car Passed Near Pipe Bomb on Jan. 6, According to New Video**\
 `As the then-speaker was being evacuated from an overrun Capitol, her security detail drove her near a pipe bomb at the Democratic National Committee headquarters that had yet to be rendered fully safe.`\
 https://nytimes.com/2024/08/29/us/politics/pelosi-jan-6-pipe-bomb.html
