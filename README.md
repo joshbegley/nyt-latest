@@ -1,6 +1,6 @@
 **‘The Lord of the Rings: The Rings of Power’ Season 2, Episode 3: Forging Ahead**\
 `Arondir is back, along with some other major characters not yet seen this season. And this installment asks: Is Mordor maybe an OK place to live?`\
-https://nytimes.com/2024/08/29/arts/television/the-lord-of-the-rings-of-power-recap-episode-3.html
+https://nytimes.com/2024/08/29/arts/television/the-rings-of-power-season-2-episode-3-recap.html
 
 **Tino Anjorin completes Empoli transfer from Chelsea**\
 `Tino Anjorin has completed a permanent transfer to Empoli from Chelsea.`\
