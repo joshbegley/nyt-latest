@@ -1,3 +1,11 @@
+**Lukaku completes permanent Napoli transfer from Chelsea**\
+`Romelu Lukaku has joined Napoli from Chelsea in a permanent transfer.`\
+https://nytimes.com/athletic/5726066/2024/08/29/chelsea-romelu-lukaku-napoli-transfer/
+
+**Scoop City: The toughest QBs to rank**\
+`Scoop City is The Athletic&#8217;s daily NFL newsletter.`\
+https://nytimes.com/athletic/5731616/2024/08/29/nfl-quarterback-rankings-scoop-city/
+
 **Browns restructure Watson's contract, release Huntley**\
 `Cleveland created about $35 million in 2024 salary-cap space and increased future cap commitments on his five-year deal.`\
 https://nytimes.com/athletic/5731495/2024/08/29/deshaun-watson-contract-browns-tyler-huntley/
@@ -26,8 +34,3 @@ https://nytimes.com/athletic/5726022/2024/08/29/federico-chiesa-to-liverpool-tra
 `"They were wise in free agency and drafted a quarterback (Jayden Daniels) at two," one NFL agent said.`\
 https://nytimes.com/athletic/5730206/2024/08/29/commanders-nfl-leadership-offseason-rankings/
 
-**‘The Lord of The Rings: The Rings of Power’ Season 2, Episode 2: Strange Weather**\
-`The Stranger tries his hand again at magic but with mixed results. For now, Sauron does it better.`\
-https://nytimes.com/2024/08/29/arts/television/the-rings-of-power-season-2-episode-2-recap.html
-
-**Hostages’ relatives protest at the Gaza border, and other news.**\
