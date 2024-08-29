@@ -1,3 +1,11 @@
+**Meet the Interviewer: CNN’s Dana Bash**\
+`How Ms. Bash handles Thursday’s interview may play an outsize role in shaping voters’ perception of Kamala Harris.`\
+https://nytimes.com/2024/08/29/us/politics/cnn-dana-bash.html
+
+**Three Restaurants Where You Don’t Have to Shout**\
+`The trick is to avoid restaurants that are completely vibeless. It can be done.`\
+https://nytimes.com/2024/08/29/dining/three-restaurants-where-you-dont-have-to-shout.html
+
 **Honduras Says It Will End Extradition Treaty With United States**\
 `Honduran leaders were angered after the U.S. ambassador to the country criticized the defense minister and a top general. The extradition treaty, over a century old, has been used to extradite dozens of politicians, including a former president.`\
 https://nytimes.com/2024/08/29/world/americas/honduras-extradition-us.html
