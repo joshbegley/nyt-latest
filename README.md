@@ -1,3 +1,23 @@
+**Cardinals to put Tommy Pham on waivers: Sources**\
+`After days of contemplation, the St.`\
+https://nytimes.com/athletic/5732490/2024/08/29/cardinals-tommy-pham-waivers-2/
+
+**120 Years of New York’s Subterranean Literary Muse**\
+`The subway isn't just buried in the bedrock of New York City — it's embedded within its fiction, too. These archival photographs and literary quotes transport you through time.`\
+https://nytimes.com/interactive/2024/08/29/books/new-york-subways-history-literature.html
+
+**Meet the Interviewer: CNN’s Dana Bash**\
+`How Ms. Bash handles Thursday’s interview may play an outsize role in shaping voters’ perception of Ms. Harris.`\
+https://nytimes.com/live/2024/08/29/us/harris-trump-election/cnn-dana-bash
+
+**Three Restaurants Where You Don’t Have to Shout**\
+`The trick is to avoid restaurants that are completely vibeless. It can be done.`\
+https://nytimes.com/2024/08/29/dining/three-restaurants-where-you-dont-have-to-shout.html
+
+**Until Saturday: College football Week 1 viewing guide, plus title, Heisman picks**\
+`Welcome to Until Saturday, the five-star college football newsletter: Getting you ready for Week 1 of the college football season.`\
+https://nytimes.com/athletic/5730699/2024/08/29/college-football-week-1-until-saturday/
+
 **Officials Investigating After More Than 40 Horses Die From Contaminated Feed**\
 `Agriculture departments in Oklahoma and Kansas are investigating the deaths on the Beutler ranch, a legacy breeder of livestock that supplies the nation’s rodeos.`\
 https://nytimes.com/2024/08/29/us/horse-dead-ranch-oklahoma.html
@@ -13,24 +33,4 @@ https://nytimes.com/athletic/5732420/2024/08/29/sec-player-availability-reports-
 **A Father Found His Son, but a Happy Ending Remains Elusive**\
 `Shawn Hubler, who covers California for The Times, shares how she balances objectivity with empathy while reporting on homelessness.`\
 https://nytimes.com/2024/08/29/insider/a-father-found-his-son-but-a-happy-ending-remains-elusive.html
-
-**Brighton submit offer for Nordsjaelland striker Harder**\
-`Brighton &amp; Hove Albion have submitted a €20million offer to Nordsjaelland for striker Conrad Harder.`\
-https://nytimes.com/athletic/5732443/2024/08/29/conrad-harder-brighton-transfer/
-
-**Apple and Nvidia in Talks to Invest in OpenAI**\
-`Led by the investment firm Thrive Capital, the new deal would value the artificial intelligence start-up at over $100 billion.`\
-https://nytimes.com/2024/08/29/technology/apple-nvidia-openai.html
-
-**Telegram Founder’s Indictment Thrusts Encryption Into the Spotlight**\
-`The criminal charges against Pavel Durov, Telegram’s founder, raised concerns in Silicon Valley about encryption and the app’s approach to privacy and security.`\
-https://nytimes.com/2024/08/29/technology/telegram-encryption-pavel-durov.html
-
-**Separated From Co-Workers, Man Endures Freezing Night in the Rockies Before Rescue**\
-`Steve Stephanides of Florida stopped to take a break while his colleagues continued up a mountain trail, the authorities said. He got lost on his way back and was found the next day by rescue teams.`\
-https://nytimes.com/2024/08/29/us/colorado-hiker-found-corporate-retreat.html
-
-**United Nations to Begin Polio Vaccine Campaign in Gaza**\
-`The World Health Organization’s top representative in Gaza said Israel agreed to temporarily pause its military operations in designated areas during the hours vaccines would be administered to children.`\
-https://nytimes.com/video/world/middleeast/100000009664406/gaza-polio-vaccine-un.html
 
