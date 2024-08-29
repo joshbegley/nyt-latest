@@ -1,3 +1,7 @@
+**Leicester complete El Khannouss signing**\
+`Leicester City have completed the signing of Morocco attacking midfielder Bilal El Khannouss from Genk.`\
+https://nytimes.com/athletic/5732517/2024/08/29/bilal-el-khannouss-leicester-signing/
+
 **Cardinals to put Tommy Pham on waivers: Sources**\
 `After days of contemplation, the St.`\
 https://nytimes.com/athletic/5732490/2024/08/29/cardinals-tommy-pham-waivers-2/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/5732490/2024/08/29/cardinals-tommy-pham-waivers-2/
 `The subway isn't just buried in the bedrock of New York City — it's embedded within its fiction, too. These archival photographs and literary quotes transport you through time.`\
 https://nytimes.com/interactive/2024/08/29/books/new-york-subways-history-literature.html
 
-**Meet the Interviewer: CNN’s Dana Bash**\
+**Meet the interviewer: CNN’s Dana Bash.**\
 `How Ms. Bash handles Thursday’s interview may play an outsize role in shaping voters’ perception of Ms. Harris.`\
 https://nytimes.com/live/2024/08/29/us/harris-trump-election/cnn-dana-bash
 
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5732366/2024/08/29/james-mcatee-manchester-city-con
 **SEC adopts comprehensive system for player availability reports**\
 `The reporting system will include football, basketball and baseball. `\
 https://nytimes.com/athletic/5732420/2024/08/29/sec-player-availability-reports-football-basketball-baseball/
-
-**A Father Found His Son, but a Happy Ending Remains Elusive**\
-`Shawn Hubler, who covers California for The Times, shares how she balances objectivity with empathy while reporting on homelessness.`\
-https://nytimes.com/2024/08/29/insider/a-father-found-his-son-but-a-happy-ending-remains-elusive.html
 
