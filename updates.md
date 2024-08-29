@@ -1,3 +1,11 @@
+**To Beat Trump, Democrats Seek to Help Anti-Abortion Candidate**\
+`Randall Terry, a longtime leader in the anti-abortion movement, is running a third-party campaign for president.`\
+https://nytimes.com/2024/08/29/us/politics/trump-terry-anti-abortion.html
+
+**Harris Sat for Her First Major Interview as a Candidate**\
+`Also, Israel agreed to pauses in the war for polio vaccinations. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/08/29/briefing/harris-interview-cnn-walz-school-nurses-advice.html
+
 **Namibia, Facing Drought, Plans to Kill Elephants for Meat**\
 `The Southern African country plans to butcher over 700 wild animals, including 83 elephants and 300 zebras, to feed people and, it hopes, cut down on dangerous cross-species encounters.`\
 https://nytimes.com/2024/08/29/world/africa/namibia-drought-elephants-meat.html

@@ -1,3 +1,11 @@
+**To Beat Trump, Democrats Seek to Help Anti-Abortion Candidate**\
+`Randall Terry, a longtime leader in the anti-abortion movement, is running a third-party campaign for president.`\
+https://nytimes.com/2024/08/29/us/politics/trump-terry-anti-abortion.html
+
+**Harris Sat for Her First Major Interview as a Candidate**\
+`Also, Israel agreed to pauses in the war for polio vaccinations. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/08/29/briefing/harris-interview-cnn-walz-school-nurses-advice.html
+
 **Namibia, Facing Drought, Plans to Kill Elephants for Meat**\
 `The Southern African country plans to butcher over 700 wild animals, including 83 elephants and 300 zebras, to feed people and, it hopes, cut down on dangerous cross-species encounters.`\
 https://nytimes.com/2024/08/29/world/africa/namibia-drought-elephants-meat.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5732577/2024/08/29/mets-bullpen-dedniel-nunez/
 **Friday Briefing: A Defining Harris Interview**\
 `Plus, a picnic battle on Italy’s beaches.`\
 https://nytimes.com/2024/08/29/briefing/harris-interview-polio-vaccines-us-china.html
-
-**Arsenal exploring move for Bournemouth goalkeeper Neto as Garcia talks hit impasse**\
-`Arsenal are exploring a move for Bournemouth goalkeeper Neto after hitting an impasse in talks over Espanyol&#8217;s Joan Garcia.`\
-https://nytimes.com/athletic/5732552/2024/08/29/arsenal-neto-bournemouth-transfer/
-
-**Phillies move Taijuan Walker to bullpen for remainder of 2024**\
-`Rather than eat roughly $39 million to release Walker, the Phillies will move the underperforming starter to the bullpen for mop-up duty.`\
-https://nytimes.com/athletic/5724639/2024/08/29/taijuan-walker-phillies-bullpen/
 
