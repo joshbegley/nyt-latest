@@ -1,3 +1,7 @@
+**Dak Prescott carries all the leverage in negotiations with Cowboys — and he knows it**\
+`The Cowboys have won 12 regular-season games three years in a row, but they have gone 1-3 in the playoffs.`\
+https://nytimes.com/athletic/5732740/2024/08/29/dak-prescott-contract-negotiation-dallas-cowboys/
+
 **Padres takeaways: September, a decision to bunt and Manny Machado’s return to form**\
 `Elias Díaz seems poised to join the Padres when rosters expand, Juricskon Profar defends his instincts and Machado is heating up.`\
 https://nytimes.com/athletic/5732813/2024/08/29/padres-september-roster-jurickson-profar-manny-machado/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/29/us/politics/trump-terry-anti-abortion.html
 **Harris Sat for Her First Major Interview as a Candidate**\
 `Also, Israel agreed to pauses in the war for polio vaccinations. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/08/29/briefing/harris-interview-cnn-walz-school-nurses-advice.html
-
-**Namibia, Facing Drought, Plans to Kill Elephants for Meat**\
-`The Southern African country plans to butcher over 700 wild animals, including 83 elephants and 300 zebras, to feed people and, it hopes, cut down on dangerous cross-species encounters.`\
-https://nytimes.com/2024/08/29/world/africa/namibia-drought-elephants-meat.html
 
