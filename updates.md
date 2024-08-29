@@ -1,3 +1,11 @@
+**Dueling Ramones Heirs Fight Over the Punk Band’s Legacy**\
+`The brother of Joey Ramone and the widow of Johnny Ramone, who each control half of the band’s intellectual property rights, have filed lawsuits against each other.`\
+https://nytimes.com/2024/08/29/arts/music/ramones-heirs-fight.html
+
+**The Return of the Donahue Man**\
+`Much has been made of a new masculinity in this election cycle, but the biggest public transformation for men might be the role of the husband.`\
+https://nytimes.com/2024/08/29/style/doug-emhoff-tim-walz-masculinity.html
+
 **Talking Honestly About Feelings of Regret**\
 `Readers discuss a guest essay about feeling regret about having children. Also: Moved by Gus Walz; Trumpian masculinity; too many choices at Starbucks.`\
 https://nytimes.com/2024/08/29/opinion/letters/parenting-regret.html
