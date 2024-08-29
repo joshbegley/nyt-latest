@@ -1,3 +1,7 @@
+**Trump ‘tasked his E.P.A. with addressing dangerous chemicals like PFAS to ensure safe firefighter gear.’**\
+`By Lisa Friedman`\
+https://nytimes.com/live/2024/08/29/us/harris-trump-election/trump-tasked-his-epa-with-addressing-dangerous-chemicals-like-pfas-to-ensure-safe-firefighter-gear
+
 **China Dominates the Situation Room But Not the Campaign Trail**\
 `The thorny issues raised by America’s most potent geopolitical challenge are reduced to platitudes.`\
 https://nytimes.com/2024/08/29/us/politics/trump-harris-china-tiktok.html

@@ -1,3 +1,7 @@
+**Trump ‘tasked his E.P.A. with addressing dangerous chemicals like PFAS to ensure safe firefighter gear.’**\
+`By Lisa Friedman`\
+https://nytimes.com/live/2024/08/29/us/harris-trump-election/trump-tasked-his-epa-with-addressing-dangerous-chemicals-like-pfas-to-ensure-safe-firefighter-gear
+
 **China Dominates the Situation Room But Not the Campaign Trail**\
 `The thorny issues raised by America’s most potent geopolitical challenge are reduced to platitudes.`\
 https://nytimes.com/2024/08/29/us/politics/trump-harris-china-tiktok.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5732940/2024/08/29/browns-denzel-ward-retirement-co
 **How the U.S. Open jumbo tennis ball became a cute, yellow harbinger of doom**\
 `The oversized WIlson ball, used for autographs, is everywhere. Players on the cusp of losing want it out of their sight.`\
 https://nytimes.com/athletic/5732358/2024/08/29/us-open-jumbo-tennis-ball/
-
-**Talanoa Hufanga, Isaac Yiadom return to bolster 49ers' secondary**\
-`Charvarius Ward thinks the 49ers can field the NFL's best secondary. This week's returns to practice can help toward that goal. `\
-https://nytimes.com/athletic/5732547/2024/08/29/49ers-secondary-nfl-talanoa-hufanga/
 
