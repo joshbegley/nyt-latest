@@ -1,3 +1,11 @@
+**Alpine F1 French factory workers plan peaceful protest at Italian GP**\
+`Renault, Alpine's parent company, plans to end F1 engine production from 2026. `\
+https://nytimes.com/athletic/5732130/2024/08/29/alpine-f1-worker-protest-italian-gp/
+
+**Why Jurgen Klopp was at the Paralympics: 'This story has to be told. My friend is super special'**\
+`The former Liverpool manager was in Paris to support his friend and raise awareness for the Paralympics`\
+https://nytimes.com/athletic/5731843/2024/08/29/jurgen-klopp-badminton-wojtek-czyz-paralympics/
+
 **Northwestern hires Mark Jackson as athletic director**\
 `Jackson heads to Northwestern after leading Villanova’s athletics department since 2015.`\
 https://nytimes.com/athletic/5732113/2024/08/29/mark-jackson-northwestern-athletic-director/
@@ -18,19 +26,11 @@ https://nytimes.com/athletic/5731894/2024/08/29/champions-league-league-phase-dr
 `F1's most popular driver is experiencing the spotlight at Monza this weekend in a brand new way. `\
 https://nytimes.com/athletic/5731926/2024/08/29/f1-lewis-hamilton-italian-gp-ferrari/
 
-**Liverpool to face Real Madrid, Arsenal take on PSG in Champions League draw**\
+**Liverpool to face Real Madrid, Arsenal take on PSG in Champions League**\
 `Liverpool have been drawn against Real Madrid in the league phase of the 2024-25 Champions League, while Arsenal will play Paris Saint-Germain.`\
 https://nytimes.com/athletic/5731889/2024/08/29/champions-league-draw-liverpool-real-madrid/
 
 **NASCAR's 2025 Cup Series schedule changes, ranked from best to worst**\
 `From Mexico City to booting Homestead to March, here are our thoughts on the changes coming to the 2025 NASCAR Cup Series schedule.`\
 https://nytimes.com/athletic/5729398/2024/08/29/2025-nascar-cup-series-schedule-changes-ranked/
-
-**Curry, Warriors agree to 1-year extension**\
-`With the new extension, Curry now has $178 million left on his contract, according to data from Spotrac.`\
-https://nytimes.com/athletic/5732009/2024/08/29/steph-curry-warriors-contract-extension/
-
-**Why the Predators committed to Juuse Saros over top goaltending prospect Yaroslav Askarov**\
-`Saros and Predators general manager Barry Trotz take us inside the decision to sign a contract that carries the goalie through 2033.`\
-https://nytimes.com/athletic/5729417/2024/08/29/predators-juuse-saros-yaroslav-askarov/
 
