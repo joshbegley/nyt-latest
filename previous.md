@@ -1,37 +1,36 @@
-**Bruce Feldman's Week 1 college football picks against the spread**\
-`Week 1 offers a pretty loaded schedule, with several games featuring two preseason Top 25 teams squaring off.`\
-https://nytimes.com/athletic/5729786/2024/08/29/college-football-week-1-picks-spread-predictions/
+**How Does Mpox Spread, and Who Is Most at Risk?**\
+`Here’s what scientists have learned about the virus, which was recently declared a global health emergency.`\
+https://nytimes.com/2024/08/29/well/mpox-health-risks-vaccine.html
 
-**Death Toll in Israel’s West Bank Raids Rises to 17, Palestinian News Agency Says**\
-`Israel’s military said it killed five people in a gun battle in a mosque, as its operation in the West Bank entered a second day.`\
-https://nytimes.com/live/2024/08/29/world/israel-hamas-gaza-war
+**The Irresistible Urge to Change Your Location on a Dating App**\
+`Some apps let users check out the dating pool miles away from home. Should they?`\
+https://nytimes.com/2024/08/29/style/the-irresistible-urge-to-change-your-location-on-a-dating-app.html
 
-**Israel’s military says it killed 5 people in a gun battle in a West Bank mosque.**\
-`By Victoria Kim and Rawan Sheikh Ahmad`\
-https://nytimes.com/2024/08/29/world/middleeast/israels-military-says-it-killed-5-people-in-a-gun-battle-in-a-west-bank-mosque.html
+**Want a Manhattan Apartment? Try These European Countries Instead.**\
+`A study compared the median listing price for a 500-square-foot apartment in Manhattan with the prices of homes in France, Greece, Italy, Portugal and Spain.`\
+https://nytimes.com/2024/08/29/realestate/manhattan-apartment-prices-europe.html
 
-**Nagelsmann names new-look Germany squad for Nations League**\
-`Germany head coach Julian Nagelsmann has named his first squad since the international retirements of Manuel Neuer, Thomas Muller, Ilkay Gundogan and Toni Kroos.`\
-https://nytimes.com/athletic/5730970/2024/08/29/germany-squad-new-nations-league/
+**Help! United Canceled Our Trip to Paris. Or Did It?**\
+`A long-planned French getaway for three hit a snag when their airline reservation was mysteriously canceled, costing them almost $11,000. It turned out an unwanted travel agency was (partially) responsible.`\
+https://nytimes.com/2024/08/29/travel/airline-travel-agency-fraud.html
 
-**Kepa Arrizabalaga joins Bournemouth on loan from Chelsea**\
-`Bournemouth have confirmed the signing of Kepa Arrizabalaga on a season-long loan from Chelsea.`\
-https://nytimes.com/athletic/5728785/2024/08/29/kepa-arrizabalaga-bournemouth-chelsea-loan/
+**Movie Trailers Have Gotten Worse. Why Aren’t Studios Having Fun With Them?**\
+`Promos give away too much or too little or are misleading or don’t leave anything out. We could go on. But there are ways to fix them.`\
+https://nytimes.com/2024/08/29/movies/movie-trailers-wicked-trap-alien.html
 
-**Madrid players will 'leave the pitch' over racist abuse - Vinicius**\
-`Real Madrid&#8217;s Vinicius Junior has said he and his team-mates will walk off the pitch if they suffer racist abuse.`\
-https://nytimes.com/athletic/5730923/2024/08/29/vinicius-racism-real-madrid/
+**‘The Falling Star’ Review: A Dark Story in Meticulous Wrapping**\
+`A series of mishaps befall an activist-turned-bartender in a visually rich but shallow Belgian film.`\
+https://nytimes.com/2024/08/29/movies/the-falling-star-review.html
 
-**What to watch at U.S. Open on day 4: Alcaraz and Swiatek look to progress**\
-`Follow live coverage of day four at the 2024 US Open
-Day 4 of the U.`\
-https://nytimes.com/athletic/5729579/2024/08/29/what-to-watch-at-u-s-open-on-day-4-carlos-alcaraz-and-iga-swiatek-look-to-progress/
+**Waiting, and Waiting, and More Waiting for a Lover to Leave His Wife**\
+`The Norwegian author Vigdis Hjorth’s latest novel to be translated into English, “If Only,” follows a decade-long affair between two married writers.`\
+https://nytimes.com/2024/08/29/books/review/if-only-vigdis-hjorth.html
 
-**West Ham 1 Bournemouth 0: Potential outgoings? Soler arrival? How did new boys play?**\
-`West Ham beat Bournemouth 1-0 in the Carabao Cup on Wednesday — this is what that means`\
-https://nytimes.com/athletic/5729601/2024/08/29/west-ham-bournemouth-analysis-report/
+**For a Great Museum Road Trip, Get In an Empire State of Mind**\
+`Who needs Brooklyn? From Ithaca to Buffalo, the art is overflowing in upstate New York.`\
+https://nytimes.com/2024/08/29/arts/design/upstate-museums-herbert-johnson-corning-eastman-buffalo-akg.html
 
-**Marcos Alonso joins Celta Vigo after Barcelona exit**\
-`Marcos Alonso has joined Celta Vigo after leaving Barcelona earlier this summer.`\
-https://nytimes.com/athletic/5730934/2024/08/29/marcos-alonso-celta-vigo-transfer-barcelona/
+**How to Watch the Harris-Walz Interview**\
+`The interview on Thursday will offer a rare unscripted look at Vice President Kamala Harris, who will be joined by her running mate, Gov. Tim Walz.`\
+https://nytimes.com/2024/08/29/us/politics/harris-walz-interview-watch-cnn.html
 
