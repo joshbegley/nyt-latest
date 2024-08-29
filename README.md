@@ -1,3 +1,7 @@
+**The Times earlier interviewed Muhammad Jaber, the militant leader just killed by Israel.**\
+`By Steven Erlanger`\
+https://nytimes.com/live/2024/08/29/world/israel-hamas-gaza-war/the-times-interviewed-muhammad-jaber-the-militant-leader-who-was-just-killed-by-israeli-forces
+
 **Google’s Fate**\
 `We explain the next steps in the Google monopoly case.`\
 https://nytimes.com/2024/08/29/briefing/googles-fate.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5720081/2024/08/29/ole-miss-college-football-playof
 **Ranking NFL schedules by opposing QBs: Patriots, Raiders face the toughest roads**\
 `For the second year in a row, the Patriots face a stacked slate of quarterbacks, as AFC teams have eight of the nine hardest schedules.`\
 https://nytimes.com/athletic/5726864/2024/08/29/nfl-2024-qb-strength-of-schedule-rankings/
-
-**Why Tipping Is Everywhere**\
-`In the United States, many say tipping is expected in more places these days. Here’s how tipping culture exploded.`\
-https://nytimes.com/2024/08/29/podcasts/the-daily/tipping-trump-harris.html
 
