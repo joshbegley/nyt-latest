@@ -1,3 +1,7 @@
+**In cutting Lewis Cine, GM Kwesi Adofo-Mensah reflects critically on Vikings' 2022 draft class**\
+`Adofo-Mensah and coach Kevin O'Connell discussed how things have changed in prospect evaluation since their initial draft in Minnesota.`\
+https://nytimes.com/athletic/5732476/2024/08/29/vikings-lewis-cine-kwesi-adofo-mensah-draft/
+
 **Elena Rybakina withdraws from U.S. Open**\
 `This is the seventh time that the Kazakh world No. 4 has withdrawn from a tournament — or retired from a match — in 2024.`\
 https://nytimes.com/athletic/5732608/2024/08/29/elena-rybakina-withdrawal-us-open/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5724639/2024/08/29/taijuan-walker-phillies-bullpen/
 **Honduras Says It Will End Extradition Treaty With United States**\
 `Honduran leaders, angered after remarks by the U.S. ambassador, said they would terminate the century-old extradition treaty, which was recently used to extradite a former president.`\
 https://nytimes.com/2024/08/29/world/americas/honduras-extradition-us.html
-
-**Angels' top pitching prospects Caden Dana, Sam Aldegheri to debut**\
-`Dana is the Angels’ top pitching prospect, and Aldegheri will be the first pitcher born and raised in Italy to pitch in MLB.`\
-https://nytimes.com/athletic/5732519/2024/08/29/angels-caden-dana-sam-aldegheri-call-up/
 

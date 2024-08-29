@@ -1,3 +1,7 @@
+**In cutting Lewis Cine, GM Kwesi Adofo-Mensah reflects critically on Vikings' 2022 draft class**\
+`Adofo-Mensah and coach Kevin O'Connell discussed how things have changed in prospect evaluation since their initial draft in Minnesota.`\
+https://nytimes.com/athletic/5732476/2024/08/29/vikings-lewis-cine-kwesi-adofo-mensah-draft/
+
 **Elena Rybakina withdraws from U.S. Open**\
 `This is the seventh time that the Kazakh world No. 4 has withdrawn from a tournament — or retired from a match — in 2024.`\
 https://nytimes.com/athletic/5732608/2024/08/29/elena-rybakina-withdrawal-us-open/
