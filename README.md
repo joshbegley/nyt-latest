@@ -1,7 +1,3 @@
-**Taijuan Walker hits a new low. Would the Phillies eat the millions left on his contract?**\
-`The Phillies owe Walker roughly $39M. Eating that much money would be unprecedented in club history, but it's been done by other teams.`\
-https://nytimes.com/athletic/5730442/2024/08/28/taijuan-walker-struggles-phillies-options/
-
 **As 49ers' roster comes into focus, so do the weak spots for the upcoming season**\
 `The 49ers had two healthy running backs at Wednesday's practice, although two more are expected to be back on the field next week.`\
 https://nytimes.com/athletic/5730396/2024/08/28/49ers-roster-weak-spots/
@@ -15,7 +11,7 @@ https://nytimes.com/athletic/5730274/2024/08/28/buffalo-bills-gm-beane-2024-rost
 https://nytimes.com/athletic/5730323/2024/08/28/malik-nabers-ny-giants-jersey-unretired/
 
 **Trump Videos at Arlington Stir More Fallout After Gravesite Visit**\
-`A family of a Green Beret buried there expressed concern about videos and photos taken by his grave. And a cemetery employee declined to press charges after an altercation with the Trump team, fearing retribution.`\
+`The family of a Green Beret buried there expressed concern about videos and photos taken by his grave. And a cemetery employee declined to press charges after an altercation with the Trump team, fearing retribution.`\
 https://nytimes.com/2024/08/28/us/politics/trump-arlington-cemetery.html
 
 **OpenAI in Talks for Deal That Would Value Company at $100 Billion**\
@@ -33,4 +29,8 @@ https://nytimes.com/2024/08/28/us/grand-canyon-hotels-water.html
 **Falcons trade QB Taylor Heinicke to Chargers**\
 `Heinicke made the Falcons’ 53-man roster as a third quarterback, but his prospects of playing time in Atlanta were not great.`\
 https://nytimes.com/athletic/5730360/2024/08/28/taylor-heinicke-chargers-falcons-trade/
+
+**Clark breaks WNBA record for most 3-pointers by a rookie**\
+`In addition to 3-pointers, Clark also leads the league in total assists and turnovers.`\
+https://nytimes.com/athletic/5730347/2024/08/28/caitlin-clark-wnba-rookie-3-point-record/
 
