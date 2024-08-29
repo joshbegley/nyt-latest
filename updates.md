@@ -1,3 +1,15 @@
+**England under Lee Carsley: Fresh energy, new blood in midfield and a few familiar faces**\
+`Noni Madueke and Angel Gomes provide some fresh energy among four new faces, while there are recalls for Jack Grealish and Harry Maguire`\
+https://nytimes.com/athletic/5728690/2024/08/29/england-carsley-gomes-grealish/
+
+**Flaws Persist in F.B.I.’s Handling of Child Sex Abuse Cases, Watchdog Says**\
+`The Justice Department’s inspector general cited significant improvements even as he identified structural issues, like high caseloads, that continue to hamper progress.`\
+https://nytimes.com/2024/08/29/us/politics/fbi-nassar-sexual-abuse-cases.html
+
+**Betty Jean Hall, Who Fought for Coal- Mining Jobs for Women, Dies at 78**\
+`She was a fiery lawyer from eastern Kentucky who charged coal companies with discrimination for their refusal to hire women. Her campaign was a success.`\
+https://nytimes.com/2024/08/29/us/betty-jean-hall-dead.html
+
 **College football Week 1 model projections: Predicted scores for every game**\
 `Austin Mock is back at it, using his model to project the point total and score for every Week 1 college football game.`\
 https://nytimes.com/athletic/5731620/2024/08/29/college-football-week-1-model-projections-scores/
