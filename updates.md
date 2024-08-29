@@ -1,3 +1,11 @@
+**Forest bid for Kelleher rejected by Liverpool**\
+`Liverpool have rejected a cash plus player offer from Nottingham Forest for goalkeeper Caoimhin Kelleher.`\
+https://nytimes.com/athletic/5732182/2024/08/29/nottingham-forest-bid-caoimhin-kelleher/
+
+**University of Virginia Suspends Tours That Emphasized Ties to Slavery**\
+`A group of conservative alumni said the student-led tours were overly focused on the school’s history of using enslaved laborers.`\
+https://nytimes.com/2024/08/29/us/university-of-virginia-tours-slavery.html
+
 **Dueling Ramones Heirs Fight Over the Punk Band’s Legacy**\
 `The brother of Joey Ramone and the widow of Johnny Ramone, who each control half of the band’s intellectual property rights, have filed lawsuits against each other.`\
 https://nytimes.com/2024/08/29/arts/music/ramones-heirs-fight.html

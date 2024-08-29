@@ -1,3 +1,11 @@
+**Forest bid for Kelleher rejected by Liverpool**\
+`Liverpool have rejected a cash plus player offer from Nottingham Forest for goalkeeper Caoimhin Kelleher.`\
+https://nytimes.com/athletic/5732182/2024/08/29/nottingham-forest-bid-caoimhin-kelleher/
+
+**University of Virginia Suspends Tours That Emphasized Ties to Slavery**\
+`A group of conservative alumni said the student-led tours were overly focused on the school’s history of using enslaved laborers.`\
+https://nytimes.com/2024/08/29/us/university-of-virginia-tours-slavery.html
+
 **Dueling Ramones Heirs Fight Over the Punk Band’s Legacy**\
 `The brother of Joey Ramone and the widow of Johnny Ramone, who each control half of the band’s intellectual property rights, have filed lawsuits against each other.`\
 https://nytimes.com/2024/08/29/arts/music/ramones-heirs-fight.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5732047/2024/08/29/haason-reddick-new-york-jets-hol
 **The Return of the Donahue Man**\
 `Much has been made of a new masculinity in this election cycle, but the biggest public transformation for men might be the role of the husband.`\
 https://nytimes.com/2024/08/29/style/doug-emhoff-tim-walz-masculinity.html
-
-**These Architects Embrace Local Styles. And They Fly to Work, Too.**\
-`Sparrow weavers in Africa appear to learn distinct building styles that reflect group traditions, research shows. It raises intriguing questions about avian intelligence.`\
-https://nytimes.com/2024/08/29/climate/weaver-bird-nests-kalahari-desert.html
-
-**MLB bullpen report: Edwin Díaz's slider struggles, Robert Suarez's workload concerns and more**\
-`Greg Jewett offers insights on the MLB bullpen developments that matters for fantasy baseball, like Robert Suarez's career-high workload.`\
-https://nytimes.com/athletic/5731834/2024/08/29/mlb-bullpen-report-edwin-diaz-robert-suarez-fantasy-baseball-saves/
 
