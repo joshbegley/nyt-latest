@@ -2,6 +2,10 @@
 `The Supreme Court refused to allow a key part of President Biden’s student debt plan to move forward. Here’s what’s left of it, and who could still benefit.`\
 https://nytimes.com/2024/08/28/us/politics/biden-student-loans-supreme-court.html
 
+**Jose Altuve's home plate steal provides a spark for an Astros club that needed one**\
+`Altuve's dash home set the tone for the Astros' victory, including Spencer Arrighetti's near no-hitter and Yordan Alvarez's three homers. `\
+https://nytimes.com/athletic/5730547/2024/08/28/jose-altuve-provides-astros-with-spark/
+
 **Taijuan Walker hits a new low. Would the Phillies eat the millions left on his contract?**\
 `The Phillies owe Walker roughly $39M. Eating that much money would be unprecedented in club history, but it's been done by other teams.`\
 https://nytimes.com/athletic/5730442/2024/08/28/taijuan-walker-struggles-phillies-options/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/28/technology/openai-valuation-funding-deal.html
 **Scientists Discover Similar Dinosaur Footprints on Opposite Sides of the Atlantic**\
 `More than 260 similar footprints found in Brazil and Cameroon help us understand a region that broke apart millions of years ago.`\
 https://nytimes.com/2024/08/28/science/dinosaur-tracks-brazil-cameroon.html
-
-**Waterline Breaks Force Grand Canyon to Halt Hotel Stays on South Rim**\
-`The popular destination has put strict water restrictions into effect before one of summer’s busiest weekends.`\
-https://nytimes.com/2024/08/28/us/grand-canyon-hotels-water.html
 
