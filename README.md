@@ -10,8 +10,8 @@ https://nytimes.com/athletic/5732547/2024/08/29/49ers-secondary-nfl-talanoa-hufa
 `Carlo Ancelotti says Real Madrid do not “have a good balance” after being held to a 1-1 draw against Las Palmas.`\
 https://nytimes.com/athletic/5732905/2024/08/29/carlo-ancelotti-real-madrid-las-palmas/
 
-**Colorado to Relocate Gray Wolves Less Than a Year After Their Release**\
-`The plan, amid accusations that the wolves were attacking livestock in the area, is potentially a setback for the state’s ambitious reintroduction program, experts say.`\
+**Colorado to Relocate Gray Wolves After Reports of Livestock Attacks**\
+`The plan, which comes less than a year after the wolves were released in the area, is potentially a setback for the state’s ambitious reintroduction program, experts say.`\
 https://nytimes.com/2024/08/29/climate/colorado-wolves-relocation-livestock.html
 
 **Pentagon says it will aid Secret Service ahead of election.**\
