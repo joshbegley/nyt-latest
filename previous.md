@@ -1,3 +1,19 @@
+**7 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/08/29/books/review/new-books-recommendations.html
+
+**Zucchini All of the Ways**\
+`Whether raw with peaches in a salad, seared for cold noodles or caramelized for pasta, now’s the time to go all in.`\
+https://nytimes.com/2024/08/29/dining/zucchini-all-of-the-ways.html
+
+**Life After Factory Farming: ‘The Longer They’re Out, the Happier They Are.’**\
+`Tyler Whitley works with a group that helps farmers leave industrialized livestock agriculture, and says consumers can play a role`\
+https://nytimes.com/2024/08/29/climate/factory-farming-transfarmation-project.html
+
+**Curry, Warriors agree to 1-year, $62.6 million extension**\
+`With the new extension, Curry now has $178 million left on his contract, according to data from Spotrac.`\
+https://nytimes.com/athletic/5732009/2024/08/29/steph-curry-warriors-contract-extension/
+
 **Why the Nashville Predators committed to Juuse Saros over top goaltending prospect Yaroslav Askarov**\
 `Saros and Predators general manager Barry Trotz take us inside the decision to sign a contract that carries the goalie through 2033.`\
 https://nytimes.com/athletic/5729417/2024/08/29/predators-juuse-saros-yaroslav-askarov/
@@ -17,20 +33,4 @@ https://nytimes.com/2024/08/29/us/politics/trump-arlington-cemetery-army.html
 **Here’s What We Know About the Oil Tanker Stuck in the Red Sea**\
 `The MV Delta Sounion was carrying a million barrels of crude oil when it was attacked by Houthi rebels. On fire and crewless, it now poses an environmental risk.`\
 https://nytimes.com/2024/08/29/world/middleeast/oil-tanker-red-sea-yemen-houthi-attack.html
-
-**Lions GM Brad Holmes targets Super Bowl as he discusses 2024 roster**\
-`Brad Holmes was clear about the team's goal for the season.`\
-https://nytimes.com/athletic/5731627/2024/08/29/detroit-lions-roster-gm-brad-holmes-ray-agnew/
-
-**How loud is Kyle Field? Why Texas A&M is an intimidating challenge for Notre Dame**\
-`What makes Texas A&M's Kyle Field so loud? It's the capacity of 102,733, of course, but also the way the stadium has been renovated.`\
-https://nytimes.com/athletic/5731832/2024/08/29/texas-am-kyle-field-notre-dame/
-
-**The Highly Deceptive, Deeply Loved, Down-to-Earth Carol Kane**\
-`Her range is wider than her oddball roles suggest, and the actress adored by Anjelica Huston, Tina Fey and Bette Davis is more connected than you’d think.`\
-https://nytimes.com/2024/08/29/movies/carol-kane-princess-bride-between-the-temples.html
-
-**Jaguars add rugby star Louis Rees-Zammit to practice squad**\
-`Rees-Zammit was one of the top wingers in rugby before signing with the Chiefs this offseason`\
-https://nytimes.com/athletic/5731915/2024/08/29/jaguars-sign-former-rugby-star-louis-rees-zammit-to-practice-squad/
 
