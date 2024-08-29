@@ -1,3 +1,7 @@
+**Pats choose vet QB Brissett over rookie Maye for Week 1**\
+`FOXBORO, Mass.`\
+https://nytimes.com/athletic/5728869/2024/08/29/jacoby-brissett-patriots-starting-qb-drake-maye/
+
 **Court Orders South Korea to Take Stronger Action on Climate Change**\
 `A ruling by the Constitutional Court declared the nation’s current measures insufficient and a violation of the rights of future generations.`\
 https://nytimes.com/2024/08/29/world/asia/south-korea-climate-action-verdict-youth.html
