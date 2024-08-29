@@ -1,3 +1,7 @@
+**Chelsea's Petrovic to join BlueCo-owned Strasbourg on loan**\
+`Chelsea goalkeeper Djordje Petrovic will join Strasbourg on a season-long loan deal subject to a medical.`\
+https://nytimes.com/athletic/5731013/2024/08/29/djordje-petrovic-strasbourg-loan-chelsea-transfers/
+
 **Week 1's top 10 college football games: Rivalries, ranked matchups and CFP implications**\
 `Clemson-Georgia and Notre Dame-Texas A&M are the headliners, but keep an eye on FSU, Oklahoma State, Boise State and, of course, Colorado.`\
 https://nytimes.com/athletic/5729165/2024/08/29/college-football-schedule-week-one-top-games/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5729019/2024/08/29/ny-rangers-sam-rosen-retirement/
 **Top 5 Yankees stories of the week: Catch up on the most-read NY headlines**\
 `Catch up on the past week by checking out the most popular Yankees and MLB stories.`\
 https://nytimes.com/athletic/5729316/2024/08/29/new-york-yankees-headlines-standings-stats/
-
-**Pistons fan survey results: What we learned about your expectations for 2024**\
-`The results are in. See how fans feel about the coming season and state of the Pistons' franchise.`\
-https://nytimes.com/athletic/5728563/2024/08/29/detroit-pistons-cade-cunningham-jaden-ivey-fan-survey/
 
