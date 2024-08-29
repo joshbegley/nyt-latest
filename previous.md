@@ -1,3 +1,19 @@
+**Arsenal exploring move for Bournemouth goalkeeper Neto as Garcia talks hit impasse**\
+`Arsenal are exploring a move for Bournemouth goalkeeper Neto after hitting an impasse in talks over Espanyol&#8217;s Joan Garcia.`\
+https://nytimes.com/athletic/5732552/2024/08/29/arsenal-neto-bournemouth-transfer/
+
+**Phillies move Taijuan Walker to bullpen for remainder of 2024**\
+`Rather than eat roughly $39 million to release Walker, the Phillies will move the underperforming starter to the bullpen for mop-up duty.`\
+https://nytimes.com/athletic/5724639/2024/08/29/taijuan-walker-phillies-bullpen/
+
+**Honduras Says It Will End Extradition Treaty With United States**\
+`Honduran leaders were angered after the U.S. ambassador to the country criticized the defense minister and a top general. The extradition treaty, over a century old, has been used to extradite dozens of politicians, including a former president.`\
+https://nytimes.com/2024/08/29/world/americas/honduras-extradition-us.html
+
+**Angels' top pitching prospects Caden Dana, Sam Aldegheri to debut**\
+`Dana is the Angels’ top pitching prospect, and Aldegheri will be the first pitcher born and raised in Italy to pitch in MLB.`\
+https://nytimes.com/athletic/5732519/2024/08/29/angels-caden-dana-sam-aldegheri-call-up/
+
 **Read the 2006 application**\
 `Applying for a White House fellowship in 2006, Wes Moore, then a 27-year-old Army veteran, wrote that he had been awarded “the Bronze Star Medal.”`\
 https://nytimes.com/interactive/2024/08/29/us/politics/wes-moore-bio.html
@@ -17,20 +33,4 @@ https://nytimes.com/2024/08/29/us/florida-book-ban-lawsuit.html
 **Leicester complete El Khannouss signing**\
 `Leicester City have completed the signing of Morocco attacking midfielder Bilal El Khannouss from Genk.`\
 https://nytimes.com/athletic/5732517/2024/08/29/bilal-el-khannouss-leicester-signing/
-
-**Cardinals to put Tommy Pham on waivers: Sources**\
-`The move suggests St. Louis could pivot to leaning on some of its younger talent during the final month of the season.`\
-https://nytimes.com/athletic/5732490/2024/08/29/cardinals-tommy-pham-waivers-2/
-
-**120 Years of New York’s Subterranean Literary Muse**\
-`The subway isn't just buried in the bedrock of New York City — it's embedded within its fiction, too. These archival photographs and literary quotes transport you through time.`\
-https://nytimes.com/interactive/2024/08/29/books/new-york-subways-history-literature.html
-
-**Meet the Interviewer: CNN’s Dana Bash**\
-`How Ms. Bash handles Thursday’s interview may play an outsize role in shaping voters’ perception of Kamala Harris.`\
-https://nytimes.com/2024/08/29/us/politics/cnn-dana-bash.html
-
-**Three Restaurants Where You Don’t Have to Shout**\
-`The trick is to avoid restaurants that are completely vibeless. It can be done.`\
-https://nytimes.com/2024/08/29/dining/three-restaurants-where-you-dont-have-to-shout.html
 
