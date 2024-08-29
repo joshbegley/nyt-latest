@@ -1,3 +1,11 @@
+**Democratic House Candidate Cleared in New York Harassment Inquiry**\
+`The findings may help the candidate, State Senator John Mannion, in his bid to unseat Representative Brandon Williams in a tossup race.`\
+https://nytimes.com/2024/08/29/nyregion/mannion-williams-investigation.html
+
+**Ask me anything: Leave a question for James Mirtle's next article**\
+`With rookie camps starting soon, we're taking questions that could be part of a future column or mailbag.`\
+https://nytimes.com/athletic/5731659/2024/08/29/maple-leafs-nhl-questions/
+
 **‘The Rings of Power’ Season 2, Episode 3: Forging Ahead**\
 `Arondir is back, along with some other major characters not yet seen this season. And this installment asks: Is Mordor maybe an OK place to live?`\
 https://nytimes.com/2024/08/29/arts/television/the-rings-of-power-season-2-episode-3-recap.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/08/29/us/politics/trump-arlington.html
 **Son of Spanish Actor Is Convicted of Murdering Colombian Surgeon in Thailand**\
 `Daniel Sancho Bronchalo was sentenced to life imprisonment after a court in Koh Samui ruled that he was guilty of murdering Edwin Arrieta Arteaga last year.`\
 https://nytimes.com/2024/08/29/world/asia/thailand-daniel-sancho-bronchalo-murder.html
-
-**Cooper hopeful on Leicester transfers and expects player exits**\
-`Steve Cooper says Leicester City will be trying to add to the squad before tomorrow’s transfer deadline, and said some players could be leaving too.`\
-https://nytimes.com/athletic/5731506/2024/08/29/leicester-transfers-steve-cooper/
-
-**Leeds working to sign Isaac Schmidt from St. Gallen**\
-`Leeds United are working on a deal to sign St.`\
-https://nytimes.com/athletic/5731466/2024/08/29/isaac-schmidt-leeds-transfer/
 

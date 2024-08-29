@@ -1,3 +1,11 @@
+**Democratic House Candidate Cleared in New York Harassment Inquiry**\
+`The findings may help the candidate, State Senator John Mannion, in his bid to unseat Representative Brandon Williams in a tossup race.`\
+https://nytimes.com/2024/08/29/nyregion/mannion-williams-investigation.html
+
+**Ask me anything: Leave a question for James Mirtle's next article**\
+`With rookie camps starting soon, we're taking questions that could be part of a future column or mailbag.`\
+https://nytimes.com/athletic/5731659/2024/08/29/maple-leafs-nhl-questions/
+
 **Browns restructure Watson's contract, release Huntley**\
 `Cleveland created about $35 million in 2024 salary-cap space and increased future cap commitments on Watson's five-year deal.`\
 https://nytimes.com/athletic/5731495/2024/08/29/deshaun-watson-contract-browns-tyler-huntley/
