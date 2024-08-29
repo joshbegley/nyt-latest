@@ -1,3 +1,11 @@
+**‘Climate-Friendly’ Meat? Regulators Tighten Scrutiny of Label Buzzwords.**\
+`The new guidelines from the Agriculture Department encourage third-party assessments of environment-related claims, which have come under fire.`\
+https://nytimes.com/2024/08/29/climate/usda-meat-chicken-climate-labels.html
+
+**Author of ‘White Fragility’ Faces Accusations of Plagiarism**\
+`An anonymous complaint filed with the University of Washington raises questions about attribution in Robin DiAngelo’s Ph.D. thesis, which was published 20 years ago.`\
+https://nytimes.com/2024/08/29/books/robin-diangelo-white-fragility-accusation-plagiarism.html
+
 **Mets bullpen notes: Dedniel Núñez hits the injured list again**\
 `The Mets have some optimism that Núñez can make a swift recovery but the outlook is tougher for Sean Reid-Foley.`\
 https://nytimes.com/athletic/5732577/2024/08/29/mets-bullpen-dedniel-nunez/

@@ -1,3 +1,11 @@
+**‘Climate-Friendly’ Meat? Regulators Tighten Scrutiny of Label Buzzwords.**\
+`The new guidelines from the Agriculture Department encourage third-party assessments of environment-related claims, which have come under fire.`\
+https://nytimes.com/2024/08/29/climate/usda-meat-chicken-climate-labels.html
+
+**Author of ‘White Fragility’ Faces Accusations of Plagiarism**\
+`An anonymous complaint filed with the University of Washington raises questions about attribution in Robin DiAngelo’s Ph.D. thesis, which was published 20 years ago.`\
+https://nytimes.com/2024/08/29/books/robin-diangelo-white-fragility-accusation-plagiarism.html
+
 **Mets bullpen notes: Dedniel Núñez hits the injured list again**\
 `The Mets have some optimism that Núñez can make a swift recovery but the outlook is tougher for Sean Reid-Foley.`\
 https://nytimes.com/athletic/5732577/2024/08/29/mets-bullpen-dedniel-nunez/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5732519/2024/08/29/angels-caden-dana-sam-aldegheri-
 **Read the 2006 application**\
 `Applying for a White House fellowship in 2006, Wes Moore, then a 27-year-old Army veteran, wrote that he had been awarded “the Bronze Star Medal.”`\
 https://nytimes.com/interactive/2024/08/29/us/politics/wes-moore-bio.html
-
-**Wes Moore and the Bronze Star He Claimed but Never Received**\
-`For years, the Maryland governor has faced questions about whether he had wrongfully said he had a Bronze Star. He insisted no. But an old document proves otherwise.`\
-https://nytimes.com/2024/08/29/us/politics/wes-moore-bronze-star.html
-
-**Falcons turn attention to season opener after setting roster, trading Taylor Heinicke**\
-`The Falcons finalized the Heinicke trade with the Chargers and are revving up Matthew Judon and Justin Simmons to face the Steelers.`\
-https://nytimes.com/athletic/5732435/2024/08/29/falcons-raheem-morris-steelers-taylor-heinicke/
 
