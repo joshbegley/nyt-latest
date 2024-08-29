@@ -1,3 +1,7 @@
+**What NFL agents think of Aiyuk's contract negotiation tactics**\
+`NFL agents offered mixed responses when asked about one of the biggest preseason topics impacting the San Francisco 49ers.`\
+https://nytimes.com/athletic/5730213/2024/08/29/brandon-aiyuk-contract-negotiations-nfl-agents/
+
 **M.T.A. Says No More Free Bus Rides for Fare Evaders**\
 `M.T.A. officials on Thursday announced an effort to curb rampant fare evasion on city buses that has cost the agency hundreds of millions in lost revenue.`\
 https://nytimes.com/2024/08/29/nyregion/mta-fare-evasion-bus.html
@@ -22,15 +26,11 @@ https://nytimes.com/athletic/5728869/2024/08/29/jacoby-brissett-patriots-startin
 `A ruling by the Constitutional Court declared the nation’s current measures insufficient and a violation of the rights of future generations.`\
 https://nytimes.com/2024/08/29/world/asia/south-korea-climate-action-verdict-youth.html
 
-**U.S. Open day 4: Shelton and Tiafoe set up the matchup of the tournament so far**\
+**U.S. Open day 3 recap: Shelton and Tiafoe set up the match of the tournament so far**\
 `Two of the most electrifying American players meet for the second successive tournament.`\
 https://nytimes.com/athletic/5730032/2024/08/29/us-open-recap-shelton-tiafoe/
 
 **Cameron Skattebo, as Arizona State shifts to the Big 12, meets a new audience**\
 `One of the more unique players in college football, Cameron Skattebo is hoping for a breakout year as Arizona State moves conferences.`\
 https://nytimes.com/athletic/5730025/2024/08/29/cameron-skattebo-arizona-state-big-12-running-back/
-
-**Villa working on deal to sign Geertruida from Feyenoord**\
-`Aston Villa are making progress in their hopes of signing Feyenoord defender Lutsharel Geertruida.`\
-https://nytimes.com/athletic/5711419/2024/08/29/aston-villa-lutsharel-geertruida/
 

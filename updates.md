@@ -1,3 +1,11 @@
+**What NFL agents think of Aiyuk's contract negotiation tactics**\
+`NFL agents offered mixed responses when asked about one of the biggest preseason topics impacting the San Francisco 49ers.`\
+https://nytimes.com/athletic/5730213/2024/08/29/brandon-aiyuk-contract-negotiations-nfl-agents/
+
+**U.S. Open day 3 recap: Shelton and Tiafoe set up the match of the tournament so far**\
+`Two of the most electrifying American players meet for the second successive tournament.`\
+https://nytimes.com/athletic/5730032/2024/08/29/us-open-recap-shelton-tiafoe/
+
 **M.T.A. Says No More Free Bus Rides for Fare Evaders**\
 `M.T.A. officials on Thursday announced an effort to curb rampant fare evasion on city buses that has cost the agency hundreds of millions in lost revenue.`\
 https://nytimes.com/2024/08/29/nyregion/mta-fare-evasion-bus.html
