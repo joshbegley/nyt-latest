@@ -1,3 +1,7 @@
+**More Than 40 Horses Die on Oklahoma Ranch After Eating Contaminated Feed**\
+`Agriculture departments in Oklahoma and Kansas are investigating the deaths on the Beutler ranch, a legacy breeder of livestock that supplies the nation’s rodeos.`\
+https://nytimes.com/2024/08/29/us/horse-dead-ranch-oklahoma.html
+
 **Major Publishers Sue Florida Over Banned School Library Books**\
 `A state law limits sexual content in school libraries. But several publishing companies say it has led to a “regime of strict censorship” in school districts.`\
 https://nytimes.com/2024/08/29/us/florida-book-ban-lawsuit.html
