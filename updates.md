@@ -1,3 +1,7 @@
+**How will Michigan follow a national title? Predicting Sherrone Moore’s first season**\
+`Previewing the 2024 Michigan season, which comes with numerous questions on offense and a difficult schedule — but Playoff potential.`\
+https://nytimes.com/athletic/5729480/2024/08/29/michigan-wolverines-football-preview-predictions-schedule/
+
 **Ryan Day knew Ohio State had to change. He started with himself.**\
 `Day has a strong reputation as a play-caller, but for Ohio State to get where it needs to be, he realized that change started at the top.`\
 https://nytimes.com/athletic/5729376/2024/08/29/ryan-day-ohio-state-football-coach/

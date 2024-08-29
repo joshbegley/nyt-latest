@@ -1,3 +1,7 @@
+**How will Michigan follow a national title? Predicting Sherrone Moore’s first season**\
+`Previewing the 2024 Michigan season, which comes with numerous questions on offense and a difficult schedule — but Playoff potential.`\
+https://nytimes.com/athletic/5729480/2024/08/29/michigan-wolverines-football-preview-predictions-schedule/
+
 **Ryan Day knew Ohio State had to change. He started with himself.**\
 `Day has a strong reputation as a play-caller, but for Ohio State to get where it needs to be, he realized that change started at the top.`\
 https://nytimes.com/athletic/5729376/2024/08/29/ryan-day-ohio-state-football-coach/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/29/arts/music/5-classical-music-albums-you-can-liste
 **Three Great Documentaries to Stream**\
 `This month’s picks involve a high-wire showman, a self-dramatizing tennis star and a Brazilian director reflecting on his past.`\
 https://nytimes.com/2024/08/29/movies/documentaries-streaming.html
-
-**Sabrina Carpenter Never Misses Her Target on ‘Short n’ Sweet’**\
-`The singer’s new album is smart, sly and filled with fury, our critic says.`\
-https://nytimes.com/2024/08/29/podcasts/sabrina-carpenter-short-n-sweet.html
 
