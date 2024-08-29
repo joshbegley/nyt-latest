@@ -1,3 +1,7 @@
+**In CNN Interview Excerpts, Harris Defends Ideological Shift to Center**\
+`Vice President Kamala Harris said it would be “really important” for her administration to reflect “different views,” according to early clips of her interview released by CNN.`\
+https://nytimes.com/2024/08/29/us/politics/harris-cnn-interview.html
+
 **How Dana Bash Handled Past Interviews With Kamala Harris**\
 `The CNN anchor has been a firm-but-fair interlocutor in three previous interviews with Ms. Harris in the past few years.`\
 https://nytimes.com/2024/08/29/business/media/cnn-dana-bash-harris-interview.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5656049/2024/08/29/brandon-aiyuk-contract-extension
 **With Court Victories, Conservatives Push Back on Biden Policies**\
 `Legal challenges have blocked many of the policies that President Biden saw as critical to his legacy, on issues like immigration and student loans.`\
 https://nytimes.com/2024/08/29/us/politics/biden-courts-immigration-student-loans-title-ix.html
-
-**Denzel Ward says he won't consider retirement, feels good about long-term health**\
-`"I love playing this game," the three-time Pro Bowler said. "I really don't see myself stepping away from this game anytime soon." `\
-https://nytimes.com/athletic/5732940/2024/08/29/browns-denzel-ward-retirement-concussion/
 

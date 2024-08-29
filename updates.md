@@ -1,3 +1,7 @@
+**In CNN Interview Excerpts, Harris Defends Ideological Shift to Center**\
+`Vice President Kamala Harris said it would be “really important” for her administration to reflect “different views,” according to early clips of her interview released by CNN.`\
+https://nytimes.com/2024/08/29/us/politics/harris-cnn-interview.html
+
 **How Dana Bash Handled Past Interviews With Kamala Harris**\
 `The CNN anchor has been a firm-but-fair interlocutor in three previous interviews with Ms. Harris in the past few years.`\
 https://nytimes.com/2024/08/29/business/media/cnn-dana-bash-harris-interview.html
