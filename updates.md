@@ -1,3 +1,7 @@
+**Climate Change Comes to the Grand Tetons**\
+`In one of North America’s most stunning mountain ranges, melting glaciers and warmer temperatures are raising fears of ecological tipping points.`\
+https://nytimes.com/2024/08/29/climate/grand-teton-yellowstone-climate-change.html
+
 **Punish the Creators of Deepfakes, Not the Women in Them**\
 `Advances in technology are frequently twisted from their original use and employed to humiliate women.`\
 https://nytimes.com/live/2024/08/27/opinion/thepoint/deepfake-pornography-women-assault

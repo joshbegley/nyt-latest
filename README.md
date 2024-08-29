@@ -1,3 +1,7 @@
+**United Nations to Begin Polio Vaccine Campaign in Gaza**\
+`The World Health Organization’s top representative in Gaza said Israel agreed to temporarily pause its military operations in designated areas during the hours vaccines would be administered to children.`\
+https://nytimes.com/video/world/middleeast/100000009664406/gaza-polio-vaccine-un.html
+
 **Climate Change Comes to the Grand Tetons**\
 `In one of North America’s most stunning mountain ranges, melting glaciers and warmer temperatures are raising fears of ecological tipping points.`\
 https://nytimes.com/2024/08/29/climate/grand-teton-yellowstone-climate-change.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5732263/2024/08/29/wilfried-zaha-lyon-loan/
 **Don't call it a rebuild: 4 thoughts on Panthers' waiver claims and retooling process**\
 `The Panthers took advantage of their waiver-claim position, grabbing six players with a focus on big corners and an eye on edge rushers.`\
 https://nytimes.com/athletic/5732220/2024/08/29/carolina-panthers-waiver-claims-roster-building/
-
-**Forest bid for Kelleher rejected by Liverpool**\
-`Liverpool have rejected a cash plus player offer from Nottingham Forest for goalkeeper Caoimhin Kelleher.`\
-https://nytimes.com/athletic/5732182/2024/08/29/nottingham-forest-bid-caoimhin-kelleher/
 
