@@ -1,3 +1,7 @@
+**Wolves 2 Burnley 0: Guedes' road to redemption? Transfer window latest?**\
+`Wolves overcame Burnley 2-0 on Wednesday night to advance in the Carabao Cup — this is what we learned from the game and going forward`\
+https://nytimes.com/athletic/5730372/2024/08/29/wolves-burnley-analysis-report/
+
 **Word of the Day: avaricious**\
 `This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/29/learning/word-of-the-day-avaricious.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/29/us/marcellus-williams-death-penalty-hearing.html
 **Assessing Brennan Johnson's first year at Tottenham - has he been a success?**\
 `To some Spurs fans, Johnson's place in the starting XI is a source of frustration - but how well has he actually performed?`\
 https://nytimes.com/athletic/5720991/2024/08/29/brennan-johnson-tottenham-position/
-
-**Enzo Maresca's first competitive week at Chelsea: The good and the bad**\
-`Enzo Maresca has had a week of competitive matches with Chelsea — this is what we've learned from them`\
-https://nytimes.com/athletic/5728409/2024/08/29/enzo-maresca-chelsea-analysis/
 

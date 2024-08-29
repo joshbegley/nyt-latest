@@ -1,3 +1,7 @@
+**'We've got an uphill battle': Mets blow another late lead in a key game**\
+`It was the second “worst loss of the season” the Mets have endured in the last four days.`\
+https://nytimes.com/athletic/5730886/2024/08/29/mets-blow-late-lead-diamondbacks/
+
 **Wolves 2 Burnley 0: Guedes' road to redemption? Transfer window latest?**\
 `Wolves overcame Burnley 2-0 on Wednesday night to advance in the Carabao Cup — this is what we learned from the game and going forward`\
 https://nytimes.com/athletic/5730372/2024/08/29/wolves-burnley-analysis-report/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5727215/2024/08/29/fantasy-premier-league-fixture-s
 **At Missouri Hearing, Lawyers Spar Over Fate of Prisoner on Death Row**\
 `The case of Marcellus Williams, 55, who has maintained his innocence in a 1998 killing, has pitted a local prosecutor against the state’s attorney general.`\
 https://nytimes.com/2024/08/29/us/marcellus-williams-death-penalty-hearing.html
-
-**Assessing Brennan Johnson's first year at Tottenham - has he been a success?**\
-`To some Spurs fans, Johnson's place in the starting XI is a source of frustration - but how well has he actually performed?`\
-https://nytimes.com/athletic/5720991/2024/08/29/brennan-johnson-tottenham-position/
 
