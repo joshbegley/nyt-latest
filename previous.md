@@ -1,3 +1,11 @@
+**Harris, Before CNN Interview Runs, Presses Attack Against Trump in Georgia**\
+`At a rally in Savannah, the vice president hit her rival over familiar topics like abortion rights and Project 2025, saying he represented a “full-on assault” on basic freedoms.`\
+https://nytimes.com/2024/08/29/us/politics/harris-trump-georgia.html
+
+**Broncos owner to Bo Nix: 'We're going to support you' through rookie struggles**\
+`Despite a superb preseason, the Broncos know Nix will face challenges during his debut campaign. History almost guarantees it.`\
+https://nytimes.com/athletic/5732482/2024/08/29/broncos-bo-nix-owner-greg-penner/
+
 **Naked Emperors and Crypto Campaign Cash**\
 `Why a mostly useless industry dominates corporate political spending.`\
 https://nytimes.com/2024/08/29/opinion/cryptocurrency-election.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5732547/2024/08/29/49ers-secondary-nfl-talanoa-hufa
 **Ancelotti says Real Madrid lacking 'balance' after Las Palmas draw**\
 `Carlo Ancelotti says Real Madrid do not “have a good balance” after being held to a 1-1 draw against Las Palmas.`\
 https://nytimes.com/athletic/5732905/2024/08/29/carlo-ancelotti-real-madrid-las-palmas/
-
-**Colorado to Relocate Gray Wolves After Reports of Livestock Attacks**\
-`The plan, which comes less than a year after the wolves were released in the area, is potentially a setback for the state’s ambitious reintroduction program, experts say.`\
-https://nytimes.com/2024/08/29/climate/colorado-wolves-relocation-livestock.html
-
-**Pentagon says it will aid Secret Service ahead of election.**\
-`The`\
-https://nytimes.com/live/2024/08/29/us/harris-trump-election/pentagon-says-it-will-aid-secret-service-ahead-of-election
 

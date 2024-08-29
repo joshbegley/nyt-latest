@@ -1,3 +1,11 @@
+**Harris, Before CNN Interview Runs, Presses Attack Against Trump in Georgia**\
+`At a rally in Savannah, the vice president hit her rival over familiar topics like abortion rights and Project 2025, saying he represented a “full-on assault” on basic freedoms.`\
+https://nytimes.com/2024/08/29/us/politics/harris-trump-georgia.html
+
+**Broncos owner to Bo Nix: 'We're going to support you' through rookie struggles**\
+`Despite a superb preseason, the Broncos know Nix will face challenges during his debut campaign. History almost guarantees it.`\
+https://nytimes.com/athletic/5732482/2024/08/29/broncos-bo-nix-owner-greg-penner/
+
 **Naked Emperors and Crypto Campaign Cash**\
 `Why a mostly useless industry dominates corporate political spending.`\
 https://nytimes.com/2024/08/29/opinion/cryptocurrency-election.html
