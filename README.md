@@ -1,3 +1,11 @@
+**Brazil Threatens to Ban Elon Musk’s X**\
+`The country’s Supreme Court gave the service 24 hours to name a legal representative in Brazil or face suspension.`\
+https://nytimes.com/2024/08/28/technology/brazil-x-ban-elon-musk.html
+
+**Kawakami: A dramatic 49ers-Brandon Aiyuk showdown and the signs of a break-up in progress**\
+`The 49ers challenged Brandon Aiyuk to practice on Wednesday or face discipline. He didn't practice. Next up: major, major consequences.`\
+https://nytimes.com/athletic/5730266/2024/08/28/49ers-brandon-aiyuk-contract-showdown/
+
 **Typhoon Shanshan Makes Landfall in Southern Japan**\
 `The risk of life-threatening landslides and floods was rapidly increasing in parts of Kyushu Island as the storm lashed it with relentless rain, the authorities warned.`\
 https://nytimes.com/2024/08/28/world/asia/typhoon-shanshan-japan-landfall.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5730274/2024/08/28/buffalo-bills-gm-beane-2024-rost
 **Nabers to wear retired No. 1 with Flaherty family's permission**\
 `The Giants retired the Hall of Fame defensive end's number in 1935. It was the first number sidelined in pro football history.`\
 https://nytimes.com/athletic/5730323/2024/08/28/malik-nabers-ny-giants-jersey-unretired/
-
-**Trump Videos at Arlington Stir More Fallout After Gravesite Visit**\
-`The family of a Green Beret buried there expressed concern about videos and photos taken by his grave. And a cemetery employee declined to press charges after an altercation with the Trump team, fearing retribution.`\
-https://nytimes.com/2024/08/28/us/politics/trump-arlington-cemetery.html
-
-**OpenAI in Talks for Deal That Would Value Company at $100 Billion**\
-`While some young A.I. companies have struggled to compete with the tech industry’s giants, OpenAI has been rapidly expanding.`\
-https://nytimes.com/2024/08/28/technology/openai-valuation-funding-deal.html
 
