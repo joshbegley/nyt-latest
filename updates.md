@@ -1,3 +1,7 @@
+**FPL: How to take advantage of the biggest upcoming fixture swings**\
+`It sounds simple, but signing players with the easiest fixture runs ahead works - these are the teams and individuals to target`\
+https://nytimes.com/athletic/5727215/2024/08/29/fantasy-premier-league-fixture-swings/
+
 **At Missouri Hearing, Lawyers Spar Over Fate of Prisoner on Death Row**\
 `The case of Marcellus Williams, 55, who has maintained his innocence in a 1998 killing, has pitted a local prosecutor against the state’s attorney general.`\
 https://nytimes.com/2024/08/29/us/marcellus-williams-death-penalty-hearing.html
