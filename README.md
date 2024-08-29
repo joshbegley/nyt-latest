@@ -8,7 +8,7 @@ https://nytimes.com/2024/08/29/us/politics/donors-harris-tax-ultrawealthy.html
 
 **What is Palestinian Islamic Jihad?**\
 `By Eve Sampson`\
-https://nytimes.com/live/2024/08/29/world/israel-hamas-gaza-war/what-is-palestinian-islamic-jihad
+https://nytimes.com/2024/08/29/world/middleeast/what-is-palestinian-islamic-jihad.html
 
 **Greek Port City Inundated With Over 100 Tons of Dead Fish**\
 `The authorities in central Greece have dredged more than 100 tons of dead fish from the waters around the port of Volos, a scenic summer destination.`\
