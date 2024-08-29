@@ -1,36 +1,36 @@
+**Joy Can Do More Than Beat Trump**\
+`It can push MAGA back to the periphery of American life.`\
+https://nytimes.com/2024/08/29/opinion/trump-harris-joy-maga-2024.html
+
+**In Brooklyn, Two First-Time Buyers Weigh Classic Charm vs. Industrial Chic**\
+`Searching in Clinton Hill and Bedford-Stuyvesant, a young couple endeavored to find a sunny place with a decent kitchen and not too many stairs.`\
+https://nytimes.com/interactive/2024/08/29/realestate/brooklyn-home-buy.html
+
+**Attractions and Accessories for the Tennis Obsessed**\
+`Plus: tableware that channels rural Britain, illustrated pastry boxes and more recommendations from T Magazine.`\
+https://nytimes.com/2024/08/29/t-magazine/tennis-accessories-fashion.html
+
+**Whale Beheading, Bear Carcass Dumping and Trump Boosting, Oh My!**\
+`Yes, it gets worse than Mitt Romney’s dog.`\
+https://nytimes.com/live/2024/08/27/opinion/thepoint/whale-beheading-bear-carcass-dumping-and-trump-boosting-oh-my
+
+**Jayson Tatum discusses Olympic benching 'debate,' raising son Deuce and more**\
+`The Celtics star opened up to The Athletic about the conversation around Paris experience and defending the NBA title next season.`\
+https://nytimes.com/athletic/5729821/2024/08/29/jayson-tatum-team-usa-benching-boston-celtics/
+
+**5 Classical Music Albums You Can Listen to Right Now**\
+`Debuts by Joana Mallwitz and Aigul Akhmetshina, as well as the Juilliard String Quartet’s vintage Schoenberg, are among the highlights.`\
+https://nytimes.com/2024/08/29/arts/music/5-classical-music-albums-you-can-listen-to-right-now.html
+
+**Three Great Documentaries to Stream**\
+`This month’s picks involve a high-wire showman, a self-dramatizing tennis star and a Brazilian director reflecting on his past.`\
+https://nytimes.com/2024/08/29/movies/documentaries-streaming.html
+
+**Sabrina Carpenter Never Misses Her Target on ‘Short n’ Sweet’**\
+`The singer’s new album is smart, sly and filled with fury, our critic says.`\
+https://nytimes.com/2024/08/29/podcasts/sabrina-carpenter-short-n-sweet.html
+
 **How Does Mpox Spread, and Who Is Most at Risk?**\
 `Here’s what scientists have learned about the virus, which was recently declared a global health emergency.`\
 https://nytimes.com/2024/08/29/well/mpox-health-risks-vaccine.html
-
-**The Irresistible Urge to Change Your Location on a Dating App**\
-`Some apps let users check out the dating pool miles away from home. Should they?`\
-https://nytimes.com/2024/08/29/style/the-irresistible-urge-to-change-your-location-on-a-dating-app.html
-
-**Want a Manhattan Apartment? Try These European Countries Instead.**\
-`A study compared the median listing price for a 500-square-foot apartment in Manhattan with the prices of homes in France, Greece, Italy, Portugal and Spain.`\
-https://nytimes.com/2024/08/29/realestate/manhattan-apartment-prices-europe.html
-
-**Help! United Canceled Our Trip to Paris. Or Did It?**\
-`A long-planned French getaway for three hit a snag when their airline reservation was mysteriously canceled, costing them almost $11,000. It turned out an unwanted travel agency was (partially) responsible.`\
-https://nytimes.com/2024/08/29/travel/airline-travel-agency-fraud.html
-
-**Movie Trailers Have Gotten Worse. Why Aren’t Studios Having Fun With Them?**\
-`Promos give away too much or too little or are misleading or don’t leave anything out. We could go on. But there are ways to fix them.`\
-https://nytimes.com/2024/08/29/movies/movie-trailers-wicked-trap-alien.html
-
-**‘The Falling Star’ Review: A Dark Story in Meticulous Wrapping**\
-`A series of mishaps befall an activist-turned-bartender in a visually rich but shallow Belgian film.`\
-https://nytimes.com/2024/08/29/movies/the-falling-star-review.html
-
-**Waiting, and Waiting, and More Waiting for a Lover to Leave His Wife**\
-`The Norwegian author Vigdis Hjorth’s latest novel to be translated into English, “If Only,” follows a decade-long affair between two married writers.`\
-https://nytimes.com/2024/08/29/books/review/if-only-vigdis-hjorth.html
-
-**For a Great Museum Road Trip, Get In an Empire State of Mind**\
-`Who needs Brooklyn? From Ithaca to Buffalo, the art is overflowing in upstate New York.`\
-https://nytimes.com/2024/08/29/arts/design/upstate-museums-herbert-johnson-corning-eastman-buffalo-akg.html
-
-**How to Watch the Harris-Walz Interview**\
-`The interview on Thursday will offer a rare unscripted look at Vice President Kamala Harris, who will be joined by her running mate, Gov. Tim Walz.`\
-https://nytimes.com/2024/08/29/us/politics/harris-walz-interview-watch-cnn.html
 
