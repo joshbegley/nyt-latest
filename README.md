@@ -1,3 +1,11 @@
+**The Connections Companion No. 446**\
+`Scroll down for hints and conversation about the puzzle for Friday, Aug. 30, 2024.`\
+https://nytimes.com/2024/08/29/crosswords/connections-companion-446.html
+
+**Wordle Review No. 1,168**\
+`Scroll down for hints and conversation about the puzzle for August 30, 2024.`\
+https://nytimes.com/2024/08/29/crosswords/wordle-review-1168.html
+
 **Top Biden Aide Holds Rare Talks With Chinese Military General**\
 `Jake Sullivan also met with China’s top leader, Xi Jinping, who said the United States should “find a correct way for the two major countries to get along.”`\
 https://nytimes.com/2024/08/29/world/asia/china-us-sullivan-xi.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5629974/2024/08/29/nfl-agent-survey-best-worst-fran
 **Emmanuel Clase, Zack Britton and a reliever's rocky path to the Cy Young Award**\
 `Cleveland's Emmanuel Clase is authoring an all-time great relief season; haven't been enough to win a Cy Young lately.  `\
 https://nytimes.com/athletic/5730051/2024/08/29/cy-young-award-reliever-emmanuel-clase/
-
-**How will Michigan follow a national title? Predicting Sherrone Moore’s first season**\
-`Previewing the 2024 Michigan season, which comes with numerous questions on offense and a difficult schedule — but Playoff potential.`\
-https://nytimes.com/athletic/5729480/2024/08/29/michigan-wolverines-football-preview-predictions-schedule/
-
-**Ryan Day knew Ohio State had to change. He started with himself.**\
-`Day has a strong reputation as a play-caller, but for Ohio State to get where it needs to be, he realized that change started at the top.`\
-https://nytimes.com/athletic/5729376/2024/08/29/ryan-day-ohio-state-football-coach/
 
