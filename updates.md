@@ -1,3 +1,11 @@
+**Court Orders South Korea to Take Stronger Action on Climate Change**\
+`A ruling by the Constitutional Court declared the nation’s current measures insufficient and a violation of the rights of future generations.`\
+https://nytimes.com/2024/08/29/world/asia/south-korea-climate-action-verdict-youth.html
+
+**U.S. Open day 4: Shelton and Tiafoe set up the matchup of the tournament so far**\
+`Two of the most electrifying American players meet for the second successive tournament.`\
+https://nytimes.com/athletic/5730032/2024/08/29/us-open-recap-shelton-tiafoe/
+
 **Cameron Skattebo, as Arizona State shifts to the Big 12, meets a new audience**\
 `One of the more unique players in college football, Cameron Skattebo is hoping for a breakout year as Arizona State moves conferences.`\
 https://nytimes.com/athletic/5730025/2024/08/29/cameron-skattebo-arizona-state-big-12-running-back/

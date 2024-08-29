@@ -1,3 +1,7 @@
+**Pats choose vet QB Brissett over rookie Maye for Week 1**\
+`FOXBORO, Mass.`\
+https://nytimes.com/athletic/5728869/2024/08/29/jacoby-brissett-patriots-starting-qb-drake-maye/
+
 **Court Orders South Korea to Take Stronger Action on Climate Change**\
 `A ruling by the Constitutional Court declared the nation’s current measures insufficient and a violation of the rights of future generations.`\
 https://nytimes.com/2024/08/29/world/asia/south-korea-climate-action-verdict-youth.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2024/08/29/us/harris-trump-election
 **My reaction to the Blues coming in 16th in Corey Pronman's 2024 NHL prospect pipeline rankings**\
 `The Athletic's prospects expert has the Blues at No. 16 overall and wasn't as glowing about prospect Dalibor Dvorsky as some have been.`\
 https://nytimes.com/athletic/5729222/2024/08/29/st-louis-blues-prospect-rankings-nhl/
-
-**How has Chargers coach Jim Harbaugh shifted the culture? Mailbag**\
-`Also addressed: Which receiver will see the most passing targets after the depatures of Keenan Allen and Mike Williams? `\
-https://nytimes.com/athletic/5729662/2024/08/29/jim-harbaugh-chargers-culture-mailbag/
 

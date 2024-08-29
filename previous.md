@@ -1,3 +1,11 @@
+**Court Orders South Korea to Take Stronger Action on Climate Change**\
+`A ruling by the Constitutional Court declared the nation’s current measures insufficient and a violation of the rights of future generations.`\
+https://nytimes.com/2024/08/29/world/asia/south-korea-climate-action-verdict-youth.html
+
+**U.S. Open day 4: Shelton and Tiafoe set up the matchup of the tournament so far**\
+`Two of the most electrifying American players meet for the second successive tournament.`\
+https://nytimes.com/athletic/5730032/2024/08/29/us-open-recap-shelton-tiafoe/
+
 **Cameron Skattebo, as Arizona State shifts to the Big 12, meets a new audience**\
 `One of the more unique players in college football, Cameron Skattebo is hoping for a breakout year as Arizona State moves conferences.`\
 https://nytimes.com/athletic/5730025/2024/08/29/cameron-skattebo-arizona-state-big-12-running-back/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5729222/2024/08/29/st-louis-blues-prospect-rankings
 **How has Chargers coach Jim Harbaugh shifted the culture? Mailbag**\
 `Also addressed: Which receiver will see the most passing targets after the depatures of Keenan Allen and Mike Williams? `\
 https://nytimes.com/athletic/5729662/2024/08/29/jim-harbaugh-chargers-culture-mailbag/
-
-**Ohtani signs exclusive trading card deal with Topps**\
-`Ohtani joins fellow Los Angeles megastar resident LeBron James as athletes whose trading cards are exclusively produced by Fanatics.`\
-https://nytimes.com/athletic/5729116/2024/08/29/shohei-ohtani-topps-fanatics-trading-card-exclusive/
-
-**A Father’s Search for a Son Who Didn’t Want to Be Found**\
-`Bob Garrison was determined to rescue his son from the streets. The path was more difficult than he had imagined.`\
-https://nytimes.com/2024/08/29/us/father-son-search-homeless.html
 
