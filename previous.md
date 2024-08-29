@@ -1,3 +1,7 @@
+**Word of the Day: avaricious**\
+`This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/29/learning/word-of-the-day-avaricious.html
+
 **'Nole against the world': The fan who stole the show as Djokovic toiled through in New York**\
 `Zoran Pavlovic was dressed in a white t-shirt Wednesday night, the figure of Novak Djokovic emblazoned across the chest.`\
 https://nytimes.com/athletic/5730825/2024/08/29/novak-djokovic-us-open-super-fan/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5720991/2024/08/29/brennan-johnson-tottenham-positi
 **Enzo Maresca's first competitive week at Chelsea: The good and the bad**\
 `Enzo Maresca has had a week of competitive matches with Chelsea — this is what we've learned from them`\
 https://nytimes.com/athletic/5728409/2024/08/29/enzo-maresca-chelsea-analysis/
-
-**How the Basque Country made 'machine' Merino perfect for Arteta's Arsenal**\
-`Arsenal new signing Merino is from the same part of Spain as their manager Arteta - and the area produces lots of successful sportspeople`\
-https://nytimes.com/athletic/5728374/2024/08/29/mikel-merino-arsenal-basque/
 

@@ -1,3 +1,7 @@
+**Word of the Day: avaricious**\
+`This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/29/learning/word-of-the-day-avaricious.html
+
 **'Nole against the world': The fan who stole the show as Djokovic toiled through in New York**\
 `Zoran Pavlovic was dressed in a white t-shirt Wednesday night, the figure of Novak Djokovic emblazoned across the chest.`\
 https://nytimes.com/athletic/5730825/2024/08/29/novak-djokovic-us-open-super-fan/
