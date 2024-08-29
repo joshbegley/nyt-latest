@@ -1,3 +1,7 @@
+**M.T.A. Says No More Free Bus Rides for Fare Evaders**\
+`M.T.A. officials on Thursday announced an effort to curb rampant fare evasion on city buses that has cost the agency hundreds of millions in lost revenue.`\
+https://nytimes.com/2024/08/29/nyregion/mta-fare-evasion-bus.html
+
 **Grealish, Madueke included in England squad for Nations League**\
 `Jack Grealish and Noni Madueke have been included in Lee Carsley&#8217;s first England squad for the upcoming Nations League fixtures.`\
 https://nytimes.com/athletic/5731346/2024/08/29/england-squad-nations-league-grealish-madueke/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5730025/2024/08/29/cameron-skattebo-arizona-state-b
 **Villa working on deal to sign Geertruida from Feyenoord**\
 `Aston Villa are making progress in their hopes of signing Feyenoord defender Lutsharel Geertruida.`\
 https://nytimes.com/athletic/5711419/2024/08/29/aston-villa-lutsharel-geertruida/
-
-**Danilo targeting December return from ankle injury - Nuno**\
-`Nottingham Forest hope Danilo could be back in training by December following successful surgery to repair his broken ankle.`\
-https://nytimes.com/athletic/5731128/2024/08/29/danilo-injury-forest/
 

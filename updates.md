@@ -1,3 +1,7 @@
+**M.T.A. Says No More Free Bus Rides for Fare Evaders**\
+`M.T.A. officials on Thursday announced an effort to curb rampant fare evasion on city buses that has cost the agency hundreds of millions in lost revenue.`\
+https://nytimes.com/2024/08/29/nyregion/mta-fare-evasion-bus.html
+
 **Grealish, Madueke included in England squad for Nations League**\
 `Jack Grealish and Noni Madueke have been included in Lee Carsley&#8217;s first England squad for the upcoming Nations League fixtures.`\
 https://nytimes.com/athletic/5731346/2024/08/29/england-squad-nations-league-grealish-madueke/
