@@ -1,3 +1,7 @@
+**Cruise Ship Worker Sentenced to 30 Years for Hiding Cameras in Bathrooms**\
+`The former employee of Royal Caribbean told investigators that he had been secretly recording people, including children, since December 2023.`\
+https://nytimes.com/2024/08/29/us/royal-caribbean-employee-hidden-camera-sentence.html
+
 **7 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/08/29/books/review/new-books-recommendations.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/29/world/europe/f-16-ukraine-crash.html
 **Trump Aide ‘Abruptly Pushed Aside’ an Arlington Cemetery Official, the Army Says**\
 `The statement from the Army is the first detailed description of an altercation that took place on Monday, as Mr. Trump appeared for a wreath-laying ceremony.`\
 https://nytimes.com/2024/08/29/us/politics/trump-arlington-cemetery-army.html
-
-**Here’s What We Know About the Oil Tanker Stuck in the Red Sea**\
-`The MV Delta Sounion was carrying a million barrels of crude oil when it was attacked by Houthi rebels. On fire and crewless, it now poses an environmental risk.`\
-https://nytimes.com/2024/08/29/world/middleeast/oil-tanker-red-sea-yemen-houthi-attack.html
 
