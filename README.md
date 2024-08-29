@@ -1,3 +1,7 @@
+**Pelosi’s Car Passed Near Pipe Bomb on Jan. 6, According to New Video**\
+`As the then-speaker was being evacuated from an overrun Capitol, her security detail drove her near a pipe bomb at the Democratic National Committee headquarters that had yet to be rendered fully safe.`\
+https://nytimes.com/2024/08/29/us/politics/pelosi-jan-6-pipe-bomb.html
+
 **To Beat Trump, Democrats Seek to Help Anti-Abortion Candidate**\
 `Randall Terry, a longtime leader in the anti-abortion movement, is running a third-party campaign for president.`\
 https://nytimes.com/2024/08/29/us/politics/trump-terry-anti-abortion.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/29/books/robin-diangelo-white-fragility-accusation-p
 **Mets bullpen notes: Dedniel Núñez hits the injured list again**\
 `The Mets have some optimism that Núñez can make a swift recovery but the outlook is tougher for Sean Reid-Foley.`\
 https://nytimes.com/athletic/5732577/2024/08/29/mets-bullpen-dedniel-nunez/
-
-**Friday Briefing: A Defining Harris Interview**\
-`Plus, a picnic battle on Italy’s beaches.`\
-https://nytimes.com/2024/08/29/briefing/harris-interview-polio-vaccines-us-china.html
 
