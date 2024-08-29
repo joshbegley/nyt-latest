@@ -1,3 +1,7 @@
+**At Arlington, Trump Returns to the Politics of the ‘Forever Wars’**\
+`The 2024 presidential race is the first in 24 years without a major American ground war, but Donald J. Trump continues to stoke division over the post-9/11 conflicts that helped give rise to his movement.`\
+https://nytimes.com/2024/08/29/us/politics/trump-arlington.html
+
 **Son of Spanish Actor Is Convicted of Murdering Colombian Surgeon in Thailand**\
 `Daniel Sancho Bronchalo was sentenced to life imprisonment after a court in Koh Samui ruled that he was guilty of murdering Edwin Arrieta Arteaga last year.`\
 https://nytimes.com/2024/08/29/world/asia/thailand-daniel-sancho-bronchalo-murder.html
