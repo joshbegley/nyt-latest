@@ -1,3 +1,7 @@
+**Cheney, on the Sidelines as Harris Courts Her Endorsement, Plans to Weigh In Soon**\
+`The former Wyoming congresswoman, the most prominent Republican critic of Donald J. Trump, did not speak at Democrats’ convention, calculating that she could have more impact later in the race.`\
+https://nytimes.com/2024/08/30/us/politics/liz-cheney-kamala-harris-endorsement.html
+
 **Football Parlay Fridays: Making a round robin with five College Football Week 1 picks**\
 `Austin Mock debuts a new column where he picks a weekly parlay. This week's picks are all underdogs in college football Week 1.`\
 https://nytimes.com/athletic/5731917/2024/08/30/football-parlay-fridays-college-football-week-1/
