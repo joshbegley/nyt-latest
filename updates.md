@@ -1,3 +1,7 @@
+**Chelsea await Osimhen's decision before advancing talks with Napoli**\
+`Chelsea are awaiting a green light from Victor Osimhen over a move to Stamford Bridge before advancing talks with Napoli about signing him ahead of the transfer window closing.`\
+https://nytimes.com/athletic/5723540/2024/08/30/victor-osimhen-chelsea-napoli/
+
 **Basel Will Host Eurovision Song Contest (Unless Its Taxpayers Revolt)**\
 `Many in the Swiss city celebrated the announcement. But after a debate about the cost, a conservative party wants a referendum over whether the public should pay.`\
 https://nytimes.com/2024/08/30/arts/music/eurovision-2025-basel-switzerland.html

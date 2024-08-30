@@ -7,7 +7,7 @@ https://nytimes.com/2024/08/30/arts/music/eurovision-2025-basel-switzerland.html
 https://nytimes.com/athletic/5701128/2024/08/30/college-football-playoff-projections-odds/
 
 **Chelsea await Osimhen's decision before advancing talks with Napoli**\
-`Chelsea are awaiting a green light from Victor Osimhen over a move Stamford Bridge before advancing talks with Napoli about signing him ahead of the transfer window closing.`\
+`Chelsea are awaiting a green light from Victor Osimhen over a move to Stamford Bridge before advancing talks with Napoli about signing him ahead of the transfer window closing.`\
 https://nytimes.com/athletic/5723540/2024/08/30/victor-osimhen-chelsea-napoli/
 
 **Blue Jackets' Gaudreau killed after being hit by car**\
