@@ -1,3 +1,7 @@
+**James Bjorken, 90, Dies; Physicist Who Helped Prove That Quarks Exist**\
+`His research enabled the discovery that protons and neutrons are made of smaller particles, contributing to a fuller picture of the subatomic universe.`\
+https://nytimes.com/2024/08/30/science/james-bjorken-dead.html
+
 **Everton sign Mangala on loan deal from Lyon**\
 `Everton have completed the signing of Orel Mangala from Lyon on a season-long loan.`\
 https://nytimes.com/athletic/5731137/2024/08/30/orel-mangala-everton-transfers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5734405/2024/08/30/haters-ball-pessimistic-takes-to
 **Lover’s Ball: Everything that’s right with the Top 50 players in fantasy football 2024**\
 `John Laghezza sports the rose-colored glasses to share his optimistic view of every player landing in the top 50 in fantasy football 2024.`\
 https://nytimes.com/athletic/5724255/2024/08/30/lovers-ball-everything-thats-right-with-the-top-50-players-in-fantasy-football-2024/
-
-**Israel strikes an aid convoy, killing several people, a relief group says.**\
-`By Raja Abdulrahim and Aaron Boxerman`\
-https://nytimes.com/live/2024/08/30/world/israel-hamas-gaza-war/israel-strikes-an-aid-convoy-killing-several-people-a-relief-group-says
 

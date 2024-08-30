@@ -1,3 +1,15 @@
+**Everton sign Mangala on loan deal from Lyon**\
+`Everton have completed the signing of Orel Mangala from Lyon on a season-long loan.`\
+https://nytimes.com/athletic/5731137/2024/08/30/orel-mangala-everton-transfers/
+
+**Why Oil Prices Remain Subdued**\
+`Despite war in the Middle East and political turmoil in Libya, investors are focusing on what look like ample global supplies.`\
+https://nytimes.com/2024/08/30/business/oil-prices.html
+
+**Nicole Kidman Bares Everything in the Sexy Drama ‘Babygirl’**\
+`The star is taking chances again in this look at a woman reconciling her sexual fantasies. The movie was the talk of the Venice Film Festival.`\
+https://nytimes.com/2024/08/30/movies/nicole-kidman-babygirl-venice-film-festival.html
+
 **The ‘Middle’ Is a Muddle**\
 `Everybody loves the middle class. Nobody wants to be mid, or middling. “Middle” is a tricky word.`\
 https://nytimes.com/interactive/2024/08/30/books/middle-class-politics.html
