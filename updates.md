@@ -1,3 +1,11 @@
+**Wolves working to find agreement to sign Ajax's Carlos Forbs**\
+`Wolverhampton Wanderers are working to find an agreement with Ajax to sign Carlos Forbs.`\
+https://nytimes.com/athletic/5733884/2024/08/30/carlos-forbs-ajax-wolves-transfers/
+
+**Aaron Ramsdale to Southampton: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we look at England goalkeeper Ramsdale's move from Arsenal to Southampton`\
+https://nytimes.com/athletic/5731000/2024/08/30/aaron-ramsdale-southampton-transfer-rating/
+
 **Aaron Ramsdale to Southampton: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500 series, we look at Aaron Ramsdale's move to Southampton.`\
 https://nytimes.com/athletic/5731000/2024/08/30/aaron-ramsdale-southampton-transfer-rating/
