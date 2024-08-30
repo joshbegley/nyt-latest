@@ -1,3 +1,11 @@
+**How the Burger Became a Portrait of America**\
+`Burgers today are packed with the cultural ingredients that make the United States what it is: regional tradition and immigrant inspiration, deep history and blue-sky creativity.`\
+https://nytimes.com/video/dining/100000009661137/how-the-burger-became-a-portrait-of-america.html
+
+**Zaha joins Lyon on loan from Galatasaray**\
+`Lyon have completed the loan signing of winger Wilfried Zaha from Galatasaray.`\
+https://nytimes.com/athletic/5733406/2024/08/30/wilfried-zaha-lyon-transfer/
+
 **Leeds complete signing of full-back Schmidt**\
 `Leeds United have confirmed the signing of Isaac Schmidt on a permanent transfer from Swiss side St Gallen.`\
 https://nytimes.com/athletic/5734983/2024/08/30/isaac-schmidt-leeds-signing/

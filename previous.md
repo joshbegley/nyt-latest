@@ -1,3 +1,11 @@
+**How the Burger Became a Portrait of America**\
+`Burgers today are packed with the cultural ingredients that make the United States what it is: regional tradition and immigrant inspiration, deep history and blue-sky creativity.`\
+https://nytimes.com/video/dining/100000009661137/how-the-burger-became-a-portrait-of-america.html
+
+**Zaha joins Lyon on loan from Galatasaray**\
+`Lyon have completed the loan signing of winger Wilfried Zaha from Galatasaray.`\
+https://nytimes.com/athletic/5733406/2024/08/30/wilfried-zaha-lyon-transfer/
+
 **Leeds complete signing of full-back Schmidt**\
 `Leeds United have confirmed the signing of Isaac Schmidt on a permanent transfer from Swiss side St Gallen.`\
 https://nytimes.com/athletic/5734983/2024/08/30/isaac-schmidt-leeds-signing/
@@ -30,12 +38,4 @@ https://nytimes.com/2024/08/30/us/politics/fbi-havana-syndrome.html
 **Columbia’s Antisemitism Task Force Finds ‘Urgent Need’ for Change**\
 `The group, which had previously resisted defining “antisemitism,” issued a definition, and called on the university to institute anti-bias training and revamp its systems for handling complaints.`\
 https://nytimes.com/2024/08/30/nyregion/columbia-antisemitism-bias-report.html
-
-**Man Charged With Murder in Death of Colorado Dog Breeder**\
-`Sergio Ferrer was considered a person of interest early in the investigation into the shooting death of Paul Peavey, officials said. As many as 10 of Mr. Peavey’s Doberman puppies are still missing.`\
-https://nytimes.com/2024/08/30/us/colorado-dog-breeder-murder-charged.html
-
-**Gilmour to join Napoli from Brighton**\
-`Billy Gilmour is set to join Napoli on a permanent transfer from Brighton &amp; Hove Albion.`\
-https://nytimes.com/athletic/5648371/2024/08/30/billy-gilmour-napoli-transfer-brighton/
 
