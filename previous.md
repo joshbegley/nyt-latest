@@ -1,3 +1,7 @@
+**10 Unforgettable Songs From 1999 Movies**\
+`Listen to tracks by the Chicks, Aimee Mann, Blink-182 and more linked to moments in a monumentally interesting — and busy — year of cinema.`\
+https://nytimes.com/2024/08/30/arts/music/amplifier-newsletter-1999-movie-songs.html
+
 **James Bjorken, 90, Dies; Physicist Who Helped Prove That Quarks Exist**\
 `His research enabled the discovery that protons and neutrons are made of smaller particles, contributing to a fuller picture of the subatomic universe.`\
 https://nytimes.com/2024/08/30/science/james-bjorken-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/30/business/the-big-number-100-percent.html
 **Hater’s Ball: Everything that’s wrong with the Top 50 players in fantasy football 2024**\
 `What could go wrong with every top 50 player for fantasy football 2024? Michael Salfino is back to tell just how it can all go south.`\
 https://nytimes.com/athletic/5734405/2024/08/30/haters-ball-pessimistic-takes-top-50-players-fantasy-football-2024/
-
-**Lover’s Ball: Everything that’s right with the Top 50 players in fantasy football 2024**\
-`John Laghezza sports the rose-colored glasses to share his optimistic view of every player landing in the top 50 in fantasy football 2024.`\
-https://nytimes.com/athletic/5724255/2024/08/30/lovers-ball-everything-thats-right-with-the-top-50-players-in-fantasy-football-2024/
 

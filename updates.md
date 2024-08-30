@@ -1,3 +1,7 @@
+**10 Unforgettable Songs From 1999 Movies**\
+`Listen to tracks by the Chicks, Aimee Mann, Blink-182 and more linked to moments in a monumentally interesting — and busy — year of cinema.`\
+https://nytimes.com/2024/08/30/arts/music/amplifier-newsletter-1999-movie-songs.html
+
 **James Bjorken, 90, Dies; Physicist Who Helped Prove That Quarks Exist**\
 `His research enabled the discovery that protons and neutrons are made of smaller particles, contributing to a fuller picture of the subatomic universe.`\
 https://nytimes.com/2024/08/30/science/james-bjorken-dead.html
