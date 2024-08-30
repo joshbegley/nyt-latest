@@ -1,3 +1,7 @@
+**Palace complete Lacroix signing from Wolfsburg**\
+`Crystal Palace have completed the signing of defender Maxence Lacroix from Wolfsburg.`\
+https://nytimes.com/athletic/5728683/2024/08/30/maxence-lacroix-crystal-palace-transfers/
+
 **Trump Called for I.V.F. to Be Free. How Would That Work?**\
 `Getting the expensive fertility treatments covered would be possible, but an uphill battle, health policy experts said.`\
 https://nytimes.com/2024/08/30/health/trump-free-ivf-treatment.html
