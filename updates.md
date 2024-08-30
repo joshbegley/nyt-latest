@@ -1,3 +1,15 @@
+**Trump Mocks Harris’s Interview, Claiming She ‘Rambled Incoherently’**\
+`On Truth Social and at his events, Donald Trump used Kamala Harris’s interview on CNN to complain that she was boring and unpresidential.`\
+https://nytimes.com/2024/08/29/us/politics/trump-harris-cnn-interview.html
+
+**Shedeur Sanders, Travis Hunter's star power lifts Colorado in Deion's Year 2 debut: Takeaways**\
+`Colorado's 31-26 season-opening win over North Dakota State on Thursday night marked the Buffs' first win since Oct. 7 at Arizona State.`\
+https://nytimes.com/athletic/5733261/2024/08/29/colorado-win-deion-sanders-shedeur-sanders-travis-hunter/
+
+**A Vague, Vacuous TV Interview Didn’t Help Kamala Harris**\
+`By Bret Stephens`\
+https://nytimes.com/live/2024/08/27/opinion/thepoint/harris-walz-interview
+
 **Harris Says She Has ‘No Regrets’ About Defending Biden’s Capabilities**\
 `Vice President Kamala Harris spoke fondly of the president, but made clear that he no longer represents the future of the country.`\
 https://nytimes.com/2024/08/29/us/politics/harris-cnn-interview-biden.html
