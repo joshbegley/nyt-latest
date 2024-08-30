@@ -1,3 +1,7 @@
+**After Trump Claimed Fake Taylor Swift Endorsement, Her Fans Make Real Push for Harris**\
+`Thousands of the musician’s ardent followers are working to get out the vote and raise money for Vice President Kamala Harris’s campaign.`\
+https://nytimes.com/2024/08/30/us/politics/trump-taylor-swift-fans-endorsement.html
+
 **A Defensive Trump Tries to Limit the Fallout of the Arlington Clash**\
 `At a rally in western Pennsylvania, the former president insisted that he had not been seeking publicity at the military cemetery on Monday and defended his campaign’s actions.`\
 https://nytimes.com/2024/08/30/us/politics/trump-rally-arlington.html
