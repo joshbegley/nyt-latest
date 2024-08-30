@@ -1,3 +1,7 @@
+**Chelsea await Osimhen's decision before advancing talks with Napoli**\
+`Chelsea are awaiting a green light from Victor Osimhen over a move Stamford Bridge before advancing talks with Napoli about signing him ahead of the transfer window closing.`\
+https://nytimes.com/athletic/5723540/2024/08/30/victor-osimhen-chelsea-napoli/
+
 **Blue Jackets' Gaudreau killed after being hit by car**\
 `Johnny Gaudreau and his brother Matthew were hit while riding bicycles in N.J. on Thursday night.`\
 https://nytimes.com/athletic/5733722/2024/08/30/johnny-gaudreau-death-cycling-crash/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5705371/2024/08/30/guehi-crystal-palace-glasner-new
 **Newcastle distance themselves from former owner's political endorsement video**\
 `Newcastle United have distanced themselves from a video filmed at St James&#8217; Park, in which former club owner Sir John Hall endorsed Conservative Party leadership candidate Robert Jenrick.`\
 https://nytimes.com/athletic/5733818/2024/08/30/newcastle-john-hall-video-st-james-park/
-
-**Stephen Curry sees a window of opportunity for the Warriors: 'It's still about winning'**\
-`Curry will be 39 when the contract extension he signed on Thursday ends. 'I’ve always said I wanted to play for one team my whole career.' `\
-https://nytimes.com/athletic/5733599/2024/08/30/stephen-curry-warriors-contract-extension/
 

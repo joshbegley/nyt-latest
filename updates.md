@@ -1,3 +1,7 @@
+**Chelsea await Osimhen's decision before advancing talks with Napoli**\
+`Chelsea are awaiting a green light from Victor Osimhen over a move Stamford Bridge before advancing talks with Napoli about signing him ahead of the transfer window closing.`\
+https://nytimes.com/athletic/5723540/2024/08/30/victor-osimhen-chelsea-napoli/
+
 **Blue Jackets' Gaudreau killed after being hit by car**\
 `Johnny Gaudreau and his brother Matthew were hit while riding bicycles in N.J. on Thursday night.`\
 https://nytimes.com/athletic/5733722/2024/08/30/johnny-gaudreau-death-cycling-crash/
