@@ -1,3 +1,7 @@
+**Soler joins West Ham on loan from PSG**\
+`Carlos Soler has signed for West Ham United from Paris Saint-Germain on a season-long loan.`\
+https://nytimes.com/athletic/5716320/2024/08/30/carlos-soler-west-ham-psg/
+
 **James Ward-Prowse to Nottingham Forest: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500 series, we look at England midfielder Ward-Prowse's loan move from West Ham to Forest`\
 https://nytimes.com/athletic/5733531/2024/08/30/james-ward-prowse-transfer-nottingham-forest/
