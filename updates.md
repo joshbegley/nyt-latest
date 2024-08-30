@@ -1,3 +1,7 @@
+**Tim Walz Is Happy to Help, Content to Be Ignored**\
+`In his CNN interview alongside Vice President Kamala Harris, Gov. Tim Walz of Minnesota didn’t field too many questions. When he did, he spoke about his family.`\
+https://nytimes.com/2024/08/30/us/elections/tim-walz-cnn-interview.html
+
 **A Donor’s Message, Revealed in a Museum Renovation: He Hated This Design**\
 `John Sainsbury disagreed with the design of his family’s namesake wing at London’s National Gallery. Three decades later, after his death, his critique rang anew.`\
 https://nytimes.com/2024/08/30/us/uk-national-gallery-letter-sainsbury-wing.html
