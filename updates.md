@@ -1,3 +1,11 @@
+**Coco Gauff needed a top-50 win. The U.S. Open was a good place to get it**\
+`The defending champion has struggled against top-50 opponents recently, but on Arthur Ashe Stadium her aura remains undimmed.`\
+https://nytimes.com/athletic/5734973/2024/08/30/coco-gauff-us-open-svitolina-top-50-record/
+
+**OpenAI Names Political Veteran Chris Lehane as Head of Global Policy**\
+`The prominent A.I. start-up is also considering a change to its corporate structure to make it more appealing to outside investors.`\
+https://nytimes.com/2024/08/30/technology/openai-chris-lehane.html
+
 **Soler joins West Ham on loan from PSG**\
 `Carlos Soler has signed for West Ham United from Paris Saint-Germain on a season-long loan.`\
 https://nytimes.com/athletic/5716320/2024/08/30/carlos-soler-west-ham-psg/

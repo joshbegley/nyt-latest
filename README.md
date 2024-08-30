@@ -1,3 +1,7 @@
+**The Best Books About Politics (According to You)**\
+`Here’s what we’re turning to for clarity and perspective on our current political moment.`\
+https://nytimes.com/2024/08/30/us/politics/political-books.html
+
 **Coco Gauff needed a top-50 win. The U.S. Open was a good place to get it**\
 `The defending champion has struggled against top-50 opponents recently, but on Arthur Ashe Stadium her aura remains undimmed.`\
 https://nytimes.com/athletic/5734973/2024/08/30/coco-gauff-us-open-svitolina-top-50-record/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5725990/2024/08/30/nketiah-arsenal-crystal-palace-t
 **Eddie Nketiah to Crystal Palace: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500 series, we look at Eddie Nketiah's move to Crystal Palace from Arsenal`\
 https://nytimes.com/athletic/5709938/2024/08/30/eddie-nketiah-to-crystal-palace-transfer-ratings/
-
-**Arsenal working to finalise Sterling loan deal**\
-`Chelsea forward Raheem Sterling has arrived at Arsenal&#8217;s training ground as all parties work to finalise a season-long loan deal.`\
-https://nytimes.com/athletic/5734804/2024/08/30/raheem-sterling-arsenal/
 
