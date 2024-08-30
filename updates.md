@@ -1,3 +1,7 @@
+**Chelsea expected to reach agreement to sign Sancho from Man United**\
+`Chelsea are expected to reach agreement with Manchester United to sign Jadon Sancho before the transfer window closes.`\
+https://nytimes.com/athletic/5650327/2024/08/30/jadon-sancho-chelsea-manchester-united-transfer/
+
 **Liverpool withdraw Hillsborough '97' pin badge after complaints**\
 `Liverpool have withdrawn a set of badges from circulation following a number of complaints from families of the 97 people who lost their lives at Hillsborough.`\
 https://nytimes.com/athletic/5734028/2024/08/30/liverpool-hillsborough-97-pin-badges/
