@@ -1,3 +1,7 @@
+**Arsenal working to finalise Sterling loan deal**\
+`Chelsea forward Raheem Sterling has arrived at Arsenal&#8217;s training ground as all parties work to finalise a season-long loan deal.`\
+https://nytimes.com/athletic/5734804/2024/08/30/raheem-sterling-arsenal/
+
 **Manuel Ugarte to Manchester United: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500 series, we look at Manuel Ugarte's move to Manchester United.`\
 https://nytimes.com/athletic/5705336/2024/08/30/manuel-ugarte-manchester-united-athletic-500-transfer-ratings/
@@ -24,7 +28,7 @@ https://nytimes.com/athletic/5734076/2024/08/30/aston-villa-morgan-rogers-englan
 https://nytimes.com/athletic/5734242/2024/08/30/mikel-merino-injury-arsenal/
 
 **Putin Plans First Visit to I.C.C. Member State Since Arrest Warrant**\
-`The Russian president will travel to Mongolia in his first trip to an I.C.C. member state since the court issued a warrant for his arrest in 2023.`\
+`The Russian president will travel to Mongolia, a member of the International Criminal Court, which issued a warrant for his arrest in 2023.`\
 https://nytimes.com/2024/08/30/world/europe/putin-visit-mongolia-icc.html
 
 **Trump’s Pitch to Parents**\
@@ -34,8 +38,4 @@ https://nytimes.com/2024/08/30/briefing/donald-trump-parents-campaign-israel-wes
 **Ravens, Tyler Huntley reunite as QB agrees to return to practice squad**\
 `Baltimore had one open spot on its practice squad, so Huntley’s addition will not force the team to make a corresponding move.`\
 https://nytimes.com/athletic/5734965/2024/08/30/ravens-tyler-huntley-returns-practice-squad/
-
-**F.B.I. Releases Redacted Report on Havana Syndrome**\
-`Some current and former officials have said the 2019 F.B.I. analysis sowed doubt within the C.I.A. and parts of the Trump administration about the root causes of the ailments.`\
-https://nytimes.com/2024/08/30/us/politics/fbi-havana-syndrome.html
 
