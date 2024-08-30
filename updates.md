@@ -1,3 +1,7 @@
+**Neto to Arsenal: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we look at Neto's move to Arsenal`\
+https://nytimes.com/athletic/5733511/2024/08/30/neto-to-arsenal-the-athletic-500-transfer-ratings/
+
 **United will miss McTominay - the local boy who never shirked a challenge**\
 `Academy-graduate midfielder McTominay was not technically proficient but his attitude was exemplary at a time when United needed it `\
 https://nytimes.com/athletic/5728203/2024/08/30/scott-mctominay-manchester-united-napoli/
