@@ -1,3 +1,19 @@
+**FPL Q&A: FPL Gameweek 3 advice from Ben Dinnery**\
+`Join Ben Dinnery for a live Gameweek 3 Fantasy Premier League Q&A from 4pm UK time on Friday`\
+https://nytimes.com/athletic/5733438/2024/08/30/fantasy-premier-league-advice-injury-news-gw3/
+
+**How the Raiders are setting the NFL's standard for post-playing career treatment**\
+`The Raiders’ Wellness Weekend in June had NFL executive Troy Vincent eager to encourage the rest of the league to follow suit. `\
+https://nytimes.com/athletic/5732375/2024/08/30/las-vegas-raiders-nfl-players-alumni-wellness/
+
+**Leeds complete signing of Tanaka**\
+`Leeds United have announced the signing of Ao Tanaka from Fortuna Dusseldorf on a permanent transfer.`\
+https://nytimes.com/athletic/5733611/2024/08/30/leeds-united-ao-tanaka-transfer/
+
+**The Athletic’s Friday football quiz question #19**\
+`The Athletic's weekly conundrum from inside the trivia vaults`\
+https://nytimes.com/athletic/5732129/2024/08/30/the-athletics-friday-football-quiz-question-19/
+
 **Meghoma set for Brentford move from Southampton**\
 `Jayden Meghoma is undergoing a medical at Brentford ahead of proposed permanent transfer from Southampton.`\
 https://nytimes.com/athletic/5733595/2024/08/30/brentford-jayden-meghoma-transfer-southampton/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5733576/2024/08/30/nottingham-forest-morato-transfe
 **What I’m hearing about the Big 12: UConn, naming rights, private equity and more**\
 `The perpetually open-for-business Big 12 is making headlines again. Here’s a rundown of what’s going on with the new-look, 16-team league.`\
 https://nytimes.com/athletic/5732442/2024/08/30/big-12-uconn-naming-rights/
-
-**Assessing Manchester United's squad for 2024-25: Is improvement on the cards?**\
-`Ten Hag has been backed this summer and the significant additions made in the market suggest United will improve from last season's mess`\
-https://nytimes.com/athletic/3453102/2024/08/30/manchester-united-squad-ten-hag/
-
-**What Phil Donahue Meant to Me**\
-`The iconic daytime television host redefined the genre, letting the audience participate for the first time.`\
-https://nytimes.com/2024/08/30/podcasts/the-daily/phil-donahue.html
-
-**Barcelona, mass tourism and the protests targeting foreign visitors**\
-`As opposition grows to a rising number of foreign visitors, FC Barcelona is watching with interest`\
-https://nytimes.com/athletic/5731375/2024/08/30/barcelona-tourism-protests-camp-nou-tickets/
-
-**Gaza Fighting to Pause for Polio Vaccinations, and Harris’s CNN Interview**\
-`Plus, complacency as Covid cases surge.`\
-https://nytimes.com/2024/08/30/podcasts/gaza-polio-vaccines-kamala-harriss-interview.html
 

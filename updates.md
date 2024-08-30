@@ -1,3 +1,19 @@
+**FPL Q&A: FPL Gameweek 3 advice from Ben Dinnery**\
+`Join Ben Dinnery for a live Gameweek 3 Fantasy Premier League Q&A from 4pm UK time on Friday`\
+https://nytimes.com/athletic/5733438/2024/08/30/fantasy-premier-league-advice-injury-news-gw3/
+
+**How the Raiders are setting the NFL's standard for post-playing career treatment**\
+`The Raiders’ Wellness Weekend in June had NFL executive Troy Vincent eager to encourage the rest of the league to follow suit. `\
+https://nytimes.com/athletic/5732375/2024/08/30/las-vegas-raiders-nfl-players-alumni-wellness/
+
+**Leeds complete signing of Tanaka**\
+`Leeds United have announced the signing of Ao Tanaka from Fortuna Dusseldorf on a permanent transfer.`\
+https://nytimes.com/athletic/5733611/2024/08/30/leeds-united-ao-tanaka-transfer/
+
+**The Athletic’s Friday football quiz question #19**\
+`The Athletic's weekly conundrum from inside the trivia vaults`\
+https://nytimes.com/athletic/5732129/2024/08/30/the-athletics-friday-football-quiz-question-19/
+
 **Meghoma set for Brentford move from Southampton**\
 `Jayden Meghoma is undergoing a medical at Brentford ahead of proposed permanent transfer from Southampton.`\
 https://nytimes.com/athletic/5733595/2024/08/30/brentford-jayden-meghoma-transfer-southampton/
