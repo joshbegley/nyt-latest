@@ -1,3 +1,7 @@
+**‘We are all afraid’: As Israel’s raid continues, residents of Jenin feel trapped.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/08/30/world/israel-hamas-gaza-war/we-are-all-afraid-as-israels-raid-continues-residents-of-jenin-feel-trapped
+
 **Inspectors Found Mold and Meat Residue at a Boar’s Head Plant. How Could This Happen?**\
 `It’s easy for people to complain about excessive regulation, but consumers shouldn’t forget how hard it is to keep mass-produced food safe.`\
 https://nytimes.com/live/2024/08/27/opinion/thepoint/boars-head-listeria-outbreak
