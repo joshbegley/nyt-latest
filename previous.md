@@ -1,3 +1,11 @@
+**In a Robbie Williams Biopic, the Star Is a C.G.I. Monkey. That’s Right.**\
+`The director Michael Gracey hopes Americans will finally get the British hitmaker, who’s depicted warts, fur and all in “Better Man,” debuting at the Telluride Film Festival.`\
+https://nytimes.com/2024/08/30/movies/robbie-williams-biopic-better-man-monkey.html
+
+**Forever 'Johnny Hockey': Gaudreau's inspiring skill transcended his size**\
+`The 5-foot-7, 160-pound left winger touched and inspired an enormous number of lives.`\
+https://nytimes.com/athletic/5734785/2024/08/30/johnny-gaudreau-nhl-flames-blue-jackets-legacy/
+
 **Leicester sign Edouard from Crystal Palace**\
 `Leicester City have signed striker Odsonne Edouard on a season-long loan from Crystal Palace.`\
 https://nytimes.com/athletic/5734574/2024/08/30/leicester-city-odsonne-edouard/
@@ -19,7 +27,7 @@ https://nytimes.com/athletic/5735200/2024/08/30/tiafoe-shelton-us-open-result/
 https://nytimes.com/2024/08/30/us/politics/political-books.html
 
 **Coco Gauff needed a top-50 win. The U.S. Open was a good place to get it**\
-`The defending champion has struggled against top-50 opponents recently, but on Arthur Ashe Stadium her aura remains undimmed.`\
+`The defending champion has struggled against top-50 opponents recently, but on Arthur Ashe Stadium, her aura remains undimmed.`\
 https://nytimes.com/athletic/5734973/2024/08/30/coco-gauff-us-open-svitolina-top-50-record/
 
 **OpenAI Names Political Veteran Chris Lehane as Head of Global Policy**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/30/technology/openai-chris-lehane.html
 **Soler joins West Ham on loan from PSG**\
 `Carlos Soler has signed for West Ham United from Paris Saint-Germain on a season-long loan.`\
 https://nytimes.com/athletic/5716320/2024/08/30/carlos-soler-west-ham-psg/
-
-**James Ward-Prowse to Nottingham Forest: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500 series, we look at England midfielder Ward-Prowse's loan move from West Ham to Forest`\
-https://nytimes.com/athletic/5733531/2024/08/30/james-ward-prowse-transfer-nottingham-forest/
-
-**Everton make late approach to sign Chelsea striker Broja, Ipswich out of deal**\
-`Everton have made a late approach to sign Chelsea striker Armando Broja.`\
-https://nytimes.com/athletic/5735081/2024/08/30/armando-broja-everton-chelsea-transfer/
 

@@ -1,3 +1,15 @@
+**In a Robbie Williams Biopic, the Star Is a C.G.I. Monkey. That’s Right.**\
+`The director Michael Gracey hopes Americans will finally get the British hitmaker, who’s depicted warts, fur and all in “Better Man,” debuting at the Telluride Film Festival.`\
+https://nytimes.com/2024/08/30/movies/robbie-williams-biopic-better-man-monkey.html
+
+**Forever 'Johnny Hockey': Gaudreau's inspiring skill transcended his size**\
+`The 5-foot-7, 160-pound left winger touched and inspired an enormous number of lives.`\
+https://nytimes.com/athletic/5734785/2024/08/30/johnny-gaudreau-nhl-flames-blue-jackets-legacy/
+
+**Coco Gauff needed a top-50 win. The U.S. Open was a good place to get it**\
+`The defending champion has struggled against top-50 opponents recently, but on Arthur Ashe Stadium, her aura remains undimmed.`\
+https://nytimes.com/athletic/5734973/2024/08/30/coco-gauff-us-open-svitolina-top-50-record/
+
 **Leicester sign Edouard from Crystal Palace**\
 `Leicester City have signed striker Odsonne Edouard on a season-long loan from Crystal Palace.`\
 https://nytimes.com/athletic/5734574/2024/08/30/leicester-city-odsonne-edouard/
