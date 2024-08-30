@@ -1,3 +1,11 @@
+**Top candidates to join ESPN's NBA Finals broadcasting team emerge**\
+`The network’s lead NBA broadcast team has been in flux for more than a year after ESPN decided to fire Jeff Van Gundy and Mark Jackson.`\
+https://nytimes.com/athletic/5734238/2024/08/30/nba-finals-espn-crew-grant-hill-jay-bilas-richard-jefferson/
+
+**Eminem and LL Cool J Duel in Speedy Raps, and 9 More New Songs**\
+`Hear tracks by Sophie featuring Bibi Bourelly, Kim Deal, Tommy Richman and more.`\
+https://nytimes.com/2024/08/30/arts/music/playlist-ll-cool-j-eminem-sophie.html
+
 **Assessing the Harris-Walz Interview on CNN**\
 `Readers offer criticism, praise and a cabinet suggestion. Also: Pardon Trump; attacks on humanitarian aid workers; loser shouldn’t pay.`\
 https://nytimes.com/2024/08/30/opinion/letters/harris-walz-interview-cnn.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5731917/2024/08/30/football-parlay-fridays-college-
 **Why Williams felt Logan Sargeant reached his limit in F1: 'It was clear to everyone'**\
 `As Franco Colapinto took his first F1 laps at Monza, Williams boss James Vowles explained the move to replace Sargeant.`\
 https://nytimes.com/athletic/5733990/2024/08/30/logan-sargeant-williams-f1-vowles-schumacher-driver/
-
-**Royals' Pasquantino to miss 6-8 weeks**\
-`It's just the latest injury for the Royals, who placed Hunter Renfroe and Michael Lorenzen on the IL earlier this week.`\
-https://nytimes.com/athletic/5734185/2024/08/30/vinnie-pasquantino-broken-thumb-royals/
-
-**How Do You Change a Chatbot’s Mind?**\
-`When I set out to improve my tainted reputation with chatbots, I discovered a new world of A.I. manipulation.`\
-https://nytimes.com/2024/08/30/technology/ai-chatbot-chatgpt-manipulation.html
 

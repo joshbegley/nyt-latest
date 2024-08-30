@@ -1,3 +1,11 @@
+**Top candidates to join ESPN's NBA Finals broadcasting team emerge**\
+`The network’s lead NBA broadcast team has been in flux for more than a year after ESPN decided to fire Jeff Van Gundy and Mark Jackson.`\
+https://nytimes.com/athletic/5734238/2024/08/30/nba-finals-espn-crew-grant-hill-jay-bilas-richard-jefferson/
+
+**Eminem and LL Cool J Duel in Speedy Raps, and 9 More New Songs**\
+`Hear tracks by Sophie featuring Bibi Bourelly, Kim Deal, Tommy Richman and more.`\
+https://nytimes.com/2024/08/30/arts/music/playlist-ll-cool-j-eminem-sophie.html
+
 **Assessing the Harris-Walz Interview on CNN**\
 `Readers offer criticism, praise and a cabinet suggestion. Also: Pardon Trump; attacks on humanitarian aid workers; loser shouldn’t pay.`\
 https://nytimes.com/2024/08/30/opinion/letters/harris-walz-interview-cnn.html
