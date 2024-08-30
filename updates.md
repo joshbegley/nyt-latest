@@ -1,3 +1,11 @@
+**Southampton sign Ramsdale from Arsenal**\
+`Southampton have completed the signing of Arsenal goalkeeper Aaron Ramsdale.`\
+https://nytimes.com/athletic/5731050/2024/08/30/southampton-sign-aaron-ramsdale-arsenal/
+
+**Israeli forces pull back from Tulkarm but press on with their raid of Jenin, officials say.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/08/30/world/israel-hamas-gaza-war/israeli-forces-pull-back-from-tulkarm-but-press-on-with-their-raid-of-jenin-officials-say
+
 **West Ham closing in on deal to sign Carlos Soler from PSG**\
 `West Ham United are making progress over a deal to sign Carlos Soler from Paris Saint-Germain.`\
 https://nytimes.com/athletic/5733627/2024/08/30/carlos-soler-psg-west-ham-transfer/
