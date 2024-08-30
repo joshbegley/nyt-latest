@@ -1,40 +1,40 @@
-**A Panorama of Design**\
-`A look at design-world events, products and people.`\
-https://nytimes.com/2024/08/30/style/design-products.html
+**5 Things to Do This Weekend**\
+`A selection of entertainment highlights this weekend, including Lee Daniels’s “The Deliverance,” a tale of possession based on a true story.`\
+https://nytimes.com/interactive/2024/08/30/arts/weekend-editors-picks-the-deliverance.html
 
-**The West Indian American Day Parade: A Caribbean Celebration**\
-`The annual Labor Day extravaganza lights up Eastern Parkway in Brooklyn on Monday. Preparade festivities begin Sunday.`\
-https://nytimes.com/2024/08/30/nyregion/west-indian-day-parade-brooklyn.html
+**I Used to Be Resilient. What Happened?**\
+`These days, getting cut off in traffic can send me on an emotional rollercoaster. So I asked experts how to get mentally tougher.`\
+https://nytimes.com/2024/08/30/well/mental-resilience-tips.html
 
-**$900,000 Homes in Malta**\
-`A sunny three-bedroom house with a courtyard; a corner townhouse with a rooftop terrace; a house of character in a traditional village.`\
-https://nytimes.com/2024/08/30/realestate/900000-homes-in-malta.html
+**Boar’s Head Plant Tied to 9 Deaths Had Mold, Leaky Pipes and Flies**\
+`Federal inspectors cited continuing problems at a deli meat plant in Virginia that was linked to an outbreak of listeria, records indicate.`\
+https://nytimes.com/2024/08/30/health/listeria-outbreak-boars-head-deli-meat.html
 
-**The Report Card on Guaranteed Income Is Still Incomplete**\
-`A three-year analysis of unconditional cash stipends concluded that the initiative has had some success, but not the transformational impact its proponents hoped for.`\
-https://nytimes.com/2024/08/30/business/economy/the-report-card-on-guaranteed-income-is-still-incomplete.html
+**How Mexico’s Judicial Overhaul Compares to Other Countries**\
+`President Andrés Manuel López Obrador’s plan for transforming the judiciary goes much further than other countries that allow some judges to be elected.`\
+https://nytimes.com/2024/08/30/world/americas/mexico-judicial-overhaul-comparison.html
 
-**Tuition: $9,400. Dorm Room Interior Designer: $10,000?**\
-`Some students arrive on campus expecting certain comforts. And they, or their parents, are willing to pay thousands to settle in.`\
-https://nytimes.com/2024/08/30/realestate/college-dorm-room-interior-designer.html
+**The Telegram Problem + Gov. Kathy Hochul on School Phone Bans + Kevin’s A.I. Reputation Rehab**\
+`Tech platforms and governments are in a standoff.`\
+https://nytimes.com/2024/08/30/podcasts/hardfork-telegram-hochul-reputation.html
 
-**Will Walz’s Rural Upbringing Lure Small-Town Swing Voters?**\
-`In Wisconsin, Tim Walz’s regular-guy image, a selling point for the Democratic ticket, is up against skeptics who find Donald J. Trump’s politics more relatable.`\
-https://nytimes.com/2024/08/30/us/elections/tim-walz-wisconsin-swing-state-voters.html
+**Johnstone completes transfer to Wolves from Palace**\
+`Wolverhampton Wanderers have completed the signing of goalkeeper Sam Johnstone from Crystal Palace for a fee of £10million.`\
+https://nytimes.com/athletic/5727177/2024/08/30/sam-johnstone-wolves-transfer/
 
-**‘English Teacher’ Finds Surprising Humor in Polarizing Subjects**\
-`In his new FX sitcom, the actor and comedian Brian Jordan Alvarez hopes to show that airing out cultural rifts doesn’t have to be serious business.`\
-https://nytimes.com/2024/08/30/arts/television/brian-jordan-alvarez-english-teacher.html
+**The California Shoplifting Law That Trump Says Is Too Lenient**\
+`Donald J. Trump has said that California allows thieves to steal goods in the state’s stores and falsely blamed Vice President Kamala Harris for it.`\
+https://nytimes.com/2024/08/30/us/california-shoplifting-trump-harris.html
 
-**San Francisco Museum Start-Up Makes a Move**\
-`Two years after its founding, the Institute of Contemporary Art San Francisco is moving downtown.`\
-https://nytimes.com/2024/08/30/arts/design/ica-insitute-contemporary-art-san-francisco.html
+**Paris Is Utopia for Paralympians Until They Leave the Athletes’ Village**\
+`The city built highly accessible accommodations for competitors in the 2024 Paralympic Games. But the rest of Paris remains difficult to navigate.`\
+https://nytimes.com/2024/08/30/world/olympics/paris-paralympics-accessibility.html
 
-**Imperiled by Volcanic Eruptions, Iceland Scoops Up Answers From the Deep**\
-`Earth scientists are working to determine the course of future lava flows in Iceland’s southwestern corner one bucketful at a time.`\
-https://nytimes.com/2024/08/30/science/iceland-volcano-eruption-lava.html
+**All Hail Farro, Queen of the Make-Ahead Salad**\
+`This colorful grain salad is laced with juicy stone fruit and milky burrata cheese.`\
+https://nytimes.com/2024/08/30/dining/farro-burrata-salad.html
 
-**Why Interest Rate Cuts Won’t Fix a Global Housing Affordability Crisis**\
-`Central bankers are lowering borrowing costs, but that won’t be a cure-all for a widespread lack of affordable housing.`\
-https://nytimes.com/2024/08/30/business/economy/interest-rate-cuts-housing-affordability-crisis.html
+**Presidential Campaigns Are Changing Their TikTok Strategies**\
+`Kamala Harris, Tim Walz and Donald J. Trump are turning to niche TikTok creators for friendly spaces to humanize themselves and reach young voters.`\
+https://nytimes.com/2024/08/30/style/tiktok-creators-harris-walz-trump.html
 

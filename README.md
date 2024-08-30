@@ -1,3 +1,7 @@
+**'He's special': Ahead of his Reds debut, Rhett Lowder earns raves from veteran catcher**\
+`Lowder, the No. 7 pick in the 2023 draft, debuts Friday night against the Brewers despite only one Triple-A start. `\
+https://nytimes.com/athletic/5732647/2024/08/30/reds-rhett-lowder-debut-tucker-barnhart-reaction/
+
 **5 Things to Do This Weekend**\
 `A selection of entertainment highlights this weekend, including Lee Daniels’s “The Deliverance,” a tale of possession based on a true story.`\
 https://nytimes.com/interactive/2024/08/30/arts/weekend-editors-picks-the-deliverance.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/30/world/olympics/paris-paralympics-accessibility.ht
 **All Hail Farro, Queen of the Make-Ahead Salad**\
 `This colorful grain salad is laced with juicy stone fruit and milky burrata cheese.`\
 https://nytimes.com/2024/08/30/dining/farro-burrata-salad.html
-
-**Presidential Campaigns Are Changing Their TikTok Strategies**\
-`Kamala Harris, Tim Walz and Donald J. Trump are turning to niche TikTok creators for friendly spaces to humanize themselves and reach young voters.`\
-https://nytimes.com/2024/08/30/style/tiktok-creators-harris-walz-trump.html
 
