@@ -1,6 +1,18 @@
+**Palace to sign Chalobah on loan from Chelsea**\
+`Crystal Palace have reached an agreement with Chelsea to sign defender Trevoh Chalobah on loan.`\
+https://nytimes.com/athletic/5688678/2024/08/30/crystal-palace-trevoh-chalobah/
+
+**Why We Don’t Build Beautifully**\
+`How ideas and not economics changed the way our cities look.`\
+https://nytimes.com/2024/08/30/opinion/architecture-ideas-economics.html
+
+**Pacers, T.J. McConnell agree to multiyear extension**\
+`The 32-year-old is now under contract through the 2028-29 season.`\
+https://nytimes.com/athletic/5734628/2024/08/30/tj-mcconnell-pacers-contract-extension/
+
 **They Traveled Home After Defending Ukraine, and Ended Up in a Russian Prison**\
 `Two Colombian soldiers who had fought for Ukraine are now under arrest in Moscow. They wound up there after stopping over in Venezuela, which apparently extradited them.`\
-https://nytimes.com/2024/08/30/world/venezuela-ukraine-military-russia.html
+https://nytimes.com/2024/08/30/world/americas/venezuela-ukraine-military-russia.html
 
 **10 Unforgettable Songs From 1999 Movies**\
 `Listen to tracks by the Chicks, Aimee Mann, Blink-182 and more linked to moments in a monumentally interesting — and busy — year of cinema.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/30/movies/nicole-kidman-babygirl-venice-film-festiva
 **The ‘Middle’ Is a Muddle**\
 `Everybody loves the middle class. Nobody wants to be mid, or middling. “Middle” is a tricky word.`\
 https://nytimes.com/interactive/2024/08/30/books/middle-class-politics.html
-
-**What Was Your Personal Song of the Summer?**\
-`We want to know your seasonal anthem, for a future Amplifier playlist.`\
-https://nytimes.com/2024/08/30/arts/music/what-was-your-song-of-the-summer.html
-
-**Gerardo Martino Q&A: Managing Lionel Messi, the rise of Inter Miami, and the art of suffering**\
-`Inter Miami head coach Gerardo Martino on the team's rise, the impact of the Barca boys, and how MLS has changed him`\
-https://nytimes.com/athletic/5733260/2024/08/30/gerardo-martino-inter-miami-messi/
-
-**The Big Number: 100 Percent**\
-`The Canadian government will impose a new tariff on electric vehicles made in China, further escalating trade tensions between Western countries and China.`\
-https://nytimes.com/2024/08/30/business/the-big-number-100-percent.html
 
