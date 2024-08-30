@@ -1,3 +1,11 @@
+**Botic van de Zandschulp beats Carlos Alcaraz in huge U.S. Open upset**\
+`ARTHUR ASHE STADIUM, N.`\
+https://nytimes.com/athletic/5733308/2024/08/29/carlos-alcaraz-us-open-result-van-de-zandschulp/
+
+**NFL Draft: Shedeur Sanders shines vs. NDSU, but can he sustain this pace all season?**\
+`Sanders put up 445 yards and four touchdowns but also took several big hits in a hard-fought win. `\
+https://nytimes.com/athletic/5733232/2024/08/29/shedeur-sanders-nfl-draft-north-dakota-state/
+
 **On Marcell Ozuna's shot at Triple Crown and Braves' brutal loss in series opener at Philly**\
 `Ozuna isn't likely to win NL MVP over Shohei Ohtani, but he still has the chance to surge past him and win a Triple Crown.`\
 https://nytimes.com/athletic/5733267/2024/08/29/braves-marcell-ozuna-triple-crown-chances/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/29/nyregion/trump-hush-money-case.html
 **Kamala Harris’s TV Interview Was a Solid First Effort**\
 `The Democratic nominee did a solid job.`\
 https://nytimes.com/live/2024/08/27/opinion/thepoint/harris-first-interview
-
-**Kawakami: Weirdest negotiation ever got the 49ers and Brandon Aiyuk a fair deal**\
-`Remember when Aiyuk was in Kyle Shanahan's doghouse? He bounced back from that and probably will be fine after this long negotiation.`\
-https://nytimes.com/athletic/5733033/2024/08/29/brandon-aiyuk-49ers-deal-contract-negotiation-kawakami/
-
-**Marked Twain**\
-`Colin Adams opens our solving weekend.`\
-https://nytimes.com/2024/08/29/crosswords/daily-puzzle-2024-08-30.html
 
