@@ -1,3 +1,7 @@
+**The Athletic FC: The big questions on transfer deadline day with Toney set for Saudi move**\
+`Today in The Athletic FC: We bring you the big questions from Premier League deadline day - and the reaction to the Champions League draw.`\
+https://nytimes.com/athletic/5733559/2024/08/30/deadline-day-toney-saudi/
+
 **FPL Q&A: FPL Gameweek 3 advice from Ben Dinnery**\
 `Join Ben Dinnery for a live Gameweek 3 Fantasy Premier League Q&A from 4pm UK time on Friday`\
 https://nytimes.com/athletic/5733438/2024/08/30/fantasy-premier-league-advice-injury-news-gw3/
