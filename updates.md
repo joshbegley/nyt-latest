@@ -1,3 +1,11 @@
+**Sidewalk Cafes Are the Latest Target of New York’s Outdoor Dining Crackdown**\
+`Under new outdoor dining rules, inspectors are ticketing some restaurants and coffeehouses that have a few chairs or tables outside but no formal structures.`\
+https://nytimes.com/2024/08/30/nyregion/ny-outdoor-dining-rules.html
+
+**A $75 Million Animal Shelter Opened in Queens. It’s Already Overwhelmed.**\
+`The brand-new building was designed to hold 72 dogs. After only a month, it already has more than twice that.`\
+https://nytimes.com/2024/08/30/nyregion/queens-animal-shelter.html
+
 **On Relationships, a Reporter Connects With Readers**\
 `How do I repair my marriage? How can I strengthen my friendships? Catherine Pearson, a writer on the Well desk, helps readers find answers to these questions and more.`\
 https://nytimes.com/2024/08/30/insider/relationship-questions.html

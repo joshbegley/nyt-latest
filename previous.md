@@ -1,3 +1,11 @@
+**Sidewalk Cafes Are the Latest Target of New York’s Outdoor Dining Crackdown**\
+`Under new outdoor dining rules, inspectors are ticketing some restaurants and coffeehouses that have a few chairs or tables outside but no formal structures.`\
+https://nytimes.com/2024/08/30/nyregion/ny-outdoor-dining-rules.html
+
+**A $75 Million Animal Shelter Opened in Queens. It’s Already Overwhelmed.**\
+`The brand-new building was designed to hold 72 dogs. After only a month, it already has more than twice that.`\
+https://nytimes.com/2024/08/30/nyregion/queens-animal-shelter.html
+
 **On Relationships, a Reporter Connects With Readers**\
 `How do I repair my marriage? How can I strengthen my friendships? Catherine Pearson, a writer on the Well desk, helps readers find answers to these questions and more.`\
 https://nytimes.com/2024/08/30/insider/relationship-questions.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/30/world/australia/maori-king-tuheitia-dead-new-zeal
 **Tim Walz Is Happy to Help, Content to Be Ignored**\
 `In his CNN interview alongside Vice President Kamala Harris, Gov. Tim Walz of Minnesota didn’t field too many questions. When he did, he spoke about his family.`\
 https://nytimes.com/2024/08/30/us/elections/tim-walz-cnn-interview.html
-
-**A Donor’s Message, Revealed in a Museum Renovation: He Hated This Design**\
-`John Sainsbury disagreed with the design of his family’s namesake wing at London’s National Gallery. Three decades later, after his death, his critique rang anew.`\
-https://nytimes.com/2024/08/30/us/uk-national-gallery-letter-sainsbury-wing.html
-
-**Liverpool showed in 17 seconds how they want to play under Slot**\
-`An intricate but fast-paced passing move against Brentford gave a glimpse of new manager's principles`\
-https://nytimes.com/athletic/5728313/2024/08/30/liverpool-arne-slot-football/
 
