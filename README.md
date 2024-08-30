@@ -1,3 +1,7 @@
+**Kamala Harris’s TV Interview Was a Solid First Effort**\
+`The Democratic nominee did a solid job.`\
+https://nytimes.com/live/2024/08/27/opinion/thepoint/harris-first-interview
+
 **Kawakami: Weirdest negotiation ever got the 49ers and Brandon Aiyuk a fair deal**\
 `Remember when Aiyuk was in Kyle Shanahan's doghouse? He bounced back from that and probably will be fine after this long negotiation.`\
 https://nytimes.com/athletic/5733033/2024/08/29/brandon-aiyuk-49ers-deal-contract-negotiation-kawakami/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/29/business/media/cnn-dana-bash-harris-interview.htm
 **Trump ‘tasked his E.P.A. with addressing dangerous chemicals like PFAS to ensure safe firefighter gear.’**\
 `By Lisa Friedman`\
 https://nytimes.com/live/2024/08/29/us/harris-trump-election/trump-tasked-his-epa-with-addressing-dangerous-chemicals-like-pfas-to-ensure-safe-firefighter-gear
-
-**China Dominates the Situation Room But Not the Campaign Trail**\
-`The thorny issues raised by America’s most potent geopolitical challenge are reduced to platitudes.`\
-https://nytimes.com/2024/08/29/us/politics/trump-harris-china-tiktok.html
 
