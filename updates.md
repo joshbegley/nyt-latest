@@ -1,3 +1,7 @@
+**Chelsea agree deal to sign Sancho**\
+`Chelsea have reached an agreement to sign Jadon Sancho from Manchester United.`\
+https://nytimes.com/athletic/5734401/2024/08/30/chelsea-jadon-sancho-transfer/
+
 **Manchester United sign Ugarte from PSG**\
 `Manchester United have completed the signing of Manuel Ugarte from Paris Saint-Germain.`\
 https://nytimes.com/athletic/5725734/2024/08/30/manchester-united-manuel-ugarte-transfer/

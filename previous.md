@@ -1,3 +1,7 @@
+**Chelsea agree deal to sign Sancho**\
+`Chelsea have reached an agreement to sign Jadon Sancho from Manchester United.`\
+https://nytimes.com/athletic/5734401/2024/08/30/chelsea-jadon-sancho-transfer/
+
 **Manchester United sign Ugarte from PSG**\
 `Manchester United have completed the signing of Manuel Ugarte from Paris Saint-Germain.`\
 https://nytimes.com/athletic/5725734/2024/08/30/manchester-united-manuel-ugarte-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5733511/2024/08/30/neto-to-arsenal-the-athletic-500
 **Florida Family Spent $6 Million on Fake Warhols, Lawsuit Claims**\
 `The family sued a Miami gallery, accusing it of going to elaborate lengths to pass off forged artworks as authentic Andy Warhols; the art dealer denied the allegations.`\
 https://nytimes.com/2024/08/30/arts/andy-warhol-forgeries-lawsuit.html
-
-**Neto joins Arsenal on season-long loan from Bournemouth**\
-`Arsenal have completed the signing of Bournemouth goalkeeper Neto on a season-long loan.`\
-https://nytimes.com/athletic/5733412/2024/08/30/neto-arsenal-transfer/
 
