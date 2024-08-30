@@ -18,6 +18,10 @@ https://nytimes.com/athletic/5733492/2024/08/30/liverpool-chiesa-slot-man-united
 `Lowder, the No. 7 pick in the 2023 draft, debuts Friday night against the Brewers despite only one Triple-A start. `\
 https://nytimes.com/athletic/5732647/2024/08/30/reds-rhett-lowder-debut-tucker-barnhart-reaction/
 
+**The New York Times News Quiz, August 30, 2024**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2024/08/30/briefing/news-quiz-harris-interview.html
+
 **5 Things to Do This Weekend**\
 `A selection of entertainment highlights this weekend, including Lee Daniels’s “The Deliverance,” a tale of possession based on a true story.`\
 https://nytimes.com/interactive/2024/08/30/arts/weekend-editors-picks-the-deliverance.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/30/health/listeria-outbreak-boars-head-deli-meat.htm
 **How Mexico’s Judicial Overhaul Compares to Other Countries**\
 `President Andrés Manuel López Obrador’s plan for transforming the judiciary goes much further than other countries that allow some judges to be elected.`\
 https://nytimes.com/2024/08/30/world/americas/mexico-judicial-overhaul-comparison.html
-
-**The Telegram Problem + Gov. Kathy Hochul on School Phone Bans + Kevin’s A.I. Reputation Rehab**\
-`Tech platforms and governments are in a standoff.`\
-https://nytimes.com/2024/08/30/podcasts/hardfork-telegram-hochul-reputation.html
 
