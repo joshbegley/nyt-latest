@@ -1,3 +1,7 @@
+**Ukraine Investigating Potential Causes of the Crash of an F-16**\
+`There are indications that friendly fire may have been involved, a Western official said.`\
+https://nytimes.com/2024/08/30/world/europe/ukraine-f16-crash.html
+
 **Labor Day Weekend Is Here. Let’s Cook.**\
 `Lean into the long weekend with jerk chicken and coconut rice, hot dogs, a big tomato salad and no-bake cheesecake bars.`\
 https://nytimes.com/2024/08/30/dining/labor-day-weekend-is-here-lets-cook.html
@@ -34,4 +38,3 @@ https://nytimes.com/2024/08/30/us/trump-moms-for-liberty-school-boards.html
 `Discuss our September book club selection, “The Hypocrite,” by Jo Hamya, with the Book Review.`\
 https://nytimes.com/2024/08/30/books/review/the-hypocrite-book-club-main-conversation.html
 
-**Learn More About the Book**\
