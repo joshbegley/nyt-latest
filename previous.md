@@ -1,3 +1,7 @@
+**Trump’s Pitch to Parents**\
+`Also, an obesity drug may prevent Covid deaths. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/08/30/briefing/donald-trump-parents-campaign-israel-west-bank.html
+
 **Ravens, Tyler Huntley reunite as QB agrees to return to practice squad**\
 `The Ravens had one open spot on their practice squad, so Huntley’s addition will not force them to make a corresponding move.`\
 https://nytimes.com/athletic/5734965/2024/08/30/ravens-tyler-huntley-returns-practice-squad/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/30/us/politics/giuliani-georgia-election-workers-con
 **Chelsea on verge of agreeing Sancho deal**\
 `Chelsea are on the verge of signing Jadon Sancho from Manchester United.`\
 https://nytimes.com/athletic/5734401/2024/08/30/chelsea-jadon-sancho-transfer-loan/
-
-**UNC's Max Johnson to miss remainder of season due to broken leg**\
-`Sophomore Conner Harrell replaced Johnson, who exited following a hit by Minnesota's Justin Walley in the third quarter.`\
-https://nytimes.com/athletic/5733317/2024/08/30/max-johnson-unc-injury-minnesota/
 
