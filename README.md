@@ -7,7 +7,7 @@ https://nytimes.com/2024/08/30/world/europe/putin-visit-mongolia-icc.html
 https://nytimes.com/2024/08/30/briefing/donald-trump-parents-campaign-israel-west-bank.html
 
 **Ravens, Tyler Huntley reunite as QB agrees to return to practice squad**\
-`The Ravens had one open spot on their practice squad, so Huntley’s addition will not force them to make a corresponding move.`\
+`Baltimore had one open spot on its practice squad, so Huntley’s addition will not force the team to make a corresponding move.`\
 https://nytimes.com/athletic/5734965/2024/08/30/ravens-tyler-huntley-returns-practice-squad/
 
 **F.B.I. Releases Redacted Report on Havana Syndrome**\
