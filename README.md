@@ -1,3 +1,7 @@
+**Trump Tries to Move Hush-Money Case to Federal Court Before Sentencing**\
+`The long-shot request, which the former president made Thursday night, is an attempt to avoid sentencing in his criminal case, scheduled for Sept. 18.`\
+https://nytimes.com/2024/08/29/nyregion/trump-hush-money-case.html
+
 **Kamala Harris’s TV Interview Was a Solid First Effort**\
 `The Democratic nominee did a solid job.`\
 https://nytimes.com/live/2024/08/27/opinion/thepoint/harris-first-interview
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/29/us/politics/harris-cnn-interview.html
 **How Dana Bash Handled Past Interviews With Kamala Harris**\
 `The CNN anchor has been a firm-but-fair interlocutor in three previous interviews with Ms. Harris in the past few years.`\
 https://nytimes.com/2024/08/29/business/media/cnn-dana-bash-harris-interview.html
-
-**Trump ‘tasked his E.P.A. with addressing dangerous chemicals like PFAS to ensure safe firefighter gear.’**\
-`By Lisa Friedman`\
-https://nytimes.com/live/2024/08/29/us/harris-trump-election/trump-tasked-his-epa-with-addressing-dangerous-chemicals-like-pfas-to-ensure-safe-firefighter-gear
 
