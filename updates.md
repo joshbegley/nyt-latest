@@ -1,3 +1,15 @@
+**Why Williams felt Logan Sargeant reached his limit in F1: 'It was clear to everyone'**\
+`As Franco Colapinto took his first F1 laps at Monza, Williams boss James Vowles explained the move to replace Sargeant.`\
+https://nytimes.com/athletic/5733990/2024/08/30/logan-sargeant-williams-f1-vowles-schumacher-driver/
+
+**Royals' Pasquantino to miss 6-8 weeks**\
+`It's just the latest injury for the Royals, who placed Hunter Renfroe and Michael Lorenzen on the IL earlier this week.`\
+https://nytimes.com/athletic/5734185/2024/08/30/vinnie-pasquantino-broken-thumb-royals/
+
+**How Do You Change a Chatbot’s Mind?**\
+`When I set out to improve my tainted reputation with chatbots, I discovered a new world of A.I. manipulation.`\
+https://nytimes.com/2024/08/30/technology/ai-chatbot-chatgpt-manipulation.html
+
 **Remembering Johnny Gaudreau and Matthew Gaudreau: 'Those two guys ... elevated everything'**\
 `Reaction to the deaths of Johnny and Matthew Gaudreau came from around the NHL and sports world.`\
 https://nytimes.com/athletic/5734106/2024/08/30/johnny-matthew-gaudreau-deaths-reaction/

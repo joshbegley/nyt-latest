@@ -1,3 +1,15 @@
+**Why Williams felt Logan Sargeant reached his limit in F1: 'It was clear to everyone'**\
+`As Franco Colapinto took his first F1 laps at Monza, Williams boss James Vowles explained the move to replace Sargeant.`\
+https://nytimes.com/athletic/5733990/2024/08/30/logan-sargeant-williams-f1-vowles-schumacher-driver/
+
+**Royals' Pasquantino to miss 6-8 weeks**\
+`It's just the latest injury for the Royals, who placed Hunter Renfroe and Michael Lorenzen on the IL earlier this week.`\
+https://nytimes.com/athletic/5734185/2024/08/30/vinnie-pasquantino-broken-thumb-royals/
+
+**How Do You Change a Chatbot’s Mind?**\
+`When I set out to improve my tainted reputation with chatbots, I discovered a new world of A.I. manipulation.`\
+https://nytimes.com/2024/08/30/technology/ai-chatbot-chatgpt-manipulation.html
+
 **Remembering Johnny Gaudreau and Matthew Gaudreau: 'Those two guys ... elevated everything'**\
 `Reaction to the deaths of Johnny and Matthew Gaudreau came from around the NHL and sports world.`\
 https://nytimes.com/athletic/5734106/2024/08/30/johnny-matthew-gaudreau-deaths-reaction/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/30/movies/science-fiction-movies-streaming.html
 **McDaniel gets new Dolphins deal, staying through 2028**\
 `Mike McDaniel has coached the Dolphins since 2022, leading them to a 20-14 record and two playoff appearances.`\
 https://nytimes.com/athletic/5734066/2024/08/30/mike-mcdaniel-contract-dolphins/
-
-**The Aviation Industry’s New Flight Plan**\
-`For the airline industry, the demand for operational resilience in the face of disruption has never been higher. Looking ahead, these companies need to reinvent themselves to build a future that is sustainable, innovative and more convenient.`\
-https://nytimes.com/paidpost/accenture-episode-41/the-aviation-industrys-new-flight-plan.html
-
-**Abba Asked Trump to Stop Using Its Music. Other Artists Have, Too.**\
-`Dozens of musicians, or their estates, have objected to their music being used by Mr. Trump’s campaigns since his successful run for the White House in 2016. Some have threatened legal action.`\
-https://nytimes.com/article/trump-music-bruce-springsteen-rihanna.html
-
-**Chelsea expected to reach agreement to sign Sancho from Man United**\
-`Chelsea are expected to reach agreement with Manchester United to sign Jadon Sancho before the transfer window closes.`\
-https://nytimes.com/athletic/5650327/2024/08/30/jadon-sancho-chelsea-manchester-united-transfer/
 
