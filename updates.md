@@ -1,3 +1,7 @@
+**Forest working to sign Morato from Benfica**\
+`Nottingham Forest are working to add another Brazilian central defender to their ranks, in the form of Benfica defender Morato.`\
+https://nytimes.com/athletic/5733576/2024/08/30/nottingham-forest-morato-transfer/
+
 **What I’m hearing about the Big 12: UConn, naming rights, private equity and more**\
 `The perpetually open-for-business Big 12 is making headlines again. Here’s a rundown of what’s going on with the new-look, 16-team league.`\
 https://nytimes.com/athletic/5732442/2024/08/30/big-12-uconn-naming-rights/

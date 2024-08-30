@@ -1,3 +1,7 @@
+**Forest working to sign Morato from Benfica**\
+`Nottingham Forest are working to add another Brazilian central defender to their ranks, in the form of Benfica defender Morato.`\
+https://nytimes.com/athletic/5733576/2024/08/30/nottingham-forest-morato-transfer/
+
 **What I’m hearing about the Big 12: UConn, naming rights, private equity and more**\
 `The perpetually open-for-business Big 12 is making headlines again. Here’s a rundown of what’s going on with the new-look, 16-team league.`\
 https://nytimes.com/athletic/5732442/2024/08/30/big-12-uconn-naming-rights/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/30/crosswords/wordle-review-no-1169.html
 **Six Cubs takeaways: PCA in pitchers' heads, offense turning a corner, bullpen injuries and more**\
 `The Cubs still have another 28 games to try and show everyone that a poor May and June won’t define their season.`\
 https://nytimes.com/athletic/5731457/2024/08/30/cubs-takeaways-pete-crow-armstrong-stolen-bases/
-
-**Inmate Revolts Highlight Failings and Miseries of Russian Prisons**\
-`Staff shortages, beatings, corruption and harsh treatment of Muslim prisoners have all led to unrest among inmates, with recent uprisings turning deadly.`\
-https://nytimes.com/2024/08/30/world/europe/russian-prisons-inmate-uprisings.html
 
