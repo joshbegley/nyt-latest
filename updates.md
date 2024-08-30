@@ -1,3 +1,11 @@
+**A Stanley Tumbler You Can Wear?**\
+`A new Halloween costume from Target inspired by a popular reusable cup perpetuates the zeitgeistification of a holiday that once belonged almost entirely to children.`\
+https://nytimes.com/2024/08/30/style/stanley-halloween-costume-target.html
+
+**Eddie Nketiah had appreciation at Arsenal. At Palace, he gets opportunity**\
+`The 25-year-old striker worked hard at Arsenal but had too little game time. Across London, that's about the change`\
+https://nytimes.com/athletic/5723798/2024/08/30/eddie-nketiah-arsenal-crystal-palace/
+
 **Crystal Palace sign Nketiah from Arsenal**\
 `Crystal Palace have completed the signing of striker Eddie Nketiah from Arsenal.`\
 https://nytimes.com/athletic/5725990/2024/08/30/nketiah-arsenal-crystal-palace-transfer-complete/
