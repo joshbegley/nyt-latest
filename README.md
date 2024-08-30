@@ -1,3 +1,11 @@
+**Coco Gauff needed a top-50 win. The U.S. Open was a good place to get it**\
+`The defending champion has struggled against top-50 opponents recently, but on Arthur Ashe Stadium her aura remains undimmed.`\
+https://nytimes.com/athletic/5734973/2024/08/30/coco-gauff-us-open-svitolina-top-50-record/
+
+**OpenAI Names Political Veteran Chris Lehane as Head of Global Policy**\
+`The prominent A.I. start-up is also considering a change to its corporate structure to make it more appealing to outside investors.`\
+https://nytimes.com/2024/08/30/technology/openai-chris-lehane.html
+
 **Soler joins West Ham on loan from PSG**\
 `Carlos Soler has signed for West Ham United from Paris Saint-Germain on a season-long loan.`\
 https://nytimes.com/athletic/5716320/2024/08/30/carlos-soler-west-ham-psg/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5709938/2024/08/30/eddie-nketiah-to-crystal-palace-
 **Arsenal working to finalise Sterling loan deal**\
 `Chelsea forward Raheem Sterling has arrived at Arsenal&#8217;s training ground as all parties work to finalise a season-long loan deal.`\
 https://nytimes.com/athletic/5734804/2024/08/30/raheem-sterling-arsenal/
-
-**Manuel Ugarte to Manchester United: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500 series, we look at Manuel Ugarte's move to Manchester United.`\
-https://nytimes.com/athletic/5705336/2024/08/30/manuel-ugarte-manchester-united-athletic-500-transfer-ratings/
-
-**How the Burger Became a Portrait of America**\
-`Burgers today are packed with the cultural ingredients that make the United States what it is: regional tradition and immigrant inspiration, deep history and blue-sky creativity.`\
-https://nytimes.com/video/dining/100000009661137/how-the-burger-became-a-portrait-of-america.html
 
