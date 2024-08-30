@@ -1,3 +1,11 @@
+**Affirmative Action News Is Coming**\
+`We’re covering college admissions after the Supreme Court’s decision.`\
+https://nytimes.com/2024/08/30/briefing/affirmative-action-news-is-coming.html
+
+**Twins' Drew MacPhail leans on father's lessons as he strives to create his own legacy**\
+`The 32-year-old player development director taps into the guidance of his father, Andy MacPhail, but wants to make his own name in the game.`\
+https://nytimes.com/athletic/5729718/2024/08/30/drew-macphail-twins-player-development-legacy/
+
 **In South Indian Cinema, a #MeToo Reckoning Comes Roaring Back**\
 `A report withheld since 2019 has finally been released, providing damning evidence of sexual misconduct and gender discrimination in Malayalam cinema.`\
 https://nytimes.com/2024/08/30/world/asia/kerala-film-metoo.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/30/podcasts/gaza-polio-vaccines-kamala-harriss-inter
 **Will it be Boise State that claims first Group of 5 spot in 12-team Playoff?**\
 `Boise is loaded with returnees at key spots and has a new coach who led it to a strong finish in 2023. But does it have the QB to win big?`\
 https://nytimes.com/athletic/5725472/2024/08/30/boise-state-college-football-playoff-projections-preview/
-
-**The Connections Companion No. 447**\
-`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 31, 2024.`\
-https://nytimes.com/2024/08/30/crosswords/connections-companion-447.html
-
-**Wordle Review No. 1,169**\
-`Scroll down for hints and conversation about the puzzle for August 31, 2024.`\
-https://nytimes.com/2024/08/30/crosswords/wordle-review-no-1169.html
 
