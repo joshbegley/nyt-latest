@@ -1,3 +1,7 @@
+**Word of the Day: foray**\
+`This word has appeared in 217 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/30/learning/word-of-the-day-foray.html
+
 **Kiingi Tuheitia, King of the Maori in New Zealand, Dies at 69**\
 `The king, who had been on the throne for 18 years, was praised by New Zealand’s prime minister for his “unwavering commitment to his people.”`\
 https://nytimes.com/2024/08/30/world/australia/maori-king-tuheitia-dead-new-zealand.html

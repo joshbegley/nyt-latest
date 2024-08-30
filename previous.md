@@ -1,3 +1,7 @@
+**Word of the Day: foray**\
+`This word has appeared in 217 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/08/30/learning/word-of-the-day-foray.html
+
 **Kiingi Tuheitia, King of the Maori in New Zealand, Dies at 69**\
 `The king, who had been on the throne for 18 years, was praised by New Zealand’s prime minister for his “unwavering commitment to his people.”`\
 https://nytimes.com/2024/08/30/world/australia/maori-king-tuheitia-dead-new-zealand.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5730987/2024/08/30/what-ramazani-and-solomon-bring-
 **Transfer deadline day: The 10 high-profile players who could still move**\
 `The Athletic looks at the most high-profile players who could be wearing a different shirt by the time the clock strikes 11pm this evening`\
 https://nytimes.com/athletic/5731424/2024/08/30/transfer-deadline-day-latest-players/
-
-**Row Z: Ronaldo lifts lid on normality, Muslera kerplunk and Howe non-committal on Oasis**\
-`Tim Spiers is back to take a sideways look at the peculiarities, contradictions and downright absurdities of the beautiful game`\
-https://nytimes.com/athletic/5731585/2024/08/30/ronaldo-oasis-howe-muslera-row-z/
 
