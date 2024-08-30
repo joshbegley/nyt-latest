@@ -1,3 +1,15 @@
+**Arsenal target Bentley set to stay at Wolves despite deadline day enquiry**\
+`Arsenal target Daniel Bentley is set to stay at Wolverhampton Wanderers this summer despite the north London side making a deadline day enquiry for the goalkeeper.`\
+https://nytimes.com/athletic/5733444/2024/08/30/arsenal-dan-bentley-transfer/
+
+**The Giants are cooked. Here's what they should do for the rest of the season**\
+`This roadtrip proved the Giants' postseason hopes are nil. So what should their goals be for the rest of the season?`\
+https://nytimes.com/athletic/5732990/2024/08/30/sf-giants-september-goals/
+
+**Scoop City: The Aiyuk trade that didn't happen**\
+`Scoop City is The Athletic's NFL newsletter.`\
+https://nytimes.com/athletic/5734021/2024/08/30/brandon-aiyuk-49ers-contract-scoop-city/
+
 **Landon Y. Jones, Who Made People a Star Among Magazines, Dies at 80**\
 `An unapologetic champion of the newsworthiness of celebrities, he also drew attention to teenage pregnancy and helped popularize the term “baby boomer.”`\
 https://nytimes.com/2024/08/30/business/media/landon-y-jones-dead.html

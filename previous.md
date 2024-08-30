@@ -1,3 +1,15 @@
+**Arsenal target Bentley set to stay at Wolves despite deadline day enquiry**\
+`Arsenal target Daniel Bentley is set to stay at Wolverhampton Wanderers this summer despite the north London side making a deadline day enquiry for the goalkeeper.`\
+https://nytimes.com/athletic/5733444/2024/08/30/arsenal-dan-bentley-transfer/
+
+**The Giants are cooked. Here's what they should do for the rest of the season**\
+`This roadtrip proved the Giants' postseason hopes are nil. So what should their goals be for the rest of the season?`\
+https://nytimes.com/athletic/5732990/2024/08/30/sf-giants-september-goals/
+
+**Scoop City: The Aiyuk trade that didn't happen**\
+`Scoop City is The Athletic's NFL newsletter.`\
+https://nytimes.com/athletic/5734021/2024/08/30/brandon-aiyuk-49ers-contract-scoop-city/
+
 **Landon Y. Jones, Who Made People a Star Among Magazines, Dies at 80**\
 `An unapologetic champion of the newsworthiness of celebrities, he also drew attention to teenage pregnancy and helped popularize the term “baby boomer.”`\
 https://nytimes.com/2024/08/30/business/media/landon-y-jones-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5733722/2024/08/30/johnny-gaudreau-death-cycling-cr
 **Wolves working to find agreement to sign Ajax's Carlos Forbs**\
 `Wolverhampton Wanderers are working to find an agreement with Ajax to sign Carlos Forbs.`\
 https://nytimes.com/athletic/5733884/2024/08/30/carlos-forbs-ajax-wolves-transfers/
-
-**Aaron Ramsdale to Southampton: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500 series, we look at England goalkeeper Ramsdale's move from Arsenal to Southampton`\
-https://nytimes.com/athletic/5731000/2024/08/30/aaron-ramsdale-southampton-transfer-rating/
-
-**Is It Better to Stay on Your Parents’ Health Care Plan or Enroll in an Employer’s?**\
-`For young adults, the choice isn’t always a straightforward one.`\
-https://nytimes.com/2024/08/30/your-money/young-adult-health-coverage.html
-
-**Penn State at West Virginia picks, odds, how to watch: Nittany Lions favored on the road**\
-`Penn State travels to West Virginia for a Power 4 matchup on Saturday. The Nittany Lions are significant favorites.`\
-https://nytimes.com/athletic/5727189/2024/08/30/penn-state-west-virginia-picks-odds-how-to-watch/
 
