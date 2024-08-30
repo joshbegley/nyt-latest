@@ -1,3 +1,7 @@
+**A Defensive Trump Tries to Limit the Fallout of the Arlington Clash**\
+`At a rally in western Pennsylvania, the former president insisted that he had not been seeking publicity at the military cemetery on Monday and defended his campaign’s actions.`\
+https://nytimes.com/2024/08/30/us/politics/trump-rally-arlington.html
+
 **In a Robbie Williams Biopic, the Star Is a C.G.I. Monkey. That’s Right.**\
 `The director Michael Gracey hopes Americans will finally get the British hitmaker, who’s depicted warts, fur and all in “Better Man,” debuting at the Telluride Film Festival.`\
 https://nytimes.com/2024/08/30/movies/robbie-williams-biopic-better-man-monkey.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5734973/2024/08/30/coco-gauff-us-open-svitolina-top
 **OpenAI Names Political Veteran Chris Lehane as Head of Global Policy**\
 `The prominent A.I. start-up is also considering a change to its corporate structure to make it more appealing to outside investors.`\
 https://nytimes.com/2024/08/30/technology/openai-chris-lehane.html
-
-**Soler joins West Ham on loan from PSG**\
-`Carlos Soler has signed for West Ham United from Paris Saint-Germain on a season-long loan.`\
-https://nytimes.com/athletic/5716320/2024/08/30/carlos-soler-west-ham-psg/
 

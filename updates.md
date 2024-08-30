@@ -1,3 +1,7 @@
+**A Defensive Trump Tries to Limit the Fallout of the Arlington Clash**\
+`At a rally in western Pennsylvania, the former president insisted that he had not been seeking publicity at the military cemetery on Monday and defended his campaign’s actions.`\
+https://nytimes.com/2024/08/30/us/politics/trump-rally-arlington.html
+
 **In a Robbie Williams Biopic, the Star Is a C.G.I. Monkey. That’s Right.**\
 `The director Michael Gracey hopes Americans will finally get the British hitmaker, who’s depicted warts, fur and all in “Better Man,” debuting at the Telluride Film Festival.`\
 https://nytimes.com/2024/08/30/movies/robbie-williams-biopic-better-man-monkey.html
