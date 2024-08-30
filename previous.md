@@ -1,3 +1,7 @@
+**Gaza Debate Reopens Divisions Between Left-Wing Workers and Union Leaders**\
+`Last week’s Democratic National Convention surfaced differences over the war in Gaza that could widen fissures between labor activists and union officials.`\
+https://nytimes.com/2024/08/30/business/economy/gaza-labor-unions.html
+
 **Ukraine Investigating Potential Causes of the Crash of an F-16**\
 `There are indications that friendly fire may have been involved, a Western official said.`\
 https://nytimes.com/2024/08/30/world/europe/ukraine-f16-crash.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5734028/2024/08/30/liverpool-hillsborough-97-pin-ba
 **‘A Wave That’s on the Decline?’ Trump to Talk to Parents Leading the Culture Wars.**\
 `Last year, the former president told the group it was time to “liberate our children from the Marxist lunatics and perverts” in education. Does that message still resonate with voters?`\
 https://nytimes.com/2024/08/30/us/trump-moms-for-liberty-school-boards.html
-
-**‘The Hypocrite’ Book Club: Main Conversation**\
-`Discuss our September book club selection, “The Hypocrite,” by Jo Hamya, with the Book Review.`\
-https://nytimes.com/2024/08/30/books/review/the-hypocrite-book-club-main-conversation.html
 

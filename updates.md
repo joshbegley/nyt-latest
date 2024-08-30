@@ -1,3 +1,7 @@
+**Gaza Debate Reopens Divisions Between Left-Wing Workers and Union Leaders**\
+`Last week’s Democratic National Convention surfaced differences over the war in Gaza that could widen fissures between labor activists and union officials.`\
+https://nytimes.com/2024/08/30/business/economy/gaza-labor-unions.html
+
 **Ukraine Investigating Potential Causes of the Crash of an F-16**\
 `There are indications that friendly fire may have been involved, a Western official said.`\
 https://nytimes.com/2024/08/30/world/europe/ukraine-f16-crash.html
