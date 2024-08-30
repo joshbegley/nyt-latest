@@ -1,3 +1,7 @@
+**The Middle Is a Muddle**\
+`Everybody loves the middle class. Nobody wants to be mid, or middling. “Middle” is a tricky word.`\
+https://nytimes.com/interactive/2024/08/30/books/middle-class-politics.html
+
 **What was your personal song of the summer?**\
 `We want to know your seasonal anthem, for a future Amplifier playlist.`\
 https://nytimes.com/2024/08/30/arts/music/what-was-your-song-of-the-summer.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5734238/2024/08/30/nba-finals-espn-crew-grant-hill-
 **Eminem and LL Cool J Duel in Speedy Raps, and 9 More New Songs**\
 `Hear tracks by Sophie featuring Bibi Bourelly, Kim Deal, Tommy Richman and more.`\
 https://nytimes.com/2024/08/30/arts/music/playlist-ll-cool-j-eminem-sophie.html
-
-**Assessing the Harris-Walz Interview on CNN**\
-`Readers offer criticism, praise and a cabinet suggestion. Also: Pardon Trump; attacks on humanitarian aid workers; loser shouldn’t pay.`\
-https://nytimes.com/2024/08/30/opinion/letters/harris-walz-interview-cnn.html
 
