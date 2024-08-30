@@ -1,3 +1,7 @@
+**United will miss McTominay - the local boy who never shirked a challenge**\
+`Academy-graduate midfielder McTominay was not technically proficient but his attitude was exemplary at a time when United needed it `\
+https://nytimes.com/athletic/5728203/2024/08/30/scott-mctominay-manchester-united-napoli/
+
 **McTominay completes Napoli move**\
 `Scott McTominay has completed his move from Manchester United to Napoli.`\
 https://nytimes.com/athletic/5725809/2024/08/30/scott-mctominay-transfer-napoli-man-utd/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/30/opinion/architecture-ideas-economics.html
 **Pacers, T.J. McConnell agree to multiyear extension**\
 `The 32-year-old is now under contract through the 2028-29 season.`\
 https://nytimes.com/athletic/5734628/2024/08/30/tj-mcconnell-pacers-contract-extension/
-
-**They Traveled Home After Defending Ukraine, and Ended Up in a Russian Prison**\
-`Two Colombian soldiers who had fought for Ukraine are now under arrest in Moscow. They wound up there after stopping over in Venezuela, which apparently extradited them.`\
-https://nytimes.com/2024/08/30/world/americas/venezuela-ukraine-military-russia.html
 
