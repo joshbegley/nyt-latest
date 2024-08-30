@@ -1,3 +1,7 @@
+**Slot believes new signing Chiesa has all the qualities to flourish at Liverpool**\
+`Arne Slot believes new signing Federico Chiesa has all the qualities to flourish at Liverpool, but the Italian attacker is unlikely to make his debut against Manchester United on Sunday.`\
+https://nytimes.com/athletic/5733492/2024/08/30/liverpool-chiesa-slot-man-united/
+
 **'He's special': Ahead of his Reds debut, Rhett Lowder earns raves from veteran catcher**\
 `Lowder, the No. 7 pick in the 2023 draft, debuts Friday night against the Brewers despite only one Triple-A start. `\
 https://nytimes.com/athletic/5732647/2024/08/30/reds-rhett-lowder-debut-tucker-barnhart-reaction/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/30/us/california-shoplifting-trump-harris.html
 **Paris Is Utopia for Paralympians Until They Leave the Athletes’ Village**\
 `The city built highly accessible accommodations for competitors in the 2024 Paralympic Games. But the rest of Paris remains difficult to navigate.`\
 https://nytimes.com/2024/08/30/world/olympics/paris-paralympics-accessibility.html
-
-**All Hail Farro, Queen of the Make-Ahead Salad**\
-`This colorful grain salad is laced with juicy stone fruit and milky burrata cheese.`\
-https://nytimes.com/2024/08/30/dining/farro-burrata-salad.html
 
