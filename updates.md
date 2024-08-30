@@ -1,3 +1,7 @@
+**Karolina Muchova beats Naomi Osaka as U.S. Open comes alive on Arthur Ashe**\
+`ARTHUR ASHE STADIUM, N.`\
+https://nytimes.com/athletic/5733090/2024/08/29/us-open-naomi-osaka-muchova-best-match-result/
+
 **Mets rebound again with crucial rubber-game win over Diamondbacks**\
 `Francisco Lindor hit a pivotal home run to spark a late-inning surge a day after a heartbreaking defeat. `\
 https://nytimes.com/athletic/5733035/2024/08/29/mets-francisco-lindor-edwin-diaz/
