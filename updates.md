@@ -1,3 +1,7 @@
+**The New York Times News Quiz, August 30, 2024**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2024/08/30/briefing/news-quiz-harris-interview.html
+
 **Inmate Revolts Highlight Failings and Miseries of Russian Prisons**\
 `Staff shortages, beatings, corruption and harsh treatment of Muslim prisoners have all led to unrest among inmates, with recent uprisings turning deadly.`\
 https://nytimes.com/2024/08/30/world/europe/russian-prisons-inmate-uprisings.html
