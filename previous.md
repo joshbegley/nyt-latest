@@ -1,3 +1,15 @@
+**McDaniel gets new Dolphins deal, staying through 2028**\
+`Mike McDaniel has coached the Dolphins since 2022, leading them to a 20-14 record and two playoff appearances.`\
+https://nytimes.com/athletic/5734066/2024/08/30/mike-mcdaniel-contract-dolphins/
+
+**The Aviation Industry’s New Flight Plan**\
+`For the airline industry, the demand for operational resilience in the face of disruption has never been higher. Looking ahead, these companies need to reinvent themselves to build a future that is sustainable, innovative and more convenient.`\
+https://nytimes.com/paidpost/accenture-episode-41/the-aviation-industrys-new-flight-plan.html
+
+**Abba Asked Trump to Stop Using Its Music. Other Artists Have, Too.**\
+`Dozens of musicians, or their estates, have objected to their music being used by Mr. Trump’s campaigns since his successful run for the White House in 2016. Some have threatened legal action.`\
+https://nytimes.com/article/trump-music-bruce-springsteen-rihanna.html
+
 **Chelsea expected to reach agreement to sign Sancho from Man United**\
 `Chelsea are expected to reach agreement with Manchester United to sign Jadon Sancho before the transfer window closes.`\
 https://nytimes.com/athletic/5650327/2024/08/30/jadon-sancho-chelsea-manchester-united-transfer/
