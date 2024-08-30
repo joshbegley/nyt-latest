@@ -1,3 +1,7 @@
+**Manchester United sign Ugarte from PSG**\
+`Manchester United have completed the signing of Manuel Ugarte from Paris Saint-Germain.`\
+https://nytimes.com/athletic/5725734/2024/08/30/manchester-united-manuel-ugarte-transfer/
+
 **Business Group Sues Texas Officials Over Law That Shields Oil Industry**\
 `The suit challenges a measure that prohibits state entities like retirement funds from doing business with firms that “boycott energy companies.”`\
 https://nytimes.com/2024/08/30/climate/texas-esg-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/30/arts/andy-warhol-forgeries-lawsuit.html
 **Neto joins Arsenal on season-long loan from Bournemouth**\
 `Arsenal have completed the signing of Bournemouth goalkeeper Neto on a season-long loan.`\
 https://nytimes.com/athletic/5733412/2024/08/30/neto-arsenal-transfer/
-
-**Ipswich close to loan deal for Arsenal's Nelson**\
-`Ipswich Town are close to an agreement to sign Reiss Nelson on a season-long loan from Arsenal.`\
-https://nytimes.com/athletic/5734831/2024/08/30/arsenal-reiss-nelson-transfer-ipswich/
 

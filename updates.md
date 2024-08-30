@@ -1,3 +1,7 @@
+**Manchester United sign Ugarte from PSG**\
+`Manchester United have completed the signing of Manuel Ugarte from Paris Saint-Germain.`\
+https://nytimes.com/athletic/5725734/2024/08/30/manchester-united-manuel-ugarte-transfer/
+
 **Business Group Sues Texas Officials Over Law That Shields Oil Industry**\
 `The suit challenges a measure that prohibits state entities like retirement funds from doing business with firms that “boycott energy companies.”`\
 https://nytimes.com/2024/08/30/climate/texas-esg-lawsuit.html
