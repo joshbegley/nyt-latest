@@ -1,3 +1,11 @@
+**Harris Says She Has ‘No Regrets’ About Defending Biden’s Capabilities**\
+`Vice President Kamala Harris spoke fondly of the president, but made clear that he no longer represents the future of the country.`\
+https://nytimes.com/2024/08/29/us/politics/harris-cnn-interview-biden.html
+
+**A Vague, Vacuous T.V. Interview Didn’t Help Kamala Harris**\
+`By Bret Stephens`\
+https://nytimes.com/live/2024/08/27/opinion/thepoint/harris-walz-interview
+
 **Trump Keeps Turning Up the Dial on Vulgarity. Will He Alienate the Voters He Needs?**\
 `Donald J. Trump has been reposting racially and sexually charged insults of Kamala Harris, continuing a history of crass attacks. But in Ms. Harris, he may have found a particularly risky target.`\
 https://nytimes.com/2024/08/29/us/politics/trump-crass-imagery.html
