@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5733735/2024/08/30/martino-mls-supporters-shield-fifa-world-cup/
 
 **UNC edges Minnesota, creating the first of 2024's countless P4 measuring sticks**\
-`North Carolina's 19-17 win over Minnesota in t2024’s first nonconference game between two P4 opponents could very well come up in December.`\
+`North Carolina's 19-17 win over Minnesota in 2024’s first nonconference game between two P4 opponents could very well come up in December.`\
 https://nytimes.com/athletic/5733703/2024/08/30/north-carolina-minnesota-football-highlights/
 
 **Ipswich revive Broja loan talks**\
