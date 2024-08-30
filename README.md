@@ -26,7 +26,7 @@ https://nytimes.com/2024/08/30/movies/nicole-kidman-babygirl-venice-film-festiva
 `Everybody loves the middle class. Nobody wants to be mid, or middling. “Middle” is a tricky word.`\
 https://nytimes.com/interactive/2024/08/30/books/middle-class-politics.html
 
-**What was your personal song of the summer?**\
+**What Was Your Personal Song of the Summer?**\
 `We want to know your seasonal anthem, for a future Amplifier playlist.`\
 https://nytimes.com/2024/08/30/arts/music/what-was-your-song-of-the-summer.html
 
