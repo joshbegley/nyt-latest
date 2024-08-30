@@ -1,3 +1,7 @@
+**Business Group Sues Texas Officials Over Law That Shields Oil Industry**\
+`The suit challenges a measure that prohibits state entities like retirement funds from doing business with firms that “boycott energy companies.”`\
+https://nytimes.com/2024/08/30/climate/texas-esg-lawsuit.html
+
 **Brazil Blocks X After Musk Ignores Court Orders**\
 `The social network will go dark in the nation of 200 million, the result of an escalating fight between Elon Musk and a Brazilian judge over what can be said online.`\
 https://nytimes.com/2024/08/30/world/americas/brazil-elon-musk-x-blocked.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5733412/2024/08/30/neto-arsenal-transfer/
 **Ipswich close to loan deal for Arsenal's Nelson**\
 `Ipswich Town are close to an agreement to sign Reiss Nelson on a season-long loan from Arsenal.`\
 https://nytimes.com/athletic/5734831/2024/08/30/arsenal-reiss-nelson-transfer-ipswich/
-
-**Leonard Riggio, 83, Dies; Founded Barnes & Noble and Upended Publishing**\
-`He turned a college book store into a publishing behemoth, pioneering the bookstore-as-superstore and putting thousands of independents out of business before being overtaken by Amazon.`\
-https://nytimes.com/2024/08/30/business/leonard-riggio-dead.html
 
