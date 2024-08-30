@@ -1,3 +1,7 @@
+**The Athletic FC: The big questions on transfer deadline day with Toney set for Saudi move**\
+`Today in The Athletic FC: We bring you the big questions from Premier League deadline day - and the reaction to the Champions League draw.`\
+https://nytimes.com/athletic/5733559/2024/08/30/deadline-day-toney-saudi/
+
 **FPL Q&A: FPL Gameweek 3 advice from Ben Dinnery**\
 `Join Ben Dinnery for a live Gameweek 3 Fantasy Premier League Q&A from 4pm UK time on Friday`\
 https://nytimes.com/athletic/5733438/2024/08/30/fantasy-premier-league-advice-injury-news-gw3/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/30/world/asia/kerala-film-metoo.html
 **Forest working to sign Morato from Benfica**\
 `Nottingham Forest are working to add another Brazilian central defender to their ranks, in the form of Benfica defender Morato.`\
 https://nytimes.com/athletic/5733576/2024/08/30/nottingham-forest-morato-transfer/
-
-**What I’m hearing about the Big 12: UConn, naming rights, private equity and more**\
-`The perpetually open-for-business Big 12 is making headlines again. Here’s a rundown of what’s going on with the new-look, 16-team league.`\
-https://nytimes.com/athletic/5732442/2024/08/30/big-12-uconn-naming-rights/
 
