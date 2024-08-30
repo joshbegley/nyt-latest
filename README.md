@@ -1,3 +1,11 @@
+**Southampton sign Ramsdale from Arsenal**\
+`Southampton have completed the signing of Arsenal goalkeeper Aaron Ramsdale.`\
+https://nytimes.com/athletic/5731050/2024/08/30/southampton-sign-aaron-ramsdale-arsenal/
+
+**Israeli forces pull back from Tulkarm but press on with their raid of Jenin, officials say.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/08/30/world/israel-hamas-gaza-war/israeli-forces-pull-back-from-tulkarm-but-press-on-with-their-raid-of-jenin-officials-say
+
 **West Ham closing in on deal to sign Carlos Soler from PSG**\
 `West Ham United are making progress over a deal to sign Carlos Soler from Paris Saint-Germain.`\
 https://nytimes.com/athletic/5733627/2024/08/30/carlos-soler-psg-west-ham-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5732375/2024/08/30/las-vegas-raiders-nfl-players-al
 **Leeds complete signing of Tanaka**\
 `Leeds United have announced the signing of Ao Tanaka from Fortuna Dusseldorf on a permanent transfer.`\
 https://nytimes.com/athletic/5733611/2024/08/30/leeds-united-ao-tanaka-transfer/
-
-**The Athletic’s Friday football quiz question #19**\
-`The Athletic's weekly conundrum from inside the trivia vaults`\
-https://nytimes.com/athletic/5732129/2024/08/30/the-athletics-friday-football-quiz-question-19/
-
-**Meghoma set for Brentford move from Southampton**\
-`Jayden Meghoma is undergoing a medical at Brentford ahead of proposed permanent transfer from Southampton.`\
-https://nytimes.com/athletic/5733595/2024/08/30/brentford-jayden-meghoma-transfer-southampton/
 
