@@ -1,3 +1,15 @@
+**Row Z: Ronaldo lifts lid on normality, Muslera kerplunk and Howe non-committal on Oasis**\
+`Tim Spiers is back to take a sideways look at the peculiarities, contradictions and downright absurdities of the beautiful game`\
+https://nytimes.com/athletic/5731585/2024/08/30/ronaldo-oasis-howe-muslera-row-z/
+
+**How Brighton became Europe's second highest spenders - with £195m paid out this summer**\
+`Brighton's business model is long admired, but their big spending this summer is less familiar. What's going on?`\
+https://nytimes.com/athletic/5725928/2024/08/30/brighton-spending-spree/
+
+**Fantasy baseball waiver wire: Addison Barger, Spencer Arrighetti and more adds; plus, two-start pitchers and stashes**\
+`John Laghezza cuts to the chase this week in highlighting the best waiver wire adds, with Toronto's Addison Barger atop his hitter's list.`\
+https://nytimes.com/athletic/5731730/2024/08/30/fantasy-baseball-waiver-wire-addison-barger-spencer-arrighetti-adds-two-start-pitchers-stashes/
+
 **Machida Zelvia: The Japanese underdogs top of the league in their maiden top-flight season**\
 `Stand aside Leicester, Machida are top with a third of the J1 League season to go — having never played in the top flight before this year`\
 https://nytimes.com/athletic/5725883/2024/08/30/machida-zelvia-j1-league-fairy-tale-underdogs/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/30/pageoneplus/corrections-aug-30-2024.html
 **With the Help of a Dating App, A Friend Plays Matchmaker**\
 `Alexis Brugger and Timothy Wang first met after Mr. Wang’s profile caught the eye of Ms. Brugger’s college friend, who felt the two would be a good match.`\
 https://nytimes.com/2024/08/30/style/alexis-brugger-timothy-wang-wedding.html
-
-**Sparks Fly Between Two Happy Campers at an Alumni Weekend**\
-`Anna Bessendorf and Jason Goldberg attended the same summer camp in the Berkshires as adolescents, but they didn’t meet until years later. They pinky-swore not to be strangers.`\
-https://nytimes.com/2024/08/30/style/anna-bessendorf-jason-goldberg-wedding.html
-
-**That Time My Father and I Fell for the Same Woman**\
-`It was devastating, then surprisingly not.`\
-https://nytimes.com/2024/08/30/style/modern-love-my-father-and-i-fell-for-the-same-woman.html
-
-**After Years of Almost-Dates, a Romance Grows Between Friends**\
-`Cody Austrie and Stephanie Brooks were locker neighbors in high school and forged a friendship. They didn’t start dating until years later when they reconnected.`\
-https://nytimes.com/2024/08/30/style/cody-austrie-stephanie-brooks-wedding.html
 
