@@ -1,3 +1,11 @@
+**UNC's Max Johnson carted off vs. Minnesota with apparent knee injury**\
+`Sophomore Conner Harrell came in for the Tar Heels after Johnson exited following a hit by Minnesota's Justin Walley.`\
+https://nytimes.com/athletic/5733317/2024/08/29/max-johnson-unc-injury-minnesota/
+
+**7 Takeaways From Harris’s First Major Interview**\
+`Kamala Harris showed her tendency toward winding answers in the CNN interview, but said nothing likely to cause her serious political trouble.`\
+https://nytimes.com/2024/08/29/us/politics/harris-walz-interview-cnn-takeaways.html
+
 **Brandon Marsh doesn't face a lefty, and one swing against Braves changes vibes for Phillies**\
 `The Phillies didn't expect Morton to throw to Marsh a third time. When he did, Marsh took advantage of a curveball he figured was coming.`\
 https://nytimes.com/athletic/5733293/2024/08/29/phillies-brandon-marsh-charlie-morton-homer-win/
