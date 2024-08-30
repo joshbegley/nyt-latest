@@ -1,6 +1,22 @@
-**Chelsea agree deal to sign Sancho**\
-`Chelsea have reached an agreement to sign Jadon Sancho from Manchester United.`\
-https://nytimes.com/athletic/5734401/2024/08/30/chelsea-jadon-sancho-transfer/
+**Why PSG were willing to sell Ugarte to Manchester United**\
+`Manuel Ugarte has left PSG to join Manchester United — he did not fit in at the French giants`\
+https://nytimes.com/athletic/5729183/2024/08/30/manuel-ugarte-manchester-united-psg-analysis/
+
+**When I’m Dining Out, Should I Have to Deal With Your Dogs?**\
+`The magazine’s Ethicist columnist on public pet etiquette.`\
+https://nytimes.com/2024/08/30/magazine/dogs-restaurant-ethics.html
+
+**Giuliani Faces New Lawsuit From Georgia Election Workers Over Luxury Condo**\
+`The two women, who were defamed by Rudolph W. Giuliani after the 2020 election, have accused him of trying to keep his multimillion-dollar condo in Florida from debt collection.`\
+https://nytimes.com/2024/08/30/us/politics/giuliani-georgia-election-workers-condo.html
+
+**Chelsea on verge of agreeing Sancho loan deal**\
+`Chelsea are on the verge of signing Jadon Sancho from Manchester United.`\
+https://nytimes.com/athletic/5734401/2024/08/30/chelsea-jadon-sancho-transfer-loan/
+
+**UNC's Max Johnson to miss remainder of season due to broken leg**\
+`Sophomore Conner Harrell replaced Johnson, who exited following a hit by Minnesota's Justin Walley in the third quarter.`\
+https://nytimes.com/athletic/5733317/2024/08/30/max-johnson-unc-injury-minnesota/
 
 **Manchester United sign Ugarte from PSG**\
 `Manchester United have completed the signing of Manuel Ugarte from Paris Saint-Germain.`\
@@ -21,20 +37,4 @@ https://nytimes.com/2024/08/30/us/black-enrollment-affirmative-action-amherst-tu
 **After 11 Months of War, Gaza Faces a New Threat: Polio**\
 `Starting Sunday, the Israeli military and Hamas will observe brief, staggered pauses in fighting to allow 640,000 Gazan children to be vaccinated, U.N. officials said.`\
 https://nytimes.com/2024/08/30/world/middleeast/israel-gaza-polio-vaccinations.html
-
-**Abraham joins Milan on loan from Roma**\
-`Tammy Abraham has joined AC Milan on a season-long loan from Roma.`\
-https://nytimes.com/athletic/5671607/2024/08/30/tammy-abraham-milan-transfer-loan/
-
-**Trump Biopic ‘The Apprentice’ Gets U.S. Release Date**\
-`The movie, which stars Sebastian Stan as a young Donald J. Trump, is scheduled to hit theaters on Oct. 11, ahead of the presidential election.`\
-https://nytimes.com/2024/08/30/movies/apprentice-trump-biopic-release-date.html
-
-**Neto to Arsenal: The Athletic 500 transfer ratings**\
-`As part of The Athletic 500 series, we look at Neto's move to Arsenal`\
-https://nytimes.com/athletic/5733511/2024/08/30/neto-to-arsenal-the-athletic-500-transfer-ratings/
-
-**Florida Family Spent $6 Million on Fake Warhols, Lawsuit Claims**\
-`The family sued a Miami gallery, accusing it of going to elaborate lengths to pass off forged artworks as authentic Andy Warhols; the art dealer denied the allegations.`\
-https://nytimes.com/2024/08/30/arts/andy-warhol-forgeries-lawsuit.html
 

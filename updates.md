@@ -1,3 +1,23 @@
+**Why PSG were willing to sell Ugarte to Manchester United**\
+`Manuel Ugarte has left PSG to join Manchester United — he did not fit in at the French giants`\
+https://nytimes.com/athletic/5729183/2024/08/30/manuel-ugarte-manchester-united-psg-analysis/
+
+**When I’m Dining Out, Should I Have to Deal With Your Dogs?**\
+`The magazine’s Ethicist columnist on public pet etiquette.`\
+https://nytimes.com/2024/08/30/magazine/dogs-restaurant-ethics.html
+
+**Giuliani Faces New Lawsuit From Georgia Election Workers Over Luxury Condo**\
+`The two women, who were defamed by Rudolph W. Giuliani after the 2020 election, have accused him of trying to keep his multimillion-dollar condo in Florida from debt collection.`\
+https://nytimes.com/2024/08/30/us/politics/giuliani-georgia-election-workers-condo.html
+
+**Chelsea on verge of agreeing Sancho loan deal**\
+`Chelsea are on the verge of signing Jadon Sancho from Manchester United.`\
+https://nytimes.com/athletic/5734401/2024/08/30/chelsea-jadon-sancho-transfer-loan/
+
+**UNC's Max Johnson to miss remainder of season due to broken leg**\
+`Sophomore Conner Harrell replaced Johnson, who exited following a hit by Minnesota's Justin Walley in the third quarter.`\
+https://nytimes.com/athletic/5733317/2024/08/30/max-johnson-unc-injury-minnesota/
+
 **Chelsea agree deal to sign Sancho**\
 `Chelsea have reached an agreement to sign Jadon Sancho from Manchester United.`\
 https://nytimes.com/athletic/5734401/2024/08/30/chelsea-jadon-sancho-transfer/
