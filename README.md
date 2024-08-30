@@ -1,3 +1,7 @@
+**Maryland Supreme Court Orders Redo of Hearing That Freed Adnan Syed**\
+`The court upheld an appellate court’s decision to reinstate the murder conviction of Mr. Syed. The case was the focus of the podcast “Serial.”`\
+https://nytimes.com/2024/08/30/us/adnan-syed-maryland-supreme-court-serial.html
+
 **Top candidates to join ESPN's NBA Finals broadcasting team emerge**\
 `The network’s lead NBA broadcast team has been in flux for more than a year after ESPN decided to fire Jeff Van Gundy and Mark Jackson.`\
 https://nytimes.com/athletic/5734238/2024/08/30/nba-finals-espn-crew-grant-hill-jay-bilas-richard-jefferson/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/30/us/politics/liz-cheney-kamala-harris-endorsement.
 **Football Parlay Fridays: Making a round robin with five College Football Week 1 picks**\
 `Austin Mock debuts a new column where he picks a weekly parlay. This week's picks are all underdogs in college football Week 1.`\
 https://nytimes.com/athletic/5731917/2024/08/30/football-parlay-fridays-college-football-week-1/
-
-**Why Williams felt Logan Sargeant reached his limit in F1: 'It was clear to everyone'**\
-`As Franco Colapinto took his first F1 laps at Monza, Williams boss James Vowles explained the move to replace Sargeant.`\
-https://nytimes.com/athletic/5733990/2024/08/30/logan-sargeant-williams-f1-vowles-schumacher-driver/
 
