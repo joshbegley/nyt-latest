@@ -1,3 +1,7 @@
+**Palace to sign Chalobah on loan from Chelsea**\
+`Crystal Palace have reached an agreement with Chelsea to sign defender Trevoh Chalobah on loan.`\
+https://nytimes.com/athletic/5688678/2024/08/30/crystal-palace-trevoh-chalobah/
+
 **Why We Don’t Build Beautifully**\
 `How ideas and not economics changed the way our cities look.`\
 https://nytimes.com/2024/08/30/opinion/architecture-ideas-economics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/30/movies/nicole-kidman-babygirl-venice-film-festiva
 **The ‘Middle’ Is a Muddle**\
 `Everybody loves the middle class. Nobody wants to be mid, or middling. “Middle” is a tricky word.`\
 https://nytimes.com/interactive/2024/08/30/books/middle-class-politics.html
-
-**What Was Your Personal Song of the Summer?**\
-`We want to know your seasonal anthem, for a future Amplifier playlist.`\
-https://nytimes.com/2024/08/30/arts/music/what-was-your-song-of-the-summer.html
 
