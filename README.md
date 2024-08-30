@@ -1,3 +1,7 @@
+**Ravens, Tyler Huntley reunite as QB agrees to return to practice squad**\
+`The Ravens had one open spot on their practice squad, so Huntley’s addition will not force them to make a corresponding move.`\
+https://nytimes.com/athletic/5734965/2024/08/30/ravens-tyler-huntley-returns-practice-squad/
+
 **F.B.I. Releases Redacted Report on Havana Syndrome**\
 `Some current and former officials have said the 2019 F.B.I. analysis sowed doubt within the C.I.A. and parts of the Trump administration about the root causes of the ailments.`\
 https://nytimes.com/2024/08/30/us/politics/fbi-havana-syndrome.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5734401/2024/08/30/chelsea-jadon-sancho-transfer-lo
 **UNC's Max Johnson to miss remainder of season due to broken leg**\
 `Sophomore Conner Harrell replaced Johnson, who exited following a hit by Minnesota's Justin Walley in the third quarter.`\
 https://nytimes.com/athletic/5733317/2024/08/30/max-johnson-unc-injury-minnesota/
-
-**Manchester United sign Ugarte from PSG**\
-`Manchester United have completed the signing of Manuel Ugarte from Paris Saint-Germain.`\
-https://nytimes.com/athletic/5725734/2024/08/30/manchester-united-manuel-ugarte-transfer/
 
