@@ -1,3 +1,7 @@
+**Landon Y. Jones, Who Made People a Star Among Magazines, Dies at 80**\
+`An unapologetic champion of the newsworthiness of celebrities, he also drew attention to teenage pregnancy and helped popularize the term “baby boomer.”`\
+https://nytimes.com/2024/08/30/business/media/landon-y-jones-dead.html
+
 **Manchester United's Europa League draw analysed - Mourinho and the team Ten Hag idolised**\
 `United face Ten Hag's boyhood heroes FC Twente, Mourinho and Fred's Fenerbahce, Rangers, Porto, Bodo/Glimt, Viktoria Plzen, PAOK and FCSB`\
 https://nytimes.com/athletic/5733822/2024/08/30/manchester-united-europa-league-mourinho/
