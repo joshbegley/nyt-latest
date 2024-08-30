@@ -1,3 +1,11 @@
+**Election Live Updates: Trump and Harris Camps Heading to Swing States for Labor Day Push**\
+`After her CNN interview, Kamala Harris will hit the trail, in Detroit and Pittsburgh, on the holiday. Today, Donald Trump has a rally in Pennsylvania and will attend a Moms for Liberty event.`\
+https://nytimes.com/live/2024/08/30/us/harris-trump-election
+
+**Here’s the latest on the 2024 race.**\
+`By Jonathan Weisman and Tim Balk`\
+https://nytimes.com/live/2024/08/30/us/harris-trump-election/heres-the-latest-on-the-2024-race
+
 **Why Brandon Aiyuk's fit with Brock Purdy was too good for 49ers to trade away**\
 `The crucial part of the Aiyuk deal — it keeps intact a quarterback-receiver combination that's been so elusive for Shanahan's 49ers.`\
 https://nytimes.com/athletic/5733237/2024/08/30/brandon-aiyuk-49ers-brock-purdy-kyle-shanahan/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5732120/2024/08/30/colorado-score-travis-hunter-cat
 **Don't call it the Super League: Champions League clubs' view on UEFA's display of power**\
 `At Thursday's draw at Monaco, the new Champions League league phase was plotted out. This is how the room reacted...`\
 https://nytimes.com/athletic/5733512/2024/08/30/champions-league-draw-ronaldo-new-format-reaction/
-
-**Turner to join Palace on loan from Nottm Forest**\
-`Nottingham Forest’s USMNT international Matt Turner is set to join Crystal Palace on loan.`\
-https://nytimes.com/athletic/5733629/2024/08/30/matt-turner-crystal-palace-transfer-nottingham-forest/
-
-**The Athletic FC: The big questions on transfer deadline day with Toney set for Saudi move**\
-`Today in The Athletic FC: We bring you the big questions from Premier League deadline day - and the reaction to the Champions League draw.`\
-https://nytimes.com/athletic/5733559/2024/08/30/deadline-day-toney-saudi/
 

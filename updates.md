@@ -1,3 +1,11 @@
+**Election Live Updates: Trump and Harris Camps Heading to Swing States for Labor Day Push**\
+`After her CNN interview, Kamala Harris will hit the trail, in Detroit and Pittsburgh, on the holiday. Today, Donald Trump has a rally in Pennsylvania and will attend a Moms for Liberty event.`\
+https://nytimes.com/live/2024/08/30/us/harris-trump-election
+
+**Here’s the latest on the 2024 race.**\
+`By Jonathan Weisman and Tim Balk`\
+https://nytimes.com/live/2024/08/30/us/harris-trump-election/heres-the-latest-on-the-2024-race
+
 **International criticism was mounting over the operation that local officials say has killed 19 Palestinians.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/08/30/world/israel-hamas-gaza-war/israeli-forces-pull-back-from-tulkarm-but-press-on-with-their-raid-of-jenin-officials-say
