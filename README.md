@@ -1,3 +1,35 @@
+**Assessing Manchester United's squad for 2024-25: Is improvement on the cards?**\
+`Ten Hag has been backed this summer and the significant additions made in the market suggest United will improve from last season's mess`\
+https://nytimes.com/athletic/3453102/2024/08/30/manchester-united-squad-ten-hag/
+
+**What Phil Donahue Meant to Me**\
+`The iconic daytime television host redefined the genre, letting the audience participate for the first time.`\
+https://nytimes.com/2024/08/30/podcasts/the-daily/phil-donahue.html
+
+**Barcelona, mass tourism and the protests targeting foreign visitors**\
+`As opposition grows to a rising number of foreign visitors, FC Barcelona is watching with interest`\
+https://nytimes.com/athletic/5731375/2024/08/30/barcelona-tourism-protests-camp-nou-tickets/
+
+**Gaza Fighting to Pause for Polio Vaccinations, and Harris’s CNN Interview**\
+`Plus, complacency as Covid cases surge.`\
+https://nytimes.com/2024/08/30/podcasts/gaza-polio-vaccines-kamala-harriss-interview.html
+
+**Will it be Boise State that claims first Group of 5 spot in 12-team Playoff?**\
+`Boise is loaded with returnees at key spots and has a new coach who led it to a strong finish in 2023. But does it have the QB to win big?`\
+https://nytimes.com/athletic/5725472/2024/08/30/boise-state-college-football-playoff-projections-preview/
+
+**The Connections Companion No. 447**\
+`Scroll down for hints and conversation about the puzzle for Saturday, Aug. 31, 2024.`\
+https://nytimes.com/2024/08/30/crosswords/connections-companion-447.html
+
+**Wordle Review No. 1,169**\
+`Scroll down for hints and conversation about the puzzle for August 31, 2024.`\
+https://nytimes.com/2024/08/30/crosswords/wordle-review-no-1169.html
+
+**Six Cubs takeaways: PCA in pitchers' heads, offense turning a corner, bullpen injuries and more**\
+`The Cubs still have another 28 games to try and show everyone that a poor May and June won’t define their season.`\
+https://nytimes.com/athletic/5731457/2024/08/30/cubs-takeaways-pete-crow-armstrong-stolen-bases/
+
 **Inmate Revolts Highlight Failings and Miseries of Russian Prisons**\
 `Staff shortages, beatings, corruption and harsh treatment of Muslim prisoners have all led to unrest among inmates, with recent uprisings turning deadly.`\
 https://nytimes.com/2024/08/30/world/europe/russian-prisons-inmate-uprisings.html
@@ -5,36 +37,4 @@ https://nytimes.com/2024/08/30/world/europe/russian-prisons-inmate-uprisings.htm
 **In Baltimore, newly acquired Eloy Jimenez has a fresh start and a lot still to prove**\
 `"I’ve been happy with the performance, but I know I have more in me,” said Jiménez, who hasn't hit a home run in over two months. `\
 https://nytimes.com/athletic/5732045/2024/08/30/baltimore-orioles-eloy-jimenez-white-sox-trade/
-
-**Ward-Prowse set for Nottingham Forest loan move**\
-`James Ward-Prowse is set to move on loan to Nottingham Forest from West Ham United.`\
-https://nytimes.com/athletic/5733479/2024/08/30/nottingham-forest-james-ward-prowse-loan-transfer/
-
-**Slot believes new signing Chiesa has all the qualities to flourish at Liverpool**\
-`Arne Slot believes new signing Federico Chiesa has all the qualities to flourish at Liverpool, but the Italian attacker is unlikely to make his debut against Manchester United on Sunday.`\
-https://nytimes.com/athletic/5733492/2024/08/30/liverpool-chiesa-slot-man-united/
-
-**'He's special': Ahead of his Reds debut, Rhett Lowder earns raves from veteran catcher**\
-`Lowder, the No. 7 pick in the 2023 draft, debuts Friday night against the Brewers despite only one Triple-A start. `\
-https://nytimes.com/athletic/5732647/2024/08/30/reds-rhett-lowder-debut-tucker-barnhart-reaction/
-
-**The New York Times News Quiz, August 30, 2024**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2024/08/30/briefing/news-quiz-harris-interview.html
-
-**5 Things to Do This Weekend**\
-`A selection of entertainment highlights this weekend, including Lee Daniels’s “The Deliverance,” a tale of possession based on a true story.`\
-https://nytimes.com/interactive/2024/08/30/arts/weekend-editors-picks-the-deliverance.html
-
-**I Used to Be Resilient. What Happened?**\
-`These days, getting cut off in traffic can send me on an emotional rollercoaster. So I asked experts how to get mentally tougher.`\
-https://nytimes.com/2024/08/30/well/mental-resilience-tips.html
-
-**Boar’s Head Plant Tied to 9 Deaths Had Mold, Leaky Pipes and Flies**\
-`Federal inspectors cited continuing problems at a deli meat plant in Virginia that was linked to an outbreak of listeria, records indicate.`\
-https://nytimes.com/2024/08/30/health/listeria-outbreak-boars-head-deli-meat.html
-
-**How Mexico’s Judicial Overhaul Compares to Other Countries**\
-`President Andrés Manuel López Obrador’s plan for transforming the judiciary goes much further than other countries that allow some judges to be elected.`\
-https://nytimes.com/2024/08/30/world/americas/mexico-judicial-overhaul-comparison.html
 
