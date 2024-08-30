@@ -1,3 +1,7 @@
+**Manchester United's Europa League draw analysed - Mourinho and the team Ten Hag idolised**\
+`United face Ten Hag's boyhood heroes FC Twente, Mourinho and Fred's Fenerbahce, Rangers, Porto, Bodo/Glimt, Viktoria Plzen, PAOK and FCSB`\
+https://nytimes.com/athletic/5733822/2024/08/30/manchester-united-europa-league-mourinho/
+
 **Basel Will Host Eurovision Song Contest (Unless Its Taxpayers Revolt)**\
 `Many in the Swiss city celebrated the announcement. But after a debate about the cost, a conservative party wants a referendum over whether the public should pay.`\
 https://nytimes.com/2024/08/30/arts/music/eurovision-2025-basel-switzerland.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5727189/2024/08/30/penn-state-west-virginia-picks-o
 **An Obesity Drug Prevents Covid Deaths, Study Suggests**\
 `People taking Wegovy were not protected from infection. But in a large trial, their death rates were markedly lower, for reasons that are not clear.`\
 https://nytimes.com/2024/08/30/health/wegovy-covid-deaths.html
-
-**The Fed’s Preferred Inflation Gauge Stays Cool, Keeping a Rate Cut Imminent**\
-`Inflation remained cool in July, based on the Personal Consumption Expenditures Index, keeping the Federal Reserve on track for rate cuts.`\
-https://nytimes.com/2024/08/30/business/economy/inflation-stays-cool-fed-rate-cut.html
 
