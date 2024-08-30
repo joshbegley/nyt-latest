@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5733412/2024/08/30/neto-arsenal-transfer/
 https://nytimes.com/athletic/5734831/2024/08/30/arsenal-reiss-nelson-transfer-ipswich/
 
 **Leonard Riggio, 83, Dies; Founded Barnes & Noble and Upended Publishing**\
-`He turned a college book store into publishing behemoth, pioneering the bookstore-as-superstore and putting thousands of independents out of business before being overtaken by Amazon.`\
+`He turned a college book store into a publishing behemoth, pioneering the bookstore-as-superstore and putting thousands of independents out of business before being overtaken by Amazon.`\
 https://nytimes.com/2024/08/30/business/leonard-riggio-dead.html
 
 **Harris Grapples With How to Use Biden on the Campaign Trail**\

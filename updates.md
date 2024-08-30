@@ -1,3 +1,11 @@
+**Florida Family Spent $6 Million on Fake Warhols, Lawsuit Claims**\
+`The family sued a Miami gallery, accusing it of going to elaborate lengths to pass off forged artworks as authentic Andy Warhols; the art dealer denied the allegations.`\
+https://nytimes.com/2024/08/30/arts/andy-warhol-forgeries-lawsuit.html
+
+**Neto joins Arsenal on season-long loan from Bournemouth**\
+`Arsenal have completed the signing of Bournemouth goalkeeper Neto on a season-long loan.`\
+https://nytimes.com/athletic/5733412/2024/08/30/neto-arsenal-transfer/
+
 **Ipswich close to loan deal for Arsenal's Nelson**\
 `Ipswich Town are close to an agreement to sign Reiss Nelson on a season-long loan from Arsenal.`\
 https://nytimes.com/athletic/5734831/2024/08/30/arsenal-reiss-nelson-transfer-ipswich/
