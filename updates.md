@@ -1,3 +1,7 @@
+**West Ham closing in on deal to sign Carlos Soler from PSG**\
+`West Ham United are making progress over a deal to sign Carlos Soler from Paris Saint-Germain.`\
+https://nytimes.com/athletic/5733627/2024/08/30/carlos-soler-psg-west-ham-transfer/
+
 **The Pulse: Catch of the year contender, already**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5732120/2024/08/30/colorado-score-travis-hunter-catch-the-pulse/
