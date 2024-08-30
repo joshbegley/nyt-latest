@@ -1,3 +1,11 @@
+**Inspectors Found Mold and Meat Residue at a Boar’s Head Plant. How Could This Happen?**\
+`It’s easy for people to complain about excessive regulation, but consumers shouldn’t forget how hard it is to keep mass-produced food safe.`\
+https://nytimes.com/live/2024/08/27/opinion/thepoint/boars-head-listeria-outbreak
+
+**‘Afraid’ Review: Hey Siri, Don’t Kill Us**\
+`A family surrenders control of its life to artificial intelligence with predictably dire results — for this movie’s viewers.`\
+https://nytimes.com/2024/08/30/movies/afraid-review.html
+
 **Cheney, on the Sidelines as Harris Courts Her Endorsement, Plans to Weigh In Soon**\
 `The former Wyoming congresswoman, the most prominent Republican critic of Donald J. Trump, did not speak at Democrats’ convention, calculating that she could have more impact later in the race.`\
 https://nytimes.com/2024/08/30/us/politics/liz-cheney-kamala-harris-endorsement.html
