@@ -1,3 +1,7 @@
+**Trump Floats Coverage Mandate for I.V.F. Treatment**\
+`The former president, who frequently takes credit for helping to overturn Roe v. Wade, has been trying to reposition himself on the issue of reproductive access`\
+https://nytimes.com/2024/08/29/us/politics/trump-ivf-michigan.html
+
 **In CNN Interview Excerpts, Harris Defends Ideological Shift to Center**\
 `Vice President Kamala Harris said it would be “really important” for her administration to reflect “different views,” according to early clips of her interview released by CNN.`\
 https://nytimes.com/2024/08/29/us/politics/harris-cnn-interview.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/29/opinion/cryptocurrency-election.html
 **49ers, Brandon Aiyuk agree to 4-year extension**\
 `The extension ends a difficult contract stalemate that included Aiyuk conducting a "hold-in" at training camp.`\
 https://nytimes.com/athletic/5656049/2024/08/29/brandon-aiyuk-contract-extension-san-francisco-49ers/
-
-**With Court Victories, Conservatives Push Back on Biden Policies**\
-`Legal challenges have blocked many of the policies that President Biden saw as critical to his legacy, on issues like immigration and student loans.`\
-https://nytimes.com/2024/08/29/us/politics/biden-courts-immigration-student-loans-title-ix.html
 

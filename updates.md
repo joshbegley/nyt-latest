@@ -1,3 +1,7 @@
+**Trump Floats Coverage Mandate for I.V.F. Treatment**\
+`The former president, who frequently takes credit for helping to overturn Roe v. Wade, has been trying to reposition himself on the issue of reproductive access`\
+https://nytimes.com/2024/08/29/us/politics/trump-ivf-michigan.html
+
 **In CNN Interview Excerpts, Harris Defends Ideological Shift to Center**\
 `Vice President Kamala Harris said it would be “really important” for her administration to reflect “different views,” according to early clips of her interview released by CNN.`\
 https://nytimes.com/2024/08/29/us/politics/harris-cnn-interview.html
