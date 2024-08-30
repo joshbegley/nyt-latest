@@ -1,3 +1,11 @@
+**Arsenal working to finalise Sterling loan deal**\
+`Chelsea forward Raheem Sterling has arrived at Arsenal&#8217;s training ground as all parties work to finalise a season-long loan deal.`\
+https://nytimes.com/athletic/5734804/2024/08/30/raheem-sterling-arsenal/
+
+**Putin Plans First Visit to I.C.C. Member State Since Arrest Warrant**\
+`The Russian president will travel to Mongolia, a member of the International Criminal Court, which issued a warrant for his arrest in 2023.`\
+https://nytimes.com/2024/08/30/world/europe/putin-visit-mongolia-icc.html
+
 **Manuel Ugarte to Manchester United: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500 series, we look at Manuel Ugarte's move to Manchester United.`\
 https://nytimes.com/athletic/5705336/2024/08/30/manuel-ugarte-manchester-united-athletic-500-transfer-ratings/
