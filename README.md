@@ -1,3 +1,15 @@
+**McTominay completes Napoli move**\
+`Scott McTominay has completed his move from Manchester United to Napoli.`\
+https://nytimes.com/athletic/5725809/2024/08/30/scott-mctominay-transfer-napoli-man-utd/
+
+**Conservatives Are Fighting Over Ronald Reagan’s Legacy. They Overlook What Made Him So Successful.**\
+`That bodes poorly for the G.O.P.’s future.`\
+https://nytimes.com/2024/08/30/opinion/ronald-reagan-legacy.html
+
+**Amy Klobuchar Wants to Stop Algorithms From Ripping You Off**\
+`Companies are using technology to collude on prices, and our laws need updating to stop it.`\
+https://nytimes.com/2024/08/30/opinion/algorithm-collusion-amy-klobuchar.html
+
 **Arsenal in talks to sign Sterling from Chelsea on loan**\
 `Arsenal are in talks with Chelsea to sign Raheem Sterling on loan before the transfer market shuts.`\
 https://nytimes.com/athletic/5714397/2024/08/30/arsenal-raheem-sterling-chelsea-transfer/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5734628/2024/08/30/tj-mcconnell-pacers-contract-ext
 **They Traveled Home After Defending Ukraine, and Ended Up in a Russian Prison**\
 `Two Colombian soldiers who had fought for Ukraine are now under arrest in Moscow. They wound up there after stopping over in Venezuela, which apparently extradited them.`\
 https://nytimes.com/2024/08/30/world/americas/venezuela-ukraine-military-russia.html
-
-**10 Unforgettable Songs From 1999 Movies**\
-`Listen to tracks by the Chicks, Aimee Mann, Blink-182 and more linked to moments in a monumentally interesting — and busy — year of cinema.`\
-https://nytimes.com/2024/08/30/arts/music/amplifier-newsletter-1999-movie-songs.html
-
-**James Bjorken, 90, Dies; Physicist Who Helped Prove That Quarks Exist**\
-`His research enabled the discovery that protons and neutrons are made of smaller particles, contributing to a fuller picture of the subatomic universe.`\
-https://nytimes.com/2024/08/30/science/james-bjorken-dead.html
-
-**Everton sign Mangala on loan deal from Lyon**\
-`Everton have completed the signing of Orel Mangala from Lyon on a season-long loan.`\
-https://nytimes.com/athletic/5731137/2024/08/30/orel-mangala-everton-transfers/
 
