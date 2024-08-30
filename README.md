@@ -1,3 +1,8 @@
+**What to watch at U.S. Open on Day 5: Ben Shelton and Frances Tiafoe face off**\
+`Follow live coverage of day five at the 2024 US Open
+Day 5 of the U.`\
+https://nytimes.com/athletic/5733235/2024/08/30/us-open-day-5-watch-guide-shelton-tiafoe/
+
 **Sidewalk Cafes Are the Latest Target of New York’s Outdoor Dining Crackdown**\
 `Under new outdoor dining rules, inspectors are ticketing some restaurants and coffeehouses that have a few chairs or tables outside but no formal structures.`\
 https://nytimes.com/2024/08/30/nyregion/ny-outdoor-dining-rules.html
@@ -33,8 +38,4 @@ https://nytimes.com/2024/08/30/learning/word-of-the-day-foray.html
 **Kiingi Tuheitia, King of the Maori in New Zealand, Dies at 69**\
 `The king, who had been on the throne for 18 years, was praised by New Zealand’s prime minister for his “unwavering commitment to his people.”`\
 https://nytimes.com/2024/08/30/world/australia/maori-king-tuheitia-dead-new-zealand.html
-
-**Tim Walz Is Happy to Help, Content to Be Ignored**\
-`In his CNN interview alongside Vice President Kamala Harris, Gov. Tim Walz of Minnesota didn’t field too many questions. When he did, he spoke about his family.`\
-https://nytimes.com/2024/08/30/us/elections/tim-walz-cnn-interview.html
 
