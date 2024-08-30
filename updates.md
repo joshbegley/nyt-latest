@@ -1,3 +1,7 @@
+**'He's special': Ahead of his Reds debut, Rhett Lowder earns raves from veteran catcher**\
+`Lowder, the No. 7 pick in the 2023 draft, debuts Friday night against the Brewers despite only one Triple-A start. `\
+https://nytimes.com/athletic/5732647/2024/08/30/reds-rhett-lowder-debut-tucker-barnhart-reaction/
+
 **5 Things to Do This Weekend**\
 `A selection of entertainment highlights this weekend, including Lee Daniels’s “The Deliverance,” a tale of possession based on a true story.`\
 https://nytimes.com/interactive/2024/08/30/arts/weekend-editors-picks-the-deliverance.html
