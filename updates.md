@@ -1,3 +1,15 @@
+**On Relationships, a Reporter Connects With Readers**\
+`How do I repair my marriage? How can I strengthen my friendships? Catherine Pearson, a writer on the Well desk, helps readers find answers to these questions and more.`\
+https://nytimes.com/2024/08/30/insider/relationship-questions.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/30/crosswords/spelling-bee-forum.html
+
+**Real Madrid briefing: Mbappe's slow start, Vinicius Jr's penalty and Ceballos latest**\
+`Carlo Ancelotti's side slumped to another 1-1 draw away from home in another disappointing performance`\
+https://nytimes.com/athletic/5733421/2024/08/30/real-madrid-las-palmas-mbappe-vinicius-jr-ceballos/
+
 **Forget how many players they have - Chelsea's squad still lacks depth**\
 `Chelsea's second string narrowly overcame Servette in Conference League qualifying. There are genuine concerns over their strength in depth`\
 https://nytimes.com/athletic/5732318/2024/08/30/chelsea-servette-squad-players-conference-league/

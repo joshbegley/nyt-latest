@@ -1,3 +1,15 @@
+**On Relationships, a Reporter Connects With Readers**\
+`How do I repair my marriage? How can I strengthen my friendships? Catherine Pearson, a writer on the Well desk, helps readers find answers to these questions and more.`\
+https://nytimes.com/2024/08/30/insider/relationship-questions.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/30/crosswords/spelling-bee-forum.html
+
+**Real Madrid briefing: Mbappe's slow start, Vinicius Jr's penalty and Ceballos latest**\
+`Carlo Ancelotti's side slumped to another 1-1 draw away from home in another disappointing performance`\
+https://nytimes.com/athletic/5733421/2024/08/30/real-madrid-las-palmas-mbappe-vinicius-jr-ceballos/
+
 **Forget how many players they have - Chelsea's squad still lacks depth**\
 `Chelsea's second string narrowly overcame Servette in Conference League qualifying. There are genuine concerns over their strength in depth`\
 https://nytimes.com/athletic/5732318/2024/08/30/chelsea-servette-squad-players-conference-league/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/30/us/uk-national-gallery-letter-sainsbury-wing.html
 **Liverpool showed in 17 seconds how they want to play under Slot**\
 `An intricate but fast-paced passing move against Brentford gave a glimpse of new manager's principles`\
 https://nytimes.com/athletic/5728313/2024/08/30/liverpool-arne-slot-football/
-
-**The Dejan Kulusevski conundrum: Where does he best fit in this Tottenham team?**\
-`Maybe Postecoglou sees Kulusevski as multi-functional. The Swede can drop in across the pitch without a significant drop in quality`\
-https://nytimes.com/athletic/5731191/2024/08/30/dejan-kulusevski-tottenham-midfield/
-
-**Why Leicester have spent big on Bilal El Khannouss**\
-`Leicester are set to commit the best part of £20million on the Genk attacking midfielder - but what are they getting?`\
-https://nytimes.com/athletic/5731080/2024/08/30/leicester-bilal-el-khannouss-transfer/
-
-**FPL: How to prioritise which problems to fix when panic sets in**\
-`What should you do if you have Solanke, Quansah, Nkunku and Foden in your team? We're here to help…`\
-https://nytimes.com/athletic/5726346/2024/08/30/fantasy-premier-league-priority-problems/
 
