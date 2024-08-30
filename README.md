@@ -1,3 +1,15 @@
+**Everton sign Mangala on loan deal from Lyon**\
+`Everton have completed the signing of Orel Mangala from Lyon on a season-long loan.`\
+https://nytimes.com/athletic/5731137/2024/08/30/orel-mangala-everton-transfers/
+
+**Why Oil Prices Remain Subdued**\
+`Despite war in the Middle East and political turmoil in Libya, investors are focusing on what look like ample global supplies.`\
+https://nytimes.com/2024/08/30/business/oil-prices.html
+
+**Nicole Kidman Bares Everything in the Sexy Drama ‘Babygirl’**\
+`The star is taking chances again in this look at a woman reconciling her sexual fantasies. The movie was the talk of the Venice Film Festival.`\
+https://nytimes.com/2024/08/30/movies/nicole-kidman-babygirl-venice-film-festival.html
+
 **The ‘Middle’ Is a Muddle**\
 `Everybody loves the middle class. Nobody wants to be mid, or middling. “Middle” is a tricky word.`\
 https://nytimes.com/interactive/2024/08/30/books/middle-class-politics.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5724255/2024/08/30/lovers-ball-everything-thats-rig
 **Israel strikes an aid convoy, killing several people, a relief group says.**\
 `By Raja Abdulrahim and Aaron Boxerman`\
 https://nytimes.com/live/2024/08/30/world/israel-hamas-gaza-war/israel-strikes-an-aid-convoy-killing-several-people-a-relief-group-says
-
-**Maryland Supreme Court Orders Redo of Hearing That Freed Adnan Syed**\
-`The court upheld an appellate court’s decision to reinstate the murder conviction of Mr. Syed. The case was the focus of the podcast “Serial.”`\
-https://nytimes.com/2024/08/30/us/adnan-syed-maryland-supreme-court-serial.html
-
-**Top candidates to join ESPN's NBA Finals broadcasting team emerge**\
-`The network’s lead NBA broadcast team has been in flux for more than a year after ESPN decided to fire Jeff Van Gundy and Mark Jackson.`\
-https://nytimes.com/athletic/5734238/2024/08/30/nba-finals-espn-crew-grant-hill-jay-bilas-richard-jefferson/
-
-**Eminem and LL Cool J Duel in Speedy Raps, and 9 More New Songs**\
-`Hear tracks by Sophie featuring Bibi Bourelly, Kim Deal, Tommy Richman and more.`\
-https://nytimes.com/2024/08/30/arts/music/playlist-ll-cool-j-eminem-sophie.html
 
