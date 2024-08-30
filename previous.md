@@ -1,3 +1,23 @@
+**Brazil Blocks X After Musk Ignores Court Orders**\
+`The social network will go dark in the nation of 200 million, the result of an escalating fight between Elon Musk and a Brazilian judge over what can be said online.`\
+https://nytimes.com/2024/08/30/world/americas/brazil-elon-musk-x-blocked.html
+
+**At 2 Elite Colleges, Shifts in Racial Enrollment After Affirmative Action Ban**\
+`Amherst College and Tufts University saw shifts in the racial makeup of students after a Supreme Court decision ending affirmative action. At other schools, the picture is murkier.`\
+https://nytimes.com/2024/08/30/us/black-enrollment-affirmative-action-amherst-tufts-uva.html
+
+**After 11 Months of War, Gaza Faces a New Threat: Polio**\
+`Starting Sunday, the Israeli military and Hamas will observe brief, staggered pauses in fighting to allow 640,000 Gazan children to be vaccinated, U.N. officials said.`\
+https://nytimes.com/2024/08/30/world/middleeast/israel-gaza-polio-vaccinations.html
+
+**Abraham joins Milan on loan from Roma**\
+`Tammy Abraham has joined AC Milan on a season-long loan from Roma.`\
+https://nytimes.com/athletic/5671607/2024/08/30/tammy-abraham-milan-transfer-loan/
+
+**Trump Biopic ‘The Apprentice’ Gets U.S. Release Date**\
+`The movie, which stars Sebastian Stan as a young Donald J. Trump, is scheduled to hit theaters on Oct. 11, ahead of the presidential election.`\
+https://nytimes.com/2024/08/30/movies/apprentice-trump-biopic-release-date.html
+
 **Neto to Arsenal: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500 series, we look at Neto's move to Arsenal`\
 https://nytimes.com/athletic/5733511/2024/08/30/neto-to-arsenal-the-athletic-500-transfer-ratings/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5734831/2024/08/30/arsenal-reiss-nelson-transfer-ip
 **Leonard Riggio, 83, Dies; Founded Barnes & Noble and Upended Publishing**\
 `He turned a college book store into a publishing behemoth, pioneering the bookstore-as-superstore and putting thousands of independents out of business before being overtaken by Amazon.`\
 https://nytimes.com/2024/08/30/business/leonard-riggio-dead.html
-
-**Harris Grapples With How to Use Biden on the Campaign Trail**\
-`The president will mostly be deployed to the vital swing states of Pennsylvania, Michigan and Wisconsin as the vice president seeks to define a separate political identity.`\
-https://nytimes.com/2024/08/30/us/politics/harris-biden-campaign-strategy.html
-
-**Trump will address Moms for Liberty, a spearhead in the culture wars.**\
-`By Dana Goldstein and Troy Closson`\
-https://nytimes.com/live/2024/08/30/us/harris-trump-election/trump-will-address-moms-for-liberty-a-spearhead-in-the-culture-wars
-
-**United will miss McTominay - the local boy who never shirked a challenge**\
-`Academy-graduate midfielder McTominay was not technically proficient but his attitude was exemplary at a time when United needed it `\
-https://nytimes.com/athletic/5728203/2024/08/30/scott-mctominay-manchester-united-napoli/
-
-**McTominay completes Napoli move**\
-`Scott McTominay has completed his move from Manchester United to Napoli.`\
-https://nytimes.com/athletic/5725809/2024/08/30/scott-mctominay-transfer-napoli-man-utd/
-
-**Conservatives Are Fighting Over Ronald Reagan’s Legacy. They Overlook What Made Him So Successful.**\
-`That bodes poorly for the G.O.P.’s future.`\
-https://nytimes.com/2024/08/30/opinion/ronald-reagan-legacy.html
 

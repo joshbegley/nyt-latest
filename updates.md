@@ -1,3 +1,23 @@
+**Brazil Blocks X After Musk Ignores Court Orders**\
+`The social network will go dark in the nation of 200 million, the result of an escalating fight between Elon Musk and a Brazilian judge over what can be said online.`\
+https://nytimes.com/2024/08/30/world/americas/brazil-elon-musk-x-blocked.html
+
+**At 2 Elite Colleges, Shifts in Racial Enrollment After Affirmative Action Ban**\
+`Amherst College and Tufts University saw shifts in the racial makeup of students after a Supreme Court decision ending affirmative action. At other schools, the picture is murkier.`\
+https://nytimes.com/2024/08/30/us/black-enrollment-affirmative-action-amherst-tufts-uva.html
+
+**After 11 Months of War, Gaza Faces a New Threat: Polio**\
+`Starting Sunday, the Israeli military and Hamas will observe brief, staggered pauses in fighting to allow 640,000 Gazan children to be vaccinated, U.N. officials said.`\
+https://nytimes.com/2024/08/30/world/middleeast/israel-gaza-polio-vaccinations.html
+
+**Abraham joins Milan on loan from Roma**\
+`Tammy Abraham has joined AC Milan on a season-long loan from Roma.`\
+https://nytimes.com/athletic/5671607/2024/08/30/tammy-abraham-milan-transfer-loan/
+
+**Trump Biopic ‘The Apprentice’ Gets U.S. Release Date**\
+`The movie, which stars Sebastian Stan as a young Donald J. Trump, is scheduled to hit theaters on Oct. 11, ahead of the presidential election.`\
+https://nytimes.com/2024/08/30/movies/apprentice-trump-biopic-release-date.html
+
 **Leonard Riggio, 83, Dies; Founded Barnes & Noble and Upended Publishing**\
 `He turned a college book store into a publishing behemoth, pioneering the bookstore-as-superstore and putting thousands of independents out of business before being overtaken by Amazon.`\
 https://nytimes.com/2024/08/30/business/leonard-riggio-dead.html
