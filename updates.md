@@ -1,3 +1,7 @@
+**Al Ahli reach agreement to sign Ivan Toney from Brentford**\
+`Al Ahli have reached an agreement with Brentford for the proposed signing of Ivan Toney.`\
+https://nytimes.com/athletic/5590882/2024/08/30/ivan-toney-al-ahli-transfer/
+
 **Preaching the Mormon Gospel in Remotest Australia, With Art**\
 `In Northern Territory communities, missionaries rely on a special Indigenous edition of the Book of Mormon to get their message out.`\
 https://nytimes.com/2024/08/30/world/australia/mormons-indigenous-art.html

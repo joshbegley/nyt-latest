@@ -1,3 +1,7 @@
+**Al Ahli reach agreement to sign Ivan Toney from Brentford**\
+`Al Ahli have reached an agreement with Brentford for the proposed signing of Ivan Toney.`\
+https://nytimes.com/athletic/5590882/2024/08/30/ivan-toney-al-ahli-transfer/
+
 **Preaching the Mormon Gospel in Remotest Australia, With Art**\
 `In Northern Territory communities, missionaries rely on a special Indigenous edition of the Book of Mormon to get their message out.`\
 https://nytimes.com/2024/08/30/world/australia/mormons-indigenous-art.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5732318/2024/08/30/chelsea-servette-squad-players-c
 **Tropical Storm Shanshan Soaks Japan, Raising Flood and Landslide Risks**\
 `The weakened storm still packed heavy rain and strong winds. It has killed four people, injured more than 100 and prompted evacuation orders for more than four million.`\
 https://nytimes.com/2024/08/30/world/asia/typhoon-shanshan-japan.html
-
-**Word of the Day: foray**\
-`This word has appeared in 217 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/08/30/learning/word-of-the-day-foray.html
 
