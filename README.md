@@ -1,3 +1,11 @@
+**Florida Family Spent $6 Million on Fake Warhols, Lawsuit Claims**\
+`The family sued a Miami gallery, accusing it of going to elaborate lengths to pass off forged artworks as authentic Andy Warhols; the art dealer denied the allegations.`\
+https://nytimes.com/2024/08/30/arts/andy-warhol-forgeries-lawsuit.html
+
+**Neto joins Arsenal on season-long loan from Bournemouth**\
+`Arsenal have completed the signing of Bournemouth goalkeeper Neto on a season-long loan.`\
+https://nytimes.com/athletic/5733412/2024/08/30/neto-arsenal-transfer/
+
 **Ipswich close to loan deal for Arsenal's Nelson**\
 `Ipswich Town are close to an agreement to sign Reiss Nelson on a season-long loan from Arsenal.`\
 https://nytimes.com/athletic/5734831/2024/08/30/arsenal-reiss-nelson-transfer-ipswich/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5725809/2024/08/30/scott-mctominay-transfer-napoli-
 **Conservatives Are Fighting Over Ronald Reagan’s Legacy. They Overlook What Made Him So Successful.**\
 `That bodes poorly for the G.O.P.’s future.`\
 https://nytimes.com/2024/08/30/opinion/ronald-reagan-legacy.html
-
-**Amy Klobuchar Wants to Stop Algorithms From Ripping You Off**\
-`Companies are using technology to collude on prices, and our laws need updating to stop it.`\
-https://nytimes.com/2024/08/30/opinion/algorithm-collusion-amy-klobuchar.html
-
-**Arsenal in talks to sign Sterling from Chelsea on loan**\
-`Arsenal are in talks with Chelsea to sign Raheem Sterling on loan before the transfer market shuts.`\
-https://nytimes.com/athletic/5714397/2024/08/30/arsenal-raheem-sterling-chelsea-transfer/
 

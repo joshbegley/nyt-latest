@@ -1,3 +1,7 @@
+**Ipswich close to loan deal for Arsenal's Nelson**\
+`Ipswich Town are close to an agreement to sign Reiss Nelson on a season-long loan from Arsenal.`\
+https://nytimes.com/athletic/5734831/2024/08/30/arsenal-reiss-nelson-transfer-ipswich/
+
 **Leonard Riggio, 83, Dies; Founded Barnes & Noble and Upended Publishing**\
 `He turned a college book store into publishing behemoth, pioneering the bookstore-as-superstore and putting thousands of independents out of business before being overtaken by Amazon.`\
 https://nytimes.com/2024/08/30/business/leonard-riggio-dead.html
