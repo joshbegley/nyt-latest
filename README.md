@@ -1,3 +1,19 @@
+**Aaron Ramsdale to Southampton: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we look at Aaron Ramsdale's move to Southampton.`\
+https://nytimes.com/athletic/5731000/2024/08/30/aaron-ramsdale-southampton-transfer-rating/
+
+**Is It Better to Stay on Your Parents’ Health Care Plan or Enroll in an Employer’s?**\
+`For young adults, the choice isn’t always a straightforward one.`\
+https://nytimes.com/2024/08/30/your-money/young-adult-health-coverage.html
+
+**Penn State at West Virginia picks, odds, how to watch: Nittany Lions favored on the road**\
+`Penn State travels to West Virginia for a Power 4 matchup on Saturday. The Nittany Lions are significant favorites.`\
+https://nytimes.com/athletic/5727189/2024/08/30/penn-state-west-virginia-picks-odds-how-to-watch/
+
+**An Obesity Drug Prevents Covid Deaths, Study Suggests**\
+`People taking Wegovy were not protected from infection. But in a large trial, their death rates were markedly lower, for reasons that are not clear.`\
+https://nytimes.com/2024/08/30/health/wegovy-covid-deaths.html
+
 **The Fed’s Preferred Inflation Gauge Stays Cool, Keeping a Rate Cut Imminent**\
 `Inflation remained cool in July, based on the Personal Consumption Expenditures Index, keeping the Federal Reserve on track for rate cuts.`\
 https://nytimes.com/2024/08/30/business/economy/inflation-stays-cool-fed-rate-cut.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5733795/2024/08/30/arsenal-merino-injury-arteta-sig
 **South Korea Says an Official Leaked a Classified Spy Roster to China**\
 `The sales of intelligence agency data raised awkward questions as the nation is expanding military information sharing with the United States.`\
 https://nytimes.com/2024/08/30/world/asia/south-korea-spy-leak-china.html
-
-**Turbine Blades Have Piled Up in Landfills. A Solution May Be Coming.**\
-`Wind power has a waste problem that has been difficult to solve. Turbine blades made from a new plant-based material could make them recyclable.`\
-https://nytimes.com/2024/08/30/climate/wind-turbine-recycling-climate.html
-
-**Gerardo Martino targets MLS Supporters' Shield as route into FIFA Club World Cup**\
-`Inter Miami head coach Gerardo Martino believes winning the MLS Supporters’ Shield could qualify his side to next summer’s FIFA Club World Cup in the United States, a competition that will feature 32 club teams from around the world in a first-of-its-kind tournament format.`\
-https://nytimes.com/athletic/5733735/2024/08/30/martino-mls-supporters-shield-fifa-world-cup/
-
-**UNC edges Minnesota, creating the first of 2024's countless P4 measuring sticks**\
-`North Carolina's 19-17 win over Minnesota in 2024’s first nonconference game between two P4 opponents could very well come up in December.`\
-https://nytimes.com/athletic/5733703/2024/08/30/north-carolina-minnesota-football-highlights/
-
-**Ipswich revive Broja loan talks**\
-`Ipswich Town have revived talks with Chelsea about a deal to sign Armando Broja on loan.`\
-https://nytimes.com/athletic/5712849/2024/08/30/chelsea-armando-broja-transfer-ipswich/
 
