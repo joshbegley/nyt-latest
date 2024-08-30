@@ -1,3 +1,7 @@
+**Kamala Harris’s TV Interview Was a Solid First Effort**\
+`The Democratic nominee did a solid job.`\
+https://nytimes.com/live/2024/08/27/opinion/thepoint/harris-first-interview
+
 **Kawakami: Weirdest negotiation ever got the 49ers and Brandon Aiyuk a fair deal**\
 `Remember when Aiyuk was in Kyle Shanahan's doghouse? He bounced back from that and probably will be fine after this long negotiation.`\
 https://nytimes.com/athletic/5733033/2024/08/29/brandon-aiyuk-49ers-deal-contract-negotiation-kawakami/
