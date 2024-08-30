@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5733293/2024/08/29/phillies-brandon-marsh-charlie-m
 https://nytimes.com/athletic/5733232/2024/08/29/shedeur-sanders-nfl-draft-north-dakota-state/
 
 **Botic van de Zandschulp beats Carlos Alcaraz in huge U.S. Open upset**\
-`ARTHUR ASHE STADIUM, N.`\
+`Alcaraz was defeated in straight sets, 6-1, 7-5, 6-4, marking his worst defeat since a little over a week ago in Cincinnati.`\
 https://nytimes.com/athletic/5733308/2024/08/29/carlos-alcaraz-us-open-result-van-de-zandschulp/
 
 **On Marcell Ozuna's shot at Triple Crown and Braves' brutal loss in series opener at Philly**\

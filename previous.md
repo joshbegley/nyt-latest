@@ -1,3 +1,11 @@
+**Trump Team Tries to Clarify Remarks on Florida Abortion Rights Measure**\
+`After Donald J. Trump suggested that he might support a ballot measure to expand abortion rights, his campaign sought to make clear that he “has not yet said how he will vote.”`\
+https://nytimes.com/2024/08/29/us/trump-florida-abortion-rights.html
+
+**Friday Briefing**\
+`Kamala Harris’s interview with CNN.`\
+https://nytimes.com/2024/08/29/briefing/harris-cnn-interview-israel-mpox.html
+
 **UNC's Max Johnson carted off vs. Minnesota with apparent knee injury**\
 `Sophomore Conner Harrell came in for the Tar Heels after Johnson exited following a hit by Minnesota's Justin Walley.`\
 https://nytimes.com/athletic/5733317/2024/08/29/max-johnson-unc-injury-minnesota/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/29/us/politics/trump-harris-cnn-interview.html
 **Shedeur Sanders, Travis Hunter's star power lifts Colorado in Deion's Year 2 debut: Takeaways**\
 `Colorado's 31-26 season-opening win over North Dakota State on Thursday night marked the Buffs' first win since Oct. 7 at Arizona State.`\
 https://nytimes.com/athletic/5733261/2024/08/29/colorado-win-deion-sanders-shedeur-sanders-travis-hunter/
-
-**Harris Says She Has ‘No Regrets’ About Defending Biden’s Capabilities**\
-`Vice President Kamala Harris spoke fondly of the president, but made clear that he no longer represents the future of the country.`\
-https://nytimes.com/2024/08/29/us/politics/harris-cnn-interview-biden.html
-
-**A Vague, Vacuous TV Interview Didn’t Help Kamala Harris**\
-`By Bret Stephens`\
-https://nytimes.com/live/2024/08/27/opinion/thepoint/harris-walz-interview
 

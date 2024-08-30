@@ -1,3 +1,11 @@
+**Trump Team Tries to Clarify Remarks on Florida Abortion Rights Measure**\
+`After Donald J. Trump suggested that he might support a ballot measure to expand abortion rights, his campaign sought to make clear that he “has not yet said how he will vote.”`\
+https://nytimes.com/2024/08/29/us/trump-florida-abortion-rights.html
+
+**Friday Briefing**\
+`Kamala Harris’s interview with CNN.`\
+https://nytimes.com/2024/08/29/briefing/harris-cnn-interview-israel-mpox.html
+
 **UNC's Max Johnson carted off vs. Minnesota with apparent knee injury**\
 `Sophomore Conner Harrell came in for the Tar Heels after Johnson exited following a hit by Minnesota's Justin Walley.`\
 https://nytimes.com/athletic/5733317/2024/08/29/max-johnson-unc-injury-minnesota/
