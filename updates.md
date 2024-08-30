@@ -1,3 +1,7 @@
+**Toney completes transfer to Al Ahli from Brentford**\
+`Al Ahli have completed the signing of Ivan Toney from Brentford for a fee of €40million (£33.`\
+https://nytimes.com/athletic/5733585/2024/08/30/ivan-toney-al-ahli-transfer-done/
+
 **After Trump Claimed Fake Taylor Swift Endorsement, Her Fans Make Real Push for Harris**\
 `Thousands of the musician’s ardent followers are working to get out the vote and raise money for Vice President Kamala Harris’s campaign.`\
 https://nytimes.com/2024/08/30/us/politics/trump-taylor-swift-fans-endorsement.html
