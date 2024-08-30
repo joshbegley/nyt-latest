@@ -1,3 +1,7 @@
+**Gilmour to join Napoli from Brighton**\
+`Billy Gilmour is set to join Napoli on a permanent transfer from Brighton &amp; Hove Albion.`\
+https://nytimes.com/athletic/5648371/2024/08/30/billy-gilmour-napoli-transfer-brighton/
+
 **Why PSG were willing to sell Ugarte to Manchester United**\
 `Manuel Ugarte has left PSG to join Manchester United — he did not fit in at the French giants`\
 https://nytimes.com/athletic/5729183/2024/08/30/manuel-ugarte-manchester-united-psg-analysis/
@@ -10,7 +14,7 @@ https://nytimes.com/2024/08/30/magazine/dogs-restaurant-ethics.html
 `The two women, who were defamed by Rudolph W. Giuliani after the 2020 election, have accused him of trying to keep his multimillion-dollar condo in Florida from debt collection.`\
 https://nytimes.com/2024/08/30/us/politics/giuliani-georgia-election-workers-condo.html
 
-**Chelsea on verge of agreeing Sancho loan deal**\
+**Chelsea on verge of agreeing Sancho deal**\
 `Chelsea are on the verge of signing Jadon Sancho from Manchester United.`\
 https://nytimes.com/athletic/5734401/2024/08/30/chelsea-jadon-sancho-transfer-loan/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/30/world/americas/brazil-elon-musk-x-blocked.html
 **At 2 Elite Colleges, Shifts in Racial Enrollment After Affirmative Action Ban**\
 `Amherst College and Tufts University saw shifts in the racial makeup of students after a Supreme Court decision ending affirmative action. At other schools, the picture is murkier.`\
 https://nytimes.com/2024/08/30/us/black-enrollment-affirmative-action-amherst-tufts-uva.html
-
-**After 11 Months of War, Gaza Faces a New Threat: Polio**\
-`Starting Sunday, the Israeli military and Hamas will observe brief, staggered pauses in fighting to allow 640,000 Gazan children to be vaccinated, U.N. officials said.`\
-https://nytimes.com/2024/08/30/world/middleeast/israel-gaza-polio-vaccinations.html
 

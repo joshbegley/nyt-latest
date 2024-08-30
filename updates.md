@@ -1,3 +1,11 @@
+**Gilmour to join Napoli from Brighton**\
+`Billy Gilmour is set to join Napoli on a permanent transfer from Brighton &amp; Hove Albion.`\
+https://nytimes.com/athletic/5648371/2024/08/30/billy-gilmour-napoli-transfer-brighton/
+
+**Chelsea on verge of agreeing Sancho deal**\
+`Chelsea are on the verge of signing Jadon Sancho from Manchester United.`\
+https://nytimes.com/athletic/5734401/2024/08/30/chelsea-jadon-sancho-transfer-loan/
+
 **Why PSG were willing to sell Ugarte to Manchester United**\
 `Manuel Ugarte has left PSG to join Manchester United — he did not fit in at the French giants`\
 https://nytimes.com/athletic/5729183/2024/08/30/manuel-ugarte-manchester-united-psg-analysis/
