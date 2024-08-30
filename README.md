@@ -1,3 +1,11 @@
+**Leonard Riggio, 83, Dies; Founded Barnes & Noble and Upended Publishing**\
+`He turned a college book store into publishing behemoth, pioneering the bookstore-as-superstore and putting thousands of independents out of business before being overtaken by Amazon.`\
+https://nytimes.com/2024/08/30/business/leonard-riggio-dead.html
+
+**Harris Grapples With How to Use Biden on the Campaign Trail**\
+`The president will mostly be deployed to the vital swing states of Pennsylvania, Michigan and Wisconsin as the vice president seeks to define a separate political identity.`\
+https://nytimes.com/2024/08/30/us/politics/harris-biden-campaign-strategy.html
+
 **Trump will address Moms for Liberty, a spearhead in the culture wars.**\
 `By Dana Goldstein and Troy Closson`\
 https://nytimes.com/live/2024/08/30/us/harris-trump-election/trump-will-address-moms-for-liberty-a-spearhead-in-the-culture-wars
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5714397/2024/08/30/arsenal-raheem-sterling-chelsea-
 **Palace complete Lacroix signing from Wolfsburg**\
 `Crystal Palace have completed the signing of defender Maxence Lacroix from Wolfsburg.`\
 https://nytimes.com/athletic/5728683/2024/08/30/maxence-lacroix-crystal-palace-transfers/
-
-**Trump Called for I.V.F. to Be Free. How Would That Work?**\
-`Getting the expensive fertility treatments covered would be possible, but an uphill battle, health policy experts said.`\
-https://nytimes.com/2024/08/30/health/trump-free-ivf-treatment.html
-
-**Palace to sign Chalobah on loan from Chelsea**\
-`Crystal Palace have reached an agreement with Chelsea to sign defender Trevoh Chalobah on loan.`\
-https://nytimes.com/athletic/5688678/2024/08/30/crystal-palace-trevoh-chalobah/
 
