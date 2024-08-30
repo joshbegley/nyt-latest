@@ -1,3 +1,15 @@
+**Leicester sign Edouard from Crystal Palace**\
+`Leicester City have signed striker Odsonne Edouard on a season-long loan from Crystal Palace.`\
+https://nytimes.com/athletic/5734574/2024/08/30/leicester-city-odsonne-edouard/
+
+**Eliyahu Rips, Who Claimed to Find Secret Codes in the Torah, Dies at 75**\
+`His work provided the basis for the worldwide best seller “The Bible Code,” but he later rejected the book as unscientific.`\
+https://nytimes.com/2024/08/30/science/eliyahu-rips-dead.html
+
+**Misdated Mail-In Ballots Should Still Count, Pennsylvania Court Rules**\
+`The state court found that throwing out otherwise eligible ballots because they were undated or had the wrong date on the outer envelope would violate the State Constitution.`\
+https://nytimes.com/2024/08/30/us/pennsylvania-mail-in-ballots.html
+
 **Frances Tiafoe knocks Ben Shelton out of U.S. Open in five-set thriller**\
 `NEW YORK — There are tennis matches at the U.`\
 https://nytimes.com/athletic/5735200/2024/08/30/tiafoe-shelton-us-open-result/

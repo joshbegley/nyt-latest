@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5735200/2024/08/30/tiafoe-shelton-us-open-result/
 https://nytimes.com/2024/08/30/us/politics/political-books.html
 
 **Coco Gauff needed a top-50 win. The U.S. Open was a good place to get it**\
-`The defending champion has struggled against top-50 opponents recently, but on Arthur Ashe Stadium her aura remains undimmed.`\
+`The defending champion has struggled against top-50 opponents recently, but on Arthur Ashe Stadium, her aura remains undimmed.`\
 https://nytimes.com/athletic/5734973/2024/08/30/coco-gauff-us-open-svitolina-top-50-record/
 
 **OpenAI Names Political Veteran Chris Lehane as Head of Global Policy**\
