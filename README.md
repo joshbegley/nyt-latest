@@ -1,3 +1,15 @@
+**F.B.I. Releases Redacted Report on Havana Syndrome**\
+`Some current and former officials have said the 2019 F.B.I. analysis sowed doubt within the C.I.A. and parts of the Trump administration about the root causes of the ailments.`\
+https://nytimes.com/2024/08/30/us/politics/fbi-havana-syndrome.html
+
+**Columbia’s Antisemitism Task Force Finds ‘Urgent Need’ for Change**\
+`The group, which had previously resisted defining “antisemitism,” issued a definition, and called on the university to institute anti-bias training and revamp its systems for handling complaints.`\
+https://nytimes.com/2024/08/30/nyregion/columbia-antisemitism-bias-report.html
+
+**Man Charged With Murder in Death of Colorado Dog Breeder**\
+`Sergio Ferrer was considered a person of interest early in the investigation into the shooting death of Paul Peavey, officials said. As many as 10 of Mr. Peavey’s Doberman puppies are still missing.`\
+https://nytimes.com/2024/08/30/us/colorado-dog-breeder-murder-charged.html
+
 **Gilmour to join Napoli from Brighton**\
 `Billy Gilmour is set to join Napoli on a permanent transfer from Brighton &amp; Hove Albion.`\
 https://nytimes.com/athletic/5648371/2024/08/30/billy-gilmour-napoli-transfer-brighton/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5733317/2024/08/30/max-johnson-unc-injury-minnesota
 **Manchester United sign Ugarte from PSG**\
 `Manchester United have completed the signing of Manuel Ugarte from Paris Saint-Germain.`\
 https://nytimes.com/athletic/5725734/2024/08/30/manchester-united-manuel-ugarte-transfer/
-
-**Business Group Sues Texas Officials Over Law That Shields Oil Industry**\
-`The suit challenges a measure that prohibits state entities like retirement funds from doing business with firms that “boycott energy companies.”`\
-https://nytimes.com/2024/08/30/climate/texas-esg-lawsuit.html
-
-**Brazil Blocks X After Musk Ignores Court Orders**\
-`The social network will go dark in the nation of 200 million, the result of an escalating fight between Elon Musk and a Brazilian judge over what can be said online.`\
-https://nytimes.com/2024/08/30/world/americas/brazil-elon-musk-x-blocked.html
-
-**At 2 Elite Colleges, Shifts in Racial Enrollment After Affirmative Action Ban**\
-`Amherst College and Tufts University saw shifts in the racial makeup of students after a Supreme Court decision ending affirmative action. At other schools, the picture is murkier.`\
-https://nytimes.com/2024/08/30/us/black-enrollment-affirmative-action-amherst-tufts-uva.html
 
