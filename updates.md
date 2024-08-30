@@ -1,3 +1,8 @@
+**What to watch at U.S. Open on Day 5: Ben Shelton and Frances Tiafoe face off**\
+`Follow live coverage of day five at the 2024 US Open
+Day 5 of the U.`\
+https://nytimes.com/athletic/5733235/2024/08/30/us-open-day-5-watch-guide-shelton-tiafoe/
+
 **Forget how many players they have - questions remain over Chelsea's squad depth**\
 `Chelsea's second string narrowly overcame Servette in Conference League qualifying. There are genuine concerns over their strength in depth`\
 https://nytimes.com/athletic/5732318/2024/08/30/chelsea-servette-squad-players-conference-league/
