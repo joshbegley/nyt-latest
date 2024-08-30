@@ -1,3 +1,7 @@
+**Preaching the Mormon Gospel in Remotest Australia, With Art**\
+`In Northern Territory communities, missionaries rely on a special Indigenous edition of the Book of Mormon to get their message out.`\
+https://nytimes.com/2024/08/30/world/australia/mormons-indigenous-art.html
+
 **What to watch at U.S. Open on Day 5: Ben Shelton and Frances Tiafoe face off**\
 `Follow live coverage of day five at the 2024 US Open
 Day 5 of the U.`\
