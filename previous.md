@@ -1,3 +1,7 @@
+**Mets rebound again with crucial rubber-game win over Diamondbacks**\
+`Francisco Lindor hit a pivotal home run to spark a late-inning surge a day after a heartbreaking defeat. `\
+https://nytimes.com/athletic/5733035/2024/08/29/mets-francisco-lindor-edwin-diaz/
+
 **Trump Floats Coverage Mandate for I.V.F. Treatment**\
 `The former president, who frequently takes credit for helping to overturn Roe v. Wade, has been trying to reposition himself on the issue of reproductive access`\
 https://nytimes.com/2024/08/29/us/politics/trump-ivf-michigan.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5732482/2024/08/29/broncos-bo-nix-owner-greg-penner
 **Naked Emperors and Crypto Campaign Cash**\
 `Why a mostly useless industry dominates corporate political spending.`\
 https://nytimes.com/2024/08/29/opinion/cryptocurrency-election.html
-
-**49ers, Brandon Aiyuk agree to 4-year extension**\
-`The extension ends a difficult contract stalemate that included Aiyuk conducting a "hold-in" at training camp.`\
-https://nytimes.com/athletic/5656049/2024/08/29/brandon-aiyuk-contract-extension-san-francisco-49ers/
 
