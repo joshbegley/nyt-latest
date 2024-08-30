@@ -1,3 +1,7 @@
+**Blue Jackets' Gaudreau killed after being hit by car**\
+`Johnny Gaudreau and his brother Matthew were hit while riding bicycles in N.J. on Thursday night.`\
+https://nytimes.com/athletic/5733722/2024/08/30/johnny-gaudreau-death-cycling-crash/
+
 **Wolves working to find agreement to sign Ajax's Carlos Forbs**\
 `Wolverhampton Wanderers are working to find an agreement with Ajax to sign Carlos Forbs.`\
 https://nytimes.com/athletic/5733884/2024/08/30/carlos-forbs-ajax-wolves-transfers/

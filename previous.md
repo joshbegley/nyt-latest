@@ -1,3 +1,7 @@
+**Blue Jackets' Gaudreau killed after being hit by car**\
+`Johnny Gaudreau and his brother Matthew were hit while riding bicycles in N.J. on Thursday night.`\
+https://nytimes.com/athletic/5733722/2024/08/30/johnny-gaudreau-death-cycling-crash/
+
 **Wolves working to find agreement to sign Ajax's Carlos Forbs**\
 `Wolverhampton Wanderers are working to find an agreement with Ajax to sign Carlos Forbs.`\
 https://nytimes.com/athletic/5733884/2024/08/30/carlos-forbs-ajax-wolves-transfers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5733818/2024/08/30/newcastle-john-hall-video-st-jam
 **Stephen Curry sees a window of opportunity for the Warriors: 'It's still about winning'**\
 `Curry will be 39 when the contract extension he signed on Thursday ends. 'I’ve always said I wanted to play for one team my whole career.' `\
 https://nytimes.com/athletic/5733599/2024/08/30/stephen-curry-warriors-contract-extension/
-
-**Arsenal new signing Merino out for 'a few weeks' with arm injury says Arteta**\
-`Mikel Arteta has confirmed that new Arsenal signing Mikel Merino will miss the club’s Premier League fixture with Brighton due to an arm injury.`\
-https://nytimes.com/athletic/5733795/2024/08/30/arsenal-merino-injury-arteta-signing/
 
