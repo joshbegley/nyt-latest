@@ -1,3 +1,11 @@
+**Why Leicester have spent big on Bilal El Khannouss**\
+`Leicester are set to commit the best part of £20million on the Genk attacking midfielder - but what are they getting?`\
+https://nytimes.com/athletic/5731080/2024/08/30/leicester-bilal-el-khannouss-transfer/
+
+**FPL: How to prioritise which problems to fix when panic sets in**\
+`What should you do if you have Solanke, Quansah, Nkunku and Foden in your team? We're here to help…`\
+https://nytimes.com/athletic/5726346/2024/08/30/fantasy-premier-league-priority-problems/
+
 **Dangerous dribbling and pinpoint crossing: What Ramazani and Solomon bring to Leeds**\
 `Crysencio Summerville will be hard to replace but the recruitment team have done well to bring in two players with impressive skill sets`\
 https://nytimes.com/athletic/5730987/2024/08/30/what-ramazani-and-solomon-bring-to-leeds/

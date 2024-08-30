@@ -1,3 +1,11 @@
+**Why Leicester have spent big on Bilal El Khannouss**\
+`Leicester are set to commit the best part of £20million on the Genk attacking midfielder - but what are they getting?`\
+https://nytimes.com/athletic/5731080/2024/08/30/leicester-bilal-el-khannouss-transfer/
+
+**FPL: How to prioritise which problems to fix when panic sets in**\
+`What should you do if you have Solanke, Quansah, Nkunku and Foden in your team? We're here to help…`\
+https://nytimes.com/athletic/5726346/2024/08/30/fantasy-premier-league-priority-problems/
+
 **Dangerous dribbling and pinpoint crossing: What Ramazani and Solomon bring to Leeds**\
 `Crysencio Summerville will be hard to replace but the recruitment team have done well to bring in two players with impressive skill sets`\
 https://nytimes.com/athletic/5730987/2024/08/30/what-ramazani-and-solomon-bring-to-leeds/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5728926/2024/08/30/more-shots-more-victories-premie
 **Seven reasons why the second phase at set plays is so dangerous for defenders**\
 `When defensive structure breaks down opportunities arise - as has already been demonstrated in the Premier League this season`\
 https://nytimes.com/athletic/5729968/2024/08/30/second-phase-set-play-danger/
-
-**Red Sox bats silent in loss to Blue Jays as they face uphill battle for postseason spot**\
-`Toronto Blue Jays starter Bowden Francis' dominance, even on a night when Kutter Crawford pitched well, led to a 2-0 loss for the Red Sox.`\
-https://nytimes.com/athletic/5733269/2024/08/30/red-sox-loss-blue-jays-kutter-crawford/
-
-**Friday's MLB odds, projections: Best bets for pitching matchups, every game**\
-`See pitching matchups, playoff projections, win projections and more for Friday's MLB games.`\
-https://nytimes.com/athletic/5732630/2024/08/30/mlb-odds-best-bets-projections-august-30/
 
