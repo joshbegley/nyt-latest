@@ -1,3 +1,11 @@
+**Harris Says She Has ‘No Regrets’ About Defending Biden’s Capabilities**\
+`Vice President Kamala Harris spoke fondly of the president, but made clear that he no longer represents the future of the country.`\
+https://nytimes.com/2024/08/29/us/politics/harris-cnn-interview-biden.html
+
+**A Vague, Vacuous T.V. Interview Didn’t Help Kamala Harris**\
+`By Bret Stephens`\
+https://nytimes.com/live/2024/08/27/opinion/thepoint/harris-walz-interview
+
 **Trump Keeps Turning Up the Dial on Vulgarity. Will He Alienate the Voters He Needs?**\
 `Donald J. Trump has been reposting racially and sexually charged insults of Kamala Harris, continuing a history of crass attacks. But in Ms. Harris, he may have found a particularly risky target.`\
 https://nytimes.com/2024/08/29/us/politics/trump-crass-imagery.html
@@ -29,8 +37,4 @@ https://nytimes.com/athletic/5733035/2024/08/29/mets-francisco-lindor-edwin-diaz
 **Trump Floats Coverage Mandate for I.V.F. Treatment**\
 `The former president, who frequently takes credit for helping to overturn Roe v. Wade, has been trying to reposition himself on the issue of reproductive access`\
 https://nytimes.com/2024/08/29/us/politics/trump-ivf-michigan.html
-
-**In CNN Interview Excerpts, Harris Defends Ideological Shift to Center**\
-`Vice President Kamala Harris said it would be “really important” for her administration to reflect “different views,” according to early clips of her interview released by CNN.`\
-https://nytimes.com/2024/08/29/us/politics/harris-cnn-interview.html
 
