@@ -1,3 +1,11 @@
+**Dangerous dribbling and pinpoint crossing: What Ramazani and Solomon bring to Leeds**\
+`Crysencio Summerville will be hard to replace but the recruitment team have done well to bring in two players with impressive skill sets`\
+https://nytimes.com/athletic/5730987/2024/08/30/what-ramazani-and-solomon-bring-to-leeds/
+
+**Transfer deadline day: The 10 high-profile players who could still move**\
+`The Athletic looks at the most high-profile players who could be wearing a different shirt by the time the clock strikes 11pm this evening`\
+https://nytimes.com/athletic/5731424/2024/08/30/transfer-deadline-day-latest-players/
+
 **Row Z: Ronaldo lifts lid on normality, Muslera kerplunk and Howe non-committal on Oasis**\
 `Tim Spiers is back to take a sideways look at the peculiarities, contradictions and downright absurdities of the beautiful game`\
 https://nytimes.com/athletic/5731585/2024/08/30/ronaldo-oasis-howe-muslera-row-z/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5733269/2024/08/30/red-sox-loss-blue-jays-kutter-cr
 **Friday's MLB odds, projections: Best bets for pitching matchups, every game**\
 `See pitching matchups, playoff projections, win projections and more for Friday's MLB games.`\
 https://nytimes.com/athletic/5732630/2024/08/30/mlb-odds-best-bets-projections-august-30/
-
-**Corrections: Aug. 30, 2024**\
-`Corrections that appeared in print on Friday, Aug. 30, 2024.`\
-https://nytimes.com/2024/08/30/pageoneplus/corrections-aug-30-2024.html
-
-**With the Help of a Dating App, A Friend Plays Matchmaker**\
-`Alexis Brugger and Timothy Wang first met after Mr. Wang’s profile caught the eye of Ms. Brugger’s college friend, who felt the two would be a good match.`\
-https://nytimes.com/2024/08/30/style/alexis-brugger-timothy-wang-wedding.html
 
