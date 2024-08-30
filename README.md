@@ -1,3 +1,7 @@
+**What I’m hearing about the Big 12: UConn, naming rights, private equity and more**\
+`The perpetually open-for-business Big 12 is making headlines again. Here’s a rundown of what’s going on with the new-look, 16-team league.`\
+https://nytimes.com/athletic/5732442/2024/08/30/big-12-uconn-naming-rights/
+
 **Assessing Manchester United's squad for 2024-25: Is improvement on the cards?**\
 `Ten Hag has been backed this summer and the significant additions made in the market suggest United will improve from last season's mess`\
 https://nytimes.com/athletic/3453102/2024/08/30/manchester-united-squad-ten-hag/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5731457/2024/08/30/cubs-takeaways-pete-crow-armstro
 **Inmate Revolts Highlight Failings and Miseries of Russian Prisons**\
 `Staff shortages, beatings, corruption and harsh treatment of Muslim prisoners have all led to unrest among inmates, with recent uprisings turning deadly.`\
 https://nytimes.com/2024/08/30/world/europe/russian-prisons-inmate-uprisings.html
-
-**In Baltimore, newly acquired Eloy Jimenez has a fresh start and a lot still to prove**\
-`"I’ve been happy with the performance, but I know I have more in me,” said Jiménez, who hasn't hit a home run in over two months. `\
-https://nytimes.com/athletic/5732045/2024/08/30/baltimore-orioles-eloy-jimenez-white-sox-trade/
 
