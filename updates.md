@@ -1,3 +1,7 @@
+**Football Parlay Fridays: Making a round robin with five College Football Week 1 picks**\
+`Austin Mock debuts a new column where he picks a weekly parlay. This week's picks are all underdogs in college football Week 1.`\
+https://nytimes.com/athletic/5731917/2024/08/30/football-parlay-fridays-college-football-week-1/
+
 **Why Williams felt Logan Sargeant reached his limit in F1: 'It was clear to everyone'**\
 `As Franco Colapinto took his first F1 laps at Monza, Williams boss James Vowles explained the move to replace Sargeant.`\
 https://nytimes.com/athletic/5733990/2024/08/30/logan-sargeant-williams-f1-vowles-schumacher-driver/
