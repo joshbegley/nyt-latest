@@ -1,3 +1,7 @@
+**Maryland Supreme Court Orders Redo of Hearing That Freed Adnan Syed**\
+`The court upheld an appellate court’s decision to reinstate the murder conviction of Mr. Syed. The case was the focus of the podcast “Serial.”`\
+https://nytimes.com/2024/08/30/us/adnan-syed-maryland-supreme-court-serial.html
+
 **Top candidates to join ESPN's NBA Finals broadcasting team emerge**\
 `The network’s lead NBA broadcast team has been in flux for more than a year after ESPN decided to fire Jeff Van Gundy and Mark Jackson.`\
 https://nytimes.com/athletic/5734238/2024/08/30/nba-finals-espn-crew-grant-hill-jay-bilas-richard-jefferson/
