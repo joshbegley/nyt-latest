@@ -1,3 +1,7 @@
+**After Years of Searching, Cambodia Celebrates the Return of Its ‘Gods’**\
+`Decades after they were looted, artifacts reclaimed from museums and collections around the world were welcomed home in a lavish ceremony and museum display.`\
+https://nytimes.com/2024/08/30/arts/design/cambodia-return-gods.html
+
 **‘We are all afraid’: As Israel’s raid continues, residents of Jenin feel trapped.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/08/30/world/israel-hamas-gaza-war/we-are-all-afraid-as-israels-raid-continues-residents-of-jenin-feel-trapped
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/30/technology/ai-chatbot-chatgpt-manipulation.html
 **Remembering Johnny Gaudreau and Matthew Gaudreau: 'Those two guys ... elevated everything'**\
 `Reaction to the deaths of Johnny and Matthew Gaudreau came from around the NHL and sports world.`\
 https://nytimes.com/athletic/5734106/2024/08/30/johnny-matthew-gaudreau-deaths-reaction/
-
-**How Media Outlets on the Right and Left Are Covering the Debate Over the Debate**\
-`Conservative publications claim Vice President Kamala Harris is looking for reasons to back out of the debate. Liberal sites say it is former President Donald Trump who is seeking excuses to withdraw.`\
-https://nytimes.com/2024/08/30/business/media/debate-media-harris-trump.html
 
