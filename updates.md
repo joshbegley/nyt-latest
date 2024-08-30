@@ -1,3 +1,7 @@
+**Forget how many players they have - questions remain over Chelsea's squad depth**\
+`Chelsea's second string narrowly overcame Servette in Conference League qualifying. There are genuine concerns over their strength in depth`\
+https://nytimes.com/athletic/5732318/2024/08/30/chelsea-servette-squad-players-conference-league/
+
 **Sidewalk Cafes Are the Latest Target of New York’s Outdoor Dining Crackdown**\
 `Under new outdoor dining rules, inspectors are ticketing some restaurants and coffeehouses that have a few chairs or tables outside but no formal structures.`\
 https://nytimes.com/2024/08/30/nyregion/ny-outdoor-dining-rules.html
