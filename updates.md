@@ -1,3 +1,7 @@
+**James Bjorken, 90, Dies; Physicist Who Helped Prove That Quarks Exist**\
+`His research enabled the discovery that protons and neutrons are made of smaller particles, contributing to a fuller picture of the subatomic universe.`\
+https://nytimes.com/2024/08/30/science/james-bjorken-dead.html
+
 **Everton sign Mangala on loan deal from Lyon**\
 `Everton have completed the signing of Orel Mangala from Lyon on a season-long loan.`\
 https://nytimes.com/athletic/5731137/2024/08/30/orel-mangala-everton-transfers/
