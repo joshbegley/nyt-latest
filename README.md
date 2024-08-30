@@ -1,3 +1,7 @@
+**Israel strikes an aid convoy, killing several people, a relief group says.**\
+`By Raja Abdulrahim and Aaron Boxerman`\
+https://nytimes.com/live/2024/08/30/world/israel-hamas-gaza-war/israel-strikes-an-aid-convoy-killing-several-people-a-relief-group-says
+
 **Maryland Supreme Court Orders Redo of Hearing That Freed Adnan Syed**\
 `The court upheld an appellate court’s decision to reinstate the murder conviction of Mr. Syed. The case was the focus of the podcast “Serial.”`\
 https://nytimes.com/2024/08/30/us/adnan-syed-maryland-supreme-court-serial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/30/movies/afraid-review.html
 **Cheney, on the Sidelines as Harris Courts Her Endorsement, Plans to Weigh In Soon**\
 `The former Wyoming congresswoman, the most prominent Republican critic of Donald J. Trump, did not speak at Democrats’ convention, calculating that she could have more impact later in the race.`\
 https://nytimes.com/2024/08/30/us/politics/liz-cheney-kamala-harris-endorsement.html
-
-**Football Parlay Fridays: Making a round robin with five College Football Week 1 picks**\
-`Austin Mock debuts a new column where he picks a weekly parlay. This week's picks are all underdogs in college football Week 1.`\
-https://nytimes.com/athletic/5731917/2024/08/30/football-parlay-fridays-college-football-week-1/
 
