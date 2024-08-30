@@ -1,3 +1,7 @@
+**Toney completes transfer to Al Ahli from Brentford**\
+`Al Ahli have completed the signing of Ivan Toney from Brentford for a fee of €40million (£33.`\
+https://nytimes.com/athletic/5733585/2024/08/30/ivan-toney-al-ahli-transfer-done/
+
 **After Trump Claimed Fake Taylor Swift Endorsement, Her Fans Make Real Push for Harris**\
 `Thousands of the musician’s ardent followers are working to get out the vote and raise money for Vice President Kamala Harris’s campaign.`\
 https://nytimes.com/2024/08/30/us/politics/trump-taylor-swift-fans-endorsement.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5735200/2024/08/30/tiafoe-shelton-us-open-result/
 **The Best Books About Politics (According to You)**\
 `Here’s what we’re turning to for clarity and perspective on our current political moment.`\
 https://nytimes.com/2024/08/30/us/politics/political-books.html
-
-**Coco Gauff needed a top-50 win. The U.S. Open was a good place to get it**\
-`The defending champion has struggled against top-50 opponents recently, but on Arthur Ashe Stadium, her aura remains undimmed.`\
-https://nytimes.com/athletic/5734973/2024/08/30/coco-gauff-us-open-svitolina-top-50-record/
 
