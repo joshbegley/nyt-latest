@@ -1,6 +1,10 @@
+**Stephen Curry sees a window of opportunity for the Warriors: 'It's still about winning'**\
+`Curry will be 39 when the contract extension he signed on Thursday ends. 'I’ve always said I wanted to play for one team my whole career.' `\
+https://nytimes.com/athletic/5733599/2024/08/30/stephen-curry-warriors-contract-extension/
+
 **Arsenal new signing Merino out for 'a few weeks' with arm injury says Arteta**\
 `Mikel Arteta has confirmed that new Arsenal signing Mikel Merino will miss the club’s Premier League fixture with Brighton due to an arm injury.`\
-https://nytimes.com/athletic/5733795/2024/08/30/arsenal-new-signing-mikel-merino-out-for-a-few-weeks-with-arm-injury-says-mikel-arteta/
+https://nytimes.com/athletic/5733795/2024/08/30/arsenal-merino-injury-arteta-signing/
 
 **South Korea Says an Official Leaked a Classified Spy Roster to China**\
 `The sales of intelligence agency data raised awkward questions as the nation is expanding military information sharing with the United States.`\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/30/us/harris-trump-election/heres-the-latest-on
 **Why Brandon Aiyuk's fit with Brock Purdy was too good for 49ers to trade away**\
 `The crucial part of the Aiyuk deal — it keeps intact a quarterback-receiver combination that's been so elusive for Shanahan's 49ers.`\
 https://nytimes.com/athletic/5733237/2024/08/30/brandon-aiyuk-49ers-brock-purdy-kyle-shanahan/
-
-**Ducks fan survey results: Trevor Zegras’ future, next captain, jerseys and more**\
-`With the 2024-25 season approaching, this was a good time to take the temperature of Ducks fans.`\
-https://nytimes.com/athletic/5732565/2024/08/30/anaheim-ducks-captain-trevor-zegras-future/
 
