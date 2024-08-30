@@ -18,7 +18,7 @@ https://nytimes.com/athletic/5650327/2024/08/30/jadon-sancho-chelsea-manchester-
 `Liverpool have withdrawn a set of badges from circulation following a number of complaints from families of the 97 people who lost their lives at Hillsborough.`\
 https://nytimes.com/athletic/5734028/2024/08/30/liverpool-hillsborough-97-pin-badges/
 
-**Trump Will Speak to Moms for Liberty, a Conservative Group**\
+**‘A Wave That’s on the Decline?’ Trump to Talk to Parents Leading the Culture Wars.**\
 `Last year, the former president told the group it was time to “liberate our children from the Marxist lunatics and perverts” in education. Does that message still resonate with voters?`\
 https://nytimes.com/2024/08/30/us/trump-moms-for-liberty-school-boards.html
 
