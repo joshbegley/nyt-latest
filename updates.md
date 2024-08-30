@@ -1,3 +1,15 @@
+**The Pulse: Catch of the year contender, already**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5732120/2024/08/30/colorado-score-travis-hunter-catch-the-pulse/
+
+**Don't call it the Super League: Champions League clubs' view on UEFA's display of power**\
+`At Thursday's draw at Monaco, the new Champions League league phase was plotted out. This is how the room reacted...`\
+https://nytimes.com/athletic/5733512/2024/08/30/champions-league-draw-ronaldo-new-format-reaction/
+
+**Turner to join Palace on loan from Nottm Forest**\
+`Nottingham Forest’s USMNT international Matt Turner is set to join Crystal Palace on loan.`\
+https://nytimes.com/athletic/5733629/2024/08/30/matt-turner-crystal-palace-transfer-nottingham-forest/
+
 **The Athletic FC: The big questions on transfer deadline day with Toney set for Saudi move**\
 `Today in The Athletic FC: We bring you the big questions from Premier League deadline day - and the reaction to the Champions League draw.`\
 https://nytimes.com/athletic/5733559/2024/08/30/deadline-day-toney-saudi/

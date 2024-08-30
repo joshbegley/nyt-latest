@@ -1,3 +1,15 @@
+**The Pulse: Catch of the year contender, already**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5732120/2024/08/30/colorado-score-travis-hunter-catch-the-pulse/
+
+**Don't call it the Super League: Champions League clubs' view on UEFA's display of power**\
+`At Thursday's draw at Monaco, the new Champions League league phase was plotted out. This is how the room reacted...`\
+https://nytimes.com/athletic/5733512/2024/08/30/champions-league-draw-ronaldo-new-format-reaction/
+
+**Turner to join Palace on loan from Nottm Forest**\
+`Nottingham Forest’s USMNT international Matt Turner is set to join Crystal Palace on loan.`\
+https://nytimes.com/athletic/5733629/2024/08/30/matt-turner-crystal-palace-transfer-nottingham-forest/
+
 **The Athletic FC: The big questions on transfer deadline day with Toney set for Saudi move**\
 `Today in The Athletic FC: We bring you the big questions from Premier League deadline day - and the reaction to the Champions League draw.`\
 https://nytimes.com/athletic/5733559/2024/08/30/deadline-day-toney-saudi/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5733595/2024/08/30/brentford-jayden-meghoma-transfe
 **Affirmative Action News Is Coming**\
 `We’re covering college admissions after the Supreme Court’s decision.`\
 https://nytimes.com/2024/08/30/briefing/affirmative-action-news-is-coming.html
-
-**Twins' Drew MacPhail leans on father's lessons as he strives to create his own legacy**\
-`The 32-year-old player development director taps into the guidance of his father, Andy MacPhail, but wants to make his own name in the game.`\
-https://nytimes.com/athletic/5729718/2024/08/30/drew-macphail-twins-player-development-legacy/
-
-**In South Indian Cinema, a #MeToo Reckoning Comes Roaring Back**\
-`A report withheld since 2019 has finally been released, providing damning evidence of sexual misconduct and gender discrimination in Malayalam cinema.`\
-https://nytimes.com/2024/08/30/world/asia/kerala-film-metoo.html
-
-**Forest working to sign Morato from Benfica**\
-`Nottingham Forest are working to add another Brazilian central defender to their ranks, in the form of Benfica defender Morato.`\
-https://nytimes.com/athletic/5733576/2024/08/30/nottingham-forest-morato-transfer/
 
