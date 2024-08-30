@@ -1,3 +1,7 @@
+**Manchester United's Europa League draw analysed - Mourinho and the team Ten Hag idolised**\
+`United face Ten Hag's boyhood heroes FC Twente, Mourinho and Fred's Fenerbahce, Rangers, Porto, Bodo/Glimt, Viktoria Plzen, PAOK and FCSB`\
+https://nytimes.com/athletic/5733822/2024/08/30/manchester-united-europa-league-mourinho/
+
 **Chelsea await Osimhen's decision before advancing talks with Napoli**\
 `Chelsea are awaiting a green light from Victor Osimhen over a move to Stamford Bridge before advancing talks with Napoli about signing him ahead of the transfer window closing.`\
 https://nytimes.com/athletic/5723540/2024/08/30/victor-osimhen-chelsea-napoli/

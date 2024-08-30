@@ -1,3 +1,7 @@
+**Landon Y. Jones, Who Made People a Star Among Magazines, Dies at 80**\
+`An unapologetic champion of the newsworthiness of celebrities, he also drew attention to teenage pregnancy and helped popularize the term “baby boomer.”`\
+https://nytimes.com/2024/08/30/business/media/landon-y-jones-dead.html
+
 **Manchester United's Europa League draw analysed - Mourinho and the team Ten Hag idolised**\
 `United face Ten Hag's boyhood heroes FC Twente, Mourinho and Fred's Fenerbahce, Rangers, Porto, Bodo/Glimt, Viktoria Plzen, PAOK and FCSB`\
 https://nytimes.com/athletic/5733822/2024/08/30/manchester-united-europa-league-mourinho/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/30/your-money/young-adult-health-coverage.html
 **Penn State at West Virginia picks, odds, how to watch: Nittany Lions favored on the road**\
 `Penn State travels to West Virginia for a Power 4 matchup on Saturday. The Nittany Lions are significant favorites.`\
 https://nytimes.com/athletic/5727189/2024/08/30/penn-state-west-virginia-picks-odds-how-to-watch/
-
-**An Obesity Drug Prevents Covid Deaths, Study Suggests**\
-`People taking Wegovy were not protected from infection. But in a large trial, their death rates were markedly lower, for reasons that are not clear.`\
-https://nytimes.com/2024/08/30/health/wegovy-covid-deaths.html
 
