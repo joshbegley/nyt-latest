@@ -1,3 +1,7 @@
+**Assessing the Harris-Walz Interview on CNN**\
+`Readers offer criticism, praise and a cabinet suggestion. Also: Pardon Trump; attacks on humanitarian aid workers; loser shouldn’t pay.`\
+https://nytimes.com/2024/08/30/opinion/letters/harris-walz-interview-cnn.html
+
 **After Years of Searching, Cambodia Celebrates the Return of Its ‘Gods’**\
 `Decades after they were looted, artifacts reclaimed from museums and collections around the world were welcomed home in a lavish ceremony and museum display.`\
 https://nytimes.com/2024/08/30/arts/design/cambodia-return-gods.html
