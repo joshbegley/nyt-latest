@@ -1,3 +1,7 @@
+**Tropical Storm Shanshan Soaks Japan, Raising Flood and Landslide Risks**\
+`The weakened storm still packed heavy rain and strong winds. It has killed four people, injured more than 100 and prompted evacuation orders for more than four million.`\
+https://nytimes.com/2024/08/30/world/asia/typhoon-shanshan-japan.html
+
 **Word of the Day: foray**\
 `This word has appeared in 217 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/30/learning/word-of-the-day-foray.html
