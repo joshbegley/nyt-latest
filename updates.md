@@ -1,3 +1,7 @@
+**In South Indian Cinema, a #MeToo Reckoning Comes Roaring Back**\
+`A report withheld since 2019 has finally been released, providing damning evidence of sexual misconduct and gender discrimination in Malayalam cinema.`\
+https://nytimes.com/2024/08/30/world/asia/kerala-film-metoo.html
+
 **Forest working to sign Morato from Benfica**\
 `Nottingham Forest are working to add another Brazilian central defender to their ranks, in the form of Benfica defender Morato.`\
 https://nytimes.com/athletic/5733576/2024/08/30/nottingham-forest-morato-transfer/
