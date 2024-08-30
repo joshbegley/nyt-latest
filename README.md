@@ -1,3 +1,15 @@
+**Leicester sign Edouard from Crystal Palace**\
+`Leicester City have signed striker Odsonne Edouard on a season-long loan from Crystal Palace.`\
+https://nytimes.com/athletic/5734574/2024/08/30/leicester-city-odsonne-edouard/
+
+**Eliyahu Rips, Who Claimed to Find Secret Codes in the Torah, Dies at 75**\
+`His work provided the basis for the worldwide best seller “The Bible Code,” but he later rejected the book as unscientific.`\
+https://nytimes.com/2024/08/30/science/eliyahu-rips-dead.html
+
+**Misdated Mail-In Ballots Should Still Count, Pennsylvania Court Rules**\
+`The state court found that throwing out otherwise eligible ballots because they were undated or had the wrong date on the outer envelope would violate the State Constitution.`\
+https://nytimes.com/2024/08/30/us/pennsylvania-mail-in-ballots.html
+
 **Frances Tiafoe knocks Ben Shelton out of U.S. Open in five-set thriller**\
 `NEW YORK — There are tennis matches at the U.`\
 https://nytimes.com/athletic/5735200/2024/08/30/tiafoe-shelton-us-open-result/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5733531/2024/08/30/james-ward-prowse-transfer-notti
 **Everton make late approach to sign Chelsea striker Broja, Ipswich out of deal**\
 `Everton have made a late approach to sign Chelsea striker Armando Broja.`\
 https://nytimes.com/athletic/5735081/2024/08/30/armando-broja-everton-chelsea-transfer/
-
-**A Stanley Tumbler You Can Wear?**\
-`A new Halloween costume from Target inspired by a popular reusable cup perpetuates the zeitgeistification of a holiday that once belonged almost entirely to children.`\
-https://nytimes.com/2024/08/30/style/stanley-halloween-costume-target.html
-
-**Eddie Nketiah had appreciation at Arsenal. At Palace, he gets opportunity**\
-`The 25-year-old striker worked hard at Arsenal but had too little game time. Across London, that's about the change`\
-https://nytimes.com/athletic/5723798/2024/08/30/eddie-nketiah-arsenal-crystal-palace/
-
-**Crystal Palace sign Nketiah from Arsenal**\
-`Crystal Palace have completed the signing of striker Eddie Nketiah from Arsenal.`\
-https://nytimes.com/athletic/5725990/2024/08/30/nketiah-arsenal-crystal-palace-transfer-complete/
 

@@ -1,3 +1,7 @@
+**Frances Tiafoe knocks Ben Shelton out of U.S. Open in five-set thriller**\
+`NEW YORK — There are tennis matches at the U.`\
+https://nytimes.com/athletic/5735200/2024/08/30/tiafoe-shelton-us-open-result/
+
 **The Best Books About Politics (According to You)**\
 `Here’s what we’re turning to for clarity and perspective on our current political moment.`\
 https://nytimes.com/2024/08/30/us/politics/political-books.html
