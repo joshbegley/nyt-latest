@@ -1,3 +1,7 @@
+**Assessing the Harris-Walz Interview on CNN**\
+`Readers offer criticism, praise and a cabinet suggestion. Also: Pardon Trump; attacks on humanitarian aid workers; loser shouldn’t pay.`\
+https://nytimes.com/2024/08/30/opinion/letters/harris-walz-interview-cnn.html
+
 **After Years of Searching, Cambodia Celebrates the Return of Its ‘Gods’**\
 `Decades after they were looted, artifacts reclaimed from museums and collections around the world were welcomed home in a lavish ceremony and museum display.`\
 https://nytimes.com/2024/08/30/arts/design/cambodia-return-gods.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5734185/2024/08/30/vinnie-pasquantino-broken-thumb-
 **How Do You Change a Chatbot’s Mind?**\
 `When I set out to improve my tainted reputation with chatbots, I discovered a new world of A.I. manipulation.`\
 https://nytimes.com/2024/08/30/technology/ai-chatbot-chatgpt-manipulation.html
-
-**Remembering Johnny Gaudreau and Matthew Gaudreau: 'Those two guys ... elevated everything'**\
-`Reaction to the deaths of Johnny and Matthew Gaudreau came from around the NHL and sports world.`\
-https://nytimes.com/athletic/5734106/2024/08/30/johnny-matthew-gaudreau-deaths-reaction/
 
