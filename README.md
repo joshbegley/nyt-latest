@@ -1,3 +1,7 @@
+**Palace complete Lacroix signing from Wolfsburg**\
+`Crystal Palace have completed the signing of defender Maxence Lacroix from Wolfsburg.`\
+https://nytimes.com/athletic/5728683/2024/08/30/maxence-lacroix-crystal-palace-transfers/
+
 **Trump Called for I.V.F. to Be Free. How Would That Work?**\
 `Getting the expensive fertility treatments covered would be possible, but an uphill battle, health policy experts said.`\
 https://nytimes.com/2024/08/30/health/trump-free-ivf-treatment.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5731137/2024/08/30/orel-mangala-everton-transfers/
 **Why Oil Prices Remain Subdued**\
 `Despite war in the Middle East and political turmoil in Libya, investors are focusing on what look like ample global supplies.`\
 https://nytimes.com/2024/08/30/business/oil-prices.html
-
-**Nicole Kidman Bares Everything in the Sexy Drama ‘Babygirl’**\
-`The star is taking chances again in this look at a woman reconciling her sexual fantasies. The movie was the talk of the Venice Film Festival.`\
-https://nytimes.com/2024/08/30/movies/nicole-kidman-babygirl-venice-film-festival.html
 
