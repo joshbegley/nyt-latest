@@ -1,3 +1,11 @@
+**Gerardo Martino targets MLS Supporters' Shield as route into FIFA Club World Cup**\
+`Inter Miami head coach Gerardo Martino believes winning the MLS Supporters’ Shield could qualify his side to next summer’s FIFA Club World Cup in the United States, a competition that will feature 32 club teams from around the world in a first-of-its-kind tournament format.`\
+https://nytimes.com/athletic/5733735/2024/08/30/martino-mls-supporters-shield-fifa-world-cup/
+
+**UNC edges Minnesota, creating the first of 2024's countless P4 measuring sticks**\
+`North Carolina's 19-17 win over Minnesota in 2024’s first nonconference game between two P4 opponents could very well come up in December.`\
+https://nytimes.com/athletic/5733703/2024/08/30/north-carolina-minnesota-football-highlights/
+
 **Ipswich revive Broja loan talks**\
 `Ipswich Town have revived talks with Chelsea about a deal to sign Armando Broja on loan.`\
 https://nytimes.com/athletic/5712849/2024/08/30/chelsea-armando-broja-transfer-ipswich/
