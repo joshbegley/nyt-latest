@@ -1,3 +1,7 @@
+**Cheney, on the Sidelines as Harris Courts Her Endorsement, Plans to Weigh In Soon**\
+`The former Wyoming congresswoman, the most prominent Republican critic of Donald J. Trump, did not speak at Democrats’ convention, calculating that she could have more impact later in the race.`\
+https://nytimes.com/2024/08/30/us/politics/liz-cheney-kamala-harris-endorsement.html
+
 **Football Parlay Fridays: Making a round robin with five College Football Week 1 picks**\
 `Austin Mock debuts a new column where he picks a weekly parlay. This week's picks are all underdogs in college football Week 1.`\
 https://nytimes.com/athletic/5731917/2024/08/30/football-parlay-fridays-college-football-week-1/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/30/world/europe/ukraine-f16-crash.html
 **Labor Day Weekend Is Here. Let’s Cook.**\
 `Lean into the long weekend with jerk chicken and coconut rice, hot dogs, a big tomato salad and no-bake cheesecake bars.`\
 https://nytimes.com/2024/08/30/dining/labor-day-weekend-is-here-lets-cook.html
-
-**Five Science Fiction Movies to Stream Now**\
-`Among this month’s picks, there’s a blend of sci-fi and Hindu mythology, plus Nicolas Cage in postapocalyptic times.`\
-https://nytimes.com/2024/08/30/movies/science-fiction-movies-streaming.html
 
