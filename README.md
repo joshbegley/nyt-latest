@@ -1,3 +1,11 @@
+**Hater’s Ball: Everything that’s wrong with the Top 50 players in fantasy football 2024**\
+`What could go wrong with every top 50 player for fantasy football 2024? Michael Salfino is back to tell just how it can all go south.`\
+https://nytimes.com/athletic/5734405/2024/08/30/haters-ball-everything-thats-wrong-with-the-top-50-players-in-fantasy-football-2024/
+
+**Lover’s Ball: Everything that’s right with the Top 50 players in fantasy football 2024**\
+`John Laghezza sports the rose-colored glasses to share his optimistic view of every player landing in the top 50 in fantasy football 2024.`\
+https://nytimes.com/athletic/5724255/2024/08/30/lovers-ball-everything-thats-right-with-the-top-50-players-in-fantasy-football-2024/
+
 **Israel strikes an aid convoy, killing several people, a relief group says.**\
 `By Raja Abdulrahim and Aaron Boxerman`\
 https://nytimes.com/live/2024/08/30/world/israel-hamas-gaza-war/israel-strikes-an-aid-convoy-killing-several-people-a-relief-group-says
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/08/30/world/israel-hamas-gaza-war/we-are-all-afrai
 **Inspectors Found Mold and Meat Residue at a Boar’s Head Plant. How Could This Happen?**\
 `It’s easy for people to complain about excessive regulation, but consumers shouldn’t forget how hard it is to keep mass-produced food safe.`\
 https://nytimes.com/live/2024/08/27/opinion/thepoint/boars-head-listeria-outbreak
-
-**‘Afraid’ Review: Hey Siri, Don’t Kill Us**\
-`A family surrenders control of its life to artificial intelligence with predictably dire results — for this movie’s viewers.`\
-https://nytimes.com/2024/08/30/movies/afraid-review.html
-
-**Cheney, on the Sidelines as Harris Courts Her Endorsement, Plans to Weigh In Soon**\
-`The former Wyoming congresswoman, the most prominent Republican critic of Donald J. Trump, did not speak at Democrats’ convention, calculating that she could have more impact later in the race.`\
-https://nytimes.com/2024/08/30/us/politics/liz-cheney-kamala-harris-endorsement.html
 
