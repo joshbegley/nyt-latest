@@ -1,3 +1,7 @@
+**Tim Walz Is Happy to Help, Content to Be Ignored**\
+`In his CNN interview alongside Vice President Kamala Harris, Gov. Tim Walz of Minnesota didn’t field too many questions. When he did, he spoke about his family.`\
+https://nytimes.com/2024/08/30/us/elections/tim-walz-cnn-interview.html
+
 **A Donor’s Message, Revealed in a Museum Renovation: He Hated This Design**\
 `John Sainsbury disagreed with the design of his family’s namesake wing at London’s National Gallery. Three decades later, after his death, his critique rang anew.`\
 https://nytimes.com/2024/08/30/us/uk-national-gallery-letter-sainsbury-wing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5731585/2024/08/30/ronaldo-oasis-howe-muslera-row-z
 **How Brighton became Europe's second highest spenders - with £195m paid out this summer**\
 `Brighton's business model is long admired, but their big spending this summer is less familiar. What's going on?`\
 https://nytimes.com/athletic/5725928/2024/08/30/brighton-spending-spree/
-
-**Fantasy baseball waiver wire: Addison Barger, Spencer Arrighetti and more adds; plus, two-start pitchers and stashes**\
-`John Laghezza cuts to the chase this week in highlighting the best waiver wire adds, with Toronto's Addison Barger atop his hitter's list.`\
-https://nytimes.com/athletic/5731730/2024/08/30/fantasy-baseball-waiver-wire-addison-barger-spencer-arrighetti-adds-two-start-pitchers-stashes/
 
