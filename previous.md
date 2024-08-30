@@ -1,3 +1,7 @@
+**Manuel Ugarte to Manchester United: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we look at Manuel Ugarte's move to Manchester United.`\
+https://nytimes.com/athletic/5705336/2024/08/30/manuel-ugarte-manchester-united-athletic-500-transfer-ratings/
+
 **How the Burger Became a Portrait of America**\
 `Burgers today are packed with the cultural ingredients that make the United States what it is: regional tradition and immigrant inspiration, deep history and blue-sky creativity.`\
 https://nytimes.com/video/dining/100000009661137/how-the-burger-became-a-portrait-of-america.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5734965/2024/08/30/ravens-tyler-huntley-returns-pra
 **F.B.I. Releases Redacted Report on Havana Syndrome**\
 `Some current and former officials have said the 2019 F.B.I. analysis sowed doubt within the C.I.A. and parts of the Trump administration about the root causes of the ailments.`\
 https://nytimes.com/2024/08/30/us/politics/fbi-havana-syndrome.html
-
-**Columbia’s Antisemitism Task Force Finds ‘Urgent Need’ for Change**\
-`The group, which had previously resisted defining “antisemitism,” issued a definition, and called on the university to institute anti-bias training and revamp its systems for handling complaints.`\
-https://nytimes.com/2024/08/30/nyregion/columbia-antisemitism-bias-report.html
 

@@ -1,3 +1,7 @@
+**Manuel Ugarte to Manchester United: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we look at Manuel Ugarte's move to Manchester United.`\
+https://nytimes.com/athletic/5705336/2024/08/30/manuel-ugarte-manchester-united-athletic-500-transfer-ratings/
+
 **How the Burger Became a Portrait of America**\
 `Burgers today are packed with the cultural ingredients that make the United States what it is: regional tradition and immigrant inspiration, deep history and blue-sky creativity.`\
 https://nytimes.com/video/dining/100000009661137/how-the-burger-became-a-portrait-of-america.html
