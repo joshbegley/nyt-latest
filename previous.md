@@ -1,3 +1,7 @@
+**On Marcell Ozuna's shot at Triple Crown and Braves' brutal loss in series opener at Philly**\
+`Ozuna isn't likely to win NL MVP over Shohei Ohtani, but he still has the chance to surge past him and win a Triple Crown.`\
+https://nytimes.com/athletic/5733267/2024/08/29/braves-marcell-ozuna-triple-crown-chances/
+
 **Trump Mocks Harris’s Interview, Claiming She ‘Rambled Incoherently’**\
 `On Truth Social and at his events, Donald Trump used Kamala Harris’s interview on CNN to complain that she was boring and unpresidential.`\
 https://nytimes.com/2024/08/29/us/politics/trump-harris-cnn-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5733033/2024/08/29/brandon-aiyuk-49ers-deal-contrac
 **Marked Twain**\
 `Colin Adams opens our solving weekend.`\
 https://nytimes.com/2024/08/29/crosswords/daily-puzzle-2024-08-30.html
-
-**Karolina Muchova beats Naomi Osaka as U.S. Open comes alive on Arthur Ashe**\
-`ARTHUR ASHE STADIUM, N.`\
-https://nytimes.com/athletic/5733090/2024/08/29/us-open-naomi-osaka-muchova-best-match-result/
 

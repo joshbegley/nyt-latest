@@ -1,3 +1,7 @@
+**On Marcell Ozuna's shot at Triple Crown and Braves' brutal loss in series opener at Philly**\
+`Ozuna isn't likely to win NL MVP over Shohei Ohtani, but he still has the chance to surge past him and win a Triple Crown.`\
+https://nytimes.com/athletic/5733267/2024/08/29/braves-marcell-ozuna-triple-crown-chances/
+
 **Trump Mocks Harris’s Interview, Claiming She ‘Rambled Incoherently’**\
 `On Truth Social and at his events, Donald Trump used Kamala Harris’s interview on CNN to complain that she was boring and unpresidential.`\
 https://nytimes.com/2024/08/29/us/politics/trump-harris-cnn-interview.html
