@@ -1,3 +1,16 @@
+**Leeds complete signing of full-back Schmidt**\
+`Leeds United have confirmed the signing of Isaac Schmidt on a permanent transfer from Swiss side St Gallen.`\
+https://nytimes.com/athletic/5734983/2024/08/30/isaac-schmidt-leeds-signing/
+
+**Villa's Emery 'surprised' by Rogers inclusion in England U-21s**\
+`Unai Emery has said he is &#8220;surprised&#8221; by Morgan Rogers&#8217; inclusion in England under-21s upcoming fixtures, questioning &#8220;what does he gain?&#8221;
+England caretaker boss Lee Carsley was at Villa Park to watch Rogers in Aston Villa&#8217;s 2-0 defeat against Arsenal, with the 22-year-old the team&#8217;s standout performer.`\
+https://nytimes.com/athletic/5734076/2024/08/30/aston-villa-morgan-rogers-england-u21/
+
+**Merino shoulder injury 'a huge blow' - Arteta**\
+`Arsenal manager Mikel Arteta has admitted new signing Mikel Merino’s shoulder injury is &#8220;a huge blow&#8221;.`\
+https://nytimes.com/athletic/5734242/2024/08/30/mikel-merino-injury-arsenal/
+
 **Putin Plans First Visit to I.C.C. Member State Since Arrest Warrant**\
 `The Russian president will travel to Mongolia in his first trip to an I.C.C. member state since the court issued a warrant for his arrest in 2023.`\
 https://nytimes.com/2024/08/30/world/europe/putin-visit-mongolia-icc.html
@@ -25,16 +38,4 @@ https://nytimes.com/2024/08/30/us/colorado-dog-breeder-murder-charged.html
 **Gilmour to join Napoli from Brighton**\
 `Billy Gilmour is set to join Napoli on a permanent transfer from Brighton &amp; Hove Albion.`\
 https://nytimes.com/athletic/5648371/2024/08/30/billy-gilmour-napoli-transfer-brighton/
-
-**Why PSG were willing to sell Ugarte to Manchester United**\
-`Manuel Ugarte has left PSG to join Manchester United — he did not fit in at the French giants`\
-https://nytimes.com/athletic/5729183/2024/08/30/manuel-ugarte-manchester-united-psg-analysis/
-
-**When I’m Dining Out, Should I Have to Deal With Your Dogs?**\
-`The magazine’s Ethicist columnist on public pet etiquette.`\
-https://nytimes.com/2024/08/30/magazine/dogs-restaurant-ethics.html
-
-**Giuliani Faces New Lawsuit From Georgia Election Workers Over Luxury Condo**\
-`The two women, who were defamed by Rudolph W. Giuliani after the 2020 election, have accused him of trying to keep his multimillion-dollar condo in Florida from debt collection.`\
-https://nytimes.com/2024/08/30/us/politics/giuliani-georgia-election-workers-condo.html
 
