@@ -1,3 +1,7 @@
+**Newcastle distance themselves from former owner's political endorsement video**\
+`Newcastle United have distanced themselves from a video filmed at St James&#8217; Park, in which former club owner Sir John Hall endorsed Conservative Party leadership candidate Robert Jenrick.`\
+https://nytimes.com/athletic/5733818/2024/08/30/newcastle-john-hall-video-st-james-park/
+
 **Stephen Curry sees a window of opportunity for the Warriors: 'It's still about winning'**\
 `Curry will be 39 when the contract extension he signed on Thursday ends. 'I’ve always said I wanted to play for one team my whole career.' `\
 https://nytimes.com/athletic/5733599/2024/08/30/stephen-curry-warriors-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/08/30/us/harris-trump-election
 **Here’s the latest on the 2024 race.**\
 `By Jonathan Weisman and Tim Balk`\
 https://nytimes.com/live/2024/08/30/us/harris-trump-election/heres-the-latest-on-the-2024-race
-
-**Why Brandon Aiyuk's fit with Brock Purdy was too good for 49ers to trade away**\
-`The crucial part of the Aiyuk deal — it keeps intact a quarterback-receiver combination that's been so elusive for Shanahan's 49ers.`\
-https://nytimes.com/athletic/5733237/2024/08/30/brandon-aiyuk-49ers-brock-purdy-kyle-shanahan/
 
