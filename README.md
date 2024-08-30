@@ -1,3 +1,7 @@
+**Karolina Muchova beats Naomi Osaka as U.S. Open comes alive on Arthur Ashe**\
+`ARTHUR ASHE STADIUM, N.`\
+https://nytimes.com/athletic/5733090/2024/08/29/us-open-naomi-osaka-muchova-best-match-result/
+
 **Mets rebound again with crucial rubber-game win over Diamondbacks**\
 `Francisco Lindor hit a pivotal home run to spark a late-inning surge a day after a heartbreaking defeat. `\
 https://nytimes.com/athletic/5733035/2024/08/29/mets-francisco-lindor-edwin-diaz/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/08/29/us/politics/harris-trump-georgia.html
 **Broncos owner to Bo Nix: 'We're going to support you' through rookie struggles**\
 `Despite a superb preseason, the Broncos know Nix will face challenges during his debut campaign. History almost guarantees it.`\
 https://nytimes.com/athletic/5732482/2024/08/29/broncos-bo-nix-owner-greg-penner/
-
-**Naked Emperors and Crypto Campaign Cash**\
-`Why a mostly useless industry dominates corporate political spending.`\
-https://nytimes.com/2024/08/29/opinion/cryptocurrency-election.html
 
