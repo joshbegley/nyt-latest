@@ -1,3 +1,7 @@
+**Kiingi Tuheitia, King of the Maori in New Zealand, Dies at 69**\
+`The king, who had been on the throne for 18 years, was praised by New Zealand’s prime minister for his “unwavering commitment to his people.”`\
+https://nytimes.com/2024/08/30/world/australia/maori-king-tuheitia-dead-new-zealand.html
+
 **Tim Walz Is Happy to Help, Content to Be Ignored**\
 `In his CNN interview alongside Vice President Kamala Harris, Gov. Tim Walz of Minnesota didn’t field too many questions. When he did, he spoke about his family.`\
 https://nytimes.com/2024/08/30/us/elections/tim-walz-cnn-interview.html

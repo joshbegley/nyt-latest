@@ -1,3 +1,7 @@
+**Kiingi Tuheitia, King of the Maori in New Zealand, Dies at 69**\
+`The king, who had been on the throne for 18 years, was praised by New Zealand’s prime minister for his “unwavering commitment to his people.”`\
+https://nytimes.com/2024/08/30/world/australia/maori-king-tuheitia-dead-new-zealand.html
+
 **Tim Walz Is Happy to Help, Content to Be Ignored**\
 `In his CNN interview alongside Vice President Kamala Harris, Gov. Tim Walz of Minnesota didn’t field too many questions. When he did, he spoke about his family.`\
 https://nytimes.com/2024/08/30/us/elections/tim-walz-cnn-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5731424/2024/08/30/transfer-deadline-day-latest-pla
 **Row Z: Ronaldo lifts lid on normality, Muslera kerplunk and Howe non-committal on Oasis**\
 `Tim Spiers is back to take a sideways look at the peculiarities, contradictions and downright absurdities of the beautiful game`\
 https://nytimes.com/athletic/5731585/2024/08/30/ronaldo-oasis-howe-muslera-row-z/
-
-**How Brighton became Europe's second highest spenders - with £195m paid out this summer**\
-`Brighton's business model is long admired, but their big spending this summer is less familiar. What's going on?`\
-https://nytimes.com/athletic/5725928/2024/08/30/brighton-spending-spree/
 
