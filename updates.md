@@ -1,3 +1,15 @@
+**Inmate Revolts Highlight Failings and Miseries of Russian Prisons**\
+`Staff shortages, beatings, corruption and harsh treatment of Muslim prisoners have all led to unrest among inmates, with recent uprisings turning deadly.`\
+https://nytimes.com/2024/08/30/world/europe/russian-prisons-inmate-uprisings.html
+
+**In Baltimore, newly acquired Eloy Jimenez has a fresh start and a lot still to prove**\
+`"I’ve been happy with the performance, but I know I have more in me,” said Jiménez, who hasn't hit a home run in over two months. `\
+https://nytimes.com/athletic/5732045/2024/08/30/baltimore-orioles-eloy-jimenez-white-sox-trade/
+
+**Ward-Prowse set for Nottingham Forest loan move**\
+`James Ward-Prowse is set to move on loan to Nottingham Forest from West Ham United.`\
+https://nytimes.com/athletic/5733479/2024/08/30/nottingham-forest-james-ward-prowse-loan-transfer/
+
 **Slot believes new signing Chiesa has all the qualities to flourish at Liverpool**\
 `Arne Slot believes new signing Federico Chiesa has all the qualities to flourish at Liverpool, but the Italian attacker is unlikely to make his debut against Manchester United on Sunday.`\
 https://nytimes.com/athletic/5733492/2024/08/30/liverpool-chiesa-slot-man-united/

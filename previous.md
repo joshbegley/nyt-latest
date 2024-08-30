@@ -1,3 +1,15 @@
+**Inmate Revolts Highlight Failings and Miseries of Russian Prisons**\
+`Staff shortages, beatings, corruption and harsh treatment of Muslim prisoners have all led to unrest among inmates, with recent uprisings turning deadly.`\
+https://nytimes.com/2024/08/30/world/europe/russian-prisons-inmate-uprisings.html
+
+**In Baltimore, newly acquired Eloy Jimenez has a fresh start and a lot still to prove**\
+`"I’ve been happy with the performance, but I know I have more in me,” said Jiménez, who hasn't hit a home run in over two months. `\
+https://nytimes.com/athletic/5732045/2024/08/30/baltimore-orioles-eloy-jimenez-white-sox-trade/
+
+**Ward-Prowse set for Nottingham Forest loan move**\
+`James Ward-Prowse is set to move on loan to Nottingham Forest from West Ham United.`\
+https://nytimes.com/athletic/5733479/2024/08/30/nottingham-forest-james-ward-prowse-loan-transfer/
+
 **Slot believes new signing Chiesa has all the qualities to flourish at Liverpool**\
 `Arne Slot believes new signing Federico Chiesa has all the qualities to flourish at Liverpool, but the Italian attacker is unlikely to make his debut against Manchester United on Sunday.`\
 https://nytimes.com/athletic/5733492/2024/08/30/liverpool-chiesa-slot-man-united/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/30/world/americas/mexico-judicial-overhaul-compariso
 **The Telegram Problem + Gov. Kathy Hochul on School Phone Bans + Kevin’s A.I. Reputation Rehab**\
 `Tech platforms and governments are in a standoff.`\
 https://nytimes.com/2024/08/30/podcasts/hardfork-telegram-hochul-reputation.html
-
-**Johnstone completes transfer to Wolves from Palace**\
-`Wolverhampton Wanderers have completed the signing of goalkeeper Sam Johnstone from Crystal Palace for a fee of £10million.`\
-https://nytimes.com/athletic/5727177/2024/08/30/sam-johnstone-wolves-transfer/
-
-**The California Shoplifting Law That Trump Says Is Too Lenient**\
-`Donald J. Trump has said that California allows thieves to steal goods in the state’s stores and falsely blamed Vice President Kamala Harris for it.`\
-https://nytimes.com/2024/08/30/us/california-shoplifting-trump-harris.html
-
-**Paris Is Utopia for Paralympians Until They Leave the Athletes’ Village**\
-`The city built highly accessible accommodations for competitors in the 2024 Paralympic Games. But the rest of Paris remains difficult to navigate.`\
-https://nytimes.com/2024/08/30/world/olympics/paris-paralympics-accessibility.html
 
