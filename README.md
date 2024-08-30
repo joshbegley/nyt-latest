@@ -1,3 +1,7 @@
+**‘We are all afraid’: As Israel’s raid continues, residents of Jenin feel trapped.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/08/30/world/israel-hamas-gaza-war/we-are-all-afraid-as-israels-raid-continues-residents-of-jenin-feel-trapped
+
 **Inspectors Found Mold and Meat Residue at a Boar’s Head Plant. How Could This Happen?**\
 `It’s easy for people to complain about excessive regulation, but consumers shouldn’t forget how hard it is to keep mass-produced food safe.`\
 https://nytimes.com/live/2024/08/27/opinion/thepoint/boars-head-listeria-outbreak
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5734106/2024/08/30/johnny-matthew-gaudreau-deaths-r
 **How Media Outlets on the Right and Left Are Covering the Debate Over the Debate**\
 `Conservative publications claim Vice President Kamala Harris is looking for reasons to back out of the debate. Liberal sites say it is former President Donald Trump who is seeking excuses to withdraw.`\
 https://nytimes.com/2024/08/30/business/media/debate-media-harris-trump.html
-
-**Gaza Debate Reopens Divisions Between Left-Wing Workers and Union Leaders**\
-`Last week’s Democratic National Convention surfaced differences over the war in Gaza that could widen fissures between labor activists and union officials.`\
-https://nytimes.com/2024/08/30/business/economy/gaza-labor-unions.html
 
