@@ -1,3 +1,7 @@
+**They Traveled Home After Defending Ukraine, and Ended Up in a Russian Prison**\
+`Two Colombian soldiers who had fought for Ukraine are now under arrest in Moscow. They wound up there after stopping over in Venezuela, which apparently extradited them.`\
+https://nytimes.com/2024/08/30/world/venezuela-ukraine-military-russia.html
+
 **10 Unforgettable Songs From 1999 Movies**\
 `Listen to tracks by the Chicks, Aimee Mann, Blink-182 and more linked to moments in a monumentally interesting — and busy — year of cinema.`\
 https://nytimes.com/2024/08/30/arts/music/amplifier-newsletter-1999-movie-songs.html
