@@ -1,3 +1,15 @@
+**Brandon Marsh doesn't face a lefty, and one swing against Braves changes vibes for Phillies**\
+`The Phillies didn't expect Morton to throw to Marsh a third time. When he did, Marsh took advantage of a curveball he figured was coming.`\
+https://nytimes.com/athletic/5733293/2024/08/29/phillies-brandon-marsh-charlie-morton-homer-win/
+
+**NFL Draft: Shedeur Sanders shines vs. NDSU, but can he sustain this pace all season?**\
+`Sanders put up 445 yards and four touchdowns but also took several big hits in a hard-fought win. `\
+https://nytimes.com/athletic/5733232/2024/08/29/shedeur-sanders-nfl-draft-north-dakota-state/
+
+**Botic van de Zandschulp beats Carlos Alcaraz in huge U.S. Open upset**\
+`ARTHUR ASHE STADIUM, N.`\
+https://nytimes.com/athletic/5733308/2024/08/29/carlos-alcaraz-us-open-result-van-de-zandschulp/
+
 **On Marcell Ozuna's shot at Triple Crown and Braves' brutal loss in series opener at Philly**\
 `Ozuna isn't likely to win NL MVP over Shohei Ohtani, but he still has the chance to surge past him and win a Triple Crown.`\
 https://nytimes.com/athletic/5733267/2024/08/29/braves-marcell-ozuna-triple-crown-chances/
