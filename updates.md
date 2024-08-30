@@ -1,3 +1,7 @@
+**Ravens, Tyler Huntley reunite as QB agrees to return to practice squad**\
+`The Ravens had one open spot on their practice squad, so Huntley’s addition will not force them to make a corresponding move.`\
+https://nytimes.com/athletic/5734965/2024/08/30/ravens-tyler-huntley-returns-practice-squad/
+
 **F.B.I. Releases Redacted Report on Havana Syndrome**\
 `Some current and former officials have said the 2019 F.B.I. analysis sowed doubt within the C.I.A. and parts of the Trump administration about the root causes of the ailments.`\
 https://nytimes.com/2024/08/30/us/politics/fbi-havana-syndrome.html
