@@ -1,3 +1,7 @@
+**Meghoma set for Brentford move from Southampton**\
+`Jayden Meghoma is undergoing a medical at Brentford ahead of proposed permanent transfer from Southampton.`\
+https://nytimes.com/athletic/5733595/2024/08/30/brentford-jayden-meghoma-transfer-southampton/
+
 **Affirmative Action News Is Coming**\
 `We’re covering college admissions after the Supreme Court’s decision.`\
 https://nytimes.com/2024/08/30/briefing/affirmative-action-news-is-coming.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5731375/2024/08/30/barcelona-tourism-protests-camp-
 **Gaza Fighting to Pause for Polio Vaccinations, and Harris’s CNN Interview**\
 `Plus, complacency as Covid cases surge.`\
 https://nytimes.com/2024/08/30/podcasts/gaza-polio-vaccines-kamala-harriss-interview.html
-
-**Will it be Boise State that claims first Group of 5 spot in 12-team Playoff?**\
-`Boise is loaded with returnees at key spots and has a new coach who led it to a strong finish in 2023. But does it have the QB to win big?`\
-https://nytimes.com/athletic/5725472/2024/08/30/boise-state-college-football-playoff-projections-preview/
 

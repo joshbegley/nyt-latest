@@ -1,3 +1,7 @@
+**Meghoma set for Brentford move from Southampton**\
+`Jayden Meghoma is undergoing a medical at Brentford ahead of proposed permanent transfer from Southampton.`\
+https://nytimes.com/athletic/5733595/2024/08/30/brentford-jayden-meghoma-transfer-southampton/
+
 **Affirmative Action News Is Coming**\
 `We’re covering college admissions after the Supreme Court’s decision.`\
 https://nytimes.com/2024/08/30/briefing/affirmative-action-news-is-coming.html
