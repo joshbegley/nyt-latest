@@ -1,3 +1,7 @@
+**The Best Books About Politics (According to You)**\
+`Here’s what we’re turning to for clarity and perspective on our current political moment.`\
+https://nytimes.com/2024/08/30/us/politics/political-books.html
+
 **Coco Gauff needed a top-50 win. The U.S. Open was a good place to get it**\
 `The defending champion has struggled against top-50 opponents recently, but on Arthur Ashe Stadium her aura remains undimmed.`\
 https://nytimes.com/athletic/5734973/2024/08/30/coco-gauff-us-open-svitolina-top-50-record/
