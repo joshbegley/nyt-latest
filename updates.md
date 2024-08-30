@@ -1,3 +1,7 @@
+**Arsenal in talks to sign Sterling from Chelsea on loan**\
+`Arsenal are in talks with Chelsea to sign Raheem Sterling on loan before the transfer market shuts.`\
+https://nytimes.com/athletic/5714397/2024/08/30/arsenal-raheem-sterling-chelsea-transfer/
+
 **Palace complete Lacroix signing from Wolfsburg**\
 `Crystal Palace have completed the signing of defender Maxence Lacroix from Wolfsburg.`\
 https://nytimes.com/athletic/5728683/2024/08/30/maxence-lacroix-crystal-palace-transfers/

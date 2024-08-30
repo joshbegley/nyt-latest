@@ -1,3 +1,7 @@
+**Arsenal in talks to sign Sterling from Chelsea on loan**\
+`Arsenal are in talks with Chelsea to sign Raheem Sterling on loan before the transfer market shuts.`\
+https://nytimes.com/athletic/5714397/2024/08/30/arsenal-raheem-sterling-chelsea-transfer/
+
 **Palace complete Lacroix signing from Wolfsburg**\
 `Crystal Palace have completed the signing of defender Maxence Lacroix from Wolfsburg.`\
 https://nytimes.com/athletic/5728683/2024/08/30/maxence-lacroix-crystal-palace-transfers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/30/science/james-bjorken-dead.html
 **Everton sign Mangala on loan deal from Lyon**\
 `Everton have completed the signing of Orel Mangala from Lyon on a season-long loan.`\
 https://nytimes.com/athletic/5731137/2024/08/30/orel-mangala-everton-transfers/
-
-**Why Oil Prices Remain Subdued**\
-`Despite war in the Middle East and political turmoil in Libya, investors are focusing on what look like ample global supplies.`\
-https://nytimes.com/2024/08/30/business/oil-prices.html
 
