@@ -14,7 +14,7 @@ https://nytimes.com/athletic/5731655/2024/08/30/aaron-ramsdale-hagrid-southampto
 `Southampton have completed the signing of Arsenal goalkeeper Aaron Ramsdale.`\
 https://nytimes.com/athletic/5731050/2024/08/30/southampton-sign-aaron-ramsdale-arsenal/
 
-**Israeli forces pull back from Tulkarm but press on with their raid of Jenin, officials say.**\
+**International criticism was mounting over the operation that local officials say has killed 19 Palestinians.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/08/30/world/israel-hamas-gaza-war/israeli-forces-pull-back-from-tulkarm-but-press-on-with-their-raid-of-jenin-officials-say
 

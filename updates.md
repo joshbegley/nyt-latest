@@ -1,3 +1,7 @@
+**International criticism was mounting over the operation that local officials say has killed 19 Palestinians.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/08/30/world/israel-hamas-gaza-war/israeli-forces-pull-back-from-tulkarm-but-press-on-with-their-raid-of-jenin-officials-say
+
 **Why Brandon Aiyuk's fit with Brock Purdy was too good for 49ers to trade away**\
 `The crucial part of the Aiyuk deal — it keeps intact a quarterback-receiver combination that's been so elusive for Shanahan's 49ers.`\
 https://nytimes.com/athletic/5733237/2024/08/30/brandon-aiyuk-49ers-brock-purdy-kyle-shanahan/
