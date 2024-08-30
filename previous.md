@@ -1,3 +1,11 @@
+**Kawakami: Weirdest negotiation ever got the 49ers and Brandon Aiyuk a fair deal**\
+`Remember when Aiyuk was in Kyle Shanahan's doghouse? He bounced back from that and probably will be fine after this long negotiation.`\
+https://nytimes.com/athletic/5733033/2024/08/29/brandon-aiyuk-49ers-deal-contract-negotiation-kawakami/
+
+**Marked Twain**\
+`Colin Adams opens our solving weekend.`\
+https://nytimes.com/2024/08/29/crosswords/daily-puzzle-2024-08-30.html
+
 **Karolina Muchova beats Naomi Osaka as U.S. Open comes alive on Arthur Ashe**\
 `ARTHUR ASHE STADIUM, N.`\
 https://nytimes.com/athletic/5733090/2024/08/29/us-open-naomi-osaka-muchova-best-match-result/
@@ -25,12 +33,4 @@ https://nytimes.com/live/2024/08/29/us/harris-trump-election/trump-tasked-his-ep
 **China Dominates the Situation Room But Not the Campaign Trail**\
 `The thorny issues raised by America’s most potent geopolitical challenge are reduced to platitudes.`\
 https://nytimes.com/2024/08/29/us/politics/trump-harris-china-tiktok.html
-
-**Harris, Before CNN Interview Runs, Presses Attack Against Trump in Georgia**\
-`At a rally in Savannah, the vice president hit her rival over familiar topics like abortion rights and Project 2025, saying he represented a “full-on assault” on basic freedoms.`\
-https://nytimes.com/2024/08/29/us/politics/harris-trump-georgia.html
-
-**Broncos owner to Bo Nix: 'We're going to support you' through rookie struggles**\
-`Despite a superb preseason, the Broncos know Nix will face challenges during his debut campaign. History almost guarantees it.`\
-https://nytimes.com/athletic/5732482/2024/08/29/broncos-bo-nix-owner-greg-penner/
 

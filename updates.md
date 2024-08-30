@@ -1,3 +1,11 @@
+**Kawakami: Weirdest negotiation ever got the 49ers and Brandon Aiyuk a fair deal**\
+`Remember when Aiyuk was in Kyle Shanahan's doghouse? He bounced back from that and probably will be fine after this long negotiation.`\
+https://nytimes.com/athletic/5733033/2024/08/29/brandon-aiyuk-49ers-deal-contract-negotiation-kawakami/
+
+**Marked Twain**\
+`Colin Adams opens our solving weekend.`\
+https://nytimes.com/2024/08/29/crosswords/daily-puzzle-2024-08-30.html
+
 **Karolina Muchova beats Naomi Osaka as U.S. Open comes alive on Arthur Ashe**\
 `ARTHUR ASHE STADIUM, N.`\
 https://nytimes.com/athletic/5733090/2024/08/29/us-open-naomi-osaka-muchova-best-match-result/
