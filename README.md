@@ -1,3 +1,7 @@
+**Ipswich close to loan deal for Arsenal's Nelson**\
+`Ipswich Town are close to an agreement to sign Reiss Nelson on a season-long loan from Arsenal.`\
+https://nytimes.com/athletic/5734831/2024/08/30/arsenal-reiss-nelson-transfer-ipswich/
+
 **Leonard Riggio, 83, Dies; Founded Barnes & Noble and Upended Publishing**\
 `He turned a college book store into publishing behemoth, pioneering the bookstore-as-superstore and putting thousands of independents out of business before being overtaken by Amazon.`\
 https://nytimes.com/2024/08/30/business/leonard-riggio-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/30/opinion/algorithm-collusion-amy-klobuchar.html
 **Arsenal in talks to sign Sterling from Chelsea on loan**\
 `Arsenal are in talks with Chelsea to sign Raheem Sterling on loan before the transfer market shuts.`\
 https://nytimes.com/athletic/5714397/2024/08/30/arsenal-raheem-sterling-chelsea-transfer/
-
-**Palace complete Lacroix signing from Wolfsburg**\
-`Crystal Palace have completed the signing of defender Maxence Lacroix from Wolfsburg.`\
-https://nytimes.com/athletic/5728683/2024/08/30/maxence-lacroix-crystal-palace-transfers/
 
