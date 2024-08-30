@@ -1,3 +1,11 @@
+**Remembering Johnny Gaudreau and Matthew Gaudreau: 'Those two guys ... elevated everything'**\
+`Reaction to the deaths of Johnny and Matthew Gaudreau came from around the NHL and sports world.`\
+https://nytimes.com/athletic/5734106/2024/08/30/johnny-matthew-gaudreau-deaths-reaction/
+
+**How Media Outlets on the Right and Left Are Covering the Debate Over the Debate**\
+`Conservative publications claim Vice President Kamala Harris is looking for reasons to back out of the debate. Liberal sites say it is former President Donald Trump who is seeking excuses to withdraw.`\
+https://nytimes.com/2024/08/30/business/media/debate-media-harris-trump.html
+
 **Gaza Debate Reopens Divisions Between Left-Wing Workers and Union Leaders**\
 `Last week’s Democratic National Convention surfaced differences over the war in Gaza that could widen fissures between labor activists and union officials.`\
 https://nytimes.com/2024/08/30/business/economy/gaza-labor-unions.html
@@ -29,12 +37,4 @@ https://nytimes.com/article/trump-music-bruce-springsteen-rihanna.html
 **Chelsea expected to reach agreement to sign Sancho from Man United**\
 `Chelsea are expected to reach agreement with Manchester United to sign Jadon Sancho before the transfer window closes.`\
 https://nytimes.com/athletic/5650327/2024/08/30/jadon-sancho-chelsea-manchester-united-transfer/
-
-**Liverpool withdraw Hillsborough '97' pin badge after complaints**\
-`Liverpool have withdrawn a set of badges from circulation following a number of complaints from families of the 97 people who lost their lives at Hillsborough.`\
-https://nytimes.com/athletic/5734028/2024/08/30/liverpool-hillsborough-97-pin-badges/
-
-**‘A Wave That’s on the Decline?’ Trump to Talk to Parents Leading the Culture Wars.**\
-`Last year, the former president told the group it was time to “liberate our children from the Marxist lunatics and perverts” in education. Does that message still resonate with voters?`\
-https://nytimes.com/2024/08/30/us/trump-moms-for-liberty-school-boards.html
 
