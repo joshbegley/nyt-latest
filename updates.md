@@ -1,3 +1,9 @@
+**Polio Vaccination Campaign in Gaza Faces Big Hurdles**\
+`The operation depends on brief pauses in fighting in a war zone where the rule of law has broken down and hundreds of thousands of people are living in temporary shelters.`\
+https://nytimes.com/live/2024/08/30/world/israel-hamas-gaza-war
+
+**Harris says she won’t withhold U.S. weapons from Israel, and other news.**\
+
 **Al Ahli reach agreement to sign Ivan Toney from Brentford**\
 `Al Ahli have reached an agreement with Brentford for the proposed signing of Ivan Toney.`\
 https://nytimes.com/athletic/5590882/2024/08/30/ivan-toney-al-ahli-transfer/
