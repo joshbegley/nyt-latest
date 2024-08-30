@@ -1,3 +1,15 @@
+**Why Brandon Aiyuk's fit with Brock Purdy was too good for 49ers to trade away**\
+`The crucial part of the Aiyuk deal — it keeps intact a quarterback-receiver combination that's been so elusive for Shanahan's 49ers.`\
+https://nytimes.com/athletic/5733237/2024/08/30/brandon-aiyuk-49ers-brock-purdy-kyle-shanahan/
+
+**Ducks fan survey results: Trevor Zegras’ future, next captain, jerseys and more**\
+`With the 2024-25 season approaching, this was a good time to take the temperature of Ducks fans.`\
+https://nytimes.com/athletic/5732565/2024/08/30/anaheim-ducks-captain-trevor-zegras-future/
+
+**Aaron Ramsdale, a Hagrid costume, and the party that led to his transfer**\
+`How a fancy dress party set the ball rolling on Aaron Ramsdale leaving Arsenal for Southampton`\
+https://nytimes.com/athletic/5731655/2024/08/30/aaron-ramsdale-hagrid-southampton-arsenal/
+
 **Southampton sign Ramsdale from Arsenal**\
 `Southampton have completed the signing of Arsenal goalkeeper Aaron Ramsdale.`\
 https://nytimes.com/athletic/5731050/2024/08/30/southampton-sign-aaron-ramsdale-arsenal/

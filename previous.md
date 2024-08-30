@@ -1,3 +1,15 @@
+**Why Brandon Aiyuk's fit with Brock Purdy was too good for 49ers to trade away**\
+`The crucial part of the Aiyuk deal — it keeps intact a quarterback-receiver combination that's been so elusive for Shanahan's 49ers.`\
+https://nytimes.com/athletic/5733237/2024/08/30/brandon-aiyuk-49ers-brock-purdy-kyle-shanahan/
+
+**Ducks fan survey results: Trevor Zegras’ future, next captain, jerseys and more**\
+`With the 2024-25 season approaching, this was a good time to take the temperature of Ducks fans.`\
+https://nytimes.com/athletic/5732565/2024/08/30/anaheim-ducks-captain-trevor-zegras-future/
+
+**Aaron Ramsdale, a Hagrid costume, and the party that led to his transfer**\
+`How a fancy dress party set the ball rolling on Aaron Ramsdale leaving Arsenal for Southampton`\
+https://nytimes.com/athletic/5731655/2024/08/30/aaron-ramsdale-hagrid-southampton-arsenal/
+
 **Southampton sign Ramsdale from Arsenal**\
 `Southampton have completed the signing of Arsenal goalkeeper Aaron Ramsdale.`\
 https://nytimes.com/athletic/5731050/2024/08/30/southampton-sign-aaron-ramsdale-arsenal/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5733629/2024/08/30/matt-turner-crystal-palace-trans
 **The Athletic FC: The big questions on transfer deadline day with Toney set for Saudi move**\
 `Today in The Athletic FC: We bring you the big questions from Premier League deadline day - and the reaction to the Champions League draw.`\
 https://nytimes.com/athletic/5733559/2024/08/30/deadline-day-toney-saudi/
-
-**FPL Q&A: FPL Gameweek 3 advice from Ben Dinnery**\
-`Join Ben Dinnery for a live Gameweek 3 Fantasy Premier League Q&A from 4pm UK time on Friday`\
-https://nytimes.com/athletic/5733438/2024/08/30/fantasy-premier-league-advice-injury-news-gw3/
-
-**How the Raiders are setting the NFL's standard for post-playing career treatment**\
-`The Raiders’ Wellness Weekend in June had NFL executive Troy Vincent eager to encourage the rest of the league to follow suit. `\
-https://nytimes.com/athletic/5732375/2024/08/30/las-vegas-raiders-nfl-players-alumni-wellness/
-
-**Leeds complete signing of Tanaka**\
-`Leeds United have announced the signing of Ao Tanaka from Fortuna Dusseldorf on a permanent transfer.`\
-https://nytimes.com/athletic/5733611/2024/08/30/leeds-united-ao-tanaka-transfer/
 
