@@ -1,3 +1,7 @@
+**Israel strikes an aid convoy, killing several people, a relief group says.**\
+`By Raja Abdulrahim and Aaron Boxerman`\
+https://nytimes.com/live/2024/08/30/world/israel-hamas-gaza-war/israel-strikes-an-aid-convoy-killing-several-people-a-relief-group-says
+
 **Maryland Supreme Court Orders Redo of Hearing That Freed Adnan Syed**\
 `The court upheld an appellate court’s decision to reinstate the murder conviction of Mr. Syed. The case was the focus of the podcast “Serial.”`\
 https://nytimes.com/2024/08/30/us/adnan-syed-maryland-supreme-court-serial.html
