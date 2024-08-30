@@ -1,3 +1,7 @@
+**How Dana Bash Handled Past Interviews With Kamala Harris**\
+`The CNN anchor has been a firm-but-fair interlocutor in three previous interviews with Ms. Harris in the past few years.`\
+https://nytimes.com/2024/08/29/business/media/cnn-dana-bash-harris-interview.html
+
 **Trump Keeps Turning Up the Dial on Vulgarity. Will He Alienate the Voters He Needs?**\
 `Donald J. Trump has been reposting racially and sexually charged insults of Kamala Harris, continuing a history of crass attacks. But in Ms. Harris, he may have found a particularly risky target.`\
 https://nytimes.com/2024/08/29/us/politics/trump-crass-imagery.html
