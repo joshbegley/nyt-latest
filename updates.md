@@ -1,3 +1,7 @@
+**Forget how many players they have - Chelsea's squad still lacks depth**\
+`Chelsea's second string narrowly overcame Servette in Conference League qualifying. There are genuine concerns over their strength in depth`\
+https://nytimes.com/athletic/5732318/2024/08/30/chelsea-servette-squad-players-conference-league/
+
 **Tropical Storm Shanshan Soaks Japan, Raising Flood and Landslide Risks**\
 `The weakened storm still packed heavy rain and strong winds. It has killed four people, injured more than 100 and prompted evacuation orders for more than four million.`\
 https://nytimes.com/2024/08/30/world/asia/typhoon-shanshan-japan.html

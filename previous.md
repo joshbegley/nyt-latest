@@ -1,3 +1,7 @@
+**Forget how many players they have - Chelsea's squad still lacks depth**\
+`Chelsea's second string narrowly overcame Servette in Conference League qualifying. There are genuine concerns over their strength in depth`\
+https://nytimes.com/athletic/5732318/2024/08/30/chelsea-servette-squad-players-conference-league/
+
 **Tropical Storm Shanshan Soaks Japan, Raising Flood and Landslide Risks**\
 `The weakened storm still packed heavy rain and strong winds. It has killed four people, injured more than 100 and prompted evacuation orders for more than four million.`\
 https://nytimes.com/2024/08/30/world/asia/typhoon-shanshan-japan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5731080/2024/08/30/leicester-bilal-el-khannouss-tra
 **FPL: How to prioritise which problems to fix when panic sets in**\
 `What should you do if you have Solanke, Quansah, Nkunku and Foden in your team? We're here to help…`\
 https://nytimes.com/athletic/5726346/2024/08/30/fantasy-premier-league-priority-problems/
-
-**Dangerous dribbling and pinpoint crossing: What Ramazani and Solomon bring to Leeds**\
-`Crysencio Summerville will be hard to replace but the recruitment team have done well to bring in two players with impressive skill sets`\
-https://nytimes.com/athletic/5730987/2024/08/30/what-ramazani-and-solomon-bring-to-leeds/
 
