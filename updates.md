@@ -1,3 +1,7 @@
+**The ‘Middle’ Is a Muddle**\
+`Everybody loves the middle class. Nobody wants to be mid, or middling. “Middle” is a tricky word.`\
+https://nytimes.com/interactive/2024/08/30/books/middle-class-politics.html
+
 **The Middle Is a Muddle**\
 `Everybody loves the middle class. Nobody wants to be mid, or middling. “Middle” is a tricky word.`\
 https://nytimes.com/interactive/2024/08/30/books/middle-class-politics.html
