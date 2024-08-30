@@ -1,3 +1,11 @@
+**Labor Day Weekend Is Here. Let’s Cook.**\
+`Lean into the long weekend with jerk chicken and coconut rice, hot dogs, a big tomato salad and no-bake cheesecake bars.`\
+https://nytimes.com/2024/08/30/dining/labor-day-weekend-is-here-lets-cook.html
+
+**Five Science Fiction Movies to Stream Now**\
+`Among this month’s picks, there’s a blend of sci-fi and Hindu mythology, plus Nicolas Cage in postapocalyptic times.`\
+https://nytimes.com/2024/08/30/movies/science-fiction-movies-streaming.html
+
 **‘A Wave That’s on the Decline?’ Trump to Talk to Parents Leading the Culture Wars.**\
 `Last year, the former president told the group it was time to “liberate our children from the Marxist lunatics and perverts” in education. Does that message still resonate with voters?`\
 https://nytimes.com/2024/08/30/us/trump-moms-for-liberty-school-boards.html

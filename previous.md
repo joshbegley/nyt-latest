@@ -1,3 +1,11 @@
+**Labor Day Weekend Is Here. Let’s Cook.**\
+`Lean into the long weekend with jerk chicken and coconut rice, hot dogs, a big tomato salad and no-bake cheesecake bars.`\
+https://nytimes.com/2024/08/30/dining/labor-day-weekend-is-here-lets-cook.html
+
+**Five Science Fiction Movies to Stream Now**\
+`Among this month’s picks, there’s a blend of sci-fi and Hindu mythology, plus Nicolas Cage in postapocalyptic times.`\
+https://nytimes.com/2024/08/30/movies/science-fiction-movies-streaming.html
+
 **McDaniel gets new Dolphins deal, staying through 2028**\
 `Mike McDaniel has coached the Dolphins since 2022, leading them to a 20-14 record and two playoff appearances.`\
 https://nytimes.com/athletic/5734066/2024/08/30/mike-mcdaniel-contract-dolphins/
