@@ -1,3 +1,7 @@
+**What Was Your Personal Song of the Summer?**\
+`We want to know your seasonal anthem, for a future Amplifier playlist.`\
+https://nytimes.com/2024/08/30/arts/music/what-was-your-song-of-the-summer.html
+
 **They Traveled Home After Defending Ukraine, and Ended Up in a Russian Prison**\
 `Two Colombian soldiers who had fought for Ukraine are now under arrest in Moscow. They wound up there after stopping over in Venezuela, which apparently extradited them.`\
 https://nytimes.com/2024/08/30/world/venezuela-ukraine-military-russia.html
