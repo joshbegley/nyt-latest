@@ -1,3 +1,11 @@
+**Dangerous dribbling and pinpoint crossing: What Ramazani and Solomon bring to Leeds**\
+`Crysencio Summerville will be hard to replace but the recruitment team have done well to bring in two players with impressive skill sets`\
+https://nytimes.com/athletic/5730987/2024/08/30/what-ramazani-and-solomon-bring-to-leeds/
+
+**Transfer deadline day: The 10 high-profile players who could still move**\
+`The Athletic looks at the most high-profile players who could be wearing a different shirt by the time the clock strikes 11pm this evening`\
+https://nytimes.com/athletic/5731424/2024/08/30/transfer-deadline-day-latest-players/
+
 **Row Z: Ronaldo lifts lid on normality, Muslera kerplunk and Howe non-committal on Oasis**\
 `Tim Spiers is back to take a sideways look at the peculiarities, contradictions and downright absurdities of the beautiful game`\
 https://nytimes.com/athletic/5731585/2024/08/30/ronaldo-oasis-howe-muslera-row-z/
