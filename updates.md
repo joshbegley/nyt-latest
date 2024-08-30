@@ -1,3 +1,11 @@
+**Leonard Riggio, 83, Dies; Founded Barnes & Noble and Upended Publishing**\
+`He turned a college book store into publishing behemoth, pioneering the bookstore-as-superstore and putting thousands of independents out of business before being overtaken by Amazon.`\
+https://nytimes.com/2024/08/30/business/leonard-riggio-dead.html
+
+**Harris Grapples With How to Use Biden on the Campaign Trail**\
+`The president will mostly be deployed to the vital swing states of Pennsylvania, Michigan and Wisconsin as the vice president seeks to define a separate political identity.`\
+https://nytimes.com/2024/08/30/us/politics/harris-biden-campaign-strategy.html
+
 **Trump will address Moms for Liberty, a spearhead in the culture wars.**\
 `By Dana Goldstein and Troy Closson`\
 https://nytimes.com/live/2024/08/30/us/harris-trump-election/trump-will-address-moms-for-liberty-a-spearhead-in-the-culture-wars
