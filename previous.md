@@ -1,3 +1,11 @@
+**Arsenal new signing Merino out for 'a few weeks' with arm injury says Arteta**\
+`Mikel Arteta has confirmed that new Arsenal signing Mikel Merino will miss the club’s Premier League fixture with Brighton due to an arm injury.`\
+https://nytimes.com/athletic/5733795/2024/08/30/arsenal-new-signing-mikel-merino-out-for-a-few-weeks-with-arm-injury-says-mikel-arteta/
+
+**South Korea Says an Official Leaked a Classified Spy Roster to China**\
+`The sales of intelligence agency data raised awkward questions as the nation is expanding military information sharing with the United States.`\
+https://nytimes.com/2024/08/30/world/asia/south-korea-spy-leak-china.html
+
 **Turbine Blades Have Piled Up in Landfills. A Solution May Be Coming.**\
 `Wind power has a waste problem that has been difficult to solve. Turbine blades made from a new plant-based material could make them recyclable.`\
 https://nytimes.com/2024/08/30/climate/wind-turbine-recycling-climate.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5733237/2024/08/30/brandon-aiyuk-49ers-brock-purdy-
 **Ducks fan survey results: Trevor Zegras’ future, next captain, jerseys and more**\
 `With the 2024-25 season approaching, this was a good time to take the temperature of Ducks fans.`\
 https://nytimes.com/athletic/5732565/2024/08/30/anaheim-ducks-captain-trevor-zegras-future/
-
-**Aaron Ramsdale, a Hagrid costume, and the party that led to his transfer**\
-`How a fancy dress party set the ball rolling on Aaron Ramsdale leaving Arsenal for Southampton`\
-https://nytimes.com/athletic/5731655/2024/08/30/aaron-ramsdale-hagrid-southampton-arsenal/
-
-**Southampton sign Ramsdale from Arsenal**\
-`Southampton have completed the signing of Arsenal goalkeeper Aaron Ramsdale.`\
-https://nytimes.com/athletic/5731050/2024/08/30/southampton-sign-aaron-ramsdale-arsenal/
 

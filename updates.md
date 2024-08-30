@@ -1,3 +1,11 @@
+**Arsenal new signing Merino out for 'a few weeks' with arm injury says Arteta**\
+`Mikel Arteta has confirmed that new Arsenal signing Mikel Merino will miss the club’s Premier League fixture with Brighton due to an arm injury.`\
+https://nytimes.com/athletic/5733795/2024/08/30/arsenal-new-signing-mikel-merino-out-for-a-few-weeks-with-arm-injury-says-mikel-arteta/
+
+**South Korea Says an Official Leaked a Classified Spy Roster to China**\
+`The sales of intelligence agency data raised awkward questions as the nation is expanding military information sharing with the United States.`\
+https://nytimes.com/2024/08/30/world/asia/south-korea-spy-leak-china.html
+
 **Turbine Blades Have Piled Up in Landfills. A Solution May Be Coming.**\
 `Wind power has a waste problem that has been difficult to solve. Turbine blades made from a new plant-based material could make them recyclable.`\
 https://nytimes.com/2024/08/30/climate/wind-turbine-recycling-climate.html
