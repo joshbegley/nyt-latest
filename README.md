@@ -1,3 +1,7 @@
+**Preaching the Mormon Gospel in Remotest Australia, With Art**\
+`In Northern Territory communities, missionaries rely on a special Indigenous edition of the Book of Mormon to get their message out.`\
+https://nytimes.com/2024/08/30/world/australia/mormons-indigenous-art.html
+
 **What to watch at U.S. Open on Day 5: Ben Shelton and Frances Tiafoe face off**\
 `Follow live coverage of day five at the 2024 US Open
 Day 5 of the U.`\
@@ -34,8 +38,4 @@ https://nytimes.com/2024/08/30/world/asia/typhoon-shanshan-japan.html
 **Word of the Day: foray**\
 `This word has appeared in 217 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/30/learning/word-of-the-day-foray.html
-
-**Kiingi Tuheitia, King of the Maori in New Zealand, Dies at 69**\
-`The king, who had been on the throne for 18 years, was praised by New Zealand’s prime minister for his “unwavering commitment to his people.”`\
-https://nytimes.com/2024/08/30/world/australia/maori-king-tuheitia-dead-new-zealand.html
 
