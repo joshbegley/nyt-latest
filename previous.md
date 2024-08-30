@@ -1,3 +1,11 @@
+**Crystal Palace sign Nketiah from Arsenal**\
+`Crystal Palace have completed the signing of striker Eddie Nketiah from Arsenal.`\
+https://nytimes.com/athletic/5725990/2024/08/30/nketiah-arsenal-crystal-palace-transfer-complete/
+
+**Eddie Nketiah to Crystal Palace: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we look at Eddie Nketiah's move to Crystal Palace from Arsenal`\
+https://nytimes.com/athletic/5709938/2024/08/30/eddie-nketiah-to-crystal-palace-transfer-ratings/
+
 **Arsenal working to finalise Sterling loan deal**\
 `Chelsea forward Raheem Sterling has arrived at Arsenal&#8217;s training ground as all parties work to finalise a season-long loan deal.`\
 https://nytimes.com/athletic/5734804/2024/08/30/raheem-sterling-arsenal/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/5734242/2024/08/30/mikel-merino-injury-arsenal/
 **Putin Plans First Visit to I.C.C. Member State Since Arrest Warrant**\
 `The Russian president will travel to Mongolia, a member of the International Criminal Court, which issued a warrant for his arrest in 2023.`\
 https://nytimes.com/2024/08/30/world/europe/putin-visit-mongolia-icc.html
-
-**Trump’s Pitch to Parents**\
-`Also, an obesity drug may prevent Covid deaths. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2024/08/30/briefing/donald-trump-parents-campaign-israel-west-bank.html
-
-**Ravens, Tyler Huntley reunite as QB agrees to return to practice squad**\
-`Baltimore had one open spot on its practice squad, so Huntley’s addition will not force the team to make a corresponding move.`\
-https://nytimes.com/athletic/5734965/2024/08/30/ravens-tyler-huntley-returns-practice-squad/
 

@@ -1,3 +1,11 @@
+**Crystal Palace sign Nketiah from Arsenal**\
+`Crystal Palace have completed the signing of striker Eddie Nketiah from Arsenal.`\
+https://nytimes.com/athletic/5725990/2024/08/30/nketiah-arsenal-crystal-palace-transfer-complete/
+
+**Eddie Nketiah to Crystal Palace: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we look at Eddie Nketiah's move to Crystal Palace from Arsenal`\
+https://nytimes.com/athletic/5709938/2024/08/30/eddie-nketiah-to-crystal-palace-transfer-ratings/
+
 **Arsenal working to finalise Sterling loan deal**\
 `Chelsea forward Raheem Sterling has arrived at Arsenal&#8217;s training ground as all parties work to finalise a season-long loan deal.`\
 https://nytimes.com/athletic/5734804/2024/08/30/raheem-sterling-arsenal/
