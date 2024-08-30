@@ -1,3 +1,7 @@
+**Leonard Riggio, 83, Dies; Founded Barnes & Noble and Upended Publishing**\
+`He turned a college book store into a publishing behemoth, pioneering the bookstore-as-superstore and putting thousands of independents out of business before being overtaken by Amazon.`\
+https://nytimes.com/2024/08/30/business/leonard-riggio-dead.html
+
 **Florida Family Spent $6 Million on Fake Warhols, Lawsuit Claims**\
 `The family sued a Miami gallery, accusing it of going to elaborate lengths to pass off forged artworks as authentic Andy Warhols; the art dealer denied the allegations.`\
 https://nytimes.com/2024/08/30/arts/andy-warhol-forgeries-lawsuit.html
