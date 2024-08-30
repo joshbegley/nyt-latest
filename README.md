@@ -1,3 +1,7 @@
+**After Trump Claimed Fake Taylor Swift Endorsement, Her Fans Make Real Push for Harris**\
+`Thousands of the musician’s ardent followers are working to get out the vote and raise money for Vice President Kamala Harris’s campaign.`\
+https://nytimes.com/2024/08/30/us/politics/trump-taylor-swift-fans-endorsement.html
+
 **A Defensive Trump Tries to Limit the Fallout of the Arlington Clash**\
 `At a rally in western Pennsylvania, the former president insisted that he had not been seeking publicity at the military cemetery on Monday and defended his campaign’s actions.`\
 https://nytimes.com/2024/08/30/us/politics/trump-rally-arlington.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/30/us/politics/political-books.html
 **Coco Gauff needed a top-50 win. The U.S. Open was a good place to get it**\
 `The defending champion has struggled against top-50 opponents recently, but on Arthur Ashe Stadium, her aura remains undimmed.`\
 https://nytimes.com/athletic/5734973/2024/08/30/coco-gauff-us-open-svitolina-top-50-record/
-
-**OpenAI Names Political Veteran Chris Lehane as Head of Global Policy**\
-`The prominent A.I. start-up is also considering a change to its corporate structure to make it more appealing to outside investors.`\
-https://nytimes.com/2024/08/30/technology/openai-chris-lehane.html
 
