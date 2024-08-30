@@ -1,3 +1,7 @@
+**Trump will address Moms for Liberty, a spearhead in the culture wars.**\
+`By Dana Goldstein and Troy Closson`\
+https://nytimes.com/live/2024/08/30/us/harris-trump-election/trump-will-address-moms-for-liberty-a-spearhead-in-the-culture-wars
+
 **Neto to Arsenal: The Athletic 500 transfer ratings**\
 `As part of The Athletic 500 series, we look at Neto's move to Arsenal`\
 https://nytimes.com/athletic/5733511/2024/08/30/neto-to-arsenal-the-athletic-500-transfer-ratings/
