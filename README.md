@@ -1,3 +1,7 @@
+**Tropical Storm Shanshan Soaks Japan, Raising Flood and Landslide Risks**\
+`The weakened storm still packed heavy rain and strong winds. It has killed four people, injured more than 100 and prompted evacuation orders for more than four million.`\
+https://nytimes.com/2024/08/30/world/asia/typhoon-shanshan-japan.html
+
 **Word of the Day: foray**\
 `This word has appeared in 217 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/08/30/learning/word-of-the-day-foray.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5726346/2024/08/30/fantasy-premier-league-priority-
 **Dangerous dribbling and pinpoint crossing: What Ramazani and Solomon bring to Leeds**\
 `Crysencio Summerville will be hard to replace but the recruitment team have done well to bring in two players with impressive skill sets`\
 https://nytimes.com/athletic/5730987/2024/08/30/what-ramazani-and-solomon-bring-to-leeds/
-
-**Transfer deadline day: The 10 high-profile players who could still move**\
-`The Athletic looks at the most high-profile players who could be wearing a different shirt by the time the clock strikes 11pm this evening`\
-https://nytimes.com/athletic/5731424/2024/08/30/transfer-deadline-day-latest-players/
 
