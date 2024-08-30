@@ -1,3 +1,15 @@
+**A Donor’s Message, Revealed in a Museum Renovation: He Hated This Design**\
+`John Sainsbury disagreed with the design of his family’s namesake wing at London’s National Gallery. Three decades later, after his death, his critique rang anew.`\
+https://nytimes.com/2024/08/30/us/uk-national-gallery-letter-sainsbury-wing.html
+
+**Liverpool showed in 17 seconds how they want to play under Slot**\
+`An intricate but fast-paced passing move against Brentford gave a glimpse of new manager's principles`\
+https://nytimes.com/athletic/5728313/2024/08/30/liverpool-arne-slot-football/
+
+**The Dejan Kulusevski conundrum: Where does he best fit in this Tottenham team?**\
+`Maybe Postecoglou sees Kulusevski as multi-functional. The Swede can drop in across the pitch without a significant drop in quality`\
+https://nytimes.com/athletic/5731191/2024/08/30/dejan-kulusevski-tottenham-midfield/
+
 **Why Leicester have spent big on Bilal El Khannouss**\
 `Leicester are set to commit the best part of £20million on the Genk attacking midfielder - but what are they getting?`\
 https://nytimes.com/athletic/5731080/2024/08/30/leicester-bilal-el-khannouss-transfer/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5725928/2024/08/30/brighton-spending-spree/
 **Fantasy baseball waiver wire: Addison Barger, Spencer Arrighetti and more adds; plus, two-start pitchers and stashes**\
 `John Laghezza cuts to the chase this week in highlighting the best waiver wire adds, with Toronto's Addison Barger atop his hitter's list.`\
 https://nytimes.com/athletic/5731730/2024/08/30/fantasy-baseball-waiver-wire-addison-barger-spencer-arrighetti-adds-two-start-pitchers-stashes/
-
-**Machida Zelvia: The Japanese underdogs top of the league in their maiden top-flight season**\
-`Stand aside Leicester, Machida are top with a third of the J1 League season to go — having never played in the top flight before this year`\
-https://nytimes.com/athletic/5725883/2024/08/30/machida-zelvia-j1-league-fairy-tale-underdogs/
-
-**Why winning the Premier League shots battle is not as important as it's made out to be**\
-`It might be good for the highlights reel, but quality remains of more importance than quantity when looking to pull the trigger`\
-https://nytimes.com/athletic/5728926/2024/08/30/more-shots-more-victories-premier-league/
-
-**Seven reasons why the second phase at set plays is so dangerous for defenders**\
-`When defensive structure breaks down opportunities arise - as has already been demonstrated in the Premier League this season`\
-https://nytimes.com/athletic/5729968/2024/08/30/second-phase-set-play-danger/
 
