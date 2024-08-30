@@ -1,3 +1,7 @@
+**Trump Called for I.V.F. to Be Free. How Would That Work?**\
+`Getting the expensive fertility treatments covered would be possible, but an uphill battle, health policy experts said.`\
+https://nytimes.com/2024/08/30/health/trump-free-ivf-treatment.html
+
 **Palace to sign Chalobah on loan from Chelsea**\
 `Crystal Palace have reached an agreement with Chelsea to sign defender Trevoh Chalobah on loan.`\
 https://nytimes.com/athletic/5688678/2024/08/30/crystal-palace-trevoh-chalobah/
