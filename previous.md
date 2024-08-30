@@ -1,3 +1,15 @@
+**Machida Zelvia: The Japanese underdogs top of the league in their maiden top-flight season**\
+`Stand aside Leicester, Machida are top with a third of the J1 League season to go — having never played in the top flight before this year`\
+https://nytimes.com/athletic/5725883/2024/08/30/machida-zelvia-j1-league-fairy-tale-underdogs/
+
+**Why winning the Premier League shots battle is not as important as it's made out to be**\
+`It might be good for the highlights reel, but quality remains of more importance than quantity when looking to pull the trigger`\
+https://nytimes.com/athletic/5728926/2024/08/30/more-shots-more-victories-premier-league/
+
+**Seven reasons why the second phase at set plays is so dangerous for defenders**\
+`When defensive structure breaks down opportunities arise - as has already been demonstrated in the Premier League this season`\
+https://nytimes.com/athletic/5729968/2024/08/30/second-phase-set-play-danger/
+
 **Red Sox bats silent in loss to Blue Jays as they face uphill battle for postseason spot**\
 `Toronto Blue Jays starter Bowden Francis' dominance, even on a night when Kutter Crawford pitched well, led to a 2-0 loss for the Red Sox.`\
 https://nytimes.com/athletic/5733269/2024/08/30/red-sox-loss-blue-jays-kutter-crawford/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/30/style/modern-love-my-father-and-i-fell-for-the-sa
 **After Years of Almost-Dates, a Romance Grows Between Friends**\
 `Cody Austrie and Stephanie Brooks were locker neighbors in high school and forged a friendship. They didn’t start dating until years later when they reconnected.`\
 https://nytimes.com/2024/08/30/style/cody-austrie-stephanie-brooks-wedding.html
-
-**Trump Team Tries to Clarify Remarks on Florida Abortion Rights Measure**\
-`After Donald J. Trump suggested that he might support a ballot measure to expand abortion rights, his campaign sought to make clear that he “has not yet said how he will vote.”`\
-https://nytimes.com/2024/08/29/us/trump-florida-abortion-rights.html
-
-**Friday Briefing**\
-`Kamala Harris’s interview with CNN.`\
-https://nytimes.com/2024/08/29/briefing/harris-cnn-interview-israel-mpox.html
-
-**UNC's Max Johnson carted off vs. Minnesota with apparent knee injury**\
-`Sophomore Conner Harrell came in for the Tar Heels after Johnson exited following a hit by Minnesota's Justin Walley.`\
-https://nytimes.com/athletic/5733317/2024/08/29/max-johnson-unc-injury-minnesota/
 
