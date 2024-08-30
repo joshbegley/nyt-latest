@@ -1,3 +1,7 @@
+**What I’m hearing about the Big 12: UConn, naming rights, private equity and more**\
+`The perpetually open-for-business Big 12 is making headlines again. Here’s a rundown of what’s going on with the new-look, 16-team league.`\
+https://nytimes.com/athletic/5732442/2024/08/30/big-12-uconn-naming-rights/
+
 **Assessing Manchester United's squad for 2024-25: Is improvement on the cards?**\
 `Ten Hag has been backed this summer and the significant additions made in the market suggest United will improve from last season's mess`\
 https://nytimes.com/athletic/3453102/2024/08/30/manchester-united-squad-ten-hag/
