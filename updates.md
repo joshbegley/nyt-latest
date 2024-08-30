@@ -1,3 +1,7 @@
+**Putin Plans First Visit to I.C.C. Member State Since Arrest Warrant**\
+`The Russian president will travel to Mongolia in his first trip to an I.C.C. member state since the court issued a warrant for his arrest in 2023.`\
+https://nytimes.com/2024/08/30/world/europe/putin-visit-mongolia-icc.html
+
 **Trump’s Pitch to Parents**\
 `Also, an obesity drug may prevent Covid deaths. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/08/30/briefing/donald-trump-parents-campaign-israel-west-bank.html

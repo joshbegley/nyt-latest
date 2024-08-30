@@ -1,3 +1,7 @@
+**Putin Plans First Visit to I.C.C. Member State Since Arrest Warrant**\
+`The Russian president will travel to Mongolia in his first trip to an I.C.C. member state since the court issued a warrant for his arrest in 2023.`\
+https://nytimes.com/2024/08/30/world/europe/putin-visit-mongolia-icc.html
+
 **Trump’s Pitch to Parents**\
 `Also, an obesity drug may prevent Covid deaths. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/08/30/briefing/donald-trump-parents-campaign-israel-west-bank.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/30/magazine/dogs-restaurant-ethics.html
 **Giuliani Faces New Lawsuit From Georgia Election Workers Over Luxury Condo**\
 `The two women, who were defamed by Rudolph W. Giuliani after the 2020 election, have accused him of trying to keep his multimillion-dollar condo in Florida from debt collection.`\
 https://nytimes.com/2024/08/30/us/politics/giuliani-georgia-election-workers-condo.html
-
-**Chelsea on verge of agreeing Sancho deal**\
-`Chelsea are on the verge of signing Jadon Sancho from Manchester United.`\
-https://nytimes.com/athletic/5734401/2024/08/30/chelsea-jadon-sancho-transfer-loan/
 
