@@ -1,3 +1,11 @@
+**The Fed’s Preferred Inflation Gauge Stays Cool, Keeping a Rate Cut Imminent**\
+`Inflation remained cool in July, based on the Personal Consumption Expenditures Index, keeping the Federal Reserve on track for rate cuts.`\
+https://nytimes.com/2024/08/30/business/economy/inflation-stays-cool-fed-rate-cut.html
+
+**Guehi to remain at Palace despite Newcastle interest - Glasner**\
+`Crystal Palace manager Oliver Glasner says Marc Guehi will remain at the club despite interest from Newcastle United.`\
+https://nytimes.com/athletic/5705371/2024/08/30/guehi-crystal-palace-glasner-newcastle/
+
 **Newcastle distance themselves from former owner's political endorsement video**\
 `Newcastle United have distanced themselves from a video filmed at St James&#8217; Park, in which former club owner Sir John Hall endorsed Conservative Party leadership candidate Robert Jenrick.`\
 https://nytimes.com/athletic/5733818/2024/08/30/newcastle-john-hall-video-st-james-park/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5733703/2024/08/30/north-carolina-minnesota-footbal
 **Ipswich revive Broja loan talks**\
 `Ipswich Town have revived talks with Chelsea about a deal to sign Armando Broja on loan.`\
 https://nytimes.com/athletic/5712849/2024/08/30/chelsea-armando-broja-transfer-ipswich/
-
-**Election Live Updates: Trump and Harris Camps Heading to Swing States for Labor Day Push**\
-`After her CNN interview, Kamala Harris will hit the trail, in Detroit and Pittsburgh, on the holiday. Today, Donald Trump has a rally in Pennsylvania and will attend a Moms for Liberty event.`\
-https://nytimes.com/live/2024/08/30/us/harris-trump-election
-
-**Here’s the latest on the 2024 race.**\
-`By Jonathan Weisman and Tim Balk`\
-https://nytimes.com/live/2024/08/30/us/harris-trump-election/heres-the-latest-on-the-2024-race
 

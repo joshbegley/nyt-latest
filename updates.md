@@ -1,3 +1,11 @@
+**The Fed’s Preferred Inflation Gauge Stays Cool, Keeping a Rate Cut Imminent**\
+`Inflation remained cool in July, based on the Personal Consumption Expenditures Index, keeping the Federal Reserve on track for rate cuts.`\
+https://nytimes.com/2024/08/30/business/economy/inflation-stays-cool-fed-rate-cut.html
+
+**Guehi to remain at Palace despite Newcastle interest - Glasner**\
+`Crystal Palace manager Oliver Glasner says Marc Guehi will remain at the club despite interest from Newcastle United.`\
+https://nytimes.com/athletic/5705371/2024/08/30/guehi-crystal-palace-glasner-newcastle/
+
 **Newcastle distance themselves from former owner's political endorsement video**\
 `Newcastle United have distanced themselves from a video filmed at St James&#8217; Park, in which former club owner Sir John Hall endorsed Conservative Party leadership candidate Robert Jenrick.`\
 https://nytimes.com/athletic/5733818/2024/08/30/newcastle-john-hall-video-st-james-park/
