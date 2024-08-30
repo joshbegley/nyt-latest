@@ -1,3 +1,7 @@
+**‘A Wave That’s on the Decline?’ Trump to Talk to Parents Leading the Culture Wars.**\
+`Last year, the former president told the group it was time to “liberate our children from the Marxist lunatics and perverts” in education. Does that message still resonate with voters?`\
+https://nytimes.com/2024/08/30/us/trump-moms-for-liberty-school-boards.html
+
 **McDaniel gets new Dolphins deal, staying through 2028**\
 `Mike McDaniel has coached the Dolphins since 2022, leading them to a 20-14 record and two playoff appearances.`\
 https://nytimes.com/athletic/5734066/2024/08/30/mike-mcdaniel-contract-dolphins/
