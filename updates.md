@@ -1,3 +1,7 @@
+**Ipswich revive Broja loan talks**\
+`Ipswich Town have revived talks with Chelsea about a deal to sign Armando Broja on loan.`\
+https://nytimes.com/athletic/5712849/2024/08/30/chelsea-armando-broja-transfer-ipswich/
+
 **Election Live Updates: Trump and Harris Camps Heading to Swing States for Labor Day Push**\
 `After her CNN interview, Kamala Harris will hit the trail, in Detroit and Pittsburgh, on the holiday. Today, Donald Trump has a rally in Pennsylvania and will attend a Moms for Liberty event.`\
 https://nytimes.com/live/2024/08/30/us/harris-trump-election
