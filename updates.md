@@ -1,3 +1,11 @@
+**James Ward-Prowse to Nottingham Forest: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we look at England midfielder Ward-Prowse's loan move from West Ham to Forest`\
+https://nytimes.com/athletic/5733531/2024/08/30/james-ward-prowse-transfer-nottingham-forest/
+
+**Everton make late approach to sign Chelsea striker Broja, Ipswich out of deal**\
+`Everton have made a late approach to sign Chelsea striker Armando Broja.`\
+https://nytimes.com/athletic/5735081/2024/08/30/armando-broja-everton-chelsea-transfer/
+
 **A Stanley Tumbler You Can Wear?**\
 `A new Halloween costume from Target inspired by a popular reusable cup perpetuates the zeitgeistification of a holiday that once belonged almost entirely to children.`\
 https://nytimes.com/2024/08/30/style/stanley-halloween-costume-target.html
