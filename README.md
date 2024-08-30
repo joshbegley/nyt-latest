@@ -1,3 +1,7 @@
+**Ipswich revive Broja loan talks**\
+`Ipswich Town have revived talks with Chelsea about a deal to sign Armando Broja on loan.`\
+https://nytimes.com/athletic/5712849/2024/08/30/chelsea-armando-broja-transfer-ipswich/
+
 **Election Live Updates: Trump and Harris Camps Heading to Swing States for Labor Day Push**\
 `After her CNN interview, Kamala Harris will hit the trail, in Detroit and Pittsburgh, on the holiday. Today, Donald Trump has a rally in Pennsylvania and will attend a Moms for Liberty event.`\
 https://nytimes.com/live/2024/08/30/us/harris-trump-election
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5733627/2024/08/30/carlos-soler-psg-west-ham-transf
 **The Pulse: Catch of the year contender, already**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5732120/2024/08/30/colorado-score-travis-hunter-catch-the-pulse/
-
-**Don't call it the Super League: Champions League clubs' view on UEFA's display of power**\
-`At Thursday's draw at Monaco, the new Champions League league phase was plotted out. This is how the room reacted...`\
-https://nytimes.com/athletic/5733512/2024/08/30/champions-league-draw-ronaldo-new-format-reaction/
 
