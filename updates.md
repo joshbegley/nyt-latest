@@ -1,3 +1,7 @@
+**What was your personal song of the summer?**\
+`We want to know your seasonal anthem, for a future Amplifier playlist.`\
+https://nytimes.com/2024/08/30/arts/music/what-was-your-song-of-the-summer.html
+
 **Gerardo Martino Q&A: Managing Lionel Messi, the rise of Inter Miami, and the art of suffering**\
 `Inter Miami head coach Gerardo Martino on the team's rise, the impact of the Barca boys, and how MLS has changed him`\
 https://nytimes.com/athletic/5733260/2024/08/30/gerardo-martino-inter-miami-messi/
