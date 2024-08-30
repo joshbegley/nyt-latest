@@ -1,3 +1,11 @@
+**James Ward-Prowse to Nottingham Forest: The Athletic 500 transfer ratings**\
+`As part of The Athletic 500 series, we look at England midfielder Ward-Prowse's loan move from West Ham to Forest`\
+https://nytimes.com/athletic/5733531/2024/08/30/james-ward-prowse-transfer-nottingham-forest/
+
+**Everton make late approach to sign Chelsea striker Broja, Ipswich out of deal**\
+`Everton have made a late approach to sign Chelsea striker Armando Broja.`\
+https://nytimes.com/athletic/5735081/2024/08/30/armando-broja-everton-chelsea-transfer/
+
 **A Stanley Tumbler You Can Wear?**\
 `A new Halloween costume from Target inspired by a popular reusable cup perpetuates the zeitgeistification of a holiday that once belonged almost entirely to children.`\
 https://nytimes.com/2024/08/30/style/stanley-halloween-costume-target.html
@@ -29,13 +37,4 @@ https://nytimes.com/video/dining/100000009661137/how-the-burger-became-a-portrai
 **Zaha joins Lyon on loan from Galatasaray**\
 `Lyon have completed the loan signing of winger Wilfried Zaha from Galatasaray.`\
 https://nytimes.com/athletic/5733406/2024/08/30/wilfried-zaha-lyon-transfer/
-
-**Leeds complete signing of full-back Schmidt**\
-`Leeds United have confirmed the signing of Isaac Schmidt on a permanent transfer from Swiss side St Gallen.`\
-https://nytimes.com/athletic/5734983/2024/08/30/isaac-schmidt-leeds-signing/
-
-**Villa's Emery 'surprised' by Rogers inclusion in England U-21s**\
-`Unai Emery has said he is &#8220;surprised&#8221; by Morgan Rogers&#8217; inclusion in England under-21s upcoming fixtures, questioning &#8220;what does he gain?&#8221;
-England caretaker boss Lee Carsley was at Villa Park to watch Rogers in Aston Villa&#8217;s 2-0 defeat against Arsenal, with the 22-year-old the team&#8217;s standout performer.`\
-https://nytimes.com/athletic/5734076/2024/08/30/aston-villa-morgan-rogers-england-u21/
 
