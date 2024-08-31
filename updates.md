@@ -1,3 +1,7 @@
+**Jordan Walker is back with the Cardinals: 'He will play every day'**\
+`After a strong month with Triple-A Memphis, the Cardinals plan to give Walker consistent playing time at the big-league level.`\
+https://nytimes.com/athletic/5735154/2024/08/30/jordan-walker-cardinals/
+
 **Toney completes transfer to Al Ahli from Brentford**\
 `Al Ahli have completed the signing of Ivan Toney from Brentford for a fee of €40million (£33.`\
 https://nytimes.com/athletic/5733585/2024/08/30/ivan-toney-al-ahli-transfer-done/
