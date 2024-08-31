@@ -1,3 +1,7 @@
+**Freddie Freeman returns to the Dodgers lineup with his finger still broken, but mind reset**\
+`Freeman hit a two-run home run in his first at-bat on Friday after missing three games.`\
+https://nytimes.com/athletic/5735393/2024/08/30/freddie-freeman-broken-finger-dodgers-lineup/
+
 **Jordan Walker is back with the Cardinals: 'He will play every day'**\
 `After Walker's strong month with Triple-A Memphis, the Cardinals plan to give him consistent playing time at the big-league level.`\
 https://nytimes.com/athletic/5735154/2024/08/30/jordan-walker-cardinals/
