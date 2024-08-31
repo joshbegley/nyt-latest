@@ -1,3 +1,11 @@
+**Arteta turned Sterling into a penalty-box threat - he can do it again at Arsenal**\
+`Why Sterling's role at Manchester City is a more useful pointer than his time in an unstable Chelsea side during the past two years`\
+https://nytimes.com/athletic/5735144/2024/08/30/raheem-sterling-mikel-arteta-tactics/
+
+**Trump Says He’ll Vote Against Florida’s Abortion Rights Measure After Conservative Backlash**\
+`A day earlier, the former president had suggested he might support the measure, which would expand abortion access in the state.`\
+https://nytimes.com/2024/08/30/us/politics/trump-florida-abortion-measure.html
+
 **Jordan Walker is back with the Cardinals: 'He will play every day'**\
 `After a strong month with Triple-A Memphis, the Cardinals plan to give Walker consistent playing time at the big-league level.`\
 https://nytimes.com/athletic/5735154/2024/08/30/jordan-walker-cardinals/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5734574/2024/08/30/leicester-city-odsonne-edouard/
 **Eliyahu Rips, Who Claimed to Find Secret Codes in the Torah, Dies at 75**\
 `His work provided the basis for the worldwide best seller “The Bible Code,” but he later rejected the book as unscientific.`\
 https://nytimes.com/2024/08/30/science/eliyahu-rips-dead.html
-
-**Misdated Mail-In Ballots Should Still Count, Pennsylvania Court Rules**\
-`The state court found that throwing out otherwise eligible ballots because they were undated or had the wrong date on the outer envelope would violate the State Constitution.`\
-https://nytimes.com/2024/08/30/us/pennsylvania-mail-in-ballots.html
-
-**Frances Tiafoe knocks Ben Shelton out of U.S. Open in five-set thriller**\
-`NEW YORK — There are tennis matches at the U.`\
-https://nytimes.com/athletic/5735200/2024/08/30/tiafoe-shelton-us-open-result/
 

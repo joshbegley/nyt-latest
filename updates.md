@@ -1,3 +1,11 @@
+**Arteta turned Sterling into a penalty-box threat - he can do it again at Arsenal**\
+`Why Sterling's role at Manchester City is a more useful pointer than his time in an unstable Chelsea side during the past two years`\
+https://nytimes.com/athletic/5735144/2024/08/30/raheem-sterling-mikel-arteta-tactics/
+
+**Trump Says He’ll Vote Against Florida’s Abortion Rights Measure After Conservative Backlash**\
+`A day earlier, the former president had suggested he might support the measure, which would expand abortion access in the state.`\
+https://nytimes.com/2024/08/30/us/politics/trump-florida-abortion-measure.html
+
 **Jordan Walker is back with the Cardinals: 'He will play every day'**\
 `After a strong month with Triple-A Memphis, the Cardinals plan to give Walker consistent playing time at the big-league level.`\
 https://nytimes.com/athletic/5735154/2024/08/30/jordan-walker-cardinals/
