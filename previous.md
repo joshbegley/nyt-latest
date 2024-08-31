@@ -1,3 +1,11 @@
+**Reds' Rhett Lowder allows just one run in big-league debut**\
+`Lowder allowed one earned run and struck out six over four innings in Cincinnati's 14-0 loss to the Brewers.`\
+https://nytimes.com/athletic/5735484/2024/08/30/reds-rhett-lowder-mlb-debut/
+
+**Novak Djokovic eliminated from U.S. Open 24 hours after Carlos Alcaraz**\
+`The 24-time Grand Slam champion succumbed to a display from the Australian that was first dominant, and then gritty.`\
+https://nytimes.com/athletic/5735483/2024/08/30/novak-djokovic-us-open-alexei-popyrin-result/
+
 **Reynaldo López wins again, Orlando Arcia homers twice for resurgent Braves offense**\
 `Arcia's back-to-back jacks took some of the gusto out of the leather-lunged Phillies fans at Citizens Bank Park.`\
 https://nytimes.com/athletic/5735452/2024/08/30/braves-reynaldo-lopez-orlando-arcia-phillies/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/30/crosswords/daily-puzzle-2024-08-31.html
 **Freddie Freeman returns to Dodgers' lineup with his finger still broken, but mind reset**\
 `Freeman hit a two-run home run in his first at-bat Friday after missing three games.`\
 https://nytimes.com/athletic/5735393/2024/08/30/freddie-freeman-broken-finger-dodgers-lineup/
-
-**Arteta turned Sterling into a penalty-box threat - he can do it again at Arsenal**\
-`Why Sterling's role at Manchester City is a more useful pointer than his time in an unstable Chelsea side during the past two years`\
-https://nytimes.com/athletic/5735144/2024/08/30/raheem-sterling-mikel-arteta-tactics/
-
-**Trump Says He’ll Vote Against Florida’s Abortion Rights Measure After Conservative Backlash**\
-`A day earlier, the former president had suggested he might support the measure, which would expand abortion access in the state.`\
-https://nytimes.com/2024/08/30/us/politics/trump-florida-abortion-measure.html
 

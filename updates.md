@@ -1,3 +1,11 @@
+**Reds' Rhett Lowder allows just one run in big-league debut**\
+`Lowder allowed one earned run and struck out six over four innings in Cincinnati's 14-0 loss to the Brewers.`\
+https://nytimes.com/athletic/5735484/2024/08/30/reds-rhett-lowder-mlb-debut/
+
+**Novak Djokovic eliminated from U.S. Open 24 hours after Carlos Alcaraz**\
+`The 24-time Grand Slam champion succumbed to a display from the Australian that was first dominant, and then gritty.`\
+https://nytimes.com/athletic/5735483/2024/08/30/novak-djokovic-us-open-alexei-popyrin-result/
+
 **Reynaldo López wins again, Orlando Arcia homers twice for resurgent Braves offense**\
 `Arcia's back-to-back jacks took some of the gusto out of the leather-lunged Phillies fans at Citizens Bank Park.`\
 https://nytimes.com/athletic/5735452/2024/08/30/braves-reynaldo-lopez-orlando-arcia-phillies/
