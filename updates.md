@@ -1,3 +1,7 @@
+**NCAA blocks Oklahoma State QR code helmet sticker**\
+`The NCAA ruled that the markers are unpermitted “advertising or commercial marks,” the school said in a statement released Saturday.`\
+https://nytimes.com/athletic/5736259/2024/08/31/oklahoma-state-qr-codes-ncaa-sdsu/
+
 **Darren Baker, son of Dusty, called up by Nationals**\
 `The younger Baker first became known nationally in 2002 when he was scooped up at home plate during Game 5 of the 2002 World Series.`\
 https://nytimes.com/athletic/5736252/2024/08/31/darren-baker-dusty-son-nationals-prospect/
