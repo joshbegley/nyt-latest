@@ -1,3 +1,7 @@
+**Why Mercedes F1 put its faith in 18-year-old Kimi Antonelli to replace Lewis Hamilton**\
+`Not since Max Verstappen joined the grid in 2015 has there been such hype around a young driver. `\
+https://nytimes.com/athletic/5734958/2024/08/31/kimi-antonelli-f1-mercedes-lewis-hamilton-2025/
+
 **Mercedes promotes Antonelli to replace Hamilton in 2025**\
 `The move to Mercedes' F1 team completes a rapid, hype-filled ascent for Antonelli, who turned 18 last weekend.`\
 https://nytimes.com/athletic/5729566/2024/08/31/f1-andrea-kimi-antonelli-mercedes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5734053/2024/08/31/arsenal-transfer-window-latest-n
 **Liverpool's transfer window: How Chiesa coup was sealed - and No 6 void left unfilled**\
 `Only one new signing for this season arrived at Anfield, but the club believe their calculated gamble will pay off`\
 https://nytimes.com/athletic/5731004/2024/08/31/liverpool-transfer-window-federico-chiesa/
-
-**'It’s been a ton of fun': Jesse Winker's buy-in makes him big part of the Mets**\
-`As the Mets continue to play games that carry more and more meaning each day, Winker keeps providing big hit after big hit.`\
-https://nytimes.com/athletic/5735587/2024/08/31/mets-jesse-winker-white-sox/
 
