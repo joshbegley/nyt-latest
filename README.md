@@ -2,8 +2,8 @@
 `Sam Ezersky’s themeless Saturday grid will get you going.`\
 https://nytimes.com/2024/08/30/crosswords/daily-puzzle-2024-08-31.html
 
-**Freddie Freeman returns to the Dodgers lineup with his finger still broken, but mind reset**\
-`Freeman hit a two-run home run in his first at-bat on Friday after missing three games.`\
+**Freddie Freeman returns to Dodgers' lineup with his finger still broken, but mind reset**\
+`Freeman hit a two-run home run in his first at-bat Friday after missing three games.`\
 https://nytimes.com/athletic/5735393/2024/08/30/freddie-freeman-broken-finger-dodgers-lineup/
 
 **Arteta turned Sterling into a penalty-box threat - he can do it again at Arsenal**\
