@@ -1,3 +1,7 @@
+**The Athletic FC: Sterling and Sancho's late, late deals; Ornstein's deal of the summer**\
+`Today in The Athletic FC: Inside the big Premier League transfers - including Sancho to Chelsea and Sterling to Arsenal - after deadline day`\
+https://nytimes.com/athletic/5733569/2024/08/31/sterling-sancho-arsenal-chelsea-transfers/
+
 **What’s in Your Fridge? Here Are Details About the Deli Meat Listeria Recall**\
 `Seven million pounds of Boar’s Head meats have been recalled since late July, when reports of serious illnesses and deaths began to occur.`\
 https://nytimes.com/2024/08/31/health/boars-head-recall-deli-meats-listeria.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/31/arts/television/sagar-radia-industry.html
 **The Construction Site Outside My Building Is Filthy. What Can I Do?**\
 `City codes govern the removal of construction debris, including keeping waste contained.`\
 https://nytimes.com/2024/08/31/realestate/the-construction-site-outside-my-building-is-filthy-what-can-i-do.html
-
-**For Generations of Alaskans, a Livelihood Is Under Threat**\
-`Something is broken in the economics of the state’s fishing industry and the communities that have long depended upon it. Can Washington come to the rescue?`\
-https://nytimes.com/2024/08/31/business/economy/alaska-fishing-economy.html
 
