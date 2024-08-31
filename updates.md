@@ -1,3 +1,7 @@
+**Inside Arsenal's transfer window: Sterling loan terms and goalkeeper frustration**\
+`This is the story of Arsenal's transfer window, which concluded with late moves on Friday`\
+https://nytimes.com/athletic/5734053/2024/08/31/arsenal-transfer-window-latest-news-inside/
+
 **Liverpool's transfer window: How Chiesa coup was sealed - and No 6 void left unfilled**\
 `Only one new signing for this season arrived at Anfield, but the club believe their calculated gamble will pay off`\
 https://nytimes.com/athletic/5731004/2024/08/31/liverpool-transfer-window-federico-chiesa/
