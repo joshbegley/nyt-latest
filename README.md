@@ -1,3 +1,7 @@
+**Has the Spread of Tipping Reached Its Limit? Don’t Count on It.**\
+`Both major presidential candidates propose exempting tips from taxes. That could encourage more reliance on tipping, and leave workers vulnerable.`\
+https://nytimes.com/2024/08/31/business/economy/tipped-workers-taxes.html
+
 **The Briefing: Arsenal 1 Brighton 1: Explaining Rice's red as Arsenal drop points in the title race**\
 `We break down the key talking points from Saturday's game at the Emirates Stadium`\
 https://nytimes.com/athletic/5726081/2024/08/31/arsenal-brighton-premier-league-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/31/opinion/flash-floods-arizona-utah-climate-change.
 **Inside Forest's transfer window: More options and a little less chaos — but no new striker**\
 `Forest failed in bids to bring in a striker but Nuno Espirito Santo now has strength in depth in most areas of his squad`\
 https://nytimes.com/athletic/5735351/2024/08/31/nottingham-forest-transfer-window-2024/
-
-**Here’s Why We Shouldn’t Demean Trump Voters**\
-`Educated liberals often view the conservative working class with a whiff of condescension that is both unfair and counterproductive.`\
-https://nytimes.com/2024/08/31/opinion/trump-voters-liberal-civil.html
 
