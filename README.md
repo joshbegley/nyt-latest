@@ -1,3 +1,11 @@
+**Ashton Jeanty stakes claim to 2025 NFL Draft's RB1 slot with six-TD performance**\
+`Jeanty had touchdown runs of 77 and 75 yards as part of his record-setting performance. `\
+https://nytimes.com/athletic/5736855/2024/08/31/ashton-jeanty-nfl-draft-record-boise-state/
+
+**Is Iowa's offense fixed? A freshman WR and a new OC offer hope**\
+`Reece Vander Zee helped the Iowa offense begin to move beyond the college football laughingstock status it earned last year.`\
+https://nytimes.com/athletic/5736960/2024/08/31/iowa-football-offense-reece-vander-zee/
+
 **Kadyn Proctor misses Alabama opener against Western Kentucky**\
 `Proctor, Alabama's projected starter at left tackle, is not playing tonight against Western Kentucky.`\
 https://nytimes.com/athletic/5736964/2024/08/31/kadyn-proctor-injury-alabama-football/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5736769/2024/08/31/arch-manning-first-career-tds-te
 **Former Miss Teen USA Contestant Rebukes Vance for Using Her Flub to Attack Harris**\
 `Caite Upton wrote on social media that “online bullying needs to stop,” after JD Vance posted a clip of her mangled answer from the 2007 Miss Teen USA pageant to mock Kamala Harris.`\
 https://nytimes.com/2024/08/31/us/politics/vance-harris-caite-upton.html
-
-**Penn State takeaways: What did new-look offense reveal in win at West Virginia?**\
-`With creativity, explosive plays and 457 total yards, it was clear this is a new and improved offense.`\
-https://nytimes.com/athletic/5736680/2024/08/31/penn-state-win-west-virginia-offense/
-
-**Emerson: This Georgia team has the key trait of the program's two recent national champions**\
-`Georgia has mastered the stranglehold-type game, where it’s close for a while, then the Bulldogs run away and the opponent wears out.`\
-https://nytimes.com/athletic/5736591/2024/08/31/georgia-football-national-championship-contender/
 
