@@ -1,3 +1,7 @@
+**Novak Djokovic eliminated from U.S. Open 24 hours after Carlos Alcaraz**\
+`The 24-time Grand Slam champion succumbed to a display from the Australian that was first dominant, and then gritty.`\
+https://nytimes.com/athletic/5735483/2024/08/31/novak-djokovic-us-open-alexei-popyrin-result/
+
 **Toto Wolff took 'five minutes' to decide on Antonelli as Hamilton’s F1 replacement**\
 `The Mercedes boss said that the Kimi Antonelli and George Russell lineup is one he had always wanted. `\
 https://nytimes.com/athletic/5735779/2024/08/31/toto-wolff-max-verstappen-kimi-antonelli-mercedes-f1/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/31/opinion/trump-harris-misogyny-history-rome.html
 **The Sacred Appeal of Household Labor**\
 `I used to consider the work I needed to do around the house expendable. I now see it as integral to my and my family’s happiness.`\
 https://nytimes.com/2024/08/31/opinion/household-labor-work-laundry-faith.html
-
-**America Does Not Need the Death Penalty**\
-`President Biden should fulfill his promise to work to pass legislation to end the use of capital punishment for federal crimes.`\
-https://nytimes.com/2024/08/31/opinion/death-penalty-biden.html
 

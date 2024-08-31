@@ -1,3 +1,7 @@
+**Novak Djokovic eliminated from U.S. Open 24 hours after Carlos Alcaraz**\
+`The 24-time Grand Slam champion succumbed to a display from the Australian that was first dominant, and then gritty.`\
+https://nytimes.com/athletic/5735483/2024/08/31/novak-djokovic-us-open-alexei-popyrin-result/
+
 **Toto Wolff took 'five minutes' to decide on Antonelli as Hamilton’s F1 replacement**\
 `The Mercedes boss said that the Kimi Antonelli and George Russell lineup is one he had always wanted. `\
 https://nytimes.com/athletic/5735779/2024/08/31/toto-wolff-max-verstappen-kimi-antonelli-mercedes-f1/
