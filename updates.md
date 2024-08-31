@@ -1,3 +1,7 @@
+**NFL Draft: Carson Beck, Malaki Starks look like top-10 picks in rout of Clemson**\
+`Georgia's biggest stars went off in a blowout win over Clemson. What's it all mean for those prospects' NFL hopes?`\
+https://nytimes.com/athletic/5736415/2024/08/31/nfl-draft-2025-malaki-starks-clemson/
+
 **Hvaldimir, a Celebrated ‘Spy’ Whale, Is Found Dead in Norway**\
 `The beluga whale, who was first spotted in 2019 wearing what looked like a camera harness, was seen floating in Norwegian waters on Saturday.`\
 https://nytimes.com/2024/08/31/world/europe/hvaldimir-spy-whale-dead.html
