@@ -1,3 +1,7 @@
+**A Playlist to Remember**\
+`Songs can help demarcate this chapter of your life: It’s a way to mark time, to keep one period of time from bleeding indistinctly into the next.`\
+https://nytimes.com/2024/08/31/briefing/a-playlist-to-remember.html
+
 **Vikings mailbag: T.J. Hockenson's timeline and why they cut Jaren Hall, Kene Nwangwu**\
 `Our Vikings reporter takes your questions on Hockenson's return, some surprising cuts and how different Brian Flores' defense could look.`\
 https://nytimes.com/athletic/5734487/2024/08/31/vikings-mailbag-tj-hockenson-jaren-hall-kene-nwangwu/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/31/climate/takeaways-pfas-sludge-fertilizer.html
 **Trump Contorts Himself on Abortion in Search of Political Gain**\
 `The former president is willing to make as many rhetorical and policy shifts as he deems necessary to win in November, vexing some social conservatives.`\
 https://nytimes.com/2024/08/31/us/politics/trump-abortion-stance.html
-
-**We Can’t All Be BFFs. Enter the ‘Medium Friend.’**\
-`The less intense bonds you didn’t know you needed.`\
-https://nytimes.com/2024/08/31/podcasts/we-cant-all-be-bffs-enter-the-medium-friend.html
 

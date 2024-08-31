@@ -1,3 +1,7 @@
+**A Playlist to Remember**\
+`Songs can help demarcate this chapter of your life: It’s a way to mark time, to keep one period of time from bleeding indistinctly into the next.`\
+https://nytimes.com/2024/08/31/briefing/a-playlist-to-remember.html
+
 **Vikings mailbag: T.J. Hockenson's timeline and why they cut Jaren Hall, Kene Nwangwu**\
 `Our Vikings reporter takes your questions on Hockenson's return, some surprising cuts and how different Brian Flores' defense could look.`\
 https://nytimes.com/athletic/5734487/2024/08/31/vikings-mailbag-tj-hockenson-jaren-hall-kene-nwangwu/
