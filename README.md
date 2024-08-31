@@ -1,3 +1,7 @@
+**NCAA blocks Oklahoma State QR code helmet sticker**\
+`The NCAA ruled that the markers are unpermitted “advertising or commercial marks,” the school said in a statement released Saturday.`\
+https://nytimes.com/athletic/5736259/2024/08/31/oklahoma-state-qr-codes-ncaa-sdsu/
+
 **Darren Baker, son of Dusty, called up by Nationals**\
 `The younger Baker first became known nationally in 2002 when he was scooped up at home plate during Game 5 of the 2002 World Series.`\
 https://nytimes.com/athletic/5736252/2024/08/31/darren-baker-dusty-son-nationals-prospect/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/31/nyregion/botic-van-de-zandschulp-us-open.html
 **Colts’ Granson to wear Guardian Cap in regular season**\
 `“At one point people thought seatbelts were f---ing stupid,” Granson told The Athletic on Thursday.`\
 https://nytimes.com/athletic/5735947/2024/08/31/colts-kylen-granson-guardian-cap/
-
-**How the 49ers paid Brandon Aiyuk — while saving room for Trent Williams and Brock Purdy**\
-`The 49ers used guaranteed money to deliver the cash Aiyuk sought while offering flexibility to pay their other stars.`\
-https://nytimes.com/athletic/5735021/2024/08/31/brandon-aiyuk-contract-san-francisco-49ers/
 
