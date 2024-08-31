@@ -1,3 +1,7 @@
+**Palace sign Chelsea's Chalobah on season-long loan deal**\
+`Trevoh Chalobah has joined Crystal Palace from Chelsea on a season-long loan deal.`\
+https://nytimes.com/athletic/5735686/2024/08/31/trevoh-chalobah-crystal-palace-loan-chelsea-transfers/
+
 **Betis sign Tottenham's Giovani Lo Celso on four-year deal**\
 `Real Betis have re-signed Giovani Lo Celso from Tottenham Hotspur on a permanent transfer.`\
 https://nytimes.com/athletic/5731130/2024/08/31/giovani-lo-celso-betis-transfer/
