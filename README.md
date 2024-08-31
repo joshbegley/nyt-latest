@@ -1,3 +1,7 @@
+**'It’s been a ton of fun': Jesse Winker's buy-in makes him big part of the Mets**\
+`As the Mets continue to play games that carry more and more meaning each day, Winker keeps providing big hit after big hit.`\
+https://nytimes.com/athletic/5735587/2024/08/31/mets-jesse-winker-white-sox/
+
 **Inside Newcastle's ‘embarrassing’ transfer window: frustration, hurt and flirting with ‘carnage’**\
 `This is the story of Newcastle's summer window and how it ended lurched towards disaster before ending in deep frustration...`\
 https://nytimes.com/athletic/5731838/2024/08/31/inside-newcastle-summer-transfer-window-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5734008/2024/08/31/transfer-window-summer-2024/
 **Chelsea saw an opportunity in Sancho - if he hits heights again it will be well worth risk**\
 `Signing the Manchester United winger has its risks, but there are huge upsides`\
 https://nytimes.com/athletic/5734875/2024/08/31/jadon-sancho-chelsea-analysis/
-
-**Greenberg: Caitlin Clark and the Fever are rising, while Angel Reese and the Sky are falling**\
-`The Rookie of the Year award matters less than whether these stars can take their teams to the postseason.`\
-https://nytimes.com/athletic/5735473/2024/08/31/caitlin-clark-fever-angel-reese-sky-wnba-playoffs/
 
