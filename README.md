@@ -1,3 +1,7 @@
+**F1 Italian GP preview: Verstappen’s struggles hand McLaren a big chance at Monza**\
+`As Monza prepares to close out the European leg of the F1 season, here are the storylines to watch for in the Italian Grand Prix.`\
+https://nytimes.com/athletic/5736180/2024/08/31/f1-italian-gp-preview-norris-verstappen-mclaren-red-bull/
+
 **NCAA blocks Oklahoma State QR code helmet sticker**\
 `The NCAA ruled that the markers are unpermitted “advertising or commercial marks,” the school said in a statement released Saturday.`\
 https://nytimes.com/athletic/5736259/2024/08/31/oklahoma-state-qr-codes-ncaa-sdsu/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5735819/2024/08/31/pablo-lopez-twins-starter-playof
 **After Beating Alcaraz, a Dutch Player Keeps His ‘Lucky Charms’ Close**\
 `Botic van de Zandschulp’s career has had its ups and downs. But a pair of Manhattan financiers he knew as a boy in the Netherlands have become part of his “team.”`\
 https://nytimes.com/2024/08/31/nyregion/botic-van-de-zandschulp-us-open.html
-
-**Colts’ Granson to wear Guardian Cap in regular season**\
-`“At one point people thought seatbelts were f---ing stupid,” Granson told The Athletic on Thursday.`\
-https://nytimes.com/athletic/5735947/2024/08/31/colts-kylen-granson-guardian-cap/
 
