@@ -1,3 +1,11 @@
+**Penn State takeaways: What did new-look offense reveal in win at West Virginia?**\
+`With creativity, explosive plays and 457 total yards, it was clear this is a new and improved offense.`\
+https://nytimes.com/athletic/5736680/2024/08/31/penn-state-win-west-virginia-offense/
+
+**How Yankees’ Oswaldo Cabrera explained crucial pitch clock mistake in close loss**\
+`With a full count to lead off the ninth inning, Cabrera waited too long to get back into the batter's box.`\
+https://nytimes.com/athletic/5736671/2024/08/31/yankees-oswaldo-cabrera-pitch-clock-violation/
+
 **Emerson: This Georgia team has the key trait of the program's two recent national champions**\
 `Georgia has mastered the stranglehold-type game, where it’s close for a while, then the Bulldogs run away and the opponent wears out.`\
 https://nytimes.com/athletic/5736591/2024/08/31/georgia-football-national-championship-contender/
