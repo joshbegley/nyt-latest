@@ -1,4 +1,8 @@
-**Freshman Dylan Raiola shows he was worth the way for Nebraska**\
+**Ohio State takeaways: How much can be learned from blowout win over Akron?**\
+`The Buckeyes pulled away from Akron for a 52-6 win with superlatives from newcomers like Jeremiah Smith but a handful of issues to correct.`\
+https://nytimes.com/athletic/5736702/2024/08/31/ohio-state-akron-score-jeremiah-smith/
+
+**Freshman Dylan Raiola shows he was worth the wait for Nebraska**\
 `Raiola threw two touchdown passes in his first game for Nebraska, and now the Huskers can turn their focus to Colorado.`\
 https://nytimes.com/athletic/5736866/2024/08/31/nebraska-football-dylan-raiola-takeaways-colorado/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5736591/2024/08/31/georgia-football-national-champi
 **Product Integration**\
 `September, already? Chandi Deitmer and Matthew Stock’s puzzle tosses some math into the mix.`\
 https://nytimes.com/2024/08/31/crosswords/daily-puzzle-2024-09-01.html
-
-**Israel Says It Has Recovered More Bodies in Gaza**\
-`The Israeli military asked the public not to speculate, but many Israelis assumed the announcement referred to dead hostages. The news amplified calls for a cease-fire and hostage-release deal.`\
-https://nytimes.com/2024/08/31/world/middleeast/israel-gaza-bodies.html
 
