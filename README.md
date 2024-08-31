@@ -1,3 +1,7 @@
+**Betis sign Tottenham's Giovani Lo Celso on four-year deal**\
+`Real Betis have re-signed Giovani Lo Celso from Tottenham Hotspur on a permanent transfer.`\
+https://nytimes.com/athletic/5731130/2024/08/31/giovani-lo-celso-betis-transfer/
+
 **What We Know About the Polio Crisis in Gaza**\
 `Israel and Hamas have agreed to brief pauses in fighting so that humanitarian workers can begin an inoculation campaign.`\
 https://nytimes.com/2024/08/31/world/middleeast/gaza-polio-crisis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/31/nyregion/hilary-steinbaum-dry-challenge.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/08/31/crosswords/spelling-bee-forum.html
-
-**Dodgers lose Clayton Kershaw but win unlikely game over Arizona to expand lead**\
-`There are serious and existential questions for the Dodgers as they head toward October, even after an unlikely win.`\
-https://nytimes.com/athletic/5735613/2024/08/31/dodgers-clayton-kershaw-arizona/
 
