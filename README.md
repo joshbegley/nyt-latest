@@ -1,3 +1,7 @@
+**NFL Draft: Carson Beck, Malaki Starks look like top-10 picks in rout of Clemson**\
+`Georgia's biggest stars went off in a blowout win over Clemson. What's it all mean for those prospects' NFL hopes?`\
+https://nytimes.com/athletic/5736415/2024/08/31/nfl-draft-2025-malaki-starks-clemson/
+
 **Hvaldimir, a Celebrated ‘Spy’ Whale, Is Found Dead in Norway**\
 `The beluga whale, who was first spotted in 2019 wearing what looked like a camera harness, was seen floating in Norwegian waters on Saturday.`\
 https://nytimes.com/2024/08/31/world/europe/hvaldimir-spy-whale-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/31/us/politics/trump-harris-arlington-cemetery.html
 **Judge Dismisses Suit Seeking to Ban Smoking in Atlantic City Casinos**\
 `The judge said a loophole exempting casinos from a statewide ban on indoor smoking did not keep workers from pursuing employment in smoke-free environments.`\
 https://nytimes.com/2024/08/31/nyregion/indoor-smoking-casinos-atlantic-city-ruling.html
-
-**Arsenal's Rice apologises for "harsh" red card during Brighton draw**\
-`Declan Rice has apologised to his Arsenal team-mates and supporters for his red card in their 1-1 draw against Brighton &amp; Hove Albion, which he thought was a “harsh” sending off.`\
-https://nytimes.com/athletic/5736361/2024/08/31/arsenal-rice-red-card-brighton/
 
