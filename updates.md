@@ -1,3 +1,7 @@
+**Mercedes promotes Antonelli to replace Hamilton in 2025**\
+`The move to Mercedes' F1 team completes a rapid, hype-filled ascent for Antonelli, who turned 18 last weekend.`\
+https://nytimes.com/athletic/5729566/2024/08/31/f1-andrea-kimi-antonelli-mercedes/
+
 **A Roller Derby Team Becomes a Bastion of Resistance to a Transgender Ban**\
 `In New York’s Nassau County, the Roller Rebels have joined with civil rights lawyers to face down the Republican county executive, Bruce Blakeman.`\
 https://nytimes.com/2024/08/31/nyregion/roller-rebels-transgender-ban-long-island.html

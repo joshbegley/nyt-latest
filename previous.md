@@ -1,3 +1,7 @@
+**Mercedes promotes Antonelli to replace Hamilton in 2025**\
+`The move to Mercedes' F1 team completes a rapid, hype-filled ascent for Antonelli, who turned 18 last weekend.`\
+https://nytimes.com/athletic/5729566/2024/08/31/f1-andrea-kimi-antonelli-mercedes/
+
 **A Roller Derby Team Becomes a Bastion of Resistance to a Transgender Ban**\
 `In New York’s Nassau County, the Roller Rebels have joined with civil rights lawyers to face down the Republican county executive, Bruce Blakeman.`\
 https://nytimes.com/2024/08/31/nyregion/roller-rebels-transgender-ban-long-island.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5731004/2024/08/31/liverpool-transfer-window-federi
 **'It’s been a ton of fun': Jesse Winker's buy-in makes him big part of the Mets**\
 `As the Mets continue to play games that carry more and more meaning each day, Winker keeps providing big hit after big hit.`\
 https://nytimes.com/athletic/5735587/2024/08/31/mets-jesse-winker-white-sox/
-
-**Inside Newcastle's ‘embarrassing’ transfer window: frustration, hurt and flirting with ‘carnage’**\
-`This is the story of Newcastle's summer window and how it ended lurched towards disaster before ending in deep frustration...`\
-https://nytimes.com/athletic/5731838/2024/08/31/inside-newcastle-summer-transfer-window-2024/
 
