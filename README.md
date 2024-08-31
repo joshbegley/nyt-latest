@@ -1,5 +1,5 @@
 **Hiker Is Found Dead in Grand Canyon National Park**\
-`The 60-year-old from North Carolina was on a multiday backpacking trip. His death was at least the sixth reported inside the Arizona park this month.`\
+`The 60-year-old from North Carolina was on a multiday backpacking trip. His death was the sixth reported inside the Arizona park this month.`\
 https://nytimes.com/2024/08/31/us/grand-canyon-hiker-death.html
 
 **Why Karolina Muchova's textured, elegant tennis is huge for the WTA Tour**\
