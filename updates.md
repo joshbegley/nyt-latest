@@ -1,3 +1,7 @@
+**Caitlin Clark, Angel Reese break WNBA records in Fever's win over Sky**\
+`The Indiana Fever are now in sixth place in the WNBA standings with eight games left in the regular season. `\
+https://nytimes.com/athletic/5735145/2024/08/30/caitlin-clark-fever-wnba-record/
+
 **Freddie Freeman returns to Dodgers' lineup with his finger still broken, but mind reset**\
 `Freeman hit a two-run home run in his first at-bat Friday after missing three games.`\
 https://nytimes.com/athletic/5735393/2024/08/30/freddie-freeman-broken-finger-dodgers-lineup/

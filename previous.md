@@ -1,3 +1,7 @@
+**Caitlin Clark, Angel Reese break WNBA records in Fever's win over Sky**\
+`The Indiana Fever are now in sixth place in the WNBA standings with eight games left in the regular season. `\
+https://nytimes.com/athletic/5735145/2024/08/30/caitlin-clark-fever-wnba-record/
+
 **The Old Man?**\
 `Sam Ezersky’s themeless Saturday grid will get you going.`\
 https://nytimes.com/2024/08/30/crosswords/daily-puzzle-2024-08-31.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/30/us/politics/trump-rally-arlington.html
 **In a Robbie Williams Biopic, the Star Is a C.G.I. Monkey. That’s Right.**\
 `The director Michael Gracey hopes Americans will finally get the British hitmaker, who’s depicted warts, fur and all in “Better Man,” debuting at the Telluride Film Festival.`\
 https://nytimes.com/2024/08/30/movies/robbie-williams-biopic-better-man-monkey.html
-
-**Forever 'Johnny Hockey': Gaudreau's inspiring skill transcended his size**\
-`The 5-foot-7, 160-pound left winger touched and inspired an enormous number of lives.`\
-https://nytimes.com/athletic/5734785/2024/08/30/johnny-gaudreau-nhl-flames-blue-jackets-legacy/
 
