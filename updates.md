@@ -1,3 +1,15 @@
+**Transfer window roundtable: Debating the best, worst and most surprising deals of the summer**\
+`Our writers debate the winners and losers from a summer of feverish transfer business`\
+https://nytimes.com/athletic/5734008/2024/08/31/transfer-window-summer-2024/
+
+**Chelsea saw an opportunity in Sancho - if he hits heights again it will be well worth risk**\
+`Signing the Manchester United winger has its risks, but there are huge upsides`\
+https://nytimes.com/athletic/5734875/2024/08/31/jadon-sancho-chelsea-analysis/
+
+**Greenberg: Caitlin Clark and the Fever are rising, while Angel Reese and the Sky are falling**\
+`The Rookie of the Year award matters less than whether these stars can take their teams to the postseason.`\
+https://nytimes.com/athletic/5735473/2024/08/31/caitlin-clark-fever-angel-reese-sky-wnba-playoffs/
+
 **The Angry East**\
 `As east Germans vote, a region in decline is searching for answers on the political extremes.`\
 https://nytimes.com/2024/08/31/world/europe/germany-saxony-elections.html
