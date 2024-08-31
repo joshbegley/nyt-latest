@@ -1,3 +1,7 @@
+**Detroit Lions fan survey: Confidence in coaching staff, best offseason moves, more**\
+`The 2024 NFL season is almost here, and Detroit Lions football soon will be on your screens again.`\
+https://nytimes.com/athletic/5736421/2024/08/31/detroit-lions-fan-survey-questions-2024/
+
 **After getting routed by Georgia, it's clear Clemson and Dabo Swinney have lost their way**\
 `The bleak reality for the Tigers is that this just might be Clemson’s new norm.`\
 https://nytimes.com/athletic/5736777/2024/08/31/clemson-georgia-dabo-swinney-lost-way/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/31/us/san-diego-superintendent-fired-misconduct.html
 **Dallas Police Officer ‘Executed’ in Premeditated Attack, Officials Say**\
 `Two other officers were also shot, and one of them remains hospitalized. After a pursuit, the suspect was killed by the police, authorities said.`\
 https://nytimes.com/2024/08/31/us/dallas-police-office-darron-burks-killed.html
-
-**3 Missing After Small Plane Crashes Into Oregon Townhouses**\
-`A Cessna crashed into a row of townhouses in Fairview, Ore., on Saturday, sparking a large fire, officials said.`\
-https://nytimes.com/2024/08/31/us/plane-crash-fairview-oregon.html
 
