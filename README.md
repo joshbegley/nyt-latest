@@ -1,3 +1,11 @@
+**Darren Baker, son of Dusty, called up by Nationals**\
+`The younger Baker first became known nationally in 2002 when he was scooped up at home plate during Game 5 of the 2002 World Series.`\
+https://nytimes.com/athletic/5736252/2024/08/31/darren-baker-dusty-son-nationals-prospect/
+
+**7 Killed in Mississippi Bus Crash, Including a Pair of Siblings**\
+`The passenger bus left the road about 40 miles west of Jackson and overturned early on Saturday, officials said.`\
+https://nytimes.com/2024/08/31/us/mississippi-bus-crash-warren-county.html
+
 **Hiker Is Found Dead in Grand Canyon National Park**\
 `The 60-year-old from North Carolina was on a multiday backpacking trip. His death was the sixth reported inside the Arizona park this month.`\
 https://nytimes.com/2024/08/31/us/grand-canyon-hiker-death.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5735947/2024/08/31/colts-kylen-granson-guardian-cap
 **How the 49ers paid Brandon Aiyuk — while saving room for Trent Williams and Brock Purdy**\
 `The 49ers used guaranteed money to deliver the cash Aiyuk sought while offering flexibility to pay their other stars.`\
 https://nytimes.com/athletic/5735021/2024/08/31/brandon-aiyuk-contract-san-francisco-49ers/
-
-**Maybe We Are Asking Presidential Candidates the Wrong Questions**\
-`Harris needs to talk about her theory of the presidency, not relitigate her campaign controversies.`\
-https://nytimes.com/2024/08/31/opinion/harris-cnn-interview-president.html
-
-**Island Vibes Zucchini Bread**\
-`It’s not a regular zucchini bread. It’s a cool zucchini bread (with fresh pineapple and flaked coconut).`\
-https://nytimes.com/2024/08/31/dining/island-vibes-zucchini-bread.html
 
