@@ -1,3 +1,7 @@
+**'It’s been a ton of fun': Jesse Winker's buy-in makes him big part of the Mets**\
+`As the Mets continue to play games that carry more and more meaning each day, Winker keeps providing big hit after big hit.`\
+https://nytimes.com/athletic/5735587/2024/08/31/mets-jesse-winker-white-sox/
+
 **Inside Newcastle's ‘embarrassing’ transfer window: frustration, hurt and flirting with ‘carnage’**\
 `This is the story of Newcastle's summer window and how it ended lurched towards disaster before ending in deep frustration...`\
 https://nytimes.com/athletic/5731838/2024/08/31/inside-newcastle-summer-transfer-window-2024/
