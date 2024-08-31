@@ -1,3 +1,7 @@
+**Former Miss Teen USA Contestant Rebukes Vance for Using Her Flub to Attack Harris**\
+`Caite Upton wrote on social media that “online bullying needs to stop,” after JD Vance posted a clip of her mangled answer from the 2007 Miss Teen USA pageant to mock Kamala Harris.`\
+https://nytimes.com/2024/08/31/us/politics/vance-harris-caite-upton.html
+
 **Penn State takeaways: What did new-look offense reveal in win at West Virginia?**\
 `With creativity, explosive plays and 457 total yards, it was clear this is a new and improved offense.`\
 https://nytimes.com/athletic/5736680/2024/08/31/penn-state-win-west-virginia-offense/
@@ -12,7 +16,7 @@ https://nytimes.com/2024/08/31/crosswords/daily-puzzle-2024-09-01.html
 
 **Israel Says It Has Recovered More Bodies in Gaza**\
 `The Israeli military asked the public not to speculate, but many Israelis assumed the announcement referred to dead hostages. The news amplified calls for a cease-fire and hostage-release deal.`\
-https://nytimes.com/2024/08/31/world/middleeast/israel-gaza-hostage-bodies.html
+https://nytimes.com/2024/08/31/world/middleeast/israel-gaza-bodies.html
 
 **San Diego School Superintendent Is Fired After Misconduct Investigation**\
 `Lamont Jackson, who led California’s second-largest school district, engaged in “unwelcome, sex-based behavior” toward two female employees, the investigation found.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5736671/2024/08/31/yankees-oswaldo-cabrera-pitch-cl
 **Athletic Bilbao's Williams on future: "God knows what will happen"**\
 `Nico Williams says that he is very happy at Athletic Bilbao but &#8220;God knows what will happen in the future&#8221;.`\
 https://nytimes.com/athletic/5736614/2024/08/31/nico-williams-future-transfer/
-
-**Fatman Scoop, a D.J. and Rapper, Dies**\
-`He was at the Hamden Town Center Park in Hamden, Conn., when he collapsed onstage on Friday night.`\
-https://nytimes.com/2024/08/31/arts/music/fatman-scoop-rapper-dead.html
 
