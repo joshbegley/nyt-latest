@@ -1,3 +1,27 @@
+**A Roller Derby Team Becomes a Bastion of Resistance to a Transgender Ban**\
+`In New York’s Nassau County, the Roller Rebels have joined with civil rights lawyers to face down the Republican county executive, Bruce Blakeman.`\
+https://nytimes.com/2024/08/31/nyregion/roller-rebels-transgender-ban-long-island.html
+
+**New York City’s Piers, Once Abandoned, Are Now Full of Life**\
+`In each of New York City’s boroughs, decrepit piers that once fed city industries have been brought back to life. Out over the water, they offer beauty, fun and respite from the city’s buzz.`\
+https://nytimes.com/2024/08/31/nyregion/summer-piers-nyc.html
+
+**Corrections: Aug. 31, 2024**\
+`Corrections that appeared in print on Saturday, Aug. 31, 2024.`\
+https://nytimes.com/2024/08/31/pageoneplus/corrections-aug-31-2024.html
+
+**How a Sober-ish Writer Spends Her Sundays**\
+`Hilary Sheinbaum, who wrote “The Dry Challenge,” spends her Sundays running, gossiping over tennis and not (really) drinking alcohol.`\
+https://nytimes.com/2024/08/31/nyregion/hilary-steinbaum-dry-challenge.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/31/crosswords/spelling-bee-forum.html
+
+**Dodgers lose Clayton Kershaw but win unlikely game over Arizona to expand lead**\
+`There are serious and existential questions for the Dodgers as they head toward October, even after an unlikely win.`\
+https://nytimes.com/athletic/5735613/2024/08/31/dodgers-clayton-kershaw-arizona/
+
 **Dodgers lose Clayton Kershaw, but cling to win unlikely game over Arizona to expand lead**\
 `There are serious and existential questions for the Dodgers as they head toward October, even after an unlikely win.`\
 https://nytimes.com/athletic/5735613/2024/08/31/dodgers-clayton-kershaw-arizona/

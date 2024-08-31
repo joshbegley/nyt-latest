@@ -1,4 +1,24 @@
-**Dodgers lose Clayton Kershaw, but cling to win unlikely game over Arizona to expand lead**\
+**A Roller Derby Team Becomes a Bastion of Resistance to a Transgender Ban**\
+`In New York’s Nassau County, the Roller Rebels have joined with civil rights lawyers to face down the Republican county executive, Bruce Blakeman.`\
+https://nytimes.com/2024/08/31/nyregion/roller-rebels-transgender-ban-long-island.html
+
+**New York City’s Piers, Once Abandoned, Are Now Full of Life**\
+`In each of New York City’s boroughs, decrepit piers that once fed city industries have been brought back to life. Out over the water, they offer beauty, fun and respite from the city’s buzz.`\
+https://nytimes.com/2024/08/31/nyregion/summer-piers-nyc.html
+
+**Corrections: Aug. 31, 2024**\
+`Corrections that appeared in print on Saturday, Aug. 31, 2024.`\
+https://nytimes.com/2024/08/31/pageoneplus/corrections-aug-31-2024.html
+
+**How a Sober-ish Writer Spends Her Sundays**\
+`Hilary Sheinbaum, who wrote “The Dry Challenge,” spends her Sundays running, gossiping over tennis and not (really) drinking alcohol.`\
+https://nytimes.com/2024/08/31/nyregion/hilary-steinbaum-dry-challenge.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/31/crosswords/spelling-bee-forum.html
+
+**Dodgers lose Clayton Kershaw but win unlikely game over Arizona to expand lead**\
 `There are serious and existential questions for the Dodgers as they head toward October, even after an unlikely win.`\
 https://nytimes.com/athletic/5735613/2024/08/31/dodgers-clayton-kershaw-arizona/
 
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5735587/2024/08/31/mets-jesse-winker-white-sox/
 **Inside Newcastle's ‘embarrassing’ transfer window: frustration, hurt and flirting with ‘carnage’**\
 `This is the story of Newcastle's summer window and how it ended lurched towards disaster before ending in deep frustration...`\
 https://nytimes.com/athletic/5731838/2024/08/31/inside-newcastle-summer-transfer-window-2024/
-
-**Ohtani makes MLB history with 43-43 season**\
-`Ohtani was already the first Dodger to join the 40-40 club, achieving the feat in a record 126 games.`\
-https://nytimes.com/athletic/5735565/2024/08/31/shohei-ohtani-dodgers-43-season/
-
-**Astros flirt with yet another no-hitter, happily take walk-off win instead**\
-`Framber Valdez didn't allow a hit in seven innings of work, then watched Jose Altuve deliver a walk-off victory over the Royals.`\
-https://nytimes.com/athletic/5735549/2024/08/31/astros-framber-valdez-near-no-hitter/
-
-**Prosecutors Seek Simpler Path in Election Case After Immunity Ruling, as Trump Seeks Delays**\
-`In a court filing, prosecutors suggested their revisions would let them steer clear of the Supreme Court ruling. Donald Trump’s lawyers made clear they would continue broad attacks on the case.`\
-https://nytimes.com/2024/08/31/us/politics/trump-election-case-immunity.html
-
-**Badgers survive scare against Western Michigan: Wisconsin football opener instant takeaways**\
-`Progress? Wisconsin's season-opening 28-14 victory was a win nonetheless. And it avoided a disastrous start to the season.`\
-https://nytimes.com/athletic/5734996/2024/08/31/wisconsin-badgers-win-western-michigan/
-
-**Tottenham's transfer window: Promise for the future, but are they short now?**\
-`The arrivals of Solanke, Bergvall, Odobert and Gray show promise, but a lack of defensive cover could become an issue`\
-https://nytimes.com/athletic/5726113/2024/08/31/tottenham-transfer-window-solanke-gray/
 
