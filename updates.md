@@ -1,3 +1,7 @@
+**F1 Italian GP preview: Verstappen’s struggles hand McLaren a big chance at Monza**\
+`As Monza prepares to close out the European leg of the F1 season, here are the storylines to watch for in the Italian Grand Prix.`\
+https://nytimes.com/athletic/5736180/2024/08/31/f1-italian-gp-preview-norris-verstappen-mclaren-red-bull/
+
 **NCAA blocks Oklahoma State QR code helmet sticker**\
 `The NCAA ruled that the markers are unpermitted “advertising or commercial marks,” the school said in a statement released Saturday.`\
 https://nytimes.com/athletic/5736259/2024/08/31/oklahoma-state-qr-codes-ncaa-sdsu/
