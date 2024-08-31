@@ -2,6 +2,10 @@
 `This series of floods didn’t force us to leave. But the next ones might.`\
 https://nytimes.com/2024/08/31/opinion/flash-floods-arizona-utah-climate-change.html
 
+**Inside Forest's transfer window: More options and a little less chaos — but no new striker**\
+`Forest failed in bids to bring in a striker but Nuno Espirito Santo now has strength in depth in most areas of his squad`\
+https://nytimes.com/athletic/5735351/2024/08/31/nottingham-forest-transfer-window-2024/
+
 **Here’s Why We Shouldn’t Demean Trump Voters**\
 `Educated liberals often view the conservative working class with a whiff of condescension that is both unfair and counterproductive.`\
 https://nytimes.com/2024/08/31/opinion/trump-voters-liberal-civil.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/31/world/israel-west-bank.html
 **A Playlist to Remember**\
 `Songs can help demarcate this chapter of your life: It’s a way to mark time, to keep one period of time from bleeding indistinctly into the next.`\
 https://nytimes.com/2024/08/31/briefing/a-playlist-to-remember.html
-
-**Vikings mailbag: T.J. Hockenson's timeline and why they cut Jaren Hall, Kene Nwangwu**\
-`Our Vikings reporter takes your questions on Hockenson's return, some surprising cuts and how different Brian Flores' defense could look.`\
-https://nytimes.com/athletic/5734487/2024/08/31/vikings-mailbag-tj-hockenson-jaren-hall-kene-nwangwu/
 

@@ -1,3 +1,7 @@
+**Inside Forest's transfer window: More options and a little less chaos — but no new striker**\
+`Forest failed in bids to bring in a striker but Nuno Espirito Santo now has strength in depth in most areas of his squad`\
+https://nytimes.com/athletic/5735351/2024/08/31/nottingham-forest-transfer-window-2024/
+
 **When the Flash Flood Comes With Godlike Velocity, Why Do I Stay and Watch?**\
 `This series of floods didn’t force us to leave. But the next ones might.`\
 https://nytimes.com/2024/08/31/opinion/flash-floods-arizona-utah-climate-change.html
