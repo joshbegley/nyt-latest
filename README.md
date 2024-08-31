@@ -1,3 +1,7 @@
+**Mahomes: Taylor Swift has drawn up plays**\
+`"She's really interested in football, and she asks a lot of great questions. Started drawing up plays. We might have to put one in."`\
+https://nytimes.com/athletic/5735903/2024/08/31/taylor-swift-chiefs-play-calls/
+
 **West Ham's Kurt Zouma completes Al Orobah loan move**\
 `Kurt Zouma has joined Saudi Arabian club Al Orobah on loan from West Ham United.`\
 https://nytimes.com/athletic/5695689/2024/08/31/kurt-zouma-west-ham-transfers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5701128/2024/08/31/college-football-playoff-project
 **Novak Djokovic eliminated from U.S. Open 24 hours after Carlos Alcaraz**\
 `The 24-time Grand Slam champion succumbed to a display from the Australian that was first dominant, and then gritty.`\
 https://nytimes.com/athletic/5735483/2024/08/31/novak-djokovic-us-open-alexei-popyrin-result/
-
-**Toto Wolff took 'five minutes' to decide on Antonelli as Hamilton’s F1 replacement**\
-`The Mercedes boss said that the Kimi Antonelli and George Russell lineup is one he had always wanted. `\
-https://nytimes.com/athletic/5735779/2024/08/31/toto-wolff-max-verstappen-kimi-antonelli-mercedes-f1/
 
