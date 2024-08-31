@@ -1,3 +1,7 @@
+**How Brazil’s Experiment Fighting Fake News Led to a Ban on X**\
+`To combat disinformation, Brazil gave one judge broad power to police the internet. Now, after he blocked X, some are wondering whether that was a good idea.`\
+https://nytimes.com/2024/08/31/world/americas/brazil-x-ban-free-speech.html
+
 **Trump Signals Support for Marijuana Legalization in Florida**\
 `“Whether people like it or not, this will happen,” former President Donald J. Trump said on Saturday. Gov. Ron DeSantis opposes the measure.`\
 https://nytimes.com/2024/08/31/us/elections/trump-marijuana-legalization-florida.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5736078/2024/08/31/james-milner-brighton-injuries/
 **As Ukraine Mourns a Pilot’s Death, Jet’s Crash Is Still a Mystery**\
 `In a reversal, two senior U.S. military officials say the cause of the F-16’s crash was probably not friendly fire.`\
 https://nytimes.com/2024/08/31/world/europe/ukraine-f16-pilot-crash.html
-
-**Arthur J. Gregg, Trailblazing Army Officer, Is Dead at 96**\
-`The first Black officer to achieve the rank of lieutenant general, he lived to see an Army post in Virginia renamed in his honor.`\
-https://nytimes.com/2024/08/31/us/arthur-j-gregg-dead.html
 
