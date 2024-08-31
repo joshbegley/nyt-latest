@@ -1,3 +1,7 @@
+**Georgia smothers Clemson: Has anything changed for either program?**\
+`Georgia took a while to get going but flexed its muscles in the second half with a dominating win over Clemson. `\
+https://nytimes.com/athletic/5736329/2024/08/31/georgia-clemson-dabo-swinney-carson-beck/
+
 **Criticizing Trump, Harris Says Arlington Is ‘Not a Place for Politics’**\
 `Donald J. Trump’s campaign filmed him at Arlington National Cemetery on Monday, which led to a confrontation between one of his political aides and a cemetery official.`\
 https://nytimes.com/2024/08/31/us/politics/trump-harris-arlington-cemetery.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5736259/2024/08/31/oklahoma-state-qr-codes-ncaa-sds
 **Darren Baker, son of Dusty, called up by Nationals**\
 `The younger Baker first became known nationally in 2002 when he was scooped up at home plate during Game 5 of the 2002 World Series.`\
 https://nytimes.com/athletic/5736252/2024/08/31/darren-baker-dusty-son-nationals-prospect/
-
-**7 Killed in Mississippi Bus Crash, Including a Pair of Siblings**\
-`The passenger bus left the road about 40 miles west of Jackson and overturned early on Saturday, officials said.`\
-https://nytimes.com/2024/08/31/us/mississippi-bus-crash-warren-county.html
 

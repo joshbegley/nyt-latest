@@ -1,3 +1,7 @@
+**Georgia smothers Clemson: Has anything changed for either program?**\
+`Georgia took a while to get going but flexed its muscles in the second half with a dominating win over Clemson. `\
+https://nytimes.com/athletic/5736329/2024/08/31/georgia-clemson-dabo-swinney-carson-beck/
+
 **Criticizing Trump, Harris Says Arlington Is ‘Not a Place for Politics’**\
 `Donald J. Trump’s campaign filmed him at Arlington National Cemetery on Monday, which led to a confrontation between one of his political aides and a cemetery official.`\
 https://nytimes.com/2024/08/31/us/politics/trump-harris-arlington-cemetery.html
