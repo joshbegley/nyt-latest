@@ -1,3 +1,7 @@
+**After Beating Alcaraz, a Dutch Player Keeps His ‘Lucky Charms’ Close**\
+`Botic van de Zandschulp’s career has had its ups and downs. But a pair of Manhattan financiers he knew as a boy in the Netherlands have become part of his “team.”`\
+https://nytimes.com/2024/08/31/nyregion/botic-van-de-zandschulp-us-open.html
+
 **Colts’ Granson to wear Guardian Cap in regular season**\
 `“At one point people thought seatbelts were f---ing stupid,” Granson told The Athletic on Thursday.`\
 https://nytimes.com/athletic/5735947/2024/08/31/colts-kylen-granson-guardian-cap/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5735547/2024/08/31/novak-djokovic-season-results-20
 **Mahomes: Taylor Swift has drawn up plays**\
 `"She's really interested in football, and she asks a lot of great questions. Started drawing up plays. We might have to put one in."`\
 https://nytimes.com/athletic/5735903/2024/08/31/taylor-swift-chiefs-play-calls/
-
-**West Ham's Kurt Zouma completes Al Orobah loan move**\
-`Kurt Zouma has joined Saudi Arabian club Al Orobah on loan from West Ham United.`\
-https://nytimes.com/athletic/5695689/2024/08/31/kurt-zouma-west-ham-transfers/
 
