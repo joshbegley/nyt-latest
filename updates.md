@@ -1,3 +1,7 @@
+**Reynaldo López wins again, Orlando Arcia homers twice for resurgent Braves offense**\
+`Atlanta's back-to-back jacks in the third inning took some of the gusto out of the leather-lunged Phillies fans at Citizens Bank Park.`\
+https://nytimes.com/athletic/5735452/2024/08/30/braves-reynaldo-lopez-orlando-arcia-phillies/
+
 **The Angry East**\
 `As east Germans vote, a region in decline is searching for answers on the political extremes.`\
 https://nytimes.com/2024/08/31/world/europe/germany-saxony-elections.html
