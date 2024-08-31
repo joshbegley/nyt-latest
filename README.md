@@ -1,3 +1,11 @@
+**Criticizing Trump, Harris Says Arlington Is ‘Not a Place for Politics’**\
+`Donald J. Trump’s campaign filmed him at Arlington National Cemetery on Monday, which led to a confrontation between one of his political aides and a cemetery official.`\
+https://nytimes.com/2024/08/31/us/politics/trump-harris-arlington-cemetery.html
+
+**Judge Dismisses Suit Seeking to Ban Smoking in Atlantic City Casinos**\
+`The judge said a loophole exempting casinos from a statewide ban on indoor smoking did not keep workers from pursuing employment in smoke-free environments.`\
+https://nytimes.com/2024/08/31/nyregion/indoor-smoking-casinos-atlantic-city-ruling.html
+
 **Arsenal's Rice apologises for "harsh" red card during Brighton draw**\
 `Declan Rice has apologised to his Arsenal team-mates and supporters for his red card in their 1-1 draw against Brighton &amp; Hove Albion, which he thought was a “harsh” sending off.`\
 https://nytimes.com/athletic/5736361/2024/08/31/arsenal-rice-red-card-brighton/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5736252/2024/08/31/darren-baker-dusty-son-nationals
 **7 Killed in Mississippi Bus Crash, Including a Pair of Siblings**\
 `The passenger bus left the road about 40 miles west of Jackson and overturned early on Saturday, officials said.`\
 https://nytimes.com/2024/08/31/us/mississippi-bus-crash-warren-county.html
-
-**Hiker Is Found Dead in Grand Canyon National Park**\
-`The 60-year-old from North Carolina was on a multiday backpacking trip. His death was the sixth reported inside the Arizona park this month.`\
-https://nytimes.com/2024/08/31/us/grand-canyon-hiker-death.html
-
-**Why Karolina Muchova's textured, elegant tennis is huge for the WTA Tour**\
-`Returning from a serious wrist injury, last year's U.S. Open semifinalist is reminding the tennis world of the beauty of her game.`\
-https://nytimes.com/athletic/5733246/2024/08/31/karolina-muchova-us-open-comeback-osaka-womens-tennis/
 
