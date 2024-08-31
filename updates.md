@@ -1,3 +1,7 @@
+**Pablo López is rolling again, just when the Twins need their No. 1 starter the most**\
+`It's a similar story to last season, when López bounced back from an early slump to dominate down the stretch and in the playoffs.`\
+https://nytimes.com/athletic/5735819/2024/08/31/pablo-lopez-twins-starter-playoffs/
+
 **After Beating Alcaraz, a Dutch Player Keeps His ‘Lucky Charms’ Close**\
 `Botic van de Zandschulp’s career has had its ups and downs. But a pair of Manhattan financiers he knew as a boy in the Netherlands have become part of his “team.”`\
 https://nytimes.com/2024/08/31/nyregion/botic-van-de-zandschulp-us-open.html
