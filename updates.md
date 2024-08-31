@@ -1,4 +1,8 @@
 **Aryna Sabalenka starts U.S. Open match after midnight in first year of late night policy**\
+`The U.S. Open has a policy to mitigate matches finishing late. It didn't stop a 12:08 a.m. walk-on for the second seed.`\
+https://nytimes.com/athletic/5735794/2024/08/31/sabalenka-us-open-midnight-latest-start-history/
+
+**Aryna Sabalenka starts U.S. Open match after midnight in first year of late night policy**\
 `NEW YORK — How does a U.`\
 https://nytimes.com/athletic/5735794/2024/08/31/sabalenka-us-open-midnight-latest-start-history/
 
