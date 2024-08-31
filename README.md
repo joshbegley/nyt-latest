@@ -1,3 +1,7 @@
+**Jordan Walker is back with the Cardinals: 'He will play every day'**\
+`After a strong month with Triple-A Memphis, the Cardinals plan to give Walker consistent playing time at the big-league level.`\
+https://nytimes.com/athletic/5735154/2024/08/30/jordan-walker-cardinals/
+
 **Toney completes transfer to Al Ahli from Brentford**\
 `Al Ahli have completed the signing of Ivan Toney from Brentford for a fee of €40million (£33.`\
 https://nytimes.com/athletic/5733585/2024/08/30/ivan-toney-al-ahli-transfer-done/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/30/us/pennsylvania-mail-in-ballots.html
 **Frances Tiafoe knocks Ben Shelton out of U.S. Open in five-set thriller**\
 `NEW YORK — There are tennis matches at the U.`\
 https://nytimes.com/athletic/5735200/2024/08/30/tiafoe-shelton-us-open-result/
-
-**The Best Books About Politics (According to You)**\
-`Here’s what we’re turning to for clarity and perspective on our current political moment.`\
-https://nytimes.com/2024/08/30/us/politics/political-books.html
 
