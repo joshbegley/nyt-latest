@@ -1,3 +1,7 @@
+**Inside Newcastle's ‘embarrassing’ transfer window: frustration, hurt and flirting with ‘carnage’**\
+`This is the story of Newcastle's summer window and how it ended lurched towards disaster before ending in deep frustration...`\
+https://nytimes.com/athletic/5731838/2024/08/31/inside-newcastle-summer-transfer-window-2024/
+
 **Ohtani makes MLB history with 43-43 season**\
 `Ohtani was already the first Dodger to join the 40-40 club, achieving the feat in a record 126 games.`\
 https://nytimes.com/athletic/5735565/2024/08/31/shohei-ohtani-dodgers-43-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5734875/2024/08/31/jadon-sancho-chelsea-analysis/
 **Greenberg: Caitlin Clark and the Fever are rising, while Angel Reese and the Sky are falling**\
 `The Rookie of the Year award matters less than whether these stars can take their teams to the postseason.`\
 https://nytimes.com/athletic/5735473/2024/08/31/caitlin-clark-fever-angel-reese-sky-wnba-playoffs/
-
-**The Angry East**\
-`As east Germans vote, a region in decline is searching for answers on the political extremes.`\
-https://nytimes.com/2024/08/31/world/europe/germany-saxony-elections.html
 

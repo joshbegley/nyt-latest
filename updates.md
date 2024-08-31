@@ -1,3 +1,7 @@
+**Inside Newcastle's ‘embarrassing’ transfer window: frustration, hurt and flirting with ‘carnage’**\
+`This is the story of Newcastle's summer window and how it ended lurched towards disaster before ending in deep frustration...`\
+https://nytimes.com/athletic/5731838/2024/08/31/inside-newcastle-summer-transfer-window-2024/
+
 **Ohtani makes MLB history with 43-43 season**\
 `Ohtani was already the first Dodger to join the 40-40 club, achieving the feat in a record 126 games.`\
 https://nytimes.com/athletic/5735565/2024/08/31/shohei-ohtani-dodgers-43-season/
