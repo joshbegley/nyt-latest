@@ -1,3 +1,7 @@
+**Arsenal's Rice apologises for "harsh" red card during Brighton draw**\
+`Declan Rice has apologised to his Arsenal team-mates and supporters for his red card in their 1-1 draw against Brighton &amp; Hove Albion, which he thought was a “harsh” sending off.`\
+https://nytimes.com/athletic/5736361/2024/08/31/arsenal-rice-red-card-brighton/
+
 **With X Blocked, Brazilians Find New Homes for Their Thoughts**\
 `The platform went dark across Brazil on Saturday, sending online commentators to new digital town squares.`\
 https://nytimes.com/2024/08/31/technology/x-blocked-brazil-reactions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/31/us/grand-canyon-hiker-death.html
 **Why Karolina Muchova's textured, elegant tennis is huge for the WTA Tour**\
 `Returning from a serious wrist injury, last year's U.S. Open semifinalist is reminding the tennis world of the beauty of her game.`\
 https://nytimes.com/athletic/5733246/2024/08/31/karolina-muchova-us-open-comeback-osaka-womens-tennis/
-
-**How Brazil’s Experiment Fighting Fake News Led to a Ban on X**\
-`To combat disinformation, Brazil gave one judge broad power to police the internet. Now, after he blocked X, some are wondering whether that was a good idea.`\
-https://nytimes.com/2024/08/31/world/americas/brazil-x-ban-free-speech.html
 
