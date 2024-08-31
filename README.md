@@ -1,3 +1,7 @@
+**Tigers' Casey Mize still searching for the right mix in return from injured list**\
+`Mize has now started 56 games over four seasons in the big leagues and has a 4.31 career ERA.`\
+https://nytimes.com/athletic/5735433/2024/08/30/detroit-tigers-casey-mize/
+
 **Caitlin Clark, Angel Reese break WNBA records in Fever's win over Sky**\
 `The Indiana Fever are now in sixth place in the WNBA standings with eight games left in the regular season. `\
 https://nytimes.com/athletic/5735145/2024/08/30/caitlin-clark-fever-wnba-record/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/30/us/politics/trump-taylor-swift-fans-endorsement.h
 **A Defensive Trump Tries to Limit the Fallout of the Arlington Clash**\
 `At two events on Friday, the former president insisted that he had not been seeking publicity at the military cemetery on Monday and defended his campaign’s actions.`\
 https://nytimes.com/2024/08/30/us/politics/trump-rally-arlington.html
-
-**In a Robbie Williams Biopic, the Star Is a C.G.I. Monkey. That’s Right.**\
-`The director Michael Gracey hopes Americans will finally get the British hitmaker, who’s depicted warts, fur and all in “Better Man,” debuting at the Telluride Film Festival.`\
-https://nytimes.com/2024/08/30/movies/robbie-williams-biopic-better-man-monkey.html
 
