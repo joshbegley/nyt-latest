@@ -1,3 +1,7 @@
+**Inside West Ham's transfer window: An unprecedented summer as Steidten asserts authority**\
+`The technical director oversaw the arrival of nine senior players and the appointment of Julen Lopetegui over a frantic closed season`\
+https://nytimes.com/athletic/5704725/2024/08/31/inside-west-hams-transfer-window-an-unprecedented-summer-as-steidten-asserts-authority/
+
 **Transfer window roundtable: Debating the best, worst and most surprising deals of the summer**\
 `Our writers debate the winners and losers from a summer of feverish transfer business`\
 https://nytimes.com/athletic/5734008/2024/08/31/transfer-window-summer-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/31/business/malls-experiences-hasbro-nerf.html
 **Quotation of the Day: ‘Deepfake Musk’ Stars in Scams Across the Internet**\
 `Quotation of the Day for Saturday, August 31, 2024.`\
 https://nytimes.com/2024/08/31/pageoneplus/quotation-of-the-day-deepfake-musk-stars-in-scams-across-the-internet.html
-
-**Saturday's MLB odds, projections: Best bets for pitching matchups, every game**\
-`See pitching matchups, playoff projections, win projections and more for Saturday's MLB games.`\
-https://nytimes.com/athletic/5734976/2024/08/31/mlb-odds-best-bets-projections-august-31/
 
