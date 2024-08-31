@@ -1,3 +1,7 @@
+**Cubs stay hot, keep pace in wild-card race as short bullpen pushes through**\
+`“We’ve never stopped competing,” Cubs manager Craig Counsell said of his team, which faces long odds to make the playoffs but won't quit.`\
+https://nytimes.com/athletic/5735448/2024/08/30/cubs-wild-card-race/
+
 **Tigers' Casey Mize still searching for the right mix in return from injured list**\
 `Mize has now started 56 games over four seasons in the big leagues and has a 4.31 career ERA.`\
 https://nytimes.com/athletic/5735433/2024/08/30/detroit-tigers-casey-mize/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5733585/2024/08/30/ivan-toney-al-ahli-transfer-done
 **After Trump Claimed Fake Taylor Swift Endorsement, Her Fans Make Real Push for Harris**\
 `Thousands of the musician’s ardent followers are working to get out the vote and raise money for Vice President Kamala Harris’s campaign.`\
 https://nytimes.com/2024/08/30/us/politics/trump-taylor-swift-fans-endorsement.html
-
-**A Defensive Trump Tries to Limit the Fallout of the Arlington Clash**\
-`At two events on Friday, the former president insisted that he had not been seeking publicity at the military cemetery on Monday and defended his campaign’s actions.`\
-https://nytimes.com/2024/08/30/us/politics/trump-rally-arlington.html
 
