@@ -1,3 +1,7 @@
+**How Yankees’ Oswaldo Cabrera explained crucial pitch clock mistake in close loss**\
+`With a full count to lead off the ninth inning, Cabrera waited too long to get back into the batter's box.`\
+https://nytimes.com/athletic/5736671/2024/08/31/how-yankees-oswaldo-cabrera-explained-crucial-pitch-clock-mistake-in-close-loss/
+
 **Athletic Bilbao's Williams on future: "God knows what will happen"**\
 `Nico Williams says that he is very happy at Athletic Bilbao but &#8220;God knows what will happen in the future&#8221;.`\
 https://nytimes.com/athletic/5736614/2024/08/31/nico-williams-future-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5736392/2024/08/31/barcelona-7-valladolid-0-raphinh
 **Leicester boss Cooper bemoans standard of refereeing in Premier League**\
 `Leicester City manager Steve Cooper believes the standard of refereeing in the Premier League is ‘behind the curve’ of the standard of football.`\
 https://nytimes.com/athletic/5736394/2024/08/31/leicester-cooper-referee-premier-league/
-
-**BYU DC will not coach opener after undergoing heart procedure 2 days ago**\
-`Hill went through Thursday’s lifting session with the team then went to the hospital due to chest pain.`\
-https://nytimes.com/athletic/5736459/2024/08/31/jay-hill-byu-southern-illinois-heart-procedures-return/
 
