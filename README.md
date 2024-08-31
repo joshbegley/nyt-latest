@@ -1,4 +1,4 @@
-**Ohio State takeaways: How much can be learned from blowout win over Akron?**\
+**Ohio State takeaways: How much can be learned from a blowout win over Akron?**\
 `The Buckeyes pulled away from Akron for a 52-6 win with superlatives from newcomers like Jeremiah Smith but a handful of issues to correct.`\
 https://nytimes.com/athletic/5736702/2024/08/31/ohio-state-akron-score-jeremiah-smith/
 
