@@ -1,3 +1,7 @@
+**Why Mercedes F1 put its faith in 18-year-old Kimi Antonelli to replace Lewis Hamilton**\
+`Not since Max Verstappen joined the grid in 2015 has there been such hype around a young driver. `\
+https://nytimes.com/athletic/5734958/2024/08/31/kimi-antonelli-f1-mercedes-lewis-hamilton-2025/
+
 **Mercedes promotes Antonelli to replace Hamilton in 2025**\
 `The move to Mercedes' F1 team completes a rapid, hype-filled ascent for Antonelli, who turned 18 last weekend.`\
 https://nytimes.com/athletic/5729566/2024/08/31/f1-andrea-kimi-antonelli-mercedes/
