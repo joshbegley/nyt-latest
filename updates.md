@@ -1,3 +1,7 @@
+**Arsenal's Rice apologises for "harsh" red card during Brighton draw**\
+`Declan Rice has apologised to his Arsenal team-mates and supporters for his red card in their 1-1 draw against Brighton &amp; Hove Albion, which he thought was a “harsh” sending off.`\
+https://nytimes.com/athletic/5736361/2024/08/31/arsenal-rice-red-card-brighton/
+
 **With X Blocked, Brazilians Find New Homes for Their Thoughts**\
 `The platform went dark across Brazil on Saturday, sending online commentators to new digital town squares.`\
 https://nytimes.com/2024/08/31/technology/x-blocked-brazil-reactions.html
