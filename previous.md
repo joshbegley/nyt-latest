@@ -1,3 +1,7 @@
+**Fatman Scoop, a D.J. and Rapper, Dies**\
+`He was at the Hamden Town Center Park in Hamden, Conn., when he collapsed onstage on Friday night.`\
+https://nytimes.com/2024/08/31/arts/music/fatman-scoop-rapper-dead.html
+
 **Conservative Moms, Charmed by Trump, Would Rather Avoid His Misogyny**\
 `Former President Donald J. Trump spoke at a convention of the Moms for Liberty in Washington.`\
 https://nytimes.com/2024/08/31/us/elections/conservative-moms-for-liberty-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5736459/2024/08/31/jay-hill-byu-southern-illinois-h
 **Bubba Wallace wins pole for NASCAR regular-season finale**\
 `“I think the pressure just switched,” Wallace said. “We’re not here to mess around.”`\
 https://nytimes.com/athletic/5736433/2024/08/31/bubba-wallace-pole-darlington-nascar/
-
-**Georgia smothers Clemson: Has anything changed for either program?**\
-`Georgia took a while to get going but flexed its muscles in the second half with a dominating win over Clemson. `\
-https://nytimes.com/athletic/5736329/2024/08/31/georgia-clemson-dabo-swinney-carson-beck/
 
