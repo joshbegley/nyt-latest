@@ -2,7 +2,7 @@
 `Both major presidential candidates propose exempting tips from taxes. That could encourage more reliance on tipping, and leave workers vulnerable.`\
 https://nytimes.com/2024/08/31/business/economy/tipped-workers-taxes.html
 
-**The Briefing: Arsenal 1 Brighton 1: Explaining Rice's red as Arsenal drop points in the title race**\
+**The Briefing: Arsenal 1 Brighton 1: Explaining Rice's red as Arteta's side drop points in the title race**\
 `We break down the key talking points from Saturday's game at the Emirates Stadium`\
 https://nytimes.com/athletic/5726081/2024/08/31/arsenal-brighton-premier-league-result-analysis/
 
