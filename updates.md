@@ -1,3 +1,7 @@
+**Astros flirt with yet another no-hitter, happily take walk-off win instead**\
+`Framber Valdez didn't allow a hit in seven innings of work, then watched Jose Altuve deliver a walk-off victory over the Royals.`\
+https://nytimes.com/athletic/5735549/2024/08/31/astros-framber-valdez-near-no-hitter/
+
 **Prosecutors Seek Simpler Path in Election Case After Immunity Ruling, as Trump Seeks Delays**\
 `In a court filing, prosecutors suggested their revisions would let them steer clear of the Supreme Court ruling. Donald Trump’s lawyers made clear they would continue broad attacks on the case.`\
 https://nytimes.com/2024/08/31/us/politics/trump-election-case-immunity.html
