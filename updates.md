@@ -1,3 +1,11 @@
+**Ohio State takeaways: How much can be learned from a blowout win over Akron?**\
+`The Buckeyes pulled away from Akron for a 52-6 win with superlatives from newcomers like Jeremiah Smith but a handful of issues to correct.`\
+https://nytimes.com/athletic/5736702/2024/08/31/ohio-state-akron-score-jeremiah-smith/
+
+**Freshman Dylan Raiola shows he was worth the wait for Nebraska**\
+`Raiola threw two touchdown passes in his first game for Nebraska, and now the Huskers can turn their focus to Colorado.`\
+https://nytimes.com/athletic/5736866/2024/08/31/nebraska-football-dylan-raiola-takeaways-colorado/
+
 **Freshman Dylan Raiola shows he was worth the way for Nebraska**\
 `Raiola threw two touchdown passes in his first game for Nebraska, and now the Huskers can turn their focus to Colorado.`\
 https://nytimes.com/athletic/5736866/2024/08/31/nebraska-football-dylan-raiola-takeaways-colorado/
