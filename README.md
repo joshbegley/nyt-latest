@@ -1,3 +1,31 @@
+**When the Flash Flood Comes With Godlike Velocity, Why Do I Stay and Watch?**\
+`This series of floods didn’t force us to leave. But the next ones might.`\
+https://nytimes.com/2024/08/31/opinion/flash-floods-arizona-utah-climate-change.html
+
+**Here’s Why We Shouldn’t Demean Trump Voters**\
+`Educated liberals often view the conservative working class with a whiff of condescension that is both unfair and counterproductive.`\
+https://nytimes.com/2024/08/31/opinion/trump-voters-liberal-civil.html
+
+**Kamala Harris Is Breaking Barriers. She Just Isn’t Talking About It.**\
+`Can she finally move us past identity politics?`\
+https://nytimes.com/2024/08/31/opinion/kamala-harris-gender.html
+
+**The Ancient Roots of Trump’s Attacks on Harris**\
+`The Trump campaign’s attacks on Kamala Harris echo misogynistic attacks on ancient Roman empresses and medieval queens.`\
+https://nytimes.com/2024/08/31/opinion/trump-harris-misogyny-history-rome.html
+
+**The Sacred Appeal of Household Labor**\
+`I used to consider the work I needed to do around the house expendable. I now see it as integral to my and my family’s happiness.`\
+https://nytimes.com/2024/08/31/opinion/household-labor-work-laundry-faith.html
+
+**America Does Not Need the Death Penalty**\
+`President Biden should fulfill his promise to work to pass legislation to end the use of capital punishment for federal crimes.`\
+https://nytimes.com/2024/08/31/opinion/death-penalty-biden.html
+
+**I Swore Off Air-Conditioning, and You Can, Too**\
+`The more time we can spend outside or inside without the air-conditioner blasting, the better prepared we’ll be — both to slow climate change and to adapt to it.`\
+https://nytimes.com/2024/08/31/opinion/heat-wave-air-conditioning-climate-change.html
+
 **As Israel Keeps Fighting in West Bank, Residents in One Area Assess the Damage**\
 `In the Nur Shams area near Tulkarm, Israeli bulldozers have chewed up large chunks of the roads, and many homes have been left without running water.`\
 https://nytimes.com/2024/08/31/world/israel-west-bank.html
@@ -9,32 +37,4 @@ https://nytimes.com/2024/08/31/briefing/a-playlist-to-remember.html
 **Vikings mailbag: T.J. Hockenson's timeline and why they cut Jaren Hall, Kene Nwangwu**\
 `Our Vikings reporter takes your questions on Hockenson's return, some surprising cuts and how different Brian Flores' defense could look.`\
 https://nytimes.com/athletic/5734487/2024/08/31/vikings-mailbag-tj-hockenson-jaren-hall-kene-nwangwu/
-
-**How a cafe brought the viral Olympic Village muffins to NYC — and back again for Paralympics**\
-`Isshiki Matcha in the East Village says it ordered 1,000 Olympic Village muffins for its latest pop-up event during the Paralympics.`\
-https://nytimes.com/athletic/5735108/2024/08/31/olympic-village-muffins-paralympics-nyc-popup/
-
-**Will Alberta Replace the Mounties With Its Own Provincial Police Force?**\
-`Danielle Smith, the premier, told party supporters that the government would expand the role of its sheriffs.`\
-https://nytimes.com/2024/08/31/world/canada/will-alberta-replace-the-mounties-with-its-own-provincial-police-force.html
-
-**Wordle Review No. 1,170**\
-`Scroll down for hints and conversation about the puzzle for September 1, 2024.`\
-https://nytimes.com/2024/08/31/crosswords/wordle-review-1170.html
-
-**The Connections Companion No. 448**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 1, 2024.`\
-https://nytimes.com/2024/08/31/crosswords/connections-companion-448.html
-
-**The Athletic FC: Sterling and Sancho's late, late deals; Ornstein's deal of the summer**\
-`Today in The Athletic FC: Inside the big Premier League transfers - including Sancho to Chelsea and Sterling to Arsenal - after deadline day`\
-https://nytimes.com/athletic/5733569/2024/08/31/sterling-sancho-arsenal-chelsea-transfers/
-
-**What’s in Your Fridge? Here Are Details About the Deli Meat Listeria Recall**\
-`Seven million pounds of Boar’s Head meats have been recalled since late July, when reports of serious illnesses and deaths began to occur.`\
-https://nytimes.com/2024/08/31/health/boars-head-recall-deli-meats-listeria.html
-
-**5 Takeaways From Our Reporting on Toxic Sludge Fertilizer**\
-`The Times dug into the widespread use of sewage sludge as fertilizer, which is sometimes heavily contaminated by “forever chemicals.”`\
-https://nytimes.com/2024/08/31/climate/takeaways-pfas-sludge-fertilizer.html
 
