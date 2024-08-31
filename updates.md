@@ -1,3 +1,11 @@
+**Ashton Jeanty stakes claim to 2025 NFL Draft's RB1 slot with six-TD performance**\
+`Jeanty had touchdown runs of 77 and 75 yards as part of his record-setting performance. `\
+https://nytimes.com/athletic/5736855/2024/08/31/ashton-jeanty-nfl-draft-record-boise-state/
+
+**Is Iowa's offense fixed? A freshman WR and a new OC offer hope**\
+`Reece Vander Zee helped the Iowa offense begin to move beyond the college football laughingstock status it earned last year.`\
+https://nytimes.com/athletic/5736960/2024/08/31/iowa-football-offense-reece-vander-zee/
+
 **Kadyn Proctor misses Alabama opener against Western Kentucky**\
 `Proctor, Alabama's projected starter at left tackle, is not playing tonight against Western Kentucky.`\
 https://nytimes.com/athletic/5736964/2024/08/31/kadyn-proctor-injury-alabama-football/
