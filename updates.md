@@ -1,3 +1,7 @@
+**Mahomes: Taylor Swift has drawn up plays**\
+`"She's really interested in football, and she asks a lot of great questions. Started drawing up plays. We might have to put one in."`\
+https://nytimes.com/athletic/5735903/2024/08/31/taylor-swift-chiefs-play-calls/
+
 **West Ham's Kurt Zouma completes Al Orobah loan move**\
 `Kurt Zouma has joined Saudi Arabian club Al Orobah on loan from West Ham United.`\
 https://nytimes.com/athletic/5695689/2024/08/31/kurt-zouma-west-ham-transfers/
