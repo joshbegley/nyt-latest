@@ -1,3 +1,7 @@
+**After Beating Alcaraz, a Dutch Player Keeps His ‘Lucky Charms’ Close**\
+`Botic van de Zandschulp’s career has had its ups and downs. But a pair of Manhattan financiers he knew as a boy in the Netherlands have become part of his “team.”`\
+https://nytimes.com/2024/08/31/nyregion/botic-van-de-zandschulp-us-open.html
+
 **Colts’ Granson to wear Guardian Cap in regular season**\
 `“At one point people thought seatbelts were f---ing stupid,” Granson told The Athletic on Thursday.`\
 https://nytimes.com/athletic/5735947/2024/08/31/colts-kylen-granson-guardian-cap/
