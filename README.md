@@ -1,3 +1,11 @@
+**Arch Manning scores first TDs of college career vs. Colorado State**\
+`Manning hit transfer receiver Silas Bolden for the first TD of his college career, then rushed for a score on a QB sneak. `\
+https://nytimes.com/athletic/5736769/2024/08/31/arch-manning-first-career-tds-texas/
+
+**Former Miss Teen USA Contestant Rebukes Vance for Using Her Flub to Attack Harris**\
+`Caite Upton wrote on social media that “online bullying needs to stop,” after JD Vance posted a clip of her mangled answer from the 2007 Miss Teen USA pageant to mock Kamala Harris.`\
+https://nytimes.com/2024/08/31/us/politics/vance-harris-caite-upton.html
+
 **Penn State takeaways: What did new-look offense reveal in win at West Virginia?**\
 `With creativity, explosive plays and 457 total yards, it was clear this is a new and improved offense.`\
 https://nytimes.com/athletic/5736680/2024/08/31/penn-state-win-west-virginia-offense/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/31/us/plane-crash-fairview-oregon.html
 **How Yankees’ Oswaldo Cabrera explained crucial pitch clock mistake in close loss**\
 `With a full count to lead off the ninth inning, Cabrera waited too long to get back into the batter's box.`\
 https://nytimes.com/athletic/5736671/2024/08/31/yankees-oswaldo-cabrera-pitch-clock-violation/
-
-**Athletic Bilbao's Williams on future: "God knows what will happen"**\
-`Nico Williams says that he is very happy at Athletic Bilbao but &#8220;God knows what will happen in the future&#8221;.`\
-https://nytimes.com/athletic/5736614/2024/08/31/nico-williams-future-transfer/
-
-**Fatman Scoop, a D.J. and Rapper, Dies**\
-`He was at the Hamden Town Center Park in Hamden, Conn., when he collapsed onstage on Friday night.`\
-https://nytimes.com/2024/08/31/arts/music/fatman-scoop-rapper-dead.html
 

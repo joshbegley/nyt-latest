@@ -1,3 +1,7 @@
+**Fatman Scoop, a D.J. and Rapper, Dies**\
+`He was at the Hamden Town Center Park in Hamden, Conn., when he collapsed onstage on Friday night.`\
+https://nytimes.com/2024/08/31/arts/music/fatman-scoop-rapper-dead.html
+
 **Former Miss Teen USA Contestant Rebukes Vance for Using Her Flub to Attack Harris**\
 `Caite Upton wrote on social media that “online bullying needs to stop,” after JD Vance posted a clip of her mangled answer from the 2007 Miss Teen USA pageant to mock Kamala Harris.`\
 https://nytimes.com/2024/08/31/us/politics/vance-harris-caite-upton.html
