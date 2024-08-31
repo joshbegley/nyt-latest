@@ -1,3 +1,7 @@
+**Liverpool's transfer window: How Chiesa coup was sealed - and No 6 void left unfilled**\
+`Only one new signing for this season arrived at Anfield, but the club believe their calculated gamble will pay off`\
+https://nytimes.com/athletic/5731004/2024/08/31/liverpool-transfer-window-federico-chiesa/
+
 **'It’s been a ton of fun': Jesse Winker's buy-in makes him big part of the Mets**\
 `As the Mets continue to play games that carry more and more meaning each day, Winker keeps providing big hit after big hit.`\
 https://nytimes.com/athletic/5735587/2024/08/31/mets-jesse-winker-white-sox/
