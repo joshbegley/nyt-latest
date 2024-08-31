@@ -1,3 +1,7 @@
+**Freddie Freeman returns to the Dodgers lineup with his finger still broken, but mind reset**\
+`Freeman hit a two-run home run in his first at-bat on Friday after missing three games.`\
+https://nytimes.com/athletic/5735393/2024/08/30/freddie-freeman-broken-finger-dodgers-lineup/
+
 **Arteta turned Sterling into a penalty-box threat - he can do it again at Arsenal**\
 `Why Sterling's role at Manchester City is a more useful pointer than his time in an unstable Chelsea side during the past two years`\
 https://nytimes.com/athletic/5735144/2024/08/30/raheem-sterling-mikel-arteta-tactics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5734785/2024/08/30/johnny-gaudreau-nhl-flames-blue-
 **Leicester sign Edouard from Crystal Palace**\
 `Leicester City have signed striker Odsonne Edouard on a season-long loan from Crystal Palace.`\
 https://nytimes.com/athletic/5734574/2024/08/30/leicester-city-odsonne-edouard/
-
-**Eliyahu Rips, Who Claimed to Find Secret Codes in the Torah, Dies at 75**\
-`His work provided the basis for the worldwide best seller “The Bible Code,” but he later rejected the book as unscientific.`\
-https://nytimes.com/2024/08/30/science/eliyahu-rips-dead.html
 
