@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5735144/2024/08/30/raheem-sterling-mikel-arteta-tac
 https://nytimes.com/2024/08/30/us/politics/trump-florida-abortion-measure.html
 
 **Jordan Walker is back with the Cardinals: 'He will play every day'**\
-`After a strong month with Triple-A Memphis, the Cardinals plan to give Walker consistent playing time at the big-league level.`\
+`After Walker's strong month with Triple-A Memphis, the Cardinals plan to give him consistent playing time at the big-league level.`\
 https://nytimes.com/athletic/5735154/2024/08/30/jordan-walker-cardinals/
 
 **Toney completes transfer to Al Ahli from Brentford**\
