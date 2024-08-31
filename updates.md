@@ -1,3 +1,7 @@
+**Tigers' Casey Mize still searching for the right mix in return from injured list**\
+`Mize has now started 56 games over four seasons in the big leagues and has a 4.31 career ERA.`\
+https://nytimes.com/athletic/5735433/2024/08/30/detroit-tigers-casey-mize/
+
 **A Defensive Trump Tries to Limit the Fallout of the Arlington Clash**\
 `At two events on Friday, the former president insisted that he had not been seeking publicity at the military cemetery on Monday and defended his campaign’s actions.`\
 https://nytimes.com/2024/08/30/us/politics/trump-rally-arlington.html
