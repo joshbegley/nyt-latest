@@ -1,3 +1,7 @@
+**After getting routed by Georgia, it's clear Clemson and Dabo Swinney have lost their way**\
+`The bleak reality for the Tigers is that this just might be Clemson’s new norm.`\
+https://nytimes.com/athletic/5736777/2024/08/31/clemson-georgia-dabo-swinney-lost-way/
+
 **Arch Manning scores first TDs of college career vs. Colorado State**\
 `Manning hit transfer receiver Silas Bolden for the first TD of his college career, then rushed for a score on a QB sneak. `\
 https://nytimes.com/athletic/5736769/2024/08/31/arch-manning-first-career-tds-texas/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/31/us/dallas-police-office-darron-burks-killed.html
 **3 Missing After Small Plane Crashes Into Oregon Townhouses**\
 `A Cessna crashed into a row of townhouses in Fairview, Ore., on Saturday, sparking a large fire, officials said.`\
 https://nytimes.com/2024/08/31/us/plane-crash-fairview-oregon.html
-
-**How Yankees’ Oswaldo Cabrera explained crucial pitch clock mistake in close loss**\
-`With a full count to lead off the ninth inning, Cabrera waited too long to get back into the batter's box.`\
-https://nytimes.com/athletic/5736671/2024/08/31/yankees-oswaldo-cabrera-pitch-clock-violation/
 
