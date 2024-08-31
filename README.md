@@ -1,3 +1,11 @@
+**Toto Wolff took 'five minutes' to decide on Antonelli as Hamilton’s F1 replacement**\
+`The Mercedes boss said that the Kimi Antonelli and George Russell lineup is one he had always wanted. `\
+https://nytimes.com/athletic/5735779/2024/08/31/toto-wolff-max-verstappen-kimi-antonelli-mercedes-f1/
+
+**The inside story of Caden Dana's wild draft experience and how he became an Angel**\
+`The righty starter might have had a bad draft day. Everything since has been a storybook rise.`\
+https://nytimes.com/athletic/5735381/2024/08/31/angels-caden-dana-draft-experience/
+
 **These Two Books Ask, Was the Movie Better?**\
 `The French novel that was adapted into “Vertigo”; Cameron Crowe’s nonfiction account of a year inside a public high school.`\
 https://nytimes.com/2024/08/31/books/review/these-two-books-ask-was-the-movie-better.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/31/opinion/household-labor-work-laundry-faith.html
 **America Does Not Need the Death Penalty**\
 `President Biden should fulfill his promise to work to pass legislation to end the use of capital punishment for federal crimes.`\
 https://nytimes.com/2024/08/31/opinion/death-penalty-biden.html
-
-**I Swore Off Air-Conditioning, and You Can, Too**\
-`The more time we can spend outside or inside without the air-conditioner blasting, the better prepared we’ll be — both to slow climate change and to adapt to it.`\
-https://nytimes.com/2024/08/31/opinion/heat-wave-air-conditioning-climate-change.html
-
-**As Israel Keeps Fighting in West Bank, Residents in One Area Assess the Damage**\
-`In the Nur Shams area near Tulkarm, Israeli bulldozers have chewed up large chunks of the roads, and many homes have been left without running water.`\
-https://nytimes.com/2024/08/31/world/israel-west-bank.html
 
