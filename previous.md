@@ -1,3 +1,23 @@
+**Vikings mailbag: T.J. Hockenson's timeline and why they cut Jaren Hall, Kene Nwangwu**\
+`Our Vikings reporter takes your questions on Hockenson's return, some surprising cuts and how different Brian Flores' defense could look.`\
+https://nytimes.com/athletic/5734487/2024/08/31/vikings-mailbag-tj-hockenson-jaren-hall-kene-nwangwu/
+
+**How a cafe brought the viral Olympic Village muffins to NYC — and back again for Paralympics**\
+`Isshiki Matcha in the East Village says it ordered 1,000 Olympic Village muffins for its latest pop-up event during the Paralympics.`\
+https://nytimes.com/athletic/5735108/2024/08/31/olympic-village-muffins-paralympics-nyc-popup/
+
+**Will Alberta Replace the Mounties With Its Own Provincial Police Force?**\
+`Danielle Smith, the premier, told party supporters that the government would expand the role of its sheriffs.`\
+https://nytimes.com/2024/08/31/world/canada/will-alberta-replace-the-mounties-with-its-own-provincial-police-force.html
+
+**Wordle Review No. 1,170**\
+`Scroll down for hints and conversation about the puzzle for September 1, 2024.`\
+https://nytimes.com/2024/08/31/crosswords/wordle-review-1170.html
+
+**The Connections Companion No. 448**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 1, 2024.`\
+https://nytimes.com/2024/08/31/crosswords/connections-companion-448.html
+
 **The Athletic FC: Sterling and Sancho's late, late deals; Ornstein's deal of the summer**\
 `Today in The Athletic FC: Inside the big Premier League transfers - including Sancho to Chelsea and Sterling to Arsenal - after deadline day`\
 https://nytimes.com/athletic/5733569/2024/08/31/sterling-sancho-arsenal-chelsea-transfers/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/08/31/us/politics/trump-abortion-stance.html
 **We Can’t All Be BFFs. Enter the ‘Medium Friend.’**\
 `The less intense bonds you didn’t know you needed.`\
 https://nytimes.com/2024/08/31/podcasts/we-cant-all-be-bffs-enter-the-medium-friend.html
-
-**Is a Writer a Kind of Spy?**\
-`In her new novel, Rachel Kushner invents a secret agent who’s not really all that different from a novelist.`\
-https://nytimes.com/2024/08/31/style/rachel-kushner-profile-creation-lake.html
-
-**Gaza, Lebanon, West Bank: Why Is Israel Fighting So Many Wars?**\
-`As well as its conflict with Hamas, Israel is battling along its border with Lebanon, waging a counterinsurgency in the occupied West Bank and exchanging sporadic fire with Iran and its regional proxies.`\
-https://nytimes.com/2024/08/31/world/middleeast/israel-wars-gaza-lebanon-west-bank.html
-
-**Many Americans Dislike JD Vance. Donald Trump Isn’t One of Them.**\
-`Mr. Vance’s fiery performances as Mr. Trump’s attack dog have given the Trump campaign a sense of stability, even as the choice continues to confound many voters.`\
-https://nytimes.com/2024/08/31/us/politics/jd-vance-trump-vp.html
-
-**Sagar Radia Balances His Alpha-Male Energy on ‘Industry’ With Some Alone Time**\
-`“I think there’s this common misconception that actors are these big extroverts, and I couldn’t disagree more. Most actors I know don’t need to be the center of attention.”`\
-https://nytimes.com/2024/08/31/arts/television/sagar-radia-industry.html
-
-**The Construction Site Outside My Building Is Filthy. What Can I Do?**\
-`City codes govern the removal of construction debris, including keeping waste contained.`\
-https://nytimes.com/2024/08/31/realestate/the-construction-site-outside-my-building-is-filthy-what-can-i-do.html
 
