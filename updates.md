@@ -1,3 +1,11 @@
+**Bryce Harper and Ranger Suárez, both grinding through it, have a month to feel right**\
+`Harper has a .724 OPS since the All-Star break and Suárez only went four innings in Friday's 7-2 loss to the Braves.`\
+https://nytimes.com/athletic/5735459/2024/08/30/phillies-bryce-harper-ranger-suarez/
+
+**Dodger's Kershaw leaves start vs. Diamondbacks with toe pain**\
+`Kershaw, making just his seventh start in his return from the first major arm surgery of his career, walked off with a trainer in Phoenix.`\
+https://nytimes.com/athletic/5735462/2024/08/30/dodgers-clayton-kershaw-toe-injury/
+
 **Cubs stay hot, keep pace in wild-card race as short bullpen pushes through**\
 `“We’ve never stopped competing,” Cubs manager Craig Counsell said of his team, which faces long odds to make the playoffs but won't quit.`\
 https://nytimes.com/athletic/5735448/2024/08/30/cubs-wild-card-race/

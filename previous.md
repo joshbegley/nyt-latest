@@ -1,3 +1,11 @@
+**Bryce Harper and Ranger Suárez, both grinding through it, have a month to feel right**\
+`Harper has a .724 OPS since the All-Star break and Suárez only went four innings in Friday's 7-2 loss to the Braves.`\
+https://nytimes.com/athletic/5735459/2024/08/30/phillies-bryce-harper-ranger-suarez/
+
+**Dodger's Kershaw leaves start vs. Diamondbacks with toe pain**\
+`Kershaw, making just his seventh start in his return from the first major arm surgery of his career, walked off with a trainer in Phoenix.`\
+https://nytimes.com/athletic/5735462/2024/08/30/dodgers-clayton-kershaw-toe-injury/
+
 **Cubs stay hot, keep pace in wild-card race as short bullpen pushes through**\
 `“We’ve never stopped competing,” Cubs manager Craig Counsell said of his team, which faces long odds to make the playoffs but won't quit.`\
 https://nytimes.com/athletic/5735448/2024/08/30/cubs-wild-card-race/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/30/us/politics/trump-florida-abortion-measure.html
 **Jordan Walker is back with the Cardinals: 'He will play every day'**\
 `After Walker's strong month with Triple-A Memphis, the Cardinals plan to give him consistent playing time at the big-league level.`\
 https://nytimes.com/athletic/5735154/2024/08/30/jordan-walker-cardinals/
-
-**Toney completes transfer to Al Ahli from Brentford**\
-`Al Ahli have completed the signing of Ivan Toney from Brentford for a fee of €40million (£33.`\
-https://nytimes.com/athletic/5733585/2024/08/30/ivan-toney-al-ahli-transfer-done/
-
-**After Trump Claimed Fake Taylor Swift Endorsement, Her Fans Make Real Push for Harris**\
-`Thousands of the musician’s ardent followers are working to get out the vote and raise money for Vice President Kamala Harris’s campaign.`\
-https://nytimes.com/2024/08/30/us/politics/trump-taylor-swift-fans-endorsement.html
 
