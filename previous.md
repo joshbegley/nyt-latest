@@ -1,3 +1,7 @@
+**As Israel Keeps Fighting in West Bank, Residents in One Area Assess the Damage**\
+`In the Nur Shams area near Tulkarm, Israeli bulldozers have chewed up large chunks of the roads, and many homes have been left without running water.`\
+https://nytimes.com/2024/08/31/world/israel-west-bank.html
+
 **A Playlist to Remember**\
 `Songs can help demarcate this chapter of your life: It’s a way to mark time, to keep one period of time from bleeding indistinctly into the next.`\
 https://nytimes.com/2024/08/31/briefing/a-playlist-to-remember.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/31/health/boars-head-recall-deli-meats-listeria.html
 **5 Takeaways From Our Reporting on Toxic Sludge Fertilizer**\
 `The Times dug into the widespread use of sewage sludge as fertilizer, which is sometimes heavily contaminated by “forever chemicals.”`\
 https://nytimes.com/2024/08/31/climate/takeaways-pfas-sludge-fertilizer.html
-
-**Trump Contorts Himself on Abortion in Search of Political Gain**\
-`The former president is willing to make as many rhetorical and policy shifts as he deems necessary to win in November, vexing some social conservatives.`\
-https://nytimes.com/2024/08/31/us/politics/trump-abortion-stance.html
 
