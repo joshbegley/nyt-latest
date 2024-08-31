@@ -1,3 +1,31 @@
+**The Angry East**\
+`As east Germans vote, a region in decline is searching for answers on the political extremes.`\
+https://nytimes.com/2024/08/31/world/europe/germany-saxony-elections.html
+
+**Which transfer windows are still open after the Premier League deadline?**\
+`Europe's biggest leagues may have closed for business, but there are transfer windows open elsewhere in which business might get done`\
+https://nytimes.com/athletic/5734460/2024/08/31/transfer-windows-after-premier-league-deadline/
+
+**A New Statue of a British Colonialist Exposes a Divide in Singapore**\
+`The tribute to Sir Thomas Stamford Raffles, who is considered the founder of Singapore, has raised questions about how the wealthy city-state perceives its history.`\
+https://nytimes.com/2024/08/31/world/asia/raffles-statue-singapore-debate.html
+
+**Miami at Florida picks, odds, how to watch: Under pressure, Miami heads to The Swamp**\
+`No. 19 Miami heads to Gainesville to take on in-state rival Florida in Week 1. Miami is the narrow favorite.`\
+https://nytimes.com/athletic/5727241/2024/08/31/miami-florida-picks-odds-how-to-watch/
+
+**Nerf Blasters and Lego Rockets: Another Mall Evolution**\
+`Landlords are turning to companies like Hasbro and Mattel for some fun and games in “retailtainment.”`\
+https://nytimes.com/2024/08/31/business/malls-experiences-hasbro-nerf.html
+
+**Quotation of the Day: ‘Deepfake Musk’ Stars in Scams Across the Internet**\
+`Quotation of the Day for Saturday, August 31, 2024.`\
+https://nytimes.com/2024/08/31/pageoneplus/quotation-of-the-day-deepfake-musk-stars-in-scams-across-the-internet.html
+
+**Saturday's MLB odds, projections: Best bets for pitching matchups, every game**\
+`See pitching matchups, playoff projections, win projections and more for Saturday's MLB games.`\
+https://nytimes.com/athletic/5734976/2024/08/31/mlb-odds-best-bets-projections-august-31/
+
 **Reds' Rhett Lowder allows just one run in big-league debut**\
 `Lowder allowed one earned run and struck out six over four innings in Cincinnati's 14-0 loss to the Brewers.`\
 https://nytimes.com/athletic/5735484/2024/08/30/reds-rhett-lowder-mlb-debut/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/5735483/2024/08/30/novak-djokovic-us-open-alexei-po
 **Reynaldo López wins again, Orlando Arcia homers twice for resurgent Braves offense**\
 `Arcia's back-to-back jacks took some of the gusto out of the leather-lunged Phillies fans at Citizens Bank Park.`\
 https://nytimes.com/athletic/5735452/2024/08/30/braves-reynaldo-lopez-orlando-arcia-phillies/
-
-**Bryce Harper and Ranger Suárez, both grinding through it, have a month to feel right**\
-`Harper has a .724 OPS since the All-Star break and Suárez only went four innings in Friday's 7-2 loss to the Braves.`\
-https://nytimes.com/athletic/5735459/2024/08/30/phillies-bryce-harper-ranger-suarez/
-
-**Dodger's Kershaw leaves start vs. Diamondbacks with toe pain**\
-`Kershaw, making just his seventh start in his return from the first major arm surgery of his career, walked off with a trainer in Phoenix.`\
-https://nytimes.com/athletic/5735462/2024/08/30/dodgers-clayton-kershaw-toe-injury/
-
-**Cubs stay hot, keep pace in wild-card race as short bullpen pushes through**\
-`“We’ve never stopped competing,” Cubs manager Craig Counsell said of his team, which faces long odds to make the playoffs but won't quit.`\
-https://nytimes.com/athletic/5735448/2024/08/30/cubs-wild-card-race/
-
-**Tigers' Casey Mize still searching for the right mix in return from injured list**\
-`Mize has now started 56 games over four seasons in the big leagues and has a 4.31 career ERA.`\
-https://nytimes.com/athletic/5735433/2024/08/30/detroit-tigers-casey-mize/
-
-**Caitlin Clark, Angel Reese break WNBA records in Fever's win over Sky**\
-`The Indiana Fever are now in sixth place in the WNBA standings with eight games left in the regular season. `\
-https://nytimes.com/athletic/5735145/2024/08/30/caitlin-clark-fever-wnba-record/
-
-**The Old Man?**\
-`Sam Ezersky’s themeless Saturday grid will get you going.`\
-https://nytimes.com/2024/08/30/crosswords/daily-puzzle-2024-08-31.html
-
-**Freddie Freeman returns to Dodgers' lineup with his finger still broken, but mind reset**\
-`Freeman hit a two-run home run in his first at-bat Friday after missing three games.`\
-https://nytimes.com/athletic/5735393/2024/08/30/freddie-freeman-broken-finger-dodgers-lineup/
 
