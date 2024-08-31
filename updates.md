@@ -1,3 +1,7 @@
+**3 Missing After Small Plane Crashes Into Oregon Townhouses**\
+`A Cessna crashed into a row of townhouses in Fairview, Ore., on Saturday, sparking a large fire, officials said.`\
+https://nytimes.com/2024/08/31/us/plane-crash-fairview-oregon.html
+
 **How Yankees’ Oswaldo Cabrera explained crucial pitch clock mistake in close loss**\
 `With a full count to lead off the ninth inning, Cabrera waited too long to get back into the batter's box.`\
 https://nytimes.com/athletic/5736671/2024/08/31/how-yankees-oswaldo-cabrera-explained-crucial-pitch-clock-mistake-in-close-loss/
