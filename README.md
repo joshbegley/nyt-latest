@@ -1,3 +1,7 @@
+**With X Blocked, Brazilians Find New Homes for Their Thoughts**\
+`The platform went dark across Brazil on Saturday, sending online commentators to new digital town squares.`\
+https://nytimes.com/2024/08/31/technology/x-blocked-brazil-reactions.html
+
 **The Briefing: West Ham 1 Manchester City 3 - Another Haaland hat-trick but where is Walker?**\
 `Haaland scored the 24th hat-trick of his career at the ripe old age of 24 to seal victory for Manchester City away to West Ham`\
 https://nytimes.com/athletic/5726149/2024/08/31/west-ham-manchester-city-haaland-hat-trick/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5733246/2024/08/31/karolina-muchova-us-open-comebac
 **How Brazil’s Experiment Fighting Fake News Led to a Ban on X**\
 `To combat disinformation, Brazil gave one judge broad power to police the internet. Now, after he blocked X, some are wondering whether that was a good idea.`\
 https://nytimes.com/2024/08/31/world/americas/brazil-x-ban-free-speech.html
-
-**Trump Signals Support for Marijuana Legalization in Florida**\
-`“Whether people like it or not, this will happen,” former President Donald J. Trump said on Saturday. Gov. Ron DeSantis opposes the measure.`\
-https://nytimes.com/2024/08/31/us/elections/trump-marijuana-legalization-florida.html
 
