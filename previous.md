@@ -1,3 +1,7 @@
+**Prosecutors Seek Simpler Path in Election Case After Immunity Ruling, as Trump Seeks Delays**\
+`In a court filing, prosecutors suggested their revisions would let them steer clear of the Supreme Court ruling. Donald Trump’s lawyers made clear they would continue broad attacks on the case.`\
+https://nytimes.com/2024/08/31/us/politics/trump-election-case-immunity.html
+
 **Badgers survive scare against Western Michigan: Wisconsin football opener instant takeaways**\
 `Progress? Wisconsin's season-opening 28-14 victory was a win nonetheless. And it avoided a disastrous start to the season.`\
 https://nytimes.com/athletic/5734996/2024/08/31/wisconsin-badgers-win-western-michigan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5734460/2024/08/31/transfer-windows-after-premier-l
 **A New Statue of a British Colonialist Exposes a Divide in Singapore**\
 `The tribute to Sir Thomas Stamford Raffles, who is considered the founder of Singapore, has raised questions about how the wealthy city-state perceives its history.`\
 https://nytimes.com/2024/08/31/world/asia/raffles-statue-singapore-debate.html
-
-**Miami at Florida picks, odds, how to watch: Under pressure, Miami heads to The Swamp**\
-`No. 19 Miami heads to Gainesville to take on in-state rival Florida in Week 1. Miami is the narrow favorite.`\
-https://nytimes.com/athletic/5727241/2024/08/31/miami-florida-picks-odds-how-to-watch/
 

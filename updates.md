@@ -1,3 +1,7 @@
+**Prosecutors Seek Simpler Path in Election Case After Immunity Ruling, as Trump Seeks Delays**\
+`In a court filing, prosecutors suggested their revisions would let them steer clear of the Supreme Court ruling. Donald Trump’s lawyers made clear they would continue broad attacks on the case.`\
+https://nytimes.com/2024/08/31/us/politics/trump-election-case-immunity.html
+
 **Badgers survive scare against Western Michigan: Wisconsin football opener instant takeaways**\
 `Progress? Wisconsin's season-opening 28-14 victory was a win nonetheless. And it avoided a disastrous start to the season.`\
 https://nytimes.com/athletic/5734996/2024/08/31/wisconsin-badgers-win-western-michigan/
