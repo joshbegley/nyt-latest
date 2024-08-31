@@ -1,3 +1,7 @@
+**A Fairy Tale for Netflix: A Norwegian Princess Weds an American Shaman**\
+`The nuptials of Princess Martha Louise and Durek Verrett attracted huge public interest and a streaming deal for a couple trying to reclaim their narrative after years of bad press.`\
+https://nytimes.com/2024/08/31/world/europe/norway-royal-wedding-martha-louise-durek-verrett.html
+
 **Has the Spread of Tipping Reached Its Limit? Don’t Count on It.**\
 `Both major presidential candidates propose exempting tips from taxes. That could encourage more reliance on tipping, and leave workers vulnerable.`\
 https://nytimes.com/2024/08/31/business/economy/tipped-workers-taxes.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/31/books/review/these-two-books-ask-was-the-movie-be
 **When the Flash Flood Comes With Godlike Velocity, Why Do I Stay and Watch?**\
 `This series of floods didn’t force us to leave. But the next ones might.`\
 https://nytimes.com/2024/08/31/opinion/flash-floods-arizona-utah-climate-change.html
-
-**Inside Forest's transfer window: More options and a little less chaos — but no new striker**\
-`Forest failed in bids to bring in a striker but Nuno Espirito Santo now has strength in depth in most areas of his squad`\
-https://nytimes.com/athletic/5735351/2024/08/31/nottingham-forest-transfer-window-2024/
 

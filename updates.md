@@ -1,3 +1,7 @@
+**A Fairy Tale for Netflix: A Norwegian Princess Weds an American Shaman**\
+`The nuptials of Princess Martha Louise and Durek Verrett attracted huge public interest and a streaming deal for a couple trying to reclaim their narrative after years of bad press.`\
+https://nytimes.com/2024/08/31/world/europe/norway-royal-wedding-martha-louise-durek-verrett.html
+
 **Has the Spread of Tipping Reached Its Limit? Don’t Count on It.**\
 `Both major presidential candidates propose exempting tips from taxes. That could encourage more reliance on tipping, and leave workers vulnerable.`\
 https://nytimes.com/2024/08/31/business/economy/tipped-workers-taxes.html
