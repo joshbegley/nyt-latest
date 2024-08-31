@@ -1,3 +1,11 @@
+**Arteta and Saka criticise referee 'inconsistencies' after Rice red card**\
+`Mikel Arteta and Bukayo Saka have both said there were &#8220;inconsistencies&#8221; with the officiating in their side&#8217;s 1-1 draw against Brighton &amp; Hove Albion after Declan Rice was shown a red card.`\
+https://nytimes.com/athletic/5735930/2024/08/31/declan-rice-red-card-arsenal-brighton/
+
+**Is Wisconsin better than last year? Opening win provided no clarity**\
+`Wisconsin's 28-14 win against WMU, a result in doubt in the fourth quarter, did little to the move the needle for fans hungry for progress.`\
+https://nytimes.com/athletic/5735924/2024/08/31/wisconsin-badgers-football-western-michigan-score/
+
 **A Fairy Tale for Netflix: A Norwegian Princess Weds an American Shaman**\
 `The nuptials of Princess Martha Louise and Durek Verrett attracted huge public interest and a streaming deal for a couple trying to reclaim their narrative after years of bad press.`\
 https://nytimes.com/2024/08/31/world/europe/norway-royal-wedding-martha-louise-durek-verrett.html
