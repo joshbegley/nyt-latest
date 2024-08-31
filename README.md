@@ -1,3 +1,11 @@
+**What We Know About the Polio Crisis in Gaza**\
+`Israel and Hamas have agreed to brief pauses in fighting so that humanitarian workers can begin an inoculation campaign.`\
+https://nytimes.com/2024/08/31/world/middleeast/gaza-polio-crisis.html
+
+**What to watch at U.S. Open on day 6: Wide open men's draw meets Shnaider and Swiatek**\
+`The best matches to look out for on the sixth day of the 2024 U.S. Open`\
+https://nytimes.com/athletic/5734634/2024/08/31/us-open-day-6-watch-guide-swiatek-medvedev-paolini/
+
 **Why Mercedes F1 put its faith in 18-year-old Kimi Antonelli to replace Lewis Hamilton**\
 `Not since Max Verstappen joined the grid in 2015 has there been such hype around a young driver. `\
 https://nytimes.com/athletic/5734958/2024/08/31/kimi-antonelli-f1-mercedes-lewis-hamilton-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/31/crosswords/spelling-bee-forum.html
 **Dodgers lose Clayton Kershaw but win unlikely game over Arizona to expand lead**\
 `There are serious and existential questions for the Dodgers as they head toward October, even after an unlikely win.`\
 https://nytimes.com/athletic/5735613/2024/08/31/dodgers-clayton-kershaw-arizona/
-
-**Inside Arsenal's transfer window: Sterling loan terms and goalkeeper frustration**\
-`This is the story of Arsenal's transfer window, which concluded with late moves on Friday`\
-https://nytimes.com/athletic/5734053/2024/08/31/arsenal-transfer-window-latest-news-inside/
-
-**Liverpool's transfer window: How Chiesa coup was sealed - and No 6 void left unfilled**\
-`Only one new signing for this season arrived at Anfield, but the club believe their calculated gamble will pay off`\
-https://nytimes.com/athletic/5731004/2024/08/31/liverpool-transfer-window-federico-chiesa/
 
