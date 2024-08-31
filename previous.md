@@ -31,7 +31,7 @@ https://nytimes.com/athletic/5733585/2024/08/30/ivan-toney-al-ahli-transfer-done
 https://nytimes.com/2024/08/30/us/politics/trump-taylor-swift-fans-endorsement.html
 
 **A Defensive Trump Tries to Limit the Fallout of the Arlington Clash**\
-`At a rally in western Pennsylvania, the former president insisted that he had not been seeking publicity at the military cemetery on Monday and defended his campaign’s actions.`\
+`At two events on Friday, the former president insisted that he had not been seeking publicity at the military cemetery on Monday and defended his campaign’s actions.`\
 https://nytimes.com/2024/08/30/us/politics/trump-rally-arlington.html
 
 **In a Robbie Williams Biopic, the Star Is a C.G.I. Monkey. That’s Right.**\

@@ -1,3 +1,7 @@
+**A Defensive Trump Tries to Limit the Fallout of the Arlington Clash**\
+`At two events on Friday, the former president insisted that he had not been seeking publicity at the military cemetery on Monday and defended his campaign’s actions.`\
+https://nytimes.com/2024/08/30/us/politics/trump-rally-arlington.html
+
 **Caitlin Clark, Angel Reese break WNBA records in Fever's win over Sky**\
 `The Indiana Fever are now in sixth place in the WNBA standings with eight games left in the regular season. `\
 https://nytimes.com/athletic/5735145/2024/08/30/caitlin-clark-fever-wnba-record/
