@@ -1,3 +1,7 @@
+**Betis sign Tottenham's Giovani Lo Celso on four-year deal**\
+`Real Betis have re-signed Giovani Lo Celso from Tottenham Hotspur on a permanent transfer.`\
+https://nytimes.com/athletic/5731130/2024/08/31/giovani-lo-celso-betis-transfer/
+
 **What We Know About the Polio Crisis in Gaza**\
 `Israel and Hamas have agreed to brief pauses in fighting so that humanitarian workers can begin an inoculation campaign.`\
 https://nytimes.com/2024/08/31/world/middleeast/gaza-polio-crisis.html
