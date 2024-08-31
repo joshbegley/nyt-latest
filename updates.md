@@ -1,3 +1,7 @@
+**Badgers survive scare against Western Michigan: Wisconsin football opener instant takeaways**\
+`Progress? Wisconsin's season-opening 28-14 victory was a win nonetheless. And it avoided a disastrous start to the season.`\
+https://nytimes.com/athletic/5734996/2024/08/31/wisconsin-badgers-win-western-michigan/
+
 **Tottenham's transfer window: Promise for the future, but are they short now?**\
 `The arrivals of Solanke, Bergvall, Odobert and Gray show promise, but a lack of defensive cover could become an issue`\
 https://nytimes.com/athletic/5726113/2024/08/31/tottenham-transfer-window-solanke-gray/
