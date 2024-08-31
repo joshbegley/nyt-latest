@@ -1,3 +1,7 @@
+**Why Karolina Muchova's textured, elegant tennis is huge for the WTA Tour**\
+`Returning from a serious wrist injury, last year's U.S. Open semifinalist is reminding the tennis world of the beauty of her game.`\
+https://nytimes.com/athletic/5733246/2024/08/31/karolina-muchova-us-open-comeback-osaka-womens-tennis/
+
 **How Brazil’s Experiment Fighting Fake News Led to a Ban on X**\
 `To combat disinformation, Brazil gave one judge broad power to police the internet. Now, after he blocked X, some are wondering whether that was a good idea.`\
 https://nytimes.com/2024/08/31/world/americas/brazil-x-ban-free-speech.html
