@@ -1,3 +1,7 @@
+**Inside West Ham's transfer window: An unprecedented summer as Steidten asserts authority**\
+`The technical director oversaw the arrival of nine senior players and the appointment of Julen Lopetegui over a frantic closed season`\
+https://nytimes.com/athletic/5704725/2024/08/31/inside-west-hams-transfer-window-an-unprecedented-summer-as-steidten-asserts-authority/
+
 **Transfer window roundtable: Debating the best, worst and most surprising deals of the summer**\
 `Our writers debate the winners and losers from a summer of feverish transfer business`\
 https://nytimes.com/athletic/5734008/2024/08/31/transfer-window-summer-2024/
