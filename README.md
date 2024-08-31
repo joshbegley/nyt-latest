@@ -1,3 +1,7 @@
+**Hiker Is Found Dead in Grand Canyon National Park**\
+`The 60-year-old from North Carolina was on a multiday backpacking trip. His death was at least the sixth reported inside the Arizona park this month.`\
+https://nytimes.com/2024/08/31/us/grand-canyon-hiker-death.html
+
 **Why Karolina Muchova's textured, elegant tennis is huge for the WTA Tour**\
 `Returning from a serious wrist injury, last year's U.S. Open semifinalist is reminding the tennis world of the beauty of her game.`\
 https://nytimes.com/athletic/5733246/2024/08/31/karolina-muchova-us-open-comeback-osaka-womens-tennis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/31/opinion/harris-cnn-interview-president.html
 **Island Vibes Zucchini Bread**\
 `It’s not a regular zucchini bread. It’s a cool zucchini bread (with fresh pineapple and flaked coconut).`\
 https://nytimes.com/2024/08/31/dining/island-vibes-zucchini-bread.html
-
-**Brighton's Milner to undergo scan on hamstring injury**\
-`Brighton &amp; Hove Albion are hopeful that a midfield injury crisis will not be made worse by a lengthy absence for James Milner.`\
-https://nytimes.com/athletic/5736078/2024/08/31/james-milner-brighton-injuries/
 
