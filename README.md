@@ -1,3 +1,7 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/08/31/crosswords/spelling-bee-forum.html
+
 **Dodgers lose Clayton Kershaw, but cling to win unlikely game over Arizona to expand lead**\
 `There are serious and existential questions for the Dodgers as they head toward October, even after an unlikely win.`\
 https://nytimes.com/athletic/5735613/2024/08/31/dodgers-clayton-kershaw-arizona/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/31/us/politics/trump-election-case-immunity.html
 **Badgers survive scare against Western Michigan: Wisconsin football opener instant takeaways**\
 `Progress? Wisconsin's season-opening 28-14 victory was a win nonetheless. And it avoided a disastrous start to the season.`\
 https://nytimes.com/athletic/5734996/2024/08/31/wisconsin-badgers-win-western-michigan/
-
-**Tottenham's transfer window: Promise for the future, but are they short now?**\
-`The arrivals of Solanke, Bergvall, Odobert and Gray show promise, but a lack of defensive cover could become an issue`\
-https://nytimes.com/athletic/5726113/2024/08/31/tottenham-transfer-window-solanke-gray/
 
