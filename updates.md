@@ -1,3 +1,7 @@
+**With X Blocked, Brazilians Find New Homes for Their Thoughts**\
+`The platform went dark across Brazil on Saturday, sending online commentators to new digital town squares.`\
+https://nytimes.com/2024/08/31/technology/x-blocked-brazil-reactions.html
+
 **The Briefing: West Ham 1 Manchester City 3 - Another Haaland hat-trick but where is Walker?**\
 `Haaland scored the 24th hat-trick of his career at the ripe old age of 24 to seal victory for Manchester City away to West Ham`\
 https://nytimes.com/athletic/5726149/2024/08/31/west-ham-manchester-city-haaland-hat-trick/
