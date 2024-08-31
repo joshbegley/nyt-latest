@@ -1,3 +1,11 @@
+**Criticizing Trump, Harris Says Arlington Is ‘Not a Place for Politics’**\
+`Donald J. Trump’s campaign filmed him at Arlington National Cemetery on Monday, which led to a confrontation between one of his political aides and a cemetery official.`\
+https://nytimes.com/2024/08/31/us/politics/trump-harris-arlington-cemetery.html
+
+**Judge Dismisses Suit Seeking to Ban Smoking in Atlantic City Casinos**\
+`The judge said a loophole exempting casinos from a statewide ban on indoor smoking did not keep workers from pursuing employment in smoke-free environments.`\
+https://nytimes.com/2024/08/31/nyregion/indoor-smoking-casinos-atlantic-city-ruling.html
+
 **Arsenal's Rice apologises for "harsh" red card during Brighton draw**\
 `Declan Rice has apologised to his Arsenal team-mates and supporters for his red card in their 1-1 draw against Brighton &amp; Hove Albion, which he thought was a “harsh” sending off.`\
 https://nytimes.com/athletic/5736361/2024/08/31/arsenal-rice-red-card-brighton/
