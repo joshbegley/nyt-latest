@@ -1,3 +1,7 @@
+**Dallas Police Officer ‘Executed’ in Premeditated Attack, Officials Say**\
+`Two other officers were also shot, and one of them remains hospitalized. After a pursuit, the suspect was killed by the police, authorities said.`\
+https://nytimes.com/2024/08/31/us/dallas-police-office-darron-burks-killed.html
+
 **3 Missing After Small Plane Crashes Into Oregon Townhouses**\
 `A Cessna crashed into a row of townhouses in Fairview, Ore., on Saturday, sparking a large fire, officials said.`\
 https://nytimes.com/2024/08/31/us/plane-crash-fairview-oregon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/31/world/europe/hvaldimir-spy-whale-dead.html
 **Pregnant archer wins bronze at Paralympics**\
 `This was Grinham's first time back at the podium since she won a silver medal at the 2016 Paralympics.`\
 https://nytimes.com/athletic/5736383/2024/08/31/jodie-grinham-paralympics-bronze-pregnancy/
-
-**Barcelona 7 Real Valladolid 0: Raphinha's hat-trick, Olmo shines and Casado slots in nicely**\
-`Laia Cervello Herrero analyses the key talking points from Barcelona's 7-0 thumping of Real Valladolid`\
-https://nytimes.com/athletic/5736392/2024/08/31/barcelona-7-valladolid-0-raphinha-dani-olmo-casado/
 
