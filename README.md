@@ -1,3 +1,7 @@
+**The Old Man?**\
+`Sam Ezersky’s themeless Saturday grid will get you going.`\
+https://nytimes.com/2024/08/30/crosswords/daily-puzzle-2024-08-31.html
+
 **Freddie Freeman returns to the Dodgers lineup with his finger still broken, but mind reset**\
 `Freeman hit a two-run home run in his first at-bat on Friday after missing three games.`\
 https://nytimes.com/athletic/5735393/2024/08/30/freddie-freeman-broken-finger-dodgers-lineup/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/30/movies/robbie-williams-biopic-better-man-monkey.h
 **Forever 'Johnny Hockey': Gaudreau's inspiring skill transcended his size**\
 `The 5-foot-7, 160-pound left winger touched and inspired an enormous number of lives.`\
 https://nytimes.com/athletic/5734785/2024/08/30/johnny-gaudreau-nhl-flames-blue-jackets-legacy/
-
-**Leicester sign Edouard from Crystal Palace**\
-`Leicester City have signed striker Odsonne Edouard on a season-long loan from Crystal Palace.`\
-https://nytimes.com/athletic/5734574/2024/08/30/leicester-city-odsonne-edouard/
 
