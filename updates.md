@@ -1,3 +1,11 @@
+**Aryna Sabalenka starts U.S. Open match after midnight in first year of late night policy**\
+`NEW YORK — How does a U.`\
+https://nytimes.com/athletic/5735794/2024/08/31/sabalenka-us-open-midnight-latest-start-history/
+
+**College Football Playoff 2024 projections: Our 12-team bracket with Week 1 underway**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/08/31/college-football-playoff-projections-odds/
+
 **Novak Djokovic eliminated from U.S. Open 24 hours after Carlos Alcaraz**\
 `The 24-time Grand Slam champion succumbed to a display from the Australian that was first dominant, and then gritty.`\
 https://nytimes.com/athletic/5735483/2024/08/31/novak-djokovic-us-open-alexei-popyrin-result/

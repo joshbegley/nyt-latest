@@ -1,3 +1,11 @@
+**Aryna Sabalenka starts U.S. Open match after midnight in first year of late night policy**\
+`NEW YORK — How does a U.`\
+https://nytimes.com/athletic/5735794/2024/08/31/sabalenka-us-open-midnight-latest-start-history/
+
+**College Football Playoff 2024 projections: Our 12-team bracket with Week 1 underway**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/08/31/college-football-playoff-projections-odds/
+
 **Novak Djokovic eliminated from U.S. Open 24 hours after Carlos Alcaraz**\
 `The 24-time Grand Slam champion succumbed to a display from the Australian that was first dominant, and then gritty.`\
 https://nytimes.com/athletic/5735483/2024/08/31/novak-djokovic-us-open-alexei-popyrin-result/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/08/31/opinion/trump-voters-liberal-civil.html
 **Kamala Harris Is Breaking Barriers. She Just Isn’t Talking About It.**\
 `Can she finally move us past identity politics?`\
 https://nytimes.com/2024/08/31/opinion/kamala-harris-gender.html
-
-**The Ancient Roots of Trump’s Attacks on Harris**\
-`The Trump campaign’s attacks on Kamala Harris echo misogynistic attacks on ancient Roman empresses and medieval queens.`\
-https://nytimes.com/2024/08/31/opinion/trump-harris-misogyny-history-rome.html
-
-**The Sacred Appeal of Household Labor**\
-`I used to consider the work I needed to do around the house expendable. I now see it as integral to my and my family’s happiness.`\
-https://nytimes.com/2024/08/31/opinion/household-labor-work-laundry-faith.html
 
