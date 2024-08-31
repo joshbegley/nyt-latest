@@ -1,3 +1,7 @@
+**Conservative Moms, Charmed by Trump, Would Rather Avoid His Misogyny**\
+`Former President Donald J. Trump spoke at a convention of the Moms for Liberty in Washington.`\
+https://nytimes.com/2024/08/31/us/elections/conservative-moms-for-liberty-trump.html
+
 **Eiffel Tower Will Keep Olympic Rings Permanently, Mayor Says**\
 `“I want the two to remain married,” Mayor Anne Hidalgo of Paris said in a newspaper interview.`\
 https://nytimes.com/2024/08/31/world/europe/olympic-rings-eiffel-tower.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5736433/2024/08/31/bubba-wallace-pole-darlington-na
 **Georgia smothers Clemson: Has anything changed for either program?**\
 `Georgia took a while to get going but flexed its muscles in the second half with a dominating win over Clemson. `\
 https://nytimes.com/athletic/5736329/2024/08/31/georgia-clemson-dabo-swinney-carson-beck/
-
-**Criticizing Trump, Harris Says Arlington Is ‘Not a Place for Politics’**\
-`Donald J. Trump’s campaign filmed him at Arlington National Cemetery on Monday, which led to a confrontation between one of his political aides and a cemetery official.`\
-https://nytimes.com/2024/08/31/us/politics/trump-harris-arlington-cemetery.html
 
