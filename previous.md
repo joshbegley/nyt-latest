@@ -1,3 +1,11 @@
+**BYU DC could return to coach opener just 2 days after heart surgery**\
+`Hill went through Thursday’s lifting session with the team then went to the hospital due to chest pain.`\
+https://nytimes.com/athletic/5736459/2024/08/31/jay-hill-byu-southern-illinois-heart-procedures-return/
+
+**Bubba Wallace wins pole for NASCAR regular-season finale**\
+`“I think the pressure just switched,” Wallace said. “We’re not here to mess around.”`\
+https://nytimes.com/athletic/5736433/2024/08/31/bubba-wallace-pole-darlington-nascar/
+
 **Georgia smothers Clemson: Has anything changed for either program?**\
 `Georgia took a while to get going but flexed its muscles in the second half with a dominating win over Clemson. `\
 https://nytimes.com/athletic/5736329/2024/08/31/georgia-clemson-dabo-swinney-carson-beck/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5736277/2024/08/31/college-football-two-minute-warn
 **F1 Italian GP preview: Verstappen’s struggles hand McLaren a big chance at Monza**\
 `As Monza prepares to close out the European leg of the F1 season, here are the storylines to watch for in the Italian Grand Prix.`\
 https://nytimes.com/athletic/5736180/2024/08/31/f1-italian-gp-preview-norris-verstappen-mclaren-red-bull/
-
-**NCAA blocks Oklahoma State QR code helmet sticker**\
-`The NCAA ruled that the markers are unpermitted “advertising or commercial marks,” the school said in a statement released Saturday.`\
-https://nytimes.com/athletic/5736259/2024/08/31/oklahoma-state-qr-codes-ncaa-sdsu/
-
-**Darren Baker, son of Dusty, called up by Nationals**\
-`The younger Baker first became known nationally in 2002 when he was scooped up at home plate during Game 5 of the 2002 World Series.`\
-https://nytimes.com/athletic/5736252/2024/08/31/darren-baker-dusty-son-nationals-prospect/
 

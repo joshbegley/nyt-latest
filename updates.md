@@ -1,3 +1,11 @@
+**BYU DC could return to coach opener just 2 days after heart surgery**\
+`Hill went through Thursday’s lifting session with the team then went to the hospital due to chest pain.`\
+https://nytimes.com/athletic/5736459/2024/08/31/jay-hill-byu-southern-illinois-heart-procedures-return/
+
+**Bubba Wallace wins pole for NASCAR regular-season finale**\
+`“I think the pressure just switched,” Wallace said. “We’re not here to mess around.”`\
+https://nytimes.com/athletic/5736433/2024/08/31/bubba-wallace-pole-darlington-nascar/
+
 **Georgia smothers Clemson: Has anything changed for either program?**\
 `Georgia took a while to get going but flexed its muscles in the second half with a dominating win over Clemson. `\
 https://nytimes.com/athletic/5736329/2024/08/31/georgia-clemson-dabo-swinney-carson-beck/
