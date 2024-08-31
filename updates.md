@@ -1,3 +1,11 @@
+**Freshman Dylan Raiola shows he was worth the way for Nebraska**\
+`Raiola threw two touchdown passes in his first game for Nebraska, and now the Huskers can turn their focus to Colorado.`\
+https://nytimes.com/athletic/5736866/2024/08/31/nebraska-football-dylan-raiola-takeaways-colorado/
+
+**Plane Crashes Into Townhouses in Oregon**\
+`A small plane struck a row of townhouses in Fairview, Ore., according to the authorities, who said at least three people were missing.`\
+https://nytimes.com/video/us/100000009668044/oregon-plane-crash.html
+
 **Detroit Lions fan survey: Confidence in coaching staff, best offseason moves, more**\
 `The 2024 NFL season is almost here, and Detroit Lions football soon will be on your screens again.`\
 https://nytimes.com/athletic/5736421/2024/08/31/detroit-lions-fan-survey-questions-2024/
