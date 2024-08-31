@@ -1,3 +1,7 @@
+**Trump Signals Support for Marijuana Legalization in Florida**\
+`“Whether people like it or not, this will happen,” former President Donald J. Trump said on Saturday. Gov. Ron DeSantis opposes the measure.`\
+https://nytimes.com/2024/08/31/us/elections/trump-marijuana-legalization-florida.html
+
 **Pablo López is rolling again, just when the Twins need their No. 1 starter the most**\
 `It's a similar story to last season, when López bounced back from an early slump to dominate down the stretch and in the playoffs.`\
 https://nytimes.com/athletic/5735819/2024/08/31/pablo-lopez-twins-starter-playoffs/
