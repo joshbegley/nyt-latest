@@ -1,3 +1,7 @@
+**Hiker Is Found Dead in Grand Canyon National Park**\
+`The 60-year-old from North Carolina was on a multiday backpacking trip. His death was the sixth reported inside the Arizona park this month.`\
+https://nytimes.com/2024/08/31/us/grand-canyon-hiker-death.html
+
 **Why Karolina Muchova's textured, elegant tennis is huge for the WTA Tour**\
 `Returning from a serious wrist injury, last year's U.S. Open semifinalist is reminding the tennis world of the beauty of her game.`\
 https://nytimes.com/athletic/5733246/2024/08/31/karolina-muchova-us-open-comeback-osaka-womens-tennis/
