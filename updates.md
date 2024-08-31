@@ -1,3 +1,11 @@
+**Detroit Lions fan survey: Confidence in coaching staff, best offseason moves, more**\
+`The 2024 NFL season is almost here, and Detroit Lions football soon will be on your screens again.`\
+https://nytimes.com/athletic/5736421/2024/08/31/detroit-lions-fan-survey-questions-2024/
+
+**After getting routed by Georgia, it's clear Clemson and Dabo Swinney have lost their way**\
+`The bleak reality for the Tigers is that this just might be Clemson’s new norm.`\
+https://nytimes.com/athletic/5736777/2024/08/31/clemson-georgia-dabo-swinney-lost-way/
+
 **Arch Manning scores first TDs of college career vs. Colorado State**\
 `Manning hit transfer receiver Silas Bolden for the first TD of his college career, then rushed for a score on a QB sneak. `\
 https://nytimes.com/athletic/5736769/2024/08/31/arch-manning-first-career-tds-texas/
