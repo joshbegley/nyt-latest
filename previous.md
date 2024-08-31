@@ -1,3 +1,7 @@
+**Athletic Bilbao's Williams on future: "God knows what will happen"**\
+`Nico Williams says that he is very happy at Athletic Bilbao but &#8220;God knows what will happen in the future&#8221;.`\
+https://nytimes.com/athletic/5736614/2024/08/31/nico-williams-future-transfer/
+
 **Fatman Scoop, a D.J. and Rapper, Dies**\
 `He was at the Hamden Town Center Park in Hamden, Conn., when he collapsed onstage on Friday night.`\
 https://nytimes.com/2024/08/31/arts/music/fatman-scoop-rapper-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5736394/2024/08/31/leicester-cooper-referee-premier
 **BYU DC will not coach opener after undergoing heart procedure 2 days ago**\
 `Hill went through Thursday’s lifting session with the team then went to the hospital due to chest pain.`\
 https://nytimes.com/athletic/5736459/2024/08/31/jay-hill-byu-southern-illinois-heart-procedures-return/
-
-**Bubba Wallace wins pole for NASCAR regular-season finale**\
-`“I think the pressure just switched,” Wallace said. “We’re not here to mess around.”`\
-https://nytimes.com/athletic/5736433/2024/08/31/bubba-wallace-pole-darlington-nascar/
 
