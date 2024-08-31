@@ -1,3 +1,7 @@
+**West Ham's Kurt Zouma completes Al Orobah loan move**\
+`Kurt Zouma has joined Saudi Arabian club Al Orobah on loan from West Ham United.`\
+https://nytimes.com/athletic/5695689/2024/08/31/kurt-zouma-west-ham-transfers/
+
 **Arteta and Saka criticise referee 'inconsistencies' after Rice red card**\
 `Mikel Arteta and Bukayo Saka have both said there were &#8220;inconsistencies&#8221; with the officiating in their side&#8217;s 1-1 draw against Brighton &amp; Hove Albion after Declan Rice was shown a red card.`\
 https://nytimes.com/athletic/5735930/2024/08/31/declan-rice-red-card-arsenal-brighton/
