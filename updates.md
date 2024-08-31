@@ -1,3 +1,7 @@
+**Dodgers lose Clayton Kershaw, but cling to win unlikely game over Arizona to expand lead**\
+`There are serious and existential questions for the Dodgers as they head toward October, even after an unlikely win.`\
+https://nytimes.com/athletic/5735613/2024/08/31/dodgers-clayton-kershaw-arizona/
+
 **Inside Arsenal's transfer window: Sterling loan terms and goalkeeper frustration**\
 `This is the story of Arsenal's transfer window, which concluded with late moves on Friday`\
 https://nytimes.com/athletic/5734053/2024/08/31/arsenal-transfer-window-latest-news-inside/

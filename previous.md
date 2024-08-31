@@ -1,3 +1,7 @@
+**Dodgers lose Clayton Kershaw, but cling to win unlikely game over Arizona to expand lead**\
+`There are serious and existential questions for the Dodgers as they head toward October, even after an unlikely win.`\
+https://nytimes.com/athletic/5735613/2024/08/31/dodgers-clayton-kershaw-arizona/
+
 **Inside Arsenal's transfer window: Sterling loan terms and goalkeeper frustration**\
 `This is the story of Arsenal's transfer window, which concluded with late moves on Friday`\
 https://nytimes.com/athletic/5734053/2024/08/31/arsenal-transfer-window-latest-news-inside/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5734996/2024/08/31/wisconsin-badgers-win-western-mi
 **Tottenham's transfer window: Promise for the future, but are they short now?**\
 `The arrivals of Solanke, Bergvall, Odobert and Gray show promise, but a lack of defensive cover could become an issue`\
 https://nytimes.com/athletic/5726113/2024/08/31/tottenham-transfer-window-solanke-gray/
-
-**Inside West Ham's transfer window: An unprecedented summer as Steidten asserts authority**\
-`The technical director oversaw the arrival of nine senior players and the appointment of Julen Lopetegui over a frantic closed season`\
-https://nytimes.com/athletic/5704725/2024/08/31/inside-west-hams-transfer-window-an-unprecedented-summer-as-steidten-asserts-authority/
 
