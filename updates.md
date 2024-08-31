@@ -1,3 +1,7 @@
+**Jordan Walker is back with the Cardinals: 'He will play every day'**\
+`After Walker's strong month with Triple-A Memphis, the Cardinals plan to give him consistent playing time at the big-league level.`\
+https://nytimes.com/athletic/5735154/2024/08/30/jordan-walker-cardinals/
+
 **Arteta turned Sterling into a penalty-box threat - he can do it again at Arsenal**\
 `Why Sterling's role at Manchester City is a more useful pointer than his time in an unstable Chelsea side during the past two years`\
 https://nytimes.com/athletic/5735144/2024/08/30/raheem-sterling-mikel-arteta-tactics/
