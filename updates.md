@@ -1,3 +1,11 @@
+**What We Know About the Polio Crisis in Gaza**\
+`Israel and Hamas have agreed to brief pauses in fighting so that humanitarian workers can begin an inoculation campaign.`\
+https://nytimes.com/2024/08/31/world/middleeast/gaza-polio-crisis.html
+
+**What to watch at U.S. Open on day 6: Wide open men's draw meets Shnaider and Swiatek**\
+`The best matches to look out for on the sixth day of the 2024 U.S. Open`\
+https://nytimes.com/athletic/5734634/2024/08/31/us-open-day-6-watch-guide-swiatek-medvedev-paolini/
+
 **Why Mercedes F1 put its faith in 18-year-old Kimi Antonelli to replace Lewis Hamilton**\
 `Not since Max Verstappen joined the grid in 2015 has there been such hype around a young driver. `\
 https://nytimes.com/athletic/5734958/2024/08/31/kimi-antonelli-f1-mercedes-lewis-hamilton-2025/
