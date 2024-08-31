@@ -1,3 +1,7 @@
+**Ohtani makes MLB history with 43-43 season**\
+`Ohtani was already the first Dodger to join the 40-40 club, achieving the feat in a record 126 games.`\
+https://nytimes.com/athletic/5735565/2024/08/31/shohei-ohtani-dodgers-43-season/
+
 **Astros flirt with yet another no-hitter, happily take walk-off win instead**\
 `Framber Valdez didn't allow a hit in seven innings of work, then watched Jose Altuve deliver a walk-off victory over the Royals.`\
 https://nytimes.com/athletic/5735549/2024/08/31/astros-framber-valdez-near-no-hitter/
