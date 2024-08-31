@@ -1,3 +1,11 @@
+**Colts’ Granson to wear Guardian Cap in regular season**\
+`“At one point people thought seatbelts were f---ing stupid,” Granson told The Athletic on Thursday.`\
+https://nytimes.com/athletic/5735947/2024/08/31/colts-kylen-granson-guardian-cap/
+
+**How the 49ers paid Brandon Aiyuk — while saving room for Trent Williams and Brock Purdy**\
+`The 49ers used guaranteed money to deliver the cash Aiyuk sought while offering flexibility to pay their other stars.`\
+https://nytimes.com/athletic/5735021/2024/08/31/brandon-aiyuk-contract-san-francisco-49ers/
+
 **Maybe We Are Asking Presidential Candidates the Wrong Questions**\
 `Harris needs to talk about her theory of the presidency, not relitigate her campaign controversies.`\
 https://nytimes.com/2024/08/31/opinion/harris-cnn-interview-president.html
