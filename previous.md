@@ -1,3 +1,19 @@
+**Emerson: This Georgia team has the key trait of the program's two recent national champions**\
+`Georgia has mastered the stranglehold-type game, where it’s close for a while, then the Bulldogs run away and the opponent wears out.`\
+https://nytimes.com/athletic/5736591/2024/08/31/georgia-football-national-championship-contender/
+
+**Product Integration**\
+`September, already? Chandi Deitmer and Matthew Stock’s puzzle tosses some math into the mix.`\
+https://nytimes.com/2024/08/31/crosswords/daily-puzzle-2024-09-01.html
+
+**Israel Says It Has Recovered More Bodies in Gaza**\
+`The Israeli military asked the public not to speculate, but many Israelis assumed the announcement referred to dead hostages. The news amplified calls for a cease-fire and hostage-release deal.`\
+https://nytimes.com/2024/08/31/world/middleeast/israel-gaza-hostage-bodies.html
+
+**San Diego School Superintendent Is Fired After Misconduct Investigation**\
+`Lamont Jackson, who led California’s second-largest school district, engaged in “unwelcome, sex-based behavior” toward two female employees, the investigation found.`\
+https://nytimes.com/2024/08/31/us/san-diego-superintendent-fired-misconduct.html
+
 **Dallas Police Officer ‘Executed’ in Premeditated Attack, Officials Say**\
 `Two other officers were also shot, and one of them remains hospitalized. After a pursuit, the suspect was killed by the police, authorities said.`\
 https://nytimes.com/2024/08/31/us/dallas-police-office-darron-burks-killed.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/08/31/arts/music/fatman-scoop-rapper-dead.html
 **Conservative Moms, Charmed by Trump, Would Rather Avoid His Misogyny**\
 `Former President Donald J. Trump spoke at a convention of the Moms for Liberty in Washington.`\
 https://nytimes.com/2024/08/31/us/elections/conservative-moms-for-liberty-trump.html
-
-**Eiffel Tower Will Keep Olympic Rings Permanently, Mayor Says**\
-`“I want the two to remain married,” Mayor Anne Hidalgo of Paris said in a newspaper interview.`\
-https://nytimes.com/2024/08/31/world/europe/olympic-rings-eiffel-tower.html
-
-**NFL Draft: Carson Beck, Malaki Starks look like top-10 picks in rout of Clemson**\
-`Georgia's biggest stars went off in a blowout win over Clemson. What's it all mean for those prospects' NFL hopes?`\
-https://nytimes.com/athletic/5736415/2024/08/31/nfl-draft-2025-malaki-starks-clemson/
-
-**Hvaldimir, a Celebrated ‘Spy’ Whale, Is Found Dead in Norway**\
-`The beluga whale, who was first spotted in 2019 wearing what looked like a camera harness, was seen floating in Norwegian waters on Saturday.`\
-https://nytimes.com/2024/08/31/world/europe/hvaldimir-spy-whale-dead.html
-
-**Pregnant archer wins bronze at Paralympics**\
-`This was Grinham's first time back at the podium since she won a silver medal at the 2016 Paralympics.`\
-https://nytimes.com/athletic/5736383/2024/08/31/jodie-grinham-paralympics-bronze-pregnancy/
 
