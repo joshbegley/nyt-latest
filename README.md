@@ -1,3 +1,15 @@
+**Transfer window roundtable: Debating the best, worst and most surprising deals of the summer**\
+`Our writers debate the winners and losers from a summer of feverish transfer business`\
+https://nytimes.com/athletic/5734008/2024/08/31/transfer-window-summer-2024/
+
+**Chelsea saw an opportunity in Sancho - if he hits heights again it will be well worth risk**\
+`Signing the Manchester United winger has its risks, but there are huge upsides`\
+https://nytimes.com/athletic/5734875/2024/08/31/jadon-sancho-chelsea-analysis/
+
+**Greenberg: Caitlin Clark and the Fever are rising, while Angel Reese and the Sky are falling**\
+`The Rookie of the Year award matters less than whether these stars can take their teams to the postseason.`\
+https://nytimes.com/athletic/5735473/2024/08/31/caitlin-clark-fever-angel-reese-sky-wnba-playoffs/
+
 **The Angry East**\
 `As east Germans vote, a region in decline is searching for answers on the political extremes.`\
 https://nytimes.com/2024/08/31/world/europe/germany-saxony-elections.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/08/31/pageoneplus/quotation-of-the-day-deepfake-musk-st
 **Saturday's MLB odds, projections: Best bets for pitching matchups, every game**\
 `See pitching matchups, playoff projections, win projections and more for Saturday's MLB games.`\
 https://nytimes.com/athletic/5734976/2024/08/31/mlb-odds-best-bets-projections-august-31/
-
-**Reds' Rhett Lowder allows just one run in big-league debut**\
-`Lowder allowed one earned run and struck out six over four innings in Cincinnati's 14-0 loss to the Brewers.`\
-https://nytimes.com/athletic/5735484/2024/08/30/reds-rhett-lowder-mlb-debut/
-
-**Novak Djokovic eliminated from U.S. Open 24 hours after Carlos Alcaraz**\
-`The 24-time Grand Slam champion succumbed to a display from the Australian that was first dominant, and then gritty.`\
-https://nytimes.com/athletic/5735483/2024/08/30/novak-djokovic-us-open-alexei-popyrin-result/
-
-**Reynaldo López wins again, Orlando Arcia homers twice for resurgent Braves offense**\
-`Atlanta's back-to-back jacks in the third inning took some of the gusto out of the leather-lunged Phillies fans at Citizens Bank Park.`\
-https://nytimes.com/athletic/5735452/2024/08/30/braves-reynaldo-lopez-orlando-arcia-phillies/
 
