@@ -1,3 +1,11 @@
+**Former Miss Teen USA Contestant Rebukes Vance for Using Her Flub to Attack Harris**\
+`Caite Upton wrote on social media that “online bullying needs to stop,” after JD Vance posted a clip of her mangled answer from the 2007 Miss Teen USA pageant to mock Kamala Harris.`\
+https://nytimes.com/2024/08/31/us/politics/vance-harris-caite-upton.html
+
+**Israel Says It Has Recovered More Bodies in Gaza**\
+`The Israeli military asked the public not to speculate, but many Israelis assumed the announcement referred to dead hostages. The news amplified calls for a cease-fire and hostage-release deal.`\
+https://nytimes.com/2024/08/31/world/middleeast/israel-gaza-bodies.html
+
 **Penn State takeaways: What did new-look offense reveal in win at West Virginia?**\
 `With creativity, explosive plays and 457 total yards, it was clear this is a new and improved offense.`\
 https://nytimes.com/athletic/5736680/2024/08/31/penn-state-win-west-virginia-offense/
