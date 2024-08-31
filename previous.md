@@ -1,3 +1,7 @@
+**These Two Books Ask, Was the Movie Better?**\
+`The French novel that was adapted into “Vertigo”; Cameron Crowe’s nonfiction account of a year inside a public high school.`\
+https://nytimes.com/2024/08/31/books/review/these-two-books-ask-was-the-movie-better.html
+
 **When the Flash Flood Comes With Godlike Velocity, Why Do I Stay and Watch?**\
 `This series of floods didn’t force us to leave. But the next ones might.`\
 https://nytimes.com/2024/08/31/opinion/flash-floods-arizona-utah-climate-change.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/31/opinion/heat-wave-air-conditioning-climate-change
 **As Israel Keeps Fighting in West Bank, Residents in One Area Assess the Damage**\
 `In the Nur Shams area near Tulkarm, Israeli bulldozers have chewed up large chunks of the roads, and many homes have been left without running water.`\
 https://nytimes.com/2024/08/31/world/israel-west-bank.html
-
-**A Playlist to Remember**\
-`Songs can help demarcate this chapter of your life: It’s a way to mark time, to keep one period of time from bleeding indistinctly into the next.`\
-https://nytimes.com/2024/08/31/briefing/a-playlist-to-remember.html
 

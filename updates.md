@@ -1,3 +1,7 @@
+**These Two Books Ask, Was the Movie Better?**\
+`The French novel that was adapted into “Vertigo”; Cameron Crowe’s nonfiction account of a year inside a public high school.`\
+https://nytimes.com/2024/08/31/books/review/these-two-books-ask-was-the-movie-better.html
+
 **Inside Forest's transfer window: More options and a little less chaos — but no new striker**\
 `Forest failed in bids to bring in a striker but Nuno Espirito Santo now has strength in depth in most areas of his squad`\
 https://nytimes.com/athletic/5735351/2024/08/31/nottingham-forest-transfer-window-2024/
