@@ -1,3 +1,7 @@
+**Eiffel Tower Will Keep Olympic Rings Permanently, Mayor Says**\
+`“I want the two to remain married,” Mayor Anne Hidalgo of Paris said in a newspaper interview.`\
+https://nytimes.com/2024/08/31/world/europe/olympic-rings-eiffel-tower.html
+
 **NFL Draft: Carson Beck, Malaki Starks look like top-10 picks in rout of Clemson**\
 `Georgia's biggest stars went off in a blowout win over Clemson. What's it all mean for those prospects' NFL hopes?`\
 https://nytimes.com/athletic/5736415/2024/08/31/nfl-draft-2025-malaki-starks-clemson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5736329/2024/08/31/georgia-clemson-dabo-swinney-car
 **Criticizing Trump, Harris Says Arlington Is ‘Not a Place for Politics’**\
 `Donald J. Trump’s campaign filmed him at Arlington National Cemetery on Monday, which led to a confrontation between one of his political aides and a cemetery official.`\
 https://nytimes.com/2024/08/31/us/politics/trump-harris-arlington-cemetery.html
-
-**Judge Dismisses Suit Seeking to Ban Smoking in Atlantic City Casinos**\
-`The judge said a loophole exempting casinos from a statewide ban on indoor smoking did not keep workers from pursuing employment in smoke-free environments.`\
-https://nytimes.com/2024/08/31/nyregion/indoor-smoking-casinos-atlantic-city-ruling.html
 

@@ -1,3 +1,7 @@
+**Eiffel Tower Will Keep Olympic Rings Permanently, Mayor Says**\
+`“I want the two to remain married,” Mayor Anne Hidalgo of Paris said in a newspaper interview.`\
+https://nytimes.com/2024/08/31/world/europe/olympic-rings-eiffel-tower.html
+
 **NFL Draft: Carson Beck, Malaki Starks look like top-10 picks in rout of Clemson**\
 `Georgia's biggest stars went off in a blowout win over Clemson. What's it all mean for those prospects' NFL hopes?`\
 https://nytimes.com/athletic/5736415/2024/08/31/nfl-draft-2025-malaki-starks-clemson/
