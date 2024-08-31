@@ -1,3 +1,11 @@
+**Colts’ Granson to wear Guardian Cap in regular season**\
+`“At one point people thought seatbelts were f---ing stupid,” Granson told The Athletic on Thursday.`\
+https://nytimes.com/athletic/5735947/2024/08/31/colts-kylen-granson-guardian-cap/
+
+**How the 49ers paid Brandon Aiyuk — while saving room for Trent Williams and Brock Purdy**\
+`The 49ers used guaranteed money to deliver the cash Aiyuk sought while offering flexibility to pay their other stars.`\
+https://nytimes.com/athletic/5735021/2024/08/31/brandon-aiyuk-contract-san-francisco-49ers/
+
 **Maybe We Are Asking Presidential Candidates the Wrong Questions**\
 `Harris needs to talk about her theory of the presidency, not relitigate her campaign controversies.`\
 https://nytimes.com/2024/08/31/opinion/harris-cnn-interview-president.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5735903/2024/08/31/taylor-swift-chiefs-play-calls/
 **West Ham's Kurt Zouma completes Al Orobah loan move**\
 `Kurt Zouma has joined Saudi Arabian club Al Orobah on loan from West Ham United.`\
 https://nytimes.com/athletic/5695689/2024/08/31/kurt-zouma-west-ham-transfers/
-
-**Arteta and Saka criticise referee 'inconsistencies' after Rice red card**\
-`Mikel Arteta and Bukayo Saka have both said there were &#8220;inconsistencies&#8221; with the officiating in their side&#8217;s 1-1 draw against Brighton &amp; Hove Albion after Declan Rice was shown a red card.`\
-https://nytimes.com/athletic/5735930/2024/08/31/declan-rice-red-card-arsenal-brighton/
-
-**Is Wisconsin better than last year? Opening win provided no clarity**\
-`Wisconsin's 28-14 win against WMU, a result in doubt in the fourth quarter, did little to the move the needle for fans hungry for progress.`\
-https://nytimes.com/athletic/5735924/2024/08/31/wisconsin-badgers-football-western-michigan-score/
 
