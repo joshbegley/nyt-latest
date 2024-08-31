@@ -1,3 +1,7 @@
+**Emerson: This Georgia team has the key trait of the program's two recent national champions**\
+`Georgia has mastered the stranglehold-type game, where it’s close for a while, then the Bulldogs run away and the opponent wears out.`\
+https://nytimes.com/athletic/5736591/2024/08/31/georgia-football-national-championship-contender/
+
 **Product Integration**\
 `September, already? Chandi Deitmer and Matthew Stock’s puzzle tosses some math into the mix.`\
 https://nytimes.com/2024/08/31/crosswords/daily-puzzle-2024-09-01.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/31/arts/music/fatman-scoop-rapper-dead.html
 **Conservative Moms, Charmed by Trump, Would Rather Avoid His Misogyny**\
 `Former President Donald J. Trump spoke at a convention of the Moms for Liberty in Washington.`\
 https://nytimes.com/2024/08/31/us/elections/conservative-moms-for-liberty-trump.html
-
-**Eiffel Tower Will Keep Olympic Rings Permanently, Mayor Says**\
-`“I want the two to remain married,” Mayor Anne Hidalgo of Paris said in a newspaper interview.`\
-https://nytimes.com/2024/08/31/world/europe/olympic-rings-eiffel-tower.html
 
