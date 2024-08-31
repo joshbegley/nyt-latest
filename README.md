@@ -1,40 +1,40 @@
-**Palace sign Chelsea's Chalobah on season-long loan deal**\
-`Trevoh Chalobah has joined Crystal Palace from Chelsea on a season-long loan deal.`\
-https://nytimes.com/athletic/5735686/2024/08/31/trevoh-chalobah-crystal-palace-loan-chelsea-transfers/
+**The Constitution is Sacred. Is It Also Dangerous?**\
+`One of the biggest threats to America’s politics might be the country’s founding document.`\
+https://nytimes.com/2024/08/31/books/review/constitution-secession-democracy-crisis.html
 
-**Betis sign Tottenham's Giovani Lo Celso on four-year deal**\
-`Real Betis have re-signed Giovani Lo Celso from Tottenham Hotspur on a permanent transfer.`\
-https://nytimes.com/athletic/5731130/2024/08/31/giovani-lo-celso-betis-transfer/
+**‘Ice Cold’: From Biggie to Lil Yachty, Getting Your Shine On**\
+`Hip-hop jewelry does a lot of heavy lifting in a new exhibition in Manhattan. It signifies elite membership, romantic courtship and ambition for greatness.`\
+https://nytimes.com/2024/08/31/arts/design/ice-cold-hip-hop-jewelry-museum.html
 
-**What We Know About the Polio Crisis in Gaza**\
-`Israel and Hamas have agreed to brief pauses in fighting so that humanitarian workers can begin an inoculation campaign.`\
-https://nytimes.com/2024/08/31/world/middleeast/gaza-polio-crisis.html
+**U.S. Open day 5 recap: Why is tennis fashion seeing double? What makes an upset?**\
+`Novak Djokovic was knocked out of the U.S. Open, but plenty more took place in New York on day five`\
+https://nytimes.com/athletic/5734714/2024/08/31/u-s-open-day-5-takeaways-mens-draw-upsets-tennis-outfits/
 
-**What to watch at U.S. Open on day 6: Wide open men's draw meets Shnaider and Swiatek**\
-`The best matches to look out for on the sixth day of the 2024 U.S. Open`\
-https://nytimes.com/athletic/5734634/2024/08/31/us-open-day-6-watch-guide-swiatek-medvedev-paolini/
+**Hurling in Ireland: Is the ‘Clash of the Ash’ Becoming a ‘Battle of Bamboo’?**\
+`For centuries, the sport’s wooden sticks have been made from Ireland’s ash trees. But with a disease destroying forests, the ancient game is turning to different materials.`\
+https://nytimes.com/2024/08/31/world/europe/hurling-ireland-ash-bamboo.html
 
-**Why Mercedes F1 put its faith in 18-year-old Kimi Antonelli to replace Lewis Hamilton**\
-`Not since Max Verstappen joined the grid in 2015 has there been such hype around a young driver. `\
-https://nytimes.com/athletic/5734958/2024/08/31/kimi-antonelli-f1-mercedes-lewis-hamilton-2025/
+**A Veteran Falls in Love With a Beautiful Woman, Including Her Spiraled Horn**\
+`The itinerant man in Gayl Jones’s “The Unicorn Woman” discovers his beloved as a sideshow carnival attraction.`\
+https://nytimes.com/2024/08/31/books/review/the-unicorn-woman-gayl-jones.html
 
-**Mercedes promotes Antonelli to replace Hamilton in 2025**\
-`The move to Mercedes' F1 team completes a rapid, hype-filled ascent for Antonelli, who turned 18 last weekend.`\
-https://nytimes.com/athletic/5729566/2024/08/31/f1-andrea-kimi-antonelli-mercedes/
+**Something’s Poisoning America’s Farms. Scientists Fear ‘Forever’ Chemicals.**\
+`A form of fertilizer made from city sewage has been spread on millions of acres for decades. Researchers say it contains alarming levels of the toxic substance.`\
+https://nytimes.com/2024/08/31/climate/pfas-fertilizer-sludge-farm.html
 
-**A Roller Derby Team Becomes a Bastion of Resistance to a Transgender Ban**\
-`In New York’s Nassau County, the Roller Rebels have joined with civil rights lawyers to face down the Republican county executive, Bruce Blakeman.`\
-https://nytimes.com/2024/08/31/nyregion/roller-rebels-transgender-ban-long-island.html
+**Can You Have a Stylish Wedding for Under $5,000? These Couples Did.**\
+`The national average wedding expense rose to more than $30,000 in 2024. Here’s how to plan a lovely wedding without breaking the bank.`\
+https://nytimes.com/2024/08/31/fashion/weddings/can-you-have-a-stylish-wedding-for-under-5000-these-couples-did.html
 
-**New York City’s Piers, Once Abandoned, Are Now Full of Life**\
-`In each of New York City’s boroughs, decrepit piers that once fed city industries have been brought back to life. Out over the water, they offer beauty, fun and respite from the city’s buzz.`\
-https://nytimes.com/2024/08/31/nyregion/summer-piers-nyc.html
+**In North Carolina, the Math for a Supermajority May Come Down to One**\
+`It’s one of several states where legislators of one party have overridden vetoes from a governor of the opposing party. Several tossup races will determine if that continues.`\
+https://nytimes.com/2024/08/31/us/veto-override-north-carolina.html
 
-**Corrections: Aug. 31, 2024**\
-`Corrections that appeared in print on Saturday, Aug. 31, 2024.`\
-https://nytimes.com/2024/08/31/pageoneplus/corrections-aug-31-2024.html
+**Should the Yankees call up Jasson Domínguez and start him over Alex Verdugo?**\
+`Verdugo hasn't hit as well as expected. There's a debate as to whether the Yankees should replace him with Domínguez when rosters expand.`\
+https://nytimes.com/athletic/5735275/2024/08/31/yankees-jasson-dominguez-alex-verdugo/
 
-**How a Sober-ish Writer Spends Her Sundays**\
-`Hilary Sheinbaum, who wrote “The Dry Challenge,” spends her Sundays running, gossiping over tennis and not (really) drinking alcohol.`\
-https://nytimes.com/2024/08/31/nyregion/hilary-steinbaum-dry-challenge.html
+**Notre Dame at Texas A&M picks, odds, how to watch: Fighting Irish head to Texas for a top-25 matchup**\
+`No. 7 Notre Dame vs. No. 20 Texas A&M sees two ranked teams battle it out in Week 1 of college football. The Aggies are narrowly favored.`\
+https://nytimes.com/athletic/5727266/2024/08/31/notre-dame-texas-am-picks-odds-how-to-watch/
 
