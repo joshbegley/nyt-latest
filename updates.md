@@ -1,3 +1,15 @@
+**Pregnant archer wins bronze at Paralympics**\
+`This was Grinham's first time back at the podium since she won a silver medal at the 2016 Paralympics.`\
+https://nytimes.com/athletic/5736383/2024/08/31/jodie-grinham-paralympics-bronze-pregnancy/
+
+**Barcelona 7 Real Valladolid 0: Raphinha's hat-trick, Olmo shines and Casado slots in nicely**\
+`Laia Cervello Herrero analyses the key talking points from Barcelona's 7-0 thumping of Real Valladolid`\
+https://nytimes.com/athletic/5736392/2024/08/31/barcelona-7-valladolid-0-raphinha-dani-olmo-casado/
+
+**BYU DC could return to coach opener just 2 days after heart procedure**\
+`Hill went through Thursday’s lifting session with the team then went to the hospital due to chest pain.`\
+https://nytimes.com/athletic/5736459/2024/08/31/jay-hill-byu-southern-illinois-heart-procedures-return/
+
 **Leicester boss Cooper bemoans standard of refereeing in Premier League**\
 `Leicester City manager Steve Cooper believes the standard of refereeing in the Premier League is ‘behind the curve’ of the standard of football.`\
 https://nytimes.com/athletic/5736394/2024/08/31/leicester-cooper-referee-premier-league/
