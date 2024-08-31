@@ -1,3 +1,7 @@
+**Reynaldo López wins again, Orlando Arcia homers twice for resurgent Braves offense**\
+`Arcia's back-to-back jacks took some of the gusto out of the leather-lunged Phillies fans at Citizens Bank Park.`\
+https://nytimes.com/athletic/5735452/2024/08/30/braves-reynaldo-lopez-orlando-arcia-phillies/
+
 **Bryce Harper and Ranger Suárez, both grinding through it, have a month to feel right**\
 `Harper has a .724 OPS since the All-Star break and Suárez only went four innings in Friday's 7-2 loss to the Braves.`\
 https://nytimes.com/athletic/5735459/2024/08/30/phillies-bryce-harper-ranger-suarez/

@@ -1,3 +1,7 @@
+**Reynaldo López wins again, Orlando Arcia homers twice for resurgent Braves offense**\
+`Arcia's back-to-back jacks took some of the gusto out of the leather-lunged Phillies fans at Citizens Bank Park.`\
+https://nytimes.com/athletic/5735452/2024/08/30/braves-reynaldo-lopez-orlando-arcia-phillies/
+
 **Bryce Harper and Ranger Suárez, both grinding through it, have a month to feel right**\
 `Harper has a .724 OPS since the All-Star break and Suárez only went four innings in Friday's 7-2 loss to the Braves.`\
 https://nytimes.com/athletic/5735459/2024/08/30/phillies-bryce-harper-ranger-suarez/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5735144/2024/08/30/raheem-sterling-mikel-arteta-tac
 **Trump Says He’ll Vote Against Florida’s Abortion Rights Measure After Conservative Backlash**\
 `A day earlier, the former president had suggested he might support the measure, which would expand abortion access in the state.`\
 https://nytimes.com/2024/08/30/us/politics/trump-florida-abortion-measure.html
-
-**Jordan Walker is back with the Cardinals: 'He will play every day'**\
-`After Walker's strong month with Triple-A Memphis, the Cardinals plan to give him consistent playing time at the big-league level.`\
-https://nytimes.com/athletic/5735154/2024/08/30/jordan-walker-cardinals/
 
