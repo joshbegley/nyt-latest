@@ -1,3 +1,7 @@
+**The Briefing: Arsenal 1 Brighton 1: Explaining Rice's red as Arsenal drop points in the title race**\
+`We break down the key talking points from Saturday's game at the Emirates Stadium`\
+https://nytimes.com/athletic/5726081/2024/08/31/arsenal-brighton-premier-league-result-analysis/
+
 **Aryna Sabalenka starts U.S. Open match after midnight in first year of late night policy**\
 `The U.S. Open has a policy to mitigate matches finishing late. It didn't stop a 12:08 a.m. walk-on for the second seed.`\
 https://nytimes.com/athletic/5735794/2024/08/31/sabalenka-us-open-midnight-latest-start-history/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5735351/2024/08/31/nottingham-forest-transfer-windo
 **Here’s Why We Shouldn’t Demean Trump Voters**\
 `Educated liberals often view the conservative working class with a whiff of condescension that is both unfair and counterproductive.`\
 https://nytimes.com/2024/08/31/opinion/trump-voters-liberal-civil.html
-
-**Kamala Harris Is Breaking Barriers. She Just Isn’t Talking About It.**\
-`Can she finally move us past identity politics?`\
-https://nytimes.com/2024/08/31/opinion/kamala-harris-gender.html
 
