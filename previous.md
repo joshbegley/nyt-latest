@@ -1,3 +1,7 @@
+**Novak Djokovic's Olympic gold cannot mask reality of his worst tennis year in ages**\
+`The 24-time major champion won the only tennis title he still coveted at the Olympics, but it was an outlier in a horrible year.`\
+https://nytimes.com/athletic/5735547/2024/08/31/novak-djokovic-season-results-2024/
+
 **Mahomes: Taylor Swift has drawn up plays**\
 `"She's really interested in football, and she asks a lot of great questions. Started drawing up plays. We might have to put one in."`\
 https://nytimes.com/athletic/5735903/2024/08/31/taylor-swift-chiefs-play-calls/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5735794/2024/08/31/sabalenka-us-open-midnight-lates
 **College Football Playoff 2024 projections: Our 12-team bracket with Week 1 underway**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/08/31/college-football-playoff-projections-odds/
-
-**Novak Djokovic eliminated from U.S. Open 24 hours after Carlos Alcaraz**\
-`The 24-time Grand Slam champion succumbed to a display from the Australian that was first dominant, and then gritty.`\
-https://nytimes.com/athletic/5735483/2024/08/31/novak-djokovic-us-open-alexei-popyrin-result/
 

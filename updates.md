@@ -1,3 +1,7 @@
+**Novak Djokovic's Olympic gold cannot mask reality of his worst tennis year in ages**\
+`The 24-time major champion won the only tennis title he still coveted at the Olympics, but it was an outlier in a horrible year.`\
+https://nytimes.com/athletic/5735547/2024/08/31/novak-djokovic-season-results-2024/
+
 **Mahomes: Taylor Swift has drawn up plays**\
 `"She's really interested in football, and she asks a lot of great questions. Started drawing up plays. We might have to put one in."`\
 https://nytimes.com/athletic/5735903/2024/08/31/taylor-swift-chiefs-play-calls/
