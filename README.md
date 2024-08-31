@@ -1,3 +1,7 @@
+**Badgers survive scare against Western Michigan: Wisconsin football opener instant takeaways**\
+`Progress? Wisconsin's season-opening 28-14 victory was a win nonetheless. And it avoided a disastrous start to the season.`\
+https://nytimes.com/athletic/5734996/2024/08/31/wisconsin-badgers-win-western-michigan/
+
 **Tottenham's transfer window: Promise for the future, but are they short now?**\
 `The arrivals of Solanke, Bergvall, Odobert and Gray show promise, but a lack of defensive cover could become an issue`\
 https://nytimes.com/athletic/5726113/2024/08/31/tottenham-transfer-window-solanke-gray/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/31/world/asia/raffles-statue-singapore-debate.html
 **Miami at Florida picks, odds, how to watch: Under pressure, Miami heads to The Swamp**\
 `No. 19 Miami heads to Gainesville to take on in-state rival Florida in Week 1. Miami is the narrow favorite.`\
 https://nytimes.com/athletic/5727241/2024/08/31/miami-florida-picks-odds-how-to-watch/
-
-**Nerf Blasters and Lego Rockets: Another Mall Evolution**\
-`Landlords are turning to companies like Hasbro and Mattel for some fun and games in “retailtainment.”`\
-https://nytimes.com/2024/08/31/business/malls-experiences-hasbro-nerf.html
 
