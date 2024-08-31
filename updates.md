@@ -1,3 +1,7 @@
+**Hvaldimir, a Celebrated ‘Spy’ Whale, Is Found Dead in Norway**\
+`The beluga whale, who was first spotted in 2019 wearing what looked like a camera harness, was seen floating in Norwegian waters on Saturday.`\
+https://nytimes.com/2024/08/31/world/europe/hvaldimir-spy-whale-dead.html
+
 **Pregnant archer wins bronze at Paralympics**\
 `This was Grinham's first time back at the podium since she won a silver medal at the 2016 Paralympics.`\
 https://nytimes.com/athletic/5736383/2024/08/31/jodie-grinham-paralympics-bronze-pregnancy/

@@ -1,3 +1,7 @@
+**Hvaldimir, a Celebrated ‘Spy’ Whale, Is Found Dead in Norway**\
+`The beluga whale, who was first spotted in 2019 wearing what looked like a camera harness, was seen floating in Norwegian waters on Saturday.`\
+https://nytimes.com/2024/08/31/world/europe/hvaldimir-spy-whale-dead.html
+
 **Pregnant archer wins bronze at Paralympics**\
 `This was Grinham's first time back at the podium since she won a silver medal at the 2016 Paralympics.`\
 https://nytimes.com/athletic/5736383/2024/08/31/jodie-grinham-paralympics-bronze-pregnancy/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/08/31/nyregion/indoor-smoking-casinos-atlantic-city-rul
 **Arsenal's Rice apologises for "harsh" red card during Brighton draw**\
 `Declan Rice has apologised to his Arsenal team-mates and supporters for his red card in their 1-1 draw against Brighton &amp; Hove Albion, which he thought was a “harsh” sending off.`\
 https://nytimes.com/athletic/5736361/2024/08/31/arsenal-rice-red-card-brighton/
-
-**With X Blocked, Brazilians Find New Homes for Their Thoughts**\
-`The platform went dark across Brazil on Saturday, sending online commentators to new digital town squares.`\
-https://nytimes.com/2024/08/31/technology/x-blocked-brazil-reactions.html
 
