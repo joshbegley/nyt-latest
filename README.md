@@ -1,3 +1,11 @@
+**Pregnant archer wins bronze at Paralympics**\
+`This was Grinham's first time back at the podium since she won a silver medal at the 2016 Paralympics.`\
+https://nytimes.com/athletic/5736383/2024/08/31/jodie-grinham-paralympics-bronze-pregnancy/
+
+**Barcelona 7 Real Valladolid 0: Raphinha's hat-trick, Olmo shines and Casado slots in nicely**\
+`Laia Cervello Herrero analyses the key talking points from Barcelona's 7-0 thumping of Real Valladolid`\
+https://nytimes.com/athletic/5736392/2024/08/31/barcelona-7-valladolid-0-raphinha-dani-olmo-casado/
+
 **Leicester boss Cooper bemoans standard of refereeing in Premier League**\
 `Leicester City manager Steve Cooper believes the standard of refereeing in the Premier League is ‘behind the curve’ of the standard of football.`\
 https://nytimes.com/athletic/5736394/2024/08/31/leicester-cooper-referee-premier-league/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5736361/2024/08/31/arsenal-rice-red-card-brighton/
 **With X Blocked, Brazilians Find New Homes for Their Thoughts**\
 `The platform went dark across Brazil on Saturday, sending online commentators to new digital town squares.`\
 https://nytimes.com/2024/08/31/technology/x-blocked-brazil-reactions.html
-
-**The Briefing: West Ham 1 Manchester City 3 - Another Haaland hat-trick but where is Walker?**\
-`Haaland scored the 24th hat-trick of his career at the ripe old age of 24 to seal victory for Manchester City away to West Ham`\
-https://nytimes.com/athletic/5726149/2024/08/31/west-ham-manchester-city-haaland-hat-trick/
-
-**Explaining college football's 2-minute warning**\
-`The addition was proposed on March 1 by the NCAA's football rules committee and later approved in April.`\
-https://nytimes.com/athletic/5736277/2024/08/31/college-football-two-minute-warning-rule-explained/
 
