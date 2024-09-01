@@ -2,6 +2,10 @@
 `Plus outfielder Manuel Margot goes on the injured list, reliever Diego Castillo rejoins the bullpen and Louie Varland waits his turn.`\
 https://nytimes.com/athletic/5736626/2024/09/01/twins-brooks-lee-return-royce-lewis-second-base-debut/
 
+**Mets takeaways: Sean Manaea the ace, Edwin Díaz's workload, sticking with Francisco Alvarez**\
+`Everything you need to know about the Mets after their three-game sweep of the lowly White Sox.`\
+https://nytimes.com/athletic/5738659/2024/09/01/mets-sean-manaea-edwin-diaz-francisco-alvarez/
+
 **Coco Gauff knocked out of U.S. Open by Emma Navarro**\
 `NEW YORK — Coco Gauff’s Grand Slam season is over.`\
 https://nytimes.com/athletic/5738443/2024/09/01/coco-gauff-us-open-result-emma-navarro/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5738413/2024/09/01/terrence-smith-iowa-football-rec
 **Monday Briefing: Thousands Protest in Israel**\
 `Plus, the Great Lego Spill of 1997.`\
 https://nytimes.com/2024/09/01/briefing/israeli-election-afd.html
-
-**Ferrari’s surprise Italian GP win energizes the tifosi – and provides fresh hope**\
-`Ferrari and Leclerc faced a go-for-broke moment on Sunday and delivered in front of their home fans. `\
-https://nytimes.com/athletic/5737727/2024/09/01/charles-leclerc-italian-gp-f1-ferrari-f1/
 

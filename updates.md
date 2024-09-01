@@ -1,3 +1,7 @@
+**Mets takeaways: Sean Manaea the ace, Edwin Díaz's workload, sticking with Francisco Alvarez**\
+`Everything you need to know about the Mets after their three-game sweep of the lowly White Sox.`\
+https://nytimes.com/athletic/5738659/2024/09/01/mets-sean-manaea-edwin-diaz-francisco-alvarez/
+
 **Twins add Brooks Lee, Michael Helman and Royce Lewis debuts at second with game-winning homer**\
 `Plus outfielder Manuel Margot goes on the injured list, reliever Diego Castillo rejoins the bullpen and Louie Varland waits his turn.`\
 https://nytimes.com/athletic/5736626/2024/09/01/twins-brooks-lee-return-royce-lewis-second-base-debut/
