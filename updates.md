@@ -1,3 +1,7 @@
+**How Should We Mourn the End of Summer?**\
+`Sadness is a natural response to the passing of summer. We need to cope with small griefs using mechanisms similar to those we’d use for large griefs.`\
+https://nytimes.com/2024/09/01/opinion/summer-sadness-grief-seasons.html
+
 **American-Israeli Hostage Held in Gaza for Months Is Dead, Biden Says**\
 `Hersh Goldberg-Polin had been held in the Gaza Strip for nearly 11 months. His body was among several recovered by the Israeli military.`\
 https://nytimes.com/2024/09/01/world/middleeast/hersh-goldberg-polin-hostage-gaza.html
