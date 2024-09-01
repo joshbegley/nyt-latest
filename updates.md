@@ -1,3 +1,7 @@
+**Tim Walz Heads Home to the Minnesota State Fair**\
+`The event, a must-stop for politicians through the years, has also been the site of some of the vice-presidential nominee’s most meme-able moments.`\
+https://nytimes.com/2024/09/01/us/politics/walz-minnesota-state-fair.html
+
 **Meandering? Off-Script? Trump Insists His ‘Weave’ Is Oratorical Genius.**\
 `Former President Donald J. Trump’s speeches often wander from topic to topic. He insists there is an art to stitching them all together.`\
 https://nytimes.com/2024/09/01/us/elections/trump-speeches-weave.html
