@@ -1,3 +1,7 @@
+**Former Cardiff, Leicester and Leeds defender Bamba dies aged 39**\
+`Former Cardiff City, Leicester City and Leeds United defender Sol Bamba has died aged 39, it has been announced.`\
+https://nytimes.com/athletic/5737335/2024/09/01/sol-bamba-dies-cardiff-leicester-leeds/
+
 **U.S. Open day 7 watch guide: Coco Gauff vs. Emma Navarro and Frances Tiafoe on court**\
 `American hopefuls headline the first day of the last 16 in New York.`\
 https://nytimes.com/athletic/5736246/2024/09/01/us-open-day-7-watch-guide-gauff-navarro-tiafoe/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5737213/2024/09/01/mets-playoff-odds-white-sox/
 **Two electric, preposterous nights in Arizona have brought the best out of the Dodgers**\
 `The Dodgers' division lead is now six games. The margin hasn’t been this wide since July 28. It took just about everything.`\
 https://nytimes.com/athletic/5737198/2024/09/01/dodgers-diamondbacks-three-home-runs/
-
-**How Should We Mourn the End of Summer?**\
-`Sadness is a natural response to the passing of summer. We need to cope with small griefs using mechanisms similar to those we’d use for large griefs.`\
-https://nytimes.com/2024/09/01/opinion/summer-sadness-grief-seasons.html
 
