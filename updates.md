@@ -1,3 +1,7 @@
+**Jackson agrees Chelsea contract extension**\
+`Chelsea forward Nicolas Jackson has agreed a contract extension that commits him to the club until 2033.`\
+https://nytimes.com/athletic/5737483/2024/09/01/nicolas-jackson-contract-chelsea-new/
+
 **The Best Movies and TV Shows Coming to Disney+, Max, Hulu and More in September**\
 `“Fight Night: The Million Dollar Heist,” “A Very Royal Scandal,” a “Walking Dead” spinoff and “Agatha All Along” arrive.`\
 https://nytimes.com/2024/09/01/arts/television/september-streaming-movies-tv-shows.html
