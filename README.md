@@ -1,3 +1,7 @@
+**Scottie Scheffler wins Tour Championship to cap historic season**\
+`Scheffler started the week with the lead and cruised at a renovated East Lake for the season-ending win.`\
+https://nytimes.com/athletic/5738486/2024/09/01/scottie-scheffler-tour-championship-pga-tour/
+
 **Iowa lands four-star WR after best offensive outing in five years**\
 `Recently, Iowa has turned to the transfer portal for help at receiver, and the Hawkeyes have targeted only Smith in the 2025 class.`\
 https://nytimes.com/athletic/5738413/2024/09/01/terrence-smith-iowa-football-recruiting/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/01/world/middleeast/israel-protests-hostages.html
 **Britain wants Jack Draper to be its tennis hero, but he's feeling himself in New York**\
 `The British player who has assumed Andy Murray's mantle is off and running at his favourite Grand Slam.`\
 https://nytimes.com/athletic/5736861/2024/09/01/jack-draper-tennis/
-
-**49ers' Pearsall released from hospital after being shot**\
-`Pearsall did not require surgery and remained awake and lucid during his hospital stay, according to a league source.`\
-https://nytimes.com/athletic/5738281/2024/09/01/49ers-ricky-pearsall-hospital-release-shot-robbery/
 
