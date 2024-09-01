@@ -1,9 +1,13 @@
+**The Pulse: The hottest of hot seats, already**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/5737207/2024/09/01/florida-billy-napier-johnny-gaudreau-shohei-ohtani-the-pulse/
+
 **Kirschner: Yankees whiffed on their Jasson Domínguez decision, and it could cost them in October**\
 `The Yankees claim there isn't an open spot for the rookie, but that's only because they haven't wanted to sit left-fielder Alex Verdugo.`\
 https://nytimes.com/athletic/5737819/2024/09/01/yankees-jasson-dominguez-decision-mistake-october/
 
-**Man United 0 Liverpool 3: The Casemiro Issue; Clinical Diaz; Ten Hag's attacking calls**\
-`Our writers break down the action at Old Trafford as Liverpool soundly beat Manchester United.`\
+**Man Utd 0 Liverpool 3: The Casemiro issue; clinical Diaz; Ten Hag's attacking calls and more**\
+`Our writers break down the action at Old Trafford as Liverpool soundly beat arch-rivals Manchester United`\
 https://nytimes.com/athletic/5734709/2024/09/01/manchester-united-liverpool-casemiro/
 
 **In Venice, George Clooney Talks President Biden and American Politics**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5735859/2024/09/01/valentina-petrillo-transgender-s
 **Magnussen receives F1 race ban after Italian GP for meeting penalty point limit**\
 `Magnussen will not be allowed to race during the Azerbaijan Grand Prix weekend in September. `\
 https://nytimes.com/athletic/5737742/2024/09/01/kevin-magnussen-race-ban-haas-f1-azerbaijan-gp/
-
-**Whatever you say, love - how to date a tennis player**\
-`From "Tsitsidosa" to Jannik Sinner and Anna Kalinskaya, the tennis dating world is full of love. But what's it really like?`\
-https://nytimes.com/athletic/5734880/2024/09/01/tennis-players-dating-tsitsidosa-sinner-kalinskaya/
 

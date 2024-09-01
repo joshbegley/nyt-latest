@@ -1,3 +1,11 @@
+**Kirschner: Yankees whiffed on their Jasson Domínguez decision, and it could cost them in October**\
+`The Yankees claim there isn't an open spot for the rookie, but that's only because they haven't wanted to sit left-fielder Alex Verdugo.`\
+https://nytimes.com/athletic/5737819/2024/09/01/yankees-jasson-dominguez-decision-mistake-october/
+
+**Man United 0 Liverpool 3: The Casemiro Issue; Clinical Diaz; Ten Hag's attacking calls**\
+`Our writers break down the action at Old Trafford as Liverpool soundly beat Manchester United.`\
+https://nytimes.com/athletic/5734709/2024/09/01/manchester-united-liverpool-casemiro/
+
 **In Venice, George Clooney Talks President Biden and American Politics**\
 `He also addressed the release plan for his new movie, “Wolfs,” co-starring Brad Pitt.`\
 https://nytimes.com/2024/09/01/movies/george-clooney-biden-apple-wolfs.html
