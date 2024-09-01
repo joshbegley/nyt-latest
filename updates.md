@@ -1,3 +1,15 @@
+**Protests Break Out Across Israel Demanding a Deal for the Release of Hostages**\
+`Demonstrations broke out in cities around the country after the Israeli military announced the recovery of six dead hostages.`\
+https://nytimes.com/2024/09/01/world/middleeast/israel-protests-hostages.html
+
+**Britain wants Jack Draper to be its tennis hero, but he's feeling himself in New York**\
+`The British player who has assumed Andy Murray's mantle is off and running at his favourite Grand Slam.`\
+https://nytimes.com/athletic/5736861/2024/09/01/jack-draper-tennis/
+
+**49ers' Pearsall released from hospital after being shot**\
+`Pearsall did not require surgery and remained awake and lucid during his hospital stay, according to a league source.`\
+https://nytimes.com/athletic/5738281/2024/09/01/49ers-ricky-pearsall-hospital-release-shot-robbery/
+
 **Polio Vaccination Campaign Begins in Gaza**\
 `In an effort to prevent a polio outbreak, health workers in Gaza began a vaccination drive against the quick-spreading disease. The effort depends on Israel and Hamas abiding by their pledged “humanitarian pauses.”`\
 https://nytimes.com/video/world/middleeast/100000009668375/gaza-polio-vaccinations.html

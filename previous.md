@@ -1,3 +1,15 @@
+**Protests Break Out Across Israel Demanding a Deal for the Release of Hostages**\
+`Demonstrations broke out in cities around the country after the Israeli military announced the recovery of six dead hostages.`\
+https://nytimes.com/2024/09/01/world/middleeast/israel-protests-hostages.html
+
+**Britain wants Jack Draper to be its tennis hero, but he's feeling himself in New York**\
+`The British player who has assumed Andy Murray's mantle is off and running at his favourite Grand Slam.`\
+https://nytimes.com/athletic/5736861/2024/09/01/jack-draper-tennis/
+
+**49ers' Pearsall released from hospital after being shot**\
+`Pearsall did not require surgery and remained awake and lucid during his hospital stay, according to a league source.`\
+https://nytimes.com/athletic/5738281/2024/09/01/49ers-ricky-pearsall-hospital-release-shot-robbery/
+
 **Polio Vaccination Campaign Begins in Gaza**\
 `In an effort to prevent a polio outbreak, health workers in Gaza began a vaccination drive against the quick-spreading disease. The effort depends on Israel and Hamas abiding by their pledged “humanitarian pauses.”`\
 https://nytimes.com/video/world/middleeast/100000009668375/gaza-polio-vaccinations.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/01/opinion/transgender-cass-report.html
 **Simon Verity, World-Renowned Stone Carver, Is Dead at 79**\
 `He was perhaps best known for heading the team that created the statues of biblical figures at the Cathedral of St. John the Divine in Manhattan.`\
 https://nytimes.com/2024/09/01/arts/simon-verity-dies.html
-
-**Rams hiring Scott Frost in multi-faceted role: Sources**\
-`Frost will assist on special teams, but will also be asked to contribute to a variety of roles in all three phases.`\
-https://nytimes.com/athletic/5738158/2024/09/01/rams-scott-frost-coach-nebraska/
-
-**Man Sentenced to 27 Months in Prison for Harassing Journalists**\
-`Tucker Cockerline was part of a group that prosecutors said vandalized the homes of a New Hampshire Public Radio reporter, her editor and her parents.`\
-https://nytimes.com/2024/09/01/business/media/new-hampshire-man-stalking-reporters-sentenced.html
-
-**Ten Hag backs Casemiro to 'bounce back'**\
-`Erik ten Hag has backed Casemiro to &#8220;bounce back&#8221; after the midfielder was replaced following an error-strewn first half in Manchester United&#8217;s 3-0 defeat to Liverpool at Old Trafford on Sunday.`\
-https://nytimes.com/athletic/5738096/2024/09/01/erik-ten-hag-backs-casemiro/
 
