@@ -1,3 +1,7 @@
+**U.S. Open day 7 watch guide: Coco Gauff vs. Emma Navarro and Frances Tiafoe on court**\
+`American hopefuls headline the first day of the last 16 in New York.`\
+https://nytimes.com/athletic/5736246/2024/09/01/us-open-day-7-watch-guide-gauff-navarro-tiafoe/
+
 **Dunk's speedy redemption: Outstanding pass for Joao Pedro goal after being caught out by Saka**\
 `Dunk was at fault for Arsenal's opener but responded by playing an integral role in Brighton's equaliser`\
 https://nytimes.com/athletic/5735910/2024/09/01/lewis-dunk-brighton-arsenal-saka/
