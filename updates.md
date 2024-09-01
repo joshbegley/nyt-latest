@@ -1,3 +1,7 @@
+**Ten Hag backs Casemiro to 'bounce back'**\
+`Erik ten Hag has backed Casemiro to &#8220;bounce back&#8221; after the midfielder was replaced following an error-strewn first half in Manchester United&#8217;s 3-0 defeat to Liverpool at Old Trafford on Sunday.`\
+https://nytimes.com/athletic/5738096/2024/09/01/erik-ten-hag-backs-casemiro/
+
 **The Cass Report: Biased or Balanced?**\
 `Readers respond to a column criticizing a report that questioned gender-affirming care for children. Also: Child tax credit; G.O.P. plans for the economy.`\
 https://nytimes.com/2024/09/01/opinion/transgender-cass-report.html
