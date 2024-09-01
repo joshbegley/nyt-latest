@@ -1,3 +1,11 @@
+**Happy Birthday, Dear Frozen Eggs, Happy Birthday to You**\
+`Egg showers have become common on social media, but a Brooklyn woman has gone a step further by throwing her eggs a birthday party every year.`\
+https://nytimes.com/2024/09/01/style/frozen-egg-showers.html
+
+**A Small Town Gets an Uncomfortable Spotlight After the Boar’s Head Recall**\
+`A deadly listeria outbreak at the plant in Jarratt, Va., has residents worried about the town’s future.`\
+https://nytimes.com/2024/09/01/us/boars-head-jarratt-virginia.html
+
 **With Russia on Its Doorstep, a Ukrainian Town Packs Its Bags**\
 `Ukraine gambled that its move into Russia would draw Moscow’s forces away from the town of Pokrovsk. It didn’t happen. And now resigned residents are evacuating daily.`\
 https://nytimes.com/2024/09/01/world/europe/ukraine-russia-evacuation-pokrovsk.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/01/us/politics/house-swing-district-elections.html
 **Snyder: A Liability no longer? Penn State receivers show promise in opening win**\
 `Harrison Wallace III looked and played like the No. 1 receiver, putting together the best game of his career.`\
 https://nytimes.com/athletic/5737197/2024/09/01/penn-state-west-virginia-receivers/
-
-**America Must Free Itself from the Tyranny of the Penny**\
-`Few things symbolize our national dysfunction as much as this accursed coin, which we mint by the millions because it’s too worthless to spend.`\
-https://nytimes.com/2024/09/01/magazine/worthless-pennies-united-states-economy.html
-
-**Even Summer Nights Can’t Escape Egypt’s Economic Crisis**\
-`It’s so hot in Cairo that people like to go out all night. It might look like a party, but in reality, one shopkeeper said, “everybody is dead on the inside.”`\
-https://nytimes.com/2024/09/01/world/middleeast/egypt-economic-crisis.html
 

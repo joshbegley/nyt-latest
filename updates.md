@@ -1,3 +1,11 @@
+**Happy Birthday, Dear Frozen Eggs, Happy Birthday to You**\
+`Egg showers have become common on social media, but a Brooklyn woman has gone a step further by throwing her eggs a birthday party every year.`\
+https://nytimes.com/2024/09/01/style/frozen-egg-showers.html
+
+**A Small Town Gets an Uncomfortable Spotlight After the Boar’s Head Recall**\
+`A deadly listeria outbreak at the plant in Jarratt, Va., has residents worried about the town’s future.`\
+https://nytimes.com/2024/09/01/us/boars-head-jarratt-virginia.html
+
 **With Russia on Its Doorstep, a Ukrainian Town Packs Its Bags**\
 `Ukraine gambled that its move into Russia would draw Moscow’s forces away from the town of Pokrovsk. It didn’t happen. And now resigned residents are evacuating daily.`\
 https://nytimes.com/2024/09/01/world/europe/ukraine-russia-evacuation-pokrovsk.html
