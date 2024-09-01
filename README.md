@@ -1,3 +1,7 @@
+**In Venice, George Clooney Talks President Biden and American Politics**\
+`He also addressed the release plan for his new movie, “Wolfs,” co-starring Brad Pitt.`\
+https://nytimes.com/2024/09/01/movies/george-clooney-biden-apple-wolfs.html
+
 **About 10,000 Hotel Workers Walk Off the Job on Labor Day Weekend**\
 `The union representing the workers, Unite Here, has planned a rolling strike for several days in cities like Boston, San Francisco and Seattle after contract negotiations stalled.`\
 https://nytimes.com/2024/09/01/business/hotel-workers-unite-here-strike-labor-day.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/01/us/elections/trump-speeches-weave.html
 **This May Just Be the Absolute Best Tuna Melt**\
 `Golden Diner’s tuna melt is a study in texture, in contrasting flavors, in griddled perfection.`\
 https://nytimes.com/2024/09/01/dining/this-may-just-be-the-absolute-best-tuna-melt.html
-
-**Yankees don't call up top prospect Jasson Domínguez**\
-`The decision may be seen as a commitment to left fielder Alex Verdugo, who has struggled offensively but has been a strong defender.`\
-https://nytimes.com/athletic/5737117/2024/09/01/yankees-jasson-dominguez-anthony-rizzo-roster/
 
