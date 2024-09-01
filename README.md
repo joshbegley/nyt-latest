@@ -1,3 +1,7 @@
+**China and the Philippines Trade Blame for the Latest Sea Collision**\
+`The United States condemned the episode near Sabina Shoal in the South China Sea and reaffirmed its defense treaty with Manila.`\
+https://nytimes.com/2024/09/01/world/asia/china-philippines-south-china-sea-collision.html
+
 **Para triathlon postponed over water quality concerns in River Seine**\
 `The para triathlon competition at the Paris 2024 Paralympics has been postponed until Monday because of concerns over water quality in the River Seine.`\
 https://nytimes.com/athletic/5737396/2024/09/01/paralympic-triathlon-river-seine-water/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/01/arts/television/review-english-teacher.html
 **How America Won the Fashion War (or, at Least, the Sweatpants Battle)**\
 `In “Empresses of Seventh Avenue,” the fashion writer Nancy MacDonell tells the story of the New York women who created modern style.`\
 https://nytimes.com/2024/09/01/books/review/nancy-macdonell-empresses-of-seventh-avenue.html
-
-**Second Time’s the Charm? Rematches Could Sway the Fight for Congress.**\
-`Candidates in both parties who lost by small margins in 2022 are trying to mount comebacks. Their races could determine which party wins control of the House.`\
-https://nytimes.com/2024/09/01/us/politics/house-swing-district-elections.html
 
