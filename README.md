@@ -1,3 +1,11 @@
+**Quotation of the Day: Colorado to Move Wolves After Animal Attacks**\
+`Quotation of the Day for Sunday, September 1, 2024.`\
+https://nytimes.com/2024/09/01/pageoneplus/quotation-of-the-day-colorado-to-move-wolves-after-animal-attacks.html
+
+**Corrections: Sept. 1, 2024**\
+`Corrections that appeared in print on Sunday, Sept. 1, 2024.`\
+https://nytimes.com/2024/09/01/pageoneplus/corrections-sept-1-2024.html
+
 **In Race Against Polio, Gaza Begins Vaccination Drive**\
 `Israel and Hamas agreed to pause the war to permit the vaccination of 640,000 children in Gaza. It will be a daunting effort for health workers.`\
 https://nytimes.com/2024/09/01/world/middleeast/gaza-polio-vaccine.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5737078/2024/08/31/notre-dame-texas-am-recap-score/
 **Alabama takeaways: Ryan Williams is for real, O-line forced to shuffle, defense dominates**\
 `Big plays on both sides of the ball highlighted Alabama's 63-0 win over Western Kentucky in Kalen DeBoer's debut.`\
 https://nytimes.com/athletic/5737089/2024/08/31/alabama-wku-kalen-deboer-ryan-williams/
-
-**Michigan's quarterback questions persist with Texas looming**\
-`It’s rare for a program of Michigan’s caliber to enter a season with so little experience at quarterback.`\
-https://nytimes.com/athletic/5737076/2024/08/31/michigan-quarterbacks-warren-orji-fresno-state/
-
-**49ers’ Pearsall shot during attempted robbery, in stable condition**\
-`Police said a "physical altercation" ensued during the robbery attempt and both Pearsall and the suspect were injured.`\
-https://nytimes.com/athletic/5736984/2024/08/31/ricky-pearsall-shot-union-square-robbery/
 
