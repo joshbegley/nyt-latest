@@ -1,3 +1,7 @@
+**The Briefing: Chelsea 1 Palace 1 - Why Chelsea lost control; Gusto concerns; left-flank questions**\
+`We break down the action from Stamford Bridge as Chelsea let a lead slip at home to Palace.`\
+https://nytimes.com/athletic/5729664/2024/09/01/chelsea-palace-gusto-sancho/
+
 **Sporting to sign Brighton target Harder from Nordsjaelland**\
 `Sporting are set to beat Brighton &amp; Hove Albion to the signing of Conrad Harder from Nordsjaelland.`\
 https://nytimes.com/athletic/5737472/2024/09/01/conrad-harder-sporting-transfer-brighton/
