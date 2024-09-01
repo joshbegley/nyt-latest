@@ -1,3 +1,11 @@
+**Wrexham's transfer window: Dobson a quality addition, but slight concerns up front**\
+`After Wrexham's impressive 2-0 win at Peterborough, The Athletic reflects on a busy transfer window at the SToK Cae Ras....`\
+https://nytimes.com/athletic/5731243/2024/09/01/wrexham-transfer-window/
+
+**Broncos players break down the misunderstood, underappreciated nuances of their positions**\
+`Nine Broncos dish on the challenges of playing their positions. "Everyone watches football, (but) they never really understand it fully."`\
+https://nytimes.com/athletic/5734283/2024/09/01/denver-broncos-positions-nuances-bo-nix-javonte-williams/
+
 **Sampson: Notre Dame sets tone for season as Marcus Freeman pushes right buttons at Texas A&M**\
 `Notre Dame made an early statement in the 2024 season on Saturday with a win on the road over Texas A&M. `\
 https://nytimes.com/athletic/5737404/2024/09/01/notre-dame-texas-am-marcus-freeman-riley-leonard/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/01/us/politics/harris-democrats-trump.html
 **Man United set to sign Bizet from Spurs**\
 `Manchester United are set to sign Celin Bizet from Tottenham Hotspur.`\
 https://nytimes.com/athletic/5737423/2024/09/01/manchester-united-women-transfers-celin-bizet/
-
-**Ukraine Strikes Russian Energy Facilities With Drones, Russia Says**\
-`Russian state media and local officials report fires and explosions at a number of facilities caused by drone attacks, including an oil refinery in Moscow and an energy production facility in the central region of Tver.`\
-https://nytimes.com/2024/09/01/world/europe/ukraine-russia-energy-strikes.html
-
-**What's next for Alabama's Ryan Williams after superstar debut?**\
-`Williams finished his Alabama debut with two catches for 139 yards and two touchdowns against Western Kentucky.`\
-https://nytimes.com/athletic/5737405/2024/09/01/ryan-williams-alabama-football/
 

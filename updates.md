@@ -1,3 +1,11 @@
+**Wrexham's transfer window: Dobson a quality addition, but slight concerns up front**\
+`After Wrexham's impressive 2-0 win at Peterborough, The Athletic reflects on a busy transfer window at the SToK Cae Ras....`\
+https://nytimes.com/athletic/5731243/2024/09/01/wrexham-transfer-window/
+
+**Broncos players break down the misunderstood, underappreciated nuances of their positions**\
+`Nine Broncos dish on the challenges of playing their positions. "Everyone watches football, (but) they never really understand it fully."`\
+https://nytimes.com/athletic/5734283/2024/09/01/denver-broncos-positions-nuances-bo-nix-javonte-williams/
+
 **Sampson: Notre Dame sets tone for season as Marcus Freeman pushes right buttons at Texas A&M**\
 `Notre Dame made an early statement in the 2024 season on Saturday with a win on the road over Texas A&M. `\
 https://nytimes.com/athletic/5737404/2024/09/01/notre-dame-texas-am-marcus-freeman-riley-leonard/
