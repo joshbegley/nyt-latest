@@ -1,3 +1,11 @@
+**Trump adviser Corey Lewandowski says the campaign won’t change its strategy.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/09/01/us/harris-trump-election/trump-adviser-corey-lewandowski-says-the-campaign-wont-change-its-strategy
+
+**USMNT roster: Interim head coach Mikey Varas calls up a mix of old and new names**\
+`USMNT will gather for games against Canada and New Zealand. `\
+https://nytimes.com/athletic/5738333/2024/09/01/usmnt-roster-september-christian-pulisic/
+
 **Protests Break Out Across Israel Demanding a Deal for the Release of Hostages**\
 `Demonstrations broke out in cities around the country after the Israeli military announced the recovery of six dead hostages.`\
 https://nytimes.com/2024/09/01/world/middleeast/israel-protests-hostages.html
@@ -15,7 +23,7 @@ https://nytimes.com/athletic/5738281/2024/09/01/49ers-ricky-pearsall-hospital-re
 https://nytimes.com/video/world/middleeast/100000009668375/gaza-polio-vaccinations.html
 
 **Protesters in Jerusalem Demand an Immediate Hostage Deal**\
-`Israelis demonstrated outside Prime Minister Benjamin Netanyahu’s office after the military recovered the bodies of six dead hostages from a tunnel underneath Rafah, Gaza.`\
+`Israelis demonstrated outside Prime Minister Benjamin Netanyahu’s office after the military recovered the bodies of six killed hostages from a tunnel underneath Rafah, Gaza.`\
 https://nytimes.com/video/world/middleeast/100000009668606/israel-hostages-protest.html
 
 **Fund-Raiser for Jan. 6 Rioters at Trump’s Golf Club Is Postponed**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5738249/2024/09/01/big-ten-college-football-week-1/
 **Death of Israeli-American Hostage Prompts Outpouring of Grief Across U.S.**\
 `Hersh Goldberg-Polin was among the hostages who were found dead on Saturday. Many remembered him as a gleeful and good-humored person — who later became a symbol of hope.`\
 https://nytimes.com/2024/09/01/us/hersh-goldberg-polin-death-mourning-us.html
-
-**The Cass Report: Biased or Balanced?**\
-`Readers respond to a column criticizing a report that questioned gender-affirming care for children. Also: Child tax credit; G.O.P. plans for the economy.`\
-https://nytimes.com/2024/09/01/opinion/transgender-cass-report.html
-
-**Simon Verity, World-Renowned Stone Carver, Is Dead at 79**\
-`He was perhaps best known for heading the team that created the statues of biblical figures at the Cathedral of St. John the Divine in Manhattan.`\
-https://nytimes.com/2024/09/01/arts/simon-verity-dies.html
 

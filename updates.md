@@ -1,3 +1,15 @@
+**Trump adviser Corey Lewandowski says the campaign won’t change its strategy.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/09/01/us/harris-trump-election/trump-adviser-corey-lewandowski-says-the-campaign-wont-change-its-strategy
+
+**USMNT roster: Interim head coach Mikey Varas calls up a mix of old and new names**\
+`USMNT will gather for games against Canada and New Zealand. `\
+https://nytimes.com/athletic/5738333/2024/09/01/usmnt-roster-september-christian-pulisic/
+
+**Protesters in Jerusalem Demand an Immediate Hostage Deal**\
+`Israelis demonstrated outside Prime Minister Benjamin Netanyahu’s office after the military recovered the bodies of six killed hostages from a tunnel underneath Rafah, Gaza.`\
+https://nytimes.com/video/world/middleeast/100000009668606/israel-hostages-protest.html
+
 **Protests Break Out Across Israel Demanding a Deal for the Release of Hostages**\
 `Demonstrations broke out in cities around the country after the Israeli military announced the recovery of six dead hostages.`\
 https://nytimes.com/2024/09/01/world/middleeast/israel-protests-hostages.html
