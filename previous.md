@@ -2,8 +2,8 @@
 `Welcome to Until Saturday, the five-star college football newsletter: Clemson and Florida both came up empty. ... Notre Dame did not.`\
 https://nytimes.com/athletic/5737421/2024/09/01/clemson-florida-notre-dame-college-football-week-1-until-saturday/
 
-**Hotel Workers Just Went on Strike in the Northeast. How Will That Affect My Trip?**\
-`Though hotel chains say they’ll continue to operate normally, travelers could see disruptions as 1,100 employees walked off the job. Here’s what to know.`\
+**Hotel Workers Strike in San Francisco and the Northeast. How Will That Affect My Trip?**\
+`Though hotel chains say they’ll continue to operate normally, travelers could see disruptions as 3,100 employees walked off the job. Here’s what to know.`\
 https://nytimes.com/2024/09/01/travel/hotel-workers-strike.html
 
 **3 Israeli Police Officers Killed as West Bank Violence Spirals**\
