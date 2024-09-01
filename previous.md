@@ -1,3 +1,19 @@
+**Sporting to sign Brighton target Harder from Nordsjaelland**\
+`Sporting are set to beat Brighton &amp; Hove Albion to the signing of Conrad Harder from Nordsjaelland.`\
+https://nytimes.com/athletic/5737472/2024/09/01/conrad-harder-sporting-transfer-brighton/
+
+**What the Oilers can expect from trade acquisition Ty Emberson**\
+`Emberson was the Oilers' return from San Jose in exchange for veteran defenceman Cody Ceci.`\
+https://nytimes.com/athletic/5736156/2024/09/01/edmonton-oilers-ty-emberson-trade/
+
+**Ferrari's Charles Leclerc wins the 2024 Italian GP as McLaren squanders chances**\
+`It's Leclerc's second win at Monza and tightens the F1 championship race further. `\
+https://nytimes.com/athletic/5737645/2024/09/01/charles-leclerc-italian-gp-f1-ferrari/
+
+**How a scheduling conundrum delayed rekindling of Notre Dame-Miami rivalry**\
+`Instead of in 2024, the rivalry will be restarted in 2025 in Hard Rock Stadium in Miami.`\
+https://nytimes.com/athletic/5737600/2024/09/01/notre-dame-miami-rivalry-game-schedule-2024/
+
 **Pete Wade, Guitarist on Countless Nashville Hits, Dies at 89**\
 `His clean tone and less-is-more approach made him a studio stalwart and a pioneer of what came to be known as the Nashville Sound.`\
 https://nytimes.com/2024/09/01/arts/music/pete-wade-dies.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/01/opinion/boomers-youth-social-security-medicare.ht
 **We Know Mental Health Affects Physical Health. Why Don’t We Act Like It?**\
 `Physical health and mental health are inextricably tied to each other. We need to devote the same care to both parts of ourselves.`\
 https://nytimes.com/2024/09/01/opinion/mental-health-preventative-medicine.html
-
-**Dabo’s no-good, very bad Saturday against UGA and Notre Dame's nice road win**\
-`Welcome to Until Saturday, the five-star college football newsletter: Clemson and Florida both came up empty. ... Notre Dame did not.`\
-https://nytimes.com/athletic/5737421/2024/09/01/clemson-florida-notre-dame-college-football-week-1-until-saturday/
-
-**Hotel Workers Across the Country Go on Strike. How Will That Affect My Trip?**\
-`Though hotel chains say they’ll continue to operate normally, travelers could see disruptions as employees walked off the job in cities from Boston to San Francisco. Here’s what to know.`\
-https://nytimes.com/2024/09/01/travel/hotel-workers-strike.html
-
-**3 Israeli Police Officers Killed as West Bank Violence Spirals**\
-`The officers were shot and killed in what the Israeli police said was a terrorist attack. The incident followed a rise in Palestinian and Israeli violence, as Israel’s military raids Palestinian cities.`\
-https://nytimes.com/2024/09/01/world/middleeast/israel-west-bank-police.html
-
-**Wrexham's transfer window: Dobson a quality addition, but slight concerns up front**\
-`After Wrexham's impressive 2-0 win at Peterborough, The Athletic reflects on a busy transfer window at the SToK Cae Ras....`\
-https://nytimes.com/athletic/5731243/2024/09/01/wrexham-transfer-window/
 
