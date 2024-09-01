@@ -1,3 +1,7 @@
+**Many Israelis direct their anger at Netanyahu over the hostage deaths.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/09/01/world/israel-hamas-gaza-war/many-israelis-direct-their-anger-at-netanyahu-over-the-deaths-of-6-hostages
+
 **Texas A&M dealt reality check by missed opportunity vs. Notre Dame**\
 `Texas A&M put up a fight, but any optimism of a surprise run to the College Football Playoff entering the season must be tempered.`\
 https://nytimes.com/athletic/5737229/2024/09/01/texas-am-aggies-notre-dame-elko/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/01/us/elections/democratic-republican-political-dono
 **U.S. Open day 6 recap: One regular day of tennis in New York, until video review at night**\
 `A routine day of results in New York gave way to officiating drama in the night session.`\
 https://nytimes.com/athletic/5736359/2024/09/01/u-s-open-day-6-takeaways-kalinskaya-haddad-maia-video-review/
-
-**Review: On ‘English Teacher,’ School Is a Battlefield**\
-`A new FX sitcom handles the educational culture wars with a light touch.`\
-https://nytimes.com/2024/09/01/arts/television/review-english-teacher.html
 
