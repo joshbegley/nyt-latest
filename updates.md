@@ -1,3 +1,7 @@
+**NFL’s most intriguing players: 24 to watch for the 2024 season**\
+`The performances of Harrison, Lamar Jackson, Micah Parsons and others will go a long way in setting a season tone for their teams.`\
+https://nytimes.com/athletic/5715420/2024/09/01/nfl-intriguing-players-2024-rodgers-mahomes-stroud/
+
 **Empower Field at Mile High guide: What to know about the Denver Broncos' stadium**\
 `Our staff compiled 32 NFL stadium guides, one for every team, to help fans buy tickets and enjoy the day watching their favorite clubs.`\
 https://nytimes.com/athletic/5708211/2024/09/01/denver-broncos-stadium-guide-empower-field-at-mile-high/
