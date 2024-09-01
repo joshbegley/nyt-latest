@@ -1,3 +1,7 @@
+**Monday Briefing: Thousands Protest in Israel**\
+`Plus, the Great Lego Spill of 1997.`\
+https://nytimes.com/2024/09/01/briefing/israeli-election-afd.html
+
 **Ferrari’s surprise Italian GP win energizes the tifosi – and provides fresh hope**\
 `Ferrari and Leclerc faced a go-for-broke moment on Sunday and delivered in front of their home fans. `\
 https://nytimes.com/athletic/5737727/2024/09/01/charles-leclerc-italian-gp-f1-ferrari-f1/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5738281/2024/09/01/49ers-ricky-pearsall-hospital-re
 **Polio Vaccination Campaign Begins in Gaza**\
 `In an effort to prevent a polio outbreak, health workers in Gaza began a vaccination drive against the quick-spreading disease. The effort depends on Israel and Hamas abiding by their pledged “humanitarian pauses.”`\
 https://nytimes.com/video/world/middleeast/100000009668375/gaza-polio-vaccinations.html
-
-**Protesters in Jerusalem Demand an Immediate Hostage Deal**\
-`Israelis demonstrated outside Prime Minister Benjamin Netanyahu’s office after the military recovered the bodies of six killed hostages from a tunnel underneath Rafah, Gaza.`\
-https://nytimes.com/video/world/middleeast/100000009668606/israel-hostages-protest.html
 
