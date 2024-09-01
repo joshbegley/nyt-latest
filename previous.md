@@ -1,4 +1,4 @@
-**Ashton Jeanty stakes claim to 2025 NFL Draft's RB1 slot with six-TD performance**\
+**Ashton Jeanty stakes claim to 2025 NFL Draft's RB1 slot with 6-TD performance**\
 `Jeanty had touchdown runs of 77 and 75 yards as part of his record-setting performance. `\
 https://nytimes.com/athletic/5736855/2024/08/31/ashton-jeanty-nfl-draft-record-boise-state/
 
