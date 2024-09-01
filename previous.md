@@ -1,3 +1,7 @@
+**RB Leipzig end Leverkusen's unbeaten run - that may not be where their achievements end**\
+`There tends to be a legacy to this sort of win, and you wonder what the mental boost may be worth to Marco Rose and his Leipzig players`\
+https://nytimes.com/athletic/5736478/2024/09/01/leipzig-end-leverkusen-unbeaten-run/
+
 **A Fixture of Times Past**\
 `A brass pendant light once hung in the lobby of the newspaper’s former headquarters.`\
 https://nytimes.com/2024/09/01/insider/a-fixture-of-times-past.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5737198/2024/09/01/dodgers-diamondbacks-three-home-
 **How Should We Mourn the End of Summer?**\
 `Sadness is a natural response to the passing of summer. We need to cope with small griefs using mechanisms similar to those we’d use for large griefs.`\
 https://nytimes.com/2024/09/01/opinion/summer-sadness-grief-seasons.html
-
-**Dunk's speedy redemption: Outstanding pass for Joao Pedro goal after being caught out by Saka**\
-`Dunk was at fault for Arsenal's opener but responded by playing an integral role in Brighton's equaliser`\
-https://nytimes.com/athletic/5735910/2024/09/01/lewis-dunk-brighton-arsenal-saka/
 

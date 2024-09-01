@@ -1,3 +1,7 @@
+**RB Leipzig end Leverkusen's unbeaten run - that may not be where their achievements end**\
+`There tends to be a legacy to this sort of win, and you wonder what the mental boost may be worth to Marco Rose and his Leipzig players`\
+https://nytimes.com/athletic/5736478/2024/09/01/leipzig-end-leverkusen-unbeaten-run/
+
 **A Fixture of Times Past**\
 `A brass pendant light once hung in the lobby of the newspaper’s former headquarters.`\
 https://nytimes.com/2024/09/01/insider/a-fixture-of-times-past.html
