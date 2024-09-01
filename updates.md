@@ -1,3 +1,7 @@
+**The Cubs offense was dominant in August. How did they do it?**\
+`The Cubs have scored 99 runs in their past 10 games: "The offense has been great."`\
+https://nytimes.com/athletic/5738450/2024/09/01/cubs-offense-august/
+
 **The Cubs' offense was dominant in August. How did they do it?**\
 `The Cubs have scored 99 runs in their past 10 games: "The offense has been great."`\
 https://nytimes.com/athletic/5738450/2024/09/01/cubs-offense-august/
