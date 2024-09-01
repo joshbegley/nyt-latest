@@ -1,3 +1,11 @@
+**The Best Movies and TV Shows Coming to Disney+, Max, Hulu and More in September**\
+`“Fight Night: The Million Dollar Heist,” “A Very Royal Scandal,” a “Walking Dead” spinoff and “Agatha All Along” arrive.`\
+https://nytimes.com/2024/09/01/arts/television/september-streaming-movies-tv-shows.html
+
+**Harris’s Team, With a Wink, Insists She’s an Underdog**\
+`Her campaign’s message that Democrats are losing, which she never voiced when President Biden was tanking the ticket, is an artful attempt to lower expectations.`\
+https://nytimes.com/2024/09/01/us/politics/harris-democrats-trump.html
+
 **Man United set to sign Bizet from Spurs**\
 `Manchester United are set to sign Celin Bizet from Tottenham Hotspur.`\
 https://nytimes.com/athletic/5737423/2024/09/01/manchester-united-women-transfers-celin-bizet/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5716158/2024/09/01/jacksonville-jaguars-stadium-gui
 **Raymond James Stadium guide: What to know about the Tampa Bay Buccaneers' home field**\
 `Our staff compiled 32 NFL stadium guides, one for every team, to help fans buy tickets and enjoy the day watching their favorite clubs.`\
 https://nytimes.com/athletic/5715203/2024/09/01/tampa-bay-buccaneers-stadium-guide-raymond-james/
-
-**MetLife Stadium guide: What to know about the New York Jets' home field**\
-`Our staff compiled 32 NFL stadium guides, one for every team, to help fans buy tickets and enjoy the day watching their favorite clubs.`\
-https://nytimes.com/athletic/5721737/2024/09/01/new-york-jets-stadium-guide-metlife/
-
-**Nissan Stadium guide: What to know about the Tennessee Titans' home field**\
-`Our staff compiled 32 NFL stadium guides, one for every team, to help fans buy tickets and enjoy the day watching their favorite clubs.`\
-https://nytimes.com/athletic/5716565/2024/09/01/tennessee-titans-stadium-guide-nissan/
 
