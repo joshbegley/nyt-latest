@@ -1,3 +1,7 @@
+**In Venice, George Clooney Talks President Biden and American Politics**\
+`He also addressed the release plan for his new movie, “Wolfs,” co-starring Brad Pitt.`\
+https://nytimes.com/2024/09/01/movies/george-clooney-biden-apple-wolfs.html
+
 **About 10,000 Hotel Workers Walk Off the Job on Labor Day Weekend**\
 `The union representing the workers, Unite Here, has planned a rolling strike for several days in cities like Boston, San Francisco and Seattle after contract negotiations stalled.`\
 https://nytimes.com/2024/09/01/business/hotel-workers-unite-here-strike-labor-day.html
