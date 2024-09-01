@@ -1,3 +1,7 @@
+**Man United set to sign Bizet from Spurs**\
+`Manchester United are set to sign Celin Bizet from Tottenham Hotspur.`\
+https://nytimes.com/athletic/5737423/2024/09/01/manchester-united-women-transfers-celin-bizet/
+
 **Ukraine Strikes Russian Energy Facilities With Drones, Russia Says**\
 `Russian state media and local officials report fires and explosions at a number of facilities caused by drone attacks, including an oil refinery in Moscow and an energy production facility in the central region of Tver.`\
 https://nytimes.com/2024/09/01/world/europe/ukraine-russia-energy-strikes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5721737/2024/09/01/new-york-jets-stadium-guide-metl
 **Nissan Stadium guide: What to know about the Tennessee Titans' home field**\
 `Our staff compiled 32 NFL stadium guides, one for every team, to help fans buy tickets and enjoy the day watching their favorite clubs.`\
 https://nytimes.com/athletic/5716565/2024/09/01/tennessee-titans-stadium-guide-nissan/
-
-**Acrisure Stadium guide: What to know about the Pittsburgh Steelers' home field**\
-`Our staff compiled 32 NFL stadium guides, one for every team, to help fans buy tickets and enjoy the day watching their favorite clubs.`\
-https://nytimes.com/athletic/5720854/2024/09/01/pittsburgh-steelers-stadium-guide-acrisure/
 

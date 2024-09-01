@@ -1,3 +1,7 @@
+**Man United set to sign Bizet from Spurs**\
+`Manchester United are set to sign Celin Bizet from Tottenham Hotspur.`\
+https://nytimes.com/athletic/5737423/2024/09/01/manchester-united-women-transfers-celin-bizet/
+
 **Ukraine Strikes Russian Energy Facilities With Drones, Russia Says**\
 `Russian state media and local officials report fires and explosions at a number of facilities caused by drone attacks, including an oil refinery in Moscow and an energy production facility in the central region of Tver.`\
 https://nytimes.com/2024/09/01/world/europe/ukraine-russia-energy-strikes.html
