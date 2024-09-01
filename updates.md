@@ -1,3 +1,7 @@
+**Mets' playoff odds improve as they close August on winning streak**\
+`The little things are big for the Mets as they begin the final month of the regular season fighting for a spot in the playoffs.`\
+https://nytimes.com/athletic/5737213/2024/09/01/mets-playoff-odds-white-sox/
+
 **Two electric, preposterous nights in Arizona have brought the best out of the Dodgers**\
 `The Dodgers' division lead is now six games. The margin hasn’t been this wide since July 28. It took just about everything.`\
 https://nytimes.com/athletic/5737198/2024/09/01/dodgers-diamondbacks-three-home-runs/

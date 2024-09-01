@@ -1,3 +1,7 @@
+**Mets' playoff odds improve as they close August on winning streak**\
+`The little things are big for the Mets as they begin the final month of the regular season fighting for a spot in the playoffs.`\
+https://nytimes.com/athletic/5737213/2024/09/01/mets-playoff-odds-white-sox/
+
 **Two electric, preposterous nights in Arizona have brought the best out of the Dodgers**\
 `The Dodgers' division lead is now six games. The margin hasn’t been this wide since July 28. It took just about everything.`\
 https://nytimes.com/athletic/5737198/2024/09/01/dodgers-diamondbacks-three-home-runs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5735719/2024/09/01/summer-transfer-window-spending-
 **Manchester United v Liverpool: Ten Hag's attack, Robertson's runs and a real test for Gravenberch**\
 `A Manchester United reporter, a Liverpool reporter and our senior data analyst address some of the key talking points ahead of kick-off...`\
 https://nytimes.com/athletic/5734102/2024/09/01/manchester-united-liverpool-premier-league-ten-hag-slot/
-
-**Declan Rice's red card, 'inconsistent' refereeing and the lesson Arsenal need to learn from it**\
-`Rice was shown a red card in controversial circumstances — a decision that was criticised by his manager but welcomed by Arsenal's opponents`\
-https://nytimes.com/athletic/5736291/2024/09/01/arsenal-rice-red-card-referee-premier-league/
 
