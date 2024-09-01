@@ -1,3 +1,7 @@
+**White Sox lose 107th game, most in franchise history**\
+`Chicago has only won six series all season but has now been swept 22 times.`\
+https://nytimes.com/athletic/5738440/2024/09/01/white-sox-franchise-loss-record-mets/
+
 **Scottie Scheffler wins Tour Championship to cap historic season**\
 `Scheffler started the week with the lead and cruised at a renovated East Lake for the season-ending win.`\
 https://nytimes.com/athletic/5738486/2024/09/01/scottie-scheffler-tour-championship-pga-tour/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5738333/2024/09/01/usmnt-roster-september-christian
 **Protests Break Out Across Israel Demanding a Deal for the Release of Hostages**\
 `Demonstrations broke out in cities around the country after the Israeli military announced the recovery of six dead hostages.`\
 https://nytimes.com/2024/09/01/world/middleeast/israel-protests-hostages.html
-
-**Britain wants Jack Draper to be its tennis hero, but he's feeling himself in New York**\
-`The British player who has assumed Andy Murray's mantle is off and running at his favourite Grand Slam.`\
-https://nytimes.com/athletic/5736861/2024/09/01/jack-draper-tennis/
 
