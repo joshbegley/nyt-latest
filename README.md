@@ -22,8 +22,8 @@ https://nytimes.com/2024/09/01/opinion/mental-health-preventative-medicine.html
 `Welcome to Until Saturday, the five-star college football newsletter: Clemson and Florida both came up empty. ... Notre Dame did not.`\
 https://nytimes.com/athletic/5737421/2024/09/01/clemson-florida-notre-dame-college-football-week-1-until-saturday/
 
-**Hotel Workers Strike in San Francisco and the Northeast. How Will That Affect My Trip?**\
-`Though hotel chains say they’ll continue to operate normally, travelers could see disruptions as 3,100 employees walked off the job. Here’s what to know.`\
+**Hotel Workers Across the Country Go on Strike. How Will That Affect My Trip?**\
+`Though hotel chains say they’ll continue to operate normally, travelers could see disruptions as employees walked off the job in cities from Boston to San Francisco. Here’s what to know.`\
 https://nytimes.com/2024/09/01/travel/hotel-workers-strike.html
 
 **3 Israeli Police Officers Killed as West Bank Violence Spirals**\
