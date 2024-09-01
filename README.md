@@ -1,3 +1,7 @@
+**Helicopter Crash Near Volcano in Russia’s Far East Kills at Least 17**\
+`The helicopter was flying tourists in Russia’s Kamchatka region. No survivors were expected among the 22 people on board, state news agencies said.`\
+https://nytimes.com/2024/09/01/world/europe/russia-helicopter-crash-kamchatka.html
+
 **Abilene Christian involved in bus accident after loss to Texas Tech**\
 `The accident occurred at 11:45 p.m. just off Texas Tech’s campus as the team began traveling back to Abilene.`\
 https://nytimes.com/athletic/5737949/2024/09/01/abilene-christian-bus-accident-texas-tech/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/01/health/dialysis-seniors-kidneys.html
 **Antônio Meneses, Lyrical Brazilian Cellist, Is Dead at 66**\
 `He began playing as a child and quickly found success for his technical command and, as one critic put it, his “thoughtful elegance.”`\
 https://nytimes.com/2024/09/01/arts/music/antonio-meneses-dead.html
-
-**Chelsea await updates on Gusto 'muscle problem'**\
-`Chelsea will await further updates after Malo Gusto picked up what they fear could be a muscle problem in the draw with Crystal Palace.`\
-https://nytimes.com/athletic/5737866/2024/09/01/malo-gusto-injury-chelsea-crystal-palace/
 
