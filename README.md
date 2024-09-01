@@ -18,12 +18,12 @@ https://nytimes.com/athletic/5735910/2024/09/01/lewis-dunk-brighton-arsenal-saka
 `The Athletic's Nancy Froston analyses the main talking points from Leeds' 2-0 win over Hull`\
 https://nytimes.com/athletic/5736177/2024/09/01/leeds-2-hull-0-solomon-aaronson-firpo/
 
-**Six Bodies Recovered in Gaza Were Hostages, White House Says**\
+**Six Bodies Recovered in Gaza Were Hostages, Israel and U.S. Say**\
 `One of the hostages, Hersh Goldberg-Polin, was an American citizen. Separately in Gaza, a polio vaccination drive was getting underway on Sunday.`\
 https://nytimes.com/live/2024/09/01/world/israel-hamas-gaza-war
 
-**American-Israeli Hostage Held in Gaza for Months Is Dead, Biden Says**\
-`Hersh Goldberg-Polin had been held in the Gaza Strip for nearly 11 months. His body was among several recovered by the Israeli military.`\
+**Hostages Found in Tunnel Were Killed by Hamas, Israel Says**\
+`One of the victims was a dual Israeli American citizen.`\
 https://nytimes.com/2024/09/01/world/middleeast/hersh-goldberg-polin-hostage-gaza.html
 
 **How Burnley's chaotic transfer window unfolded**\
