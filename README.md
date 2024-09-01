@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5738281/2024/09/01/49ers-ricky-pearsall-hospital-re
 https://nytimes.com/video/world/middleeast/100000009668375/gaza-polio-vaccinations.html
 
 **Protesters in Jerusalem Demand an Immediate Hostage Deal**\
-`Israelis demonstrated outside Prime Minister Benjamin Netanyahu’s office after the military recovered the bodies of six dead hostages from a tunnel underneath Rafah, Gaza.`\
+`Israelis demonstrated outside Prime Minister Benjamin Netanyahu’s office after the military recovered the bodies of six killed hostages from a tunnel underneath Rafah, Gaza.`\
 https://nytimes.com/video/world/middleeast/100000009668606/israel-hostages-protest.html
 
 **Fund-Raiser for Jan. 6 Rioters at Trump’s Golf Club Is Postponed**\
