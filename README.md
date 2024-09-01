@@ -1,3 +1,7 @@
+**Dunk's speedy redemption: Outstanding pass for Joao Pedro goal after being caught out by Saka**\
+`Dunk was at fault for Arsenal's opener but responded by playing an integral role in Brighton's equaliser`\
+https://nytimes.com/athletic/5735910/2024/09/01/lewis-dunk-brighton-arsenal-saka/
+
 **Leeds United 2 Hull City 0: Solomon's debut, Aaronson trusted again, Farke's full-back headache**\
 `The Athletic's Nancy Froston analyses the main talking points from Leeds' 2-0 win over Hull`\
 https://nytimes.com/athletic/5736177/2024/09/01/leeds-2-hull-0-solomon-aaronson-firpo/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5736654/2024/09/01/erling-haaland-manchester-city-i
 **Braves' Michael Harris II made a catch so spectacular, the winning Phillies lauded it**\
 `Harris' teammates told him his perfectly timed, acrobatic catch to rob a would-be homer was the best they'd witnessed.`\
 https://nytimes.com/athletic/5737120/2024/09/01/braves-michael-harris-ii-catch/
-
-**Quotation of the Day: Colorado to Move Wolves After Animal Attacks**\
-`Quotation of the Day for Sunday, September 1, 2024.`\
-https://nytimes.com/2024/09/01/pageoneplus/quotation-of-the-day-colorado-to-move-wolves-after-animal-attacks.html
 
