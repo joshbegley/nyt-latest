@@ -1,3 +1,7 @@
+**Iowa lands four-star WR after best offensive outing in five years**\
+`Recently, Iowa has turned to the transfer portal for help at receiver, and the Hawkeyes have targeted only Smith in the 2025 class.`\
+https://nytimes.com/athletic/5738413/2024/09/01/terrence-smith-iowa-football-recruiting/
+
 **Monday Briefing: Thousands Protest in Israel**\
 `Plus, the Great Lego Spill of 1997.`\
 https://nytimes.com/2024/09/01/briefing/israeli-election-afd.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5736861/2024/09/01/jack-draper-tennis/
 **49ers' Pearsall released from hospital after being shot**\
 `Pearsall did not require surgery and remained awake and lucid during his hospital stay, according to a league source.`\
 https://nytimes.com/athletic/5738281/2024/09/01/49ers-ricky-pearsall-hospital-release-shot-robbery/
-
-**Polio Vaccination Campaign Begins in Gaza**\
-`In an effort to prevent a polio outbreak, health workers in Gaza began a vaccination drive against the quick-spreading disease. The effort depends on Israel and Hamas abiding by their pledged “humanitarian pauses.”`\
-https://nytimes.com/video/world/middleeast/100000009668375/gaza-polio-vaccinations.html
 
