@@ -1,3 +1,7 @@
+**Alabama takeaways: Ryan Williams is for real, O-line forced to shuffle, defense dominates**\
+`Big plays on both sides of the ball highlighted Alabama's 63-0 win over Western Kentucky in Kalen DeBoer's debut.`\
+https://nytimes.com/athletic/5737089/2024/08/31/alabama-wku-kalen-deboer-ryan-williams/
+
 **Michigan's quarterback questions persist with Texas looming**\
 `It’s rare for a program of Michigan’s caliber to enter a season with so little experience at quarterback.`\
 https://nytimes.com/athletic/5737076/2024/08/31/michigan-quarterbacks-warren-orji-fresno-state/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5736866/2024/08/31/nebraska-football-dylan-raiola-t
 **Plane Crashes Into Townhouses in Oregon**\
 `A small plane struck a row of townhouses in Fairview, Ore., according to the authorities, who said at least three people were missing.`\
 https://nytimes.com/video/us/100000009668044/oregon-plane-crash.html
-
-**Detroit Lions fan survey: Confidence in coaching staff, best offseason moves, more**\
-`The 2024 NFL season is almost here, and Detroit Lions football soon will be on your screens again.`\
-https://nytimes.com/athletic/5736421/2024/08/31/detroit-lions-fan-survey-questions-2024/
 
