@@ -1,7 +1,3 @@
-**Meandering? Off-Script? Trump Insists His ‘Weave’ Is Oratorical Genius.**\
-`Former President Donald J. Trump’s speeches often wander from topic to topic. He insists there is an art to stitching them all together.`\
-https://nytimes.com/2024/09/01/us/elections/trump-speeches-weave.html
-
 **This May Just Be the Absolute Best Tuna Melt**\
 `Golden Diner’s tuna melt is a study in texture, in contrasting flavors, in griddled perfection.`\
 https://nytimes.com/2024/09/01/dining/this-may-just-be-the-absolute-best-tuna-melt.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5737600/2024/09/01/notre-dame-miami-rivalry-game-sc
 **Pete Wade, Guitarist on Countless Nashville Hits, Dies at 89**\
 `His clean tone and less-is-more approach made him a studio stalwart and a pioneer of what came to be known as the Nashville Sound.`\
 https://nytimes.com/2024/09/01/arts/music/pete-wade-dies.html
+
+**Tim Walz Heads Home to the Minnesota State Fair**\
+`The event, a must-stop for politicians through the years, has also been the site of some of the vice-presidential nominee’s most meme-able moments.`\
+https://nytimes.com/2024/09/01/us/politics/walz-minnesota-state-fair.html
 
