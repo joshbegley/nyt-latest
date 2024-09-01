@@ -1,3 +1,7 @@
+**Magnussen receives F1 race ban after Italian GP for meeting penalty point limit**\
+`Magnussen will not be allowed to race during the Azerbaijan Grand Prix weekend in September. `\
+https://nytimes.com/athletic/5737742/2024/09/01/kevin-magnussen-race-ban-haas-f1-azerbaijan-gp/
+
 **Whatever you say, love - how to date a tennis player**\
 `From "Tsitsidosa" to Jannik Sinner and Anna Kalinskaya, the tennis dating world is full of love. But what's it really like?`\
 https://nytimes.com/athletic/5734880/2024/09/01/tennis-players-dating-tsitsidosa-sinner-kalinskaya/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5736156/2024/09/01/edmonton-oilers-ty-emberson-trad
 **Ferrari's Charles Leclerc wins the 2024 Italian GP as McLaren squanders chances**\
 `It's Leclerc's second win at Monza and tightens the F1 championship race further. `\
 https://nytimes.com/athletic/5737645/2024/09/01/charles-leclerc-italian-gp-f1-ferrari/
-
-**How a scheduling conundrum delayed rekindling of Notre Dame-Miami rivalry**\
-`Instead of in 2024, the rivalry will be restarted in 2025 in Hard Rock Stadium in Miami.`\
-https://nytimes.com/athletic/5737600/2024/09/01/notre-dame-miami-rivalry-game-schedule-2024/
 
