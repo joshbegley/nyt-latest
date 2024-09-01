@@ -1,3 +1,7 @@
+**Many Israelis direct their anger at Netanyahu over the hostage deaths.**\
+`By Adam Rasgon`\
+https://nytimes.com/live/2024/09/01/world/israel-hamas-gaza-war/many-israelis-direct-their-anger-at-netanyahu-over-the-deaths-of-6-hostages
+
 **Texas A&M dealt reality check by missed opportunity vs. Notre Dame**\
 `Texas A&M put up a fight, but any optimism of a surprise run to the College Football Playoff entering the season must be tempered.`\
 https://nytimes.com/athletic/5737229/2024/09/01/texas-am-aggies-notre-dame-elko/
