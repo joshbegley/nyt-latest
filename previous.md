@@ -1,3 +1,11 @@
+**Discovery of 6 Dead Hostages in Gaza Spurs Protest and Division in Israel**\
+`The Israeli military said Sunday that Hamas had killed the hostages before they were discovered by Israeli troops on Saturday.`\
+https://nytimes.com/2024/09/01/world/middleeast/israel-gaza-hostages-ceasefire.html
+
+**Red Sox takeaways: Trevor Story starts rehab, Chase Shugart, Enmanuel Valdez added**\
+`The Red Sox chose not to recall Vaughn Grissom and could be welcoming back Story before the end of the season.`\
+https://nytimes.com/athletic/5738302/2024/09/01/red-sox-takeaways-trevor-story-september-callups/
+
 **Twins add Brooks Lee, Michael Helman and Royce Lewis debuts at second with game-winning homer**\
 `Plus outfielder Manuel Margot goes on the injured list, reliever Diego Castillo rejoins the bullpen and Louie Varland waits his turn.`\
 https://nytimes.com/athletic/5736626/2024/09/01/twins-brooks-lee-return-royce-lewis-second-base-debut/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5738440/2024/09/01/white-sox-franchise-loss-record-
 **Scottie Scheffler wins Tour Championship to cap historic season**\
 `Scheffler started the week with the lead and cruised at a renovated East Lake for the season-ending win.`\
 https://nytimes.com/athletic/5738486/2024/09/01/scottie-scheffler-tour-championship-pga-tour/
-
-**Iowa lands four-star WR after best offensive outing in five years**\
-`Recently, Iowa has turned to the transfer portal for help at receiver, and the Hawkeyes have targeted only Smith in the 2025 class.`\
-https://nytimes.com/athletic/5738413/2024/09/01/terrence-smith-iowa-football-recruiting/
-
-**Monday Briefing: Thousands Protest in Israel**\
-`Plus, the Great Lego Spill of 1997.`\
-https://nytimes.com/2024/09/01/briefing/israeli-election-afd.html
 

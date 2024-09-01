@@ -1,3 +1,11 @@
+**Discovery of 6 Dead Hostages in Gaza Spurs Protest and Division in Israel**\
+`The Israeli military said Sunday that Hamas had killed the hostages before they were discovered by Israeli troops on Saturday.`\
+https://nytimes.com/2024/09/01/world/middleeast/israel-gaza-hostages-ceasefire.html
+
+**Red Sox takeaways: Trevor Story starts rehab, Chase Shugart, Enmanuel Valdez added**\
+`The Red Sox chose not to recall Vaughn Grissom and could be welcoming back Story before the end of the season.`\
+https://nytimes.com/athletic/5738302/2024/09/01/red-sox-takeaways-trevor-story-september-callups/
+
 **Mets takeaways: Sean Manaea the ace, Edwin Díaz's workload, sticking with Francisco Alvarez**\
 `Everything you need to know about the Mets after their three-game sweep of the lowly White Sox.`\
 https://nytimes.com/athletic/5738659/2024/09/01/mets-sean-manaea-edwin-diaz-francisco-alvarez/
