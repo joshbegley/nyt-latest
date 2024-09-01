@@ -1,3 +1,7 @@
+**The Briefing: Newcastle 2 Tottenham 1 - Shaky foundations, but Howe's side find a way again**\
+`Newcastle dug deep to grind out a win over Spurs, thanks to goals from Harvey Barnes and Alexander Isak`\
+https://nytimes.com/athletic/5729725/2024/09/01/newcastle-2-tottenham-1-briefing/
+
 **The Briefing: Chelsea 1 Palace 1 - Why Chelsea lost control; Gusto concerns; left-flank questions**\
 `We break down the action from Stamford Bridge as Chelsea let a lead slip at home to Palace.`\
 https://nytimes.com/athletic/5729664/2024/09/01/chelsea-palace-gusto-sancho/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/01/us/harris-trump-election/heres-the-latest-on
 **Election Live Updates: Trump and Harris Gear Up for Campaign’s Final Stretch**\
 `With Labor Day traditionally signifying the beginning of the end of the presidential election cycle, the campaigns will fan out across the country this week in a rush of activity.`\
 https://nytimes.com/live/2024/09/01/us/harris-trump-election
-
-**Young Americans Can’t Keep Funding Boomers and Beyond**\
-`The U.S. government spending is too heavily lavished on its older people at the expense of its young.`\
-https://nytimes.com/2024/09/01/opinion/boomers-youth-social-security-medicare.html
 
