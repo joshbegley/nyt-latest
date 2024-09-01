@@ -1,3 +1,7 @@
+**Michigan's quarterback questions persist with Texas looming**\
+`It’s rare for a program of Michigan’s caliber to enter a season with so little experience at quarterback.`\
+https://nytimes.com/athletic/5737076/2024/08/31/michigan-quarterbacks-warren-orji-fresno-state/
+
 **49ers’ Pearsall shot during attempted robbery, in stable condition**\
 `Police said a "physical altercation" ensued during the robbery attempt and both Pearsall and the suspect were injured.`\
 https://nytimes.com/athletic/5736984/2024/08/31/ricky-pearsall-shot-union-square-robbery/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009668044/oregon-plane-crash.html
 **Detroit Lions fan survey: Confidence in coaching staff, best offseason moves, more**\
 `The 2024 NFL season is almost here, and Detroit Lions football soon will be on your screens again.`\
 https://nytimes.com/athletic/5736421/2024/08/31/detroit-lions-fan-survey-questions-2024/
-
-**After getting routed by Georgia, it's clear Clemson and Dabo Swinney have lost their way**\
-`The bleak reality for the Tigers is that this just might be Clemson’s new norm.`\
-https://nytimes.com/athletic/5736777/2024/08/31/clemson-georgia-dabo-swinney-lost-way/
 
