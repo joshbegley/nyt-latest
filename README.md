@@ -1,3 +1,11 @@
+**49ers' Pearsall shot in attempted robbery**\
+`Police said a "physical altercation" ensued during the robbery attempt and both Pearsall and the suspect were injured.`\
+https://nytimes.com/athletic/5736984/2024/08/31/ricky-pearsall-shot-union-square-robbery/
+
+**Billy Napier beware: Florida has not historically been patient in rebuilds**\
+`Once-potent Florida has endured three losing seasons in a row for the first time since the 1940s. The opener didn't spark much hope.`\
+https://nytimes.com/athletic/5736932/2024/08/31/billy-napier-beware-florida-has-not-historically-been-patient-in-rebuilds/
+
 **Ashton Jeanty stakes claim to 2025 NFL Draft's RB1 slot with 6-TD performance**\
 `Jeanty had touchdown runs of 77 and 75 yards as part of his record-setting performance. `\
 https://nytimes.com/athletic/5736855/2024/08/31/ashton-jeanty-nfl-draft-record-boise-state/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5736421/2024/08/31/detroit-lions-fan-survey-questio
 **After getting routed by Georgia, it's clear Clemson and Dabo Swinney have lost their way**\
 `The bleak reality for the Tigers is that this just might be Clemson’s new norm.`\
 https://nytimes.com/athletic/5736777/2024/08/31/clemson-georgia-dabo-swinney-lost-way/
-
-**Arch Manning scores first TDs of college career vs. Colorado State**\
-`Manning hit transfer receiver Silas Bolden for the first TD of his college career, then rushed for a score on a QB sneak. `\
-https://nytimes.com/athletic/5736769/2024/08/31/arch-manning-first-career-tds-texas/
-
-**Former Miss Teen USA Contestant Rebukes Vance for Using Her Flub to Attack Harris**\
-`Caite Upton wrote on social media that “online bullying needs to stop,” after JD Vance posted a clip of her mangled answer from the 2007 Miss Teen USA pageant to mock Kamala Harris.`\
-https://nytimes.com/2024/08/31/us/politics/vance-harris-caite-upton.html
 
