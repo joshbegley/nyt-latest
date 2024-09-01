@@ -18,7 +18,7 @@ https://nytimes.com/athletic/5736960/2024/08/31/iowa-football-offense-reece-vand
 `Proctor, Alabama's projected starter at left tackle, is not playing tonight against Western Kentucky.`\
 https://nytimes.com/athletic/5736964/2024/08/31/kadyn-proctor-injury-alabama-football/
 
-**Ohio State takeaways: How much can be learned from a blowout win over Akron?**\
+**Ohio State takeaways: Jeremiah Smith lived up to No. 1 recruit billing in debut**\
 `The Buckeyes pulled away from Akron for a 52-6 win with superlatives from newcomers like Jeremiah Smith but a handful of issues to correct.`\
 https://nytimes.com/athletic/5736702/2024/08/31/ohio-state-akron-score-jeremiah-smith/
 

@@ -1,3 +1,7 @@
+**Ohio State takeaways: Jeremiah Smith lived up to No. 1 recruit billing in debut**\
+`The Buckeyes pulled away from Akron for a 52-6 win with superlatives from newcomers like Jeremiah Smith but a handful of issues to correct.`\
+https://nytimes.com/athletic/5736702/2024/08/31/ohio-state-akron-score-jeremiah-smith/
+
 **49ers’ Pearsall shot during attempted robbery, in stable condition**\
 `Police said a "physical altercation" ensued during the robbery attempt and both Pearsall and the suspect were injured.`\
 https://nytimes.com/athletic/5736984/2024/08/31/ricky-pearsall-shot-union-square-robbery/
