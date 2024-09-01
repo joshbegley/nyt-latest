@@ -1,3 +1,23 @@
+**A Fixture of Times Past**\
+`A brass pendant light once hung in the lobby of the newspaper’s former headquarters.`\
+https://nytimes.com/2024/09/01/insider/a-fixture-of-times-past.html
+
+**The Undoing of New York Nightlife’s Lawyer King**\
+`Sal Strazzullo made a flashy career of representing minor celebrities and those in their orbit. His own affluence was a facade.`\
+https://nytimes.com/2024/09/01/nyregion/sal-strazzullo-brooklyn-lawyer-theft.html
+
+**‘His Expression Suggested He Was Trying to Solve a Puzzle’**\
+`A brisk April day in Manhattan, an overdue introduction on the F and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/09/01/nyregion/metropolitan-diary.html
+
+**Dragons and Sharks on a Beach Near You: The Story of the Great Lego Spill**\
+`Nearly five million Lego pieces plunged into the sea in 1997. The pieces are still showing up — on England’s coast, in Ireland, Belgium, France and possibly at the beach near you.`\
+https://nytimes.com/2024/09/01/world/europe/1997-lego-spill.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/01/crosswords/spelling-bee-forum.html
+
 **Chris Wood and the scoring stat that puts him above Mohamed Salah and Cole Palmer**\
 `Who out of Mohamed Salah, Cole Palmer and Chris Wood has scored the most non-penalty goals since the start of the 2023-24 Premier League season?
 You can have three guesses.`\
@@ -18,24 +38,4 @@ https://nytimes.com/2024/09/01/opinion/summer-sadness-grief-seasons.html
 **Dunk's speedy redemption: Outstanding pass for Joao Pedro goal after being caught out by Saka**\
 `Dunk was at fault for Arsenal's opener but responded by playing an integral role in Brighton's equaliser`\
 https://nytimes.com/athletic/5735910/2024/09/01/lewis-dunk-brighton-arsenal-saka/
-
-**Leeds United 2 Hull City 0: Solomon's debut, Aaronson trusted again, Farke's full-back headache**\
-`The Athletic's Nancy Froston analyses the main talking points from Leeds' 2-0 win over Hull`\
-https://nytimes.com/athletic/5736177/2024/09/01/leeds-2-hull-0-solomon-aaronson-firpo/
-
-**Six Bodies Recovered in Gaza Were Hostages, Israel and U.S. Say**\
-`One of the hostages, Hersh Goldberg-Polin, was an American citizen. Separately in Gaza, a polio vaccination drive was getting underway on Sunday.`\
-https://nytimes.com/live/2024/09/01/world/israel-hamas-gaza-war
-
-**Hostages Found in Tunnel Were Killed by Hamas, Israel Says**\
-`One of the victims was a dual Israeli American citizen.`\
-https://nytimes.com/2024/09/01/world/middleeast/hersh-goldberg-polin-hostage-gaza.html
-
-**How Burnley's chaotic transfer window unfolded**\
-`Scott Parker inherited a fractured dressing room. What followed was a mad scramble in which 35 players moved `\
-https://nytimes.com/athletic/5735740/2024/09/01/burnley-transfers-summer-window-scott-parker/
-
-**Everton 2-3 Bournemouth - dissecting the Premier League's most dramatic defeat**\
-`Everton lost control, were unable to match the visitors’ energy after their substitutions, and had no way of alleviating pressure`\
-https://nytimes.com/athletic/5736812/2024/09/01/everton-2-3-bournemouth-analysis-dyche/
 

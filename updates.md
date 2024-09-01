@@ -1,3 +1,23 @@
+**A Fixture of Times Past**\
+`A brass pendant light once hung in the lobby of the newspaper’s former headquarters.`\
+https://nytimes.com/2024/09/01/insider/a-fixture-of-times-past.html
+
+**The Undoing of New York Nightlife’s Lawyer King**\
+`Sal Strazzullo made a flashy career of representing minor celebrities and those in their orbit. His own affluence was a facade.`\
+https://nytimes.com/2024/09/01/nyregion/sal-strazzullo-brooklyn-lawyer-theft.html
+
+**‘His Expression Suggested He Was Trying to Solve a Puzzle’**\
+`A brisk April day in Manhattan, an overdue introduction on the F and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/09/01/nyregion/metropolitan-diary.html
+
+**Dragons and Sharks on a Beach Near You: The Story of the Great Lego Spill**\
+`Nearly five million Lego pieces plunged into the sea in 1997. The pieces are still showing up — on England’s coast, in Ireland, Belgium, France and possibly at the beach near you.`\
+https://nytimes.com/2024/09/01/world/europe/1997-lego-spill.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/01/crosswords/spelling-bee-forum.html
+
 **Chris Wood and the scoring stat that puts him above Mohamed Salah and Cole Palmer**\
 `Who out of Mohamed Salah, Cole Palmer and Chris Wood has scored the most non-penalty goals since the start of the 2023-24 Premier League season?
 You can have three guesses.`\
