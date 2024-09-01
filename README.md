@@ -1,3 +1,7 @@
+**3 Israeli Police Officers Killed as West Bank Violence Spirals**\
+`The officers were shot and killed in what the Israeli police said was a terrorist attack. The incident followed a rise in Palestinian and Israeli violence, as Israel’s military raids Palestinian cities.`\
+https://nytimes.com/2024/09/01/world/middleeast/israel-west-bank-police.html
+
 **Wrexham's transfer window: Dobson a quality addition, but slight concerns up front**\
 `After Wrexham's impressive 2-0 win at Peterborough, The Athletic reflects on a busy transfer window at the SToK Cae Ras....`\
 https://nytimes.com/athletic/5731243/2024/09/01/wrexham-transfer-window/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/01/arts/television/september-streaming-movies-tv-sho
 **Harris’s Team, With a Wink, Insists She’s an Underdog**\
 `Her campaign’s message that Democrats are losing, which she never voiced when President Biden was tanking the ticket, is an artful attempt to lower expectations.`\
 https://nytimes.com/2024/09/01/us/politics/harris-democrats-trump.html
-
-**Man United set to sign Bizet from Spurs**\
-`Manchester United are set to sign Celin Bizet from Tottenham Hotspur.`\
-https://nytimes.com/athletic/5737423/2024/09/01/manchester-united-women-transfers-celin-bizet/
 
