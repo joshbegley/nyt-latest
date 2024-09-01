@@ -1,3 +1,7 @@
+**Fund-Raiser for Jan. 6 Rioters at Trump’s Golf Club Is Postponed**\
+`Donald J. Trump did not plan to attend the gala event at his venue in Bedminster, N.J., but it highlighted his efforts to rewrite the history of the attack on the Capitol.`\
+https://nytimes.com/2024/09/01/nyregion/jan-6-rioters-fund-raiser-postponed.html
+
 **Big Ten fans: Submit your Week 1 overreactions and hot takes**\
 `Submit your overreactions, hot takes and bold predictions off of Big Ten teams' opening games for an upcoming feature.`\
 https://nytimes.com/athletic/5738249/2024/09/01/big-ten-college-football-week-1/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5738084/2024/09/01/nebraska-football-colorado-deion
 **How McLaren's Italian GP victory slipped away: 'It hurts at the moment'**\
 `McLaren had the race under total control. A strategy misjudgment derailed its big day in the F1 title fight. `\
 https://nytimes.com/athletic/5737726/2024/09/01/mclaren-f1-italian-gp-norris-piastri/
-
-**East Germans Lean Toward Extremes in State Elections**\
-`The Alternative for Germany party was on course to win in Thuringia, according to projections, in what was seen as a worrying sign of the health of German democracy.`\
-https://nytimes.com/2024/09/01/world/europe/east-german-state-elections-saxony-thuringia.html
 
