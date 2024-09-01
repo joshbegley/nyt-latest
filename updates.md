@@ -1,3 +1,11 @@
+**About 10,000 Hotel Workers Walk Off the Job on Labor Day Weekend**\
+`The union representing the workers, Unite Here, has planned a rolling strike for several days in cities like Boston, San Francisco and Seattle after contract negotiations stalled.`\
+https://nytimes.com/2024/09/01/business/hotel-workers-unite-here-strike-labor-day.html
+
+**Dialysis May Prolong Life for Older Patients. But Not by Much.**\
+`In one recent study, the challenging regimen added 77 days of life after three years. Often, kidney disease can be managed in other ways.`\
+https://nytimes.com/2024/09/01/health/dialysis-seniors-kidneys.html
+
 **Antônio Meneses, Lyrical Brazilian Cellist, Is Dead at 66**\
 `He began playing as a child and quickly found success for his technical command and, as one critic put it, his “thoughtful elegance.”`\
 https://nytimes.com/2024/09/01/arts/music/antonio-meneses-dead.html
