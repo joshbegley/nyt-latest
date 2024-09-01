@@ -1,3 +1,11 @@
+**Kirschner: Yankees whiffed on their Jasson Domínguez decision, and it could cost them in October**\
+`The Yankees claim there isn't an open spot for the rookie, but that's only because they haven't wanted to sit left-fielder Alex Verdugo.`\
+https://nytimes.com/athletic/5737819/2024/09/01/yankees-jasson-dominguez-decision-mistake-october/
+
+**Man United 0 Liverpool 3: The Casemiro Issue; Clinical Diaz; Ten Hag's attacking calls**\
+`Our writers break down the action at Old Trafford as Liverpool soundly beat Manchester United.`\
+https://nytimes.com/athletic/5734709/2024/09/01/manchester-united-liverpool-casemiro/
+
 **In Venice, George Clooney Talks President Biden and American Politics**\
 `He also addressed the release plan for his new movie, “Wolfs,” co-starring Brad Pitt.`\
 https://nytimes.com/2024/09/01/movies/george-clooney-biden-apple-wolfs.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5737742/2024/09/01/kevin-magnussen-race-ban-haas-f1
 **Whatever you say, love - how to date a tennis player**\
 `From "Tsitsidosa" to Jannik Sinner and Anna Kalinskaya, the tennis dating world is full of love. But what's it really like?`\
 https://nytimes.com/athletic/5734880/2024/09/01/tennis-players-dating-tsitsidosa-sinner-kalinskaya/
-
-**Meandering? Off-Script? Trump Insists His ‘Weave’ Is Oratorical Genius.**\
-`Former President Donald J. Trump’s speeches often wander from topic to topic. He insists there is an art to stitching them all together.`\
-https://nytimes.com/2024/09/01/us/elections/trump-speeches-weave.html
-
-**This May Just Be the Absolute Best Tuna Melt**\
-`Golden Diner’s tuna melt is a study in texture, in contrasting flavors, in griddled perfection.`\
-https://nytimes.com/2024/09/01/dining/this-may-just-be-the-absolute-best-tuna-melt.html
 
