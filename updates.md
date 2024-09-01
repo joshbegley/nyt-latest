@@ -1,3 +1,11 @@
+**How McLaren's Italian GP victory slipped away: 'It hurts at the moment'**\
+`McLaren had the race under total control. A strategy misjudgment derailed its big day in the F1 title fight. `\
+https://nytimes.com/athletic/5737726/2024/09/01/mclaren-f1-italian-gp-norris-piastri/
+
+**East Germans Lean Toward Extremes in State Elections**\
+`The Alternative for Germany party was on course to win in Thuringia, according to projections, in what was seen as a worrying sign of the health of German democracy.`\
+https://nytimes.com/2024/09/01/world/europe/east-german-state-elections-saxony-thuringia.html
+
 **Salah casts doubt on Liverpool future: 'It's my last year at the club'**\
 `Mohamed Salah has cast doubt over his Liverpool future by saying this will be his &#8220;last year at the club&#8221;.`\
 https://nytimes.com/athletic/5738029/2024/09/01/mohamed-salah-liverpool-contract-interview/
