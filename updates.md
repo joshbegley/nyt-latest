@@ -1,3 +1,7 @@
+**Pete Wade, Guitarist on Countless Nashville Hits, Dies at 89**\
+`His clean tone and less-is-more approach made him a studio stalwart and a pioneer of what came to be known as the Nashville Sound.`\
+https://nytimes.com/2024/09/01/arts/music/pete-wade-dies.html
+
 **Hotel Workers Across the Country Go on Strike. How Will That Affect My Trip?**\
 `Though hotel chains say they’ll continue to operate normally, travelers could see disruptions as employees walked off the job in cities from Boston to San Francisco. Here’s what to know.`\
 https://nytimes.com/2024/09/01/travel/hotel-workers-strike.html

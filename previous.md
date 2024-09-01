@@ -1,3 +1,7 @@
+**Pete Wade, Guitarist on Countless Nashville Hits, Dies at 89**\
+`His clean tone and less-is-more approach made him a studio stalwart and a pioneer of what came to be known as the Nashville Sound.`\
+https://nytimes.com/2024/09/01/arts/music/pete-wade-dies.html
+
 **Tim Walz Heads Home to the Minnesota State Fair**\
 `The event, a must-stop for politicians through the years, has also been the site of some of the vice-presidential nominee’s most meme-able moments.`\
 https://nytimes.com/2024/09/01/us/politics/walz-minnesota-state-fair.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/01/world/middleeast/israel-west-bank-police.html
 **Wrexham's transfer window: Dobson a quality addition, but slight concerns up front**\
 `After Wrexham's impressive 2-0 win at Peterborough, The Athletic reflects on a busy transfer window at the SToK Cae Ras....`\
 https://nytimes.com/athletic/5731243/2024/09/01/wrexham-transfer-window/
-
-**Broncos players break down the misunderstood, underappreciated nuances of their positions**\
-`Nine Broncos dish on the challenges of playing their positions. "Everyone watches football, (but) they never really understand it fully."`\
-https://nytimes.com/athletic/5734283/2024/09/01/denver-broncos-positions-nuances-bo-nix-javonte-williams/
 
