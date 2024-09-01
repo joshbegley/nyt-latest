@@ -1,3 +1,11 @@
+**What to Know About the Six Hostages Killed in Gaza**\
+`One of the hostages, Hersh Goldberg-Polin, was an American citizen.`\
+https://nytimes.com/2024/09/01/world/middleeast/hostages-gaza-what-to-know.html
+
+**Remembering Sol Bamba: No bitterness, no resentment, just strength, bravery and that glorious smile**\
+`The former defender has died at the age of 39. Phil Hay pays tribute to a friend who was never afraid to say what needed to be said`\
+https://nytimes.com/athletic/5737310/2024/09/01/sol-bamba-leeds-cardiff-ivory-coast/
+
 **Jackson agrees Chelsea contract extension**\
 `Chelsea forward Nicolas Jackson has agreed a contract extension that commits him to the club until 2033.`\
 https://nytimes.com/athletic/5737483/2024/09/01/nicolas-jackson-contract-chelsea-new/

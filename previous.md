@@ -1,6 +1,14 @@
+**What to Know About the Six Hostages Killed in Gaza**\
+`One of the hostages, Hersh Goldberg-Polin, was an American citizen.`\
+https://nytimes.com/2024/09/01/world/middleeast/hostages-gaza-what-to-know.html
+
 **Jackson agrees Chelsea contract extension**\
 `Chelsea forward Nicolas Jackson has agreed a contract extension that commits him to the club until 2033.`\
 https://nytimes.com/athletic/5737483/2024/09/01/nicolas-jackson-contract-chelsea-new/
+
+**Remembering Sol Bamba: No bitterness, no resentment, just strength, bravery and that glorious smile**\
+`The former defender has died at the age of 39. Phil Hay pays tribute to a friend who was never afraid to say what needed to be said`\
+https://nytimes.com/athletic/5737310/2024/09/01/sol-bamba-leeds-cardiff-ivory-coast/
 
 **The Best Movies and TV Shows Coming to Disney+, Max, Hulu and More in September**\
 `“Fight Night: The Million Dollar Heist,” “A Very Royal Scandal,” a “Walking Dead” spinoff and “Agatha All Along” arrive.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5737138/2024/09/01/college-football-playoff-contend
 **NFL’s most intriguing players: 24 to watch for the 2024 season**\
 `The performances of Harrison, Lamar Jackson, Micah Parsons and others will go a long way in setting a season tone for their teams.`\
 https://nytimes.com/athletic/5715420/2024/09/01/nfl-intriguing-players-2024-rodgers-mahomes-stroud/
-
-**Empower Field at Mile High guide: What to know about the Denver Broncos' stadium**\
-`Our staff compiled 32 NFL stadium guides, one for every team, to help fans buy tickets and enjoy the day watching their favorite clubs.`\
-https://nytimes.com/athletic/5708211/2024/09/01/denver-broncos-stadium-guide-empower-field-at-mile-high/
-
-**EverBank Stadium guide: What to know about the Jacksonville Jaguars' home field**\
-`Our staff compiled 32 NFL stadium guides, one for every team, to help fans buy tickets and enjoy the day watching their favorite clubs.`\
-https://nytimes.com/athletic/5716158/2024/09/01/jacksonville-jaguars-stadium-guide-everbank/
 
