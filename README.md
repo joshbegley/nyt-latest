@@ -1,3 +1,7 @@
+**With improved offense, Nebraska embraces next opportunity against Deion, Colorado**\
+`It’s Chapter 2 of a fascinating matchup between Matt Rhule and Deion Sanders. Round 1 went to the Colorado coach. `\
+https://nytimes.com/athletic/5738084/2024/09/01/nebraska-football-colorado-deion-sanders-dylan-raiola/
+
 **How McLaren's Italian GP victory slipped away: 'It hurts at the moment'**\
 `McLaren had the race under total control. A strategy misjudgment derailed its big day in the F1 title fight. `\
 https://nytimes.com/athletic/5737726/2024/09/01/mclaren-f1-italian-gp-norris-piastri/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5734709/2024/09/01/manchester-united-liverpool-case
 **In Venice, George Clooney Talks President Biden and American Politics**\
 `He also addressed the release plan for his new movie, “Wolfs,” co-starring Brad Pitt.`\
 https://nytimes.com/2024/09/01/movies/george-clooney-biden-apple-wolfs.html
-
-**Whatever you say, love - how to date a tennis player**\
-`From "Tsitsidosa" to Jannik Sinner and Anna Kalinskaya, the tennis dating world is full of love. But what's it really like?`\
-https://nytimes.com/athletic/5734880/2024/09/01/tennis-players-dating-tsitsidosa-sinner-kalinskaya/
 
