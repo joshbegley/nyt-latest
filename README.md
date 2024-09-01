@@ -1,4 +1,4 @@
-**49ers' Pearsall shot in attempted robbery**\
+**49ers’ Pearsall shot during attempted robbery, in stable condition**\
 `Police said a "physical altercation" ensued during the robbery attempt and both Pearsall and the suspect were injured.`\
 https://nytimes.com/athletic/5736984/2024/08/31/ricky-pearsall-shot-union-square-robbery/
 
