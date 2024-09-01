@@ -1,3 +1,15 @@
+**Simon Verity, World-Renowned Stone Carver, Is Dead at 79**\
+`He was perhaps best known for heading the team that created the statues of biblical figures at the Cathedral of St. John the Divine in Manhattan.`\
+https://nytimes.com/2024/09/01/arts/simon-verity-dies.html
+
+**Rams hiring Scott Frost in multi-faceted role: Sources**\
+`Frost will assist on special teams, but will also be asked to contribute to a variety of roles in all three phases.`\
+https://nytimes.com/athletic/5738158/2024/09/01/rams-scott-frost-coach-nebraska/
+
+**Man Sentenced to 27 Months in Prison for Harassing Journalists**\
+`Tucker Cockerline was part of a group that prosecutors said vandalized the homes of a New Hampshire Public Radio reporter, her editor and her parents.`\
+https://nytimes.com/2024/09/01/business/media/new-hampshire-man-stalking-reporters-sentenced.html
+
 **Ten Hag backs Casemiro to 'bounce back'**\
 `Erik ten Hag has backed Casemiro to &#8220;bounce back&#8221; after the midfielder was replaced at half-time in Manchester United&#8217;s 3-0 defeat to Liverpool at Old Trafford on Sunday.`\
 https://nytimes.com/athletic/5738096/2024/09/01/erik-ten-hag-backs-casemiro/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/01/world/europe/russia-helicopter-crash-kamchatka.ht
 **Abilene Christian involved in bus accident after loss to Texas Tech**\
 `The accident occurred at 11:45 p.m. just off Texas Tech’s campus as the team began traveling back to Abilene.`\
 https://nytimes.com/athletic/5737949/2024/09/01/abilene-christian-bus-accident-texas-tech/
-
-**The Pulse: The hottest of hot seats, already**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/5737207/2024/09/01/florida-billy-napier-johnny-gaudreau-shohei-ohtani-the-pulse/
-
-**Kirschner: Yankees whiffed on their Jasson Domínguez decision, and it could cost them in October**\
-`The Yankees claim there isn't an open spot for the rookie, but that's only because they haven't wanted to sit left-fielder Alex Verdugo.`\
-https://nytimes.com/athletic/5737819/2024/09/01/yankees-jasson-dominguez-decision-mistake-october/
-
-**Man Utd 0 Liverpool 3: The Casemiro issue; clinical Diaz; Ten Hag's attacking calls and more**\
-`Our writers break down the action at Old Trafford as Liverpool soundly beat arch-rivals Manchester United`\
-https://nytimes.com/athletic/5734709/2024/09/01/manchester-united-liverpool-casemiro/
 

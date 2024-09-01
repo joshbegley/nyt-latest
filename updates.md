@@ -1,3 +1,15 @@
+**Simon Verity, World-Renowned Stone Carver, Is Dead at 79**\
+`He was perhaps best known for heading the team that created the statues of biblical figures at the Cathedral of St. John the Divine in Manhattan.`\
+https://nytimes.com/2024/09/01/arts/simon-verity-dies.html
+
+**Rams hiring Scott Frost in multi-faceted role: Sources**\
+`Frost will assist on special teams, but will also be asked to contribute to a variety of roles in all three phases.`\
+https://nytimes.com/athletic/5738158/2024/09/01/rams-scott-frost-coach-nebraska/
+
+**Man Sentenced to 27 Months in Prison for Harassing Journalists**\
+`Tucker Cockerline was part of a group that prosecutors said vandalized the homes of a New Hampshire Public Radio reporter, her editor and her parents.`\
+https://nytimes.com/2024/09/01/business/media/new-hampshire-man-stalking-reporters-sentenced.html
+
 **Ten Hag backs Casemiro to 'bounce back'**\
 `Erik ten Hag has backed Casemiro to &#8220;bounce back&#8221; after the midfielder was replaced at half-time in Manchester United&#8217;s 3-0 defeat to Liverpool at Old Trafford on Sunday.`\
 https://nytimes.com/athletic/5738096/2024/09/01/erik-ten-hag-backs-casemiro/
