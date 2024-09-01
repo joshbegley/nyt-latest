@@ -1,3 +1,7 @@
+**American-Israeli Hostage Held in Gaza for Months Is Dead, Biden Says**\
+`Hersh Goldberg-Polin had been held in the Gaza Strip for nearly 11 months. His body was among several recovered by the Israeli military.`\
+https://nytimes.com/2024/09/01/world/middleeast/hersh-goldberg-polin-hostage-gaza.html
+
 **Dunk's speedy redemption: Outstanding pass for Joao Pedro goal after being caught out by Saka**\
 `Dunk was at fault for Arsenal's opener but responded by playing an integral role in Brighton's equaliser`\
 https://nytimes.com/athletic/5735910/2024/09/01/lewis-dunk-brighton-arsenal-saka/

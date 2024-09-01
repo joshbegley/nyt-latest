@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5736177/2024/09/01/leeds-2-hull-0-solomon-aaronson-
 `One of the hostages, Hersh Goldberg-Polin, was an American citizen. Separately in Gaza, a polio vaccination drive was getting underway on Sunday.`\
 https://nytimes.com/live/2024/09/01/world/israel-hamas-gaza-war
 
-**An American-Israeli hostage held in Gaza for months is dead, Biden says.**\
+**American-Israeli Hostage Held in Gaza for Months Is Dead, Biden Says**\
 `Hersh Goldberg-Polin had been held in the Gaza Strip for nearly 11 months. His body was among several recovered by the Israeli military.`\
 https://nytimes.com/2024/09/01/world/middleeast/hersh-goldberg-polin-hostage-gaza.html
 
