@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5738158/2024/09/01/rams-scott-frost-coach-nebraska/
 https://nytimes.com/2024/09/01/business/media/new-hampshire-man-stalking-reporters-sentenced.html
 
 **Ten Hag backs Casemiro to 'bounce back'**\
-`Erik ten Hag has backed Casemiro to &#8220;bounce back&#8221; after the midfielder was replaced at half-time in Manchester United&#8217;s 3-0 defeat to Liverpool at Old Trafford on Sunday.`\
+`Erik ten Hag has backed Casemiro to &#8220;bounce back&#8221; after the midfielder was replaced following an error-strewn first half in Manchester United&#8217;s 3-0 defeat to Liverpool at Old Trafford on Sunday.`\
 https://nytimes.com/athletic/5738096/2024/09/01/erik-ten-hag-backs-casemiro/
 
 **With improved offense, Nebraska embraces next opportunity against Deion, Colorado**\
