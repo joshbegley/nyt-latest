@@ -1,3 +1,7 @@
+**Narrows at the End**\
+`Sala Wanetick and Emily Biegas make their New York Times debut.`\
+https://nytimes.com/2024/09/01/crosswords/daily-puzzle-2024-09-02.html
+
 **The Cubs offense was dominant in August. How did they do it?**\
 `The Cubs have scored 99 runs in their past 10 games: "The offense has been great."`\
 https://nytimes.com/athletic/5738450/2024/09/01/cubs-offense-august/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/01/us/politics/trump-harris-gold-star-families.html
 **Trump adviser Corey Lewandowski says the campaign won’t change its strategy.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/09/01/us/harris-trump-election/trump-adviser-corey-lewandowski-says-the-campaign-wont-change-its-strategy
-
-**USMNT roster: Interim head coach Mikey Varas calls up a mix of old and new names**\
-`USMNT will gather for games against Canada and New Zealand. `\
-https://nytimes.com/athletic/5738333/2024/09/01/usmnt-roster-september-christian-pulisic/
 
