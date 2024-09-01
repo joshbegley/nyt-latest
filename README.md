@@ -1,3 +1,7 @@
+**Five things we learned about the College Football Playoff race in Week 1**\
+`Even one week of action was enough to answer some questions that will impact the CFP race the rest of the way.`\
+https://nytimes.com/athletic/5737138/2024/09/01/college-football-playoff-contenders-results-week-1/
+
 **NFL’s most intriguing players: 24 to watch for the 2024 season**\
 `The performances of Harrison, Lamar Jackson, Micah Parsons and others will go a long way in setting a season tone for their teams.`\
 https://nytimes.com/athletic/5715420/2024/09/01/nfl-intriguing-players-2024-rodgers-mahomes-stroud/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5714807/2024/09/01/cincinnati-bengals-stadium-guide
 **Lambeau Field guide: What to know about the Green Bay Packers' home stadium**\
 `Our staff compiled 32 NFL stadium guides, one for every team, to help fans buy tickets and enjoy the day watching their favorite clubs.`\
 https://nytimes.com/athletic/5712882/2024/09/01/green-bay-packers-stadium-guide-lambeau-field/
-
-**Lumen Field guide: What to know about the Seattle Seahawks' home stadium**\
-`Our staff compiled 32 NFL stadium guides, one for every team, to help fans buy tickets and enjoy the day watching their favorite clubs.`\
-https://nytimes.com/athletic/5721135/2024/09/01/seattle-seahawks-stadium-guide-lumen-field/
 
