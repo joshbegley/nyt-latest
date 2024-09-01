@@ -1,3 +1,11 @@
+**Six Bodies Recovered in Gaza Were Hostages, Israel and U.S. Say**\
+`One of the hostages, Hersh Goldberg-Polin, was an American citizen. Separately in Gaza, a polio vaccination drive was getting underway on Sunday.`\
+https://nytimes.com/live/2024/09/01/world/israel-hamas-gaza-war
+
+**Hostages Found in Tunnel Were Killed by Hamas, Israel Says**\
+`One of the victims was a dual Israeli American citizen.`\
+https://nytimes.com/2024/09/01/world/middleeast/hersh-goldberg-polin-hostage-gaza.html
+
 **Mets' playoff odds improve as they close August on winning streak**\
 `The little things are big for the Mets as they begin the final month of the regular season fighting for a spot in the playoffs.`\
 https://nytimes.com/athletic/5737213/2024/09/01/mets-playoff-odds-white-sox/
