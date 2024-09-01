@@ -1,3 +1,7 @@
+**Hotel Workers Across the Country Go on Strike. How Will That Affect My Trip?**\
+`Though hotel chains say they’ll continue to operate normally, travelers could see disruptions as employees walked off the job in cities from Boston to San Francisco. Here’s what to know.`\
+https://nytimes.com/2024/09/01/travel/hotel-workers-strike.html
+
 **Tim Walz Heads Home to the Minnesota State Fair**\
 `The event, a must-stop for politicians through the years, has also been the site of some of the vice-presidential nominee’s most meme-able moments.`\
 https://nytimes.com/2024/09/01/us/politics/walz-minnesota-state-fair.html
