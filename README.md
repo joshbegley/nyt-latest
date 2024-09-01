@@ -1,40 +1,40 @@
-**Former Cardiff, Leicester and Leeds defender Bamba dies aged 39**\
-`Former Cardiff City, Leicester City and Leeds United defender Sol Bamba has died aged 39, it has been announced.`\
-https://nytimes.com/athletic/5737335/2024/09/01/sol-bamba-dies-cardiff-leicester-leeds/
+**With Russia on Its Doorstep, a Ukrainian Town Packs Its Bags**\
+`Ukraine gambled that its move into Russia would draw Moscow’s forces away from the town of Pokrovsk. It didn’t happen. And now resigned residents are evacuating daily.`\
+https://nytimes.com/2024/09/01/world/europe/ukraine-russia-evacuation-pokrovsk.html
 
-**U.S. Open day 7 watch guide: Coco Gauff vs. Emma Navarro and Frances Tiafoe on court**\
-`American hopefuls headline the first day of the last 16 in New York.`\
-https://nytimes.com/athletic/5736246/2024/09/01/us-open-day-7-watch-guide-gauff-navarro-tiafoe/
+**Others Have Politicized Arlington, but Trump’s Approach Has No Precedent**\
+`Donald J. Trump isn’t the first candidate to run afoul of the ban on partisan activity in Arlington National Cemetery. But no one else has responded as hostilely as his campaign has.`\
+https://nytimes.com/2024/09/01/us/politics/trump-arlington-cemetery-army.html
 
-**RB Leipzig end Leverkusen's unbeaten run - that may not be where their achievements end**\
-`There tends to be a legacy to this sort of win, and you wonder what the mental boost may be worth to Marco Rose and his Leipzig players`\
-https://nytimes.com/athletic/5736478/2024/09/01/leipzig-end-leverkusen-unbeaten-run/
+**Who Are the Biggest Donors to Trump and Harris?**\
+`In presidential politics, campaigns are powered by billionaires. Here is a look at the most influential givers.`\
+https://nytimes.com/2024/09/01/us/elections/democratic-republican-political-donors.html
 
-**A Fixture of Times Past**\
-`A brass pendant light once hung in the lobby of the newspaper’s former headquarters.`\
-https://nytimes.com/2024/09/01/insider/a-fixture-of-times-past.html
+**U.S. Open day 6 recap: One regular day of tennis in New York, until video review at night**\
+`A routine day of results in New York gave way to officiating drama in the night session.`\
+https://nytimes.com/athletic/5736359/2024/09/01/u-s-open-day-6-takeaways-kalinskaya-haddad-maia-video-review/
 
-**The Undoing of New York Nightlife’s Lawyer King**\
-`Sal Strazzullo made a flashy career of representing minor celebrities and those in their orbit. His own affluence was a facade.`\
-https://nytimes.com/2024/09/01/nyregion/sal-strazzullo-brooklyn-lawyer-theft.html
+**Review: On ‘English Teacher,’ School Is a Battlefield**\
+`A new FX sitcom handles the educational culture wars with a light touch.`\
+https://nytimes.com/2024/09/01/arts/television/review-english-teacher.html
 
-**‘His Expression Suggested He Was Trying to Solve a Puzzle’**\
-`A brisk April day in Manhattan, an overdue introduction on the F and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2024/09/01/nyregion/metropolitan-diary.html
+**How America Won the Fashion War (or, at Least, the Sweatpants Battle)**\
+`In “Empresses of Seventh Avenue,” the fashion writer Nancy MacDonell tells the story of the New York women who created modern style.`\
+https://nytimes.com/2024/09/01/books/review/nancy-macdonell-empresses-of-seventh-avenue.html
 
-**Dragons and Sharks on a Beach Near You: The Story of the Great Lego Spill**\
-`Nearly five million Lego pieces plunged into the sea in 1997. The pieces are still showing up — on England’s coast, in Ireland, Belgium, France and possibly at the beach near you.`\
-https://nytimes.com/2024/09/01/world/europe/1997-lego-spill.html
+**Second Time’s the Charm? Rematches Could Sway the Fight for Congress.**\
+`Candidates in both parties who lost by small margins in 2022 are trying to mount comebacks. Their races could determine which party wins control of the House.`\
+https://nytimes.com/2024/09/01/us/politics/house-swing-district-elections.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/09/01/crosswords/spelling-bee-forum.html
+**Snyder: A Liability no longer? Penn State receivers show promise in opening win**\
+`Harrison Wallace III looked and played like the No. 1 receiver, putting together the best game of his career.`\
+https://nytimes.com/athletic/5737197/2024/09/01/penn-state-west-virginia-receivers/
 
-**Mets' playoff odds improve as they close August on winning streak**\
-`The little things are big for the Mets as they begin the final month of the regular season fighting for a spot in the playoffs.`\
-https://nytimes.com/athletic/5737213/2024/09/01/mets-playoff-odds-white-sox/
+**America Must Free Itself from the Tyranny of the Penny**\
+`Few things symbolize our national dysfunction as much as this accursed coin, which we mint by the millions because it’s too worthless to spend.`\
+https://nytimes.com/2024/09/01/magazine/worthless-pennies-united-states-economy.html
 
-**Two electric, preposterous nights in Arizona have brought the best out of the Dodgers**\
-`The Dodgers' division lead is now six games. The margin hasn’t been this wide since July 28. It took just about everything.`\
-https://nytimes.com/athletic/5737198/2024/09/01/dodgers-diamondbacks-three-home-runs/
+**Even Summer Nights Can’t Escape Egypt’s Economic Crisis**\
+`It’s so hot in Cairo that people like to go out all night. It might look like a party, but in reality, one shopkeeper said, “everybody is dead on the inside.”`\
+https://nytimes.com/2024/09/01/world/middleeast/egypt-economic-crisis.html
 
