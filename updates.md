@@ -1,3 +1,11 @@
+**The Best Movies and TV Shows Coming to Disney+, Max, Hulu and More in September**\
+`“Fight Night: The Million Dollar Heist,” “A Very Royal Scandal,” a “Walking Dead” spinoff and “Agatha All Along” arrive.`\
+https://nytimes.com/2024/09/01/arts/television/september-streaming-movies-tv-shows.html
+
+**Harris’s Team, With a Wink, Insists She’s an Underdog**\
+`Her campaign’s message that Democrats are losing, which she never voiced when President Biden was tanking the ticket, is an artful attempt to lower expectations.`\
+https://nytimes.com/2024/09/01/us/politics/harris-democrats-trump.html
+
 **Man United set to sign Bizet from Spurs**\
 `Manchester United are set to sign Celin Bizet from Tottenham Hotspur.`\
 https://nytimes.com/athletic/5737423/2024/09/01/manchester-united-women-transfers-celin-bizet/
