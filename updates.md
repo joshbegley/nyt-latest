@@ -1,3 +1,7 @@
+**Ten Hag backs Casemiro to 'bounce back'**\
+`Erik ten Hag has backed Casemiro to &#8220;bounce back&#8221; after the midfielder was replaced at half-time in Manchester United&#8217;s 3-0 defeat to Liverpool at Old Trafford on Sunday.`\
+https://nytimes.com/athletic/5738096/2024/09/01/erik-ten-hag-backs-casemiro/
+
 **With improved offense, Nebraska embraces next opportunity against Deion, Colorado**\
 `It’s Chapter 2 of a fascinating matchup between Matt Rhule and Deion Sanders. Round 1 went to the Colorado coach. `\
 https://nytimes.com/athletic/5738084/2024/09/01/nebraska-football-colorado-deion-sanders-dylan-raiola/
