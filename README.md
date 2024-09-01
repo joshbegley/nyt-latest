@@ -1,3 +1,11 @@
+**How McLaren's Italian GP victory slipped away: 'It hurts at the moment'**\
+`McLaren had the race under total control. A strategy misjudgment derailed its big day in the F1 title fight. `\
+https://nytimes.com/athletic/5737726/2024/09/01/mclaren-f1-italian-gp-norris-piastri/
+
+**East Germans Lean Toward Extremes in State Elections**\
+`The Alternative for Germany party was on course to win in Thuringia, according to projections, in what was seen as a worrying sign of the health of German democracy.`\
+https://nytimes.com/2024/09/01/world/europe/east-german-state-elections-saxony-thuringia.html
+
 **Salah casts doubt on Liverpool future: 'It's my last year at the club'**\
 `Mohamed Salah has cast doubt over his Liverpool future by saying this will be his &#8220;last year at the club&#8221;.`\
 https://nytimes.com/athletic/5738029/2024/09/01/mohamed-salah-liverpool-contract-interview/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/01/movies/george-clooney-biden-apple-wolfs.html
 **Whatever you say, love - how to date a tennis player**\
 `From "Tsitsidosa" to Jannik Sinner and Anna Kalinskaya, the tennis dating world is full of love. But what's it really like?`\
 https://nytimes.com/athletic/5734880/2024/09/01/tennis-players-dating-tsitsidosa-sinner-kalinskaya/
-
-**About 10,000 Hotel Workers Walk Off the Job on Labor Day Weekend**\
-`The union representing the workers, UNITE HERE, has planned a rolling strike for several days in cities like Boston, San Francisco and Seattle after contract negotiations stalled.`\
-https://nytimes.com/2024/09/01/business/hotel-workers-unite-here-strike-labor-day.html
-
-**Dialysis May Prolong Life for Older Patients. But Not by Much.**\
-`In one recent study, the challenging regimen added 77 days of life after three years. Often, kidney disease can be managed in other ways.`\
-https://nytimes.com/2024/09/01/health/dialysis-seniors-kidneys.html
 
