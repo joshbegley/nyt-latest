@@ -1,3 +1,7 @@
+**The Cass Report: Biased or Balanced?**\
+`Readers respond to a column criticizing a report that questioned gender-affirming care for children. Also: Child tax credit; G.O.P. plans for the economy.`\
+https://nytimes.com/2024/09/01/opinion/transgender-cass-report.html
+
 **Simon Verity, World-Renowned Stone Carver, Is Dead at 79**\
 `He was perhaps best known for heading the team that created the statues of biblical figures at the Cathedral of St. John the Divine in Manhattan.`\
 https://nytimes.com/2024/09/01/arts/simon-verity-dies.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5738029/2024/09/01/mohamed-salah-liverpool-contract
 **Helicopter Crash Near Volcano in Russia’s Far East Kills at Least 17**\
 `The helicopter was flying tourists in Russia’s Kamchatka region. No survivors were expected among the 22 people on board, state news agencies said.`\
 https://nytimes.com/2024/09/01/world/europe/russia-helicopter-crash-kamchatka.html
-
-**Abilene Christian involved in bus accident after loss to Texas Tech**\
-`The accident occurred at 11:45 p.m. just off Texas Tech’s campus as the team began traveling back to Abilene.`\
-https://nytimes.com/athletic/5737949/2024/09/01/abilene-christian-bus-accident-texas-tech/
 

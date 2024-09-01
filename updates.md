@@ -1,3 +1,7 @@
+**The Cass Report: Biased or Balanced?**\
+`Readers respond to a column criticizing a report that questioned gender-affirming care for children. Also: Child tax credit; G.O.P. plans for the economy.`\
+https://nytimes.com/2024/09/01/opinion/transgender-cass-report.html
+
 **Simon Verity, World-Renowned Stone Carver, Is Dead at 79**\
 `He was perhaps best known for heading the team that created the statues of biblical figures at the Cathedral of St. John the Divine in Manhattan.`\
 https://nytimes.com/2024/09/01/arts/simon-verity-dies.html
