@@ -1,3 +1,8 @@
+**Chris Wood and the scoring stat that puts him above Mohamed Salah and Cole Palmer**\
+`Who out of Mohamed Salah, Cole Palmer and Chris Wood has scored the most non-penalty goals since the start of the 2023-24 Premier League season?
+You can have three guesses.`\
+https://nytimes.com/athletic/5736278/2024/09/01/chris-wood-forest-goals-salah-palmer-premier-league/
+
 **Mets' playoff odds improve as they close August on winning streak**\
 `The little things are big for the Mets as they begin the final month of the regular season fighting for a spot in the playoffs.`\
 https://nytimes.com/athletic/5737213/2024/09/01/mets-playoff-odds-white-sox/
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/5735740/2024/09/01/burnley-transfers-summer-window-
 **Everton 2-3 Bournemouth - dissecting the Premier League's most dramatic defeat**\
 `Everton lost control, were unable to match the visitors’ energy after their substitutions, and had no way of alleviating pressure`\
 https://nytimes.com/athletic/5736812/2024/09/01/everton-2-3-bournemouth-analysis-dyche/
-
-**Analysing the Premier League's 2024 summer transfer window**\
-`Many English clubs took a slightly more considered approach to transfers in 2024, but the Premier League still boasts the deepest reserves`\
-https://nytimes.com/athletic/5735719/2024/09/01/summer-transfer-window-spending-review/
 
