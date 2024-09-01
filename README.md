@@ -1,3 +1,7 @@
+**Antônio Meneses, Lyrical Brazilian Cellist, Is Dead at 66**\
+`He began playing as a child and quickly found success for his technical command and, as one critic put it, his “thoughtful elegance.”`\
+https://nytimes.com/2024/09/01/arts/music/antonio-meneses-dead.html
+
 **Chelsea await updates on Gusto 'muscle problem'**\
 `Chelsea will await further updates after Malo Gusto picked up what they fear could be a muscle problem in the draw with Crystal Palace.`\
 https://nytimes.com/athletic/5737866/2024/09/01/malo-gusto-injury-chelsea-crystal-palace/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5729725/2024/09/01/newcastle-2-tottenham-1-briefing
 **The Briefing: Chelsea 1 Palace 1 - Why Maresca's men lost control; Gusto concerns; left-flank questions**\
 `We break down the action from Stamford Bridge as Chelsea let a lead slip at home to Palace`\
 https://nytimes.com/athletic/5729664/2024/09/01/chelsea-palace-gusto-sancho/
-
-**Sporting to sign Brighton target Harder from Nordsjaelland**\
-`Sporting are set to beat Brighton &amp; Hove Albion to the signing of Conrad Harder from Nordsjaelland.`\
-https://nytimes.com/athletic/5737472/2024/09/01/conrad-harder-sporting-transfer-brighton/
 
