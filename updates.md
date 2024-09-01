@@ -1,3 +1,7 @@
+**Trump Campaign Uses Statements From Gold Star Families to Attack Harris**\
+`It was the latest effort by the Trump campaign to defend itself after the campaign defied a ban on political campaigning at Arlington National Cemetery.`\
+https://nytimes.com/2024/09/01/us/politics/trump-harris-gold-star-families.html
+
 **Trump adviser Corey Lewandowski says the campaign won’t change its strategy.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/09/01/us/harris-trump-election/trump-adviser-corey-lewandowski-says-the-campaign-wont-change-its-strategy

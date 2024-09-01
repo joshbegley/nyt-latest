@@ -1,3 +1,7 @@
+**Trump Campaign Uses Statements From Gold Star Families to Attack Harris**\
+`It was the latest effort by the Trump campaign to defend itself after the campaign defied a ban on political campaigning at Arlington National Cemetery.`\
+https://nytimes.com/2024/09/01/us/politics/trump-harris-gold-star-families.html
+
 **Trump adviser Corey Lewandowski says the campaign won’t change its strategy.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/09/01/us/harris-trump-election/trump-adviser-corey-lewandowski-says-the-campaign-wont-change-its-strategy
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/01/nyregion/jan-6-rioters-fund-raiser-postponed.html
 **Big Ten fans: Submit your Week 1 overreactions and hot takes**\
 `Submit your overreactions, hot takes and bold predictions off of Big Ten teams' opening games for an upcoming feature.`\
 https://nytimes.com/athletic/5738249/2024/09/01/big-ten-college-football-week-1/
-
-**Death of Israeli-American Hostage Prompts Outpouring of Grief Across U.S.**\
-`Hersh Goldberg-Polin was among the hostages who were found dead on Saturday. Many remembered him as a gleeful and good-humored person — who later became a symbol of hope.`\
-https://nytimes.com/2024/09/01/us/hersh-goldberg-polin-death-mourning-us.html
 
