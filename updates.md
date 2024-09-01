@@ -1,3 +1,11 @@
+**Coco Gauff knocked out of U.S. Open by Emma Navarro**\
+`NEW YORK — Coco Gauff’s Grand Slam season is over.`\
+https://nytimes.com/athletic/5738443/2024/09/01/coco-gauff-us-open-result-emma-navarro/
+
+**Astros takeaways: Yusei Kikuchi's dominance, getting Ben Gamel and Chas McCormick's future**\
+`The Astros went 18-10 in August, thanks to a dominant performance from their entire pitching staff.`\
+https://nytimes.com/athletic/5738584/2024/09/01/astros-yusei-kikuchi-ben-gamel-chas-mccormick/
+
 **Narrows at the End**\
 `Sala Wanetick and Emily Biegas make their New York Times debut.`\
 https://nytimes.com/2024/09/01/crosswords/daily-puzzle-2024-09-02.html
