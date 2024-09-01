@@ -1,3 +1,7 @@
+**Texas A&M dealt reality check by missed opportunity vs. Notre Dame**\
+`Texas A&M put up a fight, but any optimism of a surprise run to the College Football Playoff entering the season must be tempered.`\
+https://nytimes.com/athletic/5737229/2024/09/01/texas-am-aggies-notre-dame-elko/
+
 **China and the Philippines Trade Blame for the Latest Sea Collision**\
 `The United States condemned the episode near Sabina Shoal in the South China Sea and reaffirmed its defense treaty with Manila.`\
 https://nytimes.com/2024/09/01/world/asia/china-philippines-south-china-sea-collision.html
