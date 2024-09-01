@@ -1,3 +1,7 @@
+**How the U.S. Open's jumbo tennis ball became a cute, yellow harbinger of doom**\
+`The oversized Wilson ball, used for autographs, is everywhere. Players on the cusp of losing want it out of their sight`\
+https://nytimes.com/athletic/5732358/2024/09/01/us-open-jumbo-tennis-ball/
+
 **Discovery of 6 Dead Hostages in Gaza Spurs Protest and Division in Israel**\
 `The Israeli military said Sunday that Hamas had killed the hostages before they were discovered by Israeli troops on Saturday.`\
 https://nytimes.com/2024/09/01/world/middleeast/israel-gaza-hostages-ceasefire.html
