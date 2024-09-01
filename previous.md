@@ -1,3 +1,7 @@
+**Ferrari’s surprise Italian GP win energizes the tifosi – and provides fresh hope**\
+`Ferrari and Leclerc faced a go-for-broke moment on Sunday and delivered in front of its home fans. `\
+https://nytimes.com/athletic/5737727/2024/09/01/charles-leclerc-italian-gp-f1-ferrari-f1/
+
 **Angel Reese sets WNBA single-season rebounding record**\
 `Reese, 22, led the WNBA in rebounds per game entering Sunday, averaging 12.9 and 13.2 points.`\
 https://nytimes.com/athletic/5738326/2024/09/01/angel-reese-sky-wnba-rebound-record/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009668375/gaza-polio-vaccinatio
 **Protesters in Jerusalem Demand an Immediate Hostage Deal**\
 `Israelis demonstrated outside Prime Minister Benjamin Netanyahu’s office after the military recovered the bodies of six killed hostages from a tunnel underneath Rafah, Gaza.`\
 https://nytimes.com/video/world/middleeast/100000009668606/israel-hostages-protest.html
-
-**Fund-Raiser for Jan. 6 Rioters at Trump’s Golf Club Is Postponed**\
-`Donald J. Trump did not plan to attend the gala event at his venue in Bedminster, N.J., but it highlighted his efforts to rewrite the history of the attack on the Capitol.`\
-https://nytimes.com/2024/09/01/nyregion/jan-6-rioters-fund-raiser-postponed.html
 
