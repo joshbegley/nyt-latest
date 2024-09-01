@@ -1,3 +1,7 @@
+**Jackson agrees Chelsea contract extension**\
+`Chelsea forward Nicolas Jackson has agreed a contract extension that commits him to the club until 2033.`\
+https://nytimes.com/athletic/5737483/2024/09/01/nicolas-jackson-contract-chelsea-new/
+
 **The Best Movies and TV Shows Coming to Disney+, Max, Hulu and More in September**\
 `“Fight Night: The Million Dollar Heist,” “A Very Royal Scandal,” a “Walking Dead” spinoff and “Agatha All Along” arrive.`\
 https://nytimes.com/2024/09/01/arts/television/september-streaming-movies-tv-shows.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5708211/2024/09/01/denver-broncos-stadium-guide-emp
 **EverBank Stadium guide: What to know about the Jacksonville Jaguars' home field**\
 `Our staff compiled 32 NFL stadium guides, one for every team, to help fans buy tickets and enjoy the day watching their favorite clubs.`\
 https://nytimes.com/athletic/5716158/2024/09/01/jacksonville-jaguars-stadium-guide-everbank/
-
-**Raymond James Stadium guide: What to know about the Tampa Bay Buccaneers' home field**\
-`Our staff compiled 32 NFL stadium guides, one for every team, to help fans buy tickets and enjoy the day watching their favorite clubs.`\
-https://nytimes.com/athletic/5715203/2024/09/01/tampa-bay-buccaneers-stadium-guide-raymond-james/
 
