@@ -4,7 +4,7 @@ https://nytimes.com/athletic/5736984/2024/08/31/ricky-pearsall-shot-union-square
 
 **Billy Napier beware: Florida has not historically been patient in rebuilds**\
 `Once-potent Florida has endured three losing seasons in a row for the first time since the 1940s. The opener didn't spark much hope.`\
-https://nytimes.com/athletic/5736932/2024/08/31/billy-napier-beware-florida-has-not-historically-been-patient-in-rebuilds/
+https://nytimes.com/athletic/5736932/2024/08/31/billy-napier-florida-miami-loss/
 
 **Ashton Jeanty stakes claim to 2025 NFL Draft's RB1 slot with 6-TD performance**\
 `Jeanty had touchdown runs of 77 and 75 yards as part of his record-setting performance. `\
