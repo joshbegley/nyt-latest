@@ -1,3 +1,7 @@
+**Chelsea await updates on Gusto 'muscle problem'**\
+`Chelsea will await further updates after Malo Gusto picked up what they fear could be a muscle problem in the draw with Crystal Palace.`\
+https://nytimes.com/athletic/5737866/2024/09/01/malo-gusto-injury-chelsea-crystal-palace/
+
 **Valentina Petrillo, the transgender sprinter at Paralympics - the rules and the complexities**\
 `As Petrillo prepares to compete in the 400m T12 race in Paris on Monday, we attempt to answer the key questions around her involvement`\
 https://nytimes.com/athletic/5735859/2024/09/01/valentina-petrillo-transgender-sprinter-paralympics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5729664/2024/09/01/chelsea-palace-gusto-sancho/
 **Sporting to sign Brighton target Harder from Nordsjaelland**\
 `Sporting are set to beat Brighton &amp; Hove Albion to the signing of Conrad Harder from Nordsjaelland.`\
 https://nytimes.com/athletic/5737472/2024/09/01/conrad-harder-sporting-transfer-brighton/
-
-**What the Oilers can expect from trade acquisition Ty Emberson**\
-`Emberson was the Oilers' return from San Jose in exchange for veteran defenceman Cody Ceci.`\
-https://nytimes.com/athletic/5736156/2024/09/01/edmonton-oilers-ty-emberson-trade/
 

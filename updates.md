@@ -1,3 +1,7 @@
+**Chelsea await updates on Gusto 'muscle problem'**\
+`Chelsea will await further updates after Malo Gusto picked up what they fear could be a muscle problem in the draw with Crystal Palace.`\
+https://nytimes.com/athletic/5737866/2024/09/01/malo-gusto-injury-chelsea-crystal-palace/
+
 **Valentina Petrillo, the transgender sprinter at Paralympics - the rules and the complexities**\
 `As Petrillo prepares to compete in the 400m T12 race in Paris on Monday, we attempt to answer the key questions around her involvement`\
 https://nytimes.com/athletic/5735859/2024/09/01/valentina-petrillo-transgender-sprinter-paralympics/
