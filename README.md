@@ -1,40 +1,40 @@
-**Many Israelis direct their anger at Netanyahu over the hostage deaths.**\
-`By Adam Rasgon`\
-https://nytimes.com/live/2024/09/01/world/israel-hamas-gaza-war/many-israelis-direct-their-anger-at-netanyahu-over-the-deaths-of-6-hostages
+**Empower Field at Mile High guide: What to know about the Denver Broncos' stadium**\
+`Our staff compiled 32 NFL stadium guides, one for every team, to help fans buy tickets and enjoy the day watching their favorite clubs.`\
+https://nytimes.com/athletic/5708211/2024/09/01/denver-broncos-stadium-guide-empower-field-at-mile-high/
 
-**Texas A&M dealt reality check by missed opportunity vs. Notre Dame**\
-`Texas A&M put up a fight, but any optimism of a surprise run to the College Football Playoff entering the season must be tempered.`\
-https://nytimes.com/athletic/5737229/2024/09/01/texas-am-aggies-notre-dame-elko/
+**EverBank Stadium guide: What to know about the Jacksonville Jaguars' home field**\
+`Our staff compiled 32 NFL stadium guides, one for every team, to help fans buy tickets and enjoy the day watching their favorite clubs.`\
+https://nytimes.com/athletic/5716158/2024/09/01/jacksonville-jaguars-stadium-guide-everbank/
 
-**China and the Philippines Trade Blame for the Latest Sea Collision**\
-`The United States condemned the episode near Sabina Shoal in the South China Sea and reaffirmed its defense treaty with Manila.`\
-https://nytimes.com/2024/09/01/world/asia/china-philippines-south-china-sea-collision.html
+**Raymond James Stadium guide: What to know about the Tampa Bay Buccaneers' home field**\
+`Our staff compiled 32 NFL stadium guides, one for every team, to help fans buy tickets and enjoy the day watching their favorite clubs.`\
+https://nytimes.com/athletic/5715203/2024/09/01/tampa-bay-buccaneers-stadium-guide-raymond-james/
 
-**Para triathlon postponed over water quality concerns in River Seine**\
-`The para triathlon competition at the Paris 2024 Paralympics has been postponed until Monday because of concerns over water quality in the River Seine.`\
-https://nytimes.com/athletic/5737396/2024/09/01/paralympic-triathlon-river-seine-water/
+**MetLife Stadium guide: What to know about the New York Jets' home field**\
+`Our staff compiled 32 NFL stadium guides, one for every team, to help fans buy tickets and enjoy the day watching their favorite clubs.`\
+https://nytimes.com/athletic/5721737/2024/09/01/new-york-jets-stadium-guide-metlife/
 
-**Happy Birthday, Dear Frozen Eggs, Happy Birthday to You**\
-`Egg showers have become common on social media, but a Brooklyn woman has gone a step further by throwing her eggs a birthday party every year.`\
-https://nytimes.com/2024/09/01/style/frozen-egg-showers.html
+**Nissan Stadium guide: What to know about the Tennessee Titans' home field**\
+`Our staff compiled 32 NFL stadium guides, one for every team, to help fans buy tickets and enjoy the day watching their favorite clubs.`\
+https://nytimes.com/athletic/5716565/2024/09/01/tennessee-titans-stadium-guide-nissan/
 
-**A Small Town Gets an Uncomfortable Spotlight After the Boar’s Head Recall**\
-`A deadly listeria outbreak at the plant in Jarratt, Va., has residents worried about the town’s future.`\
-https://nytimes.com/2024/09/01/us/boars-head-jarratt-virginia.html
+**Acrisure Stadium guide: What to know about the Pittsburgh Steelers' home field**\
+`Our staff compiled 32 NFL stadium guides, one for every team, to help fans buy tickets and enjoy the day watching their favorite clubs.`\
+https://nytimes.com/athletic/5720854/2024/09/01/pittsburgh-steelers-stadium-guide-acrisure/
 
-**With Russia on Its Doorstep, a Ukrainian Town Packs Its Bags**\
-`Ukraine gambled that its move into Russia would draw Moscow’s forces away from the town of Pokrovsk. It didn’t happen. And now resigned residents are evacuating daily.`\
-https://nytimes.com/2024/09/01/world/europe/ukraine-russia-evacuation-pokrovsk.html
+**Paycor Stadium guide: What to know about the Cincinnati Bengals' home field**\
+`Our staff compiled 32 NFL stadium guides, one for every team, to help fans buy tickets and enjoy the day watching their favorite clubs.`\
+https://nytimes.com/athletic/5714807/2024/09/01/cincinnati-bengals-stadium-guide-paycor/
 
-**Others Have Politicized Arlington, but Trump’s Approach Has No Precedent**\
-`Donald J. Trump isn’t the first candidate to run afoul of the ban on partisan activity in Arlington National Cemetery. But no one else has responded as hostilely as his campaign has.`\
-https://nytimes.com/2024/09/01/us/politics/trump-arlington-cemetery-army.html
+**Lambeau Field guide: What to know about the Green Bay Packers' home stadium**\
+`Our staff compiled 32 NFL stadium guides, one for every team, to help fans buy tickets and enjoy the day watching their favorite clubs.`\
+https://nytimes.com/athletic/5712882/2024/09/01/green-bay-packers-stadium-guide-lambeau-field/
 
-**Who Are the Biggest Donors to Trump and Harris?**\
-`In presidential politics, campaigns are powered by billionaires. Here is a look at the most influential givers.`\
-https://nytimes.com/2024/09/01/us/elections/democratic-republican-political-donors.html
+**Lumen Field guide: What to know about the Seattle Seahawks' home stadium**\
+`Our staff compiled 32 NFL stadium guides, one for every team, to help fans buy tickets and enjoy the day watching their favorite clubs.`\
+https://nytimes.com/athletic/5721135/2024/09/01/seattle-seahawks-stadium-guide-lumen-field/
 
-**U.S. Open day 6 recap: One regular day of tennis in New York, until video review at night**\
-`A routine day of results in New York gave way to officiating drama in the night session.`\
-https://nytimes.com/athletic/5736359/2024/09/01/u-s-open-day-6-takeaways-kalinskaya-haddad-maia-video-review/
+**Bank of America Stadium guide: What to know about the Carolina Panthers' home field**\
+`Our staff compiled 32 NFL stadium guides, one for every team, to help fans buy tickets and enjoy the day watching their favorite clubs.`\
+https://nytimes.com/athletic/5708404/2024/09/01/carolina-panthers-stadium-guide-bank-of-america/
 
