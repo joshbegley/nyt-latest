@@ -1,3 +1,7 @@
+**Must Be Rats on the Brain**\
+`The one animal we can’t seem to live without, even when we really, really want to.`\
+https://nytimes.com/2024/09/01/podcasts/must-be-rats-this-american-life-nyt-audio.html
+
 **Discovery of 6 Dead Hostages in Gaza Spurs Protest and Division in Israel**\
 `The Israeli military said Sunday that Hamas had killed the hostages before they were discovered by Israeli troops on Saturday.`\
 https://nytimes.com/2024/09/01/world/middleeast/israel-gaza-hostages-ceasefire.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/01/crosswords/daily-puzzle-2024-09-02.html
 **The Cubs offense was dominant in August. How did they do it?**\
 `The Cubs have scored 99 runs in their past 10 games: "The offense has been great."`\
 https://nytimes.com/athletic/5738450/2024/09/01/cubs-offense-august/
-
-**White Sox lose 107th game, most in franchise history**\
-`Chicago has only won six series all season but has now been swept 22 times.`\
-https://nytimes.com/athletic/5738440/2024/09/01/white-sox-franchise-loss-record-mets/
 

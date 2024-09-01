@@ -1,3 +1,7 @@
+**Must Be Rats on the Brain**\
+`The one animal we can’t seem to live without, even when we really, really want to.`\
+https://nytimes.com/2024/09/01/podcasts/must-be-rats-this-american-life-nyt-audio.html
+
 **How the U.S. Open's jumbo tennis ball became a cute, yellow harbinger of doom**\
 `The oversized Wilson ball, used for autographs, is everywhere. Players on the cusp of losing want it out of their sight`\
 https://nytimes.com/athletic/5732358/2024/09/01/us-open-jumbo-tennis-ball/
