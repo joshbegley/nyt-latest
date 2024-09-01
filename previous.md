@@ -2,7 +2,7 @@
 `Golden Diner’s tuna melt is a study in texture, in contrasting flavors, in griddled perfection.`\
 https://nytimes.com/2024/09/01/dining/this-may-just-be-the-absolute-best-tuna-melt.html
 
-**Yankees don't call up top prospect Domínguez**\
+**Yankees don't call up top prospect Jasson Domínguez**\
 `The decision may be seen as a commitment to left fielder Alex Verdugo, who has struggled offensively but has been a strong defender.`\
 https://nytimes.com/athletic/5737117/2024/09/01/yankees-jasson-dominguez-anthony-rizzo-roster/
 
