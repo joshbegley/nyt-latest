@@ -1,3 +1,7 @@
+**Texas A&M dealt reality check by missed opportunity vs. Notre Dame**\
+`Texas A&M put up a fight, but any optimism of a surprise run to the College Football Playoff entering the season must be tempered.`\
+https://nytimes.com/athletic/5737229/2024/09/01/texas-am-aggies-notre-dame-elko/
+
 **China and the Philippines Trade Blame for the Latest Sea Collision**\
 `The United States condemned the episode near Sabina Shoal in the South China Sea and reaffirmed its defense treaty with Manila.`\
 https://nytimes.com/2024/09/01/world/asia/china-philippines-south-china-sea-collision.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5736359/2024/09/01/u-s-open-day-6-takeaways-kalinsk
 **Review: On ‘English Teacher,’ School Is a Battlefield**\
 `A new FX sitcom handles the educational culture wars with a light touch.`\
 https://nytimes.com/2024/09/01/arts/television/review-english-teacher.html
-
-**How America Won the Fashion War (or, at Least, the Sweatpants Battle)**\
-`In “Empresses of Seventh Avenue,” the fashion writer Nancy MacDonell tells the story of the New York women who created modern style.`\
-https://nytimes.com/2024/09/01/books/review/nancy-macdonell-empresses-of-seventh-avenue.html
 
