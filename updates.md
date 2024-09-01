@@ -1,3 +1,7 @@
+**The Cubs' offense was dominant in August. How did they do it?**\
+`The Cubs have scored 99 runs in their past 10 games: "The offense has been great."`\
+https://nytimes.com/athletic/5738450/2024/09/01/cubs-offense-august/
+
 **White Sox lose 107th game, most in franchise history**\
 `Chicago has only won six series all season but has now been swept 22 times.`\
 https://nytimes.com/athletic/5738440/2024/09/01/white-sox-franchise-loss-record-mets/

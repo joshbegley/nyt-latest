@@ -1,3 +1,7 @@
+**The Cubs' offense was dominant in August. How did they do it?**\
+`The Cubs have scored 99 runs in their past 10 games: "The offense has been great."`\
+https://nytimes.com/athletic/5738450/2024/09/01/cubs-offense-august/
+
 **White Sox lose 107th game, most in franchise history**\
 `Chicago has only won six series all season but has now been swept 22 times.`\
 https://nytimes.com/athletic/5738440/2024/09/01/white-sox-franchise-loss-record-mets/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/01/us/harris-trump-election/trump-adviser-corey
 **USMNT roster: Interim head coach Mikey Varas calls up a mix of old and new names**\
 `USMNT will gather for games against Canada and New Zealand. `\
 https://nytimes.com/athletic/5738333/2024/09/01/usmnt-roster-september-christian-pulisic/
-
-**Protests Break Out Across Israel Demanding a Deal for the Release of Hostages**\
-`Demonstrations broke out in cities around the country after the Israeli military announced the recovery of six dead hostages.`\
-https://nytimes.com/2024/09/01/world/middleeast/israel-protests-hostages.html
 
