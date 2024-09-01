@@ -1,3 +1,7 @@
+**China and the Philippines Trade Blame for the Latest Sea Collision**\
+`The United States condemned the episode near Sabina Shoal in the South China Sea and reaffirmed its defense treaty with Manila.`\
+https://nytimes.com/2024/09/01/world/asia/china-philippines-south-china-sea-collision.html
+
 **Para triathlon postponed over water quality concerns in River Seine**\
 `The para triathlon competition at the Paris 2024 Paralympics has been postponed until Monday because of concerns over water quality in the River Seine.`\
 https://nytimes.com/athletic/5737396/2024/09/01/paralympic-triathlon-river-seine-water/
