@@ -1,3 +1,7 @@
+**Two electric, preposterous nights in Arizona have brought the best out of the Dodgers**\
+`The Dodgers' division lead is now six games. The margin hasn’t been this wide since July 28. It took just about everything.`\
+https://nytimes.com/athletic/5737198/2024/09/01/dodgers-diamondbacks-three-home-runs/
+
 **How Should We Mourn the End of Summer?**\
 `Sadness is a natural response to the passing of summer. We need to cope with small griefs using mechanisms similar to those we’d use for large griefs.`\
 https://nytimes.com/2024/09/01/opinion/summer-sadness-grief-seasons.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5734102/2024/09/01/manchester-united-liverpool-prem
 **Declan Rice's red card, 'inconsistent' refereeing and the lesson Arsenal need to learn from it**\
 `Rice was shown a red card in controversial circumstances — a decision that was criticised by his manager but welcomed by Arsenal's opponents`\
 https://nytimes.com/athletic/5736291/2024/09/01/arsenal-rice-red-card-referee-premier-league/
-
-**Erling Haaland is getting even better**\
-`The records continue to tumble for Manchester City's star striker, who looks revitalised and ready to scale even greater heights`\
-https://nytimes.com/athletic/5736654/2024/09/01/erling-haaland-manchester-city-improvement-guardiola/
 
