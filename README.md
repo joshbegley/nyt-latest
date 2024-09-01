@@ -1,3 +1,7 @@
+**Sampson: Notre Dame sets tone for season as Marcus Freeman pushes right buttons at Texas A&M**\
+`Notre Dame made an early statement in the 2024 season on Saturday with a win on the road over Texas A&M. `\
+https://nytimes.com/athletic/5737404/2024/09/01/notre-dame-texas-am-marcus-freeman-riley-leonard/
+
 **Abolish the Penny?**\
 `Inside an intractable problem inside America’s change purses.`\
 https://nytimes.com/2024/09/01/briefing/the-penny-us-currency.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/01/world/europe/ukraine-russia-energy-strikes.html
 **What's next for Alabama's Ryan Williams after superstar debut?**\
 `Williams finished his Alabama debut with two catches for 139 yards and two touchdowns against Western Kentucky.`\
 https://nytimes.com/athletic/5737405/2024/09/01/ryan-williams-alabama-football/
-
-**Five things we learned about the College Football Playoff race in Week 1**\
-`Even one week of action was enough to answer some questions that will impact the CFP race the rest of the way.`\
-https://nytimes.com/athletic/5737138/2024/09/01/college-football-playoff-contenders-results-week-1/
 
