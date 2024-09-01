@@ -1,3 +1,7 @@
+**3 Israeli Police Officers Killed as West Bank Violence Spirals**\
+`The officers were shot and killed in what the Israeli police said was a terrorist attack. The incident followed a rise in Palestinian and Israeli violence, as Israel’s military raids Palestinian cities.`\
+https://nytimes.com/2024/09/01/world/middleeast/israel-west-bank-police.html
+
 **Wrexham's transfer window: Dobson a quality addition, but slight concerns up front**\
 `After Wrexham's impressive 2-0 win at Peterborough, The Athletic reflects on a busy transfer window at the SToK Cae Ras....`\
 https://nytimes.com/athletic/5731243/2024/09/01/wrexham-transfer-window/
