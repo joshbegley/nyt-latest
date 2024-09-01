@@ -1,5 +1,5 @@
 **Notre Dame made early Playoff statement at Texas A&M: What we learned about Irish, Aggies**\
-`Notre Dame broke a tie in the final two minutes and beat Texas A&M 23-13. Here's what we learned about the Irish and the Aggies.`\
+`Notre Dame broke a tie in the final two minutes and beat Texas A&M 23-13. Here's what it means for the Irish and the Aggies.`\
 https://nytimes.com/athletic/5737078/2024/08/31/notre-dame-texas-am-recap-score/
 
 **Alabama takeaways: Ryan Williams is for real, O-line forced to shuffle, defense dominates**\
