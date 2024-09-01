@@ -1,3 +1,7 @@
+**What's next for Alabama's Ryan Williams after superstar debut?**\
+`Williams finished his Alabama debut with two catches for 139 yards and two touchdowns against Western Kentucky.`\
+https://nytimes.com/athletic/5737405/2024/09/01/ryan-williams-alabama-football/
+
 **Five things we learned about the College Football Playoff race in Week 1**\
 `Even one week of action was enough to answer some questions that will impact the CFP race the rest of the way.`\
 https://nytimes.com/athletic/5737138/2024/09/01/college-football-playoff-contenders-results-week-1/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5720854/2024/09/01/pittsburgh-steelers-stadium-guid
 **Paycor Stadium guide: What to know about the Cincinnati Bengals' home field**\
 `Our staff compiled 32 NFL stadium guides, one for every team, to help fans buy tickets and enjoy the day watching their favorite clubs.`\
 https://nytimes.com/athletic/5714807/2024/09/01/cincinnati-bengals-stadium-guide-paycor/
-
-**Lambeau Field guide: What to know about the Green Bay Packers' home stadium**\
-`Our staff compiled 32 NFL stadium guides, one for every team, to help fans buy tickets and enjoy the day watching their favorite clubs.`\
-https://nytimes.com/athletic/5712882/2024/09/01/green-bay-packers-stadium-guide-lambeau-field/
 
