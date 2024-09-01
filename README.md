@@ -22,11 +22,6 @@ https://nytimes.com/2024/09/01/world/europe/1997-lego-spill.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/09/01/crosswords/spelling-bee-forum.html
 
-**Chris Wood and the scoring stat that puts him above Mohamed Salah and Cole Palmer**\
-`Who out of Mohamed Salah, Cole Palmer and Chris Wood has scored the most non-penalty goals since the start of the 2023-24 Premier League season?
-You can have three guesses.`\
-https://nytimes.com/athletic/5736278/2024/09/01/chris-wood-forest-goals-salah-palmer-premier-league/
-
 **Mets' playoff odds improve as they close August on winning streak**\
 `The little things are big for the Mets as they begin the final month of the regular season fighting for a spot in the playoffs.`\
 https://nytimes.com/athletic/5737213/2024/09/01/mets-playoff-odds-white-sox/
@@ -38,4 +33,8 @@ https://nytimes.com/athletic/5737198/2024/09/01/dodgers-diamondbacks-three-home-
 **How Should We Mourn the End of Summer?**\
 `Sadness is a natural response to the passing of summer. We need to cope with small griefs using mechanisms similar to those we’d use for large griefs.`\
 https://nytimes.com/2024/09/01/opinion/summer-sadness-grief-seasons.html
+
+**Dunk's speedy redemption: Outstanding pass for Joao Pedro goal after being caught out by Saka**\
+`Dunk was at fault for Arsenal's opener but responded by playing an integral role in Brighton's equaliser`\
+https://nytimes.com/athletic/5735910/2024/09/01/lewis-dunk-brighton-arsenal-saka/
 
