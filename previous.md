@@ -1,3 +1,7 @@
+**Valentina Petrillo, the transgender sprinter at Paralympics - the rules and the complexities**\
+`As Petrillo prepares to compete in the 400m T12 race in Paris on Monday, we attempt to answer the key questions around her involvement`\
+https://nytimes.com/athletic/5735859/2024/09/01/valentina-petrillo-transgender-sprinter-paralympics/
+
 **Magnussen receives F1 race ban after Italian GP for meeting penalty point limit**\
 `Magnussen will not be allowed to race during the Azerbaijan Grand Prix weekend in September. `\
 https://nytimes.com/athletic/5737742/2024/09/01/kevin-magnussen-race-ban-haas-f1-azerbaijan-gp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5737472/2024/09/01/conrad-harder-sporting-transfer-
 **What the Oilers can expect from trade acquisition Ty Emberson**\
 `Emberson was the Oilers' return from San Jose in exchange for veteran defenceman Cody Ceci.`\
 https://nytimes.com/athletic/5736156/2024/09/01/edmonton-oilers-ty-emberson-trade/
-
-**Ferrari's Charles Leclerc wins the 2024 Italian GP as McLaren squanders chances**\
-`It's Leclerc's second win at Monza and tightens the F1 championship race further. `\
-https://nytimes.com/athletic/5737645/2024/09/01/charles-leclerc-italian-gp-f1-ferrari/
 
