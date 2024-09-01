@@ -3,7 +3,7 @@
 https://nytimes.com/2024/09/01/business/hotel-workers-unite-here-strike-labor-day.html
 
 **Dialysis May Prolong Life for Older Patients. But Not by Much.**\
-`In one recent study, the challenging regimen added just 77 days of life over three years. Often, kidney disease can be managed in other ways.`\
+`In one recent study, the challenging regimen added 77 days of life after three years. Often, kidney disease can be managed in other ways.`\
 https://nytimes.com/2024/09/01/health/dialysis-seniors-kidneys.html
 
 **Antônio Meneses, Lyrical Brazilian Cellist, Is Dead at 66**\
