@@ -1,3 +1,11 @@
+**Abilene Christian involved in bus accident after loss to Texas Tech**\
+`The accident occurred at 11:45 p.m. just off Texas Tech’s campus as the team began traveling back to Abilene.`\
+https://nytimes.com/athletic/5737949/2024/09/01/abilene-christian-bus-accident-texas-tech/
+
+**Whatever you say, love - how to date a tennis player**\
+`From "Tsitsidosa" to Jannik Sinner and Anna Kalinskaya, the tennis dating world is full of love. But what's it really like?`\
+https://nytimes.com/athletic/5734880/2024/09/01/tennis-players-dating-tsitsidosa-sinner-kalinskaya/
+
 **The Pulse: The hottest of hot seats, already**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/5737207/2024/09/01/florida-billy-napier-johnny-gaudreau-shohei-ohtani-the-pulse/

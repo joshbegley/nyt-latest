@@ -1,3 +1,7 @@
+**Abilene Christian involved in bus accident after loss to Texas Tech**\
+`The accident occurred at 11:45 p.m. just off Texas Tech’s campus as the team began traveling back to Abilene.`\
+https://nytimes.com/athletic/5737949/2024/09/01/abilene-christian-bus-accident-texas-tech/
+
 **The Pulse: The hottest of hot seats, already**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/5737207/2024/09/01/florida-billy-napier-johnny-gaudreau-shohei-ohtani-the-pulse/
@@ -14,6 +18,10 @@ https://nytimes.com/athletic/5734709/2024/09/01/manchester-united-liverpool-case
 `He also addressed the release plan for his new movie, “Wolfs,” co-starring Brad Pitt.`\
 https://nytimes.com/2024/09/01/movies/george-clooney-biden-apple-wolfs.html
 
+**Whatever you say, love - how to date a tennis player**\
+`From "Tsitsidosa" to Jannik Sinner and Anna Kalinskaya, the tennis dating world is full of love. But what's it really like?`\
+https://nytimes.com/athletic/5734880/2024/09/01/tennis-players-dating-tsitsidosa-sinner-kalinskaya/
+
 **About 10,000 Hotel Workers Walk Off the Job on Labor Day Weekend**\
 `The union representing the workers, UNITE HERE, has planned a rolling strike for several days in cities like Boston, San Francisco and Seattle after contract negotiations stalled.`\
 https://nytimes.com/2024/09/01/business/hotel-workers-unite-here-strike-labor-day.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/01/arts/music/antonio-meneses-dead.html
 **Chelsea await updates on Gusto 'muscle problem'**\
 `Chelsea will await further updates after Malo Gusto picked up what they fear could be a muscle problem in the draw with Crystal Palace.`\
 https://nytimes.com/athletic/5737866/2024/09/01/malo-gusto-injury-chelsea-crystal-palace/
-
-**Valentina Petrillo, the transgender sprinter at Paralympics - the rules and the complexities**\
-`As Petrillo prepares to compete in the 400m T12 race in Paris on Monday, we attempt to answer the key questions around her involvement`\
-https://nytimes.com/athletic/5735859/2024/09/01/valentina-petrillo-transgender-sprinter-paralympics/
-
-**Magnussen receives F1 race ban after Italian GP for meeting penalty point limit**\
-`Magnussen will not be allowed to race during the Azerbaijan Grand Prix weekend in September. `\
-https://nytimes.com/athletic/5737742/2024/09/01/kevin-magnussen-race-ban-haas-f1-azerbaijan-gp/
 
