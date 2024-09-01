@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5734709/2024/09/01/manchester-united-liverpool-case
 https://nytimes.com/2024/09/01/movies/george-clooney-biden-apple-wolfs.html
 
 **About 10,000 Hotel Workers Walk Off the Job on Labor Day Weekend**\
-`The union representing the workers, Unite Here, has planned a rolling strike for several days in cities like Boston, San Francisco and Seattle after contract negotiations stalled.`\
+`The union representing the workers, UNITE HERE, has planned a rolling strike for several days in cities like Boston, San Francisco and Seattle after contract negotiations stalled.`\
 https://nytimes.com/2024/09/01/business/hotel-workers-unite-here-strike-labor-day.html
 
 **Dialysis May Prolong Life for Older Patients. But Not by Much.**\
