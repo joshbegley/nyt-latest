@@ -1,3 +1,7 @@
+**Antônio Meneses, Lyrical Brazilian Cellist, Is Dead at 66**\
+`He began playing as a child and quickly found success for his technical command and, as one critic put it, his “thoughtful elegance.”`\
+https://nytimes.com/2024/09/01/arts/music/antonio-meneses-dead.html
+
 **Chelsea await updates on Gusto 'muscle problem'**\
 `Chelsea will await further updates after Malo Gusto picked up what they fear could be a muscle problem in the draw with Crystal Palace.`\
 https://nytimes.com/athletic/5737866/2024/09/01/malo-gusto-injury-chelsea-crystal-palace/
