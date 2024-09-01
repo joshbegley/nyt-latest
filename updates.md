@@ -1,3 +1,7 @@
+**Helicopter Crash Near Volcano in Russia’s Far East Kills at Least 17**\
+`The helicopter was flying tourists in Russia’s Kamchatka region. No survivors were expected among the 22 people on board, state news agencies said.`\
+https://nytimes.com/2024/09/01/world/europe/russia-helicopter-crash-kamchatka.html
+
 **Abilene Christian involved in bus accident after loss to Texas Tech**\
 `The accident occurred at 11:45 p.m. just off Texas Tech’s campus as the team began traveling back to Abilene.`\
 https://nytimes.com/athletic/5737949/2024/09/01/abilene-christian-bus-accident-texas-tech/
