@@ -1,3 +1,7 @@
+**Meandering? Off-Script? Trump Insists His ‘Weave’ Is Oratorical Genius.**\
+`Former President Donald J. Trump’s speeches often wander from topic to topic. He insists there is an art to stitching them all together.`\
+https://nytimes.com/2024/09/01/us/elections/trump-speeches-weave.html
+
 **Yankees don't call up top prospect Jasson Domínguez**\
 `The decision may be seen as a commitment to left fielder Alex Verdugo, who has struggled offensively but has been a strong defender.`\
 https://nytimes.com/athletic/5737117/2024/09/01/yankees-jasson-dominguez-anthony-rizzo-roster/
