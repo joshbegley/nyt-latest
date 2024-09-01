@@ -1,3 +1,7 @@
+**Everton 2-3 Bournemouth - dissecting the Premier League's most dramatic defeat**\
+`Everton lost control, were unable to match the visitors’ energy after their substitutions, and had no way of alleviating pressure`\
+https://nytimes.com/athletic/5736812/2024/09/01/everton-2-3-bournemouth-analysis-dyche/
+
 **Six Bodies Recovered in Gaza Were Hostages, Israel and U.S. Say**\
 `One of the hostages, Hersh Goldberg-Polin, was an American citizen. Separately in Gaza, a polio vaccination drive was getting underway on Sunday.`\
 https://nytimes.com/live/2024/09/01/world/israel-hamas-gaza-war

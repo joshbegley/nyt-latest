@@ -30,11 +30,11 @@ https://nytimes.com/2024/09/01/world/middleeast/hersh-goldberg-polin-hostage-gaz
 `Scott Parker inherited a fractured dressing room. What followed was a mad scramble in which 35 players moved `\
 https://nytimes.com/athletic/5735740/2024/09/01/burnley-transfers-summer-window-scott-parker/
 
+**Everton 2-3 Bournemouth - dissecting the Premier League's most dramatic defeat**\
+`Everton lost control, were unable to match the visitors’ energy after their substitutions, and had no way of alleviating pressure`\
+https://nytimes.com/athletic/5736812/2024/09/01/everton-2-3-bournemouth-analysis-dyche/
+
 **Analysing the Premier League's 2024 summer transfer window**\
 `Many English clubs took a slightly more considered approach to transfers in 2024, but the Premier League still boasts the deepest reserves`\
 https://nytimes.com/athletic/5735719/2024/09/01/summer-transfer-window-spending-review/
-
-**Manchester United v Liverpool: Ten Hag's attack, Robertson's runs and a real test for Gravenberch**\
-`A Manchester United reporter, a Liverpool reporter and our senior data analyst address some of the key talking points ahead of kick-off...`\
-https://nytimes.com/athletic/5734102/2024/09/01/manchester-united-liverpool-premier-league-ten-hag-slot/
 
