@@ -1,3 +1,7 @@
+**Salah casts doubt on Liverpool future: 'It's my last year at the club'**\
+`Mohamed Salah has cast doubt over his Liverpool future by saying this will be his &#8220;last year at the club&#8221;.`\
+https://nytimes.com/athletic/5738029/2024/09/01/mohamed-salah-liverpool-contract-interview/
+
 **Helicopter Crash Near Volcano in Russia’s Far East Kills at Least 17**\
 `The helicopter was flying tourists in Russia’s Kamchatka region. No survivors were expected among the 22 people on board, state news agencies said.`\
 https://nytimes.com/2024/09/01/world/europe/russia-helicopter-crash-kamchatka.html

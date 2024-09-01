@@ -1,3 +1,7 @@
+**Salah casts doubt on Liverpool future: 'It's my last year at the club'**\
+`Mohamed Salah has cast doubt over his Liverpool future by saying this will be his &#8220;last year at the club&#8221;.`\
+https://nytimes.com/athletic/5738029/2024/09/01/mohamed-salah-liverpool-contract-interview/
+
 **Helicopter Crash Near Volcano in Russia’s Far East Kills at Least 17**\
 `The helicopter was flying tourists in Russia’s Kamchatka region. No survivors were expected among the 22 people on board, state news agencies said.`\
 https://nytimes.com/2024/09/01/world/europe/russia-helicopter-crash-kamchatka.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/01/business/hotel-workers-unite-here-strike-labor-da
 **Dialysis May Prolong Life for Older Patients. But Not by Much.**\
 `In one recent study, the challenging regimen added 77 days of life after three years. Often, kidney disease can be managed in other ways.`\
 https://nytimes.com/2024/09/01/health/dialysis-seniors-kidneys.html
-
-**Antônio Meneses, Lyrical Brazilian Cellist, Is Dead at 66**\
-`He began playing as a child and quickly found success for his technical command and, as one critic put it, his “thoughtful elegance.”`\
-https://nytimes.com/2024/09/01/arts/music/antonio-meneses-dead.html
 
