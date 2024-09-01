@@ -1,3 +1,7 @@
+**Para triathlon postponed over water quality concerns in River Seine**\
+`The para triathlon competition at the Paris 2024 Paralympics has been postponed until Monday because of concerns over water quality in the River Seine.`\
+https://nytimes.com/athletic/5737396/2024/09/01/paralympic-triathlon-river-seine-water/
+
 **Happy Birthday, Dear Frozen Eggs, Happy Birthday to You**\
 `Egg showers have become common on social media, but a Brooklyn woman has gone a step further by throwing her eggs a birthday party every year.`\
 https://nytimes.com/2024/09/01/style/frozen-egg-showers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/01/books/review/nancy-macdonell-empresses-of-seventh
 **Second Time’s the Charm? Rematches Could Sway the Fight for Congress.**\
 `Candidates in both parties who lost by small margins in 2022 are trying to mount comebacks. Their races could determine which party wins control of the House.`\
 https://nytimes.com/2024/09/01/us/politics/house-swing-district-elections.html
-
-**Snyder: A Liability no longer? Penn State receivers show promise in opening win**\
-`Harrison Wallace III looked and played like the No. 1 receiver, putting together the best game of his career.`\
-https://nytimes.com/athletic/5737197/2024/09/01/penn-state-west-virginia-receivers/
 
