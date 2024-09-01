@@ -1,3 +1,11 @@
+**Whatever you say, love - how to date a tennis player**\
+`From "Tsitsidosa" to Jannik Sinner and Anna Kalinskaya, the tennis dating world is full of love. But what's it really like?`\
+https://nytimes.com/athletic/5734880/2024/09/01/tennis-players-dating-tsitsidosa-sinner-kalinskaya/
+
+**Meandering? Off-Script? Trump Insists His ‘Weave’ Is Oratorical Genius.**\
+`Former President Donald J. Trump’s speeches often wander from topic to topic. He insists there is an art to stitching them all together.`\
+https://nytimes.com/2024/09/01/us/elections/trump-speeches-weave.html
+
 **Tim Walz Heads Home to the Minnesota State Fair**\
 `The event, a must-stop for politicians through the years, has also been the site of some of the vice-presidential nominee’s most meme-able moments.`\
 https://nytimes.com/2024/09/01/us/politics/walz-minnesota-state-fair.html
