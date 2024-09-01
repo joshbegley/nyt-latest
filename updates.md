@@ -1,3 +1,7 @@
+**Sampson: Notre Dame sets tone for season as Marcus Freeman pushes right buttons at Texas A&M**\
+`Notre Dame made an early statement in the 2024 season on Saturday with a win on the road over Texas A&M. `\
+https://nytimes.com/athletic/5737404/2024/09/01/notre-dame-texas-am-marcus-freeman-riley-leonard/
+
 **Abolish the Penny?**\
 `Inside an intractable problem inside America’s change purses.`\
 https://nytimes.com/2024/09/01/briefing/the-penny-us-currency.html
