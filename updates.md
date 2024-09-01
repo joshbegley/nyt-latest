@@ -1,3 +1,7 @@
+**Magnussen receives F1 race ban after Italian GP for meeting penalty point limit**\
+`Magnussen will not be allowed to race during the Azerbaijan Grand Prix weekend in September. `\
+https://nytimes.com/athletic/5737742/2024/09/01/kevin-magnussen-race-ban-haas-f1-azerbaijan-gp/
+
 **Whatever you say, love - how to date a tennis player**\
 `From "Tsitsidosa" to Jannik Sinner and Anna Kalinskaya, the tennis dating world is full of love. But what's it really like?`\
 https://nytimes.com/athletic/5734880/2024/09/01/tennis-players-dating-tsitsidosa-sinner-kalinskaya/
