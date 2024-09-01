@@ -1,3 +1,7 @@
+**Twins add Brooks Lee, Michael Helman and Royce Lewis debuts at second with game-winning homer**\
+`Plus outfielder Manuel Margot goes on the injured list, reliever Diego Castillo rejoins the bullpen and Louie Varland waits his turn.`\
+https://nytimes.com/athletic/5736626/2024/09/01/twins-brooks-lee-return-royce-lewis-second-base-debut/
+
 **Coco Gauff knocked out of U.S. Open by Emma Navarro**\
 `NEW YORK — Coco Gauff’s Grand Slam season is over.`\
 https://nytimes.com/athletic/5738443/2024/09/01/coco-gauff-us-open-result-emma-navarro/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/01/briefing/israeli-election-afd.html
 **Ferrari’s surprise Italian GP win energizes the tifosi – and provides fresh hope**\
 `Ferrari and Leclerc faced a go-for-broke moment on Sunday and delivered in front of their home fans. `\
 https://nytimes.com/athletic/5737727/2024/09/01/charles-leclerc-italian-gp-f1-ferrari-f1/
-
-**Angel Reese sets WNBA single-season rebounding record**\
-`Reese, 22, led the WNBA in rebounds per game entering Sunday, averaging 12.9 and 13.2 points.`\
-https://nytimes.com/athletic/5738326/2024/09/01/angel-reese-sky-wnba-rebound-record/
 

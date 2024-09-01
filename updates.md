@@ -1,3 +1,7 @@
+**Twins add Brooks Lee, Michael Helman and Royce Lewis debuts at second with game-winning homer**\
+`Plus outfielder Manuel Margot goes on the injured list, reliever Diego Castillo rejoins the bullpen and Louie Varland waits his turn.`\
+https://nytimes.com/athletic/5736626/2024/09/01/twins-brooks-lee-return-royce-lewis-second-base-debut/
+
 **Coco Gauff knocked out of U.S. Open by Emma Navarro**\
 `NEW YORK — Coco Gauff’s Grand Slam season is over.`\
 https://nytimes.com/athletic/5738443/2024/09/01/coco-gauff-us-open-result-emma-navarro/
