@@ -1,5 +1,5 @@
 **Ferrari’s surprise Italian GP win energizes the tifosi – and provides fresh hope**\
-`Ferrari and Leclerc faced a go-for-broke moment on Sunday and delivered in front of its home fans. `\
+`Ferrari and Leclerc faced a go-for-broke moment on Sunday and delivered in front of their home fans. `\
 https://nytimes.com/athletic/5737727/2024/09/01/charles-leclerc-italian-gp-f1-ferrari-f1/
 
 **Angel Reese sets WNBA single-season rebounding record**\
