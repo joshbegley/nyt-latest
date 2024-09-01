@@ -1,3 +1,7 @@
+**Iowa lands four-star WR after best offensive outing in five years**\
+`Recently, Iowa has turned to the transfer portal for help at receiver, and the Hawkeyes have targeted only Smith in the 2025 class.`\
+https://nytimes.com/athletic/5738413/2024/09/01/terrence-smith-iowa-football-recruiting/
+
 **Monday Briefing: Thousands Protest in Israel**\
 `Plus, the Great Lego Spill of 1997.`\
 https://nytimes.com/2024/09/01/briefing/israeli-election-afd.html
