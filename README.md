@@ -1,3 +1,7 @@
+**This May Just Be the Absolute Best Tuna Melt**\
+`Golden Diner’s tuna melt is a study in texture, in contrasting flavors, in griddled perfection.`\
+https://nytimes.com/2024/09/01/dining/this-may-just-be-the-absolute-best-tuna-melt.html
+
 **Yankees don't call up top prospect Domínguez**\
 `The decision may be seen as a commitment to left fielder Alex Verdugo, who has struggled offensively but has been a strong defender.`\
 https://nytimes.com/athletic/5737117/2024/09/01/yankees-jasson-dominguez-anthony-rizzo-roster/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/01/arts/music/pete-wade-dies.html
 **Tim Walz Heads Home to the Minnesota State Fair**\
 `The event, a must-stop for politicians through the years, has also been the site of some of the vice-presidential nominee’s most meme-able moments.`\
 https://nytimes.com/2024/09/01/us/politics/walz-minnesota-state-fair.html
-
-**Here’s the latest on the presidential race.**\
-`By Neil Vigdor`\
-https://nytimes.com/live/2024/09/01/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 
