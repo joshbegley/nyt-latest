@@ -1,3 +1,8 @@
+**Chris Wood and the scoring stat that puts him above Mohamed Salah and Cole Palmer**\
+`Who out of Mohamed Salah, Cole Palmer and Chris Wood has scored the most non-penalty goals since the start of the 2023-24 Premier League season?
+You can have three guesses.`\
+https://nytimes.com/athletic/5736278/2024/09/01/chris-wood-forest-goals-salah-palmer-premier-league/
+
 **Everton 2-3 Bournemouth - dissecting the Premier League's most dramatic defeat**\
 `Everton lost control, were unable to match the visitors’ energy after their substitutions, and had no way of alleviating pressure`\
 https://nytimes.com/athletic/5736812/2024/09/01/everton-2-3-bournemouth-analysis-dyche/
