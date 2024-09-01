@@ -1,3 +1,7 @@
+**The Briefing: Chelsea 1 Palace 1 - Why Chelsea lost control; Gusto concerns; left-flank questions**\
+`We break down the action from Stamford Bridge as Chelsea let a lead slip at home to Palace.`\
+https://nytimes.com/athletic/5729664/2024/09/01/chelsea-palace-gusto-sancho/
+
 **Sporting to sign Brighton target Harder from Nordsjaelland**\
 `Sporting are set to beat Brighton &amp; Hove Albion to the signing of Conrad Harder from Nordsjaelland.`\
 https://nytimes.com/athletic/5737472/2024/09/01/conrad-harder-sporting-transfer-brighton/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/01/us/harris-trump-election
 **Young Americans Can’t Keep Funding Boomers and Beyond**\
 `The U.S. government spending is too heavily lavished on its older people at the expense of its young.`\
 https://nytimes.com/2024/09/01/opinion/boomers-youth-social-security-medicare.html
-
-**We Know Mental Health Affects Physical Health. Why Don’t We Act Like It?**\
-`Physical health and mental health are inextricably tied to each other. We need to devote the same care to both parts of ourselves.`\
-https://nytimes.com/2024/09/01/opinion/mental-health-preventative-medicine.html
 
