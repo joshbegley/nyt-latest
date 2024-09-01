@@ -1,3 +1,7 @@
+**How Should We Mourn the End of Summer?**\
+`Sadness is a natural response to the passing of summer. We need to cope with small griefs using mechanisms similar to those we’d use for large griefs.`\
+https://nytimes.com/2024/09/01/opinion/summer-sadness-grief-seasons.html
+
 **Dunk's speedy redemption: Outstanding pass for Joao Pedro goal after being caught out by Saka**\
 `Dunk was at fault for Arsenal's opener but responded by playing an integral role in Brighton's equaliser`\
 https://nytimes.com/athletic/5735910/2024/09/01/lewis-dunk-brighton-arsenal-saka/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5736291/2024/09/01/arsenal-rice-red-card-referee-pr
 **Erling Haaland is getting even better**\
 `The records continue to tumble for Manchester City's star striker, who looks revitalised and ready to scale even greater heights`\
 https://nytimes.com/athletic/5736654/2024/09/01/erling-haaland-manchester-city-improvement-guardiola/
-
-**Braves' Michael Harris II made a catch so spectacular, the winning Phillies lauded it**\
-`Harris' teammates told him his perfectly timed, acrobatic catch to rob a would-be homer was the best they'd witnessed.`\
-https://nytimes.com/athletic/5737120/2024/09/01/braves-michael-harris-ii-catch/
 
