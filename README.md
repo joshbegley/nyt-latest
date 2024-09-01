@@ -1,3 +1,11 @@
+**Polio Vaccination Campaign Begins in Gaza**\
+`In an effort to prevent a polio outbreak, health workers in Gaza began a vaccination drive against the quick-spreading disease. The effort depends on Israel and Hamas abiding by their pledged “humanitarian pauses.”`\
+https://nytimes.com/video/world/middleeast/100000009668375/gaza-polio-vaccinations.html
+
+**Protesters in Jerusalem Demand an Immediate Hostage Deal**\
+`Israelis demonstrated outside Prime Minister Benjamin Netanyahu’s office after the military recovered the bodies of six dead hostages from a tunnel underneath Rafah, Gaza.`\
+https://nytimes.com/video/world/middleeast/100000009668606/israel-hostages-protest.html
+
 **Fund-Raiser for Jan. 6 Rioters at Trump’s Golf Club Is Postponed**\
 `Donald J. Trump did not plan to attend the gala event at his venue in Bedminster, N.J., but it highlighted his efforts to rewrite the history of the attack on the Capitol.`\
 https://nytimes.com/2024/09/01/nyregion/jan-6-rioters-fund-raiser-postponed.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/01/business/media/new-hampshire-man-stalking-reporte
 **Ten Hag backs Casemiro to 'bounce back'**\
 `Erik ten Hag has backed Casemiro to &#8220;bounce back&#8221; after the midfielder was replaced following an error-strewn first half in Manchester United&#8217;s 3-0 defeat to Liverpool at Old Trafford on Sunday.`\
 https://nytimes.com/athletic/5738096/2024/09/01/erik-ten-hag-backs-casemiro/
-
-**With improved offense, Nebraska embraces next opportunity against Deion, Colorado**\
-`It’s Chapter 2 of a fascinating matchup between Matt Rhule and Deion Sanders. Round 1 went to the Colorado coach. `\
-https://nytimes.com/athletic/5738084/2024/09/01/nebraska-football-colorado-deion-sanders-dylan-raiola/
-
-**How McLaren's Italian GP victory slipped away: 'It hurts at the moment'**\
-`McLaren had the race under total control. A strategy misjudgment derailed its big day in the F1 title fight. `\
-https://nytimes.com/athletic/5737726/2024/09/01/mclaren-f1-italian-gp-norris-piastri/
 
