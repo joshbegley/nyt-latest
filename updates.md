@@ -1,3 +1,7 @@
+**Ukraine Strikes Russian Energy Facilities With Drones, Russia Says**\
+`Russian state media and local officials report fires and explosions at a number of facilities caused by drone attacks, including an oil refinery in Moscow and an energy production facility in the central region of Tver.`\
+https://nytimes.com/2024/09/01/world/europe/ukraine-russia-energy-strikes.html
+
 **What's next for Alabama's Ryan Williams after superstar debut?**\
 `Williams finished his Alabama debut with two catches for 139 yards and two touchdowns against Western Kentucky.`\
 https://nytimes.com/athletic/5737405/2024/09/01/ryan-williams-alabama-football/

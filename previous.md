@@ -1,3 +1,7 @@
+**Ukraine Strikes Russian Energy Facilities With Drones, Russia Says**\
+`Russian state media and local officials report fires and explosions at a number of facilities caused by drone attacks, including an oil refinery in Moscow and an energy production facility in the central region of Tver.`\
+https://nytimes.com/2024/09/01/world/europe/ukraine-russia-energy-strikes.html
+
 **What's next for Alabama's Ryan Williams after superstar debut?**\
 `Williams finished his Alabama debut with two catches for 139 yards and two touchdowns against Western Kentucky.`\
 https://nytimes.com/athletic/5737405/2024/09/01/ryan-williams-alabama-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5716565/2024/09/01/tennessee-titans-stadium-guide-n
 **Acrisure Stadium guide: What to know about the Pittsburgh Steelers' home field**\
 `Our staff compiled 32 NFL stadium guides, one for every team, to help fans buy tickets and enjoy the day watching their favorite clubs.`\
 https://nytimes.com/athletic/5720854/2024/09/01/pittsburgh-steelers-stadium-guide-acrisure/
-
-**Paycor Stadium guide: What to know about the Cincinnati Bengals' home field**\
-`Our staff compiled 32 NFL stadium guides, one for every team, to help fans buy tickets and enjoy the day watching their favorite clubs.`\
-https://nytimes.com/athletic/5714807/2024/09/01/cincinnati-bengals-stadium-guide-paycor/
 
