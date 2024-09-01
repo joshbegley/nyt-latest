@@ -1,3 +1,7 @@
+**Abolish the Penny?**\
+`Inside an intractable problem inside America’s change purses.`\
+https://nytimes.com/2024/09/01/briefing/the-penny-us-currency.html
+
 **What to Know About the Six Hostages Killed in Gaza**\
 `One of the hostages, Hersh Goldberg-Polin, was an American citizen.`\
 https://nytimes.com/2024/09/01/world/middleeast/hostages-gaza-what-to-know.html
