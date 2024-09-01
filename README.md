@@ -1,3 +1,11 @@
+**Big Ten fans: Submit your Week 1 overreactions and hot takes**\
+`Submit your overreactions, hot takes and bold predictions off of Big Ten teams' opening games for an upcoming feature.`\
+https://nytimes.com/athletic/5738249/2024/09/01/big-ten-college-football-week-1/
+
+**Death of Israeli-American Hostage Prompts Outpouring of Grief Across U.S.**\
+`Hersh Goldberg-Polin was among the hostages who were found dead on Saturday. Many remembered him as a gleeful and good-humored person — who later became a symbol of hope.`\
+https://nytimes.com/2024/09/01/us/hersh-goldberg-polin-death-mourning-us.html
+
 **The Cass Report: Biased or Balanced?**\
 `Readers respond to a column criticizing a report that questioned gender-affirming care for children. Also: Child tax credit; G.O.P. plans for the economy.`\
 https://nytimes.com/2024/09/01/opinion/transgender-cass-report.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5737726/2024/09/01/mclaren-f1-italian-gp-norris-pia
 **East Germans Lean Toward Extremes in State Elections**\
 `The Alternative for Germany party was on course to win in Thuringia, according to projections, in what was seen as a worrying sign of the health of German democracy.`\
 https://nytimes.com/2024/09/01/world/europe/east-german-state-elections-saxony-thuringia.html
-
-**Salah casts doubt on Liverpool future: 'It's my last year at the club'**\
-`Mohamed Salah has cast doubt over his Liverpool future by saying this will be his &#8220;last year at the club&#8221;.`\
-https://nytimes.com/athletic/5738029/2024/09/01/mohamed-salah-liverpool-contract-interview/
-
-**Helicopter Crash Near Volcano in Russia’s Far East Kills at Least 17**\
-`The helicopter was flying tourists in Russia’s Kamchatka region. No survivors were expected among the 22 people on board, state news agencies said.`\
-https://nytimes.com/2024/09/01/world/europe/russia-helicopter-crash-kamchatka.html
 
