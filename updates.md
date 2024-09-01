@@ -1,3 +1,7 @@
+**Hotel Workers Just Went on Strike in the Northeast. How Will That Affect My Trip?**\
+`Though hotel chains say they’ll continue to operate normally, travelers could see disruptions as 1,100 employees walked off the job. Here’s what to know.`\
+https://nytimes.com/2024/09/01/travel/hotel-workers-strike.html
+
 **3 Israeli Police Officers Killed as West Bank Violence Spirals**\
 `The officers were shot and killed in what the Israeli police said was a terrorist attack. The incident followed a rise in Palestinian and Israeli violence, as Israel’s military raids Palestinian cities.`\
 https://nytimes.com/2024/09/01/world/middleeast/israel-west-bank-police.html
