@@ -1,3 +1,7 @@
+**Former Cardiff, Leicester and Leeds defender Bamba dies aged 39**\
+`Former Cardiff City, Leicester City and Leeds United defender Sol Bamba has died aged 39, it has been announced.`\
+https://nytimes.com/athletic/5737335/2024/09/01/sol-bamba-dies-cardiff-leicester-leeds/
+
 **U.S. Open day 7 watch guide: Coco Gauff vs. Emma Navarro and Frances Tiafoe on court**\
 `American hopefuls headline the first day of the last 16 in New York.`\
 https://nytimes.com/athletic/5736246/2024/09/01/us-open-day-7-watch-guide-gauff-navarro-tiafoe/
