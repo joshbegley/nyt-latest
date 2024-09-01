@@ -1,3 +1,11 @@
+**Big Ten fans: Submit your Week 1 overreactions and hot takes**\
+`Submit your overreactions, hot takes and bold predictions off of Big Ten teams' opening games for an upcoming feature.`\
+https://nytimes.com/athletic/5738249/2024/09/01/big-ten-college-football-week-1/
+
+**Death of Israeli-American Hostage Prompts Outpouring of Grief Across U.S.**\
+`Hersh Goldberg-Polin was among the hostages who were found dead on Saturday. Many remembered him as a gleeful and good-humored person — who later became a symbol of hope.`\
+https://nytimes.com/2024/09/01/us/hersh-goldberg-polin-death-mourning-us.html
+
 **Ten Hag backs Casemiro to 'bounce back'**\
 `Erik ten Hag has backed Casemiro to &#8220;bounce back&#8221; after the midfielder was replaced following an error-strewn first half in Manchester United&#8217;s 3-0 defeat to Liverpool at Old Trafford on Sunday.`\
 https://nytimes.com/athletic/5738096/2024/09/01/erik-ten-hag-backs-casemiro/
