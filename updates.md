@@ -1,3 +1,15 @@
+**The Pulse: The hottest of hot seats, already**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/5737207/2024/09/01/florida-billy-napier-johnny-gaudreau-shohei-ohtani-the-pulse/
+
+**Man Utd 0 Liverpool 3: The Casemiro issue; clinical Diaz; Ten Hag's attacking calls and more**\
+`Our writers break down the action at Old Trafford as Liverpool soundly beat arch-rivals Manchester United`\
+https://nytimes.com/athletic/5734709/2024/09/01/manchester-united-liverpool-casemiro/
+
+**About 10,000 Hotel Workers Walk Off the Job on Labor Day Weekend**\
+`The union representing the workers, UNITE HERE, has planned a rolling strike for several days in cities like Boston, San Francisco and Seattle after contract negotiations stalled.`\
+https://nytimes.com/2024/09/01/business/hotel-workers-unite-here-strike-labor-day.html
+
 **Kirschner: Yankees whiffed on their Jasson Domínguez decision, and it could cost them in October**\
 `The Yankees claim there isn't an open spot for the rookie, but that's only because they haven't wanted to sit left-fielder Alex Verdugo.`\
 https://nytimes.com/athletic/5737819/2024/09/01/yankees-jasson-dominguez-decision-mistake-october/
