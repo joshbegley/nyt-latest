@@ -1,3 +1,11 @@
+**Polio Vaccination Campaign Begins in Gaza**\
+`In an effort to prevent a polio outbreak, health workers in Gaza began a vaccination drive against the quick-spreading disease. The effort depends on Israel and Hamas abiding by their pledged “humanitarian pauses.”`\
+https://nytimes.com/video/world/middleeast/100000009668375/gaza-polio-vaccinations.html
+
+**Protesters in Jerusalem Demand an Immediate Hostage Deal**\
+`Israelis demonstrated outside Prime Minister Benjamin Netanyahu’s office after the military recovered the bodies of six dead hostages from a tunnel underneath Rafah, Gaza.`\
+https://nytimes.com/video/world/middleeast/100000009668606/israel-hostages-protest.html
+
 **Fund-Raiser for Jan. 6 Rioters at Trump’s Golf Club Is Postponed**\
 `Donald J. Trump did not plan to attend the gala event at his venue in Bedminster, N.J., but it highlighted his efforts to rewrite the history of the attack on the Capitol.`\
 https://nytimes.com/2024/09/01/nyregion/jan-6-rioters-fund-raiser-postponed.html
