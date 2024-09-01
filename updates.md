@@ -1,3 +1,7 @@
+**Fund-Raiser for Jan. 6 Rioters at Trump’s Golf Club Is Postponed**\
+`Donald J. Trump did not plan to attend the gala event at his venue in Bedminster, N.J., but it highlighted his efforts to rewrite the history of the attack on the Capitol.`\
+https://nytimes.com/2024/09/01/nyregion/jan-6-rioters-fund-raiser-postponed.html
+
 **Big Ten fans: Submit your Week 1 overreactions and hot takes**\
 `Submit your overreactions, hot takes and bold predictions off of Big Ten teams' opening games for an upcoming feature.`\
 https://nytimes.com/athletic/5738249/2024/09/01/big-ten-college-football-week-1/
