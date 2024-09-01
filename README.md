@@ -1,3 +1,7 @@
+**Notre Dame made early Playoff statement at Texas A&M: What we learned about Irish, Aggies**\
+`Notre Dame broke a tie in the final two minutes and beat Texas A&M 23-13. Here's what we learned about the Irish and the Aggies.`\
+https://nytimes.com/athletic/5737078/2024/08/31/notre-dame-texas-am-recap-score/
+
 **Alabama takeaways: Ryan Williams is for real, O-line forced to shuffle, defense dominates**\
 `Big plays on both sides of the ball highlighted Alabama's 63-0 win over Western Kentucky in Kalen DeBoer's debut.`\
 https://nytimes.com/athletic/5737089/2024/08/31/alabama-wku-kalen-deboer-ryan-williams/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5736702/2024/08/31/ohio-state-akron-score-jeremiah-
 **Freshman Dylan Raiola shows he was worth the wait for Nebraska**\
 `Raiola threw two touchdown passes in his first game for Nebraska, and now the Huskers can turn their focus to Colorado.`\
 https://nytimes.com/athletic/5736866/2024/08/31/nebraska-football-dylan-raiola-takeaways-colorado/
-
-**Plane Crashes Into Townhouses in Oregon**\
-`A small plane struck a row of townhouses in Fairview, Ore., according to the authorities, who said at least three people were missing.`\
-https://nytimes.com/video/us/100000009668044/oregon-plane-crash.html
 
