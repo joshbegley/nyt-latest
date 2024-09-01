@@ -1,3 +1,7 @@
+**Alabama takeaways: Ryan Williams is for real, O-line forced to shuffle, defense dominates**\
+`Big plays on both sides of the ball highlighted Alabama's 63-0 win over Western Kentucky in Kalen DeBoer's debut.`\
+https://nytimes.com/athletic/5737089/2024/08/31/alabama-wku-kalen-deboer-ryan-williams/
+
 **Michigan's quarterback questions persist with Texas looming**\
 `It’s rare for a program of Michigan’s caliber to enter a season with so little experience at quarterback.`\
 https://nytimes.com/athletic/5737076/2024/08/31/michigan-quarterbacks-warren-orji-fresno-state/
