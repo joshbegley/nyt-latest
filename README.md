@@ -18,6 +18,10 @@ https://nytimes.com/athletic/5738659/2024/09/01/mets-sean-manaea-edwin-diaz-fran
 `NEW YORK — Coco Gauff’s Grand Slam season is over.`\
 https://nytimes.com/athletic/5738443/2024/09/01/coco-gauff-us-open-result-emma-navarro/
 
+**How the U.S. Open's jumbo tennis ball became a cute, yellow harbinger of doom**\
+`The oversized Wilson ball, used for autographs, is everywhere. Players on the cusp of losing want it out of their sight`\
+https://nytimes.com/athletic/5732358/2024/09/01/us-open-jumbo-tennis-ball/
+
 **Astros takeaways: Yusei Kikuchi's dominance, getting Ben Gamel and Chas McCormick's future**\
 `The Astros went 18-10 in August, thanks to a dominant performance from their entire pitching staff.`\
 https://nytimes.com/athletic/5738584/2024/09/01/astros-yusei-kikuchi-ben-gamel-chas-mccormick/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5738450/2024/09/01/cubs-offense-august/
 **White Sox lose 107th game, most in franchise history**\
 `Chicago has only won six series all season but has now been swept 22 times.`\
 https://nytimes.com/athletic/5738440/2024/09/01/white-sox-franchise-loss-record-mets/
-
-**Scottie Scheffler wins Tour Championship to cap historic season**\
-`Scheffler started the week with the lead and cruised at a renovated East Lake for the season-ending win.`\
-https://nytimes.com/athletic/5738486/2024/09/01/scottie-scheffler-tour-championship-pga-tour/
 
