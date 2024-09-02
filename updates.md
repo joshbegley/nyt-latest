@@ -1,3 +1,7 @@
+**Musk’s Starlink Defies Order to Block X in Brazil**\
+`The satellite internet service controlled by Elon Musk is refusing to comply with a court order to block his social network, X, regulators said.`\
+https://nytimes.com/2024/09/01/world/americas/elon-musk-brazil-starlink-x.html
+
 **Miller Moss, USC outlast LSU in battle of breakout QBs**\
 `The loss extended LSU's winless streak in season openers to five years, including all three seasons under head coach Brian Kelly.`\
 https://nytimes.com/athletic/5738936/2024/09/01/usc-lsu-score-highlights-miller-moss/
