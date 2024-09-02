@@ -1,3 +1,7 @@
+**Will Automation Replace Jobs? Port Workers May Strike Over It.**\
+`A contract covering longshore workers on the East and Gulf Coasts will expire at the end of September, but talks have been stalled over the use of equipment that can function without human operators.`\
+https://nytimes.com/2024/09/02/business/economy/port-workers-robots-automation-strike.html
+
 **Lowetide: What the Oilers can expect from Troy Stecher**\
 `Stecher will be applying for the Oilers' right side second pairing job at training camp this season.`\
 https://nytimes.com/athletic/5737807/2024/09/02/edmonton-oilers-troy-stecher-roster/
