@@ -1,3 +1,11 @@
+**What Andy Roddick, the last American man to win the U.S. Open, did next**\
+`The last American man to win the U.S. Open lumps himself in with the tennis "shlubs." That's not a true story.`\
+https://nytimes.com/athletic/5695860/2024/09/02/andy-roddick-interview/
+
+**How Donald Trump and Robert F. Kennedy Jr.’s Unlikely Partnership Took Shape**\
+`The Trump-Kennedy alliance followed a six-week crush of behind-the-scenes discussions, embarrassing missteps, secret meetings and private misgivings.`\
+https://nytimes.com/2024/09/02/us/politics/donald-trump-robert-kennedy-jr-partnership.html
+
 **Volkswagen, Seeking to Cut Costs, Considers German Plant Closures**\
 `For the first time in its 87-year history, the automaker is considering shuttering factories in Germany, citing the need to remain competitive.`\
 https://nytimes.com/2024/09/02/business/volkswagen-germany-plant-closures.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/02/world/middleeast/uk-suspends-israel-arms-sales.ht
 **Watford striker Rajovic set for Brondby loan**\
 `Watford striker Mileta Rajovic has travelled to Denmark for a medical with Brondby ahead of a season-long loan move.`\
 https://nytimes.com/athletic/5739899/2024/09/02/watford-mileta-rajovic-loan-brondby/
-
-**Haley’s Voters Size Up a Scrambled Presidential Race**\
-`The people who voted against Donald Trump and for Nikki Haley in the G.O.P. primaries are weighing whether to support Kamala Harris. Either way, they could help sway a close election in swing states.`\
-https://nytimes.com/2024/09/02/us/politics/harris-trump-nikki-haley-voters.html
-
-**Inside Chelsea's transfer window: Sancho and 'Net-Felix' in, no Osimhen – and the 'bomb squad'**\
-`It was another typically calm transfer window at Chelsea. Our team of reporters look at the transfers that happened and the ones that didn't`\
-https://nytimes.com/athletic/5737271/2024/09/02/chelsea-transfer-window-sancho-sterling-osimhen/
 

@@ -1,3 +1,11 @@
+**What Andy Roddick, the last American man to win the U.S. Open, did next**\
+`The last American man to win the U.S. Open lumps himself in with the tennis "shlubs." That's not a true story.`\
+https://nytimes.com/athletic/5695860/2024/09/02/andy-roddick-interview/
+
+**How Donald Trump and Robert F. Kennedy Jr.’s Unlikely Partnership Took Shape**\
+`The Trump-Kennedy alliance followed a six-week crush of behind-the-scenes discussions, embarrassing missteps, secret meetings and private misgivings.`\
+https://nytimes.com/2024/09/02/us/politics/donald-trump-robert-kennedy-jr-partnership.html
+
 **Volkswagen, Seeking to Cut Costs, Considers German Plant Closures**\
 `For the first time in its 87-year history, the automaker is considering shuttering factories in Germany, citing the need to remain competitive.`\
 https://nytimes.com/2024/09/02/business/volkswagen-germany-plant-closures.html
