@@ -1,3 +1,7 @@
+**How Joelinton's split role helped an underperforming Newcastle beat Tottenham**\
+`Despite not playing well, Newcastle beat Spurs - and the key was an abrasive, all-action performance in Eddie Howe's midfield`\
+https://nytimes.com/athletic/5739125/2024/09/02/joelinton-newcastle-tottenham-premier-league/
+
 **What I learned about Will Howard in his Ohio State debut: Akron film breakdown**\
 `Ohio State got a stellar Week 1 performance from its Kansas State transfer quarterback. Here's what I saw from Howard and more on tape.`\
 https://nytimes.com/athletic/5739449/2024/09/02/ohio-state-will-howard-akron-film/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5736387/2024/09/02/padres-expanded-roster-eliaz-dia
 **Analysing Tottenham's wastefulness - including the blown chance that sums up their problems**\
 `Spurs really shouldn't have lost to Newcastle after creating so many opportunities. They have problems to solve at the top end of the pitch`\
 https://nytimes.com/athletic/5739211/2024/09/02/tottenham-wastefulness-newcastle-ange-postecoglou/
-
-**‘Pinnacle Man,’ Found in Cave Nearly 50 Years Ago, Has Been Identified**\
-`The man, Nicholas Paul Grubb, was found frozen near the Appalachian Trail in Pennsylvania in 1977. His identity remained a mystery until a state trooper found his fingerprints.`\
-https://nytimes.com/2024/09/02/us/appalachian-trail-cave-pinnacle-man-identified.html
 
