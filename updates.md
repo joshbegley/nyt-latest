@@ -1,3 +1,7 @@
+**Smalling joins Saudi club Al Fayha from Roma**\
+`Former Manchester United defender Chris Smalling has joined Saudi Arabian club Al Fayha from Roma.`\
+https://nytimes.com/athletic/5739623/2024/09/02/chris-smalling-saudi-transfer-roma/
+
 **Eden Yerushalmi, an Israeli hostage, is seen in a Hamas video.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/09/01/world/hostages-strike-israel-gaza-war/eden-yerushalmi-an-israeli-hostage-is-seen-in-a-hamas-video
