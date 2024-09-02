@@ -1,3 +1,7 @@
+**ESPN and ABC Go Dark on DirecTV in Feud With Disney**\
+`The outage struck on Sunday, cutting access for many DirecTV viewers to the U.S. Open tennis tournament on ABC.`\
+https://nytimes.com/2024/09/01/business/espn-abc-disney-directv.html
+
 **Here’s the latest on the labor strike in Israel.**\
 `By Patrick Kingsley`\
 https://nytimes.com/live/2024/09/01/world/hostages-strike-israel-gaza-war/heres-the-latest-on-the-labor-strike-in-israel
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5738302/2024/09/01/red-sox-takeaways-trevor-story-s
 **Twins add Brooks Lee, Michael Helman and Royce Lewis debuts at second with game-winning homer**\
 `Plus outfielder Manuel Margot goes on the injured list, reliever Diego Castillo rejoins the bullpen and Louie Varland waits his turn.`\
 https://nytimes.com/athletic/5736626/2024/09/01/twins-brooks-lee-return-royce-lewis-second-base-debut/
-
-**Mets takeaways: Sean Manaea the ace, Edwin Díaz's workload, sticking with Francisco Alvarez**\
-`Everything you need to know about the Mets after their three-game sweep of the lowly White Sox.`\
-https://nytimes.com/athletic/5738659/2024/09/01/mets-sean-manaea-edwin-diaz-francisco-alvarez/
 
