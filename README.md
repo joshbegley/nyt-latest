@@ -1,3 +1,7 @@
+**Volkswagen, Seeking to Cut Costs, Considers German Plant Closures**\
+`For the first time in its 87-year history, the automaker is considering shuttering factories in Germany, citing the need to remain competitive.`\
+https://nytimes.com/2024/09/02/business/volkswagen-germany-plant-closures.html
+
 **At Telluride, Experimental, Topical and Sometimes Crazy Movies**\
 `A documentary made with Legos and a biopic starring a CGI monkey showed alongside films about abortion restrictions and other subjects in the news.`\
 https://nytimes.com/2024/09/02/movies/telluride-festival.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/02/us/politics/harris-trump-nikki-haley-voters.html
 **Inside Chelsea's transfer window: Sancho and 'Net-Felix' in, no Osimhen – and the 'bomb squad'**\
 `It was another typically calm transfer window at Chelsea. Our team of reporters look at the transfers that happened and the ones that didn't`\
 https://nytimes.com/athletic/5737271/2024/09/02/chelsea-transfer-window-sancho-sterling-osimhen/
-
-**FPL: What we learned from Gameweek 3 - don't sacrifice Salah for Haaland**\
-`Abdul Rehman analyses the main talking points from Gameweek 3 in Fantasy Premier League`\
-https://nytimes.com/athletic/5738226/2024/09/02/fantasy-premier-league-salah-haaland-watkins/
 
