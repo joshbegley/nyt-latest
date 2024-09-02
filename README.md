@@ -1,3 +1,15 @@
+**Gao Zhen, Artist Who Critiqued the Cultural Revolution, Is Detained in China**\
+`Mr. Gao is being held on suspicion of slandering China’s heroes and martyrs, an offense punishable by up to three years in prison, his brother said.`\
+https://nytimes.com/2024/09/02/world/asia/gao-zhen-arrested-china.html
+
+**Inside Newcastle live Q&A - Chris Waugh answers your questions every Monday**\
+`Chris Waugh is on hand to answer your Newcastle United questions as he launches his weekly Monday Q&A...`\
+https://nytimes.com/athletic/5739303/2024/09/02/inside-newcastle-live-qa-chris-waugh-answers-your-questions-every-monday/
+
+**How Mohamed Salah evolved into one of the best creators the Premier League has seen**\
+`Defenders have over-compensated for Salah's dribbling ability and that has given him space to expand his repertoire of assists`\
+https://nytimes.com/athletic/5739180/2024/09/02/mohamed-salah-assist-breakdown-premier-league/
+
 **2024 NASCAR Cup Series playoffs: All 16 drivers and their chances to win the title**\
 `The 2024 NASCAR Cup Series playoff field is set. Here's a look at all 16 drivers and their chances to win the title.`\
 https://nytimes.com/athletic/5734058/2024/09/02/2024-nascar-playoffs-drivers/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5739357/2024/09/02/dani-ceballos-injury-real-madrid
 **The Pulse: Bold NFL season predictions**\
 `The Pulse is The Athletic's largest daily sports newsletter.`\
 https://nytimes.com/athletic/5737853/2024/09/02/nfl-season-predictions-the-pulse/
-
-**The Connections Bot**\
-`We explain a new feature from the creators of WordleBot.`\
-https://nytimes.com/2024/09/02/briefing/the-connections-bot.html
-
-**Man City winger Ndala set for PSV loan move**\
-`Manchester City talent Joel Ndala is to undergo medical today ahead of completing a move to PSV Eindhoven on loan with a conditional obligation to buy.`\
-https://nytimes.com/athletic/5739259/2024/09/02/man-city-transfers-joel-ndala-psv/
-
-**Zach Orr's ascent has him right where he should be: 'A Raven through and through'**\
-`As a former Baltimore player whose career ended prematurely, Orr's journey has led him to coaching the one team that's always had his back.`\
-https://nytimes.com/athletic/5734443/2024/09/02/zach-orr-ravens-defensive-coordinator/
 
