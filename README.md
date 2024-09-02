@@ -1,3 +1,7 @@
+**Arsenal turn down informal proposal from Al Ittihad for Trossard**\
+`Arsenal have turned down an informal proposal from Al Ittihad to sign forward Leandro Trossard.`\
+https://nytimes.com/athletic/5739299/2024/09/02/leandro-trossard-al-ittihad-arsenal-transfer/
+
 **Against the odds, Tigers' patchwork pitching staff has fueled a climb back to contention**\
 `Despite new faces and unconventional roles, the Tigers finished August with the second-best ERA in baseball. `\
 https://nytimes.com/athletic/5738496/2024/09/02/tigers-pitching-staff-august-success/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/02/world/asia/pope-87-embarks-on-physical-test-in-gr
 **Texas dominates, Texas A&M disappoints: Thoughts on all 13 FBS teams in the Lone Star State**\
 `Is there cause for concern at Texas Tech? Is there a QB controversy at SMU? Can Rice and Houston rebound from troubling debuts?`\
 https://nytimes.com/athletic/5738982/2024/09/02/texas-texas-am-baylor-tcu-smu/
-
-**I’m a College President and I Hope My Campus Is Even More Political This Year**\
-`Higher education should be tolerant but never neutral.`\
-https://nytimes.com/2024/09/02/opinion/college-president-campus-political.html
 
