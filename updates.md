@@ -1,3 +1,7 @@
+**Brazilian Supreme Court Panel Upholds Order to Block Elon Musk’s X**\
+`Mr. Musk has criticized the blackout of the social network in Brazil as a campaign by a single, crusading justice. On Monday, four other justices affirmed the ruling.`\
+https://nytimes.com/2024/09/02/world/americas/brazil-elon-musk-supreme-court.html
+
 **Astros' Kyle Tucker suffered fractured shin vs. Cardinals in June**\
 `Tucker has not played since fouling a ball off his right leg during a June 3 game against the St. Louis Cardinals`\
 https://nytimes.com/athletic/5739981/2024/09/02/astros-kyle-tucker-fractured-shin/
