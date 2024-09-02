@@ -1,3 +1,7 @@
+**The Giants' season might be lost but Mike Yastrzemski, others see healthy signs**\
+`Despite a disappointing season, the Giants continue to draw fans: "We feel the support here and it means a lot to us."`\
+https://nytimes.com/athletic/5738931/2024/09/01/sf-giants-mike-yastrzemski-home-attendance/
+
 **Will Our Hostage Son Be Next?**\
 `Our window to rescue the remaining hostages in Gaza is closing, and Prime Minister Benjamin Netanyahu is fastening the latch.`\
 https://nytimes.com/2024/09/01/opinion/international-world/will-our-hostage-son-be-next.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/01/podcasts/must-be-rats-this-american-life-nyt-audi
 **Discovery of 6 Dead Hostages in Gaza Spurs Protest and Division in Israel**\
 `The Israeli military said Sunday that Hamas had killed the hostages before they were discovered by Israeli troops on Saturday.`\
 https://nytimes.com/2024/09/01/world/middleeast/israel-gaza-hostages-ceasefire.html
-
-**Red Sox takeaways: Trevor Story starts rehab, Chase Shugart, Enmanuel Valdez added**\
-`The Red Sox chose not to recall Vaughn Grissom and could be welcoming back Story before the end of the season.`\
-https://nytimes.com/athletic/5738302/2024/09/01/red-sox-takeaways-trevor-story-september-callups/
 

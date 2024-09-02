@@ -1,3 +1,7 @@
+**The Giants' season might be lost but Mike Yastrzemski, others see healthy signs**\
+`Despite a disappointing season, the Giants continue to draw fans: "We feel the support here and it means a lot to us."`\
+https://nytimes.com/athletic/5738931/2024/09/01/sf-giants-mike-yastrzemski-home-attendance/
+
 **Will Our Hostage Son Be Next?**\
 `Our window to rescue the remaining hostages in Gaza is closing, and Prime Minister Benjamin Netanyahu is fastening the latch.`\
 https://nytimes.com/2024/09/01/opinion/international-world/will-our-hostage-son-be-next.html
