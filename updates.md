@@ -1,3 +1,7 @@
+**Haley’s Voters Size Up a Scrambled Presidential Race**\
+`The people who voted against Donald Trump and for Nikki Haley in the G.O.P. primaries are weighing whether to support Kamala Harris. Either way, they could help sway a close election in swing states.`\
+https://nytimes.com/2024/09/02/us/politics/harris-trump-nikki-haley-voters.html
+
 **Inside Chelsea's transfer window: Sancho and 'Net-Felix' in, no Osimhen – and the 'bomb squad'**\
 `It was another typically calm transfer window at Chelsea. Our team of reporters look at the transfers that happened and the ones that didn't`\
 https://nytimes.com/athletic/5737271/2024/09/02/chelsea-transfer-window-sancho-sterling-osimhen/
