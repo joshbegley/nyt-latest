@@ -1,4 +1,4 @@
-**The Giants' season might be lost but Mike Yastrzemski, others see healthy signs**\
+**Giants' season might be lost, but Mike Yastrzemski, others see healthy signs**\
 `Despite a disappointing season, the Giants continue to draw fans: "We feel the support here and it means a lot to us."`\
 https://nytimes.com/athletic/5738931/2024/09/01/sf-giants-mike-yastrzemski-home-attendance/
 
