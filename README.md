@@ -6,10 +6,6 @@ https://nytimes.com/live/2024/09/01/world/hostages-strike-israel-gaza-war/heres-
 `Much of the country is set to shut down, a dramatic reflection of outrage over the deaths of six hostages in Gaza. The protest is set to cause widespread disruptions.`\
 https://nytimes.com/live/2024/09/01/world/hostages-strike-israel-gaza-war
 
-**Coco Gauff knocked out of U.S. Open by Emma Navarro**\
-`The defending champion lost in three sets, as her opponent exploited her weaknesses, on her serve and on her forehand.`\
-https://nytimes.com/athletic/5738443/2024/09/01/coco-gauff-us-open-result-emma-navarro/
-
 **Pork Chops and Politics: Tim Walz Gets Minnesota Homecoming at State Fair**\
 `The vice-presidential nominee got a brief respite from the campaign trail to visit the venue that helped propel him to online stardom.`\
 https://nytimes.com/2024/09/01/us/politics/tim-walz-minnesota-state-fair.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5736626/2024/09/01/twins-brooks-lee-return-royce-le
 **Mets takeaways: Sean Manaea the ace, Edwin Díaz's workload, sticking with Francisco Alvarez**\
 `Everything you need to know about the Mets after their three-game sweep of the lowly White Sox.`\
 https://nytimes.com/athletic/5738659/2024/09/01/mets-sean-manaea-edwin-diaz-francisco-alvarez/
+
+**Coco Gauff knocked out of U.S. Open by Emma Navarro**\
+`The defending champion lost in three sets, as her opponent exploited her weaknesses, on her serve and on her forehand.`\
+https://nytimes.com/athletic/5738443/2024/09/01/coco-gauff-us-open-result-emma-navarro/
 
