@@ -1,3 +1,7 @@
+**USMNT Player Tracker: Trusty's Celtic switch, Morris settling at Boro and Tillmann thriving**\
+`There are new starts in Glasgow and Lyon, a clean sheet for Gabriel Slonina and another assist for Antonee Robinson in this week's roundup`\
+https://nytimes.com/athletic/5739812/2024/09/02/usmnt-trusty-morris-tillmann-tracker/
+
 **U.K. Suspends Some Arms Sales to Israel**\
 `Britain’s foreign secretary, David Lammy, said there was a “clear risk” some weapons might be used to commit “a serious violation of international humanitarian law.”`\
 https://nytimes.com/2024/09/02/world/middleeast/uk-suspends-israel-arms-sales.html
