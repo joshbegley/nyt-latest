@@ -1,3 +1,7 @@
+**Shooting Mars Festivities at West Indian American Day Parade in Brooklyn**\
+`At least five people were shot and wounded along the route of the bustling event, which continued on despite the disruption.`\
+https://nytimes.com/2024/09/02/nyregion/west-indian-day-nyc-shooting.html
+
 **What's next for Pac-12, Mountain West after missing 2025 scheduling deadline?**\
 `The Pac-12-Mountain West deadline has now passed without a 2025 agreement, and chances of getting back together appear slim. Why?`\
 https://nytimes.com/athletic/5740549/2024/09/02/pac-12-mountain-west-2025-schedule-agreement/
