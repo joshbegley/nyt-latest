@@ -1,3 +1,7 @@
+**DirecTV cuts ABC, ESPN feeds during U.S. Open, before USC-LSU**\
+`A number of Disney channel feeds, including ABC and ESPN, were cut for DirecTV customers.`\
+https://nytimes.com/athletic/5738828/2024/09/01/directv-disney-carriage-dispute/
+
 **Must Be Rats on the Brain**\
 `The one animal we can’t seem to live without, even when we really, really want to.`\
 https://nytimes.com/2024/09/01/podcasts/must-be-rats-this-american-life-nyt-audio.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5738584/2024/09/01/astros-yusei-kikuchi-ben-gamel-c
 **Narrows at the End**\
 `Sala Wanetick and Emily Biegas make their New York Times debut.`\
 https://nytimes.com/2024/09/01/crosswords/daily-puzzle-2024-09-02.html
-
-**The Cubs offense was dominant in August. How did they do it?**\
-`The Cubs have scored 99 runs in their past 10 games: "The offense has been great."`\
-https://nytimes.com/athletic/5738450/2024/09/01/cubs-offense-august/
 
