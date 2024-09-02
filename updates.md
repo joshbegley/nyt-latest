@@ -1,3 +1,7 @@
+**Willian agrees Olympiakos move**\
+`Former Chelsea and Arsenal winger Willian has agreed to join Olympiakos as a free agent.`\
+https://nytimes.com/athletic/5740019/2024/09/02/willian-olympiakos-fulham/
+
 **USMNT Player Tracker: Trusty's Celtic switch, Morris settling at Boro and Tillmann thriving**\
 `There are new starts in Glasgow and Lyon, a clean sheet for Gabriel Slonina and another assist for Antonee Robinson in this week's roundup`\
 https://nytimes.com/athletic/5739812/2024/09/02/usmnt-trusty-morris-tillmann-tracker/
