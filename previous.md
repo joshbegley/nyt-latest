@@ -1,3 +1,7 @@
+**4 Killed in Shooting on Transit Train in Chicago Suburb**\
+`The authorities said four passengers were fatally shot as the train approached a station in Forest Park, Ill. It was unclear what led to the shooting.`\
+https://nytimes.com/2024/09/02/us/forest-park-chicago-train-shooting.html
+
 **Kalen DeBoer on Alabama having 'a determination and a relentlessness': Tide film study**\
 `What went right and what can be improved upon in Alabama's season-opening win over Western Kentucky.`\
 https://nytimes.com/athletic/5740127/2024/09/02/alabama-western-kentucky-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5739952/2024/09/02/real-madrids-aurelien-tchouameni
 **What Andy Roddick, the last American man to win the U.S. Open, did next**\
 `The last American man to win the U.S. Open lumps himself in with the tennis "shlubs." That's not a true story.`\
 https://nytimes.com/athletic/5695860/2024/09/02/andy-roddick-interview/
-
-**How Donald Trump and Robert F. Kennedy Jr.’s Unlikely Partnership Took Shape**\
-`The Trump-Kennedy alliance followed a six-week crush of behind-the-scenes discussions, embarrassing missteps, secret meetings and private misgivings.`\
-https://nytimes.com/2024/09/02/us/politics/donald-trump-robert-kennedy-jr-partnership.html
 

@@ -1,3 +1,7 @@
+**4 Killed in Shooting on Transit Train in Chicago Suburb**\
+`The authorities said four passengers were fatally shot as the train approached a station in Forest Park, Ill. It was unclear what led to the shooting.`\
+https://nytimes.com/2024/09/02/us/forest-park-chicago-train-shooting.html
+
 **Kalen DeBoer on Alabama having 'a determination and a relentlessness': Tide film study**\
 `What went right and what can be improved upon in Alabama's season-opening win over Western Kentucky.`\
 https://nytimes.com/athletic/5740127/2024/09/02/alabama-western-kentucky-result-analysis/
