@@ -1,3 +1,15 @@
+**Tracking Tropical Storm Yagi**\
+`See the likely path and wind arrival times for Yagi.`\
+https://nytimes.com/interactive/2024/09/02/weather/yagi-map-path-tracker.html
+
+**Cathay Pacific Cancels Flights to Inspect 48 Airbus Aircraft After Engine Issue**\
+`An Airbus A350 jet experienced a problem during a flight that was supposed to travel from Hong Kong to Zurich. The airline has canceled 24 return flights.`\
+https://nytimes.com/2024/09/02/world/cathay-pacific-a350-airbus-planes-engines.html
+
+**Thousands Gather for Funeral of Israeli American Hostage Killed in Gaza**\
+`It was reminder of the perilous situation facing dozens of remaining hostages still thought to be alive in the war-ravaged Gaza Strip.`\
+https://nytimes.com/2024/09/02/world/middleeast/hersh-goldberg-polin-funeral-israel-hostage.html
+
 **D’Anton Lynn impressive in DC debut for USC, Miller Moss spreads the ball around**\
 `Let’s get to some final thoughts on the Trojans’ impressive victory over LSU on Sunday in Las Vegas.`\
 https://nytimes.com/athletic/5740241/2024/09/02/usc-lsu-result-analysis/
