@@ -1,3 +1,7 @@
+**The Athletic FC: Ten Hag's not Harry Potter, Valverde's superb assist for Mbappe**\
+`Today in TAFC: Ten Hag fails to make Man Utd's struggles disappear, we look back at the transfer window and a heavenly assist from Valverde`\
+https://nytimes.com/athletic/5739317/2024/09/02/ten-hags-harry-potter-valverde-mbappe-assist/
+
 **Here’s how the strike and protests unfolded in Israel on Monday.**\
 `By Adam Rasgon, Gabby Sobelman and Aaron Boxerman`\
 https://nytimes.com/live/2024/09/01/world/hostages-strike-israel-gaza-war/heres-how-the-strike-and-protests-unfolded-in-israel-on-monday
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5739303/2024/09/02/inside-newcastle-live-qa-chris-w
 **How Mohamed Salah evolved into one of the best creators the Premier League has seen**\
 `Defenders have over-compensated for Salah's dribbling ability and that has given him space to expand his repertoire of assists`\
 https://nytimes.com/athletic/5739180/2024/09/02/mohamed-salah-assist-breakdown-premier-league/
-
-**2024 NASCAR Cup Series playoffs: All 16 drivers and their chances to win the title**\
-`The 2024 NASCAR Cup Series playoff field is set. Here's a look at all 16 drivers and their chances to win the title.`\
-https://nytimes.com/athletic/5734058/2024/09/02/2024-nascar-playoffs-drivers/
 
