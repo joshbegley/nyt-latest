@@ -1,3 +1,7 @@
+**D’Anton Lynn impressive in DC debut for USC, Miller Moss spreads the ball around**\
+`Let’s get to some final thoughts on the Trojans’ impressive victory over LSU on Sunday in Las Vegas.`\
+https://nytimes.com/athletic/5740241/2024/09/02/usc-lsu-result-analysis/
+
 **U.S. Seized an Airplane Owned by Venezuela’s Nicolás Maduro**\
 `The Biden administration said the airplane had been illegally exported for Mr. Maduro. U.S. officials accuse him of undermining the results of a presidential election he lost.`\
 https://nytimes.com/2024/09/02/us/politics/us-airplane-nicolas-maduro-venezuela.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/02/world/americas/brazil-elon-musk-supreme-court.htm
 **Astros' Kyle Tucker suffered fractured shin vs. Cardinals in June**\
 `Tucker has not played since fouling a ball off his right leg during a June 3 game against the St. Louis Cardinals`\
 https://nytimes.com/athletic/5739981/2024/09/02/astros-kyle-tucker-fractured-shin/
-
-**Putin Arrives in Mongolia in Defiance of I.C.C. Arrest Warrant**\
-`The Russian president is making a state visit to a country that is heavily dependent on Moscow for oil.`\
-https://nytimes.com/2024/09/02/world/europe/putin-mongolia.html
 
