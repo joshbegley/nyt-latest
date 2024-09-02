@@ -1,3 +1,15 @@
+**Here’s the latest on the labor strike in Israel.**\
+`By Patrick Kingsley`\
+https://nytimes.com/live/2024/09/01/world/hostages-strike-israel-gaza-war/heres-the-latest-on-the-labor-strike-in-israel
+
+**Live Updates: Israel Prepares for Major Labor Strike Over Hostage Deaths**\
+`Much of the country is set to shut down, a dramatic reflection of outrage over the deaths of six hostages in Gaza. The protest is set to cause widespread disruptions.`\
+https://nytimes.com/live/2024/09/01/world/hostages-strike-israel-gaza-war
+
+**Coco Gauff knocked out of U.S. Open by Emma Navarro**\
+`The defending champion lost in three sets, as her opponent exploited her weaknesses, on her serve and on her forehand.`\
+https://nytimes.com/athletic/5738443/2024/09/01/coco-gauff-us-open-result-emma-navarro/
+
 **Pork Chops and Politics: Tim Walz Gets Minnesota Homecoming at State Fair**\
 `The vice-presidential nominee got a brief respite from the campaign trail to visit the venue that helped propel him to online stardom.`\
 https://nytimes.com/2024/09/01/us/politics/tim-walz-minnesota-state-fair.html
