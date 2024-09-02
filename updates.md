@@ -1,3 +1,7 @@
+**College Football Playoff 2024 projections: Miami in, LSU out of our 12-team bracket**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/09/02/college-football-playoff-projections-odds/
+
 **Histadrut, the Labor Union Behind Israel’s Strike, Has Long History of Influence**\
 `The union, which predates Israel’s founding, led a strike last year that helped force Prime Minister Benjamin Netanyahu to suspend a plan to overhaul the judiciary.`\
 https://nytimes.com/2024/09/02/world/middleeast/israel-labor-union-strike.html

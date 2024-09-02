@@ -6,6 +6,10 @@ https://nytimes.com/2024/09/02/world/middleeast/israel-labor-union-strike.html
 `Veilleux, who played 428 of his 506 NHL games with the Wild, suffered a burst C1 vertebrae in June.`\
 https://nytimes.com/athletic/5737583/2024/09/02/nhl-stephane-veilleux-car-crash/
 
+**College Football Playoff 2024 projections: Miami in, LSU out of our 12-team bracket**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/09/02/college-football-playoff-projections-odds/
+
 **Which Premier League club 'won' the transfer window?**\
 `What is a successful transfer window, anyway? Players in, money spent? And who definitely did not have a good summer? Two writers discuss`\
 https://nytimes.com/athletic/5732094/2024/09/02/premier-league-transfer-window/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5734443/2024/09/02/zach-orr-ravens-defensive-coordi
 **Ten bold NFL 2024 season predictions: Packers win NFC North, but Caleb Williams for MVP?**\
 `Plus: Kyler Murray breaks out, the 49ers suffer a Super Bowl hangover and Patrick Mahomes and the Chiefs make history (again).`\
 https://nytimes.com/athletic/5729210/2024/09/02/nfl-2024-bold-season-predictions/
-
-**Israelis Go on Strike After Hostage Deaths, and German Far Right Makes Election Gains**\
-`Plus, the U.S. coffee wars are heating up.`\
-https://nytimes.com/2024/09/02/podcasts/israel-hostage-protest.html
 
