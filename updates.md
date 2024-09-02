@@ -1,3 +1,5 @@
+**A Hollywood Producer’s Home in L.A. That Would Make the Perfect Movie Set**\
+
 **Kimmich named Germany captain; Rudiger, Havertz vice captains**\
 `Bayern Munich&#8217;s Joshua Kimmich has been named Germany captain following Ilkay Gundogan&#8217;s international retirement.`\
 https://nytimes.com/athletic/5739641/2024/09/02/joshua-kimmich-germany-captain/
