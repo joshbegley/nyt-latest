@@ -1,3 +1,11 @@
+**America’s Luck on Unemployment May Soon Run Out**\
+`Two economists have a convincing theory of how the fight against inflation could get more painful.`\
+https://nytimes.com/2024/09/02/opinion/unemployment-inflation-beveridge-threshold.html
+
+**Tim Walz: Good Neighbor and Rural Advocate**\
+`Readers discuss his community contributions and how he could boost rural America. Also: The Costco effect; all-out weddings; publishing’s problem.`\
+https://nytimes.com/2024/09/02/opinion/letters/tim-walz-neighbor-rural-advocate.html
+
 **Alabama left tackle Kadyn Proctor dealing with shoulder injury**\
 `TUSCALOOSA, Ala.`\
 https://nytimes.com/athletic/5740204/2024/09/02/alabama-football-kadyn-proctor-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/02/us/politics/donald-trump-robert-kennedy-jr-partne
 **Volkswagen, Seeking to Cut Costs, Considers German Plant Closures**\
 `For the first time in its 87-year history, the automaker is considering shuttering factories in Germany, citing the need to remain competitive.`\
 https://nytimes.com/2024/09/02/business/volkswagen-germany-plant-closures.html
-
-**At Telluride, Experimental, Topical and Sometimes Crazy Movies**\
-`A documentary made with Legos and a biopic starring a CGI monkey showed alongside films about abortion restrictions and other subjects in the news.`\
-https://nytimes.com/2024/09/02/movies/telluride-festival.html
-
-**Why Thousands of Hotel Workers Are on Strike**\
-`Pandemic-era cuts to staffing and services like daily housekeeping and room service have persisted, which unions say has resulted in lower incomes and heavier workloads for remaining workers.`\
-https://nytimes.com/2024/09/02/business/hotel-workers-strike-wages.html
 

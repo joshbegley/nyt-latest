@@ -1,3 +1,11 @@
+**America’s Luck on Unemployment May Soon Run Out**\
+`Two economists have a convincing theory of how the fight against inflation could get more painful.`\
+https://nytimes.com/2024/09/02/opinion/unemployment-inflation-beveridge-threshold.html
+
+**Tim Walz: Good Neighbor and Rural Advocate**\
+`Readers discuss his community contributions and how he could boost rural America. Also: The Costco effect; all-out weddings; publishing’s problem.`\
+https://nytimes.com/2024/09/02/opinion/letters/tim-walz-neighbor-rural-advocate.html
+
 **Alabama left tackle Kadyn Proctor dealing with shoulder injury**\
 `TUSCALOOSA, Ala.`\
 https://nytimes.com/athletic/5740204/2024/09/02/alabama-football-kadyn-proctor-injury/
