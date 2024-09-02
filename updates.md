@@ -1,3 +1,7 @@
+**How Joelinton's split role helped an underperforming Newcastle beat Tottenham**\
+`Despite not playing well, Newcastle beat Spurs - and the key was an abrasive, all-action individual performance in Eddie Howe's midfield`\
+https://nytimes.com/athletic/5739125/2024/09/02/joelinton-newcastle-tottenham-premier-league/
+
 **UEFA introduce away ticket price caps for Champions League games**\
 `Ticket prices for away fans across UEFA&#8217;s three club competitions have been capped.`\
 https://nytimes.com/athletic/5739537/2024/09/02/champions-league-ticket-prices-away-fans-cap/
