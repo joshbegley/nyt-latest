@@ -1,3 +1,7 @@
+**ESPN and ABC Go Dark on DirecTV in Feud With Disney**\
+`The outage struck on Sunday, cutting access for many DirecTV viewers to the U.S. Open tennis tournament on ABC.`\
+https://nytimes.com/2024/09/01/business/espn-abc-disney-directv.html
+
 **Live Updates: Israel Prepares for Major Labor Strike Over Hostage Killings**\
 `Much of the country is set to shut down, a dramatic reflection of outrage over the deaths of six hostages in Gaza. The protest is set to cause widespread disruptions.`\
 https://nytimes.com/live/2024/09/01/world/hostages-strike-israel-gaza-war
