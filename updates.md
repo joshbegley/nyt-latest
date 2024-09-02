@@ -1,3 +1,7 @@
+**‘Pinnacle Man,’ Found in Cave Nearly 50 Years Ago, Has Been Identified**\
+`The man, Nicholas Paul Grubb, was found frozen near the Appalachian Trail in Pennsylvania in 1977. His identity remained a mystery until a state trooper found his fingerprints.`\
+https://nytimes.com/2024/09/02/us/appalachian-trail-cave-pinnacle-man-identified.html
+
 **Gao Zhen, Artist Who Critiqued the Cultural Revolution, Is Detained in China**\
 `Mr. Gao is being held on suspicion of slandering China’s heroes and martyrs, an offense punishable by up to three years in prison, his brother said.`\
 https://nytimes.com/2024/09/02/world/asia/gao-zhen-arrested-china.html
