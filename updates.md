@@ -1,4 +1,8 @@
 **Suarez announces retirement from international football**\
+`Suarez's final international match with Uruguay will be on Friday at Estadio Centenario. `\
+https://nytimes.com/athletic/5739324/2024/09/02/luis-suarez-retirement-uruguay/
+
+**Suarez announces retirement from international football**\
 `Suarez's retirement from international football comes as he is still scoring goals for Inter Miami. `\
 https://nytimes.com/athletic/5739324/2024/09/02/luis-suarez-retirement-uruguay/
 
