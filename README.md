@@ -1,3 +1,15 @@
+**Real Madrid's Ceballos set for six-week layoff with ankle ligament injury**\
+`Real Madrid midfielder Dani Ceballos has suffered an ankle ligament injury that is expected to sideline him for around six weeks.`\
+https://nytimes.com/athletic/5739357/2024/09/02/dani-ceballos-injury-real-madrid/
+
+**The Pulse: Bold NFL season predictions**\
+`The Pulse is The Athletic's largest daily sports newsletter.`\
+https://nytimes.com/athletic/5737853/2024/09/02/nfl-season-predictions-the-pulse/
+
+**The Connections Bot**\
+`We explain a newly released feature from the creators of WordleBot.`\
+https://nytimes.com/2024/09/02/briefing/the-connections-bot.html
+
 **Man City winger Ndala set for PSV loan move**\
 `Manchester City talent Joel Ndala is to undergo medical today ahead of completing a move to PSV Eindhoven on loan with a conditional obligation to buy.`\
 https://nytimes.com/athletic/5739259/2024/09/02/man-city-transfers-joel-ndala-psv/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5734373/2024/09/02/bears-roster-numbers-caleb-willi
 **The Connections Companion No. 450**\
 `Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 3, 2024.`\
 https://nytimes.com/2024/09/02/crosswords/connections-companion-450.html
-
-**The most "college football" things that happened in Week 1**\
-`College football was its usual wacky self in Week 1. Let's take a look back at some of the best moments.`\
-https://nytimes.com/athletic/5737606/2024/09/02/college-football-week-1-top-moments/
-
-**Coman to remain at Bayern: 'King is staying with us'**\
-`Bayern Munich board member Max Eberl has confirmed that Kingsley Coman will be staying at the club this summer.`\
-https://nytimes.com/athletic/5739262/2024/09/02/bayern-munich-kinglsey-coman-future/
-
-**Arsenal turn down informal proposal from Al Ittihad for Trossard**\
-`Arsenal have turned down an informal proposal from Al Ittihad to sign forward Leandro Trossard.`\
-https://nytimes.com/athletic/5739299/2024/09/02/leandro-trossard-al-ittihad-arsenal-transfer/
 
