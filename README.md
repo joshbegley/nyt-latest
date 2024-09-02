@@ -1,3 +1,7 @@
+**Alabama left tackle Kadyn Proctor dealing with shoulder injury**\
+`TUSCALOOSA, Ala.`\
+https://nytimes.com/athletic/5740204/2024/09/02/alabama-football-kadyn-proctor-injury/
+
 **Brazilian Supreme Court Panel Upholds Order to Block Elon Musk’s X**\
 `Mr. Musk has criticized the blackout of the social network in Brazil as a campaign by a single, crusading justice. On Monday, four other justices affirmed the ruling.`\
 https://nytimes.com/2024/09/02/world/americas/brazil-elon-musk-supreme-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/02/movies/telluride-festival.html
 **Why Thousands of Hotel Workers Are on Strike**\
 `Pandemic-era cuts to staffing and services like daily housekeeping and room service have persisted, which unions say has resulted in lower incomes and heavier workloads for remaining workers.`\
 https://nytimes.com/2024/09/02/business/hotel-workers-strike-wages.html
-
-**Georgia OLB Mykel Williams could miss time to injury**\
-`ATHENS, Ga.`\
-https://nytimes.com/athletic/5740021/2024/09/02/georgia-football-mykel-williams-injury/
 
