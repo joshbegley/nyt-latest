@@ -1,3 +1,7 @@
+**Eden Yerushalmi, an Israeli hostage, is seen in a Hamas video.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/09/01/world/hostages-strike-israel-gaza-war/eden-yerushalmi-an-israeli-hostage-is-seen-in-a-hamas-video
+
 **Netanyahu Stands Firm on Cease-Fire Terms Amid Growing Outrage in Israel**\
 `In his first news conference since the bodies of six killed hostages were recovered, Prime Minister Benjamin Netanyahu refused to budge on his conditions for any truce in Gaza.`\
 https://nytimes.com/2024/09/02/world/middleeast/netanyahu-gaza-war-protests-hostages.html

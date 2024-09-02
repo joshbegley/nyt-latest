@@ -1,3 +1,7 @@
+**Eden Yerushalmi, an Israeli hostage, is seen in a Hamas video.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/09/01/world/hostages-strike-israel-gaza-war/eden-yerushalmi-an-israeli-hostage-is-seen-in-a-hamas-video
+
 **Netanyahu Stands Firm on Cease-Fire Terms Amid Growing Outrage in Israel**\
 `In his first news conference since the bodies of six killed hostages were recovered, Prime Minister Benjamin Netanyahu refused to budge on his conditions for any truce in Gaza.`\
 https://nytimes.com/2024/09/02/world/middleeast/netanyahu-gaza-war-protests-hostages.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/09/02/weather/yagi-map-path-tracker.html
 **Cathay Pacific Cancels Flights to Inspect 48 Airbus Aircraft After Engine Issue**\
 `An Airbus A350 jet experienced a problem during a flight that was supposed to travel from Hong Kong to Zurich. The airline has canceled 24 return flights.`\
 https://nytimes.com/2024/09/02/world/cathay-pacific-a350-airbus-planes-engines.html
-
-**Thousands Gather for Funeral of Israeli American Hostage Killed in Gaza**\
-`It was reminder of the perilous situation facing dozens of remaining hostages still thought to be alive in the war-ravaged Gaza Strip.`\
-https://nytimes.com/2024/09/02/world/middleeast/hersh-goldberg-polin-funeral-israel-hostage.html
 
