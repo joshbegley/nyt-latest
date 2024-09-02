@@ -1,3 +1,11 @@
+**Kodai Senga and the Mets 'open to anything' in a possible late September return**\
+`Senga could be used out of the bullpen but made it clear that he would need to feel at full strength to proceed with a return,`\
+https://nytimes.com/athletic/5740596/2024/09/02/mets-kodai-senga-bullpen-return/
+
+**Abilene Christian involved in bus accident after loss to Texas Tech**\
+`The accident occurred at approximately 11:30 p.m. on Saturday after Abilene Christian’s game against Texas Tech.`\
+https://nytimes.com/athletic/5737949/2024/09/02/abilene-christian-bus-accident-texas-tech/
+
 **Transgender sprinter fails to reach Paralympic final**\
 `Valentina Petrillo, a 50-year-old transgender athlete competing at the Paris Paralympics, has said she is “a trans dad, not everyone’s dream dad but hopes he (her son) will be proud of (her)”.`\
 https://nytimes.com/athletic/5740197/2024/09/02/transgender-valentina-petrillo-paralympics/
