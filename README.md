@@ -1,3 +1,7 @@
+**Kimmich named Germany captain; Rudiger, Havertz vice captains**\
+`Bayern Munich&#8217;s Joshua Kimmich has been named Germany captain following Ilkay Gundogan&#8217;s international retirement.`\
+https://nytimes.com/athletic/5739641/2024/09/02/joshua-kimmich-germany-captain/
+
 **Assessing JD Vance’s Appeals to the Middle Class on the Campaign Trail**\
 `The Republican vice-presidential nominee has assailed Vice President Kamala Harris’s policies and positions with inaccurate claims.`\
 https://nytimes.com/2024/09/02/us/politics/jd-vance-middle-class-fact-check.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/01/world/hostages-strike-israel-gaza-war/heres-
 **Here’s the latest on the 2024 race.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/09/02/us/harris-trump-election/heres-the-latest-on-the-2024-race
-
-**Election Live Updates: Democrats Court Union Voters With a Labor Day Lineup**\
-`Vice President Kamala Harris will campaign in Detroit and then in Pittsburgh alongside President Biden, as the holiday signals the final stretch of the race.`\
-https://nytimes.com/live/2024/09/02/us/harris-trump-election
 
