@@ -1,3 +1,7 @@
+**Arsenal turn down informal proposal from Al Ittihad for Trossard**\
+`Arsenal have turned down an informal proposal from Al Ittihad to sign forward Leandro Trossard.`\
+https://nytimes.com/athletic/5739299/2024/09/02/leandro-trossard-al-ittihad-arsenal-transfer/
+
 **Against the odds, Tigers' patchwork pitching staff has fueled a climb back to contention**\
 `Despite new faces and unconventional roles, the Tigers finished August with the second-best ERA in baseball. `\
 https://nytimes.com/athletic/5738496/2024/09/02/tigers-pitching-staff-august-success/
