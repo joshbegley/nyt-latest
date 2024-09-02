@@ -1,3 +1,7 @@
+**Serie A Briefing: Maldini at No 10, Osimhen's out in the cold and did Fonseca's subs snub him?**\
+`James Horncastle rounds up the talking points from Serie A as Inter thrashed Atalanta (again) and Lukaku had an instant impact for Conte `\
+https://nytimes.com/athletic/5737570/2024/09/02/serie-a-briefing-maldini-at-no-10-osimhens-out-in-the-cold-and-did-fonsecas-subs-snub-him/
+
 **Arne Slot has made an instant impact at Liverpool. This was the day his reign had lift-off**\
 `Three games, three wins and no goals conceded. And a victory at Old Trafford in his first visit. This is a perfect platform to build on`\
 https://nytimes.com/athletic/5738104/2024/09/02/arne-slot-liverpool-man-united/
