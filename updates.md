@@ -1,3 +1,7 @@
+**Astros' Kyle Tucker suffered fractured shin vs. Cardinals in June**\
+`Tucker has not played since fouling a ball off his right leg during a June 3 game against the St. Louis Cardinals`\
+https://nytimes.com/athletic/5739981/2024/09/02/astros-kyle-tucker-fractured-shin/
+
 **Putin Arrives in Mongolia in Defiance of I.C.C. Arrest Warrant**\
 `The Russian president is making a state visit to a country that is heavily dependent on Moscow for oil.`\
 https://nytimes.com/2024/09/02/world/europe/putin-mongolia.html

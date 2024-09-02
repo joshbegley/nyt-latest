@@ -1,3 +1,7 @@
+**Astros' Kyle Tucker suffered fractured shin vs. Cardinals in June**\
+`Tucker has not played since fouling a ball off his right leg during a June 3 game against the St. Louis Cardinals`\
+https://nytimes.com/athletic/5739981/2024/09/02/astros-kyle-tucker-fractured-shin/
+
 **Putin Arrives in Mongolia in Defiance of I.C.C. Arrest Warrant**\
 `The Russian president is making a state visit to a country that is heavily dependent on Moscow for oil.`\
 https://nytimes.com/2024/09/02/world/europe/putin-mongolia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5740021/2024/09/02/georgia-football-mykel-williams-
 **Willian agrees Olympiakos move**\
 `Former Chelsea and Arsenal winger Willian has agreed to join Olympiakos as a free agent.`\
 https://nytimes.com/athletic/5740019/2024/09/02/willian-olympiakos-fulham/
-
-**USMNT Player Tracker: Trusty's Celtic switch, Morris settling at Boro and Tillmann thriving**\
-`There are new starts in Glasgow and Lyon, a clean sheet for Gabriel Slonina and another assist for Antonee Robinson in this week's roundup`\
-https://nytimes.com/athletic/5739812/2024/09/02/usmnt-trusty-morris-tillmann-tracker/
 
