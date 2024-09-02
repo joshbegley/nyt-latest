@@ -1,3 +1,15 @@
+**Here’s the latest on the 2024 race.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/09/02/us/harris-trump-election/heres-the-latest-on-the-2024-race
+
+**Election Live Updates: Democrats Court Union Voters With a Labor Day Lineup**\
+`Vice President Kamala Harris will campaign in Detroit and then in Pittsburgh alongside President Biden, as the holiday signals the final stretch of the race.`\
+https://nytimes.com/live/2024/09/02/us/harris-trump-election
+
+**Padres takeaways: Elias Díaz's role and the starting rotation picture as rosters expand**\
+`The Padres had a busy morning of transactions Sunday. Yu Darvish's impact on Michael King is paying dividends.`\
+https://nytimes.com/athletic/5736387/2024/09/02/padres-expanded-roster-eliaz-diaz-starting-rotation/
+
 **Analysing Tottenham's wastefulness - including the blown chance that sums up their problems**\
 `Spurs really shouldn't have lost to Newcastle after creating so many opportunities. They have problems to solve at the top end of the pitch`\
 https://nytimes.com/athletic/5739211/2024/09/02/tottenham-wastefulness-newcastle-ange-postecoglou/

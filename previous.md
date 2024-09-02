@@ -1,3 +1,15 @@
+**Here’s the latest on the 2024 race.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/09/02/us/harris-trump-election/heres-the-latest-on-the-2024-race
+
+**Election Live Updates: Democrats Court Union Voters With a Labor Day Lineup**\
+`Vice President Kamala Harris will campaign in Detroit and then in Pittsburgh alongside President Biden, as the holiday signals the final stretch of the race.`\
+https://nytimes.com/live/2024/09/02/us/harris-trump-election
+
+**Padres takeaways: Elias Díaz's role and the starting rotation picture as rosters expand**\
+`The Padres had a busy morning of transactions Sunday. Yu Darvish's impact on Michael King is paying dividends.`\
+https://nytimes.com/athletic/5736387/2024/09/02/padres-expanded-roster-eliaz-diaz-starting-rotation/
+
 **Analysing Tottenham's wastefulness - including the blown chance that sums up their problems**\
 `Spurs really shouldn't have lost to Newcastle after creating so many opportunities. They have problems to solve at the top end of the pitch`\
 https://nytimes.com/athletic/5739211/2024/09/02/tottenham-wastefulness-newcastle-ange-postecoglou/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5734058/2024/09/02/2024-nascar-playoffs-drivers/
 **Histadrut, the Labor Union Behind Israel’s Strike, Has Long History of Influence**\
 `The union, which predates Israel’s founding, led a strike last year that helped force Prime Minister Benjamin Netanyahu to suspend a plan to overhaul the judiciary.`\
 https://nytimes.com/2024/09/02/world/middleeast/israel-labor-union-strike.html
-
-**Stephane Veilleux on road to recovery after life-threatening car crash: 'There is no room for self-pity'**\
-`Veilleux, who played 428 of his 506 NHL games with the Wild, suffered a burst C1 vertebrae in June.`\
-https://nytimes.com/athletic/5737583/2024/09/02/nhl-stephane-veilleux-car-crash/
-
-**College Football Playoff 2024 projections: Miami in, LSU out of our 12-team bracket**\
-`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
-https://nytimes.com/athletic/5701128/2024/09/02/college-football-playoff-projections-odds/
-
-**Which Premier League club 'won' the transfer window?**\
-`What is a successful transfer window, anyway? Players in, money spent? And who definitely did not have a good summer? Two writers discuss`\
-https://nytimes.com/athletic/5732094/2024/09/02/premier-league-transfer-window/
 
