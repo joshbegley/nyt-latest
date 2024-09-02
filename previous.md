@@ -1,3 +1,7 @@
+**Four passages of play that should make West Ham fans happy**\
+`The result may have been the same as 12 months ago, but the performance means the forecast for life under Lopetegui is promising.`\
+https://nytimes.com/athletic/5736183/2024/09/02/west-hams-four-passages-of-play-against-manchester-city-that-should-make-fans-happy/
+
 **After Newcastle's summer of uncertainty, they've given themselves a platform to build on**\
 `Unconvincing. Ugly. A struggle. But somehow, after the turmoil of the transfer window, Newcastle have started the season successfully`\
 https://nytimes.com/athletic/5737448/2024/09/02/newcastle-uncertainty-spurs-something-to-build-on/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/02/briefing/israel-protests-germany-elections-trump-
 **'Fair market value' and 'pure profit' - The Premier League transfer window is messier than ever**\
 `The rulebook weighs heavily these days and clubs scramble to meet deadlines as Premier League tries and fails to bring order to the window`\
 https://nytimes.com/athletic/5737668/2024/09/02/premier-league-transfer-window-mess/
-
-**Ivan Toney and Brentford: an unsatisfying end to an incredible story**\
-`Toney's move to Saudi Arabia feels anticlimactic — after all, it was only 12 months ago that he was being talked about as a £100m striker`\
-https://nytimes.com/athletic/5736552/2024/09/02/ivan-toney-brentford-transfer-al-ahli/
 

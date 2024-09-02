@@ -1,3 +1,7 @@
+**Four passages of play that should make West Ham fans happy**\
+`The result may have been the same as 12 months ago, but the performance means the forecast for life under Lopetegui is promising.`\
+https://nytimes.com/athletic/5736183/2024/09/02/west-hams-four-passages-of-play-against-manchester-city-that-should-make-fans-happy/
+
 **After Newcastle's summer of uncertainty, they've given themselves a platform to build on**\
 `Unconvincing. Ugly. A struggle. But somehow, after the turmoil of the transfer window, Newcastle have started the season successfully`\
 https://nytimes.com/athletic/5737448/2024/09/02/newcastle-uncertainty-spurs-something-to-build-on/
