@@ -1,3 +1,7 @@
+**Will Our Hostage Son Be Next?**\
+`Our window to rescue the remaining hostages in Gaza is closing, and Prime Minister Benjamin Netanyahu is fastening the latch.`\
+https://nytimes.com/2024/09/01/opinion/international-world/will-our-hostage-son-be-next.html
+
 **ESPN and ABC Go Dark on DirecTV in Feud With Disney**\
 `The outage struck on Sunday, cutting access for many DirecTV viewers to the U.S. Open tennis tournament on ABC.`\
 https://nytimes.com/2024/09/01/business/espn-abc-disney-directv.html
