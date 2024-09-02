@@ -1,4 +1,8 @@
 **Transgender sprinter fails to reach Paralympic final**\
+`Valentina Petrillo, a 50-year-old transgender athlete competing at the Paris Paralympics, has said she is “a trans dad, not everyone’s dream dad but hopes he (her son) will be proud of (her)”.`\
+https://nytimes.com/athletic/5740197/2024/09/02/transgender-valentina-petrillo-paralympics/
+
+**Transgender sprinter fails to reach Paralympic final**\
 `Valentina Petrillo, a 50-year-old transgender athlete competing at the Paris Paralympics, has said she is “a trans dad, not everyone’s dream dad” but “hopes her son will be proud of (her)”.`\
 https://nytimes.com/athletic/5740197/2024/09/02/transgender-valentina-petrillo-paralympics/
 
