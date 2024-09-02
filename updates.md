@@ -1,3 +1,7 @@
+**What's next for Pac-12, Mountain West after missing 2025 scheduling deadline?**\
+`The Pac-12-Mountain West deadline has passed without a 2025 agreement, and chances of getting back together appear slim. Why?`\
+https://nytimes.com/athletic/5740549/2024/09/02/pac-12-mountain-west-2025-schedule-agreement/
+
 **Suarez announces retirement from international football**\
 `Suarez's final international match with Uruguay will be on Friday at Estadio Centenario. `\
 https://nytimes.com/athletic/5739324/2024/09/02/luis-suarez-retirement-uruguay/
