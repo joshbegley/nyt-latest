@@ -1,3 +1,7 @@
+**Kimmich named Germany captain; Rudiger, Havertz vice captains**\
+`Bayern Munich&#8217;s Joshua Kimmich has been named Germany captain following Ilkay Gundogan&#8217;s international retirement.`\
+https://nytimes.com/athletic/5739641/2024/09/02/joshua-kimmich-germany-captain/
+
 **Assessing JD Vance’s Appeals to the Middle Class on the Campaign Trail**\
 `The Republican vice-presidential nominee has assailed Vice President Kamala Harris’s policies and positions with inaccurate claims.`\
 https://nytimes.com/2024/09/02/us/politics/jd-vance-middle-class-fact-check.html
