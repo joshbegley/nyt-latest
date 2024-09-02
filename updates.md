@@ -1,3 +1,15 @@
+**Gao Zhen, Artist Who Critiqued the Cultural Revolution, Is Detained in China**\
+`Mr. Gao is being held on suspicion of slandering China’s heroes and martyrs, an offense punishable by up to three years in prison, his brother said.`\
+https://nytimes.com/2024/09/02/world/asia/gao-zhen-arrested-china.html
+
+**Inside Newcastle live Q&A - Chris Waugh answers your questions every Monday**\
+`Chris Waugh is on hand to answer your Newcastle United questions as he launches his weekly Monday Q&A...`\
+https://nytimes.com/athletic/5739303/2024/09/02/inside-newcastle-live-qa-chris-waugh-answers-your-questions-every-monday/
+
+**How Mohamed Salah evolved into one of the best creators the Premier League has seen**\
+`Defenders have over-compensated for Salah's dribbling ability and that has given him space to expand his repertoire of assists`\
+https://nytimes.com/athletic/5739180/2024/09/02/mohamed-salah-assist-breakdown-premier-league/
+
 **2024 NASCAR Cup Series playoffs: All 16 drivers and their chances to win the title**\
 `The 2024 NASCAR Cup Series playoff field is set. Here's a look at all 16 drivers and their chances to win the title.`\
 https://nytimes.com/athletic/5734058/2024/09/02/2024-nascar-playoffs-drivers/
