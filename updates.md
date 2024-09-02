@@ -1,3 +1,15 @@
+**Tuesday Briefing: Growing outrage in Israel**\
+`Plus, Europe’s overwhelmed destinations.`\
+https://nytimes.com/2024/09/02/briefing/protests-harris-pope.html
+
+**Angelo Gabriel joins Al Nassr from Chelsea**\
+`Chelsea winger Angelo Gabriel has joined Saudi Pro League side Al Nassr in a transfer worth around €23million (£19.`\
+https://nytimes.com/athletic/5739661/2024/09/02/chelsea-angelo-gabriel-saudi-move/
+
+**49ers' Pearsall to miss at least 4 games after being shot**\
+`Pearsall, 23, was shot in the chest during an attempted robbery in San Francisco on Saturday.`\
+https://nytimes.com/athletic/5740412/2024/09/02/ricky-pearsall-49ers-reserve-list/
+
 **Virginia Ogilvy, Confidante to Queen Elizabeth II, Dies at 91**\
 `Born into New York wealth and married to a Scottish earl, she was the only American-born lady-in-waiting to the queen, serving for nearly 50 years.`\
 https://nytimes.com/2024/09/02/world/europe/virginia-ogilvy-dead.html
