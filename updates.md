@@ -1,3 +1,7 @@
+**DirecTV cuts ABC, ESPN feeds during U.S. Open, before USC-LSU**\
+`A number of Disney channel feeds, including ABC and ESPN, were cut for DirecTV customers.`\
+https://nytimes.com/athletic/5738828/2024/09/01/directv-disney-carriage-dispute/
+
 **Must Be Rats on the Brain**\
 `The one animal we can’t seem to live without, even when we really, really want to.`\
 https://nytimes.com/2024/09/01/podcasts/must-be-rats-this-american-life-nyt-audio.html
