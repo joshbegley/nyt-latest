@@ -1,3 +1,19 @@
+**Israelis Go on Strike After Hostage Deaths, and German Far Right Makes Election Gains**\
+`Plus, the U.S. coffee wars are heating up.`\
+https://nytimes.com/2024/09/02/podcasts/israel-hostage-protest.html
+
+**Wordle Review No. 1,172**\
+`Scroll down for hints and conversation about the puzzle for September 3, 2024.`\
+https://nytimes.com/2024/09/02/crosswords/wordle-review-1172.html
+
+**The Connections Companion No. 450**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 3, 2024.`\
+https://nytimes.com/2024/09/02/crosswords/connections-companion-450.html
+
+**The most "college football" things that happened in Week 1**\
+`College football was its usual wacky self in Week 1. Let's take a look back at some of the best moments.`\
+https://nytimes.com/athletic/5737606/2024/09/02/college-football-week-1-top-moments/
+
 **Coman to remain at Bayern: 'King is staying with us'**\
 `Bayern Munich board member Max Eberl has confirmed that Kingsley Coman will be staying at the club this summer.`\
 https://nytimes.com/athletic/5739262/2024/09/02/bayern-munich-kinglsey-coman-future/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5739167/2024/09/02/ukraine-badminton-paralympics-ko
 **Bus drivers, port workers, a dance company: Here’s who is striking in Israel.**\
 `By Isabel Kershner, Patrick Kingsley and Myra Noveck`\
 https://nytimes.com/live/2024/09/01/world/hostages-strike-israel-gaza-war/bus-drivers-port-workers-a-dance-company-heres-who-is-striking-in-israel
-
-**What we learned from Michigan's win vs. Fresno State — and what it means for Texas**\
-`Ten final thoughts from Michigan's win against Fresno State on the uncertainty at QB, where the running game stands and more before Texas.`\
-https://nytimes.com/athletic/5738027/2024/09/02/michigan-fresno-state-football-texas/
-
-**In a Brutal Summer, Miracles Still Bloom**\
-`In just the past 40 years, we’ve already lost nearly half the world’s insects. Every day I am thankful to find my pollinator garden buzzing.`\
-https://nytimes.com/2024/09/02/opinion/summer-heat-climate-butterflies.html
-
-**Harris and Biden Will Make a Labor Day Pitch to Union Voters**\
-`The vice president will appear with the president in Pittsburgh at their first joint campaign event since she took over the top of the ticket.`\
-https://nytimes.com/2024/09/02/us/politics/harris-biden-labor-day.html
-
-**Pope, 87, Embarks on ‘Physical Test’ in Grueling Asia Tour**\
-`The 11-day trip, a signal that Francis does not intend to slow down, requires nearly 45 hours of air travel and meetings in tropical climates.`\
-https://nytimes.com/2024/09/02/world/asia/pope-87-embarks-on-physical-test-in-grueling-asia-tour.html
 
