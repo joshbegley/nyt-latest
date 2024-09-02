@@ -1,3 +1,15 @@
+**Real Madrid's Ceballos set for six-week layoff with ankle ligament injury**\
+`Real Madrid midfielder Dani Ceballos has suffered an ankle ligament injury that is expected to sideline him for around six weeks.`\
+https://nytimes.com/athletic/5739357/2024/09/02/dani-ceballos-injury-real-madrid/
+
+**The Pulse: Bold NFL season predictions**\
+`The Pulse is The Athletic's largest daily sports newsletter.`\
+https://nytimes.com/athletic/5737853/2024/09/02/nfl-season-predictions-the-pulse/
+
+**The Connections Bot**\
+`We explain a new feature from the creators of WordleBot.`\
+https://nytimes.com/2024/09/02/briefing/the-connections-bot.html
+
 **Man City winger Ndala set for PSV loan move**\
 `Manchester City talent Joel Ndala is to undergo medical today ahead of completing a move to PSV Eindhoven on loan with a conditional obligation to buy.`\
 https://nytimes.com/athletic/5739259/2024/09/02/man-city-transfers-joel-ndala-psv/
