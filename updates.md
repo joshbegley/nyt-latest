@@ -1,3 +1,7 @@
+**Putin Arrives in Mongolia in Defiance of I.C.C. Arrest Warrant**\
+`The Russian president is making a state visit to a country that is heavily dependent on Moscow for oil.`\
+https://nytimes.com/2024/09/02/world/europe/putin-mongolia.html
+
 **Tchouameni leaves France squad with foot issue**\
 `Aurelien Tchouameni has withdrawn from the France squad for their upcoming UEFA Nations League games.`\
 https://nytimes.com/athletic/5739952/2024/09/02/real-madrids-aurelien-tchouameni-withdraws-france/
