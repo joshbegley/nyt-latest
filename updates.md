@@ -1,3 +1,19 @@
+**Israelis Go on Strike After Hostage Deaths, and German Far Right Makes Election Gains**\
+`Plus, the U.S. coffee wars are heating up.`\
+https://nytimes.com/2024/09/02/podcasts/israel-hostage-protest.html
+
+**Wordle Review No. 1,172**\
+`Scroll down for hints and conversation about the puzzle for September 3, 2024.`\
+https://nytimes.com/2024/09/02/crosswords/wordle-review-1172.html
+
+**The Connections Companion No. 450**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 3, 2024.`\
+https://nytimes.com/2024/09/02/crosswords/connections-companion-450.html
+
+**The most "college football" things that happened in Week 1**\
+`College football was its usual wacky self in Week 1. Let's take a look back at some of the best moments.`\
+https://nytimes.com/athletic/5737606/2024/09/02/college-football-week-1-top-moments/
+
 **Coman to remain at Bayern: 'King is staying with us'**\
 `Bayern Munich board member Max Eberl has confirmed that Kingsley Coman will be staying at the club this summer.`\
 https://nytimes.com/athletic/5739262/2024/09/02/bayern-munich-kinglsey-coman-future/
