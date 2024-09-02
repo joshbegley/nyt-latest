@@ -1,3 +1,7 @@
+**Coman to remain at Bayern: 'King is staying with us'**\
+`Bayern Munich board member Max Eberl has confirmed that Kingsley Coman will be staying at the club this summer.`\
+https://nytimes.com/athletic/5739262/2024/09/02/bayern-munich-kinglsey-coman-future/
+
 **Arsenal turn down informal proposal from Al Ittihad for Trossard**\
 `Arsenal have turned down an informal proposal from Al Ittihad to sign forward Leandro Trossard.`\
 https://nytimes.com/athletic/5739299/2024/09/02/leandro-trossard-al-ittihad-arsenal-transfer/
