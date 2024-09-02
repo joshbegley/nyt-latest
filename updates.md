@@ -1,3 +1,7 @@
+**Nick Castellanos, steady with 2 strikes, has another moment against Braves as Phillies soar**\
+`It had to be Castellanos, the Phillies' most consistent hitter for four months, which defies most expectations.`\
+https://nytimes.com/athletic/5739069/2024/09/02/nick-castellanos-braves-phillies/
+
 **Four passages of play that should make West Ham fans happy**\
 `The result may have been the same as 12 months ago, but the performance means the forecast for life under Lopetegui is promising.`\
 https://nytimes.com/athletic/5736183/2024/09/02/west-hams-four-passages-of-play-against-manchester-city-that-should-make-fans-happy/

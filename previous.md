@@ -1,3 +1,7 @@
+**Nick Castellanos, steady with 2 strikes, has another moment against Braves as Phillies soar**\
+`It had to be Castellanos, the Phillies' most consistent hitter for four months, which defies most expectations.`\
+https://nytimes.com/athletic/5739069/2024/09/02/nick-castellanos-braves-phillies/
+
 **Four passages of play that should make West Ham fans happy**\
 `The result may have been the same as 12 months ago, but the performance means the forecast for life under Lopetegui is promising.`\
 https://nytimes.com/athletic/5736183/2024/09/02/west-hams-four-passages-of-play-against-manchester-city-that-should-make-fans-happy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5735782/2024/09/02/manchester-united-midfield-probl
 **Monday Briefing**\
 `Anger and grief in Israel.`\
 https://nytimes.com/2024/09/02/briefing/israel-protests-germany-elections-trump-harris.html
-
-**'Fair market value' and 'pure profit' - The Premier League transfer window is messier than ever**\
-`The rulebook weighs heavily these days and clubs scramble to meet deadlines as Premier League tries and fails to bring order to the window`\
-https://nytimes.com/athletic/5737668/2024/09/02/premier-league-transfer-window-mess/
 
