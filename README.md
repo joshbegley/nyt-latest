@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5739357/2024/09/02/dani-ceballos-injury-real-madrid
 https://nytimes.com/athletic/5737853/2024/09/02/nfl-season-predictions-the-pulse/
 
 **The Connections Bot**\
-`We explain a newly released feature from the creators of WordleBot.`\
+`We explain a new feature from the creators of WordleBot.`\
 https://nytimes.com/2024/09/02/briefing/the-connections-bot.html
 
 **Man City winger Ndala set for PSV loan move**\
