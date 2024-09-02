@@ -1,3 +1,7 @@
+**Transgender sprinter fails to reach Paralympic final**\
+`Valentina Petrillo, a 50-year-old transgender athlete competing at the Paris Paralympics, has said she is “a trans dad, not everyone’s dream dad” but “hopes her son will be proud of (her)”.`\
+https://nytimes.com/athletic/5740197/2024/09/02/transgender-valentina-petrillo-paralympics/
+
 **Tracking Tropical Storm Yagi**\
 `See the likely path and wind arrival times for Yagi.`\
 https://nytimes.com/interactive/2024/09/02/weather/yagi-map-path-tracker.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5740127/2024/09/02/alabama-western-kentucky-result-
 **America’s Luck on Unemployment May Soon Run Out**\
 `Two economists have a convincing theory of how the fight against inflation could get more painful.`\
 https://nytimes.com/2024/09/02/opinion/unemployment-inflation-beveridge-threshold.html
-
-**Tim Walz: Good Neighbor and Rural Advocate**\
-`Readers discuss his community contributions and how he could boost rural America. Also: The Costco effect; all-out weddings; publishing’s problem.`\
-https://nytimes.com/2024/09/02/opinion/letters/tim-walz-neighbor-rural-advocate.html
 
