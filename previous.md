@@ -1,40 +1,40 @@
-**Bad Weather Caused Helicopter Crash That Killed Iran’s President, Report Says**\
-`Thick fog was a factor in the May crash that killed President Ebrahim Raisi, an armed forces investigation found. His death shook Iran at a strained moment for the country.`\
-https://nytimes.com/2024/09/02/world/middleeast/iran-president-helicopter-crash.html
+**The Quiet Collaboration Between Paralympic Athletes and Their Assistants**\
+`For competition partners who share the mutual goal of winning medals, eye contact or a simple touch can be all the communication that’s needed.`\
+https://nytimes.com/2024/09/02/world/olympics/paralympics-guides-assistants.html
 
-**Chelsea's Kellyman sidelined with hamstring injury**\
-`Chelsea&#8217;s attacking midfielder Omari Kellyman has suffered a hamstring injury.`\
-https://nytimes.com/athletic/5739250/2024/09/02/omari-kellyman-injury-chelsea/
+**The Timely Dude-ology of MJ Lenderman**\
+`The in-demand sideman and Wednesday guitarist sharpens his tragicomic musical portraiture on a new solo album, “Manning Fireworks.”`\
+https://nytimes.com/2024/09/02/arts/music/mj-lenderman-manning-fireworks.html
 
-**U.S. Open day 8 watch guide:**\
-`As the fourth round of the U.S. Open concludes, the two best players in the world aim for the quarterfinals.`\
-https://nytimes.com/athletic/5738381/2024/09/02/us-open-day-8-watch-guide-sinner-swiatek-pegula/
+**In a Scenic California Town, Worsening Landslides Force Power Shut-Offs**\
+`The movement of the ground in Rancho Palos Verdes is threatening homes. But as the city searches for solutions, many residents are committed to staying.`\
+https://nytimes.com/2024/09/02/nyregion/landslides-rancho-palos-verdes.html
 
-**Fraternity Brothers Balk at a $515,000 Party for Defending the Flag**\
-`After students at the University of North Carolina shielded a U.S. flag from protesters, admirers raised money to throw a ‘rager’ in their honor. Some don’t want it.`\
-https://nytimes.com/2024/09/02/us/unc-israel-gaza-protests-party-alpha-epsilon-pi.html
+**Biden Seeks Elusive Low Profile as a Turbulent Summer Winds to a Close**\
+`The president returned to his refuge in Rehoboth Beach, Del., and hardly emerged as his job continued apace. Locals understood, but said they missed getting ice cream with him.`\
+https://nytimes.com/2024/09/02/us/politics/biden-rehoboth-beach-delaware-vacation.html
 
-**The Lure of New York’s Secret Swimming Holes**\
-`Tucked into forests and often unmarked on maps, swimming holes offer relief from increasingly hot summers but also pose risks for adventure seekers.`\
-https://nytimes.com/2024/09/02/nyregion/new-york-swimming-holes.html
+**Who Can Pull Off a Jean Jacket?**\
+`Uncertain about whether a denim jacket suits his personal style, a reader seeks guidance from our fashion critic.`\
+https://nytimes.com/2024/09/02/style/denim-jean-jacket.html
 
-**Mercedes F1's Andrea Kimi Antonelli prepares to succeed, not replace, Lewis Hamilton**\
-`Stay informed on all the biggest stories in Formula 1.`\
-https://nytimes.com/athletic/5738215/2024/09/02/who-is-andrea-kimi-antonelli-mercedes-f1/
+**This Is Not What Trump Had in Mind**\
+`The former president still seems surprised that he is up against Kamala Harris.`\
+https://nytimes.com/2024/09/02/opinion/harris-trump-fracking-election.html
 
-**In New York, Schools Are Reclaiming Roads for Recess**\
-`The city’s Open Streets program will allow schools to close 71 streets to traffic and open them for students to play without worrying about speeding cars.`\
-https://nytimes.com/2024/09/02/nyregion/streets-wars-open-streets-for-schools.html
+**I Paid My Child $100 to Read a Book**\
+`Every lifelong reader knows why reading books is important. But how do you convey all that to a reluctant 12-year-old?`\
+https://nytimes.com/2024/09/02/opinion/bribing-my-kid-to-read.html
 
-**The U.S. Open Is Busier Than Ever. Some Fans Are Not Happy About It.**\
-`As interest in tennis increases, so do the crowds at the Billie Jean King National Tennis Center.`\
-https://nytimes.com/2024/09/02/nyregion/us-open-crowds.html
+**Books for Kids Starting at a New School**\
+`These 10 titles will help children of all ages navigate the anxiety, awkwardness and opportunities for growth that come with being the new kid.`\
+https://nytimes.com/2024/09/02/books/new-kid-school-childrens-books.html
 
-**Russia Hits Ukraine With Wave of Strikes as School Year Opens**\
-`The attack, the third large-scale bombardment in a week, coincided with intense fighting in eastern Ukraine and Russia.`\
-https://nytimes.com/2024/09/02/world/europe/russia-ukraine-strikes.html
+**A Funnel Cake Macchiato, Anyone? The Coffee Wars Are Heating Up.**\
+`From the giant Starbucks to upstarts like Scooter’s Coffee in Nebraska, the battle is joined for who can come up with the craziest, calorie-laden, not-really-coffee drink.`\
+https://nytimes.com/2024/09/02/business/coffee-wars-arms-race-starbucks.html
 
-**Brighton's Hurzeler says it would have been unfair to deny Gilmour Napoli move**\
-`Brighton head coach Fabian Hurzeler says it would have been unfair to deny Billy Gilmour the opportunity of a deadline-day move to Napoli.`\
-https://nytimes.com/athletic/5736318/2024/09/02/brighton-gilmour-napoli-transfer-hurzeler/
+**This Is How To Fix the Housing Crisis**\
+`Kamala Harris’s proposals won’t fix the housing affordability crisis. The solution can be found in the way the U.S. raised the legal drinking age.`\
+https://nytimes.com/2024/09/02/opinion/housing-crisis-affordability-kamala-harris-proposals.html
 
