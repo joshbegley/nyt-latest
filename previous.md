@@ -1,3 +1,15 @@
+**Histadrut, the Labor Union Behind Israel’s Strike, Has Long History of Influence**\
+`The union, which predates Israel’s founding, led a strike last year that helped force Prime Minister Benjamin Netanyahu to suspend a plan to overhaul the judiciary.`\
+https://nytimes.com/2024/09/02/world/middleeast/israel-labor-union-strike.html
+
+**Stephane Veilleux on road to recovery after life-threatening car crash: 'There is no room for self-pity'**\
+`Veilleux, who played 428 of his 506 NHL games with the Wild, suffered a burst C1 vertebrae in June.`\
+https://nytimes.com/athletic/5737583/2024/09/02/nhl-stephane-veilleux-car-crash/
+
+**Which Premier League club 'won' the transfer window?**\
+`What is a successful transfer window, anyway? Players in, money spent? And who definitely did not have a good summer? Two writers discuss`\
+https://nytimes.com/athletic/5732094/2024/09/02/premier-league-transfer-window/
+
 **Real Madrid's Ceballos set for six-week layoff with ankle ligament injury**\
 `Real Madrid midfielder Dani Ceballos has suffered an ankle ligament injury that is expected to sideline him for around six weeks.`\
 https://nytimes.com/athletic/5739357/2024/09/02/dani-ceballos-injury-real-madrid/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5729210/2024/09/02/nfl-2024-bold-season-predictions
 **Israelis Go on Strike After Hostage Deaths, and German Far Right Makes Election Gains**\
 `Plus, the U.S. coffee wars are heating up.`\
 https://nytimes.com/2024/09/02/podcasts/israel-hostage-protest.html
-
-**Wordle Review No. 1,172**\
-`Scroll down for hints and conversation about the puzzle for September 3, 2024.`\
-https://nytimes.com/2024/09/02/crosswords/wordle-review-1172.html
-
-**Bears Week 1 roster by the numbers: More experience, talent, depth around Caleb Williams**\
-`Our annual Bears roster breakdown by the numbers, including them having the NFL's 13th-oldest roster, which could be deceiving.`\
-https://nytimes.com/athletic/5734373/2024/09/02/bears-roster-numbers-caleb-williams/
-
-**The Connections Companion No. 450**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 3, 2024.`\
-https://nytimes.com/2024/09/02/crosswords/connections-companion-450.html
 
