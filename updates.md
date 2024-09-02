@@ -1,3 +1,7 @@
+**Bad Weather Caused Helicopter Crash That Killed Iran’s President, Report Says**\
+`Thick fog was a factor in the May crash that killed President Ebrahim Raisi, an armed forces investigation found. His death shook Iran at a strained moment for the country.`\
+https://nytimes.com/2024/09/02/world/middleeast/iran-president-helicopter-crash.html
+
 **Chelsea's Kellyman sidelined with hamstring injury**\
 `Chelsea&#8217;s attacking midfielder Omari Kellyman has suffered a hamstring injury.`\
 https://nytimes.com/athletic/5739250/2024/09/02/omari-kellyman-injury-chelsea/

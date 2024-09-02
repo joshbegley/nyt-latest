@@ -1,3 +1,7 @@
+**Bad Weather Caused Helicopter Crash That Killed Iran’s President, Report Says**\
+`Thick fog was a factor in the May crash that killed President Ebrahim Raisi, an armed forces investigation found. His death shook Iran at a strained moment for the country.`\
+https://nytimes.com/2024/09/02/world/middleeast/iran-president-helicopter-crash.html
+
 **Chelsea's Kellyman sidelined with hamstring injury**\
 `Chelsea&#8217;s attacking midfielder Omari Kellyman has suffered a hamstring injury.`\
 https://nytimes.com/athletic/5739250/2024/09/02/omari-kellyman-injury-chelsea/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/02/world/europe/russia-ukraine-strikes.html
 **Brighton's Hurzeler says it would have been unfair to deny Gilmour Napoli move**\
 `Brighton head coach Fabian Hurzeler says it would have been unfair to deny Billy Gilmour the opportunity of a deadline-day move to Napoli.`\
 https://nytimes.com/athletic/5736318/2024/09/02/brighton-gilmour-napoli-transfer-hurzeler/
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/09/02/crosswords/spelling-bee-forum.html
 
