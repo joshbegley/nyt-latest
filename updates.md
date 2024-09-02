@@ -1,3 +1,7 @@
+**2024 NASCAR Cup Series playoffs: All 16 drivers and their chances to win the title**\
+`The 2024 NASCAR Cup Series playoff field is set. Here's a look at all 16 drivers and their chances to win the title.`\
+https://nytimes.com/athletic/5734058/2024/09/02/2024-nascar-playoffs-drivers/
+
 **College Football Playoff 2024 projections: Miami in, LSU out of our 12-team bracket**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/09/02/college-football-playoff-projections-odds/
