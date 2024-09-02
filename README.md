@@ -1,3 +1,7 @@
+**2024 NASCAR Cup Series playoffs: All 16 drivers and their chances to win the title**\
+`The 2024 NASCAR Cup Series playoff field is set. Here's a look at all 16 drivers and their chances to win the title.`\
+https://nytimes.com/athletic/5734058/2024/09/02/2024-nascar-playoffs-drivers/
+
 **Histadrut, the Labor Union Behind Israel’s Strike, Has Long History of Influence**\
 `The union, which predates Israel’s founding, led a strike last year that helped force Prime Minister Benjamin Netanyahu to suspend a plan to overhaul the judiciary.`\
 https://nytimes.com/2024/09/02/world/middleeast/israel-labor-union-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5739259/2024/09/02/man-city-transfers-joel-ndala-ps
 **Zach Orr's ascent has him right where he should be: 'A Raven through and through'**\
 `As a former Baltimore player whose career ended prematurely, Orr's journey has led him to coaching the one team that's always had his back.`\
 https://nytimes.com/athletic/5734443/2024/09/02/zach-orr-ravens-defensive-coordinator/
-
-**Ten bold NFL 2024 season predictions: Packers win NFC North, but Caleb Williams for MVP?**\
-`Plus: Kyler Murray breaks out, the 49ers suffer a Super Bowl hangover and Patrick Mahomes and the Chiefs make history (again).`\
-https://nytimes.com/athletic/5729210/2024/09/02/nfl-2024-bold-season-predictions/
 
