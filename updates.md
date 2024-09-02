@@ -1,3 +1,7 @@
+**Volkswagen, Seeking to Cut Costs, Considers German Plant Closures**\
+`For the first time in its 87-year history, the automaker is considering shuttering factories in Germany, citing the need to remain competitive.`\
+https://nytimes.com/2024/09/02/business/volkswagen-germany-plant-closures.html
+
 **At Telluride, Experimental, Topical and Sometimes Crazy Movies**\
 `A documentary made with Legos and a biopic starring a CGI monkey showed alongside films about abortion restrictions and other subjects in the news.`\
 https://nytimes.com/2024/09/02/movies/telluride-festival.html
