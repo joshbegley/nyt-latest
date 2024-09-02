@@ -1,3 +1,7 @@
+**Will Our Hostage Son Be Next?**\
+`Our window to rescue the remaining hostages in Gaza is closing, and Prime Minister Benjamin Netanyahu is fastening the latch.`\
+https://nytimes.com/2024/09/01/opinion/international-world/will-our-hostage-son-be-next.html
+
 **ESPN and ABC Go Dark on DirecTV in Feud With Disney**\
 `The outage struck on Sunday, cutting access for many DirecTV viewers to the U.S. Open tennis tournament on ABC.`\
 https://nytimes.com/2024/09/01/business/espn-abc-disney-directv.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/01/world/middleeast/israel-gaza-hostages-ceasefire.h
 **Red Sox takeaways: Trevor Story starts rehab, Chase Shugart, Enmanuel Valdez added**\
 `The Red Sox chose not to recall Vaughn Grissom and could be welcoming back Story before the end of the season.`\
 https://nytimes.com/athletic/5738302/2024/09/01/red-sox-takeaways-trevor-story-september-callups/
-
-**Twins add Brooks Lee, Michael Helman and Royce Lewis debuts at second with game-winning homer**\
-`Plus outfielder Manuel Margot goes on the injured list, reliever Diego Castillo rejoins the bullpen and Louie Varland waits his turn.`\
-https://nytimes.com/athletic/5736626/2024/09/01/twins-brooks-lee-return-royce-lewis-second-base-debut/
 
