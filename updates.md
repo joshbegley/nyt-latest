@@ -1,3 +1,7 @@
+**Alabama left tackle Kadyn Proctor dealing with shoulder injury**\
+`TUSCALOOSA, Ala.`\
+https://nytimes.com/athletic/5740204/2024/09/02/alabama-football-kadyn-proctor-injury/
+
 **Brazilian Supreme Court Panel Upholds Order to Block Elon Musk’s X**\
 `Mr. Musk has criticized the blackout of the social network in Brazil as a campaign by a single, crusading justice. On Monday, four other justices affirmed the ruling.`\
 https://nytimes.com/2024/09/02/world/americas/brazil-elon-musk-supreme-court.html
