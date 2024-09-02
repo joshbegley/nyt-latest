@@ -1,3 +1,7 @@
+**Tchouameni leaves France squad with foot issue**\
+`Aurelien Tchouameni has withdrawn from the France squad for their upcoming UEFA Nations League games.`\
+https://nytimes.com/athletic/5739952/2024/09/02/real-madrids-aurelien-tchouameni-withdraws-france/
+
 **What Andy Roddick, the last American man to win the U.S. Open, did next**\
 `The last American man to win the U.S. Open lumps himself in with the tennis "shlubs." That's not a true story.`\
 https://nytimes.com/athletic/5695860/2024/09/02/andy-roddick-interview/
