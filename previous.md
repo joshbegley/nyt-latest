@@ -1,3 +1,19 @@
+**The U.S. Open Is Busier Than Ever. Some Fans Are Not Happy About It.**\
+`As interest in tennis increases, so do the crowds at the Billie Jean King National Tennis Center.`\
+https://nytimes.com/2024/09/02/nyregion/us-open-crowds.html
+
+**Russia Hits Ukraine With Wave of Strikes as School Year Opens**\
+`The attack, the third large-scale bombardment in a week, coincided with intense fighting in eastern Ukraine and Russia.`\
+https://nytimes.com/2024/09/02/world/europe/russia-ukraine-strikes.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/02/crosswords/spelling-bee-forum.html
+
+**Zheng Qinwen beats Donna Vekic in latest women's match in U.S. Open history**\
+`The Olympic gold medal rematch went to three sets, and finished at 2:15 a.m.`\
+https://nytimes.com/athletic/5739149/2024/09/02/us-open-latest-match-finish-womens-zheng-vekic/
+
 **Madrid briefing: Mbappe off the mark in La Liga, Tchouameni impresses, Ceballos rewarded**\
 `It was Mbappe's night at last as Madrid beat Betis 2-0 at the Bernabeu`\
 https://nytimes.com/athletic/5738921/2024/09/02/real-madrid-mbappe-tchouameni-ceballos/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/02/opinion/trump-immigration-border-meat-food-crisis
 **Nick Castellanos, steady with 2 strikes, has another moment against Braves as Phillies soar**\
 `It had to be Castellanos, the Phillies' most consistent hitter for four months, which defies most expectations.`\
 https://nytimes.com/athletic/5739069/2024/09/02/nick-castellanos-braves-phillies/
-
-**Four passages of play that should make West Ham fans happy**\
-`The result may have been the same as 12 months ago, but the performance means the forecast for life under Lopetegui is promising.`\
-https://nytimes.com/athletic/5736183/2024/09/02/west-hams-four-passages-of-play-against-manchester-city-that-should-make-fans-happy/
-
-**After Newcastle's summer of uncertainty, they've given themselves a platform to build on**\
-`Unconvincing. Ugly. A struggle. But somehow, after the turmoil of the transfer window, Newcastle have started the season successfully`\
-https://nytimes.com/athletic/5737448/2024/09/02/newcastle-uncertainty-spurs-something-to-build-on/
-
-**Wolves finally score from outside the box to end incredible barren run**\
-`No other team in Europe's top five leagues failed to score from long range last season — but Wolves have got that monkey off their backs`\
-https://nytimes.com/athletic/5737321/2024/09/02/wolves-outside-box-goal/
-
-**Crystal Palace's transfer window reviewed: Will new arrivals fill the Olise void?**\
-`Three games into the season and with the window closed, how are Palace looking for 2024-25?`\
-https://nytimes.com/athletic/5728602/2024/09/02/crystal-palace-transfer-window-reviewed/
 

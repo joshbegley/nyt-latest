@@ -1,3 +1,19 @@
+**The U.S. Open Is Busier Than Ever. Some Fans Are Not Happy About It.**\
+`As interest in tennis increases, so do the crowds at the Billie Jean King National Tennis Center.`\
+https://nytimes.com/2024/09/02/nyregion/us-open-crowds.html
+
+**Russia Hits Ukraine With Wave of Strikes as School Year Opens**\
+`The attack, the third large-scale bombardment in a week, coincided with intense fighting in eastern Ukraine and Russia.`\
+https://nytimes.com/2024/09/02/world/europe/russia-ukraine-strikes.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/02/crosswords/spelling-bee-forum.html
+
+**Zheng Qinwen beats Donna Vekic in latest women's match in U.S. Open history**\
+`The Olympic gold medal rematch went to three sets, and finished at 2:15 a.m.`\
+https://nytimes.com/athletic/5739149/2024/09/02/us-open-latest-match-finish-womens-zheng-vekic/
+
 **Madrid briefing: Mbappe off the mark in La Liga, Tchouameni impresses, Ceballos rewarded**\
 `It was Mbappe's night at last as Madrid beat Betis 2-0 at the Bernabeu`\
 https://nytimes.com/athletic/5738921/2024/09/02/real-madrid-mbappe-tchouameni-ceballos/
