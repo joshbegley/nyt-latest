@@ -1,3 +1,11 @@
+**Arne Slot has made an instant impact at Liverpool. This was the day his reign had lift-off**\
+`Three games, three wins and no goals conceded. And a victory at Old Trafford in his first visit. This is a perfect platform to build on`\
+https://nytimes.com/athletic/5738104/2024/09/02/arne-slot-liverpool-man-united/
+
+**The inevitability of Haaland, Everton's new weakness, Fulham's Arsenal connections - Data column**\
+`Where Haaland scores his goals, where Everton are going wrong and what Fulham are getting right - what the data shows us`\
+https://nytimes.com/athletic/5738374/2024/09/02/premier-league-data-haaland-everton/
+
 **Inside Fulham's transfer window: A changing of the guard and one astonishing sale**\
 `An ageing squad has been stylishly refreshed but will the departure of several experienced figures be felt this season?`\
 https://nytimes.com/athletic/5734126/2024/09/02/inside-fulham-transfer-window-2024/

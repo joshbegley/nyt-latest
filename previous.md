@@ -1,3 +1,11 @@
+**Arne Slot has made an instant impact at Liverpool. This was the day his reign had lift-off**\
+`Three games, three wins and no goals conceded. And a victory at Old Trafford in his first visit. This is a perfect platform to build on`\
+https://nytimes.com/athletic/5738104/2024/09/02/arne-slot-liverpool-man-united/
+
+**The inevitability of Haaland, Everton's new weakness, Fulham's Arsenal connections - Data column**\
+`Where Haaland scores his goals, where Everton are going wrong and what Fulham are getting right - what the data shows us`\
+https://nytimes.com/athletic/5738374/2024/09/02/premier-league-data-haaland-everton/
+
 **Inside Fulham's transfer window: A changing of the guard and one astonishing sale**\
 `An ageing squad has been stylishly refreshed but will the departure of several experienced figures be felt this season?`\
 https://nytimes.com/athletic/5734126/2024/09/02/inside-fulham-transfer-window-2024/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/01/world/americas/elon-musk-brazil-starlink-x.html
 **Miller Moss, USC outlast LSU in battle of breakout QBs**\
 `The loss extended LSU's winless streak in season openers to five years, including all three seasons under head coach Brian Kelly.`\
 https://nytimes.com/athletic/5738936/2024/09/01/usc-lsu-score-highlights-miller-moss/
-
-**Frances Tiafoe produces return masterclass to reach U.S. Open quarterfinals**\
-`The No. 20 seed jumped on a tiring opponent's second serves to reach the last eight in New York.`\
-https://nytimes.com/athletic/5738914/2024/09/01/frances-tiafoe-us-open-result-popyrin/
-
-**The strike reflects a dispute within Israel over Netanyahu’s Gaza strategy.**\
-`By Patrick Kingsley`\
-https://nytimes.com/live/2024/09/01/world/hostages-strike-israel-gaza-war/the-strike-reflects-a-dispute-within-israel-over-netanyahus-gaza-strategy
 
