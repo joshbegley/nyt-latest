@@ -2,7 +2,7 @@
 `By Patrick Kingsley`\
 https://nytimes.com/live/2024/09/01/world/hostages-strike-israel-gaza-war/heres-the-latest-on-the-labor-strike-in-israel
 
-**Live Updates: Israel Prepares for Major Labor Strike Over Hostage Deaths**\
+**Live Updates: Israel Prepares for Major Labor Strike Over Hostage Killings**\
 `Much of the country is set to shut down, a dramatic reflection of outrage over the deaths of six hostages in Gaza. The protest is set to cause widespread disruptions.`\
 https://nytimes.com/live/2024/09/01/world/hostages-strike-israel-gaza-war
 
