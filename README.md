@@ -1,6 +1,18 @@
+**Tuesday Briefing: Growing outrage in Israel**\
+`Plus, Europe’s overwhelmed destinations.`\
+https://nytimes.com/2024/09/02/briefing/protests-harris-pope.html
+
+**Angelo Gabriel joins Al Nassr from Chelsea**\
+`Chelsea winger Angelo Gabriel has joined Saudi Pro League side Al Nassr in a transfer worth around €23million (£19.`\
+https://nytimes.com/athletic/5739661/2024/09/02/chelsea-angelo-gabriel-saudi-move/
+
 **Virginia Ogilvy, Confidante to Queen Elizabeth II, Dies at 91**\
 `Born into New York wealth and married to a Scottish earl, she was the only American-born lady-in-waiting to the queen, serving for nearly 50 years.`\
 https://nytimes.com/2024/09/02/world/europe/virginia-ogilvy-dead.html
+
+**49ers' Pearsall to miss at least 4 games after being shot**\
+`Pearsall, 23, was shot in the chest during an attempted robbery in San Francisco on Saturday.`\
+https://nytimes.com/athletic/5740412/2024/09/02/ricky-pearsall-49ers-reserve-list/
 
 **Transgender sprinter fails to reach Paralympic final**\
 `Valentina Petrillo, a 50-year-old transgender athlete competing at the Paris Paralympics, has said she is “a trans dad, not everyone’s dream dad but hopes he (her son) will be proud of (her)”.`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5740241/2024/09/02/usc-lsu-result-analysis/
 **U.S. Seized an Airplane Owned by Venezuela’s Nicolás Maduro**\
 `The Biden administration said the airplane had been illegally exported for Mr. Maduro. U.S. officials accuse him of undermining the results of a presidential election he lost.`\
 https://nytimes.com/2024/09/02/us/politics/us-airplane-nicolas-maduro-venezuela.html
-
-**Harris and Walz, in Crucial ‘Blue Wall’ States, Rally for Union Support**\
-`Vice President Kamala Harris and Tim Walz are spending Labor Day in Michigan, Wisconsin and Pennsylvania between them, Midwestern states central to Democrats’ hopes in November.`\
-https://nytimes.com/2024/09/02/us/politics/harris-walz-michigan-pennsylvania.html
-
-**4 Killed in Shooting on Transit Train in Chicago Suburb**\
-`The authorities said four passengers were fatally shot as the train approached a station in Forest Park, Ill. It was unclear what led to the shooting.`\
-https://nytimes.com/2024/09/02/us/forest-park-chicago-train-shooting.html
-
-**Kalen DeBoer on Alabama having 'a determination and a relentlessness': Tide film study**\
-`What went right and what can be improved upon in Alabama's season-opening win over Western Kentucky.`\
-https://nytimes.com/athletic/5740127/2024/09/02/alabama-western-kentucky-result-analysis/
 
