@@ -1,3 +1,7 @@
+**Why the Chiefs are raving about Rashee Rice's improvement heading into the season**\
+`Last year, Rice led all of the Chiefs’ receivers with 938 yards and seven touchdowns. The team expects him to be even better this year.`\
+https://nytimes.com/athletic/5738595/2024/09/02/rashee-rice-chiefs-receiver-patrick-mahomes/
+
 **Rashee Rice eager to showcase his improved skills in Chiefs’ season opener against Ravens**\
 `Last year, Rice led all of the Chiefs’ receivers with 938 yards and seven touchdowns. The team expects him to be even better this year.`\
 https://nytimes.com/athletic/5738595/2024/09/02/rashee-rice-chiefs-receiver-patrick-mahomes/
