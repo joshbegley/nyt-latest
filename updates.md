@@ -1,3 +1,7 @@
+**Chelsea's Kellyman sidelined with hamstring injury**\
+`Chelsea&#8217;s attacking midfielder Omari Kellyman has suffered a hamstring injury.`\
+https://nytimes.com/athletic/5739250/2024/09/02/omari-kellyman-injury-chelsea/
+
 **U.S. Open day 8 watch guide:**\
 `As the fourth round of the U.S. Open concludes, the two best players in the world aim for the quarterfinals.`\
 https://nytimes.com/athletic/5738381/2024/09/02/us-open-day-8-watch-guide-sinner-swiatek-pegula/

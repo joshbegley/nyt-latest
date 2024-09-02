@@ -1,3 +1,7 @@
+**Chelsea's Kellyman sidelined with hamstring injury**\
+`Chelsea&#8217;s attacking midfielder Omari Kellyman has suffered a hamstring injury.`\
+https://nytimes.com/athletic/5739250/2024/09/02/omari-kellyman-injury-chelsea/
+
 **U.S. Open day 8 watch guide:**\
 `As the fourth round of the U.S. Open concludes, the two best players in the world aim for the quarterfinals.`\
 https://nytimes.com/athletic/5738381/2024/09/02/us-open-day-8-watch-guide-sinner-swiatek-pegula/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5736318/2024/09/02/brighton-gilmour-napoli-transfer
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/09/02/crosswords/spelling-bee-forum.html
-
-**Zheng Qinwen beats Donna Vekic in latest women's match in U.S. Open history**\
-`The Olympic gold medal rematch went to three sets, and finished at 2:15 a.m.`\
-https://nytimes.com/athletic/5739149/2024/09/02/us-open-latest-match-finish-womens-zheng-vekic/
 
