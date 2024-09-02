@@ -1,3 +1,7 @@
+**Frances Tiafoe produces return masterclass to reach U.S. Open quarterfinals**\
+`The No. 20 seed jumped on a tiring opponent's second serves to reach the last eight in New York.`\
+https://nytimes.com/athletic/5738914/2024/09/01/frances-tiafoe-us-open-result-popyrin/
+
 **The strike reflects a dispute within Israel over Netanyahu’s Gaza strategy.**\
 `By Patrick Kingsley`\
 https://nytimes.com/live/2024/09/01/world/hostages-strike-israel-gaza-war/the-strike-reflects-a-dispute-within-israel-over-netanyahus-gaza-strategy
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/01/us/politics/tim-walz-minnesota-state-fair.html
 **DirecTV cuts ABC, ESPN feeds during U.S. Open, before USC-LSU**\
 `A number of Disney channel feeds, including ABC and ESPN, were cut for DirecTV customers.`\
 https://nytimes.com/athletic/5738828/2024/09/01/directv-disney-carriage-dispute/
-
-**Must Be Rats on the Brain**\
-`The one animal we can’t seem to live without, even when we really, really want to.`\
-https://nytimes.com/2024/09/01/podcasts/must-be-rats-this-american-life-nyt-audio.html
 
