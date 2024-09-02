@@ -1,3 +1,7 @@
+**Brazilian Supreme Court Panel Upholds Order to Block Elon Musk’s X**\
+`Mr. Musk has criticized the blackout of the social network in Brazil as a campaign by a single, crusading justice. On Monday, four other justices affirmed the ruling.`\
+https://nytimes.com/2024/09/02/world/americas/brazil-elon-musk-supreme-court.html
+
 **Astros' Kyle Tucker suffered fractured shin vs. Cardinals in June**\
 `Tucker has not played since fouling a ball off his right leg during a June 3 game against the St. Louis Cardinals`\
 https://nytimes.com/athletic/5739981/2024/09/02/astros-kyle-tucker-fractured-shin/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/02/business/hotel-workers-strike-wages.html
 **Georgia OLB Mykel Williams could miss time to injury**\
 `ATHENS, Ga.`\
 https://nytimes.com/athletic/5740021/2024/09/02/georgia-football-mykel-williams-injury/
-
-**Willian agrees Olympiakos move**\
-`Former Chelsea and Arsenal winger Willian has agreed to join Olympiakos as a free agent.`\
-https://nytimes.com/athletic/5740019/2024/09/02/willian-olympiakos-fulham/
 
