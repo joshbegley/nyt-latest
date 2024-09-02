@@ -1,3 +1,7 @@
+**What we learned from Michigan's win vs. Fresno State — and what it means for Texas**\
+`Ten final thoughts from Michigan's win against Fresno State on the uncertainty at QB, where the running game stands and more before Texas.`\
+https://nytimes.com/athletic/5738027/2024/09/02/michigan-fresno-state-football-texas/
+
 **In a Brutal Summer, Miracles Still Bloom**\
 `In just the past 40 years, we’ve already lost nearly half the world’s insects. Every day I am thankful to find my pollinator garden buzzing.`\
 https://nytimes.com/2024/09/02/opinion/summer-heat-climate-butterflies.html
