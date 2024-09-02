@@ -1,3 +1,7 @@
+**Assessing JD Vance’s Appeals to the Middle Class on the Campaign Trail**\
+`The Republican vice-presidential nominee has assailed Vice President Kamala Harris’s policies and positions with inaccurate claims.`\
+https://nytimes.com/2024/09/02/us/politics/jd-vance-middle-class-fact-check.html
+
 **UEFA introduce away ticket price caps for Champions League games**\
 `Ticket prices for away fans across UEFA&#8217;s three club competitions have been capped.`\
 https://nytimes.com/athletic/5739537/2024/09/02/champions-league-ticket-prices-away-fans-cap/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/02/us/harris-trump-election/heres-the-latest-on
 **Election Live Updates: Democrats Court Union Voters With a Labor Day Lineup**\
 `Vice President Kamala Harris will campaign in Detroit and then in Pittsburgh alongside President Biden, as the holiday signals the final stretch of the race.`\
 https://nytimes.com/live/2024/09/02/us/harris-trump-election
-
-**Padres takeaways: Elias Díaz's role and the starting rotation picture as rosters expand**\
-`The Padres had a busy morning of transactions Sunday. Yu Darvish's impact on Michael King is paying dividends.`\
-https://nytimes.com/athletic/5736387/2024/09/02/padres-expanded-roster-eliaz-diaz-starting-rotation/
 
