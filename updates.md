@@ -1,3 +1,7 @@
+**U.S. Open day 8 watch guide:**\
+`As the fourth round of the U.S. Open concludes, the two best players in the world aim for the quarterfinals.`\
+https://nytimes.com/athletic/5738381/2024/09/02/us-open-day-8-watch-guide-sinner-swiatek-pegula/
+
 **Fraternity Brothers Balk at a $515,000 Party for Defending the Flag**\
 `After students at the University of North Carolina shielded a U.S. flag from protesters, admirers raised money to throw a ‘rager’ in their honor. Some don’t want it.`\
 https://nytimes.com/2024/09/02/us/unc-israel-gaza-protests-party-alpha-epsilon-pi.html
