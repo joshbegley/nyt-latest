@@ -1,3 +1,7 @@
+**What's next for Pac-12, Mountain West after missing 2025 scheduling deadline?**\
+`The Pac-12-Mountain West deadline has now passed without a 2025 agreement, and chances of getting back together appear slim. Why?`\
+https://nytimes.com/athletic/5740549/2024/09/02/pac-12-mountain-west-2025-schedule-agreement/
+
 **Kodai Senga and the Mets 'open to anything' in a possible late September return**\
 `Senga could be used out of the bullpen but made it clear that he would need to feel at full strength to proceed with a return,`\
 https://nytimes.com/athletic/5740596/2024/09/02/mets-kodai-senga-bullpen-return/

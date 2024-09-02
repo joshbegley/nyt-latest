@@ -1,3 +1,7 @@
+**What's next for Pac-12, Mountain West after missing 2025 scheduling deadline?**\
+`The Pac-12-Mountain West deadline has now passed without a 2025 agreement, and chances of getting back together appear slim. Why?`\
+https://nytimes.com/athletic/5740549/2024/09/02/pac-12-mountain-west-2025-schedule-agreement/
+
 **Kodai Senga and the Mets 'open to anything' in a possible late September return**\
 `Senga could be used out of the bullpen but made it clear that he would need to feel at full strength to proceed with a return,`\
 https://nytimes.com/athletic/5740596/2024/09/02/mets-kodai-senga-bullpen-return/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/02/briefing/protests-harris-pope.html
 **Angelo Gabriel joins Al Nassr from Chelsea**\
 `Chelsea winger Angelo Gabriel has joined Saudi Pro League side Al Nassr in a transfer worth around €23million (£19.`\
 https://nytimes.com/athletic/5739661/2024/09/02/chelsea-angelo-gabriel-saudi-move/
-
-**Virginia Ogilvy, Confidante to Queen Elizabeth II, Dies at 91**\
-`Born into New York wealth and married to a Scottish earl, she was the only American-born lady-in-waiting to the queen, serving for nearly 50 years.`\
-https://nytimes.com/2024/09/02/world/europe/virginia-ogilvy-dead.html
 
