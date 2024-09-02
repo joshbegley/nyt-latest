@@ -1,3 +1,15 @@
+**Against the odds, Tigers' patchwork pitching staff has fueled a climb back to contention**\
+`Despite new faces and unconventional roles, the Tigers finished August with the second-best ERA in baseball. `\
+https://nytimes.com/athletic/5738496/2024/09/02/tigers-pitching-staff-august-success/
+
+**This Week in Mets: Analyzing where the Mets stand with one month to go**\
+`During their three-city trip, the Mets handled their business to improve their position in the National League wild-card race.`\
+https://nytimes.com/athletic/5738953/2024/09/02/this-week-in-mets-wild-card-race/
+
+**The orphaned Paralympians united by badminton and pride in representing Ukraine**\
+`Oksana Kozyna and Oleksandr Chyrkov had a surprise visit from their teacher Svetlana Shabalina, a 'second mother', at the Games in Paris`\
+https://nytimes.com/athletic/5739167/2024/09/02/ukraine-badminton-paralympics-kozyna-chyrkov/
+
 **Bus drivers, port workers, a dance company: Here’s who is striking in Israel.**\
 `By Isabel Kershner, Patrick Kingsley and Myra Noveck`\
 https://nytimes.com/live/2024/09/01/world/hostages-strike-israel-gaza-war/bus-drivers-port-workers-a-dance-company-heres-who-is-striking-in-israel
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5738982/2024/09/02/texas-texas-am-baylor-tcu-smu/
 **I’m a College President and I Hope My Campus Is Even More Political This Year**\
 `Higher education should be tolerant but never neutral.`\
 https://nytimes.com/2024/09/02/opinion/college-president-campus-political.html
-
-**$3.2 Million Homes in California**\
-`A 1931 Spanish-style house in Glendale, a floating home in Sausalito and a waterfront retreat in San Rafael.`\
-https://nytimes.com/2024/09/02/realestate/3-million-dollar-homes-california.html
-
-**A Maine Camp for Deaf Children Carries On After an Unthinkable Loss**\
-`Joshua Seal, a Deaf man killed in a mass shooting last fall, did not get to see the third season of the camp he started. But 22 Deaf or hard-of-hearing children did, including his own.`\
-https://nytimes.com/2024/09/02/us/maine-deaf-camp.html
-
-**‘Moving in the Dark’: Hamas Documents Show Tunnel Battle Strategy**\
-`Hamas leaders spent years developing an underground warfare plan. Records from the battlefield show the group’s preparations, including blast doors to protect against Israeli bombs and soldiers.`\
-https://nytimes.com/2024/09/02/world/europe/moving-in-the-dark-hamas-documents-show-tunnel-battle-strategy.html
 
