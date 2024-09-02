@@ -1,3 +1,7 @@
+**Miller Moss, USC outlast LSU in battle of breakout QBs**\
+`The loss extended LSU's winless streak in season openers to five years, including all three seasons under head coach Brian Kelly.`\
+https://nytimes.com/athletic/5738936/2024/09/01/usc-lsu-score-highlights-miller-moss/
+
 **Frances Tiafoe produces return masterclass to reach U.S. Open quarterfinals**\
 `The No. 20 seed jumped on a tiring opponent's second serves to reach the last eight in New York.`\
 https://nytimes.com/athletic/5738914/2024/09/01/frances-tiafoe-us-open-result-popyrin/

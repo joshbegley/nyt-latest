@@ -1,3 +1,7 @@
+**Miller Moss, USC outlast LSU in battle of breakout QBs**\
+`The loss extended LSU's winless streak in season openers to five years, including all three seasons under head coach Brian Kelly.`\
+https://nytimes.com/athletic/5738936/2024/09/01/usc-lsu-score-highlights-miller-moss/
+
 **Frances Tiafoe produces return masterclass to reach U.S. Open quarterfinals**\
 `The No. 20 seed jumped on a tiring opponent's second serves to reach the last eight in New York.`\
 https://nytimes.com/athletic/5738914/2024/09/01/frances-tiafoe-us-open-result-popyrin/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5738443/2024/09/01/coco-gauff-us-open-result-emma-n
 **Pork Chops and Politics: Tim Walz Gets Minnesota Homecoming at State Fair**\
 `The vice-presidential nominee got a brief respite from the campaign trail to visit the venue that helped propel him to online stardom.`\
 https://nytimes.com/2024/09/01/us/politics/tim-walz-minnesota-state-fair.html
-
-**DirecTV cuts ABC, ESPN feeds during U.S. Open, before USC-LSU**\
-`A number of Disney channel feeds, including ABC and ESPN, were cut for DirecTV customers.`\
-https://nytimes.com/athletic/5738828/2024/09/01/directv-disney-carriage-dispute/
 
