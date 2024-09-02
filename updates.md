@@ -1,3 +1,19 @@
+**Ten Hag still has a midfield problem - but do Manchester United have the players to fix it?**\
+`Manchester's midfield ended up being two academy graduates with fewer than 40 senior appearances against Liverpool. It didn't work`\
+https://nytimes.com/athletic/5735782/2024/09/02/manchester-united-midfield-problems-post-window/
+
+**Monday Briefing**\
+`Anger and grief in Israel.`\
+https://nytimes.com/2024/09/02/briefing/israel-protests-germany-elections-trump-harris.html
+
+**'Fair market value' and 'pure profit' - The Premier League transfer window is messier than ever**\
+`The rulebook weighs heavily these days and clubs scramble to meet deadlines as Premier League tries and fails to bring order to the window`\
+https://nytimes.com/athletic/5737668/2024/09/02/premier-league-transfer-window-mess/
+
+**Ivan Toney and Brentford: an unsatisfying end to an incredible story**\
+`Toney's move to Saudi Arabia feels anticlimactic — after all, it was only 12 months ago that he was being talked about as a £100m striker`\
+https://nytimes.com/athletic/5736552/2024/09/02/ivan-toney-brentford-transfer-al-ahli/
+
 **Serie A Briefing: Maldini at No 10, Osimhen's out in the cold and did Fonseca's subs snub him?**\
 `James Horncastle rounds up the talking points from Serie A as Inter thrashed Atalanta (again) and Lukaku had an instant impact for Conte `\
 https://nytimes.com/athletic/5737570/2024/09/02/serie-a-briefing-maldini-at-no-10-osimhens-out-in-the-cold-and-did-fonsecas-subs-snub-him/
