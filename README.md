@@ -1,3 +1,7 @@
+**Serie A Briefing: Maldini at No 10, Osimhen's out in the cold and did Fonseca's subs snub him?**\
+`James Horncastle rounds up the talking points from Serie A as Inter thrashed Atalanta (again) and Lukaku had an instant impact for Conte `\
+https://nytimes.com/athletic/5737570/2024/09/02/serie-a-briefing-maldini-at-no-10-osimhens-out-in-the-cold-and-did-fonsecas-subs-snub-him/
+
 **Arne Slot has made an instant impact at Liverpool. This was the day his reign had lift-off**\
 `Three games, three wins and no goals conceded. And a victory at Old Trafford in his first visit. This is a perfect platform to build on`\
 https://nytimes.com/athletic/5738104/2024/09/02/arne-slot-liverpool-man-united/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5738681/2024/09/02/fantasy-football-waiver-wire-wee
 **Musk’s Starlink Defies Order to Block X in Brazil**\
 `The satellite internet service controlled by Elon Musk is refusing to comply with a court order to block his social network, X, regulators said.`\
 https://nytimes.com/2024/09/01/world/americas/elon-musk-brazil-starlink-x.html
-
-**Miller Moss, USC outlast LSU in battle of breakout QBs**\
-`The loss extended LSU's winless streak in season openers to five years, including all three seasons under head coach Brian Kelly.`\
-https://nytimes.com/athletic/5738936/2024/09/01/usc-lsu-score-highlights-miller-moss/
 
