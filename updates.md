@@ -1,3 +1,7 @@
+**Braves takeaways: Starting pitchers keep rolling, mistakes and missed opportunities at Philly**\
+`Atlanta's starting pitchers have set the standard for fewest runs allowed and lead in other statistics, but Philly is still in first place.`\
+https://nytimes.com/athletic/5739052/2024/09/02/braves-takeaways-pitchers-rolling-missed-opportunities/
+
 **What’s on TV This Week: ‘English Teacher’ and ‘Wise Guy: David Chase and the Sopranos’**\
 `FX airs a new comedy series and ‘The Sopranos’ creator talks about the show in a documentary series.`\
 https://nytimes.com/2024/09/02/arts/television/whats-on-tv-this-week-english-teacher-and-wise-guy-david-chase-and-the-sopranos.html

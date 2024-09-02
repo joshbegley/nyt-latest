@@ -1,3 +1,7 @@
+**Braves takeaways: Starting pitchers keep rolling, mistakes and missed opportunities at Philly**\
+`Atlanta's starting pitchers have set the standard for fewest runs allowed and lead in other statistics, but Philly is still in first place.`\
+https://nytimes.com/athletic/5739052/2024/09/02/braves-takeaways-pitchers-rolling-missed-opportunities/
+
 **What’s on TV This Week: ‘English Teacher’ and ‘Wise Guy: David Chase and the Sopranos’**\
 `FX airs a new comedy series and ‘The Sopranos’ creator talks about the show in a documentary series.`\
 https://nytimes.com/2024/09/02/arts/television/whats-on-tv-this-week-english-teacher-and-wise-guy-david-chase-and-the-sopranos.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5736189/2024/09/02/aston-villa-transfer-window-2024
 **Chestnut vs. Kobayashi hot dog eating contest: Odds, how to watch and more for Netflix's event**\
 `Joey Chestnut and Takeru Kobayashi are facing off in a hot dog eating contest on Netflix. Will this be fun or a disaster?`\
 https://nytimes.com/athletic/5738987/2024/09/02/joey-chestnut-vs-takeru-kobayashi-hot-dog-eating-contest-netflix-odds/
-
-**Leicester's transfer window reviewed: A solid rebuild, but less spent than fellow promoted sides**\
-`How did Leicester do in the latest transfer window? And how is their post-window starting XI looking?`\
-https://nytimes.com/athletic/5736489/2024/09/02/leicesters-transfer-window-reviewed-a-solid-rebuild-but-less-spent-than-promoted-rivals/
 
