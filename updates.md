@@ -1,3 +1,7 @@
+**Families of American Hostages Say a Deal ‘Has to Happen Right Now’**\
+`Seven Americans remain held in Gaza by Hamas. An eighth American, Hersh Goldberg-Polin, was among the hostages whose bodies were recovered on Saturday.`\
+https://nytimes.com/2024/09/02/nyregion/israel-hamas-gaza-american-hostages.html
+
 **Smalling joins Saudi club Al Fayha from Roma**\
 `Former Manchester United defender Chris Smalling has joined Saudi Arabian club Al Fayha from Roma.`\
 https://nytimes.com/athletic/5739623/2024/09/02/chris-smalling-saudi-transfer-roma/
