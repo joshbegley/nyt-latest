@@ -1,3 +1,7 @@
+**U.K. Suspends Some Arms Sales to Israel**\
+`Britain’s foreign secretary, David Lammy, said there was a “clear risk” some weapons might be used to commit “a serious violation of international humanitarian law.”`\
+https://nytimes.com/2024/09/02/world/middleeast/uk-suspends-israel-arms-sales.html
+
 **Watford striker Rajovic set for Brondby loan**\
 `Watford striker Mileta Rajovic has travelled to Denmark for a medical with Brondby ahead of a season-long loan move.`\
 https://nytimes.com/athletic/5739899/2024/09/02/watford-mileta-rajovic-loan-brondby/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/02/dining/colorful-flexible-sweet-and-spicy.html
 **Biden’s Terse Reply When Asked if Netanyahu Is Doing Enough on Hostages: ‘No’**\
 `The president told reporters he would have more to say after a meeting later Monday in the White House Situation Room.`\
 https://nytimes.com/2024/09/02/world/middleeast/biden-netanyahu-hostage-ceasefire-deal-israel.html
-
-**Max Verstappen warns F1 championships will slip away if Red Bull’s slump continues**\
-`“At the moment, both championships are not realistic,” Verstappen said post-race at Monza on Sunday.`\
-https://nytimes.com/athletic/5739703/2024/09/02/max-verstappen-red-bull-f1-championship/
 
