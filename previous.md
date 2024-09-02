@@ -1,3 +1,11 @@
+**Morales: USC's redemptive win vs. LSU restores confidence in Lincoln Riley's process**\
+`It was only one game, and there is a lot of football to be played. But USC's progress and good vibes were on display Sunday. `\
+https://nytimes.com/athletic/5739501/2024/09/02/usc-football-win-lsu-lincoln-riley/
+
+**Madrid summer transfers review: Mbappe bolsters attack but does Yoro blow leave them short?**\
+`The headline of Madrid's transfer window was the signing of France forward Kylian Mbappe - but question marks remain elsewhere`\
+https://nytimes.com/athletic/5739420/2024/09/02/real-madrid-mbappe-yoro-transfers/
+
 **The Athletic FC: Ten Hag's not Harry Potter, Valverde's superb assist for Mbappe**\
 `Today in TAFC: Ten Hag fails to make Man Utd's struggles disappear, we look back at the transfer window and a heavenly assist from Valverde`\
 https://nytimes.com/athletic/5739317/2024/09/02/ten-hags-harry-potter-valverde-mbappe-assist/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/02/us/appalachian-trail-cave-pinnacle-man-identified
 **Gao Zhen, Artist Who Critiqued the Cultural Revolution, Is Detained in China**\
 `Mr. Gao is being held on suspicion of slandering China’s heroes and martyrs, an offense punishable by up to three years in prison, his brother said.`\
 https://nytimes.com/2024/09/02/world/asia/gao-zhen-arrested-china.html
-
-**Inside Newcastle live Q&A - Chris Waugh answers your questions every Monday**\
-`Chris Waugh is on hand to answer your Newcastle United questions as he launches his weekly Monday Q&A...`\
-https://nytimes.com/athletic/5739303/2024/09/02/inside-newcastle-live-qa-chris-waugh-answers-your-questions-every-monday/
-
-**How Mohamed Salah evolved into one of the best creators the Premier League has seen**\
-`Defenders have over-compensated for Salah's dribbling ability and that has given him space to expand his repertoire of assists`\
-https://nytimes.com/athletic/5739180/2024/09/02/mohamed-salah-assist-breakdown-premier-league/
 

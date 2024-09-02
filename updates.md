@@ -1,3 +1,11 @@
+**Morales: USC's redemptive win vs. LSU restores confidence in Lincoln Riley's process**\
+`It was only one game, and there is a lot of football to be played. But USC's progress and good vibes were on display Sunday. `\
+https://nytimes.com/athletic/5739501/2024/09/02/usc-football-win-lsu-lincoln-riley/
+
+**Madrid summer transfers review: Mbappe bolsters attack but does Yoro blow leave them short?**\
+`The headline of Madrid's transfer window was the signing of France forward Kylian Mbappe - but question marks remain elsewhere`\
+https://nytimes.com/athletic/5739420/2024/09/02/real-madrid-mbappe-yoro-transfers/
+
 **The Athletic FC: Ten Hag's not Harry Potter, Valverde's superb assist for Mbappe**\
 `Today in TAFC: Ten Hag fails to make Man Utd's struggles disappear, we look back at the transfer window and a heavenly assist from Valverde`\
 https://nytimes.com/athletic/5739317/2024/09/02/ten-hags-harry-potter-valverde-mbappe-assist/
