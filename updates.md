@@ -1,3 +1,7 @@
+**Transgender sprinter fails to reach Paralympic final**\
+`Valentina Petrillo, a 50-year-old transgender athlete competing at the Paris Paralympics, has said she is “a trans dad, not everyone’s dream dad but hopes he (her son) will be proud of (her)”.`\
+https://nytimes.com/athletic/5740197/2024/09/02/transgender-valentina-petrillo-paralympics/
+
 **Kodai Senga and the Mets 'open to anything' in a possible late September return**\
 `Senga could be used out of the bullpen but made it clear that he would need to feel at full strength to proceed with a return,`\
 https://nytimes.com/athletic/5740596/2024/09/02/mets-kodai-senga-bullpen-return/
