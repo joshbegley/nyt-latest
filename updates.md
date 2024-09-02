@@ -1,3 +1,7 @@
+**What I learned about Will Howard in his Ohio State debut: Akron film breakdown**\
+`Ohio State got a stellar Week 1 performance from its Kansas State transfer quarterback. Here's what I saw from Howard and more on tape.`\
+https://nytimes.com/athletic/5739449/2024/09/02/ohio-state-will-howard-akron-film/
+
 **Morales: USC's redemptive win vs. LSU restores confidence in Lincoln Riley's process**\
 `It was only one game, and there is a lot of football to be played. But USC's progress and good vibes were on display Sunday. `\
 https://nytimes.com/athletic/5739501/2024/09/02/usc-football-win-lsu-lincoln-riley/
