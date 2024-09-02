@@ -1,3 +1,7 @@
+**UEFA introduce away ticket price caps for Champions League games**\
+`Ticket prices for away fans across UEFA&#8217;s three club competitions have been capped.`\
+https://nytimes.com/athletic/5739537/2024/09/02/champions-league-ticket-prices-away-fans-cap/
+
 **How Joelinton's split role helped an underperforming Newcastle beat Tottenham**\
 `Despite not playing well, Newcastle beat Spurs - and the key was an abrasive, all-action performance in Eddie Howe's midfield`\
 https://nytimes.com/athletic/5739125/2024/09/02/joelinton-newcastle-tottenham-premier-league/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/02/us/harris-trump-election
 **Padres takeaways: Elias Díaz's role and the starting rotation picture as rosters expand**\
 `The Padres had a busy morning of transactions Sunday. Yu Darvish's impact on Michael King is paying dividends.`\
 https://nytimes.com/athletic/5736387/2024/09/02/padres-expanded-roster-eliaz-diaz-starting-rotation/
-
-**Analysing Tottenham's wastefulness - including the blown chance that sums up their problems**\
-`Spurs really shouldn't have lost to Newcastle after creating so many opportunities. They have problems to solve at the top end of the pitch`\
-https://nytimes.com/athletic/5739211/2024/09/02/tottenham-wastefulness-newcastle-ange-postecoglou/
 
