@@ -1,3 +1,7 @@
+**U.K. Suspends Some Arms Sales to Israel**\
+`Britain’s foreign secretary, David Lammy, said there was a “clear risk” some weapons might be used to commit “a serious violation of international humanitarian law.”`\
+https://nytimes.com/2024/09/02/world/middleeast/uk-suspends-israel-arms-sales.html
+
 **Watford striker Rajovic set for Brondby loan**\
 `Watford striker Mileta Rajovic has travelled to Denmark for a medical with Brondby ahead of a season-long loan move.`\
 https://nytimes.com/athletic/5739899/2024/09/02/watford-mileta-rajovic-loan-brondby/
