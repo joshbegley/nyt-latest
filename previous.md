@@ -1,3 +1,7 @@
+**Pork Chops and Politics: Tim Walz Gets Minnesota Homecoming at State Fair**\
+`The vice-presidential nominee got a brief respite from the campaign trail to visit the venue that helped propel him to online stardom.`\
+https://nytimes.com/2024/09/01/us/politics/tim-walz-minnesota-state-fair.html
+
 **DirecTV cuts ABC, ESPN feeds during U.S. Open, before USC-LSU**\
 `A number of Disney channel feeds, including ABC and ESPN, were cut for DirecTV customers.`\
 https://nytimes.com/athletic/5738828/2024/09/01/directv-disney-carriage-dispute/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5732358/2024/09/01/us-open-jumbo-tennis-ball/
 **Astros takeaways: Yusei Kikuchi's dominance, getting Ben Gamel and Chas McCormick's future**\
 `The Astros went 18-10 in August, thanks to a dominant performance from their entire pitching staff.`\
 https://nytimes.com/athletic/5738584/2024/09/01/astros-yusei-kikuchi-ben-gamel-chas-mccormick/
-
-**Narrows at the End**\
-`Sala Wanetick and Emily Biegas make their New York Times debut.`\
-https://nytimes.com/2024/09/01/crosswords/daily-puzzle-2024-09-02.html
 

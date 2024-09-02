@@ -1,3 +1,7 @@
+**Pork Chops and Politics: Tim Walz Gets Minnesota Homecoming at State Fair**\
+`The vice-presidential nominee got a brief respite from the campaign trail to visit the venue that helped propel him to online stardom.`\
+https://nytimes.com/2024/09/01/us/politics/tim-walz-minnesota-state-fair.html
+
 **DirecTV cuts ABC, ESPN feeds during U.S. Open, before USC-LSU**\
 `A number of Disney channel feeds, including ABC and ESPN, were cut for DirecTV customers.`\
 https://nytimes.com/athletic/5738828/2024/09/01/directv-disney-carriage-dispute/
