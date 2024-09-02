@@ -1,3 +1,11 @@
+**At Telluride, Experimental, Topical and Sometimes Crazy Movies**\
+`A documentary made with Legos and a biopic starring a CGI monkey showed alongside films about abortion restrictions and other subjects in the news.`\
+https://nytimes.com/2024/09/02/movies/telluride-festival.html
+
+**Why Thousands of Hotel Workers Are on Strike**\
+`Pandemic-era cuts to staffing and services like daily housekeeping and room service have persisted, which unions say has resulted in lower incomes and heavier workloads for remaining workers.`\
+https://nytimes.com/2024/09/02/business/hotel-workers-strike-wages.html
+
 **Georgia OLB Mykel Williams could miss time to injury**\
 `ATHENS, Ga.`\
 https://nytimes.com/athletic/5740021/2024/09/02/georgia-football-mykel-williams-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5737271/2024/09/02/chelsea-transfer-window-sancho-s
 **FPL: What we learned from Gameweek 3 - don't sacrifice Salah for Haaland**\
 `Abdul Rehman analyses the main talking points from Gameweek 3 in Fantasy Premier League`\
 https://nytimes.com/athletic/5738226/2024/09/02/fantasy-premier-league-salah-haaland-watkins/
-
-**Will Automation Replace Jobs? Port Workers May Strike Over It.**\
-`A contract covering longshore workers on the East and Gulf Coasts will expire at the end of September, but talks have been stalled over the use of equipment that can function without human operators.`\
-https://nytimes.com/2024/09/02/business/economy/port-workers-robots-automation-strike.html
-
-**Lowetide: What the Oilers can expect from Troy Stecher**\
-`Stecher will be applying for the Oilers' right side second pairing job at training camp this season.`\
-https://nytimes.com/athletic/5737807/2024/09/02/edmonton-oilers-troy-stecher-roster/
 
