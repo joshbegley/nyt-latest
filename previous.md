@@ -1,3 +1,7 @@
+**Here’s how the strike and protests unfolded in Israel on Monday.**\
+`By Adam Rasgon, Gabby Sobelman and Aaron Boxerman`\
+https://nytimes.com/live/2024/09/01/world/hostages-strike-israel-gaza-war/heres-how-the-strike-and-protests-unfolded-in-israel-on-monday
+
 **Here’s the latest on the 2024 race.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/09/02/us/harris-trump-election/heres-the-latest-on-the-2024-race
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5739180/2024/09/02/mohamed-salah-assist-breakdown-p
 **2024 NASCAR Cup Series playoffs: All 16 drivers and their chances to win the title**\
 `The 2024 NASCAR Cup Series playoff field is set. Here's a look at all 16 drivers and their chances to win the title.`\
 https://nytimes.com/athletic/5734058/2024/09/02/2024-nascar-playoffs-drivers/
-
-**Histadrut, the Labor Union Behind Israel’s Strike, Has Long History of Influence**\
-`The union, which predates Israel’s founding, led a strike last year that helped force Prime Minister Benjamin Netanyahu to suspend a plan to overhaul the judiciary.`\
-https://nytimes.com/2024/09/02/world/middleeast/israel-labor-union-strike.html
 

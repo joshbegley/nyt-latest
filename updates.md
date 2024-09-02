@@ -1,3 +1,7 @@
+**Here’s how the strike and protests unfolded in Israel on Monday.**\
+`By Adam Rasgon, Gabby Sobelman and Aaron Boxerman`\
+https://nytimes.com/live/2024/09/01/world/hostages-strike-israel-gaza-war/heres-how-the-strike-and-protests-unfolded-in-israel-on-monday
+
 **Here’s the latest on the 2024 race.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/09/02/us/harris-trump-election/heres-the-latest-on-the-2024-race
