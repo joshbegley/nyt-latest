@@ -1,3 +1,7 @@
+**Lowetide: What the Oilers can expect from Troy Stecher**\
+`Stecher will be applying for the Oilers' right side second pairing job at training camp this season.`\
+https://nytimes.com/athletic/5737807/2024/09/02/edmonton-oilers-troy-stecher-roster/
+
 **Why the Chiefs are raving about Rashee Rice's improvement heading into the season**\
 `Last year, Rice led all of the Chiefs’ receivers with 938 yards and seven touchdowns. The team expects him to be even better this year.`\
 https://nytimes.com/athletic/5738595/2024/09/02/rashee-rice-chiefs-receiver-patrick-mahomes/
