@@ -1,3 +1,7 @@
+**Record Rainfall Spoils Crops in China, Rattling Its Leaders**\
+`Some vegetables cost more than they have in five years. Top Chinese officials have made a point of showing that they’re doing something about it.`\
+https://nytimes.com/2024/09/02/world/asia/china-rainfall-crops.html
+
 **Braves takeaways: Starting pitchers keep rolling, mistakes and missed opportunities at Philly**\
 `Atlanta's starting pitchers have set the standard for fewest runs allowed and lead in other statistics, but Philly is still in first place.`\
 https://nytimes.com/athletic/5739052/2024/09/02/braves-takeaways-pitchers-rolling-missed-opportunities/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5728602/2024/09/02/crystal-palace-transfer-window-r
 **Villa's transfer window reviewed: A mix of deluxe and low-cost signings made Emery happy**\
 `Villa brought in some big names, but also cheaper players with an eye on the future, whether for the squad or balance sheet`\
 https://nytimes.com/athletic/5736189/2024/09/02/aston-villa-transfer-window-2024/
-
-**Chestnut vs. Kobayashi hot dog eating contest: Odds, how to watch and more for Netflix's event**\
-`Joey Chestnut and Takeru Kobayashi are facing off in a hot dog eating contest on Netflix. Will this be fun or a disaster?`\
-https://nytimes.com/athletic/5738987/2024/09/02/joey-chestnut-vs-takeru-kobayashi-hot-dog-eating-contest-netflix-odds/
 

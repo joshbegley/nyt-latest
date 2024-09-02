@@ -1,3 +1,7 @@
+**Record Rainfall Spoils Crops in China, Rattling Its Leaders**\
+`Some vegetables cost more than they have in five years. Top Chinese officials have made a point of showing that they’re doing something about it.`\
+https://nytimes.com/2024/09/02/world/asia/china-rainfall-crops.html
+
 **Braves takeaways: Starting pitchers keep rolling, mistakes and missed opportunities at Philly**\
 `Atlanta's starting pitchers have set the standard for fewest runs allowed and lead in other statistics, but Philly is still in first place.`\
 https://nytimes.com/athletic/5739052/2024/09/02/braves-takeaways-pitchers-rolling-missed-opportunities/
