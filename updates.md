@@ -1,3 +1,7 @@
+**Assessing JD Vance’s Appeals to the Middle Class on the Campaign Trail**\
+`The Republican vice-presidential nominee has assailed Vice President Kamala Harris’s policies and positions with inaccurate claims.`\
+https://nytimes.com/2024/09/02/us/politics/jd-vance-middle-class-fact-check.html
+
 **How Joelinton's split role helped an underperforming Newcastle beat Tottenham**\
 `Despite not playing well, Newcastle beat Spurs - and the key was an abrasive, all-action individual performance in Eddie Howe's midfield`\
 https://nytimes.com/athletic/5739125/2024/09/02/joelinton-newcastle-tottenham-premier-league/
