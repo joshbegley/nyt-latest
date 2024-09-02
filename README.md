@@ -1,3 +1,7 @@
+**Families of American Hostages Say a Deal ‘Has to Happen Right Now’**\
+`Seven Americans remain held in Gaza by Hamas. An eighth American, Hersh Goldberg-Polin, was among the hostages whose bodies were recovered on Saturday.`\
+https://nytimes.com/2024/09/02/nyregion/israel-hamas-gaza-american-hostages.html
+
 **Smalling joins Saudi club Al Fayha from Roma**\
 `Former Manchester United defender Chris Smalling has joined Saudi Arabian club Al Fayha from Roma.`\
 https://nytimes.com/athletic/5739623/2024/09/02/chris-smalling-saudi-transfer-roma/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5740412/2024/09/02/ricky-pearsall-49ers-reserve-lis
 **Transgender sprinter fails to reach Paralympic final**\
 `Valentina Petrillo, a 50-year-old transgender athlete competing at the Paris Paralympics, has said she is “a trans dad, not everyone’s dream dad but hopes he (her son) will be proud of (her)”.`\
 https://nytimes.com/athletic/5740197/2024/09/02/transgender-valentina-petrillo-paralympics/
-
-**Tracking Tropical Storm Yagi**\
-`See the likely path and wind arrival times for Yagi.`\
-https://nytimes.com/interactive/2024/09/02/weather/yagi-map-path-tracker.html
 
