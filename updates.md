@@ -1,3 +1,7 @@
+**How Joelinton's split role helped an underperforming Newcastle beat Tottenham**\
+`Despite not playing well, Newcastle beat Spurs - and the key was an abrasive, all-action performance in Eddie Howe's midfield`\
+https://nytimes.com/athletic/5739125/2024/09/02/joelinton-newcastle-tottenham-premier-league/
+
 **What I learned about Will Howard in his Ohio State debut: Akron film breakdown**\
 `Ohio State got a stellar Week 1 performance from its Kansas State transfer quarterback. Here's what I saw from Howard and more on tape.`\
 https://nytimes.com/athletic/5739449/2024/09/02/ohio-state-will-howard-akron-film/
