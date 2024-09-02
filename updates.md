@@ -1,3 +1,11 @@
+**What’s on TV This Week: ‘English Teacher’ and ‘Wise Guy: David Chase and the Sopranos’**\
+`FX airs a new comedy series and ‘The Sopranos’ creator talks about the show in a documentary series.`\
+https://nytimes.com/2024/09/02/arts/television/whats-on-tv-this-week-english-teacher-and-wise-guy-david-chase-and-the-sopranos.html
+
+**Trump Said Democrats Will Take Away Your Hamburgers. He’s the One Who Might.**\
+`His immigration policies would push meatpackers and processors to the breaking point — and perhaps crash the whole food system.`\
+https://nytimes.com/2024/09/02/opinion/trump-immigration-border-meat-food-crisis.html
+
 **Nick Castellanos, steady with 2 strikes, has another moment against Braves as Phillies soar**\
 `It had to be Castellanos, the Phillies' most consistent hitter for four months, which defies most expectations.`\
 https://nytimes.com/athletic/5739069/2024/09/02/nick-castellanos-braves-phillies/

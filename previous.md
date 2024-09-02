@@ -1,3 +1,11 @@
+**What’s on TV This Week: ‘English Teacher’ and ‘Wise Guy: David Chase and the Sopranos’**\
+`FX airs a new comedy series and ‘The Sopranos’ creator talks about the show in a documentary series.`\
+https://nytimes.com/2024/09/02/arts/television/whats-on-tv-this-week-english-teacher-and-wise-guy-david-chase-and-the-sopranos.html
+
+**Trump Said Democrats Will Take Away Your Hamburgers. He’s the One Who Might.**\
+`His immigration policies would push meatpackers and processors to the breaking point — and perhaps crash the whole food system.`\
+https://nytimes.com/2024/09/02/opinion/trump-immigration-border-meat-food-crisis.html
+
 **Nick Castellanos, steady with 2 strikes, has another moment against Braves as Phillies soar**\
 `It had to be Castellanos, the Phillies' most consistent hitter for four months, which defies most expectations.`\
 https://nytimes.com/athletic/5739069/2024/09/02/nick-castellanos-braves-phillies/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5738987/2024/09/02/joey-chestnut-vs-takeru-kobayash
 **Leicester's transfer window reviewed: A solid rebuild, but less spent than fellow promoted sides**\
 `How did Leicester do in the latest transfer window? And how is their post-window starting XI looking?`\
 https://nytimes.com/athletic/5736489/2024/09/02/leicesters-transfer-window-reviewed-a-solid-rebuild-but-less-spent-than-promoted-rivals/
-
-**Ten Hag still has a midfield problem - but do Manchester United have the players to fix it?**\
-`Manchester's midfield ended up being two academy graduates with fewer than 40 senior appearances against Liverpool. It didn't work`\
-https://nytimes.com/athletic/5735782/2024/09/02/manchester-united-midfield-problems-post-window/
-
-**Monday Briefing**\
-`Anger and grief in Israel.`\
-https://nytimes.com/2024/09/02/briefing/israel-protests-germany-elections-trump-harris.html
 
