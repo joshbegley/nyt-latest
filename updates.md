@@ -1,3 +1,11 @@
+**Inside Chelsea's transfer window: Sancho and 'Net-Felix' in, no Osimhen – and the 'bomb squad'**\
+`It was another typically calm transfer window at Chelsea. Our team of reporters look at the transfers that happened and the ones that didn't`\
+https://nytimes.com/athletic/5737271/2024/09/02/chelsea-transfer-window-sancho-sterling-osimhen/
+
+**FPL: What we learned from Gameweek 3 - don't sacrifice Salah for Haaland**\
+`Abdul Rehman analyses the main talking points from Gameweek 3 in Fantasy Premier League`\
+https://nytimes.com/athletic/5738226/2024/09/02/fantasy-premier-league-salah-haaland-watkins/
+
 **Will Automation Replace Jobs? Port Workers May Strike Over It.**\
 `A contract covering longshore workers on the East and Gulf Coasts will expire at the end of September, but talks have been stalled over the use of equipment that can function without human operators.`\
 https://nytimes.com/2024/09/02/business/economy/port-workers-robots-automation-strike.html
