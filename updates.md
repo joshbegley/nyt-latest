@@ -1,3 +1,7 @@
+**Suarez announces retirement from international football**\
+`Suarez's retirement from international football comes as he is still scoring goals for Inter Miami. `\
+https://nytimes.com/athletic/5739324/2024/09/02/luis-suarez-retirement-uruguay/
+
 **Shooting Mars Festivities at West Indian American Day Parade in Brooklyn**\
 `At least five people were shot and wounded along the route of the bustling event, which continued on despite the disruption.`\
 https://nytimes.com/2024/09/02/nyregion/west-indian-day-nyc-shooting.html

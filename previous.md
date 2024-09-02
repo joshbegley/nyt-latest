@@ -1,3 +1,7 @@
+**Suarez announces retirement from international football**\
+`Suarez's retirement from international football comes as he is still scoring goals for Inter Miami. `\
+https://nytimes.com/athletic/5739324/2024/09/02/luis-suarez-retirement-uruguay/
+
 **Shooting Mars Festivities at West Indian American Day Parade in Brooklyn**\
 `At least five people were shot and wounded along the route of the bustling event, which continued on despite the disruption.`\
 https://nytimes.com/2024/09/02/nyregion/west-indian-day-nyc-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/02/world/middleeast/netanyahu-gaza-war-protests-host
 **Analysing Ashworth and Berrada's Man Utd transfer briefing - 'Erik has our full backing'**\
 `Omar Berrada and Dan Ashworth explain Manchester United's transfer window and their views of Erik ten Hag as manager`\
 https://nytimes.com/athletic/5740186/2024/09/02/ashworth-berrada-ten-hag-transfers/
-
-**Tuesday Briefing: Growing outrage in Israel**\
-`Plus, Europe’s overwhelmed destinations.`\
-https://nytimes.com/2024/09/02/briefing/protests-harris-pope.html
 
