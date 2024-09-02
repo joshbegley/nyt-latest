@@ -1,3 +1,7 @@
+**The Athletic FC: Ten Hag's not Harry Potter, Valverde's superb assist for Mbappe**\
+`Today in TAFC: Ten Hag fails to make Man Utd's struggles disappear, we look back at the transfer window and a heavenly assist from Valverde`\
+https://nytimes.com/athletic/5739317/2024/09/02/ten-hags-harry-potter-valverde-mbappe-assist/
+
 **Here’s how the strike and protests unfolded in Israel on Monday.**\
 `By Adam Rasgon, Gabby Sobelman and Aaron Boxerman`\
 https://nytimes.com/live/2024/09/01/world/hostages-strike-israel-gaza-war/heres-how-the-strike-and-protests-unfolded-in-israel-on-monday
