@@ -1,3 +1,7 @@
+**Madrid briefing: Mbappe off the mark in La Liga, Tchouameni impresses, Ceballos rewarded**\
+`It was Mbappe's night at last as Madrid beat Betis 2-0 at the Bernabeu`\
+https://nytimes.com/athletic/5738921/2024/09/02/real-madrid-mbappe-tchouameni-ceballos/
+
 **Record Rainfall Spoils Crops in China, Rattling Its Leaders**\
 `Some vegetables cost more than they have in five years. Top Chinese officials have made a point of showing that they’re doing something about it.`\
 https://nytimes.com/2024/09/02/world/asia/china-rainfall-crops.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5737321/2024/09/02/wolves-outside-box-goal/
 **Crystal Palace's transfer window reviewed: Will new arrivals fill the Olise void?**\
 `Three games into the season and with the window closed, how are Palace looking for 2024-25?`\
 https://nytimes.com/athletic/5728602/2024/09/02/crystal-palace-transfer-window-reviewed/
-
-**Villa's transfer window reviewed: A mix of deluxe and low-cost signings made Emery happy**\
-`Villa brought in some big names, but also cheaper players with an eye on the future, whether for the squad or balance sheet`\
-https://nytimes.com/athletic/5736189/2024/09/02/aston-villa-transfer-window-2024/
 

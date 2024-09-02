@@ -1,3 +1,7 @@
+**Madrid briefing: Mbappe off the mark in La Liga, Tchouameni impresses, Ceballos rewarded**\
+`It was Mbappe's night at last as Madrid beat Betis 2-0 at the Bernabeu`\
+https://nytimes.com/athletic/5738921/2024/09/02/real-madrid-mbappe-tchouameni-ceballos/
+
 **Record Rainfall Spoils Crops in China, Rattling Its Leaders**\
 `Some vegetables cost more than they have in five years. Top Chinese officials have made a point of showing that they’re doing something about it.`\
 https://nytimes.com/2024/09/02/world/asia/china-rainfall-crops.html
