@@ -1,3 +1,7 @@
+**Georgia OLB Mykel Williams could miss time to injury**\
+`ATHENS, Ga.`\
+https://nytimes.com/athletic/5740021/2024/09/02/georgia-football-mykel-williams-injury/
+
 **Willian agrees Olympiakos move**\
 `Former Chelsea and Arsenal winger Willian has agreed to join Olympiakos as a free agent.`\
 https://nytimes.com/athletic/5740019/2024/09/02/willian-olympiakos-fulham/

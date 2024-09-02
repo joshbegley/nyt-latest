@@ -1,3 +1,7 @@
+**Georgia OLB Mykel Williams could miss time to injury**\
+`ATHENS, Ga.`\
+https://nytimes.com/athletic/5740021/2024/09/02/georgia-football-mykel-williams-injury/
+
 **Willian agrees Olympiakos move**\
 `Former Chelsea and Arsenal winger Willian has agreed to join Olympiakos as a free agent.`\
 https://nytimes.com/athletic/5740019/2024/09/02/willian-olympiakos-fulham/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/02/business/economy/port-workers-robots-automation-s
 **Lowetide: What the Oilers can expect from Troy Stecher**\
 `Stecher will be applying for the Oilers' right side second pairing job at training camp this season.`\
 https://nytimes.com/athletic/5737807/2024/09/02/edmonton-oilers-troy-stecher-roster/
-
-**Why the Chiefs are raving about Rashee Rice's improvement heading into the season**\
-`Last year, Rice led all of the Chiefs’ receivers with 938 yards and seven touchdowns. The team expects him to be even better this year.`\
-https://nytimes.com/athletic/5738595/2024/09/02/rashee-rice-chiefs-receiver-patrick-mahomes/
 
