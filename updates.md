@@ -1,3 +1,11 @@
+**U.S. Seized an Airplane Owned by Venezuela’s Nicolás Maduro**\
+`The Biden administration said the airplane had been illegally exported for Mr. Maduro. U.S. officials accuse him of undermining the results of a presidential election he lost.`\
+https://nytimes.com/2024/09/02/us/politics/us-airplane-nicolas-maduro-venezuela.html
+
+**Harris and Walz, in Crucial ‘Blue Wall’ States, Rally for Union Support**\
+`Vice President Kamala Harris and Tim Walz are spending Labor Day in Michigan, Wisconsin and Pennsylvania between them, Midwestern states central to Democrats’ hopes in November.`\
+https://nytimes.com/2024/09/02/us/politics/harris-walz-michigan-pennsylvania.html
+
 **4 Killed in Shooting on Transit Train in Chicago Suburb**\
 `The authorities said four passengers were fatally shot as the train approached a station in Forest Park, Ill. It was unclear what led to the shooting.`\
 https://nytimes.com/2024/09/02/us/forest-park-chicago-train-shooting.html

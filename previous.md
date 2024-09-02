@@ -1,3 +1,11 @@
+**U.S. Seized an Airplane Owned by Venezuela’s Nicolás Maduro**\
+`The Biden administration said the airplane had been illegally exported for Mr. Maduro. U.S. officials accuse him of undermining the results of a presidential election he lost.`\
+https://nytimes.com/2024/09/02/us/politics/us-airplane-nicolas-maduro-venezuela.html
+
+**Harris and Walz, in Crucial ‘Blue Wall’ States, Rally for Union Support**\
+`Vice President Kamala Harris and Tim Walz are spending Labor Day in Michigan, Wisconsin and Pennsylvania between them, Midwestern states central to Democrats’ hopes in November.`\
+https://nytimes.com/2024/09/02/us/politics/harris-walz-michigan-pennsylvania.html
+
 **4 Killed in Shooting on Transit Train in Chicago Suburb**\
 `The authorities said four passengers were fatally shot as the train approached a station in Forest Park, Ill. It was unclear what led to the shooting.`\
 https://nytimes.com/2024/09/02/us/forest-park-chicago-train-shooting.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5739981/2024/09/02/astros-kyle-tucker-fractured-shi
 **Putin Arrives in Mongolia in Defiance of I.C.C. Arrest Warrant**\
 `The Russian president is making a state visit to a country that is heavily dependent on Moscow for oil.`\
 https://nytimes.com/2024/09/02/world/europe/putin-mongolia.html
-
-**Tchouameni leaves France squad with foot issue**\
-`Aurelien Tchouameni has withdrawn from the France squad for their upcoming UEFA Nations League games.`\
-https://nytimes.com/athletic/5739952/2024/09/02/real-madrids-aurelien-tchouameni-withdraws-france/
-
-**What Andy Roddick, the last American man to win the U.S. Open, did next**\
-`The last American man to win the U.S. Open lumps himself in with the tennis "shlubs." That's not a true story.`\
-https://nytimes.com/athletic/5695860/2024/09/02/andy-roddick-interview/
 
