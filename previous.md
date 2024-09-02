@@ -1,3 +1,7 @@
+**Bus drivers, port workers, a dance company: Here’s who is striking in Israel.**\
+`By Isabel Kershner, Patrick Kingsley and Myra Noveck`\
+https://nytimes.com/live/2024/09/01/world/hostages-strike-israel-gaza-war/bus-drivers-port-workers-a-dance-company-heres-who-is-striking-in-israel
+
 **What we learned from Michigan's win vs. Fresno State — and what it means for Texas**\
 `Ten final thoughts from Michigan's win against Fresno State on the uncertainty at QB, where the running game stands and more before Texas.`\
 https://nytimes.com/athletic/5738027/2024/09/02/michigan-fresno-state-football-texas/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/02/us/maine-deaf-camp.html
 **‘Moving in the Dark’: Hamas Documents Show Tunnel Battle Strategy**\
 `Hamas leaders spent years developing an underground warfare plan. Records from the battlefield show the group’s preparations, including blast doors to protect against Israeli bombs and soldiers.`\
 https://nytimes.com/2024/09/02/world/europe/moving-in-the-dark-hamas-documents-show-tunnel-battle-strategy.html
-
-**The Quiet Collaboration Between Paralympic Athletes and Their Assistants**\
-`For competition partners who share the mutual goal of winning medals, eye contact or a simple touch can be all the communication that’s needed.`\
-https://nytimes.com/2024/09/02/world/olympics/paralympics-guides-assistants.html
 

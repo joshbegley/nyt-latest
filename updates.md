@@ -1,3 +1,7 @@
+**Bus drivers, port workers, a dance company: Here’s who is striking in Israel.**\
+`By Isabel Kershner, Patrick Kingsley and Myra Noveck`\
+https://nytimes.com/live/2024/09/01/world/hostages-strike-israel-gaza-war/bus-drivers-port-workers-a-dance-company-heres-who-is-striking-in-israel
+
 **What we learned from Michigan's win vs. Fresno State — and what it means for Texas**\
 `Ten final thoughts from Michigan's win against Fresno State on the uncertainty at QB, where the running game stands and more before Texas.`\
 https://nytimes.com/athletic/5738027/2024/09/02/michigan-fresno-state-football-texas/
