@@ -1,3 +1,7 @@
+**Kalen DeBoer on Alabama having 'a determination and a relentlessness': Tide film study**\
+`What went right and what can be improved upon in Alabama's season-opening win over Western Kentucky.`\
+https://nytimes.com/athletic/5740127/2024/09/02/alabama-western-kentucky-result-analysis/
+
 **America’s Luck on Unemployment May Soon Run Out**\
 `Two economists have a convincing theory of how the fight against inflation could get more painful.`\
 https://nytimes.com/2024/09/02/opinion/unemployment-inflation-beveridge-threshold.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5695860/2024/09/02/andy-roddick-interview/
 **How Donald Trump and Robert F. Kennedy Jr.’s Unlikely Partnership Took Shape**\
 `The Trump-Kennedy alliance followed a six-week crush of behind-the-scenes discussions, embarrassing missteps, secret meetings and private misgivings.`\
 https://nytimes.com/2024/09/02/us/politics/donald-trump-robert-kennedy-jr-partnership.html
-
-**Volkswagen, Seeking to Cut Costs, Considers German Plant Closures**\
-`For the first time in its 87-year history, the automaker is considering shuttering factories in Germany, citing the need to remain competitive.`\
-https://nytimes.com/2024/09/02/business/volkswagen-germany-plant-closures.html
 
