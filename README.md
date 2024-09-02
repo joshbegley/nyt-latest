@@ -1,3 +1,7 @@
+**Ten Hag still has a midfield problem - but do Manchester United have the players to fix it?**\
+`Manchester's midfield ended up being two academy graduates with fewer than 40 senior appearances against Liverpool. It didn't work`\
+https://nytimes.com/athletic/5735782/2024/09/02/manchester-united-midfield-problems-post-window/
+
 **Monday Briefing**\
 `Anger and grief in Israel.`\
 https://nytimes.com/2024/09/02/briefing/israel-protests-germany-elections-trump-harris.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/02/world/europe/france-husband-rape-drug-trial.html
 **Takeaways From East Germany’s State Elections**\
 `The far-right Alternative for Germany, or AfD, had a very successful night in two states, despite its state chapters’ classification as “extremist” by German domestic intelligence.`\
 https://nytimes.com/2024/09/02/world/europe/east-germany-elections-afd.html
-
-**Manchester City fan survey: Have your say on the club's transfer window**\
-`Answer our survey to give us your thoughts on Man City's summer business`\
-https://nytimes.com/athletic/5733873/2024/09/02/manchester-city-fan-survey-have-your-say-on-the-clubs-transfer-window/
 
