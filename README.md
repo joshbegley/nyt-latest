@@ -1,3 +1,7 @@
+**The strike reflects a dispute within Israel over Netanyahu’s Gaza strategy.**\
+`By Patrick Kingsley`\
+https://nytimes.com/live/2024/09/01/world/hostages-strike-israel-gaza-war/the-strike-reflects-a-dispute-within-israel-over-netanyahus-gaza-strategy
+
 **Giants' season might be lost, but Mike Yastrzemski, others see healthy signs**\
 `Despite a disappointing season, the Giants continue to draw fans: "We feel the support here and it means a lot to us."`\
 https://nytimes.com/athletic/5738931/2024/09/01/sf-giants-mike-yastrzemski-home-attendance/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5738828/2024/09/01/directv-disney-carriage-dispute/
 **Must Be Rats on the Brain**\
 `The one animal we can’t seem to live without, even when we really, really want to.`\
 https://nytimes.com/2024/09/01/podcasts/must-be-rats-this-american-life-nyt-audio.html
-
-**Discovery of 6 Dead Hostages in Gaza Spurs Protest and Division in Israel**\
-`The Israeli military said Sunday that Hamas had killed the hostages before they were discovered by Israeli troops on Saturday.`\
-https://nytimes.com/2024/09/01/world/middleeast/israel-gaza-hostages-ceasefire.html
 
