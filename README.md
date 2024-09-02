@@ -1,3 +1,7 @@
+**Coman to remain at Bayern: 'King is staying with us'**\
+`Bayern Munich board member Max Eberl has confirmed that Kingsley Coman will be staying at the club this summer.`\
+https://nytimes.com/athletic/5739262/2024/09/02/bayern-munich-kinglsey-coman-future/
+
 **Arsenal turn down informal proposal from Al Ittihad for Trossard**\
 `Arsenal have turned down an informal proposal from Al Ittihad to sign forward Leandro Trossard.`\
 https://nytimes.com/athletic/5739299/2024/09/02/leandro-trossard-al-ittihad-arsenal-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/02/us/politics/harris-biden-labor-day.html
 **Pope, 87, Embarks on ‘Physical Test’ in Grueling Asia Tour**\
 `The 11-day trip, a signal that Francis does not intend to slow down, requires nearly 45 hours of air travel and meetings in tropical climates.`\
 https://nytimes.com/2024/09/02/world/asia/pope-87-embarks-on-physical-test-in-grueling-asia-tour.html
-
-**Texas dominates, Texas A&M disappoints: Thoughts on all 13 FBS teams in the Lone Star State**\
-`Is there cause for concern at Texas Tech? Is there a QB controversy at SMU? Can Rice and Houston rebound from troubling debuts?`\
-https://nytimes.com/athletic/5738982/2024/09/02/texas-texas-am-baylor-tcu-smu/
 
