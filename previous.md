@@ -1,3 +1,7 @@
+**Watford striker Rajovic set for Brondby loan**\
+`Watford striker Mileta Rajovic has travelled to Denmark for a medical with Brondby ahead of a season-long loan move.`\
+https://nytimes.com/athletic/5739899/2024/09/02/watford-mileta-rajovic-loan-brondby/
+
 **Haley’s Voters Size Up a Scrambled Presidential Race**\
 `The people who voted against Donald Trump and for Nikki Haley in the G.O.P. primaries are weighing whether to support Kamala Harris. Either way, they could help sway a close election in swing states.`\
 https://nytimes.com/2024/09/02/us/politics/harris-trump-nikki-haley-voters.html
@@ -34,4 +38,3 @@ https://nytimes.com/2024/09/02/world/middleeast/biden-netanyahu-hostage-ceasefir
 `“At the moment, both championships are not realistic,” Verstappen said post-race at Monza on Sunday.`\
 https://nytimes.com/athletic/5739703/2024/09/02/max-verstappen-red-bull-f1-championship/
 
-**A Hollywood Producer’s Home in L.A. That Would Make the Perfect Movie Set**\
