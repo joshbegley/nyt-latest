@@ -1,3 +1,11 @@
+**Here’s the latest on the labor strike in Israel.**\
+`By Patrick Kingsley`\
+https://nytimes.com/live/2024/09/01/world/hostages-strike-israel-gaza-war/heres-the-latest-on-the-labor-strike-in-israel
+
+**Live Updates: Israel Prepares for Major Labor Strike Over Hostage Deaths**\
+`Much of the country is set to shut down, a dramatic reflection of outrage over the deaths of six hostages in Gaza. The protest is set to cause widespread disruptions.`\
+https://nytimes.com/live/2024/09/01/world/hostages-strike-israel-gaza-war
+
 **Pork Chops and Politics: Tim Walz Gets Minnesota Homecoming at State Fair**\
 `The vice-presidential nominee got a brief respite from the campaign trail to visit the venue that helped propel him to online stardom.`\
 https://nytimes.com/2024/09/01/us/politics/tim-walz-minnesota-state-fair.html
@@ -27,14 +35,6 @@ https://nytimes.com/athletic/5736626/2024/09/01/twins-brooks-lee-return-royce-le
 https://nytimes.com/athletic/5738659/2024/09/01/mets-sean-manaea-edwin-diaz-francisco-alvarez/
 
 **Coco Gauff knocked out of U.S. Open by Emma Navarro**\
-`NEW YORK — Coco Gauff’s Grand Slam season is over.`\
+`The defending champion lost in three sets, as her opponent exploited her weaknesses, on her serve and on her forehand.`\
 https://nytimes.com/athletic/5738443/2024/09/01/coco-gauff-us-open-result-emma-navarro/
-
-**How the U.S. Open's jumbo tennis ball became a cute, yellow harbinger of doom**\
-`The oversized Wilson ball, used for autographs, is everywhere. Players on the cusp of losing want it out of their sight`\
-https://nytimes.com/athletic/5732358/2024/09/01/us-open-jumbo-tennis-ball/
-
-**Astros takeaways: Yusei Kikuchi's dominance, getting Ben Gamel and Chas McCormick's future**\
-`The Astros went 18-10 in August, thanks to a dominant performance from their entire pitching staff.`\
-https://nytimes.com/athletic/5738584/2024/09/01/astros-yusei-kikuchi-ben-gamel-chas-mccormick/
 
