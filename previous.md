@@ -1,3 +1,11 @@
+**Netanyahu Stands Firm on Cease-Fire Terms Amid Growing Outrage in Israel**\
+`In his first news conference since the bodies of six killed hostages were recovered, Prime Minister Benjamin Netanyahu refused to budge on his conditions for any truce in Gaza.`\
+https://nytimes.com/2024/09/02/world/middleeast/netanyahu-gaza-war-protests-hostages.html
+
+**Analysing Ashworth and Berrada's Man Utd transfer briefing - 'Erik has our full backing'**\
+`Omar Berrada and Dan Ashworth explain Manchester United's transfer window and their views of Erik ten Hag as manager`\
+https://nytimes.com/athletic/5740186/2024/09/02/ashworth-berrada-ten-hag-transfers/
+
 **Tuesday Briefing: Growing outrage in Israel**\
 `Plus, Europe’s overwhelmed destinations.`\
 https://nytimes.com/2024/09/02/briefing/protests-harris-pope.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/02/world/cathay-pacific-a350-airbus-planes-engines.h
 **Thousands Gather for Funeral of Israeli American Hostage Killed in Gaza**\
 `It was reminder of the perilous situation facing dozens of remaining hostages still thought to be alive in the war-ravaged Gaza Strip.`\
 https://nytimes.com/2024/09/02/world/middleeast/hersh-goldberg-polin-funeral-israel-hostage.html
-
-**D’Anton Lynn impressive in DC debut for USC, Miller Moss spreads the ball around**\
-`Let’s get to some final thoughts on the Trojans’ impressive victory over LSU on Sunday in Las Vegas.`\
-https://nytimes.com/athletic/5740241/2024/09/02/usc-lsu-result-analysis/
-
-**U.S. Seized an Airplane Owned by Venezuela’s Nicolás Maduro**\
-`The Biden administration said the airplane had been illegally exported for Mr. Maduro. U.S. officials accuse him of undermining the results of a presidential election he lost.`\
-https://nytimes.com/2024/09/02/us/politics/us-airplane-nicolas-maduro-venezuela.html
 
