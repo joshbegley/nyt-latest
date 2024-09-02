@@ -1,3 +1,7 @@
+**Analysing Tottenham's wastefulness - including the blown chance that sums up their problems**\
+`Spurs really shouldn't have lost to Newcastle after creating so many opportunities. They have problems to solve at the top end of the pitch`\
+https://nytimes.com/athletic/5739211/2024/09/02/tottenham-wastefulness-newcastle-ange-postecoglou/
+
 **‘Pinnacle Man,’ Found in Cave Nearly 50 Years Ago, Has Been Identified**\
 `The man, Nicholas Paul Grubb, was found frozen near the Appalachian Trail in Pennsylvania in 1977. His identity remained a mystery until a state trooper found his fingerprints.`\
 https://nytimes.com/2024/09/02/us/appalachian-trail-cave-pinnacle-man-identified.html
