@@ -1,3 +1,7 @@
+**Kodai Senga and the Mets 'open to anything' in a possible late September return**\
+`Senga could be used out of the bullpen but made it clear that he would need to feel at full strength to proceed with a return,`\
+https://nytimes.com/athletic/5740596/2024/09/02/mets-kodai-senga-bullpen-return/
+
 **Families of American Hostages Say a Deal ‘Has to Happen Right Now’**\
 `Seven Americans remain held in Gaza by Hamas. An eighth American, Hersh Goldberg-Polin, was among the hostages whose bodies were recovered on Saturday.`\
 https://nytimes.com/2024/09/02/nyregion/israel-hamas-gaza-american-hostages.html
