@@ -1,3 +1,11 @@
+**Son of John McCain Says Trump Team’s Cemetery Clash Violated ‘Sacred Place’**\
+`Jimmy McCain said the confrontation at Arlington National Cemetery could be “extremely triggering” for the families of U.S. soldiers buried there.`\
+https://nytimes.com/2024/09/03/us/politics/trump-jimmy-mccain-arlington-cemetery.html
+
+**Plea Deal Resolves Remaining Charges in Killings of Albuquerque Muslim Men**\
+`The defendant, Muhammad Syed, pleaded no contest to two murder charges. But his motive remains unknown.`\
+https://nytimes.com/2024/09/03/us/albuquerque-muslim-killings-plea-deal.html
+
 **Elon Musk’s Starlink Agrees to Block the X Social Network in Brazil**\
 `Brazilian regulators had said Sunday that Starlink planned to defy government orders to block X in the country. On Tuesday, the satellite-internet service said it would comply.`\
 https://nytimes.com/2024/09/03/world/americas/brazil-starlink-elon-musk-x.html
