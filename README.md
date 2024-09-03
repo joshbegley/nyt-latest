@@ -1,3 +1,11 @@
+**A Heat Pump Can Cut Your Emissions. But Read This Before You Switch.**\
+`A Times climate reporter recounts his journey to switch his home’s HVAC system to a climate-friendly heat pump.`\
+https://nytimes.com/2024/09/03/climate/switching-to-a-heat-pump.html
+
+**AP Top 25: Georgia No. 1; Georgia Tech ends 9-year poll drought**\
+`Georgia, Ohio State, Texas, Alabama and Notre Dame are the top five teams in this week's AP Top 25 college football poll.`\
+https://nytimes.com/athletic/5742199/2024/09/03/ap-top-25-poll-rankings-georgia-tech/
+
 **U.S. and Iraqi Commandos Targeted ISIS in Sprawling Operation**\
 `The number of insurgent attacks has increased, officials say, as Iraq and the United States negotiate a plan to wind down the U.S.-led military mission.`\
 https://nytimes.com/2024/09/03/us/politics/iraq-commandos-isis.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/03/us/politics/trump-kushner-albania-hotels.html
 **Will Elias Pettersson bounce back? One question for every Canucks forward**\
 `Identifying one big question for each Canucks forward heading into the 2024-25 campaign.`\
 https://nytimes.com/athletic/5741036/2024/09/03/canucks-elias-pettersson-forward-questions/
-
-**Sabrina Carpenter Beats Travis Scott to No. 1 by a Hair**\
-`The pop singer and songwriter’s “Short n’ Sweet” debuts atop the Billboard 200 with the equivalent of 362,000, the third-best opening of the year.`\
-https://nytimes.com/2024/09/03/arts/music/sabrina-carpenter-short-n-sweet-billboard-chart.html
-
-**Valencia striker Mir arrested after sexual assault allegation**\
-`Valencia striker Rafa Mir has been arrested by Spanish police on suspicion of sexual assault.`\
-https://nytimes.com/athletic/5741338/2024/09/03/valencia-striker-rafa-mir-arrested/
 
