@@ -1,3 +1,7 @@
+**Controversy, mystery and lore: How the Big House at Michigan embodies college football**\
+`When Michigan hosts Texas, college football's largest stadium will be a star of the show — and the center of a century-long debate.`\
+https://nytimes.com/athletic/5740008/2024/09/03/michigan-big-house-college-football-largest-stadium/
+
 **What I'm seeing from the Pittsburgh Steelers: Najee Harris in good spot, other observations**\
 `The Steelers overhauled their offense, but one of the holdovers, Harris, could be the key. Still, the defense figures to lead the way.`\
 https://nytimes.com/athletic/5734159/2024/09/03/najee-harris-steelers-observations/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/03/opinion/college-students-adulting.html
 **In Harris’s Ads, Project 2025 Is No Longer a Joke**\
 `The tone has shifted from the more comic references at the convention.`\
 https://nytimes.com/live/2024/08/27/opinion/thepoint/tipsheet-trump-harris-project2025
-
-**On Children, Meaning, Media and Psychedelics**\
-`The writer Jia Tolentino on parenting — and living a good life — in the age of smartphones.`\
-https://nytimes.com/2024/09/03/opinion/ezra-klein-podcast-jia-tolentino.html
 
