@@ -1,4 +1,4 @@
-**Trent Williams, 49ers agree to revised contract**\
+**Trent Williams ending his holdout, finalizing new deal with 49ers**\
 `Williams, a three-time All-Pro and 11-time Pro Bowler, had been holding out since the start of camp in search of a new deal.`\
 https://nytimes.com/athletic/5733896/2024/09/03/trent-williams-san-francisco-49ers-contract/
 
