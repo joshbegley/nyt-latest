@@ -1,3 +1,11 @@
+**Ease Into Fall With 7 Songs for September**\
+`Listen to tracks inspired by this month of transitions and memories from Green Day, Barry White, Fiona Apple and more.`\
+https://nytimes.com/2024/09/03/arts/music/amplifier-newsletter-september-songs.html
+
+**Trump Family’s Land Deals in Albania Stir Up Lingering Resentments**\
+`Local landowners are questioning how Jared Kushner and Ivanka Trump were able to sew up development rights for two luxury hotels on hot coastal property.`\
+https://nytimes.com/2024/09/03/us/politics/trump-kushner-albania-hotels.html
+
 **Will Elias Pettersson bounce back? One question for every Canucks forward**\
 `Identifying one big question for each Canucks forward heading into the 2024-25 campaign.`\
 https://nytimes.com/athletic/5741036/2024/09/03/canucks-elias-pettersson-forward-questions/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5742009/2024/09/03/raptors-mailbag-submit-questions
 **PWHL Minnesota names Melissa Caruso as new GM**\
 `The PWHL has hired longtime AHL executive Melissa Caruso as the new general manager of its Minnesota franchise.`\
 https://nytimes.com/athletic/5742095/2024/09/03/pwhl-minnesota-general-manager-melissa-caruso/
-
-**Trump Aides Evacuated Offices After Prank Sparked Bugging Fears**\
-`The police were called after suspicious devices were found at a Florida campaign office. It was quickly determined that the devices were likely part of a prank.`\
-https://nytimes.com/2024/09/03/us/politics/trump-prank-devices.html
-
-**Deputy football director O'Boyle set to leave Man United**\
-`Manchester United are expected to make more changes to their senior football leadership structure, with deputy football director Andy O’Boyle to leave Old Trafford after two years in the post.`\
-https://nytimes.com/athletic/5741632/2024/09/03/manchester-united-andy-o-boyle-exit/
 

@@ -1,3 +1,11 @@
+**Bruins' Brad Marchand to start contract year behind schedule after 3 surgeries**\
+`The Bruins captain had surgery for a torn tendon in his elbow this offseason. He also underwent groin and hernia procedures.`\
+https://nytimes.com/athletic/5742286/2024/09/03/bruins-brad-marchand-surgeries/
+
+**Christmas Starts in October, Venezuela’s Autocrat Declares**\
+`With the nation’s democracy in shambles, President Nicolás Maduro tries to inject some holiday cheer.`\
+https://nytimes.com/2024/09/03/world/americas/venezuela-maduro-christmas-october.html
+
 **Ease Into Fall With 7 Songs for September**\
 `Listen to tracks inspired by this month of transitions and memories from Green Day, Barry White, Fiona Apple and more.`\
 https://nytimes.com/2024/09/03/arts/music/amplifier-newsletter-september-songs.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/03/us/politics/trump-isaac-hayes-song.html
 **Daniel Craig Gets Explicit (and Romantic) in Luca Guadagnino’s ‘Queer’**\
 `At the Venice Film Festival, the star said he embraced the scenes with sexual encounters: ‘If I wasn’t in the movie and saw this movie, I’d want to be in it.’`\
 https://nytimes.com/2024/09/03/movies/daniel-craig-queer-venice-film-festival.html
-
-**Submit a question for Eric Koreen’s Raptors mailbag**\
-`Fun fact: The song I’ve heard most at OVO Athletic Centre, the Toronto Raptors&#8217; practice facility, is “September” by Earth, Wind, and Fire.`\
-https://nytimes.com/athletic/5742009/2024/09/03/raptors-mailbag-submit-questions/
-
-**PWHL Minnesota names Melissa Caruso as new GM**\
-`The PWHL has hired longtime AHL executive Melissa Caruso as the new general manager of its Minnesota franchise.`\
-https://nytimes.com/athletic/5742095/2024/09/03/pwhl-minnesota-general-manager-melissa-caruso/
 

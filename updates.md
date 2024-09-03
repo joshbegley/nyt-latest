@@ -1,3 +1,11 @@
+**Ease Into Fall With 7 Songs for September**\
+`Listen to tracks inspired by this month of transitions and memories from Green Day, Barry White, Fiona Apple and more.`\
+https://nytimes.com/2024/09/03/arts/music/amplifier-newsletter-september-songs.html
+
+**Trump Family’s Land Deals in Albania Stir Up Lingering Resentments**\
+`Local landowners are questioning how Jared Kushner and Ivanka Trump were able to sew up development rights for two luxury hotels on hot coastal property.`\
+https://nytimes.com/2024/09/03/us/politics/trump-kushner-albania-hotels.html
+
 **Will Elias Pettersson bounce back? One question for every Canucks forward**\
 `Identifying one big question for each Canucks forward heading into the 2024-25 campaign.`\
 https://nytimes.com/athletic/5741036/2024/09/03/canucks-elias-pettersson-forward-questions/
