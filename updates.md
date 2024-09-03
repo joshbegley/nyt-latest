@@ -1,4 +1,8 @@
 **Hewlett Packard to Pursue $4 Billion Claim Against Mike Lynch’s Estate**\
+`The money is tied to a lawsuit in Britain by the tech services giant over its acquisition of Autonomy, the software firm Mr. Lynch founded. He died last month.`\
+https://nytimes.com/2024/09/03/business/dealbook/mike-lynch-hp-lawsuit.html
+
+**Hewlett Packard to Pursue $4 Billion Claim Against Mike Lynch’s Estate**\
 `The money is tied to a fraud lawsuit in Britain by the tech services giant over its acquisition of Autonomy, the software firm Mr. Lynch founded. He died last month when his yacht sank.`\
 https://nytimes.com/2024/09/03/business/dealbook/mike-lynch-hp-lawsuit.html
 

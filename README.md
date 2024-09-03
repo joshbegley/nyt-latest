@@ -1,3 +1,7 @@
+**Browns, Huntington Bank agree to naming rights deal**\
+`The stadium opened as Cleveland Browns Stadium in 1999, then from 2013-2023 was known as FirstEnergy Stadium.`\
+https://nytimes.com/athletic/5742028/2024/09/03/cleveland-browns-stadium-name-huntington-bank-field/
+
 **23 New Restaurants to Try This Fall**\
 `The season’s marquee openings in New York City include the next move from Kent Hospitality, the first Manhattan restaurant from Andrew Tarlow and more.`\
 https://nytimes.com/2024/09/03/dining/new-restaurants-nyc-fall.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/03/world/ukraine-russia-missile-strike-poltava/
 **Chelsea's Gusto withdraws from France U21s with thigh injury**\
 `Chelsea defender Malo Gusto has withdrawn from the France Under-21 squad with a thigh injury.`\
 https://nytimes.com/athletic/5741898/2024/09/03/malo-gusto-injury-chelsea-france/
-
-**South Korean Teenagers Detained Over Deepfake Sexual Images**\
-`The country has been hit by a wave of sexually explicit videos and pictures that have spread online, prompting the authorities to launch a sweeping investigation.`\
-https://nytimes.com/2024/09/03/world/asia/south-korean-teens-deepfake-sex-images.html
 
