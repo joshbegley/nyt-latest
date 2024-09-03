@@ -1,3 +1,7 @@
+**Brian Stelter Returns to CNN as Chief Media Analyst**\
+`Mr. Stelter, who left CNN two years ago, will be helming his newsletter for the network, but without a Sunday show.`\
+https://nytimes.com/2024/09/03/business/media/brian-stelter-cnn-reliable-sources.html
+
 **Collector Sues to Block Investigators From Seizing Roman Bronze**\
 `Lawyers for the collector, based in California, said the Manhattan district attorney’s office did not have the jurisdiction or the evidence to support seizing the ancient statue.`\
 https://nytimes.com/2024/09/03/arts/design/collector-sues-to-block-investigators-from-seizing-roman-bronze.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/03/us/politics/college-protests-gaza-election.html
 **Ex-Doctor Pleads Guilty to Manslaughter in New York Woman’s Suicide**\
 `Stephen Miller, a right-to-die advocate, was sentenced to five years’ probation. His lawyer said that “morally” Mr. Miller had done nothing wrong.`\
 https://nytimes.com/2024/09/03/nyregion/doctor-assisted-suicide-ny-guilty.html
-
-**How I voted in the AP poll: How much should Week 1 change rankings?**\
-`Moving Georgia to No. 1 headlined a handful of significant changes I made to my AP Top 25 ballot after the first week of games.`\
-https://nytimes.com/athletic/5742949/2024/09/03/ap-top-25-rankings-poll-changes/
 
