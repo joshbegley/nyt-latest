@@ -1,3 +1,7 @@
+**Hewlett Packard to Pursue $4 Billion Claim Against Mike Lynch’s Estate**\
+`The money is tied to a fraud lawsuit in Britain by the tech services giant over its acquisition of Autonomy, the software firm Mr. Lynch founded. He died last month when his yacht sank.`\
+https://nytimes.com/2024/09/03/business/dealbook/mike-lynch-hp-lawsuit.html
+
 **23 New Restaurants to Try This Fall**\
 `The season’s marquee openings in New York City include the next move from Kent Hospitality, the first Manhattan restaurant from Andrew Tarlow and more.`\
 https://nytimes.com/2024/09/03/dining/new-restaurants-nyc-fall.html
