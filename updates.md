@@ -1,3 +1,7 @@
+**For 20 minutes, an American male champion looked possible. Then came Jannik Sinner**\
+`Prognostication is a mug's game in tennis, but however you slice the draw, a home Grand Slam champion remains a tall order.`\
+https://nytimes.com/athletic/5740971/2024/09/03/us-open-title-predictions-sinner-fritz-tiafoe/
+
 **Russian Strike on Ukrainian City Kills at Least 41, Zelensky Says**\
 `Two ballistic missiles hit an educational institution and a neighboring hospital in Poltava, in eastern Ukraine, President Volodymyr Zelensky said.`\
 https://nytimes.com/live/2024/09/03/world/ukraine-russia-missile-strike-poltava
