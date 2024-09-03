@@ -1,3 +1,7 @@
+**Harris, Proposing a Tax Break, Makes a Play for Small-Business Owners**\
+`The plan, which Kamala Harris will announce on Wednesday in New Hampshire, would allow new companies to deduct up to $50,000 in start-up expenses, a campaign official said.`\
+https://nytimes.com/2024/09/03/us/politics/harris-tax-break-small-businesses.html
+
 **Steve Bruce appointed Blackpool head coach**\
 `Steve Bruce has returned to management with League One side Blackpool, signing a two-year contract to become their new head coach.`\
 https://nytimes.com/athletic/5742794/2024/09/03/steve-bruce-blackpool-head-coach/
