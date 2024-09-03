@@ -1,3 +1,7 @@
+**U.S. Open day 8 recap: Two match points from heaven and an electronic line-calling fault**\
+`The world No. 1 excelled in defence and attack, while two completely contrasting match points elsewhere told a story.`\
+https://nytimes.com/athletic/5740727/2024/09/03/u-s-open-day-8-takeaways-iga-swiateks-backhand-two-amazing-match-points-hawkeye-down/
+
 **Back to School**\
 `How do you feel about the start of a new academic year?`\
 https://nytimes.com/2024/09/03/learning/back-to-school.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/03/learning/word-of-the-day-benign.html
 **Shiny New Technology, Same Old Funny Business**\
 `Antitrust regulators are finally catching up to the methods used by modern corporations to exert their power.`\
 https://nytimes.com/2024/09/03/opinion/realpage-antitrust-landlords.html
-
-**What to watch for each NFL team as fantasy football 2024 gets set for liftoff**\
-`John Laghezza offers up a situation to watch for each NFL team, including some overlooked tight ends with plenty of fantasy football upside.`\
-https://nytimes.com/athletic/5734407/2024/09/03/what-to-watch-for-each-nfl-team-as-fantasy-football-2024-gets-set-for-liftoff/
 
