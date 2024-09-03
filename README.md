@@ -1,3 +1,11 @@
+**‘The Notebook’ Will End Its Broadway Run in December. A Tour Is Next.**\
+`The show, nominated for three Tony Awards, opened March 14 at the Gerald Schoenfeld Theater. It will go on a national tour starting next September.`\
+https://nytimes.com/2024/09/03/theater/notebook-broadway-closing.html
+
+**Arsenal Women duo to miss Champions League tie - Eidevall**\
+`Jonas Eidevall has confirmed that Beth Mead and Steph Catley will miss Arsenal’s Champions League qualifier against Rangers on Wednesday evening.`\
+https://nytimes.com/athletic/5741603/2024/09/03/beth-mead-steph-catley-arsenal/
+
 **At Least 12 Die Trying to Cross English Channel, French Authorities Say**\
 `The French maritime authorities said that 65 people were picked up from the sea after their vessel encountered unspecified difficulties.`\
 https://nytimes.com/2024/09/03/world/europe/migrant-boat-english-channel.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5741258/2024/09/03/florida-state-roster-struggles-t
 **FIA rules no breaches by McLaren, Mercedes wings in F1’s latest ‘flexi-wing’ drama**\
 `Red Bull and Ferrari have levied concerns about the front wing design, believing it aided performance gain.`\
 https://nytimes.com/athletic/5741416/2024/09/03/fia-mclaren-mercedes-wings-red-bull-ferrari/
-
-**Can You Find the 12 Thrillers Hidden Within This Text?**\
-`The 20th-century Cold War was rife with geopolitical tension and inspired a lot of great espionage thrillers. This text puzzle challenges you to uncover the titles of a dozen novels set in and around that frosty era.`\
-https://nytimes.com/interactive/2024/09/03/books/review/cold-war-novels.html
-
-**The Harris operation will send $24.5 million to groups supporting down-ballot Democrats.**\
-`By Reid J. Epstein`\
-https://nytimes.com/2024/09/03/us/politics/the-harris-operation-will-send-24-5-million-to-groups-supporting-down-ballot-democrats.html
 
