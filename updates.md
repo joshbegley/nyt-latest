@@ -1,3 +1,7 @@
+**The Harris operation will send $24.5 million to groups supporting down-ballot Democrats.**\
+`By Reid J. Epstein`\
+https://nytimes.com/2024/09/03/us/politics/the-harris-operation-will-send-24-5-million-to-groups-supporting-down-ballot-democrats.html
+
 **At Least 12 Die Trying to Cross English Channel, French Authorities Say**\
 `The French maritime authorities said that 65 people were picked up from the sea after their vessel encountered unspecified difficulties.`\
 https://nytimes.com/2024/09/03/world/europe/migrant-boat-english-channel.html
