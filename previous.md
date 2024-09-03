@@ -1,3 +1,7 @@
+**From School Librarian to Activist: ‘The Hate Level and the Vitriol Is Unreal’**\
+`Amid a surge in book bans nationwide, the librarian Amanda Jones was targeted by vicious threats. So she decided to fight back.`\
+https://nytimes.com/2024/09/03/books/amanda-jones-librarian-book-bans.html
+
 **Mirtle: Why Nick Robertson should drop his trade request with the Maple Leafs**\
 `It's time for Robertson to sign, get to training camp and show what he can do in what could very well be his breakout season. `\
 https://nytimes.com/athletic/5739858/2024/09/03/nick-robertson-maple-leafs-trade-request/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5741603/2024/09/03/beth-mead-steph-catley-arsenal/
 **At Least 12 Die Trying to Cross English Channel, French Authorities Say**\
 `The French maritime authorities said that 65 people were picked up from the sea after their vessel encountered unspecified difficulties.`\
 https://nytimes.com/2024/09/03/world/europe/migrant-boat-english-channel.html
-
-**The pace of the war in Ukraine has been picking up in recent weeks.**\
-`By Cassandra Vinograd and Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/09/03/world/ukraine-russia-missile-strike-poltava/the-pace-of-the-war-in-ukraine-has-been-picking-up-in-recent-weeks
 

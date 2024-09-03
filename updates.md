@@ -1,3 +1,7 @@
+**From School Librarian to Activist: ‘The Hate Level and the Vitriol Is Unreal’**\
+`Amid a surge in book bans nationwide, the librarian Amanda Jones was targeted by vicious threats. So she decided to fight back.`\
+https://nytimes.com/2024/09/03/books/amanda-jones-librarian-book-bans.html
+
 **Mirtle: Why Nick Robertson should drop his trade request with the Maple Leafs**\
 `It's time for Robertson to sign, get to training camp and show what he can do in what could very well be his breakout season. `\
 https://nytimes.com/athletic/5739858/2024/09/03/nick-robertson-maple-leafs-trade-request/
