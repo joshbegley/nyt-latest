@@ -1,3 +1,7 @@
+**U.S. Charges Hamas Leaders in Oct. 7 Massacre**\
+`Yahya Sinwar, the group’s political chief, was charged with carrying out the terrorist attacks that resulted in the killing of at least 43 Americans. Five other Hamas senior leaders were also charged.`\
+https://nytimes.com/2024/09/03/us/politics/hamas-leaders-charged-sinwar.html
+
 **Steelers, Heyward agree to 3-year, $45 million extension**\
 `The 35-year-old Heyward, who was entering the final year of his previous deal, is now signed through the 2026 season.`\
 https://nytimes.com/athletic/5743004/2024/09/03/cameron-heyward-steelers-contract/

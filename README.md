@@ -1,3 +1,7 @@
+**Chicago Man Charged in Fatal Shootings of Four Sleeping Train Passengers**\
+`“This was a random act of violence,” an official said. The man, 30, faces four counts of murder.`\
+https://nytimes.com/2024/09/03/us/chicago-train-fatal-shootings.html
+
 **U.S. Charges Hamas Leaders in Oct. 7 Massacre**\
 `Yahya Sinwar, the group’s political chief, was charged with carrying out the terrorist attacks that resulted in the killing of at least 43 Americans. Five other Hamas senior leaders were also charged.`\
 https://nytimes.com/2024/09/03/us/politics/hamas-leaders-charged-sinwar.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/03/briefing/russia-ukraine-strike-pop-songwriter-amy
 **Judge Denies Trump’s Request to Move Criminal Case to Federal Court**\
 `Judge Alvin Hellerstein said that the Supreme Court’s finding that presidents enjoy immunity does not apply in the state hush-money case — in which Donald Trump was already convicted.`\
 https://nytimes.com/2024/09/03/nyregion/trump-hush-money-federal-court.html
-
-**Supreme Court Rejects Oklahoma’s Bid for Federal Grants in Dispute Over Abortion Counseling**\
-`Oklahoma asked the justices to weigh in after a lower federal court ruled the state was not entitled to millions of dollars in federal family- planning grants after it refused to refer patients to a national pregnancy hotline.`\
-https://nytimes.com/2024/09/03/us/politics/supreme-court-oklahoma-federal-grants-abortion-counseling.html
 
