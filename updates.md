@@ -1,3 +1,7 @@
+**Luis Suarez: Biting, racism, on-field genius - the most divisive player in world soccer**\
+`Looking back at the history of surreal events that made Suarez perhaps the most hated men in world soccer`\
+https://nytimes.com/athletic/5114631/2024/09/02/luis-suarez-career-history-inter-miami-mls-messi/
+
 **What's next for Pac-12, Mountain West after missing 2025 scheduling deadline?**\
 `The Pac-12-Mountain West deadline has passed without a 2025 agreement, and chances of getting back together appear slim. Why?`\
 https://nytimes.com/athletic/5740549/2024/09/02/pac-12-mountain-west-2025-schedule-agreement/
