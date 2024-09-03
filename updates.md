@@ -1,3 +1,16 @@
+**NHL contract grades: Leon Draisaitl secures long-term future in Edmonton**\
+`Locking in Draisaitl avoids a season-long distraction and sends a clear message that the Oilers are not taking their foot off the gas.
+`\
+https://nytimes.com/athletic/5741905/2024/09/03/leon-draisaitl-oilers-contract/
+
+**The Slain Hostages, and the Aftermath**\
+`Readers react to Biden, Netanyahu and the killing of the hostages. Also: Trump and I.V.F.; a gay-Christian alliance; reasons for joy; Disney trips; fancy dorms.`\
+https://nytimes.com/2024/09/03/opinion/israel-hostages-hamas.html
+
+**Browns, Huntington Bank agree to naming rights deal**\
+`The stadium opened as Cleveland Browns Stadium in 1999, then from 2013 to 2023 was known as FirstEnergy Stadium.`\
+https://nytimes.com/athletic/5742028/2024/09/03/cleveland-browns-stadium-name-huntington-bank-field/
+
 **NFL Week 1 odds, spreads, totals: Chiefs-Ravens kick off a fantastic opening slate**\
 `The Chiefs are favored by a field goal over the Ravens in the Week 1 kickoff. See odds for every NFL Week 1 game.`\
 https://nytimes.com/athletic/5741802/2024/09/03/nfl-week-1-odds-spreads-how-to-watch-chiefs-ravens/
