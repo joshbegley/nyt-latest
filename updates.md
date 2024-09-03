@@ -1,3 +1,17 @@
+**An emergency medical worker describes the horrific scene at the site of the missile strike.**\
+`By Marc Santora and Liubov Sholudko`\
+https://nytimes.com/live/2024/09/03/world/ukraine-russia-missile-strike-poltava/an-emergency-medical-worker-describes-the-horrific-scene-at-the-site-of-the-missile-strike
+
+**F1 designer Adrian Newey set for Aston Martin move in 2025, per sources: What it means**\
+`The arrival of Newey, one of the greatest designers in F1 history, would be the latest major signing for Aston Martin. 
+`\
+https://nytimes.com/athletic/5742008/2024/09/03/f1-adrian-newey-aston-martin-red-bull/
+
+**NHL contract grades: Leon Draisaitl secures long-term future in Edmonton**\
+`Locking in Draisaitl avoids a season-long distraction and sends a clear message that the Oilers are not taking their foot off the gas.
+`\
+https://nytimes.com/athletic/5741905/2024/09/03/leon-draisaitl-oilers-contract/
+
 **F1 designer Adrian Newey set for Aston Martin move in 2025, per sources: What it means**\
 `The arrival of Newey, one of the greatest designers in F1 history, would be the latest major signing for Aston Martin. 
 `\

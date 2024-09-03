@@ -1,3 +1,7 @@
+**An emergency medical worker describes the horrific scene at the site of the missile strike.**\
+`By Marc Santora and Liubov Sholudko`\
+https://nytimes.com/live/2024/09/03/world/ukraine-russia-missile-strike-poltava/an-emergency-medical-worker-describes-the-horrific-scene-at-the-site-of-the-missile-strike
+
 **Ukraine Electric Company Boss Fired as Russia Pounds Power Grid**\
 `The head of Ukrenergo was reportedly blamed for failing to fortify energy infrastructure, which has come under steady Russian bombardment, leading to blackouts.`\
 https://nytimes.com/2024/09/03/world/europe/ukraine-electric-boss-fired-russia-pounds-power-grid.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/5741985/2024/09/03/cincinnati-dontay-corleone-blood
 **San Francisco Giants week in review: It wasn't great, as playoff hopes fade**\
 `The Giants played two series last week and lost them both, as their playoff chances continue to diminish.`\
 https://nytimes.com/athletic/5740964/2024/09/03/sf-giants-week-in-review-offensive-struggles/
-
-**Hewlett Packard to Pursue $4 Billion Claim Against Mike Lynch’s Estate**\
-`The money is tied to a lawsuit in Britain by the tech services giant over its acquisition of Autonomy, the software firm Mr. Lynch founded. He died last month.`\
-https://nytimes.com/2024/09/03/business/dealbook/mike-lynch-hp-lawsuit.html
 
