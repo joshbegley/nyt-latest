@@ -1,3 +1,7 @@
+**The Stakes on Taxes**\
+`We cover the presidential candidates’ positions on taxation.`\
+https://nytimes.com/2024/09/03/briefing/tax-election-harris-trump.html
+
 **Fantasy hockey cheat sheet: League-specific rankings and projections for 2024-25**\
 `It's here! Dom Luszczyszyn shares his league-specific player rankings and projections for the 2024-25 fantasy hockey campaign.`\
 https://nytimes.com/athletic/5734473/2024/09/03/fantasy-hockey-cheat-sheet-league-specific-rankings-projections-2024-25/
