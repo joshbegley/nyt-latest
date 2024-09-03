@@ -1,9 +1,29 @@
+**How Netanyahu Is Trying to Save Himself, Elect Trump and Defeat Harris**\
+`The Israeli prime minister’s approach to Gaza and the hostages is plainly tied up in his political self-interest.`\
+https://nytimes.com/2024/09/03/opinion/netanyahu-trump-harris.html
+
+**Analysis: Free agents who could capitalize on career-best seasons in new CBA era**\
+`A new CBA has opened up free agency. These players are in prime position to benefit most.`\
+https://nytimes.com/athletic/5742374/2024/09/03/nwsl-free-agency-best-available-by-position/
+
+**Lebanon Detains Former Head of Central Bank**\
+`Riad Salameh, once seen as an international financial wizard, is the subject of multiple investigations and has attracted blame for the country’s economic crisis.`\
+https://nytimes.com/2024/09/03/world/middleeast/lebanon-central-bank-arrest-salameh.html
+
+**Panic time for Seminoles, plus rankings and more rankings**\
+`Welcome to Until Saturday, the five-star college football newsletter: Is it time for Florid State to panic at 0-2?`\
+https://nytimes.com/athletic/5741438/2024/09/03/florida-state-football-ap-top-25-until-saturday/
+
+**His Parents Are Susan Sarandon and Tim Robbins. That’s the Joke.**\
+`With a series of videos, Jack Robbins has been lampooning nepo baby culture — and embracing it — with help from his parents and Steven Spielberg’s daughter.`\
+https://nytimes.com/2024/09/03/style/jack-robbins-nepo-baby-videos.html
+
 **Arkansas State's game-winning TD should've been no good, Sun Belt says**\
 `'The replay ruling should have confirmed the on-field call of an incomplete pass,' the Sun Belt said.`\
 https://nytimes.com/athletic/5742562/2024/09/03/arkansas-state-central-arkansas-sun-belt/
 
-**Stock Comeback Falters and Oil Prices Slide as Unease Returns**\
-`The S&P 500 fell nearly 2 percent on Tuesday, putting it on track for its worst day since an early August meltdown.`\
+**Stocks Slump and Oil Prices Slide as Unease Returns to Markets**\
+`The S&P 500 fell more than 2 percent on Tuesday, its biggest single-day drop since an early August meltdown.`\
 https://nytimes.com/2024/09/03/business/stocks-oil-prices-economy.html
 
 **Home Cooking So Good, Only a Restaurant Could Do It**\
@@ -17,24 +37,4 @@ https://nytimes.com/2024/09/03/movies/james-darren-dies.html
 **New Photos From Titanic Show Long-Lost Statue and Damaged Bow**\
 `RMS Titanic Inc., the company that led the expedition, brought back two million photos of the site. The ship’s famed bow has been damaged, the company said.`\
 https://nytimes.com/2024/09/03/science/titanic-photos-bow-statue.html
-
-**Toxic Additive Found in Feed That Killed 70 Oklahoma Rodeo Horses**\
-`Preliminary tests show that the feed had been contaminated with Monensin, an additive known to be toxic to horses, Livestock Nutrition Center said.`\
-https://nytimes.com/2024/09/03/us/rodeo-horses-poisoned-oklahoma-livestock.html
-
-**Another Trump Clemency Recipient Is Accused of Domestic Violence**\
-`A man whose life sentence for his role in a robbery and murder was commuted by President Donald J. Trump was convicted this spring of a misdemeanor charge of assaulting his wife.`\
-https://nytimes.com/2024/09/03/us/politics/trump-clemency-jaime-davidson.html
-
-**NFL best bets Week 1: Bills and Seahawks make the first two best-bet picks**\
-`Austin's Mock's NFL Projection Model is back with best bets for Week 1 of NFL action.`\
-https://nytimes.com/athletic/5742333/2024/09/03/nfl-best-bets-week-1-bills-seahawks/
-
-**Election 2024 Polls: Biden vs. Trump (Archived)**\
-`Our polling averages of the Biden vs. Trump matchup in the 2024 presidential race, using data from national and battleground state polls.`\
-https://nytimes.com/interactive/2024/us/elections/polls-biden-archive.html
-
-**Bradley will play for U.S. at Presidents Cup; Thomas left off team**\
-`Bradley, the 2025 Ryder Cup captain, will be relieved of captain's assistant duties in order to focus on playing in the Presidents Cup.`\
-https://nytimes.com/athletic/5742246/2024/09/03/keegan-bradley-justin-thomas-usa-presidents-cup/
 
