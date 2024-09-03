@@ -1,3 +1,15 @@
+**Will Elias Pettersson bounce back? One question for every Canucks forward**\
+`Identifying one big question for each Canucks forward heading into the 2024-25 campaign.`\
+https://nytimes.com/athletic/5741036/2024/09/03/canucks-elias-pettersson-forward-questions/
+
+**Sabrina Carpenter Beats Travis Scott to No. 1 by a Hair**\
+`The pop singer and songwriter’s “Short n’ Sweet” debuts atop the Billboard 200 with the equivalent of 362,000, the third-best opening of the year.`\
+https://nytimes.com/2024/09/03/arts/music/sabrina-carpenter-short-n-sweet-billboard-chart.html
+
+**Valencia striker Mir arrested after sexual assault allegation**\
+`Valencia striker Rafa Mir has been arrested by Spanish police on suspicion of sexual assault.`\
+https://nytimes.com/athletic/5741338/2024/09/03/valencia-striker-rafa-mir-arrested/
+
 **Who do I drop? Jahan Dotson, Quentin Johnston and more fantasy football cuts ahead of Week 1**\
 `Gary Davenport offers up his first drops list of the 2024 season, with a couple of former first-round wideouts making (not making?) the cut.`\
 https://nytimes.com/athletic/5742202/2024/09/03/drops-week-1-2024-fantasy-football/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/03/us/politics/trump-prank-devices.html
 **Deputy football director O'Boyle set to leave Man United**\
 `Manchester United are expected to make more changes to their senior football leadership structure, with deputy football director Andy O’Boyle to leave Old Trafford after two years in the post.`\
 https://nytimes.com/athletic/5741632/2024/09/03/manchester-united-andy-o-boyle-exit/
-
-**Surprise! A Class of College Seniors Learns Their Tuition Will Be Free.**\
-`Tuition used to be free for all students at the Cooper Union, in New York City. The school announced it is bringing back the perk, at least for seniors.`\
-https://nytimes.com/2024/09/03/us/free-tuition-cooper-union.html
-
-**The Bounce: Is hunting for big NBA free agents obsolete?**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5741310/2024/09/03/nba-free-agency-lebron-james-dallas-mavericks-trades-the-bounce/
-
-**An emergency medical worker describes the horrific scene at the site of the missile strike.**\
-`By Marc Santora and Liubov Sholudko`\
-https://nytimes.com/live/2024/09/03/world/ukraine-russia-missile-strike-poltava/an-emergency-medical-worker-describes-the-horrific-scene-at-the-site-of-the-missile-strike
 

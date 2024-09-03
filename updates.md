@@ -1,3 +1,15 @@
+**Will Elias Pettersson bounce back? One question for every Canucks forward**\
+`Identifying one big question for each Canucks forward heading into the 2024-25 campaign.`\
+https://nytimes.com/athletic/5741036/2024/09/03/canucks-elias-pettersson-forward-questions/
+
+**Sabrina Carpenter Beats Travis Scott to No. 1 by a Hair**\
+`The pop singer and songwriter’s “Short n’ Sweet” debuts atop the Billboard 200 with the equivalent of 362,000, the third-best opening of the year.`\
+https://nytimes.com/2024/09/03/arts/music/sabrina-carpenter-short-n-sweet-billboard-chart.html
+
+**Valencia striker Mir arrested after sexual assault allegation**\
+`Valencia striker Rafa Mir has been arrested by Spanish police on suspicion of sexual assault.`\
+https://nytimes.com/athletic/5741338/2024/09/03/valencia-striker-rafa-mir-arrested/
+
 **Who do I drop? Jahan Dotson, Quentin Johnston and more fantasy football cuts ahead of Week 1**\
 `Gary Davenport offers up his first drops list of the 2024 season, with a couple of former first-round wideouts making (not making?) the cut.`\
 https://nytimes.com/athletic/5742202/2024/09/03/drops-week-1-2024-fantasy-football/
