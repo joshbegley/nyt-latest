@@ -1,3 +1,11 @@
+**Will the College Protests Matter in November?**\
+`Republicans tied campus unrest to their party platform. But the intensity may have fizzled.`\
+https://nytimes.com/2024/09/03/us/politics/college-protests-gaza-election.html
+
+**Las Vegas, Scorched by Its Hottest Summer on Record, Prepares for More 100-Degree Heat**\
+`Much of the Western U.S. will bake in high temperatures this week. Excessive-heat warnings have been issued for major cities including Las Vegas and Los Angeles.`\
+https://nytimes.com/2024/09/03/weather/summer-heat-forecast-las-vegas.html
+
 **Chicago Man Charged in Fatal Shootings of Four Sleeping Train Passengers**\
 `“This was a random act of violence,” an official said. The man, 30, faces four counts of murder.`\
 https://nytimes.com/2024/09/03/us/chicago-train-fatal-shootings.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/03/us/albuquerque-muslim-killings-plea-deal.html
 **Elon Musk’s Starlink Agrees to Block the X Social Network in Brazil**\
 `Brazilian regulators had said Sunday that Starlink planned to defy government orders to block X in the country. On Tuesday, the satellite-internet service said it would comply.`\
 https://nytimes.com/2024/09/03/world/americas/brazil-starlink-elon-musk-x.html
-
-**Russia Carried Out One of the Deadliest Strikes of the War**\
-`Also, polio vaccinations in Gaza are beating goals. Here's the latest at the end of Tuesday.`\
-https://nytimes.com/2024/09/03/briefing/russia-ukraine-strike-pop-songwriter-amy-allen.html
-
-**Judge Denies Trump’s Request to Move Criminal Case to Federal Court**\
-`Judge Alvin Hellerstein said that the Supreme Court’s finding that presidents enjoy immunity does not apply in the state hush-money case — in which Donald Trump was already convicted.`\
-https://nytimes.com/2024/09/03/nyregion/trump-hush-money-federal-court.html
 

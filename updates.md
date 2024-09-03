@@ -1,3 +1,11 @@
+**Will the College Protests Matter in November?**\
+`Republicans tied campus unrest to their party platform. But the intensity may have fizzled.`\
+https://nytimes.com/2024/09/03/us/politics/college-protests-gaza-election.html
+
+**Las Vegas, Scorched by Its Hottest Summer on Record, Prepares for More 100-Degree Heat**\
+`Much of the Western U.S. will bake in high temperatures this week. Excessive-heat warnings have been issued for major cities including Las Vegas and Los Angeles.`\
+https://nytimes.com/2024/09/03/weather/summer-heat-forecast-las-vegas.html
+
 **Chicago Man Charged in Fatal Shootings of Four Sleeping Train Passengers**\
 `“This was a random act of violence,” an official said. The man, 30, faces four counts of murder.`\
 https://nytimes.com/2024/09/03/us/chicago-train-fatal-shootings.html
