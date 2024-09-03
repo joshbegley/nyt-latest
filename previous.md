@@ -1,3 +1,7 @@
+**Ukraine Electric Company Boss Fired as Russia Pounds Power Grid**\
+`The head of Ukrenergo was reportedly blamed for failing to fortify energy infrastructure, which has come under steady Russian bombardment, leading to blackouts.`\
+https://nytimes.com/2024/09/03/world/europe/ukraine-electric-boss-fired-russia-pounds-power-grid.html
+
 **F1 designer Adrian Newey set for Aston Martin move in 2025, per sources: What it means**\
 `The arrival of Newey, one of the greatest designers in F1 history, would be the latest major signing for Aston Martin. 
 `\
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/5740964/2024/09/03/sf-giants-week-in-review-offensi
 **Hewlett Packard to Pursue $4 Billion Claim Against Mike Lynch’s Estate**\
 `The money is tied to a lawsuit in Britain by the tech services giant over its acquisition of Autonomy, the software firm Mr. Lynch founded. He died last month.`\
 https://nytimes.com/2024/09/03/business/dealbook/mike-lynch-hp-lawsuit.html
-
-**South Carolina's Ashlyn Watkins arrested**\
-`According to WLTX, the warrant said the victim was treated for non-life threatening injuries.`\
-https://nytimes.com/athletic/5741880/2024/09/03/south-carolina-ashlyn-watkins-arrested/
 
