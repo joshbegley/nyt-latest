@@ -1,5 +1,5 @@
 **At Least 12 Die Trying to Cross English Channel, French Authorities Say**\
-`The French maritime authorities said that  65 people were picked up from the sea after their vessel encountered unspecified difficulties.`\
+`The French maritime authorities said that 65 people were picked up from the sea after their vessel encountered unspecified difficulties.`\
 https://nytimes.com/2024/09/03/world/europe/migrant-boat-english-channel.html
 
 **The pace of the war in Ukraine has been picking up in recent weeks.**\
