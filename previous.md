@@ -1,3 +1,11 @@
+**Leicester win appeal over PSR charge**\
+`Leicester City have won their appeal against a decision that allowed an independent commission to consider an alleged breach of Premier League profitability and sustainability rules (PSR) by the club.`\
+https://nytimes.com/athletic/5742357/2024/09/03/leicester-premier-league-psr-appeal/
+
+**College football best bets Week 2: Riding with Jalon Daniels and fading Clemson's offense**\
+`Austin Mock's model has identified several plays for Week 2 of the college football season.`\
+https://nytimes.com/athletic/5742036/2024/09/03/college-football-best-bets-week-2-kansas-clemson-pitt/
+
 **A Heat Pump Can Cut Your Emissions. But Read This Before You Switch.**\
 `A Times climate reporter recounts his journey to switch his home’s HVAC system to a climate-friendly heat pump.`\
 https://nytimes.com/2024/09/03/climate/switching-to-a-heat-pump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/03/world/americas/venezuela-maduro-christmas-october
 **Ease Into Fall With 7 Songs for September**\
 `Listen to tracks inspired by this month of transitions and memories from Green Day, Barry White, Fiona Apple and more.`\
 https://nytimes.com/2024/09/03/arts/music/amplifier-newsletter-september-songs.html
-
-**Trump Family’s Land Deals in Albania Stir Up Lingering Resentments**\
-`Local landowners are questioning how Jared Kushner and Ivanka Trump were able to sew up development rights for two luxury hotels on hot coastal property.`\
-https://nytimes.com/2024/09/03/us/politics/trump-kushner-albania-hotels.html
-
-**Will Elias Pettersson bounce back? One question for every Canucks forward**\
-`Identifying one big question for each Canucks forward heading into the 2024-25 campaign.`\
-https://nytimes.com/athletic/5741036/2024/09/03/canucks-elias-pettersson-forward-questions/
 
