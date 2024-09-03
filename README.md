@@ -1,3 +1,7 @@
+**Blues' Torey Krug to have surgery on pre-arthritic ankle, miss 2024-25 season**\
+`The Blues announced Tuesday that Krug's left ankle will require surgery and he'll be sidelined indefinitely.`\
+https://nytimes.com/athletic/5741542/2024/09/03/blues-torey-krug-surgery/
+
 **‘The Notebook’ Will End Its Broadway Run in December. A Tour Is Next.**\
 `The show, nominated for three Tony Awards, opened March 14 at the Gerald Schoenfeld Theater. It will go on a national tour starting next September.`\
 https://nytimes.com/2024/09/03/theater/notebook-broadway-closing.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000009670562/ukraine-strike-poltava.ht
 **Live by the portal, die by the portal: FSU's 0-2 start proof latest haul not special enough**\
 `The 2024 Seminoles look more like the teams Mike Norvell coached through 3-6 and 5-7 seasons than the last two that finished 10-3 and 13-1.`\
 https://nytimes.com/athletic/5741258/2024/09/03/florida-state-roster-struggles-transfer-portal/
-
-**FIA rules no breaches by McLaren, Mercedes wings in F1’s latest ‘flexi-wing’ drama**\
-`Red Bull and Ferrari have levied concerns about the front wing design, believing it aided performance gain.`\
-https://nytimes.com/athletic/5741416/2024/09/03/fia-mclaren-mercedes-wings-red-bull-ferrari/
 
