@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5742009/2024/09/03/raptors-mailbag-submit-questions
 https://nytimes.com/athletic/5742095/2024/09/03/pwhl-minnesota-general-manager-melissa-caruso/
 
 **Trump Aides Evacuated Offices After Prank Sparked Bugging Fears**\
-`Police were called after suspicious devices were found at a Florida campaign office. It was quickly determined that the devices were likely part of a prank.`\
+`The police were called after suspicious devices were found at a Florida campaign office. It was quickly determined that the devices were likely part of a prank.`\
 https://nytimes.com/2024/09/03/us/politics/trump-prank-devices.html
 
 **Deputy football director O'Boyle set to leave Man United**\
