@@ -1,3 +1,8 @@
+**F1 designer Adrian Newey set for Aston Martin move in 2025, per sources: What it means**\
+`The arrival of Newey, one of the greatest designers in F1 history, would be the latest major signing for Aston Martin. 
+`\
+https://nytimes.com/athletic/5742008/2024/09/03/f1-adrian-newey-aston-martin-red-bull/
+
 **Daniel Craig Gets Explicit (and Romantic) in Luca Guadagnino’s ‘Queer’**\
 `At the Venice Film Festival, the star said he embraced the scenes with sexual encounters: ‘If I wasn’t in the movie and saw this movie, I’d want to be in it.’`\
 https://nytimes.com/2024/09/03/movies/daniel-craig-queer-venice-film-festival.html
