@@ -1,3 +1,7 @@
+**NFL best bets Week 1: Bills and Seahawks make the first two best-bet picks**\
+`Austin's Mock's NFL Projection Model is back with best bets for Week 1 of NFL action.`\
+https://nytimes.com/athletic/5742333/2024/09/03/nfl-best-bets-week-1-bills-seahawks/
+
 **Leicester win appeal over PSR charge**\
 `Leicester City have won their appeal against a decision that could have seen them punished with a points deduction for an alleged breach of Premier League profitability and sustainability rules (PSR).`\
 https://nytimes.com/athletic/5742357/2024/09/03/leicester-premier-league-psr-appeal/

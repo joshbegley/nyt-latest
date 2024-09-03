@@ -1,3 +1,7 @@
+**NFL best bets Week 1: Bills and Seahawks make the first two best-bet picks**\
+`Austin's Mock's NFL Projection Model is back with best bets for Week 1 of NFL action.`\
+https://nytimes.com/athletic/5742333/2024/09/03/nfl-best-bets-week-1-bills-seahawks/
+
 **Election 2024 Polls: Biden vs. Trump (Archived)**\
 `Our polling averages of the Biden vs. Trump matchup in the 2024 presidential race, using data from national and battleground state polls.`\
 https://nytimes.com/interactive/2024/us/elections/polls-biden-archive.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5742199/2024/09/03/ap-top-25-poll-rankings-georgia-
 **U.S. and Iraqi Commandos Targeted ISIS in Sprawling Operation**\
 `The number of insurgent attacks has increased, officials say, as Iraq and the United States negotiate a plan to wind down the U.S.-led military mission.`\
 https://nytimes.com/2024/09/03/us/politics/iraq-commandos-isis.html
-
-**The Political Rage of Left-Behind Regions**\
-`What we can learn from the geography of right-wing extremism.`\
-https://nytimes.com/2024/09/03/opinion/trump-afd-germany-manufacturing-economy.html
 
