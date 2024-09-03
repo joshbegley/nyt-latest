@@ -1,3 +1,7 @@
+**Inside Newcastle: Flawed transfer strategy? Frictions with owners? Expectations lowered?**\
+`Our Newcastle writers Chris Waugh and George Caulkin answer questions on Paul Mitchell, the pursuit of Marc Guehi and the owners' ambitions`\
+https://nytimes.com/athletic/5739241/2024/09/03/inside-newcastle-owners-transfers/
+
 **Justin Steele’s setback puts the Chicago Cubs into problem-solving mode again**\
 `The Cubs have been adept at solving problems all season, and Steele's untimely setback puts them back in that familiar spot.`\
 https://nytimes.com/athletic/5740931/2024/09/03/justin-steeles-setback-chicago-cubs/
