@@ -1,3 +1,11 @@
+**Fernando Tatis Jr. gets goosebumps as Padres get another piece closer to full strength**\
+`Running onto the field, Tatis felt something he said he experienced only a few times during his pregame routine: goosebumps.`\
+https://nytimes.com/athletic/5740600/2024/09/02/fernando-tatis-jr-return-padres/
+
+**Twins top Rays, gain ground in playoff picture behind bullpen and Trevor Larnach**\
+`Larnach delivered a massive punch with an emphatic three-run homer, as Minnesota's bullpen locked in to secure the win.`\
+https://nytimes.com/athletic/5740937/2024/09/02/bullpen-trevor-larnach-deliver-as-twins-top-rays-gain-ground-in-playoff-picture/
+
 **Boston College upsets No. 10 FSU**\
 `Florida State becomes the fourth AP Top-10 ranked team to start 0-2 in the last 10 seasons.`\
 https://nytimes.com/athletic/5740841/2024/09/02/boston-college-florida-state-college-football/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5739324/2024/09/02/luis-suarez-retirement-uruguay/
 **Shooting Mars Festivities at West Indian American Day Parade in Brooklyn**\
 `At least five people were shot and wounded along the route of the bustling event, which continued on despite the disruption.`\
 https://nytimes.com/2024/09/02/nyregion/west-indian-day-nyc-shooting.html
-
-**What's next for Pac-12, Mountain West after missing 2025 scheduling deadline?**\
-`The Pac-12-Mountain West deadline has passed without a 2025 agreement, and chances of getting back together appear slim. Why?`\
-https://nytimes.com/athletic/5740549/2024/09/02/pac-12-mountain-west-2025-schedule-agreement/
-
-**Kodai Senga and the Mets 'open to anything' in a possible late September return**\
-`Senga could be used out of the bullpen but made it clear that he would need to feel at full strength to proceed with a return,`\
-https://nytimes.com/athletic/5740596/2024/09/02/mets-kodai-senga-bullpen-return/
 
