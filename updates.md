@@ -1,3 +1,7 @@
+**Boston College upsets No. 10 FSU**\
+`Florida State becomes the fourth AP Top-10 ranked team to start 0-2 in the last 10 seasons.`\
+https://nytimes.com/athletic/5740841/2024/09/02/boston-college-florida-state-college-football/
+
 **Shohei Ohtani excited to return to "special place" in Anaheim**\
 `When Ohtani steps into the batter's box at Angel Stadium on Tuesday, it will mark his first time doing so in that park for a winning club.`\
 https://nytimes.com/athletic/5740809/2024/09/02/shohei-ohtani-return-to-anaheim/
