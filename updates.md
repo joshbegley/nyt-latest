@@ -1,3 +1,7 @@
+**Pope Visits Indonesia, Where Muslim-Christian Harmony Is Under Strain**\
+`Indonesia is proud of its religious diversity and its reputation for tolerance, but minorities, including Catholics, still face discrimination.`\
+https://nytimes.com/2024/09/03/world/asia/pope-visit-indonesia-muslims.html
+
 **Word of the Day: benign**\
 `This word has appeared in 181 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/03/learning/word-of-the-day-benign.html
