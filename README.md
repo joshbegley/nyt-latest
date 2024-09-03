@@ -1,3 +1,7 @@
+**Collector Sues to Block Investigators From Seizing Roman Bronze**\
+`Lawyers for the collector, based in California, said the Manhattan district attorney’s office did not have the jurisdiction or the evidence to support seizing the ancient statue.`\
+https://nytimes.com/2024/09/03/arts/design/collector-sues-to-block-investigators-from-seizing-roman-bronze.html
+
 **Texas Deputy Is Shot to Death on His Way to Work, Police Say**\
 `A deputy constable was driving to work Tuesday when he was shot and killed at an intersection in Houston, the police said. A person of interest was in custody Tuesday afternoon.`\
 https://nytimes.com/2024/09/03/us/houston-deputy-constable-shot.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/03/nyregion/doctor-assisted-suicide-ny-guilty.html
 **How I voted in the AP poll: How much should Week 1 change rankings?**\
 `Moving Georgia to No. 1 headlined a handful of significant changes I made to my AP Top 25 ballot after the first week of games.`\
 https://nytimes.com/athletic/5742949/2024/09/03/ap-top-25-rankings-poll-changes/
-
-**Justice Jackson Treads Carefully in Talking About the Supreme Court**\
-`In a new memoir, the first Black woman on the Supreme Court was more forthcoming about her upbringing in Miami, Matt Damon and her rise to the court.`\
-https://nytimes.com/2024/09/03/us/ketanji-brown-jackson-memoir.html
 
