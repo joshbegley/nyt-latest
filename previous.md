@@ -1,3 +1,19 @@
+**Home Cooking So Good, Only a Restaurant Could Do It**\
+`In her first review as interim critic, Melissa Clark visits Lola’s, whose produce-driven cooking is familiar but lifted by brilliant twists and tweaks.`\
+https://nytimes.com/2024/09/03/dining/home-cooking-so-good-only-a-restaurant-could-do-it.html
+
+**James Darren, Actor, Singer and ‘Gidget’ Heartthrob, Dies at 88**\
+`His role as a surfer in that trendsetting hit movie led to success on television shows like “The Time Tunnel” and “T.J. Hooker,” and on the pop charts.`\
+https://nytimes.com/2024/09/03/movies/james-darren-dies.html
+
+**New Photos From Titanic Show Long-Lost Statue and Damaged Bow**\
+`RMS Titanic Inc., the company that led the expedition, brought back two million photos of the site. The ship’s famed bow has been damaged, the company said.`\
+https://nytimes.com/2024/09/03/science/titanic-photos-bow-statue.html
+
+**Toxic Additive Found in Feed That Killed 70 Oklahoma Rodeo Horses**\
+`Preliminary tests show that the horse feed had been contaminated with Monensin, Livestock Nutrition Center said.`\
+https://nytimes.com/2024/09/03/us/rodeo-horses-poisoned-oklahoma-livestock.html
+
 **Another Trump Clemency Recipient Is Accused of Domestic Violence**\
 `A man whose life sentence for his role in a robbery and murder was commuted by President Donald J. Trump was convicted this spring of a misdemeanor charge of assaulting his wife.`\
 https://nytimes.com/2024/09/03/us/politics/trump-clemency-jaime-davidson.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5739447/2024/09/03/foden-palmer-watkins-england-squ
 **An Olympic Runner From Uganda Is Severely Burned in Gasoline Attack**\
 `Rebecca Cheptegei, a long-distance runner who competed in the Olympic marathon in Paris, is in critical condition after a man poured gas on her and set her on fire, police in Kenya said.`\
 https://nytimes.com/2024/09/03/world/africa/rebecca-cheptegei-uganda-olympian-burned.html
-
-**Leicester win appeal over PSR charge**\
-`Leicester City have won their appeal against a decision that could have seen them punished with a points deduction for an alleged breach of Premier League profitability and sustainability rules (PSR).`\
-https://nytimes.com/athletic/5742357/2024/09/03/leicester-premier-league-psr-appeal/
-
-**College football best bets Week 2: Riding with Jalon Daniels and fading Clemson's offense**\
-`Austin Mock's model has identified several plays for Week 2 of the college football season.`\
-https://nytimes.com/athletic/5742036/2024/09/03/college-football-best-bets-week-2-kansas-clemson-pitt/
-
-**A Heat Pump Can Cut Your Emissions. But Read This Before You Switch.**\
-`A Times climate reporter recounts his journey to switch his home’s HVAC system to a climate-friendly heat pump.`\
-https://nytimes.com/2024/09/03/climate/switching-to-a-heat-pump.html
-
-**AP Top 25: Georgia No. 1; Georgia Tech ends 9-year poll drought**\
-`Georgia, Ohio State, Texas, Alabama and Notre Dame are the top five teams in this week's AP Top 25 college football poll.`\
-https://nytimes.com/athletic/5742199/2024/09/03/ap-top-25-poll-rankings-georgia-tech/
 

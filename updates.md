@@ -1,3 +1,19 @@
+**Home Cooking So Good, Only a Restaurant Could Do It**\
+`In her first review as interim critic, Melissa Clark visits Lola’s, whose produce-driven cooking is familiar but lifted by brilliant twists and tweaks.`\
+https://nytimes.com/2024/09/03/dining/home-cooking-so-good-only-a-restaurant-could-do-it.html
+
+**James Darren, Actor, Singer and ‘Gidget’ Heartthrob, Dies at 88**\
+`His role as a surfer in that trendsetting hit movie led to success on television shows like “The Time Tunnel” and “T.J. Hooker,” and on the pop charts.`\
+https://nytimes.com/2024/09/03/movies/james-darren-dies.html
+
+**New Photos From Titanic Show Long-Lost Statue and Damaged Bow**\
+`RMS Titanic Inc., the company that led the expedition, brought back two million photos of the site. The ship’s famed bow has been damaged, the company said.`\
+https://nytimes.com/2024/09/03/science/titanic-photos-bow-statue.html
+
+**Toxic Additive Found in Feed That Killed 70 Oklahoma Rodeo Horses**\
+`Preliminary tests show that the horse feed had been contaminated with Monensin, Livestock Nutrition Center said.`\
+https://nytimes.com/2024/09/03/us/rodeo-horses-poisoned-oklahoma-livestock.html
+
 **Another Trump Clemency Recipient Is Accused of Domestic Violence**\
 `A man whose life sentence for his role in a robbery and murder was commuted by President Donald J. Trump was convicted this spring of a misdemeanor charge of assaulting his wife.`\
 https://nytimes.com/2024/09/03/us/politics/trump-clemency-jaime-davidson.html
