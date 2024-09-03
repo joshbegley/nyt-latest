@@ -1,3 +1,11 @@
+**Election 2024 Polls: Biden vs. Trump (Archived)**\
+`Our polling averages of the Biden vs. Trump matchup in the 2024 presidential race, using data from national and battleground state polls.`\
+https://nytimes.com/interactive/2024/us/elections/polls-biden-archive.html
+
+**Bradley will play for U.S. at Presidents Cup; Thomas left off team**\
+`Bradley, the 2025 Ryder Cup captain, will be relieved of captain's assistant duties in order to focus on playing in the Presidents Cup.`\
+https://nytimes.com/athletic/5742246/2024/09/03/keegan-bradley-justin-thomas-usa-presidents-cup/
+
 **Foden, Palmer and Watkins withdraw from England squad**\
 `Phil Foden, Cole Palmer and Ollie Watkins have withdrawn from the England squad for their upcoming Nations League fixtures.`\
 https://nytimes.com/athletic/5739447/2024/09/03/foden-palmer-watkins-england-squad-out/
@@ -7,7 +15,7 @@ https://nytimes.com/athletic/5739447/2024/09/03/foden-palmer-watkins-england-squ
 https://nytimes.com/2024/09/03/world/africa/rebecca-cheptegei-uganda-olympian-burned.html
 
 **Leicester win appeal over PSR charge**\
-`Leicester City have won their appeal against a decision that could have seen them punished for an alleged breach of Premier League profitability and sustainability rules (PSR).`\
+`Leicester City have won their appeal against a decision that could have seen them punished with a points deduction for an alleged breach of Premier League profitability and sustainability rules (PSR).`\
 https://nytimes.com/athletic/5742357/2024/09/03/leicester-premier-league-psr-appeal/
 
 **College football best bets Week 2: Riding with Jalon Daniels and fading Clemson's offense**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/03/us/politics/iraq-commandos-isis.html
 **The Political Rage of Left-Behind Regions**\
 `What we can learn from the geography of right-wing extremism.`\
 https://nytimes.com/2024/09/03/opinion/trump-afd-germany-manufacturing-economy.html
-
-**College football Week 2 odds, schedule: Texas-Michigan, Colorado-Nebraska and more**\
-`Texas at Michigan and Colorado at Nebraska highlight college football's Week 2 action. Here are the odds for those games and the full slate.`\
-https://nytimes.com/athletic/5741748/2024/09/03/college-football-week-2-odds-schedule-texas-michigan-colorado-nebraska/
-
-**Bruins' Brad Marchand starting contract year behind schedule after 3 surgeries**\
-`The Bruins captain had surgery for a torn tendon in his elbow this offseason. He also underwent groin and hernia procedures.`\
-https://nytimes.com/athletic/5742286/2024/09/03/bruins-brad-marchand-surgeries/
 
