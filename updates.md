@@ -1,3 +1,11 @@
+**PWHL Toronto to play at Coca-Cola Coliseum in 2024-25**\
+`The arena is also home to the AHL’s Toronto Marlies and will serve as the home court for the WNBA’s Toronto expansion franchise in 2026.`\
+https://nytimes.com/athletic/5742653/2024/09/03/pwhl-toronto-arena-2024-25-season/
+
+**His Parents Are Susan Sarandon and Tim Robbins. That’s the Joke.**\
+`In a series of videos, Jack Robbins has been lampooning nepo baby culture — and embracing it — with help from his parents and Steven Spielberg’s daughter.`\
+https://nytimes.com/2024/09/03/style/jack-robbins-nepo-baby-videos.html
+
 **How Netanyahu Is Trying to Save Himself, Elect Trump and Defeat Harris**\
 `The Israeli prime minister’s approach to Gaza and the hostages is plainly tied up in his political self-interest.`\
 https://nytimes.com/2024/09/03/opinion/netanyahu-trump-harris.html
