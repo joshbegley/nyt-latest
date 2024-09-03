@@ -1,3 +1,15 @@
+**The Windup: Dodgers finally putting it together?**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5741910/2024/09/03/dodgers-ohtani-freeman-the-windup/
+
+**Seeing Dances of the Harlem Renaissance, in Vivid Color**\
+`An immersive article spotlights choreographers who are carrying forward the legacy of Black dance forms that flourished 100 years ago.`\
+https://nytimes.com/2024/09/03/insider/seeing-dances-of-the-harlem-renaissance-in-vivid-color.html
+
+**Oilers sign Leon Draisaitl to 8-year extension**\
+`The extension begins with the 2025-26 season.`\
+https://nytimes.com/athletic/5741833/2024/09/03/oilers-leon-draisaitl-contract-extension/
+
 **The Spies of ‘Slow Horses’ Are ‘as Useless as Everyone Else’**\
 `Will Smith, the showrunner, discusses the comic spy thriller, which returns for its fourth season on Wednesday and is up for nine Emmy Awards later this month.`\
 https://nytimes.com/2024/09/03/arts/television/slow-horses-will-smith.html
