@@ -1,3 +1,7 @@
+**Fantasy hockey cheat sheet: League-specific rankings and projections for 2024-25**\
+`It's here! Dom Luszczyszyn shares his league-specific player rankings and projections for the 2024-25 fantasy hockey campaign.`\
+https://nytimes.com/athletic/5734473/2024/09/03/fantasy-hockey-cheat-sheet-league-specific-rankings-projections-2024-25/
+
 **Ranking broadcasts from CFB Week 1: Did CBS, NBC, Fox hype the moment?**\
 `There's been a change-up in TV networks for your favorite college games. How did the broadcasts booth handle this week's slate?`\
 https://nytimes.com/athletic/5739993/2024/09/03/broadcasts-college-football-espn-nbc-abc-cbs-fox/
