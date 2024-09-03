@@ -1,3 +1,7 @@
+**Putin Gets a Red-Carpet Welcome in Mongolia Despite Arrest Warrant**\
+`Ukrainian officials expressed outrage over the Russian leader’s visit, warning it would seek to “ensure that this has consequences” for Mongolia.`\
+https://nytimes.com/2024/09/03/world/asia/putin-mongolia-icc-arrest.html
+
 **Flames mailbag: Submit your questions for Julian McKenzie**\
 `Got a question about the Flames? Submit it here and The Athletic’s Julian McKenzie will answer a selection in an upcoming mailbag.`\
 https://nytimes.com/athletic/5737900/2024/09/03/calgary-flames-mailbag-mckenzie-september-2024/
