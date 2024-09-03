@@ -19,7 +19,7 @@ https://nytimes.com/2024/09/03/movies/james-darren-dies.html
 https://nytimes.com/2024/09/03/science/titanic-photos-bow-statue.html
 
 **Toxic Additive Found in Feed That Killed 70 Oklahoma Rodeo Horses**\
-`Preliminary tests show that the horse feed had been contaminated with Monensin, Livestock Nutrition Center said.`\
+`Preliminary tests show that the feed had been contaminated with Monensin, an additive known to be toxic to horses, Livestock Nutrition Center said.`\
 https://nytimes.com/2024/09/03/us/rodeo-horses-poisoned-oklahoma-livestock.html
 
 **Another Trump Clemency Recipient Is Accused of Domestic Violence**\
