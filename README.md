@@ -1,3 +1,7 @@
+**Daniel Craig Gets Explicit (and Romantic) in Luca Guadagnino’s ‘Queer’**\
+`At the Venice Film Festival, the star said he embraced the scenes with sexual encounters: ‘If I wasn’t in the movie and saw this movie, I’d want to be in it.’`\
+https://nytimes.com/2024/09/03/movies/daniel-craig-queer-venice-film-festival.html
+
 **Submit a question for Eric Koreen’s Raptors mailbag**\
 `Fun fact: The song I’ve heard most at OVO Athletic Centre, the Toronto Raptors&#8217; practice facility, is “September” by Earth, Wind, and Fire.`\
 https://nytimes.com/athletic/5742009/2024/09/03/raptors-mailbag-submit-questions/
@@ -34,9 +38,4 @@ https://nytimes.com/2024/09/03/world/europe/ukraine-electric-boss-fired-russia-p
 `The arrival of Newey, one of the greatest designers in F1 history, would be the latest major signing for Aston Martin. 
 `\
 https://nytimes.com/athletic/5742008/2024/09/03/f1-adrian-newey-aston-martin-red-bull/
-
-**NHL contract grades: Leon Draisaitl secures long-term future in Edmonton**\
-`Locking in Draisaitl avoids a season-long distraction and sends a clear message that the Oilers are not taking their foot off the gas.
-`\
-https://nytimes.com/athletic/5741905/2024/09/03/leon-draisaitl-oilers-contract/
 
