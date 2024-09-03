@@ -1,3 +1,7 @@
+**Biden’s Top Climate Negotiator to Visit China This Week**\
+`John Podesta is expected to push for China to set more ambitious greenhouse gas targets.`\
+https://nytimes.com/2024/09/03/climate/podesta-china-climate-change.html
+
 **Live by the portal, die by the portal: FSU's 0-2 start proof latest haul not special enough**\
 `The 2024 Seminoles look more like the teams Mike Norvell coached through 3-6 and 5-7 seasons than the last two that finished 10-3 and 13-1.`\
 https://nytimes.com/athletic/5741258/2024/09/03/florida-state-roster-struggles-transfer-portal/
