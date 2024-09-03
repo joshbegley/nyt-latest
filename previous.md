@@ -1,3 +1,15 @@
+**Deputy football director O'Boyle set to leave Man United**\
+`Manchester United are set for more changes to their senior football leadership structure, with deputy football director Andy O’Boyle set to leave Old Trafford after two years in the post.`\
+https://nytimes.com/athletic/5741632/2024/09/03/manchester-united-andy-o-boyle-exit/
+
+**Surprise! A Class of College Seniors Learns Their Tuition Will be Free.**\
+`Tuition used to be free for all students at the Cooper Union, in New York City. The school announced it is bringing back the perk, at least for seniors.`\
+https://nytimes.com/2024/09/03/us/free-tuition-cooper-union.html
+
+**The Bounce: Is hunting for big NBA free agents obsolete?**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5741310/2024/09/03/nba-free-agency-lebron-james-dallas-mavericks-trades-the-bounce/
+
 **An emergency medical worker describes the horrific scene at the site of the missile strike.**\
 `By Marc Santora and Liubov Sholudko`\
 https://nytimes.com/live/2024/09/03/world/ukraine-russia-missile-strike-poltava/an-emergency-medical-worker-describes-the-horrific-scene-at-the-site-of-the-missile-strike
@@ -27,16 +39,4 @@ https://nytimes.com/athletic/5741802/2024/09/03/nfl-week-1-odds-spreads-how-to-w
 **Browns, Huntington Bank agree to naming rights deal**\
 `The stadium opened as Cleveland Browns Stadium in 1999, then from 2013 to 2023 was known as FirstEnergy Stadium.`\
 https://nytimes.com/athletic/5742028/2024/09/03/cleveland-browns-stadium-name-huntington-bank-field/
-
-**23 New Restaurants to Try This Fall**\
-`The season’s marquee openings in New York City include the next move from Kent Hospitality, the first Manhattan restaurant from Andrew Tarlow and more.`\
-https://nytimes.com/2024/09/03/dining/new-restaurants-nyc-fall.html
-
-**Cincinnati DT Dontay Corleone cleared to play**\
-`He’s expected to be a full participant in practice Tuesday, and his status for Saturday’s game against Pitt will be determined.`\
-https://nytimes.com/athletic/5741985/2024/09/03/cincinnati-dontay-corleone-blood-clots-cleared/
-
-**San Francisco Giants week in review: It wasn't great, as playoff hopes fade**\
-`The Giants played two series last week and lost them both, as their playoff chances continue to diminish.`\
-https://nytimes.com/athletic/5740964/2024/09/03/sf-giants-week-in-review-offensive-struggles/
 
