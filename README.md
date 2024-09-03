@@ -1,3 +1,7 @@
+**Texas Deputy Is Shot to Death on His Way to Work, Police Say**\
+`A deputy constable was driving to work Tuesday when he was shot and killed at an intersection in Houston, the police said. A person of interest was in custody Tuesday afternoon.`\
+https://nytimes.com/2024/09/03/us/houston-deputy-constable-shot.html
+
 **MLB says teams carried by Diamond "unable to plan" 2025 revenues, threatens legal action**\
 `A judge approved deals between Diamond and the NHL and NBA, but MLB argues that the broadcaster's plans won't work for baseball. `\
 https://nytimes.com/athletic/5743074/2024/09/03/mlb-diamond-threat-legal-action/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5742949/2024/09/03/ap-top-25-rankings-poll-changes/
 **Justice Jackson Treads Carefully in Talking About the Supreme Court**\
 `In a new memoir, the first Black woman on the Supreme Court was more forthcoming about her upbringing in Miami, Matt Damon and her rise to the court.`\
 https://nytimes.com/2024/09/03/us/ketanji-brown-jackson-memoir.html
-
-**Las Vegas, Scorched by Its Hottest Summer on Record, Prepares for More 100-Degree Heat**\
-`Much of the Western U.S. will bake in high temperatures this week. Excessive-heat warnings have been issued for major cities including Las Vegas and Los Angeles.`\
-https://nytimes.com/2024/09/03/weather/summer-heat-forecast-las-vegas.html
 
