@@ -1,3 +1,7 @@
+**Justice Jackson Treads Carefully in Talking About the Supreme Court**\
+`In a new memoir, the first Black woman on the Supreme Court was more forthcoming about her upbringing in Miami, Matt Damon and her rise to the court.`\
+https://nytimes.com/2024/09/03/us/ketanji-brown-jackson-memoir.html
+
 **Will the College Protests Matter in November?**\
 `Republicans tied campus unrest to their party platform. But the intensity may have fizzled.`\
 https://nytimes.com/2024/09/03/us/politics/college-protests-gaza-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/03/us/politics/trump-jimmy-mccain-arlington-cemetery
 **Plea Deal Resolves Remaining Charges in Killings of Albuquerque Muslim Men**\
 `The defendant, Muhammad Syed, pleaded no contest to two murder charges. But his motive remains unknown.`\
 https://nytimes.com/2024/09/03/us/albuquerque-muslim-killings-plea-deal.html
-
-**Elon Musk’s Starlink Agrees to Block the X Social Network in Brazil**\
-`Brazilian regulators had said Sunday that Starlink planned to defy government orders to block X in the country. On Tuesday, the satellite-internet service said it would comply.`\
-https://nytimes.com/2024/09/03/world/americas/brazil-starlink-elon-musk-x.html
 
