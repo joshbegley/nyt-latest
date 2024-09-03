@@ -1,3 +1,7 @@
+**Shiny New Technology, Same Old Funny Business**\
+`Antitrust regulators are finally catching up to the methods used by modern corporations to exert their power.`\
+https://nytimes.com/2024/09/03/opinion/realpage-antitrust-landlords.html
+
 **What to watch for each NFL team as fantasy football 2024 gets set for liftoff**\
 `John Laghezza offers up a situation to watch for each NFL team, including some overlooked tight ends with plenty of fantasy football upside.`\
 https://nytimes.com/athletic/5734407/2024/09/03/what-to-watch-for-each-nfl-team-as-fantasy-football-2024-gets-set-for-liftoff/

@@ -1,3 +1,7 @@
+**Shiny New Technology, Same Old Funny Business**\
+`Antitrust regulators are finally catching up to the methods used by modern corporations to exert their power.`\
+https://nytimes.com/2024/09/03/opinion/realpage-antitrust-landlords.html
+
 **What to watch for each NFL team as fantasy football 2024 gets set for liftoff**\
 `John Laghezza offers up a situation to watch for each NFL team, including some overlooked tight ends with plenty of fantasy football upside.`\
 https://nytimes.com/athletic/5734407/2024/09/03/what-to-watch-for-each-nfl-team-as-fantasy-football-2024-gets-set-for-liftoff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5739701/2024/09/03/reinier-jesus-real-madrid-brazil
 **How to spot a La Masia star: The secrets of Barcelona's youth academy**\
 `Two former Barcelona academy directors - Jordi Roura and Aureli Altimira - reflect on their years of work at the club`\
 https://nytimes.com/athletic/5726025/2024/09/03/barcelona-la-masia-yamal-cubarsi-gavi/
-
-**Tuesday Briefing**\
-`Protests and work stoppages in Israel.`\
-https://nytimes.com/2024/09/03/briefing/israel-protests-biden-harris.html
 
