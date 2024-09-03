@@ -23,6 +23,11 @@ https://nytimes.com/athletic/5742008/2024/09/03/f1-adrian-newey-aston-martin-red
 `\
 https://nytimes.com/athletic/5742008/2024/09/03/f1-adrian-newey-aston-martin-red-bull/
 
+**F1 designer Adrian Newey set for Aston Martin move in 2025, per sources: What it means**\
+`The arrival of Newey, one of the greatest designers in F1 history, would be the latest major signing for Aston Martin. 
+`\
+https://nytimes.com/athletic/5742008/2024/09/03/f1-adrian-newey-aston-martin-red-bull/
+
 **Deputy football director O'Boyle set to leave Man United**\
 `Manchester United are expected to make more changes to their senior football leadership structure, with deputy football director Andy O’Boyle to leave Old Trafford after two years in the post.`\
 https://nytimes.com/athletic/5741632/2024/09/03/manchester-united-andy-o-boyle-exit/
