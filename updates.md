@@ -1,3 +1,11 @@
+**College Football Playoff 2024 projections: Miami in, LSU out of our 12-team bracket**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/09/03/college-football-playoff-projections-odds/
+
+**Blues' Torey Krug to undergo surgery on pre-arthritic ankle, miss 2024-25 season**\
+`The Blues announced Tuesday that Krug's left ankle will require surgery and he'll be sidelined indefinitely.`\
+https://nytimes.com/athletic/5741542/2024/09/03/blues-torey-krug-surgery/
+
 **Blues' Torey Krug to have surgery on pre-arthritic ankle, miss 2024-25 season**\
 `The Blues announced Tuesday that Krug's left ankle will require surgery and he'll be sidelined indefinitely.`\
 https://nytimes.com/athletic/5741542/2024/09/03/blues-torey-krug-surgery/
