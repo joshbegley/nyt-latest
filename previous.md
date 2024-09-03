@@ -1,3 +1,19 @@
+**Ranking broadcasts from CFB Week 1: Did CBS, NBC, Fox hype the moment?**\
+`There's been a change-up in TV networks for your favorite college games. How did the broadcasts booth handle this week's slate?`\
+https://nytimes.com/athletic/5739993/2024/09/03/broadcasts-college-football-espn-nbc-abc-cbs-fox/
+
+**Dozens of Hostages Remain in Gaza: What We Know**\
+`More than 60 living hostages, and the bodies of about 35 others taken captive on Oct. 7, are still in Gaza, the Israeli authorities say.`\
+https://nytimes.com/2024/09/03/world/middleeast/hostages-in-gaza-hamas.html
+
+**Submit your Astros questions for Chandler Rome’s mailbag**\
+`Submit your questions for Chandler Rome's upcoming Astros mailbag.`\
+https://nytimes.com/athletic/5740446/2024/09/03/astros-chandler-rome-mailbag-questions/
+
+**How the Chiefs defense is gearing up for opening-night challenge vs. Ravens**\
+`Steve Spagnuolo’s unit is healthy for Thursday’s game. He expects to rely on Chris Jones and Trent McDuffie to disrupt the Ravens’ offense.`\
+https://nytimes.com/athletic/5740628/2024/09/03/chiefs-defense-ravens-opener/
+
 **Cathay Pacific Finds 15 Planes Need Engine Repairs**\
 `The Hong Kong airline has canceled dozens of flights to inspect Airbus A350 planes since it found a problem with a Rolls-Royce engine in one of them.`\
 https://nytimes.com/2024/09/03/business/cathay-pacific-cancelations.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/03/us/politics/cuomo-congress-covid-nursing-home-dea
 **Netanyahu Unwavering on Cease-Fire, and Putin Visits Mongolia**\
 `Plus, battling mpox in Congo.`\
 https://nytimes.com/2024/09/03/podcasts/netanyahu-cease-fire-putin-mongolia.html
-
-**Wordle Review No. 1,173**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, September 4, 2024.`\
-https://nytimes.com/2024/09/03/crosswords/wordle-review-1173.html
-
-**Projecting where the Jets and Cole Perfetti will land on a new contract**\
-`Perfetti's extension as an RFA is the single most pressing piece of business left for Jets GM Kevin Cheveldayoff.`\
-https://nytimes.com/athletic/5734459/2024/09/03/cole-perfetti-contract-winnipeg-jets/
-
-**The Connections Companion No. 451**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 4, 2024.`\
-https://nytimes.com/2024/09/03/crosswords/connections-companion-451.html
-
-**You Just Got a Tattoo. How Do You Look After It?**\
-`Advice on tattoo aftercare is plentiful, and sometimes confusing. Tattoo artists and dermatologists weigh in on what you should do.`\
-https://nytimes.com/2024/09/03/well/new-tattoo-after-care.html
 
