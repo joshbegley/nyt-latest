@@ -1,3 +1,7 @@
+**NFL Week 1 odds, spreads, totals: Chiefs-Ravens kick off a fantastic opening slate**\
+`The Chiefs are favored by a field goal over the Ravens in the Week 1 kickoff. See odds for every NFL Week 1 game.`\
+https://nytimes.com/athletic/5741802/2024/09/03/nfl-week-1-odds-spreads-how-to-watch-chiefs-ravens/
+
 **Browns, Huntington Bank agree to naming rights deal**\
 `The stadium opened as Cleveland Browns Stadium in 1999, then from 2013-2023 was known as FirstEnergy Stadium.`\
 https://nytimes.com/athletic/5742028/2024/09/03/cleveland-browns-stadium-name-huntington-bank-field/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5649173/2024/09/03/diego-gomez-inter-miami-brighton
 **Recent attacks renew Ukraine’s pleas for more air defense systems.**\
 `By Cassandra Vinograd`\
 https://nytimes.com/live/2024/09/03/world/ukraine-russia-missile-strike-poltava/recent-attacks-renew-ukraines-pleas-for-more-air-defense-systems
-
-**Chelsea's Gusto withdraws from France U21s with thigh injury**\
-`Chelsea defender Malo Gusto has withdrawn from the France Under-21 squad with a thigh injury.`\
-https://nytimes.com/athletic/5741898/2024/09/03/malo-gusto-injury-chelsea-france/
 
