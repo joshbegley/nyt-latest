@@ -1,3 +1,23 @@
+**Flames mailbag: Submit your questions for Julian McKenzie**\
+`Got a question about the Flames? Submit it here and The Athletic’s Julian McKenzie will answer a selection in an upcoming mailbag.`\
+https://nytimes.com/athletic/5737900/2024/09/03/calgary-flames-mailbag-mckenzie-september-2024/
+
+**Why Shohei Ohtani deserves a warm embrace by Angels, fans in Anaheim return**\
+`Boos rained down as Shohei Ohtani appeared on the Angel Stadium video board.`\
+https://nytimes.com/athletic/5740785/2024/09/03/shohei-ohtani-anaheim-return-angels-dodgers/
+
+**Colts stuck on hamster wheel of mediocrity under Chris Ballard. Is it win or else in 2024?**\
+`Ballard is one of the NFL's longest-tenured GMs, but his accomplishments pale in comparison to his compatriots. `\
+https://nytimes.com/athletic/5738826/2024/09/03/indianapolis-colts-season-preview-chris-ballard-mediocrity/
+
+**How Broncos' Bo Nix raced ahead of the curve: From 8th-grade starter to rookie QB1**\
+`For more than a decade, Nix has been piling up "high-quality" starting experiences the Broncos believe will serve him well as an NFL rookie.`\
+https://nytimes.com/athletic/5737663/2024/09/03/bo-nix-broncos-rookie-quarterback/
+
+**The Pulse: Why 0-2 FSU can still make the Playoff**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5740734/2024/09/03/florida-state-playoff-boston-college-the-pulse/
+
 **The Stakes on Taxes**\
 `We cover the presidential candidates’ positions on taxation.`\
 https://nytimes.com/2024/09/03/briefing/tax-election-harris-trump.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/09/03/world/middleeast/hostages-in-gaza-hamas.html
 **Submit your Astros questions for Chandler Rome’s mailbag**\
 `Submit your questions for Chandler Rome's upcoming Astros mailbag.`\
 https://nytimes.com/athletic/5740446/2024/09/03/astros-chandler-rome-mailbag-questions/
-
-**How the Chiefs defense is gearing up for opening-night challenge vs. Ravens**\
-`Steve Spagnuolo’s unit is healthy for Thursday’s game. He expects to rely on Chris Jones and Trent McDuffie to disrupt the Ravens’ offense.`\
-https://nytimes.com/athletic/5740628/2024/09/03/chiefs-defense-ravens-opener/
-
-**Cathay Pacific Finds 15 Planes Need Engine Repairs**\
-`The Hong Kong airline has canceled dozens of flights to inspect Airbus A350 planes since it found a problem with a Rolls-Royce engine in one of them.`\
-https://nytimes.com/2024/09/03/business/cathay-pacific-cancelations.html
-
-**NFL QB stock report, Week 1: It's Patrick Mahomes, then everyone else**\
-`This season, we'll be power-ranking each of the 32 NFL starting QBs and highlighting noteworthy players or trends every Tuesday morning. `\
-https://nytimes.com/athletic/5729713/2024/09/03/nfl-qb-stock-report-rankings-patrick-mahomes/
-
-**Every NFL team's biggest concern as 2024 season begins: O-line play, health, rookie QB**\
-`Haason Reddick's holdout, Justin Herbert's foot and an untested kicker in Green Bay are among the issues our experts identified.`\
-https://nytimes.com/athletic/5732635/2024/09/03/nfl-team-concerns-2024-season/
-
-**The Push to Ban Phones in School**\
-`A growing number of states are cracking down on students’ use of the devices.`\
-https://nytimes.com/2024/09/03/podcasts/the-daily/phone-ban-school.html
 
