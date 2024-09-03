@@ -1,3 +1,11 @@
+**2024 NFL media preview: What to expect from Tom Brady, Netflix and Bill Belichick**\
+`With Week 1 upon us, Richard Deitsch and Andrew Marchand break down the big NFL media stories for the 2024 season.`\
+https://nytimes.com/athletic/5734245/2024/09/03/2024-nfl-media-preview-what-to-expect-from-tom-brady-netflix-and-bill-belichick/
+
+**Putin Gets a Red-Carpet Welcome in Mongolia Despite Arrest Warrant**\
+`Ukrainian officials expressed outrage over the Russian leader’s visit, warning they would seek to “ensure that this has consequences” for Mongolia.`\
+https://nytimes.com/2024/09/03/world/asia/putin-mongolia-icc-arrest.html
+
 **Van Dijk to play for Netherlands until 2026 World Cup - Koeman**\
 `Netherlands captain Virgil van Dijk will continue to play for the national team through to the 2026 World Cup, head coach Ronald Koeman has confirmed.`\
 https://nytimes.com/athletic/5741148/2024/09/03/virgil-van-dijk-netherlands-world-cup/

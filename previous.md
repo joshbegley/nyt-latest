@@ -1,9 +1,13 @@
+**2024 NFL media preview: What to expect from Tom Brady, Netflix and Bill Belichick**\
+`With Week 1 upon us, Richard Deitsch and Andrew Marchand break down the big NFL media stories for the 2024 season.`\
+https://nytimes.com/athletic/5734245/2024/09/03/2024-nfl-media-preview-what-to-expect-from-tom-brady-netflix-and-bill-belichick/
+
 **Van Dijk to play for Netherlands until 2026 World Cup - Koeman**\
 `Netherlands captain Virgil van Dijk will continue to play for the national team through to the 2026 World Cup, head coach Ronald Koeman has confirmed.`\
 https://nytimes.com/athletic/5741148/2024/09/03/virgil-van-dijk-netherlands-world-cup/
 
 **Putin Gets a Red-Carpet Welcome in Mongolia Despite Arrest Warrant**\
-`Ukrainian officials expressed outrage over the Russian leader’s visit, warning it would seek to “ensure that this has consequences” for Mongolia.`\
+`Ukrainian officials expressed outrage over the Russian leader’s visit, warning they would seek to “ensure that this has consequences” for Mongolia.`\
 https://nytimes.com/2024/09/03/world/asia/putin-mongolia-icc-arrest.html
 
 **Flames mailbag: Submit your questions for Julian McKenzie**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/03/briefing/tax-election-harris-trump.html
 **Fantasy hockey cheat sheet: League-specific rankings and projections for 2024-25**\
 `It's here! Dom Luszczyszyn shares his league-specific player rankings and projections for the 2024-25 fantasy hockey campaign.`\
 https://nytimes.com/athletic/5734473/2024/09/03/fantasy-hockey-cheat-sheet-league-specific-rankings-projections-2024-25/
-
-**Ranking broadcasts from CFB Week 1: Did CBS, NBC, Fox hype the moment?**\
-`There's been a change-up in TV networks for your favorite college games. How did the broadcasts booth handle this week's slate?`\
-https://nytimes.com/athletic/5739993/2024/09/03/broadcasts-college-football-espn-nbc-abc-cbs-fox/
 
