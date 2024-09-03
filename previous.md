@@ -1,3 +1,7 @@
+**Van Dijk to play for Netherlands until 2026 World Cup - Koeman**\
+`Netherlands captain Virgil van Dijk will continue to play for the national team through to the 2026 World Cup, head coach Ronald Koeman has confirmed.`\
+https://nytimes.com/athletic/5741148/2024/09/03/virgil-van-dijk-netherlands-world-cup/
+
 **Putin Gets a Red-Carpet Welcome in Mongolia Despite Arrest Warrant**\
 `Ukrainian officials expressed outrage over the Russian leader’s visit, warning it would seek to “ensure that this has consequences” for Mongolia.`\
 https://nytimes.com/2024/09/03/world/asia/putin-mongolia-icc-arrest.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5734473/2024/09/03/fantasy-hockey-cheat-sheet-leagu
 **Ranking broadcasts from CFB Week 1: Did CBS, NBC, Fox hype the moment?**\
 `There's been a change-up in TV networks for your favorite college games. How did the broadcasts booth handle this week's slate?`\
 https://nytimes.com/athletic/5739993/2024/09/03/broadcasts-college-football-espn-nbc-abc-cbs-fox/
-
-**Dozens of Hostages Remain in Gaza: What We Know**\
-`More than 60 living hostages, and the bodies of about 35 others taken captive on Oct. 7, are still in Gaza, the Israeli authorities say.`\
-https://nytimes.com/2024/09/03/world/middleeast/hostages-in-gaza-hamas.html
 

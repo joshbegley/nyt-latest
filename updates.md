@@ -1,3 +1,7 @@
+**Van Dijk to play for Netherlands until 2026 World Cup - Koeman**\
+`Netherlands captain Virgil van Dijk will continue to play for the national team through to the 2026 World Cup, head coach Ronald Koeman has confirmed.`\
+https://nytimes.com/athletic/5741148/2024/09/03/virgil-van-dijk-netherlands-world-cup/
+
 **Putin Gets a Red-Carpet Welcome in Mongolia Despite Arrest Warrant**\
 `Ukrainian officials expressed outrage over the Russian leader’s visit, warning it would seek to “ensure that this has consequences” for Mongolia.`\
 https://nytimes.com/2024/09/03/world/asia/putin-mongolia-icc-arrest.html
