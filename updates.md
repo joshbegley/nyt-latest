@@ -1,3 +1,7 @@
+**Word of the Day: benign**\
+`This word has appeared in 181 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/09/03/learning/word-of-the-day-benign.html
+
 **Shiny New Technology, Same Old Funny Business**\
 `Antitrust regulators are finally catching up to the methods used by modern corporations to exert their power.`\
 https://nytimes.com/2024/09/03/opinion/realpage-antitrust-landlords.html
