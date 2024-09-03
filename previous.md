@@ -1,3 +1,7 @@
+**Steelers, Heyward agree to 3-year, $45 million extension**\
+`The 35-year-old Heyward, who was entering the final year of his previous deal, is now signed through the 2026 season.`\
+https://nytimes.com/athletic/5743004/2024/09/03/cameron-heyward-steelers-contract/
+
 **49ers' Lynch: Pearsall 'doing really well' after Saturday shooting**\
 `San Francisco placed Pearsall on the reserve/non-football injury list Monday.`\
 https://nytimes.com/athletic/5742920/2024/09/03/49ers-ricky-pearsall-shooting/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/03/us/politics/supreme-court-oklahoma-federal-grants
 **A Hostage Deal Is a Poison Pill for Israel**\
 `Captives should not be ransomed at the cost of creating more hostages.`\
 https://nytimes.com/2024/09/03/opinion/israel-hostages-gaza.html
-
-**Monchi and Vidagany address Villa's PSR puzzle, keeping Emery happy, and transfer deals**\
-`Monchi and Damian Vidagany are key figures in Unai Emery's Villa rebuild. They discuss a busy and challenging summer and what is next`\
-https://nytimes.com/athletic/5739251/2024/09/03/monchi-damian-vidagany-aston-villa-transfers-psr-deductions/
 

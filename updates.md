@@ -1,3 +1,7 @@
+**Steelers, Heyward agree to 3-year, $45 million extension**\
+`The 35-year-old Heyward, who was entering the final year of his previous deal, is now signed through the 2026 season.`\
+https://nytimes.com/athletic/5743004/2024/09/03/cameron-heyward-steelers-contract/
+
 **49ers' Lynch: Pearsall 'doing really well' after Saturday shooting**\
 `San Francisco placed Pearsall on the reserve/non-football injury list Monday.`\
 https://nytimes.com/athletic/5742920/2024/09/03/49ers-ricky-pearsall-shooting/
