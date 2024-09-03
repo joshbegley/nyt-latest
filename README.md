@@ -1,3 +1,7 @@
+**The Spies of ‘Slow Horses’ Are ‘as Useless as Everyone Else’**\
+`Will Smith, the showrunner, discusses the comic spy thriller, which returns for its fourth season on Wednesday and is up for nine Emmy Awards later this month.`\
+https://nytimes.com/2024/09/03/arts/television/slow-horses-will-smith.html
+
 **Former Volkswagen Chief Executive Faces Trial in Emissions Case**\
 `Nine years after the carmaker admitted to concealing emissions on a massive scale, Martin Winterkorn will be tried in a German court.`\
 https://nytimes.com/2024/09/03/business/volkswagen-trial-emissions-ceo-winterkorn.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/09/03/well/mind/brain-health-quiz-dementia-
 **College Football Playoff 2024 projections: Miami in, LSU out of our 12-team bracket**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/09/03/college-football-playoff-projections-odds/
-
-**Blues' Torey Krug to undergo surgery on pre-arthritic ankle, miss 2024-25 season**\
-`The Blues announced Tuesday that Krug's left ankle will require surgery and he'll be sidelined indefinitely.`\
-https://nytimes.com/athletic/5741542/2024/09/03/blues-torey-krug-surgery/
 
