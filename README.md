@@ -1,3 +1,7 @@
+**Word of the Day: benign**\
+`This word has appeared in 181 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/09/03/learning/word-of-the-day-benign.html
+
 **Shiny New Technology, Same Old Funny Business**\
 `Antitrust regulators are finally catching up to the methods used by modern corporations to exert their power.`\
 https://nytimes.com/2024/09/03/opinion/realpage-antitrust-landlords.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5726879/2024/09/03/liverpools-contracts-timebomb/
 **The story of Reinier Jesus, Real Madrid's forgotten €30m Brazilian wonder kid**\
 `Reinier joined Madrid four-and-a-half years ago but has not made a single appearance for them and has just gone on his fourth loan`\
 https://nytimes.com/athletic/5739701/2024/09/03/reinier-jesus-real-madrid-brazil/
-
-**How to spot a La Masia star: The secrets of Barcelona's youth academy**\
-`Two former Barcelona academy directors - Jordi Roura and Aureli Altimira - reflect on their years of work at the club`\
-https://nytimes.com/athletic/5726025/2024/09/03/barcelona-la-masia-yamal-cubarsi-gavi/
 
