@@ -1,3 +1,23 @@
+**Transcript: Ezra Klein Interviews Jia Tolentino**\
+`The Sep. 3, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/09/03/podcasts/transcript-ezra-klein-interviews-jia-tolentino.html
+
+**Brighton set to sign Gomez from Inter Miami**\
+`Brighton &amp; Hove Albion are set to sign Diego Gomez from Inter Miami for a fee of £11million.`\
+https://nytimes.com/athletic/5649173/2024/09/03/diego-gomez-inter-miami-brighton-transfer/
+
+**Recent attacks renew Ukraine’s pleas for more air defense systems.**\
+`By Cassandra Vinograd`\
+https://nytimes.com/live/2024/09/03/world/ukraine-russia-missile-strike-poltava/recent-attacks-renew-ukraines-pleas-for-more-air-defense-systems
+
+**Chelsea's Gusto withdraws from France U21s with thigh injury**\
+`Chelsea defender Malo Gusto has withdrawn from the France Under-21 squad with a thigh injury.`\
+https://nytimes.com/athletic/5741898/2024/09/03/malo-gusto-injury-chelsea-france/
+
+**South Korean Teenagers Detained Over Deepfake Sexual Images**\
+`The country has been hit by a wave of sexually explicit videos and pictures that have spread online, prompting the authorities to launch a sweeping investigation.`\
+https://nytimes.com/2024/09/03/world/asia/south-korean-teens-deepfake-sex-images.html
+
 **The Windup: Dodgers finally putting it together?**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5741910/2024/09/03/dodgers-ohtani-freeman-the-windup/
@@ -17,24 +37,4 @@ https://nytimes.com/2024/09/03/business/volkswagen-trial-emissions-ceo-winterkor
 **Keeping the Spirit of Harlem Dance Alive**\
 `Meet three women who are celebrating, and remixing, Black dance.`\
 https://nytimes.com/interactive/2024/09/03/arts/dance/harlem-renaissance-dance-100-anniversary.html
-
-**Five Favorite Dinners From Our New Weeknight 100**\
-`Spiced roast chicken with yogurt sauce, dumpling noodle soup and mustard-lemon salmon are here for you when life gets busy (a.k.a. fall).`\
-https://nytimes.com/2024/09/03/dining/five-favorite-dinners-from-our-new-weeknight-100.html
-
-**From School Librarian to Activist: ‘The Hate Level and the Vitriol Is Unreal’**\
-`Amid a surge in book bans nationwide, the librarian Amanda Jones was targeted by vicious threats. So she decided to fight back.`\
-https://nytimes.com/2024/09/03/books/amanda-jones-librarian-book-bans.html
-
-**Oilers sign Leon Draisaitl to 8-year extension**\
-`The extension begins with the 2025-26 season.`\
-https://nytimes.com/athletic/5741833/2024/09/03/oilers-leon-draisaitl-contract-extension/
-
-**Mirtle: Why Nick Robertson should drop his trade request with the Maple Leafs**\
-`It's time for Robertson to sign, get to training camp and show what he can do in what could very well be his breakout season. `\
-https://nytimes.com/athletic/5739858/2024/09/03/nick-robertson-maple-leafs-trade-request/
-
-**Ronaldo on his role for Portugal: 'In my mind, I will always be a starter'**\
-`Portugal captain Cristiano Ronaldo has said he will continue to play at international level for as long as he &#8220;adds value&#8221; to the team and believes he should be starting.`\
-https://nytimes.com/athletic/5741620/2024/09/03/cristiano-ronaldo-portugal-future/
 
