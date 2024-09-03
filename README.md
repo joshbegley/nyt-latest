@@ -1,3 +1,7 @@
+**The Stakes on Taxes**\
+`We cover the presidential candidates’ positions on taxation.`\
+https://nytimes.com/2024/09/03/briefing/tax-election-harris-trump.html
+
 **Fantasy hockey cheat sheet: League-specific rankings and projections for 2024-25**\
 `It's here! Dom Luszczyszyn shares his league-specific player rankings and projections for the 2024-25 fantasy hockey campaign.`\
 https://nytimes.com/athletic/5734473/2024/09/03/fantasy-hockey-cheat-sheet-league-specific-rankings-projections-2024-25/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5732635/2024/09/03/nfl-team-concerns-2024-season/
 **The Push to Ban Phones in School**\
 `A growing number of states are cracking down on students’ use of the devices.`\
 https://nytimes.com/2024/09/03/podcasts/the-daily/phone-ban-school.html
-
-**Cuomo to Testify to Congress on Nursing Home Deaths During Pandemic**\
-`The former New York governor, who has already testified behind closed doors to the Republican-led House panel investigating the coronavirus pandemic, has agreed to appear on Sept. 10.`\
-https://nytimes.com/2024/09/03/us/politics/cuomo-congress-covid-nursing-home-deaths.html
 
