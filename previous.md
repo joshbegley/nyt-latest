@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5739447/2024/09/03/foden-palmer-watkins-england-squ
 https://nytimes.com/2024/09/03/world/africa/rebecca-cheptegei-uganda-olympian-burned.html
 
 **Leicester win appeal over PSR charge**\
-`Leicester City have won their appeal against a decision that allowed an independent commission to consider an alleged breach of Premier League profitability and sustainability rules (PSR) by the club.`\
+`Leicester City have won their appeal against a decision that could have seen them punished with a points deduction for an alleged breach of Premier League profitability and sustainability rules (PSR).`\
 https://nytimes.com/athletic/5742357/2024/09/03/leicester-premier-league-psr-appeal/
 
 **College football best bets Week 2: Riding with Jalon Daniels and fading Clemson's offense**\

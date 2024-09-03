@@ -1,3 +1,7 @@
+**Leicester win appeal over PSR charge**\
+`Leicester City have won their appeal against a decision that could have seen them punished with a points deduction for an alleged breach of Premier League profitability and sustainability rules (PSR).`\
+https://nytimes.com/athletic/5742357/2024/09/03/leicester-premier-league-psr-appeal/
+
 **Election 2024 Polls: Biden vs. Trump (Archived)**\
 `Our polling averages of the Biden vs. Trump matchup in the 2024 presidential race, using data from national and battleground state polls.`\
 https://nytimes.com/interactive/2024/us/elections/polls-biden-archive.html
