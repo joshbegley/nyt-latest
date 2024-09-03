@@ -1,3 +1,7 @@
+**San Francisco Giants week in review: It wasn't great, as playoff hopes fade**\
+`The Giants played two series last week and lost them both, as their playoff chances continue to diminish.`\
+https://nytimes.com/athletic/5740964/2024/09/03/sf-giants-week-in-review-offensive-struggles/
+
 **Hewlett-Packard to Pursue $4 Billion Claim Against Mike Lynch’s Estate**\
 `The money is tied to a fraud lawsuit in Britain by the tech services giant over its acquisition of Autonomy, the software firm founded by Mr. Lynch, who died last month when his yacht sank.`\
 https://nytimes.com/2024/09/03/business/dealbook/mike-lynch-hp-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5741910/2024/09/03/dodgers-ohtani-freeman-the-windu
 **Seeing Dances of the Harlem Renaissance, in Vivid Color**\
 `An immersive article spotlights choreographers who are carrying forward the legacy of Black dance forms that flourished 100 years ago.`\
 https://nytimes.com/2024/09/03/insider/seeing-dances-of-the-harlem-renaissance-in-vivid-color.html
-
-**The Spies of ‘Slow Horses’ Are ‘as Useless as Everyone Else’**\
-`Will Smith, the showrunner, discusses the comic spy thriller, which returns for its fourth season on Wednesday and is up for nine Emmy Awards later this month.`\
-https://nytimes.com/2024/09/03/arts/television/slow-horses-will-smith.html
 

@@ -1,3 +1,7 @@
+**San Francisco Giants week in review: It wasn't great, as playoff hopes fade**\
+`The Giants played two series last week and lost them both, as their playoff chances continue to diminish.`\
+https://nytimes.com/athletic/5740964/2024/09/03/sf-giants-week-in-review-offensive-struggles/
+
 **Hewlett-Packard to Pursue $4 Billion Claim Against Mike Lynch’s Estate**\
 `The money is tied to a fraud lawsuit in Britain by the tech services giant over its acquisition of Autonomy, the software firm founded by Mr. Lynch, who died last month when his yacht sank.`\
 https://nytimes.com/2024/09/03/business/dealbook/mike-lynch-hp-lawsuit.html
