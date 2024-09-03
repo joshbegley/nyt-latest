@@ -1,3 +1,25 @@
+**PWHL Minnesota names Melissa Caruso as new GM**\
+`The PWHL has hired longtime AHL executive Melissa Caruso as the new general manager of its Minnesota franchise.`\
+https://nytimes.com/athletic/5742095/2024/09/03/pwhl-minnesota-general-manager-melissa-caruso/
+
+**Trump Aides Evacuated Offices After Prank Sparked Bugging Fears**\
+`Police were called after suspicious devices were found at a Florida campaign office. It was quickly determined that the devices were likely part of a prank.`\
+https://nytimes.com/2024/09/03/us/politics/trump-prank-devices.html
+
+**Surprise! A Class of College Seniors Learns Their Tuition Will Be Free.**\
+`Tuition used to be free for all students at the Cooper Union, in New York City. The school announced it is bringing back the perk, at least for seniors.`\
+https://nytimes.com/2024/09/03/us/free-tuition-cooper-union.html
+
+**F1 designer Adrian Newey set for Aston Martin move in 2025, per sources: What it means**\
+`The arrival of Newey, one of the greatest designers in F1 history, would be the latest major signing for Aston Martin. 
+`\
+https://nytimes.com/athletic/5742008/2024/09/03/f1-adrian-newey-aston-martin-red-bull/
+
+**NHL contract grades: Leon Draisaitl secures long-term future in Edmonton**\
+`Locking in Draisaitl avoids a season-long distraction and sends a clear message that the Oilers are not taking their foot off the gas.
+`\
+https://nytimes.com/athletic/5741905/2024/09/03/leon-draisaitl-oilers-contract/
+
 **F1 designer Adrian Newey set for Aston Martin move in 2025, per sources: What it means**\
 `The arrival of Newey, one of the greatest designers in F1 history, would be the latest major signing for Aston Martin. 
 `\
