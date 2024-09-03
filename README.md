@@ -1,40 +1,40 @@
-**Creating an Artistic Buzz, One Real Estate Development at a Time**\
-`Artwork has been part of urban projects for decades, but a new push from developers looking for ways to drive foot traffic has created a boom for the art world.`\
-https://nytimes.com/2024/09/03/business/real-estate-public-art.html
+**What I'm seeing from the Pittsburgh Steelers: Najee Harris in good spot, other observations**\
+`The Steelers overhauled their offense, but one of the holdovers, Harris, could be the key. Still, the defense figures to lead the way.`\
+https://nytimes.com/athletic/5734159/2024/09/03/najee-harris-steelers-observations/
 
-**The Dream Was a House on the Russian River (on a Budget)**\
-`Getting there required buying something far worse than the typical fixer-upper: “It was like excavating in Pompeii.”`\
-https://nytimes.com/2024/09/03/realestate/healdsburg-russian-river-home-california.html
+**Don’t Flip Out Over Election Forecasts**\
+`Election forecasters and their predictive models in the presidential race are in the spotlight. Here’s how to understand this work better.`\
+https://nytimes.com/2024/09/03/opinion/harris-trump-polls.html
 
-**As many Israelis push for an immediate hostage deal, the prime minister has refused to change course.**\
-`In strikes and protests, many Israelis are pushing their government to prioritize the release of hostages above the immediate defeat of Hamas. Benjamin Netanyahu, the prime minister, has refused to change course.`\
-https://nytimes.com/live/2024/09/03/world/israel-hamas-gaza-war/as-many-israelis-push-for-an-immediate-hostage-deal-the-prime-minister-has-refused-to-change-course
+**Vance Championed 2017 Report on Families From Architects of Project 2025**\
+`JD Vance, as he was dipping his toe into politics, praised the Heritage Foundation report — 29 essays opposing abortion and seeking to instruct Americans on how to raise children — as “admirable.”`\
+https://nytimes.com/2024/09/03/us/politics/vance-heritage-report.html
 
-**Wolves' Podence completes permanent move to Al Shabab**\
-`Wolverhampton Wanderers forward Daniel Podence has completed his move to Al Shabab.`\
-https://nytimes.com/athletic/5741085/2024/09/03/wolves-podence-saudi-transfer/
+**James Carville: Three Things Kamala Harris Must Do to Win**\
+`She has to help Trump hurt himself in the debate, break with Biden on policy and show how she has grown since the 2020 campaign.`\
+https://nytimes.com/2024/09/03/opinion/harris-trump-election.html
 
-**U.S. Open day 8 recap: Two match points from heaven and an electronic line-calling fault**\
-`The world No. 1 excelled in defence and attack, while two completely contrasting match points elsewhere told a story.`\
-https://nytimes.com/athletic/5740727/2024/09/03/u-s-open-day-8-takeaways-iga-swiateks-backhand-two-amazing-match-points-hawkeye-down/
+**In ‘Lovely One,’ Ketanji Brown Jackson Credits the Mentors Who Lifted Her Up**\
+`The Supreme Court justice’s memoir is deeply personal and full of hope, and highlights a fairy-tale marriage to her college boyfriend.`\
+https://nytimes.com/2024/09/03/books/review/ketanji-brown-jackson-lovely-one.html
 
-**Back to School**\
-`How do you feel about the start of a new academic year?`\
-https://nytimes.com/2024/09/03/learning/back-to-school.html
+**These Young Voters Offer a Road Map For Kamala Harris**\
+`Listen in on this focus group with undecided Gen Z voters.`\
+https://nytimes.com/2024/09/03/opinion/harris-turmp-undecided-young-voters.html
 
-**U.S. Open quarterfinals: Emma Navarro aims for semis before an Australian Open final rematch**\
-`The last eight in the bottom half of the draws fight for a place in the semifinals.`\
-https://nytimes.com/athletic/5740190/2024/09/03/us-open-quarterfinal-watch-guide-navarro-zheng-sabalenka-tiafoe/
+**Activists Charged With Pushing Russian Propaganda Go on Trial in Florida**\
+`Experts say the case offers a window into how the Russian government tries to influence American elections and promote its own geopolitical agenda.`\
+https://nytimes.com/2024/09/03/us/activists-russian-propaganda-florida-trial.html
 
-**Migrants in N.Y. Shelters Face Surprising Challenge: Getting Their Mail**\
-`Mail delivery has become a complicated endeavor at hotels and other places converted into shelters, with important documents getting lost or delayed.`\
-https://nytimes.com/2024/09/03/nyregion/migrants-mail-shelter-nyc.html
+**College Students Need to Grow Up. Schools Need to Let Them.**\
+`It’s time for students to take back their independence.`\
+https://nytimes.com/2024/09/03/opinion/college-students-adulting.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/09/03/crosswords/spelling-bee-forum.html
+**In Harris’s Ads, Project 2025 Is No Longer a Joke**\
+`The tone has shifted from the more comic references at the convention.`\
+https://nytimes.com/live/2024/08/27/opinion/thepoint/tipsheet-trump-harris-project2025
 
-**Left-Wing Misinformation Is Having a Moment**\
-`America’s right flank remains the chief purveyor of misinformation, but this summer’s political tumult created ideal conditions for falsehoods to spread among progressives.`\
-https://nytimes.com/2024/09/03/technology/left-wing-misinformation-conspiracy-theories.html
+**On Children, Meaning, Media and Psychedelics**\
+`The writer Jia Tolentino on parenting — and living a good life — in the age of smartphones.`\
+https://nytimes.com/2024/09/03/opinion/ezra-klein-podcast-jia-tolentino.html
 
