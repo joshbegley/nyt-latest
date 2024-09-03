@@ -1,3 +1,15 @@
+**Full Time: How NWSL free agency will work**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
+https://nytimes.com/athletic/5742184/2024/09/03/nwsl-free-agency-trades-orlando-pride-full-time/
+
+**Cubs get good news on Justin Steele's elbow, avoid injured list stint for now**\
+`As important as it is for them to try to make a run this month they also know that Steele’s health is critical to their success beyond 2024.`\
+https://nytimes.com/athletic/5743123/2024/09/03/cubs-justin-steele-elbow-update-positive/
+
+**Inside Oilers-Leon Draisaitl contract talks: A 'smooth' process despite GM search, Blues offer sheets**\
+`The sides arrived at a contract that is poised to make Draisaitl the NHL's highest-paid player at $14 million when it kicks in next season.`\
+https://nytimes.com/athletic/5742745/2024/09/03/leon-draisaitl-oilers-negotiations/
+
 **Ex-Doctor Pleads Guilty to Manslaughter in New York Woman’s Suicide**\
 `Stephen Miller, a right-to-die advocate, was sentenced to five years’ probation. His lawyer said that “morally” Mr. Miller had done nothing wrong.`\
 https://nytimes.com/2024/09/03/nyregion/doctor-assisted-suicide-ny-guilty.html
