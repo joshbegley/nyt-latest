@@ -1,3 +1,11 @@
+**‘The Notebook’ Will End Its Broadway Run in December. A Tour Is Next.**\
+`The show, nominated for three Tony Awards, opened March 14 at the Gerald Schoenfeld Theater. It will go on a national tour starting next September.`\
+https://nytimes.com/2024/09/03/theater/notebook-broadway-closing.html
+
+**Arsenal Women duo to miss Champions League tie - Eidevall**\
+`Jonas Eidevall has confirmed that Beth Mead and Steph Catley will miss Arsenal’s Champions League qualifier against Rangers on Wednesday evening.`\
+https://nytimes.com/athletic/5741603/2024/09/03/beth-mead-steph-catley-arsenal/
+
 **The Harris operation will send $24.5 million to groups supporting down-ballot Democrats.**\
 `By Reid J. Epstein`\
 https://nytimes.com/2024/09/03/us/politics/the-harris-operation-will-send-24-5-million-to-groups-supporting-down-ballot-democrats.html
