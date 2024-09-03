@@ -1,3 +1,7 @@
+**Ugandan Opposition Leader Bobi Wine Shot in Leg in Clash With Police**\
+`Mr. Wine, a pop star turned politician who ran for president, is in the hospital, but his injuries are not life-threatening, one of his lawyers said.`\
+https://nytimes.com/2024/09/03/world/africa/uganda-bobi-wine-shot.html
+
 **Full Time: How NWSL free agency will work**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter. `\
 https://nytimes.com/athletic/5742184/2024/09/03/nwsl-free-agency-trades-orlando-pride-full-time/

@@ -1,3 +1,7 @@
+**Ugandan Opposition Leader Bobi Wine Shot in Leg in Clash With Police**\
+`Mr. Wine, a pop star turned politician who ran for president, is in the hospital, but his injuries are not life-threatening, one of his lawyers said.`\
+https://nytimes.com/2024/09/03/world/africa/uganda-bobi-wine-shot.html
+
 **Full Time: How NWSL free agency will work**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter. `\
 https://nytimes.com/athletic/5742184/2024/09/03/nwsl-free-agency-trades-orlando-pride-full-time/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/03/weather/summer-heat-forecast-las-vegas.html
 **Chicago Man Charged in Fatal Shootings of Four Sleeping Train Passengers**\
 `“This was a random act of violence,” an official said. The man, 30, faces four counts of murder.`\
 https://nytimes.com/2024/09/03/us/chicago-train-fatal-shootings.html
-
-**U.S. Charges Hamas Leaders in Oct. 7 Massacre**\
-`Yahya Sinwar, the group’s political chief, was charged with carrying out the terrorist attacks that resulted in the killing of at least 43 Americans. Five other Hamas senior leaders were also charged.`\
-https://nytimes.com/2024/09/03/us/politics/hamas-leaders-charged-sinwar.html
 
