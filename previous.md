@@ -1,3 +1,11 @@
+**Taylor Fritz beats Alexander Zverev at U.S. Open for first Grand Slam semifinal**\
+`The American came through another tight contest with the German to advance to the last four.`\
+https://nytimes.com/athletic/5742880/2024/09/03/taylor-fritz-zverev-us-open-result/
+
+**Here are some of the other deadly strikes in Ukraine’s war with Russia.**\
+`By Eve Sampson`\
+https://nytimes.com/live/2024/09/03/world/ukraine-russia-missile-strike-poltava/here-are-some-of-the-other-deadly-strikes-in-ukraines-war-with-russia
+
 **Richard A Brown**\
 `News about Richard A Brown. Commentary and archival information about Richard A Brown from The New York Times.`\
 https://nytimes.com/topic/richard-a-brown
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/08/27/opinion/thepoint/trump-harris-bidenomics-mis
 **Tiny Love Stories: ‘A Drunk Dial Followed by Sporadic G-Chats ’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/09/03/style/tiny-modern-love-stories-a-drunk-dial-followed-by-sporadic-gchats.html
-
-**The Best Movies and TV Shows Coming to Netflix in September**\
-`A glitzy mystery starring Nicole Kidman arrives early this month; later, a new true-crime series tells the troubling tale of Lyle and Erik Menendez.`\
-https://nytimes.com/2024/09/03/arts/television/netflix-best-new-movies-tv.html
-
-**PWHL Toronto to play at Coca-Cola Coliseum in 2024-25**\
-`The arena is also home to the AHL’s Toronto Marlies and will serve as the home court for the WNBA’s Toronto expansion franchise in 2026.`\
-https://nytimes.com/athletic/5742653/2024/09/03/pwhl-toronto-arena-2024-25-season/
 

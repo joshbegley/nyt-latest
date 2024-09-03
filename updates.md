@@ -1,3 +1,11 @@
+**Taylor Fritz beats Alexander Zverev at U.S. Open for first Grand Slam semifinal**\
+`The American came through another tight contest with the German to advance to the last four.`\
+https://nytimes.com/athletic/5742880/2024/09/03/taylor-fritz-zverev-us-open-result/
+
+**Here are some of the other deadly strikes in Ukraine’s war with Russia.**\
+`By Eve Sampson`\
+https://nytimes.com/live/2024/09/03/world/ukraine-russia-missile-strike-poltava/here-are-some-of-the-other-deadly-strikes-in-ukraines-war-with-russia
+
 **Richard A Brown**\
 `News about Richard A Brown. Commentary and archival information about Richard A Brown from The New York Times.`\
 https://nytimes.com/topic/richard-a-brown
