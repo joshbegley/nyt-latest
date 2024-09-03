@@ -1,3 +1,15 @@
+**Creating an Artistic Buzz, One Real Estate Development at a Time**\
+`Artwork has been part of urban projects for decades, but a new push from developers looking for ways to drive foot traffic has created a boom for the art world.`\
+https://nytimes.com/2024/09/03/business/real-estate-public-art.html
+
+**The Dream Was a House on the Russian River (on a Budget)**\
+`Getting there required buying something far worse than the typical fixer-upper: “It was like excavating in Pompeii.”`\
+https://nytimes.com/2024/09/03/realestate/healdsburg-russian-river-home-california.html
+
+**As many Israelis push for an immediate hostage deal, the prime minister has refused to change course.**\
+`In strikes and protests, many Israelis are pushing their government to prioritize the release of hostages above the immediate defeat of Hamas. Benjamin Netanyahu, the prime minister, has refused to change course.`\
+https://nytimes.com/live/2024/09/03/world/israel-hamas-gaza-war/as-many-israelis-push-for-an-immediate-hostage-deal-the-prime-minister-has-refused-to-change-course
+
 **Wolves' Podence completes permanent move to Al Shabab**\
 `Wolverhampton Wanderers forward Daniel Podence has completed his move to Al Shabab.`\
 https://nytimes.com/athletic/5741085/2024/09/03/wolves-podence-saudi-transfer/
