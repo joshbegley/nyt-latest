@@ -1,3 +1,7 @@
+**Steve Bruce appointed Blackpool head coach**\
+`Steve Bruce has returned to management with League One side Blackpool, signing a two-year contract to become their new head coach.`\
+https://nytimes.com/athletic/5742794/2024/09/03/steve-bruce-blackpool-head-coach/
+
 **Wednesday Briefing: Russian Strike Kills 50 in Ukraine**\
 `Plus, a quiz to test healthy brain habits.`\
 https://nytimes.com/2024/09/03/briefing/russia-strike-harris-polio.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5742374/2024/09/03/nwsl-free-agency-best-available-
 **Lebanon Detains Former Head of Central Bank**\
 `Riad Salameh, once seen as an international financial wizard, is the subject of multiple investigations and has attracted blame for the country’s economic crisis.`\
 https://nytimes.com/2024/09/03/world/middleeast/lebanon-central-bank-arrest-salameh.html
-
-**Panic time for Seminoles, plus rankings and more rankings**\
-`Welcome to Until Saturday, the five-star college football newsletter: Is it time for Florid State to panic at 0-2?`\
-https://nytimes.com/athletic/5741438/2024/09/03/florida-state-football-ap-top-25-until-saturday/
 

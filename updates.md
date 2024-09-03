@@ -1,3 +1,7 @@
+**Steve Bruce appointed Blackpool head coach**\
+`Steve Bruce has returned to management with League One side Blackpool, signing a two-year contract to become their new head coach.`\
+https://nytimes.com/athletic/5742794/2024/09/03/steve-bruce-blackpool-head-coach/
+
 **Wednesday Briefing: Russian Strike Kills 50 in Ukraine**\
 `Plus, a quiz to test healthy brain habits.`\
 https://nytimes.com/2024/09/03/briefing/russia-strike-harris-polio.html
