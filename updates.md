@@ -1,3 +1,7 @@
+**23 New Restaurants to Try This Fall**\
+`The season’s marquee openings in New York City include the next move from Kent Hospitality, the first Manhattan restaurant from Andrew Tarlow and more.`\
+https://nytimes.com/2024/09/03/dining/new-restaurants-nyc-fall.html
+
 **Cincinnati DT Dontay Corleone cleared to play**\
 `He’s expected to be a full participant in practice Tuesday, and his status for Saturday’s game against Pitt will be determined.`\
 https://nytimes.com/athletic/5741985/2024/09/03/cincinnati-dontay-corleone-blood-clots-cleared/

@@ -1,3 +1,7 @@
+**23 New Restaurants to Try This Fall**\
+`The season’s marquee openings in New York City include the next move from Kent Hospitality, the first Manhattan restaurant from Andrew Tarlow and more.`\
+https://nytimes.com/2024/09/03/dining/new-restaurants-nyc-fall.html
+
 **Cincinnati DT Dontay Corleone cleared to play**\
 `He’s expected to be a full participant in practice Tuesday, and his status for Saturday’s game against Pitt will be determined.`\
 https://nytimes.com/athletic/5741985/2024/09/03/cincinnati-dontay-corleone-blood-clots-cleared/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5741898/2024/09/03/malo-gusto-injury-chelsea-france
 **South Korean Teenagers Detained Over Deepfake Sexual Images**\
 `The country has been hit by a wave of sexually explicit videos and pictures that have spread online, prompting the authorities to launch a sweeping investigation.`\
 https://nytimes.com/2024/09/03/world/asia/south-korean-teens-deepfake-sex-images.html
-
-**The Windup: Dodgers finally putting it together?**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5741910/2024/09/03/dodgers-ohtani-freeman-the-windup/
 
