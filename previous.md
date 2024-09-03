@@ -1,3 +1,11 @@
+**Mirtle: Why Nick Robertson should drop his trade request with the Maple Leafs**\
+`It's time for Robertson to sign, get to training camp and show what he can do in what could very well be his breakout season. `\
+https://nytimes.com/athletic/5739858/2024/09/03/nick-robertson-maple-leafs-trade-request/
+
+**Ronaldo on his role for Portugal: 'In my mind, I will always be a starter'**\
+`Portugal captain Cristiano Ronaldo has said he will continue to play at international level for as long as he &#8220;adds value&#8221; to the team and believes he should be starting.`\
+https://nytimes.com/athletic/5741620/2024/09/03/cristiano-ronaldo-portugal-future/
+
 **Russia’s Attack on Poltava Comes After a Week of Strikes in Ukraine**\
 `Moscow appears to have stepped up the tempo of its attacks, resulting in a wave of death and destruction in Ukraine.`\
 https://nytimes.com/2024/09/03/world/europe/poltava-ukraine-strikes.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/03/world/europe/migrant-boat-english-channel.html
 **The pace of the war in Ukraine has been picking up in recent weeks.**\
 `By Cassandra Vinograd and Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/09/03/world/ukraine-russia-missile-strike-poltava/the-pace-of-the-war-in-ukraine-has-been-picking-up-in-recent-weeks
-
-**Britain Awards Renewable Energy Contracts That Could Power 11 Million Homes**\
-`The successful outcome of the government auction for renewable energy projects may bolster a wind industry battered by rising costs.`\
-https://nytimes.com/2024/09/03/business/britain-offshore-wind-auction.html
-
-**Scoop City: 10 Bold Predictions for 2024**\
-`Why the Chiefs won't win their third straight Super Bowl, a look at Week 1 waiver options and a note on Anthony Richardson`\
-https://nytimes.com/athletic/5741562/2024/09/03/scoop-city-10-bold-predictions-for-2024/
 

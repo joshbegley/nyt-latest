@@ -1,3 +1,11 @@
+**Mirtle: Why Nick Robertson should drop his trade request with the Maple Leafs**\
+`It's time for Robertson to sign, get to training camp and show what he can do in what could very well be his breakout season. `\
+https://nytimes.com/athletic/5739858/2024/09/03/nick-robertson-maple-leafs-trade-request/
+
+**Ronaldo on his role for Portugal: 'In my mind, I will always be a starter'**\
+`Portugal captain Cristiano Ronaldo has said he will continue to play at international level for as long as he &#8220;adds value&#8221; to the team and believes he should be starting.`\
+https://nytimes.com/athletic/5741620/2024/09/03/cristiano-ronaldo-portugal-future/
+
 **Russia’s Attack on Poltava Comes After a Week of Strikes in Ukraine**\
 `Moscow appears to have stepped up the tempo of its attacks, resulting in a wave of death and destruction in Ukraine.`\
 https://nytimes.com/2024/09/03/world/europe/poltava-ukraine-strikes.html
