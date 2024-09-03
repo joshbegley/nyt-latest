@@ -1,3 +1,11 @@
+**Upper Hand**\
+`Alex Eaton-Salners crosses the floor.`\
+https://nytimes.com/2024/09/02/crosswords/daily-puzzle-2024-09-03.html
+
+**Shohei Ohtani excited to return to "special place" in Anaheim**\
+`When Ohtani steps into the batter’s box at Angel Stadium on Tuesday, it will mark his first time doing so in that park for a winning club.`\
+https://nytimes.com/athletic/5740809/2024/09/02/shohei-ohtani-return-to-anaheim/
+
 **Luis Suarez: Biting, racism, on-field genius - the most divisive player in world soccer**\
 `Looking back at the history of surreal events that made Suarez perhaps the most hated men in world soccer`\
 https://nytimes.com/athletic/5114631/2024/09/02/luis-suarez-career-history-inter-miami-mls-messi/
