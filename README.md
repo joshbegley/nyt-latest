@@ -1,3 +1,7 @@
+**MLB says teams carried by Diamond "unable to plan" 2025 revenues, threatens legal action**\
+`A judge approved deals between Diamond and the NHL and NBA, but MLB argues that the broadcaster's plans won't work for baseball. `\
+https://nytimes.com/athletic/5743074/2024/09/03/mlb-diamond-threat-legal-action/
+
 **Ugandan Opposition Leader Bobi Wine Shot in Leg in Clash With Police**\
 `Mr. Wine, a pop star turned politician who ran for president, is in the hospital, but his injuries are not life-threatening, one of his lawyers said.`\
 https://nytimes.com/2024/09/03/world/africa/uganda-bobi-wine-shot.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/03/us/ketanji-brown-jackson-memoir.html
 **Las Vegas, Scorched by Its Hottest Summer on Record, Prepares for More 100-Degree Heat**\
 `Much of the Western U.S. will bake in high temperatures this week. Excessive-heat warnings have been issued for major cities including Las Vegas and Los Angeles.`\
 https://nytimes.com/2024/09/03/weather/summer-heat-forecast-las-vegas.html
-
-**Chicago Man Charged in Fatal Shootings of Four Sleeping Train Passengers**\
-`“This was a random act of violence,” an official said. The man, 30, faces four counts of murder.`\
-https://nytimes.com/2024/09/03/us/chicago-train-fatal-shootings.html
 
