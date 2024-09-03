@@ -1,3 +1,15 @@
+**Former Volkswagen Chief Executive Faces Trial in Emissions Case**\
+`Nine years after the carmaker admitted to concealing emissions on a massive scale, Martin Winterkorn will be tried in a German court.`\
+https://nytimes.com/2024/09/03/business/volkswagen-trial-emissions-ceo-winterkorn.html
+
+**Keeping the Spirit of Harlem Dance Alive**\
+`Meet three women who are celebrating, and remixing, Black dance.`\
+https://nytimes.com/interactive/2024/09/03/arts/dance/harlem-renaissance-dance-100-anniversary.html
+
+**Five Favorite Dinners From Our New Weeknight 100**\
+`Spiced roast chicken with yogurt sauce, dumpling noodle soup and mustard-lemon salmon are here for you when life gets busy (a.k.a. fall).`\
+https://nytimes.com/2024/09/03/dining/five-favorite-dinners-from-our-new-weeknight-100.html
+
 **From School Librarian to Activist: ‘The Hate Level and the Vitriol Is Unreal’**\
 `Amid a surge in book bans nationwide, the librarian Amanda Jones was targeted by vicious threats. So she decided to fight back.`\
 https://nytimes.com/2024/09/03/books/amanda-jones-librarian-book-bans.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5701128/2024/09/03/college-football-playoff-project
 **Blues' Torey Krug to undergo surgery on pre-arthritic ankle, miss 2024-25 season**\
 `The Blues announced Tuesday that Krug's left ankle will require surgery and he'll be sidelined indefinitely.`\
 https://nytimes.com/athletic/5741542/2024/09/03/blues-torey-krug-surgery/
-
-**‘The Notebook’ Will End Its Broadway Run in December. A Tour Is Next.**\
-`The show, nominated for three Tony Awards, opened March 14 at the Gerald Schoenfeld Theater. It will go on a national tour starting next September.`\
-https://nytimes.com/2024/09/03/theater/notebook-broadway-closing.html
-
-**Arsenal Women duo to miss Champions League tie - Eidevall**\
-`Jonas Eidevall has confirmed that Beth Mead and Steph Catley will miss Arsenal’s Champions League qualifier against Rangers on Wednesday evening.`\
-https://nytimes.com/athletic/5741603/2024/09/03/beth-mead-steph-catley-arsenal/
-
-**At Least 12 Die Trying to Cross English Channel, French Authorities Say**\
-`The French maritime authorities said that 65 people were picked up from the sea after their vessel encountered unspecified difficulties.`\
-https://nytimes.com/2024/09/03/world/europe/migrant-boat-english-channel.html
 
