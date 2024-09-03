@@ -1,3 +1,11 @@
+**Foden, Palmer and Watkins withdraw from England squad**\
+`Phil Foden, Cole Palmer and Ollie Watkins have withdrawn from the England squad for their upcoming Nations League fixtures.`\
+https://nytimes.com/athletic/5739447/2024/09/03/foden-palmer-watkins-england-squad-out/
+
+**An Olympic Runner From Uganda Is Severely Burned in Gasoline Attack**\
+`Rebecca Cheptegei, a long-distance runner who competed in the Olympic marathon in Paris, is in critical condition after a man poured gas on her and set her on fire, police in Kenya said.`\
+https://nytimes.com/2024/09/03/world/africa/rebecca-cheptegei-uganda-olympian-burned.html
+
 **Leicester win appeal over PSR charge**\
 `Leicester City have won their appeal against a decision that allowed an independent commission to consider an alleged breach of Premier League profitability and sustainability rules (PSR) by the club.`\
 https://nytimes.com/athletic/5742357/2024/09/03/leicester-premier-league-psr-appeal/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5741748/2024/09/03/college-football-week-2-odds-sch
 **Bruins' Brad Marchand starting contract year behind schedule after 3 surgeries**\
 `The Bruins captain had surgery for a torn tendon in his elbow this offseason. He also underwent groin and hernia procedures.`\
 https://nytimes.com/athletic/5742286/2024/09/03/bruins-brad-marchand-surgeries/
-
-**Christmas Starts in October, Venezuela’s Autocrat Declares**\
-`With the nation’s democracy in shambles, President Nicolás Maduro tries to inject some holiday cheer.`\
-https://nytimes.com/2024/09/03/world/americas/venezuela-maduro-christmas-october.html
-
-**Ease Into Fall With 7 Songs for September**\
-`Listen to tracks inspired by this month of transitions and memories from Green Day, Barry White, Fiona Apple and more.`\
-https://nytimes.com/2024/09/03/arts/music/amplifier-newsletter-september-songs.html
 
