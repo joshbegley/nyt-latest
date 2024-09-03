@@ -1,3 +1,7 @@
+**No Time to Run: Russian Missiles Hit Ukraine City Just After Sirens Sound**\
+`More than 50 people were killed by two high-speed missiles that hit a military academy in the eastern city of Poltava, one of the most lethal Russian strikes in the war.`\
+https://nytimes.com/2024/09/03/world/europe/ukraine-military-school-attack.html
+
 **Trump’s Misleading Attempt to Make Harris Responsible for Inflation**\
 `“Bidenomics” will only be uttered by Republicans trying to blame Harris for the post-pandemic rise in prices.`\
 https://nytimes.com/live/2024/08/27/opinion/thepoint/trump-harris-bidenomics-misleading
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5741438/2024/09/03/florida-state-football-ap-top-25
 **His Parents Are Susan Sarandon and Tim Robbins. That’s the Joke.**\
 `In a series of videos, Jack Robbins has been lampooning nepo baby culture — and embracing it — with help from his parents and Steven Spielberg’s daughter.`\
 https://nytimes.com/2024/09/03/style/jack-robbins-nepo-baby-videos.html
-
-**Arkansas State's game-winning TD should've been no good, Sun Belt says**\
-`'The replay ruling should have confirmed the on-field call of an incomplete pass,' the Sun Belt said.`\
-https://nytimes.com/athletic/5742562/2024/09/03/arkansas-state-central-arkansas-sun-belt/
 

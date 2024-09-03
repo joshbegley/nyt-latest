@@ -1,3 +1,7 @@
+**No Time to Run: Russian Missiles Hit Ukraine City Just After Sirens Sound**\
+`More than 50 people were killed by two high-speed missiles that hit a military academy in the eastern city of Poltava, one of the most lethal Russian strikes in the war.`\
+https://nytimes.com/2024/09/03/world/europe/ukraine-military-school-attack.html
+
 **Trump’s Misleading Attempt to Make Harris Responsible for Inflation**\
 `“Bidenomics” will only be uttered by Republicans trying to blame Harris for the post-pandemic rise in prices.`\
 https://nytimes.com/live/2024/08/27/opinion/thepoint/trump-harris-bidenomics-misleading
