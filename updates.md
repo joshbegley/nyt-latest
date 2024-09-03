@@ -1,3 +1,7 @@
+**Scoop City: 10 Bold Predictions for 2024**\
+`Why the Chiefs won't win their third straight Super Bowl, a look at Week 1 waiver options and a note on Anthony Richardson`\
+https://nytimes.com/athletic/5741562/2024/09/03/scoop-city-10-bold-predictions-for-2024/
+
 **Former Aide to Hochul and Cuomo Arrested on Federal Charges**\
 `Linda Sun, a former deputy chief of staff to Gov. Kathy Hochul, and her husband were arrested on Tuesday on charges that remain sealed.`\
 https://nytimes.com/2024/09/03/nyregion/linda-sun-arrested-hochul.html
