@@ -1,4 +1,8 @@
-**Blues' Torey Krug to have surgery on pre-arthritic ankle, miss 2024-25 season**\
+**College Football Playoff 2024 projections: Miami in, LSU out of our 12-team bracket**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/09/03/college-football-playoff-projections-odds/
+
+**Blues' Torey Krug to undergo surgery on pre-arthritic ankle, miss 2024-25 season**\
 `The Blues announced Tuesday that Krug's left ankle will require surgery and he'll be sidelined indefinitely.`\
 https://nytimes.com/athletic/5741542/2024/09/03/blues-torey-krug-surgery/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/03/nyregion/linda-sun-arrested-hochul.html
 **Deadly Strike Destroys Buildings in Eastern Ukrainian City**\
 `Ukrainian officials said that a search and rescue operation was underway after two Russian ballistic missiles hit a military academy and a nearby hospital in Poltava, Ukraine.`\
 https://nytimes.com/video/world/europe/100000009670562/ukraine-strike-poltava.html
-
-**Live by the portal, die by the portal: FSU's 0-2 start proof latest haul not special enough**\
-`The 2024 Seminoles look more like the teams Mike Norvell coached through 3-6 and 5-7 seasons than the last two that finished 10-3 and 13-1.`\
-https://nytimes.com/athletic/5741258/2024/09/03/florida-state-roster-struggles-transfer-portal/
 
