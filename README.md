@@ -36,5 +36,5 @@ https://nytimes.com/interactive/2024/09/03/books/review/cold-war-novels.html
 
 **The Harris operation will send $24.5 million to groups supporting down-ballot Democrats.**\
 `By Reid J. Epstein`\
-https://nytimes.com/live/2024/09/03/us/harris-trump-election/the-harris-operation-will-send-24-5-million-to-groups-supporting-down-ballot-democrats
+https://nytimes.com/2024/09/03/us/politics/the-harris-operation-will-send-24-5-million-to-groups-supporting-down-ballot-democrats.html
 
