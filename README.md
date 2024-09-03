@@ -1,3 +1,7 @@
+**Back to School**\
+`How do you feel about the start of a new academic year?`\
+https://nytimes.com/2024/09/03/learning/back-to-school.html
+
 **U.S. Open quarterfinals: Emma Navarro aims for semis before an Australian Open final rematch**\
 `The last eight in the bottom half of the draws fight for a place in the semifinals.`\
 https://nytimes.com/athletic/5740190/2024/09/03/us-open-quarterfinal-watch-guide-navarro-zheng-sabalenka-tiafoe/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/03/opinion/realpage-antitrust-landlords.html
 **What to watch for each NFL team as fantasy football 2024 gets set for liftoff**\
 `John Laghezza offers up a situation to watch for each NFL team, including some overlooked tight ends with plenty of fantasy football upside.`\
 https://nytimes.com/athletic/5734407/2024/09/03/what-to-watch-for-each-nfl-team-as-fantasy-football-2024-gets-set-for-liftoff/
-
-**Everton's transfer window: Deferring deals, PSR - and 12 contracted players for next season**\
-`After another challenging window, Everton will hope this isn’t the season years of poor decision-making and turmoil catch up to them`\
-https://nytimes.com/athletic/5739517/2024/09/03/everton-transfer-window-dyche/
 
