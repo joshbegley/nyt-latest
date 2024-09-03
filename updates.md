@@ -1,3 +1,11 @@
+**A Heat Pump Can Cut Your Emissions. But Read This Before You Switch.**\
+`A Times climate reporter recounts his journey to switch his home’s HVAC system to a climate-friendly heat pump.`\
+https://nytimes.com/2024/09/03/climate/switching-to-a-heat-pump.html
+
+**AP Top 25: Georgia No. 1; Georgia Tech ends 9-year poll drought**\
+`Georgia, Ohio State, Texas, Alabama and Notre Dame are the top five teams in this week's AP Top 25 college football poll.`\
+https://nytimes.com/athletic/5742199/2024/09/03/ap-top-25-poll-rankings-georgia-tech/
+
 **U.S. and Iraqi Commandos Targeted ISIS in Sprawling Operation**\
 `The number of insurgent attacks has increased, officials say, as Iraq and the United States negotiate a plan to wind down the U.S.-led military mission.`\
 https://nytimes.com/2024/09/03/us/politics/iraq-commandos-isis.html
