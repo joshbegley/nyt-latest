@@ -1,3 +1,7 @@
+**Submit a question for Eric Koreen’s Raptors mailbag**\
+`Fun fact: The song I’ve heard most at OVO Athletic Centre, the Toronto Raptors&#8217; practice facility, is “September” by Earth, Wind, and Fire.`\
+https://nytimes.com/athletic/5742009/2024/09/03/raptors-mailbag-submit-questions/
+
 **PWHL Minnesota names Melissa Caruso as new GM**\
 `The PWHL has hired longtime AHL executive Melissa Caruso as the new general manager of its Minnesota franchise.`\
 https://nytimes.com/athletic/5742095/2024/09/03/pwhl-minnesota-general-manager-melissa-caruso/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/5742008/2024/09/03/f1-adrian-newey-aston-martin-red
 `Locking in Draisaitl avoids a season-long distraction and sends a clear message that the Oilers are not taking their foot off the gas.
 `\
 https://nytimes.com/athletic/5741905/2024/09/03/leon-draisaitl-oilers-contract/
-
-**The Slain Hostages, and the Aftermath**\
-`Readers react to Biden, Netanyahu and the killing of the hostages. Also: Trump and I.V.F.; a gay-Christian alliance; reasons for joy; Disney trips; fancy dorms.`\
-https://nytimes.com/2024/09/03/opinion/israel-hostages-hamas.html
 
