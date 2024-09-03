@@ -1,4 +1,4 @@
-**Van Dijk to play with Netherlands until 2026 World Cup - Koeman**\
+**Van Dijk to play for Netherlands until 2026 World Cup - Koeman**\
 `Netherlands captain Virgil van Dijk will continue to play for the national team through to the 2026 World Cup, head coach Ronald Koeman has confirmed.`\
 https://nytimes.com/athletic/5741148/2024/09/03/virgil-van-dijk-netherlands-world-cup/
 
