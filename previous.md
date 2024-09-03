@@ -1,4 +1,4 @@
-**Two U.S. Marines Attacked in Turkey by Anti-American Youth Group**\
+**Two U.S. Marines Attacked in Turkey by Nationalist Youth Group**\
 `Turkish officials said they had detained 15 members of the group. The two servicemen had returned to the ship and were safe, U.S. officials said.`\
 https://nytimes.com/2024/09/02/world/europe/marines-attacked-turkey.html
 
