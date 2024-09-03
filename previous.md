@@ -1,3 +1,7 @@
+**Another Trump Clemency Recipient Is Accused of Domestic Violence**\
+`A man whose life sentence for his role in a robbery and murder was commuted by President Donald J. Trump was convicted this spring of a misdemeanor charge of assaulting his wife.`\
+https://nytimes.com/2024/09/03/us/politics/trump-clemency-jaime-davidson.html
+
 **NFL best bets Week 1: Bills and Seahawks make the first two best-bet picks**\
 `Austin's Mock's NFL Projection Model is back with best bets for Week 1 of NFL action.`\
 https://nytimes.com/athletic/5742333/2024/09/03/nfl-best-bets-week-1-bills-seahawks/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/03/climate/switching-to-a-heat-pump.html
 **AP Top 25: Georgia No. 1; Georgia Tech ends 9-year poll drought**\
 `Georgia, Ohio State, Texas, Alabama and Notre Dame are the top five teams in this week's AP Top 25 college football poll.`\
 https://nytimes.com/athletic/5742199/2024/09/03/ap-top-25-poll-rankings-georgia-tech/
-
-**U.S. and Iraqi Commandos Targeted ISIS in Sprawling Operation**\
-`The number of insurgent attacks has increased, officials say, as Iraq and the United States negotiate a plan to wind down the U.S.-led military mission.`\
-https://nytimes.com/2024/09/03/us/politics/iraq-commandos-isis.html
 
