@@ -1,3 +1,7 @@
+**Here's why Yankees are not manipulating Jasson Domínguez's service time**\
+`Domínguez would not qualify for a Prospect Promotion Incentive (PPI) draft pick because he has already amassed over 60 days of service time.`\
+https://nytimes.com/athletic/5740790/2024/09/02/jasson-dominguez-yankees-service-time/
+
 **Two U.S. Marines Attacked in Turkey by Nationalist Youth Group**\
 `Turkish officials said they had detained 15 members of the group. The two servicemen had returned to the ship and were safe, U.S. officials said.`\
 https://nytimes.com/2024/09/02/world/europe/marines-attacked-turkey.html

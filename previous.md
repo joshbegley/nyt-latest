@@ -1,3 +1,7 @@
+**Here's why Yankees are not manipulating Jasson Domínguez's service time**\
+`Domínguez would not qualify for a Prospect Promotion Incentive (PPI) draft pick because he has already amassed over 60 days of service time.`\
+https://nytimes.com/athletic/5740790/2024/09/02/jasson-dominguez-yankees-service-time/
+
 **Two U.S. Marines Attacked in Turkey by Nationalist Youth Group**\
 `Turkish officials said they had detained 15 members of the group. The two servicemen had returned to the ship and were safe, U.S. officials said.`\
 https://nytimes.com/2024/09/02/world/europe/marines-attacked-turkey.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5740596/2024/09/02/mets-kodai-senga-bullpen-return/
 **Abilene Christian involved in bus accident after loss to Texas Tech**\
 `The accident occurred at approximately 11:30 p.m. on Saturday after Abilene Christian’s game against Texas Tech.`\
 https://nytimes.com/athletic/5737949/2024/09/02/abilene-christian-bus-accident-texas-tech/
-
-**Families of American Hostages Say a Deal ‘Has to Happen Right Now’**\
-`Seven Americans remain held in Gaza by Hamas. An eighth American, Hersh Goldberg-Polin, was among the hostages whose bodies were recovered on Saturday.`\
-https://nytimes.com/2024/09/02/nyregion/israel-hamas-gaza-american-hostages.html
 
