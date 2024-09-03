@@ -22,6 +22,10 @@ https://nytimes.com/athletic/5730226/2024/09/03/womens-soccer-busy-calendar-nwsl
 `Among this year's questions: Which rookie not named Dominick Puni will get the most snaps, and which 49er will lead the team in takeaways?`\
 https://nytimes.com/athletic/5735267/2024/09/03/49ers-over-unders-brandon-aiyuk-deebo-samuel/
 
+**Madrid's Martinez undergoes surgery on cruciate ligament injury**\
+`Real Madrid defender Joan Martinez has undergone surgery after rupturing the cruciate ligament in his left knee.`\
+https://nytimes.com/athletic/5691882/2024/09/03/real-madrid-joan-martinez-injury/
+
 **Why Silicon Valley Is Abuzz Over ‘Founder Mode’**\
 `A debate is brewing among investors and entrepreneurs: Are hands-on founders, such as Steve Jobs and Brian Chesky of Airbnb, the key to start-up success?`\
 https://nytimes.com/2024/09/03/business/dealbook/founder-mode-chesky-graham.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/03/world/middleeast/polio-vaccinations-gaza-who.html
 **The Power Broker at 50**\
 `Robert Caro’s hugely influential book still resonates with politicians and public officials in New York City today.`\
 https://nytimes.com/2024/09/03/nyregion/the-power-broker-at-50.html
-
-**Lewis joins Sao Paulo from Newcastle United**\
-`Jamal Lewis says his loan move to Sao Paulo from Newcastle United was an opportunity he &#8220;couldn&#8217;t pass up&#8221;.`\
-https://nytimes.com/athletic/5741206/2024/09/03/jamal-lewis-sao-paulo-transfer-newcastle/
 

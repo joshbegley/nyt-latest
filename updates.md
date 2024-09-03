@@ -1,3 +1,7 @@
+**Madrid's Martinez undergoes surgery on cruciate ligament injury**\
+`Real Madrid defender Joan Martinez has undergone surgery after rupturing the cruciate ligament in his left knee.`\
+https://nytimes.com/athletic/5691882/2024/09/03/real-madrid-joan-martinez-injury/
+
 **Here’s the latest on the 2024 race.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/09/03/us/harris-trump-election/heres-the-latest-on-the-2024-race
