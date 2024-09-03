@@ -1,3 +1,7 @@
+**The Spies of ‘Slow Horses’ Are ‘as Useless as Everyone Else’**\
+`Will Smith, the showrunner, discusses the comic spy thriller, which returns for its fourth season on Wednesday and is up for nine Emmy Awards later this month.`\
+https://nytimes.com/2024/09/03/arts/television/slow-horses-will-smith.html
+
 **Former Volkswagen Chief Executive Faces Trial in Emissions Case**\
 `Nine years after the carmaker admitted to concealing emissions on a massive scale, Martin Winterkorn will be tried in a German court.`\
 https://nytimes.com/2024/09/03/business/volkswagen-trial-emissions-ceo-winterkorn.html

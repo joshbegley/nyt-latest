@@ -1,3 +1,11 @@
+**The Windup: Dodgers finally putting it together?**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5741910/2024/09/03/dodgers-ohtani-freeman-the-windup/
+
+**Seeing Dances of the Harlem Renaissance, in Vivid Color**\
+`An immersive article spotlights choreographers who are carrying forward the legacy of Black dance forms that flourished 100 years ago.`\
+https://nytimes.com/2024/09/03/insider/seeing-dances-of-the-harlem-renaissance-in-vivid-color.html
+
 **The Spies of ‘Slow Horses’ Are ‘as Useless as Everyone Else’**\
 `Will Smith, the showrunner, discusses the comic spy thriller, which returns for its fourth season on Wednesday and is up for nine Emmy Awards later this month.`\
 https://nytimes.com/2024/09/03/arts/television/slow-horses-will-smith.html
@@ -18,6 +26,10 @@ https://nytimes.com/2024/09/03/dining/five-favorite-dinners-from-our-new-weeknig
 `Amid a surge in book bans nationwide, the librarian Amanda Jones was targeted by vicious threats. So she decided to fight back.`\
 https://nytimes.com/2024/09/03/books/amanda-jones-librarian-book-bans.html
 
+**Oilers sign Leon Draisaitl to 8-year extension**\
+`The extension begins with the 2025-26 season.`\
+https://nytimes.com/athletic/5741833/2024/09/03/oilers-leon-draisaitl-contract-extension/
+
 **Mirtle: Why Nick Robertson should drop his trade request with the Maple Leafs**\
 `It's time for Robertson to sign, get to training camp and show what he can do in what could very well be his breakout season. `\
 https://nytimes.com/athletic/5739858/2024/09/03/nick-robertson-maple-leafs-trade-request/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5739858/2024/09/03/nick-robertson-maple-leafs-trade
 **Ronaldo on his role for Portugal: 'In my mind, I will always be a starter'**\
 `Portugal captain Cristiano Ronaldo has said he will continue to play at international level for as long as he &#8220;adds value&#8221; to the team and believes he should be starting.`\
 https://nytimes.com/athletic/5741620/2024/09/03/cristiano-ronaldo-portugal-future/
-
-**Russia’s Attack on Poltava Comes After a Week of Strikes in Ukraine**\
-`Moscow appears to have stepped up the tempo of its attacks, resulting in a wave of death and destruction in Ukraine.`\
-https://nytimes.com/2024/09/03/world/europe/poltava-ukraine-strikes.html
-
-**Quiz: Do You Have Healthy Brain Habits?**\
-`These 12 questions can help assess your risk for dementia, stroke and depression, and identify ways to reduce it.`\
-https://nytimes.com/interactive/2024/09/03/well/mind/brain-health-quiz-dementia-depression-stroke.html
-
-**College Football Playoff 2024 projections: Miami in, LSU out of our 12-team bracket**\
-`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
-https://nytimes.com/athletic/5701128/2024/09/03/college-football-playoff-projections-odds/
 
