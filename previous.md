@@ -1,3 +1,7 @@
+**Wolves' Podence completes permanent move to Al Shabab**\
+`Wolverhampton Wanderers forward Daniel Podence has completed his move to Al Shabab.`\
+https://nytimes.com/athletic/5741085/2024/09/03/wolves-podence-saudi-transfer/
+
 **U.S. Open day 8 recap: Two match points from heaven and an electronic line-calling fault**\
 `The world No. 1 excelled in defence and attack, while two completely contrasting match points elsewhere told a story.`\
 https://nytimes.com/athletic/5740727/2024/09/03/u-s-open-day-8-takeaways-iga-swiateks-backhand-two-amazing-match-points-hawkeye-down/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/03/world/asia/pope-visit-indonesia-muslims.html
 **Word of the Day: benign**\
 `This word has appeared in 181 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/03/learning/word-of-the-day-benign.html
-
-**Shiny New Technology, Same Old Funny Business**\
-`Antitrust regulators are finally catching up to the methods used by modern corporations to exert their power.`\
-https://nytimes.com/2024/09/03/opinion/realpage-antitrust-landlords.html
 
