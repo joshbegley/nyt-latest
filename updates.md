@@ -1,3 +1,7 @@
+**Russian Strike on Ukrainian City Kills at Least 41, Zelensky Says**\
+`Two ballistic missiles hit a military educational institution and a neighboring hospital in Poltava, in eastern Ukraine, President Volodymyr Zelensky said.`\
+https://nytimes.com/live/2024/09/03/world/ukraine-russia-missile-strike-poltava
+
 **Trent Williams, 49ers agree to revised contract**\
 `Williams, a three-time All-Pro and 11-time Pro Bowler, had been holding out since the start of camp in search of a new deal.`\
 https://nytimes.com/athletic/5733896/2024/09/03/trent-williams-san-francisco-49ers-contract/
