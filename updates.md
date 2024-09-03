@@ -1,3 +1,7 @@
+**Wednesday Briefing: Russian Strike Kills 50 in Ukraine**\
+`Plus, a quiz to test healthy brain habits.`\
+https://nytimes.com/2024/09/03/briefing/russia-strike-harris-polio.html
+
 **No Time to Run: Russian Missiles Hit Ukraine City Just After Sirens Sound**\
 `More than 50 people were killed by two high-speed missiles that hit a military academy in the eastern city of Poltava, one of the most lethal Russian strikes in the war.`\
 https://nytimes.com/2024/09/03/world/europe/ukraine-military-school-attack.html
