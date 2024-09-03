@@ -1,3 +1,7 @@
+**The attack on Poltava comes after a week of airstrikes and losses for Ukraine.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/09/03/world/ukraine-russia-missile-strike-poltava/the-attack-on-poltava-comes-after-a-week-of-airstrikes-and-losses-for-ukraine
+
 **Quiz: Do You Have Healthy Brain Habits?**\
 `These 12 questions can help assess your risk for dementia, stroke and depression, and identify ways to reduce it.`\
 https://nytimes.com/interactive/2024/09/03/well/mind/brain-health-quiz-dementia-depression-stroke.html
