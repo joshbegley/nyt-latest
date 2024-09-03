@@ -1,3 +1,7 @@
+**The attack on Poltava comes after a week of airstrikes and losses for Ukraine.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/09/03/world/ukraine-russia-missile-strike-poltava/the-attack-on-poltava-comes-after-a-week-of-airstrikes-and-losses-for-ukraine
+
 **Quiz: Do You Have Healthy Brain Habits?**\
 `These 12 questions can help assess your risk for dementia, stroke and depression, and identify ways to reduce it.`\
 https://nytimes.com/interactive/2024/09/03/well/mind/brain-health-quiz-dementia-depression-stroke.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/03/business/britain-offshore-wind-auction.html
 **Scoop City: 10 Bold Predictions for 2024**\
 `Why the Chiefs won't win their third straight Super Bowl, a look at Week 1 waiver options and a note on Anthony Richardson`\
 https://nytimes.com/athletic/5741562/2024/09/03/scoop-city-10-bold-predictions-for-2024/
-
-**Former Aide to Hochul and Cuomo Arrested on Federal Charges**\
-`Linda Sun, a former deputy chief of staff to Gov. Kathy Hochul, and her husband were arrested on Tuesday on charges that remain sealed.`\
-https://nytimes.com/2024/09/03/nyregion/linda-sun-arrested-hochul.html
 
