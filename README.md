@@ -1,3 +1,7 @@
+**Two U.S. Marines Attacked in Turkey by Anti-American Youth Group**\
+`Turkish officials said they had detained 15 members of the group. The two servicemen had returned to the ship and were safe, U.S. officials said.`\
+https://nytimes.com/2024/09/02/world/europe/marines-attacked-turkey.html
+
 **Upper Hand**\
 `Alex Eaton-Salners crosses the floor.`\
 https://nytimes.com/2024/09/02/crosswords/daily-puzzle-2024-09-03.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5737949/2024/09/02/abilene-christian-bus-accident-t
 **Families of American Hostages Say a Deal ‘Has to Happen Right Now’**\
 `Seven Americans remain held in Gaza by Hamas. An eighth American, Hersh Goldberg-Polin, was among the hostages whose bodies were recovered on Saturday.`\
 https://nytimes.com/2024/09/02/nyregion/israel-hamas-gaza-american-hostages.html
-
-**Smalling joins Saudi club Al Fayha from Roma**\
-`Former Manchester United defender Chris Smalling has joined Saudi Arabian club Al Fayha from Roma.`\
-https://nytimes.com/athletic/5739623/2024/09/02/chris-smalling-saudi-transfer-roma/
 
