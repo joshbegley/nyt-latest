@@ -1,3 +1,15 @@
+**Creating an Artistic Buzz, One Real Estate Development at a Time**\
+`Artwork has been part of urban projects for decades, but a new push from developers looking for ways to drive foot traffic has created a boom for the art world.`\
+https://nytimes.com/2024/09/03/business/real-estate-public-art.html
+
+**The Dream Was a House on the Russian River (on a Budget)**\
+`Getting there required buying something far worse than the typical fixer-upper: “It was like excavating in Pompeii.”`\
+https://nytimes.com/2024/09/03/realestate/healdsburg-russian-river-home-california.html
+
+**As many Israelis push for an immediate hostage deal, the prime minister has refused to change course.**\
+`In strikes and protests, many Israelis are pushing their government to prioritize the release of hostages above the immediate defeat of Hamas. Benjamin Netanyahu, the prime minister, has refused to change course.`\
+https://nytimes.com/live/2024/09/03/world/israel-hamas-gaza-war/as-many-israelis-push-for-an-immediate-hostage-deal-the-prime-minister-has-refused-to-change-course
+
 **Wolves' Podence completes permanent move to Al Shabab**\
 `Wolverhampton Wanderers forward Daniel Podence has completed his move to Al Shabab.`\
 https://nytimes.com/athletic/5741085/2024/09/03/wolves-podence-saudi-transfer/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/03/crosswords/spelling-bee-forum.html
 **Left-Wing Misinformation Is Having a Moment**\
 `America’s right flank remains the chief purveyor of misinformation, but this summer’s political tumult created ideal conditions for falsehoods to spread among progressives.`\
 https://nytimes.com/2024/09/03/technology/left-wing-misinformation-conspiracy-theories.html
-
-**Rethinking Addiction as a Chronic Brain Disease**\
-`Some researchers argue that the roles of social environment and personal choice have to be considered in order to make progress in treating people addicted to drugs.`\
-https://nytimes.com/2024/09/03/health/addiction-disease-choice.html
-
-**Pope Visits Indonesia, Where Muslim-Christian Harmony Is Under Strain**\
-`Indonesia is proud of its religious diversity and its reputation for tolerance, but minorities, including Catholics, still face discrimination.`\
-https://nytimes.com/2024/09/03/world/asia/pope-visit-indonesia-muslims.html
-
-**Word of the Day: benign**\
-`This word has appeared in 181 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/09/03/learning/word-of-the-day-benign.html
 
