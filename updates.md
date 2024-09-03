@@ -1,3 +1,7 @@
+**Leeds' transfer window reviewed: Few shenanigans but painful sales and Farke left wanting**\
+`Leeds saw three major stars leave this summer. They did add quality to ease the hurt, but Daniel Farke didn't get everything he hoped for`\
+https://nytimes.com/athletic/5739274/2024/09/03/leeds-united-transfer-window-gray-tanaka-rutter-summerville/
+
 **Inside Newcastle: Flawed transfer strategy? Frictions with owners? Expectations lowered?**\
 `Our Newcastle writers Chris Waugh and George Caulkin answer questions on Paul Mitchell, the pursuit of Marc Guehi and the owners' ambitions`\
 https://nytimes.com/athletic/5739241/2024/09/03/inside-newcastle-owners-transfers/
