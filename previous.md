@@ -1,6 +1,6 @@
 **Home Cooking So Good, Only a Restaurant Could Do It**\
 `In her first review as interim critic, Melissa Clark visits Lola’s, whose produce-driven cooking is familiar but lifted by brilliant twists and tweaks.`\
-https://nytimes.com/2024/09/03/dining/home-cooking-so-good-only-a-restaurant-could-do-it.html
+https://nytimes.com/2024/09/03/dining/lolas-restaurant-review.html
 
 **James Darren, Actor, Singer and ‘Gidget’ Heartthrob, Dies at 88**\
 `His role as a surfer in that trendsetting hit movie led to success on television shows like “The Time Tunnel” and “T.J. Hooker,” and on the pop charts.`\
