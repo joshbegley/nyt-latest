@@ -1,3 +1,7 @@
+**Britain Awards Renewable Energy Contracts That Could Power 11 Million Homes**\
+`The successful outcome of the government auction for renewable energy projects may bolster a wind industry battered by rising costs.`\
+https://nytimes.com/2024/09/03/business/britain-offshore-wind-auction.html
+
 **Scoop City: 10 Bold Predictions for 2024**\
 `Why the Chiefs won't win their third straight Super Bowl, a look at Week 1 waiver options and a note on Anthony Richardson`\
 https://nytimes.com/athletic/5741562/2024/09/03/scoop-city-10-bold-predictions-for-2024/
