@@ -1,3 +1,11 @@
+**Can You Find the 12 Thrillers Hidden Within This Text?**\
+`The 20th-century Cold War was rife with geopolitical tension and inspired a lot of great espionage thrillers. This text puzzle challenges you to uncover the titles of a dozen novels set in and around that frosty era.`\
+https://nytimes.com/interactive/2024/09/03/books/review/cold-war-novels.html
+
+**The Harris operation will send $24.5 million to groups supporting down-ballot Democrats.**\
+`By Reid J. Epstein`\
+https://nytimes.com/live/2024/09/03/us/harris-trump-election/the-harris-operation-will-send-24-5-million-to-groups-supporting-down-ballot-democrats
+
 **For 20 minutes, an American male champion looked possible. Then came Jannik Sinner**\
 `Prognostication is a mug's game in tennis but, however you slice the draw, a home Grand Slam champion remains a tall order.`\
 https://nytimes.com/athletic/5740971/2024/09/03/us-open-title-predictions-sinner-fritz-tiafoe/
