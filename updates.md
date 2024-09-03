@@ -1,3 +1,7 @@
+**NFL Week 1 odds, spreads, totals: Chiefs-Ravens kick off a fantastic opening slate**\
+`The Chiefs are favored by a field goal over the Ravens in the Week 1 kickoff. See odds for every NFL Week 1 game.`\
+https://nytimes.com/athletic/5741802/2024/09/03/nfl-week-1-odds-spreads-how-to-watch-chiefs-ravens/
+
 **Browns, Huntington Bank agree to naming rights deal**\
 `The stadium opened as Cleveland Browns Stadium in 1999, then from 2013-2023 was known as FirstEnergy Stadium.`\
 https://nytimes.com/athletic/5742028/2024/09/03/cleveland-browns-stadium-name-huntington-bank-field/
