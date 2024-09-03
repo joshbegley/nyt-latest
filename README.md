@@ -1,3 +1,15 @@
+**PWHL Toronto to play at Coca-Cola Coliseum in 2024-25**\
+`The arena is also home to the AHL’s Toronto Marlies and will serve as the home court for the WNBA’s Toronto expansion franchise in 2026.`\
+https://nytimes.com/athletic/5742653/2024/09/03/pwhl-toronto-arena-2024-25-season/
+
+**How Netanyahu Is Trying to Save Himself, Elect Trump and Defeat Harris**\
+`The Israeli prime minister’s approach to Gaza and the hostages is plainly tied up in his political self-interest.`\
+https://nytimes.com/2024/09/03/opinion/netanyahu-trump-harris.html
+
+**Analysis: Free agents who could capitalize on career-best seasons in new CBA era**\
+`A new CBA has opened up free agency. These players are in prime position to benefit most.`\
+https://nytimes.com/athletic/5742374/2024/09/03/nwsl-free-agency-best-available-by-position/
+
 **Lebanon Detains Former Head of Central Bank**\
 `Riad Salameh, once seen as an international financial wizard, is the subject of multiple investigations and has attracted blame for the country’s economic crisis.`\
 https://nytimes.com/2024/09/03/world/middleeast/lebanon-central-bank-arrest-salameh.html
@@ -7,7 +19,7 @@ https://nytimes.com/2024/09/03/world/middleeast/lebanon-central-bank-arrest-sala
 https://nytimes.com/athletic/5741438/2024/09/03/florida-state-football-ap-top-25-until-saturday/
 
 **His Parents Are Susan Sarandon and Tim Robbins. That’s the Joke.**\
-`With a series of videos, Jack Robbins has been lampooning nepo baby culture — and embracing it — with help from his parents and Steven Spielberg’s daughter.`\
+`In a series of videos, Jack Robbins has been lampooning nepo baby culture — and embracing it — with help from his parents and Steven Spielberg’s daughter.`\
 https://nytimes.com/2024/09/03/style/jack-robbins-nepo-baby-videos.html
 
 **Arkansas State's game-winning TD should've been no good, Sun Belt says**\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/03/dining/lolas-restaurant-review.html
 **James Darren, Actor, Singer and ‘Gidget’ Heartthrob, Dies at 88**\
 `His role as a surfer in that trendsetting hit movie led to success on television shows like “The Time Tunnel” and “T.J. Hooker,” and on the pop charts.`\
 https://nytimes.com/2024/09/03/movies/james-darren-dies.html
-
-**New Photos From Titanic Show Long-Lost Statue and Damaged Bow**\
-`RMS Titanic Inc., the company that led the expedition, brought back two million photos of the site. The ship’s famed bow has been damaged, the company said.`\
-https://nytimes.com/2024/09/03/science/titanic-photos-bow-statue.html
-
-**Toxic Additive Found in Feed That Killed 70 Oklahoma Rodeo Horses**\
-`Preliminary tests show that the feed had been contaminated with Monensin, an additive known to be toxic to horses, Livestock Nutrition Center said.`\
-https://nytimes.com/2024/09/03/us/rodeo-horses-poisoned-oklahoma-livestock.html
-
-**Another Trump Clemency Recipient Is Accused of Domestic Violence**\
-`A man whose life sentence for his role in a robbery and murder was commuted by President Donald J. Trump was convicted this spring of a misdemeanor charge of assaulting his wife.`\
-https://nytimes.com/2024/09/03/us/politics/trump-clemency-jaime-davidson.html
 
