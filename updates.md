@@ -1,3 +1,11 @@
+**Hewlett-Packard to Pursue $4 Billion Claim Against Mike Lynch’s Estate**\
+`The money is tied to a fraud lawsuit in Britain by the tech services giant over its acquisition of Autonomy, the software firm founded by Mr. Lynch, who died last month when his yacht sank.`\
+https://nytimes.com/2024/09/03/business/dealbook/mike-lynch-hp-lawsuit.html
+
+**South Carolina's Ashlyn Watkins arrested**\
+`According to WLTX, the warrant said the victim was treated for non-life threatening injuries.`\
+https://nytimes.com/athletic/5741880/2024/09/03/south-carolina-ashlyn-watkins-arrested/
+
 **Transcript: Ezra Klein Interviews Jia Tolentino**\
 `The Sep. 3, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/09/03/podcasts/transcript-ezra-klein-interviews-jia-tolentino.html
