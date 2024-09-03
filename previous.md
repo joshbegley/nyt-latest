@@ -1,3 +1,7 @@
+**Quiz: Do You Have Healthy Brain Habits?**\
+`These 12 questions can help assess your risk for dementia, stroke and depression, and identify ways to reduce it.`\
+https://nytimes.com/interactive/2024/09/03/well/mind/brain-health-quiz-dementia-depression-stroke.html
+
 **College Football Playoff 2024 projections: Miami in, LSU out of our 12-team bracket**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/09/03/college-football-playoff-projections-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5741562/2024/09/03/scoop-city-10-bold-predictions-f
 **Former Aide to Hochul and Cuomo Arrested on Federal Charges**\
 `Linda Sun, a former deputy chief of staff to Gov. Kathy Hochul, and her husband were arrested on Tuesday on charges that remain sealed.`\
 https://nytimes.com/2024/09/03/nyregion/linda-sun-arrested-hochul.html
-
-**Deadly Strike Destroys Buildings in Eastern Ukrainian City**\
-`Ukrainian officials said that a search and rescue operation was underway after two Russian ballistic missiles hit a military academy and a nearby hospital in Poltava, Ukraine.`\
-https://nytimes.com/video/world/europe/100000009670562/ukraine-strike-poltava.html
 

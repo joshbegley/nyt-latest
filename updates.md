@@ -1,3 +1,7 @@
+**Quiz: Do You Have Healthy Brain Habits?**\
+`These 12 questions can help assess your risk for dementia, stroke and depression, and identify ways to reduce it.`\
+https://nytimes.com/interactive/2024/09/03/well/mind/brain-health-quiz-dementia-depression-stroke.html
+
 **College Football Playoff 2024 projections: Miami in, LSU out of our 12-team bracket**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/09/03/college-football-playoff-projections-odds/
