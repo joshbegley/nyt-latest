@@ -1,3 +1,7 @@
+**Live Updates: Russian Strike Kills at Least 41 in Ukraine, Zelensky Says**\
+`Two ballistic missiles hit a military academy and a neighboring hospital in Poltava, in eastern Ukraine, President Volodymyr Zelensky said.`\
+https://nytimes.com/live/2024/09/03/world/ukraine-russia-missile-strike-poltava
+
 **Biden’s Top Climate Negotiator to Visit China This Week**\
 `John Podesta is expected to push for China to set more ambitious greenhouse gas targets.`\
 https://nytimes.com/2024/09/03/climate/podesta-china-climate-change.html

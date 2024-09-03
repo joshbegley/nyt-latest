@@ -22,7 +22,7 @@ https://nytimes.com/2024/09/03/world/africa/congo-prison-jailbreak-kinshasa.html
 `Prognostication is a mug's game in tennis but, however you slice the draw, a home Grand Slam champion remains a tall order.`\
 https://nytimes.com/athletic/5740971/2024/09/03/us-open-title-predictions-sinner-fritz-tiafoe/
 
-**Russian Strike on Ukrainian City Kills at Least 41, Zelensky Says**\
+**Live Updates: Russian Strike Kills at Least 41 in Ukraine, Zelensky Says**\
 `Two ballistic missiles hit a military academy and a neighboring hospital in Poltava, in eastern Ukraine, President Volodymyr Zelensky said.`\
 https://nytimes.com/live/2024/09/03/world/ukraine-russia-missile-strike-poltava
 
