@@ -1,3 +1,11 @@
+**Trent Williams, 49ers agree to revised contract**\
+`Williams, a three-time All-Pro and 11-time Pro Bowler, had been holding out since the start of camp in search of a new deal.`\
+https://nytimes.com/athletic/5733896/2024/09/03/trent-williams-san-francisco-49ers-contract/
+
+**At Least 129 People Die in Jailbreak at Congo’s Largest Prison**\
+`The government said that at least 24 inmates had been shot dead as they attempted to escape from Makala Central Prison, which rights organizations have long warned is dangerously overcrowded.`\
+https://nytimes.com/2024/09/03/world/africa/congo-prison-jailbreak-kinshasa.html
+
 **For 20 minutes, an American male champion looked possible. Then came Jannik Sinner**\
 `Prognostication is a mug's game in tennis, but however you slice the draw, a home Grand Slam champion remains a tall order.`\
 https://nytimes.com/athletic/5740971/2024/09/03/us-open-title-predictions-sinner-fritz-tiafoe/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5740801/2024/09/03/dodgers-takeaways-rotation-conce
 **Kyle Harrison hasn't dominated as a rookie, but Giants believe his time is coming**\
 `Harrison hasn't had his best stuff this season, but he's managed to remain competitive, which should bode well for him in the future.`\
 https://nytimes.com/athletic/5740999/2024/09/03/sf-giants-kyle-harrison-rookie-season/
-
-**How Chargers star Derwin James rediscovered his fire: 'It's unfinished business'**\
-`The goal for James and the Chargers? “Let’s re-stake the claim as you being one of the best safeties in football."`\
-https://nytimes.com/athletic/5734760/2024/09/03/derwin-james-los-angeles-chargers/
-
-**NWSL played through a busy summer: 'The best teams have the most games'**\
-`Clubs short of players due to international commitments turned to retired veterans and young teens — B teams have been floated as an answer`\
-https://nytimes.com/athletic/5730226/2024/09/03/womens-soccer-busy-calendar-nwsl/
 
