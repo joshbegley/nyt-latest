@@ -1,3 +1,11 @@
+**Who do I drop? Jahan Dotson, Quentin Johnston and more fantasy football cuts ahead of Week 1**\
+`Gary Davenport offers up his first drops list of the 2024 season, with a couple of former first-round wideouts making (not making?) the cut.`\
+https://nytimes.com/athletic/5742202/2024/09/03/drops-week-1-2024-fantasy-football/
+
+**Trump Ordered to Stop Using Isaac Hayes Song at Rallies**\
+`A federal court judge in Georgia granted a request by the singer’s estate to bar the former president from playing “Hold On, I’m Coming” at his events.`\
+https://nytimes.com/2024/09/03/us/politics/trump-isaac-hayes-song.html
+
 **Daniel Craig Gets Explicit (and Romantic) in Luca Guadagnino’s ‘Queer’**\
 `At the Venice Film Festival, the star said he embraced the scenes with sexual encounters: ‘If I wasn’t in the movie and saw this movie, I’d want to be in it.’`\
 https://nytimes.com/2024/09/03/movies/daniel-craig-queer-venice-film-festival.html
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/5741310/2024/09/03/nba-free-agency-lebron-james-dal
 **An emergency medical worker describes the horrific scene at the site of the missile strike.**\
 `By Marc Santora and Liubov Sholudko`\
 https://nytimes.com/live/2024/09/03/world/ukraine-russia-missile-strike-poltava/an-emergency-medical-worker-describes-the-horrific-scene-at-the-site-of-the-missile-strike
-
-**Ukraine Electric Company Boss Fired as Russia Pounds Power Grid**\
-`The head of Ukrenergo was reportedly blamed for failing to fortify energy infrastructure, which has come under steady Russian bombardment, leading to blackouts.`\
-https://nytimes.com/2024/09/03/world/europe/ukraine-electric-boss-fired-russia-pounds-power-grid.html
-
-**F1 designer Adrian Newey set for Aston Martin move in 2025, per sources: What it means**\
-`The arrival of Newey, one of the greatest designers in F1 history, would be the latest major signing for Aston Martin. 
-`\
-https://nytimes.com/athletic/5742008/2024/09/03/f1-adrian-newey-aston-martin-red-bull/
 
