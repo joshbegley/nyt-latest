@@ -1,4 +1,8 @@
 **Son of John McCain Says Trump Team’s Cemetery Clash Violated ‘Sacred Place’**\
+`Jimmy McCain said the confrontation at Arlington National Cemetery could be “extremely triggering” for the families of U.S. service members buried there.`\
+https://nytimes.com/2024/09/03/us/politics/trump-jimmy-mccain-arlington-cemetery.html
+
+**Son of John McCain Says Trump Team’s Cemetery Clash Violated ‘Sacred Place’**\
 `Jimmy McCain said the confrontation at Arlington National Cemetery could be “extremely triggering” for the families of U.S. soldiers buried there.`\
 https://nytimes.com/2024/09/03/us/politics/trump-jimmy-mccain-arlington-cemetery.html
 
