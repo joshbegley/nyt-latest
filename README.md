@@ -1,7 +1,3 @@
-**F1 designer Adrian Newey set for Aston Martin move in 2025, per sources: What it means**\
-`Stay informed on all the biggest stories in Formula 1.`\
-https://nytimes.com/athletic/5742008/2024/09/03/f1-adrian-newey-aston-martin-red-bull/
-
 **NHL contract grades: Leon Draisaitl secures long-term future in Edmonton**\
 `Locking in Draisaitl avoids a season-long distraction and sends a clear message that the Oilers are not taking their foot off the gas.
 `\
@@ -16,7 +12,7 @@ https://nytimes.com/2024/09/03/opinion/israel-hostages-hamas.html
 https://nytimes.com/athletic/5741802/2024/09/03/nfl-week-1-odds-spreads-how-to-watch-chiefs-ravens/
 
 **Browns, Huntington Bank agree to naming rights deal**\
-`The stadium opened as Cleveland Browns Stadium in 1999, then from 2013-2023 was known as FirstEnergy Stadium.`\
+`The stadium opened as Cleveland Browns Stadium in 1999, then from 2013 to 2023 was known as FirstEnergy Stadium.`\
 https://nytimes.com/athletic/5742028/2024/09/03/cleveland-browns-stadium-name-huntington-bank-field/
 
 **23 New Restaurants to Try This Fall**\
@@ -38,4 +34,8 @@ https://nytimes.com/2024/09/03/business/dealbook/mike-lynch-hp-lawsuit.html
 **South Carolina's Ashlyn Watkins arrested**\
 `According to WLTX, the warrant said the victim was treated for non-life threatening injuries.`\
 https://nytimes.com/athletic/5741880/2024/09/03/south-carolina-ashlyn-watkins-arrested/
+
+**Transcript: Ezra Klein Interviews Jia Tolentino**\
+`The Sep. 3, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/09/03/podcasts/transcript-ezra-klein-interviews-jia-tolentino.html
 
