@@ -1,3 +1,23 @@
+**Flames mailbag: Submit your questions for Julian McKenzie**\
+`Got a question about the Flames? Submit it here and The Athletic’s Julian McKenzie will answer a selection in an upcoming mailbag.`\
+https://nytimes.com/athletic/5737900/2024/09/03/calgary-flames-mailbag-mckenzie-september-2024/
+
+**Why Shohei Ohtani deserves a warm embrace by Angels, fans in Anaheim return**\
+`Boos rained down as Shohei Ohtani appeared on the Angel Stadium video board.`\
+https://nytimes.com/athletic/5740785/2024/09/03/shohei-ohtani-anaheim-return-angels-dodgers/
+
+**Colts stuck on hamster wheel of mediocrity under Chris Ballard. Is it win or else in 2024?**\
+`Ballard is one of the NFL's longest-tenured GMs, but his accomplishments pale in comparison to his compatriots. `\
+https://nytimes.com/athletic/5738826/2024/09/03/indianapolis-colts-season-preview-chris-ballard-mediocrity/
+
+**How Broncos' Bo Nix raced ahead of the curve: From 8th-grade starter to rookie QB1**\
+`For more than a decade, Nix has been piling up "high-quality" starting experiences the Broncos believe will serve him well as an NFL rookie.`\
+https://nytimes.com/athletic/5737663/2024/09/03/bo-nix-broncos-rookie-quarterback/
+
+**The Pulse: Why 0-2 FSU can still make the Playoff**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5740734/2024/09/03/florida-state-playoff-boston-college-the-pulse/
+
 **The Stakes on Taxes**\
 `We cover the presidential candidates’ positions on taxation.`\
 https://nytimes.com/2024/09/03/briefing/tax-election-harris-trump.html
