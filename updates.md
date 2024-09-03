@@ -1,3 +1,11 @@
+**Who do I drop? Jahan Dotson, Quentin Johnston and more fantasy football cuts ahead of Week 1**\
+`Gary Davenport offers up his first drops list of the 2024 season, with a couple of former first-round wideouts making (not making?) the cut.`\
+https://nytimes.com/athletic/5742202/2024/09/03/drops-week-1-2024-fantasy-football/
+
+**Trump Ordered to Stop Using Isaac Hayes Song at Rallies**\
+`A federal court judge in Georgia granted a request by the singer’s estate to bar the former president from playing “Hold On, I’m Coming” at his events.`\
+https://nytimes.com/2024/09/03/us/politics/trump-isaac-hayes-song.html
+
 **F1 designer Adrian Newey set for Aston Martin move in 2025, per sources: What it means**\
 `The arrival of Newey, one of the greatest designers in F1 history, would be the latest major signing for Aston Martin. 
 `\
