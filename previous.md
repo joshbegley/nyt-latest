@@ -1,3 +1,7 @@
+**You Just Got a Tattoo. How Do You Look After It?**\
+`Advice on tattoo aftercare is plentiful, and sometimes confusing. Tattoo artists and dermatologists weigh in on what you should do.`\
+https://nytimes.com/2024/09/03/well/new-tattoo-after-care.html
+
 **Is this the year the Falcons' pass rush finally clicks?**\
 `No NFL team has been worse in the last decade at getting the quarterback on the ground than the Falcons. Can they change that this season?`\
 https://nytimes.com/athletic/5739568/2024/09/03/falcons-pass-rush-improvement/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/03/books/review/ketanji-brown-jackson-lovely-one.htm
 **These Young Voters Offer a Road Map For Kamala Harris**\
 `Listen in on this focus group with undecided Gen Z voters.`\
 https://nytimes.com/2024/09/03/opinion/harris-turmp-undecided-young-voters.html
-
-**Activists Charged With Pushing Russian Propaganda Go on Trial in Florida**\
-`Experts say the case offers a window into how the Russian government tries to influence American elections and promote its own geopolitical agenda.`\
-https://nytimes.com/2024/09/03/us/activists-russian-propaganda-florida-trial.html
 
