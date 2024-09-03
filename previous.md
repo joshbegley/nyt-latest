@@ -1,3 +1,7 @@
+**Lewis joins Sao Paulo from Newcastle United**\
+`Jamal Lewis says his loan move to Sao Paulo from Newcastle United was an opportunity he &#8220;couldn&#8217;t pass up&#8221;.`\
+https://nytimes.com/athletic/5741206/2024/09/03/jamal-lewis-sao-paulo-transfer-newcastle/
+
 **Israeli forces return to Tulkarm as the West Bank offensive stretches to a 7th day.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/09/03/world/israel-hamas-gaza-war/israeli-forces-return-to-tulkarm-as-the-west-bank-offensive-stretches-to-a-7th-day
@@ -9,6 +13,10 @@ https://nytimes.com/video/world/middleeast/100000009670447/west-bank-israeli-ope
 **2024 NFL media preview: What to expect from Tom Brady, Netflix and Bill Belichick**\
 `With Week 1 upon us, Richard Deitsch and Andrew Marchand break down the big NFL media stories for the 2024 season.`\
 https://nytimes.com/athletic/5734245/2024/09/03/2024-nfl-media-preview-what-to-expect-from-tom-brady-netflix-and-bill-belichick/
+
+**The Athletic FC: Chelsea's astonishing transfer window and Salah's creative excellence;**\
+`Today in TAFC: An extraordinary summer of business at Stamford Bridge, Salah's sublime creative numbers and a forgotten Real Madrid gem`\
+https://nytimes.com/athletic/5741179/2024/09/03/athletic-fc-newsletter-chelsea-salah-barcelona/
 
 **Van Dijk to play for Netherlands until 2026 World Cup - Koeman**\
 `Netherlands captain Virgil van Dijk will continue to play for the national team through to the 2026 World Cup, head coach Ronald Koeman has confirmed.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5740785/2024/09/03/shohei-ohtani-anaheim-return-ang
 **Colts stuck on hamster wheel of mediocrity under Chris Ballard. Is it win or else in 2024?**\
 `Ballard is one of the NFL's longest-tenured GMs, but his accomplishments pale in comparison to his compatriots. `\
 https://nytimes.com/athletic/5738826/2024/09/03/indianapolis-colts-season-preview-chris-ballard-mediocrity/
-
-**How Broncos' Bo Nix raced ahead of the curve: From 8th-grade starter to rookie QB1**\
-`For more than a decade, Nix has been piling up "high-quality" starting experiences the Broncos believe will serve him well as an NFL rookie.`\
-https://nytimes.com/athletic/5737663/2024/09/03/bo-nix-broncos-rookie-quarterback/
-
-**The Pulse: Why 0-2 FSU can still make the Playoff**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5740734/2024/09/03/florida-state-playoff-boston-college-the-pulse/
 

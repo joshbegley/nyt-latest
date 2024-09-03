@@ -1,3 +1,11 @@
+**Lewis joins Sao Paulo from Newcastle United**\
+`Jamal Lewis says his loan move to Sao Paulo from Newcastle United was an opportunity he &#8220;couldn&#8217;t pass up&#8221;.`\
+https://nytimes.com/athletic/5741206/2024/09/03/jamal-lewis-sao-paulo-transfer-newcastle/
+
+**The Athletic FC: Chelsea's astonishing transfer window and Salah's creative excellence;**\
+`Today in TAFC: An extraordinary summer of business at Stamford Bridge, Salah's sublime creative numbers and a forgotten Real Madrid gem`\
+https://nytimes.com/athletic/5741179/2024/09/03/athletic-fc-newsletter-chelsea-salah-barcelona/
+
 **Israeli forces return to Tulkarm as the West Bank offensive stretches to a 7th day.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/09/03/world/israel-hamas-gaza-war/israeli-forces-return-to-tulkarm-as-the-west-bank-offensive-stretches-to-a-7th-day
