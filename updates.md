@@ -1,3 +1,11 @@
+**Bruins' Brad Marchand starting contract year behind schedule after 3 surgeries**\
+`The Bruins captain had surgery for a torn tendon in his elbow this offseason. He also underwent groin and hernia procedures.`\
+https://nytimes.com/athletic/5742286/2024/09/03/bruins-brad-marchand-surgeries/
+
+**Christmas Starts in October, Venezuela’s Autocrat Declares**\
+`With the nation’s democracy in shambles, President Nicolás Maduro tries to inject some holiday cheer.`\
+https://nytimes.com/2024/09/03/world/americas/venezuela-maduro-christmas-october.html
+
 **Ease Into Fall With 7 Songs for September**\
 `Listen to tracks inspired by this month of transitions and memories from Green Day, Barry White, Fiona Apple and more.`\
 https://nytimes.com/2024/09/03/arts/music/amplifier-newsletter-september-songs.html
