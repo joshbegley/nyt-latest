@@ -1,3 +1,11 @@
+**What to watch for each NFL team as fantasy football 2024 gets set for liftoff**\
+`John Laghezza offers up a situation to watch for each NFL team, including some overlooked tight ends with plenty of fantasy football upside.`\
+https://nytimes.com/athletic/5734407/2024/09/03/what-to-watch-for-each-nfl-team-as-fantasy-football-2024-gets-set-for-liftoff/
+
+**Everton's transfer window: Deferring deals, PSR - and 12 contracted players for next season**\
+`After another challenging window, Everton will hope this isn’t the season years of poor decision-making and turmoil catch up to them`\
+https://nytimes.com/athletic/5739517/2024/09/03/everton-transfer-window-dyche/
+
 **Leeds' transfer window reviewed: Few shenanigans but painful sales and Farke left wanting**\
 `Leeds saw three major stars leave this summer. They did add quality to ease the hurt, but Daniel Farke didn't get everything he hoped for`\
 https://nytimes.com/athletic/5739274/2024/09/03/leeds-united-transfer-window-gray-tanaka-rutter-summerville/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5726025/2024/09/03/barcelona-la-masia-yamal-cubarsi
 **Tuesday Briefing**\
 `Protests and work stoppages in Israel.`\
 https://nytimes.com/2024/09/03/briefing/israel-protests-biden-harris.html
-
-**How data departments have evolved and spread across English football clubs**\
-`What is the state of play for data departments across English football? Mark Carey explains the rise of analytics...`\
-https://nytimes.com/athletic/5697684/2024/09/03/football-analytics-uk-evolution/
-
-**The Leandro Trossard dilemma: Can Arsenal keep him happy after rejecting Saudi offer?**\
-`Al Ittihad's offer for Trossard is a cat among the pigeons for a player not starting regularly. How should Mikel Arteta handle it?`\
-https://nytimes.com/athletic/5739383/2024/09/03/leandro-trossard-dilemma-arsenal-saudi-offer/
 
