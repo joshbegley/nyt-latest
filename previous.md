@@ -1,3 +1,11 @@
+**At Least 12 Die Trying to Cross English Channel, French Authorities Say**\
+`The French maritime authorities said that 65 people were picked up from the sea after their vessel encountered unspecified difficulties.`\
+https://nytimes.com/2024/09/03/world/europe/migrant-boat-english-channel.html
+
+**The pace of the war in Ukraine has been picking up in recent weeks.**\
+`By Cassandra Vinograd and Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/09/03/world/ukraine-russia-missile-strike-poltava/the-pace-of-the-war-in-ukraine-has-been-picking-up-in-recent-weeks
+
 **Britain Awards Renewable Energy Contracts That Could Power 11 Million Homes**\
 `The successful outcome of the government auction for renewable energy projects may bolster a wind industry battered by rising costs.`\
 https://nytimes.com/2024/09/03/business/britain-offshore-wind-auction.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/09/03/books/review/cold-war-novels.html
 **The Harris operation will send $24.5 million to groups supporting down-ballot Democrats.**\
 `By Reid J. Epstein`\
 https://nytimes.com/live/2024/09/03/us/harris-trump-election/the-harris-operation-will-send-24-5-million-to-groups-supporting-down-ballot-democrats
-
-**Trent Williams ending his holdout, finalizing new deal with 49ers**\
-`Williams, a three-time All-Pro and 11-time Pro Bowler, had been holding out since the start of camp in search of a new deal.`\
-https://nytimes.com/athletic/5733896/2024/09/03/trent-williams-san-francisco-49ers-contract/
-
-**At Least 129 People Die in Jailbreak at Congo’s Largest Prison**\
-`The government said that at least 24 inmates had been shot dead as they attempted to escape from Makala Central Prison, which rights organizations have long warned is dangerously overcrowded.`\
-https://nytimes.com/2024/09/03/world/africa/congo-prison-jailbreak-kinshasa.html
 
