@@ -1,3 +1,11 @@
+**U.S. and Iraqi Commandos Targeted ISIS in Sprawling Operation**\
+`The number of insurgent attacks has increased, officials say, as Iraq and the United States negotiate a plan to wind down the U.S.-led military mission.`\
+https://nytimes.com/2024/09/03/us/politics/iraq-commandos-isis.html
+
+**The Political Rage of Left-Behind Regions**\
+`What we can learn from the geography of right-wing extremism.`\
+https://nytimes.com/2024/09/03/opinion/trump-afd-germany-manufacturing-economy.html
+
 **College football Week 2 odds, schedule: Texas-Michigan, Colorado-Nebraska and more**\
 `Texas at Michigan and Colorado at Nebraska highlight college football's Week 2 action. Here are the odds for those games and the full slate.`\
 https://nytimes.com/athletic/5741748/2024/09/03/college-football-week-2-odds-schedule-texas-michigan-colorado-nebraska/

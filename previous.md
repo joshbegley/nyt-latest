@@ -1,3 +1,11 @@
+**U.S. and Iraqi Commandos Targeted ISIS in Sprawling Operation**\
+`The number of insurgent attacks has increased, officials say, as Iraq and the United States negotiate a plan to wind down the U.S.-led military mission.`\
+https://nytimes.com/2024/09/03/us/politics/iraq-commandos-isis.html
+
+**The Political Rage of Left-Behind Regions**\
+`What we can learn from the geography of right-wing extremism.`\
+https://nytimes.com/2024/09/03/opinion/trump-afd-germany-manufacturing-economy.html
+
 **College football Week 2 odds, schedule: Texas-Michigan, Colorado-Nebraska and more**\
 `Texas at Michigan and Colorado at Nebraska highlight college football's Week 2 action. Here are the odds for those games and the full slate.`\
 https://nytimes.com/athletic/5741748/2024/09/03/college-football-week-2-odds-schedule-texas-michigan-colorado-nebraska/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/03/arts/music/sabrina-carpenter-short-n-sweet-billbo
 **Valencia striker Mir arrested after sexual assault allegation**\
 `Valencia striker Rafa Mir has been arrested by Spanish police on suspicion of sexual assault.`\
 https://nytimes.com/athletic/5741338/2024/09/03/valencia-striker-rafa-mir-arrested/
-
-**Who do I drop? Jahan Dotson, Quentin Johnston and more fantasy football cuts ahead of Week 1**\
-`Gary Davenport offers up his first drops list of the 2024 season, with a couple of former first-round wideouts making (not making?) the cut.`\
-https://nytimes.com/athletic/5742202/2024/09/03/drops-week-1-2024-fantasy-football/
-
-**Trump Ordered to Stop Using Isaac Hayes Song at Rallies**\
-`A federal court judge in Georgia granted a request by the singer’s estate to bar the former president from playing “Hold On, I’m Coming” at his events.`\
-https://nytimes.com/2024/09/03/us/politics/trump-isaac-hayes-song.html
 
