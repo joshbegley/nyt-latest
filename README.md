@@ -1,3 +1,7 @@
+**49ers' Ricky Pearsall wanted to assure teammates he was OK — so he showed up at work**\
+`Teammates talked about a roller-coaster 48 hours that began with news of the shooting and ended with seeing Pearsall at 49ers headquarters.`\
+https://nytimes.com/athletic/5743158/2024/09/03/ricky-pearsall-49ers-shooting-teammates/
+
 **Brian Stelter Returns to CNN as Chief Media Analyst**\
 `Mr. Stelter, who left CNN two years ago, will be helming his newsletter for the network, but without a Sunday show.`\
 https://nytimes.com/2024/09/03/business/media/brian-stelter-cnn-reliable-sources.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5742745/2024/09/03/leon-draisaitl-oilers-negotiatio
 **Will the College Protests Matter in November?**\
 `Republicans tied campus unrest to their party platform. But the intensity may have fizzled.`\
 https://nytimes.com/2024/09/03/us/politics/college-protests-gaza-election.html
-
-**Ex-Doctor Pleads Guilty to Manslaughter in New York Woman’s Suicide**\
-`Stephen Miller, a right-to-die advocate, was sentenced to five years’ probation. His lawyer said that “morally” Mr. Miller had done nothing wrong.`\
-https://nytimes.com/2024/09/03/nyregion/doctor-assisted-suicide-ny-guilty.html
 
