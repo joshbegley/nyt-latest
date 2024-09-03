@@ -1,3 +1,15 @@
+**Russian Strike on Ukrainian City Kills at Least 41, Zelensky Says**\
+`Two ballistic missiles hit an educational institution and a neighboring hospital in Poltava, in eastern Ukraine, President Volodymyr Zelensky said.`\
+https://nytimes.com/live/2024/09/03/world/ukraine-russia-missile-strike-poltava
+
+**Sabrina Carpenter and Pop’s Next Gen Have a Secret Weapon: Amy Allen**\
+`The songwriter behind the summer smashes “Espresso” and “Please Please Please” is helping drive a moment of idiosyncrasy in Top 40 hits.`\
+https://nytimes.com/2024/09/03/arts/music/amy-allen-sabrina-carpenter.html
+
+**Here are the latest developments.**\
+`Two ballistic missiles hit an educational institution and a neighboring hospital in Poltava, eastern Ukraine, President Volodymyr Zelensky said.`\
+https://nytimes.com/live/2024/09/03/world/ukraine-russia-missile-strike-poltava/ukraine-russia-missile-strike-poltava
+
 **Biden’s Top Climate Negotiator to Visit China This Week**\
 `John Podesta is expected to push for China to set more ambitious greenhouse gas targets.`\
 https://nytimes.com/2024/09/03/climate/podesta-china-climate-change.html
