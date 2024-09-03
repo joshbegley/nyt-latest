@@ -1,3 +1,15 @@
+**Former Aide to Hochul and Cuomo Arrested on Federal Charges**\
+`Linda Sun, a former deputy chief of staff to Gov. Kathy Hochul, and her husband were arrested on Tuesday on charges that remain sealed.`\
+https://nytimes.com/2024/09/03/nyregion/linda-sun-arrested-hochul.html
+
+**Deadly Strike Destroys Buildings in Eastern Ukrainian City**\
+`Ukrainian officials said that a search and rescue operation was underway after two Russian ballistic missiles hit a military academy and a nearby hospital in Poltava, Ukraine.`\
+https://nytimes.com/video/world/europe/100000009670562/ukraine-strike-poltava.html
+
+**Live by the portal, die by the portal: FSU's 0-2 start proof latest haul not special enough**\
+`The 2024 Seminoles look more like the teams Mike Norvell coached through 3-6 and 5-7 seasons than the last two that finished 10-3 and 13-1.`\
+https://nytimes.com/athletic/5741258/2024/09/03/florida-state-roster-struggles-transfer-portal/
+
 **Live Updates: Russian Strike Kills at Least 41 in Ukraine, Zelensky Says**\
 `Two ballistic missiles hit a military academy and a neighboring hospital in Poltava, in eastern Ukraine, President Volodymyr Zelensky said.`\
 https://nytimes.com/live/2024/09/03/world/ukraine-russia-missile-strike-poltava
