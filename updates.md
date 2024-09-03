@@ -1,3 +1,7 @@
+**Chicago Man Charged in Fatal Shootings of Four Sleeping Train Passengers**\
+`“This was a random act of violence,” an official said. The man, 30, faces four counts of murder.`\
+https://nytimes.com/2024/09/03/us/chicago-train-fatal-shootings.html
+
 **U.S. Charges Hamas Leaders in Oct. 7 Massacre**\
 `Yahya Sinwar, the group’s political chief, was charged with carrying out the terrorist attacks that resulted in the killing of at least 43 Americans. Five other Hamas senior leaders were also charged.`\
 https://nytimes.com/2024/09/03/us/politics/hamas-leaders-charged-sinwar.html
