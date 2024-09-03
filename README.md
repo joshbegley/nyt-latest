@@ -1,3 +1,12 @@
+**NHL contract grades: Leon Draisaitl secures long-term future in Edmonton**\
+`Locking in Draisaitl avoids a season-long distraction and sends a clear message that the Oilers are not taking their foot off the gas.
+`\
+https://nytimes.com/athletic/5741905/2024/09/03/leon-draisaitl-oilers-contract/
+
+**The Slain Hostages, and the Aftermath**\
+`Readers react to Biden, Netanyahu and the killing of the hostages. Also: Trump and I.V.F.; a gay-Christian alliance; reasons for joy; Disney trips; fancy dorms.`\
+https://nytimes.com/2024/09/03/opinion/israel-hostages-hamas.html
+
 **NFL Week 1 odds, spreads, totals: Chiefs-Ravens kick off a fantastic opening slate**\
 `The Chiefs are favored by a field goal over the Ravens in the Week 1 kickoff. See odds for every NFL Week 1 game.`\
 https://nytimes.com/athletic/5741802/2024/09/03/nfl-week-1-odds-spreads-how-to-watch-chiefs-ravens/
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/5741880/2024/09/03/south-carolina-ashlyn-watkins-ar
 **Transcript: Ezra Klein Interviews Jia Tolentino**\
 `The Sep. 3, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/09/03/podcasts/transcript-ezra-klein-interviews-jia-tolentino.html
-
-**Brighton set to sign Gomez from Inter Miami**\
-`Brighton &amp; Hove Albion are set to sign Diego Gomez from Inter Miami for a fee of £11million.`\
-https://nytimes.com/athletic/5649173/2024/09/03/diego-gomez-inter-miami-brighton-transfer/
-
-**Recent attacks renew Ukraine’s pleas for more air defense systems.**\
-`By Cassandra Vinograd`\
-https://nytimes.com/live/2024/09/03/world/ukraine-russia-missile-strike-poltava/recent-attacks-renew-ukraines-pleas-for-more-air-defense-systems
 
