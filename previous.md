@@ -6,7 +6,7 @@ https://nytimes.com/2024/09/03/business/media/brian-stelter-cnn-reliable-sources
 `Lawyers for the collector, based in California, said the Manhattan district attorney’s office did not have the jurisdiction or the evidence to support seizing the ancient statue.`\
 https://nytimes.com/2024/09/03/arts/design/collector-sues-to-block-investigators-from-seizing-roman-bronze.html
 
-**Texas Deputy Is Shot to Death on His Way to Work, Police Say**\
+**Texas Deputy Is Shot to Death on His Way to Work**\
 `A deputy constable was driving to work Tuesday when he was shot and killed at an intersection in Houston, the police said. A person of interest was in custody Tuesday afternoon.`\
 https://nytimes.com/2024/09/03/us/houston-deputy-constable-shot.html
 
