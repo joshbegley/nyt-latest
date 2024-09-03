@@ -1,3 +1,11 @@
+**Election 2024 Polls: Biden vs. Trump (Archived)**\
+`Our polling averages of the Biden vs. Trump matchup in the 2024 presidential race, using data from national and battleground state polls.`\
+https://nytimes.com/interactive/2024/us/elections/polls-biden-archive.html
+
+**Bradley will play for U.S. at Presidents Cup; Thomas left off team**\
+`Bradley, the 2025 Ryder Cup captain, will be relieved of captain's assistant duties in order to focus on playing in the Presidents Cup.`\
+https://nytimes.com/athletic/5742246/2024/09/03/keegan-bradley-justin-thomas-usa-presidents-cup/
+
 **Foden, Palmer and Watkins withdraw from England squad**\
 `Phil Foden, Cole Palmer and Ollie Watkins have withdrawn from the England squad for their upcoming Nations League fixtures.`\
 https://nytimes.com/athletic/5739447/2024/09/03/foden-palmer-watkins-england-squad-out/
