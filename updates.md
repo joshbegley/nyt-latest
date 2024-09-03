@@ -1,3 +1,7 @@
+**49ers' Ricky Pearsall wanted to assure teammates he was OK — so he showed up at work**\
+`Teammates talked about a roller-coaster 48 hours that began with news of the shooting and ended with seeing Pearsall at 49ers headquarters.`\
+https://nytimes.com/athletic/5743158/2024/09/03/ricky-pearsall-49ers-shooting-teammates/
+
 **Texas Deputy Is Shot to Death on His Way to Work**\
 `A deputy constable was driving to work Tuesday when he was shot and killed at an intersection in Houston, the police said. A person of interest was in custody Tuesday afternoon.`\
 https://nytimes.com/2024/09/03/us/houston-deputy-constable-shot.html
