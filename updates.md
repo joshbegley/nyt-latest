@@ -1,3 +1,7 @@
+**Browns, Huntington Bank agree to naming rights deal**\
+`The stadium opened as Cleveland Browns Stadium in 1999, then from 2013-2023 was known as FirstEnergy Stadium.`\
+https://nytimes.com/athletic/5742028/2024/09/03/cleveland-browns-stadium-name-huntington-bank-field/
+
 **Hewlett Packard to Pursue $4 Billion Claim Against Mike Lynch’s Estate**\
 `The money is tied to a lawsuit in Britain by the tech services giant over its acquisition of Autonomy, the software firm Mr. Lynch founded. He died last month.`\
 https://nytimes.com/2024/09/03/business/dealbook/mike-lynch-hp-lawsuit.html
