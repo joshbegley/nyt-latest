@@ -1,3 +1,11 @@
+**Justin Steele’s setback puts the Chicago Cubs into problem-solving mode again**\
+`The Cubs have been adept at solving problems all season, and Steele's untimely setback puts them back in that familiar spot.`\
+https://nytimes.com/athletic/5740931/2024/09/03/justin-steeles-setback-chicago-cubs/
+
+**Ranking the Premier League clubs' transfers windows: Unhinged, treacherous, hmmm**\
+`The Athletic provides a handy countdown from 20 to one, from who had a shocking transfer window to who did rather quite well…`\
+https://nytimes.com/athletic/5735669/2024/09/03/premier-league-clubs-transfer-window-ranking/
+
 **Liverpool's contracts timebomb: The risk of losing Salah, Alexander-Arnold and Van Dijk for nothing**\
 `Anfield’s new regime have difficult paths to negotiate with Van Dijk, Salah and Alexander-Arnold - there's no time to waste`\
 https://nytimes.com/athletic/5726879/2024/09/03/liverpools-contracts-timebomb/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5738017/2024/09/03/premier-league-players-uncertain
 **Kamala Harris Says U.S. Steel Should Stay American-Owned**\
 `Both major presidential candidates now say they oppose the proposed takeover of the industrial giant by Nippon Steel of Japan.`\
 https://nytimes.com/2024/09/03/business/kamala-harris-us-steel-nippon-steel.html
-
-**A U.K. Succession Drama: Who Will Be the Next Ambassador to the U.S.?**\
-`Diplomat Karen Pierce has built alliances with Trump officials and the Biden-Harris administration. But with her term set to end next year, the U.K. government has a dilemma over her replacement.`\
-https://nytimes.com/2024/09/03/world/europe/karen-pierce-uk-ambassador-washington-successor.html
-
-**An Incomplete List of Everything Threatening China’s National Security**\
-`Watch out for Good Samaritans with ulterior motives, packages in your mail and college students looking to make a quick buck, China tells its people.`\
-https://nytimes.com/2024/09/03/world/asia/china-security-threats.html
 
