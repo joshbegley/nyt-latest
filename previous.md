@@ -1,3 +1,7 @@
+**Stock Comeback Falters and Oil Prices Slide as Unease Returns**\
+`The S&P 500 fell nearly 2 percent on Tuesday, putting it on track for its worst day since an early August meltdown.`\
+https://nytimes.com/2024/09/03/business/stocks-oil-prices-economy.html
+
 **Home Cooking So Good, Only a Restaurant Could Do It**\
 `In her first review as interim critic, Melissa Clark visits Lola’s, whose produce-driven cooking is familiar but lifted by brilliant twists and tweaks.`\
 https://nytimes.com/2024/09/03/dining/lolas-restaurant-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5742246/2024/09/03/keegan-bradley-justin-thomas-usa
 **Foden, Palmer and Watkins withdraw from England squad**\
 `Phil Foden, Cole Palmer and Ollie Watkins have withdrawn from the England squad for their upcoming Nations League fixtures.`\
 https://nytimes.com/athletic/5739447/2024/09/03/foden-palmer-watkins-england-squad-out/
-
-**An Olympic Runner From Uganda Is Severely Burned in Gasoline Attack**\
-`Rebecca Cheptegei, a long-distance runner who competed in the Olympic marathon in Paris, is in critical condition after a man poured gas on her and set her on fire, police in Kenya said.`\
-https://nytimes.com/2024/09/03/world/africa/rebecca-cheptegei-uganda-olympian-burned.html
 

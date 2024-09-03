@@ -1,3 +1,7 @@
+**Stock Comeback Falters and Oil Prices Slide as Unease Returns**\
+`The S&P 500 fell nearly 2 percent on Tuesday, putting it on track for its worst day since an early August meltdown.`\
+https://nytimes.com/2024/09/03/business/stocks-oil-prices-economy.html
+
 **Home Cooking So Good, Only a Restaurant Could Do It**\
 `In her first review as interim critic, Melissa Clark visits Lola’s, whose produce-driven cooking is familiar but lifted by brilliant twists and tweaks.`\
 https://nytimes.com/2024/09/03/dining/lolas-restaurant-review.html
