@@ -1,3 +1,7 @@
+**Back to School**\
+`How do you feel about the start of a new academic year?`\
+https://nytimes.com/2024/09/03/learning/back-to-school.html
+
 **U.S. Open quarterfinals: Emma Navarro aims for semis before an Australian Open final rematch**\
 `The last eight in the bottom half of the draws fight for a place in the semifinals.`\
 https://nytimes.com/athletic/5740190/2024/09/03/us-open-quarterfinal-watch-guide-navarro-zheng-sabalenka-tiafoe/
