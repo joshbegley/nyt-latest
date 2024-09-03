@@ -1,3 +1,7 @@
+**College football Week 2 odds, schedule: Texas-Michigan, Colorado-Nebraska and more**\
+`Texas at Michigan and Colorado at Nebraska highlight college football's Week 2 action. Here are the odds for those games and the full slate.`\
+https://nytimes.com/athletic/5741748/2024/09/03/college-football-week-2-odds-schedule-texas-michigan-colorado-nebraska/
+
 **Bruins' Brad Marchand starting contract year behind schedule after 3 surgeries**\
 `The Bruins captain had surgery for a torn tendon in his elbow this offseason. He also underwent groin and hernia procedures.`\
 https://nytimes.com/athletic/5742286/2024/09/03/bruins-brad-marchand-surgeries/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5742202/2024/09/03/drops-week-1-2024-fantasy-footba
 **Trump Ordered to Stop Using Isaac Hayes Song at Rallies**\
 `A federal court judge in Georgia granted a request by the singer’s estate to bar the former president from playing “Hold On, I’m Coming” at his events.`\
 https://nytimes.com/2024/09/03/us/politics/trump-isaac-hayes-song.html
-
-**Daniel Craig Gets Explicit (and Romantic) in Luca Guadagnino’s ‘Queer’**\
-`At the Venice Film Festival, the star said he embraced the scenes with sexual encounters: ‘If I wasn’t in the movie and saw this movie, I’d want to be in it.’`\
-https://nytimes.com/2024/09/03/movies/daniel-craig-queer-venice-film-festival.html
 

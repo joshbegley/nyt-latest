@@ -1,3 +1,7 @@
+**College football Week 2 odds, schedule: Texas-Michigan, Colorado-Nebraska and more**\
+`Texas at Michigan and Colorado at Nebraska highlight college football's Week 2 action. Here are the odds for those games and the full slate.`\
+https://nytimes.com/athletic/5741748/2024/09/03/college-football-week-2-odds-schedule-texas-michigan-colorado-nebraska/
+
 **Bruins' Brad Marchand starting contract year behind schedule after 3 surgeries**\
 `The Bruins captain had surgery for a torn tendon in his elbow this offseason. He also underwent groin and hernia procedures.`\
 https://nytimes.com/athletic/5742286/2024/09/03/bruins-brad-marchand-surgeries/
