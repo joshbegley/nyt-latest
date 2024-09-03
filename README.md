@@ -1,3 +1,11 @@
+**Hewlett-Packard to Pursue $4 Billion Claim Against Mike Lynch’s Estate**\
+`The money is tied to a fraud lawsuit in Britain by the tech services giant over its acquisition of Autonomy, the software firm founded by Mr. Lynch, who died last month when his yacht sank.`\
+https://nytimes.com/2024/09/03/business/dealbook/mike-lynch-hp-lawsuit.html
+
+**South Carolina's Ashlyn Watkins arrested**\
+`According to WLTX, the warrant said the victim was treated for non-life threatening injuries.`\
+https://nytimes.com/athletic/5741880/2024/09/03/south-carolina-ashlyn-watkins-arrested/
+
 **Transcript: Ezra Klein Interviews Jia Tolentino**\
 `The Sep. 3, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/09/03/podcasts/transcript-ezra-klein-interviews-jia-tolentino.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/03/insider/seeing-dances-of-the-harlem-renaissance-i
 **The Spies of ‘Slow Horses’ Are ‘as Useless as Everyone Else’**\
 `Will Smith, the showrunner, discusses the comic spy thriller, which returns for its fourth season on Wednesday and is up for nine Emmy Awards later this month.`\
 https://nytimes.com/2024/09/03/arts/television/slow-horses-will-smith.html
-
-**Former Volkswagen Chief Executive Faces Trial in Emissions Case**\
-`Nine years after the carmaker admitted to concealing emissions on a massive scale, Martin Winterkorn will be tried in a German court.`\
-https://nytimes.com/2024/09/03/business/volkswagen-trial-emissions-ceo-winterkorn.html
-
-**Keeping the Spirit of Harlem Dance Alive**\
-`Meet three women who are celebrating, and remixing, Black dance.`\
-https://nytimes.com/interactive/2024/09/03/arts/dance/harlem-renaissance-dance-100-anniversary.html
 
