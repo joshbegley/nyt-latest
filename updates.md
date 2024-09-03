@@ -1,3 +1,7 @@
+**The Power Broker at 50**\
+`Robert Caro’s hugely influential book still resonates with politicians and public officials in New York City today.`\
+https://nytimes.com/2024/09/03/nyregion/the-power-broker-at-50.html
+
 **Lewis joins Sao Paulo from Newcastle United**\
 `Jamal Lewis says his loan move to Sao Paulo from Newcastle United was an opportunity he &#8220;couldn&#8217;t pass up&#8221;.`\
 https://nytimes.com/athletic/5741206/2024/09/03/jamal-lewis-sao-paulo-transfer-newcastle/
