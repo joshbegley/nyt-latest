@@ -1,3 +1,11 @@
+**Is this the year the Falcons' pass rush finally clicks?**\
+`No NFL team has been worse in the last decade at getting the quarterback on the ground than the Falcons. Can they change that this season?`\
+https://nytimes.com/athletic/5739568/2024/09/03/falcons-pass-rush-improvement/
+
+**Jarlin Susana's progress, Vance Honeycutt's swing-and-miss — MLB prospects notes**\
+`Notes on Susana's progress in High A, Honeycutt's strikeout issues, Parker Messick's arsenal and more.`\
+https://nytimes.com/athletic/5739028/2024/09/03/mlb-prospect-scouting-jarlin-susana-vance-honeycutt/
+
 **Controversy, mystery and lore: How the Big House at Michigan embodies college football**\
 `When Michigan hosts Texas, college football's largest stadium will be a star of the show — and the center of a century-long debate.`\
 https://nytimes.com/athletic/5740008/2024/09/03/michigan-big-house-college-football-largest-stadium/
