@@ -1,3 +1,7 @@
+**11-Year-Old Is Charged in Killing of 82-Year-Old Ex-Mayor and His Daughter**\
+`The police said that the boy had confessed to fatally shooting two relatives: a former mayor of the small city of Minden, La., and his 31-year-old daughter.`\
+https://nytimes.com/2024/09/03/us/louisiana-boy-minden-mayor-shooting.html
+
 **Son of John McCain Says Trump Team’s Cemetery Clash Violated ‘Sacred Place’**\
 `Jimmy McCain said the confrontation at Arlington National Cemetery could be “extremely triggering” for the families of U.S. service members buried there.`\
 https://nytimes.com/2024/09/03/us/politics/trump-jimmy-mccain-arlington-cemetery.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5739251/2024/09/03/monchi-damian-vidagany-aston-vil
 **Taylor Fritz beats Alexander Zverev at U.S. Open for first Grand Slam semifinal**\
 `The American came through another tight contest with the German to advance to the last four.`\
 https://nytimes.com/athletic/5742880/2024/09/03/taylor-fritz-zverev-us-open-result/
-
-**Here are some of the other deadly strikes in Ukraine’s war with Russia.**\
-`By Eve Sampson`\
-https://nytimes.com/live/2024/09/03/world/ukraine-russia-missile-strike-poltava/here-are-some-of-the-other-deadly-strikes-in-ukraines-war-with-russia
 
