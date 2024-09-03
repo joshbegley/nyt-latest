@@ -1,3 +1,7 @@
+**49ers' Lynch: Pearsall 'doing really well' after Saturday shooting**\
+`San Francisco placed Pearsall on the reserve/non-football injury list Monday.`\
+https://nytimes.com/athletic/5742920/2024/09/03/49ers-ricky-pearsall-shooting/
+
 **11-Year-Old Is Charged in Killing of 82-Year-Old Ex-Mayor and His Daughter**\
 `The police said that the boy had confessed to fatally shooting two relatives: a former mayor of the small city of Minden, La., and his 31-year-old daughter.`\
 https://nytimes.com/2024/09/03/us/louisiana-boy-minden-mayor-shooting.html
