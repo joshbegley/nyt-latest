@@ -1,3 +1,7 @@
+**Texas Deputy Is Shot to Death on His Way to Work, Police Say**\
+`A deputy constable was driving to work Tuesday when he was shot and killed at an intersection in Houston, the police said. A person of interest was in custody Tuesday afternoon.`\
+https://nytimes.com/2024/09/03/us/houston-deputy-constable-shot.html
+
 **MLB says teams carried by Diamond "unable to plan" 2025 revenues, threatens legal action**\
 `A judge approved deals between Diamond and the NHL and NBA, but MLB argues that the broadcaster's plans won't work for baseball. `\
 https://nytimes.com/athletic/5743074/2024/09/03/mlb-diamond-threat-legal-action/
