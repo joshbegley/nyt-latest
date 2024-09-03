@@ -1,3 +1,11 @@
+**Can You Find the 12 Thrillers Hidden Within This Text?**\
+`The 20th-century Cold War was rife with geopolitical tension and inspired a lot of great espionage thrillers. This text puzzle challenges you to uncover the titles of a dozen novels set in and around that frosty era.`\
+https://nytimes.com/interactive/2024/09/03/books/review/cold-war-novels.html
+
+**The Harris operation will send $24.5 million to groups supporting down-ballot Democrats.**\
+`By Reid J. Epstein`\
+https://nytimes.com/live/2024/09/03/us/harris-trump-election/the-harris-operation-will-send-24-5-million-to-groups-supporting-down-ballot-democrats
+
 **Trent Williams ending his holdout, finalizing new deal with 49ers**\
 `Williams, a three-time All-Pro and 11-time Pro Bowler, had been holding out since the start of camp in search of a new deal.`\
 https://nytimes.com/athletic/5733896/2024/09/03/trent-williams-san-francisco-49ers-contract/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/03/climate/podesta-china-climate-change.html
 **Here’s the latest on the 2024 race.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/09/03/us/harris-trump-election/heres-the-latest-on-the-2024-race
-
-**Dodgers takeaways: A big series win and the team's biggest question**\
-`With 24 games remaining, the Dodgers have some breathing room in the NL West, though rotation questions continue to plague the club.`\
-https://nytimes.com/athletic/5740801/2024/09/03/dodgers-takeaways-rotation-concerns-september-call-ups/
-
-**Kyle Harrison hasn't dominated as a rookie, but Giants believe his time is coming**\
-`Harrison hasn't had his best stuff this season, but he's managed to remain competitive, which should bode well for him in the future.`\
-https://nytimes.com/athletic/5740999/2024/09/03/sf-giants-kyle-harrison-rookie-season/
 
