@@ -1,3 +1,7 @@
+**Inside Newcastle: Flawed transfer strategy? Frictions with owners? Expectations lowered?**\
+`Our Newcastle writers Chris Waugh and George Caulkin answer questions on Paul Mitchell, the pursuit of Marc Guehi and the owners' ambitions`\
+https://nytimes.com/athletic/5739241/2024/09/03/inside-newcastle-owners-transfers/
+
 **Justin Steele’s setback puts the Chicago Cubs into problem-solving mode again**\
 `The Cubs have been adept at solving problems all season, and Steele's untimely setback puts them back in that familiar spot.`\
 https://nytimes.com/athletic/5740931/2024/09/03/justin-steeles-setback-chicago-cubs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5739383/2024/09/03/leandro-trossard-dilemma-arsenal
 **The Uncertain XI - Premier League players who didn't get a move**\
 `Although the summer transfer window has passed, many big-name players in the Premier League still have their futures unresolved`\
 https://nytimes.com/athletic/5738017/2024/09/03/premier-league-players-uncertain-futures/
-
-**Kamala Harris Says U.S. Steel Should Stay American-Owned**\
-`Both major presidential candidates now say they oppose the proposed takeover of the industrial giant by Nippon Steel of Japan.`\
-https://nytimes.com/2024/09/03/business/kamala-harris-us-steel-nippon-steel.html
 
