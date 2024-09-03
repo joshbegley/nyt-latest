@@ -1,3 +1,7 @@
+**Two U.S. Marines Attacked in Turkey by Anti-American Youth Group**\
+`Turkish officials said they had detained 15 members of the group. The two servicemen had returned to the ship and were safe, U.S. officials said.`\
+https://nytimes.com/2024/09/02/world/europe/marines-attacked-turkey.html
+
 **Upper Hand**\
 `Alex Eaton-Salners crosses the floor.`\
 https://nytimes.com/2024/09/02/crosswords/daily-puzzle-2024-09-03.html
