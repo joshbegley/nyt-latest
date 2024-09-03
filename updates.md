@@ -1,3 +1,7 @@
+**Blues' Torey Krug to have surgery on pre-arthritic ankle, miss 2024-25 season**\
+`The Blues announced Tuesday that Krug's left ankle will require surgery and he'll be sidelined indefinitely.`\
+https://nytimes.com/athletic/5741542/2024/09/03/blues-torey-krug-surgery/
+
 **‘The Notebook’ Will End Its Broadway Run in December. A Tour Is Next.**\
 `The show, nominated for three Tony Awards, opened March 14 at the Gerald Schoenfeld Theater. It will go on a national tour starting next September.`\
 https://nytimes.com/2024/09/03/theater/notebook-broadway-closing.html
