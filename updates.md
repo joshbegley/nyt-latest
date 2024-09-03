@@ -1,3 +1,11 @@
+**For 20 minutes, an American male champion looked possible. Then came Jannik Sinner**\
+`Prognostication is a mug's game in tennis but, however you slice the draw, a home Grand Slam champion remains a tall order.`\
+https://nytimes.com/athletic/5740971/2024/09/03/us-open-title-predictions-sinner-fritz-tiafoe/
+
+**Russian Strike on Ukrainian City Kills at Least 41, Zelensky Says**\
+`Two ballistic missiles hit a military academy and a neighboring hospital in Poltava, in eastern Ukraine, President Volodymyr Zelensky said.`\
+https://nytimes.com/live/2024/09/03/world/ukraine-russia-missile-strike-poltava
+
 **Trent Williams ending his holdout, finalizing new deal with 49ers**\
 `Williams, a three-time All-Pro and 11-time Pro Bowler, had been holding out since the start of camp in search of a new deal.`\
 https://nytimes.com/athletic/5733896/2024/09/03/trent-williams-san-francisco-49ers-contract/
