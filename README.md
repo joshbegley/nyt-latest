@@ -1,3 +1,11 @@
+**Is this the year the Falcons' pass rush finally clicks?**\
+`No NFL team has been worse in the last decade at getting the quarterback on the ground than the Falcons. Can they change that this season?`\
+https://nytimes.com/athletic/5739568/2024/09/03/falcons-pass-rush-improvement/
+
+**Jarlin Susana's progress, Vance Honeycutt's swing-and-miss — MLB prospects notes**\
+`Notes on Susana's progress in High A, Honeycutt's strikeout issues, Parker Messick's arsenal and more.`\
+https://nytimes.com/athletic/5739028/2024/09/03/mlb-prospect-scouting-jarlin-susana-vance-honeycutt/
+
 **Controversy, mystery and lore: How the Big House at Michigan embodies college football**\
 `When Michigan hosts Texas, college football's largest stadium will be a star of the show — and the center of a century-long debate.`\
 https://nytimes.com/athletic/5740008/2024/09/03/michigan-big-house-college-football-largest-stadium/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/03/opinion/harris-turmp-undecided-young-voters.html
 **Activists Charged With Pushing Russian Propaganda Go on Trial in Florida**\
 `Experts say the case offers a window into how the Russian government tries to influence American elections and promote its own geopolitical agenda.`\
 https://nytimes.com/2024/09/03/us/activists-russian-propaganda-florida-trial.html
-
-**College Students Need to Grow Up. Schools Need to Let Them.**\
-`It’s time for students to take back their independence.`\
-https://nytimes.com/2024/09/03/opinion/college-students-adulting.html
-
-**In Harris’s Ads, Project 2025 Is No Longer a Joke**\
-`The tone has shifted from the more comic references at the convention.`\
-https://nytimes.com/live/2024/08/27/opinion/thepoint/tipsheet-trump-harris-project2025
 
