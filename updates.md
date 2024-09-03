@@ -1,3 +1,7 @@
+**Shohei Ohtani excited to return to "special place" in Anaheim**\
+`When Ohtani steps into the batter's box at Angel Stadium on Tuesday, it will mark his first time doing so in that park for a winning club.`\
+https://nytimes.com/athletic/5740809/2024/09/02/shohei-ohtani-return-to-anaheim/
+
 **Here's why Yankees are not manipulating Jasson Domínguez's service time**\
 `Domínguez would not qualify for a Prospect Promotion Incentive (PPI) draft pick because he has already amassed over 60 days of service time.`\
 https://nytimes.com/athletic/5740790/2024/09/02/jasson-dominguez-yankees-service-time/
