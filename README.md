@@ -1,3 +1,7 @@
+**Putin Gets a Red-Carpet Welcome in Mongolia Despite Arrest Warrant**\
+`Ukrainian officials expressed outrage over the Russian leader’s visit, warning it would seek to “ensure that this has consequences” for Mongolia.`\
+https://nytimes.com/2024/09/03/world/asia/putin-mongolia-icc-arrest.html
+
 **Flames mailbag: Submit your questions for Julian McKenzie**\
 `Got a question about the Flames? Submit it here and The Athletic’s Julian McKenzie will answer a selection in an upcoming mailbag.`\
 https://nytimes.com/athletic/5737900/2024/09/03/calgary-flames-mailbag-mckenzie-september-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5739993/2024/09/03/broadcasts-college-football-espn
 **Dozens of Hostages Remain in Gaza: What We Know**\
 `More than 60 living hostages, and the bodies of about 35 others taken captive on Oct. 7, are still in Gaza, the Israeli authorities say.`\
 https://nytimes.com/2024/09/03/world/middleeast/hostages-in-gaza-hamas.html
-
-**Submit your Astros questions for Chandler Rome’s mailbag**\
-`Submit your questions for Chandler Rome's upcoming Astros mailbag.`\
-https://nytimes.com/athletic/5740446/2024/09/03/astros-chandler-rome-mailbag-questions/
 
