@@ -1,3 +1,11 @@
+**Richard A Brown**\
+`News about Richard A Brown. Commentary and archival information about Richard A Brown from The New York Times.`\
+https://nytimes.com/topic/richard-a-brown
+
+**Leon Draisaitl's extension cements Oilers' Stanley Cup contention window**\
+`While there are aspects to be concerned about with Draisaitl’s whooper pact, the good far outweighs the bad.`\
+https://nytimes.com/athletic/5742669/2024/09/03/leon-draisaitl-contract-oilers/
+
 **Harris, Proposing a Tax Break, Makes a Play for Small-Business Owners**\
 `The plan, which Kamala Harris will announce on Wednesday in New Hampshire, would allow new companies to deduct up to $50,000 in start-up expenses, a campaign official said.`\
 https://nytimes.com/2024/09/03/us/politics/harris-tax-break-small-businesses.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/03/arts/television/netflix-best-new-movies-tv.html
 **PWHL Toronto to play at Coca-Cola Coliseum in 2024-25**\
 `The arena is also home to the AHL’s Toronto Marlies and will serve as the home court for the WNBA’s Toronto expansion franchise in 2026.`\
 https://nytimes.com/athletic/5742653/2024/09/03/pwhl-toronto-arena-2024-25-season/
-
-**How Netanyahu Is Trying to Save Himself, Elect Trump and Defeat Harris**\
-`The Israeli prime minister’s approach to Gaza and the hostages is plainly tied up in his political self-interest.`\
-https://nytimes.com/2024/09/03/opinion/netanyahu-trump-harris.html
-
-**Analysis: Free agents who could capitalize on career-best seasons in new CBA era**\
-`A new CBA has opened up free agency. These players are in prime position to benefit most.`\
-https://nytimes.com/athletic/5742374/2024/09/03/nwsl-free-agency-best-available-by-position/
 

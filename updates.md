@@ -1,3 +1,11 @@
+**Richard A Brown**\
+`News about Richard A Brown. Commentary and archival information about Richard A Brown from The New York Times.`\
+https://nytimes.com/topic/richard-a-brown
+
+**Leon Draisaitl's extension cements Oilers' Stanley Cup contention window**\
+`While there are aspects to be concerned about with Draisaitl’s whooper pact, the good far outweighs the bad.`\
+https://nytimes.com/athletic/5742669/2024/09/03/leon-draisaitl-contract-oilers/
+
 **Harris, Proposing a Tax Break, Makes a Play for Small-Business Owners**\
 `The plan, which Kamala Harris will announce on Wednesday in New Hampshire, would allow new companies to deduct up to $50,000 in start-up expenses, a campaign official said.`\
 https://nytimes.com/2024/09/03/us/politics/harris-tax-break-small-businesses.html
