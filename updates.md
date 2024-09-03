@@ -1,3 +1,7 @@
+**Justice Jackson Treads Carefully in Talking About the Supreme Court**\
+`In a new memoir, the first Black woman on the Supreme Court was more forthcoming about her upbringing in Miami, Matt Damon and her rise to the court.`\
+https://nytimes.com/2024/09/03/us/ketanji-brown-jackson-memoir.html
+
 **Will the College Protests Matter in November?**\
 `Republicans tied campus unrest to their party platform. But the intensity may have fizzled.`\
 https://nytimes.com/2024/09/03/us/politics/college-protests-gaza-election.html
