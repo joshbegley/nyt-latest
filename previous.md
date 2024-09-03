@@ -1,3 +1,11 @@
+**Elon Musk’s Starlink Agrees to Block the X Social Network in Brazil**\
+`Brazilian regulators had said Sunday that Starlink planned to defy government orders to block X in the country. On Tuesday, the satellite-internet service said it would comply.`\
+https://nytimes.com/2024/09/03/world/americas/brazil-starlink-elon-musk-x.html
+
+**Russia Carried Out One of the Deadliest Strikes of the War**\
+`Also, polio vaccinations in Gaza are beating goals. Here's the latest at the end of Tuesday.`\
+https://nytimes.com/2024/09/03/briefing/russia-ukraine-strike-pop-songwriter-amy-allen.html
+
 **Judge Denies Trump’s Request to Move Criminal Case to Federal Court**\
 `Judge Alvin Hellerstein said that the Supreme Court’s finding that presidents enjoy immunity does not apply in the state hush-money case — in which Donald Trump was already convicted.`\
 https://nytimes.com/2024/09/03/nyregion/trump-hush-money-federal-court.html
@@ -29,12 +37,4 @@ https://nytimes.com/topic/richard-a-brown
 **Leon Draisaitl's extension cements Oilers' Stanley Cup contention window**\
 `While there are aspects to be concerned about with Draisaitl’s whooper pact, the good far outweighs the bad.`\
 https://nytimes.com/athletic/5742669/2024/09/03/leon-draisaitl-contract-oilers/
-
-**Harris, Proposing a Tax Break, Makes a Play for Small-Business Owners**\
-`The plan, which Kamala Harris will announce on Wednesday in New Hampshire, would allow new companies to deduct up to $50,000 in start-up expenses, a campaign official said.`\
-https://nytimes.com/2024/09/03/us/politics/harris-tax-break-small-businesses.html
-
-**Steve Bruce appointed Blackpool head coach**\
-`Steve Bruce has returned to management with League One side Blackpool, signing a two-year contract to become their new head coach.`\
-https://nytimes.com/athletic/5742794/2024/09/03/steve-bruce-blackpool-head-coach/
 

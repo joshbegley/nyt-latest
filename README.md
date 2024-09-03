@@ -1,3 +1,11 @@
+**Son of John McCain Says Trump Team’s Cemetery Clash Violated ‘Sacred Place’**\
+`Jimmy McCain said the confrontation at Arlington National Cemetery could be “extremely triggering” for the families of U.S. soldiers buried there.`\
+https://nytimes.com/2024/09/03/us/politics/trump-jimmy-mccain-arlington-cemetery.html
+
+**Plea Deal Resolves Remaining Charges in Killings of Albuquerque Muslim Men**\
+`The defendant, Muhammad Syed, pleaded no contest to two murder charges. But his motive remains unknown.`\
+https://nytimes.com/2024/09/03/us/albuquerque-muslim-killings-plea-deal.html
+
 **Elon Musk’s Starlink Agrees to Block the X Social Network in Brazil**\
 `Brazilian regulators had said Sunday that Starlink planned to defy government orders to block X in the country. On Tuesday, the satellite-internet service said it would comply.`\
 https://nytimes.com/2024/09/03/world/americas/brazil-starlink-elon-musk-x.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5742880/2024/09/03/taylor-fritz-zverev-us-open-resu
 **Here are some of the other deadly strikes in Ukraine’s war with Russia.**\
 `By Eve Sampson`\
 https://nytimes.com/live/2024/09/03/world/ukraine-russia-missile-strike-poltava/here-are-some-of-the-other-deadly-strikes-in-ukraines-war-with-russia
-
-**Richard A Brown**\
-`News about Richard A Brown. Commentary and archival information about Richard A Brown from The New York Times.`\
-https://nytimes.com/topic/richard-a-brown
-
-**Leon Draisaitl's extension cements Oilers' Stanley Cup contention window**\
-`While there are aspects to be concerned about with Draisaitl’s whooper pact, the good far outweighs the bad.`\
-https://nytimes.com/athletic/5742669/2024/09/03/leon-draisaitl-contract-oilers/
 
