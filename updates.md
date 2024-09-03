@@ -1,3 +1,11 @@
+**Why Silicon Valley Is Abuzz Over ‘Founder Mode’**\
+`A debate is brewing among investors and entrepreneurs: Are hands-on founders, such as Steve Jobs and Brian Chesky of Airbnb, the key to start-up success?`\
+https://nytimes.com/2024/09/03/business/dealbook/founder-mode-chesky-graham.html
+
+**Polio Vaccinations in Gaza Are Beating Goals, W.H.O. Says**\
+`In its first two days, the campaign to vaccinate 640,000 Gazan children has been more successful than expected, said Rik Peeperkorn, a W.H.O. representative.`\
+https://nytimes.com/2024/09/03/world/middleeast/polio-vaccinations-in-gaza-are-beating-goals-who-says.html
+
 **The Power Broker at 50**\
 `Robert Caro’s hugely influential book still resonates with politicians and public officials in New York City today.`\
 https://nytimes.com/2024/09/03/nyregion/the-power-broker-at-50.html
