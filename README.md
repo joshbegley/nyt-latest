@@ -1,6 +1,6 @@
-**The attack on Poltava comes after a week of airstrikes and losses for Ukraine.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/09/03/world/ukraine-russia-missile-strike-poltava/the-attack-on-poltava-comes-after-a-week-of-airstrikes-and-losses-for-ukraine
+**Russia’s Attack on Poltava Comes After a Week of Strikes in Ukraine**\
+`Moscow appears to have stepped up the tempo of its attacks, resulting in a wave of death and destruction in Ukraine.`\
+https://nytimes.com/2024/09/03/world/europe/poltava-ukraine-strikes.html
 
 **Quiz: Do You Have Healthy Brain Habits?**\
 `These 12 questions can help assess your risk for dementia, stroke and depression, and identify ways to reduce it.`\
