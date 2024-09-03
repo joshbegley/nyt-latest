@@ -1,3 +1,7 @@
+**Biden’s Top Climate Negotiator to Visit China This Week**\
+`John Podesta is expected to push for China to set more ambitious greenhouse gas targets.`\
+https://nytimes.com/2024/09/03/climate/podesta-china-climate-change.html
+
 **Here’s the latest on the 2024 race.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/09/03/us/harris-trump-election/heres-the-latest-on-the-2024-race
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/03/business/dealbook/founder-mode-chesky-graham.html
 **Polio Vaccinations in Gaza Are Beating Goals, W.H.O. Says**\
 `In its first two days, the campaign to vaccinate 640,000 Gazan children has been more successful than expected, said Rik Peeperkorn, a W.H.O. representative.`\
 https://nytimes.com/2024/09/03/world/middleeast/polio-vaccinations-gaza-who.html
-
-**The Power Broker at 50**\
-`Robert Caro’s hugely influential book still resonates with politicians and public officials in New York City today.`\
-https://nytimes.com/2024/09/03/nyregion/the-power-broker-at-50.html
 

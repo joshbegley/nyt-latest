@@ -1,3 +1,7 @@
+**Biden’s Top Climate Negotiator to Visit China This Week**\
+`John Podesta is expected to push for China to set more ambitious greenhouse gas targets.`\
+https://nytimes.com/2024/09/03/climate/podesta-china-climate-change.html
+
 **Madrid's Martinez undergoes surgery on cruciate ligament injury**\
 `Real Madrid defender Joan Martinez has undergone surgery after rupturing the cruciate ligament in his left knee.`\
 https://nytimes.com/athletic/5691882/2024/09/03/real-madrid-joan-martinez-injury/
