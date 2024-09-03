@@ -1,3 +1,7 @@
+**Scoop City: 10 Bold Predictions for 2024**\
+`Why the Chiefs won't win their third straight Super Bowl, a look at Week 1 waiver options and a note on Anthony Richardson`\
+https://nytimes.com/athletic/5741562/2024/09/03/scoop-city-10-bold-predictions-for-2024/
+
 **Former Aide to Hochul and Cuomo Arrested on Federal Charges**\
 `Linda Sun, a former deputy chief of staff to Gov. Kathy Hochul, and her husband were arrested on Tuesday on charges that remain sealed.`\
 https://nytimes.com/2024/09/03/nyregion/linda-sun-arrested-hochul.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/03/world/africa/congo-prison-jailbreak-kinshasa.html
 **For 20 minutes, an American male champion looked possible. Then came Jannik Sinner**\
 `Prognostication is a mug's game in tennis but, however you slice the draw, a home Grand Slam champion remains a tall order.`\
 https://nytimes.com/athletic/5740971/2024/09/03/us-open-title-predictions-sinner-fritz-tiafoe/
-
-**Live Updates: Russian Strike Kills at Least 41 in Ukraine, Zelensky Says**\
-`Two ballistic missiles hit a military academy and a neighboring hospital in Poltava, in eastern Ukraine, President Volodymyr Zelensky said.`\
-https://nytimes.com/live/2024/09/03/world/ukraine-russia-missile-strike-poltava
 
