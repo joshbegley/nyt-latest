@@ -1,3 +1,7 @@
+**Cincinnati DT Dontay Corleone cleared to play**\
+`He’s expected to be a full participant in practice Tuesday, and his status for Saturday’s game against Pitt will be determined.`\
+https://nytimes.com/athletic/5741985/2024/09/03/cincinnati-dontay-corleone-blood-clots-cleared/
+
 **San Francisco Giants week in review: It wasn't great, as playoff hopes fade**\
 `The Giants played two series last week and lost them both, as their playoff chances continue to diminish.`\
 https://nytimes.com/athletic/5740964/2024/09/03/sf-giants-week-in-review-offensive-struggles/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/03/world/asia/south-korean-teens-deepfake-sex-images
 **The Windup: Dodgers finally putting it together?**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5741910/2024/09/03/dodgers-ohtani-freeman-the-windup/
-
-**Seeing Dances of the Harlem Renaissance, in Vivid Color**\
-`An immersive article spotlights choreographers who are carrying forward the legacy of Black dance forms that flourished 100 years ago.`\
-https://nytimes.com/2024/09/03/insider/seeing-dances-of-the-harlem-renaissance-in-vivid-color.html
 
