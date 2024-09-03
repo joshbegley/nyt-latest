@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5742095/2024/09/03/pwhl-minnesota-general-manager-m
 https://nytimes.com/2024/09/03/us/politics/trump-prank-devices.html
 
 **Deputy football director O'Boyle set to leave Man United**\
-`Manchester United are set for more changes to their senior football leadership structure, with deputy football director Andy O’Boyle set to leave Old Trafford after two years in the post.`\
+`Manchester United are expected to make more changes to their senior football leadership structure, with deputy football director Andy O’Boyle to leave Old Trafford after two years in the post.`\
 https://nytimes.com/athletic/5741632/2024/09/03/manchester-united-andy-o-boyle-exit/
 
 **Surprise! A Class of College Seniors Learns Their Tuition Will Be Free.**\
