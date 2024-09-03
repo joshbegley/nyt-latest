@@ -1,3 +1,11 @@
+**Fernando Tatis Jr. gets goosebumps as Padres get another piece closer to full strength**\
+`Running onto the field, Tatis felt something he said he experienced only a few times during his pregame routine: goosebumps.`\
+https://nytimes.com/athletic/5740600/2024/09/02/fernando-tatis-jr-return-padres/
+
+**Twins top Rays, gain ground in playoff picture behind bullpen and Trevor Larnach**\
+`Larnach delivered a massive punch with an emphatic three-run homer, as Minnesota's bullpen locked in to secure the win.`\
+https://nytimes.com/athletic/5740937/2024/09/02/bullpen-trevor-larnach-deliver-as-twins-top-rays-gain-ground-in-playoff-picture/
+
 **Boston College upsets No. 10 FSU**\
 `Florida State becomes the fourth AP Top-10 ranked team to start 0-2 in the last 10 seasons.`\
 https://nytimes.com/athletic/5740841/2024/09/02/boston-college-florida-state-college-football/
