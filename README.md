@@ -1,3 +1,7 @@
+**Britain Awards Renewable Energy Contracts That Could Power 11 Million Homes**\
+`The successful outcome of the government auction for renewable energy projects may bolster a wind industry battered by rising costs.`\
+https://nytimes.com/2024/09/03/business/britain-offshore-wind-auction.html
+
 **Scoop City: 10 Bold Predictions for 2024**\
 `Why the Chiefs won't win their third straight Super Bowl, a look at Week 1 waiver options and a note on Anthony Richardson`\
 https://nytimes.com/athletic/5741562/2024/09/03/scoop-city-10-bold-predictions-for-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5733896/2024/09/03/trent-williams-san-francisco-49e
 **At Least 129 People Die in Jailbreak at Congo’s Largest Prison**\
 `The government said that at least 24 inmates had been shot dead as they attempted to escape from Makala Central Prison, which rights organizations have long warned is dangerously overcrowded.`\
 https://nytimes.com/2024/09/03/world/africa/congo-prison-jailbreak-kinshasa.html
-
-**For 20 minutes, an American male champion looked possible. Then came Jannik Sinner**\
-`Prognostication is a mug's game in tennis but, however you slice the draw, a home Grand Slam champion remains a tall order.`\
-https://nytimes.com/athletic/5740971/2024/09/03/us-open-title-predictions-sinner-fritz-tiafoe/
 
