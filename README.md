@@ -1,3 +1,7 @@
+**Boston College upsets No. 10 FSU**\
+`Florida State becomes the fourth AP Top-10 ranked team to start 0-2 in the last 10 seasons.`\
+https://nytimes.com/athletic/5740841/2024/09/02/boston-college-florida-state-college-football/
+
 **Here's why Yankees are not manipulating Jasson Domínguez's service time**\
 `Domínguez would not qualify for a Prospect Promotion Incentive (PPI) draft pick because he has already amassed over 60 days of service time.`\
 https://nytimes.com/athletic/5740790/2024/09/02/jasson-dominguez-yankees-service-time/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5740549/2024/09/02/pac-12-mountain-west-2025-schedu
 **Kodai Senga and the Mets 'open to anything' in a possible late September return**\
 `Senga could be used out of the bullpen but made it clear that he would need to feel at full strength to proceed with a return,`\
 https://nytimes.com/athletic/5740596/2024/09/02/mets-kodai-senga-bullpen-return/
-
-**Abilene Christian involved in bus accident after loss to Texas Tech**\
-`The accident occurred at approximately 11:30 p.m. on Saturday after Abilene Christian’s game against Texas Tech.`\
-https://nytimes.com/athletic/5737949/2024/09/02/abilene-christian-bus-accident-texas-tech/
 
