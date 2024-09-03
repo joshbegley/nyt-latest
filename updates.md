@@ -1,3 +1,7 @@
+**MLB says teams carried by Diamond "unable to plan" 2025 revenues, threatens legal action**\
+`A judge approved deals between Diamond and the NHL and NBA, but MLB argues that the broadcaster's plans won't work for baseball. `\
+https://nytimes.com/athletic/5743074/2024/09/03/mlb-diamond-threat-legal-action/
+
 **Ugandan Opposition Leader Bobi Wine Shot in Leg in Clash With Police**\
 `Mr. Wine, a pop star turned politician who ran for president, is in the hospital, but his injuries are not life-threatening, one of his lawyers said.`\
 https://nytimes.com/2024/09/03/world/africa/uganda-bobi-wine-shot.html
