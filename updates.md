@@ -1,3 +1,19 @@
+**Migrants in N.Y. Shelters Face Surprising Challenge: Getting Their Mail**\
+`Mail delivery has become a complicated endeavor at hotels and other places converted into shelters, with important documents getting lost or delayed.`\
+https://nytimes.com/2024/09/03/nyregion/migrants-mail-shelter-nyc.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/03/crosswords/spelling-bee-forum.html
+
+**Left-Wing Misinformation Is Having a Moment**\
+`America’s right flank remains the chief purveyor of misinformation, but this summer’s political tumult created ideal conditions for falsehoods to spread among progressives.`\
+https://nytimes.com/2024/09/03/technology/left-wing-misinformation-conspiracy-theories.html
+
+**Rethinking Addiction as a Chronic Brain Disease**\
+`Some researchers argue that the roles of social environment and personal choice have to be considered in order to make progress in treating people addicted to drugs.`\
+https://nytimes.com/2024/09/03/health/addiction-disease-choice.html
+
 **Pope Visits Indonesia, Where Muslim-Christian Harmony Is Under Strain**\
 `Indonesia is proud of its religious diversity and its reputation for tolerance, but minorities, including Catholics, still face discrimination.`\
 https://nytimes.com/2024/09/03/world/asia/pope-visit-indonesia-muslims.html

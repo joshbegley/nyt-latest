@@ -1,3 +1,19 @@
+**Migrants in N.Y. Shelters Face Surprising Challenge: Getting Their Mail**\
+`Mail delivery has become a complicated endeavor at hotels and other places converted into shelters, with important documents getting lost or delayed.`\
+https://nytimes.com/2024/09/03/nyregion/migrants-mail-shelter-nyc.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/03/crosswords/spelling-bee-forum.html
+
+**Left-Wing Misinformation Is Having a Moment**\
+`America’s right flank remains the chief purveyor of misinformation, but this summer’s political tumult created ideal conditions for falsehoods to spread among progressives.`\
+https://nytimes.com/2024/09/03/technology/left-wing-misinformation-conspiracy-theories.html
+
+**Rethinking Addiction as a Chronic Brain Disease**\
+`Some researchers argue that the roles of social environment and personal choice have to be considered in order to make progress in treating people addicted to drugs.`\
+https://nytimes.com/2024/09/03/health/addiction-disease-choice.html
+
 **Pope Visits Indonesia, Where Muslim-Christian Harmony Is Under Strain**\
 `Indonesia is proud of its religious diversity and its reputation for tolerance, but minorities, including Catholics, still face discrimination.`\
 https://nytimes.com/2024/09/03/world/asia/pope-visit-indonesia-muslims.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5739517/2024/09/03/everton-transfer-window-dyche/
 **Leeds' transfer window reviewed: Few shenanigans but painful sales and Farke left wanting**\
 `Leeds saw three major stars leave this summer. They did add quality to ease the hurt, but Daniel Farke didn't get everything he hoped for`\
 https://nytimes.com/athletic/5739274/2024/09/03/leeds-united-transfer-window-gray-tanaka-rutter-summerville/
-
-**Inside Newcastle: Flawed transfer strategy? Frictions with owners? Expectations lowered?**\
-`Our Newcastle writers Chris Waugh and George Caulkin answer questions on Paul Mitchell, the pursuit of Marc Guehi and the owners' ambitions`\
-https://nytimes.com/athletic/5739241/2024/09/03/inside-newcastle-owners-transfers/
-
-**Justin Steele’s setback puts the Chicago Cubs into problem-solving mode again**\
-`The Cubs have been adept at solving problems all season, and Steele's untimely setback puts them back in that familiar spot.`\
-https://nytimes.com/athletic/5740931/2024/09/03/justin-steeles-setback-chicago-cubs/
-
-**Ranking the Premier League clubs' transfers windows: Unhinged, treacherous, hmmm**\
-`The Athletic provides a handy countdown from 20 to one, from who had a shocking transfer window to who did rather quite well…`\
-https://nytimes.com/athletic/5735669/2024/09/03/premier-league-clubs-transfer-window-ranking/
-
-**Liverpool's contracts timebomb: The risk of losing Salah, Alexander-Arnold and Van Dijk for nothing**\
-`Anfield’s new regime have difficult paths to negotiate with Van Dijk, Salah and Alexander-Arnold - there's no time to waste`\
-https://nytimes.com/athletic/5726879/2024/09/03/liverpools-contracts-timebomb/
 
