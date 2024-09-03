@@ -1,3 +1,7 @@
+**For 20 minutes, an American male champion looked possible. Then came Jannik Sinner**\
+`Prognostication is a mug's game in tennis, but however you slice the draw, a home Grand Slam champion remains a tall order.`\
+https://nytimes.com/athletic/5740971/2024/09/03/us-open-title-predictions-sinner-fritz-tiafoe/
+
 **Russian Strike on Ukrainian City Kills at Least 41, Zelensky Says**\
 `Two ballistic missiles hit an educational institution and a neighboring hospital in Poltava, in eastern Ukraine, President Volodymyr Zelensky said.`\
 https://nytimes.com/live/2024/09/03/world/ukraine-russia-missile-strike-poltava
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5734760/2024/09/03/derwin-james-los-angeles-charger
 **NWSL played through a busy summer: 'The best teams have the most games'**\
 `Clubs short of players due to international commitments turned to retired veterans and young teens — B teams have been floated as an answer`\
 https://nytimes.com/athletic/5730226/2024/09/03/womens-soccer-busy-calendar-nwsl/
-
-**49ers over/unders: Who will have a better season, Brandon Aiyuk or Deebo Samuel?**\
-`Among this year's questions: Which rookie not named Dominick Puni will get the most snaps, and which 49er will lead the team in takeaways?`\
-https://nytimes.com/athletic/5735267/2024/09/03/49ers-over-unders-brandon-aiyuk-deebo-samuel/
 
