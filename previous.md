@@ -1,3 +1,7 @@
+**U.S. Open quarterfinals: Emma Navarro aims for semis before an Australian Open final rematch**\
+`The last eight in the bottom half of the draws fight for a place in the semifinals.`\
+https://nytimes.com/athletic/5740190/2024/09/03/us-open-quarterfinal-watch-guide-navarro-zheng-sabalenka-tiafoe/
+
 **Migrants in N.Y. Shelters Face Surprising Challenge: Getting Their Mail**\
 `Mail delivery has become a complicated endeavor at hotels and other places converted into shelters, with important documents getting lost or delayed.`\
 https://nytimes.com/2024/09/03/nyregion/migrants-mail-shelter-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5734407/2024/09/03/what-to-watch-for-each-nfl-team-
 **Everton's transfer window: Deferring deals, PSR - and 12 contracted players for next season**\
 `After another challenging window, Everton will hope this isn’t the season years of poor decision-making and turmoil catch up to them`\
 https://nytimes.com/athletic/5739517/2024/09/03/everton-transfer-window-dyche/
-
-**Leeds' transfer window reviewed: Few shenanigans but painful sales and Farke left wanting**\
-`Leeds saw three major stars leave this summer. They did add quality to ease the hurt, but Daniel Farke didn't get everything he hoped for`\
-https://nytimes.com/athletic/5739274/2024/09/03/leeds-united-transfer-window-gray-tanaka-rutter-summerville/
 
