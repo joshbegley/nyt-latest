@@ -1,3 +1,7 @@
+**Luis Suarez: Biting, racism, on-field genius - the most divisive player in world soccer**\
+`Looking back at the history of surreal events that made Suarez perhaps the most hated men in world soccer`\
+https://nytimes.com/athletic/5114631/2024/09/02/luis-suarez-career-history-inter-miami-mls-messi/
+
 **Suarez announces retirement from international football**\
 `Suarez's final international match with Uruguay will be on Friday at Estadio Centenario. `\
 https://nytimes.com/athletic/5739324/2024/09/02/luis-suarez-retirement-uruguay/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/01/world/hostages-strike-israel-gaza-war/eden-y
 **Netanyahu Stands Firm on Cease-Fire Terms Amid Growing Outrage in Israel**\
 `In his first news conference since the bodies of six killed hostages were recovered, Prime Minister Benjamin Netanyahu refused to budge on his conditions for any truce in Gaza.`\
 https://nytimes.com/2024/09/02/world/middleeast/netanyahu-gaza-war-protests-hostages.html
-
-**Analysing Ashworth and Berrada's Man Utd transfer briefing - 'Erik has our full backing'**\
-`Omar Berrada and Dan Ashworth explain Manchester United's transfer window and their views of Erik ten Hag as manager`\
-https://nytimes.com/athletic/5740186/2024/09/02/ashworth-berrada-ten-hag-transfers/
 
