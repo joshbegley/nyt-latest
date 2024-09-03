@@ -1,3 +1,11 @@
+**Israeli forces return to Tulkarm as the West Bank offensive stretches to a 7th day.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/09/03/world/israel-hamas-gaza-war/israeli-forces-return-to-tulkarm-as-the-west-bank-offensive-stretches-to-a-7th-day
+
+**Video Shows Destruction in West Bank as Israeli Operation Continues**\
+`Israeli operations in the occupied West Bank entered their seventh day on Tuesday, leaving a trail of destruction.`\
+https://nytimes.com/video/world/middleeast/100000009670447/west-bank-israeli-operation-destruction.html
+
 **2024 NFL media preview: What to expect from Tom Brady, Netflix and Bill Belichick**\
 `With Week 1 upon us, Richard Deitsch and Andrew Marchand break down the big NFL media stories for the 2024 season.`\
 https://nytimes.com/athletic/5734245/2024/09/03/2024-nfl-media-preview-what-to-expect-from-tom-brady-netflix-and-bill-belichick/

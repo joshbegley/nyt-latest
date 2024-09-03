@@ -1,3 +1,11 @@
+**Israeli forces return to Tulkarm as the West Bank offensive stretches to a 7th day.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/09/03/world/israel-hamas-gaza-war/israeli-forces-return-to-tulkarm-as-the-west-bank-offensive-stretches-to-a-7th-day
+
+**Video Shows Destruction in West Bank as Israeli Operation Continues**\
+`Israeli operations in the occupied West Bank entered their seventh day on Tuesday, leaving a trail of destruction.`\
+https://nytimes.com/video/world/middleeast/100000009670447/west-bank-israeli-operation-destruction.html
+
 **2024 NFL media preview: What to expect from Tom Brady, Netflix and Bill Belichick**\
 `With Week 1 upon us, Richard Deitsch and Andrew Marchand break down the big NFL media stories for the 2024 season.`\
 https://nytimes.com/athletic/5734245/2024/09/03/2024-nfl-media-preview-what-to-expect-from-tom-brady-netflix-and-bill-belichick/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5737663/2024/09/03/bo-nix-broncos-rookie-quarterbac
 **The Pulse: Why 0-2 FSU can still make the Playoff**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5740734/2024/09/03/florida-state-playoff-boston-college-the-pulse/
-
-**The Stakes on Taxes**\
-`We cover the presidential candidates’ positions on taxation.`\
-https://nytimes.com/2024/09/03/briefing/tax-election-harris-trump.html
-
-**Fantasy hockey cheat sheet: League-specific rankings and projections for 2024-25**\
-`It's here! Dom Luszczyszyn shares his league-specific player rankings and projections for the 2024-25 fantasy hockey campaign.`\
-https://nytimes.com/athletic/5734473/2024/09/03/fantasy-hockey-cheat-sheet-league-specific-rankings-projections-2024-25/
 
