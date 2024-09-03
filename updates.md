@@ -1,3 +1,11 @@
+**Arkansas State's game-winning TD should've been no good, Sun Belt says**\
+`'The replay ruling should have confirmed the on-field call of an incomplete pass,' the Sun Belt said.`\
+https://nytimes.com/athletic/5742562/2024/09/03/arkansas-state-central-arkansas-sun-belt/
+
+**Toxic Additive Found in Feed That Killed 70 Oklahoma Rodeo Horses**\
+`Preliminary tests show that the feed had been contaminated with Monensin, an additive known to be toxic to horses, Livestock Nutrition Center said.`\
+https://nytimes.com/2024/09/03/us/rodeo-horses-poisoned-oklahoma-livestock.html
+
 **Stock Comeback Falters and Oil Prices Slide as Unease Returns**\
 `The S&P 500 fell nearly 2 percent on Tuesday, putting it on track for its worst day since an early August meltdown.`\
 https://nytimes.com/2024/09/03/business/stocks-oil-prices-economy.html

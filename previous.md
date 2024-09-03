@@ -1,3 +1,7 @@
+**Arkansas State's game-winning TD should've been no good, Sun Belt says**\
+`'The replay ruling should have confirmed the on-field call of an incomplete pass,' the Sun Belt said.`\
+https://nytimes.com/athletic/5742562/2024/09/03/arkansas-state-central-arkansas-sun-belt/
+
 **Stock Comeback Falters and Oil Prices Slide as Unease Returns**\
 `The S&P 500 fell nearly 2 percent on Tuesday, putting it on track for its worst day since an early August meltdown.`\
 https://nytimes.com/2024/09/03/business/stocks-oil-prices-economy.html
@@ -15,7 +19,7 @@ https://nytimes.com/2024/09/03/movies/james-darren-dies.html
 https://nytimes.com/2024/09/03/science/titanic-photos-bow-statue.html
 
 **Toxic Additive Found in Feed That Killed 70 Oklahoma Rodeo Horses**\
-`Preliminary tests show that the horse feed had been contaminated with Monensin, Livestock Nutrition Center said.`\
+`Preliminary tests show that the feed had been contaminated with Monensin, an additive known to be toxic to horses, Livestock Nutrition Center said.`\
 https://nytimes.com/2024/09/03/us/rodeo-horses-poisoned-oklahoma-livestock.html
 
 **Another Trump Clemency Recipient Is Accused of Domestic Violence**\
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/us/elections/polls-biden-archive.html
 **Bradley will play for U.S. at Presidents Cup; Thomas left off team**\
 `Bradley, the 2025 Ryder Cup captain, will be relieved of captain's assistant duties in order to focus on playing in the Presidents Cup.`\
 https://nytimes.com/athletic/5742246/2024/09/03/keegan-bradley-justin-thomas-usa-presidents-cup/
-
-**Foden, Palmer and Watkins withdraw from England squad**\
-`Phil Foden, Cole Palmer and Ollie Watkins have withdrawn from the England squad for their upcoming Nations League fixtures.`\
-https://nytimes.com/athletic/5739447/2024/09/03/foden-palmer-watkins-england-squad-out/
 
