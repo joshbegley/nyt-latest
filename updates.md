@@ -1,3 +1,7 @@
+**Georgia School on Lockdown After Report of Gunfire**\
+`Apalachee High School officials said that students were placed under lockdown on Wednesday after gunfire was reported.`\
+https://nytimes.com/2024/09/04/us/apalachee-high-school-shooting-lockdown.html
+
 **Nordstrom Family Offers $3.8 Billion to Buy Its Namesake Retailer**\
 `The $23-per-share offer by the department store’s founding family comes as retailers struggle to navigate new shopping trends and costly real estate.`\
 https://nytimes.com/2024/09/04/business/dealbook/nordstrom-retailer-private.html

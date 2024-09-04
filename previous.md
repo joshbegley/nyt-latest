@@ -1,3 +1,7 @@
+**Georgia School on Lockdown After Report of Gunfire**\
+`Apalachee High School officials said that students were placed under lockdown on Wednesday after gunfire was reported.`\
+https://nytimes.com/2024/09/04/us/apalachee-high-school-shooting-lockdown.html
+
 **Nordstrom Family Offers $3.8 Billion to Buy Its Namesake Retailer**\
 `The $23-per-share offer by the department store’s founding family comes as retailers struggle to navigate new shopping trends and costly real estate.`\
 https://nytimes.com/2024/09/04/business/dealbook/nordstrom-retailer-private.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/04/us/politics/biden-asylum-restrictions.html
 **Giants takeaways: The impact of the Luciano, Matos and Eldridge promotions**\
 `Making sense of the Marco Luciano and Luis Matos promotions while singing the praises of top prospect Bryce Eldridge.`\
 https://nytimes.com/athletic/5743302/2024/09/04/sf-giants-takeaways-marco-luciano-bryce-eldridge/
-
-**Mirtle: The big question after Leon Draisaitl’s deal — what is Connor McDavid worth?**\
-`Although McDavid's next contract will likely set a new high-water mark for this era of NHL players, it'll still be a bargain for the Oilers.`\
-https://nytimes.com/athletic/5743417/2024/09/04/leon-draisaitl-connor-mcdavid-oilers-contract-salary/
 
