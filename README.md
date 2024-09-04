@@ -1,3 +1,7 @@
+**Harris, Biden and Trump Consider Visits to World Trade Center Site on Sept. 11**\
+`This year, the anniversary of the 2001 attacks will come just hours after a presidential debate between Vice President Kamala Harris and former President Donald J. Trump.`\
+https://nytimes.com/2024/09/04/us/politics/harris-biden-trump-sept-11-nyc.html
+
 **Pedro Almodóvar, Julianne Moore and Tilda Swinton on ‘The Room Next Door’**\
 `The director’s first English-language feature inspires talk of beauty, hope and more collaborations.`\
 https://nytimes.com/2024/09/04/movies/pedro-almodovar-julianne-moore-tilda-swinton-the-room-next-door-venice.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/04/style/luca-guadagnino-gets-crafty.html
 **Joaquin Phoenix and the Big Question at the ‘Joker: Folie à Deux’ Premiere**\
 `At the Venice Film Festival with his co-star, Lady Gaga, would the actor answer questions about dropping out of a Todd Haynes movie?`\
 https://nytimes.com/2024/09/04/movies/joker-folie-a-deux-venice-film-festival-joaquin-phoenix-lady-gaga.html
-
-**Paz, Martin, Zidane and Co - Madrid's academy exits and how they fit into club's youth policy**\
-`Madrid have let plenty of youngsters go this summer, so what's the thinking behind it?`\
-https://nytimes.com/athletic/5743848/2024/09/04/real-madrid-youth-paz-martin/
 
