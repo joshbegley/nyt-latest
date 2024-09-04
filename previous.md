@@ -4,7 +4,7 @@ https://nytimes.com/2024/09/03/us/politics/tim-sheehy-native-americans-montana.h
 
 **How Self-Driving Cars Get Help From Humans Hundreds of Miles Away**\
 `Zoox, a self-driving car company owned by Amazon, is deploying robot taxis without steering wheels, driver seats or drivers. But like all other self-driving cars, they still need help from humans.`\
-https://nytimes.com/interactive/2024/09/03/business/zoox-self-driving-cars-remote-control.html
+https://nytimes.com/interactive/2024/09/03/technology/zoox-self-driving-cars-remote-control.html
 
 **Aryna Sabalenka powers past Zheng Qinwen to reach U.S. Open semifinals**\
 `This was not a simple repeat of the Australian Open final rout — Zheng's serve, her key weapon, let her down badly.`\

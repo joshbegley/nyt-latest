@@ -1,3 +1,7 @@
+**How Self-Driving Cars Get Help From Humans Hundreds of Miles Away**\
+`Zoox, a self-driving car company owned by Amazon, is deploying robot taxis without steering wheels, driver seats or drivers. But like all other self-driving cars, they still need help from humans.`\
+https://nytimes.com/interactive/2024/09/03/technology/zoox-self-driving-cars-remote-control.html
+
 **Tim Sheehy Was Recorded Using Racist Stereotypes About Native Americans**\
 `Mr. Sheehy, a Republican, is the nominee for a Senate seat in Montana, where Indigenous residents make up about 6 percent of the population.`\
 https://nytimes.com/2024/09/03/us/politics/tim-sheehy-native-americans-montana.html
