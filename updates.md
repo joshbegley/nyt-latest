@@ -1,3 +1,7 @@
+**Here’s Why Stock Indexes Sank on Tuesday**\
+`The market drop was primarily focused on Nvidia and other tech companies.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/stock-market-nvidia
+
 **Russia Launches Deadly Missile and Drone Attacks on Ukraine**\
 `At least seven people were killed in the western Ukrainian city of Lviv, a day after a devastating attack on the eastern city of Poltava left dozens of others dead.`\
 https://nytimes.com/video/world/europe/100000009672829/lviv-ukraine-russian-strike.html
