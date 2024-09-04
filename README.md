@@ -8,7 +8,7 @@ https://nytimes.com/athletic/5744311/2024/09/04/pga-tour-liv-scheffler-mcilroy-d
 
 **Villa refuse request from fan advisory board to cap Champions League ticket prices**\
 `Aston Villa refused a request from their own fan advisory board (FAB) to cap the price of Champions League tickets with the cheapest adult entry now starting at £70.`\
-https://nytimes.com/athletic/5744092/2024/09/04/aston-villa-refuse-request-from-fan-advisory-board-to-cap-champions-league-ticket-prices/
+https://nytimes.com/athletic/5744092/2024/09/04/aston-villa-champions-league-ticket-prices/
 
 **Harris, Biden and Trump Consider Visits to World Trade Center Site on Sept. 11**\
 `This year, the anniversary of the 2001 attacks will come just hours after a presidential debate between Vice President Kamala Harris and former President Donald J. Trump.`\
