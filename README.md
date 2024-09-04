@@ -1,3 +1,7 @@
+**Jack Draper beats Alex de Minaur to reach first Grand Slam semifinal**\
+`He will face Jannik Sinner or Daniil Medvedev for a place in the final.`\
+https://nytimes.com/athletic/5745372/2024/09/04/draper-de-minaur-us-open-result/
+
 **How Media Outlets on the Left and Right Covered Trump’s Arlington Cemetery Visit**\
 `Liberal outlets criticized Mr. Trump for turning his visit into a photo opportunity, while conservative ones falsely suggested the altercation never happened.`\
 https://nytimes.com/2024/09/04/business/media/trump-arlington-cemetery-media.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/04/t-magazine/shell-art.html
 **What to See in N.Y.C. Galleries in September**\
 `This week in Newly Reviewed, Andrew Russeth covers a group show of self-portraits, Gina Beavers’s collaged sculptures and Hannah Villiger’s beguiling photographs.`\
 https://nytimes.com/2024/09/04/arts/design/nyc-galleries-september.html
-
-**What’s in Our Queue? ‘Below Deck Mediterranean’ and More**\
-`I’m the reporting fellow on The Times’s Culture desk. Here are five things I’ve recently heard, seen and watched.`\
-https://nytimes.com/interactive/2024/09/04/arts/editors-recommendations-below-deck.html
 
