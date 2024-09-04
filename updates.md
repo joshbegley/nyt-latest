@@ -1,3 +1,11 @@
+**Jack Draper beats Alex de Minaur to reach first Grand Slam semifinal**\
+`He will face Jannik Sinner or Daniil Medvedev for a place in the final.`\
+https://nytimes.com/athletic/5745372/2024/09/04/draper-de-minaur-us-open-result/
+
+**How Media Outlets on the Left and Right Covered Trump’s Arlington Cemetery Visit**\
+`Liberal outlets criticized Mr. Trump for turning his visit into a photo opportunity, while conservative ones falsely suggested the altercation never happened.`\
+https://nytimes.com/2024/09/04/business/media/trump-arlington-cemetery-media.html
+
 **Duplantis beats Warholm in 100m exhibition race**\
 `Olympic pole vault champion and world record holder Mondo Duplantis beat Karsten Warholm, the Olympic 400m hurdles silver medallist, and world record holder, over 100m in Zurich on Wednesday night.`\
 https://nytimes.com/athletic/5745394/2024/09/04/mondo-duplantis-beats-karsten-warholm-100m/
