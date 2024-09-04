@@ -1,3 +1,7 @@
+**In Jakarta, Pope Praises Indonesia’s ‘Delicate Balance’ of Unity in Diversity**\
+`The pontiff said “mutual respect” was the key to harmony in the majority-Muslim country, where a pluralist tradition has been put to the test by extremist groups.`\
+https://nytimes.com/2024/09/04/world/asia/pope-francis-indonesia-jokowi.html
+
 **Word of the Day: ensemble**\
 `This word has appeared in 609 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/04/learning/word-of-the-day-ensemble.html
