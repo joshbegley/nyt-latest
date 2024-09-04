@@ -1,3 +1,7 @@
+**Word of the Day: ensemble**\
+`This word has appeared in 609 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/09/04/learning/word-of-the-day-ensemble.html
+
 **Braves' Chris Sale surpasses 200 strikeouts, adds to Cy Young resume**\
 `Sale became the first Braves lefty with 200 strikeouts in a season but said he's far more concerned with making the playoffs.`\
 https://nytimes.com/athletic/5743682/2024/09/04/braves-chris-sale-cy-young-candidate/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5737799/2024/09/04/doucoure-palace-achilles-chelsea
 **Chelsea squad audit: Analysing the 33-player group and their roles under Enzo Maresca**\
 `Chelsea have ended the transfer window with 32 players — here is the state of play for each of them`\
 https://nytimes.com/athletic/5741466/2024/09/04/chelsea-squad-audit-roles/
-
-**Jack Eyers, from model to Paralympian: 'I was the first male amputee to walk in New York Fashion Week'**\
-`How fashion and then fitness helped the former Mr England finally feel accepted`\
-https://nytimes.com/athletic/5741928/2024/09/04/jack-eyers-para-canoe-mr-england/
 

@@ -1,3 +1,7 @@
+**Braves' Chris Sale surpasses 200 strikeouts, adds to Cy Young resume**\
+`Sale became the first Braves lefty with 200 strikeouts in a season but said he's far more concerned with making the playoffs.`\
+https://nytimes.com/athletic/5743682/2024/09/04/braves-chris-sale-cy-young-candidate/
+
 **Braves' Chris Sale surpasses 200 strikeouts, adds to Cy Young resume in his resurgent season**\
 `Sale became the first Braves lefty with 200 strikeouts in a season but said he's far more concerned with making the playoffs.`\
 https://nytimes.com/athletic/5743682/2024/09/04/braves-chris-sale-cy-young-candidate/
