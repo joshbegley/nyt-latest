@@ -1,40 +1,40 @@
-**The Making of  a New Luxury Landmark**\
-`In one of the world’s most sought-after residential neighborhoods, a crown jewel is unveiled.`\
-https://nytimes.com/paidpost/1-mayfair/the-making-of-a-new-luxury-landmark.html
+**The Truth About Patti LuPone and Mia Farrow**\
+`The longtime friends are appearing together in the new Broadway play “The Roommate.” Everything you think you know about them may be wrong.`\
+https://nytimes.com/2024/09/04/theater/mia-farrow-patti-lupone-broadway-roommate.html
 
-**U.S. Open quarterfinals: Biggest test for Pegula, Sinner and Medvedev resume rivalry**\
-`The two Grand Slam champions in the men's draw meet, while Pegula aims to join Emma Navarro in the semifinals.`\
-https://nytimes.com/athletic/5742593/2024/09/04/us-open-quarterfinals-preview-sinner-medvedev-swiatek-pegula/
+**The First Movie About Pop Music to Nail Its Mediocrity**\
+`This summer’s “Trap,” from M. Night Shyamalan, works hard to turn its fictional star — and her fans — into heroes.`\
+https://nytimes.com/2024/09/04/magazine/pop-music-movies.html
 
-**Corrections: Sept. 4, 2024**\
-`Corrections that appeared in print on Wednesday, Sept. 4, 2024.`\
-https://nytimes.com/2024/09/04/pageoneplus/corrections-sept-4-2024.html
+**Appointments Are a Simple Way to Deepen Your Friendships. Trust Me.**\
+`A standing meeting at the diner has led to new levels in connection and community.`\
+https://nytimes.com/2024/09/04/magazine/friendship-appointment.html
 
-**The View From the Nosebleeds at the U.S. Open: Not Too Shabby**\
-`It’s a long way to Row Z. But once you get there, there are advantages, tennis fans say.`\
-https://nytimes.com/2024/09/04/nyregion/us-open-nosebleed-seats.html
+**The Biggest Lie About Baking**\
+`There’s actually room to have fun, and this stunning, simple clafoutis recipe is one to play with.`\
+https://nytimes.com/2024/09/04/magazine/clafoutis-recipe.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/09/04/crosswords/spelling-bee-forum.html
+**6 European Cities Where You Can Swim in the Wild**\
+`Looking to take a dip in or near a city center? Here are some urban areas that have successfully opened up waterways for swimmers.`\
+https://nytimes.com/2024/09/04/travel/europe-swimmable-cities.html
 
-**Summer Bucket List**\
-`What items did you cross off your list of summer pleasures this year?`\
-https://nytimes.com/2024/09/04/learning/summer-bucket-list.html
+**5 Minutes That Will Make You Love Big Band Jazz**\
+`Big bands were built in the 1920s and ’30s to blast young dancers with layers of rhythm, but creative composers seeking a larger canvas have kept the form alive. Hear 12 big selections.`\
+https://nytimes.com/2024/09/04/arts/music/big-band-jazz-music.html
 
-**Here are the latest developments.**\
-`By Victoria Kim, Marc Santora and Andrew E. Kramer`\
-https://nytimes.com/live/2024/09/04/world/ukraine-russia-missile-attacks/here-are-the-latest-developments
+**Who Gets to Kill in Self-Defense?**\
+`Self-defense laws were written for men. This is how they fail women who fight back.`\
+https://nytimes.com/interactive/2024/09/04/opinion/women-kill-self-defense.html
 
-**Live Updates: Ukraine’s Foreign Minister Offers to Resign as Zelensky Plans Cabinet Shake-Up**\
-`President Volodymyr Zelensky was poised to carry out the biggest change to his government since Russia invaded. Ukrainian officials said that Russian forces carried out a second day of deadly attacks.`\
-https://nytimes.com/live/2024/09/04/world/ukraine-russia-missile-attacks
+**A Democracy With Everything but a Choice**\
+`A new analysis of American elections finds that in half of all races for partisan offices, a candidate runs unopposed. Democrats are the biggest no-shows.`\
+https://nytimes.com/2024/09/04/us/missouri-uncontested-races-elections.html
 
-**Stephen Colbert Takes Stock of Harris Leading in the Polls**\
-`Colbert reacted to a survey showing the vice president ahead of Donald Trump, 48 percent to 43 percent, saying it “really restores my faith in almost half of humanity.”`\
-https://nytimes.com/2024/09/04/arts/television/stephen-colbert-harris-trump-poll.html
+**Can I Lower My Cholesterol Without Taking a Statin?**\
+`Here’s what the evidence suggests can work.`\
+https://nytimes.com/2024/09/04/well/eat/lower-cholesterol-statin.html
 
-**Tony Bloom interview: Brighton's £195m splurge, Hurzeler so far, and why De Zerbi didn't work long-term**\
-`Owner/chairman Bloom explains the summer-window spending, what he thinks of PSR, and where Brighton go next...`\
-https://nytimes.com/athletic/5739396/2024/09/04/tony-bloom-interview-brighton-psr-195m-transfers/
+**A House That Memorializes a Vanished New York**\
+`In Lower Manhattan, the former residence of an artist couple remains unchanged years after their deaths.`\
+https://nytimes.com/2024/09/04/t-magazine/new-york-artist-house.html
 
