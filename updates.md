@@ -1,3 +1,15 @@
+**Why Trump’s Unity Picks Are Not Very Unifying**\
+`Trump is betting that the political fringe will help him win.`\
+https://nytimes.com/2024/09/04/us/politics/trump-rfk-jr-gabbard-musk.html
+
+**Mother and Daughter Endure Lockdowns in Separate Schools After Georgia Shooting**\
+`Anetra Pattman was teaching class when her daughter texted: “Mom, I heard gunshots. I’m scared. Please come get me.”`\
+https://nytimes.com/2024/09/04/us/georgia-apalachee-high-shooting-witness.html
+
+**Texas Attorney General Sues to Stop Voter Registration Push in San Antonio**\
+`The suit is the newest front in an escalating conflict over elections between the Republicans who dominate state government and the Democrats who control the state’s major cities.`\
+https://nytimes.com/2024/09/04/us/texas-voter-registration-paxton-bexar.html
+
 **Tearful Torey Krug opens up about career-threatening surgery that ex-Blues doctor calls 'Hail Mary'**\
 `Krug on deciding to undergo the surgery: "It was one of those things where you realize it wasn't going to work. We had to make plans."`\
 https://nytimes.com/athletic/5744174/2024/09/04/blues-torey-krug-ankle-surgery/
