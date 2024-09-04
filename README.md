@@ -1,3 +1,11 @@
+**What’s in Our Queue? ‘Below Deck Mediterranean’ and More**\
+`I’m the reporting fellow on The Times’s Culture desk. Here are five things I’ve recently heard, seen and watched.`\
+https://nytimes.com/interactive/2024/09/04/arts/editors-recommendations-below-deck.html
+
+**College Football Playoff 2024 projections: Miami in, LSU out of our 12-team bracket**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/09/04/college-football-playoff-projections-odds/
+
 **Linda Deutsch, The A.P.’s Dean of Courtroom Reporting, Dies at 80**\
 `Covering notorious trials, she offered readers an unvarnished view of the sordid side of celebrity, told through many of the country’s most riveting legal dramas.`\
 https://nytimes.com/2024/09/04/business/media/linda-deutsch-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/04/science/space/boeing-starliner-space-station-nasa
 **Fantasy Football Matchup Rankings Week 1 | Strength of schedule by position**\
 `Week 1 fantasy football strength of schedule by position matchup -- positional defensive matchup ranks`\
 https://nytimes.com/athletic/5744918/2024/09/04/fantasy-football-matchup-rankings-week-1-strength-of-schedule-by-position-2/
-
-**At first, students thought a lockdown was a drill. Then, they heard gunshots.**\
-`By Alessandro Marazzi Sassoon and Rick Rojas`\
-https://nytimes.com/live/2024/09/04/us/georgia-shooting-apalachee-high-school/at-first-students-thought-lockdown-was-a-drill-then-they-heard-gunshots
-
-**Ballon d’Or 2024 shortlist: Foden and Bellingham among nominees**\
-`The shortlists for the 2024 Ballon d’Or have been announced, with Cole Palmer, Bukayo Saka, Jude Bellingham and Vinicius Jr among the nominees for the men&#8217;s award.`\
-https://nytimes.com/athletic/5743852/2024/09/04/ballon-dor-2024-shortlist/
 
