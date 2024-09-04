@@ -1,3 +1,15 @@
+**FPL: Assessing the late transfer window movers**\
+`There were high-profile additions at Arsenal and Chelsea, while Ivan Toney leaving Brentford could have a knock-on effect`\
+https://nytimes.com/athletic/5741113/2024/09/04/fantasy-premier-league-transfer-window/
+
+**How Liverpool exploit the versatility of Gravenberch, Mac Allister and Szoboszlai**\
+`Arne Slot's organisation and seamless rotations between the three midfielders is a notable change from Jurgen Klopp's approach`\
+https://nytimes.com/athletic/5741415/2024/09/04/liverpool-midfield-slot-gravenberch-macallister-szoboszlai/
+
+**Crystal Palace bask in Cheick Doucoure's return - but patience is still required**\
+`The Mali midfielder was excellent as a second-half substitute in the draw at Chelsea as he finds form and fitness after an Achilles injury`\
+https://nytimes.com/athletic/5737799/2024/09/04/doucoure-palace-achilles-chelsea-wharton/
+
 **Chelsea squad audit: Analysing the 33-player group and their roles under Enzo Maresca**\
 `Chelsea have ended the transfer window with 32 players — here is the state of play for each of them`\
 https://nytimes.com/athletic/5741466/2024/09/04/chelsea-squad-audit-roles/
