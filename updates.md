@@ -1,3 +1,11 @@
+**Villa refuse request from fan advisory board to cap Champions League ticket prices**\
+`Aston Villa refused a request from their own fan advisory board (FAB) to cap the price of Champions League tickets with the cheapest adult entry now starting at £70.`\
+https://nytimes.com/athletic/5744092/2024/09/04/aston-villa-refuse-request-from-fan-advisory-board-to-cap-champions-league-ticket-prices/
+
+**What I’m seeing from the Chiefs: The deep ball is back and other observations**\
+`Patrick Mahomes and the Chiefs are looking to go deep again and have added speedsters to help make it happen.`\
+https://nytimes.com/athletic/5735116/2024/09/04/patrick-mahomes-kansas-city-chiefs-observations/
+
 **Harris, Biden and Trump Consider Visits to World Trade Center Site on Sept. 11**\
 `This year, the anniversary of the 2001 attacks will come just hours after a presidential debate between Vice President Kamala Harris and former President Donald J. Trump.`\
 https://nytimes.com/2024/09/04/us/politics/harris-biden-trump-sept-11-nyc.html
