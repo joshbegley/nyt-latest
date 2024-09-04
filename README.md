@@ -1,6 +1,34 @@
+**What happened to the Premier League's PSR transfers? Loans, few minutes and only five starts**\
+`More than £200million was spent in the build-up to the June 30 PSR deadline as clubs looked to meet their targets`\
+https://nytimes.com/athletic/5741552/2024/09/04/premier-league-psr-transfers-what-next/
+
+**Dani Carvajal exclusive: 'When you fall down and get back up, things taste better'**\
+`Real Madrid's talismanic captain sits down for an exclusive interview with The Athletic`\
+https://nytimes.com/athletic/5742002/2024/09/04/dani-carvajal-real-madrid-spain-interview/
+
+**The American family who swapped Texas for Tonga to chase a World Cup dream**\
+`How a Facebook post led to a complete change of life for Maikeli Lomu and his family`\
+https://nytimes.com/athletic/5738569/2024/09/04/maikeli-lomu-tonga/
+
+**Two Years After Deadly Floods Hit Pakistan, It’s Happening Again**\
+`Millions of people still recovering from the devastation of 2022 are bracing for the possibility of losing what they’ve rebuilt.`\
+https://nytimes.com/2024/09/04/world/asia/pakistan-floods.html
+
+**Caitlin Clark, Fever clinch WNBA playoff spot**\
+`With losses by the Atlanta Dream and Chicago Sky on Tuesday night, Indiana clinched a postseason bid.`\
+https://nytimes.com/athletic/5743255/2024/09/04/caitlin-clark-indiana-fever-playoffs-wnba/
+
+**Fantasy football rankings Week 1: Sleepers, projections, starts, sits**\
+`Jake Ciely shares his rankings for Week 1 of the 2024 fantasy football campaign, and also offers up his favorite sleeper plays in each game.`\
+https://nytimes.com/athletic/5743097/2024/09/04/fantasy-football-rankings-week-1-sleepers-projections-starts-sits/
+
 **Japan’s Era of ‘Free’ Mortgages Is Coming to an End**\
 `Homeowners are gearing up to pay more on their loans as the Bank of Japan’s rate increases signal the end of decades of ultralow interest rates.`\
 https://nytimes.com/2024/09/04/business/japan-mortgage-rates.html
+
+**Wednesday's MLB odds, projections: Best bets, pitching matchups for every game**\
+`See pitching matchups, playoff projections, win projections and more for Wednesday's MLB games.`\
+https://nytimes.com/athletic/5743041/2024/09/04/mlb-odds-best-bets-projections-september-4/
 
 **The Cubs are fading again after a frustrating 5-0 loss to the Pirates**\
 `Hendricks kept his team in the game with five innings pitchced, but that wasn’t enough in a frustrating 5-0 loss.`\
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/5743574/2024/09/03/chicago-cubs-fading-again-septem
 **Whit Merrifield rages over dangerous fastballs: 'That was my life on the line'**\
 `ATLANTA — Whit Merrifield has had enough of control-challenged pitchers hitting batters with pitches.`\
 https://nytimes.com/athletic/5743538/2024/09/03/braves-whit-merrifield-hit-batters/
-
-**Bears 'Hard Knocks' takeaways: Ryan Poles' emotion comes through in final episode**\
-`The Bears did allow HBO to show players getting cut, and players making the team and practice squad in the final episode of the season.`\
-https://nytimes.com/athletic/5743536/2024/09/03/bears-hard-knocks-finale-ryan-poles/
-
-**U.S. Market Slump Sparks Global Sell-Off**\
-`A sharp decline in major U.S. stock indexes reverberated through Asia on Wednesday, with investors still rattled by last month’s market meltdown.`\
-https://nytimes.com/2024/09/03/business/japan-stocks-us-economy.html
-
-**Despite another strong outing from rookie David Festa, Twins lose to Rays**\
-`Since rejoining the Twins, Festa has a 3.13 ERA with 50 strikeouts in 37 innings pitched.`\
-https://nytimes.com/athletic/5743511/2024/09/03/rookie-david-festa-twins-start/
-
-**Behind David Peterson, the Mets' rotation continues to lead the way**\
-`Peterson struck out a career-high 11 and his emergence is just part of the story for a Mets rotation on a roll. `\
-https://nytimes.com/athletic/5743493/2024/09/03/mets-david-peterson-rotation/
-
-**Sexual assault suit against McManus dismissed, plaintiffs can refile**\
-`The attorney representing the two women in the case said they plan to file an amended complaint, per multiple reports.`\
-https://nytimes.com/athletic/5743183/2024/09/03/brandon-mcmanus-sexual-assault-lawsuit-dismissed/
-
-**Canadiens' Cole Caufield to wear No. 13 in honor of Johnny Gaudreau**\
-`Caufield said he'll be changing his number from 22 to 13 this season to honor Gaudreau, who was killed last Thursday in a traffic crash.`\
-https://nytimes.com/athletic/5743396/2024/09/03/cole-caufield-johnny-gaudreau-jersey/
-
-**Some Navels**\
-`Kareem Ayas waxes poetic.`\
-https://nytimes.com/2024/09/03/crosswords/daily-puzzle-2024-09-04.html
 
