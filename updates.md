@@ -1,3 +1,19 @@
+**Duplantis beats Warholm in 100m exhibition race**\
+`Olympic pole vault champion and world record holder Mondo Duplantis beat Karsten Warholm, the Olympic 400m hurdles silver medallist, and world record holder, over 100m in Zurich on Wednesday night.`\
+https://nytimes.com/athletic/5745394/2024/09/04/mondo-duplantis-beats-karsten-warholm-100m/
+
+**Harris Tells the Business Community: I’m Friendlier Than Biden**\
+`The vice president, who campaigned on Wednesday in New Hampshire, has pitched new tax plans that represent a break from President Biden, and that are meant to reassure business owners.`\
+https://nytimes.com/2024/09/04/us/politics/harris-tax-break-small-business.html
+
+**Shooting at Georgia High School Leaves Four Dead**\
+`The police responded to a shooting at Apalachee High School in Winder, Ga. At least nine others were injured.`\
+https://nytimes.com/video/us/100000009674083/georgia-school-shooting-winder.html
+
+**Zelensky’s party announces a slate of nine candidates for cabinet posts.**\
+`By Marc Santora and Maria Varenikova`\
+https://nytimes.com/live/2024/09/04/world/ukraine-russia-missile-attacks/zelensky-pushes-ahead-with-sweeping-overhaul-of-his-cabinet
+
 **Zelensky pushes ahead with sweeping overhaul of his cabinet.**\
 `By Marc Santora and Maria Varenikova`\
 https://nytimes.com/live/2024/09/04/world/ukraine-russia-missile-attacks/zelensky-pushes-ahead-with-sweeping-overhaul-of-his-cabinet
