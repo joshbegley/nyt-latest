@@ -1,3 +1,7 @@
+**Who the Swing Voters Are**\
+`We analyze the voters who could decide the election.`\
+https://nytimes.com/2024/09/04/briefing/who-the-swing-voters-are.html
+
 **Deregulation and Dishonesty Led to Deadly Grenfell Fire, Inquiry Finds**\
 `A damning final report into Britain’s worst residential fire since World War II blamed a litany of cost-cutting, dishonest sales practices and lax regulation for the blaze that killed 72 people.`\
 https://nytimes.com/2024/09/04/world/europe/grenfell-tower-fire-inquiry-report-uk.html
