@@ -1,3 +1,7 @@
+**Nordstrom Family Offers $3.8 Billion to Buy Its Namesake Retailer**\
+`The $23-per-share offer by the department store’s founding family comes as retailers struggle to navigate new shopping trends and costly real estate.`\
+https://nytimes.com/2024/09/04/business/dealbook/nordstrom-retailer-private.html
+
 **Smith: Ferrari's Monza win proves F1’s great 2024 season could become a classic**\
 `With eight races remaining, F1's 2024 season is set up for a tantalizing finish. `\
 https://nytimes.com/athletic/5744654/2024/09/04/ferrari-italian-gp-f1-2024-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5743302/2024/09/04/sf-giants-takeaways-marco-lucian
 **Mirtle: The big question after Leon Draisaitl’s deal — what is Connor McDavid worth?**\
 `Although McDavid's next contract will likely set a new high-water mark for this era of NHL players, it'll still be a bargain for the Oilers.`\
 https://nytimes.com/athletic/5743417/2024/09/04/leon-draisaitl-connor-mcdavid-oilers-contract-salary/
-
-**A cabinet shake-up suggests Zelensky is planning for ‘a new phase of the war,’ analysts say.**\
-`By Marc Santora and Maria Varenikova`\
-https://nytimes.com/live/2024/09/04/world/ukraine-russia-missile-attacks/a-cabinet-shake-up-suggests-zelensky-is-planning-for-a-new-phase-of-the-war-analysts-say
 
