@@ -1,3 +1,7 @@
+**What we're seeing from the Raiders: Gardner Minshew's volatility and other observations**\
+`Minshew may have won the Raiders' starting QB job over Aidan O'Connell, but he'll have to improve his consistency to keep it. `\
+https://nytimes.com/athletic/5734668/2024/09/04/las-vegas-raiders-preview-gardner-minshew/
+
 **Netflix Adds Disclaimer to Indian Show After Anger Over Hijacker Names**\
 `The series, based on a 1999 plane hijacking, prompted backlash on social media. Critics claimed it wrongly portrayed the Islamist hijackers as Hindus.`\
 https://nytimes.com/2024/09/04/world/asia/netflix-india-ic-814-kandahar-hijack.html
