@@ -1,3 +1,7 @@
+**Noel Parmentel Jr., Essayist, Polemicist and Apostate, Dies at 98**\
+`A self-described “reactionary individualist,” he mentored Joan Didion and was credited with famously comparing Nixon to a used-car salesman.`\
+https://nytimes.com/2024/09/04/business/media/noel-parmentel-jr-dead.html
+
 **In Deciding When to Sentence Trump, Judge Faces ‘Impossible’ Task**\
 `Justice Juan M. Merchan has tried to treat Donald J. Trump like the hundreds of other defendants whose fates he has decided. But his decision could alter American history.`\
 https://nytimes.com/2024/09/04/nyregion/trump-hush-money-sentencing.html

@@ -1,3 +1,11 @@
+**Smith: Ferrari's Monza win proves F1’s great 2024 season could become a classic**\
+`With eight races remaining, F1's 2024 season is set up for a tantalizing finish. `\
+https://nytimes.com/athletic/5744654/2024/09/04/ferrari-italian-gp-f1-2024-season/
+
+**West Ham consider free transfer move for Egan**\
+`John Egan is set to feature for West Ham United in a behind-closed-doors friendly against Dagenham &amp; Redbridge as they consider a deal to sign him on a free transfer.`\
+https://nytimes.com/athletic/5744649/2024/09/04/west-ham-john-egan-transfer-free/
+
 **Noel Parmentel Jr., Essayist, Polemicist and Apostate, Dies at 98**\
 `A self-described “reactionary individualist,” he mentored Joan Didion and was credited with famously comparing Nixon to a used-car salesman.`\
 https://nytimes.com/2024/09/04/business/media/noel-parmentel-jr-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5743417/2024/09/04/leon-draisaitl-connor-mcdavid-oi
 **A cabinet shake-up suggests Zelensky is planning for ‘a new phase of the war,’ analysts say.**\
 `By Marc Santora and Maria Varenikova`\
 https://nytimes.com/live/2024/09/04/world/ukraine-russia-missile-attacks/a-cabinet-shake-up-suggests-zelensky-is-planning-for-a-new-phase-of-the-war-analysts-say
-
-**Iran Emerges as a Top Disinformation Threat in U.S. Presidential Race**\
-`With a flurry of hacks and fake websites, Iran has intensified its efforts to discredit American democracy and possibly tip the race against former President Donald Trump.`\
-https://nytimes.com/2024/09/04/business/media/iran-disinformation-us-presidential-race.html
-
-**Ms. Taddeo Goes to Hollywood**\
-`A writer’s success today may be measured in film and television adaptations. Lisa Taddeo, whose book “Three Women” is now a Starz series, hates that.`\
-https://nytimes.com/2024/09/04/style/lisa-taddeo-three-women-series-starz.html
 

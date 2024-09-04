@@ -1,3 +1,7 @@
+**Noel Parmentel Jr., Essayist, Polemicist and Apostate, Dies at 98**\
+`A self-described “reactionary individualist,” he mentored Joan Didion and was credited with famously comparing Nixon to a used-car salesman.`\
+https://nytimes.com/2024/09/04/business/media/noel-parmentel-jr-dead.html
+
 **In Deciding When to Sentence Trump, Judge Faces ‘Impossible’ Task**\
 `Justice Juan M. Merchan has tried to treat Donald J. Trump like the hundreds of other defendants whose fates he has decided. But his decision could alter American history.`\
 https://nytimes.com/2024/09/04/nyregion/trump-hush-money-sentencing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/04/business/media/iran-disinformation-us-presidentia
 **Ms. Taddeo Goes to Hollywood**\
 `A writer’s success today may be measured in film and television adaptations. Lisa Taddeo, whose book “Three Women” is now a Starz series, hates that.`\
 https://nytimes.com/2024/09/04/style/lisa-taddeo-three-women-series-starz.html
-
-**The Windup: The new Bash Brothers**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5744521/2024/09/04/oakland-as-lawrence-butler-brent-rooker-the-windup/
 
