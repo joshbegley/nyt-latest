@@ -1,3 +1,11 @@
+**Spirit rookie Bethune suffers season-ending knee injury**\
+`Bethune was selected third overall in the 2023 NWSL Draft, with Washington trading defensive anchor Sam Staab to obtain the pick.`\
+https://nytimes.com/athletic/5745585/2024/09/04/washington-spirit-croix-bethune-knee-injury/
+
+**Venezuelan and Proxy Forces Linked to at Least 6 Protester Deaths, Rights Group Says**\
+`The Human Rights Watch report marks the first effort by a major international organization to verify some of the two-dozen reported deaths in protests since Venezuela’s disputed presidential election.`\
+https://nytimes.com/2024/09/04/world/americas/venezuelan-government-violence-human-rights.html
+
 **21 Migrants Missing at Sea as Boat Capsizes in Rough Seas Off Italy**\
 `Seven survivors were rescued from the boat that sank after leaving Libya. A crackdown by Italy has reduced migration, but not the high death rates that come with crossing the Mediterranean.`\
 https://nytimes.com/2024/09/04/world/europe/italy-migrants-missing-libya.html
