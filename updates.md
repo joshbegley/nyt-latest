@@ -1,3 +1,7 @@
+**What to See in N.Y.C. Galleries in September**\
+`This week in Newly Reviewed, Andrew Russeth covers a group show of self-portraits, Gina Beavers’s collaged sculptures and Hannah Villiger’s beguiling photographs.`\
+https://nytimes.com/2024/09/04/arts/design/nyc-galleries-september.html
+
 **What’s in Our Queue? ‘Below Deck Mediterranean’ and More**\
 `I’m the reporting fellow on The Times’s Culture desk. Here are five things I’ve recently heard, seen and watched.`\
 https://nytimes.com/interactive/2024/09/04/arts/editors-recommendations-below-deck.html

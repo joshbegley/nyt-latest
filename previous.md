@@ -1,3 +1,7 @@
+**What to See in N.Y.C. Galleries in September**\
+`This week in Newly Reviewed, Andrew Russeth covers a group show of self-portraits, Gina Beavers’s collaged sculptures and Hannah Villiger’s beguiling photographs.`\
+https://nytimes.com/2024/09/04/arts/design/nyc-galleries-september.html
+
 **What’s in Our Queue? ‘Below Deck Mediterranean’ and More**\
 `I’m the reporting fellow on The Times’s Culture desk. Here are five things I’ve recently heard, seen and watched.`\
 https://nytimes.com/interactive/2024/09/04/arts/editors-recommendations-below-deck.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5745141/2024/09/04/vinicius-junior-de-la-fuente-spa
 **Boeing Starliner Set to Leave Space Station Without Its Crew**\
 `The troubled spacecraft is scheduled to undock on Friday for a trip back to Earth while two NASA astronauts will stay in orbit.`\
 https://nytimes.com/2024/09/04/science/space/boeing-starliner-space-station-nasa.html
-
-**Fantasy Football Matchup Rankings Week 1 | Strength of schedule by position**\
-`Week 1 fantasy football strength of schedule by position matchup -- positional defensive matchup ranks`\
-https://nytimes.com/athletic/5744918/2024/09/04/fantasy-football-matchup-rankings-week-1-strength-of-schedule-by-position-2/
 
