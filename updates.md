@@ -1,3 +1,7 @@
+**Texans extend backup QB Mills through 2025**\
+`Davis Mills was entering the fourth and final year of his rookie contract.`\
+https://nytimes.com/athletic/5743993/2024/09/04/davis-mills-texans-contract/
+
 **Kawakami: On the eve of Week 1, the 49ers emerge from a summer of crises**\
 `Brandon Aiyuk after his first practice this season: "I'm super-excited, feeling fresh, kind of renewed. Coming with new energy."`\
 https://nytimes.com/athletic/5742752/2024/09/04/49ers-ricky-pearsall-brandon-aiyuk-trent-williams-kawakami/
