@@ -1,3 +1,7 @@
+**Hounded From a Beauty Pageant in South Africa, Then Crowned in Nigeria.**\
+`A South African beauty pageant contestant with Nigerian heritage was forced to withdraw from the competition after her participation fueled anti-immigrant sentiments.`\
+https://nytimes.com/2024/09/04/world/africa/south-africa-nigeria-miss-universe.html
+
 **Who the Swing Voters Are**\
 `We analyze the voters who could decide the election.`\
 https://nytimes.com/2024/09/04/briefing/who-the-swing-voters-are.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5742490/2024/09/04/matt-eberflus-bears-new-look/
 **Answers to the biggest Caitlin Clark trading card questions**\
 `What you need to know about Caitlin Clark cards ahead of the WNBA's three big set releases`\
 https://nytimes.com/athletic/5743289/2024/09/04/caitlin-clark-cards-rookie-wnba/
-
-**More pressure. More responsibility. Colts QB, new dad Anthony Richardson embracing it all**\
-`"(He's) got to grow up fast. (He's) got a kid to take care of ... a whole team that's relying on him and counting on him (every week)." `\
-https://nytimes.com/athletic/5741172/2024/09/04/anthony-richardson-colts-new-father-pressure/
 

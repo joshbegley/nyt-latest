@@ -1,3 +1,7 @@
+**Hounded From a Beauty Pageant in South Africa, Then Crowned in Nigeria.**\
+`A South African beauty pageant contestant with Nigerian heritage was forced to withdraw from the competition after her participation fueled anti-immigrant sentiments.`\
+https://nytimes.com/2024/09/04/world/africa/south-africa-nigeria-miss-universe.html
+
 **Who the Swing Voters Are**\
 `We analyze the voters who could decide the election.`\
 https://nytimes.com/2024/09/04/briefing/who-the-swing-voters-are.html
