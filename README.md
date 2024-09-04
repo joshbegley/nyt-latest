@@ -1,3 +1,7 @@
+**In Jakarta, Pope Praises Indonesia’s ‘Delicate Balance’ of Unity in Diversity**\
+`The pontiff said “mutual respect” was the key to harmony in the majority-Muslim country, where a pluralist tradition has been put to the test by extremist groups.`\
+https://nytimes.com/2024/09/04/world/asia/pope-francis-indonesia-jokowi.html
+
 **Word of the Day: ensemble**\
 `This word has appeared in 609 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/04/learning/word-of-the-day-ensemble.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5741415/2024/09/04/liverpool-midfield-slot-gravenbe
 **Crystal Palace bask in Cheick Doucoure's return - but patience is still required**\
 `The Mali midfielder was excellent as a second-half substitute in the draw at Chelsea as he finds form and fitness after an Achilles injury`\
 https://nytimes.com/athletic/5737799/2024/09/04/doucoure-palace-achilles-chelsea-wharton/
-
-**Chelsea squad audit: Analysing the 33-player group and their roles under Enzo Maresca**\
-`Chelsea have ended the transfer window with 32 players — here is the state of play for each of them`\
-https://nytimes.com/athletic/5741466/2024/09/04/chelsea-squad-audit-roles/
 
