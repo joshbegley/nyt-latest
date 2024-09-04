@@ -1,3 +1,7 @@
+**Alfie Devine to join KVC Westerlo on loan from Tottenham**\
+`Alfie Devine is to join Belgian club KVC Westerlo on loan from Tottenham Hotspur.`\
+https://nytimes.com/athletic/5743794/2024/09/04/alfie-devine-tottenham-kvc-westerlo-transfer/
+
 **Hummels set to join Roma following Dortmund exit**\
 `Mats Hummels is set to join Roma as a free agent after leaving Borussia Dortmund earlier this summer.`\
 https://nytimes.com/athletic/5733958/2024/09/04/mats-hummels-roma-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/04/realestate/925000-dollar-homes-new-york-virginia-
 **Could a Cup Count Predict the Election Result?**\
 `A shop in the Hamptons sells presidential campaign cups. The top seller usually also wins the race.`\
 https://nytimes.com/2024/09/04/nyregion/cup-count-harris-trump.html
-
-**Climate Change Is Making ‘Last Chance Tourism’ More Popular, and Riskier**\
-`More tourists are eager to visit vanishing glaciers and ice caves, but warming is also making the sites unstable.`\
-https://nytimes.com/2024/09/04/climate/climate-change-iceland-glacier-tourism.html
 
