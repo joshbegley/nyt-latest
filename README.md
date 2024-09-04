@@ -1,3 +1,11 @@
+**Liverpool sign Ngumoha from Chelsea after move is approved by Premier League**\
+`The Premier League have approved Liverpool’s signing of highly-rated teenage forward Rio Ngumoha from Chelsea.`\
+https://nytimes.com/athletic/5745106/2024/09/04/liverpool-chelsea-rio-ngumoha-transfer/
+
+**Trudeau’s Hold on Power Slips After Collapse of Governing Agreement**\
+`A left-leaning party that helped Canada’s Liberals build a majority in Parliament announced it was ending its support, making it possible an election is called early.`\
+https://nytimes.com/2024/09/04/world/canada/trudeau-liberal-party-agreement.html
+
 **LSU running back John Emery sidelined with torn ACL**\
 `Former five-star recruit briefly entered the transfer portal in the offseason before opting to return for his sixth season at LSU. `\
 https://nytimes.com/athletic/5744946/2024/09/04/john-emery-lsu-running-back-acl/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/04/arts/television/terminator-zero-netflix.html
 **A Perfect Match for a Sexy Brand?**\
 `Haider Ackermann, a coolly sensual designer, is the new creative director at Tom Ford.`\
 https://nytimes.com/2024/09/04/style/haider-ackermann-tom-ford.html
-
-**Bills' Hamlin will start for first time since cardiac arrest**\
-`It will be Hamlin's first start since he collapsed and went into cardiac arrest on the field during a game in January 2023.`\
-https://nytimes.com/athletic/5744882/2024/09/04/damar-hamlin-bills-starter-cardinals/
-
-**Prosecutor Says Manslaughter Case Against Alec Baldwin Should Be Revived**\
-`The special prosecutor asked a judge in New Mexico to reconsider her decision to toss the charge against the actor during his trial.`\
-https://nytimes.com/2024/09/04/movies/alec-baldwin-trial-prosecutor.html
 
