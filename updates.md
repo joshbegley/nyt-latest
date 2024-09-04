@@ -1,3 +1,15 @@
+**Commanders, Cosmi agree to 4-year extension**\
+`Cosmi is the first player drafted by Washington to sign a second contract since wide receiver Terry McLaurin.`\
+https://nytimes.com/athletic/5744880/2024/09/04/sam-cosmi-extension-commanders/
+
+**Russia’s aerial assault on Ukraine comes as the situation on the battlefield is in flux.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/09/04/world/ukraine-russia-missile-attacks/russias-aerial-assault-on-ukraine-comes-as-the-situation-on-the-battlefield-is-in-flux
+
+**Hunter Biden’s Legal Woes Return to Spotlight Ahead of Tax Trial**\
+`As both sides prepare for the start of jury selection on Thursday, there are no indications that any deal is likely, according to several people with knowledge of the situation.`\
+https://nytimes.com/2024/09/04/us/politics/hunter-biden-tax-trial.html
+
 **Multiple Casualties In Georgia High School Shooting, Officials Say**\
 `The police responded to a shooting at Apalachee High School in Winder, Ga. Students gathered at the school’s track and field stadium.`\
 https://nytimes.com/video/us/100000009673329/georgia-school-shooting.html
