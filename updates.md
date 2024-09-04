@@ -1,3 +1,15 @@
+**Jim Riswold, Creator of ‘Bo Knows’ and Air Jordan Ads, Dies at 66**\
+`His work for Nike — particularly commercials starring Michael Jordan and Spike Lee — blurred the line between advertising and entertainment.`\
+https://nytimes.com/2024/09/04/business/media/jim-riswold-dead.html
+
+**Osimhen completes Galatasaray loan move**\
+`Galatasaray have confirmed the signing of Victor Osimhen on a season-long loan.`\
+https://nytimes.com/athletic/5733955/2024/09/04/victor-osimhen-galatasaray-napoli-transfer/
+
+**With New Taliban Manifesto, Afghan Women Fear the Worst**\
+`Three years into its rule, the movement has codified its harsh Islamic decrees into law that now includes a ban on women’s voices in public.`\
+https://nytimes.com/2024/09/04/world/asia/women-taliban-prohibitions-afghanistan.html
+
 **Georgia School on Lockdown After Report of Gunfire**\
 `Apalachee High School officials said that students were placed under lockdown on Wednesday after gunfire was reported.`\
 https://nytimes.com/2024/09/04/us/apalachee-high-school-shooting-lockdown.html
