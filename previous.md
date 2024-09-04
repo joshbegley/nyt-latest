@@ -1,3 +1,7 @@
+**Biden Expected to Block U.S. Steel Takeover**\
+`The Committee on Foreign Investment in the United States is expected to raise national security concerns about selling the iconic steel producer to Japan’s Nippon Steel.`\
+https://nytimes.com/2024/09/04/us/politics/biden-us-steel-nippon.html
+
 **Karolina Muchova's U.S. Open run reminds the world of the beauty of her game**\
 `Returning from a serious wrist injury, last year's U.S. Open semifinalist is reminding the tennis world of the beauty of her game.`\
 https://nytimes.com/athletic/5733246/2024/09/04/karolina-muchova-us-open-comeback-womens-tennis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/04/movies/alec-baldwin-trial-prosecutor.html
 **Commanders, Cosmi agree to 4-year extension**\
 `Cosmi is the first player drafted by Washington to sign a second contract since wide receiver Terry McLaurin.`\
 https://nytimes.com/athletic/5744880/2024/09/04/sam-cosmi-extension-commanders/
-
-**Russia’s aerial assault on Ukraine comes as the situation on the battlefield is in flux.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/09/04/world/ukraine-russia-missile-attacks/russias-aerial-assault-on-ukraine-comes-as-the-situation-on-the-battlefield-is-in-flux
 

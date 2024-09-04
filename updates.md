@@ -1,3 +1,7 @@
+**Biden Expected to Block U.S. Steel Takeover**\
+`The Committee on Foreign Investment in the United States is expected to raise national security concerns about selling the iconic steel producer to Japan’s Nippon Steel.`\
+https://nytimes.com/2024/09/04/us/politics/biden-us-steel-nippon.html
+
 **Karolina Muchova's U.S. Open run reminds the world of the beauty of her game**\
 `Returning from a serious wrist injury, last year's U.S. Open semifinalist is reminding the tennis world of the beauty of her game.`\
 https://nytimes.com/athletic/5733246/2024/09/04/karolina-muchova-us-open-comeback-womens-tennis/
