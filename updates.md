@@ -1,3 +1,7 @@
+**Fake Heiress Goes From High-Society Impersonator to ‘Dancing With the Stars’**\
+`Anna Sorokin will reprise her false identity on season 33 of the show, becoming the latest contestant with legal or other troubles.`\
+https://nytimes.com/2024/09/04/arts/television/anna-delvey-dancing-with-the-stars.html
+
 **'Spain is not racist', says manager De la Fuente**\
 `Luis de la Fuente says that Spain is &#8220;not racist&#8221; after Real Madrid forward Vinicius Junior suggested the nation should be stripped of hosting the 2030 World Cup unless it improves its record on fighting racism.`\
 https://nytimes.com/athletic/5745141/2024/09/04/vinicius-junior-de-la-fuente-spain-racism/

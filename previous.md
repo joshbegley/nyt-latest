@@ -1,3 +1,7 @@
+**Fake Heiress Goes From High-Society Impersonator to ‘Dancing With the Stars’**\
+`Anna Sorokin will reprise her false identity on season 33 of the show, becoming the latest contestant with legal or other troubles.`\
+https://nytimes.com/2024/09/04/arts/television/anna-delvey-dancing-with-the-stars.html
+
 **'Spain is not racist', says manager De la Fuente**\
 `Luis de la Fuente says that Spain is &#8220;not racist&#8221; after Real Madrid forward Vinicius Junior suggested the nation should be stripped of hosting the 2030 World Cup unless it improves its record on fighting racism.`\
 https://nytimes.com/athletic/5745141/2024/09/04/vinicius-junior-de-la-fuente-spain-racism/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5745106/2024/09/04/liverpool-chelsea-rio-ngumoha-tr
 **Trudeau’s Hold on Power Slips After Collapse of Governing Agreement**\
 `A left-leaning party that helped Canada’s Liberals build a majority in Parliament announced it was ending its support, making it possible an election is called early.`\
 https://nytimes.com/2024/09/04/world/canada/trudeau-liberal-party-agreement.html
-
-**LSU running back John Emery sidelined with torn ACL**\
-`Former five-star recruit briefly entered the transfer portal in the offseason before opting to return for his sixth season at LSU. `\
-https://nytimes.com/athletic/5744946/2024/09/04/john-emery-lsu-running-back-acl/
 
