@@ -1,3 +1,7 @@
+**How 49ers' Trent Williams forfeited millions in fines — and cashed in big time**\
+`Williams was fined at least $2 million — potentially up to $4 million — but the new guaranteed dollars in his deal more than made up for it.`\
+https://nytimes.com/athletic/5742856/2024/09/03/trent-williams-49ers-contract-fines-holdout/
+
 **Canadiens' Cole Caufield to wear No. 13 in honor of Johnny Gaudreau**\
 `Caufield said he'll be changing his number from 22 to 13 this season to honor Gaudreau, who was killed last Thursday in a traffic crash.`\
 https://nytimes.com/athletic/5743396/2024/09/03/cole-caufield-johnny-gaudreau-jersey/
