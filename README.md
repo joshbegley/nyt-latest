@@ -1,3 +1,7 @@
+**How Media Outlets on the Left and Right Covered Trump’s Arlington Cemetery Visit**\
+`Liberal outlets criticized Mr. Trump for turning his visit into a photo opportunity, while conservative ones falsely suggested the altercation never happened.`\
+https://nytimes.com/2024/09/04/business/media/trump-arlington-cemetery-media.html
+
 **Duplantis beats Warholm in 100m exhibition race**\
 `Olympic pole vault champion and world record holder Mondo Duplantis beat Karsten Warholm, the Olympic 400m hurdles silver medallist, and world record holder, over 100m in Zurich on Wednesday night.`\
 https://nytimes.com/athletic/5745394/2024/09/04/mondo-duplantis-beats-karsten-warholm-100m/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/04/arts/design/nyc-galleries-september.html
 **What’s in Our Queue? ‘Below Deck Mediterranean’ and More**\
 `I’m the reporting fellow on The Times’s Culture desk. Here are five things I’ve recently heard, seen and watched.`\
 https://nytimes.com/interactive/2024/09/04/arts/editors-recommendations-below-deck.html
-
-**College Football Playoff 2024 projections: Miami in, LSU out of our 12-team bracket**\
-`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
-https://nytimes.com/athletic/5701128/2024/09/04/college-football-playoff-projections-odds/
 
