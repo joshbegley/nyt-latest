@@ -1,3 +1,7 @@
+**Behind David Peterson, the Mets' rotation continues to lead the way**\
+`Peterson struck out a career-high 11 and his emergence is just part of the story for a Mets rotation on a roll. `\
+https://nytimes.com/athletic/5743493/2024/09/03/mets-david-peterson-rotation/
+
 **Sexual assault suit against McManus dismissed, plaintiffs can refile**\
 `The attorney representing the two women in the case said they plan to file an amended complaint, per multiple reports.`\
 https://nytimes.com/athletic/5743183/2024/09/03/brandon-mcmanus-sexual-assault-lawsuit-dismissed/
@@ -34,8 +38,4 @@ https://nytimes.com/2024/09/03/us/politics/tim-sheehy-native-americans-montana.h
 **How Self-Driving Cars Get Help From Humans Hundreds of Miles Away**\
 `Zoox, a self-driving car company owned by Amazon, is deploying robot taxis without steering wheels, driver seats or drivers. But like all other self-driving cars, they still need help from humans.`\
 https://nytimes.com/interactive/2024/09/03/technology/zoox-self-driving-cars-remote-control.html
-
-**Aryna Sabalenka powers past Zheng Qinwen to reach U.S. Open semifinals**\
-`This was not a simple repeat of the Australian Open final rout — Zheng's serve, her key weapon, let her down badly.`\
-https://nytimes.com/athletic/5743250/2024/09/03/sabalenka-zheng-us-open-result/
 

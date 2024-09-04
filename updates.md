@@ -1,3 +1,7 @@
+**Behind David Peterson, the Mets' rotation continues to lead the way**\
+`Peterson struck out a career-high 11 and his emergence is just part of the story for a Mets rotation on a roll. `\
+https://nytimes.com/athletic/5743493/2024/09/03/mets-david-peterson-rotation/
+
 **Sexual assault suit against McManus dismissed, plaintiffs can refile**\
 `The attorney representing the two women in the case said they plan to file an amended complaint, per multiple reports.`\
 https://nytimes.com/athletic/5743183/2024/09/03/brandon-mcmanus-sexual-assault-lawsuit-dismissed/
