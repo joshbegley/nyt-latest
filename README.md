@@ -1,3 +1,7 @@
+**House Republican Subpoenas Blinken Over Afghanistan Withdrawal**\
+`The chairman of the House Foreign Affairs Committee summoned the secretary of state for testimony just days before an expected report on the U.S. exit, in which 13 American service members were killed.`\
+https://nytimes.com/2024/09/03/us/politics/blinken-subpoena-house-afghanistan.html
+
 **How 49ers’ Trent Williams forfeited millions in fines — and cashed in big time**\
 `Williams was fined at least $2 million — potentially up to $4 million — but the new guaranteed dollars in his deal more than made up for it.`\
 https://nytimes.com/athletic/5742856/2024/09/03/trent-williams-49ers-contract-fines-holdout/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/03/business/media/brian-stelter-cnn-reliable-sources
 **Collector Sues to Block Investigators From Seizing Roman Bronze**\
 `Lawyers for the collector, based in California, said the Manhattan district attorney’s office did not have the jurisdiction or the evidence to support seizing the ancient statue.`\
 https://nytimes.com/2024/09/03/arts/design/collector-sues-to-block-investigators-from-seizing-roman-bronze.html
-
-**Texas Deputy Is Shot to Death on His Way to Work**\
-`A deputy constable was driving to work Tuesday when he was shot and killed at an intersection in Houston, the police said. A person of interest was in custody Tuesday afternoon.`\
-https://nytimes.com/2024/09/03/us/houston-deputy-constable-shot.html
 
