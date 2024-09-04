@@ -1,3 +1,7 @@
+**Will North Carolina’s MAGA Extremists Doom Trump?**\
+`There’s a whiff of Republican panic in this battleground state.`\
+https://nytimes.com/2024/09/04/opinion/trump-north-carolina-election.html
+
 **Dispatches From the Courtroom: Linda Deutsch Breaking the News**\
 `Covering some of America’s most sensational trials, she produced urgent, pithy “ledes” in the best tradition of wire-service reporting. Here’s a sampler.`\
 https://nytimes.com/2024/09/04/business/media/linda-deutsch-ap-court-reporting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/04/business/media/trump-arlington-cemetery-media.htm
 **Duplantis beats Warholm in 100m exhibition race**\
 `Olympic pole vault champion and world record holder Mondo Duplantis beat Karsten Warholm, the Olympic 400m hurdles silver medallist, and world record holder, over 100m in Zurich on Wednesday night.`\
 https://nytimes.com/athletic/5745394/2024/09/04/mondo-duplantis-beats-karsten-warholm-100m/
-
-**Harris Tells the Business Community: I’m Friendlier Than Biden**\
-`The vice president, who campaigned on Wednesday in New Hampshire, has pitched new tax plans that represent a break from President Biden, and that are meant to reassure business owners.`\
-https://nytimes.com/2024/09/04/us/politics/harris-tax-break-small-business.html
 

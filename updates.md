@@ -1,3 +1,7 @@
+**Will North Carolina’s MAGA Extremists Doom Trump?**\
+`There’s a whiff of Republican panic in this battleground state.`\
+https://nytimes.com/2024/09/04/opinion/trump-north-carolina-election.html
+
 **Dispatches From the Courtroom: Linda Deutsch Breaking the News**\
 `Covering some of America’s most sensational trials, she produced urgent, pithy “ledes” in the best tradition of wire-service reporting. Here’s a sampler.`\
 https://nytimes.com/2024/09/04/business/media/linda-deutsch-ap-court-reporting.html
