@@ -6,8 +6,8 @@ https://nytimes.com/athletic/5739859/2024/09/04/edmonton-oilers-waiver-targets-2
 `The match will feature perhaps the two most popular players on both tours, months after DeChambeau's U.S. Open win over McIlroy.`\
 https://nytimes.com/athletic/5744311/2024/09/04/pga-tour-liv-scheffler-mcilroy-dechambeau-koepka-tv-golf/
 
-**Villa refuse request from fan advisory board to cap Champions League ticket prices**\
-`Aston Villa refused a request from their own fan advisory board (FAB) to cap the price of Champions League tickets with the cheapest adult entry now starting at £70.`\
+**Villa refuse request from fans to cap Champions League ticket prices**\
+`Aston Villa refused a request from their fan advisory board (FAB) to cap the price of Champions League tickets with the cheapest adult entry now starting at £70.`\
 https://nytimes.com/athletic/5744092/2024/09/04/aston-villa-champions-league-ticket-prices/
 
 **Harris, Biden and Trump Consider Visits to World Trade Center Site on Sept. 11**\
