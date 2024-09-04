@@ -1,3 +1,7 @@
+**How Tom Brady prepared for his Fox NFL broadcasting debut**\
+`When Tom Brady took his gap season between his final NFL game in early 2023 and his debut as Fox Sports&#8217; $375 million analyst this Sunday, he studied NFL broadcasts like he was trying to figure out a defense as a quarterback.`\
+https://nytimes.com/athletic/5742638/2024/09/04/tom-brady-fox-nfl-broadcast-preparations/
+
 **What we're seeing from the Raiders: Gardner Minshew's volatility and other observations**\
 `Minshew may have won the Raiders' starting QB job over Aidan O'Connell, but he'll have to improve his consistency to keep it. `\
 https://nytimes.com/athletic/5734668/2024/09/04/las-vegas-raiders-preview-gardner-minshew/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5739713/2024/09/04/nfl-seaason-team-coverage-news/
 **Can Frank Nazar earn a full-time role this season? He's ready for the challenge**\
 `A three-game cameo in 2023-24 showed 2022 first-rounder Frank Nazar exactly where he needed to improve during his first pro offseason.`\
 https://nytimes.com/athletic/5741777/2024/09/04/blackhawks-frank-nazar-nhl-offseason/
-
-**Trotter: Clark, Reese should share ROY award, just as they share a place in WNBA history**\
-`It will never happen but they both deserve it — not only for their unprecedented performances on the court but also for their impact off it.`\
-https://nytimes.com/athletic/5743551/2024/09/04/caitlin-clark-angel-reese-wnba-rookie-of-year/
 
