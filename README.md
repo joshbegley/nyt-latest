@@ -1,3 +1,12 @@
+**Some Navels**\
+`Kareem Ayas waxes poetic.`\
+https://nytimes.com/2024/09/03/crosswords/daily-puzzle-2024-09-04.html
+
+**Is Hydrogen the Missing Piece in Solving the World’s Energy Puzzle?**\
+`A unique hydrogen ecosystem strategy is making the prospect of a hydrogen society increasingly feasible.
+`\
+https://nytimes.com/paidpost/hyundai/is-hydrogen-the-missing-piece-in-solving-the-worlds-energy-puzzle.html
+
 **New York Official Is Charged as Chinese Agent**\
 `Linda Sun, a former aide to Gov. Kathy Hochul, was charged with 10 criminal counts that included visa fraud, money laundering and other crimes.`\
 https://nytimes.com/video/nyregion/100000009672379/new-york-official-is-charged-as-chinese-agent.html
@@ -29,12 +38,4 @@ https://nytimes.com/live/2024/09/03/us/harris-trump-election/kennedy-must-remain
 **Trump Says There Was ‘No Conflict’ at Cemetery, Despite Official Accounts**\
 `Speaking to Sean Hannity, Donald Trump contradicted his campaign’s prior statements about a confrontation involving his campaign at Arlington National Cemetery last week.`\
 https://nytimes.com/2024/09/03/us/politics/trump-arlington-cemetery.html
-
-**49ers' Ricky Pearsall wanted to assure teammates he was OK — so he showed up at work**\
-`Teammates talked about a roller-coaster 48 hours that began with news of the shooting and ended with seeing Pearsall at 49ers headquarters.`\
-https://nytimes.com/athletic/5743158/2024/09/03/ricky-pearsall-49ers-shooting-teammates/
-
-**Brian Stelter Returns to CNN as Chief Media Analyst**\
-`Mr. Stelter, who left CNN two years ago, will be helming his newsletter for the network, but without a Sunday show.`\
-https://nytimes.com/2024/09/03/business/media/brian-stelter-cnn-reliable-sources.html
 
