@@ -1,4 +1,8 @@
 **Aryna Sabalenka powers past Zheng Qinwen to reach U.S. Open semifinals**\
+`This was not a simple repeat of the Australian Open final rout — Zheng's serve, her key weapon, let her down badly.`\
+https://nytimes.com/athletic/5743250/2024/09/03/sabalenka-zheng-us-open-result/
+
+**Aryna Sabalenka powers past Zheng Qinwen to reach U.S. Open semifinals**\
 `This was not a repeat of the Australian Open final rout — Zheng's serve let her down badly.`\
 https://nytimes.com/athletic/5743250/2024/09/03/sabalenka-zheng-us-open-result/
 
