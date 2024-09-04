@@ -1,3 +1,11 @@
+**U.S. Market Slump Sparks Global Sell-Off**\
+`A sharp decline in major U.S. stock indexes reverberated through Asia on Wednesday, with investors still rattled by last month’s market meltdown.`\
+https://nytimes.com/2024/09/03/business/japan-stocks-us-economy.html
+
+**Despite another strong outing from rookie David Festa, Twins lose 2-1 to Rays**\
+`Since rejoining the Twins, Festa has a 3.13 ERA with 50 strikeouts in 37 innings pitched.`\
+https://nytimes.com/athletic/5743511/2024/09/03/rookie-david-festa-twins-start/
+
 **Behind David Peterson, the Mets' rotation continues to lead the way**\
 `Peterson struck out a career-high 11 and his emergence is just part of the story for a Mets rotation on a roll. `\
 https://nytimes.com/athletic/5743493/2024/09/03/mets-david-peterson-rotation/

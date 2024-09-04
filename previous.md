@@ -1,3 +1,11 @@
+**U.S. Market Slump Sparks Global Sell-Off**\
+`A sharp decline in major U.S. stock indexes reverberated through Asia on Wednesday, with investors still rattled by last month’s market meltdown.`\
+https://nytimes.com/2024/09/03/business/japan-stocks-us-economy.html
+
+**Despite another strong outing from rookie David Festa, Twins lose 2-1 to Rays**\
+`Since rejoining the Twins, Festa has a 3.13 ERA with 50 strikeouts in 37 innings pitched.`\
+https://nytimes.com/athletic/5743511/2024/09/03/rookie-david-festa-twins-start/
+
 **Behind David Peterson, the Mets' rotation continues to lead the way**\
 `Peterson struck out a career-high 11 and his emergence is just part of the story for a Mets rotation on a roll. `\
 https://nytimes.com/athletic/5743493/2024/09/03/mets-david-peterson-rotation/
@@ -30,12 +38,4 @@ https://nytimes.com/2024/09/03/us/politics/blinken-subpoena-house-afghanistan.ht
 **How 49ers' Trent Williams forfeited millions in fines — and cashed in big time**\
 `Williams was fined at least $2 million — potentially up to $4 million — but the new guaranteed dollars in his deal more than made up for it.`\
 https://nytimes.com/athletic/5742856/2024/09/03/trent-williams-49ers-contract-fines-holdout/
-
-**Tim Sheehy Was Recorded Using Racist Stereotypes About Native Americans**\
-`Mr. Sheehy, a Republican, is the nominee for a Senate seat in Montana, where Indigenous residents make up about 6 percent of the population.`\
-https://nytimes.com/2024/09/03/us/politics/tim-sheehy-native-americans-montana.html
-
-**How Self-Driving Cars Get Help From Humans Hundreds of Miles Away**\
-`Zoox, a self-driving car company owned by Amazon, is deploying robot taxis without steering wheels, driver seats or drivers. But like all other self-driving cars, they still need help from humans.`\
-https://nytimes.com/interactive/2024/09/03/technology/zoox-self-driving-cars-remote-control.html
 
