@@ -18,8 +18,8 @@ https://nytimes.com/athletic/5733955/2024/09/04/victor-osimhen-galatasaray-napol
 `Three years into its rule, the movement has codified its harsh Islamic decrees into law that now includes a ban on women’s voices in public.`\
 https://nytimes.com/2024/09/04/world/asia/women-taliban-prohibitions-afghanistan.html
 
-**Georgia School on Lockdown After Report of Gunfire**\
-`Apalachee High School officials said that students were placed under lockdown on Wednesday after gunfire was reported.`\
+**Shooting at Georgia High School Leaves Multiple Casualties, Officials Say**\
+`A suspect was in custody after the shooting on Wednesday morning at Apalachee High School  in Winder, Ga., the Georgia Bureau of Investigation said.`\
 https://nytimes.com/2024/09/04/us/apalachee-high-school-shooting-lockdown.html
 
 **Nordstrom Family Offers $3.8 Billion to Buy Its Namesake Retailer**\
