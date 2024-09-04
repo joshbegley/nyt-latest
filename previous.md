@@ -1,3 +1,11 @@
+**Japan’s Era of ‘Free’ Mortgages Is Coming to an End**\
+`Homeowners are gearing up to pay more on their loans as the Bank of Japan’s rate increases signal the end of decades of ultralow interest rates.`\
+https://nytimes.com/2024/09/04/business/japan-mortgage-rates.html
+
+**The Cubs are fading again after a frustrating 5-0 loss to the Pirates**\
+`Hendricks kept his team in the game with five innings pitchced, but that wasn’t enough in a frustrating 5-0 loss.`\
+https://nytimes.com/athletic/5743574/2024/09/03/chicago-cubs-fading-again-september-baseball/
+
 **Whit Merrifield rages over dangerous fastballs: 'That was my life on the line'**\
 `ATLANTA — Whit Merrifield has had enough of control-challenged pitchers hitting batters with pitches.`\
 https://nytimes.com/athletic/5743538/2024/09/03/braves-whit-merrifield-hit-batters/
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/5743396/2024/09/03/cole-caufield-johnny-gaudreau-je
 **Some Navels**\
 `Kareem Ayas waxes poetic.`\
 https://nytimes.com/2024/09/03/crosswords/daily-puzzle-2024-09-04.html
-
-**Is Hydrogen the Missing Piece in Solving the World’s Energy Puzzle?**\
-`A unique hydrogen ecosystem strategy is making the prospect of a hydrogen society increasingly feasible.
-`\
-https://nytimes.com/paidpost/hyundai/is-hydrogen-the-missing-piece-in-solving-the-worlds-energy-puzzle.html
-
-**New York Official Is Charged as Chinese Agent**\
-`Linda Sun, a former aide to Gov. Kathy Hochul, was charged with 10 criminal counts that included visa fraud, money laundering and other crimes.`\
-https://nytimes.com/video/nyregion/100000009672379/new-york-official-is-charged-as-chinese-agent.html
 
