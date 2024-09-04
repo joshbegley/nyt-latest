@@ -1,3 +1,7 @@
+**The Pope’s Visit to Indonesia, in Pictures**\
+`Starting in the majority-Muslim nation, Francis is undertaking a multiday journey through Asia and Oceania.`\
+https://nytimes.com/2024/09/04/world/asia/indonesia-pope-visit.html
+
 **Are the Blues a playoff team? Lineup projection, prospect evaluations, more: Mailbag, part 1**\
 `How will the Blues trim a crowded roster? Answering that and much more from our readers as the team gets ready for the start of camp.`\
 https://nytimes.com/athletic/5732748/2024/09/04/blues-roster-projections-prospect-evaluations/

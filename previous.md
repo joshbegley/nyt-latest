@@ -1,3 +1,7 @@
+**The Pope’s Visit to Indonesia, in Pictures**\
+`Starting in the majority-Muslim nation, Francis is undertaking a multiday journey through Asia and Oceania.`\
+https://nytimes.com/2024/09/04/world/asia/indonesia-pope-visit.html
+
 **Are the Blues a playoff team? Lineup projection, prospect evaluations, more: Mailbag, part 1**\
 `How will the Blues trim a crowded roster? Answering that and much more from our readers as the team gets ready for the start of camp.`\
 https://nytimes.com/athletic/5732748/2024/09/04/blues-roster-projections-prospect-evaluations/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5743756/2024/09/04/giants-marco-luciano-call-up/
 **Houston Rockets fan survey: What does the next phase look like?**\
 `Share your thoughts on the state of the Rockets heading into the 2024-25 season.`\
 https://nytimes.com/athletic/5743089/2024/09/04/houston-rockets-jalen-green-fan-survey/
-
-**The Black List Helped Reshape Hollywood. Can It Change Publishing?**\
-`Almost 20 years after Franklin Leonard created the Black List, which has helped little-known screenwriters break into Hollywood, it is expanding into fiction.`\
-https://nytimes.com/2024/09/04/books/the-black-list-publishing.html
 
