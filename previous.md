@@ -1,3 +1,15 @@
+**The Hurricane Season Was Supposed to Be Busy. What Happened?**\
+`An intermission in hurricanes across the Atlantic has people wondering where the predicted storms are.`\
+https://nytimes.com/2024/09/04/weather/hurricane-season-forecast-september.html
+
+**21 Reported Missing After Boat Carrying Migrants Capsizes**\
+`Italian rescuers said that seven Syrian migrants survived a shipwreck about 10 miles from the island of Lampedusa, in the Central Mediterranean. The survivors told officials that 21 fellow travelers, including three minors, had fallen off during the crossing because of rough seas.`\
+https://nytimes.com/video/world/europe/100000009673360/migrant-boat-capsize-italy.html
+
+**Wednesday’s school shooting was the deadliest in Georgia’s recent history.**\
+`By Kate Selig`\
+https://nytimes.com/live/2024/09/04/us/georgia-shooting-apalachee-high-school/wednesdays-school-shooting-was-the-deadliest-in-georgias-recent-history
+
 **Will North Carolina’s MAGA Extremists Doom Trump?**\
 `There’s a whiff of Republican panic in this battleground state.`\
 https://nytimes.com/2024/09/04/opinion/trump-north-carolina-election.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/04/world/europe/ukraine-reshuffle-zelensky.html
 **Thursday Briefing: Ukraine Reshuffles its Government**\
 `Plus, Daniel Dae Kim takes a risk.`\
 https://nytimes.com/2024/09/04/briefing/ukraine-russia-disinformation-grenfell.html
-
-**Jack Draper beats Alex de Minaur to reach first Grand Slam semifinal**\
-`He will face Jannik Sinner or Daniil Medvedev for a place in the final.`\
-https://nytimes.com/athletic/5745372/2024/09/04/draper-de-minaur-us-open-result/
-
-**How Media Outlets on the Left and Right Covered Trump’s Arlington Cemetery Visit**\
-`Liberal outlets criticized Mr. Trump for turning his visit into a photo opportunity, while conservative ones falsely suggested the altercation never happened.`\
-https://nytimes.com/2024/09/04/business/media/trump-arlington-cemetery-media.html
-
-**Duplantis beats Warholm in 100m exhibition race**\
-`Olympic pole vault champion and world record holder Mondo Duplantis beat Karsten Warholm, the Olympic 400m hurdles silver medallist, and world record holder, over 100m in Zurich on Wednesday night.`\
-https://nytimes.com/athletic/5745394/2024/09/04/mondo-duplantis-beats-karsten-warholm-100m/
 
