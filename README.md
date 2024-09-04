@@ -1,5 +1,5 @@
-**Fake Heiress Goes From High-Society Impersonator to ‘Dancing With the Stars’**\
-`Anna Sorokin will reprise her false identity on season 33 of the show, becoming the latest contestant with legal or other troubles.`\
+**Anna Delvey Goes From High-Society Impersonator to ‘Dancing With the Stars’**\
+`Ms. Delvey will reprise her false identity on season 33 of the show, becoming the latest contestant with legal or other troubles.`\
 https://nytimes.com/2024/09/04/arts/television/anna-delvey-dancing-with-the-stars.html
 
 **'Spain is not racist', says manager De la Fuente**\
