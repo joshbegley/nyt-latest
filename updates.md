@@ -1,3 +1,19 @@
+**Trump Media Shares Are Down 70% From Their March Peak**\
+`The stock price of the former president’s social media company has often moved in tandem with investor perception of his standing in the presidential race.`\
+https://nytimes.com/2024/09/04/business/trump-media-djt-stock.html
+
+**TikTok Expands Its ‘How to Vote’ Resources Ahead of the Election**\
+`The company is an increasingly popular source of political news. It’s adding more content about how elections work and media literacy.`\
+https://nytimes.com/2024/09/04/business/tiktok-vote-election.html
+
+**Scoop City: The two faces of the NFL**\
+`A look at Mahomes and Jackson, the new NFL kickoff, optimism in Detroit and two fantasy football nuggets.`\
+https://nytimes.com/athletic/5744245/2024/09/04/scoop-city-the-two-faces-of-the-nfl/
+
+**Broncos make CB Patrick Surtain II NFL's highest-paid DB**\
+`The Broncos selected Surtain with the ninth overall pick in the 2022 NFL Draft.`\
+https://nytimes.com/athletic/5744204/2024/09/04/patrick-surtain-broncos-contract-extension/
+
 **Luca Guadagnino Gets Crafty**\
 `The film director and designer did double duty in Venice, Italy, debuting a film at the Venice Film Festival along with his curation of Homo Faber, the craftsmanship exhibition.`\
 https://nytimes.com/2024/09/04/style/luca-guadagnino-gets-crafty.html
