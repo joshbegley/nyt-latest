@@ -1,3 +1,11 @@
+**Mikal Bridges and OG Anunoby defensively, going small, center concerns: Knicks storylines**\
+`Will Tom Thibodeau find enough time for Josh Hart and Donte DiVincenzo? How good can New York's defense be?`\
+https://nytimes.com/athletic/5719904/2024/09/04/knicks-storylines-mikal-bridges-og-anunoby-defense/
+
+**The starters who changed teams at the deadline — and altered the way they pitch**\
+`Strategy, approach, mechanics, it's all on the table for a contender looking to make the most out of their new arm down the stretch.`\
+https://nytimes.com/athletic/5742548/2024/09/04/mlb-trade-deadline-starters-pitch-mechanics/
+
 **Alfie Devine to join KVC Westerlo on loan from Tottenham**\
 `Alfie Devine is to join Belgian club KVC Westerlo on loan from Tottenham Hotspur.`\
 https://nytimes.com/athletic/5743794/2024/09/04/alfie-devine-tottenham-kvc-westerlo-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/04/opinion/how-the-presidential-election-got-this-cl
 **As Groups Have Shifted, Has It Become a ‘Normal’ Election?**\
 `Unusual demographic patterns are fading, but there are still some differences from the 2020 race.`\
 https://nytimes.com/2024/09/04/upshot/kamala-harris-trump-polls.html
-
-**$925,000 Homes in New York, Virginia and Missouri**\
-`A saltbox-style house in Ancram, a Tudor Revival cottage in Richmond and a four-bedroom home in St. Louis.`\
-https://nytimes.com/2024/09/04/realestate/925000-dollar-homes-new-york-virginia-missouri.html
-
-**Could a Cup Count Predict the Election Result?**\
-`A shop in the Hamptons sells presidential campaign cups. The top seller usually also wins the race.`\
-https://nytimes.com/2024/09/04/nyregion/cup-count-harris-trump.html
 
