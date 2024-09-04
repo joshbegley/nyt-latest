@@ -1,3 +1,11 @@
+**Harris and Trump Campaigns Agree to Debate’s Microphone Rules**\
+`The microphones at the candidates’ debate next Tuesday will be muted when it’s not their turn to speak.`\
+https://nytimes.com/2024/09/04/us/politics/harris-trump-debate-microphones.html
+
+**Tearful Torey Krug opens up about career-threatening surgery that ex-Blues doctor calls ‘Hail Mary’**\
+`Krug on deciding to undergo the surgery: "It was one of those things where you realize it wasn't going to work. We had to make plans."`\
+https://nytimes.com/athletic/5744174/2024/09/04/blues-torey-krug-ankle-surgery/
+
 **Liz Cheney Says She Will Vote for Kamala Harris**\
 `Ms. Cheney, once a member of House Republican leadership, lost her seat after she voted to impeach then-President Donald J. Trump after the attack on the Capitol on Jan. 6, 2021.`\
 https://nytimes.com/2024/09/04/us/politics/liz-cheney-kamala-harris-vote.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/04/world/europe/italy-migrants-missing-libya.html
 **Four People Were Killed in a School Shooting in Georgia**\
 `Also, Zelensky is preparing to shake up his cabinet. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/09/04/briefing/georgia-school-shooting-ukraine-cabinet-changes.html
-
-**Internet Archive Loses Court Appeal in Fight Over Online Lending Library**\
-`The dispute started in the early days of the pandemic when the organization expanded access to a free online collection of books.`\
-https://nytimes.com/2024/09/04/technology/internet-archive-appeals-court-ruling.html
-
-**Commanders suspend employee for disparaging player comments**\
-`The team is conducting an internal investigation into the comments recorded by an undercover journalist.`\
-https://nytimes.com/athletic/5745161/2024/09/04/commanders-employee-video-comments-suspended/
 
