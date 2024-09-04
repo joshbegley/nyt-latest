@@ -1,3 +1,7 @@
+**Netflix Adds Disclaimer to Indian Show After Anger Over Hijacker Names**\
+`The series, based on a 1999 plane hijacking, prompted backlash on social media. Critics claimed it wrongly portrayed the Islamist hijackers as Hindus.`\
+https://nytimes.com/2024/09/04/world/asia/netflix-india-ic-814-kandahar-hijack.html
+
 **Hounded From a Beauty Pageant in South Africa, Then Crowned in Nigeria.**\
 `A South African beauty pageant contestant with Nigerian heritage was forced to withdraw from the competition after her participation fueled anti-immigrant sentiments.`\
 https://nytimes.com/2024/09/04/world/africa/south-africa-nigeria-miss-universe.html
