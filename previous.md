@@ -1,3 +1,11 @@
+**‘Terminator Zero’ Reinvigorates a Weary Franchise**\
+`The Netflix anime series channels familiar themes without feeling like a retread.`\
+https://nytimes.com/2024/09/04/arts/television/terminator-zero-netflix.html
+
+**A Perfect Match for a Sexy Brand?**\
+`Haider Ackermann, a coolly sensual designer, is the new creative director at Tom Ford.`\
+https://nytimes.com/2024/09/04/style/haider-ackermann-tom-ford.html
+
 **Bills' Hamlin will start for first time since cardiac arrest**\
 `It will be Hamlin's first start since he collapsed and went into cardiac arrest on the field during a game in January 2023.`\
 https://nytimes.com/athletic/5744882/2024/09/04/damar-hamlin-bills-starter-cardinals/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/04/us/politics/hunter-biden-tax-trial.html
 **Trump Buried the Hatchet With Brian Kemp. Will He Dig It Up Again?**\
 `Donald Trump needs to win Georgia. That probably means he needs to keep a fragile peace with its popular Republican governor, even as election denialism again courses through the state.`\
 https://nytimes.com/2024/09/04/us/politics/trump-brian-kemp-georgia.html
-
-**Premier League clears Chelsea over hotel deal**\
-`The Premier League has cleared the deal which saw Chelsea sell two hotels to a sister company in a transaction worth £76.`\
-https://nytimes.com/athletic/5744766/2024/09/04/chelsea-hotel-premier-league/
-
-**Best NFL futures bets: Austin Mock picks 8 futures bets for the NFL season**\
-`Austin Mocks makes eight picks for best NFL futures bets.`\
-https://nytimes.com/athletic/5744599/2024/09/04/2024-nfl-futures-best-bets/
 

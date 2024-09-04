@@ -1,3 +1,11 @@
+**‘Terminator Zero’ Reinvigorates a Weary Franchise**\
+`The Netflix anime series channels familiar themes without feeling like a retread.`\
+https://nytimes.com/2024/09/04/arts/television/terminator-zero-netflix.html
+
+**A Perfect Match for a Sexy Brand?**\
+`Haider Ackermann, a coolly sensual designer, is the new creative director at Tom Ford.`\
+https://nytimes.com/2024/09/04/style/haider-ackermann-tom-ford.html
+
 **Bills' Hamlin will start for first time since cardiac arrest**\
 `It will be Hamlin's first start since he collapsed and went into cardiac arrest on the field during a game in January 2023.`\
 https://nytimes.com/athletic/5744882/2024/09/04/damar-hamlin-bills-starter-cardinals/
