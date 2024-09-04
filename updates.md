@@ -1,3 +1,7 @@
+**‘Path to Disaster’: 4 Takeaways From the U.K. Grenfell Fire Final Report**\
+`An extensive public inquiry found that the causes of the Grenfell Tower tragedy stretched back decades, and that the deaths of 72 people were avoidable.`\
+https://nytimes.com/2024/09/04/world/europe/uk-grenfell-fire-takeaways.html
+
 **Commanders, Cosmi agree to 4-year extension**\
 `Cosmi is the first player drafted by Washington to sign a second contract since wide receiver Terry McLaurin.`\
 https://nytimes.com/athletic/5744880/2024/09/04/sam-cosmi-extension-commanders/

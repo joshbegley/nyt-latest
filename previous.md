@@ -32,7 +32,7 @@ https://nytimes.com/athletic/5744599/2024/09/04/2024-nfl-futures-best-bets/
 
 **‘Path to Disaster’: 4 Takeaways From the U.K. Grenfell Fire Final Report**\
 `An extensive public inquiry found that the causes of the Grenfell Tower tragedy stretched back decades, and that the deaths of 72 people were avoidable.`\
-https://nytimes.com/2024/09/04/world/europe/path-to-disaster-4-takeaways-from-the-uk-grenfell-fire-final-report.html
+https://nytimes.com/2024/09/04/world/europe/uk-grenfell-fire-takeaways.html
 
 **How an Ohio State freshman became the 'ultimate cheat code'**\
 `Buckeyes WR Jeremiah Smith makes strong first impressions, and now the hype is only growing for the No. 1 recruit after his college debut.`\
