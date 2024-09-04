@@ -1,3 +1,7 @@
+**Electing Judges in Mexico? It’s a Bad Idea.**\
+`The judicial overhaul in Mexico could harm government accountability, undermine the justice system and give even greater power to drug cartels.`\
+https://nytimes.com/2024/09/04/opinion/mexico-judges-election-government.html
+
 **A player to watch for each NFL team who could help shape fantasy football 2024**\
 `Theo Gremminger singles out a player for each NFL team who will likely have an outsized role in shaping the 2024 fantasy football season.`\
 https://nytimes.com/athletic/5742425/2024/09/04/a-player-to-watch-for-each-nfl-team-who-could-shape-the-2024-fantasy-football-season/
