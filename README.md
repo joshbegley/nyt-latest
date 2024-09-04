@@ -1,3 +1,7 @@
+**Raiders' Davante Adams says rumors he's unhappy 'a bunch of B.S.'**\
+`Adams shut down comments made by former NFL receiver DeSean Jackson on “The Herd” last month.`\
+https://nytimes.com/athletic/5745848/2024/09/04/davante-adams-raiders-rumors-future/
+
 **Police Arrest Man in 1993 Murder of 19-Year-Old Indianapolis Woman**\
 `For more than 30 years, the case had remained unsolved. While questions remain, the police said they had linked a 52-year-old Missouri man to DNA at the crime scene.`\
 https://nytimes.com/2024/09/04/us/carmen-van-huss-murder-suspect-arrested.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/04/us/winder-georgia-demographics.html
 **RFK Racing progressing to expanding to 3 NASCAR Cup teams**\
 `The move would likely include bringing aboard Kroger as a team-wide sponsor for all three cars and signing driver Ryan Preece.`\
 https://nytimes.com/athletic/5745776/2024/09/04/rfk-racing-nascar-teams-expansion/
-
-**We Have Reached the Scrounging-for-Scandals Phase of the Campaign**\
-`The false “stolen valor” claim isn’t sticking, but that hasn’t stopped conservatives from using it.`\
-https://nytimes.com/2024/09/04/opinion/scandals-trump-harris.html
 
