@@ -19,7 +19,7 @@ https://nytimes.com/video/nyregion/100000009672379/new-york-official-is-charged-
 `The chairman of the House Foreign Affairs Committee summoned the secretary of state for testimony just days before an expected report on the U.S. exit, in which 13 American service members were killed.`\
 https://nytimes.com/2024/09/03/us/politics/blinken-subpoena-house-afghanistan.html
 
-**How 49ers’ Trent Williams forfeited millions in fines — and cashed in big time**\
+**How 49ers' Trent Williams forfeited millions in fines — and cashed in big time**\
 `Williams was fined at least $2 million — potentially up to $4 million — but the new guaranteed dollars in his deal more than made up for it.`\
 https://nytimes.com/athletic/5742856/2024/09/03/trent-williams-49ers-contract-fines-holdout/
 
