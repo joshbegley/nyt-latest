@@ -1,3 +1,7 @@
+**New York Official Is Charged as Chinese Agent**\
+`Linda Sun, a former aide to Gov. Kathy Hochul, was charged with 10 criminal counts that included visa fraud, money laundering and other crimes.`\
+https://nytimes.com/video/nyregion/100000009672379/new-york-official-is-charged-as-chinese-agent.html
+
 **House Republican Subpoenas Blinken Over Afghanistan Withdrawal**\
 `The chairman of the House Foreign Affairs Committee summoned the secretary of state for testimony just days before an expected report on the U.S. exit, in which 13 American service members were killed.`\
 https://nytimes.com/2024/09/03/us/politics/blinken-subpoena-house-afghanistan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5743158/2024/09/03/ricky-pearsall-49ers-shooting-te
 **Brian Stelter Returns to CNN as Chief Media Analyst**\
 `Mr. Stelter, who left CNN two years ago, will be helming his newsletter for the network, but without a Sunday show.`\
 https://nytimes.com/2024/09/03/business/media/brian-stelter-cnn-reliable-sources.html
-
-**Collector Sues to Block Investigators From Seizing Roman Bronze**\
-`Lawyers for the collector, based in California, said the Manhattan district attorney’s office did not have the jurisdiction or the evidence to support seizing the ancient statue.`\
-https://nytimes.com/2024/09/03/arts/design/collector-sues-to-block-investigators-from-seizing-roman-bronze.html
 
