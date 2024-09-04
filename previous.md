@@ -1,3 +1,15 @@
+**Elton John Says a Serious Eye Infection Limited His Vision in One Eye**\
+`The entertainer said on social media that it would “take some time” before sight returned to his eye.`\
+https://nytimes.com/2024/09/04/arts/music/elton-john-vision-eye-infection.html
+
+**U.S. to Accuse Russia of Using Its State Media to Influence 2024 Election**\
+`American spy agencies have assessed that the Kremlin favors former President Donald J. Trump, seeing him as skeptical of U.S. support for Ukraine.`\
+https://nytimes.com/2024/09/04/us/politics/russia-election-influence.html
+
+**Biden Administration May Cement Asylum Restrictions at the Border**\
+`The changes under consideration would build on the executive order that President Biden issued in June, which blocked a vast majority of asylum claims at the southern border.`\
+https://nytimes.com/2024/09/04/us/politics/biden-asylum-restrictions.html
+
 **Giants takeaways: The impact of the Luciano, Matos and Eldridge promotions**\
 `Making sense of the Marco Luciano and Luis Matos promotions while singing the praises of top prospect Bryce Eldridge.`\
 https://nytimes.com/athletic/5743302/2024/09/04/sf-giants-takeaways-marco-luciano-bryce-eldridge/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5744521/2024/09/04/oakland-as-lawrence-butler-brent
 **Atlanta United parts ways with Bocanegra**\
 `Atlanta United announced on Wednesday that the club has parted ways with vice president and technical director Carlos Bocanegra.`\
 https://nytimes.com/athletic/5744540/2024/09/04/atlanta-united-carlos-bocanegra/
-
-**'Raygun' calls level of criticism 'alarming'**\
-`"The energy and vitriol that people had was pretty alarming," Rachel "Raygun" Gunn said of criticism of her Olympic breaking performance.`\
-https://nytimes.com/athletic/5744167/2024/09/04/raygun-breaking-olympics-criticism/
-
-**Desperate Bid to Save J.F.K. Shown in Resurfaced Film**\
-`The footage from 1963, taken by a Texas businessman and seen only by a few, shows the president’s limousine speeding to a Dallas hospital. It is being auctioned this month.`\
-https://nytimes.com/2024/09/04/arts/design/jfk-kennedy-assassination-film-auction.html
-
-**LA Paralympics handover confirmed for Paris closing ceremony**\
-`Details have been confirmed for the Paralympics handover celebration during Sunday&#8217;s closing ceremony in Paris.`\
-https://nytimes.com/athletic/5744279/2024/09/04/los-angeles-paralympics-handover/
 

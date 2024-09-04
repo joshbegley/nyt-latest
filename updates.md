@@ -1,3 +1,15 @@
+**Elton John Says a Serious Eye Infection Limited His Vision in One Eye**\
+`The entertainer said on social media that it would “take some time” before sight returned to his eye.`\
+https://nytimes.com/2024/09/04/arts/music/elton-john-vision-eye-infection.html
+
+**U.S. to Accuse Russia of Using Its State Media to Influence 2024 Election**\
+`American spy agencies have assessed that the Kremlin favors former President Donald J. Trump, seeing him as skeptical of U.S. support for Ukraine.`\
+https://nytimes.com/2024/09/04/us/politics/russia-election-influence.html
+
+**Biden Administration May Cement Asylum Restrictions at the Border**\
+`The changes under consideration would build on the executive order that President Biden issued in June, which blocked a vast majority of asylum claims at the southern border.`\
+https://nytimes.com/2024/09/04/us/politics/biden-asylum-restrictions.html
+
 **Giants takeaways: The impact of the Luciano, Matos and Eldridge promotions**\
 `Making sense of the Marco Luciano and Luis Matos promotions while singing the praises of top prospect Bryce Eldridge.`\
 https://nytimes.com/athletic/5743302/2024/09/04/sf-giants-takeaways-marco-luciano-bryce-eldridge/
