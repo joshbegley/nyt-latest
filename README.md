@@ -1,7 +1,3 @@
-**Corrections: Sept. 4, 2024**\
-`Corrections that appeared in print on Wednesday, Sept. 4, 2024.`\
-https://nytimes.com/2024/09/04/pageoneplus/corrections-sept-4-2024.html
-
 **The View From the Nosebleeds at the U.S. Open: Not Too Shabby**\
 `It’s a long way to Row Z. But once you get there, there are advantages, tennis fans say.`\
 https://nytimes.com/2024/09/04/nyregion/us-open-nosebleed-seats.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5743624/2024/09/04/yankees-clay-holmes-allows-walk-
 **Ukraine’s Foreign Minister Offers to Resign as Zelensky Plans Major Shake-Up**\
 `President Volodymyr Zelensky is expected to make the broadest changes to his government since Russia invaded more than two years ago.`\
 https://nytimes.com/2024/09/04/world/europe/zelensky-cabinet-dmytro-kuleba-resignation.html
+
+**In Jakarta, Pope Praises Indonesia’s ‘Delicate Balance’ of Unity in Diversity**\
+`The pontiff said “mutual respect” was the key to harmony in the majority-Muslim country, where a pluralist tradition has been put to the test by extremist groups.`\
+https://nytimes.com/2024/09/04/world/asia/pope-francis-indonesia-jokowi.html
 

@@ -1,3 +1,7 @@
+**Corrections: Sept. 4, 2024**\
+`Corrections that appeared in print on Wednesday, Sept. 4, 2024.`\
+https://nytimes.com/2024/09/04/pageoneplus/corrections-sept-4-2024.html
+
 **Here are the latest developments.**\
 `By Victoria Kim, Marc Santora and Andrew E. Kramer`\
 https://nytimes.com/live/2024/09/04/world/ukraine-russia-missile-attacks/here-are-the-latest-developments
