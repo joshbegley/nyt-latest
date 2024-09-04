@@ -1,3 +1,7 @@
+**Q&A: Giants legend Eli Manning talks Malik Nabers, Hall of Fame prospects and more**\
+`A lot of people want to compare Nabers to another former Giants/LSU star in Odell Beckham Jr. Does Manning see any similarities? `\
+https://nytimes.com/athletic/5735400/2024/09/04/eli-manning-new-york-giants-malik-nabers-hall-of-fame/
+
 **Phoenix Marks 100 Straight Days of 100-Degree Temperatures**\
 `The city reached the sweaty milestone on Tuesday. The previous record of 76 straight days was set in 1993.`\
 https://nytimes.com/2024/09/04/us/phoenix-100-days-heat-record.html

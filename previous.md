@@ -2,6 +2,10 @@
 `The city reached the sweaty milestone on Tuesday. The previous record of 76 straight days was set in 1993.`\
 https://nytimes.com/2024/09/04/us/phoenix-100-days-heat-record.html
 
+**Q&A: Giants legend Eli Manning talks Malik Nabers, Hall of Fame prospects and more**\
+`A lot of people want to compare Nabers to another former Giants/LSU star in Odell Beckham Jr. Does Manning see any similarities? `\
+https://nytimes.com/athletic/5735400/2024/09/04/eli-manning-new-york-giants-malik-nabers-hall-of-fame/
+
 **Our Granddaughter’s Boyfriend Is Too Old for Her. What Can We Do?**\
 `A reader and her husband are united in disapproval of the 14-year age gap in their granddaughter’s relationship. What they don’t agree on is whether to invite him to dinner.`\
 https://nytimes.com/2024/09/04/style/age-gap-relationships.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/04/us/harris-trump-election/heres-the-latest-on
 **Election Live Updates: Trump Returns to Trail as Harris Campaigns in New Hampshire**\
 `Vice President Kamala Harris is set to propose a tax break for small businesses, and former President Donald J. Trump will hold a town hall event in Pennsylvania to air tonight on Fox News.`\
 https://nytimes.com/live/2024/09/04/us/harris-trump-election
-
-**Las Vegas GP adds Ferrari Challenge support race to schedule for 2024**\
-`The Las Vegas Grand Prix has added Ferrari Challenge to its race weekend schedule ahead of the second running of the Formula One race from Nov.`\
-https://nytimes.com/athletic/5742762/2024/09/04/f1-las-vegas-gp-2024-ferrari-challenge/
 

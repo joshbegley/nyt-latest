@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5735400/2024/09/04/eli-manning-new-york-giants-mali
 https://nytimes.com/2024/09/04/style/age-gap-relationships.html
 
 **A New ‘Red Hot’ Album Tackles a Hot Topic: Transgender Awareness**\
-`“Red Hot + Transa,” with 46 tracks due Nov. 22, brings together artists including Sam Smith, Sade, André 3000 and Jayne County.`\
+`“Transa,” with 46 tracks due Nov. 22, brings together artists including Sam Smith, Sade, André 3000 and Jayne County.`\
 https://nytimes.com/2024/09/04/arts/music/red-hot-and-transa-transgender-musicians.html
 
 **What a Puppy Kindergarten Revealed About Raising Exceptional Dogs**\
