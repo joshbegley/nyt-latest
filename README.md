@@ -1,3 +1,19 @@
+**Phoenix Marks 100 Straight Days of 100-Degree Temperatures**\
+`The city reached the sweaty milestone on Tuesday. The previous record of 76 straight days was set in 1993.`\
+https://nytimes.com/2024/09/04/us/phoenix-100-days-heat-record.html
+
+**Our Granddaughter’s Boyfriend Is Too Old for Her. What Can We Do?**\
+`A reader and her husband are united in disapproval of the 14-year age gap in their granddaughter’s relationship. What they don’t agree on is whether to invite him to dinner.`\
+https://nytimes.com/2024/09/04/style/age-gap-relationships.html
+
+**A New ‘Red Hot’ Album Tackles a Hot Topic: Transgender Awareness**\
+`“Red Hot + Transa,” with 46 tracks due Nov. 22, brings together artists including Sam Smith, Sade, André 3000 and Jayne County.`\
+https://nytimes.com/2024/09/04/arts/music/red-hot-and-transa-transgender-musicians.html
+
+**What a Puppy Kindergarten Revealed About Raising Exceptional Dogs**\
+`Brian Hare and Vanessa Woods are studying how the canine mind develops and what makes a successful service dog.`\
+https://nytimes.com/2024/09/04/science/puppy-kindergarten-duke.html
+
 **Texans extend backup QB Mills through 2025**\
 `Davis Mills was entering the fourth and final year of his rookie contract.`\
 https://nytimes.com/athletic/5743993/2024/09/04/davis-mills-texans-contract/
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/09/04/us/harris-trump-election
 **Las Vegas GP adds Ferrari Challenge support race to schedule for 2024**\
 `The Las Vegas Grand Prix has added Ferrari Challenge to its race weekend schedule ahead of the second running of the Formula One race from Nov.`\
 https://nytimes.com/athletic/5742762/2024/09/04/f1-las-vegas-gp-2024-ferrari-challenge/
-
-**Shootings on Highway Near Seattle Injure 5 People**\
-`Washington State Patrol officers arrested a suspect in the string of shootings, which occurred late on Labor Day along a stretch of Interstate 5.`\
-https://nytimes.com/2024/09/04/us/seattle-washington-shootings-i5.html
-
-**Kawakami: On the eve of Week 1, the 49ers emerge from a summer of crises**\
-`Brandon Aiyuk after his first practice this season: "I'm super-excited, feeling fresh, kind of renewed. Coming with new energy."`\
-https://nytimes.com/athletic/5742752/2024/09/04/49ers-ricky-pearsall-brandon-aiyuk-trent-williams-kawakami/
-
-**NL playoff contenders' biggest concern and key X-factor to watch down the stretch**\
-`What will be the difference-making variables for postseason contenders in the final weeks of the regular season and into October?`\
-https://nytimes.com/athletic/5742781/2024/09/04/mlb-playoffs-nl-contenders-concerns-x-factors/
-
-**Giants call up Marco Luciano, and for better or worse, adjust their focus in September**\
-`The Giants also recalled outfielder Luis Matos and will continue to give opportunities to other young players as the season winds down.`\
-https://nytimes.com/athletic/5743756/2024/09/04/giants-marco-luciano-call-up/
 
