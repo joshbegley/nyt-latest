@@ -1,5 +1,5 @@
-**Linda Deutsch, 80, Dies; Covered Notorious Trials for The A.P.**\
-`For decades she offered readers an unvarnished view of the sordid side of celebrity, told through many of the country’s most riveting courtroom dramas.`\
+**Linda Deutsch, The A.P.’s Dean of Courtroom Reporting, Dies at 80**\
+`Covering notorious trials, she offered readers an unvarnished view of the sordid side of celebrity, told through many of the country’s most riveting legal dramas.`\
 https://nytimes.com/2024/09/04/business/media/linda-deutsch-dead.html
 
 **Short Notice and Blocked Exits Proved Lethal in Strike in Ukraine**\
