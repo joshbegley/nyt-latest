@@ -1,3 +1,7 @@
+**Karolina Muchova's U.S. Open run reminds the world of the beauty of her game**\
+`Returning from a serious wrist injury, last year's U.S. Open semifinalist is reminding the tennis world of the beauty of her game.`\
+https://nytimes.com/athletic/5733246/2024/09/04/karolina-muchova-us-open-comeback-womens-tennis/
+
 **If Rodri is Real Madrid's next public transfer target then this is how it usually goes**\
 `Rodri appeared on the front cover of Spanish sports daily AS on Wednesday. This is what tends to follow...`\
 https://nytimes.com/athletic/5744831/2024/09/04/rodri-real-madrid-city-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5744880/2024/09/04/sam-cosmi-extension-commanders/
 **Russia’s aerial assault on Ukraine comes as the situation on the battlefield is in flux.**\
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/09/04/world/ukraine-russia-missile-attacks/russias-aerial-assault-on-ukraine-comes-as-the-situation-on-the-battlefield-is-in-flux
-
-**Multiple Casualties In Georgia High School Shooting, Officials Say**\
-`The police responded to a shooting at Apalachee High School in Winder, Ga. Students gathered at the school’s track and field stadium.`\
-https://nytimes.com/video/us/100000009673329/georgia-school-shooting.html
 
