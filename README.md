@@ -1,3 +1,15 @@
+**Jim Riswold, Creator of ‘Bo Knows’ and Air Jordan Ads, Dies at 66**\
+`His work for Nike — particularly commercials starring Michael Jordan and Spike Lee — blurred the line between advertising and entertainment.`\
+https://nytimes.com/2024/09/04/business/media/jim-riswold-dead.html
+
+**Osimhen completes Galatasaray loan move**\
+`Galatasaray have confirmed the signing of Victor Osimhen on a season-long loan.`\
+https://nytimes.com/athletic/5733955/2024/09/04/victor-osimhen-galatasaray-napoli-transfer/
+
+**With New Taliban Manifesto, Afghan Women Fear the Worst**\
+`Three years into its rule, the movement has codified its harsh Islamic decrees into law that now includes a ban on women’s voices in public.`\
+https://nytimes.com/2024/09/04/world/asia/women-taliban-prohibitions-afghanistan.html
+
 **Georgia School on Lockdown After Report of Gunfire**\
 `Apalachee High School officials said that students were placed under lockdown on Wednesday after gunfire was reported.`\
 https://nytimes.com/2024/09/04/us/apalachee-high-school-shooting-lockdown.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/04/nyregion/trump-hush-money-sentencing.html
 **Elton John Says a Serious Eye Infection Limited His Vision in One Eye**\
 `The entertainer said on social media that it would “take some time” before sight returned to his eye.`\
 https://nytimes.com/2024/09/04/arts/music/elton-john-vision-eye-infection.html
-
-**U.S. to Accuse Russia of Using Its State Media to Influence 2024 Election**\
-`American spy agencies have assessed that the Kremlin favors former President Donald J. Trump, seeing him as skeptical of U.S. support for Ukraine.`\
-https://nytimes.com/2024/09/04/us/politics/russia-election-influence.html
-
-**Biden Administration May Cement Asylum Restrictions at the Border**\
-`The changes under consideration would build on the executive order that President Biden issued in June, which blocked a vast majority of asylum claims at the southern border.`\
-https://nytimes.com/2024/09/04/us/politics/biden-asylum-restrictions.html
-
-**Giants takeaways: The impact of the Luciano, Matos and Eldridge promotions**\
-`Making sense of the Marco Luciano and Luis Matos promotions while singing the praises of top prospect Bryce Eldridge.`\
-https://nytimes.com/athletic/5743302/2024/09/04/sf-giants-takeaways-marco-luciano-bryce-eldridge/
 
