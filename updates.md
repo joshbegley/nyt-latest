@@ -1,3 +1,15 @@
+**Zelensky pushes ahead with sweeping overhaul of his cabinet.**\
+`By Marc Santora and Maria Varenikova`\
+https://nytimes.com/live/2024/09/04/world/ukraine-russia-missile-attacks/zelensky-pushes-ahead-with-sweeping-overhaul-of-his-cabinet
+
+**Russia Imprisons Top Physicists, Even as Putin Touts Their Technology**\
+`A Moscow court sentenced Alexander Shiplyuk, the director of a physics institute who specializes in hypersonic flight, to 15 years in prison. It was the latest treason case against a leading scientist.`\
+https://nytimes.com/2024/09/04/world/europe/russia-imprisons-top-scientists.html
+
+**House Republicans Subpoena Walz Over $250 Million Covid Relief Fraud**\
+`The move was the latest sign that House Republicans were pivoting from investigating and attacking President Biden to take aim at the new Democratic ticket.`\
+https://nytimes.com/2024/09/04/us/politics/walz-republicans-subpoena-covid-fraud.html
+
 **Anna Sorokin Goes From High-Society Impersonator to ‘Dancing With the Stars’**\
 `The woman who impersonated a German heiress will reprise her false identity on season 33 of the show, becoming the latest contestant with legal or other troubles.`\
 https://nytimes.com/2024/09/04/arts/television/anna-delvey-dancing-with-the-stars.html
