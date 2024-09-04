@@ -1,3 +1,11 @@
+**J. Richard Munro, Who Oversaw the Creation of Time Warner, Dies at 93**\
+`As president and C.E.O., he expanded Time Inc.’s offerings, fended off a hostile takeover and built the world’s largest media company.`\
+https://nytimes.com/2024/09/04/business/media/j-richard-munro-dead.html
+
+**Johnny Gaudreau's Blue Jackets teammates share their 'anger, sadness, disbelief, emptiness'**\
+`COLUMBUS, Ohio — One by one, they made their way to the microphone, a somber mood in the air and emotional cracks in their voices just barely below the surface.`\
+https://nytimes.com/athletic/5745174/2024/09/04/gaudreau-blue-jackets-reaction-teammates/
+
 **Anna Delvey Goes From High-Society Impersonator to ‘Dancing With the Stars’**\
 `Ms. Delvey will reprise her false identity on season 33 of the show, becoming the latest contestant with legal or other troubles.`\
 https://nytimes.com/2024/09/04/arts/television/anna-delvey-dancing-with-the-stars.html
