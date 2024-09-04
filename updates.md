@@ -1,3 +1,7 @@
+**Raiders' Davante Adams says rumors he's unhappy 'a bunch of B.S.'**\
+`Adams shut down comments made by former NFL receiver DeSean Jackson on “The Herd” last month.`\
+https://nytimes.com/athletic/5745848/2024/09/04/davante-adams-raiders-rumors-future/
+
 **Police Arrest Man in 1993 Murder of 19-Year-Old Indianapolis Woman**\
 `For more than 30 years, the case had remained unsolved. While questions remain, the police said they had linked a 52-year-old Missouri man to DNA at the crime scene.`\
 https://nytimes.com/2024/09/04/us/carmen-van-huss-murder-suspect-arrested.html
