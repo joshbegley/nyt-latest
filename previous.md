@@ -1,3 +1,15 @@
+**21 Migrants Missing at Sea as Boat Capsizes in Rough Seas Off Italy**\
+`Seven survivors were rescued from the boat that sank after leaving Libya. A crackdown by Italy has reduced migration, but not the high death rates that come with crossing the Mediterranean.`\
+https://nytimes.com/2024/09/04/world/europe/italy-migrants-missing-libya.html
+
+**Four People Were Killed in a School Shooting in Georgia**\
+`Also, Zelensky is preparing to shake up his cabinet. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/09/04/briefing/georgia-school-shooting-ukraine-cabinet-changes.html
+
+**Internet Archive Loses Court Appeal in Fight Over Online Lending Library**\
+`The dispute started in the early days of the pandemic when the organization expanded access to a free online collection of books.`\
+https://nytimes.com/2024/09/04/technology/internet-archive-appeals-court-ruling.html
+
 **Commanders suspend employee for disparaging player comments**\
 `The team is conducting an internal investigation into the comments recorded by an undercover journalist.`\
 https://nytimes.com/athletic/5745161/2024/09/04/commanders-employee-video-comments-suspended/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/04/opinion/trump-north-carolina-election.html
 **Dispatches From the Courtroom: Linda Deutsch Breaking the News**\
 `Covering some of America’s most sensational trials, she produced urgent, pithy “ledes” in the best tradition of wire-service reporting. Here’s a sampler.`\
 https://nytimes.com/2024/09/04/business/media/linda-deutsch-ap-court-reporting.html
-
-**Watching Movies Like It’s 1999**\
-`A multimedia Culture desk series, “Class of 1999,” revisits a group of mold-breaking, star-studded films released that year.`\
-https://nytimes.com/2024/09/04/insider/1999-movies.html
-
-**Trump Says His Son Barron Is Attending N.Y.U.**\
-`Donald J. Trump had teased his youngest child’s choice of school for months, but on Wednesday, he was photographed on the university’s campus in Manhattan’s Greenwich Village.`\
-https://nytimes.com/2024/09/04/us/politics/barron-trump-nyu.html
-
-**Hamas Releases Hostage Video of Two Slain Israeli Captives**\
-`Release of the video of Carmel Gat, 40, and Alexander Lobanov, 32, appears designed to inflame divisions in Israel. In the past Hamas had denied taking hostages.`\
-https://nytimes.com/2024/09/04/world/middleeast/hamas-hostage-videos.html
 

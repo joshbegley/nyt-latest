@@ -1,3 +1,15 @@
+**21 Migrants Missing at Sea as Boat Capsizes in Rough Seas Off Italy**\
+`Seven survivors were rescued from the boat that sank after leaving Libya. A crackdown by Italy has reduced migration, but not the high death rates that come with crossing the Mediterranean.`\
+https://nytimes.com/2024/09/04/world/europe/italy-migrants-missing-libya.html
+
+**Four People Were Killed in a School Shooting in Georgia**\
+`Also, Zelensky is preparing to shake up his cabinet. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/09/04/briefing/georgia-school-shooting-ukraine-cabinet-changes.html
+
+**Internet Archive Loses Court Appeal in Fight Over Online Lending Library**\
+`The dispute started in the early days of the pandemic when the organization expanded access to a free online collection of books.`\
+https://nytimes.com/2024/09/04/technology/internet-archive-appeals-court-ruling.html
+
 **Commanders suspend employee for disparaging player comments**\
 `The team is conducting an internal investigation into the comments recorded by an undercover journalist.`\
 https://nytimes.com/athletic/5745161/2024/09/04/commanders-employee-video-comments-suspended/
