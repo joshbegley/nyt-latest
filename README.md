@@ -1,3 +1,7 @@
+**Electing Judges in Mexico? It’s a Bad Idea.**\
+`The judicial overhaul in Mexico could harm government accountability, undermine the justice system and give even greater power to drug cartels.`\
+https://nytimes.com/2024/09/04/opinion/mexico-judges-election-government.html
+
 **A player to watch for each NFL team who could help shape fantasy football 2024**\
 `Theo Gremminger singles out a player for each NFL team who will likely have an outsized role in shaping the 2024 fantasy football season.`\
 https://nytimes.com/athletic/5742425/2024/09/04/a-player-to-watch-for-each-nfl-team-who-could-shape-the-2024-fantasy-football-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5743597/2024/09/04/tiafoe-dimitrov-us-open-result/
 **Wolves' transfer window reviewed: Sensible signings but not replacing Kilman could prove costly**\
 `Gary O'Neil's side strengthened in some departments over the summer but failed to find cover in a couple of vital areas`\
 https://nytimes.com/athletic/5741413/2024/09/04/wolves-transfer-window-reviewed/
-
-**Forest have had the most shots in the Premier League - they must start making most of it**\
-`Nuno Espirito Santo's side have looked dangerous in attack, with 53 efforts on goal. Yet they need a greater cutting edge`\
-https://nytimes.com/athletic/5741678/2024/09/04/nottingham-forest-shots-premier-league/
 
