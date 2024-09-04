@@ -1,3 +1,15 @@
+**'Spain is not racist', says manager De la Fuente**\
+`Luis de la Fuente says that Spain is &#8220;not racist&#8221; after Real Madrid forward Vinicius Junior suggested the nation should be stripped of hosting the 2030 World Cup unless it improves its record on fighting racism.`\
+https://nytimes.com/athletic/5745141/2024/09/04/vinicius-junior-de-la-fuente-spain-racism/
+
+**Boeing Starliner Set to Leave Space Station Without Its Crew**\
+`The troubled spacecraft is scheduled to undock on Friday for a trip back to Earth while two NASA astronauts will stay in orbit.`\
+https://nytimes.com/2024/09/04/science/space/boeing-starliner-space-station-nasa.html
+
+**Fantasy Football Matchup Rankings Week 1 | Strength of schedule by position**\
+`Week 1 fantasy football strength of schedule by position matchup -- positional defensive matchup ranks`\
+https://nytimes.com/athletic/5744918/2024/09/04/fantasy-football-matchup-rankings-week-1-strength-of-schedule-by-position-2/
+
 **At first, students thought a lockdown was a drill. Then, they heard gunshots.**\
 `By Alessandro Marazzi Sassoon and Rick Rojas`\
 https://nytimes.com/live/2024/09/04/us/georgia-shooting-apalachee-high-school/at-first-students-thought-lockdown-was-a-drill-then-they-heard-gunshots
@@ -26,16 +38,4 @@ https://nytimes.com/2024/09/04/world/canada/trudeau-liberal-party-agreement.html
 **LSU running back John Emery sidelined with torn ACL**\
 `Former five-star recruit briefly entered the transfer portal in the offseason before opting to return for his sixth season at LSU. `\
 https://nytimes.com/athletic/5744946/2024/09/04/john-emery-lsu-running-back-acl/
-
-**Biden Expected to Block U.S. Steel Takeover**\
-`The Committee on Foreign Investment in the United States is expected to raise national security concerns about selling the iconic steel producer to Japan’s Nippon Steel.`\
-https://nytimes.com/2024/09/04/us/politics/biden-us-steel-nippon.html
-
-**Karolina Muchova's U.S. Open run reminds the world of the beauty of her game**\
-`Returning from a serious wrist injury, last year's U.S. Open semifinalist is reminding the tennis world of the beauty of her game.`\
-https://nytimes.com/athletic/5733246/2024/09/04/karolina-muchova-us-open-comeback-womens-tennis/
-
-**If Rodri is Real Madrid's next public transfer target then this is how it usually goes**\
-`Rodri appeared on the front cover of Spanish sports daily AS on Wednesday. This is what tends to follow...`\
-https://nytimes.com/athletic/5744831/2024/09/04/rodri-real-madrid-city-transfer/
 
