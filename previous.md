@@ -1,3 +1,11 @@
+**Mexico’s Lower House of Congress Approves President’s Judicial Overhaul**\
+`The vote was the first step toward shifting the country to a system in which nearly every judge would be elected to office. The bill now moves to the Senate.`\
+https://nytimes.com/2024/09/04/world/americas/mexico-lower-congress-approve-judicial-overhaul.html
+
+**Slowdown Déjà Vu Rattles Global Markets**\
+`Investors sent technology stocks and other assets tumbling on concerns that the U.S. economy could be headed for a hard landing.`\
+https://nytimes.com/2024/09/04/business/dealbook/slowdown-worries-stocks-markets.html
+
 **Brad Keselowski on what sparked the infamous 2014 Texas brawl and more: 12 Questions**\
 `Ahead of the 2024 playoffs, Brad Keselowski talks about a run-in with Kevin Harvick, how hard it is to drive in NASCAR and more.`\
 https://nytimes.com/athletic/5740133/2024/09/04/brad-keselowski-nascar-texas-brawl-12-questions/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/04/briefing/who-the-swing-voters-are.html
 **Deregulation and Dishonesty Led to Deadly Grenfell Fire, Inquiry Finds**\
 `A damning final report into Britain’s worst residential fire since World War II blamed a litany of cost-cutting, dishonest sales practices and lax regulation for the blaze that killed 72 people.`\
 https://nytimes.com/2024/09/04/world/europe/grenfell-tower-fire-inquiry-report-uk.html
-
-**Why Vikings safety Harrison Smith is still one of the smartest players in the NFL**\
-`Entering his 13th season, the potential Hall of Famer still loves football. He reviewed some of his top highlights with The Athletic.`\
-https://nytimes.com/athletic/5738862/2024/09/04/harrison-smith-minnesota-vikings-nfl/
-
-**Browns need the best version of Deshaun Watson if they want to reach their ceiling**\
-`Cleveland has amassed and retained enough talent to be considered potentially elite this season. But it all starts with its highly paid QB. `\
-https://nytimes.com/athletic/5743152/2024/09/04/browns-deshaun-watson-season-preview/
 

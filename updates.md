@@ -1,3 +1,11 @@
+**Mexico’s Lower House of Congress Approves President’s Judicial Overhaul**\
+`The vote was the first step toward shifting the country to a system in which nearly every judge would be elected to office. The bill now moves to the Senate.`\
+https://nytimes.com/2024/09/04/world/americas/mexico-lower-congress-approve-judicial-overhaul.html
+
+**Slowdown Déjà Vu Rattles Global Markets**\
+`Investors sent technology stocks and other assets tumbling on concerns that the U.S. economy could be headed for a hard landing.`\
+https://nytimes.com/2024/09/04/business/dealbook/slowdown-worries-stocks-markets.html
+
 **How Tom Brady prepared for his Fox NFL broadcasting debut**\
 `Tom Brady spent the year asking questions and studying film — just in a very different way as he preps for Sunday's debut on Fox's NFL crew.`\
 https://nytimes.com/athletic/5742638/2024/09/04/tom-brady-fox-nfl-broadcast-preparations/
