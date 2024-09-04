@@ -1,3 +1,7 @@
+**Seashell Art Is Shedding Its Kitschy Reputation**\
+`No longer confined to beachy souvenir shops, works encrusted with oysters and mussels are showing up in galleries and interiors.`\
+https://nytimes.com/2024/09/04/t-magazine/shell-art.html
+
 **What to See in N.Y.C. Galleries in September**\
 `This week in Newly Reviewed, Andrew Russeth covers a group show of self-portraits, Gina Beavers’s collaged sculptures and Hannah Villiger’s beguiling photographs.`\
 https://nytimes.com/2024/09/04/arts/design/nyc-galleries-september.html
