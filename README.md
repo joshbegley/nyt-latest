@@ -1,3 +1,11 @@
+**Kennedy must remain on the ballot in Michigan, a judge rules.**\
+`Mr. Kennedy had been nominated by a minor party in Michigan, making it easier for him to get on the ballot. A judge said that also makes it harder for him to get off the ballot too.`\
+https://nytimes.com/live/2024/09/03/us/harris-trump-election/kennedy-must-remain-on-the-ballot-in-michigan-a-judge-rules
+
+**Trump Says There Was ‘No Conflict’ at Cemetery, Despite Official Accounts**\
+`Speaking to Sean Hannity, Donald Trump contradicted his campaign’s prior statements about a confrontation involving his campaign at Arlington National Cemetery last week.`\
+https://nytimes.com/2024/09/03/us/politics/trump-arlington-cemetery.html
+
 **49ers' Ricky Pearsall wanted to assure teammates he was OK — so he showed up at work**\
 `Teammates talked about a roller-coaster 48 hours that began with news of the shooting and ended with seeing Pearsall at 49ers headquarters.`\
 https://nytimes.com/athletic/5743158/2024/09/03/ricky-pearsall-49ers-shooting-teammates/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5742184/2024/09/03/nwsl-free-agency-trades-orlando-
 **Cubs get good news on Justin Steele's elbow, avoid injured list stint for now**\
 `As important as it is for them to try to make a run this month they also know that Steele’s health is critical to their success beyond 2024.`\
 https://nytimes.com/athletic/5743123/2024/09/03/cubs-justin-steele-elbow-update-positive/
-
-**Inside Oilers-Leon Draisaitl contract talks: A 'smooth' process despite GM search, Blues offer sheets**\
-`The sides arrived at a contract that is poised to make Draisaitl the NHL's highest-paid player at $14 million when it kicks in next season.`\
-https://nytimes.com/athletic/5742745/2024/09/03/leon-draisaitl-oilers-negotiations/
-
-**Will the College Protests Matter in November?**\
-`Republicans tied campus unrest to their party platform. But the intensity may have fizzled.`\
-https://nytimes.com/2024/09/03/us/politics/college-protests-gaza-election.html
 
