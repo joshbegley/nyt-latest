@@ -1,4 +1,4 @@
-**At first, students thought lockdown was a drill. Then, they heard gunshots.**\
+**At first, students thought a lockdown was a drill. Then, they heard gunshots.**\
 `By Alessandro Marazzi Sassoon and Rick Rojas`\
 https://nytimes.com/live/2024/09/04/us/georgia-shooting-apalachee-high-school/at-first-students-thought-lockdown-was-a-drill-then-they-heard-gunshots
 
