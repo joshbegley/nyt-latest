@@ -1,3 +1,11 @@
+**Bills' Hamlin will start for first time since cardiac arrest**\
+`It will be Hamlin's first start since he collapsed and went into cardiac arrest on the field during a game in January 2023.`\
+https://nytimes.com/athletic/5744882/2024/09/04/damar-hamlin-bills-starter-cardinals/
+
+**Prosecutor Says Manslaughter Case Against Alec Baldwin Should Be Revived**\
+`The special prosecutor asked a judge in New Mexico to reconsider her decision to toss the charge against the actor during his trial.`\
+https://nytimes.com/2024/09/04/movies/alec-baldwin-trial-prosecutor.html
+
 **‘Path to Disaster’: 4 Takeaways From the U.K. Grenfell Fire Final Report**\
 `An extensive public inquiry found that the causes of the Grenfell Tower tragedy stretched back decades, and that the deaths of 72 people were avoidable.`\
 https://nytimes.com/2024/09/04/world/europe/uk-grenfell-fire-takeaways.html

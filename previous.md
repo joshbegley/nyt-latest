@@ -1,3 +1,11 @@
+**Bills' Hamlin will start for first time since cardiac arrest**\
+`It will be Hamlin's first start since he collapsed and went into cardiac arrest on the field during a game in January 2023.`\
+https://nytimes.com/athletic/5744882/2024/09/04/damar-hamlin-bills-starter-cardinals/
+
+**Prosecutor Says Manslaughter Case Against Alec Baldwin Should Be Revived**\
+`The special prosecutor asked a judge in New Mexico to reconsider her decision to toss the charge against the actor during his trial.`\
+https://nytimes.com/2024/09/04/movies/alec-baldwin-trial-prosecutor.html
+
 **Commanders, Cosmi agree to 4-year extension**\
 `Cosmi is the first player drafted by Washington to sign a second contract since wide receiver Terry McLaurin.`\
 https://nytimes.com/athletic/5744880/2024/09/04/sam-cosmi-extension-commanders/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5744766/2024/09/04/chelsea-hotel-premier-league/
 **Best NFL futures bets: Austin Mock picks 8 futures bets for the NFL season**\
 `Austin Mocks makes eight picks for best NFL futures bets.`\
 https://nytimes.com/athletic/5744599/2024/09/04/2024-nfl-futures-best-bets/
-
-**‘Path to Disaster’: 4 Takeaways From the U.K. Grenfell Fire Final Report**\
-`An extensive public inquiry found that the causes of the Grenfell Tower tragedy stretched back decades, and that the deaths of 72 people were avoidable.`\
-https://nytimes.com/2024/09/04/world/europe/uk-grenfell-fire-takeaways.html
-
-**How an Ohio State freshman became the 'ultimate cheat code'**\
-`Buckeyes WR Jeremiah Smith makes strong first impressions, and now the hype is only growing for the No. 1 recruit after his college debut.`\
-https://nytimes.com/athletic/5744617/2024/09/04/jeremiah-smith-ohio-state-football/
 
