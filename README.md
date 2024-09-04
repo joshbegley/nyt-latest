@@ -1,3 +1,7 @@
+**Seashell Art Is Shedding Its Kitschy Reputation**\
+`No longer confined to beachy souvenir shops, works encrusted with oysters and mussels are showing up in galleries and interiors.`\
+https://nytimes.com/2024/09/04/t-magazine/shell-art.html
+
 **What to See in N.Y.C. Galleries in September**\
 `This week in Newly Reviewed, Andrew Russeth covers a group show of self-portraits, Gina Beavers’s collaged sculptures and Hannah Villiger’s beguiling photographs.`\
 https://nytimes.com/2024/09/04/arts/design/nyc-galleries-september.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/04/arts/television/anna-delvey-dancing-with-the-star
 **'Spain is not racist', says manager De la Fuente**\
 `Luis de la Fuente says that Spain is &#8220;not racist&#8221; after Real Madrid forward Vinicius Junior suggested the nation should be stripped of hosting the 2030 World Cup unless it improves its record on fighting racism.`\
 https://nytimes.com/athletic/5745141/2024/09/04/vinicius-junior-de-la-fuente-spain-racism/
-
-**Boeing Starliner Set to Leave Space Station Without Its Crew**\
-`The troubled spacecraft is scheduled to undock on Friday for a trip back to Earth while two NASA astronauts will stay in orbit.`\
-https://nytimes.com/2024/09/04/science/space/boeing-starliner-space-station-nasa.html
 
