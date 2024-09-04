@@ -1,3 +1,12 @@
+**Some Navels**\
+`Kareem Ayas waxes poetic.`\
+https://nytimes.com/2024/09/03/crosswords/daily-puzzle-2024-09-04.html
+
+**Is Hydrogen the Missing Piece in Solving the World’s Energy Puzzle?**\
+`A unique hydrogen ecosystem strategy is making the prospect of a hydrogen society increasingly feasible.
+`\
+https://nytimes.com/paidpost/hyundai/is-hydrogen-the-missing-piece-in-solving-the-worlds-energy-puzzle.html
+
 **New York Official Is Charged as Chinese Agent**\
 `Linda Sun, a former aide to Gov. Kathy Hochul, was charged with 10 criminal counts that included visa fraud, money laundering and other crimes.`\
 https://nytimes.com/video/nyregion/100000009672379/new-york-official-is-charged-as-chinese-agent.html
