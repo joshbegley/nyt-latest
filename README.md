@@ -1,3 +1,7 @@
+**What we're seeing from the Raiders: Gardner Minshew's volatility and other observations**\
+`Minshew may have won the Raiders' starting QB job over Aidan O'Connell, but he'll have to improve his consistency to keep it. `\
+https://nytimes.com/athletic/5734668/2024/09/04/las-vegas-raiders-preview-gardner-minshew/
+
 **Netflix Adds Disclaimer to Indian Show After Anger Over Hijacker Names**\
 `The series, based on a 1999 plane hijacking, prompted backlash on social media. Critics claimed it wrongly portrayed the Islamist hijackers as Hindus.`\
 https://nytimes.com/2024/09/04/world/asia/netflix-india-ic-814-kandahar-hijack.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5741777/2024/09/04/blackhawks-frank-nazar-nhl-offse
 **Trotter: Clark, Reese should share ROY award, just as they share a place in WNBA history**\
 `It will never happen but they both deserve it — not only for their unprecedented performances on the court but also for their impact off it.`\
 https://nytimes.com/athletic/5743551/2024/09/04/caitlin-clark-angel-reese-wnba-rookie-of-year/
-
-**New look, same coach: Why Matt Eberflus has the buy-in from Bears players**\
-`While the outside world took notice of Eberflus' new haircut and beard, his players raved about his consistency as a coach.`\
-https://nytimes.com/athletic/5742490/2024/09/04/matt-eberflus-bears-new-look/
 
