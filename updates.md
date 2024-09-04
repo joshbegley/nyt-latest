@@ -1,3 +1,7 @@
+**Florida true freshman QB DJ Lagway, former 5-star recruit, to start for Gators**\
+`Lagway, the No. 2 QB in the 2024 recruiting class, will start vs. Samford for Graham Mertz, who hasn't practiced this week.`\
+https://nytimes.com/athletic/5745853/2024/09/04/florida-gators-dj-lagway-start-quarterback-graham-mertz/
+
 **FSU starts 0-2 despite NIL team budget of nearly $12 million**\
 `The Noles made a big investment in their defensive line this year with almost $2 million going to their starting front.`\
 https://nytimes.com/athletic/5745716/2024/09/04/florida-state-nil-team-budget-2024/
