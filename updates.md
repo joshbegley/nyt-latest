@@ -1,3 +1,11 @@
+**Kennedy must remain on the ballot in Michigan, a judge rules.**\
+`Mr. Kennedy had been nominated by a minor party in Michigan, making it easier for him to get on the ballot. A judge said that also makes it harder for him to get off the ballot too.`\
+https://nytimes.com/live/2024/09/03/us/harris-trump-election/kennedy-must-remain-on-the-ballot-in-michigan-a-judge-rules
+
+**Trump Says There Was ‘No Conflict’ at Cemetery, Despite Official Accounts**\
+`Speaking to Sean Hannity, Donald Trump contradicted his campaign’s prior statements about a confrontation involving his campaign at Arlington National Cemetery last week.`\
+https://nytimes.com/2024/09/03/us/politics/trump-arlington-cemetery.html
+
 **49ers' Ricky Pearsall wanted to assure teammates he was OK — so he showed up at work**\
 `Teammates talked about a roller-coaster 48 hours that began with news of the shooting and ended with seeing Pearsall at 49ers headquarters.`\
 https://nytimes.com/athletic/5743158/2024/09/03/ricky-pearsall-49ers-shooting-teammates/
