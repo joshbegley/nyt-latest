@@ -1,3 +1,7 @@
+**Trump Says His Son Barron Is Attending N.Y.U.**\
+`Donald J. Trump had teased his youngest child’s choice of school for months, but on Wednesday, he was photographed on the university’s campus in Manhattan’s Greenwich Village.`\
+https://nytimes.com/2024/09/04/us/politics/barron-trump-nyu.html
+
 **Hamas Releases Hostage Video of Two Slain Israeli Captives**\
 `Release of the video of Carmel Gat, 40, and Alexander Lobanov, 32, appears designed to inflame divisions in Israel. In the past Hamas had denied taking hostages.`\
 https://nytimes.com/2024/09/04/world/middleeast/hamas-hostage-videos.html

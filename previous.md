@@ -1,3 +1,7 @@
+**Trump Says His Son Barron Is Attending N.Y.U.**\
+`Donald J. Trump had teased his youngest child’s choice of school for months, but on Wednesday, he was photographed on the university’s campus in Manhattan’s Greenwich Village.`\
+https://nytimes.com/2024/09/04/us/politics/barron-trump-nyu.html
+
 **Hamas Releases Hostage Video of Two Slain Israeli Captives**\
 `Release of the video of Carmel Gat, 40, and Alexander Lobanov, 32, appears designed to inflame divisions in Israel. In the past Hamas had denied taking hostages.`\
 https://nytimes.com/2024/09/04/world/middleeast/hamas-hostage-videos.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000009674083/georgia-school-shooting-winder.html
 **Zelensky’s party announces a slate of nine candidates for cabinet posts.**\
 `By Marc Santora and Maria Varenikova`\
 https://nytimes.com/live/2024/09/04/world/ukraine-russia-missile-attacks/zelensky-pushes-ahead-with-sweeping-overhaul-of-his-cabinet
-
-**Russia Imprisons Top Physicists, Even as Putin Touts Their Technology**\
-`A Moscow court sentenced Alexander Shiplyuk, the director of a physics institute who specializes in hypersonic flight, to 15 years in prison. It was the latest treason case against a leading scientist.`\
-https://nytimes.com/2024/09/04/world/europe/russia-imprisons-top-scientists.html
 
