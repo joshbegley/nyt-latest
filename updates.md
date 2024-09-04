@@ -1,3 +1,15 @@
+**Luca Guadagnino Gets Crafty**\
+`The film director and designer did double duty in Venice, Italy, debuting a film at the Venice Film Festival along with his curation of Homo Faber, the craftsmanship exhibition.`\
+https://nytimes.com/2024/09/04/style/luca-guadagnino-gets-crafty.html
+
+**Joaquin Phoenix and the Big Question at the ‘Joker: Folie à Deux’ Premiere**\
+`At the Venice Film Festival with his co-star, Lady Gaga, would the actor answer questions about dropping out of a Todd Haynes movie?`\
+https://nytimes.com/2024/09/04/movies/joker-folie-a-deux-venice-film-festival-joaquin-phoenix-lady-gaga.html
+
+**Paz, Martin, Zidane and Co - Madrid's academy exits and how they fit into club's youth policy**\
+`Madrid have let plenty of youngsters go this summer, so what's the thinking behind it?`\
+https://nytimes.com/athletic/5743848/2024/09/04/real-madrid-youth-paz-martin/
+
 **A New ‘Red Hot’ Album Tackles a Hot Topic: Transgender Awareness**\
 `“Transa,” with 46 tracks due Nov. 22, brings together artists including Sam Smith, Sade, André 3000 and Jayne County.`\
 https://nytimes.com/2024/09/04/arts/music/red-hot-and-transa-transgender-musicians.html

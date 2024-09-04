@@ -1,3 +1,15 @@
+**Luca Guadagnino Gets Crafty**\
+`The film director and designer did double duty in Venice, Italy, debuting a film at the Venice Film Festival along with his curation of Homo Faber, the craftsmanship exhibition.`\
+https://nytimes.com/2024/09/04/style/luca-guadagnino-gets-crafty.html
+
+**Joaquin Phoenix and the Big Question at the ‘Joker: Folie à Deux’ Premiere**\
+`At the Venice Film Festival with his co-star, Lady Gaga, would the actor answer questions about dropping out of a Todd Haynes movie?`\
+https://nytimes.com/2024/09/04/movies/joker-folie-a-deux-venice-film-festival-joaquin-phoenix-lady-gaga.html
+
+**Paz, Martin, Zidane and Co - Madrid's academy exits and how they fit into club's youth policy**\
+`Madrid have let plenty of youngsters go this summer, so what's the thinking behind it?`\
+https://nytimes.com/athletic/5743848/2024/09/04/real-madrid-youth-paz-martin/
+
 **Phoenix Marks 100 Straight Days of 100-Degree Temperatures**\
 `The city reached the sweaty milestone on Tuesday. The previous record of 76 straight days was set in 1993.`\
 https://nytimes.com/2024/09/04/us/phoenix-100-days-heat-record.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5743993/2024/09/04/davis-mills-texans-contract/
 **Inside the Pope’s Visit to Indonesia**\
 `Starting in the majority-Muslim nation, Francis is undertaking a multiday journey through Asia and Oceania.`\
 https://nytimes.com/2024/09/04/world/asia/indonesia-pope-visit.html
-
-**Are the Blues a playoff team? Lineup projection, prospect evaluations, more: Mailbag, part 1**\
-`How will the Blues trim a crowded roster? Answering that and much more from our readers as the team gets ready for the start of camp.`\
-https://nytimes.com/athletic/5732748/2024/09/04/blues-roster-projections-prospect-evaluations/
-
-**Here’s the latest on the 2024 race.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/09/04/us/harris-trump-election/heres-the-latest-on-the-2024-race
-
-**Election Live Updates: Trump Returns to Trail as Harris Campaigns in New Hampshire**\
-`Vice President Kamala Harris is set to propose a tax break for small businesses, and former President Donald J. Trump will hold a town hall event in Pennsylvania to air tonight on Fox News.`\
-https://nytimes.com/live/2024/09/04/us/harris-trump-election
 
