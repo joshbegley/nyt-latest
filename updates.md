@@ -1,3 +1,7 @@
+**Anna Sorokin Goes From High-Society Impersonator to ‘Dancing With the Stars’**\
+`The woman who impersonated a German heiress will reprise her false identity on season 33 of the show, becoming the latest contestant with legal or other troubles.`\
+https://nytimes.com/2024/09/04/arts/television/anna-delvey-dancing-with-the-stars.html
+
 **Seashell Art Is Shedding Its Kitschy Reputation**\
 `No longer confined to beachy souvenir shops, works encrusted with oysters and mussels are showing up in galleries and interiors.`\
 https://nytimes.com/2024/09/04/t-magazine/shell-art.html
