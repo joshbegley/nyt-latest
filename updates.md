@@ -1,3 +1,7 @@
+**How 49ers’ Trent Williams forfeited millions in fines — and cashed in big time**\
+`Williams was fined at least $2 million — potentially up to $4 million — but the new guaranteed dollars in his deal more than made up for it.`\
+https://nytimes.com/athletic/5742856/2024/09/03/trent-williams-49ers-contract-fines-holdout/
+
 **How Self-Driving Cars Get Help From Humans Hundreds of Miles Away**\
 `Zoox, a self-driving car company owned by Amazon, is deploying robot taxis without steering wheels, driver seats or drivers. But like all other self-driving cars, they still need help from humans.`\
 https://nytimes.com/interactive/2024/09/03/technology/zoox-self-driving-cars-remote-control.html
