@@ -1,3 +1,7 @@
+**A player to watch for each NFL team who could help shape fantasy football 2024**\
+`Theo Gremminger singles out a player for each NFL team who will likely have an outsized role in shaping the 2024 fantasy football season.`\
+https://nytimes.com/athletic/5742425/2024/09/04/a-player-to-watch-for-each-nfl-team-who-could-shape-the-2024-fantasy-football-season/
+
 **FPL: Assessing the late transfer window movers**\
 `There were high-profile additions at Arsenal and Chelsea, while Ivan Toney leaving Brentford could have a knock-on effect`\
 https://nytimes.com/athletic/5741113/2024/09/04/fantasy-premier-league-transfer-window/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5741413/2024/09/04/wolves-transfer-window-reviewed/
 **Forest have had the most shots in the Premier League - they must start making most of it**\
 `Nuno Espirito Santo's side have looked dangerous in attack, with 53 efforts on goal. Yet they need a greater cutting edge`\
 https://nytimes.com/athletic/5741678/2024/09/04/nottingham-forest-shots-premier-league/
-
-**The goals that show that Erling Haaland is an artist and not a robot**\
-`The Norwegian does not get enough credit for the way he manipulates the ball and unbalances defenders to create shooting opportunities`\
-https://nytimes.com/athletic/5741144/2024/09/04/erling-haaland-shooting-technique-artistry/
 
