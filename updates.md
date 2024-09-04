@@ -1,3 +1,15 @@
+**Hamas Releases Hostage Video of Two Slain Israeli Captives**\
+`Release of the video of Carmel Gat, 40, and Alexander Lobanov, 32, appears designed to inflame divisions in Israel. In the past Hamas had denied taking hostages.`\
+https://nytimes.com/2024/09/04/world/middleeast/hamas-hostage-videos.html
+
+**Ukraine Names Candidates for Its New Cabinet in Major Overhaul**\
+`President Volodymyr Zelensky said that he was acting to bring a “new energy” to state institutions at an important diplomatic juncture.`\
+https://nytimes.com/2024/09/04/world/europe/ukraine-reshuffle-zelensky.html
+
+**Thursday Briefing: Ukraine Reshuffles its Government**\
+`Plus, Daniel Dae Kim takes a risk.`\
+https://nytimes.com/2024/09/04/briefing/ukraine-russia-disinformation-grenfell.html
+
 **Jack Draper beats Alex de Minaur to reach first Grand Slam semifinal**\
 `He will face Jannik Sinner or Daniil Medvedev for a place in the final.`\
 https://nytimes.com/athletic/5745372/2024/09/04/draper-de-minaur-us-open-result/
