@@ -1,3 +1,7 @@
+**Gaudreau's teammates share their 'anger, sadness, disbelief'**\
+`"As a team, we're going to get through this," Blue Jackets captain Boone Jenner said of teammate Johnny Gaudreau's death.`\
+https://nytimes.com/athletic/5745174/2024/09/04/gaudreau-blue-jackets-reaction-teammates/
+
 **Linda Deutsch, The A.P.’s Dean of Courtroom Reporting, Dies at 80**\
 `Covering notorious trials, she offered readers an unvarnished view of the sordid side of celebrity, told through many of the country’s most riveting legal dramas.`\
 https://nytimes.com/2024/09/04/business/media/linda-deutsch-dead.html
