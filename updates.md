@@ -1,3 +1,19 @@
+**Liz Cheney Says She Will Vote for Kamala Harris**\
+`Ms. Cheney, once a member of House Republican leadership, lost her seat after she voted to impeach then-President Donald J. Trump after the attack on the Capitol on Jan. 6, 2021.`\
+https://nytimes.com/2024/09/04/us/politics/liz-cheney-kamala-harris-vote.html
+
+**Students and teachers huddled in fear as the gunfire rang out.**\
+`By Alessandro Marazzi Sassoon, Richard Fausset and Rick Rojas`\
+https://nytimes.com/live/2024/09/04/us/georgia-shooting-apalachee-high-school/students-and-teachers-huddled-in-fear-as-the-gunfire-rang-out
+
+**Families of Patients Who Died Sue Hospital After Fentanyl Was Swapped With Water**\
+`The tap water was placed in the intravenous drips of patients at a hospital in Medford, Ore., causing bacterial infections.`\
+https://nytimes.com/2024/09/04/us/oregon-nurse-fentanyl-theft-lawsuit.html
+
+**There have been three mass shootings in the U.S. this year.**\
+`Here is how The New York Times tallies this type of shootings.`\
+https://nytimes.com/live/2024/09/04/us/georgia-shooting-apalachee-high-school/mass-shootings-2024
+
 **There have been three mass shootings in the U.S. this year.**\
 `Here is how The New York Times tallies this type of shootings.`\
 https://nytimes.com/2024/09/04/us/mass-shootings-2024.html
