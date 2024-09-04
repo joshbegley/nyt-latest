@@ -1,3 +1,7 @@
+**Lamar Jackson isn't going to apologize for being Lamar Jackson**\
+`The two-time MVP is an NFL superstar hiding in plain sight, which is exactly how he wants it: "What you see from me is what you get."`\
+https://nytimes.com/athletic/5740582/2024/09/04/lamar-jackson-ravens-chiefs-patrick-mahomes/
+
 **Mikal Bridges and OG Anunoby defensively, going small, center concerns: Knicks storylines**\
 `Will Tom Thibodeau find enough time for Josh Hart and Donte DiVincenzo? How good can New York's defense be?`\
 https://nytimes.com/athletic/5719904/2024/09/04/knicks-storylines-mikal-bridges-og-anunoby-defense/
