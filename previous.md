@@ -1,3 +1,7 @@
+**There have been three mass shootings in the U.S. this year.**\
+`Here is how The New York Times tallies this type of shootings.`\
+https://nytimes.com/2024/09/04/us/mass-shootings-2024.html
+
 **Spirit rookie Bethune suffers season-ending knee injury**\
 `Bethune was selected third overall in the 2023 NWSL Draft, with Washington trading defensive anchor Sam Staab to obtain the pick.`\
 https://nytimes.com/athletic/5745585/2024/09/04/washington-spirit-croix-bethune-knee-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/04/weather/hurricane-season-forecast-september.html
 **21 Reported Missing After Boat Carrying Migrants Capsizes**\
 `Italian rescuers said that seven Syrian migrants survived a shipwreck about 10 miles from the island of Lampedusa, in the Central Mediterranean. The survivors told officials that 21 fellow travelers, including three minors, had fallen off during the crossing because of rough seas.`\
 https://nytimes.com/video/world/europe/100000009673360/migrant-boat-capsize-italy.html
-
-**Wednesday’s school shooting was the deadliest in Georgia’s recent history.**\
-`By Kate Selig`\
-https://nytimes.com/live/2024/09/04/us/georgia-shooting-apalachee-high-school/wednesdays-school-shooting-was-the-deadliest-in-georgias-recent-history
 
