@@ -20,7 +20,7 @@ https://nytimes.com/2024/09/04/us/seattle-washington-shootings-i5.html
 
 **On the eve of Week 1, the 49ers emerge from a summer of crises**\
 `Brandon Aiyuk after his first practice this season: "I'm super-excited, feeling fresh, kind of renewed. Coming with new energy."`\
-https://nytimes.com/athletic/5742752/2024/09/04/kawakami-on-the-eve-of-week-1-the-49ers-emerge-from-a-summer-of-crises/
+https://nytimes.com/athletic/5742752/2024/09/04/49ers-ricky-pearsall-brandon-aiyuk-trent-williams-kawakami/
 
 **NL playoff contenders' biggest concern and key X-factor to watch down the stretch**\
 `What will be the difference-making variables for postseason contenders in the final weeks of the regular season and into October?`\
