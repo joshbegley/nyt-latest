@@ -1,3 +1,7 @@
+**'Raygun' calls level of criticism 'alarming'**\
+`"The energy and vitriol that people had was pretty alarming," Rachel "Raygun" Gunn said of criticism of her Olympic breaking performance.`\
+https://nytimes.com/athletic/5744167/2024/09/04/raygun-breaking-olympics-criticism/
+
 **'Raygun' calls level of critism 'alarming'**\
 `"The energy and vitriol that people had was pretty alarming," Rachel "Raygun" Gunn said of criticism of her Olympic breaking performance.`\
 https://nytimes.com/athletic/5744167/2024/09/04/raygun-breaking-olympics-criticism/
