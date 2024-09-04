@@ -1,3 +1,7 @@
+**Greenberg and Jackson: Riding with Deion's team, 3-point favorites plus NFL futures picks**\
+`Zac Jackson went 3-0 in his college Week 1 bets, but the NFL is here so Jon Greenberg is hoping to make up the ground.`\
+https://nytimes.com/athletic/5745626/2024/09/04/greenberg-and-jackson-nfl-futures-colorado-survivor/
+
 **Harris and Trump Campaigns Agree to Debate’s Microphone Rules**\
 `The microphones at the candidates’ debate next Tuesday will be muted when it’s not their turn to speak.`\
 https://nytimes.com/2024/09/04/us/politics/harris-trump-debate-microphones.html
