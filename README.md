@@ -1,3 +1,11 @@
+**Best NFL futures bets: Austin Mock picks 8 futures bets for the NFL season**\
+`Austin Mocks makes eight picks for best NFL futures bets.`\
+https://nytimes.com/athletic/5744599/2024/09/04/2024-nfl-futures-best-bets/
+
+**‘Path to Disaster’: 4 Takeaways From the U.K. Grenfell Fire Final Report**\
+`An extensive public inquiry found that the causes of the Grenfell Tower tragedy stretched back decades, and that the deaths of 72 people were avoidable.`\
+https://nytimes.com/2024/09/04/world/europe/path-to-disaster-4-takeaways-from-the-uk-grenfell-fire-final-report.html
+
 **How an Ohio State freshman became the 'ultimate cheat code'**\
 `Buckeyes WR Jeremiah Smith makes strong first impressions, and now the hype is only growing for the No. 1 recruit after his college debut.`\
 https://nytimes.com/athletic/5744617/2024/09/04/jeremiah-smith-ohio-state-football/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5743695/2024/09/04/vancouver-canucks-thatcher-demko
 **Is It OK to Vote for My Third-Party Fave This Presidential Election?**\
 `The magazine’s Ethicist columnist on the efficacy of voting your conscience.`\
 https://nytimes.com/2024/09/04/magazine/third-party-voting-election-ethics.html
-
-**Jim Riswold, Creator of ‘Bo Knows’ and Air Jordan Ads, Dies at 66**\
-`His work for Nike — particularly commercials starring Michael Jordan and Spike Lee — blurred the line between advertising and entertainment.`\
-https://nytimes.com/2024/09/04/business/media/jim-riswold-dead.html
-
-**Osimhen completes Galatasaray loan move**\
-`Galatasaray have confirmed the signing of Victor Osimhen on a season-long loan.`\
-https://nytimes.com/athletic/5733955/2024/09/04/victor-osimhen-galatasaray-napoli-transfer/
 
