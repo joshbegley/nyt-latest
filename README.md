@@ -1,3 +1,15 @@
+**Hamas Releases Hostage Video of Two Slain Israeli Captives**\
+`Release of the video of Carmel Gat, 40, and Alexander Lobanov, 32, appears designed to inflame divisions in Israel. In the past Hamas had denied taking hostages.`\
+https://nytimes.com/2024/09/04/world/middleeast/hamas-hostage-videos.html
+
+**Ukraine Names Candidates for Its New Cabinet in Major Overhaul**\
+`President Volodymyr Zelensky said that he was acting to bring a “new energy” to state institutions at an important diplomatic juncture.`\
+https://nytimes.com/2024/09/04/world/europe/ukraine-reshuffle-zelensky.html
+
+**Thursday Briefing: Ukraine Reshuffles its Government**\
+`Plus, Daniel Dae Kim takes a risk.`\
+https://nytimes.com/2024/09/04/briefing/ukraine-russia-disinformation-grenfell.html
+
 **Jack Draper beats Alex de Minaur to reach first Grand Slam semifinal**\
 `He will face Jannik Sinner or Daniil Medvedev for a place in the final.`\
 https://nytimes.com/athletic/5745372/2024/09/04/draper-de-minaur-us-open-result/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/09/04/world/ukraine-russia-missile-attacks/zelensk
 **Russia Imprisons Top Physicists, Even as Putin Touts Their Technology**\
 `A Moscow court sentenced Alexander Shiplyuk, the director of a physics institute who specializes in hypersonic flight, to 15 years in prison. It was the latest treason case against a leading scientist.`\
 https://nytimes.com/2024/09/04/world/europe/russia-imprisons-top-scientists.html
-
-**House Republicans Pivot to Attacking Walz With Subpoena Over a Nonprofit’s Fraud**\
-`The move was the latest sign that House Republicans were moving from investigating and attacking President Biden to taking aim at the new Democratic ticket.`\
-https://nytimes.com/2024/09/04/us/politics/walz-republicans-subpoena-covid-fraud.html
-
-**Seashell Art Is Shedding Its Kitschy Reputation**\
-`No longer confined to beachy souvenir shops, works encrusted with oysters and mussels are showing up in galleries and interiors.`\
-https://nytimes.com/2024/09/04/t-magazine/shell-art.html
-
-**What to See in N.Y.C. Galleries in September**\
-`This week in Newly Reviewed, Andrew Russeth covers a group show of self-portraits, Gina Beavers’s collaged sculptures and Hannah Villiger’s beguiling photographs.`\
-https://nytimes.com/2024/09/04/arts/design/nyc-galleries-september.html
 
