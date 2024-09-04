@@ -1,3 +1,23 @@
+**The View From the Nosebleeds at the U.S. Open: Not Too Shabby**\
+`It’s a long way to Row Z. But once you get there, there are advantages, tennis fans say.`\
+https://nytimes.com/2024/09/04/nyregion/us-open-nosebleed-seats.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/04/crosswords/spelling-bee-forum.html
+
+**Summer Bucket List**\
+`What items did you cross off your list of summer pleasures this year?`\
+https://nytimes.com/2024/09/04/learning/summer-bucket-list.html
+
+**Here are the latest developments.**\
+`By Victoria Kim and Marc Santora`\
+https://nytimes.com/live/2024/09/04/world/ukraine-russia-missile-attacks/here-are-the-latest-developments
+
+**Live Updates: Ukraine’s Foreign Minister Offers to Resign as Zelensky Plans Cabinet Shake-Up**\
+`President Volodymyr Zelensky was poised to carry out the biggest change to his government since Russia invaded. Ukrainian officials said that Russian forces carried out a second day of deadly attacks.`\
+https://nytimes.com/live/2024/09/04/world/ukraine-russia-missile-attacks
+
 **Stephen Colbert Takes Stock of Harris Leading in the Polls**\
 `Colbert reacted to a survey showing the vice president ahead of Donald Trump, 48 percent to 43 percent, saying it “really restores my faith in almost half of humanity.”`\
 https://nytimes.com/2024/09/04/arts/television/stephen-colbert-harris-trump-poll.html

@@ -1,3 +1,23 @@
+**The View From the Nosebleeds at the U.S. Open: Not Too Shabby**\
+`It’s a long way to Row Z. But once you get there, there are advantages, tennis fans say.`\
+https://nytimes.com/2024/09/04/nyregion/us-open-nosebleed-seats.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/04/crosswords/spelling-bee-forum.html
+
+**Summer Bucket List**\
+`What items did you cross off your list of summer pleasures this year?`\
+https://nytimes.com/2024/09/04/learning/summer-bucket-list.html
+
+**Here are the latest developments.**\
+`By Victoria Kim and Marc Santora`\
+https://nytimes.com/live/2024/09/04/world/ukraine-russia-missile-attacks/here-are-the-latest-developments
+
+**Live Updates: Ukraine’s Foreign Minister Offers to Resign as Zelensky Plans Cabinet Shake-Up**\
+`President Volodymyr Zelensky was poised to carry out the biggest change to his government since Russia invaded. Ukrainian officials said that Russian forces carried out a second day of deadly attacks.`\
+https://nytimes.com/live/2024/09/04/world/ukraine-russia-missile-attacks
+
 **Stephen Colbert Takes Stock of Harris Leading in the Polls**\
 `Colbert reacted to a survey showing the vice president ahead of Donald Trump, 48 percent to 43 percent, saying it “really restores my faith in almost half of humanity.”`\
 https://nytimes.com/2024/09/04/arts/television/stephen-colbert-harris-trump-poll.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/09/04/world/europe/zelensky-cabinet-dmytro-kuleba-resig
 **In Jakarta, Pope Praises Indonesia’s ‘Delicate Balance’ of Unity in Diversity**\
 `The pontiff said “mutual respect” was the key to harmony in the majority-Muslim country, where a pluralist tradition has been put to the test by extremist groups.`\
 https://nytimes.com/2024/09/04/world/asia/pope-francis-indonesia-jokowi.html
-
-**Word of the Day: ensemble**\
-`This word has appeared in 609 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/09/04/learning/word-of-the-day-ensemble.html
-
-**Braves' Chris Sale surpasses 200 strikeouts, adds to Cy Young resume**\
-`Sale became the first Braves lefty with 200 strikeouts in a season but said he's far more concerned with making the playoffs.`\
-https://nytimes.com/athletic/5743682/2024/09/04/braves-chris-sale-cy-young-candidate/
-
-**Missile and Drone Attacks Across Ukraine Kill at Least 7 in Lviv**\
-`Russia attacked a number of cities a day after a devastating strike in the country’s east, Ukrainian officials said.`\
-https://nytimes.com/2024/09/04/world/europe/russia-attack-ukraine-lviv.html
-
-**Quotation of the Day: Extreme Weather Is Increasing Risk of Collapse for U.S. Bridges**\
-`Quotation of the Day for Wednesday, September 4, 2024.`\
-https://nytimes.com/2024/09/04/pageoneplus/quotation-of-the-day-extreme-weather-is-increasing-risk-of-collapse-for-us-bridges.html
-
-**Electing Judges in Mexico? It’s a Bad Idea.**\
-`The judicial overhaul in Mexico could harm government accountability, undermine the justice system and give even greater power to drug cartels.`\
-https://nytimes.com/2024/09/04/opinion/mexico-judges-election-government.html
 
