@@ -1,3 +1,7 @@
+**A player to watch for each NFL team who could help shape fantasy football 2024**\
+`Theo Gremminger singles out a player for each NFL team who will likely have an outsized role in shaping the 2024 fantasy football season.`\
+https://nytimes.com/athletic/5742425/2024/09/04/a-player-to-watch-for-each-nfl-team-who-could-shape-the-2024-fantasy-football-season/
+
 **FPL: Assessing the late transfer window movers**\
 `There were high-profile additions at Arsenal and Chelsea, while Ivan Toney leaving Brentford could have a knock-on effect`\
 https://nytimes.com/athletic/5741113/2024/09/04/fantasy-premier-league-transfer-window/
