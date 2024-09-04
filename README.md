@@ -10,8 +10,8 @@ https://nytimes.com/2024/09/04/world/europe/ukraine-poltava-missiles-military-ac
 `As president and C.E.O., he expanded Time Inc.’s offerings, fended off a hostile takeover and built the world’s largest media company.`\
 https://nytimes.com/2024/09/04/business/media/j-richard-munro-dead.html
 
-**Johnny Gaudreau's Blue Jackets teammates share their 'anger, sadness, disbelief, emptiness'**\
-`COLUMBUS, Ohio — One by one, they made their way to the microphone, a somber mood in the air and emotional cracks in their voices just barely below the surface.`\
+**Gaudreau's teammates share their 'anger, sadness, disbelief'**\
+`"As a team, we're going to get through this," Blue Jackets captain Boone Jenner said of teammate Johnny Gaudreau's death.`\
 https://nytimes.com/athletic/5745174/2024/09/04/gaudreau-blue-jackets-reaction-teammates/
 
 **Anna Delvey Goes From High-Society Impersonator to ‘Dancing With the Stars’**\
