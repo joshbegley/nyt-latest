@@ -1,3 +1,7 @@
+**Lamar Jackson isn't going to apologize for being Lamar Jackson**\
+`The two-time MVP is an NFL superstar hiding in plain sight, which is exactly how he wants it: "What you see from me is what you get."`\
+https://nytimes.com/athletic/5740582/2024/09/04/lamar-jackson-ravens-chiefs-patrick-mahomes/
+
 **Mikal Bridges and OG Anunoby defensively, going small, center concerns: Knicks storylines**\
 `Will Tom Thibodeau find enough time for Josh Hart and Donte DiVincenzo? How good can New York's defense be?`\
 https://nytimes.com/athletic/5719904/2024/09/04/knicks-storylines-mikal-bridges-og-anunoby-defense/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/03/opinion/thepoint/far-right-elections-germany
 **How the Presidential Election Got This Close**\
 `Polarization doesn’t just pull us apart; it holds coalitions together.`\
 https://nytimes.com/2024/09/04/opinion/how-the-presidential-election-got-this-close.html
-
-**As Groups Have Shifted, Has It Become a ‘Normal’ Election?**\
-`Unusual demographic patterns are fading, but there are still some differences from the 2020 race.`\
-https://nytimes.com/2024/09/04/upshot/kamala-harris-trump-polls.html
 
