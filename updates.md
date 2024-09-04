@@ -1,3 +1,7 @@
+**Villa refuse request from fan board to cap Champions League ticket prices**\
+`Aston Villa refused a request from their fan advisory board (FAB) to cap the price of Champions League tickets with the cheapest adult entry now starting at £70.`\
+https://nytimes.com/athletic/5744092/2024/09/04/aston-villa-champions-league-ticket-prices/
+
 **Ukraine’s Top Diplomat Has Become a Familiar Face, Rallying Wartime Support**\
 `Dmytro Kuleba has lobbied Kyiv’s allies to supply missile defense systems. He was among several Ukrainian ministers who offered to resign on Wednesday, an official said.`\
 https://nytimes.com/2024/09/04/world/europe/ukraine-foreign-minister-kuleba-resignation.html
