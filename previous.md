@@ -1,3 +1,11 @@
+**Projecting possible Oilers waiver targets before the start of the season**\
+`Will the Oilers use that rare quiver and select a player on waivers this fall? It might be time.`\
+https://nytimes.com/athletic/5739859/2024/09/04/edmonton-oilers-waiver-targets-2024/
+
+**PGA Tour vs. LIV: Scheffler, McIlroy to play DeChambeau, Koepka in TV match**\
+`The match will feature perhaps the two most popular players on both tours, months after DeChambeau's U.S. Open win over McIlroy.`\
+https://nytimes.com/athletic/5744311/2024/09/04/pga-tour-liv-scheffler-mcilroy-dechambeau-koepka-tv-golf/
+
 **Villa refuse request from fan advisory board to cap Champions League ticket prices**\
 `Aston Villa refused a request from their own fan advisory board (FAB) to cap the price of Champions League tickets with the cheapest adult entry now starting at £70.`\
 https://nytimes.com/athletic/5744092/2024/09/04/aston-villa-refuse-request-from-fan-advisory-board-to-cap-champions-league-ticket-prices/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/04/business/trump-media-djt-stock.html
 **TikTok Expands Its ‘How to Vote’ Resources Ahead of the Election**\
 `The company is an increasingly popular source of political news. It’s adding more content about how elections work and media literacy.`\
 https://nytimes.com/2024/09/04/business/tiktok-vote-election.html
-
-**Scoop City: The two faces of the NFL**\
-`A look at Mahomes and Jackson, the new NFL kickoff, optimism in Detroit and two fantasy football nuggets.`\
-https://nytimes.com/athletic/5744245/2024/09/04/scoop-city-the-two-faces-of-the-nfl/
-
-**Broncos make CB Patrick Surtain II NFL's highest-paid DB**\
-`The Broncos selected Surtain with the ninth pick in the 2021 NFL Draft.`\
-https://nytimes.com/athletic/5744204/2024/09/04/patrick-surtain-broncos-contract-extension/
 
