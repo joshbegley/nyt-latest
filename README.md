@@ -1,3 +1,7 @@
+**The Russian strike on Tuesday hit a military academy devoted to electronic warfare.**\
+`Ukraine and its allies have recently stepped up efforts to counter Moscow’s electronic warfare tactics.`\
+https://nytimes.com/live/2024/09/04/world/ukraine-russia-missile-attacks/russia-ukraine-military-electronic-warfare
+
 **Trump Media Shares Are Down 70% From Their March Peak**\
 `The stock price of the former president’s social media company has often moved in tandem with investor perception of his standing in the presidential race.`\
 https://nytimes.com/2024/09/04/business/trump-media-djt-stock.html
@@ -11,7 +15,7 @@ https://nytimes.com/2024/09/04/business/tiktok-vote-election.html
 https://nytimes.com/athletic/5744245/2024/09/04/scoop-city-the-two-faces-of-the-nfl/
 
 **Broncos make CB Patrick Surtain II NFL's highest-paid DB**\
-`The Broncos selected Surtain with the ninth overall pick in the 2022 NFL Draft.`\
+`The Broncos selected Surtain with the ninth pick in the 2021 NFL Draft.`\
 https://nytimes.com/athletic/5744204/2024/09/04/patrick-surtain-broncos-contract-extension/
 
 **Luca Guadagnino Gets Crafty**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/04/us/phoenix-100-days-heat-record.html
 **Q&A: Giants legend Eli Manning talks Malik Nabers, Hall of Fame prospects and more**\
 `A lot of people want to compare Nabers to another former Giants/LSU star in Odell Beckham Jr. Does Manning see any similarities? `\
 https://nytimes.com/athletic/5735400/2024/09/04/eli-manning-new-york-giants-malik-nabers-hall-of-fame/
-
-**Our Granddaughter’s Boyfriend Is Too Old for Her. What Can We Do?**\
-`A reader and her husband are united in disapproval of the 14-year age gap in their granddaughter’s relationship. What they don’t agree on is whether to invite him to dinner.`\
-https://nytimes.com/2024/09/04/style/age-gap-relationships.html
 
