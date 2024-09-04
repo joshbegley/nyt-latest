@@ -1,3 +1,15 @@
+**Zelensky pushes ahead with sweeping overhaul of his cabinet.**\
+`By Marc Santora and Maria Varenikova`\
+https://nytimes.com/live/2024/09/04/world/ukraine-russia-missile-attacks/zelensky-pushes-ahead-with-sweeping-overhaul-of-his-cabinet
+
+**Russia Imprisons Top Physicists, Even as Putin Touts Their Technology**\
+`A Moscow court sentenced Alexander Shiplyuk, the director of a physics institute who specializes in hypersonic flight, to 15 years in prison. It was the latest treason case against a leading scientist.`\
+https://nytimes.com/2024/09/04/world/europe/russia-imprisons-top-scientists.html
+
+**House Republicans Subpoena Walz Over $250 Million Covid Relief Fraud**\
+`The move was the latest sign that House Republicans were pivoting from investigating and attacking President Biden to take aim at the new Democratic ticket.`\
+https://nytimes.com/2024/09/04/us/politics/walz-republicans-subpoena-covid-fraud.html
+
 **Seashell Art Is Shedding Its Kitschy Reputation**\
 `No longer confined to beachy souvenir shops, works encrusted with oysters and mussels are showing up in galleries and interiors.`\
 https://nytimes.com/2024/09/04/t-magazine/shell-art.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/04/world/europe/ukraine-poltava-missiles-military-ac
 **J. Richard Munro, Who Oversaw the Creation of Time Warner, Dies at 93**\
 `As president and C.E.O., he expanded Time Inc.’s offerings, fended off a hostile takeover and built the world’s largest media company.`\
 https://nytimes.com/2024/09/04/business/media/j-richard-munro-dead.html
-
-**Gaudreau's teammates share their 'anger, sadness, disbelief'**\
-`"As a team, we're going to get through this," Blue Jackets captain Boone Jenner said of teammate Johnny Gaudreau's death.`\
-https://nytimes.com/athletic/5745174/2024/09/04/gaudreau-blue-jackets-reaction-teammates/
-
-**Anna Sorokin Goes From High-Society Impersonator to ‘Dancing With the Stars’**\
-`The woman who impersonated a German heiress will reprise her false identity on season 33 of the show, becoming the latest contestant with legal or other troubles.`\
-https://nytimes.com/2024/09/04/arts/television/anna-delvey-dancing-with-the-stars.html
-
-**'Spain is not racist', says manager De la Fuente**\
-`Luis de la Fuente says that Spain is &#8220;not racist&#8221; after Real Madrid forward Vinicius Junior suggested the nation should be stripped of hosting the 2030 World Cup unless it improves its record on fighting racism.`\
-https://nytimes.com/athletic/5745141/2024/09/04/vinicius-junior-de-la-fuente-spain-racism/
 
