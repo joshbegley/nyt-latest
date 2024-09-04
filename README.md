@@ -1,3 +1,7 @@
+**Here’s Why Stock Indexes Sank on Tuesday**\
+`The market drop was primarily focused on Nvidia and other tech companies.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/stock-market-nvidia
+
 **Russia Launches Deadly Missile and Drone Attacks on Ukraine**\
 `At least seven people were killed in the western Ukrainian city of Lviv, a day after a devastating attack on the eastern city of Poltava left dozens of others dead.`\
 https://nytimes.com/video/world/europe/100000009672829/lviv-ukraine-russian-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5733955/2024/09/04/victor-osimhen-galatasaray-napol
 **With New Taliban Manifesto, Afghan Women Fear the Worst**\
 `Three years into its rule, the movement has codified its harsh Islamic decrees into law that now includes a ban on women’s voices in public.`\
 https://nytimes.com/2024/09/04/world/asia/women-taliban-prohibitions-afghanistan.html
-
-**Shooting at Georgia High School Leaves Multiple Casualties, Officials Say**\
-`A suspect was in custody after the shooting on Wednesday morning at Apalachee High School  in Winder, Ga., the Georgia Bureau of Investigation said.`\
-https://nytimes.com/2024/09/04/us/apalachee-high-school-shooting-lockdown.html
 
