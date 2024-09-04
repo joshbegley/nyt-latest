@@ -1,3 +1,11 @@
+**Teen charged in Pearsall shooting case appears in court**\
+`The next hearing will take place Sept. 10 and a potential trial must begin, by law, within 15 days of Wednesday.`\
+https://nytimes.com/athletic/5745766/2024/09/04/ricky-pearsall-shooting-teen-charges/
+
+**Rams' Matthew Stafford and Jonah Jackson discuss new QB/center combo, return to Detroit**\
+`Stafford spent 12 seasons in Detroit and Jackson played his first four seasons there before signing with the Rams this offseason.`\
+https://nytimes.com/athletic/5745254/2024/09/04/rams-matthew-stafford-jonah-jackson-detroit-lions/
+
 **Raiders' Davante Adams says rumors he's unhappy 'a bunch of B.S.'**\
 `Adams shut down comments made by former NFL receiver DeSean Jackson on “The Herd” last month.`\
 https://nytimes.com/athletic/5745848/2024/09/04/davante-adams-raiders-rumors-future/

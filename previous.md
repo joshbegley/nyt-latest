@@ -1,3 +1,11 @@
+**Teen charged in Pearsall shooting case appears in court**\
+`The next hearing will take place Sept. 10 and a potential trial must begin, by law, within 15 days of Wednesday.`\
+https://nytimes.com/athletic/5745766/2024/09/04/ricky-pearsall-shooting-teen-charges/
+
+**Rams' Matthew Stafford and Jonah Jackson discuss new QB/center combo, return to Detroit**\
+`Stafford spent 12 seasons in Detroit and Jackson played his first four seasons there before signing with the Rams this offseason.`\
+https://nytimes.com/athletic/5745254/2024/09/04/rams-matthew-stafford-jonah-jackson-detroit-lions/
+
 **Raiders' Davante Adams says rumors he's unhappy 'a bunch of B.S.'**\
 `Adams shut down comments made by former NFL receiver DeSean Jackson on “The Herd” last month.`\
 https://nytimes.com/athletic/5745848/2024/09/04/davante-adams-raiders-rumors-future/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/04/us/texas-voter-registration-paxton-bexar.html
 **The Secrets of an Unassuming N.Y. Official Accused of Working for China**\
 `Linda Sun, a former deputy chief of staff to Gov. Kathy Hochul, used her growing influence to push the interests of the Chinese government, U.S. prosecutors say.`\
 https://nytimes.com/2024/09/04/nyregion/linda-sun-chinese-agent-ny-capitol.html
-
-**Winder, a Rural, Middle-Class City in Georgia, Is in a Rapidly Developing Area**\
-`The site of a school shooting is in a county that has nearly doubled in population since 2000, according to census data.`\
-https://nytimes.com/2024/09/04/us/winder-georgia-demographics.html
-
-**RFK Racing progressing to expanding to 3 NASCAR Cup teams**\
-`The move would likely include bringing aboard Kroger as a team-wide sponsor for all three cars and signing driver Ryan Preece.`\
-https://nytimes.com/athletic/5745776/2024/09/04/rfk-racing-nascar-teams-expansion/
 
