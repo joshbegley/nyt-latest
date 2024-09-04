@@ -2,8 +2,8 @@
 `Inter Miami has announced that they will play home games at Miami Freedom Park from 2026.`\
 https://nytimes.com/athletic/5744365/2024/09/04/inter-miami-freedom-park-stadium/
 
-**Ukraine’s Top Diplomat Became a Familiar Face as He Rallied Wartime Support**\
-`Dmytro Kuleba, who was among several Ukrainian officials who offered to resign on Wednesday, lobbied forcefully for Kyiv’s allies to supply Patriot missile defense systems.`\
+**Ukraine’s Top Diplomat Has Become a Familiar Face, Rallying Wartime Support**\
+`Dmytro Kuleba has lobbied Kyiv’s allies to supply missile defense systems. He was among several Ukrainian ministers who offered to resign on Wednesday, an official said.`\
 https://nytimes.com/2024/09/04/world/europe/ukraine-foreign-minister-kuleba-resignation.html
 
 **Submit your questions for Corey Pronman's mailbag**\
