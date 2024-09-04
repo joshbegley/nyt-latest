@@ -1,3 +1,7 @@
+**A cabinet shake-up suggests Zelensky is planning for ‘a new phase of the war,’ analysts say.**\
+`By Marc Santora and Maria Varenikova`\
+https://nytimes.com/live/2024/09/04/world/ukraine-russia-missile-attacks/a-cabinet-shake-up-suggests-zelensky-is-planning-for-a-new-phase-of-the-war-analysts-say
+
 **Iran Emerges as a Top Disinformation Threat in U.S. Presidential Race**\
 `With a flurry of hacks and fake websites, Iran has intensified its efforts to discredit American democracy and possibly tip the race against former President Donald Trump.`\
 https://nytimes.com/2024/09/04/business/media/iran-disinformation-us-presidential-race.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/04/dining/earthy-eggplant-that-whispers-of-summer-an
 **Inter Miami games to be played at Miami Freedom Park in 2026**\
 `Inter Miami has announced that they will play home games at Miami Freedom Park from 2026.`\
 https://nytimes.com/athletic/5744365/2024/09/04/inter-miami-freedom-park-stadium/
-
-**Ukraine’s Top Diplomat Has Become a Familiar Face, Rallying Wartime Support**\
-`Dmytro Kuleba has lobbied Kyiv’s allies to supply missile defense systems. He was among several Ukrainian ministers who offered to resign on Wednesday, an official said.`\
-https://nytimes.com/2024/09/04/world/europe/ukraine-foreign-minister-kuleba-resignation.html
 
