@@ -1,3 +1,7 @@
+**Aryna Sabalenka powers past Zheng Qinwen to reach U.S. Open semifinals**\
+`This was not a repeat of the Australian Open final rout — Zheng's serve let her down badly.`\
+https://nytimes.com/athletic/5743250/2024/09/03/sabalenka-zheng-us-open-result/
+
 **Kennedy must remain on the ballot in Michigan, a judge rules.**\
 `Mr. Kennedy had been nominated by a minor party in Michigan, making it easier for him to get on the ballot. A judge said that also makes it harder for him to get off the ballot too.`\
 https://nytimes.com/live/2024/09/03/us/harris-trump-election/kennedy-must-remain-on-the-ballot-in-michigan-a-judge-rules
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/03/world/africa/uganda-bobi-wine-shot.html
 **Full Time: How NWSL free agency will work**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter. `\
 https://nytimes.com/athletic/5742184/2024/09/03/nwsl-free-agency-trades-orlando-pride-full-time/
-
-**Cubs get good news on Justin Steele's elbow, avoid injured list stint for now**\
-`As important as it is for them to try to make a run this month they also know that Steele’s health is critical to their success beyond 2024.`\
-https://nytimes.com/athletic/5743123/2024/09/03/cubs-justin-steele-elbow-update-positive/
 
