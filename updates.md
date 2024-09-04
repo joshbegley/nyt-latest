@@ -1,3 +1,7 @@
+**Aftermath of Military Academy Strike Drains Ukraine’s Seasoned Rescuers**\
+`Repeated air-raid alerts have punctuated the search through the rubble in Poltava, in eastern Ukraine, after an attack that killed more than 50 people.`\
+https://nytimes.com/2024/09/04/world/europe/ukraine-poltava-strike-aftermath.html
+
 **Barcelona's Fermin set for three weeks out with hamstring injury**\
 `Barcelona midfielder Fermin Lopez is set to miss three weeks with a hamstring injury.`\
 https://nytimes.com/athletic/5743799/2024/09/04/fermin-lopez-barcelona-injury/
