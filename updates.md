@@ -1,3 +1,7 @@
+**We Have Reached the Scrounging-for-Scandals Phase of the Campaign**\
+`The false “stolen valor” claim isn’t sticking, but that hasn’t stopped conservatives from using it.`\
+https://nytimes.com/2024/09/04/opinion/scandals-trump-harris.html
+
 **Greenberg and Jackson: Riding with Deion's team, 3-point favorites plus NFL futures picks**\
 `Zac Jackson went 3-0 in his college Week 1 bets, but the NFL is here so Jon Greenberg is hoping to make up the ground.`\
 https://nytimes.com/athletic/5745626/2024/09/04/greenberg-and-jackson-nfl-futures-colorado-survivor/
