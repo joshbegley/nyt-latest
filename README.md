@@ -11,7 +11,7 @@ https://nytimes.com/2024/09/04/crosswords/spelling-bee-forum.html
 https://nytimes.com/2024/09/04/learning/summer-bucket-list.html
 
 **Here are the latest developments.**\
-`By Victoria Kim and Marc Santora`\
+`By Victoria Kim, Marc Santora and Andrew E. Kramer`\
 https://nytimes.com/live/2024/09/04/world/ukraine-russia-missile-attacks/here-are-the-latest-developments
 
 **Live Updates: Ukraine’s Foreign Minister Offers to Resign as Zelensky Plans Cabinet Shake-Up**\
