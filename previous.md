@@ -22,7 +22,7 @@ https://nytimes.com/athletic/5742762/2024/09/04/f1-las-vegas-gp-2024-ferrari-cha
 `Washington State Patrol officers arrested a suspect in the string of shootings, which occurred late on Labor Day along a stretch of Interstate 5.`\
 https://nytimes.com/2024/09/04/us/seattle-washington-shootings-i5.html
 
-**On the eve of Week 1, the 49ers emerge from a summer of crises**\
+**Kawakami: On the eve of Week 1, the 49ers emerge from a summer of crises**\
 `Brandon Aiyuk after his first practice this season: "I'm super-excited, feeling fresh, kind of renewed. Coming with new energy."`\
 https://nytimes.com/athletic/5742752/2024/09/04/49ers-ricky-pearsall-brandon-aiyuk-trent-williams-kawakami/
 
