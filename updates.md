@@ -1,3 +1,27 @@
+**Are the Blues a playoff team? Lineup projection, prospect evaluations, more: Mailbag, part 1**\
+`How will the Blues trim a crowded roster? Answering that and much more from our readers as the team gets ready for the start of camp.`\
+https://nytimes.com/athletic/5732748/2024/09/04/blues-roster-projections-prospect-evaluations/
+
+**Here’s the latest on the 2024 race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/09/04/us/harris-trump-election/heres-the-latest-on-the-2024-race
+
+**Election Live Updates: Trump Returns to Trail as Harris Campaigns in New Hampshire**\
+`Vice President Kamala Harris is set to propose a tax break for small businesses, and former President Donald J. Trump will hold a town hall event in Pennsylvania to air tonight on Fox News.`\
+https://nytimes.com/live/2024/09/04/us/harris-trump-election
+
+**Las Vegas GP adds Ferrari Challenge support race to schedule for 2024**\
+`The Las Vegas Grand Prix has added Ferrari Challenge to its race weekend schedule ahead of the second running of the Formula One race from Nov.`\
+https://nytimes.com/athletic/5742762/2024/09/04/f1-las-vegas-gp-2024-ferrari-challenge/
+
+**Shootings on Highway Near Seattle Injure 5 People**\
+`Washington State Patrol officers arrested a suspect in the string of shootings, which occurred late on Labor Day along a stretch of Interstate 5.`\
+https://nytimes.com/2024/09/04/us/seattle-washington-shootings-i5.html
+
+**On the eve of Week 1, the 49ers emerge from a summer of crises**\
+`Brandon Aiyuk after his first practice this season: "I'm super-excited, feeling fresh, kind of renewed. Coming with new energy."`\
+https://nytimes.com/athletic/5742752/2024/09/04/49ers-ricky-pearsall-brandon-aiyuk-trent-williams-kawakami/
+
 **How Tom Brady prepared for his Fox NFL broadcasting debut**\
 `Tom Brady spent the year asking questions and studying film — just in a very different way as he prepp for Sunday's debut on Fox's NFL crew.`\
 https://nytimes.com/athletic/5742638/2024/09/04/tom-brady-fox-nfl-broadcast-preparations/

@@ -1,3 +1,27 @@
+**Are the Blues a playoff team? Lineup projection, prospect evaluations, more: Mailbag, part 1**\
+`How will the Blues trim a crowded roster? Answering that and much more from our readers as the team gets ready for the start of camp.`\
+https://nytimes.com/athletic/5732748/2024/09/04/blues-roster-projections-prospect-evaluations/
+
+**Here’s the latest on the 2024 race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/09/04/us/harris-trump-election/heres-the-latest-on-the-2024-race
+
+**Election Live Updates: Trump Returns to Trail as Harris Campaigns in New Hampshire**\
+`Vice President Kamala Harris is set to propose a tax break for small businesses, and former President Donald J. Trump will hold a town hall event in Pennsylvania to air tonight on Fox News.`\
+https://nytimes.com/live/2024/09/04/us/harris-trump-election
+
+**Las Vegas GP adds Ferrari Challenge support race to schedule for 2024**\
+`The Las Vegas Grand Prix has added Ferrari Challenge to its race weekend schedule ahead of the second running of the Formula One race from Nov.`\
+https://nytimes.com/athletic/5742762/2024/09/04/f1-las-vegas-gp-2024-ferrari-challenge/
+
+**Shootings on Highway Near Seattle Injure 5 People**\
+`Washington State Patrol officers arrested a suspect in the string of shootings, which occurred late on Labor Day along a stretch of Interstate 5.`\
+https://nytimes.com/2024/09/04/us/seattle-washington-shootings-i5.html
+
+**On the eve of Week 1, the 49ers emerge from a summer of crises**\
+`Brandon Aiyuk after his first practice this season: "I'm super-excited, feeling fresh, kind of renewed. Coming with new energy."`\
+https://nytimes.com/athletic/5742752/2024/09/04/49ers-ricky-pearsall-brandon-aiyuk-trent-williams-kawakami/
+
 **NL playoff contenders' biggest concern and key X-factor to watch down the stretch**\
 `What will be the difference-making variables for postseason contenders in the final weeks of the regular season and into October?`\
 https://nytimes.com/athletic/5742781/2024/09/04/mlb-playoffs-nl-contenders-concerns-x-factors/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5743089/2024/09/04/houston-rockets-jalen-green-fan-
 **The Black List Helped Reshape Hollywood. Can It Change Publishing?**\
 `Almost 20 years after Franklin Leonard created the Black List, which has helped little-known screenwriters break into Hollywood, it is expanding into fiction.`\
 https://nytimes.com/2024/09/04/books/the-black-list-publishing.html
-
-**Mexico’s Lower House of Congress Approves President’s Judicial Overhaul**\
-`The vote was the first step toward shifting the country to a system in which nearly every judge would be elected to office. The bill now moves to the Senate.`\
-https://nytimes.com/2024/09/04/world/americas/mexico-lower-congress-approve-judicial-overhaul.html
-
-**Slowdown Déjà Vu Rattles Global Markets**\
-`Investors sent technology stocks and other assets tumbling on concerns that the U.S. economy could be headed for a hard landing.`\
-https://nytimes.com/2024/09/04/business/dealbook/slowdown-worries-stocks-markets.html
-
-**Brad Keselowski on what sparked the infamous 2014 Texas brawl and more: 12 Questions**\
-`Ahead of the 2024 playoffs, Brad Keselowski talks about a run-in with Kevin Harvick, how hard it is to drive in NASCAR and more.`\
-https://nytimes.com/athletic/5740133/2024/09/04/brad-keselowski-nascar-texas-brawl-12-questions/
-
-**Mediators Pushing to Bridge Gaps in Gaza Cease-Fire Plan, Officials Say**\
-`The latest proposals have yet to be finalized, and both Israeli officials and Hamas leaders have expressed pessimism over the prospects for an agreement.`\
-https://nytimes.com/2024/09/04/world/middleeast/israel-hamas-gaza-ceasefire.html
-
-**How Tom Brady prepared for his Fox NFL broadcasting debut**\
-`Tom Brady spent the year asking questions and studying film — just in a very different way as he prepp for Sunday's debut on Fox's NFL crew.`\
-https://nytimes.com/athletic/5742638/2024/09/04/tom-brady-fox-nfl-broadcast-preparations/
-
-**What we're seeing from the Raiders: Gardner Minshew's volatility and other observations**\
-`Minshew may have won the Raiders' starting QB job over Aidan O'Connell, but he'll have to improve his consistency to keep it. `\
-https://nytimes.com/athletic/5734668/2024/09/04/las-vegas-raiders-preview-gardner-minshew/
 
