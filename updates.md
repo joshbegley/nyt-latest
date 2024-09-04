@@ -1,3 +1,7 @@
+**Bears 'Hard Knocks' takeaways: Ryan Poles' emotion comes through in final episode**\
+`The Bears did allow HBO to show players getting cut, and players making the team and practice squad in the final episode of the season.`\
+https://nytimes.com/athletic/5743536/2024/09/03/bears-hard-knocks-finale-ryan-poles/
+
 **U.S. Market Slump Sparks Global Sell-Off**\
 `A sharp decline in major U.S. stock indexes reverberated through Asia on Wednesday, with investors still rattled by last month’s market meltdown.`\
 https://nytimes.com/2024/09/03/business/japan-stocks-us-economy.html
