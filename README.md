@@ -1,3 +1,15 @@
+**Why Trump’s Unity Picks Are Not Very Unifying**\
+`Trump is betting that the political fringe will help him win.`\
+https://nytimes.com/2024/09/04/us/politics/trump-rfk-jr-gabbard-musk.html
+
+**Mother and Daughter Endure Lockdowns in Separate Schools After Georgia Shooting**\
+`Anetra Pattman was teaching class when her daughter texted: “Mom, I heard gunshots. I’m scared. Please come get me.”`\
+https://nytimes.com/2024/09/04/us/georgia-apalachee-high-shooting-witness.html
+
+**Texas Attorney General Sues to Stop Voter Registration Push in San Antonio**\
+`The suit is the newest front in an escalating conflict over elections between the Republicans who dominate state government and the Democrats who control the state’s major cities.`\
+https://nytimes.com/2024/09/04/us/texas-voter-registration-paxton-bexar.html
+
 **The Secrets of an Unassuming N.Y. Official Accused of Working for China**\
 `Linda Sun, a former deputy chief of staff to Gov. Kathy Hochul, used her growing influence to push the interests of the Chinese government, U.S. prosecutors say.`\
 https://nytimes.com/2024/09/04/nyregion/linda-sun-chinese-agent-ny-capitol.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/04/us/politics/harris-trump-debate-microphones.html
 **Tearful Torey Krug opens up about career-threatening surgery that ex-Blues doctor calls 'Hail Mary'**\
 `Krug on deciding to undergo the surgery: "It was one of those things where you realize it wasn't going to work. We had to make plans."`\
 https://nytimes.com/athletic/5744174/2024/09/04/blues-torey-krug-ankle-surgery/
-
-**Liz Cheney Says She Will Vote for Kamala Harris**\
-`Ms. Cheney, once a member of House Republican leadership, lost her seat after she voted to impeach then-President Donald J. Trump after the attack on the Capitol on Jan. 6, 2021.`\
-https://nytimes.com/2024/09/04/us/politics/liz-cheney-kamala-harris-vote.html
-
-**Students and teachers huddled in fear as the gunfire rang out.**\
-`By Alessandro Marazzi Sassoon, Richard Fausset and Rick Rojas`\
-https://nytimes.com/live/2024/09/04/us/georgia-shooting-apalachee-high-school/students-and-teachers-huddled-in-fear-as-the-gunfire-rang-out
-
-**Families of Patients Who Died Sue Hospital After Fentanyl Was Swapped With Water**\
-`The tap water was placed in the intravenous drips of patients at a hospital in Medford, Ore., causing bacterial infections.`\
-https://nytimes.com/2024/09/04/us/oregon-nurse-fentanyl-theft-lawsuit.html
 
