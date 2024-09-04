@@ -1,3 +1,7 @@
+**Karolina Muchova's U.S. Open run reminds the world of the beauty of her game**\
+`Returning from a serious wrist injury, last year's U.S. Open semifinalist is reminding the tennis world of the beauty of her game.`\
+https://nytimes.com/athletic/5733246/2024/09/04/karolina-muchova-us-open-comeback-womens-tennis/
+
 **If Rodri is Real Madrid's next public transfer target then this is how it usually goes**\
 `Rodri appeared on the front cover of Spanish sports daily AS on Wednesday. This is what tends to follow...`\
 https://nytimes.com/athletic/5744831/2024/09/04/rodri-real-madrid-city-transfer/
