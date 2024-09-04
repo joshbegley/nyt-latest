@@ -3,7 +3,7 @@
 https://nytimes.com/2024/09/04/world/europe/italy-migrants-missing-libya.html
 
 **Four People Were Killed in a School Shooting in Georgia**\
-`Also, Zelensky is preparing to shake-up his cabinet. Here’s the latest at the end of Wednesday.`\
+`Also, Zelensky is preparing to shake up his cabinet. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/09/04/briefing/georgia-school-shooting-ukraine-cabinet-changes.html
 
 **Internet Archive Loses Court Appeal in Fight Over Online Lending Library**\
