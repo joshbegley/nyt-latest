@@ -30,8 +30,8 @@ https://nytimes.com/2024/09/04/business/media/j-richard-munro-dead.html
 `"As a team, we're going to get through this," Blue Jackets captain Boone Jenner said of teammate Johnny Gaudreau's death.`\
 https://nytimes.com/athletic/5745174/2024/09/04/gaudreau-blue-jackets-reaction-teammates/
 
-**Anna Delvey Goes From High-Society Impersonator to ‘Dancing With the Stars’**\
-`Ms. Delvey will reprise her false identity on season 33 of the show, becoming the latest contestant with legal or other troubles.`\
+**Anna Sorokin Goes From High-Society Impersonator to ‘Dancing With the Stars’**\
+`The woman who impersonated a German heiress will reprise her false identity on season 33 of the show, becoming the latest contestant with legal or other troubles.`\
 https://nytimes.com/2024/09/04/arts/television/anna-delvey-dancing-with-the-stars.html
 
 **'Spain is not racist', says manager De la Fuente**\
