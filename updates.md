@@ -1,3 +1,11 @@
+**Tearful Torey Krug opens up about career-threatening surgery that ex-Blues doctor calls 'Hail Mary'**\
+`Krug on deciding to undergo the surgery: "It was one of those things where you realize it wasn't going to work. We had to make plans."`\
+https://nytimes.com/athletic/5744174/2024/09/04/blues-torey-krug-ankle-surgery/
+
+**Families of Patients Who Died Sue Hospital After Fentanyl Was Swapped With Water**\
+`The tap water was placed in the intravenous drips of patients at a hospital in Medford, Ore., causing bacterial infections.`\
+https://nytimes.com/2024/09/04/us/oregon-nurse-fentanyl-theft-lawsuit.html
+
 **Texas Attorney General Sues to Stop Voter Registration Push in San Antonio**\
 `The suit is the newest front in an escalating conflict over elections between the Republicans who dominate state government and the Democrats who control the state’s major cities.`\
 https://nytimes.com/2024/09/04/us/texas-voter-registration-paxton-bexar.html
