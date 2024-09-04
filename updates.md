@@ -1,3 +1,16 @@
+**At first, students thought a lockdown was a drill. Then, they heard gunshots.**\
+`By Alessandro Marazzi Sassoon and Rick Rojas`\
+https://nytimes.com/live/2024/09/04/us/georgia-shooting-apalachee-high-school/at-first-students-thought-lockdown-was-a-drill-then-they-heard-gunshots
+
+**Ballon d’Or 2024 shortlist: Foden and Bellingham among nominees**\
+`The shortlists for the 2024 Ballon d’Or have been announced, with Cole Palmer, Bukayo Saka, Jude Bellingham and Vinicius Jr among the nominees for the men&#8217;s award.`\
+https://nytimes.com/athletic/5743852/2024/09/04/ballon-dor-2024-shortlist/
+
+**Submit your questions for Antonio Morales’ USC football mailbag**\
+`<p><a class="ath_autolink" data-id="252" href="https://www.nytimes.com/athletic/college-football/team/usc-trojans-college-football/">USC</a> is fresh off of its biggest win in years. Submit your questions for Antonio below and we will post his answers later this week.</p>
+`\
+https://nytimes.com/athletic/5745200/2024/09/04/submit-your-questions-for-antonio-morales-usc-football-mailbag-9/
+
 **Chase practices with Bengals amid contract dispute**\
 `Wednesday marked the first time Ja'Marr Chase took part in a practice open to media this offseason.`\
 https://nytimes.com/athletic/5745035/2024/09/04/jamarr-chase-bengals-practice/
