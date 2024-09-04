@@ -1,3 +1,7 @@
+**Villa refuse request from fan advisory board to cap Champions League ticket prices**\
+`Aston Villa refused a request from their own fan advisory board (FAB) to cap the price of Champions League tickets with the cheapest adult entry now starting at £70.`\
+https://nytimes.com/athletic/5744092/2024/09/04/aston-villa-champions-league-ticket-prices/
+
 **Projecting possible Oilers waiver targets before the start of the season**\
 `Will the Oilers use that rare quiver and select a player on waivers this fall? It might be time.`\
 https://nytimes.com/athletic/5739859/2024/09/04/edmonton-oilers-waiver-targets-2024/
