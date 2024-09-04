@@ -1,3 +1,11 @@
+**Brain Games: Managing Ja'Marr Chase, banking on boring running backs and more Week 1 thoughts**\
+`Should you feel comfortable starting Ja'Marr Chase in Week 1? Renee Miller shares her thoughts on the Cincinnati receiver and more.`\
+https://nytimes.com/athletic/5744957/2024/09/04/fantasy-football-2024-brain-games-week-1/
+
+**Las Vegas Places a Bet on a New Art Museum, With Help From L.A.**\
+`The city agreed to give land to a museum championed by the casino magnate Elaine Wynn, which will be a partnership with the Los Angeles County Museum of Art.`\
+https://nytimes.com/2024/09/04/arts/design/las-vegas-art-museum.html
+
 **‘Terminator Zero’ Reinvigorates a Weary Franchise**\
 `The Netflix anime series channels familiar themes without feeling like a retread.`\
 https://nytimes.com/2024/09/04/arts/television/terminator-zero-netflix.html

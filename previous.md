@@ -1,3 +1,11 @@
+**Brain Games: Managing Ja'Marr Chase, banking on boring running backs and more Week 1 thoughts**\
+`Should you feel comfortable starting Ja'Marr Chase in Week 1? Renee Miller shares her thoughts on the Cincinnati receiver and more.`\
+https://nytimes.com/athletic/5744957/2024/09/04/fantasy-football-2024-brain-games-week-1/
+
+**Las Vegas Places a Bet on a New Art Museum, With Help From L.A.**\
+`The city agreed to give land to a museum championed by the casino magnate Elaine Wynn, which will be a partnership with the Los Angeles County Museum of Art.`\
+https://nytimes.com/2024/09/04/arts/design/las-vegas-art-museum.html
+
 **‘Terminator Zero’ Reinvigorates a Weary Franchise**\
 `The Netflix anime series channels familiar themes without feeling like a retread.`\
 https://nytimes.com/2024/09/04/arts/television/terminator-zero-netflix.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000009673329/georgia-school-shooting.html
 **Gomes: England call-up makes 'difficult' Man United exit worth it**\
 `Angel Gomes says receiving his first senior England call-up makes the difficulty of leaving Manchester United worth it.`\
 https://nytimes.com/athletic/5744639/2024/09/04/england-angel-gomes-man-united/
-
-**Hunter Biden’s Legal Woes Return to Spotlight Ahead of Tax Trial**\
-`As both sides prepare for the start of jury selection on Thursday, there are no indications that any deal is likely, according to several people with knowledge of the situation.`\
-https://nytimes.com/2024/09/04/us/politics/hunter-biden-tax-trial.html
-
-**Trump Buried the Hatchet With Brian Kemp. Will He Dig It Up Again?**\
-`Donald Trump needs to win Georgia. That probably means he needs to keep a fragile peace with its popular Republican governor, even as election denialism again courses through the state.`\
-https://nytimes.com/2024/09/04/us/politics/trump-brian-kemp-georgia.html
 
