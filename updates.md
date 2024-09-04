@@ -1,3 +1,7 @@
+**Sexual assault suit against McManus dismissed, plaintiffs can refile**\
+`The attorney representing the two women in the case said they plan to file an amended complaint, per multiple reports.`\
+https://nytimes.com/athletic/5743183/2024/09/03/brandon-mcmanus-sexual-assault-lawsuit-dismissed/
+
 **How 49ers' Trent Williams forfeited millions in fines — and cashed in big time**\
 `Williams was fined at least $2 million — potentially up to $4 million — but the new guaranteed dollars in his deal more than made up for it.`\
 https://nytimes.com/athletic/5742856/2024/09/03/trent-williams-49ers-contract-fines-holdout/

@@ -1,3 +1,7 @@
+**Sexual assault suit against McManus dismissed, plaintiffs can refile**\
+`The attorney representing the two women in the case said they plan to file an amended complaint, per multiple reports.`\
+https://nytimes.com/athletic/5743183/2024/09/03/brandon-mcmanus-sexual-assault-lawsuit-dismissed/
+
 **Canadiens' Cole Caufield to wear No. 13 in honor of Johnny Gaudreau**\
 `Caufield said he'll be changing his number from 22 to 13 this season to honor Gaudreau, who was killed last Thursday in a traffic crash.`\
 https://nytimes.com/athletic/5743396/2024/09/03/cole-caufield-johnny-gaudreau-jersey/
@@ -34,8 +38,4 @@ https://nytimes.com/interactive/2024/09/03/technology/zoox-self-driving-cars-rem
 **Aryna Sabalenka powers past Zheng Qinwen to reach U.S. Open semifinals**\
 `This was not a simple repeat of the Australian Open final rout — Zheng's serve, her key weapon, let her down badly.`\
 https://nytimes.com/athletic/5743250/2024/09/03/sabalenka-zheng-us-open-result/
-
-**Kennedy must remain on the ballot in Michigan, a judge rules.**\
-`Mr. Kennedy had been nominated by a minor party in Michigan, making it easier for him to get on the ballot. A judge said that also makes it harder for him to get off the ballot too.`\
-https://nytimes.com/live/2024/09/03/us/harris-trump-election/kennedy-must-remain-on-the-ballot-in-michigan-a-judge-rules
 
