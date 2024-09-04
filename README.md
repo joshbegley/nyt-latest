@@ -1,3 +1,7 @@
+**Pedro Almodóvar, Julianne Moore and Tilda Swinton on ‘The Room Next Door’**\
+`The director’s first English-language feature inspires talk of beauty, hope and more collaborations.`\
+https://nytimes.com/2024/09/04/movies/pedro-almodovar-julianne-moore-tilda-swinton-the-room-next-door-venice.html
+
 **Lions fan survey results: Confidence is running high in Motor City**\
 `Lions fans are feeling really good about the state of the team.`\
 https://nytimes.com/athletic/5740161/2024/09/04/detroit-lions-fan-survey-results-confidence-is-running-high-in-motor-city/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/04/movies/joker-folie-a-deux-venice-film-festival-jo
 **Paz, Martin, Zidane and Co - Madrid's academy exits and how they fit into club's youth policy**\
 `Madrid have let plenty of youngsters go this summer, so what's the thinking behind it?`\
 https://nytimes.com/athletic/5743848/2024/09/04/real-madrid-youth-paz-martin/
-
-**Phoenix Marks 100 Straight Days of 100-Degree Temperatures**\
-`The city reached the sweaty milestone on Tuesday. The previous record of 76 straight days was set in 1993.`\
-https://nytimes.com/2024/09/04/us/phoenix-100-days-heat-record.html
 
