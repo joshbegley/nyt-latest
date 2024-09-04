@@ -1,3 +1,11 @@
+**Houston Rockets fan survey: What does the next phase look like?**\
+`Share your thoughts on the state of the Rockets heading into the 2024-25 season.`\
+https://nytimes.com/athletic/5743089/2024/09/04/houston-rockets-jalen-green-fan-survey/
+
+**The Black List Helped Reshape Hollywood. Can It Change Publishing?**\
+`Almost 20 years after Franklin Leonard created the Black List, which has helped little-known screenwriters break into Hollywood, it is expanding into fiction.`\
+https://nytimes.com/2024/09/04/books/the-black-list-publishing.html
+
 **Mexico’s Lower House of Congress Approves President’s Judicial Overhaul**\
 `The vote was the first step toward shifting the country to a system in which nearly every judge would be elected to office. The bill now moves to the Senate.`\
 https://nytimes.com/2024/09/04/world/americas/mexico-lower-congress-approve-judicial-overhaul.html
