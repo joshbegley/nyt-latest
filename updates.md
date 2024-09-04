@@ -1,3 +1,11 @@
+**NL playoff contenders' biggest concern and key X-factor to watch down the stretch**\
+`What will be the difference-making variables for postseason contenders in the final weeks of the regular season and into October?`\
+https://nytimes.com/athletic/5742781/2024/09/04/mlb-playoffs-nl-contenders-concerns-x-factors/
+
+**Giants call up Marco Luciano, and for better or worse, adjust their focus in September**\
+`The Giants also recalled outfielder Luis Matos and will continue to give opportunities to other young players as the season winds down.`\
+https://nytimes.com/athletic/5743756/2024/09/04/giants-marco-luciano-call-up/
+
 **Houston Rockets fan survey: What does the next phase look like?**\
 `Share your thoughts on the state of the Rockets heading into the 2024-25 season.`\
 https://nytimes.com/athletic/5743089/2024/09/04/houston-rockets-jalen-green-fan-survey/
