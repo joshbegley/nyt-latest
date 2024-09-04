@@ -1,3 +1,7 @@
+**Attacks Kill at Least 3 in Western Ukraine’s Lviv Amid Wide Bombardment**\
+`People in a swath of Ukraine were urged to take shelter as drones and missiles flew toward a number of cities a day after a devastating attack in the country’s east.`\
+https://nytimes.com/2024/09/04/world/europe/russia-attack-ukraine-lviv.html
+
 **Quotation of the Day: Extreme Weather Is Increasing Risk of Collapse for U.S. Bridges**\
 `Quotation of the Day for Wednesday, September 4, 2024.`\
 https://nytimes.com/2024/09/04/pageoneplus/quotation-of-the-day-extreme-weather-is-increasing-risk-of-collapse-for-us-bridges.html

@@ -1,3 +1,7 @@
+**Attacks Kill at Least 3 in Western Ukraine’s Lviv Amid Wide Bombardment**\
+`People in a swath of Ukraine were urged to take shelter as drones and missiles flew toward a number of cities a day after a devastating attack in the country’s east.`\
+https://nytimes.com/2024/09/04/world/europe/russia-attack-ukraine-lviv.html
+
 **Quotation of the Day: Extreme Weather Is Increasing Risk of Collapse for U.S. Bridges**\
 `Quotation of the Day for Wednesday, September 4, 2024.`\
 https://nytimes.com/2024/09/04/pageoneplus/quotation-of-the-day-extreme-weather-is-increasing-risk-of-collapse-for-us-bridges.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5741928/2024/09/04/jack-eyers-para-canoe-mr-england
 **Leicester's PSR case hurt them this summer - now they have a fighting chance of staying up**\
 `Leicester won their appeal against the PSR verdict on Tuesday — this is what it means for the club this season`\
 https://nytimes.com/athletic/5742685/2024/09/04/leicester-city-psr-verdict-analysis/
-
-**Frances Tiafoe joins Taylor Fritz in U.S. Open semifinals after Dimitrov retires injured**\
-`An American man will contest the U.S. Open final, with Tiafoe facing Taylor Fritz in the semis.`\
-https://nytimes.com/athletic/5743597/2024/09/04/tiafoe-dimitrov-us-open-result/
 
