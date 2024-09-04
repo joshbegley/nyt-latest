@@ -1,3 +1,11 @@
+**Yankees noncommittal on Clay Holmes' closer role as he allows walk-off grand slam**\
+`"I'm not going to answer that right now when we're raw and emotional," manager Aaron Boone said when pressed on moving to a new closer.`\
+https://nytimes.com/athletic/5743624/2024/09/04/yankees-clay-holmes-allows-walk-off-grand-slam/
+
+**Ukraine’s Foreign Minister Offers to Resign as Zelensky Plans Major Shake-Up**\
+`President Volodymyr Zelensky is expected to make the broadest changes to his government since Russia invaded more than two years ago.`\
+https://nytimes.com/2024/09/04/world/europe/zelensky-cabinet-dmytro-kuleba-resignation.html
+
 **In Jakarta, Pope Praises Indonesia’s ‘Delicate Balance’ of Unity in Diversity**\
 `The pontiff said “mutual respect” was the key to harmony in the majority-Muslim country, where a pluralist tradition has been put to the test by extremist groups.`\
 https://nytimes.com/2024/09/04/world/asia/pope-francis-indonesia-jokowi.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5742425/2024/09/04/a-player-to-watch-for-each-nfl-t
 **FPL: Assessing the late transfer window movers**\
 `There were high-profile additions at Arsenal and Chelsea, while Ivan Toney leaving Brentford could have a knock-on effect`\
 https://nytimes.com/athletic/5741113/2024/09/04/fantasy-premier-league-transfer-window/
-
-**How Liverpool exploit the versatility of Gravenberch, Mac Allister and Szoboszlai**\
-`Arne Slot's organisation and seamless rotations between the three midfielders is a notable change from Jurgen Klopp's approach`\
-https://nytimes.com/athletic/5741415/2024/09/04/liverpool-midfield-slot-gravenberch-macallister-szoboszlai/
-
-**Crystal Palace bask in Cheick Doucoure's return - but patience is still required**\
-`The Mali midfielder was excellent as a second-half substitute in the draw at Chelsea as he finds form and fitness after an Achilles injury`\
-https://nytimes.com/athletic/5737799/2024/09/04/doucoure-palace-achilles-chelsea-wharton/
 
