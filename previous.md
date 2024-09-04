@@ -1,3 +1,11 @@
+**Commanders suspend employee for disparaging player comments**\
+`The team is conducting an internal investigation into the comments recorded by an undercover journalist.`\
+https://nytimes.com/athletic/5745161/2024/09/04/commanders-employee-video-comments-suspended/
+
+**A Campus Protest Movement Seeks to Regain Momentum but Faces Hurdles**\
+`Pro-Palestinian demonstrations appeared at some U.S. campuses, but new restrictions and a new set of students may slow momentum for the type of mass protests seen in the spring.`\
+https://nytimes.com/2024/09/04/us/campus-protests-columbia-penn-cornell-michigan.html
+
 **The Hurricane Season Was Supposed to Be Busy. What Happened?**\
 `An intermission in hurricanes across the Atlantic has people wondering where the predicted storms are.`\
 https://nytimes.com/2024/09/04/weather/hurricane-season-forecast-september.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/04/us/politics/barron-trump-nyu.html
 **Hamas Releases Hostage Video of Two Slain Israeli Captives**\
 `Release of the video of Carmel Gat, 40, and Alexander Lobanov, 32, appears designed to inflame divisions in Israel. In the past Hamas had denied taking hostages.`\
 https://nytimes.com/2024/09/04/world/middleeast/hamas-hostage-videos.html
-
-**Ukraine Names Candidates for Its New Cabinet in Major Overhaul**\
-`President Volodymyr Zelensky said that he was acting to bring a “new energy” to state institutions at an important diplomatic juncture.`\
-https://nytimes.com/2024/09/04/world/europe/ukraine-reshuffle-zelensky.html
-
-**Thursday Briefing: Ukraine Reshuffles its Government**\
-`Plus, Daniel Dae Kim takes a risk.`\
-https://nytimes.com/2024/09/04/briefing/ukraine-russia-disinformation-grenfell.html
 

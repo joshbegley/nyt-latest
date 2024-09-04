@@ -1,3 +1,11 @@
+**Commanders suspend employee for disparaging player comments**\
+`The team is conducting an internal investigation into the comments recorded by an undercover journalist.`\
+https://nytimes.com/athletic/5745161/2024/09/04/commanders-employee-video-comments-suspended/
+
+**A Campus Protest Movement Seeks to Regain Momentum but Faces Hurdles**\
+`Pro-Palestinian demonstrations appeared at some U.S. campuses, but new restrictions and a new set of students may slow momentum for the type of mass protests seen in the spring.`\
+https://nytimes.com/2024/09/04/us/campus-protests-columbia-penn-cornell-michigan.html
+
 **The Hurricane Season Was Supposed to Be Busy. What Happened?**\
 `An intermission in hurricanes across the Atlantic has people wondering where the predicted storms are.`\
 https://nytimes.com/2024/09/04/weather/hurricane-season-forecast-september.html
