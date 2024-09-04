@@ -1,3 +1,7 @@
+**FSU starts 0-2 despite NIL team budget of nearly $12 million**\
+`The Noles made a big investment in their defensive line this year with almost $2 million going to their starting front.`\
+https://nytimes.com/athletic/5745716/2024/09/04/florida-state-nil-team-budget-2024/
+
 **Why Trump’s Unity Picks Are Not Very Unifying**\
 `Trump is betting that the political fringe will help him win.`\
 https://nytimes.com/2024/09/04/us/politics/trump-rfk-jr-gabbard-musk.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5745626/2024/09/04/greenberg-and-jackson-nfl-future
 **Harris and Trump Campaigns Agree to Debate’s Microphone Rules**\
 `The microphones at the candidates’ debate next Tuesday will be muted when it’s not their turn to speak.`\
 https://nytimes.com/2024/09/04/us/politics/harris-trump-debate-microphones.html
-
-**Tearful Torey Krug opens up about career-threatening surgery that ex-Blues doctor calls 'Hail Mary'**\
-`Krug on deciding to undergo the surgery: "It was one of those things where you realize it wasn't going to work. We had to make plans."`\
-https://nytimes.com/athletic/5744174/2024/09/04/blues-torey-krug-ankle-surgery/
 

@@ -1,3 +1,7 @@
+**FSU starts 0-2 despite NIL team budget of nearly $12 million**\
+`The Noles made a big investment in their defensive line this year with almost $2 million going to their starting front.`\
+https://nytimes.com/athletic/5745716/2024/09/04/florida-state-nil-team-budget-2024/
+
 **Why Trump’s Unity Picks Are Not Very Unifying**\
 `Trump is betting that the political fringe will help him win.`\
 https://nytimes.com/2024/09/04/us/politics/trump-rfk-jr-gabbard-musk.html
