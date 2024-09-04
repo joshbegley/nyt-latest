@@ -1,3 +1,7 @@
+**As Phillies chase division title, they try to strike balance between wins and health**\
+`Wins are the priority, but staying healthy remains paramount, too. Harper injured his other elbow, but he and his manager say it's fine.`\
+https://nytimes.com/athletic/5745825/2024/09/04/phillies-division-title-wins-health/
+
 **Teen charged in Pearsall shooting case appears in court**\
 `The next hearing will take place Sept. 10 and a potential trial must begin, by law, within 15 days of Wednesday.`\
 https://nytimes.com/athletic/5745766/2024/09/04/ricky-pearsall-shooting-teen-charges/
