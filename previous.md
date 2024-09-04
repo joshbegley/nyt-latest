@@ -1,3 +1,7 @@
+**Barcelona's Fermin set for three weeks out with hamstring injury**\
+`Barcelona midfielder Fermin Lopez is set to miss three weeks with a hamstring injury.`\
+https://nytimes.com/athletic/5743799/2024/09/04/fermin-lopez-barcelona-injury/
+
 **Lamar Jackson isn't going to apologize for being Lamar Jackson**\
 `The two-time MVP is an NFL superstar hiding in plain sight, which is exactly how he wants it: "What you see from me is what you get."`\
 https://nytimes.com/athletic/5740582/2024/09/04/lamar-jackson-ravens-chiefs-patrick-mahomes/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/04/learning/do-you-get-the-september-scaries.html
 **The Far Right Threatens the Unity of Germany, and the West**\
 `Unfortunately, anti-immigrant populism is hardly to unique to Germany.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/far-right-elections-germany
-
-**How the Presidential Election Got This Close**\
-`Polarization doesn’t just pull us apart; it holds coalitions together.`\
-https://nytimes.com/2024/09/04/opinion/how-the-presidential-election-got-this-close.html
 
