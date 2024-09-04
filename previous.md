@@ -1,3 +1,7 @@
+**In Deciding When to Sentence Trump, Judge Faces ‘Impossible’ Task**\
+`Justice Juan M. Merchan has tried to treat Donald J. Trump like the hundreds of other defendants whose fates he has decided. But his decision could alter American history.`\
+https://nytimes.com/2024/09/04/nyregion/trump-hush-money-sentencing.html
+
 **Elton John Says a Serious Eye Infection Limited His Vision in One Eye**\
 `The entertainer said on social media that it would “take some time” before sight returned to his eye.`\
 https://nytimes.com/2024/09/04/arts/music/elton-john-vision-eye-infection.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/04/style/lisa-taddeo-three-women-series-starz.html
 **The Windup: The new Bash Brothers**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5744521/2024/09/04/oakland-as-lawrence-butler-brent-rooker-the-windup/
-
-**Atlanta United parts ways with Bocanegra**\
-`Atlanta United announced on Wednesday that the club has parted ways with vice president and technical director Carlos Bocanegra.`\
-https://nytimes.com/athletic/5744540/2024/09/04/atlanta-united-carlos-bocanegra/
 

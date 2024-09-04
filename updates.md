@@ -1,3 +1,7 @@
+**In Deciding When to Sentence Trump, Judge Faces ‘Impossible’ Task**\
+`Justice Juan M. Merchan has tried to treat Donald J. Trump like the hundreds of other defendants whose fates he has decided. But his decision could alter American history.`\
+https://nytimes.com/2024/09/04/nyregion/trump-hush-money-sentencing.html
+
 **Elton John Says a Serious Eye Infection Limited His Vision in One Eye**\
 `The entertainer said on social media that it would “take some time” before sight returned to his eye.`\
 https://nytimes.com/2024/09/04/arts/music/elton-john-vision-eye-infection.html
