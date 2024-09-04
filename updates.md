@@ -1,3 +1,7 @@
+**How Tom Brady prepared for his Fox NFL broadcasting debut**\
+`Tom Brady spent the year asking questions and studying film — just in a very different way as he preps for Sunday's debut on Fox's NFL crew.`\
+https://nytimes.com/athletic/5742638/2024/09/04/tom-brady-fox-nfl-broadcast-preparations/
+
 **Brad Keselowski on what sparked the infamous 2014 Texas brawl and more: 12 Questions**\
 `Ahead of the 2024 playoffs, Brad Keselowski talks about a run-in with Kevin Harvick, how hard it is to drive in NASCAR and more.`\
 https://nytimes.com/athletic/5740133/2024/09/04/brad-keselowski-nascar-texas-brawl-12-questions/
