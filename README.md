@@ -10,7 +10,7 @@ https://nytimes.com/2024/09/04/us/politics/harris-tax-break-small-business.html
 `The police responded to a shooting at Apalachee High School in Winder, Ga. At least nine others were injured.`\
 https://nytimes.com/video/us/100000009674083/georgia-school-shooting-winder.html
 
-**Zelensky’s party announced a slate of nine candidates for cabinet posts.**\
+**Zelensky’s party announces a slate of nine candidates for cabinet posts.**\
 `By Marc Santora and Maria Varenikova`\
 https://nytimes.com/live/2024/09/04/world/ukraine-russia-missile-attacks/zelensky-pushes-ahead-with-sweeping-overhaul-of-his-cabinet
 
