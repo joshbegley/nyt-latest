@@ -1,3 +1,15 @@
+**Inter Miami games to be played at Miami Freedom Park in 2026**\
+`Inter Miami has announced that they will play home games at Miami Freedom Park from 2026.`\
+https://nytimes.com/athletic/5744365/2024/09/04/inter-miami-freedom-park-stadium/
+
+**Ukraine’s Top Diplomat Became a Familiar Face as He Rallied Wartime Support**\
+`Dmytro Kuleba, who was among several Ukrainian officials who offered to resign on Wednesday, lobbied forcefully for Kyiv’s allies to supply Patriot missile defense systems.`\
+https://nytimes.com/2024/09/04/world/europe/ukraine-foreign-minister-kuleba-resignation.html
+
+**Submit your questions for Corey Pronman's mailbag**\
+`<p>Corey Pronman recently published his 2024 NHL Pipeline Rankings and NHL under-23 ranking.`\
+https://nytimes.com/athletic/5744431/2024/09/04/nhl-pipeline-rankings-mailbag-pronman/
+
 **The Pulse: The most optimistic NFL fan base**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5743625/2024/09/04/nfl-season-predictions-the-pulse-2/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5744092/2024/09/04/aston-villa-champions-league-tic
 **Harris, Biden and Trump Consider Visits to World Trade Center Site on Sept. 11**\
 `This year, the anniversary of the 2001 attacks will come just hours after a presidential debate between Vice President Kamala Harris and former President Donald J. Trump.`\
 https://nytimes.com/2024/09/04/us/politics/harris-biden-trump-sept-11-nyc.html
-
-**Pedro Almodóvar, Julianne Moore and Tilda Swinton on ‘The Room Next Door’**\
-`The director’s first English-language feature inspires talk of beauty, hope and more collaborations.`\
-https://nytimes.com/2024/09/04/movies/pedro-almodovar-julianne-moore-tilda-swinton-the-room-next-door-venice.html
-
-**What I’m seeing from the Chiefs: The deep ball is back and other observations**\
-`Patrick Mahomes and the Chiefs are looking to go deep again and have added speedsters to help make it happen.`\
-https://nytimes.com/athletic/5735116/2024/09/04/patrick-mahomes-kansas-city-chiefs-observations/
-
-**Lions fan survey results: Confidence is running high in Motor City**\
-`Lions fans are feeling really good about the state of the team.`\
-https://nytimes.com/athletic/5740161/2024/09/04/detroit-lions-fan-survey-results-confidence-is-running-high-in-motor-city/
 
