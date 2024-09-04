@@ -1,3 +1,7 @@
+**Ms. Taddeo Goes to Hollywood**\
+`A writer’s success today may be measured in film and television adaptations. Lisa Taddeo, whose book “Three Women” is now a Starz series, hates that.`\
+https://nytimes.com/2024/09/04/style/lisa-taddeo-three-women-series-starz.html
+
 **The Windup: The new Bash Brothers**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5744521/2024/09/04/oakland-as-lawrence-butler-brent-rooker-the-windup/
