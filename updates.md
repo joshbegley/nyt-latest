@@ -1,3 +1,11 @@
+**Linda Deutsch, The A.P.’s Dean of Courtroom Reporting, Dies at 80**\
+`Covering notorious trials, she offered readers an unvarnished view of the sordid side of celebrity, told through many of the country’s most riveting legal dramas.`\
+https://nytimes.com/2024/09/04/business/media/linda-deutsch-dead.html
+
+**Short Notice and Blocked Exits Proved Lethal in Strike in Ukraine**\
+`When two Russian ballistic missiles struck a military academy in Poltava, debris blocked corridors and exits. Cadets near a bomb shelter survived. Others did not.`\
+https://nytimes.com/2024/09/04/world/europe/ukraine-poltava-missiles-military-academy.html
+
 **J. Richard Munro, Who Oversaw the Creation of Time Warner, Dies at 93**\
 `As president and C.E.O., he expanded Time Inc.’s offerings, fended off a hostile takeover and built the world’s largest media company.`\
 https://nytimes.com/2024/09/04/business/media/j-richard-munro-dead.html

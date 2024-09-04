@@ -1,3 +1,11 @@
+**Linda Deutsch, The A.P.’s Dean of Courtroom Reporting, Dies at 80**\
+`Covering notorious trials, she offered readers an unvarnished view of the sordid side of celebrity, told through many of the country’s most riveting legal dramas.`\
+https://nytimes.com/2024/09/04/business/media/linda-deutsch-dead.html
+
+**Short Notice and Blocked Exits Proved Lethal in Strike in Ukraine**\
+`When two Russian ballistic missiles struck a military academy in Poltava, debris blocked corridors and exits. Cadets near a bomb shelter survived. Others did not.`\
+https://nytimes.com/2024/09/04/world/europe/ukraine-poltava-missiles-military-academy.html
+
 **J. Richard Munro, Who Oversaw the Creation of Time Warner, Dies at 93**\
 `As president and C.E.O., he expanded Time Inc.’s offerings, fended off a hostile takeover and built the world’s largest media company.`\
 https://nytimes.com/2024/09/04/business/media/j-richard-munro-dead.html
@@ -29,13 +37,4 @@ https://nytimes.com/live/2024/09/04/us/georgia-shooting-apalachee-high-school/at
 **Ballon d’Or 2024 shortlist: Foden and Bellingham among nominees**\
 `The shortlists for the 2024 Ballon d’Or have been announced, with Cole Palmer, Bukayo Saka, Jude Bellingham and Vinicius Jr among the nominees for the men&#8217;s award.`\
 https://nytimes.com/athletic/5743852/2024/09/04/ballon-dor-2024-shortlist/
-
-**Submit your questions for Antonio Morales’ USC football mailbag**\
-`<p><a class="ath_autolink" data-id="252" href="https://www.nytimes.com/athletic/college-football/team/usc-trojans-college-football/">USC</a> is fresh off of its biggest win in years. Submit your questions for Antonio below and we will post his answers later this week.</p>
-`\
-https://nytimes.com/athletic/5745200/2024/09/04/submit-your-questions-for-antonio-morales-usc-football-mailbag-9/
-
-**Chase practices with Bengals amid contract dispute**\
-`Wednesday marked the first time Ja'Marr Chase took part in a practice open to media this offseason.`\
-https://nytimes.com/athletic/5745035/2024/09/04/jamarr-chase-bengals-practice/
 
