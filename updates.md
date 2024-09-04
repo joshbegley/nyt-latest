@@ -1,3 +1,11 @@
+**Whit Merrifield rages over dangerous fastballs: 'That was my life on the line'**\
+`ATLANTA — Whit Merrifield has had enough of control-challenged pitchers hitting batters with pitches.`\
+https://nytimes.com/athletic/5743538/2024/09/03/braves-whit-merrifield-hit-batters/
+
+**Despite another strong outing from rookie David Festa, Twins lose to Rays**\
+`Since rejoining the Twins, Festa has a 3.13 ERA with 50 strikeouts in 37 innings pitched.`\
+https://nytimes.com/athletic/5743511/2024/09/03/rookie-david-festa-twins-start/
+
 **Bears 'Hard Knocks' takeaways: Ryan Poles' emotion comes through in final episode**\
 `The Bears did allow HBO to show players getting cut, and players making the team and practice squad in the final episode of the season.`\
 https://nytimes.com/athletic/5743536/2024/09/03/bears-hard-knocks-finale-ryan-poles/
