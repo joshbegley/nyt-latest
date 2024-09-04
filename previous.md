@@ -1,3 +1,7 @@
+**LSU running back John Emery sidelined with torn ACL**\
+`Former five-star recruit briefly entered the transfer portal in the offseason before opting to return for his sixth season at LSU. `\
+https://nytimes.com/athletic/5744946/2024/09/04/john-emery-lsu-running-back-acl/
+
 **Biden Expected to Block U.S. Steel Takeover**\
 `The Committee on Foreign Investment in the United States is expected to raise national security concerns about selling the iconic steel producer to Japan’s Nippon Steel.`\
 https://nytimes.com/2024/09/04/us/politics/biden-us-steel-nippon.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5744882/2024/09/04/damar-hamlin-bills-starter-cardi
 **Prosecutor Says Manslaughter Case Against Alec Baldwin Should Be Revived**\
 `The special prosecutor asked a judge in New Mexico to reconsider her decision to toss the charge against the actor during his trial.`\
 https://nytimes.com/2024/09/04/movies/alec-baldwin-trial-prosecutor.html
-
-**Commanders, Cosmi agree to 4-year extension**\
-`Cosmi is the first player drafted by Washington to sign a second contract since wide receiver Terry McLaurin.`\
-https://nytimes.com/athletic/5744880/2024/09/04/sam-cosmi-extension-commanders/
 

@@ -1,3 +1,7 @@
+**LSU running back John Emery sidelined with torn ACL**\
+`Former five-star recruit briefly entered the transfer portal in the offseason before opting to return for his sixth season at LSU. `\
+https://nytimes.com/athletic/5744946/2024/09/04/john-emery-lsu-running-back-acl/
+
 **Biden Expected to Block U.S. Steel Takeover**\
 `The Committee on Foreign Investment in the United States is expected to raise national security concerns about selling the iconic steel producer to Japan’s Nippon Steel.`\
 https://nytimes.com/2024/09/04/us/politics/biden-us-steel-nippon.html
