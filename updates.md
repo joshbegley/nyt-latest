@@ -1,3 +1,7 @@
+**Here are the latest developments.**\
+`By Victoria Kim, Marc Santora and Andrew E. Kramer`\
+https://nytimes.com/live/2024/09/04/world/ukraine-russia-missile-attacks/here-are-the-latest-developments
+
 **The View From the Nosebleeds at the U.S. Open: Not Too Shabby**\
 `It’s a long way to Row Z. But once you get there, there are advantages, tennis fans say.`\
 https://nytimes.com/2024/09/04/nyregion/us-open-nosebleed-seats.html
