@@ -1,3 +1,7 @@
+**How Tom Brady prepared for his Fox NFL broadcasting debut**\
+`When Tom Brady took his gap season between his final NFL game in early 2023 and his debut as Fox Sports&#8217; $375 million analyst this Sunday, he studied NFL broadcasts like he was trying to figure out a defense as a quarterback.`\
+https://nytimes.com/athletic/5742638/2024/09/04/tom-brady-fox-nfl-broadcast-preparations/
+
 **What we're seeing from the Raiders: Gardner Minshew's volatility and other observations**\
 `Minshew may have won the Raiders' starting QB job over Aidan O'Connell, but he'll have to improve his consistency to keep it. `\
 https://nytimes.com/athletic/5734668/2024/09/04/las-vegas-raiders-preview-gardner-minshew/
