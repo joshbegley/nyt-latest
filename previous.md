@@ -1,3 +1,19 @@
+**Texas Attorney General Sues to Stop Voter Registration Push in San Antonio**\
+`The suit is the newest front in an escalating conflict over elections between the Republicans who dominate state government and the Democrats who control the state’s major cities.`\
+https://nytimes.com/2024/09/04/us/texas-voter-registration-paxton-bexar.html
+
+**The Secrets of an Unassuming N.Y. Official Accused of Working for China**\
+`Linda Sun, a former deputy chief of staff to Gov. Kathy Hochul, used her growing influence to push the interests of the Chinese government, U.S. prosecutors say.`\
+https://nytimes.com/2024/09/04/nyregion/linda-sun-chinese-agent-ny-capitol.html
+
+**Winder, a Rural, Middle-Class City in Georgia, Is in a Rapidly Developing Area**\
+`The site of a school shooting is in a county that has nearly doubled in population since 2000, according to census data.`\
+https://nytimes.com/2024/09/04/us/winder-georgia-demographics.html
+
+**RFK Racing progressing to expanding to 3 NASCAR Cup teams**\
+`The move would likely include bringing aboard Kroger as a team-wide sponsor for all three cars and signing driver Ryan Preece.`\
+https://nytimes.com/athletic/5745776/2024/09/04/rfk-racing-nascar-teams-expansion/
+
 **We Have Reached the Scrounging-for-Scandals Phase of the Campaign**\
 `The false “stolen valor” claim isn’t sticking, but that hasn’t stopped conservatives from using it.`\
 https://nytimes.com/2024/09/04/opinion/scandals-trump-harris.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/04/us/politics/liz-cheney-kamala-harris-vote.html
 **Students and teachers huddled in fear as the gunfire rang out.**\
 `By Alessandro Marazzi Sassoon, Richard Fausset and Rick Rojas`\
 https://nytimes.com/live/2024/09/04/us/georgia-shooting-apalachee-high-school/students-and-teachers-huddled-in-fear-as-the-gunfire-rang-out
-
-**Families of Patients Who Died Sue Hospital After Fentanyl Was Swapped With Water**\
-`The tap water was placed in the intravenous drips of patients at a hospital in Medford, Ore., causing bacterial infections.`\
-https://nytimes.com/2024/09/04/us/oregon-nurse-fentanyl-theft-lawsuit.html
-
-**There have been three mass shootings in the U.S. this year.**\
-`Here is how The New York Times tallies this type of shootings.`\
-https://nytimes.com/live/2024/09/04/us/georgia-shooting-apalachee-high-school/mass-shootings-2024
-
-**Spirit rookie Bethune suffers season-ending knee injury**\
-`Bethune was selected third overall in the 2023 NWSL Draft, with Washington trading defensive anchor Sam Staab to obtain the pick.`\
-https://nytimes.com/athletic/5745585/2024/09/04/washington-spirit-croix-bethune-knee-injury/
-
-**Venezuelan and Proxy Forces Linked to at Least 6 Protester Deaths, Rights Group Says**\
-`The Human Rights Watch report marks the first effort by a major international organization to verify some of the two-dozen reported deaths in protests since Venezuela’s disputed presidential election.`\
-https://nytimes.com/2024/09/04/world/americas/venezuelan-government-violence-human-rights.html
 
