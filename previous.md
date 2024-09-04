@@ -1,3 +1,7 @@
+**The Making of  a New Luxury Landmark**\
+`In one of the world’s most sought-after residential neighborhoods, a crown jewel is unveiled.`\
+https://nytimes.com/paidpost/1-mayfair/the-making-of-a-new-luxury-landmark.html
+
 **U.S. Open quarterfinals: Biggest test for Pegula, Sinner and Medvedev resume rivalry**\
 `The two Grand Slam champions in the men's draw meet, while Pegula aims to join Emma Navarro in the semifinals.`\
 https://nytimes.com/athletic/5742593/2024/09/04/us-open-quarterfinals-preview-sinner-medvedev-swiatek-pegula/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/04/arts/television/stephen-colbert-harris-trump-poll
 **Tony Bloom interview: Brighton's £195m splurge, Hurzeler so far, and why De Zerbi didn't work long-term**\
 `Owner/chairman Bloom explains the summer-window spending, what he thinks of PSR, and where Brighton go next...`\
 https://nytimes.com/athletic/5739396/2024/09/04/tony-bloom-interview-brighton-psr-195m-transfers/
-
-**Yankees noncommittal on Clay Holmes' closer role as he allows walk-off grand slam**\
-`"I'm not going to answer that right now when we're raw and emotional," manager Aaron Boone said when pressed on moving to a new closer.`\
-https://nytimes.com/athletic/5743624/2024/09/04/yankees-clay-holmes-allows-walk-off-grand-slam/
 

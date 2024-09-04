@@ -1,3 +1,7 @@
+**The Making of  a New Luxury Landmark**\
+`In one of the world’s most sought-after residential neighborhoods, a crown jewel is unveiled.`\
+https://nytimes.com/paidpost/1-mayfair/the-making-of-a-new-luxury-landmark.html
+
 **U.S. Open quarterfinals: Biggest test for Pegula, Sinner and Medvedev resume rivalry**\
 `The two Grand Slam champions in the men's draw meet, while Pegula aims to join Emma Navarro in the semifinals.`\
 https://nytimes.com/athletic/5742593/2024/09/04/us-open-quarterfinals-preview-sinner-medvedev-swiatek-pegula/
