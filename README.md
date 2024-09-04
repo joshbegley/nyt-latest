@@ -1,3 +1,7 @@
+**Watching Movies Like It’s 1999**\
+`A multimedia Culture desk series, “Class of 1999,” revisits a group of mold-breaking, star-studded films released that year.`\
+https://nytimes.com/2024/09/04/insider/1999-movies.html
+
 **Trump Says His Son Barron Is Attending N.Y.U.**\
 `Donald J. Trump had teased his youngest child’s choice of school for months, but on Wednesday, he was photographed on the university’s campus in Manhattan’s Greenwich Village.`\
 https://nytimes.com/2024/09/04/us/politics/barron-trump-nyu.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/04/us/politics/harris-tax-break-small-business.html
 **Shooting at Georgia High School Leaves Four Dead**\
 `The police responded to a shooting at Apalachee High School in Winder, Ga. At least nine others were injured.`\
 https://nytimes.com/video/us/100000009674083/georgia-school-shooting-winder.html
-
-**Zelensky’s party announces a slate of nine candidates for cabinet posts.**\
-`By Marc Santora and Maria Varenikova`\
-https://nytimes.com/live/2024/09/04/world/ukraine-russia-missile-attacks/zelensky-pushes-ahead-with-sweeping-overhaul-of-his-cabinet
 
