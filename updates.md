@@ -1,3 +1,7 @@
+**Word of the Day: ensemble**\
+`This word has appeared in 609 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/09/04/learning/word-of-the-day-ensemble.html
+
 **Braves' Chris Sale surpasses 200 strikeouts, adds to Cy Young resume**\
 `Sale became the first Braves lefty with 200 strikeouts in a season but said he's far more concerned with making the playoffs.`\
 https://nytimes.com/athletic/5743682/2024/09/04/braves-chris-sale-cy-young-candidate/
