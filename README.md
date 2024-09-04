@@ -26,8 +26,8 @@ https://nytimes.com/live/2024/09/04/world/ukraine-russia-missile-attacks/zelensk
 `A Moscow court sentenced Alexander Shiplyuk, the director of a physics institute who specializes in hypersonic flight, to 15 years in prison. It was the latest treason case against a leading scientist.`\
 https://nytimes.com/2024/09/04/world/europe/russia-imprisons-top-scientists.html
 
-**House Republicans Subpoena Walz Over $250 Million Covid Relief Fraud**\
-`The move was the latest sign that House Republicans were pivoting from investigating and attacking President Biden to take aim at the new Democratic ticket.`\
+**House Republicans Pivot to Attacking Walz With Subpoena Over a Nonprofit’s Fraud**\
+`The move was the latest sign that House Republicans were moving from investigating and attacking President Biden to taking aim at the new Democratic ticket.`\
 https://nytimes.com/2024/09/04/us/politics/walz-republicans-subpoena-covid-fraud.html
 
 **Seashell Art Is Shedding Its Kitschy Reputation**\
