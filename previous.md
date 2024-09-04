@@ -1,3 +1,7 @@
+**How an Ohio State freshman became the 'ultimate cheat code'**\
+`Buckeyes WR Jeremiah Smith makes strong first impressions, and now the hype is only growing for the No. 1 recruit after his college debut.`\
+https://nytimes.com/athletic/5744617/2024/09/04/jeremiah-smith-ohio-state-football/
+
 **Here’s Why Stock Indexes Sank on Tuesday**\
 `The market drop was primarily focused on Nvidia and other tech companies.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/stock-market-nvidia
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/04/business/media/jim-riswold-dead.html
 **Osimhen completes Galatasaray loan move**\
 `Galatasaray have confirmed the signing of Victor Osimhen on a season-long loan.`\
 https://nytimes.com/athletic/5733955/2024/09/04/victor-osimhen-galatasaray-napoli-transfer/
-
-**With New Taliban Manifesto, Afghan Women Fear the Worst**\
-`Three years into its rule, the movement has codified its harsh Islamic decrees into law that now includes a ban on women’s voices in public.`\
-https://nytimes.com/2024/09/04/world/asia/women-taliban-prohibitions-afghanistan.html
 

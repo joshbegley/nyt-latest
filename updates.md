@@ -1,3 +1,7 @@
+**How an Ohio State freshman became the 'ultimate cheat code'**\
+`Buckeyes WR Jeremiah Smith makes strong first impressions, and now the hype is only growing for the No. 1 recruit after his college debut.`\
+https://nytimes.com/athletic/5744617/2024/09/04/jeremiah-smith-ohio-state-football/
+
 **Here’s Why Stock Indexes Sank on Tuesday**\
 `The market drop was primarily focused on Nvidia and other tech companies.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/stock-market-nvidia
