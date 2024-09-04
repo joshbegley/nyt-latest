@@ -1,3 +1,7 @@
+**Canadiens' Cole Caufield to wear No. 13 in honor of Johnny Gaudreau**\
+`Caufield said he'll be changing his number from 22 to 13 this season to honor Gaudreau, who was killed last Thursday in a traffic crash.`\
+https://nytimes.com/athletic/5743396/2024/09/03/cole-caufield-johnny-gaudreau-jersey/
+
 **Some Navels**\
 `Kareem Ayas waxes poetic.`\
 https://nytimes.com/2024/09/03/crosswords/daily-puzzle-2024-09-04.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5743250/2024/09/03/sabalenka-zheng-us-open-result/
 **Kennedy must remain on the ballot in Michigan, a judge rules.**\
 `Mr. Kennedy had been nominated by a minor party in Michigan, making it easier for him to get on the ballot. A judge said that also makes it harder for him to get off the ballot too.`\
 https://nytimes.com/live/2024/09/03/us/harris-trump-election/kennedy-must-remain-on-the-ballot-in-michigan-a-judge-rules
-
-**Trump Says There Was ‘No Conflict’ at Cemetery, Despite Official Accounts**\
-`Speaking to Sean Hannity, Donald Trump contradicted his campaign’s prior statements about a confrontation involving his campaign at Arlington National Cemetery last week.`\
-https://nytimes.com/2024/09/03/us/politics/trump-arlington-cemetery.html
 

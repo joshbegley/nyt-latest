@@ -1,3 +1,7 @@
+**Canadiens' Cole Caufield to wear No. 13 in honor of Johnny Gaudreau**\
+`Caufield said he'll be changing his number from 22 to 13 this season to honor Gaudreau, who was killed last Thursday in a traffic crash.`\
+https://nytimes.com/athletic/5743396/2024/09/03/cole-caufield-johnny-gaudreau-jersey/
+
 **Some Navels**\
 `Kareem Ayas waxes poetic.`\
 https://nytimes.com/2024/09/03/crosswords/daily-puzzle-2024-09-04.html
