@@ -1,3 +1,7 @@
+**Who the Swing Voters Are**\
+`We analyze the voters who could decide the election.`\
+https://nytimes.com/2024/09/04/briefing/who-the-swing-voters-are.html
+
 **Deregulation and Dishonesty Led to Deadly Grenfell Fire, Inquiry Finds**\
 `A damning final report into Britain’s worst residential fire since World War II blamed a litany of cost-cutting, dishonest sales practices and lax regulation for the blaze that killed 72 people.`\
 https://nytimes.com/2024/09/04/world/europe/grenfell-tower-fire-inquiry-report-uk.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5743289/2024/09/04/caitlin-clark-cards-rookie-wnba/
 **More pressure. More responsibility. Colts QB, new dad Anthony Richardson embracing it all**\
 `"(He's) got to grow up fast. (He's) got a kid to take care of ... a whole team that's relying on him and counting on him (every week)." `\
 https://nytimes.com/athletic/5741172/2024/09/04/anthony-richardson-colts-new-father-pressure/
-
-**The Battle to Control the World’s Most Powerful Technology**\
-`Nvidia chips, which are crucial to artificial intelligence, are traded actively in China, despite U.S. restrictions, The Times found.`\
-https://nytimes.com/2024/09/04/podcasts/the-daily/china-chip-ai.html
 
