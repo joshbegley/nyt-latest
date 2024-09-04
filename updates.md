@@ -1,3 +1,7 @@
+**Dispatches From the Courtroom: Linda Deutsch Breaking the News**\
+`Covering some of America’s most sensational trials, she produced urgent, pithy “ledes” in the best tradition of wire-service reporting. Here’s a sampler.`\
+https://nytimes.com/2024/09/04/business/media/linda-deutsch-ap-court-reporting.html
+
 **Watching Movies Like It’s 1999**\
 `A multimedia Culture desk series, “Class of 1999,” revisits a group of mold-breaking, star-studded films released that year.`\
 https://nytimes.com/2024/09/04/insider/1999-movies.html

@@ -1,3 +1,7 @@
+**Dispatches From the Courtroom: Linda Deutsch Breaking the News**\
+`Covering some of America’s most sensational trials, she produced urgent, pithy “ledes” in the best tradition of wire-service reporting. Here’s a sampler.`\
+https://nytimes.com/2024/09/04/business/media/linda-deutsch-ap-court-reporting.html
+
 **Watching Movies Like It’s 1999**\
 `A multimedia Culture desk series, “Class of 1999,” revisits a group of mold-breaking, star-studded films released that year.`\
 https://nytimes.com/2024/09/04/insider/1999-movies.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5745394/2024/09/04/mondo-duplantis-beats-karsten-wa
 **Harris Tells the Business Community: I’m Friendlier Than Biden**\
 `The vice president, who campaigned on Wednesday in New Hampshire, has pitched new tax plans that represent a break from President Biden, and that are meant to reassure business owners.`\
 https://nytimes.com/2024/09/04/us/politics/harris-tax-break-small-business.html
-
-**Shooting at Georgia High School Leaves Four Dead**\
-`The police responded to a shooting at Apalachee High School in Winder, Ga. At least nine others were injured.`\
-https://nytimes.com/video/us/100000009674083/georgia-school-shooting-winder.html
 
