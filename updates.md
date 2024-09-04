@@ -1,3 +1,15 @@
+**Stephen Colbert Takes Stock of Harris Leading in the Polls**\
+`Colbert reacted to a survey showing the vice president ahead of Donald Trump, 48 percent to 43 percent, saying it “really restores my faith in almost half of humanity.”`\
+https://nytimes.com/2024/09/04/arts/television/stephen-colbert-harris-trump-poll.html
+
+**Tony Bloom interview: Brighton's £195m splurge, Hurzeler so far, and why De Zerbi didn't work long-term**\
+`Owner/chairman Bloom explains the summer-window spending, what he thinks of PSR, and where Brighton go next...`\
+https://nytimes.com/athletic/5739396/2024/09/04/tony-bloom-interview-brighton-psr-195m-transfers/
+
+**Missile and Drone Attacks Across Ukraine Kill at Least 7 in Lviv**\
+`Russia attacked a number of cities a day after a devastating strike in the country’s east, Ukrainian officials said.`\
+https://nytimes.com/2024/09/04/world/europe/russia-attack-ukraine-lviv.html
+
 **Yankees noncommittal on Clay Holmes' closer role as he allows walk-off grand slam**\
 `"I'm not going to answer that right now when we're raw and emotional," manager Aaron Boone said when pressed on moving to a new closer.`\
 https://nytimes.com/athletic/5743624/2024/09/04/yankees-clay-holmes-allows-walk-off-grand-slam/
