@@ -1,3 +1,11 @@
+**NL playoff contenders' biggest concern and key X-factor to watch down the stretch**\
+`What will be the difference-making variables for postseason contenders in the final weeks of the regular season and into October?`\
+https://nytimes.com/athletic/5742781/2024/09/04/mlb-playoffs-nl-contenders-concerns-x-factors/
+
+**Giants call up Marco Luciano, and for better or worse, adjust their focus in September**\
+`The Giants also recalled outfielder Luis Matos and will continue to give opportunities to other young players as the season winds down.`\
+https://nytimes.com/athletic/5743756/2024/09/04/giants-marco-luciano-call-up/
+
 **Houston Rockets fan survey: What does the next phase look like?**\
 `Share your thoughts on the state of the Rockets heading into the 2024-25 season.`\
 https://nytimes.com/athletic/5743089/2024/09/04/houston-rockets-jalen-green-fan-survey/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5742638/2024/09/04/tom-brady-fox-nfl-broadcast-prep
 **What we're seeing from the Raiders: Gardner Minshew's volatility and other observations**\
 `Minshew may have won the Raiders' starting QB job over Aidan O'Connell, but he'll have to improve his consistency to keep it. `\
 https://nytimes.com/athletic/5734668/2024/09/04/las-vegas-raiders-preview-gardner-minshew/
-
-**Netflix Adds Disclaimer to Indian Show After Anger Over Hijacker Names**\
-`The series, based on a 1999 plane hijacking, prompted backlash on social media. Critics claimed it wrongly portrayed the Islamist hijackers as Hindus.`\
-https://nytimes.com/2024/09/04/world/asia/netflix-india-ic-814-kandahar-hijack.html
-
-**Hounded From a Beauty Pageant in South Africa, Then Crowned in Nigeria.**\
-`A South African beauty pageant contestant with Nigerian heritage was forced to withdraw from the competition after her participation fueled anti-immigrant sentiments.`\
-https://nytimes.com/2024/09/04/world/africa/south-africa-nigeria-miss-universe.html
 
