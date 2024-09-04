@@ -1,3 +1,7 @@
+**The goals that show that Erling Haaland is an artist and not a robot**\
+`The Norwegian does not get enough credit for the way he manipulates the ball and unbalances defenders to create shooting opportunities`\
+https://nytimes.com/athletic/5741144/2024/09/04/erling-haaland-shooting-technique-artistry/
+
 **Frances Tiafoe joins Taylor Fritz in U.S. Open semifinals after Dimitrov retires injured**\
 `An American man will contest the U.S. Open final, with Tiafoe facing Taylor Fritz in the semis.`\
 https://nytimes.com/athletic/5743597/2024/09/04/tiafoe-dimitrov-us-open-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5741552/2024/09/04/premier-league-psr-transfers-wha
 **Dani Carvajal exclusive: 'When you fall down and get back up, things taste better'**\
 `Real Madrid's talismanic captain sits down for an exclusive interview with The Athletic`\
 https://nytimes.com/athletic/5742002/2024/09/04/dani-carvajal-real-madrid-spain-interview/
-
-**The American family who swapped Texas for Tonga to chase a World Cup dream**\
-`How a Facebook post led to a complete change of life for Maikeli Lomu and his family`\
-https://nytimes.com/athletic/5738569/2024/09/04/maikeli-lomu-tonga/
 
