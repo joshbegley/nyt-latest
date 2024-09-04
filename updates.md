@@ -1,3 +1,7 @@
+**If Rodri is Real Madrid's next public transfer target then this is how it usually goes**\
+`Rodri appeared on the front cover of Spanish sports daily AS on Wednesday. This is what tends to follow...`\
+https://nytimes.com/athletic/5744831/2024/09/04/rodri-real-madrid-city-transfer/
+
 **Brain Games: Managing Ja'Marr Chase, banking on boring running backs and more Week 1 thoughts**\
 `Should you feel comfortable starting Ja'Marr Chase in Week 1? Renee Miller shares her thoughts on the Cincinnati receiver and more.`\
 https://nytimes.com/athletic/5744957/2024/09/04/fantasy-football-2024-brain-games-week-1/
