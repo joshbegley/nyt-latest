@@ -1,3 +1,7 @@
+**Whit Merrifield rages over dangerous fastballs: 'That was my life on the line'**\
+`ATLANTA — Whit Merrifield has had enough of control-challenged pitchers hitting batters with pitches.`\
+https://nytimes.com/athletic/5743538/2024/09/03/braves-whit-merrifield-hit-batters/
+
 **Bears 'Hard Knocks' takeaways: Ryan Poles' emotion comes through in final episode**\
 `The Bears did allow HBO to show players getting cut, and players making the team and practice squad in the final episode of the season.`\
 https://nytimes.com/athletic/5743536/2024/09/03/bears-hard-knocks-finale-ryan-poles/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/5743536/2024/09/03/bears-hard-knocks-finale-ryan-po
 `A sharp decline in major U.S. stock indexes reverberated through Asia on Wednesday, with investors still rattled by last month’s market meltdown.`\
 https://nytimes.com/2024/09/03/business/japan-stocks-us-economy.html
 
-**Despite another strong outing from rookie David Festa, Twins lose 2-1 to Rays**\
+**Despite another strong outing from rookie David Festa, Twins lose to Rays**\
 `Since rejoining the Twins, Festa has a 3.13 ERA with 50 strikeouts in 37 innings pitched.`\
 https://nytimes.com/athletic/5743511/2024/09/03/rookie-david-festa-twins-start/
 
@@ -34,8 +38,4 @@ https://nytimes.com/paidpost/hyundai/is-hydrogen-the-missing-piece-in-solving-th
 **New York Official Is Charged as Chinese Agent**\
 `Linda Sun, a former aide to Gov. Kathy Hochul, was charged with 10 criminal counts that included visa fraud, money laundering and other crimes.`\
 https://nytimes.com/video/nyregion/100000009672379/new-york-official-is-charged-as-chinese-agent.html
-
-**House Republican Subpoenas Blinken Over Afghanistan Withdrawal**\
-`The chairman of the House Foreign Affairs Committee summoned the secretary of state for testimony just days before an expected report on the U.S. exit, in which 13 American service members were killed.`\
-https://nytimes.com/2024/09/03/us/politics/blinken-subpoena-house-afghanistan.html
 
