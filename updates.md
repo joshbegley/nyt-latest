@@ -1,3 +1,7 @@
+**Harris, Biden and Trump Consider Visits to World Trade Center Site on Sept. 11**\
+`This year, the anniversary of the 2001 attacks will come just hours after a presidential debate between Vice President Kamala Harris and former President Donald J. Trump.`\
+https://nytimes.com/2024/09/04/us/politics/harris-biden-trump-sept-11-nyc.html
+
 **Pedro Almodóvar, Julianne Moore and Tilda Swinton on ‘The Room Next Door’**\
 `The director’s first English-language feature inspires talk of beauty, hope and more collaborations.`\
 https://nytimes.com/2024/09/04/movies/pedro-almodovar-julianne-moore-tilda-swinton-the-room-next-door-venice.html
