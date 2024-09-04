@@ -1,3 +1,11 @@
+**Brad Keselowski on what sparked the infamous 2014 Texas brawl and more: 12 Questions**\
+`Ahead of the 2024 playoffs, Brad Keselowski talks about a run-in with Kevin Harvick, how hard it is to drive in NASCAR and more.`\
+https://nytimes.com/athletic/5740133/2024/09/04/brad-keselowski-nascar-texas-brawl-12-questions/
+
+**Mediators Pushing to Bridge Gaps in Gaza Cease-Fire Plan, Officials Say**\
+`The latest proposals have yet to be finalized, and both Israeli officials and Hamas leaders have expressed pessimism over the prospects for an agreement.`\
+https://nytimes.com/2024/09/04/world/middleeast/israel-hamas-gaza-ceasefire.html
+
 **How Tom Brady prepared for his Fox NFL broadcasting debut**\
 `When Tom Brady took his gap season between his final NFL game in early 2023 and his debut as Fox Sports&#8217; $375 million analyst this Sunday, he studied NFL broadcasts like he was trying to figure out a defense as a quarterback.`\
 https://nytimes.com/athletic/5742638/2024/09/04/tom-brady-fox-nfl-broadcast-preparations/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5738862/2024/09/04/harrison-smith-minnesota-vikings
 **Browns need the best version of Deshaun Watson if they want to reach their ceiling**\
 `Cleveland has amassed and retained enough talent to be considered potentially elite this season. But it all starts with its highly paid QB. `\
 https://nytimes.com/athletic/5743152/2024/09/04/browns-deshaun-watson-season-preview/
-
-**To our readers: Your NFL fandom never ends, and our coverage won't either**\
-`The Athletic will be with you every day and every step of the way this NFL season.`\
-https://nytimes.com/athletic/5739713/2024/09/04/nfl-seaason-team-coverage-news/
-
-**Can Frank Nazar earn a full-time role this season? He's ready for the challenge**\
-`A three-game cameo in 2023-24 showed 2022 first-rounder Frank Nazar exactly where he needed to improve during his first pro offseason.`\
-https://nytimes.com/athletic/5741777/2024/09/04/blackhawks-frank-nazar-nhl-offseason/
 
