@@ -1,3 +1,15 @@
+**The Pulse: The most optimistic NFL fan base**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5743625/2024/09/04/nfl-season-predictions-the-pulse-2/
+
+**How Leicester avoided a points deduction - and what it means for PSR**\
+`The key questions answered after Leicester avoided punishment over alleged PSR breaches`\
+https://nytimes.com/athletic/5742838/2024/09/04/leicester-city-psr-premier-league/
+
+**Penguins radio broadcaster Joe Brand on 'big' new job**\
+`Brand was announced Tuesday as the winner of the Penguins' nationwide search to succeed Steve Mears for play-by-play duties on the radio.`\
+https://nytimes.com/athletic/5743197/2024/09/04/penguins-new-radio-play-by-play-joe-brand/
+
 **Projecting possible Oilers waiver targets before the start of the season**\
 `Will the Oilers use that rare quiver and select a player on waivers this fall? It might be time.`\
 https://nytimes.com/athletic/5739859/2024/09/04/edmonton-oilers-waiver-targets-2024/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5735116/2024/09/04/patrick-mahomes-kansas-city-chie
 **Lions fan survey results: Confidence is running high in Motor City**\
 `Lions fans are feeling really good about the state of the team.`\
 https://nytimes.com/athletic/5740161/2024/09/04/detroit-lions-fan-survey-results-confidence-is-running-high-in-motor-city/
-
-**The Russian strike on Tuesday hit a military academy devoted to electronic warfare.**\
-`Ukraine and its allies have recently stepped up efforts to counter Moscow’s electronic warfare tactics.`\
-https://nytimes.com/live/2024/09/04/world/ukraine-russia-missile-attacks/russia-ukraine-military-electronic-warfare
-
-**Trump Media Shares Are Down 70% From Their March Peak**\
-`The stock price of the former president’s social media company has often moved in tandem with investor perception of his standing in the presidential race.`\
-https://nytimes.com/2024/09/04/business/trump-media-djt-stock.html
-
-**TikTok Expands Its ‘How to Vote’ Resources Ahead of the Election**\
-`The company is an increasingly popular source of political news. It’s adding more content about how elections work and media literacy.`\
-https://nytimes.com/2024/09/04/business/tiktok-vote-election.html
 

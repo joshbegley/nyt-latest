@@ -1,3 +1,15 @@
+**The Pulse: The most optimistic NFL fan base**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5743625/2024/09/04/nfl-season-predictions-the-pulse-2/
+
+**How Leicester avoided a points deduction - and what it means for PSR**\
+`The key questions answered after Leicester avoided punishment over alleged PSR breaches`\
+https://nytimes.com/athletic/5742838/2024/09/04/leicester-city-psr-premier-league/
+
+**Penguins radio broadcaster Joe Brand on 'big' new job**\
+`Brand was announced Tuesday as the winner of the Penguins' nationwide search to succeed Steve Mears for play-by-play duties on the radio.`\
+https://nytimes.com/athletic/5743197/2024/09/04/penguins-new-radio-play-by-play-joe-brand/
+
 **Villa refuse request from fans to cap Champions League ticket prices**\
 `Aston Villa refused a request from their fan advisory board (FAB) to cap the price of Champions League tickets with the cheapest adult entry now starting at £70.`\
 https://nytimes.com/athletic/5744092/2024/09/04/aston-villa-champions-league-ticket-prices/
