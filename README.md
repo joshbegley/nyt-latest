@@ -1,3 +1,7 @@
+**Iran Emerges as a Top Disinformation Threat in U.S. Presidential Race**\
+`With a flurry of hacks and fake websites, Iran has intensified its efforts to discredit American democracy and possibly tip the race against former President Donald Trump.`\
+https://nytimes.com/2024/09/04/business/media/iran-disinformation-us-presidential-race.html
+
 **Ms. Taddeo Goes to Hollywood**\
 `A writer’s success today may be measured in film and television adaptations. Lisa Taddeo, whose book “Three Women” is now a Starz series, hates that.`\
 https://nytimes.com/2024/09/04/style/lisa-taddeo-three-women-series-starz.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5744365/2024/09/04/inter-miami-freedom-park-stadium
 **Ukraine’s Top Diplomat Has Become a Familiar Face, Rallying Wartime Support**\
 `Dmytro Kuleba has lobbied Kyiv’s allies to supply missile defense systems. He was among several Ukrainian ministers who offered to resign on Wednesday, an official said.`\
 https://nytimes.com/2024/09/04/world/europe/ukraine-foreign-minister-kuleba-resignation.html
-
-**Submit your questions for Corey Pronman's mailbag**\
-`<p>Corey Pronman recently published his 2024 NHL Pipeline Rankings and NHL under-23 ranking.`\
-https://nytimes.com/athletic/5744431/2024/09/04/nhl-pipeline-rankings-mailbag-pronman/
 
