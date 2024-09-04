@@ -1,3 +1,7 @@
+**How Tom Brady prepared for his Fox NFL broadcasting debut**\
+`Tom Brady spent the year asking questions and studying film — just in a very different way as he prepp for Sunday's debut on Fox's NFL crew.`\
+https://nytimes.com/athletic/5742638/2024/09/04/tom-brady-fox-nfl-broadcast-preparations/
+
 **NL playoff contenders' biggest concern and key X-factor to watch down the stretch**\
 `What will be the difference-making variables for postseason contenders in the final weeks of the regular season and into October?`\
 https://nytimes.com/athletic/5742781/2024/09/04/mlb-playoffs-nl-contenders-concerns-x-factors/

@@ -31,7 +31,7 @@ https://nytimes.com/athletic/5740133/2024/09/04/brad-keselowski-nascar-texas-bra
 https://nytimes.com/2024/09/04/world/middleeast/israel-hamas-gaza-ceasefire.html
 
 **How Tom Brady prepared for his Fox NFL broadcasting debut**\
-`Tom Brady spent the year asking questions and studying film — just in a very different way as he preps for Sunday's debut on Fox's NFL crew.`\
+`Tom Brady spent the year asking questions and studying film — just in a very different way as he prepp for Sunday's debut on Fox's NFL crew.`\
 https://nytimes.com/athletic/5742638/2024/09/04/tom-brady-fox-nfl-broadcast-preparations/
 
 **What we're seeing from the Raiders: Gardner Minshew's volatility and other observations**\
