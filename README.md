@@ -1,3 +1,7 @@
+**Greenberg and Jackson: Riding with Deion's team, 3-point favorites plus NFL futures picks**\
+`Zac Jackson went 3-0 in his college Week 1 bets, but the NFL is here so Jon Greenberg is hoping to make up the ground.`\
+https://nytimes.com/athletic/5745626/2024/09/04/greenberg-and-jackson-nfl-futures-colorado-survivor/
+
 **Harris and Trump Campaigns Agree to Debate’s Microphone Rules**\
 `The microphones at the candidates’ debate next Tuesday will be muted when it’s not their turn to speak.`\
 https://nytimes.com/2024/09/04/us/politics/harris-trump-debate-microphones.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/04/world/americas/venezuelan-government-violence-hum
 **21 Migrants Missing at Sea as Boat Capsizes in Rough Seas Off Italy**\
 `Seven survivors were rescued from the boat that sank after leaving Libya. A crackdown by Italy has reduced migration, but not the high death rates that come with crossing the Mediterranean.`\
 https://nytimes.com/2024/09/04/world/europe/italy-migrants-missing-libya.html
-
-**Four People Were Killed in a School Shooting in Georgia**\
-`Also, Zelensky is preparing to shake up his cabinet. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2024/09/04/briefing/georgia-school-shooting-ukraine-cabinet-changes.html
 
