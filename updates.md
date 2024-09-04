@@ -1,3 +1,19 @@
+**'Raygun' calls level of critism 'alarming'**\
+`"The energy and vitriol that people had was pretty alarming," Rachel "Raygun" Gunn said of criticism of her Olympic breaking performance.`\
+https://nytimes.com/athletic/5744167/2024/09/04/raygun-breaking-olympics-criticism/
+
+**Desperate Bid to Save J.F.K. Shown in Resurfaced Film**\
+`The footage from 1963, taken by a Texas businessman and seen only by a few, shows the president’s limousine speeding to a Dallas hospital. It is being auctioned this month.`\
+https://nytimes.com/2024/09/04/arts/design/jfk-kennedy-assassination-film-auction.html
+
+**LA Paralympics handover confirmed for Paris closing ceremony**\
+`Details have been confirmed for the Paralympics handover celebration during Sunday&#8217;s closing ceremony in Paris.`\
+https://nytimes.com/athletic/5744279/2024/09/04/los-angeles-paralympics-handover/
+
+**Earthy Eggplant That Whispers of Summer and Fall**\
+`Hetty Lui McKinnon has just the recipe for this time of seasonal change.`\
+https://nytimes.com/2024/09/04/dining/earthy-eggplant-that-whispers-of-summer-and-fall.html
+
 **Villa refuse request from fan board to cap Champions League ticket prices**\
 `Aston Villa refused a request from their fan advisory board (FAB) to cap the price of Champions League tickets with the cheapest adult entry now starting at £70.`\
 https://nytimes.com/athletic/5744092/2024/09/04/aston-villa-champions-league-ticket-prices/

@@ -1,3 +1,19 @@
+**'Raygun' calls level of critism 'alarming'**\
+`"The energy and vitriol that people had was pretty alarming," Rachel "Raygun" Gunn said of criticism of her Olympic breaking performance.`\
+https://nytimes.com/athletic/5744167/2024/09/04/raygun-breaking-olympics-criticism/
+
+**Desperate Bid to Save J.F.K. Shown in Resurfaced Film**\
+`The footage from 1963, taken by a Texas businessman and seen only by a few, shows the president’s limousine speeding to a Dallas hospital. It is being auctioned this month.`\
+https://nytimes.com/2024/09/04/arts/design/jfk-kennedy-assassination-film-auction.html
+
+**LA Paralympics handover confirmed for Paris closing ceremony**\
+`Details have been confirmed for the Paralympics handover celebration during Sunday&#8217;s closing ceremony in Paris.`\
+https://nytimes.com/athletic/5744279/2024/09/04/los-angeles-paralympics-handover/
+
+**Earthy Eggplant That Whispers of Summer and Fall**\
+`Hetty Lui McKinnon has just the recipe for this time of seasonal change.`\
+https://nytimes.com/2024/09/04/dining/earthy-eggplant-that-whispers-of-summer-and-fall.html
+
 **Inter Miami games to be played at Miami Freedom Park in 2026**\
 `Inter Miami has announced that they will play home games at Miami Freedom Park from 2026.`\
 https://nytimes.com/athletic/5744365/2024/09/04/inter-miami-freedom-park-stadium/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5742838/2024/09/04/leicester-city-psr-premier-leagu
 **Penguins radio broadcaster Joe Brand on 'big' new job**\
 `Brand was announced Tuesday as the winner of the Penguins' nationwide search to succeed Steve Mears for play-by-play duties on the radio.`\
 https://nytimes.com/athletic/5743197/2024/09/04/penguins-new-radio-play-by-play-joe-brand/
-
-**Projecting possible Oilers waiver targets before the start of the season**\
-`Will the Oilers use that rare quiver and select a player on waivers this fall? It might be time.`\
-https://nytimes.com/athletic/5739859/2024/09/04/edmonton-oilers-waiver-targets-2024/
-
-**PGA Tour vs. LIV: Scheffler, McIlroy to play DeChambeau, Koepka in TV match**\
-`The match will feature perhaps the two most popular players on both tours, months after DeChambeau's U.S. Open win over McIlroy.`\
-https://nytimes.com/athletic/5744311/2024/09/04/pga-tour-liv-scheffler-mcilroy-dechambeau-koepka-tv-golf/
-
-**Villa refuse request from fan board to cap Champions League ticket prices**\
-`Aston Villa refused a request from their fan advisory board (FAB) to cap the price of Champions League tickets with the cheapest adult entry now starting at £70.`\
-https://nytimes.com/athletic/5744092/2024/09/04/aston-villa-champions-league-ticket-prices/
-
-**Harris, Biden and Trump Consider Visits to World Trade Center Site on Sept. 11**\
-`This year, the anniversary of the 2001 attacks will come just hours after a presidential debate between Vice President Kamala Harris and former President Donald J. Trump.`\
-https://nytimes.com/2024/09/04/us/politics/harris-biden-trump-sept-11-nyc.html
 
