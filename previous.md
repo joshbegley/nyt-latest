@@ -1,3 +1,11 @@
+**Tim Sheehy Was Recorded Using Racist Stereotypes About Native Americans**\
+`Mr. Sheehy, a Republican, is the nominee for a Senate seat in Montana, where Indigenous residents make up about 6 percent of the population.`\
+https://nytimes.com/2024/09/03/us/politics/tim-sheehy-native-americans-montana.html
+
+**How Self-Driving Cars Get Help From Humans Hundreds of Miles Away**\
+`Zoox, a self-driving car company owned by Amazon, is deploying robot taxis without steering wheels, driver seats or drivers. But like all other self-driving cars, they still need help from humans.`\
+https://nytimes.com/interactive/2024/09/03/business/zoox-self-driving-cars-remote-control.html
+
 **Aryna Sabalenka powers past Zheng Qinwen to reach U.S. Open semifinals**\
 `This was not a simple repeat of the Australian Open final rout — Zheng's serve, her key weapon, let her down badly.`\
 https://nytimes.com/athletic/5743250/2024/09/03/sabalenka-zheng-us-open-result/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/03/us/houston-deputy-constable-shot.html
 **MLB says teams carried by Diamond "unable to plan" 2025 revenues, threatens legal action**\
 `A judge approved deals between Diamond and the NHL and NBA, but MLB argues that the broadcaster's plans won't work for baseball. `\
 https://nytimes.com/athletic/5743074/2024/09/03/mlb-diamond-threat-legal-action/
-
-**Ugandan Opposition Leader Bobi Wine Shot in Leg in Clash With Police**\
-`Mr. Wine, a pop star turned politician who ran for president, is in the hospital, but his injuries are not life-threatening, one of his lawyers said.`\
-https://nytimes.com/2024/09/03/world/africa/uganda-bobi-wine-shot.html
-
-**Full Time: How NWSL free agency will work**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter. `\
-https://nytimes.com/athletic/5742184/2024/09/03/nwsl-free-agency-trades-orlando-pride-full-time/
 
