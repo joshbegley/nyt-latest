@@ -1,3 +1,7 @@
+**Netflix Adds Disclaimer to Indian Show After Anger Over Hijacker Names**\
+`The series, based on a 1999 plane hijacking, prompted backlash on social media. Critics claimed it wrongly portrayed the Islamist hijackers as Hindus.`\
+https://nytimes.com/2024/09/04/world/asia/netflix-india-ic-814-kandahar-hijack.html
+
 **Hounded From a Beauty Pageant in South Africa, Then Crowned in Nigeria.**\
 `A South African beauty pageant contestant with Nigerian heritage was forced to withdraw from the competition after her participation fueled anti-immigrant sentiments.`\
 https://nytimes.com/2024/09/04/world/africa/south-africa-nigeria-miss-universe.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5743551/2024/09/04/caitlin-clark-angel-reese-wnba-r
 **New look, same coach: Why Matt Eberflus has the buy-in from Bears players**\
 `While the outside world took notice of Eberflus' new haircut and beard, his players raved about his consistency as a coach.`\
 https://nytimes.com/athletic/5742490/2024/09/04/matt-eberflus-bears-new-look/
-
-**Answers to the biggest Caitlin Clark trading card questions**\
-`What you need to know about Caitlin Clark cards ahead of the WNBA's three big set releases`\
-https://nytimes.com/athletic/5743289/2024/09/04/caitlin-clark-cards-rookie-wnba/
 
