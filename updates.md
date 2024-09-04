@@ -1,3 +1,19 @@
+**Pedro Almodóvar, Julianne Moore and Tilda Swinton on ‘The Room Next Door’**\
+`The director’s first English-language feature inspires talk of beauty, hope and more collaborations.`\
+https://nytimes.com/2024/09/04/movies/pedro-almodovar-julianne-moore-tilda-swinton-the-room-next-door-venice.html
+
+**Lions fan survey results: Confidence is running high in Motor City**\
+`Lions fans are feeling really good about the state of the team.`\
+https://nytimes.com/athletic/5740161/2024/09/04/detroit-lions-fan-survey-results-confidence-is-running-high-in-motor-city/
+
+**The Russian strike on Tuesday hit a military academy devoted to electronic warfare.**\
+`Ukraine and its allies have recently stepped up efforts to counter Moscow’s electronic warfare tactics.`\
+https://nytimes.com/live/2024/09/04/world/ukraine-russia-missile-attacks/russia-ukraine-military-electronic-warfare
+
+**Broncos make CB Patrick Surtain II NFL's highest-paid DB**\
+`The Broncos selected Surtain with the ninth pick in the 2021 NFL Draft.`\
+https://nytimes.com/athletic/5744204/2024/09/04/patrick-surtain-broncos-contract-extension/
+
 **Trump Media Shares Are Down 70% From Their March Peak**\
 `The stock price of the former president’s social media company has often moved in tandem with investor perception of his standing in the presidential race.`\
 https://nytimes.com/2024/09/04/business/trump-media-djt-stock.html
