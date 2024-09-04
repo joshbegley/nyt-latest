@@ -1,3 +1,7 @@
+**Watching Movies Like It’s 1999**\
+`A multimedia Culture desk series, “Class of 1999,” revisits a group of mold-breaking, star-studded films released that year.`\
+https://nytimes.com/2024/09/04/insider/1999-movies.html
+
 **Trump Says His Son Barron Is Attending N.Y.U.**\
 `Donald J. Trump had teased his youngest child’s choice of school for months, but on Wednesday, he was photographed on the university’s campus in Manhattan’s Greenwich Village.`\
 https://nytimes.com/2024/09/04/us/politics/barron-trump-nyu.html
