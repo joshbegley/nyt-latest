@@ -1,3 +1,11 @@
+**Gomes: England call-up makes 'difficult' Man United exit worth it**\
+`Angel Gomes says receiving his first senior England call-up makes the difficulty of leaving Manchester United worth it.`\
+https://nytimes.com/athletic/5744639/2024/09/04/england-angel-gomes-man-united/
+
+**Hunter Biden’s Legal Woes Return to Spotlight as Tax Trial Gets Underway**\
+`As both sides prepare for the start of jury selection on Thursday, there are no indications that any deal is likely, according to several people with knowledge of the situation.`\
+https://nytimes.com/2024/09/04/us/politics/hunter-biden-tax-trial.html
+
 **Trump Buried the Hatchet With Brian Kemp. Will He Dig It Up Again?**\
 `Donald Trump needs to win Georgia. That probably means he needs to keep a fragile peace with its popular Republican governor, even as election denialism again courses through the state.`\
 https://nytimes.com/2024/09/04/us/politics/trump-brian-kemp-georgia.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/europe/100000009672829/lviv-ukraine-russian-stri
 **Russian shelling disrupts operations at a Ukrainian nuclear plant, officials say.**\
 `By Marc Santora`\
 https://nytimes.com/live/2024/09/04/world/ukraine-russia-missile-attacks/russian-shelling-disrupts-operations-at-a-ukrainian-nuclear-plant-officials-say
-
-**What Ukko-Pekka Luukkonen can show Topias Leinonen about path to Sabres**\
-`From battling injuries to NHL starter, Luukkonen knows the path well. Leinonen hopes to have the same outcome.`\
-https://nytimes.com/athletic/5744228/2024/09/04/sabres-ukko-pekka-luukkonen-topias-leinonen/
-
-**JD Vance’s Conversion to Catholicism**\
-`Readers discuss an article about how he discovered his faith. Also: The Hamas tunnels; prioritizing child care; accessibility in Paris and Barcelona.`\
-https://nytimes.com/2024/09/04/opinion/jd-vance-catholic.html
 

@@ -1,3 +1,11 @@
+**Trump Buried the Hatchet With Brian Kemp. Will He Dig It Up Again?**\
+`Donald Trump needs to win Georgia. That probably means he needs to keep a fragile peace with its popular Republican governor, even as election denialism again courses through the state.`\
+https://nytimes.com/2024/09/04/us/politics/trump-brian-kemp-georgia.html
+
+**Premier League clears Chelsea over hotel deal**\
+`The Premier League has cleared the deal which saw Chelsea sell two hotels to a sister company in a transaction worth £76.`\
+https://nytimes.com/athletic/5744766/2024/09/04/chelsea-hotel-premier-league/
+
 **Best NFL futures bets: Austin Mock picks 8 futures bets for the NFL season**\
 `Austin Mocks makes eight picks for best NFL futures bets.`\
 https://nytimes.com/athletic/5744599/2024/09/04/2024-nfl-futures-best-bets/

@@ -1,3 +1,11 @@
+**Trump Buried the Hatchet With Brian Kemp. Will He Dig It Up Again?**\
+`Donald Trump needs to win Georgia. That probably means he needs to keep a fragile peace with its popular Republican governor, even as election denialism again courses through the state.`\
+https://nytimes.com/2024/09/04/us/politics/trump-brian-kemp-georgia.html
+
+**Premier League clears Chelsea over hotel deal**\
+`The Premier League has cleared the deal which saw Chelsea sell two hotels to a sister company in a transaction worth £76.`\
+https://nytimes.com/athletic/5744766/2024/09/04/chelsea-hotel-premier-league/
+
 **Best NFL futures bets: Austin Mock picks 8 futures bets for the NFL season**\
 `Austin Mocks makes eight picks for best NFL futures bets.`\
 https://nytimes.com/athletic/5744599/2024/09/04/2024-nfl-futures-best-bets/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5744228/2024/09/04/sabres-ukko-pekka-luukkonen-topi
 **JD Vance’s Conversion to Catholicism**\
 `Readers discuss an article about how he discovered his faith. Also: The Hamas tunnels; prioritizing child care; accessibility in Paris and Barcelona.`\
 https://nytimes.com/2024/09/04/opinion/jd-vance-catholic.html
-
-**When will Thatcher Demko return? One question for every Canucks defender and goalie**\
-`Identifying one big question for each player on Vancouver's back end heading into the 2024-25 campaign.`\
-https://nytimes.com/athletic/5743695/2024/09/04/vancouver-canucks-thatcher-demko-defense-questions/
-
-**Is It OK to Vote for My Third-Party Fave This Presidential Election?**\
-`The magazine’s Ethicist columnist on the efficacy of voting your conscience.`\
-https://nytimes.com/2024/09/04/magazine/third-party-voting-election-ethics.html
 
