@@ -1,3 +1,7 @@
+**A cabinet shake-up suggests Zelensky is planning for ‘a new phase of the war,’ analysts say.**\
+`By Marc Santora and Maria Varenikova`\
+https://nytimes.com/live/2024/09/04/world/ukraine-russia-missile-attacks/a-cabinet-shake-up-suggests-zelensky-is-planning-for-a-new-phase-of-the-war-analysts-say
+
 **Iran Emerges as a Top Disinformation Threat in U.S. Presidential Race**\
 `With a flurry of hacks and fake websites, Iran has intensified its efforts to discredit American democracy and possibly tip the race against former President Donald Trump.`\
 https://nytimes.com/2024/09/04/business/media/iran-disinformation-us-presidential-race.html
