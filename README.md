@@ -1,3 +1,7 @@
+**Venezuelan and Proxy Forces Linked to at Least 6 Protester Deaths, Rights Group Says**\
+`The Human Rights Watch report marks the first effort by a major international organization to verify some of the two-dozen reported deaths in protests since Venezuela’s disputed presidential election.`\
+https://nytimes.com/2024/09/04/world/americas/venezuelan-government-violence-human-rights.html
+
 **21 Migrants Missing at Sea as Boat Capsizes in Rough Seas Off Italy**\
 `Seven survivors were rescued from the boat that sank after leaving Libya. A crackdown by Italy has reduced migration, but not the high death rates that come with crossing the Mediterranean.`\
 https://nytimes.com/2024/09/04/world/europe/italy-migrants-missing-libya.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/04/us/georgia-shooting-apalachee-high-school/we
 **Will North Carolina’s MAGA Extremists Doom Trump?**\
 `There’s a whiff of Republican panic in this battleground state.`\
 https://nytimes.com/2024/09/04/opinion/trump-north-carolina-election.html
-
-**Dispatches From the Courtroom: Linda Deutsch Breaking the News**\
-`Covering some of America’s most sensational trials, she produced urgent, pithy “ledes” in the best tradition of wire-service reporting. Here’s a sampler.`\
-https://nytimes.com/2024/09/04/business/media/linda-deutsch-ap-court-reporting.html
 
