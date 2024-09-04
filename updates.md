@@ -1,3 +1,7 @@
+**U.S. Open quarterfinals: Biggest test for Pegula, Sinner and Medvedev resume rivalry**\
+`The two Grand Slam champions in the men's draw meet, while Pegula aims to join Emma Navarro in the semifinals.`\
+https://nytimes.com/athletic/5742593/2024/09/04/us-open-quarterfinals-preview-sinner-medvedev-swiatek-pegula/
+
 **Corrections: Sept. 4, 2024**\
 `Corrections that appeared in print on Wednesday, Sept. 4, 2024.`\
 https://nytimes.com/2024/09/04/pageoneplus/corrections-sept-4-2024.html

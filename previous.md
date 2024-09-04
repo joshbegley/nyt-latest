@@ -1,3 +1,7 @@
+**U.S. Open quarterfinals: Biggest test for Pegula, Sinner and Medvedev resume rivalry**\
+`The two Grand Slam champions in the men's draw meet, while Pegula aims to join Emma Navarro in the semifinals.`\
+https://nytimes.com/athletic/5742593/2024/09/04/us-open-quarterfinals-preview-sinner-medvedev-swiatek-pegula/
+
 **Corrections: Sept. 4, 2024**\
 `Corrections that appeared in print on Wednesday, Sept. 4, 2024.`\
 https://nytimes.com/2024/09/04/pageoneplus/corrections-sept-4-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5739396/2024/09/04/tony-bloom-interview-brighton-ps
 **Yankees noncommittal on Clay Holmes' closer role as he allows walk-off grand slam**\
 `"I'm not going to answer that right now when we're raw and emotional," manager Aaron Boone said when pressed on moving to a new closer.`\
 https://nytimes.com/athletic/5743624/2024/09/04/yankees-clay-holmes-allows-walk-off-grand-slam/
-
-**Ukraine’s Foreign Minister Offers to Resign as Zelensky Plans Major Shake-Up**\
-`President Volodymyr Zelensky is expected to make the broadest changes to his government since Russia invaded more than two years ago.`\
-https://nytimes.com/2024/09/04/world/europe/zelensky-cabinet-dmytro-kuleba-resignation.html
 
