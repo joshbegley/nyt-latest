@@ -26,8 +26,8 @@ https://nytimes.com/2024/09/04/learning/word-of-the-day-ensemble.html
 `Sale became the first Braves lefty with 200 strikeouts in a season but said he's far more concerned with making the playoffs.`\
 https://nytimes.com/athletic/5743682/2024/09/04/braves-chris-sale-cy-young-candidate/
 
-**Attacks Kill at Least 3 in Western Ukraine’s Lviv Amid Wide Bombardment**\
-`People in a swath of Ukraine were urged to take shelter as drones and missiles flew toward a number of cities a day after a devastating attack in the country’s east.`\
+**Missile and Drone Attacks Across Ukraine Kill at Least 7 in Lviv**\
+`Russia attacked a number of cities a day after a devastating strike in the country’s east, Ukrainian officials said.`\
 https://nytimes.com/2024/09/04/world/europe/russia-attack-ukraine-lviv.html
 
 **Quotation of the Day: Extreme Weather Is Increasing Risk of Collapse for U.S. Bridges**\
