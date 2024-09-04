@@ -1,3 +1,11 @@
+**Brad Keselowski on what sparked the infamous 2014 Texas brawl and more: 12 Questions**\
+`Ahead of the 2024 playoffs, Brad Keselowski talks about a run-in with Kevin Harvick, how hard it is to drive in NASCAR and more.`\
+https://nytimes.com/athletic/5740133/2024/09/04/brad-keselowski-nascar-texas-brawl-12-questions/
+
+**Mediators Pushing to Bridge Gaps in Gaza Cease-Fire Plan, Officials Say**\
+`The latest proposals have yet to be finalized, and both Israeli officials and Hamas leaders have expressed pessimism over the prospects for an agreement.`\
+https://nytimes.com/2024/09/04/world/middleeast/israel-hamas-gaza-ceasefire.html
+
 **How Tom Brady prepared for his Fox NFL broadcasting debut**\
 `When Tom Brady took his gap season between his final NFL game in early 2023 and his debut as Fox Sports&#8217; $375 million analyst this Sunday, he studied NFL broadcasts like he was trying to figure out a defense as a quarterback.`\
 https://nytimes.com/athletic/5742638/2024/09/04/tom-brady-fox-nfl-broadcast-preparations/
