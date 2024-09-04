@@ -1,3 +1,15 @@
+**When will Thatcher Demko return? One question for every Canucks defender and goalie**\
+`Identifying one big question for each player on Vancouver's back end heading into the 2024-25 campaign.`\
+https://nytimes.com/athletic/5743695/2024/09/04/vancouver-canucks-thatcher-demko-defense-questions/
+
+**Is It OK to Vote for My Third-Party Fave This Presidential Election?**\
+`The magazine’s Ethicist columnist on the efficacy of voting your conscience.`\
+https://nytimes.com/2024/09/04/magazine/third-party-voting-election-ethics.html
+
+**Shooting at Georgia High School Leaves Multiple Casualties, Officials Say**\
+`A suspect was in custody after the shooting on Wednesday morning at Apalachee High School  in Winder, Ga., the Georgia Bureau of Investigation said.`\
+https://nytimes.com/2024/09/04/us/apalachee-high-school-shooting-lockdown.html
+
 **Jim Riswold, Creator of ‘Bo Knows’ and Air Jordan Ads, Dies at 66**\
 `His work for Nike — particularly commercials starring Michael Jordan and Spike Lee — blurred the line between advertising and entertainment.`\
 https://nytimes.com/2024/09/04/business/media/jim-riswold-dead.html
