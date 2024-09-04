@@ -1,3 +1,11 @@
+**What’s in Our Queue? ‘Below Deck Mediterranean’ and More**\
+`I’m the reporting fellow on The Times’s Culture desk. Here are five things I’ve recently heard, seen and watched.`\
+https://nytimes.com/interactive/2024/09/04/arts/editors-recommendations-below-deck.html
+
+**College Football Playoff 2024 projections: Miami in, LSU out of our 12-team bracket**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/09/04/college-football-playoff-projections-odds/
+
 **Gaudreau's teammates share their 'anger, sadness, disbelief'**\
 `"As a team, we're going to get through this," Blue Jackets captain Boone Jenner said of teammate Johnny Gaudreau's death.`\
 https://nytimes.com/athletic/5745174/2024/09/04/gaudreau-blue-jackets-reaction-teammates/
