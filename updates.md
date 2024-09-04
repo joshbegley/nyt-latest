@@ -1,3 +1,7 @@
+**Chase practices with Bengals amid contract dispute**\
+`Wednesday marked the first time Ja'Marr Chase took part in a practice open to media this offseason.`\
+https://nytimes.com/athletic/5745035/2024/09/04/jamarr-chase-bengals-practice/
+
 **Liverpool sign Ngumoha from Chelsea after move is approved by Premier League**\
 `The Premier League have approved Liverpool’s signing of highly-rated teenage forward Rio Ngumoha from Chelsea.`\
 https://nytimes.com/athletic/5745106/2024/09/04/liverpool-chelsea-rio-ngumoha-transfer/
