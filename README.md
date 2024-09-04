@@ -1,3 +1,7 @@
+**Russia’s aerial assault on Ukraine comes as the situation on the battlefield is in flux.**\
+`By Matthew Mpoke Bigg`\
+https://nytimes.com/live/2024/09/04/world/ukraine-russia-missile-attacks/russias-aerial-assault-on-ukraine-comes-as-the-situation-on-the-battlefield-is-in-flux
+
 **Multiple Casualties In Georgia High School Shooting, Officials Say**\
 `The police responded to a shooting at Apalachee High School in Winder, Ga. Students gathered at the school’s track and field stadium.`\
 https://nytimes.com/video/us/100000009673329/georgia-school-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5744617/2024/09/04/jeremiah-smith-ohio-state-footba
 **Here’s Why Stock Indexes Sank on Tuesday**\
 `The market drop was primarily focused on Nvidia and other tech companies.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/stock-market-nvidia
-
-**Russia Launches Deadly Missile and Drone Attacks on Ukraine**\
-`At least seven people were killed in the western Ukrainian city of Lviv, a day after a devastating attack on the eastern city of Poltava left dozens of others dead.`\
-https://nytimes.com/video/world/europe/100000009672829/lviv-ukraine-russian-strike.html
 
