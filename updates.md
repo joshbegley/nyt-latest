@@ -1,3 +1,7 @@
+**Multiple Casualties In Georgia High School Shooting, Officials Say**\
+`The police responded to a shooting at Apalachee High School in Winder, Ga. Students gathered at the school’s track and field stadium.`\
+https://nytimes.com/video/us/100000009673329/georgia-school-shooting.html
+
 **Gomes: England call-up makes 'difficult' Man United exit worth it**\
 `Angel Gomes says receiving his first senior England call-up makes the difficulty of leaving Manchester United worth it.`\
 https://nytimes.com/athletic/5744639/2024/09/04/england-angel-gomes-man-united/
