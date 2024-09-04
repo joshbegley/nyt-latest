@@ -1,3 +1,11 @@
+**Deregulation and Dishonesty Led to Deadly Grenfell Fire, Inquiry Finds**\
+`A damning final report into Britain’s worst residential fire since World War II blamed a litany of cost-cutting, dishonest sales practices and lax regulation for the blaze that killed 72 people.`\
+https://nytimes.com/2024/09/04/world/europe/grenfell-tower-fire-inquiry-report-uk.html
+
+**Why Vikings safety Harrison Smith is still one of the smartest players in the NFL**\
+`Entering his 13th season, the potential Hall of Famer still loves football. He reviewed some of his top highlights with The Athletic.`\
+https://nytimes.com/athletic/5738862/2024/09/04/harrison-smith-minnesota-vikings-nfl/
+
 **Browns need the best version of Deshaun Watson if they want to reach their ceiling**\
 `Cleveland has amassed and retained enough talent to be considered potentially elite this season. But it all starts with its highly paid QB. `\
 https://nytimes.com/athletic/5743152/2024/09/04/browns-deshaun-watson-season-preview/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5741172/2024/09/04/anthony-richardson-colts-new-fat
 **The Battle to Control the World’s Most Powerful Technology**\
 `Nvidia chips, which are crucial to artificial intelligence, are traded actively in China, despite U.S. restrictions, The Times found.`\
 https://nytimes.com/2024/09/04/podcasts/the-daily/china-chip-ai.html
-
-**NFL execs rank AFC teams: Who threatens the Chiefs? How high can the Texans climb?**\
-`The Chiefs are the conference's clear favorite, but it gets murky after that. Will the Ravens fall off without Mike Macdonald?`\
-https://nytimes.com/athletic/5741509/2024/09/04/afc-rankings-chiefs-ravens-texans-nfl-executives/
-
-**The Connections Companion No. 452**\
-`Scroll down for hints and conversation about the puzzle for Thursday, Sept. 5, 2024.`\
-https://nytimes.com/2024/09/04/crosswords/connections-companion-452.html
 
