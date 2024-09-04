@@ -1,3 +1,7 @@
+**Spirit rookie Bethune suffers season-ending knee injury**\
+`Bethune was selected third overall in the 2023 NWSL Draft, with Washington trading defensive anchor Sam Staab to obtain the pick.`\
+https://nytimes.com/athletic/5745585/2024/09/04/washington-spirit-croix-bethune-knee-injury/
+
 **Venezuelan and Proxy Forces Linked to at Least 6 Protester Deaths, Rights Group Says**\
 `The Human Rights Watch report marks the first effort by a major international organization to verify some of the two-dozen reported deaths in protests since Venezuela’s disputed presidential election.`\
 https://nytimes.com/2024/09/04/world/americas/venezuelan-government-violence-human-rights.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000009673360/migrant-boat-capsize-ital
 **Wednesday’s school shooting was the deadliest in Georgia’s recent history.**\
 `By Kate Selig`\
 https://nytimes.com/live/2024/09/04/us/georgia-shooting-apalachee-high-school/wednesdays-school-shooting-was-the-deadliest-in-georgias-recent-history
-
-**Will North Carolina’s MAGA Extremists Doom Trump?**\
-`There’s a whiff of Republican panic in this battleground state.`\
-https://nytimes.com/2024/09/04/opinion/trump-north-carolina-election.html
 
