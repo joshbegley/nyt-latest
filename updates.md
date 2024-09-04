@@ -1,3 +1,11 @@
+**Giants takeaways: The impact of the Luciano, Matos and Eldridge promotions**\
+`Making sense of the Marco Luciano and Luis Matos promotions while singing the praises of top prospect Bryce Eldridge.`\
+https://nytimes.com/athletic/5743302/2024/09/04/sf-giants-takeaways-marco-luciano-bryce-eldridge/
+
+**Mirtle: The big question after Leon Draisaitl’s deal — what is Connor McDavid worth?**\
+`Although McDavid's next contract will likely set a new high-water mark for this era of NHL players, it'll still be a bargain for the Oilers.`\
+https://nytimes.com/athletic/5743417/2024/09/04/leon-draisaitl-connor-mcdavid-oilers-contract-salary/
+
 **A cabinet shake-up suggests Zelensky is planning for ‘a new phase of the war,’ analysts say.**\
 `By Marc Santora and Maria Varenikova`\
 https://nytimes.com/live/2024/09/04/world/ukraine-russia-missile-attacks/a-cabinet-shake-up-suggests-zelensky-is-planning-for-a-new-phase-of-the-war-analysts-say
