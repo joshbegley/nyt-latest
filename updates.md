@@ -1,3 +1,7 @@
+**Braves' Chris Sale surpasses 200 strikeouts, adds to Cy Young resume in his resurgent season**\
+`Sale became the first Braves lefty with 200 strikeouts in a season but said he's far more concerned with making the playoffs.`\
+https://nytimes.com/athletic/5743682/2024/09/04/braves-chris-sale-cy-young-candidate/
+
 **Attacks Kill at Least 3 in Western Ukraine’s Lviv Amid Wide Bombardment**\
 `People in a swath of Ukraine were urged to take shelter as drones and missiles flew toward a number of cities a day after a devastating attack in the country’s east.`\
 https://nytimes.com/2024/09/04/world/europe/russia-attack-ukraine-lviv.html
