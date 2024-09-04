@@ -1,3 +1,7 @@
+**Quotation of the Day: Extreme Weather Is Increasing Risk of Collapse for U.S. Bridges**\
+`Quotation of the Day for Wednesday, September 4, 2024.`\
+https://nytimes.com/2024/09/04/pageoneplus/quotation-of-the-day-extreme-weather-is-increasing-risk-of-collapse-for-us-bridges.html
+
 **Electing Judges in Mexico? It’s a Bad Idea.**\
 `The judicial overhaul in Mexico could harm government accountability, undermine the justice system and give even greater power to drug cartels.`\
 https://nytimes.com/2024/09/04/opinion/mexico-judges-election-government.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5742685/2024/09/04/leicester-city-psr-verdict-analy
 **Frances Tiafoe joins Taylor Fritz in U.S. Open semifinals after Dimitrov retires injured**\
 `An American man will contest the U.S. Open final, with Tiafoe facing Taylor Fritz in the semis.`\
 https://nytimes.com/athletic/5743597/2024/09/04/tiafoe-dimitrov-us-open-result/
-
-**Wolves' transfer window reviewed: Sensible signings but not replacing Kilman could prove costly**\
-`Gary O'Neil's side strengthened in some departments over the summer but failed to find cover in a couple of vital areas`\
-https://nytimes.com/athletic/5741413/2024/09/04/wolves-transfer-window-reviewed/
 

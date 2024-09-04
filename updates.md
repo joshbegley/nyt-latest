@@ -1,3 +1,7 @@
+**Quotation of the Day: Extreme Weather Is Increasing Risk of Collapse for U.S. Bridges**\
+`Quotation of the Day for Wednesday, September 4, 2024.`\
+https://nytimes.com/2024/09/04/pageoneplus/quotation-of-the-day-extreme-weather-is-increasing-risk-of-collapse-for-us-bridges.html
+
 **Electing Judges in Mexico? It’s a Bad Idea.**\
 `The judicial overhaul in Mexico could harm government accountability, undermine the justice system and give even greater power to drug cartels.`\
 https://nytimes.com/2024/09/04/opinion/mexico-judges-election-government.html
