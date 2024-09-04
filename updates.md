@@ -1,3 +1,7 @@
+**Alfie Devine to join KVC Westerlo on loan from Tottenham**\
+`Alfie Devine is to join Belgian club KVC Westerlo on loan from Tottenham Hotspur.`\
+https://nytimes.com/athletic/5743794/2024/09/04/alfie-devine-tottenham-kvc-westerlo-transfer/
+
 **Hummels set to join Roma following Dortmund exit**\
 `Mats Hummels is set to join Roma as a free agent after leaving Borussia Dortmund earlier this summer.`\
 https://nytimes.com/athletic/5733958/2024/09/04/mats-hummels-roma-transfer/
