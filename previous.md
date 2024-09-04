@@ -1,3 +1,11 @@
+**The Windup: The new Bash Brothers**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5744521/2024/09/04/oakland-as-lawrence-butler-brent-rooker-the-windup/
+
+**Atlanta United parts ways with Bocanegra**\
+`Atlanta United announced on Wednesday that the club has parted ways with vice president and technical director Carlos Bocanegra.`\
+https://nytimes.com/athletic/5744540/2024/09/04/atlanta-united-carlos-bocanegra/
+
 **'Raygun' calls level of criticism 'alarming'**\
 `"The energy and vitriol that people had was pretty alarming," Rachel "Raygun" Gunn said of criticism of her Olympic breaking performance.`\
 https://nytimes.com/athletic/5744167/2024/09/04/raygun-breaking-olympics-criticism/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5744431/2024/09/04/nhl-pipeline-rankings-mailbag-pr
 **The Pulse: The most optimistic NFL fan base**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5743625/2024/09/04/nfl-season-predictions-the-pulse-2/
-
-**How Leicester avoided a points deduction - and what it means for PSR**\
-`The key questions answered after Leicester avoided punishment over alleged PSR breaches`\
-https://nytimes.com/athletic/5742838/2024/09/04/leicester-city-psr-premier-league/
-
-**Penguins radio broadcaster Joe Brand on 'big' new job**\
-`Brand was announced Tuesday as the winner of the Penguins' nationwide search to succeed Steve Mears for play-by-play duties on the radio.`\
-https://nytimes.com/athletic/5743197/2024/09/04/penguins-new-radio-play-by-play-joe-brand/
 

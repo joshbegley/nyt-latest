@@ -1,3 +1,11 @@
+**The Windup: The new Bash Brothers**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5744521/2024/09/04/oakland-as-lawrence-butler-brent-rooker-the-windup/
+
+**Atlanta United parts ways with Bocanegra**\
+`Atlanta United announced on Wednesday that the club has parted ways with vice president and technical director Carlos Bocanegra.`\
+https://nytimes.com/athletic/5744540/2024/09/04/atlanta-united-carlos-bocanegra/
+
 **'Raygun' calls level of criticism 'alarming'**\
 `"The energy and vitriol that people had was pretty alarming," Rachel "Raygun" Gunn said of criticism of her Olympic breaking performance.`\
 https://nytimes.com/athletic/5744167/2024/09/04/raygun-breaking-olympics-criticism/
