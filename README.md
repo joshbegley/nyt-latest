@@ -1,4 +1,4 @@
-**The Pope’s Visit to Indonesia, in Pictures**\
+**Inside the Pope’s Visit to Indonesia**\
 `Starting in the majority-Muslim nation, Francis is undertaking a multiday journey through Asia and Oceania.`\
 https://nytimes.com/2024/09/04/world/asia/indonesia-pope-visit.html
 
