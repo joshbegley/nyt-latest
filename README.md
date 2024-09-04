@@ -1,3 +1,19 @@
+**Trump Media Shares Are Down 70% From Their March Peak**\
+`The stock price of the former president’s social media company has often moved in tandem with investor perception of his standing in the presidential race.`\
+https://nytimes.com/2024/09/04/business/trump-media-djt-stock.html
+
+**TikTok Expands Its ‘How to Vote’ Resources Ahead of the Election**\
+`The company is an increasingly popular source of political news. It’s adding more content about how elections work and media literacy.`\
+https://nytimes.com/2024/09/04/business/tiktok-vote-election.html
+
+**Scoop City: The two faces of the NFL**\
+`A look at Mahomes and Jackson, the new NFL kickoff, optimism in Detroit and two fantasy football nuggets.`\
+https://nytimes.com/athletic/5744245/2024/09/04/scoop-city-the-two-faces-of-the-nfl/
+
+**Broncos make CB Patrick Surtain II NFL's highest-paid DB**\
+`The Broncos selected Surtain with the ninth overall pick in the 2022 NFL Draft.`\
+https://nytimes.com/athletic/5744204/2024/09/04/patrick-surtain-broncos-contract-extension/
+
 **Luca Guadagnino Gets Crafty**\
 `The film director and designer did double duty in Venice, Italy, debuting a film at the Venice Film Festival along with his curation of Homo Faber, the craftsmanship exhibition.`\
 https://nytimes.com/2024/09/04/style/luca-guadagnino-gets-crafty.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5735400/2024/09/04/eli-manning-new-york-giants-mali
 **Our Granddaughter’s Boyfriend Is Too Old for Her. What Can We Do?**\
 `A reader and her husband are united in disapproval of the 14-year age gap in their granddaughter’s relationship. What they don’t agree on is whether to invite him to dinner.`\
 https://nytimes.com/2024/09/04/style/age-gap-relationships.html
-
-**A New ‘Red Hot’ Album Tackles a Hot Topic: Transgender Awareness**\
-`“Transa,” with 46 tracks due Nov. 22, brings together artists including Sam Smith, Sade, André 3000 and Jayne County.`\
-https://nytimes.com/2024/09/04/arts/music/red-hot-and-transa-transgender-musicians.html
-
-**What a Puppy Kindergarten Revealed About Raising Exceptional Dogs**\
-`Brian Hare and Vanessa Woods are studying how the canine mind develops and what makes a successful service dog.`\
-https://nytimes.com/2024/09/04/science/puppy-kindergarten-duke.html
-
-**Texans extend backup QB Mills through 2025**\
-`Davis Mills was entering the fourth and final year of his rookie contract.`\
-https://nytimes.com/athletic/5743993/2024/09/04/davis-mills-texans-contract/
-
-**Inside the Pope’s Visit to Indonesia**\
-`Starting in the majority-Muslim nation, Francis is undertaking a multiday journey through Asia and Oceania.`\
-https://nytimes.com/2024/09/04/world/asia/indonesia-pope-visit.html
 
