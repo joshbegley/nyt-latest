@@ -1,3 +1,7 @@
+**Russia Launches Deadly Missile and Drone Attacks on Ukraine**\
+`At least seven people were killed in the western Ukrainian city of Lviv, a day after a devastating attack on the eastern city of Poltava left dozens of others dead.`\
+https://nytimes.com/video/world/europe/100000009672829/lviv-ukraine-russian-strike.html
+
 **Russian shelling disrupts operations at a Ukrainian nuclear plant, officials say.**\
 `By Marc Santora`\
 https://nytimes.com/live/2024/09/04/world/ukraine-russia-missile-attacks/russian-shelling-disrupts-operations-at-a-ukrainian-nuclear-plant-officials-say
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/04/world/asia/women-taliban-prohibitions-afghanistan
 **Shooting at Georgia High School Leaves Multiple Casualties, Officials Say**\
 `A suspect was in custody after the shooting on Wednesday morning at Apalachee High School  in Winder, Ga., the Georgia Bureau of Investigation said.`\
 https://nytimes.com/2024/09/04/us/apalachee-high-school-shooting-lockdown.html
-
-**Nordstrom Family Offers $3.8 Billion to Buy Its Namesake Retailer**\
-`The $23-per-share offer by the department store’s founding family comes as retailers struggle to navigate new shopping trends and costly real estate.`\
-https://nytimes.com/2024/09/04/business/dealbook/nordstrom-retailer-private.html
 
