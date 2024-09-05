@@ -1,3 +1,7 @@
+**College football Week 2 model projections: Predicted scores for every game**\
+`Austin Mock's college football model projects the point differentials and point totals for every Week 2 FBS vs. FBS game.`\
+https://nytimes.com/athletic/5748726/2024/09/05/college-football-week-2-model-projections-scores/
+
 **Rich Homie Quan, Melodic Atlanta Rapper, Dies at 34**\
 `The rapper, who was at one time affiliated with Young Thug, had a 2015 hit with “Flex (Ooh, Ooh, Ooh),” which spawned a dance craze.`\
 https://nytimes.com/2024/09/05/arts/music/rich-homie-quan-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5748275/2024/09/05/oksana-masters-paralympics-cycli
 **Big game at the Big House, plus is Clemson on upset watch?**\
 `Welcome to Until Saturday, the five-star college football newsletter: Week 2 viewer guide, plus our upset specials. `\
 https://nytimes.com/athletic/5747120/2024/09/05/texas-michigan-clemson-until-saturday/
-
-**NWSL commissioner: CBA is step in becoming 'best league in the world'**\
-`Berman spoke at the Bloomberg Power Players conference in New York for the first time since the CBA was announced.`\
-https://nytimes.com/athletic/5748542/2024/09/05/nwsl-commissioner-jessica-berman-cba/
 

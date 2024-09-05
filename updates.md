@@ -1,3 +1,7 @@
+**College football Week 2 model projections: Predicted scores for every game**\
+`Austin Mock's college football model projects the point differentials and point totals for every Week 2 FBS vs. FBS game.`\
+https://nytimes.com/athletic/5748726/2024/09/05/college-football-week-2-model-projections-scores/
+
 **Rich Homie Quan, Melodic Atlanta Rapper, Dies at 34**\
 `The rapper, who was at one time affiliated with Young Thug, had a 2015 hit with “Flex (Ooh, Ooh, Ooh),” which spawned a dance craze.`\
 https://nytimes.com/2024/09/05/arts/music/rich-homie-quan-dead.html
