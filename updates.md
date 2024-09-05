@@ -1,3 +1,11 @@
+**'Let's keep their stories alive': Blue Jackets' vigil for Gaudreau brothers allows fans, players to mourn together**\
+`The vigil for the Gaudreau brothers outside the Columbus arena helped a grieving community to gather, hug and cry together.`\
+https://nytimes.com/athletic/5746105/2024/09/04/gaudreau-candlelight-vigil-blue-jackets-flames/
+
+**Peer Group**\
+`Are you feeling dizzy after solving Joe Deeney’s puzzle?`\
+https://nytimes.com/2024/09/04/crosswords/daily-puzzle-2024-09-05.html
+
 **Whit Merrifield thinks MLB will have hit-batter rule in place by 2025**\
 `Regarding potential penalties, Merrifield said, “You look at football players, they’ve had to totally rework how they tackle."`\
 https://nytimes.com/athletic/5746145/2024/09/04/braves-whit-merrifield-mlb-hit-batter-rule/
