@@ -1,3 +1,23 @@
+**'Everyone can see why we had to act': How England won battle for Grealish and Rice**\
+`Rice and Grealish face Ireland for England this weekend knowing they could have been wearing green, not white`\
+https://nytimes.com/athletic/5728652/2024/09/05/england-rice-grealish-ireland/
+
+**Thursday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/09/05/briefing/election-interference-ukraine-grenfell.html
+
+**Why Morgan Gibbs-White deserves his England call-up – only Saka has created more chances**\
+`A consistent, creative force, the 24-year-old could lead the way for other Forest players to break into the England picture`\
+https://nytimes.com/athletic/5743992/2024/09/05/morgan-gibbs-white-england-forest/
+
+**Under-the-radar transfers: 10 intriguing deals from this summer's window**\
+`Forget the big-name deals that dominated the headlines, here are the clever moves that you might have missed`\
+https://nytimes.com/athletic/5741093/2024/09/05/under-the-radar-transfers-european-football-2024/
+
+**32 bold fantasy football predictions to shape your early-season strategy**\
+`Don't be surprised if Bijan Robinson leads the NFL in plays from scrimmage ... or if Xavier Worthy tops the Chiefs receiving corps in TDs.`\
+https://nytimes.com/athletic/5745129/2024/09/05/32-bold-fantasy-football-predictions-to-shape-your-early-season-strategy/
+
 **The Athletic 500: Assessing the financial value of the Premier League's summer transfer business**\
 `How a focus on youth made this a reasonably sensible Premier League transfer window from a resale point of view `\
 https://nytimes.com/athletic/5744276/2024/09/05/the-athletic-500-financial-value-review/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5746433/2024/09/04/jannik-sinner-us-open-medvedev-r
 **Meaningful September baseball? That's not enough for the streaking, unsatisfied Mets**\
 `The Mets finished up a sweep of the Red Sox to extend their winning streak to seven: "This is where we should be."`\
 https://nytimes.com/athletic/5746405/2024/09/04/mets-mlb-wild-card-race/
-
-**Another disastrous inning does in Louie Varland, Twins in loss to Rays**\
-`The big, bad blowup inning is presently trending for the Twins, which isn't a great development for a team with lofty October aspirations.`\
-https://nytimes.com/athletic/5746374/2024/09/04/louie-varland-twins-loss-tampa-bay/
-
-**Memphis aware of letter alleging potential NCAA violations**\
-`It is unknown whether the letter is connected with Wednesday’s staff shakeup at Memphis.`\
-https://nytimes.com/athletic/5746323/2024/09/04/memphis-basketball-letter-violations/
-
-**Jessica Pegula knocks Iga Swiatek out of U.S. Open for first Grand Slam semifinal**\
-`The world No. 6 had lost six consecutive Grand Slam quarterfinals before defeating the world No. 1 in New York.`\
-https://nytimes.com/athletic/5746112/2024/09/04/pegula-swiatek-us-open-result/
-
-**China Woos Africa, Casting Itself as Global South’s Defender**\
-`More than 50 African leaders have gathered in Beijing for a summit aimed at projecting the influence of China’s leader, Xi Jinping, in the developing world.`\
-https://nytimes.com/2024/09/04/world/asia/china-africa-summit.html
-
-**What We Know About the Apalachee High School Shooting Victims**\
-`Two students and two teachers were shot dead at the high school in Winder, Ga. At least nine others were injured.`\
-https://nytimes.com/2024/09/04/us/georgia-school-shooting-victims.html
 
