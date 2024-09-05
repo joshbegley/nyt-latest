@@ -1,3 +1,11 @@
+**Trump Plans to Call for an Efficiency Commission, an Idea Pushed by Elon Musk**\
+`Advisers to Donald Trump said the goal of the commission would be to “analyze the functionality” of the federal government and look for ways to find savings for taxpayers.`\
+https://nytimes.com/2024/09/05/us/politics/trump-elon-musk-efficiency-commission.html
+
+**Picasso Prints and Brazilian Brilliance at the Independent**\
+`The fair’s third 20th-century-focused edition charts a careful line between safety and excitement.`\
+https://nytimes.com/2024/09/05/arts/design/picasso-prints-and-brazilian-brilliance-at-the-independent.html
+
 **U.N.C. Reports Declines in Black and Hispanic Enrollment**\
 `Along with Harvard University, the University of North Carolina at Chapel Hill was one of two schools defending affirmative action in Supreme Court cases last year.`\
 https://nytimes.com/2024/09/05/us/unc-affirmative-action-black-enrollment.html
@@ -6,7 +14,7 @@ https://nytimes.com/2024/09/05/us/unc-affirmative-action-black-enrollment.html
 `Prodded by Oliver Sacks, he wrote a humane, award-winning book about the condition. A music maven, he also wrote liner notes for the Grateful Dead and his friend David Crosby.`\
 https://nytimes.com/2024/09/05/science/steve-silberman-dead.html
 
-**Putin Says Ukraine’s East Is Now Russia’s Main Goal**\
+**Putin Drives Home a Perilous Point: Ukraine’s East Is Russia’s Main Goal**\
 `Dismissing Ukraine’s recent invasion of Kursk, the Russian leader said Kyiv made a mistake in trying to force Moscow to divert its forces from the Donbas region.`\
 https://nytimes.com/2024/09/05/world/europe/russia-ukraine-putin-kursk.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5746566/2024/09/05/canucks-roster-projection-2024-2
 **Boulder Mass Shooting Trial Focuses on Accused Gunman’s Mental State**\
 `Lawyers for the accused gunman are using the state’s insanity defense, arguing that he was mentally ill at the time of the 2021 shooting that left 10 people dead at a supermarket.`\
 https://nytimes.com/2024/09/05/us/boulder-mass-shooting-trial.html
-
-**Walker on England omission: 'It's the right call'**\
-`Kyle Walker says England interim manager Lee Carsley was correct to not name him in the squad for September&#8217;s Nations League fixtures.`\
-https://nytimes.com/athletic/5747648/2024/09/05/kyle-walker-england-squad/
-
-**Top 50 MLB prospects: Two Tigers lead off while Bazzana cracks Top 5 of Bowden's rankings**\
-`It's time for Jim Bowden to update his annual top-50 ranking. This year, two Tigers — Jackson Jobe and Max Clark — lead the list. `\
-https://nytimes.com/athletic/5742542/2024/09/05/top-50-mlb-prospects-jobe-bazzana-mayer/
 

@@ -1,3 +1,15 @@
+**Trump Plans to Call for an Efficiency Commission, an Idea Pushed by Elon Musk**\
+`Advisers to Donald Trump said the goal of the commission would be to “analyze the functionality” of the federal government and look for ways to find savings for taxpayers.`\
+https://nytimes.com/2024/09/05/us/politics/trump-elon-musk-efficiency-commission.html
+
+**Picasso Prints and Brazilian Brilliance at the Independent**\
+`The fair’s third 20th-century-focused edition charts a careful line between safety and excitement.`\
+https://nytimes.com/2024/09/05/arts/design/picasso-prints-and-brazilian-brilliance-at-the-independent.html
+
+**Putin Drives Home a Perilous Point: Ukraine’s East Is Russia’s Main Goal**\
+`Dismissing Ukraine’s recent invasion of Kursk, the Russian leader said Kyiv made a mistake in trying to force Moscow to divert its forces from the Donbas region.`\
+https://nytimes.com/2024/09/05/world/europe/russia-ukraine-putin-kursk.html
+
 **U.N.C. Reports Declines in Black and Hispanic Enrollment**\
 `Along with Harvard University, the University of North Carolina at Chapel Hill was one of two schools defending affirmative action in Supreme Court cases last year.`\
 https://nytimes.com/2024/09/05/us/unc-affirmative-action-black-enrollment.html
