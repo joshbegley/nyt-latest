@@ -1,3 +1,7 @@
+**Jessica Pegula knocks Iga Swiatek out of U.S. Open for first Grand Slam semifinal**\
+`The world No. 6 had lost six consecutive Grand Slam quarterfinals before defeating the world No. 1 in New York.`\
+https://nytimes.com/athletic/5746112/2024/09/04/pegula-swiatek-us-open-result/
+
 **China Woos Africa, Casting Itself as Global South’s Defender**\
 `More than 50 African leaders have gathered in Beijing for a summit aimed at projecting the influence of China’s leader, Xi Jinping, in the developing world.`\
 https://nytimes.com/2024/09/04/world/asia/china-africa-summit.html
