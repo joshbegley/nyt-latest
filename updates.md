@@ -1,3 +1,19 @@
+**The Women's Champions League is vitally important to Arsenal - qualifying is a must**\
+`The financial rewards of reaching the group stage are sizeable and it would be a huge blow to Jonas Eidevall's side if they were to miss out`\
+https://nytimes.com/athletic/5743803/2024/09/05/arsenal-women-champions-league-3/
+
+**Chelsea fan survey results: 80% now less confident in ownership after transfer window**\
+`More than 1,000 people responded to our questions about Chelsea and their summer dealings - here is what they had to say`\
+https://nytimes.com/athletic/5744131/2024/09/05/chelsea-fan-survey-results/
+
+**Guehi, transfer strategy and revised ambitions - analysing Mitchell's first Newcastle interview**\
+`Sporting director Paul Mitchell discusses Newcastle's summer transfer window, the state of the club he walked into and future plans`\
+https://nytimes.com/athletic/5744787/2024/09/05/paul-mitchell-interview-newcastle/
+
+**Hakan Sukur and his U.S. exile: 'I’m like a good version of Voldemort - he who shall not be named'**\
+`In his native Turkey, it is like Sukur does not exist. One of their greatest ever footballers tells his story, of Erdogan, exile and Uber`\
+https://nytimes.com/athletic/5714861/2024/09/05/hakan-sukur-exile-erdogan-usa-turkey/
+
 **Angel Gomes's journey from Manchester United to an England call-up**\
 `Gomes's England call-up shouldn't come as a surprise to anyone familiar with his intelligent play style and relationship with Lee Carsley`\
 https://nytimes.com/athletic/5744983/2024/09/05/angel-gomes-england-manchester-united-lille/
