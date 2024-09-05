@@ -1,3 +1,11 @@
+**Cardinals edge Brewers, keep postseason dreams alive with another extra-inning win**\
+`After many mixed messages about multiple players, the Cardinals have decided on set roles for their roster.`\
+https://nytimes.com/athletic/5746049/2024/09/05/cardinals-mlb-wild-card-chase/
+
+**Thursday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/09/05/briefing/election-interference-ukraine-grenfell.html
+
 **Dyche will be backed – and will back himself – to turn Everton's start around**\
 `Sean Dyche must really hate August – after Everton's woeful start to the Premier League season he must correct what has gone wrong. Again.`\
 https://nytimes.com/athletic/5743824/2024/09/05/sean-dyche-everton-manager-start/
