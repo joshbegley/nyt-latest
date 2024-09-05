@@ -1,3 +1,11 @@
+**Live Updates: Questions Mount After Georgia School Shooting**\
+`Four people were killed in the shooting at a high school. The 14-year-old suspect had been on law enforcement agencies’ radar for more than a year, after they questioned him about threats posted online.`\
+https://nytimes.com/live/2024/09/05/us/georgia-school-shooting
+
+**Here’s the latest on the investigation into the shooting.**\
+`By Jacey Fortin, Rick Rojas and Alessandro Marazzi Sassoon`\
+https://nytimes.com/live/2024/09/05/us/georgia-school-shooting/heres-the-latest-on-the-investigation-into-the-shooting
+
 **Sarah Adam: US trailblazer, tough as teak - and a 'murderball' medallist**\
 `Sarah Adam was the only woman in the US' wheelchair rugby team - but made her presence felt, she hopes she has inspired the next generation`\
 https://nytimes.com/athletic/5743943/2024/09/05/sarah-adam-us-paralympics-murderball/
