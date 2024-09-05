@@ -1,3 +1,7 @@
+**Memphis aware of letter alleging potential NCAA violations**\
+`It is unknown whether the letter is connected with Wednesday’s staff shakeup at Memphis.`\
+https://nytimes.com/athletic/5746323/2024/09/04/memphis-basketball-letter-violations/
+
 **Jessica Pegula knocks Iga Swiatek out of U.S. Open for first Grand Slam semifinal**\
 `The world No. 6 had lost six consecutive Grand Slam quarterfinals before defeating the world No. 1 in New York.`\
 https://nytimes.com/athletic/5746112/2024/09/04/pegula-swiatek-us-open-result/

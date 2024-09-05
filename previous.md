@@ -1,3 +1,7 @@
+**Memphis aware of letter alleging potential NCAA violations**\
+`It is unknown whether the letter is connected with Wednesday’s staff shakeup at Memphis.`\
+https://nytimes.com/athletic/5746323/2024/09/04/memphis-basketball-letter-violations/
+
 **Jessica Pegula knocks Iga Swiatek out of U.S. Open for first Grand Slam semifinal**\
 `The world No. 6 had lost six consecutive Grand Slam quarterfinals before defeating the world No. 1 in New York.`\
 https://nytimes.com/athletic/5746112/2024/09/04/pegula-swiatek-us-open-result/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/04/us/georgia-shooting-apalachee-high-school/th
 **In Nebraska, Tim Walz’s Family Is Split Over the Election**\
 `A photo widely circulating on social media shows “Walz’s for Trump” from a side of the family Gov. Tim Walz’s sister said the Walzes “don’t even know.”`\
 https://nytimes.com/2024/09/04/us/politics/tim-walz-family-shirts-trump.html
-
-**Yoshinobu Yamamoto will return to Dodgers rotation on Tuesday against Cubs**\
-`Yamamoto hasn't pitched in the major leagues since June. `\
-https://nytimes.com/athletic/5746193/2024/09/04/dodgers-yoshinobu-yamamoto-injury-return/
 
