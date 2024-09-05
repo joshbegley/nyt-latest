@@ -1,3 +1,19 @@
+**Teenage E-Cigarette Use Continues to Decline**\
+`The percentage of middle and high school students reporting that they vaped tobacco products dropped to about a third of those students reporting use of e-cigarettes at a vaping peak in 2019, a new survey shows.`\
+https://nytimes.com/2024/09/05/health/e-cigarettes-teenagers-vaping.html
+
+**‘Beetlejuice Beetlejuice’ Review: Delightfully Undead Again**\
+`Tim Burton has brought the band back together — Michael Keaton, Winona Ryder, even Bob the shrunken head guy — for a fun but less edgy sequel.`\
+https://nytimes.com/2024/09/05/movies/beetlejuice-beetlejuice-review.html
+
+**U.S. Charges American Commentator Who Works for Russian State TV**\
+`Dmitri K. Simes, who was an adviser to Donald J. Trump’s first campaign, and his wife, Anastasia Simes, are accused of violating U.S. sanctions.`\
+https://nytimes.com/2024/09/05/us/politics/russia-us-simes-indictment-election.html
+
+**Big 12 pauses expansion discussions with UConn**\
+`The Big 12 has explored adding UConn since at least last year as the conference looks to continue expanding.`\
+https://nytimes.com/athletic/5747939/2024/09/05/big-12-uconn-expansion-discussion-paused/
+
 **There’s an Eggplant for That**\
 `Eggplant croquettes, Bolognese, adobo and pretty much everything you could want for aubergine season.`\
 https://nytimes.com/2024/09/05/dining/theres-an-eggplant-for-that.html
