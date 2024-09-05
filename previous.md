@@ -1,3 +1,7 @@
+**Are Some Ultraprocessed Foods Worse Than Others?**\
+`A new study may offer the biggest clues yet.`\
+https://nytimes.com/2024/09/05/well/eat/ultraprocessed-foods-types-unhealthy-study.html
+
 **Israeli Raids Paralyze Daily Life for Many in the West Bank**\
 `As an Israeli offensive against Palestinian militant groups stretched to a 10th day, residents said many people were trapped in their homes out of fear.`\
 https://nytimes.com/2024/09/05/world/middleeast/israel-raids-west-bank-palestinians.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5747427/2024/09/05/palmer-lavia-fofana-chelsea-conf
 **Chelsea Women announce Mpome signing from Montpellier**\
 `Chelsea have completed the signing of defender Maelys Mpome from Montpellier.`\
 https://nytimes.com/athletic/5747384/2024/09/05/maelys-mpome-chelsea-women-transfer/
-
-**In Michigan, an ‘Unhinged Werewolf’ Will Make It Clear Who Voted**\
-`A contest for the state’s next “I Voted” sticker yielded several winning designs, but a seventh grader’s stood out from the rest.`\
-https://nytimes.com/2024/09/05/style/michigan-i-voted-sticker-werewolf.html
 
