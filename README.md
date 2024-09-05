@@ -1,3 +1,7 @@
+**Scoop City: Time to see if Ravens closed the gap**\
+`A preview of the Ravens vs. Chiefs game, a look at the offseason in Kansas City and predictions for the 2024 season.`\
+https://nytimes.com/athletic/5747405/2024/09/05/scoop-city-time-to-see-if-ravens-closed-the-gap/
+
 **Travis Kelce believes he has at least 2 good seasons left in Chiefs career**\
 `The four-time All-Pro tight end signed that new contract in April, making him the highest-paid tight end.`\
 https://nytimes.com/athletic/5747315/2024/09/05/travis-kelce-chiefs-career/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/05/us/trump-election-interference-hearing/the-j
 **Here’s the latest on the hearing.**\
 `By Alan Feuer`\
 https://nytimes.com/live/2024/09/05/us/trump-election-interference-hearing/heres-the-latest-on-the-hearing
-
-**The Padres’ Yu Darvish, amid rusty return and comeback win, is back where he needed to be**\
-`"His arm felt good. His body felt good. Just knocked a little bit of the proverbial rust off," said Padres manager Mike Shildt.`\
-https://nytimes.com/athletic/5746369/2024/09/05/yu-darvish-padres-return-il/
 
