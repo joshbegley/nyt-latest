@@ -1,40 +1,40 @@
-**Where Are New York City Buyers Coming From?**\
-`Fewer buyers are coming from New Jersey and more are coming from California, according to a study that tracked sales during the first half of the year.`\
-https://nytimes.com/2024/09/05/realestate/nyc-home-buyers.html
+**Who is Davis Warren? Michigan's new QB has a story bigger than Texas**\
+`Warren, a former walk-on and cancer survivor who barely played high school football, will start at QB for No. 10 Michigan vs. No. 3 Texas.`\
+https://nytimes.com/athletic/5745458/2024/09/05/davis-warren-michigan-quarterback-cancer-texas/
 
-**‘My First Film’ Review: Arriving Where You Started**\
-`Zia Anger’s movie about her first movie is full of nested layers, but mostly it’s a meditation on how, and why, we create.`\
-https://nytimes.com/2024/09/05/movies/my-first-film-review.html
+**Tax Policy Becomes a Fault Line for Harris**\
+`The vice president is relying on tax proposals as a way to show she is different from both President Biden and her Republican rival, Donald Trump.`\
+https://nytimes.com/2024/09/05/us/politics/harris-tax-policy.html
 
-**Michael Keaton Michael Keaton Michael Keaton**\
-`In “Beetlejuice Beetlejuice,” the actor returns to a role now enshrined in pop culture — with 35 years of ups and downs and an Oscar nomination under his belt.`\
-https://nytimes.com/2024/09/05/movies/michael-keaton-beetlejuice-beetlejuice.html
+**The Viral Blackout Challenge Is Killing Young People. Courts Are Finally Taking It Seriously.**\
+`What should we do when TikTok’s algorithm turns deadly?`\
+https://nytimes.com/2024/09/05/opinion/tiktok-blackout-challenge-anderson.html
 
-**Republicans Seize on False Theories About Immigrant Voting**\
-`Activists, party lawyers and state officials are mobilizing behind a crackdown on a supposed scourge of noncitizens’ casting ballots. Voting rights advocates say the effort is spreading misinformation.`\
-https://nytimes.com/2024/09/05/us/politics/immigrant-noncitizen-voting-republicans.html
+**Titus Kaphar’s Homecoming**\
+`Plus: an Art Deco hotel reopening in Manhattan, a celebrity facialist’s skin care routine and more recommendations from T Magazine.`\
+https://nytimes.com/2024/09/05/t-magazine/titus-kaphars-homecoming.html
 
-**36 Hours in Door County, Wis.**\
-`Spend a weekend exploring the forest preserves, cliff-lined shores and walkable towns of this peninsula that juts out into Lake Michigan.`\
-https://nytimes.com/interactive/2024/09/05/travel/things-to-do-door-county.html
+**How Much Space Could They Find in Greater Philadelphia for Less Than $500,000?**\
+`Looking for a change of scenery, a family left the Nevada desert for the cooler climes of the East Coast. These were the houses they considered.`\
+https://nytimes.com/interactive/2024/09/05/realestate/philadelphia-home-buyers.html
 
-**He Was Riding His Mower When Suddenly He Couldn’t Breathe**\
-`After a lifetime of severe asthma and allergies, this felt different — and far worse.`\
-https://nytimes.com/2024/09/05/magazine/tracheobronchomalacia-diagnosis.html
+**Mosquitoes Suck, as Do the Diseases They Carry**\
+`Mosquito-borne diseases are widening their range partly because of climate change.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/mosquito-disease-west-nile
 
-**There Are Only Two Shakers Left. They’ve Still Got Utopia in Their Sights.**\
-`Can their faith live on?`\
-https://nytimes.com/2024/09/05/magazine/shakers-utopia.html
+**The Hot Labor Market Has Melted Away. Just Ask New College Grads.**\
+`Unemployment is still low, but job seekers are competing for fewer openings, and hiring is sluggish. That’s a big turnaround from recent years.`\
+https://nytimes.com/2024/09/05/business/economy/jobs-college-graduates-unemployment.html
 
-**What’s the Best Wedding Favor? Let Your Guests Decide.**\
-`A growing number of couples are including gifting suites that allow their wedding attendees to pick a souvenir they’ll actually use.`\
-https://nytimes.com/2024/09/05/style/wedding-gifting-suites.html
+**Will Trump’s Abortion Flip-Flop Cost Him?**\
+`Evangelicals are not voting for Harris, but they might stay home.`\
+https://nytimes.com/2024/09/05/podcasts/trump-evangelicals-abortion.html
 
-**What Does a Couple Do When One Partner Is Deported?**\
-`American citizens whose spouses have been deported face wrenching decisions on what is best for their future, especially when they have children.`\
-https://nytimes.com/2024/09/05/us/immigration-deported-spouses.html
+**Leaked Reports and Political Heat Are Testing Trust in Economic Data**\
+`The Bureau of Labor Statistics, which tracks prices and employment, faces scrutiny after several missteps. Some questions have gone unanswered.`\
+https://nytimes.com/2024/09/05/business/economy/bls-economic-data-jobs-report-cpi.html
 
-**Rebecca Cheptegei: Ugandan marathon runner dies aged 33 after being set on fire**\
-`The Ugandan Olympic athlete Rebecca Cheptegei has died at a Kenyan hospital, days after sustaining 80 per cent burns to her body following an attack by her former boyfriend.`\
-https://nytimes.com/athletic/5746644/2024/09/05/rebecca-cheptegei-death-ugandan-runner/
+**Harris or Trump? The Prophet of Presidential Elections Is Ready to Call the Race.**\
+`Allan Lichtman’s method for predicting election winners has an impressive track record.`\
+https://nytimes.com/2024/09/05/opinion/allan-lichtman-trump-harris-prediction.html
 
