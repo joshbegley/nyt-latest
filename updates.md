@@ -1,3 +1,11 @@
+**Rexrode: Amid another scandal, it's time for Memphis to part ways with Penny Hardaway**\
+`Hardaway has coached Memphis for six seasons, but it's time for the Tigers to put someone else in charge.`\
+https://nytimes.com/athletic/5747981/2024/09/05/memphis-basketball-penny-hardaway-ncaa-allegations-scandal/
+
+**Federal Agents Search Homes of N.Y.C. Deputy Mayors and Schools Chief**\
+`The searches do not appear related to the federal investigation into Mayor Eric Adams and his campaign fund-raising, according to people familiar with the matter.`\
+https://nytimes.com/2024/09/05/nyregion/banks-sheena-fbi-search-nyc.html
+
 **The School Shooting Horror in Georgia**\
 `Readers discuss gun laws, trying the suspect as an adult, defining mass shootings and more. Also: A view from AIPAC; an anti-family Republican Party.`\
 https://nytimes.com/2024/09/05/opinion/school-shooting-georgia.html
