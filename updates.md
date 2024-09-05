@@ -1,3 +1,19 @@
+**Reporting From Row Z at the U.S. Open**\
+`Two New York Times reporters climbed their way to the nosebleed sections of Arthur Ashe Stadium, where they met dedicated tennis fans.`\
+https://nytimes.com/2024/09/05/insider/reporting-from-row-z-at-the-us-open.html
+
+**Surprising New Research Links Infant Mortality to Crashing Bat Populations**\
+`Without bats to eat insects, farmers turned to more pesticides, a study found. That appears to have increased infant deaths.`\
+https://nytimes.com/2024/09/05/climate/bats-pesticides-infant-mortality.html
+
+**What’s Going On in This Picture? | Sept. 9, 2024**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2024/09/05/learning/whats-going-on-in-this-picture-sept-9-2024.html
+
+**How Georgia’s Gun Laws Compare to Other States’**\
+`The state does not have universal background checks for gun purchases, safe storage laws or a so-called red-flag law — measures instituted elsewhere in response to gun violence.`\
+https://nytimes.com/2024/09/05/us/georgia-gun-laws.html
+
 **On the First Day at New Schools, Hugs, Tears and Plenty of Photos**\
 `Students at New York City public schools started class on Thursday, some in brand-new schools or buildings.`\
 https://nytimes.com/2024/09/05/nyregion/nyc-first-day-school-photos.html
