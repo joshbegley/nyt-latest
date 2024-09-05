@@ -1,3 +1,7 @@
+**Rebecca Cheptegei, Olympic Runner From Uganda, Dies After Attack**\
+`The athlete, who was set on fire by a man with whom she was in a relationship, competed in the women’s marathon at the Paris Olympics this summer.`\
+https://nytimes.com/2024/09/05/sports/rebecca-cheptegei-dead-uganda-olympic-athlete.html
+
 **The Bands and the Fans Were Fake. The $10 Million Was Real.**\
 `Federal prosecutors charged a North Carolina musician with gaming the system to win royalties from streaming services including Spotify, Apple Music and Amazon Music.`\
 https://nytimes.com/2024/09/05/nyregion/nc-man-charged-ai-fake-music.html

@@ -1,3 +1,7 @@
+**Rebecca Cheptegei, Olympic Runner From Uganda, Dies After Attack**\
+`The athlete, who was set on fire by a man with whom she was in a relationship, competed in the women’s marathon at the Paris Olympics this summer.`\
+https://nytimes.com/2024/09/05/sports/rebecca-cheptegei-dead-uganda-olympic-athlete.html
+
 **The Bands and the Fans Were Fake. The $10 Million Was Real.**\
 `Federal prosecutors charged a North Carolina musician with gaming the system to win royalties from streaming services including Spotify, Apple Music and Amazon Music.`\
 https://nytimes.com/2024/09/05/nyregion/nc-man-charged-ai-fake-music.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/05/learning/word-of-the-day-imminent.html
 **'I don’t think there’s concern at all': Yankees have 40-41 record in last 81 games**\
 `New York has been able to flounder for the past three months with very few negative consequences in the standings.`\
 https://nytimes.com/athletic/5746479/2024/09/05/yankees-lose-to-rangers/
-
-**Jimmy Kimmel Laughs Off a Verbal Stumble**\
-`Kimmel mocked Donald Trump for flubbing words before doing so himself on Wednesday, saying, “That’s why I’m not going to be president.”`\
-https://nytimes.com/2024/09/05/arts/television/jimmy-kimmel-flubbed-line.html
 
