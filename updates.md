@@ -1,3 +1,11 @@
+**Top 50 MLB prospects: Two Tigers lead off while Bazzana cracks Top 5 of Bowden's rankings**\
+`It's time for Jim Bowden to update his annual top-50 ranking. This year, two Tigers — Jackson Jobe and Max Clark — lead the list. `\
+https://nytimes.com/athletic/5742542/2024/09/05/top-50-mlb-prospects-jobe-bazzana-mayer/
+
+**USWNT star Alex Morgan retiring from soccer**\
+`"I felt in my heart and soul that this was the last season that I would play soccer," Morgan said about her decision to retire.`\
+https://nytimes.com/athletic/5747600/2024/09/05/alex-morgan-retirement-uswnt-san-diego-wave/
+
 **Rosenthal: Giants' Matt Chapman extension is the first strike of the Scott Boras revenge tour**\
 `The agent, whose potential free-agent clients include Juan Soto, Corbin Burnes and Alex Bregman, gets a head start on a big offseason. `\
 https://nytimes.com/athletic/5747565/2024/09/05/matt-chapman-giants-extension-scott-boras/
