@@ -1,3 +1,7 @@
+**One Student Said Some Quick Thinking Saved Him and His Classmates**\
+`As gunfire sounded outside a math class, a student noticed the door was open. A classmate ran across the room to shut it.`\
+https://nytimes.com/2024/09/04/us/georgia-school-shooting-students-teacher.html
+
 **One Student Implied That Some Quick Thinking Saved Him and His Classmates**\
 `As gunfire sounded outside a math class, a student noticed the door was open. A classmate ran across the room to shut it.`\
 https://nytimes.com/2024/09/04/us/georgia-school-shooting-students-teacher.html
