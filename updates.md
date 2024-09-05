@@ -1,3 +1,7 @@
+**Picasso Prints and Brazilian Brilliance at the Independent**\
+`The fair’s third 20th-century-focused edition charts a careful line between safety and excitement.`\
+https://nytimes.com/2024/09/05/arts/design/independent-art-fair-review.html
+
 **Report Details Interview of Georgia Suspect in Prior School Shooting Threat**\
 `The sheriff’s office report reveals more about how investigators were able to trace the online post to the teenager’s account, and why they could not definitively link it to him.`\
 https://nytimes.com/2024/09/05/us/georgia-school-shooting-suspect-threat.html
