@@ -1,3 +1,11 @@
+**The School Shooting Horror in Georgia**\
+`Readers discuss gun laws, trying the suspect as an adult, defining mass shootings and more. Also: A view from AIPAC; an anti-family Republican Party.`\
+https://nytimes.com/2024/09/05/opinion/school-shooting-georgia.html
+
+**How Georgia’s Gun Laws Compare to Other States**\
+`The state does not have universal background checks for gun purchases, safe storage laws or a so-called red-flag law — measures instituted elsewhere in response to gun violence.`\
+https://nytimes.com/2024/09/05/us/georgia-gun-laws.html
+
 **German Police Shoot Gunman Dead Near Israeli Consulate in Munich**\
 `The shootout with an 18-year-old Austrian came on the anniversary of the attack on the Munich Olympics that left 11 Israelis dead, and was being investigated as a possible terrorist attack.`\
 https://nytimes.com/2024/09/05/world/europe/german-police-shoot-gunman-dead-near-israeli-consulate-in-munich.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/05/dining/theres-an-eggplant-for-that.html
 **Chargers add Herbert (foot) to injury report after NFL guidance**\
 `The Los Angeles Chargers added quarterback Justin Herbert to the injury report Thursday with a foot injury after they said they were advised to do so by the league.`\
 https://nytimes.com/athletic/5747937/2024/09/05/justin-herbert-foot-injury-chargers-week-1/
-
-**Talk of the Devils announces new tour dates**\
-`Join Ian, Laurie, Carl and Andy in Belfast and Dublin later this year`\
-https://nytimes.com/athletic/5739478/2024/09/05/manchester-united-podcast-talk-of-the-devils-live-shows/
-
-**10 Dynamic Wines From Spain to Drink Now**\
-`Great bottles are being made all over the world, but right now no country’s are as exciting or compelling as Spain’s.`\
-https://nytimes.com/2024/09/05/dining/drinks/spain-wines.html
 
