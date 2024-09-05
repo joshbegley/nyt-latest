@@ -1,3 +1,7 @@
+**The Athletic 500: Assessing the financial value of the Premier League's summer transfer business**\
+`How a focus on youth made this a reasonably sensible Premier League transfer window from a resale point of view `\
+https://nytimes.com/athletic/5744276/2024/09/05/the-athletic-500-financial-value-review/
+
 **Ravens at Chiefs picks, odds, how to watch: Chiefs favored by a field goal**\
 `All the details about the NFL Kickoff Game between the Baltimore Ravens and Kansas City Chiefs.`\
 https://nytimes.com/athletic/5745311/2024/09/05/baltimore-ravens-kansas-city-chiefs-picks-odds-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/04/world/asia/china-africa-summit.html
 **What We Know About the Apalachee High School Shooting Victims**\
 `Two students and two teachers were shot dead at the high school in Winder, Ga. At least nine others were injured.`\
 https://nytimes.com/2024/09/04/us/georgia-school-shooting-victims.html
-
-**Imanaga pitches 7 innings in Cubs' combined no-hitter vs. Pirates**\
-`The bullpen smoothly handled the final six outs to continue Imanaga's magical first season in Chicago.`\
-https://nytimes.com/athletic/5746283/2024/09/04/cubs-shota-imanaga-combined-no-hitter/
 
