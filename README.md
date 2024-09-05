@@ -1,3 +1,7 @@
+**Finally - San Marino end their 20-year wait for a win**\
+`San Marino have finally ended a run of 20 years without a victory by beating Liechtenstein 1-0 in the UEFA Nations League.`\
+https://nytimes.com/athletic/5357123/2024/09/05/san-marino-win-liechtenstein/
+
 **Real Madrid's Eder Militao withdraws from Brazil squad with thigh injury**\
 `Real Madrid defender Eder Militao has withdrawn from the Brazil squad for their upcoming World Cup qualifiers due to a thigh injury.`\
 https://nytimes.com/athletic/5748456/2024/09/05/real-madrid-eder-miliato-brazil-injury/
@@ -22,7 +26,7 @@ https://nytimes.com/2024/09/05/business/economy/airlines-frequent-flier-programs
 `Trump’s claim that the case could interfere with the election fell on deaf ears.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/trump-chutkan-court-hearing
 
-**New York Fashion Week Is Here. The Parties Had Some of Its Best Outfits.**\
+**New York Fashion Week Is Here. The Parties Have Some of Its Best Outfits.**\
 `The early 2000s were on display in SoHo, where the band TV on the Radio performed in front of a revival of Max Fish, the Lower East Side dive bar, at an event thrown by Vans.`\
 https://nytimes.com/2024/09/05/style/nyfw-fashion-week-after-party.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/05/dining/breakfast-for-dinner-with-a-glass-of-wine.
 **It’s the Hottest Neighborhood in All of Los Angeles. (Bring Water.)**\
 `Woodland Hills has become the poster child for sweltering temperatures in the Los Angeles area, a mere 15 miles from the Pacific Ocean.`\
 https://nytimes.com/2024/09/05/us/woodland-hills-los-angeles-heat-wave.html
-
-**'ChiefsAholic' sentenced to 17 1/2 years for bank robberies**\
-`Chiefs superfan Xaviar Babudar was sentenced for committing a string of 11 armed bank robberies or attempted robberies across the U.S.`\
-https://nytimes.com/athletic/5748177/2024/09/05/chiefsaholic-sentence-robberies/
 
