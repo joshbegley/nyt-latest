@@ -7,7 +7,7 @@ https://nytimes.com/2024/09/05/opinion/entertainment-junk-psychology.html
 https://nytimes.com/2024/09/05/opinion/trump-bacon-prices-economics.html
 
 **Brian Ketcham, Effective Foe of Traffic and Smog, Dies at 85**\
-`An engineer and influential environmentalist in New York, he fought for bus lanes, bridge tolls and limits on parking, and against wider highways and unfettered car use.`\
+`An engineer and influential environmentalist in New York, he fought for bus lanes, bridge tolls and limits on parking and against more highways, as in the aborted Westway plan.`\
 https://nytimes.com/2024/09/05/nyregion/brian-ketcham-dead.html
 
 **Giants' Matt Chapman gets the contract he should've received all along: 'I believed in myself'**\
