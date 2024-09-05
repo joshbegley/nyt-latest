@@ -1,3 +1,7 @@
+**Hunter Biden Pleaded Guilty**\
+`Also, teenage vaping dropped to a 10-year low. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/09/05/briefing/hunter-biden-pleaded-guilty-nfl-season.html
+
 **Anti-Polio Campaign in Gaza Enters New Phase, Hours After Deadly Strike**\
 `As the mass vaccination campaign shifted Thursday from central to southern Gaza, an Israeli strike reportedly killed four in an area where inoculations had just concluded.`\
 https://nytimes.com/2024/09/05/world/middleeast/israel-gaza-polio-airstrike.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5747997/2024/09/05/nascar-playoff-drivers-poll-favo
 **Suspect Claimed Online Threats Had Come From Hacked Account**\
 `The father of the Georgia school shooting suspect told investigators he would be “mad as hell” if his son had made the threats, according to a transcript. “Then all the guns will go away.”`\
 https://nytimes.com/2024/09/05/us/georgia-shooting-suspect-father-gun-safety.html
-
-**Breaking down Cristiano Ronaldo's 900 career goals**\
-`The Portuguese icon has reached another major milestone — here's a complete account of his goalscoring career`\
-https://nytimes.com/athletic/5724492/2024/09/05/cristiano-ronaldo-900-career-goals/
 

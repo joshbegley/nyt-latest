@@ -1,3 +1,7 @@
+**Hunter Biden Pleaded Guilty**\
+`Also, teenage vaping dropped to a 10-year low. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/09/05/briefing/hunter-biden-pleaded-guilty-nfl-season.html
+
 **Anti-Polio Campaign in Gaza Enters New Phase, Hours After Deadly Strike**\
 `As the mass vaccination campaign shifted Thursday from central to southern Gaza, an Israeli strike reportedly killed four in an area where inoculations had just concluded.`\
 https://nytimes.com/2024/09/05/world/middleeast/israel-gaza-polio-airstrike.html
