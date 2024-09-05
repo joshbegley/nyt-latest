@@ -1,3 +1,11 @@
+**4 Big Airlines Face U.S. Inquiry Over Frequent Flier Programs**\
+`The Transportation Department ordered American, Delta, Southwest and United to share more information about their rewards practices to ensure they are fair to consumers and rivals.`\
+https://nytimes.com/2024/09/05/business/economy/airlines-frequent-flier-programs-rewards.html
+
+**To Judge Chutkan, Trump Is a Defendant, Not a Presidential Candidate**\
+`Trump’s claim that the case could interfere with the election fell on deaf ears.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/trump-chutkan-court-hearing
+
 **New York Fashion Week Is Here. The Parties Had Some of Its Best Outfits.**\
 `The early 2000s were on display in SoHo, where the band TV on the Radio performed in front of a revival of Max Fish, the Lower East Side dive bar, at an event thrown by Vans.`\
 https://nytimes.com/2024/09/05/style/nyfw-fashion-week-after-party.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/05/climate/us-election-looms-over-climate-talks-with
 **Federal Judge Temporarily Blocks Another Pillar of Biden’s Student Debt Plan**\
 `The plan would affect millions of borrowers struggling with runaway interest and others who were still paying off loans after decades. It was set to take effect this fall.`\
 https://nytimes.com/2024/09/05/us/politics/judge-temporarily-blocks-student-debt-plan.html
-
-**Why don't Willie Mays' baseball card values match his legendary achievements?**\
-`The Giants legend who passed away this year still trails Mickey Mantle in card values by a significant margin `\
-https://nytimes.com/athletic/5748179/2024/09/05/willie-mays-baseball-cards-giants/
-
-**What if I’m the ‘Friend’ Donald Trump Referred To?**\
-`His “weave” conveys meaning, I’ll give him that. But it says something he does not intend.`\
-https://nytimes.com/2024/09/05/opinion/trump-talk-weave-english.html
 
