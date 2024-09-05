@@ -1,5 +1,5 @@
 **German Police Shoot Gunman Dead Near Israeli Consulate in Munich**\
-`The shootout with an 18-year-old Austrian came on the anniversary of the attack on the Munich Olympics that left 11 Israelis dead, was being investigated as a possible terrorist attack.`\
+`The shootout with an 18-year-old Austrian came on the anniversary of the attack on the Munich Olympics that left 11 Israelis dead, and was being investigated as a possible terrorist attack.`\
 https://nytimes.com/2024/09/05/world/europe/german-police-shoot-gunman-dead-near-israeli-consulate-in-munich.html
 
 **John Sterling to call Yankees playoff games**\
