@@ -1,3 +1,11 @@
+**Manchester United appoint Sam Erith as temporary performance director**\
+`Manchester United have appointed Sam Erith as performance director on an interim basis until the end of the season.`\
+https://nytimes.com/athletic/5747683/2024/09/05/sam-erith-manchester-united-performance-director/
+
+**Fantasy football rankings Week 1: Sleepers, projections, starts, sits**\
+`Jake Ciely shares his rankings for Week 1 of the 2024 fantasy football campaign, and also offers up his favorite sleeper plays in each game.`\
+https://nytimes.com/athletic/5743097/2024/09/05/fantasy-football-rankings-week-1-sleepers-projections-starts-sits/
+
 **Canucks 23-man roster projection: Who is a lock? Who has something to prove?**\
 `Who is a dark horse worth keeping an eye on? Which players will have something to prove when training camp begins in two weeks?`\
 https://nytimes.com/athletic/5746566/2024/09/05/canucks-roster-projection-2024-25/
