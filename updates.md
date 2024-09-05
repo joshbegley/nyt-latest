@@ -1,3 +1,7 @@
+**Harris or Trump? The Prophet of Presidential Elections Is Ready to Call the Race.**\
+`Allan Lichtman’s method for predicting election winners has an impressive track record.`\
+https://nytimes.com/video/opinion/100000009671449/allan-lichtman-presidential-polls-prediction.html
+
 **U.S. Open quarterfinal recap: Zhang Shuai's doubles redemption, and straight-set serenity**\
 `The woman with the least-wanted singles record in tennis is making strides on the doubles court`\
 https://nytimes.com/athletic/5746228/2024/09/05/us-open-day-10-takeaways-results-zhang-shuai-muchova/
