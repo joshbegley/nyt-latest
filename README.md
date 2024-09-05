@@ -1,4 +1,4 @@
-**What if I’m the ‘Friend’ Donald Trump Referred to?**\
+**What if I’m the ‘Friend’ Donald Trump Referred To?**\
 `His “weave” conveys meaning, I’ll give him that. But it says something he does not intend.`\
 https://nytimes.com/2024/09/05/opinion/trump-talk-weave-english.html
 
