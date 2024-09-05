@@ -1,3 +1,11 @@
+**Larry Ellison Will Control Paramount After Merger**\
+`An F.C.C. filing shows that companies affiliated with Mr. Ellison will own most of the voting interest currently held by Shari Redstone.`\
+https://nytimes.com/2024/09/05/business/media/paramount-skydance-larry-ellison.html
+
+**Oksana Masters, the 'girl with no legs who loves socks', wins 19th Paralympic medal**\
+`The American is donating her prize money to children with disabilities in orphanages, saying she was once "one of those kids"`\
+https://nytimes.com/athletic/5748275/2024/09/05/oksana-masters-paralympics-cycling/
+
 **Big game at the Big House, plus is Clemson on upset watch?**\
 `Welcome to Until Saturday, the five-star college football newsletter: Week 2 viewer guide, plus our upset specials. `\
 https://nytimes.com/athletic/5747120/2024/09/05/texas-michigan-clemson-until-saturday/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5748316/2024/09/05/rams-darious-williams-injured-re
 **Finally - San Marino end their 20-year wait for a win**\
 `San Marino have finally ended a run of 20 years without a victory by beating Liechtenstein 1-0 in the UEFA Nations League.`\
 https://nytimes.com/athletic/5357123/2024/09/05/san-marino-win-liechtenstein/
-
-**Real Madrid's Eder Militao withdraws from Brazil squad with thigh injury**\
-`Real Madrid defender Eder Militao has withdrawn from the Brazil squad for their upcoming World Cup qualifiers due to a thigh injury.`\
-https://nytimes.com/athletic/5748456/2024/09/05/real-madrid-eder-miliato-brazil-injury/
-
-**Live Q&A: 2024 fantasy football kickoff chat with Jay Felicio, Thursday 9/5 at 6:00 p.m. ET**\
-`Join Jay Felicio for a 2024 fantasy football kickoff chat on Thursday, 9/5, at 6:00 p.m. ET.`\
-https://nytimes.com/athletic/5748539/2024/09/05/live-qa-2024-fantasy-football-kickoff-chat-with-jay-felicio-thursday-9-5-at-600-p-m-et/
 

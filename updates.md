@@ -1,3 +1,11 @@
+**Larry Ellison Will Control Paramount After Merger**\
+`An F.C.C. filing shows that companies affiliated with Mr. Ellison will own most of the voting interest currently held by Shari Redstone.`\
+https://nytimes.com/2024/09/05/business/media/paramount-skydance-larry-ellison.html
+
+**Oksana Masters, the 'girl with no legs who loves socks', wins 19th Paralympic medal**\
+`The American is donating her prize money to children with disabilities in orphanages, saying she was once "one of those kids"`\
+https://nytimes.com/athletic/5748275/2024/09/05/oksana-masters-paralympics-cycling/
+
 **Big game at the Big House, plus is Clemson on upset watch?**\
 `Welcome to Until Saturday, the five-star college football newsletter: Week 2 viewer guide, plus our upset specials. `\
 https://nytimes.com/athletic/5747120/2024/09/05/texas-michigan-clemson-until-saturday/
