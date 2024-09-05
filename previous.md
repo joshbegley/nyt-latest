@@ -1,3 +1,15 @@
+**MLB bullpen report: Yankees getting 'creative' at closer, Ben Joyce making a play for 2025 and more**\
+`Greg Jewett reports on all the latest developments across MLB bullpens, including Angels reliever Ben Joyce's sterling audition for 2025. `\
+https://nytimes.com/athletic/5747732/2024/09/05/mlb-bullpen-report-yankees-getting-creative-at-closer-ben-joyce-making-a-play-for-2025-and-more/
+
+**They Thought It Was Safe to Go Home. Then They Were Slaughtered.**\
+`Boko Haram killed at least 170 villagers in northeastern Nigeria, community leaders say, in what is likely one of the deadliest attacks in recent years.`\
+https://nytimes.com/2024/09/05/world/africa/boko-haram-nigeria-mafa-attack.html
+
+**The winner in November will have a huge effect on the cases against Trump.**\
+`By Alan Feuer`\
+https://nytimes.com/live/2024/09/05/us/trump-election-interference-hearing/the-winner-in-november-will-have-a-huge-effect-on-the-cases-against-trump
+
 **Report Details Interview of Georgia Suspect in Prior School Shooting Threat**\
 `The sheriff’s office report reveals more about how investigators were able to trace the online post to the teenager’s account, and why they could not definitively link it to him.`\
 https://nytimes.com/2024/09/05/us/georgia-school-shooting-suspect-threat.html
@@ -14,7 +26,7 @@ https://nytimes.com/2024/09/05/theater/le-mage-du-kremlin-la-scala-paris.html
 `Gio Reyna has withdrawn from the USMNT&#8217;s roster for September&#8217;s friendlies against Canada and New Zealand due to a left groin strain.`\
 https://nytimes.com/athletic/5747687/2024/09/05/gio-reyna-usmnt-cade-cowell/
 
-**Trump Plans to Call for an Efficiency Commission, an Idea Pushed by Elon Musk**\
+**Trump Calls for an Efficiency Commission, an Idea Pushed by Elon Musk**\
 `Advisers to Donald Trump said the goal of the commission would be to “analyze the functionality” of the federal government and look for ways to find savings for taxpayers.`\
 https://nytimes.com/2024/09/05/us/politics/trump-elon-musk-efficiency-commission.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/05/arts/design/independent-art-fair-review.html
 **U.N.C. Reports Declines in Black and Hispanic Enrollment**\
 `Along with Harvard University, the University of North Carolina at Chapel Hill was one of two schools defending affirmative action in Supreme Court cases last year.`\
 https://nytimes.com/2024/09/05/us/unc-affirmative-action-black-enrollment.html
-
-**Steve Silberman, 66, Dies; Writer Deepened Understanding of Autism**\
-`Prodded by Oliver Sacks, he wrote a humane, award-winning book about the condition. A music maven, he also wrote liner notes for the Grateful Dead and his friend David Crosby.`\
-https://nytimes.com/2024/09/05/science/steve-silberman-dead.html
-
-**Putin Drives Home a Perilous Point: Ukraine’s East Is Russia’s Main Goal**\
-`Dismissing Ukraine’s recent invasion of Kursk, the Russian leader said Kyiv made a mistake in trying to force Moscow to divert its forces from the Donbas region.`\
-https://nytimes.com/2024/09/05/world/europe/russia-ukraine-putin-kursk.html
-
-**The 1980s Art Carnival Luna Luna Will Come to New York**\
-`Avant-garde fairground attractions, including a Basquiat Ferris wheel and a Keith Haring carousel, will fill up the Shed in November.`\
-https://nytimes.com/2024/09/05/arts/design/luna-luna-the-shed-drake.html
 
