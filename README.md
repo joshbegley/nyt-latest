@@ -1,3 +1,11 @@
+**Top 50 MLB prospects: Two Tigers lead off while Bazzana cracks Top 5 of Bowden's rankings**\
+`It's time for Jim Bowden to update his annual top-50 ranking. This year, two Tigers — Jackson Jobe and Max Clark — lead the list. `\
+https://nytimes.com/athletic/5742542/2024/09/05/top-50-mlb-prospects-jobe-bazzana-mayer/
+
+**USWNT star Alex Morgan retiring from soccer**\
+`"I felt in my heart and soul that this was the last season that I would play soccer," Morgan said about her decision to retire.`\
+https://nytimes.com/athletic/5747600/2024/09/05/alex-morgan-retirement-uswnt-san-diego-wave/
+
 **Rosenthal: Giants' Matt Chapman extension is the first strike of the Scott Boras revenge tour**\
 `The agent, whose potential free-agent clients include Juan Soto, Corbin Burnes and Alex Bregman, gets a head start on a big offseason. `\
 https://nytimes.com/athletic/5747565/2024/09/05/matt-chapman-giants-extension-scott-boras/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5747506/2024/09/05/fifpro-workload-report/
 **How Swing State Politics Are Sinking a Global Steel Deal**\
 `As the Biden administration nears a decision to block the proposed acquisition of U.S. Steel, the debate over national and economic security is being dwarfed by presidential politics.`\
 https://nytimes.com/2024/09/05/us/politics/us-steel-nippon-pennsylvania.html
-
-**Alex Goligoski, a career come full circle in Minnesota and a 'dream' retirement gift**\
-`Goligoski may not have ended his NHL career the way he imagined, but he launches into his next phase of life with no regrets.`\
-https://nytimes.com/athletic/5745086/2024/09/05/alex-goligoski-wild-retirement/
-
-**Brandon Ingram's future with the Pelicans is as hazy as ever, and the clock is ticking**\
-`Ingram was a conspicuous absence at a players-only minicamp, casting more doubt about his long-term future with the Pelicans.`\
-https://nytimes.com/athletic/5746615/2024/09/05/brandon-ingram-pelicans-rumors-trade-future/
 
