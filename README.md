@@ -1,3 +1,15 @@
+**Funeral for Nigerians Killed in Boko Haram Attack**\
+`A funeral in Yobe, Nigeria, for residents killed in the village of Mafa. Thirty-four bodies were brought to the nearest town, but community leaders say many more were buried locally.`\
+https://nytimes.com/video/world/africa/100000009675391/nigeria-boko-haram.html
+
+**Five-star guard Jasper Johnson picks Kentucky**\
+`Johnson, the No. 12 player in the 2025 class, picked UK over North Carolina and Alabama.`\
+https://nytimes.com/athletic/5747191/2024/09/05/jasper-johnson-kentucky-basketball/
+
+**How Much Screen Time Should Toddlers Have? None, Sweden Says.**\
+`Children under the age of 2 should not be exposed to any screens, Swedish public health authorities said, part of a growing effort to limit phone use by youngsters.`\
+https://nytimes.com/2024/09/05/world/europe/sweden-screentime-ban-children.html
+
 **6 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/09/05/books/review/new-books-recommendations.html
