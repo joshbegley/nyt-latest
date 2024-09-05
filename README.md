@@ -1,3 +1,11 @@
+**Live Updates: Questions Mount After Georgia School Shooting**\
+`Four people were killed in the shooting at a high school. The 14-year-old suspect had been on law enforcement agencies’ radar for more than a year, after they questioned him about threats posted online.`\
+https://nytimes.com/live/2024/09/05/us/georgia-school-shooting
+
+**Here’s the latest on the investigation into the shooting.**\
+`By Jacey Fortin, Rick Rojas and Alessandro Marazzi Sassoon`\
+https://nytimes.com/live/2024/09/05/us/georgia-school-shooting/heres-the-latest-on-the-investigation-into-the-shooting
+
 **Sarah Adam: US trailblazer, tough as teak - and a 'murderball' medallist**\
 `Sarah Adam was the only woman in the US' wheelchair rugby team - but made her presence felt, she hopes she has inspired the next generation`\
 https://nytimes.com/athletic/5743943/2024/09/05/sarah-adam-us-paralympics-murderball/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/05/us/harris-trump-election/heres-the-latest-on
 **Election Live Updates: Both Campaigns Put Laser Focus on Pennsylvania**\
 `Vice President Kamala Harris and her running mate have stops in Pittsburgh and Erie planned for Thursday, a day after former President Donald J. Trump visited Harrisburg. Both parties see the state as a must-win.`\
 https://nytimes.com/live/2024/09/05/us/harris-trump-election
-
-**Astro Bot Review: All History Lessons Should Be This Fun**\
-`About 150 PlayStation characters, including the dragon Spyro and the cylinder-headed prince from Katamari Damacy, make appearances in a paean to Sony’s legacy.`\
-https://nytimes.com/2024/09/05/arts/astro-bot-review.html
-
-**Why Kyler Murray will be among the NFL's more intriguing players**\
-`Since his knee injury, Kyler Murray's mind hasn't strayed from the quarterback he wants to be and the team he wants the Cardinals to become.`\
-https://nytimes.com/athletic/5746121/2024/09/05/kyler-murray-cardinals-season-nfl/
 
