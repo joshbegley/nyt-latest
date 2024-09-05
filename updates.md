@@ -1,3 +1,7 @@
+**New Zealand’s Maori Name a New Queen**\
+`Nga Wai Hono i te Po, 27, is the second woman to assume the ceremonial role. She takes the throne as some of the country’s pro-Maori policies are being pared back.`\
+https://nytimes.com/2024/09/05/world/asia/new-zealand-maori-monarch.html
+
 **Rebecca Cheptegei, Olympic Runner From Uganda, Dies After Attack**\
 `The athlete, who was set on fire by a man with whom she was in a relationship, competed in the women’s marathon at the Paris Olympics this summer.`\
 https://nytimes.com/2024/09/05/sports/rebecca-cheptegei-dead-uganda-olympic-athlete.html

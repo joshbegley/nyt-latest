@@ -1,3 +1,7 @@
+**New Zealand’s Maori Name a New Queen**\
+`Nga Wai Hono i te Po, 27, is the second woman to assume the ceremonial role. She takes the throne as some of the country’s pro-Maori policies are being pared back.`\
+https://nytimes.com/2024/09/05/world/asia/new-zealand-maori-monarch.html
+
 **Rebecca Cheptegei, Olympic Runner From Uganda, Dies After Attack**\
 `The athlete, who was set on fire by a man with whom she was in a relationship, competed in the women’s marathon at the Paris Olympics this summer.`\
 https://nytimes.com/2024/09/05/sports/rebecca-cheptegei-dead-uganda-olympic-athlete.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5746573/2024/09/05/matt-chapman-giants-extension/
 **Word of the Day: imminent**\
 `This word has appeared in 856 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/05/learning/word-of-the-day-imminent.html
-
-**'I don’t think there’s concern at all': Yankees have 40-41 record in last 81 games**\
-`New York has been able to flounder for the past three months with very few negative consequences in the standings.`\
-https://nytimes.com/athletic/5746479/2024/09/05/yankees-lose-to-rangers/
 
