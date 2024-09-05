@@ -1,3 +1,7 @@
+**California Man Arrested After Shooting Spree Kills at Least 80 Animals**\
+`The hourslong episode in the middle of the night triggered a shelter-in-place order in Monterey County. One official described the scene as “horrible.”`\
+https://nytimes.com/2024/09/05/us/california-man-kills-animals-shooting.html
+
 **Here’s how Jack Smith modified the Jan. 6 case indictment against Donald Trump.**\
 `By Charlie Savage`\
 https://nytimes.com/live/2024/09/05/us/trump-election-interference-hearing/heres-how-jack-smith-modified-the-jan-6-case-indictment-against-donald-trump
