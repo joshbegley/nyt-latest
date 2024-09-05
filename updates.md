@@ -1,3 +1,7 @@
+**Rudy Gobert responds to criticism from Shaq**\
+`'I get the entertainment part but unlike other folks, you don’t need that stuff to stay relevant.'`\
+https://nytimes.com/athletic/5748342/2024/09/05/rudy-gobert-shaq-criticism-response/
+
 **Illegal Police Stops Have Risen Under Mayor Adams, Despite Court Mandate**\
 `Mayor Eric Adams promised police reforms, but a monitor found that officers, including the anti-gun units the mayor revived, continue to illegally stop, frisk and search people.`\
 https://nytimes.com/2024/09/05/nyregion/eric-adams-nypd-gun-units-illegal-stops.html

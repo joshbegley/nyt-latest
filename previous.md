@@ -1,3 +1,7 @@
+**Rudy Gobert responds to criticism from Shaq**\
+`'I get the entertainment part but unlike other folks, you don’t need that stuff to stay relevant.'`\
+https://nytimes.com/athletic/5748342/2024/09/05/rudy-gobert-shaq-criticism-response/
+
 **Illegal Police Stops Have Risen Under Mayor Adams, Despite Court Mandate**\
 `Mayor Eric Adams promised police reforms, but a monitor found that officers, including the anti-gun units the mayor revived, continue to illegally stop, frisk and search people.`\
 https://nytimes.com/2024/09/05/nyregion/eric-adams-nypd-gun-units-illegal-stops.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5748332/2024/09/05/senators-nikolay-kulemin-pto-map
 **The Electric Vehicle Future Is Coming. Just a Little More Slowly.**\
 `Though large automakers are delaying their plans to introduce new all-electric models, the E.V. industry is still the future, experts say.`\
 https://nytimes.com/2024/09/05/climate/electric-vehicle-sales-projections.html
-
-**U.S. Election Looms Over Climate Talks with China**\
-`Experts believe the outcome of the race for the White House could determine how ambitious China’s climate efforts will be.`\
-https://nytimes.com/2024/09/05/climate/us-election-looms-over-climate-talks-with-china.html
 
