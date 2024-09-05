@@ -1,3 +1,7 @@
+**Typhoon Yagi Nears Southern China With Heavy Rain and Strong Winds**\
+`The storm has killed at least 13 people in the Philippines and is forecast to be the strongest to hit Hainan Province in a decade.`\
+https://nytimes.com/2024/09/05/world/asia/typhoon-yagi-china-hong-kong.html
+
 **Giants, Chapman agree to 6-year, $151 million extension**\
 `Chapman's extension is the second-richest contract in franchise history behind Buster Posey's nine-year, $167 million deal in 2013.`\
 https://nytimes.com/athletic/5746573/2024/09/05/matt-chapman-giants-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5746049/2024/09/05/cardinals-mlb-wild-card-chase/
 **Thursday Briefing**\
 `Here’s what you need to know.`\
 https://nytimes.com/2024/09/05/briefing/election-interference-ukraine-grenfell.html
-
-**Dyche will be backed – and will back himself – to turn Everton's start around**\
-`Sean Dyche must really hate August – after Everton's woeful start to the Premier League season he must correct what has gone wrong. Again.`\
-https://nytimes.com/athletic/5743824/2024/09/05/sean-dyche-everton-manager-start/
 
