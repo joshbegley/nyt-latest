@@ -1,3 +1,7 @@
+**Giants, Chapman agree to 6-year, $151 million extension**\
+`Chapman's extension is the second-richest contract in franchise history behind Buster Posey's nine-year, $167 million deal in 2013.`\
+https://nytimes.com/athletic/5746573/2024/09/05/matt-chapman-giants-extension/
+
 **Word of the Day: imminent**\
 `This word has appeared in 856 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/05/learning/word-of-the-day-imminent.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/05/briefing/election-interference-ukraine-grenfell.h
 **Dyche will be backed – and will back himself – to turn Everton's start around**\
 `Sean Dyche must really hate August – after Everton's woeful start to the Premier League season he must correct what has gone wrong. Again.`\
 https://nytimes.com/athletic/5743824/2024/09/05/sean-dyche-everton-manager-start/
-
-**Leeds hope 'bargain' Ao Tanaka will bring goals and excitement to midfield**\
-`Japan midfielder Tanaka is not a run-of-the-mill signing for Leeds, and both player and club have big ambitions for this season`\
-https://nytimes.com/athletic/5733897/2024/09/05/ao-tanaka-leeds-united-bargain-goals-excitement/
 
