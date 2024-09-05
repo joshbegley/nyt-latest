@@ -1,3 +1,23 @@
+**U.N.C. Reports Declines in Black and Hispanic Enrollment**\
+`Along with Harvard University, the University of North Carolina at Chapel Hill was one of two schools defending affirmative action in Supreme Court cases last year.`\
+https://nytimes.com/2024/09/05/us/unc-affirmative-action-black-enrollment.html
+
+**Steve Silberman, 66, Dies; Writer Broadened Understanding of Autism**\
+`Prodded by Oliver Sacks, he wrote a humane, award-winning book about the condition. A music maven, he also wrote liner notes for the Grateful Dead and his friend David Crosby.`\
+https://nytimes.com/2024/09/05/science/steve-silberman-dead.html
+
+**Putin Says Ukraine’s East Is Now Russia’s Main Goal**\
+`Dismissing Ukraine’s recent invasion of Kursk, the Russian leader said Kyiv made a mistake in trying to force Moscow to divert its forces from the Donbas region.`\
+https://nytimes.com/2024/09/05/world/europe/russia-ukraine-putin-kursk.html
+
+**The 1980s Art Carnival Luna Luna Will Come to New York**\
+`Avant-garde fairground attractions, including a Basquiat Ferris wheel and a Keith Haring carousel, will fill up the Shed in November.`\
+https://nytimes.com/2024/09/05/arts/design/luna-luna-the-shed-drake.html
+
+**The Bounce: Is Steph Curry the last one-team star?**\
+`Jason Jones and Shams Charania catch you up on leaguewide news.`\
+https://nytimes.com/athletic/5747235/2024/09/05/paul-george-clippers-steph-curry-warriors-nba-the-bounce/
+
 **Manchester United appoint Sam Erith as temporary performance director**\
 `Manchester United have appointed Sam Erith as performance director on an interim basis until the end of the season.`\
 https://nytimes.com/athletic/5747683/2024/09/05/sam-erith-manchester-united-performance-director/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5747648/2024/09/05/kyle-walker-england-squad/
 **Top 50 MLB prospects: Two Tigers lead off while Bazzana cracks Top 5 of Bowden's rankings**\
 `It's time for Jim Bowden to update his annual top-50 ranking. This year, two Tigers — Jackson Jobe and Max Clark — lead the list. `\
 https://nytimes.com/athletic/5742542/2024/09/05/top-50-mlb-prospects-jobe-bazzana-mayer/
-
-**USWNT star Alex Morgan retiring from soccer**\
-`"I felt in my heart and soul that this was the last season that I would play soccer," Morgan said about her decision to retire.`\
-https://nytimes.com/athletic/5747600/2024/09/05/alex-morgan-retirement-uswnt-san-diego-wave/
-
-**Rosenthal: Giants' Matt Chapman extension is the first strike of the Scott Boras revenge tour**\
-`The agent, whose potential free-agent clients include Juan Soto, Corbin Burnes and Alex Bregman, gets a head start on a big offseason. `\
-https://nytimes.com/athletic/5747565/2024/09/05/matt-chapman-giants-extension-scott-boras/
-
-**Paralympic gold on Day 100 for Ezra Frech: 'My son has arrived'**\
-`U.S. Paralympian Ezra Frech had long targeted winning gold on September 3 in Paris. In the end, he did it a day early. Then did it again.`\
-https://nytimes.com/athletic/5745860/2024/09/05/ezra-frech-and-his-remarkable-journey-to-winning-paralympic-gold-on-day-100-and-99/
-
-**Are Some Ultraprocessed Foods Worse Than Others?**\
-`A new study may offer the biggest clues yet.`\
-https://nytimes.com/2024/09/05/well/eat/ultraprocessed-foods-types-unhealthy-study.html
-
-**Fantasy football rankings Week 1: Sleepers, projections, starts, sits**\
-`Jake Ciely shares his rankings for Week 1 of the 2024 fantasy football campaign, and also offers up his favorite sleeper plays in each game.`\
-https://nytimes.com/athletic/5743097/2024/09/05/fantasy-football-rankings-week-1-sleepers-projections-starts-sits/
 
