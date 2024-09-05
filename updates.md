@@ -1,3 +1,43 @@
+**Explained: How has the Nations League changed and why does it matter?**\
+`What's the new format for UEFA's 'second' competition and what does winning it get you?`\
+https://nytimes.com/athletic/5746756/2024/09/05/uefa-nations-league-changes-explained/
+
+**With Leon Draisaitl signed, the Oilers must avoid familiar team-building pitfalls**\
+`The Oilers’ long-term blueprint was laid out the moment Draisaitl inked his massive extension.`\
+https://nytimes.com/athletic/5745863/2024/09/05/oilers-roster-leon-draisaitl-contract/
+
+**Inside Greg Roman's long partnership with Jim Harbaugh: 'He keeps it about winning'**\
+`Adam Snyder on Harbaugh on Roman's relationship: "It's two guys just sitting out by the campfire in the parking lot talking football."`\
+https://nytimes.com/athletic/5743987/2024/09/05/chargers-greg-roman-jim-harbaugh/
+
+**What to expect from The Athletic's podcast coverage this NFL season**\
+`"The Athletic Football Show" and "Scoop City" headline The Athletic's NFL podcast coverage.`\
+https://nytimes.com/athletic/5744638/2024/09/05/best-nfl-podcasts-the-athletic-scoop-city/
+
+**Davante Adams wants to remain a Raider, but the team needs to win to keep it that way**\
+`The veteran receiver denied that he's unhappy in Las Vegas, but will things stay that way if the Raiders struggle out of the gate this fall?`\
+https://nytimes.com/athletic/5745932/2024/09/05/davante-adams-raiders-trade-rumors/
+
+**How Bo Nix became the Broncos' first rookie team captain since 1967**\
+`Plus, a look at the Broncos' game-plan process around their rookie quarterback: "Hearing those final thoughts is important."`\
+https://nytimes.com/athletic/5744177/2024/09/05/bo-nix-broncos-captain/
+
+**‘Red Rooms’ Review: A True Crime Obsession Unravels**\
+`A mysterious young woman becomes deeply invested in the trial of an accused serial killer in this courtroom thriller.`\
+https://nytimes.com/2024/09/05/movies/red-rooms-review.html
+
+**‘Look Into My Eyes’ Review: Emotional Rescue**\
+`This fascinating documentary that profiles seven New York City psychics is both profoundly sad and surprisingly hopeful.`\
+https://nytimes.com/2024/09/05/movies/look-into-my-eyes-review.html
+
+**‘Lover of Men’ Review: The Heart of President Lincoln**\
+`Subtitled “The Untold History of Abraham Lincoln,” the film gathers an array of historians to argue that Lincoln had romantic relationships with men.`\
+https://nytimes.com/2024/09/05/movies/lover-of-men-review.html
+
+**‘Hoard’ Review: Dirty Romancing**\
+`A spiraling teenager and a tenderhearted garbage collector bond over debris in this stunningly unconventional drama.`\
+https://nytimes.com/2024/09/05/movies/hoard-review.html
+
 **Fugitive Ex-Mayor Whose Case Gripped the Philippines Is Arrested in Indonesia**\
 `Officials have accused Alice Guo of helping criminal syndicates involved in online scams and human trafficking, and have questioned her about whether she was born in China.`\
 https://nytimes.com/2024/09/05/world/asia/philippines-alice-guo-fugitive-arrest.html
