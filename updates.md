@@ -1,3 +1,11 @@
+**Rosenthal: Giants' Matt Chapman extension is the first strike of the Scott Boras revenge tour**\
+`The agent, whose potential free-agent clients include Juan Soto, Corbin Burnes and Alex Bregman, gets a head start on a big offseason. `\
+https://nytimes.com/athletic/5747565/2024/09/05/matt-chapman-giants-extension-scott-boras/
+
+**Paralympic gold on Day 100 for Ezra Frech: 'My son has arrived'**\
+`U.S. Paralympian Ezra Frech had long targeted winning gold on September 3 in Paris. In the end, he did it a day early. Then did it again.`\
+https://nytimes.com/athletic/5745860/2024/09/05/ezra-frech-and-his-remarkable-journey-to-winning-paralympic-gold-on-day-100-and-99/
+
 **Are Some Ultraprocessed Foods Worse Than Others?**\
 `A new study may offer the biggest clues yet.`\
 https://nytimes.com/2024/09/05/well/eat/ultraprocessed-foods-types-unhealthy-study.html
