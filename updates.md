@@ -1,3 +1,7 @@
+**Magic Johnson joins Washington Spirit ownership group**\
+`“I want to make sure that this sport, women’s soccer, can grow," Magic Johnson said about his investment in the Spirit.`\
+https://nytimes.com/athletic/5747236/2024/09/05/magic-johnson-joins-washington-spirit-ownership-group/
+
 **Here’s why Trump’s lawyers are in court for the election interference case.**\
 `The judge has to begin sorting out which parts of the indictment of the former president must be tossed out because of a Supreme Court ruling on presidential immunity. She’s seeking input on how to do it.`\
 https://nytimes.com/2024/09/05/us/politics/trump-election-case.html

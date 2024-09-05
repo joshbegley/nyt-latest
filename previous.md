@@ -1,3 +1,7 @@
+**Magic Johnson joins Washington Spirit ownership group**\
+`“I want to make sure that this sport, women’s soccer, can grow," Magic Johnson said about his investment in the Spirit.`\
+https://nytimes.com/athletic/5747236/2024/09/05/magic-johnson-joins-washington-spirit-ownership-group/
+
 **Here’s why Trump’s lawyers are in court for the election interference case.**\
 `The judge has to begin sorting out which parts of the indictment of the former president must be tossed out because of a Supreme Court ruling on presidential immunity. She’s seeking input on how to do it.`\
 https://nytimes.com/2024/09/05/us/politics/trump-election-case.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/05/us/georgia-school-shooting
 **Here’s the latest on the investigation into the shooting.**\
 `By Jacey Fortin, Rick Rojas and Alessandro Marazzi Sassoon`\
 https://nytimes.com/live/2024/09/05/us/georgia-school-shooting/heres-the-latest-on-the-investigation-into-the-shooting
-
-**Sarah Adam: U.S. trailblazer, tough as teak - and a 'murderball' medallist**\
-`Sarah Adam was the only woman in the U.S. wheelchair rugby team but made her presence felt - she hopes she's inspired the next generation`\
-https://nytimes.com/athletic/5743943/2024/09/05/sarah-adam-us-paralympics-murderball/
 
