@@ -1,3 +1,11 @@
+**What if I’m the ‘Friend’ Donald Trump Referred to?**\
+`His “weave” conveys meaning, I’ll give him that. But it says something he does not intend.`\
+https://nytimes.com/2024/09/05/opinion/trump-talk-weave-english.html
+
+**Saudi Arabia and Allies Delay Plan to Increase Oil Output**\
+`OPEC Plus will extend its cuts until at least December. Demand has weakened, and other countries, including the United States, are expected to continue to increase production.`\
+https://nytimes.com/2024/09/05/business/opec-oil-increase-delay.html
+
 **The State Wanted Hotels and Golf Courses in Florida Parks. Floridians Revolted.**\
 `Faced with intense bipartisan opposition, Gov. Ron DeSantis shelved the plan. It was a rare policy setback for a leader used to getting his way.`\
 https://nytimes.com/2024/09/05/us/florida-parks-desantis.html
