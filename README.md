@@ -1,3 +1,19 @@
+**Angel Gomes's journey from Manchester United to an England call-up**\
+`Gomes's England call-up shouldn't come as a surprise to anyone familiar with his intelligent play style and relationship with Lee Carsley`\
+https://nytimes.com/athletic/5744983/2024/09/05/angel-gomes-england-manchester-united-lille/
+
+**Corrections: Sept. 5, 2024**\
+`Corrections that appeared in print on Thursday, Sept. 5, 2024.`\
+https://nytimes.com/2024/09/05/pageoneplus/corrections-sept-5-2024.html
+
+**Quotation of the Day: Deadly Floods Return to a Battered Pakistan**\
+`Quotation of the Day for Thursday, September 5, 2024.`\
+https://nytimes.com/2024/09/05/pageoneplus/quotation-of-the-day-deadly-floods-return-to-a-battered-pakistan.html
+
+**Dominik Szoboszlai, made in Hungary: 'He was doing practice drills aged three'**\
+`Golf balls, water bottles, coloured headbands and a competitive dad were all crucial in setting Liverpool's midfielder on the road to fame`\
+https://nytimes.com/athletic/5587198/2024/09/05/dominik-szoboszlai-hungary-liverpool/
+
 **'Everyone can see why we had to act': How England won battle for Grealish and Rice**\
 `Rice and Grealish face Ireland for England this weekend knowing they could have been wearing green, not white`\
 https://nytimes.com/athletic/5728652/2024/09/05/england-rice-grealish-ireland/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5745129/2024/09/05/32-bold-fantasy-football-predict
 **The Athletic 500: Assessing the financial value of the Premier League's summer transfer business**\
 `How a focus on youth made this a reasonably sensible Premier League transfer window from a resale point of view `\
 https://nytimes.com/athletic/5744276/2024/09/05/the-athletic-500-financial-value-review/
-
-**Ravens at Chiefs picks, odds, how to watch: Chiefs favored by a field goal**\
-`All the details about the NFL Kickoff Game between the Baltimore Ravens and Kansas City Chiefs.`\
-https://nytimes.com/athletic/5745311/2024/09/05/baltimore-ravens-kansas-city-chiefs-picks-odds-how-to-watch/
-
-**Thursday's MLB odds, projections: Best bets, pitching matchups for every game**\
-`See pitching matchups, playoff projections, win projections and more for Thursday's MLB games.`\
-https://nytimes.com/athletic/5743055/2024/09/05/mlb-odds-best-bets-projections-september-5/
-
-**Jannik Sinner beats Daniil Medvedev in topsy-turvy U.S. Open quarterfinal**\
-`NEW YORK — Jannik Sinner took out his biggest challenger for the U.`\
-https://nytimes.com/athletic/5746433/2024/09/04/jannik-sinner-us-open-medvedev-result/
-
-**Meaningful September baseball? That's not enough for the streaking, unsatisfied Mets**\
-`The Mets finished up a sweep of the Red Sox to extend their winning streak to seven: "This is where we should be."`\
-https://nytimes.com/athletic/5746405/2024/09/04/mets-mlb-wild-card-race/
 
