@@ -1,3 +1,7 @@
+**Haaland and Salah form shows benefit of 'proper rest' - FIFPro**\
+`Global players’ union FIFPRO has issued its starkest warning yet about the amount of football the game’s stars are playing, saying this season will be the “worst ever” in terms of workload.`\
+https://nytimes.com/athletic/5747506/2024/09/05/fifpro-workload-report/
+
 **How Swing State Politics Are Sinking a Global Steel Deal**\
 `As the Biden administration nears a decision to block the proposed acquisition of U.S. Steel, the debate over national and economic security is being dwarfed by presidential politics.`\
 https://nytimes.com/2024/09/05/us/politics/us-steel-nippon-pennsylvania.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/05/us/trump-election-interference-hearing/heres
 **U.K. Prosecutors Drop Indecent Assault Case Against Harvey Weinstein**\
 `The Crown Prosecution Service said that it had “decided that there is no longer a realistic prospect of conviction.”`\
 https://nytimes.com/2024/09/05/us/harvey-weinstein-indecent-assault-case-dropped-uk.html
-
-**Taylor Swift to attend Chiefs vs. Ravens**\
-`Swift will attend the season opener at Arrowhead Stadium to cheer on her boyfriend and Chiefs TE Travis Kelce, a source said.`\
-https://nytimes.com/athletic/5747263/2024/09/05/taylor-swift-travis-kelce-chiefs-ravens/
 

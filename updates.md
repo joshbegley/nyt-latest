@@ -1,3 +1,7 @@
+**Haaland and Salah form shows benefit of 'proper rest' - FIFPro**\
+`Global players’ union FIFPRO has issued its starkest warning yet about the amount of football the game’s stars are playing, saying this season will be the “worst ever” in terms of workload.`\
+https://nytimes.com/athletic/5747506/2024/09/05/fifpro-workload-report/
+
 **How Swing State Politics Are Sinking a Global Steel Deal**\
 `As the Biden administration nears a decision to block the proposed acquisition of U.S. Steel, the debate over national and economic security is being dwarfed by presidential politics.`\
 https://nytimes.com/2024/09/05/us/politics/us-steel-nippon-pennsylvania.html
