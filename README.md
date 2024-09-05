@@ -1,3 +1,7 @@
+**Breaking Impasse, Macron Names Michel Barnier to Be French Prime Minister**\
+`The president’s choice of a right-wing politician, after an extraordinary delay, is certain to inflame opponents on the left who came out on top in an inconclusive election.`\
+https://nytimes.com/2024/09/05/world/europe/france-prime-minister-barnier-macron.html
+
 **'Mad scientist' Brian Daboll betting on his play-calling 'magic' to revitalize Giants**\
 `Players know a FaceTime call from Daboll while he's in his hot tub, smoking a cigar usually means one thing: He's cooking up a new play.`\
 https://nytimes.com/athletic/5746393/2024/09/05/new-york-giants-brian-daboll-play-caller-2024-week-1/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5744177/2024/09/05/bo-nix-broncos-captain/
 **‘Red Rooms’ Review: A True Crime Obsession Unravels**\
 `A mysterious young woman becomes deeply invested in the trial of an accused serial killer in this courtroom thriller.`\
 https://nytimes.com/2024/09/05/movies/red-rooms-review.html
-
-**‘Look Into My Eyes’ Review: Emotional Rescue**\
-`This fascinating documentary that profiles seven New York City psychics is both profoundly sad and surprisingly hopeful.`\
-https://nytimes.com/2024/09/05/movies/look-into-my-eyes-review.html
 

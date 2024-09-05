@@ -1,3 +1,11 @@
+**'Mad scientist' Brian Daboll betting on his play-calling 'magic' to revitalize Giants**\
+`Players know a FaceTime call from Daboll while he's in his hot tub, smoking a cigar usually means one thing: He's cooking up a new play.`\
+https://nytimes.com/athletic/5746393/2024/09/05/new-york-giants-brian-daboll-play-caller-2024-week-1/
+
+**Leicester fined £20,000 for player behaviour in defeat to Villa**\
+`The Football Association (FA) has fined Leicester City £20,000 after their players surrounded a match official in their Premier League defeat to Aston Villa last week.`\
+https://nytimes.com/athletic/5746970/2024/09/05/leicester-fine-aston-villa/
+
 **Explained: How has the Nations League changed and why does it matter?**\
 `What's the new format for UEFA's 'second' competition and what does winning it get you?`\
 https://nytimes.com/athletic/5746756/2024/09/05/uefa-nations-league-changes-explained/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/05/movies/red-rooms-review.html
 **‘Look Into My Eyes’ Review: Emotional Rescue**\
 `This fascinating documentary that profiles seven New York City psychics is both profoundly sad and surprisingly hopeful.`\
 https://nytimes.com/2024/09/05/movies/look-into-my-eyes-review.html
-
-**‘Lover of Men’ Review: The Heart of President Lincoln**\
-`Subtitled “The Untold History of Abraham Lincoln,” the film gathers an array of historians to argue that Lincoln had romantic relationships with men.`\
-https://nytimes.com/2024/09/05/movies/lover-of-men-review.html
-
-**‘Hoard’ Review: Dirty Romancing**\
-`A spiraling teenager and a tenderhearted garbage collector bond over debris in this stunningly unconventional drama.`\
-https://nytimes.com/2024/09/05/movies/hoard-review.html
 
