@@ -1,3 +1,7 @@
+**An American Church Thrived in Nicaragua. Then Its Pastors Went to Prison.**\
+`Evangelical pastors led by a Texas missionary in Nicaragua were accused of money laundering, in a widespread crackdown on religious groups.`\
+https://nytimes.com/2024/09/05/us/american-pastors-nicaragua-money-laundering.html
+
 **Breaking Impasse, Macron Names Michel Barnier as French Prime Minister**\
 `The president’s choice of a right-wing politician, after an extraordinary delay, is certain to inflame opponents on the left who came out on top in an inconclusive election.`\
 https://nytimes.com/2024/09/05/world/europe/france-prime-minister-barnier-macron.html

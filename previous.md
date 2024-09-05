@@ -1,3 +1,7 @@
+**An American Church Thrived in Nicaragua. Then Its Pastors Went to Prison.**\
+`Evangelical pastors led by a Texas missionary in Nicaragua were accused of money laundering, in a widespread crackdown on religious groups.`\
+https://nytimes.com/2024/09/05/us/american-pastors-nicaragua-money-laundering.html
+
 **Harris’s Shift on Tax Cheers Her Corporate Backers**\
 `The vice president has proposed raising the levy on capital gains, a break from President Biden’s economic agenda, as she tries to keep big donors and progressives on side.`\
 https://nytimes.com/2024/09/05/business/dealbook/kamala-harris-capital-gains-tax.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/05/us/politics/blinken-haiti-gang-violence.html
 **How many Chiefs games will Taylor Swift attend in 2024? How her tour schedule aligns**\
 `There are three shows — Oct. 20, Oct. 27 and Dec. 8 — that fall on the same dates as Chiefs regular-season games.`\
 https://nytimes.com/athletic/5499205/2024/09/05/taylor-swift-eras-tour-chiefs-schedule/
-
-**Breaking Impasse, Macron Names Michel Barnier as French Prime Minister**\
-`The president’s choice of a right-wing politician, after an extraordinary delay, is certain to inflame opponents on the left who came out on top in an inconclusive election.`\
-https://nytimes.com/2024/09/05/world/europe/france-prime-minister-barnier-macron.html
 
