@@ -22,8 +22,8 @@ https://nytimes.com/2024/09/05/world/europe/german-police-shoot-gunman-dead-near
 `Sterling, who retired from the radio booth in April, will call home and road games for the Yankees in October.`\
 https://nytimes.com/athletic/5747500/2024/09/05/yankees-john-sterling-playoffs-return-wfan/
 
-**Teenage E-Cigarette Use Continues to Decline**\
-`The percentage of middle and high school students reporting that they vaped tobacco products dropped to about a third of those students reporting use of e-cigarettes at a vaping peak in 2019, a new survey shows.`\
+**Teenage E-Cigarette Use Drops to a 10-Year Low**\
+`The percentage of middle and high school students reporting that they vaped tobacco products declined to about a third of the peak levels in 2019, a new survey shows.`\
 https://nytimes.com/2024/09/05/health/e-cigarettes-teenagers-vaping.html
 
 **‘Beetlejuice Beetlejuice’ Review: Delightfully Undead Again**\
