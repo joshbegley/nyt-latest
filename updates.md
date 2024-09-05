@@ -1,3 +1,7 @@
+**The TikTok to Hollywood Pipeline**\
+`Tareasa Johnson captivated millions on social media with a multipart story about her ex-husband’s lies. Now, it’s slated to become a TV show.`\
+https://nytimes.com/2024/09/05/style/reesa-teesa-tiktok-.html
+
 **Woman in France Testifies Against Husband Accused of Bringing Men to Rape Her**\
 `Gisèle Pelicot spoke of the horror of being told by the police that they had evidence her husband had drugged her for years and brought men into their home to join him in raping her.`\
 https://nytimes.com/2024/09/05/world/europe/france-rape-trial-pelicot-testimony.html
