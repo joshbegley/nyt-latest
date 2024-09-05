@@ -1,5 +1,5 @@
-**49ers’ Ricky Pearsall shows up at practice; Christian McCaffrey is limited**\
-`The 49ers were missing two players during Thursday's session while one big piece of their offense — McCaffrey — was limited.`\
+**49ers' Ricky Pearsall shows up at practice; Christian McCaffrey is limited**\
+`The 49ers were missing two players during Thursday's session, and one big piece of their offense — McCaffrey — was limited.`\
 https://nytimes.com/athletic/5748924/2024/09/05/49ers-ricky-pearsall-practice-christian-mccaffrey/
 
 **Florida Health Agency Targets Abortion Rights Ballot Measure**\
