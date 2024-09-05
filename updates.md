@@ -1,3 +1,7 @@
+**Woman in France Testifies Against Husband Accused of Bringing Men to Rape Her**\
+`Gisèle Pelicot spoke of the horror of being told by the police that they had evidence her husband had drugged her for years and brought men into their home to join him in raping her.`\
+https://nytimes.com/2024/09/05/world/europe/france-rape-trial-pelicot-testimony.html
+
 **College football Week 2 model projections: Predicted scores for every game**\
 `Austin Mock's college football model projects the point differentials and point totals for every Week 2 FBS vs. FBS game.`\
 https://nytimes.com/athletic/5748726/2024/09/05/college-football-week-2-model-projections-scores/
