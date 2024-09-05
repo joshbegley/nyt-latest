@@ -1,3 +1,11 @@
+**What if I’m the ‘Friend’ Donald Trump Referred To?**\
+`His “weave” conveys meaning, I’ll give him that. But it says something he does not intend.`\
+https://nytimes.com/2024/09/05/opinion/trump-talk-weave-english.html
+
+**Russell Wilson limited by calf tightness during Thursday's practice**\
+`Tomlin confirmed it's the same calf that kept Wilson out of the start of training camp.`\
+https://nytimes.com/athletic/5748103/2024/09/05/russell-wilson-injury-steelers-falcons/
+
 **What if I’m the ‘Friend’ Donald Trump Referred to?**\
 `His “weave” conveys meaning, I’ll give him that. But it says something he does not intend.`\
 https://nytimes.com/2024/09/05/opinion/trump-talk-weave-english.html

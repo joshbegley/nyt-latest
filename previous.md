@@ -1,4 +1,4 @@
-**What if I’m the ‘Friend’ Donald Trump Referred to?**\
+**What if I’m the ‘Friend’ Donald Trump Referred To?**\
 `His “weave” conveys meaning, I’ll give him that. But it says something he does not intend.`\
 https://nytimes.com/2024/09/05/opinion/trump-talk-weave-english.html
 
@@ -22,8 +22,8 @@ https://nytimes.com/2024/09/05/us/politics/jd-vance-tim-walz-transgender-care.ht
 `The indictment unsealed on Thursday comes as the United States expands its hunt for Russia’s most elite cyberwarriors.`\
 https://nytimes.com/2024/09/05/us/politics/indictment-russia-cyberattack-ukraine.html
 
-**Steelers' Wilson misses practice with calf tightness**\
-`Coach Mike Tomlin said QB Russell Wilson was held out of practice as a precaution.`\
+**Russell Wilson limited by calf tightness during Thursday's practice**\
+`Tomlin confirmed it's the same calf that kept Wilson out of the start of training camp.`\
 https://nytimes.com/athletic/5748103/2024/09/05/russell-wilson-injury-steelers-falcons/
 
 **A Barrier-Breaking Conductor Will Lead the Seattle Symphony**\
