@@ -1,3 +1,7 @@
+**U.S. Open quarterfinal recap: Zhang Shuai's doubles redemption, and straight-set serenity**\
+`The woman with the least-wanted singles record in tennis is making strides on the doubles court`\
+https://nytimes.com/athletic/5746228/2024/09/05/us-open-day-10-takeaways-results-zhang-shuai-muchova/
+
 **New Zealand’s Maori Name a New Queen**\
 `Nga Wai Hono i te Po, 27, is the second woman to assume the ceremonial role. She takes the throne as some of the country’s pro-Maori policies are being pared back.`\
 https://nytimes.com/2024/09/05/world/asia/new-zealand-maori-monarch.html
