@@ -1,3 +1,11 @@
+**Big game at the Big House, plus is Clemson on upset watch?**\
+`Welcome to Until Saturday, the five-star college football newsletter: Week 2 viewer guide, plus our upset specials. `\
+https://nytimes.com/athletic/5747120/2024/09/05/texas-michigan-clemson-until-saturday/
+
+**NWSL commissioner: CBA is step in becoming 'best league in the world'**\
+`Berman spoke at the Bloomberg Power Players conference in New York for the first time since the CBA was announced.`\
+https://nytimes.com/athletic/5748542/2024/09/05/nwsl-commissioner-jessica-berman-cba/
+
 **Anonymous NASCAR playoff drivers poll: Title favorite, preferred format and more**\
 `We put eight questions to each of NASCAR's 16 playoff drivers to get their candid responses. Here's what they said.`\
 https://nytimes.com/athletic/5747997/2024/09/05/nascar-playoff-drivers-poll-favorite-format-tracks/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5748456/2024/09/05/real-madrid-eder-miliato-brazil-
 **Live Q&A: 2024 fantasy football kickoff chat with Jay Felicio, Thursday 9/5 at 6:00 p.m. ET**\
 `Join Jay Felicio for a 2024 fantasy football kickoff chat on Thursday, 9/5, at 6:00 p.m. ET.`\
 https://nytimes.com/athletic/5748539/2024/09/05/live-qa-2024-fantasy-football-kickoff-chat-with-jay-felicio-thursday-9-5-at-600-p-m-et/
-
-**Rudy Gobert responds to criticism from Shaq**\
-`'I get the entertainment part but unlike other folks, you don’t need that stuff to stay relevant.'`\
-https://nytimes.com/athletic/5748342/2024/09/05/rudy-gobert-shaq-criticism-response/
-
-**Illegal Police Stops Have Risen Under Mayor Adams, Despite Court Mandate**\
-`Mayor Eric Adams promised police reforms, but a monitor found that officers, including the anti-gun units the mayor revived, continue to illegally stop, frisk and search people.`\
-https://nytimes.com/2024/09/05/nyregion/eric-adams-nypd-gun-units-illegal-stops.html
 

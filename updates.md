@@ -1,3 +1,11 @@
+**Big game at the Big House, plus is Clemson on upset watch?**\
+`Welcome to Until Saturday, the five-star college football newsletter: Week 2 viewer guide, plus our upset specials. `\
+https://nytimes.com/athletic/5747120/2024/09/05/texas-michigan-clemson-until-saturday/
+
+**NWSL commissioner: CBA is step in becoming 'best league in the world'**\
+`Berman spoke at the Bloomberg Power Players conference in New York for the first time since the CBA was announced.`\
+https://nytimes.com/athletic/5748542/2024/09/05/nwsl-commissioner-jessica-berman-cba/
+
 **Anonymous NASCAR playoff drivers poll: Title favorite, preferred format and more**\
 `We put eight questions to each of NASCAR's 16 playoff drivers to get their candid responses. Here's what they said.`\
 https://nytimes.com/athletic/5747997/2024/09/05/nascar-playoff-drivers-poll-favorite-format-tracks/
