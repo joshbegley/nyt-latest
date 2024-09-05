@@ -26,7 +26,7 @@ https://nytimes.com/2024/09/05/theater/le-mage-du-kremlin-la-scala-paris.html
 `Gio Reyna has withdrawn from the USMNT&#8217;s roster for September&#8217;s friendlies against Canada and New Zealand due to a left groin strain.`\
 https://nytimes.com/athletic/5747687/2024/09/05/gio-reyna-usmnt-cade-cowell/
 
-**Trump Plans to Call for an Efficiency Commission, an Idea Pushed by Elon Musk**\
+**Trump Calls for an Efficiency Commission, an Idea Pushed by Elon Musk**\
 `Advisers to Donald Trump said the goal of the commission would be to “analyze the functionality” of the federal government and look for ways to find savings for taxpayers.`\
 https://nytimes.com/2024/09/05/us/politics/trump-elon-musk-efficiency-commission.html
 
