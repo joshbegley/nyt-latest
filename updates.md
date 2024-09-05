@@ -1,3 +1,7 @@
+**Illegal Police Stops Have Risen Under Mayor Adams, Despite Court Mandate**\
+`Mayor Eric Adams promised police reforms, but a monitor found that officers, including the anti-gun units the mayor revived, continue to illegally stop, frisk and search people.`\
+https://nytimes.com/2024/09/05/nyregion/eric-adams-nypd-gun-units-illegal-stops.html
+
 **4 Big Airlines Face U.S. Inquiry Over Frequent Flier Programs**\
 `The Transportation Department ordered American, Delta, Southwest and United to share more information about their rewards practices to ensure they are fair to consumers and rivals.`\
 https://nytimes.com/2024/09/05/business/economy/airlines-frequent-flier-programs-rewards.html
