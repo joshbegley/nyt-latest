@@ -1,3 +1,11 @@
+**Steve Silberman, 66, Dies; Writer Deepened Understanding of Autism**\
+`Prodded by Oliver Sacks, he wrote a humane, award-winning book about the condition. A music maven, he also wrote liner notes for the Grateful Dead and his friend David Crosby.`\
+https://nytimes.com/2024/09/05/science/steve-silberman-dead.html
+
+**Walker on England omission: 'It's the right call'**\
+`Kyle Walker says England interim manager Lee Carsley was correct to not name him in the squad for September&#8217;s Nations League fixtures.`\
+https://nytimes.com/athletic/5747648/2024/09/05/kyle-walker-england-squad/
+
 **Trump Plans to Call for an Efficiency Commission, an Idea Pushed by Elon Musk**\
 `Advisers to Donald Trump said the goal of the commission would be to “analyze the functionality” of the federal government and look for ways to find savings for taxpayers.`\
 https://nytimes.com/2024/09/05/us/politics/trump-elon-musk-efficiency-commission.html
