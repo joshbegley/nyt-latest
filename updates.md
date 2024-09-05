@@ -1,3 +1,11 @@
+**New York Fashion Week Is Here. The Parties Had Some of Its Best Outfits.**\
+`The early 2000s were on display in SoHo, where the band TV on the Radio performed in front of a revival of Max Fish, the Lower East Side dive bar, at an event thrown by Vans.`\
+https://nytimes.com/2024/09/05/style/nyfw-fashion-week-after-party.html
+
+**Breakfast for Dinner With a Glass of Wine**\
+`Montague Diner, NoMad Diner and Bubby’s have all the pancakes, syrup and eggs you need at 8 p.m.`\
+https://nytimes.com/2024/09/05/dining/breakfast-for-dinner-with-a-glass-of-wine.html
+
 **It’s the Hottest Neighborhood in All of Los Angeles. (Bring Water.)**\
 `Woodland Hills has become the poster child for sweltering temperatures in the Los Angeles area, a mere 15 miles from the Pacific Ocean.`\
 https://nytimes.com/2024/09/05/us/woodland-hills-los-angeles-heat-wave.html
