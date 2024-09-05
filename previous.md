@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/5746405/2024/09/04/mets-mlb-wild-card-race/
 
 **Another disastrous inning does in Louie Varland, Twins in loss to Rays**\
-`The big, bad blowup inning is presently trending for the Twins, which isn’t a great development for a team with lofty October aspirations.`\
+`The big, bad blowup inning is presently trending for the Twins, which isn't a great development for a team with lofty October aspirations.`\
 https://nytimes.com/athletic/5746374/2024/09/04/louie-varland-twins-loss-tampa-bay/
 
 **Memphis aware of letter alleging potential NCAA violations**\

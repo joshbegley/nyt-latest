@@ -1,3 +1,7 @@
+**Another disastrous inning does in Louie Varland, Twins in loss to Rays**\
+`The big, bad blowup inning is presently trending for the Twins, which isn't a great development for a team with lofty October aspirations.`\
+https://nytimes.com/athletic/5746374/2024/09/04/louie-varland-twins-loss-tampa-bay/
+
 **Meaningful September baseball? That's not enough for the streaking, unsatisfied Mets**\
 `The Mets finished up a sweep of the Red Sox to extend their winning streak to seven: "This is where we should be."`\
 https://nytimes.com/athletic/5746405/2024/09/04/mets-mlb-wild-card-race/
