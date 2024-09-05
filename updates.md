@@ -1,3 +1,11 @@
+**4 Big Airlines Face U.S. Inquiry Over Frequent Flier Programs**\
+`The Transportation Department ordered American, Delta, Southwest and United to share more information about their rewards practices to ensure they are fair to consumers and rivals.`\
+https://nytimes.com/2024/09/05/business/economy/airlines-frequent-flier-programs-rewards.html
+
+**To Judge Chutkan, Trump Is a Defendant, Not a Presidential Candidate**\
+`Trump’s claim that the case could interfere with the election fell on deaf ears.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/trump-chutkan-court-hearing
+
 **New York Fashion Week Is Here. The Parties Had Some of Its Best Outfits.**\
 `The early 2000s were on display in SoHo, where the band TV on the Radio performed in front of a revival of Max Fish, the Lower East Side dive bar, at an event thrown by Vans.`\
 https://nytimes.com/2024/09/05/style/nyfw-fashion-week-after-party.html
