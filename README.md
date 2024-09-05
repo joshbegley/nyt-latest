@@ -1,3 +1,15 @@
+**Ravens at Chiefs picks, odds, how to watch: Chiefs favored by a field goal**\
+`All the details about the NFL Kickoff Game between the Baltimore Ravens and Kansas City Chiefs.`\
+https://nytimes.com/athletic/5745311/2024/09/05/baltimore-ravens-kansas-city-chiefs-picks-odds-how-to-watch/
+
+**Thursday's MLB odds, projections: Best bets, pitching matchups for every game**\
+`See pitching matchups, playoff projections, win projections and more for Thursday's MLB games.`\
+https://nytimes.com/athletic/5743055/2024/09/05/mlb-odds-best-bets-projections-september-5/
+
+**Jannik Sinner beats Daniil Medvedev in topsy-turvy U.S. Open quarterfinal**\
+`NEW YORK — Jannik Sinner took out his biggest challenger for the U.`\
+https://nytimes.com/athletic/5746433/2024/09/04/jannik-sinner-us-open-medvedev-result/
+
 **Meaningful September baseball? That's not enough for the streaking, unsatisfied Mets**\
 `The Mets finished up a sweep of the Red Sox to extend their winning streak to seven: "This is where we should be."`\
 https://nytimes.com/athletic/5746405/2024/09/04/mets-mlb-wild-card-race/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/04/us/georgia-school-shooting-victims.html
 **Imanaga pitches 7 innings in Cubs' combined no-hitter vs. Pirates**\
 `The bullpen smoothly handled the final six outs to continue Imanaga's magical first season in Chicago.`\
 https://nytimes.com/athletic/5746283/2024/09/04/cubs-shota-imanaga-combined-no-hitter/
-
-**'Let's keep their stories alive': Blue Jackets' vigil for Gaudreau brothers allows fans, players to mourn together**\
-`The vigil for the Gaudreau brothers outside the Columbus arena helped a grieving community to gather, hug and cry together.`\
-https://nytimes.com/athletic/5746105/2024/09/04/gaudreau-candlelight-vigil-blue-jackets-flames/
-
-**Peer Group**\
-`Are you feeling dizzy after solving Joe Deeney’s puzzle?`\
-https://nytimes.com/2024/09/04/crosswords/daily-puzzle-2024-09-05.html
-
-**Whit Merrifield thinks MLB will have hit-batter rule in place by 2025**\
-`Regarding potential penalties, Merrifield said, “You look at football players, they’ve had to totally rework how they tackle."`\
-https://nytimes.com/athletic/5746145/2024/09/04/braves-whit-merrifield-mlb-hit-batter-rule/
 
