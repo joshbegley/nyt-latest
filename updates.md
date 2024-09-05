@@ -1,3 +1,11 @@
+**That’s a Great Reality TV Set. Let’s Use It Again.**\
+`“The Circle” is one of many current shows using the same state-of-the-art production hub to shoot a variety of international versions.`\
+https://nytimes.com/2024/09/05/arts/television/reality-tv-production-hubs-the-circle.html
+
+**‘Rebel Ridge’ Review: Their Corruption, His Destruction**\
+`This crime drama from Jeremy Saulnier stars Aaron Pierre as a man whose run-in with small-town police officers uncovers uncomfortable secrets.`\
+https://nytimes.com/2024/09/05/movies/rebel-ridge-review.html
+
 **An American Church Thrived in Nicaragua. Then Its Pastors Went to Prison.**\
 `Evangelical pastors led by a Texas missionary in Nicaragua were accused of money laundering, in a widespread crackdown on religious groups.`\
 https://nytimes.com/2024/09/05/us/american-pastors-nicaragua-money-laundering.html
