@@ -1,40 +1,40 @@
-**Harris or Trump? The Prophet of Presidential Elections Is Ready to Call the Race.**\
-`Allan Lichtman’s method for predicting election winners has an impressive track record.`\
-https://nytimes.com/video/opinion/100000009671449/allan-lichtman-presidential-polls-prediction.html
+**What’s the Best Wedding Favor? Let Your Guests Decide.**\
+`A growing number of couples are including gifting suites that allow their wedding attendees to pick a souvenir they’ll actually use.`\
+https://nytimes.com/2024/09/05/style/wedding-gifting-suites.html
 
-**U.S. Open quarterfinal recap: Zhang Shuai's doubles redemption, and straight-set serenity**\
-`The woman with the least-wanted singles record in tennis is making strides on the doubles court`\
-https://nytimes.com/athletic/5746228/2024/09/05/us-open-day-10-takeaways-results-zhang-shuai-muchova/
+**What Does a Couple Do When One Partner Is Deported?**\
+`American citizens whose spouses have been deported face wrenching decisions on what is best for their future, especially when they have children.`\
+https://nytimes.com/2024/09/05/us/immigration-deported-spouses.html
 
-**New Zealand’s Maori Name a New Queen**\
-`Nga Wai Hono i te Po, 27, is the second woman to assume the ceremonial role. She takes the throne as some of the country’s pro-Maori policies are being pared back.`\
-https://nytimes.com/2024/09/05/world/asia/new-zealand-maori-monarch.html
+**Rebecca Cheptegei, Ugandan marathon runner, dies aged 33 after being set on fire**\
+`The Ugandan Olympic athlete Rebecca Cheptegei has died at a Kenyan hospital, days after sustaining 80 per cent burns to her body following an attack by her former boyfriend.`\
+https://nytimes.com/athletic/5746644/2024/09/05/rebecca-cheptegei-death-ugandan-runner/
 
-**Rebecca Cheptegei, Olympic Runner From Uganda, Dies After Attack**\
-`The athlete, who was set on fire by a man with whom she was in a relationship, competed in the women’s marathon at the Paris Olympics this summer.`\
-https://nytimes.com/2024/09/05/sports/rebecca-cheptegei-dead-uganda-olympic-athlete.html
+**I’m Just a Human Sitting in Front of a Stack of Blank Paper, Sketching as Fast as I Can**\
+`My nine months as a generative art model.`\
+https://nytimes.com/2024/09/05/opinion/ai-art-model-prompt-brush.html
 
-**The Bands and the Fans Were Fake. The $10 Million Was Real.**\
-`Federal prosecutors charged a North Carolina musician with gaming the system to win royalties from streaming services including Spotify, Apple Music and Amazon Music.`\
-https://nytimes.com/2024/09/05/nyregion/nc-man-charged-ai-fake-music.html
+**Kamala Harris Wasn’t the First Veep to Experience a Major Vibe Shift**\
+`In “Making the Presidency,” Lindsay M. Chervinsky argues that John Adams established what it means to be America’s commander in chief.`\
+https://nytimes.com/2024/09/05/books/review/making-the-presidency-lindsay-m-chervinsky.html
 
-**Migrants Have Been a ‘Godsend,’ New York Schools Chief Says**\
-`In an interview, Chancellor David C. Banks said migrants had helped schools that were bleeding students. He also promised a big new role for artificial intelligence.`\
-https://nytimes.com/2024/09/05/nyregion/banks-migrants-nyc-schools.html
+**Boredom Almost Killed the N.F.L. Kickoff. New Rules May Save It.**\
+`The league is trying to balance bringing some excitement back while keeping an eye on safety.`\
+https://nytimes.com/2024/09/05/upshot/nfl-kickoff-rule-change.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/09/05/crosswords/spelling-bee-forum.html
+**How to Dress Up an Outfit With an Unexpected Accessory**\
+`Easy, monochromatic wardrobe staples get a boost from a structured handbag, an elegant cap or leather opera gloves.`\
+https://nytimes.com/2024/09/05/t-magazine/mens-fashion-staples-accessories.html
 
-**Inside the Great Gap Glow-Up**\
-`Can Zac Posen, known for over-the-top glamour, reinvent the American mall brand — and change his reputation in the process?`\
-https://nytimes.com/2024/09/05/style/zac-posen-gap.html
+**A Mexico City Apartment Complex Where Dozens of Artists Live and Work**\
+`The 174-unit Edificio Mascota in the Colonia Juárez neighborhood covers an entire city block.`\
+https://nytimes.com/2024/09/05/t-magazine/artist-building-mexico-city.html
 
-**When a Real Estate Boom Came to a Toxic Corner of Brooklyn**\
-`Dozens of new buildings are going up along the famously polluted Gowanus Canal. The discovery of an underground chemical plume hasn’t slowed the development.`\
-https://nytimes.com/2024/09/05/nyregion/gowanus-canal-toxic-real-estate-brooklyn.html
+**The 25 Most Influential Postwar Men’s Wear Collections**\
+`A group of experts — designers, editors and a street-style photographer — debate which clothes truly changed men’s fashion.`\
+https://nytimes.com/2024/09/05/t-magazine/most-influential-mens-wear-collections-postwar.html
 
-**Typhoon Yagi Nears Southern China With Heavy Rain and Strong Winds**\
-`The storm has killed at least 13 people in the Philippines and is forecast to be the strongest to hit Hainan Province in a decade.`\
-https://nytimes.com/2024/09/05/world/asia/typhoon-yagi-china-hong-kong.html
+**6 Mistakes New Runners Make**\
+`Running experts and coaches share their best advice for avoiding these common pitfalls.`\
+https://nytimes.com/2024/09/05/well/move/beginner-runner-mistakes-tips.html
 
