@@ -1,3 +1,11 @@
+**Anonymous NASCAR playoff drivers poll: Title favorite, preferred format and more**\
+`We put eight questions to each of NASCAR's 16 playoff drivers to get their candid responses. Here's what they said.`\
+https://nytimes.com/athletic/5747997/2024/09/05/nascar-playoff-drivers-poll-favorite-format-tracks/
+
+**Suspect Claimed Online Threats Had Come From Hacked Account**\
+`The father of the Georgia school shooting suspect told investigators he would be “mad as hell” if his son had made the threats, according to a transcript. “Then all the guns will go away.”`\
+https://nytimes.com/2024/09/05/us/georgia-shooting-suspect-father-gun-safety.html
+
 **Breaking down Cristiano Ronaldo's 900 career goals**\
 `The Portuguese icon has reached another major milestone — here's a complete account of his goalscoring career`\
 https://nytimes.com/athletic/5724492/2024/09/05/cristiano-ronaldo-900-career-goals/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5748342/2024/09/05/rudy-gobert-shaq-criticism-respo
 **Illegal Police Stops Have Risen Under Mayor Adams, Despite Court Mandate**\
 `Mayor Eric Adams promised police reforms, but a monitor found that officers, including the anti-gun units the mayor revived, continue to illegally stop, frisk and search people.`\
 https://nytimes.com/2024/09/05/nyregion/eric-adams-nypd-gun-units-illegal-stops.html
-
-**4 Big Airlines Face U.S. Inquiry Over Frequent Flier Programs**\
-`The Transportation Department ordered American, Delta, Southwest and United to share more information about their rewards practices to ensure they are fair to consumers and rivals.`\
-https://nytimes.com/2024/09/05/business/economy/airlines-frequent-flier-programs-rewards.html
-
-**To Judge Chutkan, Trump Is a Defendant, Not a Presidential Candidate**\
-`Trump’s claim that the case could interfere with the election fell on deaf ears.`\
-https://nytimes.com/live/2024/09/03/opinion/thepoint/trump-chutkan-court-hearing
 
