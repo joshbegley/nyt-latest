@@ -1,1 +1,1 @@
-**How to Pack for a 3-Day Trip With Just a ‘Personal Item’**\
+**How a Sleek Little Hair Pin Transformed My Sad Mom Bun **\
