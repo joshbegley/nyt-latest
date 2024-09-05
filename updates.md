@@ -1,3 +1,11 @@
+**What We Know About the Apalachee High School Shooting Victims**\
+`Two students and two teachers were shot dead at the high school in Winder, Ga. At least nine others were injured.`\
+https://nytimes.com/2024/09/04/us/georgia-school-shooting-victims.html
+
+**Imanaga pitches 7 innings in Cubs' combined no-hitter vs. Pirates**\
+`The bullpen smoothly handled the final six outs to continue Imanaga's magical first season in Chicago.`\
+https://nytimes.com/athletic/5746283/2024/09/04/cubs-shota-imanaga-combined-no-hitter/
+
 **Shota Imanaga pitches 7 innings in Cubs' combined no-hitter against Pirates**\
 `The bullpen smoothly handled the final six outs to continue Imanaga's magical first season in Chicago.`\
 https://nytimes.com/athletic/5746283/2024/09/04/cubs-shota-imanaga-combined-no-hitter/

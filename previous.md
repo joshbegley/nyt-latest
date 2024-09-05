@@ -1,4 +1,8 @@
-**Shota Imanaga pitches 7 innings in Cubs' combined no-hitter against Pirates**\
+**What We Know About the Apalachee High School Shooting Victims**\
+`Two students and two teachers were shot dead at the high school in Winder, Ga. At least nine others were injured.`\
+https://nytimes.com/2024/09/04/us/georgia-school-shooting-victims.html
+
+**Imanaga pitches 7 innings in Cubs' combined no-hitter vs. Pirates**\
 `The bullpen smoothly handled the final six outs to continue Imanaga's magical first season in Chicago.`\
 https://nytimes.com/athletic/5746283/2024/09/04/cubs-shota-imanaga-combined-no-hitter/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/04/us/georgia-school-shooting-students-teacher.html
 **Jessica Pegula knocks Iga Swiatek out of U.S. Open for first Grand Slam semifinal**\
 `The world No. 6 had lost six consecutive Grand Slam quarterfinals before defeating the world No. 1 in New York.`\
 https://nytimes.com/athletic/5746112/2024/09/04/pegula-swiatek-us-open-result/
-
-**Trump Questions Fairness of Next Week’s Debate at a Town Hall**\
-`Former President Donald J. Trump, at a Fox News event, insisted without evidence that Vice President Kamala Harris was “going to get the questions in advance.”`\
-https://nytimes.com/2024/09/04/us/politics/trump-fox-news-town-hall.html
 
