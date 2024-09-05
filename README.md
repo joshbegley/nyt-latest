@@ -1,3 +1,7 @@
+**Shota Imanaga pitches 7 innings in Cubs' combined no-hitter against Pirates**\
+`The bullpen smoothly handled the final six outs to continue Imanaga's magical first season in Chicago.`\
+https://nytimes.com/athletic/5746283/2024/09/04/cubs-shota-imanaga-combined-no-hitter/
+
 **'Let's keep their stories alive': Blue Jackets' vigil for Gaudreau brothers allows fans, players to mourn together**\
 `The vigil for the Gaudreau brothers outside the Columbus arena helped a grieving community to gather, hug and cry together.`\
 https://nytimes.com/athletic/5746105/2024/09/04/gaudreau-candlelight-vigil-blue-jackets-flames/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5746112/2024/09/04/pegula-swiatek-us-open-result/
 **Trump Questions Fairness of Next Week’s Debate at a Town Hall**\
 `Former President Donald J. Trump, at a Fox News event, insisted without evidence that Vice President Kamala Harris was “going to get the questions in advance.”`\
 https://nytimes.com/2024/09/04/us/politics/trump-fox-news-town-hall.html
-
-**Yankees' Clay Holmes loses defined closer role as team pivots to matchups**\
-`For the time being, the Yankees' closer role will feature a revolving door of relievers based on matchups. `\
-https://nytimes.com/athletic/5745799/2024/09/04/yankees-closer-situation-developments/
 
