@@ -1,3 +1,11 @@
+**Real Madrid's Eder Militao withdraws from Brazil squad with thigh injury**\
+`Real Madrid defender Eder Militao has withdrawn from the Brazil squad for their upcoming World Cup qualifiers due to a thigh injury.`\
+https://nytimes.com/athletic/5748456/2024/09/05/real-madrid-eder-miliato-brazil-injury/
+
+**Live Q&A: 2024 fantasy football kickoff chat with Jay Felicio, Thursday 9/5 at 6:00 p.m. ET**\
+`Join Jay Felicio for a 2024 fantasy football kickoff chat on Thursday, 9/5, at 6:00 p.m. ET.`\
+https://nytimes.com/athletic/5748539/2024/09/05/live-qa-2024-fantasy-football-kickoff-chat-with-jay-felicio-thursday-9-5-at-600-p-m-et/
+
 **Rudy Gobert responds to criticism from Shaq**\
 `'I get the entertainment part but unlike other folks, you don’t need that stuff to stay relevant.'`\
 https://nytimes.com/athletic/5748342/2024/09/05/rudy-gobert-shaq-criticism-response/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/05/us/woodland-hills-los-angeles-heat-wave.html
 **'ChiefsAholic' sentenced to 17 1/2 years for bank robberies**\
 `Chiefs superfan Xaviar Babudar was sentenced for committing a string of 11 armed bank robberies or attempted robberies across the U.S.`\
 https://nytimes.com/athletic/5748177/2024/09/05/chiefsaholic-sentence-robberies/
-
-**Senators sign former Maple Leafs, Islanders forward Nikolay Kulemin to PTO**\
-`After six years in Russia, the 38-year-old winger is giving the NHL another shot.`\
-https://nytimes.com/athletic/5748332/2024/09/05/senators-nikolay-kulemin-pto-maple-leafs-islanders/
-
-**The Electric Vehicle Future Is Coming. Just a Little More Slowly.**\
-`Though large automakers are delaying their plans to introduce new all-electric models, the E.V. industry is still the future, experts say.`\
-https://nytimes.com/2024/09/05/climate/electric-vehicle-sales-projections.html
 
