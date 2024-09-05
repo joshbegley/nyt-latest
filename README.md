@@ -1,3 +1,7 @@
+**Picasso Prints and Brazilian Brilliance at the Independent**\
+`The fair’s third 20th-century-focused edition charts a careful line between safety and excitement.`\
+https://nytimes.com/2024/09/05/arts/design/picasso-prints-and-brazilian-brilliance-at-the-independent.html
+
 **U.N.C. Reports Declines in Black and Hispanic Enrollment**\
 `Along with Harvard University, the University of North Carolina at Chapel Hill was one of two schools defending affirmative action in Supreme Court cases last year.`\
 https://nytimes.com/2024/09/05/us/unc-affirmative-action-black-enrollment.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/05/us/boulder-mass-shooting-trial.html
 **Walker on England omission: 'It's the right call'**\
 `Kyle Walker says England interim manager Lee Carsley was correct to not name him in the squad for September&#8217;s Nations League fixtures.`\
 https://nytimes.com/athletic/5747648/2024/09/05/kyle-walker-england-squad/
-
-**Top 50 MLB prospects: Two Tigers lead off while Bazzana cracks Top 5 of Bowden's rankings**\
-`It's time for Jim Bowden to update his annual top-50 ranking. This year, two Tigers — Jackson Jobe and Max Clark — lead the list. `\
-https://nytimes.com/athletic/5742542/2024/09/05/top-50-mlb-prospects-jobe-bazzana-mayer/
 
