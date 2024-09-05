@@ -1,3 +1,7 @@
+**California Man Arrested After Shooting Spree Kills at Least 80 Animals**\
+`The hourslong episode in the middle of the night triggered a shelter-in-place order in Monterey County. One official described the scene as “horrible.”`\
+https://nytimes.com/2024/09/05/us/california-man-kills-animals-shooting.html
+
 **Here’s how Jack Smith modified the Jan. 6 case indictment against Donald Trump.**\
 `By Charlie Savage`\
 https://nytimes.com/live/2024/09/05/us/trump-election-interference-hearing/heres-how-jack-smith-modified-the-jan-6-case-indictment-against-donald-trump
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/05/us/politics/trump-election-case.html
 **Nicaragua Releases 135 Political Prisoners on Humanitarian Grounds**\
 `Among those freed under the deal brokered by the U.S. government were 13 affiliated with Mountain Gateway, an American evangelical church.`\
 https://nytimes.com/2024/09/05/us/nicaragua-political-prisoners-release.html
-
-**Start-Up Investors Push Back Against Venture Capital’s Bigger-Is-Better Mantra**\
-`A small but vocal group is forming new funds and taking new approaches to counter the swell of money into venture capital in recent years.`\
-https://nytimes.com/2024/09/05/technology/venture-capital-startup-investors-asylum-ventures.html
 
