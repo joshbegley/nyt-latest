@@ -1,3 +1,7 @@
+**Harris or Trump? The Prophet of Presidential Elections Is Ready to Call the Race.**\
+`Allan Lichtman’s method for predicting election winners has an impressive track record.`\
+https://nytimes.com/video/opinion/100000009671449/allan-lichtman-presidential-polls-prediction.html
+
 **U.S. Open quarterfinal recap: Zhang Shuai's doubles redemption, and straight-set serenity**\
 `The woman with the least-wanted singles record in tennis is making strides on the doubles court`\
 https://nytimes.com/athletic/5746228/2024/09/05/us-open-day-10-takeaways-results-zhang-shuai-muchova/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/05/nyregion/gowanus-canal-toxic-real-estate-brooklyn
 **Typhoon Yagi Nears Southern China With Heavy Rain and Strong Winds**\
 `The storm has killed at least 13 people in the Philippines and is forecast to be the strongest to hit Hainan Province in a decade.`\
 https://nytimes.com/2024/09/05/world/asia/typhoon-yagi-china-hong-kong.html
-
-**Giants, Chapman agree to 6-year, $151 million extension**\
-`Chapman's extension is the second-richest contract in franchise history behind Buster Posey's nine-year, $167 million deal in 2013.`\
-https://nytimes.com/athletic/5746573/2024/09/05/matt-chapman-giants-extension/
 
