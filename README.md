@@ -1,3 +1,11 @@
+**How Swing State Politics Are Sinking a Global Steel Deal**\
+`Ambitions of “friend-shoring” end at Pennsylvania state lines as Japan is deemed a security threat.`\
+https://nytimes.com/2024/09/05/us/politics/us-steel-nippon-pennsylvania.html
+
+**Alex Goligoski, a career come full circle in Minnesota and a 'dream' retirement gift**\
+`Goligoski may not have ended his NHL career the way he imagined, but he launches into his next phase of life with no regrets.`\
+https://nytimes.com/athletic/5745086/2024/09/05/alex-goligoski-wild-retirement/
+
 **Brandon Ingram's future with the Pelicans is as hazy as ever, and the clock is ticking**\
 `Ingram was a conspicuous absence at a players-only minicamp, casting more doubt about his long-term future with the Pelicans.`\
 https://nytimes.com/athletic/5746615/2024/09/05/brandon-ingram-pelicans-rumors-trade-future/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/05/us/harvey-weinstein-indecent-assault-case-dropped
 **Taylor Swift to attend Chiefs vs. Ravens**\
 `Swift will attend the season opener at Arrowhead Stadium to cheer on her boyfriend and Chiefs TE Travis Kelce, a source said.`\
 https://nytimes.com/athletic/5747263/2024/09/05/taylor-swift-travis-kelce-chiefs-ravens/
-
-**Scoop City: Time to see if Ravens closed the gap**\
-`A preview of the Ravens vs. Chiefs game, a look at the offseason in Kansas City and predictions for the 2024 season.`\
-https://nytimes.com/athletic/5747405/2024/09/05/scoop-city-time-to-see-if-ravens-closed-the-gap/
-
-**Travis Kelce believes he has at least 2 good seasons left in Chiefs career**\
-`The four-time All-Pro tight end signed that new contract in April, making him the highest-paid tight end.`\
-https://nytimes.com/athletic/5747315/2024/09/05/travis-kelce-chiefs-career/
 
