@@ -1,3 +1,11 @@
+**Florida Health Agency Targets Abortion Rights Ballot Measure**\
+`A state agency claimed that the referendum “threatens women’s safety.” Critics say the website is unethical and may violate the law.`\
+https://nytimes.com/2024/09/05/us/florida-abortion-ballot-measure.html
+
+**Alex Morgan has designed her own USWNT exit by setting the next generation up for success**\
+`The U.S. can exist without Morgan and that’s ultimately for the good`\
+https://nytimes.com/athletic/5675577/2024/09/05/uswnt-olympics-alex-morgan-not-on-team/
+
 **Purported Rembrandt Painting Found in a Maine Attic Sells for $1.4 Million**\
 `“Portrait of a Girl,” a 17th-century work believed to be by the Dutch master, had been hiding in a home in Maine.`\
 https://nytimes.com/2024/09/05/arts/rembrandt-painting-maine-attic.html
