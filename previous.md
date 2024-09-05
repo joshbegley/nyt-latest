@@ -1,3 +1,19 @@
+**Brandon Ingram's future with the Pelicans is as hazy as ever, and the clock is ticking**\
+`Ingram was a conspicuous absence at a players-only minicamp, casting more doubt about his long-term future with the Pelicans.`\
+https://nytimes.com/athletic/5746615/2024/09/05/brandon-ingram-pelicans-rumors-trade-future/
+
+**Palmer, Lavia and Fofana omitted from Chelsea's Conference League squad**\
+`Cole Palmer, Wesley Fofana and Romeo Lavia have been omitted from Chelsea’s squad for the Europa Conference League due to load management concerns.`\
+https://nytimes.com/athletic/5747427/2024/09/05/palmer-lavia-fofana-chelsea-conference-league/
+
+**Chelsea Women announce Mpome signing from Montpellier**\
+`Chelsea have completed the signing of defender Maelys Mpome from Montpellier.`\
+https://nytimes.com/athletic/5747384/2024/09/05/maelys-mpome-chelsea-women-transfer/
+
+**In Michigan, an ‘Unhinged Werewolf’ Will Make It Clear Who Voted**\
+`A contest for the state’s next “I Voted” sticker yielded several winning designs, but a seventh grader’s stood out from the rest.`\
+https://nytimes.com/2024/09/05/style/michigan-i-voted-sticker-werewolf.html
+
 **California Man Arrested After Shooting Spree Kills at Least 80 Animals**\
 `The hourslong episode in the middle of the night triggered a shelter-in-place order in Monterey County. One official described the scene as “horrible.”`\
 https://nytimes.com/2024/09/05/us/california-man-kills-animals-shooting.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5747405/2024/09/05/scoop-city-time-to-see-if-ravens
 **Travis Kelce believes he has at least 2 good seasons left in Chiefs career**\
 `The four-time All-Pro tight end signed that new contract in April, making him the highest-paid tight end.`\
 https://nytimes.com/athletic/5747315/2024/09/05/travis-kelce-chiefs-career/
-
-**Trump will not attend the hearing.**\
-`By Michael Gold`\
-https://nytimes.com/live/2024/09/05/us/trump-election-interference-hearing/trump-will-not-attend-the-hearing
-
-**Magic Johnson joins Washington Spirit ownership group**\
-`“I want to make sure that this sport, women’s soccer, can grow," Magic Johnson said about his investment in the Spirit.`\
-https://nytimes.com/athletic/5747236/2024/09/05/magic-johnson-joins-washington-spirit-ownership-group/
-
-**Here’s why Trump’s lawyers are in court for the election interference case.**\
-`The judge has to begin sorting out which parts of the indictment of the former president must be tossed out because of a Supreme Court ruling on presidential immunity. She’s seeking input on how to do it.`\
-https://nytimes.com/2024/09/05/us/politics/trump-election-case.html
-
-**Nicaragua Releases 135 Political Prisoners on Humanitarian Grounds**\
-`Among those freed under the deal brokered by the U.S. government were 13 affiliated with Mountain Gateway, an American evangelical church.`\
-https://nytimes.com/2024/09/05/us/nicaragua-political-prisoners-release.html
 
