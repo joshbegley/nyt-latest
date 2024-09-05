@@ -1,3 +1,11 @@
+**Here’s how Jack Smith modified the Jan. 6 case indictment against Donald Trump.**\
+`By Charlie Savage`\
+https://nytimes.com/live/2024/09/05/us/trump-election-interference-hearing/heres-how-jack-smith-modified-the-jan-6-case-indictment-against-donald-trump
+
+**U.K. Prosecutors Drop Indecent Assault Case Against Harvey Weinstein**\
+`The Crown Prosecution Service said that it had “decided that there is no longer a realistic prospect of conviction.”`\
+https://nytimes.com/2024/09/05/us/harvey-weinstein-indecent-assault-case-dropped-uk.html
+
 **Taylor Swift to attend Chiefs vs. Ravens**\
 `Swift will attend the season opener at Arrowhead Stadium to cheer on her boyfriend and Chiefs TE Travis Kelce, a source said.`\
 https://nytimes.com/athletic/5747263/2024/09/05/taylor-swift-travis-kelce-chiefs-ravens/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/05/us/nicaragua-political-prisoners-release.html
 **Start-Up Investors Push Back Against Venture Capital’s Bigger-Is-Better Mantra**\
 `A small but vocal group is forming new funds and taking new approaches to counter the swell of money into venture capital in recent years.`\
 https://nytimes.com/2024/09/05/technology/venture-capital-startup-investors-asylum-ventures.html
-
-**‘The Rings of Power’ Season 2, Episode 4: The Trees Have Thoughts**\
-`This week’s episode, which included several Tolkien fan-favorite characters and creatures, is the best of the season thus far.`\
-https://nytimes.com/2024/09/05/arts/television/the-rings-of-power-season-2-episode-4-recap.html
-
-**The judge overseeing the case has weathered criticism from Trump.**\
-`By Eileen Sullivan`\
-https://nytimes.com/live/2024/09/05/us/trump-election-interference-hearing/the-judge-overseeing-the-case-has-weathered-criticism-from-trump
 
