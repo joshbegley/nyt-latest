@@ -1,3 +1,7 @@
+**China Woos Africa, Casting Itself as Global South’s Defender**\
+`More than 50 African leaders have gathered in Beijing for a summit aimed at projecting the influence of China’s leader, Xi Jinping, in the developing world.`\
+https://nytimes.com/2024/09/04/world/asia/china-africa-summit.html
+
 **What We Know About the Apalachee High School Shooting Victims**\
 `Two students and two teachers were shot dead at the high school in Winder, Ga. At least nine others were injured.`\
 https://nytimes.com/2024/09/04/us/georgia-school-shooting-victims.html
