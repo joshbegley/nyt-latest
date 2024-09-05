@@ -1,3 +1,7 @@
+**Brian Ketcham, Effective Foe of Traffic and Smog, Dies at 85**\
+`An engineer and influential environmentalist in New York, he fought for bus lanes, bridge tolls and limits on parking, and against wider highways and unfettered car use.`\
+https://nytimes.com/2024/09/05/nyregion/brian-ketcham-dead.html
+
 **Giants' Matt Chapman gets the contract he should've received all along: 'I believed in myself'**\
 `"This last offseason was a little strange with the free-agent market, but I was willing to bet on myself," Chapman said.`\
 https://nytimes.com/athletic/5748791/2024/09/05/sf-giants-matt-chapman-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5748726/2024/09/05/college-football-week-2-model-pr
 **Rich Homie Quan, Melodic Atlanta Rapper, Dies at 34**\
 `The rapper, who was at one time affiliated with Young Thug, had a 2015 hit with “Flex (Ooh, Ooh, Ooh),” which spawned a dance craze.`\
 https://nytimes.com/2024/09/05/arts/music/rich-homie-quan-dead.html
-
-**Trump Praises Tariffs, and William McKinley, to Power Brokers**\
-`In an address about the kind of economy he hopes to build for the 21st century, the former president harked back to the end of another century: the 19th.`\
-https://nytimes.com/2024/09/05/us/politics/trump-tariffs-william-mckinley.html
 
