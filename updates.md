@@ -1,3 +1,19 @@
+**Here’s why Trump’s lawyers are in court for the election interference case.**\
+`The judge has to begin sorting out which parts of the indictment of the former president must be tossed out because of a Supreme Court ruling on presidential immunity. She’s seeking input on how to do it.`\
+https://nytimes.com/2024/09/05/us/politics/trump-election-case.html
+
+**Nicaragua Releases 135 Political Prisoners on Humanitarian Grounds**\
+`Among those freed under the deal brokered by the U.S. government were 13 affiliated with Mountain Gateway, an American evangelical church.`\
+https://nytimes.com/2024/09/05/us/nicaragua-political-prisoners-release.html
+
+**Start-Up Investors Push Back Against Venture Capital’s Bigger-Is-Better Mantra**\
+`A small but vocal group is forming new funds and taking new approaches to counter the swell of money into venture capital in recent years.`\
+https://nytimes.com/2024/09/05/technology/venture-capital-startup-investors-asylum-ventures.html
+
+**‘The Rings of Power’ Season 2, Episode 4: The Trees Have Thoughts**\
+`This week’s episode, which included several Tolkien fan-favorite characters and creatures, is the best of the season thus far.`\
+https://nytimes.com/2024/09/05/arts/television/the-rings-of-power-season-2-episode-4-recap.html
+
 **The judge overseeing the case has weathered criticism from Trump.**\
 `By Eileen Sullivan`\
 https://nytimes.com/live/2024/09/05/us/trump-election-interference-hearing/the-judge-overseeing-the-case-has-weathered-criticism-from-trump
