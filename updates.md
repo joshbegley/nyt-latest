@@ -1,3 +1,7 @@
+**One Student Implied That Some Quick Thinking Saved Him and His Classmates**\
+`As gunfire sounded outside a math class, a student noticed the door was open. A classmate ran across the room to shut it.`\
+https://nytimes.com/2024/09/04/us/georgia-school-shooting-students-teacher.html
+
 **Trump Questions Fairness of Next Week’s Debate at a Town Hall**\
 `Former President Donald J. Trump, at a Fox News event, insisted without evidence that Vice President Kamala Harris was “going to get the questions in advance.”`\
 https://nytimes.com/2024/09/04/us/politics/trump-fox-news-town-hall.html

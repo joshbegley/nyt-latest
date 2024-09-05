@@ -1,10 +1,14 @@
-**Trump Questions Fairness of Next Week’s Debate at a Town Hall**\
-`Former President Donald J. Trump, at a Fox News event, insisted without evidence that Vice President Kamala Harris was “going to get the questions in advance.”`\
-https://nytimes.com/2024/09/04/us/politics/trump-fox-news-town-hall.html
+**One Student Implied That Some Quick Thinking Saved Him and His Classmates**\
+`As gunfire sounded outside a math class, a student noticed the door was open. A classmate ran across the room to shut it.`\
+https://nytimes.com/2024/09/04/us/georgia-school-shooting-students-teacher.html
 
 **Jessica Pegula knocks Iga Swiatek out of U.S. Open for first Grand Slam semifinal**\
 `The world No. 6 had lost six consecutive Grand Slam quarterfinals before defeating the world No. 1 in New York.`\
 https://nytimes.com/athletic/5746112/2024/09/04/pegula-swiatek-us-open-result/
+
+**Trump Questions Fairness of Next Week’s Debate at a Town Hall**\
+`Former President Donald J. Trump, at a Fox News event, insisted without evidence that Vice President Kamala Harris was “going to get the questions in advance.”`\
+https://nytimes.com/2024/09/04/us/politics/trump-fox-news-town-hall.html
 
 **Yankees' Clay Holmes loses defined closer role as team pivots to matchups**\
 `For the time being, the Yankees' closer role will feature a revolving door of relievers based on matchups. `\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/04/us/carmen-van-huss-murder-suspect-arrested.html
 **Florida true freshman QB DJ Lagway, former 5-star recruit, to start**\
 `Lagway, the No. 2 QB in the 2024 recruiting class, will start vs. Samford for Graham Mertz, who hasn't practiced this week.`\
 https://nytimes.com/athletic/5745853/2024/09/04/florida-gators-dj-lagway-start-quarterback-graham-mertz/
-
-**FSU starts 0-2 despite NIL team budget of nearly $12 million**\
-`The Noles made a big investment in their defensive line this year with almost $2 million going to their starting front.`\
-https://nytimes.com/athletic/5745716/2024/09/04/florida-state-nil-team-budget-2024/
 
