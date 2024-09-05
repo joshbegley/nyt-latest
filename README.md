@@ -1,3 +1,7 @@
+**German Police Shoot Gunman Dead Near Israeli Consulate in Munich**\
+`The shootout with an 18-year-old Austrian came on the anniversary of the attack on the Munich Olympics that left 11 Israelis dead, was being investigated as a possible terrorist attack.`\
+https://nytimes.com/2024/09/05/world/europe/german-police-shoot-gunman-dead-near-israeli-consulate-in-munich.html
+
 **John Sterling to call Yankees playoff games**\
 `Sterling, who retired from the radio booth in April, will call home and road games for the Yankees in October.`\
 https://nytimes.com/athletic/5747500/2024/09/05/yankees-john-sterling-playoffs-return-wfan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5739478/2024/09/05/manchester-united-podcast-talk-o
 **10 Dynamic Wines From Spain to Drink Now**\
 `Great bottles are being made all over the world, but right now no country’s are as exciting or compelling as Spain’s.`\
 https://nytimes.com/2024/09/05/dining/drinks/spain-wines.html
-
-**Jack Smith shows flashes of emotion as Trump’s election case returns to court.**\
-`By Eileen Sullivan`\
-https://nytimes.com/live/2024/09/05/us/trump-election-interference-hearing/jack-smith-shows-flashes-of-emotion-as-trumps-election-case-returns-to-court
 
