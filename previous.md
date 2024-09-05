@@ -1,3 +1,23 @@
+**Report Details Interview of Georgia Suspect in Prior School Shooting Threat**\
+`The sheriff’s office report reveals more about how investigators were able to trace the online post to the teenager’s account, and why they could not definitively link it to him.`\
+https://nytimes.com/2024/09/05/us/georgia-school-shooting-suspect-threat.html
+
+**Hunter Biden Enters Surprise Plea in Tax Case**\
+`Mr. Biden took the unusual step of entering a so-called Alford plea, acknowledging there was enough evidence to convict him even as he expressed innocence toward the same charges.`\
+https://nytimes.com/2024/09/05/us/politics/hunter-biden-tax-trial.html
+
+**‘The Wizard of the Kremlin’ Review: Putting Putin’s Rise Onstage**\
+`The best-selling, much discussed French novel is now a play. It gives a similarly humanizing view of the Russian leader and his inner circle.`\
+https://nytimes.com/2024/09/05/theater/le-mage-du-kremlin-la-scala-paris.html
+
+**Reyna out of USMNT camp through injury, Cowell called up**\
+`Gio Reyna has withdrawn from the USMNT&#8217;s roster for September&#8217;s friendlies against Canada and New Zealand due to a left groin strain.`\
+https://nytimes.com/athletic/5747687/2024/09/05/gio-reyna-usmnt-cade-cowell/
+
+**Trump Plans to Call for an Efficiency Commission, an Idea Pushed by Elon Musk**\
+`Advisers to Donald Trump said the goal of the commission would be to “analyze the functionality” of the federal government and look for ways to find savings for taxpayers.`\
+https://nytimes.com/2024/09/05/us/politics/trump-elon-musk-efficiency-commission.html
+
 **Picasso Prints and Brazilian Brilliance at the Independent**\
 `The fair’s third 20th-century-focused edition charts a careful line between safety and excitement.`\
 https://nytimes.com/2024/09/05/arts/design/picasso-prints-and-brazilian-brilliance-at-the-independent.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/09/05/world/europe/russia-ukraine-putin-kursk.html
 **The 1980s Art Carnival Luna Luna Will Come to New York**\
 `Avant-garde fairground attractions, including a Basquiat Ferris wheel and a Keith Haring carousel, will fill up the Shed in November.`\
 https://nytimes.com/2024/09/05/arts/design/luna-luna-the-shed-drake.html
-
-**The Bounce: Is Steph Curry the last one-team star?**\
-`Jason Jones and Shams Charania catch you up on leaguewide news.`\
-https://nytimes.com/athletic/5747235/2024/09/05/paul-george-clippers-steph-curry-warriors-nba-the-bounce/
-
-**Manchester United appoint Sam Erith as temporary performance director**\
-`Manchester United have appointed Sam Erith as performance director on an interim basis until the end of the season.`\
-https://nytimes.com/athletic/5747683/2024/09/05/sam-erith-manchester-united-performance-director/
-
-**Canucks 23-man roster projection: Who is a lock? Who has something to prove?**\
-`Who is a dark horse worth keeping an eye on? Which players will have something to prove when training camp begins in two weeks?`\
-https://nytimes.com/athletic/5746566/2024/09/05/canucks-roster-projection-2024-25/
-
-**Boulder Mass Shooting Trial Focuses on Accused Gunman’s Mental State**\
-`Lawyers for the accused gunman are using the state’s insanity defense, arguing that he was mentally ill at the time of the 2021 shooting that left 10 people dead at a supermarket.`\
-https://nytimes.com/2024/09/05/us/boulder-mass-shooting-trial.html
-
-**Walker on England omission: 'It's the right call'**\
-`Kyle Walker says England interim manager Lee Carsley was correct to not name him in the squad for September&#8217;s Nations League fixtures.`\
-https://nytimes.com/athletic/5747648/2024/09/05/kyle-walker-england-squad/
 
