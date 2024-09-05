@@ -1,3 +1,15 @@
+**Why these 4 NFL teams are primed for turnaround seasons**\
+`Our two underdogs analysts make their picks of four teams that should overperform this season. Who dat.`\
+https://nytimes.com/athletic/5747376/2024/09/05/nfl-underdogs-4-teams-that-could-outperform/
+
+**USA Hockey announces 2024 Hall of Fame class**\
+`The enshrinement will be held on December 4, 2024, in Pittsburgh.`\
+https://nytimes.com/athletic/5747666/2024/09/05/usa-hockey-2024-hall-of-fame/
+
+**Charges against ex-Panthers exec Adrian Wilson dismissed**\
+`Wilson received deferred prosecution on a disorderly conduct charge and said he's entered a diversion program.`\
+https://nytimes.com/athletic/5747768/2024/09/05/adrian-wilson-charges-dismissed-cardinals-panthers/
+
 **At 30, The Armory Show Asks, Can Art Fairs Still be Relevant?**\
 `Among its 235 exhibitors from 30 countries, our critic finds these standout booths — and hails three local curators who have brought some sections exciting new life.`\
 https://nytimes.com/2024/09/05/arts/design/armory-show-art-fair-review.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/05/us/georgia-school-shooting-suspect-threat.html
 **Hunter Biden Enters Surprise Plea in Tax Case**\
 `Mr. Biden took the unusual step of entering a so-called Alford plea, acknowledging there was enough evidence to convict him even as he expressed innocence toward the same charges.`\
 https://nytimes.com/2024/09/05/us/politics/hunter-biden-tax-trial.html
-
-**‘The Wizard of the Kremlin’ Review: Putting Putin’s Rise Onstage**\
-`The best-selling, much discussed French novel is now a play. It gives a similarly humanizing view of the Russian leader and his inner circle.`\
-https://nytimes.com/2024/09/05/theater/le-mage-du-kremlin-la-scala-paris.html
-
-**Reyna out of USMNT camp through injury, Cowell called up**\
-`Gio Reyna has withdrawn from the USMNT&#8217;s roster for September&#8217;s friendlies against Canada and New Zealand due to a left groin strain.`\
-https://nytimes.com/athletic/5747687/2024/09/05/gio-reyna-usmnt-cade-cowell/
-
-**Trump Calls for an Efficiency Commission, an Idea Pushed by Elon Musk**\
-`Advisers to Donald Trump said the goal of the commission would be to “analyze the functionality” of the federal government and look for ways to find savings for taxpayers.`\
-https://nytimes.com/2024/09/05/us/politics/trump-elon-musk-efficiency-commission.html
 
