@@ -1,3 +1,7 @@
+**It’s the Hottest Neighborhood in All of Los Angeles. (Bring Water.)**\
+`Woodland Hills has become the poster child for sweltering temperatures in the Los Angeles area, a mere 15 miles from the Pacific Ocean.`\
+https://nytimes.com/2024/09/05/us/woodland-hills-los-angeles-heat-wave.html
+
 **'ChiefsAholic' sentenced to 17 1/2 years for bank robberies**\
 `Chiefs superfan Xaviar Babudar was sentenced for committing a string of 11 armed bank robberies or attempted robberies across the U.S.`\
 https://nytimes.com/athletic/5748177/2024/09/05/chiefsaholic-sentence-robberies/

@@ -1,3 +1,7 @@
+**It’s the Hottest Neighborhood in All of Los Angeles. (Bring Water.)**\
+`Woodland Hills has become the poster child for sweltering temperatures in the Los Angeles area, a mere 15 miles from the Pacific Ocean.`\
+https://nytimes.com/2024/09/05/us/woodland-hills-los-angeles-heat-wave.html
+
 **'ChiefsAholic' sentenced to 17 1/2 years for bank robberies**\
 `Chiefs superfan Xaviar Babudar was sentenced for committing a string of 11 armed bank robberies or attempted robberies across the U.S.`\
 https://nytimes.com/athletic/5748177/2024/09/05/chiefsaholic-sentence-robberies/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/05/business/opec-oil-increase-delay.html
 **The State Wanted Hotels and Golf Courses in Florida Parks. Floridians Revolted.**\
 `Faced with intense bipartisan opposition, Gov. Ron DeSantis shelved the plan. It was a rare policy setback for a leader used to getting his way.`\
 https://nytimes.com/2024/09/05/us/florida-parks-desantis.html
-
-**47-Year-Old Man Is Fatally Shot in Brooklyn Subway Station**\
-`The man, who a neighbor said had recently started a new job, was shot in the head inside the Rockaway Avenue train station late Wednesday night.`\
-https://nytimes.com/2024/09/05/nyregion/man-shot-brooklyn-subway-station.html
 
