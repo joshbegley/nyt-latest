@@ -1,3 +1,11 @@
+**Cardinals edge Brewers, keep postseason dreams alive with another extra-inning win**\
+`After many mixed messages about multiple players, the Cardinals have decided on set roles for their roster.`\
+https://nytimes.com/athletic/5746049/2024/09/05/cardinals-mlb-wild-card-chase/
+
+**Thursday Briefing**\
+`Here’s what you need to know.`\
+https://nytimes.com/2024/09/05/briefing/election-interference-ukraine-grenfell.html
+
 **Dyche will be backed – and will back himself – to turn Everton's start around**\
 `Sean Dyche must really hate August – after Everton's woeful start to the Premier League season he must correct what has gone wrong. Again.`\
 https://nytimes.com/athletic/5743824/2024/09/05/sean-dyche-everton-manager-start/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5731066/2024/09/05/andy-morrell-wrexham-legend-pws/
 **The Women's Champions League is vitally important to Arsenal - qualifying is a must**\
 `The financial rewards of reaching the group stage are sizeable and it would be a huge blow to Jonas Eidevall's side if they were to miss out`\
 https://nytimes.com/athletic/5743803/2024/09/05/arsenal-women-champions-league-3/
-
-**Chelsea fan survey results: 80% now less confident in ownership after transfer window**\
-`More than 1,000 people responded to our questions about Chelsea and their summer dealings - here is what they had to say`\
-https://nytimes.com/athletic/5744131/2024/09/05/chelsea-fan-survey-results/
-
-**Guehi, transfer strategy and revised ambitions - analysing Mitchell's first Newcastle interview**\
-`Sporting director Paul Mitchell discusses Newcastle's summer transfer window, the state of the club he walked into and future plans`\
-https://nytimes.com/athletic/5744787/2024/09/05/paul-mitchell-interview-newcastle/
 
