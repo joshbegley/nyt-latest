@@ -1,3 +1,7 @@
+**Shota Imanaga pitches 7 innings in Cubs' combined no-hitter against Pirates**\
+`The bullpen smoothly handled the final six outs to continue Imanaga's magical first season in Chicago.`\
+https://nytimes.com/athletic/5746283/2024/09/04/cubs-shota-imanaga-combined-no-hitter/
+
 **'Let's keep their stories alive': Blue Jackets' vigil for Gaudreau brothers allows fans, players to mourn together**\
 `The vigil for the Gaudreau brothers outside the Columbus arena helped a grieving community to gather, hug and cry together.`\
 https://nytimes.com/athletic/5746105/2024/09/04/gaudreau-candlelight-vigil-blue-jackets-flames/

@@ -1,4 +1,4 @@
-**Shota Imanaga pitches 7 innings in Cubs' combined no-hitter against Pirates**\
+**Imanaga pitches 7 innings in Cubs' combined no-hitter vs. Pirates**\
 `The bullpen smoothly handled the final six outs to continue Imanaga's magical first season in Chicago.`\
 https://nytimes.com/athletic/5746283/2024/09/04/cubs-shota-imanaga-combined-no-hitter/
 
