@@ -1,3 +1,15 @@
+**Breaking down Cristiano Ronaldo's 900 career goals**\
+`The Portuguese icon has reached another major milestone — here's a complete account of his goalscoring career`\
+https://nytimes.com/athletic/5724492/2024/09/05/cristiano-ronaldo-900-career-goals/
+
+**Twins takeaways: Byron Buxton on hold, Max Kepler shut down, DaShawn Keirsey Jr. called up**\
+`Plus, how the Twins' playoff odds actually went up during a brutal three-week stretch full of pitching implosions.`\
+https://nytimes.com/athletic/5746660/2024/09/05/minnesota-twins-buxton-kepler-correa-keirsey/
+
+**Rams place starting CB Darious Williams on IR**\
+`The Rams are banged up at cornerback and will be facing one of the league's best passing teams Sunday night on the road in Detroit.`\
+https://nytimes.com/athletic/5748316/2024/09/05/rams-darious-williams-injured-reserve/
+
 **Finally - San Marino end their 20-year wait for a win**\
 `San Marino have finally ended a run of 20 years without a victory by beating Liechtenstein 1-0 in the UEFA Nations League.`\
 https://nytimes.com/athletic/5357123/2024/09/05/san-marino-win-liechtenstein/
