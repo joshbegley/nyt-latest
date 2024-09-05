@@ -1,3 +1,7 @@
+**Tip on School Shooting Threat Last Year Led to Suspect’s Door**\
+`The teenager charged with killing four people at his Georgia high school on Wednesday denied making an online threat, and the authorities could not prove he did. He, and now his father, face murder charges.`\
+https://nytimes.com/2024/09/05/us/georgia-shooting-colt-gray-threat.html
+
 **49ers’ Ricky Pearsall shows up at practice; Christian McCaffrey is limited**\
 `The 49ers were missing two players during Thursday's session while one big piece of their offense — McCaffrey — was limited.`\
 https://nytimes.com/athletic/5748924/2024/09/05/49ers-ricky-pearsall-practice-christian-mccaffrey/
