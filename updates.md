@@ -1,4 +1,8 @@
 **How Swing State Politics Are Sinking a Global Steel Deal**\
+`As the Biden administration nears a decision to block the proposed acquisition of U.S. Steel, the debate over national and economic security is being dwarfed by presidential politics.`\
+https://nytimes.com/2024/09/05/us/politics/us-steel-nippon-pennsylvania.html
+
+**How Swing State Politics Are Sinking a Global Steel Deal**\
 `Ambitions of “friend-shoring” end at Pennsylvania state lines as Japan is deemed a security threat.`\
 https://nytimes.com/2024/09/05/us/politics/us-steel-nippon-pennsylvania.html
 
