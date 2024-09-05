@@ -1,3 +1,11 @@
+**Steelers' Wilson misses practice with calf tightness**\
+`Coach Mike Tomlin said QB Russell Wilson was held out of practice as a precaution.`\
+https://nytimes.com/athletic/5748103/2024/09/05/russell-wilson-injury-steelers-falcons/
+
+**A Barrier-Breaking Conductor Will Lead the Seattle Symphony**\
+`Xian Zhang will be the first woman and person of color to lead the Seattle Symphony, and one of only two women leading a top-tier American orchestra.`\
+https://nytimes.com/2024/09/05/arts/music/xian-zhang-seattle-symphony.html
+
 **England fans warned to 'respect local culture' before Republic of Ireland game**\
 `England fans have been warned to &#8220;respect local culture&#8221; as they prepare for their first game in the Republic of Ireland for nine years.`\
 https://nytimes.com/athletic/5748215/2024/09/05/england-ireland-warning-trouble/
@@ -30,4 +38,3 @@ https://nytimes.com/paidpost/mass-general-brigham-vpp2-marcela-and-matt/finding-
 `Grey Goose vodka, fresh lemonade and premium raspberry liqueur in a collector's cup has become a staple of the U.S. Open`\
 https://nytimes.com/athletic/5732495/2024/09/05/us-open-honey-deuce-cocktail/
 
-**How a Sleek Little Hair Pin Transformed My Sad Mom Bun **\
