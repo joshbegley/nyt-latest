@@ -1,3 +1,7 @@
+**Taylor Swift to attend Chiefs vs. Ravens**\
+`Swift will attend the season opener at Arrowhead Stadium to cheer on her boyfriend and Chiefs TE Travis Kelce, a source said.`\
+https://nytimes.com/athletic/5747263/2024/09/05/taylor-swift-travis-kelce-chiefs-ravens/
+
 **Scoop City: Time to see if Ravens closed the gap**\
 `A preview of the Ravens vs. Chiefs game, a look at the offseason in Kansas City and predictions for the 2024 season.`\
 https://nytimes.com/athletic/5747405/2024/09/05/scoop-city-time-to-see-if-ravens-closed-the-gap/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/05/arts/television/the-rings-of-power-season-2-episo
 **The judge overseeing the case has weathered criticism from Trump.**\
 `By Eileen Sullivan`\
 https://nytimes.com/live/2024/09/05/us/trump-election-interference-hearing/the-judge-overseeing-the-case-has-weathered-criticism-from-trump
-
-**Here’s the latest on the hearing.**\
-`By Alan Feuer`\
-https://nytimes.com/live/2024/09/05/us/trump-election-interference-hearing/heres-the-latest-on-the-hearing
 

@@ -1,3 +1,7 @@
+**Taylor Swift to attend Chiefs vs. Ravens**\
+`Swift will attend the season opener at Arrowhead Stadium to cheer on her boyfriend and Chiefs TE Travis Kelce, a source said.`\
+https://nytimes.com/athletic/5747263/2024/09/05/taylor-swift-travis-kelce-chiefs-ravens/
+
 **Scoop City: Time to see if Ravens closed the gap**\
 `A preview of the Ravens vs. Chiefs game, a look at the offseason in Kansas City and predictions for the 2024 season.`\
 https://nytimes.com/athletic/5747405/2024/09/05/scoop-city-time-to-see-if-ravens-closed-the-gap/
