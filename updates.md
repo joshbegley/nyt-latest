@@ -1,3 +1,11 @@
+**Jimmy Kimmel Laughs Off a Verbal Stumble**\
+`Kimmel mocked Donald Trump for flubbing words before doing so himself on Wednesday, saying, “That’s why I’m not going to be president.”`\
+https://nytimes.com/2024/09/05/arts/television/jimmy-kimmel-flubbed-line.html
+
+**Dodgers' postseason pitching auditions have had mixed results for Bobby Miller, Walker Buehler**\
+`Buehler or Miller could wind up pitching for the Dodgers in October, for better or worse.`\
+https://nytimes.com/athletic/5746518/2024/09/05/dodgers-pitching-auditions-mixed-results-bobby-miller-walker-buehler/
+
 **The numbers that show the depth in men's 100m sprinting - and why that nearly includes Mondo Duplantis**\
 `Even if Usain Bolt’s record shows no signs of being broken in the immediate future, the current array of elite male sprinters is astounding`\
 https://nytimes.com/athletic/5745388/2024/09/05/100m-strength-in-depth-mondo-duplantis/
