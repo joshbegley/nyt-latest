@@ -1,40 +1,40 @@
-**Who is Davis Warren? Michigan's new QB has a story bigger than Texas**\
-`Warren, a former walk-on and cancer survivor who barely played high school football, will start at QB for No. 10 Michigan vs. No. 3 Texas.`\
-https://nytimes.com/athletic/5745458/2024/09/05/davis-warren-michigan-quarterback-cancer-texas/
+**After years of dysfunction around him, can Vikings QB Sam Darnold finally find NFL success?**\
+`Seen as the poster child for mistreatment by his coaches and organizations as a young QB, Darnold may be in position to win in Minnesota.`\
+https://nytimes.com/athletic/5734446/2024/09/05/sam-darnold-vikings-jets-panthers/
 
-**Tax Policy Becomes a Fault Line for Harris**\
-`The vice president is relying on tax proposals as a way to show she is different from both President Biden and her Republican rival, Donald Trump.`\
-https://nytimes.com/2024/09/05/us/politics/harris-tax-policy.html
+**NFL execs rank NFC teams: 49ers still reign, but could the Packers overtake the Lions?**\
+`Some like the Packers' chances better than the Lions'. Meanwhile, the Bears are on the rise, and opinions are mixed at the bottom.`\
+https://nytimes.com/athletic/5743377/2024/09/05/nfc-rankings-49ers-packers-lions-nfl-executives/
 
-**The Viral Blackout Challenge Is Killing Young People. Courts Are Finally Taking It Seriously.**\
-`What should we do when TikTok’s algorithm turns deadly?`\
-https://nytimes.com/2024/09/05/opinion/tiktok-blackout-challenge-anderson.html
+**State of the Penguins: A thorough rundown for the 2024-25 season**\
+`Let's take a full evaluation of the Penguins organization heading into the 2024-25 season. `\
+https://nytimes.com/athletic/5705338/2024/09/05/penguins-depth-chart-nhl-season/
 
-**Titus Kaphar’s Homecoming**\
-`Plus: an Art Deco hotel reopening in Manhattan, a celebrity facialist’s skin care routine and more recommendations from T Magazine.`\
-https://nytimes.com/2024/09/05/t-magazine/titus-kaphars-homecoming.html
+**Jayden Daniels faces enormous expectations head-on: 'Pressure is a privilege'**\
+`As a rookie QB, Daniels understands respect is earned, not given: "If you say you want to be one of the best, the grind never stops." `\
+https://nytimes.com/athletic/5745762/2024/09/05/jayden-daniels-washington-commanders-season-opener/
 
-**How Much Space Could They Find in Greater Philadelphia for Less Than $500,000?**\
-`Looking for a change of scenery, a family left the Nevada desert for the cooler climes of the East Coast. These were the houses they considered.`\
-https://nytimes.com/interactive/2024/09/05/realestate/philadelphia-home-buyers.html
+**Nguyen: Dak Prescott wins, Cowboys lose if quarterback reaches free agency**\
+`It'll be unprecedented if a QB of Prescott's stature hits the free-agent market and Jerry Jones takes a big risk if he does.`\
+https://nytimes.com/athletic/5739010/2024/09/05/dak-prescott-cowboys-free-agency/
 
-**Mosquitoes Suck, as Do the Diseases They Carry**\
-`Mosquito-borne diseases are widening their range partly because of climate change.`\
-https://nytimes.com/live/2024/09/03/opinion/thepoint/mosquito-disease-west-nile
+**The story of the Chiefs' roller-coaster offseason as the ride for a Super Bowl three-peat begins**\
+`From Rashee Rice's legal issues to Travis Kelce's tour with Taylor Swift to Harrison Butker's controversial speech and more.`\
+https://nytimes.com/athletic/5745186/2024/09/05/kansas-city-chiefs-rashee-rice-crash-travis-kelce-taylor-swift-harrison-butker-speech/
 
-**The Hot Labor Market Has Melted Away. Just Ask New College Grads.**\
-`Unemployment is still low, but job seekers are competing for fewer openings, and hiring is sluggish. That’s a big turnaround from recent years.`\
-https://nytimes.com/2024/09/05/business/economy/jobs-college-graduates-unemployment.html
+**First-and-10: Ravens-Chiefs key matchups and subplots, plus a prediction**\
+`The season opener vs. Kansas City gives Baltimore its first look at the impact Derrick Henry could have on its offense. `\
+https://nytimes.com/athletic/5742860/2024/09/05/ravens-chiefs-nfl-season-opener/
 
-**Will Trump’s Abortion Flip-Flop Cost Him?**\
-`Evangelicals are not voting for Harris, but they might stay home.`\
-https://nytimes.com/2024/09/05/podcasts/trump-evangelicals-abortion.html
+**Top 5 Yankees stories of the week: Catch up on the most-read NY headlines**\
+`Catch up on the past week by checking out the most popular Yankees and MLB stories.`\
+https://nytimes.com/athletic/5745443/2024/09/05/new-york-yankees-standings-headlines-stats-judge-soto/
 
-**Leaked Reports and Political Heat Are Testing Trust in Economic Data**\
-`The Bureau of Labor Statistics, which tracks prices and employment, faces scrutiny after several missteps. Some questions have gone unanswered.`\
-https://nytimes.com/2024/09/05/business/economy/bls-economic-data-jobs-report-cpi.html
+**Bolivia, altitude and 1,840 steps up from La Paz to their new home 4,150m above sea level**\
+`When Venezuela play in Bolivia today, they will be doing so way above an altitude that was previously deemed unsafe by FIFA`\
+https://nytimes.com/athletic/5746338/2024/09/05/bolivia-altitude-el-alto-venezuela/
 
-**Harris or Trump? The Prophet of Presidential Elections Is Ready to Call the Race.**\
-`Allan Lichtman’s method for predicting election winners has an impressive track record.`\
-https://nytimes.com/2024/09/05/opinion/allan-lichtman-trump-harris-prediction.html
+**What are new NFL kickoff rules and how do they work?**\
+`Gone is the traditional kickoff, but fans might still recognize parts of the new one, as it shares many similarities to the XFL's.`\
+https://nytimes.com/athletic/5739077/2024/09/05/nfl-kickoff-rules-explained/
 
