@@ -1,3 +1,11 @@
+**Here’s why Trump’s lawyers are in court for the election interference case.**\
+`The judge has to begin sorting out which parts of the indictment of the former president must be tossed out because of a Supreme Court ruling on presidential immunity. She’s seeking input on how to do it.`\
+https://nytimes.com/2024/09/05/us/politics/trump-election-case.html
+
+**Nicaragua Releases 135 Political Prisoners on Humanitarian Grounds**\
+`Among those freed under the deal brokered by the U.S. government were 13 affiliated with Mountain Gateway, an American evangelical church.`\
+https://nytimes.com/2024/09/05/us/nicaragua-political-prisoners-release.html
+
 **Start-Up Investors Push Back Against Venture Capital’s Bigger-Is-Better Mantra**\
 `A small but vocal group is forming new funds and taking new approaches to counter the swell of money into venture capital in recent years.`\
 https://nytimes.com/2024/09/05/technology/venture-capital-startup-investors-asylum-ventures.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/05/us/georgia-school-shooting/heres-the-latest-
 **Sarah Adam: U.S. trailblazer, tough as teak - and a 'murderball' medallist**\
 `Sarah Adam was the only woman in the U.S. wheelchair rugby team but made her presence felt - she hopes she's inspired the next generation`\
 https://nytimes.com/athletic/5743943/2024/09/05/sarah-adam-us-paralympics-murderball/
-
-**That’s a Great Reality TV Set. Let’s Use It Again.**\
-`“The Circle” is one of many current shows using the same state-of-the-art production hub to shoot a variety of international versions.`\
-https://nytimes.com/2024/09/05/arts/television/reality-tv-production-hubs-the-circle.html
-
-**‘Rebel Ridge’ Review: Their Corruption, His Destruction**\
-`This crime drama from Jeremy Saulnier stars Aaron Pierre as a man whose run-in with small-town police officers uncovers uncomfortable secrets.`\
-https://nytimes.com/2024/09/05/movies/rebel-ridge-review.html
 
