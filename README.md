@@ -1,3 +1,11 @@
+**'ChiefsAholic' sentenced to 17 1/2 years for bank robberies**\
+`Chiefs superfan Xaviar Babudar was sentenced for committing a string of 11 armed bank robberies or attempted robberies across the U.S.`\
+https://nytimes.com/athletic/5748177/2024/09/05/chiefsaholic-sentence-robberies/
+
+**Senators sign former Maple Leafs, Islanders forward Nikolay Kulemin to PTO**\
+`After six years in Russia, the 38-year-old winger is giving the NHL another shot.`\
+https://nytimes.com/athletic/5748332/2024/09/05/senators-nikolay-kulemin-pto-maple-leafs-islanders/
+
 **The Electric Vehicle Future Is Coming. Just a Little More Slowly.**\
 `Though large automakers are delaying their plans to introduce new all-electric models, the E.V. industry is still the future, experts say.`\
 https://nytimes.com/2024/09/05/climate/electric-vehicle-sales-projections.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/05/us/florida-parks-desantis.html
 **47-Year-Old Man Is Fatally Shot in Brooklyn Subway Station**\
 `The man, who a neighbor said had recently started a new job, was shot in the head inside the Rockaway Avenue train station late Wednesday night.`\
 https://nytimes.com/2024/09/05/nyregion/man-shot-brooklyn-subway-station.html
-
-**Fact-checking JD Vance’s Attacks on Tim Walz Over a Transgender Sanctuary Law in Minnesota**\
-`It was the latest effort by the Trump campaign to use Mr. Walz’s record on transgender rights to attack him as a far-left liberal.`\
-https://nytimes.com/2024/09/05/us/politics/jd-vance-tim-walz-transgender-care.html
-
-**U.S. Indicts Members of Russian Military Intelligence Over Cyberattack on Ukraine**\
-`The indictment unsealed on Thursday comes as the United States expands its hunt for Russia’s most elite cyberwarriors.`\
-https://nytimes.com/2024/09/05/us/politics/indictment-russia-cyberattack-ukraine.html
 
