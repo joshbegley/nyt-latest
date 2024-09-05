@@ -1,3 +1,11 @@
+**Anti-Polio Campaign in Gaza Enters New Phase, Hours After Deadly Strike**\
+`As the mass vaccination campaign shifted Thursday from central to southern Gaza, an Israeli strike reportedly killed four in an area where inoculations had just concluded.`\
+https://nytimes.com/2024/09/05/world/middleeast/israel-gaza-polio-airstrike.html
+
+**The Big Problems With Trump’s Latest Economic Plan**\
+`If he wants a spending fund that he controls, it will collide with the Constitution.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/the-big-problems-with-trumps-latest-economic-plan
+
 **Friday Briefing: A Judge Weighs a Monumental Trump Decision**\
 `Plus, the clothes that changed men’s fashion.`\
 https://nytimes.com/2024/09/05/briefing/trump-judge-france-indonesia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/05/us/georgia-shooting-suspect-father-gun-safety.htm
 **Breaking down Cristiano Ronaldo's 900 career goals**\
 `The Portuguese icon has reached another major milestone — here's a complete account of his goalscoring career`\
 https://nytimes.com/athletic/5724492/2024/09/05/cristiano-ronaldo-900-career-goals/
-
-**Twins takeaways: Byron Buxton on hold, Max Kepler shut down, DaShawn Keirsey Jr. called up**\
-`Plus, how the Twins' playoff odds actually went up during a brutal three-week stretch full of pitching implosions.`\
-https://nytimes.com/athletic/5746660/2024/09/05/minnesota-twins-buxton-kepler-correa-keirsey/
-
-**Rams place starting CB Darious Williams on IR**\
-`The Rams are banged up at cornerback and will be facing one of the league's best passing teams Sunday night on the road in Detroit.`\
-https://nytimes.com/athletic/5748316/2024/09/05/rams-darious-williams-injured-reserve/
 
