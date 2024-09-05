@@ -1,3 +1,15 @@
+**Ravens at Chiefs picks, odds, how to watch: Chiefs favored by a field goal**\
+`All the details about the NFL Kickoff Game between the Baltimore Ravens and Kansas City Chiefs.`\
+https://nytimes.com/athletic/5745311/2024/09/05/baltimore-ravens-kansas-city-chiefs-picks-odds-how-to-watch/
+
+**Thursday's MLB odds, projections: Best bets, pitching matchups for every game**\
+`See pitching matchups, playoff projections, win projections and more for Thursday's MLB games.`\
+https://nytimes.com/athletic/5743055/2024/09/05/mlb-odds-best-bets-projections-september-5/
+
+**Jannik Sinner beats Daniil Medvedev in topsy-turvy U.S. Open quarterfinal**\
+`NEW YORK — Jannik Sinner took out his biggest challenger for the U.`\
+https://nytimes.com/athletic/5746433/2024/09/04/jannik-sinner-us-open-medvedev-result/
+
 **Another disastrous inning does in Louie Varland, Twins in loss to Rays**\
 `The big, bad blowup inning is presently trending for the Twins, which isn't a great development for a team with lofty October aspirations.`\
 https://nytimes.com/athletic/5746374/2024/09/04/louie-varland-twins-loss-tampa-bay/
