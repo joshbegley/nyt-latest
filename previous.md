@@ -1,3 +1,11 @@
+**Jessica Pegula knocks Iga Swiatek out of U.S. Open for first Grand Slam semifinal**\
+`The world No. 6 had lost six consecutive Grand Slam quarterfinals before defeating the world No. 1 in New York.`\
+https://nytimes.com/athletic/5746112/2024/09/04/pegula-swiatek-us-open-result/
+
+**Yankees' Clay Holmes loses defined closer role as team pivots to matchups**\
+`For the time being, the Yankees' closer role will feature a revolving door of relievers based on matchups. `\
+https://nytimes.com/athletic/5745799/2024/09/04/yankees-closer-situation-developments/
+
 **As Phillies chase division title, they try to strike balance between wins and health**\
 `Wins are the priority, but staying healthy remains paramount, too. Harper injured his other elbow, but he and his manager say it's fine.`\
 https://nytimes.com/athletic/5745825/2024/09/04/phillies-division-title-wins-health/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5745716/2024/09/04/florida-state-nil-team-budget-20
 **Why Trump’s Unity Picks Are Not Very Unifying**\
 `Trump is betting that the political fringe will help him win.`\
 https://nytimes.com/2024/09/04/us/politics/trump-rfk-jr-gabbard-musk.html
-
-**Mother and Daughter Endure Lockdowns in Separate Schools After Georgia Shooting**\
-`Anetra Pattman was teaching class when her daughter texted: “Mom, I heard gunshots. I’m scared. Please come get me.”`\
-https://nytimes.com/2024/09/04/us/georgia-apalachee-high-shooting-witness.html
-
-**Texas Attorney General Sues to Stop Voter Registration Push in San Antonio**\
-`The suit is the newest front in an escalating conflict over elections between the Republicans who dominate state government and the Democrats who control the state’s major cities.`\
-https://nytimes.com/2024/09/04/us/texas-voter-registration-paxton-bexar.html
 
