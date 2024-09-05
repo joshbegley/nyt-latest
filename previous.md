@@ -1,3 +1,11 @@
+**Meaningful September baseball? That's not enough for the streaking, unsatisfied Mets**\
+`The Mets finished up a sweep of the Red Sox to extend their winning streak to seven: "This is where we should be."`\
+https://nytimes.com/athletic/5746405/2024/09/04/mets-mlb-wild-card-race/
+
+**Another disastrous inning does in Louie Varland, Twins in loss to Rays**\
+`The big, bad blowup inning is presently trending for the Twins, which isn’t a great development for a team with lofty October aspirations.`\
+https://nytimes.com/athletic/5746374/2024/09/04/louie-varland-twins-loss-tampa-bay/
+
 **Memphis aware of letter alleging potential NCAA violations**\
 `It is unknown whether the letter is connected with Wednesday’s staff shakeup at Memphis.`\
 https://nytimes.com/athletic/5746323/2024/09/04/memphis-basketball-letter-violations/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/04/crosswords/daily-puzzle-2024-09-05.html
 **Whit Merrifield thinks MLB will have hit-batter rule in place by 2025**\
 `Regarding potential penalties, Merrifield said, “You look at football players, they’ve had to totally rework how they tackle."`\
 https://nytimes.com/athletic/5746145/2024/09/04/braves-whit-merrifield-mlb-hit-batter-rule/
-
-**The suspect was interviewed for online threats of a school attack last year.**\
-`The F.B.I. said the teenager denied making any threats. His father told investigators that he had hunting guns in the house, but said that his son did not have unsupervised access to the weapons.`\
-https://nytimes.com/live/2024/09/04/us/georgia-shooting-apalachee-high-school/the-suspect-was-interviewed-for-online-threats-of-a-school-attack-last-year
-
-**In Nebraska, Tim Walz’s Family Is Split Over the Election**\
-`A photo widely circulating on social media shows “Walz’s for Trump” from a side of the family Gov. Tim Walz’s sister said the Walzes “don’t even know.”`\
-https://nytimes.com/2024/09/04/us/politics/tim-walz-family-shirts-trump.html
 
