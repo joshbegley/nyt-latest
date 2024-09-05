@@ -1,3 +1,15 @@
+**Breaking down Cristiano Ronaldo's 900 career goals**\
+`The Portuguese icon has reached another major milestone — here's a complete account of his goalscoring career`\
+https://nytimes.com/athletic/5724492/2024/09/05/cristiano-ronaldo-900-career-goals/
+
+**Twins takeaways: Byron Buxton on hold, Max Kepler shut down, DaShawn Keirsey Jr. called up**\
+`Plus, how the Twins' playoff odds actually went up during a brutal three-week stretch full of pitching implosions.`\
+https://nytimes.com/athletic/5746660/2024/09/05/minnesota-twins-buxton-kepler-correa-keirsey/
+
+**Rams place starting CB Darious Williams on IR**\
+`The Rams are banged up at cornerback and will be facing one of the league's best passing teams Sunday night on the road in Detroit.`\
+https://nytimes.com/athletic/5748316/2024/09/05/rams-darious-williams-injured-reserve/
+
 **Finally - San Marino end their 20-year wait for a win**\
 `San Marino have finally ended a run of 20 years without a victory by beating Liechtenstein 1-0 in the UEFA Nations League.`\
 https://nytimes.com/athletic/5357123/2024/09/05/san-marino-win-liechtenstein/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/05/business/economy/airlines-frequent-flier-programs
 **To Judge Chutkan, Trump Is a Defendant, Not a Presidential Candidate**\
 `Trump’s claim that the case could interfere with the election fell on deaf ears.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/trump-chutkan-court-hearing
-
-**New York Fashion Week Is Here. The Parties Have Some of Its Best Outfits.**\
-`The early 2000s were on display in SoHo, where the band TV on the Radio performed in front of a revival of Max Fish, the Lower East Side dive bar, at an event thrown by Vans.`\
-https://nytimes.com/2024/09/05/style/nyfw-fashion-week-after-party.html
-
-**Breakfast for Dinner With a Glass of Wine**\
-`Montague Diner, NoMad Diner and Bubby’s have all the pancakes, syrup and eggs you need at 8 p.m.`\
-https://nytimes.com/2024/09/05/dining/breakfast-for-dinner-with-a-glass-of-wine.html
-
-**It’s the Hottest Neighborhood in All of Los Angeles. (Bring Water.)**\
-`Woodland Hills has become the poster child for sweltering temperatures in the Los Angeles area, a mere 15 miles from the Pacific Ocean.`\
-https://nytimes.com/2024/09/05/us/woodland-hills-los-angeles-heat-wave.html
 
