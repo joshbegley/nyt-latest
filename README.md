@@ -1,3 +1,7 @@
+**John Sterling to call Yankees playoff games**\
+`Sterling, who retired from the radio booth in April, will call home and road games for the Yankees in October.`\
+https://nytimes.com/athletic/5747500/2024/09/05/yankees-john-sterling-playoffs-return-wfan/
+
 **Teenage E-Cigarette Use Continues to Decline**\
 `The percentage of middle and high school students reporting that they vaped tobacco products dropped to about a third of those students reporting use of e-cigarettes at a vaping peak in 2019, a new survey shows.`\
 https://nytimes.com/2024/09/05/health/e-cigarettes-teenagers-vaping.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/05/dining/drinks/spain-wines.html
 **Jack Smith shows flashes of emotion as Trump’s election case returns to court.**\
 `By Eileen Sullivan`\
 https://nytimes.com/live/2024/09/05/us/trump-election-interference-hearing/jack-smith-shows-flashes-of-emotion-as-trumps-election-case-returns-to-court
-
-**Why these 4 NFL teams are primed for turnaround seasons**\
-`Our two underdogs analysts make their picks of four teams that should overperform this season. Who dat.`\
-https://nytimes.com/athletic/5747376/2024/09/05/nfl-underdogs-4-teams-that-could-outperform/
 
