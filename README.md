@@ -1,3 +1,15 @@
+**The judge overseeing the case has weathered criticism from Trump.**\
+`By Eileen Sullivan`\
+https://nytimes.com/live/2024/09/05/us/trump-election-interference-hearing/the-judge-overseeing-the-case-has-weathered-criticism-from-trump
+
+**Here’s the latest on the hearing.**\
+`By Alan Feuer`\
+https://nytimes.com/live/2024/09/05/us/trump-election-interference-hearing/heres-the-latest-on-the-hearing
+
+**The Padres’ Yu Darvish, amid rusty return and comeback win, is back where he needed to be**\
+`"His arm felt good. His body felt good. Just knocked a little bit of the proverbial rust off," said Padres manager Mike Shildt.`\
+https://nytimes.com/athletic/5746369/2024/09/05/yu-darvish-padres-return-il/
+
 **Live Updates: Questions Mount After Georgia School Shooting**\
 `Four people were killed in the shooting at a high school. The 14-year-old suspect had been on law enforcement agencies’ radar for more than a year, after they questioned him about threats posted online.`\
 https://nytimes.com/live/2024/09/05/us/georgia-school-shooting
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/05/us/american-pastors-nicaragua-money-laundering.ht
 **Harris’s Shift on Tax Cheers Her Corporate Backers**\
 `The vice president has proposed raising the levy on capital gains, a break from President Biden’s economic agenda, as she tries to keep big donors and progressives on side.`\
 https://nytimes.com/2024/09/05/business/dealbook/kamala-harris-capital-gains-tax.html
-
-**49ers veteran DTs talk Dominick Puni: 'The most polished rookie I’ve been around'**\
-`Most of Puni's matchups on Monday likely will be against someone very familiar to the 49ers — 2020 first-round pick Javon Kinlaw.`\
-https://nytimes.com/athletic/5745263/2024/09/05/49ers-rookie-dominic-puni-debut-jets/
-
-**Here’s the latest on the presidential race.**\
-`By Simon J. Levien`\
-https://nytimes.com/live/2024/09/05/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Election Live Updates: Both Campaigns Put Laser Focus on Pennsylvania**\
-`Vice President Kamala Harris and her running mate have stops in Pittsburgh and Erie planned for Thursday, a day after former President Donald J. Trump visited Harrisburg. Both parties see the state as a must-win.`\
-https://nytimes.com/live/2024/09/05/us/harris-trump-election
 
