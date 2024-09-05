@@ -1,3 +1,7 @@
+**The Windup: The first time since 1972**\
+`The Windup is The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/5747534/2024/09/05/shota-imanaga-cubs-no-hitter-the-windup/
+
 **Haaland and Salah form shows benefit of 'proper rest' - FIFPro**\
 `Global players’ union FIFPRO has issued its starkest warning yet about the amount of football the game’s stars are playing, saying this season will be the “worst ever” in terms of workload.`\
 https://nytimes.com/athletic/5747506/2024/09/05/fifpro-workload-report/
