@@ -1,3 +1,7 @@
+**In Nebraska, Tim Walz’s Family Is Split Over the Election**\
+`A photo widely circulating on social media shows “Walz’s for Trump” from a side of the family Gov. Tim Walz’s sister said the Walzes “don’t even know.”`\
+https://nytimes.com/2024/09/04/us/politics/tim-walz-family-shirts-trump.html
+
 **Yoshinobu Yamamoto will return to Dodgers rotation on Tuesday against Cubs**\
 `Yamamoto hasn't pitched in the major leagues since June. `\
 https://nytimes.com/athletic/5746193/2024/09/04/dodgers-yoshinobu-yamamoto-injury-return/

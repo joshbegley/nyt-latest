@@ -1,3 +1,7 @@
+**In Nebraska, Tim Walz’s Family Is Split Over the Election**\
+`A photo widely circulating on social media shows “Walz’s for Trump” from a side of the family Gov. Tim Walz’s sister said the Walzes “don’t even know.”`\
+https://nytimes.com/2024/09/04/us/politics/tim-walz-family-shirts-trump.html
+
 **Yoshinobu Yamamoto will return to Dodgers rotation on Tuesday against Cubs**\
 `Yamamoto hasn't pitched in the major leagues since June. `\
 https://nytimes.com/athletic/5746193/2024/09/04/dodgers-yoshinobu-yamamoto-injury-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5745254/2024/09/04/rams-matthew-stafford-jonah-jack
 **Raiders' Davante Adams says rumors he's unhappy 'a bunch of B.S.'**\
 `Adams shut down comments made by former NFL receiver DeSean Jackson on “The Herd” last month.`\
 https://nytimes.com/athletic/5745848/2024/09/04/davante-adams-raiders-rumors-future/
-
-**Police Arrest Man in 1993 Murder of 19-Year-Old Indianapolis Woman**\
-`For more than 30 years, the case had remained unsolved. While questions remain, the police said they had linked a 52-year-old Missouri man to DNA at the crime scene.`\
-https://nytimes.com/2024/09/04/us/carmen-van-huss-murder-suspect-arrested.html
 
