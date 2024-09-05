@@ -1,3 +1,15 @@
+**The Electric Vehicle Future Is Coming. Just a Little More Slowly.**\
+`Though large automakers are delaying their plans to introduce new all-electric models, the E.V. industry is still the future, experts say.`\
+https://nytimes.com/2024/09/05/climate/electric-vehicle-sales-projections.html
+
+**U.S. Election Looms Over Climate Talks with China**\
+`Experts believe the outcome of the race for the White House could determine how ambitious China’s climate efforts will be.`\
+https://nytimes.com/2024/09/05/climate/us-election-looms-over-climate-talks-with-china.html
+
+**Federal Judge Temporarily Blocks Another Pillar of Biden’s Student Debt Plan**\
+`The plan would affect millions of borrowers struggling with runaway interest and others who were still paying off loans after decades. It was set to take effect this fall.`\
+https://nytimes.com/2024/09/05/us/politics/judge-temporarily-blocks-student-debt-plan.html
+
 **Why don't Willie Mays' baseball card values match his legendary achievements?**\
 `The Giants legend who passed away this year still trails Mickey Mantle in card values by a significant margin `\
 https://nytimes.com/athletic/5748179/2024/09/05/willie-mays-baseball-cards-giants/
