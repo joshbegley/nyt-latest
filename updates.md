@@ -1,3 +1,7 @@
+**Dutch FA considers scrapping offsides in grassroots football to curb violence**\
+`The Royal Dutch Football Association (KNVB) is considering scrapping the offside rule for amateur matches in response to a surge in violent incidents stemming from disputed decisions.`\
+https://nytimes.com/athletic/5746785/2024/09/05/offside-rule-netherlands-violence/
+
 **The Coming Election Battles**\
 `Polls suggest the presidential contest will be close. Both sides expect a fight over the outcome.`\
 https://nytimes.com/2024/09/05/briefing/harris-trump-election.html
