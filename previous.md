@@ -1,3 +1,7 @@
+**49ers’ Ricky Pearsall shows up at practice; Christian McCaffrey is limited**\
+`The 49ers were missing two players during Thursday's session while one big piece of their offense — McCaffrey — was limited.`\
+https://nytimes.com/athletic/5748924/2024/09/05/49ers-ricky-pearsall-practice-christian-mccaffrey/
+
 **Florida Health Agency Targets Abortion Rights Ballot Measure**\
 `A state agency claimed that the referendum “threatens women’s safety.” Critics say the website is unethical and may violate the law.`\
 https://nytimes.com/2024/09/05/us/florida-abortion-ballot-measure.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/05/opinion/trump-bacon-prices-economics.html
 **Brian Ketcham, Effective Foe of Traffic and Smog, Dies at 85**\
 `An engineer and influential environmentalist in New York, he fought for bus lanes, bridge tolls and limits on parking and against more highways, as in the aborted Westway plan.`\
 https://nytimes.com/2024/09/05/nyregion/brian-ketcham-dead.html
-
-**Giants' Matt Chapman gets the contract he should've received all along: 'I believed in myself'**\
-`"This last offseason was a little strange with the free-agent market, but I was willing to bet on myself," Chapman said.`\
-https://nytimes.com/athletic/5748791/2024/09/05/sf-giants-matt-chapman-contract-extension/
 
