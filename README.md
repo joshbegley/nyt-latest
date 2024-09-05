@@ -1,3 +1,11 @@
+**'Let's keep their stories alive': Blue Jackets' vigil for Gaudreau brothers allows fans, players to mourn together**\
+`The vigil for the Gaudreau brothers outside the Columbus arena helped a grieving community to gather, hug and cry together.`\
+https://nytimes.com/athletic/5746105/2024/09/04/gaudreau-candlelight-vigil-blue-jackets-flames/
+
+**Peer Group**\
+`Are you feeling dizzy after solving Joe Deeney’s puzzle?`\
+https://nytimes.com/2024/09/04/crosswords/daily-puzzle-2024-09-05.html
+
 **Whit Merrifield thinks MLB will have hit-batter rule in place by 2025**\
 `Regarding potential penalties, Merrifield said, “You look at football players, they’ve had to totally rework how they tackle."`\
 https://nytimes.com/athletic/5746145/2024/09/04/braves-whit-merrifield-mlb-hit-batter-rule/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/04/us/politics/trump-fox-news-town-hall.html
 **Yankees' Clay Holmes loses defined closer role as team pivots to matchups**\
 `For the time being, the Yankees' closer role will feature a revolving door of relievers based on matchups. `\
 https://nytimes.com/athletic/5745799/2024/09/04/yankees-closer-situation-developments/
-
-**As Phillies chase division title, they try to strike balance between wins and health**\
-`Wins are the priority, but staying healthy remains paramount, too. Harper injured his other elbow, but he and his manager say it's fine.`\
-https://nytimes.com/athletic/5745825/2024/09/04/phillies-division-title-wins-health/
-
-**Teen charged in Pearsall shooting case appears in court**\
-`The next hearing will take place Sept. 10 and a potential trial must begin, by law, within 15 days of Wednesday.`\
-https://nytimes.com/athletic/5745766/2024/09/04/ricky-pearsall-shooting-teen-charges/
 
