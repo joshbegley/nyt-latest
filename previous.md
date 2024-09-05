@@ -1,3 +1,11 @@
+**Canucks 23-man roster projection: Who is a lock? Who has something to prove?**\
+`Who is a dark horse worth keeping an eye on? Which players will have something to prove when training camp begins in two weeks?`\
+https://nytimes.com/athletic/5746566/2024/09/05/canucks-roster-projection-2024-25/
+
+**Boulder Mass Shooting Trial Focuses on Accused Gunman’s Mental State**\
+`Lawyers for the accused gunman are using the state’s insanity defense, arguing that he was mentally ill at the time of the 2021 shooting that left 10 people dead at a supermarket.`\
+https://nytimes.com/2024/09/05/us/boulder-mass-shooting-trial.html
+
 **Walker on England omission: 'It's the right call'**\
 `Kyle Walker says England interim manager Lee Carsley was correct to not name him in the squad for September&#8217;s Nations League fixtures.`\
 https://nytimes.com/athletic/5747648/2024/09/05/kyle-walker-england-squad/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/05/world/middleeast/israel-raids-west-bank-palestini
 **Can We Have Basic Food for Dinner?**\
 `Maybe crispy-edged quesadillas, caramelized roast vegetables and fluffy rice, no marinating or multitasking.`\
 https://nytimes.com/2024/09/05/dining/can-we-have-basic-food-for-dinner.html
-
-**The Windup: The first time since 1972**\
-`The Windup is The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/5747534/2024/09/05/shota-imanaga-cubs-no-hitter-the-windup/
-
-**Haaland and Salah form shows benefit of 'proper rest' - FIFPro**\
-`Global players’ union FIFPRO has issued its starkest warning yet about the amount of football the game’s stars are playing, saying this season will be the “worst ever” in terms of workload.`\
-https://nytimes.com/athletic/5747506/2024/09/05/fifpro-workload-report/
 
