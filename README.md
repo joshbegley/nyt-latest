@@ -1,3 +1,11 @@
+**Start-Up Investors Push Back Against Venture Capital’s Bigger-Is-Better Mantra**\
+`A small but vocal group is forming new funds and taking new approaches to counter the swell of money into venture capital in recent years.`\
+https://nytimes.com/2024/09/05/technology/venture-capital-startup-investors-asylum-ventures.html
+
+**‘The Rings of Power’ Season 2, Episode 4: The Trees Have Thoughts**\
+`This week’s episode, which included several Tolkien fan-favorite characters and creatures, is the best of the season thus far.`\
+https://nytimes.com/2024/09/05/arts/television/the-rings-of-power-season-2-episode-4-recap.html
+
 **The judge overseeing the case has weathered criticism from Trump.**\
 `By Eileen Sullivan`\
 https://nytimes.com/live/2024/09/05/us/trump-election-interference-hearing/the-judge-overseeing-the-case-has-weathered-criticism-from-trump
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/05/arts/television/reality-tv-production-hubs-the-ci
 **‘Rebel Ridge’ Review: Their Corruption, His Destruction**\
 `This crime drama from Jeremy Saulnier stars Aaron Pierre as a man whose run-in with small-town police officers uncovers uncomfortable secrets.`\
 https://nytimes.com/2024/09/05/movies/rebel-ridge-review.html
-
-**An American Church Thrived in Nicaragua. Then Its Pastors Went to Prison.**\
-`Evangelical pastors led by a Texas missionary in Nicaragua were accused of money laundering, in a widespread crackdown on religious groups.`\
-https://nytimes.com/2024/09/05/us/american-pastors-nicaragua-money-laundering.html
-
-**Harris’s Shift on Tax Cheers Her Corporate Backers**\
-`The vice president has proposed raising the levy on capital gains, a break from President Biden’s economic agenda, as she tries to keep big donors and progressives on side.`\
-https://nytimes.com/2024/09/05/business/dealbook/kamala-harris-capital-gains-tax.html
 
