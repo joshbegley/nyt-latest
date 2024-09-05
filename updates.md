@@ -1,3 +1,11 @@
+**How Swing State Politics Are Sinking a Global Steel Deal**\
+`Ambitions of “friend-shoring” end at Pennsylvania state lines as Japan is deemed a security threat.`\
+https://nytimes.com/2024/09/05/us/politics/us-steel-nippon-pennsylvania.html
+
+**Alex Goligoski, a career come full circle in Minnesota and a 'dream' retirement gift**\
+`Goligoski may not have ended his NHL career the way he imagined, but he launches into his next phase of life with no regrets.`\
+https://nytimes.com/athletic/5745086/2024/09/05/alex-goligoski-wild-retirement/
+
 **Brandon Ingram's future with the Pelicans is as hazy as ever, and the clock is ticking**\
 `Ingram was a conspicuous absence at a players-only minicamp, casting more doubt about his long-term future with the Pelicans.`\
 https://nytimes.com/athletic/5746615/2024/09/05/brandon-ingram-pelicans-rumors-trade-future/
