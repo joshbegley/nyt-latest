@@ -1,3 +1,11 @@
+**Finally - San Marino end their 20-year wait for a win**\
+`San Marino have finally ended a run of 20 years without a victory by beating Liechtenstein 1-0 in the UEFA Nations League.`\
+https://nytimes.com/athletic/5357123/2024/09/05/san-marino-win-liechtenstein/
+
+**New York Fashion Week Is Here. The Parties Have Some of Its Best Outfits.**\
+`The early 2000s were on display in SoHo, where the band TV on the Radio performed in front of a revival of Max Fish, the Lower East Side dive bar, at an event thrown by Vans.`\
+https://nytimes.com/2024/09/05/style/nyfw-fashion-week-after-party.html
+
 **Real Madrid's Eder Militao withdraws from Brazil squad with thigh injury**\
 `Real Madrid defender Eder Militao has withdrawn from the Brazil squad for their upcoming World Cup qualifiers due to a thigh injury.`\
 https://nytimes.com/athletic/5748456/2024/09/05/real-madrid-eder-miliato-brazil-injury/
