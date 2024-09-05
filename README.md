@@ -1,3 +1,11 @@
+**Travis Kelce believes he has at least 2 good seasons left in Chiefs career**\
+`The four-time All-Pro tight end signed that new contract in April, making him the highest-paid tight end.`\
+https://nytimes.com/athletic/5747315/2024/09/05/travis-kelce-chiefs-career/
+
+**Trump will not attend the hearing.**\
+`By Michael Gold`\
+https://nytimes.com/live/2024/09/05/us/trump-election-interference-hearing/trump-will-not-attend-the-hearing
+
 **Magic Johnson joins Washington Spirit ownership group**\
 `“I want to make sure that this sport, women’s soccer, can grow," Magic Johnson said about his investment in the Spirit.`\
 https://nytimes.com/athletic/5747236/2024/09/05/magic-johnson-joins-washington-spirit-ownership-group/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/05/us/trump-election-interference-hearing/heres
 **The Padres’ Yu Darvish, amid rusty return and comeback win, is back where he needed to be**\
 `"His arm felt good. His body felt good. Just knocked a little bit of the proverbial rust off," said Padres manager Mike Shildt.`\
 https://nytimes.com/athletic/5746369/2024/09/05/yu-darvish-padres-return-il/
-
-**Live Updates: Questions Mount After Georgia School Shooting**\
-`Four people were killed in the shooting at a high school. The 14-year-old suspect had been on law enforcement agencies’ radar for more than a year, after they questioned him about threats posted online.`\
-https://nytimes.com/live/2024/09/05/us/georgia-school-shooting
-
-**Here’s the latest on the investigation into the shooting.**\
-`By Jacey Fortin, Rick Rojas and Alessandro Marazzi Sassoon`\
-https://nytimes.com/live/2024/09/05/us/georgia-school-shooting/heres-the-latest-on-the-investigation-into-the-shooting
 
