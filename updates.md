@@ -1,3 +1,7 @@
+**Walker on England omission: 'It's the right call'**\
+`Kyle Walker says England interim manager Lee Carsley was correct to not name him in the squad for September&#8217;s Nations League fixtures.`\
+https://nytimes.com/athletic/5747648/2024/09/05/kyle-walker-england-squad/
+
 **Top 50 MLB prospects: Two Tigers lead off while Bazzana cracks Top 5 of Bowden's rankings**\
 `It's time for Jim Bowden to update his annual top-50 ranking. This year, two Tigers — Jackson Jobe and Max Clark — lead the list. `\
 https://nytimes.com/athletic/5742542/2024/09/05/top-50-mlb-prospects-jobe-bazzana-mayer/
