@@ -1,3 +1,7 @@
+**Yoshinobu Yamamoto will return to Dodgers rotation on Tuesday against Cubs**\
+`Yamamoto hasn't pitched in the major leagues since June. `\
+https://nytimes.com/athletic/5746193/2024/09/04/dodgers-yoshinobu-yamamoto-injury-return/
+
 **One Student Said Some Quick Thinking Saved Him and His Classmates**\
 `As gunfire sounded outside a math class, a student noticed the door was open. A classmate ran across the room to shut it.`\
 https://nytimes.com/2024/09/04/us/georgia-school-shooting-students-teacher.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5745848/2024/09/04/davante-adams-raiders-rumors-fut
 **Police Arrest Man in 1993 Murder of 19-Year-Old Indianapolis Woman**\
 `For more than 30 years, the case had remained unsolved. While questions remain, the police said they had linked a 52-year-old Missouri man to DNA at the crime scene.`\
 https://nytimes.com/2024/09/04/us/carmen-van-huss-murder-suspect-arrested.html
-
-**Florida true freshman QB DJ Lagway, former 5-star recruit, to start**\
-`Lagway, the No. 2 QB in the 2024 recruiting class, will start vs. Samford for Graham Mertz, who hasn't practiced this week.`\
-https://nytimes.com/athletic/5745853/2024/09/04/florida-gators-dj-lagway-start-quarterback-graham-mertz/
 

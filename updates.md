@@ -1,3 +1,7 @@
+**Yoshinobu Yamamoto will return to Dodgers rotation on Tuesday against Cubs**\
+`Yamamoto hasn't pitched in the major leagues since June. `\
+https://nytimes.com/athletic/5746193/2024/09/04/dodgers-yoshinobu-yamamoto-injury-return/
+
 **One Student Said Some Quick Thinking Saved Him and His Classmates**\
 `As gunfire sounded outside a math class, a student noticed the door was open. A classmate ran across the room to shut it.`\
 https://nytimes.com/2024/09/04/us/georgia-school-shooting-students-teacher.html
