@@ -1,3 +1,11 @@
+**At 30, The Armory Show Asks, Can Art Fairs Still be Relevant?**\
+`Among its 235 exhibitors from 30 countries, our critic finds these standout booths — and hails three local curators who have brought some sections exciting new life.`\
+https://nytimes.com/2024/09/05/arts/design/armory-show-art-fair-review.html
+
+**Details of a hostage-prisoner exchange are another obstacle in Gaza cease-fire talks, U.S. officials say.**\
+`By Lara Jakes`\
+https://nytimes.com/live/2024/09/05/world/israel-hamas-gaza-war/details-of-a-hostage-prisoner-exchange-are-another-obstacle-in-gaza-cease-fire-talks-us-officials-say
+
 **MLB bullpen report: Yankees getting 'creative' at closer, Ben Joyce making a play for 2025 and more**\
 `Greg Jewett reports on all the latest developments across MLB bullpens, including Angels reliever Ben Joyce's sterling audition for 2025. `\
 https://nytimes.com/athletic/5747732/2024/09/05/mlb-bullpen-report-yankees-getting-creative-at-closer-ben-joyce-making-a-play-for-2025-and-more/
