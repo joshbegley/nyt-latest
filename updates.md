@@ -1,3 +1,11 @@
+**Rich Homie Quan, Melodic Atlanta Rapper, Dies at 34**\
+`The rapper, who was at one time affiliated with Young Thug, had a 2015 hit with “Flex (Ooh, Ooh, Ooh),” which spawned a dance craze.`\
+https://nytimes.com/2024/09/05/arts/music/rich-homie-quan-dead.html
+
+**Trump Praises Tariffs, and William McKinley, to Power Brokers**\
+`In an address about the kind of economy he hopes to build for the 21st century, the former president harked back to the end of another century: the 19th.`\
+https://nytimes.com/2024/09/05/us/politics/trump-tariffs-william-mckinley.html
+
 **Hunter Biden Pleaded Guilty**\
 `Also, teenage vaping dropped to a 10-year low. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/09/05/briefing/hunter-biden-pleaded-guilty-nfl-season.html
