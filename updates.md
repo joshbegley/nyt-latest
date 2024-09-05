@@ -1,3 +1,7 @@
+**Pope Finds Fervent Fans Among Indonesia’s Transgender Community**\
+`For many trans women living on the fringes of the nation’s society, the Catholic Church is a haven, and Pope Francis a personal hero.`\
+https://nytimes.com/2024/09/05/world/asia/pope-francis-indonesia-transgender.html
+
 **After years of dysfunction around him, can Vikings QB Sam Darnold finally find NFL success?**\
 `Seen as the poster child for mistreatment by his coaches and organizations as a young QB, Darnold may be in position to win in Minnesota.`\
 https://nytimes.com/athletic/5734446/2024/09/05/sam-darnold-vikings-jets-panthers/

@@ -1,3 +1,7 @@
+**Pope Finds Fervent Fans Among Indonesia’s Transgender Community**\
+`For many trans women living on the fringes of the nation’s society, the Catholic Church is a haven, and Pope Francis a personal hero.`\
+https://nytimes.com/2024/09/05/world/asia/pope-francis-indonesia-transgender.html
+
 **After years of dysfunction around him, can Vikings QB Sam Darnold finally find NFL success?**\
 `Seen as the poster child for mistreatment by his coaches and organizations as a young QB, Darnold may be in position to win in Minnesota.`\
 https://nytimes.com/athletic/5734446/2024/09/05/sam-darnold-vikings-jets-panthers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5745443/2024/09/05/new-york-yankees-standings-headl
 **Bolivia, altitude and 1,840 steps up from La Paz to their new home 4,150m above sea level**\
 `When Venezuela play in Bolivia today, they will be doing so way above an altitude that was previously deemed unsafe by FIFA`\
 https://nytimes.com/athletic/5746338/2024/09/05/bolivia-altitude-el-alto-venezuela/
-
-**What are new NFL kickoff rules and how do they work?**\
-`Gone is the traditional kickoff, but fans might still recognize parts of the new one, as it shares many similarities to the XFL's.`\
-https://nytimes.com/athletic/5739077/2024/09/05/nfl-kickoff-rules-explained/
 
