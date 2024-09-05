@@ -1,3 +1,7 @@
+**Why don't Willie Mays' baseball card values match his legendary achievements?**\
+`The Giants legend who passed away this year still trails Mickey Mantle in card values by a significant margin `\
+https://nytimes.com/athletic/5748179/2024/09/05/willie-mays-baseball-cards-giants/
+
 **What if I’m the ‘Friend’ Donald Trump Referred To?**\
 `His “weave” conveys meaning, I’ll give him that. But it says something he does not intend.`\
 https://nytimes.com/2024/09/05/opinion/trump-talk-weave-english.html
