@@ -1,3 +1,15 @@
+**The Athletic FC: Global star airbrushed from history; Ballon d'Or nominees; stadium in sky**\
+`Today in TAFC: Hakan Sukur and why he's afraid to return to Turkey. Plus: the Ballon d'Or nominees are announced (minus Ronaldo and Messi).`\
+https://nytimes.com/athletic/5746860/2024/09/05/global-star-airbrushed-from-history-ballon-dor-nominees-bolivias-stadium-in-the-sky/
+
+**Blinken Visits a Haiti Wracked by Corruption and Gangs**\
+`The United States has played a supporting role behind Kenya’s deployment of a security force tasked with helping Haitian police combat gangs.`\
+https://nytimes.com/2024/09/05/us/politics/blinken-haiti-gang-violence.html
+
+**How many Chiefs games will Taylor Swift attend in 2024? How her tour schedule aligns**\
+`There are three shows — Oct. 20, Oct. 27 and Dec. 8 — that fall on the same dates as Chiefs regular-season games.`\
+https://nytimes.com/athletic/5499205/2024/09/05/taylor-swift-eras-tour-chiefs-schedule/
+
 **Breaking Impasse, Macron Names Michel Barnier to Be French Prime Minister**\
 `The president’s choice of a right-wing politician, after an extraordinary delay, is certain to inflame opponents on the left who came out on top in an inconclusive election.`\
 https://nytimes.com/2024/09/05/world/europe/france-prime-minister-barnier-macron.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5743987/2024/09/05/chargers-greg-roman-jim-harbaugh
 **What to expect from The Athletic's podcast coverage this NFL season**\
 `"The Athletic Football Show" and "Scoop City" headline The Athletic's NFL podcast coverage.`\
 https://nytimes.com/athletic/5744638/2024/09/05/best-nfl-podcasts-the-athletic-scoop-city/
-
-**Davante Adams wants to remain a Raider, but the team needs to win to keep it that way**\
-`The veteran receiver denied that he's unhappy in Las Vegas, but will things stay that way if the Raiders struggle out of the gate this fall?`\
-https://nytimes.com/athletic/5745932/2024/09/05/davante-adams-raiders-trade-rumors/
-
-**How Bo Nix became the Broncos' first rookie team captain since 1967**\
-`Plus, a look at the Broncos' game-plan process around their rookie quarterback: "Hearing those final thoughts is important."`\
-https://nytimes.com/athletic/5744177/2024/09/05/bo-nix-broncos-captain/
-
-**‘Red Rooms’ Review: A True Crime Obsession Unravels**\
-`A mysterious young woman becomes deeply invested in the trial of an accused serial killer in this courtroom thriller.`\
-https://nytimes.com/2024/09/05/movies/red-rooms-review.html
 
