@@ -1,3 +1,7 @@
+**NFL Week 1 score predictions: Model projections for spread and total on every game**\
+`Austin Mock's projected point spread and total for all 16 games in Week 1.`\
+https://nytimes.com/athletic/5747941/2024/09/05/nfl-week-1-score-predictions-model-projections-for-spread-and-total-on-every-game/
+
 **Flood Warning Issued in New Orleans as Storm Threatens Gulf Coast**\
 `Heavy rain was expected to last through the weekend in parts of Louisiana and Mississippi.`\
 https://nytimes.com/2024/09/05/us/storm-system-louisiana-flooding.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/05/opinion/school-shooting-georgia.html
 **How Georgia’s Gun Laws Compare to Those of Other States**\
 `The state does not have universal background checks for gun purchases, safe storage laws or a so-called red-flag law — measures instituted elsewhere in response to gun violence.`\
 https://nytimes.com/2024/09/05/us/georgia-gun-laws.html
-
-**German Police Shoot Gunman Dead Near Israeli Consulate in Munich**\
-`The shootout with an 18-year-old Austrian came on the anniversary of the attack on the Munich Olympics that left 11 Israelis dead, and was being investigated as a possible terrorist attack.`\
-https://nytimes.com/2024/09/05/world/europe/german-police-shoot-gunman-dead-near-israeli-consulate-in-munich.html
 

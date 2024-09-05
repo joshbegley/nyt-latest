@@ -1,3 +1,7 @@
+**NFL Week 1 score predictions: Model projections for spread and total on every game**\
+`Austin Mock's projected point spread and total for all 16 games in Week 1.`\
+https://nytimes.com/athletic/5747941/2024/09/05/nfl-week-1-score-predictions-model-projections-for-spread-and-total-on-every-game/
+
 **Flood Warning Issued in New Orleans as Storm Threatens Gulf Coast**\
 `Heavy rain was expected to last through the weekend in parts of Louisiana and Mississippi.`\
 https://nytimes.com/2024/09/05/us/storm-system-louisiana-flooding.html
