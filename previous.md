@@ -1,3 +1,7 @@
+**On the First Day at New Schools, Hugs, Tears and Plenty of Photos**\
+`Students at New York City public schools started class on Thursday, some in brand-new schools or buildings.`\
+https://nytimes.com/2024/09/05/nyregion/nyc-first-day-school-photos.html
+
 **Rexrode: Amid another scandal, it's time for Memphis to part ways with Penny Hardaway**\
 `Hardaway has coached Memphis for six seasons, but it's time for the Tigers to put someone else in charge.`\
 https://nytimes.com/athletic/5747981/2024/09/05/memphis-basketball-penny-hardaway-ncaa-allegations-scandal/
@@ -22,8 +26,8 @@ https://nytimes.com/2024/09/05/world/europe/german-police-shoot-gunman-dead-near
 `Sterling, who retired from the radio booth in April, will call home and road games for the Yankees in October.`\
 https://nytimes.com/athletic/5747500/2024/09/05/yankees-john-sterling-playoffs-return-wfan/
 
-**Teenage E-Cigarette Use Continues to Decline**\
-`The percentage of middle and high school students reporting that they vaped tobacco products dropped to about a third of those students reporting use of e-cigarettes at a vaping peak in 2019, a new survey shows.`\
+**Teenage E-Cigarette Use Drops to a 10-Year Low**\
+`The percentage of middle and high school students reporting that they vaped tobacco products declined to about a third of the peak levels in 2019, a new survey shows.`\
 https://nytimes.com/2024/09/05/health/e-cigarettes-teenagers-vaping.html
 
 **‘Beetlejuice Beetlejuice’ Review: Delightfully Undead Again**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/05/movies/beetlejuice-beetlejuice-review.html
 **U.S. Charges American Commentator Who Works for Russian State TV**\
 `Dmitri K. Simes, who was an adviser to Donald J. Trump’s first campaign, and his wife, Anastasia Simes, are accused of violating U.S. sanctions.`\
 https://nytimes.com/2024/09/05/us/politics/russia-us-simes-indictment-election.html
-
-**Big 12 pauses expansion discussions with UConn**\
-`The Big 12 has explored adding UConn since at least last year as the conference looks to continue expanding.`\
-https://nytimes.com/athletic/5747939/2024/09/05/big-12-uconn-expansion-discussion-paused/
 
