@@ -18,8 +18,8 @@ https://nytimes.com/live/2024/09/05/us/georgia-school-shooting
 `By Jacey Fortin, Rick Rojas and Alessandro Marazzi Sassoon`\
 https://nytimes.com/live/2024/09/05/us/georgia-school-shooting/heres-the-latest-on-the-investigation-into-the-shooting
 
-**Sarah Adam: US trailblazer, tough as teak - and a 'murderball' medallist**\
-`Sarah Adam was the only woman in the US' wheelchair rugby team - but made her presence felt, she hopes she has inspired the next generation`\
+**Sarah Adam: U.S. trailblazer, tough as teak - and a 'murderball' medallist**\
+`Sarah Adam was the only woman in the U.S. wheelchair rugby team but made her presence felt - she hopes she's inspired the next generation`\
 https://nytimes.com/athletic/5743943/2024/09/05/sarah-adam-us-paralympics-murderball/
 
 **That’s a Great Reality TV Set. Let’s Use It Again.**\
