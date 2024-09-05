@@ -26,7 +26,7 @@ https://nytimes.com/2024/09/05/nyregion/banks-sheena-fbi-search-nyc.html
 `Readers discuss gun laws, trying the suspect as an adult, defining mass shootings and more. Also: A view from AIPAC; an anti-family Republican Party.`\
 https://nytimes.com/2024/09/05/opinion/school-shooting-georgia.html
 
-**How Georgia’s Gun Laws Compare to Other States**\
+**How Georgia’s Gun Laws Compare to Other States’**\
 `The state does not have universal background checks for gun purchases, safe storage laws or a so-called red-flag law — measures instituted elsewhere in response to gun violence.`\
 https://nytimes.com/2024/09/05/us/georgia-gun-laws.html
 
