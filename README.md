@@ -1,3 +1,11 @@
+**10 Dynamic Wines From Spain to Drink Now**\
+`Great bottles are being made all over the world, but right now no country’s are as exciting or compelling as Spain’s.`\
+https://nytimes.com/2024/09/05/dining/drinks/spain-wines.html
+
+**Jack Smith shows flashes of emotion as Trump’s election case returns to court.**\
+`By Eileen Sullivan`\
+https://nytimes.com/live/2024/09/05/us/trump-election-interference-hearing/jack-smith-shows-flashes-of-emotion-as-trumps-election-case-returns-to-court
+
 **Why these 4 NFL teams are primed for turnaround seasons**\
 `Our two underdogs analysts make their picks of four teams that should overperform this season. Who dat.`\
 https://nytimes.com/athletic/5747376/2024/09/05/nfl-underdogs-4-teams-that-could-outperform/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/05/world/africa/boko-haram-nigeria-mafa-attack.html
 **The winner in November will have a huge effect on the cases against Trump.**\
 `By Alan Feuer`\
 https://nytimes.com/live/2024/09/05/us/trump-election-interference-hearing/the-winner-in-november-will-have-a-huge-effect-on-the-cases-against-trump
-
-**Report Details Interview of Georgia Suspect in Prior School Shooting Threat**\
-`The sheriff’s office report reveals more about how investigators were able to trace the online post to the teenager’s account, and why they could not definitively link it to him.`\
-https://nytimes.com/2024/09/05/us/georgia-school-shooting-suspect-threat.html
-
-**Hunter Biden Enters Surprise Plea in Tax Case**\
-`Mr. Biden took the unusual step of entering a so-called Alford plea, acknowledging there was enough evidence to convict him even as he expressed innocence toward the same charges.`\
-https://nytimes.com/2024/09/05/us/politics/hunter-biden-tax-trial.html
 
