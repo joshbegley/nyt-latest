@@ -1,3 +1,11 @@
+**Israeli Raids Paralyze Daily Life for Many in the West Bank**\
+`As an Israeli offensive against Palestinian militant groups stretched to a 10th day, residents said many people were trapped in their homes out of fear.`\
+https://nytimes.com/2024/09/05/world/middleeast/israel-raids-west-bank-palestinians.html
+
+**Can We Have Basic Food for Dinner?**\
+`Maybe crispy-edged quesadillas, caramelized roast vegetables and fluffy rice, no marinating or multitasking.`\
+https://nytimes.com/2024/09/05/dining/can-we-have-basic-food-for-dinner.html
+
 **The Windup: The first time since 1972**\
 `The Windup is The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/5747534/2024/09/05/shota-imanaga-cubs-no-hitter-the-windup/

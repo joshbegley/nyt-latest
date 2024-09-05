@@ -1,3 +1,11 @@
+**Israeli Raids Paralyze Daily Life for Many in the West Bank**\
+`As an Israeli offensive against Palestinian militant groups stretched to a 10th day, residents said many people were trapped in their homes out of fear.`\
+https://nytimes.com/2024/09/05/world/middleeast/israel-raids-west-bank-palestinians.html
+
+**Can We Have Basic Food for Dinner?**\
+`Maybe crispy-edged quesadillas, caramelized roast vegetables and fluffy rice, no marinating or multitasking.`\
+https://nytimes.com/2024/09/05/dining/can-we-have-basic-food-for-dinner.html
+
 **The Windup: The first time since 1972**\
 `The Windup is The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/5747534/2024/09/05/shota-imanaga-cubs-no-hitter-the-windup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5747384/2024/09/05/maelys-mpome-chelsea-women-trans
 **In Michigan, an ‘Unhinged Werewolf’ Will Make It Clear Who Voted**\
 `A contest for the state’s next “I Voted” sticker yielded several winning designs, but a seventh grader’s stood out from the rest.`\
 https://nytimes.com/2024/09/05/style/michigan-i-voted-sticker-werewolf.html
-
-**California Man Arrested After Shooting Spree Kills at Least 80 Animals**\
-`The hourslong episode in the middle of the night triggered a shelter-in-place order in Monterey County. One official described the scene as “horrible.”`\
-https://nytimes.com/2024/09/05/us/california-man-kills-animals-shooting.html
-
-**Here’s how Jack Smith modified the Jan. 6 case indictment against Donald Trump.**\
-`By Charlie Savage`\
-https://nytimes.com/live/2024/09/05/us/trump-election-interference-hearing/heres-how-jack-smith-modified-the-jan-6-case-indictment-against-donald-trump
 
