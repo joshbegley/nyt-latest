@@ -1,3 +1,7 @@
+**The suspect was interviewed for online threats of a school attack last year.**\
+`The F.B.I. said the teenager denied making any threats. His father told investigators that he had hunting guns in the house, but said that his son did not have unsupervised access to the weapons.`\
+https://nytimes.com/live/2024/09/04/us/georgia-shooting-apalachee-high-school/the-suspect-was-interviewed-for-online-threats-of-a-school-attack-last-year
+
 **In Nebraska, Tim Walz’s Family Is Split Over the Election**\
 `A photo widely circulating on social media shows “Walz’s for Trump” from a side of the family Gov. Tim Walz’s sister said the Walzes “don’t even know.”`\
 https://nytimes.com/2024/09/04/us/politics/tim-walz-family-shirts-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5745766/2024/09/04/ricky-pearsall-shooting-teen-cha
 **Rams' Matthew Stafford and Jonah Jackson discuss new QB/center combo, return to Detroit**\
 `Stafford spent 12 seasons in Detroit and Jackson played his first four seasons there before signing with the Rams this offseason.`\
 https://nytimes.com/athletic/5745254/2024/09/04/rams-matthew-stafford-jonah-jackson-detroit-lions/
-
-**Raiders' Davante Adams says rumors he's unhappy 'a bunch of B.S.'**\
-`Adams shut down comments made by former NFL receiver DeSean Jackson on “The Herd” last month.`\
-https://nytimes.com/athletic/5745848/2024/09/04/davante-adams-raiders-rumors-future/
 
