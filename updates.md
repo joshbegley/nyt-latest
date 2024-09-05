@@ -1,3 +1,7 @@
+**Tip on School Shooting Suspect Last Year Led to Dead End**\
+`The teenager charged with killing four people at his Georgia high school on Wednesday had been investigated for an online threat. But he denied making it, and the authorities could not prove he did.`\
+https://nytimes.com/2024/09/05/us/georgia-shooting-colt-gray-threat.html
+
 **The Junkification of American Life**\
 `Why we want the wrong things.`\
 https://nytimes.com/2024/09/05/opinion/entertainment-junk-psychology.html
