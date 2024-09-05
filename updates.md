@@ -1,3 +1,7 @@
+**The State Wanted Hotels and Golf Courses in Florida Parks. Floridians Revolted.**\
+`Faced with intense bipartisan opposition, Gov. Ron DeSantis shelved the plan. It was a rare policy setback for a leader used to getting his way.`\
+https://nytimes.com/2024/09/05/us/florida-parks-desantis.html
+
 **47-Year-Old Man Is Fatally Shot in Brooklyn Subway Station**\
 `The man, who a neighbor said had recently started a new job, was shot in the head inside the Rockaway Avenue train station late Wednesday night.`\
 https://nytimes.com/2024/09/05/nyregion/man-shot-brooklyn-subway-station.html
