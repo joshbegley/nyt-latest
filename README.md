@@ -22,8 +22,8 @@ https://nytimes.com/athletic/5748894/2024/09/05/caleb-williams-reggie-bush-usc-t
 `Pavel Durov, held in France since last month, blamed “growing pains” for the company’s problems and pledged to make improvements.`\
 https://nytimes.com/2024/09/05/technology/telegram-pavel-durov-comments.html
 
-**Tip on School Shooting Suspect Last Year Led to Dead End**\
-`The teenager charged with killing four people at his Georgia high school on Wednesday had been investigated for an online threat. But he denied making it, and the authorities could not prove he did.`\
+**Tip on School Shooting Threat Last Year Led to Suspect’s Door**\
+`The teenager charged with killing four people at his Georgia high school on Wednesday denied making an online threat, and the authorities could not prove he did. He, and now his father, face murder charges.`\
 https://nytimes.com/2024/09/05/us/georgia-shooting-colt-gray-threat.html
 
 **The Junkification of American Life**\
