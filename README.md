@@ -1,3 +1,11 @@
+**Florida Health Agency Targets Abortion Rights Ballot Measure**\
+`A state agency claimed that the referendum “threatens women’s safety.” Critics say the website is unethical and may violate the law.`\
+https://nytimes.com/2024/09/05/us/florida-abortion-ballot-measure.html
+
+**Alex Morgan has designed her own USWNT exit by setting the next generation up for success**\
+`The U.S. can exist without Morgan and that’s ultimately for the good`\
+https://nytimes.com/athletic/5675577/2024/09/05/uswnt-olympics-alex-morgan-not-on-team/
+
 **Purported Rembrandt Painting Found in a Maine Attic Sells for $1.4 Million**\
 `“Portrait of a Girl,” a 17th-century work believed to be by the Dutch master, had been hiding in a home in Maine.`\
 https://nytimes.com/2024/09/05/arts/rembrandt-painting-maine-attic.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/05/nyregion/brian-ketcham-dead.html
 **Giants' Matt Chapman gets the contract he should've received all along: 'I believed in myself'**\
 `"This last offseason was a little strange with the free-agent market, but I was willing to bet on myself," Chapman said.`\
 https://nytimes.com/athletic/5748791/2024/09/05/sf-giants-matt-chapman-contract-extension/
-
-**Gallagher says he bears no Chelsea grudge after messy summer transfer**\
-`Conor Gallagher insists he does not hold a grudge against Chelsea over the manner of his exit from the club this summer.`\
-https://nytimes.com/athletic/5748818/2024/09/05/conor-gallagher-chelsea-transfer-atletico/
-
-**Georgia Governor Faces New Pressure Over Far-Right Elections Board Takeover**\
-`A bipartisan alliance looks to rein in what it sees as a rogue board aligned with the far right.`\
-https://nytimes.com/2024/09/05/us/politics/trump-kemp-immigrant-voting.html
 
