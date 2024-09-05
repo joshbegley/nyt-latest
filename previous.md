@@ -1,3 +1,7 @@
+**England fans warned to 'respect local culture' before Republic of Ireland game**\
+`England fans have been warned to &#8220;respect local culture&#8221; as they prepare for their first game in the Republic of Ireland for nine years.`\
+https://nytimes.com/athletic/5748215/2024/09/05/england-ireland-warning-trouble/
+
 **Funeral for Nigerians Killed in Boko Haram Attack**\
 `A funeral in Yobe, Nigeria, for residents killed in the village of Mafa. Thirty-four bodies were brought to the nearest town, but community leaders say many more were buried locally.`\
 https://nytimes.com/video/world/africa/100000009675391/nigeria-boko-haram.html
