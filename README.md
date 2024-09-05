@@ -1,3 +1,11 @@
+**Fugitive Ex-Mayor Whose Case Gripped the Philippines Is Arrested in Indonesia**\
+`Officials have accused Alice Guo of helping criminal syndicates involved in online scams and human trafficking, and have questioned her about whether she was born in China.`\
+https://nytimes.com/2024/09/05/world/asia/philippines-alice-guo-fugitive-arrest.html
+
+**The Pulse: A new American tennis takeover**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5745228/2024/09/05/us-open-american-players-the-pulse/
+
 **Chelsea CEO Jurasek steps down**\
 `Chelsea chief executive Chris Jurasek has left the club a little more than a year after his appointment as part of a reshuffle of management operations at Stamford Bridge.`\
 https://nytimes.com/athletic/5712399/2024/09/05/chelsea-ceo-chris-jurasek-leaves/
