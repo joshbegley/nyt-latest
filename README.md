@@ -1,3 +1,7 @@
+**The Windup: The first time since 1972**\
+`The Windup is The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/5747534/2024/09/05/shota-imanaga-cubs-no-hitter-the-windup/
+
 **Haaland and Salah form shows benefit of 'proper rest' - FIFPro**\
 `Global players’ union FIFPRO has issued its starkest warning yet about the amount of football the game’s stars are playing, saying this season will be the “worst ever” in terms of workload.`\
 https://nytimes.com/athletic/5747506/2024/09/05/fifpro-workload-report/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/05/us/california-man-kills-animals-shooting.html
 **Here’s how Jack Smith modified the Jan. 6 case indictment against Donald Trump.**\
 `By Charlie Savage`\
 https://nytimes.com/live/2024/09/05/us/trump-election-interference-hearing/heres-how-jack-smith-modified-the-jan-6-case-indictment-against-donald-trump
-
-**U.K. Prosecutors Drop Indecent Assault Case Against Harvey Weinstein**\
-`The Crown Prosecution Service said that it had “decided that there is no longer a realistic prospect of conviction.”`\
-https://nytimes.com/2024/09/05/us/harvey-weinstein-indecent-assault-case-dropped-uk.html
 
