@@ -1,3 +1,11 @@
+**The numbers that show the depth in men's 100m sprinting - and why that nearly includes Mondo Duplantis**\
+`Even if Usain Bolt’s record shows no signs of being broken in the immediate future, the current array of elite male sprinters is astounding`\
+https://nytimes.com/athletic/5745388/2024/09/05/100m-strength-in-depth-mondo-duplantis/
+
+**These 12 Pennsylvania Voters Could Decide The Election. They Aren’t Thrilled About It.**\
+`The participants discussed Donald Trump and Kamala Harris, the economy, abortion and other issues important to them.`\
+https://nytimes.com/interactive/2024/09/05/opinion/politics/focus-group-pennsylvania-voters.html
+
 **Cardinals edge Brewers, keep postseason dreams alive with another extra-inning win**\
 `After many mixed messages about multiple players, the Cardinals have decided on set roles for their roster.`\
 https://nytimes.com/athletic/5746049/2024/09/05/cardinals-mlb-wild-card-chase/

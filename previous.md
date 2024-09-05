@@ -1,3 +1,11 @@
+**The numbers that show the depth in men's 100m sprinting - and why that nearly includes Mondo Duplantis**\
+`Even if Usain Bolt’s record shows no signs of being broken in the immediate future, the current array of elite male sprinters is astounding`\
+https://nytimes.com/athletic/5745388/2024/09/05/100m-strength-in-depth-mondo-duplantis/
+
+**These 12 Pennsylvania Voters Could Decide The Election. They Aren’t Thrilled About It.**\
+`The participants discussed Donald Trump and Kamala Harris, the economy, abortion and other issues important to them.`\
+https://nytimes.com/interactive/2024/09/05/opinion/politics/focus-group-pennsylvania-voters.html
+
 **Cardinals edge Brewers, keep postseason dreams alive with another extra-inning win**\
 `After many mixed messages about multiple players, the Cardinals have decided on set roles for their roster.`\
 https://nytimes.com/athletic/5746049/2024/09/05/cardinals-mlb-wild-card-chase/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5744107/2024/09/05/manchester-city-fan-survey-summe
 **Pau Cubarsi's Barcelona story and the tiny Catalan village that shaped him**\
 `Calm, composed and now crucial to Barcelona at 17, Cubarsi's qualities are reflected in the rural Catalan town where he grew up`\
 https://nytimes.com/athletic/5726282/2024/09/05/pau-cubarsi-barcelona-la-liga-la-masia/
-
-**Why Wrexham legend Andy Morrell is cycling from Land's End to John o' Groats**\
-`The cause that has prompted Andy Morrell to put down his microphone and pedal across Britain`\
-https://nytimes.com/athletic/5731066/2024/09/05/andy-morrell-wrexham-legend-pws/
-
-**The Women's Champions League is vitally important to Arsenal - qualifying is a must**\
-`The financial rewards of reaching the group stage are sizeable and it would be a huge blow to Jonas Eidevall's side if they were to miss out`\
-https://nytimes.com/athletic/5743803/2024/09/05/arsenal-women-champions-league-3/
 
