@@ -34,7 +34,7 @@ https://nytimes.com/2024/09/05/us/politics/blinken-haiti-gang-violence.html
 `There are three shows — Oct. 20, Oct. 27 and Dec. 8 — that fall on the same dates as Chiefs regular-season games.`\
 https://nytimes.com/athletic/5499205/2024/09/05/taylor-swift-eras-tour-chiefs-schedule/
 
-**Breaking Impasse, Macron Names Michel Barnier to Be French Prime Minister**\
+**Breaking Impasse, Macron Names Michel Barnier as French Prime Minister**\
 `The president’s choice of a right-wing politician, after an extraordinary delay, is certain to inflame opponents on the left who came out on top in an inconclusive election.`\
 https://nytimes.com/2024/09/05/world/europe/france-prime-minister-barnier-macron.html
 

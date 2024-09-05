@@ -1,3 +1,7 @@
+**Breaking Impasse, Macron Names Michel Barnier as French Prime Minister**\
+`The president’s choice of a right-wing politician, after an extraordinary delay, is certain to inflame opponents on the left who came out on top in an inconclusive election.`\
+https://nytimes.com/2024/09/05/world/europe/france-prime-minister-barnier-macron.html
+
 **Harris’s Shift on Tax Cheers Her Corporate Backers**\
 `The vice president has proposed raising the levy on capital gains, a break from President Biden’s economic agenda, as she tries to keep big donors and progressives on side.`\
 https://nytimes.com/2024/09/05/business/dealbook/kamala-harris-capital-gains-tax.html
