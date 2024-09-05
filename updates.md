@@ -1,3 +1,11 @@
+**Anonymous NASCAR playoff drivers poll: Title favorite, preferred format and more**\
+`We put eight questions to each of NASCAR's 16 playoff drivers to get their candid responses. Here's what they said.`\
+https://nytimes.com/athletic/5747997/2024/09/05/nascar-playoff-drivers-poll-favorite-format-tracks/
+
+**Suspect Claimed Online Threats Had Come From Hacked Account**\
+`The father of the Georgia school shooting suspect told investigators he would be “mad as hell” if his son had made the threats, according to a transcript. “Then all the guns will go away.”`\
+https://nytimes.com/2024/09/05/us/georgia-shooting-suspect-father-gun-safety.html
+
 **Breaking down Cristiano Ronaldo's 900 career goals**\
 `The Portuguese icon has reached another major milestone — here's a complete account of his goalscoring career`\
 https://nytimes.com/athletic/5724492/2024/09/05/cristiano-ronaldo-900-career-goals/
