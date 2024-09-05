@@ -1,3 +1,7 @@
+**Giants, Chapman agree to 6-year, $151 million extension**\
+`Chapman's extension is the second-richest contract in franchise history behind Buster Posey's nine-year, $167 million deal in 2013.`\
+https://nytimes.com/athletic/5746573/2024/09/05/matt-chapman-giants-extension/
+
 **Word of the Day: imminent**\
 `This word has appeared in 856 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/05/learning/word-of-the-day-imminent.html
