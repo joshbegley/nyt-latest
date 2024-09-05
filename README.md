@@ -20,7 +20,7 @@ https://nytimes.com/2024/09/05/us/politics/trump-elon-musk-efficiency-commission
 
 **Picasso Prints and Brazilian Brilliance at the Independent**\
 `The fair’s third 20th-century-focused edition charts a careful line between safety and excitement.`\
-https://nytimes.com/2024/09/05/arts/design/picasso-prints-and-brazilian-brilliance-at-the-independent.html
+https://nytimes.com/2024/09/05/arts/design/independent-art-fair-review.html
 
 **U.N.C. Reports Declines in Black and Hispanic Enrollment**\
 `Along with Harvard University, the University of North Carolina at Chapel Hill was one of two schools defending affirmative action in Supreme Court cases last year.`\
