@@ -1,3 +1,7 @@
+**Trump Questions Fairness of Next Week’s Debate at a Town Hall**\
+`Former President Donald J. Trump, at a Fox News event, insisted without evidence that Vice President Kamala Harris was “going to get the questions in advance.”`\
+https://nytimes.com/2024/09/04/us/politics/trump-fox-news-town-hall.html
+
 **Jessica Pegula knocks Iga Swiatek out of U.S. Open for first Grand Slam semifinal**\
 `The world No. 6 had lost six consecutive Grand Slam quarterfinals before defeating the world No. 1 in New York.`\
 https://nytimes.com/athletic/5746112/2024/09/04/pegula-swiatek-us-open-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5745853/2024/09/04/florida-gators-dj-lagway-start-q
 **FSU starts 0-2 despite NIL team budget of nearly $12 million**\
 `The Noles made a big investment in their defensive line this year with almost $2 million going to their starting front.`\
 https://nytimes.com/athletic/5745716/2024/09/04/florida-state-nil-team-budget-2024/
-
-**Why Trump’s Unity Picks Are Not Very Unifying**\
-`Trump is betting that the political fringe will help him win.`\
-https://nytimes.com/2024/09/04/us/politics/trump-rfk-jr-gabbard-musk.html
 

@@ -1,3 +1,7 @@
+**Trump Questions Fairness of Next Week’s Debate at a Town Hall**\
+`Former President Donald J. Trump, at a Fox News event, insisted without evidence that Vice President Kamala Harris was “going to get the questions in advance.”`\
+https://nytimes.com/2024/09/04/us/politics/trump-fox-news-town-hall.html
+
 **Jessica Pegula knocks Iga Swiatek out of U.S. Open for first Grand Slam semifinal**\
 `The world No. 6 had lost six consecutive Grand Slam quarterfinals before defeating the world No. 1 in New York.`\
 https://nytimes.com/athletic/5746112/2024/09/04/pegula-swiatek-us-open-result/
