@@ -1,3 +1,15 @@
+**Georgia Governor Faces New Pressure Over Far-Right Elections Board Takeover**\
+`A bipartisan alliance looks to rein in what it sees as a rogue board aligned with the far right.`\
+https://nytimes.com/2024/09/05/us/politics/trump-kemp-immigrant-voting.html
+
+**Iowa president: Big Ten done expanding 'for now' amid interest from other schools**\
+`Iowa president Barbara Wilson said the Big Ten is done growing 'for now' even though schools have reached out regarding membership.`\
+https://nytimes.com/athletic/5748742/2024/09/05/big-ten-conference-expansion-iowa-president/
+
+**In an epidemic of mass shootings, there is a persistent threat of copycat violence.**\
+`By Emily Cochrane`\
+https://nytimes.com/live/2024/09/05/us/georgia-school-shooting/in-an-epidemic-of-mass-shootings-there-is-a-persistent-threat-of-copycat-violence
+
 **The TikTok to Hollywood Pipeline**\
 `Tareasa Johnson captivated millions on social media with a multipart story about her ex-husband’s lies. Now, it’s slated to become a TV show.`\
 https://nytimes.com/2024/09/05/style/reesa-teesa-tiktok-.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/05/briefing/hunter-biden-pleaded-guilty-nfl-season.h
 **Anti-Polio Campaign in Gaza Enters New Phase, Hours After Deadly Strike**\
 `As the mass vaccination campaign shifted Thursday from central to southern Gaza, an Israeli strike reportedly killed four in an area where inoculations had just concluded.`\
 https://nytimes.com/2024/09/05/world/middleeast/israel-gaza-polio-airstrike.html
-
-**The Big Problems With Trump’s Latest Economic Plan**\
-`If he wants a spending fund that he controls, it will collide with the Constitution.`\
-https://nytimes.com/live/2024/09/03/opinion/thepoint/the-big-problems-with-trumps-latest-economic-plan
-
-**Friday Briefing: A Judge Weighs a Monumental Trump Decision**\
-`Plus, the clothes that changed men’s fashion.`\
-https://nytimes.com/2024/09/05/briefing/trump-judge-france-indonesia.html
-
-**Larry Ellison Will Control Paramount After Merger**\
-`An F.C.C. filing shows that companies affiliated with Mr. Ellison will own most of the voting interest currently held by Shari Redstone.`\
-https://nytimes.com/2024/09/05/business/media/paramount-skydance-larry-ellison.html
 

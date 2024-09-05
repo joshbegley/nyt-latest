@@ -1,3 +1,15 @@
+**Georgia Governor Faces New Pressure Over Far-Right Elections Board Takeover**\
+`A bipartisan alliance looks to rein in what it sees as a rogue board aligned with the far right.`\
+https://nytimes.com/2024/09/05/us/politics/trump-kemp-immigrant-voting.html
+
+**Iowa president: Big Ten done expanding 'for now' amid interest from other schools**\
+`Iowa president Barbara Wilson said the Big Ten is done growing 'for now' even though schools have reached out regarding membership.`\
+https://nytimes.com/athletic/5748742/2024/09/05/big-ten-conference-expansion-iowa-president/
+
+**In an epidemic of mass shootings, there is a persistent threat of copycat violence.**\
+`By Emily Cochrane`\
+https://nytimes.com/live/2024/09/05/us/georgia-school-shooting/in-an-epidemic-of-mass-shootings-there-is-a-persistent-threat-of-copycat-violence
+
 **The TikTok to Hollywood Pipeline**\
 `Tareasa Johnson captivated millions on social media with a multipart story about her ex-husband’s lies. Now, it’s slated to become a TV show.`\
 https://nytimes.com/2024/09/05/style/reesa-teesa-tiktok-.html
