@@ -1,3 +1,15 @@
+**The Junkification of American Life**\
+`Why we want the wrong things.`\
+https://nytimes.com/2024/09/05/opinion/entertainment-junk-psychology.html
+
+**Bacon Prices and the Windmills of Trump’s Mind**\
+`Who you gonna believe, him or your lying eyes?`\
+https://nytimes.com/2024/09/05/opinion/trump-bacon-prices-economics.html
+
+**Brian Ketcham, Effective Foe of Traffic and Smog, Dies at 85**\
+`An engineer and influential environmentalist in New York, he fought for bus lanes, bridge tolls and limits on parking and against more highways, as in the aborted Westway plan.`\
+https://nytimes.com/2024/09/05/nyregion/brian-ketcham-dead.html
+
 **Giants' Matt Chapman gets the contract he should've received all along: 'I believed in myself'**\
 `"This last offseason was a little strange with the free-agent market, but I was willing to bet on myself," Chapman said.`\
 https://nytimes.com/athletic/5748791/2024/09/05/sf-giants-matt-chapman-contract-extension/
