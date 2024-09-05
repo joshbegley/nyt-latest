@@ -1,3 +1,7 @@
+**Whit Merrifield thinks MLB will have hit-batter rule in place by 2025**\
+`Regarding potential penalties, Merrifield said, “You look at football players, they’ve had to totally rework how they tackle."`\
+https://nytimes.com/athletic/5746145/2024/09/04/braves-whit-merrifield-mlb-hit-batter-rule/
+
 **The suspect was interviewed for online threats of a school attack last year.**\
 `The F.B.I. said the teenager denied making any threats. His father told investigators that he had hunting guns in the house, but said that his son did not have unsupervised access to the weapons.`\
 https://nytimes.com/live/2024/09/04/us/georgia-shooting-apalachee-high-school/the-suspect-was-interviewed-for-online-threats-of-a-school-attack-last-year
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5745825/2024/09/04/phillies-division-title-wins-hea
 **Teen charged in Pearsall shooting case appears in court**\
 `The next hearing will take place Sept. 10 and a potential trial must begin, by law, within 15 days of Wednesday.`\
 https://nytimes.com/athletic/5745766/2024/09/04/ricky-pearsall-shooting-teen-charges/
-
-**Rams' Matthew Stafford and Jonah Jackson discuss new QB/center combo, return to Detroit**\
-`Stafford spent 12 seasons in Detroit and Jackson played his first four seasons there before signing with the Rams this offseason.`\
-https://nytimes.com/athletic/5745254/2024/09/04/rams-matthew-stafford-jonah-jackson-detroit-lions/
 
