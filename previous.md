@@ -1,40 +1,40 @@
-**Harris or Trump? The Prophet of Presidential Elections Is Ready to Call the Race.**\
-`Allan Lichtman’s method for predicting election winners has an impressive track record.`\
-https://nytimes.com/video/opinion/100000009671449/allan-lichtman-presidential-polls-prediction.html
+**Where Are New York City Buyers Coming From?**\
+`Fewer buyers are coming from New Jersey and more are coming from California, according to a study that tracked sales during the first half of the year.`\
+https://nytimes.com/2024/09/05/realestate/nyc-home-buyers.html
 
-**U.S. Open quarterfinal recap: Zhang Shuai's doubles redemption, and straight-set serenity**\
-`The woman with the least-wanted singles record in tennis is making strides on the doubles court`\
-https://nytimes.com/athletic/5746228/2024/09/05/us-open-day-10-takeaways-results-zhang-shuai-muchova/
+**‘My First Film’ Review: Arriving Where You Started**\
+`Zia Anger’s movie about her first movie is full of nested layers, but mostly it’s a meditation on how, and why, we create.`\
+https://nytimes.com/2024/09/05/movies/my-first-film-review.html
 
-**New Zealand’s Maori Name a New Queen**\
-`Nga Wai Hono i te Po, 27, is the second woman to assume the ceremonial role. She takes the throne as some of the country’s pro-Maori policies are being pared back.`\
-https://nytimes.com/2024/09/05/world/asia/new-zealand-maori-monarch.html
+**Michael Keaton Michael Keaton Michael Keaton**\
+`In “Beetlejuice Beetlejuice,” the actor returns to a role now enshrined in pop culture — with 35 years of ups and downs and an Oscar nomination under his belt.`\
+https://nytimes.com/2024/09/05/movies/michael-keaton-beetlejuice-beetlejuice.html
 
-**Rebecca Cheptegei, Olympic Runner From Uganda, Dies After Attack**\
-`The athlete, who was set on fire by a man with whom she was in a relationship, competed in the women’s marathon at the Paris Olympics this summer.`\
-https://nytimes.com/2024/09/05/sports/rebecca-cheptegei-dead-uganda-olympic-athlete.html
+**Republicans Seize on False Theories About Immigrant Voting**\
+`Activists, party lawyers and state officials are mobilizing behind a crackdown on a supposed scourge of noncitizens’ casting ballots. Voting rights advocates say the effort is spreading misinformation.`\
+https://nytimes.com/2024/09/05/us/politics/immigrant-noncitizen-voting-republicans.html
 
-**The Bands and the Fans Were Fake. The $10 Million Was Real.**\
-`Federal prosecutors charged a North Carolina musician with gaming the system to win royalties from streaming services including Spotify, Apple Music and Amazon Music.`\
-https://nytimes.com/2024/09/05/nyregion/nc-man-charged-ai-fake-music.html
+**36 Hours in Door County, Wis.**\
+`Spend a weekend exploring the forest preserves, cliff-lined shores and walkable towns of this peninsula that juts out into Lake Michigan.`\
+https://nytimes.com/interactive/2024/09/05/travel/things-to-do-door-county.html
 
-**Migrants Have Been a ‘Godsend,’ New York Schools Chief Says**\
-`In an interview, Chancellor David C. Banks said migrants had helped schools that were bleeding students. He also promised a big new role for artificial intelligence.`\
-https://nytimes.com/2024/09/05/nyregion/banks-migrants-nyc-schools.html
+**He Was Riding His Mower When Suddenly He Couldn’t Breathe**\
+`After a lifetime of severe asthma and allergies, this felt different — and far worse.`\
+https://nytimes.com/2024/09/05/magazine/tracheobronchomalacia-diagnosis.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/09/05/crosswords/spelling-bee-forum.html
+**There Are Only Two Shakers Left. They’ve Still Got Utopia in Their Sights.**\
+`Can their faith live on?`\
+https://nytimes.com/2024/09/05/magazine/shakers-utopia.html
 
-**Inside the Great Gap Glow-Up**\
-`Can Zac Posen, known for over-the-top glamour, reinvent the American mall brand — and change his reputation in the process?`\
-https://nytimes.com/2024/09/05/style/zac-posen-gap.html
+**What’s the Best Wedding Favor? Let Your Guests Decide.**\
+`A growing number of couples are including gifting suites that allow their wedding attendees to pick a souvenir they’ll actually use.`\
+https://nytimes.com/2024/09/05/style/wedding-gifting-suites.html
 
-**When a Real Estate Boom Came to a Toxic Corner of Brooklyn**\
-`Dozens of new buildings are going up along the famously polluted Gowanus Canal. The discovery of an underground chemical plume hasn’t slowed the development.`\
-https://nytimes.com/2024/09/05/nyregion/gowanus-canal-toxic-real-estate-brooklyn.html
+**What Does a Couple Do When One Partner Is Deported?**\
+`American citizens whose spouses have been deported face wrenching decisions on what is best for their future, especially when they have children.`\
+https://nytimes.com/2024/09/05/us/immigration-deported-spouses.html
 
-**Typhoon Yagi Nears Southern China With Heavy Rain and Strong Winds**\
-`The storm has killed at least 13 people in the Philippines and is forecast to be the strongest to hit Hainan Province in a decade.`\
-https://nytimes.com/2024/09/05/world/asia/typhoon-yagi-china-hong-kong.html
+**Rebecca Cheptegei: Ugandan marathon runner dies aged 33 after being set on fire**\
+`The Ugandan Olympic athlete Rebecca Cheptegei has died at a Kenyan hospital, days after sustaining 80 per cent burns to her body following an attack by her former boyfriend.`\
+https://nytimes.com/athletic/5746644/2024/09/05/rebecca-cheptegei-death-ugandan-runner/
 
