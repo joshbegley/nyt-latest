@@ -1,3 +1,7 @@
+**Sarah Adam: US trailblazer, tough as teak - and a 'murderball' medallist**\
+`Sarah Adam was the only woman in the US' wheelchair rugby team - but made her presence felt, she hopes she has inspired the next generation`\
+https://nytimes.com/athletic/5743943/2024/09/05/sarah-adam-us-paralympics-murderball/
+
 **That’s a Great Reality TV Set. Let’s Use It Again.**\
 `“The Circle” is one of many current shows using the same state-of-the-art production hub to shoot a variety of international versions.`\
 https://nytimes.com/2024/09/05/arts/television/reality-tv-production-hubs-the-circle.html

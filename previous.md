@@ -1,3 +1,7 @@
+**Sarah Adam: US trailblazer, tough as teak - and a 'murderball' medallist**\
+`Sarah Adam was the only woman in the US' wheelchair rugby team - but made her presence felt, she hopes she has inspired the next generation`\
+https://nytimes.com/athletic/5743943/2024/09/05/sarah-adam-us-paralympics-murderball/
+
 **That’s a Great Reality TV Set. Let’s Use It Again.**\
 `“The Circle” is one of many current shows using the same state-of-the-art production hub to shoot a variety of international versions.`\
 https://nytimes.com/2024/09/05/arts/television/reality-tv-production-hubs-the-circle.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/05/arts/astro-bot-review.html
 **Why Kyler Murray will be among the NFL's more intriguing players**\
 `Since his knee injury, Kyler Murray's mind hasn't strayed from the quarterback he wants to be and the team he wants the Cardinals to become.`\
 https://nytimes.com/athletic/5746121/2024/09/05/kyler-murray-cardinals-season-nfl/
-
-**The Athletic FC: Global star airbrushed from history; Ballon d'Or nominees; stadium in sky**\
-`Today in TAFC: Hakan Sukur and why he's afraid to return to Turkey. Plus: the Ballon d'Or nominees are announced (minus Ronaldo and Messi).`\
-https://nytimes.com/athletic/5746860/2024/09/05/global-star-airbrushed-from-history-ballon-dor-nominees-bolivias-stadium-in-the-sky/
 
