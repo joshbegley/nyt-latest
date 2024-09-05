@@ -1,3 +1,11 @@
+**Flood Warning Issued in New Orleans as Storm Threatens Gulf Coast**\
+`Heavy rain was expected to last through the weekend in parts of Louisiana and Mississippi.`\
+https://nytimes.com/2024/09/05/us/storm-system-louisiana-flooding.html
+
+**How Georgia’s Gun Laws Compare to Those of Other States**\
+`The state does not have universal background checks for gun purchases, safe storage laws or a so-called red-flag law — measures instituted elsewhere in response to gun violence.`\
+https://nytimes.com/2024/09/05/us/georgia-gun-laws.html
+
 **Reporting From Row Z at the U.S. Open**\
 `Two New York Times reporters climbed their way to the nosebleed sections of Arthur Ashe Stadium, where they met dedicated tennis fans.`\
 https://nytimes.com/2024/09/05/insider/reporting-from-row-z-at-the-us-open.html

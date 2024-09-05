@@ -1,3 +1,7 @@
+**Flood Warning Issued in New Orleans as Storm Threatens Gulf Coast**\
+`Heavy rain was expected to last through the weekend in parts of Louisiana and Mississippi.`\
+https://nytimes.com/2024/09/05/us/storm-system-louisiana-flooding.html
+
 **Reporting From Row Z at the U.S. Open**\
 `Two New York Times reporters climbed their way to the nosebleed sections of Arthur Ashe Stadium, where they met dedicated tennis fans.`\
 https://nytimes.com/2024/09/05/insider/reporting-from-row-z-at-the-us-open.html
@@ -26,15 +30,11 @@ https://nytimes.com/2024/09/05/nyregion/banks-sheena-fbi-search-nyc.html
 `Readers discuss gun laws, trying the suspect as an adult, defining mass shootings and more. Also: A view from AIPAC; an anti-family Republican Party.`\
 https://nytimes.com/2024/09/05/opinion/school-shooting-georgia.html
 
-**How Georgia’s Gun Laws Compare to Other States’**\
+**How Georgia’s Gun Laws Compare to Those of Other States**\
 `The state does not have universal background checks for gun purchases, safe storage laws or a so-called red-flag law — measures instituted elsewhere in response to gun violence.`\
 https://nytimes.com/2024/09/05/us/georgia-gun-laws.html
 
 **German Police Shoot Gunman Dead Near Israeli Consulate in Munich**\
 `The shootout with an 18-year-old Austrian came on the anniversary of the attack on the Munich Olympics that left 11 Israelis dead, and was being investigated as a possible terrorist attack.`\
 https://nytimes.com/2024/09/05/world/europe/german-police-shoot-gunman-dead-near-israeli-consulate-in-munich.html
-
-**John Sterling to call Yankees playoff games**\
-`Sterling, who retired from the radio booth in April, will call home and road games for the Yankees in October.`\
-https://nytimes.com/athletic/5747500/2024/09/05/yankees-john-sterling-playoffs-return-wfan/
 
