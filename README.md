@@ -1,3 +1,19 @@
+**Teenage E-Cigarette Use Continues to Decline**\
+`The percentage of middle and high school students reporting that they vaped tobacco products dropped to about a third of those students reporting use of e-cigarettes at a vaping peak in 2019, a new survey shows.`\
+https://nytimes.com/2024/09/05/health/e-cigarettes-teenagers-vaping.html
+
+**‘Beetlejuice Beetlejuice’ Review: Delightfully Undead Again**\
+`Tim Burton has brought the band back together — Michael Keaton, Winona Ryder, even Bob the shrunken head guy — for a fun but less edgy sequel.`\
+https://nytimes.com/2024/09/05/movies/beetlejuice-beetlejuice-review.html
+
+**U.S. Charges American Commentator Who Works for Russian State TV**\
+`Dmitri K. Simes, who was an adviser to Donald J. Trump’s first campaign, and his wife, Anastasia Simes, are accused of violating U.S. sanctions.`\
+https://nytimes.com/2024/09/05/us/politics/russia-us-simes-indictment-election.html
+
+**Big 12 pauses expansion discussions with UConn**\
+`The Big 12 has explored adding UConn since at least last year as the conference looks to continue expanding.`\
+https://nytimes.com/athletic/5747939/2024/09/05/big-12-uconn-expansion-discussion-paused/
+
 **There’s an Eggplant for That**\
 `Eggplant croquettes, Bolognese, adobo and pretty much everything you could want for aubergine season.`\
 https://nytimes.com/2024/09/05/dining/theres-an-eggplant-for-that.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/09/05/us/trump-election-interference-hearing/jack-
 **Why these 4 NFL teams are primed for turnaround seasons**\
 `Our two underdogs analysts make their picks of four teams that should overperform this season. Who dat.`\
 https://nytimes.com/athletic/5747376/2024/09/05/nfl-underdogs-4-teams-that-could-outperform/
-
-**USA Hockey announces 2024 Hall of Fame class**\
-`The enshrinement will be held on December 4, 2024, in Pittsburgh.`\
-https://nytimes.com/athletic/5747666/2024/09/05/usa-hockey-2024-hall-of-fame/
-
-**Charges against ex-Panthers exec Adrian Wilson dismissed**\
-`Wilson received deferred prosecution on a disorderly conduct charge and said he's entered a diversion program.`\
-https://nytimes.com/athletic/5747768/2024/09/05/adrian-wilson-charges-dismissed-cardinals-panthers/
-
-**At 30, The Armory Show Asks, Can Art Fairs Still be Relevant?**\
-`Among its 235 exhibitors from 30 countries, our critic finds these standout booths — and hails three local curators who have brought some sections exciting new life.`\
-https://nytimes.com/2024/09/05/arts/design/armory-show-art-fair-review.html
-
-**Details of a hostage-prisoner exchange are another obstacle in Gaza cease-fire talks, U.S. officials say.**\
-`By Lara Jakes`\
-https://nytimes.com/live/2024/09/05/world/israel-hamas-gaza-war/details-of-a-hostage-prisoner-exchange-are-another-obstacle-in-gaza-cease-fire-talks-us-officials-say
 
