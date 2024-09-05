@@ -1,3 +1,11 @@
+**10 Dynamic Wines From Spain to Drink Now**\
+`Great bottles are being made all over the world, but right now no country’s are as exciting or compelling as Spain’s.`\
+https://nytimes.com/2024/09/05/dining/drinks/spain-wines.html
+
+**Jack Smith shows flashes of emotion as Trump’s election case returns to court.**\
+`By Eileen Sullivan`\
+https://nytimes.com/live/2024/09/05/us/trump-election-interference-hearing/jack-smith-shows-flashes-of-emotion-as-trumps-election-case-returns-to-court
+
 **Why these 4 NFL teams are primed for turnaround seasons**\
 `Our two underdogs analysts make their picks of four teams that should overperform this season. Who dat.`\
 https://nytimes.com/athletic/5747376/2024/09/05/nfl-underdogs-4-teams-that-could-outperform/
