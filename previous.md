@@ -1,3 +1,15 @@
+**There’s an Eggplant for That**\
+`Eggplant croquettes, Bolognese, adobo and pretty much everything you could want for aubergine season.`\
+https://nytimes.com/2024/09/05/dining/theres-an-eggplant-for-that.html
+
+**Chargers add Herbert (foot) to injury report after NFL guidance**\
+`The Los Angeles Chargers added quarterback Justin Herbert to the injury report Thursday with a foot injury after they said they were advised to do so by the league.`\
+https://nytimes.com/athletic/5747937/2024/09/05/justin-herbert-foot-injury-chargers-week-1/
+
+**Talk of the Devils announces new tour dates**\
+`Join Ian, Laurie, Carl and Andy in Belfast and Dublin later this year`\
+https://nytimes.com/athletic/5739478/2024/09/05/manchester-united-podcast-talk-of-the-devils-live-shows/
+
 **10 Dynamic Wines From Spain to Drink Now**\
 `Great bottles are being made all over the world, but right now no country’s are as exciting or compelling as Spain’s.`\
 https://nytimes.com/2024/09/05/dining/drinks/spain-wines.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/05/arts/design/armory-show-art-fair-review.html
 **Details of a hostage-prisoner exchange are another obstacle in Gaza cease-fire talks, U.S. officials say.**\
 `By Lara Jakes`\
 https://nytimes.com/live/2024/09/05/world/israel-hamas-gaza-war/details-of-a-hostage-prisoner-exchange-are-another-obstacle-in-gaza-cease-fire-talks-us-officials-say
-
-**MLB bullpen report: Yankees getting 'creative' at closer, Ben Joyce making a play for 2025 and more**\
-`Greg Jewett reports on all the latest developments across MLB bullpens, including Angels reliever Ben Joyce's sterling audition for 2025. `\
-https://nytimes.com/athletic/5747732/2024/09/05/mlb-bullpen-report-yankees-getting-creative-at-closer-ben-joyce-making-a-play-for-2025-and-more/
-
-**They Thought It Was Safe to Go Home. Then They Were Slaughtered.**\
-`Boko Haram killed at least 170 villagers in northeastern Nigeria, community leaders say, in what is likely one of the deadliest attacks in recent years.`\
-https://nytimes.com/2024/09/05/world/africa/boko-haram-nigeria-mafa-attack.html
-
-**The winner in November will have a huge effect on the cases against Trump.**\
-`By Alan Feuer`\
-https://nytimes.com/live/2024/09/05/us/trump-election-interference-hearing/the-winner-in-november-will-have-a-huge-effect-on-the-cases-against-trump
 
