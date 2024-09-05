@@ -1,3 +1,7 @@
+**Telegram’s Founder, in First Comments Since Arrest, Defends the App**\
+`Pavel Durov, held in France since last month, blamed “growing pains” for the company’s problems and pledged to make improvements.`\
+https://nytimes.com/2024/09/05/technology/telegram-pavel-durov-comments.html
+
 **Tip on School Shooting Suspect Last Year Led to Dead End**\
 `The teenager charged with killing four people at his Georgia high school on Wednesday had been investigated for an online threat. But he denied making it, and the authorities could not prove he did.`\
 https://nytimes.com/2024/09/05/us/georgia-shooting-colt-gray-threat.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5748742/2024/09/05/big-ten-conference-expansion-iow
 **In an epidemic of mass shootings, there is a persistent threat of copycat violence.**\
 `By Emily Cochrane`\
 https://nytimes.com/live/2024/09/05/us/georgia-school-shooting/in-an-epidemic-of-mass-shootings-there-is-a-persistent-threat-of-copycat-violence
-
-**The TikTok to Hollywood Pipeline**\
-`Tareasa Johnson captivated millions on social media with a multipart story about her ex-husband’s lies. Now, it’s slated to become a TV show.`\
-https://nytimes.com/2024/09/05/style/reesa-teesa-tiktok-.html
 
