@@ -1,3 +1,5 @@
+**How a Sleek Little Hair Pin Transformed My Sad Mom Bun **\
+
 **How to Pack for a 3-Day Trip With Just a ‘Personal Item’**\
 
 **NFL Week 1 score predictions: Model projections for spread and total on every game**\
