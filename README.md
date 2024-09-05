@@ -1,3 +1,11 @@
+**Rich Homie Quan, Melodic Atlanta Rapper, Dies at 34**\
+`The rapper, who was at one time affiliated with Young Thug, had a 2015 hit with “Flex (Ooh, Ooh, Ooh),” which spawned a dance craze.`\
+https://nytimes.com/2024/09/05/arts/music/rich-homie-quan-dead.html
+
+**Trump Praises Tariffs, and William McKinley, to Power Brokers**\
+`In an address about the kind of economy he hopes to build for the 21st century, the former president harked back to the end of another century: the 19th.`\
+https://nytimes.com/2024/09/05/us/politics/trump-tariffs-william-mckinley.html
+
 **Hunter Biden Pleaded Guilty**\
 `Also, teenage vaping dropped to a 10-year low. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/09/05/briefing/hunter-biden-pleaded-guilty-nfl-season.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5747120/2024/09/05/texas-michigan-clemson-until-sat
 **NWSL commissioner: CBA is step in becoming 'best league in the world'**\
 `Berman spoke at the Bloomberg Power Players conference in New York for the first time since the CBA was announced.`\
 https://nytimes.com/athletic/5748542/2024/09/05/nwsl-commissioner-jessica-berman-cba/
-
-**Anonymous NASCAR playoff drivers poll: Title favorite, preferred format and more**\
-`We put eight questions to each of NASCAR's 16 playoff drivers to get their candid responses. Here's what they said.`\
-https://nytimes.com/athletic/5747997/2024/09/05/nascar-playoff-drivers-poll-favorite-format-tracks/
-
-**Suspect Claimed Online Threats Had Come From Hacked Account**\
-`The father of the Georgia school shooting suspect told investigators he would be “mad as hell” if his son had made the threats, according to a transcript. “Then all the guns will go away.”`\
-https://nytimes.com/2024/09/05/us/georgia-shooting-suspect-father-gun-safety.html
 
