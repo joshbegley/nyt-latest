@@ -1,3 +1,7 @@
+**USC retires Caleb Williams No. 13, reinstates Reggie Bush's No. 5**\
+`Williams is USC's eighth Heisman winner. Bush's jersey will return with the Trojans' other Heisman winners after being removed in 2010.`\
+https://nytimes.com/athletic/5748894/2024/09/05/caleb-williams-reggie-bush-usc-trojans-football-jersey-number-retired/
+
 **Telegram’s Founder, in First Comments Since Arrest, Defends the App**\
 `Pavel Durov, held in France since last month, blamed “growing pains” for the company’s problems and pledged to make improvements.`\
 https://nytimes.com/2024/09/05/technology/telegram-pavel-durov-comments.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/05/us/politics/trump-kemp-immigrant-voting.html
 **Iowa president: Big Ten done expanding 'for now' amid interest from other schools**\
 `Iowa president Barbara Wilson said the Big Ten is done growing 'for now' even though schools have reached out regarding membership.`\
 https://nytimes.com/athletic/5748742/2024/09/05/big-ten-conference-expansion-iowa-president/
-
-**In an epidemic of mass shootings, there is a persistent threat of copycat violence.**\
-`By Emily Cochrane`\
-https://nytimes.com/live/2024/09/05/us/georgia-school-shooting/in-an-epidemic-of-mass-shootings-there-is-a-persistent-threat-of-copycat-violence
 

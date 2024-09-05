@@ -1,3 +1,7 @@
+**USC retires Caleb Williams No. 13, reinstates Reggie Bush's No. 5**\
+`Williams is USC's eighth Heisman winner. Bush's jersey will return with the Trojans' other Heisman winners after being removed in 2010.`\
+https://nytimes.com/athletic/5748894/2024/09/05/caleb-williams-reggie-bush-usc-trojans-football-jersey-number-retired/
+
 **Telegram’s Founder, in First Comments Since Arrest, Defends the App**\
 `Pavel Durov, held in France since last month, blamed “growing pains” for the company’s problems and pledged to make improvements.`\
 https://nytimes.com/2024/09/05/technology/telegram-pavel-durov-comments.html
