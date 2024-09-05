@@ -1,3 +1,11 @@
+**Here’s how Jack Smith modified the Jan. 6 case indictment against Donald Trump.**\
+`By Charlie Savage`\
+https://nytimes.com/live/2024/09/05/us/trump-election-interference-hearing/heres-how-jack-smith-modified-the-jan-6-case-indictment-against-donald-trump
+
+**U.K. Prosecutors Drop Indecent Assault Case Against Harvey Weinstein**\
+`The Crown Prosecution Service said that it had “decided that there is no longer a realistic prospect of conviction.”`\
+https://nytimes.com/2024/09/05/us/harvey-weinstein-indecent-assault-case-dropped-uk.html
+
 **Taylor Swift to attend Chiefs vs. Ravens**\
 `Swift will attend the season opener at Arrowhead Stadium to cheer on her boyfriend and Chiefs TE Travis Kelce, a source said.`\
 https://nytimes.com/athletic/5747263/2024/09/05/taylor-swift-travis-kelce-chiefs-ravens/
