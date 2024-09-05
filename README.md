@@ -1,3 +1,7 @@
+**Tip on School Shooting Suspect Last Year Led to Dead End**\
+`The teenager charged with killing four people at his Georgia high school on Wednesday had been investigated for an online threat. But he denied making it, and the authorities could not prove he did.`\
+https://nytimes.com/2024/09/05/us/georgia-shooting-colt-gray-threat.html
+
 **The Junkification of American Life**\
 `Why we want the wrong things.`\
 https://nytimes.com/2024/09/05/opinion/entertainment-junk-psychology.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/05/us/georgia-school-shooting/in-an-epidemic-of
 **The TikTok to Hollywood Pipeline**\
 `Tareasa Johnson captivated millions on social media with a multipart story about her ex-husband’s lies. Now, it’s slated to become a TV show.`\
 https://nytimes.com/2024/09/05/style/reesa-teesa-tiktok-.html
-
-**Woman in France Testifies Against Husband Accused of Bringing Men to Rape Her**\
-`Gisèle Pelicot spoke of the horror of being told by the police that they had evidence her husband had drugged her for years and brought men into their home to join him in raping her.`\
-https://nytimes.com/2024/09/05/world/europe/france-rape-trial-pelicot-testimony.html
 
