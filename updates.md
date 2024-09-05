@@ -1,3 +1,7 @@
+**Friday Briefing: A Judge Weighs a Monumental Trump Decision**\
+`Plus, the clothes that changed men’s fashion.`\
+https://nytimes.com/2024/09/05/briefing/trump-judge-france-indonesia.html
+
 **Larry Ellison Will Control Paramount After Merger**\
 `An F.C.C. filing shows that companies affiliated with Mr. Ellison will own most of the voting interest currently held by Shari Redstone.`\
 https://nytimes.com/2024/09/05/business/media/paramount-skydance-larry-ellison.html
