@@ -1,3 +1,7 @@
+**'I don’t think there’s concern at all': Yankees have 40-41 record in last 81 games**\
+`New York has been able to flounder for the past three months with very few negative consequences in the standings.`\
+https://nytimes.com/athletic/5746479/2024/09/05/yankees-lose-to-rangers/
+
 **Jimmy Kimmel Laughs Off a Verbal Stumble**\
 `Kimmel mocked Donald Trump for flubbing words before doing so himself on Wednesday, saying, “That’s why I’m not going to be president.”`\
 https://nytimes.com/2024/09/05/arts/television/jimmy-kimmel-flubbed-line.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5733897/2024/09/05/ao-tanaka-leeds-united-bargain-g
 **Daniel Podence - exhilarating, frustrating, exciting and controversial to the end**\
 `The manner of Daniel Podence's departure from Wolves was a fitting end - on and off the pitch - to his Molineux career `\
 https://nytimes.com/athletic/5744095/2024/09/05/daniel-podence-wolves-exit/
-
-**What Carlos Soler will bring to West Ham**\
-`The on-loan PSG man should add nous and attacking flair to West Ham's midfield`\
-https://nytimes.com/athletic/5741212/2024/09/05/carlos-soler-west-ham-psg-midfielder/
 
