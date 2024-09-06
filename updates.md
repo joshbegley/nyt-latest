@@ -1,3 +1,23 @@
+**Why I Still Think Trump Will Win**\
+`Three reasons to doubt the Democrats’ chances.`\
+https://nytimes.com/2024/09/06/opinion/trump-victory.html
+
+**My Grandma Has Dementia. Should I Help Her Vote?**\
+`The magazine’s Ethicist columnist on helping someone with a disability carry out a civic responsibility.`\
+https://nytimes.com/2024/09/06/magazine/grandma-dementia-voting-help-ethics.html
+
+**Kamala Harris Needs a Better Plan for Taxing the Ultrarich**\
+`Taxing unrealized capital gains is a poor way to achieve a laudable goal.`\
+https://nytimes.com/2024/09/06/opinion/harris-tax-capital-gains.html
+
+**4 of the Best Books About Politics**\
+`The last few months have felt like a political thriller, so we asked you to tell us about your favorite books about politics. Here are a few of those books.`\
+https://nytimes.com/video/us/politics/100000009673004/4-of-the-best-books-about-politics.html
+
+**G.O.P. Candidates Distort Records on Women, Seeking to Blunt a Liability**\
+`Congressional Republicans in races around the country are seeking to appeal to women by pledging support for I.V.F. and abortion access, even if they have opposed them in the past.`\
+https://nytimes.com/2024/09/06/us/politics/gop-candidates-women-issues.html
+
 **UNC's Max Johnson to return after season-ending injury: Reports**\
 `Johnson says he feels he has “a lot of football left in me, and know I will be back out there next year.”`\
 https://nytimes.com/athletic/5750765/2024/09/06/max-johnson-unc-injury-return/
