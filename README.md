@@ -1,3 +1,7 @@
+**The Big Number: $3.8 Billion**\
+`The amount offered by Nordstrom’s founding family to buy its namesake retailer.`\
+https://nytimes.com/2024/09/06/business/the-big-number-3-8-billion-nordstrom-retailer.html
+
 **Bergwijn responds to Koeman criticism of Saudi move: 'Don’t treat players like that'**\
 `Steven Bergwijn has criticised Ronald Koeman&#8217;s treatment of him after the Netherlands head coach said the winger would no longer be selected for the national team following his move to Al Ittihad from Ajax.`\
 https://nytimes.com/athletic/5750294/2024/09/06/steven-bergwijn-ronaldo-koeman-saudi-netherlands/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/06/well/chemical-peels-at-home-skin-care.html
 **Review: This ‘Figaro’ Puts All Mozart’s Characters in One Voice**\
 `By singing men and women, nobles and servants, the countertenor Anthony Roth Costanzo takes the opera’s theme of human mutability to a chaotic extreme.`\
 https://nytimes.com/2024/09/06/arts/review-marriage-of-figaro-little-island-anthony-roth-costanzo.html
-
-**Books Deals Can Add Up to Millions of Dollars for Supreme Court Justices**\
-`For the justices, selling books remains one of the few ways to earn income outside the court.`\
-https://nytimes.com/2024/09/06/us/politics/supreme-court-justice-book-deals.html
 
