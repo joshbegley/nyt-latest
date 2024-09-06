@@ -1,3 +1,11 @@
+**The Windup: There are levels to this contract**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5750382/2024/09/06/matt-chapman-contract-giants-the-windup/
+
+**Connor Stalions becomes acting coach at Detroit school**\
+`Connor Stalions, a volunteer DC, is leading the high school team while head coach William McMichael recovers from a minor stroke.`\
+https://nytimes.com/athletic/5750285/2024/09/06/connor-stalions-head-coach-job-michigan/
+
 **The Best of Late Night This Week**\
 `After a break and a holiday Monday, the hosts returned to discuss Kamala Harris being ahead in the polls, Robert F. Kennedy Jr.’s jabs about proficiency in the English language and Donald Trump’s town hall on Fox.`\
 https://nytimes.com/interactive/2024/09/06/arts/best-of-late-night-townhall.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/06/us/politics/supreme-court-justice-book-deals.html
 **The Fed Needs to Pull the Plane Up**\
 `The soft landing has happened; now it’s time to cut interest rates.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/krugman-fed-interest-rates
-
-**AL playoff contenders' biggest concern and key X-factor to watch down the stretch**\
-`What will be the difference-making variables for postseason contenders in the final weeks of the regular season and into October?`\
-https://nytimes.com/athletic/5749630/2024/09/06/mlb-playoffs-al-contenders-concerns-x-factors/
-
-**Grealish, Colwill set to start for England vs Republic of Ireland**\
-`Jack Grealish is set to start for England in Lee Carsley&#8217;s first game as interim head coach.`\
-https://nytimes.com/athletic/5749678/2024/09/06/jack-grealish-england-republic-ireland/
 
