@@ -1,3 +1,7 @@
+**7-Eleven Rejects Takeover Bid from Big Canadian Chain**\
+`Japan’s Seven & i Holdings, the operator of 7-Eleven, has rebuffed a buyout offer that would have been the largest foreign-led acquisition of a Japanese company.`\
+https://nytimes.com/2024/09/05/business/7-eleven-rejects-couch-tarde-bid.html
+
 **No. 3 draft pick Beckett Sennecke out at least 6 weeks with injury**\
 `Anaheim Ducks prospect Beckett Sennecke, the No.`\
 https://nytimes.com/athletic/5749368/2024/09/05/beckett-sennecke-injury-ducks/
