@@ -1,3 +1,7 @@
+**NFL season opener delayed by Kansas City thunderstorm**\
+`Plans for the Chiefs' banner presentation are continuing Thursday, with the celebration being pushed back to 8:30 p.m. ahead of kickoff.`\
+https://nytimes.com/athletic/5748995/2024/09/05/chiefs-ravens-weather-delay-nfl-opener/
+
 **2 Brothers Sentenced to More Than 17 Years in Prison in Sextortion Scheme**\
 `Two brothers from Nigeria helped run an online sextortion operation that prosecutors said resulted in the death of a high school student.`\
 https://nytimes.com/2024/09/05/us/nigeria-brothers-sentence-sex-extortion.html
