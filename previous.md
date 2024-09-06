@@ -1,3 +1,7 @@
+**Frances Tiafoe and Taylor Fritz step onto Arthur Ashe after a 12-year journey**\
+`About a dozen years ago, two 14-year-old boys arrived in Boca Raton, Florida for a tennis camp. Now they are U.S. Open semifinalists.`\
+https://nytimes.com/athletic/5748157/2024/09/06/tiafoe-fritz-us-open-semifinal/
+
 **U.S. Open day 11 takeaways: Sara Errani and Andrea Vavassori win mixed doubles**\
 `On women's semifinal day, an Italian triumph and an American valediction in the mixed doubles.`\
 https://nytimes.com/athletic/5748887/2024/09/06/us-open-takeaways-mixed-doubles-final-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5749549/2024/09/06/cristiano-ronaldo-900-goals/
 **Seth Meyers: Trump and Vance ‘Can’t Beat the Weird Charges’**\
 `The “Late Night” host said that Republican efforts to turn the accusations back on Democrats are “only making things worse.”`\
 https://nytimes.com/2024/09/06/arts/television/seth-meyers-trump-vance-weird.html
-
-**Word of the Day: bastion**\
-`This word has appeared in 214 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/09/06/learning/word-of-the-day-bastion.html
 

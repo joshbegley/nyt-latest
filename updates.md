@@ -1,3 +1,7 @@
+**Frances Tiafoe and Taylor Fritz step onto Arthur Ashe after a 12-year journey**\
+`About a dozen years ago, two 14-year-old boys arrived in Boca Raton, Florida for a tennis camp. Now they are U.S. Open semifinalists.`\
+https://nytimes.com/athletic/5748157/2024/09/06/tiafoe-fritz-us-open-semifinal/
+
 **U.S. Open day 11 takeaways: Sara Errani and Andrea Vavassori win mixed doubles**\
 `On women's semifinal day, an Italian triumph and an American valediction in the mixed doubles.`\
 https://nytimes.com/athletic/5748887/2024/09/06/us-open-takeaways-mixed-doubles-final-result/
