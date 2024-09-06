@@ -1,3 +1,7 @@
+**Alex Morgan reflects on her legacy ahead of final game**\
+`“I hope my legacy is that I pushed the game forward,” Morgan said in a news conference Friday.`\
+https://nytimes.com/athletic/5750629/2024/09/06/alex-morgan-legacy-last-game-wave/
+
 **ACC claims FSU and Clemson are too late in contesting grant of rights**\
 `The ACC claims Florida State and Clemson accepted the ACC's contracts for years without pushback and have missed the statute of limitations.`\
 https://nytimes.com/athletic/5750778/2024/09/06/acc-florida-state-clemson-lawsuit/
