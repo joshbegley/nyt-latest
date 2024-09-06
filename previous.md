@@ -1,3 +1,11 @@
+**Why Niko Sigur chose Canada over Croatia: 'He’s got that savviness even though he's young'**\
+`Sigur switched his international allegiance in August and has the chance to establish himself as the future of the Canadian midfield`\
+https://nytimes.com/athletic/5749410/2024/09/06/canada-sigur-croatia-midfield-marsch/
+
+**Texas at Michigan picks, odds, how to watch: Longhorns favored at defending champs**\
+`Michigan is the defending national champion, but Texas enters The Big House favored by a touchdown.`\
+https://nytimes.com/athletic/5748046/2024/09/06/texas-michigan-picks-odds-how-to-watch/
+
 **Can Michigan beat Texas? Big House showdown could have big College Football Playoff impact**\
 `No. 10 Michigan's 23-game winning streak at the Big House is on the line against No. 3 Texas. Here's what to watch and expect.`\
 https://nytimes.com/athletic/5748756/2024/09/06/michigan-football-texas-preview-predictions/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/06/us/apalachee-high-school-georgia-shooting.html
 **The Indelible Work of One Hostage’s Mother**\
 `Rachel Goldberg made her son, Hersh, a presence in the minds of parents around the world.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/the-indelible-work-of-one-hostages-mother
-
-**The New York Times News Quiz, September 6, 2024**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2024/09/06/briefing/news-quiz-harris-cheney-school-shooting.html
-
-**8 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://nytimes.com/2024/09/06/movies/new-movies-this-week-critics.html
 

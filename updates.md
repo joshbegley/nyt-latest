@@ -1,3 +1,11 @@
+**Why Niko Sigur chose Canada over Croatia: 'He’s got that savviness even though he's young'**\
+`Sigur switched his international allegiance in August and has the chance to establish himself as the future of the Canadian midfield`\
+https://nytimes.com/athletic/5749410/2024/09/06/canada-sigur-croatia-midfield-marsch/
+
+**Texas at Michigan picks, odds, how to watch: Longhorns favored at defending champs**\
+`Michigan is the defending national champion, but Texas enters The Big House favored by a touchdown.`\
+https://nytimes.com/athletic/5748046/2024/09/06/texas-michigan-picks-odds-how-to-watch/
+
 **Can Michigan beat Texas? Big House showdown could have big College Football Playoff impact**\
 `No. 10 Michigan's 23-game winning streak at the Big House is on the line against No. 3 Texas. Here's what to watch and expect.`\
 https://nytimes.com/athletic/5748756/2024/09/06/michigan-football-texas-preview-predictions/
