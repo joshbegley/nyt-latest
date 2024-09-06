@@ -7,7 +7,7 @@ https://nytimes.com/2024/09/05/us/nigeria-brothers-sentence-sex-extortion.html
 https://nytimes.com/2024/09/05/us/politics/tim-walz-pennsylvania-democrats.html
 
 **NFL season opener delayed by Kansas City thunderstorm**\
-`After months of hype, the return of the NFL regular season will be delayed for 20 more minutes, as inclement weather surrounds Arrowhead Stadium in Kansas City, Mo.`\
+`Plans for the Chiefs' banner presentation are continuing Thursday, with the celebration being pushed back to 8:30 p.m. ahead of kickoff.`\
 https://nytimes.com/athletic/5748995/2024/09/05/chiefs-ravens-weather-delay-nfl-opener/
 
 **49ers' Ricky Pearsall shows up at practice; Christian McCaffrey is limited**\
