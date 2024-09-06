@@ -1,3 +1,7 @@
+**American Activist Dies After Being Shot at a West Bank Protest**\
+`Aysenur Ezgi Eygi, a 26-year-old American, was shot at a protest against an Israeli outpost in the West Bank town of Beita.`\
+https://nytimes.com/video/world/middleeast/100000009677822/american-activist-killed-west-bank-.html
+
 **Why I Still Think Trump Will Win**\
 `Three reasons to doubt the Democrats’ chances.`\
 https://nytimes.com/2024/09/06/opinion/trump-victory.html
