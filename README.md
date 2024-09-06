@@ -1,3 +1,7 @@
+**Jones: Gap between Chiefs and Ravens is bigger than toe that decided game**\
+`The Chiefs weren't perfect in Thursday's 27-20 win, but what Patrick Mahomes and his teammates put on display should concern competitors.`\
+https://nytimes.com/athletic/5749588/2024/09/06/chiefs-ravens-toe-afc-contenders/
+
 **The Athletic FC: World's worst team win first match in 20 years, Ronaldo nets 900, Morgan retires**\
 `Today in TAFC: A first competitive win for San Marino, we break down Ronaldo's 900 career goals and explain Alex Morgan's legacy.`\
 https://nytimes.com/athletic/5749701/2024/09/06/san-marino-ronaldo-900-alex-morgan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5748516/2024/09/06/raiders-chargers-antonio-pierce-
 **The Pulse: NFL's opener came down to a toe**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5748295/2024/09/06/chiefs-ravens-toe-nfl-the-pulse/
-
-**Smartphones in Schools**\
-`How educators are fighting against distractions.`\
-https://nytimes.com/2024/09/06/briefing/smartphones-in-schools.html
 
