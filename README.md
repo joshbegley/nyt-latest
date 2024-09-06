@@ -1,3 +1,7 @@
+**Housing in Ireland Is Broken**\
+`Are the thousands of empty properties scattered across the country any kind of solution?`\
+https://nytimes.com/2024/09/06/opinion/ireland-housing-immigration.html
+
 **China Stops Foreign Adoptions, Ending a Complicated Chapter**\
 `Beijing said the move was in line with international trends, as more countries have limited such adoptions.`\
 https://nytimes.com/2024/09/06/world/asia/china-foreign-adoptions-ban.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5749308/2024/09/06/chiefs-ravens-result-takeaways-n
 **Footballer Inc: How the sport's elite build their brands**\
 `Players know that simply being very good at football is not enough to sustain a post-sporting career — it's now all about the brand`\
 https://nytimes.com/athletic/5709251/2024/09/06/footballer-personal-brand-commercial/
-
-**Row Z: The great ticket rip-off, Kane gunning for trophies - and will no one think of the schedulers?**\
-`Tim Spiers is back to take a sideways look at the peculiarities, contradictions and downright absurdities of the beautiful game`\
-https://nytimes.com/athletic/5747027/2024/09/06/kane-tickets-angelo-ten-hag-everton/
 
