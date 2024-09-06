@@ -1,3 +1,7 @@
+**Smartphones in Schools**\
+`How educators are fighting against distractions.`\
+https://nytimes.com/2024/09/06/briefing/smartphones-in-schools.html
+
 **The agency behind the jobs report has made a series of missteps.**\
 `The Bureau of Labor Statistics, which tracks prices and employment, faces scrutiny.`\
 https://nytimes.com/live/2024/09/06/business/jobs-report-august-economy/jobs-report-bls
