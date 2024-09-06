@@ -1,3 +1,11 @@
+**Dodgers’ Stone goes on IL with shoulder inflammation**\
+`Gavin Stone's 140 innings pitched is a career-high from last years 131 between the majors and triple A.`\
+https://nytimes.com/athletic/5751101/2024/09/06/dodgers-gavin-stone-shoulder-injury/
+
+**West Bank Residents Survey Destruction as Israeli Forces Withdraw**\
+`A 10-day raid by Israeli troops into the occupied territory has been one of the most devastating in years, with at least 39 people killed, according to Palestinian officials.`\
+https://nytimes.com/2024/09/06/world/middleeast/jenin-israel-withdraw-destruction.html
+
 **One Student Kills Another in Dispute at Maryland High School, Authorities Say**\
 `In another case of deadly gunfire at a school, the victim, a 15-year-old student, was airlifted to a trauma center, where he later died. A 16-year-old suspect was in custody on Friday.`\
 https://nytimes.com/2024/09/06/us/joppatowne-maryland-school-shooting.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/06/world/europe/nell-mccafferty-dead.html
 **Delaying Trump’s Sentence May Mean a Stiffer Penalty if He Loses**\
 `The court will be free to make a decision free of political considerations.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/merchan-trump-delayed-sentence
-
-**As Election Nears, Trump Reminds Voters of Sexual Abuse Accusations**\
-`Mr. Trump’s news conference had little to do with the issues in the 2024 presidential race, and seemed like more of a venting exercise over his frustrations about his legal travails.`\
-https://nytimes.com/2024/09/06/us/politics/trump-news-conference-allegations.html
-
-**Lawsuit filed against Chelsea by agent cleared of sending threatening email to Granovskaia**\
-`The football agent cleared of sending former Chelsea director Marina Granovskaia a threatening email says he is filing a lawsuit against the Premier League club.`\
-https://nytimes.com/athletic/5751001/2024/09/06/lawsuit-filed-against-chelsea-by-agent-cleared-of-sending-threatening-email-to-marina-granovskaia/
 
