@@ -1,3 +1,7 @@
+**China Stops Foreign Adoptions, Ending a Complicated Chapter**\
+`Beijing said the move was in line with international trends, as more countries have limited such adoptions. Many would-be adoptive families were left in limbo.`\
+https://nytimes.com/2024/09/06/world/asia/china-foreign-adoptions-ban.html
+
 **Word of the Day: bastion**\
 `This word has appeared in 214 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/06/learning/word-of-the-day-bastion.html

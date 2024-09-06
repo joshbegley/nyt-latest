@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5719372/2024/09/06/fantasy-hockey-dynasty-rankings-
 https://nytimes.com/2024/09/06/opinion/ireland-housing-immigration.html
 
 **China Stops Foreign Adoptions, Ending a Complicated Chapter**\
-`Beijing said the move was in line with international trends, as more countries have limited such adoptions.`\
+`Beijing said the move was in line with international trends, as more countries have limited such adoptions. Many would-be adoptive families were left in limbo.`\
 https://nytimes.com/2024/09/06/world/asia/china-foreign-adoptions-ban.html
 
 **Confused by Chelsea's Conference League squad? It's all about load management...**\
