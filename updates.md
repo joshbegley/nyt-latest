@@ -1,3 +1,11 @@
+**Sergio Mendes: 10 Essential Songs**\
+`The bandleader and musician, who died on Thursday at 83, was a bridge from Brazilian music to the world — and back.`\
+https://nytimes.com/2024/09/06/arts/music/sergio-mendes-songs.html
+
+**A Fake Narrative Could Drive a Real Government Shutdown**\
+`Republicans want a fight over the nonexistent scourge of widespread voting by noncitizens.`\
+https://nytimes.com/2024/09/06/us/politics/noncitizen-voting-government-shutdown.html
+
 **Anthony Rizzo's return to Wrigley Field gives fans a reason to cheer**\
 `Rizzo’s weekend appearance feels like the final chapter of what’s been nearly three years of homecomings at the ballpark.`\
 https://nytimes.com/athletic/5751015/2024/09/06/anthony-rizzo-wrigley-field-return/

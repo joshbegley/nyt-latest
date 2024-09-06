@@ -1,3 +1,11 @@
+**Missouri Reports Bird Flu in a Patient Without a Known Risk**\
+`Previous human infections occurred in workers on farms. But community transmission of the virus remains unlikely for now, experts said.`\
+https://nytimes.com/2024/09/06/health/bird-flu-missouri-cdc.html
+
+**Kara Young Charms in ‘Table 17,’ a Rom-Com That Believes in True Love**\
+`The Tony winner leads a top-notch cast in Zhailon Levingston’s alluringly designed production of Douglas Lyons’s hopeful new play.`\
+https://nytimes.com/2024/09/06/theater/table-17-review-kara-young.html
+
 **Sergio Mendes: 10 Essential Songs**\
 `The bandleader and musician, who died on Thursday at 83, was a bridge from Brazilian music to the world — and back.`\
 https://nytimes.com/2024/09/06/arts/music/sergio-mendes-songs.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5750745/2024/09/06/sinner-draper-us-open-semifinal-
 **Clark Halstead, Real Estate Broker Who Broke the Mold, Dies at 83**\
 `The face of his firm, he opened storefront offices to chase undervalued properties in New York City and emblazoned a London cab with his name.`\
 https://nytimes.com/2024/09/06/nyregion/clark-halstead-dead.html
-
-**Alex Morgan's final game to be on multiple channels, streaming services**\
-`From a ticketing perspective at Snapdragon Stadium in San Diego, the match is trending towards a sell-out.`\
-https://nytimes.com/athletic/5751104/2024/09/06/alex-morgan-broadcast-channels-streaming/
-
-**Anthony Rizzo's return to Wrigley Field gives fans a reason to cheer**\
-`Rizzo’s weekend appearance feels like the final chapter of what’s been nearly three years of homecomings at the ballpark.`\
-https://nytimes.com/athletic/5751015/2024/09/06/anthony-rizzo-wrigley-field-return/
 
