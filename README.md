@@ -1,3 +1,7 @@
+**U.S. Open day 11 takeaways: Sara Errani and Andrea Vavassori win mixed doubles**\
+`On women's semifinal day, an Italian triumph and an American valediction in the mixed doubles.`\
+https://nytimes.com/athletic/5748887/2024/09/06/us-open-takeaways-mixed-doubles-final-result/
+
 **Bootmobile**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2024/09/06/learning/bootmobile.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/06/arts/television/seth-meyers-trump-vance-weird.htm
 **Word of the Day: bastion**\
 `This word has appeared in 214 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/06/learning/word-of-the-day-bastion.html
-
-**Super Typhoon Yagi Drenches Southern China Ahead of Landfall**\
-`Yagi, one of 2024’s strongest storms, is forecast to make landfall on the Chinese island of Hainan on Friday, and then in northern Vietnam on Saturday.`\
-https://nytimes.com/2024/09/06/world/asia/typhoon-yagi-china-hong-kong-vietnam.html
 
