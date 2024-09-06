@@ -1,3 +1,7 @@
+**2 Brothers Sentenced to More Than 17 Years in Prison in Sextortion Scheme**\
+`Two brothers from Nigeria helped run an online sextortion operation that prosecutors said resulted in the death of a high school student.`\
+https://nytimes.com/2024/09/05/us/nigeria-brothers-sentence-sex-extortion.html
+
 **Walz’s Pennsylvania Campaign Swing Underscores Challenges in the Battleground**\
 `With his daughter, Hope, in tow, Gov. Tim Walz made stops in red-leaning parts of a state that both parties see as critical to victory, but his events featured limited interactions with voters.`\
 https://nytimes.com/2024/09/05/us/politics/tim-walz-pennsylvania-democrats.html
