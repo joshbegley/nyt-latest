@@ -1,3 +1,7 @@
+**Nell McCafferty, Larger-Than-Life Irish Journalist, Dies at 80**\
+`Her pugnacious writing on women’s rights, gay rights and other issues helped turn her country into one of the most progressive in Europe.`\
+https://nytimes.com/2024/09/06/world/europe/nell-mccafferty-dead.html
+
 **Delaying Trump’s Sentence May Mean a Stiffer Penalty if He Loses**\
 `The court will be free to make a decision free of political considerations.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/merchan-trump-delayed-sentence
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5751027/2024/09/06/jj-mccarthy-vikings-surgery/
 **Of Politics and the Courtroom**\
 `The judge’s decision to delay Trump’s sentencing shows how much the cases are entwined with the campaign.`\
 https://nytimes.com/2024/09/06/briefing/trump-sentencing-delay.html
-
-**The Yankees Find a Fashion Partner in New York or Nowhere**\
-`A lifestyle brand known for its declarations of N.Y.C. supremacy joins forces with baseball’s winningest franchise.`\
-https://nytimes.com/2024/09/06/style/yankees-nyon-streetwear.html
 
