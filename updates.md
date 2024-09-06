@@ -1,3 +1,7 @@
+**Father of the Accused Shooter Has Been Charged With Second-Degree Murder**\
+`The parent was also charged with four counts of involuntary manslaughter and eight counts of cruelty to children, officials said.`\
+https://nytimes.com/2024/09/05/us/georgia-school-shooting-colt-gray-father.html
+
 **The father of the accused shooter has been charged with second-degree murder.**\
 `By Emily Cochrane and Jacey Fortin`\
 https://nytimes.com/2024/09/05/us/georgia-school-shooting-colt-gray-father.html
