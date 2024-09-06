@@ -1,3 +1,7 @@
+**Kawakami: My 2024 49ers season prediction — 11-6 and the NFC West title**\
+`The 49ers have a top-heavy roster and some schedule complications, but they should have enough talent and experience to win the NFC West.`\
+https://nytimes.com/athletic/5745551/2024/09/06/2024-49ers-season-prediction-kawakami/
+
 **Breaking Down Trumponomics 2.0**\
 `Higher tariffs, lower taxes, and more of Elon Musk: The former president outlined his economic vision to an audience of business leaders. But questions abound.`\
 https://nytimes.com/2024/09/06/business/dealbook/trumponomics-trump-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5748351/2024/09/06/usmnt-players-to-watch-september
 **‘He has a lot of leverage here’: As camp approaches, Bruins' Jeremy Swayman still without a deal**\
 `The Bruins traded Linus Ullmark partly because they believed Swayman was ready to be a workhorse. A contract comes first.`\
 https://nytimes.com/athletic/5748661/2024/09/06/bruins-jeremy-swayman-training-camp/
-
-**Lowetide: What to expect from Oilers' Leon Draisaitl this season**\
-`Draisaitl is reaching a new level of responsibility and maturity and the Oilers are betting that will pay off soon.`\
-https://nytimes.com/athletic/5745923/2024/09/06/leon-draisaitl-contract-stats-oilers/
 
