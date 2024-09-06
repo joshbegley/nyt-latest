@@ -1,3 +1,7 @@
+**Hamas’s Release of Hostage Videos Inflames Divisions in Israel**\
+`The fourth recording in as many days of a hostage killed in Gaza has added to pressure on the Israeli government to reach a cease-fire deal with Hamas.`\
+https://nytimes.com/2024/09/06/world/middleeast/hamas-hostage-videos-goldberg-polin-israel.html
+
 **Stockport's Mangan set to join Ancelotti's coaching staff at Real Madrid**\
 `Stockport County&#8217;s Andy Mangan is set to join Carlo Ancelotti’s coaching staff at Real Madrid.`\
 https://nytimes.com/athletic/5749781/2024/09/06/andy-mangan-real-madrid-coaching-staff/

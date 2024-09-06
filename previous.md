@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5749781/2024/09/06/andy-mangan-real-madrid-coaching
 https://nytimes.com/athletic/5747832/2024/09/06/sf-giants-matt-chapman-extension-analysis/
 
 **Hamas’s Release of Hostage Videos Inflames Divisions in Israel**\
-`The fifth recording in four days of a hostage killed in Gaza has added to pressure on the Israeli government to reach a cease-fire deal with Hamas.`\
+`The fourth recording in as many days of a hostage killed in Gaza has added to pressure on the Israeli government to reach a cease-fire deal with Hamas.`\
 https://nytimes.com/2024/09/06/world/middleeast/hamas-hostage-videos-goldberg-polin-israel.html
 
 **Has Ohio State solved its special teams problems? Brandon Inniss providing early jolt**\
