@@ -1,3 +1,7 @@
+**Boeing’s Starliner Travels Back to Earth Empty**\
+`The two NASA astronauts who traveled on the spacecraft to the International Space Station remained there after NASA officials decided it would be safer for Starliner to return without crew aboard.`\
+https://nytimes.com/video/science/space/100000009678857/boeing-starliner-space-station-nasa.html
+
 **In His Last Months as President, Biden Is Both Liberated and Resigned**\
 `President Biden spent decades seeking the highest office, only to drop his bid for re-election under pressure. These final months before the November election are bittersweet, his allies say.`\
 https://nytimes.com/2024/09/06/us/politics/biden-harris-campaign.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/06/arts/music/sergio-mendes-songs.html
 **A Fake Narrative Could Drive a Real Government Shutdown**\
 `Republicans want a fight over the nonexistent scourge of widespread voting by noncitizens.`\
 https://nytimes.com/2024/09/06/us/politics/noncitizen-voting-government-shutdown.html
-
-**Dodgers’ Stone goes on IL with shoulder inflammation**\
-`Gavin Stone's 140 innings pitched is a career-high from last years 131 between the majors and triple A.`\
-https://nytimes.com/athletic/5751101/2024/09/06/dodgers-gavin-stone-shoulder-injury/
 
