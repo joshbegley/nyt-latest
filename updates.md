@@ -1,3 +1,7 @@
+**A Nuanced, Unreleased Live Bob Dylan Cut, and 8 More New Songs**\
+`Hear tracks by Linkin Park, Halsey, Queen Naija and others.`\
+https://nytimes.com/2024/09/06/arts/music/playlist-bob-dylan-halsey-linkin-park.html
+
 **U.N. Panel Calls for International Peacekeeping Force in Sudan**\
 `The country’s brutal civil war has led to the killing, rape and torture of civilians, including children, as it threatens to destabilize neighboring countries.`\
 https://nytimes.com/2024/09/06/world/europe/sudan-war-crimes-un.html
