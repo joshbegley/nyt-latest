@@ -1,3 +1,7 @@
+**The father of the accused shooter has been charged with second-degree murder.**\
+`By Emily Cochrane and Jacey Fortin`\
+https://nytimes.com/live/2024/09/05/us/georgia-school-shooting/georgia-school-shooting-colt-gray-father
+
 **Aryna Sabalenka beats Emma Navarro to reach second U.S. Open final in a row**\
 `The No. 2 seed produced a performance of power and resolve in a raucous atmosphere.`\
 https://nytimes.com/athletic/5748947/2024/09/05/navarro-sabalenka-us-open-semifinal-result/
