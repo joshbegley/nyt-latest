@@ -1,3 +1,15 @@
+**Sergio Mendes, 83, Dies; Brought Brazilian Rhythms to the U.S. Pop Charts**\
+`A pianist, composer and arranger, he rose to fame with the group Brasil ’66 and remained a force in popular music for more than six decades.`\
+https://nytimes.com/2024/09/06/arts/music/sergio-mendes-dead.html
+
+**Oasis Fans Balked at High Ticket Prices. But Were They ‘Dynamic’?**\
+`A regulator said it was opening an investigation into Ticketmaster’s actions, but the company disputed that “dynamic pricing” came into play.`\
+https://nytimes.com/2024/09/06/arts/music/oasis-reunion-tour-tickets.html
+
+**WSL players and fans have long mixed happily but perhaps a day of reckoning was inevitable**\
+`Chelsea have announced their players will no longer mix with fans before and after games. Was it inevitable - or avoidable?`\
+https://nytimes.com/athletic/5749658/2024/09/06/chelsea-fans-players-wsl/
+
 **The Challenge Is to Write 50,000 Words in a Month. Should ChatGPT Be Able to Help?**\
 `An online writing community was set aflame this week after National Novel Writing Month, or NaNoWriMo, said it wouldn’t take a stance on the use of A.I.`\
 https://nytimes.com/2024/09/06/style/nanowrimo-ai-writing-challenge.html
