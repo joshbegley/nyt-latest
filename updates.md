@@ -1,5 +1,9 @@
 **The Big Number: $3.8 Billion**\
 `The amount offered by Nordstrom’s founding family to buy its namesake retailer.`\
+https://nytimes.com/2024/09/06/business/nordstrom-family-acquisition-offer.html
+
+**The Big Number: $3.8 Billion**\
+`The amount offered by Nordstrom’s founding family to buy its namesake retailer.`\
 https://nytimes.com/2024/09/06/business/the-big-number-3-8-billion-nordstrom-retailer.html
 
 **Bergwijn responds to Koeman criticism of Saudi move: 'Don’t treat players like that'**\
