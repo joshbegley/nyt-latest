@@ -1,3 +1,7 @@
+**Against This Mighty Paralympic Team, a Close Loss Can Feel Like a Win**\
+`Other teams give themselves an A for effort after playing the Dutch women’s wheelchair basketball team, the favorite for the gold medal at the Paris Games.`\
+https://nytimes.com/2024/09/06/world/olympics/netherlands-dutch-women-wheelchair-basketball-paralympics.html
+
 **Harris Opens $110 Million Cash Edge Over Trump After August Fund-Raising Haul**\
 `Vice President Kamala Harris’s campaign reported raising $361 million in August, her first full month as the Democrats’ nominee, far surpassing the $130 million reported by Mr. Trump in the same month.`\
 https://nytimes.com/2024/09/06/us/politics/harris-august-fundraising-trump.html
