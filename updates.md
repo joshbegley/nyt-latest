@@ -1,3 +1,7 @@
+**Anthony Rizzo's return to Wrigley Field gives fans a reason to cheer**\
+`Rizzo’s weekend appearance feels like the final chapter of what’s been nearly three years of homecomings at the ballpark.`\
+https://nytimes.com/athletic/5751015/2024/09/06/anthony-rizzo-wrigley-field-return/
+
 **Dodgers’ Stone goes on IL with shoulder inflammation**\
 `Gavin Stone's 140 innings pitched is a career-high from last years 131 between the majors and triple A.`\
 https://nytimes.com/athletic/5751101/2024/09/06/dodgers-gavin-stone-shoulder-injury/

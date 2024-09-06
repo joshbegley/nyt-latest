@@ -1,3 +1,11 @@
+**Sergio Mendes: 10 Essential Songs**\
+`The bandleader and musician, who died on Thursday at 83, was a bridge from Brazilian music to the world — and back.`\
+https://nytimes.com/2024/09/06/arts/music/sergio-mendes-songs.html
+
+**A Fake Narrative Could Drive a Real Government Shutdown**\
+`Republicans want a fight over the nonexistent scourge of widespread voting by noncitizens.`\
+https://nytimes.com/2024/09/06/us/politics/noncitizen-voting-government-shutdown.html
+
 **Dodgers’ Stone goes on IL with shoulder inflammation**\
 `Gavin Stone's 140 innings pitched is a career-high from last years 131 between the majors and triple A.`\
 https://nytimes.com/athletic/5751101/2024/09/06/dodgers-gavin-stone-shoulder-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5751104/2024/09/06/alex-morgan-broadcast-channels-s
 **Anthony Rizzo's return to Wrigley Field gives fans a reason to cheer**\
 `Rizzo’s weekend appearance feels like the final chapter of what’s been nearly three years of homecomings at the ballpark.`\
 https://nytimes.com/athletic/5751015/2024/09/06/anthony-rizzo-wrigley-field-return/
-
-**Nell McCafferty, Larger-Than-Life Irish Journalist, Dies at 80**\
-`Her pugnacious writing on women’s rights, gay rights and other issues helped turn her country into one of the most progressive in Europe.`\
-https://nytimes.com/2024/09/06/world/europe/nell-mccafferty-dead.html
-
-**Delaying Trump’s Sentence May Mean a Stiffer Penalty if He Loses**\
-`The court will be free to make a decision free of political considerations.`\
-https://nytimes.com/live/2024/09/03/opinion/thepoint/merchan-trump-delayed-sentence
 
