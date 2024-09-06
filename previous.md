@@ -1,3 +1,7 @@
+**Fantasy hockey dynasty rankings: Scott Wheeler’s top 100 keepers for 2024-25**\
+`Scott Wheeler ranks his Top 100 25-and-under fantasy hockey players for dynasty league formats, starting with a teen sensation in Chicago.`\
+https://nytimes.com/athletic/5719372/2024/09/06/fantasy-hockey-dynasty-rankings-top-100-keepers-2024-25/
+
 **Housing in Ireland Is Broken**\
 `Are the thousands of empty properties scattered across the country any kind of solution?`\
 https://nytimes.com/2024/09/06/opinion/ireland-housing-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5746647/2024/09/06/west-ham-fan-survey-results/
 **Key takeaways as Chiefs escape Ravens**\
 `The Chiefs addition of Worthy led to two touchdowns Thursday, first on a 21-yard sprint to score the team's first points of the season.`\
 https://nytimes.com/athletic/5749308/2024/09/06/chiefs-ravens-result-takeaways-nfl-opener/
-
-**Footballer Inc: How the sport's elite build their brands**\
-`Players know that simply being very good at football is not enough to sustain a post-sporting career — it's now all about the brand`\
-https://nytimes.com/athletic/5709251/2024/09/06/footballer-personal-brand-commercial/
 
