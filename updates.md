@@ -1,3 +1,15 @@
+**Wall Street Is Worried About Carl Icahn**\
+`The 88-year-old activist investor’s stake in his own company has fallen by nearly $20 billion. Mr. Icahn said that he was “absolutely not selling.”`\
+https://nytimes.com/2024/09/06/business/carl-icahn-investors-wall-street.html
+
+**NWSL hires former FIFPRO director Sarah Gregorius to lead player standards**\
+`New NWSL sporting senior director Gregorius sees potential in the league's autonomy `\
+https://nytimes.com/athletic/5749348/2024/09/06/nwsl-hires-fifpro-sarah-gregorius/
+
+**Time to Say Goodbye to the B.M.I.?**\
+`Researchers have long faulted the body mass index as an unreliable indicator of health. A replacement has been gaining support: the body roundness index.`\
+https://nytimes.com/2024/09/06/health/body-roundness-index-bmi.html
+
 **Eagles Players Feared Crime in Brazil. Have They Considered Philadelphia?**\
 `Some N.F.L. players called Brazil dangerous ahead of the league’s first game in South America on Friday. Statistics show their home city is deadlier.`\
 https://nytimes.com/2024/09/06/world/americas/eagles-packers-nfl-game-brazil-crime.html

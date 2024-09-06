@@ -1,3 +1,15 @@
+**Wall Street Is Worried About Carl Icahn**\
+`The 88-year-old activist investor’s stake in his own company has fallen by nearly $20 billion. Mr. Icahn said that he was “absolutely not selling.”`\
+https://nytimes.com/2024/09/06/business/carl-icahn-investors-wall-street.html
+
+**NWSL hires former FIFPRO director Sarah Gregorius to lead player standards**\
+`New NWSL sporting senior director Gregorius sees potential in the league's autonomy `\
+https://nytimes.com/athletic/5749348/2024/09/06/nwsl-hires-fifpro-sarah-gregorius/
+
+**Time to Say Goodbye to the B.M.I.?**\
+`Researchers have long faulted the body mass index as an unreliable indicator of health. A replacement has been gaining support: the body roundness index.`\
+https://nytimes.com/2024/09/06/health/body-roundness-index-bmi.html
+
 **Eagles Players Feared Crime in Brazil. Have They Considered Philadelphia?**\
 `Some N.F.L. players called Brazil dangerous ahead of the league’s first game in South America on Friday. Statistics show their home city is deadlier.`\
 https://nytimes.com/2024/09/06/world/americas/eagles-packers-nfl-game-brazil-crime.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/06/nyregion/adams-fbi-raids-investigation.html
 **Can Notre Dame avoid a letdown vs. Northern Illinois? 3 keys and a prediction**\
 `Notre Dame is looking for growth from the young O-line and QB Riley Leonard after a hard-fought win against Texas A&M last week.`\
 https://nytimes.com/athletic/5750079/2024/09/06/notre-dame-niu-preview-prediction/
-
-**Cleveland Browns season predictions: Garrett's DPOY repeat, Watson expectations**\
-`Plus, Jerry Jeudy's impact, the reworked offensive line, the first-time Pro Bowl candidates and more.`\
-https://nytimes.com/athletic/5748901/2024/09/06/cleveland-browns-season-predictions-deshaun-watsonmyles-garrett-david-njoku-jerry-jeudy/
-
-**How Ralph Lauren Got Jill Biden to the Hamptons**\
-`The designer held a show on Long Island and built a dream world as a backdrop.`\
-https://nytimes.com/2024/09/06/style/ralph-lauren-jill-biden-hamptons-fashion-show.html
-
-**‘The Secret Lives of Mormon Wives’ Are About to Go Public**\
-`A new Hulu series will explore a cheating scandal — and its aftermath — that rocked the world of Mormon social media influencers.`\
-https://nytimes.com/2024/09/06/style/secret-lives-mormon-wives-momtok.html
 
