@@ -1,3 +1,7 @@
+**Trump’s Child Care Plan Is Nonsensical**\
+`It is a positive sign, overall, that child care is an issue that’s front and center.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/trump-vance-child-care
+
 **Can More Vyvanse Production Ease the A.D.H.D. Drug Shortage?**\
 `The D.E.A. is increasing its quota for the popular stimulant as patients still struggle to fill prescriptions.`\
 https://nytimes.com/2024/09/06/well/mind/vyvanse-dea-increase.html

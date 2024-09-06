@@ -1,3 +1,7 @@
+**Trump’s Child Care Plan Is Nonsensical**\
+`It is a positive sign, overall, that child care is an issue that’s front and center.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/trump-vance-child-care
+
 **Can More Vyvanse Production Ease the A.D.H.D. Drug Shortage?**\
 `The D.E.A. is increasing its quota for the popular stimulant as patients still struggle to fill prescriptions.`\
 https://nytimes.com/2024/09/06/well/mind/vyvanse-dea-increase.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5750662/2024/09/06/brian-cashman-jasson-dominguez-d
 **Ted Drewes Jr., the Frozen Custard King of St. Louis, Dies at 96**\
 `Celebrity chefs and politicians paid tribute to the man behind the extra-thick shake known as the concrete, an intrinsic part of St. Louis summers.`\
 https://nytimes.com/2024/09/06/business/ted-drewes-jr-dead.html
-
-**Steelers, TE Pat Freiermuth agree to new deal**\
-`Freiermuth had a disappointing 2023 season, but he could be set for a career year in Arthur Smith's offense.`\
-https://nytimes.com/athletic/5656811/2024/09/06/pat-freiermuth-contract-steelers/
 
