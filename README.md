@@ -1,3 +1,7 @@
+**The Yankees Find a Fashion Partner in New York or Nowhere**\
+`A lifestyle brand known for its declarations of N.Y.C. supremacy joins forces with baseball’s winningest franchise.`\
+https://nytimes.com/2024/09/06/style/yankees-nyon-streetwear.html
+
 **A Trove of Words to Remember From a Master Obituary Writer**\
 `The byline of Robert D. McFadden, who retired on Sunday, has been one of the most distinguished in the history of The Times. Here is a sampler of his artful obituaries.`\
 https://nytimes.com/2024/09/06/business/media/robert-mcfadden-retirement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/06/sports/victor-adeboyejo-soccer-sneeze-injury.html
 **Five Emerging Designers to Know This Season**\
 `Hailing from Mexico, Europe, the Caribbean and beyond, these five up-and-comers prove that modern fashion is truly global.`\
 https://nytimes.com/2024/09/06/t-magazine/new-designers-fashion.html
-
-**Judge Sets 2025 Timeline for Remedies to Google’s Search Monopoly**\
-`After ruling against Google last month, Judge Amit P. Mehta said he would take until next August to determine fixes that the company must make.`\
-https://nytimes.com/2024/09/06/technology/google-search-antitrust-remedies.html
 
