@@ -1,3 +1,7 @@
+**UNC's Max Johnson to return after season-ending injury: Reports**\
+`Johnson says he feels he has “a lot of football left in me, and know I will be back out there next year.”`\
+https://nytimes.com/athletic/5750765/2024/09/06/max-johnson-unc-injury-return/
+
 **Kate Atkinson on the Return of Her Detective Hero**\
 `“Death at the Sign of the Rook” is the sixth novel in Atkinson’s Jackson Brodie mystery series. What keeps her coming back?`\
 https://nytimes.com/2024/09/06/books/review/podcast-interview-kate-atkinson-jackson-brodie.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/06/us/whitey-bulger-fotios-geas-sentencing.html
 **Big 12 unveils tiebreaker rules to determine title game teams**\
 `The tiebreakers are similar to those announced in recent weeks by the SEC and Big Ten.`\
 https://nytimes.com/athletic/5750705/2024/09/06/big-12-tiebreaker-prodecures/
-
-**Aston Villa fined by UEFA for late submission of financial information**\
-`Aston Villa have been fined €60,000 (£50,670; $66,430) by UEFA for the alleged late submission of their financial information for the 2023-24 season.`\
-https://nytimes.com/athletic/5750547/2024/09/06/aston-villa-uefa-fined-scr/
 
