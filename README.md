@@ -1,3 +1,7 @@
+**Seth Meyers: Trump and Vance ‘Can’t Beat the Weird Charges’**\
+`The “Late Night” host said that Republican efforts to turn the accusations back on Democrats are “only making things worse.”`\
+https://nytimes.com/2024/09/06/arts/television/seth-meyers-trump-vance-weird.html
+
 **Word of the Day: bastion**\
 `This word has appeared in 214 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/06/learning/word-of-the-day-bastion.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5746657/2024/09/06/arsenal-fan-survey-results/
 **Sergio Reguilon is Tottenham's last outcast standing. Where does he go from here?**\
 `Not a part of Postecoglou’s plans but with a year left on his contract, the left-back’s last appearance for Spurs was in in April 2022`\
 https://nytimes.com/athletic/5746662/2024/09/06/sergio-reguilon-tottenham-transfer-premier-league/
-
-**Brighton's transfer window reviewed: The planet's biggest spenders now have unprecedented depth**\
-`Brighton spent big this summer to give new manager Florian Hurzeler myriad options - but the loss of Pascal Gross might still be felt `\
-https://nytimes.com/athletic/5702545/2024/09/06/brighton-transfer-window-review-2024/
 
