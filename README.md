@@ -1,3 +1,7 @@
+**Vance Calls School Shootings a Grim ‘Fact of Life’ as He Backs Increased Security**\
+`Democrats seized on his comments, arguing that JD Vance was resigned to the reality of school shootings.`\
+https://nytimes.com/2024/09/05/us/politics/jd-vance-fact-of-life-school-shootings.html
+
 **What Female Llamas Do**\
 `Adrian Johnson opens our solving weekend.`\
 https://nytimes.com/2024/09/05/crosswords/daily-puzzle-2024-09-06.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5748995/2024/09/05/chiefs-ravens-weather-delay-nfl-
 **49ers' Ricky Pearsall shows up at practice; Christian McCaffrey is limited**\
 `The 49ers were missing two players during Thursday's session, and one big piece of their offense — McCaffrey — was limited.`\
 https://nytimes.com/athletic/5748924/2024/09/05/49ers-ricky-pearsall-practice-christian-mccaffrey/
-
-**Florida Health Agency Targets Abortion Rights Ballot Measure**\
-`A state agency claimed that the referendum “threatens women’s safety.” Critics say the website is unethical and may violate the law.`\
-https://nytimes.com/2024/09/05/us/florida-abortion-ballot-measure.html
 
