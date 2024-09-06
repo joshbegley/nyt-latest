@@ -1,3 +1,7 @@
+**Jessica Pegula beats Karolina Muchova in thriller to reach U.S. Open final**\
+`The American world No. 6 will face Aryna Sabalenka in Saturday's final.`\
+https://nytimes.com/athletic/5749179/2024/09/05/pegula-muchova-us-open-semifinal-result/
+
 **Vance Calls School Shootings a Grim ‘Fact of Life’ as He Backs Increased Security**\
 `Democrats seized on his comments, arguing that JD Vance was resigned to the reality of school shootings.`\
 https://nytimes.com/2024/09/05/us/politics/jd-vance-fact-of-life-school-shootings.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/05/us/politics/tim-walz-pennsylvania-democrats.html
 **NFL season opener delayed by Kansas City thunderstorm**\
 `Plans for the Chiefs' banner presentation are continuing Thursday, with the celebration being pushed back to 8:30 p.m. ahead of kickoff.`\
 https://nytimes.com/athletic/5748995/2024/09/05/chiefs-ravens-weather-delay-nfl-opener/
-
-**49ers' Ricky Pearsall shows up at practice; Christian McCaffrey is limited**\
-`The 49ers were missing two players during Thursday's session, and one big piece of their offense — McCaffrey — was limited.`\
-https://nytimes.com/athletic/5748924/2024/09/05/49ers-ricky-pearsall-practice-christian-mccaffrey/
 
