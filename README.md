@@ -1,3 +1,7 @@
+**Cleveland Browns season predictions: Garrett's DPOY repeat, Watson expectations**\
+`Plus, Jerry Jeudy's impact, the reworked offensive line, the first-time Pro Bowl candidates and more.`\
+https://nytimes.com/athletic/5748901/2024/09/06/cleveland-browns-season-predictions-deshaun-watsonmyles-garrett-david-njoku-jerry-jeudy/
+
 **How Ralph Lauren Got Jill Biden to the Hamptons**\
 `The designer held a show on Long Island and built a dream world as a backdrop.`\
 https://nytimes.com/2024/09/06/style/ralph-lauren-jill-biden-hamptons-fashion-show.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5745895/2024/09/06/philadelphia-eagles-season-news-
 **USC mailbag: Revised predictions, defensive improvement, areas of concern**\
 `Any concerns with the clock management? Will Jayden Maiava be used in short-yardage situations? How many defensive players will see action?`\
 https://nytimes.com/athletic/5749824/2024/09/06/usc-football-defense-miller-moss-utah-state/
-
-**Stockport's Mangan set to join Ancelotti's coaching staff at Real Madrid**\
-`Stockport County&#8217;s Andy Mangan is set to join Carlo Ancelotti’s coaching staff at Real Madrid.`\
-https://nytimes.com/athletic/5749781/2024/09/06/andy-mangan-real-madrid-coaching-staff/
 
