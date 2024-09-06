@@ -1,3 +1,7 @@
+**How do Bucks fans feel about the upcoming season? Let us know what you think**\
+`After a turbulent 2023-24 season, the Bucks were eliminated in the first round. How are Bucks fans feeling going into the 2024-25 season?`\
+https://nytimes.com/athletic/5747738/2024/09/06/milwaukee-bucks-fan-survey-2/
+
 **Jones: Gap between Chiefs and Ravens is bigger than toe that decided game**\
 `The Chiefs weren't perfect in Thursday's 27-20 win, but what Patrick Mahomes and his teammates put on display should concern competitors.`\
 https://nytimes.com/athletic/5749588/2024/09/06/chiefs-ravens-toe-afc-contenders/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5745923/2024/09/06/leon-draisaitl-contract-stats-oi
 **Raiders, Chargers have bought into Antonio Pierce and Jim Harbaugh. Will success follow?**\
 `Pierce and Harbaugh are both gritty former players who are trying to turn around the culture of their respective franchises. `\
 https://nytimes.com/athletic/5748516/2024/09/06/raiders-chargers-antonio-pierce-jim-harbaugh/
-
-**The Pulse: NFL's opener came down to a toe**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5748295/2024/09/06/chiefs-ravens-toe-nfl-the-pulse/
 
