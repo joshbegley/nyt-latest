@@ -1,3 +1,7 @@
+**Man Arrested in Plot to Kill Jews in New York on Oct. 7 Anniversary**\
+`A 20-year-old Pakistani citizen was arrested in Canada after plotting to carry out a mass shooting at a Jewish center in New York, according to the U.S. Justice Department.`\
+https://nytimes.com/2024/09/06/us/politics/new-york-terror-plot-jewish-center-isis.html
+
 **They Want to Make Voting a Fall Trend**\
 `Jill Biden, Anna Wintour and top American designers participated in a voting awareness march at the onset of New York Fashion Week.`\
 https://nytimes.com/2024/09/06/style/nyfw-voting-anna-wintour-jill-biden.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5751101/2024/09/06/dodgers-gavin-stone-shoulder-inj
 **West Bank Residents Survey Destruction as Israeli Forces Withdraw**\
 `A 10-day raid by Israeli troops into the occupied territory has been one of the most devastating in years, with at least 39 people killed, according to Palestinian officials.`\
 https://nytimes.com/2024/09/06/world/middleeast/jenin-israel-withdraw-destruction.html
-
-**One Student Kills Another in Dispute at Maryland High School, Authorities Say**\
-`In another case of deadly gunfire at a school, the victim, a 15-year-old student, was airlifted to a trauma center, where he later died. A 16-year-old suspect was in custody on Friday.`\
-https://nytimes.com/2024/09/06/us/joppatowne-maryland-school-shooting.html
 
