@@ -1,3 +1,11 @@
+**Timberwolves, Rudy Gobert find themselves at the center of NBA's offseason circus**\
+`To win over the NBA populace, the Timberwolves are going to have to be even better than they were last season.`\
+https://nytimes.com/athletic/5745751/2024/09/06/rudy-gobert-timberwolves-nba-offseason-circus/
+
+**Fellow protesters said Aysenur Eygi was shot by an Israeli soldier.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2024/09/06/world/israel-hamas-gaza-war/west-bank-us-protester-killed-aysenur-eygi
+
 **Wall Street Is Worried About Carl Icahn**\
 `The value of the 88-year-old activist investor’s stake in his own company has fallen by nearly $20 billion. Mr. Icahn said that he was “absolutely not selling.”`\
 https://nytimes.com/2024/09/06/business/carl-icahn-investors-wall-street.html
