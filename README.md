@@ -1,3 +1,7 @@
+**Lawsuit filed against Chelsea by agent cleared of sending threatening email to Granovskaia**\
+`The football agent cleared of sending former Chelsea director Marina Granovskaia a threatening email has filed a lawsuit against the Premier League club.`\
+https://nytimes.com/athletic/5751001/2024/09/06/lawsuit-filed-against-chelsea-by-agent-cleared-of-sending-threatening-email-to-marina-granovskaia/
+
 **Aysenur Eygi, the American activist killed in the West Bank, had been a campus organizer.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/09/06/world/israel-hamas-gaza-war/aysenur-eygi-the-american-activist-killed-in-the-west-bank-had-been-a-campus-organizer
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/06/business/media/robert-mcfadden-retirement.html
 **Calling All Teens: How Much Does the 2024 Election Matter to You?**\
 `Join the Headway Election Challenge to share your thoughts and help shape the conversation.`\
 https://nytimes.com/2024/09/06/headway/teens-2024-election-involvement.html
-
-**Trump and Vance Took Questions on Child Care. Their Non-Answers Said a Lot.**\
-`The former president and his running mate gave nearly equally confusing answers when asked separately this week how they would make child care more affordable.`\
-https://nytimes.com/2024/09/06/us/politics/trump-vance-child-care.html
 
