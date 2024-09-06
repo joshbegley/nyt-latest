@@ -1,3 +1,7 @@
+**Last of 3 Inmates Sentenced in Beating Death of Whitey Bulger Gets 25 Years**\
+`Fotios Geas, who was already serving a life sentence, bludgeoned the Boston gangster to death in his cell in 2018, prosecutors said.`\
+https://nytimes.com/2024/09/06/us/whitey-bulger-fotios-geas-sentencing.html
+
 **Big 12 unveils tiebreaker rules to determine title game teams**\
 `The tiebreakers are similar to those announced in recent weeks by the SEC and Big Ten.`\
 https://nytimes.com/athletic/5750705/2024/09/06/big-12-tiebreaker-prodecures/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/06/magazine/judge-john-hodgman-on-creepy-dog-names.h
 **A Nuanced, Unreleased Live Bob Dylan Cut, and 8 More New Songs**\
 `Hear tracks by Linkin Park, Halsey, Queen Naija and others.`\
 https://nytimes.com/2024/09/06/arts/music/playlist-bob-dylan-halsey-linkin-park.html
-
-**U.N. Panel Calls for International Peacekeeping Force in Sudan**\
-`The country’s brutal civil war has led to the killing, rape and torture of civilians, including children, as it threatens to destabilize neighboring countries.`\
-https://nytimes.com/2024/09/06/world/europe/sudan-war-crimes-un.html
 
