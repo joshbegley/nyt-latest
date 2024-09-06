@@ -1,3 +1,7 @@
+**The Big Number: $3.8 Billion**\
+`The amount offered by Nordstrom’s founding family to buy its namesake retailer.`\
+https://nytimes.com/2024/09/06/business/the-big-number-3-8-billion-nordstrom-retailer.html
+
 **Bergwijn responds to Koeman criticism of Saudi move: 'Don’t treat players like that'**\
 `Steven Bergwijn has criticised Ronald Koeman&#8217;s treatment of him after the Netherlands head coach said the winger would no longer be selected for the national team following his move to Al Ittihad from Ajax.`\
 https://nytimes.com/athletic/5750294/2024/09/06/steven-bergwijn-ronaldo-koeman-saudi-netherlands/
