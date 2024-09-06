@@ -1,3 +1,7 @@
+**Downward revisions could be a warning sign.**\
+`By Ben Casselman`\
+https://nytimes.com/live/2024/09/06/business/jobs-report-august-economy/jobs-report-revisions
+
 **Wall Street Is Worried About Carl Icahn**\
 `The 88-year-old activist investor’s stake in his own company has fallen by nearly $20 billion. Mr. Icahn said that he was “absolutely not selling.”`\
 https://nytimes.com/2024/09/06/business/carl-icahn-investors-wall-street.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/06/us/politics/jd-vance-tucker-carlson-darryl-cooper
 **Flurry of Inquiries Raises Doubts About Adams’s Ability to Run New York**\
 `The revelation that much of Mayor Eric Adams’s inner circle is under federal investigation stunned city officials, and some worried their work could be affected.`\
 https://nytimes.com/2024/09/06/nyregion/adams-fbi-raids-investigation.html
-
-**Can Notre Dame avoid a letdown vs. Northern Illinois? 3 keys and a prediction**\
-`Notre Dame is looking for growth from the young O-line and QB Riley Leonard after a hard-fought win against Texas A&M last week.`\
-https://nytimes.com/athletic/5750079/2024/09/06/notre-dame-niu-preview-prediction/
 
