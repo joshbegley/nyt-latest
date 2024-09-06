@@ -1,40 +1,40 @@
-**How Yared Nuguse delivered a first Diamond League 1500m defeat for Jakob Ingebrigtsen in three years**\
-`The American ran the closing 100m in 13.1 seconds to seal a famous win - and a spot in the Diamond League final in Brussels next week`\
-https://nytimes.com/athletic/5748916/2024/09/06/yared-nuguse-jakob-ingebrigtsen-1500m-zurich/
+**How a Single Family Was Shot Dead on a Street in Gaza**\
+`Last December, video emerged showing the bodies of a mother, father and their four sons strewn across a street in Gaza City. Beside them lay a stretcher, shovels and a makeshift white flag. A New York Times investigation examines how they got there and who killed them.`\
+https://nytimes.com/video/world/middleeast/100000009614868/israel-gaza-war-family-killed.html
 
-**Frances Tiafoe and Taylor Fritz step onto Arthur Ashe after a 12-year journey**\
-`About a dozen years ago, two 14-year-old boys arrived in Boca Raton, Florida for a tennis camp. Now they are U.S. Open semifinalists.`\
-https://nytimes.com/athletic/5748157/2024/09/06/tiafoe-fritz-us-open-semifinal/
+**27 TV Shows to Watch This Fall**\
+`A “WandaVision” spinoff, Colin Farrell in “The Penguin” and Alfonso Cuarón’s “Disclaimer” are among the season’s tantalizing offerings.`\
+https://nytimes.com/2024/09/06/arts/television/27-tv-shows-to-watch-this-fall.html
 
-**U.S. Open day 11 takeaways: Sara Errani and Andrea Vavassori win mixed doubles**\
-`On women's semifinal day, an Italian triumph and an American valediction in the mixed doubles.`\
-https://nytimes.com/athletic/5748887/2024/09/06/us-open-takeaways-mixed-doubles-final-result/
+**A 120-Ring Collection That Reflects History**\
+`The pieces scheduled for a selling exhibition in London this fall range in origin, from ancient Greece to 18th-century Britain.`\
+https://nytimes.com/2024/09/06/fashion/jewelry-rings-sj-phillips-london.html
 
-**Bootmobile**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2024/09/06/learning/bootmobile.html
+**Do You Love a Good Tear-Jerker?**\
+`When was the last time you cried during a movie? Do you wish more films were made to bring their audiences to tears?`\
+https://nytimes.com/2024/09/06/learning/do-you-love-a-good-tear-jerker.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/09/06/crosswords/spelling-bee-forum.html
+**Is This Really Good Turquoise? Who Knows?**\
+`The lack of a grading system for the popular stone has prompted a father-son team to spend the last five years working on one.`\
+https://nytimes.com/2024/09/06/fashion/jewelry-turquoise-grading-system.html
 
-**40 Years Later, Does ‘Bright Lights, Big City’ Still Resonate?**\
-`Remembered for capturing ’80s downtown decadence, Jay McInerney’s iconic novel predicted the mood of New York City today.`\
-https://nytimes.com/2024/09/06/nyregion/bright-lights-big-city-jay-mcinerney.html
+**Dance Performances, Festivals and More Coming This Fall**\
+`The season brings new works by Kyle Abraham and Helen Pickett, as well as revivals of City Ballet’s “Coppélia” and Bill T. Jones’s “Still/Here.”`\
+https://nytimes.com/2024/09/06/arts/dance/performances-festivals-nyc.html
 
-**Facing Entrenched School Segregation, a State Tries Something New**\
-`New Jersey is holding mediation sessions to settle a segregation lawsuit. If an agreement is reached, other states may take notice.`\
-https://nytimes.com/2024/09/06/nyregion/new-jersey-schools-segregation.html
+**Art Shows and Exhibitions to See This Fall**\
+`This packed season features Scott Burton, Alvin Ailey and the Brooklyn Museum’s 200th birthday.`\
+https://nytimes.com/2024/09/06/arts/design/art-shows-and-exhibitions-fall.html
 
-**Judge Will Decide Friday Whether to Postpone Trump’s Sentencing**\
-`Justice Juan M. Merchan, who presided over the trial that led to Donald J. Trump’s conviction, faces a fraught decision amid the thick of the presidential election.`\
-https://nytimes.com/2024/09/06/nyregion/trump-sentencing-delay-ruling.html
+**Classical Music and Opera This Fall: Programs, Premieres and More**\
+`Osvaldo Golijov’s Lorca-inspired opera comes to New York, and the pianist Igor Levit plays with the Cleveland Orchestra, among other highlights.`\
+https://nytimes.com/2024/09/06/arts/music/classical-music-opera-fall-highlights.html
 
-**Fire at School Dormitory in Kenya Kills at Least 17**\
-`President William Ruto called the news “devastating.” The police said the cause of the blaze was being investigated.`\
-https://nytimes.com/2024/09/06/world/africa/kenya-school-fire.html
+**12 Video Games Coming This Fall**\
+`The calendar brings a Legend of Zelda game with Zelda in charge, an Assassin’s Creed set in Japan and new role-playing games.`\
+https://nytimes.com/2024/09/06/arts/12-video-games-coming-this-fall.html
 
-**Ronaldo on scoring 900 career goals: 'I knew I would reach this number'**\
-`Cristiano Ronaldo spoke of his delight at scoring his 900th career goal during Portugal’s 2-1 victory over Croatia in the Nations League, stating that he knew he would &#8220;reach this number&#8221;.`\
-https://nytimes.com/athletic/5749549/2024/09/06/cristiano-ronaldo-900-goals/
+**Matthew Boyd and Alex Cobb are relishing time with Guardians: 'It feels like a college dugout'**\
+`“Lots of chirping,” Cobb said. “They talk a lot of trash. There’s a reaction to every pitch, every night.”`\
+https://nytimes.com/athletic/5749066/2024/09/06/matthew-boyd-alex-cobb-cleveland-guardians/
 
