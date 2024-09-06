@@ -1,3 +1,11 @@
+**The agency behind the jobs report has made a series of missteps.**\
+`The Bureau of Labor Statistics, which tracks prices and employment, faces scrutiny.`\
+https://nytimes.com/live/2024/09/06/business/jobs-report-august-economy/jobs-report-bls
+
+**Startup completes permanent move to Man City**\
+`Manchester City Women have completed the signing of goalkeeper Katie Startup on a permanent deal.`\
+https://nytimes.com/athletic/5749727/2024/09/06/katie-startup-man-city-brighton/
+
 **The Road to a Gaza Cease-Fire Runs Through Qatar**\
 `The emirate has used its influence with Hamas to press for a truce with Israel. But “the last word is with those on the battlefield,” one expert said.`\
 https://nytimes.com/2024/09/06/world/middleeast/qatar-hamas-israel-ceasefire-negotiations.html
