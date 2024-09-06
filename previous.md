@@ -3,7 +3,7 @@
 https://nytimes.com/live/2024/09/06/business/jobs-report-august-economy/jobs-report-revisions
 
 **Wall Street Is Worried About Carl Icahn**\
-`The 88-year-old activist investor’s stake in his own company has fallen by nearly $20 billion. Mr. Icahn said that he was “absolutely not selling.”`\
+`The value of the 88-year-old activist investor’s stake in his own company has fallen by nearly $20 billion. Mr. Icahn said that he was “absolutely not selling.”`\
 https://nytimes.com/2024/09/06/business/carl-icahn-investors-wall-street.html
 
 **NWSL hires former FIFPRO director Sarah Gregorius to lead player standards**\
