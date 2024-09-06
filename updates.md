@@ -1,3 +1,15 @@
+**The Future of JD Vance’s Charity in Ohio Is Unclear**\
+`A tiny nonprofit founded by Trump’s running mate to improve the lives of Ohioans suffering from opioid addiction remains in limbo.`\
+https://nytimes.com/2024/09/06/us/politics/jd-vance-charity-ohio.html
+
+**Vikings' J.J. McCarthy talks for first time since season-ending surgery**\
+`McCarthy is in the first stage of his rehab process from a radial tear of the medial meniscus.`\
+https://nytimes.com/athletic/5751027/2024/09/06/jj-mccarthy-vikings-surgery/
+
+**Of Politics and the Courtroom**\
+`The judge’s decision to delay Trump’s sentencing shows how much the cases are entwined with the campaign.`\
+https://nytimes.com/2024/09/06/briefing/trump-sentencing-delay.html
+
 **The Yankees Find a Fashion Partner in New York or Nowhere**\
 `A lifestyle brand known for its declarations of N.Y.C. supremacy joins forces with baseball’s winningest franchise.`\
 https://nytimes.com/2024/09/06/style/yankees-nyon-streetwear.html

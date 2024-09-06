@@ -1,3 +1,15 @@
+**The Future of JD Vance’s Charity in Ohio Is Unclear**\
+`A tiny nonprofit founded by Trump’s running mate to improve the lives of Ohioans suffering from opioid addiction remains in limbo.`\
+https://nytimes.com/2024/09/06/us/politics/jd-vance-charity-ohio.html
+
+**Vikings' J.J. McCarthy talks for first time since season-ending surgery**\
+`McCarthy is in the first stage of his rehab process from a radial tear of the medial meniscus.`\
+https://nytimes.com/athletic/5751027/2024/09/06/jj-mccarthy-vikings-surgery/
+
+**Of Politics and the Courtroom**\
+`The judge’s decision to delay Trump’s sentencing shows how much the cases are entwined with the campaign.`\
+https://nytimes.com/2024/09/06/briefing/trump-sentencing-delay.html
+
 **The Yankees Find a Fashion Partner in New York or Nowhere**\
 `A lifestyle brand known for its declarations of N.Y.C. supremacy joins forces with baseball’s winningest franchise.`\
 https://nytimes.com/2024/09/06/style/yankees-nyon-streetwear.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5750947/2024/09/06/jack-grealish-declan-rice-irelan
 **Morgan Stanley Is Fined for First Republic C.E.O.’s Stock Sales**\
 `James Herbert was permitted to sell nearly $7 million of shares before First Republic Bank’s demise last year, Massachusetts regulators said.`\
 https://nytimes.com/2024/09/06/business/morgan-stanley-first-republic-fined.html
-
-**These Americans Want Out**\
-`Thousands of readers shared frustrations, fears and disappointments with American politics, and how they are able to live and work in another country.`\
-https://nytimes.com/interactive/2024/09/06/realestate/american-voters-leave-us-politics.html
-
-**‘Hefty Sneeze’ Sends Soccer Player to the Sidelines**\
-`Victor Adeboyejo, a forward for the Bolton Wanderers, is out with a back injury after a violent sneeze — surprisingly, something doctors see from time to time. He joins a long list of athletes with unusual injuries.`\
-https://nytimes.com/2024/09/06/sports/victor-adeboyejo-soccer-sneeze-injury.html
-
-**Five Emerging Designers to Know This Season**\
-`Hailing from Mexico, Europe, the Caribbean and beyond, these five up-and-comers prove that modern fashion is truly global.`\
-https://nytimes.com/2024/09/06/t-magazine/new-designers-fashion.html
 
