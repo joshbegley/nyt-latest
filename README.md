@@ -1,3 +1,7 @@
+**Ravens-Chiefs ranks as most-watched season opener ever**\
+`The game topped viewership for last year’s season opener (27.5 million for Detroit Lions-Chiefs) by five percent.`\
+https://nytimes.com/athletic/5751178/2024/09/06/ravens-chiefs-tv-ratings-nfl-nbc/
+
 **Missouri Reports Bird Flu in a Patient Without a Known Risk**\
 `Previous human infections occurred in workers on farms. But community transmission of the virus remains unlikely for now, experts said.`\
 https://nytimes.com/2024/09/06/health/bird-flu-missouri-cdc.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/06/france-rape-trial-caroline-darian-testimony.html
 **Jannik Sinner into U.S. Open final after beating Jack Draper in strange match**\
 `The world No. 1 will play Frances Tiafoe or Taylor Fritz in Sunday's final.`\
 https://nytimes.com/athletic/5750745/2024/09/06/sinner-draper-us-open-semifinal-result/
-
-**Clark Halstead, Real Estate Broker Who Broke the Mold, Dies at 83**\
-`The face of his firm, he opened storefront offices to chase undervalued properties in New York City and emblazoned a London cab with his name.`\
-https://nytimes.com/2024/09/06/nyregion/clark-halstead-dead.html
 
