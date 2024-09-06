@@ -1,3 +1,7 @@
+**The Pulse: NFL's opener came down to a toe**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5748295/2024/09/06/chiefs-ravens-toe-nfl-the-pulse/
+
 **Smartphones in Schools**\
 `How educators are fighting against distractions.`\
 https://nytimes.com/2024/09/06/briefing/smartphones-in-schools.html
