@@ -1,3 +1,11 @@
+**The Windup: There are levels to this contract**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5750382/2024/09/06/matt-chapman-contract-giants-the-windup/
+
+**Connor Stalions becomes acting coach at Detroit school**\
+`Connor Stalions, a volunteer DC, is leading the high school team while head coach William McMichael recovers from a minor stroke.`\
+https://nytimes.com/athletic/5750285/2024/09/06/connor-stalions-head-coach-job-michigan/
+
 **The Best of Late Night This Week**\
 `After a break and a holiday Monday, the hosts returned to discuss Kamala Harris being ahead in the polls, Robert F. Kennedy Jr.’s jabs about proficiency in the English language and Donald Trump’s town hall on Fox.`\
 https://nytimes.com/interactive/2024/09/06/arts/best-of-late-night-townhall.html
