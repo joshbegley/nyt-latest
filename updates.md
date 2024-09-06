@@ -1,3 +1,15 @@
+**What to know about the latest report.**\
+`By Lydia DePillis`\
+https://nytimes.com/live/2024/09/06/business/jobs-report-august-economy/what-to-know-about-the-latest-report
+
+**These Easy Cakes Need No Special Ingredients to Shine**\
+`Endlessly adaptable, tea cakes have long offered bakers across the country a moment of restoration.`\
+https://nytimes.com/2024/09/06/dining/tea-cakes-history.html
+
+**NFL Brazil game: Where is the stadium for Packers vs Eagles? And why is green so controversial?**\
+`The NFL holds its first game in Brazil on Friday night as the Philadelphia Eagles take on the Green Bay Packers`\
+https://nytimes.com/athletic/5750158/2024/09/06/nfl-brazil-game-stadium-where-green/
+
 **Sergio Mendes, 83, Dies; Brought Brazilian Rhythms to the U.S. Pop Charts**\
 `A pianist, composer and arranger, he rose to fame with the group Brasil ’66 and remained a force in popular music for more than six decades.`\
 https://nytimes.com/2024/09/06/arts/music/sergio-mendes-dead.html
