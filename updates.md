@@ -1,3 +1,7 @@
+**Georgia Tests a Novel Tactic in School Shootings: Putting Parents on Trial**\
+`After four people were killed at Apalachee High School, prosecutors charged a student and his father, who officials say had given the boy the gun as a gift.`\
+https://nytimes.com/2024/09/06/us/georgia-school-shooting-parents-trial.html
+
 **Boeing’s Starliner Travels Back to Earth Empty**\
 `The two NASA astronauts who traveled on the spacecraft to the International Space Station remained there after NASA officials decided it would be safer for Starliner to return without crew aboard.`\
 https://nytimes.com/video/science/space/100000009678857/boeing-starliner-space-station-nasa.html
