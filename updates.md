@@ -1,3 +1,7 @@
+**Bergwijn responds to Koeman criticism of Saudi move: 'Don’t treat players like that'**\
+`Steven Bergwijn has criticised Ronald Koeman&#8217;s treatment of him after the Netherlands head coach said the winger would no longer be selected for the national team following his move to Al Ittihad from Ajax.`\
+https://nytimes.com/athletic/5750294/2024/09/06/steven-bergwijn-ronaldo-koeman-saudi-netherlands/
+
 **The Windup: There are levels to this contract**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5750382/2024/09/06/matt-chapman-contract-giants-the-windup/
