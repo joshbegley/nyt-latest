@@ -1,3 +1,7 @@
+**Aysenur Eygi, the American activist killed in the West Bank, had been a campus organizer.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/09/06/world/israel-hamas-gaza-war/aysenur-eygi-the-american-activist-killed-in-the-west-bank-had-been-a-campus-organizer
+
 **Why were the Ravens flagged for illegal formation so many times?**\
 `The Ravens were flagged four times for an illegal formation in the first half, with LT Ronnie Stanley drawing three of those penalties.`\
 https://nytimes.com/athletic/5750517/2024/09/06/illegal-formation-nfl-baltimore-ravens/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/06/headway/teens-2024-election-involvement.html
 **Trump and Vance Took Questions on Child Care. Their Non-Answers Said a Lot.**\
 `The former president and his running mate gave nearly equally confusing answers when asked separately this week how they would make child care more affordable.`\
 https://nytimes.com/2024/09/06/us/politics/trump-vance-child-care.html
-
-**Overlooked No More: Gwendolyn B. Bennett, Harlem Renaissance Star Plagued by Misfortune**\
-`She was a talented young poet and artist who was central to a fledgling cultural movement, but her life was shrouded by one tragedy after another.`\
-https://nytimes.com/2024/09/06/obituaries/gwendolyn-bennett-harlem-renaissance-overlooked.html
 
