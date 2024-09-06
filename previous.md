@@ -1,3 +1,11 @@
+**ACC claims FSU and Clemson are too late in contesting grant of rights**\
+`The ACC claims Florida State and Clemson accepted the ACC's contracts for years without pushback and have missed the statute of limitations.`\
+https://nytimes.com/athletic/5750778/2024/09/06/acc-florida-state-clemson-lawsuit/
+
+**Tracking the Senate’s Most Competitive Races**\
+`Senate control will mostly likely come down to voters in seven states that remain competitive.`\
+https://nytimes.com/interactive/2024/us/elections/senate-election-swing-states.html
+
 **Michael Lerner, 81, Is Dead; Founder of a Combative Jewish Magazine**\
 `His publication, Tikkun, was a leading voice for left-wing American Jews. His ideas about “the politics of meaning” were embraced by Hillary Clinton.`\
 https://nytimes.com/2024/09/06/business/media/michael-lerner-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/06/us/politics/gop-candidates-women-issues.html
 **UNC's Max Johnson to return after season-ending injury: Reports**\
 `Johnson says he feels he has “a lot of football left in me, and know I will be back out there next year.”`\
 https://nytimes.com/athletic/5750765/2024/09/06/max-johnson-unc-injury-return/
-
-**Kate Atkinson on the Return of Her Detective Hero**\
-`“Death at the Sign of the Rook” is the sixth novel in Atkinson’s Jackson Brodie mystery series. What keeps her coming back?`\
-https://nytimes.com/2024/09/06/books/review/podcast-interview-kate-atkinson-jackson-brodie.html
-
-**Stock Slide as Investors Wrestle With Shifting Bets on Rate Cuts**\
-`The stock market “can’t win” at the moment, said Andrew Brenner, head of international fixed income at National Alliance Securities. “Heads I lose, tails I lose.”`\
-https://nytimes.com/2024/09/06/business/stock-market-jobs-report.html
 

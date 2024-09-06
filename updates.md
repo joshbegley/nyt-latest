@@ -1,3 +1,11 @@
+**ACC claims FSU and Clemson are too late in contesting grant of rights**\
+`The ACC claims Florida State and Clemson accepted the ACC's contracts for years without pushback and have missed the statute of limitations.`\
+https://nytimes.com/athletic/5750778/2024/09/06/acc-florida-state-clemson-lawsuit/
+
+**Tracking the Senate’s Most Competitive Races**\
+`Senate control will mostly likely come down to voters in seven states that remain competitive.`\
+https://nytimes.com/interactive/2024/us/elections/senate-election-swing-states.html
+
 **Michael Lerner, 81, Is Dead; Founder of a Combative Jewish Magazine**\
 `His publication, Tikkun, was a leading voice for left-wing American Jews. His ideas about “the politics of meaning” were embraced by Hillary Clinton.`\
 https://nytimes.com/2024/09/06/business/media/michael-lerner-dead.html
