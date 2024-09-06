@@ -1,3 +1,7 @@
+**The Athletic FC: World's worst team win first match in 20 years, Ronaldo nets 900, Morgan retires**\
+`Today in TAFC: A first competitive win for San Marino, we break down Ronaldo's 900 career goals and explain Alex Morgan's legacy.`\
+https://nytimes.com/athletic/5749701/2024/09/06/san-marino-ronaldo-900-alex-morgan/
+
 **NBC, Peacock ready for the NFL's latest gambit: A Packers-Eagles game in Brazil**\
 `On Friday, the Packers and Eagles will play a Peacock-exclusive game in Brazil. NBC's preparations have been over a year in the making.`\
 https://nytimes.com/athletic/5728965/2024/09/06/nbc-peacock-packers-eagles-brazil/
