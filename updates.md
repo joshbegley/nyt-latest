@@ -1,3 +1,7 @@
+**U.S. Open day 11 takeaways: Sara Errani and Andrea Vavassori win mixed doubles**\
+`On women's semifinal day, an Italian triumph and an American valediction in the mixed doubles.`\
+https://nytimes.com/athletic/5748887/2024/09/06/us-open-takeaways-mixed-doubles-final-result/
+
 **Bootmobile**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2024/09/06/learning/bootmobile.html
