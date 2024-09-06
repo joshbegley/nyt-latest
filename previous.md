@@ -1,3 +1,7 @@
+**Is Brisbane Ready to Be the Equal of Sydney and Melbourne?**\
+`Many don’t see Brisbane in the same light as the other two cities, but the Queensland capital is showing it, too, has cultural heft`\
+https://nytimes.com/2024/09/06/world/australia/brisbane-jean-paul-gaultier.html
+
 **Fantasy hockey dynasty rankings: Scott Wheeler’s top 100 keepers for 2024-25**\
 `Scott Wheeler ranks his Top 100 25-and-under fantasy hockey players for dynasty league formats, starting with a teen sensation in Chicago.`\
 https://nytimes.com/athletic/5719372/2024/09/06/fantasy-hockey-dynasty-rankings-top-100-keepers-2024-25/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5294650/2024/09/06/erik-ten-hag-tactics-debunked-ma
 **West Ham fan survey results: 96% think team is stronger after the transfer window**\
 `Many of you responded to our questions about West Ham and their summer dealings - here is what you had to say`\
 https://nytimes.com/athletic/5746647/2024/09/06/west-ham-fan-survey-results/
-
-**Key takeaways as Chiefs escape Ravens**\
-`The Chiefs addition of Worthy led to two touchdowns Thursday, first on a 21-yard sprint to score the team's first points of the season.`\
-https://nytimes.com/athletic/5749308/2024/09/06/chiefs-ravens-result-takeaways-nfl-opener/
 

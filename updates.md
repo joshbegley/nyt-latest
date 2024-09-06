@@ -1,3 +1,7 @@
+**Is Brisbane Ready to Be the Equal of Sydney and Melbourne?**\
+`Many don’t see Brisbane in the same light as the other two cities, but the Queensland capital is showing it, too, has cultural heft`\
+https://nytimes.com/2024/09/06/world/australia/brisbane-jean-paul-gaultier.html
+
 **Fantasy hockey dynasty rankings: Scott Wheeler’s top 100 keepers for 2024-25**\
 `Scott Wheeler ranks his Top 100 25-and-under fantasy hockey players for dynasty league formats, starting with a teen sensation in Chicago.`\
 https://nytimes.com/athletic/5719372/2024/09/06/fantasy-hockey-dynasty-rankings-top-100-keepers-2024-25/
