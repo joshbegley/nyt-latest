@@ -1,3 +1,15 @@
+**Can Michigan beat Texas? Big House showdown could have big College Football Playoff impact**\
+`No. 10 Michigan's 23-game winning streak at the Big House is on the line against No. 3 Texas. Here's what to watch and expect.`\
+https://nytimes.com/athletic/5748756/2024/09/06/michigan-football-texas-preview-predictions/
+
+**Does a rough second half matter in October? Some World Series hopefuls might want to look away**\
+`Few teams have survived a losing record after the All-Star break and still had postseason success. September is an opportunity to refocus. `\
+https://nytimes.com/athletic/5748362/2024/09/06/mlb-2024-postseason-playoffs-world-series/
+
+**NASCAR odds and predictions for the first playoff race: Expect chaos**\
+`The first race of the NASCAR playoffs could be one of the most unpredictable. Gluck and Bianchi walk us through our questions for Sunday.`\
+https://nytimes.com/athletic/5748273/2024/09/06/nascar-odds-expert-predictions-first-playoff-race-atlanta/
+
 **Against This Mighty Paralympic Team, a Close Loss Can Feel Like a Win**\
 `Other teams give themselves an A for effort after playing the Dutch women’s wheelchair basketball team, the favorite for the gold medal at the Paris Games.`\
 https://nytimes.com/2024/09/06/world/olympics/netherlands-dutch-women-wheelchair-basketball-paralympics.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2024/09/06/briefing/news-quiz-harris-cheney-scho
 **8 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://nytimes.com/2024/09/06/movies/new-movies-this-week-critics.html
-
-**The Downside of Falling Interest Rates**\
-`While rate cuts are welcome in much of the economy, they pose problems for risk-averse investors who relish high money market and bond yields.`\
-https://nytimes.com/2024/09/06/business/interest-rates-falling-downside.html
-
-**Readers Told Us Their Favorite 1999 Movies. Here’s What Came Out on Top.**\
-`In a memorable year for film, there were recommendations of blockbusters, tender dramas and coming-of-age-tales. But one title stood out from the rest.`\
-https://nytimes.com/2024/09/06/movies/readers-favorite-1999-movies.html
-
-**Distracted and Divided, Russian Security Service Misses Threats**\
-`The Ukrainian offensive over the border caught Moscow’s intelligence agencies by surprise, experts say. It wasn’t the first time that has happened during the war.`\
-https://nytimes.com/2024/09/06/world/europe/russia-ukraine-kursk.html
 
