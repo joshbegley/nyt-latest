@@ -1,3 +1,7 @@
+**How Ralph Lauren Got Jill Biden to the Hamptons**\
+`The designer held a show on Long Island and built a dream world as a backdrop.`\
+https://nytimes.com/2024/09/06/style/ralph-lauren-jill-biden-hamptons-fashion-show.html
+
 **‘The Secret Lives of Mormon Wives’ Are About to Go Public**\
 `A new Hulu series will explore a cheating scandal — and its aftermath — that rocked the world of Mormon social media influencers.`\
 https://nytimes.com/2024/09/06/style/secret-lives-mormon-wives-momtok.html
@@ -14,8 +18,8 @@ https://nytimes.com/2024/09/06/science/chimpanzee-gestures-language.html
 `Fed officials have been watching the job market as they move toward a rate cut this month. Friday’s report contained good and bad news.`\
 https://nytimes.com/2024/09/06/business/economy/jobs-reports-federal-reserve-interest-rates.html
 
-**Teen Accused of Georgia School Shooting Appears in Court**\
-`The 14-year-old’s father, who was arrested Thursday in connection with the deaths of two teachers and two students, is scheduled to appear later on Friday morning.`\
+**Teen and Father Charged With Georgia School Shooting Appear in Court**\
+`The 14-year-old’s father was arrested Thursday in connection with the deaths of two teachers and two students, which his son is accused of carrying out with a military-style rifle.`\
 https://nytimes.com/2024/09/06/us/georgia-school-shooting.html
 
 **Meeting With Allies, Zelensky Presses for More Weapons**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5749824/2024/09/06/usc-football-defense-miller-moss
 **Stockport's Mangan set to join Ancelotti's coaching staff at Real Madrid**\
 `Stockport County&#8217;s Andy Mangan is set to join Carlo Ancelotti’s coaching staff at Real Madrid.`\
 https://nytimes.com/athletic/5749781/2024/09/06/andy-mangan-real-madrid-coaching-staff/
-
-**Chargers enter season opener vs. Raiders eager to wipe away the stench of 63-21**\
-`Nearly 50 percent of the roster has been turned over since last season. But those who were there still feel the impact of the 63-21 loss.`\
-https://nytimes.com/athletic/5749196/2024/09/06/chargers-raiders-rivalry-week-1-revenge/
 

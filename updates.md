@@ -1,3 +1,11 @@
+**How Ralph Lauren Got Jill Biden to the Hamptons**\
+`The designer held a show on Long Island and built a dream world as a backdrop.`\
+https://nytimes.com/2024/09/06/style/ralph-lauren-jill-biden-hamptons-fashion-show.html
+
+**Teen and Father Charged With Georgia School Shooting Appear in Court**\
+`The 14-year-old’s father was arrested Thursday in connection with the deaths of two teachers and two students, which his son is accused of carrying out with a military-style rifle.`\
+https://nytimes.com/2024/09/06/us/georgia-school-shooting.html
+
 **‘The Secret Lives of Mormon Wives’ Are About to Go Public**\
 `A new Hulu series will explore a cheating scandal — and its aftermath — that rocked the world of Mormon social media influencers.`\
 https://nytimes.com/2024/09/06/style/secret-lives-mormon-wives-momtok.html
