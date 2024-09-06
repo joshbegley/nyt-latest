@@ -1,3 +1,19 @@
+**Five Action Movies to Stream Now**\
+`This month’s picks include plenty of comedy, a killer shark and a mammoth sea battle.`\
+https://nytimes.com/2024/09/06/movies/action-movies-streaming.html
+
+**It’s a Homemade Pizza Weekend**\
+`Start with Roberta’s pizza dough, then try your hand at a clam-chowder pie.`\
+https://nytimes.com/2024/09/06/dining/its-a-homemade-pizza-weekend.html
+
+**Are At-Home Chemical Peels Safe?**\
+`The F.D.A. recommends against using the skin care products without professional supervision. Experts explain the risks.`\
+https://nytimes.com/2024/09/06/well/chemical-peels-at-home-skin-care.html
+
+**Review: This ‘Figaro’ Puts All Mozart’s Characters in One Voice**\
+`By singing men and women, nobles and servants, the countertenor Anthony Roth Costanzo takes the opera’s theme of human mutability to a chaotic extreme.`\
+https://nytimes.com/2024/09/06/arts/review-marriage-of-figaro-little-island-anthony-roth-costanzo.html
+
 **Books Deals Can Add Up to Millions of Dollars for Supreme Court Justices**\
 `For the justices, selling books remains one of the few ways to earn income outside the court.`\
 https://nytimes.com/2024/09/06/us/politics/supreme-court-justice-book-deals.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/06/arts/television/fifteen-love-review.html
 **Timberwolves, Rudy Gobert find themselves at the center of NBA's offseason circus**\
 `To win over the NBA populace, the Timberwolves are going to have to be even better than they were last season.`\
 https://nytimes.com/athletic/5745751/2024/09/06/rudy-gobert-timberwolves-nba-offseason-circus/
-
-**Fellow protesters said Aysenur Eygi was shot by an Israeli soldier.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2024/09/06/world/israel-hamas-gaza-war/west-bank-us-protester-killed-aysenur-eygi
-
-**Downward revisions could be a warning sign.**\
-`By Ben Casselman`\
-https://nytimes.com/live/2024/09/06/business/jobs-report-august-economy/jobs-report-revisions
-
-**Wall Street Is Worried About Carl Icahn**\
-`The value of the 88-year-old activist investor’s stake in his own company has fallen by nearly $20 billion. Mr. Icahn said that he was “absolutely not selling.”`\
-https://nytimes.com/2024/09/06/business/carl-icahn-investors-wall-street.html
-
-**NWSL hires former FIFPRO director Sarah Gregorius to lead player standards**\
-`New NWSL sporting senior director Gregorius sees potential in the league's autonomy `\
-https://nytimes.com/athletic/5749348/2024/09/06/nwsl-hires-fifpro-sarah-gregorius/
 
