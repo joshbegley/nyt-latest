@@ -1,3 +1,7 @@
+**Trump Will Not Be Sentenced Before Election Day**\
+`Also, an alternative for B.M.I. shows promise. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/09/06/briefing/trump-new-york-sentence-bmi-alternative.html
+
 **The Future of JD Vance’s Charity in Ohio Is Unclear**\
 `A tiny nonprofit founded by Trump’s running mate to improve the lives of Ohioans suffering from opioid addiction remains in limbo.`\
 https://nytimes.com/2024/09/06/us/politics/jd-vance-charity-ohio.html

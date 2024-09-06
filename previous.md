@@ -1,3 +1,7 @@
+**Trump Will Not Be Sentenced Before Election Day**\
+`Also, an alternative for B.M.I. shows promise. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/09/06/briefing/trump-new-york-sentence-bmi-alternative.html
+
 **The Future of JD Vance’s Charity in Ohio Is Unclear**\
 `A tiny nonprofit founded by Trump’s running mate to improve the lives of Ohioans suffering from opioid addiction remains in limbo.`\
 https://nytimes.com/2024/09/06/us/politics/jd-vance-charity-ohio.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/06/obituaries/gwendolyn-bennett-harlem-renaissance-o
 **Carsley 'not at all' worried over playing Rice & Grealish against Republic of Ireland**\
 `England interim manager Lee Carsley has said that he is not worried about the atmosphere facing Declan Rice and Jack Grealish in Dublin during Saturday&#8217;s Nations League fixture against the Republic of Ireland.`\
 https://nytimes.com/athletic/5750947/2024/09/06/jack-grealish-declan-rice-ireland-england/
-
-**Morgan Stanley Is Fined for First Republic C.E.O.’s Stock Sales**\
-`James Herbert was permitted to sell nearly $7 million of shares before First Republic Bank’s demise last year, Massachusetts regulators said.`\
-https://nytimes.com/2024/09/06/business/morgan-stanley-first-republic-fined.html
 
