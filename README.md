@@ -2,7 +2,7 @@
 `JD Vance’s campaign said he “doesn’t believe in guilt-by-association cancel culture” but doesn’t share the views of Tucker Carlson’s guest, who claimed the Holocaust was not premeditated genocide.`\
 https://nytimes.com/2024/09/06/us/politics/jd-vance-tucker-carlson-darryl-cooper.html
 
-**Mounting Inquiries Raise Questions About Adams’s Ability to Run New York**\
+**Flurry of Inquiries Raises Doubts About Adams’s Ability to Run New York**\
 `The revelation that much of Mayor Eric Adams’s inner circle is under federal investigation stunned city officials, and some worried their work could be affected.`\
 https://nytimes.com/2024/09/06/nyregion/adams-fbi-raids-investigation.html
 
