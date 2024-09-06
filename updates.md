@@ -1,3 +1,11 @@
+**Fire at School Dormitory in Kenya Kills at Least 17**\
+`President William Ruto called the news “devastating.” The police said the cause of the blaze was being investigated.`\
+https://nytimes.com/2024/09/06/world/africa/kenya-school-fire.html
+
+**Ronaldo on scoring 900 career goals: 'I knew I would reach this number'**\
+`Cristiano Ronaldo spoke of his delight at scoring his 900th career goal during Portugal’s 2-1 victory over Croatia in the Nations League, stating that he knew he would &#8220;reach this number&#8221;.`\
+https://nytimes.com/athletic/5749549/2024/09/06/cristiano-ronaldo-900-goals/
+
 **Seth Meyers: Trump and Vance ‘Can’t Beat the Weird Charges’**\
 `The “Late Night” host said that Republican efforts to turn the accusations back on Democrats are “only making things worse.”`\
 https://nytimes.com/2024/09/06/arts/television/seth-meyers-trump-vance-weird.html
