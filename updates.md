@@ -1,3 +1,11 @@
+**What Female Llamas Do**\
+`Adrian Johnson opens our solving weekend.`\
+https://nytimes.com/2024/09/05/crosswords/daily-puzzle-2024-09-06.html
+
+**It’s Been the Hottest Summer on Record, European Officials Say**\
+`The excessive heat worldwide suggests the full year will also be a record-breaker, according to Copernicus, the E.U. agency that tracks global warming.`\
+https://nytimes.com/2024/09/05/climate/2024-hottest-summer-on-record.html
+
 **Judge Rejects Key Part of N.C.A.A. Settlement of Antitrust Suit With Athletes**\
 `The concern over restrictions on some payments raises uncertainty on whether a landmark agreement on compensating athletes can be reached and approved.`\
 https://nytimes.com/2024/09/05/us/ncaa-antitrust-settlement-athletes-pay.html
