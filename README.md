@@ -1,3 +1,7 @@
+**Overlooked No More: Gwendolyn B. Bennett, Harlem Renaissance Star Plagued by Misfortune**\
+`She was a talented young poet and artist who was central to a fledgling cultural movement, but her life was shrouded by one tragedy after another.`\
+https://nytimes.com/2024/09/06/obituaries/gwendolyn-bennett-harlem-renaissance-overlooked.html
+
 **Carsley 'not at all' worried over playing Rice & Grealish against Republic of Ireland**\
 `England interim manager Lee Carsley has said that he is not worried about the atmosphere facing Declan Rice and Jack Grealish in Dublin during Saturday&#8217;s Nations League fixture against the Republic of Ireland.`\
 https://nytimes.com/athletic/5750947/2024/09/06/jack-grealish-declan-rice-ireland-england/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/06/us/politics/trump-harris-georgia-school-shooting.
 **Want to Move Abroad? Here Are Five Ways to Do It.**\
 `The path to a life in a new country is often paved with complicated visa and residency requirements.`\
 https://nytimes.com/2024/09/06/realestate/moving-abroad-americans-guide.html
-
-**Bills, RT Spencer Brown reach 4-year extension**\
-`Brown will pair with left tackle Dion Dawkins for the foreseeable future in protecting franchise QB Josh Allen.`\
-https://nytimes.com/athletic/5750842/2024/09/06/spencer-brown-bills-extension/
 
