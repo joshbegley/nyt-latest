@@ -1,3 +1,11 @@
+**What to know about the latest report.**\
+`By Lydia DePillis`\
+https://nytimes.com/live/2024/09/06/business/jobs-report-august-economy/what-to-know-about-the-latest-report
+
+**These Easy Cakes Need No Special Ingredients to Shine**\
+`Endlessly adaptable, tea cakes have long offered bakers across the country a moment of restoration.`\
+https://nytimes.com/2024/09/06/dining/tea-cakes-history.html
+
 **Sergio Mendes, 83, Dies; Brought Brazilian Rhythms to the U.S. Pop Charts**\
 `A pianist, composer and arranger, he rose to fame with the group Brasil ’66 and remained a force in popular music for more than six decades.`\
 https://nytimes.com/2024/09/06/arts/music/sergio-mendes-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5750389/2024/09/06/football-parlay-fridays-college-
 **NFL Brazil game: Where is the stadium for Packers vs Eagles? And why is green so controversial?**\
 `The NFL holds its first game in Brazil on Friday night as the Philadelphia Eagles take on the Green Bay Packers`\
 https://nytimes.com/athletic/5750158/2024/09/06/nfl-brazil-game-stadium-where-green/
-
-**Young quarterback trading card values vs. real-life value entering the 2024 season**\
-`A look at where card values stand for quarterbacks drafted from 2020-2023 as they enter the new season `\
-https://nytimes.com/athletic/5744467/2024/09/06/nfl-quarterback-card-values-burrow-stroud/
-
-**Suspect and Father Appear in Court on Georgia School Shooting Charges**\
-`A 14-year-old was charged with murder in the killing of two students and two teachers at Apalachee High School in Winder, Ga. His father is accused of allowing his son access to the military-style rifle used in the shooting.`\
-https://nytimes.com/video/us/100000009677362/apalachee-high-school-georgia-shooting.html
 
