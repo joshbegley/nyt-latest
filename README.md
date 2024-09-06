@@ -8,7 +8,7 @@ https://nytimes.com/athletic/5750428/2024/09/06/astros-activate-kyle-tucker/
 
 **Dick Cheney will vote for Kamala Harris, his daughter Liz Cheney says.**\
 `By Annie Karni`\
-https://nytimes.com/live/2024/09/06/us/harris-trump-election/dick-cheney-will-vote-for-kamala-harris-his-daughter-liz-cheney-says
+https://nytimes.com/2024/09/06/us/politics/dick-cheney-kamala-harris.html
 
 **From dominant to defeated, Diede de Groot is human after all**\
 `The Dutch star has done more for women's wheelchair tennis than most on and off the court - but had to settle for silver in Paris`\
