@@ -34,7 +34,7 @@ https://nytimes.com/athletic/5749824/2024/09/06/usc-football-defense-miller-moss
 `Stockport County&#8217;s Andy Mangan is set to join Carlo Ancelotti’s coaching staff at Real Madrid.`\
 https://nytimes.com/athletic/5749781/2024/09/06/andy-mangan-real-madrid-coaching-staff/
 
-**Analyzing the Giants' Matt Chapman extension for the present and future**\
-`Chapman has a track record of good health and skills that often age well. He looks like a better free-agent gamble than most.`\
-https://nytimes.com/athletic/5747832/2024/09/06/sf-giants-matt-chapman-extension-analysis/
+**Chargers enter season opener vs. Raiders eager to wipe away the stench of 63-21**\
+`Nearly 50 percent of the roster has been turned over since last season. But those who were there still feel the impact of the 63-21 loss.`\
+https://nytimes.com/athletic/5749196/2024/09/06/chargers-raiders-rivalry-week-1-revenge/
 
