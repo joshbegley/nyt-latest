@@ -1,3 +1,19 @@
+**Five Action Movies to Stream Now**\
+`This month’s picks include plenty of comedy, a killer shark and a mammoth sea battle.`\
+https://nytimes.com/2024/09/06/movies/action-movies-streaming.html
+
+**It’s a Homemade Pizza Weekend**\
+`Start with Roberta’s pizza dough, then try your hand at a clam-chowder pie.`\
+https://nytimes.com/2024/09/06/dining/its-a-homemade-pizza-weekend.html
+
+**Are At-Home Chemical Peels Safe?**\
+`The F.D.A. recommends against using the skin care products without professional supervision. Experts explain the risks.`\
+https://nytimes.com/2024/09/06/well/chemical-peels-at-home-skin-care.html
+
+**Review: This ‘Figaro’ Puts All Mozart’s Characters in One Voice**\
+`By singing men and women, nobles and servants, the countertenor Anthony Roth Costanzo takes the opera’s theme of human mutability to a chaotic extreme.`\
+https://nytimes.com/2024/09/06/arts/review-marriage-of-figaro-little-island-anthony-roth-costanzo.html
+
 **Books Deals Can Add Up to Millions of Dollars for Supreme Court Justices**\
 `For the justices, selling books remains one of the few ways to earn income outside the court.`\
 https://nytimes.com/2024/09/06/us/politics/supreme-court-justice-book-deals.html
