@@ -1,3 +1,7 @@
+**Ravens-Chiefs ranks as most-watched season opener ever**\
+`The game topped viewership for last year’s season opener (27.5 million for Detroit Lions-Chiefs) by five percent.`\
+https://nytimes.com/athletic/5751178/2024/09/06/ravens-chiefs-tv-ratings-nfl-nbc/
+
 **Missouri Reports Bird Flu in a Patient Without a Known Risk**\
 `Previous human infections occurred in workers on farms. But community transmission of the virus remains unlikely for now, experts said.`\
 https://nytimes.com/2024/09/06/health/bird-flu-missouri-cdc.html
