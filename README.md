@@ -1,3 +1,15 @@
+**Bills, RT Spencer Brown reach 4-year extension**\
+`Brown will pair with left tackle Dion Dawkins for the foreseeable future in protecting franchise QB Josh Allen.`\
+https://nytimes.com/athletic/5750842/2024/09/06/spencer-brown-bills-extension/
+
+**Wilson's status as Steelers starter in question**\
+`Backup Justin Fields would be in line to start if Russell Wilson is unable to play in Sunday's season opener in Atlanta.`\
+https://nytimes.com/athletic/5750878/2024/09/06/russell-wilson-status-injury-week-1-steelers/
+
+**An Empty Boeing Starliner Heads Back to Earth: How to Watch**\
+`Two NASA astronauts will stay aboard the International Space Station as the troubled vehicle they rode undocks ahead of a landing in the New Mexico desert.`\
+https://nytimes.com/2024/09/06/science/boeing-starliner-nasa-space-station.html
+
 **Raiders' Koonce (knee) ruled out for Week 1 vs. Chargers**\
 `Koonce had a breakthrough year in his third season with the Raiders, with eight sacks and three forced fumbles.`\
 https://nytimes.com/athletic/5750863/2024/09/06/malcolm-koonce-out-raiders-chargers/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5750629/2024/09/06/alex-morgan-legacy-last-game-wav
 **ACC claims FSU and Clemson are too late in contesting grant of rights**\
 `The ACC claims Florida State and Clemson accepted the ACC's contracts for years without pushback and have missed the statute of limitations.`\
 https://nytimes.com/athletic/5750778/2024/09/06/acc-florida-state-clemson-lawsuit/
-
-**Tracking the Senate’s Most Competitive Races**\
-`Senate control will mostly likely come down to voters in seven states that remain competitive.`\
-https://nytimes.com/interactive/2024/us/elections/senate-election-swing-states.html
-
-**Michael Lerner, 81, Is Dead; Founder of a Combative Jewish Magazine**\
-`His publication, Tikkun, was a leading voice for left-wing American Jews. His ideas about “the politics of meaning” were embraced by Hillary Clinton.`\
-https://nytimes.com/2024/09/06/business/media/michael-lerner-dead.html
-
-**Hunter Woodhall wins Paralympic gold and completes a dream summer for track's power couple**\
-`On Friday, Hunter Woodhall joined his wife, Olympian Tara Davis-Woodhall, as Paris gold-medal winners, the culmination of a deep love.`\
-https://nytimes.com/athletic/5749532/2024/09/06/hunter-woodhall-paralmypics-gold-medal-tara-davis-woodhall/
 
