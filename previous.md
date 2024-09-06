@@ -1,3 +1,19 @@
+**Teen Accused of Georgia School Shooting Appears in Court**\
+`The 14-year-old’s father, who was arrested Thursday in connection with the deaths of two teachers and two students, is scheduled to appear later on Friday morning.`\
+https://nytimes.com/2024/09/06/us/georgia-school-shooting.html
+
+**Meeting With Allies, Zelensky Presses for More Weapons**\
+`The Ukrainian leader argued that escalating military pressure on Russia, combined with diplomacy, was the best way to motivate Moscow to seek peace.`\
+https://nytimes.com/2024/09/06/world/europe/zelensky-ukraine-weapons-russia.html
+
+**Everything a Philadelphia Eagles fan needs to know for Week 1**\
+`All the questions about the Eagles will begin to be answered in São Paulo on Friday night.`\
+https://nytimes.com/athletic/5745895/2024/09/06/philadelphia-eagles-season-news-preview-2024/
+
+**USC mailbag: Revised predictions, defensive improvement, areas of concern**\
+`Any concerns with the clock management? Will Jayden Maiava be used in short-yardage situations? How many defensive players will see action?`\
+https://nytimes.com/athletic/5749824/2024/09/06/usc-football-defense-miller-moss-utah-state/
+
 **Stockport's Mangan set to join Ancelotti's coaching staff at Real Madrid**\
 `Stockport County&#8217;s Andy Mangan is set to join Carlo Ancelotti’s coaching staff at Real Madrid.`\
 https://nytimes.com/athletic/5749781/2024/09/06/andy-mangan-real-madrid-coaching-staff/
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/09/06/us/harris-trump-election/heres-the-latest-on
 **Election Live Updates: Harris Campaign Says It Raised $361 Million in August**\
 `In her first full month as the Democratic nominee, the vice president reported a fund-raising total that was nearly triple what the Trump campaign said it amassed in the same period.`\
 https://nytimes.com/live/2024/09/06/us/harris-trump-election
-
-**Kawakami: My 2024 49ers season prediction — 11-6 and the NFC West title**\
-`The 49ers have a top-heavy roster and some schedule complications, but they should have enough talent and experience to win the NFC West.`\
-https://nytimes.com/athletic/5745551/2024/09/06/2024-49ers-season-prediction-kawakami/
-
-**Breaking Down Trumponomics 2.0**\
-`Higher tariffs, lower taxes, and more of Elon Musk: The former president outlined his economic vision to an audience of business leaders. But questions abound.`\
-https://nytimes.com/2024/09/06/business/dealbook/trumponomics-trump-economy.html
-
-**How do Bucks fans feel about the upcoming season? Let us know what you think**\
-`After a turbulent 2023-24 season, the Bucks were eliminated in the first round. How are Bucks fans feeling going into the 2024-25 season?`\
-https://nytimes.com/athletic/5747738/2024/09/06/milwaukee-bucks-fan-survey-2/
-
-**Jones: Gap between Chiefs and Ravens is bigger than toe that decided game**\
-`The Chiefs weren't perfect in Thursday's 27-20 win, but what Patrick Mahomes and his teammates put on display should concern competitors.`\
-https://nytimes.com/athletic/5749588/2024/09/06/chiefs-ravens-toe-afc-contenders/
 
