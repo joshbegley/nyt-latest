@@ -1,3 +1,7 @@
+**The father of the accused shooter has been charged with second-degree murder.**\
+`By Emily Cochrane and Jacey Fortin`\
+https://nytimes.com/2024/09/05/us/georgia-school-shooting-colt-gray-father.html
+
 **What Female Llamas Do**\
 `Adrian Johnson opens our solving weekend.`\
 https://nytimes.com/2024/09/05/crosswords/daily-puzzle-2024-09-06.html
