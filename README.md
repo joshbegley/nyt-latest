@@ -1,3 +1,15 @@
+**Who is England's best goalkeeper? The top six candidates assessed**\
+`Pickford. Pope. Ramsdale. Henderson. Johnstone. Trafford. Who should Carsley pick going forward?`\
+https://nytimes.com/athletic/5741960/2024/09/06/england-goalkeepers-assessed/
+
+**We examined Man City's streak of 49 successful throw-ins. For fun.**\
+`Why Man City are the only Premier League club with a 100 per cent success rate for throw-ins this season`\
+https://nytimes.com/athletic/5746857/2024/09/06/manchester-city-49-successful-throwins/
+
+**The great Premier League international injury 'conspiracy': Separating the myth from reality**\
+`Fans like to think their rivals take liberties with withdrawing players from international duty — so what's the truth?`\
+https://nytimes.com/athletic/5747156/2024/09/06/premier-league-international-players-injuries/
+
 **Friday Briefing**\
 `Donald Trump’s sentencing on federal charges.`\
 https://nytimes.com/2024/09/06/briefing/donald-trump-france-politics-hunter-biden.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5747450/2024/09/06/fantasy-baseball-waiver-wire-joh
 **Who moved to Saudi Arabia this summer - and what it reveals about the Pro League**\
 `A look at the players who moved to the Saudi Pro League this summer, including a 21-year-old from Solihull`\
 https://nytimes.com/athletic/5747277/2024/09/06/saudi-pro-league-players-joined-summer-2024/
-
-**Nurses Win a Bigger Role as Doctors Strike in South Korea**\
-`As hospitals struggle from a monthslong walkout, nurses have picked up some of the slack. A new law gives them more responsibilities and, they say, greater recognition.`\
-https://nytimes.com/2024/09/06/world/asia/korea-nurses-doctors-strike.html
-
-**Braves lay an egg in series finale vs. Rockies, slip to third-place tie with Mets**\
-`The Braves should now be more concerned now with holding off the Mets in the wild-card race than catching the Phillies.`\
-https://nytimes.com/athletic/5749351/2024/09/06/braves-lose-rockies-third-place-mets/
-
-**In the Pacific, a ‘Dumping Ground’ for Priests Accused or Convicted of Abuse**\
-`Over a decades-long period, more than 30 Catholic priests and missionaries moved to remote island nations after they had allegedly abused children in the West, or had been found to do so.`\
-https://nytimes.com/2024/09/06/world/asia/pacific-islands-catholic-priests-abuse.html
 
