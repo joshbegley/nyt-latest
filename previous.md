@@ -1,3 +1,7 @@
+**Judge John Hodgman on Creepy Dog Names**\
+`A boyfriend is uncomfortable with naming a pet after a participant in the Soviet space program.`\
+https://nytimes.com/2024/09/06/magazine/judge-john-hodgman-on-creepy-dog-names.html
+
 **A Nuanced, Unreleased Live Bob Dylan Cut, and 8 More New Songs**\
 `Hear tracks by Linkin Park, Halsey, Queen Naija and others.`\
 https://nytimes.com/2024/09/06/arts/music/playlist-bob-dylan-halsey-linkin-park.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/06/technology/elon-musk-donald-trump-influence.html
 **Tucker Carlson Sharply Criticized for Hosting Holocaust Revisionist**\
 `Mr. Carlson’s guest on “Tucker on X” made a variety of false claims about the Holocaust and World War II.`\
 https://nytimes.com/2024/09/06/business/media/tucker-carlson-holocaust-interview-biden-administration.html
-
-**What to know about the latest report.**\
-`By Lydia DePillis`\
-https://nytimes.com/live/2024/09/06/business/jobs-report-august-economy/what-to-know-about-the-latest-report
 

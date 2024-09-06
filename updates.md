@@ -1,3 +1,7 @@
+**Judge John Hodgman on Creepy Dog Names**\
+`A boyfriend is uncomfortable with naming a pet after a participant in the Soviet space program.`\
+https://nytimes.com/2024/09/06/magazine/judge-john-hodgman-on-creepy-dog-names.html
+
 **A Nuanced, Unreleased Live Bob Dylan Cut, and 8 More New Songs**\
 `Hear tracks by Linkin Park, Halsey, Queen Naija and others.`\
 https://nytimes.com/2024/09/06/arts/music/playlist-bob-dylan-halsey-linkin-park.html
