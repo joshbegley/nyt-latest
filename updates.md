@@ -1,3 +1,11 @@
+**Word of the Day: bastion**\
+`This word has appeared in 214 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/09/06/learning/word-of-the-day-bastion.html
+
+**Super Typhoon Yagi Drenches Southern China Ahead of Landfall**\
+`Yagi, one of 2024’s strongest storms, is forecast to make landfall on the Chinese island of Hainan on Friday, and then in northern Vietnam on Saturday.`\
+https://nytimes.com/2024/09/06/world/asia/typhoon-yagi-china-hong-kong-vietnam.html
+
 **Is Brisbane Ready to Be the Equal of Sydney and Melbourne?**\
 `Many don’t see Brisbane in the same light as the other two cities, but the Queensland capital is showing it, too, has cultural heft.`\
 https://nytimes.com/2024/09/06/world/australia/brisbane-jean-paul-gaultier.html
