@@ -1,3 +1,11 @@
+**Ted Drewes Jr., the Frozen Custard King of St. Louis, Dies at 96**\
+`Celebrity chefs and politicians paid tribute to the man behind the extra-thick shake known as the concrete, an intrinsic part of St. Louis summers.`\
+https://nytimes.com/2024/09/06/business/ted-drewes-jr-dead.html
+
+**Steelers, TE Pat Freiermuth agree to new deal**\
+`Freiermuth had a disappointing 2023 season, but he could be set for a career year in Arthur Smith's offense.`\
+https://nytimes.com/athletic/5656811/2024/09/06/pat-freiermuth-contract-steelers/
+
 **Judge John Hodgman on Creepy Dog Names**\
 `A boyfriend is uncomfortable with naming a pet after a participant in the Soviet space program.`\
 https://nytimes.com/2024/09/06/magazine/judge-john-hodgman-on-creepy-dog-names.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5748533/2024/09/06/eno-sarris-live-mlb-chat-9-6/
 **The Storm Clouds Gathering Over New York’s City Hall**\
 `Mayor Adams owes the city more than just blithe reassurances.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/mayor-adams-investigation
-
-**How Elon Musk Is Influencing Donald Trump**\
-`Their fast-evolving political friendship has become a potential minefield, as Mr. Musk’s sprawling businesses may present conflicts of interest if Mr. Trump is elected in November.`\
-https://nytimes.com/2024/09/06/technology/elon-musk-donald-trump-influence.html
-
-**Tucker Carlson Sharply Criticized for Hosting Holocaust Revisionist**\
-`Mr. Carlson’s guest on “Tucker on X” made a variety of false claims about the Holocaust and World War II.`\
-https://nytimes.com/2024/09/06/business/media/tucker-carlson-holocaust-interview-biden-administration.html
 
