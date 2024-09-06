@@ -7,7 +7,7 @@ https://nytimes.com/2024/09/06/france-rape-trial-caroline-darian-testimony.html
 https://nytimes.com/athletic/5750745/2024/09/06/sinner-draper-us-open-semifinal-result/
 
 **Clark Halstead, Real Estate Broker Who Broke the Mold, Dies at 83**\
-`The face of his firm, he opened storefront offices to chase undervalued properties in diverse sections of the city and emblazoned a London cab with his name.`\
+`The face of his firm, he opened storefront offices to chase undervalued properties in New York City and emblazoned a London cab with his name.`\
 https://nytimes.com/2024/09/06/nyregion/clark-halstead-dead.html
 
 **Alex Morgan's final game to be on multiple channels, streaming services**\
