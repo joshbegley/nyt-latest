@@ -1,3 +1,11 @@
+**Can More Vyvanse Production Ease the A.D.H.D. Drug Shortage?**\
+`The D.E.A. is increasing its quota for the popular stimulant as patients still struggle to fill prescriptions.`\
+https://nytimes.com/2024/09/06/well/mind/vyvanse-dea-increase.html
+
+**A Victory Comes at Last for the World’s Worst Soccer Team**\
+`San Marino scored its first competitive win. “To beat Liechtenstein has been an incredible joy,” one player said.`\
+https://nytimes.com/2024/09/06/sports/soccer/san-marino-soccer-first-win.html
+
 **Last of 3 Inmates Sentenced in Beating Death of Whitey Bulger Gets 25 Years**\
 `Fotios Geas, who was already serving a life sentence, bludgeoned the Boston gangster to death in his cell in 2018, prosecutors said.`\
 https://nytimes.com/2024/09/06/us/whitey-bulger-fotios-geas-sentencing.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/06/business/ted-drewes-jr-dead.html
 **Steelers, TE Pat Freiermuth agree to new deal**\
 `Freiermuth had a disappointing 2023 season, but he could be set for a career year in Arthur Smith's offense.`\
 https://nytimes.com/athletic/5656811/2024/09/06/pat-freiermuth-contract-steelers/
-
-**Judge John Hodgman on Creepy Dog Names**\
-`A boyfriend is uncomfortable with naming a pet after a participant in the Soviet space program.`\
-https://nytimes.com/2024/09/06/magazine/judge-john-hodgman-on-creepy-dog-names.html
-
-**A Nuanced, Unreleased Live Bob Dylan Cut, and 8 More New Songs**\
-`Hear tracks by Linkin Park, Halsey, Queen Naija and others.`\
-https://nytimes.com/2024/09/06/arts/music/playlist-bob-dylan-halsey-linkin-park.html
 

@@ -1,3 +1,11 @@
+**Can More Vyvanse Production Ease the A.D.H.D. Drug Shortage?**\
+`The D.E.A. is increasing its quota for the popular stimulant as patients still struggle to fill prescriptions.`\
+https://nytimes.com/2024/09/06/well/mind/vyvanse-dea-increase.html
+
+**A Victory Comes at Last for the World’s Worst Soccer Team**\
+`San Marino scored its first competitive win. “To beat Liechtenstein has been an incredible joy,” one player said.`\
+https://nytimes.com/2024/09/06/sports/soccer/san-marino-soccer-first-win.html
+
 **Last of 3 Inmates Sentenced in Beating Death of Whitey Bulger Gets 25 Years**\
 `Fotios Geas, who was already serving a life sentence, bludgeoned the Boston gangster to death in his cell in 2018, prosecutors said.`\
 https://nytimes.com/2024/09/06/us/whitey-bulger-fotios-geas-sentencing.html
