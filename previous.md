@@ -1,3 +1,15 @@
+**Has Ohio State solved its special teams problems? Brandon Inniss providing early jolt**\
+`Ohio State's more aggressive approach on returns with Brandon Inniss — and without a special teams coordinator — is already paying off.`\
+https://nytimes.com/athletic/5749775/2024/09/06/ohio-state-special-teams-brandon-inniss/
+
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/09/06/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Harris Campaign Says It Raised $361 Million in August**\
+`In her first full month as the Democratic nominee, the vice president reported a fund-raising total that was nearly triple what the Trump campaign said it amassed in the same period.`\
+https://nytimes.com/live/2024/09/06/us/harris-trump-election
+
 **Kawakami: My 2024 49ers season prediction — 11-6 and the NFC West title**\
 `The 49ers have a top-heavy roster and some schedule complications, but they should have enough talent and experience to win the NFC West.`\
 https://nytimes.com/athletic/5745551/2024/09/06/2024-49ers-season-prediction-kawakami/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5728965/2024/09/06/nbc-peacock-packers-eagles-brazi
 **Broncos' tested offensive line knows it must set tone for QB Bo Nix: 'It's on us'**\
 `The Broncos have invested heavily in their offensive front the past two seasons. The group must now help slash a ballooning sack figure.`\
 https://nytimes.com/athletic/5747976/2024/09/06/broncos-offensive-line-week-1-seahawks/
-
-**The Athletic’s Friday football quiz question #20**\
-`The Athletic's weekly conundrum from inside the trivia vaults`\
-https://nytimes.com/athletic/5749683/2024/09/06/the-athletics-friday-football-quiz-question/
-
-**With key USMNT left out, here's who might rise to the occasion ahead of pending coaching hire**\
-`With Weston McKennie, Antonee Robinson and others missing, these four players have a chance to stand out`\
-https://nytimes.com/athletic/5748351/2024/09/06/usmnt-players-to-watch-september-camp/
-
-**‘He has a lot of leverage here’: As camp approaches, Bruins' Jeremy Swayman still without a deal**\
-`The Bruins traded Linus Ullmark partly because they believed Swayman was ready to be a workhorse. A contract comes first.`\
-https://nytimes.com/athletic/5748661/2024/09/06/bruins-jeremy-swayman-training-camp/
 

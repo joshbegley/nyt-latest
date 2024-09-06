@@ -1,3 +1,15 @@
+**Has Ohio State solved its special teams problems? Brandon Inniss providing early jolt**\
+`Ohio State's more aggressive approach on returns with Brandon Inniss — and without a special teams coordinator — is already paying off.`\
+https://nytimes.com/athletic/5749775/2024/09/06/ohio-state-special-teams-brandon-inniss/
+
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/09/06/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Harris Campaign Says It Raised $361 Million in August**\
+`In her first full month as the Democratic nominee, the vice president reported a fund-raising total that was nearly triple what the Trump campaign said it amassed in the same period.`\
+https://nytimes.com/live/2024/09/06/us/harris-trump-election
+
 **Kawakami: My 2024 49ers season prediction — 11-6 and the NFC West title**\
 `The 49ers have a top-heavy roster and some schedule complications, but they should have enough talent and experience to win the NFC West.`\
 https://nytimes.com/athletic/5745551/2024/09/06/2024-49ers-season-prediction-kawakami/
