@@ -1,3 +1,7 @@
+**Alex Morgan reflects on her legacy ahead of final game**\
+`“I hope my legacy is that I pushed the game forward,” Morgan said in a news conference Friday.`\
+https://nytimes.com/athletic/5750629/2024/09/06/alex-morgan-legacy-last-game-wave/
+
 **ACC claims FSU and Clemson are too late in contesting grant of rights**\
 `The ACC claims Florida State and Clemson accepted the ACC's contracts for years without pushback and have missed the statute of limitations.`\
 https://nytimes.com/athletic/5750778/2024/09/06/acc-florida-state-clemson-lawsuit/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009673004/4-of-the-best-books-about-
 **G.O.P. Candidates Distort Records on Women, Seeking to Blunt a Liability**\
 `Congressional Republicans in races around the country are seeking to appeal to women by pledging support for I.V.F. and abortion access, even if they have opposed them in the past.`\
 https://nytimes.com/2024/09/06/us/politics/gop-candidates-women-issues.html
-
-**UNC's Max Johnson to return after season-ending injury: Reports**\
-`Johnson says he feels he has “a lot of football left in me, and know I will be back out there next year.”`\
-https://nytimes.com/athletic/5750765/2024/09/06/max-johnson-unc-injury-return/
 
