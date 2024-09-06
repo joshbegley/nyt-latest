@@ -1,3 +1,11 @@
+**The Storm Clouds Gathering Over New York’s City Hall**\
+`Mayor Adams owes the city more than just blithe reassurances.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/mayor-adams-investigation
+
+**How Elon Musk Is Influencing Donald Trump**\
+`Their fast-evolving political friendship has become a potential minefield, as Mr. Musk’s sprawling businesses may present conflicts of interest if Mr. Trump is elected in November.`\
+https://nytimes.com/2024/09/06/technology/elon-musk-donald-trump-influence.html
+
 **Tucker Carlson Sharply Criticized for Hosting Holocaust Revisionist**\
 `Mr. Carlson’s guest on “Tucker on X” made a variety of false claims about the Holocaust and World War II.`\
 https://nytimes.com/2024/09/06/business/media/tucker-carlson-holocaust-interview-biden-administration.html
