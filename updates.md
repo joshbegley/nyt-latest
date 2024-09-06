@@ -1,3 +1,7 @@
+**Judge Rejects Key Part of N.C.A.A. Settlement of Antitrust Suit With Athletes**\
+`The concern over restrictions on some payments raises uncertainty on whether a landmark agreement on compensating athletes can be reached and approved.`\
+https://nytimes.com/2024/09/05/us/ncaa-antitrust-settlement-athletes-pay.html
+
 **The father of the accused shooter has been charged with second-degree murder.**\
 `By Emily Cochrane and Jacey Fortin`\
 https://nytimes.com/live/2024/09/05/us/georgia-school-shooting/georgia-school-shooting-colt-gray-father

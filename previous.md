@@ -1,3 +1,7 @@
+**Judge Rejects Key Part of N.C.A.A. Settlement of Antitrust Suit With Athletes**\
+`The concern over restrictions on some payments raises uncertainty on whether a landmark agreement on compensating athletes can be reached and approved.`\
+https://nytimes.com/2024/09/05/us/ncaa-antitrust-settlement-athletes-pay.html
+
 **The father of the accused shooter has been charged with second-degree murder.**\
 `By Emily Cochrane and Jacey Fortin`\
 https://nytimes.com/live/2024/09/05/us/georgia-school-shooting/georgia-school-shooting-colt-gray-father
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5675577/2024/09/05/uswnt-olympics-alex-morgan-not-o
 **Purported Rembrandt Painting Found in a Maine Attic Sells for $1.4 Million**\
 `“Portrait of a Girl,” a 17th-century work believed to be by the Dutch master, had been hiding in a home in Maine.`\
 https://nytimes.com/2024/09/05/arts/rembrandt-painting-maine-attic.html
-
-**USC retires Caleb Williams No. 13, reinstates Reggie Bush's No. 5**\
-`Williams is USC's eighth Heisman winner. Bush's jersey will return with the Trojans' other Heisman winners after being removed in 2010.`\
-https://nytimes.com/athletic/5748894/2024/09/05/caleb-williams-reggie-bush-usc-trojans-football-jersey-number-retired/
 
