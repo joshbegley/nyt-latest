@@ -1,3 +1,7 @@
+**Seth Meyers: Trump and Vance ‘Can’t Beat the Weird Charges’**\
+`The “Late Night” host said that Republican efforts to turn the accusations back on Democrats are “only making things worse.”`\
+https://nytimes.com/2024/09/06/arts/television/seth-meyers-trump-vance-weird.html
+
 **China Stops Foreign Adoptions, Ending a Complicated Chapter**\
 `Beijing said the move was in line with international trends, as more countries have limited such adoptions. Many would-be adoptive families were left in limbo.`\
 https://nytimes.com/2024/09/06/world/asia/china-foreign-adoptions-ban.html
