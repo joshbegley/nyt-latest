@@ -35,6 +35,6 @@ https://nytimes.com/2024/09/06/business/stock-market-jobs-report.html
 https://nytimes.com/2024/09/06/arts/jackie-winsor-dead.html
 
 **American Activist Dies After Being Shot at a West Bank Protest**\
-`Aysenur Ezgi Eygi, a 26-year-old Turkish American, was shot dead at a protest against an Israeli settlement in the West Bank town of Beita.`\
+`Aysenur Ezgi Eygi, a 26-year-old American, was shot at a protest against an Israeli outpost in the West Bank town of Beita.`\
 https://nytimes.com/video/world/middleeast/100000009677822/american-activist-killed-west-bank-.html
 
