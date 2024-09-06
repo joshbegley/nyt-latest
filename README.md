@@ -1,3 +1,7 @@
+**Dolphins make Ramsey NFL's highest-paid CB**\
+`The Dolphins and Jalen Ramsey agreed to a three-year extension worth up to $72.3 million, a source said.`\
+https://nytimes.com/athletic/5750400/2024/09/06/jalen-ramsey-contract-extension-dolphins/
+
 **The Big Number: $3.8 Billion**\
 `The amount offered by Nordstrom’s founding family to buy its namesake retailer.`\
 https://nytimes.com/2024/09/06/business/nordstrom-family-acquisition-offer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/06/dining/its-a-homemade-pizza-weekend.html
 **Are At-Home Chemical Peels Safe?**\
 `The F.D.A. recommends against using the skin care products without professional supervision. Experts explain the risks.`\
 https://nytimes.com/2024/09/06/well/chemical-peels-at-home-skin-care.html
-
-**Review: This ‘Figaro’ Puts All Mozart’s Characters in One Voice**\
-`By singing men and women, nobles and servants, the countertenor Anthony Roth Costanzo takes the opera’s theme of human mutability to a chaotic extreme.`\
-https://nytimes.com/2024/09/06/arts/review-marriage-of-figaro-little-island-anthony-roth-costanzo.html
 
