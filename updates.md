@@ -1,3 +1,7 @@
+**Nell McCafferty, Larger-Than-Life Irish Journalist, Dies at 80**\
+`Her pugnacious writing on women’s rights, gay rights and other issues helped turn her country into one of the most progressive in Europe.`\
+https://nytimes.com/2024/09/06/world/europe/nell-mccafferty-dead.html
+
 **Delaying Trump’s Sentence May Mean a Stiffer Penalty if He Loses**\
 `The court will be free to make a decision free of political considerations.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/merchan-trump-delayed-sentence
