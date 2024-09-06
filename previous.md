@@ -1,3 +1,11 @@
+**They Want to Make Voting a Fall Trend**\
+`Jill Biden, Anna Wintour and top American designers participated in a voting awareness march at the onset of New York Fashion Week.`\
+https://nytimes.com/2024/09/06/style/nyfw-voting-anna-wintour-jill-biden.html
+
+**Blaming a Parent, Again, for Failed Gun Laws**\
+`Is the problem the man who gave his son a gun, or the gun?`\
+https://nytimes.com/2024/09/06/opinion/school-shooting-georgia-dad-arrested.html
+
 **Ravens-Chiefs ranks as most-watched season opener ever**\
 `The game topped viewership for last year’s season opener (27.5 million for Detroit Lions-Chiefs) by five percent.`\
 https://nytimes.com/athletic/5751178/2024/09/06/ravens-chiefs-tv-ratings-nfl-nbc/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/06/world/middleeast/jenin-israel-withdraw-destructio
 **One Student Kills Another in Dispute at Maryland High School, Authorities Say**\
 `In another case of deadly gunfire at a school, the victim, a 15-year-old student, was airlifted to a trauma center, where he later died. A 16-year-old suspect was in custody on Friday.`\
 https://nytimes.com/2024/09/06/us/joppatowne-maryland-school-shooting.html
-
-**With Her Father Accused of Raping Her Mother, a Daughter Talks of Torment**\
-`In court, the woman said she was traumatized not only by what prosecutors said happened to her mother but also by fear that she herself might have been abused.`\
-https://nytimes.com/2024/09/06/france-rape-trial-caroline-darian-testimony.html
-
-**Jannik Sinner into U.S. Open final after beating Jack Draper in strange match**\
-`The world No. 1 will play Frances Tiafoe or Taylor Fritz in Sunday's final.`\
-https://nytimes.com/athletic/5750745/2024/09/06/sinner-draper-us-open-semifinal-result/
 

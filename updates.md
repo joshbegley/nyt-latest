@@ -1,3 +1,11 @@
+**They Want to Make Voting a Fall Trend**\
+`Jill Biden, Anna Wintour and top American designers participated in a voting awareness march at the onset of New York Fashion Week.`\
+https://nytimes.com/2024/09/06/style/nyfw-voting-anna-wintour-jill-biden.html
+
+**Blaming a Parent, Again, for Failed Gun Laws**\
+`Is the problem the man who gave his son a gun, or the gun?`\
+https://nytimes.com/2024/09/06/opinion/school-shooting-georgia-dad-arrested.html
+
 **Ravens-Chiefs ranks as most-watched season opener ever**\
 `The game topped viewership for last year’s season opener (27.5 million for Detroit Lions-Chiefs) by five percent.`\
 https://nytimes.com/athletic/5751178/2024/09/06/ravens-chiefs-tv-ratings-nfl-nbc/
