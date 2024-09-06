@@ -1,3 +1,11 @@
+**New York Giants ownership expects 'significant improvement' in 2024. Will they get it?**\
+`We preview Week 1 against the Vikings and make predictions for the 2024 season. How many games will the Giants win?`\
+https://nytimes.com/athletic/5749450/2024/09/06/new-york-giants-season-preview-2024-week-1-vikings/
+
+**FA to introduce safe working environment policies in women's game**\
+`The Football Association (FA) is working on a consultation plan that will see stakeholders in the women’s game, including players, help the governing body develop policies on safer working environments.`\
+https://nytimes.com/athletic/5750114/2024/09/06/fa-womens-football-safe-working/
+
 **Vance Declines to Denounce Carlson After Interview With Holocaust Revisionist**\
 `JD Vance’s campaign said he “doesn’t believe in guilt-by-association cancel culture” but doesn’t share the views of Tucker Carlson’s guest, who claimed the Holocaust was not premeditated genocide.`\
 https://nytimes.com/2024/09/06/us/politics/jd-vance-tucker-carlson-darryl-cooper.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/06/your-money/fafsa-2024-delay-student-aid.html
 **Why Do Apes Make Gestures?**\
 `Chimps and other apes have been observed making more than 80 meaningful gestures. Three theories have tried to explain why.`\
 https://nytimes.com/2024/09/06/science/chimpanzee-gestures-language.html
-
-**For the Fed, a Sign That the Job Market Is Cooling but Not Imploding**\
-`Fed officials have been watching the job market as they move toward a rate cut this month. Friday’s report contained good and bad news.`\
-https://nytimes.com/2024/09/06/business/economy/jobs-reports-federal-reserve-interest-rates.html
-
-**Teen and Father Charged With Georgia School Shooting Appear in Court**\
-`The 14-year-old’s father was arrested Thursday in connection with the deaths of two teachers and two students, which his son is accused of carrying out with a military-style rifle.`\
-https://nytimes.com/2024/09/06/us/georgia-school-shooting.html
 
