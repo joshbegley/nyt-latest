@@ -1,3 +1,7 @@
+**Breaking Down Trumponomics 2.0**\
+`Higher tariffs, lower taxes, and more of Elon Musk: The former president outlined his economic vision to an audience of business leaders. But questions abound.`\
+https://nytimes.com/2024/09/06/business/dealbook/trumponomics-trump-economy.html
+
 **How do Bucks fans feel about the upcoming season? Let us know what you think**\
 `After a turbulent 2023-24 season, the Bucks were eliminated in the first round. How are Bucks fans feeling going into the 2024-25 season?`\
 https://nytimes.com/athletic/5747738/2024/09/06/milwaukee-bucks-fan-survey-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5748661/2024/09/06/bruins-jeremy-swayman-training-c
 **Lowetide: What to expect from Oilers' Leon Draisaitl this season**\
 `Draisaitl is reaching a new level of responsibility and maturity and the Oilers are betting that will pay off soon.`\
 https://nytimes.com/athletic/5745923/2024/09/06/leon-draisaitl-contract-stats-oilers/
-
-**Raiders, Chargers have bought into Antonio Pierce and Jim Harbaugh. Will success follow?**\
-`Pierce and Harbaugh are both gritty former players who are trying to turn around the culture of their respective franchises. `\
-https://nytimes.com/athletic/5748516/2024/09/06/raiders-chargers-antonio-pierce-jim-harbaugh/
 
