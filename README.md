@@ -1,3 +1,7 @@
+**2 Brothers Sentenced to More Than 17 Years in Prison in Sextortion Scheme**\
+`Two brothers from Nigeria helped run an online sextortion operation that prosecutors said resulted in the death of a high school student.`\
+https://nytimes.com/2024/09/05/us/nigeria-brothers-sentence-sex-extortion.html
+
 **Walz’s Pennsylvania Campaign Swing Underscores Challenges in the Battleground**\
 `With his daughter, Hope, in tow, Gov. Tim Walz made stops in red-leaning parts of a state that both parties see as critical to victory, but his events featured limited interactions with voters.`\
 https://nytimes.com/2024/09/05/us/politics/tim-walz-pennsylvania-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/05/technology/telegram-pavel-durov-comments.html
 **Tip on School Shooting Threat Last Year Led to Suspect’s Door**\
 `The teenager charged with killing four people at his Georgia high school on Wednesday denied making an online threat, and the authorities could not prove he did. He, and now his father, face murder charges.`\
 https://nytimes.com/2024/09/05/us/georgia-shooting-colt-gray-threat.html
-
-**The Junkification of American Life**\
-`Why we want the wrong things.`\
-https://nytimes.com/2024/09/05/opinion/entertainment-junk-psychology.html
 
