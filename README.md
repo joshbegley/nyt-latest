@@ -1,3 +1,7 @@
+**Aryna Sabalenka beats Emma Navarro to reach second U.S. Open final in a row**\
+`The No. 2 seed produced a performance of power and resolve in a raucous atmosphere.`\
+https://nytimes.com/athletic/5748947/2024/09/05/navarro-sabalenka-us-open-semifinal-result/
+
 **2 Brothers Sentenced to More Than 17 Years in Prison in Sextortion Scheme**\
 `Two brothers from Nigeria helped run an online sextortion operation that prosecutors said resulted in the death of a high school student.`\
 https://nytimes.com/2024/09/05/us/nigeria-brothers-sentence-sex-extortion.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5748894/2024/09/05/caleb-williams-reggie-bush-usc-t
 **Telegram’s Founder, in First Comments Since Arrest, Defends the App**\
 `Pavel Durov, held in France since last month, blamed “growing pains” for the company’s problems and pledged to make improvements.`\
 https://nytimes.com/2024/09/05/technology/telegram-pavel-durov-comments.html
-
-**Tip on School Shooting Threat Last Year Led to Suspect’s Door**\
-`The teenager charged with killing four people at his Georgia high school on Wednesday denied making an online threat, and the authorities could not prove he did. He, and now his father, face murder charges.`\
-https://nytimes.com/2024/09/05/us/georgia-shooting-colt-gray-threat.html
 
