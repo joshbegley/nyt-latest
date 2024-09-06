@@ -1,3 +1,7 @@
+**Kate Atkinson on the Return of Her Detective Hero**\
+`“Death at the Sign of the Rook” is the sixth novel in Atkinson’s Jackson Brodie mystery series. What keeps her coming back?`\
+https://nytimes.com/2024/09/06/books/review/podcast-interview-kate-atkinson-jackson-brodie.html
+
 **Stock Slide as Investors Wrestle With Shifting Bets on Rate Cuts**\
 `The stock market “can’t win” at the moment, said Andrew Brenner, head of international fixed income at National Alliance Securities. “Heads I lose, tails I lose.”`\
 https://nytimes.com/2024/09/06/business/stock-market-jobs-report.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5750705/2024/09/06/big-12-tiebreaker-prodecures/
 **Aston Villa fined by UEFA for late submission of financial information**\
 `Aston Villa have been fined €60,000 (£50,670; $66,430) by UEFA for the alleged late submission of their financial information for the 2023-24 season.`\
 https://nytimes.com/athletic/5750547/2024/09/06/aston-villa-uefa-fined-scr/
-
-**Meet MJ Lenderman, Southern Rock’s Tragicomic Poet**\
-`Hear tracks from his new album, “Manning Fireworks,” and more.`\
-https://nytimes.com/2024/09/06/arts/music/amplifier-newsletter-mj-lenderman.html
 
