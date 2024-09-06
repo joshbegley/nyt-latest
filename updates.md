@@ -1,3 +1,7 @@
+**Analyzing the Giants' Matt Chapman extension for the present and future**\
+`Chapman has a track record of good health and skills that often age well. He looks like a better free-agent gamble than most.`\
+https://nytimes.com/athletic/5747832/2024/09/06/sf-giants-matt-chapman-extension-analysis/
+
 **Hamas’s Release of Hostage Videos Inflames Divisions in Israel**\
 `The fifth recording in four days of a hostage killed in Gaza has added to pressure on the Israeli government to reach a cease-fire deal with Hamas.`\
 https://nytimes.com/2024/09/06/world/middleeast/hamas-hostage-videos-goldberg-polin-israel.html
