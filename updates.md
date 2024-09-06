@@ -1,3 +1,7 @@
+**For the Fed, a Sign That the Job Market is Cooling but Not Imploding**\
+`Fed officials have been watching the job market as they move toward a rate cut this month. Friday’s report contained good and bad news.`\
+https://nytimes.com/2024/09/06/business/economy/jobs-reports-federal-reserve-interest-rates.html
+
 **Teen Accused of Georgia School Shooting Appears in Court**\
 `The 14-year-old’s father, who was arrested Thursday in connection with the deaths of two teachers and two students, is scheduled to appear later on Friday morning.`\
 https://nytimes.com/2024/09/06/us/georgia-school-shooting.html

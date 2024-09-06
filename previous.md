@@ -1,3 +1,7 @@
+**For the Fed, a Sign That the Job Market is Cooling but Not Imploding**\
+`Fed officials have been watching the job market as they move toward a rate cut this month. Friday’s report contained good and bad news.`\
+https://nytimes.com/2024/09/06/business/economy/jobs-reports-federal-reserve-interest-rates.html
+
 **Teen Accused of Georgia School Shooting Appears in Court**\
 `The 14-year-old’s father, who was arrested Thursday in connection with the deaths of two teachers and two students, is scheduled to appear later on Friday morning.`\
 https://nytimes.com/2024/09/06/us/georgia-school-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5749775/2024/09/06/ohio-state-special-teams-brandon
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/09/06/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Election Live Updates: Harris Campaign Says It Raised $361 Million in August**\
-`In her first full month as the Democratic nominee, the vice president reported a fund-raising total that was nearly triple what the Trump campaign said it amassed in the same period.`\
-https://nytimes.com/live/2024/09/06/us/harris-trump-election
 
