@@ -1,3 +1,7 @@
+**Newsom Vetoes Home-Buying Assistance for Undocumented Immigrants**\
+`Gov. Gavin Newsom of California rejected a Democratic proposal that would have extended first-time home-buyer loans to some undocumented immigrants. Republicans had widely criticized the bill.`\
+https://nytimes.com/2024/09/06/us/immigrant-california-home-bill-veto.html
+
 **Alex Morgan reflects on her legacy ahead of final game**\
 `“I hope my legacy is that I pushed the game forward,” Morgan said in a news conference Friday.`\
 https://nytimes.com/athletic/5750629/2024/09/06/alex-morgan-legacy-last-game-wave/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/06/opinion/harris-tax-capital-gains.html
 **4 of the Best Books About Politics**\
 `The last few months have felt like a political thriller, so we asked you to tell us about your favorite books about politics. Here are a few of those books.`\
 https://nytimes.com/video/us/politics/100000009673004/4-of-the-best-books-about-politics.html
-
-**G.O.P. Candidates Distort Records on Women, Seeking to Blunt a Liability**\
-`Congressional Republicans in races around the country are seeking to appeal to women by pledging support for I.V.F. and abortion access, even if they have opposed them in the past.`\
-https://nytimes.com/2024/09/06/us/politics/gop-candidates-women-issues.html
 

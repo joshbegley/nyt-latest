@@ -1,3 +1,7 @@
+**Newsom Vetoes Home-Buying Assistance for Undocumented Immigrants**\
+`Gov. Gavin Newsom of California rejected a Democratic proposal that would have extended first-time home-buyer loans to some undocumented immigrants. Republicans had widely criticized the bill.`\
+https://nytimes.com/2024/09/06/us/immigrant-california-home-bill-veto.html
+
 **Alex Morgan reflects on her legacy ahead of final game**\
 `“I hope my legacy is that I pushed the game forward,” Morgan said in a news conference Friday.`\
 https://nytimes.com/athletic/5750629/2024/09/06/alex-morgan-legacy-last-game-wave/
