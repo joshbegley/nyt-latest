@@ -1,3 +1,7 @@
+**China Stops Foreign Adoptions, Ending a Complicated Chapter**\
+`Beijing said the move was in line with international trends, as more countries have limited such adoptions.`\
+https://nytimes.com/2024/09/06/world/asia/china-foreign-adoptions-ban.html
+
 **Confused by Chelsea's Conference League squad? It's all about load management...**\
 `Even a squad announcement becomes a news event at Chelsea, but there were good reasons for Thursday's Conference League omissions`\
 https://nytimes.com/athletic/5748775/2024/09/06/chelsea-conference-league-squad-explained/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5709251/2024/09/06/footballer-personal-brand-commer
 **Row Z: The great ticket rip-off, Kane gunning for trophies - and will no one think of the schedulers?**\
 `Tim Spiers is back to take a sideways look at the peculiarities, contradictions and downright absurdities of the beautiful game`\
 https://nytimes.com/athletic/5747027/2024/09/06/kane-tickets-angelo-ten-hag-everton/
-
-**Who is England's best goalkeeper? The top six candidates assessed**\
-`Pickford. Pope. Ramsdale. Henderson. Johnstone. Trafford. Who should Carsley pick going forward?`\
-https://nytimes.com/athletic/5741960/2024/09/06/england-goalkeepers-assessed/
 
