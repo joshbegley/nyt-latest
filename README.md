@@ -1,3 +1,7 @@
+**Bergwijn responds to Koeman criticism of Saudi move: 'Don’t treat players like that'**\
+`Steven Bergwijn has criticised Ronald Koeman&#8217;s treatment of him after the Netherlands head coach said the winger would no longer be selected for the national team following his move to Al Ittihad from Ajax.`\
+https://nytimes.com/athletic/5750294/2024/09/06/steven-bergwijn-ronaldo-koeman-saudi-netherlands/
+
 **The Windup: There are levels to this contract**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5750382/2024/09/06/matt-chapman-contract-giants-the-windup/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/06/arts/review-marriage-of-figaro-little-island-anth
 **Books Deals Can Add Up to Millions of Dollars for Supreme Court Justices**\
 `For the justices, selling books remains one of the few ways to earn income outside the court.`\
 https://nytimes.com/2024/09/06/us/politics/supreme-court-justice-book-deals.html
-
-**The Fed Needs to Pull the Plane Up**\
-`The soft landing has happened; now it’s time to cut interest rates.`\
-https://nytimes.com/live/2024/09/03/opinion/thepoint/krugman-fed-interest-rates
 
