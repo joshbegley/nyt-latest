@@ -1,3 +1,11 @@
+**Missouri Reports Bird Flu in a Patient Without a Known Risk**\
+`Previous human infections occurred in workers on farms. But community transmission of the virus remains unlikely for now, experts said.`\
+https://nytimes.com/2024/09/06/health/bird-flu-missouri-cdc.html
+
+**Kara Young Charms in ‘Table 17,’ a Rom-Com That Believes in True Love**\
+`The Tony winner leads a top-notch cast in Zhailon Levingston’s alluringly designed production of Douglas Lyons’s hopeful new play.`\
+https://nytimes.com/2024/09/06/theater/table-17-review-kara-young.html
+
 **Sergio Mendes: 10 Essential Songs**\
 `The bandleader and musician, who died on Thursday at 83, was a bridge from Brazilian music to the world — and back.`\
 https://nytimes.com/2024/09/06/arts/music/sergio-mendes-songs.html
