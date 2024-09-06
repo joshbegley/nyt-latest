@@ -1,3 +1,19 @@
+**With Her Father Accused of Raping Her Mother, a Daughter Talks of Torment**\
+`In court, the woman said she was traumatized not only by what prosecutors said happened to her mother but also by fear that she herself might have been abused.`\
+https://nytimes.com/2024/09/06/france-rape-trial-caroline-darian-testimony.html
+
+**Jannik Sinner into U.S. Open final after beating Jack Draper in strange match**\
+`The world No. 1 will play Frances Tiafoe or Taylor Fritz in Sunday's final.`\
+https://nytimes.com/athletic/5750745/2024/09/06/sinner-draper-us-open-semifinal-result/
+
+**Clark Halstead, Real Estate Broker Who Broke the Mold, Dies at 83**\
+`The face of his firm, he opened storefront offices to chase undervalued properties in diverse sections of the city and emblazoned a London cab with his name.`\
+https://nytimes.com/2024/09/06/nyregion/clark-halstead-dead.html
+
+**Alex Morgan's final game to be on multiple channels, streaming services**\
+`From a ticketing perspective at Snapdragon Stadium in San Diego, the match is trending towards a sell-out.`\
+https://nytimes.com/athletic/5751104/2024/09/06/alex-morgan-broadcast-channels-streaming/
+
 **Anthony Rizzo's return to Wrigley Field gives fans a reason to cheer**\
 `Rizzo’s weekend return feels like the final chapter of what’s been nearly three years of homecomings at Wrigley Field.`\
 https://nytimes.com/athletic/5751015/2024/09/06/anthony-rizzo-wrigley-field-return/
