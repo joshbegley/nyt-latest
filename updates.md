@@ -1,3 +1,23 @@
+**Bootmobile**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2024/09/06/learning/bootmobile.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/06/crosswords/spelling-bee-forum.html
+
+**40 Years Later, Does ‘Bright Lights, Big City’ Still Resonate?**\
+`Remembered for capturing ’80s downtown decadence, Jay McInerney’s iconic novel predicted the mood of New York City today.`\
+https://nytimes.com/2024/09/06/nyregion/bright-lights-big-city-jay-mcinerney.html
+
+**Facing Entrenched School Segregation, a State Tries Something New**\
+`New Jersey is holding mediation sessions to settle a segregation lawsuit. If an agreement is reached, other states may take notice.`\
+https://nytimes.com/2024/09/06/nyregion/new-jersey-schools-segregation.html
+
+**Judge Will Decide Friday Whether to Postpone Trump’s Sentencing**\
+`Justice Juan M. Merchan, who presided over the trial that led to Donald J. Trump’s conviction, faces a fraught decision amid the thick of the presidential election.`\
+https://nytimes.com/2024/09/06/nyregion/trump-sentencing-delay-ruling.html
+
 **Fire at School Dormitory in Kenya Kills at Least 17**\
 `President William Ruto called the news “devastating.” The police said the cause of the blaze was being investigated.`\
 https://nytimes.com/2024/09/06/world/africa/kenya-school-fire.html
