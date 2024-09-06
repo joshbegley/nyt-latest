@@ -1,3 +1,7 @@
+**Cleveland Browns season predictions: Garrett's DPOY repeat, Watson expectations**\
+`Plus, Jerry Jeudy's impact, the reworked offensive line, the first-time Pro Bowl candidates and more.`\
+https://nytimes.com/athletic/5748901/2024/09/06/cleveland-browns-season-predictions-deshaun-watsonmyles-garrett-david-njoku-jerry-jeudy/
+
 **How Ralph Lauren Got Jill Biden to the Hamptons**\
 `The designer held a show on Long Island and built a dream world as a backdrop.`\
 https://nytimes.com/2024/09/06/style/ralph-lauren-jill-biden-hamptons-fashion-show.html
