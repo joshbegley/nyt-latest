@@ -10,8 +10,8 @@ https://nytimes.com/2024/09/05/climate/2024-hottest-summer-on-record.html
 `The concern over restrictions on some payments raises uncertainty on whether a landmark agreement on compensating athletes can be reached and approved.`\
 https://nytimes.com/2024/09/05/us/ncaa-antitrust-settlement-athletes-pay.html
 
-**Father of the Accused Shooter Has Been Charged With Second-Degree Murder**\
-`The parent was also charged with four counts of involuntary manslaughter and eight counts of cruelty to children, officials said.`\
+**Father of Accused Georgia Shooter Charged With Two Counts of Second-Degree Murder**\
+`He was also charged with four counts of involuntary manslaughter and eight counts of cruelty to children, all “directly connected with the actions of his son and allowing him to possess a weapon,” an official said.`\
 https://nytimes.com/2024/09/05/us/georgia-school-shooting-colt-gray-father.html
 
 **Aryna Sabalenka beats Emma Navarro to reach second U.S. Open final in a row**\
