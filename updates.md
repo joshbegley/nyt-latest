@@ -1,3 +1,7 @@
+**Jones: Gap between Chiefs and Ravens is bigger than toe that decided game**\
+`The Chiefs weren't perfect in Thursday's 27-20 win, but what Patrick Mahomes and his teammates put on display should concern competitors.`\
+https://nytimes.com/athletic/5749588/2024/09/06/chiefs-ravens-toe-afc-contenders/
+
 **The Athletic FC: World's worst team win first match in 20 years, Ronaldo nets 900, Morgan retires**\
 `Today in TAFC: A first competitive win for San Marino, we break down Ronaldo's 900 career goals and explain Alex Morgan's legacy.`\
 https://nytimes.com/athletic/5749701/2024/09/06/san-marino-ronaldo-900-alex-morgan/
