@@ -1,3 +1,15 @@
+**UNC's Max Johnson to return after season-ending injury: Reports**\
+`Johnson says he feels he has “a lot of football left in me, and know I will be back out there next year.”`\
+https://nytimes.com/athletic/5750765/2024/09/06/max-johnson-unc-injury-return/
+
+**Kate Atkinson on the Return of Her Detective Hero**\
+`“Death at the Sign of the Rook” is the sixth novel in Atkinson’s Jackson Brodie mystery series. What keeps her coming back?`\
+https://nytimes.com/2024/09/06/books/review/podcast-interview-kate-atkinson-jackson-brodie.html
+
+**Jackie Winsor, 82, Dies; Sculptor Who Hammered, Drilled and Chopped**\
+`She gave complexity to simple shapes, drawing inspiration from her rugged Canadian upbringing. In her downtime, she swung on a trapeze.`\
+https://nytimes.com/2024/09/06/arts/jackie-winsor-dead.html
+
 **Stock Slide as Investors Wrestle With Shifting Bets on Rate Cuts**\
 `The stock market “can’t win” at the moment, said Andrew Brenner, head of international fixed income at National Alliance Securities. “Heads I lose, tails I lose.”`\
 https://nytimes.com/2024/09/06/business/stock-market-jobs-report.html
