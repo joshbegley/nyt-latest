@@ -1,3 +1,7 @@
+**The Road to a Gaza Cease-Fire Runs Through Qatar**\
+`The emirate has used its influence with Hamas to press for a truce with Israel. But “the last word is with those on the battlefield,” one expert said.`\
+https://nytimes.com/2024/09/06/world/middleeast/qatar-hamas-israel-ceasefire-negotiations.html
+
 **Alex Bregman's extension chances, Justin Verlander's struggles and more: Astros mailbag**\
 `Will the playoff rotation include Verlander? Why wasn't Houston more transparent about Kyle Tucker's injury? We answer your questions here.`\
 https://nytimes.com/athletic/5748645/2024/09/06/astros-alex-bregman-extension-justin-verlander-postseason-rotation/
