@@ -1,3 +1,11 @@
+**Eagles Players Feared Crime in Brazil. Have They Considered Philadelphia?**\
+`Some N.F.L. players called Brazil dangerous ahead of the league’s first game in South America on Friday. Statistics show their home city is deadlier.`\
+https://nytimes.com/2024/09/06/world/americas/eagles-packers-nfl-game-brazil-crime.html
+
+**Harris’s Debate Tutor: a Lawyer Unafraid of Telling Politicians Hard Truths**\
+`Karen Dunn, who is preparing the vice president for next week’s clash, has trained Democrats for debates in every election since 2008. Her approach, as Hillary Clinton put it, is “tough love.”`\
+https://nytimes.com/2024/09/06/us/politics/karen-dunn-harris-debate-prep.html
+
 **New York Giants ownership expects 'significant improvement' in 2024. Will they get it?**\
 `We preview Week 1 against the Vikings and make predictions for the 2024 season. How many games will the Giants win?`\
 https://nytimes.com/athletic/5749450/2024/09/06/new-york-giants-season-preview-2024-week-1-vikings/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/06/style/ralph-lauren-jill-biden-hamptons-fashion-sh
 **‘The Secret Lives of Mormon Wives’ Are About to Go Public**\
 `A new Hulu series will explore a cheating scandal — and its aftermath — that rocked the world of Mormon social media influencers.`\
 https://nytimes.com/2024/09/06/style/secret-lives-mormon-wives-momtok.html
-
-**How to Handle the Delay in the Release of the FAFSA Form**\
-`The student financial aid application is expected to be ready by Dec. 1, two months later than usual. Experts offer some tips on what to do in the meantime.`\
-https://nytimes.com/2024/09/06/your-money/fafsa-2024-delay-student-aid.html
-
-**Why Do Apes Make Gestures?**\
-`Chimps and other apes have been observed making more than 80 meaningful gestures. Three theories have tried to explain why.`\
-https://nytimes.com/2024/09/06/science/chimpanzee-gestures-language.html
 
