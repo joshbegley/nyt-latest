@@ -1,3 +1,7 @@
+**Overlooked No More: Gwendolyn B. Bennett, Harlem Renaissance Star Plagued by Misfortune**\
+`She was a talented young poet and artist who was central to a fledgling cultural movement, but her life was shrouded by one tragedy after another.`\
+https://nytimes.com/2024/09/06/obituaries/gwendolyn-bennett-harlem-renaissance-overlooked.html
+
 **Carsley 'not at all' worried over playing Rice & Grealish against Republic of Ireland**\
 `England interim manager Lee Carsley has said that he is not worried about the atmosphere facing Declan Rice and Jack Grealish in Dublin during Saturday&#8217;s Nations League fixture against the Republic of Ireland.`\
 https://nytimes.com/athletic/5750947/2024/09/06/jack-grealish-declan-rice-ireland-england/
