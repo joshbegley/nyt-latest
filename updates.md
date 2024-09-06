@@ -1,3 +1,11 @@
+**Mounting Inquiries Raise Questions About Adams’s Ability to Run New York**\
+`The revelation that much of Mayor Eric Adams’s inner circle is under federal investigation stunned city officials, and some worried their work could be affected.`\
+https://nytimes.com/2024/09/06/nyregion/adams-fbi-raids-investigation.html
+
+**Can Notre Dame avoid a letdown vs. Northern Illinois? 3 keys and a prediction**\
+`Notre Dame is looking for growth from the young O-line and QB Riley Leonard after a hard-fought win against Texas A&M last week.`\
+https://nytimes.com/athletic/5750079/2024/09/06/notre-dame-niu-preview-prediction/
+
 **Cleveland Browns season predictions: Garrett's DPOY repeat, Watson expectations**\
 `Plus, Jerry Jeudy's impact, the reworked offensive line, the first-time Pro Bowl candidates and more.`\
 https://nytimes.com/athletic/5748901/2024/09/06/cleveland-browns-season-predictions-deshaun-watsonmyles-garrett-david-njoku-jerry-jeudy/
