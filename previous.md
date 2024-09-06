@@ -1,40 +1,40 @@
-**Recent college graduates are finding a tighter labor market.**\
-`Job seekers are competing for fewer openings, and hiring is sluggish.`\
-https://nytimes.com/live/2024/09/06/business/jobs-report-august-economy/jobs-report-college-graduates
+**Ranking Big East basketball programs as UConn goes for rare 3-peat**\
+`Last season, the league was top-heavy with only three teams making the NCAA Tournament. What will this season hold?`\
+https://nytimes.com/athletic/5743501/2024/09/06/big-east-basketball-rankings-uconn-marquette-preseason/
 
-**Live Updates: U.S. Job Growth Expected to Rebound**\
-`Ahead of a key Federal Reserve meeting to set interest rates, economists predict a modest bounce in hiring in August from an unexpectedly sluggish July.`\
-https://nytimes.com/live/2024/09/06/business/jobs-report-august-economy
+**Vikings-Giants preview, predictions: What we're watching as the 2024 season kicks off**\
+`From the Vikings' new-look defense to their crispness on offense, there will be plenty of interesting storylines to follow in Week 1.`\
+https://nytimes.com/athletic/5747952/2024/09/06/vikings-giants-preview-predictions-week-1/
 
-**Why Niko Sigur chose Canada over Croatia: 'He’s got that savviness even though he's young'**\
-`Sigur switched his international allegiance in August and has the chance to establish himself as the future of the Canadian midfield`\
-https://nytimes.com/athletic/5749410/2024/09/06/canada-sigur-croatia-midfield-marsch/
+**Packers season predictions: How far will Green Bay go in Year 2 of Jordan Love?**\
+`The Packers kick off their 2024 season on Friday night in Brazil against the Eagles.`\
+https://nytimes.com/athletic/5748664/2024/09/06/packers-season-predictions-2024/
 
-**Texas at Michigan picks, odds, how to watch: Longhorns favored at defending champs**\
-`Michigan is the defending national champion, but Texas enters The Big House favored by a touchdown.`\
-https://nytimes.com/athletic/5748046/2024/09/06/texas-michigan-picks-odds-how-to-watch/
+**Donovan on his San Diego Wave tactics: 'The risk, to me, is easily worth the reward'**\
+`Donovan says he's grateful for the trust Wave players have shown since he has joined the team`\
+https://nytimes.com/athletic/5745964/2024/09/06/landon-donovan-san-diego-wave-tactics-alex-morgan/
 
-**Can Michigan beat Texas? Big House showdown could have big College Football Playoff impact**\
-`No. 10 Michigan's 23-game winning streak at the Big House is on the line against No. 3 Texas. Here's what to watch and expect.`\
-https://nytimes.com/athletic/5748756/2024/09/06/michigan-football-texas-preview-predictions/
+**With a second chance at life, Damar Hamlin steps into a starting role**\
+`Damar Hamlin is back on track with his development following his cardiac arrest in 2022.`\
+https://nytimes.com/athletic/5748753/2024/09/06/damar-hamlin-steps-into-buffalo-bills-starting-role-with-a-second-chance-at-life/
 
-**Does a rough second half matter in October? Some World Series hopefuls might want to look away**\
-`Few teams have survived a losing record after the All-Star break and still had postseason success. September is an opportunity to refocus. `\
-https://nytimes.com/athletic/5748362/2024/09/06/mlb-2024-postseason-playoffs-world-series/
+**Are the underdog, small-ball Milwaukee Brewers primed to play October spoilers?**\
+`Underdogs? They embrace it. Less talented than the Dodgers or Phillies? Well, duh. So what? `\
+https://nytimes.com/athletic/5748283/2024/09/06/milwaukee-brewers-underdog-october-spoilers/
 
-**NASCAR odds and predictions for the first playoff race: Expect chaos**\
-`The first race of the NASCAR playoffs could be one of the most unpredictable. Gluck and Bianchi walk us through our questions for Sunday.`\
-https://nytimes.com/athletic/5748273/2024/09/06/nascar-odds-expert-predictions-first-playoff-race-atlanta/
+**Why Eagles vs. Packers is a Peacock exclusive**\
+`The NFL and Peacock are teaming up for another season. The Athletic has all the details and the full streaming schedule.`\
+https://nytimes.com/athletic/5744130/2024/09/06/nfl-games-peacock-schedule-games-times/
 
-**Against This Mighty Paralympic Team, a Close Loss Can Feel Like a Win**\
-`Other teams give themselves an A for effort after playing the Dutch women’s wheelchair basketball team, the favorite for the gold medal at the Paris Games.`\
-https://nytimes.com/2024/09/06/world/olympics/netherlands-dutch-women-wheelchair-basketball-paralympics.html
+**Father of Georgia Shooting Suspect Charged, and a Pivotal Jobs Report**\
+`Plus, the Taliban codifies dire restrictions on women.`\
+https://nytimes.com/2024/09/06/podcasts/father-charged-georgia-shooting-jobs-report-hunter-biden.html
 
-**Harris Opens $110 Million Cash Edge Over Trump After August Fund-Raising Haul**\
-`Vice President Kamala Harris’s campaign reported raising $361 million in August, her first full month as the Democrats’ nominee, far surpassing the $130 million reported by Mr. Trump in the same month.`\
-https://nytimes.com/2024/09/06/us/politics/harris-august-fundraising-trump.html
+**The First Post-Affirmative Action Class Enters College**\
+`A Supreme Court ruling upended more than four decades of admissions practices.  The extent of the change is now beginning to become clear.`\
+https://nytimes.com/2024/09/06/podcasts/the-daily/affirmative-action.html
 
-**5 Things to Do This Weekend**\
-`A selection of entertainment highlights this weekend, including “Beetlejuice Beetlejuice.”`\
-https://nytimes.com/interactive/2024/09/06/arts/weekend-editors-picks-beetlejuice.html
+**What next for Atlanta United?**\
+`After firing the head coach and technical director, Atlanta United has a 'clean slate' from which to work`\
+https://nytimes.com/athletic/5747627/2024/09/06/atlanta-united-bocanegra-fired-what-next/
 
