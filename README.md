@@ -1,3 +1,7 @@
+**7-Eleven Rejects Takeover Bid from Big Canadian Chain**\
+`Japan’s Seven & i Holdings, the operator of 7-Eleven, has rebuffed a buyout offer that would have been the largest foreign-led acquisition of a Japanese company.`\
+https://nytimes.com/2024/09/05/business/7-eleven-rejects-couch-tarde-bid.html
+
 **No. 3 draft pick Beckett Sennecke out at least 6 weeks with injury**\
 `Anaheim Ducks prospect Beckett Sennecke, the No.`\
 https://nytimes.com/athletic/5749368/2024/09/05/beckett-sennecke-injury-ducks/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5748947/2024/09/05/navarro-sabalenka-us-open-semifi
 **2 Brothers Sentenced to More Than 17 Years in Prison in Sextortion Scheme**\
 `Two brothers from Nigeria helped run an online sextortion operation that prosecutors said resulted in the death of a high school student.`\
 https://nytimes.com/2024/09/05/us/nigeria-brothers-sentence-sex-extortion.html
-
-**Walz’s Pennsylvania Campaign Swing Underscores Challenges in the Battleground**\
-`With his daughter, Hope, in tow, Gov. Tim Walz made stops in red-leaning parts of a state that both parties see as critical to victory, but his events featured limited interactions with voters.`\
-https://nytimes.com/2024/09/05/us/politics/tim-walz-pennsylvania-democrats.html
 
