@@ -1,3 +1,7 @@
+**Why were the Ravens flagged for illegal formation so many times?**\
+`The Ravens were flagged four times for an illegal formation in the first half, with LT Ronnie Stanley drawing three of those penalties.`\
+https://nytimes.com/athletic/5750517/2024/09/06/illegal-formation-nfl-baltimore-ravens/
+
 **Trump Will Not Be Sentenced Before Election Day**\
 `Also, an alternative for B.M.I. shows promise. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/09/06/briefing/trump-new-york-sentence-bmi-alternative.html
