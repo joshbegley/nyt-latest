@@ -1,3 +1,7 @@
+**Tucker Carlson Sharply Criticized for Hosting Holocaust Revisionist**\
+`Mr. Carlson’s guest on “Tucker on X” made a variety of false claims about the Holocaust and World War II.`\
+https://nytimes.com/2024/09/06/business/media/tucker-carlson-holocaust-interview-biden-administration.html
+
 **What to know about the latest report.**\
 `By Lydia DePillis`\
 https://nytimes.com/live/2024/09/06/business/jobs-report-august-economy/what-to-know-about-the-latest-report

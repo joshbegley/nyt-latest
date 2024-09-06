@@ -1,3 +1,7 @@
+**Tucker Carlson Sharply Criticized for Hosting Holocaust Revisionist**\
+`Mr. Carlson’s guest on “Tucker on X” made a variety of false claims about the Holocaust and World War II.`\
+https://nytimes.com/2024/09/06/business/media/tucker-carlson-holocaust-interview-biden-administration.html
+
 **What to know about the latest report.**\
 `By Lydia DePillis`\
 https://nytimes.com/live/2024/09/06/business/jobs-report-august-economy/what-to-know-about-the-latest-report
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5749591/2024/09/06/aitana-bonmati-barcelona-contrac
 **Football Parlay Fridays Week 2: Michigan moneyline and four more picks**\
 `Austin Mock is back for a round-robin parlay pick on college football Week 2. See what he's picking this week. `\
 https://nytimes.com/athletic/5750389/2024/09/06/football-parlay-fridays-college-football-week-2/
-
-**NFL Brazil game: Where is the stadium for Packers vs Eagles? And why is green so controversial?**\
-`The NFL holds its first game in Brazil on Friday night as the Philadelphia Eagles take on the Green Bay Packers`\
-https://nytimes.com/athletic/5750158/2024/09/06/nfl-brazil-game-stadium-where-green/
 
