@@ -1,3 +1,7 @@
+**Hamas’s Release of Hostage Videos Inflames Divisions in Israel**\
+`The fifth recording in four days of a hostage killed in Gaza has added to pressure on the Israeli government to reach a cease-fire deal with Hamas.`\
+https://nytimes.com/2024/09/06/world/middleeast/hamas-hostage-videos-goldberg-polin-israel.html
+
 **Has Ohio State solved its special teams problems? Brandon Inniss providing early jolt**\
 `Ohio State's more aggressive approach on returns with Brandon Inniss — and without a special teams coordinator — is already paying off.`\
 https://nytimes.com/athletic/5749775/2024/09/06/ohio-state-special-teams-brandon-inniss/

@@ -1,3 +1,7 @@
+**Hamas’s Release of Hostage Videos Inflames Divisions in Israel**\
+`The fifth recording in four days of a hostage killed in Gaza has added to pressure on the Israeli government to reach a cease-fire deal with Hamas.`\
+https://nytimes.com/2024/09/06/world/middleeast/hamas-hostage-videos-goldberg-polin-israel.html
+
 **Has Ohio State solved its special teams problems? Brandon Inniss providing early jolt**\
 `Ohio State's more aggressive approach on returns with Brandon Inniss — and without a special teams coordinator — is already paying off.`\
 https://nytimes.com/athletic/5749775/2024/09/06/ohio-state-special-teams-brandon-inniss/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5749701/2024/09/06/san-marino-ronaldo-900-alex-morg
 **NBC, Peacock ready for the NFL's latest gambit: A Packers-Eagles game in Brazil**\
 `On Friday, the Packers and Eagles will play a Peacock-exclusive game in Brazil. NBC's preparations have been over a year in the making.`\
 https://nytimes.com/athletic/5728965/2024/09/06/nbc-peacock-packers-eagles-brazil/
-
-**Broncos' tested offensive line knows it must set tone for QB Bo Nix: 'It's on us'**\
-`The Broncos have invested heavily in their offensive front the past two seasons. The group must now help slash a ballooning sack figure.`\
-https://nytimes.com/athletic/5747976/2024/09/06/broncos-offensive-line-week-1-seahawks/
 
