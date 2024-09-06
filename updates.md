@@ -1,3 +1,7 @@
+**Aryna Sabalenka beats Emma Navarro to reach second U.S. Open final in a row**\
+`The No. 2 seed produced a performance of power and resolve in a raucous atmosphere.`\
+https://nytimes.com/athletic/5748947/2024/09/05/navarro-sabalenka-us-open-semifinal-result/
+
 **NFL season opener delayed by Kansas City thunderstorm**\
 `Plans for the Chiefs' banner presentation are continuing Thursday, with the celebration being pushed back to 8:30 p.m. ahead of kickoff.`\
 https://nytimes.com/athletic/5748995/2024/09/05/chiefs-ravens-weather-delay-nfl-opener/
