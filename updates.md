@@ -1,3 +1,7 @@
+**Dolphins make Ramsey NFL's highest-paid CB**\
+`The Dolphins and Jalen Ramsey agreed to a three-year extension worth up to $72.3 million, a source said.`\
+https://nytimes.com/athletic/5750400/2024/09/06/jalen-ramsey-contract-extension-dolphins/
+
 **The Big Number: $3.8 Billion**\
 `The amount offered by Nordstrom’s founding family to buy its namesake retailer.`\
 https://nytimes.com/2024/09/06/business/nordstrom-family-acquisition-offer.html
