@@ -1,3 +1,7 @@
+**No. 3 draft pick Beckett Sennecke out at least 6 weeks with injury**\
+`Anaheim Ducks prospect Beckett Sennecke, the No.`\
+https://nytimes.com/athletic/5749368/2024/09/05/beckett-sennecke-injury-ducks/
+
 **Jessica Pegula beats Karolina Muchova in thriller to reach U.S. Open final**\
 `The American world No. 6 will face Aryna Sabalenka in Saturday's final.`\
 https://nytimes.com/athletic/5749179/2024/09/05/pegula-muchova-us-open-semifinal-result/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/05/us/nigeria-brothers-sentence-sex-extortion.html
 **Walz’s Pennsylvania Campaign Swing Underscores Challenges in the Battleground**\
 `With his daughter, Hope, in tow, Gov. Tim Walz made stops in red-leaning parts of a state that both parties see as critical to victory, but his events featured limited interactions with voters.`\
 https://nytimes.com/2024/09/05/us/politics/tim-walz-pennsylvania-democrats.html
-
-**NFL season opener delayed by Kansas City thunderstorm**\
-`Plans for the Chiefs' banner presentation are continuing Thursday, with the celebration being pushed back to 8:30 p.m. ahead of kickoff.`\
-https://nytimes.com/athletic/5748995/2024/09/05/chiefs-ravens-weather-delay-nfl-opener/
 
