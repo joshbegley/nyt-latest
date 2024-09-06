@@ -1,3 +1,7 @@
+**Kawakami: My 2024 49ers season prediction — 11-6 and the NFC West title**\
+`The 49ers have a top-heavy roster and some schedule complications, but they should have enough talent and experience to win the NFC West.`\
+https://nytimes.com/athletic/5745551/2024/09/06/2024-49ers-season-prediction-kawakami/
+
 **Breaking Down Trumponomics 2.0**\
 `Higher tariffs, lower taxes, and more of Elon Musk: The former president outlined his economic vision to an audience of business leaders. But questions abound.`\
 https://nytimes.com/2024/09/06/business/dealbook/trumponomics-trump-economy.html
