@@ -1,3 +1,7 @@
+**In His Last Months as President, Biden Is Both Liberated and Resigned**\
+`President Biden spent decades seeking the highest office, only to drop his bid for re-election under pressure. These final months before the November election are bittersweet, his allies say.`\
+https://nytimes.com/2024/09/06/us/politics/biden-harris-campaign.html
+
 **Man Arrested in Plot to Kill Jews in New York on Oct. 7 Anniversary**\
 `A 20-year-old Pakistani citizen was arrested in Canada after plotting to carry out a mass shooting at a Jewish center in New York, according to the U.S. Justice Department.`\
 https://nytimes.com/2024/09/06/us/politics/new-york-terror-plot-jewish-center-isis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/06/us/politics/noncitizen-voting-government-shutdown
 **Dodgers’ Stone goes on IL with shoulder inflammation**\
 `Gavin Stone's 140 innings pitched is a career-high from last years 131 between the majors and triple A.`\
 https://nytimes.com/athletic/5751101/2024/09/06/dodgers-gavin-stone-shoulder-injury/
-
-**West Bank Residents Survey Destruction as Israeli Forces Withdraw**\
-`A 10-day raid by Israeli troops into the occupied territory has been one of the most devastating in years, with at least 39 people killed, according to Palestinian officials.`\
-https://nytimes.com/2024/09/06/world/middleeast/jenin-israel-withdraw-destruction.html
 
