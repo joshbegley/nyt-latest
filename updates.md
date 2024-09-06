@@ -1,3 +1,11 @@
+**No. 3 draft pick Beckett Sennecke out at least 6 weeks with injury**\
+`Anaheim Ducks prospect Beckett Sennecke, the No.`\
+https://nytimes.com/athletic/5749368/2024/09/05/beckett-sennecke-injury-ducks/
+
+**Jessica Pegula beats Karolina Muchova in thriller to reach U.S. Open final**\
+`The American world No. 6 will face Aryna Sabalenka in Saturday's final.`\
+https://nytimes.com/athletic/5749179/2024/09/05/pegula-muchova-us-open-semifinal-result/
+
 **Vance Calls School Shootings a Grim ‘Fact of Life’ as He Backs Increased Security**\
 `Democrats seized on his comments, arguing that JD Vance was resigned to the reality of school shootings.`\
 https://nytimes.com/2024/09/05/us/politics/jd-vance-fact-of-life-school-shootings.html
