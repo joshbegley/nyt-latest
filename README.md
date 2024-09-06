@@ -1,3 +1,11 @@
+**Mounting Inquiries Raise Questions About Adams’s Ability to Run New York**\
+`The revelation that much of Mayor Eric Adams’s inner circle is under federal investigation stunned city officials, and some worried their work could be affected.`\
+https://nytimes.com/2024/09/06/nyregion/adams-fbi-raids-investigation.html
+
+**Can Notre Dame avoid a letdown vs. Northern Illinois? 3 keys and a prediction**\
+`Notre Dame is looking for growth from the young O-line and QB Riley Leonard after a hard-fought win against Texas A&M last week.`\
+https://nytimes.com/athletic/5750079/2024/09/06/notre-dame-niu-preview-prediction/
+
 **Cleveland Browns season predictions: Garrett's DPOY repeat, Watson expectations**\
 `Plus, Jerry Jeudy's impact, the reworked offensive line, the first-time Pro Bowl candidates and more.`\
 https://nytimes.com/athletic/5748901/2024/09/06/cleveland-browns-season-predictions-deshaun-watsonmyles-garrett-david-njoku-jerry-jeudy/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/06/us/georgia-school-shooting.html
 **Meeting With Allies, Zelensky Presses for More Weapons**\
 `The Ukrainian leader argued that escalating military pressure on Russia, combined with diplomacy, was the best way to motivate Moscow to seek peace.`\
 https://nytimes.com/2024/09/06/world/europe/zelensky-ukraine-weapons-russia.html
-
-**Everything a Philadelphia Eagles fan needs to know for Week 1**\
-`All the questions about the Eagles will begin to be answered in São Paulo on Friday night.`\
-https://nytimes.com/athletic/5745895/2024/09/06/philadelphia-eagles-season-news-preview-2024/
-
-**USC mailbag: Revised predictions, defensive improvement, areas of concern**\
-`Any concerns with the clock management? Will Jayden Maiava be used in short-yardage situations? How many defensive players will see action?`\
-https://nytimes.com/athletic/5749824/2024/09/06/usc-football-defense-miller-moss-utah-state/
 
