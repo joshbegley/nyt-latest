@@ -1,3 +1,11 @@
+**What Female Llamas Do**\
+`Adrian Johnson opens our solving weekend.`\
+https://nytimes.com/2024/09/05/crosswords/daily-puzzle-2024-09-06.html
+
+**It’s Been the Hottest Summer on Record, European Officials Say**\
+`The excessive heat worldwide suggests the full year will also be a record-breaker, according to Copernicus, the E.U. agency that tracks global warming.`\
+https://nytimes.com/2024/09/05/climate/2024-hottest-summer-on-record.html
+
 **Judge Rejects Key Part of N.C.A.A. Settlement of Antitrust Suit With Athletes**\
 `The concern over restrictions on some payments raises uncertainty on whether a landmark agreement on compensating athletes can be reached and approved.`\
 https://nytimes.com/2024/09/05/us/ncaa-antitrust-settlement-athletes-pay.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5748924/2024/09/05/49ers-ricky-pearsall-practice-ch
 **Florida Health Agency Targets Abortion Rights Ballot Measure**\
 `A state agency claimed that the referendum “threatens women’s safety.” Critics say the website is unethical and may violate the law.`\
 https://nytimes.com/2024/09/05/us/florida-abortion-ballot-measure.html
-
-**Alex Morgan has designed her own USWNT exit by setting the next generation up for success**\
-`The U.S. can exist without Morgan and that’s ultimately for the good`\
-https://nytimes.com/athletic/5675577/2024/09/05/uswnt-olympics-alex-morgan-not-on-team/
-
-**Purported Rembrandt Painting Found in a Maine Attic Sells for $1.4 Million**\
-`“Portrait of a Girl,” a 17th-century work believed to be by the Dutch master, had been hiding in a home in Maine.`\
-https://nytimes.com/2024/09/05/arts/rembrandt-painting-maine-attic.html
 
