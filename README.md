@@ -1,3 +1,7 @@
+**Timberwolves, Rudy Gobert find themselves at the center of NBA's offseason circus**\
+`To win over the NBA populace, the Timberwolves are going to have to be even better than they were last season.`\
+https://nytimes.com/athletic/5745751/2024/09/06/rudy-gobert-timberwolves-nba-offseason-circus/
+
 **Fellow protesters said Aysenur Eygi was shot by an Israeli soldier.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2024/09/06/world/israel-hamas-gaza-war/west-bank-us-protester-killed-aysenur-eygi
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5749450/2024/09/06/new-york-giants-season-preview-2
 **FA to introduce safe working environment policies in women's game**\
 `The Football Association (FA) is working on a consultation plan that will see stakeholders in the women’s game, including players, help the governing body develop policies on safer working environments.`\
 https://nytimes.com/athletic/5750114/2024/09/06/fa-womens-football-safe-working/
-
-**Vance Declines to Denounce Carlson After Interview With Holocaust Revisionist**\
-`JD Vance’s campaign said he “doesn’t believe in guilt-by-association cancel culture” but doesn’t share the views of Tucker Carlson’s guest, who claimed the Holocaust was not premeditated genocide.`\
-https://nytimes.com/2024/09/06/us/politics/jd-vance-tucker-carlson-darryl-cooper.html
 
