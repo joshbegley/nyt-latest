@@ -1,3 +1,7 @@
+**Big 12 unveils tiebreaker rules to determine title game teams**\
+`The tiebreakers are similar to those announced in recent weeks by the SEC and Big Ten.`\
+https://nytimes.com/athletic/5750705/2024/09/06/big-12-tiebreaker-prodecures/
+
 **Aston Villa fined by UEFA for late submission of financial information**\
 `Aston Villa have been fined €60,000 (£50,670; $66,430) by UEFA for the alleged late submission of their financial information for the 2023-24 season.`\
 https://nytimes.com/athletic/5750547/2024/09/06/aston-villa-uefa-fined-scr/
