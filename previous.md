@@ -1,3 +1,15 @@
+**The Importance of Books in Our Lives**\
+`Readers share their love of books in response to Margaret Renkl’s essay. Also: Taxes on the superrich; teaching the Bible; nurturing friendships.`\
+https://nytimes.com/2024/09/06/opinion/books.html
+
+**Twitter Changed Soccer. There’s a Risk X Will Do It Again.**\
+`The world’s most popular pastime has been irrevocably shaped by its exposure to social media. That evolution can still go awry.`\
+https://nytimes.com/2024/09/06/world/europe/soccer-twitter-x.html
+
+**Live Q&A: Talking baseball with Eno Sarris on Friday 9/6 at 1:00 p.m. ET**\
+`Submit your questions for Eno Sarris' latest live chat about all things MLB.`\
+https://nytimes.com/athletic/5748533/2024/09/06/eno-sarris-live-mlb-chat-9-6/
+
 **The Storm Clouds Gathering Over New York’s City Hall**\
 `Mayor Adams owes the city more than just blithe reassurances.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/mayor-adams-investigation
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/06/arts/music/sergio-mendes-dead.html
 **Oasis Fans Balked at High Ticket Prices. But Were They ‘Dynamic’?**\
 `A regulator said it was opening an investigation into Ticketmaster’s actions, but the company disputed that “dynamic pricing” came into play.`\
 https://nytimes.com/2024/09/06/arts/music/oasis-reunion-tour-tickets.html
-
-**WSL players and fans have long mixed happily but perhaps a day of reckoning was inevitable**\
-`Chelsea have announced their players will no longer mix with fans before and after games. Was it inevitable - or avoidable?`\
-https://nytimes.com/athletic/5749658/2024/09/06/chelsea-fans-players-wsl/
-
-**The Challenge Is to Write 50,000 Words in a Month. Should ChatGPT Be Able to Help?**\
-`An online writing community was set aflame this week after National Novel Writing Month, or NaNoWriMo, said it wouldn’t take a stance on the use of A.I.`\
-https://nytimes.com/2024/09/06/style/nanowrimo-ai-writing-challenge.html
-
-**Elephants Arrive, So Humans Don’t Forget**\
-`“The Great Elephant Migration,” a touring public-art exhibition that has opened in New York, not only depicts wildlife but also helps save it.`\
-https://nytimes.com/2024/09/06/arts/design/elephant-sculptures-show-manhattan.html
 

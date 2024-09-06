@@ -1,3 +1,15 @@
+**The Importance of Books in Our Lives**\
+`Readers share their love of books in response to Margaret Renkl’s essay. Also: Taxes on the superrich; teaching the Bible; nurturing friendships.`\
+https://nytimes.com/2024/09/06/opinion/books.html
+
+**Twitter Changed Soccer. There’s a Risk X Will Do It Again.**\
+`The world’s most popular pastime has been irrevocably shaped by its exposure to social media. That evolution can still go awry.`\
+https://nytimes.com/2024/09/06/world/europe/soccer-twitter-x.html
+
+**Live Q&A: Talking baseball with Eno Sarris on Friday 9/6 at 1:00 p.m. ET**\
+`Submit your questions for Eno Sarris' latest live chat about all things MLB.`\
+https://nytimes.com/athletic/5748533/2024/09/06/eno-sarris-live-mlb-chat-9-6/
+
 **The Storm Clouds Gathering Over New York’s City Hall**\
 `Mayor Adams owes the city more than just blithe reassurances.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/mayor-adams-investigation
