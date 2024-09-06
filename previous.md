@@ -1,3 +1,7 @@
+**Stockport's Mangan set to join Ancelotti's coaching staff at Real Madrid**\
+`Stockport County&#8217;s Andy Mangan is set to join Carlo Ancelotti’s coaching staff at Real Madrid.`\
+https://nytimes.com/athletic/5749781/2024/09/06/andy-mangan-real-madrid-coaching-staff/
+
 **Analyzing the Giants' Matt Chapman extension for the present and future**\
 `Chapman has a track record of good health and skills that often age well. He looks like a better free-agent gamble than most.`\
 https://nytimes.com/athletic/5747832/2024/09/06/sf-giants-matt-chapman-extension-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5747738/2024/09/06/milwaukee-bucks-fan-survey-2/
 **Jones: Gap between Chiefs and Ravens is bigger than toe that decided game**\
 `The Chiefs weren't perfect in Thursday's 27-20 win, but what Patrick Mahomes and his teammates put on display should concern competitors.`\
 https://nytimes.com/athletic/5749588/2024/09/06/chiefs-ravens-toe-afc-contenders/
-
-**The Athletic FC: World's worst team win first match in 20 years, Ronaldo nets 900, Morgan retires**\
-`Today in TAFC: A first competitive win for San Marino, we break down Ronaldo's 900 career goals and explain Alex Morgan's legacy.`\
-https://nytimes.com/athletic/5749701/2024/09/06/san-marino-ronaldo-900-alex-morgan/
 
