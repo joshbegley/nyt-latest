@@ -1,3 +1,19 @@
+**With Her Father Accused of Raping Her Mother, a Daughter Talks of Torment**\
+`In court, the woman said she was traumatized not only by what prosecutors said happened to her mother but also by fear that she herself might have been abused.`\
+https://nytimes.com/2024/09/06/france-rape-trial-caroline-darian-testimony.html
+
+**Jannik Sinner into U.S. Open final after beating Jack Draper in strange match**\
+`The world No. 1 will play Frances Tiafoe or Taylor Fritz in Sunday's final.`\
+https://nytimes.com/athletic/5750745/2024/09/06/sinner-draper-us-open-semifinal-result/
+
+**Clark Halstead, Real Estate Broker Who Broke the Mold, Dies at 83**\
+`The face of his firm, he opened storefront offices to chase undervalued properties in diverse sections of the city and emblazoned a London cab with his name.`\
+https://nytimes.com/2024/09/06/nyregion/clark-halstead-dead.html
+
+**Alex Morgan's final game to be on multiple channels, streaming services**\
+`From a ticketing perspective at Snapdragon Stadium in San Diego, the match is trending towards a sell-out.`\
+https://nytimes.com/athletic/5751104/2024/09/06/alex-morgan-broadcast-channels-streaming/
+
 **Anthony Rizzo's return to Wrigley Field gives fans a reason to cheer**\
 `Rizzo’s weekend return feels like the final chapter of what’s been nearly three years of homecomings at Wrigley Field.`\
 https://nytimes.com/athletic/5751015/2024/09/06/anthony-rizzo-wrigley-field-return/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5751001/2024/09/06/lawsuit-filed-against-chelsea-by
 **Aysenur Eygi, the American activist killed in the West Bank, had been a campus organizer.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/09/06/world/israel-hamas-gaza-war/aysenur-eygi-the-american-activist-killed-in-the-west-bank-had-been-a-campus-organizer
-
-**Why were the Ravens flagged for illegal formation so many times?**\
-`The Ravens were flagged four times for an illegal formation in the first half, with LT Ronnie Stanley drawing three of those penalties.`\
-https://nytimes.com/athletic/5750517/2024/09/06/illegal-formation-nfl-baltimore-ravens/
-
-**Trump Will Not Be Sentenced Before Election Day**\
-`Also, an alternative for B.M.I. shows promise. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2024/09/06/briefing/trump-new-york-sentence-bmi-alternative.html
-
-**The Future of JD Vance’s Charity in Ohio Is Unclear**\
-`A tiny nonprofit founded by Trump’s running mate to improve the lives of Ohioans suffering from opioid addiction remains in limbo.`\
-https://nytimes.com/2024/09/06/us/politics/jd-vance-charity-ohio.html
-
-**Vikings' J.J. McCarthy talks for first time since season-ending surgery**\
-`McCarthy is in the first stage of his rehab process from a radial tear of the medial meniscus.`\
-https://nytimes.com/athletic/5751027/2024/09/06/jj-mccarthy-vikings-surgery/
 
