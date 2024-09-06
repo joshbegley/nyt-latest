@@ -1,3 +1,7 @@
+**How Yared Nuguse delivered a first Diamond League 1500m defeat for Jakob Ingebrigtsen in three years**\
+`The American ran the closing 100m in 13.1 seconds to seal a famous win - and a spot in the Diamond League final in Brussels next week`\
+https://nytimes.com/athletic/5748916/2024/09/06/yared-nuguse-jakob-ingebrigtsen-1500m-zurich/
+
 **Frances Tiafoe and Taylor Fritz step onto Arthur Ashe after a 12-year journey**\
 `About a dozen years ago, two 14-year-old boys arrived in Boca Raton, Florida for a tennis camp. Now they are U.S. Open semifinalists.`\
 https://nytimes.com/athletic/5748157/2024/09/06/tiafoe-fritz-us-open-semifinal/
