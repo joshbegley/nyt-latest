@@ -1,4 +1,8 @@
 **Is Brisbane Ready to Be the Equal of Sydney and Melbourne?**\
+`Many don’t see Brisbane in the same light as the other two cities, but the Queensland capital is showing it, too, has cultural heft.`\
+https://nytimes.com/2024/09/06/world/australia/brisbane-jean-paul-gaultier.html
+
+**Is Brisbane Ready to Be the Equal of Sydney and Melbourne?**\
 `Many don’t see Brisbane in the same light as the other two cities, but the Queensland capital is showing it, too, has cultural heft`\
 https://nytimes.com/2024/09/06/world/australia/brisbane-jean-paul-gaultier.html
 
