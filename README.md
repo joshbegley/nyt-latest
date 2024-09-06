@@ -1,3 +1,11 @@
+**Recent college graduates are finding a tighter labor market.**\
+`Job seekers are competing for fewer openings, and hiring is sluggish.`\
+https://nytimes.com/live/2024/09/06/business/jobs-report-august-economy/jobs-report-college-graduates
+
+**Live Updates: Job Growth Expected to Rebound**\
+`Ahead of a key Federal Reserve meeting to set interest rates, economists predict a modest bounce in hiring in August from an unexpectedly sluggish July.`\
+https://nytimes.com/live/2024/09/06/business/jobs-report-august-economy
+
 **Why Niko Sigur chose Canada over Croatia: 'He’s got that savviness even though he's young'**\
 `Sigur switched his international allegiance in August and has the chance to establish himself as the future of the Canadian midfield`\
 https://nytimes.com/athletic/5749410/2024/09/06/canada-sigur-croatia-midfield-marsch/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/06/us/politics/harris-august-fundraising-trump.html
 **5 Things to Do This Weekend**\
 `A selection of entertainment highlights this weekend, including “Beetlejuice Beetlejuice.”`\
 https://nytimes.com/interactive/2024/09/06/arts/weekend-editors-picks-beetlejuice.html
-
-**What We Know About the Apalachee High School Shooting**\
-`A teenager is accused of killing two students and two teachers in the deadliest school shooting in Georgia’s history. His father was arrested, too.`\
-https://nytimes.com/2024/09/06/us/apalachee-high-school-georgia-shooting.html
-
-**The Indelible Work of One Hostage’s Mother**\
-`Rachel Goldberg made her son, Hersh, a presence in the minds of parents around the world.`\
-https://nytimes.com/live/2024/09/03/opinion/thepoint/the-indelible-work-of-one-hostages-mother
 
