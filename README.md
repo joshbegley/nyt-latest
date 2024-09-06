@@ -1,3 +1,7 @@
+**Want to Move Abroad? Here Are Five Ways to Do It.**\
+`The path to a life in a new country is often paved with complicated visa and residency requirements.`\
+https://nytimes.com/2024/09/06/realestate/moving-abroad-americans-guide.html
+
 **Bills, RT Spencer Brown reach 4-year extension**\
 `Brown will pair with left tackle Dion Dawkins for the foreseeable future in protecting franchise QB Josh Allen.`\
 https://nytimes.com/athletic/5750842/2024/09/06/spencer-brown-bills-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/06/us/immigrant-california-home-bill-veto.html
 **Alex Morgan reflects on her legacy ahead of final game**\
 `“I hope my legacy is that I pushed the game forward,” Morgan said in a news conference Friday.`\
 https://nytimes.com/athletic/5750629/2024/09/06/alex-morgan-legacy-last-game-wave/
-
-**ACC claims FSU and Clemson are too late in contesting grant of rights**\
-`The ACC claims Florida State and Clemson accepted the ACC's contracts for years without pushback and have missed the statute of limitations.`\
-https://nytimes.com/athletic/5750778/2024/09/06/acc-florida-state-clemson-lawsuit/
 
