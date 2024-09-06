@@ -1,3 +1,7 @@
+**Confused by Chelsea's Conference League squad? It's all about load management...**\
+`Even a squad announcement becomes a news event at Chelsea, but there were good reasons for Thursday's Conference League omissions`\
+https://nytimes.com/athletic/5748775/2024/09/06/chelsea-conference-league-squad-explained/
+
 **Arsenal fan survey results: Title prospects, transfer verdicts - and who was the best signing?**\
 `How do Arsenal supporters view their summer transfer business and what it means for the season ahead? We reveal our survey results`\
 https://nytimes.com/athletic/5746657/2024/09/06/arsenal-fan-survey-results/
