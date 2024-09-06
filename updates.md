@@ -1,3 +1,15 @@
+**Delaying Trump’s Sentence May Mean a Stiffer Penalty if He Loses**\
+`The court will be free to make a decision free of political considerations.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/merchan-trump-delayed-sentence
+
+**As Election Nears, Trump Reminds Voters of Sexual Abuse Accusations**\
+`Mr. Trump’s news conference had little to do with the issues in the 2024 presidential race, and seemed like more of a venting exercise over his frustrations about his legal travails.`\
+https://nytimes.com/2024/09/06/us/politics/trump-news-conference-allegations.html
+
+**Lawsuit filed against Chelsea by agent cleared of sending threatening email to Granovskaia**\
+`The football agent cleared of sending former Chelsea director Marina Granovskaia a threatening email says he is filing a lawsuit against the Premier League club.`\
+https://nytimes.com/athletic/5751001/2024/09/06/lawsuit-filed-against-chelsea-by-agent-cleared-of-sending-threatening-email-to-marina-granovskaia/
+
 **Lawsuit filed against Chelsea by agent cleared of sending threatening email to Granovskaia**\
 `The football agent cleared of sending former Chelsea director Marina Granovskaia a threatening email has filed a lawsuit against the Premier League club.`\
 https://nytimes.com/athletic/5751001/2024/09/06/lawsuit-filed-against-chelsea-by-agent-cleared-of-sending-threatening-email-to-marina-granovskaia/

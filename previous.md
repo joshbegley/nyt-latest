@@ -1,5 +1,13 @@
+**Delaying Trump’s Sentence May Mean a Stiffer Penalty if He Loses**\
+`The court will be free to make a decision free of political considerations.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/merchan-trump-delayed-sentence
+
+**As Election Nears, Trump Reminds Voters of Sexual Abuse Accusations**\
+`Mr. Trump’s news conference had little to do with the issues in the 2024 presidential race, and seemed like more of a venting exercise over his frustrations about his legal travails.`\
+https://nytimes.com/2024/09/06/us/politics/trump-news-conference-allegations.html
+
 **Lawsuit filed against Chelsea by agent cleared of sending threatening email to Granovskaia**\
-`The football agent cleared of sending former Chelsea director Marina Granovskaia a threatening email has filed a lawsuit against the Premier League club.`\
+`The football agent cleared of sending former Chelsea director Marina Granovskaia a threatening email says he is filing a lawsuit against the Premier League club.`\
 https://nytimes.com/athletic/5751001/2024/09/06/lawsuit-filed-against-chelsea-by-agent-cleared-of-sending-threatening-email-to-marina-granovskaia/
 
 **Aysenur Eygi, the American activist killed in the West Bank, had been a campus organizer.**\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/06/briefing/trump-sentencing-delay.html
 **The Yankees Find a Fashion Partner in New York or Nowhere**\
 `A lifestyle brand known for its declarations of N.Y.C. supremacy joins forces with baseball’s winningest franchise.`\
 https://nytimes.com/2024/09/06/style/yankees-nyon-streetwear.html
-
-**A Trove of Words to Remember From a Master Obituary Writer**\
-`The byline of Robert D. McFadden, who retired on Sunday, has been one of the most distinguished in the history of The Times. Here is a sampler of his artful obituaries.`\
-https://nytimes.com/2024/09/06/business/media/robert-mcfadden-retirement.html
-
-**Calling All Teens: How Much Does the 2024 Election Matter to You?**\
-`Join the Headway Election Challenge to share your thoughts and help shape the conversation.`\
-https://nytimes.com/2024/09/06/headway/teens-2024-election-involvement.html
 
