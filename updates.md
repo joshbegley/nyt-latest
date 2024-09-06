@@ -1,3 +1,11 @@
+**Aston Villa fined by UEFA for late submission of financial information**\
+`Aston Villa have been fined €60,000 (£50,670; $66,430) by UEFA for the alleged late submission of their financial information for the 2023-24 season.`\
+https://nytimes.com/athletic/5750547/2024/09/06/aston-villa-uefa-fined-scr/
+
+**Meet MJ Lenderman, Southern Rock’s Tragicomic Poet**\
+`Hear tracks from his new album, “Manning Fireworks,” and more.`\
+https://nytimes.com/2024/09/06/arts/music/amplifier-newsletter-mj-lenderman.html
+
 **Ja'Marr Chase says extension is 'pretty close'**\
 `"We’re off a little bit, but it's in reach," Chase said of negotiations. "We are pretty close. A few numbers need to be switched around."`\
 https://nytimes.com/athletic/5750538/2024/09/06/jamarr-chase-bengals-contract-status/

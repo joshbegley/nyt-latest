@@ -1,3 +1,11 @@
+**Aston Villa fined by UEFA for late submission of financial information**\
+`Aston Villa have been fined €60,000 (£50,670; $66,430) by UEFA for the alleged late submission of their financial information for the 2023-24 season.`\
+https://nytimes.com/athletic/5750547/2024/09/06/aston-villa-uefa-fined-scr/
+
+**Meet MJ Lenderman, Southern Rock’s Tragicomic Poet**\
+`Hear tracks from his new album, “Manning Fireworks,” and more.`\
+https://nytimes.com/2024/09/06/arts/music/amplifier-newsletter-mj-lenderman.html
+
 **Ja'Marr Chase says extension is 'pretty close'**\
 `"We’re off a little bit, but it's in reach," Chase said of negotiations. "We are pretty close. A few numbers need to be switched around."`\
 https://nytimes.com/athletic/5750538/2024/09/06/jamarr-chase-bengals-contract-status/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/06/world/europe/sudan-war-crimes-un.html
 **Review: You’re Invited to a Rave (Beware of Professionals)**\
 `The choreographer Sharon Eyal turns the Drill Hall of the Armory into a club at which her dancers appear at intervals, behaving oddly.`\
 https://nytimes.com/2024/09/06/arts/dance/review-sharon-eyal-rose-park-avenue-armory.html
-
-**The Importance of Books in Our Lives**\
-`Readers share their love of books in response to Margaret Renkl’s essay. Also: Taxes on the superrich; teaching the Bible; nurturing friendships.`\
-https://nytimes.com/2024/09/06/opinion/books.html
-
-**Twitter Changed Soccer. There’s a Risk X Will Do It Again.**\
-`The world’s most popular pastime has been irrevocably shaped by its exposure to social media. That evolution can still go awry.`\
-https://nytimes.com/2024/09/06/world/europe/soccer-twitter-x.html
 
