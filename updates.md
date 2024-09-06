@@ -1,3 +1,11 @@
+**Michael Lerner, 81, Is Dead; Founder of a Combative Jewish Magazine**\
+`His publication, Tikkun, was a leading voice for left-wing American Jews. His ideas about “the politics of meaning” were embraced by Hillary Clinton.`\
+https://nytimes.com/2024/09/06/business/media/michael-lerner-dead.html
+
+**Hunter Woodhall wins Paralympic gold and completes a dream summer for track's power couple**\
+`On Friday, Hunter Woodhall joined his wife, Olympian Tara Davis-Woodhall, as Paris gold-medal winners, the culmination of a deep love.`\
+https://nytimes.com/athletic/5749532/2024/09/06/hunter-woodhall-paralmypics-gold-medal-tara-davis-woodhall/
+
 **American Activist Dies After Being Shot at a West Bank Protest**\
 `Aysenur Ezgi Eygi, a 26-year-old American, was shot at a protest against an Israeli outpost in the West Bank town of Beita.`\
 https://nytimes.com/video/world/middleeast/100000009677822/american-activist-killed-west-bank-.html
