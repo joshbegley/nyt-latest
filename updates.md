@@ -1,3 +1,7 @@
+**China Stops Foreign Adoptions, Ending a Complicated Chapter**\
+`Beijing said the move was in line with international trends, as more countries have limited such adoptions.`\
+https://nytimes.com/2024/09/06/world/asia/china-foreign-adoptions-ban.html
+
 **Confused by Chelsea's Conference League squad? It's all about load management...**\
 `Even a squad announcement becomes a news event at Chelsea, but there were good reasons for Thursday's Conference League omissions`\
 https://nytimes.com/athletic/5748775/2024/09/06/chelsea-conference-league-squad-explained/
