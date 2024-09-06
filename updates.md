@@ -1,3 +1,7 @@
+**Live Updates: U.S. Job Growth Expected to Rebound**\
+`Ahead of a key Federal Reserve meeting to set interest rates, economists predict a modest bounce in hiring in August from an unexpectedly sluggish July.`\
+https://nytimes.com/live/2024/09/06/business/jobs-report-august-economy
+
 **Recent college graduates are finding a tighter labor market.**\
 `Job seekers are competing for fewer openings, and hiring is sluggish.`\
 https://nytimes.com/live/2024/09/06/business/jobs-report-august-economy/jobs-report-college-graduates
