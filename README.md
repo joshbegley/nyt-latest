@@ -1,3 +1,11 @@
+**Word of the Day: bastion**\
+`This word has appeared in 214 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/09/06/learning/word-of-the-day-bastion.html
+
+**Super Typhoon Yagi Drenches Southern China Ahead of Landfall**\
+`Yagi, one of 2024’s strongest storms, is forecast to make landfall on the Chinese island of Hainan on Friday, and then in northern Vietnam on Saturday.`\
+https://nytimes.com/2024/09/06/world/asia/typhoon-yagi-china-hong-kong-vietnam.html
+
 **Is Brisbane Ready to Be the Equal of Sydney and Melbourne?**\
 `Many don’t see Brisbane in the same light as the other two cities, but the Queensland capital is showing it, too, has cultural heft.`\
 https://nytimes.com/2024/09/06/world/australia/brisbane-jean-paul-gaultier.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5746662/2024/09/06/sergio-reguilon-tottenham-transf
 **Brighton's transfer window reviewed: The planet's biggest spenders now have unprecedented depth**\
 `Brighton spent big this summer to give new manager Florian Hurzeler myriad options - but the loss of Pascal Gross might still be felt `\
 https://nytimes.com/athletic/5702545/2024/09/06/brighton-transfer-window-review-2024/
-
-**After Arne Slot debunked Erik ten Hag's tactical setup on live TV, how worried should United fans be?**\
-`The Liverpool manager succinctly explained how his side ran riot at Old Trafford, but it is it an approach other sides can adopt?`\
-https://nytimes.com/athletic/5294650/2024/09/06/erik-ten-hag-tactics-debunked-manchester-united/
-
-**West Ham fan survey results: 96% think team is stronger after the transfer window**\
-`Many of you responded to our questions about West Ham and their summer dealings - here is what you had to say`\
-https://nytimes.com/athletic/5746647/2024/09/06/west-ham-fan-survey-results/
 
