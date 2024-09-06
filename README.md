@@ -1,3 +1,7 @@
+**A Trove of Words to Remember From a Master Obituary Writer**\
+`The byline of Robert D. McFadden, who retired on Sunday, has been one of the most distinguished in the history of The Times. Here is a sampler of his artful obituaries.`\
+https://nytimes.com/2024/09/06/business/media/robert-mcfadden-retirement.html
+
 **Calling All Teens: How Much Does the 2024 Election Matter to You?**\
 `Join the Headway Election Challenge to share your thoughts and help shape the conversation.`\
 https://nytimes.com/2024/09/06/headway/teens-2024-election-involvement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/06/t-magazine/new-designers-fashion.html
 **Judge Sets 2025 Timeline for Remedies to Google’s Search Monopoly**\
 `After ruling against Google last month, Judge Amit P. Mehta said he would take until next August to determine fixes that the company must make.`\
 https://nytimes.com/2024/09/06/technology/google-search-antitrust-remedies.html
-
-**N.Y.P.D. Ousts 2 Reporters From Headquarters in Escalation of Tensions**\
-`The actions taken against the reporters, from The New York Post and The New York Times, came after federal agents seized the phone of New York City’s police commissioner.`\
-https://nytimes.com/2024/09/06/nyregion/nypd-reporters-adams.html
 
