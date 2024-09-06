@@ -1,3 +1,11 @@
+**U.N. Panel Calls for International Peacekeeping Force in Sudan**\
+`The country’s brutal civil war has led to the killing, rape and torture of civilians, including children, as it threatens to destabilize neighboring countries.`\
+https://nytimes.com/2024/09/06/world/europe/sudan-war-crimes-un.html
+
+**Review: You’re Invited to a Rave (Beware of Professionals)**\
+`The choreographer Sharon Eyal turns the Drill Hall of the Armory into a club at which her dancers appear at intervals, behaving oddly.`\
+https://nytimes.com/2024/09/06/arts/dance/review-sharon-eyal-rose-park-avenue-armory.html
+
 **The Importance of Books in Our Lives**\
 `Readers share their love of books in response to Margaret Renkl’s essay. Also: Taxes on the superrich; teaching the Bible; nurturing friendships.`\
 https://nytimes.com/2024/09/06/opinion/books.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/06/business/jobs-report-august-economy/what-to-
 **These Easy Cakes Need No Special Ingredients to Shine**\
 `Endlessly adaptable, tea cakes have long offered bakers across the country a moment of restoration.`\
 https://nytimes.com/2024/09/06/dining/tea-cakes-history.html
-
-**Sergio Mendes, 83, Dies; Brought Brazilian Rhythms to the U.S. Pop Charts**\
-`A pianist, composer and arranger, he rose to fame with the group Brasil ’66 and remained a force in popular music for more than six decades.`\
-https://nytimes.com/2024/09/06/arts/music/sergio-mendes-dead.html
-
-**Oasis Fans Balked at High Ticket Prices. But Were They ‘Dynamic’?**\
-`A regulator said it was opening an investigation into Ticketmaster’s actions, but the company disputed that “dynamic pricing” came into play.`\
-https://nytimes.com/2024/09/06/arts/music/oasis-reunion-tour-tickets.html
 
