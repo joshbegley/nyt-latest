@@ -1,3 +1,15 @@
+**Stock Slide as Investors Wrestle With Shifting Bets on Rate Cuts**\
+`The stock market “can’t win” at the moment, said Andrew Brenner, head of international fixed income at National Alliance Securities. “Heads I lose, tails I lose.”`\
+https://nytimes.com/2024/09/06/business/stock-market-jobs-report.html
+
+**Jackie Winsor, 82, Dies; Sculptor Who Gave Complexity to Simple Shapes**\
+`A prominent figure in New York’s art scene, she drew creative inspiration from her rugged Canadian upbringing and swung on a trapeze in her downtime.`\
+https://nytimes.com/2024/09/06/arts/jackie-winsor-dead.html
+
+**American Activist Dies After Being Shot at a West Bank Protest**\
+`Aysenur Ezgi Eygi, a 26-year-old Turkish American, was shot dead at a protest against an Israeli settlement in the West Bank town of Beita.`\
+https://nytimes.com/video/world/middleeast/100000009677822/american-activist-killed-west-bank-.html
+
 **Trump’s Child Care Plan Is Nonsensical**\
 `It is a positive sign, overall, that child care is an issue that’s front and center.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/trump-vance-child-care
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5750547/2024/09/06/aston-villa-uefa-fined-scr/
 **Meet MJ Lenderman, Southern Rock’s Tragicomic Poet**\
 `Hear tracks from his new album, “Manning Fireworks,” and more.`\
 https://nytimes.com/2024/09/06/arts/music/amplifier-newsletter-mj-lenderman.html
-
-**Ja'Marr Chase says extension is 'pretty close'**\
-`"We’re off a little bit, but it's in reach," Chase said of negotiations. "We are pretty close. A few numbers need to be switched around."`\
-https://nytimes.com/athletic/5750538/2024/09/06/jamarr-chase-bengals-contract-status/
-
-**How Yankees’ Brian Cashman explained controversial Jasson Domínguez decision**\
-`Cashman spoke to reporters about the decision to keep Domínguez at Triple A and continue to play the underperforming Alex Verdugo.`\
-https://nytimes.com/athletic/5750662/2024/09/06/brian-cashman-jasson-dominguez-decision/
-
-**Ted Drewes Jr., the Frozen Custard King of St. Louis, Dies at 96**\
-`Celebrity chefs and politicians paid tribute to the man behind the extra-thick shake known as the concrete, an intrinsic part of St. Louis summers.`\
-https://nytimes.com/2024/09/06/business/ted-drewes-jr-dead.html
 

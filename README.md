@@ -2,8 +2,8 @@
 `The stock market “can’t win” at the moment, said Andrew Brenner, head of international fixed income at National Alliance Securities. “Heads I lose, tails I lose.”`\
 https://nytimes.com/2024/09/06/business/stock-market-jobs-report.html
 
-**Jackie Winsor, 82, Dies; Sculptor Who Gave Complexity to Simple Shapes**\
-`A prominent figure in New York’s art scene, she drew creative inspiration from her rugged Canadian upbringing and swung on a trapeze in her downtime.`\
+**Jackie Winsor, 82, Dies; Sculptor Who Hammered, Drilled and Chopped**\
+`She gave complexity to simple shapes, drawing inspiration from her rugged Canadian upbringing. In her downtime, she swung on a trapeze.`\
 https://nytimes.com/2024/09/06/arts/jackie-winsor-dead.html
 
 **American Activist Dies After Being Shot at a West Bank Protest**\
