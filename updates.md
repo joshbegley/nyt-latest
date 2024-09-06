@@ -1,3 +1,11 @@
+**Books Deals Can Add Up to Millions of Dollars for Supreme Court Justices**\
+`For the justices, selling books remains one of the few ways to earn income outside the court.`\
+https://nytimes.com/2024/09/06/us/politics/supreme-court-justice-book-deals.html
+
+**The Fed Needs to Pull the Plane Up**\
+`The soft landing has happened; now it’s time to cut interest rates.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/krugman-fed-interest-rates
+
 **AL playoff contenders' biggest concern and key X-factor to watch down the stretch**\
 `What will be the difference-making variables for postseason contenders in the final weeks of the regular season and into October?`\
 https://nytimes.com/athletic/5749630/2024/09/06/mlb-playoffs-al-contenders-concerns-x-factors/

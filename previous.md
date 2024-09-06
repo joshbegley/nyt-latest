@@ -1,3 +1,11 @@
+**Books Deals Can Add Up to Millions of Dollars for Supreme Court Justices**\
+`For the justices, selling books remains one of the few ways to earn income outside the court.`\
+https://nytimes.com/2024/09/06/us/politics/supreme-court-justice-book-deals.html
+
+**The Fed Needs to Pull the Plane Up**\
+`The soft landing has happened; now it’s time to cut interest rates.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/krugman-fed-interest-rates
+
 **AL playoff contenders' biggest concern and key X-factor to watch down the stretch**\
 `What will be the difference-making variables for postseason contenders in the final weeks of the regular season and into October?`\
 https://nytimes.com/athletic/5749630/2024/09/06/mlb-playoffs-al-contenders-concerns-x-factors/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/06/business/carl-icahn-investors-wall-street.html
 **NWSL hires former FIFPRO director Sarah Gregorius to lead player standards**\
 `New NWSL sporting senior director Gregorius sees potential in the league's autonomy `\
 https://nytimes.com/athletic/5749348/2024/09/06/nwsl-hires-fifpro-sarah-gregorius/
-
-**Time to Say Goodbye to the B.M.I.?**\
-`Researchers have long faulted the body mass index as an unreliable indicator of health. A replacement has been gaining support: the body roundness index.`\
-https://nytimes.com/2024/09/06/health/body-roundness-index-bmi.html
-
-**Eagles Players Feared Crime in Brazil. Have They Considered Philadelphia?**\
-`Some N.F.L. players called Brazil dangerous ahead of the league’s first game in South America on Friday. Statistics show their home city is deadlier.`\
-https://nytimes.com/2024/09/06/world/americas/eagles-packers-nfl-game-brazil-crime.html
 
