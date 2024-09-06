@@ -1,3 +1,7 @@
+**Vance Declines to Denounce Carlson After Interview With Holocaust Revisionist**\
+`JD Vance’s campaign said he “doesn’t believe in guilt-by-association cancel culture” but doesn’t share the views of Tucker Carlson’s guest, who claimed the Holocaust was not premeditated genocide.`\
+https://nytimes.com/2024/09/06/us/politics/jd-vance-tucker-carlson-darryl-cooper.html
+
 **Mounting Inquiries Raise Questions About Adams’s Ability to Run New York**\
 `The revelation that much of Mayor Eric Adams’s inner circle is under federal investigation stunned city officials, and some worried their work could be affected.`\
 https://nytimes.com/2024/09/06/nyregion/adams-fbi-raids-investigation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/06/business/economy/jobs-reports-federal-reserve-int
 **Teen and Father Charged With Georgia School Shooting Appear in Court**\
 `The 14-year-old’s father was arrested Thursday in connection with the deaths of two teachers and two students, which his son is accused of carrying out with a military-style rifle.`\
 https://nytimes.com/2024/09/06/us/georgia-school-shooting.html
-
-**Meeting With Allies, Zelensky Presses for More Weapons**\
-`The Ukrainian leader argued that escalating military pressure on Russia, combined with diplomacy, was the best way to motivate Moscow to seek peace.`\
-https://nytimes.com/2024/09/06/world/europe/zelensky-ukraine-weapons-russia.html
 
