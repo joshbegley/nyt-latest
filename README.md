@@ -1,3 +1,7 @@
+**NFL Brazil Game: Where is the stadium for Packers vs Eagles? And why is green controversial?**\
+`The NFL holds its first game in Brazil on Friday night as the Philadelphia Eagles take on the Green Bay Packers`\
+https://nytimes.com/athletic/5750158/2024/09/06/nfl-brazil-game-stadium-where-green/
+
 **Young quarterback trading card values vs. real-life value entering the 2024 season**\
 `A look at where card values stand for quarterbacks drafted from 2020-2023 as they enter the new season `\
 https://nytimes.com/athletic/5744467/2024/09/06/nfl-quarterback-card-values-burrow-stroud/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/09/06/arts/best-of-late-night-townhall.html
 **Scoop City: The play BEFORE the play**\
 `A look at the opening night of the NFL, plus a preview of tonight's Packers and Eagles game and Josh Allen's thoughts on being "overrated."`\
 https://nytimes.com/athletic/5750333/2024/09/06/scoop-city-the-play-before-the-play/
-
-**Five Action Movies to Stream Now**\
-`This month’s picks include plenty of comedy, a killer shark and a mammoth sea battle.`\
-https://nytimes.com/2024/09/06/movies/action-movies-streaming.html
 
