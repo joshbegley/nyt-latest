@@ -1,3 +1,11 @@
+**Dodgers’ Stone goes on IL with shoulder inflammation**\
+`Gavin Stone's 140 innings pitched is a career-high from last years 131 between the majors and triple A.`\
+https://nytimes.com/athletic/5751101/2024/09/06/dodgers-gavin-stone-shoulder-injury/
+
+**West Bank Residents Survey Destruction as Israeli Forces Withdraw**\
+`A 10-day raid by Israeli troops into the occupied territory has been one of the most devastating in years, with at least 39 people killed, according to Palestinian officials.`\
+https://nytimes.com/2024/09/06/world/middleeast/jenin-israel-withdraw-destruction.html
+
 **One Student Kills Another in Dispute at Maryland High School, Authorities Say**\
 `In another case of deadly gunfire at a school, the victim, a 15-year-old student, was airlifted to a trauma center, where he later died. A 16-year-old suspect was in custody on Friday.`\
 https://nytimes.com/2024/09/06/us/joppatowne-maryland-school-shooting.html
