@@ -1,3 +1,19 @@
+**The Challenge Is to Write 50,000 Words in a Month. Should ChatGPT Be Able to Help?**\
+`An online writing community was set aflame this week after National Novel Writing Month, or NaNoWriMo, said it wouldn’t take a stance on the use of A.I.`\
+https://nytimes.com/2024/09/06/style/nanowrimo-ai-writing-challenge.html
+
+**Elephants Arrive, So Humans Don’t Forget**\
+`“The Great Elephant Migration,” a touring public-art exhibition that has opened in New York, not only depicts wildlife but also helps save it.`\
+https://nytimes.com/2024/09/06/arts/design/elephant-sculptures-show-manhattan.html
+
+**Aitana Bonmati set to sign Barcelona contract extension**\
+`Aitana Bonmati is expected to become the highest-paid player in women’s football after agreeing a lucrative contract extension with Barcelona.`\
+https://nytimes.com/athletic/5749591/2024/09/06/aitana-bonmati-barcelona-contract/
+
+**Football Parlay Fridays Week 2: Michigan moneyline and four more picks**\
+`Austin Mock is back for a round-robin parlay pick on college football Week 2. See what he's picking this week. `\
+https://nytimes.com/athletic/5750389/2024/09/06/football-parlay-fridays-college-football-week-2/
+
 **NFL Brazil Game: Where is the stadium for Packers vs Eagles? And why is green controversial?**\
 `The NFL holds its first game in Brazil on Friday night as the Philadelphia Eagles take on the Green Bay Packers`\
 https://nytimes.com/athletic/5750158/2024/09/06/nfl-brazil-game-stadium-where-green/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/06/business/nordstrom-family-acquisition-offer.html
 **Bergwijn responds to Koeman criticism of Saudi move: 'Don’t treat players like that'**\
 `Steven Bergwijn has criticised Ronald Koeman&#8217;s treatment of him after the Netherlands head coach said the winger would no longer be selected for the national team following his move to Al Ittihad from Ajax.`\
 https://nytimes.com/athletic/5750294/2024/09/06/steven-bergwijn-ronaldo-koeman-saudi-netherlands/
-
-**The Windup: There are levels to this contract**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5750382/2024/09/06/matt-chapman-contract-giants-the-windup/
-
-**Connor Stalions becomes acting coach at Detroit school**\
-`Connor Stalions, a volunteer DC, is leading the high school team while head coach William McMichael recovers from a minor stroke.`\
-https://nytimes.com/athletic/5750285/2024/09/06/connor-stalions-head-coach-job-michigan/
-
-**The Best of Late Night This Week**\
-`After a break and a holiday Monday, the hosts returned to discuss Kamala Harris being ahead in the polls, Robert F. Kennedy Jr.’s jabs about proficiency in the English language and Donald Trump’s town hall on Fox.`\
-https://nytimes.com/interactive/2024/09/06/arts/best-of-late-night-townhall.html
-
-**Scoop City: The play BEFORE the play**\
-`A look at the opening night of the NFL, plus a preview of tonight's Packers and Eagles game and Josh Allen's thoughts on being "overrated."`\
-https://nytimes.com/athletic/5750333/2024/09/06/scoop-city-the-play-before-the-play/
 
