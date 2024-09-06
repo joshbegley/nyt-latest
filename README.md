@@ -1,3 +1,7 @@
+**Anthony Rizzo's return to Wrigley Field gives fans a reason to cheer**\
+`Rizzo’s weekend return feels like the final chapter of what’s been nearly three years of homecomings at Wrigley Field.`\
+https://nytimes.com/athletic/5751015/2024/09/06/anthony-rizzo-wrigley-field-return/
+
 **Nell McCafferty, Larger-Than-Life Irish Journalist, Dies at 80**\
 `Her pugnacious writing on women’s rights, gay rights and other issues helped turn her country into one of the most progressive in Europe.`\
 https://nytimes.com/2024/09/06/world/europe/nell-mccafferty-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/06/us/politics/jd-vance-charity-ohio.html
 **Vikings' J.J. McCarthy talks for first time since season-ending surgery**\
 `McCarthy is in the first stage of his rehab process from a radial tear of the medial meniscus.`\
 https://nytimes.com/athletic/5751027/2024/09/06/jj-mccarthy-vikings-surgery/
-
-**Of Politics and the Courtroom**\
-`The judge’s decision to delay Trump’s sentencing shows how much the cases are entwined with the campaign.`\
-https://nytimes.com/2024/09/06/briefing/trump-sentencing-delay.html
 
