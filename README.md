@@ -1,3 +1,7 @@
+**Confused by Chelsea's Conference League squad? It's all about load management...**\
+`Even a squad announcement becomes a news event at Chelsea, but there were good reasons for Thursday's Conference League omissions`\
+https://nytimes.com/athletic/5748775/2024/09/06/chelsea-conference-league-squad-explained/
+
 **Arsenal fan survey results: Title prospects, transfer verdicts - and who was the best signing?**\
 `How do Arsenal supporters view their summer transfer business and what it means for the season ahead? We reveal our survey results`\
 https://nytimes.com/athletic/5746657/2024/09/06/arsenal-fan-survey-results/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5747027/2024/09/06/kane-tickets-angelo-ten-hag-ever
 **Who is England's best goalkeeper? The top six candidates assessed**\
 `Pickford. Pope. Ramsdale. Henderson. Johnstone. Trafford. Who should Carsley pick going forward?`\
 https://nytimes.com/athletic/5741960/2024/09/06/england-goalkeepers-assessed/
-
-**We examined Man City's streak of 49 successful throw-ins. For fun.**\
-`Why Man City are the only Premier League club with a 100 per cent success rate for throw-ins this season`\
-https://nytimes.com/athletic/5746857/2024/09/06/manchester-city-49-successful-throwins/
 
