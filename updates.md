@@ -1,3 +1,7 @@
+**The Yankees Find a Fashion Partner in New York or Nowhere**\
+`A lifestyle brand known for its declarations of N.Y.C. supremacy joins forces with baseball’s winningest franchise.`\
+https://nytimes.com/2024/09/06/style/yankees-nyon-streetwear.html
+
 **A Trove of Words to Remember From a Master Obituary Writer**\
 `The byline of Robert D. McFadden, who retired on Sunday, has been one of the most distinguished in the history of The Times. Here is a sampler of his artful obituaries.`\
 https://nytimes.com/2024/09/06/business/media/robert-mcfadden-retirement.html
