@@ -1,3 +1,7 @@
+**Anthony Rizzo's return to Wrigley Field gives fans a reason to cheer**\
+`Rizzo’s weekend return feels like the final chapter of what’s been nearly three years of homecomings at Wrigley Field.`\
+https://nytimes.com/athletic/5751015/2024/09/06/anthony-rizzo-wrigley-field-return/
+
 **Nell McCafferty, Larger-Than-Life Irish Journalist, Dies at 80**\
 `Her pugnacious writing on women’s rights, gay rights and other issues helped turn her country into one of the most progressive in Europe.`\
 https://nytimes.com/2024/09/06/world/europe/nell-mccafferty-dead.html
