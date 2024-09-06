@@ -1,3 +1,7 @@
+**House settlement on hold over NCAA-proposed NIL restrictions**\
+`The NCAA's desired restrictions on third-party NIL payments was a point of contention, casting uncertainty on the settlement's future.`\
+https://nytimes.com/athletic/5749342/2024/09/05/house-ncaa-settlement-college-sports-nil-boosters/
+
 **7-Eleven Rejects Takeover Bid from Big Canadian Chain**\
 `Japan’s Seven & i Holdings, the operator of 7-Eleven, has rebuffed a buyout offer that would have been the largest foreign-led acquisition of a Japanese company.`\
 https://nytimes.com/2024/09/05/business/7-eleven-rejects-couch-tarde-bid.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/05/us/georgia-school-shooting-colt-gray-father.html
 **Aryna Sabalenka beats Emma Navarro to reach second U.S. Open final in a row**\
 `The No. 2 seed produced a performance of power and resolve in a raucous atmosphere.`\
 https://nytimes.com/athletic/5748947/2024/09/05/navarro-sabalenka-us-open-semifinal-result/
-
-**2 Brothers Sentenced to More Than 17 Years in Prison in Sextortion Scheme**\
-`Two brothers from Nigeria helped run an online sextortion operation that prosecutors said resulted in the death of a high school student.`\
-https://nytimes.com/2024/09/05/us/nigeria-brothers-sentence-sex-extortion.html
 
