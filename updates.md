@@ -1,3 +1,11 @@
+**Ja'Marr Chase says extension is 'pretty close'**\
+`"We’re off a little bit, but it's in reach," Chase said of negotiations. "We are pretty close. A few numbers need to be switched around."`\
+https://nytimes.com/athletic/5750538/2024/09/06/jamarr-chase-bengals-contract-status/
+
+**How Yankees’ Brian Cashman explained controversial Jasson Domínguez decision**\
+`Cashman spoke to reporters about the decision to keep Domínguez at Triple A and continue to play the underperforming Alex Verdugo.`\
+https://nytimes.com/athletic/5750662/2024/09/06/brian-cashman-jasson-dominguez-decision/
+
 **Ted Drewes Jr., the Frozen Custard King of St. Louis, Dies at 96**\
 `Celebrity chefs and politicians paid tribute to the man behind the extra-thick shake known as the concrete, an intrinsic part of St. Louis summers.`\
 https://nytimes.com/2024/09/06/business/ted-drewes-jr-dead.html
