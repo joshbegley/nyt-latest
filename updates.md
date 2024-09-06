@@ -1,3 +1,11 @@
+**In His Last Months as President, Biden Is Both Liberated and Resigned**\
+`President Biden spent decades seeking the highest office, only to drop his bid for re-election under pressure. These final months before the November election are bittersweet, his allies say.`\
+https://nytimes.com/2024/09/06/us/politics/biden-harris-campaign.html
+
+**Man Arrested in Plot to Kill Jews in New York on Oct. 7 Anniversary**\
+`A 20-year-old Pakistani citizen was arrested in Canada after plotting to carry out a mass shooting at a Jewish center in New York, according to the U.S. Justice Department.`\
+https://nytimes.com/2024/09/06/us/politics/new-york-terror-plot-jewish-center-isis.html
+
 **They Want to Make Voting a Fall Trend**\
 `Jill Biden, Anna Wintour and top American designers participated in a voting awareness march at the onset of New York Fashion Week.`\
 https://nytimes.com/2024/09/06/style/nyfw-voting-anna-wintour-jill-biden.html
