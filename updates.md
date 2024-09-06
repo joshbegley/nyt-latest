@@ -1,3 +1,7 @@
+**ACC claims FSU and Clemson are too late in contesting grant of rights**\
+`The ACC claims Florida State and Clemson accepted the ACC's contracts for years without pushback and have missed the statute of limitations.`\
+https://nytimes.com/athletic/5750778/2024/09/06/acc-florida-state-clemson-lawsuit/
+
 **Want to Move Abroad? Here Are Five Ways to Do It.**\
 `The path to a life in a new country is often paved with complicated visa and residency requirements.`\
 https://nytimes.com/2024/09/06/realestate/moving-abroad-americans-guide.html
