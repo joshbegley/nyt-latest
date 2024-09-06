@@ -1,3 +1,7 @@
+**American Activist Dies After Being Shot at a West Bank Protest**\
+`Aysenur Ezgi Eygi, a Turkish American, was shot dead at a protest against an Israeli settlement in the town of Beita in Nablus.`\
+https://nytimes.com/video/world/middleeast/100000009677822/american-activist-killed-west-bank-.html
+
 **Trump’s Child Care Plan Is Nonsensical**\
 `It is a positive sign, overall, that child care is an issue that’s front and center.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/trump-vance-child-care
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5750538/2024/09/06/jamarr-chase-bengals-contract-st
 **How Yankees’ Brian Cashman explained controversial Jasson Domínguez decision**\
 `Cashman spoke to reporters about the decision to keep Domínguez at Triple A and continue to play the underperforming Alex Verdugo.`\
 https://nytimes.com/athletic/5750662/2024/09/06/brian-cashman-jasson-dominguez-decision/
-
-**Ted Drewes Jr., the Frozen Custard King of St. Louis, Dies at 96**\
-`Celebrity chefs and politicians paid tribute to the man behind the extra-thick shake known as the concrete, an intrinsic part of St. Louis summers.`\
-https://nytimes.com/2024/09/06/business/ted-drewes-jr-dead.html
 
