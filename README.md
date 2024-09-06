@@ -1,3 +1,7 @@
+**Carsley 'not at all' worried over playing Rice & Grealish against Republic of Ireland**\
+`England interim manager Lee Carsley has said that he is not worried about the atmosphere facing Declan Rice and Jack Grealish in Dublin during Saturday&#8217;s Nations League fixture against the Republic of Ireland.`\
+https://nytimes.com/athletic/5750947/2024/09/06/jack-grealish-declan-rice-ireland-england/
+
 **Morgan Stanley Is Fined for First Republic C.E.O.’s Stock Sales**\
 `James Herbert was permitted to sell nearly $7 million of shares before First Republic Bank’s demise last year, Massachusetts regulators said.`\
 https://nytimes.com/2024/09/06/business/morgan-stanley-first-republic-fined.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/06/realestate/moving-abroad-americans-guide.html
 **Bills, RT Spencer Brown reach 4-year extension**\
 `Brown will pair with left tackle Dion Dawkins for the foreseeable future in protecting franchise QB Josh Allen.`\
 https://nytimes.com/athletic/5750842/2024/09/06/spencer-brown-bills-extension/
-
-**Wilson's status as Steelers starter in question**\
-`Backup Justin Fields would be in line to start if Russell Wilson is unable to play in Sunday's season opener in Atlanta.`\
-https://nytimes.com/athletic/5750878/2024/09/06/russell-wilson-status-injury-week-1-steelers/
 
