@@ -1,3 +1,23 @@
+**‘The Secret Lives of Mormon Wives’ Are About to Go Public**\
+`A new Hulu series will explore a cheating scandal — and its aftermath — that rocked the world of Mormon social media influencers.`\
+https://nytimes.com/2024/09/06/style/secret-lives-mormon-wives-momtok.html
+
+**How to Handle the Delay in the Release of the FAFSA Form**\
+`The student financial aid application is expected to be ready by Dec. 1, two months later than usual. Experts offer some tips on what to do in the meantime.`\
+https://nytimes.com/2024/09/06/your-money/fafsa-2024-delay-student-aid.html
+
+**Why Do Apes Make Gestures?**\
+`Chimps and other apes have been observed making more than 80 meaningful gestures. Three theories have tried to explain why.`\
+https://nytimes.com/2024/09/06/science/chimpanzee-gestures-language.html
+
+**For the Fed, a Sign That the Job Market Is Cooling but Not Imploding**\
+`Fed officials have been watching the job market as they move toward a rate cut this month. Friday’s report contained good and bad news.`\
+https://nytimes.com/2024/09/06/business/economy/jobs-reports-federal-reserve-interest-rates.html
+
+**Chargers enter season opener vs. Raiders eager to wipe away the stench of 63-21**\
+`Nearly 50 percent of the roster has been turned over since last season. But those who were there still feel the impact of the 63-21 loss.`\
+https://nytimes.com/athletic/5749196/2024/09/06/chargers-raiders-rivalry-week-1-revenge/
+
 **For the Fed, a Sign That the Job Market is Cooling but Not Imploding**\
 `Fed officials have been watching the job market as they move toward a rate cut this month. Friday’s report contained good and bad news.`\
 https://nytimes.com/2024/09/06/business/economy/jobs-reports-federal-reserve-interest-rates.html

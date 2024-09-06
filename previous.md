@@ -1,4 +1,16 @@
-**For the Fed, a Sign That the Job Market is Cooling but Not Imploding**\
+**‘The Secret Lives of Mormon Wives’ Are About to Go Public**\
+`A new Hulu series will explore a cheating scandal — and its aftermath — that rocked the world of Mormon social media influencers.`\
+https://nytimes.com/2024/09/06/style/secret-lives-mormon-wives-momtok.html
+
+**How to Handle the Delay in the Release of the FAFSA Form**\
+`The student financial aid application is expected to be ready by Dec. 1, two months later than usual. Experts offer some tips on what to do in the meantime.`\
+https://nytimes.com/2024/09/06/your-money/fafsa-2024-delay-student-aid.html
+
+**Why Do Apes Make Gestures?**\
+`Chimps and other apes have been observed making more than 80 meaningful gestures. Three theories have tried to explain why.`\
+https://nytimes.com/2024/09/06/science/chimpanzee-gestures-language.html
+
+**For the Fed, a Sign That the Job Market Is Cooling but Not Imploding**\
 `Fed officials have been watching the job market as they move toward a rate cut this month. Friday’s report contained good and bad news.`\
 https://nytimes.com/2024/09/06/business/economy/jobs-reports-federal-reserve-interest-rates.html
 
@@ -22,19 +34,7 @@ https://nytimes.com/athletic/5749824/2024/09/06/usc-football-defense-miller-moss
 `Stockport County&#8217;s Andy Mangan is set to join Carlo Ancelotti’s coaching staff at Real Madrid.`\
 https://nytimes.com/athletic/5749781/2024/09/06/andy-mangan-real-madrid-coaching-staff/
 
-**Analyzing the Giants' Matt Chapman extension for the present and future**\
-`Chapman has a track record of good health and skills that often age well. He looks like a better free-agent gamble than most.`\
-https://nytimes.com/athletic/5747832/2024/09/06/sf-giants-matt-chapman-extension-analysis/
-
-**Hamas’s Release of Hostage Videos Inflames Divisions in Israel**\
-`The fourth recording in as many days of a hostage killed in Gaza has added to pressure on the Israeli government to reach a cease-fire deal with Hamas.`\
-https://nytimes.com/2024/09/06/world/middleeast/hamas-hostage-videos-goldberg-polin-israel.html
-
-**Has Ohio State solved its special teams problems? Brandon Inniss providing early jolt**\
-`Ohio State's more aggressive approach on returns with Brandon Inniss — and without a special teams coordinator — is already paying off.`\
-https://nytimes.com/athletic/5749775/2024/09/06/ohio-state-special-teams-brandon-inniss/
-
-**Here’s the latest on the presidential race.**\
-`By Simon J. Levien`\
-https://nytimes.com/live/2024/09/06/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+**Chargers enter season opener vs. Raiders eager to wipe away the stench of 63-21**\
+`Nearly 50 percent of the roster has been turned over since last season. But those who were there still feel the impact of the 63-21 loss.`\
+https://nytimes.com/athletic/5749196/2024/09/06/chargers-raiders-rivalry-week-1-revenge/
 
