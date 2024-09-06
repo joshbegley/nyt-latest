@@ -1,3 +1,11 @@
+**Recent college graduates are finding a tighter labor market.**\
+`Job seekers are competing for fewer openings, and hiring is sluggish.`\
+https://nytimes.com/live/2024/09/06/business/jobs-report-august-economy/jobs-report-college-graduates
+
+**Live Updates: Job Growth Expected to Rebound**\
+`Ahead of a key Federal Reserve meeting to set interest rates, economists predict a modest bounce in hiring in August from an unexpectedly sluggish July.`\
+https://nytimes.com/live/2024/09/06/business/jobs-report-august-economy
+
 **Why Niko Sigur chose Canada over Croatia: 'He’s got that savviness even though he's young'**\
 `Sigur switched his international allegiance in August and has the chance to establish himself as the future of the Canadian midfield`\
 https://nytimes.com/athletic/5749410/2024/09/06/canada-sigur-croatia-midfield-marsch/
