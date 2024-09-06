@@ -1,3 +1,11 @@
+**Ted Drewes Jr., the Frozen Custard King of St. Louis, Dies at 96**\
+`Celebrity chefs and politicians paid tribute to the man behind the extra-thick shake known as the concrete, an intrinsic part of St. Louis summers.`\
+https://nytimes.com/2024/09/06/business/ted-drewes-jr-dead.html
+
+**Steelers, TE Pat Freiermuth agree to new deal**\
+`Freiermuth had a disappointing 2023 season, but he could be set for a career year in Arthur Smith's offense.`\
+https://nytimes.com/athletic/5656811/2024/09/06/pat-freiermuth-contract-steelers/
+
 **Judge John Hodgman on Creepy Dog Names**\
 `A boyfriend is uncomfortable with naming a pet after a participant in the Soviet space program.`\
 https://nytimes.com/2024/09/06/magazine/judge-john-hodgman-on-creepy-dog-names.html
