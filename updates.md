@@ -1,3 +1,11 @@
+**Corrections: Sept. 6, 2024**\
+`Corrections that appeared in print on Friday, Sept. 6, 2024.`\
+https://nytimes.com/2024/09/05/pageoneplus/corrections-sept-6-2024.html
+
+**Quote of the Day: It’s the Hottest Neighborhood in All of Los Angeles. (Bring Water.)**\
+`Quotation of the Day for Friday, September 6, 2024`\
+https://nytimes.com/2024/09/05/pageoneplus/quote-of-the-day-its-the-hottest-neighborhood-in-all-of-los-angeles-bring-water.html
+
 **7-Eleven Rejects Takeover Bid From Big Canadian Chain**\
 `Japan’s Seven & i Holdings, the operator of 7-Eleven, has rebuffed a buyout offer that would have been the largest foreign-led acquisition of a Japanese company.`\
 https://nytimes.com/2024/09/05/business/7-eleven-rejects-couch-tarde-bid.html

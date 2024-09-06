@@ -1,3 +1,11 @@
+**Corrections: Sept. 6, 2024**\
+`Corrections that appeared in print on Friday, Sept. 6, 2024.`\
+https://nytimes.com/2024/09/05/pageoneplus/corrections-sept-6-2024.html
+
+**Quote of the Day: It’s the Hottest Neighborhood in All of Los Angeles. (Bring Water.)**\
+`Quotation of the Day for Friday, September 6, 2024`\
+https://nytimes.com/2024/09/05/pageoneplus/quote-of-the-day-its-the-hottest-neighborhood-in-all-of-los-angeles-bring-water.html
+
 **House settlement on hold over NCAA-proposed NIL restrictions**\
 `The NCAA's desired restrictions on third-party NIL payments was a point of contention, casting uncertainty on the settlement's future.`\
 https://nytimes.com/athletic/5749342/2024/09/05/house-ncaa-settlement-college-sports-nil-boosters/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/05/climate/2024-hottest-summer-on-record.html
 **Judge Rejects Key Part of N.C.A.A. Settlement of Antitrust Suit With Athletes**\
 `The concern over restrictions on some payments raises uncertainty on whether a landmark agreement on compensating athletes can be reached and approved.`\
 https://nytimes.com/2024/09/05/us/ncaa-antitrust-settlement-athletes-pay.html
-
-**Father of Accused Georgia Shooter Charged With Two Counts of Second-Degree Murder**\
-`He was also charged with four counts of involuntary manslaughter and eight counts of cruelty to children, all “directly connected with the actions of his son and allowing him to possess a weapon,” an official said.`\
-https://nytimes.com/2024/09/05/us/georgia-school-shooting-colt-gray-father.html
-
-**Aryna Sabalenka beats Emma Navarro to reach second U.S. Open final in a row**\
-`The No. 2 seed produced a performance of power and resolve in a raucous atmosphere.`\
-https://nytimes.com/athletic/5748947/2024/09/05/navarro-sabalenka-us-open-semifinal-result/
 
