@@ -7,7 +7,7 @@ https://nytimes.com/live/2024/09/03/opinion/thepoint/merchan-trump-delayed-sente
 https://nytimes.com/2024/09/06/us/politics/trump-news-conference-allegations.html
 
 **Lawsuit filed against Chelsea by agent cleared of sending threatening email to Granovskaia**\
-`The football agent cleared of sending former Chelsea director Marina Granovskaia a threatening email has filed a lawsuit against the Premier League club.`\
+`The football agent cleared of sending former Chelsea director Marina Granovskaia a threatening email says he is filing a lawsuit against the Premier League club.`\
 https://nytimes.com/athletic/5751001/2024/09/06/lawsuit-filed-against-chelsea-by-agent-cleared-of-sending-threatening-email-to-marina-granovskaia/
 
 **Aysenur Eygi, the American activist killed in the West Bank, had been a campus organizer.**\
