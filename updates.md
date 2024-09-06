@@ -1,3 +1,7 @@
+**Housing in Ireland Is Broken**\
+`Are the thousands of empty properties scattered across the country any kind of solution?`\
+https://nytimes.com/2024/09/06/opinion/ireland-housing-immigration.html
+
 **China Stops Foreign Adoptions, Ending a Complicated Chapter**\
 `Beijing said the move was in line with international trends, as more countries have limited such adoptions.`\
 https://nytimes.com/2024/09/06/world/asia/china-foreign-adoptions-ban.html
