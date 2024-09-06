@@ -1,3 +1,7 @@
+**One Student Kills Another in Dispute at Maryland High School, Authorities Say**\
+`In another case of deadly gunfire at a school, the victim, a 15-year-old student, was airlifted to a trauma center, where he later died. A 16-year-old suspect was in custody on Friday.`\
+https://nytimes.com/2024/09/06/us/joppatowne-maryland-school-shooting.html
+
 **With Her Father Accused of Raping Her Mother, a Daughter Talks of Torment**\
 `In court, the woman said she was traumatized not only by what prosecutors said happened to her mother but also by fear that she herself might have been abused.`\
 https://nytimes.com/2024/09/06/france-rape-trial-caroline-darian-testimony.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/06/us/politics/trump-news-conference-allegations.htm
 **Lawsuit filed against Chelsea by agent cleared of sending threatening email to Granovskaia**\
 `The football agent cleared of sending former Chelsea director Marina Granovskaia a threatening email says he is filing a lawsuit against the Premier League club.`\
 https://nytimes.com/athletic/5751001/2024/09/06/lawsuit-filed-against-chelsea-by-agent-cleared-of-sending-threatening-email-to-marina-granovskaia/
-
-**Aysenur Eygi, the American activist killed in the West Bank, had been a campus organizer.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/09/06/world/israel-hamas-gaza-war/aysenur-eygi-the-american-activist-killed-in-the-west-bank-had-been-a-campus-organizer
 
