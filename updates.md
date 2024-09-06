@@ -1,3 +1,11 @@
+**One Student Kills Another in Dispute at Maryland High School, Authorities Say**\
+`In another case of deadly gunfire at a school, the victim, a 15-year-old student, was airlifted to a trauma center, where he later died. A 16-year-old suspect was in custody on Friday.`\
+https://nytimes.com/2024/09/06/us/joppatowne-maryland-school-shooting.html
+
+**Clark Halstead, Real Estate Broker Who Broke the Mold, Dies at 83**\
+`The face of his firm, he opened storefront offices to chase undervalued properties in New York City and emblazoned a London cab with his name.`\
+https://nytimes.com/2024/09/06/nyregion/clark-halstead-dead.html
+
 **With Her Father Accused of Raping Her Mother, a Daughter Talks of Torment**\
 `In court, the woman said she was traumatized not only by what prosecutors said happened to her mother but also by fear that she herself might have been abused.`\
 https://nytimes.com/2024/09/06/france-rape-trial-caroline-darian-testimony.html
