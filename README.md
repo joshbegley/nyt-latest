@@ -1,3 +1,11 @@
+**4 of the Best Books About Politics**\
+`The last few months have felt like a political thriller, so we asked you to tell us about your favorite books about politics. Here are a few of those books.`\
+https://nytimes.com/video/us/politics/100000009673004/4-of-the-best-books-about-politics.html
+
+**G.O.P. Candidates Distort Records on Women, Seeking to Blunt a Liability**\
+`Congressional Republicans in races around the country are seeking to appeal to women by pledging support for I.V.F. and abortion access, even if they have opposed them in the past.`\
+https://nytimes.com/2024/09/06/us/politics/gop-candidates-women-issues.html
+
 **UNC's Max Johnson to return after season-ending injury: Reports**\
 `Johnson says he feels he has “a lot of football left in me, and know I will be back out there next year.”`\
 https://nytimes.com/athletic/5750765/2024/09/06/max-johnson-unc-injury-return/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/06/well/mind/vyvanse-dea-increase.html
 **A Victory Comes at Last for the World’s Worst Soccer Team**\
 `San Marino scored its first competitive win. “To beat Liechtenstein has been an incredible joy,” one player said.`\
 https://nytimes.com/2024/09/06/sports/soccer/san-marino-soccer-first-win.html
-
-**Last of 3 Inmates Sentenced in Beating Death of Whitey Bulger Gets 25 Years**\
-`Fotios Geas, who was already serving a life sentence, bludgeoned the Boston gangster to death in his cell in 2018, prosecutors said.`\
-https://nytimes.com/2024/09/06/us/whitey-bulger-fotios-geas-sentencing.html
-
-**Big 12 unveils tiebreaker rules to determine title game teams**\
-`The tiebreakers are similar to those announced in recent weeks by the SEC and Big Ten.`\
-https://nytimes.com/athletic/5750705/2024/09/06/big-12-tiebreaker-prodecures/
 
