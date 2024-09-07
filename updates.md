@@ -1,3 +1,11 @@
+**Packers' season hinges on health of Jordan Love's left leg: Schneidman**\
+`Love's left leg bent awkwardly under defensive lineman Jalen Carter on the third-to-last play of the season opener in Brazil.`\
+https://nytimes.com/athletic/5751492/2024/09/07/packers-jordan-love-leg-injury/
+
+**Typhoon Yagi Approaches Vietnam After Pummeling Southern China**\
+`The storm is on track to become the most powerful to make landfall in northern Vietnam, where one person has died. Two were killed on the Chinese island of Hainan.`\
+https://nytimes.com/2024/09/07/world/asia/typhoon-yagi-vietnam-china.html
+
 **Taylor Fritz beats good friend Frances Tiafoe in five sets to reach U.S. Open final**\
 `He has the chance to become the first major winner from the U.S. for 21 years.`\
 https://nytimes.com/athletic/5750746/2024/09/07/fritz-tiafoe-us-open-semifinal-result/
