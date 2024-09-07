@@ -1,3 +1,7 @@
+**Salmonella Outbreak Prompts Egg Recall by Wisconsin Farm**\
+`Officials said 65 people in nine states have been infected in the outbreak, which has been traced to an egg farm. No deaths have been reported.`\
+https://nytimes.com/2024/09/07/us/egg-recall-salmonella-outbreak-wisconsin.html
+
 **Cubs offense has quickly faded along with their October hopes after a hot August**\
 `The Cubs have been shut out in three of their past four games and are 1-4 to start a six-game homestand.`\
 https://nytimes.com/athletic/5752284/2024/09/07/chicago-cubs-offense-postseason-hopes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5752281/2024/09/07/cam-rising-hand-injury-utah/
 **Chargers WR DJ Chark (hip) to start season on IR**\
 `The earliest Chark can return to game action is Week 6 at the Denver Broncos. The Chargers have a bye in Week 5.`\
 https://nytimes.com/athletic/5752215/2024/09/07/dj-chark-chargers-injured-reserve/
-
-**Georgia football takeaways: Bulldogs get the easy win they needed before SEC play begins**\
-`After the throttling of Clemson, Saturday's game served a different purpose: Georgia got the reps, and Tennessee Tech got the check.`\
-https://nytimes.com/athletic/5752216/2024/09/07/georgia-football-uga-takeaways/
 
