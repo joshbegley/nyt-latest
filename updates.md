@@ -1,3 +1,7 @@
+**Georgia football takeaways: Bulldogs get the easy win they needed before SEC play begins**\
+`After the throttling of Clemson, Saturday's game served a different purpose: Georgia got the reps, and Tennessee Tech got the check.`\
+https://nytimes.com/athletic/5752216/2024/09/07/georgia-football-uga-takeaways/
+
 **College Football Playoff 2024 projections: Miami in, LSU out of our 12-team bracket**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/09/07/college-football-playoff-projections-odds/
