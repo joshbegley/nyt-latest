@@ -1,3 +1,7 @@
+**What I’m hearing about Trent Williams holdout drama, Justin Fields vs. Russell Wilson, tush push under fire**\
+`Plus, the latest on Haason Reddick, the illegal formation flag frenzy, a unique approach for Levis, a hole in Miami’s defense and more.`\
+https://nytimes.com/athletic/5751324/2024/09/07/week-1-notes-trent-williams-holdout-contract-russell-wilson-injury-new-tush-push-rule/
+
 **Night of the Supermodels in New York, Guest Appearance by Rihanna**\
 `What happened when Pieter Mulier brought the Alaïa show to the Guggenheim.`\
 https://nytimes.com/2024/09/07/style/alaia-rihanna-guggengheim-fashion.html
