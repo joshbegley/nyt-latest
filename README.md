@@ -1,40 +1,40 @@
-**How Jesse Marsch looked to emulate the USMNT to coax more swagger from Canada**\
-`The national team's American coach faces the USMNT today and wants his players to take on more of the qualities demonstrated by their rivals`\
-https://nytimes.com/athletic/5751149/2024/09/07/marsch-canada-usmnt/
+**The Great American Family Car Ride**\
+`Three bridges, one toll.`\
+https://nytimes.com/2024/09/07/style/the-great-american-family-car-ride.html
 
-**As Jessica Pegula faces down her first Grand Slam final, Kim Clijsters has some advice**\
-`As Jessica Pegula heads into her first Grand Slam final, the Belgian legend knows a little about what to do there.`\
-https://nytimes.com/athletic/5751187/2024/09/07/pegula-us-open-final-clijsters-sabalenka-preview/
+**‘Grounded’: How a New Opera Changed on Its Way to the Met**\
+`Jeanine Tesori and George Brant discuss the first time they heard “Grounded,” and how they instantly knew what they would change for the Met.`\
+https://nytimes.com/2024/09/07/arts/music/grounded-jeanine-tesori-george-brant-met-opera.html
 
-**U.S. Open semifinals recap: The strangest point of the tournament so far**\
-`On the twelfth day of the tournament, the strangest point so far, and a Paralympic shock`\
-https://nytimes.com/athletic/5751173/2024/09/07/us-open-recap-sinner-draper-point-ostapenko-kichenok/
+**Elizabeth Strout Gets the Gang Back Together for a Murder Mystery**\
+`In “Tell Me Everything,” Bob Burgess deepens his emotional connection with Lucy Barton as he defends a local man accused of killing his mother.`\
+https://nytimes.com/2024/09/07/books/review/elizabeth-strout-tell-me-everything.html
 
-**Saquon Barkley's 3 TDs power Eagles to 'sloppy' win over Packers in Brazil**\
-`The Eagles haven't wielded a weapon quite like Barkley since LeSean McCoy.`\
-https://nytimes.com/athletic/5751243/2024/09/07/eagles-packers-saquon-barkley-brazil/
+**In California, Controlled Fires Can Save Homes. Why Aren’t More Happening?**\
+`Experts say these intentional burns reduce the risk of wildfires and more should be done. But real barriers remain.`\
+https://nytimes.com/2024/09/07/us/california-controlled-fire.html
 
-**Giants manager Bob Melvin defends his trio of hitting coaches: 'They've done a fantastic job'**\
-`The Giants are among the worst scoring teams during the first three innings, but Melvin says it's not from lack of preparation.`\
-https://nytimes.com/athletic/5751537/2024/09/07/giants-hitting-coaches-early-innings/
+**When a Smart House Turns Evil**\
+`In Mason Coile’s new horror novel, “William,” an intelligent robot begins to lead its feckless creator to terrible places in the name of “freedom.”`\
+https://nytimes.com/2024/09/07/books/review/william-mason-coile.html
 
-**Street Artist Documents War in Ukraine, One Stark Mural at a Time**\
-`Using ruins as his canvas, Gamlet Zinkivskyi has captured life in wartime Ukraine in dozens of grim, gripping and harshly beautiful paintings. “Broken, but invincible,” read one captioned work.`\
-https://nytimes.com/2024/09/07/world/europe/kharkiv-ukraine-street-art.html
+**Nicole Eisenman at the Tipping Point**\
+`As the artist prepares for a major exhibition in Madison Square Park, Eisenman takes stock of the winding path to fame. What is gained and what is lost when your art is political?`\
+https://nytimes.com/2024/09/07/arts/design/nicole-eisenman-fixed-crane.html
 
-**Tony Blair’s Advice to Rookie Leaders: Tend to Your Legacy Before It’s Too Late**\
-`In an interview, the former British prime minister discussed his new book ‘On Leadership,’ the dysfunction of U.S. politics, and deflected questions about Elon Musk’s influence.`\
-https://nytimes.com/2024/09/07/world/europe/tony-blair-on-leadership-interview-legacy.html
+**Broken Again. A National Advocate for Drug Recovery Relapses.**\
+`William Cope Moyers told the world he had it all figured out after beating his addiction to crack cocaine. But then a dentist gave him an opioid pain killer.`\
+https://nytimes.com/2024/09/07/health/addiction-opiates-moyers.html
 
-**Queens Is Abuzz Over Two Americans in the U.S. Open Finals**\
-`For the first time in more than two decades, an American man and an American woman will play in the U.S. Open singles finals.`\
-https://nytimes.com/2024/09/07/nyregion/us-open-tiafoe-fritz-pegula.html
+**Mushroom-Laced Candy Recall Highlights F.D.A.’s Limited Safety Role**\
+`More than 150 people were sickened from products sold at smoke and vape shops, providing evidence of the lax regulation of new food items.`\
+https://nytimes.com/2024/09/07/health/fda-mushrooms-psychedelic-side-effects.html
 
-**F1’s Carlos Sainz embraces final races as a Ferrari driver: "No one can take that away"**\
-`In an exclusive interview ahead of his final Italian GP with Ferrari, Sainz took a look back at his time in red and his Williams move.`\
-https://nytimes.com/athletic/5750603/2024/09/07/f1-carlos-sainz-ferrari-driver-interview-italian-gp/
+**What Is That Song in ‘Beetlejuice Beetlejuice’?**\
+`Meet the new “Day-O”: Richard Harris’s 1968 psychedelic pop hit “MacArthur Park,” which Donna Summer remade as a disco anthem.`\
+https://nytimes.com/2024/09/07/movies/macarthur-park-song-beetlejuice-beetlejuice.html
 
-**At the U.S. Open, Hourly-Wage Ushers Corral the Well-Heeled Crowds**\
-`Since fans often must wait until breaks between games to enter, employees in blue shirts have the dicey task of holding them back for several excruciating minutes until play is paused.`\
-https://nytimes.com/2024/09/07/nyregion/us-open-ushers.html
+**In Threatened Island Nation, Pope Hears Plea for Climate Action**\
+`Pope Francis is visiting Papua New Guinea, which has been exploited for its natural resources and is imperiled by rising sea levels.`\
+https://nytimes.com/2024/09/07/world/asia/pope-francis-papua-new-guinea-climate-change.html
 
