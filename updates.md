@@ -1,3 +1,7 @@
+**Texas Sues for Access to Records of Women Seeking Out-of-State Abortions**\
+`The lawsuit takes aim at federal privacy rules, including one enacted this year that Ken Paxton, the state attorney general, called “a backdoor attempt at weakening Texas’ laws.”`\
+https://nytimes.com/2024/09/06/us/texas-abortion-medical-records.html
+
 **Georgia Suspect’s Family Faced Eviction and Other Turmoil Before Shooting**\
 `Court and law enforcement records lay out the turbulence in the teenager’s family in recent years.`\
 https://nytimes.com/2024/09/06/us/georgia-school-shooter-family-problems.html
