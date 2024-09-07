@@ -1,3 +1,7 @@
+**Can Trevor Story's return be a lesson for the Red Sox in beating longshot odds?**\
+`Cora hopes Story's imminent return to the Red Sox's active roster will serve as inspiration for a club facing an uphill postseason climb.`\
+https://nytimes.com/athletic/5751339/2024/09/06/red-sox-trevor-story-return/
+
 **Taylor Fritz beats good friend Frances Tiafoe in five sets to reach U.S. Open final**\
 `He has the chance to become the first major winner from the U.S. for 21 years.`\
 https://nytimes.com/athletic/5750746/2024/09/06/fritz-tiafoe-us-open-semifinal-result/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/06/nyregion/legionnaires-disease-outbreak-albany.htm
 **California Can Ban Guns in Parks and Bars, but Not Hospitals, Court Says**\
 `California and Hawaii banned guns from various public venues. A federal appeals court dusted off the history books to help determine where to allow prohibitions.`\
 https://nytimes.com/2024/09/06/us/california-gun-laws-court.html
-
-**Georgia Tests a Novel Tactic in School Shootings: Putting Parents on Trial**\
-`After four people were killed at Apalachee High School, prosecutors charged a student and his father, who officials say had given the boy the gun as a gift.`\
-https://nytimes.com/2024/09/06/us/georgia-school-shooting-parents-trial.html
 
