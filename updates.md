@@ -1,3 +1,7 @@
+**Lloyd Ziff, Visionary Photographer and Art Director, Dies at 81**\
+`He designed some of the most visually exciting magazines of the 1970s and ’80s. But his real love, and eventually his focus, was photography.`\
+https://nytimes.com/2024/09/07/arts/lloyd-ziff-dead.html
+
 **Packers' Love to miss weeks with MCL sprain**\
 `Jordan Love sustained the injury with five seconds left in the game as he was under duress while trying to throw a Hail Mary.`\
 https://nytimes.com/athletic/5752157/2024/09/07/jordan-love-packers-knee-injury-mcl/
