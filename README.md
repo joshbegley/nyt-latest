@@ -1,3 +1,7 @@
+**How Jesse Marsch looked to emulate the USMNT to coax more swagger from Canada**\
+`The national team's American coach faces the USMNT today and wants his players to take on more of the qualities demonstrated by their rivals`\
+https://nytimes.com/athletic/5751149/2024/09/07/marsch-canada-usmnt/
+
 **As Jessica Pegula faces down her first Grand Slam final, Kim Clijsters has some advice**\
 `As Jessica Pegula heads into her first Grand Slam final, the Belgian legend knows a little about what to do there.`\
 https://nytimes.com/athletic/5751187/2024/09/07/pegula-us-open-final-clijsters-sabalenka-preview/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5750603/2024/09/07/f1-carlos-sainz-ferrari-driver-i
 **At the U.S. Open, Hourly-Wage Ushers Corral the Well-Heeled Crowds**\
 `Since fans often must wait until breaks between games to enter, employees in blue shirts have the dicey task of holding them back for several excruciating minutes until play is paused.`\
 https://nytimes.com/2024/09/07/nyregion/us-open-ushers.html
-
-**How a Celebrity Hairstylist Spends His Sundays**\
-`Jerome Lordet grabs a scooter to get around the city and make house calls for his famous clients.`\
-https://nytimes.com/2024/09/07/nyregion/how-a-celebrity-hairstylist-spends-his-sundays.html
 
