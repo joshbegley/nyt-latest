@@ -1,3 +1,7 @@
+**Lloyd Ziff, Visionary Photographer and Art Director, Dies at 81**\
+`He designed some of the most visually exciting magazines of the 1970s and ’80s. But his real love, and eventually his focus, was photography.`\
+https://nytimes.com/2024/09/07/arts/lloyd-ziff-dead.html
+
 **Packers' Love to miss weeks with MCL sprain**\
 `Jordan Love sustained the injury with five seconds left in the game as he was under duress while trying to throw a Hail Mary.`\
 https://nytimes.com/athletic/5752157/2024/09/07/jordan-love-packers-knee-injury-mcl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5751878/2024/09/07/penn-state-defense-bowling-green
 **Harris Releases Ad Targeting Trump for Helping Overturn Roe v. Wade**\
 `The ad, which will run in several battleground states, comes as a growing share of voters say that abortion is their top issue.`\
 https://nytimes.com/2024/09/07/us/politics/harris-trump-ad-abortion.html
-
-**Mets' McNeil (wrist) to miss rest of season**\
-`Jeff McNeil sustained a wrist fracture when he was hit on his wrist guard in Friday night's game against the Reds.`\
-https://nytimes.com/athletic/5752009/2024/09/07/jeff-mcneil-injury-out-season-mets/
 
