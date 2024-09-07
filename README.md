@@ -1,3 +1,11 @@
+**Are England really entering a new era?**\
+`The real test of whether Carsley's first game in charge is a fresh start or not will come over the next few months`\
+https://nytimes.com/athletic/5747362/2024/09/07/england-lee-carsley-manager-new-era/
+
+**Why Osimhen ended up moving to Galatasaray after Chelsea, PSG and Saudi interest**\
+`Osimhen has been highly-coveted yet ended the summer transfer window with a loan move to Galatasaray in the 10th-ranked Turkish league`\
+https://nytimes.com/athletic/5747630/2024/09/07/victor-osimhen-transfer-galatasaray-chelsea-psg/
+
 **Darwin Blanch: The American tennis phenom nowhere to be seen at the U.S. Open**\
 `The 16-year-old American has played two ATP singles matches and won seven games in total. But that's all part of the plan.`\
 https://nytimes.com/athletic/5508534/2024/09/07/darwin-blanch-tennis-american-donald-young/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5751375/2024/09/06/twins-royce-lewis-optimistic/
 **Can Trevor Story's return be a lesson for the Red Sox in beating longshot odds?**\
 `Cora hopes Story's imminent return to the Red Sox's active roster will serve as inspiration for a club facing an uphill postseason climb.`\
 https://nytimes.com/athletic/5751339/2024/09/06/red-sox-trevor-story-return/
-
-**Taylor Fritz beats good friend Frances Tiafoe in five sets to reach U.S. Open final**\
-`He has the chance to become the first major winner from the U.S. for 21 years.`\
-https://nytimes.com/athletic/5750746/2024/09/06/fritz-tiafoe-us-open-semifinal-result/
-
-**Slick field conditions hamper Eagles, Packers in Brazil**\
-`Players from both teams struggled to find consistent footing on the soccer field, which has hosted matches for the World Cup and Olympics.`\
-https://nytimes.com/athletic/5751302/2024/09/06/packers-eagles-field-conditions-nfl-brazil/
 
