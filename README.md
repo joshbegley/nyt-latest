@@ -1,3 +1,7 @@
+**Italy lean on Premier League contingent to end Luciano Spalletti's cruel summer**\
+`The Azzurri secured a first win in France for 70 years with Sandro Tonali, Riccardo Calafiori and Destiny Udogie all playing their part`\
+https://nytimes.com/athletic/5751008/2024/09/07/italy-tonali-calafiori-udogie-spalletti-france/
+
 **Packers' season hinges on health of Jordan Love's left leg: Schneidman**\
 `Love's left leg bent awkwardly under defensive lineman Jalen Carter on the third-to-last play of the season opener in Brazil.`\
 https://nytimes.com/athletic/5751492/2024/09/07/packers-jordan-love-leg-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5751398/2024/09/07/braves-win-blue-jays-jarred-kele
 **How Birmingham shattered transfer records - and left English football in shock**\
 `A summer outlay of up to £25m is unheard of in League One but this is just the start of the club's ambitious plan `\
 https://nytimes.com/athletic/5743749/2024/09/07/birmingham-city-transfer-window-spend/
-
-**Taylor Fritz beats good friend Frances Tiafoe in five sets to reach U.S. Open final**\
-`He has the chance to become the first major winner from the U.S. for 21 years.`\
-https://nytimes.com/athletic/5750746/2024/09/07/fritz-tiafoe-us-open-semifinal-result/
 
