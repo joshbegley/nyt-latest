@@ -4,7 +4,7 @@ https://nytimes.com/athletic/5752373/2024/09/07/iowa-iowa-state-cy-hawk-comeback
 
 **‘Numerous’ People Shot on Kentucky Highway, Officials Say**\
 `How many people were shot and what led up to the shooting on I-75 near London, Ky., was not immediately clear.`\
-https://nytimes.com/2024/09/07/us/shooting-kentucky-exit-49.html
+https://nytimes.com/2024/09/07/us/shooting-kentucky-highway.html
 
 **Meek: Michigan's new era begins with Texas razing Big House**\
 `Michigan fans should console themselves thinking about their championship trophy. But that will only last for so long.`\
