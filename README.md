@@ -1,3 +1,7 @@
+**Jaire Alexander's rough night, Josh Myers' cramps and more Packers observations**\
+`The Packers lost to the Eagles in Brazil, 34-29, and plenty went wrong (with less right) in Green Bay's sloppy season opener.`\
+https://nytimes.com/athletic/5751571/2024/09/07/packers-brazil-jaire-alexander-josh-meyers/
+
 **None of Trump’s Economic ‘Solutions’ Hold Any Water**\
 `Trump has only two answers to every problem: tariffs and mass deportation.`\
 https://nytimes.com/2024/09/07/opinion/trump-economy-deportation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5746117/2024/09/07/los-angeles-rams-season-news-pre
 **Everything a Carolina Panthers fan needs to know for Week 1**\
 `An NFL season is 18 weeks of amazing athleticism and great theater, and it’s my privilege to try to capture it.`\
 https://nytimes.com/athletic/5746082/2024/09/07/carolina-panthers-season-news-preview-2024/
-
-**Everything a Dallas Cowboys fan needs to know for Week 1**\
-`We’re going to have fun tracking, informing and explaining things along the way and we sincerely appreciate you joining us!`\
-https://nytimes.com/athletic/5746018/2024/09/07/dallas-cowboys-season-news-preview-2024/
 
