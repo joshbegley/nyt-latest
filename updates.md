@@ -1,3 +1,7 @@
+**Night of the Supermodels in New York, Guest Appearance by Rihanna**\
+`What happened when Pieter Mulier brought the Alaïa show to the Guggenheim.`\
+https://nytimes.com/2024/09/07/style/alaia-rihanna-guggengheim-fashion.html
+
 **Everything a Los Angeles Rams fan needs to know for Week 1**\
 `We know by now that every Rams season can vacillate from the strange to the extraordinary — and it's always interesting.`\
 https://nytimes.com/athletic/5746117/2024/09/07/los-angeles-rams-season-news-preview-2024/
