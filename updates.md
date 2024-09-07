@@ -1,3 +1,7 @@
+**Georgia Suspect’s Family Faced Eviction and Other Turmoil Before Shooting**\
+`Court and law enforcement records lay out the turbulence in the teenager’s family in recent years.`\
+https://nytimes.com/2024/09/06/us/georgia-school-shooter-family-problems.html
+
 **Trump Urges Police Officers to Watch for Voter Fraud**\
 `Speaking to the national board of the Fraternal Order of Police, former President Donald J. Trump made an appeal that could run afoul of state laws and prompt accusations of voter intimidation.`\
 https://nytimes.com/2024/09/06/us/politics/trump-police-voter-fraud.html
