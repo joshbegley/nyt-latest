@@ -34,7 +34,7 @@ https://nytimes.com/interactive/2024/09/07/us/politics/harris-trump-rally-crowds
 `Federal prosecutors say Russia paid an American media company to push pro-Kremlin messages from social media influencers including Benny Johnson, Tim Pool and Dave Rubin.`\
 https://nytimes.com/2024/09/07/business/media/russia-tenet-media-tim-pool.html
 
-**Heritage Foundation Spreads Deceptive Videos About Noncitizen Voters**\
-`The right-wing think tank has been pushing misinformation about voting into social media feeds. The Georgia secretary of state’s office called one video “a stunt.”`\
-https://nytimes.com/2024/09/07/us/politics/heritage-foundation-2024-campaign-immigration.html
+**The Pivotal Decision That Led to a Resurgence of Polio**\
+`In 2016, the global health authorities removed a type of poliovirus from the oral vaccine. The virus caused a growing number of outbreaks and has now arrived in Gaza.`\
+https://nytimes.com/2024/09/07/health/polio-vaccine-gaza-children.html
 
