@@ -1,3 +1,7 @@
+**Andre Agassi and the revelations of a tennis Sphinx**\
+`In the back of a car stuck in New York City traffic, the American legend explains it all.`\
+https://nytimes.com/athletic/5751220/2024/09/07/andre-agassi/
+
 **Ukrainian Forces Block Russian Advance on a Key Eastern Town**\
 `Russia’s drive toward Pokrovsk has stalled along one part of the frontline, but its troops continue to advance in other parts of eastern Ukraine, and its long-range aerial attacks continue.`\
 https://nytimes.com/2024/09/07/world/europe/ukraine-pokrovsk-russia-kyiv.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5751324/2024/09/07/week-1-notes-trent-williams-hold
 **Night of the Supermodels in New York, Guest Appearance by Rihanna**\
 `What happened when Pieter Mulier brought the Alaïa show to the Guggenheim.`\
 https://nytimes.com/2024/09/07/style/alaia-rihanna-guggengheim-fashion.html
-
-**Everything a Los Angeles Rams fan needs to know for Week 1**\
-`We know by now that every Rams season can vacillate from the strange to the extraordinary — and it's always interesting.`\
-https://nytimes.com/athletic/5746117/2024/09/07/los-angeles-rams-season-news-preview-2024/
 
