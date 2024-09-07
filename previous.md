@@ -1,3 +1,11 @@
+**NIU upsets Notre Dame despite controversial fourth-down call**\
+`NIU upset Notre Dame 16-14 to earn its highest-ranked opponent beaten in program history.`\
+https://nytimes.com/athletic/5752384/2024/09/07/northern-illinois-notre-dame-college-football-controversial-call/
+
+**Trump Lays Out Vision for Bending the Federal Government to His Will**\
+`In Wisconsin, former President Donald J. Trump called for eliminating the Department of Education and said he would work with Robert F. Kennedy Jr., a vaccine skeptic, on health issues.`\
+https://nytimes.com/2024/09/07/us/politics/trump-rally-wisconsin.html
+
 **Iowa State stuns Iowa with epic Cy-Hawk rally: What it means for both teams**\
 `When it mattered most, Iowa State came through to snag the Cy-Hawk Trophy in Iowa City for the second consecutive trip.`\
 https://nytimes.com/athletic/5752373/2024/09/07/iowa-iowa-state-cy-hawk-comeback/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/07/us/egg-recall-salmonella-outbreak-wisconsin.html
 **Game, Set, Match: Aryna Sabalenka beats Jessica Pegula to win U.S. Open**\
 `The Belarusian recovered from last year's final defeat to Coco Gauff to win in straight sets`\
 https://nytimes.com/athletic/5752164/2024/09/07/sabalenka-pegula-us-open-final-result-analysis/
-
-**Cubs offense has quickly faded along with their October hopes after a hot August**\
-`The Cubs have been shut out in three of their past four games and are 1-4 to start a six-game homestand.`\
-https://nytimes.com/athletic/5752284/2024/09/07/chicago-cubs-offense-postseason-hopes/
-
-**Mr. Greedy, Father to Many African Penguins at Maryland Zoo, Dies at 33**\
-`An African penguin who left many offspring in his long life, he belonged to the largest colony of the aquatic bird species in North America, according to the zoo.`\
-https://nytimes.com/2024/09/07/us/greedy-penguin-dies-maryland.html
 

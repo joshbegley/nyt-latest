@@ -1,3 +1,11 @@
+**NIU upsets Notre Dame despite controversial fourth-down call**\
+`NIU upset Notre Dame 16-14 to earn its highest-ranked opponent beaten in program history.`\
+https://nytimes.com/athletic/5752384/2024/09/07/northern-illinois-notre-dame-college-football-controversial-call/
+
+**Trump Lays Out Vision for Bending the Federal Government to His Will**\
+`In Wisconsin, former President Donald J. Trump called for eliminating the Department of Education and said he would work with Robert F. Kennedy Jr., a vaccine skeptic, on health issues.`\
+https://nytimes.com/2024/09/07/us/politics/trump-rally-wisconsin.html
+
 **‘Numerous’ People Shot on Kentucky Highway, Officials Say**\
 `How many people were shot and what led up to the shooting on I-75 near London, Ky., was not immediately clear.`\
 https://nytimes.com/2024/09/07/us/shooting-kentucky-highway.html
