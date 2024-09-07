@@ -1,5 +1,9 @@
+**Ron Yeats, legendary captain of Liverpool, dies aged 86**\
+`Ron Yeats, a legendary captain of Liverpool, has died aged 86.`\
+https://nytimes.com/athletic/5751635/2024/09/07/ron-yeats-death-liverpool/
+
 **Israel Strikes School-Turned-Shelter in Series of Attacks in Gaza**\
-`Israel said it had launched a “precision strike” against Hamas militants operating from a school compound in northern Gaza. Local medics said several people sheltering in tents there were killed.`\
+`Israel said it had launched a “precision strike” against Hamas militants operating from a school compound in northern Gaza. Local medics said several people sheltering there were killed.`\
 https://nytimes.com/2024/09/07/world/middleeast/israel-gaza-hamas-war.html
 
 **The U.S. Open Concludes**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5751247/2024/09/07/iran-morteza-mehrzad-paralympics
 **To start or sit a rookie QB? That's the question coaches, analysts keep debating**\
 `Should a rookie QB start or sit in Year 1? We asked coaches and former players and got a mix of answers. `\
 https://nytimes.com/athletic/5740520/2024/09/07/rookie-quarterbacks-start-sit-jayden-daniels-caleb-williams/
-
-**The Connections Companion No. 455**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 8, 2024.`\
-https://nytimes.com/2024/09/07/crosswords/connections-companion-455.html
 

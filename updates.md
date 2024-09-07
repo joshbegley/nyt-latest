@@ -1,3 +1,11 @@
+**Ron Yeats, legendary captain of Liverpool, dies aged 86**\
+`Ron Yeats, a legendary captain of Liverpool, has died aged 86.`\
+https://nytimes.com/athletic/5751635/2024/09/07/ron-yeats-death-liverpool/
+
+**Israel Strikes School-Turned-Shelter in Series of Attacks in Gaza**\
+`Israel said it had launched a “precision strike” against Hamas militants operating from a school compound in northern Gaza. Local medics said several people sheltering there were killed.`\
+https://nytimes.com/2024/09/07/world/middleeast/israel-gaza-hamas-war.html
+
 **Israel Strikes School-Turned-Shelter in Series of Attacks in Gaza**\
 `Israel said it had launched a “precision strike” against Hamas militants operating from a school compound in northern Gaza. Local medics said several people sheltering in tents there were killed.`\
 https://nytimes.com/2024/09/07/world/middleeast/israel-gaza-hamas-war.html
