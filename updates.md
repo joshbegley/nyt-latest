@@ -1,3 +1,7 @@
+**Court Says No to Guns in Parks and Bars. Banks and Hospitals? Yes.**\
+`California and Hawaii banned guns from various public venues. A federal appeals court dusted off the history books to help determine where to allow prohibitions.`\
+https://nytimes.com/2024/09/06/us/california-gun-laws-court.html
+
 **Georgia Tests a Novel Tactic in School Shootings: Putting Parents on Trial**\
 `After four people were killed at Apalachee High School, prosecutors charged a student and his father, who officials say had given the boy the gun as a gift.`\
 https://nytimes.com/2024/09/06/us/georgia-school-shooting-parents-trial.html
