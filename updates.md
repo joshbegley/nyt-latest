@@ -1,3 +1,7 @@
+**Italy lean on Premier League contingent to end Luciano Spalletti's cruel summer**\
+`The Azzurri secured a first win in France for 70 years with Sandro Tonali, Riccardo Calafiori and Destiny Udogie all playing their part`\
+https://nytimes.com/athletic/5751008/2024/09/07/italy-tonali-calafiori-udogie-spalletti-france/
+
 **Packers' season hinges on health of Jordan Love's left leg: Schneidman**\
 `Love's left leg bent awkwardly under defensive lineman Jalen Carter on the third-to-last play of the season opener in Brazil.`\
 https://nytimes.com/athletic/5751492/2024/09/07/packers-jordan-love-leg-injury/
