@@ -1,3 +1,11 @@
+**Former Clemson WR Diondre Overton dies at 26**\
+`Overton played for Clemson from 2016 to 2019 and won two national championships with the Tigers.`\
+https://nytimes.com/athletic/5751875/2024/09/07/diondre-overton-dies-clemson/
+
+**What We Know About the Investigations Involving Eric Adams’s Top Aides**\
+`The administration of New York City’s mayor was thrown into turmoil as federal inquiries reached his inner circle.`\
+https://nytimes.com/article/eric-adams-investigations.html
+
 **Spy Chiefs of the C.I.A. and MI6 Convene, on a Couch and for a Crowd**\
 `Appearing together publicly for the first time in the history of their agencies, the heads of the U.S. and British intelligence services discussed Ukraine’s incursion into Russia and the war in Gaza.`\
 https://nytimes.com/2024/09/07/world/europe/cia-mi6-russia-ukraine.html
