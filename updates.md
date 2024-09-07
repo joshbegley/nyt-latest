@@ -1,3 +1,7 @@
+**How Birmingham shattered transfer records - and left English football in shock**\
+`A summer outlay of up to £25m is unheard of in League One but this is just the start of the club's ambitious plan `\
+https://nytimes.com/athletic/5743749/2024/09/07/birmingham-city-transfer-window-spend/
+
 **Are England really entering a new era?**\
 `The real test of whether Carsley's first game in charge is a fresh start or not will come over the next few months`\
 https://nytimes.com/athletic/5747362/2024/09/07/england-lee-carsley-manager-new-era/

@@ -1,3 +1,7 @@
+**How Birmingham shattered transfer records - and left English football in shock**\
+`A summer outlay of up to £25m is unheard of in League One but this is just the start of the club's ambitious plan `\
+https://nytimes.com/athletic/5743749/2024/09/07/birmingham-city-transfer-window-spend/
+
 **Are England really entering a new era?**\
 `The real test of whether Carsley's first game in charge is a fresh start or not will come over the next few months`\
 https://nytimes.com/athletic/5747362/2024/09/07/england-lee-carsley-manager-new-era/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5751388/2024/09/06/eagles-saquon-barkley-packers-nf
 **Twins' Royce Lewis optimistic about learning from struggles as season drags on**\
 `“I've learned a lot about getting pulled in different directions and how to manage and handle that,” Lewis said.`\
 https://nytimes.com/athletic/5751375/2024/09/06/twins-royce-lewis-optimistic/
-
-**Can Trevor Story's return be a lesson for the Red Sox in beating longshot odds?**\
-`Cora hopes Story's imminent return to the Red Sox's active roster will serve as inspiration for a club facing an uphill postseason climb.`\
-https://nytimes.com/athletic/5751339/2024/09/06/red-sox-trevor-story-return/
 
