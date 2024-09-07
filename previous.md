@@ -1,5 +1,5 @@
 **Republic of Ireland 0 England 2: Rice and Grealish defy boos, Gordon's pace proves key**\
-`England beat the Republic of Ireland 2-0 in their Nations League group fixture to give interim manager Lee Carsley a dream start.`\
+`England beat the Republic of Ireland 2-0 in their Nations League group fixture to give interim manager Lee Carsley a dream start`\
 https://nytimes.com/athletic/5750337/2024/09/07/republic-of-ireland-0-england-2-rice-grealish-boos-anthem/
 
 **Family of American Slain in the West Bank Demands an Independent Probe**\
