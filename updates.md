@@ -1,3 +1,11 @@
+**Can ‘The Secret Lives of Mormon Wives’ Change a Conservative Religious Culture?**\
+`A seemingly frothy reality show has a deeper conflict at its core.`\
+https://nytimes.com/2024/09/07/opinion/mormon-wives-reality-tv-show.html
+
+**Can the Business of Tennis Be Fixed?**\
+`In an interview with DealBook, the U.S.T.A. chief Lew Sherr discussed the U.S. Open’s record attendance, the prospect of a new tennis league, and fighting with pickleball for court space.`\
+https://nytimes.com/2024/09/07/business/dealbook/us-open-tennis-business.html
+
 **Blues' offer-sheet analysis, Alexander Steen's inexperience, jersey leaks: Mailbag, part 2**\
 `Could the Blues have gotten Edmonton's Philip Broberg and Dylan Holloway for less? We take a look at how it all unfolded.`\
 https://nytimes.com/athletic/5732751/2024/09/07/blues-offer-sheet-analysis/
