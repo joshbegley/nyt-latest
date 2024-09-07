@@ -1,3 +1,7 @@
+**Saquon Barkley's 3 TDs power Eagles to 'sloppy' win over Packers in Brazil**\
+`The Eagles haven't wielded a weapon quite like Barkley since LeSean McCoy.`\
+https://nytimes.com/athletic/5751243/2024/09/07/eagles-packers-saquon-barkley-brazil/
+
 **Giants manager Bob Melvin defends his trio of hitting coaches: 'They've done a fantastic job'**\
 `The Giants are among the worst scoring teams during the first three innings, but Melvin says it's not from lack of preparation.`\
 https://nytimes.com/athletic/5751537/2024/09/07/giants-hitting-coaches-early-innings/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/07/crosswords/spelling-bee-forum.html
 **Italy lean on Premier League contingent to end Luciano Spalletti's cruel summer**\
 `The Azzurri secured a first win in France for 70 years with Sandro Tonali, Riccardo Calafiori and Destiny Udogie all playing their part`\
 https://nytimes.com/athletic/5751008/2024/09/07/italy-tonali-calafiori-udogie-spalletti-france/
-
-**Packers' season hinges on health of Jordan Love's left leg: Schneidman**\
-`Love's left leg bent awkwardly under defensive lineman Jalen Carter on the third-to-last play of the season opener in Brazil.`\
-https://nytimes.com/athletic/5751492/2024/09/07/packers-jordan-love-leg-injury/
 
