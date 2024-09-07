@@ -1,3 +1,19 @@
+**Darwin Blanch: The American tennis phenom nowhere to be seen at the U.S. Open**\
+`The 16-year-old American has played two ATP singles matches and won seven games in total. But that's all part of the plan.`\
+https://nytimes.com/athletic/5508534/2024/09/07/darwin-blanch-tennis-american-donald-young/
+
+**Once, Catholic Priests Came to Indonesia. Now, It Exports Them.**\
+`A seminary on Flores, a Catholic-majority island in Indonesia, ordains so many priests that a lot of them go abroad to serve the faithful.`\
+https://nytimes.com/2024/09/07/world/asia/indonesia-catholic-priests-exports.html
+
+**Iowa State at Iowa picks, odds, how to watch: Will anyone crack 20 for the Cy-Hawk?**\
+`Iowa State travels to Kinnick Stadium to take on rival Iowa in a game with the lowest betting total of the week.`\
+https://nytimes.com/athletic/5748086/2024/09/07/iowa-state-iowa-picks-odds-how-to-watch/
+
+**Saturday's MLB odds, best bets: Projections for pitching matchups, playoffs and more**\
+`See pitching matchups, playoff projections, win projections and more for Saturday's MLB games.`\
+https://nytimes.com/athletic/5750998/2024/09/07/mlb-odds-best-bets-projections-september-7/
+
 **Corrections: Sept. 7, 2024**\
 `Corrections that appeared in print on Saturday, Sept. 7, 2024.`\
 https://nytimes.com/2024/09/06/pageoneplus/corrections-sept-7-2024.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5750746/2024/09/06/fritz-tiafoe-us-open-semifinal-r
 **Slick field conditions hamper Eagles, Packers in Brazil**\
 `Players from both teams struggled to find consistent footing on the soccer field, which has hosted matches for the World Cup and Olympics.`\
 https://nytimes.com/athletic/5751302/2024/09/06/packers-eagles-field-conditions-nfl-brazil/
-
-**Family Inheritance?**\
-`The plot thickens in this themeless puzzle by David P. Williams, the fifth in a series.`\
-https://nytimes.com/2024/09/06/crosswords/daily-puzzle-2024-09-07.html
-
-**Andrew Friedman addresses Dodgers' pitching injuries: 'A lot of this starts at the youth level'**\
-`Friedman said the Dodgers will "reimagine" their development and protocols this winter to prevent injuries in future seasons.`\
-https://nytimes.com/athletic/5751280/2024/09/06/dodgers-andrew-friedman-pitching-injuries/
-
-**Texas Sues for Access to Records of Women Seeking Out-of-State Abortions**\
-`The lawsuit takes aim at federal privacy rules, including one enacted this year that Ken Paxton, the state attorney general, called “a backdoor attempt at weakening Texas’ laws.”`\
-https://nytimes.com/2024/09/06/us/texas-abortion-medical-records.html
-
-**Georgia Suspect’s Family Faced Eviction and Other Turmoil Before Shooting**\
-`Court and law enforcement records lay out the turbulence in the teenager’s family in recent years.`\
-https://nytimes.com/2024/09/06/us/georgia-school-shooter-family-problems.html
 
