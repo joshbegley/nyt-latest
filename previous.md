@@ -1,3 +1,11 @@
+**Vannini: Texas' Quinn Ewers stakes his claim as the top quarterback in the nation**\
+`It’s time to consider Texas as a No. 1-ranked team. It’s time to consider Ewers the early Heisman Trophy leader.`\
+https://nytimes.com/athletic/5752287/2024/09/07/texas-quinn-ewers-arch-manning-heisman/
+
+**Game, Set, Match: Aryna Sabalenka beats Jessica Pegula to win U.S. Open**\
+`The Belarusian recovered from last year's final defeat to Coco Gauff to win in straight sets.`\
+https://nytimes.com/athletic/5752164/2024/09/07/sabalenka-pegula-us-open-final-result-analysis/
+
 **Life Milestones**\
 `Meghan Morris’s Sunday puzzle asks us to save the date(s).`\
 https://nytimes.com/2024/09/07/crosswords/daily-puzzle-2024-09-08.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/07/arts/venice-film-festival-winner-room-next-door.h
 **Lloyd Ziff, Visionary Photographer and Art Director, Dies at 81**\
 `He designed some of the most visually exciting magazines of the 1970s and ’80s. But his real love, and eventually his focus, was photography.`\
 https://nytimes.com/2024/09/07/arts/lloyd-ziff-dead.html
-
-**Packers' Love to miss weeks with MCL sprain**\
-`Jordan Love sustained the injury with five seconds left in the game as he was under duress while trying to throw a Hail Mary.`\
-https://nytimes.com/athletic/5752157/2024/09/07/jordan-love-packers-knee-injury-mcl/
-
-**How does college football's overtime format work?**\
-`Overtime was introduced in 1995 and the first game to ever go into overtime was the 1995 Las Vegas Bowl featuring Toledo and Nevada.`\
-https://nytimes.com/athletic/5736518/2024/09/07/college-football-overtime-rules-explained/
 

@@ -1,3 +1,11 @@
+**Vannini: Texas' Quinn Ewers stakes his claim as the top quarterback in the nation**\
+`It’s time to consider Texas as a No. 1-ranked team. It’s time to consider Ewers the early Heisman Trophy leader.`\
+https://nytimes.com/athletic/5752287/2024/09/07/texas-quinn-ewers-arch-manning-heisman/
+
+**Game, Set, Match: Aryna Sabalenka beats Jessica Pegula to win U.S. Open**\
+`The Belarusian recovered from last year's final defeat to Coco Gauff to win in straight sets.`\
+https://nytimes.com/athletic/5752164/2024/09/07/sabalenka-pegula-us-open-final-result-analysis/
+
 **Life Milestones**\
 `Meghan Morris’s Sunday puzzle asks us to save the date(s).`\
 https://nytimes.com/2024/09/07/crosswords/daily-puzzle-2024-09-08.html
