@@ -1,3 +1,7 @@
+**Cubs offense has quickly faded along with their October hopes after a hot August**\
+`The Cubs have been shut out in three of their past four games and are 1-4 to start a six-game homestand.`\
+https://nytimes.com/athletic/5752284/2024/09/07/chicago-cubs-offense-postseason-hopes/
+
 **Cubs' offense has quickly faded along with their October hopes after a hot August**\
 `The Cubs have been shut out in three of their past four games and are 1-4 to start a six-game homestand.`\
 https://nytimes.com/athletic/5752284/2024/09/07/chicago-cubs-offense-postseason-hopes/
