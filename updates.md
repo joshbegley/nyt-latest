@@ -1,3 +1,11 @@
+**Life Milestones**\
+`Meghan Morris’s Sunday puzzle asks us to save the date(s).`\
+https://nytimes.com/2024/09/07/crosswords/daily-puzzle-2024-09-08.html
+
+**Lee Carsley lives for coaching - but anthem furore shows England job has another side to it**\
+`Lee Carsley was coaching before kick-off, reviewing notes on the pitch at half-time and generally in his element despite fierce criticism`\
+https://nytimes.com/athletic/5750920/2024/09/07/lee-carsley-england-coaching-anthem/
+
 **Utah QB Cam Rising sustains right hand injury vs. Baylor**\
 `The seventh-year senior quarterback suffered an injury to his right throwing hand late in the second quarter against Baylor on Saturday.`\
 https://nytimes.com/athletic/5752281/2024/09/07/cam-rising-hand-injury-utah/
