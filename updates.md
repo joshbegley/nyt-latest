@@ -1,3 +1,7 @@
+**Jaire Alexander's rough night, Josh Myers' cramps and more Packers observations**\
+`The Packers lost to the Eagles in Brazil, 34-29, and plenty went wrong (with less right) in Green Bay's sloppy season opener.`\
+https://nytimes.com/athletic/5751571/2024/09/07/packers-brazil-jaire-alexander-josh-meyers/
+
 **None of Trump’s Economic ‘Solutions’ Hold Any Water**\
 `Trump has only two answers to every problem: tariffs and mass deportation.`\
 https://nytimes.com/2024/09/07/opinion/trump-economy-deportation.html
