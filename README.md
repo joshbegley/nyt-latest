@@ -1,3 +1,7 @@
+**Tennessee vs. NC State picks, odds, how to watch: Can Iamaleava pass his first big test?**\
+`Tennessee travels to Charlotte to take on NC State in a top-25 matchup in primetime. The Vols are favored by about a touchdown.`\
+https://nytimes.com/athletic/5748091/2024/09/07/tennessee-nc-state-picks-odds-how-to-watch/
+
 **Change Can Be Beautiful. Just Ask Will and Harper.**\
 `The superstar comedian and his best friend and collaborator discuss the journey that deepened their friendship.`\
 https://nytimes.com/2024/09/07/magazine/will-ferrell-harper-steele-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/09/07/us/politics/harris-trump-rally-crowds
 **Russia Secretly Worms Its Way Into America’s Conservative Media**\
 `Federal prosecutors say Russia paid an American media company to push pro-Kremlin messages from social media influencers including Benny Johnson, Tim Pool and Dave Rubin.`\
 https://nytimes.com/2024/09/07/business/media/russia-tenet-media-tim-pool.html
-
-**The Pivotal Decision That Led to a Resurgence of Polio**\
-`In 2016, the global health authorities removed a type of poliovirus from the oral vaccine. The virus caused a growing number of outbreaks and has now arrived in Gaza.`\
-https://nytimes.com/2024/09/07/health/polio-vaccine-gaza-children.html
 
