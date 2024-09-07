@@ -1,3 +1,7 @@
+**Slick field conditions hamper Eagles, Packers in Brazil**\
+`Players from both teams struggled to find consistent footing on the soccer field, which has hosted matches for the World Cup and Olympics.`\
+https://nytimes.com/athletic/5751302/2024/09/06/packers-eagles-field-conditions-nfl-brazil/
+
 **Family Inheritance?**\
 `The plot thickens in this themeless puzzle by David P. Williams, the fifth in a series.`\
 https://nytimes.com/2024/09/06/crosswords/daily-puzzle-2024-09-07.html
