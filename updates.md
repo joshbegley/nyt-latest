@@ -1,3 +1,7 @@
+**Missouri Judge Rules That Abortion Ballot Measure Is Invalid**\
+`But abortion rights groups hope an appeals court will reverse the ruling before the Tuesday deadline to print the state ballots.`\
+https://nytimes.com/2024/09/07/us/missouri-abortion-ballot-measure-invalid.html
+
 **Mark Vientos walks it off as the Mets' magical summer continues**\
 `It all feels a bit like late-summer magic, the kind that has sprinkled in Queens during the most memorable of seasons for the franchise.`\
 https://nytimes.com/athletic/5751354/2024/09/07/mark-vientos-walk-off-mets/
