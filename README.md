@@ -1,3 +1,7 @@
+**Missouri Judge Rules That Abortion Ballot Measure Is Invalid**\
+`But abortion rights groups hope an appeals court will reverse the ruling before the Tuesday deadline to print the state ballots.`\
+https://nytimes.com/2024/09/07/us/missouri-abortion-ballot-measure-invalid.html
+
 **Mark Vientos walks it off as the Mets' magical summer continues**\
 `It all feels a bit like late-summer magic, the kind that has sprinkled in Queens during the most memorable of seasons for the franchise.`\
 https://nytimes.com/athletic/5751354/2024/09/07/mark-vientos-walk-off-mets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5508534/2024/09/07/darwin-blanch-tennis-american-do
 **Once, Catholic Priests Came to Indonesia. Now, It Exports Them.**\
 `A seminary on Flores, a Catholic-majority island in Indonesia, ordains so many priests that a lot of them go abroad to serve the faithful.`\
 https://nytimes.com/2024/09/07/world/asia/indonesia-catholic-priests-exports.html
-
-**Iowa State at Iowa picks, odds, how to watch: Will anyone crack 20 for the Cy-Hawk?**\
-`Iowa State travels to Kinnick Stadium to take on rival Iowa in a game with the lowest betting total of the week.`\
-https://nytimes.com/athletic/5748086/2024/09/07/iowa-state-iowa-picks-odds-how-to-watch/
 
