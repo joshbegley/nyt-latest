@@ -1,3 +1,7 @@
+**U.S. Open semifinals recap: The strangest point of the tournament so far**\
+`On the twelfth day of the tournament, the strangest point so far, and a Paralympic shock.`\
+https://nytimes.com/athletic/5751173/2024/09/07/us-open-recap-sinner-draper-point-ostapenko-kichenok/
+
 **Saquon Barkley's 3 TDs power Eagles to 'sloppy' win over Packers in Brazil**\
 `The Eagles haven't wielded a weapon quite like Barkley since LeSean McCoy.`\
 https://nytimes.com/athletic/5751243/2024/09/07/eagles-packers-saquon-barkley-brazil/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/07/nyregion/how-a-celebrity-hairstylist-spends-his-s
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/09/07/crosswords/spelling-bee-forum.html
-
-**Italy lean on Premier League contingent to end Luciano Spalletti's cruel summer**\
-`The Azzurri secured a first win in France for 70 years with Sandro Tonali, Riccardo Calafiori and Destiny Udogie all playing their part`\
-https://nytimes.com/athletic/5751008/2024/09/07/italy-tonali-calafiori-udogie-spalletti-france/
 
