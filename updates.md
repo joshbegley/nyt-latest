@@ -1,3 +1,7 @@
+**Mark Vientos walks it off as the Mets' magical summer continues**\
+`It all feels a bit like late-summer magic, the kind that has sprinkled in Queens during the most memorable of seasons for the franchise.`\
+https://nytimes.com/athletic/5751354/2024/09/07/mark-vientos-walk-off-mets/
+
 **Jarred Kelenic has shown flashes, but his first season with Braves is underwhelming**\
 `So far, Kelenic remains an inconsistent and "toolsy" former top prospect.`\
 https://nytimes.com/athletic/5751398/2024/09/07/braves-win-blue-jays-jarred-kelenic-underwhelming/
