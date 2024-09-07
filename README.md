@@ -1,3 +1,7 @@
+**‘Room Next Door’ Claims Top Prize at Venice Film Festival**\
+`The film, starring Tilda Swinton and Julianne Moore, is the director Pedro Almodóvar’s English-language debut.`\
+https://nytimes.com/2024/09/07/arts/venice-film-festival-winner-room-next-door.html
+
 **Lloyd Ziff, Visionary Photographer and Art Director, Dies at 81**\
 `He designed some of the most visually exciting magazines of the 1970s and ’80s. But his real love, and eventually his focus, was photography.`\
 https://nytimes.com/2024/09/07/arts/lloyd-ziff-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5752039/2024/09/07/jamal-murray-contract-extension-
 **Penn State takeaways: Why did the defense struggle early, who led the explosive offense?**\
 `Penn State's defense struggled in the first half, but the Nittany Lions' shut down Bowling Green in the second half to pull away.`\
 https://nytimes.com/athletic/5751878/2024/09/07/penn-state-defense-bowling-green/
-
-**Harris Releases Ad Targeting Trump for Helping Overturn Roe v. Wade**\
-`The ad, which will run in several battleground states, comes as a growing share of voters say that abortion is their top issue.`\
-https://nytimes.com/2024/09/07/us/politics/harris-trump-ad-abortion.html
 
