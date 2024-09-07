@@ -1,7 +1,3 @@
-**Jarred Kelenic has shown flashes, but his first season with Braves is underwhelming**\
-`So far, Kelenic remains an inconsistent and "toolsy" former top prospect.`\
-https://nytimes.com/athletic/5751398/2024/09/07/jarred-kelenic-has-shown-flashes-but-his-first-season-with-braves-is-underwhelming/
-
 **How Birmingham shattered transfer records - and left English football in shock**\
 `A summer outlay of up to £25m is unheard of in League One but this is just the start of the club's ambitious plan `\
 https://nytimes.com/athletic/5743749/2024/09/07/birmingham-city-transfer-window-spend/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/09/06/pageoneplus/corrections-sept-7-2024.html
 **Eagles top Packers in sloppy São Paulo as Barkley dominates**\
 `The running back, who the Eagles signed in March, scored three times, including the first touchdown of the game in the second quarter.`\
 https://nytimes.com/athletic/5751388/2024/09/06/eagles-saquon-barkley-packers-nfl-brazil/
+
+**Twins' Royce Lewis optimistic about learning from struggles as season drags on**\
+`“I've learned a lot about getting pulled in different directions and how to manage and handle that,” Lewis said.`\
+https://nytimes.com/athletic/5751375/2024/09/06/twins-royce-lewis-optimistic/
 
