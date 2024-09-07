@@ -1,3 +1,7 @@
+**Tony Blair’s Advice to Rookie Leaders: Tend to Your Legacy Before It’s Too Late**\
+`In an interview, the former British prime minister discussed his new book ‘On Leadership,’ the dysfunction of U.S. politics, and deflected questions about Elon Musk’s influence.`\
+https://nytimes.com/2024/09/07/world/europe/tony-blairs-advice-to-rookie-leaders-tend-to-your-legacy-before-its-too-late.html
+
 **Queens Is Abuzz Over Two Americans in the U.S. Open Finals**\
 `For the first time in more than two decades, an American man and an American woman will play in the U.S. Open singles finals.`\
 https://nytimes.com/2024/09/07/nyregion/us-open-tiafoe-fritz-pegula.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/07/world/asia/typhoon-yagi-vietnam-china.html
 **Indiana Fever loss to Minnesota Lynx offers Caitlin Clark a chance to grow as a leader**\
 `"I need my point guard to have a cool head," Fever coach Christie Sides said of Clark.`\
 https://nytimes.com/athletic/5751461/2024/09/07/indiana-fever-caitlin-clark-minnesota-lynx/
-
-**Missouri Judge Rules That Abortion Ballot Measure Is Invalid**\
-`But abortion rights groups hope an appeals court will reverse the ruling before the Tuesday deadline to print the state ballots.`\
-https://nytimes.com/2024/09/07/us/missouri-abortion-ballot-measure-invalid.html
 
