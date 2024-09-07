@@ -1,3 +1,7 @@
+**Change Can Be Beautiful. Just Ask Will and Harper.**\
+`The superstar comedian and his best friend and collaborator discuss the journey that deepened their friendship.`\
+https://nytimes.com/2024/09/07/magazine/will-ferrell-harper-steele-interview.html
+
 **If a Threat Is Not a Crime, Can the Police Prevent a School Shooting?**\
 `Officers are limited in their response to a possible threat of violence, but they are being trained to identify and monitor worrisome behavior earlier.`\
 https://nytimes.com/2024/09/07/us/police-school-shootings.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/07/business/media/russia-tenet-media-tim-pool.html
 **Heritage Foundation Spreads Deceptive Videos About Noncitizen Voters**\
 `The right-wing think tank has been pushing misinformation about voting into social media feeds. The Georgia secretary of state’s office called one video “a stunt.”`\
 https://nytimes.com/2024/09/07/us/politics/heritage-foundation-2024-campaign-immigration.html
-
-**The Pivotal Decision That Led to a Resurgence of Polio**\
-`In 2016, the global health authorities removed a type of poliovirus from the oral vaccine. The virus caused a growing number of outbreaks and has now arrived in Gaza.`\
-https://nytimes.com/2024/09/07/health/polio-vaccine-gaza-children.html
 
