@@ -1,3 +1,7 @@
+**Tennessee vs. NC State picks, odds, how to watch: Can Iamaleava pass his first big test?**\
+`Tennessee travels to Charlotte to take on NC State in a top-25 matchup in primetime. The Vols are favored by about a touchdown.`\
+https://nytimes.com/athletic/5748091/2024/09/07/tennessee-nc-state-picks-odds-how-to-watch/
+
 **Change Can Be Beautiful. Just Ask Will and Harper.**\
 `The superstar comedian and his best friend and collaborator discuss the journey that deepened their friendship.`\
 https://nytimes.com/2024/09/07/magazine/will-ferrell-harper-steele-interview.html
