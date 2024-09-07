@@ -1,3 +1,7 @@
+**Andrew Friedman addresses Dodgers' pitching injuries: 'A lot of this starts at the youth level'**\
+`Friedman said the Dodgers will "reimagine" their development and protocols this winter to prevent injuries in future seasons.`\
+https://nytimes.com/athletic/5751280/2024/09/06/dodgers-andrew-friedman-pitching-injuries/
+
 **Texas Sues for Access to Records of Women Seeking Out-of-State Abortions**\
 `The lawsuit takes aim at federal privacy rules, including one enacted this year that Ken Paxton, the state attorney general, called “a backdoor attempt at weakening Texas’ laws.”`\
 https://nytimes.com/2024/09/06/us/texas-abortion-medical-records.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/06/us/politics/biden-harris-campaign.html
 **Man Arrested in Plot to Kill Jews in New York on Oct. 7 Anniversary**\
 `A 20-year-old Pakistani citizen was arrested in Canada after plotting to carry out a mass shooting at a Jewish center in New York, according to the U.S. Justice Department.`\
 https://nytimes.com/2024/09/06/us/politics/new-york-terror-plot-jewish-center-isis.html
-
-**They Want to Make Voting a Fall Trend**\
-`Jill Biden, Anna Wintour and top American designers participated in a voting awareness march at the onset of New York Fashion Week.`\
-https://nytimes.com/2024/09/06/style/nyfw-voting-anna-wintour-jill-biden.html
 

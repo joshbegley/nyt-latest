@@ -1,3 +1,7 @@
+**Andrew Friedman addresses Dodgers' pitching injuries: 'A lot of this starts at the youth level'**\
+`Friedman said the Dodgers will "reimagine" their development and protocols this winter to prevent injuries in future seasons.`\
+https://nytimes.com/athletic/5751280/2024/09/06/dodgers-andrew-friedman-pitching-injuries/
+
 **Texas Sues for Access to Records of Women Seeking Out-of-State Abortions**\
 `The lawsuit takes aim at federal privacy rules, including one enacted this year that Ken Paxton, the state attorney general, called “a backdoor attempt at weakening Texas’ laws.”`\
 https://nytimes.com/2024/09/06/us/texas-abortion-medical-records.html
