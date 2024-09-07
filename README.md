@@ -1,3 +1,11 @@
+**Former Clemson WR Diondre Overton dies at 26**\
+`Overton played for Clemson from 2016 to 2019 and won two national championships with the Tigers.`\
+https://nytimes.com/athletic/5751875/2024/09/07/diondre-overton-dies-clemson/
+
+**What We Know About the Investigations Involving Eric Adams’s Top Aides**\
+`The administration of New York City’s mayor was thrown into turmoil as federal inquiries reached his inner circle.`\
+https://nytimes.com/article/eric-adams-investigations.html
+
 **Spy Chiefs of the C.I.A. and MI6 Convene, on a Couch and for a Crowd**\
 `Appearing together publicly for the first time in the history of their agencies, the heads of the U.S. and British intelligence services discussed Ukraine’s incursion into Russia and the war in Gaza.`\
 https://nytimes.com/2024/09/07/world/europe/cia-mi6-russia-ukraine.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/07/dining/finger-food-for-dinner.html
 **‘Cow Vigilantes’ Have India’s Muslims on Edge**\
 `An unexpectedly narrow victory at the polls for Prime Minister Narendra Modi and his Hindu-first agenda has not cooled simmering sectarian tensions, as some had hoped.`\
 https://nytimes.com/2024/09/07/world/asia/india-religious-violence-muslims-modi.html
-
-**The first look at Lamar Jackson and the Ravens' 2024 offense felt incomplete**\
-`There were enough good things offensively Thursday to maintain optimism. There just weren't enough for the Ravens to beat the Chiefs.`\
-https://nytimes.com/athletic/5751407/2024/09/07/lamar-jackson-ravens-offensive-chiefs/
-
-**Starliner’s Troubles Are Latest Setback for Boeing’s Space Business**\
-`The capsule, which returned without astronauts, and other space programs at Boeing have suffered many delays and cost overruns.`\
-https://nytimes.com/2024/09/07/business/boeing-starliner-nasa-spacex.html
 
