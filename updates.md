@@ -1,3 +1,11 @@
+**What went wrong for Notre Dame in a stunning upset loss to Northern Illinois**\
+`NIU beat Notre Dame 16-14 on a last-minute field goal on Saturday. Here's what went wrong, what we learned and what's next.`\
+https://nytimes.com/athletic/5752234/2024/09/07/notre-dame-northern-illinois-upset-college-football/
+
+**Even in win, Wisconsin raises questions about readiness for Alabama visit**\
+`It's hard to feel particularly confident Wisconsin is capable of pulling off a win vs. Alabama given what it has shown through two games.`\
+https://nytimes.com/athletic/5752326/2024/09/07/wisconsin-football-south-dakota-alabama/
+
 **Salmonella Outbreak Prompts Egg Recall by Wisconsin Farm**\
 `Officials said 65 people in nine states have been infected in the outbreak, which has been traced to an egg farm. No deaths have been reported.`\
 https://nytimes.com/2024/09/07/us/egg-recall-salmonella-outbreak-wisconsin.html
