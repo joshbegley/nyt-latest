@@ -1,3 +1,7 @@
+**Murray, Nuggets reach 4-year, $209M extension**\
+`Murray averaged 21.2 points, 6.5 assists and 4.1 rebounds last season.`\
+https://nytimes.com/athletic/5752039/2024/09/07/jamal-murray-contract-extension-nuggets/
+
 **Penn State takeaways: Why did the defense struggle early, who led the explosive offense?**\
 `Penn State's defense struggled in the first half, but the Nittany Lions' shut down Bowling Green in the second half to pull away.`\
 https://nytimes.com/athletic/5751878/2024/09/07/penn-state-defense-bowling-green/
