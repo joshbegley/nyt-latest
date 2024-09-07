@@ -1,3 +1,7 @@
+**Carsley explains national anthem stance ahead of Republic of Ireland vs England**\
+`Lee Carsley says he will not sing the national anthem before England&#8217;s game with the Republic of Ireland on Saturday and intends to instead be &#8220;focused on the football&#8221;.`\
+https://nytimes.com/athletic/5751622/2024/09/07/lee-carsley-national-anthem-england-ireland/
+
 **Tennessee vs. NC State picks, odds, how to watch: Can Iamaleava pass his first big test?**\
 `Tennessee travels to Charlotte to take on NC State in a top-25 matchup in primetime. The Vols are favored by about a touchdown.`\
 https://nytimes.com/athletic/5748091/2024/09/07/tennessee-nc-state-picks-odds-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/07/arts/museum-etiquette-dummies.html
 **Trump Claims Harris’s Rallies Are Smaller. We Counted.**\
 `We took photographs, captured 360-degree video and counted attendees at six recent rallies to analyze which of the candidates’ claims on crowd sizes hold weight.`\
 https://nytimes.com/interactive/2024/09/07/us/politics/harris-trump-rally-crowds-size.html
-
-**Russia Secretly Worms Its Way Into America’s Conservative Media**\
-`Federal prosecutors say Russia paid an American media company to push pro-Kremlin messages from social media influencers including Benny Johnson, Tim Pool and Dave Rubin.`\
-https://nytimes.com/2024/09/07/business/media/russia-tenet-media-tim-pool.html
 
