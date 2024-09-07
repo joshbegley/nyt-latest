@@ -1,3 +1,7 @@
+**Family of American Slain in the West Bank Demands an Independent Probe**\
+`With witnesses and Palestinian officials accusing Israeli soldiers of firing the fatal shots, “an Israeli investigation is not adequate,” the family said in a statement.`\
+https://nytimes.com/2024/09/07/world/middleeast/american-slain-west-bank-eygi.html
+
 **Andre Agassi and the revelations of a tennis Sphinx**\
 `In the back of a car stuck in New York City traffic, the American legend explains it all`\
 https://nytimes.com/athletic/5751220/2024/09/07/andre-agassi/

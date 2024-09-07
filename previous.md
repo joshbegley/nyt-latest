@@ -1,3 +1,7 @@
+**Family of American Slain in the West Bank Demands an Independent Probe**\
+`With witnesses and Palestinian officials accusing Israeli soldiers of firing the fatal shots, “an Israeli investigation is not adequate,” the family said in a statement.`\
+https://nytimes.com/2024/09/07/world/middleeast/american-slain-west-bank-eygi.html
+
 **Former Clemson WR Diondre Overton dies at 26**\
 `Overton played for Clemson from 2016 to 2019 and won two national championships with the Tigers.`\
 https://nytimes.com/athletic/5751875/2024/09/07/diondre-overton-dies-clemson/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/07/opinion/trump-economy-deportation.html
 **Finger Food for Dinner**\
 `Think Mexican hot dogs, peel and eat shrimp and milk bread rolls.`\
 https://nytimes.com/2024/09/07/dining/finger-food-for-dinner.html
-
-**‘Cow Vigilantes’ Have India’s Muslims on Edge**\
-`An unexpectedly narrow victory at the polls for Prime Minister Narendra Modi and his Hindu-first agenda has not cooled simmering sectarian tensions, as some had hoped.`\
-https://nytimes.com/2024/09/07/world/asia/india-religious-violence-muslims-modi.html
 
