@@ -1,3 +1,11 @@
+**Street Artist Documents War in Ukraine, One Stark Mural at a Time**\
+`Using ruins as his canvas, Gamlet Zinkivskyi has captured life in wartime Ukraine in dozens of grim, gripping and harshly beautiful paintings. “Broken, but invincible,” read one captioned work.`\
+https://nytimes.com/2024/09/07/world/europe/kharkiv-ukraine-street-art.html
+
+**Tony Blair’s Advice to Rookie Leaders: Tend to Your Legacy Before It’s Too Late**\
+`In an interview, the former British prime minister discussed his new book ‘On Leadership,’ the dysfunction of U.S. politics, and deflected questions about Elon Musk’s influence.`\
+https://nytimes.com/2024/09/07/world/europe/tony-blair-on-leadership-interview-legacy.html
+
 **Tony Blair’s Advice to Rookie Leaders: Tend to Your Legacy Before It’s Too Late**\
 `In an interview, the former British prime minister discussed his new book ‘On Leadership,’ the dysfunction of U.S. politics, and deflected questions about Elon Musk’s influence.`\
 https://nytimes.com/2024/09/07/world/europe/tony-blairs-advice-to-rookie-leaders-tend-to-your-legacy-before-its-too-late.html
