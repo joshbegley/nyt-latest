@@ -1,3 +1,7 @@
+**California Can Ban Guns in Parks and Bars, but Not Hospitals, Court Says**\
+`California and Hawaii banned guns from various public venues. A federal appeals court dusted off the history books to help determine where to allow prohibitions.`\
+https://nytimes.com/2024/09/06/us/california-gun-laws-court.html
+
 **Court Says No to Guns in Parks and Bars. Banks and Hospitals? Yes.**\
 `California and Hawaii banned guns from various public venues. A federal appeals court dusted off the history books to help determine where to allow prohibitions.`\
 https://nytimes.com/2024/09/06/us/california-gun-laws-court.html
