@@ -1,3 +1,7 @@
+**Spy Chiefs of the C.I.A. and MI6 Convene, on a Couch and for a Crowd**\
+`Appearing together publicly for the first time in the history of their agencies, the heads of the U.S. and British intelligence services discussed Ukraine’s incursion into Russia and the war in Gaza.`\
+https://nytimes.com/2024/09/07/world/europe/cia-mi6-russia-ukraine.html
+
 **NASCAR teams sign charter extension, minus 2 holdouts**\
 `23XI Racing and Front Row Motorsports did not sign the multiyear extension.`\
 https://nytimes.com/athletic/5751885/2024/09/07/nascar-charter-agreement-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5751407/2024/09/07/lamar-jackson-ravens-offensive-c
 **Starliner’s Troubles Are Latest Setback for Boeing’s Space Business**\
 `The capsule, which returned without astronauts, and other space programs at Boeing have suffered many delays and cost overruns.`\
 https://nytimes.com/2024/09/07/business/boeing-starliner-nasa-spacex.html
-
-**What I’m hearing about Trent Williams' holdout drama, Justin Fields vs. Russell Wilson, tush push under fire**\
-`Plus, the latest on Haason Reddick, the illegal formation flag frenzy, a unique approach for Levis, a hole in Miami’s defense and more.`\
-https://nytimes.com/athletic/5751324/2024/09/07/week-1-notes-trent-williams-holdout-contract-russell-wilson-injury-new-tush-push-rule/
 
