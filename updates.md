@@ -1,3 +1,11 @@
+**Cubs' offense has quickly faded along with their October hopes after a hot August**\
+`The Cubs have been shut out in three of their past four games and are 1-4 to start a six-game homestand.`\
+https://nytimes.com/athletic/5752284/2024/09/07/chicago-cubs-offense-postseason-hopes/
+
+**Mr. Greedy, Father to Many African Penguins at Maryland Zoo, Dies at 33**\
+`An African penguin who left many offspring in his long life, he belonged to the largest colony of the aquatic bird species in North America, according to the zoo.`\
+https://nytimes.com/2024/09/07/us/greedy-penguin-dies-maryland.html
+
 **USMNT 1 Canada 2 takeaways - Pochettino arrival can't come soon enough**\
 `A first home defeat to Canada since 1957 is another blow for a USMNT awaiting its new coach`\
 https://nytimes.com/athletic/5752298/2024/09/07/usmnt-1-canada-2-highlights/
