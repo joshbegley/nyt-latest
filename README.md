@@ -1,3 +1,7 @@
+**As Jessica Pegula faces down her first Grand Slam final, Kim Clijsters has some advice**\
+`As Jessica Pegula heads into her first Grand Slam final, the Belgian legend knows a little about what to do there.`\
+https://nytimes.com/athletic/5751187/2024/09/07/pegula-us-open-final-clijsters-sabalenka-preview/
+
 **U.S. Open semifinals recap: The strangest point of the tournament so far**\
 `On the twelfth day of the tournament, the strangest point so far, and a Paralympic shock`\
 https://nytimes.com/athletic/5751173/2024/09/07/us-open-recap-sinner-draper-point-ostapenko-kichenok/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/07/nyregion/us-open-ushers.html
 **How a Celebrity Hairstylist Spends His Sundays**\
 `Jerome Lordet grabs a scooter to get around the city and make house calls for his famous clients.`\
 https://nytimes.com/2024/09/07/nyregion/how-a-celebrity-hairstylist-spends-his-sundays.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/09/07/crosswords/spelling-bee-forum.html
 
