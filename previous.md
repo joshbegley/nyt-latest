@@ -1,3 +1,7 @@
+**Ukrainian Forces Block Russian Advance on a Key Eastern Town**\
+`Russia’s drive toward Pokrovsk has stalled along one part of the frontline, but its troops continue to advance in other parts of eastern Ukraine, and its long-range aerial attacks continue.`\
+https://nytimes.com/2024/09/07/world/europe/ukraine-pokrovsk-russia-kyiv.html
+
 **Jaire Alexander's rough night, Josh Myers' cramps and more Packers observations**\
 `The Packers lost to the Eagles in Brazil, 34-29, and plenty went wrong (with less right) in Green Bay's sloppy season opener.`\
 https://nytimes.com/athletic/5751571/2024/09/07/packers-brazil-jaire-alexander-josh-meyers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/07/style/alaia-rihanna-guggengheim-fashion.html
 **Everything a Los Angeles Rams fan needs to know for Week 1**\
 `We know by now that every Rams season can vacillate from the strange to the extraordinary — and it's always interesting.`\
 https://nytimes.com/athletic/5746117/2024/09/07/los-angeles-rams-season-news-preview-2024/
-
-**Everything a Carolina Panthers fan needs to know for Week 1**\
-`An NFL season is 18 weeks of amazing athleticism and great theater, and it’s my privilege to try to capture it.`\
-https://nytimes.com/athletic/5746082/2024/09/07/carolina-panthers-season-news-preview-2024/
 

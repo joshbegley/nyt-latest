@@ -1,3 +1,7 @@
+**Ukrainian Forces Block Russian Advance on a Key Eastern Town**\
+`Russia’s drive toward Pokrovsk has stalled along one part of the frontline, but its troops continue to advance in other parts of eastern Ukraine, and its long-range aerial attacks continue.`\
+https://nytimes.com/2024/09/07/world/europe/ukraine-pokrovsk-russia-kyiv.html
+
 **Jaire Alexander's rough night, Josh Myers' cramps and more Packers observations**\
 `The Packers lost to the Eagles in Brazil, 34-29, and plenty went wrong (with less right) in Green Bay's sloppy season opener.`\
 https://nytimes.com/athletic/5751571/2024/09/07/packers-brazil-jaire-alexander-josh-meyers/
