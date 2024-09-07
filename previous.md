@@ -1,4 +1,4 @@
-**What went wrong for Notre Dame in a stunning upset loss to Northern Illinois**\
+**Notre Dame suffers stunning upset to NIU: How did everything go so wrong for Irish?**\
 `NIU beat Notre Dame 16-14 on a last-minute field goal on Saturday. Here's what went wrong, what we learned and what's next.`\
 https://nytimes.com/athletic/5752234/2024/09/07/notre-dame-northern-illinois-upset-college-football/
 
@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5752326/2024/09/07/wisconsin-football-south-dakota-
 https://nytimes.com/2024/09/07/us/egg-recall-salmonella-outbreak-wisconsin.html
 
 **Game, Set, Match: Aryna Sabalenka beats Jessica Pegula to win U.S. Open**\
-`The Belarusian recovered from last year's final defeat to Coco Gauff to win in straight sets.`\
+`The Belarusian recovered from last year's final defeat to Coco Gauff to win in straight sets`\
 https://nytimes.com/athletic/5752164/2024/09/07/sabalenka-pegula-us-open-final-result-analysis/
 
 **Cubs offense has quickly faded along with their October hopes after a hot August**\
