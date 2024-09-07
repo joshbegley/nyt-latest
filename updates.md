@@ -1,3 +1,7 @@
+**Everything a Los Angeles Rams fan needs to know for Week 1**\
+`We know by now that every Rams season can vacillate from the strange to the extraordinary — and it's always interesting.`\
+https://nytimes.com/athletic/5746117/2024/09/07/los-angeles-rams-season-news-preview-2024/
+
 **Everything a Carolina Panthers fan needs to know for Week 1**\
 `An NFL season is 18 weeks of amazing athleticism and great theater, and it’s my privilege to try to capture it.`\
 https://nytimes.com/athletic/5746082/2024/09/07/carolina-panthers-season-news-preview-2024/
