@@ -1,3 +1,7 @@
+**Family Inheritance?**\
+`The plot thickens in this themeless puzzle by David P. Williams, the fifth in a series.`\
+https://nytimes.com/2024/09/06/crosswords/daily-puzzle-2024-09-07.html
+
 **Andrew Friedman addresses Dodgers' pitching injuries: 'A lot of this starts at the youth level'**\
 `Friedman said the Dodgers will "reimagine" their development and protocols this winter to prevent injuries in future seasons.`\
 https://nytimes.com/athletic/5751280/2024/09/06/dodgers-andrew-friedman-pitching-injuries/
@@ -33,8 +37,4 @@ https://nytimes.com/video/science/space/100000009678857/boeing-starliner-space-s
 **In His Last Months as President, Biden Is Both Liberated and Resigned**\
 `President Biden spent decades seeking the highest office, only to drop his bid for re-election under pressure. These final months before the November election are bittersweet, his allies say.`\
 https://nytimes.com/2024/09/06/us/politics/biden-harris-campaign.html
-
-**Man Arrested in Plot to Kill Jews in New York on Oct. 7 Anniversary**\
-`A 20-year-old Pakistani citizen was arrested in Canada after plotting to carry out a mass shooting at a Jewish center in New York, according to the U.S. Justice Department.`\
-https://nytimes.com/2024/09/06/us/politics/new-york-terror-plot-jewish-center-isis.html
 

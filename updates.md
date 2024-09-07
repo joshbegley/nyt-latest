@@ -1,3 +1,7 @@
+**Family Inheritance?**\
+`The plot thickens in this themeless puzzle by David P. Williams, the fifth in a series.`\
+https://nytimes.com/2024/09/06/crosswords/daily-puzzle-2024-09-07.html
+
 **Andrew Friedman addresses Dodgers' pitching injuries: 'A lot of this starts at the youth level'**\
 `Friedman said the Dodgers will "reimagine" their development and protocols this winter to prevent injuries in future seasons.`\
 https://nytimes.com/athletic/5751280/2024/09/06/dodgers-andrew-friedman-pitching-injuries/
