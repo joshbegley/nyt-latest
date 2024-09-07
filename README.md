@@ -1,3 +1,7 @@
+**Cubs' offense has quickly faded along with their October hopes after a hot August**\
+`The Cubs have been shut out in three of their past four games and are 1-4 to start a six-game homestand.`\
+https://nytimes.com/athletic/5752284/2024/09/07/chicago-cubs-offense-postseason-hopes/
+
 **Mr. Greedy, Father to Many African Penguins at Maryland Zoo, Dies at 33**\
 `An African penguin who left many offspring in his long life, he belonged to the largest colony of the aquatic bird species in North America, according to the zoo.`\
 https://nytimes.com/2024/09/07/us/greedy-penguin-dies-maryland.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5752215/2024/09/07/dj-chark-chargers-injured-reserv
 **Georgia football takeaways: Bulldogs get the easy win they needed before SEC play begins**\
 `After the throttling of Clemson, Saturday's game served a different purpose: Georgia got the reps, and Tennessee Tech got the check.`\
 https://nytimes.com/athletic/5752216/2024/09/07/georgia-football-uga-takeaways/
-
-**College Football Playoff 2024 projections: Miami in, LSU out of our 12-team bracket**\
-`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
-https://nytimes.com/athletic/5701128/2024/09/07/college-football-playoff-projections-odds/
 
