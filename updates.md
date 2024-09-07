@@ -1,3 +1,11 @@
+**‘Cow Vigilantes’ Have India’s Muslims on Edge**\
+`An unexpectedly narrow victory at the polls for Prime Minister Narendra Modi and his Hindu-first agenda has not cooled simmering sectarian tensions, as some had hoped.`\
+https://nytimes.com/2024/09/07/world/asia/india-religious-violence-muslims-modi.html
+
+**The first look at Lamar Jackson and the Ravens' 2024 offense felt incomplete**\
+`There were enough good things offensively Thursday to maintain optimism. There just weren't enough for the Ravens to beat the Chiefs.`\
+https://nytimes.com/athletic/5751407/2024/09/07/lamar-jackson-ravens-offensive-chiefs/
+
 **Starliner’s Troubles Are Latest Setback for Boeing’s Space Business**\
 `The capsule, which returned without astronauts, and other space programs at Boeing have suffered many delays and cost overruns.`\
 https://nytimes.com/2024/09/07/business/boeing-starliner-nasa-spacex.html
