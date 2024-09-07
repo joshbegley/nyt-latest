@@ -1,3 +1,7 @@
+**Penn State takeaways: Why did Penn State's defense struggle early, who led explosive offense?**\
+`Penn State's defense struggled in the first half, but the Nittany Lions' shut down Bowling Green in the second half to pull away.`\
+https://nytimes.com/athletic/5751878/2024/09/07/penn-state-defense-bowling-green/
+
 **Harris Releases Ad Targeting Trump for Helping Overturn Roe v. Wade**\
 `The ad, which will run in several battleground states, comes as a growing share of voters say that abortion is their top issue.`\
 https://nytimes.com/2024/09/07/us/politics/harris-trump-ad-abortion.html
