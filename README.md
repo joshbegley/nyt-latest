@@ -1,40 +1,40 @@
-**The Great American Family Car Ride**\
-`Three bridges, one toll.`\
-https://nytimes.com/2024/09/07/style/the-great-american-family-car-ride.html
+**If a Threat Is Not a Crime, Can the Police Prevent a School Shooting?**\
+`Officers are limited in their response to a possible threat of violence, but they are being trained to identify and monitor worrisome behavior earlier.`\
+https://nytimes.com/2024/09/07/us/police-school-shootings.html
 
-**‘Grounded’: How a New Opera Changed on Its Way to the Met**\
-`Jeanine Tesori and George Brant discuss the first time they heard “Grounded,” and how they instantly knew what they would change for the Met.`\
-https://nytimes.com/2024/09/07/arts/music/grounded-jeanine-tesori-george-brant-met-opera.html
+**Inside the Trump-Harris Debate Prep: Method Acting, Insults, Tough Questions**\
+`Kamala Harris is camped out at a Pittsburgh hotel. Donald Trump is being peppered informally by aides. Both sides share the same belief about why the debate is so crucial.`\
+https://nytimes.com/2024/09/07/us/politics/trump-harris-debate-prep.html
 
-**Elizabeth Strout Gets the Gang Back Together for a Murder Mystery**\
-`In “Tell Me Everything,” Bob Burgess deepens his emotional connection with Lucy Barton as he defends a local man accused of killing his mother.`\
-https://nytimes.com/2024/09/07/books/review/elizabeth-strout-tell-me-everything.html
+**Harris’s Combative Debate Style Will Get Its Biggest Test Against Trump**\
+`Kamala Harris’s razor-sharp debate skills have powered her political ascent. Her success next week will turn on how well she adapts to an unpredictable rival.`\
+https://nytimes.com/2024/09/07/us/politics/harris-trump-debate.html
 
-**In California, Controlled Fires Can Save Homes. Why Aren’t More Happening?**\
-`Experts say these intentional burns reduce the risk of wildfires and more should be done. But real barriers remain.`\
-https://nytimes.com/2024/09/07/us/california-controlled-fire.html
+**Working on a Sri Lankan-Australian Epic, He Learned His Family’s Past**\
+`As the acclaimed “Counting and Cracking” makes its North American debut, the playwright describes the work as “my soul on a plate.”`\
+https://nytimes.com/2024/09/07/theater/counting-and-cracking-play-shakthidharan.html
 
-**When a Smart House Turns Evil**\
-`In Mason Coile’s new horror novel, “William,” an intelligent robot begins to lead its feckless creator to terrible places in the name of “freedom.”`\
-https://nytimes.com/2024/09/07/books/review/william-mason-coile.html
+**New Images of Mercury Show Speckled Surface in Sharp Detail**\
+`BepiColombo, a joint European-Japanese mission, completed its latest flyby of Mercury, sending back a sneak peek of the cratered planet it will begin to orbit in 2026.`\
+https://nytimes.com/2024/09/07/science/mercury-images-bepicolombo.html
 
-**Nicole Eisenman at the Tipping Point**\
-`As the artist prepares for a major exhibition in Madison Square Park, Eisenman takes stock of the winding path to fame. What is gained and what is lost when your art is political?`\
-https://nytimes.com/2024/09/07/arts/design/nicole-eisenman-fixed-crane.html
+**Art Museum Etiquette for Dummies (and Overthinkers)**\
+`An illustrated guide to seeing a blockbuster exhibition like Hiroshige at the Brooklyn Museum. For starters, don’t go on opening day.`\
+https://nytimes.com/2024/09/07/arts/museum-etiquette-dummies.html
 
-**Broken Again. A National Advocate for Drug Recovery Relapses.**\
-`William Cope Moyers told the world he had it all figured out after beating his addiction to crack cocaine. But then a dentist gave him an opioid pain killer.`\
-https://nytimes.com/2024/09/07/health/addiction-opiates-moyers.html
+**Trump Claims Harris’s Rallies Are Smaller. We Counted.**\
+`We took photographs, captured 360-degree video and counted attendees at six recent rallies to analyze which of the candidates’ claims on crowd sizes hold weight.`\
+https://nytimes.com/interactive/2024/09/07/us/politics/harris-trump-rally-crowds-size.html
 
-**Mushroom-Laced Candy Recall Highlights F.D.A.’s Limited Safety Role**\
-`More than 150 people were sickened from products sold at smoke and vape shops, providing evidence of the lax regulation of new food items.`\
-https://nytimes.com/2024/09/07/health/fda-mushrooms-psychedelic-side-effects.html
+**Russia Secretly Worms Its Way Into America’s Conservative Media**\
+`Federal prosecutors say Russia paid an American media company to push pro-Kremlin messages from social media influencers including Benny Johnson, Tim Pool and Dave Rubin.`\
+https://nytimes.com/2024/09/07/business/media/russia-tenet-media-tim-pool.html
 
-**What Is That Song in ‘Beetlejuice Beetlejuice’?**\
-`Meet the new “Day-O”: Richard Harris’s 1968 psychedelic pop hit “MacArthur Park,” which Donna Summer remade as a disco anthem.`\
-https://nytimes.com/2024/09/07/movies/macarthur-park-song-beetlejuice-beetlejuice.html
+**Heritage Foundation Spreads Deceptive Videos About Noncitizen Voters**\
+`The right-wing think tank has been pushing misinformation about voting into social media feeds. The Georgia secretary of state’s office called one video “a stunt.”`\
+https://nytimes.com/2024/09/07/us/politics/heritage-foundation-2024-campaign-immigration.html
 
-**In Threatened Island Nation, Pope Hears Plea for Climate Action**\
-`Pope Francis is visiting Papua New Guinea, which has been exploited for its natural resources and is imperiled by rising sea levels.`\
-https://nytimes.com/2024/09/07/world/asia/pope-francis-papua-new-guinea-climate-change.html
+**The Pivotal Decision That Led to a Resurgence of Polio**\
+`In 2016, the global health authorities removed a type of poliovirus from the oral vaccine. The virus caused a growing number of outbreaks and has now arrived in Gaza.`\
+https://nytimes.com/2024/09/07/health/polio-vaccine-gaza-children.html
 
