@@ -1,3 +1,7 @@
+**Andre Agassi and the revelations of a tennis Sphinx**\
+`In the back of a car stuck in New York City traffic, the American legend explains it all`\
+https://nytimes.com/athletic/5751220/2024/09/07/andre-agassi/
+
 **Former Clemson WR Diondre Overton dies at 26**\
 `Overton played for Clemson from 2016 to 2019 and won two national championships with the Tigers.`\
 https://nytimes.com/athletic/5751875/2024/09/07/diondre-overton-dies-clemson/
