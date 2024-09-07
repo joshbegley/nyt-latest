@@ -1,3 +1,7 @@
+**Georgia football takeaways: Bulldogs get the easy win they needed before SEC play begins**\
+`After the throttling of Clemson, Saturday's game served a different purpose: Georgia got the reps, and Tennessee Tech got the check.`\
+https://nytimes.com/athletic/5752216/2024/09/07/georgia-football-uga-takeaways/
+
 **College Football Playoff 2024 projections: Miami in, LSU out of our 12-team bracket**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/09/07/college-football-playoff-projections-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5744435/2024/09/07/wrexham-shrewsbury-palmer-parkin
 **Brit Stojsavljevic wins U.S. Open Junior girls title**\
 `Mika Stojsavljevic is the U.`\
 https://nytimes.com/athletic/5752010/2024/09/07/mika-stojsavljevic-us-open-juniors/
-
-**Murray, Nuggets reach 4-year, $209M extension**\
-`Murray averaged 21.2 points, 6.5 assists and 4.1 rebounds last season.`\
-https://nytimes.com/athletic/5752039/2024/09/07/jamal-murray-contract-extension-nuggets/
 
