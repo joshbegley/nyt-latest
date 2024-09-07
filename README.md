@@ -1,3 +1,7 @@
+**Republic of Ireland 0 England 2: Rice and Grealish defy boos, Gordon's pace proves key**\
+`England beat the Republic of Ireland 2-0 in their Nations League group fixture to give interim manager Lee Carsley a dream start.`\
+https://nytimes.com/athletic/5750337/2024/09/07/republic-of-ireland-0-england-2-rice-grealish-boos-anthem/
+
 **Family of American Slain in the West Bank Demands an Independent Probe**\
 `With witnesses and Palestinian officials accusing Israeli soldiers of firing the fatal shots, “an Israeli investigation is not adequate,” the family said in a statement.`\
 https://nytimes.com/2024/09/07/world/middleeast/american-slain-west-bank-eygi.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5751571/2024/09/07/packers-brazil-jaire-alexander-j
 **None of Trump’s Economic ‘Solutions’ Hold Any Water**\
 `Trump has only two answers to every problem: tariffs and mass deportation.`\
 https://nytimes.com/2024/09/07/opinion/trump-economy-deportation.html
-
-**Finger Food for Dinner**\
-`Think Mexican hot dogs, peel and eat shrimp and milk bread rolls.`\
-https://nytimes.com/2024/09/07/dining/finger-food-for-dinner.html
 
