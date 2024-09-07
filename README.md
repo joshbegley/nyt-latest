@@ -1,3 +1,7 @@
+**Court Says No to Guns in Parks and Bars. Banks and Hospitals? Yes.**\
+`California and Hawaii banned guns from various public venues. A federal appeals court dusted off the history books to help determine where to allow prohibitions.`\
+https://nytimes.com/2024/09/06/us/california-gun-laws-court.html
+
 **Georgia Tests a Novel Tactic in School Shootings: Putting Parents on Trial**\
 `After four people were killed at Apalachee High School, prosecutors charged a student and his father, who officials say had given the boy the gun as a gift.`\
 https://nytimes.com/2024/09/06/us/georgia-school-shooting-parents-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/06/health/bird-flu-missouri-cdc.html
 **Kara Young Charms in ‘Table 17,’ a Rom-Com That Believes in True Love**\
 `The Tony winner leads a top-notch cast in Zhailon Levingston’s alluringly designed production of Douglas Lyons’s hopeful new play.`\
 https://nytimes.com/2024/09/06/theater/table-17-review-kara-young.html
-
-**Sergio Mendes: 10 Essential Songs**\
-`The bandleader and musician, who died on Thursday at 83, was a bridge from Brazilian music to the world — and back.`\
-https://nytimes.com/2024/09/06/arts/music/sergio-mendes-songs.html
 
