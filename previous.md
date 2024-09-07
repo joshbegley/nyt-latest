@@ -1,3 +1,7 @@
+**Utah QB Cam Rising sustains right hand injury vs. Baylor**\
+`The seventh-year senior quarterback suffered an injury to his right throwing hand late in the second quarter against Baylor on Saturday.`\
+https://nytimes.com/athletic/5752281/2024/09/07/cam-rising-hand-injury-utah/
+
 **Chargers WR DJ Chark (hip) to start season on IR**\
 `The earliest Chark can return to game action is Week 6 at the Denver Broncos. The Chargers have a bye in Week 5.`\
 https://nytimes.com/athletic/5752215/2024/09/07/dj-chark-chargers-injured-reserve/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/07/us/norovirus-kalalau-hikers-hawaii.html
 **Texas proved it's a national title contender at Michigan. Can the Wolverines recover?**\
 `National title hopeful No. 3 Texas went to Ann Arbor and ran away from defending championship No. 10 Michigan 31-12. Here's what we learned.`\
 https://nytimes.com/athletic/5751991/2024/09/07/texas-michigan-score-college-football-playoff/
-
-**Wrexham 3 Shrewsbury 0: Patience crucial as Parkinson's side hit 42-year high in league**\
-`Wrexham beat Shrewsbury to go top of League One. Richard Sutcliffe analyses the key talking points from the day...`\
-https://nytimes.com/athletic/5744435/2024/09/07/wrexham-shrewsbury-palmer-parkinson-top-league-one/
 

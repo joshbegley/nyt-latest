@@ -1,3 +1,7 @@
+**Utah QB Cam Rising sustains right hand injury vs. Baylor**\
+`The seventh-year senior quarterback suffered an injury to his right throwing hand late in the second quarter against Baylor on Saturday.`\
+https://nytimes.com/athletic/5752281/2024/09/07/cam-rising-hand-injury-utah/
+
 **Chargers WR DJ Chark (hip) to start season on IR**\
 `The earliest Chark can return to game action is Week 6 at the Denver Broncos. The Chargers have a bye in Week 5.`\
 https://nytimes.com/athletic/5752215/2024/09/07/dj-chark-chargers-injured-reserve/
