@@ -1,3 +1,7 @@
+**Taylor Fritz beats good friend Frances Tiafoe in five sets to reach U.S. Open final**\
+`He has the chance to become the first major winner from the U.S. for 21 years.`\
+https://nytimes.com/athletic/5750746/2024/09/06/fritz-tiafoe-us-open-semifinal-result/
+
 **Slick field conditions hamper Eagles, Packers in Brazil**\
 `Players from both teams struggled to find consistent footing on the soccer field, which has hosted matches for the World Cup and Olympics.`\
 https://nytimes.com/athletic/5751302/2024/09/06/packers-eagles-field-conditions-nfl-brazil/
