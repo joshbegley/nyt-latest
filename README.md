@@ -1,3 +1,7 @@
+**Everything a Los Angeles Rams fan needs to know for Week 1**\
+`We know by now that every Rams season can vacillate from the strange to the extraordinary — and it's always interesting.`\
+https://nytimes.com/athletic/5746117/2024/09/07/los-angeles-rams-season-news-preview-2024/
+
 **Everything a Carolina Panthers fan needs to know for Week 1**\
 `An NFL season is 18 weeks of amazing athleticism and great theater, and it’s my privilege to try to capture it.`\
 https://nytimes.com/athletic/5746082/2024/09/07/carolina-panthers-season-news-preview-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/07/us/harris-trump-election
 **2 Books Celebrating Happy Marriages**\
 `Elizabeth Alexander and John Bayley loved their partners to the end.`\
 https://nytimes.com/2024/09/07/books/read-like-wind-recommendations.html
-
-**Hillary Clinton Has Advice on Debating Trump: ‘He Can Be Rattled’**\
-`The 2016 Democratic nominee fell short to Donald Trump, but she had strong debate moments against him. In an interview, she offered some thoughts for Kamala Harris.`\
-https://nytimes.com/2024/09/07/us/politics/hillary-clinton-debate-trump-harris.html
 
