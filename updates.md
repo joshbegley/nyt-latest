@@ -1,3 +1,7 @@
+**How Jesse Marsch looked to emulate the USMNT to coax more swagger from Canada**\
+`The national team's American coach faces the USMNT today and wants his players to take on more of the qualities demonstrated by their rivals`\
+https://nytimes.com/athletic/5751149/2024/09/07/marsch-canada-usmnt/
+
 **As Jessica Pegula faces down her first Grand Slam final, Kim Clijsters has some advice**\
 `As Jessica Pegula heads into her first Grand Slam final, the Belgian legend knows a little about what to do there.`\
 https://nytimes.com/athletic/5751187/2024/09/07/pegula-us-open-final-clijsters-sabalenka-preview/
