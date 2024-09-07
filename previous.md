@@ -1,3 +1,7 @@
+**Iowa State stuns Iowa with epic Cy-Hawk rally: What it means for both teams**\
+`When it mattered most, Iowa State came through to snag the Cy-Hawk Trophy in Iowa City for the second consecutive trip.`\
+https://nytimes.com/athletic/5752373/2024/09/07/iowa-iowa-state-cy-hawk-comeback/
+
 **‘Numerous’ People Shot on Kentucky Highway, Officials Say**\
 `How many people were shot and what led up to the shooting on I-75 near London, Ky., was not immediately clear.`\
 https://nytimes.com/2024/09/07/us/shooting-kentucky-exit-49.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5752284/2024/09/07/chicago-cubs-offense-postseason-
 **Mr. Greedy, Father to Many African Penguins at Maryland Zoo, Dies at 33**\
 `An African penguin who left many offspring in his long life, he belonged to the largest colony of the aquatic bird species in North America, according to the zoo.`\
 https://nytimes.com/2024/09/07/us/greedy-penguin-dies-maryland.html
-
-**USMNT 1 Canada 2 takeaways - Pochettino arrival can't come soon enough**\
-`A first home defeat to Canada since 1957 is another blow for a USMNT awaiting its new coach`\
-https://nytimes.com/athletic/5752298/2024/09/07/usmnt-1-canada-2-highlights/
 
