@@ -1,3 +1,7 @@
+**College Football Playoff 2024 projections: Miami in, LSU out of our 12-team bracket**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/09/07/college-football-playoff-projections-odds/
+
 **‘Room Next Door’ Claims Top Prize at Venice Film Festival**\
 `The film, starring Tilda Swinton and Julianne Moore, is the director Pedro Almodóvar’s English-language debut.`\
 https://nytimes.com/2024/09/07/arts/venice-film-festival-winner-room-next-door.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5752010/2024/09/07/mika-stojsavljevic-us-open-junio
 **Murray, Nuggets reach 4-year, $209M extension**\
 `Murray averaged 21.2 points, 6.5 assists and 4.1 rebounds last season.`\
 https://nytimes.com/athletic/5752039/2024/09/07/jamal-murray-contract-extension-nuggets/
-
-**Penn State takeaways: Why did the defense struggle early, who led the explosive offense?**\
-`Penn State's defense struggled in the first half, but the Nittany Lions' shut down Bowling Green in the second half to pull away.`\
-https://nytimes.com/athletic/5751878/2024/09/07/penn-state-defense-bowling-green/
 
