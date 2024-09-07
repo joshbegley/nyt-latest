@@ -1,3 +1,7 @@
+**Trump Urges Police Officers to Watch for Voter Fraud**\
+`Speaking to the national board of the Fraternal Order of Police, former President Donald J. Trump made an appeal that could run afoul of state laws and prompt accusations of voter intimidation.`\
+https://nytimes.com/2024/09/06/us/politics/trump-police-voter-fraud.html
+
 **3 Die Amid Outbreak of Legionnaires’ Disease at an Assisted Living Home**\
 `Twenty-five people connected to the home, in Albany, N.Y., have been hospitalized amid the outbreak, officials said.`\
 https://nytimes.com/2024/09/06/nyregion/legionnaires-disease-outbreak-albany.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/06/opinion/school-shooting-georgia-dad-arrested.html
 **Ravens-Chiefs ranks as most-watched season opener ever**\
 `The game topped viewership for last year’s season opener (27.5 million for Detroit Lions-Chiefs) by five percent.`\
 https://nytimes.com/athletic/5751178/2024/09/06/ravens-chiefs-tv-ratings-nfl-nbc/
-
-**Missouri Reports Bird Flu in a Patient Without a Known Risk**\
-`Previous human infections occurred in workers on farms. But community transmission of the virus remains unlikely for now, experts said.`\
-https://nytimes.com/2024/09/06/health/bird-flu-missouri-cdc.html
 
