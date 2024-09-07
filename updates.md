@@ -1,3 +1,11 @@
+**Meek: Michigan's new era begins with Texas razing Big House**\
+`Michigan fans should console themselves thinking about their championship trophy. But that will only last for so long.`\
+https://nytimes.com/athletic/5752299/2024/09/07/michigan-texas-loss-sherrone-moore/
+
+**College Football Playoff 2024 projections: Notre Dame CFP hopes take big hit from NIU**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/09/07/college-football-playoff-projections-odds/
+
 **Notre Dame suffers stunning upset to NIU: How did everything go so wrong for Irish?**\
 `NIU beat Notre Dame 16-14 on a last-minute field goal on Saturday. Here's what went wrong, what we learned and what's next.`\
 https://nytimes.com/athletic/5752234/2024/09/07/notre-dame-northern-illinois-upset-college-football/

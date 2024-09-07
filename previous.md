@@ -1,6 +1,14 @@
+**Meek: Michigan's new era begins with Texas razing Big House**\
+`Michigan fans should console themselves thinking about their championship trophy. But that will only last for so long.`\
+https://nytimes.com/athletic/5752299/2024/09/07/michigan-texas-loss-sherrone-moore/
+
 **Notre Dame suffers stunning upset to NIU: How did everything go so wrong for Irish?**\
 `NIU beat Notre Dame 16-14 on a last-minute field goal on Saturday. Here's what went wrong, what we learned and what's next.`\
 https://nytimes.com/athletic/5752234/2024/09/07/notre-dame-northern-illinois-upset-college-football/
+
+**College Football Playoff 2024 projections: Notre Dame CFP hopes take big hit from NIU**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/09/07/college-football-playoff-projections-odds/
 
 **Even in win, Wisconsin raises questions about readiness for Alabama visit**\
 `It's hard to feel particularly confident Wisconsin is capable of pulling off a win vs. Alabama given what it has shown through two games.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5752298/2024/09/07/usmnt-1-canada-2-highlights/
 **Vannini: Texas' Quinn Ewers stakes his claim as the top quarterback in the nation**\
 `It’s time to consider Texas as a No. 1-ranked team. It’s time to consider Ewers the early Heisman Trophy leader.`\
 https://nytimes.com/athletic/5752287/2024/09/07/texas-quinn-ewers-arch-manning-heisman/
-
-**Life Milestones**\
-`Meghan Morris’s Sunday puzzle asks us to save the date(s).`\
-https://nytimes.com/2024/09/07/crosswords/daily-puzzle-2024-09-08.html
-
-**Lee Carsley lives for coaching - but anthem furore shows England job has another side to it**\
-`Lee Carsley was coaching before kick-off, reviewing notes on the pitch at half-time and generally in his element despite fierce criticism`\
-https://nytimes.com/athletic/5750920/2024/09/07/lee-carsley-england-coaching-anthem/
 
