@@ -1,3 +1,7 @@
+**Mark Vientos walks it off as the Mets' magical summer continues**\
+`It all feels a bit like late-summer magic, the kind that has sprinkled in Queens during the most memorable of seasons for the franchise.`\
+https://nytimes.com/athletic/5751354/2024/09/07/mark-vientos-walk-off-mets/
+
 **David Pleat on 40 years at Tottenham, helping Levy 'learn the ropes' and signing Dele Alli**\
 `Pleat is in a unique position having worked closely with Irving Scholar, Alan Sugar and Daniel Levy - the three men who have chaired Spurs`\
 https://nytimes.com/athletic/5731742/2024/09/07/tottenham-pleat-levy-sugar-hoddle-dele/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/07/world/asia/indonesia-catholic-priests-exports.htm
 **Iowa State at Iowa picks, odds, how to watch: Will anyone crack 20 for the Cy-Hawk?**\
 `Iowa State travels to Kinnick Stadium to take on rival Iowa in a game with the lowest betting total of the week.`\
 https://nytimes.com/athletic/5748086/2024/09/07/iowa-state-iowa-picks-odds-how-to-watch/
-
-**Saturday's MLB odds, best bets: Projections for pitching matchups, playoffs and more**\
-`See pitching matchups, playoff projections, win projections and more for Saturday's MLB games.`\
-https://nytimes.com/athletic/5750998/2024/09/07/mlb-odds-best-bets-projections-september-7/
 
