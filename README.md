@@ -1,3 +1,11 @@
+**Life Milestones**\
+`Meghan Morris’s Sunday puzzle asks us to save the date(s).`\
+https://nytimes.com/2024/09/07/crosswords/daily-puzzle-2024-09-08.html
+
+**Lee Carsley lives for coaching - but anthem furore shows England job has another side to it**\
+`Lee Carsley was coaching before kick-off, reviewing notes on the pitch at half-time and generally in his element despite fierce criticism`\
+https://nytimes.com/athletic/5750920/2024/09/07/lee-carsley-england-coaching-anthem/
+
 **Utah QB Cam Rising sustains right hand injury vs. Baylor**\
 `The seventh-year senior quarterback suffered an injury to his right throwing hand late in the second quarter against Baylor on Saturday.`\
 https://nytimes.com/athletic/5752281/2024/09/07/cam-rising-hand-injury-utah/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5752157/2024/09/07/jordan-love-packers-knee-injury-
 **How does college football's overtime format work?**\
 `Overtime was introduced in 1995 and the first game to ever go into overtime was the 1995 Las Vegas Bowl featuring Toledo and Nevada.`\
 https://nytimes.com/athletic/5736518/2024/09/07/college-football-overtime-rules-explained/
-
-**Dozens Fall Ill on Hawaii Hiking Trail in ‘Concerning’ Outbreak of Norovirus**\
-`Four people tested positive for the virus, which causes a highly contagious gastrointestinal illness, officials said. The trail was recommended to remain closed until at least Sept. 19.`\
-https://nytimes.com/2024/09/07/us/norovirus-kalalau-hikers-hawaii.html
-
-**Texas proved it's a national title contender at Michigan. Can the Wolverines recover?**\
-`National title hopeful No. 3 Texas went to Ann Arbor and ran away from defending championship No. 10 Michigan 31-12. Here's what we learned.`\
-https://nytimes.com/athletic/5751991/2024/09/07/texas-michigan-score-college-football-playoff/
 
