@@ -1,3 +1,7 @@
+**Chargers WR DJ Chark (hip) to start season on IR**\
+`The earliest Chark can return to game action is Week 6 at the Denver Broncos. The Chargers have a bye in Week 5.`\
+https://nytimes.com/athletic/5752215/2024/09/07/dj-chark-chargers-injured-reserve/
+
 **Georgia football takeaways: Bulldogs get the easy win they needed before SEC play begins**\
 `After the throttling of Clemson, Saturday's game served a different purpose: Georgia got the reps, and Tennessee Tech got the check.`\
 https://nytimes.com/athletic/5752216/2024/09/07/georgia-football-uga-takeaways/

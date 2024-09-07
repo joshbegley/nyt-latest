@@ -1,3 +1,7 @@
+**Chargers WR DJ Chark (hip) to start season on IR**\
+`The earliest Chark can return to game action is Week 6 at the Denver Broncos. The Chargers have a bye in Week 5.`\
+https://nytimes.com/athletic/5752215/2024/09/07/dj-chark-chargers-injured-reserve/
+
 **Georgia football takeaways: Bulldogs get the easy win they needed before SEC play begins**\
 `After the throttling of Clemson, Saturday's game served a different purpose: Georgia got the reps, and Tennessee Tech got the check.`\
 https://nytimes.com/athletic/5752216/2024/09/07/georgia-football-uga-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5751991/2024/09/07/texas-michigan-score-college-foo
 **Wrexham 3 Shrewsbury 0: Patience crucial as Parkinson's side hit 42-year high in league**\
 `Wrexham beat Shrewsbury to go top of League One. Richard Sutcliffe analyses the key talking points from the day...`\
 https://nytimes.com/athletic/5744435/2024/09/07/wrexham-shrewsbury-palmer-parkinson-top-league-one/
-
-**Brit Stojsavljevic wins U.S. Open Junior girls title**\
-`Mika Stojsavljevic is the U.`\
-https://nytimes.com/athletic/5752010/2024/09/07/mika-stojsavljevic-us-open-juniors/
 
