@@ -1,3 +1,11 @@
+**Israel Strikes School-Turned-Shelter in Series of Attacks in Gaza**\
+`Israel said it had launched a “precision strike” against Hamas militants operating from a school compound in northern Gaza. Local medics said several people sheltering in tents there were killed.`\
+https://nytimes.com/2024/09/07/world/middleeast/israel-gaza-hamas-war.html
+
+**The U.S. Open Concludes**\
+`Let us consider the grief of the lapsed sports fan.`\
+https://nytimes.com/2024/09/07/briefing/the-us-open-concludes.html
+
 **Online Credit Unions Offering High Interest Rates on Savings May Be Fakes**\
 `Ontario’s financial regulator has issued warnings about three websites illegally claiming to be credit unions, but it is powerless to close them.`\
 https://nytimes.com/2024/09/07/world/canada/fraud-credit-union-ottawa.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5740520/2024/09/07/rookie-quarterbacks-start-sit-ja
 **The Connections Companion No. 455**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Sept. 8, 2024.`\
 https://nytimes.com/2024/09/07/crosswords/connections-companion-455.html
-
-**Wordle Review No. 1,177**\
-`Scroll down for hints and conversation about the puzzle for Sunday, September 8, 2024.`\
-https://nytimes.com/2024/09/07/crosswords/wordle-review-1177.html
-
-**Carsley explains national anthem stance ahead of Republic of Ireland vs England**\
-`Lee Carsley says he will not sing the national anthem before England&#8217;s game with the Republic of Ireland on Saturday and intends to instead be &#8220;focused on the football&#8221;.`\
-https://nytimes.com/athletic/5751622/2024/09/07/lee-carsley-national-anthem-england-ireland/
 
