@@ -1,3 +1,11 @@
+**Israel Strikes School-Turned-Shelter in Series of Attacks in Gaza**\
+`Israel said it had launched a “precision strike” against Hamas militants operating from a school compound in northern Gaza. Local medics said several people sheltering in tents there were killed.`\
+https://nytimes.com/2024/09/07/world/middleeast/israel-gaza-hamas-war.html
+
+**The U.S. Open Concludes**\
+`Let us consider the grief of the lapsed sports fan.`\
+https://nytimes.com/2024/09/07/briefing/the-us-open-concludes.html
+
 **Online Credit Unions Offering High Interest Rates on Savings May Be Fakes**\
 `Ontario’s financial regulator has issued warnings about three websites illegally claiming to be credit unions, but it is powerless to close them.`\
 https://nytimes.com/2024/09/07/world/canada/fraud-credit-union-ottawa.html
