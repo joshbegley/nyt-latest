@@ -1,3 +1,7 @@
+**Twins' Royce Lewis optimistic about learning from struggles as season drags on**\
+`“I've learned a lot about getting pulled in different directions and how to manage and handle that,” Lewis said.`\
+https://nytimes.com/athletic/5751375/2024/09/06/twins-royce-lewis-optimistic/
+
 **Can Trevor Story's return be a lesson for the Red Sox in beating longshot odds?**\
 `Cora hopes Story's imminent return to the Red Sox's active roster will serve as inspiration for a club facing an uphill postseason climb.`\
 https://nytimes.com/athletic/5751339/2024/09/06/red-sox-trevor-story-return/

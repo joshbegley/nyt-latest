@@ -1,3 +1,7 @@
+**Twins' Royce Lewis optimistic about learning from struggles as season drags on**\
+`“I've learned a lot about getting pulled in different directions and how to manage and handle that,” Lewis said.`\
+https://nytimes.com/athletic/5751375/2024/09/06/twins-royce-lewis-optimistic/
+
 **Can Trevor Story's return be a lesson for the Red Sox in beating longshot odds?**\
 `Cora hopes Story's imminent return to the Red Sox's active roster will serve as inspiration for a club facing an uphill postseason climb.`\
 https://nytimes.com/athletic/5751339/2024/09/06/red-sox-trevor-story-return/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/06/us/politics/trump-police-voter-fraud.html
 **3 Die Amid Outbreak of Legionnaires’ Disease at an Assisted Living Home**\
 `Twenty-five people connected to the home, in Albany, N.Y., have been hospitalized amid the outbreak, officials said.`\
 https://nytimes.com/2024/09/06/nyregion/legionnaires-disease-outbreak-albany.html
-
-**California Can Ban Guns in Parks and Bars, but Not Hospitals, Court Says**\
-`California and Hawaii banned guns from various public venues. A federal appeals court dusted off the history books to help determine where to allow prohibitions.`\
-https://nytimes.com/2024/09/06/us/california-gun-laws-court.html
 
