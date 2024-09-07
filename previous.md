@@ -1,3 +1,23 @@
+**Queens Is Abuzz Over Two Americans in the U.S. Open Finals**\
+`For the first time in more than two decades, an American man and an American woman will play in the U.S. Open singles finals.`\
+https://nytimes.com/2024/09/07/nyregion/us-open-tiafoe-fritz-pegula.html
+
+**F1’s Carlos Sainz embraces final races as a Ferrari driver: "No one can take that away"**\
+`In an exclusive interview ahead of his final Italian GP with Ferrari, Sainz took a look back at his time in red and his Williams move.`\
+https://nytimes.com/athletic/5750603/2024/09/07/f1-carlos-sainz-ferrari-driver-interview-italian-gp/
+
+**At the U.S. Open, Hourly-Wage Ushers Corral the Well-Heeled Crowds**\
+`Since fans often must wait until breaks between games to enter, employees in blue shirts have the dicey task of holding them back for several excruciating minutes until play is paused.`\
+https://nytimes.com/2024/09/07/nyregion/us-open-ushers.html
+
+**How a Celebrity Hairstylist Spends His Sundays**\
+`Jerome Lordet grabs a scooter to get around the city and make house calls for his famous clients.`\
+https://nytimes.com/2024/09/07/nyregion/how-a-celebrity-hairstylist-spends-his-sundays.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/07/crosswords/spelling-bee-forum.html
+
 **Italy lean on Premier League contingent to end Luciano Spalletti's cruel summer**\
 `The Azzurri secured a first win in France for 70 years with Sandro Tonali, Riccardo Calafiori and Destiny Udogie all playing their part`\
 https://nytimes.com/athletic/5751008/2024/09/07/italy-tonali-calafiori-udogie-spalletti-france/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5751461/2024/09/07/indiana-fever-caitlin-clark-minn
 **Missouri Judge Rules That Abortion Ballot Measure Is Invalid**\
 `But abortion rights groups hope an appeals court will reverse the ruling before the Tuesday deadline to print the state ballots.`\
 https://nytimes.com/2024/09/07/us/missouri-abortion-ballot-measure-invalid.html
-
-**Mark Vientos walks it off as the Mets' magical summer continues**\
-`It all feels a bit like late-summer magic, the kind that has sprinkled in Queens during the most memorable of seasons for the franchise.`\
-https://nytimes.com/athletic/5751354/2024/09/07/mark-vientos-walk-off-mets/
-
-**David Pleat on 40 years at Tottenham, helping Levy 'learn the ropes' and signing Dele Alli**\
-`Pleat is in a unique position having worked closely with Irving Scholar, Alan Sugar and Daniel Levy - the three men who have chaired Spurs`\
-https://nytimes.com/athletic/5731742/2024/09/07/tottenham-pleat-levy-sugar-hoddle-dele/
-
-**Jordan Love exits in final seconds with apparent injury**\
-`Love left the field with the help of team doctor Pat McKenzie and trainer Nate Weir.`\
-https://nytimes.com/athletic/5751438/2024/09/07/packers-jordan-love-injury/
-
-**Jarred Kelenic has shown flashes, but his first season with Braves is underwhelming**\
-`So far, Kelenic remains an inconsistent and "toolsy" former top prospect.`\
-https://nytimes.com/athletic/5751398/2024/09/07/braves-win-blue-jays-jarred-kelenic-underwhelming/
-
-**How Birmingham shattered transfer records - and left English football in shock**\
-`A summer outlay of up to £25m is unheard of in League One but this is just the start of the club's ambitious plan `\
-https://nytimes.com/athletic/5743749/2024/09/07/birmingham-city-transfer-window-spend/
 
