@@ -1,3 +1,7 @@
+**Jarred Kelenic has shown flashes, but his first season with Braves is underwhelming**\
+`So far, Kelenic remains an inconsistent and "toolsy" former top prospect.`\
+https://nytimes.com/athletic/5751398/2024/09/07/braves-win-blue-jays-jarred-kelenic-underwhelming/
+
 **David Pleat on 40 years at Tottenham, helping Levy 'learn the ropes' and signing Dele Alli**\
 `Pleat is in a unique position having worked closely with Irving Scholar, Alan Sugar and Daniel Levy - the three men who have chaired Spurs`\
 https://nytimes.com/athletic/5731742/2024/09/07/tottenham-pleat-levy-sugar-hoddle-dele/
