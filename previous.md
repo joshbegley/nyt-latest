@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/09/07/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Trump Goes to Wisconsin, Aiming to Focus on the Economy**\
+`After a busy day in court and talking to reporters, the former president returns to a key swing state. Gov. Tim Walz of Minnesota, the Democratic vice-presidential nominee, plans to address a gay rights group.`\
+https://nytimes.com/live/2024/09/07/us/harris-trump-election
+
 **2 Books Celebrating Happy Marriages**\
 `Elizabeth Alexander and John Bayley loved their partners to the end.`\
 https://nytimes.com/2024/09/07/books/read-like-wind-recommendations.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5741755/2024/09/07/calgary-flames-prospect-andrew-b
 **Broncos predictions: Bo Nix's line, No. 2 receiver projection, record and more**\
 `Why the Broncos are better than oddsmakers believe, but not yet ready to make a playoff leap.`\
 https://nytimes.com/athletic/5749953/2024/09/07/broncos-predictions-2024/
-
-**Shocked by Extreme Storms, a Maine Fishing Town Fights to Save Its Waterfront**\
-`After two devastating storms hit Stonington in January, plans are multiplying to raise and fortify wharves, roads and buildings. But will that be enough?`\
-https://nytimes.com/2024/09/07/us/maine-stonington-fishermen-storms.html
-
-**Iran Has Sent Short-Range Missiles to Russia, Western Officials Say**\
-`U.S. and European countries had warned of sanctions if Iran provided weapons that could be used against Ukraine. President Biden’s lame-duck status could hamper a response.`\
-https://nytimes.com/2024/09/07/world/europe/iran-russia-missiles-ukraine.html
 

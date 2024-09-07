@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/09/07/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Trump Goes to Wisconsin, Aiming to Focus on the Economy**\
+`After a busy day in court and talking to reporters, the former president returns to a key swing state. Gov. Tim Walz of Minnesota, the Democratic vice-presidential nominee, plans to address a gay rights group.`\
+https://nytimes.com/live/2024/09/07/us/harris-trump-election
+
 **2 Books Celebrating Happy Marriages**\
 `Elizabeth Alexander and John Bayley loved their partners to the end.`\
 https://nytimes.com/2024/09/07/books/read-like-wind-recommendations.html
