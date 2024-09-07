@@ -1,3 +1,7 @@
+**‘Numerous’ People Shot on Kentucky Highway, Officials Say**\
+`How many people were shot and what led up to the shooting on I-75 near London, Ky., was not immediately clear.`\
+https://nytimes.com/2024/09/07/us/shooting-kentucky-exit-49.html
+
 **Meek: Michigan's new era begins with Texas razing Big House**\
 `Michigan fans should console themselves thinking about their championship trophy. But that will only last for so long.`\
 https://nytimes.com/athletic/5752299/2024/09/07/michigan-texas-loss-sherrone-moore/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/07/us/greedy-penguin-dies-maryland.html
 **USMNT 1 Canada 2 takeaways - Pochettino arrival can't come soon enough**\
 `A first home defeat to Canada since 1957 is another blow for a USMNT awaiting its new coach`\
 https://nytimes.com/athletic/5752298/2024/09/07/usmnt-1-canada-2-highlights/
-
-**Vannini: Texas' Quinn Ewers stakes his claim as the top quarterback in the nation**\
-`It’s time to consider Texas as a No. 1-ranked team. It’s time to consider Ewers the early Heisman Trophy leader.`\
-https://nytimes.com/athletic/5752287/2024/09/07/texas-quinn-ewers-arch-manning-heisman/
 
