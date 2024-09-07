@@ -1,3 +1,11 @@
+**Packers' season hinges on health of Jordan Love's left leg: Schneidman**\
+`Love's left leg bent awkwardly under defensive lineman Jalen Carter on the third-to-last play of the season opener in Brazil.`\
+https://nytimes.com/athletic/5751492/2024/09/07/packers-jordan-love-leg-injury/
+
+**Typhoon Yagi Approaches Vietnam After Pummeling Southern China**\
+`The storm is on track to become the most powerful to make landfall in northern Vietnam, where one person has died. Two were killed on the Chinese island of Hainan.`\
+https://nytimes.com/2024/09/07/world/asia/typhoon-yagi-vietnam-china.html
+
 **Indiana Fever loss to Minnesota Lynx offers Caitlin Clark a chance to grow as a leader**\
 `"I need my point guard to have a cool head," Fever coach Christie Sides said of Clark.`\
 https://nytimes.com/athletic/5751461/2024/09/07/indiana-fever-caitlin-clark-minnesota-lynx/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5743749/2024/09/07/birmingham-city-transfer-window-
 **Taylor Fritz beats good friend Frances Tiafoe in five sets to reach U.S. Open final**\
 `He has the chance to become the first major winner from the U.S. for 21 years.`\
 https://nytimes.com/athletic/5750746/2024/09/07/fritz-tiafoe-us-open-semifinal-result/
-
-**Are England really entering a new era?**\
-`The real test of whether Carsley's first game in charge is a fresh start or not will come over the next few months`\
-https://nytimes.com/athletic/5747362/2024/09/07/england-lee-carsley-manager-new-era/
-
-**Why Osimhen ended up moving to Galatasaray after Chelsea, PSG and Saudi interest**\
-`Osimhen has been highly-coveted yet ended the summer transfer window with a loan move to Galatasaray in the 10th-ranked Turkish league`\
-https://nytimes.com/athletic/5747630/2024/09/07/victor-osimhen-transfer-galatasaray-chelsea-psg/
 
