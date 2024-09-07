@@ -10,6 +10,10 @@ https://nytimes.com/2024/09/07/us/politics/trump-rally-wisconsin.html
 `When it mattered most, Iowa State came through to snag the Cy-Hawk Trophy in Iowa City for the second consecutive trip.`\
 https://nytimes.com/athletic/5752373/2024/09/07/iowa-iowa-state-cy-hawk-comeback/
 
+**Game, Set, Match: Aryna Sabalenka beats Jessica Pegula to win U.S. Open**\
+`The Belarusian recovered from last year's final defeat to Coco Gauff to win in straight sets`\
+https://nytimes.com/athletic/5752164/2024/09/07/sabalenka-pegula-us-open-final-result-analysis/
+
 **‘Numerous’ People Shot on Kentucky Highway, Officials Say**\
 `How many people were shot and what led up to the shooting on I-75 near London, Ky., was not immediately clear.`\
 https://nytimes.com/2024/09/07/us/shooting-kentucky-highway.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5752326/2024/09/07/wisconsin-football-south-dakota-
 **Salmonella Outbreak Prompts Egg Recall by Wisconsin Farm**\
 `Officials said 65 people in nine states have been infected in the outbreak, which has been traced to an egg farm. No deaths have been reported.`\
 https://nytimes.com/2024/09/07/us/egg-recall-salmonella-outbreak-wisconsin.html
-
-**Game, Set, Match: Aryna Sabalenka beats Jessica Pegula to win U.S. Open**\
-`The Belarusian recovered from last year's final defeat to Coco Gauff to win in straight sets`\
-https://nytimes.com/athletic/5752164/2024/09/07/sabalenka-pegula-us-open-final-result-analysis/
 
