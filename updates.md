@@ -1,3 +1,7 @@
+**As Jessica Pegula faces down her first Grand Slam final, Kim Clijsters has some advice**\
+`As Jessica Pegula heads into her first Grand Slam final, the Belgian legend knows a little about what to do there.`\
+https://nytimes.com/athletic/5751187/2024/09/07/pegula-us-open-final-clijsters-sabalenka-preview/
+
 **U.S. Open semifinals recap: The strangest point of the tournament so far**\
 `On the twelfth day of the tournament, the strangest point so far, and a Paralympic shock`\
 https://nytimes.com/athletic/5751173/2024/09/07/us-open-recap-sinner-draper-point-ostapenko-kichenok/
