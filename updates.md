@@ -1,3 +1,7 @@
+**Change Can Be Beautiful. Just Ask Will and Harper.**\
+`The superstar comedian and his best friend and collaborator discuss the journey that deepened their friendship.`\
+https://nytimes.com/2024/09/07/magazine/will-ferrell-harper-steele-interview.html
+
 **If a Threat Is Not a Crime, Can the Police Prevent a School Shooting?**\
 `Officers are limited in their response to a possible threat of violence, but they are being trained to identify and monitor worrisome behavior earlier.`\
 https://nytimes.com/2024/09/07/us/police-school-shootings.html
