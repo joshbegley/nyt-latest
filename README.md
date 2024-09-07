@@ -1,3 +1,7 @@
+**What went wrong for Notre Dame in a stunning upset loss to Northern Illinois**\
+`NIU beat Notre Dame 16-14 on a last-minute field goal on Saturday. Here's what went wrong, what we learned and what's next.`\
+https://nytimes.com/athletic/5752234/2024/09/07/notre-dame-northern-illinois-upset-college-football/
+
 **Even in win, Wisconsin raises questions about readiness for Alabama visit**\
 `It's hard to feel particularly confident Wisconsin is capable of pulling off a win vs. Alabama given what it has shown through two games.`\
 https://nytimes.com/athletic/5752326/2024/09/07/wisconsin-football-south-dakota-alabama/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/07/crosswords/daily-puzzle-2024-09-08.html
 **Lee Carsley lives for coaching - but anthem furore shows England job has another side to it**\
 `Lee Carsley was coaching before kick-off, reviewing notes on the pitch at half-time and generally in his element despite fierce criticism`\
 https://nytimes.com/athletic/5750920/2024/09/07/lee-carsley-england-coaching-anthem/
-
-**Utah QB Cam Rising sustains right hand injury vs. Baylor**\
-`The seventh-year senior quarterback suffered an injury to his right throwing hand late in the second quarter against Baylor on Saturday.`\
-https://nytimes.com/athletic/5752281/2024/09/07/cam-rising-hand-injury-utah/
 
