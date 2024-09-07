@@ -1,3 +1,7 @@
+**Packers' Love to miss weeks with MCL sprain**\
+`Jordan Love sustained the injury with five seconds left in the game as he was under duress while trying to throw a Hail Mary.`\
+https://nytimes.com/athletic/5752157/2024/09/07/jordan-love-packers-knee-injury-mcl/
+
 **How does college football's overtime format work?**\
 `Overtime was introduced in 1995 and the first game to ever go into overtime was the 1995 Las Vegas Bowl featuring Toledo and Nevada.`\
 https://nytimes.com/athletic/5736518/2024/09/07/college-football-overtime-rules-explained/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/07/us/politics/harris-trump-ad-abortion.html
 **Mets' McNeil (wrist) to miss rest of season**\
 `Jeff McNeil sustained a wrist fracture when he was hit on his wrist guard in Friday night's game against the Reds.`\
 https://nytimes.com/athletic/5752009/2024/09/07/jeff-mcneil-injury-out-season-mets/
-
-**Republic of Ireland 0 England 2: Rice and Grealish defy boos, Gordon's pace proves key**\
-`England beat the Republic of Ireland 2-0 in their Nations League group fixture to give interim manager Lee Carsley a dream start`\
-https://nytimes.com/athletic/5750337/2024/09/07/republic-of-ireland-0-england-2-rice-grealish-boos-anthem/
 

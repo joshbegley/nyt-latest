@@ -1,3 +1,7 @@
+**Packers' Love to miss weeks with MCL sprain**\
+`Jordan Love sustained the injury with five seconds left in the game as he was under duress while trying to throw a Hail Mary.`\
+https://nytimes.com/athletic/5752157/2024/09/07/jordan-love-packers-knee-injury-mcl/
+
 **How does college football's overtime format work?**\
 `Overtime was introduced in 1995 and the first game to ever go into overtime was the 1995 Las Vegas Bowl featuring Toledo and Nevada.`\
 https://nytimes.com/athletic/5736518/2024/09/07/college-football-overtime-rules-explained/
