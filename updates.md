@@ -1,3 +1,11 @@
+**None of Trump’s Economic ‘Solutions’ Hold Any Water**\
+`Trump has only two answers to every problem: tariffs and mass deportation.`\
+https://nytimes.com/2024/09/07/opinion/trump-economy-deportation.html
+
+**Finger Food for Dinner**\
+`Think Mexican hot dogs, peel and eat shrimp and milk bread rolls.`\
+https://nytimes.com/2024/09/07/dining/finger-food-for-dinner.html
+
 **‘Cow Vigilantes’ Have India’s Muslims on Edge**\
 `An unexpectedly narrow victory at the polls for Prime Minister Narendra Modi and his Hindu-first agenda has not cooled simmering sectarian tensions, as some had hoped.`\
 https://nytimes.com/2024/09/07/world/asia/india-religious-violence-muslims-modi.html
