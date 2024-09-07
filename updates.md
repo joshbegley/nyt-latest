@@ -1,3 +1,7 @@
+**College Football Playoff 2024 projections: Miami in, LSU out of our 12-team bracket**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/09/07/college-football-playoff-projections-odds/
+
 **‘Room Next Door’ Claims Top Prize at Venice Film Festival**\
 `The film, starring Tilda Swinton and Julianne Moore, is the director Pedro Almodóvar’s English-language debut.`\
 https://nytimes.com/2024/09/07/arts/venice-film-festival-winner-room-next-door.html
