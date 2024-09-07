@@ -1,3 +1,7 @@
+**Giants manager Bob Melvin defends his trio of hitting coaches: 'They've done a fantastic job'**\
+`The Giants are among the worst scoring teams during the first three innings, but Melvin says it's not from lack of preparation.`\
+https://nytimes.com/athletic/5751537/2024/09/07/giants-hitting-coaches-early-innings/
+
 **Street Artist Documents War in Ukraine, One Stark Mural at a Time**\
 `Using ruins as his canvas, Gamlet Zinkivskyi has captured life in wartime Ukraine in dozens of grim, gripping and harshly beautiful paintings. “Broken, but invincible,” read one captioned work.`\
 https://nytimes.com/2024/09/07/world/europe/kharkiv-ukraine-street-art.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5751008/2024/09/07/italy-tonali-calafiori-udogie-sp
 **Packers' season hinges on health of Jordan Love's left leg: Schneidman**\
 `Love's left leg bent awkwardly under defensive lineman Jalen Carter on the third-to-last play of the season opener in Brazil.`\
 https://nytimes.com/athletic/5751492/2024/09/07/packers-jordan-love-leg-injury/
-
-**Typhoon Yagi Approaches Vietnam After Pummeling Southern China**\
-`The storm is on track to become the most powerful to make landfall in northern Vietnam, where one person has died. Two were killed on the Chinese island of Hainan.`\
-https://nytimes.com/2024/09/07/world/asia/typhoon-yagi-vietnam-china.html
 

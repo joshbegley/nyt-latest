@@ -1,3 +1,7 @@
+**Giants manager Bob Melvin defends his trio of hitting coaches: 'They've done a fantastic job'**\
+`The Giants are among the worst scoring teams during the first three innings, but Melvin says it's not from lack of preparation.`\
+https://nytimes.com/athletic/5751537/2024/09/07/giants-hitting-coaches-early-innings/
+
 **Street Artist Documents War in Ukraine, One Stark Mural at a Time**\
 `Using ruins as his canvas, Gamlet Zinkivskyi has captured life in wartime Ukraine in dozens of grim, gripping and harshly beautiful paintings. “Broken, but invincible,” read one captioned work.`\
 https://nytimes.com/2024/09/07/world/europe/kharkiv-ukraine-street-art.html
