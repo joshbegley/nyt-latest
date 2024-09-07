@@ -1,3 +1,7 @@
+**Penn State takeaways: Why did Penn State's defense struggle early, who led explosive offense?**\
+`Penn State's defense struggled in the first half, but the Nittany Lions' shut down Bowling Green in the second half to pull away.`\
+https://nytimes.com/athletic/5751878/2024/09/07/penn-state-defense-bowling-green/
+
 **Harris Releases Ad Targeting Trump for Helping Overturn Roe v. Wade**\
 `The ad, which will run in several battleground states, comes as a growing share of voters say that abortion is their top issue.`\
 https://nytimes.com/2024/09/07/us/politics/harris-trump-ad-abortion.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5751885/2024/09/07/nascar-charter-agreement-extensi
 **Andre Agassi and the revelations of a tennis Sphinx**\
 `In the back of a car stuck in New York City traffic, the American legend explains it all`\
 https://nytimes.com/athletic/5751220/2024/09/07/andre-agassi/
-
-**Ukrainian Forces Block Russian Advance on a Key Eastern Town**\
-`Russia’s drive toward Pokrovsk has stalled along one part of the frontline, but its troops continue to advance in other parts of eastern Ukraine, and its long-range aerial attacks continue.`\
-https://nytimes.com/2024/09/07/world/europe/ukraine-pokrovsk-russia-kyiv.html
 
