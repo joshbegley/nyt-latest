@@ -1,3 +1,7 @@
+**2 Books Celebrating Happy Marriages**\
+`Elizabeth Alexander and John Bayley loved their partners to the end.`\
+https://nytimes.com/2024/09/07/books/read-like-wind-recommendations.html
+
 **Hillary Clinton Has Advice on Debating Trump: ‘He Can Be Rattled’**\
 `The 2016 Democratic nominee fell short to Donald Trump, but she had strong debate moments against him. In an interview, she offered some thoughts for Kamala Harris.`\
 https://nytimes.com/2024/09/07/us/politics/hillary-clinton-debate-trump-harris.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/07/us/maine-stonington-fishermen-storms.html
 **Iran Has Sent Short-Range Missiles to Russia, Western Officials Say**\
 `U.S. and European countries had warned of sanctions if Iran provided weapons that could be used against Ukraine. President Biden’s lame-duck status could hamper a response.`\
 https://nytimes.com/2024/09/07/world/europe/iran-russia-missiles-ukraine.html
-
-**Ron Yeats, legendary captain of Liverpool, dies aged 86**\
-`Ron Yeats, a legendary captain of Liverpool, has died aged 86.`\
-https://nytimes.com/athletic/5751635/2024/09/07/ron-yeats-death-liverpool/
 

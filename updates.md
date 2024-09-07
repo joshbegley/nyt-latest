@@ -1,3 +1,7 @@
+**2 Books Celebrating Happy Marriages**\
+`Elizabeth Alexander and John Bayley loved their partners to the end.`\
+https://nytimes.com/2024/09/07/books/read-like-wind-recommendations.html
+
 **Hillary Clinton Has Advice on Debating Trump: ‘He Can Be Rattled’**\
 `The 2016 Democratic nominee fell short to Donald Trump, but she had strong debate moments against him. In an interview, she offered some thoughts for Kamala Harris.`\
 https://nytimes.com/2024/09/07/us/politics/hillary-clinton-debate-trump-harris.html
