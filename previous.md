@@ -1,3 +1,7 @@
+**Indiana Fever loss to Minnesota Lynx offers Caitlin Clark a chance to grow as a leader**\
+`"I need my point guard to have a cool head," Fever coach Christie Sides said of Clark.`\
+https://nytimes.com/athletic/5751461/2024/09/07/indiana-fever-caitlin-clark-minnesota-lynx/
+
 **Missouri Judge Rules That Abortion Ballot Measure Is Invalid**\
 `But abortion rights groups hope an appeals court will reverse the ruling before the Tuesday deadline to print the state ballots.`\
 https://nytimes.com/2024/09/07/us/missouri-abortion-ballot-measure-invalid.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5747630/2024/09/07/victor-osimhen-transfer-galatasa
 **Darwin Blanch: The American tennis phenom nowhere to be seen at the U.S. Open**\
 `The 16-year-old American has played two ATP singles matches and won seven games in total. But that's all part of the plan.`\
 https://nytimes.com/athletic/5508534/2024/09/07/darwin-blanch-tennis-american-donald-young/
-
-**Once, Catholic Priests Came to Indonesia. Now, It Exports Them.**\
-`A seminary on Flores, a Catholic-majority island in Indonesia, ordains so many priests that a lot of them go abroad to serve the faithful.`\
-https://nytimes.com/2024/09/07/world/asia/indonesia-catholic-priests-exports.html
 

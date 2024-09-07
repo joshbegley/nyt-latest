@@ -1,3 +1,7 @@
+**Indiana Fever loss to Minnesota Lynx offers Caitlin Clark a chance to grow as a leader**\
+`"I need my point guard to have a cool head," Fever coach Christie Sides said of Clark.`\
+https://nytimes.com/athletic/5751461/2024/09/07/indiana-fever-caitlin-clark-minnesota-lynx/
+
 **Missouri Judge Rules That Abortion Ballot Measure Is Invalid**\
 `But abortion rights groups hope an appeals court will reverse the ruling before the Tuesday deadline to print the state ballots.`\
 https://nytimes.com/2024/09/07/us/missouri-abortion-ballot-measure-invalid.html
