@@ -1,5 +1,5 @@
 **U.S. Open semifinals recap: The strangest point of the tournament so far**\
-`On the twelfth day of the tournament, the strangest point so far, and a Paralympic shock.`\
+`On the twelfth day of the tournament, the strangest point so far, and a Paralympic shock`\
 https://nytimes.com/athletic/5751173/2024/09/07/us-open-recap-sinner-draper-point-ostapenko-kichenok/
 
 **Saquon Barkley's 3 TDs power Eagles to 'sloppy' win over Packers in Brazil**\

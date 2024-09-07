@@ -1,4 +1,8 @@
 **U.S. Open semifinals recap: The strangest point of the tournament so far**\
+`On the twelfth day of the tournament, the strangest point so far, and a Paralympic shock`\
+https://nytimes.com/athletic/5751173/2024/09/07/us-open-recap-sinner-draper-point-ostapenko-kichenok/
+
+**U.S. Open semifinals recap: The strangest point of the tournament so far**\
 `On the twelfth day of the tournament, the strangest point so far, and a Paralympic shock.`\
 https://nytimes.com/athletic/5751173/2024/09/07/us-open-recap-sinner-draper-point-ostapenko-kichenok/
 
