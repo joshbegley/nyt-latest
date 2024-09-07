@@ -1,3 +1,7 @@
+**How does college football's overtime format work?**\
+`Overtime was introduced in 1995 and the first game to ever go into overtime was the 1995 Las Vegas Bowl featuring Toledo and Nevada.`\
+https://nytimes.com/athletic/5736518/2024/09/07/college-football-overtime-rules-explained/
+
 **Dozens Fall Ill on Hawaii Hiking Trail in ‘Concerning’ Outbreak of Norovirus**\
 `Four people tested positive for the virus, which causes a highly contagious gastrointestinal illness, officials said. The trail was recommended to remain closed until at least Sept. 19.`\
 https://nytimes.com/2024/09/07/us/norovirus-kalalau-hikers-hawaii.html
