@@ -1,3 +1,7 @@
+**USMNT 1 Canada 2 takeaways - Pochettino arrival can't come soon enough**\
+`A first home defeat to Canada since 1957 is another blow for a USMNT awaiting its new coach`\
+https://nytimes.com/athletic/5752298/2024/09/07/usmnt-1-canada-2-highlights/
+
 **Vannini: Texas' Quinn Ewers stakes his claim as the top quarterback in the nation**\
 `It’s time to consider Texas as a No. 1-ranked team. It’s time to consider Ewers the early Heisman Trophy leader.`\
 https://nytimes.com/athletic/5752287/2024/09/07/texas-quinn-ewers-arch-manning-heisman/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5701128/2024/09/07/college-football-playoff-project
 **‘Room Next Door’ Claims Top Prize at Venice Film Festival**\
 `The film, starring Tilda Swinton and Julianne Moore, is the director Pedro Almodóvar’s English-language debut.`\
 https://nytimes.com/2024/09/07/arts/venice-film-festival-winner-room-next-door.html
-
-**Lloyd Ziff, Visionary Photographer and Art Director, Dies at 81**\
-`He designed some of the most visually exciting magazines of the 1970s and ’80s. But his real love, and eventually his focus, was photography.`\
-https://nytimes.com/2024/09/07/arts/lloyd-ziff-dead.html
 
