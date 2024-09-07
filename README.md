@@ -1,3 +1,11 @@
+**‘Cow Vigilantes’ Have India’s Muslims on Edge**\
+`An unexpectedly narrow victory at the polls for Prime Minister Narendra Modi and his Hindu-first agenda has not cooled simmering sectarian tensions, as some had hoped.`\
+https://nytimes.com/2024/09/07/world/asia/india-religious-violence-muslims-modi.html
+
+**The first look at Lamar Jackson and the Ravens' 2024 offense felt incomplete**\
+`There were enough good things offensively Thursday to maintain optimism. There just weren't enough for the Ravens to beat the Chiefs.`\
+https://nytimes.com/athletic/5751407/2024/09/07/lamar-jackson-ravens-offensive-chiefs/
+
 **Starliner’s Troubles Are Latest Setback for Boeing’s Space Business**\
 `The capsule, which returned without astronauts, and other space programs at Boeing have suffered many delays and cost overruns.`\
 https://nytimes.com/2024/09/07/business/boeing-starliner-nasa-spacex.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5746141/2024/09/07/los-angeles-chargers-season-news
 **Can ‘The Secret Lives of Mormon Wives’ Change a Conservative Religious Culture?**\
 `A seemingly frothy reality show has a deeper conflict at its core.`\
 https://nytimes.com/2024/09/07/opinion/mormon-wives-reality-tv-show.html
-
-**Can the Business of Tennis Be Fixed?**\
-`In an interview with DealBook, the U.S.T.A. chief Lew Sherr discussed the U.S. Open’s record attendance, the prospect of a new tennis league, and fighting with pickleball for court space.`\
-https://nytimes.com/2024/09/07/business/dealbook/us-open-tennis-business.html
-
-**Blues' offer-sheet analysis, Alexander Steen's inexperience, jersey leaks: Mailbag, part 2**\
-`Could the Blues have gotten Edmonton's Philip Broberg and Dylan Holloway for less? We take a look at how it all unfolded.`\
-https://nytimes.com/athletic/5732751/2024/09/07/blues-offer-sheet-analysis/
 
