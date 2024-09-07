@@ -4,7 +4,7 @@ https://nytimes.com/2024/09/07/world/europe/kharkiv-ukraine-street-art.html
 
 **Tony Blair’s Advice to Rookie Leaders: Tend to Your Legacy Before It’s Too Late**\
 `In an interview, the former British prime minister discussed his new book ‘On Leadership,’ the dysfunction of U.S. politics, and deflected questions about Elon Musk’s influence.`\
-https://nytimes.com/2024/09/07/world/europe/tony-blairs-advice-to-rookie-leaders-tend-to-your-legacy-before-its-too-late.html
+https://nytimes.com/2024/09/07/world/europe/tony-blair-on-leadership-interview-legacy.html
 
 **Queens Is Abuzz Over Two Americans in the U.S. Open Finals**\
 `For the first time in more than two decades, an American man and an American woman will play in the U.S. Open singles finals.`\
