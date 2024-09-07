@@ -1,3 +1,7 @@
+**Blues' offer-sheet analysis, Alexander Steen's inexperience, jersey leaks: Mailbag, part 2**\
+`Could the Blues have gotten Edmonton's Philip Broberg and Dylan Holloway for less? We take a look at how it all unfolded.`\
+https://nytimes.com/athletic/5732751/2024/09/07/blues-offer-sheet-analysis/
+
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/09/07/us/harris-trump-election/heres-the-latest-on-the-presidential-race
