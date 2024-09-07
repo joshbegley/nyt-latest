@@ -1,3 +1,7 @@
+**NASCAR teams sign charter extension, minus 2 holdouts**\
+`23XI Racing and Front Row Motorsports did not sign the multiyear extension.`\
+https://nytimes.com/athletic/5751885/2024/09/07/nascar-charter-agreement-extension/
+
 **Andre Agassi and the revelations of a tennis Sphinx**\
 `In the back of a car stuck in New York City traffic, the American legend explains it all.`\
 https://nytimes.com/athletic/5751220/2024/09/07/andre-agassi/

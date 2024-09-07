@@ -1,3 +1,7 @@
+**NASCAR teams sign charter extension, minus 2 holdouts**\
+`23XI Racing and Front Row Motorsports did not sign the multiyear extension.`\
+https://nytimes.com/athletic/5751885/2024/09/07/nascar-charter-agreement-extension/
+
 **Andre Agassi and the revelations of a tennis Sphinx**\
 `In the back of a car stuck in New York City traffic, the American legend explains it all.`\
 https://nytimes.com/athletic/5751220/2024/09/07/andre-agassi/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/07/business/boeing-starliner-nasa-spacex.html
 **What I’m hearing about Trent Williams' holdout drama, Justin Fields vs. Russell Wilson, tush push under fire**\
 `Plus, the latest on Haason Reddick, the illegal formation flag frenzy, a unique approach for Levis, a hole in Miami’s defense and more.`\
 https://nytimes.com/athletic/5751324/2024/09/07/week-1-notes-trent-williams-holdout-contract-russell-wilson-injury-new-tush-push-rule/
-
-**Night of the Supermodels in New York, Guest Appearance by Rihanna**\
-`What happened when Pieter Mulier brought the Alaïa show to the Guggenheim.`\
-https://nytimes.com/2024/09/07/style/alaia-rihanna-guggengheim-fashion.html
 
