@@ -1,3 +1,7 @@
+**Saquon Barkley's 3 TDs power Eagles to 'sloppy' win over Packers in Brazil**\
+`The Eagles haven't wielded a weapon quite like Barkley since LeSean McCoy.`\
+https://nytimes.com/athletic/5751243/2024/09/07/eagles-packers-saquon-barkley-brazil/
+
 **Giants manager Bob Melvin defends his trio of hitting coaches: 'They've done a fantastic job'**\
 `The Giants are among the worst scoring teams during the first three innings, but Melvin says it's not from lack of preparation.`\
 https://nytimes.com/athletic/5751537/2024/09/07/giants-hitting-coaches-early-innings/
