@@ -1,3 +1,19 @@
+**Dozens Fall Ill on Hawaii Hiking Trail in ‘Concerning’ Outbreak of Norovirus**\
+`Four people tested positive for the virus, which causes a highly contagious gastrointestinal illness, officials said. The trail was recommended to remain closed until at least Sept. 19.`\
+https://nytimes.com/2024/09/07/us/norovirus-kalalau-hikers-hawaii.html
+
+**Texas proved it's a national title contender at Michigan. Can the Wolverines recover?**\
+`National title hopeful No. 3 Texas went to Ann Arbor and ran away from defending championship No. 10 Michigan 31-12. Here's what we learned.`\
+https://nytimes.com/athletic/5751991/2024/09/07/texas-michigan-score-college-football-playoff/
+
+**Wrexham 3 Shrewsbury 0: Patience crucial as Parkinson's side hit 42-year high in league**\
+`Wrexham beat Shrewsbury to go top of League One. Richard Sutcliffe analyses the key talking points from the day...`\
+https://nytimes.com/athletic/5744435/2024/09/07/wrexham-shrewsbury-palmer-parkinson-top-league-one/
+
+**Brit Stojsavljevic wins U.S. Open Junior girls title**\
+`Mika Stojsavljevic is the U.`\
+https://nytimes.com/athletic/5752010/2024/09/07/mika-stojsavljevic-us-open-juniors/
+
 **Murray, Nuggets reach 4-year, $209M extension**\
 `Murray averaged 21.2 points, 6.5 assists and 4.1 rebounds last season.`\
 https://nytimes.com/athletic/5752039/2024/09/07/jamal-murray-contract-extension-nuggets/

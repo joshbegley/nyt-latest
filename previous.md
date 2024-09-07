@@ -1,3 +1,19 @@
+**Dozens Fall Ill on Hawaii Hiking Trail in ‘Concerning’ Outbreak of Norovirus**\
+`Four people tested positive for the virus, which causes a highly contagious gastrointestinal illness, officials said. The trail was recommended to remain closed until at least Sept. 19.`\
+https://nytimes.com/2024/09/07/us/norovirus-kalalau-hikers-hawaii.html
+
+**Texas proved it's a national title contender at Michigan. Can the Wolverines recover?**\
+`National title hopeful No. 3 Texas went to Ann Arbor and ran away from defending championship No. 10 Michigan 31-12. Here's what we learned.`\
+https://nytimes.com/athletic/5751991/2024/09/07/texas-michigan-score-college-football-playoff/
+
+**Wrexham 3 Shrewsbury 0: Patience crucial as Parkinson's side hit 42-year high in league**\
+`Wrexham beat Shrewsbury to go top of League One. Richard Sutcliffe analyses the key talking points from the day...`\
+https://nytimes.com/athletic/5744435/2024/09/07/wrexham-shrewsbury-palmer-parkinson-top-league-one/
+
+**Brit Stojsavljevic wins U.S. Open Junior girls title**\
+`Mika Stojsavljevic is the U.`\
+https://nytimes.com/athletic/5752010/2024/09/07/mika-stojsavljevic-us-open-juniors/
+
 **Murray, Nuggets reach 4-year, $209M extension**\
 `Murray averaged 21.2 points, 6.5 assists and 4.1 rebounds last season.`\
 https://nytimes.com/athletic/5752039/2024/09/07/jamal-murray-contract-extension-nuggets/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5750337/2024/09/07/republic-of-ireland-0-england-2-
 **Family of American Slain in the West Bank Demands an Independent Probe**\
 `With witnesses and Palestinian officials accusing Israeli soldiers of firing the fatal shots, “an Israeli investigation is not adequate,” the family said in a statement.`\
 https://nytimes.com/2024/09/07/world/middleeast/american-slain-west-bank-eygi.html
-
-**Former Clemson WR Diondre Overton dies at 26**\
-`Overton played for Clemson from 2016 to 2019 and won two national championships with the Tigers.`\
-https://nytimes.com/athletic/5751875/2024/09/07/diondre-overton-dies-clemson/
-
-**What We Know About the Investigations Involving Eric Adams’s Top Aides**\
-`The administration of New York City’s mayor was thrown into turmoil as federal inquiries reached his inner circle.`\
-https://nytimes.com/article/eric-adams-investigations.html
-
-**Spy Chiefs of the C.I.A. and MI6 Convene, on a Couch and for a Crowd**\
-`Appearing together publicly for the first time in the history of their agencies, the heads of the U.S. and British intelligence services discussed Ukraine’s incursion into Russia and the war in Gaza.`\
-https://nytimes.com/2024/09/07/world/europe/cia-mi6-russia-ukraine.html
-
-**NASCAR teams sign charter extension, minus 2 holdouts**\
-`23XI Racing and Front Row Motorsports did not sign the multiyear extension.`\
-https://nytimes.com/athletic/5751885/2024/09/07/nascar-charter-agreement-extension/
 
