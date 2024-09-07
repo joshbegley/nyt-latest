@@ -1,3 +1,11 @@
+**Corrections: Sept. 7, 2024**\
+`Corrections that appeared in print on Saturday, Sept. 7, 2024.`\
+https://nytimes.com/2024/09/06/pageoneplus/corrections-sept-7-2024.html
+
+**Eagles top Packers in sloppy São Paulo as Barkley dominates**\
+`The running back, who the Eagles signed in March, scored three times, including the first touchdown of the game in the second quarter.`\
+https://nytimes.com/athletic/5751388/2024/09/06/eagles-saquon-barkley-packers-nfl-brazil/
+
 **Twins' Royce Lewis optimistic about learning from struggles as season drags on**\
 `“I've learned a lot about getting pulled in different directions and how to manage and handle that,” Lewis said.`\
 https://nytimes.com/athletic/5751375/2024/09/06/twins-royce-lewis-optimistic/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/06/us/texas-abortion-medical-records.html
 **Georgia Suspect’s Family Faced Eviction and Other Turmoil Before Shooting**\
 `Court and law enforcement records lay out the turbulence in the teenager’s family in recent years.`\
 https://nytimes.com/2024/09/06/us/georgia-school-shooter-family-problems.html
-
-**Trump Urges Police Officers to Watch for Voter Fraud**\
-`Speaking to the national board of the Fraternal Order of Police, former President Donald J. Trump made an appeal that could run afoul of state laws and prompt accusations of voter intimidation.`\
-https://nytimes.com/2024/09/06/us/politics/trump-police-voter-fraud.html
-
-**3 Die Amid Outbreak of Legionnaires’ Disease at an Assisted Living Home**\
-`Twenty-five people connected to the home, in Albany, N.Y., have been hospitalized amid the outbreak, officials said.`\
-https://nytimes.com/2024/09/06/nyregion/legionnaires-disease-outbreak-albany.html
 
