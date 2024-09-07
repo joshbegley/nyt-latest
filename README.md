@@ -8,7 +8,7 @@ https://nytimes.com/athletic/5751438/2024/09/07/packers-jordan-love-injury/
 
 **Jarred Kelenic has shown flashes, but his first season with Braves is underwhelming**\
 `So far, Kelenic remains an inconsistent and "toolsy" former top prospect.`\
-https://nytimes.com/athletic/5751398/2024/09/07/braves-win-rockies-jarred-kelenic-underwhelming/
+https://nytimes.com/athletic/5751398/2024/09/07/braves-win-blue-jays-jarred-kelenic-underwhelming/
 
 **How Birmingham shattered transfer records - and left English football in shock**\
 `A summer outlay of up to £25m is unheard of in League One but this is just the start of the club's ambitious plan `\
