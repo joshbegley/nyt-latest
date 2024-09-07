@@ -1,3 +1,15 @@
+**Everything a Carolina Panthers fan needs to know for Week 1**\
+`An NFL season is 18 weeks of amazing athleticism and great theater, and it’s my privilege to try to capture it.`\
+https://nytimes.com/athletic/5746082/2024/09/07/carolina-panthers-season-news-preview-2024/
+
+**Everything a Dallas Cowboys fan needs to know for Week 1**\
+`We’re going to have fun tracking, informing and explaining things along the way and we sincerely appreciate you joining us!`\
+https://nytimes.com/athletic/5746018/2024/09/07/dallas-cowboys-season-news-preview-2024/
+
+**Everything a Los Angeles Chargers fan needs to know for Week 1**\
+`Whichever way 2024 goes for the Chargers, one thing is certain: It’s going to be fascinating.`\
+https://nytimes.com/athletic/5746141/2024/09/07/los-angeles-chargers-season-news-preview-2024/
+
 **Can ‘The Secret Lives of Mormon Wives’ Change a Conservative Religious Culture?**\
 `A seemingly frothy reality show has a deeper conflict at its core.`\
 https://nytimes.com/2024/09/07/opinion/mormon-wives-reality-tv-show.html
