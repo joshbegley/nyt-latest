@@ -1,3 +1,7 @@
+**Night of the Supermodels in New York, Guest Appearance by Rihanna**\
+`What happened when Pieter Mulier brought the Alaïa show to the Guggenheim.`\
+https://nytimes.com/2024/09/07/style/alaia-rihanna-guggengheim-fashion.html
+
 **Everything a Los Angeles Rams fan needs to know for Week 1**\
 `We know by now that every Rams season can vacillate from the strange to the extraordinary — and it's always interesting.`\
 https://nytimes.com/athletic/5746117/2024/09/07/los-angeles-rams-season-news-preview-2024/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/07/us/harris-trump-election/heres-the-latest-on
 **Election Live Updates: Trump Goes to Wisconsin, Aiming to Focus on the Economy**\
 `After a busy day in court and talking to reporters, the former president returns to a key swing state. Gov. Tim Walz of Minnesota, the Democratic vice-presidential nominee, plans to address a gay rights group.`\
 https://nytimes.com/live/2024/09/07/us/harris-trump-election
-
-**2 Books Celebrating Happy Marriages**\
-`Elizabeth Alexander and John Bayley loved their partners to the end.`\
-https://nytimes.com/2024/09/07/books/read-like-wind-recommendations.html
 
