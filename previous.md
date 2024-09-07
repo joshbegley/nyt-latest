@@ -1,3 +1,15 @@
+**David Pleat on 40 years at Tottenham, helping Levy 'learn the ropes' and signing Dele Alli**\
+`Pleat is in a unique position having worked closely with Irving Scholar, Alan Sugar and Daniel Levy - the three men who have chaired Spurs`\
+https://nytimes.com/athletic/5731742/2024/09/07/tottenham-pleat-levy-sugar-hoddle-dele/
+
+**Jordan Love exits in final seconds with apparent injury**\
+`Love left the field with the help of team doctor Pat McKenzie and trainer Nate Weir.`\
+https://nytimes.com/athletic/5751438/2024/09/07/packers-jordan-love-injury/
+
+**Jarred Kelenic has shown flashes, but his first season with Braves is underwhelming**\
+`So far, Kelenic remains an inconsistent and "toolsy" former top prospect.`\
+https://nytimes.com/athletic/5751398/2024/09/07/braves-win-rockies-jarred-kelenic-underwhelming/
+
 **How Birmingham shattered transfer records - and left English football in shock**\
 `A summer outlay of up to £25m is unheard of in League One but this is just the start of the club's ambitious plan `\
 https://nytimes.com/athletic/5743749/2024/09/07/birmingham-city-transfer-window-spend/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5748086/2024/09/07/iowa-state-iowa-picks-odds-how-t
 **Saturday's MLB odds, best bets: Projections for pitching matchups, playoffs and more**\
 `See pitching matchups, playoff projections, win projections and more for Saturday's MLB games.`\
 https://nytimes.com/athletic/5750998/2024/09/07/mlb-odds-best-bets-projections-september-7/
-
-**Corrections: Sept. 7, 2024**\
-`Corrections that appeared in print on Saturday, Sept. 7, 2024.`\
-https://nytimes.com/2024/09/06/pageoneplus/corrections-sept-7-2024.html
-
-**Eagles top Packers in sloppy São Paulo as Barkley dominates**\
-`The running back, who the Eagles signed in March, scored three times, including the first touchdown of the game in the second quarter.`\
-https://nytimes.com/athletic/5751388/2024/09/06/eagles-saquon-barkley-packers-nfl-brazil/
-
-**Twins' Royce Lewis optimistic about learning from struggles as season drags on**\
-`“I've learned a lot about getting pulled in different directions and how to manage and handle that,” Lewis said.`\
-https://nytimes.com/athletic/5751375/2024/09/06/twins-royce-lewis-optimistic/
 

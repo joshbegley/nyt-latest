@@ -1,3 +1,15 @@
+**David Pleat on 40 years at Tottenham, helping Levy 'learn the ropes' and signing Dele Alli**\
+`Pleat is in a unique position having worked closely with Irving Scholar, Alan Sugar and Daniel Levy - the three men who have chaired Spurs`\
+https://nytimes.com/athletic/5731742/2024/09/07/tottenham-pleat-levy-sugar-hoddle-dele/
+
+**Jordan Love exits in final seconds with apparent injury**\
+`Love left the field with the help of team doctor Pat McKenzie and trainer Nate Weir.`\
+https://nytimes.com/athletic/5751438/2024/09/07/packers-jordan-love-injury/
+
+**Jarred Kelenic has shown flashes, but his first season with Braves is underwhelming**\
+`So far, Kelenic remains an inconsistent and "toolsy" former top prospect.`\
+https://nytimes.com/athletic/5751398/2024/09/07/braves-win-rockies-jarred-kelenic-underwhelming/
+
 **How Birmingham shattered transfer records - and left English football in shock**\
 `A summer outlay of up to £25m is unheard of in League One but this is just the start of the club's ambitious plan `\
 https://nytimes.com/athletic/5743749/2024/09/07/birmingham-city-transfer-window-spend/
