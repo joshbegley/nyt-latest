@@ -1,3 +1,11 @@
+**Shocked by Extreme Storms, a Maine Fishing Town Fights to Save Its Waterfront**\
+`After two devastating storms hit Stonington in January, plans are multiplying to raise and fortify wharves, roads and buildings. But will that be enough?`\
+https://nytimes.com/2024/09/07/us/maine-stonington-fishermen-storms.html
+
+**Iran Has Sent Short-Range Missiles to Russia, Western Officials Say**\
+`U.S. and European countries had warned of sanctions if Iran provided weapons that could be used against Ukraine. President Biden’s lame-duck status could hamper a response.`\
+https://nytimes.com/2024/09/07/world/europe/iran-russia-missiles-ukraine.html
+
 **Ron Yeats, legendary captain of Liverpool, dies aged 86**\
 `Ron Yeats, a legendary captain of Liverpool, has died aged 86.`\
 https://nytimes.com/athletic/5751635/2024/09/07/ron-yeats-death-liverpool/
