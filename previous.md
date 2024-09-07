@@ -1,3 +1,7 @@
+**3 Die Amid Outbreak of Legionnaires’ Disease at an Assisted Living Home**\
+`Twenty-five people connected to the home, in Albany, N.Y., have been hospitalized amid the outbreak, officials said.`\
+https://nytimes.com/2024/09/06/nyregion/legionnaires-disease-outbreak-albany.html
+
 **California Can Ban Guns in Parks and Bars, but Not Hospitals, Court Says**\
 `California and Hawaii banned guns from various public venues. A federal appeals court dusted off the history books to help determine where to allow prohibitions.`\
 https://nytimes.com/2024/09/06/us/california-gun-laws-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5751178/2024/09/06/ravens-chiefs-tv-ratings-nfl-nbc
 **Missouri Reports Bird Flu in a Patient Without a Known Risk**\
 `Previous human infections occurred in workers on farms. But community transmission of the virus remains unlikely for now, experts said.`\
 https://nytimes.com/2024/09/06/health/bird-flu-missouri-cdc.html
-
-**Kara Young Charms in ‘Table 17,’ a Rom-Com That Believes in True Love**\
-`The Tony winner leads a top-notch cast in Zhailon Levingston’s alluringly designed production of Douglas Lyons’s hopeful new play.`\
-https://nytimes.com/2024/09/06/theater/table-17-review-kara-young.html
 
