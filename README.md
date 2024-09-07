@@ -1,3 +1,31 @@
+**Hillary Clinton Has Advice on Debating Trump: ‘He Can Be Rattled’**\
+`The 2016 Democratic nominee fell short to Donald Trump, but she had strong debate moments against him. In an interview, she offered some thoughts for Kamala Harris.`\
+https://nytimes.com/2024/09/07/us/politics/hillary-clinton-debate-trump-harris.html
+
+**Forget the Yacht. The Best Travel Is on Foot, Through Wilderness.**\
+`On our public lands, nobody can pull rank on you. Except a bear.`\
+https://nytimes.com/2024/09/07/opinion/travel-backpacking-wilderness.html
+
+**There’s Hurricane Katrina and Superstorm Sandy. Why Not Heat Wave Harvey?**\
+`Heat waves are America’s deadliest weather events. It’s time we name them.`\
+https://nytimes.com/2024/09/07/opinion/heat-wave-names.html
+
+**So They Can Do Better, Let High Schoolers Do Less**\
+`We need to let students slow down. Critical cognition, by definition, takes time.`\
+https://nytimes.com/2024/09/07/opinion/high-school-students-free-time.html
+
+**Making End-of-Life Decisions**\
+`Readers discuss unwanted medical care and choosing to die.`\
+https://nytimes.com/2024/09/07/opinion/end-of-life-decisions.html
+
+**How Calgary's Andrew Basha, a chip on his shoulder, became a Flames second-rounder**\
+`When the Flames drafted Basha with the 41st pick in the 2024 draft, they knew they were getting the ultimate competitor.`\
+https://nytimes.com/athletic/5741755/2024/09/07/calgary-flames-prospect-andrew-basha/
+
+**Broncos predictions: Bo Nix's line, No. 2 receiver projection, record and more**\
+`Why the Broncos are better than oddsmakers believe, but not yet ready to make a playoff leap.`\
+https://nytimes.com/athletic/5749953/2024/09/07/broncos-predictions-2024/
+
 **Shocked by Extreme Storms, a Maine Fishing Town Fights to Save Its Waterfront**\
 `After two devastating storms hit Stonington in January, plans are multiplying to raise and fortify wharves, roads and buildings. But will that be enough?`\
 https://nytimes.com/2024/09/07/us/maine-stonington-fishermen-storms.html
@@ -9,32 +37,4 @@ https://nytimes.com/2024/09/07/world/europe/iran-russia-missiles-ukraine.html
 **Ron Yeats, legendary captain of Liverpool, dies aged 86**\
 `Ron Yeats, a legendary captain of Liverpool, has died aged 86.`\
 https://nytimes.com/athletic/5751635/2024/09/07/ron-yeats-death-liverpool/
-
-**Israel Strikes School-Turned-Shelter in Series of Attacks in Gaza**\
-`Israel said it had launched a “precision strike” against Hamas militants operating from a school compound in northern Gaza. Local medics said several people sheltering there were killed.`\
-https://nytimes.com/2024/09/07/world/middleeast/israel-gaza-hamas-war.html
-
-**The U.S. Open Concludes**\
-`Let us consider the grief of the lapsed sports fan.`\
-https://nytimes.com/2024/09/07/briefing/the-us-open-concludes.html
-
-**Online Credit Unions Offering High Interest Rates on Savings May Be Fakes**\
-`Ontario’s financial regulator has issued warnings about three websites illegally claiming to be credit unions, but it is powerless to close them.`\
-https://nytimes.com/2024/09/07/world/canada/fraud-credit-union-ottawa.html
-
-**Will McClay breaks down Cowboys' top rookies, realistic expectations for Mazi Smith, more**\
-`McClay doesn't want to be anywhere but Dallas. "Football has been my life, and I want to win a Super Bowl. I want to win a Super Bowl here."`\
-https://nytimes.com/athletic/5750422/2024/09/07/dallas-cowboys-will-mcclay-rookies-week-1/
-
-**Bears mailbag: What defines success for Caleb Williams' first season? Plus Week 1 picks**\
-`As Bears fans prepare for this highly anticipated season, what would be a successful year?`\
-https://nytimes.com/athletic/5750867/2024/09/07/bears-mailbag-caleb-williams-week-1/
-
-**Dan Campbell has become the coach he always set out be**\
-`Dan Campbell's coaching principles took shape in his youth and as a player.`\
-https://nytimes.com/athletic/5749523/2024/09/07/detroit-lions-coach-dan-campbell/
-
-**Inter Miami's long road to a new home - Freedom Park**\
-`Five proposed sites, 10 years and a temporary home but now Inter Miami hope the end is in sight for a stadium to call their own`\
-https://nytimes.com/athletic/5748680/2024/09/07/inter-miami-beckham-freedom-park/
 
