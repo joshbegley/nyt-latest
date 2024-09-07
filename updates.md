@@ -1,3 +1,7 @@
+**Taylor Fritz beats good friend Frances Tiafoe in five sets to reach U.S. Open final**\
+`He has the chance to become the first major winner from the U.S. for 21 years.`\
+https://nytimes.com/athletic/5750746/2024/09/07/fritz-tiafoe-us-open-semifinal-result/
+
 **Indiana Fever loss to Minnesota Lynx offers Caitlin Clark a chance to grow as a leader**\
 `"I need my point guard to have a cool head," Fever coach Christie Sides said of Clark.`\
 https://nytimes.com/athletic/5751461/2024/09/07/indiana-fever-caitlin-clark-minnesota-lynx/
