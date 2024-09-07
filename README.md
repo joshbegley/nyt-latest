@@ -1,3 +1,7 @@
+**Murray, Nuggets reach 4-year, $209M extension**\
+`Murray averaged 21.2 points, 6.5 assists and 4.1 rebounds last season.`\
+https://nytimes.com/athletic/5752039/2024/09/07/jamal-murray-contract-extension-nuggets/
+
 **Penn State takeaways: Why did the defense struggle early, who led the explosive offense?**\
 `Penn State's defense struggled in the first half, but the Nittany Lions' shut down Bowling Green in the second half to pull away.`\
 https://nytimes.com/athletic/5751878/2024/09/07/penn-state-defense-bowling-green/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/07/world/europe/cia-mi6-russia-ukraine.html
 **NASCAR teams sign charter extension, minus 2 holdouts**\
 `23XI Racing and Front Row Motorsports did not sign the multiyear extension.`\
 https://nytimes.com/athletic/5751885/2024/09/07/nascar-charter-agreement-extension/
-
-**Andre Agassi and the revelations of a tennis Sphinx**\
-`In the back of a car stuck in New York City traffic, the American legend explains it all`\
-https://nytimes.com/athletic/5751220/2024/09/07/andre-agassi/
 
