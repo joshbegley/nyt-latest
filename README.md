@@ -1,3 +1,7 @@
+**Street Artist Documents War in Ukraine, One Stark Mural at a Time**\
+`Using ruins as his canvas, Gamlet Zinkivskyi has captured life in wartime Ukraine in dozens of grim, gripping and harshly beautiful paintings. “Broken, but invincible,” read one captioned work.`\
+https://nytimes.com/2024/09/07/world/europe/kharkiv-ukraine-street-art.html
+
 **Tony Blair’s Advice to Rookie Leaders: Tend to Your Legacy Before It’s Too Late**\
 `In an interview, the former British prime minister discussed his new book ‘On Leadership,’ the dysfunction of U.S. politics, and deflected questions about Elon Musk’s influence.`\
 https://nytimes.com/2024/09/07/world/europe/tony-blairs-advice-to-rookie-leaders-tend-to-your-legacy-before-its-too-late.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5751492/2024/09/07/packers-jordan-love-leg-injury/
 **Typhoon Yagi Approaches Vietnam After Pummeling Southern China**\
 `The storm is on track to become the most powerful to make landfall in northern Vietnam, where one person has died. Two were killed on the Chinese island of Hainan.`\
 https://nytimes.com/2024/09/07/world/asia/typhoon-yagi-vietnam-china.html
-
-**Indiana Fever loss to Minnesota Lynx offers Caitlin Clark a chance to grow as a leader**\
-`"I need my point guard to have a cool head," Fever coach Christie Sides said of Clark.`\
-https://nytimes.com/athletic/5751461/2024/09/07/indiana-fever-caitlin-clark-minnesota-lynx/
 
