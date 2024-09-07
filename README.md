@@ -1,3 +1,7 @@
+**Slick field conditions hamper Eagles, Packers in Brazil**\
+`Players from both teams struggled to find consistent footing on the soccer field, which has hosted matches for the World Cup and Olympics.`\
+https://nytimes.com/athletic/5751302/2024/09/06/packers-eagles-field-conditions-nfl-brazil/
+
 **Family Inheritance?**\
 `The plot thickens in this themeless puzzle by David P. Williams, the fifth in a series.`\
 https://nytimes.com/2024/09/06/crosswords/daily-puzzle-2024-09-07.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/06/us/georgia-school-shooting-parents-trial.html
 **Boeing’s Starliner Travels Back to Earth Empty**\
 `The two NASA astronauts who traveled on the spacecraft to the International Space Station remained there after NASA officials decided it would be safer for Starliner to return without crew aboard.`\
 https://nytimes.com/video/science/space/100000009678857/boeing-starliner-space-station-nasa.html
-
-**In His Last Months as President, Biden Is Both Liberated and Resigned**\
-`President Biden spent decades seeking the highest office, only to drop his bid for re-election under pressure. These final months before the November election are bittersweet, his allies say.`\
-https://nytimes.com/2024/09/06/us/politics/biden-harris-campaign.html
 
