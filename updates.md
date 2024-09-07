@@ -1,3 +1,11 @@
+**Are England really entering a new era?**\
+`The real test of whether Carsley's first game in charge is a fresh start or not will come over the next few months`\
+https://nytimes.com/athletic/5747362/2024/09/07/england-lee-carsley-manager-new-era/
+
+**Why Osimhen ended up moving to Galatasaray after Chelsea, PSG and Saudi interest**\
+`Osimhen has been highly-coveted yet ended the summer transfer window with a loan move to Galatasaray in the 10th-ranked Turkish league`\
+https://nytimes.com/athletic/5747630/2024/09/07/victor-osimhen-transfer-galatasaray-chelsea-psg/
+
 **Darwin Blanch: The American tennis phenom nowhere to be seen at the U.S. Open**\
 `The 16-year-old American has played two ATP singles matches and won seven games in total. But that's all part of the plan.`\
 https://nytimes.com/athletic/5508534/2024/09/07/darwin-blanch-tennis-american-donald-young/
