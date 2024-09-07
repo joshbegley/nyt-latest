@@ -1,3 +1,7 @@
+**Penn State takeaways: Why did the defense struggle early, who led the explosive offense?**\
+`Penn State's defense struggled in the first half, but the Nittany Lions' shut down Bowling Green in the second half to pull away.`\
+https://nytimes.com/athletic/5751878/2024/09/07/penn-state-defense-bowling-green/
+
 **Penn State takeaways: Why did Penn State's defense struggle early, who led explosive offense?**\
 `Penn State's defense struggled in the first half, but the Nittany Lions' shut down Bowling Green in the second half to pull away.`\
 https://nytimes.com/athletic/5751878/2024/09/07/penn-state-defense-bowling-green/
