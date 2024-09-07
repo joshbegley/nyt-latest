@@ -1,3 +1,7 @@
+**Trump Urges Police Officers to Watch for Voter Fraud**\
+`Speaking to the national board of the Fraternal Order of Police, former President Donald J. Trump made an appeal that could run afoul of state laws and prompt accusations of voter intimidation.`\
+https://nytimes.com/2024/09/06/us/politics/trump-police-voter-fraud.html
+
 **3 Die Amid Outbreak of Legionnaires’ Disease at an Assisted Living Home**\
 `Twenty-five people connected to the home, in Albany, N.Y., have been hospitalized amid the outbreak, officials said.`\
 https://nytimes.com/2024/09/06/nyregion/legionnaires-disease-outbreak-albany.html
