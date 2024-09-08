@@ -1,3 +1,15 @@
+**Patriots defy 'rebuilding' narrative, pull off huge upset vs. Bengals in Jerod Mayo's debut**\
+`Who thought the Patriots could win this season by playing strong defense and running the ball? Not many. But on Sunday, they did just that.`\
+https://nytimes.com/athletic/5754091/2024/09/08/patriots-bengals-week-1-jerod-mayo/
+
+**Behind Kirk Cousins' 'disappointing' performance, Falcons looked like same ol' team in Week 1**\
+`Cousins flopped in his Falcons debut, finishing with a passer rating of 59 and throwing two interceptions, including a backbreaker.`\
+https://nytimes.com/athletic/5754094/2024/09/08/falcons-kirk-cousins-disappointment-steelers/
+
+**Greenberg: Caleb Williams makes his debut in a very ugly, very familiar Bears victory**\
+`Chicago won its opener, 24-17 over Tennessee, behind a time-tested formula of defense, special teams and absolutely no offense.`\
+https://nytimes.com/athletic/5754062/2024/09/08/caleb-williams-chicago-bears-titans/
+
 **Song odds for Kendrick Lamar's Super Bowl LIX halftime show**\
 `An early prediction for what the Pulitzer Prize-winning rapper might perform at the Caesars Superdome. `\
 https://nytimes.com/athletic/5753979/2024/09/08/kendrick-lamars-super-bowl-lix-halftime-song-odds/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/08/briefing/trump-sentencing-venezuela-west-bank.htm
 **Bears defense, special teams shines in comeback**\
 `The Chicago Bears scored 21 unanswered points to pick up a 24-17 win over the Tennessee Titans in the Week 1 matchup at Soldier Field.`\
 https://nytimes.com/athletic/5753208/2024/09/08/bears-titans-result-takeaways/
-
-**María Benítez, Dancer Who Championed Flamenco, Is Dead at 82**\
-`“People came from everywhere to see her shows,” an admirer said — including, on at least one occasion, the ballet superstar Mikhail Baryshnikov.`\
-https://nytimes.com/2024/09/08/arts/dance/maria-benitez-dead.html
-
-**Game, Set, Match: Jannik Sinner beats Taylor Fritz to win U.S. Open**\
-`The world No. 1 dashed Fritz's dreams of becoming the first male American U.S. Open winner since 2003.`\
-https://nytimes.com/athletic/5753622/2024/09/08/sinner-fritz-us-open-final-result-analysis/
-
-**5 takeaways from Steelers' season-opening win over Falcons**\
-`Boswell connected on field goals from 57 yards, 51 yards, 44 yards, 56 yards, 40 yards and 25 yards.`\
-https://nytimes.com/athletic/5753183/2024/09/08/steelers-falcons-result-takeaways/
 
