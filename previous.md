@@ -1,3 +1,7 @@
+**Cardinals vs. Bills odds, expert picks, how to watch: Kyler Murray vs. Josh Allen**\
+`Will Kyler Murray be enough to lift the Cardinals over Josh Allen and the Bills at home? Our experts think not.`\
+https://nytimes.com/athletic/5750238/2024/09/07/cardinals-bills-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Sampson: Notre Dame has been here before under Marcus Freeman. That's the problem.**\
 `Notre Dame's devastating loss to NIU felt far too familiar and raises a tough question: Was promoting Freeman too big of a risk?`\
 https://nytimes.com/athletic/5752612/2024/09/07/notre-dame-northern-illinois-marcus-freeman/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5752548/2024/09/07/chicago-sky-angel-reese-injury/
 **Trump Threatens Lawyers, Donors and Others With Prosecution After Election**\
 `In a social media post on Saturday, former President Donald J. Trump wrote that “when I win, those people that cheated will be prosecuted to the fullest extent of the law.”`\
 https://nytimes.com/2024/09/07/us/politics/trump-election-fraud-prosecute.html
-
-**Dan Morgenstern, Chronicler and Friend of Jazz, Dies at 94**\
-`He wrote prolifically about the music and played an important role in documenting its history, especially in his many years with the Institute of Jazz Studies.`\
-https://nytimes.com/2024/09/07/arts/music/dan-morgenstern-dead.html
 

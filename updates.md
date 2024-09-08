@@ -1,3 +1,7 @@
+**Cardinals vs. Bills odds, expert picks, how to watch: Kyler Murray vs. Josh Allen**\
+`Will Kyler Murray be enough to lift the Cardinals over Josh Allen and the Bills at home? Our experts think not.`\
+https://nytimes.com/athletic/5750238/2024/09/07/cardinals-bills-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Sampson: Notre Dame has been here before under Marcus Freeman. That's the problem.**\
 `Notre Dame's devastating loss to NIU felt far too familiar and raises a tough question: Was promoting Freeman too big of a risk?`\
 https://nytimes.com/athletic/5752612/2024/09/07/notre-dame-northern-illinois-marcus-freeman/
