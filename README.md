@@ -1,3 +1,11 @@
+**Thomas Hammock and Northern Illinois believed — and that was enough to beat Notre Dame**\
+`This was a brawl with a clear winner. The Huskies outgained the Fighting Irish 388-to-286 and were the better team throughout. `\
+https://nytimes.com/athletic/5753748/2024/09/08/northern-illinois-thomas-hammock-notre-dame/
+
+**Adams Visits Black Churches to Bolster Support as Investigations Heat Up**\
+`The New York City mayor compared himself to a biblical figure who endured suffering, telling parishioners that he was having a “Job moment.”`\
+https://nytimes.com/2024/09/08/nyregion/eric-adams-black-churches.html
+
 **Now the NFL's highest-paid QB, pressure is on Dak Prescott to bring Cowboys playoff success**\
 `The Cowboys have a lot of money invested in Dak Prescott and CeeDee Lamb. It's time to turn things around in the postseason.`\
 https://nytimes.com/athletic/5753665/2024/09/08/dak-prescott-cowboys-jerry-jones-contract/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5752188/2024/09/08/england-anthony-gordon-phil-fode
 **Fenerbahce agree loan deal with Juventus for Kostic**\
 `Fenerbahce have agreed a loan deal with Juventus to sign winger Filip Kostic.`\
 https://nytimes.com/athletic/5753657/2024/09/08/filip-kostic-fenerbahce-transfer/
-
-**Fugitive Televangelist Wanted by F.B.I. Is Caught in the Philippines**\
-`Weeks of tense standoff in the Philippines have ended in the capture of a pastor accused of leading an international ring of sex abuse and trafficking of young women and girls.`\
-https://nytimes.com/2024/09/08/world/asia/philippines-pastor-kingdom-trafficking.html
-
-**Liz Cheney Accuses G.O.P. Trump Backers of Betraying Their Principles**\
-`The former Republican representative criticized Nikki Haley for now supporting former President Donald J. Trump and compared JD Vance unfavorably with Mike Pence.`\
-https://nytimes.com/2024/09/08/us/politics/liz-cheney-trump-harris-republicans.html
 

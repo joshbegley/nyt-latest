@@ -1,3 +1,7 @@
+**Dolphins' Hill detained for traffic violation**\
+`Hill hauled in an 80-yard touchdown reception during the first quarter against Jacksonville.`\
+https://nytimes.com/athletic/5753311/2024/09/08/tyreek-hill-traffic-incident-detained-dolphins/
+
 **Now the NFL's highest-paid QB, pressure is on Dak Prescott to bring Cowboys playoff success**\
 `The Cowboys have a lot of money invested in Dak Prescott and CeeDee Lamb. It's time to turn things around in the postseason.`\
 https://nytimes.com/athletic/5753665/2024/09/08/dak-prescott-cowboys-jerry-jones-contract/
