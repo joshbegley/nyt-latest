@@ -1,3 +1,7 @@
+**Six-time Paralympic champion Weir announces Great Britain retirement**\
+`David Weir, a six-time Paralympic champion, has announced his retirement from Great Britain competition.`\
+https://nytimes.com/athletic/5752884/2024/09/08/david-weir-retirement-paralympics/
+
 **North Korea Launches New Salvo of Balloons, but the South Barely Shrugs**\
 `Hundreds of propaganda balloons ferrying trash have landed in South Korea in recent days, where officials say they typically do not pose a threat.`\
 https://nytimes.com/2024/09/08/world/asia/north-korea-balloons-again.html
