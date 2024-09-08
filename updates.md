@@ -1,3 +1,7 @@
+**G.O.P. Report to Denounce Biden Administration Over Afghanistan Withdrawal**\
+`In an election-season document, Republicans are set to offer few new revelations but instead heap blame on the “Biden-Harris administration” while absolving former President Donald J. Trump.`\
+https://nytimes.com/2024/09/08/us/politics/republicans-biden-harris-afghanistan-withdrawal.html
+
 **Monday Briefing: Judge Postponed Trump’s Sentencing**\
 `Plus, rural women in China fighting for land rights.`\
 https://nytimes.com/2024/09/08/briefing/trump-sentencing-venezuela-west-bank.html

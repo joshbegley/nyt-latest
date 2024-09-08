@@ -1,3 +1,7 @@
+**G.O.P. Report to Denounce Biden Administration Over Afghanistan Withdrawal**\
+`In an election-season document, Republicans are set to offer few new revelations but instead heap blame on the “Biden-Harris administration” while absolving former President Donald J. Trump.`\
+https://nytimes.com/2024/09/08/us/politics/republicans-biden-harris-afghanistan-withdrawal.html
+
 **Monday Briefing: Judge Postponed Trump’s Sentencing**\
 `Plus, rural women in China fighting for land rights.`\
 https://nytimes.com/2024/09/08/briefing/trump-sentencing-venezuela-west-bank.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5753778/2024/09/08/submit-question-sam-khan-ask-the
 **Michael Jordan's 23XI, Front Row Motorsports explain why they're NASCAR charter holdouts**\
 `23XI Racing co-owner Curtis Polk described the battle between his team and NASCAR as "David facing Goliath," far away from a deal.`\
 https://nytimes.com/athletic/5753700/2024/09/08/michael-jordan-nascar-23xi-front-row-charters/
-
-**Thomas Hammock and Northern Illinois believed — and that was enough to beat Notre Dame**\
-`This was a brawl with a clear winner. The Huskies outgained the Fighting Irish 388-to-286 and were the better team throughout. `\
-https://nytimes.com/athletic/5753748/2024/09/08/northern-illinois-thomas-hammock-notre-dame/
 
