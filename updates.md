@@ -1,3 +1,19 @@
+**Red Sox offense breaks out of slump as team fights to stay in wild-card hunt**\
+`The Red Sox gained a bit of ground in the playoff chase, moving to four games back of the Twins for the final AL wild-card spot.`\
+https://nytimes.com/athletic/5752672/2024/09/08/red-sox-offense-wild-card/
+
+**Evaluating Angel Reese's historic WNBA rookie season**\
+`Though the injury takes Reese out of Rookie of the Year contention, she still set several rookie and WNBA records during her first season.`\
+https://nytimes.com/athletic/5752621/2024/09/08/angel-reese-wnba-records-rookie-season/
+
+**Jaguars vs. Dolphins odds, picks, how to watch: Two teams looking for redemption**\
+`Miami is favored in a matchup of two Florida teams coming off a disappointing 2023 campaign. Which will start the season on the right foot?`\
+https://nytimes.com/athletic/5750604/2024/09/08/jaguars-dolphins-odds-expert-picks-how-to-watch-predictions-betting/
+
+**Minnesota Vikings vs. New York Giants odds, expert picks, how to watch Week 1's tightest matchup**\
+`Vikings vs. Giants is Week 1's tightest matchup in terms of odds with a lot of unknowns on whether each team can deliver.`\
+https://nytimes.com/athletic/5750675/2024/09/08/vikings-giants-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Ohio State's explosive offense on display as running backs, receivers impress**\
 `Along with a strong bounce-back effort from the offensive line, Quinshon Judkins, TreVeyon Henderson and Jeremiah Smith had standout games.`\
 https://nytimes.com/athletic/5752629/2024/09/08/ohio-state-western-michigan-takeaways/
