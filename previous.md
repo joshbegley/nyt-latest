@@ -1,3 +1,19 @@
+**Nagelsmann's smart use of Gross and Havertz shows Germany there is life after Kroos**\
+`Kroos was one of the finest passers in the modern game and ignited Nagelsmann's reign but he seems to be coping without his star midfielder`\
+https://nytimes.com/athletic/5752276/2024/09/08/gross-germany-kroos-replacement/
+
+**New Jersey Is Prompting a New Sports Identity Crisis in Philadelphia**\
+`The state is already home to four teams whose uniforms say “New York.” Now it’s trying to lure the N.B.A.’s 76ers.`\
+https://nytimes.com/2024/09/08/sports/new-jersey-philadelphia-76ers.html
+
+**After a Year of Legal Peril, Trump Seeks Election as a Felon, but Free**\
+`Donald J. Trump’s sentencing in Manhattan was delayed, thanks in part to his legal resources and political status. It raised a question: Is he above the law?`\
+https://nytimes.com/2024/09/08/nyregion/trump-election-felon-sentence-delay.html
+
+**The Palace Coup at the Magic Kingdom**\
+`The inside story of how Bob Iger undermined and outmaneuvered Bob Chapek, his chosen successor, and returned to power at Disney.`\
+https://nytimes.com/2024/09/08/business/media/disney-bob-iger-chapek.html
+
 **In Shanghai, Searching for Those in Search of Connection**\
 `Every week, lonely retirees in the city gather in a public park — and an Ikea canteen — with one goal in mind: finding true love. Alexandra Stevenson shared their stories.`\
 https://nytimes.com/2024/09/08/insider/china-dating.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5752714/2024/09/08/twins-lose-royals-bullpen/
 **NFL Draft tracker: Jaxson Dart, Kyle Monangai, other prospects who stood out in Week 2**\
 `Dart is off to a red-hot start for Ole Miss, and the same came be said for Rutgers' Monangai. Who else stood out on Saturday?`\
 https://nytimes.com/athletic/5751881/2024/09/08/nfl-draft-risers-jaxson-dart-kyle-monangai/
-
-**Are People Named Dennis Really More Likely to Become Dentists?**\
-`The weird, mostly bad science of nominative determinism.`\
-https://nytimes.com/2024/09/08/opinion/names-destiny-nominative-determinism.html
-
-**Panthers vs. Saints odds, picks, how to watch: Saints favored at home in the dome**\
-`Two teams with a lot of doubt to overcome. The Saints are favorites at home against the Panthers in Year 2 of the Bryce Young era.`\
-https://nytimes.com/athletic/5750655/2024/09/08/panthers-saints-odds-expert-picks-how-to-watch-predictions-betting/
-
-**Red Sox offense breaks out of slump as team fights to stay in wild-card hunt**\
-`The Red Sox gained a bit of ground in the playoff chase, moving to four games back of the Twins for the final AL wild-card spot.`\
-https://nytimes.com/athletic/5752672/2024/09/08/red-sox-offense-wild-card/
-
-**Evaluating Angel Reese's historic WNBA rookie season**\
-`Though the injury takes Reese out of Rookie of the Year contention, she still set several rookie and WNBA records during her first season.`\
-https://nytimes.com/athletic/5752621/2024/09/08/angel-reese-wnba-records-rookie-season/
 
