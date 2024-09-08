@@ -1,3 +1,7 @@
+**Taylor Fritz didn't have to play 'unbelievable' at the U.S. Open. Then came Jannik Sinner**\
+`Current men's tennis contenders see more opportunity than when the Big Three were dominating Grand Slams. Yet wins are still a tall order.`\
+https://nytimes.com/athletic/5754072/2024/09/08/taylor-fritz-us-open-mens-tennis-sinner-alcaraz/
+
 **Mets' winning streak comes to an end: 3 takeaways from the hot stretch**\
 `Luis Severino continued a strong run for the Mets rotation, which has 2.05 ERA over the past 10 games.`\
 https://nytimes.com/athletic/5754115/2024/09/08/mets-mlb-wild-card-race-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5753057/2024/09/08/nfl-takeaways-week-1-bengals-kir
 **Notre Dame shouldn't be ranked and Tennessee has a top-4 case: Behind the AP Top 25 ballot**\
 `There's a clear top three after Week 2 of the college football season, and clear debate in the AP Top 25 rankings elsewhere.`\
 https://nytimes.com/athletic/5753876/2024/09/08/ap-top-25-rankings-notre-dame-niu/
-
-**G.O.P. Report to Denounce Biden Administration Over Afghanistan Withdrawal**\
-`In an election-season document, Republicans are set to offer few new revelations but instead heap blame on the “Biden-Harris administration” while absolving former President Donald J. Trump.`\
-https://nytimes.com/2024/09/08/us/politics/republicans-biden-harris-afghanistan-withdrawal.html
 

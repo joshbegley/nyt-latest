@@ -1,3 +1,7 @@
+**Taylor Fritz didn't have to play 'unbelievable' at the U.S. Open. Then came Jannik Sinner**\
+`Current men's tennis contenders see more opportunity than when the Big Three were dominating Grand Slams. Yet wins are still a tall order.`\
+https://nytimes.com/athletic/5754072/2024/09/08/taylor-fritz-us-open-mens-tennis-sinner-alcaraz/
+
 **Mets' winning streak comes to an end: 3 takeaways from the hot stretch**\
 `Luis Severino continued a strong run for the Mets rotation, which has 2.05 ERA over the past 10 games.`\
 https://nytimes.com/athletic/5754115/2024/09/08/mets-mlb-wild-card-race-2/
