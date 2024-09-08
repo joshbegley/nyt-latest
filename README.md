@@ -1,3 +1,11 @@
+**Submit a question for Sam Khan Jr.’s Ask the Texpert mailbag**\
+`Submit your questions about Texas college football for Sam Khan Jr. and they may be answered in the next Ask the Texpert mailbag.`\
+https://nytimes.com/athletic/5753778/2024/09/08/submit-question-sam-khan-ask-the-texpert-mailbag/
+
+**Michael Jordan's 23XI, Front Row Motorsports explain why they're NASCAR charter holdouts**\
+`23XI Racing co-owner Curtis Polk described the battle between his team and NASCAR as "David facing Goliath," far away from a deal.`\
+https://nytimes.com/athletic/5753700/2024/09/08/michael-jordan-nascar-23xi-front-row-charters/
+
 **Thomas Hammock and Northern Illinois believed — and that was enough to beat Notre Dame**\
 `This was a brawl with a clear winner. The Huskies outgained the Fighting Irish 388-to-286 and were the better team throughout. `\
 https://nytimes.com/athletic/5753748/2024/09/08/northern-illinois-thomas-hammock-notre-dame/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5753580/2024/09/08/ap-top-25-college-football-week-
 **Dolphins' Hill detained for traffic violation**\
 `Hill hauled in an 80-yard touchdown reception during the first quarter against Jacksonville.`\
 https://nytimes.com/athletic/5753311/2024/09/08/tyreek-hill-traffic-incident-detained-dolphins/
-
-**Why England are a better team with Anthony Gordon in than Phil Foden**\
-`Anthony Gordon was clear about what England were lacking in their Euro 2024 "failure" and showed against Ireland how to fix it`\
-https://nytimes.com/athletic/5752188/2024/09/08/england-anthony-gordon-phil-foden/
-
-**Fenerbahce agree loan deal with Juventus for Kostic**\
-`Fenerbahce have agreed a loan deal with Juventus to sign winger Filip Kostic.`\
-https://nytimes.com/athletic/5753657/2024/09/08/filip-kostic-fenerbahce-transfer/
 
