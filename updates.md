@@ -1,3 +1,11 @@
+**Thomas Hammock and Northern Illinois believed — and that was enough to beat Notre Dame**\
+`This was a brawl with a clear winner. The Huskies outgained the Fighting Irish 388-to-286 and were the better team throughout. `\
+https://nytimes.com/athletic/5753748/2024/09/08/northern-illinois-thomas-hammock-notre-dame/
+
+**Adams Visits Black Churches to Bolster Support as Investigations Heat Up**\
+`The New York City mayor compared himself to a biblical figure who endured suffering, telling parishioners that he was having a “Job moment.”`\
+https://nytimes.com/2024/09/08/nyregion/eric-adams-black-churches.html
+
 **Dolphins' Hill detained for traffic violation**\
 `Hill hauled in an 80-yard touchdown reception during the first quarter against Jacksonville.`\
 https://nytimes.com/athletic/5753311/2024/09/08/tyreek-hill-traffic-incident-detained-dolphins/
