@@ -1,3 +1,7 @@
+**Dolphins' Hill detained for traffic violation**\
+`Hill hauled in an 80-yard touchdown reception during the third quarter against Jacksonville.`\
+https://nytimes.com/athletic/5753311/2024/09/08/tyreek-hill-traffic-incident-detained-dolphins/
+
 **Submit a question for Sam Khan Jr.’s Ask the Texpert mailbag**\
 `Submit your questions about Texas college football for Sam Khan Jr. and they may be answered in the next Ask the Texpert mailbag.`\
 https://nytimes.com/athletic/5753778/2024/09/08/submit-question-sam-khan-ask-the-texpert-mailbag/

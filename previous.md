@@ -35,6 +35,6 @@ https://nytimes.com/2024/09/08/style/us-open-after-party.html
 https://nytimes.com/athletic/5753580/2024/09/08/ap-top-25-college-football-week-2/
 
 **Dolphins' Hill detained for traffic violation**\
-`Hill hauled in an 80-yard touchdown reception during the first quarter against Jacksonville.`\
+`Hill hauled in an 80-yard touchdown reception during the third quarter against Jacksonville.`\
 https://nytimes.com/athletic/5753311/2024/09/08/tyreek-hill-traffic-incident-detained-dolphins/
 
