@@ -1,3 +1,11 @@
+**After 17 Years in Prison, I’m a Different Person. Do Cases Like Mine Deserve a Second Look?**\
+`A new law would bring hope to people like me.`\
+https://nytimes.com/2024/09/08/opinion/second-act-prison-criminal-justice-reform.html
+
+**Until Saturday: Notre Dame's stunner, plus Texas' statement**\
+`Welcome to Until Saturday, the five-star college football newsletter: Week 2 brought a big upset, some close calls and an early statement.`\
+https://nytimes.com/athletic/5752872/2024/09/08/notre-dame-northern-illinois-texas-michigan-until-saturday/
+
 **Brock Purdy's college reunion: Why 49ers' opener vs. Jets has an Iowa State flavor**\
 `Purdy will face fellow Iowa State alums Breece Hall, Will McDonald IV and Allen Lazard in the 49ers' season opener against the Jets.`\
 https://nytimes.com/athletic/5741322/2024/09/08/49ers-jets-brock-purdy-iowa-state-hall-mcdonald/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5701128/2024/09/08/college-football-playoff-project
 **Canada's dominance of USMNT shows Copa was no fluke as they ascend to be CONCACAF's top side**\
 `Jesse Marsch has heightened demands on his players and they are responding — wins over the U.S. should no longer be considered surprising`\
 https://nytimes.com/athletic/5752545/2024/09/08/canada-usmnt-concacaf-kansas/
-
-**Six-time Paralympic champion Weir announces Great Britain retirement**\
-`David Weir, a six-time Paralympic champion, has announced his retirement from Great Britain competition.`\
-https://nytimes.com/athletic/5752884/2024/09/08/david-weir-retirement-paralympics/
-
-**North Korea Launches New Salvo of Balloons, but the South Barely Shrugs**\
-`Hundreds of propaganda balloons ferrying trash have landed in South Korea in recent days, where officials say they typically do not pose a threat.`\
-https://nytimes.com/2024/09/08/world/asia/north-korea-balloons-again.html
 
