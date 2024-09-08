@@ -1,3 +1,7 @@
+**Fenerbahce agree loan deal with Juventus for Kostic**\
+`Fenerbahce have agreed a loan deal with Juventus to sign winger Filip Kostic.`\
+https://nytimes.com/athletic/5753657/2024/09/08/filip-kostic-fenerbahce-transfer/
+
 **Fugitive Televangelist Wanted by F.B.I. Is Caught in the Philippines**\
 `Weeks of tense standoff in the Philippines have ended in the capture of a pastor accused of leading an international ring of sex abuse and trafficking of young women and girls.`\
 https://nytimes.com/2024/09/08/world/asia/philippines-pastor-kingdom-trafficking.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5753438/2024/09/08/kendrick-lamar-super-bowl-halfti
 **Steelers vs. Falcons odds, picks, how to watch: Fields replaces Wilson in season opener**\
 `Justin Fields will start Sunday vs. Kirk Cousins as the Steelers battle the Falcons in Atlanta. `\
 https://nytimes.com/athletic/5750147/2024/09/08/steelers-falcons-odds-expert-picks-how-to-watch-predictions-betting/
-
-**Bengals' Chase active for Week 1 despite no new contract**\
-`The Bengals receiver will return to football after weeks and months of contract controversy.`\
-https://nytimes.com/athletic/5753228/2024/09/08/patriots-bengals-nfl-week-1-recap/
 
