@@ -1,3 +1,7 @@
+**Notre Dame shouldn't be ranked and Tennessee has a top-4 case: Behind the AP Top 25 ballot**\
+`There's a clear top three after Week 2 of the college football season, and clear debate in the AP Top 25 rankings elsewhere.`\
+https://nytimes.com/athletic/5753876/2024/09/08/ap-top-25-rankings-notre-dame-niu/
+
 **G.O.P. Report to Denounce Biden Administration Over Afghanistan Withdrawal**\
 `In an election-season document, Republicans are set to offer few new revelations but instead heap blame on the “Biden-Harris administration” while absolving former President Donald J. Trump.`\
 https://nytimes.com/2024/09/08/us/politics/republicans-biden-harris-afghanistan-withdrawal.html
