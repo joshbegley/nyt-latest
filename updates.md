@@ -1,3 +1,15 @@
+**Welcome to… Walton & Hersham: Bought by teenagers, rapid success and now a U.S. academy**\
+`A rapid rise through the divisions, U.S. investment and left-field owners? No, this is not Wrexham, this is Walton & Hersham`\
+https://nytimes.com/athletic/5403798/2024/09/08/walton-and-hersham-teenage-owners/
+
+**Opposition Candidate Has Fled Venezuela, Vice President Says**\
+`Vice President Delcy Rodríguez said on social media that Edmundo González had left for Spain, whose foreign minister said Mr. González was traveling on a Spanish Air Force plane.`\
+https://nytimes.com/2024/09/08/world/americas/venezuela-opposition-argentina-embassy.html
+
+**The Athletic 500: Which Premier League signings were the best and worst rated overall?**\
+`From the highest-rated to the lowest-rated, and potential superstars to financially sensible buys, we look back through all 69 ratings`\
+https://nytimes.com/athletic/5743779/2024/09/08/transfers-the-athletic-500-best-and-worst-overall/
+
 **They Had Thriving Lives on X, Until Brazil Banned It Overnight**\
 `The ban on Elon Musk’s X has dealt a blow to Brazilians whose livelihoods depended on internet followings they had amassed for years, and which disappeared overnight.`\
 https://nytimes.com/2024/09/08/world/brazil-x-ban-business-community.html
