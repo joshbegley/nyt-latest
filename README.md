@@ -1,3 +1,7 @@
+**After a Century and a Half in Sweden, Finnish Skulls Return Home**\
+`Dozens of skulls exhumed in Finland in the 19th century and taken to Sweden by scientists who wanted to study their racial characteristics were reburied in Finnish soil on Sunday.`\
+https://nytimes.com/2024/09/08/world/europe/finland-sweden-skulls.html
+
 **Paralympics highlights: A gold won in silence, manifesting dreams, and lessons for L.A.**\
 `The Paralympics brought us inspirational, powerful and surprising stories. Here, Charlotte Harpur chooses her most memorable…`\
 https://nytimes.com/athletic/5753182/2024/09/08/paralympics-highlights-frech-aoki/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/08/world/europe/greece-cruise-ships-tourists-islands
 **Steelers' Wilson inactive, Fields to start**\
 `Steelers starter Russell Wilson's ongoing calf injury will force him to miss Sunday’s Week 1 game against the Falcons.`\
 https://nytimes.com/athletic/5753356/2024/09/08/steelers-falcons-russell-wilson-status/
-
-**Cowboys, Prescott agree to 4-year, $240 million deal**\
-`Prescott, 31, is coming off of one of the best seasons of his career last year spending much of the season as a league MVP candidate.`\
-https://nytimes.com/athletic/5712512/2024/09/08/dak-prescott-cowboys-contract-extension/
 
