@@ -1,3 +1,7 @@
+**Broncos vs. Seahawks odds, picks, how to watch: Bo Nix debuts on the road**\
+`Bo Nix makes his NFL debut with the Broncos on the road, but it's the Seahawks who are favored at home with a new head coach.`\
+https://nytimes.com/athletic/5750771/2024/09/08/broncos-seahawks-odds-expert-picks-how-to-watch-predictions-betting/
+
 **New Poll Suggests Harris’s Support Has Stalled After a Euphoric August**\
 `Almost 30 percent of voters said they needed to learn more about her.`\
 https://nytimes.com/2024/09/08/upshot/trump-harris-poll-analysis.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/08/magazine/prince-netflix-ezra-edelman-documentary.
 **Was Iraq an ‘Artificial Nation’ Created by the West? This History Says No.**\
 `A new book by the journalist Bartle Bull recounts 5,000 years of the country’s past, showing how long before colonial powers defined its borders, it was a place with a common history.`\
 https://nytimes.com/2024/09/08/books/review/land-between-the-rivers-bartle-bull.html
-
-**The Deep Divisions at the Heart of North Carolina’s Pivotal Governor’s Race**\
-`Lt. Gov. Mark Robinson, a Republican, could cement North Carolina as a conservative state if he wins. Democrats hope his incendiary style moves swing voters to their candidate, Josh Stein.`\
-https://nytimes.com/2024/09/08/us/nc-governor-race-robinson-sniff.html
 
