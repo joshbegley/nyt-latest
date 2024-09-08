@@ -1,3 +1,7 @@
+**Alabama takeaways: Crimson Tide leaves much to be desired in win vs. South Florida**\
+`The Crimson Tide beat the Bulls 42-16, but it was a sloppy showing on both sides.`\
+https://nytimes.com/athletic/5752630/2024/09/07/alabama-south-florida-college-football-score-analysis/
+
 **In exposing Colorado, Nebraska looked like a program on the rise. Can Deion fix Buffs' woes?**\
 `The Huskers mostly dominated the rivalry game Saturday, while a host of concerns emerged for Colorado. Here's what we learned.`\
 https://nytimes.com/athletic/5752552/2024/09/07/colorado-nebraska-deion-sanders-matt-rhule/
