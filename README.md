@@ -1,3 +1,11 @@
+**Paralympics highlights: A gold won in silence, manifesting dreams, and lessons for L.A.**\
+`The Paralympics brought us inspirational, powerful and surprising stories. Here, Charlotte Harpur chooses her most memorable…`\
+https://nytimes.com/athletic/5753182/2024/09/08/paralympics-highlights-frech-aoki/
+
+**The Pulse: Notre Dame falls as massive favorite**\
+`Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5750528/2024/09/08/notre-dame-northern-illinois-nfl-watch-guide-the-pulse/
+
 **Kendrick Lamar to perform Super Bowl halftime show in NOLA**\
 `Super Bowl LIX will take place on Feb. 9, 2025 at the Caesars Superdome.`\
 https://nytimes.com/athletic/5753438/2024/09/08/kendrick-lamar-super-bowl-halftime-show/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5753356/2024/09/08/steelers-falcons-russell-wilson-
 **Cowboys, Prescott agree to 4-year, $240 million deal**\
 `Prescott, 31, is coming off of one of the best seasons of his career last year spending much of the season as a league MVP candidate.`\
 https://nytimes.com/athletic/5712512/2024/09/08/dak-prescott-cowboys-contract-extension/
-
-**Dolphins' Hill detained for traffic violation, will play**\
-`The Dolphins confirmed Hill will play in Sunday afternoon's game against the Jacksonville Jaguars.`\
-https://nytimes.com/athletic/5753311/2024/09/08/tyreek-hill-traffic-incident-detained-dolphins/
-
-**Calafiori returning to Arsenal after injury on international duty**\
-`Riccardo Calafiori is returning to Arsenal after picking up an injury on international duty with Italy.`\
-https://nytimes.com/athletic/5752929/2024/09/08/riccardo-calafiori-injury-italy-arsenal-update/
 
