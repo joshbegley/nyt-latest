@@ -1,3 +1,11 @@
+**Cowboys, Prescott agree to 4-year, $240 million deal**\
+`Prescott, 31, is coming off of one of the best seasons of his career last year spending much of the season as a league MVP candidate.`\
+https://nytimes.com/athletic/5712512/2024/09/08/dak-prescott-cowboys-contract-extension/
+
+**Dolphins' Hill detained for traffic violation, will play**\
+`The Dolphins confirmed Hill will play in Sunday afternoon's game against the Jacksonville Jaguars.`\
+https://nytimes.com/athletic/5753311/2024/09/08/tyreek-hill-traffic-incident-detained-dolphins/
+
 **Calafiori returning to Arsenal after injury on international duty**\
 `Riccardo Calafiori is returning to Arsenal after picking up an injury on international duty with Italy.`\
 https://nytimes.com/athletic/5752929/2024/09/08/riccardo-calafiori-injury-italy-arsenal-update/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5752016/2024/09/08/us-open-cilic-nishikori-2014/
 **After 17 Years in Prison, I’m a Different Person. Do Cases Like Mine Deserve a Second Look?**\
 `A new law would bring hope to people like me.`\
 https://nytimes.com/2024/09/08/opinion/second-act-prison-criminal-justice-reform.html
-
-**Until Saturday: Notre Dame's stunner, plus Texas' statement**\
-`Welcome to Until Saturday, the five-star college football newsletter: Week 2 brought a big upset, some close calls and an early statement.`\
-https://nytimes.com/athletic/5752872/2024/09/08/notre-dame-northern-illinois-texas-michigan-until-saturday/
-
-**Brock Purdy's college reunion: Why 49ers' opener vs. Jets has an Iowa State flavor**\
-`Purdy will face fellow Iowa State alums Breece Hall, Will McDonald IV and Allen Lazard in the 49ers' season opener against the Jets.`\
-https://nytimes.com/athletic/5741322/2024/09/08/49ers-jets-brock-purdy-iowa-state-hall-mcdonald/
 
