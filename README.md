@@ -1,7 +1,3 @@
-**Monday Briefing: Judge Postponed Trump’s Sentencing**\
-`Plus, rural women in China fighting for land rights.`\
-https://nytimes.com/2024/09/08/briefing/trump-sentencing-venezuela-west-bank.html
-
 **Bears defense, special teams shines in comeback**\
 `The Chicago Bears scored 21 unanswered points to pick up a 24-17 win over the Tennessee Titans in the Week 1 matchup at Soldier Field.`\
 https://nytimes.com/athletic/5753208/2024/09/08/bears-titans-result-takeaways/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5753700/2024/09/08/michael-jordan-nascar-23xi-front
 **Thomas Hammock and Northern Illinois believed — and that was enough to beat Notre Dame**\
 `This was a brawl with a clear winner. The Huskies outgained the Fighting Irish 388-to-286 and were the better team throughout. `\
 https://nytimes.com/athletic/5753748/2024/09/08/northern-illinois-thomas-hammock-notre-dame/
+
+**Adams Visits Black Churches to Bolster Support as Investigations Heat Up**\
+`The New York City mayor compared himself to a biblical figure who endured suffering, telling parishioners that he was having a “Job moment.”`\
+https://nytimes.com/2024/09/08/nyregion/eric-adams-black-churches.html
 
