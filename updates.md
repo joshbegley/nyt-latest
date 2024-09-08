@@ -1,3 +1,7 @@
+**Our College Football Playoff model projections: Notre Dame out; USC and Tennessee move in**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/09/08/college-football-playoff-projections-odds/
+
 **After 17 Years in Prison, I’m a Different Person. Do Cases Like Mine Deserve a Second Look?**\
 `A new law would bring hope to people like me.`\
 https://nytimes.com/2024/09/08/opinion/second-act-prison-criminal-justice-reform.html
