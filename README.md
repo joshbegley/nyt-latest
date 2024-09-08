@@ -1,3 +1,11 @@
+**Kendrick Lamar to perform Super Bowl halftime show in NOLA**\
+`Super Bowl LIX will take place on Feb. 9, 2025 at the Caesars Superdome.`\
+https://nytimes.com/athletic/5753438/2024/09/08/kendrick-lamar-super-bowl-halftime-show/
+
+**Steelers vs. Falcons odds, picks, how to watch: Fields replaces Wilson in season opener**\
+`Two veteran quarterbacks face their first test on new teams Sunday as the Steelers battle the Falcons in Atlanta. `\
+https://nytimes.com/athletic/5750147/2024/09/08/steelers-falcons-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Bengals' Chase active for Week 1 despite no new contract**\
 `The Bengals receiver will return to football after weeks and months of contract controversy.`\
 https://nytimes.com/athletic/5753228/2024/09/08/patriots-bengals-nfl-week-1-recap/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5753311/2024/09/08/tyreek-hill-traffic-incident-det
 **Calafiori returning to Arsenal after injury on international duty**\
 `Riccardo Calafiori is returning to Arsenal after picking up an injury on international duty with Italy.`\
 https://nytimes.com/athletic/5752929/2024/09/08/riccardo-calafiori-injury-italy-arsenal-update/
-
-**Sherman: Nebraska fans should embrace the change in Matt Rhule’s Huskers**\
-`Matt Rhule’s Nebraska team clears a hurdle on the path back to relevance with Colorado win.`\
-https://nytimes.com/athletic/5753193/2024/09/08/nebraska-matt-rhule-colorado/
-
-**A Judge’s Decision to Delay Trump’s Sentencing**\
-`Readers disagree about whether putting off sentencing until after the election was the right move. Also: Risky Covid behavior; outdoor dining; a librarian’s fight.`\
-https://nytimes.com/2024/09/08/opinion/trump-sentencing.html
 
