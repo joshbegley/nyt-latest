@@ -1,3 +1,7 @@
+**Dan Morgenstern, Chronicler and Friend of Jazz, Dies at 94**\
+`He wrote prolifically about the music and played an important role in documenting its history, especially in his many years with the Institute of Jazz Studies.`\
+https://nytimes.com/2024/09/07/arts/music/dan-morgenstern-dead.html
+
 **Emerson: You can't trust Hugh Freeze after one game, whether it's an L or W**\
 `Hugh Freeze is a good coach, but one who has a lot of fantastic wins with a lot of bad losses. How to measure Saturday's loss to Cal, then?`\
 https://nytimes.com/athletic/5752463/2024/09/07/auburn-hugh-freeze-california-football-loss/
@@ -30,11 +34,7 @@ https://nytimes.com/athletic/5752373/2024/09/07/iowa-iowa-state-cy-hawk-comeback
 `The Belarusian recovered from last year's final defeat to Coco Gauff to win in straight sets`\
 https://nytimes.com/athletic/5752164/2024/09/07/sabalenka-pegula-us-open-final-result-analysis/
 
-**‘Numerous’ People Shot on Kentucky Highway, Officials Say**\
-`How many people were shot and what led up to the shooting on I-75 near London, Ky., was not immediately clear.`\
+**Five People Shot on Kentucky Highway, Officials Say**\
+`All were in stable condition, the authorities said. What led up to the shooting on I-75 near London, Ky., was not immediately clear.`\
 https://nytimes.com/2024/09/07/us/shooting-kentucky-highway.html
-
-**Meek: Michigan's new era begins with Texas razing Big House**\
-`Michigan fans should console themselves thinking about their championship trophy. But that will only last for so long.`\
-https://nytimes.com/athletic/5752299/2024/09/07/michigan-texas-loss-sherrone-moore/
 
