@@ -1,3 +1,7 @@
+**Steelers' Wilson inactive, Fields to start**\
+`Steelers starter Russell Wilson's ongoing calf injury will force him to miss Sunday’s Week 1 game against the Falcons.`\
+https://nytimes.com/athletic/5753356/2024/09/08/steelers-falcons-russell-wilson-status/
+
 **Cowboys, Prescott agree to 4-year, $240 million deal**\
 `Prescott, 31, is coming off of one of the best seasons of his career last year spending much of the season as a league MVP candidate.`\
 https://nytimes.com/athletic/5712512/2024/09/08/dak-prescott-cowboys-contract-extension/

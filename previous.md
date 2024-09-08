@@ -1,3 +1,7 @@
+**Steelers' Wilson inactive, Fields to start**\
+`Steelers starter Russell Wilson's ongoing calf injury will force him to miss Sunday’s Week 1 game against the Falcons.`\
+https://nytimes.com/athletic/5753356/2024/09/08/steelers-falcons-russell-wilson-status/
+
 **Cowboys, Prescott agree to 4-year, $240 million deal**\
 `Prescott, 31, is coming off of one of the best seasons of his career last year spending much of the season as a league MVP candidate.`\
 https://nytimes.com/athletic/5712512/2024/09/08/dak-prescott-cowboys-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5752578/2024/09/08/live-qa-week-1-fantasy-football-
 **How Marin Cilic and Kei Nishikori stunned tennis at the 2014 U.S. Open**\
 `At the 2014 U.S. Open, Roger Federer and Novak Djokovic were the picks for the final. Two players had other ideas`\
 https://nytimes.com/athletic/5752016/2024/09/08/us-open-cilic-nishikori-2014/
-
-**After 17 Years in Prison, I’m a Different Person. Do Cases Like Mine Deserve a Second Look?**\
-`A new law would bring hope to people like me.`\
-https://nytimes.com/2024/09/08/opinion/second-act-prison-criminal-justice-reform.html
 
