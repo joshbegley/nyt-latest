@@ -1,3 +1,7 @@
+**Obsessed with Sleep**\
+`The science behind popular methods for improving sleep, and the downsides of caring too much about it.`\
+https://nytimes.com/2024/09/08/briefing/improving-sleep-hacks.html
+
 **College Football Playoff 2024 projections: Notre Dame CFP hopes take big hit from NIU**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/09/08/college-football-playoff-projections-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5750933/2024/09/08/rams-lions-odds-expert-picks-how
 **I Love Taylor Swift. Her Political Endorsement Shouldn’t Matter.**\
 `It’s seductive to think that superstars can sway elections. But we shouldn’t hope that celebrities will save us from the hard work of winning people over.`\
 https://nytimes.com/2024/09/08/opinion/taylor-swift-endorsement-election-harris.html
-
-**Mandel's Final Thoughts: Georgia, Ohio State and Texas at the top. After that, guess again**\
-`This was supposed to be the year Marcus Freeman led Notre Dame to national title contention, but then came Saturday's confidence crusher. `\
-https://nytimes.com/athletic/5752786/2024/09/08/college-football-week-2-notre-dame-texas/
 
