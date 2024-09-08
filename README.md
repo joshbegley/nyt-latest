@@ -31,7 +31,7 @@ https://nytimes.com/athletic/5752373/2024/09/07/iowa-iowa-state-cy-hawk-comeback
 https://nytimes.com/athletic/5752164/2024/09/07/sabalenka-pegula-us-open-final-result-analysis/
 
 **Five People Shot on Kentucky Highway, Officials Say**\
-`All were in stable condition, the authorities said. What led up to the shooting on I-75 near London, Ky., was not immediately clear.`\
+`The victims were in stable condition, the authorities said. What led up to the shooting on I-75 near London, Ky., was not immediately clear.`\
 https://nytimes.com/2024/09/07/us/shooting-kentucky-highway.html
 
 **Meek: Michigan's new era begins with Texas razing Big House**\
