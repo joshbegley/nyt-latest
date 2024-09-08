@@ -1,3 +1,7 @@
+**College Football Playoff 2024 projections: Notre Dame CFP hopes take big hit from NIU**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/09/08/college-football-playoff-projections-odds/
+
 **Canada's dominance of USMNT shows Copa was no fluke as they ascend to be CONCACAF's top side**\
 `Jesse Marsch has heightened demands on his players and they are responding - wins over the U.S. should no longer be considered surprising.`\
 https://nytimes.com/athletic/5752545/2024/09/08/canada-usmnt-concacaf-kansas/
