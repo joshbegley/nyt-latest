@@ -1,3 +1,15 @@
+**Monday Briefing: Judge Postponed Trump’s Sentencing**\
+`Plus, rural women in China fighting for land rights.`\
+https://nytimes.com/2024/09/08/briefing/trump-sentencing-venezuela-west-bank.html
+
+**Bears defense, special teams shines in comeback**\
+`The Chicago Bears scored 21 unanswered points to pick up a 24-17 win over the Tennessee Titans in the Week 1 matchup at Soldier Field.`\
+https://nytimes.com/athletic/5753208/2024/09/08/bears-titans-result-takeaways/
+
+**DeeJay Dallas scores first kickoff return TD of season**\
+`Cardinals returner DeeJay Dallas had thrilling 96-yard kickoff return for a touchdown under the NFL's new kickoff rules.`\
+https://nytimes.com/athletic/5753814/2024/09/08/deejay-dallas-kickoff-return-touchdown/
+
 **5 takeaways from Steelers' season-opening win over Falcons**\
 `Boswell connected on field goals from 57 yards, 51 yards, 44 yards, 56 yards, 40 yards and 25 yards.`\
 https://nytimes.com/athletic/5753183/2024/09/08/steelers-falcons-result-takeaways/

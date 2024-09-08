@@ -1,3 +1,11 @@
+**Monday Briefing: Judge Postponed Trump’s Sentencing**\
+`Plus, rural women in China fighting for land rights.`\
+https://nytimes.com/2024/09/08/briefing/trump-sentencing-venezuela-west-bank.html
+
+**Bears defense, special teams shines in comeback**\
+`The Chicago Bears scored 21 unanswered points to pick up a 24-17 win over the Tennessee Titans in the Week 1 matchup at Soldier Field.`\
+https://nytimes.com/athletic/5753208/2024/09/08/bears-titans-result-takeaways/
+
 **María Benítez, Dancer Who Championed Flamenco, Is Dead at 82**\
 `“People came from everywhere to see her shows,” an admirer said — including, on at least one occasion, the ballet superstar Mikhail Baryshnikov.`\
 https://nytimes.com/2024/09/08/arts/dance/maria-benitez-dead.html
@@ -12,7 +20,7 @@ https://nytimes.com/athletic/5753183/2024/09/08/steelers-falcons-result-takeaway
 
 **DeeJay Dallas scores first kickoff return TD of season**\
 `Cardinals returner DeeJay Dallas had thrilling 96-yard kickoff return for a touchdown under the NFL's new kickoff rules.`\
-https://nytimes.com/athletic/5753814/2024/09/08/cardinals-deejay-dallas-scores-first-kickoff-return-touchdown-of-nfl-season-under-new-format/
+https://nytimes.com/athletic/5753814/2024/09/08/deejay-dallas-kickoff-return-touchdown/
 
 **Key takeaways from Vikings' rout of Giants**\
 `Darnold provided exactly what the Vikings hoped he would in his debut.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5753700/2024/09/08/michael-jordan-nascar-23xi-front
 **Thomas Hammock and Northern Illinois believed — and that was enough to beat Notre Dame**\
 `This was a brawl with a clear winner. The Huskies outgained the Fighting Irish 388-to-286 and were the better team throughout. `\
 https://nytimes.com/athletic/5753748/2024/09/08/northern-illinois-thomas-hammock-notre-dame/
-
-**Adams Visits Black Churches to Bolster Support as Investigations Heat Up**\
-`The New York City mayor compared himself to a biblical figure who endured suffering, telling parishioners that he was having a “Job moment.”`\
-https://nytimes.com/2024/09/08/nyregion/eric-adams-black-churches.html
-
-**Now the NFL's highest-paid QB, pressure is on Dak Prescott to bring Cowboys playoff success**\
-`The Cowboys have a lot of money invested in Dak Prescott and CeeDee Lamb. It's time to turn things around in the postseason.`\
-https://nytimes.com/athletic/5753665/2024/09/08/dak-prescott-cowboys-jerry-jones-contract/
 
