@@ -1,3 +1,11 @@
+**Brock Purdy's college reunion: Why 49ers' opener vs. Jets has an Iowa State flavor**\
+`Purdy will face fellow Iowa State alums Breece Hall, Will McDonald IV and Allen Lazard in the 49ers' season opener against the Jets.`\
+https://nytimes.com/athletic/5741322/2024/09/08/49ers-jets-brock-purdy-iowa-state-hall-mcdonald/
+
+**Here’s the latest on the presidential race.**\
+`By Simon J. Levien`\
+https://nytimes.com/live/2024/09/08/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
 **USC takeaways: Defense, running game carry Trojans to first shutout since 2011**\
 `There was no Week 2 letdown. The Trojans took care of business in a 48-0 win over Utah State the home opener. `\
 https://nytimes.com/athletic/5752902/2024/09/08/usc-footbal-shutout-utah-state-defense/
