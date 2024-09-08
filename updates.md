@@ -1,3 +1,7 @@
+**Song odds for Kendrick Lamar's Super Bowl LIX halftime show**\
+`An early prediction for what the Pulitzer Prize-winning rapper might perform at the Caesars Superdome. `\
+https://nytimes.com/athletic/5753979/2024/09/08/kendrick-lamars-super-bowl-lix-halftime-song-odds/
+
 **Words to Live By**\
 `Tim D’Alfonso makes his New York Times debut.`\
 https://nytimes.com/2024/09/08/crosswords/daily-puzzle-2024-09-09.html
