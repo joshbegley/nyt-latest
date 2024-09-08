@@ -1,3 +1,7 @@
+**Calafiori to return to Arsenal after injury on international duty**\
+`Riccardo Calafiori is set to return to Arsenal after picking up an injury on international duty with Italy.`\
+https://nytimes.com/athletic/5752929/2024/09/08/riccardo-calafiori-injury-italy-arsenal/
+
 **Sherman: Nebraska fans should embrace the change in Matt Rhule’s Huskers**\
 `Matt Rhule’s Nebraska team clears a hurdle on the path back to relevance with Colorado win.`\
 https://nytimes.com/athletic/5753193/2024/09/08/nebraska-matt-rhule-colorado/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5752872/2024/09/08/notre-dame-northern-illinois-tex
 **Brock Purdy's college reunion: Why 49ers' opener vs. Jets has an Iowa State flavor**\
 `Purdy will face fellow Iowa State alums Breece Hall, Will McDonald IV and Allen Lazard in the 49ers' season opener against the Jets.`\
 https://nytimes.com/athletic/5741322/2024/09/08/49ers-jets-brock-purdy-iowa-state-hall-mcdonald/
-
-**Election Live Updates: Harris and Trump Brace for Debate as Poll Shows a Tight Race**\
-`Vice President Kamala Harris and former President Donald J. Trump left the campaigning to surrogates on Sunday as they readied for Tuesday’s debate. A New York Times/Siena College national poll found the race very close.`\
-https://nytimes.com/live/2024/09/08/us/harris-trump-election
 

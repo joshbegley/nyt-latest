@@ -1,3 +1,15 @@
+**Sherman: Nebraska fans should embrace the change in Matt Rhule’s Huskers**\
+`Matt Rhule’s Nebraska team clears a hurdle on the path back to relevance with Colorado win.`\
+https://nytimes.com/athletic/5753193/2024/09/08/nebraska-matt-rhule-colorado/
+
+**A Judge’s Decision to Delay Trump’s Sentencing**\
+`Readers disagree about whether putting off sentencing until after the election was the right move. Also: Risky Covid behavior; outdoor dining; a librarian’s fight.`\
+https://nytimes.com/2024/09/08/opinion/trump-sentencing.html
+
+**This Yucatán Marinade Is Perfect for Steak Tacos**\
+`The chef Alex Henry bucks tradition with a citrusy, garlicky, earthy mixture for sliced rib-eye.`\
+https://nytimes.com/2024/09/08/dining/this-yucatan-marinade-is-perfect-for-steak-tacos.html
+
 **How Marin Cilic and Kei Nishikori stunned tennis at the 2014 U.S. Open**\
 `At the 2014 U.S. Open, Roger Federer and Novak Djokovic were the picks for the final. Two players had other ideas`\
 https://nytimes.com/athletic/5752016/2024/09/08/us-open-cilic-nishikori-2014/
