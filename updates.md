@@ -1,3 +1,15 @@
+**Patriots defy 'rebuilding' narrative, pull off huge upset vs. Bengals in Jerod Mayo's debut**\
+`Who thought the Patriots could win this season by playing strong defense and running the ball? Not many. But on Sunday, they did just that.`\
+https://nytimes.com/athletic/5754091/2024/09/08/patriots-bengals-week-1-jerod-mayo/
+
+**Behind Kirk Cousins' 'disappointing' performance, Falcons looked like same ol' team in Week 1**\
+`Cousins flopped in his Falcons debut, finishing with a passer rating of 59 and throwing two interceptions, including a backbreaker.`\
+https://nytimes.com/athletic/5754094/2024/09/08/falcons-kirk-cousins-disappointment-steelers/
+
+**Greenberg: Caleb Williams makes his debut in a very ugly, very familiar Bears victory**\
+`Chicago won its opener, 24-17 over Tennessee, behind a time-tested formula of defense, special teams and absolutely no offense.`\
+https://nytimes.com/athletic/5754062/2024/09/08/caleb-williams-chicago-bears-titans/
+
 **Song odds for Kendrick Lamar's Super Bowl LIX halftime show**\
 `An early prediction for what the Pulitzer Prize-winning rapper might perform at the Caesars Superdome. `\
 https://nytimes.com/athletic/5753979/2024/09/08/kendrick-lamars-super-bowl-lix-halftime-song-odds/
