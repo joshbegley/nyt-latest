@@ -1,3 +1,7 @@
+**Aryna Sabalenka spells out battle for supremacy with Iga Swiatek at U.S. Open**\
+`NEW YORK — By winning the U.`\
+https://nytimes.com/athletic/5752490/2024/09/07/sabalenka-us-open-womens-tennis/
+
 **Sky's Angel Reese out for remainder of season with injury**\
 `Reese was listed as questionable with a wrist injury on Saturday's injury report. She last played in a game Friday.`\
 https://nytimes.com/athletic/5752548/2024/09/07/chicago-sky-angel-reese-injury/

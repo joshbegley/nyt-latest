@@ -1,3 +1,7 @@
+**Aryna Sabalenka spells out battle for supremacy with Iga Swiatek at U.S. Open**\
+`NEW YORK — By winning the U.`\
+https://nytimes.com/athletic/5752490/2024/09/07/sabalenka-us-open-womens-tennis/
+
 **Sky's Angel Reese out for remainder of season with injury**\
 `Reese was listed as questionable with a wrist injury on Saturday's injury report. She last played in a game Friday.`\
 https://nytimes.com/athletic/5752548/2024/09/07/chicago-sky-angel-reese-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5752384/2024/09/07/northern-illinois-notre-dame-col
 **Trump Lays Out Vision for Bending the Federal Government to His Will**\
 `In Wisconsin, former President Donald J. Trump called for eliminating the Department of Education and said he would work with Robert F. Kennedy Jr., a vaccine skeptic, on health issues.`\
 https://nytimes.com/2024/09/07/us/politics/trump-rally-wisconsin.html
-
-**Iowa State stuns Iowa with epic Cy-Hawk rally: What it means for both teams**\
-`When it mattered most, Iowa State came through to snag the Cy-Hawk Trophy in Iowa City for the second consecutive trip.`\
-https://nytimes.com/athletic/5752373/2024/09/07/iowa-iowa-state-cy-hawk-comeback/
 
