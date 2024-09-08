@@ -1,3 +1,7 @@
+**DeeJay Dallas scores first kickoff return TD of season**\
+`Cardinals returner DeeJay Dallas had thrilling 96-yard kickoff return for a touchdown under the NFL's new kickoff rules.`\
+https://nytimes.com/athletic/5753814/2024/09/08/cardinals-deejay-dallas-scores-first-kickoff-return-touchdown-of-nfl-season-under-new-format/
+
 **Key takeaways from Vikings' rout of Giants**\
 `Darnold provided exactly what the Vikings hoped he would in his debut.`\
 https://nytimes.com/athletic/5753279/2024/09/08/vikings-giants-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/08/us/tyreek-hill-miami-dolphins-detained.html
 **A Buzzy U.S. Open Got an After-Party to Match the Vibe**\
 `Celebrities like Issa Rae and Nicky Hilton Rothschild, and former tennis stars like Maria Sharapova and James Blake, helped close out the tournament in style.`\
 https://nytimes.com/2024/09/08/style/us-open-after-party.html
-
-**AP Top 25: Nebraska back in poll; Notre Dame drops 13 spots**\
-`Six of the top seven teams in the new AP Top 25 poll are from the SEC, headlined by No. 1 Georgia and No. 2 Texas.`\
-https://nytimes.com/athletic/5753580/2024/09/08/ap-top-25-college-football-week-2/
 
