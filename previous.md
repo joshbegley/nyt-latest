@@ -1,3 +1,11 @@
+**AP Top 25: Nebraska back in poll; Notre Dame drops 13 spots**\
+`Six of the top seven teams in the new AP Top 25 poll are from the SEC, headlined by No. 1 Georgia and No. 2 Texas.`\
+https://nytimes.com/athletic/5753580/2024/09/08/ap-top-25-college-football-week-2/
+
+**Why England are a better team with Anthony Gordon in than Phil Foden**\
+`Anthony Gordon was clear about what England were lacking in their Euro 2024 "failure" and showed against Ireland how to fix it`\
+https://nytimes.com/athletic/5752188/2024/09/08/england-anthony-gordon-phil-foden/
+
 **Fenerbahce agree loan deal with Juventus for Kostic**\
 `Fenerbahce have agreed a loan deal with Juventus to sign winger Filip Kostic.`\
 https://nytimes.com/athletic/5753657/2024/09/08/filip-kostic-fenerbahce-transfer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5753182/2024/09/08/paralympics-highlights-frech-aok
 **The Pulse: Notre Dame falls as massive favorite**\
 `Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5750528/2024/09/08/notre-dame-northern-illinois-nfl-watch-guide-the-pulse/
-
-**Kendrick Lamar to perform Super Bowl halftime show in NOLA**\
-`Super Bowl LIX will take place on Feb. 9, 2025 at the Caesars Superdome.`\
-https://nytimes.com/athletic/5753438/2024/09/08/kendrick-lamar-super-bowl-halftime-show/
-
-**Steelers vs. Falcons odds, picks, how to watch: Fields replaces Wilson in season opener**\
-`Justin Fields will start Sunday vs. Kirk Cousins as the Steelers battle the Falcons in Atlanta. `\
-https://nytimes.com/athletic/5750147/2024/09/08/steelers-falcons-odds-expert-picks-how-to-watch-predictions-betting/
 

@@ -1,3 +1,11 @@
+**AP Top 25: Nebraska back in poll; Notre Dame drops 13 spots**\
+`Six of the top seven teams in the new AP Top 25 poll are from the SEC, headlined by No. 1 Georgia and No. 2 Texas.`\
+https://nytimes.com/athletic/5753580/2024/09/08/ap-top-25-college-football-week-2/
+
+**Why England are a better team with Anthony Gordon in than Phil Foden**\
+`Anthony Gordon was clear about what England were lacking in their Euro 2024 "failure" and showed against Ireland how to fix it`\
+https://nytimes.com/athletic/5752188/2024/09/08/england-anthony-gordon-phil-foden/
+
 **Fenerbahce agree loan deal with Juventus for Kostic**\
 `Fenerbahce have agreed a loan deal with Juventus to sign winger Filip Kostic.`\
 https://nytimes.com/athletic/5753657/2024/09/08/filip-kostic-fenerbahce-transfer/
