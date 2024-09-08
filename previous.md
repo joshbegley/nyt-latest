@@ -1,3 +1,7 @@
+**Dochterman: Iowa delivers a masterclass in how to blow a football game**\
+`The blame is all-encompassing from scheme to execution. There were personnel breakdowns and head-scratching coaching decisions.`\
+https://nytimes.com/athletic/5752623/2024/09/07/iowa-hawkeyes-collapse-cy-hawk-iowa-state/
+
 **Alabama takeaways: Crimson Tide leaves much to be desired in win vs. South Florida**\
 `The Crimson Tide beat the Bulls 42-16, but it was a sloppy showing on both sides.`\
 https://nytimes.com/athletic/5752630/2024/09/07/alabama-south-florida-college-football-score-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5752463/2024/09/07/auburn-hugh-freeze-california-fo
 **Emerson: Auburn's loss shows again that under Hugh Freeze, the Tigers are unreliable**\
 `After Nick Saban heaped praise on Auburn, the Tigers fell 21-14 to Cal at Jordan-Hare Stadium in another inexplicable loss under Freeze.`\
 https://nytimes.com/athletic/5752457/2024/09/07/auburn-tigers-cal-hugh-freeze-sec/
-
-**Jessica Pegula sees signs of career progress in U.S. Open final loss**\
-`Jessica Pegula was on the cusp of the U.S. Open title. Her run at the tournament is a clear step forward in her career.`\
-https://nytimes.com/athletic/5752433/2024/09/07/jessica-pegula-us-open-final/
 
