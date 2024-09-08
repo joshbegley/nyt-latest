@@ -1,3 +1,7 @@
+**Packers reach out to Ryan Tannehill following Love's injury**\
+`Tannehill told The Athletic on an episode of Scoop City in July that he for him to join a team, "it would have to be the right situation.”`\
+https://nytimes.com/athletic/5753555/2024/09/08/packers-ryan-tannehill-jordan-love-backup/
+
 **After a Century and a Half in Sweden, Finnish Skulls Return Home**\
 `Dozens of skulls exhumed in Finland in the 19th century and taken to Sweden by scientists who wanted to study their racial characteristics were reburied in Finnish soil on Sunday.`\
 https://nytimes.com/2024/09/08/world/europe/finland-sweden-skulls.html
