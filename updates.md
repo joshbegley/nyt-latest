@@ -1,3 +1,15 @@
+**Paralympics highlights: A gold won in silence, manifesting dreams, and lessons for L.A.**\
+`The Paralympics brought us inspirational, powerful and surprising stories. Here, Charlotte Harpur chooses her most memorable…`\
+https://nytimes.com/athletic/5753182/2024/09/08/paralympics-highlights-frech-aoki/
+
+**The Pulse: Notre Dame falls as massive favorite**\
+`Welcome to The Pulse, The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5750528/2024/09/08/notre-dame-northern-illinois-nfl-watch-guide-the-pulse/
+
+**Steelers vs. Falcons odds, picks, how to watch: Fields replaces Wilson in season opener**\
+`Justin Fields will start Sunday vs. Kirk Cousins as the Steelers battle the Falcons in Atlanta. `\
+https://nytimes.com/athletic/5750147/2024/09/08/steelers-falcons-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Kendrick Lamar to perform Super Bowl halftime show in NOLA**\
 `Super Bowl LIX will take place on Feb. 9, 2025 at the Caesars Superdome.`\
 https://nytimes.com/athletic/5753438/2024/09/08/kendrick-lamar-super-bowl-halftime-show/
