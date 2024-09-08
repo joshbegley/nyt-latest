@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5752463/2024/09/07/auburn-hugh-freeze-california-fo
 https://nytimes.com/athletic/5752457/2024/09/07/auburn-tigers-cal-hugh-freeze-sec/
 
 **Jessica Pegula sees signs of career progress in U.S. Open final loss**\
-`There was about a half-hour on Saturday afternoon when Jessica Pegula was on a fast track to completely shaking the identity of the often overlooked American tennis star, the kind of player who consistently hangs around the top of the women&#8217;s tennis rankings but somehow rarely enters the conversations about winning the biggest titles.`\
+`Jessica Pegula was on the cusp of the U.S. Open title. Her run at the tournament is a clear step forward in her career.`\
 https://nytimes.com/athletic/5752433/2024/09/07/jessica-pegula-us-open-final/
 
 **Mother of Georgia Suspect Called School Minutes Before Shooting, Family Says**\
