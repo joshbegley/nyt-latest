@@ -1,3 +1,7 @@
+**Taylor Swift, Travis Kelce take in U.S. Open men's final**\
+`The megastar and Super Bowl champions turned up at Arthur Ashe Stadium to watch Taylor Fritz take on Jannik Sinner`\
+https://nytimes.com/athletic/5753666/2024/09/08/taylor-swift-travis-kelce-us-open-tennis/
+
 **Miami Dolphins Player Tyreek Hill Detained by Police Outside Hard Rock Stadium**\
 `The wide receiver was released before suiting up to play against the Jacksonville Jaguars on Sunday.`\
 https://nytimes.com/2024/09/08/us/tyreek-hill-miami-dolphins-detained.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5753619/2024/09/08/usc-football-recruiting-ty-jacks
 **Packers reach out to Ryan Tannehill following Love's injury**\
 `Tannehill told The Athletic on an episode of Scoop City in July that he for him to join a team, "it would have to be the right situation.”`\
 https://nytimes.com/athletic/5753555/2024/09/08/packers-ryan-tannehill-jordan-love-backup/
-
-**After a Century and a Half in Sweden, Finnish Skulls Return Home**\
-`Dozens of skulls exhumed in Finland in the 19th century and taken to Sweden by scientists who wanted to study their racial characteristics were reburied in Finnish soil on Sunday.`\
-https://nytimes.com/2024/09/08/world/europe/finland-sweden-skulls.html
 
