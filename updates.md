@@ -1,3 +1,7 @@
+**Titans vs. Bears odds, expert picks, how to watch: The Caleb Williams debut**\
+`Two debuts — a head coach and a rookie quarterback — make Titans vs. Bears a must-see for fans. Bears are favored.`\
+https://nytimes.com/athletic/5750281/2024/09/07/titans-bears-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Cardinals vs. Bills odds, expert picks, how to watch: Kyler Murray vs. Josh Allen**\
 `Will Kyler Murray be enough to lift the Cardinals over Josh Allen and the Bills at home? Our experts think not.`\
 https://nytimes.com/athletic/5750238/2024/09/07/cardinals-bills-odds-expert-picks-how-to-watch-predictions-betting/

@@ -1,3 +1,7 @@
+**Titans vs. Bears odds, expert picks, how to watch: The Caleb Williams debut**\
+`Two debuts — a head coach and a rookie quarterback — make Titans vs. Bears a must-see for fans. Bears are favored.`\
+https://nytimes.com/athletic/5750281/2024/09/07/titans-bears-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Cardinals vs. Bills odds, expert picks, how to watch: Kyler Murray vs. Josh Allen**\
 `Will Kyler Murray be enough to lift the Cardinals over Josh Allen and the Bills at home? Our experts think not.`\
 https://nytimes.com/athletic/5750238/2024/09/07/cardinals-bills-odds-expert-picks-how-to-watch-predictions-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5752490/2024/09/07/sabalenka-us-open-womens-tennis/
 **Sky's Angel Reese out for remainder of season with wrist injury**\
 `Reese was listed as questionable with a wrist injury on Saturday's injury report. She last played in a game Friday.`\
 https://nytimes.com/athletic/5752548/2024/09/07/chicago-sky-angel-reese-injury/
-
-**Trump Threatens Lawyers, Donors and Others With Prosecution After Election**\
-`In a social media post on Saturday, former President Donald J. Trump wrote that “when I win, those people that cheated will be prosecuted to the fullest extent of the law.”`\
-https://nytimes.com/2024/09/07/us/politics/trump-election-fraud-prosecute.html
 
