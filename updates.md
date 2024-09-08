@@ -1,3 +1,11 @@
+**Kendrick Lamar to perform Super Bowl halftime show in NOLA**\
+`Super Bowl LIX will take place on Feb. 9, 2025 at the Caesars Superdome.`\
+https://nytimes.com/athletic/5753438/2024/09/08/kendrick-lamar-super-bowl-halftime-show/
+
+**Steelers vs. Falcons odds, picks, how to watch: Fields replaces Wilson in season opener**\
+`Two veteran quarterbacks face their first test on new teams Sunday as the Steelers battle the Falcons in Atlanta. `\
+https://nytimes.com/athletic/5750147/2024/09/08/steelers-falcons-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Bengals' Chase active for Week 1 despite no new contract**\
 `The Bengals receiver will return to football after weeks and months of contract controversy.`\
 https://nytimes.com/athletic/5753228/2024/09/08/patriots-bengals-nfl-week-1-recap/
