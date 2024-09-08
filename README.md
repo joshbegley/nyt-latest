@@ -1,8 +1,12 @@
+**Has David Stearns made the Mets' bullpen a strength during their 9-game winning streak?**\
+`The Mets targeted relievers with above-average stuff while putting together a bullpen full of pitchers who attack hitters in different ways.`\
+https://nytimes.com/athletic/5752554/2024/09/07/mets-bullpen-david-stearns/
+
 **Aryna Sabalenka spells out battle for supremacy with Iga Swiatek at U.S. Open**\
 `NEW YORK — By winning the U.`\
 https://nytimes.com/athletic/5752490/2024/09/07/sabalenka-us-open-womens-tennis/
 
-**Sky's Angel Reese out for remainder of season with injury**\
+**Sky's Angel Reese out for remainder of season with wrist injury**\
 `Reese was listed as questionable with a wrist injury on Saturday's injury report. She last played in a game Friday.`\
 https://nytimes.com/athletic/5752548/2024/09/07/chicago-sky-angel-reese-injury/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/07/us/mother-georgia-suspect-called-school.html
 **Explaining the controversial calls on NIU (which beat Notre Dame despite them)**\
 `NIU upset Notre Dame 16-14 to earn its highest-ranked opponent beaten in program history.`\
 https://nytimes.com/athletic/5752384/2024/09/07/northern-illinois-notre-dame-college-football-controversial-call/
-
-**Trump Lays Out Vision for Bending the Federal Government to His Will**\
-`In Wisconsin, former President Donald J. Trump called for eliminating the Department of Education and said he would work with Robert F. Kennedy Jr., a vaccine skeptic, on health issues.`\
-https://nytimes.com/2024/09/07/us/politics/trump-rally-wisconsin.html
 
