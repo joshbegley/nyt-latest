@@ -1,3 +1,11 @@
+**Emerson: Auburn's loss shows again that under Hugh Freeze, the Tigers are unreliable**\
+`After Nick Saban heaped praise on Auburn, the Tigers fell 21-14 to Cal at Jordan-Hare Stadium in another inexplicable loss under Freeze.`\
+https://nytimes.com/athletic/5752457/2024/09/07/auburn-tigers-cal-hugh-freeze-sec/
+
+**Jessica Pegula sees signs of career progress in U.S. Open final loss**\
+`There was about a half-hour on Saturday afternoon when Jessica Pegula was on a fast track to completely shaking the identity of the often overlooked American tennis star, the kind of player who consistently hangs around the top of the women&#8217;s tennis rankings but somehow rarely enters the conversations about winning the biggest titles.`\
+https://nytimes.com/athletic/5752433/2024/09/07/jessica-pegula-us-open-final/
+
 **Mother of Georgia Suspect Called School Minutes Before Shooting, Family Says**\
 `The mother told relatives she reached out to the school on Wednesday morning, warning of an emergency, the suspect’s aunt said Saturday.`\
 https://nytimes.com/2024/09/07/us/mother-georgia-suspect-called-school.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5752299/2024/09/07/michigan-texas-loss-sherrone-moo
 **Notre Dame suffers stunning upset to NIU: How did everything go so wrong for Irish?**\
 `NIU beat Notre Dame 16-14 on a last-minute field goal on Saturday. Here's what went wrong, what we learned and what's next.`\
 https://nytimes.com/athletic/5752234/2024/09/07/notre-dame-northern-illinois-upset-college-football/
-
-**College Football Playoff 2024 projections: Notre Dame CFP hopes take big hit from NIU**\
-`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
-https://nytimes.com/athletic/5701128/2024/09/07/college-football-playoff-projections-odds/
-
-**Even in win, Wisconsin raises questions about readiness for Alabama visit**\
-`It's hard to feel particularly confident Wisconsin is capable of pulling off a win vs. Alabama given what it has shown through two games.`\
-https://nytimes.com/athletic/5752326/2024/09/07/wisconsin-football-south-dakota-alabama/
 

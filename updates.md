@@ -1,3 +1,11 @@
+**Emerson: Auburn's loss shows again that under Hugh Freeze, the Tigers are unreliable**\
+`After Nick Saban heaped praise on Auburn, the Tigers fell 21-14 to Cal at Jordan-Hare Stadium in another inexplicable loss under Freeze.`\
+https://nytimes.com/athletic/5752457/2024/09/07/auburn-tigers-cal-hugh-freeze-sec/
+
+**Jessica Pegula sees signs of career progress in U.S. Open final loss**\
+`There was about a half-hour on Saturday afternoon when Jessica Pegula was on a fast track to completely shaking the identity of the often overlooked American tennis star, the kind of player who consistently hangs around the top of the women&#8217;s tennis rankings but somehow rarely enters the conversations about winning the biggest titles.`\
+https://nytimes.com/athletic/5752433/2024/09/07/jessica-pegula-us-open-final/
+
 **Explaining the controversial calls on NIU (which beat Notre Dame despite them)**\
 `NIU upset Notre Dame 16-14 to earn its highest-ranked opponent beaten in program history.`\
 https://nytimes.com/athletic/5752384/2024/09/07/northern-illinois-notre-dame-college-football-controversial-call/
