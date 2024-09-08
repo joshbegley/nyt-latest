@@ -1,3 +1,11 @@
+**Has David Stearns made the Mets' bullpen a strength during their 9-game winning streak?**\
+`The Mets targeted relievers with above-average stuff while putting together a bullpen full of pitchers who attack hitters in different ways.`\
+https://nytimes.com/athletic/5752554/2024/09/07/mets-bullpen-david-stearns/
+
+**Sky's Angel Reese out for remainder of season with wrist injury**\
+`Reese was listed as questionable with a wrist injury on Saturday's injury report. She last played in a game Friday.`\
+https://nytimes.com/athletic/5752548/2024/09/07/chicago-sky-angel-reese-injury/
+
 **Aryna Sabalenka spells out battle for supremacy with Iga Swiatek at U.S. Open**\
 `NEW YORK — By winning the U.`\
 https://nytimes.com/athletic/5752490/2024/09/07/sabalenka-us-open-womens-tennis/
