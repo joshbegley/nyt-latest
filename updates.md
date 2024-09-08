@@ -1,3 +1,15 @@
+**María Benítez, Dancer Who Championed Flamenco, Is Dead at 82**\
+`“People came from everywhere to see her shows,” an admirer said — including, on at least one occasion, the ballet superstar Mikhail Baryshnikov.`\
+https://nytimes.com/2024/09/08/arts/dance/00maria-benitez-dead.html
+
+**Game, Set, Match: Jannik Sinner beats Taylor Fritz to win U.S. Open**\
+`The world No. 1 dashed Fritz's dreams of becoming the first male American U.S. Open winner since 2003.`\
+https://nytimes.com/athletic/5753622/2024/09/08/sinner-fritz-us-open-final-result-analysis/
+
+**Steelers top Falcons behind 6 field goals**\
+`Boswell connected on field goals from 57 yards, 51 yards, 44 yards, 56 yards, 40 yards and 25 yards.`\
+https://nytimes.com/athletic/5753183/2024/09/08/steelers-falcons-result-takeaways/
+
 **DeeJay Dallas scores first kickoff return TD of season**\
 `Cardinals returner DeeJay Dallas had thrilling 96-yard kickoff return for a touchdown under the NFL's new kickoff rules.`\
 https://nytimes.com/athletic/5753814/2024/09/08/cardinals-deejay-dallas-scores-first-kickoff-return-touchdown-of-nfl-season-under-new-format/

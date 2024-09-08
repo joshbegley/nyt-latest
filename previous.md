@@ -1,3 +1,15 @@
+**María Benítez, Dancer Who Championed Flamenco, Is Dead at 82**\
+`“People came from everywhere to see her shows,” an admirer said — including, on at least one occasion, the ballet superstar Mikhail Baryshnikov.`\
+https://nytimes.com/2024/09/08/arts/dance/00maria-benitez-dead.html
+
+**Game, Set, Match: Jannik Sinner beats Taylor Fritz to win U.S. Open**\
+`The world No. 1 dashed Fritz's dreams of becoming the first male American U.S. Open winner since 2003.`\
+https://nytimes.com/athletic/5753622/2024/09/08/sinner-fritz-us-open-final-result-analysis/
+
+**Steelers top Falcons behind 6 field goals**\
+`Boswell connected on field goals from 57 yards, 51 yards, 44 yards, 56 yards, 40 yards and 25 yards.`\
+https://nytimes.com/athletic/5753183/2024/09/08/steelers-falcons-result-takeaways/
+
 **DeeJay Dallas scores first kickoff return TD of season**\
 `Cardinals returner DeeJay Dallas had thrilling 96-yard kickoff return for a touchdown under the NFL's new kickoff rules.`\
 https://nytimes.com/athletic/5753814/2024/09/08/cardinals-deejay-dallas-scores-first-kickoff-return-touchdown-of-nfl-season-under-new-format/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/08/nyregion/eric-adams-black-churches.html
 **Now the NFL's highest-paid QB, pressure is on Dak Prescott to bring Cowboys playoff success**\
 `The Cowboys have a lot of money invested in Dak Prescott and CeeDee Lamb. It's time to turn things around in the postseason.`\
 https://nytimes.com/athletic/5753665/2024/09/08/dak-prescott-cowboys-jerry-jones-contract/
-
-**Taylor Swift, Travis Kelce take in U.S. Open men's final**\
-`The megastar and Super Bowl champions turned up at Arthur Ashe Stadium to watch Taylor Fritz take on Jannik Sinner`\
-https://nytimes.com/athletic/5753666/2024/09/08/taylor-swift-travis-kelce-us-open-tennis/
-
-**Miami Dolphins Player Tyreek Hill Detained by Police Outside Hard Rock Stadium**\
-`The wide receiver was released before suiting up to play against the Jacksonville Jaguars on Sunday.`\
-https://nytimes.com/2024/09/08/us/tyreek-hill-miami-dolphins-detained.html
-
-**A Buzzy U.S. Open Got an After-Party to Match the Vibe**\
-`Celebrities like Issa Rae and Nicky Hilton Rothschild, and former tennis stars like Maria Sharapova and James Blake, helped close out the tournament in style.`\
-https://nytimes.com/2024/09/08/style/us-open-after-party.html
 
