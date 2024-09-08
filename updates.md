@@ -1,3 +1,7 @@
+**In exposing Colorado, Nebraska looked like a program on the rise. Can Deion fix Buffs' woes?**\
+`The Huskers mostly dominated the rivalry game Saturday, while a host of concerns emerged for Colorado. Here's what we learned.`\
+https://nytimes.com/athletic/5752552/2024/09/07/colorado-nebraska-deion-sanders-matt-rhule/
+
 **Has David Stearns made the Mets' bullpen a strength during their 9-game winning streak?**\
 `The Mets targeted relievers with above-average stuff while putting together a bullpen full of pitchers who attack hitters in different ways.`\
 https://nytimes.com/athletic/5752554/2024/09/07/mets-bullpen-david-stearns/
