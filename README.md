@@ -1,3 +1,11 @@
+**Lowetide: Oilers guide to potential impact recalls from AHL**\
+`Keep your eye on Matt Savoie. He's the most explosive prospect in the Oilers' system at this time.`\
+https://nytimes.com/athletic/5751932/2024/09/08/edmonton-oilers-ahl-matt-savoie/
+
+**Stewart Mandel's 12-team CFP projections after Week 2**\
+`Who should be in the 12-team Playoff after Week 2? Stewart Mandel makes his picks.`\
+https://nytimes.com/athletic/5752879/2024/09/08/college-football-playoff-bracket-projections-week-2/
+
 **Obsessed with Sleep**\
 `The science behind popular methods for improving sleep, and the downsides of caring too much about it.`\
 https://nytimes.com/2024/09/08/briefing/improving-sleep-hacks.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5747429/2024/09/08/cowboys-browns-predictions-previ
 **David discusses Lille future, possible Premier League move**\
 `The Canada international's current deal expires in 2025 meaning he could leave the Ligue 1 club for free`\
 https://nytimes.com/athletic/5752839/2024/09/08/jonathan-david-transfer-lille-canada/
-
-**Rams vs. Lions odds, picks, how to watch: Detroit favored in rematch of Wild Card**\
-`An expectation-laden Lions roster faces its first test against old Wild-Card rivals the Rams in Ford Field. `\
-https://nytimes.com/athletic/5750933/2024/09/08/rams-lions-odds-expert-picks-how-to-watch-predictions-betting/
-
-**I Love Taylor Swift. Her Political Endorsement Shouldn’t Matter.**\
-`It’s seductive to think that superstars can sway elections. But we shouldn’t hope that celebrities will save us from the hard work of winning people over.`\
-https://nytimes.com/2024/09/08/opinion/taylor-swift-endorsement-election-harris.html
 

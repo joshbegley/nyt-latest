@@ -1,3 +1,7 @@
+**Obsessed with Sleep**\
+`The science behind popular methods for improving sleep, and the downsides of caring too much about it.`\
+https://nytimes.com/2024/09/08/briefing/improving-sleep-hacks.html
+
 **College Football Playoff 2024 projections: Notre Dame CFP hopes take big hit from NIU**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/09/08/college-football-playoff-projections-odds/
