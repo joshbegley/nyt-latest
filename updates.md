@@ -1,3 +1,7 @@
+**Broncos vs. Seahawks odds, picks, how to watch: Bo Nix debuts on the road**\
+`Bo Nix makes his NFL debut with the Broncos on the road, but it's the Seahawks who are favored at home with a new head coach.`\
+https://nytimes.com/athletic/5750771/2024/09/08/broncos-seahawks-odds-expert-picks-how-to-watch-predictions-betting/
+
 **New Poll Suggests Harris’s Support Has Stalled After a Euphoric August**\
 `Almost 30 percent of voters said they needed to learn more about her.`\
 https://nytimes.com/2024/09/08/upshot/trump-harris-poll-analysis.html
