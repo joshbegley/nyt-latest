@@ -18,6 +18,10 @@ https://nytimes.com/2024/09/08/style/us-open-after-party.html
 `Six of the top seven teams in the new AP Top 25 poll are from the SEC, headlined by No. 1 Georgia and No. 2 Texas.`\
 https://nytimes.com/athletic/5753580/2024/09/08/ap-top-25-college-football-week-2/
 
+**Dolphins' Hill detained for traffic violation**\
+`Hill hauled in an 80-yard touchdown reception during the first quarter against Jacksonville.`\
+https://nytimes.com/athletic/5753311/2024/09/08/tyreek-hill-traffic-incident-detained-dolphins/
+
 **Why England are a better team with Anthony Gordon in than Phil Foden**\
 `Anthony Gordon was clear about what England were lacking in their Euro 2024 "failure" and showed against Ireland how to fix it`\
 https://nytimes.com/athletic/5752188/2024/09/08/england-anthony-gordon-phil-foden/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/08/world/asia/philippines-pastor-kingdom-trafficking
 **Liz Cheney Accuses G.O.P. Trump Backers of Betraying Their Principles**\
 `The former Republican representative criticized Nikki Haley for now supporting former President Donald J. Trump and compared JD Vance unfavorably with Mike Pence.`\
 https://nytimes.com/2024/09/08/us/politics/liz-cheney-trump-harris-republicans.html
-
-**USC adds top-100 LB Ty Jackson to 2025 class**\
-`Jackson, a Florida native, is the third blue-chip linebacker in the Trojans’ 2025 class.`\
-https://nytimes.com/athletic/5753619/2024/09/08/usc-football-recruiting-ty-jackson/
 
