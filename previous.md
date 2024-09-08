@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5752463/2024/09/07/auburn-hugh-freeze-california-fo
 https://nytimes.com/athletic/5752457/2024/09/07/auburn-tigers-cal-hugh-freeze-sec/
 
 **Jessica Pegula sees signs of career progress in U.S. Open final loss**\
-`There was about a half-hour on Saturday afternoon when Jessica Pegula was on a fast track to completely shaking the identity of the often overlooked American tennis star, the kind of player who consistently hangs around the top of the women&#8217;s tennis rankings but somehow rarely enters the conversations about winning the biggest titles.`\
+`Jessica Pegula was on the cusp of the U.S. Open title. Her run at the tournament is a clear step forward in her career.`\
 https://nytimes.com/athletic/5752433/2024/09/07/jessica-pegula-us-open-final/
 
 **Mother of Georgia Suspect Called School Minutes Before Shooting, Family Says**\
@@ -30,8 +30,8 @@ https://nytimes.com/athletic/5752373/2024/09/07/iowa-iowa-state-cy-hawk-comeback
 `The Belarusian recovered from last year's final defeat to Coco Gauff to win in straight sets`\
 https://nytimes.com/athletic/5752164/2024/09/07/sabalenka-pegula-us-open-final-result-analysis/
 
-**‘Numerous’ People Shot on Kentucky Highway, Officials Say**\
-`How many people were shot and what led up to the shooting on I-75 near London, Ky., was not immediately clear.`\
+**Five People Shot on Kentucky Highway, Officials Say**\
+`The victims were in stable condition, the authorities said. What led up to the shooting on I-75 near London, Ky., was not immediately clear.`\
 https://nytimes.com/2024/09/07/us/shooting-kentucky-highway.html
 
 **Meek: Michigan's new era begins with Texas razing Big House**\

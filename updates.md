@@ -1,3 +1,11 @@
+**Jessica Pegula sees signs of career progress in U.S. Open final loss**\
+`Jessica Pegula was on the cusp of the U.S. Open title. Her run at the tournament is a clear step forward in her career.`\
+https://nytimes.com/athletic/5752433/2024/09/07/jessica-pegula-us-open-final/
+
+**Five People Shot on Kentucky Highway, Officials Say**\
+`The victims were in stable condition, the authorities said. What led up to the shooting on I-75 near London, Ky., was not immediately clear.`\
+https://nytimes.com/2024/09/07/us/shooting-kentucky-highway.html
+
 **Emerson: You can't trust Hugh Freeze after one game, whether it's an L or W**\
 `Hugh Freeze is a good coach, but one who has a lot of fantastic wins with a lot of bad losses. How to measure Saturday's loss to Cal, then?`\
 https://nytimes.com/athletic/5752463/2024/09/07/auburn-hugh-freeze-california-football-loss/
