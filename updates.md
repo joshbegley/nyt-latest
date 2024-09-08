@@ -1,3 +1,11 @@
+**Sampson: Notre Dame has been here before under Marcus Freeman. That's the problem.**\
+`Notre Dame's devastating loss to NIU felt far too familiar and raises a tough question: Was promoting Freeman too big of a risk?`\
+https://nytimes.com/athletic/5752612/2024/09/07/notre-dame-northern-illinois-marcus-freeman/
+
+**Steelers vs. Falcons odds, picks, how to watch: Two veteran QBs test new digs**\
+`Two veteran quarterbacks face their first test on new teams Sunday as the Steelers battle the Falcons in Atlanta. `\
+https://nytimes.com/athletic/5750147/2024/09/07/steelers-falcons-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Dochterman: Iowa delivers a masterclass in how to blow a football game**\
 `The blame is all-encompassing from scheme to execution. There were personnel breakdowns and head-scratching coaching decisions.`\
 https://nytimes.com/athletic/5752623/2024/09/07/iowa-hawkeyes-collapse-cy-hawk-iowa-state/
