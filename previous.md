@@ -6,7 +6,7 @@ https://nytimes.com/2024/09/08/arts/dance/maria-benitez-dead.html
 `The world No. 1 dashed Fritz's dreams of becoming the first male American U.S. Open winner since 2003.`\
 https://nytimes.com/athletic/5753622/2024/09/08/sinner-fritz-us-open-final-result-analysis/
 
-**Steelers top Falcons behind 6 field goals**\
+**5 takeaways from Steelers' season-opening win over Falcons**\
 `Boswell connected on field goals from 57 yards, 51 yards, 44 yards, 56 yards, 40 yards and 25 yards.`\
 https://nytimes.com/athletic/5753183/2024/09/08/steelers-falcons-result-takeaways/
 

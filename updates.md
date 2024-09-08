@@ -1,3 +1,7 @@
+**5 takeaways from Steelers' season-opening win over Falcons**\
+`Boswell connected on field goals from 57 yards, 51 yards, 44 yards, 56 yards, 40 yards and 25 yards.`\
+https://nytimes.com/athletic/5753183/2024/09/08/steelers-falcons-result-takeaways/
+
 **María Benítez, Dancer Who Championed Flamenco, Is Dead at 82**\
 `“People came from everywhere to see her shows,” an admirer said — including, on at least one occasion, the ballet superstar Mikhail Baryshnikov.`\
 https://nytimes.com/2024/09/08/arts/dance/maria-benitez-dead.html
