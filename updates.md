@@ -1,3 +1,7 @@
+**Taylor Swift, Travis Kelce take in U.S. Open men's final**\
+`The megastar and Super Bowl champions turned up at Arthur Ashe Stadium to watch Taylor Fritz take on Jannik Sinner`\
+https://nytimes.com/athletic/5753666/2024/09/08/taylor-swift-travis-kelce-us-open-tennis/
+
 **Miami Dolphins Player Tyreek Hill Detained by Police Outside Hard Rock Stadium**\
 `The wide receiver was released before suiting up to play against the Jacksonville Jaguars on Sunday.`\
 https://nytimes.com/2024/09/08/us/tyreek-hill-miami-dolphins-detained.html
