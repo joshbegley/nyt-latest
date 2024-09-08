@@ -1,3 +1,7 @@
+**Notre Dame shouldn't be ranked and Tennessee has a top-4 case: Behind the AP Top 25 ballot**\
+`There's a clear top three after Week 2 of the college football season, and clear debate in the AP Top 25 rankings elsewhere.`\
+https://nytimes.com/athletic/5753876/2024/09/08/ap-top-25-rankings-notre-dame-niu/
+
 **G.O.P. Report to Denounce Biden Administration Over Afghanistan Withdrawal**\
 `In an election-season document, Republicans are set to offer few new revelations but instead heap blame on the “Biden-Harris administration” while absolving former President Donald J. Trump.`\
 https://nytimes.com/2024/09/08/us/politics/republicans-biden-harris-afghanistan-withdrawal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5753279/2024/09/08/vikings-giants-result-takeaways/
 **Submit a question for Sam Khan Jr.’s Ask the Texpert mailbag**\
 `Submit your questions about Texas college football for Sam Khan Jr. and they may be answered in the next Ask the Texpert mailbag.`\
 https://nytimes.com/athletic/5753778/2024/09/08/submit-question-sam-khan-ask-the-texpert-mailbag/
-
-**Michael Jordan's 23XI, Front Row Motorsports explain why they're NASCAR charter holdouts**\
-`23XI Racing co-owner Curtis Polk described the battle between his team and NASCAR as "David facing Goliath," far away from a deal.`\
-https://nytimes.com/athletic/5753700/2024/09/08/michael-jordan-nascar-23xi-front-row-charters/
 
