@@ -1,3 +1,11 @@
+**Rice admits he 'needed a big performance' after 'rusty' start with Arsenal**\
+`Declan Rice reflected on his starring role for England by saying he &#8220;needed a big performance&#8221; after a &#8220;rusty&#8221; start to the season with his club Arsenal.`\
+https://nytimes.com/athletic/5753061/2024/09/08/declan-rice-england-ireland-arsenal/
+
+**How Marin Cilic and Kei Nishikori stunned tennis at the 2014 U.S. Open**\
+`At the 2014 U.S. Open, Roger Federer and Novak Djokovic were the picks for the final. Two players had other ideas.`\
+https://nytimes.com/athletic/5752016/2024/09/08/us-open-cilic-nishikori-2014/
+
 **Live Q&A: Week 1 fantasy football start/sit chat with Jay Felicio, Sunday 9/8 at 11 a.m. ET**\
 `Submit your Week 1 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5752578/2024/09/08/live-qa-week-1-fantasy-football-start-sit-chat-with-jay-felicio-sunday-9-8-at-11-a-m-et/

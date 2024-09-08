@@ -1,6 +1,14 @@
+**Rice admits he 'needed a big performance' after 'rusty' start with Arsenal**\
+`Declan Rice reflected on his starring role for England by saying he &#8220;needed a big performance&#8221; after a &#8220;rusty&#8221; start to the season with his club Arsenal.`\
+https://nytimes.com/athletic/5753061/2024/09/08/declan-rice-england-ireland-arsenal/
+
 **Live Q&A: Week 1 fantasy football start/sit chat with Jay Felicio, Sunday 9/8 at 11 a.m. ET**\
 `Submit your Week 1 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5752578/2024/09/08/live-qa-week-1-fantasy-football-start-sit-chat-with-jay-felicio-sunday-9-8-at-11-a-m-et/
+
+**How Marin Cilic and Kei Nishikori stunned tennis at the 2014 U.S. Open**\
+`At the 2014 U.S. Open, Roger Federer and Novak Djokovic were the picks for the final. Two players had other ideas.`\
+https://nytimes.com/athletic/5752016/2024/09/08/us-open-cilic-nishikori-2014/
 
 **After 17 Years in Prison, I’m a Different Person. Do Cases Like Mine Deserve a Second Look?**\
 `A new law would bring hope to people like me.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5751932/2024/09/08/edmonton-oilers-ahl-matt-savoie/
 **Stewart Mandel's 12-team CFP projections after Week 2**\
 `Who should be in the 12-team Playoff after Week 2? Stewart Mandel makes his picks.`\
 https://nytimes.com/athletic/5752879/2024/09/08/college-football-playoff-bracket-projections-week-2/
-
-**Obsessed with Sleep**\
-`The science behind popular methods for improving sleep, and the downsides of caring too much about it.`\
-https://nytimes.com/2024/09/08/briefing/improving-sleep-hacks.html
-
-**Our College Football Playoff model projections: Notre Dame out; USC and Tennessee move in**\
-`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
-https://nytimes.com/athletic/5701128/2024/09/08/college-football-playoff-projections-odds/
 
