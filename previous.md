@@ -1,3 +1,7 @@
+**NFL Week 1 takeaways: Bad day or red flag for Bengals? Plus, shaky debuts for Cousins, Williams**\
+`Our writers also weigh in on the potential for a QB controversy in Pittsburgh, and comparing the misery of the Panthers and Giants.`\
+https://nytimes.com/athletic/5753057/2024/09/08/nfl-takeaways-week-1-bengals-kirk-cousins-caleb-williams/
+
 **Notre Dame shouldn't be ranked and Tennessee has a top-4 case: Behind the AP Top 25 ballot**\
 `There's a clear top three after Week 2 of the college football season, and clear debate in the AP Top 25 rankings elsewhere.`\
 https://nytimes.com/athletic/5753876/2024/09/08/ap-top-25-rankings-notre-dame-niu/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5753814/2024/09/08/deejay-dallas-kickoff-return-tou
 **Key takeaways from Vikings' rout of Giants**\
 `Darnold provided exactly what the Vikings hoped he would in his debut.`\
 https://nytimes.com/athletic/5753279/2024/09/08/vikings-giants-result-takeaways/
-
-**Submit a question for Sam Khan Jr.’s Ask the Texpert mailbag**\
-`Submit your questions about Texas college football for Sam Khan Jr. and they may be answered in the next Ask the Texpert mailbag.`\
-https://nytimes.com/athletic/5753778/2024/09/08/submit-question-sam-khan-ask-the-texpert-mailbag/
 

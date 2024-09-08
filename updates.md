@@ -1,3 +1,7 @@
+**NFL Week 1 takeaways: Bad day or red flag for Bengals? Plus, shaky debuts for Cousins, Williams**\
+`Our writers also weigh in on the potential for a QB controversy in Pittsburgh, and comparing the misery of the Panthers and Giants.`\
+https://nytimes.com/athletic/5753057/2024/09/08/nfl-takeaways-week-1-bengals-kirk-cousins-caleb-williams/
+
 **Notre Dame shouldn't be ranked and Tennessee has a top-4 case: Behind the AP Top 25 ballot**\
 `There's a clear top three after Week 2 of the college football season, and clear debate in the AP Top 25 rankings elsewhere.`\
 https://nytimes.com/athletic/5753876/2024/09/08/ap-top-25-rankings-notre-dame-niu/
