@@ -1,3 +1,7 @@
+**North Korea Launches New Salvo of Balloons, but the South Barely Shrugs**\
+`Hundreds of propaganda balloons ferrying trash have landed in South Korea in recent days, where officials say they typically do not pose a threat.`\
+https://nytimes.com/2024/09/08/world/asia/north-korea-balloons-again.html
+
 **Dismal USMNT lacked pride and intensity against Canada - that's on the players**\
 `"We need to get back to really taking much more pride in wearing the jersey," said Tim Ream. It echoes a continuing feeling about this team`\
 https://nytimes.com/athletic/5752587/2024/09/08/dismal-usmnt-canada-reaction/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/08/crosswords/connections-companion-456.html
 **MAGA Is Nothing Without Trump**\
 `The movement’s national success depends on one man.`\
 https://nytimes.com/2024/09/08/opinion/maga-movement-trump-election.html
-
-**The Mounting Cost of Political Violence**\
-`A large number of the people who make decisions in this country have either seen violence over the past decade or felt the pressure and constraint of potential violence.`\
-https://nytimes.com/2024/09/08/opinion/political-violence-trump-assassination.html
 
