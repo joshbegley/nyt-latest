@@ -1,3 +1,19 @@
+**In Shanghai, Searching for Those in Search of Connection**\
+`Every week, lonely retirees in the city gather in a public park — and an Ikea canteen — with one goal in mind: finding true love. Alexandra Stevenson shared their stories.`\
+https://nytimes.com/2024/09/08/insider/china-dating.html
+
+**‘I Leaned Out the Window and Asked if I Could Have a Cigarette’**\
+`A chance encounter in Greenwich Village, playing Sudoku on the 1 train and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2024/09/08/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/08/crosswords/spelling-bee-forum.html
+
+**Off-White After Virgil Abloh**\
+`Ibrahim Kamara on Mr. Abloh’s fashion legacy and bringing the brand he built to New York Fashion Week.`\
+https://nytimes.com/2024/09/08/style/ib-kamara-off-white-vigil-abloh-nyfw.html
+
 **Decision to turn to bullpen falters, sends spiraling Twins to crushing 4-2 loss to Royals**\
 `Saturday's result is the most difficult loss the Twins have absorbed in a three-week stretch.`\
 https://nytimes.com/athletic/5752714/2024/09/08/twins-lose-royals-bullpen/
