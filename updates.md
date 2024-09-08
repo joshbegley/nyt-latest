@@ -1,3 +1,7 @@
+**Emerson: You can't trust Hugh Freeze after one game, whether it's an L or W**\
+`Hugh Freeze is a good coach, but one who has a lot of fantastic wins with a lot of bad losses. How to measure Saturday's loss to Cal, then?`\
+https://nytimes.com/athletic/5752463/2024/09/07/auburn-hugh-freeze-california-football-loss/
+
 **Emerson: Auburn's loss shows again that under Hugh Freeze, the Tigers are unreliable**\
 `After Nick Saban heaped praise on Auburn, the Tigers fell 21-14 to Cal at Jordan-Hare Stadium in another inexplicable loss under Freeze.`\
 https://nytimes.com/athletic/5752457/2024/09/07/auburn-tigers-cal-hugh-freeze-sec/

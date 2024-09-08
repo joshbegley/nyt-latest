@@ -1,3 +1,7 @@
+**Emerson: You can't trust Hugh Freeze after one game, whether it's an L or W**\
+`Hugh Freeze is a good coach, but one who has a lot of fantastic wins with a lot of bad losses. How to measure Saturday's loss to Cal, then?`\
+https://nytimes.com/athletic/5752463/2024/09/07/auburn-hugh-freeze-california-football-loss/
+
 **Emerson: Auburn's loss shows again that under Hugh Freeze, the Tigers are unreliable**\
 `After Nick Saban heaped praise on Auburn, the Tigers fell 21-14 to Cal at Jordan-Hare Stadium in another inexplicable loss under Freeze.`\
 https://nytimes.com/athletic/5752457/2024/09/07/auburn-tigers-cal-hugh-freeze-sec/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/07/us/shooting-kentucky-highway.html
 **Meek: Michigan's new era begins with Texas razing Big House**\
 `Michigan fans should console themselves thinking about their championship trophy. But that will only last for so long.`\
 https://nytimes.com/athletic/5752299/2024/09/07/michigan-texas-loss-sherrone-moore/
-
-**Notre Dame suffers stunning upset to NIU: How did everything go so wrong for Irish?**\
-`NIU beat Notre Dame 16-14 on a last-minute field goal on Saturday. Here's what went wrong, what we learned and what's next.`\
-https://nytimes.com/athletic/5752234/2024/09/07/notre-dame-northern-illinois-upset-college-football/
 
