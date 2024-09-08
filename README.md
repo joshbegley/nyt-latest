@@ -1,3 +1,7 @@
+**Dak Prescott has his extension — pressure really amps up for Cowboys' postseason success**\
+`The Cowboys have a lot of money invested in Dak Prescott and CeeDee Lamb. It's time to turn things around in the postseason.`\
+https://nytimes.com/athletic/5753665/2024/09/08/dak-prescott-cowboys-jerry-jones-contract/
+
 **Taylor Swift, Travis Kelce take in U.S. Open men's final**\
 `The megastar and Super Bowl champions turned up at Arthur Ashe Stadium to watch Taylor Fritz take on Jannik Sinner`\
 https://nytimes.com/athletic/5753666/2024/09/08/taylor-swift-travis-kelce-us-open-tennis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/08/us/politics/liz-cheney-trump-harris-republicans.h
 **USC adds top-100 LB Ty Jackson to 2025 class**\
 `Jackson, a Florida native, is the third blue-chip linebacker in the Trojans’ 2025 class.`\
 https://nytimes.com/athletic/5753619/2024/09/08/usc-football-recruiting-ty-jackson/
-
-**Packers reach out to Ryan Tannehill following Love's injury**\
-`Tannehill told The Athletic on an episode of Scoop City in July that he for him to join a team, "it would have to be the right situation.”`\
-https://nytimes.com/athletic/5753555/2024/09/08/packers-ryan-tannehill-jordan-love-backup/
 
