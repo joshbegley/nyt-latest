@@ -1,3 +1,15 @@
+**Decision to turn to bullpen falters, sends spiraling Twins to crushing 4-2 loss to Royals**\
+`Saturday's result is the most difficult loss the Twins have absorbed in a three-week stretch.`\
+https://nytimes.com/athletic/5752714/2024/09/08/twins-lose-royals-bullpen/
+
+**NFL Draft tracker: Jaxson Dart, Kyle Monangai, other prospects who stood out in Week 2**\
+`Dart is off to a red-hot start for Ole Miss, and the same came be said for Rutgers' Monangai. Who else stood out on Saturday?`\
+https://nytimes.com/athletic/5751881/2024/09/08/nfl-draft-risers-jaxson-dart-kyle-monangai/
+
+**Are People Named Dennis Really More Likely to Become Dentists?**\
+`The weird, mostly bad science of nominative determinism.`\
+https://nytimes.com/2024/09/08/opinion/names-destiny-nominative-determinism.html
+
 **Panthers vs. Saints odds, picks, how to watch: Saints favored at home in the dome**\
 `Two teams with a lot of doubt to overcome. The Saints are favorites at home against the Panthers in Year 2 of the Bryce Young era.`\
 https://nytimes.com/athletic/5750655/2024/09/08/panthers-saints-odds-expert-picks-how-to-watch-predictions-betting/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5752629/2024/09/08/ohio-state-western-michigan-take
 **How Premier League footballers have turned two Surrey villages into ‘Beverly Hills of Britain’**\
 `Since Chelsea moved their training ground to Surrey 19 years ago, villages such as Oxshott and Cobham have become a millionaires' playground`\
 https://nytimes.com/athletic/5747613/2024/09/08/premier-league-footballers-surrey-beverly-hills/
-
-**Texans vs. Colts odds, expert picks, how to watch: Colts seek redemption against Texans**\
-`Week 1 starts the AFC South battle early with the Colts and Anthony Richardson hosting the favored Texans and C.J. Stroud.`\
-https://nytimes.com/athletic/5750545/2024/09/08/texans-colts-odds-expert-picks-how-to-watch-predictions-betting/
-
-**The Business of Football: Inside UEFA's ticket price cap vote and the player break puzzle**\
-`We examine the reasons behind clubs accepting UEFA's price cap, the conundrum over player schedules and how dynamic pricing affects football`\
-https://nytimes.com/athletic/5749876/2024/09/08/uefa-ticket-price-cap-player-rest/
-
-**Welcome to… Walton & Hersham: Bought by teenagers, rapid success and now a U.S. academy**\
-`A rapid rise through the divisions, U.S. investment and left-field owners? No, this is not Wrexham, this is Walton & Hersham`\
-https://nytimes.com/athletic/5403798/2024/09/08/walton-and-hersham-teenage-owners/
 

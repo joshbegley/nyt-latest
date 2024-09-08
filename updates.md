@@ -1,3 +1,15 @@
+**Decision to turn to bullpen falters, sends spiraling Twins to crushing 4-2 loss to Royals**\
+`Saturday's result is the most difficult loss the Twins have absorbed in a three-week stretch.`\
+https://nytimes.com/athletic/5752714/2024/09/08/twins-lose-royals-bullpen/
+
+**NFL Draft tracker: Jaxson Dart, Kyle Monangai, other prospects who stood out in Week 2**\
+`Dart is off to a red-hot start for Ole Miss, and the same came be said for Rutgers' Monangai. Who else stood out on Saturday?`\
+https://nytimes.com/athletic/5751881/2024/09/08/nfl-draft-risers-jaxson-dart-kyle-monangai/
+
+**Are People Named Dennis Really More Likely to Become Dentists?**\
+`The weird, mostly bad science of nominative determinism.`\
+https://nytimes.com/2024/09/08/opinion/names-destiny-nominative-determinism.html
+
 **Panthers vs. Saints odds, picks, how to watch: Saints favored at home in the dome**\
 `Two teams with a lot of doubt to overcome. The Saints are favorites at home against the Panthers in Year 2 of the Bryce Young era.`\
 https://nytimes.com/athletic/5750655/2024/09/08/panthers-saints-odds-expert-picks-how-to-watch-predictions-betting/
