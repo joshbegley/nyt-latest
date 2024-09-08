@@ -1,3 +1,7 @@
+**Grant McCray's two-homer breakout gives Giants plenty to consider**\
+`McCray brought in all the Giants' runs in a 6-3 victory over the San Diego Padres in support of Logan Webb's winning effort.`\
+https://nytimes.com/athletic/5752782/2024/09/08/giants-grant-mccray-two-homers/
+
 **Nagelsmann's smart use of Gross and Havertz shows Germany there is life after Kroos**\
 `Kroos was one of the finest passers in the modern game and ignited Nagelsmann's reign but he seems to be coping without his star midfielder`\
 https://nytimes.com/athletic/5752276/2024/09/08/gross-germany-kroos-replacement/

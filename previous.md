@@ -1,3 +1,7 @@
+**Grant McCray's two-homer breakout gives Giants plenty to consider**\
+`McCray brought in all the Giants' runs in a 6-3 victory over the San Diego Padres in support of Logan Webb's winning effort.`\
+https://nytimes.com/athletic/5752782/2024/09/08/giants-grant-mccray-two-homers/
+
 **Nagelsmann's smart use of Gross and Havertz shows Germany there is life after Kroos**\
 `Kroos was one of the finest passers in the modern game and ignited Nagelsmann's reign but he seems to be coping without his star midfielder`\
 https://nytimes.com/athletic/5752276/2024/09/08/gross-germany-kroos-replacement/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/08/style/ib-kamara-off-white-vigil-abloh-nyfw.html
 **Decision to turn to bullpen falters, sends spiraling Twins to crushing 4-2 loss to Royals**\
 `Saturday's result is the most difficult loss the Twins have absorbed in a three-week stretch.`\
 https://nytimes.com/athletic/5752714/2024/09/08/twins-lose-royals-bullpen/
-
-**NFL Draft tracker: Jaxson Dart, Kyle Monangai, other prospects who stood out in Week 2**\
-`Dart is off to a red-hot start for Ole Miss, and the same came be said for Rutgers' Monangai. Who else stood out on Saturday?`\
-https://nytimes.com/athletic/5751881/2024/09/08/nfl-draft-risers-jaxson-dart-kyle-monangai/
 
