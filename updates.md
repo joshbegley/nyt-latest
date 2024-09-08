@@ -1,3 +1,11 @@
+**Lowetide: Oilers guide to potential impact recalls from AHL**\
+`Keep your eye on Matt Savoie. He's the most explosive prospect in the Oilers' system at this time.`\
+https://nytimes.com/athletic/5751932/2024/09/08/edmonton-oilers-ahl-matt-savoie/
+
+**Stewart Mandel's 12-team CFP projections after Week 2**\
+`Who should be in the 12-team Playoff after Week 2? Stewart Mandel makes his picks.`\
+https://nytimes.com/athletic/5752879/2024/09/08/college-football-playoff-bracket-projections-week-2/
+
 **Obsessed with Sleep**\
 `The science behind popular methods for improving sleep, and the downsides of caring too much about it.`\
 https://nytimes.com/2024/09/08/briefing/improving-sleep-hacks.html
