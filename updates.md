@@ -1,3 +1,11 @@
+**After 17 Years in Prison, I’m a Different Person. Do Cases Like Mine Deserve a Second Look?**\
+`A new law would bring hope to people like me.`\
+https://nytimes.com/2024/09/08/opinion/second-act-prison-criminal-justice-reform.html
+
+**Until Saturday: Notre Dame's stunner, plus Texas' statement**\
+`Welcome to Until Saturday, the five-star college football newsletter: Week 2 brought a big upset, some close calls and an early statement.`\
+https://nytimes.com/athletic/5752872/2024/09/08/notre-dame-northern-illinois-texas-michigan-until-saturday/
+
 **Canada's dominance of USMNT shows Copa was no fluke as they ascend to be CONCACAF's top side**\
 `Jesse Marsch has heightened demands on his players and they are responding — wins over the U.S. should no longer be considered surprising`\
 https://nytimes.com/athletic/5752545/2024/09/08/canada-usmnt-concacaf-kansas/
