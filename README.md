@@ -1,3 +1,11 @@
+**Sampson: Notre Dame has been here before under Marcus Freeman. That's the problem.**\
+`Notre Dame's devastating loss to NIU felt far too familiar and raises a tough question: Was promoting Freeman too big of a risk?`\
+https://nytimes.com/athletic/5752612/2024/09/07/notre-dame-northern-illinois-marcus-freeman/
+
+**Steelers vs. Falcons odds, picks, how to watch: Two veteran QBs test new digs**\
+`Two veteran quarterbacks face their first test on new teams Sunday as the Steelers battle the Falcons in Atlanta. `\
+https://nytimes.com/athletic/5750147/2024/09/07/steelers-falcons-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Dochterman: Iowa delivers a masterclass in how to blow a football game**\
 `The blame is all-encompassing from scheme to execution. There were personnel breakdowns and head-scratching coaching decisions.`\
 https://nytimes.com/athletic/5752623/2024/09/07/iowa-hawkeyes-collapse-cy-hawk-iowa-state/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/07/us/politics/trump-election-fraud-prosecute.html
 **Dan Morgenstern, Chronicler and Friend of Jazz, Dies at 94**\
 `He wrote prolifically about the music and played an important role in documenting its history, especially in his many years with the Institute of Jazz Studies.`\
 https://nytimes.com/2024/09/07/arts/music/dan-morgenstern-dead.html
-
-**Emerson: You can't trust Hugh Freeze after one game, whether it's an L or W**\
-`Hugh Freeze is a good coach, but one who has a lot of fantastic wins with a lot of bad losses. How to measure Saturday's loss to Cal, then?`\
-https://nytimes.com/athletic/5752463/2024/09/07/auburn-hugh-freeze-california-football-loss/
-
-**Emerson: Auburn's loss shows again that under Hugh Freeze, the Tigers are unreliable**\
-`After Nick Saban heaped praise on Auburn, the Tigers fell 21-14 to Cal at Jordan-Hare Stadium in another inexplicable loss under Freeze.`\
-https://nytimes.com/athletic/5752457/2024/09/07/auburn-tigers-cal-hugh-freeze-sec/
 
