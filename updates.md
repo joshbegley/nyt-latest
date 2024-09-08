@@ -1,3 +1,7 @@
+**Dan Morgenstern, Chronicler and Friend of Jazz, Dies at 94**\
+`He wrote prolifically about the music and played an important role in documenting its history, especially in his many years with the Institute of Jazz Studies.`\
+https://nytimes.com/2024/09/07/arts/music/dan-morgenstern-dead.html
+
 **Jessica Pegula sees signs of career progress in U.S. Open final loss**\
 `Jessica Pegula was on the cusp of the U.S. Open title. Her run at the tournament is a clear step forward in her career.`\
 https://nytimes.com/athletic/5752433/2024/09/07/jessica-pegula-us-open-final/
