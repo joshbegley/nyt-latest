@@ -1,40 +1,40 @@
-**Commanders vs. Buccaneers odds, picks, how to watch: Jayden Daniels' debut**\
-`No. 2 pick Jayden Daniels debuts on Sunday as the Washington Commanders visit Tampa Bay. The Bucs are favored.`\
-https://nytimes.com/athletic/5750886/2024/09/08/commanders-buccaneers-odds-expert-picks-how-to-watch-predictions-betting/
+**Dismal USMNT lacked pride and intensity against Canada - that's on the players**\
+`"We need to get back to really taking much more pride in wearing the jersey," said Tim Ream. It echoes a continuing feeling about this team`\
+https://nytimes.com/athletic/5752587/2024/09/08/dismal-usmnt-canada-reaction/
 
-**3 Israelis Are Fatally Shot at West Bank-Jordan Border Crossing**\
-`The Allenby crossing, near the West Bank city of Jericho, has been the scene of violence in the past.`\
-https://nytimes.com/2024/09/08/world/middleeast/israel-gaza-hamas-war-west-bank.html
+**Cowboys-Browns predictions and preview: CeeDee Lamb is full-go, rookie on the hot seat, more**\
+`Is Lamb ready to roll? Can rookie Tyler Guyton hold his own against one of the NFL's best defensive players?`\
+https://nytimes.com/athletic/5747429/2024/09/08/cowboys-browns-predictions-preview/
 
-**Struggling to Stem Extremism, Tajikistan Hunts Beards and Head Scarves**\
-`After Tajiks were charged with a deadly attack in Moscow, the country has cracked down on signs of Islam. But experts say it’s not addressing the causes of terrorism.`\
-https://nytimes.com/2024/09/08/world/europe/tajikistan-extremism-beards-head-scarves.html
+**David discusses Lille future, possible Premier League move**\
+`The Canada international's current deal expires in 2025 meaning he could leave the Ligue 1 club for free`\
+https://nytimes.com/athletic/5752839/2024/09/08/jonathan-david-transfer-lille-canada/
 
-**Cowboys vs. Browns odds, picks, how to watch: Two teams with a lot to prove**\
-`The Cowboys and Browns are both in a struggle for faith early this season. Cleveland is slightly favored in their home opener. `\
-https://nytimes.com/athletic/5750859/2024/09/08/cowboys-browns-odds-expert-picks-how-to-watch-predictions-betting/
+**Rams vs. Lions odds, picks, how to watch: Detroit favored in rematch of Wild Card**\
+`An expectation-laden Lions roster faces its first test against old Wild-Card rivals the Rams in Ford Field. `\
+https://nytimes.com/athletic/5750933/2024/09/08/rams-lions-odds-expert-picks-how-to-watch-predictions-betting/
 
-**Broncos vs. Seahawks odds, picks, how to watch: Bo Nix debuts on the road**\
-`Bo Nix makes his NFL debut with the Broncos on the road, but it's the Seahawks who are favored at home with a new head coach.`\
-https://nytimes.com/athletic/5750771/2024/09/08/broncos-seahawks-odds-expert-picks-how-to-watch-predictions-betting/
+**I Love Taylor Swift. Her Political Endorsement Shouldn’t Matter.**\
+`It’s seductive to think that superstars can sway elections. But we shouldn’t hope that celebrities will save us from the hard work of winning people over.`\
+https://nytimes.com/2024/09/08/opinion/taylor-swift-endorsement-election-harris.html
 
-**New Poll Suggests Harris’s Support Has Stalled After a Euphoric August**\
-`Almost 30 percent of voters said they needed to learn more about her.`\
-https://nytimes.com/2024/09/08/upshot/trump-harris-poll-analysis.html
+**Mandel's Final Thoughts: Georgia, Ohio State and Texas at the top. After that, guess again**\
+`This was supposed to be the year Marcus Freeman led Notre Dame to national title contention, but then came Saturday's confidence crusher. `\
+https://nytimes.com/athletic/5752786/2024/09/08/college-football-week-2-notre-dame-texas/
 
-**Debate Will Be 90 Fateful Minutes for 2 Candidates, and One Network**\
-`ABC News is under a microscope as its journalists prepare to host one of the most scrutinized moments of the 2024 campaign.`\
-https://nytimes.com/2024/09/08/business/media/trump-harris-abc-presidential-debate.html
+**My Teenage Son Thinks the World Is Falling Apart. I’ve Changed How I Talk to Him About It.**\
+`My instinct to minimize what is happening in much of the world was robbing my sons of a sense of urgency that demands their attention.`\
+https://nytimes.com/2024/09/08/opinion/kids-world-parents-doom.html
 
-**Congress Returns for Another Big Spending Fight**\
-`Clashes over both the duration of a stopgap bill and whether it should include a noncitizen voting measure demanded by the G.O.P. could force a government shutdown at the end of the month.`\
-https://nytimes.com/2024/09/08/us/congress-spending.html
+**The Connections Companion No. 456**\
+`Scroll down for hints and conversation about the puzzle for Monday, Sept. 9, 2024.`\
+https://nytimes.com/2024/09/08/crosswords/connections-companion-456.html
 
-**Trump and Harris Neck and Neck After Summer Upheaval, Times/Siena Poll Finds**\
-`The survey finds that Donald J. Trump is retaining his support and that, on the eve of the debate, voters are unsure they know enough about where Kamala Harris stands.`\
-https://nytimes.com/2024/09/08/us/politics/trump-and-harris-times-siena-poll.html
+**MAGA Is Nothing Without Trump**\
+`The movement’s national success depends on one man.`\
+https://nytimes.com/2024/09/08/opinion/maga-movement-trump-election.html
 
-**Review: ‘My Brilliant Friend’ Comes to a Brilliant Conclusion**\
-`HBO’s Elena Ferrante adaptation completes one of the best portraits of a lifelong relationship ever made for TV.`\
-https://nytimes.com/2024/09/08/arts/television/-my-brilliant-friend-season-four-review.html
+**The Mounting Cost of Political Violence**\
+`A large number of the people who make decisions in this country have either seen violence over the past decade or felt the pressure and constraint of potential violence.`\
+https://nytimes.com/2024/09/08/opinion/political-violence-trump-assassination.html
 
