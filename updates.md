@@ -1,3 +1,11 @@
+**DeeJay Dallas scores first kickoff return TD of season**\
+`Cardinals returner DeeJay Dallas had thrilling 96-yard kickoff return for a touchdown under the NFL's new kickoff rules.`\
+https://nytimes.com/athletic/5753814/2024/09/08/cardinals-deejay-dallas-scores-first-kickoff-return-touchdown-of-nfl-season-under-new-format/
+
+**Key takeaways from Vikings' rout of Giants**\
+`Darnold provided exactly what the Vikings hoped he would in his debut.`\
+https://nytimes.com/athletic/5753279/2024/09/08/vikings-giants-result-takeaways/
+
 **Dolphins' Hill detained for traffic violation**\
 `Hill hauled in an 80-yard touchdown reception during the third quarter against Jacksonville.`\
 https://nytimes.com/athletic/5753311/2024/09/08/tyreek-hill-traffic-incident-detained-dolphins/
