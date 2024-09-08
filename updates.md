@@ -1,3 +1,7 @@
+**Bengals' Chase active for Week 1 despite no new contract**\
+`The Bengals receiver will return to football after weeks and months of contract controversy.`\
+https://nytimes.com/athletic/5753228/2024/09/08/patriots-bengals-nfl-week-1-recap/
+
 **Kendrick Lamar Will Headline 2025 Super Bowl Halftime Show**\
 `The rapper, who’s had a big year thanks to a beef with Drake that led to the smash song “Not Like Us,” will perform in New Orleans in February.`\
 https://nytimes.com/2024/09/08/arts/music/kendrick-lamar-super-bowl-halftime-show.html

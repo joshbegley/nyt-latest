@@ -1,3 +1,7 @@
+**Bengals' Chase active for Week 1 despite no new contract**\
+`The Bengals receiver will return to football after weeks and months of contract controversy.`\
+https://nytimes.com/athletic/5753228/2024/09/08/patriots-bengals-nfl-week-1-recap/
+
 **Kendrick Lamar Will Headline 2025 Super Bowl Halftime Show**\
 `The rapper, who’s had a big year thanks to a beef with Drake that led to the smash song “Not Like Us,” will perform in New Orleans in February.`\
 https://nytimes.com/2024/09/08/arts/music/kendrick-lamar-super-bowl-halftime-show.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5753193/2024/09/08/nebraska-matt-rhule-colorado/
 **A Judge’s Decision to Delay Trump’s Sentencing**\
 `Readers disagree about whether putting off sentencing until after the election was the right move. Also: Risky Covid behavior; outdoor dining; a librarian’s fight.`\
 https://nytimes.com/2024/09/08/opinion/trump-sentencing.html
-
-**This Yucatán Marinade Is Perfect for Steak Tacos**\
-`The chef Alex Henry bucks tradition with a citrusy, garlicky, earthy mixture for sliced rib-eye.`\
-https://nytimes.com/2024/09/08/dining/this-yucatan-marinade-is-perfect-for-steak-tacos.html
 
