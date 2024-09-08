@@ -1,3 +1,11 @@
+**Boeing Reaches Tentative Deal With Workers to Avert Strike**\
+`The proposed contract, if approved by union members on Thursday, includes a 25 percent raise over four years and a promise to build the next plane in the Seattle-Portland area.`\
+https://nytimes.com/2024/09/08/business/boeing-workers-contract.html
+
+**Greece to Restrict Cruise Visits and Vacation Homes on Busy Islands**\
+`In a country where vacationers are a keystone of the economy, Prime Minister Kyriakos Mitsotakis is embracing a European trend toward tighter tourism regulation.`\
+https://nytimes.com/2024/09/08/world/europe/greece-cruise-ships-tourists-islands.html
+
 **Steelers' Wilson inactive, Fields to start**\
 `Steelers starter Russell Wilson's ongoing calf injury will force him to miss Sunday’s Week 1 game against the Falcons.`\
 https://nytimes.com/athletic/5753356/2024/09/08/steelers-falcons-russell-wilson-status/

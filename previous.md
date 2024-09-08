@@ -1,3 +1,11 @@
+**Boeing Reaches Tentative Deal With Workers to Avert Strike**\
+`The proposed contract, if approved by union members on Thursday, includes a 25 percent raise over four years and a promise to build the next plane in the Seattle-Portland area.`\
+https://nytimes.com/2024/09/08/business/boeing-workers-contract.html
+
+**Greece to Restrict Cruise Visits and Vacation Homes on Busy Islands**\
+`In a country where vacationers are a keystone of the economy, Prime Minister Kyriakos Mitsotakis is embracing a European trend toward tighter tourism regulation.`\
+https://nytimes.com/2024/09/08/world/europe/greece-cruise-ships-tourists-islands.html
+
 **Steelers' Wilson inactive, Fields to start**\
 `Steelers starter Russell Wilson's ongoing calf injury will force him to miss Sunday’s Week 1 game against the Falcons.`\
 https://nytimes.com/athletic/5753356/2024/09/08/steelers-falcons-russell-wilson-status/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/08/dining/this-yucatan-marinade-is-perfect-for-steak
 **Rice admits he 'needed a big performance' after 'rusty' start with Arsenal**\
 `Declan Rice reflected on his starring role for England by saying he &#8220;needed a big performance&#8221; after a &#8220;rusty&#8221; start to the season with his club Arsenal.`\
 https://nytimes.com/athletic/5753061/2024/09/08/declan-rice-england-ireland-arsenal/
-
-**Live Q&A: Week 1 fantasy football start/sit chat with Jay Felicio, Sunday 9/8 at 11 a.m. ET**\
-`Submit your Week 1 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
-https://nytimes.com/athletic/5752578/2024/09/08/live-qa-week-1-fantasy-football-start-sit-chat-with-jay-felicio-sunday-9-8-at-11-a-m-et/
-
-**How Marin Cilic and Kei Nishikori stunned tennis at the 2014 U.S. Open**\
-`At the 2014 U.S. Open, Roger Federer and Novak Djokovic were the picks for the final. Two players had other ideas`\
-https://nytimes.com/athletic/5752016/2024/09/08/us-open-cilic-nishikori-2014/
 
