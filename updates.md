@@ -1,3 +1,7 @@
+**Miami Dolphins Player Tyreek Hill Detained by Police Outside Hard Rock Stadium**\
+`The wide receiver was released before suiting up to play against the Jacksonville Jaguars on Sunday.`\
+https://nytimes.com/2024/09/08/us/tyreek-hill-miami-dolphins-detained.html
+
 **A Buzzy U.S. Open Got an After-Party to Match the Vibe**\
 `Celebrities like Issa Rae and Nicky Hilton Rothschild, and former tennis stars like Maria Sharapova and James Blake, helped close out the tournament in style.`\
 https://nytimes.com/2024/09/08/style/us-open-after-party.html

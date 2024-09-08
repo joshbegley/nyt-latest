@@ -1,3 +1,7 @@
+**Miami Dolphins Player Tyreek Hill Detained by Police Outside Hard Rock Stadium**\
+`The wide receiver was released before suiting up to play against the Jacksonville Jaguars on Sunday.`\
+https://nytimes.com/2024/09/08/us/tyreek-hill-miami-dolphins-detained.html
+
 **A Buzzy U.S. Open Got an After-Party to Match the Vibe**\
 `Celebrities like Issa Rae and Nicky Hilton Rothschild, and former tennis stars like Maria Sharapova and James Blake, helped close out the tournament in style.`\
 https://nytimes.com/2024/09/08/style/us-open-after-party.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5753555/2024/09/08/packers-ryan-tannehill-jordan-lo
 **After a Century and a Half in Sweden, Finnish Skulls Return Home**\
 `Dozens of skulls exhumed in Finland in the 19th century and taken to Sweden by scientists who wanted to study their racial characteristics were reburied in Finnish soil on Sunday.`\
 https://nytimes.com/2024/09/08/world/europe/finland-sweden-skulls.html
-
-**Paralympics highlights: A gold won in silence, manifesting dreams, and lessons for L.A.**\
-`The Paralympics brought us inspirational, powerful and surprising stories. Here, Charlotte Harpur chooses her most memorable…`\
-https://nytimes.com/athletic/5753182/2024/09/08/paralympics-highlights-frech-aoki/
 
