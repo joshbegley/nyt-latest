@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5750528/2024/09/08/notre-dame-northern-illinois-nfl
 https://nytimes.com/athletic/5753438/2024/09/08/kendrick-lamar-super-bowl-halftime-show/
 
 **Steelers vs. Falcons odds, picks, how to watch: Fields replaces Wilson in season opener**\
-`Two veteran quarterbacks face their first test on new teams Sunday as the Steelers battle the Falcons in Atlanta. `\
+`Justin Fields will start Sunday vs. Kirk Cousins as the Steelers battle the Falcons in Atlanta. `\
 https://nytimes.com/athletic/5750147/2024/09/08/steelers-falcons-odds-expert-picks-how-to-watch-predictions-betting/
 
 **Bengals' Chase active for Week 1 despite no new contract**\
