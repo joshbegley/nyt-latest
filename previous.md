@@ -1,5 +1,5 @@
 **Arsenal's Champions League qualifying campaign a 'relic of the past’ - Eidevall**\
-`"It’s lucky an English team will not have to play in these mini-tournaments again," said Eidevall after Arsenal progressed`\
+`‘It’s lucky an English team will not have to play in these mini-tournaments again,’ said Eidevall after Arsenal progressed to the next round`\
 https://nytimes.com/athletic/5752818/2024/09/08/arsenal-champions-league-relic/
 
 **Grant McCray's two-homer breakout gives Giants plenty to consider**\

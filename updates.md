@@ -1,3 +1,7 @@
+**Arsenal's Champions League qualifying campaign a 'relic of the past’ - Eidevall**\
+`‘It’s lucky an English team will not have to play in these mini-tournaments again,’ said Eidevall after Arsenal progressed to the next round`\
+https://nytimes.com/athletic/5752818/2024/09/08/arsenal-champions-league-relic/
+
 **Nagelsmann's smart use of Gross and Havertz shows Germany there is life after Kroos**\
 `Kroos was one of the game’s finest passers and ignited Nagelsmann's reign. But the manager seems to be coping without his star midfielder`\
 https://nytimes.com/athletic/5752276/2024/09/08/gross-germany-kroos-replacement/
