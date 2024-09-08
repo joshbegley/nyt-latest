@@ -1,3 +1,7 @@
+**Kendrick Lamar to Headline 2025 Super Bowl Halftime Show**\
+`The rapper, who’s had a big year thanks to a beef with Drake that led to the smash song “Not Like Us,” will perform in New Orleans in February.`\
+https://nytimes.com/2024/09/08/arts/music/kendrick-lamar-super-bowl-halftime-show.html
+
 **Packers reach out to Ryan Tannehill following Love's injury**\
 `Tannehill told The Athletic on an episode of Scoop City in July that he for him to join a team, "it would have to be the right situation.”`\
 https://nytimes.com/athletic/5753555/2024/09/08/packers-ryan-tannehill-jordan-love-backup/
