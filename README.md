@@ -1,3 +1,7 @@
+**Song odds for Kendrick Lamar's Super Bowl LIX halftime show**\
+`An early prediction for what the Pulitzer Prize-winning rapper might perform at the Caesars Superdome. `\
+https://nytimes.com/athletic/5753979/2024/09/08/kendrick-lamars-super-bowl-lix-halftime-song-odds/
+
 **Words to Live By**\
 `Tim D’Alfonso makes his New York Times debut.`\
 https://nytimes.com/2024/09/08/crosswords/daily-puzzle-2024-09-09.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5753622/2024/09/08/sinner-fritz-us-open-final-resul
 **5 takeaways from Steelers' season-opening win over Falcons**\
 `Boswell connected on field goals from 57 yards, 51 yards, 44 yards, 56 yards, 40 yards and 25 yards.`\
 https://nytimes.com/athletic/5753183/2024/09/08/steelers-falcons-result-takeaways/
-
-**DeeJay Dallas scores first kickoff return TD of season**\
-`Cardinals returner DeeJay Dallas had thrilling 96-yard kickoff return for a touchdown under the NFL's new kickoff rules.`\
-https://nytimes.com/athletic/5753814/2024/09/08/deejay-dallas-kickoff-return-touchdown/
 
