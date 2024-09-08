@@ -1,3 +1,7 @@
+**College Football Playoff 2024 projections: Notre Dame out; USC and Tennessee move in**\
+`Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
+https://nytimes.com/athletic/5701128/2024/09/08/college-football-playoff-projections-odds/
+
 **Lowetide: Oilers guide to potential impact recalls from AHL**\
 `Keep your eye on Matt Savoie. He's the most explosive prospect in the Oilers' system at this time.`\
 https://nytimes.com/athletic/5751932/2024/09/08/edmonton-oilers-ahl-matt-savoie/
