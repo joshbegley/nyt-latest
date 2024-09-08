@@ -22,6 +22,10 @@ https://nytimes.com/athletic/5752872/2024/09/08/notre-dame-northern-illinois-tex
 `Purdy will face fellow Iowa State alums Breece Hall, Will McDonald IV and Allen Lazard in the 49ers' season opener against the Jets.`\
 https://nytimes.com/athletic/5741322/2024/09/08/49ers-jets-brock-purdy-iowa-state-hall-mcdonald/
 
+**Election Live Updates: Harris and Trump Brace for Debate as Poll Shows a Tight Race**\
+`Vice President Kamala Harris and former President Donald J. Trump left the campaigning to surrogates on Sunday as they readied for Tuesday’s debate. A New York Times/Siena College national poll found the race very close.`\
+https://nytimes.com/live/2024/09/08/us/harris-trump-election
+
 **Here’s the latest on the presidential race.**\
 `By Simon J. Levien`\
 https://nytimes.com/live/2024/09/08/us/harris-trump-election/heres-the-latest-on-the-presidential-race
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5752902/2024/09/08/usc-footbal-shutout-utah-state-d
 **Lowetide: Oilers guide to potential impact recalls from AHL**\
 `Keep your eye on Matt Savoie. He's the most explosive prospect in the Oilers' system at this time.`\
 https://nytimes.com/athletic/5751932/2024/09/08/edmonton-oilers-ahl-matt-savoie/
-
-**Stewart Mandel's 12-team CFP projections after Week 2**\
-`Who should be in the 12-team Playoff after Week 2? Stewart Mandel makes his picks.`\
-https://nytimes.com/athletic/5752879/2024/09/08/college-football-playoff-bracket-projections-week-2/
 
