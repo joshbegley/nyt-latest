@@ -1,3 +1,7 @@
+**Richard Fitts debuts, Bobby Dablec DFA'd, and Red Sox bullpen implodes in critical loss**\
+`BOSTON — In need of a spot start on Sunday, the Boston Red Sox turned to rookie right-hander Richard Fitts.`\
+https://nytimes.com/athletic/5754281/2024/09/08/red-sox-richard-fitts-bobby-dalbec/
+
 **Rookie QB roundup: How Williams, Nix, Daniels fared in debuts**\
 `Only Caleb Williams' Chicago Bears left Week 1 with a win, and none of them threw for a touchdown in their debuts.`\
 https://nytimes.com/athletic/5753855/2024/09/08/nfl-rookie-qbs-williams-nix-daniels-debuts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5754070/2024/09/08/buffalo-bills-win-arizona-cardin
 **Patriots defy 'rebuilding' narrative, pull off huge upset vs. Bengals in Jerod Mayo's debut**\
 `Who thought the Patriots could win this season by playing strong defense and running the ball? Not many. But on Sunday, they did just that.`\
 https://nytimes.com/athletic/5754091/2024/09/08/patriots-bengals-week-1-jerod-mayo/
-
-**Behind Kirk Cousins' 'disappointing' performance, Falcons looked like same ol' team in Week 1**\
-`Cousins flopped in his Falcons debut, finishing with a passer rating of 59 and throwing two interceptions, including a backbreaker.`\
-https://nytimes.com/athletic/5754094/2024/09/08/falcons-kirk-cousins-disappointment-steelers/
 
