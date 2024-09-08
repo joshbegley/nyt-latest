@@ -1,5 +1,5 @@
-**Calafiori to return to Arsenal after injury on international duty**\
-`Riccardo Calafiori is set to return to Arsenal after picking up an injury on international duty with Italy.`\
+**Calafiori returning to Arsenal after injury on international duty**\
+`Riccardo Calafiori is returning to Arsenal after picking up an injury on international duty with Italy.`\
 https://nytimes.com/athletic/5752929/2024/09/08/riccardo-calafiori-injury-italy-arsenal/
 
 **Sherman: Nebraska fans should embrace the change in Matt Rhule’s Huskers**\
