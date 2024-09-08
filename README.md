@@ -1,7 +1,3 @@
-**María Benítez, Dancer Who Championed Flamenco, Is Dead at 82**\
-`“People came from everywhere to see her shows,” an admirer said — including, on at least one occasion, the ballet superstar Mikhail Baryshnikov.`\
-https://nytimes.com/2024/09/08/arts/dance/00maria-benitez-dead.html
-
 **Game, Set, Match: Jannik Sinner beats Taylor Fritz to win U.S. Open**\
 `The world No. 1 dashed Fritz's dreams of becoming the first male American U.S. Open winner since 2003.`\
 https://nytimes.com/athletic/5753622/2024/09/08/sinner-fritz-us-open-final-result-analysis/
@@ -37,4 +33,8 @@ https://nytimes.com/2024/09/08/nyregion/eric-adams-black-churches.html
 **Now the NFL's highest-paid QB, pressure is on Dak Prescott to bring Cowboys playoff success**\
 `The Cowboys have a lot of money invested in Dak Prescott and CeeDee Lamb. It's time to turn things around in the postseason.`\
 https://nytimes.com/athletic/5753665/2024/09/08/dak-prescott-cowboys-jerry-jones-contract/
+
+**Taylor Swift, Travis Kelce take in U.S. Open men's final**\
+`The megastar and Super Bowl champions turned up at Arthur Ashe Stadium to watch Taylor Fritz take on Jannik Sinner`\
+https://nytimes.com/athletic/5753666/2024/09/08/taylor-swift-travis-kelce-us-open-tennis/
 
