@@ -1,3 +1,11 @@
+**Venezuela’s Presidential Contender Flees, and Hopes for Democracy Dim**\
+`The opposition candidate’s decision to seek asylum in Spain and the autocratic leader’s antagonism toward regional powers lessen the chances of a political transition.`\
+https://nytimes.com/2024/09/08/world/americas/edmundo-gonzalez-venezuela-opposition-candidate.html
+
+**Key takeaways from Cowboys' 33-17 victory over Browns**\
+`All eyes were on Dak Prescott as he walked into Huntington Bank Field on Sunday as the highest-paid quarterback in the NFL.`\
+https://nytimes.com/athletic/5754090/2024/09/08/dak-prescott-cowboys-browns-week-1-results-analysis/
+
 **Taylor Fritz didn't have to play 'unbelievable' at the U.S. Open. Then came Jannik Sinner**\
 `Current men's tennis contenders see more opportunity than when the Big Three were dominating Grand Slams. Yet wins are still a tall order.`\
 https://nytimes.com/athletic/5754072/2024/09/08/taylor-fritz-us-open-mens-tennis-sinner-alcaraz/
@@ -9,6 +17,10 @@ https://nytimes.com/athletic/5754115/2024/09/08/mets-mlb-wild-card-race-2/
 **What we learned from Chargers-Raiders in Harbaugh's first win**\
 `The Chargers averaged 6.5 yards per carry and rushed for 176 yards as a team to pick up the win for Harbaugh.`\
 https://nytimes.com/athletic/5753305/2024/09/08/chargers-raiders-result-takeaways/
+
+**Five takeaways from the Bills' roller coaster Week 1 win against Arizona**\
+`Greg Rousseau was great but the rest of the defense has some big red flags.`\
+https://nytimes.com/athletic/5754070/2024/09/08/buffalo-bills-win-arizona-cardinals-week-1-greg-rousseau-injuries/
 
 **Patriots defy 'rebuilding' narrative, pull off huge upset vs. Bengals in Jerod Mayo's debut**\
 `Who thought the Patriots could win this season by playing strong defense and running the ball? Not many. But on Sunday, they did just that.`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5754062/2024/09/08/caleb-williams-chicago-bears-tit
 **Song odds for Kendrick Lamar's Super Bowl LIX halftime show**\
 `An early prediction for what the Pulitzer Prize-winning rapper might perform at the Caesars Superdome. `\
 https://nytimes.com/athletic/5753979/2024/09/08/kendrick-lamars-super-bowl-lix-halftime-song-odds/
-
-**Words to Live By**\
-`Tim D’Alfonso makes his New York Times debut.`\
-https://nytimes.com/2024/09/08/crosswords/daily-puzzle-2024-09-09.html
-
-**NFL Week 1 takeaways: Bad day or red flag for Bengals? Plus, shaky debuts for Cousins, Williams**\
-`Our writers also weigh in on the potential for a QB controversy in Pittsburgh, and comparing the misery of the Panthers and Giants.`\
-https://nytimes.com/athletic/5753057/2024/09/08/nfl-takeaways-week-1-bengals-kirk-cousins-caleb-williams/
-
-**Notre Dame shouldn't be ranked and Tennessee has a top-4 case: Behind the AP Top 25 ballot**\
-`There's a clear top three after Week 2 of the college football season, and clear debate in the AP Top 25 rankings elsewhere.`\
-https://nytimes.com/athletic/5753876/2024/09/08/ap-top-25-rankings-notre-dame-niu/
 
