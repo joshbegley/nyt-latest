@@ -1,3 +1,7 @@
+**USC adds top-100 LB Ty Jackson to 2025 class**\
+`Jackson, a Florida native, is the third blue-chip linebacker in the Trojans’ 2025 class.`\
+https://nytimes.com/athletic/5753619/2024/09/08/usc-football-recruiting-ty-jackson/
+
 **Packers reach out to Ryan Tannehill following Love's injury**\
 `Tannehill told The Athletic on an episode of Scoop City in July that he for him to join a team, "it would have to be the right situation.”`\
 https://nytimes.com/athletic/5753555/2024/09/08/packers-ryan-tannehill-jordan-love-backup/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/08/arts/music/kendrick-lamar-super-bowl-halftime-sho
 **Boeing Reaches Tentative Deal With Workers to Avert Strike**\
 `The proposed contract, if approved by union members on Thursday, includes a 25 percent raise over four years and a promise to build the next plane in the Seattle-Portland area.`\
 https://nytimes.com/2024/09/08/business/boeing-workers-contract.html
-
-**Greece to Restrict Cruise Visits as Islands Struggle With Tourist Crowds**\
-`In a country where vacationers are a keystone of the economy, Prime Minister Kyriakos Mitsotakis is embracing a European trend toward tighter tourism regulation.`\
-https://nytimes.com/2024/09/08/world/europe/greece-cruise-ships-tourists-islands.html
 
