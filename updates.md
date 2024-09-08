@@ -1,3 +1,7 @@
+**Panthers vs. Saints odds, picks, how to watch: Saints favored at home in the dome**\
+`Two teams with a lot of doubt to overcome. The Saints are favorites at home against the Panthers in Year 2 of the Bryce Young era.`\
+https://nytimes.com/athletic/5750655/2024/09/08/panthers-saints-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Red Sox offense breaks out of slump as team fights to stay in wild-card hunt**\
 `The Red Sox gained a bit of ground in the playoff chase, moving to four games back of the Twins for the final AL wild-card spot.`\
 https://nytimes.com/athletic/5752672/2024/09/08/red-sox-offense-wild-card/

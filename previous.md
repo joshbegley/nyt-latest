@@ -1,3 +1,7 @@
+**Panthers vs. Saints odds, picks, how to watch: Saints favored at home in the dome**\
+`Two teams with a lot of doubt to overcome. The Saints are favorites at home against the Panthers in Year 2 of the Bryce Young era.`\
+https://nytimes.com/athletic/5750655/2024/09/08/panthers-saints-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Red Sox offense breaks out of slump as team fights to stay in wild-card hunt**\
 `The Red Sox gained a bit of ground in the playoff chase, moving to four games back of the Twins for the final AL wild-card spot.`\
 https://nytimes.com/athletic/5752672/2024/09/08/red-sox-offense-wild-card/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5749876/2024/09/08/uefa-ticket-price-cap-player-res
 **Welcome to… Walton & Hersham: Bought by teenagers, rapid success and now a U.S. academy**\
 `A rapid rise through the divisions, U.S. investment and left-field owners? No, this is not Wrexham, this is Walton & Hersham`\
 https://nytimes.com/athletic/5403798/2024/09/08/walton-and-hersham-teenage-owners/
-
-**Opposition Candidate Has Fled Venezuela, Vice President Says**\
-`Vice President Delcy Rodríguez said on social media that Edmundo González had left for Spain, whose foreign minister said Mr. González was traveling on a Spanish Air Force plane.`\
-https://nytimes.com/2024/09/08/world/americas/venezuela-opposition-argentina-embassy.html
 
