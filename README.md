@@ -1,3 +1,7 @@
+**Live Q&A: Week 1 fantasy football start/sit chat with Jay Felicio, Sunday 9/8 at 11 a.m. ET**\
+`Submit your Week 1 fantasy football start/sit questions for Jay Felicio to answer in a chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5752578/2024/09/08/live-qa-week-1-fantasy-football-start-sit-chat-with-jay-felicio-sunday-9-8-at-11-a-m-et/
+
 **After 17 Years in Prison, I’m a Different Person. Do Cases Like Mine Deserve a Second Look?**\
 `A new law would bring hope to people like me.`\
 https://nytimes.com/2024/09/08/opinion/second-act-prison-criminal-justice-reform.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/08/briefing/improving-sleep-hacks.html
 **Our College Football Playoff model projections: Notre Dame out; USC and Tennessee move in**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/09/08/college-football-playoff-projections-odds/
-
-**Canada's dominance of USMNT shows Copa was no fluke as they ascend to be CONCACAF's top side**\
-`Jesse Marsch has heightened demands on his players and they are responding — wins over the U.S. should no longer be considered surprising`\
-https://nytimes.com/athletic/5752545/2024/09/08/canada-usmnt-concacaf-kansas/
 
