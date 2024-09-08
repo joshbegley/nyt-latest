@@ -1,3 +1,7 @@
+**Sky's Angel Reese out for remainder of season with injury**\
+`Reese was listed as questionable with a wrist injury on Saturday's injury report. She last played in a game Friday.`\
+https://nytimes.com/athletic/5752548/2024/09/07/chicago-sky-angel-reese-injury/
+
 **Trump Threatens Lawyers, Donors and Others With Prosecution After Election**\
 `In a social media post on Saturday, former President Donald J. Trump wrote that “when I win, those people that cheated will be prosecuted to the fullest extent of the law.”`\
 https://nytimes.com/2024/09/07/us/politics/trump-election-fraud-prosecute.html
