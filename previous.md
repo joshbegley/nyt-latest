@@ -1,3 +1,7 @@
+**U.S. Open quarterfinalist Kathy May told Taylor Fritz to change his game. Her son listened**\
+`The 26-year-old benefits from having a mother who is an ex-professional. She's not sure it benefits her when watching him.`\
+https://nytimes.com/athletic/5752756/2024/09/08/kathy-may-interview-taylor-fritz-us-open-final/
+
 **Fast-Spreading Wildfire in Southern California Forces Evacuations**\
 `The Line Fire more than quadrupled in size on Saturday and led to evacuation orders for more than 5,000 people. A heat wave raises the risk that more fires could start.`\
 https://nytimes.com/2024/09/08/us/line-fire-san-bernardino-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/08/insider/china-dating.html
 **‘I Leaned Out the Window and Asked if I Could Have a Cigarette’**\
 `A chance encounter in Greenwich Village, playing Sudoku on the 1 train and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://nytimes.com/2024/09/08/nyregion/metropolitan-diary.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/09/08/crosswords/spelling-bee-forum.html
 
