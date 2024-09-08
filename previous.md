@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5752818/2024/09/08/arsenal-champions-league-relic/
 https://nytimes.com/athletic/5752782/2024/09/08/giants-grant-mccray-two-homers/
 
 **Nagelsmann's smart use of Gross and Havertz shows Germany there is life after Kroos**\
-`Kroos was one of the finest passers in the modern game and ignited Nagelsmann's reign but he seems to be coping without his star midfielder`\
+`Kroos was one of the game’s finest passers and ignited Nagelsmann's reign. But the manager seems to be coping without his star midfielder`\
 https://nytimes.com/athletic/5752276/2024/09/08/gross-germany-kroos-replacement/
 
 **New Jersey Is Prompting a New Sports Identity Crisis in Philadelphia**\
