@@ -1,3 +1,7 @@
+**Arsenal's Champions League qualifying campaign a 'relic of the past’ - Eidevall**\
+`"It’s lucky an English team will not have to play in these mini-tournaments again," said Eidevall after Arsenal progressed`\
+https://nytimes.com/athletic/5752818/2024/09/08/arsenal-champions-league-relic/
+
 **Grant McCray's two-homer breakout gives Giants plenty to consider**\
 `McCray brought in all the Giants' runs in a 6-3 victory over the San Diego Padres in support of Logan Webb's winning effort.`\
 https://nytimes.com/athletic/5752782/2024/09/08/giants-grant-mccray-two-homers/
