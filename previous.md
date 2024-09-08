@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5753061/2024/09/08/declan-rice-england-ireland-arse
 https://nytimes.com/athletic/5752578/2024/09/08/live-qa-week-1-fantasy-football-start-sit-chat-with-jay-felicio-sunday-9-8-at-11-a-m-et/
 
 **How Marin Cilic and Kei Nishikori stunned tennis at the 2014 U.S. Open**\
-`At the 2014 U.S. Open, Roger Federer and Novak Djokovic were the picks for the final. Two players had other ideas.`\
+`At the 2014 U.S. Open, Roger Federer and Novak Djokovic were the picks for the final. Two players had other ideas`\
 https://nytimes.com/athletic/5752016/2024/09/08/us-open-cilic-nishikori-2014/
 
 **After 17 Years in Prison, I’m a Different Person. Do Cases Like Mine Deserve a Second Look?**\

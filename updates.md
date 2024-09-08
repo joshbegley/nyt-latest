@@ -1,3 +1,7 @@
+**How Marin Cilic and Kei Nishikori stunned tennis at the 2014 U.S. Open**\
+`At the 2014 U.S. Open, Roger Federer and Novak Djokovic were the picks for the final. Two players had other ideas`\
+https://nytimes.com/athletic/5752016/2024/09/08/us-open-cilic-nishikori-2014/
+
 **Election Live Updates: Harris and Trump Brace for Debate as Poll Shows a Tight Race**\
 `Vice President Kamala Harris and former President Donald J. Trump left the campaigning to surrogates on Sunday as they readied for Tuesday’s debate. A New York Times/Siena College national poll found the race very close.`\
 https://nytimes.com/live/2024/09/08/us/harris-trump-election
