@@ -1,6 +1,6 @@
 **María Benítez, Dancer Who Championed Flamenco, Is Dead at 82**\
 `“People came from everywhere to see her shows,” an admirer said — including, on at least one occasion, the ballet superstar Mikhail Baryshnikov.`\
-https://nytimes.com/2024/09/08/arts/dance/00maria-benitez-dead.html
+https://nytimes.com/2024/09/08/arts/dance/maria-benitez-dead.html
 
 **Game, Set, Match: Jannik Sinner beats Taylor Fritz to win U.S. Open**\
 `The world No. 1 dashed Fritz's dreams of becoming the first male American U.S. Open winner since 2003.`\
