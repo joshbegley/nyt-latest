@@ -1,3 +1,11 @@
+**Struggling to Stem Extremism, Tajikistan Hunts Beards and Head Scarves**\
+`After Tajiks were charged with a deadly attack in Moscow, the country has cracked down on signs of Islam. But experts say it’s not addressing the causes of terrorism.`\
+https://nytimes.com/2024/09/08/world/europe/tajikistan-extremism-beards-head-scarves.html
+
+**Cowboys vs. Browns odds, picks, how to watch: Two teams with a lot to prove**\
+`The Cowboys and Browns are both in a struggle for faith early this season. Cleveland is slightly favored in their home opener. `\
+https://nytimes.com/athletic/5750859/2024/09/08/cowboys-browns-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Broncos vs. Seahawks odds, picks, how to watch: Bo Nix debuts on the road**\
 `Bo Nix makes his NFL debut with the Broncos on the road, but it's the Seahawks who are favored at home with a new head coach.`\
 https://nytimes.com/athletic/5750771/2024/09/08/broncos-seahawks-odds-expert-picks-how-to-watch-predictions-betting/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/08/us/politics/harris-trump-debate-abortion.html
 **Luke Fickell knows weight of Alabama matchup. But Badgers uninspiring start adds to challenge**\
 `“We know darn well what's walking in here,” Luke Fickell said of Alabama's looming visit to Camp Randall.`\
 https://nytimes.com/athletic/5752698/2024/09/08/wisconsin-alabama-college-football-luke-fickell/
-
-**The Prince We Never Knew**\
-`A revealing new documentary could redefine our understanding of the pop icon. But you will probably never get to see it.`\
-https://nytimes.com/2024/09/08/magazine/prince-netflix-ezra-edelman-documentary.html
-
-**Was Iraq an ‘Artificial Nation’ Created by the West? This History Says No.**\
-`A new book by the journalist Bartle Bull recounts 5,000 years of the country’s past, showing how long before colonial powers defined its borders, it was a place with a common history.`\
-https://nytimes.com/2024/09/08/books/review/land-between-the-rivers-bartle-bull.html
 

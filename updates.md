@@ -1,3 +1,11 @@
+**Struggling to Stem Extremism, Tajikistan Hunts Beards and Head Scarves**\
+`After Tajiks were charged with a deadly attack in Moscow, the country has cracked down on signs of Islam. But experts say it’s not addressing the causes of terrorism.`\
+https://nytimes.com/2024/09/08/world/europe/tajikistan-extremism-beards-head-scarves.html
+
+**Cowboys vs. Browns odds, picks, how to watch: Two teams with a lot to prove**\
+`The Cowboys and Browns are both in a struggle for faith early this season. Cleveland is slightly favored in their home opener. `\
+https://nytimes.com/athletic/5750859/2024/09/08/cowboys-browns-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Broncos vs. Seahawks odds, picks, how to watch: Bo Nix debuts on the road**\
 `Bo Nix makes his NFL debut with the Broncos on the road, but it's the Seahawks who are favored at home with a new head coach.`\
 https://nytimes.com/athletic/5750771/2024/09/08/broncos-seahawks-odds-expert-picks-how-to-watch-predictions-betting/
