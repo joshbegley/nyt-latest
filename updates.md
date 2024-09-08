@@ -1,3 +1,7 @@
+**Canada's dominance of USMNT shows Copa was no fluke as they ascend to be CONCACAF's top side**\
+`Jesse Marsch has heightened demands on his players and they are responding - wins over the U.S. should no longer be considered surprising.`\
+https://nytimes.com/athletic/5752545/2024/09/08/canada-usmnt-concacaf-kansas/
+
 **Six-time Paralympic champion Weir announces Great Britain retirement**\
 `David Weir, a six-time Paralympic champion, has announced his retirement from Great Britain competition.`\
 https://nytimes.com/athletic/5752884/2024/09/08/david-weir-retirement-paralympics/

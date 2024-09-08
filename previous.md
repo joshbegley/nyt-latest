@@ -1,3 +1,7 @@
+**Canada's dominance of USMNT shows Copa was no fluke as they ascend to be CONCACAF's top side**\
+`Jesse Marsch has heightened demands on his players and they are responding - wins over the U.S. should no longer be considered surprising.`\
+https://nytimes.com/athletic/5752545/2024/09/08/canada-usmnt-concacaf-kansas/
+
 **Six-time Paralympic champion Weir announces Great Britain retirement**\
 `David Weir, a six-time Paralympic champion, has announced his retirement from Great Britain competition.`\
 https://nytimes.com/athletic/5752884/2024/09/08/david-weir-retirement-paralympics/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5752786/2024/09/08/college-football-week-2-notre-da
 **My Teenage Son Thinks the World Is Falling Apart. I’ve Changed How I Talk to Him About It.**\
 `My instinct to minimize what is happening in much of the world was robbing my sons of a sense of urgency that demands their attention.`\
 https://nytimes.com/2024/09/08/opinion/kids-world-parents-doom.html
-
-**The Connections Companion No. 456**\
-`Scroll down for hints and conversation about the puzzle for Monday, Sept. 9, 2024.`\
-https://nytimes.com/2024/09/08/crosswords/connections-companion-456.html
 
