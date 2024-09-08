@@ -1,8 +1,12 @@
+**Kendrick Lamar Will Headline 2025 Super Bowl Halftime Show**\
+`The rapper, who’s had a big year thanks to a beef with Drake that led to the smash song “Not Like Us,” will perform in New Orleans in February.`\
+https://nytimes.com/2024/09/08/arts/music/kendrick-lamar-super-bowl-halftime-show.html
+
 **Boeing Reaches Tentative Deal With Workers to Avert Strike**\
 `The proposed contract, if approved by union members on Thursday, includes a 25 percent raise over four years and a promise to build the next plane in the Seattle-Portland area.`\
 https://nytimes.com/2024/09/08/business/boeing-workers-contract.html
 
-**Greece to Restrict Cruise Visits and Vacation Homes on Busy Islands**\
+**Greece to Restrict Cruise Visits as Islands Struggle With Tourist Crowds**\
 `In a country where vacationers are a keystone of the economy, Prime Minister Kyriakos Mitsotakis is embracing a European trend toward tighter tourism regulation.`\
 https://nytimes.com/2024/09/08/world/europe/greece-cruise-ships-tourists-islands.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/08/opinion/trump-sentencing.html
 **This Yucatán Marinade Is Perfect for Steak Tacos**\
 `The chef Alex Henry bucks tradition with a citrusy, garlicky, earthy mixture for sliced rib-eye.`\
 https://nytimes.com/2024/09/08/dining/this-yucatan-marinade-is-perfect-for-steak-tacos.html
-
-**Rice admits he 'needed a big performance' after 'rusty' start with Arsenal**\
-`Declan Rice reflected on his starring role for England by saying he &#8220;needed a big performance&#8221; after a &#8220;rusty&#8221; start to the season with his club Arsenal.`\
-https://nytimes.com/athletic/5753061/2024/09/08/declan-rice-england-ireland-arsenal/
 

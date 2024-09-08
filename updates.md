@@ -1,3 +1,11 @@
+**Kendrick Lamar Will Headline 2025 Super Bowl Halftime Show**\
+`The rapper, who’s had a big year thanks to a beef with Drake that led to the smash song “Not Like Us,” will perform in New Orleans in February.`\
+https://nytimes.com/2024/09/08/arts/music/kendrick-lamar-super-bowl-halftime-show.html
+
+**Greece to Restrict Cruise Visits as Islands Struggle With Tourist Crowds**\
+`In a country where vacationers are a keystone of the economy, Prime Minister Kyriakos Mitsotakis is embracing a European trend toward tighter tourism regulation.`\
+https://nytimes.com/2024/09/08/world/europe/greece-cruise-ships-tourists-islands.html
+
 **Boeing Reaches Tentative Deal With Workers to Avert Strike**\
 `The proposed contract, if approved by union members on Thursday, includes a 25 percent raise over four years and a promise to build the next plane in the Seattle-Portland area.`\
 https://nytimes.com/2024/09/08/business/boeing-workers-contract.html
