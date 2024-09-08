@@ -1,5 +1,5 @@
 **Nagelsmann's smart use of Gross and Havertz shows Germany there is life after Kroos**\
-`Kroos was one of the finest passers in the modern game and ignited Nagelsmann's reign but appears to be coping without his star midfielder`\
+`Kroos was one of the finest passers in the modern game and ignited Nagelsmann's reign but he seems to be coping without his star midfielder`\
 https://nytimes.com/athletic/5752276/2024/09/08/gross-germany-kroos-replacement/
 
 **New Jersey Is Prompting a New Sports Identity Crisis in Philadelphia**\
