@@ -1,3 +1,7 @@
+**Words to Live By**\
+`Tim D’Alfonso makes his New York Times debut.`\
+https://nytimes.com/2024/09/08/crosswords/daily-puzzle-2024-09-09.html
+
 **NFL Week 1 takeaways: Bad day or red flag for Bengals? Plus, shaky debuts for Cousins, Williams**\
 `Our writers also weigh in on the potential for a QB controversy in Pittsburgh, and comparing the misery of the Panthers and Giants.`\
 https://nytimes.com/athletic/5753057/2024/09/08/nfl-takeaways-week-1-bengals-kirk-cousins-caleb-williams/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5753183/2024/09/08/steelers-falcons-result-takeaway
 **DeeJay Dallas scores first kickoff return TD of season**\
 `Cardinals returner DeeJay Dallas had thrilling 96-yard kickoff return for a touchdown under the NFL's new kickoff rules.`\
 https://nytimes.com/athletic/5753814/2024/09/08/deejay-dallas-kickoff-return-touchdown/
-
-**Key takeaways from Vikings' rout of Giants**\
-`Darnold provided exactly what the Vikings hoped he would in his debut.`\
-https://nytimes.com/athletic/5753279/2024/09/08/vikings-giants-result-takeaways/
 

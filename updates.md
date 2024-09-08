@@ -1,3 +1,7 @@
+**Words to Live By**\
+`Tim D’Alfonso makes his New York Times debut.`\
+https://nytimes.com/2024/09/08/crosswords/daily-puzzle-2024-09-09.html
+
 **NFL Week 1 takeaways: Bad day or red flag for Bengals? Plus, shaky debuts for Cousins, Williams**\
 `Our writers also weigh in on the potential for a QB controversy in Pittsburgh, and comparing the misery of the Panthers and Giants.`\
 https://nytimes.com/athletic/5753057/2024/09/08/nfl-takeaways-week-1-bengals-kirk-cousins-caleb-williams/
