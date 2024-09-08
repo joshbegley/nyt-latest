@@ -1,40 +1,40 @@
-**U.S. Open quarterfinalist Kathy May told Taylor Fritz to change his game. Her son listened**\
-`The 26-year-old benefits from having a mother who is an ex-professional. She's not sure it benefits her when watching him.`\
-https://nytimes.com/athletic/5752756/2024/09/08/kathy-may-interview-taylor-fritz-us-open-final/
+**Review: ‘My Brilliant Friend’ Comes to a Brilliant Conclusion**\
+`HBO’s Elena Ferrante adaptation completes one of the best portraits of a lifelong relationship ever made for TV.`\
+https://nytimes.com/2024/09/08/arts/television/-my-brilliant-friend-season-four-review.html
 
-**Fast-Spreading Wildfire in Southern California Forces Evacuations**\
-`The Line Fire more than quadrupled in size on Saturday and led to evacuation orders for more than 5,000 people. A heat wave raises the risk that more fires could start.`\
-https://nytimes.com/2024/09/08/us/line-fire-san-bernardino-california.html
+**How Harris May Take the Fight to Trump on Abortion at the Debate**\
+`The candidates are all but certain to clash over the issue, which Kamala Harris sees as a major strength. Donald Trump may try to avoid political blowback for his approach.`\
+https://nytimes.com/2024/09/08/us/politics/harris-trump-debate-abortion.html
 
-**Arsenal's Champions League qualifying campaign a 'relic of the past’ - Eidevall**\
-`‘It’s lucky an English team will not have to play in these mini-tournaments again,’ said Eidevall after Arsenal progressed to the next round`\
-https://nytimes.com/athletic/5752818/2024/09/08/arsenal-champions-league-relic/
+**Luke Fickell knows weight of Alabama matchup. But Badgers uninspiring start adds to challenge**\
+`“We know darn well what's walking in here,” Luke Fickell said of Alabama's looming visit to Camp Randall.`\
+https://nytimes.com/athletic/5752698/2024/09/08/wisconsin-alabama-college-football-luke-fickell/
 
-**Grant McCray's two-homer breakout gives Giants plenty to consider**\
-`McCray brought in all the Giants' runs in a 6-3 victory over the San Diego Padres in support of Logan Webb's winning effort.`\
-https://nytimes.com/athletic/5752782/2024/09/08/giants-grant-mccray-two-homers/
+**The Prince We Never Knew**\
+`A revealing new documentary could redefine our understanding of the pop icon. But you will probably never get to see it.`\
+https://nytimes.com/2024/09/08/magazine/prince-netflix-ezra-edelman-documentary.html
 
-**Nagelsmann's smart use of Gross and Havertz shows Germany there is life after Kroos**\
-`Kroos was one of the game’s finest passers and ignited Nagelsmann's reign. But the manager seems to be coping without his star midfielder`\
-https://nytimes.com/athletic/5752276/2024/09/08/gross-germany-kroos-replacement/
+**Was Iraq an ‘Artificial Nation’ Created by the West? This History Says No.**\
+`A new book by the journalist Bartle Bull recounts 5,000 years of the country’s past, showing how long before colonial powers defined its borders, it was a place with a common history.`\
+https://nytimes.com/2024/09/08/books/review/land-between-the-rivers-bartle-bull.html
 
-**New Jersey Is Prompting a New Sports Identity Crisis in Philadelphia**\
-`The state is already home to four teams whose uniforms say “New York.” Now it’s trying to lure the N.B.A.’s 76ers.`\
-https://nytimes.com/2024/09/08/sports/new-jersey-philadelphia-76ers.html
+**The Deep Divisions at the Heart of North Carolina’s Pivotal Governor’s Race**\
+`Lt. Gov. Mark Robinson, a Republican, could cement North Carolina as a conservative state if he wins. Democrats hope his incendiary style moves swing voters to their candidate, Josh Stein.`\
+https://nytimes.com/2024/09/08/us/nc-governor-race-robinson-sniff.html
 
-**After a Year of Legal Peril, Trump Seeks Election as a Felon, but Free**\
-`Donald J. Trump’s sentencing in Manhattan was delayed, thanks in part to his legal resources and political status. It raised a question: Is he above the law?`\
-https://nytimes.com/2024/09/08/nyregion/trump-election-felon-sentence-delay.html
+**Isaiah Collier Funnels a ‘Very Radical Time’ Into a Vivid New Album**\
+`The saxophonist and composer made “The World Is on Fire” with recent racial violence — and protests decrying it, and demanding change — in the foreground.`\
+https://nytimes.com/2024/09/08/arts/music/isaiah-collier-the-world-is-on-fire.html
 
-**The Palace Coup at the Magic Kingdom**\
-`The inside story of how Bob Iger undermined and outmaneuvered Bob Chapek, his chosen successor, and returned to power at Disney.`\
-https://nytimes.com/2024/09/08/business/media/disney-bob-iger-chapek.html
+**How Marin Cilic and Kei Nishikori stunned tennis at the 2014 U.S. Open**\
+`At the 2014 U.S. Open, Roger Federer and Novak Djokovic were the picks for the final. Two players had other ideas.`\
+https://nytimes.com/athletic/5752016/2024/09/08/us-open-cilic-nishikori-2014/
 
-**In Shanghai, Searching for Those in Search of Connection**\
-`Every week, lonely retirees in the city gather in a public park — and an Ikea canteen — with one goal in mind: finding true love. Alexandra Stevenson shared their stories.`\
-https://nytimes.com/2024/09/08/insider/china-dating.html
+**The Quest for Perfect Sleep Goes Viral**\
+`Online and off, so-called sleepmaxxers are going to extreme lengths in pursuit of better sleep. Is that a problem?`\
+https://nytimes.com/2024/09/08/well/the-quest-for-perfect-sleep-goes-viral.html
 
-**‘I Leaned Out the Window and Asked if I Could Have a Cigarette’**\
-`A chance encounter in Greenwich Village, playing Sudoku on the 1 train and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2024/09/08/nyregion/metropolitan-diary.html
+**The Nicest Hostage Takers You’ll Ever Meet**\
+`In “The Siege,” Ben Macintyre gives a lesser-known Iranian hostage crisis its due.`\
+https://nytimes.com/2024/09/08/books/review/the-siege-ben-macintyre.html
 
