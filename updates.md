@@ -1,3 +1,11 @@
+**Rookie QB roundup: How Williams, Nix, Daniels fared in debuts**\
+`Only Caleb Williams' Chicago Bears left Week 1 with a win, and none of them threw for a touchdown in their debuts.`\
+https://nytimes.com/athletic/5753855/2024/09/08/nfl-rookie-qbs-williams-nix-daniels-debuts/
+
+**Meet Me at the Fair**\
+`A million people go to the Iowa State Fair, all with their own goals and dreams.`\
+https://nytimes.com/2024/09/08/podcasts/fairs-fair-this-american-life-nyt-audio.html
+
 **Venezuela’s Presidential Contender Flees, and Hopes for Democracy Dim**\
 `The opposition candidate’s decision to seek asylum in Spain and the autocratic leader’s antagonism toward regional powers lessen the chances of a political transition.`\
 https://nytimes.com/2024/09/08/world/americas/edmundo-gonzalez-venezuela-opposition-candidate.html
