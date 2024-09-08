@@ -1,3 +1,7 @@
+**Fugitive Televangelist Wanted by F.B.I. Is Caught in the Philippines**\
+`Weeks of tense standoff in the Philippines have ended in the capture of a pastor accused of leading an international ring of sex abuse and trafficking of young women and girls.`\
+https://nytimes.com/2024/09/08/world/asia/philippines-pastor-kingdom-trafficking.html
+
 **Liz Cheney Accuses G.O.P. Trump Backers of Betraying Their Principles**\
 `The former Republican representative criticized Nikki Haley for now supporting former President Donald J. Trump and compared JD Vance unfavorably with Mike Pence.`\
 https://nytimes.com/2024/09/08/us/politics/liz-cheney-trump-harris-republicans.html
