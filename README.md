@@ -1,3 +1,7 @@
+**Trump Threatens Lawyers, Donors and Others With Prosecution After Election**\
+`In a social media post on Saturday, former President Donald J. Trump wrote that “when I win, those people that cheated will be prosecuted to the fullest extent of the law.”`\
+https://nytimes.com/2024/09/07/us/politics/trump-election-fraud-prosecute.html
+
 **Dan Morgenstern, Chronicler and Friend of Jazz, Dies at 94**\
 `He wrote prolifically about the music and played an important role in documenting its history, especially in his many years with the Institute of Jazz Studies.`\
 https://nytimes.com/2024/09/07/arts/music/dan-morgenstern-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5752373/2024/09/07/iowa-iowa-state-cy-hawk-comeback
 **Game, Set, Match: Aryna Sabalenka beats Jessica Pegula to win U.S. Open**\
 `The Belarusian recovered from last year's final defeat to Coco Gauff to win in straight sets`\
 https://nytimes.com/athletic/5752164/2024/09/07/sabalenka-pegula-us-open-final-result-analysis/
-
-**Five People Shot on Kentucky Highway, Officials Say**\
-`The victims were in stable condition, the authorities said. What led up to the shooting on I-75 near London, Ky., was not immediately clear.`\
-https://nytimes.com/2024/09/07/us/shooting-kentucky-highway.html
 
