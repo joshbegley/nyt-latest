@@ -1,3 +1,7 @@
+**3 Israelis Are Fatally Shot at West Bank-Jordan Border Crossing**\
+`The Allenby crossing, near the West Bank city of Jericho, has been the scene of violence in the past.`\
+https://nytimes.com/2024/09/08/world/middleeast/israel-gaza-hamas-war-west-bank.html
+
 **Struggling to Stem Extremism, Tajikistan Hunts Beards and Head Scarves**\
 `After Tajiks were charged with a deadly attack in Moscow, the country has cracked down on signs of Islam. But experts say it’s not addressing the causes of terrorism.`\
 https://nytimes.com/2024/09/08/world/europe/tajikistan-extremism-beards-head-scarves.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/08/arts/television/-my-brilliant-friend-season-four-
 **How Harris May Take the Fight to Trump on Abortion at the Debate**\
 `The candidates are all but certain to clash over the issue, which Kamala Harris sees as a major strength. Donald Trump may try to avoid political blowback for his approach.`\
 https://nytimes.com/2024/09/08/us/politics/harris-trump-debate-abortion.html
-
-**Luke Fickell knows weight of Alabama matchup. But Badgers uninspiring start adds to challenge**\
-`“We know darn well what's walking in here,” Luke Fickell said of Alabama's looming visit to Camp Randall.`\
-https://nytimes.com/athletic/5752698/2024/09/08/wisconsin-alabama-college-football-luke-fickell/
 
