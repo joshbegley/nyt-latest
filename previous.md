@@ -1,3 +1,11 @@
+**Mets' winning streak comes to an end: 3 takeaways from the hot stretch**\
+`Luis Severino continued a strong run for the Mets rotation, which has 2.05 ERA over the past 10 games.`\
+https://nytimes.com/athletic/5754115/2024/09/08/mets-mlb-wild-card-race-2/
+
+**What we learned from Chargers-Raiders in Harbaugh's first win**\
+`The Chargers averaged 6.5 yards per carry and rushed for 176 yards as a team to pick up the win for Harbaugh.`\
+https://nytimes.com/athletic/5753305/2024/09/08/chargers-raiders-result-takeaways/
+
 **Patriots defy 'rebuilding' narrative, pull off huge upset vs. Bengals in Jerod Mayo's debut**\
 `Who thought the Patriots could win this season by playing strong defense and running the ball? Not many. But on Sunday, they did just that.`\
 https://nytimes.com/athletic/5754091/2024/09/08/patriots-bengals-week-1-jerod-mayo/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5753876/2024/09/08/ap-top-25-rankings-notre-dame-ni
 **G.O.P. Report to Denounce Biden Administration Over Afghanistan Withdrawal**\
 `In an election-season document, Republicans are set to offer few new revelations but instead heap blame on the “Biden-Harris administration” while absolving former President Donald J. Trump.`\
 https://nytimes.com/2024/09/08/us/politics/republicans-biden-harris-afghanistan-withdrawal.html
-
-**Monday Briefing: Judge Postponed Trump’s Sentencing**\
-`Plus, rural women in China fighting for land rights.`\
-https://nytimes.com/2024/09/08/briefing/trump-sentencing-venezuela-west-bank.html
-
-**Bears defense, special teams shines in comeback**\
-`The Chicago Bears scored 21 unanswered points to pick up a 24-17 win over the Tennessee Titans in the Week 1 matchup at Soldier Field.`\
-https://nytimes.com/athletic/5753208/2024/09/08/bears-titans-result-takeaways/
 

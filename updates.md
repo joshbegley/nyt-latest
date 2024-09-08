@@ -1,3 +1,11 @@
+**Mets' winning streak comes to an end: 3 takeaways from the hot stretch**\
+`Luis Severino continued a strong run for the Mets rotation, which has 2.05 ERA over the past 10 games.`\
+https://nytimes.com/athletic/5754115/2024/09/08/mets-mlb-wild-card-race-2/
+
+**What we learned from Chargers-Raiders in Harbaugh's first win**\
+`The Chargers averaged 6.5 yards per carry and rushed for 176 yards as a team to pick up the win for Harbaugh.`\
+https://nytimes.com/athletic/5753305/2024/09/08/chargers-raiders-result-takeaways/
+
 **Patriots defy 'rebuilding' narrative, pull off huge upset vs. Bengals in Jerod Mayo's debut**\
 `Who thought the Patriots could win this season by playing strong defense and running the ball? Not many. But on Sunday, they did just that.`\
 https://nytimes.com/athletic/5754091/2024/09/08/patriots-bengals-week-1-jerod-mayo/
