@@ -1,3 +1,7 @@
+**Mother of Georgia Suspect Called School Minutes Before Shooting, Family Says**\
+`The mother told relatives she reached out to the school on Wednesday morning, warning of an emergency, the suspect’s aunt said Saturday.`\
+https://nytimes.com/2024/09/07/us/mother-georgia-suspect-called-school.html
+
 **NIU upsets Notre Dame despite controversial fourth-down call**\
 `NIU upset Notre Dame 16-14 to earn its highest-ranked opponent beaten in program history.`\
 https://nytimes.com/athletic/5752384/2024/09/07/northern-illinois-notre-dame-college-football-controversial-call/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5701128/2024/09/07/college-football-playoff-project
 **Even in win, Wisconsin raises questions about readiness for Alabama visit**\
 `It's hard to feel particularly confident Wisconsin is capable of pulling off a win vs. Alabama given what it has shown through two games.`\
 https://nytimes.com/athletic/5752326/2024/09/07/wisconsin-football-south-dakota-alabama/
-
-**Salmonella Outbreak Prompts Egg Recall by Wisconsin Farm**\
-`Officials said 65 people in nine states have been infected in the outbreak, which has been traced to an egg farm. No deaths have been reported.`\
-https://nytimes.com/2024/09/07/us/egg-recall-salmonella-outbreak-wisconsin.html
 
