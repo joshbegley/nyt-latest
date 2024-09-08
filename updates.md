@@ -1,3 +1,7 @@
+**After Dak Prescott extension, pressure really amps up for Cowboys postseason success**\
+`The Cowboys have a lot of money invested in Dak Prescott and CeeDee Lamb. It's time to turn things around in the postseason.`\
+https://nytimes.com/athletic/5753665/2024/09/08/dak-prescott-cowboys-jerry-jones-contract/
+
 **Dak Prescott has his extension — pressure really amps up for Cowboys' postseason success**\
 `The Cowboys have a lot of money invested in Dak Prescott and CeeDee Lamb. It's time to turn things around in the postseason.`\
 https://nytimes.com/athletic/5753665/2024/09/08/dak-prescott-cowboys-jerry-jones-contract/
