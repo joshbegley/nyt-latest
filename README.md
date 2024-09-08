@@ -1,3 +1,19 @@
+**Red Sox offense breaks out of slump as team fights to stay in wild-card hunt**\
+`The Red Sox gained a bit of ground in the playoff chase, moving to four games back of the Twins for the final AL wild-card spot.`\
+https://nytimes.com/athletic/5752672/2024/09/08/red-sox-offense-wild-card/
+
+**Evaluating Angel Reese's historic WNBA rookie season**\
+`Though the injury takes Reese out of Rookie of the Year contention, she still set several rookie and WNBA records during her first season.`\
+https://nytimes.com/athletic/5752621/2024/09/08/angel-reese-wnba-records-rookie-season/
+
+**Jaguars vs. Dolphins odds, picks, how to watch: Two teams looking for redemption**\
+`Miami is favored in a matchup of two Florida teams coming off a disappointing 2023 campaign. Which will start the season on the right foot?`\
+https://nytimes.com/athletic/5750604/2024/09/08/jaguars-dolphins-odds-expert-picks-how-to-watch-predictions-betting/
+
+**Minnesota Vikings vs. New York Giants odds, expert picks, how to watch Week 1's tightest matchup**\
+`Vikings vs. Giants is Week 1's tightest matchup in terms of odds with a lot of unknowns on whether each team can deliver.`\
+https://nytimes.com/athletic/5750675/2024/09/08/vikings-giants-odds-expert-picks-how-to-watch-predictions-betting/
+
 **Ohio State's explosive offense on display as running backs, receivers impress**\
 `Along with a strong bounce-back effort from the offensive line, Quinshon Judkins, TreVeyon Henderson and Jeremiah Smith had standout games.`\
 https://nytimes.com/athletic/5752629/2024/09/08/ohio-state-western-michigan-takeaways/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5403798/2024/09/08/walton-and-hersham-teenage-owner
 **Opposition Candidate Has Fled Venezuela, Vice President Says**\
 `Vice President Delcy Rodríguez said on social media that Edmundo González had left for Spain, whose foreign minister said Mr. González was traveling on a Spanish Air Force plane.`\
 https://nytimes.com/2024/09/08/world/americas/venezuela-opposition-argentina-embassy.html
-
-**The Athletic 500: Which Premier League signings were the best and worst rated overall?**\
-`From the highest-rated to the lowest-rated, and potential superstars to financially sensible buys, we look back through all 69 ratings`\
-https://nytimes.com/athletic/5743779/2024/09/08/transfers-the-athletic-500-best-and-worst-overall/
-
-**They Had Thriving Lives on X, Until Brazil Banned It Overnight**\
-`The ban on Elon Musk’s X has dealt a blow to Brazilians whose livelihoods depended on internet followings they had amassed for years, and which disappeared overnight.`\
-https://nytimes.com/2024/09/08/world/brazil-x-ban-business-community.html
-
-**Quotation of the Day: Best Measure of Health? Body Roundness Index Finds Support Over B.M.I.**\
-`Quotation of the Day for Sunday, September 8, 2024.`\
-https://nytimes.com/2024/09/08/pageoneplus/quotation-of-the-day-best-measure-of-health-body-roundness-index-finds-support-over-bmi.html
-
-**In Rural China, ‘Sisterhoods’ Demand Justice, and Cash**\
-`Growing numbers of Chinese women are challenging a longstanding tradition that denies them village membership, and the lucrative payouts that go with it.`\
-https://nytimes.com/2024/09/08/world/asia/china-women-land-rights.html
 
