@@ -1,3 +1,7 @@
+**Liz Cheney Accuses G.O.P. Trump Backers of Betraying Their Principles**\
+`The former Republican representative criticized Nikki Haley for now supporting former President Donald J. Trump and compared JD Vance unfavorably with Mike Pence.`\
+https://nytimes.com/2024/09/08/us/politics/liz-cheney-trump-harris-republicans.html
+
 **USC adds top-100 LB Ty Jackson to 2025 class**\
 `Jackson, a Florida native, is the third blue-chip linebacker in the Trojans’ 2025 class.`\
 https://nytimes.com/athletic/5753619/2024/09/08/usc-football-recruiting-ty-jackson/

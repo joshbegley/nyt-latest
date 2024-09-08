@@ -1,3 +1,7 @@
+**Liz Cheney Accuses G.O.P. Trump Backers of Betraying Their Principles**\
+`The former Republican representative criticized Nikki Haley for now supporting former President Donald J. Trump and compared JD Vance unfavorably with Mike Pence.`\
+https://nytimes.com/2024/09/08/us/politics/liz-cheney-trump-harris-republicans.html
+
 **USC adds top-100 LB Ty Jackson to 2025 class**\
 `Jackson, a Florida native, is the third blue-chip linebacker in the Trojans’ 2025 class.`\
 https://nytimes.com/athletic/5753619/2024/09/08/usc-football-recruiting-ty-jackson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5753228/2024/09/08/patriots-bengals-nfl-week-1-reca
 **Kendrick Lamar to Headline 2025 Super Bowl Halftime Show**\
 `The rapper, who’s had a big year thanks to a beef with Drake that led to the smash song “Not Like Us,” will perform in New Orleans in February.`\
 https://nytimes.com/2024/09/08/arts/music/kendrick-lamar-super-bowl-halftime-show.html
-
-**Boeing Reaches Tentative Deal With Workers to Avert Strike**\
-`The proposed contract, if approved by union members on Thursday, includes a 25 percent raise over four years and a promise to build the next plane in the Seattle-Portland area.`\
-https://nytimes.com/2024/09/08/business/boeing-workers-contract.html
 
