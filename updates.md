@@ -1,3 +1,7 @@
+**Election Live Updates: Harris and Trump Brace for Debate as Poll Shows a Tight Race**\
+`Vice President Kamala Harris and former President Donald J. Trump left the campaigning to surrogates on Sunday as they readied for Tuesday’s debate. A New York Times/Siena College national poll found the race very close.`\
+https://nytimes.com/live/2024/09/08/us/harris-trump-election
+
 **Rice admits he 'needed a big performance' after 'rusty' start with Arsenal**\
 `Declan Rice reflected on his starring role for England by saying he &#8220;needed a big performance&#8221; after a &#8220;rusty&#8221; start to the season with his club Arsenal.`\
 https://nytimes.com/athletic/5753061/2024/09/08/declan-rice-england-ireland-arsenal/
