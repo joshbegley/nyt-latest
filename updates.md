@@ -1,3 +1,7 @@
+**USC takeaways: Defense, running game carry Trojans to first shutout since 2011**\
+`There was no Week 2 letdown. The Trojans took care of business in a 48-0 win over Utah State the home opener. `\
+https://nytimes.com/athletic/5752902/2024/09/08/usc-footbal-shutout-utah-state-defense/
+
 **College Football Playoff 2024 projections: Notre Dame out; USC and Tennessee move in**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/09/08/college-football-playoff-projections-odds/

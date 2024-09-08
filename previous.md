@@ -1,3 +1,7 @@
+**USC takeaways: Defense, running game carry Trojans to first shutout since 2011**\
+`There was no Week 2 letdown. The Trojans took care of business in a 48-0 win over Utah State the home opener. `\
+https://nytimes.com/athletic/5752902/2024/09/08/usc-footbal-shutout-utah-state-defense/
+
 **Lowetide: Oilers guide to potential impact recalls from AHL**\
 `Keep your eye on Matt Savoie. He's the most explosive prospect in the Oilers' system at this time.`\
 https://nytimes.com/athletic/5751932/2024/09/08/edmonton-oilers-ahl-matt-savoie/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5752587/2024/09/08/dismal-usmnt-canada-reaction/
 **Cowboys-Browns predictions and preview: CeeDee Lamb is full-go, rookie on the hot seat, more**\
 `Is Lamb ready to roll? Can rookie Tyler Guyton hold his own against one of the NFL's best defensive players?`\
 https://nytimes.com/athletic/5747429/2024/09/08/cowboys-browns-predictions-preview/
-
-**David discusses Lille future, possible Premier League move**\
-`The Canada international's current deal expires in 2025 meaning he could leave the Ligue 1 club for free`\
-https://nytimes.com/athletic/5752839/2024/09/08/jonathan-david-transfer-lille-canada/
 
