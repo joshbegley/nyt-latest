@@ -1,3 +1,7 @@
+**A Buzzy U.S. Open Got an After-Party to Match the Vibe**\
+`Celebrities like Issa Rae and Nicky Hilton Rothschild, and former tennis stars like Maria Sharapova and James Blake, helped close out the tournament in style.`\
+https://nytimes.com/2024/09/08/style/us-open-after-party.html
+
 **AP Top 25: Nebraska back in poll; Notre Dame drops 13 spots**\
 `Six of the top seven teams in the new AP Top 25 poll are from the SEC, headlined by No. 1 Georgia and No. 2 Texas.`\
 https://nytimes.com/athletic/5753580/2024/09/08/ap-top-25-college-football-week-2/
