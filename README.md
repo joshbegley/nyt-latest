@@ -1,3 +1,11 @@
+**Rookie QB roundup: How Williams, Nix, Daniels fared in debuts**\
+`Only Caleb Williams' Chicago Bears left Week 1 with a win, and none of them threw for a touchdown in their debuts.`\
+https://nytimes.com/athletic/5753855/2024/09/08/nfl-rookie-qbs-williams-nix-daniels-debuts/
+
+**Meet Me at the Fair**\
+`A million people go to the Iowa State Fair, all with their own goals and dreams.`\
+https://nytimes.com/2024/09/08/podcasts/fairs-fair-this-american-life-nyt-audio.html
+
 **Venezuela’s Presidential Contender Flees, and Hopes for Democracy Dim**\
 `The opposition candidate’s decision to seek asylum in Spain and the autocratic leader’s antagonism toward regional powers lessen the chances of a political transition.`\
 https://nytimes.com/2024/09/08/world/americas/edmundo-gonzalez-venezuela-opposition-candidate.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5754091/2024/09/08/patriots-bengals-week-1-jerod-ma
 **Behind Kirk Cousins' 'disappointing' performance, Falcons looked like same ol' team in Week 1**\
 `Cousins flopped in his Falcons debut, finishing with a passer rating of 59 and throwing two interceptions, including a backbreaker.`\
 https://nytimes.com/athletic/5754094/2024/09/08/falcons-kirk-cousins-disappointment-steelers/
-
-**Greenberg: Caleb Williams makes his debut in a very ugly, very familiar Bears victory**\
-`Chicago won its opener, 24-17 over Tennessee, behind a time-tested formula of defense, special teams and absolutely no offense.`\
-https://nytimes.com/athletic/5754062/2024/09/08/caleb-williams-chicago-bears-titans/
-
-**Song odds for Kendrick Lamar's Super Bowl LIX halftime show**\
-`An early prediction for what the Pulitzer Prize-winning rapper might perform at the Caesars Superdome. `\
-https://nytimes.com/athletic/5753979/2024/09/08/kendrick-lamars-super-bowl-lix-halftime-song-odds/
 
