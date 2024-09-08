@@ -1,3 +1,7 @@
+**Canada's dominance of USMNT shows Copa was no fluke as they ascend to be CONCACAF's top side**\
+`Jesse Marsch has heightened demands on his players and they are responding — wins over the U.S. should no longer be considered surprising`\
+https://nytimes.com/athletic/5752545/2024/09/08/canada-usmnt-concacaf-kansas/
+
 **Brock Purdy's college reunion: Why 49ers' opener vs. Jets has an Iowa State flavor**\
 `Purdy will face fellow Iowa State alums Breece Hall, Will McDonald IV and Allen Lazard in the 49ers' season opener against the Jets.`\
 https://nytimes.com/athletic/5741322/2024/09/08/49ers-jets-brock-purdy-iowa-state-hall-mcdonald/

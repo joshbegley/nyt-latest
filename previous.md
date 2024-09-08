@@ -27,7 +27,7 @@ https://nytimes.com/2024/09/08/briefing/improving-sleep-hacks.html
 https://nytimes.com/athletic/5701128/2024/09/08/college-football-playoff-projections-odds/
 
 **Canada's dominance of USMNT shows Copa was no fluke as they ascend to be CONCACAF's top side**\
-`Jesse Marsch has heightened demands on his players and they are responding - wins over the U.S. should no longer be considered surprising.`\
+`Jesse Marsch has heightened demands on his players and they are responding — wins over the U.S. should no longer be considered surprising`\
 https://nytimes.com/athletic/5752545/2024/09/08/canada-usmnt-concacaf-kansas/
 
 **Six-time Paralympic champion Weir announces Great Britain retirement**\
