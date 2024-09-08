@@ -1,3 +1,7 @@
+**After a Century and a Half in Sweden, Finnish Skulls Return Home**\
+`Dozens of skulls exhumed in Finland in the 19th century and taken to Sweden by scientists who wanted to study their racial characteristics were reburied in Finnish soil on Sunday.`\
+https://nytimes.com/2024/09/08/world/europe/finland-sweden-skulls.html
+
 **Paralympics highlights: A gold won in silence, manifesting dreams, and lessons for L.A.**\
 `The Paralympics brought us inspirational, powerful and surprising stories. Here, Charlotte Harpur chooses her most memorable…`\
 https://nytimes.com/athletic/5753182/2024/09/08/paralympics-highlights-frech-aoki/
