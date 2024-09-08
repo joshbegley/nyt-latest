@@ -1,3 +1,15 @@
+**Sherman: Nebraska fans should embrace the change in Matt Rhule’s Huskers**\
+`Matt Rhule’s Nebraska team clears a hurdle on the path back to relevance with Colorado win.`\
+https://nytimes.com/athletic/5753193/2024/09/08/nebraska-matt-rhule-colorado/
+
+**A Judge’s Decision to Delay Trump’s Sentencing**\
+`Readers disagree about whether putting off sentencing until after the election was the right move. Also: Risky Covid behavior; outdoor dining; a librarian’s fight.`\
+https://nytimes.com/2024/09/08/opinion/trump-sentencing.html
+
+**This Yucatán Marinade Is Perfect for Steak Tacos**\
+`The chef Alex Henry bucks tradition with a citrusy, garlicky, earthy mixture for sliced rib-eye.`\
+https://nytimes.com/2024/09/08/dining/this-yucatan-marinade-is-perfect-for-steak-tacos.html
+
 **Rice admits he 'needed a big performance' after 'rusty' start with Arsenal**\
 `Declan Rice reflected on his starring role for England by saying he &#8220;needed a big performance&#8221; after a &#8220;rusty&#8221; start to the season with his club Arsenal.`\
 https://nytimes.com/athletic/5753061/2024/09/08/declan-rice-england-ireland-arsenal/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5741322/2024/09/08/49ers-jets-brock-purdy-iowa-stat
 **Election Live Updates: Harris and Trump Brace for Debate as Poll Shows a Tight Race**\
 `Vice President Kamala Harris and former President Donald J. Trump left the campaigning to surrogates on Sunday as they readied for Tuesday’s debate. A New York Times/Siena College national poll found the race very close.`\
 https://nytimes.com/live/2024/09/08/us/harris-trump-election
-
-**Here’s the latest on the presidential race.**\
-`By Simon J. Levien`\
-https://nytimes.com/live/2024/09/08/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**USC takeaways: Defense, running game carry Trojans to first shutout since 2011**\
-`There was no Week 2 letdown. The Trojans took care of business in a 48-0 win over Utah State the home opener. `\
-https://nytimes.com/athletic/5752902/2024/09/08/usc-footbal-shutout-utah-state-defense/
-
-**Lowetide: Oilers guide to potential impact recalls from AHL**\
-`Keep your eye on Matt Savoie. He's the most explosive prospect in the Oilers' system at this time.`\
-https://nytimes.com/athletic/5751932/2024/09/08/edmonton-oilers-ahl-matt-savoie/
 
