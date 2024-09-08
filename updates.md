@@ -1,3 +1,7 @@
+**Commanders vs. Buccaneers odds, picks, how to watch: Jayden Daniels' debut**\
+`No. 2 pick Jayden Daniels debuts on Sunday as the Washington Commanders visit Tampa Bay. The Bucs are favored.`\
+https://nytimes.com/athletic/5750886/2024/09/08/commanders-buccaneers-odds-expert-picks-how-to-watch-predictions-betting/
+
 **3 Israelis Are Fatally Shot at West Bank-Jordan Border Crossing**\
 `The Allenby crossing, near the West Bank city of Jericho, has been the scene of violence in the past.`\
 https://nytimes.com/2024/09/08/world/middleeast/israel-gaza-hamas-war-west-bank.html
