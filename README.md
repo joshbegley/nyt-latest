@@ -1,3 +1,7 @@
+**Dak Prescott not pleased with his play vs. Browns, but 'happy' with new contract**\
+`A "sloppy second half" can't take away from a road win for the Cowboys in Week 1 and a new contract for Dak Prescott.`\
+https://nytimes.com/athletic/5754979/2024/09/08/dak-prescott-cowboys-contract-browns/
+
 **Lions hold off Rams in overtime to cap wild Week 1**\
 `David Montgomery, who had 17 carries and 91 yards, won the game in OT with a one-yard rushing touchdown.`\
 https://nytimes.com/athletic/5754928/2024/09/08/rams-lions-result-takeaways-overtime/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5754830/2024/09/08/padres-ha-seong-kim-absence-luis
 **Tafur: It's early, but the Raiders wilting in opening loss to Chargers is not inspiring**\
 `Forget Antonio Pierce's questionable fourth-down decision. The Raiders offense was feeble in its season-opening loss in Los Angeles. `\
 https://nytimes.com/athletic/5754795/2024/09/08/raiders-week-1-chargers-offense-feeble/
-
-**After Bo Nix's debut flop, Sean Payton challenges Broncos: 'Let's help this guy'**\
-`Without a productive running game to rely on Sunday, Nix attempted 42 passes and was also Denver's leading rusher.`\
-https://nytimes.com/athletic/5754486/2024/09/08/broncos-bo-nix-sean-payton-seahawks-loss/
 
