@@ -1,3 +1,7 @@
+**Tom Brady, in his NFL broadcast debut, was a man learning the job in real time**\
+`In his NFL broadcasting debut Sunday, Brady looked exactly like what he is: a man learning a job on the fly. More work comes now.`\
+https://nytimes.com/athletic/5750467/2024/09/08/tom-brady-fox-nfl-broadcasting-debut/
+
 **Justice Alito Reported $900 Concert Tickets From a German Princess**\
 `Princess Gloria von Thurn und Taxis, a former 1980s party girl and art collector who is now known for her connections to far-right conservatives, told a German news organization the Alitos were “private friends.”`\
 https://nytimes.com/2024/09/08/us/politics/justice-alito-reported-900-concert-tickets-from-a-german-princess.html
