@@ -1,3 +1,11 @@
+**Congress Faults Cuomo for Covid Deaths in Nursing Homes**\
+`A House subcommittee detailed how Andrew M. Cuomo, then the governor of New York, and his aides sought to undercount and deflect blame for deaths in nursing homes early in the pandemic.`\
+https://nytimes.com/2024/09/09/nyregion/cuomo-pandemic-nursing-home-deaths.html
+
+**Germany to Tighten Border Controls as Anti-Immigrant Parties Gain Votes**\
+`The government said it would expand patrols as part of a ‘hard line’ on illegal migration following two deadly stabbings by rejected asylum-seekers and a surge in support for the far right.`\
+https://nytimes.com/2024/09/09/world/europe/germany-to-tighten-border-controls.html
+
 **NASCAR Atlanta takeaways: A Walmart-sign what-if and resetting the title favorites**\
 `A homecoming win for Joey Logano, the big what-ifs from the race, revisiting our Championship 4 favorites and more from Atlanta.`\
 https://nytimes.com/athletic/5755563/2024/09/09/nascar-atlanta-takeaways-walmart-championship-4-favorites/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5756212/2024/09/09/tom-brady-scott-hanson-apology/
 **Battery Maker Northvolt to Cut Costs as E.V. Demand Slumps in Europe**\
 `The Swedish battery manufacturer said it would eliminate jobs and seek partnerships as it grappled with competition from China.`\
 https://nytimes.com/2024/09/09/business/northvolt-battery-electric-vehicles-europe-china.html
-
-**Advice for the Trump-Harris Debate**\
-`Readers discuss strategies, the debate rules and possible questions. Also: Migrants in New York schools; household chores; exploiting animals, and humans.`\
-https://nytimes.com/2024/09/09/opinion/trump-harris-debate.html
-
-**Legendary Rockets GM Carroll Dawson dies at 86**\
-`Dawson also worked as a Rockets assistant coach, most notably during the team's back-to-back championships in 1994 and 1995.`\
-https://nytimes.com/athletic/5756166/2024/09/09/carroll-dawson-dies-rockets/
 
