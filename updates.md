@@ -1,3 +1,5 @@
+**From Gowanus to Rhinebeck: ‘It’s a Whole Lifestyle Change.’**\
+
 **James Earl Jones, Actor Whose Voice Could Menace or Melt, Dies at 93**\
 `He gave life to characters like Darth Vader in “Star Wars” and Mufasa in “The Lion King,” and went on to collect Tonys, Golden Globes, Emmys and an honorary Oscar.`\
 https://nytimes.com/2024/09/09/obituaries/james-earl-jones-dead.html
