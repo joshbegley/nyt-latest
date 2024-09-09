@@ -1,3 +1,11 @@
+**Google’s Next Antitrust Battle**\
+`The tech giant has lost a series of legal fights that investors have largely shrugged off. But a new trial over its advertising business could carry big consequences.`\
+https://nytimes.com/2024/09/09/business/dealbook/google-next-antitrust-battle.html
+
+**Inside Newcastle live Q&A - Chris Waugh answers your questions every Monday**\
+`Chris Waugh is on hand to answer your Newcastle United questions in his weekly Monday Q&A...`\
+https://nytimes.com/athletic/5755302/2024/09/09/newcastle-questions-transfers-mitchell/
+
 **The Athletic FC: How Brady's Birmingham shocked the game, Chelsea's power struggle**\
 `Today in The Athletic FC: How Birmingham shocked the English game with their spending; Chelsea's ownership split, and what's in a nickname?`\
 https://nytimes.com/athletic/5755331/2024/09/09/how-bradys-birmingham-shocked-the-game-chelseas-power-struggle-english-club-nicknames/
