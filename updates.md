@@ -1,3 +1,11 @@
+**Padres takeaways: Starting pitching issues, Kim’s continued absence, Arraez’s streak**\
+`Padres starting pitchers have combined for a 5.37 ERA since Aug. 16, but Arraez appears to be over his thumb injury.`\
+https://nytimes.com/athletic/5754830/2024/09/08/padres-ha-seong-kim-absence-luis-arraez-streak/
+
+**Tafur: It's early, but the Raiders wilting in opening loss to Chargers is not inspiring**\
+`Forget Antonio Pierce's questionable fourth-down decision. The Raiders offense was feeble in its season-opening loss in Los Angeles. `\
+https://nytimes.com/athletic/5754795/2024/09/08/raiders-week-1-chargers-offense-feeble/
+
 **After Bo Nix's debut flop, Sean Payton challenges Broncos: 'Let's help this guy'**\
 `Without a productive running game to rely on Sunday, Nix attempted 42 passes and was also Denver's leading rusher.`\
 https://nytimes.com/athletic/5754486/2024/09/08/broncos-bo-nix-sean-payton-seahawks-loss/
