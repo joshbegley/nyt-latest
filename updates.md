@@ -1,4 +1,8 @@
 **West Bank Procession is Held For Killed Turkish American Activist**\
+`Aysenur Ezgi Eygi, a 26-year-old American, was killed last week while protesting the Israeli occupation of the West Bank.`\
+https://nytimes.com/video/world/middleeast/100000009680736/west-bank-memorial-procession-activist-.html
+
+**West Bank Procession is Held For Killed Turkish American Activist**\
 `Aysenur Ezgi Eygi, a 26-year-old campaigner against Israeli occupation, was born in Turkey and raised in Seattle. The Turkish foreign ministry said it was working on transferring her body to Turkey, where her funeral will be held.`\
 https://nytimes.com/video/world/middleeast/100000009680736/west-bank-memorial-procession-activist-.html
 
