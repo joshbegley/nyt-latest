@@ -1,3 +1,11 @@
+**The Latest Zoom for Harris? ‘Paisans for Kamala,’ Featuring Robert De Niro**\
+`Steve Buscemi, Marisa Tomei, John Turturro, Mark Ruffalo and Lorraine Bracco joined Bill de Blasio, Nancy Pelosi and Leon Panetta to raise money for Kamala Harris.`\
+https://nytimes.com/2024/09/08/us/politics/paisans-for-kamala-robert-de-niro-pelosi.html
+
+**Anthony Richardson's heroic plays should give Colts fans hope despite another Week 1 loss**\
+`Another loss to Houston. Another opening-day defeat. This loss will sting, but Richardson's play provided plenty of silver lining. `\
+https://nytimes.com/athletic/5754431/2024/09/08/colts-anthony-richardson-heroic-week-1-texans-loss/
+
 **Twins takeaways after Rocco Baldelli lights up team for 'unprofessional series' vs. Royals**\
 `“That was an unprofessional series of baseball that we just played and that’s my only comment,” Baldelli said after the Twins were swept. `\
 https://nytimes.com/athletic/5754606/2024/09/08/rocco-baldelli-twins-swept-by-royals/
