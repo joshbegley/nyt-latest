@@ -1,3 +1,7 @@
+**U.S. Argues Google Created Ad Tech Monopoly**\
+`The tech giant went to court on Monday in a second antitrust trial, this one focused on its dominance in advertising technology software. The case could reshape its business.`\
+https://nytimes.com/2024/09/09/technology/google-antitrust-ad-technology.html
+
 **Jamie Heller to Be Next Top Editor of Business Insider**\
 `Ms. Heller spent two decades at The Wall Street Journal, most recently leading corporate coverage.`\
 https://nytimes.com/2024/09/09/business/media/business-insider-jamie-heller.html

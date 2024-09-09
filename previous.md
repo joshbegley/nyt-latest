@@ -1,3 +1,7 @@
+**U.S. Argues Google Created Ad Tech Monopoly**\
+`The tech giant went to court on Monday in a second antitrust trial, this one focused on its dominance in advertising technology software. The case could reshape its business.`\
+https://nytimes.com/2024/09/09/technology/google-antitrust-ad-technology.html
+
 **Jamie Heller to Be Next Top Editor of Business Insider**\
 `Ms. Heller spent two decades at The Wall Street Journal, most recently leading corporate coverage.`\
 https://nytimes.com/2024/09/09/business/media/business-insider-jamie-heller.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/09/technology/personaltech/iphone-ai-upgrade.html
 **Browns' Njoku, Cowboys' Ferguson week to week with injuries**\
 `Both players left with injuries during the second half of the Cowboys' win over the Browns on Sunday.`\
 https://nytimes.com/athletic/5756351/2024/09/09/david-njoku-jake-ferguson-browns-cowboys-injury/
-
-**NFL Week 2 odds, schedule: Packers, Browns on wrong side of line movement**\
-`The NFL Week 2 odds are already on the move with injury news and Week 1 plot twists. See odds for every NFL Week 2 game.`\
-https://nytimes.com/athletic/5756153/2024/09/09/nfl-week-2-odds-spreads-schedule/
 
