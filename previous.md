@@ -1,3 +1,7 @@
+**Panthers Derrick Brown to miss time with meniscus injury**\
+`Last season, Brown finished second on the team in both total tackles (103) and passes defended (six).`\
+https://nytimes.com/athletic/5756106/2024/09/09/panthers-derrick-brown-meniscus-injury/
+
 **Catherine, Princess of Wales, Has Completed Her Chemotherapy for Cancer**\
 `In a video message, Catherine said, “Doing what I can to stay cancer free is now my focus.”`\
 https://nytimes.com/2024/09/09/world/europe/kate-middleton-cancer-free-chemotherapy.html
@@ -33,8 +37,4 @@ https://nytimes.com/article/tropical-storm-francine-hurricane.html
 **Tracking Tropical Storm Francine**\
 `See the likely path and wind arrival times for Francine.`\
 https://nytimes.com/interactive/2024/weather/francine-map-path-tracker.html
-
-**The Terrifying Way That Eels Escape a Hungry Fish’s Stomach**\
-`X-ray videos showed that some young Japanese eels demonstrated that they were not content to become a predator’s meal.`\
-https://nytimes.com/2024/09/09/science/eels-escape-fish-stomach.html
 
