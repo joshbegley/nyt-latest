@@ -1,3 +1,11 @@
+**Monday Briefing**\
+`New polling on the U.S. election.`\
+https://nytimes.com/2024/09/09/briefing/trump-harris-poll-west-bank.html
+
+**Monday's MLB odds, best bets: Projections for pitching matchups, playoffs and more**\
+`See pitching matchups, playoff projections, win projections and more for Monday's MLB games.`\
+https://nytimes.com/athletic/5751038/2024/09/09/mlb-odds-best-bets-projections-september-9/
+
 **Dak Prescott not pleased with his play vs. Browns, but 'happy' with new contract**\
 `A "sloppy second half" can't take away from a road win for the Cowboys in Week 1 and a new contract for Dak Prescott.`\
 https://nytimes.com/athletic/5754979/2024/09/08/dak-prescott-cowboys-contract-browns/
