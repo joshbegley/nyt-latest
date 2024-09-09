@@ -1,3 +1,7 @@
+**How serious are Michigan's problems? Final thoughts after the loss to Texas**\
+`Texas is a national title contender, but Michigan may have more issues than anticipated. What can be fixed before USC visits in two weeks?`\
+https://nytimes.com/athletic/5754047/2024/09/09/michigan-football-texas-takeaways/
+
 **A Tug Between Russia and Europe Divides a Tiny Balkan Nation**\
 `A fallout between former political allies in Montenegro has complicated the country’s efforts to join the European Union and curb pro-Russian influence.`\
 https://nytimes.com/2024/09/09/world/europe/montenegro-eu-russia.html

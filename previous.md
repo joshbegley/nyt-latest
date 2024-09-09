@@ -1,3 +1,7 @@
+**How serious are Michigan's problems? Final thoughts after the loss to Texas**\
+`Texas is a national title contender, but Michigan may have more issues than anticipated. What can be fixed before USC visits in two weeks?`\
+https://nytimes.com/athletic/5754047/2024/09/09/michigan-football-texas-takeaways/
+
 **A Tug Between Russia and Europe Divides a Tiny Balkan Nation**\
 `A fallout between former political allies in Montenegro has complicated the country’s efforts to join the European Union and curb pro-Russian influence.`\
 https://nytimes.com/2024/09/09/world/europe/montenegro-eu-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/03/opinion/thepoint/trump-harris-debate-poll
 **Harris’s Debate Challenge: Pushing Ahead Without Leaving Biden Behind**\
 `At Tuesday’s debate, Kamala Harris, the vice president, will try to promote herself as a change candidate without criticizing President Biden, whom she has served for years.`\
 https://nytimes.com/2024/09/09/us/politics/kamala-harris-debate-joe-biden.html
-
-**Long Prison Terms Deserve a Second Look and ‘a Little Humanity,’ Judge Argues**\
-`In a new book, Judge Frederic Block, who has served for decades, urged courts to vindicate the promise of the First Step Act, which lets prisoners ask for compassionate release from their sentences.`\
-https://nytimes.com/2024/09/09/us/federal-sentencing-first-step-act.html
 
