@@ -1,3 +1,11 @@
+**Election Live Updates: Harris and Trump Prepare for Debate Showdown in Tight Race**\
+`Donald J. Trump and Kamala Harris will meet this week for the only debate they have scheduled, in what is likely to be a consequential matchup with polls showing a neck-and-neck election.`\
+https://nytimes.com/live/2024/09/09/us/harris-trump-election
+
+**Here’s the latest on the 2024 campaign.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/09/09/us/harris-trump-election/heres-the-latest-on-the-2024-campaign
+
 **Kelleher discusses Liverpool future after Mamardashvili signing**\
 `Caoimhin Kelleher admits it wasn’t his decision to stay at Liverpool this summer as he reiterated his desire to become a No 1 goalkeeper.`\
 https://nytimes.com/athletic/5755621/2024/09/09/caoimhin-kelleher-liverpool-future/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5750724/2024/09/09/golden-knights-training-camp-eic
 **Dodgers takeaways: Shohei Ohtani's latest swing, the rotation and more**\
 `Ohtani sits four home runs and four stolen bases from the first 50-50 season in baseball history.`\
 https://nytimes.com/athletic/5754368/2024/09/09/dodgers-shohei-ohtani-mookie-betts/
-
-**Arsenal to play Hacken, Man City to face Paris FC in UWCL qualifiers**\
-`Arsenal have been drawn against BK Hacken in round two of Women&#8217;s Champions League qualifying, while Manchester City will face Paris FC.`\
-https://nytimes.com/athletic/5755299/2024/09/09/arsenal-man-city-womens-champions-league-draw/
-
-**Google’s Next Antitrust Battle**\
-`The tech giant has lost a series of legal fights that investors have largely shrugged off. But a new trial over its advertising business could carry big consequences.`\
-https://nytimes.com/2024/09/09/business/dealbook/google-next-antitrust-battle.html
 

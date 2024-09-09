@@ -1,3 +1,11 @@
+**Election Live Updates: Harris and Trump Prepare for Debate Showdown in Tight Race**\
+`Donald J. Trump and Kamala Harris will meet this week for the only debate they have scheduled, in what is likely to be a consequential matchup with polls showing a neck-and-neck election.`\
+https://nytimes.com/live/2024/09/09/us/harris-trump-election
+
+**Here’s the latest on the 2024 campaign.**\
+`By Maggie Astor`\
+https://nytimes.com/live/2024/09/09/us/harris-trump-election/heres-the-latest-on-the-2024-campaign
+
 **Kelleher discusses Liverpool future after Mamardashvili signing**\
 `Caoimhin Kelleher admits it wasn’t his decision to stay at Liverpool this summer as he reiterated his desire to become a No 1 goalkeeper.`\
 https://nytimes.com/athletic/5755621/2024/09/09/caoimhin-kelleher-liverpool-future/
