@@ -1,3 +1,7 @@
+**What’s on TV This Week: Lots of Awards Shows and the Presidential Debate**\
+`The VMAs, Creative Emmys and Emmy Awards are on the schedule, while ABC is hosting the first debate between Kamala Harris and Donald Trump.`\
+https://nytimes.com/2024/09/09/arts/television/whats-on-tv-this-week-lots-of-awards-shows-and-the-presidential-debate.html
+
 **Dan Quinn's Commanders debut full of familiar, frustrating feelings**\
 `Washington struggled in all three phases in a lopsided loss to the Bucs.`\
 https://nytimes.com/athletic/5754877/2024/09/09/commanders-buccaneers-dan-quinn-jayden-daniels-debut/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5746768/2024/09/09/orel-mangala-everton-sean-dyche/
 **I found Kerlon**\
 `The Athletic has been searching for Kerlon for years. Finally, we found him. He tells his story — and shows us if he can still do the trick`\
 https://nytimes.com/athletic/5739187/2024/09/09/kerlon-seal-dribble-interview-brazil/
-
-**Gylfi Sigurdsson's Icelandic return: 'Everybody here was happy to see him back in football'**\
-`Gylfi Sigurdsson's absence from his final year at Everton has never been publicly explained but he is being embraced in Iceland`\
-https://nytimes.com/athletic/5739410/2024/09/09/gylfi-sigurdsson-return-iceland/
 

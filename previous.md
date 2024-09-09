@@ -1,3 +1,11 @@
+**Dan Quinn's Commanders debut full of familiar, frustrating feelings**\
+`Washington struggled in all three phases in a lopsided loss to the Bucs.`\
+https://nytimes.com/athletic/5754877/2024/09/09/commanders-buccaneers-dan-quinn-jayden-daniels-debut/
+
+**Pope Goes to East Timor, Where Scandal Shadows His Church’s Heroic Past**\
+`The Roman Catholic Church played an important part in East Timor’s independence struggle. But one of its heroes from that time has been accused of sexual abuse.`\
+https://nytimes.com/2024/09/09/world/asia/pope-east-timor-legacy.html
+
 **Villa's young talent pool is deep. So who will be the first to break through under Emery?**\
 `Through deft recruitment and coaching expertise, Villa's academy has plenty of external admirers`\
 https://nytimes.com/athletic/5650311/2024/09/09/aston-villa-unai-emery-academy/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5739187/2024/09/09/kerlon-seal-dribble-interview-br
 **Gylfi Sigurdsson's Icelandic return: 'Everybody here was happy to see him back in football'**\
 `Gylfi Sigurdsson's absence from his final year at Everton has never been publicly explained but he is being embraced in Iceland`\
 https://nytimes.com/athletic/5739410/2024/09/09/gylfi-sigurdsson-return-iceland/
-
-**Villans, Cherries, Toffees and Tractor Boys: The origins of English football club nicknames**\
-`Why the Gunners? What are Addicks? Eagles vs Seagulls. English club nicknames are varied, so let us explain them…`\
-https://nytimes.com/athletic/5753588/2024/09/09/english-football-nicknames-premier-league/
-
-**Fantasy football Week 1 takeaways: Richardson defies reality, Caleb Williams' dud and more**\
-`Michael Salfino shares his takeaways from Week 1 in the NFL, including his mixed feelings regarding Colts quarterback Anthony Richardson. `\
-https://nytimes.com/athletic/5754714/2024/09/09/fantasy-football-week-1-takeaways-richardson-williams/
 

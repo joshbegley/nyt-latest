@@ -1,3 +1,11 @@
+**Dan Quinn's Commanders debut full of familiar, frustrating feelings**\
+`Washington struggled in all three phases in a lopsided loss to the Bucs.`\
+https://nytimes.com/athletic/5754877/2024/09/09/commanders-buccaneers-dan-quinn-jayden-daniels-debut/
+
+**Pope Goes to East Timor, Where Scandal Shadows His Church’s Heroic Past**\
+`The Roman Catholic Church played an important part in East Timor’s independence struggle. But one of its heroes from that time has been accused of sexual abuse.`\
+https://nytimes.com/2024/09/09/world/asia/pope-east-timor-legacy.html
+
 **Villa's young talent pool is deep. So who will be the first to break through under Emery?**\
 `Through deft recruitment and coaching expertise, Villa's academy has plenty of external admirers`\
 https://nytimes.com/athletic/5650311/2024/09/09/aston-villa-unai-emery-academy/
