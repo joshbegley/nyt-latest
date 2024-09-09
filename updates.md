@@ -1,3 +1,7 @@
+**"Unacceptable" spat between Giants rookies Tyler Fitzgerald, Marco Luciano reflects a lack of trust**\
+`A miscommunication between the infielders led to a verbal confrontation in the dugout as the Giants' defensive struggles continue.`\
+https://nytimes.com/athletic/5754704/2024/09/08/sf-giants-tyler-fitzgerald-marco-luciano-argument/
+
 **Tom Brady, in his NFL broadcast debut, was a man learning the job in real time**\
 `In his NFL broadcasting debut Sunday, Brady looked exactly like what he is: a man learning a job on the fly. More work comes now.`\
 https://nytimes.com/athletic/5750467/2024/09/08/tom-brady-fox-nfl-broadcasting-debut/
