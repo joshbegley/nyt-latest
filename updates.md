@@ -1,3 +1,7 @@
+**Trump Steps Up Threats to Imprison Those He Sees as Foes**\
+`The former president is vowing to prosecute those he sees as working to deny him a victory, while laying the groundwork to claim large-scale voter fraud if he loses.`\
+https://nytimes.com/2024/09/09/us/politics/trump-prison-threats-opponents.html
+
 **James Earl Jones: A Life in Pictures**\
 `Onstage and in movies and television, Jones delivered with a deep, authoritative, powerful and sometimes menacing voice.`\
 https://nytimes.com/2024/09/09/theater/james-earl-jones-photos.html
