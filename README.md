@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Are we having fun yet? Are we at least having a better week than <a class="ath_autolink" data-id="216" href="https://www.nytimes.com/athletic/college-football/team/notre-dame-fighting-irish-college-football/">Notre Dame</a>?</p>
+<p>Leave your pre-Week 3 questions here.</p>
+`\
+https://nytimes.com/athletic/5756604/2024/09/09/submit-a-question-for-stewart-mandels-college-football-mailbag-272/
+
 **Sex Trafficking Is Not a Hoax, Even if the Conspiracies Usually Are**\
 `The overblown fears of crimes committed by immigrants often overshadow the real dangers of American men abroad.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/sex-trafficking-hoax-reality
@@ -6,7 +12,7 @@ https://nytimes.com/live/2024/09/03/opinion/thepoint/sex-trafficking-hoax-realit
 `Patients received “substantial” payments, their lawyers said, and the clinic agreed to staffing changes.`\
 https://nytimes.com/2024/09/09/health/yale-ivf-egg-retrievals-lawsuit.html
 
-**Funeral for Johnny and Matthew Gaudreau brings overflow crowd, tear-filled remembrances**\
+**Funeral for Johnny, Matthew Gaudreau draws overflow crowd**\
 `Meredith Gaudreau revealed during her eulogy that she had recently shared with Johnny that she was pregnant with the couple's third child.`\
 https://nytimes.com/athletic/5756560/2024/09/09/funeral-johnny-matthew-gaudreau/
 
@@ -33,8 +39,4 @@ https://nytimes.com/athletic/5756591/2024/09/09/netflix-aaron-rodgers-series-rel
 **Searches in Adams’s Inner Circle Suggest Investigations Are Intensifying**\
 `Former corruption prosecutors said that dramatic moves by federal agents hint that U.S. inquiries have made a significant step forward.`\
 https://nytimes.com/2024/09/09/nyregion/eric-adams-administration-investigation.html
-
-**Yankees call up top prospect Jasson Domínguez**\
-`The team recently said that Domínguez would not be recalled if there wasn’t a place for him to play every day.`\
-https://nytimes.com/athletic/5756576/2024/09/09/yankees-jasson-dominguez-promotion/
 
