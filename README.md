@@ -1,40 +1,40 @@
-**Word of the Day: scalable**\
-`This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/09/09/learning/word-of-the-day-scalable.html
+**A Trial Over Tyre Nichols’s Death Begins as Memphis Is in a New Bind**\
+`As three police officers face a federal trial, the city is embroiled in a standoff with state Republican leaders over its policing and public safety policies.`\
+https://nytimes.com/2024/09/09/us/tyre-nichols-murder-trial.html
 
-**Typhoon Yagi Weakens After Killing 21 in Vietnam**\
-`The storm was downgraded to a tropical depression after churning across the country’s north. Earlier, it left 24 dead in China and the Philippines.`\
-https://nytimes.com/2024/09/09/us/typhoon-yagi-vietnam-deaths.html
+**Can Apple’s iPhones Pass the A.I. Test?**\
+`On Monday, the company will introduce smartphones with A.I. features that could take the technology mainstream or sow fresh doubts about its viability.`\
+https://nytimes.com/2024/09/09/technology/apple-iphone-ai-features.html
 
-**'Atrocious': Justin Verlander's latest debacle puts his postseason in jeopardy**\
-`Not since May 16, 2013, had Verlander yielded eight earned runs in three or fewer innings. The Astros saw it happen Sunday.`\
-https://nytimes.com/athletic/5755098/2024/09/09/astros-justin-verlander-playoffs/
+**Exposing a Hospital Chain’s Disturbing Practices**\
+`Jessica Silver-Greenberg and Katie Thomas spent months looking into a psychiatric hospital chain that held some people against their will for financial reasons, not medical ones.`\
+https://nytimes.com/2024/09/09/insider/acadia-healthcare.html
 
-**Typhoon Yagi Tears Through Vietnam**\
-`Typhoon Yagi, one of the most powerful storms to hit northern Vietnam, left a trail of destruction from floods and landslides.`\
-https://nytimes.com/video/world/asia/100000009680381/typhoon-yagi-vietnam-north.html
+**Mourning ‘Johnny Hockey’ and His Brother: ‘Why Did This Have to Happen?’**\
+`The night before their sister’s wedding, John and Matty Gaudreau were fatally struck by a car while riding bicycles near their family home in rural New Jersey.`\
+https://nytimes.com/2024/09/09/nyregion/john-matthew-gaudreau-hockey-death.html
 
-**What’s on TV This Week: Lots of Awards Shows and the Presidential Debate**\
-`The VMAs, Creative Emmys and Emmy Awards are on the schedule, while ABC is hosting the first debate between Kamala Harris and Donald Trump.`\
-https://nytimes.com/2024/09/09/arts/television/whats-on-tv-this-week-lots-of-awards-shows-and-the-presidential-debate.html
+**Trial Begins Over ‘Trump Train’ Encounter With 2020 Biden Campaign Bus**\
+`A federal civil jury will consider the fast-moving confrontation on a Texas highway between President Trump’s supporters and a Biden bus just before Election Day in 2020.`\
+https://nytimes.com/2024/09/09/us/trump-train-campaign-bus-trial.html
 
-**Dan Quinn's Commanders debut full of familiar, frustrating feelings**\
-`Washington struggled in all three phases in a lopsided loss to the Bucs.`\
-https://nytimes.com/athletic/5754877/2024/09/09/commanders-buccaneers-dan-quinn-jayden-daniels-debut/
+**F1's proposed postseason Abu Dhabi rookie race: How it would work, and where teams stand**\
+`F1 officials and teams are currently evaluating a rookies-only race to take place after the end of the season in Abu Dhabi.`\
+https://nytimes.com/athletic/5750872/2024/09/09/f1-rookie-race-explained-abu-dhabi/
 
-**Pope Goes to East Timor, Where Scandal Shadows His Church’s Heroic Past**\
-`The Roman Catholic Church played an important part in East Timor’s independence struggle. But one of its heroes from that time has been accused of sexual abuse.`\
-https://nytimes.com/2024/09/09/world/asia/pope-east-timor-legacy.html
+**Does Anyone Want to Hang Out in the Middle of Park Avenue?**\
+`A glimpse at the future of one of Manhattan’s most famous streets — and a look at its history, from train tracks to illegal weed.`\
+https://nytimes.com/2024/09/09/nyregion/street-wars-park-avenue-redesign.html
 
-**Villa's young talent pool is deep. So who will be the first to break through under Emery?**\
-`Through deft recruitment and coaching expertise, Villa's academy has plenty of external admirers`\
-https://nytimes.com/athletic/5650311/2024/09/09/aston-villa-unai-emery-academy/
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/09/crosswords/spelling-bee-forum.html
 
-**Trippier has lost the Newcastle captaincy and his starting place, so what now?**\
-`Trippier has been a standard-bearer for Newcastle post-takeover, so how come his time at the club now appears to be coming to an end?`\
-https://nytimes.com/athletic/5744468/2024/09/09/kieran-trippier-newcastle-future/
+**U.S. Prepares to Challenge Google’s Online Ad Dominance**\
+`In a second antitrust trial that starts on Monday, the Justice Department has called for a breakup of the tech giant, which it says controls the vast majority of online advertising.`\
+https://nytimes.com/2024/09/09/technology/google-ads-antitrust-trial.html
 
-**Manchester United fan survey results: happy with transfers but many expectations unchanged**\
-`Impressive buys and sensible sales have contributed to an improved mood among United fans but there's still plenty of work to do  `\
-https://nytimes.com/athletic/5747593/2024/09/09/manchester-united-transfer-survey-results/
+**Google’s Legal Scorecard as Another Antitrust Fight Arrives**\
+`How the tech giant has fared in its major legal battles across the U.S. and Europe so far.`\
+https://nytimes.com/2024/09/09/technology/google-antitrust-trial-legal-scorecard.html
 
