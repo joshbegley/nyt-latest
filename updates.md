@@ -1,3 +1,11 @@
+**McDaniel 'proud' of Dolphins coming to Tyreek Hill's aid**\
+`"It's what you hope your team is comprised of," Dolphins coach Mike McDaniel said.`\
+https://nytimes.com/athletic/5756541/2024/09/09/mike-mcdaniel-tyreek-hill-dolphins/
+
+**Aaron Rodgers Netflix docuseries to be released Dec. 17**\
+`The docuseries follows the quarterback's recovery from the Achilles tendon injury that ended his 2023 season after only four plays.`\
+https://nytimes.com/athletic/5756591/2024/09/09/netflix-aaron-rodgers-series-release/
+
 **Harvey Weinstein Is Hospitalized for Emergency Heart Surgery**\
 `The disgraced Hollywood mogul, who has been held on Rikers Island since April, is scheduled to return to court in New York later this month.`\
 https://nytimes.com/2024/09/09/nyregion/harvey-weinstein-heart-surgery.html
