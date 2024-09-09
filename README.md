@@ -1,3 +1,7 @@
+**What Do You Believe In?**\
+`We want to hear from you — whether you’re religious or not.`\
+https://nytimes.com/2024/09/09/briefing/what-do-you-believe-in.html
+
 **Congress Faults Cuomo for Covid Deaths in Nursing Homes**\
 `A House subcommittee detailed how Andrew M. Cuomo, then the governor of New York, and his aides sought to undercount and deflect blame for deaths in nursing homes early in the pandemic.`\
 https://nytimes.com/2024/09/09/nyregion/cuomo-pandemic-nursing-home-deaths.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009680736/west-bank-memorial-pr
 **Scott Hanson apologizes for Brady on-air criticism**\
 `Hanson called his criticism of Brady during the Cowboys-Browns game "unfair and inconsiderate."`\
 https://nytimes.com/athletic/5756212/2024/09/09/tom-brady-scott-hanson-apology/
-
-**Battery Maker Northvolt to Cut Costs as E.V. Demand Slumps in Europe**\
-`The Swedish battery manufacturer said it would eliminate jobs and seek partnerships as it grappled with competition from China.`\
-https://nytimes.com/2024/09/09/business/northvolt-battery-electric-vehicles-europe-china.html
 
