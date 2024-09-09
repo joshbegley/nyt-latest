@@ -1,3 +1,11 @@
+**As Debate Looms, Trump Is Now the One Facing Questions About Age and Capacity**\
+`With President Biden no longer in the race, former President Donald J. Trump would be the oldest person ever to serve in the Oval Office. But his rambling, sometimes incoherent public statements have stirred concern among voters.`\
+https://nytimes.com/2024/09/09/us/politics/debate-trump-age-capacity.html
+
+**Teen Girls’ Brains Aged Rapidly During Pandemic, Study Finds**\
+`Neuroimaging found girls experienced cortical thinning far faster than boys did during the first year of Covid lockdowns.`\
+https://nytimes.com/2024/09/09/health/teen-brains-pandemic-girls.html
+
 **The Lonely Anger of Democratic Women in North Carolina**\
 `At a Harris-Walz event, many said they are outnumbered and ostracized.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/north-carolina-democratic-women
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/09/technology/google-antitrust-ad-technology.html
 **Jamie Heller to Be Next Top Editor of Business Insider**\
 `Ms. Heller spent two decades at The Wall Street Journal, most recently leading corporate coverage.`\
 https://nytimes.com/2024/09/09/business/media/business-insider-jamie-heller.html
-
-**Palestinians Hold Funeral for American Slain in West Bank**\
-`Aysenur Ezgi Eygi, a 26-year-old from the Seattle area, was shot and killed, when Israeli forces opened fire during a protest she was attending in a village in the West Bank, witnesses and Palestinian officials said.`\
-https://nytimes.com/2024/09/09/world/middleeast/aysenur-ezgi-eygi-funeral.html
-
-**Walt Ehmer, Former Waffle House C.E.O., Dies at 58**\
-`Mr. Ehmer steered the diner chain through the pandemic and preached spending more time in one of his 24-hour restaurants than in his office.`\
-https://nytimes.com/2024/09/09/us/waffle-house-walt-ehmer-dead.html
 

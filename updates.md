@@ -1,3 +1,11 @@
+**The Lonely Anger of Democratic Women in North Carolina**\
+`At a Harris-Walz event, many said they are outnumbered and ostracized.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/north-carolina-democratic-women
+
+**San Francisco Giants week in review: Another walk-off, an extension and a missing glove**\
+`The Giants got a quick return on their Matt Chapman investment and saw an infielder lose a glove completely in another .500 week.`\
+https://nytimes.com/athletic/5755131/2024/09/09/sf-giants-week-in-review-chapman-extension-defensive-miscues/
+
 **10,000 Feet Up, Scientists Found Hundreds of Airborne Germs**\
 `In 10 flights over Japan, researchers found a host of bacteria and fungi. These high-altitude germs could help spread disease around the world.`\
 https://nytimes.com/2024/09/09/science/high-altitude-germs.html
