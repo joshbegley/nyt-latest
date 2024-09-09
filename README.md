@@ -1,3 +1,7 @@
+**A deadly shooting at a border crossing highlights worsening unrest in the Israeli-occupied West Bank.**\
+`By Patrick Kingsley`\
+https://nytimes.com/live/2024/09/09/world/israel-hamas-gaza-war/a-deadly-shooting-at-a-border-crossing-highlights-worsening-unrest-in-the-israeli-occupied-west-bank
+
 **Levi's Stadium turns 10: 49ers' home field still blazing hot, strides made in other areas**\
 `Jed York said he plans to make major investments in Levi's Stadium every 10 years or so to make sure the facility doesn't become outmoded.`\
 https://nytimes.com/athletic/5751942/2024/09/09/49ers-levis-stadium-10-years/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/09/business/dealbook/google-next-antitrust-battle.ht
 **Inside Newcastle live Q&A - Chris Waugh answers your questions every Monday**\
 `Chris Waugh is on hand to answer your Newcastle United questions in his weekly Monday Q&A...`\
 https://nytimes.com/athletic/5755302/2024/09/09/newcastle-questions-transfers-mitchell/
-
-**The Athletic FC: How Brady's Birmingham shocked the game, Chelsea's power struggle**\
-`Today in The Athletic FC: How Birmingham shocked the English game with their spending; Chelsea's ownership split, and what's in a nickname?`\
-https://nytimes.com/athletic/5755331/2024/09/09/how-bradys-birmingham-shocked-the-game-chelseas-power-struggle-english-club-nicknames/
 
