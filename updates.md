@@ -1,3 +1,15 @@
+**7 Takeaways From This Year’s Seemingly Endless Fire Season**\
+`While the Line Fire burns in Southern California, what can we learn from how a changing climate has affected an expanding fire season?`\
+https://nytimes.com/2024/09/09/climate/climate-changing-fire-season.html
+
+**As Debate Looms, Trump Is Now the One Facing Questions About Age and Capacity**\
+`With President Biden no longer in the race, former President Donald J. Trump would be the oldest person ever to serve in the Oval Office. But his rambling, sometimes incoherent public statements have stirred concern among voters.`\
+https://nytimes.com/2024/09/09/us/politics/debate-trump-age-capacity.html
+
+**Teen Girls’ Brains Aged Rapidly During Pandemic, Study Finds**\
+`Neuroimaging found girls experienced cortical thinning far faster than boys did during the first year of Covid lockdowns.`\
+https://nytimes.com/2024/09/09/health/teen-brains-pandemic-girls.html
+
 **The Lonely Anger of Democratic Women in North Carolina**\
 `At a Harris-Walz event, many said they are outnumbered and ostracized.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/north-carolina-democratic-women
