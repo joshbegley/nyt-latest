@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Francine**\
+`See the likely path and wind arrival times for Francine.`\
+https://nytimes.com/interactive/2024/09/09/weather/six-map-path-tracker.html
+
 **The Terrifying Way That Eels Escape a Hungry Fish’s Stomach**\
 `X-ray videos showed that some young Japanese eels demonstrated that they were not content to become a predator’s meal.`\
 https://nytimes.com/2024/09/09/science/eels-escape-fish-stomach.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/09/sports/paralympics-marathon-disqualifed-elena-con
 **Our College Football Playoff model projections: Notre Dame out; USC and Tennessee move in**\
 `Who will make the first 12-team College Football Playoff? Here's our model's predictions for which teams will fill out the bracket.`\
 https://nytimes.com/athletic/5701128/2024/09/09/college-football-playoff-projections-odds/
-
-**The 23 Words Harris Needs to Say to Win**\
-`It’s OK to admit that reality has changed her mind on the big issues.`\
-https://nytimes.com/live/2024/09/03/opinion/thepoint/friedman-harris-debate
 

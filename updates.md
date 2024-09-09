@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Francine**\
+`See the likely path and wind arrival times for Francine.`\
+https://nytimes.com/interactive/2024/09/09/weather/six-map-path-tracker.html
+
 **The Terrifying Way That Eels Escape a Hungry Fish’s Stomach**\
 `X-ray videos showed that some young Japanese eels demonstrated that they were not content to become a predator’s meal.`\
 https://nytimes.com/2024/09/09/science/eels-escape-fish-stomach.html
