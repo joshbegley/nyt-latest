@@ -1,3 +1,7 @@
+**Yankees call up top prospect Jasson Domínguez**\
+`The team had said recently that Domínguez would not be recalled if there wasn’t a place for him to play everyday.`\
+https://nytimes.com/athletic/5756576/2024/09/09/yankees-jasson-dominguez-promotion/
+
 **Los Angeles Is Obsessed With These Cult Seasonal Melons**\
 `Let’s be honest, so am I.`\
 https://nytimes.com/2024/09/09/dining/los-angeles-melons.html
