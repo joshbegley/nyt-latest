@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5756591/2024/09/09/netflix-aaron-rodgers-series-rel
 https://nytimes.com/2024/09/09/nyregion/eric-adams-administration-investigation.html
 
 **Yankees call up top prospect Jasson Domínguez**\
-`The team had said recently that Domínguez would not be recalled if there wasn’t a place for him to play everyday.`\
+`The team recently said that Domínguez would not be recalled if there wasn’t a place for him to play every day.`\
 https://nytimes.com/athletic/5756576/2024/09/09/yankees-jasson-dominguez-promotion/
 
 **Los Angeles Is Obsessed With These Cult Seasonal Melons**\
