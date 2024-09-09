@@ -1,3 +1,7 @@
+**Raiders' Alexander Mattison hurdles to a time share with Zamir White at running back**\
+`The Raiders plan to ride the hot hand and, on Sunday, that was Mattison, who scored the team's lone touchdown.`\
+https://nytimes.com/athletic/5756875/2024/09/09/alexander-mattison-raiders-running-back-zamir-white/
+
 **Ed Kranepool, A Teenage Met Who Lasted 18 Seasons, Dies at 79**\
 `“Steady Eddie” was drafted as a 17 year-old, played more games than any Met and in 1969 was a member of the World Series champs “Miracle Mets.”`\
 https://nytimes.com/2024/09/09/sports/baseball/ed-kranepool-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/09/09/world/middleeast/airstrikes-syria-weapons-develop
 **Full Time: Goodbye, Alex Morgan**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/5756639/2024/09/09/alex-morgan-retire-uswnt-nwsl-full-time/
-
-**Rams' Puka Nacua to go on IR, plus lengthy list of injury updates and backup plans**\
-`The Rams left Detroit with an overtime loss and an exhaustive list of injuries — mostly on the O-line — that included star WR Puka Nacua.`\
-https://nytimes.com/athletic/5756608/2024/09/09/rams-puka-nacua-injured-reserve-injury-updates/
 
