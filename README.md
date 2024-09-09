@@ -1,3 +1,11 @@
+**Aaron Rodgers Netflix docu-series to be released Dec. 17**\
+`The docu-series follows the quarterback's recovery from the Achilles tendon injury that ended his 2023 season after only four plays.`\
+https://nytimes.com/athletic/5756591/2024/09/09/netflix-aaron-rodgers-series-release/
+
+**Searches in Adams’s Inner Circle Suggest Investigations Are Intensifying**\
+`Former corruption prosecutors said that dramatic moves by federal agents hint that U.S. inquiries have made a significant step forward.`\
+https://nytimes.com/2024/09/09/nyregion/eric-adams-administration-investigation.html
+
 **Yankees call up top prospect Jasson Domínguez**\
 `The team had said recently that Domínguez would not be recalled if there wasn’t a place for him to play everyday.`\
 https://nytimes.com/athletic/5756576/2024/09/09/yankees-jasson-dominguez-promotion/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/09/health/teen-brains-pandemic-girls.html
 **The Lonely Anger of Democratic Women in North Carolina**\
 `At a Harris-Walz event, many said they are outnumbered and ostracized.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/north-carolina-democratic-women
-
-**San Francisco Giants week in review: Another walk-off, an extension and a missing glove**\
-`The Giants got a quick return on their Matt Chapman investment and saw an infielder lose a glove completely in another .500 week.`\
-https://nytimes.com/athletic/5755131/2024/09/09/sf-giants-week-in-review-chapman-extension-defensive-miscues/
-
-**10,000 Feet Up, Scientists Found Hundreds of Airborne Germs**\
-`In 10 flights over Japan, researchers found a host of bacteria and fungi. These high-altitude germs could help spread disease around the world.`\
-https://nytimes.com/2024/09/09/science/high-altitude-germs.html
 
