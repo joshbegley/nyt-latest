@@ -1,3 +1,23 @@
+**Kagan Sees Threats to Everyday Rights Beyond Abortion**\
+`The justice said the Supreme Court’s reasoning in the Dobbs case called into question access to contraception as well as gay and interracial marriage.`\
+https://nytimes.com/2024/09/09/us/politics/supreme-court-kagan-ethics.html
+
+**Kennedy Will Be on Ballot in Michigan, State’s Supreme Court Rules**\
+`Robert F. Kennedy Jr. had ended his presidential campaign and endorsed Donald J. Trump last month. His presence on the ballot could be significant in the crucial battleground state.`\
+https://nytimes.com/2024/09/09/us/politics/rfk-jr-michigan-ballot.html
+
+**Jorge Ramos to Leave Univision After 40 Years at the Network**\
+`TelevisaUnivision announced on Monday that Mr. Ramos and the network had mutually agreed not to renew his contract.`\
+https://nytimes.com/2024/09/09/business/jorge-ramos-univision-departure.html
+
+**12 Great Films of James Earl Jones**\
+`A look at standout movies featuring the actor, who died on Monday at the age of 93.`\
+https://nytimes.com/2024/09/09/movies/james-earl-jones-streaming.html
+
+**Sidney Crosby 'pretty optimistic' new Penguins contract will get done**\
+`Crosby will be entering his 20th season in October, all played with the Penguins.`\
+https://nytimes.com/athletic/5756820/2024/09/09/sidney-crosby-penguins-contract/
+
 **A Clear Choice on the Issue Voters Care About Most**\
 `Both Kamala Harris and Donald Trump have plans to address the high cost of living. The differences between them are stark.`\
 https://nytimes.com/2024/09/09/opinion/harris-trump-debate-issues.html
@@ -13,24 +33,4 @@ https://nytimes.com/athletic/5756747/2024/09/09/derrick-brown-panthers-meniscus-
 **Mets' Ed Kranepool, a mainstay and fan favorite, dies at 79**\
 `Kranepool, a member of the "Miracle Mets" of 1969, was inducted into the Mets Hall of Fame in 1990.`\
 https://nytimes.com/athletic/5756748/2024/09/09/mets-ed-kranepool-dies/
-
-**Rangers prospect Kumar Rocker, twice a first-round pick, to make his MLB debut**\
-`Rangers have won 10 of their last 13 games but sit 6.5 games out of playoff contention.`\
-https://nytimes.com/athletic/5756705/2024/09/09/rangers-prospect-kumar-rocker-mlb-debut/
-
-**Odegaard suffers ankle injury ahead of north London derby**\
-`Arsenal captain Martin Odegaard was forced off with an apparent ankle injury during Norway&#8217;s 2-1 win over Austria on Monday evening.`\
-https://nytimes.com/athletic/5756644/2024/09/09/martin-odegaard-arsenal-injury/
-
-**Harris Said She Is Ready for the Debate**\
-`Also, the U.S. argued that Google has an ad-tech monopoly. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2024/09/09/briefing/harris-debate-trump-prep-apple-ai-iphone.html
-
-**Maria E. Redo, Who Won Discounts for Older Adults, Dies at 99**\
-`She started a nonprofit in New York City in 1971 by asking stores if they would offer reduced prices for people 65 and over. Thousands of retailers said yes.`\
-https://nytimes.com/2024/09/09/nyregion/maria-e-redo-dead.html
-
-**Adams Tests Positive for Covid, Prompting Him to Scale Back Schedule**\
-`Mayor Eric Adams canceled two planned events as federal investigations swirl around him and his inner circle.`\
-https://nytimes.com/2024/09/09/nyregion/eric-adams-covid-positive.html
 
