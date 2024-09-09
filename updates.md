@@ -1,3 +1,7 @@
+**What Do You Believe In?**\
+`We want to hear from you — whether you’re religious or not.`\
+https://nytimes.com/2024/09/09/briefing/what-do-you-believe-in.html
+
 **Congress Faults Cuomo for Covid Deaths in Nursing Homes**\
 `A House subcommittee detailed how Andrew M. Cuomo, then the governor of New York, and his aides sought to undercount and deflect blame for deaths in nursing homes early in the pandemic.`\
 https://nytimes.com/2024/09/09/nyregion/cuomo-pandemic-nursing-home-deaths.html
