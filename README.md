@@ -1,3 +1,11 @@
+**Google’s Next Antitrust Battle**\
+`The tech giant has lost a series of legal fights that investors have largely shrugged off. But a new trial over its advertising business could carry big consequences.`\
+https://nytimes.com/2024/09/09/business/dealbook/google-next-antitrust-battle.html
+
+**Inside Newcastle live Q&A - Chris Waugh answers your questions every Monday**\
+`Chris Waugh is on hand to answer your Newcastle United questions in his weekly Monday Q&A...`\
+https://nytimes.com/athletic/5755302/2024/09/09/newcastle-questions-transfers-mitchell/
+
 **The Athletic FC: How Brady's Birmingham shocked the game, Chelsea's power struggle**\
 `Today in The Athletic FC: How Birmingham shocked the English game with their spending; Chelsea's ownership split, and what's in a nickname?`\
 https://nytimes.com/athletic/5755331/2024/09/09/how-bradys-birmingham-shocked-the-game-chelseas-power-struggle-english-club-nicknames/
@@ -30,4 +38,3 @@ https://nytimes.com/2024/09/09/briefing/abortion-measures-roe-v-wade.html
 `By Matthew Mpoke Bigg`\
 https://nytimes.com/live/2024/09/09/world/israel-hamas-gaza-war/syria-blames-israel-for-what-appeared-to-be-one-of-the-deadliest-attacks-in-the-country-in-months
 
-**Three Israelis are killed at a border crossing, and other news.**\
