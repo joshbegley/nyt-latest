@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5642070/2024/09/09/hwang-ui-jo-nottingham-forest-le
 https://nytimes.com/athletic/5754047/2024/09/09/michigan-football-texas-takeaways/
 
 **A Tug Between Russia and Europe Divides a Tiny Balkan Nation**\
-`A fallout between former political allies in Montenegro has complicated the country’s efforts to join the European Union and curb pro-Russian influence.`\
+`A falling-out between former political allies in Montenegro has complicated the country’s efforts to join the European Union and curb pro-Russian influence.`\
 https://nytimes.com/2024/09/09/world/europe/montenegro-eu-russia.html
 
 **What I think I know about Penn State after a gut check vs. Bowling Green**\

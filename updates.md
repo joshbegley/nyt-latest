@@ -1,3 +1,7 @@
+**A Tug Between Russia and Europe Divides a Tiny Balkan Nation**\
+`A falling-out between former political allies in Montenegro has complicated the country’s efforts to join the European Union and curb pro-Russian influence.`\
+https://nytimes.com/2024/09/09/world/europe/montenegro-eu-russia.html
+
 **The most 'college football' things that happened in Week 2**\
 `Week 2 brought plenty of excitement and angst to the early season. Relive some of it here.`\
 https://nytimes.com/athletic/5753534/2024/09/09/college-football-week-2-top-moments/
