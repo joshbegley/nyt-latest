@@ -1,3 +1,15 @@
+**Justice Alito Reported $900 Concert Tickets From a German Princess**\
+`Princess Gloria von Thurn und Taxis, a former 1980s party girl and art collector who is now known for her connections to far-right conservatives, told a German news organization the Alitos were “private friends.”`\
+https://nytimes.com/2024/09/08/us/politics/justice-alito-reported-900-concert-tickets-from-a-german-princess.html
+
+**"Unacceptable" spat between Giants rookies Tyler Fitzgerald, Marco Luciano reflects a lack of trust**\
+`A miscommunication between the infielders led to a verbal confrontation in the dugout as the Giants' defensive struggles continue.`\
+https://nytimes.com/athletic/5754704/2024/09/08/unacceptable-spat-between-giants-rookies-tyler-fitzgerald-marco-luciano-reflects-a-lack-of-trust/
+
+**Antonio Pierce's play calling comes up short as Raiders fall to Chargers in season opener**\
+`Pierce opted to punt on fourth-and-1 from the Chargers' 43-yard line with 7:15 left in the game. The decision would doom the Raiders.`\
+https://nytimes.com/athletic/5754433/2024/09/08/raiders-chargers-antonio-pierce-week-1/
+
 **The Latest Zoom for Harris? ‘Paisans for Kamala,’ Featuring Robert De Niro**\
 `Steve Buscemi, Marisa Tomei, John Turturro, Mark Ruffalo and Lorraine Bracco joined Bill de Blasio, Nancy Pelosi and Leon Panetta to raise money for Kamala Harris.`\
 https://nytimes.com/2024/09/08/us/politics/paisans-for-kamala-robert-de-niro-pelosi.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5754529/2024/09/08/tom-brady-fox-nfl-debut-super-bo
 **Why Teen Voices Matter in the 2024 Election**\
 `Introducing the Headway Election Challenge, a running conversation with teenagers about their role in U.S. democracy.`\
 https://nytimes.com/2024/09/08/headway/teen-voices-2024-election.html
-
-**Teenagers and the 2024 Election: How Youth Are Participating in Democracy**\
-`If you’re a teenager in the U.S., we want to hear from you.`\
-https://nytimes.com/explain/2024/09/08/headway/teen-election
-
-**Sam Darnold, Vikings defense come together to overpower Giants in season opener**\
-`On Sunday vs. the Giants, the Vikings defense wreaked havoc, Darnold played smart and they ran the ball well. That's a recipe for success.`\
-https://nytimes.com/athletic/5754402/2024/09/08/vikings-giants-week-1-sam-darnold-defense/
-
-**Josh Allen takes early leap into MVP conversation in Bills' comeback win**\
-`When the Bills sputtered in several areas, Allen stepped up to lead them to a win over the Cardinals.`\
-https://nytimes.com/athletic/5754200/2024/09/08/josh-allen-leap-mvp-bills-cardinals-comeback/
 
