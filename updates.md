@@ -1,3 +1,7 @@
+**James Earl Jones, Actor Whose Voice Could Menace or Melt, Dies at 93**\
+`He overcame a childhood stutter to develop the voice that gave life to characters like Darth Vader in “Star Wars” and Mufasa in “The Lion King,” and went on to collect Tonys, Golden Globes, Emmys and an honorary Oscar for a prodigious body of work.`\
+https://nytimes.com/2024/09/09/obituaries/james-earl-jones-dead.html
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>Are we having fun yet? Are we at least having a better week than <a class="ath_autolink" data-id="216" href="https://www.nytimes.com/athletic/college-football/team/notre-dame-fighting-irish-college-football/">Notre Dame</a>?</p>
 <p>Leave your pre-Week 3 questions here.</p>
