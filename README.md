@@ -2,7 +2,7 @@
 `Urban wet markets are fertile grounds for viral transmission, experts say. Outbreaks of bird flu have already occurred.`\
 https://nytimes.com/2024/09/09/health/bird-flu-wet-markets.html
 
-**Llloyd: Deshaun Watson got trampled by the Cowboys, but please don't blame the protection**\
+**Lloyd: Deshaun Watson got trampled by the Cowboys, but please don't blame the protection**\
 `It’s only one game, but it's Year 3 of the Deshaun Watson Experience and things look eerily similar. Is it too late to request a refund?`\
 https://nytimes.com/athletic/5755058/2024/09/09/browns-cowboys-deshaun-watson/
 
