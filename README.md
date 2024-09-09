@@ -1,3 +1,7 @@
+**The most 'college football' things that happened in Week 2**\
+`Week 2 brought plenty of excitement and angst to the early season. Relive some of it here.`\
+https://nytimes.com/athletic/5753534/2024/09/09/college-football-week-2-top-moments/
+
 **Hwang leaves Forest for Alanyaspor in permanent deal**\
 `Hwang Ui-jo has left Nottingham Forest to join Alanyaspor in a permanent deal.`\
 https://nytimes.com/athletic/5642070/2024/09/09/hwang-ui-jo-nottingham-forest-leaves/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/09/style/designer-clothes-keep-sell.html
 **At the U.S. Open, a Quest for $100 Chicken Nuggets**\
 `The tennis tournament is known for upscale offerings, but a new box of six “golden” nuggets drew a covetous crowd, and plenty of attention online.`\
 https://nytimes.com/2024/09/09/style/us-open-chicken-nuggets.html
-
-**Which Trump Will Be on the Debate Stage With Harris?**\
-`Will he be subdued, or aggressive and rambling?`\
-https://nytimes.com/live/2024/09/03/opinion/thepoint/trump-harris-debate-poll
 
