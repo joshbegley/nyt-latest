@@ -1,3 +1,11 @@
+**In radio interview, Harris makes a debate prediction: ‘I think he’s going to lie.’**\
+`By Reid J. Epstein`\
+https://nytimes.com/live/2024/09/09/us/harris-trump-election/in-radio-interview-harris-makes-a-debate-prediction-i-think-hes-going-to-lie
+
+**Hedge Fund Pushes for End of Murdochs’ Control at News Corp**\
+`Starboard Value, a fund that takes stakes in companies and agitates for changes, said that political disagreements among Rupert Murdoch’s children could be “paralyzing” for the media firm.`\
+https://nytimes.com/2024/09/09/business/dealbook/murdoch-news-corp-starboard-value.html
+
 **Manhunt for Shooter Who Fired at Cars on Kentucky Highway Enters 3rd Day**\
 `At least seven counties in southeastern Kentucky closed schools on Monday as the authorities continue to comb a remote region of the state.`\
 https://nytimes.com/2024/09/09/us/kentucky-shooting-manhunt-schools-closed.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/09/world/israel-hamas-gaza-war/a-deadly-shootin
 **Levi's Stadium turns 10: 49ers' home field still blazing hot, strides made in other areas**\
 `Jed York said he plans to make major investments in Levi's Stadium every 10 years or so to make sure the facility doesn't become outmoded.`\
 https://nytimes.com/athletic/5751942/2024/09/09/49ers-levis-stadium-10-years/
-
-**Giants manager Bob Melvin assesses his first season: 'Probably the hardest year I've had'**\
-`Melvin sees better days ahead for the Giants as young players emerge and a core develops around Logan Webb and Matt Chapman.`\
-https://nytimes.com/athletic/5754038/2024/09/09/sf-giants-bob-melvin-season-lookback/
-
-**Ranking the top 10 Canucks prospects, part 1: No. 10 to No. 6, plus honourable mentions**\
-`With the Penticton Young Stars tournament coming up, here's some of Vancouver's best and brightest youngsters to keep an eye on.`\
-https://nytimes.com/athletic/5750918/2024/09/09/canucks-top-ten-prospects-part-1-penticton/
 

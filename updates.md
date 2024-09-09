@@ -1,3 +1,11 @@
+**In radio interview, Harris makes a debate prediction: ‘I think he’s going to lie.’**\
+`By Reid J. Epstein`\
+https://nytimes.com/live/2024/09/09/us/harris-trump-election/in-radio-interview-harris-makes-a-debate-prediction-i-think-hes-going-to-lie
+
+**Hedge Fund Pushes for End of Murdochs’ Control at News Corp**\
+`Starboard Value, a fund that takes stakes in companies and agitates for changes, said that political disagreements among Rupert Murdoch’s children could be “paralyzing” for the media firm.`\
+https://nytimes.com/2024/09/09/business/dealbook/murdoch-news-corp-starboard-value.html
+
 **Manhunt for Shooter Who Fired at Cars on Kentucky Highway Enters 3rd Day**\
 `At least seven counties in southeastern Kentucky closed schools on Monday as the authorities continue to comb a remote region of the state.`\
 https://nytimes.com/2024/09/09/us/kentucky-shooting-manhunt-schools-closed.html
