@@ -1,3 +1,19 @@
+**10,000 Feet Up, Scientists Found Hundreds of Airborne Germs**\
+`In 10 flights over Japan, researchers found a host of bacteria and fungi. These high-altitude germs could help spread disease around the world.`\
+https://nytimes.com/2024/09/09/science/high-altitude-germs.html
+
+**Higher Taxes Are on the Horizon. Don’t Let Them Spoil Your Retirement.**\
+`Unsustainable deficits will likely force an end to this era of low taxes, but you can plan for it.`\
+https://nytimes.com/2024/09/09/opinion/retirement-higher-taxes-deficit.html
+
+**Here’s What’s Keeping Democrats Up at Night Ahead of the Debate**\
+`Heading into the high-stakes debate on Tuesday, the mood in the party remains upbeat. But with polls looking tight, concerns are starting to seep in.`\
+https://nytimes.com/2024/09/09/us/politics/democrats-concerns-harris-trump-debate.html
+
+**How a Philippine Televangelist Ended Up on the F.B.I.’s Most-Wanted List**\
+`Here is what to know about the powerful doomsday preacher Apollo Carreon Quiboloy and his arrest.`\
+https://nytimes.com/2024/09/09/world/asia/apollo-carreon-quiboloy-philippines-explainer.html
+
 **U.S. Argues Google Created Ad Tech Monopoly**\
 `The tech giant went to court on Monday in a second antitrust trial, this one focused on its dominance in advertising technology software. The case could reshape its business.`\
 https://nytimes.com/2024/09/09/technology/google-antitrust-ad-technology.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/09/briefing/what-do-you-believe-in.html
 **Congress Faults Cuomo for Covid Deaths in Nursing Homes**\
 `A House subcommittee detailed how Andrew M. Cuomo, then the governor of New York, and his aides sought to undercount and deflect blame for deaths in nursing homes early in the pandemic.`\
 https://nytimes.com/2024/09/09/nyregion/cuomo-pandemic-nursing-home-deaths.html
-
-**Germany to Tighten Border Controls as Anti-Immigrant Parties Gain Votes**\
-`The government said it would expand patrols as part of a ‘hard line’ on illegal migration following two deadly stabbings by rejected asylum-seekers and a surge in support for the far right.`\
-https://nytimes.com/2024/09/09/world/europe/germany-to-tighten-border-controls.html
-
-**NASCAR Atlanta takeaways: A Walmart-sign what-if and resetting the title favorites**\
-`A homecoming win for Joey Logano, the big what-ifs from the race, revisiting our Championship 4 favorites and more from Atlanta.`\
-https://nytimes.com/athletic/5755563/2024/09/09/nascar-atlanta-takeaways-walmart-championship-4-favorites/
-
-**How to Turn Your Old iPhone Into an A.I. Phone (and Skip the Upgrade)**\
-`Apple is using Apple Intelligence, a suite of tools for generating images and text, to upsell the iPhone 16. But you can get similar features elsewhere.`\
-https://nytimes.com/2024/09/09/technology/personaltech/iphone-ai-upgrade.html
-
-**Browns' Njoku, Cowboys' Ferguson week to week with injuries**\
-`Both players left with injuries during the second half of the Cowboys' win over the Browns on Sunday.`\
-https://nytimes.com/athletic/5756351/2024/09/09/david-njoku-jake-ferguson-browns-cowboys-injury/
 
