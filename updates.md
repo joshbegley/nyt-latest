@@ -1,3 +1,15 @@
+**The Windup: Will Verlander pitch in the postseason?**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5756096/2024/09/09/justin-verlander-astros-playoffs-the-windup/
+
+**Peter Nygard, Former Fashion Mogul, Is Sentenced to 11 Years in Prison**\
+`Mr. Nygard was convicted in Toronto of sexually assaulting four women in his company’s headquarters. He also faces trials in Montreal, Winnipeg and New York.`\
+https://nytimes.com/2024/09/09/world/canada/peter-nygard-prison-sentence-sexual-assault.html
+
+**Tropical Storm Francine Takes Aim at Louisiana and Texas**\
+`The storm ends a lull in the Atlantic season and is expected to become a hurricane before making landfall.`\
+https://nytimes.com/article/tropical-storm-francine-hurricane.html
+
 **Tracking Tropical Storm Francine**\
 `See the likely path and wind arrival times for Francine.`\
 https://nytimes.com/interactive/2024/09/09/weather/six-map-path-tracker.html
