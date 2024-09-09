@@ -1,3 +1,15 @@
+**2 Charged With Inciting Violence and Promoting Hate Crimes Around the World**\
+`Dallas Humber and Matthew Allison are accused of soliciting hate crimes through the terrorist network they led on the platform Telegram, according to federal prosecutors.`\
+https://nytimes.com/2024/09/09/us/terrorgram-collective-white-supremacists-charged.html
+
+**Carlos Correa 'very encouraged' by recent progress, hints return to field could come soon**\
+`The Twins' shortstop recently started getting a different type of treatment for his plantar fasciitis and he's pleased with the results.`\
+https://nytimes.com/athletic/5756944/2024/09/09/twins-carlos-correa-return-soon/
+
+**I Rewatched the Trump-Clinton Debates So You Don’t Have to**\
+`In 2016, Trump used sexist attacks to turn his opponent’s perceived strengths into weaknesses.`\
+https://nytimes.com/2024/09/09/us/politics/debate-trump-clinton-harris.html
+
 **White House Says G.O.P.’s Afghanistan Report Offers ‘Little or Nothing New’**\
 `President Biden’s spokesman denounced the House Republican investigation of the chaotic 2021 withdrawal as partisan and one-sided.`\
 https://nytimes.com/2024/09/09/us/politics/afghanistan-report.html
@@ -21,16 +33,4 @@ https://nytimes.com/2024/09/09/climate/colombia-environmental-activist-killings.
 **Donald Trump on the Dollar, in His Own Words**\
 `Another day, another bizarre tariff proposal.`\
 https://nytimes.com/2024/09/09/opinion/trump-tariffs-reserve-currency.html
-
-**Police Union Says Miami Dolphins Player Was ‘Uncooperative’ When Stopped**\
-`A video taken by a passing driver showed an officer telling the player, Tyreek Hill, to put down the window of his car, and then almost immediately ordering him out of the car.`\
-https://nytimes.com/2024/09/09/us/tyreek-hill-miami-dolphins-traffic-stop.html
-
-**Raiders' Alexander Mattison hurdles to a time share with Zamir White at running back**\
-`The Raiders plan to ride the hot hand and, on Sunday, that was Mattison, who scored the team's lone touchdown.`\
-https://nytimes.com/athletic/5756875/2024/09/09/alexander-mattison-raiders-running-back-zamir-white/
-
-**Ed Kranepool, A Teenage Met Who Lasted 18 Seasons, Dies at 79**\
-`“Steady Eddie” was drafted as a 17 year-old, played more games than any Met and in 1969 was a member of the World Series champs “Miracle Mets.”`\
-https://nytimes.com/2024/09/09/sports/baseball/ed-kranepool-dead.html
 
