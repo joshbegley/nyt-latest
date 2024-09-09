@@ -1,3 +1,11 @@
+**Jackson: Browns show they're not ready for big stage in lopsided loss to Cowboys**\
+`It was just one game, but it was a thoroughly poor showing.`\
+https://nytimes.com/athletic/5754862/2024/09/08/browns-cowboys-deshaun-watson/
+
+**Jim Harbaugh's vision materializes in Chargers' physical debut win over Raiders**\
+`The Chargers have spent five months working on some odd fourth-quarter-finishing drills. They paid off in Sunday's season opener.`\
+https://nytimes.com/athletic/5754984/2024/09/08/chargers-jim-harbaugh-first-win-raiders/
+
 **Seahawks earn Mike Macdonald's first win after finding their 'swagger' on defense**\
 `Seattle shook off a rocky start, stuck to its game plan on offense and eventually took control of its Week 1 matchup with Denver.`\
 https://nytimes.com/athletic/5754814/2024/09/08/seahawks-mike-macdonald-first-win-broncos/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5754486/2024/09/08/broncos-bo-nix-sean-payton-seaha
 **Puka Nacua ruled out vs. Lions with knee injury**\
 `Nacua finished the game with four receptions for 35 yards.`\
 https://nytimes.com/athletic/5754796/2024/09/08/puka-nacua-rams-knee-injury/
-
-**No Cardinal flew quite like Josh Allen, and that was the difference in Sunday's loss**\
-`Josh Allen went high, the Cardinals stayed low. Good players find a way.`\
-https://nytimes.com/athletic/5754107/2024/09/08/cardinals-bills-josh-allen-kyler-murray/
-
-**Justice Alito Reported $900 Concert Tickets From a German Princess**\
-`Princess Gloria von Thurn und Taxis, a former 1980s party girl and art collector who is now known for her connections to far-right conservatives, told a German news organization the Alitos were “private friends.”`\
-https://nytimes.com/2024/09/08/us/politics/justice-alito-reported-900-concert-tickets-from-a-german-princess.html
 
