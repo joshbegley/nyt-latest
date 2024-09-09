@@ -1,3 +1,7 @@
+**Submit a question for Audrey Snyder's Penn State mailbag**\
+`Penn State is 2-0, but looked showed some issues in a close call against Bowling Green. `\
+https://nytimes.com/athletic/5756658/2024/09/09/submit-your-penn-state-football-questions-for-audrey-snyders-mailbag/
+
 **McDaniel 'proud' of Dolphins coming to Tyreek Hill's aid**\
 `"It's what you hope your team is comprised of," Dolphins coach Mike McDaniel said.`\
 https://nytimes.com/athletic/5756541/2024/09/09/mike-mcdaniel-tyreek-hill-dolphins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5753444/2024/09/09/edmonton-oilers-scoring-lines-20
 **7 Takeaways From This Year’s Seemingly Endless Fire Season**\
 `While the Line Fire burns in Southern California, what can we learn from how a changing climate has affected an expanding fire season?`\
 https://nytimes.com/2024/09/09/climate/climate-changing-fire-season.html
-
-**As Debate Looms, Trump Is Now the One Facing Questions About Age and Capacity**\
-`With President Biden no longer in the race, former President Donald J. Trump would be the oldest person ever to serve in the Oval Office. But his rambling, sometimes incoherent public statements have stirred concern among voters.`\
-https://nytimes.com/2024/09/09/us/politics/debate-trump-age-capacity.html
 
