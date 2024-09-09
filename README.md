@@ -1,3 +1,7 @@
+**Yankees call up top prospect Jasson Domínguez**\
+`The team had said recently that Domínguez would not be recalled if there wasn’t a place for him to play everyday.`\
+https://nytimes.com/athletic/5756576/2024/09/09/yankees-jasson-dominguez-promotion/
+
 **Los Angeles Is Obsessed With These Cult Seasonal Melons**\
 `Let’s be honest, so am I.`\
 https://nytimes.com/2024/09/09/dining/los-angeles-melons.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5755131/2024/09/09/sf-giants-week-in-review-chapman
 **10,000 Feet Up, Scientists Found Hundreds of Airborne Germs**\
 `In 10 flights over Japan, researchers found a host of bacteria and fungi. These high-altitude germs could help spread disease around the world.`\
 https://nytimes.com/2024/09/09/science/high-altitude-germs.html
-
-**Higher Taxes Are on the Horizon. Don’t Let Them Spoil Your Retirement.**\
-`Unsustainable deficits will likely force an end to this era of low taxes, but you can plan for it.`\
-https://nytimes.com/2024/09/09/opinion/retirement-higher-taxes-deficit.html
 
