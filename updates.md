@@ -1,3 +1,7 @@
+**Word of the Day: scalable**\
+`This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/09/09/learning/word-of-the-day-scalable.html
+
 **Typhoon Yagi Weakens After Killing 21 in Vietnam**\
 `The storm was downgraded to a tropical depression after churning across the country’s north. Earlier, it left 24 dead in China and the Philippines.`\
 https://nytimes.com/2024/09/09/us/typhoon-yagi-vietnam-deaths.html
