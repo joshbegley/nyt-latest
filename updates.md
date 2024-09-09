@@ -1,3 +1,15 @@
+**I found Kerlon**\
+`The Athletic has been searching for Kerlon for years. Finally, we found him. He tells his story — and shows us if he can still do the trick`\
+https://nytimes.com/athletic/5739187/2024/09/09/kerlon-seal-dribble-interview-brazil/
+
+**Gylfi Sigurdsson's Icelandic return: 'Everybody here was happy to see him back in football'**\
+`Gylfi Sigurdsson's absence from his final year at Everton has never been publicly explained but he is being embraced in Iceland`\
+https://nytimes.com/athletic/5739410/2024/09/09/gylfi-sigurdsson-return-iceland/
+
+**Dak Prescott not pleased with his play vs. Browns but 'happy' with new contract**\
+`A "sloppy second half" can't take away from a road win for the Cowboys in Week 1 and a new contract for Prescott.`\
+https://nytimes.com/athletic/5754979/2024/09/08/dak-prescott-cowboys-contract-browns/
+
 **Villans, Cherries, Toffees and Tractor Boys: The origins of English football club nicknames**\
 `Why the Gunners? What are Addicks? Eagles vs Seagulls. English club nicknames are varied, so let us explain them…`\
 https://nytimes.com/athletic/5753588/2024/09/09/english-football-nicknames-premier-league/
