@@ -1,3 +1,7 @@
+**Manhunt for Shooter Who Fired at Cars on Kentucky Highway Enters 3rd Day**\
+`At least seven counties in southeastern Kentucky closed schools on Monday as the authorities continue to comb a remote region of the state.`\
+https://nytimes.com/2024/09/09/us/kentucky-shooting-manhunt-schools-closed.html
+
 **The Best View of New York**\
 `Off-White celebrates the allure of the melting pot.`\
 https://nytimes.com/2024/09/09/style/off-white-ib-kamara-new-york-fashion-week.html
