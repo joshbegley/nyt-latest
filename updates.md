@@ -1,3 +1,11 @@
+**Why Teen Voices Matter in the 2024 Election**\
+`Introducing the Headway Election Challenge, a running conversation with teenagers about their role in U.S. democracy.`\
+https://nytimes.com/2024/09/08/headway/teen-voices-2024-election.html
+
+**Teenagers and the 2024 Election: How Youth Are Participating in Democracy**\
+`If you’re a teenager in the U.S., we want to hear from you.`\
+https://nytimes.com/explain/2024/09/08/headway/teen-election
+
 **Richard Fitts debuts, Bobby Dablec DFA'd, and Red Sox bullpen implodes in critical loss**\
 `"(W)e have to play better,” manager Alex Cora said after the Red Sox allowed five runs in the ninth in a loss to the lowly White Sox.`\
 https://nytimes.com/athletic/5754281/2024/09/08/red-sox-richard-fitts-bobby-dalbec/
