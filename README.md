@@ -1,3 +1,7 @@
+**Josh Allen takes early leap into MVP conversation in Bills' comeback win**\
+`When the Bills sputtered in several areas, Josh Allen stepped up to lead them to a win.`\
+https://nytimes.com/athletic/5754200/2024/09/08/josh-allen-leap-mvp-bills-cardinals-comeback/
+
 **Jannik Sinner lifts the U.S. Open trophy, and some weight off his shoulders**\
 `The world No. 1 emerged from the most challenging period of his career with a title — but not pure relief.`\
 https://nytimes.com/athletic/5754252/2024/09/08/jannik-sinner-us-open/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5753855/2024/09/08/nfl-rookie-qbs-williams-nix-dani
 **Meet Me at the Fair**\
 `A million people go to the Iowa State Fair, all with their own goals and dreams.`\
 https://nytimes.com/2024/09/08/podcasts/fairs-fair-this-american-life-nyt-audio.html
-
-**With Caleb Williams struggling, different heroes emerge for Bears in Week 1**\
-`Defense and special teams keyed the Bears' comeback win against the Titans, saving their rookie QB and an unproductive offense.`\
-https://nytimes.com/athletic/5754120/2024/09/08/bears-defense-special-teams-titans/
 
