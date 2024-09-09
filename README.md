@@ -19,7 +19,7 @@ https://nytimes.com/2024/09/09/arts/music/john-eliot-gardiner-constellation-choi
 https://nytimes.com/athletic/5756885/2024/09/09/paul-blackburn-injury-tylor-megill/
 
 **Why was Joe Burrow so hesitant to let it rip in Bengals' loss to Patriots?**\
-`The quarterback finished 21 of 29, but only six passes were thrown more than seven air yards down the field.`\
+`The quarterback finished 21-of-29, but only six passes were thrown more than 7 air yards down the field.`\
 https://nytimes.com/athletic/5756815/2024/09/09/joe-burrow-bengals-loss-patriots/
 
 **Former Project 2025 Leader Accuses Trump Campaign Advisers of ‘Malpractice’**\
