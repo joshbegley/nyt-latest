@@ -1,3 +1,23 @@
+**Kagan Sees Threats to Everyday Rights Beyond Abortion**\
+`The justice said the Supreme Court’s reasoning in the Dobbs case called into question access to contraception as well as gay and interracial marriage.`\
+https://nytimes.com/2024/09/09/us/politics/supreme-court-kagan-ethics.html
+
+**Kennedy Will Be on Ballot in Michigan, State’s Supreme Court Rules**\
+`Robert F. Kennedy Jr. had ended his presidential campaign and endorsed Donald J. Trump last month. His presence on the ballot could be significant in the crucial battleground state.`\
+https://nytimes.com/2024/09/09/us/politics/rfk-jr-michigan-ballot.html
+
+**Jorge Ramos to Leave Univision After 40 Years at the Network**\
+`TelevisaUnivision announced on Monday that Mr. Ramos and the network had mutually agreed not to renew his contract.`\
+https://nytimes.com/2024/09/09/business/jorge-ramos-univision-departure.html
+
+**12 Great Films of James Earl Jones**\
+`A look at standout movies featuring the actor, who died on Monday at the age of 93.`\
+https://nytimes.com/2024/09/09/movies/james-earl-jones-streaming.html
+
+**Sidney Crosby 'pretty optimistic' new Penguins contract will get done**\
+`Crosby will be entering his 20th season in October, all played with the Penguins.`\
+https://nytimes.com/athletic/5756820/2024/09/09/sidney-crosby-penguins-contract/
+
 **Mets' Ed Kranepool, a mainstay and fan favorite, dies at 79**\
 `Kranepool, a member of the "Miracle Mets" of 1969, was inducted into the Mets Hall of Fame in 1990.`\
 https://nytimes.com/athletic/5756748/2024/09/09/mets-ed-kranepool-dies/
