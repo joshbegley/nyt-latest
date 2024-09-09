@@ -1,3 +1,15 @@
+**Givenchy Appoints Sarah Burton as Creative Director**\
+`The British designer will be the second woman to oversee collections for the 72-year-old French brand.`\
+https://nytimes.com/2024/09/09/style/sarah-burton-givenchy-creative-director.html
+
+**Trump’s Latest Photo Book Offers Gossip, Boasting and a Threat**\
+`“Save America” is the third coffee table book from the former president since 2021. Ten pages are given over to pictures of him with Kim Jong-un, the North Korean dictator.`\
+https://nytimes.com/2024/09/09/us/elections/trump-coffee-table-book-save-america.html
+
+**How Trump Has Used Debates to Belittle Women**\
+`Over nine years in politics, Donald J. Trump has honed a playbook of explicitly gendered attacks in clashes with female candidates and journalists.`\
+https://nytimes.com/2024/09/09/us/politics/trump-debate-women.html
+
 **Dozens Killed in Collision Between Fuel Tanker and Truck in Nigeria**\
 `The traffic accident was the latest disaster to highlight how roads across many African countries are some of the world’s deadliest.`\
 https://nytimes.com/2024/09/09/world/africa/road-collision-nigeria.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5756152/2024/09/09/notre-dame-football-northern-ill
 **Line Fire Grows in Southern California, Closing Schools**\
 `Schools in some San Bernardino County districts were closed on Monday, and forecasters warned that above-average temperatures, wind and low humidity could worsen fire risks.`\
 https://nytimes.com/2024/09/09/us/line-fire-california.html
-
-**The Life-Changing Journey of ‘My Brilliant Friend’**\
-`The four actresses who played Lenù and Lila from adolescence to middle age discuss the end of the HBO series.`\
-https://nytimes.com/2024/09/09/arts/television/my-brilliant-friend-actresses.html
-
-**Submit your Notre Dame mailbag questions after the loss to Northern Illinois**\
-`What's on your mind after Notre Dame lost to Northern Illinois as a four-touchdown favorite?`\
-https://nytimes.com/athletic/5756176/2024/09/09/notre-dame-football-mailbag-questions-niu-2/
-
-**Panthers Derrick Brown to miss time with meniscus injury**\
-`Last season, Brown finished second on the team in both total tackles (103) and passes defended (six).`\
-https://nytimes.com/athletic/5756106/2024/09/09/panthers-derrick-brown-meniscus-injury/
 
