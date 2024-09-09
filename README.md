@@ -1,3 +1,7 @@
+**Teenagers and the 2024 Election: How Youth Are Participating in Democracy**\
+`If you’re a teenager in the U.S., we want to hear from you.`\
+https://nytimes.com/explain/2024/09/08/headway/teen-election
+
 **Sam Darnold, Vikings defense come together to overpower Giants in season opener**\
 `On Sunday vs. the Giants, the Vikings defense wreaked havoc, Darnold played smart and they ran the ball well. That's a recipe for success.`\
 https://nytimes.com/athletic/5754402/2024/09/08/vikings-giants-week-1-sam-darnold-defense/
@@ -27,14 +31,10 @@ https://nytimes.com/athletic/5754231/2024/09/08/justin-fields-russell-wilson-ste
 https://nytimes.com/athletic/5754204/2024/09/08/three-braves-takeaways-chris-sale-steps-up-again-raisel-iglesias-delivers-and-more/
 
 **Richard Fitts debuts, Bobby Dablec DFA'd, and Red Sox bullpen implodes in critical loss**\
-`BOSTON — In need of a spot start on Sunday, the Boston Red Sox turned to rookie right-hander Richard Fitts.`\
+`"(W)e have to play better,” manager Alex Cora said after the Red Sox allowed five runs in the ninth in a loss to the lowly White Sox.`\
 https://nytimes.com/athletic/5754281/2024/09/08/red-sox-richard-fitts-bobby-dalbec/
 
 **New season, uglier result: Bryce Young struggles and Panthers offer little hope in Week 1**\
 `Bryce Young finished with the worst passer rating (32.8) and second-worst completion percentage (43.3) of his career.`\
 https://nytimes.com/athletic/5754311/2024/09/08/carolina-panthers-bryce-young-ugly-loss/
-
-**Rookie QB roundup: How Williams, Nix, Daniels fared in debuts**\
-`Only Caleb Williams' Chicago Bears left Week 1 with a win, and none of them threw for a touchdown in their debuts.`\
-https://nytimes.com/athletic/5753855/2024/09/08/nfl-rookie-qbs-williams-nix-daniels-debuts/
 
