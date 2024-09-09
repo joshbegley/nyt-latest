@@ -1,3 +1,7 @@
+**What’s on TV This Week: Lots of Awards Shows and the Presidential Debate**\
+`The VMAs, Creative Emmys and Emmy Awards are on the schedule, while ABC is hosting the first debate between Kamala Harris and Donald Trump.`\
+https://nytimes.com/2024/09/09/arts/television/whats-on-tv-this-week-lots-of-awards-shows-and-the-presidential-debate.html
+
 **Dan Quinn's Commanders debut full of familiar, frustrating feelings**\
 `Washington struggled in all three phases in a lopsided loss to the Bucs.`\
 https://nytimes.com/athletic/5754877/2024/09/09/commanders-buccaneers-dan-quinn-jayden-daniels-debut/
