@@ -1,3 +1,7 @@
+**The Athletic FC: How Brady's Birmingham shocked the game, Chelsea's power struggle**\
+`Today in The Athletic FC: How Birmingham shocked the English game with their spending; Chelsea's ownership split, and what's in a nickname?`\
+https://nytimes.com/athletic/5755331/2024/09/09/how-bradys-birmingham-shocked-the-game-chelseas-power-struggle-english-club-nicknames/
+
 **Will Blackhawks' CHSN broadcasts be easy to find?**\
 `The new CHSN TV network will be available over the air with an antenna, but the process is somewhat involved.`\
 https://nytimes.com/athletic/5751095/2024/09/09/blackhawks-how-to-watch-chsn/
