@@ -1,3 +1,15 @@
+**A Tug Between Russia and Europe Divides a Tiny Balkan Nation**\
+`A fallout between former political allies in Montenegro has complicated the country’s efforts to join the European Union and curb pro-Russian influence.`\
+https://nytimes.com/2024/09/09/world/europe/montenegro-eu-russia.html
+
+**What I think I know about Penn State after a gut check vs. Bowling Green**\
+`Was Saturday's win a little too close for comfort? Sure. But there's no need to panic and still a lot to like about the Nittany Lions.`\
+https://nytimes.com/athletic/5753648/2024/09/09/penn-state-football-bowling-green-james-franklin/
+
+**What can Lonnie Walker bring to the Celtics after signing training camp deal?**\
+`The Celtics signed shooter Lonnie Walker to a training camp deal. Can he make an impact or is he destined for Maine?`\
+https://nytimes.com/athletic/5749464/2024/09/09/celtics-lonnie-walker-signing-training-camp/
+
 **To Reverse Economic Decline, Europe Must Overhaul Its Strategy, Report Says**\
 `Europe, facing a shrinking share of the global economy, needs to increase its spending on tech and defense, according to a long-awaited report from Mario Draghi.`\
 https://nytimes.com/2024/09/09/business/europe-economy-competitiveness.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/09/us/politics/kamala-harris-debate-joe-biden.html
 **Long Prison Terms Deserve a Second Look and ‘a Little Humanity,’ Judge Argues**\
 `In a new book, Judge Frederic Block, who has served for decades, urged courts to vindicate the promise of the First Step Act, which lets prisoners ask for compassionate release from their sentences.`\
 https://nytimes.com/2024/09/09/us/federal-sentencing-first-step-act.html
-
-**State of the Race: A Dead Heat With 8 Weeks to Go**\
-`Each Monday morning for the next two months, we’ll take an in-depth look at what the polls can tell us.`\
-https://nytimes.com/2024/09/09/upshot/election-polls-trump-harris.html
-
-**The Leader of the Mormon Church Turns 100**\
-`Russell M. Nelson is older than the pope and the Dalai Lama. But serving as president in one’s 11th decade comes with challenges.`\
-https://nytimes.com/2024/09/09/us/russell-nelson-mormon-church-100.html
-
-**What Harris and Trump Say About Each Other**\
-`In the seven weeks they have been campaigning against each other, the vice president and the former president have attacked each other on social media dozens of times. Only Mr. Trump frequently gets personal.`\
-https://nytimes.com/interactive/2024/09/09/us/politics/trump-harris-campaign-social-media.html
 
