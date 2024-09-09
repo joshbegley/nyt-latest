@@ -1,3 +1,7 @@
+**7 Takeaways From This Year’s Seemingly Endless Fire Season**\
+`While the Line Fire burns in Southern California, what can we learn from how a changing climate has affected an expanding fire season?`\
+https://nytimes.com/2024/09/09/climate/climate-changing-fire-season.html
+
 **As Debate Looms, Trump Is Now the One Facing Questions About Age and Capacity**\
 `With President Biden no longer in the race, former President Donald J. Trump would be the oldest person ever to serve in the Oval Office. But his rambling, sometimes incoherent public statements have stirred concern among voters.`\
 https://nytimes.com/2024/09/09/us/politics/debate-trump-age-capacity.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/09/world/asia/apollo-carreon-quiboloy-philippines-ex
 **U.S. Argues Google Created Ad Tech Monopoly**\
 `The tech giant went to court on Monday in a second antitrust trial, this one focused on its dominance in advertising technology software. The case could reshape its business.`\
 https://nytimes.com/2024/09/09/technology/google-antitrust-ad-technology.html
-
-**Jamie Heller to Be Next Top Editor of Business Insider**\
-`Ms. Heller spent two decades at The Wall Street Journal, most recently leading corporate coverage.`\
-https://nytimes.com/2024/09/09/business/media/business-insider-jamie-heller.html
 
