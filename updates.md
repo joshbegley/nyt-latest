@@ -1,3 +1,7 @@
+**Carlos Correa 'very encouraged' by recent progress, hints return to field could come soon**\
+`The Twins' shortstop recently started getting a different type of treatment for his plantar fasciitis, and he's pleased with the results.`\
+https://nytimes.com/athletic/5756944/2024/09/09/twins-carlos-correa-return-soon/
+
 **Deshaun Watson Is Accused of Sexual Assault**\
 `In a lawsuit filed Monday, a woman said the N.F.L. quarterback, who faced numerous accusations of sexual misconduct several years ago, assaulted her in 2020.`\
 https://nytimes.com/2024/09/09/business/deshaun-watson-sexual-assault-lawsuit.html
