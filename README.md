@@ -1,3 +1,11 @@
+**Deshaun Watson accused of sexual assault in new lawsuit**\
+`The incident allegedly occurred on a date at the woman's apartment in October 2020.`\
+https://nytimes.com/athletic/5756759/2024/09/09/deshaun-watson-lawsuit-sexual-assault-allegation/
+
+**Browns sign WR Kadarius Toney to practice squad**\
+`In 32 games played Toney has caught 82 passes for 760 yards and three touchdowns.`\
+https://nytimes.com/athletic/5756975/2024/09/09/kadarius-toney-browns-contract/
+
 **2 Charged With Inciting Violence and Promoting Hate Crimes Around the World**\
 `Dallas Humber and Matthew Allison are accused of soliciting hate crimes through the terrorist network they led on the platform Telegram, according to federal prosecutors.`\
 https://nytimes.com/2024/09/09/us/terrorgram-collective-white-supremacists-charged.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/5756745/2024/09/09/packers-malik-willis-starter-col
 **Joey Bosa shows just how badly he wants to win in Chargers' season opener vs. Raiders**\
 `Bosa took a pay cut this offseason to return to the Chargers with one thing in mind: He wants to win. `\
 https://nytimes.com/athletic/5756969/2024/09/09/joey-bosa-chargers-raiders-week-1/
-
-**Colombia Is the Deadliest Country for Environmental Activists, Report Finds**\
-`As Colombia prepares to host a global biodiversity summit, killings of environmental defenders in the country rose again last year, according to a new report.`\
-https://nytimes.com/2024/09/09/climate/colombia-environmental-activist-killings.html
-
-**Donald Trump on the Dollar, in His Own Words**\
-`Another day, another bizarre tariff proposal.`\
-https://nytimes.com/2024/09/09/opinion/trump-tariffs-reserve-currency.html
 
