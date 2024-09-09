@@ -1,3 +1,7 @@
+**Deshaun Watson Is Accused of Sexual Assault**\
+`In a lawsuit filed Monday, a woman said the N.F.L. quarterback, who faced numerous accusations of sexual misconduct several years ago, assaulted her in 2020.`\
+https://nytimes.com/2024/09/09/business/deshaun-watson-sexual-assault-lawsuit.html
+
 **Deshaun Watson accused of sexual assault in new lawsuit**\
 `The incident allegedly occurred on a date at the woman's apartment in October 2020.`\
 https://nytimes.com/athletic/5756759/2024/09/09/deshaun-watson-lawsuit-sexual-assault-allegation/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5756978/2024/09/09/christian-mccaffrey-inactive-49e
 **Why Packers will likely start Malik Willis at QB against the Colts**\
 `Coach Matt LaFleur didn't rule out Love playing Sunday, but that's likely just gamesmanship.`\
 https://nytimes.com/athletic/5756745/2024/09/09/packers-malik-willis-starter-colts/
-
-**Joey Bosa shows just how badly he wants to win in Chargers' season opener vs. Raiders**\
-`Bosa took a pay cut this offseason to return to the Chargers with one thing in mind: He wants to win. `\
-https://nytimes.com/athletic/5756969/2024/09/09/joey-bosa-chargers-raiders-week-1/
 

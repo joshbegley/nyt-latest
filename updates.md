@@ -1,3 +1,7 @@
+**Deshaun Watson Is Accused of Sexual Assault**\
+`In a lawsuit filed Monday, a woman said the N.F.L. quarterback, who faced numerous accusations of sexual misconduct several years ago, assaulted her in 2020.`\
+https://nytimes.com/2024/09/09/business/deshaun-watson-sexual-assault-lawsuit.html
+
 **Deshaun Watson accused of sexual assault in new lawsuit**\
 `The incident allegedly occurred on a date at the woman's apartment in October 2020.`\
 https://nytimes.com/athletic/5756759/2024/09/09/deshaun-watson-lawsuit-sexual-assault-allegation/
