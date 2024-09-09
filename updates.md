@@ -1,3 +1,7 @@
+**Typhoon Yagi Weakens After Killing 21 in Vietnam**\
+`The storm was downgraded to a tropical depression after churning across the country’s north. Earlier, it left 24 dead in China and the Philippines.`\
+https://nytimes.com/2024/09/09/us/typhoon-yagi-vietnam-deaths.html
+
 **'Atrocious': Justin Verlander's latest debacle puts his postseason in jeopardy**\
 `Not since May 16, 2013, had Verlander yielded eight earned runs in three or fewer innings. The Astros saw it happen Sunday.`\
 https://nytimes.com/athletic/5755098/2024/09/09/astros-justin-verlander-playoffs/

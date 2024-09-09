@@ -1,3 +1,7 @@
+**Typhoon Yagi Weakens After Killing 21 in Vietnam**\
+`The storm was downgraded to a tropical depression after churning across the country’s north. Earlier, it left 24 dead in China and the Philippines.`\
+https://nytimes.com/2024/09/09/us/typhoon-yagi-vietnam-deaths.html
+
 **'Atrocious': Justin Verlander's latest debacle puts his postseason in jeopardy**\
 `Not since May 16, 2013, had Verlander yielded eight earned runs in three or fewer innings. The Astros saw it happen Sunday.`\
 https://nytimes.com/athletic/5755098/2024/09/09/astros-justin-verlander-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5744468/2024/09/09/kieran-trippier-newcastle-future
 **Manchester United fan survey results: happy with transfers but many expectations unchanged**\
 `Impressive buys and sensible sales have contributed to an improved mood among United fans but there's still plenty of work to do  `\
 https://nytimes.com/athletic/5747593/2024/09/09/manchester-united-transfer-survey-results/
-
-**Has Manchester City's disabled parking row shown way for fans to challenge clubs?**\
-`City's change in stance over disabled parking charges poses an interesting dynamic for the future of the club's interaction with fans`\
-https://nytimes.com/athletic/5750807/2024/09/09/city-fan-backlash-disabled-parking/
 
