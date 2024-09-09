@@ -1,3 +1,11 @@
+**With Trump Media Stock Cratering, Donald Trump Has a Decision to Make**\
+`A lockup provision has kept him from being able to sell Trump Media shares. With that prohibition about to expire, the price is down more than 70 percent from its peak.`\
+https://nytimes.com/2024/09/09/business/trump-media-stock-lockup-agreement.html
+
+**Scoop City: Risers and fallers after Week 1**\
+`A look at the best and worst performances from Week 1, including Deshaun Watson and Baker Mayfield.`\
+https://nytimes.com/athletic/5756104/2024/09/09/scoop-city-risers-and-fallers-after-a-wild-sunday/
+
 **Tracking Tropical Storm Francine**\
 `See the likely path and wind arrival times for Francine.`\
 https://nytimes.com/interactive/2024/weather/francine-map-path-tracker.html

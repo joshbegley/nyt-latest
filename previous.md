@@ -1,3 +1,11 @@
+**With Trump Media Stock Cratering, Donald Trump Has a Decision to Make**\
+`A lockup provision has kept him from being able to sell Trump Media shares. With that prohibition about to expire, the price is down more than 70 percent from its peak.`\
+https://nytimes.com/2024/09/09/business/trump-media-stock-lockup-agreement.html
+
+**Scoop City: Risers and fallers after Week 1**\
+`A look at the best and worst performances from Week 1, including Deshaun Watson and Baker Mayfield.`\
+https://nytimes.com/athletic/5756104/2024/09/09/scoop-city-risers-and-fallers-after-a-wild-sunday/
+
 **The Windup: Will Verlander pitch in the postseason?**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5756096/2024/09/09/justin-verlander-astros-playoffs-the-windup/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/09/well/live/dental-amalgam-mercury-fillings.html
 **The Bounce: 3 key questions as WNBA playoffs take shape.**\
 `Jason Jones and Shams Charania catch you up on leaguewide news.`\
 https://nytimes.com/athletic/5755661/2024/09/09/wnba-playoffs-caitlin-clark-aja-wilson-fever-aces-rudy-gobert-shaquille-oneal-nba-the-bounce/
-
-**Kane set for 100th England cap: 'Ronaldo inspires me'**\
-`Harry Kane is set to become the tenth player to earn 100 England caps but has hailed ‘exceptional’ ‘Cristiano Ronaldo as his inspiration to earn more in the coming years.`\
-https://nytimes.com/athletic/5755938/2024/09/09/harry-kane-england-100-caps/
-
-**College football best bets Week 3: LSU, Texas A&M-Florida and 4 more bets**\
-`Austin Mock's model has identified several plays for Week 3 of the college football season.`\
-https://nytimes.com/athletic/5755813/2024/09/09/5755813college-football-best-bets-week-3-cincinnati-lsu-texas-a-m/
 
