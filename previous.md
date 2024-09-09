@@ -1,3 +1,7 @@
+**Bernal undergoes surgery after ACL injury, expected to miss 12 months**\
+`Barcelona midfielder Marc Bernal has undergone surgery after suffering an anterior cruciate ligament (ACL) injury and is expected to be out for 12 months.`\
+https://nytimes.com/athletic/5755634/2024/09/09/barcelona-marc-bernal-injury-acl-surgery/
+
 **Election Live Updates: Harris and Trump Prepare for Debate Showdown in Tight Race**\
 `Donald J. Trump and Kamala Harris will meet this week for the only debate they have scheduled, in what is likely to be a consequential matchup with polls showing a neck-and-neck election.`\
 https://nytimes.com/live/2024/09/09/us/harris-trump-election
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5748220/2024/09/09/marco-rossi-wild-future/
 **The 4 most interesting storylines entering Golden Knights training camp**\
 `There are major roles needing to be filled, with plenty of young players and newcomers hoping they’ll be the ones to step in.`\
 https://nytimes.com/athletic/5750724/2024/09/09/golden-knights-training-camp-eichel/
-
-**Dodgers takeaways: Shohei Ohtani's latest swing, the rotation and more**\
-`Ohtani sits four home runs and four stolen bases from the first 50-50 season in baseball history.`\
-https://nytimes.com/athletic/5754368/2024/09/09/dodgers-shohei-ohtani-mookie-betts/
 

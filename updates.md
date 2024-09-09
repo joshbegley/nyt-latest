@@ -1,3 +1,7 @@
+**Bernal undergoes surgery after ACL injury, expected to miss 12 months**\
+`Barcelona midfielder Marc Bernal has undergone surgery after suffering an anterior cruciate ligament (ACL) injury and is expected to be out for 12 months.`\
+https://nytimes.com/athletic/5755634/2024/09/09/barcelona-marc-bernal-injury-acl-surgery/
+
 **Election Live Updates: Harris and Trump Prepare for Debate Showdown in Tight Race**\
 `Donald J. Trump and Kamala Harris will meet this week for the only debate they have scheduled, in what is likely to be a consequential matchup with polls showing a neck-and-neck election.`\
 https://nytimes.com/live/2024/09/09/us/harris-trump-election
