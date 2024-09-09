@@ -1,3 +1,11 @@
+**Mets' Ed Kranepool, a mainstay and fan favorite, dies at 79**\
+`Kranepool, a member of the "Miracle Mets" of 1969, was inducted into the Mets Hall of Fame in 1990.`\
+https://nytimes.com/athletic/5756748/2024/09/09/mets-ed-kranepool-dies/
+
+**Odegaard suffers ankle injury ahead of north London derby**\
+`Arsenal captain Martin Odegaard was forced off with an apparent ankle injury during Norway&#8217;s 2-1 win over Austria on Monday evening.`\
+https://nytimes.com/athletic/5756644/2024/09/09/martin-odegaard-arsenal-injury/
+
 **A Clear Choice on the Issue Voters Care About Most**\
 `Both Kamala Harris and Donald Trump have plans to address the high cost of living. The differences between them are stark.`\
 https://nytimes.com/2024/09/09/opinion/harris-trump-debate-issues.html

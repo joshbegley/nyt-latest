@@ -11,7 +11,7 @@ https://nytimes.com/2024/09/09/nyregion/columbia-israel-flag-burned-charges.html
 https://nytimes.com/athletic/5756747/2024/09/09/derrick-brown-panthers-meniscus-injury-timeline/
 
 **Mets' Ed Kranepool, a mainstay and fan favorite, dies at 79**\
-`Ed Kranepool, one of the original New York Mets and the longest-tenured player in franchise history, died Sunday at age 79.`\
+`Kranepool, a member of the "Miracle Mets" of 1969, was inducted into the Mets Hall of Fame in 1990.`\
 https://nytimes.com/athletic/5756748/2024/09/09/mets-ed-kranepool-dies/
 
 **Rangers prospect Kumar Rocker, twice a first-round pick, to make his MLB debut**\
@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5756748/2024/09/09/mets-ed-kranepool-dies/
 https://nytimes.com/athletic/5756705/2024/09/09/rangers-prospect-kumar-rocker-mlb-debut/
 
 **Odegaard suffers ankle injury ahead of north London derby**\
-`Arsenal captain Martin Odegaard was forced off with an ankle injury during Norway&#8217;s 2-1 win over Austria on Monday evening.`\
+`Arsenal captain Martin Odegaard was forced off with an apparent ankle injury during Norway&#8217;s 2-1 win over Austria on Monday evening.`\
 https://nytimes.com/athletic/5756644/2024/09/09/martin-odegaard-arsenal-injury/
 
 **Harris Said She Is Ready for the Debate**\
