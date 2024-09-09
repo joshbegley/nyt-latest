@@ -1,3 +1,19 @@
+**A Clear Choice on the Issue Voters Care About Most**\
+`Both Kamala Harris and Donald Trump have plans to address the high cost of living. The differences between them are stark.`\
+https://nytimes.com/2024/09/09/opinion/harris-trump-debate-issues.html
+
+**Lawyer Is Charged With Burning Israeli Flag at Columbia Protest**\
+`The Manhattan district attorney filed arson and criminal mischief against a Brooklyn lawyer who was arrested in a university administration building.`\
+https://nytimes.com/2024/09/09/nyregion/columbia-israel-flag-burned-charges.html
+
+**For a Panthers team in need of leadership and dawgs, the loss of Derrick Brown stings**\
+`Panthers coach Dave Canales said Derrick Brown is getting a second opinion, and the team won’t have a timeline until then.`\
+https://nytimes.com/athletic/5756747/2024/09/09/derrick-brown-panthers-meniscus-injury-timeline/
+
+**Mets' Ed Kranepool, a mainstay and fan favorite, dies at 79**\
+`Ed Kranepool, one of the original New York Mets and the longest-tenured player in franchise history, died Sunday at age 79.`\
+https://nytimes.com/athletic/5756748/2024/09/09/mets-ed-kranepool-dies/
+
 **Rangers prospect Kumar Rocker, twice a first-round pick, to make his MLB debut**\
 `Rangers have won 10 of their last 13 games but sit 6.5 games out of playoff contention.`\
 https://nytimes.com/athletic/5756705/2024/09/09/rangers-prospect-kumar-rocker-mlb-debut/
