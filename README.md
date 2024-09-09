@@ -1,3 +1,7 @@
+**James Earl Jones: A Life in Pictures**\
+`Onstage and in movies and television, Jones delivered with a deep, authoritative, powerful and sometimes menacing voice.`\
+https://nytimes.com/2024/09/09/theater/james-earl-jones-photos.html
+
 **Deshaun Watson Is Accused of Sexual Assault**\
 `In a lawsuit filed Monday, a woman said the N.F.L. quarterback, who faced numerous accusations of sexual misconduct several years ago, assaulted her in 2020.`\
 https://nytimes.com/2024/09/09/business/deshaun-watson-sexual-assault-lawsuit.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/09/09/us/politics/afghanistan-report.html
 **Christian McCaffrey inactive vs. Jets in 49ers season opener**\
 `Jordan Mason will start the game with Patrick Taylor Jr. and rookie Isaac Guerendo also active and available.`\
 https://nytimes.com/athletic/5756978/2024/09/09/christian-mccaffrey-inactive-49ers-jets/
-
-**Why Packers will likely start Malik Willis at QB against the Colts**\
-`Coach Matt LaFleur didn't rule out Love playing Sunday, but that's likely just gamesmanship.`\
-https://nytimes.com/athletic/5756745/2024/09/09/packers-malik-willis-starter-colts/
 
