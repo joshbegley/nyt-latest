@@ -1,3 +1,11 @@
+**Full Time: Goodbye, Alex Morgan**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/5756639/2024/09/09/alex-morgan-retire-uswnt-nwsl-full-time/
+
+**Rams' Puka Nacua to go on IR, plus lengthy list of injury updates and backup plans**\
+`The Rams left Detroit with an overtime loss and an exhaustive list of injuries — mostly on the O-line — that included star WR Puka Nacua.`\
+https://nytimes.com/athletic/5756608/2024/09/09/rams-puka-nacua-injured-reserve-injury-updates/
+
 **Kagan Sees Threats to Everyday Rights Beyond Abortion**\
 `The justice said the Supreme Court’s reasoning in the Dobbs case called into question access to contraception as well as gay and interracial marriage.`\
 https://nytimes.com/2024/09/09/us/politics/supreme-court-kagan-ethics.html

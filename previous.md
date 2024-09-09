@@ -1,3 +1,11 @@
+**Full Time: Goodbye, Alex Morgan**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/5756639/2024/09/09/alex-morgan-retire-uswnt-nwsl-full-time/
+
+**Rams' Puka Nacua to go on IR, plus lengthy list of injury updates and backup plans**\
+`The Rams left Detroit with an overtime loss and an exhaustive list of injuries — mostly on the O-line — that included star WR Puka Nacua.`\
+https://nytimes.com/athletic/5756608/2024/09/09/rams-puka-nacua-injured-reserve-injury-updates/
+
 **Kagan Sees Threats to Everyday Rights Beyond Abortion**\
 `The justice said the Supreme Court’s reasoning in the Dobbs case called into question access to contraception as well as gay and interracial marriage.`\
 https://nytimes.com/2024/09/09/us/politics/supreme-court-kagan-ethics.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/09/09/opinion/harris-trump-debate-issues.html
 **Lawyer Is Charged With Burning Israeli Flag at Columbia Protest**\
 `The Manhattan district attorney filed arson and criminal mischief against a Brooklyn lawyer who was arrested in a university administration building.`\
 https://nytimes.com/2024/09/09/nyregion/columbia-israel-flag-burned-charges.html
-
-**For a Panthers team in need of leadership and dawgs, the loss of Derrick Brown stings**\
-`Panthers coach Dave Canales said Derrick Brown is getting a second opinion, and the team won’t have a timeline until then.`\
-https://nytimes.com/athletic/5756747/2024/09/09/derrick-brown-panthers-meniscus-injury-timeline/
-
-**Mets' Ed Kranepool, a mainstay and fan favorite, dies at 79**\
-`Kranepool, a member of the "Miracle Mets" of 1969, was inducted into the Mets Hall of Fame in 1990.`\
-https://nytimes.com/athletic/5756748/2024/09/09/mets-ed-kranepool-dies/
 
