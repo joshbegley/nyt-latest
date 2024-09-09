@@ -1,3 +1,11 @@
+**Puka Nacua ruled out vs. Lions with knee injury**\
+`Nacua finished the game with four receptions for 35 yards.`\
+https://nytimes.com/athletic/5754796/2024/09/08/puka-nacua-rams-knee-injury/
+
+**No Cardinal flew quite like Josh Allen, and that was the difference in Sunday's loss**\
+`Josh Allen went high, the Cardinals stayed low. Good players find a way.`\
+https://nytimes.com/athletic/5754107/2024/09/08/cardinals-bills-josh-allen-kyler-murray/
+
 **Why Teen Voices Matter in the 2024 Election**\
 `Introducing the Headway Election Challenge, a running conversation with teenagers about their role in U.S. democracy.`\
 https://nytimes.com/2024/09/08/headway/teen-voices-2024-election.html
