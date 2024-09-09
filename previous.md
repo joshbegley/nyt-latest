@@ -1,3 +1,7 @@
+**Hollywood Bowl Cancels Show as Heat Wave Knocks Out Power**\
+`One power supplier said its systems had been overloaded by the prolonged high temperatures. Excess heat warnings remain in place for more than 17 million people in California and Arizona.`\
+https://nytimes.com/2024/09/09/us/california-heatwave-hollywood-bowl-power.html
+
 **Lions refuse to break in prime-time overtime battle against Rams**\
 `Detroit's 24-23 playoff win over Los Angeles in January exorcized demons. After Sunday's win they're right where they're supposed to be.`\
 https://nytimes.com/athletic/5755206/2024/09/09/lions-win-opener-vs-rams/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/09/nyregion/street-wars-park-avenue-redesign.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/09/09/crosswords/spelling-bee-forum.html
-
-**U.S. Prepares to Challenge Google’s Online Ad Dominance**\
-`In a second antitrust trial that starts on Monday, the Justice Department has called for a breakup of the tech giant, which it says controls the vast majority of online advertising.`\
-https://nytimes.com/2024/09/09/technology/google-ads-antitrust-trial.html
 

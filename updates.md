@@ -1,3 +1,7 @@
+**Hollywood Bowl Cancels Show as Heat Wave Knocks Out Power**\
+`One power supplier said its systems had been overloaded by the prolonged high temperatures. Excess heat warnings remain in place for more than 17 million people in California and Arizona.`\
+https://nytimes.com/2024/09/09/us/california-heatwave-hollywood-bowl-power.html
+
 **Lions refuse to break in prime-time overtime battle against Rams**\
 `Detroit's 24-23 playoff win over Los Angeles in January exorcized demons. After Sunday's win they're right where they're supposed to be.`\
 https://nytimes.com/athletic/5755206/2024/09/09/lions-win-opener-vs-rams/
