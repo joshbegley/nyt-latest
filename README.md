@@ -1,3 +1,11 @@
+**The Lonely Anger of Democratic Women in North Carolina**\
+`At a Harris-Walz event, many said they are outnumbered and ostracized.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/north-carolina-democratic-women
+
+**San Francisco Giants week in review: Another walk-off, an extension and a missing glove**\
+`The Giants got a quick return on their Matt Chapman investment and saw an infielder lose a glove completely in another .500 week.`\
+https://nytimes.com/athletic/5755131/2024/09/09/sf-giants-week-in-review-chapman-extension-defensive-miscues/
+
 **10,000 Feet Up, Scientists Found Hundreds of Airborne Germs**\
 `In 10 flights over Japan, researchers found a host of bacteria and fungi. These high-altitude germs could help spread disease around the world.`\
 https://nytimes.com/2024/09/09/science/high-altitude-germs.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/09/world/middleeast/aysenur-ezgi-eygi-funeral.html
 **Walt Ehmer, Former Waffle House C.E.O., Dies at 58**\
 `Mr. Ehmer steered the diner chain through the pandemic and preached spending more time in one of his 24-hour restaurants than in his office.`\
 https://nytimes.com/2024/09/09/us/waffle-house-walt-ehmer-dead.html
-
-**What Do You Believe In?**\
-`We want to hear from you — whether you’re religious or not.`\
-https://nytimes.com/2024/09/09/briefing/what-do-you-believe-in.html
-
-**Congress Faults Cuomo for Covid Deaths in Nursing Homes**\
-`A House subcommittee detailed how Andrew M. Cuomo, then the governor of New York, and his aides sought to undercount and deflect blame for deaths in nursing homes early in the pandemic.`\
-https://nytimes.com/2024/09/09/nyregion/cuomo-pandemic-nursing-home-deaths.html
 
