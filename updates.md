@@ -1,3 +1,7 @@
+**Dozens Killed in Collision Between Fuel Tanker and Truck in Nigeria**\
+`The traffic accident was the latest disaster to highlight how roads across many African countries are some of the world’s deadliest.`\
+https://nytimes.com/2024/09/09/world/africa/road-collision-nigeria.html
+
 **Pittsburgh fires AD Heather Lyke after 7 years**\
 `During Lyke’s tenure, she oversaw widespread athletic department success, including Pitt’s first ACC football championship in 2021.`\
 https://nytimes.com/athletic/5756174/2024/09/09/pitt-athletic-director-heather-lyke-fired/

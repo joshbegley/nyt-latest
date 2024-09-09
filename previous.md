@@ -1,3 +1,7 @@
+**Dozens Killed in Collision Between Fuel Tanker and Truck in Nigeria**\
+`The traffic accident was the latest disaster to highlight how roads across many African countries are some of the world’s deadliest.`\
+https://nytimes.com/2024/09/09/world/africa/road-collision-nigeria.html
+
 **Pittsburgh fires AD Heather Lyke after 7 years**\
 `During Lyke’s tenure, she oversaw widespread athletic department success, including Pitt’s first ACC football championship in 2021.`\
 https://nytimes.com/athletic/5756174/2024/09/09/pitt-athletic-director-heather-lyke-fired/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5756176/2024/09/09/notre-dame-football-mailbag-ques
 **Panthers Derrick Brown to miss time with meniscus injury**\
 `Last season, Brown finished second on the team in both total tackles (103) and passes defended (six).`\
 https://nytimes.com/athletic/5756106/2024/09/09/panthers-derrick-brown-meniscus-injury/
-
-**Catherine, Princess of Wales, Has Completed Her Chemotherapy for Cancer**\
-`In a video message, Catherine said, “Doing what I can to stay cancer free is now my focus.”`\
-https://nytimes.com/2024/09/09/world/europe/kate-middleton-cancer-free-chemotherapy.html
 
