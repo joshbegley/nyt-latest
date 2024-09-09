@@ -1,3 +1,7 @@
+**Los Angeles Is Obsessed With These Cult Seasonal Melons**\
+`Let’s be honest, so am I.`\
+https://nytimes.com/2024/09/09/dining/los-angeles-melons.html
+
 **Wander Lonely, Never Die and Other Things a Cloud Might Do**\
 `Whether as metaphors, decorations or (literal) forces of nature, clouds are everywhere in poetry.`\
 https://nytimes.com/2024/09/09/books/review/poetry-reginald-shepherd-melissa-kwasny.html
