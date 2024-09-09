@@ -1,3 +1,7 @@
+**Alex Morgan plays 13 minutes in final game of her soccer career**\
+`The forward announced her retirement and that she was pregnant with her second child, ending her 16-year career on Sunday.`\
+https://nytimes.com/athletic/5754147/2024/09/08/alex-morgan-final-game-wave-courage-nwsl/
+
 **Josh Allen takes early leap into MVP conversation in Bills' comeback win**\
 `When the Bills sputtered in several areas, Allen stepped up to lead them to a win over the Cardinals.`\
 https://nytimes.com/athletic/5754200/2024/09/08/josh-allen-leap-mvp-bills-cardinals-comeback/
