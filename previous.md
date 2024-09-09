@@ -1,3 +1,7 @@
+**Texas looks like a national title contender. What challenges await on path to Playoff?**\
+`Texas won its first big 2024 showdown at Michigan. But games against opponents such as Georgia, Oklahoma and Texas A&M await.`\
+https://nytimes.com/athletic/5755755/2024/09/09/texas-football-michigan-playoff-georgia-texas-am/
+
 **Do You Know These Sports Books That Became Movies?**\
 `Try this short quiz about screen adaptations and the source material that inspired them.`\
 https://nytimes.com/interactive/2024/09/09/books/review/sports-book-movies.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/09/business/dealbook/murdoch-news-corp-starboard-val
 **Manhunt for Shooter Who Fired at Cars on Kentucky Highway Enters 3rd Day**\
 `At least seven counties in southeastern Kentucky closed schools on Monday as the authorities continue to comb a remote region of the state.`\
 https://nytimes.com/2024/09/09/us/kentucky-shooting-manhunt-schools-closed.html
-
-**The Best View of New York**\
-`Off-White celebrates the allure of the melting pot.`\
-https://nytimes.com/2024/09/09/style/off-white-ib-kamara-new-york-fashion-week.html
 

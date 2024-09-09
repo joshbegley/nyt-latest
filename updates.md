@@ -1,3 +1,7 @@
+**Texas looks like a national title contender. What challenges await on path to Playoff?**\
+`Texas won its first big 2024 showdown at Michigan. But games against opponents such as Georgia, Oklahoma and Texas A&M await.`\
+https://nytimes.com/athletic/5755755/2024/09/09/texas-football-michigan-playoff-georgia-texas-am/
+
 **Do You Know These Sports Books That Became Movies?**\
 `Try this short quiz about screen adaptations and the source material that inspired them.`\
 https://nytimes.com/interactive/2024/09/09/books/review/sports-book-movies.html
