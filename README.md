@@ -1,3 +1,7 @@
+**Arsenal to play Hacken, Man City to face Paris FC in UWCL qualifiers**\
+`Arsenal have been drawn against BK Hacken in round two of Women&#8217;s Champions League qualifying, while Manchester City will face Paris FC.`\
+https://nytimes.com/athletic/5755299/2024/09/09/arsenal-man-city-womens-champions-league-draw/
+
 **Google’s Next Antitrust Battle**\
 `The tech giant has lost a series of legal fights that investors have largely shrugged off. But a new trial over its advertising business could carry big consequences.`\
 https://nytimes.com/2024/09/09/business/dealbook/google-next-antitrust-battle.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5754656/2024/09/09/nfl-week-1-surprises-the-pulse/
 **Abortion on the Ballot**\
 `We explain the 10 measures that would let voters decide abortion policy in their states.`\
 https://nytimes.com/2024/09/09/briefing/abortion-measures-roe-v-wade.html
-
-**Syria blames Israel for what appeared to be one of the deadliest attacks in the country in months.**\
-`By Matthew Mpoke Bigg`\
-https://nytimes.com/live/2024/09/09/world/israel-hamas-gaza-war/syria-blames-israel-for-what-appeared-to-be-one-of-the-deadliest-attacks-in-the-country-in-months
 
