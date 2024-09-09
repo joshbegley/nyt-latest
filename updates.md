@@ -1,3 +1,7 @@
+**Kelleher discusses Liverpool future after Mamardashvili signing**\
+`Caoimhin Kelleher admits it wasn’t his decision to stay at Liverpool this summer as he reiterated his desire to become a No 1 goalkeeper.`\
+https://nytimes.com/athletic/5755621/2024/09/09/caoimhin-kelleher-liverpool-future/
+
 **A deadly shooting at a border crossing highlights worsening unrest in the Israeli-occupied West Bank.**\
 `By Patrick Kingsley`\
 https://nytimes.com/live/2024/09/09/world/israel-hamas-gaza-war/a-deadly-shooting-at-a-border-crossing-highlights-worsening-unrest-in-the-israeli-occupied-west-bank
