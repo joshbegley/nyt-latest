@@ -1,3 +1,7 @@
+**Lions hold off Rams in overtime to cap wild Week 1**\
+`David Montgomery, who had 17 carries and 91 yards, won the game in OT with a one-yard rushing touchdown.`\
+https://nytimes.com/athletic/5754928/2024/09/08/rams-lions-result-takeaways-overtime/
+
 **Jackson: Browns show they're not ready for big stage in lopsided loss to Cowboys**\
 `It was just one game, but it was a thoroughly poor showing.`\
 https://nytimes.com/athletic/5754862/2024/09/08/browns-cowboys-deshaun-watson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5754795/2024/09/08/raiders-week-1-chargers-offense-
 **After Bo Nix's debut flop, Sean Payton challenges Broncos: 'Let's help this guy'**\
 `Without a productive running game to rely on Sunday, Nix attempted 42 passes and was also Denver's leading rusher.`\
 https://nytimes.com/athletic/5754486/2024/09/08/broncos-bo-nix-sean-payton-seahawks-loss/
-
-**Puka Nacua ruled out vs. Lions with knee injury**\
-`Nacua finished the game with four receptions for 35 yards.`\
-https://nytimes.com/athletic/5754796/2024/09/08/puka-nacua-rams-knee-injury/
 
