@@ -1,3 +1,7 @@
+**Teenagers and the 2024 Election: How Youth Are Participating in Democracy**\
+`If you’re a teenager in the U.S., we want to hear from you.`\
+https://nytimes.com/explain/2024/09/08/headway/teen-election
+
 **Sam Darnold, Vikings defense come together to overpower Giants in season opener**\
 `On Sunday vs. the Giants, the Vikings defense wreaked havoc, Darnold played smart and they ran the ball well. That's a recipe for success.`\
 https://nytimes.com/athletic/5754402/2024/09/08/vikings-giants-week-1-sam-darnold-defense/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5754281/2024/09/08/red-sox-richard-fitts-bobby-dalb
 **New season, uglier result: Bryce Young struggles and Panthers offer little hope in Week 1**\
 `Bryce Young finished with the worst passer rating (32.8) and second-worst completion percentage (43.3) of his career.`\
 https://nytimes.com/athletic/5754311/2024/09/08/carolina-panthers-bryce-young-ugly-loss/
-
-**Rookie QB roundup: How Williams, Nix, Daniels fared in debuts**\
-`Only Caleb Williams' Chicago Bears left Week 1 with a win, and none of them threw for a touchdown in their debuts.`\
-https://nytimes.com/athletic/5753855/2024/09/08/nfl-rookie-qbs-williams-nix-daniels-debuts/
 
