@@ -1,3 +1,11 @@
+**Seahawks earn Mike Macdonald's first win after finding their 'swagger' on defense**\
+`Seattle shook off a rocky start, stuck to its game plan on offense and eventually took control of its Week 1 matchup with Denver.`\
+https://nytimes.com/athletic/5754814/2024/09/08/seahawks-mike-macdonald-first-win-broncos/
+
+**What are the NFL's overtime rules? Explaining the nuances**\
+`How does overtime work in the NFL from a rules standpoint? The Athletic has you covered with a full breakdown.`\
+https://nytimes.com/athletic/5734722/2024/09/08/nfl-overtimes-rules-explained/
+
 **Quotation of the Day: Classic Game Show Gets a New Spin**\
 `Quotation of the Day for Monday, September 9, 2024.`\
 https://nytimes.com/2024/09/08/pageoneplus/quotation-of-the-day-classic-game-show-gets-a-new-spin.html
