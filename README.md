@@ -1,3 +1,15 @@
+**Catherine, Princess of Wales, Has Completed Her Chemotherapy for Cancer**\
+`In a video message, Catherine said, “I can’t tell you what a relief it is to have finally completed my chemotherapy treatment.”`\
+https://nytimes.com/2024/09/09/world/europe/kate-middleton-cancer-free-chemotherapy.html
+
+**Beyoncé’s ‘Cowboy ‘Carter’ Gets Zero CMAs Nominations**\
+`The country-plus-everything-else album was given only limited promotion on country radio, with the success of the song “Texas Hold ’Em” driven by streaming and downloads.`\
+https://nytimes.com/2024/09/09/arts/music/beyonce-cmas-nominations-cowboy-carter.html
+
+**College football Week 3 odds, schedule: Alabama goes to Wisconsin and two top-25 matchups**\
+`Alabama goes to Wisconsin as a significant favorite in one of the marquee Week 3 games. There are two top-25 matchups to keep an eye on too.`\
+https://nytimes.com/athletic/5755997/2024/09/09/college-football-week-3-odds-schedule-alabama-wisconsin/
+
 **With Trump Media Stock Cratering, Donald Trump Has a Decision to Make**\
 `A lockup provision has kept him from being able to sell Trump Media shares. With that prohibition about to expire, the price is down more than 70 percent from its peak.`\
 https://nytimes.com/2024/09/09/business/trump-media-stock-lockup-agreement.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2024/weather/francine-map-path-tracker.html
 **The Terrifying Way That Eels Escape a Hungry Fish’s Stomach**\
 `X-ray videos showed that some young Japanese eels demonstrated that they were not content to become a predator’s meal.`\
 https://nytimes.com/2024/09/09/science/eels-escape-fish-stomach.html
-
-**The Miracle of the One-Pot Recipe**\
-`Dan Pelosi’s new chicken and rice dish is a master class in ratios and timing.`\
-https://nytimes.com/2024/09/09/dining/the-miracle-of-the-one-pot-recipe.html
-
-**What to Know About the Mercury in Your Dental Fillings**\
-`The European Union banned mercury amalgam fillings to protect the environment. Should you worry about protecting your health, too?`\
-https://nytimes.com/2024/09/09/well/live/dental-amalgam-mercury-fillings.html
-
-**The Bounce: 3 key questions as WNBA playoffs take shape.**\
-`Jason Jones and Shams Charania catch you up on leaguewide news.`\
-https://nytimes.com/athletic/5755661/2024/09/09/wnba-playoffs-caitlin-clark-aja-wilson-fever-aces-rudy-gobert-shaquille-oneal-nba-the-bounce/
 
