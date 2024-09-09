@@ -1,3 +1,7 @@
+**Airstrikes Hit Syrian City Said to Be a Weapons Research Hub, Killing 18**\
+`Syria accused Israel of carrying out the attacks in and around Masyaf, where experts say missiles and unconventional weapons are developed. Israel did not comment.`\
+https://nytimes.com/2024/09/09/world/middleeast/airstrikes-syria-weapons-development.html
+
 **Full Time: Goodbye, Alex Morgan**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/5756639/2024/09/09/alex-morgan-retire-uswnt-nwsl-full-time/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5756820/2024/09/09/sidney-crosby-penguins-contract/
 **A Clear Choice on the Issue Voters Care About Most**\
 `Both Kamala Harris and Donald Trump have plans to address the high cost of living. The differences between them are stark.`\
 https://nytimes.com/2024/09/09/opinion/harris-trump-debate-issues.html
-
-**Lawyer Is Charged With Burning Israeli Flag at Columbia Protest**\
-`The Manhattan district attorney filed arson and criminal mischief against a Brooklyn lawyer who was arrested in a university administration building.`\
-https://nytimes.com/2024/09/09/nyregion/columbia-israel-flag-burned-charges.html
 

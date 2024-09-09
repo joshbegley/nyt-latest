@@ -1,3 +1,7 @@
+**Airstrikes Hit Syrian City Said to Be a Weapons Research Hub, Killing 18**\
+`Syria accused Israel of carrying out the attacks in and around Masyaf, where experts say missiles and unconventional weapons are developed. Israel did not comment.`\
+https://nytimes.com/2024/09/09/world/middleeast/airstrikes-syria-weapons-development.html
+
 **Full Time: Goodbye, Alex Morgan**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/5756639/2024/09/09/alex-morgan-retire-uswnt-nwsl-full-time/
