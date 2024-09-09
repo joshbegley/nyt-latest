@@ -1,3 +1,7 @@
+**NASCAR Atlanta takeaways: A Walmart-sign what-if and resetting the title favorites**\
+`A homecoming win for Joey Logano, the big what-ifs from the race, revisiting our Championship 4 favorites and more from Atlanta.`\
+https://nytimes.com/athletic/5755563/2024/09/09/nascar-atlanta-takeaways-walmart-championship-4-favorites/
+
 **How to Turn Your Old iPhone Into an A.I. Phone (and Skip the Upgrade)**\
 `Apple is using Apple Intelligence, a suite of tools for generating images and text, to upsell the iPhone 16. But you can get similar features elsewhere.`\
 https://nytimes.com/2024/09/09/technology/personaltech/iphone-ai-upgrade.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/09/opinion/trump-harris-debate.html
 **Legendary Rockets GM Carroll Dawson dies at 86**\
 `Dawson also worked as a Rockets assistant coach, most notably during the team's back-to-back championships in 1994 and 1995.`\
 https://nytimes.com/athletic/5756166/2024/09/09/carroll-dawson-dies-rockets/
-
-**Givenchy Appoints Sarah Burton as Creative Director**\
-`The British designer will be the second woman to oversee collections for the 72-year-old French brand.`\
-https://nytimes.com/2024/09/09/style/sarah-burton-givenchy-creative-director.html
 
