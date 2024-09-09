@@ -1,3 +1,11 @@
+**Sam Darnold, Vikings defense come together to overpower Giants in season opener**\
+`On Sunday vs. the Giants, the Vikings defense wreaked havoc, Darnold played smart and they ran the ball well. That's a recipe for success.`\
+https://nytimes.com/athletic/5754402/2024/09/08/vikings-giants-week-1-sam-darnold-defense/
+
+**Josh Allen takes early leap into MVP conversation in Bills' comeback win**\
+`When the Bills sputtered in several areas, Josh Allen stepped up to lead them to a win.`\
+https://nytimes.com/athletic/5754200/2024/09/08/josh-allen-leap-mvp-bills-cardinals-comeback/
+
 **Jannik Sinner lifts the U.S. Open trophy, and some weight off his shoulders**\
 `The world No. 1 emerged from the most challenging period of his career with a title — but not pure relief.`\
 https://nytimes.com/athletic/5754252/2024/09/08/jannik-sinner-us-open/
