@@ -1,5 +1,5 @@
 **Catherine, Princess of Wales, Has Completed Her Chemotherapy for Cancer**\
-`In a video message, Catherine said, “I can’t tell you what a relief it is to have finally completed my chemotherapy treatment.”`\
+`In a video message, Catherine said, “Doing what I can to stay cancer free is now my focus.”`\
 https://nytimes.com/2024/09/09/world/europe/kate-middleton-cancer-free-chemotherapy.html
 
 **Beyoncé’s ‘Cowboy ‘Carter’ Gets Zero CMAs Nominations**\
