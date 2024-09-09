@@ -1,3 +1,7 @@
+**West Bank Procession is Held For Killed Turkish American Activist**\
+`Aysenur Ezgi Eygi, a 26-year-old campaigner against Israeli occupation, was born in Turkey and raised in Seattle. The Turkish foreign ministry said it was working on transferring her body to Turkey, where her funeral will be held.`\
+https://nytimes.com/video/world/middleeast/100000009680736/west-bank-memorial-procession-activist-.html
+
 **Scott Hanson apologizes for Brady on-air criticism**\
 `Hanson called his criticism of Brady during the Cowboys-Browns game "unfair and inconsiderate."`\
 https://nytimes.com/athletic/5756212/2024/09/09/tom-brady-scott-hanson-apology/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/09/world/africa/road-collision-nigeria.html
 **Pittsburgh fires AD Heather Lyke after 7 years**\
 `During Lyke’s tenure, she oversaw widespread athletic department success, including Pitt’s first ACC football championship in 2021.`\
 https://nytimes.com/athletic/5756174/2024/09/09/pitt-athletic-director-heather-lyke-fired/
-
-**USMNT Player Tracker: How U.S. talent is making Belgium home, and De la Torre consolation**\
-`American talent is flooding to the Jupiler Pro League, while Tony Meola is unimpressed with the USMNT No1's latest Premier League move`\
-https://nytimes.com/athletic/5755930/2024/09/09/usmnt-belgium-torre-turner-tracker/
 

@@ -1,3 +1,7 @@
+**Scott Hanson apologizes for Brady on-air criticism**\
+`Hanson called his criticism of Brady during the Cowboys-Browns game "unfair and inconsiderate."`\
+https://nytimes.com/athletic/5756212/2024/09/09/tom-brady-scott-hanson-apology/
+
 **Battery Maker Northvolt to Cut Costs as E.V. Demand Slumps in Europe**\
 `The Swedish battery manufacturer said it would eliminate jobs and seek partnerships as it grapples with competition from China.`\
 https://nytimes.com/2024/09/09/business/northvolt-battery-electric-vehicles-europe-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5756174/2024/09/09/pitt-athletic-director-heather-l
 **USMNT Player Tracker: How U.S. talent is making Belgium home, and De la Torre consolation**\
 `American talent is flooding to the Jupiler Pro League, while Tony Meola is unimpressed with the USMNT No1's latest Premier League move`\
 https://nytimes.com/athletic/5755930/2024/09/09/usmnt-belgium-torre-turner-tracker/
-
-**Parisians' thoughts on the Paralympics: 'Magnificent, magical' - but can they be catalyst for change?**\
-`Only time will tell if hosting the Paralympics has changed society's perception of disabled people and accessibility provision`\
-https://nytimes.com/athletic/5755455/2024/09/09/paralympics-reaction-paris-fans/
 
