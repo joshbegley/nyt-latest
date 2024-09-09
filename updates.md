@@ -1,3 +1,7 @@
+**Browns' Njoku, Cowboys' Ferguson week to week with injuries**\
+`Both players left with injuries during the second half of the Cowboys' win over the Browns on Sunday.`\
+https://nytimes.com/athletic/5756351/2024/09/09/david-njoku-jake-ferguson-browns-cowboys-injury/
+
 **NFL Week 2 odds, schedule: Packers, Browns on wrong side of line movement**\
 `The NFL Week 2 odds are already on the move with injury news and Week 1 plot twists. See odds for every NFL Week 2 game.`\
 https://nytimes.com/athletic/5756153/2024/09/09/nfl-week-2-odds-spreads-schedule/

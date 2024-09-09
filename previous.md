@@ -1,3 +1,7 @@
+**Browns' Njoku, Cowboys' Ferguson week to week with injuries**\
+`Both players left with injuries during the second half of the Cowboys' win over the Browns on Sunday.`\
+https://nytimes.com/athletic/5756351/2024/09/09/david-njoku-jake-ferguson-browns-cowboys-injury/
+
 **NFL Week 2 odds, schedule: Packers, Browns on wrong side of line movement**\
 `The NFL Week 2 odds are already on the move with injury news and Week 1 plot twists. See odds for every NFL Week 2 game.`\
 https://nytimes.com/athletic/5756153/2024/09/09/nfl-week-2-odds-spreads-schedule/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/09/style/sarah-burton-givenchy-creative-director.htm
 **Trump’s Latest Photo Book Offers Gossip, Boasting and a Threat**\
 `“Save America” is the third coffee table book from the former president since 2021. Ten pages are given over to pictures of him with Kim Jong-un, the North Korean dictator.`\
 https://nytimes.com/2024/09/09/us/elections/trump-coffee-table-book-save-america.html
-
-**How Trump Has Used Debates to Belittle Women**\
-`Over nine years in politics, Donald J. Trump has honed a playbook of explicitly gendered attacks in clashes with female candidates and journalists.`\
-https://nytimes.com/2024/09/09/us/politics/trump-debate-women.html
 
