@@ -1,3 +1,27 @@
+**The Harris Honeymoon Is Over**\
+`Almost 30 percent of voters said they needed to learn more about her.`\
+https://nytimes.com/2024/09/09/podcasts/the-daily/kamala-harris-honeymoon-over.html
+
+**The Taliban’s Gender Apartheid Is a Crime**\
+`New rules that make a woman’s voice illegal in public show why the world must make this a crime against humanity.`\
+https://nytimes.com/2024/09/09/opinion/taliban-afghansitan-gender-apartheid.html
+
+**The Connections Companion No. 457**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 10, 2024.`\
+https://nytimes.com/2024/09/09/crosswords/connections-companion-457.html
+
+**Wordle Review No. 1,179**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, September 10, 2024.`\
+https://nytimes.com/2024/09/09/crosswords/wordle-review-1179.html
+
+**Lucky to win in ugly NFL debut, Bears QB Caleb Williams vows: 'I will be better'**\
+`Williams' NFL debut was a mess, but the Bears still pulled off the win in a very Bears-like fashion. `\
+https://nytimes.com/athletic/5754188/2024/09/09/caleb-williams-bears-ugly-debut/
+
+**Jets state of the franchise: Are they poised for a drastic step back?**\
+`The Jets are a team in transition, with a new coaching staff looking to make its mark on a quality roster.`\
+https://nytimes.com/athletic/5752265/2024/09/09/winnipeg-jets-state-of-the-franchise-2024/
+
 **A Tug Between Russia and Europe Divides a Tiny Balkan Nation**\
 `A falling-out between former political allies in Montenegro has complicated the country’s efforts to join the European Union and curb pro-Russian influence.`\
 https://nytimes.com/2024/09/09/world/europe/montenegro-eu-russia.html

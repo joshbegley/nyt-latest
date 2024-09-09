@@ -1,3 +1,27 @@
+**The Harris Honeymoon Is Over**\
+`Almost 30 percent of voters said they needed to learn more about her.`\
+https://nytimes.com/2024/09/09/podcasts/the-daily/kamala-harris-honeymoon-over.html
+
+**The Taliban’s Gender Apartheid Is a Crime**\
+`New rules that make a woman’s voice illegal in public show why the world must make this a crime against humanity.`\
+https://nytimes.com/2024/09/09/opinion/taliban-afghansitan-gender-apartheid.html
+
+**The Connections Companion No. 457**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, Sept. 10, 2024.`\
+https://nytimes.com/2024/09/09/crosswords/connections-companion-457.html
+
+**Wordle Review No. 1,179**\
+`Scroll down for hints and conversation about the puzzle for Tuesday, September 10, 2024.`\
+https://nytimes.com/2024/09/09/crosswords/wordle-review-1179.html
+
+**Lucky to win in ugly NFL debut, Bears QB Caleb Williams vows: 'I will be better'**\
+`Williams' NFL debut was a mess, but the Bears still pulled off the win in a very Bears-like fashion. `\
+https://nytimes.com/athletic/5754188/2024/09/09/caleb-williams-bears-ugly-debut/
+
+**Jets state of the franchise: Are they poised for a drastic step back?**\
+`The Jets are a team in transition, with a new coaching staff looking to make its mark on a quality roster.`\
+https://nytimes.com/athletic/5752265/2024/09/09/winnipeg-jets-state-of-the-franchise-2024/
+
 **The most 'college football' things that happened in Week 2**\
 `Week 2 brought plenty of excitement and angst to the early season. Relive some of it here.`\
 https://nytimes.com/athletic/5753534/2024/09/09/college-football-week-2-top-moments/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5754047/2024/09/09/michigan-football-texas-takeaway
 **A Tug Between Russia and Europe Divides a Tiny Balkan Nation**\
 `A falling-out between former political allies in Montenegro has complicated the country’s efforts to join the European Union and curb pro-Russian influence.`\
 https://nytimes.com/2024/09/09/world/europe/montenegro-eu-russia.html
-
-**What I think I know about Penn State after a gut check vs. Bowling Green**\
-`Was Saturday's win a little too close for comfort? Sure. But there's no need to panic and still a lot to like about the Nittany Lions.`\
-https://nytimes.com/athletic/5753648/2024/09/09/penn-state-football-bowling-green-james-franklin/
-
-**What can Lonnie Walker bring to the Celtics after signing training camp deal?**\
-`The Celtics signed shooter Lonnie Walker to a training camp deal. Can he make an impact or is he destined for Maine?`\
-https://nytimes.com/athletic/5749464/2024/09/09/celtics-lonnie-walker-signing-training-camp/
-
-**To Reverse Economic Decline, Europe Must Overhaul Its Strategy, Report Says**\
-`Europe, facing a shrinking share of the global economy, needs to increase its spending on tech and defense, according to a long-awaited report from Mario Draghi.`\
-https://nytimes.com/2024/09/09/business/europe-economy-competitiveness.html
-
-**What to Watch at the Donald Trump-Kamala Harris Debate**\
-`As the candidates meet for their only scheduled debate on Tuesday night, here is what to be on the lookout for.`\
-https://nytimes.com/2024/09/09/us/politics/trump-harris-debate-abc.html
-
-**Are Designer Clothes You Don’t Wear Anymore Worth Holding On To?**\
-`A reader wonders what she should do with the high-end garments that stay in her closet year round. Our fashion critic explains her options.`\
-https://nytimes.com/2024/09/09/style/designer-clothes-keep-sell.html
-
-**At the U.S. Open, a Quest for $100 Chicken Nuggets**\
-`The tennis tournament is known for upscale offerings, but a new box of six “golden” nuggets drew a covetous crowd, and plenty of attention online.`\
-https://nytimes.com/2024/09/09/style/us-open-chicken-nuggets.html
 
