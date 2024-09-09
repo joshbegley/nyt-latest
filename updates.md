@@ -1,3 +1,11 @@
+**Congress Faults Cuomo for Covid Deaths in Nursing Homes**\
+`A House subcommittee detailed how Andrew M. Cuomo, then the governor of New York, and his aides sought to undercount and deflect blame for deaths in nursing homes early in the pandemic.`\
+https://nytimes.com/2024/09/09/nyregion/cuomo-pandemic-nursing-home-deaths.html
+
+**Germany to Tighten Border Controls as Anti-Immigrant Parties Gain Votes**\
+`The government said it would expand patrols as part of a ‘hard line’ on illegal migration following two deadly stabbings by rejected asylum-seekers and a surge in support for the far right.`\
+https://nytimes.com/2024/09/09/world/europe/germany-to-tighten-border-controls.html
+
 **NASCAR Atlanta takeaways: A Walmart-sign what-if and resetting the title favorites**\
 `A homecoming win for Joey Logano, the big what-ifs from the race, revisiting our Championship 4 favorites and more from Atlanta.`\
 https://nytimes.com/athletic/5755563/2024/09/09/nascar-atlanta-takeaways-walmart-championship-4-favorites/
