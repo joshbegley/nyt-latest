@@ -1,3 +1,7 @@
+**NFL Week 2 odds, schedule: Packers, Browns on wrong side of line movement**\
+`The NFL Week 2 odds are already on the move with injury news and Week 1 plot twists. See odds for every NFL Week 2 game.`\
+https://nytimes.com/athletic/5756153/2024/09/09/nfl-week-2-odds-spreads-schedule/
+
 **Apple Unveils New Watches as Tech Waits for New iPhones**\
 `The company is expected to showcase a number of new products at a two-hour event.`\
 https://nytimes.com/2024/09/09/technology/apple-event-iphone-16-watch.html
