@@ -1,3 +1,7 @@
+**Lions refuse to break in prime-time overtime battle against Rams**\
+`Detroit's 24-23 playoff win over Los Angeles in January exorcized demons. After Sunday's win they're right where they're supposed to be.`\
+https://nytimes.com/athletic/5755206/2024/09/09/lions-win-opener-vs-rams/
+
 **A Trial Over Tyre Nichols’s Death Begins as Memphis Is in a New Bind**\
 `As three police officers face a federal trial, the city is embroiled in a standoff with state Republican leaders over its policing and public safety policies.`\
 https://nytimes.com/2024/09/09/us/tyre-nichols-murder-trial.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/09/crosswords/spelling-bee-forum.html
 **U.S. Prepares to Challenge Google’s Online Ad Dominance**\
 `In a second antitrust trial that starts on Monday, the Justice Department has called for a breakup of the tech giant, which it says controls the vast majority of online advertising.`\
 https://nytimes.com/2024/09/09/technology/google-ads-antitrust-trial.html
-
-**Google’s Legal Scorecard as Another Antitrust Fight Arrives**\
-`How the tech giant has fared in its major legal battles across the U.S. and Europe so far.`\
-https://nytimes.com/2024/09/09/technology/google-antitrust-trial-legal-scorecard.html
 
