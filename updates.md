@@ -1,3 +1,7 @@
+**After Georgia Shooting, a Grief-Stricken City Seeks Solace, and Answers**\
+`As residents in Winder, Ga., consoled one another, questions rose about whether more could have been done to prevent the attack.`\
+https://nytimes.com/2024/09/08/us/georgia-shooting-winder-grief-questions.html
+
 **Tom Brady, in his NFL broadcast debut, was a man learning the job in real-time**\
 `In his NFL broadcasting debut on Sunday, Tom Brady looked like exactly what he is: a man learning a job on the fly. More work comes now.`\
 https://nytimes.com/athletic/5750467/2024/09/08/tom-brady-fox-nfl-broadcasting-debut/
