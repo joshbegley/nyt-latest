@@ -1,3 +1,7 @@
+**Los Angeles Is Obsessed With These Cult Seasonal Melons**\
+`Let’s be honest, so am I.`\
+https://nytimes.com/2024/09/09/dining/los-angeles-melons.html
+
 **Wander Lonely, Never Die and Other Things a Cloud Might Do**\
 `Whether as metaphors, decorations or (literal) forces of nature, clouds are everywhere in poetry.`\
 https://nytimes.com/2024/09/09/books/review/poetry-reginald-shepherd-melissa-kwasny.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/09/science/high-altitude-germs.html
 **Higher Taxes Are on the Horizon. Don’t Let Them Spoil Your Retirement.**\
 `Unsustainable deficits will likely force an end to this era of low taxes, but you can plan for it.`\
 https://nytimes.com/2024/09/09/opinion/retirement-higher-taxes-deficit.html
-
-**Here’s What’s Keeping Democrats Up at Night Ahead of the Debate**\
-`Heading into the high-stakes debate on Tuesday, the mood in the party remains upbeat. But with polls looking tight, concerns are starting to seep in.`\
-https://nytimes.com/2024/09/09/us/politics/democrats-concerns-harris-trump-debate.html
 

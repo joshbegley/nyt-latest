@@ -1,3 +1,11 @@
+**Wander Lonely, Never Die and Other Things a Cloud Might Do**\
+`Whether as metaphors, decorations or (literal) forces of nature, clouds are everywhere in poetry.`\
+https://nytimes.com/2024/09/09/books/review/poetry-reginald-shepherd-melissa-kwasny.html
+
+**Lowetide: Can the Oilers ice three scoring lines in 2024-25?**\
+`It's time for the Oilers to search for a third forward unit that can produce offensively. `\
+https://nytimes.com/athletic/5753444/2024/09/09/edmonton-oilers-scoring-lines-2024/
+
 **7 Takeaways From This Year’s Seemingly Endless Fire Season**\
 `While the Line Fire burns in Southern California, what can we learn from how a changing climate has affected an expanding fire season?`\
 https://nytimes.com/2024/09/09/climate/climate-changing-fire-season.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/09/opinion/retirement-higher-taxes-deficit.html
 **Here’s What’s Keeping Democrats Up at Night Ahead of the Debate**\
 `Heading into the high-stakes debate on Tuesday, the mood in the party remains upbeat. But with polls looking tight, concerns are starting to seep in.`\
 https://nytimes.com/2024/09/09/us/politics/democrats-concerns-harris-trump-debate.html
-
-**How a Philippine Televangelist Ended Up on the F.B.I.’s Most-Wanted List**\
-`Here is what to know about the powerful doomsday preacher Apollo Carreon Quiboloy and his arrest.`\
-https://nytimes.com/2024/09/09/world/asia/apollo-carreon-quiboloy-philippines-explainer.html
-
-**U.S. Argues Google Created Ad Tech Monopoly**\
-`The tech giant went to court on Monday in a second antitrust trial, this one focused on its dominance in advertising technology software. The case could reshape its business.`\
-https://nytimes.com/2024/09/09/technology/google-antitrust-ad-technology.html
 

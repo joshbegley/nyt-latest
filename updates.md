@@ -1,3 +1,11 @@
+**Wander Lonely, Never Die and Other Things a Cloud Might Do**\
+`Whether as metaphors, decorations or (literal) forces of nature, clouds are everywhere in poetry.`\
+https://nytimes.com/2024/09/09/books/review/poetry-reginald-shepherd-melissa-kwasny.html
+
+**Lowetide: Can the Oilers ice three scoring lines in 2024-25?**\
+`It's time for the Oilers to search for a third forward unit that can produce offensively. `\
+https://nytimes.com/athletic/5753444/2024/09/09/edmonton-oilers-scoring-lines-2024/
+
 **7 Takeaways From This Year’s Seemingly Endless Fire Season**\
 `While the Line Fire burns in Southern California, what can we learn from how a changing climate has affected an expanding fire season?`\
 https://nytimes.com/2024/09/09/climate/climate-changing-fire-season.html
