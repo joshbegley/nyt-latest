@@ -1,3 +1,11 @@
+**Do You Know These Sports Books That Became Movies?**\
+`Try this short quiz about screen adaptations and the source material that inspired them.`\
+https://nytimes.com/interactive/2024/09/09/books/review/sports-book-movies.html
+
+**John Mulaney to Star in a Broadway Comedy About Love and Marriage**\
+`“All In: Comedy About Love,” a new play by Simon Rich, includes a celebrity cast taking on the roles of pirates, dogs and other zany characters.`\
+https://nytimes.com/2024/09/09/arts/john-mulaney-broadway-comedy-love.html
+
 **Russian Forces Capture 2 Villages in Eastern Ukraine, Analysis Shows**\
 `Russia appears to be trying to cut off Ukrainian soldiers around the strategic city of Pokrovsk, a focal point of the war in recent months.`\
 https://nytimes.com/2024/09/09/world/europe/russia-pokrovsk-ukraine.html
