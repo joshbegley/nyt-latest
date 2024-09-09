@@ -1,3 +1,15 @@
+**Joey Bosa shows just how badly he wants to win in Chargers' season opener vs. Raiders**\
+`Bosa took a pay cut this offseason to return to the Chargers with one thing in mind: He wants to win. `\
+https://nytimes.com/athletic/5756969/2024/09/09/joey-bosa-chargers-raiders-week-1/
+
+**Colombia Is the Deadliest Country for Environmental Activists, Report Finds**\
+`As Colombia prepares to host a global biodiversity summit, killings of environmental defenders in the country rose again last year, according to a new report.`\
+https://nytimes.com/2024/09/09/climate/colombia-environmental-activist-killings.html
+
+**Donald Trump on the Dollar, in His Own Words**\
+`Another day, another bizarre tariff proposal.`\
+https://nytimes.com/2024/09/09/opinion/trump-tariffs-reserve-currency.html
+
 **Police Union Says Miami Dolphins Player Was ‘Uncooperative’ When Stopped**\
 `A video taken by a passing driver showed an officer telling the player, Tyreek Hill, to put down the window of his car, and then almost immediately ordering him out of the car.`\
 https://nytimes.com/2024/09/09/us/tyreek-hill-miami-dolphins-traffic-stop.html
