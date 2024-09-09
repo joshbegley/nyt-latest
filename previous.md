@@ -1,3 +1,11 @@
+**The 23 Words Harris Needs to Say to Win**\
+`It’s OK to admit that reality has changed her mind on the big issues.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/friedman-harris-debate
+
+**What we learned from the 2024 U.S. Open**\
+`The final Grand Slam of the year brought tiredness, nerves, good vibes and great tennis.`\
+https://nytimes.com/athletic/5679491/2024/09/09/us-open-2024-recap-takeaways/
+
 **Why New York’s Animal ‘Wet Markets’ Unnerve Some Scientists**\
 `Urban wet markets are fertile grounds for viral transmission, experts say. Outbreaks of bird flu have already occurred.`\
 https://nytimes.com/2024/09/09/health/bird-flu-wet-markets.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5755745/2024/09/09/nascar-playoff-outlook-joey-loga
 **What I learned about Ohio State's offensive and defensive lines: Western Michigan film study**\
 `Ohio State's offensive line improved, while the defensive line showed off its depth. What I learned from the Western Michigan win.`\
 https://nytimes.com/athletic/5755569/2024/09/09/ohio-state-football-offensive-line-defensive-line-western-michigan-film/
-
-**PWHL unveils team names and logos: ‘We just couldn’t be more thrilled’**\
-`After playing a full season with placeholder names, the six PWHL teams released their branding on Monday ahead of the 2024-25 season.`\
-https://nytimes.com/athletic/5750721/2024/09/09/pwhl-team-names-logos-jerseys/
-
-**In radio interview, Harris makes a debate prediction: ‘I think he’s going to lie.’**\
-`By Reid J. Epstein`\
-https://nytimes.com/live/2024/09/09/us/harris-trump-election/in-radio-interview-harris-makes-a-debate-prediction-i-think-hes-going-to-lie
 

@@ -1,3 +1,11 @@
+**The 23 Words Harris Needs to Say to Win**\
+`It’s OK to admit that reality has changed her mind on the big issues.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/friedman-harris-debate
+
+**What we learned from the 2024 U.S. Open**\
+`The final Grand Slam of the year brought tiredness, nerves, good vibes and great tennis.`\
+https://nytimes.com/athletic/5679491/2024/09/09/us-open-2024-recap-takeaways/
+
 **Why New York’s Animal ‘Wet Markets’ Unnerve Some Scientists**\
 `Urban wet markets are fertile grounds for viral transmission, experts say. Outbreaks of bird flu have already occurred.`\
 https://nytimes.com/2024/09/09/health/bird-flu-wet-markets.html
