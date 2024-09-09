@@ -1,3 +1,7 @@
+**Josh Allen takes early leap into MVP conversation in Bills' comeback win**\
+`When the Bills sputtered in several areas, Allen stepped up to lead them to a win over the Cardinals.`\
+https://nytimes.com/athletic/5754200/2024/09/08/josh-allen-leap-mvp-bills-cardinals-comeback/
+
 **Why Teen Voices Matter in the 2024 Election**\
 `Introducing the Headway Election Challenge, a running conversation with teenagers about their role in U.S. democracy.`\
 https://nytimes.com/2024/09/08/headway/teen-voices-2024-election.html

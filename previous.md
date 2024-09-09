@@ -11,7 +11,7 @@ https://nytimes.com/explain/2024/09/08/headway/teen-election
 https://nytimes.com/athletic/5754402/2024/09/08/vikings-giants-week-1-sam-darnold-defense/
 
 **Josh Allen takes early leap into MVP conversation in Bills' comeback win**\
-`When the Bills sputtered in several areas, Josh Allen stepped up to lead them to a win.`\
+`When the Bills sputtered in several areas, Allen stepped up to lead them to a win over the Cardinals.`\
 https://nytimes.com/athletic/5754200/2024/09/08/josh-allen-leap-mvp-bills-cardinals-comeback/
 
 **Jannik Sinner lifts the U.S. Open trophy, and some weight off his shoulders**\

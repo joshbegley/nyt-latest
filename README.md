@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5754252/2024/09/08/jannik-sinner-us-open/
 https://nytimes.com/athletic/5754326/2024/09/08/giants-vikings-familiar-loss-brian-daboll/
 
 **Alex Morgan plays 13 minutes in final game of her soccer career**\
-`The forward announced her retirement and that she was pregnant with her second, ending her 16-year career on Sunday.`\
+`The forward announced her retirement and that she was pregnant with her second child, ending her 16-year career on Sunday.`\
 https://nytimes.com/athletic/5754147/2024/09/08/alex-morgan-final-game-wave-courage-nwsl/
 
 **Justin Fields does just enough in Steelers' win, so what happens next at QB?**\
