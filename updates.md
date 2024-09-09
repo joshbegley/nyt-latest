@@ -1,3 +1,7 @@
+**Lions refuse to break in prime-time overtime battle against Rams**\
+`Detroit's 24-23 playoff win over Los Angeles in January exorcized demons. After Sunday's win they're right where they're supposed to be.`\
+https://nytimes.com/athletic/5755206/2024/09/09/lions-win-opener-vs-rams/
+
 **A Trial Over Tyre Nichols’s Death Begins as Memphis Is in a New Bind**\
 `As three police officers face a federal trial, the city is embroiled in a standoff with state Republican leaders over its policing and public safety policies.`\
 https://nytimes.com/2024/09/09/us/tyre-nichols-murder-trial.html
