@@ -1,3 +1,15 @@
+**Villans, Cherries, Toffees and Tractor Boys: The origins of English football club nicknames**\
+`Why the Gunners? What are Addicks? Eagles vs Seagulls. English club nicknames are varied, so let us explain them…`\
+https://nytimes.com/athletic/5753588/2024/09/09/english-football-nicknames-premier-league/
+
+**Fantasy football Week 1 takeaways: Richardson defies reality, Caleb Williams' dud and more**\
+`Michael Salfino shares his takeaways from Week 1 in the NFL, including his mixed feelings regarding Colts quarterback Anthony Richardson. `\
+https://nytimes.com/athletic/5754714/2024/09/09/fantasy-football-week-1-takeaways-richardson-williams/
+
+**What we learned from Rams-Lions in first OT game of season**\
+`David Montgomery, who had 17 carries and 91 yards, won the game in OT with a one-yard rushing touchdown.`\
+https://nytimes.com/athletic/5754928/2024/09/08/rams-lions-result-takeaways-overtime/
+
 **Monday Briefing**\
 `New polling on the U.S. election.`\
 https://nytimes.com/2024/09/09/briefing/trump-harris-poll-west-bank.html
