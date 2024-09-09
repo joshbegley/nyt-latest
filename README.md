@@ -1,3 +1,7 @@
+**Man Utd enter partnership with local authorities in Old Trafford regeneration next step**\
+`Manchester United have entered a strategic partnership with local authorities to align plans for Old Trafford&#8217;s future with the regeneration of the surrounding area.`\
+https://nytimes.com/athletic/5755286/2024/09/09/manchester-united-old-trafford-regeneration-partnership/
+
 **Hollywood Bowl Cancels Show as Heat Wave Knocks Out Power**\
 `One power supplier said its systems had been overloaded by the prolonged high temperatures. Excess heat warnings remain in place for more than 17 million people in California and Arizona.`\
 https://nytimes.com/2024/09/09/us/california-heatwave-hollywood-bowl-power.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5750872/2024/09/09/f1-rookie-race-explained-abu-dha
 **Does Anyone Want to Hang Out in the Middle of Park Avenue?**\
 `A glimpse at the future of one of Manhattan’s most famous streets — and a look at its history, from train tracks to illegal weed.`\
 https://nytimes.com/2024/09/09/nyregion/street-wars-park-avenue-redesign.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/09/09/crosswords/spelling-bee-forum.html
 
