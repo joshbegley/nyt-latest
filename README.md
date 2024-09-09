@@ -1,3 +1,7 @@
+**NFL Week 2 odds, schedule: Packers, Browns on wrong side of line movement**\
+`The NFL Week 2 odds are already on the move with injury news and Week 1 plot twists. See odds for every NFL Week 2 game.`\
+https://nytimes.com/athletic/5756153/2024/09/09/nfl-week-2-odds-spreads-schedule/
+
 **Apple Unveils New Watches as Tech Waits for New iPhones**\
 `The company is expected to showcase a number of new products at a two-hour event.`\
 https://nytimes.com/2024/09/09/technology/apple-event-iphone-16-watch.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/09/us/elections/trump-coffee-table-book-save-america
 **How Trump Has Used Debates to Belittle Women**\
 `Over nine years in politics, Donald J. Trump has honed a playbook of explicitly gendered attacks in clashes with female candidates and journalists.`\
 https://nytimes.com/2024/09/09/us/politics/trump-debate-women.html
-
-**Dozens Killed in Collision Between Fuel Tanker and Truck in Nigeria**\
-`The traffic accident was the latest disaster to highlight how roads across many African countries are some of the world’s deadliest.`\
-https://nytimes.com/2024/09/09/world/africa/road-collision-nigeria.html
 
