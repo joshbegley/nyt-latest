@@ -1,3 +1,7 @@
+**Typhoon Yagi Tears Through Vietnam**\
+`Typhoon Yagi, one of the most powerful storms to hit northern Vietnam, left a trail of destruction from floods and landslides.`\
+https://nytimes.com/video/world/asia/100000009680381/typhoon-yagi-vietnam-north.html
+
 **What’s on TV This Week: Lots of Awards Shows and the Presidential Debate**\
 `The VMAs, Creative Emmys and Emmy Awards are on the schedule, while ABC is hosting the first debate between Kamala Harris and Donald Trump.`\
 https://nytimes.com/2024/09/09/arts/television/whats-on-tv-this-week-lots-of-awards-shows-and-the-presidential-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5750807/2024/09/09/city-fan-backlash-disabled-parki
 **Can Orel Mangala adapt to Sean Dyche's style?**\
 `The Belgian loanee adds quality to Everton's engine room but his possession-centric style doesn't necessarily appear to be a perfect fit`\
 https://nytimes.com/athletic/5746768/2024/09/09/orel-mangala-everton-sean-dyche/
-
-**I found Kerlon**\
-`The Athletic has been searching for Kerlon for years. Finally, we found him. He tells his story — and shows us if he can still do the trick`\
-https://nytimes.com/athletic/5739187/2024/09/09/kerlon-seal-dribble-interview-brazil/
 

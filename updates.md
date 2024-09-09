@@ -1,3 +1,7 @@
+**Typhoon Yagi Tears Through Vietnam**\
+`Typhoon Yagi, one of the most powerful storms to hit northern Vietnam, left a trail of destruction from floods and landslides.`\
+https://nytimes.com/video/world/asia/100000009680381/typhoon-yagi-vietnam-north.html
+
 **What’s on TV This Week: Lots of Awards Shows and the Presidential Debate**\
 `The VMAs, Creative Emmys and Emmy Awards are on the schedule, while ABC is hosting the first debate between Kamala Harris and Donald Trump.`\
 https://nytimes.com/2024/09/09/arts/television/whats-on-tv-this-week-lots-of-awards-shows-and-the-presidential-debate.html
