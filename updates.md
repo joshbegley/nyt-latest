@@ -1,3 +1,7 @@
+**Submit your Notre Dame mailbag questions after the loss to Northern Illinois**\
+`What's on your mind after Notre Dame lost to Northern Illinois as a four-touchdown favorite?`\
+https://nytimes.com/athletic/5756176/2024/09/09/notre-dame-football-mailbag-questions-niu-2/
+
 **Panthers Derrick Brown to miss time with meniscus injury**\
 `Last season, Brown finished second on the team in both total tackles (103) and passes defended (six).`\
 https://nytimes.com/athletic/5756106/2024/09/09/panthers-derrick-brown-meniscus-injury/
