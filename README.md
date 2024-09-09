@@ -1,3 +1,15 @@
+**Yale Settles With Patients Who Sued Over Painful Egg Retrievals**\
+`Patients received “substantial” payments, their lawyers said, and the clinic agreed to staffing changes.`\
+https://nytimes.com/2024/09/09/health/yale-ivf-egg-retrievals-lawsuit.html
+
+**Funeral for Johnny and Matthew Gaudreau brings overflow crowd, tear-filled remembrances**\
+`Meredith Gaudreau revealed during her eulogy that she had recently shared with Johnny that she was pregnant with the couple's third child.`\
+https://nytimes.com/athletic/5756560/2024/09/09/funeral-johnny-matthew-gaudreau/
+
+**Trump Campaign Amplifies False Claim About Haitian Migrants in Ohio**\
+`A local official said there was “absolutely no evidence” that Haitian migrants have stolen and eaten pets, an outlandish claim amplified by the Trump campaign on Monday.`\
+https://nytimes.com/2024/09/09/us/politics/trump-vance-haitians-ohio.html
+
 **Submit a question for Audrey Snyder's Penn State mailbag**\
 `Penn State is 2-0, but looked showed some issues in a close call against Bowling Green. `\
 https://nytimes.com/athletic/5756658/2024/09/09/submit-your-penn-state-football-questions-for-audrey-snyders-mailbag/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5756576/2024/09/09/yankees-jasson-dominguez-promoti
 **Los Angeles Is Obsessed With These Cult Seasonal Melons**\
 `Let’s be honest, so am I.`\
 https://nytimes.com/2024/09/09/dining/los-angeles-melons.html
-
-**Wander Lonely, Never Die and Other Things a Cloud Might Do**\
-`Whether as metaphors, decorations or (literal) forces of nature, clouds are everywhere in poetry.`\
-https://nytimes.com/2024/09/09/books/review/poetry-reginald-shepherd-melissa-kwasny.html
-
-**Lowetide: Can the Oilers ice three scoring lines in 2024-25?**\
-`It's time for the Oilers to search for a third forward unit that can produce offensively. `\
-https://nytimes.com/athletic/5753444/2024/09/09/edmonton-oilers-scoring-lines-2024/
-
-**7 Takeaways From This Year’s Seemingly Endless Fire Season**\
-`While the Line Fire burns in Southern California, what can we learn from how a changing climate has affected an expanding fire season?`\
-https://nytimes.com/2024/09/09/climate/climate-changing-fire-season.html
 
