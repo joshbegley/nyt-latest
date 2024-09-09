@@ -1,3 +1,7 @@
+**Hwang leaves Forest for Alanyaspor in permanent deal**\
+`Hwang Ui-jo has left Nottingham Forest to join Alanyaspor in a permanent deal.`\
+https://nytimes.com/athletic/5642070/2024/09/09/hwang-ui-jo-nottingham-forest-leaves/
+
 **How serious are Michigan's problems? Final thoughts after the loss to Texas**\
 `Texas is a national title contender, but Michigan may have more issues than anticipated. What can be fixed before USC visits in two weeks?`\
 https://nytimes.com/athletic/5754047/2024/09/09/michigan-football-texas-takeaways/
