@@ -1,3 +1,15 @@
+**Justin Fields does just enough in Steelers' win, so what happens next at QB?**\
+`Fields started when Russell Wilson couldn't play Sunday, but it was Chris Boswell's six field goals that helped Pittsburgh beat Atlanta.`\
+https://nytimes.com/athletic/5754231/2024/09/08/justin-fields-russell-wilson-steelers-falcons/
+
+**New season, uglier result: Bryce Young struggles and Panthers offer little hope in Week 1**\
+`Bryce Young finished with the worst passer rating (32.8) and second-worst completion percentage (43.3) of his career.`\
+https://nytimes.com/athletic/5754311/2024/09/08/carolina-panthers-bryce-young-ugly-loss/
+
+**With Caleb Williams struggling, different heroes emerge for Bears in Week 1**\
+`Defense and special teams keyed the Bears' comeback win against the Titans, saving their rookie QB and an unproductive offense.`\
+https://nytimes.com/athletic/5754120/2024/09/08/bears-defense-special-teams-titans/
+
 **Richard Fitts debuts, Bobby Dablec DFA'd, and Red Sox bullpen implodes in critical loss**\
 `BOSTON — In need of a spot start on Sunday, the Boston Red Sox turned to rookie right-hander Richard Fitts.`\
 https://nytimes.com/athletic/5754281/2024/09/08/red-sox-richard-fitts-bobby-dalbec/
