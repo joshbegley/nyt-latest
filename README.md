@@ -1,3 +1,19 @@
+**USMNT Player Tracker: How U.S. talent is making Belgium home, and De la Torre consolation**\
+`American talent is flooding to the Jupiler Pro League, while Tony Meola is unimpressed with the USMNT No1's latest Premier League move`\
+https://nytimes.com/athletic/5755930/2024/09/09/usmnt-belgium-torre-turner-tracker/
+
+**Parisians' thoughts on the Paralympics: 'Magnificent, magical' - but can they be catalyst for change?**\
+`Only time will tell if hosting the Paralympics has changed society's perception of disabled people and accessibility provision`\
+https://nytimes.com/athletic/5755455/2024/09/09/paralympics-reaction-paris-fans/
+
+**Criminal Charge Against Outspoken Short Seller Unsettles Wall Street**\
+`Andrew Left is fighting a range of criminal and civil charges related to his trading practices, and other investors who make money by betting on a decline in stock prices are watching closely.`\
+https://nytimes.com/2024/09/09/business/andrew-left-citron-short-selling.html
+
+**Final thoughts: It's College Football Playoff or bust for Marcus Freeman, Notre Dame**\
+`How Freeman manages that stress during the next three months will determine whether he makes it as Notre Dame’s coach`\
+https://nytimes.com/athletic/5756152/2024/09/09/notre-dame-football-northern-illinois-marcus-freeman/
+
 **Line Fire Grows in Southern California, Closing Schools**\
 `Schools in some San Bernardino County districts were closed on Monday, and forecasters warned that above-average temperatures, wind and low humidity could worsen fire risks.`\
 https://nytimes.com/2024/09/09/us/line-fire-california.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/09/world/europe/kate-middleton-cancer-free-chemother
 **Beyoncé’s ‘Cowboy ‘Carter’ Gets Zero CMAs Nominations**\
 `The country-plus-everything-else album was given only limited promotion on country radio, with the success of the song “Texas Hold ’Em” driven by streaming and downloads.`\
 https://nytimes.com/2024/09/09/arts/music/beyonce-cmas-nominations-cowboy-carter.html
-
-**College football Week 3 odds, schedule: Alabama goes to Wisconsin and two top-25 matchups**\
-`Alabama goes to Wisconsin as a significant favorite in one of the marquee Week 3 games. There are two top-25 matchups to keep an eye on too.`\
-https://nytimes.com/athletic/5755997/2024/09/09/college-football-week-3-odds-schedule-alabama-wisconsin/
-
-**With Trump Media Stock Cratering, Donald Trump Has a Decision to Make**\
-`A lockup provision has kept him from being able to sell Trump Media shares. With that prohibition about to expire, the price is down more than 70 percent from its peak.`\
-https://nytimes.com/2024/09/09/business/trump-media-stock-lockup-agreement.html
-
-**Scoop City: Risers and fallers after Week 1**\
-`A look at the best and worst performances from Week 1, including Deshaun Watson and Baker Mayfield.`\
-https://nytimes.com/athletic/5756104/2024/09/09/scoop-city-risers-and-fallers-after-a-wild-sunday/
-
-**The Windup: Will Verlander pitch in the postseason?**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5756096/2024/09/09/justin-verlander-astros-playoffs-the-windup/
 
