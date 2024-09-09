@@ -1,3 +1,15 @@
+**Tom Brady, in his NFL broadcast debut, was a man learning the job in real-time**\
+`In his NFL broadcasting debut on Sunday, Tom Brady looked like exactly what he is: a man learning a job on the fly. More work comes now.`\
+https://nytimes.com/athletic/5750467/2024/09/08/tom-brady-fox-nfl-broadcasting-debut/
+
+**Anthony Richardson’s heroic plays should give Colts fans hope despite another Week 1 loss**\
+`Another loss to Houston. Another opening-day defeat. This loss will sting, but Richardson's play provided plenty of silver lining. `\
+https://nytimes.com/athletic/5754431/2024/09/08/colts-anthony-richardson-heroic-week-1-texans-loss/
+
+**For Tom Brady and Fox, Sunday was a first step toward the broadcast that truly counts**\
+`Tom Brady's Fox NFL broadcasting debut was expectedly bumpy. Now he has a lot of weeks until the Super Bowl to smooth it out.`\
+https://nytimes.com/athletic/5754529/2024/09/08/tom-brady-fox-nfl-debut-super-bowl/
+
 **Alex Morgan plays 13 minutes in final game of her soccer career**\
 `The forward announced her retirement and that she was pregnant with her second child, ending her 16-year career on Sunday.`\
 https://nytimes.com/athletic/5754147/2024/09/08/alex-morgan-final-game-wave-courage-nwsl/

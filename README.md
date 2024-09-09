@@ -1,3 +1,7 @@
+**After Georgia Shooting, a Grief-Stricken City Seeks Solace, and Answers**\
+`As residents in Winder, Ga., consoled one another, questions rose about whether more could have been done to prevent the attack.`\
+https://nytimes.com/2024/09/08/us/georgia-shooting-winder-grief-questions.html
+
 **Tom Brady, in his NFL broadcast debut, was a man learning the job in real-time**\
 `In his NFL broadcasting debut on Sunday, Tom Brady looked like exactly what he is: a man learning a job on the fly. More work comes now.`\
 https://nytimes.com/athletic/5750467/2024/09/08/tom-brady-fox-nfl-broadcasting-debut/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5754252/2024/09/08/jannik-sinner-us-open/
 **Giants takeaways: Silver linings in short supply as loss to Vikings looks painfully familiar**\
 `Giants fans looking to find hope in a new season were left disappointed watching Sunday's demoralizing defeat.  `\
 https://nytimes.com/athletic/5754326/2024/09/08/giants-vikings-familiar-loss-brian-daboll/
-
-**Alex Morgan plays 13 minutes in final game of her soccer career**\
-`The forward announced her retirement and that she was pregnant with her second child, ending her 16-year career on Sunday.`\
-https://nytimes.com/athletic/5754147/2024/09/08/alex-morgan-final-game-wave-courage-nwsl/
 

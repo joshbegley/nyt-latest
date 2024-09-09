@@ -1,3 +1,15 @@
+**Tom Brady, in his NFL broadcast debut, was a man learning the job in real-time**\
+`In his NFL broadcasting debut on Sunday, Tom Brady looked like exactly what he is: a man learning a job on the fly. More work comes now.`\
+https://nytimes.com/athletic/5750467/2024/09/08/tom-brady-fox-nfl-broadcasting-debut/
+
+**Anthony Richardson’s heroic plays should give Colts fans hope despite another Week 1 loss**\
+`Another loss to Houston. Another opening-day defeat. This loss will sting, but Richardson's play provided plenty of silver lining. `\
+https://nytimes.com/athletic/5754431/2024/09/08/colts-anthony-richardson-heroic-week-1-texans-loss/
+
+**For Tom Brady and Fox, Sunday was a first step toward the broadcast that truly counts**\
+`Tom Brady's Fox NFL broadcasting debut was expectedly bumpy. Now he has a lot of weeks until the Super Bowl to smooth it out.`\
+https://nytimes.com/athletic/5754529/2024/09/08/tom-brady-fox-nfl-debut-super-bowl/
+
 **Why Teen Voices Matter in the 2024 Election**\
 `Introducing the Headway Election Challenge, a running conversation with teenagers about their role in U.S. democracy.`\
 https://nytimes.com/2024/09/08/headway/teen-voices-2024-election.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5754326/2024/09/08/giants-vikings-familiar-loss-bri
 **Alex Morgan plays 13 minutes in final game of her soccer career**\
 `The forward announced her retirement and that she was pregnant with her second child, ending her 16-year career on Sunday.`\
 https://nytimes.com/athletic/5754147/2024/09/08/alex-morgan-final-game-wave-courage-nwsl/
-
-**Justin Fields does just enough in Steelers' win, so what happens next at QB?**\
-`Fields started when Russell Wilson couldn't play Sunday, but it was Chris Boswell's six field goals that helped Pittsburgh beat Atlanta.`\
-https://nytimes.com/athletic/5754231/2024/09/08/justin-fields-russell-wilson-steelers-falcons/
-
-**Three Braves takeaways: Chris Sale steps up again, Raisel Iglesias delivers and more**\
-`Sale showed again why he’s the staff ace and the favorite to win his first Cy Young Award.`\
-https://nytimes.com/athletic/5754204/2024/09/08/three-braves-takeaways-chris-sale-steps-up-again-raisel-iglesias-delivers-and-more/
-
-**Richard Fitts debuts, Bobby Dablec DFA'd, and Red Sox bullpen implodes in critical loss**\
-`"(W)e have to play better,” manager Alex Cora said after the Red Sox allowed five runs in the ninth in a loss to the lowly White Sox.`\
-https://nytimes.com/athletic/5754281/2024/09/08/red-sox-richard-fitts-bobby-dalbec/
 
