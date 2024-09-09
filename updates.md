@@ -1,3 +1,7 @@
+**Police Union Says Miami Dolphins Player Was ‘Uncooperative’ When Stopped**\
+`A video taken by a passing driver showed an officer telling the player, Tyreek Hill, to put down the window of his car, and then almost immediately ordering him out of the car.`\
+https://nytimes.com/2024/09/09/us/tyreek-hill-miami-dolphins-traffic-stop.html
+
 **Why was Joe Burrow so hesitant to let it rip in Bengals' loss to Patriots?**\
 `The quarterback finished 21-of-29, but only six passes were thrown more than 7 air yards down the field.`\
 https://nytimes.com/athletic/5756815/2024/09/09/joe-burrow-bengals-loss-patriots/

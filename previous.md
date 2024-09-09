@@ -1,3 +1,7 @@
+**Police Union Says Miami Dolphins Player Was ‘Uncooperative’ When Stopped**\
+`A video taken by a passing driver showed an officer telling the player, Tyreek Hill, to put down the window of his car, and then almost immediately ordering him out of the car.`\
+https://nytimes.com/2024/09/09/us/tyreek-hill-miami-dolphins-traffic-stop.html
+
 **Raiders' Alexander Mattison hurdles to a time share with Zamir White at running back**\
 `The Raiders plan to ride the hot hand and, on Sunday, that was Mattison, who scored the team's lone touchdown.`\
 https://nytimes.com/athletic/5756875/2024/09/09/alexander-mattison-raiders-running-back-zamir-white/
@@ -29,8 +33,4 @@ https://nytimes.com/2024/09/09/us/politics/project-2025-trump-dans.html
 **Airstrikes Hit Syrian City Said to Be a Weapons Research Hub, Killing 18**\
 `Syria accused Israel of carrying out the attacks in and around Masyaf, where experts say missiles and unconventional weapons are developed. Israel did not comment.`\
 https://nytimes.com/2024/09/09/world/middleeast/airstrikes-syria-weapons-development.html
-
-**Full Time: Goodbye, Alex Morgan**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/5756639/2024/09/09/alex-morgan-retire-uswnt-nwsl-full-time/
 
