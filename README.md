@@ -1,3 +1,7 @@
+**Line Fire Grows in Southern California, Closing Schools**\
+`Schools in some San Bernardino County districts were closed on Monday, and forecasters warned that above-average temperatures, wind and low humidity could worsen fire risks.`\
+https://nytimes.com/2024/09/09/us/line-fire-california.html
+
 **The Life-Changing Journey of ‘My Brilliant Friend’**\
 `The four actresses who played Lenù and Lila from adolescence to middle age discuss the end of the HBO series.`\
 https://nytimes.com/2024/09/09/arts/television/my-brilliant-friend-actresses.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5756104/2024/09/09/scoop-city-risers-and-fallers-af
 **The Windup: Will Verlander pitch in the postseason?**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5756096/2024/09/09/justin-verlander-astros-playoffs-the-windup/
-
-**Peter Nygard, Former Fashion Mogul, Is Sentenced to 11 Years in Prison**\
-`Mr. Nygard was convicted in Toronto of sexually assaulting four women in his company’s headquarters. He also faces trials in Montreal, Winnipeg and New York.`\
-https://nytimes.com/2024/09/09/world/canada/peter-nygard-prison-sentence-sexual-assault.html
 
