@@ -1,3 +1,15 @@
+**Battery Maker Northvolt to Cut Costs as E.V. Demand Slumps in Europe**\
+`The Swedish battery manufacturer said it would eliminate jobs and seek partnerships as it grapples with competition from China.`\
+https://nytimes.com/2024/09/09/business/northvolt-battery-electric-vehicles-europe-china.html
+
+**Advice for the Trump-Harris Debate**\
+`Readers discuss strategies, the debate rules and possible questions. Also: Migrants in New York schools; household chores; exploiting animals, and humans.`\
+https://nytimes.com/2024/09/09/opinion/trump-harris-debate.html
+
+**Legendary Rockets GM Carroll Dawson dies at 86**\
+`Dawson also worked as a Rockets assistant coach, most notably during the team's back-to-back championships in 1994 and 1995.`\
+https://nytimes.com/athletic/5756166/2024/09/09/carroll-dawson-dies-rockets/
+
 **Givenchy Appoints Sarah Burton as Creative Director**\
 `The British designer will be the second woman to oversee collections for the 72-year-old French brand.`\
 https://nytimes.com/2024/09/09/style/sarah-burton-givenchy-creative-director.html
