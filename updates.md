@@ -1,3 +1,11 @@
+**Twins takeaways after Rocco Baldelli lights up team for 'unprofessional series' vs. Royals**\
+`“That was an unprofessional series of baseball that we just played and that’s my only comment,” Baldelli said after the Twins were swept. `\
+https://nytimes.com/athletic/5754606/2024/09/08/rocco-baldelli-twins-swept-by-royals/
+
+**Tom Brady, in his NFL broadcast debut, was learning the job in real time**\
+`In his NFL broadcasting debut Sunday, Brady looked exactly like what he is: a man learning a job on the fly. More work comes now.`\
+https://nytimes.com/athletic/5750467/2024/09/08/tom-brady-fox-nfl-broadcasting-debut/
+
 **After Georgia Shooting, a Grief-Stricken City Seeks Solace, and Answers**\
 `As residents in Winder, Ga., consoled one another, questions rose about whether more could have been done to prevent the attack.`\
 https://nytimes.com/2024/09/08/us/georgia-shooting-winder-grief-questions.html
