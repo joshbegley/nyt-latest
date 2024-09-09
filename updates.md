@@ -1,3 +1,7 @@
+**Kane set for 100th England cap: 'Ronaldo inspires me'**\
+`Harry Kane is set to become the tenth player to earn 100 England caps but has hailed ‘exceptional’ ‘Cristiano Ronaldo as his inspiration to earn more in the coming years.`\
+https://nytimes.com/athletic/5755938/2024/09/09/harry-kane-england-100-caps/
+
 **College football best bets Week 3: LSU, Texas A&M-Florida and 4 more bets**\
 `Austin Mock's model has identified several plays for Week 3 of the college football season.`\
 https://nytimes.com/athletic/5755813/2024/09/09/5755813college-football-best-bets-week-3-cincinnati-lsu-texas-a-m/
