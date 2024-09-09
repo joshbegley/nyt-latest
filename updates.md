@@ -1,3 +1,7 @@
+**Llloyd: Deshaun Watson got trampled by the Cowboys, but please don't blame the protection**\
+`It’s only one game, but it's Year 3 of the Deshaun Watson Experience and things look eerily similar. Is it too late to request a refund?`\
+https://nytimes.com/athletic/5755058/2024/09/09/browns-cowboys-deshaun-watson/
+
 **Texas looks like a national title contender. What challenges await on path to Playoff?**\
 `Texas won its first big 2024 showdown at Michigan. But games against opponents such as Georgia, Oklahoma and Texas A&M await.`\
 https://nytimes.com/athletic/5755755/2024/09/09/texas-football-michigan-playoff-georgia-texas-am/
