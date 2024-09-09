@@ -1,3 +1,7 @@
+**Pittsburgh fires AD Heather Lyke after 7 years**\
+`During Lyke’s tenure, she oversaw widespread athletic department success, including Pitt’s first ACC football championship in 2021.`\
+https://nytimes.com/athletic/5756174/2024/09/09/pitt-athletic-director-heather-lyke-fired/
+
 **USMNT Player Tracker: How U.S. talent is making Belgium home, and De la Torre consolation**\
 `American talent is flooding to the Jupiler Pro League, while Tony Meola is unimpressed with the USMNT No1's latest Premier League move`\
 https://nytimes.com/athletic/5755930/2024/09/09/usmnt-belgium-torre-turner-tracker/
