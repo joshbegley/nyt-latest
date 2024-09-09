@@ -1,3 +1,7 @@
+**How Tennessee Keeps Nearly Half a Million People From Voting**\
+`The state’s process for restoring voting rights is a master class in undermining democracy.`\
+https://nytimes.com/video/opinion/100000009392729/tennessee-voter-felony-convictions.html
+
 **Man Utd enter partnership with local authorities in Old Trafford regeneration next step**\
 `Manchester United have entered a strategic partnership with local authorities to align plans for Old Trafford&#8217;s future with the regeneration of the surrounding area.`\
 https://nytimes.com/athletic/5755286/2024/09/09/manchester-united-old-trafford-regeneration-partnership/

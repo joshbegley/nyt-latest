@@ -1,3 +1,7 @@
+**How Tennessee Keeps Nearly Half a Million People From Voting**\
+`The state’s process for restoring voting rights is a master class in undermining democracy.`\
+https://nytimes.com/video/opinion/100000009392729/tennessee-voter-felony-convictions.html
+
 **Man Utd enter partnership with local authorities in Old Trafford regeneration next step**\
 `Manchester United have entered a strategic partnership with local authorities to align plans for Old Trafford&#8217;s future with the regeneration of the surrounding area.`\
 https://nytimes.com/athletic/5755286/2024/09/09/manchester-united-old-trafford-regeneration-partnership/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/09/us/trump-train-campaign-bus-trial.html
 **F1's proposed postseason Abu Dhabi rookie race: How it would work, and where teams stand**\
 `F1 officials and teams are currently evaluating a rookies-only race to take place after the end of the season in Abu Dhabi.`\
 https://nytimes.com/athletic/5750872/2024/09/09/f1-rookie-race-explained-abu-dhabi/
-
-**Does Anyone Want to Hang Out in the Middle of Park Avenue?**\
-`A glimpse at the future of one of Manhattan’s most famous streets — and a look at its history, from train tracks to illegal weed.`\
-https://nytimes.com/2024/09/09/nyregion/street-wars-park-avenue-redesign.html
 
