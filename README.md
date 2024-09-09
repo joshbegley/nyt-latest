@@ -1,3 +1,27 @@
+**Levi's Stadium turns 10: 49ers' home field still blazing hot, strides made in other areas**\
+`Jed York said he plans to make major investments in Levi's Stadium every 10 years or so to make sure the facility doesn't become outmoded.`\
+https://nytimes.com/athletic/5751942/2024/09/09/49ers-levis-stadium-10-years/
+
+**Giants manager Bob Melvin assesses his first season: 'Probably the hardest year I've had'**\
+`Melvin sees better days ahead for the Giants as young players emerge and a core develops around Logan Webb and Matt Chapman.`\
+https://nytimes.com/athletic/5754038/2024/09/09/sf-giants-bob-melvin-season-lookback/
+
+**Ranking the top 10 Canucks prospects, part 1: No. 10 to No. 6, plus honourable mentions**\
+`With the Penticton Young Stars tournament coming up, here's some of Vancouver's best and brightest youngsters to keep an eye on.`\
+https://nytimes.com/athletic/5750918/2024/09/09/canucks-top-ten-prospects-part-1-penticton/
+
+**'I know how good I am': Marco Rossi on another 'huge' season and his future with Wild**\
+`Rossi's breakout 21-goal season was followed by trade rumors. Can he take another step in 2024-25 and cement his place on the Wild?`\
+https://nytimes.com/athletic/5748220/2024/09/09/marco-rossi-wild-future/
+
+**The 4 most interesting storylines entering Golden Knights training camp**\
+`There are major roles needing to be filled, with plenty of young players and newcomers hoping they’ll be the ones to step in.`\
+https://nytimes.com/athletic/5750724/2024/09/09/golden-knights-training-camp-eichel/
+
+**Dodgers takeaways: Shohei Ohtani's latest swing, the rotation and more**\
+`Ohtani sits four home runs and four stolen bases from the first 50-50 season in baseball history.`\
+https://nytimes.com/athletic/5754368/2024/09/09/dodgers-shohei-ohtani-mookie-betts/
+
 **Arsenal to play Hacken, Man City to face Paris FC in UWCL qualifiers**\
 `Arsenal have been drawn against BK Hacken in round two of Women&#8217;s Champions League qualifying, while Manchester City will face Paris FC.`\
 https://nytimes.com/athletic/5755299/2024/09/09/arsenal-man-city-womens-champions-league-draw/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5755302/2024/09/09/newcastle-questions-transfers-mi
 **The Athletic FC: How Brady's Birmingham shocked the game, Chelsea's power struggle**\
 `Today in The Athletic FC: How Birmingham shocked the English game with their spending; Chelsea's ownership split, and what's in a nickname?`\
 https://nytimes.com/athletic/5755331/2024/09/09/how-bradys-birmingham-shocked-the-game-chelseas-power-struggle-english-club-nicknames/
-
-**Will Blackhawks' CHSN broadcasts be easy to find?**\
-`The new CHSN TV network will be available over the air with an antenna, but the process is somewhat involved.`\
-https://nytimes.com/athletic/5751095/2024/09/09/blackhawks-how-to-watch-chsn/
-
-**Chelsea in talks to sell Fofana to AEK Athens**\
-`Chelsea have stepped up talks with AEK Athens over the sale of striker David Datro Fofana in the hope a move can be agreed before the window shuts in Greece on Wednesday.`\
-https://nytimes.com/athletic/5755413/2024/09/09/chelsea-david-datro-fofana-transfer-athens/
-
-**The Chelsea ownership crisis: Why Clearlake and Boehly's marriage is at breaking point**\
-`Tensions have risen over Pochettino's departure, the lack of progress on stadium plans and cultural differences in how Chelsea operate`\
-https://nytimes.com/athletic/5753020/2024/09/09/chelsea-clearlake-boehly-fallout/
-
-**Patti Scialfa, Bruce Springsteen’s Wife and Bandmate, Reveals Cancer Diagnosis**\
-`Ms. Scialfa, 71, revealed she was diagnosed with a rare blood cancer in 2018, which has curtailed her appearances onstage with the E Street Band.`\
-https://nytimes.com/2024/09/09/us/patti-scialfa-springsteen-cancer.html
-
-**The Pulse: Five surprises from a wild NFL Sunday**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5754656/2024/09/09/nfl-week-1-surprises-the-pulse/
-
-**Abortion on the Ballot**\
-`We explain the 10 measures that would let voters decide abortion policy in their states.`\
-https://nytimes.com/2024/09/09/briefing/abortion-measures-roe-v-wade.html
 
