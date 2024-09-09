@@ -1,3 +1,19 @@
+**USMNT Player Tracker: How U.S. talent is making Belgium home, and De la Torre consolation**\
+`American talent is flooding to the Jupiler Pro League, while Tony Meola is unimpressed with the USMNT No1's latest Premier League move`\
+https://nytimes.com/athletic/5755930/2024/09/09/usmnt-belgium-torre-turner-tracker/
+
+**Parisians' thoughts on the Paralympics: 'Magnificent, magical' - but can they be catalyst for change?**\
+`Only time will tell if hosting the Paralympics has changed society's perception of disabled people and accessibility provision`\
+https://nytimes.com/athletic/5755455/2024/09/09/paralympics-reaction-paris-fans/
+
+**Criminal Charge Against Outspoken Short Seller Unsettles Wall Street**\
+`Andrew Left is fighting a range of criminal and civil charges related to his trading practices, and other investors who make money by betting on a decline in stock prices are watching closely.`\
+https://nytimes.com/2024/09/09/business/andrew-left-citron-short-selling.html
+
+**Final thoughts: It's College Football Playoff or bust for Marcus Freeman, Notre Dame**\
+`How Freeman manages that stress during the next three months will determine whether he makes it as Notre Dame’s coach`\
+https://nytimes.com/athletic/5756152/2024/09/09/notre-dame-football-northern-illinois-marcus-freeman/
+
 **Line Fire Grows in Southern California, Closing Schools**\
 `Schools in some San Bernardino County districts were closed on Monday, and forecasters warned that above-average temperatures, wind and low humidity could worsen fire risks.`\
 https://nytimes.com/2024/09/09/us/line-fire-california.html
