@@ -1,3 +1,7 @@
+**Villa's young talent pool is deep. So who will be the first to break through under Emery?**\
+`Through deft recruitment and coaching expertise, Villa's academy has plenty of external admirers`\
+https://nytimes.com/athletic/5650311/2024/09/09/aston-villa-unai-emery-academy/
+
 **What we've learned from 100 days of Arne Slot at Liverpool**\
 `Slot has gone about his business with composure and class - and this is how he’s built on the strong foundations already in place`\
 https://nytimes.com/athletic/5751713/2024/09/09/arne-slot-at-liverpool-what-weve-learned-from-first-100-days-at-liverpool/
