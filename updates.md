@@ -1,3 +1,15 @@
+**Chelsea in talks to sell Fofana to AEK Athens**\
+`Chelsea have stepped up talks with AEK Athens over the sale of striker David Datro Fofana in the hope a move can be agreed before the window shuts in Greece on Wednesday.`\
+https://nytimes.com/athletic/5755413/2024/09/09/chelsea-david-datro-fofana-transfer-athens/
+
+**The Chelsea ownership crisis: Why Clearlake and Boehly's marriage is at breaking point**\
+`Tensions have risen over Pochettino's departure, the lack of progress on stadium plans and cultural differences in how Chelsea operate`\
+https://nytimes.com/athletic/5753020/2024/09/09/chelsea-clearlake-boehly-fallout/
+
+**Patti Scialfa, Bruce Springsteen’s Wife and Bandmate, Reveals Cancer Diagnosis**\
+`Ms. Scialfa, 71, revealed she was diagnosed with a rare blood cancer in 2018, which has curtailed her appearances onstage with the E Street Band.`\
+https://nytimes.com/2024/09/09/us/patti-scialfa-springsteen-cancer.html
+
 **The Pulse: Five surprises from a wild NFL Sunday**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5754656/2024/09/09/nfl-week-1-surprises-the-pulse/
