@@ -1,7 +1,3 @@
-**Alex Morgan plays 13 minutes in final game of her soccer career**\
-`The forward announced her retirement and that she was pregnant with her second, ending her 16-year career on Sunday.`\
-https://nytimes.com/athletic/5754147/2024/09/08/alex-morgan-final-game-wave-courage-nwsl/
-
 **Justin Fields does just enough in Steelers' win, so what happens next at QB?**\
 `Fields started when Russell Wilson couldn't play Sunday, but it was Chris Boswell's six field goals that helped Pittsburgh beat Atlanta.`\
 https://nytimes.com/athletic/5754231/2024/09/08/justin-fields-russell-wilson-steelers-falcons/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5754090/2024/09/08/dak-prescott-cowboys-browns-week
 **Taylor Fritz didn't have to play 'unbelievable' at the U.S. Open. Then came Jannik Sinner**\
 `Current men's tennis contenders see more opportunity than when the Big Three were dominating Grand Slams. Yet wins are still a tall order.`\
 https://nytimes.com/athletic/5754072/2024/09/08/taylor-fritz-us-open-mens-tennis-sinner-alcaraz/
+
+**Mets' winning streak comes to an end: 3 takeaways from the hot stretch**\
+`Luis Severino continued a strong run for the Mets rotation, which has 2.05 ERA over the past 10 games.`\
+https://nytimes.com/athletic/5754115/2024/09/08/mets-mlb-wild-card-race-2/
 
