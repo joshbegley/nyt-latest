@@ -1,3 +1,7 @@
+**Word of the Day: scalable**\
+`This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/09/09/learning/word-of-the-day-scalable.html
+
 **Typhoon Yagi Weakens After Killing 21 in Vietnam**\
 `The storm was downgraded to a tropical depression after churning across the country’s north. Earlier, it left 24 dead in China and the Philippines.`\
 https://nytimes.com/2024/09/09/us/typhoon-yagi-vietnam-deaths.html
@@ -25,10 +29,6 @@ https://nytimes.com/2024/09/09/world/asia/pope-east-timor-legacy.html
 **Villa's young talent pool is deep. So who will be the first to break through under Emery?**\
 `Through deft recruitment and coaching expertise, Villa's academy has plenty of external admirers`\
 https://nytimes.com/athletic/5650311/2024/09/09/aston-villa-unai-emery-academy/
-
-**What we've learned from 100 days of Arne Slot at Liverpool**\
-`Slot has gone about his business with composure and class - and this is how he’s built on the strong foundations already in place`\
-https://nytimes.com/athletic/5751713/2024/09/09/arne-slot-at-liverpool-what-weve-learned-from-first-100-days-at-liverpool/
 
 **Trippier has lost the Newcastle captaincy and his starting place, so what now?**\
 `Trippier has been a standard-bearer for Newcastle post-takeover, so how come his time at the club now appears to be coming to an end?`\
