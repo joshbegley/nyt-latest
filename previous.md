@@ -1,3 +1,7 @@
+**Will Blackhawks' CHSN broadcasts be easy to find?**\
+`The new CHSN TV network will be available over the air with an antenna, but the process is somewhat involved.`\
+https://nytimes.com/athletic/5751095/2024/09/09/blackhawks-how-to-watch-chsn/
+
 **Chelsea in talks to sell Fofana to AEK Athens**\
 `Chelsea have stepped up talks with AEK Athens over the sale of striker David Datro Fofana in the hope a move can be agreed before the window shuts in Greece on Wednesday.`\
 https://nytimes.com/athletic/5755413/2024/09/09/chelsea-david-datro-fofana-transfer-athens/
