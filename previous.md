@@ -1,3 +1,19 @@
+**The Terrifying Way That Eels Escape a Hungry Fish’s Stomach**\
+`X-ray videos showed that some young Japanese eels demonstrated that they were not content to become a predator’s meal.`\
+https://nytimes.com/2024/09/09/science/eels-escape-fish-stomach.html
+
+**The Miracle of the One-Pot Recipe**\
+`Dan Pelosi’s new chicken and rice dish is a master class in ratios and timing.`\
+https://nytimes.com/2024/09/09/dining/the-miracle-of-the-one-pot-recipe.html
+
+**What to Know About the Mercury in Your Dental Fillings**\
+`The European Union banned mercury amalgam fillings to protect the environment. Should you worry about protecting your health, too?`\
+https://nytimes.com/2024/09/09/well/live/dental-amalgam-mercury-fillings.html
+
+**The Bounce: 3 key questions as WNBA playoffs take shape.**\
+`Jason Jones and Shams Charania catch you up on leaguewide news.`\
+https://nytimes.com/athletic/5755661/2024/09/09/wnba-playoffs-caitlin-clark-aja-wilson-fever-aces-rudy-gobert-shaquille-oneal-nba-the-bounce/
+
 **Kane set for 100th England cap: 'Ronaldo inspires me'**\
 `Harry Kane is set to become the tenth player to earn 100 England caps but has hailed ‘exceptional’ ‘Cristiano Ronaldo as his inspiration to earn more in the coming years.`\
 https://nytimes.com/athletic/5755938/2024/09/09/harry-kane-england-100-caps/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5701128/2024/09/09/college-football-playoff-project
 **The 23 Words Harris Needs to Say to Win**\
 `It’s OK to admit that reality has changed her mind on the big issues.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/friedman-harris-debate
-
-**What we learned from the 2024 U.S. Open**\
-`The final Grand Slam of the year brought tiredness, nerves, good vibes and great tennis.`\
-https://nytimes.com/athletic/5679491/2024/09/09/us-open-2024-recap-takeaways/
-
-**Why New York’s Animal ‘Wet Markets’ Unnerve Some Scientists**\
-`Urban wet markets are fertile grounds for viral transmission, experts say. Outbreaks of bird flu have already occurred.`\
-https://nytimes.com/2024/09/09/health/bird-flu-wet-markets.html
-
-**Lloyd: Deshaun Watson got trampled by the Cowboys, but please don't blame the protection**\
-`It’s only one game, but it's Year 3 of the Deshaun Watson Experience and things look eerily similar. Is it too late to request a refund?`\
-https://nytimes.com/athletic/5755058/2024/09/09/browns-cowboys-deshaun-watson/
-
-**Texas looks like a national title contender. What challenges await on path to Playoff?**\
-`Texas won its first big 2024 showdown at Michigan. But games against opponents such as Georgia, Oklahoma and Texas A&M await.`\
-https://nytimes.com/athletic/5755755/2024/09/09/texas-football-michigan-playoff-georgia-texas-am/
 
