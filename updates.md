@@ -1,3 +1,7 @@
+**Why was Joe Burrow so hesitant to let it rip in Bengals' loss to Patriots?**\
+`The quarterback finished 21-of-29, but only six passes were thrown more than 7 air yards down the field.`\
+https://nytimes.com/athletic/5756815/2024/09/09/joe-burrow-bengals-loss-patriots/
+
 **Raiders' Alexander Mattison hurdles to a time share with Zamir White at running back**\
 `The Raiders plan to ride the hot hand and, on Sunday, that was Mattison, who scored the team's lone touchdown.`\
 https://nytimes.com/athletic/5756875/2024/09/09/alexander-mattison-raiders-running-back-zamir-white/
