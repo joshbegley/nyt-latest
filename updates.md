@@ -1,3 +1,11 @@
+**Line Fire Grows in Southern California, Closing Schools**\
+`Schools in some San Bernardino County districts were closed on Monday, and forecasters warned that above-average temperatures, wind and low humidity could worsen fire risks.`\
+https://nytimes.com/2024/09/09/us/line-fire-california.html
+
+**The Life-Changing Journey of ‘My Brilliant Friend’**\
+`The four actresses who played Lenù and Lila from adolescence to middle age discuss the end of the HBO series.`\
+https://nytimes.com/2024/09/09/arts/television/my-brilliant-friend-actresses.html
+
 **Submit your Notre Dame mailbag questions after the loss to Northern Illinois**\
 `What's on your mind after Notre Dame lost to Northern Illinois as a four-touchdown favorite?`\
 https://nytimes.com/athletic/5756176/2024/09/09/notre-dame-football-mailbag-questions-niu-2/
