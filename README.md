@@ -1,3 +1,7 @@
+**Manhunt for Shooter Who Fired at Cars on Kentucky Highway Enters 3rd Day**\
+`At least seven counties in southeastern Kentucky closed schools on Monday as the authorities continue to comb a remote region of the state.`\
+https://nytimes.com/2024/09/09/us/kentucky-shooting-manhunt-schools-closed.html
+
 **The Best View of New York**\
 `Off-White celebrates the allure of the melting pot.`\
 https://nytimes.com/2024/09/09/style/off-white-ib-kamara-new-york-fashion-week.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5754038/2024/09/09/sf-giants-bob-melvin-season-look
 **Ranking the top 10 Canucks prospects, part 1: No. 10 to No. 6, plus honourable mentions**\
 `With the Penticton Young Stars tournament coming up, here's some of Vancouver's best and brightest youngsters to keep an eye on.`\
 https://nytimes.com/athletic/5750918/2024/09/09/canucks-top-ten-prospects-part-1-penticton/
-
-**'I know how good I am': Marco Rossi on another 'huge' season and his future with Wild**\
-`Rossi's breakout 21-goal season was followed by trade rumors. Can he take another step in 2024-25 and cement his place on the Wild?`\
-https://nytimes.com/athletic/5748220/2024/09/09/marco-rossi-wild-future/
 
