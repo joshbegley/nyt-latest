@@ -1,7 +1,3 @@
-**No Cardinal flew quite like Josh Allen, and that was the difference in Sunday's loss**\
-`Josh Allen went high, the Cardinals stayed low. Good players find a way.`\
-https://nytimes.com/athletic/5754107/2024/09/08/cardinals-bills-josh-allen-kyler-murray/
-
 **Justice Alito Reported $900 Concert Tickets From a German Princess**\
 `Princess Gloria von Thurn und Taxis, a former 1980s party girl and art collector who is now known for her connections to far-right conservatives, told a German news organization the Alitos were “private friends.”`\
 https://nytimes.com/2024/09/08/us/politics/justice-alito-reported-900-concert-tickets-from-a-german-princess.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5754431/2024/09/08/colts-anthony-richardson-heroic-
 **For Tom Brady and Fox, Sunday was a first step toward the broadcast that truly counts**\
 `Tom Brady's Fox NFL broadcasting debut was expectedly bumpy. Now he has a lot of weeks until the Super Bowl to smooth it out.`\
 https://nytimes.com/athletic/5754529/2024/09/08/tom-brady-fox-nfl-debut-super-bowl/
+
+**Why Teen Voices Matter in the 2024 Election**\
+`Introducing the Headway Election Challenge, a running conversation with teenagers about their role in U.S. democracy.`\
+https://nytimes.com/2024/09/08/headway/teen-voices-2024-election.html
 
