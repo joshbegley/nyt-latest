@@ -1,3 +1,7 @@
+**PWHL unveils team names and logos: ‘We just couldn’t be more thrilled’**\
+`After playing a full season with placeholder names, the six PWHL teams released their branding on Monday ahead of the 2024-25 season.`\
+https://nytimes.com/athletic/5750721/2024/09/09/pwhl-team-names-logos-jerseys/
+
 **In radio interview, Harris makes a debate prediction: ‘I think he’s going to lie.’**\
 `By Reid J. Epstein`\
 https://nytimes.com/live/2024/09/09/us/harris-trump-election/in-radio-interview-harris-makes-a-debate-prediction-i-think-hes-going-to-lie
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5755621/2024/09/09/caoimhin-kelleher-liverpool-futu
 **A deadly shooting at a border crossing highlights worsening unrest in the Israeli-occupied West Bank.**\
 `By Patrick Kingsley`\
 https://nytimes.com/live/2024/09/09/world/israel-hamas-gaza-war/a-deadly-shooting-at-a-border-crossing-highlights-worsening-unrest-in-the-israeli-occupied-west-bank
-
-**Levi's Stadium turns 10: 49ers' home field still blazing hot, strides made in other areas**\
-`Jed York said he plans to make major investments in Levi's Stadium every 10 years or so to make sure the facility doesn't become outmoded.`\
-https://nytimes.com/athletic/5751942/2024/09/09/49ers-levis-stadium-10-years/
 

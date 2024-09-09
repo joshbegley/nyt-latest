@@ -1,3 +1,7 @@
+**PWHL unveils team names and logos: ‘We just couldn’t be more thrilled’**\
+`After playing a full season with placeholder names, the six PWHL teams released their branding on Monday ahead of the 2024-25 season.`\
+https://nytimes.com/athletic/5750721/2024/09/09/pwhl-team-names-logos-jerseys/
+
 **In radio interview, Harris makes a debate prediction: ‘I think he’s going to lie.’**\
 `By Reid J. Epstein`\
 https://nytimes.com/live/2024/09/09/us/harris-trump-election/in-radio-interview-harris-makes-a-debate-prediction-i-think-hes-going-to-lie
