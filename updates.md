@@ -1,3 +1,7 @@
+**Quotation of the Day: Classic Game Show Gets a New Spin**\
+`Quotation of the Day for Monday, September 9, 2024.`\
+https://nytimes.com/2024/09/08/pageoneplus/quotation-of-the-day-classic-game-show-gets-a-new-spin.html
+
 **Jayden Daniels' NFL debut hints at promise and peril**\
 `On an otherwise disappointing day in Tampa, the Commanders' rookie QB was their silver lining.`\
 https://nytimes.com/athletic/5753726/2024/09/08/jayden-daniels-commanders-nfl-debut-rushing/
