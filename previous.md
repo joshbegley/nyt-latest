@@ -1,3 +1,7 @@
+**The Best View of New York**\
+`Off-White celebrates the allure of the melting pot.`\
+https://nytimes.com/2024/09/09/style/off-white-ib-kamara-new-york-fashion-week.html
+
 **Bernal undergoes surgery after ACL injury, expected to miss 12 months**\
 `Barcelona midfielder Marc Bernal has undergone surgery after suffering an anterior cruciate ligament (ACL) injury and is expected to be out for 12 months.`\
 https://nytimes.com/athletic/5755634/2024/09/09/barcelona-marc-bernal-injury-acl-surgery/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5750918/2024/09/09/canucks-top-ten-prospects-part-1
 **'I know how good I am': Marco Rossi on another 'huge' season and his future with Wild**\
 `Rossi's breakout 21-goal season was followed by trade rumors. Can he take another step in 2024-25 and cement his place on the Wild?`\
 https://nytimes.com/athletic/5748220/2024/09/09/marco-rossi-wild-future/
-
-**The 4 most interesting storylines entering Golden Knights training camp**\
-`There are major roles needing to be filled, with plenty of young players and newcomers hoping they’ll be the ones to step in.`\
-https://nytimes.com/athletic/5750724/2024/09/09/golden-knights-training-camp-eichel/
 
