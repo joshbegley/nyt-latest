@@ -1,3 +1,11 @@
+**NASCAR Cup Series playoff outlook after Atlanta: Joey Logano, Ryan Blaney lead the field**\
+`Joey Logano is through, Ryan Blaney is leading the rest of the field, and everyone still has a chance after the first playoff race.`\
+https://nytimes.com/athletic/5755745/2024/09/09/nascar-playoff-outlook-joey-logano-ryan-blaney/
+
+**What I learned about Ohio State's offensive and defensive lines: Western Michigan film study**\
+`Ohio State's offensive line improved, while the defensive line showed off its depth. What I learned from the Western Michigan win.`\
+https://nytimes.com/athletic/5755569/2024/09/09/ohio-state-football-offensive-line-defensive-line-western-michigan-film/
+
 **PWHL unveils team names and logos: ‘We just couldn’t be more thrilled’**\
 `After playing a full season with placeholder names, the six PWHL teams released their branding on Monday ahead of the 2024-25 season.`\
 https://nytimes.com/athletic/5750721/2024/09/09/pwhl-team-names-logos-jerseys/
