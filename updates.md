@@ -1,3 +1,7 @@
+**Harris Said She Is Ready for the Debate**\
+`Also, the U.S. argued that Google has an ad-tech monopoly. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2024/09/09/briefing/harris-debate-trump-prep-apple-ai-iphone.html
+
 **Maria E. Redo, Who Won Discounts for Older Adults, Dies at 99**\
 `She started a nonprofit in New York City in 1971 by asking stores if they would offer reduced prices for people 65 and over. Thousands of retailers said yes.`\
 https://nytimes.com/2024/09/09/nyregion/maria-e-redo-dead.html
