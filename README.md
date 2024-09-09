@@ -4,7 +4,7 @@ https://nytimes.com/2024/09/08/us/politics/justice-alito-reported-900-concert-ti
 
 **"Unacceptable" spat between Giants rookies Tyler Fitzgerald, Marco Luciano reflects a lack of trust**\
 `A miscommunication between the infielders led to a verbal confrontation in the dugout as the Giants' defensive struggles continue.`\
-https://nytimes.com/athletic/5754704/2024/09/08/unacceptable-spat-between-giants-rookies-tyler-fitzgerald-marco-luciano-reflects-a-lack-of-trust/
+https://nytimes.com/athletic/5754704/2024/09/08/sf-giants-tyler-fitzgerald-marco-luciano-argument/
 
 **Antonio Pierce's play calling comes up short as Raiders fall to Chargers in season opener**\
 `Pierce opted to punt on fourth-and-1 from the Chargers' 43-yard line with 7:15 left in the game. The decision would doom the Raiders.`\
