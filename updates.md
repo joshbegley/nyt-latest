@@ -1,3 +1,7 @@
+**Apple Unveils New Watches as Tech Waits for New iPhones**\
+`The company is expected to showcase a number of new products at a two-hour event.`\
+https://nytimes.com/2024/09/09/technology/apple-event-iphone-16-watch.html
+
 **West Bank Procession is Held For Killed Turkish American Activist**\
 `Aysenur Ezgi Eygi, a 26-year-old American, was killed last week while protesting the Israeli occupation of the West Bank.`\
 https://nytimes.com/video/world/middleeast/100000009680736/west-bank-memorial-procession-activist-.html

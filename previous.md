@@ -1,3 +1,7 @@
+**Apple Unveils New Watches as Tech Waits for New iPhones**\
+`The company is expected to showcase a number of new products at a two-hour event.`\
+https://nytimes.com/2024/09/09/technology/apple-event-iphone-16-watch.html
+
 **West Bank Procession is Held For Killed Turkish American Activist**\
 `Aysenur Ezgi Eygi, a 26-year-old American, was killed last week while protesting the Israeli occupation of the West Bank.`\
 https://nytimes.com/video/world/middleeast/100000009680736/west-bank-memorial-procession-activist-.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/09/us/politics/trump-debate-women.html
 **Dozens Killed in Collision Between Fuel Tanker and Truck in Nigeria**\
 `The traffic accident was the latest disaster to highlight how roads across many African countries are some of the world’s deadliest.`\
 https://nytimes.com/2024/09/09/world/africa/road-collision-nigeria.html
-
-**Pittsburgh fires AD Heather Lyke after 7 years**\
-`During Lyke’s tenure, she oversaw widespread athletic department success, including Pitt’s first ACC football championship in 2021.`\
-https://nytimes.com/athletic/5756174/2024/09/09/pitt-athletic-director-heather-lyke-fired/
 
