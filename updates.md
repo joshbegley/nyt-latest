@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Francine**\
+`See the likely path and wind arrival times for Francine.`\
+https://nytimes.com/interactive/2024/weather/francine-map-path-tracker.html
+
 **The Windup: Will Verlander pitch in the postseason?**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5756096/2024/09/09/justin-verlander-astros-playoffs-the-windup/
