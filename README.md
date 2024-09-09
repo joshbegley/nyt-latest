@@ -1,3 +1,15 @@
+**White House Says G.O.P.’s Afghanistan Report Offers ‘Little or Nothing New’**\
+`President Biden’s spokesman denounced the House Republican investigation of the chaotic 2021 withdrawal as partisan and one-sided.`\
+https://nytimes.com/2024/09/09/us/politics/afghanistan-report.html
+
+**Christian McCaffrey inactive vs. Jets in 49ers season opener**\
+`Jordan Mason will start the game with Patrick Taylor Jr. and rookie Isaac Guerendo also active and available.`\
+https://nytimes.com/athletic/5756978/2024/09/09/christian-mccaffrey-inactive-49ers-jets/
+
+**Why Packers will likely start Malik Willis at QB against the Colts**\
+`LaFleur didn't rule out Love playing Sunday, but that's likely just gamesmanship.`\
+https://nytimes.com/athletic/5756745/2024/09/09/packers-malik-willis-starter-colts/
+
 **Joey Bosa shows just how badly he wants to win in Chargers' season opener vs. Raiders**\
 `Bosa took a pay cut this offseason to return to the Chargers with one thing in mind: He wants to win. `\
 https://nytimes.com/athletic/5756969/2024/09/09/joey-bosa-chargers-raiders-week-1/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/5756875/2024/09/09/alexander-mattison-raiders-runni
 **Ed Kranepool, A Teenage Met Who Lasted 18 Seasons, Dies at 79**\
 `“Steady Eddie” was drafted as a 17 year-old, played more games than any Met and in 1969 was a member of the World Series champs “Miracle Mets.”`\
 https://nytimes.com/2024/09/09/sports/baseball/ed-kranepool-dead.html
-
-**Tainted Chicken Bribery Scheme Gets Ex-School Official 2 Years in Prison**\
-`Eric Goldstein, who ran food services for the New York City Education Department, took bribes to put tainted chicken tenders back on the lunch menu, prosecutors said.`\
-https://nytimes.com/2024/09/09/nyregion/nyc-school-lunch-chicken-bribery-case.html
-
-**Facing Criticism After Striking Singer, a Maestro Forms New Ensembles**\
-`John Eliot Gardiner, who hit a singer during a tour in France last year, said he was starting a new choir and orchestra.`\
-https://nytimes.com/2024/09/09/arts/music/john-eliot-gardiner-constellation-choir-orchestra.html
-
-**Mets' Paul Blackburn dealing with low back discomfort; Tylor Megill to remain in rotation**\
-`Blackburn has made five starts for New York — three good ones and two rough ones.`\
-https://nytimes.com/athletic/5756885/2024/09/09/paul-blackburn-injury-tylor-megill/
 
