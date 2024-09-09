@@ -1,3 +1,7 @@
+**Quotation of the Day: Classic Game Show Gets a New Spin**\
+`Quotation of the Day for Monday, September 9, 2024.`\
+https://nytimes.com/2024/09/08/pageoneplus/quotation-of-the-day-classic-game-show-gets-a-new-spin.html
+
 **Jayden Daniels' NFL debut hints at promise and peril**\
 `On an otherwise disappointing day in Tampa, the Commanders' rookie QB was their silver lining.`\
 https://nytimes.com/athletic/5753726/2024/09/08/jayden-daniels-commanders-nfl-debut-rushing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5754704/2024/09/08/sf-giants-tyler-fitzgerald-marco
 **Antonio Pierce's play calling comes up short as Raiders fall to Chargers in season opener**\
 `Pierce opted to punt on fourth-and-1 from the Chargers' 43-yard line with 7:15 left in the game. The decision would doom the Raiders.`\
 https://nytimes.com/athletic/5754433/2024/09/08/raiders-chargers-antonio-pierce-week-1/
-
-**The Latest Zoom for Harris? ‘Paisans for Kamala,’ Featuring Robert De Niro**\
-`Steve Buscemi, Marisa Tomei, John Turturro, Mark Ruffalo and Lorraine Bracco joined Bill de Blasio, Nancy Pelosi and Leon Panetta to raise money for Kamala Harris.`\
-https://nytimes.com/2024/09/08/us/politics/paisans-for-kamala-robert-de-niro-pelosi.html
 
