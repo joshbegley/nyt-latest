@@ -1,3 +1,7 @@
+**Sex Trafficking Is Not a Hoax, Even if the Conspiracies Usually Are**\
+`The overblown fears of crimes committed by immigrants often overshadow the real dangers of American men abroad.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/sex-trafficking-hoax-reality
+
 **Yale Settles With Patients Who Sued Over Painful Egg Retrievals**\
 `Patients received “substantial” payments, their lawyers said, and the clinic agreed to staffing changes.`\
 https://nytimes.com/2024/09/09/health/yale-ivf-egg-retrievals-lawsuit.html
