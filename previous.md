@@ -27,7 +27,7 @@ https://nytimes.com/athletic/5754231/2024/09/08/justin-fields-russell-wilson-ste
 https://nytimes.com/athletic/5754204/2024/09/08/three-braves-takeaways-chris-sale-steps-up-again-raisel-iglesias-delivers-and-more/
 
 **Richard Fitts debuts, Bobby Dablec DFA'd, and Red Sox bullpen implodes in critical loss**\
-`BOSTON — In need of a spot start on Sunday, the Boston Red Sox turned to rookie right-hander Richard Fitts.`\
+`"(W)e have to play better,” manager Alex Cora said after the Red Sox allowed five runs in the ninth in a loss to the lowly White Sox.`\
 https://nytimes.com/athletic/5754281/2024/09/08/red-sox-richard-fitts-bobby-dalbec/
 
 **New season, uglier result: Bryce Young struggles and Panthers offer little hope in Week 1**\

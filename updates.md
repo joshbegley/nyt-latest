@@ -1,3 +1,7 @@
+**Richard Fitts debuts, Bobby Dablec DFA'd, and Red Sox bullpen implodes in critical loss**\
+`"(W)e have to play better,” manager Alex Cora said after the Red Sox allowed five runs in the ninth in a loss to the lowly White Sox.`\
+https://nytimes.com/athletic/5754281/2024/09/08/red-sox-richard-fitts-bobby-dalbec/
+
 **Sam Darnold, Vikings defense come together to overpower Giants in season opener**\
 `On Sunday vs. the Giants, the Vikings defense wreaked havoc, Darnold played smart and they ran the ball well. That's a recipe for success.`\
 https://nytimes.com/athletic/5754402/2024/09/08/vikings-giants-week-1-sam-darnold-defense/
