@@ -1,3 +1,7 @@
+**How to Turn Your Old iPhone Into an A.I. Phone (and Skip the Upgrade)**\
+`Apple is using Apple Intelligence, a suite of tools for generating images and text, to upsell the iPhone 16. But you can get similar features elsewhere.`\
+https://nytimes.com/2024/09/09/technology/personaltech/iphone-ai-upgrade.html
+
 **Browns' Njoku, Cowboys' Ferguson week to week with injuries**\
 `Both players left with injuries during the second half of the Cowboys' win over the Browns on Sunday.`\
 https://nytimes.com/athletic/5756351/2024/09/09/david-njoku-jake-ferguson-browns-cowboys-injury/
@@ -19,7 +23,7 @@ https://nytimes.com/video/world/middleeast/100000009680736/west-bank-memorial-pr
 https://nytimes.com/athletic/5756212/2024/09/09/tom-brady-scott-hanson-apology/
 
 **Battery Maker Northvolt to Cut Costs as E.V. Demand Slumps in Europe**\
-`The Swedish battery manufacturer said it would eliminate jobs and seek partnerships as it grapples with competition from China.`\
+`The Swedish battery manufacturer said it would eliminate jobs and seek partnerships as it grappled with competition from China.`\
 https://nytimes.com/2024/09/09/business/northvolt-battery-electric-vehicles-europe-china.html
 
 **Advice for the Trump-Harris Debate**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5756166/2024/09/09/carroll-dawson-dies-rockets/
 **Givenchy Appoints Sarah Burton as Creative Director**\
 `The British designer will be the second woman to oversee collections for the 72-year-old French brand.`\
 https://nytimes.com/2024/09/09/style/sarah-burton-givenchy-creative-director.html
-
-**Trump’s Latest Photo Book Offers Gossip, Boasting and a Threat**\
-`“Save America” is the third coffee table book from the former president since 2021. Ten pages are given over to pictures of him with Kim Jong-un, the North Korean dictator.`\
-https://nytimes.com/2024/09/09/us/elections/trump-coffee-table-book-save-america.html
 

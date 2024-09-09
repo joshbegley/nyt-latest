@@ -1,3 +1,11 @@
+**How to Turn Your Old iPhone Into an A.I. Phone (and Skip the Upgrade)**\
+`Apple is using Apple Intelligence, a suite of tools for generating images and text, to upsell the iPhone 16. But you can get similar features elsewhere.`\
+https://nytimes.com/2024/09/09/technology/personaltech/iphone-ai-upgrade.html
+
+**Battery Maker Northvolt to Cut Costs as E.V. Demand Slumps in Europe**\
+`The Swedish battery manufacturer said it would eliminate jobs and seek partnerships as it grappled with competition from China.`\
+https://nytimes.com/2024/09/09/business/northvolt-battery-electric-vehicles-europe-china.html
+
 **Browns' Njoku, Cowboys' Ferguson week to week with injuries**\
 `Both players left with injuries during the second half of the Cowboys' win over the Browns on Sunday.`\
 https://nytimes.com/athletic/5756351/2024/09/09/david-njoku-jake-ferguson-browns-cowboys-injury/
