@@ -1,3 +1,7 @@
+**Walt Ehmer, Former Waffle House C.E.O., Dies at 58**\
+`Mr. Ehmer steered the diner chain through the pandemic and preached spending more time in one of his 24-hour restaurants than in his office.`\
+https://nytimes.com/2024/09/09/us/waffle-house-walt-ehmer-dead.html
+
 **What Do You Believe In?**\
 `We want to hear from you — whether you’re religious or not.`\
 https://nytimes.com/2024/09/09/briefing/what-do-you-believe-in.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/09/technology/apple-event-iphone-16-watch.html
 **West Bank Procession is Held For Killed Turkish American Activist**\
 `Aysenur Ezgi Eygi, a 26-year-old American, was killed last week while protesting the Israeli occupation of the West Bank.`\
 https://nytimes.com/video/world/middleeast/100000009680736/west-bank-memorial-procession-activist-.html
-
-**Scott Hanson apologizes for Brady on-air criticism**\
-`Hanson called his criticism of Brady during the Cowboys-Browns game "unfair and inconsiderate."`\
-https://nytimes.com/athletic/5756212/2024/09/09/tom-brady-scott-hanson-apology/
 
