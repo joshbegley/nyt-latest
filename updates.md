@@ -1,3 +1,7 @@
+**James Earl Jones: A Life in Pictures**\
+`Onstage and in movies and television, Jones delivered with a deep, authoritative, powerful and sometimes menacing voice.`\
+https://nytimes.com/2024/09/09/theater/james-earl-jones-photos.html
+
 **Carlos Correa 'very encouraged' by recent progress, hints return to field could come soon**\
 `The Twins' shortstop recently started getting a different type of treatment for his plantar fasciitis, and he's pleased with the results.`\
 https://nytimes.com/athletic/5756944/2024/09/09/twins-carlos-correa-return-soon/

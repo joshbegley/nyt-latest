@@ -1,3 +1,7 @@
+**Trump Steps Up Threats to Imprison Those He Sees as Foes**\
+`The former president is vowing to prosecute those he sees as working to deny him a victory, while laying the groundwork to claim large-scale voter fraud if he loses.`\
+https://nytimes.com/2024/09/09/us/politics/trump-prison-threats-opponents.html
+
 **James Earl Jones: A Life in Pictures**\
 `Onstage and in movies and television, Jones delivered with a deep, authoritative, powerful and sometimes menacing voice.`\
 https://nytimes.com/2024/09/09/theater/james-earl-jones-photos.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/09/09/us/politics/debate-trump-clinton-harris.html
 **White House Says G.O.P.’s Afghanistan Report Offers ‘Little or Nothing New’**\
 `President Biden’s spokesman denounced the House Republican investigation of the chaotic 2021 withdrawal as partisan and one-sided.`\
 https://nytimes.com/2024/09/09/us/politics/afghanistan-report.html
-
-**Christian McCaffrey inactive vs. Jets in 49ers season opener**\
-`Jordan Mason will start the game with Patrick Taylor Jr. and rookie Isaac Guerendo also active and available.`\
-https://nytimes.com/athletic/5756978/2024/09/09/christian-mccaffrey-inactive-49ers-jets/
 
