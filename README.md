@@ -1,9 +1,13 @@
+**McDaniel 'proud' of Dolphins coming to Tyreek Hill's aid**\
+`"It's what you hope your team is comprised of," Dolphins coach Mike McDaniel said.`\
+https://nytimes.com/athletic/5756541/2024/09/09/mike-mcdaniel-tyreek-hill-dolphins/
+
 **Harvey Weinstein Is Hospitalized for Emergency Heart Surgery**\
 `The disgraced Hollywood mogul, who has been held on Rikers Island since April, is scheduled to return to court in New York later this month.`\
 https://nytimes.com/2024/09/09/nyregion/harvey-weinstein-heart-surgery.html
 
-**Aaron Rodgers Netflix docu-series to be released Dec. 17**\
-`The docu-series follows the quarterback's recovery from the Achilles tendon injury that ended his 2023 season after only four plays.`\
+**Aaron Rodgers Netflix docuseries to be released Dec. 17**\
+`The docuseries follows the quarterback's recovery from the Achilles tendon injury that ended his 2023 season after only four plays.`\
 https://nytimes.com/athletic/5756591/2024/09/09/netflix-aaron-rodgers-series-release/
 
 **Searches in Adams’s Inner Circle Suggest Investigations Are Intensifying**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/09/climate/climate-changing-fire-season.html
 **As Debate Looms, Trump Is Now the One Facing Questions About Age and Capacity**\
 `With President Biden no longer in the race, former President Donald J. Trump would be the oldest person ever to serve in the Oval Office. But his rambling, sometimes incoherent public statements have stirred concern among voters.`\
 https://nytimes.com/2024/09/09/us/politics/debate-trump-age-capacity.html
-
-**Teen Girls’ Brains Aged Rapidly During Pandemic, Study Finds**\
-`Neuroimaging found girls experienced cortical thinning far faster than boys did during the first year of Covid lockdowns.`\
-https://nytimes.com/2024/09/09/health/teen-brains-pandemic-girls.html
 
