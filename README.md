@@ -1,3 +1,7 @@
+**Sex Trafficking Is Not a Hoax, Even if the Conspiracies Usually Are**\
+`The overblown fears of crimes committed by immigrants often overshadow the real dangers of American men abroad.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/sex-trafficking-hoax-reality
+
 **Yale Settles With Patients Who Sued Over Painful Egg Retrievals**\
 `Patients received “substantial” payments, their lawyers said, and the clinic agreed to staffing changes.`\
 https://nytimes.com/2024/09/09/health/yale-ivf-egg-retrievals-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/09/nyregion/eric-adams-administration-investigation.
 **Yankees call up top prospect Jasson Domínguez**\
 `The team recently said that Domínguez would not be recalled if there wasn’t a place for him to play every day.`\
 https://nytimes.com/athletic/5756576/2024/09/09/yankees-jasson-dominguez-promotion/
-
-**Los Angeles Is Obsessed With These Cult Seasonal Melons**\
-`Let’s be honest, so am I.`\
-https://nytimes.com/2024/09/09/dining/los-angeles-melons.html
 
