@@ -1,6 +1,22 @@
+**Jannik Sinner lifts the U.S. Open trophy, and some weight off his shoulders**\
+`The world No. 1 emerged from the most challenging period of his career with a title — but not pure relief.`\
+https://nytimes.com/athletic/5754252/2024/09/08/jannik-sinner-us-open/
+
+**Giants takeaways: Silver linings in short supply as loss to Vikings looks painfully familiar**\
+`Giants fans looking to find hope in a new season were left disappointed watching Sunday's demoralizing defeat.  `\
+https://nytimes.com/athletic/5754326/2024/09/08/giants-vikings-familiar-loss-brian-daboll/
+
+**Alex Morgan plays 13 minutes in final game of her soccer career**\
+`The forward announced her retirement and that she was pregnant with her second, ending her 16-year career on Sunday.`\
+https://nytimes.com/athletic/5754147/2024/09/08/alex-morgan-final-game-wave-courage-nwsl/
+
 **Justin Fields does just enough in Steelers' win, so what happens next at QB?**\
 `Fields started when Russell Wilson couldn't play Sunday, but it was Chris Boswell's six field goals that helped Pittsburgh beat Atlanta.`\
 https://nytimes.com/athletic/5754231/2024/09/08/justin-fields-russell-wilson-steelers-falcons/
+
+**Three Braves takeaways: Chris Sale steps up again, Raisel Iglesias delivers and more**\
+`Sale showed again why he’s the staff ace and the favorite to win his first Cy Young Award.`\
+https://nytimes.com/athletic/5754204/2024/09/08/three-braves-takeaways-chris-sale-steps-up-again-raisel-iglesias-delivers-and-more/
 
 **Richard Fitts debuts, Bobby Dablec DFA'd, and Red Sox bullpen implodes in critical loss**\
 `BOSTON — In need of a spot start on Sunday, the Boston Red Sox turned to rookie right-hander Richard Fitts.`\
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/08/podcasts/fairs-fair-this-american-life-nyt-audio.
 **With Caleb Williams struggling, different heroes emerge for Bears in Week 1**\
 `Defense and special teams keyed the Bears' comeback win against the Titans, saving their rookie QB and an unproductive offense.`\
 https://nytimes.com/athletic/5754120/2024/09/08/bears-defense-special-teams-titans/
-
-**Venezuela’s Presidential Contender Flees, and Hopes for Democracy Dim**\
-`The opposition candidate’s decision to seek asylum in Spain and the autocratic leader’s antagonism toward regional powers lessen the chances of a political transition.`\
-https://nytimes.com/2024/09/08/world/americas/edmundo-gonzalez-venezuela-opposition-candidate.html
-
-**Key takeaways from Cowboys' 33-17 victory over Browns**\
-`All eyes were on Dak Prescott as he walked into Huntington Bank Field on Sunday as the highest-paid quarterback in the NFL.`\
-https://nytimes.com/athletic/5754090/2024/09/08/dak-prescott-cowboys-browns-week-1-results-analysis/
-
-**Taylor Fritz didn't have to play 'unbelievable' at the U.S. Open. Then came Jannik Sinner**\
-`Current men's tennis contenders see more opportunity than when the Big Three were dominating Grand Slams. Yet wins are still a tall order.`\
-https://nytimes.com/athletic/5754072/2024/09/08/taylor-fritz-us-open-mens-tennis-sinner-alcaraz/
-
-**Mets' winning streak comes to an end: 3 takeaways from the hot stretch**\
-`Luis Severino continued a strong run for the Mets rotation, which has 2.05 ERA over the past 10 games.`\
-https://nytimes.com/athletic/5754115/2024/09/08/mets-mlb-wild-card-race-2/
 

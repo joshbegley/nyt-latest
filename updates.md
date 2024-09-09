@@ -1,3 +1,19 @@
+**Jannik Sinner lifts the U.S. Open trophy, and some weight off his shoulders**\
+`The world No. 1 emerged from the most challenging period of his career with a title — but not pure relief.`\
+https://nytimes.com/athletic/5754252/2024/09/08/jannik-sinner-us-open/
+
+**Giants takeaways: Silver linings in short supply as loss to Vikings looks painfully familiar**\
+`Giants fans looking to find hope in a new season were left disappointed watching Sunday's demoralizing defeat.  `\
+https://nytimes.com/athletic/5754326/2024/09/08/giants-vikings-familiar-loss-brian-daboll/
+
+**Alex Morgan plays 13 minutes in final game of her soccer career**\
+`The forward announced her retirement and that she was pregnant with her second, ending her 16-year career on Sunday.`\
+https://nytimes.com/athletic/5754147/2024/09/08/alex-morgan-final-game-wave-courage-nwsl/
+
+**Three Braves takeaways: Chris Sale steps up again, Raisel Iglesias delivers and more**\
+`Sale showed again why he’s the staff ace and the favorite to win his first Cy Young Award.`\
+https://nytimes.com/athletic/5754204/2024/09/08/three-braves-takeaways-chris-sale-steps-up-again-raisel-iglesias-delivers-and-more/
+
 **Justin Fields does just enough in Steelers' win, so what happens next at QB?**\
 `Fields started when Russell Wilson couldn't play Sunday, but it was Chris Boswell's six field goals that helped Pittsburgh beat Atlanta.`\
 https://nytimes.com/athletic/5754231/2024/09/08/justin-fields-russell-wilson-steelers-falcons/
