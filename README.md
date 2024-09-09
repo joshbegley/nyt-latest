@@ -1,3 +1,7 @@
+**Sam Darnold, Vikings defense come together to overpower Giants in season opener**\
+`On Sunday vs. the Giants, the Vikings defense wreaked havoc, Darnold played smart and they ran the ball well. That's a recipe for success.`\
+https://nytimes.com/athletic/5754402/2024/09/08/vikings-giants-week-1-sam-darnold-defense/
+
 **Josh Allen takes early leap into MVP conversation in Bills' comeback win**\
 `When the Bills sputtered in several areas, Josh Allen stepped up to lead them to a win.`\
 https://nytimes.com/athletic/5754200/2024/09/08/josh-allen-leap-mvp-bills-cardinals-comeback/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5754311/2024/09/08/carolina-panthers-bryce-young-ug
 **Rookie QB roundup: How Williams, Nix, Daniels fared in debuts**\
 `Only Caleb Williams' Chicago Bears left Week 1 with a win, and none of them threw for a touchdown in their debuts.`\
 https://nytimes.com/athletic/5753855/2024/09/08/nfl-rookie-qbs-williams-nix-daniels-debuts/
-
-**Meet Me at the Fair**\
-`A million people go to the Iowa State Fair, all with their own goals and dreams.`\
-https://nytimes.com/2024/09/08/podcasts/fairs-fair-this-american-life-nyt-audio.html
 
