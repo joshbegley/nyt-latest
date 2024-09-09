@@ -1,3 +1,15 @@
+**Givenchy Appoints Sarah Burton as Creative Director**\
+`The British designer will be the second woman to oversee collections for the 72-year-old French brand.`\
+https://nytimes.com/2024/09/09/style/sarah-burton-givenchy-creative-director.html
+
+**Trump’s Latest Photo Book Offers Gossip, Boasting and a Threat**\
+`“Save America” is the third coffee table book from the former president since 2021. Ten pages are given over to pictures of him with Kim Jong-un, the North Korean dictator.`\
+https://nytimes.com/2024/09/09/us/elections/trump-coffee-table-book-save-america.html
+
+**How Trump Has Used Debates to Belittle Women**\
+`Over nine years in politics, Donald J. Trump has honed a playbook of explicitly gendered attacks in clashes with female candidates and journalists.`\
+https://nytimes.com/2024/09/09/us/politics/trump-debate-women.html
+
 **Dozens Killed in Collision Between Fuel Tanker and Truck in Nigeria**\
 `The traffic accident was the latest disaster to highlight how roads across many African countries are some of the world’s deadliest.`\
 https://nytimes.com/2024/09/09/world/africa/road-collision-nigeria.html
