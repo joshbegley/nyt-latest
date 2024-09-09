@@ -1,3 +1,11 @@
+**I found Kerlon**\
+`The Athletic has been searching for Kerlon for years. Finally, we found him. He tells his story — and shows us if he can still do the trick`\
+https://nytimes.com/athletic/5739187/2024/09/09/kerlon-seal-dribble-interview-brazil/
+
+**Gylfi Sigurdsson's Icelandic return: 'Everybody here was happy to see him back in football'**\
+`Gylfi Sigurdsson's absence from his final year at Everton has never been publicly explained but he is being embraced in Iceland`\
+https://nytimes.com/athletic/5739410/2024/09/09/gylfi-sigurdsson-return-iceland/
+
 **Villans, Cherries, Toffees and Tractor Boys: The origins of English football club nicknames**\
 `Why the Gunners? What are Addicks? Eagles vs Seagulls. English club nicknames are varied, so let us explain them…`\
 https://nytimes.com/athletic/5753588/2024/09/09/english-football-nicknames-premier-league/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5754862/2024/09/08/browns-cowboys-deshaun-watson/
 **Jim Harbaugh's vision materializes in Chargers' physical debut win over Raiders**\
 `The Chargers have spent five months working on some odd fourth-quarter-finishing drills. They paid off in Sunday's season opener.`\
 https://nytimes.com/athletic/5754984/2024/09/08/chargers-jim-harbaugh-first-win-raiders/
-
-**Seahawks earn Mike Macdonald's first win after finding their 'swagger' on defense**\
-`Seattle shook off a rocky start, stuck to its game plan on offense and eventually took control of its Week 1 matchup with Denver.`\
-https://nytimes.com/athletic/5754814/2024/09/08/seahawks-mike-macdonald-first-win-broncos/
-
-**What are the NFL's overtime rules? Explaining the nuances**\
-`How does overtime work in the NFL from a rules standpoint? The Athletic has you covered with a full breakdown.`\
-https://nytimes.com/athletic/5734722/2024/09/08/nfl-overtimes-rules-explained/
 
