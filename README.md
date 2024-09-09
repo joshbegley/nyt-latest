@@ -14,8 +14,8 @@ https://nytimes.com/2024/09/09/briefing/trump-harris-poll-west-bank.html
 `See pitching matchups, playoff projections, win projections and more for Monday's MLB games.`\
 https://nytimes.com/athletic/5751038/2024/09/09/mlb-odds-best-bets-projections-september-9/
 
-**Dak Prescott not pleased with his play vs. Browns, but 'happy' with new contract**\
-`A "sloppy second half" can't take away from a road win for the Cowboys in Week 1 and a new contract for Dak Prescott.`\
+**Dak Prescott not pleased with his play vs. Browns but 'happy' with new contract**\
+`A "sloppy second half" can't take away from a road win for the Cowboys in Week 1 and a new contract for Prescott.`\
 https://nytimes.com/athletic/5754979/2024/09/08/dak-prescott-cowboys-contract-browns/
 
 **What we learned from Rams-Lions in first OT game of season**\
