@@ -1,11 +1,3 @@
-**Padres takeaways: Starting pitching issues, Kim’s continued absence, Arraez’s streak**\
-`Padres starting pitchers have combined for a 5.37 ERA since Aug. 16, but Arraez appears to be over his thumb injury.`\
-https://nytimes.com/athletic/5754830/2024/09/08/padres-ha-seong-kim-absence-luis-arraez-streak/
-
-**Tafur: It's early, but the Raiders wilting in opening loss to Chargers is not inspiring**\
-`Forget Antonio Pierce's questionable fourth-down decision. The Raiders offense was feeble in its season-opening loss in Los Angeles. `\
-https://nytimes.com/athletic/5754795/2024/09/08/raiders-week-1-chargers-offense-feeble/
-
 **After Bo Nix's debut flop, Sean Payton challenges Broncos: 'Let's help this guy'**\
 `Without a productive running game to rely on Sunday, Nix attempted 42 passes and was also Denver's leading rusher.`\
 https://nytimes.com/athletic/5754486/2024/09/08/broncos-bo-nix-sean-payton-seahawks-loss/
@@ -37,4 +29,12 @@ https://nytimes.com/2024/09/08/us/politics/paisans-for-kamala-robert-de-niro-pel
 **Twins takeaways after Rocco Baldelli lights up team for 'unprofessional series' vs. Royals**\
 `“That was an unprofessional series of baseball that we just played and that’s my only comment,” Baldelli said after the Twins were swept. `\
 https://nytimes.com/athletic/5754606/2024/09/08/rocco-baldelli-twins-swept-by-royals/
+
+**After Georgia Shooting, a Grief-Stricken City Seeks Solace, and Answers**\
+`As residents in Winder, Ga., consoled one another, questions rose about whether more could have been done to prevent the attack.`\
+https://nytimes.com/2024/09/08/us/georgia-shooting-winder-grief-questions.html
+
+**Tom Brady, in his NFL broadcast debut, was a man learning the job in real time**\
+`In his NFL broadcasting debut Sunday, Brady looked exactly like what he is: a man learning a job on the fly. More work comes now.`\
+https://nytimes.com/athletic/5750467/2024/09/08/tom-brady-fox-nfl-broadcasting-debut/
 
