@@ -1,3 +1,7 @@
+**After Bo Nix's debut flop, Sean Payton challenges Broncos: 'Let's help this guy'**\
+`Without a productive running game to rely on Sunday, Nix attempted 42 passes and was also Denver's leading rusher.`\
+https://nytimes.com/athletic/5754486/2024/09/08/broncos-bo-nix-sean-payton-seahawks-loss/
+
 **Puka Nacua ruled out vs. Lions with knee injury**\
 `Nacua finished the game with four receptions for 35 yards.`\
 https://nytimes.com/athletic/5754796/2024/09/08/puka-nacua-rams-knee-injury/
