@@ -1,3 +1,7 @@
+**'Atrocious': Justin Verlander's latest debacle puts his postseason in jeopardy**\
+`Not since May 16, 2013, had Verlander yielded eight earned runs in three or fewer innings. The Astros saw it happen Sunday.`\
+https://nytimes.com/athletic/5755098/2024/09/09/astros-justin-verlander-playoffs/
+
 **Typhoon Yagi Tears Through Vietnam**\
 `Typhoon Yagi, one of the most powerful storms to hit northern Vietnam, left a trail of destruction from floods and landslides.`\
 https://nytimes.com/video/world/asia/100000009680381/typhoon-yagi-vietnam-north.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5747593/2024/09/09/manchester-united-transfer-surve
 **Has Manchester City's disabled parking row shown way for fans to challenge clubs?**\
 `City's change in stance over disabled parking charges poses an interesting dynamic for the future of the club's interaction with fans`\
 https://nytimes.com/athletic/5750807/2024/09/09/city-fan-backlash-disabled-parking/
-
-**Can Orel Mangala adapt to Sean Dyche's style?**\
-`The Belgian loanee adds quality to Everton's engine room but his possession-centric style doesn't necessarily appear to be a perfect fit`\
-https://nytimes.com/athletic/5746768/2024/09/09/orel-mangala-everton-sean-dyche/
 

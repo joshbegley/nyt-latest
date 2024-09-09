@@ -1,3 +1,7 @@
+**'Atrocious': Justin Verlander's latest debacle puts his postseason in jeopardy**\
+`Not since May 16, 2013, had Verlander yielded eight earned runs in three or fewer innings. The Astros saw it happen Sunday.`\
+https://nytimes.com/athletic/5755098/2024/09/09/astros-justin-verlander-playoffs/
+
 **Typhoon Yagi Tears Through Vietnam**\
 `Typhoon Yagi, one of the most powerful storms to hit northern Vietnam, left a trail of destruction from floods and landslides.`\
 https://nytimes.com/video/world/asia/100000009680381/typhoon-yagi-vietnam-north.html
