@@ -1,3 +1,11 @@
+**Seahawks earn Mike Macdonald's first win after finding their 'swagger' on defense**\
+`Seattle shook off a rocky start, stuck to its game plan on offense and eventually took control of its Week 1 matchup with Denver.`\
+https://nytimes.com/athletic/5754814/2024/09/08/seahawks-mike-macdonald-first-win-broncos/
+
+**What are the NFL's overtime rules? Explaining the nuances**\
+`How does overtime work in the NFL from a rules standpoint? The Athletic has you covered with a full breakdown.`\
+https://nytimes.com/athletic/5734722/2024/09/08/nfl-overtimes-rules-explained/
+
 **Quotation of the Day: Classic Game Show Gets a New Spin**\
 `Quotation of the Day for Monday, September 9, 2024.`\
 https://nytimes.com/2024/09/08/pageoneplus/quotation-of-the-day-classic-game-show-gets-a-new-spin.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5754107/2024/09/08/cardinals-bills-josh-allen-kyler
 **Justice Alito Reported $900 Concert Tickets From a German Princess**\
 `Princess Gloria von Thurn und Taxis, a former 1980s party girl and art collector who is now known for her connections to far-right conservatives, told a German news organization the Alitos were “private friends.”`\
 https://nytimes.com/2024/09/08/us/politics/justice-alito-reported-900-concert-tickets-from-a-german-princess.html
-
-**"Unacceptable" spat between Giants rookies Tyler Fitzgerald, Marco Luciano reflects a lack of trust**\
-`A miscommunication between the infielders led to a verbal confrontation in the dugout as the Giants' defensive struggles continue.`\
-https://nytimes.com/athletic/5754704/2024/09/08/sf-giants-tyler-fitzgerald-marco-luciano-argument/
-
-**Antonio Pierce's play calling comes up short as Raiders fall to Chargers in season opener**\
-`Pierce opted to punt on fourth-and-1 from the Chargers' 43-yard line with 7:15 left in the game. The decision would doom the Raiders.`\
-https://nytimes.com/athletic/5754433/2024/09/08/raiders-chargers-antonio-pierce-week-1/
 
