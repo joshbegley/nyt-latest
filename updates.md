@@ -1,3 +1,7 @@
+**Walt Ehmer, Former Waffle House C.E.O., Dies at 58**\
+`Mr. Ehmer steered the diner chain through the pandemic and preached spending more time in one of his 24-hour restaurants than in his office.`\
+https://nytimes.com/2024/09/09/us/waffle-house-walt-ehmer-dead.html
+
 **What Do You Believe In?**\
 `We want to hear from you — whether you’re religious or not.`\
 https://nytimes.com/2024/09/09/briefing/what-do-you-believe-in.html
