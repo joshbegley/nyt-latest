@@ -1,3 +1,11 @@
+**NASCAR Cup Series playoff outlook after Atlanta: Joey Logano, Ryan Blaney lead the field**\
+`Joey Logano is through, Ryan Blaney is leading the rest of the field, and everyone still has a chance after the first playoff race.`\
+https://nytimes.com/athletic/5755745/2024/09/09/nascar-playoff-outlook-joey-logano-ryan-blaney/
+
+**What I learned about Ohio State's offensive and defensive lines: Western Michigan film study**\
+`Ohio State's offensive line improved, while the defensive line showed off its depth. What I learned from the Western Michigan win.`\
+https://nytimes.com/athletic/5755569/2024/09/09/ohio-state-football-offensive-line-defensive-line-western-michigan-film/
+
 **PWHL unveils team names and logos: ‘We just couldn’t be more thrilled’**\
 `After playing a full season with placeholder names, the six PWHL teams released their branding on Monday ahead of the 2024-25 season.`\
 https://nytimes.com/athletic/5750721/2024/09/09/pwhl-team-names-logos-jerseys/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/09/us/harris-trump-election
 **Here’s the latest on the 2024 campaign.**\
 `By Maggie Astor`\
 https://nytimes.com/live/2024/09/09/us/harris-trump-election/heres-the-latest-on-the-2024-campaign
-
-**Kelleher discusses Liverpool future after Mamardashvili signing**\
-`Caoimhin Kelleher admits it wasn’t his decision to stay at Liverpool this summer as he reiterated his desire to become a No 1 goalkeeper.`\
-https://nytimes.com/athletic/5755621/2024/09/09/caoimhin-kelleher-liverpool-future/
-
-**A deadly shooting at a border crossing highlights worsening unrest in the Israeli-occupied West Bank.**\
-`By Patrick Kingsley`\
-https://nytimes.com/live/2024/09/09/world/israel-hamas-gaza-war/a-deadly-shooting-at-a-border-crossing-highlights-worsening-unrest-in-the-israeli-occupied-west-bank
 
