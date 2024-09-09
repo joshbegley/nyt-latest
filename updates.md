@@ -1,3 +1,7 @@
+**Paralympic Marathoner Loses Medal After Helping Her Guide Yards From Finish**\
+`A visually-impaired runner briefly let go of the tether to her guide after he cramped near the finish line, costing her a bronze medal.`\
+https://nytimes.com/2024/09/09/sports/paralympics-marathon-disqualifed-elena-congost.html
+
 **The 23 Words Harris Needs to Say to Win**\
 `It’s OK to admit that reality has changed her mind on the big issues.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/friedman-harris-debate
