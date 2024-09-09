@@ -1,3 +1,15 @@
+**Lions hold off Rams in overtime to cap wild Week 1**\
+`David Montgomery, who had 17 carries and 91 yards, won the game in OT with a one-yard rushing touchdown.`\
+https://nytimes.com/athletic/5754928/2024/09/08/rams-lions-result-takeaways-overtime/
+
+**Jackson: Browns show they're not ready for big stage in lopsided loss to Cowboys**\
+`It was just one game, but it was a thoroughly poor showing.`\
+https://nytimes.com/athletic/5754862/2024/09/08/browns-cowboys-deshaun-watson/
+
+**Jim Harbaugh's vision materializes in Chargers' physical debut win over Raiders**\
+`The Chargers have spent five months working on some odd fourth-quarter-finishing drills. They paid off in Sunday's season opener.`\
+https://nytimes.com/athletic/5754984/2024/09/08/chargers-jim-harbaugh-first-win-raiders/
+
 **Seahawks earn Mike Macdonald's first win after finding their 'swagger' on defense**\
 `Seattle shook off a rocky start, stuck to its game plan on offense and eventually took control of its Week 1 matchup with Denver.`\
 https://nytimes.com/athletic/5754814/2024/09/08/seahawks-mike-macdonald-first-win-broncos/
