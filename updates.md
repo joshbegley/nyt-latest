@@ -1,3 +1,7 @@
+**Jayden Daniels' NFL debut hints at promise and peril**\
+`On an otherwise disappointing day in Tampa, the Commanders' rookie QB was their silver lining.`\
+https://nytimes.com/athletic/5753726/2024/09/08/jayden-daniels-commanders-nfl-debut-rushing/
+
 **Padres takeaways: Starting pitching issues, Kim’s continued absence, Arraez’s streak**\
 `Padres starting pitchers have combined for a 5.37 ERA since Aug. 16, but Arraez appears to be over his thumb injury.`\
 https://nytimes.com/athletic/5754830/2024/09/08/padres-ha-seong-kim-absence-luis-arraez-streak/

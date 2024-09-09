@@ -1,7 +1,3 @@
-**Jayden Daniels' NFL debut hints at promise and peril**\
-`On an otherwise disappointing day in Tampa, the Commanders' rookie QB was their silver lining.`\
-https://nytimes.com/athletic/5753726/2024/09/08/jayden-daniels-commanders-nfl-debut-rushing/
-
 **Padres takeaways: Starting pitching issues, Kim’s continued absence, Arraez’s streak**\
 `Padres starting pitchers have combined for a 5.37 ERA since Aug. 16, but Arraez appears to be over his thumb injury.`\
 https://nytimes.com/athletic/5754830/2024/09/08/padres-ha-seong-kim-absence-luis-arraez-streak/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5754433/2024/09/08/raiders-chargers-antonio-pierce-
 **The Latest Zoom for Harris? ‘Paisans for Kamala,’ Featuring Robert De Niro**\
 `Steve Buscemi, Marisa Tomei, John Turturro, Mark Ruffalo and Lorraine Bracco joined Bill de Blasio, Nancy Pelosi and Leon Panetta to raise money for Kamala Harris.`\
 https://nytimes.com/2024/09/08/us/politics/paisans-for-kamala-robert-de-niro-pelosi.html
+
+**Twins takeaways after Rocco Baldelli lights up team for 'unprofessional series' vs. Royals**\
+`“That was an unprofessional series of baseball that we just played and that’s my only comment,” Baldelli said after the Twins were swept. `\
+https://nytimes.com/athletic/5754606/2024/09/08/rocco-baldelli-twins-swept-by-royals/
 
