@@ -1,3 +1,11 @@
+**Jamie Heller to Be Next Top Editor of Business Insider**\
+`Ms. Heller spent two decades at The Wall Street Journal, most recently leading corporate coverage.`\
+https://nytimes.com/2024/09/09/business/media/business-insider-jamie-heller.html
+
+**Palestinians Hold Funeral for American Slain in West Bank**\
+`Aysenur Ezgi Eygi, a 26-year-old from the Seattle area, was shot and killed, when Israeli forces opened fire during a protest she was attending in a village in the West Bank, witnesses and Palestinian officials said.`\
+https://nytimes.com/2024/09/09/world/middleeast/aysenur-ezgi-eygi-funeral.html
+
 **Walt Ehmer, Former Waffle House C.E.O., Dies at 58**\
 `Mr. Ehmer steered the diner chain through the pandemic and preached spending more time in one of his 24-hour restaurants than in his office.`\
 https://nytimes.com/2024/09/09/us/waffle-house-walt-ehmer-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5756351/2024/09/09/david-njoku-jake-ferguson-browns
 **NFL Week 2 odds, schedule: Packers, Browns on wrong side of line movement**\
 `The NFL Week 2 odds are already on the move with injury news and Week 1 plot twists. See odds for every NFL Week 2 game.`\
 https://nytimes.com/athletic/5756153/2024/09/09/nfl-week-2-odds-spreads-schedule/
-
-**Apple Unveils New Watches as Tech Waits for New iPhones**\
-`The company is expected to showcase a number of new products at a two-hour event.`\
-https://nytimes.com/2024/09/09/technology/apple-event-iphone-16-watch.html
-
-**West Bank Procession is Held For Killed Turkish American Activist**\
-`Aysenur Ezgi Eygi, a 26-year-old American, was killed last week while protesting the Israeli occupation of the West Bank.`\
-https://nytimes.com/video/world/middleeast/100000009680736/west-bank-memorial-procession-activist-.html
 
