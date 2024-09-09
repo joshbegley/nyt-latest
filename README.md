@@ -1,3 +1,11 @@
+**Do You Know These Sports Books That Became Movies?**\
+`Try this short quiz about screen adaptations and the source material that inspired them.`\
+https://nytimes.com/interactive/2024/09/09/books/review/sports-book-movies.html
+
+**John Mulaney to Star in a Broadway Comedy About Love and Marriage**\
+`“All In: Comedy About Love,” a new play by Simon Rich, includes a celebrity cast taking on the roles of pirates, dogs and other zany characters.`\
+https://nytimes.com/2024/09/09/arts/john-mulaney-broadway-comedy-love.html
+
 **Russian Forces Capture 2 Villages in Eastern Ukraine, Analysis Shows**\
 `Russia appears to be trying to cut off Ukrainian soldiers around the strategic city of Pokrovsk, a focal point of the war in recent months.`\
 https://nytimes.com/2024/09/09/world/europe/russia-pokrovsk-ukraine.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/09/us/kentucky-shooting-manhunt-schools-closed.html
 **The Best View of New York**\
 `Off-White celebrates the allure of the melting pot.`\
 https://nytimes.com/2024/09/09/style/off-white-ib-kamara-new-york-fashion-week.html
-
-**Bernal undergoes surgery after ACL injury, expected to miss 12 months**\
-`Barcelona midfielder Marc Bernal has undergone surgery after suffering an anterior cruciate ligament (ACL) injury and is expected to be out for 12 months.`\
-https://nytimes.com/athletic/5755634/2024/09/09/barcelona-marc-bernal-injury-acl-surgery/
-
-**Election Live Updates: Harris and Trump Prepare for Debate Showdown in Tight Race**\
-`Donald J. Trump and Kamala Harris will meet this week for the only debate they have scheduled, in what is likely to be a consequential matchup with polls showing a neck-and-neck election.`\
-https://nytimes.com/live/2024/09/09/us/harris-trump-election
 
