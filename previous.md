@@ -1,4 +1,8 @@
-**Llloyd: Deshaun Watson got trampled by the Cowboys, but please don't blame the protection**\
+**Why New York’s Animal ‘Wet Markets’ Unnerve Some Scientists**\
+`Urban wet markets are fertile grounds for viral transmission, experts say. Outbreaks of bird flu have already occurred.`\
+https://nytimes.com/2024/09/09/health/bird-flu-wet-markets.html
+
+**Lloyd: Deshaun Watson got trampled by the Cowboys, but please don't blame the protection**\
 `It’s only one game, but it's Year 3 of the Deshaun Watson Experience and things look eerily similar. Is it too late to request a refund?`\
 https://nytimes.com/athletic/5755058/2024/09/09/browns-cowboys-deshaun-watson/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5750721/2024/09/09/pwhl-team-names-logos-jerseys/
 **In radio interview, Harris makes a debate prediction: ‘I think he’s going to lie.’**\
 `By Reid J. Epstein`\
 https://nytimes.com/live/2024/09/09/us/harris-trump-election/in-radio-interview-harris-makes-a-debate-prediction-i-think-hes-going-to-lie
-
-**Hedge Fund Pushes for End of Murdochs’ Control at News Corp**\
-`Starboard Value, a fund that takes stakes in companies and agitates for changes, said that political disagreements among Rupert Murdoch’s children could be “paralyzing” for the media firm.`\
-https://nytimes.com/2024/09/09/business/dealbook/murdoch-news-corp-starboard-value.html
 
