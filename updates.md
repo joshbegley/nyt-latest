@@ -1,3 +1,7 @@
+**Man Utd enter partnership with local authorities in Old Trafford regeneration next step**\
+`Manchester United have entered a strategic partnership with local authorities to align plans for Old Trafford&#8217;s future with the regeneration of the surrounding area.`\
+https://nytimes.com/athletic/5755286/2024/09/09/manchester-united-old-trafford-regeneration-partnership/
+
 **Hollywood Bowl Cancels Show as Heat Wave Knocks Out Power**\
 `One power supplier said its systems had been overloaded by the prolonged high temperatures. Excess heat warnings remain in place for more than 17 million people in California and Arizona.`\
 https://nytimes.com/2024/09/09/us/california-heatwave-hollywood-bowl-power.html
