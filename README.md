@@ -15,7 +15,7 @@ https://nytimes.com/athletic/5756975/2024/09/09/kadarius-toney-browns-contract/
 https://nytimes.com/2024/09/09/us/terrorgram-collective-white-supremacists-charged.html
 
 **Carlos Correa 'very encouraged' by recent progress, hints return to field could come soon**\
-`The Twins' shortstop recently started getting a different type of treatment for his plantar fasciitis and he's pleased with the results.`\
+`The Twins' shortstop recently started getting a different type of treatment for his plantar fasciitis, and he's pleased with the results.`\
 https://nytimes.com/athletic/5756944/2024/09/09/twins-carlos-correa-return-soon/
 
 **I Rewatched the Trump-Clinton Debates So You Don’t Have to**\
