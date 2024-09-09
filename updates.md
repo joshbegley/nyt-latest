@@ -1,3 +1,7 @@
+**Russian Forces Capture 2 Villages in Eastern Ukraine, Analysis Shows**\
+`Russia appears to be trying to cut off Ukrainian soldiers around the strategic city of Pokrovsk, a focal point of the war in recent months.`\
+https://nytimes.com/2024/09/09/world/europe/russia-pokrovsk-ukraine.html
+
 **NASCAR Cup Series playoff outlook after Atlanta: Joey Logano, Ryan Blaney lead the field**\
 `Joey Logano is through, Ryan Blaney is leading the rest of the field, and everyone still has a chance after the first playoff race.`\
 https://nytimes.com/athletic/5755745/2024/09/09/nascar-playoff-outlook-joey-logano-ryan-blaney/
