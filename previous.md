@@ -1,3 +1,7 @@
+**Is Lonzo Ball ready? How good is Josh Giddey? Five burning Bulls questions**\
+`Some of these questions will go a long way in determining what kind of season the Bulls have.`\
+https://nytimes.com/athletic/5757899/2024/09/10/bulls-questions-2024-25-nba-season/
+
 **Tuesday's MLB odds, best bets: Projections for pitching matchups, playoffs and more**\
 `See pitching matchups, playoff projections, win projections and more for Tuesday's MLB games.`\
 https://nytimes.com/athletic/5758125/2024/09/10/mlb-odds-best-bets-projections-september-10/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5758031/2024/09/10/nick-robertson-maple-leafs-contr
 **How Aston Martin F1 won the race for Adrian Newey, the sport's most coveted mind**\
 `Aston Martin was eager to show Newey what it was putting together at Silverstone and to make a major statement of intent by signing him.`\
 https://nytimes.com/athletic/5757972/2024/09/10/f1-adrian-newey-aston-martin/
-
-**Israel Says Its Forces Likely Shot ‘Unintentionally’ at Slain American Activist**\
-`The Israeli military expressed regret over the killing of Aysenur Eygi, a young American who was participating in a protest in the occupied West Bank.`\
-https://nytimes.com/2024/09/10/world/middleeast/israel-west-bank-activist-shooting.html
 
