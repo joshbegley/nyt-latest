@@ -1,3 +1,7 @@
+**Tracking Tropical Depression Bebinca**\
+`See the likely path and wind arrival times for Bebinca.`\
+https://nytimes.com/interactive/2024/09/10/weather/bebinca-map-path-tracker.html
+
 **Longtime MoMA Director Will Step Down Next Year**\
 `After 30 years at the helm of the Museum of Modern Art in New York, Glenn Lowry will depart in September 2025.`\
 https://nytimes.com/2024/09/10/arts/design/glenn-lowry-moma-director.html
