@@ -1,3 +1,7 @@
+**Palace should not panic - Glasner's teams tend to start seasons slowly**\
+`A look back at Glasner's previous managerial stops suggests he rarely begins a season with a bang`\
+https://nytimes.com/athletic/5741160/2024/09/10/palace-glasner-start-slow/
+
 **How Sam Johnstone rose from EFL loans to England international - and now Wolves No 1**\
 `Johnstone was unwilling to settle for a place on the Palace bench and took the chance to join Wolves. This is his goalkeeping journey so far`\
 https://nytimes.com/athletic/5755734/2024/09/10/sam-johnstone-wolves-england/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5726387/2024/09/10/jorrel-hato-ajax-netherlands/
 **Mbappe's start at Madrid: Low profile, finding his place, 'totally different' to Cristiano Ronaldo**\
 `It hasn't all been plain sailing, but Madrid are confident Mbappe is finding his feet`\
 https://nytimes.com/athletic/5755578/2024/09/10/kylian-mbappe-real-madrid-start/
-
-**Hugo Ekitike is reborn at Eintracht Frankfurt, having lost his shine at PSG**\
-`The young French forward has seized his chance to impress in the Bundesliga and his talent is becoming harder to ignore with each display`\
-https://nytimes.com/athletic/5755629/2024/09/10/ekitike-eintracht-psg-france-newcastle/
 
