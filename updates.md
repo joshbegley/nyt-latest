@@ -1,3 +1,7 @@
+**Women Making Waves**\
+`Tory Burch plays to win, and Rachel Scott of Diotima has a star-making show.`\
+https://nytimes.com/2024/09/10/style/tory-burch-diotima-new-york-fashion-week.html
+
 **Love on Aisle 9? A TikTok Fad Fills Grocery Stores With Singles**\
 `How the Spanish grocery chain Mercadona got a reputation as an unlikely dating hub, with its upside-down pineapples as props.`\
 https://nytimes.com/2024/09/10/world/europe/spain-pineapples-tiktok-dating-mercadona.html
