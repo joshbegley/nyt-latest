@@ -1,3 +1,7 @@
+**Aaron Rodgers is back, but loss to 49ers a reminder the Jets have a long way to go**\
+`Surprisingly, the defense was the issue in a Monday night loss at San Francisco.`\
+https://nytimes.com/athletic/5757564/2024/09/10/aaron-rodgers-return-monday-night-football-jets-loss-49ers/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/09/10/crosswords/spelling-bee-forum.html
