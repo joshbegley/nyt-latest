@@ -1,3 +1,7 @@
+**Congress Honors U.S. Service Members Killed During Afghanistan Withdrawal**\
+`Leaders awarded the Congressional Gold Medal to the families of 13 military service members killed during the evacuation, as Republicans seek to use the attack to tarnish Vice President Kamala Harris.`\
+https://nytimes.com/2024/09/10/us/politics/service-members-honored-afghanistan.html
+
 **James Earl Jones’s Stage Career Was Rich, and Startlingly Diverse**\
 `In addition to Broadway crowd-pleasers, the actor deftly navigated classics, experimental theater and new works by major contemporary playwrights.`\
 https://nytimes.com/2024/09/10/theater/james-earl-jones-broadway-theater.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/10/us/los-angeles-fire-maps-california.html
 **The Riches of Northern France in Fort Greene**\
 `Plus cocktails inspired by red sauce standards, bistro fare for the East Village and more restaurant news.`\
 https://nytimes.com/2024/09/10/dining/nyc-restaurant-news.html
-
-**‘We Believed Them’: Gazans React After Israel Strikes Humanitarian Zone**\
-`Israeli airstrikes on a humanitarian zone in southern Gaza killed several and caused extensive damage to tents of people that had been sheltering there.`\
-https://nytimes.com/video/world/middleeast/100000009682901/mawasi-gaza-strike-witness.html
 
