@@ -1,3 +1,7 @@
+**Wildfire Erupts in Orange County, Forcing Evacuations**\
+`A small brush fire in Southern California quickly grew into a nearly 2,000-acre blaze, threatening nearby suburban neighborhoods.`\
+https://nytimes.com/2024/09/09/us/wildfire-orange-county-evacuations.html
+
 **City Hall Seeks New York Police Commissioner’s Resignation**\
 `Edward Caban has faced increasing pressure since last week, when federal agents searched the homes of top officials in the Adams administration and confiscated electronic devices.`\
 https://nytimes.com/2024/09/09/nyregion/caban-nypd-police-commissioner-resign.html

@@ -1,3 +1,7 @@
+**Wildfire Erupts in Orange County, Forcing Evacuations**\
+`A small brush fire in Southern California quickly grew into a nearly 2,000-acre blaze, threatening nearby suburban neighborhoods.`\
+https://nytimes.com/2024/09/09/us/wildfire-orange-county-evacuations.html
+
 **City Hall Seeks New York Police Commissioner’s Resignation**\
 `Edward Caban has faced increasing pressure since last week, when federal agents searched the homes of top officials in the Adams administration and confiscated electronic devices.`\
 https://nytimes.com/2024/09/09/nyregion/caban-nypd-police-commissioner-resign.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/5756759/2024/09/09/deshaun-watson-lawsuit-sexual-as
 **Browns sign WR Kadarius Toney to practice squad**\
 `In 32 games played Toney has caught 82 passes for 760 yards and three touchdowns.`\
 https://nytimes.com/athletic/5756975/2024/09/09/kadarius-toney-browns-contract/
-
-**2 Charged With Inciting Violence and Promoting Hate Crimes Around the World**\
-`Dallas Humber and Matthew Allison are accused of soliciting hate crimes through the terrorist network they led on the platform Telegram, according to federal prosecutors.`\
-https://nytimes.com/2024/09/09/us/terrorgram-collective-white-supremacists-charged.html
 
