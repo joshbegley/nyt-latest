@@ -1,3 +1,15 @@
+**Kamala Harris Could Be in Trouble**\
+`Her momentum stalled after a lackluster CNN interview. The debate is her best chance to restart it.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/harris-trouble-debate
+
+**Scott Boras’ take on Cody Bellinger and the up-and-down Cubs: 'Wrigley Field is unexplainable'**\
+`“Wrigley Field had the most unusual season. It has been an offensive (drought),” Boras said.`\
+https://nytimes.com/athletic/5757600/2024/09/10/scott-boras-cody-bellinger-cubs/
+
+**What Wall Street Wants to Hear at the Debate**\
+`Taxes, tariffs, trade and regulation: Business leaders have a long list of topics they want addressed in Tuesday’s presidential showdown.`\
+https://nytimes.com/2024/09/10/business/dealbook/presidential-debate-economy-wall-street.html
+
 **NFL playoff projections 2024: The Athletic's model predicts the field**\
 `Our NFL projections model forecasts each team’s chances of conquering their division, advancing in the playoffs and winning the Super Bowl`\
 https://nytimes.com/athletic/5698572/2024/09/10/nfl-playoff-2024-chances-projections-probabilities/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5753086/2024/09/10/bill-belichick-monday-night-foot
 **Twins' slumping, banged-up lineup has gone missing at the worst possible time**\
 `There is plenty of blame to go around. But as bad as the Twins' pitching and defense have been, the hitting has been even worse.`\
 https://nytimes.com/athletic/5753003/2024/09/10/minnesota-twins-slumping-lineup/
-
-**Liverpool fan survey: Fears that transfer window has sold Slot short**\
-`The team has started the season superbly but supporters are concerned at the lack of incomings`\
-https://nytimes.com/athletic/5755335/2024/09/10/liverpool-transfers-arne-slot/
-
-**Broncos' Week 1 loss illustrates pain, promise of developing young players**\
-`Running back Audric Estimé ran the gamut on his first NFL carry, a microcosm of Sean Payton's task of teaching a team full of young players.`\
-https://nytimes.com/athletic/5756467/2024/09/10/broncos-young-players-week-1/
-
-**The Pulse: Well, he played more than four snaps**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5755901/2024/09/10/aaron-rodgers-jets-49ers-the-pulse/
 
