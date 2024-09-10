@@ -1,3 +1,11 @@
+**Arsenal to wear away kit against Tottenham in north London derby**\
+`Arsenal are set to wear their away kit against Tottenham Hotspur in the north London derby on Sunday.`\
+https://nytimes.com/athletic/5758378/2024/09/10/arsenal-kit-north-london-derby-tottenham-why/
+
+**Volkswagen Quits Labor Agreement, Paving Way for Job Cuts**\
+`A week after it announced it was considering closing factories in Germany, the automaker said it was exiting a labor contract that protected workers from layoffs.`\
+https://nytimes.com/2024/09/10/business/volkswagen-labor-layoffs-germany.html
+
 **ESPN would be interested in Charles Barkley, exec says**\
 `NBC chairman Mark Lazerus said he would also have interest in Barkley.`\
 https://nytimes.com/athletic/5758350/2024/09/10/charles-barkley-future-espn-tnt/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/10/us/politics/jd-vance-backtrack-haitian-migrants-p
 **Who do I drop? Blake Corum, Luke Musgrave and more fantasy football cuts ahead of Week 2**\
 `Gary Davenport identifies five players rostered in a majority of fantasy football leagues who can be kicked to the curb ahead of Week 2.`\
 https://nytimes.com/athletic/5758277/2024/09/10/fantasy-football-week-2-drops-corum-watson-musgrave/
-
-**Usmanov and Moshiri court case adds to Everton takeover complications**\
-`Uzbek oligarch Alisher Usmanov has taken legal action against a company owned by Everton owner Farhad Moshiri, creating a complicating factor in the club&#8217;s already difficult takeover process.`\
-https://nytimes.com/athletic/5758257/2024/09/10/everton-takeover-moshiri-usmanov-court-case/
-
-**After Fierce Lobbying, Regulators Soften Proposed Rules on Banks**\
-`A top Federal Reserve official said that blowback to proposed rules on capital requirements led him to “relearn the lesson of humility.”`\
-https://nytimes.com/2024/09/10/business/banks-basel-capital.html
 

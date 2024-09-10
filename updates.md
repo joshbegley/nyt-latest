@@ -1,3 +1,11 @@
+**Arsenal to wear away kit against Tottenham in north London derby**\
+`Arsenal are set to wear their away kit against Tottenham Hotspur in the north London derby on Sunday.`\
+https://nytimes.com/athletic/5758378/2024/09/10/arsenal-kit-north-london-derby-tottenham-why/
+
+**Volkswagen Quits Labor Agreement, Paving Way for Job Cuts**\
+`A week after it announced it was considering closing factories in Germany, the automaker said it was exiting a labor contract that protected workers from layoffs.`\
+https://nytimes.com/2024/09/10/business/volkswagen-labor-layoffs-germany.html
+
 **ESPN would be interested in Charles Barkley, exec says**\
 `NBC chairman Mark Lazerus said he would also have interest in Barkley.`\
 https://nytimes.com/athletic/5758350/2024/09/10/charles-barkley-future-espn-tnt/
