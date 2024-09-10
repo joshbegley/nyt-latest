@@ -1,3 +1,15 @@
+**Will Jennings, Oscar Winner for ‘My Heart Will Go On,’ Dies at 80**\
+`As an in-demand lyricist, he won a shelf of awards for hits with Steve Winwood, Eric Clapton and Dionne Warwick, as well as for the theme song for “Titanic.”`\
+https://nytimes.com/2024/09/10/arts/music/will-jennings-dead.html
+
+**Trump and Harris will face off in Pennsylvania, which looks increasingly crucial.**\
+`By Katie Glueck`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/trump-and-harris-will-face-off-in-pennsylvania-which-looks-increasingly-crucial
+
+**In the South of France, a Utopian Town Inspired by Ancient Pyramids**\
+`Once derided, La Grande Motte, a surreal 1960s resort in the South of France, is increasingly seen as having been ahead of its time.`\
+https://nytimes.com/2024/09/10/t-magazine/la-grande-motte-french-resort-town.html
+
 **Wednesday Briefing: A Guide to the Harris-Trump Debate**\
 `Plus, the great films of James Earl Jones.`\
 https://nytimes.com/2024/09/10/briefing/harris-trump-debate-gaza-guns.html
