@@ -1,3 +1,11 @@
+**The Midlife Marriage Tuneup**\
+`Therapists and relationship researchers share 6 questions that can bring couples closer during this stage.`\
+https://nytimes.com/2024/09/10/well/family/marriage-midlife-counseling.html
+
+**Five climate questions for the candidates.**\
+`By David Gelles`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/five-climate-questions-for-the-candidates
+
 **Congress Honors U.S. Service Members Killed During Afghanistan Withdrawal**\
 `Leaders awarded the Congressional Gold Medal to the families of 13 military service members killed during the evacuation, as Republicans seek to use the attack to tarnish Vice President Kamala Harris.`\
 https://nytimes.com/2024/09/10/us/politics/service-members-honored-afghanistan.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5758465/2024/09/10/steelers-justin-fields-russell-w
 **Harris Ad Features Obama’s Oblique Joke About Trump**\
 `The spot, which focuses on Barack Obama’s remark about a “weird obsession with crowd sizes” and accompanying gesture, is airing in media markets where Donald Trump is likely to be.`\
 https://nytimes.com/2024/09/10/us/politics/harris-ad-trump-obama-crowd-size.html
-
-**Maps: Tracking the Wildfires Around Los Angeles**\
-`Here’s a look at where fires are burning and where smoke is expected.`\
-https://nytimes.com/2024/09/10/us/los-angeles-fire-maps-california.html
-
-**The Riches of Northern France in Fort Greene**\
-`Plus cocktails inspired by red sauce standards, bistro fare for the East Village and more restaurant news.`\
-https://nytimes.com/2024/09/10/dining/nyc-restaurant-news.html
 
