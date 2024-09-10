@@ -1,3 +1,7 @@
+**Astros takeaways: Full strength lineup, Framber Valdez's Cy Young Award case and more**\
+`Plus a look at how Houston's defensive metrics might influence who'll they'll target in the offseason.`\
+https://nytimes.com/athletic/5756716/2024/09/10/astros-framber-valdez-cy-young-case/
+
 **With Jordan Addison’s availability uncertain, Vikings need Jalen Nailor more than ever**\
 `With Addison dealing with an ankle injury, Nailor will likely play a key role for the Vikings offense Sunday against the 49ers.`\
 https://nytimes.com/athletic/5756812/2024/09/10/vikings-jordan-addison-jalen-nailor/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/10/crosswords/wordle-review-1180.html
 **The Connections Companion No. 463**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, Sept. 11, 2024.`\
 https://nytimes.com/2024/09/10/crosswords/connections-companion-463.html
-
-**Man Accused of Killing Ugandan Olympic Runner in Gasoline Attack Dies**\
-`Dickson Ndiema died from injuries he sustained when he set Rebecca Cheptegei, his former partner, on fire. The police had planned to charge him with murder.`\
-https://nytimes.com/2024/09/10/world/africa/rebecca-cheptegei-boyfriend-dead-attack.html
 
