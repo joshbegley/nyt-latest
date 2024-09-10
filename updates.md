@@ -1,3 +1,11 @@
+**How USMNT landed Pochettino: Hayes' role, Chelsea delays and Argentine steak**\
+`From initial talks with Klopp, to meetings in Barcelona and a donation from a billionaire, Pochettino's hire was no ordinary process`\
+https://nytimes.com/athletic/5755854/2024/09/10/mauricio-pochettino-usmnt-us-soccer/
+
+**Skeptical House Panel Grills Cuomo on New York’s Covid Response**\
+`The Republican-led subcommittee sought to blame the former governor for the state’s early-pandemic guidance that may have left New Yorkers more vulnerable to dying in nursing homes.`\
+https://nytimes.com/2024/09/10/nyregion/cuomo-covid-hearing-nursing-homes.html
+
 **NHL expansion, LTIR, Russians in the Olympics and renaming the Lady Byng: Bill Daly talks**\
 `The NHL's deputy commissioner addressed many of the hottest topics around the league in a sit-down Tuesday in Vegas.`\
 https://nytimes.com/athletic/5758996/2024/09/10/nhl-expansion-ltir-russians/

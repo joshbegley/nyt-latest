@@ -1,3 +1,11 @@
+**How USMNT landed Pochettino: Hayes' role, Chelsea delays and Argentine steak**\
+`From initial talks with Klopp, to meetings in Barcelona and a donation from a billionaire, Pochettino's hire was no ordinary process`\
+https://nytimes.com/athletic/5755854/2024/09/10/mauricio-pochettino-usmnt-us-soccer/
+
+**Skeptical House Panel Grills Cuomo on New York’s Covid Response**\
+`The Republican-led subcommittee sought to blame the former governor for the state’s early-pandemic guidance that may have left New Yorkers more vulnerable to dying in nursing homes.`\
+https://nytimes.com/2024/09/10/nyregion/cuomo-covid-hearing-nursing-homes.html
+
 **NHL expansion, LTIR, Russians in the Olympics and renaming the Lady Byng: Bill Daly talks**\
 `The NHL's deputy commissioner addressed many of the hottest topics around the league in a sit-down Tuesday in Vegas.`\
 https://nytimes.com/athletic/5758996/2024/09/10/nhl-expansion-ltir-russians/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/10/nyregion/adams-banks-consultant-investigation.htm
 **Israeli Bombing in Gaza ‘Humanitarian Zone’ Kills at Least 19, Officials Say**\
 `The Israeli airstrike, which the military said targeted Hamas militants, appeared to use 2,000-pound bombs, which Israel has been criticized for using in heavily populated areas.`\
 https://nytimes.com/2024/09/10/world/middleeast/israeli-attack-gaza-humanitarian-zone.html
-
-**No indication NFL is investigating 49ers' McCaffrey injury designation**\
-`Mason said he was told he would start Friday during a postgame interview with the broadcast crew.`\
-https://nytimes.com/athletic/5758913/2024/09/10/christian-mccaffrey-49ers-injury-designation/
-
-**Was James Earl Jones an EGOT Winner? It’s Complicated.**\
-`The actor won just about every award he could — but his Oscar was an honorary one. Is that enough for an EGOT?`\
-https://nytimes.com/2024/09/10/movies/james-earl-jones-egot.html
 
