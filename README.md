@@ -1,3 +1,11 @@
+**Inmate’s Wife Subjected to Cavity Search Will Get $5.6 Million in Settlement**\
+`Christina Cardenas of California was subjected to the search after going to visit her husband at a state prison in 2019, according to her lawsuit. “It left me traumatized,” she said.`\
+https://nytimes.com/2024/09/10/us/inmate-wife-strip-search-settlement-california.html
+
+**Tracking Attacks in the First Harris-Trump Debate**\
+`See how the candidates used their speaking time to discuss the issues or criticize their opponent.`\
+https://nytimes.com/interactive/2024/09/10/us/elections/trump-harris-attacks-debate-tracker.html
+
 **Timeline of Deshaun Watson's legal troubles, career since first sexual misconduct allegation**\
 `A lawsuit filed this week was the latest development in a saga that has stretched to early 2021.`\
 https://nytimes.com/athletic/5758187/2024/09/10/deshaun-watson-timeline-sexual-assault-allegations-lawsuits/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5758996/2024/09/10/nhl-expansion-ltir-russians/
 **Mauricio Pochettino appointed USMNT head coach**\
 `Pochettino immediately becomes the highest-profile manager in the history of the program.`\
 https://nytimes.com/athletic/5702396/2024/09/10/mauricio-pochettino-usmnt-head-coach-appointed/
-
-**Current and former Iowa, Iowa State athletes join gambling lawsuit**\
-`Eleven current and former Iowa and Iowa State athletes joined an earlier lawsuit alleging their rights were violated in a gambling sting.`\
-https://nytimes.com/athletic/5758984/2024/09/10/iowa-athletes-gambling-lawsuit-2/
-
-**Melania Trump, Silent for Months, Re-emerges in a Series of Cryptic Videos**\
-`In one, released online on Tuesday, she muses conspiratorially about the attempt on her husband’s life. The videos are intended to promote a new memoir.`\
-https://nytimes.com/2024/09/10/us/elections/melania-trump-book-videos.html
 
