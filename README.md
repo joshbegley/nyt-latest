@@ -1,3 +1,7 @@
+**Francine Could Be Fueled by Gulf of Mexico’s Warm Waters**\
+`Francine is forecast to become a Category 2 hurricane before landfall this week, but an even stronger hurricane isn’t out of the question.`\
+https://nytimes.com/2024/09/09/weather/gulf-temperatures-francine.html
+
 **Wildfire Erupts in Orange County, Forcing Evacuations**\
 `A small brush fire in Southern California quickly grew into a nearly 2,000-acre blaze, threatening nearby suburban neighborhoods.`\
 https://nytimes.com/2024/09/09/us/wildfire-orange-county-evacuations.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/09/09/business/deshaun-watson-sexual-assault-lawsuit.ht
 **Deshaun Watson accused of sexual assault in new lawsuit**\
 `The incident allegedly occurred on a date at the woman's apartment in October 2020.`\
 https://nytimes.com/athletic/5756759/2024/09/09/deshaun-watson-lawsuit-sexual-assault-allegation/
-
-**Browns sign WR Kadarius Toney to practice squad**\
-`In 32 games played Toney has caught 82 passes for 760 yards and three touchdowns.`\
-https://nytimes.com/athletic/5756975/2024/09/09/kadarius-toney-browns-contract/
 
