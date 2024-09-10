@@ -1,3 +1,15 @@
+**Orange County Leader Faces Scrutiny Over Charity’s Pandemic Spending**\
+`Andrew Do, an Orange County supervisor, has been asked to resign after directing more than $13 million to a nonprofit run by his daughter and allies. The group was supposed to spend the money on meals for vulnerable residents.`\
+https://nytimes.com/2024/09/10/us/orange-county-leader-faces-scrutiny-over-charitys-pandemic-spending.html
+
+**Predicting the Debate Ratings: Super Bowl? Nah. ‘Seinfeld’ Finale? Maybe.**\
+`A semi-scientific theory about how many Americans will tune in to watch Kamala Harris and Donald Trump on Tuesday night.`\
+https://nytimes.com/2024/09/10/business/media/presidential-debate-tv-ratings.html
+
+**Weekly Student News Quiz: Record Heat, Chicken Nuggets, Summer Song**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2024/09/10/learning/10StudentNewsQuiz.html
+
 **The candidates will square off at 9 p.m. Eastern. Here’s the latest.**\
 `By Jonathan Weisman`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/the-candidates-will-square-off-at-9-pm-eastern-heres-the-latest
@@ -19,22 +31,10 @@ https://nytimes.com/athletic/5757600/2024/09/10/scott-boras-cody-bellinger-cubs/
 https://nytimes.com/2024/09/10/business/dealbook/presidential-debate-economy-wall-street.html
 
 **NFL playoff projections 2024: The Athletic's model predicts the field**\
-`Our NFL projections model forecasts each team’s chances of conquering their division, advancing in the playoffs and winning the Super Bowl`\
+`Our NFL projection model forecasts each team’s chances of conquering their division, advancing in the playoffs and winning the Super Bowl`\
 https://nytimes.com/athletic/5698572/2024/09/10/nfl-playoff-2024-chances-projections-probabilities/
 
 **Morgan Rogers and the value of playing youth football for England**\
 `Unai Emery criticised Rogers' call-up - but the benefits of under-21 international football are clear for all to see`\
 https://nytimes.com/athletic/5757078/2024/09/10/morgan-rogers-aston-villa-england-emery/
-
-**SpaceX Launches Polaris Dawn Private Spaceflight Mission**\
-`Polaris Dawn successfully launched Tuesday morning with four nonprofessional astronauts aboard.`\
-https://nytimes.com/video/us/100000009682839/spacex-launches-polaris-dawn.html
-
-**Trump Mocks Harris’s Height. But Her Fans See a Certain Stature.**\
-`Kamala Harris is modest in stature, but is considered by some to have Tall Energy. Donald Trump has insisted she shouldn’t be allowed to use “boxes or artificial lifts” during the debate.`\
-https://nytimes.com/2024/09/10/style/kamala-harris-height-debate.html
-
-**The Athletic FC: In search of 'seal dribbler', Odegaard injury, Gibraltar - a political football**\
-`The Athletic FC  is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox`\
-https://nytimes.com/athletic/5757696/2024/09/10/in-search-of-seal-dribbler-odegaard-injury-and-gibraltar-a-political-football/
 
