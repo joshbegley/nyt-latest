@@ -1,3 +1,15 @@
+**The Cast Is Set for ‘Saturday Night Live’ Season 50**\
+`Ashley Padilla, Emil Wakim and Jane Wickline will be the show’s new faces in its landmark season.`\
+https://nytimes.com/2024/09/10/arts/television/snl-season-50-cast.html
+
+**Kadioglu on course to be available for Brighton's clash against Ipswich**\
+`Brighton &amp; Hove Albion&#8217;s new signing Ferdi Kadioglu says he is available for Saturday’s Premier League home game against Ipswich Town.`\
+https://nytimes.com/athletic/5758534/2024/09/10/ferdi-kadioglu-brighton-injury-return-ipswich/
+
+**Steelers preparing to start Justin Fields at QB vs. Broncos**\
+`Fields started the season opener after the Steelers scratched Russell Wilson, who's dealing with a nagging calf injury.`\
+https://nytimes.com/athletic/5758465/2024/09/10/steelers-justin-fields-russell-wilson-starting-qb/
+
 **Harris Ad Features Obama’s Oblique Joke About Trump**\
 `The spot, which focuses on Barack Obama’s remark about a “weird obsession with crowd sizes” and accompanying gesture, is airing in media markets where Donald Trump is likely to be.`\
 https://nytimes.com/2024/09/10/us/politics/harris-ad-trump-obama-crowd-size.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5750061/2024/09/10/draftycar-nascar-mobile-game/
 **Gunman Who Shot Trump Was Not Spotted as Early as Reported**\
 `A law enforcement officer at the rally where the former president was shot now says he misidentified a man he saw earlier that day as Thomas Crooks.`\
 https://nytimes.com/2024/09/10/us/politics/gunman-trump-rally-timeline-fbi.html
-
-**The 2024 Presidential Debate: A Place for Student Reactions**\
-`On Tuesday night, the candidates will meet for their only scheduled debate. Will you be watching?`\
-https://nytimes.com/2024/09/10/learning/the-2024-presidential-debate-a-place-for-student-reactions.html
-
-**How a Tuesday Rush Hour Became a Doom Loop for New Jersey Commuters**\
-`On Tuesday morning, trains and buses from New Jersey were stymied by a power outage and traffic accidents.`\
-https://nytimes.com/2024/09/10/nyregion/njtransit-amtrak-lincoln-tunnel.html
-
-**NFL best bets Week 2: Why we're high on Cowboys, Bills-Dolphins offense and C.J. Stroud**\
-`Austin's Mock's NFL Projection Model gives us three best bets (and counting) for Week 2 of NFL action.`\
-https://nytimes.com/athletic/5758414/2024/09/10/nfl-best-bets-week-2-bills-dolphins-cowboys-texans/
 
