@@ -1,3 +1,7 @@
+**Google and Apple Lose Appeals in Landmark E.U. Cases**\
+`The cases had established the European Union as the world’s leading tech watchdog, but have since raised questions about its protracted appeals process.`\
+https://nytimes.com/2024/09/10/technology/european-union-apple-google-antitrust.html
+
 **Israel Strikes Humanitarian Area; Gazan Authorities Say Dozens Are Killed**\
 `Israel’s military said it had targeted militants who carried out attacks. A Civil Defense official in Gaza said at least 40 people were killed.`\
 https://nytimes.com/live/2024/09/10/world/israel-hamas-gaza-war
