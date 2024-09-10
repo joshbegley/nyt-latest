@@ -1,3 +1,7 @@
+**Timeline of Deshaun Watson's legal troubles, career since first sexual misconduct allegation**\
+`A lawsuit filed this week was the latest development in a saga that has stretched to early 2021.`\
+https://nytimes.com/athletic/5758187/2024/09/10/deshaun-watson-timeline-sexual-assault-allegations-lawsuits/
+
 **49ers minutia minute: Details on Christian McCaffrey; Brock Purdy's mature game**\
 `A review of Monday's win highlighted the strong performance by the 49ers' right-side guys — guard Dominick Puni and tackle Colton McKivitz.`\
 https://nytimes.com/athletic/5758928/2024/09/10/49ers-christian-mccaffrey-brock-purdy/
