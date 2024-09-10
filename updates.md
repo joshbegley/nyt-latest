@@ -1,3 +1,11 @@
+**Scoop City: Week 2 fantasy advice**\
+`Scoop City is The Athletic&#8217;s daily NFL newsletter.`\
+https://nytimes.com/athletic/5758155/2024/09/10/fantasy-football-week-2-waivers-scoop-city/
+
+**Villa defend 'difficult decisions' on Champions League ticket prices**\
+`Aston Villa have defended the cost of Champions League tickets after general admission for the club&#8217;s home opener against Bayern Munich sold out on Monday.`\
+https://nytimes.com/athletic/5758083/2024/09/10/aston-villa-ticket-prices-champions-league/
+
 **Is Lonzo Ball ready? How good is Josh Giddey? Five burning Bulls questions**\
 `Some of these questions will go a long way in determining what kind of season the Bulls have.`\
 https://nytimes.com/athletic/5757899/2024/09/10/bulls-questions-2024-25-nba-season/

@@ -1,3 +1,11 @@
+**Scoop City: Week 2 fantasy advice**\
+`Scoop City is The Athletic&#8217;s daily NFL newsletter.`\
+https://nytimes.com/athletic/5758155/2024/09/10/fantasy-football-week-2-waivers-scoop-city/
+
+**Villa defend 'difficult decisions' on Champions League ticket prices**\
+`Aston Villa have defended the cost of Champions League tickets after general admission for the club&#8217;s home opener against Bayern Munich sold out on Monday.`\
+https://nytimes.com/athletic/5758083/2024/09/10/aston-villa-ticket-prices-champions-league/
+
 **Is Lonzo Ball ready? How good is Josh Giddey? Five burning Bulls questions**\
 `Some of these questions will go a long way in determining what kind of season the Bulls have.`\
 https://nytimes.com/athletic/5757899/2024/09/10/bulls-questions-2024-25-nba-season/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/10/us/california-wildfires-line-airport/heres-w
 **Doctors Give Black Women Unneeded C-Sections to Fill Operating Rooms, Study Suggests**\
 `Healthy Black women with low risk factors were far more likely to get C-sections than white women with similar medical histories, a large new study found.`\
 https://nytimes.com/2024/09/10/health/cesarean-sections-black-women.html
-
-**Leafs ink Robertson to 1-year deal 8 days before training camp**\
-`Robertson signed a one-year, $875,000 deal on Tuesday, eight days before the start of training camp.`\
-https://nytimes.com/athletic/5758031/2024/09/10/nick-robertson-maple-leafs-contract/
-
-**How Aston Martin F1 won the race for Adrian Newey, the sport's most coveted mind**\
-`Aston Martin was eager to show Newey what it was putting together at Silverstone and to make a major statement of intent by signing him.`\
-https://nytimes.com/athletic/5757972/2024/09/10/f1-adrian-newey-aston-martin/
 
