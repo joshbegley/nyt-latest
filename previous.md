@@ -1,3 +1,7 @@
+**Twins' slumping, banged-up lineup has gone missing at the worst possible time**\
+`There is plenty of blame to go around. But as bad as the Twins' pitching and defense have been, the hitting has been even worse.`\
+https://nytimes.com/athletic/5753003/2024/09/10/minnesota-twins-slumping-lineup/
+
 **Liverpool fan survey: Fears that transfer window has sold Slot short**\
 `The team has started the season superbly but supporters are concerned at the lack of incomings`\
 https://nytimes.com/athletic/5755335/2024/09/10/liverpool-transfers-arne-slot/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5756401/2024/09/10/adrian-newey-f1-aston-martin-red
 **Judge Delays Trump Sentencing Until After Election**\
 `Explaining a legal win for the former president, and its limits.`\
 https://nytimes.com/2024/09/10/podcasts/the-daily/trump-sentencing.html
-
-**Inside Trump-Harris Debate Prep, and Israel Strikes Humanitarian Zone**\
-`Plus, remembering an iconic Hollywood voice.`\
-https://nytimes.com/2024/09/10/podcasts/trump-harris-debate.html
 
