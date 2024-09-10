@@ -1,3 +1,7 @@
+**Harris Economic Plan Focuses on Prices, a Key Vulnerability**\
+`Vice President Kamala Harris has been balancing the challenges of defending “Bidenomics” and charting her own course on the economy.`\
+https://nytimes.com/2024/09/10/us/politics/kamala-harris-economy-prices.html
+
 **Scoop City: Week 2 fantasy advice**\
 `Scoop City is The Athletic&#8217;s daily NFL newsletter.`\
 https://nytimes.com/athletic/5758155/2024/09/10/fantasy-football-week-2-waivers-scoop-city/
