@@ -1,3 +1,7 @@
+**Conservative German Princess Says She Hosted Justice Alito at Her Castle**\
+`Princess Gloria von Thurn und Taxis said Justice Alito and his wife were guests at St. Emmeram Palace for a summer music festival. She called the couple her “friends” and the justice “a hero.”`\
+https://nytimes.com/2024/09/09/us/politics/german-princess-alito-castle-visit.html
+
 **Francine Could Be Fueled by Gulf of Mexico’s Warm Waters**\
 `Francine is forecast to become a Category 2 hurricane before landfall this week, but an even stronger hurricane isn’t out of the question.`\
 https://nytimes.com/2024/09/09/weather/gulf-temperatures-francine.html

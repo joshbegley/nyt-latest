@@ -1,3 +1,7 @@
+**Conservative German Princess Says She Hosted Justice Alito at Her Castle**\
+`Princess Gloria von Thurn und Taxis said Justice Alito and his wife were guests at St. Emmeram Palace for a summer music festival. She called the couple her “friends” and the justice “a hero.”`\
+https://nytimes.com/2024/09/09/us/politics/german-princess-alito-castle-visit.html
+
 **Francine Could Be Fueled by Gulf of Mexico’s Warm Waters**\
 `Francine is forecast to become a Category 2 hurricane before landfall this week, but an even stronger hurricane isn’t out of the question.`\
 https://nytimes.com/2024/09/09/weather/gulf-temperatures-francine.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/09/09/theater/james-earl-jones-photos.html
 **Deshaun Watson Is Accused of Sexual Assault**\
 `In a lawsuit filed Monday, a woman said the N.F.L. quarterback, who faced numerous accusations of sexual misconduct several years ago, assaulted her in 2020.`\
 https://nytimes.com/2024/09/09/business/deshaun-watson-sexual-assault-lawsuit.html
-
-**Deshaun Watson accused of sexual assault in new lawsuit**\
-`The incident allegedly occurred on a date at the woman's apartment in October 2020.`\
-https://nytimes.com/athletic/5756759/2024/09/09/deshaun-watson-lawsuit-sexual-assault-allegation/
 
