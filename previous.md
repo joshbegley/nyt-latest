@@ -2,7 +2,7 @@
 `More than a year has passed since the tour agreed to a deal with LIV Golf, but there is some hope an in-person gathering in New York could create momentum.`\
 https://nytimes.com/2024/09/10/business/dealbook/pga-tour-saudi-liv-golf-nyc.html
 
-**Kyle Schwarber sets MLB record with 14th leadoff home run of season**\
+**Kyle Schwarber hits record leadoff home run, leaves game with elbow injury**\
 `Schwarber's 14th leadoff homer broke Alfonso Soriano's mark, which had stood since 2003. He has bashed seven homers in his last eight games.`\
 https://nytimes.com/athletic/5759305/2024/09/10/kyle-schwarber-leadoff-home-runs-record/
 
