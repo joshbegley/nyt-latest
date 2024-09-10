@@ -1,3 +1,11 @@
+**Fantasy trends and hidden gems: Our projections vs. NHL.com's pre-draft rankings**\
+`Shayna Goldman explores the biggest discrepancies between The Athletic's fantasy hockey projections and NHL.com's pre-draft rankings.`\
+https://nytimes.com/athletic/5753643/2024/09/10/fantasy-hockey-trends-draft-kit-projections-vs-nhl/
+
+**1 Person Killed in Ukrainian Drone Strike Near Moscow, Russia Says**\
+`Russia’s air defense system shot down 20 drones in the region, the country’s defense ministry said.`\
+https://nytimes.com/2024/09/10/world/europe/russia-moscow-drone-strike-ukraine.html
+
 **‘It’s Not Pandering When You Tell the Truth’: Five Columnists Game Out the Debate**\
 `What does success or failure look like for Donald Trump and Kamala Harris in Tuesday’s debate?`\
 https://nytimes.com/2024/09/10/opinion/trump-harris-debate.html
