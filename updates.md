@@ -1,3 +1,7 @@
+**White Sox watch: Loss No. 112 comes as Guardians pitcher flirts with perfection**\
+`The 2024 Chicago White Sox are on pace to eclipse the 120-loss New York Mets of 1962. Can they avoid infamy?`\
+https://nytimes.com/athletic/5734497/2024/09/09/white-sox-watch-most-losses-season/
+
 **Chants — and opportunities — for reserves as Phillies navigate nagging September injuries**\
 `Injuries have allowed players like Buddy Kennedy, Kody Clemens, Weston Wilson and Johan Rojas a chance to contribute.`\
 https://nytimes.com/athletic/5757298/2024/09/09/phillies-september-injuries-opportunities-chants/

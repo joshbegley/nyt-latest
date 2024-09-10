@@ -1,3 +1,7 @@
+**White Sox watch: Loss No. 112 comes as Guardians pitcher flirts with perfection**\
+`The 2024 Chicago White Sox are on pace to eclipse the 120-loss New York Mets of 1962. Can they avoid infamy?`\
+https://nytimes.com/athletic/5734497/2024/09/09/white-sox-watch-most-losses-season/
+
 **Chants — and opportunities — for reserves as Phillies navigate nagging September injuries**\
 `Injuries have allowed players like Buddy Kennedy, Kody Clemens, Weston Wilson and Johan Rojas a chance to contribute.`\
 https://nytimes.com/athletic/5757298/2024/09/09/phillies-september-injuries-opportunities-chants/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5757208/2024/09/09/nebraska-college-football-recrui
 **Conservative German Princess Says She Hosted Justice Alito at Her Castle**\
 `Princess Gloria von Thurn und Taxis said Justice Alito and his wife were guests at St. Emmeram Palace for a summer music festival. She called the couple her “friends” and the justice “a hero.”`\
 https://nytimes.com/2024/09/09/us/politics/german-princess-alito-castle-visit.html
-
-**Francine Could Be Fueled by Gulf of Mexico’s Warm Waters**\
-`Francine is forecast to become a Category 2 hurricane before landfall this week, but an even stronger hurricane isn’t out of the question.`\
-https://nytimes.com/2024/09/09/weather/gulf-temperatures-francine.html
 
