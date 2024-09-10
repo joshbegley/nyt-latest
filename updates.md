@@ -1,3 +1,7 @@
+**Tuesday's MLB odds, best bets: Projections for pitching matchups, playoffs and more**\
+`See pitching matchups, playoff projections, win projections and more for Tuesday's MLB games.`\
+https://nytimes.com/athletic/5758125/2024/09/10/mlb-odds-best-bets-projections-september-10/
+
 **Husband on Trial in Rape and Drugging Case in France Is Taken to Hospital**\
 `Dominique Pelicot, 71, was due to testify on Tuesday over charges he invited dozens of men to his home to abuse his wife, Gisèle Pelicot. His condition was not immediately clear.`\
 https://nytimes.com/2024/09/10/world/europe/dominique-pelicot-france-rape-hospital.html
