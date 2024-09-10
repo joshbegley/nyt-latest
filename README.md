@@ -6,7 +6,7 @@ https://nytimes.com/2024/09/10/technology/trump-dead-cats-migrants-ohio.html
 `Brents will miss at least the next four games and possibly the rest of his second NFL campaign.`\
 https://nytimes.com/athletic/5758812/2024/09/10/colts-juju-brents-injured-reserve-updates/
 
-**Adam Silver talks media right deal, expansion at board of governors meeting**\
+**Adam Silver talks media rights deal, expansion at board of governors meeting**\
 `“There is no specific plan right now about Europe other than we’re agreeing to look intensively at the opportunity," Silver said Tuesday.`\
 https://nytimes.com/athletic/5758737/2024/09/10/adam-silver-media-rights-expansion-board-of-governors-meeting/
 
