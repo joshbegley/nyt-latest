@@ -1,4 +1,8 @@
 **Braves stay in wild-card race despite injuries, shaky offense**\
+`“We’ve got a lot of opportunity in front of us, but we’ve just got to make it happen," first baseman Matt Olson said.`\
+https://nytimes.com/athletic/5757349/2024/09/09/braves-stay-in-wild-card-race/
+
+**Braves stay in wild-card race despite injuries, shaky offense**\
 `“We’ve got a lot of opportunity in front of us, but we’ve just got to make it happen," said first baseman Matt Olson.`\
 https://nytimes.com/athletic/5757349/2024/09/09/braves-stay-in-wild-card-race/
 
