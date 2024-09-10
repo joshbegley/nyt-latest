@@ -1,3 +1,7 @@
+**Dolphins say police conduct with  Hill 'overly aggressive and violent'**\
+`Hill was en route to the stadium Sunday for the Dolphins’ game against the Jacksonville Jaguars when police pulled him over.`\
+https://nytimes.com/athletic/5756541/2024/09/09/mike-mcdaniel-tyreek-hill-dolphins/
+
 **Gazan authorities report dozens of deaths in an area Israel had designated safe.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/09/09/world/israel-hamas-gaza-war/gazan-authorities-report-dozens-of-deaths-in-an-area-israel-had-designated-safe
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/09/nyregion/caban-nypd-police-commissioner-resign.ht
 **Why Trump Can Afford to Disrespect His Anti-Abortion Voters**\
 `The ex-president has remade the religious right in his image.`\
 https://nytimes.com/2024/09/09/opinion/trump-anti-abortion-evangelical.html
-
-**Where Kamala Harris and Donald Trump Stand on the Issues**\
-`Here’s what Vice President Harris and former President Donald J. Trump have done and want to do on abortion, democracy, the economy, immigration, Israel and Gaza, and Social Security and Medicare.`\
-https://nytimes.com/interactive/2024/us/politics/trump-harris-issues-election.html
 
