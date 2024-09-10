@@ -1,3 +1,11 @@
+**Braves stay in wild-card race despite injuries, shaky offense**\
+`“We’ve got a lot of opportunity in front of us, but we’ve just got to make it happen," said first baseman Matt Olson.`\
+https://nytimes.com/athletic/5757349/2024/09/09/braves-stay-in-wild-card-race/
+
+**Mets find a way to win ugly and retake lead for wild-card spot**\
+`New York is hitting just .207 in the last seven games but has a 6-1 record thanks to a pitching staff that's getting the job done. `\
+https://nytimes.com/athletic/5757334/2024/09/09/mets-win-ugly-wild-card-spot/
+
 **What has to happen for the Tigers to make a playoff push?**\
 `Detroit entered Tuesday 3 games out of the final AL wild-card spot. With 18 games left, a long season is boiling down to a frantic finish.`\
 https://nytimes.com/athletic/5757307/2024/09/09/detroit-tigers-playoff-push-what-has-to-happen/
