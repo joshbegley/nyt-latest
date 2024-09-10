@@ -1,6 +1,5 @@
 **Key takeaways as 49ers surge by Jets: Jordan Mason steals spotlight and spoils Aaron Rodgers' return**\
-`By Matt Barrows, David Lombardi, Zack Rosenblatt and Lauren Merola
-New York Jets quarterback Aaron Rodgers&#8217; first full game in 20 months — since his 2022 season finale with the Green Bay Packers — not only lacked rhythm but attempts in a 32-19 loss to the San Francisco 49ers on Monday night at Levi Stadium.`\
+`Rodgers' first full game in 20 months — since his 2022 season finale with the Green Bay Packers — not only lacked rhythm, but attempts.`\
 https://nytimes.com/athletic/5756887/2024/09/09/jets-49ers-week-1-results-analysis/
 
 **Mets find a way to win ugly and retake lead for wild-card spot**\
