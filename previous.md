@@ -1,3 +1,7 @@
+**No indication NFL is investigating 49ers' McCaffrey injury designation**\
+`Mason said he was told he would start Friday during a postgame interview with the broadcast crew.`\
+https://nytimes.com/athletic/5758913/2024/09/10/christian-mccaffrey-49ers-injury-designation/
+
 **Was James Earl Jones an EGOT Winner? It’s Complicated.**\
 `The actor won just about every award he could — but his Oscar was an honorary one. Is that enough for an EGOT?`\
 https://nytimes.com/2024/09/10/movies/james-earl-jones-egot.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5757916/2024/09/10/college-football-northern-illino
 **Kane hungry to silence doubters after scoring twice on 100th England cap**\
 `Harry Kane stated that he is &#8220;hungry to prove people wrong&#8221; after the England captain scored two goals on his 100th cap to help his side secure a 2-0 win against Finland.`\
 https://nytimes.com/athletic/5758890/2024/09/10/harry-kane-100-caps-england/
-
-**Tiny Love Stories: ‘I Had a Crush on the Teacher’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2024/09/10/style/tiny-modern-love-stories-i-had-a-crush-on-the-teacher.html
 

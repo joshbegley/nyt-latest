@@ -1,3 +1,7 @@
+**No indication NFL is investigating 49ers' McCaffrey injury designation**\
+`Mason said he was told he would start Friday during a postgame interview with the broadcast crew.`\
+https://nytimes.com/athletic/5758913/2024/09/10/christian-mccaffrey-49ers-injury-designation/
+
 **Was James Earl Jones an EGOT Winner? It’s Complicated.**\
 `The actor won just about every award he could — but his Oscar was an honorary one. Is that enough for an EGOT?`\
 https://nytimes.com/2024/09/10/movies/james-earl-jones-egot.html
