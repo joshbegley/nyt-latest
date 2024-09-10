@@ -1,3 +1,15 @@
+**Late Night Observes ‘Debate Night Eve’**\
+`Jimmy Kimmel predicted Kamala Harris and Donald Trump will face questions “on all the big issues: the economy, immigration, electrocution, sharks.”`\
+https://nytimes.com/2024/09/10/arts/television/late-night-presidential-debate.html
+
+**How the 49ers simplified the offense with Jordan Mason and steamrolled the Jets**\
+`Kyle Shanahan said Christian McCaffrey's calf has been problematic for more than a month but wouldn't rule him out for Sunday in Minnesota.`\
+https://nytimes.com/athletic/5757550/2024/09/10/jordan-mason-49ers-jets-week-1/
+
+**1 Person Killed in Ukrainian Drone Attack Near Moscow, Russia Says**\
+`Russia’s air defense system shot down 20 drones in the region, the country’s defense ministry said.`\
+https://nytimes.com/2024/09/10/world/europe/russia-moscow-drone-strike-ukraine.html
+
 **How the 49ers simplified the offense with Jordan Mason and steamrolled the Jets**\
 `Kyle Shanahan said Christian McCaffrey's calf has been problematic for more than a month but wouldn't rule him out for Sunday in Minnesota.`\
 https://nytimes.com/athletic/5757550/2024/09/10/how-the-49ers-simplified-the-offense-with-jordan-mason-and-steamrolled-the-jets/
