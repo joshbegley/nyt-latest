@@ -1,3 +1,7 @@
+**I.C.C. Prosecutor Presses Court for Arrest Warrants for Hamas Chiefs and Israeli Leaders**\
+`The prosecutor, Karim Khan, asked the court to make its decision on the warrants with the “utmost urgency” because of “the worsening situation in Palestine.”`\
+https://nytimes.com/2024/09/10/world/middleeast/icc-warrants-hamas-netanyahu-yahya-sinwar.html
+
 **Luton 'extremely disappointed' after FA allegedly obscures banner at England Under-21 match**\
 `Luton Town has expressed their disappointment after the &#8220;betrayed by the FA 2008&#8221; message on a banner at Kenilworth Road was partially obscured during Monday night&#8217;s England Under-21&#8217;s match against Austria.`\
 https://nytimes.com/athletic/5758818/2024/09/10/luton-flag-fa-england-under-21s/
