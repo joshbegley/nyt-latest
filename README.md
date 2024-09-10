@@ -1,3 +1,15 @@
+**Gunman Who Shot Trump Was Not Spotted as Early as Reported**\
+`A law enforcement officer at the rally where the former president was shot now says he misidentified a man he saw earlier that day as Thomas Crooks.`\
+https://nytimes.com/2024/09/10/us/politics/gunman-trump-rally-timeline-fbi.html
+
+**The 2024 Presidential Debate: A Place for Student Reactions**\
+`On Tuesday night, the candidates will meet for their only scheduled debate. Will you be watching?`\
+https://nytimes.com/2024/09/10/learning/the-2024-presidential-debate-a-place-for-student-reactions.html
+
+**How a Tuesday Rush Hour Became a Doom Loop for New Jersey Commuters**\
+`On Tuesday morning, trains and buses from New Jersey were stymied by a power outage and traffic accidents.`\
+https://nytimes.com/2024/09/10/nyregion/njtransit-amtrak-lincoln-tunnel.html
+
 **NFL best bets Week 2: Why we're high on Cowboys, Bills-Dolphins offense and C.J. Stroud**\
 `Austin's Mock's NFL Projection Model gives us three best bets (and counting) for Week 2 of NFL action.`\
 https://nytimes.com/athletic/5758414/2024/09/10/nfl-best-bets-week-2-bills-dolphins-cowboys-texans/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5758349/2024/09/10/michigan-football-lawsuit-ncaa-n
 **South Carolina celebrates title with White House visit**\
 `The event ended with guards Te-Hina Paopao and Bree Hall presenting Biden with a No. 46 South Carolina basketball uniform.`\
 https://nytimes.com/athletic/5758393/2024/09/10/south-carolina-uconn-basketball-title-white-house/
-
-**Trump Is Making Promises That Many Economists Call Unrealistic**\
-`Economists and analysts are dubious of Trump’s promises to slash gas prices or prod interest rates lower.`\
-https://nytimes.com/2024/09/10/us/politics/trump-economics-gas-tariffs-inflation.html
-
-**Prolonged hot temperatures make fighting California wildfires more difficult.**\
-`By Austyn Gaffney`\
-https://nytimes.com/live/2024/09/10/us/california-wildfires-line-airport/temperatures-california-wildfires
-
-**JD Vance’s Outrageous Smear of Haitian Immigrants**\
-`It’s not only a vicious lie, but it’s a classic method of dehumanizing outsiders in order to persecute them.`\
-https://nytimes.com/live/2024/09/03/opinion/thepoint/vance-smear-haitians-pets
 
