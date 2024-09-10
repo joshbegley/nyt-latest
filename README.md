@@ -1,10 +1,14 @@
+**A.I. Wants Your Job… to Be Simpler, Faster and More Satisfying**\
+`Can artificial intelligence help make hiring a more human experience?`\
+https://nytimes.com/paidpost/indeed/ai-wants-your-job-to-be-simpler-faster-and-more-satisfying.html
+
 **Harris’s challenge: Pushing ahead without leaving Biden behind.**\
 `By Katie Rogers and Erica L. Green`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/harriss-challenge-pushing-ahead-without-leaving-biden-behind
 
 **‘Need to Tell a Story’: Why U.K.’s Leader Faced a Revolt Over a Retiree Benefit Cut**\
 `Prime Minister Keir Starmer survived a test of his authority, but more than 50 Labour lawmakers did not back his plan to reduce fuel aid.`\
-https://nytimes.com/2024/09/10/world/europe/-2024-09-10-world-europe-britain-starmer-critics-aid.html
+https://nytimes.com/2024/09/10/world/europe/britain-starmer-critics-fuel-aid.html
 
 **White House Is Drawn Into Dispute Over Chinese Doping**\
 `World Anti-Doping Agency officials, furious at U.S. investigations into the handling of positive tests, have sought to exclude a Biden administration representative from its board meetings.`\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/10/us/harris-trump-debate/five-climate-question
 **Congress Honors U.S. Service Members Killed During Afghanistan Withdrawal**\
 `Leaders awarded the Congressional Gold Medal to the families of 13 military service members killed during the evacuation, as Republicans seek to use the attack to tarnish Vice President Kamala Harris.`\
 https://nytimes.com/2024/09/10/us/politics/service-members-honored-afghanistan.html
-
-**James Earl Jones’s Stage Career Was Rich, and Startlingly Diverse**\
-`In addition to Broadway crowd-pleasers, the actor deftly navigated classics, experimental theater and new works by major contemporary playwrights.`\
-https://nytimes.com/2024/09/10/theater/james-earl-jones-broadway-theater.html
 
