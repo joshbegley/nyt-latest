@@ -1,3 +1,19 @@
+**Delta Planes Collide on Atlanta Airport Tarmac**\
+`The incident involving two planes getting ready to take off was the latest in a series of mishaps and near accidents at the country’s airports.`\
+https://nytimes.com/2024/09/10/business/delta-plane-collision-atlanta-airport.html
+
+**No plan for Chelsea to relocate to Earl's Court, says site developer**\
+`There is no plan for Chelsea to relocate to a new stadium on the former Earl&#8217;s Court Exhibition Centre site, according to the company managing a multi-billion pound redevelopment project on the land.`\
+https://nytimes.com/athletic/5758449/2024/09/10/chelsea-earls-court-stadium/
+
+**Voters in Jordan Voice Concern With Domestic Issues, Then With Gaza**\
+`The Muslim Brotherhood has campaigned on opposition to the Gaza war, but analysts say it won’t be as decisive a factor in parliamentary elections as high unemployment.`\
+https://nytimes.com/2024/09/10/world/middleeast/jordan-election-gaza-war-voters.html
+
+**‘Imminent Threat’ Found at Boar’s Head Plant 2 Years Before Fatal Listeria Outbreak**\
+`U.S. inspectors listed serious problems in 2022 that could have resulted in strict measures like a pause in production. But the plant continued operating, and some conditions persisted.`\
+https://nytimes.com/2024/09/10/health/boars-head-deli-meat-listeria.html
+
 **Prolonged hot temperatures make fighting California wildfires more difficult.**\
 `By Austyn Gaffney`\
 https://nytimes.com/live/2024/09/10/us/california-wildfires-line-airport/temperatures-california-wildfires
