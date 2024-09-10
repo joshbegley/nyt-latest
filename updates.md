@@ -1,3 +1,7 @@
+**Francine Could Be Fueled by Gulf of Mexico’s Warm Waters**\
+`Francine is forecast to become a Category 2 hurricane before landfall this week, but an even stronger hurricane isn’t out of the question.`\
+https://nytimes.com/2024/09/09/weather/gulf-temperatures-francine.html
+
 **Wildfire Erupts in Orange County, Forcing Evacuations**\
 `A small brush fire in Southern California quickly grew into a nearly 2,000-acre blaze, threatening nearby suburban neighborhoods.`\
 https://nytimes.com/2024/09/09/us/wildfire-orange-county-evacuations.html
