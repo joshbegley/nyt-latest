@@ -1,3 +1,19 @@
+**Matt Damon, Robert De Niro, Oprah and other celebrities pitch in for Harris.**\
+`By Theodore Schleifer`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/matt-damon-oprah-kamala-harris-celebrities
+
+**Officer Demoted After Writing Traffic Tickets Gets $175,000 Settlement**\
+`Matthew Bianchi said he was transferred after he angered a high-ranking official of the New York Police Department by ticketing a friend.`\
+https://nytimes.com/2024/09/10/nyregion/matthew-bianchi-nypd-tickets-settlement.html
+
+**Francisco Lopera, Pioneer in Alzheimer’s Research, Dies at 73**\
+`A neurologist in Colombia, he worked with the world’s largest extended family with Alzheimer’s and helped fuel research to prevent or delay dementia symptoms.`\
+https://nytimes.com/2024/09/10/science/francisco-lopera-restrepo-dead.html
+
+**A Weather Change Could Spark New Wildfires, Then Help Contain Them**\
+`A system that will bring a beneficial shift in temperatures and humidity to California later in the week could first drive winds that send sparks into dangerously dry undergrowth.`\
+https://nytimes.com/2024/09/10/us/weather-heat-california-wildfires.html
+
 **Will Jennings, Oscar Winner for ‘My Heart Will Go On,’ Dies at 80**\
 `As an in-demand lyricist, he won a shelf of awards for hits with Steve Winwood, Eric Clapton and Dionne Warwick, as well as for the theme song for “Titanic.”`\
 https://nytimes.com/2024/09/10/arts/music/will-jennings-dead.html
