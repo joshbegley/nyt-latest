@@ -1,3 +1,19 @@
+**Harris Ad Features Obama’s Oblique Joke About Trump**\
+`The spot, which focuses on Barack Obama’s remark about a “weird obsession with crowd sizes” and accompanying gesture, is airing in media markets where Donald Trump is likely to be.`\
+https://nytimes.com/2024/09/10/us/politics/harris-ad-trump-obama-crowd-size.html
+
+**Maps: Tracking the Wildfires Around Los Angeles**\
+`Here’s a look at where fires are burning and where smoke is expected.`\
+https://nytimes.com/2024/09/10/us/los-angeles-fire-maps-california.html
+
+**The Riches of Northern France in Fort Greene**\
+`Plus cocktails inspired by red sauce standards, bistro fare for the East Village and more restaurant news.`\
+https://nytimes.com/2024/09/10/dining/nyc-restaurant-news.html
+
+**‘We Believed Them’: Gazans React After Israel Strikes Humanitarian Zone**\
+`Israeli airstrikes on a humanitarian zone in southern Gaza killed several and caused extensive damage to tents of people that had been sheltering there.`\
+https://nytimes.com/video/world/middleeast/100000009682901/mawasi-gaza-strike-witness.html
+
 **Here’s how Trump has used debates to belittle women.**\
 `By Jess Bidgood`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/heres-how-trump-has-used-debates-to-belittle-women
