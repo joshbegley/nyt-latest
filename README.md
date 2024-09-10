@@ -1,3 +1,7 @@
+**Tuesday's MLB odds, best bets: Projections for pitching matchups, playoffs and more**\
+`See pitching matchups, playoff projections, win projections and more for Tuesday's MLB games.`\
+https://nytimes.com/athletic/5758125/2024/09/10/mlb-odds-best-bets-projections-september-10/
+
 **Husband on Trial in Rape and Drugging Case in France Is Taken to Hospital**\
 `Dominique Pelicot, 71, was due to testify on Tuesday over charges he invited dozens of men to his home to abuse his wife, Gisèle Pelicot. His condition was not immediately clear.`\
 https://nytimes.com/2024/09/10/world/europe/dominique-pelicot-france-rape-hospital.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5757972/2024/09/10/f1-adrian-newey-aston-martin/
 **Israel Says Its Forces Likely Shot ‘Unintentionally’ at Slain American Activist**\
 `The Israeli military expressed regret over the killing of Aysenur Eygi, a young American who was participating in a protest in the occupied West Bank.`\
 https://nytimes.com/2024/09/10/world/middleeast/israel-west-bank-activist-shooting.html
-
-**U.K. Hedge Fund Tycoon Buys The Spectator Magazine**\
-`Paul Marshall, a multimillionaire founder and investor in upstart conservative media outlets, has bought the right-wing British magazine in a deal worth about $131 million.`\
-https://nytimes.com/2024/09/10/world/europe/spectator-paul-marshall-telegraph.html
 
