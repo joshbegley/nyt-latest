@@ -1,3 +1,11 @@
+**5 Climate Questions for the Candidates Ahead of the Presidential Debate**\
+`Here’s what the Times climate team would ask Harris and Trump about climate change, energy policy and the environment.`\
+https://nytimes.com/2024/09/10/climate/harris-trump-debate-climate-change-questions.html
+
+**‘Emily in Paris’ Goes on a Roman Holiday**\
+`The frothy Netflix show frustrated Parisians with its portrait of their city. Now its heroine is heading to Rome — and the showrunner doesn’t care if residents there feel the same way.`\
+https://nytimes.com/2024/09/10/arts/television/emily-in-paris-goes-on-a-roman-holiday.html
+
 **Southwest Airlines Agrees to Board Changes After Pressure From Elliott**\
 `The airline has been under pressure from the hedge fund Elliott to replace its top management and make other changes to increase its profits.`\
 https://nytimes.com/2024/09/10/business/southwest-airlines-board-elliott-management.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5758155/2024/09/10/fantasy-football-week-2-waivers-
 **Villa defend 'difficult decisions' on Champions League ticket prices**\
 `Aston Villa have defended the cost of Champions League tickets after general admission for the club&#8217;s home opener against Bayern Munich sold out on Monday.`\
 https://nytimes.com/athletic/5758083/2024/09/10/aston-villa-ticket-prices-champions-league/
-
-**Is Lonzo Ball ready? How good is Josh Giddey? Five burning Bulls questions**\
-`Some of these questions will go a long way in determining what kind of season the Bulls have.`\
-https://nytimes.com/athletic/5757899/2024/09/10/bulls-questions-2024-25-nba-season/
-
-**Tuesday's MLB odds, best bets: Projections for pitching matchups, playoffs and more**\
-`See pitching matchups, playoff projections, win projections and more for Tuesday's MLB games.`\
-https://nytimes.com/athletic/5758125/2024/09/10/mlb-odds-best-bets-projections-september-10/
 

@@ -1,3 +1,11 @@
+**5 Climate Questions for the Candidates Ahead of the Presidential Debate**\
+`Here’s what the Times climate team would ask Harris and Trump about climate change, energy policy and the environment.`\
+https://nytimes.com/2024/09/10/climate/harris-trump-debate-climate-change-questions.html
+
+**‘Emily in Paris’ Goes on a Roman Holiday**\
+`The frothy Netflix show frustrated Parisians with its portrait of their city. Now its heroine is heading to Rome — and the showrunner doesn’t care if residents there feel the same way.`\
+https://nytimes.com/2024/09/10/arts/television/emily-in-paris-goes-on-a-roman-holiday.html
+
 **Southwest Airlines Agrees to Board Changes After Pressure From Elliott**\
 `The airline has been under pressure from the hedge fund Elliott to replace its top management and make other changes to increase its profits.`\
 https://nytimes.com/2024/09/10/business/southwest-airlines-board-elliott-management.html
