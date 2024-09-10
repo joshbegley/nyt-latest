@@ -1,3 +1,11 @@
+**Those Keurig Coffee Pods? They’re Not So Recyclable, the S.E.C. Says.**\
+`The agency said Keurig, in its financial filings, had claimed its pods could be “effectively recycled” but didn’t note that two big recycling companies wouldn’t accept them.`\
+https://nytimes.com/2024/09/10/climate/kuerig-coffee-pod-sec-recycle.html
+
+**Meet the moderators: Linsey Davis and David Muir of ABC News.**\
+`By Michael M. Grynbaum`\
+https://nytimes.com/2024/09/10/business/media/debate-moderators-david-muir-linsey-davis.html
+
 **Chris Christie: What Voters Want to See From Harris in the Debate**\
 `Millions of Americans are waiting for her to earn their vote. Here’s how she can do that.`\
 https://nytimes.com/2024/09/10/opinion/chris-christie-trump-debate.html

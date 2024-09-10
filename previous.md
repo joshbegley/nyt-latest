@@ -1,10 +1,14 @@
+**Those Keurig Coffee Pods? They’re Not So Recyclable, the S.E.C. Says.**\
+`The agency said Keurig, in its financial filings, had claimed its pods could be “effectively recycled” but didn’t note that two big recycling companies wouldn’t accept them.`\
+https://nytimes.com/2024/09/10/climate/kuerig-coffee-pod-sec-recycle.html
+
 **Chris Christie: What Voters Want to See From Harris in the Debate**\
 `Millions of Americans are waiting for her to earn their vote. Here’s how she can do that.`\
 https://nytimes.com/2024/09/10/opinion/chris-christie-trump-debate.html
 
 **Meet the moderators: Linsey Davis and David Muir of ABC News.**\
 `By Michael M. Grynbaum`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/moderators-linsey-davis-david-muir
+https://nytimes.com/2024/09/10/business/media/debate-moderators-david-muir-linsey-davis.html
 
 **Poverty Increased in 2023 as Prices Rose and Pandemic Aid Programs Expired**\
 `More faced hardship in the United States last year, the Census Bureau said, as inflation and the end of subsidies outweighed higher incomes.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5758687/2024/09/10/fantasy-football-targets-touches
 **Kamala Harris Visited a Spice Shop. Her Critics Flooded Yelp With Bad Reviews.**\
 `Penzeys, a chain of spice stores in more than 20 states, has frequently criticized Republicans.`\
 https://nytimes.com/2024/09/10/us/politics/penzeys-spices-kamala-harris.html
-
-**3 Questions: When Women Kill Their Abusers**\
-`It costs money to do this kind of research, and no one wants to fund it.`\
-https://nytimes.com/live/2024/09/03/opinion/thepoint/women-domestic-abuse
 
