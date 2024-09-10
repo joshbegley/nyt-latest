@@ -1,4 +1,8 @@
-**Phillies' Kyle Schwarber sets MLB record with 14th leadoff home run of season**\
+**PGA Tour Meets With Saudi Fund in Hopes of Getting Closer to Deal**\
+`More than a year has passed since the tour agreed to a deal with LIV Golf, but there is some hope an in-person gathering in New York could create momentum.`\
+https://nytimes.com/2024/09/10/business/dealbook/pga-tour-saudi-liv-golf-nyc.html
+
+**Kyle Schwarber sets MLB record with 14th leadoff home run of season**\
 `Schwarber's 14th leadoff homer broke Alfonso Soriano's mark, which had stood since 2003. He has bashed seven homers in his last eight games.`\
 https://nytimes.com/athletic/5759305/2024/09/10/kyle-schwarber-leadoff-home-runs-record/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5757935/2024/09/10/nikki-doucet-wsl-youtube/
 **The Optimism and Anxiety Ahead of Tonight’s Debate**\
 `I asked again how you’re feeling about the debate. You responded with new worries and hopes.`\
 https://nytimes.com/2024/09/10/us/politics/trump-harris-debate-election.html
-
-**How USMNT landed Pochettino: Hayes' role, Chelsea delays and Argentine steak**\
-`From initial talks with Klopp, to meetings in Barcelona and a donation from a billionaire, Pochettino's hire was no ordinary process`\
-https://nytimes.com/athletic/5755854/2024/09/10/mauricio-pochettino-usmnt-us-soccer/
 
