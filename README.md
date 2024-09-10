@@ -1,3 +1,11 @@
+**Kane hungry to silence doubters after scoring twice on 100th England cap**\
+`Harry Kane stated that he is &#8220;hungry to prove people wrong&#8221; after the England captain scored two goals on his 100th cap to help his side secure a 2-0 win against Finland.`\
+https://nytimes.com/athletic/5758890/2024/09/10/harry-kane-100-caps-england/
+
+**Tiny Love Stories: ‘I Had a Crush on the Teacher’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2024/09/10/style/tiny-modern-love-stories-i-had-a-crush-on-the-teacher.html
+
 **Matt Damon, Robert De Niro, Oprah and other celebrities pitch in for Harris.**\
 `By Theodore Schleifer`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/matt-damon-oprah-kamala-harris-celebrities
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/10/t-magazine/la-grande-motte-french-resort-town.htm
 **Wednesday Briefing: A Guide to the Harris-Trump Debate**\
 `Plus, the great films of James Earl Jones.`\
 https://nytimes.com/2024/09/10/briefing/harris-trump-debate-gaza-guns.html
-
-**I.C.C. Prosecutor Presses Court for Arrest Warrants for Hamas Chiefs and Israeli Leaders**\
-`The prosecutor, Karim Khan, asked the court to make its decision on the warrants with the “utmost urgency” because of “the worsening situation in Palestine.”`\
-https://nytimes.com/2024/09/10/world/middleeast/icc-warrants-hamas-netanyahu-yahya-sinwar.html
-
-**Luton 'extremely disappointed' after FA allegedly obscures banner at England Under-21 match**\
-`Luton Town has expressed their disappointment after the &#8220;betrayed by the FA 2008&#8221; message on a banner at Kenilworth Road was partially obscured during Monday night&#8217;s England Under-21&#8217;s match against Austria.`\
-https://nytimes.com/athletic/5758818/2024/09/10/luton-flag-fa-england-under-21s/
 
