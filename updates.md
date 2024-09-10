@@ -1,3 +1,7 @@
+**U.S., Vowing Sanctions, Accuses Iran of Sending Missiles to Russia**\
+`Secretary of State Antony J. Blinken made the announcement in London, where his British counterpart also promised more penalties on Iran. They plan to visit Ukraine together.`\
+https://nytimes.com/2024/09/10/world/europe/us-iran-russia-missiles-sanctions.html
+
 **The Rules for the Harris-Trump Presidential Debate on ABC**\
 `The campaigns agreed to the same guidelines that were used in June, when former President Donald J. Trump and President Biden faced off.`\
 https://nytimes.com/2024/09/10/us/politics/debate-rules-harris-trump-microphone-audience.html
