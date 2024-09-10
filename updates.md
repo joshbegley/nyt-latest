@@ -1,3 +1,11 @@
+**Illinois Man Wrongly Convicted of 2008 Murder Is Awarded $50 Million**\
+`Marcel Brown, 34, spent nearly 10 years in prison after he was coerced into making a false confession in connection to a 2008 murder, a jury decided Monday.`\
+https://nytimes.com/2024/09/10/us/marcel-brown-exonerated-damages-illinois.html
+
+**Firm Run by Brother of Top N.Y.C. Officials Is Focus of Bribery Inquiry**\
+`Terence Banks opened a consulting firm and soon found work with companies that do business with the city agencies overseen by his older brothers.`\
+https://nytimes.com/2024/09/10/nyregion/adams-banks-consultant-investigation.html
+
 **Israeli Bombing in Gaza ‘Humanitarian Zone’ Kills at Least 19, Officials Say**\
 `The Israeli airstrike, which the military said targeted Hamas militants, appeared to use 2,000-pound bombs, which Israel has been criticized for using in heavily populated areas.`\
 https://nytimes.com/2024/09/10/world/middleeast/israeli-attack-gaza-humanitarian-zone.html
