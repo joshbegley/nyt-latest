@@ -1,3 +1,7 @@
+**The Athletic's NFL QB stock report, Week 2: Stroud, Mayfield shine, Cousins, Levis plummet**\
+`A predictably sloppy Week 1 brought about quite a few changes to our top-32 rankings. Who were the biggest risers and fallers? `\
+https://nytimes.com/athletic/5756057/2024/09/10/nfl-qb-stock-report-rankings-stroud-mayfield-cousins/
+
 **With Jordan Addison’s availability uncertain, Vikings need Jalen Nailor more than ever**\
 `With Addison dealing with an ankle injury, Nailor will likely play a key role for the Vikings offense Sunday against the 49ers.`\
 https://nytimes.com/athletic/5756812/2024/09/10/vikings-jordan-addison-jalen-nailor/

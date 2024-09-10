@@ -22,6 +22,10 @@ https://nytimes.com/2024/09/10/podcasts/trump-harris-debate.html
 `Plucked from the miserable White Sox and delivered to the front-running Dodgers, Kopech has been a revelation in relief. `\
 https://nytimes.com/athletic/5756629/2024/09/10/dodgers-michael-kopech-white-sox-fastball/
 
+**The Athletic's NFL QB stock report, Week 2: Stroud, Mayfield shine, Cousins, Levis plummet**\
+`A predictably sloppy Week 1 brought about quite a few changes to our top-32 rankings. Who were the biggest risers and fallers? `\
+https://nytimes.com/athletic/5756057/2024/09/10/nfl-qb-stock-report-rankings-stroud-mayfield-cousins/
+
 **Wordle Review No. 1,180**\
 `Scroll down for hints and conversation about the puzzle for Wednesday, September 11, 2024.`\
 https://nytimes.com/2024/09/10/crosswords/wordle-review-1180.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/10/crosswords/connections-companion-463.html
 **Man Accused of Killing Ugandan Olympic Runner in Gasoline Attack Dies**\
 `Dickson Ndiema died from injuries he sustained when he set Rebecca Cheptegei, his former partner, on fire. The police had planned to charge him with murder.`\
 https://nytimes.com/2024/09/10/world/africa/rebecca-cheptegei-boyfriend-dead-attack.html
-
-**Polio Vaccinations Begin in Northern Gaza After Israel Detained U.N. Convoy**\
-`The U.N. said that Israeli forces held staff members for more than eight hours. The Israeli military said that it had intelligence suggesting there were “Palestinian suspects” with the convoy and stopped them for questioning.`\
-https://nytimes.com/2024/09/10/world/middleeast/gaza-polio-vaccinations-un.html
 
