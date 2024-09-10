@@ -1,3 +1,7 @@
+**Market share report: Tank Bigsby, Allen Lazard among top Week 2 waiver wire targets**\
+`Michael Salfino runs the Week 1 workload numbers with an eye on this week's waiver wire targets, which includes Jacksonville's Tank Bigsby.`\
+https://nytimes.com/athletic/5758687/2024/09/10/fantasy-football-targets-touches-week-1-bigsby-lazard/
+
 **3 Questions: When Women Kill Their Abusers**\
 `It costs money to do this kind of research, and no one wants to fund it.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/women-domestic-abuse

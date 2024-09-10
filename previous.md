@@ -1,3 +1,7 @@
+**Market share report: Tank Bigsby, Allen Lazard among top Week 2 waiver wire targets**\
+`Michael Salfino runs the Week 1 workload numbers with an eye on this week's waiver wire targets, which includes Jacksonville's Tank Bigsby.`\
+https://nytimes.com/athletic/5758687/2024/09/10/fantasy-football-targets-touches-week-1-bigsby-lazard/
+
 **Kamala Harris Visited a Spice Shop. Her Critics Flooded Yelp With Bad Reviews.**\
 `Penzeys, a chain of spice stores in more than 20 states, has frequently criticized Republicans.`\
 https://nytimes.com/2024/09/10/us/politics/penzeys-spices-kamala-harris.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/10/world/europe/britain-starmer-critics-fuel-aid.htm
 **White House Is Drawn Into Dispute Over Chinese Doping**\
 `World Anti-Doping Agency officials, furious at U.S. investigations into the handling of positive tests, have sought to exclude a Biden administration representative from its board meetings.`\
 https://nytimes.com/2024/09/10/world/europe/white-house-china-doping-wada.html
-
-**The Israeli military details the brutal conditions six hostages endured before they were killed in a tunnel.**\
-`By Liam Stack`\
-https://nytimes.com/live/2024/09/10/world/israel-hamas-gaza-war/the-israeli-military-details-the-brutal-conditions-six-hostages-endured-before-they-were-killed-in-a-tunnel
 
