@@ -1,3 +1,7 @@
+**Israeli Bombing in Gaza ‘Humanitarian Zone’ Kills at Least 19, Officials Say**\
+`The Israeli airstrike, which the military said targeted Hamas militants, appeared to use 2,000-pound bombs, which Israel has been criticized for using in heavily populated areas.`\
+https://nytimes.com/2024/09/10/world/middleeast/israeli-attack-gaza-humanitarian-zone.html
+
 **No indication NFL is investigating 49ers' McCaffrey injury designation**\
 `Mason said he was told he would start Friday during a postgame interview with the broadcast crew.`\
 https://nytimes.com/athletic/5758913/2024/09/10/christian-mccaffrey-49ers-injury-designation/

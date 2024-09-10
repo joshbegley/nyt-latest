@@ -1,3 +1,7 @@
+**Israeli Bombing in Gaza ‘Humanitarian Zone’ Kills at Least 19, Officials Say**\
+`The Israeli airstrike, which the military said targeted Hamas militants, appeared to use 2,000-pound bombs, which Israel has been criticized for using in heavily populated areas.`\
+https://nytimes.com/2024/09/10/world/middleeast/israeli-attack-gaza-humanitarian-zone.html
+
 **No indication NFL is investigating 49ers' McCaffrey injury designation**\
 `Mason said he was told he would start Friday during a postgame interview with the broadcast crew.`\
 https://nytimes.com/athletic/5758913/2024/09/10/christian-mccaffrey-49ers-injury-designation/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/10/style/celebrity-six-leticia-sarda-reddit.html
 **Why CFB is uniquely perfect, plus another new 134**\
 `Welcome to Until Saturday, the five-star college football newsletter: We got another example of why we love college football on Saturday.`\
 https://nytimes.com/athletic/5757916/2024/09/10/college-football-northern-illinois-until-saturday/
-
-**Kane hungry to silence doubters after scoring twice on 100th England cap**\
-`Harry Kane stated that he is &#8220;hungry to prove people wrong&#8221; after the England captain scored two goals on his 100th cap to help his side secure a 2-0 win against Finland.`\
-https://nytimes.com/athletic/5758890/2024/09/10/harry-kane-100-caps-england/
 
