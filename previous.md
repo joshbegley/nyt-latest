@@ -1,40 +1,40 @@
-**The Origin Story of Astro Bot’s Likable Little Guy**\
-`Astro, a babylike robot designed to show off the power of PlayStation hardware, has graduated to his own full-length adventure game.`\
-https://nytimes.com/2024/09/10/arts/astro-bot-origin-story.html
+**What Makes the Far Right Tick?**\
+`In “Stolen Pride,” Arlie Russell Hochschild explores the emotional lives of Americans who vote for Donald Trump.`\
+https://nytimes.com/2024/09/10/books/review/stolen-pride-arlie-russell-hochschild.html
 
-**Why Do Americans Want to Dress Like Swedes?**\
-`The Stockholm fashion label Toteme has a no-nonsense, “pragmatic” look — and a lot of fans in New York.`\
-https://nytimes.com/2024/09/10/style/toteme-sweden-nyfw.html
+**He Scammed People for Their Money. He Was Also a Victim.**\
+`A Ugandan man named Jalil Muyeke traveled to Thailand for a promising job opportunity. He ended up being trafficked into a cybercrime operation.`\
+https://nytimes.com/2024/09/10/business/scammers-trafficking-cybercrime.html
 
-**Memphis signs two-year deal with Corinthians after leaving Atletico**\
-`Memphis Depay has signed a two-year deal with Brazilian club Corinthians after leaving Atletico Madrid last season.`\
-https://nytimes.com/athletic/5757637/2024/09/10/memphis-depay-corinthians-transfer/
+**Why Can’t I Get This Song Out of My Head?**\
+`Here’s why earworms are never gonna give you up.`\
+https://nytimes.com/2024/09/10/well/mind/songs-earworm-causes.html
 
-**Venezuelan Election Observers Forced Into Exile in Colombia**\
-`Volunteer election observers who collected vote tallies at precincts across Venezuela found that the opposition candidate Edmundo González had received more votes than President Nicolás Maduro did in July’s election.`\
-https://nytimes.com/2024/09/10/video/venezuelan-election-observers-exile-colombia.html
+**Liane Moriarty Has Sold 20 Million Books. She Would Rather Not Talk About It.**\
+`The author of “Big Little Lies” and several other best-sellers has a new novel, “Here One Moment.” Promoting it — doing any publicity — remains a challenge, she said.`\
+https://nytimes.com/2024/09/10/books/here-one-moment-liane-moriarty.html
 
-**These Venezuelan Election Observers Got Death Threats. Now They’re in Hiding.**\
-`The New York Times spoke to several election volunteers for Venezuela’s opposition party who found that Edmundo Gonzáles defeated Nicolás Maduro in July. They fled the country after facing death threats from Maduro’s supporters.`\
-https://nytimes.com/video/world/americas/100000009647019/venezuelan-election-observers-exile-colombia.html
+**A Sinister Figure Glances at a Clock. It’s Got to Be Film Noir.**\
+`Experts say the genre was all about suspense, and what better way to convey that to audiences than an obsession with time?`\
+https://nytimes.com/2024/09/10/fashion/watches-film-noir-obsession-time.html
 
-**Australia Plans to Bar Young Children From Social Media**\
-`The government is considering setting a minimum age, between 14 and 16, for platforms like TikTok and Instagram.`\
-https://nytimes.com/2024/09/10/world/australia/social-media-age-restrictions.html
+**For Some Sex Assault Accusers, This Local Law Has Become a Last Resort**\
+`The law, which underpins several civil suits against Sean Combs, is the only remaining tool for reviving older claims in New York.`\
+https://nytimes.com/2024/09/10/arts/for-some-sex-assault-accusers-this-local-law-has-become-a-last-resort.html
 
-**Google and Apple Face Billions in Penalties After Losing E.U. Appeals**\
-`The cases had established the European Union as the world’s leading tech watchdog, but have since raised questions about its protracted appeals process.`\
-https://nytimes.com/2024/09/10/technology/european-union-apple-google-antitrust.html
+**Donald Trump and the Meaning of a Raised Fist**\
+`A history of the appropriation of a political gesture.`\
+https://nytimes.com/2024/09/10/opinion/trump-fist-gesture.html
 
-**Israel Strikes Humanitarian Area; Gazan Authorities Say Dozens Are Killed**\
-`Israel’s military said it had targeted militants who carried out attacks. A Civil Defense official in Gaza said at least 40 people were killed.`\
-https://nytimes.com/live/2024/09/10/world/israel-hamas-gaza-war
+**An Unlikely Pair’s Difficult Pilgrimage From Rural Alabama to the White House**\
+`In Jamie Quatro’s Southern Gothic novel “Two-Step Devil,” a dying “Prophet” and a former sex-trafficking victim make the same journey for two very different reasons.`\
+https://nytimes.com/2024/09/10/books/review/two-step-devil-jamie-quatro.html
 
-**Aaron Rodgers is back, but loss to 49ers a reminder the Jets have a long way to go**\
-`Surprisingly, the defense was the issue in a Monday night loss at San Francisco.`\
-https://nytimes.com/athletic/5757564/2024/09/10/aaron-rodgers-return-monday-night-football-jets-loss-49ers/
+**In Liane Moriarty’s Bustling New Novel, Fate Takes Flight**\
+`There are stakes on the plane in “Here One Moment,” the latest from the Australian fiction powerhouse.`\
+https://nytimes.com/2024/09/10/books/review/liane-moriarty-here-one-moment.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/09/10/crosswords/spelling-bee-forum.html
+**Are Art and Science Forever Divided? Or Are They One and the Same?**\
+`The sprawling California festival “PST Art” promises a dialogue between “two cultures.” But painting and physics may have more in common than their practitioners know.`\
+https://nytimes.com/2024/09/10/arts/design/pst-art-science-california-getty.html
 
