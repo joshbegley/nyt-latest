@@ -1,3 +1,15 @@
+**The Rules for the Harris-Trump Presidential Debate on ABC**\
+`The campaigns agreed to the same guidelines that were used in June, when former President Donald J. Trump and President Biden faced off.`\
+https://nytimes.com/2024/09/10/us/politics/debate-rules-harris-trump-microphone-audience.html
+
+**Here’s what to know about the fires.**\
+`By Soumya Karlamangla, Isabelle Taft and Vik Jolly`\
+https://nytimes.com/live/2024/09/10/us/california-wildfires-line-airport/heres-what-to-know-about-the-fires
+
+**Doctors Give Black Women Unneeded C-Sections to Fill Operating Rooms, Study Suggests**\
+`Healthy Black women with low risk factors were far more likely to get C-sections than white women with similar medical histories, a large new study found.`\
+https://nytimes.com/2024/09/10/health/cesarean-sections-black-women.html
+
 **Leafs ink Robertson to 1-year deal 8 days before training camp**\
 `Robertson signed a one-year, $875,000 deal on Tuesday, eight days before the start of training camp.`\
 https://nytimes.com/athletic/5758031/2024/09/10/nick-robertson-maple-leafs-contract/

@@ -1,3 +1,15 @@
+**The Rules for the Harris-Trump Presidential Debate on ABC**\
+`The campaigns agreed to the same guidelines that were used in June, when former President Donald J. Trump and President Biden faced off.`\
+https://nytimes.com/2024/09/10/us/politics/debate-rules-harris-trump-microphone-audience.html
+
+**Here’s what to know about the fires.**\
+`By Soumya Karlamangla, Isabelle Taft and Vik Jolly`\
+https://nytimes.com/live/2024/09/10/us/california-wildfires-line-airport/heres-what-to-know-about-the-fires
+
+**Doctors Give Black Women Unneeded C-Sections to Fill Operating Rooms, Study Suggests**\
+`Healthy Black women with low risk factors were far more likely to get C-sections than white women with similar medical histories, a large new study found.`\
+https://nytimes.com/2024/09/10/health/cesarean-sections-black-women.html
+
 **Leafs ink Robertson to 1-year deal 8 days before training camp**\
 `Robertson signed a one-year, $875,000 deal on Tuesday, eight days before the start of training camp.`\
 https://nytimes.com/athletic/5758031/2024/09/10/nick-robertson-maple-leafs-contract/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5755976/2024/09/10/how-long-can-giannis-still-be-ph
 **Renowned Scholar of Islam Is Convicted of Rape in Switzerland**\
 `An appeals court in Geneva overturned a previous acquittal and found Tariq Ramadan guilty. He faces separate charges in France.`\
 https://nytimes.com/2024/09/10/world/europe/tariq-ramadan-rape-conviction.html
-
-**Chelsea fans: Let us know your views on the club ownership crisis**\
-`With all the controversy surrounding the current ownership situation at the club, we want to know your views.`\
-https://nytimes.com/athletic/5757774/2024/09/10/chelsea-fans-views-club-ownership/
-
-**49ers dominated both trenches in their season-opening rout of the Jets**\
-`The 49ers struggled against the run in 2023, but that concerned seemed to be in the rearview mirror on Monday.`\
-https://nytimes.com/athletic/5757540/2024/09/10/49ers-jets-week-1-offensive-defensive-line/
-
-**Ranking the top 10 Canucks prospects, part 2: No. 5 to No. 1**\
-`The Canucks' system is relatively lacking in high quality depth, but at the top end of the system there are a trio of blue-chip assets.`\
-https://nytimes.com/athletic/5751011/2024/09/10/vancouver-canucks-top-prospects-preseason/
 
