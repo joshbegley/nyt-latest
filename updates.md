@@ -1,3 +1,11 @@
+**NFL playoff projections 2024: The Athletic's model predicts the field**\
+`Our NFL projections model forecasts each team’s chances of conquering their division, advancing in the playoffs and winning the Super Bowl`\
+https://nytimes.com/athletic/5698572/2024/09/10/nfl-playoff-2024-chances-projections-probabilities/
+
+**Morgan Rogers and the value of playing youth football for England**\
+`Unai Emery criticised Rogers' call-up but the benefits of under-21 international football are clear for all to see`\
+https://nytimes.com/athletic/5757078/2024/09/10/morgan-rogers-aston-villa-england-emery/
+
 **SpaceX Launches Polaris Dawn Private Spaceflight Mission**\
 `Polaris Dawn successfully launched Tuesday morning with four nonprofessional astronauts on board.`\
 https://nytimes.com/video/us/100000009682839/spacex-launches-polaris-dawn.html
