@@ -1,3 +1,7 @@
+**Women Making Waves**\
+`Tory Burch plays to win, and Rachel Scott of Diotima has a star-making show.`\
+https://nytimes.com/2024/09/10/style/tory-burch-diotima-new-york-fashion-week.html
+
 **Love on Aisle 9? A TikTok Fad Fills Grocery Stores With Singles**\
 `How the Spanish grocery chain Mercadona got a reputation as an unlikely dating hub, with its upside-down pineapples as props.`\
 https://nytimes.com/2024/09/10/world/europe/spain-pineapples-tiktok-dating-mercadona.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/10/world/europe/dominique-pelicot-france-rape-hospit
 **Fires Near Los Angeles May Intensify Before They Are Contained**\
 `Mountainous terrain, dry weather and winds are making it difficult to fight the wildfires threatening communities near Los Angeles.`\
 https://nytimes.com/2024/09/10/us/california-line-airport-wildfires-spreading.html
-
-**U.S., Vowing Sanctions, Accuses Iran of Sending Missiles to Russia**\
-`Secretary of State Antony J. Blinken made the announcement in London, where his British counterpart also promised more penalties on Iran. They plan to visit Ukraine together.`\
-https://nytimes.com/2024/09/10/world/europe/us-iran-russia-missiles-sanctions.html
 
