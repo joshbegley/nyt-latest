@@ -1,3 +1,15 @@
+**Gunman Who Shot Trump Was Not Spotted as Early as Reported**\
+`A law enforcement officer at the rally where the former president was shot now says he misidentified a man he saw earlier that day as Thomas Crooks.`\
+https://nytimes.com/2024/09/10/us/politics/gunman-trump-rally-timeline-fbi.html
+
+**The 2024 Presidential Debate: A Place for Student Reactions**\
+`On Tuesday night, the candidates will meet for their only scheduled debate. Will you be watching?`\
+https://nytimes.com/2024/09/10/learning/the-2024-presidential-debate-a-place-for-student-reactions.html
+
+**How a Tuesday Rush Hour Became a Doom Loop for New Jersey Commuters**\
+`On Tuesday morning, trains and buses from New Jersey were stymied by a power outage and traffic accidents.`\
+https://nytimes.com/2024/09/10/nyregion/njtransit-amtrak-lincoln-tunnel.html
+
 **NFL best bets Week 2: Why we're high on Cowboys, Bills-Dolphins offense and C.J. Stroud**\
 `Austin's Mock's NFL Projection Model gives us three best bets (and counting) for Week 2 of NFL action.`\
 https://nytimes.com/athletic/5758414/2024/09/10/nfl-best-bets-week-2-bills-dolphins-cowboys-texans/
