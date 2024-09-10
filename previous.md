@@ -1,3 +1,7 @@
+**Harris’s stop at a spice shop in Pittsburgh left some feeling salty.**\
+`By Michael Levenson`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/harriss-stop-at-a-spice-shop-in-pittsburgh-left-some-feeling-salty
+
 **Inmate’s Wife Subjected to Cavity Search Will Get $5.6 Million in Settlement**\
 `Christina Cardenas of California was subjected to the search after going to visit her husband at a state prison in 2019, according to her lawsuit. “It left me traumatized,” she said.`\
 https://nytimes.com/2024/09/10/us/inmate-wife-strip-search-settlement-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/10/nyregion/cuomo-covid-hearing-nursing-homes.html
 **NHL expansion, LTIR, Russians in the Olympics and renaming the Lady Byng: Bill Daly talks**\
 `The NHL's deputy commissioner addressed many of the hottest topics around the league in a sit-down Tuesday in Vegas.`\
 https://nytimes.com/athletic/5758996/2024/09/10/nhl-expansion-ltir-russians/
-
-**Mauricio Pochettino appointed USMNT head coach**\
-`Pochettino immediately becomes the highest-profile manager in the history of the program.`\
-https://nytimes.com/athletic/5702396/2024/09/10/mauricio-pochettino-usmnt-head-coach-appointed/
 

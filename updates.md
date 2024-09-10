@@ -1,3 +1,7 @@
+**Harris’s stop at a spice shop in Pittsburgh left some feeling salty.**\
+`By Michael Levenson`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/harriss-stop-at-a-spice-shop-in-pittsburgh-left-some-feeling-salty
+
 **Inmate’s Wife Subjected to Cavity Search Will Get $5.6 Million in Settlement**\
 `Christina Cardenas of California was subjected to the search after going to visit her husband at a state prison in 2019, according to her lawsuit. “It left me traumatized,” she said.`\
 https://nytimes.com/2024/09/10/us/inmate-wife-strip-search-settlement-california.html
