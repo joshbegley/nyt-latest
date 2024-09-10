@@ -28,7 +28,7 @@ https://nytimes.com/2024/09/10/style/tiny-modern-love-stories-i-had-a-crush-on-t
 
 **Matt Damon, Robert De Niro, Oprah and other celebrities pitch in for Harris.**\
 `By Theodore Schleifer`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/matt-damon-oprah-kamala-harris-celebrities
+https://nytimes.com/2024/09/10/us/politics/matt-damon-oprah-kamala-harris-celebrities.html
 
 **Officer Demoted After Writing Traffic Tickets Gets $175,000 Settlement**\
 `Matthew Bianchi said he was transferred after he angered a high-ranking official of the New York Police Department by ticketing a friend.`\
