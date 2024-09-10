@@ -1,3 +1,11 @@
+**Gazan authorities report dozens of deaths in an area Israel had designated safe.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/09/09/world/israel-hamas-gaza-war/gazan-authorities-report-dozens-of-deaths-in-an-area-israel-had-designated-safe
+
+**Give or Take**\
+`Daniel Bodily shows himself to be a man of letters.`\
+https://nytimes.com/2024/09/09/crosswords/daily-puzzle-2024-09-10.html
+
 **Dodgers' Clayton Kershaw on comeback: 'I can’t really have any delays'**\
 `LOS ANGELES — Clayton Kershaw’s latest quest to find relief for his ailing left big toe included working out, at least briefly, with no shoe on his left foot.`\
 https://nytimes.com/athletic/5757197/2024/09/09/dodgers-clayton-kershaw-injury-toe/
@@ -29,8 +37,4 @@ https://nytimes.com/2024/09/09/opinion/trump-anti-abortion-evangelical.html
 **Where Kamala Harris and Donald Trump Stand on the Issues**\
 `Here’s what Vice President Harris and former President Donald J. Trump have done and want to do on abortion, democracy, the economy, immigration, Israel and Gaza, and Social Security and Medicare.`\
 https://nytimes.com/interactive/2024/us/politics/trump-harris-issues-election.html
-
-**Trump Steps Up Threats to Imprison Those He Sees as Foes**\
-`The former president is vowing to prosecute those he sees as working to deny him a victory, while laying the groundwork to claim large-scale voter fraud if he loses.`\
-https://nytimes.com/2024/09/09/us/politics/trump-prison-threats-opponents.html
 

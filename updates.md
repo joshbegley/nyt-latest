@@ -1,3 +1,11 @@
+**Gazan authorities report dozens of deaths in an area Israel had designated safe.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/09/09/world/israel-hamas-gaza-war/gazan-authorities-report-dozens-of-deaths-in-an-area-israel-had-designated-safe
+
+**Give or Take**\
+`Daniel Bodily shows himself to be a man of letters.`\
+https://nytimes.com/2024/09/09/crosswords/daily-puzzle-2024-09-10.html
+
 **Dodgers' Clayton Kershaw on comeback: 'I can’t really have any delays'**\
 `LOS ANGELES — Clayton Kershaw’s latest quest to find relief for his ailing left big toe included working out, at least briefly, with no shoe on his left foot.`\
 https://nytimes.com/athletic/5757197/2024/09/09/dodgers-clayton-kershaw-injury-toe/
