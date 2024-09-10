@@ -1,3 +1,19 @@
+**How False Claims About Dead Cats Became Trump Campaign Fodder**\
+`Falsehoods claiming migrants in Ohio are killing cats and decapitating ducks went viral this week. The Trump campaign embraced them.`\
+https://nytimes.com/2024/09/10/technology/trump-dead-cats-migrants-ohio.html
+
+**Colts place starting JuJu Brents on IR due to MCL injury**\
+`Brents will miss at least the next four games and possibly the rest of his second NFL campaign.`\
+https://nytimes.com/athletic/5758812/2024/09/10/colts-juju-brents-injured-reserve-updates/
+
+**Adam Silver talks media right deal, expansion at board of governors meeting**\
+`“There is no specific plan right now about Europe other than we’re agreeing to look intensively at the opportunity," Silver said Tuesday.`\
+https://nytimes.com/athletic/5758737/2024/09/10/adam-silver-media-rights-expansion-board-of-governors-meeting/
+
+**The Internet Spent Years Searching for Her. She Had No Idea.**\
+`A mysterious woman came to be known on Reddit as Celebrity Number Six. She told us she is not sure how to feel about the sudden crush of attention.`\
+https://nytimes.com/2024/09/10/style/celebrity-six-leticia-sarda-reddit.html
+
 **Why CFB is uniquely perfect, plus another new 134**\
 `Welcome to Until Saturday, the five-star college football newsletter: We got another example of why we love college football on Saturday.`\
 https://nytimes.com/athletic/5757916/2024/09/10/college-football-northern-illinois-until-saturday/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/10/nyregion/matthew-bianchi-nypd-tickets-settlement.
 **Francisco Lopera, Pioneer in Alzheimer’s Research, Dies at 73**\
 `A neurologist in Colombia, he worked with the world’s largest extended family with Alzheimer’s and helped fuel research to prevent or delay dementia symptoms.`\
 https://nytimes.com/2024/09/10/science/francisco-lopera-restrepo-dead.html
-
-**A Weather Change Could Spark New Wildfires, Then Help Contain Them**\
-`A system that will bring a beneficial shift in temperatures and humidity to California later in the week could first drive winds that send sparks into dangerously dry undergrowth.`\
-https://nytimes.com/2024/09/10/us/weather-heat-california-wildfires.html
-
-**Will Jennings, Oscar Winner for ‘My Heart Will Go On,’ Dies at 80**\
-`As an in-demand lyricist, he won a shelf of awards for hits with Steve Winwood, Eric Clapton and Dionne Warwick, as well as for the theme song for “Titanic.”`\
-https://nytimes.com/2024/09/10/arts/music/will-jennings-dead.html
-
-**Trump and Harris will face off in Pennsylvania, which looks increasingly crucial.**\
-`By Katie Glueck`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/trump-and-harris-will-face-off-in-pennsylvania-which-looks-increasingly-crucial
-
-**In the South of France, a Utopian Town Inspired by Ancient Pyramids**\
-`Once derided, La Grande Motte, a surreal 1960s resort in the South of France, is increasingly seen as having been ahead of its time.`\
-https://nytimes.com/2024/09/10/t-magazine/la-grande-motte-french-resort-town.html
 
