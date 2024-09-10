@@ -1,3 +1,11 @@
+**Here Are the Key Debate Attacks to Expect. Hint: It May Get Personal.**\
+`Donald Trump and Kamala Harris have never met, and may not meet again onstage during this campaign. Tonight they have a huge, fleeting spotlight to change how voters see their rival.`\
+https://nytimes.com/2024/09/10/us/politics/trump-harris-debate-attack-lines.html
+
+**Jones returns to Liverpool training ahead of Nottingham Forest clash**\
+`Curtis Jones has returned to full training ahead of Liverpool’s Premier League clash with Nottingham Forest at Anfield on Saturday.`\
+https://nytimes.com/athletic/5758354/2024/09/10/curtis-jones-liverpool-nottingham-forest/
+
 **JD Vance Appears to Backtrack on False Claim About Haitian Migrants in Ohio**\
 `The Republican vice-presidential nominee acknowledged that an outlandish claim he had amplified about Haitian immigrants stealing and eating pets could “turn out to be false.”`\
 https://nytimes.com/2024/09/10/us/politics/jd-vance-backtrack-haitian-migrants-pets.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/10/dining/tortellini-to-the-rescue.html
 **Lincoln Center Theater Chooses Lear deBessonet as Artistic Director**\
 `DeBessonet, currently the artistic director of Encores!, will work alongside Bartlett Sher, who will serve as executive producer.`\
 https://nytimes.com/2024/09/10/theater/lincoln-center-theater-debessonet-artistic-director.html
-
-**Was It Written by ChatGPT, or by a Novelist?**\
-`Three readers could pick the story written by Curtis Sittenfeld; another calls the experiment unfair. Also: Afghan women; athletes and crowds; pro-union workers.`\
-https://nytimes.com/2024/09/10/opinion/chatgpt-curtis-sittenfeld.html
-
-**5 Climate Questions for the Candidates Ahead of the Presidential Debate**\
-`Here’s what the Times climate team would ask Harris and Trump about climate change, energy policy and the environment.`\
-https://nytimes.com/2024/09/10/climate/harris-trump-debate-climate-change-questions.html
 
