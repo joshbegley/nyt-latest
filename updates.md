@@ -1,3 +1,7 @@
+**Current and former Iowa, Iowa State athletes join gambling lawsuit**\
+`Eleven current and former Iowa and Iowa State athletes joined an earlier lawsuit alleging their rights were violated in a gambling sting.`\
+https://nytimes.com/athletic/5758984/2024/09/10/iowa-athletes-gambling-lawsuit-2/
+
 **Melania Trump, Silent for Months, Re-emerges in a Series of Cryptic Videos**\
 `In one, released online on Tuesday, she muses conspiratorially about the attempt on her husband’s life. The videos are intended to promote a new memoir.`\
 https://nytimes.com/2024/09/10/us/elections/melania-trump-book-videos.html
