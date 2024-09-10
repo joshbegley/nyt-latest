@@ -1,3 +1,7 @@
+**Thompson: Brock Purdy upstages Aaron Rodgers with the veteran poise the 49ers will need**\
+`Brock Purdy is a veteran now, and on Monday, he did what veterans do — be good even when things aren't great.`\
+https://nytimes.com/athletic/5758593/2024/09/10/brock-purdy-49ers-aaron-rodgers-veteran/
+
 **A.I. Wants Your Job… to Be Simpler, Faster and More Satisfying**\
 `Can artificial intelligence help make hiring a more human experience?`\
 https://nytimes.com/paidpost/indeed/ai-wants-your-job-to-be-simpler-faster-and-more-satisfying.html
