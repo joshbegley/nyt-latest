@@ -1,3 +1,7 @@
+**Delta Planes Collide on Atlanta Airport Tarmac**\
+`The incident involving two planes getting ready to take off was the latest in a series of mishaps and near accidents at the country’s airports.`\
+https://nytimes.com/2024/09/10/business/delta-plane-collision-atlanta-airport.html
+
 **No plan for Chelsea to relocate to Earl's Court, says site developer**\
 `There is no plan for Chelsea to relocate to a new stadium on the former Earl&#8217;s Court Exhibition Centre site, according to the company managing a multi-billion pound redevelopment project on the land.`\
 https://nytimes.com/athletic/5758449/2024/09/10/chelsea-earls-court-stadium/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/03/opinion/thepoint/vance-smear-haitians-pets
 **Arsenal to wear away kit against Tottenham in north London derby**\
 `Arsenal are set to wear their away kit against Tottenham Hotspur in the north London derby on Sunday.`\
 https://nytimes.com/athletic/5758378/2024/09/10/arsenal-kit-north-london-derby-tottenham-why/
-
-**Volkswagen Quits Labor Agreement, Paving Way for Job Cuts**\
-`A week after it announced it was considering closing factories in Germany, the automaker said it was exiting a labor contract that protected workers from layoffs.`\
-https://nytimes.com/2024/09/10/business/volkswagen-labor-layoffs-germany.html
 
