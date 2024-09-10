@@ -1,3 +1,11 @@
+**The candidates will square off at 9 p.m. Eastern. Here’s the latest.**\
+`By Jonathan Weisman`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/the-candidates-will-square-off-at-9-pm-eastern-heres-the-latest
+
+**Election Live Updates: It’s a High-Stakes Debate Night for Harris and Trump**\
+`In an extraordinary election campaign, the prime-time debate will catapult the campaigns of Donald J. Trump and Kamala Harris into the two-month sprint to November.`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate
+
 **Kamala Harris Could Be in Trouble**\
 `Her momentum stalled after a lackluster CNN interview. The debate is her best chance to restart it.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/harris-trouble-debate
