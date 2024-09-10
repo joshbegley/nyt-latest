@@ -1,3 +1,11 @@
+**Colorado safety Shilo Sanders to miss 2-3 weeks with arm injury**\
+`Deion Sanders also disputed a report that he asked the Colorado band to play Shedeur's song instead of the fight song when Shedeur scores.`\
+https://nytimes.com/athletic/5758632/2024/09/10/colorado-buffaloes-football-shilo-sanders-injury-shedeur-deion/
+
+**Live Q&A: Week 2 fantasy football add/drop chat with Jay Felicio, Tuesday 9/10 at 5 p.m. ET**\
+`Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5758387/2024/09/10/live-qa-week-2-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-9-10-at-5-p-m-et/
+
 **Market share report: Tank Bigsby, Allen Lazard among top Week 2 waiver wire targets**\
 `Michael Salfino runs the Week 1 workload numbers with an eye on this week's waiver wire targets, which includes Jacksonville's Tank Bigsby.`\
 https://nytimes.com/athletic/5758687/2024/09/10/fantasy-football-targets-touches-week-1-bigsby-lazard/
