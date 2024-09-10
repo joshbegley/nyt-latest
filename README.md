@@ -1,3 +1,7 @@
+**U.S., Vowing Sanctions, Accuses Iran of Sending Missiles to Russia**\
+`Secretary of State Antony J. Blinken made the announcement in London, where his British counterpart also promised more penalties on Iran. They plan to visit Ukraine together.`\
+https://nytimes.com/2024/09/10/world/europe/us-iran-russia-missiles-sanctions.html
+
 **The Rules for the Harris-Trump Presidential Debate on ABC**\
 `The campaigns agreed to the same guidelines that were used in June, when former President Donald J. Trump and President Biden faced off.`\
 https://nytimes.com/2024/09/10/us/politics/debate-rules-harris-trump-microphone-audience.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5757394/2024/09/10/new-york-giants-daniel-jones-bro
 **Answering more Bucks questions: How long can Giannis be physical? Will new additions help?**\
 `Comparing Gary Trent Jr., Delon Wright and Taurean Prince to the players they're replacing reveals that the Bucks have a big opportunity.`\
 https://nytimes.com/athletic/5755976/2024/09/10/how-long-can-giannis-still-be-physical-will-new-additions-help-answering-more-bucks-questions/
-
-**Renowned Scholar of Islam Is Convicted of Rape in Switzerland**\
-`An appeals court in Geneva overturned a previous acquittal and found Tariq Ramadan guilty. He faces separate charges in France.`\
-https://nytimes.com/2024/09/10/world/europe/tariq-ramadan-rape-conviction.html
 
