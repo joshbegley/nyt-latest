@@ -1,3 +1,7 @@
+**How the 49ers simplified the offense with Jordan Mason and steamrolled the Jets**\
+`Kyle Shanahan said Christian McCaffrey's calf has been problematic for more than a month but wouldn't rule him out for Sunday in Minnesota.`\
+https://nytimes.com/athletic/5757550/2024/09/10/how-the-49ers-simplified-the-offense-with-jordan-mason-and-steamrolled-the-jets/
+
 **Word of the Day: impunity**\
 `This word has appeared in 256 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/10/learning/word-of-the-day-impunity.html

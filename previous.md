@@ -1,3 +1,7 @@
+**How the 49ers simplified the offense with Jordan Mason and steamrolled the Jets**\
+`Kyle Shanahan said Christian McCaffrey's calf has been problematic for more than a month but wouldn't rule him out for Sunday in Minnesota.`\
+https://nytimes.com/athletic/5757550/2024/09/10/how-the-49ers-simplified-the-offense-with-jordan-mason-and-steamrolled-the-jets/
+
 **Word of the Day: impunity**\
 `This word has appeared in 256 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/10/learning/word-of-the-day-impunity.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5755734/2024/09/10/sam-johnstone-wolves-england/
 **Victor Obinna interview: 'I felt at home at West Ham, almost as if I was still in Nigeria'**\
 `The former Inter Milan forward on West Ham fans, his friendship with Carlton Cole, and lessons from playing for Mourinho`\
 https://nytimes.com/athletic/5749827/2024/09/10/victor-obinna-interview-west-ham/
-
-**Brighton's new loans strategy is a sign of the club's rapid progress**\
-`The loan of Facundo Buonanotte – a regular last season – to Leicester shows a shift in policy for Brighton. Here's what it means...`\
-https://nytimes.com/athletic/5746965/2024/09/10/brighton-loans-strategy/
 
