@@ -1,3 +1,7 @@
+**JD Vance’s Outrageous Smear of Haitian Immigrants**\
+`It’s not only a vicious lie, but it’s a classic method of dehumanizing outsiders in order to persecute them.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/vance-smear-haitians-pets
+
 **Arsenal to wear away kit against Tottenham in north London derby**\
 `Arsenal are set to wear their away kit against Tottenham Hotspur in the north London derby on Sunday.`\
 https://nytimes.com/athletic/5758378/2024/09/10/arsenal-kit-north-london-derby-tottenham-why/
