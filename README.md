@@ -1,3 +1,11 @@
+**Illinois Man Wrongly Convicted of 2008 Murder Is Awarded $50 Million**\
+`Marcel Brown, 34, spent nearly 10 years in prison after he was coerced into making a false confession in connection to a 2008 murder, a jury decided Monday.`\
+https://nytimes.com/2024/09/10/us/marcel-brown-exonerated-damages-illinois.html
+
+**Firm Run by Brother of Top N.Y.C. Officials Is Focus of Bribery Inquiry**\
+`Terence Banks opened a consulting firm and soon found work with companies that do business with the city agencies overseen by his older brothers.`\
+https://nytimes.com/2024/09/10/nyregion/adams-banks-consultant-investigation.html
+
 **Israeli Bombing in Gaza ‘Humanitarian Zone’ Kills at Least 19, Officials Say**\
 `The Israeli airstrike, which the military said targeted Hamas militants, appeared to use 2,000-pound bombs, which Israel has been criticized for using in heavily populated areas.`\
 https://nytimes.com/2024/09/10/world/middleeast/israeli-attack-gaza-humanitarian-zone.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5758812/2024/09/10/colts-juju-brents-injured-reserv
 **Adam Silver talks media rights deal, expansion at board of governors meeting**\
 `“There is no specific plan right now about Europe other than we’re agreeing to look intensively at the opportunity," Silver said Tuesday.`\
 https://nytimes.com/athletic/5758737/2024/09/10/adam-silver-media-rights-expansion-board-of-governors-meeting/
-
-**The Internet Spent Years Searching for Her. She Had No Idea.**\
-`A mysterious woman came to be known on Reddit as Celebrity Number Six. She told us she is not sure how to feel about the sudden crush of attention.`\
-https://nytimes.com/2024/09/10/style/celebrity-six-leticia-sarda-reddit.html
-
-**Why CFB is uniquely perfect, plus another new 134**\
-`Welcome to Until Saturday, the five-star college football newsletter: We got another example of why we love college football on Saturday.`\
-https://nytimes.com/athletic/5757916/2024/09/10/college-football-northern-illinois-until-saturday/
 
