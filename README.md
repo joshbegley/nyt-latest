@@ -1,3 +1,19 @@
+**Matt Damon, Robert De Niro, Oprah and other celebrities pitch in for Harris.**\
+`By Theodore Schleifer`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/matt-damon-oprah-kamala-harris-celebrities
+
+**Officer Demoted After Writing Traffic Tickets Gets $175,000 Settlement**\
+`Matthew Bianchi said he was transferred after he angered a high-ranking official of the New York Police Department by ticketing a friend.`\
+https://nytimes.com/2024/09/10/nyregion/matthew-bianchi-nypd-tickets-settlement.html
+
+**Francisco Lopera, Pioneer in Alzheimer’s Research, Dies at 73**\
+`A neurologist in Colombia, he worked with the world’s largest extended family with Alzheimer’s and helped fuel research to prevent or delay dementia symptoms.`\
+https://nytimes.com/2024/09/10/science/francisco-lopera-restrepo-dead.html
+
+**A Weather Change Could Spark New Wildfires, Then Help Contain Them**\
+`A system that will bring a beneficial shift in temperatures and humidity to California later in the week could first drive winds that send sparks into dangerously dry undergrowth.`\
+https://nytimes.com/2024/09/10/us/weather-heat-california-wildfires.html
+
 **Will Jennings, Oscar Winner for ‘My Heart Will Go On,’ Dies at 80**\
 `As an in-demand lyricist, he won a shelf of awards for hits with Steve Winwood, Eric Clapton and Dionne Warwick, as well as for the theme song for “Titanic.”`\
 https://nytimes.com/2024/09/10/arts/music/will-jennings-dead.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/10/world/middleeast/icc-warrants-hamas-netanyahu-yah
 **Luton 'extremely disappointed' after FA allegedly obscures banner at England Under-21 match**\
 `Luton Town has expressed their disappointment after the &#8220;betrayed by the FA 2008&#8221; message on a banner at Kenilworth Road was partially obscured during Monday night&#8217;s England Under-21&#8217;s match against Austria.`\
 https://nytimes.com/athletic/5758818/2024/09/10/luton-flag-fa-england-under-21s/
-
-**The Briefing: England 2 Finland 0 - Kane marks a century of caps with two goals as Alexander-Arnold shines again**\
-`Our writers break down the main talking points from Tuesday evening's game at Wembley`\
-https://nytimes.com/athletic/5757755/2024/09/10/england-finland-result-analysis/
-
-**Kim Kardashian, Katy Perry and Lindsay Lohan in Their Fashion Week Best**\
-`At a gala and auction in Midtown, the Kering Foundation drew one of the starriest crowds of New York Fashion Week.`\
-https://nytimes.com/2024/09/10/style/nyfw-lindsay-lohan-kim-k-matthew-mcconaughey.html
-
-**Celebrating Our Retirement System, and a Call to Action**\
-`Three recommendations to expand coverage to more Americans   `\
-https://nytimes.com/paidpost/t-rowe-price/t-rowe-price-30097745/celebrating-our-retirement-system-and-a-call-to-action.html
-
-**‘Flip-Flop’ or Evolution: Trump and Harris and Their Reversals on Issues**\
-`Kamala Harris has backed away from some progressive positions she took in the 2020 primaries. Donald Trump has changed his stripes on a host of issues big and small, sometimes repeatedly.`\
-https://nytimes.com/2024/09/10/us/politics/harris-trump-flip-flops.html
 
