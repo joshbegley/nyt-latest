@@ -1,3 +1,7 @@
+**Man Dies During River Trip in the Grand Canyon**\
+`His death is the seventh reported in Grand Canyon National Park since July 31.`\
+https://nytimes.com/2024/09/09/us/grand-canyon-death-hiker.html
+
 **Dolphins say police conduct with Hill 'overly aggressive and violent'**\
 `Hill was en route to the stadium Sunday for the Dolphins’ game against the Jacksonville Jaguars when police pulled him over.`\
 https://nytimes.com/athletic/5756541/2024/09/09/mike-mcdaniel-tyreek-hill-dolphins/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/09/us/wildfire-orange-county-evacuations.html
 **City Hall Seeks New York Police Commissioner’s Resignation**\
 `Edward Caban has faced increasing pressure since last week, when federal agents searched the homes of top officials in the Adams administration and confiscated electronic devices.`\
 https://nytimes.com/2024/09/09/nyregion/caban-nypd-police-commissioner-resign.html
-
-**Why Trump Can Afford to Disrespect His Anti-Abortion Voters**\
-`The ex-president has remade the religious right in his image.`\
-https://nytimes.com/2024/09/09/opinion/trump-anti-abortion-evangelical.html
 
