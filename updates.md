@@ -1,3 +1,7 @@
+**2,000-Pound Bombs Likely Used in Mawasi Strike**\
+`The large size of the two craters left in the aftermath of the attack suggest that Israel used the powerful bombs, according to experts and a New York Times analysis.`\
+https://nytimes.com/2024/09/10/world/middleeast/israel-strike-mawasi-bombs.html
+
 **Readers Pick Their Song of the Summer**\
 `You sent in an eclectic mix of tracks from Chappell Roan, Bad Bunny, Lawrence and more.`\
 https://nytimes.com/2024/09/10/arts/music/amplifier-newsletter-chappell-roan-summer.html
