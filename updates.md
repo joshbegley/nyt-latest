@@ -1,3 +1,7 @@
+**U.K. Hedge Fund Tycoon Buys The Spectator Magazine**\
+`Paul Marshall, a multimillionaire founder and investor in upstart conservative media outlets, has bought the right-wing magazine in a deal worth more than $131 million.`\
+https://nytimes.com/2024/09/10/world/europe/spectator-paul-marshall-telegraph.html
+
 **49ers dominated both trenches in their season-opening rout of the Jets**\
 `The 49ers struggled against the run in 2023, but that concerned seemed to be in the rearview mirror on Monday.`\
 https://nytimes.com/athletic/5757540/2024/09/10/49ers-jets-week-1-offensive-defensive-line/
