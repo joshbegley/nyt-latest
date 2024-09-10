@@ -1,3 +1,7 @@
+**Nebraska adds LB Christian Jones, No. 1 prospect in state, to 2025 class**\
+`Jones picked Nebraska over Oklahoma and counted offers from USC, Auburn, Iowa, Notre Dame and others.`\
+https://nytimes.com/athletic/5757208/2024/09/09/nebraska-college-football-recruiting-christian-jones/
+
 **Conservative German Princess Says She Hosted Justice Alito at Her Castle**\
 `Princess Gloria von Thurn und Taxis said Justice Alito and his wife were guests at St. Emmeram Palace for a summer music festival. She called the couple her “friends” and the justice “a hero.”`\
 https://nytimes.com/2024/09/09/us/politics/german-princess-alito-castle-visit.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/09/09/us/politics/trump-prison-threats-opponents.html
 **James Earl Jones: A Life in Pictures**\
 `Onstage and in movies and television, Jones delivered with a deep, authoritative, powerful and sometimes menacing voice.`\
 https://nytimes.com/2024/09/09/theater/james-earl-jones-photos.html
-
-**Deshaun Watson Is Accused of Sexual Assault**\
-`In a lawsuit filed Monday, a woman said the N.F.L. quarterback, who faced numerous accusations of sexual misconduct several years ago, assaulted her in 2020.`\
-https://nytimes.com/2024/09/09/business/deshaun-watson-sexual-assault-lawsuit.html
 
