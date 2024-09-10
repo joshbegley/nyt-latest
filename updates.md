@@ -1,3 +1,7 @@
+**Red Sox rout Orioles to keep slim wild-card hopes alive**\
+`Despite their second-half struggles, the Red Sox are still in the wild-card race, and Monday's win moved them to three games back.`\
+https://nytimes.com/athletic/5757461/2024/09/10/red-sox-wild-card-race-orioles-win/
+
 **Palace should not panic - Glasner's teams tend to start seasons slowly**\
 `A look back at Glasner's previous managerial stops suggests he rarely begins a season with a bang`\
 https://nytimes.com/athletic/5741160/2024/09/10/palace-glasner-start-slow/
