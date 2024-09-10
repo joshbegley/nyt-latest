@@ -1,5 +1,5 @@
 **U.K. Hedge Fund Tycoon Buys The Spectator Magazine**\
-`Paul Marshall, a multimillionaire founder and investor in upstart conservative media outlets, has bought the right-wing magazine in a deal worth more $131 million.`\
+`Paul Marshall, a multimillionaire founder and investor in upstart conservative media outlets, has bought the right-wing magazine in a deal worth more than $131 million.`\
 https://nytimes.com/2024/09/10/world/europe/spectator-paul-marshall-telegraph.html
 
 **Giants' Daniel Jones looked like a broken QB, but benching him now would be an overreaction**\
