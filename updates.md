@@ -1,3 +1,7 @@
+**James Earl Jones’s Stage Career Was Rich, and Startlingly Diverse**\
+`In addition to Broadway crowd-pleasers, the actor deftly navigated classics, experimental theater and new works by major contemporary playwrights.`\
+https://nytimes.com/2024/09/10/theater/james-earl-jones-broadway-theater.html
+
 **An American Sovereign Wealth Fund? Easier Said Than Done.**\
 `Creating a U.S. investment fund to compete against those in China and the Middle East could create more problems than it would solve.`\
 https://nytimes.com/2024/09/10/us/politics/us-sovereign-wealth-fund.html

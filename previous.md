@@ -1,3 +1,7 @@
+**James Earl Jones’s Stage Career Was Rich, and Startlingly Diverse**\
+`In addition to Broadway crowd-pleasers, the actor deftly navigated classics, experimental theater and new works by major contemporary playwrights.`\
+https://nytimes.com/2024/09/10/theater/james-earl-jones-broadway-theater.html
+
 **An American Sovereign Wealth Fund? Easier Said Than Done.**\
 `Creating a U.S. investment fund to compete against those in China and the Middle East could create more problems than it would solve.`\
 https://nytimes.com/2024/09/10/us/politics/us-sovereign-wealth-fund.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/10/dining/nyc-restaurant-news.html
 **‘We Believed Them’: Gazans React After Israel Strikes Humanitarian Zone**\
 `Israeli airstrikes on a humanitarian zone in southern Gaza killed several and caused extensive damage to tents of people that had been sheltering there.`\
 https://nytimes.com/video/world/middleeast/100000009682901/mawasi-gaza-strike-witness.html
-
-**Here’s how Trump has used debates to belittle women.**\
-`By Jess Bidgood`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/heres-how-trump-has-used-debates-to-belittle-women
 
