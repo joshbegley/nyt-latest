@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5758393/2024/09/10/south-carolina-uconn-basketball-
 `Economists and analysts are dubious of Trump’s promises to slash gas prices or prod interest rates lower.`\
 https://nytimes.com/2024/09/10/us/politics/trump-economics-gas-tariffs-inflation.html
 
-**Prolonged hot temperatures make fighting California wildfires more difficult**\
+**Prolonged hot temperatures make fighting California wildfires more difficult.**\
 `By Austyn Gaffney`\
 https://nytimes.com/live/2024/09/10/us/california-wildfires-line-airport/temperatures-california-wildfires
 

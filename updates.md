@@ -1,3 +1,7 @@
+**Prolonged hot temperatures make fighting California wildfires more difficult.**\
+`By Austyn Gaffney`\
+https://nytimes.com/live/2024/09/10/us/california-wildfires-line-airport/temperatures-california-wildfires
+
 **Former Michigan stars file $50 million NIL suit against NCAA, Big Ten Network**\
 `Four ex-Wolverines filed a class-action lawsuit seeking more than $50 million in "unlawfully denied" name, image and likeness money.`\
 https://nytimes.com/athletic/5758349/2024/09/10/michigan-football-lawsuit-ncaa-nil-big-ten-network/
