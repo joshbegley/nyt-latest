@@ -1,3 +1,7 @@
+**Dodgers' Clayton Kershaw on comeback: 'I can’t really have any delays'**\
+`LOS ANGELES — Clayton Kershaw’s latest quest to find relief for his ailing left big toe included working out, at least briefly, with no shoe on his left foot.`\
+https://nytimes.com/athletic/5757197/2024/09/09/dodgers-clayton-kershaw-injury-toe/
+
 **Nebraska adds LB Christian Jones, No. 1 prospect in state, to 2025 class**\
 `Jones picked Nebraska over Oklahoma and counted offers from USC, Auburn, Iowa, Notre Dame and others.`\
 https://nytimes.com/athletic/5757208/2024/09/09/nebraska-college-football-recruiting-christian-jones/
