@@ -1,3 +1,7 @@
+**Timeline of Deshaun Watson's legal troubles, career since first sexual misconduct allegation**\
+`A lawsuit filed this week was the latest development in a saga that has stretched to early 2021.`\
+https://nytimes.com/athletic/5758187/2024/09/10/deshaun-watson-timeline-sexual-assault-allegations-lawsuits/
+
 **49ers minutia minute: Details on Christian McCaffrey; Brock Purdy's mature game**\
 `A review of Monday's win highlighted the strong performance by the 49ers' right-side guys — guard Dominick Puni and tackle Colton McKivitz.`\
 https://nytimes.com/athletic/5758928/2024/09/10/49ers-christian-mccaffrey-brock-purdy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5758984/2024/09/10/iowa-athletes-gambling-lawsuit-2
 **Melania Trump, Silent for Months, Re-emerges in a Series of Cryptic Videos**\
 `In one, released online on Tuesday, she muses conspiratorially about the attempt on her husband’s life. The videos are intended to promote a new memoir.`\
 https://nytimes.com/2024/09/10/us/elections/melania-trump-book-videos.html
-
-**ABC says its moderators will ‘facilitate,’ not fact-check.**\
-`By Michael M. Grynbaum`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/abc-says-its-moderators-will-facilitate-not-fact-check
 
