@@ -1,3 +1,15 @@
+**‘Need to Tell a Story’: Why U.K.’s Leader Faced a Revolt Over a Retiree Benefit Cut**\
+`Prime Minister Keir Starmer survived a test of his authority, but more than 50 Labour lawmakers did not back his plan to reduce fuel aid.`\
+https://nytimes.com/2024/09/10/world/europe/-2024-09-10-world-europe-britain-starmer-critics-aid.html
+
+**White House Is Drawn Into Dispute Over Chinese Doping**\
+`World Anti-Doping Agency officials, furious at U.S. investigations into the handling of positive tests, have sought to exclude a Biden administration representative from its board meetings.`\
+https://nytimes.com/2024/09/10/world/europe/white-house-china-doping-wada.html
+
+**The Israeli military details the brutal conditions six hostages endured before they were killed in a tunnel.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/09/10/world/israel-hamas-gaza-war/the-israeli-military-details-the-brutal-conditions-six-hostages-endured-before-they-were-killed-in-a-tunnel
+
 **2,000-Pound Bombs Likely Used in Mawasi Strike**\
 `The large size of the two craters left in the aftermath of the attack suggest that Israel used the powerful bombs, according to experts and a New York Times analysis.`\
 https://nytimes.com/2024/09/10/world/middleeast/israel-strike-mawasi-bombs.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/10/theater/james-earl-jones-broadway-theater.html
 **An American Sovereign Wealth Fund? Easier Said Than Done.**\
 `Creating a U.S. investment fund to compete against those in China and the Middle East could create more problems than it would solve.`\
 https://nytimes.com/2024/09/10/us/politics/us-sovereign-wealth-fund.html
-
-**Pakistani Police Arrest Lawmakers Allied With Former Prime Minister Imran Khan**\
-`In an overnight raid on the Parliament, police arrested at least 10 members of Khan’s party, deepening the political battle between the imprisoned ex-leader and the country’s powerful military.`\
-https://nytimes.com/2024/09/10/world/asia/pakistan-police-arrests-imran-khan.html
-
-**The Cast Is Set for ‘Saturday Night Live’ Season 50**\
-`Ashley Padilla, Emil Wakim and Jane Wickline will be the show’s new faces in its landmark season.`\
-https://nytimes.com/2024/09/10/arts/television/snl-season-50-cast.html
-
-**Kadioglu on course to be available for Brighton's clash against Ipswich**\
-`Brighton &amp; Hove Albion&#8217;s new signing Ferdi Kadioglu says he is available for Saturday’s Premier League home game against Ipswich Town.`\
-https://nytimes.com/athletic/5758534/2024/09/10/ferdi-kadioglu-brighton-injury-return-ipswich/
 
