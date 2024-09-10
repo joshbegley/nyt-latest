@@ -1,3 +1,11 @@
+**Husband on Trial in Rape and Drugging Case in France Is Taken to Hospital**\
+`Dominique Pelicot, 71, was due to testify on Tuesday over charges he invited dozens of men to his home to abuse his wife, Gisèle Pelicot. His condition was not immediately clear.`\
+https://nytimes.com/2024/09/10/world/europe/dominique-pelicot-france-rape-hospital.html
+
+**Fires Near Los Angeles May Intensify Before They Are Contained**\
+`Mountainous terrain, dry weather and winds are making it difficult to fight the wildfires threatening communities near Los Angeles.`\
+https://nytimes.com/2024/09/10/us/california-line-airport-wildfires-spreading.html
+
 **U.S., Vowing Sanctions, Accuses Iran of Sending Missiles to Russia**\
 `Secretary of State Antony J. Blinken made the announcement in London, where his British counterpart also promised more penalties on Iran. They plan to visit Ukraine together.`\
 https://nytimes.com/2024/09/10/world/europe/us-iran-russia-missiles-sanctions.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/10/world/middleeast/israel-west-bank-activist-shooti
 **U.K. Hedge Fund Tycoon Buys The Spectator Magazine**\
 `Paul Marshall, a multimillionaire founder and investor in upstart conservative media outlets, has bought the right-wing British magazine in a deal worth about $131 million.`\
 https://nytimes.com/2024/09/10/world/europe/spectator-paul-marshall-telegraph.html
-
-**Giants' Daniel Jones looked like a broken QB, but benching him now would be an overreaction**\
-`Benching Jones after one ugly showing in his return from a torn ACL would be premature. But it's fair to wonder: How long is his leash?`\
-https://nytimes.com/athletic/5757394/2024/09/10/new-york-giants-daniel-jones-broken-bench-drew-lock/
-
-**Answering more Bucks questions: How long can Giannis be physical? Will new additions help?**\
-`Comparing Gary Trent Jr., Delon Wright and Taurean Prince to the players they're replacing reveals that the Bucks have a big opportunity.`\
-https://nytimes.com/athletic/5755976/2024/09/10/how-long-can-giannis-still-be-physical-will-new-additions-help-answering-more-bucks-questions/
 

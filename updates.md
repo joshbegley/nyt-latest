@@ -1,3 +1,11 @@
+**Husband on Trial in Rape and Drugging Case in France Is Taken to Hospital**\
+`Dominique Pelicot, 71, was due to testify on Tuesday over charges he invited dozens of men to his home to abuse his wife, Gisèle Pelicot. His condition was not immediately clear.`\
+https://nytimes.com/2024/09/10/world/europe/dominique-pelicot-france-rape-hospital.html
+
+**Fires Near Los Angeles May Intensify Before They Are Contained**\
+`Mountainous terrain, dry weather and winds are making it difficult to fight the wildfires threatening communities near Los Angeles.`\
+https://nytimes.com/2024/09/10/us/california-line-airport-wildfires-spreading.html
+
 **U.S., Vowing Sanctions, Accuses Iran of Sending Missiles to Russia**\
 `Secretary of State Antony J. Blinken made the announcement in London, where his British counterpart also promised more penalties on Iran. They plan to visit Ukraine together.`\
 https://nytimes.com/2024/09/10/world/europe/us-iran-russia-missiles-sanctions.html
