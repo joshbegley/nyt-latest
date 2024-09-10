@@ -1,3 +1,11 @@
+**Who do I drop? Blake Corum, Luke Musgrave and more fantasy football cuts ahead of Week 2**\
+`Gary Davenport identifies five players rostered in a majority of fantasy football leagues who can be kicked to the curb ahead of Week 2.`\
+https://nytimes.com/athletic/5758277/2024/09/10/fantasy-football-week-2-drops-corum-watson-musgrave/
+
+**‘Emily in Paris’ Goes on a Roman Holiday**\
+`The frothy Netflix show frustrated Parisians with its portrait of their city. Now its heroine is heading to Rome — and the showrunner doesn’t care if residents there feel the same way.`\
+https://nytimes.com/2024/09/10/arts/television/emily-in-paris-rome.html
+
 **Usmanov and Moshiri court case adds to Everton takeover complications**\
 `Uzbek oligarch Alisher Usmanov has taken legal action against a company owned by Everton owner Farhad Moshiri, creating a complicating factor in the club&#8217;s already difficult takeover process.`\
 https://nytimes.com/athletic/5758257/2024/09/10/everton-takeover-moshiri-usmanov-court-case/
