@@ -1,3 +1,7 @@
+**U.K. Hedge Fund Tycoon Buys The Spectator Magazine**\
+`Paul Marshall, a multimillionaire founder and investor in upstart conservative media outlets, has bought the right-wing British magazine in a deal worth about $131 million.`\
+https://nytimes.com/2024/09/10/world/europe/spectator-paul-marshall-telegraph.html
+
 **How Aston Martin F1 won the race for Adrian Newey, the sport's most coveted mind**\
 `Aston Martin was eager to show Newey what it was putting together at Silverstone and to make a major statement of intent by signing him.`\
 https://nytimes.com/athletic/5757972/2024/09/10/f1-adrian-newey-aston-martin/
