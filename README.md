@@ -22,7 +22,7 @@ https://nytimes.com/2024/09/10/nyregion/njtransit-amtrak-lincoln-tunnel.html
 `Austin's Mock's NFL Projection Model gives us three best bets (and counting) for Week 2 of NFL action.`\
 https://nytimes.com/athletic/5758414/2024/09/10/nfl-best-bets-week-2-bills-dolphins-cowboys-texans/
 
-**Delta Planes Collide on Atlanta Airport Tarmac**\
+**Delta Plane Strikes Another Jet on Atlanta Airport Tarmac**\
 `The incident involving two planes getting ready to take off was the latest in a series of mishaps and near accidents at the country’s airports.`\
 https://nytimes.com/2024/09/10/business/delta-plane-collision-atlanta-airport.html
 
