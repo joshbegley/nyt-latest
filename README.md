@@ -1,3 +1,11 @@
+**Gibraltar, Rodri and Morata's chanting and a misunderstood British territory**\
+`A British territory on Spain's south coast, Gibraltar was unexpectedly thrust into the spotlight during La Roja's Euro 2024 celebrations`\
+https://nytimes.com/athletic/5756112/2024/09/10/gibraltar-spain-morata-rodri-chants/
+
+**How English football academies went from peripheral to essential in the space of a decade**\
+`With infrastructure, finances and an unmatched footballing pyramid, there's no excuse for England’s academy system to ever lag behind again`\
+https://nytimes.com/athletic/5714378/2024/09/10/football-pathways-academy-development/
+
 **Tuesday Briefing**\
 `A preview of the U.S. presidential debate.`\
 https://nytimes.com/2024/09/10/briefing/trump-harris-debate-gaza.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5757349/2024/09/09/braves-stay-in-wild-card-race/
 **What has to happen for the Tigers to make a playoff push?**\
 `Detroit entered Tuesday 3 games out of the final AL wild-card spot. With 18 games left, a long season is boiling down to a frantic finish.`\
 https://nytimes.com/athletic/5757307/2024/09/09/detroit-tigers-playoff-push-what-has-to-happen/
-
-**Key takeaways as 49ers surge by Jets: Jordan Mason steals spotlight and spoils Aaron Rodgers' return**\
-`Rodgers' first full game in 20 months — since his 2022 season finale with the Green Bay Packers — not only lacked rhythm, but attempts.`\
-https://nytimes.com/athletic/5756887/2024/09/09/jets-49ers-week-1-results-analysis/
-
-**Mets find a way to win ugly and retake lead for wild-card spot**\
-`New York is hitting just .207 in the last seven games but has a 6-1 record thanks to a pitching staff that's getting the job done. `\
-https://nytimes.com/athletic/5757334/2024/09/09/mets-win-ugly-wild-card-spot/
 
