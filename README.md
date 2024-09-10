@@ -1,3 +1,11 @@
+**Colorado safety Shilo Sanders to miss 2-3 weeks with arm injury**\
+`Deion Sanders also disputed a report that he asked the Colorado band to play Shedeur's song instead of the fight song when Shedeur scores.`\
+https://nytimes.com/athletic/5758632/2024/09/10/colorado-buffaloes-football-shilo-sanders-injury-shedeur-deion/
+
+**Live Q&A: Week 2 fantasy football add/drop chat with Jay Felicio, Tuesday 9/10 at 5 p.m. ET**\
+`Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
+https://nytimes.com/athletic/5758387/2024/09/10/live-qa-week-2-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-9-10-at-5-p-m-et/
+
 **Market share report: Tank Bigsby, Allen Lazard among top Week 2 waiver wire targets**\
 `Michael Salfino runs the Week 1 workload numbers with an eye on this week's waiver wire targets, which includes Jacksonville's Tank Bigsby.`\
 https://nytimes.com/athletic/5758687/2024/09/10/fantasy-football-targets-touches-week-1-bigsby-lazard/
@@ -29,12 +37,4 @@ https://nytimes.com/paidpost/indeed/ai-wants-your-job-to-be-simpler-faster-and-m
 **Harris’s challenge: Pushing ahead without leaving Biden behind.**\
 `By Katie Rogers and Erica L. Green`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/harriss-challenge-pushing-ahead-without-leaving-biden-behind
-
-**‘Need to Tell a Story’: Why U.K.’s Leader Faced a Revolt Over a Retiree Benefit Cut**\
-`Prime Minister Keir Starmer survived a test of his authority, but more than 50 Labour lawmakers did not back his plan to reduce fuel aid.`\
-https://nytimes.com/2024/09/10/world/europe/britain-starmer-critics-fuel-aid.html
-
-**White House Is Drawn Into Dispute Over Chinese Doping**\
-`World Anti-Doping Agency officials, furious at U.S. investigations into the handling of positive tests, have sought to exclude a Biden administration representative from its board meetings.`\
-https://nytimes.com/2024/09/10/world/europe/white-house-china-doping-wada.html
 
