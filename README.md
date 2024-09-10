@@ -1,3 +1,11 @@
+**Liverpool fan survey: Fears that transfer window has sold Slot short**\
+`The team has started the season superbly but supporters are concerned at the lack of incomings`\
+https://nytimes.com/athletic/5755335/2024/09/10/liverpool-transfers-arne-slot/
+
+**Broncos' Week 1 loss illustrates pain, promise of developing young players**\
+`Running back Audric Estimé ran the gamut on his first NFL carry, a microcosm of Sean Payton's task of teaching a team full of young players.`\
+https://nytimes.com/athletic/5756467/2024/09/10/broncos-young-players-week-1/
+
 **The Pulse: Well, he played more than four snaps**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5755901/2024/09/10/aaron-rodgers-jets-49ers-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/10/podcasts/the-daily/trump-sentencing.html
 **Inside Trump-Harris Debate Prep, and Israel Strikes Humanitarian Zone**\
 `Plus, remembering an iconic Hollywood voice.`\
 https://nytimes.com/2024/09/10/podcasts/trump-harris-debate.html
-
-**Michael Kopech has an elite fastball; his Dodgers success comes from throwing it less often**\
-`Plucked from the miserable White Sox and delivered to the front-running Dodgers, Kopech has been a revelation in relief. `\
-https://nytimes.com/athletic/5756629/2024/09/10/dodgers-michael-kopech-white-sox-fastball/
-
-**The Athletic's NFL QB stock report, Week 2: Stroud, Mayfield shine, Cousins, Levis plummet**\
-`A predictably sloppy Week 1 brought about quite a few changes to our top-32 rankings. Who were the biggest risers and fallers? `\
-https://nytimes.com/athletic/5756057/2024/09/10/nfl-qb-stock-report-rankings-stroud-mayfield-cousins/
 
