@@ -1,3 +1,11 @@
+**Was James Earl Jones an EGOT Winner? It’s Complicated.**\
+`The actor won just about every award he could — but his Oscar was an honorary one. Is that enough for an EGOT?`\
+https://nytimes.com/2024/09/10/movies/james-earl-jones-egot.html
+
+**Trump Is Provoking a Congressional Fight He Can’t Win**\
+`Most Republicans don’t want a government shutdown right before the election.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/trump-shutdown-voting-citizenship
+
 **Tonight’s Debate Will Focus on Defining Kamala Harris**\
 `Also, Louisiana is bracing for Francine. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/09/10/briefing/debate-night-harris-trump-tropical-storm-louisiana.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5758890/2024/09/10/harry-kane-100-caps-england/
 **Tiny Love Stories: ‘I Had a Crush on the Teacher’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2024/09/10/style/tiny-modern-love-stories-i-had-a-crush-on-the-teacher.html
-
-**Matt Damon, Robert De Niro, Oprah and other celebrities pitch in for Harris.**\
-`By Theodore Schleifer`\
-https://nytimes.com/2024/09/10/us/politics/matt-damon-oprah-kamala-harris-celebrities.html
-
-**Officer Demoted After Writing Traffic Tickets Gets $175,000 Settlement**\
-`Matthew Bianchi said he was transferred after he angered a high-ranking official of the New York Police Department by ticketing a friend.`\
-https://nytimes.com/2024/09/10/nyregion/matthew-bianchi-nypd-tickets-settlement.html
 
