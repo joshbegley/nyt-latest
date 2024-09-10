@@ -1,3 +1,15 @@
+**The Origin Story of Astro Bot’s Likable Little Guy**\
+`Astro, a babylike robot designed to show off the power of PlayStation hardware, has graduated to his own full-length adventure game.`\
+https://nytimes.com/2024/09/10/arts/astro-bot-origin-story.html
+
+**Why Do Americans Want to Dress Like Swedes?**\
+`The Stockholm fashion label Toteme has a no-nonsense, “pragmatic” look — and a lot of fans in New York.`\
+https://nytimes.com/2024/09/10/style/toteme-sweden-nyfw.html
+
+**Memphis signs two-year deal with Corinthians after leaving Atletico**\
+`Memphis Depay has signed a two-year deal with Brazilian club Corinthians after leaving Atletico Madrid last season.`\
+https://nytimes.com/athletic/5757637/2024/09/10/memphis-depay-corinthians-transfer/
+
 **Venezuelan Election Observers Forced Into Exile in Colombia**\
 `Volunteer election observers who collected vote tallies at precincts across Venezuela found that the opposition candidate Edmundo González had received more votes than President Nicolás Maduro did in July’s election.`\
 https://nytimes.com/2024/09/10/video/venezuelan-election-observers-exile-colombia.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5757564/2024/09/10/aaron-rodgers-return-monday-nigh
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/09/10/crosswords/spelling-bee-forum.html
-
-**Athletes and Anime**\
-`What fandoms are you a part of that might surprise people?`\
-https://nytimes.com/2024/09/10/learning/athletes-and-anime.html
-
-**Israel Strikes Humanitarian Area in Gaza**\
-`The attack left a large crater in Al-Mawasi, where tens of thousands of displaced Gazans have been staying.`\
-https://nytimes.com/video/world/middleeast/100000009682695/israel-mawasi-gaza-strike.html
-
-**After this weird summer, the 49ers' Week 1 vibes are tremendous**\
-`Trent Williams on holding together: "We've got great leaders in this locker room. And we've got people who follow the leadership."`\
-https://nytimes.com/athletic/5757510/2024/09/10/kawakami-week-1-49ers-vibes/
 

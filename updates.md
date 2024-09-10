@@ -1,3 +1,15 @@
+**The Origin Story of Astro Bot’s Likable Little Guy**\
+`Astro, a babylike robot designed to show off the power of PlayStation hardware, has graduated to his own full-length adventure game.`\
+https://nytimes.com/2024/09/10/arts/astro-bot-origin-story.html
+
+**Why Do Americans Want to Dress Like Swedes?**\
+`The Stockholm fashion label Toteme has a no-nonsense, “pragmatic” look — and a lot of fans in New York.`\
+https://nytimes.com/2024/09/10/style/toteme-sweden-nyfw.html
+
+**Memphis signs two-year deal with Corinthians after leaving Atletico**\
+`Memphis Depay has signed a two-year deal with Brazilian club Corinthians after leaving Atletico Madrid last season.`\
+https://nytimes.com/athletic/5757637/2024/09/10/memphis-depay-corinthians-transfer/
+
 **Venezuelan Election Observers Forced Into Exile in Colombia**\
 `Volunteer election observers who collected vote tallies at precincts across Venezuela found that the opposition candidate Edmundo González had received more votes than President Nicolás Maduro did in July’s election.`\
 https://nytimes.com/2024/09/10/video/venezuelan-election-observers-exile-colombia.html
