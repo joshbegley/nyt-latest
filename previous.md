@@ -1,40 +1,40 @@
-**What Makes the Far Right Tick?**\
-`In “Stolen Pride,” Arlie Russell Hochschild explores the emotional lives of Americans who vote for Donald Trump.`\
-https://nytimes.com/2024/09/10/books/review/stolen-pride-arlie-russell-hochschild.html
+**Dynasty league risers and fallers after Week 1: Ja'Marr Chase, Jameson Williams and more**\
+`Jeff Haverlack offers his dynasty takeaways from Week 1, including Lions wideout Jameson Williams validating his sleeper candidacy.`\
+https://nytimes.com/athletic/5756811/2024/09/10/dynasty-fantasy-football-risers-fallers-week-1-chase/
 
-**He Scammed People for Their Money. He Was Also a Victim.**\
-`A Ugandan man named Jalil Muyeke traveled to Thailand for a promising job opportunity. He ended up being trafficked into a cybercrime operation.`\
-https://nytimes.com/2024/09/10/business/scammers-trafficking-cybercrime.html
+**Trump Makes No Sense and Is Full of Meaning**\
+`On the question of his political opponents, he’s clear. He will punish them, if we give him the power to do so.`\
+https://nytimes.com/2024/09/10/opinion/trump-speech-debate-rally.html
 
-**Why Can’t I Get This Song Out of My Head?**\
-`Here’s why earworms are never gonna give you up.`\
-https://nytimes.com/2024/09/10/well/mind/songs-earworm-causes.html
+**How Joey Votto knew it was time — 'I'm expired' — and what he thinks could be next**\
+`Votto described in vivid detail how it feels to be an aging athlete who finally understands he has no paths left to travel back to glory.`\
+https://nytimes.com/athletic/5757187/2024/09/10/joey-votto-retires-whats-next/
 
-**Liane Moriarty Has Sold 20 Million Books. She Would Rather Not Talk About It.**\
-`The author of “Big Little Lies” and several other best-sellers has a new novel, “Here One Moment.” Promoting it — doing any publicity — remains a challenge, she said.`\
-https://nytimes.com/2024/09/10/books/here-one-moment-liane-moriarty.html
+**What Polls Say About a Key Group: Begrudging Trump Voters**\
+`In Tuesday’s debate, the vice president needs to win over this slice of the electorate.`\
+https://nytimes.com/2024/09/10/opinion/harris-trump-debate-polls.html
 
-**A Sinister Figure Glances at a Clock. It’s Got to Be Film Noir.**\
-`Experts say the genre was all about suspense, and what better way to convey that to audiences than an obsession with time?`\
-https://nytimes.com/2024/09/10/fashion/watches-film-noir-obsession-time.html
+**Immanuel Quickley's contract, Bruce Brown's status and more: Raptors mailbag, part 1**\
+`The first part of Eric Koreen's Raptors mailbag tackles the past and this offseason.`\
+https://nytimes.com/athletic/5745382/2024/09/10/raptors-immanuel-quickley-contract-bruce-brown-status-mailbag/
 
-**For Some Sex Assault Accusers, This Local Law Has Become a Last Resort**\
-`The law, which underpins several civil suits against Sean Combs, is the only remaining tool for reviving older claims in New York.`\
-https://nytimes.com/2024/09/10/arts/for-some-sex-assault-accusers-this-local-law-has-become-a-last-resort.html
+**7 Apple Picking Tips From the Guy Behind Apple Ratings**\
+`Brian Frange has been pontificating on apples since 2016. He has a few things to say before you hit the orchards.`\
+https://nytimes.com/2024/09/10/style/apple-picking-tips.html
 
-**Donald Trump and the Meaning of a Raised Fist**\
-`A history of the appropriation of a political gesture.`\
-https://nytimes.com/2024/09/10/opinion/trump-fist-gesture.html
+**Almost 50 Million Americans Have Had an Obamacare Plan Since 2014**\
+`The Biden administration released data showing roughly one in seven U.S. residents had been covered by the Affordable Care Act at some point over the past decade.`\
+https://nytimes.com/2024/09/10/us/politics/affordable-care-act-marketplaces-enrollment.html
 
-**An Unlikely Pair’s Difficult Pilgrimage From Rural Alabama to the White House**\
-`In Jamie Quatro’s Southern Gothic novel “Two-Step Devil,” a dying “Prophet” and a former sex-trafficking victim make the same journey for two very different reasons.`\
-https://nytimes.com/2024/09/10/books/review/two-step-devil-jamie-quatro.html
+**Raheem Morris: Kirk Cousins is healthy but season-opener in Atlanta "wasn't good enough"**\
+`The Falcons offense failed them in Sunday's 18-10 loss to the Steelers, coach Raheem Morris said.`\
+https://nytimes.com/athletic/5756871/2024/09/10/kirk-cousins-healthy-falcons-opener/
 
-**In Liane Moriarty’s Bustling New Novel, Fate Takes Flight**\
-`There are stakes on the plane in “Here One Moment,” the latest from the Australian fiction powerhouse.`\
-https://nytimes.com/2024/09/10/books/review/liane-moriarty-here-one-moment.html
+**The Stakes of a Harris vs. Trump Debate**\
+`Some voters are still trying to make up their minds. Here’s what they’re listening for.`\
+https://nytimes.com/2024/09/10/podcasts/the-stakes-of-a-harris-vs-trump-debate.html
 
-**Are Art and Science Forever Divided? Or Are They One and the Same?**\
-`The sprawling California festival “PST Art” promises a dialogue between “two cultures.” But painting and physics may have more in common than their practitioners know.`\
-https://nytimes.com/2024/09/10/arts/design/pst-art-science-california-getty.html
+**NIU's win over Notre Dame was extraordinary, and it's what makes college football beautiful**\
+`Every single weekend, some team is playing a game the players will remember for the rest of their lives.`\
+https://nytimes.com/athletic/5756634/2024/09/10/northern-illinois-notre-dame-college-football-nfl/
 
