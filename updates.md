@@ -1,3 +1,11 @@
+**Phillies' Kyle Schwarber sets MLB record with 14th leadoff home run of season**\
+`Schwarber's 14th leadoff homer broke Alfonso Soriano's mark, which had stood since 2003. He has bashed seven homers in his last eight games.`\
+https://nytimes.com/athletic/5759305/2024/09/10/kyle-schwarber-leadoff-home-runs-record/
+
+**Pearsall, teen charged in shooting case had 'extended struggle': Attorney**\
+`The next hearing in the matter is scheduled for Sept. 26.`\
+https://nytimes.com/athletic/5759279/2024/09/10/ricky-pearsall-shooting-teen-court-appearance/
+
 **Harris’s stop at a spice shop in Pittsburgh left some feeling salty.**\
 `By Michael Levenson`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/harriss-stop-at-a-spice-shop-in-pittsburgh-left-some-feeling-salty
