@@ -1,3 +1,7 @@
+**Australia Plans to Bar Young Children From Social Media**\
+`The government is considering setting a minimum age, between 14 and 16, for platforms like TikTok and Instagram.`\
+https://nytimes.com/2024/09/10/world/australia/social-media-age-restrictions.html
+
 **Google and Apple Face Billions in Penalties After Losing E.U. Appeals**\
 `The cases had established the European Union as the world’s leading tech watchdog, but have since raised questions about its protracted appeals process.`\
 https://nytimes.com/2024/09/10/technology/european-union-apple-google-antitrust.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/10/arts/television/late-night-presidential-debate.ht
 **How the 49ers simplified the offense with Jordan Mason and steamrolled the Jets**\
 `Kyle Shanahan said Christian McCaffrey's calf has been problematic for more than a month but wouldn't rule him out for Sunday in Minnesota.`\
 https://nytimes.com/athletic/5757550/2024/09/10/jordan-mason-49ers-jets-week-1/
-
-**Word of the Day: impunity**\
-`This word has appeared in 256 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/09/10/learning/word-of-the-day-impunity.html
 
