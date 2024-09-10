@@ -1,3 +1,7 @@
+**Harris’s challenge: Pushing ahead without leaving Biden behind.**\
+`By Katie Rogers and Erica L. Green`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/harriss-challenge-pushing-ahead-without-leaving-biden-behind
+
 **‘Need to Tell a Story’: Why U.K.’s Leader Faced a Revolt Over a Retiree Benefit Cut**\
 `Prime Minister Keir Starmer survived a test of his authority, but more than 50 Labour lawmakers did not back his plan to reduce fuel aid.`\
 https://nytimes.com/2024/09/10/world/europe/-2024-09-10-world-europe-britain-starmer-critics-aid.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/10/us/politics/service-members-honored-afghanistan.h
 **James Earl Jones’s Stage Career Was Rich, and Startlingly Diverse**\
 `In addition to Broadway crowd-pleasers, the actor deftly navigated classics, experimental theater and new works by major contemporary playwrights.`\
 https://nytimes.com/2024/09/10/theater/james-earl-jones-broadway-theater.html
-
-**An American Sovereign Wealth Fund? Easier Said Than Done.**\
-`Creating a U.S. investment fund to compete against those in China and the Middle East could create more problems than it would solve.`\
-https://nytimes.com/2024/09/10/us/politics/us-sovereign-wealth-fund.html
 

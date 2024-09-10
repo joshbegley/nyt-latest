@@ -1,3 +1,7 @@
+**Harris’s challenge: Pushing ahead without leaving Biden behind.**\
+`By Katie Rogers and Erica L. Green`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/harriss-challenge-pushing-ahead-without-leaving-biden-behind
+
 **‘Need to Tell a Story’: Why U.K.’s Leader Faced a Revolt Over a Retiree Benefit Cut**\
 `Prime Minister Keir Starmer survived a test of his authority, but more than 50 Labour lawmakers did not back his plan to reduce fuel aid.`\
 https://nytimes.com/2024/09/10/world/europe/-2024-09-10-world-europe-britain-starmer-critics-aid.html
