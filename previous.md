@@ -1,3 +1,11 @@
+**The Mirage of $2 Gas**\
+`Trump is promising something he can’t possibly deliver.`\
+https://nytimes.com/2024/09/10/opinion/trump-gas-prices.html
+
+**Ex-Music Teacher Who Sexually Abused Middle Schoolers Gets 30 Years**\
+`Jesus Concepcion, a teacher at a Bronx middle school, gave cellphones to girls so he could contact them without their parents’ knowledge, and he bought them gifts to lure them in.`\
+https://nytimes.com/2024/09/10/nyregion/jesus-concepcion-bronx-school-sexual-abuse-sentenced.html
+
 **Thompson: Brock Purdy upstages Aaron Rodgers with the veteran poise the 49ers will need**\
 `Brock Purdy is a veteran now, and on Monday, he did what veterans do — be good even when things aren't great.`\
 https://nytimes.com/athletic/5758593/2024/09/10/brock-purdy-49ers-aaron-rodgers-veteran/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/10/world/middleeast/israel-strike-mawasi-bombs.html
 **Readers Pick Their Song of the Summer**\
 `You sent in an eclectic mix of tracks from Chappell Roan, Bad Bunny, Lawrence and more.`\
 https://nytimes.com/2024/09/10/arts/music/amplifier-newsletter-chappell-roan-summer.html
-
-**The Midlife Marriage Tuneup**\
-`Therapists and relationship researchers share 6 questions that can bring couples closer during this stage.`\
-https://nytimes.com/2024/09/10/well/family/marriage-midlife-counseling.html
-
-**Five climate questions for the candidates.**\
-`By David Gelles`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/five-climate-questions-for-the-candidates
 
