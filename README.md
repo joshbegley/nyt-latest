@@ -1,3 +1,7 @@
+**Thompson: Brock Purdy upstages Aaron Rodgers with the veteran poise the 49ers will need**\
+`Brock Purdy is a veteran now, and on Monday, he did what veterans do — be good even when things aren't great.`\
+https://nytimes.com/athletic/5758593/2024/09/10/brock-purdy-49ers-aaron-rodgers-veteran/
+
 **A.I. Wants Your Job… to Be Simpler, Faster and More Satisfying**\
 `Can artificial intelligence help make hiring a more human experience?`\
 https://nytimes.com/paidpost/indeed/ai-wants-your-job-to-be-simpler-faster-and-more-satisfying.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/10/well/family/marriage-midlife-counseling.html
 **Five climate questions for the candidates.**\
 `By David Gelles`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/five-climate-questions-for-the-candidates
-
-**Congress Honors U.S. Service Members Killed During Afghanistan Withdrawal**\
-`Leaders awarded the Congressional Gold Medal to the families of 13 military service members killed during the evacuation, as Republicans seek to use the attack to tarnish Vice President Kamala Harris.`\
-https://nytimes.com/2024/09/10/us/politics/service-members-honored-afghanistan.html
 
