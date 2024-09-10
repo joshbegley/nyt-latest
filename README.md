@@ -1,3 +1,7 @@
+**Who's rising and falling in the College Football Playoff race after Week 2?**\
+`Why USC, Miami and Tennessee are on the rise and Michigan, Notre Dame and Oregon are on the decline in our Playoff projections.`\
+https://nytimes.com/athletic/5755975/2024/09/10/college-football-playoff-stock-watch/
+
 **Killing of Tanzanian Opposition Official Adds to Fears of Pre-Election Crackdown**\
 `Ali Mohamed Kibao was beaten and acid had been poured on his face, according to an autopsy, his party said.`\
 https://nytimes.com/2024/09/10/world/africa/tanzania-opposition-official-killed.html
@@ -6,9 +10,9 @@ https://nytimes.com/2024/09/10/world/africa/tanzania-opposition-official-killed.
 `Angel Gomes will make his first start for England in the Nations League game with Finland on Tuesday night.`\
 https://nytimes.com/athletic/5757633/2024/09/10/england-finland-team-news-angel-gomes/
 
-**New details of hostages’ dire conditions emerge, as families warn of ‘grave danger.’**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/09/10/world/israel-hamas-gaza-war/new-details-of-hostages-dire-conditions-emerge-as-families-warn-of-grave-danger
+**Hostages Still Held by Hamas Are in ‘Grave Danger,’ Families Warn**\
+`Six hostages who were found dead in Gaza recently had been held in narrow tunnels and suffered from malnutrition, family members said, citing an Israeli military investigation.`\
+https://nytimes.com/2024/09/10/world/middleeast/israel-hamas-hostages-conditions-gaza-tunnels.html
 
 **Dynasty league risers and fallers after Week 1: Ja'Marr Chase, Jameson Williams and more**\
 `Jeff Haverlack offers his dynasty takeaways from Week 1, including Lions wideout Jameson Williams validating his sleeper candidacy.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5745382/2024/09/10/raptors-immanuel-quickley-contra
 **7 Apple Picking Tips From the Guy Behind Apple Ratings**\
 `Brian Frange has been pontificating on apples since 2016. He has a few things to say before you hit the orchards.`\
 https://nytimes.com/2024/09/10/style/apple-picking-tips.html
-
-**Almost 50 Million Americans Have Had an Obamacare Plan Since 2014**\
-`The Biden administration released data showing roughly one in seven U.S. residents had been covered by the Affordable Care Act at some point over the past decade.`\
-https://nytimes.com/2024/09/10/us/politics/affordable-care-act-marketplaces-enrollment.html
 
