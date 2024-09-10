@@ -1,3 +1,19 @@
+**Kamala Harris Could Be in Trouble**\
+`Her momentum stalled after a lackluster CNN interview. The debate is her best chance to restart it.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/harris-trouble-debate
+
+**Scott Boras’ take on Cody Bellinger and the up-and-down Cubs: 'Wrigley Field is unexplainable'**\
+`“Wrigley Field had the most unusual season. It has been an offensive (drought),” Boras said.`\
+https://nytimes.com/athletic/5757600/2024/09/10/scott-boras-cody-bellinger-cubs/
+
+**What Wall Street Wants to Hear at the Debate**\
+`Taxes, tariffs, trade and regulation: Business leaders have a long list of topics they want addressed in Tuesday’s presidential showdown.`\
+https://nytimes.com/2024/09/10/business/dealbook/presidential-debate-economy-wall-street.html
+
+**SpaceX Launches Polaris Dawn Private Spaceflight Mission**\
+`Polaris Dawn successfully launched Tuesday morning with four nonprofessional astronauts aboard.`\
+https://nytimes.com/video/us/100000009682839/spacex-launches-polaris-dawn.html
+
 **Morgan Rogers and the value of playing youth football for England**\
 `Unai Emery criticised Rogers' call-up - but the benefits of under-21 international football are clear for all to see`\
 https://nytimes.com/athletic/5757078/2024/09/10/morgan-rogers-aston-villa-england-emery/
