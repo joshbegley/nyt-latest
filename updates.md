@@ -1,3 +1,15 @@
+**49ers minutia minute: Details on Christian McCaffrey; Brock Purdy's mature game**\
+`A review of Monday's win highlighted the strong performance by the 49ers' right-side guys — guard Dominick Puni and tackle Colton McKivitz.`\
+https://nytimes.com/athletic/5758928/2024/09/10/49ers-christian-mccaffrey-brock-purdy/
+
+**WSL YouTube switch will increase league's 'reach', says women's football CEO**\
+`Nikki Doucet, the CEO of the English women&#8217;s professional game, says moving the Women&#8217;s Super League (WSL) and Championship&#8217;s streaming platform to YouTube will grow the game&#8217;s reach.`\
+https://nytimes.com/athletic/5757935/2024/09/10/nikki-doucet-wsl-youtube/
+
+**The Optimism and Anxiety Ahead of Tonight’s Debate**\
+`I asked again how you’re feeling about the debate. You responded with new worries and hopes.`\
+https://nytimes.com/2024/09/10/us/politics/trump-harris-debate-election.html
+
 **How USMNT landed Pochettino: Hayes' role, Chelsea delays and Argentine steak**\
 `From initial talks with Klopp, to meetings in Barcelona and a donation from a billionaire, Pochettino's hire was no ordinary process`\
 https://nytimes.com/athletic/5755854/2024/09/10/mauricio-pochettino-usmnt-us-soccer/
