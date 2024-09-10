@@ -1,3 +1,7 @@
+**ESPN would be interested in Charles Barkley, exec says**\
+`NBC chairman Mark Lazerus said he would also have interest in Barkley.`\
+https://nytimes.com/athletic/5758350/2024/09/10/charles-barkley-future-espn-tnt/
+
 **Tracking Tropical Depression Bebinca**\
 `See the likely path and wind arrival times for Bebinca.`\
 https://nytimes.com/interactive/2024/09/10/weather/bebinca-map-path-tracker.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5758257/2024/09/10/everton-takeover-moshiri-usmanov
 **After Fierce Lobbying, Regulators Soften Proposed Rules on Banks**\
 `A top Federal Reserve official said that blowback to proposed rules on capital requirements led him to “relearn the lesson of humility.”`\
 https://nytimes.com/2024/09/10/business/banks-basel-capital.html
-
-**The Windup: MLB's 5 hottest second-half teams**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5758308/2024/09/10/mlb-standings-diamondbacks-the-windup/
 
