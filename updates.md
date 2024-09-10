@@ -1,3 +1,7 @@
+**Why Jasson Domínguez hype brings some uncertainty**\
+`The Yankees called up Domínguez on Monday, and manager Aaron Boone said their top overall prospect will play "a lot."`\
+https://nytimes.com/athletic/5757467/2024/09/10/yankees-jasson-dominguez-hype-uncertainty/
+
 **Red Sox rout Orioles to keep slim wild-card hopes alive**\
 `Despite their second-half struggles, the Red Sox are still in the wild-card race, and Monday's win moved them to three games back.`\
 https://nytimes.com/athletic/5757461/2024/09/10/red-sox-wild-card-race-orioles-win/
