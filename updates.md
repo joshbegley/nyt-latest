@@ -1,3 +1,7 @@
+**Questions for Donald Trump**\
+`Twenty-four questions on issues including the economy, abortion and foreign policy we wish Trump would answer.`\
+https://nytimes.com/2024/09/10/briefing/donald-trump-2024-election.html
+
 **Astros takeaways: Full strength lineup, Framber Valdez's Cy Young Award case and more**\
 `Plus a look at how Houston's defensive metrics might influence who'll they'll target in the offseason.`\
 https://nytimes.com/athletic/5756716/2024/09/10/astros-framber-valdez-cy-young-case/
