@@ -1,3 +1,11 @@
+**Inmate’s Wife Subjected to Cavity Search Will Get $5.6 Million in Settlement**\
+`Christina Cardenas of California was subjected to the search after going to visit her husband at a state prison in 2019, according to her lawsuit. “It left me traumatized,” she said.`\
+https://nytimes.com/2024/09/10/us/inmate-wife-strip-search-settlement-california.html
+
+**Tracking Attacks in the First Harris-Trump Debate**\
+`See how the candidates used their speaking time to discuss the issues or criticize their opponent.`\
+https://nytimes.com/interactive/2024/09/10/us/elections/trump-harris-attacks-debate-tracker.html
+
 **Timeline of Deshaun Watson's legal troubles, career since first sexual misconduct allegation**\
 `A lawsuit filed this week was the latest development in a saga that has stretched to early 2021.`\
 https://nytimes.com/athletic/5758187/2024/09/10/deshaun-watson-timeline-sexual-assault-allegations-lawsuits/
