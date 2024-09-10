@@ -1,4 +1,4 @@
-**Dolphins say police conduct with  Hill 'overly aggressive and violent'**\
+**Dolphins say police conduct with Hill 'overly aggressive and violent'**\
 `Hill was en route to the stadium Sunday for the Dolphins’ game against the Jacksonville Jaguars when police pulled him over.`\
 https://nytimes.com/athletic/5756541/2024/09/09/mike-mcdaniel-tyreek-hill-dolphins/
 
