@@ -1,3 +1,11 @@
+**Chris Christie: What Voters Want to See From Harris in the Debate**\
+`Millions of Americans are waiting for her to earn their vote. Here’s how she can do that.`\
+https://nytimes.com/2024/09/10/opinion/chris-christie-trump-debate.html
+
+**Meet the moderators: Linsey Davis and David Muir of ABC News.**\
+`By Michael M. Grynbaum`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/moderators-linsey-davis-david-muir
+
 **Poverty Increased in 2023 as Prices Rose and Pandemic Aid Programs Expired**\
 `More faced hardship in the United States last year, the Census Bureau said, as inflation and the end of subsidies outweighed higher incomes.`\
 https://nytimes.com/2024/09/10/business/economy/poverty-report-2023-census-bureau.html
