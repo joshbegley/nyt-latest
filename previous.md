@@ -1,3 +1,7 @@
+**New details of hostages’ dire conditions emerge, as families warn of ‘grave danger.’**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/09/10/world/israel-hamas-gaza-war/new-details-of-hostages-dire-conditions-emerge-as-families-warn-of-grave-danger
+
 **Dynasty league risers and fallers after Week 1: Ja'Marr Chase, Jameson Williams and more**\
 `Jeff Haverlack offers his dynasty takeaways from Week 1, including Lions wideout Jameson Williams validating his sleeper candidacy.`\
 https://nytimes.com/athletic/5756811/2024/09/10/dynasty-fantasy-football-risers-fallers-week-1-chase/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5756871/2024/09/10/kirk-cousins-healthy-falcons-ope
 **The Stakes of a Harris vs. Trump Debate**\
 `Some voters are still trying to make up their minds. Here’s what they’re listening for.`\
 https://nytimes.com/2024/09/10/podcasts/the-stakes-of-a-harris-vs-trump-debate.html
-
-**NIU's win over Notre Dame was extraordinary, and it's what makes college football beautiful**\
-`Every single weekend, some team is playing a game the players will remember for the rest of their lives.`\
-https://nytimes.com/athletic/5756634/2024/09/10/northern-illinois-notre-dame-college-football-nfl/
 

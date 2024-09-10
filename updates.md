@@ -1,3 +1,7 @@
+**New details of hostages’ dire conditions emerge, as families warn of ‘grave danger.’**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/09/10/world/israel-hamas-gaza-war/new-details-of-hostages-dire-conditions-emerge-as-families-warn-of-grave-danger
+
 **Dynasty league risers and fallers after Week 1: Ja'Marr Chase, Jameson Williams and more**\
 `Jeff Haverlack offers his dynasty takeaways from Week 1, including Lions wideout Jameson Williams validating his sleeper candidacy.`\
 https://nytimes.com/athletic/5756811/2024/09/10/dynasty-fantasy-football-risers-fallers-week-1-chase/
