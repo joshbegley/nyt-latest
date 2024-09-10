@@ -1,3 +1,7 @@
+**Wednesday Briefing: A Guide to the Harris-Trump Debate**\
+`Plus, the great films of James Earl Jones.`\
+https://nytimes.com/2024/09/10/briefing/harris-trump-debate-gaza-guns.html
+
 **I.C.C. Prosecutor Presses Court for Arrest Warrants for Hamas Chiefs and Israeli Leaders**\
 `The prosecutor, Karim Khan, asked the court to make its decision on the warrants with the “utmost urgency” because of “the worsening situation in Palestine.”`\
 https://nytimes.com/2024/09/10/world/middleeast/icc-warrants-hamas-netanyahu-yahya-sinwar.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/10/opinion/chris-christie-trump-debate.html
 **Two ABC News Anchors Will Steer the Harris-Trump Debate**\
 `The moderators, David Muir and Linsey Davis, have the difficult task of guiding a high-stakes encounter.`\
 https://nytimes.com/2024/09/10/business/media/debate-moderators-david-muir-linsey-davis.html
-
-**Poverty Increased in 2023 as Prices Rose and Pandemic Aid Programs Expired**\
-`More faced hardship in the United States last year, the Census Bureau said, as inflation and the end of subsidies outweighed higher incomes.`\
-https://nytimes.com/2024/09/10/business/economy/poverty-report-2023-census-bureau.html
 

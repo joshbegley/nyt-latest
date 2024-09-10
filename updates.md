@@ -1,3 +1,7 @@
+**Wednesday Briefing: A Guide to the Harris-Trump Debate**\
+`Plus, the great films of James Earl Jones.`\
+https://nytimes.com/2024/09/10/briefing/harris-trump-debate-gaza-guns.html
+
 **I.C.C. Prosecutor Presses Court for Arrest Warrants for Hamas Chiefs and Israeli Leaders**\
 `The prosecutor, Karim Khan, asked the court to make its decision on the warrants with the “utmost urgency” because of “the worsening situation in Palestine.”`\
 https://nytimes.com/2024/09/10/world/middleeast/icc-warrants-hamas-netanyahu-yahya-sinwar.html
