@@ -1,3 +1,7 @@
+**Why Jasson Domínguez hype brings some uncertainty**\
+`The Yankees called up Domínguez on Monday, and manager Aaron Boone said their top overall prospect will play "a lot."`\
+https://nytimes.com/athletic/5757467/2024/09/10/yankees-jasson-dominguez-hype-uncertainty/
+
 **Palace should not panic - Glasner's teams tend to start seasons slowly**\
 `A look back at Glasner's previous managerial stops suggests he rarely begins a season with a bang`\
 https://nytimes.com/athletic/5741160/2024/09/10/palace-glasner-start-slow/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5747279/2024/09/10/chelsea-owners-civil-war/
 **Meet Jorrel Hato, the Ajax teenager tracked by Arsenal: 'I want to achieve big things'**\
 `The 18-year-old Netherlands defender is trying to return his club to the top of the Eredivisie, attracting big-club attention along the way`\
 https://nytimes.com/athletic/5726387/2024/09/10/jorrel-hato-ajax-netherlands/
-
-**Mbappe's start at Madrid: Low profile, finding his place, 'totally different' to Cristiano Ronaldo**\
-`It hasn't all been plain sailing, but Madrid are confident Mbappe is finding his feet`\
-https://nytimes.com/athletic/5755578/2024/09/10/kylian-mbappe-real-madrid-start/
 
