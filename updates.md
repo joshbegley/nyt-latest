@@ -1,3 +1,7 @@
+**Why CFB is uniquely perfect, plus another new 134**\
+`Welcome to Until Saturday, the five-star college football newsletter: We got another example of why we love college football on Saturday.`\
+https://nytimes.com/athletic/5757916/2024/09/10/college-football-northern-illinois-until-saturday/
+
 **Kane hungry to silence doubters after scoring twice on 100th England cap**\
 `Harry Kane stated that he is &#8220;hungry to prove people wrong&#8221; after the England captain scored two goals on his 100th cap to help his side secure a 2-0 win against Finland.`\
 https://nytimes.com/athletic/5758890/2024/09/10/harry-kane-100-caps-england/

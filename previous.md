@@ -1,3 +1,7 @@
+**Why CFB is uniquely perfect, plus another new 134**\
+`Welcome to Until Saturday, the five-star college football newsletter: We got another example of why we love college football on Saturday.`\
+https://nytimes.com/athletic/5757916/2024/09/10/college-football-northern-illinois-until-saturday/
+
 **Kane hungry to silence doubters after scoring twice on 100th England cap**\
 `Harry Kane stated that he is &#8220;hungry to prove people wrong&#8221; after the England captain scored two goals on his 100th cap to help his side secure a 2-0 win against Finland.`\
 https://nytimes.com/athletic/5758890/2024/09/10/harry-kane-100-caps-england/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/10/us/harris-trump-debate/trump-and-harris-will
 **In the South of France, a Utopian Town Inspired by Ancient Pyramids**\
 `Once derided, La Grande Motte, a surreal 1960s resort in the South of France, is increasingly seen as having been ahead of its time.`\
 https://nytimes.com/2024/09/10/t-magazine/la-grande-motte-french-resort-town.html
-
-**Wednesday Briefing: A Guide to the Harris-Trump Debate**\
-`Plus, the great films of James Earl Jones.`\
-https://nytimes.com/2024/09/10/briefing/harris-trump-debate-gaza-guns.html
 
