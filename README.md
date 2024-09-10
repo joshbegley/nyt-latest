@@ -1,3 +1,7 @@
+**Current and former Iowa, Iowa State athletes join gambling lawsuit**\
+`Eleven current and former Iowa and Iowa State athletes joined an earlier lawsuit alleging their rights were violated in a gambling sting.`\
+https://nytimes.com/athletic/5758984/2024/09/10/iowa-athletes-gambling-lawsuit-2/
+
 **Melania Trump, Silent for Months, Re-emerges in a Series of Cryptic Videos**\
 `In one, released online on Tuesday, she muses conspiratorially about the attempt on her husband’s life. The videos are intended to promote a new memoir.`\
 https://nytimes.com/2024/09/10/us/elections/melania-trump-book-videos.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/03/opinion/thepoint/trump-shutdown-voting-citiz
 **Tonight’s Debate Will Focus on Defining Kamala Harris**\
 `Also, Louisiana is bracing for Francine. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/09/10/briefing/debate-night-harris-trump-tropical-storm-louisiana.html
-
-**How False Claims About Dead Cats Became Trump Campaign Fodder**\
-`Falsehoods claiming migrants in Ohio are killing cats and decapitating ducks went viral this week. The Trump campaign embraced them.`\
-https://nytimes.com/2024/09/10/technology/trump-dead-cats-migrants-ohio.html
 

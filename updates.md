@@ -1,3 +1,11 @@
+**Melania Trump, Silent for Months, Re-emerges in a Series of Cryptic Videos**\
+`In one, released online on Tuesday, she muses conspiratorially about the attempt on her husband’s life. The videos are intended to promote a new memoir.`\
+https://nytimes.com/2024/09/10/us/elections/melania-trump-book-videos.html
+
+**ABC says its moderators will ‘facilitate,’ not fact-check.**\
+`By Michael M. Grynbaum`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/abc-says-its-moderators-will-facilitate-not-fact-check
+
 **Illinois Man Wrongly Convicted of 2008 Murder Is Awarded $50 Million**\
 `Marcel Brown, 34, spent nearly 10 years in prison after he was coerced into making a false confession in connection to a 2008 murder, a jury decided Monday.`\
 https://nytimes.com/2024/09/10/us/marcel-brown-exonerated-damages-illinois.html
