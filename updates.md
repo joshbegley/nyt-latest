@@ -1,3 +1,11 @@
+**Hugo Ekitike is reborn at Eintracht Frankfurt, having lost his shine at PSG**\
+`The young French forward has seized his chance to impress in the Bundesliga and his talent is becoming harder to ignore with each display`\
+https://nytimes.com/athletic/5755629/2024/09/10/ekitike-eintracht-psg-france-newcastle/
+
+**Jockeys, birds of prey and supermarket chains: The origins of French football club nicknames**\
+`From colour-inspired monikers to nods to English educational excellence, Peter Rutzler explores the nicknames of France's top-flight sides`\
+https://nytimes.com/athletic/5722444/2024/09/10/ligue-1-french-club-nicknames/
+
 **Gibraltar, Rodri and Morata's chanting and a misunderstood British territory**\
 `A British territory on Spain's south coast, Gibraltar was unexpectedly thrust into the spotlight during La Roja's Euro 2024 celebrations`\
 https://nytimes.com/athletic/5756112/2024/09/10/gibraltar-spain-morata-rodri-chants/
