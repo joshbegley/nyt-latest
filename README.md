@@ -18,6 +18,10 @@ https://nytimes.com/2024/09/10/world/europe/tariq-ramadan-rape-conviction.html
 `With all the controversy surrounding the current ownership situation at the club, we want to know your views.`\
 https://nytimes.com/athletic/5757774/2024/09/10/chelsea-fans-views-club-ownership/
 
+**49ers dominated both trenches in their season-opening rout of the Jets**\
+`The 49ers struggled against the run in 2023, but that concerned seemed to be in the rearview mirror on Monday.`\
+https://nytimes.com/athletic/5757540/2024/09/10/49ers-jets-week-1-offensive-defensive-line/
+
 **Ranking the top 10 Canucks prospects, part 2: No. 5 to No. 1**\
 `The Canucks' system is relatively lacking in high quality depth, but at the top end of the system there are a trio of blue-chip assets.`\
 https://nytimes.com/athletic/5751011/2024/09/10/vancouver-canucks-top-prospects-preseason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5757114/2024/09/10/takeaways-mike-macdonalds-ryan-g
 **Predicting the Debate Ratings: Super Bowl? Nah. ‘Seinfeld’ Finale? Maybe.**\
 `A semi-scientific theory about how many Americans will tune in to watch Kamala Harris and Donald Trump on Tuesday night.`\
 https://nytimes.com/2024/09/10/business/media/presidential-debate-tv-ratings.html
-
-**Weekly Student News Quiz: Record Heat, Chicken Nuggets, Summer Song**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2024/09/10/learning/10StudentNewsQuiz.html
 
