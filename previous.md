@@ -1,3 +1,7 @@
+**Leafs ink Robertson to 1-year deal 8 days before training camp**\
+`Robertson signed a one-year, $875,000 deal on Tuesday, eight days before the start of training camp.`\
+https://nytimes.com/athletic/5758031/2024/09/10/nick-robertson-maple-leafs-contract/
+
 **How Aston Martin F1 won the race for Adrian Newey, the sport's most coveted mind**\
 `Aston Martin was eager to show Newey what it was putting together at Silverstone and to make a major statement of intent by signing him.`\
 https://nytimes.com/athletic/5757972/2024/09/10/f1-adrian-newey-aston-martin/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5757540/2024/09/10/49ers-jets-week-1-offensive-defe
 **Ranking the top 10 Canucks prospects, part 2: No. 5 to No. 1**\
 `The Canucks' system is relatively lacking in high quality depth, but at the top end of the system there are a trio of blue-chip assets.`\
 https://nytimes.com/athletic/5751011/2024/09/10/vancouver-canucks-top-prospects-preseason/
-
-**Orange County Leader Faces Scrutiny Over Charity’s Pandemic Spending**\
-`Andrew Do, an Orange County supervisor, has been asked to resign after directing more than $13 million to a nonprofit run by his daughter and allies. The group was supposed to spend the money on meals for vulnerable residents.`\
-https://nytimes.com/2024/09/10/us/orange-county-leader-faces-scrutiny-over-charitys-pandemic-spending.html
 

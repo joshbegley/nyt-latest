@@ -1,3 +1,7 @@
+**Leafs ink Robertson to 1-year deal 8 days before training camp**\
+`Robertson signed a one-year, $875,000 deal on Tuesday, eight days before the start of training camp.`\
+https://nytimes.com/athletic/5758031/2024/09/10/nick-robertson-maple-leafs-contract/
+
 **U.K. Hedge Fund Tycoon Buys The Spectator Magazine**\
 `Paul Marshall, a multimillionaire founder and investor in upstart conservative media outlets, has bought the right-wing British magazine in a deal worth about $131 million.`\
 https://nytimes.com/2024/09/10/world/europe/spectator-paul-marshall-telegraph.html
