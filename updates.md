@@ -1,3 +1,7 @@
+**Tonight’s Debate Will Focus on Defining Kamala Harris**\
+`Also, Louisiana is bracing for Francine. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/09/10/briefing/debate-night-harris-trump-tropical-storm-louisiana.html
+
 **How False Claims About Dead Cats Became Trump Campaign Fodder**\
 `Falsehoods claiming migrants in Ohio are killing cats and decapitating ducks went viral this week. The Trump campaign embraced them.`\
 https://nytimes.com/2024/09/10/technology/trump-dead-cats-migrants-ohio.html
