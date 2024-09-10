@@ -1,3 +1,7 @@
+**The Pulse: Well, he played more than four snaps**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5755901/2024/09/10/aaron-rodgers-jets-49ers-the-pulse/
+
 **Questions for Donald Trump**\
 `Twenty-four questions on issues including the economy, abortion and foreign policy we wish Trump would answer.`\
 https://nytimes.com/2024/09/10/briefing/donald-trump-2024-election.html
