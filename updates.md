@@ -1,3 +1,7 @@
+**Red Sox rout Orioles in key win to keep slim wild card hopes alive: 'It's all about momentum'**\
+`Despite their second-half struggles, the Red Sox are still in the wild-card race, and Monday's win moved them to three games back.`\
+https://nytimes.com/athletic/5757461/2024/09/10/red-sox-wild-card-race-orioles-win/
+
 **Chelsea are learning the hard way that co-owners rarely work in football**\
 `Competing voices - and egos - at the top can create chaos. Just ask Liverpool`\
 https://nytimes.com/athletic/5747279/2024/09/10/chelsea-owners-civil-war/

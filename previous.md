@@ -1,3 +1,7 @@
+**Red Sox rout Orioles in key win to keep slim wild card hopes alive: 'It's all about momentum'**\
+`Despite their second-half struggles, the Red Sox are still in the wild-card race, and Monday's win moved them to three games back.`\
+https://nytimes.com/athletic/5757461/2024/09/10/red-sox-wild-card-race-orioles-win/
+
 **Chelsea are learning the hard way that co-owners rarely work in football**\
 `Competing voices - and egos - at the top can create chaos. Just ask Liverpool`\
 https://nytimes.com/athletic/5747279/2024/09/10/chelsea-owners-civil-war/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/10/briefing/trump-harris-debate-gaza.html
 **Protest by Pedicure: How Nail Salons Lift Morale in Ukraine**\
 `Even a visit for a manicure, which often involves navigating power outages and air-raid sirens, can turn into an act of defiance as Russia’s war in the country drags on.`\
 https://nytimes.com/2024/09/10/world/europe/ukraine-nail-salons.html
-
-**Polaris Dawn Astronauts Get Ready to Launch: What to Know**\
-`A private mission, scheduled to launch at 3:38 a.m. Eastern time Tuesday after a series of delays, would take people farther from Earth than anyone has traveled since the end of NASA’s Apollo moon missions.`\
-https://nytimes.com/2024/09/10/science/spacex-polaris-dawn-launch-spacewalk.html
 
