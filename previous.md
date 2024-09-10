@@ -1,3 +1,11 @@
+**Trump Is Making Promises That Many Economists Call Unrealistic**\
+`Economists and analysts are dubious of Trump’s promises to slash gas prices or prod interest rates lower.`\
+https://nytimes.com/2024/09/10/us/politics/trump-economics-gas-tariffs-inflation.html
+
+**Prolonged hot temperatures make fighting California wildfires more difficult**\
+`By Austyn Gaffney`\
+https://nytimes.com/live/2024/09/10/us/california-wildfires-line-airport/temperatures-california-wildfires
+
 **JD Vance’s Outrageous Smear of Haitian Immigrants**\
 `It’s not only a vicious lie, but it’s a classic method of dehumanizing outsiders in order to persecute them.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/vance-smear-haitians-pets
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/10/well/wildfire-smoke-health.html
 **Here Are the Key Debate Attacks to Expect. Hint: It May Get Personal.**\
 `Donald Trump and Kamala Harris have never met, and may not meet again onstage during this campaign. Tonight they have a huge, fleeting spotlight to change how voters see their rival.`\
 https://nytimes.com/2024/09/10/us/politics/trump-harris-debate-attack-lines.html
-
-**Jones returns to Liverpool training ahead of Nottingham Forest clash**\
-`Curtis Jones has returned to full training ahead of Liverpool’s Premier League clash with Nottingham Forest at Anfield on Saturday.`\
-https://nytimes.com/athletic/5758354/2024/09/10/curtis-jones-liverpool-nottingham-forest/
-
-**JD Vance Appears to Backtrack on False Claim About Haitian Migrants in Ohio**\
-`The Republican vice-presidential nominee acknowledged that an outlandish claim he had amplified about Haitian immigrants stealing and eating pets could “turn out to be false.”`\
-https://nytimes.com/2024/09/10/us/politics/jd-vance-backtrack-haitian-migrants-pets.html
 

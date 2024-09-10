@@ -1,3 +1,11 @@
+**Trump Is Making Promises That Many Economists Call Unrealistic**\
+`Economists and analysts are dubious of Trump’s promises to slash gas prices or prod interest rates lower.`\
+https://nytimes.com/2024/09/10/us/politics/trump-economics-gas-tariffs-inflation.html
+
+**Prolonged hot temperatures make fighting California wildfires more difficult**\
+`By Austyn Gaffney`\
+https://nytimes.com/live/2024/09/10/us/california-wildfires-line-airport/temperatures-california-wildfires
+
 **JD Vance’s Outrageous Smear of Haitian Immigrants**\
 `It’s not only a vicious lie, but it’s a classic method of dehumanizing outsiders in order to persecute them.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/vance-smear-haitians-pets
