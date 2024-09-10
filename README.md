@@ -1,3 +1,7 @@
+**Israel Strikes Humanitarian Area; Gazan Authorities Say Dozens Are Killed**\
+`Israel’s military said it had targeted militants who carried out attacks. A Civil Defense official in Gaza said at least 40 people were killed.`\
+https://nytimes.com/live/2024/09/10/world/israel-hamas-gaza-war
+
 **Aaron Rodgers is back, but loss to 49ers a reminder the Jets have a long way to go**\
 `Surprisingly, the defense was the issue in a Monday night loss at San Francisco.`\
 https://nytimes.com/athletic/5757564/2024/09/10/aaron-rodgers-return-monday-night-football-jets-loss-49ers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/10/learning/word-of-the-day-impunity.html
 **Fantasy trends and hidden gems: Our projections vs. NHL.com's pre-draft rankings**\
 `Shayna Goldman explores the biggest discrepancies between The Athletic's fantasy hockey projections and NHL.com's pre-draft rankings.`\
 https://nytimes.com/athletic/5753643/2024/09/10/fantasy-hockey-trends-draft-kit-projections-vs-nhl/
-
-**1 Person Killed in Ukrainian Drone Attack Near Moscow, Russia Says**\
-`Russia’s air defense system shot down 20 drones in the region, the country’s defense ministry said.`\
-https://nytimes.com/2024/09/10/world/europe/russia-moscow-drone-strike-ukraine.html
 
