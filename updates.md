@@ -1,3 +1,11 @@
+**An American Sovereign Wealth Fund? Easier Said Than Done.**\
+`Creating a U.S. investment fund to compete against those in China and the Middle East could create more problems than it would solve.`\
+https://nytimes.com/2024/09/10/us/politics/us-sovereign-wealth-fund.html
+
+**Pakistani Police Arrest Lawmakers Allied With Former Prime Minister Imran Khan**\
+`In an overnight raid on the Parliament, police arrested at least 10 members of Khan’s party, deepening the political battle between the imprisoned ex-leader and the country’s powerful military.`\
+https://nytimes.com/2024/09/10/world/asia/pakistan-police-arrests-imran-khan.html
+
 **The Cast Is Set for ‘Saturday Night Live’ Season 50**\
 `Ashley Padilla, Emil Wakim and Jane Wickline will be the show’s new faces in its landmark season.`\
 https://nytimes.com/2024/09/10/arts/television/snl-season-50-cast.html

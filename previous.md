@@ -1,3 +1,11 @@
+**An American Sovereign Wealth Fund? Easier Said Than Done.**\
+`Creating a U.S. investment fund to compete against those in China and the Middle East could create more problems than it would solve.`\
+https://nytimes.com/2024/09/10/us/politics/us-sovereign-wealth-fund.html
+
+**Pakistani Police Arrest Lawmakers Allied With Former Prime Minister Imran Khan**\
+`In an overnight raid on the Parliament, police arrested at least 10 members of Khan’s party, deepening the political battle between the imprisoned ex-leader and the country’s powerful military.`\
+https://nytimes.com/2024/09/10/world/asia/pakistan-police-arrests-imran-khan.html
+
 **The Cast Is Set for ‘Saturday Night Live’ Season 50**\
 `Ashley Padilla, Emil Wakim and Jane Wickline will be the show’s new faces in its landmark season.`\
 https://nytimes.com/2024/09/10/arts/television/snl-season-50-cast.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/middleeast/100000009682901/mawasi-gaza-strike-wi
 **Here’s how Trump has used debates to belittle women.**\
 `By Jess Bidgood`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/heres-how-trump-has-used-debates-to-belittle-women
-
-**Meet DRAFTYCAR, the new mobile game sweeping through the NASCAR garage**\
-`With its combination of easy gameplay and realistic look at the tough business of motorsports, DRAFTYCAR has caught on in the NASCAR world.`\
-https://nytimes.com/athletic/5750061/2024/09/10/draftycar-nascar-mobile-game/
-
-**Gunman Who Shot Trump Was Not Spotted as Early as Reported**\
-`A law enforcement officer at the rally where the former president was shot now says he misidentified a man he saw earlier that day as Thomas Crooks.`\
-https://nytimes.com/2024/09/10/us/politics/gunman-trump-rally-timeline-fbi.html
 
