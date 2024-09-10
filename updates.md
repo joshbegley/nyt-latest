@@ -1,3 +1,11 @@
+**Former Michigan stars file $50 million NIL suit against NCAA, Big Ten Network**\
+`Four ex-Wolverines filed a class-action lawsuit seeking more than $50 million in "unlawfully denied" name, image and likeness money.`\
+https://nytimes.com/athletic/5758349/2024/09/10/michigan-football-lawsuit-ncaa-nil-big-ten-network/
+
+**South Carolina celebrates title with White House visit**\
+`The event ended with guards Te-Hina Paopao and Bree Hall presenting Biden with a No. 46 South Carolina basketball uniform.`\
+https://nytimes.com/athletic/5758393/2024/09/10/south-carolina-uconn-basketball-title-white-house/
+
 **Trump Is Making Promises That Many Economists Call Unrealistic**\
 `Economists and analysts are dubious of Trump’s promises to slash gas prices or prod interest rates lower.`\
 https://nytimes.com/2024/09/10/us/politics/trump-economics-gas-tariffs-inflation.html
