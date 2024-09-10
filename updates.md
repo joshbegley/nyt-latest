@@ -1,3 +1,7 @@
+**Art Institute of Chicago Receives $75 Million Gift**\
+`The donation from Aaron I. Fleischman and Lin Lougheed will support the museum’s new galleries.`\
+https://nytimes.com/2024/09/10/arts/art-institute-of-chicago-fleischman-lougheed-gift.html
+
 **Women Making Waves**\
 `Tory Burch plays to win, and Rachel Scott of Diotima has a star-making show.`\
 https://nytimes.com/2024/09/10/style/tory-burch-diotima-new-york-fashion-week.html

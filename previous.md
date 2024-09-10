@@ -1,3 +1,7 @@
+**Art Institute of Chicago Receives $75 Million Gift**\
+`The donation from Aaron I. Fleischman and Lin Lougheed will support the museum’s new galleries.`\
+https://nytimes.com/2024/09/10/arts/art-institute-of-chicago-fleischman-lougheed-gift.html
+
 **Women Making Waves**\
 `Tory Burch plays to win, and Rachel Scott of Diotima has a star-making show.`\
 https://nytimes.com/2024/09/10/style/tory-burch-diotima-new-york-fashion-week.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5758125/2024/09/10/mlb-odds-best-bets-projections-s
 **Husband on Trial in Rape and Drugging Case in France Is Taken to Hospital**\
 `Dominique Pelicot, 71, was due to testify on Tuesday over charges he invited dozens of men to his home to abuse his wife, Gisèle Pelicot. His condition was not immediately clear.`\
 https://nytimes.com/2024/09/10/world/europe/dominique-pelicot-france-rape-hospital.html
-
-**Fires Near Los Angeles May Intensify Before They Are Contained**\
-`Mountainous terrain, dry weather and winds are making it difficult to fight the wildfires threatening communities near Los Angeles.`\
-https://nytimes.com/2024/09/10/us/california-line-airport-wildfires-spreading.html
 
