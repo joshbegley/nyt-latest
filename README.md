@@ -1,3 +1,7 @@
+**Gomes to make first England start against Finland**\
+`Angel Gomes will make his first start for England in the Nations League game with Finland on Tuesday night.`\
+https://nytimes.com/athletic/5757633/2024/09/10/england-finland-team-news-angel-gomes/
+
 **New details of hostages’ dire conditions emerge, as families warn of ‘grave danger.’**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/09/10/world/israel-hamas-gaza-war/new-details-of-hostages-dire-conditions-emerge-as-families-warn-of-grave-danger
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/10/us/politics/affordable-care-act-marketplaces-enro
 **Raheem Morris: Kirk Cousins is healthy but season-opener in Atlanta "wasn't good enough"**\
 `The Falcons offense failed them in Sunday's 18-10 loss to the Steelers, coach Raheem Morris said.`\
 https://nytimes.com/athletic/5756871/2024/09/10/kirk-cousins-healthy-falcons-opener/
-
-**The Stakes of a Harris vs. Trump Debate**\
-`Some voters are still trying to make up their minds. Here’s what they’re listening for.`\
-https://nytimes.com/2024/09/10/podcasts/the-stakes-of-a-harris-vs-trump-debate.html
 
