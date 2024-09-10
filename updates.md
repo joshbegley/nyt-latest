@@ -1,3 +1,7 @@
+**Kyle Larson to attempt Indy 500/NASCAR 'Double' again in 2025**\
+`After his dreams of the "Double" were washed away in 2024, Kyle Larson will try again in 2025 at the Indianapolis 500 and Coca-Cola 600.`\
+https://nytimes.com/athletic/5758717/2024/09/10/kyle-larson-to-try-indy-500-nascar-double-again-in-2025-for-hendrick-mclaren/
+
 **Missouri High Court Restores Abortion Measure to Ballot**\
 `The court ruled hours before the state’s deadline for printing ballots for absentee voters.`\
 https://nytimes.com/2024/09/10/us/missouri-abortion-ballot.html

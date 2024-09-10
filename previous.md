@@ -1,3 +1,7 @@
+**Kyle Larson to attempt Indy 500/NASCAR 'Double' again in 2025**\
+`After his dreams of the "Double" were washed away in 2024, Kyle Larson will try again in 2025 at the Indianapolis 500 and Coca-Cola 600.`\
+https://nytimes.com/athletic/5758717/2024/09/10/kyle-larson-to-try-indy-500-nascar-double-again-in-2025-for-hendrick-mclaren/
+
 **Missouri High Court Restores Abortion Measure to Ballot**\
 `The court ruled hours before the state’s deadline for printing ballots for absentee voters.`\
 https://nytimes.com/2024/09/10/us/missouri-abortion-ballot.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/10/nyregion/jesus-concepcion-bronx-school-sexual-abu
 **Thompson: Brock Purdy upstages Aaron Rodgers with the veteran poise the 49ers will need**\
 `Brock Purdy is a veteran now, and on Monday, he did what veterans do — be good even when things aren't great.`\
 https://nytimes.com/athletic/5758593/2024/09/10/brock-purdy-49ers-aaron-rodgers-veteran/
-
-**A.I. Wants Your Job… to Be Simpler, Faster and More Satisfying**\
-`Can artificial intelligence help make hiring a more human experience?`\
-https://nytimes.com/paidpost/indeed/ai-wants-your-job-to-be-simpler-faster-and-more-satisfying.html
 
