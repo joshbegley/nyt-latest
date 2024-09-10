@@ -1,3 +1,11 @@
+**Chris Christie: What Voters Want to See From Harris in the Debate**\
+`Millions of Americans are waiting for her to earn their vote. Here’s how she can do that.`\
+https://nytimes.com/2024/09/10/opinion/chris-christie-trump-debate.html
+
+**Meet the moderators: Linsey Davis and David Muir of ABC News.**\
+`By Michael M. Grynbaum`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/moderators-linsey-davis-david-muir
+
 **Poverty Increased in 2023 as Prices Rose and Pandemic Aid Programs Expired**\
 `More faced hardship in the United States last year, the Census Bureau said, as inflation and the end of subsidies outweighed higher incomes.`\
 https://nytimes.com/2024/09/10/business/economy/poverty-report-2023-census-bureau.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/10/us/politics/penzeys-spices-kamala-harris.html
 **3 Questions: When Women Kill Their Abusers**\
 `It costs money to do this kind of research, and no one wants to fund it.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/women-domestic-abuse
-
-**The Mirage of $2 Gas**\
-`Trump is promising something he can’t possibly deliver.`\
-https://nytimes.com/2024/09/10/opinion/trump-gas-prices.html
-
-**Ex-Music Teacher Who Sexually Abused Middle Schoolers Gets 30 Years**\
-`Jesus Concepcion, a teacher at a Bronx middle school, gave cellphones to girls so he could contact them without their parents’ knowledge, and he bought them gifts to lure them in.`\
-https://nytimes.com/2024/09/10/nyregion/jesus-concepcion-bronx-school-sexual-abuse-sentenced.html
 
