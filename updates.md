@@ -1,3 +1,15 @@
+**Readers Pick Their Song of the Summer**\
+`You sent in an eclectic mix of tracks from Chappell Roan, Bad Bunny, Lawrence and more.`\
+https://nytimes.com/2024/09/10/arts/music/amplifier-newsletter-chappell-roan-summer.html
+
+**The Midlife Marriage Tuneup**\
+`Therapists and relationship researchers share 6 questions that can bring couples closer during this stage.`\
+https://nytimes.com/2024/09/10/well/family/marriage-midlife-counseling.html
+
+**Five climate questions for the candidates.**\
+`By David Gelles`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/five-climate-questions-for-the-candidates
+
 **Congress Honors U.S. Service Members Killed During Afghanistan Withdrawal**\
 `Leaders awarded the Congressional Gold Medal to the families of 13 military service members killed during the evacuation, as Republicans seek to use the attack to tarnish Vice President Kamala Harris.`\
 https://nytimes.com/2024/09/10/us/politics/service-members-honored-afghanistan.html
