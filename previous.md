@@ -1,4 +1,4 @@
-**Google and Apple Lose Appeals in Landmark E.U. Cases**\
+**Google and Apple Face Billions in Penalties After Losing E.U. Appeals**\
 `The cases had established the European Union as the world’s leading tech watchdog, but have since raised questions about its protracted appeals process.`\
 https://nytimes.com/2024/09/10/technology/european-union-apple-google-antitrust.html
 
