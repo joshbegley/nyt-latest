@@ -1,3 +1,7 @@
+**‘It’s Not Pandering When You Tell the Truth’: Five Columnists Game Out the Debate**\
+`What does success or failure look like for Donald Trump and Kamala Harris in Tuesday’s debate?`\
+https://nytimes.com/2024/09/10/opinion/trump-harris-debate.html
+
 **China’s Huawei Hopes to Keep Its Momentum With a ‘Trifold’ Phone**\
 `The latest announcement from Apple’s China rival comes just hours after the unveiling of iPhone 16.`\
 https://nytimes.com/2024/09/10/business/huawei-trifold-iphone.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5755279/2024/09/10/paul-mitchell-newcastle-future/
 **Red Sox rout Orioles to keep slim wild-card hopes alive**\
 `Despite their second-half struggles, the Red Sox are still in the wild-card race, and Monday's win moved them to three games back.`\
 https://nytimes.com/athletic/5757461/2024/09/10/red-sox-wild-card-race-orioles-win/
-
-**Chelsea are learning the hard way that co-owners rarely work in football**\
-`Competing voices - and egos - at the top can create chaos. Just ask Liverpool`\
-https://nytimes.com/athletic/5747279/2024/09/10/chelsea-owners-civil-war/
 

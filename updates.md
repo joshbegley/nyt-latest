@@ -1,3 +1,7 @@
+**‘It’s Not Pandering When You Tell the Truth’: Five Columnists Game Out the Debate**\
+`What does success or failure look like for Donald Trump and Kamala Harris in Tuesday’s debate?`\
+https://nytimes.com/2024/09/10/opinion/trump-harris-debate.html
+
 **China’s Huawei Hopes to Keep Its Momentum With a ‘Trifold’ Phone**\
 `The latest announcement from Apple’s China rival comes just hours after the unveiling of iPhone 16.`\
 https://nytimes.com/2024/09/10/business/huawei-trifold-iphone.html
