@@ -1,3 +1,11 @@
+**Was James Earl Jones an EGOT Winner? It’s Complicated.**\
+`The actor won just about every award he could — but his Oscar was an honorary one. Is that enough for an EGOT?`\
+https://nytimes.com/2024/09/10/movies/james-earl-jones-egot.html
+
+**Trump Is Provoking a Congressional Fight He Can’t Win**\
+`Most Republicans don’t want a government shutdown right before the election.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/trump-shutdown-voting-citizenship
+
 **Tonight’s Debate Will Focus on Defining Kamala Harris**\
 `Also, Louisiana is bracing for Francine. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2024/09/10/briefing/debate-night-harris-trump-tropical-storm-louisiana.html
