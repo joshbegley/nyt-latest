@@ -1,3 +1,11 @@
+**Fantasy trends and hidden gems: Our projections vs. NHL.com's pre-draft rankings**\
+`Shayna Goldman explores the biggest discrepancies between The Athletic's fantasy hockey projections and NHL.com's pre-draft rankings.`\
+https://nytimes.com/athletic/5753643/2024/09/10/fantasy-hockey-trends-draft-kit-projections-vs-nhl/
+
+**1 Person Killed in Ukrainian Drone Strike Near Moscow, Russia Says**\
+`Russia’s air defense system shot down 20 drones in the region, the country’s defense ministry said.`\
+https://nytimes.com/2024/09/10/world/europe/russia-moscow-drone-strike-ukraine.html
+
 **‘It’s Not Pandering When You Tell the Truth’: Five Columnists Game Out the Debate**\
 `What does success or failure look like for Donald Trump and Kamala Harris in Tuesday’s debate?`\
 https://nytimes.com/2024/09/10/opinion/trump-harris-debate.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5746965/2024/09/10/brighton-loans-strategy/
 **The international break may do Farke some good**\
 `What Leeds players are up to during international break - those on duty with their countries and those left behind`\
 https://nytimes.com/athletic/5743782/2024/09/10/the-international-break-may-do-daniel-farke-and-leeds-some-good/
-
-**Is Mitchell close to leaving Newcastle after two months?**\
-`Each week Chris Waugh answers your Newcastle questions, and this week the focus was on the future of sporting director Paul Mitchell`\
-https://nytimes.com/athletic/5755279/2024/09/10/paul-mitchell-newcastle-future/
-
-**Red Sox rout Orioles to keep slim wild-card hopes alive**\
-`Despite their second-half struggles, the Red Sox are still in the wild-card race, and Monday's win moved them to three games back.`\
-https://nytimes.com/athletic/5757461/2024/09/10/red-sox-wild-card-race-orioles-win/
 
