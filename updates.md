@@ -1,3 +1,7 @@
+**After this weird summer, the 49ers' Week 1 vibes are tremendous**\
+`Trent Williams on holding together: "We've got great leaders in this locker room. And we've got people who follow the leadership."`\
+https://nytimes.com/athletic/5757510/2024/09/10/kawakami-week-1-49ers-vibes/
+
 **Late Night Observes ‘Debate Night Eve’**\
 `Jimmy Kimmel predicted Kamala Harris and Donald Trump will face questions “on all the big issues: the economy, immigration, electrocution, sharks.”`\
 https://nytimes.com/2024/09/10/arts/television/late-night-presidential-debate.html

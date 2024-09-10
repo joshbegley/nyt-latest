@@ -1,3 +1,7 @@
+**After this weird summer, the 49ers' Week 1 vibes are tremendous**\
+`Trent Williams on holding together: "We've got great leaders in this locker room. And we've got people who follow the leadership."`\
+https://nytimes.com/athletic/5757510/2024/09/10/kawakami-week-1-49ers-vibes/
+
 **Late Night Observes ‘Debate Night Eve’**\
 `Jimmy Kimmel predicted Kamala Harris and Donald Trump will face questions “on all the big issues: the economy, immigration, electrocution, sharks.”`\
 https://nytimes.com/2024/09/10/arts/television/late-night-presidential-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5757467/2024/09/10/yankees-jasson-dominguez-hype-un
 **Palace should not panic - Glasner's teams tend to start seasons slowly**\
 `A look back at Glasner's previous managerial stops suggests he rarely begins a season with a bang`\
 https://nytimes.com/athletic/5741160/2024/09/10/palace-glasner-start-slow/
-
-**How Sam Johnstone rose from EFL loans to England international - and now Wolves No 1**\
-`Johnstone was unwilling to settle for a place on the Palace bench and took the chance to join Wolves. This is his goalkeeping journey so far`\
-https://nytimes.com/athletic/5755734/2024/09/10/sam-johnstone-wolves-england/
 
