@@ -22,7 +22,7 @@ https://nytimes.com/athletic/5743782/2024/09/10/the-international-break-may-do-d
 `Each week Chris Waugh answers your Newcastle questions, and this week the focus was on the future of sporting director Paul Mitchell`\
 https://nytimes.com/athletic/5755279/2024/09/10/paul-mitchell-newcastle-future/
 
-**Red Sox rout Orioles in key win to keep slim wild card hopes alive: 'It's all about momentum'**\
+**Red Sox rout Orioles to keep slim wild-card hopes alive**\
 `Despite their second-half struggles, the Red Sox are still in the wild-card race, and Monday's win moved them to three games back.`\
 https://nytimes.com/athletic/5757461/2024/09/10/red-sox-wild-card-race-orioles-win/
 
