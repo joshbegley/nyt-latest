@@ -1,3 +1,11 @@
+**NHL expansion, LTIR, Russians in the Olympics and renaming the Lady Byng: Bill Daly talks**\
+`The NHL's deputy commissioner addressed many of the hottest topics around the league in a sit-down Tuesday in Vegas.`\
+https://nytimes.com/athletic/5758996/2024/09/10/nhl-expansion-ltir-russians/
+
+**Mauricio Pochettino appointed USMNT head coach**\
+`Pochettino immediately becomes the highest-profile manager in the history of the program.`\
+https://nytimes.com/athletic/5702396/2024/09/10/mauricio-pochettino-usmnt-head-coach-appointed/
+
 **Current and former Iowa, Iowa State athletes join gambling lawsuit**\
 `Eleven current and former Iowa and Iowa State athletes joined an earlier lawsuit alleging their rights were violated in a gambling sting.`\
 https://nytimes.com/athletic/5758984/2024/09/10/iowa-athletes-gambling-lawsuit-2/
