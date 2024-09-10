@@ -1,3 +1,7 @@
+**Tracking Tropical Depression Bebinca**\
+`See the likely path and wind arrival times for Bebinca.`\
+https://nytimes.com/interactive/2024/09/10/weather/bebinca-map-path-tracker.html
+
 **Longtime MoMA Director Will Step Down Next Year**\
 `After 30 years at the helm of the Museum of Modern Art in New York, Glenn Lowry will depart in September 2025.`\
 https://nytimes.com/2024/09/10/arts/design/glenn-lowry-moma-director.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/10/business/banks-basel-capital.html
 **The Windup: MLB's 5 hottest second-half teams**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5758308/2024/09/10/mlb-standings-diamondbacks-the-windup/
-
-**Inside the Funeral Home for New York’s Luminaries**\
-`Everybody dies. But not everybody is embalmed at Frank E. Campbell, a discreet mortuary on Manhattan’s Upper East Side.`\
-https://nytimes.com/2024/09/10/style/funeral-home-new-york-celebrities.html
 
