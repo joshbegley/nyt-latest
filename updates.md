@@ -1,3 +1,11 @@
+**Venezuelan Election Observers Forced Into Exile in Colombia**\
+`Volunteer election observers who collected vote tallies at precincts across Venezuela found that the opposition candidate Edmundo González had received more votes than President Nicolás Maduro did in July’s election.`\
+https://nytimes.com/2024/09/10/video/venezuelan-election-observers-exile-colombia.html
+
+**These Venezuelan Election Observers Got Death Threats. Now They’re in Hiding.**\
+`The New York Times spoke to several election volunteers for Venezuela’s opposition party who found that Edmundo Gonzáles defeated Nicolás Maduro in July. They fled the country after facing death threats from Maduro’s supporters.`\
+https://nytimes.com/video/world/americas/100000009647019/venezuelan-election-observers-exile-colombia.html
+
 **Australia Plans to Bar Young Children From Social Media**\
 `The government is considering setting a minimum age, between 14 and 16, for platforms like TikTok and Instagram.`\
 https://nytimes.com/2024/09/10/world/australia/social-media-age-restrictions.html
