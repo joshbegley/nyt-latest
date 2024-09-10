@@ -1,3 +1,11 @@
+**Fearing Israeli Strikes, Gaza School Shelters Try to Keep Gunmen Out**\
+`Residents, already forced to flee their homes by intense bombardment, want to avoid becoming a target for Israeli forces hunting Hamas.`\
+https://nytimes.com/2024/09/10/world/middleeast/airstrikes-gaza-school-shelters-hamas.html
+
+**Louisiana Prepares for Francine to Make Landfall as a Hurricane**\
+`Forecasters warned that cities along the Louisiana coast could see heavy rainfall and a “dangerous” storm surge.`\
+https://nytimes.com/2024/09/10/weather/tropical-storm-francine-louisiana-hurricane-preparation.html
+
 **Who's rising and falling in the College Football Playoff race after Week 2?**\
 `Why USC, Miami and Tennessee are on the rise and Michigan, Notre Dame and Oregon are on the decline in our Playoff projections.`\
 https://nytimes.com/athletic/5755975/2024/09/10/college-football-playoff-stock-watch/
