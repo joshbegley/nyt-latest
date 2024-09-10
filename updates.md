@@ -1,3 +1,11 @@
+**Why Trump Can Afford to Disrespect His Anti-Abortion Voters**\
+`The ex-president has remade the religious right in his image.`\
+https://nytimes.com/2024/09/09/opinion/trump-anti-abortion-evangelical.html
+
+**Where Kamala Harris and Donald Trump Stand on the Issues**\
+`Here’s what Vice President Harris and former President Donald J. Trump have done and want to do on abortion, democracy, the economy, immigration, Israel and Gaza, and Social Security and Medicare.`\
+https://nytimes.com/interactive/2024/us/politics/trump-harris-issues-election.html
+
 **Trump Steps Up Threats to Imprison Those He Sees as Foes**\
 `The former president is vowing to prosecute those he sees as working to deny him a victory, while laying the groundwork to claim large-scale voter fraud if he loses.`\
 https://nytimes.com/2024/09/09/us/politics/trump-prison-threats-opponents.html
