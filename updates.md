@@ -1,3 +1,15 @@
+**Celebrating Our Retirement System, and a Call to Action**\
+`Three recommendations to expand coverage to more Americans   `\
+https://nytimes.com/paidpost/t-rowe-price/t-rowe-price-30097745/celebrating-our-retirement-system-and-a-call-to-action.html
+
+**‘Flip-Flop’ or Evolution: Trump and Harris and Their Reversals on Issues**\
+`Kamala Harris has backed away from some progressive positions she took in the 2020 primaries. Donald Trump has changed his stripes on a host of issues big and small, sometimes repeatedly.`\
+https://nytimes.com/2024/09/10/us/politics/harris-trump-flip-flops.html
+
+**Two ABC News Anchors Will Steer the Harris-Trump Debate**\
+`The moderators, David Muir and Linsey Davis, have the difficult task of guiding a high-stakes encounter.`\
+https://nytimes.com/2024/09/10/business/media/debate-moderators-david-muir-linsey-davis.html
+
 **Those Keurig Coffee Pods? They’re Not So Recyclable, the S.E.C. Says.**\
 `The agency said Keurig, in its financial filings, had claimed its pods could be “effectively recycled” but didn’t note that two big recycling companies wouldn’t accept them.`\
 https://nytimes.com/2024/09/10/climate/kuerig-coffee-pod-sec-recycle.html

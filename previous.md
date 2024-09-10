@@ -1,3 +1,11 @@
+**Celebrating Our Retirement System, and a Call to Action**\
+`Three recommendations to expand coverage to more Americans   `\
+https://nytimes.com/paidpost/t-rowe-price/t-rowe-price-30097745/celebrating-our-retirement-system-and-a-call-to-action.html
+
+**‘Flip-Flop’ or Evolution: Trump and Harris and Their Reversals on Issues**\
+`Kamala Harris has backed away from some progressive positions she took in the 2020 primaries. Donald Trump has changed his stripes on a host of issues big and small, sometimes repeatedly.`\
+https://nytimes.com/2024/09/10/us/politics/harris-trump-flip-flops.html
+
 **Those Keurig Coffee Pods? They’re Not So Recyclable, the S.E.C. Says.**\
 `The agency said Keurig, in its financial filings, had claimed its pods could be “effectively recycled” but didn’t note that two big recycling companies wouldn’t accept them.`\
 https://nytimes.com/2024/09/10/climate/kuerig-coffee-pod-sec-recycle.html
@@ -6,8 +14,8 @@ https://nytimes.com/2024/09/10/climate/kuerig-coffee-pod-sec-recycle.html
 `Millions of Americans are waiting for her to earn their vote. Here’s how she can do that.`\
 https://nytimes.com/2024/09/10/opinion/chris-christie-trump-debate.html
 
-**Meet the moderators: Linsey Davis and David Muir of ABC News.**\
-`By Michael M. Grynbaum`\
+**Two ABC News Anchors Will Steer the Harris-Trump Debate**\
+`The moderators, David Muir and Linsey Davis, have the difficult task of guiding a high-stakes encounter.`\
 https://nytimes.com/2024/09/10/business/media/debate-moderators-david-muir-linsey-davis.html
 
 **Poverty Increased in 2023 as Prices Rose and Pandemic Aid Programs Expired**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5758632/2024/09/10/colorado-buffaloes-football-shil
 **Live Q&A: Week 2 fantasy football add/drop chat with Jay Felicio, Tuesday 9/10 at 5 p.m. ET**\
 `Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
 https://nytimes.com/athletic/5758387/2024/09/10/live-qa-week-2-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-9-10-at-5-p-m-et/
-
-**Market share report: Tank Bigsby, Allen Lazard among top Week 2 waiver wire targets**\
-`Michael Salfino runs the Week 1 workload numbers with an eye on this week's waiver wire targets, which includes Jacksonville's Tank Bigsby.`\
-https://nytimes.com/athletic/5758687/2024/09/10/fantasy-football-targets-touches-week-1-bigsby-lazard/
-
-**Kamala Harris Visited a Spice Shop. Her Critics Flooded Yelp With Bad Reviews.**\
-`Penzeys, a chain of spice stores in more than 20 states, has frequently criticized Republicans.`\
-https://nytimes.com/2024/09/10/us/politics/penzeys-spices-kamala-harris.html
 
