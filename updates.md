@@ -1,3 +1,7 @@
+**The Briefing: England 2 Finland 0 - Kane marks a century of caps with two goals as Alexander-Arnold shines again**\
+`Our writers break down the main talking points from Tuesday evening's game at Wembley`\
+https://nytimes.com/athletic/5757755/2024/09/10/england-finland-result-analysis/
+
 **Kim Kardashian, Katy Perry and Lindsay Lohan in Their Fashion Week Best**\
 `At a gala and auction in Midtown, the Kering Foundation drew one of the starriest crowds of New York Fashion Week.`\
 https://nytimes.com/2024/09/10/style/nyfw-lindsay-lohan-kim-k-matthew-mcconaughey.html

@@ -1,3 +1,7 @@
+**The Briefing: England 2 Finland 0 - Kane marks a century of caps with two goals as Alexander-Arnold shines again**\
+`Our writers break down the main talking points from Tuesday evening's game at Wembley`\
+https://nytimes.com/athletic/5757755/2024/09/10/england-finland-result-analysis/
+
 **Kim Kardashian, Katy Perry and Lindsay Lohan in Their Fashion Week Best**\
 `At a gala and auction in Midtown, the Kering Foundation drew one of the starriest crowds of New York Fashion Week.`\
 https://nytimes.com/2024/09/10/style/nyfw-lindsay-lohan-kim-k-matthew-mcconaughey.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5758717/2024/09/10/kyle-larson-to-try-indy-500-nasc
 **Missouri High Court Restores Abortion Measure to Ballot**\
 `The court ruled hours before the state’s deadline for printing ballots for absentee voters.`\
 https://nytimes.com/2024/09/10/us/missouri-abortion-ballot.html
-
-**Colorado safety Shilo Sanders to miss 2-3 weeks with arm injury**\
-`Deion Sanders also disputed a report that he asked the Colorado band to play Shedeur's song instead of the fight song when Shedeur scores.`\
-https://nytimes.com/athletic/5758632/2024/09/10/colorado-buffaloes-football-shilo-sanders-injury-shedeur-deion/
 
