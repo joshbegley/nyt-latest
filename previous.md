@@ -4,7 +4,7 @@ https://nytimes.com/2024/09/10/us/politics/penzeys-spices-kamala-harris.html
 
 **3 Questions: When Women Kill Their Abusers**\
 `It costs money to do this kind of research, and no one wants to fund it.`\
-https://nytimes.com/live/2024/09/03/opinion/thepoint/3-questions-when-women-kill-their-abusers
+https://nytimes.com/live/2024/09/03/opinion/thepoint/women-domestic-abuse
 
 **The Mirage of $2 Gas**\
 `Trump is promising something he can’t possibly deliver.`\

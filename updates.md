@@ -1,3 +1,7 @@
+**3 Questions: When Women Kill Their Abusers**\
+`It costs money to do this kind of research, and no one wants to fund it.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/women-domestic-abuse
+
 **Kamala Harris Visited a Spice Shop. Her Critics Flooded Yelp With Bad Reviews.**\
 `Penzeys, a chain of spice stores in more than 20 states, has frequently criticized Republicans.`\
 https://nytimes.com/2024/09/10/us/politics/penzeys-spices-kamala-harris.html
