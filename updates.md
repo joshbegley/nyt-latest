@@ -1,3 +1,23 @@
+**How False Claims About Dead Cats Became Trump Campaign Fodder**\
+`Falsehoods claiming migrants in Ohio are killing cats and decapitating ducks went viral this week. The Trump campaign embraced them.`\
+https://nytimes.com/2024/09/10/technology/trump-dead-cats-migrants-ohio.html
+
+**Colts place starting JuJu Brents on IR due to MCL injury**\
+`Brents will miss at least the next four games and possibly the rest of his second NFL campaign.`\
+https://nytimes.com/athletic/5758812/2024/09/10/colts-juju-brents-injured-reserve-updates/
+
+**Adam Silver talks media rights deal, expansion at board of governors meeting**\
+`“There is no specific plan right now about Europe other than we’re agreeing to look intensively at the opportunity," Silver said Tuesday.`\
+https://nytimes.com/athletic/5758737/2024/09/10/adam-silver-media-rights-expansion-board-of-governors-meeting/
+
+**The Internet Spent Years Searching for Her. She Had No Idea.**\
+`A mysterious woman came to be known on Reddit as Celebrity Number Six. She told us she is not sure how to feel about the sudden crush of attention.`\
+https://nytimes.com/2024/09/10/style/celebrity-six-leticia-sarda-reddit.html
+
+**Matt Damon, Robert De Niro, Oprah and other celebrities pitch in for Harris.**\
+`By Theodore Schleifer`\
+https://nytimes.com/2024/09/10/us/politics/matt-damon-oprah-kamala-harris-celebrities.html
+
 **Why CFB is uniquely perfect, plus another new 134**\
 `Welcome to Until Saturday, the five-star college football newsletter: We got another example of why we love college football on Saturday.`\
 https://nytimes.com/athletic/5757916/2024/09/10/college-football-northern-illinois-until-saturday/
