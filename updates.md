@@ -1,3 +1,11 @@
+**Love on Aisle 9? A TikTok Fad Fills Grocery Stores With Singles**\
+`How the Spanish grocery chain Mercadona got a reputation as an unlikely dating hub, with its upside-down pineapples as props.`\
+https://nytimes.com/2024/09/10/world/europe/spain-pineapples-tiktok-dating-mercadona.html
+
+**Johnson’s Spending Plan Falters, Facing Resistance From Both Parties**\
+`The speaker’s first effort to avert a government shutdown ran into a buzz saw of opposition from both far-right and mainstream Republicans.`\
+https://nytimes.com/2024/09/10/us/politics/johnson-spending-bill-republicans.html
+
 **Harris Economic Plan Focuses on Prices, a Key Vulnerability**\
 `Vice President Kamala Harris has been balancing the challenges of defending “Bidenomics” and charting her own course on the economy.`\
 https://nytimes.com/2024/09/10/us/politics/kamala-harris-economy-prices.html

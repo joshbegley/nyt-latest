@@ -1,3 +1,11 @@
+**Love on Aisle 9? A TikTok Fad Fills Grocery Stores With Singles**\
+`How the Spanish grocery chain Mercadona got a reputation as an unlikely dating hub, with its upside-down pineapples as props.`\
+https://nytimes.com/2024/09/10/world/europe/spain-pineapples-tiktok-dating-mercadona.html
+
+**Johnson’s Spending Plan Falters, Facing Resistance From Both Parties**\
+`The speaker’s first effort to avert a government shutdown ran into a buzz saw of opposition from both far-right and mainstream Republicans.`\
+https://nytimes.com/2024/09/10/us/politics/johnson-spending-bill-republicans.html
+
 **Harris Economic Plan Focuses on Prices, a Key Vulnerability**\
 `Vice President Kamala Harris has been balancing the challenges of defending “Bidenomics” and charting her own course on the economy.`\
 https://nytimes.com/2024/09/10/us/politics/kamala-harris-economy-prices.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/10/us/california-line-airport-wildfires-spreading.ht
 **U.S., Vowing Sanctions, Accuses Iran of Sending Missiles to Russia**\
 `Secretary of State Antony J. Blinken made the announcement in London, where his British counterpart also promised more penalties on Iran. They plan to visit Ukraine together.`\
 https://nytimes.com/2024/09/10/world/europe/us-iran-russia-missiles-sanctions.html
-
-**The Rules for the Harris-Trump Presidential Debate on ABC**\
-`The campaigns agreed to the same guidelines that were used in June, when former President Donald J. Trump and President Biden faced off.`\
-https://nytimes.com/2024/09/10/us/politics/debate-rules-harris-trump-microphone-audience.html
-
-**Here’s what to know about the fires.**\
-`By Soumya Karlamangla, Isabelle Taft and Vik Jolly`\
-https://nytimes.com/live/2024/09/10/us/california-wildfires-line-airport/heres-what-to-know-about-the-fires
 
