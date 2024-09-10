@@ -1,3 +1,7 @@
+**Gomes to make first England start against Finland**\
+`Angel Gomes will make his first start for England in the Nations League game with Finland on Tuesday night.`\
+https://nytimes.com/athletic/5757633/2024/09/10/england-finland-team-news-angel-gomes/
+
 **New details of hostages’ dire conditions emerge, as families warn of ‘grave danger.’**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/09/10/world/israel-hamas-gaza-war/new-details-of-hostages-dire-conditions-emerge-as-families-warn-of-grave-danger
