@@ -1,11 +1,3 @@
-**NHL expansion, LTIR, Russians in the Olympics and renaming the Lady Byng: Bill Daly talks**\
-`The NHL's deputy commissioner addressed many of the hottest topics around the league in a sit-down Tuesday in Vegas.`\
-https://nytimes.com/athletic/5758996/2024/09/10/nhl-expansion-ltir-russians/
-
-**Mauricio Pochettino appointed USMNT head coach**\
-`Pochettino immediately becomes the highest-profile manager in the history of the program.`\
-https://nytimes.com/athletic/5702396/2024/09/10/mauricio-pochettino-usmnt-head-coach-appointed/
-
 **Current and former Iowa, Iowa State athletes join gambling lawsuit**\
 `Eleven current and former Iowa and Iowa State athletes joined an earlier lawsuit alleging their rights were violated in a gambling sting.`\
 https://nytimes.com/athletic/5758984/2024/09/10/iowa-athletes-gambling-lawsuit-2/
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/5758913/2024/09/10/christian-mccaffrey-49ers-injury
 **Was James Earl Jones an EGOT Winner? It’s Complicated.**\
 `The actor won just about every award he could — but his Oscar was an honorary one. Is that enough for an EGOT?`\
 https://nytimes.com/2024/09/10/movies/james-earl-jones-egot.html
+
+**Trump Is Provoking a Congressional Fight He Can’t Win**\
+`Most Republicans don’t want a government shutdown right before the election.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/trump-shutdown-voting-citizenship
+
+**Tonight’s Debate Will Focus on Defining Kamala Harris**\
+`Also, Louisiana is bracing for Francine. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2024/09/10/briefing/debate-night-harris-trump-tropical-storm-louisiana.html
 
