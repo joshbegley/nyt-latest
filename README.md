@@ -1,3 +1,11 @@
+**Longtime MoMA Director Will Step Down Next Year**\
+`After 30 years at the helm of the Museum of Modern Art in New York, Glenn Lowry will depart in September 2025.`\
+https://nytimes.com/2024/09/10/arts/design/glenn-lowry-moma-director.html
+
+**How to Protect Yourself From Wildfire Smoke**\
+`Monitor air quality, prepare to stay inside and pay close attention to people with chronic conditions.`\
+https://nytimes.com/2024/09/10/well/wildfire-smoke-health.html
+
 **Here Are the Key Debate Attacks to Expect. Hint: It May Get Personal.**\
 `Donald Trump and Kamala Harris have never met, and may not meet again onstage during this campaign. Tonight they have a huge, fleeting spotlight to change how voters see their rival.`\
 https://nytimes.com/2024/09/10/us/politics/trump-harris-debate-attack-lines.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5758308/2024/09/10/mlb-standings-diamondbacks-the-w
 **Inside the Funeral Home for New York’s Luminaries**\
 `Everybody dies. But not everybody is embalmed at Frank E. Campbell, a discreet mortuary on Manhattan’s Upper East Side.`\
 https://nytimes.com/2024/09/10/style/funeral-home-new-york-celebrities.html
-
-**Tortellini to the Rescue**\
-`Ali Slagle’s tortellini with prosciutto and peas turns a refrigerated staple into a surprisingly luxurious one-pan dinner.`\
-https://nytimes.com/2024/09/10/dining/tortellini-to-the-rescue.html
-
-**Lincoln Center Theater Chooses Lear deBessonet as Artistic Director**\
-`DeBessonet, currently the artistic director of Encores!, will work alongside Bartlett Sher, who will serve as executive producer.`\
-https://nytimes.com/2024/09/10/theater/lincoln-center-theater-debessonet-artistic-director.html
 
