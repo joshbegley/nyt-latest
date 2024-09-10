@@ -1,3 +1,15 @@
+**Tortellini to the Rescue**\
+`Ali Slagle’s tortellini with prosciutto and peas turns a refrigerated staple into a surprisingly luxurious one-pan dinner.`\
+https://nytimes.com/2024/09/10/dining/tortellini-to-the-rescue.html
+
+**Lincoln Center Theater Chooses Lear deBessonet as Artistic Director**\
+`DeBessonet, currently the artistic director of Encores!, will work alongside Bartlett Sher, who will serve as executive producer.`\
+https://nytimes.com/2024/09/10/theater/lincoln-center-theater-debessonet-artistic-director.html
+
+**Was It Written by ChatGPT, or by a Novelist?**\
+`Three readers could pick the story written by Curtis Sittenfeld; another calls the experiment unfair. Also: Afghan women; athletes and crowds; pro-union workers.`\
+https://nytimes.com/2024/09/10/opinion/chatgpt-curtis-sittenfeld.html
+
 **5 Climate Questions for the Candidates Ahead of the Presidential Debate**\
 `Here’s what the Times climate team would ask Harris and Trump about climate change, energy policy and the environment.`\
 https://nytimes.com/2024/09/10/climate/harris-trump-debate-climate-change-questions.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/10/world/europe/spain-pineapples-tiktok-dating-merca
 **Johnson’s Spending Plan Falters, Facing Resistance From Both Parties**\
 `The speaker’s first effort to avert a government shutdown ran into a buzz saw of opposition from both far-right and mainstream Republicans.`\
 https://nytimes.com/2024/09/10/us/politics/johnson-spending-bill-republicans.html
-
-**Harris Economic Plan Focuses on Prices, a Key Vulnerability**\
-`Vice President Kamala Harris has been balancing the challenges of defending “Bidenomics” and charting her own course on the economy.`\
-https://nytimes.com/2024/09/10/us/politics/kamala-harris-economy-prices.html
-
-**Scoop City: Week 2 fantasy advice**\
-`Scoop City is The Athletic&#8217;s daily NFL newsletter.`\
-https://nytimes.com/athletic/5758155/2024/09/10/fantasy-football-week-2-waivers-scoop-city/
-
-**Villa defend 'difficult decisions' on Champions League ticket prices**\
-`Aston Villa have defended the cost of Champions League tickets after general admission for the club&#8217;s home opener against Bayern Munich sold out on Monday.`\
-https://nytimes.com/athletic/5758083/2024/09/10/aston-villa-ticket-prices-champions-league/
 
