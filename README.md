@@ -14,7 +14,7 @@ https://nytimes.com/2024/09/10/learning/word-of-the-day-impunity.html
 `Shayna Goldman explores the biggest discrepancies between The Athletic's fantasy hockey projections and NHL.com's pre-draft rankings.`\
 https://nytimes.com/athletic/5753643/2024/09/10/fantasy-hockey-trends-draft-kit-projections-vs-nhl/
 
-**1 Person Killed in Ukrainian Drone Strike Near Moscow, Russia Says**\
+**1 Person Killed in Ukrainian Drone Attack Near Moscow, Russia Says**\
 `Russia’s air defense system shot down 20 drones in the region, the country’s defense ministry said.`\
 https://nytimes.com/2024/09/10/world/europe/russia-moscow-drone-strike-ukraine.html
 
