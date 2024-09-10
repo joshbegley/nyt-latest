@@ -1,3 +1,7 @@
+**Killing of Tanzanian Opposition Official Adds to Fears of Pre-Election Crackdown**\
+`Ali Mohamed Kibao was beaten and acid had been poured on his face, according to an autopsy, his party said.`\
+https://nytimes.com/2024/09/10/world/africa/tanzania-opposition-official-killed.html
+
 **Gomes to make first England start against Finland**\
 `Angel Gomes will make his first start for England in the Nations League game with Finland on Tuesday night.`\
 https://nytimes.com/athletic/5757633/2024/09/10/england-finland-team-news-angel-gomes/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/10/style/apple-picking-tips.html
 **Almost 50 Million Americans Have Had an Obamacare Plan Since 2014**\
 `The Biden administration released data showing roughly one in seven U.S. residents had been covered by the Affordable Care Act at some point over the past decade.`\
 https://nytimes.com/2024/09/10/us/politics/affordable-care-act-marketplaces-enrollment.html
-
-**Raheem Morris: Kirk Cousins is healthy but season-opener in Atlanta "wasn't good enough"**\
-`The Falcons offense failed them in Sunday's 18-10 loss to the Steelers, coach Raheem Morris said.`\
-https://nytimes.com/athletic/5756871/2024/09/10/kirk-cousins-healthy-falcons-opener/
 
