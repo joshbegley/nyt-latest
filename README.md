@@ -1,3 +1,7 @@
+**Missouri High Court Restores Abortion Measure to Ballot**\
+`The court ruled hours before the state’s deadline for printing ballots for absentee voters.`\
+https://nytimes.com/2024/09/10/us/missouri-abortion-ballot.html
+
 **Colorado safety Shilo Sanders to miss 2-3 weeks with arm injury**\
 `Deion Sanders also disputed a report that he asked the Colorado band to play Shedeur's song instead of the fight song when Shedeur scores.`\
 https://nytimes.com/athletic/5758632/2024/09/10/colorado-buffaloes-football-shilo-sanders-injury-shedeur-deion/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5758593/2024/09/10/brock-purdy-49ers-aaron-rodgers-
 **A.I. Wants Your Job… to Be Simpler, Faster and More Satisfying**\
 `Can artificial intelligence help make hiring a more human experience?`\
 https://nytimes.com/paidpost/indeed/ai-wants-your-job-to-be-simpler-faster-and-more-satisfying.html
-
-**Harris’s challenge: Pushing ahead without leaving Biden behind.**\
-`By Katie Rogers and Erica L. Green`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/harriss-challenge-pushing-ahead-without-leaving-biden-behind
 
