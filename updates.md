@@ -1,3 +1,7 @@
+**Nebraska adds LB Christian Jones, No. 1 prospect in state, to 2025 class**\
+`Jones picked Nebraska over Oklahoma and counted offers from USC, Auburn, Iowa, Notre Dame and others.`\
+https://nytimes.com/athletic/5757208/2024/09/09/nebraska-college-football-recruiting-christian-jones/
+
 **Conservative German Princess Says She Hosted Justice Alito at Her Castle**\
 `Princess Gloria von Thurn und Taxis said Justice Alito and his wife were guests at St. Emmeram Palace for a summer music festival. She called the couple her “friends” and the justice “a hero.”`\
 https://nytimes.com/2024/09/09/us/politics/german-princess-alito-castle-visit.html
