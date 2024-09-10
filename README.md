@@ -1,3 +1,11 @@
+**SpaceX Launches Polaris Dawn Private Spaceflight Mission**\
+`Polaris Dawn successfully launched Tuesday morning with four nonprofessional astronauts on board.`\
+https://nytimes.com/video/us/100000009682839/spacex-launches-polaris-dawn.html
+
+**Trump Mocks Harris’s Height. But Her Fans See a Certain Stature.**\
+`Kamala Harris is modest in stature, but is considered by some to have Tall Energy. Donald Trump has insisted she shouldn’t be allowed to use “boxes or artificial lifts” during the debate.`\
+https://nytimes.com/2024/09/10/style/kamala-harris-height-debate.html
+
 **The Athletic FC: In search of 'seal dribbler', Odegaard injury, Gibraltar - a political football**\
 `The Athletic FC  is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox`\
 https://nytimes.com/athletic/5757696/2024/09/10/in-search-of-seal-dribbler-odegaard-injury-and-gibraltar-a-political-football/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/10/briefing/donald-trump-2024-election.html
 **Astros takeaways: Full strength lineup, Framber Valdez's Cy Young Award case and more**\
 `Plus a look at how Houston's defensive metrics might influence who'll they'll target in the offseason.`\
 https://nytimes.com/athletic/5756716/2024/09/10/astros-framber-valdez-cy-young-case/
-
-**With Jordan Addison’s availability uncertain, Vikings need Jalen Nailor more than ever**\
-`With Addison dealing with an ankle injury, Nailor will likely play a key role for the Vikings offense Sunday against the 49ers.`\
-https://nytimes.com/athletic/5756812/2024/09/10/vikings-jordan-addison-jalen-nailor/
-
-**Darrell Taylor's instant impact, Caleb Williams' missed throws: Bears Week 1 takeaways**\
-`The Bears' rotation at left guard isn't ideal, Shane Waldron deserves some blame for the offensive flop and T.J. Edwards continued to shine.`\
-https://nytimes.com/athletic/5756674/2024/09/10/bears-darrell-taylor-caleb-williams-nfl-week-1/
 
