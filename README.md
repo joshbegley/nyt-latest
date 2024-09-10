@@ -1,3 +1,11 @@
+**Kamala Harris Visited a Spice Shop. Her Critics Flooded Yelp With Bad Reviews.**\
+`Penzeys, a chain of spice stores in more than 20 states, has frequently criticized Republicans.`\
+https://nytimes.com/2024/09/10/us/politics/penzeys-spices-kamala-harris.html
+
+**3 Questions: When Women Kill Their Abusers**\
+`It costs money to do this kind of research, and no one wants to fund it.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/3-questions-when-women-kill-their-abusers
+
 **The Mirage of $2 Gas**\
 `Trump is promising something he can’t possibly deliver.`\
 https://nytimes.com/2024/09/10/opinion/trump-gas-prices.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/10/world/europe/white-house-china-doping-wada.html
 **The Israeli military details the brutal conditions six hostages endured before they were killed in a tunnel.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/09/10/world/israel-hamas-gaza-war/the-israeli-military-details-the-brutal-conditions-six-hostages-endured-before-they-were-killed-in-a-tunnel
-
-**2,000-Pound Bombs Likely Used in Mawasi Strike**\
-`The large size of the two craters left in the aftermath of the attack suggest that Israel used the powerful bombs, according to experts and a New York Times analysis.`\
-https://nytimes.com/2024/09/10/world/middleeast/israel-strike-mawasi-bombs.html
-
-**Readers Pick Their Song of the Summer**\
-`You sent in an eclectic mix of tracks from Chappell Roan, Bad Bunny, Lawrence and more.`\
-https://nytimes.com/2024/09/10/arts/music/amplifier-newsletter-chappell-roan-summer.html
 
