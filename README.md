@@ -1,3 +1,7 @@
+**Word of the Day: impunity**\
+`This word has appeared in 256 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/09/10/learning/word-of-the-day-impunity.html
+
 **Fantasy trends and hidden gems: Our projections vs. NHL.com's pre-draft rankings**\
 `Shayna Goldman explores the biggest discrepancies between The Athletic's fantasy hockey projections and NHL.com's pre-draft rankings.`\
 https://nytimes.com/athletic/5753643/2024/09/10/fantasy-hockey-trends-draft-kit-projections-vs-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5749827/2024/09/10/victor-obinna-interview-west-ham
 **Brighton's new loans strategy is a sign of the club's rapid progress**\
 `The loan of Facundo Buonanotte – a regular last season – to Leicester shows a shift in policy for Brighton. Here's what it means...`\
 https://nytimes.com/athletic/5746965/2024/09/10/brighton-loans-strategy/
-
-**The international break may do Farke some good**\
-`What Leeds players are up to during international break - those on duty with their countries and those left behind`\
-https://nytimes.com/athletic/5743782/2024/09/10/the-international-break-may-do-daniel-farke-and-leeds-some-good/
 
