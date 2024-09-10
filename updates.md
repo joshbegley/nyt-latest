@@ -1,3 +1,7 @@
+**Polio Vaccinations Begin in Northern Gaza After Israel Detained U.N. Convoy**\
+`The U.N. said that Israeli forces held staff members for more than eight hours. The Israeli military said that it had intelligence suggesting there were “Palestinian suspects” with the convoy and stopped them for questioning.`\
+https://nytimes.com/2024/09/10/world/middleeast/gaza-polio-vaccinations-un.html
+
 **Fearing Israeli Strikes, Gaza School Shelters Try to Keep Gunmen Out**\
 `Residents, already forced to flee their homes by intense bombardment, want to avoid becoming a target for Israeli forces hunting Hamas.`\
 https://nytimes.com/2024/09/10/world/middleeast/airstrikes-gaza-school-shelters-hamas.html

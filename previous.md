@@ -1,3 +1,7 @@
+**Polio Vaccinations Begin in Northern Gaza After Israel Detained U.N. Convoy**\
+`The U.N. said that Israeli forces held staff members for more than eight hours. The Israeli military said that it had intelligence suggesting there were “Palestinian suspects” with the convoy and stopped them for questioning.`\
+https://nytimes.com/2024/09/10/world/middleeast/gaza-polio-vaccinations-un.html
+
 **Fearing Israeli Strikes, Gaza School Shelters Try to Keep Gunmen Out**\
 `Residents, already forced to flee their homes by intense bombardment, want to avoid becoming a target for Israeli forces hunting Hamas.`\
 https://nytimes.com/2024/09/10/world/middleeast/airstrikes-gaza-school-shelters-hamas.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/10/opinion/trump-speech-debate-rally.html
 **How Joey Votto knew it was time — 'I'm expired' — and what he thinks could be next**\
 `Votto described in vivid detail how it feels to be an aging athlete who finally understands he has no paths left to travel back to glory.`\
 https://nytimes.com/athletic/5757187/2024/09/10/joey-votto-retires-whats-next/
-
-**What Polls Say About a Key Group: Begrudging Trump Voters**\
-`In Tuesday’s debate, the vice president needs to win over this slice of the electorate.`\
-https://nytimes.com/2024/09/10/opinion/harris-trump-debate-polls.html
 
