@@ -1,3 +1,7 @@
+**Kim Kardashian, Katy Perry and Lindsay Lohan in Their Fashion Week Best**\
+`At a gala and auction in Midtown, the Kering Foundation drew one of the starriest crowds of New York Fashion Week.`\
+https://nytimes.com/2024/09/10/style/nyfw-lindsay-lohan-kim-k-matthew-mcconaughey.html
+
 **Celebrating Our Retirement System, and a Call to Action**\
 `Three recommendations to expand coverage to more Americans   `\
 https://nytimes.com/paidpost/t-rowe-price/t-rowe-price-30097745/celebrating-our-retirement-system-and-a-call-to-action.html

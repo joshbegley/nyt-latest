@@ -1,3 +1,7 @@
+**Kim Kardashian, Katy Perry and Lindsay Lohan in Their Fashion Week Best**\
+`At a gala and auction in Midtown, the Kering Foundation drew one of the starriest crowds of New York Fashion Week.`\
+https://nytimes.com/2024/09/10/style/nyfw-lindsay-lohan-kim-k-matthew-mcconaughey.html
+
 **Celebrating Our Retirement System, and a Call to Action**\
 `Three recommendations to expand coverage to more Americans   `\
 https://nytimes.com/paidpost/t-rowe-price/t-rowe-price-30097745/celebrating-our-retirement-system-and-a-call-to-action.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/10/us/missouri-abortion-ballot.html
 **Colorado safety Shilo Sanders to miss 2-3 weeks with arm injury**\
 `Deion Sanders also disputed a report that he asked the Colorado band to play Shedeur's song instead of the fight song when Shedeur scores.`\
 https://nytimes.com/athletic/5758632/2024/09/10/colorado-buffaloes-football-shilo-sanders-injury-shedeur-deion/
-
-**Live Q&A: Week 2 fantasy football add/drop chat with Jay Felicio, Tuesday 9/10 at 5 p.m. ET**\
-`Ask Jay Felicio your add/drop questions in a Tuesday chat, exclusively for The Athletic subscribers.`\
-https://nytimes.com/athletic/5758387/2024/09/10/live-qa-week-2-fantasy-football-add-drop-chat-with-jay-felicio-tuesday-9-10-at-5-p-m-et/
 
