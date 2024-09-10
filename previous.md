@@ -1,3 +1,7 @@
+**Blue Jays takeaways: Bo Bichette nears his return; John Gibbons visits with Mets**\
+`A pivotal offseason for the Blue Jays picked up even more urgency, as Bichette indicated his desire to stay with the team longterm.`\
+https://nytimes.com/athletic/5757195/2024/09/09/blue-jays-takeaways-bo-bichette-return-john-gibbons-reunion/
+
 **Man Dies During River Trip in the Grand Canyon**\
 `His death is the seventh reported in Grand Canyon National Park since July 31.`\
 https://nytimes.com/2024/09/09/us/grand-canyon-death-hiker.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/09/weather/gulf-temperatures-francine.html
 **Wildfire Erupts in Orange County, Forcing Evacuations**\
 `A small brush fire in Southern California quickly grew into a nearly 2,000-acre blaze, threatening nearby suburban neighborhoods.`\
 https://nytimes.com/2024/09/09/us/wildfire-orange-county-evacuations.html
-
-**City Hall Seeks New York Police Commissioner’s Resignation**\
-`Edward Caban has faced increasing pressure since last week, when federal agents searched the homes of top officials in the Adams administration and confiscated electronic devices.`\
-https://nytimes.com/2024/09/09/nyregion/caban-nypd-police-commissioner-resign.html
 

@@ -1,3 +1,7 @@
+**Blue Jays takeaways: Bo Bichette nears his return; John Gibbons visits with Mets**\
+`A pivotal offseason for the Blue Jays picked up even more urgency, as Bichette indicated his desire to stay with the team longterm.`\
+https://nytimes.com/athletic/5757195/2024/09/09/blue-jays-takeaways-bo-bichette-return-john-gibbons-reunion/
+
 **Man Dies During River Trip in the Grand Canyon**\
 `His death is the seventh reported in Grand Canyon National Park since July 31.`\
 https://nytimes.com/2024/09/09/us/grand-canyon-death-hiker.html
