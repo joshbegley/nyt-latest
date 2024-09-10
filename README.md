@@ -1,3 +1,7 @@
+**Aaron Rodgers is back, but loss to 49ers a reminder the Jets have a long way to go**\
+`Surprisingly, the defense was the issue in a Monday night loss at San Francisco.`\
+https://nytimes.com/athletic/5757564/2024/09/10/aaron-rodgers-return-monday-night-football-jets-loss-49ers/
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/09/10/crosswords/spelling-bee-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5753643/2024/09/10/fantasy-hockey-trends-draft-kit-
 **1 Person Killed in Ukrainian Drone Attack Near Moscow, Russia Says**\
 `Russia’s air defense system shot down 20 drones in the region, the country’s defense ministry said.`\
 https://nytimes.com/2024/09/10/world/europe/russia-moscow-drone-strike-ukraine.html
-
-**‘It’s Not Pandering When You Tell the Truth’: Five Columnists Game Out the Debate**\
-`What does success or failure look like for Donald Trump and Kamala Harris in Tuesday’s debate?`\
-https://nytimes.com/2024/09/10/opinion/trump-harris-debate.html
 
