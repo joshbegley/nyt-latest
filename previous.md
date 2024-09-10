@@ -1,5 +1,5 @@
 **Why Jasson Domínguez hype brings some uncertainty**\
-`The Yankees called up Domínguez on Monday, and manager Aaron Boone said their top overall prospect will play "a lot."`\
+`The Yankees called up Domínguez on Monday, and manager Aaron Boone said their top prospect will play "a lot."`\
 https://nytimes.com/athletic/5757467/2024/09/10/yankees-jasson-dominguez-hype-uncertainty/
 
 **Palace should not panic - Glasner's teams tend to start seasons slowly**\
