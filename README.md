@@ -1,3 +1,11 @@
+**Why Trump Can Afford to Disrespect His Anti-Abortion Voters**\
+`The ex-president has remade the religious right in his image.`\
+https://nytimes.com/2024/09/09/opinion/trump-anti-abortion-evangelical.html
+
+**Where Kamala Harris and Donald Trump Stand on the Issues**\
+`Here’s what Vice President Harris and former President Donald J. Trump have done and want to do on abortion, democracy, the economy, immigration, Israel and Gaza, and Social Security and Medicare.`\
+https://nytimes.com/interactive/2024/us/politics/trump-harris-issues-election.html
+
 **Trump Steps Up Threats to Imprison Those He Sees as Foes**\
 `The former president is vowing to prosecute those he sees as working to deny him a victory, while laying the groundwork to claim large-scale voter fraud if he loses.`\
 https://nytimes.com/2024/09/09/us/politics/trump-prison-threats-opponents.html
@@ -25,12 +33,4 @@ https://nytimes.com/2024/09/09/us/terrorgram-collective-white-supremacists-charg
 **Carlos Correa 'very encouraged' by recent progress, hints return to field could come soon**\
 `The Twins' shortstop recently started getting a different type of treatment for his plantar fasciitis, and he's pleased with the results.`\
 https://nytimes.com/athletic/5756944/2024/09/09/twins-carlos-correa-return-soon/
-
-**I Rewatched the Trump-Clinton Debates So You Don’t Have to**\
-`In 2016, Trump used sexist attacks to turn his opponent’s perceived strengths into weaknesses.`\
-https://nytimes.com/2024/09/09/us/politics/debate-trump-clinton-harris.html
-
-**White House Says G.O.P.’s Afghanistan Report Offers ‘Little or Nothing New’**\
-`President Biden’s spokesman denounced the House Republican investigation of the chaotic 2021 withdrawal as partisan and one-sided.`\
-https://nytimes.com/2024/09/09/us/politics/afghanistan-report.html
 
