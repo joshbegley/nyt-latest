@@ -1,3 +1,7 @@
+**Southwest Airlines Agrees to Board Changes After Pressure From Elliott**\
+`The airline has been under pressure from the hedge fund Elliott to replace its top management and make other changes to increase its profits.`\
+https://nytimes.com/2024/09/10/business/southwest-airlines-board-elliott-management.html
+
 **Art Institute of Chicago Receives $75 Million Gift**\
 `The donation from Aaron I. Fleischman and Lin Lougheed will support the museum’s new galleries.`\
 https://nytimes.com/2024/09/10/arts/art-institute-of-chicago-fleischman-lougheed-gift.html

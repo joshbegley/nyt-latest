@@ -1,3 +1,7 @@
+**Southwest Airlines Agrees to Board Changes After Pressure From Elliott**\
+`The airline has been under pressure from the hedge fund Elliott to replace its top management and make other changes to increase its profits.`\
+https://nytimes.com/2024/09/10/business/southwest-airlines-board-elliott-management.html
+
 **Art Institute of Chicago Receives $75 Million Gift**\
 `The donation from Aaron I. Fleischman and Lin Lougheed will support the museum’s new galleries.`\
 https://nytimes.com/2024/09/10/arts/art-institute-of-chicago-fleischman-lougheed-gift.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5757899/2024/09/10/bulls-questions-2024-25-nba-seas
 **Tuesday's MLB odds, best bets: Projections for pitching matchups, playoffs and more**\
 `See pitching matchups, playoff projections, win projections and more for Tuesday's MLB games.`\
 https://nytimes.com/athletic/5758125/2024/09/10/mlb-odds-best-bets-projections-september-10/
-
-**Husband on Trial in Rape and Drugging Case in France Is Taken to Hospital**\
-`Dominique Pelicot, 71, was due to testify on Tuesday over charges he invited dozens of men to his home to abuse his wife, Gisèle Pelicot. His condition was not immediately clear.`\
-https://nytimes.com/2024/09/10/world/europe/dominique-pelicot-france-rape-hospital.html
 
