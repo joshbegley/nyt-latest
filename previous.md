@@ -1,3 +1,7 @@
+**Israel Strikes Humanitarian Area in Gaza**\
+`The attack left a large crater in Al-Mawasi, where tens of thousands of displaced Gazans have been staying.`\
+https://nytimes.com/video/world/middleeast/100000009682695/israel-mawasi-gaza-strike.html
+
 **After this weird summer, the 49ers' Week 1 vibes are tremendous**\
 `Trent Williams on holding together: "We've got great leaders in this locker room. And we've got people who follow the leadership."`\
 https://nytimes.com/athletic/5757510/2024/09/10/kawakami-week-1-49ers-vibes/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/10/business/huawei-trifold-iphone.html
 **Why Jasson Domínguez hype brings some uncertainty**\
 `The Yankees called up Domínguez on Monday, and manager Aaron Boone said their top prospect will play "a lot."`\
 https://nytimes.com/athletic/5757467/2024/09/10/yankees-jasson-dominguez-hype-uncertainty/
-
-**Palace should not panic - Glasner's teams tend to start seasons slowly**\
-`A look back at Glasner's previous managerial stops suggests he rarely begins a season with a bang`\
-https://nytimes.com/athletic/5741160/2024/09/10/palace-glasner-start-slow/
 
