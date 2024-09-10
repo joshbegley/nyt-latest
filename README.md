@@ -1,3 +1,11 @@
+**Melania Trump, Silent for Months, Re-emerges in a Series of Cryptic Videos**\
+`In one, released online on Tuesday, she muses conspiratorially about the attempt on her husband’s life. The videos are intended to promote a new memoir.`\
+https://nytimes.com/2024/09/10/us/elections/melania-trump-book-videos.html
+
+**ABC says its moderators will ‘facilitate,’ not fact-check.**\
+`By Michael M. Grynbaum`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/abc-says-its-moderators-will-facilitate-not-fact-check
+
 **Illinois Man Wrongly Convicted of 2008 Murder Is Awarded $50 Million**\
 `Marcel Brown, 34, spent nearly 10 years in prison after he was coerced into making a false confession in connection to a 2008 murder, a jury decided Monday.`\
 https://nytimes.com/2024/09/10/us/marcel-brown-exonerated-damages-illinois.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/10/briefing/debate-night-harris-trump-tropical-storm
 **How False Claims About Dead Cats Became Trump Campaign Fodder**\
 `Falsehoods claiming migrants in Ohio are killing cats and decapitating ducks went viral this week. The Trump campaign embraced them.`\
 https://nytimes.com/2024/09/10/technology/trump-dead-cats-migrants-ohio.html
-
-**Colts place starting JuJu Brents on IR due to MCL injury**\
-`Brents will miss at least the next four games and possibly the rest of his second NFL campaign.`\
-https://nytimes.com/athletic/5758812/2024/09/10/colts-juju-brents-injured-reserve-updates/
-
-**Adam Silver talks media rights deal, expansion at board of governors meeting**\
-`“There is no specific plan right now about Europe other than we’re agreeing to look intensively at the opportunity," Silver said Tuesday.`\
-https://nytimes.com/athletic/5758737/2024/09/10/adam-silver-media-rights-expansion-board-of-governors-meeting/
 
