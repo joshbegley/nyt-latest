@@ -1,3 +1,11 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/10/crosswords/spelling-bee-forum.html
+
+**Athletes and Anime**\
+`What fandoms are you a part of that might surprise people?`\
+https://nytimes.com/2024/09/10/learning/athletes-and-anime.html
+
 **Israel Strikes Humanitarian Area in Gaza**\
 `The attack left a large crater in Al-Mawasi, where tens of thousands of displaced Gazans have been staying.`\
 https://nytimes.com/video/world/middleeast/100000009682695/israel-mawasi-gaza-strike.html

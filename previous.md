@@ -1,3 +1,11 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/10/crosswords/spelling-bee-forum.html
+
+**Athletes and Anime**\
+`What fandoms are you a part of that might surprise people?`\
+https://nytimes.com/2024/09/10/learning/athletes-and-anime.html
+
 **Israel Strikes Humanitarian Area in Gaza**\
 `The attack left a large crater in Al-Mawasi, where tens of thousands of displaced Gazans have been staying.`\
 https://nytimes.com/video/world/middleeast/100000009682695/israel-mawasi-gaza-strike.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/10/world/europe/russia-moscow-drone-strike-ukraine.h
 **‘It’s Not Pandering When You Tell the Truth’: Five Columnists Game Out the Debate**\
 `What does success or failure look like for Donald Trump and Kamala Harris in Tuesday’s debate?`\
 https://nytimes.com/2024/09/10/opinion/trump-harris-debate.html
-
-**China’s Huawei Hopes to Keep Its Momentum With a ‘Trifold’ Phone**\
-`The latest announcement from Apple’s China rival comes just hours after the unveiling of iPhone 16.`\
-https://nytimes.com/2024/09/10/business/huawei-trifold-iphone.html
-
-**Why Jasson Domínguez hype brings some uncertainty**\
-`The Yankees called up Domínguez on Monday, and manager Aaron Boone said their top prospect will play "a lot."`\
-https://nytimes.com/athletic/5757467/2024/09/10/yankees-jasson-dominguez-hype-uncertainty/
 
