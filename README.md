@@ -1,3 +1,7 @@
+**The Pulse: Well, he played more than four snaps**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5755901/2024/09/10/aaron-rodgers-jets-49ers-the-pulse/
+
 **Questions for Donald Trump**\
 `Twenty-four questions on issues including the economy, abortion and foreign policy we wish Trump would answer.`\
 https://nytimes.com/2024/09/10/briefing/donald-trump-2024-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5756629/2024/09/10/dodgers-michael-kopech-white-sox
 **The Athletic's NFL QB stock report, Week 2: Stroud, Mayfield shine, Cousins, Levis plummet**\
 `A predictably sloppy Week 1 brought about quite a few changes to our top-32 rankings. Who were the biggest risers and fallers? `\
 https://nytimes.com/athletic/5756057/2024/09/10/nfl-qb-stock-report-rankings-stroud-mayfield-cousins/
-
-**Wordle Review No. 1,180**\
-`Scroll down for hints and conversation about the puzzle for Wednesday, September 11, 2024.`\
-https://nytimes.com/2024/09/10/crosswords/wordle-review-1180.html
 
