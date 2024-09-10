@@ -1,3 +1,11 @@
+**Key takeaways as 49ers surge by Jets: Jordan Mason steals spotlight and spoils Aaron Rodgers' return**\
+`Rodgers' first full game in 20 months — since his 2022 season finale with the Green Bay Packers — not only lacked rhythm, but attempts.`\
+https://nytimes.com/athletic/5756887/2024/09/09/jets-49ers-week-1-results-analysis/
+
+**Mets find a way to win ugly and retake lead for wild-card spot**\
+`New York is hitting just .207 in the last seven games, but has a 6-1 record thanks to a pitching staff that's getting the job done. `\
+https://nytimes.com/athletic/5757334/2024/09/09/mets-win-ugly-wild-card-spot/
+
 **Israel says it struck in humanitarian area in Gaza.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/09/09/world/israel-hamas-gaza-war/gazan-authorities-report-dozens-of-deaths-in-an-area-israel-had-designated-safe
