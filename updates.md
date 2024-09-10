@@ -1,3 +1,11 @@
+**SpaceX Launches Polaris Dawn Private Spaceflight Mission**\
+`Polaris Dawn successfully launched Tuesday morning with four nonprofessional astronauts on board.`\
+https://nytimes.com/video/us/100000009682839/spacex-launches-polaris-dawn.html
+
+**Trump Mocks Harris’s Height. But Her Fans See a Certain Stature.**\
+`Kamala Harris is modest in stature, but is considered by some to have Tall Energy. Donald Trump has insisted she shouldn’t be allowed to use “boxes or artificial lifts” during the debate.`\
+https://nytimes.com/2024/09/10/style/kamala-harris-height-debate.html
+
 **The Athletic FC: In search of 'seal dribbler', Odegaard injury, Gibraltar - a political football**\
 `The Athletic FC  is The Athletic’s daily football (or soccer, if you prefer) newsletter. Sign up to receive it directly to your inbox`\
 https://nytimes.com/athletic/5757696/2024/09/10/in-search-of-seal-dribbler-odegaard-injury-and-gibraltar-a-political-football/

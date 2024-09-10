@@ -1,3 +1,7 @@
+**Morgan Rogers and the value of playing youth football for England**\
+`Unai Emery criticised Rogers' call-up but the benefits of under-21 international football are clear for all to see`\
+https://nytimes.com/athletic/5757078/2024/09/10/morgan-rogers-aston-villa-england-emery/
+
 **SpaceX Launches Polaris Dawn Private Spaceflight Mission**\
 `Polaris Dawn successfully launched Tuesday morning with four nonprofessional astronauts on board.`\
 https://nytimes.com/video/us/100000009682839/spacex-launches-polaris-dawn.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5755901/2024/09/10/aaron-rodgers-jets-49ers-the-pul
 **Questions for Donald Trump**\
 `Twenty-four questions on issues including the economy, abortion and foreign policy we wish Trump would answer.`\
 https://nytimes.com/2024/09/10/briefing/donald-trump-2024-election.html
-
-**Astros takeaways: Full strength lineup, Framber Valdez's Cy Young Award case and more**\
-`Plus a look at how Houston's defensive metrics might influence who'll they'll target in the offseason.`\
-https://nytimes.com/athletic/5756716/2024/09/10/astros-framber-valdez-cy-young-case/
 
