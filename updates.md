@@ -1,3 +1,7 @@
+**China’s Huawei Hopes to Keep Its Momentum With a ‘Trifold’ Phone**\
+`The latest announcement from Apple’s China rival comes just hours after the unveiling of iPhone 16.`\
+https://nytimes.com/2024/09/10/business/huawei-trifold-iphone.html
+
 **Why Jasson Domínguez hype brings some uncertainty**\
 `The Yankees called up Domínguez on Monday, and manager Aaron Boone said their top prospect will play "a lot."`\
 https://nytimes.com/athletic/5757467/2024/09/10/yankees-jasson-dominguez-hype-uncertainty/
