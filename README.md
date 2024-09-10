@@ -1,3 +1,7 @@
+**Dodgers' Clayton Kershaw on comeback: 'I can’t really have any delays'**\
+`LOS ANGELES — Clayton Kershaw’s latest quest to find relief for his ailing left big toe included working out, at least briefly, with no shoe on his left foot.`\
+https://nytimes.com/athletic/5757197/2024/09/09/dodgers-clayton-kershaw-injury-toe/
+
 **Nebraska adds LB Christian Jones, No. 1 prospect in state, to 2025 class**\
 `Jones picked Nebraska over Oklahoma and counted offers from USC, Auburn, Iowa, Notre Dame and others.`\
 https://nytimes.com/athletic/5757208/2024/09/09/nebraska-college-football-recruiting-christian-jones/
@@ -29,8 +33,4 @@ https://nytimes.com/interactive/2024/us/politics/trump-harris-issues-election.ht
 **Trump Steps Up Threats to Imprison Those He Sees as Foes**\
 `The former president is vowing to prosecute those he sees as working to deny him a victory, while laying the groundwork to claim large-scale voter fraud if he loses.`\
 https://nytimes.com/2024/09/09/us/politics/trump-prison-threats-opponents.html
-
-**James Earl Jones: A Life in Pictures**\
-`Onstage and in movies and television, Jones delivered with a deep, authoritative, powerful and sometimes menacing voice.`\
-https://nytimes.com/2024/09/09/theater/james-earl-jones-photos.html
 
