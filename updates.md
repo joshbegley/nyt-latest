@@ -1,3 +1,7 @@
+**Luton 'extremely disappointed' after FA allegedly obscures banner at England Under-21 match**\
+`Luton Town has expressed their disappointment after the &#8220;betrayed by the FA 2008&#8221; message on a banner at Kenilworth Road was partially obscured during Monday night&#8217;s England Under-21&#8217;s match against Austria.`\
+https://nytimes.com/athletic/5758818/2024/09/10/luton-flag-fa-england-under-21s/
+
 **The Briefing: England 2 Finland 0 - Kane marks a century of caps with two goals as Alexander-Arnold shines again**\
 `Our writers break down the main talking points from Tuesday evening's game at Wembley`\
 https://nytimes.com/athletic/5757755/2024/09/10/england-finland-result-analysis/

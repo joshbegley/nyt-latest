@@ -1,3 +1,7 @@
+**Luton 'extremely disappointed' after FA allegedly obscures banner at England Under-21 match**\
+`Luton Town has expressed their disappointment after the &#8220;betrayed by the FA 2008&#8221; message on a banner at Kenilworth Road was partially obscured during Monday night&#8217;s England Under-21&#8217;s match against Austria.`\
+https://nytimes.com/athletic/5758818/2024/09/10/luton-flag-fa-england-under-21s/
+
 **The Briefing: England 2 Finland 0 - Kane marks a century of caps with two goals as Alexander-Arnold shines again**\
 `Our writers break down the main talking points from Tuesday evening's game at Wembley`\
 https://nytimes.com/athletic/5757755/2024/09/10/england-finland-result-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/10/business/economy/poverty-report-2023-census-burea
 **Kyle Larson to attempt Indy 500/NASCAR 'Double' again in 2025**\
 `After his dreams of the "Double" were washed away in 2024, Kyle Larson will try again in 2025 at the Indianapolis 500 and Coca-Cola 600.`\
 https://nytimes.com/athletic/5758717/2024/09/10/kyle-larson-to-try-indy-500-nascar-double-again-in-2025-for-hendrick-mclaren/
-
-**Missouri High Court Restores Abortion Measure to Ballot**\
-`The court ruled hours before the state’s deadline for printing ballots for absentee voters.`\
-https://nytimes.com/2024/09/10/us/missouri-abortion-ballot.html
 
