@@ -1,3 +1,7 @@
+**Readers Pick Their Song of the Summer**\
+`You sent in an eclectic mix of tracks from Chappell Roan, Bad Bunny, Lawrence and more.`\
+https://nytimes.com/2024/09/10/arts/music/amplifier-newsletter-chappell-roan-summer.html
+
 **The Midlife Marriage Tuneup**\
 `Therapists and relationship researchers share 6 questions that can bring couples closer during this stage.`\
 https://nytimes.com/2024/09/10/well/family/marriage-midlife-counseling.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5758534/2024/09/10/ferdi-kadioglu-brighton-injury-r
 **Steelers preparing to start Justin Fields at QB vs. Broncos**\
 `Fields started the season opener after the Steelers scratched Russell Wilson, who's dealing with a nagging calf injury.`\
 https://nytimes.com/athletic/5758465/2024/09/10/steelers-justin-fields-russell-wilson-starting-qb/
-
-**Harris Ad Features Obama’s Oblique Joke About Trump**\
-`The spot, which focuses on Barack Obama’s remark about a “weird obsession with crowd sizes” and accompanying gesture, is airing in media markets where Donald Trump is likely to be.`\
-https://nytimes.com/2024/09/10/us/politics/harris-ad-trump-obama-crowd-size.html
 
