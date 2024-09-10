@@ -1,3 +1,7 @@
+**What has to happen for the Tigers to make a playoff push?**\
+`Detroit entered Tuesday 3 games out of the final AL wild-card spot. With 18 games left, a long season is boiling down to a frantic finish.`\
+https://nytimes.com/athletic/5757307/2024/09/09/detroit-tigers-playoff-push-what-has-to-happen/
+
 **Key takeaways as 49ers surge by Jets: Jordan Mason steals spotlight and spoils Aaron Rodgers' return**\
 `Rodgers' first full game in 20 months — since his 2022 season finale with the Green Bay Packers — not only lacked rhythm, but attempts.`\
 https://nytimes.com/athletic/5756887/2024/09/09/jets-49ers-week-1-results-analysis/

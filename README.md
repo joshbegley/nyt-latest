@@ -1,3 +1,7 @@
+**Braves stay in wild-card race despite injuries, shaky offense**\
+`“We’ve got a lot of opportunity in front of us, but we’ve just got to make it happen," said first baseman Matt Olson.`\
+https://nytimes.com/athletic/5757349/2024/09/09/braves-stay-in-wild-card-race/
+
 **What has to happen for the Tigers to make a playoff push?**\
 `Detroit entered Tuesday 3 games out of the final AL wild-card spot. With 18 games left, a long season is boiling down to a frantic finish.`\
 https://nytimes.com/athletic/5757307/2024/09/09/detroit-tigers-playoff-push-what-has-to-happen/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/5757307/2024/09/09/detroit-tigers-playoff-push-what
 https://nytimes.com/athletic/5756887/2024/09/09/jets-49ers-week-1-results-analysis/
 
 **Mets find a way to win ugly and retake lead for wild-card spot**\
-`New York is hitting just .207 in the last seven games, but has a 6-1 record thanks to a pitching staff that's getting the job done. `\
+`New York is hitting just .207 in the last seven games but has a 6-1 record thanks to a pitching staff that's getting the job done. `\
 https://nytimes.com/athletic/5757334/2024/09/09/mets-win-ugly-wild-card-spot/
 
 **White Sox watch: Loss No. 112 comes as Guardians pitcher flirts with perfection**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5756541/2024/09/09/mike-mcdaniel-tyreek-hill-dolphi
 **Israel says it struck in humanitarian area in Gaza.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/09/09/world/israel-hamas-gaza-war/gazan-authorities-report-dozens-of-deaths-in-an-area-israel-had-designated-safe
-
-**Give or Take**\
-`Daniel Bodily shows himself to be a man of letters.`\
-https://nytimes.com/2024/09/09/crosswords/daily-puzzle-2024-09-10.html
 
