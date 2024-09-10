@@ -1,3 +1,19 @@
+**Usmanov and Moshiri court case adds to Everton takeover complications**\
+`Uzbek oligarch Alisher Usmanov has taken legal action against a company owned by Everton owner Farhad Moshiri, creating a complicating factor in the club&#8217;s already difficult takeover process.`\
+https://nytimes.com/athletic/5758257/2024/09/10/everton-takeover-moshiri-usmanov-court-case/
+
+**After Fierce Lobbying, Regulators Soften Proposed Rules on Banks**\
+`A top Federal Reserve official said that blowback to proposed rules on capital requirements led him to “relearn the lesson of humility.”`\
+https://nytimes.com/2024/09/10/business/banks-basel-capital.html
+
+**The Windup: MLB's 5 hottest second-half teams**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5758308/2024/09/10/mlb-standings-diamondbacks-the-windup/
+
+**Inside the Funeral Home for New York’s Luminaries**\
+`Everybody dies. But not everybody is embalmed at Frank E. Campbell, a discreet mortuary on Manhattan’s Upper East Side.`\
+https://nytimes.com/2024/09/10/style/funeral-home-new-york-celebrities.html
+
 **Tortellini to the Rescue**\
 `Ali Slagle’s tortellini with prosciutto and peas turns a refrigerated staple into a surprisingly luxurious one-pan dinner.`\
 https://nytimes.com/2024/09/10/dining/tortellini-to-the-rescue.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/10/arts/television/emily-in-paris-goes-on-a-roman-ho
 **Southwest Airlines Agrees to Board Changes After Pressure From Elliott**\
 `The airline has been under pressure from the hedge fund Elliott to replace its top management and make other changes to increase its profits.`\
 https://nytimes.com/2024/09/10/business/southwest-airlines-board-elliott-management.html
-
-**Art Institute of Chicago Receives $75 Million Gift**\
-`The donation from Aaron I. Fleischman and Lin Lougheed will support the museum’s new galleries.`\
-https://nytimes.com/2024/09/10/arts/art-institute-of-chicago-fleischman-lougheed-gift.html
-
-**Women Making Waves**\
-`Tory Burch plays to win, and Rachel Scott of Diotima has a star-making show.`\
-https://nytimes.com/2024/09/10/style/tory-burch-diotima-new-york-fashion-week.html
-
-**Love on Aisle 9? A TikTok Fad Fills Grocery Stores With Singles**\
-`How the Spanish grocery chain Mercadona got a reputation as an unlikely dating hub, with its upside-down pineapples as props.`\
-https://nytimes.com/2024/09/10/world/europe/spain-pineapples-tiktok-dating-mercadona.html
-
-**Johnson’s Spending Plan Falters, Facing Resistance From Both Parties**\
-`The speaker’s first effort to avert a government shutdown ran into a buzz saw of opposition from both far-right and mainstream Republicans.`\
-https://nytimes.com/2024/09/10/us/politics/johnson-spending-bill-republicans.html
 

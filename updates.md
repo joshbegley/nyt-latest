@@ -1,3 +1,19 @@
+**Usmanov and Moshiri court case adds to Everton takeover complications**\
+`Uzbek oligarch Alisher Usmanov has taken legal action against a company owned by Everton owner Farhad Moshiri, creating a complicating factor in the club&#8217;s already difficult takeover process.`\
+https://nytimes.com/athletic/5758257/2024/09/10/everton-takeover-moshiri-usmanov-court-case/
+
+**After Fierce Lobbying, Regulators Soften Proposed Rules on Banks**\
+`A top Federal Reserve official said that blowback to proposed rules on capital requirements led him to “relearn the lesson of humility.”`\
+https://nytimes.com/2024/09/10/business/banks-basel-capital.html
+
+**The Windup: MLB's 5 hottest second-half teams**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5758308/2024/09/10/mlb-standings-diamondbacks-the-windup/
+
+**Inside the Funeral Home for New York’s Luminaries**\
+`Everybody dies. But not everybody is embalmed at Frank E. Campbell, a discreet mortuary on Manhattan’s Upper East Side.`\
+https://nytimes.com/2024/09/10/style/funeral-home-new-york-celebrities.html
+
 **Tortellini to the Rescue**\
 `Ali Slagle’s tortellini with prosciutto and peas turns a refrigerated staple into a surprisingly luxurious one-pan dinner.`\
 https://nytimes.com/2024/09/10/dining/tortellini-to-the-rescue.html
