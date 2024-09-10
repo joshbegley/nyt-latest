@@ -1,3 +1,7 @@
+**Astros takeaways: Full strength lineup, Framber Valdez's Cy Young Award case and more**\
+`Plus a look at how Houston's defensive metrics might influence who'll they'll target in the offseason.`\
+https://nytimes.com/athletic/5756716/2024/09/10/astros-framber-valdez-cy-young-case/
+
 **The Athletic's NFL QB stock report, Week 2: Stroud, Mayfield shine, Cousins, Levis plummet**\
 `A predictably sloppy Week 1 brought about quite a few changes to our top-32 rankings. Who were the biggest risers and fallers? `\
 https://nytimes.com/athletic/5756057/2024/09/10/nfl-qb-stock-report-rankings-stroud-mayfield-cousins/
