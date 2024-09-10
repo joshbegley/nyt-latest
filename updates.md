@@ -1,3 +1,15 @@
+**Chelsea are learning the hard way that co-owners rarely work in football**\
+`Competing voices - and egos - at the top can create chaos. Just ask Liverpool`\
+https://nytimes.com/athletic/5747279/2024/09/10/chelsea-owners-civil-war/
+
+**Meet Jorrel Hato, the Ajax teenager tracked by Arsenal: 'I want to achieve big things'**\
+`The 18-year-old Netherlands defender is trying to return his club to the top of the Eredivisie, attracting big-club attention along the way`\
+https://nytimes.com/athletic/5726387/2024/09/10/jorrel-hato-ajax-netherlands/
+
+**Mbappe's start at Madrid: Low profile, finding his place, 'totally different' to Cristiano Ronaldo**\
+`It hasn't all been plain sailing, but Madrid are confident Mbappe is finding his feet`\
+https://nytimes.com/athletic/5755578/2024/09/10/kylian-mbappe-real-madrid-start/
+
 **Hugo Ekitike is reborn at Eintracht Frankfurt, having lost his shine at PSG**\
 `The young French forward has seized his chance to impress in the Bundesliga and his talent is becoming harder to ignore with each display`\
 https://nytimes.com/athletic/5755629/2024/09/10/ekitike-eintracht-psg-france-newcastle/
