@@ -1,3 +1,7 @@
+**Transcript: Ezra Klein on the Harris-Trump Debate**\
+`The September 11, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/09/11/podcasts/transcript-ezra-klein-harris-trump-debate-reaction.html
+
 **Trump’s False Tale of Immigrants’ Eating Pets Draws Pushback and Derision**\
 `The city manager in Springfield, Ohio, said it was disappointing that the presidential race was amplifying a bizarre narrative about the city’s immigrants.`\
 https://nytimes.com/2024/09/11/us/politics/trump-springfield-ohio-immigrants-pets-pushback.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/us/truman-capote-in-cold-blood-kansas-prison.html
 **Harris Reveled in Her Debate Reviews**\
 `Also, Hurricane Francine is pelting southern Louisiana. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/09/11/briefing/harris-trump-debate-aftermath-russia-ukraine.html
-
-**OpenAI in Fund-Raising Talks That Could Value Company at $150 Billion**\
-`The San Francisco start-up hopes to raise $6.5 billion as part of an aggressive push for more investment.`\
-https://nytimes.com/2024/09/11/technology/openai-fund-raising-valuation.html
 
