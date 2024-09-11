@@ -1,3 +1,15 @@
+**Why Zach Frazier's steady presence is critical for a Steelers' OL in transition**\
+`While the Steelers' offensive line goes through constant changes to start the season, a rookie center becomes the mainstay.`\
+https://nytimes.com/athletic/5761160/2024/09/11/pittsburgh-steelers-zach-frazier-offensive-lines/
+
+**Francine Arrives in a Region With Painful Memories of Past Storms**\
+`Francine could cut a somewhat similar path as Hurricane Ida, which left a trail of devastating consequences in 2021.`\
+https://nytimes.com/2024/09/11/weather/francine-hurricane-ida.html
+
+**'I have to be ready': How Packers QB Malik Willis is preparing for likely start**\
+`The Packers are keeping the door open for Jordan Love to play Sunday, but it'll likely be Willis leading the offense against the Colts.`\
+https://nytimes.com/athletic/5761024/2024/09/11/packers-malik-willis-starting-colts/
+
 **White Sox owner Jerry Reinsdorf on woeful season: ‘This year has been very painful for all’**\
 `The White Sox have 15 games left, and they must win 10 to avoid joining the 120-loss New York Mets of 1962 as the worst team of all time.`\
 https://nytimes.com/athletic/5761314/2024/09/11/white-sox-jerry-reinsdorf-losing-season/
