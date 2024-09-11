@@ -1,3 +1,7 @@
+**The Athletic FC: How USMNT sealed Pochettino deal, data debate and a hat-trick race**\
+`In today's TAFC: How US Soccer finally got a deal done with Pochettino, an international round-up, a data debate and charting PL hat-tricks`\
+https://nytimes.com/athletic/5759768/2024/09/11/how-usmnt-sealed-pochettino-deal-the-data-debate-premier-league-hat-trick-race/
+
 **Trump Media’s Stock Plunges After Debate**\
 `Shares of the parent company of Truth Social, which have traded like a proxy for former President Donald Trump’s election prospects, are set to open at a new low for the year.`\
 https://nytimes.com/2024/09/11/us/politics/trump-media-stock-truth-social-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/briefing/kamala-harris-donald-trump-debate.html
 **Stock watch: Bullish on Brandin Cooks, bearish on Chicago rookies and more**\
 `Dane Martinez highlights some of the notable market movers following Week 1, including the rise of Brandin Cooks in the Dallas passing game.`\
 https://nytimes.com/athletic/5758960/2024/09/11/fantasy-football-stock-watch-bullish-on-brandin-cooks-bearish-on-chicago-rookies-and-more/
-
-**Prices at the Pump Fall, a Win for Efforts to Fight Inflation**\
-`A gallon of regular gasoline in August was down nearly 12 percent from a year earlier, reflecting a fall in oil prices as well as a decline in demand.`\
-https://nytimes.com/2024/09/11/business/gas-prices.html
 
