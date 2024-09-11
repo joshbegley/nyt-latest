@@ -1,5 +1,9 @@
 **In critical moment, Francisco Lindor delivers a signature swing for the Mets**\
 `What has Lindor meant to the Mets this season? “Everything,” as one teammate said.`\
+https://nytimes.com/athletic/5761371/2024/09/11/mets-francisco-lindor-no-hitter/
+
+**In critical moment, Francisco Lindor delivers a signature swing for the Mets**\
+`What has Lindor meant to the Mets this season? “Everything,” as one teammate said.`\
 https://nytimes.com/athletic/5761371/2024/09/11/in-critical-moment-francisco-lindor-delivers-a-signature-swing-for-the-mets/
 
 **67.1 Million People Watched Harris and Trump, Outdrawing Last Debate**\
