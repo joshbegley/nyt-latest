@@ -1,3 +1,19 @@
+**“And when she ran, she was the first one to leave because she failed” in the 2020 Democratic presidential primary.**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/and-when-she-ran-she-was-the-first-one-to-leave-because-she-failed-in-the-2020-democratic-presidential-primary
+
+**Harris appears more interested in talking to voters than battling Trump.**\
+`By Michael C. Bender`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/harris-appears-more-interested-in-talking-to-voters-than-battling-trump
+
+**“Donald Trump, the candidate, has said in this election there will be a blood bath if this, and the outcome of this election, is not to his liking.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/donald-trump-the-candidate-has-said-in-this-election-there-will-be-a-blood-bath-if-this-and-the-outcome-of-this-election-is-not-
+
+**“I had nothing to do” with Jan. 6**\
+`By Luke Broadwater`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/i-had-nothing-to-do-with-jan-6
+
 **Part of a Club**\
 `Barbara Lin reflects on common sayings.`\
 https://nytimes.com/2024/09/10/crosswords/daily-puzzle-2024-09-11.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/09/10/us/harris-trump-debate/by-the-way-joe-biden-
 **“Her vice-presidential pick says abortion in the ninth month is absolutely fine. He also says execution after birth. It’s execution, no longer abortion, because the baby is born is, OK, and that’s not OK with me.”**\
 `“Her vice presidential pick says abortion in the ninth month is absolutely fine. He also says execution after birth. It’s execution, no longer abortion because the baby is born is okay and that’s not okay with me.”`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/her-vice-presidential-pick-says-abortion-in-the-ninth-month-is-absolutely-fine-he-also-says-execution-after-birth-its-execution-
-
-**“And as far as the abortion ban, no, I’m not in favor of abortion ban.”**\
-`By Elizabeth Dias`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/and-as-far-as-the-abortion-ban-no-im-not-in-favor-of-abortion-ban
-
-**I’m Hearing Huge Relief From Democrats Over Harris’s Debate Performance**\
-`Time and again, she laid the bait, and Trump took it.`\
-https://nytimes.com/live/2024/09/03/opinion/thepoint/harris-trump-debate-
-
-**“Fracking? She’s been against it for 12 years.”**\
-`By Lisa Friedman`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/fracking-shes-been-against-it-for-12-years
-
-**Polaris Dawn Astronauts Reach Record High Orbit Above Earth**\
-`After launching early on Tuesday, the billionaire Jared Isaacman and his crew traveled to altitudes not visited by any astronaut since the Apollo moon missions of the 1960s and ’70s.`\
-https://nytimes.com/2024/09/10/science/polaris-dawn-spacex-orbit-astronauts.html
 
