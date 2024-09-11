@@ -1,3 +1,7 @@
+**In Debate With Trump, Harris’s Expressions Were a Weapon**\
+`Tuesday’s debate was expected to center on defining Kamala Harris. Instead, with words and with body language, she turned it into a referendum on Donald Trump.`\
+https://nytimes.com/2024/09/11/us/politics/trump-harris-debate-analysis.html
+
 **As Trump Links Her to Biden, Harris Says, ‘You’re Running Against Me’**\
 `Vice President Kamala Harris largely deflected former President Donald J. Trump’s attempts to tie her to President Biden.`\
 https://nytimes.com/2024/09/11/us/politics/harris-biden-trump-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/us/politics/trump-debate-spin-room.html
 **Reunited with the 'Rally Sausage,' Twins offense breaks out of slumber**\
 `Desperate for a spark after losing 15 times in 21 games, the Twins revived an old friend on Tuesday night.`\
 https://nytimes.com/athletic/5759573/2024/09/11/twins-offense-break-out-rally-sausage/
-
-**Buoyed by Blue Jays' support, Davis Schneider finally gets the hit he was searching for**\
-`Schneider's teammates have supported him during his second-half struggles. "I couldn't be more grateful."`\
-https://nytimes.com/athletic/5759542/2024/09/11/blue-jays-davis-schneider-slump/
 
