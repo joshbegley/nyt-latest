@@ -1,3 +1,7 @@
+**Judicial Overhaul Proposal Passes Mexico’s Senate Amid Protests**\
+`A controversial proposal allowing voters to elect judges is expected to be approved as it heads to state legislatures.`\
+https://nytimes.com/video/world/americas/100000009685869/judicial-overhaul-mexico-senate-protests.html
+
 **How climate change is transforming hurricanes**\
 `Scientists are confident that the warming of the planet is affecting how storms behave.`\
 https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/climate-change-hurricanes
