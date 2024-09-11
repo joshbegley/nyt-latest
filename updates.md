@@ -1,3 +1,15 @@
+**Immigrants are “taking over the towns. They’re taking over buildings. They’re going in violently.”**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/immigrants-are-taking-over-the-towns-theyre-taking-over-buildings-theyre-going-in-violently
+
+**“She’s a Marxist. Everybody knows she’s a Marxist.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/shes-a-marxist-everybody-knows-shes-a-marxist
+
+**“We have inflation like very few people have ever seen before. Probably the worst in our nation’s history: We were at 21 percent.”**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/we-have-inflation-like-very-few-people-have-ever-seen-before-probably-the-worst-in-our-nations-history-we-were-at-21-percent
+
 **“We have millions of people pouring into our country from prisons and jails, from mental institutions and insane asylums.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/we-have-millions-of-people-pouring-into-our-country-from-prisons-and-jails-from-mental-institutions-and-insane-asylums

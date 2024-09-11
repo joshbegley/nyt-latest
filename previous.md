@@ -1,3 +1,15 @@
+**Immigrants are “taking over the towns. They’re taking over buildings. They’re going in violently.”**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/immigrants-are-taking-over-the-towns-theyre-taking-over-buildings-theyre-going-in-violently
+
+**“She’s a Marxist. Everybody knows she’s a Marxist.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/shes-a-marxist-everybody-knows-shes-a-marxist
+
+**“We have inflation like very few people have ever seen before. Probably the worst in our nation’s history: We were at 21 percent.”**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/we-have-inflation-like-very-few-people-have-ever-seen-before-probably-the-worst-in-our-nations-history-we-were-at-21-percent
+
 **“We have millions of people pouring into our country from prisons and jails, from mental institutions and insane asylums.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/we-have-millions-of-people-pouring-into-our-country-from-prisons-and-jails-from-mental-institutions-and-insane-asylums
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/10/nyregion/randy-mastro-eric-adams-lawyer-withdraws
 **Trump mocked Harris’s height, but her fans see a certain stature.**\
 `By Abby Ellin`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/trump-mocked-harriss-height-but-her-fans-see-a-certain-stature
-
-**Here Are Some of the Prominent Surrogates at the Debate Site**\
-`Anthony Scaramucci and Tulsi Gabbard are there. But you might be surprised which candidate they’re supporting.`\
-https://nytimes.com/2024/09/10/us/politics/debate-surrogates-rfk-gabbard-scaramucci.html
-
-**PGA Tour Meets With Saudi Fund in Hopes of Getting Closer to Deal**\
-`More than a year has passed since the tour agreed to a deal with LIV Golf, but there is some hope an in-person gathering in New York could create momentum.`\
-https://nytimes.com/2024/09/10/business/dealbook/pga-tour-saudi-liv-golf-nyc.html
-
-**Kyle Schwarber hits record leadoff home run, leaves game with elbow injury**\
-`Schwarber's 14th leadoff homer broke Alfonso Soriano's mark, which had stood since 2003. He has bashed seven homers in his last eight games.`\
-https://nytimes.com/athletic/5759305/2024/09/10/kyle-schwarber-leadoff-home-runs-record/
 
