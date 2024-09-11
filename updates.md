@@ -1,3 +1,19 @@
+**“This business about taking everyone’s guns away — Tim Walz and I are both gun owners.”**\
+`By Shawn Hubler`\
+https://nytimes.com/2024/09/10/us/politics/taking-everyones-guns-away-tim-walz-and-i-are-both-gun-owners.html
+
+**“This business about taking everyone’s guns away — Tim Walz and I are both gun owners.”**\
+`By Shawn Hubler`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/this-business-about-taking-everyones-guns-away-tim-walz-and-i-are-both-gun-owners
+
+**Yes, Kamala Harris Owns a Handgun**\
+`In rebutting a claim from former President Donald J. Trump during their debate, the vice president asserted that she owned a gun, adding, “We’re not taking anybody’s guns away.”`\
+https://nytimes.com/2024/09/10/us/politics/kamala-harris-gun.html
+
+**Over 90 Minutes, Trump Descended to His True Self**\
+`He fell right into the traps Harris set for him.`\
+https://nytimes.com/2024/09/03/opinion/trump-debate-lies.html
+
 **Taylor Swift Endorses Kamala Harris**\
 `In a post on Instagram, the pop superstar said the evening’s debate convinced her to weigh in publicly.`\
 https://nytimes.com/2024/09/10/us/politics/taylor-swift-endorses-kamala-harris.html
