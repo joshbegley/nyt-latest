@@ -1,11 +1,3 @@
-**67.1 Million People Watched Harris and Trump, Outdrawing Last Debate**\
-`The TV audience for the Harris-Trump matchup was roughly comparable to the second Trump-Clinton debate in 2016.`\
-https://nytimes.com/2024/09/11/business/media/harris-trump-debate-ratings.html
-
-**Former Realtor Employee Files Sexual Harassment Suit Against Trade Group**\
-`A woman who worked for the National Association of Realtors says she was fired after she reported instances of sexual harassment and discrimination, according to a federal lawsuit.`\
-https://nytimes.com/2024/09/11/realestate/nar-realtors-sexual-harassment-lawsuit.html
-
 **Is Donald Trump Too Emotional for This?**\
 `Kamala Harris sought to rattle Trump — and flip a gender dynamic on its head.`\
 https://nytimes.com/2024/09/11/us/politics/trump-debate-emotions.html
@@ -22,8 +14,8 @@ https://nytimes.com/2024/09/11/business/norfolk-southern-alan-shaw-ceo.html
 `While resuming its offensive against militants in the West Bank, Israel also kept up its bombardment of the Gaza Strip, striking a school building used as a shelter for displaced people.`\
 https://nytimes.com/2024/09/11/world/middleeast/israel-raids-west-bank.html
 
-**49ers’ Christian McCaffrey on his injury and mindset: ‘My mentality is I’m playing’**\
-`McCaffrey said he sees his decision as a "chess move" that will benefit him and the 49ers the rest of the season.`\
+**49ers' Christian McCaffrey on his injury and mindset: 'My mentality is I'm playing'**\
+`McCaffrey said he sees his decision as a "chess move" that will benefit him and the 49ers for the rest of the season.`\
 https://nytimes.com/athletic/5761285/2024/09/11/christian-mccaffrey-49ers-injury-status-vikings/
 
 **Top Election Officials Warn Postal Service of Mail Ballot Issues**\
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/5761160/2024/09/11/pittsburgh-steelers-zach-frazier
 **White Sox owner Jerry Reinsdorf on woeful season: ‘This year has been very painful for all’**\
 `The White Sox have 15 games left, and they must win 10 to avoid joining the 120-loss New York Mets of 1962 as the worst team of all time.`\
 https://nytimes.com/athletic/5761314/2024/09/11/white-sox-jerry-reinsdorf-losing-season/
+
+**French Ship That Sank in 1856 Disaster Is Found Off Massachusetts Coast**\
+`Le Lyonnais was discovered in the Atlantic Ocean about 140 miles east of Nantucket, Mass. More than 100 died after the French passenger steamship sank.`\
+https://nytimes.com/2024/09/11/us/le-lyonnais-shipwreck-found-massachusetts.html
+
+**Transcript: Ezra Klein on the Harris-Trump Debate**\
+`The September 11, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/09/11/podcasts/transcript-ezra-klein-harris-trump-debate-reaction.html
 
