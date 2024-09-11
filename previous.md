@@ -1,3 +1,7 @@
+**Ravens insist they're not worried about their O-line or illegal formation crackdown**\
+`Another big challenge for Baltimore's O-line looms as the Raiders come to town with one of the game’s top edge rushers in Maxx Crosby. `\
+https://nytimes.com/athletic/5759481/2024/09/11/ravens-offensive-line-illegal-formation/
+
 **How the new pieces on defense could vault the Steelers to the next level**\
 `Mike Tomlin raved about veteran newcomers DeShon Elliott and Donte Jackson after Sunday's victory in Atlanta.`\
 https://nytimes.com/athletic/5758628/2024/09/11/steelers-defense-deshon-elliott-donte-jackson/
@@ -28,13 +32,9 @@ https://nytimes.com/2024/09/11/opinion/republicans-science-denial.html
 
 **Hurricane Francine Bears Down on Louisiana**\
 `The storm is expected to make landfall on Wednesday, bringing the threat of powerful winds, storm surge and flash flooding.`\
-https://nytimes.com/2024/09/11/weather/hurricane-francine-louisiana.html
+https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/hurricane-francine-louisiana
 
 **3 Shel Silverstein Poems to Read With Your Children**\
 `Hilarious and tender, he was ahead of his time.`\
 https://nytimes.com/2024/09/11/podcasts/3-shel-silverstein-poems-to-read-with-your-children.html
-
-**Inflation Is Expected to Remain Subdued as Rate Cuts Near**\
-`The latest Consumer Price Index could show mild inflation, keeping the Federal Reserve on track to lower rates.`\
-https://nytimes.com/2024/09/11/business/cpi-inflation-august.html
 
