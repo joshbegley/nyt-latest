@@ -1,3 +1,7 @@
+**Art Museum Fires 3 Employees for Wearing Kaffiyehs**\
+`The Noguchi Museum said the headscarves, a symbol of Palestinian identity, violated a dress code that recently banned “political messages, slogans or symbols.”`\
+https://nytimes.com/2024/09/11/arts/design/noguchi-museum-employees-kaffiyeh-fired.html
+
 **Commission recommends mediation between PSG and Mbappe over unpaid wages**\
 `A Ligue de Football Professionnel (LFP) legal commission recommended mediation between Paris Saint-Germain and Kylian Mbappe to resolve a contract dispute over the player’s unpaid salary.`\
 https://nytimes.com/athletic/5759966/2024/09/11/kylian-mbappe-psg-unpaid-wages-mediation/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5760541/2024/09/11/ravens-kyle-van-noy-chiefs-train
 **For those riding out the storm, there were many reasons to stay.**\
 `By Marie Elizabeth Oliver, Jacey Fortin and Natalie McLendon`\
 https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/for-those-riding-out-the-storm-there-were-many-reasons-to-stay
-
-**The Debate Was About Trump. That Was Good for Harris.**\
-`It can be hard to tell when a debate bounce will last, but there are rough parameters that can guide us.`\
-https://nytimes.com/2024/09/11/upshot/debate-kamala-harris-trump.html
 

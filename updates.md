@@ -1,3 +1,7 @@
+**Art Museum Fires 3 Employees for Wearing Kaffiyehs**\
+`The Noguchi Museum said the headscarves, a symbol of Palestinian identity, violated a dress code that recently banned “political messages, slogans or symbols.”`\
+https://nytimes.com/2024/09/11/arts/design/noguchi-museum-employees-kaffiyeh-fired.html
+
 **Commission recommends mediation between PSG and Mbappe over unpaid wages**\
 `A Ligue de Football Professionnel (LFP) legal commission recommended mediation between Paris Saint-Germain and Kylian Mbappe to resolve a contract dispute over the player’s unpaid salary.`\
 https://nytimes.com/athletic/5759966/2024/09/11/kylian-mbappe-psg-unpaid-wages-mediation/
