@@ -1,3 +1,7 @@
+**Henry criticises football schedule: 'There's too many games'**\
+`Former Arsenal and Barcelona forward Thierry Henry has criticised the football schedule &#8211; and says there are &#8220;too many games&#8221;.`\
+https://nytimes.com/athletic/5760786/2024/09/11/thierry-henery-criticise-football-schedule/
+
 **Trump Undermines Vance on Abortion Ban Veto: ‘I Didn’t Discuss It With JD’**\
 `Scrambling to shelter himself on abortion, Donald J. Trump disavowed his running mate’s pledge that, if re-elected, the former president would veto a national abortion ban.`\
 https://nytimes.com/2024/09/11/us/politics/vance-trump-abortion-ban.html
