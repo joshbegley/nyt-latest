@@ -1,3 +1,7 @@
+**Researchers mapped the sites in Francine’s path that risk flooding and toxic spills.**\
+`By Austyn Gaffney`\
+https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/researchers-mapped-the-sites-in-francines-path-that-risk-flooding-and-toxic-spills
+
 **In critical moment, Francisco Lindor delivers a signature swing for the Mets**\
 `What has Lindor meant to the Mets this season? “Everything,” as one teammate said.`\
 https://nytimes.com/athletic/5761371/2024/09/11/mets-francisco-lindor-no-hitter/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5761285/2024/09/11/christian-mccaffrey-49ers-injury
 **Top Election Officials Warn Postal Service of Mail Ballot Issues**\
 `Democratic and Republican secretaries of state highlighted incidents of voters being disenfranchised by ballots not being delivered on time.`\
 https://nytimes.com/2024/09/11/us/politics/mail-ballots-post-office-problems.html
-
-**Why Zach Frazier's steady presence is critical for a Steelers' OL in transition**\
-`While the Steelers' offensive line goes through constant changes to start the season, a rookie center becomes the mainstay.`\
-https://nytimes.com/athletic/5761160/2024/09/11/pittsburgh-steelers-zach-frazier-offensive-line/
 
