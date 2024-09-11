@@ -1,3 +1,11 @@
+**The Phillies are rolling and can taste it after rallying past Rays as benches clear**\
+`PHILADELPHIA — They can taste it now, as evidenced by the thick fog that filled the service-level hallway outside the Phillies clubhouse Tuesday night.`\
+https://nytimes.com/athletic/5759534/2024/09/11/phillies-rays-benches-clear-catellanos-harper/
+
+**Alisson's one-on-ones, Ederson's passing, Raya's catching: Building the perfect goalkeeper**\
+`Which elements of the world's best 'keepers would make the ideal composite No 1?`\
+https://nytimes.com/athletic/5746745/2024/09/11/best-goalkeeper-world/
+
 **Red Trousers, Storks and Breisgau Brazilians: The origins of German football club nicknames**\
 `From the Factory Eleven to the Unpromotables, German clubs have an interesting mix of nicknames - but where do they come from?`\
 https://nytimes.com/athletic/5747122/2024/09/11/german-football-nicknames-bundesliga/

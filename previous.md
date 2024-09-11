@@ -1,3 +1,11 @@
+**The Phillies are rolling and can taste it after rallying past Rays as benches clear**\
+`PHILADELPHIA — They can taste it now, as evidenced by the thick fog that filled the service-level hallway outside the Phillies clubhouse Tuesday night.`\
+https://nytimes.com/athletic/5759534/2024/09/11/phillies-rays-benches-clear-catellanos-harper/
+
+**Alisson's one-on-ones, Ederson's passing, Raya's catching: Building the perfect goalkeeper**\
+`Which elements of the world's best 'keepers would make the ideal composite No 1?`\
+https://nytimes.com/athletic/5746745/2024/09/11/best-goalkeeper-world/
+
 **Red Trousers, Storks and Breisgau Brazilians: The origins of German football club nicknames**\
 `From the Factory Eleven to the Unpromotables, German clubs have an interesting mix of nicknames - but where do they come from?`\
 https://nytimes.com/athletic/5747122/2024/09/11/german-football-nicknames-bundesliga/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5758715/2024/09/11/lucy-bronze-chelsea-interview/
 **How Russia’s Steady Advance Threatens Ukraine’s East**\
 `Russia is getting closer to cutting critical supply lines for troops in the remaining Ukrainian strongholds across the region.`\
 https://nytimes.com/interactive/2024/09/11/world/europe/russia-pokrovsk-advance.html
-
-**Cholera Deaths Soar Worldwide Despite Being Easily Preventable**\
-`Fatalities spiked 71 percent last year, far outpacing the 13 percent rise in cases, the World Health Organization said.`\
-https://nytimes.com/2024/09/11/health/cholera-deaths-cases.html
-
-**Family of American Woman Held in China for 10 Years Asks for Help**\
-`Dawn Michelle Hunt, who is serving a life sentence, says she was duped into carrying drugs. Her family says she is seriously ill and should be sent home.`\
-https://nytimes.com/2024/09/11/world/asia/china-us-woman-imprisoned.html
 
