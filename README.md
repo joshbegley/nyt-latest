@@ -1,3 +1,11 @@
+**49ers’ Christian McCaffrey on his injury and mindset: ‘My mentality is I’m playing’**\
+`McCaffrey said he sees his decision as a "chess move" that will benefit him and the 49ers the rest of the season.`\
+https://nytimes.com/athletic/5761285/2024/09/11/christian-mccaffrey-49ers-injury-status-vikings/
+
+**Top Election Officials Warn Postal Service of Mail Ballot Issues**\
+`Democratic and Republican secretaries of state highlighted incidents of voters being disenfranchised by ballots not being delivered on time.`\
+https://nytimes.com/2024/09/11/us/politics/mail-ballots-post-office-problems.html
+
 **Why Zach Frazier's steady presence is critical for a Steelers' OL in transition**\
 `While the Steelers' offensive line goes through constant changes to start the season, a rookie center becomes the mainstay.`\
 https://nytimes.com/athletic/5761160/2024/09/11/pittsburgh-steelers-zach-frazier-offensive-lines/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5761024/2024/09/11/packers-malik-willis-starting-co
 **‘Before I Let Go’ and 5 More Essential Frankie Beverly and Maze Songs**\
 `The singer, who died on Tuesday at 77, had a smooth, sunny delivery that turned at least one track into a lasting anthem of Black celebrations.`\
 https://nytimes.com/2024/09/11/arts/music/frankie-beverly-maze-songs-before-i-let-go.html
-
-**Harris Had a Theory of Trump, and It Was Right**\
-`The vice president successfully baited Trump’s angry, conspiratorial, free-associating side. But what wasn’t said was just as telling.`\
-https://nytimes.com/2024/09/11/opinion/ezra-klein-podcast-debate-react.html
-
-**Six U.N. employees are among dozens of people killed in Israeli airstrikes across Gaza.**\
-`By Anushka Patil`\
-https://nytimes.com/live/2024/09/11/world/israel-hamas-gaza-war/six-un-employees-are-among-dozens-of-people-killed-in-israeli-airstrikes-across-gaza
 
