@@ -1,5 +1,9 @@
 **The Pulse: No one knows what Charles Barkley will do**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5758660/2024/09/11/charles-barkley-nba-tnt-the-pulse/
+
+**The Pulse: No one knows what Charles Barkley will do**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5758660/2024/09/11/charles-barkley-tnt-nba-the-pulse/
 
 **Gomes has the technical midfield profile the England senior team has long been missing**\
