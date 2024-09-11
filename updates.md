@@ -1,3 +1,7 @@
+**Trump and Harris Clash in a Fiery Presidential Debate**\
+`In their first face-to-face meeting, Kamala Harris put Donald Trump on the defensive as the former president tried to tie her to unpopular Biden administration policies.`\
+https://nytimes.com/video/us/elections/100000009685520/trump-harris-debate.html
+
 **Late Night Hosts Declare Harris the Winner in the Debate**\
 `Stephen Colbert said that the vice president needed to “rattle Trump’s cage. And now that it is over, they are still looking for pieces of his cage in low orbit.”`\
 https://nytimes.com/2024/09/11/arts/television/late-night-presidential-debate.html
