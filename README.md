@@ -1,40 +1,40 @@
-**Elliott sidelined with foot fracture**\
-`Liverpool midfielder Harvey Elliott faces at least a month on the sidelines after fracturing his foot on international duty.`\
-https://nytimes.com/athletic/5759754/2024/09/11/harvey-elliott-liverpool-injury-update/
+**Harris Baits Trump: Inside Their Fiery Debate**\
+`Commentators, even Republicans, concluded that the vice president succeeded in provoking the former president.`\
+https://nytimes.com/2024/09/11/podcasts/the-daily/trump-harris-debate.html
 
-**Here’s the latest on the presidential race.**\
-`By Nicholas Nehamas and Jonathan Weisman`\
-https://nytimes.com/live/2024/09/11/us/harris-trump-debate-election/heres-the-latest-on-the-presidential-race
+**Has the U.S. Open's late-night tennis had its day?**\
+`Some say the U.S. Open’s after-dark atmosphere under the lights is unmatched - but is this Grand Slam’s cool quirk slowly losing its allure?`\
+https://nytimes.com/athletic/5740723/2024/09/11/us-open-late-night-tennis-impact/
 
-**Ravens insist they're not worried about their O-line or illegal formation crackdown**\
-`Another big challenge for Baltimore's O-line looms as the Raiders come to town with one of the game’s top edge rushers in Maxx Crosby. `\
-https://nytimes.com/athletic/5759481/2024/09/11/ravens-offensive-line-illegal-formation/
+**What's next for the Oakland Coliseum? As A's exit, trailblazing soccer team takes root there**\
+`The Oakland Roots soccer club will make the Coliseum their home for the 2025 season. Beyond that, the storied stadium's future is TBD. `\
+https://nytimes.com/athletic/5749162/2024/09/11/oakland-coliseum-athletics-roots-soccer-team/
 
-**How the new pieces on defense could vault the Steelers to the next level**\
-`Mike Tomlin raved about veteran newcomers DeShon Elliott and Donte Jackson after Sunday's victory in Atlanta.`\
-https://nytimes.com/athletic/5758628/2024/09/11/steelers-defense-deshon-elliott-donte-jackson/
+**Which 0-1 NFL teams should be worried? From Bengals to Giants and 14 others**\
+`Ravens fans should relax, and Colts fans should be encouraged, but it may be a tough season in New York and elsewhere.`\
+https://nytimes.com/athletic/5756695/2024/09/11/nfl-week-1-losers-panic-index-bengals-giants/
 
-**$1.4 Million Homes in Utah, Georgia and California**\
-`An 1890 Queen Anne Revival house in Salt Lake City, an 1872 brick townhouse in Savannah and a 1938 Spanish-style home in Albany.`\
-https://nytimes.com/2024/09/11/realestate/million-dollar-homes-utah-georgia-california.html
+**One question for each Rangers' forward, from Panarin's scoring to Smith's fit to Rempe's next step**\
+`Can Artemi Panarin keep up his elevated goal-scoring rate? Will Mika Zibanejad struggle again? Questions for each Rangers forward.`\
+https://nytimes.com/athletic/5758483/2024/09/11/rangers-panarin-smith-rempe-questions/
 
-**Native Landscapes Can Be Hard to Plant. But Help Is Here.**\
-`The nonprofit group Wild Ones offers a free library of designs, with plants specific to your area — and you don’t have to be a member to use it.`\
-https://nytimes.com/2024/09/11/realestate/landscape-designs-wild-ones.html
+**DeMar DeRozan unplugged: On showing his 'Clark Kent side' and why more athletes should**\
+`The Kings forward, who helped pave a path for athletes to talk about mental health, has co-authored a book about his life and career. `\
+https://nytimes.com/athletic/5757558/2024/09/11/demar-derozan-kings-mental-health-book/
 
-**His Poems Are a Joy to Hear, Even When Their Meanings Aren’t Clear**\
-`In his latest collection, Paul Muldoon continues his longtime trick of marshaling obscure references into fluent, fun and rollicking lyrics.`\
-https://nytimes.com/2024/09/11/books/review/paul-muldoon-joy-in-service-on-rue-tagore-poems.html
+**Bears Week 1 overreactions: What All-22 tells us about Caleb Williams, O-line**\
+`It's too early to worry about the rookie QB, but what about his offensive line and play caller? And how good can the Bears defense be?`\
+https://nytimes.com/athletic/5758963/2024/09/11/bears-week-1-overreactions-caleb-williams/
 
-**The Question Kamala Harris Couldn’t Answer**\
-`Some voters may still be left unsatisfied.`\
-https://nytimes.com/live/2024/09/03/opinion/thepoint/kamala-harris-trump-debate
+**For Giants to have any hope, Brian Burns, Kayvon Thibodeaux-led pass rush must be better**\
+`Burns and Thibodeaux combined for two QB pressures and zero sacks. The Giants defense won't stop anyone with that type of production. `\
+https://nytimes.com/athletic/5758570/2024/09/11/new-york-giants-brian-burns-kayvon-thibodeaux-pass-rush/
 
-**What to Know About the Major Wildfires Burning in the West**\
-`No state is battling more large fires than Oregon. The authorities have arrested a man suspected of starting one of the biggest blazes in California.`\
-https://nytimes.com/2024/09/11/us/wildfires-california-nevada-oregon-idaho.html
+**Our 5 favorite MLB Garbage Pail Kids in 2024 Bowman Chrome**\
+`From "Dominating" Jasson Dominguez to "Drippy" Junior Caminero, GPK and baseball go together surprisingly well`\
+https://nytimes.com/athletic/5758929/2024/09/11/mlb-garbage-pail-kids-bowman-chrome/
 
-**Republican Science Denial Has Nasty Real-World Consequences**\
-`A substantial number of Republican voters are losing faith in science.`\
-https://nytimes.com/2024/09/11/opinion/republicans-science-denial.html
+**Wordle Review No. 1,181**\
+`Scroll down for hints and conversation about the puzzle for Thursday, September 12, 2024.`\
+https://nytimes.com/2024/09/11/crosswords/wordle-review-1181.html
 
