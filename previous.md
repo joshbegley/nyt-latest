@@ -1,3 +1,7 @@
+**After Debate, Harris and Trump Shake Hands at Sept. 11 Memorial**\
+`The morning after their first face-to-face meeting, the two candidates attended a ceremony on the 23rd anniversary of the terror attacks. Vice President Kamala Harris appeared to say “thank you” to her rival.`\
+https://nytimes.com/2024/09/11/us/politics/harris-trump-sept-11-memorial.html
+
 **Harris and Trump Bet on Their Own Sharply Contrasting Views of America**\
 `Former President Donald J. Trump is gambling that Americans are as angry as he is, while Vice President Kamala Harris hopes voters are exhausted by the Trump era and ready to move on.`\
 https://nytimes.com/2024/09/11/us/politics/harris-trump-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/us/trump-vance-aiden-clark-springfield-ohio.html
 **Lowetide: Can Oilers coaching staff find magic again with the current defence?**\
 `Solutions for Edmonton's issues on the back end do not appear to be close at hand.`\
 https://nytimes.com/athletic/5758371/2024/09/11/oilers-lineup-defence-coffey/
-
-**Housing costs remain stubborn, complicating the inflation picture.**\
-`By Ben Casselman`\
-https://nytimes.com/live/2024/09/11/business/cpi-inflation-fed/housing-costs-remain-stubborn-complicating-the-inflation-picture
 
