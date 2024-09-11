@@ -16,7 +16,7 @@ https://nytimes.com/2024/09/11/us/politics/mail-ballots-post-office-problems.htm
 
 **Why Zach Frazier's steady presence is critical for a Steelers' OL in transition**\
 `While the Steelers' offensive line goes through constant changes to start the season, a rookie center becomes the mainstay.`\
-https://nytimes.com/athletic/5761160/2024/09/11/pittsburgh-steelers-zach-frazier-offensive-lines/
+https://nytimes.com/athletic/5761160/2024/09/11/pittsburgh-steelers-zach-frazier-offensive-line/
 
 **White Sox owner Jerry Reinsdorf on woeful season: ‘This year has been very painful for all’**\
 `The White Sox have 15 games left, and they must win 10 to avoid joining the 120-loss New York Mets of 1962 as the worst team of all time.`\
