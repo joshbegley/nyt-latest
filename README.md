@@ -1,3 +1,7 @@
+**Judicial Overhaul Proposal Passes Mexico’s Senate Amid Protests**\
+`A controversial proposal allowing voters to elect judges is expected to be approved as it heads to state legislatures.`\
+https://nytimes.com/video/world/americas/100000009685869/judicial-overhaul-mexico-senate-protests.html
+
 **This hurricane season was expected to be busy.**\
 `By Judson Jones`\
 https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/this-hurricane-season-was-expected-to-be-busy
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/health/chatbots-health-diagnosis-treatments.html
 **Kamala Harris Produced the Show She Wanted**\
 `In Tuesday’s debate, the vice president made herself the studio audience for a cringe comedy starring her opponent.`\
 https://nytimes.com/2024/09/11/arts/television/kamala-harris-donald-trump-debate.html
-
-**Why the Maple Leafs are taking a chance on Max Pacioretty**\
-`Could Pacioretty rise into a top-six role in Toronto?`\
-https://nytimes.com/athletic/5760332/2024/09/11/maple-leafs-pacioretty-contract/
 
