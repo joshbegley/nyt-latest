@@ -1,3 +1,7 @@
+**Lowetide: Can Oilers coaching staff find magic again with the current defence?**\
+`Solutions for Edmonton's issues on the back end do not appear to be close at hand.`\
+https://nytimes.com/athletic/5758371/2024/09/11/oilers-lineup-defence-coffey/
+
 **Housing costs remain stubborn, complicating the inflation picture.**\
 `By Ben Casselman`\
 https://nytimes.com/live/2024/09/11/business/cpi-inflation-fed/housing-costs-remain-stubborn-complicating-the-inflation-picture
