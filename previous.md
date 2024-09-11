@@ -1,3 +1,7 @@
+**Here Are Some of the Prominent Surrogates at the Debate Site**\
+`Anthony Scaramucci and Tulsi Gabbard are there. But you might be surprised which candidate they’re supporting.`\
+https://nytimes.com/2024/09/10/us/politics/debate-surrogates-rfk-gabbard-scaramucci.html
+
 **PGA Tour Meets With Saudi Fund in Hopes of Getting Closer to Deal**\
 `More than a year has passed since the tour agreed to a deal with LIV Golf, but there is some hope an in-person gathering in New York could create momentum.`\
 https://nytimes.com/2024/09/10/business/dealbook/pga-tour-saudi-liv-golf-nyc.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5758928/2024/09/10/49ers-christian-mccaffrey-brock-
 **WSL YouTube switch will increase league's 'reach', says women's football CEO**\
 `Nikki Doucet, the CEO of the English women&#8217;s professional game, says moving the Women&#8217;s Super League (WSL) and Championship&#8217;s streaming platform to YouTube will grow the game&#8217;s reach.`\
 https://nytimes.com/athletic/5757935/2024/09/10/nikki-doucet-wsl-youtube/
-
-**The Optimism and Anxiety Ahead of Tonight’s Debate**\
-`I asked again how you’re feeling about the debate. You responded with new worries and hopes.`\
-https://nytimes.com/2024/09/10/us/politics/trump-harris-debate-election.html
 

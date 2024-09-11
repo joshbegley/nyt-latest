@@ -1,3 +1,7 @@
+**Here Are Some of the Prominent Surrogates at the Debate Site**\
+`Anthony Scaramucci and Tulsi Gabbard are there. But you might be surprised which candidate they’re supporting.`\
+https://nytimes.com/2024/09/10/us/politics/debate-surrogates-rfk-gabbard-scaramucci.html
+
 **Kyle Schwarber hits record leadoff home run, leaves game with elbow injury**\
 `Schwarber's 14th leadoff homer broke Alfonso Soriano's mark, which had stood since 2003. He has bashed seven homers in his last eight games.`\
 https://nytimes.com/athletic/5759305/2024/09/10/kyle-schwarber-leadoff-home-runs-record/
