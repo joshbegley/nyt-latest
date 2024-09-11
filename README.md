@@ -14,11 +14,11 @@ https://nytimes.com/2024/09/11/podcasts/transcript-ezra-klein-harris-trump-debat
 `The city manager in Springfield, Ohio, said it was disappointing that the presidential race was amplifying a bizarre narrative about the city’s immigrants.`\
 https://nytimes.com/2024/09/11/us/politics/trump-springfield-ohio-immigrants-pets-pushback.html
 
-**As Francine arrives, painful memories of past storms stoke fears.**\
+**Francine Arrives in a Region With Painful Memories of Past Storms**\
 `Francine could cut a somewhat similar path as Hurricane Ida, which left a trail of devastating consequences in 2021.`\
-https://nytimes.com/2024/09/11/weather/as-francine-arrives-painful-memories-of-past-storms-stoke-fears.html
+https://nytimes.com/2024/09/11/weather/francine-hurricane-ida.html
 
-**How Packers QB Malik Willis is preparing for likely start: 'I have to be ready'**\
+**'I have to be ready': How Packers QB Malik Willis is preparing for likely start**\
 `The Packers are keeping the door open for Jordan Love to play Sunday, but it'll likely be Willis leading the offense against the Colts.`\
 https://nytimes.com/athletic/5761024/2024/09/11/packers-malik-willis-starting-colts/
 
