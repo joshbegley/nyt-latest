@@ -1,3 +1,15 @@
+**In critical moment, Francisco Lindor delivers a signature swing for the Mets**\
+`What has Lindor meant to the Mets this season? “Everything,” as one teammate said.`\
+https://nytimes.com/athletic/5761371/2024/09/11/in-critical-moment-francisco-lindor-delivers-a-signature-swing-for-the-mets/
+
+**67.1 Million People Watched Harris and Trump, Outdrawing Last Debate**\
+`The TV audience for the Harris-Trump matchup was roughly comparable to the second Trump-Clinton debate in 2016.`\
+https://nytimes.com/2024/09/11/business/media/harris-trump-debate-ratings.html
+
+**Former Realtor Employee Files Sexual Harassment Suit Against Trade Group**\
+`A woman who worked for the National Association of Realtors says she was fired after she reported instances of sexual harassment and discrimination, according to a federal lawsuit.`\
+https://nytimes.com/2024/09/11/realestate/nar-realtors-sexual-harassment-lawsuit.html
+
 **Is Donald Trump Too Emotional for This?**\
 `Kamala Harris sought to rattle Trump — and flip a gender dynamic on its head.`\
 https://nytimes.com/2024/09/11/us/politics/trump-debate-emotions.html

@@ -1,3 +1,15 @@
+**In critical moment, Francisco Lindor delivers a signature swing for the Mets**\
+`What has Lindor meant to the Mets this season? “Everything,” as one teammate said.`\
+https://nytimes.com/athletic/5761371/2024/09/11/in-critical-moment-francisco-lindor-delivers-a-signature-swing-for-the-mets/
+
+**67.1 Million People Watched Harris and Trump, Outdrawing Last Debate**\
+`The TV audience for the Harris-Trump matchup was roughly comparable to the second Trump-Clinton debate in 2016.`\
+https://nytimes.com/2024/09/11/business/media/harris-trump-debate-ratings.html
+
+**Former Realtor Employee Files Sexual Harassment Suit Against Trade Group**\
+`A woman who worked for the National Association of Realtors says she was fired after she reported instances of sexual harassment and discrimination, according to a federal lawsuit.`\
+https://nytimes.com/2024/09/11/realestate/nar-realtors-sexual-harassment-lawsuit.html
+
 **Is Donald Trump Too Emotional for This?**\
 `Kamala Harris sought to rattle Trump — and flip a gender dynamic on its head.`\
 https://nytimes.com/2024/09/11/us/politics/trump-debate-emotions.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/11/us/politics/mail-ballots-post-office-problems.htm
 **Why Zach Frazier's steady presence is critical for a Steelers' OL in transition**\
 `While the Steelers' offensive line goes through constant changes to start the season, a rookie center becomes the mainstay.`\
 https://nytimes.com/athletic/5761160/2024/09/11/pittsburgh-steelers-zach-frazier-offensive-line/
-
-**White Sox owner Jerry Reinsdorf on woeful season: ‘This year has been very painful for all’**\
-`The White Sox have 15 games left, and they must win 10 to avoid joining the 120-loss New York Mets of 1962 as the worst team of all time.`\
-https://nytimes.com/athletic/5761314/2024/09/11/white-sox-jerry-reinsdorf-losing-season/
-
-**French Ship That Sank in 1856 Disaster Is Found Off Massachusetts Coast**\
-`Le Lyonnais was discovered in the Atlantic Ocean about 140 miles east of Nantucket, Mass. More than 100 died after the French passenger steamship sank.`\
-https://nytimes.com/2024/09/11/us/le-lyonnais-shipwreck-found-massachusetts.html
-
-**Transcript: Ezra Klein on the Harris-Trump Debate**\
-`The September 11, 2024, episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2024/09/11/podcasts/transcript-ezra-klein-harris-trump-debate-reaction.html
 
