@@ -1,3 +1,11 @@
+**The Hurricane Season Is Suddenly Looking More Active**\
+`Forecasters are watching more than just Francine, as several other storm systems could become the next named storm in the Atlantic.`\
+https://nytimes.com/2024/09/11/weather/hurricane-season-update-forecast.html
+
+**White Sox watch: Rally falls short in 15th consecutive home loss**\
+`The 2024 Chicago White Sox are on pace to eclipse the 120-loss New York Mets of 1962. Can they avoid infamy?`\
+https://nytimes.com/athletic/5734497/2024/09/11/white-sox-watch-most-losses-season/
+
 **In New Orleans, Streets Turn Quiet as Water Builds Ahead of Francine’s Landfall**\
 `As Francine, a Category 1 hurricane, barreled toward Louisiana, many residents stayed indoors, concerned about potential flooding and power outages.`\
 https://nytimes.com/2024/09/11/weather/new-orleans-hurricane-francine.html
@@ -29,8 +37,4 @@ https://nytimes.com/athletic/5760925/2024/09/11/daniel-jones-fan-reaction/
 **Online Legions for Trump and Harris Clash, Wielding Images of Cats and Aliens**\
 `Supporters of Donald J. Trump and Kamala Harris are taking the debate’s spiciest moments for inspiration in memes, video reels and fake photos.`\
 https://nytimes.com/2024/09/11/us/politics/debate-trump-harris-memes.html
-
-**Thursday Briefing: Who Won the Harris-Trump Debate?**\
-`Plus, a video game provokes outrage.`\
-https://nytimes.com/2024/09/11/briefing/debate-ukraine-mexico.html
 
