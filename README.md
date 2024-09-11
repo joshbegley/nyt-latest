@@ -31,7 +31,7 @@ https://nytimes.com/athletic/5759573/2024/09/11/twins-offense-break-out-rally-sa
 https://nytimes.com/athletic/5759542/2024/09/11/blue-jays-davis-schneider-slump/
 
 **The Moment Trump Couldn’t Resist Bungling**\
-`Kamala Harris knew what she wanted Trump to do. He did not disappoint her.`\
+`A four-minute stretch, in which the former president wandered from crowd sizes to cat conspiracies, captured his difficult night.`\
 https://nytimes.com/2024/09/11/us/politics/trump-harris-debate-moments.html
 
 **Chelsea's ownership structure: Who owns what at Stamford Bridge?**\
