@@ -32,7 +32,7 @@ https://nytimes.com/2024/09/11/opinion/republicans-science-denial.html
 
 **The storm could still gain strength. Here’s what to know.**\
 `The storm is expected to make landf`\
-https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/hurricane-francine-louisiana
+https://nytimes.com/2024/09/11/weather/hurricane-francine-louisiana.html
 
 **3 Shel Silverstein Poems to Read With Your Children**\
 `Hilarious and tender, he was ahead of his time.`\
