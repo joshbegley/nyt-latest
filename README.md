@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5760786/2024/09/11/thierry-henery-criticise-footbal
 https://nytimes.com/2024/09/11/us/politics/vance-trump-abortion-ban.html
 
 **Guards Say Top Adams Aide Threatened Them After Having Them Arrested**\
-`Two security guards said the aide, Timothy Pearson, attacked them then had them arrested. Federal agents seized his cellphone last week as part of 0a separate investigation.`\
+`Two security guards said the aide, Timothy Pearson, attacked them then had them arrested. Federal agents seized his cellphone last week as part of a separate investigation.`\
 https://nytimes.com/2024/09/11/nyregion/timothy-pearson-guards-migrants.html
 
 **Islamists Gain in Jordan, Reflecting Public Anger Over Gaza War**\
