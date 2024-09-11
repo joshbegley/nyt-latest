@@ -1,3 +1,11 @@
+**Harris Dominates as Trump Gets Defensive: 6 Takeaways From the Debate**\
+`Laying out bait that Donald Trump eagerly snatched, the vice president owned much of the night, keeping him on the back foot and avoiding sustained attention on her own vulnerabilities.`\
+https://nytimes.com/2024/09/11/us/politics/trump-harris-debate-takeaways.html
+
+**The Moment Trump Couldn’t Resist Bungling**\
+`A four-minute stretch, in which the former president wandered from crowd sizes to cat conspiracies, captured his difficult night.`\
+https://nytimes.com/2024/09/11/us/politics/trump-harris-debate-moments.html
+
 **Harris Put Trump on Defense Over Abortion — and Kept Him There**\
 `For Trump, anger seemed to be the feeling of the night.`\
 https://nytimes.com/2024/09/11/us/politics/harris-trump-abortion-debate.html
