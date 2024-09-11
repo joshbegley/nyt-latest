@@ -1,3 +1,7 @@
+**Trump’s False Tale of Immigrants’ Eating Pets Draws Pushback and Derision**\
+`The city manager in Springfield, Ohio, said it was disappointing that the presidential race was amplifying a bizarre narrative about the city’s immigrants.`\
+https://nytimes.com/2024/09/11/us/politics/trump-springfield-ohio-immigrants-pets-pushback.html
+
 **As Francine arrives, painful memories of past storms stoke fears.**\
 `By Rick Rojas`\
 https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/as-francine-arrives-painful-memories-of-past-storms-stoke-fears

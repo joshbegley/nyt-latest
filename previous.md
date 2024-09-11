@@ -1,3 +1,7 @@
+**Trump’s False Tale of Immigrants’ Eating Pets Draws Pushback and Derision**\
+`The city manager in Springfield, Ohio, said it was disappointing that the presidential race was amplifying a bizarre narrative about the city’s immigrants.`\
+https://nytimes.com/2024/09/11/us/politics/trump-springfield-ohio-immigrants-pets-pushback.html
+
 **As Francine arrives, painful memories of past storms stoke fears.**\
 `By Rick Rojas`\
 https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/as-francine-arrives-painful-memories-of-past-storms-stoke-fears
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/briefing/harris-trump-debate-aftermath-russia-ukr
 **OpenAI in Fund-Raising Talks That Could Value Company at $150 Billion**\
 `The San Francisco start-up hopes to raise $6.5 billion as part of an aggressive push for more investment.`\
 https://nytimes.com/2024/09/11/technology/openai-fund-raising-valuation.html
-
-**England’s Health Service Is in Deep Trouble, Report Finds**\
-`A government-commissioned review into the National Health Service laid bare the challenge Prime Minister Keir Starmer faces after years of underinvestment.`\
-https://nytimes.com/2024/09/11/world/europe/nhs-starmer-darzi-report.html
 
