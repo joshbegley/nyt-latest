@@ -1,3 +1,7 @@
+**Mexico’s Judicial Overhaul Overcomes Its Biggest Obstacle: The Senate**\
+`The Senate’s approval cleared away the last major obstacle to the sweeping proposals championed by the president, which have prompted nationwide strikes.`\
+https://nytimes.com/2024/09/11/world/americas/mexico-judical-overhaul-senate-vote.html
+
 **‘The End of Our Country’: Trump Paints Dark Picture at Debate**\
 `Former President Donald J. Trump offered a dire portrait of America, often relying on false and debunked claims as he described “a failing nation.”`\
 https://nytimes.com/2024/09/11/us/politics/trump-debate-dark-picture.html
