@@ -1,3 +1,11 @@
+**Where Do Trump and Harris Stand on Israel-Gaza Conflict?**\
+`The war in Gaza merited a few scant mentions in the presidential debate. Here’s a look at where Vice President Kamala Harris and former President Donald Trump stand.`\
+https://nytimes.com/2024/09/11/world/middleeast/trump-harris-israel-gaza.html
+
+**With New Prime Minister, a ‘Rupture’ in French Politics and Barbs for Macron**\
+`President Emmanuel Macron’s newly picked prime minister wasted no time in putting a pointed distance between himself and France’s beleaguered leader.`\
+https://nytimes.com/2024/09/11/world/europe/france-macron-barnier-prime-minister.html
+
 **Kawakami: Brock Purdy's average/ideal game and more 49ers Week 1 conclusions**\
 `Purdy is 18-4 in the regular season as an NFL starter, largely because of perfectly average games like Monday's victory over the Jets.`\
 https://nytimes.com/athletic/5758306/2024/09/11/brock-purdy-nick-sorensen-49ers-week-1-conclusions/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/11/world/middleeast/biden-israel-shooting-west-bank-
 **The Athletic FC: How USMNT sealed Pochettino deal, data debate and a hat-trick race**\
 `In today's TAFC: How US Soccer finally got a deal done with Pochettino, an international round-up, a data debate and charting PL hat-tricks`\
 https://nytimes.com/athletic/5759768/2024/09/11/how-usmnt-sealed-pochettino-deal-the-data-debate-premier-league-hat-trick-race/
-
-**Trump Media’s Stock Plunges After Debate**\
-`Shares of the parent company of Truth Social, which have traded like a proxy for former President Donald Trump’s election prospects, are set to open at a new low for the year.`\
-https://nytimes.com/2024/09/11/us/politics/trump-media-stock-truth-social-debate.html
-
-**Man Utd announce £113m net loss for 2023-24**\
-`Manchester United posted a net loss of £113.`\
-https://nytimes.com/athletic/5759800/2024/09/11/manchester-united-financial-results-2023-24/
 
