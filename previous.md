@@ -1,3 +1,19 @@
+**England’s Health Service Is in Deep Trouble, Report Finds**\
+`A government-commissioned review into the National Health Service laid bare the challenge Prime Minister Keir Starmer faces after years of underinvestment.`\
+https://nytimes.com/2024/09/11/world/europe/nhs-starmer-darzi-report.html
+
+**Trump’s Playbook on Abortion Includes This False Charge**\
+`During the debate, the former president used the phrase “execute the baby” to attack Kamala Harris for her support of abortion rights.`\
+https://nytimes.com/2024/09/11/us/trump-abortion-debate.html
+
+**James Sasser, Senator and Clinton’s Envoy to China, Dies at 87**\
+`He became ambassador after three terms as a senator from Tennessee. In 1999, he was made a virtual prisoner in the embassy in Beijing during a siege by protesters.`\
+https://nytimes.com/2024/09/11/us/politics/james-sasser-dead.html
+
+**Popcast: Kendrick Lamar at the Super Bowl, Sabrina Carpenter on Top**\
+`Plus: A conversation about the career of Rich Homie Quan, who died last week.`\
+https://nytimes.com/2024/09/11/arts/music/popcast-kendrick-lamar-sabrina-carpenter.html
+
 **The Hurricane Season Is Suddenly Looking More Active**\
 `Forecasters are watching more than just Francine, as several other storm systems could become the next named storm in the Atlantic.`\
 https://nytimes.com/2024/09/11/weather/hurricane-season-update-forecast.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/11/opinion/trump-harris-debate-joseph-gordon-levitt.
 **A Debate Recap With Song, Dance and Joseph Gordon-Levitt**\
 `The debate analysis you didn’t know you needed.`\
 https://nytimes.com/video/opinion/100000009683757/trump-harris-debate-joseph-gordon-levitt.html
-
-**Fact check: Trump misled about a Russian pipeline during the debate.**\
-`The former president asserted that he had stopped a pipeline and that President Biden “put it back on Day 1.”`\
-https://nytimes.com/live/2024/09/11/us/harris-trump-debate-election/trump-debate-nordstream-pipeline
-
-**Harris Outwitted Trump, but Will That Sway Undecided Voters?**\
-`The election is too close to call, but the vice president has exposed the former president.`\
-https://nytimes.com/2024/09/11/opinion/harris-trump-debate.html
-
-**Daniel Jones on fans' frustrations: 'I got to play better'**\
-`Giants QB Daniel Jones said he understands why fans are frustrated after the team's season-opening loss to the Vikings.`\
-https://nytimes.com/athletic/5760925/2024/09/11/daniel-jones-fan-reaction/
-
-**Online Legions for Trump and Harris Clash, Wielding Images of Cats and Aliens**\
-`Supporters of Donald J. Trump and Kamala Harris are taking the debate’s spiciest moments for inspiration in memes, video reels and fake photos.`\
-https://nytimes.com/2024/09/11/us/politics/debate-trump-harris-memes.html
 
