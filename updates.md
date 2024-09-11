@@ -1,3 +1,7 @@
+**Transcript: Ezra Klein on the Harris-Trump Debate**\
+`The September 11, 2024, episode of “The Ezra Klein Show.”`\
+https://nytimes.com/2024/09/11/podcasts/transcript-ezra-klein-harris-trump-debate-reaction.html
+
 **Trump’s False Tale of Immigrants’ Eating Pets Draws Pushback and Derision**\
 `The city manager in Springfield, Ohio, said it was disappointing that the presidential race was amplifying a bizarre narrative about the city’s immigrants.`\
 https://nytimes.com/2024/09/11/us/politics/trump-springfield-ohio-immigrants-pets-pushback.html
