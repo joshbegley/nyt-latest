@@ -1,3 +1,7 @@
+**Commission recommends mediation between PSG and Mbappe over unpaid wages**\
+`A Ligue de Football Professionnel (LFP) legal commission recommended mediation between Paris Saint-Germain and Kylian Mbappe to resolve a contract dispute over the player’s unpaid salary.`\
+https://nytimes.com/athletic/5759966/2024/09/11/kylian-mbappe-psg-unpaid-wages-mediation/
+
 **Donald Sheppard, British D-Day Veteran, Dies at 104**\
 `He helped liberate Bergen-Belsen, the Nazi concentration camp where Anne Frank had died.`\
 https://nytimes.com/2024/09/11/world/europe/donald-sheppard-dead.html
