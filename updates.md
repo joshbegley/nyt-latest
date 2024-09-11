@@ -1,3 +1,7 @@
+**Canucks offseason report card: Grading all of management's summer moves**\
+`Canucks management faced a unenviable series of difficult choices this summer. How did the moves grade out?`\
+https://nytimes.com/athletic/5759691/2024/09/11/canucks-offseason-moves-grades/
+
 **Frankie Beverly, Soul Singer and Maze Frontman, Is Dead at 77**\
 `He had announced a short farewell tour earlier this year and said he would retire after more than 50 years in the music business.`\
 https://nytimes.com/2024/09/11/arts/music/frankie-beverly-dead.html
