@@ -1,3 +1,7 @@
+**Mets plan to line up best starters for critical Atlanta series**\
+`The Mets are 20-8 when Sean Manaea starts, which is why they're looking to pitch him as often as possible in important games. `\
+https://nytimes.com/athletic/5760796/2024/09/11/mets-rotation-wild-card-sean-manaea/
+
 **Is Europe Turning Its Back on the Left?**\
 `The elections went well. It’s what came afterward that is worrying.`\
 https://nytimes.com/2024/09/11/opinion/europe-france-macron-government.html

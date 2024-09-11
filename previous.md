@@ -1,3 +1,7 @@
+**Mets plan to line up best starters for critical Atlanta series**\
+`The Mets are 20-8 when Sean Manaea starts, which is why they're looking to pitch him as often as possible in important games. `\
+https://nytimes.com/athletic/5760796/2024/09/11/mets-rotation-wild-card-sean-manaea/
+
 **Is Europe Turning Its Back on the Left?**\
 `The elections went well. It’s what came afterward that is worrying.`\
 https://nytimes.com/2024/09/11/opinion/europe-france-macron-government.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/11/us/harris-trump-debate-election/democratic-s
 ** An Open Letter on World Contraception Day to Those Concerned About Reproductive Health **\
 `A letter from Dr. Charlotte Owens, Head of Medical Affairs and Outcomes Research at Organon for World Contraception Day`\
 https://nytimes.com/paidpost/organon-pharmaceuticals/2024-world-contraception-day/-an-open-letter-on-world-contraception-day-to-those-concerned-about-reproductive-health.html
-
-**Ravens LB Kyle Van Noy calls Chiefs training staff 'unprofessional'**\
-`Van Noy said he sustained a fractured orbital bone and needed to see an ophthalmologist but was left waiting in the locker room.`\
-https://nytimes.com/athletic/5760541/2024/09/11/ravens-kyle-van-noy-chiefs-training-staff/
 
