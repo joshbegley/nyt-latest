@@ -1,3 +1,27 @@
+**“The Trump administration resulted in a trade deficit — one of the highest we’ve ever seen in the history of America.”**\
+`By Jim Tankersley`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/the-trump-administration-resulted-in-a-trade-deficit-one-of-the-highest-weve-ever-seen
+
+**“She went out in Minnesota and wanted to let criminals that killed people, that burned down Minneapolis.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/she-went-out-in-minnesota-and-wanted-to-let-criminals-that-killed-people-that-burned-down-minneapolis
+
+**“Remember that she was the border czar. She doesn’t want to be called the border czar because she’s embarrassed by the border.”**\
+`By Michael D. Shear`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/remember-that-she-was-the-border-czar-she-doesnt-want-to-be-called-the-border-czar-because-shes-embarrassed-by-the-border
+
+**“By the way, Joe Biden was found essentially guilty on the documents case.”**\
+`By Alan Feuer`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/by-the-way-joe-biden-was-found-essentially-guilty-on-the-documents-case
+
+**“Her vice-presidential pick says abortion in the ninth month is absolutely fine. He also says execution after birth. It’s execution, no longer abortion, because the baby is born is, OK, and that’s not OK with me.”**\
+`“Her vice presidential pick says abortion in the ninth month is absolutely fine. He also says execution after birth. It’s execution, no longer abortion because the baby is born is okay and that’s not okay with me.”`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/her-vice-presidential-pick-says-abortion-in-the-ninth-month-is-absolutely-fine-he-also-says-execution-after-birth-its-execution-
+
+**“And as far as the abortion ban, no, I’m not in favor of abortion ban.”**\
+`By Elizabeth Dias`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/and-as-far-as-the-abortion-ban-no-im-not-in-favor-of-abortion-ban
+
 **I’m Hearing Huge Relief From Democrats Over Harris’s Debate Performance**\
 `Time and again, she laid the bait and Trump took it.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/harris-trump-debate-
@@ -13,28 +37,4 @@ https://nytimes.com/2024/09/10/science/polaris-dawn-spacex-orbit-astronauts.html
 **“In Springfield, they’re eating the dogs. The people that came in, they’re eating the cats. They’re eating — they’re eating the pets of the people that live there.”**\
 `By Hamed Aleaziz`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/in-springfield-theyre-eating-the-dogs-the-people-that-came-in-theyre-eating-the-cats-theyre-eating-theyre-eating-the-pets
-
-**“We made ventilators for the entire world.”**\
-`By Sheryl Gay Stolberg`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/we-made-ventilators-for-the-entire-world
-
-**“People gave me credit for rebuilding the military.”**\
-`By Helene Cooper`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/people-gave-me-credit-for-rebuilding-the-military
-
-**“I have nothing to do with Project 2025.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/i-have-nothing-to-do-with-project-2025
-
-**“We handed them over a country where the economy and with — the stock market was higher than it was before the pandemic came in. Nobody’s ever seen anything like it.”**\
-`By Jeanna Smialek`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/we-handed-them-over-a-country-where-the-economy-and-with-the-stock-market-was-higher-than-it-was-before-the-pandemic-came-in-nob
-
-**“Every legal scholar — every Democrat, every Republican, liberal, conservative — they all wanted” abortion policy “to be brought back to the states.”**\
-`By Kate Zernike`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/every-legal-scholar-every-democrat-every-republican-liberal-conservative-they-all-wanted-abortion-policy-to-be-brought-back
-
-**Immigrants are “coming in and they’re taking jobs that are occupied right now by African Americans.”**\
-`By Zolan Kanno-Youngs`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/immigrants-are-coming-in-and-theyre-taking-jobs-that-are-occupied-right-now-by-african-americans
 
