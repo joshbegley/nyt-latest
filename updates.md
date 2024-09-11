@@ -1,3 +1,7 @@
+**Giants takeaways: Birthday wishes for Marco Luciano, Landon Roupp and more**\
+`Here are some presents that could help four Giants in their quests to be productive major leaguers who contribute to the team's success.`\
+https://nytimes.com/athletic/5759671/2024/09/11/giants-takeaways-marco-luciano-landon-roupp/
+
 **Where Do Trump and Harris Stand on Israel-Gaza Conflict?**\
 `The war in Gaza merited a few scant mentions in the presidential debate. Here’s a look at where Vice President Kamala Harris and former President Donald Trump stand.`\
 https://nytimes.com/2024/09/11/world/middleeast/trump-harris-israel-gaza.html

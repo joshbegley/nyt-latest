@@ -1,3 +1,7 @@
+**Giants takeaways: Birthday wishes for Marco Luciano, Landon Roupp and more**\
+`Here are some presents that could help four Giants in their quests to be productive major leaguers who contribute to the team's success.`\
+https://nytimes.com/athletic/5759671/2024/09/11/giants-takeaways-marco-luciano-landon-roupp/
+
 **Where Do Trump and Harris Stand on Israel-Gaza Conflict?**\
 `The war in Gaza merited a few scant mentions in the presidential debate. Here’s a look at where Vice President Kamala Harris and former President Donald Trump stand.`\
 https://nytimes.com/2024/09/11/world/middleeast/trump-harris-israel-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5758085/2024/09/11/juan-pablo-montoya-nascar-12-que
 **Biden Says He Is ‘Outraged’ Over Killing of American Activist in West Bank**\
 `In his first extensive remarks on the death of Aysenur Eygi, the U.S. president called for accountability from Israel.`\
 https://nytimes.com/2024/09/11/world/middleeast/biden-israel-shooting-west-bank-activist.html
-
-**The Athletic FC: How USMNT sealed Pochettino deal, data debate and a hat-trick race**\
-`In today's TAFC: How US Soccer finally got a deal done with Pochettino, an international round-up, a data debate and charting PL hat-tricks`\
-https://nytimes.com/athletic/5759768/2024/09/11/how-usmnt-sealed-pochettino-deal-the-data-debate-premier-league-hat-trick-race/
 
