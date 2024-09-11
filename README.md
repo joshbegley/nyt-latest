@@ -1,3 +1,7 @@
+**Van Dijk says De Ligt will 'learn' after Netherlands error leads to Germany goal**\
+`Virgil van Dijk says Netherlands centre-back partner Matthijs de Ligt will learn from his mistake after being replaced at half time during the Netherlands&#8217; Nations League draw against Germany.`\
+https://nytimes.com/athletic/5759703/2024/09/11/matthijs-de-ligt-netherlands-virgil-van-dijk/
+
 **Trump and Harris Clash in a Fiery Presidential Debate**\
 `In their first face-to-face meeting, Kamala Harris put Donald Trump on the defensive as the former president tried to tie her to unpopular Biden administration policies.`\
 https://nytimes.com/video/us/elections/100000009685520/trump-harris-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/us/politics/trump-debate-dark-picture.html
 **Why Nearly All Judges in Mexico Could Soon Be Chosen by Voters**\
 `The legislation passed by Congress could produce one of the most far-reaching judicial overhauls in any major democracy.`\
 https://nytimes.com/2024/09/11/world/americas/mexico-judiciary-overhaul.html
-
-**ABC’s Matter-of-Fact Moderators Built Factual Guardrails Around Trump**\
-`Calmly and firmly, Linsey Davis and David Muir pursued the kind of real-time fact-checking missing from many previous debates.`\
-https://nytimes.com/2024/09/11/business/media/debate-moderators-trump-harris.html
 
