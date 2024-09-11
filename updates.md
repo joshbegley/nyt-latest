@@ -1,3 +1,7 @@
+**Reunited with the 'Rally Sausage,' Twins offense breaks out of slumber**\
+`Desperate for a spark after losing 15 times in 21 games, the Twins revived an old friend on Tuesday night.`\
+https://nytimes.com/athletic/5759573/2024/09/11/twins-offense-break-out-rally-sausage/
+
 **Reunited with the 'Rally Sausage,' Twins' offense breaks out of slumber**\
 `Desperate for a spark after losing 15 times in 21 games, the Twins revived an old friend on Tuesday night.`\
 https://nytimes.com/athletic/5759573/2024/09/11/twins-offense-break-out-rally-sausage/
