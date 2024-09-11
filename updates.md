@@ -1,3 +1,7 @@
+**Justin Timberlake to Plead Guilty to Lesser Charge in D.W.I. Case**\
+`The singer, who was charged after an erratic drive in Sag Harbor, N.Y., is expected to appear in person in court on Friday.`\
+https://nytimes.com/2024/09/11/nyregion/justin-timberlake-dwi-plea-deal.html
+
 **One of Trump’s Insidious Lies on Abortion Is Grounded in an Old Truth**\
 `Yes, there were once a few liberals who criticized Roe, but that still doesn’t support his claim.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/one-of-trumps-insidious-lies-on-abortion-is-grounded-in-an-old-truth
