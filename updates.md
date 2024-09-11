@@ -1,4 +1,8 @@
 **Braves' Reynaldo López makes early exit**\
+`A serious injury to López would be a blow to a Braves team battling for one of three NL wild-card spots.`\
+https://nytimes.com/athletic/5759396/2024/09/10/braves-reynaldo-lopez-injury/
+
+**Braves' Reynaldo López makes early exit**\
 `Another day, another injury concern for the Atlanta Braves, who removed starter Reynaldo López from Tuesday&#8217;s game at Washington after one inning due to right-shoulder tightness.`\
 https://nytimes.com/athletic/5759396/2024/09/10/braves-reynaldo-lopez-injury/
 
