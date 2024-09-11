@@ -1,3 +1,7 @@
+**Gulf Coast States Have Been Battered by Hurricanes in Recent Years**\
+`Here’s a look at storms that have hit the area in the last few years.`\
+https://nytimes.com/2024/09/11/weather/gulf-coast-storms-history.html
+
 **Sterilizations Among Women Rose After Roe Was Overturned, Study Finds**\
 `Experts said the research underscored how abortion bans had affected women’s contraceptive choices.`\
 https://nytimes.com/2024/09/11/well/tubal-sterilization-abortion-ban-roe-wade.html

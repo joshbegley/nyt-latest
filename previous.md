@@ -1,3 +1,7 @@
+**Gulf Coast States Have Been Battered by Hurricanes in Recent Years**\
+`Here’s a look at storms that have hit the area in the last few years.`\
+https://nytimes.com/2024/09/11/weather/gulf-coast-storms-history.html
+
 **Sterilizations Among Women Rose After Roe Was Overturned, Study Finds**\
 `Experts said the research underscored how abortion bans had affected women’s contraceptive choices.`\
 https://nytimes.com/2024/09/11/well/tubal-sterilization-abortion-ban-roe-wade.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/climate/trump-harris-climate-change-debate.html
 **Canucks offseason report card: Grading all of management's summer moves**\
 `Canucks management faced a unenviable series of difficult choices this summer. How did the moves grade out?`\
 https://nytimes.com/athletic/5759691/2024/09/11/canucks-offseason-moves-grades/
-
-**Frankie Beverly, Soul Singer and Maze Frontman, Is Dead at 77**\
-`He had announced a short farewell tour earlier this year and said he would retire after more than 50 years in the music business.`\
-https://nytimes.com/2024/09/11/arts/music/frankie-beverly-dead.html
 
