@@ -1,3 +1,11 @@
+**Mo Faal: How did Wrexham's most expensive signing do on his debut for the club?**\
+`The £500,000 signing started up front alongside Paul Mullin and showed some promising signs as Wrexham defeated Salford`\
+https://nytimes.com/athletic/5755363/2024/09/11/mo-faal-wrexham-debut/
+
+**Word of the Day: volatile**\
+`This word has appeared in 684 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/09/11/learning/word-of-the-day-volatile.html
+
 **In Debate With Trump, Harris’s Expressions Were a Weapon**\
 `Tuesday’s debate was expected to center on defining Kamala Harris. Instead, with words and with body language, she turned it into a referendum on Donald Trump.`\
 https://nytimes.com/2024/09/11/us/politics/trump-harris-debate-analysis.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/11/us/politics/trump-harris-debate-who-won.html
 **Best, Worst and Most Surprising Lines From the Presidential Debate**\
 `Kamala Harris reminded viewers she owns a gun. Donald Trump repeated a debunked internet rumor about immigrants eating cats.`\
 https://nytimes.com/2024/09/11/us/politics/debate-trump-harris-best-worst-quotes.html
-
-**Trump Walked Into the Media ‘Spin Room’ Himself After the Debate**\
-`It was an unusual move for a presidential candidate.`\
-https://nytimes.com/2024/09/11/us/politics/trump-debate-spin-room.html
-
-**Reunited with the 'Rally Sausage,' Twins offense breaks out of slumber**\
-`Desperate for a spark after losing 15 times in 21 games, the Twins revived an old friend on Tuesday night.`\
-https://nytimes.com/athletic/5759573/2024/09/11/twins-offense-break-out-rally-sausage/
 
