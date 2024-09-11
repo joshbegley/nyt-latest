@@ -32,7 +32,7 @@ https://nytimes.com/2024/09/11/opinion/republicans-science-denial.html
 
 **Hurricane Francine Bears Down on Louisiana**\
 `The storm is expected to make landfall on Wednesday, bringing the threat of powerful winds, storm surge and flash flooding.`\
-https://nytimes.com/2024/09/11/weather/hurricane-francine-louisiana.html
+https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/hurricane-francine-louisiana
 
 **3 Shel Silverstein Poems to Read With Your Children**\
 `Hilarious and tender, he was ahead of his time.`\
