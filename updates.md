@@ -1,3 +1,11 @@
+**Who Won the Debate? A Sharp Harris Unbalances Trump**\
+`Commentators concluded that Vice President Kamala Harris had succeeded in baiting former President Donald J. Trump into veering off message.`\
+https://nytimes.com/2024/09/11/us/politics/trump-harris-debate-who-won.html
+
+**Best, Worst and Most Surprising Lines From the Presidential Debate**\
+`Kamala Harris reminded viewers she owns a gun. Donald Trump repeated a debunked internet rumor about immigrants eating cats.`\
+https://nytimes.com/2024/09/11/us/politics/debate-trump-harris-best-worst-quotes.html
+
 **Trump Walked Into the Media ‘Spin Room’ Himself After the Debate**\
 `It was an unusual move for a presidential candidate.`\
 https://nytimes.com/2024/09/11/us/politics/trump-debate-spin-room.html
