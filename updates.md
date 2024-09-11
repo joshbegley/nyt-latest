@@ -1,3 +1,7 @@
+**As Francine arrives, painful memories of past storms stoke fears.**\
+`By Rick Rojas`\
+https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/as-francine-arrives-painful-memories-of-past-storms-stoke-fears
+
 **How Packers QB Malik Willis is preparing for likely start: 'I have to be ready'**\
 `The Packers are keeping the door open for Jordan Love to play Sunday, but it'll likely be Willis leading the offense against the Colts.`\
 https://nytimes.com/athletic/5761024/2024/09/11/packers-malik-willis-starting-colts/
