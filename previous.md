@@ -1,3 +1,7 @@
+**Kamala Harris Produced the Show She Wanted**\
+`In Tuesday’s debate, the vice president made herself the studio audience for a cringe comedy starring her opponent.`\
+https://nytimes.com/2024/09/11/arts/television/kamala-harris-donald-trump-debate.html
+
 **Why the Maple Leafs are taking a chance on Max Pacioretty**\
 `Could Pacioretty rise into a top-six role in Toronto?`\
 https://nytimes.com/athletic/5760332/2024/09/11/maple-leafs-pacioretty-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5759993/2024/09/11/thomas-saggese-cardinals-athleti
 **Has Lee Carsley done enough to get the England job full time? - The Debate**\
 `Carsley has been in interim charge for two games and won both, but is that enough to give him the England job full time? Two writers discuss`\
 https://nytimes.com/athletic/5759828/2024/09/11/next-england-manager-lee-carsley/
-
-**Who are the biggest USMNT winners and losers as Mauricio Pochettino takes over?**\
-`Which USMNT players will look forward to their new head coach starting - and who might be concerned?`\
-https://nytimes.com/athletic/5712255/2024/09/11/usmnt-pochettino-winners-losers/
 

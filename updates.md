@@ -1,3 +1,7 @@
+**Kamala Harris Produced the Show She Wanted**\
+`In Tuesday’s debate, the vice president made herself the studio audience for a cringe comedy starring her opponent.`\
+https://nytimes.com/2024/09/11/arts/television/kamala-harris-donald-trump-debate.html
+
 **Why the Maple Leafs are taking a chance on Max Pacioretty**\
 `Could Pacioretty rise into a top-six role in Toronto?`\
 https://nytimes.com/athletic/5760332/2024/09/11/maple-leafs-pacioretty-contract/
