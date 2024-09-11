@@ -1,3 +1,11 @@
+**Polaris Dawn Astronauts Reach Record High Orbit Above Earth**\
+`After launching early on Tuesday, the billionaire Jared Isaacman and his crew traveled to altitudes not visited by any astronaut since the Apollo moon missions of the 1960s and ’70s.`\
+https://nytimes.com/2024/09/10/science/polaris-dawn-spacex-orbit-astronauts.html
+
+**“In Springfield, they’re eating the dogs. The people that came in, they’re eating the cats. They’re eating — they’re eating the pets of the people that live there.”**\
+`By Hamed Aleaziz`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/in-springfield-theyre-eating-the-dogs-the-people-that-came-in-theyre-eating-the-cats-theyre-eating-theyre-eating-the-pets
+
 **“We made ventilators for the entire world.”**\
 `By Sheryl Gay Stolberg`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/we-made-ventilators-for-the-entire-world
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/10/us/harris-trump-debate/immigrants-are-taking
 **“She’s a Marxist. Everybody knows she’s a Marxist.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/shes-a-marxist-everybody-knows-shes-a-marxist
-
-**“We have inflation like very few people have ever seen before. Probably the worst in our nation’s history: We were at 21 percent.”**\
-`By Jeanna Smialek`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/we-have-inflation-like-very-few-people-have-ever-seen-before-probably-the-worst-in-our-nations-history-we-were-at-21-percent
-
-**“We have millions of people pouring into our country from prisons and jails, from mental institutions and insane asylums.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/we-have-millions-of-people-pouring-into-our-country-from-prisons-and-jails-from-mental-institutions-and-insane-asylums
 
