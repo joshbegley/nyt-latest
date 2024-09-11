@@ -1,3 +1,7 @@
+**Sleep Routine**\
+`What do you do to get ready for a good night’s rest?`\
+https://nytimes.com/2024/09/11/learning/sleep-routine.html
+
 **Pundits Said Harris Won the Debate. Undecided Voters Weren’t So Sure.**\
 `Voters said the vice president talked about a sweeping vision to fix the country’s most stubborn problems. But they wanted the fine print.`\
 https://nytimes.com/2024/09/11/us/politics/undecided-voters-react-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5759663/2024/09/11/dodgers-yoshinobu-yamamoto/
 **Ake forced off with injury on international duty with the Netherlands**\
 `Manchester City defender Nathan Ake was forced off in the Netherlands&#8217; Nations League draw against Germany due to an apparent muscle injury.`\
 https://nytimes.com/athletic/5758754/2024/09/11/nathan-ake-injury-netherlands-manchester-city/
-
-**‘The End of Our Country’: Trump Paints Dark Picture at Debate**\
-`Former President Donald J. Trump offered a dire portrait of America, often relying on false and debunked claims as he described “a failing nation.”`\
-https://nytimes.com/2024/09/11/us/politics/trump-debate-dark-picture.html
 
