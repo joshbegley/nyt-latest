@@ -1,3 +1,11 @@
+**Why a YouTuber’s Drastic Weight Loss Went Viral**\
+`Nikocado Avocado, a popular vlogger known for his mukbang videos, said he spent the last two years plotting the reveal.`\
+https://nytimes.com/2024/09/11/style/nikocado-avocado-youtuber-weight-loss.html
+
+**A Debate Recap With Song, Dance and Joseph Gordon-Levitt**\
+`The debate analysis you didn’t know you needed.`\
+https://nytimes.com/2024/09/11/opinion/trump-harris-debate-joseph-gordon-levitt.html
+
 **A Debate Recap With Song, Dance and Joseph Gordon-Levitt**\
 `The debate analysis you didn’t know you needed.`\
 https://nytimes.com/video/opinion/100000009683757/trump-harris-debate-joseph-gordon-levitt.html
@@ -25,8 +33,4 @@ https://nytimes.com/2024/09/11/briefing/debate-ukraine-mexico.html
 **Justin Timberlake to Plead Guilty to Lesser Charge in D.W.I. Case**\
 `The singer, who was charged after an erratic drive in Sag Harbor, N.Y., is expected to appear in person in court on Friday.`\
 https://nytimes.com/2024/09/11/nyregion/justin-timberlake-dwi-plea-deal.html
-
-**One of Trump’s Insidious Lies on Abortion Is Grounded in an Old Truth**\
-`Yes, there were once a few liberals who criticized Roe, but that still doesn’t support his claim.`\
-https://nytimes.com/live/2024/09/03/opinion/thepoint/one-of-trumps-insidious-lies-on-abortion-is-grounded-in-an-old-truth
 
