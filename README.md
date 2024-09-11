@@ -1,3 +1,19 @@
+**Biden “ended the XL pipeline, the XL pipeline in our country. He ended that.”**\
+`By Lisa Friedman`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/biden-ended-the-xl-pipeline-the-xl-pipeline-in-our-country-he-ended-that
+
+**“A lot of these illegal immigrants coming in —” Democrats are “trying to get them to vote.”**\
+`By Alexandra Berzon`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/a-lot-of-these-illegal-immigrants-coming-in-democrats-are-trying-to-get-them-to-vote
+
+**I “have built it into many, many billions of dollars; many, many billions.”**\
+`By Benjamin Protess`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/i-have-built-it-into-many-many-billions-of-dollars-many-many-billions
+
+**“She wouldn’t even meet with Netanyahu when he went to Congress to make a very important speech. She refused to be there because she was at a sorority party of hers.”**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/she-wouldnt-even-meet-with-netanyahu-when-he-went-to-congress-to-make-a-very-important-speech-she-refused-to-be-there-because-sh
+
 **On Abortion, Trump Floundered in Fantasy Land**\
 `Abortion bans are a losing issue for Republicans.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/harris-trump-debate-abortion
@@ -21,20 +37,4 @@ https://nytimes.com/live/2024/09/10/us/harris-trump-debate/every-one-of-those-ca
 **Harris Blames Trump for State Abortion Bans in Contentious Debate**\
 `Vice President Kamala Harris went on offense over abortion policy. “The government and Donald Trump, certainly, should not be telling a woman what to do with her body,” she said.`\
 https://nytimes.com/2024/09/10/us/politics/harris-trump-abortion-debate.html
-
-**“And when she ran, she was the first one to leave because she failed” in the 2020 Democratic presidential primary.**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/and-when-she-ran-she-was-the-first-one-to-leave-because-she-failed-in-the-2020-democratic-presidential-primary
-
-**Harris appears more interested in talking to voters than battling Trump.**\
-`By Michael C. Bender`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/harris-appears-more-interested-in-talking-to-voters-than-battling-trump
-
-**“Donald Trump, the candidate, has said in this election there will be a blood bath if this, and the outcome of this election, is not to his liking.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/donald-trump-the-candidate-has-said-in-this-election-there-will-be-a-blood-bath-if-this-and-the-outcome-of-this-election-is-not-
-
-**“I had nothing to do” with Jan. 6**\
-`By Luke Broadwater`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/i-had-nothing-to-do-with-jan-6
 
