@@ -1,3 +1,19 @@
+**How Climate Change Is Transforming Hurricanes**\
+`Scientists are confident that the warming of the planet is affecting how storms behave.`\
+https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/climate-change-hurricanes
+
+**Edward Johnson, C.I.A. Hero in Iran Hostage Crisis, Dies at 81**\
+`He was a secret partner who helped rescue six American diplomats in 1980 by passing them off as a film crew. The caper inspired the movie “Argo.”`\
+https://nytimes.com/2024/09/11/us/edward-johnson-dead.html
+
+**Deshaun Watson to play vs. Jaguars on Sunday**\
+`A woman filed a lawsuit against Watson on Monday accusing him of sexual assault and battery.`\
+https://nytimes.com/athletic/5760495/2024/09/11/deshaun-watson-sexual-assault-browns-jaguars/
+
+**‘There’s a storm coming?’ A Mississippi casino braces for Francine, but patrons are still rolling the dice.**\
+`By Isabelle Taft`\
+https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/theres-a-storm-coming-a-mississippi-casino-braces-for-francine-but-patrons-are-still-rolling-the-dice
+
 **Johnson Scraps Vote on Spending Extension Amid Bipartisan Resistance**\
 `The scuttling of the six-month stopgap measure, which includes a requirement to show proof of U.S. citizenship when registering to vote, sets back Republicans’ plan to avert a government shutdown.`\
 https://nytimes.com/2024/09/11/us/politics/congress-spending-bill.html
