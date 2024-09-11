@@ -1,3 +1,15 @@
+**Norfolk Southern Fires Chief Executive After Ethics Investigation**\
+`The railroad company’s board said it dismissed Alan Shaw and an executive he had a consensual relationship with.`\
+https://nytimes.com/2024/09/11/business/norfolk-southern-alan-shaw-ceo.html
+
+**Israeli Strike in Gaza Kills 18, Officials Say, Including 6 U.N. Workers**\
+`While resuming its offensive against militants in the West Bank, Israel also kept up its bombardment of the Gaza Strip, striking a school building used as a shelter for displaced people.`\
+https://nytimes.com/2024/09/11/world/middleeast/israel-raids-west-bank.html
+
+**Why Zach Frazier's steady presence is critical for a Steelers' OL in transition**\
+`While the Steelers' offensive line goes through constant changes to start the season, a rookie center becomes the mainstay.`\
+https://nytimes.com/athletic/5761160/2024/09/11/pittsburgh-steelers-zach-frazier-offensive-line/
+
 **49ers’ Christian McCaffrey on his injury and mindset: ‘My mentality is I’m playing’**\
 `McCaffrey said he sees his decision as a "chess move" that will benefit him and the 49ers the rest of the season.`\
 https://nytimes.com/athletic/5761285/2024/09/11/christian-mccaffrey-49ers-injury-status-vikings/

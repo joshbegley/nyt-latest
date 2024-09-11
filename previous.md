@@ -1,3 +1,11 @@
+**Norfolk Southern Fires Chief Executive After Ethics Investigation**\
+`The railroad company’s board said it dismissed Alan Shaw and an executive he had a consensual relationship with.`\
+https://nytimes.com/2024/09/11/business/norfolk-southern-alan-shaw-ceo.html
+
+**Israeli Strike in Gaza Kills 18, Officials Say, Including 6 U.N. Workers**\
+`While resuming its offensive against militants in the West Bank, Israel also kept up its bombardment of the Gaza Strip, striking a school building used as a shelter for displaced people.`\
+https://nytimes.com/2024/09/11/world/middleeast/israel-raids-west-bank.html
+
 **49ers’ Christian McCaffrey on his injury and mindset: ‘My mentality is I’m playing’**\
 `McCaffrey said he sees his decision as a "chess move" that will benefit him and the 49ers the rest of the season.`\
 https://nytimes.com/athletic/5761285/2024/09/11/christian-mccaffrey-49ers-injury-status-vikings/
@@ -8,7 +16,7 @@ https://nytimes.com/2024/09/11/us/politics/mail-ballots-post-office-problems.htm
 
 **Why Zach Frazier's steady presence is critical for a Steelers' OL in transition**\
 `While the Steelers' offensive line goes through constant changes to start the season, a rookie center becomes the mainstay.`\
-https://nytimes.com/athletic/5761160/2024/09/11/pittsburgh-steelers-zach-frazier-offensive-lines/
+https://nytimes.com/athletic/5761160/2024/09/11/pittsburgh-steelers-zach-frazier-offensive-line/
 
 **White Sox owner Jerry Reinsdorf on woeful season: ‘This year has been very painful for all’**\
 `The White Sox have 15 games left, and they must win 10 to avoid joining the 120-loss New York Mets of 1962 as the worst team of all time.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/11/us/politics/trump-springfield-ohio-immigrants-pet
 **Francine Arrives in a Region With Painful Memories of Past Storms**\
 `Francine could cut a somewhat similar path as Hurricane Ida, which left a trail of devastating consequences in 2021.`\
 https://nytimes.com/2024/09/11/weather/francine-hurricane-ida.html
-
-**'I have to be ready': How Packers QB Malik Willis is preparing for likely start**\
-`The Packers are keeping the door open for Jordan Love to play Sunday, but it'll likely be Willis leading the offense against the Colts.`\
-https://nytimes.com/athletic/5761024/2024/09/11/packers-malik-willis-starting-colts/
-
-**‘Before I Let Go’ and 5 More Essential Frankie Beverly and Maze Songs**\
-`The singer, who died on Tuesday at 77, had a smooth, sunny delivery that turned at least one track into a lasting anthem of Black celebrations.`\
-https://nytimes.com/2024/09/11/arts/music/frankie-beverly-maze-songs-before-i-let-go.html
 
