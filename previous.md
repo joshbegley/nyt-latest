@@ -1,3 +1,11 @@
+**Elliott sidelined with foot fracture**\
+`Liverpool midfielder Harvey Elliott faces at least a month on the sidelines after fracturing his foot on international duty.`\
+https://nytimes.com/athletic/5759754/2024/09/11/harvey-elliott-liverpool-injury-update/
+
+**Here’s the latest on the presidential race.**\
+`By Nicholas Nehamas and Jonathan Weisman`\
+https://nytimes.com/live/2024/09/11/us/harris-trump-debate-election/heres-the-latest-on-the-presidential-race
+
 **Ravens insist they're not worried about their O-line or illegal formation crackdown**\
 `Another big challenge for Baltimore's O-line looms as the Raiders come to town with one of the game’s top edge rushers in Maxx Crosby. `\
 https://nytimes.com/athletic/5759481/2024/09/11/ravens-offensive-line-illegal-formation/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/11/us/wildfires-california-nevada-oregon-idaho.html
 **Republican Science Denial Has Nasty Real-World Consequences**\
 `A substantial number of Republican voters are losing faith in science.`\
 https://nytimes.com/2024/09/11/opinion/republicans-science-denial.html
-
-**The storm could still gain strength. Here’s what to know.**\
-`The storm is expected to make landf`\
-https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/hurricane-francine-louisiana
-
-**3 Shel Silverstein Poems to Read With Your Children**\
-`Hilarious and tender, he was ahead of his time.`\
-https://nytimes.com/2024/09/11/podcasts/3-shel-silverstein-poems-to-read-with-your-children.html
 

@@ -1,3 +1,11 @@
+**Elliott sidelined with foot fracture**\
+`Liverpool midfielder Harvey Elliott faces at least a month on the sidelines after fracturing his foot on international duty.`\
+https://nytimes.com/athletic/5759754/2024/09/11/harvey-elliott-liverpool-injury-update/
+
+**Here’s the latest on the presidential race.**\
+`By Nicholas Nehamas and Jonathan Weisman`\
+https://nytimes.com/live/2024/09/11/us/harris-trump-debate-election/heres-the-latest-on-the-presidential-race
+
 **The storm could still gain strength. Here’s what to know.**\
 `The storm is expected to make landf`\
 https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/hurricane-francine-louisiana
