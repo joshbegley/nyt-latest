@@ -1,3 +1,7 @@
+**Donald Sheppard, British D-Day Veteran, Dies at 104**\
+`He helped liberate Bergen-Belsen, the Nazi concentration camp where Anne Frank had died.`\
+https://nytimes.com/2024/09/11/world/europe/donald-sheppard-dead.html
+
 **Debate May Widen the Money Gap Between Harris and Trump**\
 `Large donors to former President Donald J. Trump’s campaign expressed concern after his performance. The Democrats raised big money in the hours after the debate.`\
 https://nytimes.com/2024/09/11/us/politics/trump-harris-debate-money.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/upshot/debate-kamala-harris-trump.html
 **Danity Kane Singer Sues Sean Combs, Alleging Threats and Groping**\
 `Dawn Richard, a member of groups assembled by Mr. Combs, says in the suit that she saw the rap mogul choke his former girlfriend, Cassie. Mr. Combs has not yet responded.`\
 https://nytimes.com/2024/09/11/arts/music/dawn-richard-danity-kane-lawsuit-sean-combs-diddy.html
-
-**Judicial Overhaul Proposal Passes Mexico’s Senate Amid Protests**\
-`A controversial proposal allowing voters to elect judges is expected to be approved as it heads to state legislatures.`\
-https://nytimes.com/video/world/americas/100000009685869/judicial-overhaul-mexico-senate-protests.html
 
