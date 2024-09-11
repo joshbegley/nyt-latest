@@ -1,3 +1,19 @@
+**4 Climbers Are Found Dead on Mont Blanc in the French Alps**\
+`The climbers from Italy and South Korea were found on Tuesday after they went missing three days earlier during a period of bad weather on the peak.`\
+https://nytimes.com/2024/09/11/world/europe/mont-blanc-climber-deaths.html
+
+**Trump’s Alternative for Obamacare Is Now Just ‘Concepts of a Plan’**\
+`Former President Donald J. Trump once promised to replace Obamacare with “something terrific.” But as the 2014 law has become more popular, he has softened his criticism.`\
+https://nytimes.com/2024/09/11/us/politics/trump-obamacare.html
+
+**A Rock Star Offers a Lesson in Crisis Communication**\
+`The timing and content of Dave Grohl’s admission that he had a child outside his marriage was complimented for addressing the issue and relying on short memories.`\
+https://nytimes.com/2024/09/11/style/dave-grohl-daughter-instagram.html
+
+**A Temporary Truce in the Political Wars as Harris, Trump and Biden Mark 9/11**\
+`Vice President Kamala Harris and former President Donald J. Trump joined President Biden and other dignitaries in a daylong journey to sites of the terrorist attacks of Sept. 11, 2001.`\
+https://nytimes.com/2024/09/11/us/politics/harris-trump-biden-911.html
+
 **Lloyd Kaufman, Who Saw Answers Behind the ‘Moon Illusion,’ Dies at 97**\
 `He advanced the study of a millenniums-old mystery: why the moon appears larger on the horizon than it does high in the night sky.`\
 https://nytimes.com/2024/09/11/science/lloyd-kaufman-dead.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/11/arts/design/noguchi-museum-employees-kaffiyeh-fir
 **Commission recommends mediation between PSG and Mbappe over unpaid wages**\
 `A Ligue de Football Professionnel (LFP) legal commission recommended mediation between Paris Saint-Germain and Kylian Mbappe to resolve a contract dispute over the player’s unpaid salary.`\
 https://nytimes.com/athletic/5759966/2024/09/11/kylian-mbappe-psg-unpaid-wages-mediation/
-
-**Donald Sheppard, British D-Day Veteran, Dies at 104**\
-`He helped liberate Bergen-Belsen, the Nazi concentration camp where Anne Frank had died.`\
-https://nytimes.com/2024/09/11/world/europe/donald-sheppard-dead.html
-
-**Debate May Widen the Money Gap Between Harris and Trump**\
-`Large donors to former President Donald J. Trump’s campaign expressed concern after his performance. The Democrats raised big money in the hours after the debate.`\
-https://nytimes.com/2024/09/11/us/politics/trump-harris-debate-money.html
-
-**If Football Were Treated Like Inflation**\
-`It’s better to focus on the most recent price changes, not a year’s worth.`\
-https://nytimes.com/live/2024/09/03/opinion/thepoint/inflation-numbers-annual
-
-**Harris vs. Trump: Assessing a Fierce Debate**\
-`Readers analyze the candidates’ performances, the moderators, the likely impact and claims of pet-eating.`\
-https://nytimes.com/2024/09/11/opinion/letters/harris-trump-debate.html
 
