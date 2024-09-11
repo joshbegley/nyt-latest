@@ -1,3 +1,7 @@
+**If Football Were Treated Like Inflation**\
+`It’s better to focus on the most recent price changes, not a year’s worth.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/inflation-numbers-annual
+
 **Harris vs. Trump: Assessing a Fierce Debate**\
 `Readers analyze the candidates’ performances, the moderators, the likely impact and claims of pet-eating.`\
 https://nytimes.com/2024/09/11/opinion/letters/harris-trump-debate.html
