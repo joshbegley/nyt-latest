@@ -1,3 +1,11 @@
+**23 Years After 9/11, Families of Cancer Victims Fight for Benefits**\
+`Some families are still pushing for recognition after their loved ones died from cancer that they believe is linked to Sept. 11, but that the federal government won’t recognize as such.`\
+https://nytimes.com/2024/09/11/nyregion/sept-11-victims-cancer-compensation.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/11/crosswords/spelling-bee-forum.html
+
 **'Hopefully he'll change the culture': How Pulisic - and other USMNT stars - welcomed Pochettino**\
 `After a long courtship, 52-year-old former Tottenham, Chelsea and Paris Saint-Germain coach Pochettino is the USMNT's new leader`\
 https://nytimes.com/athletic/5759519/2024/09/11/usmnt-pulisic-mauricio-pochettino-hire/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/11/world/americas/mexico-judical-overhaul-senate-vot
 **Mo Faal: How did Wrexham's most expensive signing do on his debut for the club?**\
 `The £500,000 signing started up front alongside Paul Mullin and showed some promising signs as Wrexham defeated Salford`\
 https://nytimes.com/athletic/5755363/2024/09/11/mo-faal-wrexham-debut/
-
-**Word of the Day: volatile**\
-`This word has appeared in 684 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/09/11/learning/word-of-the-day-volatile.html
-
-**In Debate With Trump, Harris’s Expressions Were a Weapon**\
-`Tuesday’s debate was expected to center on defining Kamala Harris. Instead, with words and with body language, she turned it into a referendum on Donald Trump.`\
-https://nytimes.com/2024/09/11/us/politics/trump-harris-debate-analysis.html
 
