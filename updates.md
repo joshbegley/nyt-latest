@@ -1,3 +1,11 @@
+**Where Do Trump and Harris Stand on Israel-Gaza Conflict?**\
+`The war in Gaza merited a few scant mentions in the presidential debate. Here’s a look at where Vice President Kamala Harris and former President Donald Trump stand.`\
+https://nytimes.com/2024/09/11/world/middleeast/trump-harris-israel-gaza.html
+
+**With New Prime Minister, a ‘Rupture’ in French Politics and Barbs for Macron**\
+`President Emmanuel Macron’s newly picked prime minister wasted no time in putting a pointed distance between himself and France’s beleaguered leader.`\
+https://nytimes.com/2024/09/11/world/europe/france-macron-barnier-prime-minister.html
+
 **Kawakami: Brock Purdy's average/ideal game and more 49ers Week 1 conclusions**\
 `Purdy is 18-4 in the regular season as an NFL starter, largely because of perfectly average games like Monday's victory over the Jets.`\
 https://nytimes.com/athletic/5758306/2024/09/11/brock-purdy-nick-sorensen-49ers-week-1-conclusions/
