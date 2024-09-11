@@ -1,3 +1,7 @@
+**67.1 Million People Watched Harris and Trump, Outdrawing Last Debate**\
+`The TV audience for the Harris-Trump matchup was roughly comparable to the second Trump-Clinton debate in 2016.`\
+https://nytimes.com/2024/09/11/business/media/harris-trump-debate-ratings.html
+
 **Former Realtor Employee Files Sexual Harassment Suit Against Trade Group**\
 `A woman who worked for the National Association of Realtors says she was fired after she reported instances of sexual harassment and discrimination, according to a federal lawsuit.`\
 https://nytimes.com/2024/09/11/realestate/nar-realtors-sexual-harassment-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5761160/2024/09/11/pittsburgh-steelers-zach-frazier
 **White Sox owner Jerry Reinsdorf on woeful season: ‘This year has been very painful for all’**\
 `The White Sox have 15 games left, and they must win 10 to avoid joining the 120-loss New York Mets of 1962 as the worst team of all time.`\
 https://nytimes.com/athletic/5761314/2024/09/11/white-sox-jerry-reinsdorf-losing-season/
-
-**French Ship That Sunk in 1856 Disaster Is Found Off Massachusetts Coast**\
-`Le Lyonnais was discovered in the Atlantic Ocean about 140 miles east of Nantucket, Mass. More than 100 died after the French passenger steamship sank.`\
-https://nytimes.com/2024/09/11/us/le-lyonnais-shipwreck-found-massachusetts.html
 
