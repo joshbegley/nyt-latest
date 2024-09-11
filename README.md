@@ -1,3 +1,7 @@
+**Transgender Lawmaker Wins Democratic Primary for Delaware’s Only House Seat**\
+`Sarah McBride, a Delaware state senator, is favored to win in November. She would become the first openly transgender member of Congress.`\
+https://nytimes.com/2024/09/10/us/transgender-lawmaker-wins-democratic-primary-for-delawares-only-house-seat.html
+
 **Biden celebrates his granddaughter’s birthday in New York before the Trump-Harris debate.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/biden-celebrates-his-granddaughters-birthday-in-new-york-before-the-trump-harris-debate
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/10/us/harris-trump-debate/harriss-stop-at-a-spi
 **Inmate’s Wife Subjected to Cavity Search Will Get $5.6 Million in Settlement**\
 `Christina Cardenas of California was subjected to the search after going to visit her husband at a state prison in 2019, according to her lawsuit. “It left me traumatized,” she said.`\
 https://nytimes.com/2024/09/10/us/inmate-wife-strip-search-settlement-california.html
-
-**Tracking Attacks in the First Harris-Trump Debate**\
-`See how the candidates used their speaking time to discuss the issues or criticize their opponent.`\
-https://nytimes.com/interactive/2024/09/10/us/elections/trump-harris-attacks-debate-tracker.html
 
