@@ -11,7 +11,7 @@ https://nytimes.com/2024/09/11/world/americas/mexico-judiciary-overhaul.html
 https://nytimes.com/2024/09/11/business/media/debate-moderators-trump-harris.html
 
 **Mexico’s Judicial Overhaul Overcomes Its Biggest Obstacle: The Senate**\
-`The Senate’s approval cleared away the last major obstacle to the sweeping proposals championed by the president, which have prompted nationwide strikes.`\
+`The chamber’s approval clears away the last major hindrance to the sweeping proposals championed by the president, which have prompted nationwide strikes.`\
 https://nytimes.com/2024/09/11/world/americas/mexico-judical-overhaul-senate-vote.html
 
 **Mo Faal: How did Wrexham's most expensive signing do on his debut for the club?**\
