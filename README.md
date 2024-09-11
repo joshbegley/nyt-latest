@@ -1,3 +1,7 @@
+**In New Orleans, Streets Turn Quiet as Water Builds Ahead of Francine’s Landfall**\
+`As Francine, a Category 1 hurricane, barreled toward Louisiana, many residents stayed indoors, concerned about potential flooding and power outages.`\
+https://nytimes.com/2024/09/11/weather/new-orleans-hurricane-francine.html
+
 **Why a YouTuber’s Drastic Weight Loss Went Viral**\
 `Nikocado Avocado, a popular vlogger known for his mukbang videos, said he spent the last two years plotting the reveal.`\
 https://nytimes.com/2024/09/11/style/nikocado-avocado-youtuber-weight-loss.html
@@ -29,8 +33,4 @@ https://nytimes.com/2024/09/11/us/politics/debate-trump-harris-memes.html
 **Thursday Briefing: Who Won the Harris-Trump Debate?**\
 `Plus, a video game provokes outrage.`\
 https://nytimes.com/2024/09/11/briefing/debate-ukraine-mexico.html
-
-**Justin Timberlake to Plead Guilty to Lesser Charge in D.W.I. Case**\
-`The singer, who was charged after an erratic drive in Sag Harbor, N.Y., is expected to appear in person in court on Friday.`\
-https://nytimes.com/2024/09/11/nyregion/justin-timberlake-dwi-plea-deal.html
 
