@@ -19,7 +19,7 @@ https://nytimes.com/live/2024/09/10/us/harris-trump-debate/biden-ended-the-xl-pi
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/a-lot-of-these-illegal-immigrants-coming-in-democrats-are-trying-to-get-them-to-vote
 
 **I “have built it into many, many billions of dollars; many, many billions.”**\
-`By Benjamin Protess`\
+`By Ben Protess`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/i-have-built-it-into-many-many-billions-of-dollars-many-many-billions
 
 **“She wouldn’t even meet with Netanyahu when he went to Congress to make a very important speech. She refused to be there because she was at a sorority party of hers.”**\
