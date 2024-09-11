@@ -1,3 +1,15 @@
+**“Now she wants to do transgender operations on illegal aliens that are in prison.”**\
+`By Sheryl Gay Stolberg`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/now-she-wants-to-do-transgender-operations-on-illegal-aliens-that-are-in-prison
+
+**White Sox watch: Loss No. 113 comes in 17th shutout of season**\
+`The 2024 Chicago White Sox are on pace to eclipse the 120-loss New York Mets of 1962. Can they avoid infamy?`\
+https://nytimes.com/athletic/5734497/2024/09/10/white-sox-watch-most-losses-season/
+
+**Trump Aims to Tie Harris Critically to Her Father, a Professor of Marxist Economics**\
+`Donald J. Trump called Kamala Harris a “Marxist” because her father taught the subject at Stanford University, though she has repeatedly made clear that she supports capitalism.`\
+https://nytimes.com/2024/09/10/us/politics/harris-father-marxist-trump.html
+
 **“For years we were paying almost all of NATO. We were being ripped off by European nations, both on trade and on NATO. I got them to pay up.”**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/for-years-we-were-paying-almost-all-of-nato-we-were-being-ripped-off-by-european-nations-both-on-trade-and-on-nato-i-got-them-to
