@@ -1,40 +1,40 @@
-**Hanoi Floods as Landslides and Rising Rivers Push Typhoon Death Toll to 143**\
-`Days after the storm made landfall, northern Vietnam was being battered by incessant rain. A landslide buried a whole village in a mountainous province.`\
-https://nytimes.com/2024/09/11/world/asia/yagi-vietnam-flooding-landslides.html
+**‘Trump Brought Darkness; Harris Brought Light’: 14 Writers on Who Won the Presidential Debate**\
+`Our columnists and contributors rate Trump’s and Harris’s debate performances.`\
+https://nytimes.com/2024/09/11/opinion/harris-trump-debate-winner-loser.html
 
-**Blinken Visits Ukraine During Precarious Moment in the War and U.S. Politics**\
-`The U.S. secretary of state and his British counterpart, David Lammy, arrived in Kyiv on a trip aimed at showing solidarity for Ukraine as the American presidential elections loom.`\
-https://nytimes.com/2024/09/11/world/europe/ukraine-war-blinken-visit-kyiv.html
+**Trump Is, Was and Would Be a Gift to China**\
+`With Trump once again in the Oval Office, America would be at risk of falling even further behind China in industrial competitiveness.`\
+https://nytimes.com/2024/09/11/opinion/trump-electric-vehicles-china.html
 
-**Iran’s New President, Tending to a Pivotal Alliance, Visits Iraq**\
-`In a region in turmoil, Tehran’s ties to its neighbor are more important than ever.`\
-https://nytimes.com/2024/09/11/world/middleeast/iran-president-pezeshkian-iraq-visit.html
+**Missing Summer? Let This Shrimp Take You Back**\
+`Smoky saganaki can inspire the feeling of a seaside vacation.`\
+https://nytimes.com/2024/09/11/magazine/shrimp-saganaki-summer-recipe.html
 
-**Sleep Routine**\
-`What do you do to get ready for a good night’s rest?`\
-https://nytimes.com/2024/09/11/learning/sleep-routine.html
+**Paul Smith’s Roads Less Traveled**\
+`At 78, the designer, who stumbled into fashion when an accident ended a competitive cycling career, is still hurtling along at full speed.`\
+https://nytimes.com/2024/09/11/style/paul-smith-fashion-aging.html
 
-**Pundits Said Harris Won the Debate. Undecided Voters Weren’t So Sure.**\
-`Voters said the vice president talked about a sweeping vision to fix the country’s most stubborn problems. But they wanted the fine print.`\
-https://nytimes.com/2024/09/11/us/politics/undecided-voters-react-debate.html
+**A Watch Brand Puts Its Focus on Fun**\
+`As one collector wrote about Mr Jones timepieces: They “always bring a smile when I look down to see the hours!”`\
+https://nytimes.com/2024/09/11/fashion/mr-jones-watches-london.html
 
-**Van Dijk says De Ligt will 'learn' after Netherlands error leads to Germany goal**\
-`Virgil van Dijk says Netherlands centre-back partner Matthijs de Ligt will learn from his mistake after being replaced at half time during the Netherlands&#8217; Nations League draw against Germany.`\
-https://nytimes.com/athletic/5759703/2024/09/11/matthijs-de-ligt-netherlands-virgil-van-dijk/
+**Thinking About a Solo Cruise? Here’s What to Know.**\
+`As solo cruising becomes more popular, pricing and cabin types are changing. Deals can be found, especially with advance planning, but it takes a little know-how.`\
+https://nytimes.com/2024/09/11/travel/solo-cruising-what-to-know.html
 
-**Trump and Harris Clash in a Fiery Presidential Debate**\
-`In their first face-to-face meeting, Kamala Harris put Donald Trump on the defensive as the former president tried to tie her to unpopular Biden administration policies.`\
-https://nytimes.com/video/us/elections/100000009685520/trump-harris-debate.html
+**Tim Little Loves the Monaco Watch So Much, He’s Had Three**\
+`The first was stolen. The second disappeared. But he bought, and now wears, his third TAG Heuer Monaco.`\
+https://nytimes.com/2024/09/11/fashion/watches-tag-heuer-monaco.html
 
-**Late Night Hosts Declare Harris the Winner in the Debate**\
-`Stephen Colbert said that the vice president needed to “rattle Trump’s cage. And now that it is over, they are still looking for pieces of his cage in low orbit.”`\
-https://nytimes.com/2024/09/11/arts/television/late-night-presidential-debate.html
+**The Defense Secretary Revoked a Plea Deal in the 9/11 Case. Or Did He?**\
+`How the latest controversy in the long-running death-penalty case at Guantánamo Bay could play out.`\
+https://nytimes.com/2024/09/11/us/politics/sept-11-defense-secretary-austin.html
 
-**23 Years After 9/11, Families of Cancer Victims Fight for Benefits**\
-`Some families are still pushing for recognition after their loved ones died from cancer that they believe is linked to Sept. 11, but that the federal government won’t recognize as such.`\
-https://nytimes.com/2024/09/11/nyregion/sept-11-victims-cancer-compensation.html
+**A 21st-Century Watch Brand Honors Its 19th-Century Roots**\
+`A longtime fan of the Cornell Watch Company, which made pocket watches in Chicago, led its rebirth last year with a timepiece for the wrist.`\
+https://nytimes.com/2024/09/11/fashion/cornell-watch-company-chicago.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/09/11/crosswords/spelling-bee-forum.html
+**A Celebration of Craftsmanship Draws Watch Brands**\
+`Homo Faber, the biennial fair held in Venice, draws independent makers as well as Richemont brands.`\
+https://nytimes.com/2024/09/11/fashion/watches-homo-faber-fair-richemont.html
 
