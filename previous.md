@@ -1,3 +1,7 @@
+**Housing costs remain stubborn, complicating the inflation picture.**\
+`By Ben Casselman`\
+https://nytimes.com/live/2024/09/11/business/cpi-inflation-fed/housing-costs-remain-stubborn-complicating-the-inflation-picture
+
 **Prices continue to be a key campaign issue.**\
 `The latest report is unlikely to change the overall narrative as Republicans hammer the case home to voters.`\
 https://nytimes.com/live/2024/09/11/business/cpi-inflation-fed/prices-continue-to-be-a-key-campaign-issue
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5759932/2024/09/11/hannah-blundell-manchester-unite
 **Battle of the Political Brands**\
 `When Donald Trump and Kamala Harris faced off on the debate stage, governing style was on display.`\
 https://nytimes.com/2024/09/11/style/harris-trump-debate-style-suits.html
-
-**Shota Imanaga can star in the next hype videos the Cubs make for free agents**\
-`Videos sharing perspectives from players and staffers are part of the organization’s established recruiting philosophy.`\
-https://nytimes.com/athletic/5759696/2024/09/11/shota-imanaga-cubs-hype-videos/
 

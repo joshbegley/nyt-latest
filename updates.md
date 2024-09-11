@@ -1,3 +1,7 @@
+**Housing costs remain stubborn, complicating the inflation picture.**\
+`By Ben Casselman`\
+https://nytimes.com/live/2024/09/11/business/cpi-inflation-fed/housing-costs-remain-stubborn-complicating-the-inflation-picture
+
 **Prices continue to be a key campaign issue.**\
 `The latest report is unlikely to change the overall narrative as Republicans hammer the case home to voters.`\
 https://nytimes.com/live/2024/09/11/business/cpi-inflation-fed/prices-continue-to-be-a-key-campaign-issue
