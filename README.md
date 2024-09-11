@@ -1,3 +1,11 @@
+**White Sox owner Jerry Reinsdorf on woeful season: ‘This year has been very painful for all’**\
+`The White Sox have 15 games left, and they must win 10 to avoid joining the 120-loss New York Mets of 1962 as the worst team of all time.`\
+https://nytimes.com/athletic/5761314/2024/09/11/white-sox-jerry-reinsdorf-losing-season/
+
+**French Ship That Sunk in 1856 Disaster Is Found Off Massachusetts Coast**\
+`Le Lyonnais was discovered in the Atlantic Ocean about 140 miles east of Nantucket, Mass. More than 100 died after the French passenger steamship sank.`\
+https://nytimes.com/2024/09/11/us/le-lyonnais-shipwreck-found-massachusetts.html
+
 **Transcript: Ezra Klein on the Harris-Trump Debate**\
 `The September 11, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/09/11/podcasts/transcript-ezra-klein-harris-trump-debate-reaction.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/11/world/israel-hamas-gaza-war/six-un-employees
 **Blue Jays' Francis loses no-no in 9th on Lindor's HR**\
 `This is the second time in one month that Toronto's Bowden Francis carried a no-hitter into the ninth and lost it on a leadoff homer.`\
 https://nytimes.com/athletic/5761086/2024/09/11/bowden-francis-francisco-lindor-mets-blue-jays/
-
-**Prison Where Capote Interviewed Killers for ‘In Cold Blood’ Will Open to Tourists**\
-`The historical society in Lansing, Kan., hopes to attract visitors to the city of about 11,000 residents by welcoming visitors to the former Kansas State Penitentiary.`\
-https://nytimes.com/2024/09/11/us/truman-capote-in-cold-blood-kansas-prison.html
-
-**Harris Reveled in Her Debate Reviews**\
-`Also, Hurricane Francine is pelting southern Louisiana. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2024/09/11/briefing/harris-trump-debate-aftermath-russia-ukraine.html
 
