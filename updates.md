@@ -1,3 +1,7 @@
+**The Harris-Trump Debate**\
+`Kamala Harris seemed to win the debate with Donald Trump, but didn’t have a perfect night.`\
+https://nytimes.com/2024/09/11/briefing/kamala-harris-donald-trump-debate.html
+
 **Stock watch: Bullish on Brandin Cooks, bearish on Chicago rookies and more**\
 `Dane Martinez highlights some of the notable market movers following Week 1, including the rise of Brandin Cooks in the Dallas passing game.`\
 https://nytimes.com/athletic/5758960/2024/09/11/fantasy-football-stock-watch-bullish-on-brandin-cooks-bearish-on-chicago-rookies-and-more/
