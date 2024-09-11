@@ -1,3 +1,11 @@
+**Who Won the Debate? A Sharp Harris Unbalances Trump**\
+`Commentators concluded that Vice President Kamala Harris had succeeded in baiting former President Donald J. Trump into veering off message.`\
+https://nytimes.com/2024/09/11/us/politics/trump-harris-debate-who-won.html
+
+**Best, Worst and Most Surprising Lines From the Presidential Debate**\
+`Kamala Harris reminded viewers she owns a gun. Donald Trump repeated a debunked internet rumor about immigrants eating cats.`\
+https://nytimes.com/2024/09/11/us/politics/debate-trump-harris-best-worst-quotes.html
+
 **Trump Walked Into the Media ‘Spin Room’ Himself After the Debate**\
 `It was an unusual move for a presidential candidate.`\
 https://nytimes.com/2024/09/11/us/politics/trump-debate-spin-room.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5757631/2024/09/11/arsenal-odegaard-injury-tottenha
 **Why making Liverpool's defence more compact is Arne Slot's first big win**\
 `The team are playing more with their heads than their hearts under the new head coach - and it is making a difference`\
 https://nytimes.com/athletic/5749771/2024/09/11/liverpool-defending-srne-slot-improvement/
-
-**Fox News hosts decide who lost the debate: ABC News.**\
-`By Jeremy W. Peters`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/fox-news-hosts-decide-who-lost-the-debate-abc-news
-
-**Anatomy of a Premier League hat-trick: Erling Haaland vs Sergio Aguero**\
-`The two players have 47 per cent of Manchester City's Premier League hat-tricks - but how do their trebles compare aesthetically? `\
-https://nytimes.com/athletic/5741292/2024/09/11/haaland-aguero-premier-league-hat-tricks/
 
