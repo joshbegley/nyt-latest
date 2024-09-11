@@ -1,3 +1,7 @@
+**Researchers mapped the sites in Francine’s path that risk flooding and toxic spills.**\
+`By Austyn Gaffney`\
+https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/researchers-mapped-the-sites-in-francines-path-that-risk-flooding-and-toxic-spills
+
 **In critical moment, Francisco Lindor delivers a signature swing for the Mets**\
 `What has Lindor meant to the Mets this season? “Everything,” as one teammate said.`\
 https://nytimes.com/athletic/5761371/2024/09/11/mets-francisco-lindor-no-hitter/
