@@ -30,8 +30,8 @@ https://nytimes.com/2024/09/11/us/wildfires-california-nevada-oregon-idaho.html
 `A substantial number of Republican voters are losing faith in science.`\
 https://nytimes.com/2024/09/11/opinion/republicans-science-denial.html
 
-**Hurricane Francine Bears Down on Louisiana**\
-`The storm is expected to make landfall on Wednesday, bringing the threat of powerful winds, storm surge and flash flooding.`\
+**The storm could still gain strength. Here’s what to know.**\
+`The storm is expected to make landf`\
 https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/hurricane-francine-louisiana
 
 **3 Shel Silverstein Poems to Read With Your Children**\
