@@ -1,3 +1,15 @@
+**Greener Steel at Britain’s Largest Plant Comes With Heavy Job Losses**\
+`The British government and Tata of India said they would invest 1.25 billion pounds in a plan to convert the steel mill at Port Talbot in Wales to an electric furnace.`\
+https://nytimes.com/2024/09/11/business/steel-britain.html
+
+**Live From Chase Center: Mark Zuckerberg Tapes a Podcast With 6,000 Friends**\
+`In front of a packed house on Tuesday night, Mr. Zuckerberg chatted about his company, Meta, with the hosts of the “Acquired” podcast, as tech titans shift the ways they communicate.`\
+https://nytimes.com/2024/09/11/technology/mark-zuckerberg-podcast-acquired.html
+
+**The Windup: A reason to root for the newest call-up**\
+`Welcome to The Windup, The Athletic's daily MLB newsletter.`\
+https://nytimes.com/athletic/5759993/2024/09/11/thomas-saggese-cardinals-athletics-sacramento-mlb-the-windup/
+
 **Has Lee Carsley done enough to get the England job full time? - The Debate**\
 `Carsley has been in interim charge for two games and won both, but is that enough to give him the England job full time? Two writers discuss`\
 https://nytimes.com/athletic/5759828/2024/09/11/next-england-manager-lee-carsley/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/11/weather/gulf-coast-storms-history.html
 **Sterilizations Among Women Rose After Roe Was Overturned, Study Finds**\
 `Experts said the research underscored how abortion bans had affected women’s contraceptive choices.`\
 https://nytimes.com/2024/09/11/well/tubal-sterilization-abortion-ban-roe-wade.html
-
-**Lunin signs new Real Madrid contract extension until 2028**\
-`Real Madrid goalkeeper Andriy Lunin has signed a new three-year contract with the club.`\
-https://nytimes.com/athletic/5760291/2024/09/11/real-madrid-andiry-lunin-contract-extension/
-
-**North Korean Missiles Rain Down on Ukraine Despite Sanctions**\
-`Russia has received new shipments of Hwasong-11 short-range ballistic missiles, according to a new report.`\
-https://nytimes.com/2024/09/11/us/russia-north-korea-missiles-ukraine.html
-
-**Scoop City: Injury reports, best/worst of Week 1**\
-`A roundup of injury news for notable NFL stars ahead of Week 2, plus a look at the best/worst of Week 1`\
-https://nytimes.com/athletic/5760296/2024/09/11/scoop-city-injury-report-on-mccaffrey-achane/
 
