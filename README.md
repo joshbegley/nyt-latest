@@ -1,3 +1,7 @@
+**Ake forced off with injury on international duty with the Netherlands**\
+`Manchester City defender Nathan Ake was forced off in the Netherlands&#8217; Nations League draw against Germany due to an apparent muscle injury.`\
+https://nytimes.com/athletic/5758754/2024/09/11/nathan-ake-injury-netherlands-manchester-city/
+
 **‘The End of Our Country’: Trump Paints Dark Picture at Debate**\
 `Former President Donald J. Trump offered a dire portrait of America, often relying on false and debunked claims as he described “a failing nation.”`\
 https://nytimes.com/2024/09/11/us/politics/trump-debate-dark-picture.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/us/politics/harris-biden-trump-debate.html
 **Donald Trump Made a Raving, Rambling Fool of Himself in That Debate**\
 `And Kamala Harris had the skill and composure to help him do it.`\
 https://nytimes.com/2024/09/11/opinion/trump-harris-debate.html
-
-**Harris Dominates as Trump Gets Defensive: 6 Takeaways From the Debate**\
-`Laying out bait that Donald Trump eagerly snatched, the vice president owned much of the night, keeping him on the back foot and avoiding sustained attention on her own vulnerabilities.`\
-https://nytimes.com/2024/09/11/us/politics/trump-harris-debate-takeaways.html
 
