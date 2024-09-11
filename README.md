@@ -1,3 +1,11 @@
+**Braves' Reynaldo López makes early exit**\
+`Another day, another injury concern for the Atlanta Braves, who removed starter Reynaldo López from Tuesday&#8217;s game at Washington after one inning due to right-shoulder tightness.`\
+https://nytimes.com/athletic/5759396/2024/09/10/braves-reynaldo-lopez-injury/
+
+**Lawyer Wins Democratic Primary in New Hampshire’s Second District**\
+`Maggie Goodlander, who has deep Washington ties, edged out Colin Van Ostern, who unsuccessfully ran for New Hampshire governor in 2016.`\
+https://nytimes.com/2024/09/10/us/goodlander-new-hampshire-primary.html
+
 **Transgender Lawmaker Wins Democratic Primary for Delaware’s Only House Seat**\
 `Sarah McBride, a Delaware state senator, is favored to win in November. She would become the first openly transgender member of Congress.`\
 https://nytimes.com/2024/09/10/us/transgender-lawmaker-wins-democratic-primary-for-delawares-only-house-seat.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5759305/2024/09/10/kyle-schwarber-leadoff-home-runs
 **Pearsall, teen charged in shooting case had 'extended struggle': Attorney**\
 `The next hearing in the matter is scheduled for Sept. 26.`\
 https://nytimes.com/athletic/5759279/2024/09/10/ricky-pearsall-shooting-teen-court-appearance/
-
-**Harris’s stop at a spice shop in Pittsburgh left some feeling salty.**\
-`By Michael Levenson`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/harriss-stop-at-a-spice-shop-in-pittsburgh-left-some-feeling-salty
-
-**Inmate’s Wife Subjected to Cavity Search Will Get $5.6 Million in Settlement**\
-`Christina Cardenas of California was subjected to the search after going to visit her husband at a state prison in 2019, according to her lawsuit. “It left me traumatized,” she said.`\
-https://nytimes.com/2024/09/10/us/inmate-wife-strip-search-settlement-california.html
 
