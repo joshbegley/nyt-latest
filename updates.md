@@ -1,3 +1,11 @@
+**Adams’s Pick for Top Lawyer Withdraws His Nomination**\
+`Randy Mastro, a former federal prosecutor and aide to Mayor Rudolph W. Giuliani, said he had been denied a fair hearing by the City Council.`\
+https://nytimes.com/2024/09/10/nyregion/randy-mastro-eric-adams-lawyer-withdraws.html
+
+**Trump mocked Harris’s height, but her fans see a certain stature.**\
+`By Abby Ellin`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/trump-mocked-harriss-height-but-her-fans-see-a-certain-stature
+
 **Here Are Some of the Prominent Surrogates at the Debate Site**\
 `Anthony Scaramucci and Tulsi Gabbard are there. But you might be surprised which candidate they’re supporting.`\
 https://nytimes.com/2024/09/10/us/politics/debate-surrogates-rfk-gabbard-scaramucci.html
