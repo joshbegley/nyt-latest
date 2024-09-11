@@ -1,3 +1,7 @@
+**David Datro Fofana set to join AEK Athens on loan from Chelsea**\
+`David Datro Fofana is set to join AEK Athens on loan from Chelsea.`\
+https://nytimes.com/athletic/5757849/2024/09/11/david-datro-fofana-aek-athens-chelsea/
+
 **The Big Takeaways for Business from Debate Night**\
 `The showdown between Vice President Kamala Harris and Donald Trump was light on policy, but there were still sparks as they laid out different visions for the economy.`\
 https://nytimes.com/2024/09/11/business/dealbook/takeaways-presidential-debate-harris-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5758660/2024/09/11/charles-barkley-nba-tnt-the-puls
 **Gomes has the technical midfield profile the England senior team has long been missing**\
 `Lee Carsley understands that England’s hopes of a senior men’s trophy rest on their ability to win the technical battle in midfield`\
 https://nytimes.com/athletic/5759036/2024/09/11/angel-gomes-england-midfield-debut/
-
-**Submit your Mets questions for the Tim Britton and Will Sammon mailbag**\
-`The stretch run is here.`\
-https://nytimes.com/athletic/5759574/2024/09/11/submit-your-mets-questions-for-the-tim-britton-and-will-sammon-mailbag-3/
 
