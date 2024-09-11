@@ -1,3 +1,11 @@
+**Sabres mailbag, part 1: Eichel's comments, Pegula's patience, Savoie trade, next captain and more**\
+`Is Rasmus Dahlin being named captain a foregone conclusion?`\
+https://nytimes.com/athletic/5760170/2024/09/11/sabres-eichel-savoie-trade/
+
+**‘It’s Still Overwhelming’: Mourners Across New York City Remember 9/11**\
+`Commemorations for those killed in the attacks 23 years ago took place throughout the city, with politicians joining those assembled at ground zero.`\
+https://nytimes.com/2024/09/11/nyregion/sept-11-memorial-nyc.html
+
 **Greener Steel at Britain’s Largest Plant Comes With Heavy Job Losses**\
 `The British government and Tata of India said they would invest 1.25 billion pounds in a plan to convert the steel mill at Port Talbot in Wales to an electric furnace.`\
 https://nytimes.com/2024/09/11/business/steel-britain.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5760360/2024/09/11/fantasy-baseball-second-half-sur
 **Blackhawks' Levshunov to miss prospect showcase with injury**\
 `The injury occurred when Levshunov was struck in the foot by a puck in a recent training session.`\
 https://nytimes.com/athletic/5760343/2024/09/11/blackhawks-artyom-levshunov-injury-showcase/
-
-**Gulf Coast States Have Been Battered by Hurricanes in Recent Years**\
-`Here’s a look at storms that have hit the area in the last few years.`\
-https://nytimes.com/2024/09/11/weather/gulf-coast-storms-history.html
-
-**Sterilizations Among Women Rose After Roe Was Overturned, Study Finds**\
-`Experts said the research underscored how abortion bans had affected women’s contraceptive choices.`\
-https://nytimes.com/2024/09/11/well/tubal-sterilization-abortion-ban-roe-wade.html
 
