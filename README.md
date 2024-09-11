@@ -1,3 +1,7 @@
+**The No. 1 Breaker in the World Is … Raygun?**\
+`The Australian breaker who was mocked at the Olympics for her kangaroo-hopping routine is now atop the official world rankings. Here’s how it happened.`\
+https://nytimes.com/2024/09/11/sports/raygun-breaking-ranking-number-one.html
+
 **Harvard’s Black Student Enrollment Dips After Affirmative Action Ends**\
 `Defying expectations, a Supreme Court decision curtailing race-based admissions still had a relatively small impact at some highly selective schools like Harvard, even as other schools saw big changes.`\
 https://nytimes.com/2024/09/11/us/harvard-affirmative-action-diversity-admissions.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009685916/trump-vance-aiden-clark-sp
 **Scarred by past floods, Baton Rouge braces for damage.**\
 `By Jacey Fortin`\
 https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/scarred-by-past-floods-baton-rouge-braces-for-damage
-
-**Tyreek Hill calls for firing of police officer placed on leave**\
-`Hill's attorney said he and his client "are of the opinion that the officer's use of force was excessive, escalating and reckless."`\
-https://nytimes.com/athletic/5759972/2024/09/11/tyreek-hill-police-officer-fired-dolphins/
 
