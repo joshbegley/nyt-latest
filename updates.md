@@ -1,3 +1,15 @@
+**In New Orleans, Streets Turn Quiet as Water Builds Ahead of Francine’s Landfall**\
+`As Francine, a Category 1 hurricane, barreled toward Louisiana, many residents stayed indoors, concerned about potential flooding and power outages.`\
+https://nytimes.com/2024/09/11/weather/new-orleans-hurricane-francine.html
+
+**Why a YouTuber’s Drastic Weight Loss Went Viral**\
+`Nikocado Avocado, a popular vlogger known for his mukbang videos, said he spent the last two years plotting the reveal.`\
+https://nytimes.com/2024/09/11/style/nikocado-avocado-youtuber-weight-loss.html
+
+**A Debate Recap With Song, Dance and Joseph Gordon-Levitt**\
+`The debate analysis you didn’t know you needed.`\
+https://nytimes.com/2024/09/11/opinion/trump-harris-debate-joseph-gordon-levitt.html
+
 **A Debate Recap With Song, Dance and Joseph Gordon-Levitt**\
 `The debate analysis you didn’t know you needed.`\
 https://nytimes.com/video/opinion/100000009683757/trump-harris-debate-joseph-gordon-levitt.html
