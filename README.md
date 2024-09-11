@@ -1,3 +1,19 @@
+**“Crime here is up and through the roof.”**\
+`By Zolan Kanno-Youngs`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/crime-here-is-up-and-through-the-roof
+
+**All of Trump’s legal challenges to the outcome of the 2020 election were dismissed on “technicalities” or the basis of “standing.”**\
+`By Alan Feuer`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/all-of-trumps-legal-challenges-to-the-outcome-of-the-2020-election-were-dismissed-on-technicalities-or-the-basis-of-standing
+
+**“Every one of those cases was started by them against their political opponent.”**\
+`By Ben Protess`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/every-one-of-those-cases-was-started-by-them-against-their-political-opponent
+
+**Harris Blames Trump for State Abortion Bans in Contentious Debate**\
+`Vice President Kamala Harris went on offense over abortion policy. “The government and Donald Trump, certainly, should not be telling a woman what to do with her body,” she said.`\
+https://nytimes.com/2024/09/10/us/politics/harris-trump-abortion-debate.html
+
 **“And when she ran, she was the first one to leave because she failed” in the 2020 Democratic presidential primary.**\
 `By Linda Qiu`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/and-when-she-ran-she-was-the-first-one-to-leave-because-she-failed-in-the-2020-democratic-presidential-primary
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/10/crosswords/daily-puzzle-2024-09-11.html
 **“The Trump administration resulted in a trade deficit — one of the highest we’ve ever seen in the history of America.”**\
 `By Jim Tankersley`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/the-trump-administration-resulted-in-a-trade-deficit-one-of-the-highest-weve-ever-seen
-
-**“She went out in Minnesota and wanted to let criminals that killed people, that burned down Minneapolis.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/she-went-out-in-minnesota-and-wanted-to-let-criminals-that-killed-people-that-burned-down-minneapolis
-
-**“Remember that she was the border czar. She doesn’t want to be called the border czar because she’s embarrassed by the border.”**\
-`By Michael D. Shear`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/remember-that-she-was-the-border-czar-she-doesnt-want-to-be-called-the-border-czar-because-shes-embarrassed-by-the-border
-
-**“By the way, Joe Biden was found essentially guilty on the documents case.”**\
-`By Alan Feuer`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/by-the-way-joe-biden-was-found-essentially-guilty-on-the-documents-case
-
-**“Her vice-presidential pick says abortion in the ninth month is absolutely fine. He also says execution after birth. It’s execution, no longer abortion, because the baby is born is, OK, and that’s not OK with me.”**\
-`“Her vice presidential pick says abortion in the ninth month is absolutely fine. He also says execution after birth. It’s execution, no longer abortion because the baby is born is okay and that’s not okay with me.”`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/her-vice-presidential-pick-says-abortion-in-the-ninth-month-is-absolutely-fine-he-also-says-execution-after-birth-its-execution-
 
