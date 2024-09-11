@@ -1,3 +1,7 @@
+**Transgender Lawmaker Wins Democratic Primary for Delaware’s Only House Seat**\
+`Sarah McBride, a Delaware state senator, is favored to win in November. She would become the first openly transgender member of Congress.`\
+https://nytimes.com/2024/09/10/us/transgender-lawmaker-wins-democratic-primary-for-delawares-only-house-seat.html
+
 **Biden celebrates his granddaughter’s birthday in New York before the Trump-Harris debate.**\
 `By Peter Baker`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/biden-celebrates-his-granddaughters-birthday-in-new-york-before-the-trump-harris-debate
