@@ -1,3 +1,7 @@
+**Norfolk Southern Fires C.E.O. After Ethics Investigation**\
+`The railroad company’s board said it dismissed Alan Shaw and an executive he had a consensual relationship with.`\
+https://nytimes.com/2024/09/11/business/norfolk-southern-alan-shaw-ceo.html
+
 **Norfolk Southern Fires Chief Executive After Ethics Investigation**\
 `The railroad company’s board said it dismissed Alan Shaw and an executive he had a consensual relationship with.`\
 https://nytimes.com/2024/09/11/business/norfolk-southern-alan-shaw-ceo.html
