@@ -1,3 +1,15 @@
+**“We made ventilators for the entire world.”**\
+`By Sheryl Gay Stolberg`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/we-made-ventilators-for-the-entire-world
+
+**“People gave me credit for rebuilding the military.”**\
+`By Helene Cooper`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/people-gave-me-credit-for-rebuilding-the-military
+
+**“I have nothing to do with Project 2025.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/i-have-nothing-to-do-with-project-2025
+
 **“We handed them over a country where the economy and with — the stock market was higher than it was before the pandemic came in. Nobody’s ever seen anything like it.”**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/we-handed-them-over-a-country-where-the-economy-and-with-the-stock-market-was-higher-than-it-was-before-the-pandemic-came-in-nob
