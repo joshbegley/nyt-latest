@@ -1,3 +1,11 @@
+**This Louisiana gas station is always open. Francine is forcing it to close.**\
+`By Jacey Fortin`\
+https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/this-louisiana-gas-station-is-always-open-francine-is-forcing-it-to-close
+
+**Guards Say Top Adams Aide Threatened Them After Having Them Arrested**\
+`Two security guards said the aide, Timothy Pearson, attacked them then had them arrested. Federal agents seized his cellphone last week as part of a separate investigation.`\
+https://nytimes.com/2024/09/11/nyregion/timothy-pearson-guards-migrants.html
+
 **Why Venezuelan Election Observers are Exiled in Colombia**\
 `As the government of Nicolás Maduro doubles down on declaring him the winner of Venezuela’s presidential election, political opponents are fleeing to neighboring countries to escape threats to themselves and their families.`\
 https://nytimes.com/video/world/americas/100000009655106/why-venezuelan-election-observers-are-exiled-in-colombia.html
