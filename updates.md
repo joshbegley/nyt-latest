@@ -1,3 +1,15 @@
+**Harris vs. Trump: Assessing a Fierce Debate**\
+`Readers analyze the candidates’ performances, the moderators, the likely impact and claims of pet-eating.`\
+https://nytimes.com/2024/09/11/opinion/letters/harris-trump-debate.html
+
+**Democratic Swifties are ecstatic (even in a swing state where she didn’t tour).**\
+`By Eduardo Medina`\
+https://nytimes.com/live/2024/09/11/us/harris-trump-debate-election/democratic-swifties-are-ecstatic-even-in-a-swing-state-where-she-didnt-tour
+
+** An Open Letter on World Contraception Day to Those Concerned About Reproductive Health **\
+`A letter from Dr. Charlotte Owens, Head of Medical Affairs and Outcomes Research at Organon for World Contraception Day`\
+https://nytimes.com/paidpost/organon-pharmaceuticals/2024-world-contraception-day/-an-open-letter-on-world-contraception-day-to-those-concerned-about-reproductive-health.html
+
 **Ravens LB Kyle Van Noy calls Chiefs training staff 'unprofessional'**\
 `Van Noy said he sustained a fractured orbital bone and needed to see an ophthalmologist but was left waiting in the locker room.`\
 https://nytimes.com/athletic/5760541/2024/09/11/ravens-kyle-van-noy-chiefs-training-staff/
