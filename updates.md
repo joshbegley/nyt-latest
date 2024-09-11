@@ -1,3 +1,11 @@
+**North Korean Missiles Rain Down on Ukraine Despite Sanctions**\
+`Russia has received new shipments of Hwasong-11 short-range ballistic missiles, according to a new report.`\
+https://nytimes.com/2024/09/11/us/russia-north-korea-missiles-ukraine.html
+
+**Scoop City: Injury reports, best/worst of Week 1**\
+`A roundup of injury news for notable NFL stars ahead of Week 2, plus a look at the best/worst of Week 1`\
+https://nytimes.com/athletic/5760296/2024/09/11/scoop-city-injury-report-on-mccaffrey-achane/
+
 **The No. 1 Breaker in the World Is … Raygun?**\
 `The Australian breaker who was mocked at the Olympics for her kangaroo-hopping routine is now atop the official world rankings. Here’s how it happened.`\
 https://nytimes.com/2024/09/11/sports/raygun-breaking-ranking-number-one.html
