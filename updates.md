@@ -1,3 +1,11 @@
+**Red Trousers, Storks and Breisgau Brazilians: The origins of German football club nicknames**\
+`From the Factory Eleven to the Unpromotables, German clubs have an interesting mix of nicknames - but where do they come from?`\
+https://nytimes.com/athletic/5747122/2024/09/11/german-football-nicknames-bundesliga/
+
+**Has the impact of analytics on modern football been overstated?**\
+`The debate in analytics has inevitably been framed as ‘Spreadsheet Nerds’ on the left versus ‘Old-School Football Men’ on the right`\
+https://nytimes.com/athletic/5756088/2024/09/11/how-has-data-changed-football/
+
 **Kutter Crawford makes 30th start, but Red Sox offense falters once again**\
 `After scoring 12 runs on Monday, the Red Sox weren’t able to sustain that momentum offensively, wasting a quality Crawford start.`\
 https://nytimes.com/athletic/5759526/2024/09/11/red-sox-kutter-crawford-30-starts/
