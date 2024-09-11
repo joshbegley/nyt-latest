@@ -1,3 +1,7 @@
+**Why the Maple Leafs are taking a chance on Max Pacioretty**\
+`Could Pacioretty rise into a top-six role in Toronto?`\
+https://nytimes.com/athletic/5760332/2024/09/11/maple-leafs-pacioretty-contract/
+
 **For Wendell Pierce and Courtney B. Vance, James Earl Jones Loomed Large**\
 `The two actors talk about how the stage and screen great was a one-of-a-kind inspiration to them, and many others.`\
 https://nytimes.com/2024/09/11/theater/james-earl-jones-wendell-pierce-courtney-vance.html
@@ -18,8 +22,8 @@ https://nytimes.com/2024/09/11/nyregion/sept-11-memorial-nyc.html
 `The British government and Tata of India said they would invest 1.25 billion pounds in a plan to convert the steel mill at Port Talbot in Wales to an electric furnace.`\
 https://nytimes.com/2024/09/11/business/steel-britain.html
 
-**Live From Chase Center: Mark Zuckerberg Tapes a Podcast With 6,000 Friends**\
-`In front of a packed house on Tuesday night, Mr. Zuckerberg chatted about his company, Meta, with the hosts of the “Acquired” podcast, as tech titans shift the ways they communicate.`\
+**Mark Zuckerberg’s Live Podcast Interview Was San Francisco’s Hottest Ticket**\
+`Mr. Zuckerberg talked success to 6,000 people Tuesday night for the “Acquired” podcast. It’s a sign of how tech titans reach the public now.`\
 https://nytimes.com/2024/09/11/technology/mark-zuckerberg-podcast-acquired.html
 
 **The Windup: A reason to root for the newest call-up**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5759828/2024/09/11/next-england-manager-lee-carsley
 **Who are the biggest USMNT winners and losers as Mauricio Pochettino takes over?**\
 `Which USMNT players will look forward to their new head coach starting - and who might be concerned?`\
 https://nytimes.com/athletic/5712255/2024/09/11/usmnt-pochettino-winners-losers/
-
-**Juilliard Receives $20 Million to Unite Disciplines and Support Jazz**\
-`The donations, from John and Jody Arnhold, will expand creative work across disciplines, help pay for an annual fall festival and support the jazz program.`\
-https://nytimes.com/2024/09/11/arts/music/juilliard-20-million-gift.html
 

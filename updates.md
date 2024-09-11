@@ -1,3 +1,11 @@
+**Why the Maple Leafs are taking a chance on Max Pacioretty**\
+`Could Pacioretty rise into a top-six role in Toronto?`\
+https://nytimes.com/athletic/5760332/2024/09/11/maple-leafs-pacioretty-contract/
+
+**Mark Zuckerberg’s Live Podcast Interview Was San Francisco’s Hottest Ticket**\
+`Mr. Zuckerberg talked success to 6,000 people Tuesday night for the “Acquired” podcast. It’s a sign of how tech titans reach the public now.`\
+https://nytimes.com/2024/09/11/technology/mark-zuckerberg-podcast-acquired.html
+
 **For Wendell Pierce and Courtney B. Vance, James Earl Jones Loomed Large**\
 `The two actors talk about how the stage and screen great was a one-of-a-kind inspiration to them, and many others.`\
 https://nytimes.com/2024/09/11/theater/james-earl-jones-wendell-pierce-courtney-vance.html
