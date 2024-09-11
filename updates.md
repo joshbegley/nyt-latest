@@ -1,3 +1,7 @@
+**Van Dijk says De Ligt will 'learn' after Netherlands error leads to Germany goal**\
+`Virgil van Dijk says Netherlands centre-back partner Matthijs de Ligt will learn from his mistake after being replaced at half time during the Netherlands&#8217; Nations League draw against Germany.`\
+https://nytimes.com/athletic/5759703/2024/09/11/matthijs-de-ligt-netherlands-virgil-van-dijk/
+
 **Trump and Harris Clash in a Fiery Presidential Debate**\
 `In their first face-to-face meeting, Kamala Harris put Donald Trump on the defensive as the former president tried to tie her to unpopular Biden administration policies.`\
 https://nytimes.com/video/us/elections/100000009685520/trump-harris-debate.html
