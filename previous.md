@@ -1,3 +1,11 @@
+**Six U.N. employees are among dozens of people killed in Israeli airstrikes across Gaza.**\
+`By Anushka Patil`\
+https://nytimes.com/live/2024/09/11/world/israel-hamas-gaza-war/six-un-employees-are-among-dozens-of-people-killed-in-israeli-airstrikes-across-gaza
+
+**Blue Jays' Francis loses no-no in 9th on Lindor's HR**\
+`This is the second time in one month that Toronto's Bowden Francis carried a no-hitter into the ninth and lost it on a leadoff homer.`\
+https://nytimes.com/athletic/5761086/2024/09/11/bowden-francis-francisco-lindor-mets-blue-jays/
+
 **Prison Where Capote Interviewed Killers for ‘In Cold Blood’ Will Open to Tourists**\
 `The historical society in Lansing, Kan., hopes to attract visitors to the city of about 11,000 residents by welcoming visitors to the former Kansas State Penitentiary.`\
 https://nytimes.com/2024/09/11/us/truman-capote-in-cold-blood-kansas-prison.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/11/arts/music/popcast-kendrick-lamar-sabrina-carpent
 **The Hurricane Season Is Suddenly Looking More Active**\
 `Forecasters are watching more than just Francine, as several other storm systems could become the next named storm in the Atlantic.`\
 https://nytimes.com/2024/09/11/weather/hurricane-season-update-forecast.html
-
-**White Sox watch: Rally falls short in 15th consecutive home loss**\
-`The 2024 Chicago White Sox are on pace to eclipse the 120-loss New York Mets of 1962. Can they avoid infamy?`\
-https://nytimes.com/athletic/5734497/2024/09/11/white-sox-watch-most-losses-season/
-
-**In New Orleans, Streets Turn Quiet as Water Builds Ahead of Francine’s Landfall**\
-`As Francine, a Category 1 hurricane, barreled toward Louisiana, many residents stayed indoors, concerned about potential flooding and power outages.`\
-https://nytimes.com/2024/09/11/weather/new-orleans-hurricane-francine.html
 
