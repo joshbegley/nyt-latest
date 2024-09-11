@@ -1,3 +1,11 @@
+**On Abortion, Trump Floundered in Fantasy Land**\
+`Abortion bans are a losing issue for Republicans.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/harris-trump-debate-abortion
+
+**“Putin endorsed her last week, said, ‘I hope she wins.’”**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/putin-endorsed-her-last-week-said-i-hope-she-wins
+
 **“Crime here is up and through the roof.”**\
 `By Zolan Kanno-Youngs`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/crime-here-is-up-and-through-the-roof
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/10/us/harris-trump-debate/donald-trump-the-cand
 **“I had nothing to do” with Jan. 6**\
 `By Luke Broadwater`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/i-had-nothing-to-do-with-jan-6
-
-**Part of a Club**\
-`Barbara Lin reflects on common sayings.`\
-https://nytimes.com/2024/09/10/crosswords/daily-puzzle-2024-09-11.html
-
-**“The Trump administration resulted in a trade deficit — one of the highest we’ve ever seen in the history of America.”**\
-`By Jim Tankersley`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/the-trump-administration-resulted-in-a-trade-deficit-one-of-the-highest-weve-ever-seen
 
