@@ -1,3 +1,7 @@
+**Blinken Visits Ukraine During Precarious Moment in the War and U.S. Politics**\
+`The U.S. secretary of state and his British counterpart, David Lammy, arrived in Kyiv on a trip aimed at showing solidarity for Ukraine as the American presidential elections loom.`\
+https://nytimes.com/2024/09/11/world/europe/ukraine-war-blinken-visit-kyiv.html
+
 **Iran’s New President, Tending to a Pivotal Alliance, Visits Iraq**\
 `In a region in turmoil, Tehran’s ties to its neighbor are more important than ever.`\
 https://nytimes.com/2024/09/11/world/middleeast/iran-president-pezeshkian-iraq-visit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/crosswords/spelling-bee-forum.html
 **'Hopefully he'll change the culture': How Pulisic - and other USMNT stars - welcomed Pochettino**\
 `After a long courtship, 52-year-old former Tottenham, Chelsea and Paris Saint-Germain coach Pochettino is the USMNT's new leader`\
 https://nytimes.com/athletic/5759519/2024/09/11/usmnt-pulisic-mauricio-pochettino-hire/
-
-**Dodgers get encouraging return from Yoshinobu Yamamoto before late collapse**\
-`A sequence of mental miscues in the field spoiled Yamamoto's commanding comeback performance. `\
-https://nytimes.com/athletic/5759663/2024/09/11/dodgers-yoshinobu-yamamoto/
 

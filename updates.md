@@ -1,3 +1,7 @@
+**Blinken Visits Ukraine During Precarious Moment in the War and U.S. Politics**\
+`The U.S. secretary of state and his British counterpart, David Lammy, arrived in Kyiv on a trip aimed at showing solidarity for Ukraine as the American presidential elections loom.`\
+https://nytimes.com/2024/09/11/world/europe/ukraine-war-blinken-visit-kyiv.html
+
 **Iran’s New President, Tending to a Pivotal Alliance, Visits Iraq**\
 `In a region in turmoil, Tehran’s ties to its neighbor are more important than ever.`\
 https://nytimes.com/2024/09/11/world/middleeast/iran-president-pezeshkian-iraq-visit.html
