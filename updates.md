@@ -1,3 +1,11 @@
+**What Thomas Saggese's call-up means for the Cardinals' end-of-season plans**\
+`Victor Scott II optioned to Triple-A to make way for the outfield prospect: "We need an extra infielder here is the bottom line."`\
+https://nytimes.com/athletic/5759057/2024/09/10/cardinals-thomas-saggese-victor-scott/
+
+**How to Diminish a Former President**\
+`In the end, only a woman could do that for us.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/harris-trump-debate-gender
+
 **Debate Fact Check: Harris and Trump on the Economy, Immigration and Abortion**\
 `The 2024 presidential candidates clashed on their records and their visions for the country’s future in a high-stakes debate.`\
 https://nytimes.com/live/2024/09/10/us/debate-trump-harris-fact-check
