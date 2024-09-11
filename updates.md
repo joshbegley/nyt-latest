@@ -1,3 +1,15 @@
+**Battle of the Political Brands**\
+`When Donald Trump and Kamala Harris faced off on the debate stage, governing style was on display.`\
+https://nytimes.com/2024/09/11/style/harris-trump-debate-style-suits.html
+
+**Shota Imanaga can star in the next hype videos the Cubs make for free agents**\
+`Videos sharing perspectives from players and staffers are part of the organization’s established recruiting philosophy.`\
+https://nytimes.com/athletic/5759696/2024/09/11/shota-imanaga-cubs-hype-videos/
+
+**Food price gains moderated in August.**\
+`By Madeleine Ngo`\
+https://nytimes.com/live/2024/09/11/business/cpi-inflation-fed/food-price-gains-moderated-in-august
+
 **With New Prime Minister, a ‘Rupture’ in French Politics and Barbs for Macron**\
 `President Emmanuel Macron’s newly picked prime minister wasted no time in putting a pointed distance between himself and France’s weakened leader.`\
 https://nytimes.com/2024/09/11/world/europe/france-macron-barnier-prime-minister.html
