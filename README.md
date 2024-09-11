@@ -1,3 +1,7 @@
+**For those riding out the storm, there were many reasons to stay.**\
+`By Marie Elizabeth Oliver, Jacey Fortin and Natalie McLendon`\
+https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/for-those-riding-out-the-storm-there-were-many-reasons-to-stay
+
 **The Debate Was About Trump. That Was Good for Harris.**\
 `It can be hard to tell when a debate bounce will last, but there are rough parameters that can guide us.`\
 https://nytimes.com/2024/09/11/upshot/debate-kamala-harris-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/us/edward-johnson-dead.html
 **Deshaun Watson to play vs. Jaguars on Sunday**\
 `A woman filed a lawsuit against Watson on Monday accusing him of sexual assault and battery.`\
 https://nytimes.com/athletic/5760495/2024/09/11/deshaun-watson-sexual-assault-browns-jaguars/
-
-**‘There’s a storm coming?’ A Mississippi casino braces for Francine, but patrons are still rolling the dice.**\
-`By Isabelle Taft`\
-https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/theres-a-storm-coming-a-mississippi-casino-braces-for-francine-but-patrons-are-still-rolling-the-dice
 
