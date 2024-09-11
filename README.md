@@ -1,4 +1,4 @@
-**WNBA players, WNBPA say Engelbert's comments on Clark-Reese rivalry were a 'fumble'**\
+**WNBA players, WNBPA say Engelbert's comments on Clark-Reese rivalry a 'fumble'**\
 `The WNBA has seen a surge in interest this season, with Clark and Reese participating in the most-watched game in over 20 years.`\
 https://nytimes.com/athletic/5759461/2024/09/10/wnba-wnbpa-cathy-engelbert-comments/
 
