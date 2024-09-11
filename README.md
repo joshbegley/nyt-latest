@@ -1,3 +1,7 @@
+**This Louisiana gas station is always open. Francine is forcing it to close.**\
+`By Jacey Fortin`\
+https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/this-louisiana-gas-station-is-always-open-francine-is-forcing-it-to-close
+
 **Why Venezuelan Election Observers are Exiled in Colombia**\
 `As the government of Nicolás Maduro doubles down on declaring him the winner of Venezuela’s presidential election, political opponents are fleeing to neighboring countries to escape threats to themselves and their families.`\
 https://nytimes.com/video/world/americas/100000009655106/why-venezuelan-election-observers-are-exiled-in-colombia.html
@@ -29,12 +33,4 @@ https://nytimes.com/2024/09/11/us/politics/trump-obamacare.html
 **A Rock Star’s Mystery Baby Offers a Lesson in Crisis Communication**\
 `The timing and content of Dave Grohl’s admission that he had a child outside his marriage was complimented for addressing the issue and relying on short memories.`\
 https://nytimes.com/2024/09/11/style/dave-grohl-daughter-instagram.html
-
-**A Temporary Truce in the Political Wars as Harris, Trump and Biden Mark 9/11**\
-`Vice President Kamala Harris and former President Donald J. Trump joined President Biden and other dignitaries in a daylong journey to sites of the terrorist attacks of Sept. 11, 2001.`\
-https://nytimes.com/2024/09/11/us/politics/harris-trump-biden-911.html
-
-**Lloyd Kaufman, Who Saw Answers Behind the ‘Moon Illusion,’ Dies at 97**\
-`He advanced the study of a millenniums-old mystery: why the moon appears larger on the horizon than it does high in the night sky.`\
-https://nytimes.com/2024/09/11/science/lloyd-kaufman-dead.html
 
