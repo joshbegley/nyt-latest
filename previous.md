@@ -1,9 +1,21 @@
+**Trump Undermines Vance on Abortion Ban Veto: ‘I Didn’t Discuss It With JD’**\
+`Scrambling to shelter himself on abortion, Donald J. Trump disavowed his running mate’s pledge that, if re-elected, the former president would veto a national abortion ban.`\
+https://nytimes.com/2024/09/11/us/politics/vance-trump-abortion-ban.html
+
+**Guards Say Top Adams Aide Threatened Them After Having Them Arrested**\
+`Two security guards said the aide, Timothy Pearson, attacked them then had them arrested. Federal agents seized his cellphone last week as part of a separate investigation.`\
+https://nytimes.com/2024/09/11/nyregion/timothy-pearson-guards-migrants.html
+
+**Islamists Gain in Jordan, Reflecting Public Anger Over Gaza War**\
+`The political arm of the Muslim Brotherhood won a sizable share of seats in Parliament, though not enough to challenge the government’s pro-Western tilt.`\
+https://nytimes.com/2024/09/11/world/middleeast/jordan-election-muslim-brotherhood.html
+
 **4 Climbers Are Found Dead on Mont Blanc in the French Alps**\
 `The climbers from Italy and South Korea were found on Tuesday after they went missing three days earlier during a period of bad weather on the peak.`\
 https://nytimes.com/2024/09/11/world/europe/mont-blanc-climber-deaths.html
 
 **Trump’s Alternative for Obamacare Is Now Just ‘Concepts of a Plan’**\
-`Former President Donald J. Trump once promised to replace Obamacare with “something terrific.” But as the 2014 law has become more popular, he has softened his criticism.`\
+`Former President Donald J. Trump once promised to replace Obamacare with “something terrific.” But as the 2010 law has become more popular, he has sounded less confident about a repeal.`\
 https://nytimes.com/2024/09/11/us/politics/trump-obamacare.html
 
 **A Rock Star Offers a Lesson in Crisis Communication**\
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/11/us/politics/taylor-swift-politics-harris.html
 **Mets plan to line up best starters for critical Atlanta series**\
 `The Mets are 20-8 when Sean Manaea starts, which is why they're looking to pitch him as often as possible in important games. `\
 https://nytimes.com/athletic/5760796/2024/09/11/mets-rotation-wild-card-sean-manaea/
-
-**Is Europe Turning Its Back on the Left?**\
-`The elections went well. It’s what came afterward that is worrying.`\
-https://nytimes.com/2024/09/11/opinion/europe-france-macron-government.html
-
-**Art Museum Fires 3 Employees for Wearing Kaffiyehs**\
-`The Noguchi Museum said the headscarves, a symbol of Palestinian identity, violated a dress code that recently banned “political messages, slogans or symbols.”`\
-https://nytimes.com/2024/09/11/arts/design/noguchi-museum-employees-kaffiyeh-fired.html
-
-**Commission recommends mediation between PSG and Mbappe over unpaid wages**\
-`A Ligue de Football Professionnel (LFP) legal commission recommended mediation between Paris Saint-Germain and Kylian Mbappe to resolve a contract dispute over the player’s unpaid salary.`\
-https://nytimes.com/athletic/5759966/2024/09/11/kylian-mbappe-psg-unpaid-wages-mediation/
 
