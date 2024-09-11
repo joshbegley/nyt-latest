@@ -1,3 +1,23 @@
+**Fox News hosts decide who lost the debate: ABC News.**\
+`By Jeremy W. Peters`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/fox-news-hosts-decide-who-lost-the-debate-abc-news
+
+**Anatomy of a Premier League hat-trick: Erling Haaland vs Sergio Aguero**\
+`The two players have 47 per cent of Manchester City's Premier League hat-tricks - but how do their trebles compare aesthetically? `\
+https://nytimes.com/athletic/5741292/2024/09/11/haaland-aguero-premier-league-hat-tricks/
+
+**After Questioning Harris’s Race, Trump Tries to Walk It Back at Debate**\
+`Donald J. Trump tried to soften his claim that Vice President Kamala Harris had changed her racial identity. She called his divisive remarks a ‘tragedy.’`\
+https://nytimes.com/2024/09/11/us/politics/trump-harris-race.html
+
+**What it's like to leave Manchester United: A diary**\
+`Academy defender Will Fish left United to join Cardiff City in August. He guides Andy Mitten through the biggest summer of his career so far`\
+https://nytimes.com/athletic/5757996/2024/09/11/manchester-united-transfer-diary-will-fish/
+
+**Ranking every Premier League XI - first choice, second choice and Chelsea's C team**\
+`How would a Premier League table containing all 20 clubs' first and second XIs (and in the case of Chelsea, their third XI) look?`\
+https://nytimes.com/athletic/5750586/2024/09/11/ranked-premier-league-xi/
+
 **The Phillies are rolling and can taste it after rallying past Rays as benches clear**\
 `PHILADELPHIA — They can taste it now, as evidenced by the thick fog that filled the service-level hallway outside the Phillies clubhouse Tuesday night.`\
 https://nytimes.com/athletic/5759534/2024/09/11/phillies-rays-benches-clear-catellanos-harper/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5756088/2024/09/11/how-has-data-changed-football/
 **Kutter Crawford makes 30th start, but Red Sox offense falters once again**\
 `After scoring 12 runs on Monday, the Red Sox weren’t able to sustain that momentum offensively, wasting a quality Crawford start.`\
 https://nytimes.com/athletic/5759526/2024/09/11/red-sox-kutter-crawford-30-starts/
-
-**Yankees' postseason pitching plans: Two pitchers who should be in peril**\
-`There are likely 11 pitchers with guaranteed spots on the postseason roster, however, who lands the final two spots is up for debate.`\
-https://nytimes.com/athletic/5758903/2024/09/11/yankees-postseason-pitching-plans/
-
-**Corrections: Sept. 11, 2024**\
-`Corrections that appeared in print on Wednesday, Sept. 11, 2024.`\
-https://nytimes.com/2024/09/11/pageoneplus/corrections-sept-11-2024.html
-
-**Wednesday Briefing**\
-`A contentious U.S. presidential debate.`\
-https://nytimes.com/2024/09/11/briefing/trump-harris-debate.html
-
-**Lucy Bronze: 'It took me 30 seconds to decide to join Chelsea. They've got everything here'**\
-`'I wanted to win the Champions League with an English team and Chelsea are the best team to do that with.' Lucy Bronze on her latest move`\
-https://nytimes.com/athletic/5758715/2024/09/11/lucy-bronze-chelsea-interview/
-
-**How Russia’s Steady Advance Threatens Ukraine’s East**\
-`Russia is getting closer to cutting critical supply lines for troops in the remaining Ukrainian strongholds across the region.`\
-https://nytimes.com/interactive/2024/09/11/world/europe/russia-pokrovsk-advance.html
 
