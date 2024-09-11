@@ -1,3 +1,7 @@
+**Reunited with the 'Rally Sausage,' Twins' offense breaks out of slumber**\
+`Desperate for a spark after losing 15 times in 21 games, the Twins revived an old friend on Tuesday night.`\
+https://nytimes.com/athletic/5759573/2024/09/11/twins-offense-break-out-rally-sausage/
+
 **Buoyed by Blue Jays' support, Davis Schneider finally gets the hit he was searching for**\
 `Schneider's teammates have supported him during his second-half struggles. "I couldn't be more grateful."`\
 https://nytimes.com/athletic/5759542/2024/09/11/blue-jays-davis-schneider-slump/
@@ -5,6 +9,10 @@ https://nytimes.com/athletic/5759542/2024/09/11/blue-jays-davis-schneider-slump/
 **The Moment Trump Couldn’t Resist Bungling**\
 `Kamala Harris knew what she wanted Trump to do. He did not disappoint her.`\
 https://nytimes.com/2024/09/11/us/politics/trump-harris-debate-moments.html
+
+**Why making Liverpool's defence more compact is Arne Slot's first big win**\
+`The team are playing more with their heads than their hearts under the new head coach - and it is making a difference`\
+https://nytimes.com/athletic/5749771/2024/09/11/liverpool-defending-srne-slot-improvement/
 
 **Chelsea's ownership structure: Who owns what at Stamford Bridge?**\
 `These are the key figures who make up the Chelsea hierarchy as the club digests the split between co-owners Todd Boehly and Behdad Eghbali`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5741292/2024/09/11/haaland-aguero-premier-league-ha
 **After Questioning Harris’s Race, Trump Tries to Walk It Back at Debate**\
 `Donald J. Trump tried to soften his claim that Vice President Kamala Harris had changed her racial identity. She called his divisive remarks a ‘tragedy.’`\
 https://nytimes.com/2024/09/11/us/politics/trump-harris-race.html
-
-**What it's like to leave Manchester United: A diary**\
-`Academy defender Will Fish left United to join Cardiff City in August. He guides Andy Mitten through the biggest summer of his career so far`\
-https://nytimes.com/athletic/5757996/2024/09/11/manchester-united-transfer-diary-will-fish/
-
-**Ranking every Premier League XI - first choice, second choice and Chelsea's C team**\
-`How would a Premier League table containing all 20 clubs' first and second XIs (and in the case of Chelsea, their third XI) look?`\
-https://nytimes.com/athletic/5750586/2024/09/11/ranked-premier-league-xi/
 

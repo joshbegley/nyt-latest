@@ -1,3 +1,11 @@
+**Reunited with the 'Rally Sausage,' Twins' offense breaks out of slumber**\
+`Desperate for a spark after losing 15 times in 21 games, the Twins revived an old friend on Tuesday night.`\
+https://nytimes.com/athletic/5759573/2024/09/11/twins-offense-break-out-rally-sausage/
+
+**Why making Liverpool's defence more compact is Arne Slot's first big win**\
+`The team are playing more with their heads than their hearts under the new head coach - and it is making a difference`\
+https://nytimes.com/athletic/5749771/2024/09/11/liverpool-defending-srne-slot-improvement/
+
 **Buoyed by Blue Jays' support, Davis Schneider finally gets the hit he was searching for**\
 `Schneider's teammates have supported him during his second-half struggles. "I couldn't be more grateful."`\
 https://nytimes.com/athletic/5759542/2024/09/11/blue-jays-davis-schneider-slump/
