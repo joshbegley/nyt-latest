@@ -1,3 +1,11 @@
+**Part of a Club**\
+`Barbara Lin reflects on common sayings.`\
+https://nytimes.com/2024/09/10/crosswords/daily-puzzle-2024-09-11.html
+
+**I’m Hearing Huge Relief From Democrats Over Harris’s Debate Performance**\
+`Time and again, she laid the bait, and Trump took it.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/harris-trump-debate-
+
 **“The Trump administration resulted in a trade deficit — one of the highest we’ve ever seen in the history of America.”**\
 `By Jim Tankersley`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/the-trump-administration-resulted-in-a-trade-deficit-one-of-the-highest-weve-ever-seen
