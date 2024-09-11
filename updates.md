@@ -1,3 +1,7 @@
+**Ake forced off with injury on international duty with the Netherlands**\
+`Manchester City defender Nathan Ake was forced off in the Netherlands&#8217; Nations League draw against Germany due to an apparent muscle injury.`\
+https://nytimes.com/athletic/5758754/2024/09/11/nathan-ake-injury-netherlands-manchester-city/
+
 **Mexico’s Judicial Overhaul Overcomes Its Biggest Obstacle: The Senate**\
 `The chamber’s approval clears away the last major hindrance to the sweeping proposals championed by the president, which have prompted nationwide strikes.`\
 https://nytimes.com/2024/09/11/world/americas/mexico-judical-overhaul-senate-vote.html
