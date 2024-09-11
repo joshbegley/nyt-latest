@@ -1,4 +1,8 @@
 **Mexico’s Judicial Overhaul Overcomes Its Biggest Obstacle: The Senate**\
+`The chamber’s approval clears away the last major hindrance to the sweeping proposals championed by the president, which have prompted nationwide strikes.`\
+https://nytimes.com/2024/09/11/world/americas/mexico-judical-overhaul-senate-vote.html
+
+**Mexico’s Judicial Overhaul Overcomes Its Biggest Obstacle: The Senate**\
 `The Senate’s approval cleared away the last major obstacle to the sweeping proposals championed by the president, which have prompted nationwide strikes.`\
 https://nytimes.com/2024/09/11/world/americas/mexico-judical-overhaul-senate-vote.html
 
