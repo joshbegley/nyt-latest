@@ -1,3 +1,11 @@
+**This hurricane season was expected to be busy.**\
+`By Judson Jones`\
+https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/this-hurricane-season-was-expected-to-be-busy
+
+**Harris Put Trump on Defense at the Presidential Debate**\
+`Vice President Kamala Harris baited traps for Donald J.`\
+https://nytimes.com/video/us/elections/100000009685589/harris-put-trump-on-defense-at-the-presidential-debate.html
+
 **How Climate Change Is Transforming Hurricanes**\
 `Scientists are confident that the warming of the planet is affecting how storms behave.`\
 https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/climate-change-hurricanes
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/11/arts/television/kamala-harris-donald-trump-debate
 **Why the Maple Leafs are taking a chance on Max Pacioretty**\
 `Could Pacioretty rise into a top-six role in Toronto?`\
 https://nytimes.com/athletic/5760332/2024/09/11/maple-leafs-pacioretty-contract/
-
-**For Wendell Pierce and Courtney B. Vance, James Earl Jones Loomed Large**\
-`The two actors talk about how the stage and screen great was a one-of-a-kind inspiration to them, and many others.`\
-https://nytimes.com/2024/09/11/theater/james-earl-jones-wendell-pierce-courtney-vance.html
-
-**How to Stay Safe When the Power Goes Out**\
-`Improper use of portable generators carries several risks, including carbon monoxide poisoning.`\
-https://nytimes.com/2024/09/11/weather/hurricane-francine-power-generator.html
 
