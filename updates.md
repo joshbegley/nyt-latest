@@ -1,3 +1,7 @@
+**Pundits Said Harris Won the Debate. Undecided Voters Weren’t So Sure.**\
+`Voters said the vice president talked about a sweeping vision to fix the country’s most stubborn problems. But they wanted the fine print.`\
+https://nytimes.com/2024/09/11/us/politics/undecided-voters-react-debate.html
+
 **Van Dijk says De Ligt will 'learn' after Netherlands error leads to Germany goal**\
 `Virgil van Dijk says Netherlands centre-back partner Matthijs de Ligt will learn from his mistake after being replaced at half time during the Netherlands&#8217; Nations League draw against Germany.`\
 https://nytimes.com/athletic/5759703/2024/09/11/matthijs-de-ligt-netherlands-virgil-van-dijk/

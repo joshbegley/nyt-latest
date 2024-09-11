@@ -1,3 +1,7 @@
+**Pundits Said Harris Won the Debate. Undecided Voters Weren’t So Sure.**\
+`Voters said the vice president talked about a sweeping vision to fix the country’s most stubborn problems. But they wanted the fine print.`\
+https://nytimes.com/2024/09/11/us/politics/undecided-voters-react-debate.html
+
 **Van Dijk says De Ligt will 'learn' after Netherlands error leads to Germany goal**\
 `Virgil van Dijk says Netherlands centre-back partner Matthijs de Ligt will learn from his mistake after being replaced at half time during the Netherlands&#8217; Nations League draw against Germany.`\
 https://nytimes.com/athletic/5759703/2024/09/11/matthijs-de-ligt-netherlands-virgil-van-dijk/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5758754/2024/09/11/nathan-ake-injury-netherlands-ma
 **‘The End of Our Country’: Trump Paints Dark Picture at Debate**\
 `Former President Donald J. Trump offered a dire portrait of America, often relying on false and debunked claims as he described “a failing nation.”`\
 https://nytimes.com/2024/09/11/us/politics/trump-debate-dark-picture.html
-
-**Why Nearly All Judges in Mexico Could Soon Be Chosen by Voters**\
-`The legislation passed by Congress could produce one of the most far-reaching judicial overhauls in any major democracy.`\
-https://nytimes.com/2024/09/11/world/americas/mexico-judiciary-overhaul.html
 
