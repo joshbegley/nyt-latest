@@ -1,3 +1,11 @@
+**Lloyd Kaufman, Who Saw Answers Behind the ‘Moon Illusion,’ Dies at 97**\
+`He advanced the study of a millenniums-old mystery: why the moon appears larger on the horizon than it does high in the night sky.`\
+https://nytimes.com/2024/09/11/science/lloyd-kaufman-dead.html
+
+**How Taylor Swift Surprised Harris, and Entered a New Political Era**\
+`The pop star capped a big night for Kamala Harris with an unexpectedly timed endorsement that could draw in more young voters. Ms. Swift’s political message, too, was newly direct and personal.`\
+https://nytimes.com/2024/09/11/us/politics/taylor-swift-politics-harris.html
+
 **Mets plan to line up best starters for critical Atlanta series**\
 `The Mets are 20-8 when Sean Manaea starts, which is why they're looking to pitch him as often as possible in important games. `\
 https://nytimes.com/athletic/5760796/2024/09/11/mets-rotation-wild-card-sean-manaea/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/03/opinion/thepoint/inflation-numbers-annual
 **Harris vs. Trump: Assessing a Fierce Debate**\
 `Readers analyze the candidates’ performances, the moderators, the likely impact and claims of pet-eating.`\
 https://nytimes.com/2024/09/11/opinion/letters/harris-trump-debate.html
-
-**Democratic Swifties are ecstatic (even in a swing state where she didn’t tour).**\
-`By Eduardo Medina`\
-https://nytimes.com/live/2024/09/11/us/harris-trump-debate-election/democratic-swifties-are-ecstatic-even-in-a-swing-state-where-she-didnt-tour
-
-** An Open Letter on World Contraception Day to Those Concerned About Reproductive Health **\
-`A letter from Dr. Charlotte Owens, Head of Medical Affairs and Outcomes Research at Organon for World Contraception Day`\
-https://nytimes.com/paidpost/organon-pharmaceuticals/2024-world-contraception-day/-an-open-letter-on-world-contraception-day-to-those-concerned-about-reproductive-health.html
 
