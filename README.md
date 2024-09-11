@@ -1,3 +1,7 @@
+**Lowetide: Can Oilers coaching staff find magic again with the current defence?**\
+`Solutions for Edmonton's issues on the back end do not appear to be close at hand.`\
+https://nytimes.com/athletic/5758371/2024/09/11/oilers-lineup-defence-coffey/
+
 **Housing costs remain stubborn, complicating the inflation picture.**\
 `By Ben Casselman`\
 https://nytimes.com/live/2024/09/11/business/cpi-inflation-fed/housing-costs-remain-stubborn-complicating-the-inflation-picture
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/style/parenting-advice-unsolicited.html
 **Manchester United defender Blundell announces pregnancy**\
 `Manchester United full-back Hannah Blundell has announced that she is pregnant.`\
 https://nytimes.com/athletic/5759932/2024/09/11/hannah-blundell-manchester-united-pregnancy/
-
-**Battle of the Political Brands**\
-`When Donald Trump and Kamala Harris faced off on the debate stage, governing style was on display.`\
-https://nytimes.com/2024/09/11/style/harris-trump-debate-style-suits.html
 
