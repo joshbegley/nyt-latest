@@ -1,3 +1,7 @@
+**Is Europe Turning Its Back on the Left?**\
+`The elections went well. It’s what came afterward that is worrying.`\
+https://nytimes.com/2024/09/11/opinion/europe-france-macron-government.html
+
 **Art Museum Fires 3 Employees for Wearing Kaffiyehs**\
 `The Noguchi Museum said the headscarves, a symbol of Palestinian identity, violated a dress code that recently banned “political messages, slogans or symbols.”`\
 https://nytimes.com/2024/09/11/arts/design/noguchi-museum-employees-kaffiyeh-fired.html
@@ -33,8 +37,4 @@ https://nytimes.com/paidpost/organon-pharmaceuticals/2024-world-contraception-da
 **Ravens LB Kyle Van Noy calls Chiefs training staff 'unprofessional'**\
 `Van Noy said he sustained a fractured orbital bone and needed to see an ophthalmologist but was left waiting in the locker room.`\
 https://nytimes.com/athletic/5760541/2024/09/11/ravens-kyle-van-noy-chiefs-training-staff/
-
-**For those riding out the storm, there were many reasons to stay.**\
-`By Marie Elizabeth Oliver, Jacey Fortin and Natalie McLendon`\
-https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/for-those-riding-out-the-storm-there-were-many-reasons-to-stay
 
