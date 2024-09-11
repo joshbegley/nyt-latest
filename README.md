@@ -1,3 +1,7 @@
+**Trump Walked Into the Media ‘Spin Room’ Himself After the Debate**\
+`It was an unusual move for a presidential candidate.`\
+https://nytimes.com/2024/09/11/us/politics/trump-debate-spin-room.html
+
 **Reunited with the 'Rally Sausage,' Twins offense breaks out of slumber**\
 `Desperate for a spark after losing 15 times in 21 games, the Twins revived an old friend on Tuesday night.`\
 https://nytimes.com/athletic/5759573/2024/09/11/twins-offense-break-out-rally-sausage/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/10/us/harris-trump-debate/fox-news-hosts-decide
 **Anatomy of a Premier League hat-trick: Erling Haaland vs Sergio Aguero**\
 `The two players have 47 per cent of Manchester City's Premier League hat-tricks - but how do their trebles compare aesthetically? `\
 https://nytimes.com/athletic/5741292/2024/09/11/haaland-aguero-premier-league-hat-tricks/
-
-**After Questioning Harris’s Race, Trump Tries to Walk It Back at Debate**\
-`Donald J. Trump tried to soften his claim that Vice President Kamala Harris had changed her racial identity. She called his divisive remarks a ‘tragedy.’`\
-https://nytimes.com/2024/09/11/us/politics/trump-harris-race.html
 
