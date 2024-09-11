@@ -1,3 +1,7 @@
+**Blackhawks' Levshunov to miss prospect showcase with injury**\
+`The injury occurred when Levshunov was struck in the foot by a puck in a recent training session.`\
+https://nytimes.com/athletic/5760343/2024/09/11/blackhawks-artyom-levshunov-injury-showcase/
+
 **Gulf Coast States Have Been Battered by Hurricanes in Recent Years**\
 `Here’s a look at storms that have hit the area in the last few years.`\
 https://nytimes.com/2024/09/11/weather/gulf-coast-storms-history.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/dining/artichoke-pasta-recipe.html
 **Climate at the Debate: Trump Ignored the Question and Harris Hedged**\
 `Vice President Kamala Harris nodded to the urgency of climate change but also highlighted the country’s record levels of oil and gas production.`\
 https://nytimes.com/2024/09/11/climate/trump-harris-climate-change-debate.html
-
-**Canucks offseason report card: Grading all of management's summer moves**\
-`Canucks management faced a unenviable series of difficult choices this summer. How did the moves grade out?`\
-https://nytimes.com/athletic/5759691/2024/09/11/canucks-offseason-moves-grades/
 

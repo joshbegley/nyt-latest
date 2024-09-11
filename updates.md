@@ -1,3 +1,7 @@
+**Blackhawks' Levshunov to miss prospect showcase with injury**\
+`The injury occurred when Levshunov was struck in the foot by a puck in a recent training session.`\
+https://nytimes.com/athletic/5760343/2024/09/11/blackhawks-artyom-levshunov-injury-showcase/
+
 **Gulf Coast States Have Been Battered by Hurricanes in Recent Years**\
 `Here’s a look at storms that have hit the area in the last few years.`\
 https://nytimes.com/2024/09/11/weather/gulf-coast-storms-history.html
