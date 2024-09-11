@@ -1,3 +1,19 @@
+**Alberto Fujimori, Ex-Leader of Peru Imprisoned for Rights Abuses, Dies at 86**\
+`During his decade in power, he revived the economy and crushed two violent leftist insurgencies. But he was forced out in a corruption scandal and later imprisoned for human rights abuses.`\
+https://nytimes.com/2024/09/11/world/americas/alberto-fujimori-dead.html
+
+**Debate Puts Trump’s Affinity for Putin Back in the Spotlight**\
+`The former president’s refusal to back Ukraine’s war effort showed the likely limits of U.S. support for Kyiv if he returns to the White House.`\
+https://nytimes.com/2024/09/11/us/politics/trump-russia-ukraine-war.html
+
+**Trump Says He Had a Great Debate. His Allies Privately Say Otherwise.**\
+`Donald J. Trump’s aggressive spinning of his debate performance suggested he knew it was suboptimal, and left aides considering how to move ahead with eight weeks to go.`\
+https://nytimes.com/2024/09/11/us/politics/trump-debate-performance.html
+
+**A’ja Wilson breaks WNBA single-season points record**\
+`Already a two-time MVP and defensive player of the year, Wilson is the now the record holder for the most points in a single season.`\
+https://nytimes.com/athletic/5761261/2024/09/11/aja-wilson-wnba-single-season-points-record/
+
 **Researchers mapped the sites in Francine’s path that risk flooding and toxic spills.**\
 `By Austyn Gaffney`\
 https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/researchers-mapped-the-sites-in-francines-path-that-risk-flooding-and-toxic-spills
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/11/us/politics/trump-debate-emotions.html
 **How Trump Uses Vitriol for Migrants to Sideline Other Issues**\
 `Former President Donald J. Trump has long tried to stoke fear about immigration. Now, he’s doubling down as the presidential race heats up.`\
 https://nytimes.com/2024/09/11/us/politics/trump-debate-migrants.html
-
-**Norfolk Southern Fires C.E.O. After Ethics Investigation**\
-`The railroad company’s board said it dismissed Alan Shaw and an executive he had a consensual relationship with.`\
-https://nytimes.com/2024/09/11/business/norfolk-southern-alan-shaw-ceo.html
-
-**Israeli Strike in Gaza Kills 18, Officials Say, Including 6 U.N. Workers**\
-`While resuming its offensive against militants in the West Bank, Israel also kept up its bombardment of the Gaza Strip, striking a school building used as a shelter for displaced people.`\
-https://nytimes.com/2024/09/11/world/middleeast/israel-raids-west-bank.html
-
-**49ers' Christian McCaffrey on his injury and mindset: 'My mentality is I'm playing'**\
-`McCaffrey said he sees his decision as a "chess move" that will benefit him and the 49ers for the rest of the season.`\
-https://nytimes.com/athletic/5761285/2024/09/11/christian-mccaffrey-49ers-injury-status-vikings/
-
-**Top Election Officials Warn Postal Service of Mail Ballot Issues**\
-`Democratic and Republican secretaries of state highlighted incidents of voters being disenfranchised by ballots not being delivered on time.`\
-https://nytimes.com/2024/09/11/us/politics/mail-ballots-post-office-problems.html
 

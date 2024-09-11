@@ -1,3 +1,19 @@
+**Alberto Fujimori, Ex-Leader of Peru Imprisoned for Rights Abuses, Dies at 86**\
+`During his decade in power, he revived the economy and crushed two violent leftist insurgencies. But he was forced out in a corruption scandal and later imprisoned for human rights abuses.`\
+https://nytimes.com/2024/09/11/world/americas/alberto-fujimori-dead.html
+
+**Debate Puts Trump’s Affinity for Putin Back in the Spotlight**\
+`The former president’s refusal to back Ukraine’s war effort showed the likely limits of U.S. support for Kyiv if he returns to the White House.`\
+https://nytimes.com/2024/09/11/us/politics/trump-russia-ukraine-war.html
+
+**Trump Says He Had a Great Debate. His Allies Privately Say Otherwise.**\
+`Donald J. Trump’s aggressive spinning of his debate performance suggested he knew it was suboptimal, and left aides considering how to move ahead with eight weeks to go.`\
+https://nytimes.com/2024/09/11/us/politics/trump-debate-performance.html
+
+**A’ja Wilson breaks WNBA single-season points record**\
+`Already a two-time MVP and defensive player of the year, Wilson is the now the record holder for the most points in a single season.`\
+https://nytimes.com/athletic/5761261/2024/09/11/aja-wilson-wnba-single-season-points-record/
+
 **Researchers mapped the sites in Francine’s path that risk flooding and toxic spills.**\
 `By Austyn Gaffney`\
 https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/researchers-mapped-the-sites-in-francines-path-that-risk-flooding-and-toxic-spills
