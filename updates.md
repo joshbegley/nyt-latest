@@ -1,3 +1,15 @@
+**“As of today, there is not one member of the United States military who is in active duty in a combat zone, in any war zone around the world, for the first time this century.”**\
+`By Michael Crowley`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/as-of-today-there-is-not-one-member-of-the-united-states-military-who-is-in-active-duty-in-a-combat-zone-in-any-war-zone-around-
+
+**“Over the last four years, we have invested $1 trillion in a clean energy economy.”**\
+`By Andrew Duehren`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/over-the-last-four-years-we-have-invested-1-trillion-in-a-clean-energy-economy
+
+**Keider Montero throws a Maddux, and the Tigers' good vibes roll on**\
+`As the Tigers look to complete the most unlikely of runs, they keep finding heroes in the most unlikely of places.`\
+https://nytimes.com/athletic/5759447/2024/09/10/tigers-keider-montero-maddux-complete-game/
+
 **“Now she wants to do transgender operations on illegal aliens that are in prison.”**\
 `By Sheryl Gay Stolberg`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/now-she-wants-to-do-transgender-operations-on-illegal-aliens-that-are-in-prison
