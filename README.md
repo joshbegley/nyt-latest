@@ -1,3 +1,7 @@
+**'Hopefully he'll change the culture': How Pulisic - and other USMNT stars - welcomed Pochettino**\
+`After a long courtship, 52-year-old former Tottenham, Chelsea and Paris Saint-Germain coach Pochettino is the USMNT's new leader`\
+https://nytimes.com/athletic/5759519/2024/09/11/usmnt-pulisic-mauricio-pochettino-hire/
+
 **Dodgers get encouraging return from Yoshinobu Yamamoto before late collapse**\
 `A sequence of mental miscues in the field spoiled Yamamoto's commanding comeback performance. `\
 https://nytimes.com/athletic/5759663/2024/09/11/dodgers-yoshinobu-yamamoto/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/learning/word-of-the-day-volatile.html
 **In Debate With Trump, Harris’s Expressions Were a Weapon**\
 `Tuesday’s debate was expected to center on defining Kamala Harris. Instead, with words and with body language, she turned it into a referendum on Donald Trump.`\
 https://nytimes.com/2024/09/11/us/politics/trump-harris-debate-analysis.html
-
-**As Trump Links Her to Biden, Harris Says, ‘You’re Running Against Me’**\
-`Vice President Kamala Harris largely deflected former President Donald J. Trump’s attempts to tie her to President Biden.`\
-https://nytimes.com/2024/09/11/us/politics/harris-biden-trump-debate.html
 
