@@ -1,3 +1,7 @@
+**Hanoi Floods as Landslides and Rising Rivers Push Typhoon Death Toll to 143**\
+`Days after the storm made landfall, northern Vietnam was being battered by incessant rain. A landslide buried a whole village in a mountainous province.`\
+https://nytimes.com/2024/09/11/world/asia/yagi-vietnam-flooding-landslides.html
+
 **Blinken Visits Ukraine During Precarious Moment in the War and U.S. Politics**\
 `The U.S. secretary of state and his British counterpart, David Lammy, arrived in Kyiv on a trip aimed at showing solidarity for Ukraine as the American presidential elections loom.`\
 https://nytimes.com/2024/09/11/world/europe/ukraine-war-blinken-visit-kyiv.html

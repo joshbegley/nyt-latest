@@ -1,3 +1,7 @@
+**Hanoi Floods as Landslides and Rising Rivers Push Typhoon Death Toll to 143**\
+`Days after the storm made landfall, northern Vietnam was being battered by incessant rain. A landslide buried a whole village in a mountainous province.`\
+https://nytimes.com/2024/09/11/world/asia/yagi-vietnam-flooding-landslides.html
+
 **Blinken Visits Ukraine During Precarious Moment in the War and U.S. Politics**\
 `The U.S. secretary of state and his British counterpart, David Lammy, arrived in Kyiv on a trip aimed at showing solidarity for Ukraine as the American presidential elections loom.`\
 https://nytimes.com/2024/09/11/world/europe/ukraine-war-blinken-visit-kyiv.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/nyregion/sept-11-victims-cancer-compensation.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2024/09/11/crosswords/spelling-bee-forum.html
-
-**'Hopefully he'll change the culture': How Pulisic - and other USMNT stars - welcomed Pochettino**\
-`After a long courtship, 52-year-old former Tottenham, Chelsea and Paris Saint-Germain coach Pochettino is the USMNT's new leader`\
-https://nytimes.com/athletic/5759519/2024/09/11/usmnt-pulisic-mauricio-pochettino-hire/
 
