@@ -1,3 +1,7 @@
+**Carsley already sounds like the England manager - is it his job to lose?**\
+`The interim head coach is in pole position to become Southgate's successor, even though the FA's 'process' is ongoing `\
+https://nytimes.com/athletic/5752162/2024/09/11/lee-carsley-england-manager-job-fa/
+
 **Who Won the Debate? A Sharp Harris Unbalances Trump**\
 `Commentators concluded that Vice President Kamala Harris had succeeded in baiting former President Donald J. Trump into veering off message.`\
 https://nytimes.com/2024/09/11/us/politics/trump-harris-debate-who-won.html

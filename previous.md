@@ -1,3 +1,7 @@
+**Carsley already sounds like the England manager - is it his job to lose?**\
+`The interim head coach is in pole position to become Southgate's successor, even though the FA's 'process' is ongoing `\
+https://nytimes.com/athletic/5752162/2024/09/11/lee-carsley-england-manager-job-fa/
+
 **Who Won the Debate? A Sharp Harris Unbalances Trump**\
 `Commentators concluded that Vice President Kamala Harris had succeeded in baiting former President Donald J. Trump into veering off message.`\
 https://nytimes.com/2024/09/11/us/politics/trump-harris-debate-who-won.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5758145/2024/09/11/wsl-championship-wpll-doucet-vis
 **How do Arsenal adapt if they are missing Odegaard and other first-choice midfielders?**\
 `Norwegian playmaker could miss the north London derby, joining the suspended Declan Rice and the injured Mikel Merino on the sidelines`\
 https://nytimes.com/athletic/5757631/2024/09/11/arsenal-odegaard-injury-tottenham/
-
-**Why making Liverpool's defence more compact is Arne Slot's first big win**\
-`The team are playing more with their heads than their hearts under the new head coach - and it is making a difference`\
-https://nytimes.com/athletic/5749771/2024/09/11/liverpool-defending-srne-slot-improvement/
 
