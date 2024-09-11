@@ -1,3 +1,15 @@
+**Taylor Swift Endorses Kamala Harris**\
+`In a post on Instagram, the pop superstar said the evening’s debate convinced her to weigh in publicly.`\
+https://nytimes.com/2024/09/10/us/politics/taylor-swift-endorses-kamala-harris.html
+
+**“He lost manufacturing jobs.”**\
+`By Jim Tankersley`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/he-lost-manufacturing-jobs
+
+**“I had a choice to make” on Obamacare. “Do I save it and make it as good as it can be? Or do I let it rot? And I saved it. I did the right thing.”**\
+`By Sheryl Gay Stolberg`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/i-had-a-choice-to-make-on-obamacare-do-i-save-it-and-make-it-as-good-as-it-can-be-or-do-i-let-it-rot-and-i-saved-it-i-did-the-ri
+
 **WNBA players, WNBPA say Engelbert's comments on Clark-Reese rivalry a 'fumble'**\
 `The WNBA has seen a surge in interest this season, with Clark and Reese participating in the most-watched game in over 20 years.`\
 https://nytimes.com/athletic/5759461/2024/09/10/wnba-wnbpa-cathy-engelbert-comments/
