@@ -1,3 +1,7 @@
+**Biden Says He Is ‘Outraged’ Over Killing of American Activist in West Bank**\
+`In his first extensive remarks on the death of Aysenur Eygi, the U.S. president called for accountability from Israel.`\
+https://nytimes.com/2024/09/11/world/middleeast/biden-israel-shooting-west-bank-activist.html
+
 **The Athletic FC: How USMNT sealed Pochettino deal, data debate and a hat-trick race**\
 `In today's TAFC: How US Soccer finally got a deal done with Pochettino, an international round-up, a data debate and charting PL hat-tricks`\
 https://nytimes.com/athletic/5759768/2024/09/11/how-usmnt-sealed-pochettino-deal-the-data-debate-premier-league-hat-trick-race/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/world/asia/india-manipur-conflict.html
 **The Harris-Trump Debate**\
 `Kamala Harris seemed to win the debate with Donald Trump, but didn’t have a perfect night.`\
 https://nytimes.com/2024/09/11/briefing/kamala-harris-donald-trump-debate.html
-
-**Stock watch: Bullish on Brandin Cooks, bearish on Chicago rookies and more**\
-`Dane Martinez highlights some of the notable market movers following Week 1, including the rise of Brandin Cooks in the Dallas passing game.`\
-https://nytimes.com/athletic/5758960/2024/09/11/fantasy-football-stock-watch-bullish-on-brandin-cooks-bearish-on-chicago-rookies-and-more/
 
