@@ -1,3 +1,7 @@
+**Prison Where Capote Interviewed Killers for ‘In Cold Blood’ Will Open to Tourists**\
+`The historical society in Lansing, Kan., hopes to attract visitors to the city of about 11,000 residents by welcoming visitors to the former Kansas State Penitentiary.`\
+https://nytimes.com/2024/09/11/us/truman-capote-in-cold-blood-kansas-prison.html
+
 **Harris Reveled in Her Debate Reviews**\
 `Also, Hurricane Francine is pelting southern Louisiana. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/09/11/briefing/harris-trump-debate-aftermath-russia-ukraine.html
