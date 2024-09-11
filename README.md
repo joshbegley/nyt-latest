@@ -1,3 +1,15 @@
+**In Denmark, a Watchmaking Couple Plans for the Future**\
+`Christian and Hannelore Lass are still filling orders for their brand’s first timepiece, but a bigger workshop has them looking ahead.`\
+https://nytimes.com/2024/09/11/fashion/watches-christian-lass-denmark.html
+
+**The Book That Prepared This Veteran Editor for a Literary Life**\
+`A 1966 novel captures a publishing world full of chronic malcontents, strategic lunches and ideas that mattered.`\
+https://nytimes.com/2024/09/11/books/review/wilfrid-sheed-office-politics.html
+
+**College football Class of 2023 QBs: Checking in on Arch Manning, Nico Iamaleava and more**\
+`The second year on campus is critical for a quarterback and his future with a program. Let's check in on the top QBs from the Class of 2023.`\
+https://nytimes.com/athletic/5758128/2024/09/11/college-football-nico-iamaleava-arch-manning-top-qbs-2023/
+
 **Hanoi Floods as Landslides and Rising Rivers Push Typhoon Death Toll to 143**\
 `Days after the storm made landfall, northern Vietnam was being battered by incessant rain. A landslide buried a whole village in a mountainous province.`\
 https://nytimes.com/2024/09/11/world/asia/yagi-vietnam-flooding-landslides.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5759703/2024/09/11/matthijs-de-ligt-netherlands-vir
 **Trump and Harris Clash in a Fiery Presidential Debate**\
 `In their first face-to-face meeting, Kamala Harris put Donald Trump on the defensive as the former president tried to tie her to unpopular Biden administration policies.`\
 https://nytimes.com/video/us/elections/100000009685520/trump-harris-debate.html
-
-**Late Night Hosts Declare Harris the Winner in the Debate**\
-`Stephen Colbert said that the vice president needed to “rattle Trump’s cage. And now that it is over, they are still looking for pieces of his cage in low orbit.”`\
-https://nytimes.com/2024/09/11/arts/television/late-night-presidential-debate.html
-
-**23 Years After 9/11, Families of Cancer Victims Fight for Benefits**\
-`Some families are still pushing for recognition after their loved ones died from cancer that they believe is linked to Sept. 11, but that the federal government won’t recognize as such.`\
-https://nytimes.com/2024/09/11/nyregion/sept-11-victims-cancer-compensation.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/09/11/crosswords/spelling-bee-forum.html
 
