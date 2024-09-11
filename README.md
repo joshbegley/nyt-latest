@@ -1,3 +1,11 @@
+**Democratic Swifties are ecstatic (even in a swing state where she didn’t tour).**\
+`By Eduardo Medina`\
+https://nytimes.com/live/2024/09/11/us/harris-trump-debate-election/democratic-swifties-are-ecstatic-even-in-a-swing-state-where-she-didnt-tour
+
+** An Open Letter on World Contraception Day to Those Concerned About Reproductive Health **\
+`A letter from Dr. Charlotte Owens, Head of Medical Affairs and Outcomes Research at Organon for World Contraception Day`\
+https://nytimes.com/paidpost/organon-pharmaceuticals/2024-world-contraception-day/-an-open-letter-on-world-contraception-day-to-those-concerned-about-reproductive-health.html
+
 **Ravens LB Kyle Van Noy calls Chiefs training staff 'unprofessional'**\
 `Van Noy said he sustained a fractured orbital bone and needed to see an ophthalmologist but was left waiting in the locker room.`\
 https://nytimes.com/athletic/5760541/2024/09/11/ravens-kyle-van-noy-chiefs-training-staff/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/this-hu
 **Harris Put Trump on Defense at the Presidential Debate**\
 `Vice President Kamala Harris baited traps for Donald J.`\
 https://nytimes.com/video/us/elections/100000009685589/harris-put-trump-on-defense-at-the-presidential-debate.html
-
-**How climate change is transforming hurricanes**\
-`Scientists are confident that the warming of the planet is affecting how storms behave.`\
-https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/climate-change-hurricanes
-
-**Edward Johnson, C.I.A. Hero in Iran Hostage Crisis, Dies at 81**\
-`He was a secret partner who helped rescue six American diplomats in 1980 by passing them off as a film crew. The caper inspired the movie “Argo.”`\
-https://nytimes.com/2024/09/11/us/edward-johnson-dead.html
 
