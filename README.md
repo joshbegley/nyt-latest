@@ -1,3 +1,7 @@
+**‘They’re Eating the Cats’: Trump Repeats False Claim About Immigrants**\
+`Donald J. Trump amplified an outlandish internet theory from the debate stage, drawing laughter from his opponent, Vice President Kamala Harris.`\
+https://nytimes.com/2024/09/10/us/politics/trump-debate-immigrants-pets.html
+
 **Biden “ended the XL pipeline, the XL pipeline in our country. He ended that.”**\
 `By Lisa Friedman`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/biden-ended-the-xl-pipeline-the-xl-pipeline-in-our-country-he-ended-that
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/10/us/harris-trump-debate/all-of-trumps-legal-c
 **“Every one of those cases was started by them against their political opponent.”**\
 `By Ben Protess`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/every-one-of-those-cases-was-started-by-them-against-their-political-opponent
-
-**Harris Blames Trump for State Abortion Bans in Contentious Debate**\
-`Vice President Kamala Harris went on offense over abortion policy. “The government and Donald Trump, certainly, should not be telling a woman what to do with her body,” she said.`\
-https://nytimes.com/2024/09/10/us/politics/harris-trump-abortion-debate.html
 
