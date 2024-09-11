@@ -1,3 +1,7 @@
+**In Debate With Trump, Harris’s Expressions Were a Weapon**\
+`Tuesday’s debate was expected to center on defining Kamala Harris. Instead, with words and with body language, she turned it into a referendum on Donald Trump.`\
+https://nytimes.com/2024/09/11/us/politics/trump-harris-debate-analysis.html
+
 **Who Won the Debate? A Sharp Harris Rattled Trump**\
 `Commentators, even Republicans, concluded that  Kamala Harris had succeeded in provoking Donald Trump into veering off message.`\
 https://nytimes.com/2024/09/11/us/politics/trump-harris-debate-who-won.html
