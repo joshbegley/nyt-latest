@@ -1,3 +1,11 @@
+**Is Donald Trump Too Emotional For This?**\
+`Kamala Harris sought to rattle Trump — and flip a gender dynamic on its head.`\
+https://nytimes.com/2024/09/11/us/politics/trump-debate-emotions.html
+
+**How Trump Uses Vitriol for Migrants to Sideline Other Issues**\
+`Former President Donald J. Trump has long tried to stoke fear about immigration. Now, he’s doubling down as the presidential race heats up.`\
+https://nytimes.com/2024/09/11/us/politics/trump-debate-migrants.html
+
 **Norfolk Southern Fires C.E.O. After Ethics Investigation**\
 `The railroad company’s board said it dismissed Alan Shaw and an executive he had a consensual relationship with.`\
 https://nytimes.com/2024/09/11/business/norfolk-southern-alan-shaw-ceo.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/11/us/le-lyonnais-shipwreck-found-massachusetts.html
 **Transcript: Ezra Klein on the Harris-Trump Debate**\
 `The September 11, 2024, episode of “The Ezra Klein Show.”`\
 https://nytimes.com/2024/09/11/podcasts/transcript-ezra-klein-harris-trump-debate-reaction.html
-
-**Trump’s False Tale of Immigrants’ Eating Pets Draws Pushback and Derision**\
-`The city manager in Springfield, Ohio, said it was disappointing that the presidential race was amplifying a bizarre narrative about the city’s immigrants.`\
-https://nytimes.com/2024/09/11/us/politics/trump-springfield-ohio-immigrants-pets-pushback.html
-
-**Francine Arrives in a Region With Painful Memories of Past Storms**\
-`Francine could cut a somewhat similar path as Hurricane Ida, which left a trail of devastating consequences in 2021.`\
-https://nytimes.com/2024/09/11/weather/francine-hurricane-ida.html
 
