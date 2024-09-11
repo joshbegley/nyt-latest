@@ -1,3 +1,11 @@
+**The Big Takeaways for Business from Debate Night**\
+`The showdown between Vice President Kamala Harris and Donald Trump was light on policy, but there were still sparks as they laid out different visions for the economy.`\
+https://nytimes.com/2024/09/11/business/dealbook/takeaways-presidential-debate-harris-trump.html
+
+**Juan Pablo Montoya on his return to NASCAR, what retirement is like and more: 12 Questions**\
+`Juan Pablo Montoya talks about his return to NASCAR racing this weekend at Watkins Glen, mostly-retired life and more.`\
+https://nytimes.com/athletic/5758085/2024/09/11/juan-pablo-montoya-nascar-12-questions/
+
 **Biden Says He Is ‘Outraged’ Over Killing of American Activist in West Bank**\
 `In his first extensive remarks on the death of Aysenur Eygi, the U.S. president called for accountability from Israel.`\
 https://nytimes.com/2024/09/11/world/middleeast/biden-israel-shooting-west-bank-activist.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5759036/2024/09/11/angel-gomes-england-midfield-deb
 **Submit your Mets questions for the Tim Britton and Will Sammon mailbag**\
 `The stretch run is here.`\
 https://nytimes.com/athletic/5759574/2024/09/11/submit-your-mets-questions-for-the-tim-britton-and-will-sammon-mailbag-3/
-
-**Violence Resurges in Indian State Locked in Bloody Conflict for 16 Months**\
-`Ethnic tensions have turned Manipur into an open war zone. Struggling to contain the unrest, the authorities have reimposed a curfew and internet blackout.`\
-https://nytimes.com/2024/09/11/world/asia/india-manipur-conflict.html
-
-**The Harris-Trump Debate**\
-`Kamala Harris seemed to win the debate with Donald Trump, but didn’t have a perfect night.`\
-https://nytimes.com/2024/09/11/briefing/kamala-harris-donald-trump-debate.html
 
