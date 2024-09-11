@@ -1,3 +1,7 @@
+**“We have millions of people pouring into our country from prisons and jails, from mental institutions and insane asylums.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/we-have-millions-of-people-pouring-into-our-country-from-prisons-and-jails-from-mental-institutions-and-insane-asylums
+
 **Braves' Reynaldo López makes early exit**\
 `A serious injury to López would be a blow to a Braves team battling for one of three NL wild-card spots.`\
 https://nytimes.com/athletic/5759396/2024/09/10/braves-reynaldo-lopez-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/10/business/dealbook/pga-tour-saudi-liv-golf-nyc.htm
 **Kyle Schwarber hits record leadoff home run, leaves game with elbow injury**\
 `Schwarber's 14th leadoff homer broke Alfonso Soriano's mark, which had stood since 2003. He has bashed seven homers in his last eight games.`\
 https://nytimes.com/athletic/5759305/2024/09/10/kyle-schwarber-leadoff-home-runs-record/
-
-**Pearsall, teen charged in shooting case had 'extended struggle': Attorney**\
-`The next hearing in the matter is scheduled for Sept. 26.`\
-https://nytimes.com/athletic/5759279/2024/09/10/ricky-pearsall-shooting-teen-court-appearance/
 

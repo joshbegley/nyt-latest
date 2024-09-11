@@ -1,3 +1,7 @@
+**“We have millions of people pouring into our country from prisons and jails, from mental institutions and insane asylums.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/we-have-millions-of-people-pouring-into-our-country-from-prisons-and-jails-from-mental-institutions-and-insane-asylums
+
 **Braves' Reynaldo López makes early exit**\
 `A serious injury to López would be a blow to a Braves team battling for one of three NL wild-card spots.`\
 https://nytimes.com/athletic/5759396/2024/09/10/braves-reynaldo-lopez-injury/
