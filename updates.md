@@ -1,3 +1,7 @@
+**Is Europe Turning Its Back on the Left?**\
+`The elections went well. It’s what came afterward that is worrying.`\
+https://nytimes.com/2024/09/11/opinion/europe-france-macron-government.html
+
 **Art Museum Fires 3 Employees for Wearing Kaffiyehs**\
 `The Noguchi Museum said the headscarves, a symbol of Palestinian identity, violated a dress code that recently banned “political messages, slogans or symbols.”`\
 https://nytimes.com/2024/09/11/arts/design/noguchi-museum-employees-kaffiyeh-fired.html
