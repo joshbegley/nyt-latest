@@ -1,3 +1,11 @@
+**How Packers QB Malik Willis is preparing for likely start: 'I have to be ready'**\
+`The Packers are keeping the door open for Jordan Love to play Sunday, but it'll likely be Willis leading the offense against the Colts.`\
+https://nytimes.com/athletic/5761024/2024/09/11/packers-malik-willis-starting-colts/
+
+**‘Before I Let Go’ and 5 More Essential Frankie Beverly and Maze Songs**\
+`The singer, who died on Tuesday at 77, had a smooth, sunny delivery that turned at least one track into a lasting anthem of Black celebrations.`\
+https://nytimes.com/2024/09/11/arts/music/frankie-beverly-maze-songs-before-i-let-go.html
+
 **Harris Had a Theory of Trump, and It Was Right**\
 `The vice president successfully baited Trump’s angry, conspiratorial, free-associating side. But what wasn’t said was just as telling.`\
 https://nytimes.com/2024/09/11/opinion/ezra-klein-podcast-debate-react.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/11/world/europe/nhs-starmer-darzi-report.html
 **Trump’s Playbook on Abortion Includes This False Charge**\
 `During the debate, the former president used the phrase “execute the baby” to attack Kamala Harris for her support of abortion rights.`\
 https://nytimes.com/2024/09/11/us/trump-abortion-debate.html
-
-**James Sasser, Senator and Clinton’s Envoy to China, Dies at 87**\
-`He became ambassador after three terms as a senator from Tennessee. In 1999, he was made a virtual prisoner in the embassy in Beijing during a siege by protesters.`\
-https://nytimes.com/2024/09/11/us/politics/james-sasser-dead.html
-
-**Popcast: Kendrick Lamar at the Super Bowl, Sabrina Carpenter on Top**\
-`Plus: A conversation about the career of Rich Homie Quan, who died last week.`\
-https://nytimes.com/2024/09/11/arts/music/popcast-kendrick-lamar-sabrina-carpenter.html
 
