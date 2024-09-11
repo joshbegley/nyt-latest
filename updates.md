@@ -1,3 +1,23 @@
+**Fox News hosts decide who lost the debate: ABC News.**\
+`By Jeremy W. Peters`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/fox-news-hosts-decide-who-lost-the-debate-abc-news
+
+**Anatomy of a Premier League hat-trick: Erling Haaland vs Sergio Aguero**\
+`The two players have 47 per cent of Manchester City's Premier League hat-tricks - but how do their trebles compare aesthetically? `\
+https://nytimes.com/athletic/5741292/2024/09/11/haaland-aguero-premier-league-hat-tricks/
+
+**After Questioning Harris’s Race, Trump Tries to Walk It Back at Debate**\
+`Donald J. Trump tried to soften his claim that Vice President Kamala Harris had changed her racial identity. She called his divisive remarks a ‘tragedy.’`\
+https://nytimes.com/2024/09/11/us/politics/trump-harris-race.html
+
+**What it's like to leave Manchester United: A diary**\
+`Academy defender Will Fish left United to join Cardiff City in August. He guides Andy Mitten through the biggest summer of his career so far`\
+https://nytimes.com/athletic/5757996/2024/09/11/manchester-united-transfer-diary-will-fish/
+
+**Ranking every Premier League XI - first choice, second choice and Chelsea's C team**\
+`How would a Premier League table containing all 20 clubs' first and second XIs (and in the case of Chelsea, their third XI) look?`\
+https://nytimes.com/athletic/5750586/2024/09/11/ranked-premier-league-xi/
+
 **The Phillies are rolling and can taste it after rallying past Rays as benches clear**\
 `PHILADELPHIA — They can taste it now, as evidenced by the thick fog that filled the service-level hallway outside the Phillies clubhouse Tuesday night.`\
 https://nytimes.com/athletic/5759534/2024/09/11/phillies-rays-benches-clear-catellanos-harper/
