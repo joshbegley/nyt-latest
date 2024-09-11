@@ -1,3 +1,7 @@
+**Donald Sheppard, British D-Day Veteran, Dies at 104**\
+`He helped liberate Bergen-Belsen, the Nazi concentration camp where Anne Frank had died.`\
+https://nytimes.com/2024/09/11/world/europe/donald-sheppard-dead.html
+
 **Debate May Widen the Money Gap Between Harris and Trump**\
 `Large donors to former President Donald J. Trump’s campaign expressed concern after his performance. The Democrats raised big money in the hours after the debate.`\
 https://nytimes.com/2024/09/11/us/politics/trump-harris-debate-money.html
