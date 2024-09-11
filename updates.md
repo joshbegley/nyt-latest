@@ -1,3 +1,15 @@
+**The Big Takeaways for Business from Debate Night**\
+`The showdown between Vice President Kamala Harris and Donald Trump was light on policy, but there were still sparks as they laid out different visions for the economy.`\
+https://nytimes.com/2024/09/11/business/dealbook/takeaways-presidential-debate-harris-trump.html
+
+**Juan Pablo Montoya on his return to NASCAR, what retirement is like and more: 12 Questions**\
+`Juan Pablo Montoya talks about his return to NASCAR racing this weekend at Watkins Glen, mostly-retired life and more.`\
+https://nytimes.com/athletic/5758085/2024/09/11/juan-pablo-montoya-nascar-12-questions/
+
+**Biden Says He Is ‘Outraged’ Over Killing of American Activist in West Bank**\
+`In his first extensive remarks on the death of Aysenur Eygi, the U.S. president called for accountability from Israel.`\
+https://nytimes.com/2024/09/11/world/middleeast/biden-israel-shooting-west-bank-activist.html
+
 **The Athletic FC: How USMNT sealed Pochettino deal, data debate and a hat-trick race**\
 `In today's TAFC: How US Soccer finally got a deal done with Pochettino, an international round-up, a data debate and charting PL hat-tricks`\
 https://nytimes.com/athletic/5759768/2024/09/11/how-usmnt-sealed-pochettino-deal-the-data-debate-premier-league-hat-trick-race/
