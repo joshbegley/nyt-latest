@@ -1,3 +1,7 @@
+**Debate May Widen the Money Gap Between Harris and Trump**\
+`Large donors to former President Donald J. Trump’s campaign expressed concern after his performance. The Democrats raised big money in the hours after the debate.`\
+https://nytimes.com/2024/09/11/us/politics/trump-harris-debate-money.html
+
 **If Football Were Treated Like Inflation**\
 `It’s better to focus on the most recent price changes, not a year’s worth.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/inflation-numbers-annual
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/arts/music/dawn-richard-danity-kane-lawsuit-sean-
 **Judicial Overhaul Proposal Passes Mexico’s Senate Amid Protests**\
 `A controversial proposal allowing voters to elect judges is expected to be approved as it heads to state legislatures.`\
 https://nytimes.com/video/world/americas/100000009685869/judicial-overhaul-mexico-senate-protests.html
-
-**Browns' Njoku, Cowboys' Ferguson week to week with injuries**\
-`Both players left with injuries during the second half of the Cowboys' win over the Browns on Sunday.`\
-https://nytimes.com/athletic/5756351/2024/09/11/david-njoku-jake-ferguson-browns-cowboys-injury/
 

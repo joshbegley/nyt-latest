@@ -1,3 +1,7 @@
+**Debate May Widen the Money Gap Between Harris and Trump**\
+`Large donors to former President Donald J. Trump’s campaign expressed concern after his performance. The Democrats raised big money in the hours after the debate.`\
+https://nytimes.com/2024/09/11/us/politics/trump-harris-debate-money.html
+
 **If Football Were Treated Like Inflation**\
 `It’s better to focus on the most recent price changes, not a year’s worth.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/inflation-numbers-annual
