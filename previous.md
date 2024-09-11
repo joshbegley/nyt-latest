@@ -1,3 +1,15 @@
+**Kawakami: Brock Purdy's average/ideal game and more 49ers Week 1 conclusions**\
+`Purdy is 18-4 in the regular season as an NFL starter, largely because of perfectly average games like Monday's victory over the Jets.`\
+https://nytimes.com/athletic/5758306/2024/09/11/brock-purdy-nick-sorensen-49ers-week-1-conclusions/
+
+**Blues' Robert Thomas subscriber Q&A: On fatherhood, NHL's biggest 'yappers' and 'Country Roads'**\
+`After the birth of his daughter, Taytum, the Blues' Robert Thomas has been busy with dad life.`\
+https://nytimes.com/athletic/5696701/2024/09/11/blues-robert-thomas-nhl-analytics/
+
+**Hockey player suspended for allegedly buying cocaine during Olympics**\
+`Australian field hockey player Tom Craig has been suspended for 12 months after being arrested for allegedly buying cocaine during the Paris Olympics.`\
+https://nytimes.com/athletic/5759723/2024/09/11/australian-hockey-player-banned-for-12-months-after-allegedly-buying-cocaine-during-olympics/
+
 **David Datro Fofana set to join AEK Athens on loan from Chelsea**\
 `David Datro Fofana is set to join AEK Athens on loan from Chelsea.`\
 https://nytimes.com/athletic/5757849/2024/09/11/david-datro-fofana-aek-athens-chelsea/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/11/us/politics/trump-media-stock-truth-social-debate
 **Man Utd announce £113m net loss for 2023-24**\
 `Manchester United posted a net loss of £113.`\
 https://nytimes.com/athletic/5759800/2024/09/11/manchester-united-financial-results-2023-24/
-
-**Asked if He Wants Ukraine to Defeat Russia, Trump Doesn’t Say Yes**\
-`At Tuesday’s debate, Mr. Trump repeated his claim that he can end the war and refused to say if defending Ukraine was in America’s national security interests.`\
-https://nytimes.com/2024/09/11/us/politics/trump-debate-ukraine-war-russia-putin-harris.html
-
-**The Pulse: No one knows what Charles Barkley will do**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5758660/2024/09/11/charles-barkley-nba-tnt-the-pulse/
-
-**Gomes has the technical midfield profile the England senior team has long been missing**\
-`Lee Carsley understands that England’s hopes of a senior men’s trophy rest on their ability to win the technical battle in midfield`\
-https://nytimes.com/athletic/5759036/2024/09/11/angel-gomes-england-midfield-debut/
 
