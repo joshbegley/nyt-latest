@@ -1,3 +1,7 @@
+**Harris and Trump Bet on Their Own Sharply Contrasting Views of America**\
+`Former President Donald J. Trump is gambling that Americans are as angry as he is, while Vice President Kamala Harris hopes voters are exhausted by the Trump era and ready to move on.`\
+https://nytimes.com/2024/09/11/us/politics/harris-trump-debate.html
+
 **The ‘Country Doctor’ Who Upended Our Understanding of Dementia**\
 `Francisco Lopera defied rebels, cartels and vampire bats to become a pioneering researcher of Alzheimer’s disease.`\
 https://nytimes.com/2024/09/11/science/lopera-alzheimers-colombia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5758371/2024/09/11/oilers-lineup-defence-coffey/
 **Housing costs remain stubborn, complicating the inflation picture.**\
 `By Ben Casselman`\
 https://nytimes.com/live/2024/09/11/business/cpi-inflation-fed/housing-costs-remain-stubborn-complicating-the-inflation-picture
-
-**Prices remain a key campaign issue.**\
-`The latest report is unlikely to change the overall narrative as Republicans hammer the case home to voters.`\
-https://nytimes.com/live/2024/09/11/business/cpi-inflation-fed/prices-continue-to-be-a-key-campaign-issue
 
