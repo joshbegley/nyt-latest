@@ -1,3 +1,11 @@
+**As Trump Links Her to Biden, Harris Says, ‘You’re Running Against Me’**\
+`Vice President Kamala Harris largely deflected former President Donald J. Trump’s attempts to tie her to President Biden.`\
+https://nytimes.com/2024/09/11/us/politics/harris-biden-trump-debate.html
+
+**Donald Trump Made a Raving, Rambling Fool of Himself in That Debate**\
+`And Kamala Harris had the skill and composure to help him do it.`\
+https://nytimes.com/2024/09/11/opinion/trump-harris-debate.html
+
 **Harris Dominates as Trump Gets Defensive: 6 Takeaways From the Debate**\
 `Laying out bait that Donald Trump eagerly snatched, the vice president owned much of the night, keeping him on the back foot and avoiding sustained attention on her own vulnerabilities.`\
 https://nytimes.com/2024/09/11/us/politics/trump-harris-debate-takeaways.html
