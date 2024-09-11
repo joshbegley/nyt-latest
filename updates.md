@@ -1,3 +1,7 @@
+**Biden celebrates his granddaughter’s birthday in New York before the Trump-Harris debate.**\
+`By Peter Baker`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/biden-celebrates-his-granddaughters-birthday-in-new-york-before-the-trump-harris-debate
+
 **Adams’s Pick for Top Lawyer Withdraws His Nomination**\
 `Randy Mastro, a former federal prosecutor and aide to Mayor Rudolph W. Giuliani, said he had been denied a fair hearing by the City Council.`\
 https://nytimes.com/2024/09/10/nyregion/randy-mastro-eric-adams-lawyer-withdraws.html
