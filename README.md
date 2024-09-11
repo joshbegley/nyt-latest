@@ -1,3 +1,7 @@
+**Justin Timberlake to Plead Guilty to Lesser Charge in D.W.I. Case**\
+`The singer, who was charged after an erratic drive in Sag Harbor, N.Y., is expected to appear in person in court on Friday.`\
+https://nytimes.com/2024/09/11/nyregion/justin-timberlake-dwi-plea-deal.html
+
 **One of Trump’s Insidious Lies on Abortion Is Grounded in an Old Truth**\
 `Yes, there were once a few liberals who criticized Roe, but that still doesn’t support his claim.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/one-of-trumps-insidious-lies-on-abortion-is-grounded-in-an-old-truth
@@ -29,8 +33,4 @@ https://nytimes.com/2024/09/11/world/middleeast/jordan-election-muslim-brotherho
 **4 Climbers Are Found Dead on Mont Blanc in the French Alps**\
 `The climbers from Italy and South Korea were found on Tuesday after they went missing three days earlier during a period of bad weather on the peak.`\
 https://nytimes.com/2024/09/11/world/europe/mont-blanc-climber-deaths.html
-
-**Trump’s Alternative for Obamacare Is Now Just ‘Concepts of a Plan’**\
-`Former President Donald J. Trump once promised to replace Obamacare with “something terrific.” But as the 2010 law has become more popular, he has sounded less confident about a repeal.`\
-https://nytimes.com/2024/09/11/us/politics/trump-obamacare.html
 
