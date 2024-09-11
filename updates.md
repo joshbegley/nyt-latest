@@ -1,3 +1,19 @@
+**Frankie Beverly, Soul Singer and Maze Frontman, Is Dead at 77**\
+`He had announced a short farewell tour earlier this year and said he would retire after more than 50 years in the music business.`\
+https://nytimes.com/2024/09/11/arts/music/frankie-beverly-dead.html
+
+**Harris and Trump Shake Hands at Sept. 11 Memorial Ceremony**\
+`Vice President Kamala Harris and former President Donald J. Trump attended a memorial in New York City for the 23rd anniversary of the terrorist attacks on Sept. 11, 2001.`\
+https://nytimes.com/video/us/politics/100000009685784/harris-trump-9-11-memorial-handshake.html
+
+**Trump Dismisses Taylor Swift’s Endorsement of Harris**\
+`“She’ll probably pay a price for it in the marketplace,” the former president said in an interview on “Fox & Friends” regarding the pop star, who backed Biden in 2020.`\
+https://nytimes.com/2024/09/11/us/politics/trump-taylor-swift-harris-endorsement.html
+
+**Ohio Dad Asks Trump Ticket to Stop Using Son’s Death for ‘Political Gain’**\
+`Aiden Clark was killed when an immigrant’s minivan crashed into a school bus he was travelling in last year.`\
+https://nytimes.com/video/us/politics/100000009685916/trump-vance-aiden-clark-springfield-ohio.html
+
 **Scarred by past floods, Baton Rouge braces for damage.**\
 `By Jacey Fortin`\
 https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/scarred-by-past-floods-baton-rouge-braces-for-damage
