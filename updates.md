@@ -1,3 +1,7 @@
+**The storm is an early test for Gov. Jeff Landry of Louisiana.**\
+`By Emily Cochrane`\
+https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/the-storm-is-an-early-test-for-gov-jeff-landry-of-louisiana
+
 **Was that the worst loss in Notre Dame history? Mailbag**\
 `Can the Irish get Riley Leonard right? Have the receivers underachieved? And is Notre Dame football simply repeating its recent history?`\
 https://nytimes.com/athletic/5760015/2024/09/11/notre-dame-football-northern-illinois-worst-loss/

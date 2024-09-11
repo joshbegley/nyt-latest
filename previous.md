@@ -1,3 +1,7 @@
+**The storm is an early test for Gov. Jeff Landry of Louisiana.**\
+`By Emily Cochrane`\
+https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/the-storm-is-an-early-test-for-gov-jeff-landry-of-louisiana
+
 **Was that the worst loss in Notre Dame history? Mailbag**\
 `Can the Irish get Riley Leonard right? Have the receivers underachieved? And is Notre Dame football simply repeating its recent history?`\
 https://nytimes.com/athletic/5760015/2024/09/11/notre-dame-football-northern-illinois-worst-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/opinion/parenting-has-always-been-hard.html
 **With Strong Memories of Katrina, Mississippi Braces for Francine**\
 `The governor declared a state of emergency as residents sandbagged homes and considered evacuating.`\
 https://nytimes.com/2024/09/11/weather/francine-mississippi-hurricane-katrina.html
-
-**Europeans Used Cocaine Much Earlier Than Previously Thought, Study Finds**\
-`In human remains buried in an Italian crypt, researchers found evidence of cocaine use from the 17th century.`\
-https://nytimes.com/2024/09/11/science/early-european-cocaine-use.html
 
