@@ -6,7 +6,7 @@ https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/this-hu
 `Vice President Kamala Harris baited traps for Donald J.`\
 https://nytimes.com/video/us/elections/100000009685589/harris-put-trump-on-defense-at-the-presidential-debate.html
 
-**How Climate Change Is Transforming Hurricanes**\
+**How climate change is transforming hurricanes**\
 `Scientists are confident that the warming of the planet is affecting how storms behave.`\
 https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/climate-change-hurricanes
 
