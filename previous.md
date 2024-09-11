@@ -1,3 +1,15 @@
+**“We handed them over a country where the economy and with — the stock market was higher than it was before the pandemic came in. Nobody’s ever seen anything like it.”**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/we-handed-them-over-a-country-where-the-economy-and-with-the-stock-market-was-higher-than-it-was-before-the-pandemic-came-in-nob
+
+**“Every legal scholar — every Democrat, every Republican, liberal, conservative — they all wanted” abortion policy “to be brought back to the states.”**\
+`By Kate Zernike`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/every-legal-scholar-every-democrat-every-republican-liberal-conservative-they-all-wanted-abortion-policy-to-be-brought-back
+
+**Immigrants are “coming in and they’re taking jobs that are occupied right now by African Americans.”**\
+`By Zolan Kanno-Youngs`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/immigrants-are-coming-in-and-theyre-taking-jobs-that-are-occupied-right-now-by-african-americans
+
 **Immigrants are “taking over the towns. They’re taking over buildings. They’re going in violently.”**\
 `By Michael D. Shear`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/immigrants-are-taking-over-the-towns-theyre-taking-over-buildings-theyre-going-in-violently
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/10/us/goodlander-new-hampshire-primary.html
 **Transgender Lawmaker Wins Democratic Primary for Delaware’s Only House Seat**\
 `Sarah McBride, a Delaware state senator, is favored to win in November. She would become the first openly transgender member of Congress.`\
 https://nytimes.com/2024/09/10/us/transgender-lawmaker-wins-democratic-primary-for-delawares-only-house-seat.html
-
-**Biden celebrates his granddaughter’s birthday in New York before the Trump-Harris debate.**\
-`By Peter Baker`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/biden-celebrates-his-granddaughters-birthday-in-new-york-before-the-trump-harris-debate
-
-**Adams’s Pick for Top Lawyer Withdraws His Nomination**\
-`Randy Mastro, a former federal prosecutor and aide to Mayor Rudolph W. Giuliani, said he had been denied a fair hearing by the City Council.`\
-https://nytimes.com/2024/09/10/nyregion/randy-mastro-eric-adams-lawyer-withdraws.html
-
-**Trump mocked Harris’s height, but her fans see a certain stature.**\
-`By Abby Ellin`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/trump-mocked-harriss-height-but-her-fans-see-a-certain-stature
 
