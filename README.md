@@ -15,8 +15,8 @@ https://nytimes.com/2024/09/11/podcasts/transcript-ezra-klein-harris-trump-debat
 https://nytimes.com/2024/09/11/us/politics/trump-springfield-ohio-immigrants-pets-pushback.html
 
 **As Francine arrives, painful memories of past storms stoke fears.**\
-`By Rick Rojas`\
-https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/as-francine-arrives-painful-memories-of-past-storms-stoke-fears
+`Francine could cut a somewhat similar path as Hurricane Ida, which left a trail of devastating consequences in 2021.`\
+https://nytimes.com/2024/09/11/weather/as-francine-arrives-painful-memories-of-past-storms-stoke-fears.html
 
 **How Packers QB Malik Willis is preparing for likely start: 'I have to be ready'**\
 `The Packers are keeping the door open for Jordan Love to play Sunday, but it'll likely be Willis leading the offense against the Colts.`\
