@@ -1,3 +1,11 @@
+**As Trump Links Her to Biden, Harris Says, ‘You’re Running Against Me’**\
+`Vice President Kamala Harris largely deflected former President Donald J. Trump’s attempts to tie her to President Biden.`\
+https://nytimes.com/2024/09/11/us/politics/harris-biden-trump-debate.html
+
+**Donald Trump Made a Raving, Rambling Fool of Himself in That Debate**\
+`And Kamala Harris had the skill and composure to help him do it.`\
+https://nytimes.com/2024/09/11/opinion/trump-harris-debate.html
+
 **Harris Dominates as Trump Gets Defensive: 6 Takeaways From the Debate**\
 `Laying out bait that Donald Trump eagerly snatched, the vice president owned much of the night, keeping him on the back foot and avoiding sustained attention on her own vulnerabilities.`\
 https://nytimes.com/2024/09/11/us/politics/trump-harris-debate-takeaways.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5759573/2024/09/11/twins-offense-break-out-rally-sa
 **Buoyed by Blue Jays' support, Davis Schneider finally gets the hit he was searching for**\
 `Schneider's teammates have supported him during his second-half struggles. "I couldn't be more grateful."`\
 https://nytimes.com/athletic/5759542/2024/09/11/blue-jays-davis-schneider-slump/
-
-**The Moment Trump Couldn’t Resist Bungling**\
-`A four-minute stretch, in which the former president wandered from crowd sizes to cat conspiracies, captured his difficult night.`\
-https://nytimes.com/2024/09/11/us/politics/trump-harris-debate-moments.html
-
-**Chelsea's ownership structure: Who owns what at Stamford Bridge?**\
-`These are the key figures who make up the Chelsea hierarchy as the club digests the split between co-owners Todd Boehly and Behdad Eghbali`\
-https://nytimes.com/athletic/5758157/2024/09/11/chelsea-ownership-boehly-clearlake-walter-wyss/
 
