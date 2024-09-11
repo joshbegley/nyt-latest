@@ -1,3 +1,19 @@
+**Frankie Beverly, Soul Singer and Maze Frontman, Is Dead at 77**\
+`He had announced a short farewell tour earlier this year and said he would retire after more than 50 years in the music business.`\
+https://nytimes.com/2024/09/11/arts/music/frankie-beverly-dead.html
+
+**Harris and Trump Shake Hands at Sept. 11 Memorial Ceremony**\
+`Vice President Kamala Harris and former President Donald J. Trump attended a memorial in New York City for the 23rd anniversary of the terrorist attacks on Sept. 11, 2001.`\
+https://nytimes.com/video/us/politics/100000009685784/harris-trump-9-11-memorial-handshake.html
+
+**Trump Dismisses Taylor Swift’s Endorsement of Harris**\
+`“She’ll probably pay a price for it in the marketplace,” the former president said in an interview on “Fox & Friends” regarding the pop star, who backed Biden in 2020.`\
+https://nytimes.com/2024/09/11/us/politics/trump-taylor-swift-harris-endorsement.html
+
+**Ohio Dad Asks Trump Ticket to Stop Using Son’s Death for ‘Political Gain’**\
+`Aiden Clark was killed when an immigrant’s minivan crashed into a school bus he was travelling in last year.`\
+https://nytimes.com/video/us/politics/100000009685916/trump-vance-aiden-clark-springfield-ohio.html
+
 **Scarred by past floods, Baton Rouge braces for damage.**\
 `By Jacey Fortin`\
 https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/scarred-by-past-floods-baton-rouge-braces-for-damage
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/11/science/lopera-alzheimers-colombia.html
 **Inflation cooled on a yearly basis in August.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/09/11/business/cpi-inflation-fed/inflation-cooled-on-a-yearly-basis-in-august
-
-**Frenkie de Jong is no closer to a Barca return - so what's going on?**\
-`Dutch midfielder has been injured since April, and his wait to return looks set to continue`\
-https://nytimes.com/athletic/5760003/2024/09/11/frenkie-de-jong-barcelona-injury/
-
-**Trump Assails ABC, but He’s Not Thrilled With Fox News, Either**\
-`The former president played media critic during a Wednesday morning interview on “Fox & Friends.”`\
-https://nytimes.com/2024/09/11/us/politics/trump-debate-abc-fox-news.html
-
-**The storm is an early test for Gov. Jeff Landry of Louisiana.**\
-`By Emily Cochrane`\
-https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/the-storm-is-an-early-test-for-gov-jeff-landry-of-louisiana
-
-**Was that the worst loss in Notre Dame history? Mailbag**\
-`Can the Irish get Riley Leonard right? Have the receivers underachieved? And is Notre Dame football simply repeating its recent history?`\
-https://nytimes.com/athletic/5760015/2024/09/11/notre-dame-football-northern-illinois-worst-loss/
 
