@@ -1,3 +1,7 @@
+**Iran’s New President, Tending to a Pivotal Alliance, Visits Iraq**\
+`In a region in turmoil, Tehran’s ties to its neighbor are more important than ever.`\
+https://nytimes.com/2024/09/11/world/middleeast/iran-president-pezeshkian-iraq-visit.html
+
 **Sleep Routine**\
 `What do you do to get ready for a good night’s rest?`\
 https://nytimes.com/2024/09/11/learning/sleep-routine.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5759519/2024/09/11/usmnt-pulisic-mauricio-pochettin
 **Dodgers get encouraging return from Yoshinobu Yamamoto before late collapse**\
 `A sequence of mental miscues in the field spoiled Yamamoto's commanding comeback performance. `\
 https://nytimes.com/athletic/5759663/2024/09/11/dodgers-yoshinobu-yamamoto/
-
-**Ake forced off with injury on international duty with the Netherlands**\
-`Manchester City defender Nathan Ake was forced off in the Netherlands&#8217; Nations League draw against Germany due to an apparent muscle injury.`\
-https://nytimes.com/athletic/5758754/2024/09/11/nathan-ake-injury-netherlands-manchester-city/
 
