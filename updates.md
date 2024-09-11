@@ -1,3 +1,11 @@
+**How Packers QB Malik Willis is preparing for likely start: 'I have to be ready'**\
+`The Packers are keeping the door open for Jordan Love to play Sunday, but it'll likely be Willis leading the offense against the Colts.`\
+https://nytimes.com/athletic/5761024/2024/09/11/packers-malik-willis-starting-colts/
+
+**‘Before I Let Go’ and 5 More Essential Frankie Beverly and Maze Songs**\
+`The singer, who died on Tuesday at 77, had a smooth, sunny delivery that turned at least one track into a lasting anthem of Black celebrations.`\
+https://nytimes.com/2024/09/11/arts/music/frankie-beverly-maze-songs-before-i-let-go.html
+
 **Harris Had a Theory of Trump, and It Was Right**\
 `The vice president successfully baited Trump’s angry, conspiratorial, free-associating side. But what wasn’t said was just as telling.`\
 https://nytimes.com/2024/09/11/opinion/ezra-klein-podcast-debate-react.html
