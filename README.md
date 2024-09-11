@@ -7,7 +7,7 @@ https://nytimes.com/athletic/5759671/2024/09/11/giants-takeaways-marco-luciano-l
 https://nytimes.com/2024/09/11/world/middleeast/trump-harris-israel-gaza.html
 
 **With New Prime Minister, a ‘Rupture’ in French Politics and Barbs for Macron**\
-`President Emmanuel Macron’s newly picked prime minister wasted no time in putting a pointed distance between himself and France’s beleaguered leader.`\
+`President Emmanuel Macron’s newly picked prime minister wasted no time in putting a pointed distance between himself and France’s weakened leader.`\
 https://nytimes.com/2024/09/11/world/europe/france-macron-barnier-prime-minister.html
 
 **Kawakami: Brock Purdy's average/ideal game and more 49ers Week 1 conclusions**\
