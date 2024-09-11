@@ -1,3 +1,7 @@
+**Prices continue to be a key campaign issue.**\
+`The latest report is unlikely to change the overall narrative as Republicans hammer the case home to voters.`\
+https://nytimes.com/live/2024/09/11/business/cpi-inflation-fed/prices-continue-to-be-a-key-campaign-issue
+
 **Will There Be Another Debate? Trump Isn’t Sure.**\
 `The former president suggested immediately after the debate and in a call-in to Fox News on Wednesday morning that he was not inclined to agree to another.`\
 https://nytimes.com/2024/09/11/us/politics/trump-harris-second-presidential-debate.html
