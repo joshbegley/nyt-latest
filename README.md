@@ -30,7 +30,3 @@ https://nytimes.com/2024/09/11/nyregion/timothy-pearson-guards-migrants.html
 `The political arm of the Muslim Brotherhood won a sizable share of seats in Parliament, though not enough to challenge the government’s pro-Western tilt.`\
 https://nytimes.com/2024/09/11/world/middleeast/jordan-election-muslim-brotherhood.html
 
-**4 Climbers Are Found Dead on Mont Blanc in the French Alps**\
-`The climbers from Italy and South Korea were found on Tuesday after they went missing three days earlier during a period of bad weather on the peak.`\
-https://nytimes.com/2024/09/11/world/europe/mont-blanc-climber-deaths.html
-
