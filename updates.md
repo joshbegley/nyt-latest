@@ -1,3 +1,7 @@
+**Late Night Hosts Declare Harris the Winner in the Debate**\
+`Stephen Colbert said that the vice president needed to “rattle Trump’s cage. And now that it is over, they are still looking for pieces of his cage in low orbit.”`\
+https://nytimes.com/2024/09/11/arts/television/late-night-presidential-debate.html
+
 **23 Years After 9/11, Families of Cancer Victims Fight for Benefits**\
 `Some families are still pushing for recognition after their loved ones died from cancer that they believe is linked to Sept. 11, but that the federal government won’t recognize as such.`\
 https://nytimes.com/2024/09/11/nyregion/sept-11-victims-cancer-compensation.html

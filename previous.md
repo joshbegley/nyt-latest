@@ -1,3 +1,7 @@
+**Late Night Hosts Declare Harris the Winner in the Debate**\
+`Stephen Colbert said that the vice president needed to “rattle Trump’s cage. And now that it is over, they are still looking for pieces of his cage in low orbit.”`\
+https://nytimes.com/2024/09/11/arts/television/late-night-presidential-debate.html
+
 **23 Years After 9/11, Families of Cancer Victims Fight for Benefits**\
 `Some families are still pushing for recognition after their loved ones died from cancer that they believe is linked to Sept. 11, but that the federal government won’t recognize as such.`\
 https://nytimes.com/2024/09/11/nyregion/sept-11-victims-cancer-compensation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/business/media/debate-moderators-trump-harris.htm
 **Mexico’s Judicial Overhaul Overcomes Its Biggest Obstacle: The Senate**\
 `The chamber’s approval clears away the last major hindrance to the sweeping proposals championed by the president, which have prompted nationwide strikes.`\
 https://nytimes.com/2024/09/11/world/americas/mexico-judical-overhaul-senate-vote.html
-
-**Mo Faal: How did Wrexham's most expensive signing do on his debut for the club?**\
-`The £500,000 signing started up front alongside Paul Mullin and showed some promising signs as Wrexham defeated Salford`\
-https://nytimes.com/athletic/5755363/2024/09/11/mo-faal-wrexham-debut/
 
