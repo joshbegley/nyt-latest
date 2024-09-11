@@ -1,3 +1,11 @@
+**The ‘Country Doctor’ Who Upended Our Understanding of Dementia**\
+`Francisco Lopera defied rebels, cartels and vampire bats to become a pioneering researcher of Alzheimer’s disease.`\
+https://nytimes.com/2024/09/11/science/lopera-alzheimers-colombia.html
+
+**Prices remain a key campaign issue.**\
+`The latest report is unlikely to change the overall narrative as Republicans hammer the case home to voters.`\
+https://nytimes.com/live/2024/09/11/business/cpi-inflation-fed/prices-continue-to-be-a-key-campaign-issue
+
 **Inflation cooled on a yearly basis in August.**\
 `By Jeanna Smialek`\
 https://nytimes.com/live/2024/09/11/business/cpi-inflation-fed/inflation-cooled-on-a-yearly-basis-in-august
