@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5760786/2024/09/11/thierry-henery-criticise-footbal
 https://nytimes.com/2024/09/11/us/politics/vance-trump-abortion-ban.html
 
 **Guards Say Top Adams Aide Threatened Them After Having Them Arrested**\
-`Two security guards said the aide, Timothy Pearson, attacked them then had them arrested. Federal agents seized his cellphone last week as part of a separate investigation.`\
+`Two security guards said the aide, Timothy Pearson, attacked them then had them arrested. Federal agents seized his cellphone last week as part of 0a separate investigation.`\
 https://nytimes.com/2024/09/11/nyregion/timothy-pearson-guards-migrants.html
 
 **Islamists Gain in Jordan, Reflecting Public Anger Over Gaza War**\
@@ -26,7 +26,7 @@ https://nytimes.com/2024/09/11/world/europe/mont-blanc-climber-deaths.html
 `Former President Donald J. Trump once promised to replace Obamacare with “something terrific.” But as the 2010 law has become more popular, he has sounded less confident about a repeal.`\
 https://nytimes.com/2024/09/11/us/politics/trump-obamacare.html
 
-**A Rock Star Offers a Lesson in Crisis Communication**\
+**A Rock Star’s Mystery Baby Offers a Lesson in Crisis Communication**\
 `The timing and content of Dave Grohl’s admission that he had a child outside his marriage was complimented for addressing the issue and relying on short memories.`\
 https://nytimes.com/2024/09/11/style/dave-grohl-daughter-instagram.html
 
