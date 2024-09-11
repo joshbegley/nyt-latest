@@ -1,3 +1,11 @@
+**For those riding out the storm, there were many reasons to stay.**\
+`By Marie Elizabeth Oliver, Jacey Fortin and Natalie McLendon`\
+https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/for-those-riding-out-the-storm-there-were-many-reasons-to-stay
+
+**The Debate Was About Trump. That Was Good for Harris.**\
+`It can be hard to tell when a debate bounce will last, but there are rough parameters that can guide us.`\
+https://nytimes.com/2024/09/11/upshot/debate-kamala-harris-trump.html
+
 **Danity Kane Singer Sues Sean Combs, Alleging Threats and Groping**\
 `Dawn Richard, a member of groups assembled by Mr. Combs, says in the suit that she saw the rap mogul choke his former girlfriend, Cassie. Mr. Combs has not yet responded.`\
 https://nytimes.com/2024/09/11/arts/music/dawn-richard-danity-kane-lawsuit-sean-combs-diddy.html
