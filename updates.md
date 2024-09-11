@@ -1,3 +1,7 @@
+**David Datro Fofana set to join AEK Athens on loan from Chelsea**\
+`David Datro Fofana is set to join AEK Athens on loan from Chelsea.`\
+https://nytimes.com/athletic/5757849/2024/09/11/david-datro-fofana-aek-athens-chelsea/
+
 **The Big Takeaways for Business from Debate Night**\
 `The showdown between Vice President Kamala Harris and Donald Trump was light on policy, but there were still sparks as they laid out different visions for the economy.`\
 https://nytimes.com/2024/09/11/business/dealbook/takeaways-presidential-debate-harris-trump.html
