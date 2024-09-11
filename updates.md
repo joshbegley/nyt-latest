@@ -1,3 +1,7 @@
+**How to Stay Safe When the Power Goes Out**\
+`Improper use of portable generators carries several risks, including carbon monoxide poisoning.`\
+https://nytimes.com/2024/09/11/weather/hurricane-francine-power-generator.html
+
 **Sabres mailbag, part 1: Eichel's comments, Pegula's patience, Savoie trade, next captain and more**\
 `Is Rasmus Dahlin being named captain a foregone conclusion?`\
 https://nytimes.com/athletic/5760170/2024/09/11/sabres-eichel-savoie-trade/
