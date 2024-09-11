@@ -1,3 +1,15 @@
+**Why Venezuelan Election Observers are Exiled in Colombia**\
+`As the government of Nicolás Maduro doubles down on declaring him the winner of Venezuela’s presidential election, political opponents are fleeing to neighboring countries to escape threats to themselves and their families.`\
+https://nytimes.com/video/world/americas/100000009655106/why-venezuelan-election-observers-are-exiled-in-colombia.html
+
+**Guards Say Top Adams Aide Threatened Them After Having Them Arrested**\
+`Two security guards said the aide, Timothy Pearson, attacked them then had them arrested. Federal agents seized his cellphone last week as part of 0a separate investigation.`\
+https://nytimes.com/2024/09/11/nyregion/timothy-pearson-guards-migrants.html
+
+**A Rock Star’s Mystery Baby Offers a Lesson in Crisis Communication**\
+`The timing and content of Dave Grohl’s admission that he had a child outside his marriage was complimented for addressing the issue and relying on short memories.`\
+https://nytimes.com/2024/09/11/style/dave-grohl-daughter-instagram.html
+
 **Henry criticises football schedule: 'There's too many games'**\
 `Former Arsenal and Barcelona forward Thierry Henry has criticised the football schedule &#8211; and says there are &#8220;too many games&#8221;.`\
 https://nytimes.com/athletic/5760786/2024/09/11/thierry-henery-criticise-football-schedule/
