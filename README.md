@@ -1,3 +1,7 @@
+**Violence Resurges in Indian State Locked in Bloody Conflict for 16 Months**\
+`Ethnic tensions have turned Manipur into an open war zone. Struggling to contain the unrest, the authorities have reimposed a curfew and internet blackout.`\
+https://nytimes.com/2024/09/11/world/asia/india-manipur-conflict.html
+
 **The Harris-Trump Debate**\
 `Kamala Harris seemed to win the debate with Donald Trump, but didn’t have a perfect night.`\
 https://nytimes.com/2024/09/11/briefing/kamala-harris-donald-trump-debate.html
