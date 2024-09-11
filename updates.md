@@ -1,3 +1,15 @@
+**Greener Steel at Britain’s Largest Plant Comes With Heavy Job Losses**\
+`The British government and Tata of India said they would invest 1.25 billion pounds in a plan to convert the steel mill at Port Talbot in Wales to an electric furnace.`\
+https://nytimes.com/2024/09/11/business/steel-britain.html
+
+**Live From Chase Center: Mark Zuckerberg Tapes a Podcast With 6,000 Friends**\
+`In front of a packed house on Tuesday night, Mr. Zuckerberg chatted about his company, Meta, with the hosts of the “Acquired” podcast, as tech titans shift the ways they communicate.`\
+https://nytimes.com/2024/09/11/technology/mark-zuckerberg-podcast-acquired.html
+
+**The Windup: A reason to root for the newest call-up**\
+`Welcome to The Windup, The Athletic's daily MLB newsletter.`\
+https://nytimes.com/athletic/5759993/2024/09/11/thomas-saggese-cardinals-athletics-sacramento-mlb-the-windup/
+
 **Has Lee Carsley done enough to get the England job full time? - The Debate**\
 `Carsley has been in interim charge for two games and won both, but is that enough to give him the England job full time? Two writers discuss`\
 https://nytimes.com/athletic/5759828/2024/09/11/next-england-manager-lee-carsley/
