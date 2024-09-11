@@ -1,3 +1,7 @@
+**Lunin signs new Real Madrid contract extension until 2028**\
+`Real Madrid goalkeeper Andriy Lunin has signed a new three-year contract with the club.`\
+https://nytimes.com/athletic/5760291/2024/09/11/real-madrid-andiry-lunin-contract-extension/
+
 **North Korean Missiles Rain Down on Ukraine Despite Sanctions**\
 `Russia has received new shipments of Hwasong-11 short-range ballistic missiles, according to a new report.`\
 https://nytimes.com/2024/09/11/us/russia-north-korea-missiles-ukraine.html
