@@ -1,3 +1,7 @@
+**Harris Dominates as Trump Gets Defensive: 6 Takeaways From the Debate**\
+`Laying out bait that Donald Trump eagerly snatched, the vice president owned much of the night, keeping him on the back foot and avoiding sustained attention on her own vulnerabilities.`\
+https://nytimes.com/2024/09/11/us/politics/trump-harris-debate-takeaways.html
+
 **Harris Put Trump on Defense Over Abortion — and Kept Him There**\
 `For Trump, anger seemed to be the feeling of the night.`\
 https://nytimes.com/2024/09/11/us/politics/harris-trump-abortion-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/us/politics/trump-harris-debate-moments.html
 **Chelsea's ownership structure: Who owns what at Stamford Bridge?**\
 `These are the key figures who make up the Chelsea hierarchy as the club digests the split between co-owners Todd Boehly and Behdad Eghbali`\
 https://nytimes.com/athletic/5758157/2024/09/11/chelsea-ownership-boehly-clearlake-walter-wyss/
-
-**This may be the last WSL season as we know it - but what is the vision for its future?**\
-`The WSL and Championship are entering a new era, but there should be some caution about the direction they take`\
-https://nytimes.com/athletic/5758145/2024/09/11/wsl-championship-wpll-doucet-vision-for-future/
 
