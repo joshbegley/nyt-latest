@@ -1,3 +1,7 @@
+**Manchester United defender Blundell announces pregnancy**\
+`Manchester United full-back Hannah Blundell has announced that she is pregnant.`\
+https://nytimes.com/athletic/5759932/2024/09/11/hannah-blundell-manchester-united-pregnancy/
+
 **Battle of the Political Brands**\
 `When Donald Trump and Kamala Harris faced off on the debate stage, governing style was on display.`\
 https://nytimes.com/2024/09/11/style/harris-trump-debate-style-suits.html

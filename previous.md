@@ -1,3 +1,7 @@
+**Manchester United defender Blundell announces pregnancy**\
+`Manchester United full-back Hannah Blundell has announced that she is pregnant.`\
+https://nytimes.com/athletic/5759932/2024/09/11/hannah-blundell-manchester-united-pregnancy/
+
 **Battle of the Political Brands**\
 `When Donald Trump and Kamala Harris faced off on the debate stage, governing style was on display.`\
 https://nytimes.com/2024/09/11/style/harris-trump-debate-style-suits.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5696701/2024/09/11/blues-robert-thomas-nhl-analytic
 **Hockey player suspended for allegedly buying cocaine during Olympics**\
 `Australian field hockey player Tom Craig has been suspended for 12 months after being arrested for allegedly buying cocaine during the Paris Olympics.`\
 https://nytimes.com/athletic/5759723/2024/09/11/australian-hockey-player-banned-for-12-months-after-allegedly-buying-cocaine-during-olympics/
-
-**David Datro Fofana set to join AEK Athens on loan from Chelsea**\
-`David Datro Fofana is set to join AEK Athens on loan from Chelsea.`\
-https://nytimes.com/athletic/5757849/2024/09/11/david-datro-fofana-aek-athens-chelsea/
 
