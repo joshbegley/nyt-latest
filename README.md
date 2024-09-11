@@ -26,8 +26,8 @@ https://nytimes.com/2024/09/11/nyregion/sept-11-memorial-nyc.html
 `The British government and Tata of India said they would invest 1.25 billion pounds in a plan to convert the steel mill at Port Talbot in Wales to an electric furnace.`\
 https://nytimes.com/2024/09/11/business/steel-britain.html
 
-**Mark Zuckerberg’s Live Podcast Interview Was San Francisco’s Hottest Ticket**\
-`Mr. Zuckerberg talked success to 6,000 people Tuesday night for the “Acquired” podcast. It’s a sign of how tech titans reach the public now.`\
+**Live From San Francisco: Mark Zuckerberg Tapes a Podcast With 6,000 Friends**\
+`Mr. Zuckerberg talked success to a packed house Tuesday night for the “Acquired” podcast. It’s a sign of how tech titans reach the public now.`\
 https://nytimes.com/2024/09/11/technology/mark-zuckerberg-podcast-acquired.html
 
 **The Windup: A reason to root for the newest call-up**\
