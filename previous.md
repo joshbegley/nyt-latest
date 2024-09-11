@@ -1,3 +1,7 @@
+**Thursday Briefing: Who Won the Harris-Trump Debate?**\
+`Plus, a video game provokes outrage.`\
+https://nytimes.com/2024/09/11/briefing/debate-ukraine-mexico.html
+
 **Justin Timberlake to Plead Guilty to Lesser Charge in D.W.I. Case**\
 `The singer, who was charged after an erratic drive in Sag Harbor, N.Y., is expected to appear in person in court on Friday.`\
 https://nytimes.com/2024/09/11/nyregion/justin-timberlake-dwi-plea-deal.html
@@ -25,12 +29,4 @@ https://nytimes.com/2024/09/11/us/politics/vance-trump-abortion-ban.html
 **Guards Say Top Adams Aide Threatened Them After Having Them Arrested**\
 `Two security guards said the aide, Timothy Pearson, attacked them then had them arrested. Federal agents seized his cellphone last week as part of a separate investigation.`\
 https://nytimes.com/2024/09/11/nyregion/timothy-pearson-guards-migrants.html
-
-**Islamists Gain in Jordan, Reflecting Public Anger Over Gaza War**\
-`The political arm of the Muslim Brotherhood won a sizable share of seats in Parliament, though not enough to challenge the government’s pro-Western tilt.`\
-https://nytimes.com/2024/09/11/world/middleeast/jordan-election-muslim-brotherhood.html
-
-**4 Climbers Are Found Dead on Mont Blanc in the French Alps**\
-`The climbers from Italy and South Korea were found on Tuesday after they went missing three days earlier during a period of bad weather on the peak.`\
-https://nytimes.com/2024/09/11/world/europe/mont-blanc-climber-deaths.html
 

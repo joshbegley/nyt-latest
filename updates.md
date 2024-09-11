@@ -1,3 +1,7 @@
+**Thursday Briefing: Who Won the Harris-Trump Debate?**\
+`Plus, a video game provokes outrage.`\
+https://nytimes.com/2024/09/11/briefing/debate-ukraine-mexico.html
+
 **Justin Timberlake to Plead Guilty to Lesser Charge in D.W.I. Case**\
 `The singer, who was charged after an erratic drive in Sag Harbor, N.Y., is expected to appear in person in court on Friday.`\
 https://nytimes.com/2024/09/11/nyregion/justin-timberlake-dwi-plea-deal.html
