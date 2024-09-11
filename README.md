@@ -1,4 +1,8 @@
-**Is Donald Trump Too Emotional For This?**\
+**Former Realtor Employee Files Sexual Harassment Suit Against Trade Group**\
+`A woman who worked for the National Association of Realtors says she was fired after she reported instances of sexual harassment and discrimination, according to a federal lawsuit.`\
+https://nytimes.com/2024/09/11/realestate/nar-realtors-sexual-harassment-lawsuit.html
+
+**Is Donald Trump Too Emotional for This?**\
 `Kamala Harris sought to rattle Trump — and flip a gender dynamic on its head.`\
 https://nytimes.com/2024/09/11/us/politics/trump-debate-emotions.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5761314/2024/09/11/white-sox-jerry-reinsdorf-losing
 **French Ship That Sunk in 1856 Disaster Is Found Off Massachusetts Coast**\
 `Le Lyonnais was discovered in the Atlantic Ocean about 140 miles east of Nantucket, Mass. More than 100 died after the French passenger steamship sank.`\
 https://nytimes.com/2024/09/11/us/le-lyonnais-shipwreck-found-massachusetts.html
-
-**Transcript: Ezra Klein on the Harris-Trump Debate**\
-`The September 11, 2024, episode of “The Ezra Klein Show.”`\
-https://nytimes.com/2024/09/11/podcasts/transcript-ezra-klein-harris-trump-debate-reaction.html
 

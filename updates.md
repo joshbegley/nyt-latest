@@ -1,3 +1,11 @@
+**Is Donald Trump Too Emotional For This?**\
+`Kamala Harris sought to rattle Trump — and flip a gender dynamic on its head.`\
+https://nytimes.com/2024/09/11/us/politics/trump-debate-emotions.html
+
+**How Trump Uses Vitriol for Migrants to Sideline Other Issues**\
+`Former President Donald J. Trump has long tried to stoke fear about immigration. Now, he’s doubling down as the presidential race heats up.`\
+https://nytimes.com/2024/09/11/us/politics/trump-debate-migrants.html
+
 **Norfolk Southern Fires C.E.O. After Ethics Investigation**\
 `The railroad company’s board said it dismissed Alan Shaw and an executive he had a consensual relationship with.`\
 https://nytimes.com/2024/09/11/business/norfolk-southern-alan-shaw-ceo.html
