@@ -1,3 +1,7 @@
+**As Francine arrives, painful memories of past storms stoke fears.**\
+`By Rick Rojas`\
+https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/as-francine-arrives-painful-memories-of-past-storms-stoke-fears
+
 **How Packers QB Malik Willis is preparing for likely start: 'I have to be ready'**\
 `The Packers are keeping the door open for Jordan Love to play Sunday, but it'll likely be Willis leading the offense against the Colts.`\
 https://nytimes.com/athletic/5761024/2024/09/11/packers-malik-willis-starting-colts/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/technology/openai-fund-raising-valuation.html
 **England’s Health Service Is in Deep Trouble, Report Finds**\
 `A government-commissioned review into the National Health Service laid bare the challenge Prime Minister Keir Starmer faces after years of underinvestment.`\
 https://nytimes.com/2024/09/11/world/europe/nhs-starmer-darzi-report.html
-
-**Trump’s Playbook on Abortion Includes This False Charge**\
-`During the debate, the former president used the phrase “execute the baby” to attack Kamala Harris for her support of abortion rights.`\
-https://nytimes.com/2024/09/11/us/trump-abortion-debate.html
 
