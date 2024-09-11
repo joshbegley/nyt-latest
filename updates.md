@@ -1,3 +1,7 @@
+**Harris Had a Theory of Trump, and It Was Right**\
+`The vice president successfully baited Trump’s angry, conspiratorial, free-associating side. But what wasn’t said was just as telling.`\
+https://nytimes.com/2024/09/11/opinion/ezra-klein-podcast-debate-react.html
+
 **Six U.N. employees are among dozens of people killed in Israeli airstrikes across Gaza.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2024/09/11/world/israel-hamas-gaza-war/six-un-employees-are-among-dozens-of-people-killed-in-israeli-airstrikes-across-gaza

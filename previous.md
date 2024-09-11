@@ -1,3 +1,7 @@
+**Harris Had a Theory of Trump, and It Was Right**\
+`The vice president successfully baited Trump’s angry, conspiratorial, free-associating side. But what wasn’t said was just as telling.`\
+https://nytimes.com/2024/09/11/opinion/ezra-klein-podcast-debate-react.html
+
 **Six U.N. employees are among dozens of people killed in Israeli airstrikes across Gaza.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2024/09/11/world/israel-hamas-gaza-war/six-un-employees-are-among-dozens-of-people-killed-in-israeli-airstrikes-across-gaza
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/us/politics/james-sasser-dead.html
 **Popcast: Kendrick Lamar at the Super Bowl, Sabrina Carpenter on Top**\
 `Plus: A conversation about the career of Rich Homie Quan, who died last week.`\
 https://nytimes.com/2024/09/11/arts/music/popcast-kendrick-lamar-sabrina-carpenter.html
-
-**The Hurricane Season Is Suddenly Looking More Active**\
-`Forecasters are watching more than just Francine, as several other storm systems could become the next named storm in the Atlantic.`\
-https://nytimes.com/2024/09/11/weather/hurricane-season-update-forecast.html
 
