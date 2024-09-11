@@ -1,7 +1,3 @@
-**Scoop City: Injury reports, best/worst of Week 1**\
-`A roundup of injury news for notable NFL stars ahead of Week 2, plus a look at the best/worst of Week 1`\
-https://nytimes.com/athletic/5760296/2024/09/11/scoop-city-injury-report-on-mccaffrey-achane/
-
 **The No. 1 Breaker in the World Is … Raygun?**\
 `The Australian breaker who was mocked at the Olympics for her kangaroo-hopping routine is now atop the official world rankings. Here’s how it happened.`\
 https://nytimes.com/2024/09/11/sports/raygun-breaking-ranking-number-one.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/09/11/us/politics/trump-taylor-swift-harris-endorsement
 **Ohio Dad Asks Trump Ticket to Stop Using Son’s Death for ‘Political Gain’**\
 `Aiden Clark was killed when an immigrant’s minivan crashed into a school bus he was travelling in last year.`\
 https://nytimes.com/video/us/politics/100000009685916/trump-vance-aiden-clark-springfield-ohio.html
+
+**Scarred by past floods, Baton Rouge braces for damage.**\
+`By Jacey Fortin`\
+https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/scarred-by-past-floods-baton-rouge-braces-for-damage
 
