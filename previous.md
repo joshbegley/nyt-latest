@@ -1,3 +1,23 @@
+**Actually, Europe Is Doing a Lot for Ukraine**\
+`Trump’s claim that European allies aren’t doing their fair share is false.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/krugman-trump-ukraine-europe
+
+**Parenting Has Always Been Hard**\
+`Accepting that is the first step toward making it more tolerable.`\
+https://nytimes.com/2024/09/11/opinion/parenting-has-always-been-hard.html
+
+**With Strong Memories of Katrina, Mississippi Braces for Francine**\
+`The governor declared a state of emergency as residents sandbagged homes and considered evacuating.`\
+https://nytimes.com/2024/09/11/weather/francine-mississippi-hurricane-katrina.html
+
+**Europeans Used Cocaine Much Earlier Than Previously Thought, Study Finds**\
+`In human remains buried in an Italian crypt, researchers found evidence of cocaine use from the 17th century.`\
+https://nytimes.com/2024/09/11/science/early-european-cocaine-use.html
+
+**My Cousin’s Young Children Are Hellions! What Can I Do?**\
+`A reader is unsure how best to help a cousin she sees as a little sister but who so far hasn’t asked for any parenting advice.`\
+https://nytimes.com/2024/09/11/style/parenting-advice-unsolicited.html
+
 **Manchester United defender Blundell announces pregnancy**\
 `Manchester United full-back Hannah Blundell has announced that she is pregnant.`\
 https://nytimes.com/athletic/5759932/2024/09/11/hannah-blundell-manchester-united-pregnancy/
@@ -17,24 +37,4 @@ https://nytimes.com/live/2024/09/11/business/cpi-inflation-fed/food-price-gains-
 **Giants takeaways: Birthday wishes for Marco Luciano, Landon Roupp and more**\
 `Here are some presents that could help four Giants in their quests to be productive major leaguers who contribute to the team's success.`\
 https://nytimes.com/athletic/5759671/2024/09/11/giants-takeaways-marco-luciano-landon-roupp/
-
-**Where Do Trump and Harris Stand on Israel-Gaza Conflict?**\
-`The war in Gaza merited a few scant mentions in the presidential debate. Here’s a look at where Vice President Kamala Harris and former President Donald Trump stand.`\
-https://nytimes.com/2024/09/11/world/middleeast/trump-harris-israel-gaza.html
-
-**With New Prime Minister, a ‘Rupture’ in French Politics and Barbs for Macron**\
-`President Emmanuel Macron’s newly picked prime minister wasted no time in putting a pointed distance between himself and France’s weakened leader.`\
-https://nytimes.com/2024/09/11/world/europe/france-macron-barnier-prime-minister.html
-
-**Kawakami: Brock Purdy's average/ideal game and more 49ers Week 1 conclusions**\
-`Purdy is 18-4 in the regular season as an NFL starter, largely because of perfectly average games like Monday's victory over the Jets.`\
-https://nytimes.com/athletic/5758306/2024/09/11/brock-purdy-nick-sorensen-49ers-week-1-conclusions/
-
-**Blues' Robert Thomas subscriber Q&A: On fatherhood, NHL's biggest 'yappers' and 'Country Roads'**\
-`After the birth of his daughter, Taytum, the Blues' Robert Thomas has been busy with dad life.`\
-https://nytimes.com/athletic/5696701/2024/09/11/blues-robert-thomas-nhl-analytics/
-
-**Hockey player suspended for allegedly buying cocaine during Olympics**\
-`Australian field hockey player Tom Craig has been suspended for 12 months after being arrested for allegedly buying cocaine during the Paris Olympics.`\
-https://nytimes.com/athletic/5759723/2024/09/11/australian-hockey-player-banned-for-12-months-after-allegedly-buying-cocaine-during-olympics/
 

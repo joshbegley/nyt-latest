@@ -1,3 +1,23 @@
+**Actually, Europe Is Doing a Lot for Ukraine**\
+`Trump’s claim that European allies aren’t doing their fair share is false.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/krugman-trump-ukraine-europe
+
+**Parenting Has Always Been Hard**\
+`Accepting that is the first step toward making it more tolerable.`\
+https://nytimes.com/2024/09/11/opinion/parenting-has-always-been-hard.html
+
+**With Strong Memories of Katrina, Mississippi Braces for Francine**\
+`The governor declared a state of emergency as residents sandbagged homes and considered evacuating.`\
+https://nytimes.com/2024/09/11/weather/francine-mississippi-hurricane-katrina.html
+
+**Europeans Used Cocaine Much Earlier Than Previously Thought, Study Finds**\
+`In human remains buried in an Italian crypt, researchers found evidence of cocaine use from the 17th century.`\
+https://nytimes.com/2024/09/11/science/early-european-cocaine-use.html
+
+**My Cousin’s Young Children Are Hellions! What Can I Do?**\
+`A reader is unsure how best to help a cousin she sees as a little sister but who so far hasn’t asked for any parenting advice.`\
+https://nytimes.com/2024/09/11/style/parenting-advice-unsolicited.html
+
 **Manchester United defender Blundell announces pregnancy**\
 `Manchester United full-back Hannah Blundell has announced that she is pregnant.`\
 https://nytimes.com/athletic/5759932/2024/09/11/hannah-blundell-manchester-united-pregnancy/
