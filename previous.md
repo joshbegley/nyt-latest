@@ -1,3 +1,11 @@
+**Was that the worst loss in Notre Dame history? Mailbag**\
+`Can the Irish get Riley Leonard right? Have the receivers underachieved? And is Notre Dame football simply repeating its recent history?`\
+https://nytimes.com/athletic/5760015/2024/09/11/notre-dame-football-northern-illinois-worst-loss/
+
+**Grieving Ohio Father Tells Trump and Vance to Stop Talking About His Son**\
+`Nathan Clark says the candidates are exploiting his son’s death in a crash caused by an immigrant outside the small city of Springfield. “This needs to stop now.”`\
+https://nytimes.com/2024/09/11/us/trump-vance-aiden-clark-springfield-ohio.html
+
 **Lowetide: Can Oilers coaching staff find magic again with the current defence?**\
 `Solutions for Edmonton's issues on the back end do not appear to be close at hand.`\
 https://nytimes.com/athletic/5758371/2024/09/11/oilers-lineup-defence-coffey/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/11/weather/francine-mississippi-hurricane-katrina.ht
 **Europeans Used Cocaine Much Earlier Than Previously Thought, Study Finds**\
 `In human remains buried in an Italian crypt, researchers found evidence of cocaine use from the 17th century.`\
 https://nytimes.com/2024/09/11/science/early-european-cocaine-use.html
-
-**My Cousin’s Young Children Are Hellions! What Can I Do?**\
-`A reader is unsure how best to help a cousin she sees as a little sister but who so far hasn’t asked for any parenting advice.`\
-https://nytimes.com/2024/09/11/style/parenting-advice-unsolicited.html
-
-**Manchester United defender Blundell announces pregnancy**\
-`Manchester United full-back Hannah Blundell has announced that she is pregnant.`\
-https://nytimes.com/athletic/5759932/2024/09/11/hannah-blundell-manchester-united-pregnancy/
 

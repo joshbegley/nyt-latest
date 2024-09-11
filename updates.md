@@ -1,3 +1,11 @@
+**Was that the worst loss in Notre Dame history? Mailbag**\
+`Can the Irish get Riley Leonard right? Have the receivers underachieved? And is Notre Dame football simply repeating its recent history?`\
+https://nytimes.com/athletic/5760015/2024/09/11/notre-dame-football-northern-illinois-worst-loss/
+
+**Grieving Ohio Father Tells Trump and Vance to Stop Talking About His Son**\
+`Nathan Clark says the candidates are exploiting his son’s death in a crash caused by an immigrant outside the small city of Springfield. “This needs to stop now.”`\
+https://nytimes.com/2024/09/11/us/trump-vance-aiden-clark-springfield-ohio.html
+
 **Lowetide: Can Oilers coaching staff find magic again with the current defence?**\
 `Solutions for Edmonton's issues on the back end do not appear to be close at hand.`\
 https://nytimes.com/athletic/5758371/2024/09/11/oilers-lineup-defence-coffey/
