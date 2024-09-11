@@ -1,3 +1,7 @@
+**Trump Walked Into the Media ‘Spin Room’ Himself After the Debate**\
+`It was an unusual move for a presidential candidate.`\
+https://nytimes.com/2024/09/11/us/politics/trump-debate-spin-room.html
+
 **Reunited with the 'Rally Sausage,' Twins offense breaks out of slumber**\
 `Desperate for a spark after losing 15 times in 21 games, the Twins revived an old friend on Tuesday night.`\
 https://nytimes.com/athletic/5759573/2024/09/11/twins-offense-break-out-rally-sausage/
