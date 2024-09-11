@@ -1,3 +1,11 @@
+**“For years we were paying almost all of NATO. We were being ripped off by European nations, both on trade and on NATO. I got them to pay up.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/for-years-we-were-paying-almost-all-of-nato-we-were-being-ripped-off-by-european-nations-both-on-trade-and-on-nato-i-got-them-to
+
+**Trump Aims to Tie Harris Critically to Her Father, a Professor of Marxist Economics**\
+`The former president called his rival a “Marxist,” though Ms. Harris has repeatedly made clear that she supports capitalism.`\
+https://nytimes.com/2024/09/10/us/politics/harris-father-marxist-trump.html
+
 **‘They’re Eating the Cats’: Trump Repeats False Claim About Immigrants**\
 `Donald J. Trump amplified an outlandish internet theory from the debate stage, drawing laughter from his opponent, Vice President Kamala Harris.`\
 https://nytimes.com/2024/09/10/us/politics/trump-debate-immigrants-pets.html
@@ -11,7 +19,7 @@ https://nytimes.com/live/2024/09/10/us/harris-trump-debate/biden-ended-the-xl-pi
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/a-lot-of-these-illegal-immigrants-coming-in-democrats-are-trying-to-get-them-to-vote
 
 **I “have built it into many, many billions of dollars; many, many billions.”**\
-`By Benjamin Protess`\
+`By Ben Protess`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/i-have-built-it-into-many-many-billions-of-dollars-many-many-billions
 
 **“She wouldn’t even meet with Netanyahu when he went to Congress to make a very important speech. She refused to be there because she was at a sorority party of hers.”**\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/10/us/harris-trump-debate/putin-endorsed-her-la
 **“Crime here is up and through the roof.”**\
 `By Zolan Kanno-Youngs`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/crime-here-is-up-and-through-the-roof
-
-**All of Trump’s legal challenges to the outcome of the 2020 election were dismissed on “technicalities” or the basis of “standing.”**\
-`By Alan Feuer`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/all-of-trumps-legal-challenges-to-the-outcome-of-the-2020-election-were-dismissed-on-technicalities-or-the-basis-of-standing
-
-**“Every one of those cases was started by them against their political opponent.”**\
-`By Ben Protess`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/every-one-of-those-cases-was-started-by-them-against-their-political-opponent
 

@@ -1,3 +1,15 @@
+**“For years we were paying almost all of NATO. We were being ripped off by European nations, both on trade and on NATO. I got them to pay up.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/for-years-we-were-paying-almost-all-of-nato-we-were-being-ripped-off-by-european-nations-both-on-trade-and-on-nato-i-got-them-to
+
+**Trump Aims to Tie Harris Critically to Her Father, a Professor of Marxist Economics**\
+`The former president called his rival a “Marxist,” though Ms. Harris has repeatedly made clear that she supports capitalism.`\
+https://nytimes.com/2024/09/10/us/politics/harris-father-marxist-trump.html
+
+**I “have built it into many, many billions of dollars; many, many billions.”**\
+`By Ben Protess`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/i-have-built-it-into-many-many-billions-of-dollars-many-many-billions
+
 **‘They’re Eating the Cats’: Trump Repeats False Claim About Immigrants**\
 `Donald J. Trump amplified an outlandish internet theory from the debate stage, drawing laughter from his opponent, Vice President Kamala Harris.`\
 https://nytimes.com/2024/09/10/us/politics/trump-debate-immigrants-pets.html
