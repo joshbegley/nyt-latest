@@ -1,3 +1,15 @@
+**Harvard’s Black Student Enrollment Dips After Affirmative Action Ends**\
+`Defying expectations, a Supreme Court decision curtailing race-based admissions still had a relatively small impact at some highly selective schools like Harvard, even as other schools saw big changes.`\
+https://nytimes.com/2024/09/11/us/harvard-affirmative-action-diversity-admissions.html
+
+**Restaurant-Fancy Pasta for a Worn-Out Wednesday**\
+`Andy Baraghani’s minimalist crispy artichoke pasta keeps the prep time doable, with Parmesan, garlic and red pepper to round everything out.`\
+https://nytimes.com/2024/09/11/dining/artichoke-pasta-recipe.html
+
+**Climate at the Debate: Trump Ignored the Question and Harris Hedged**\
+`Vice President Kamala Harris nodded to the urgency of climate change but also highlighted the country’s record levels of oil and gas production.`\
+https://nytimes.com/2024/09/11/climate/trump-harris-climate-change-debate.html
+
 **Canucks offseason report card: Grading all of management's summer moves**\
 `Canucks management faced a unenviable series of difficult choices this summer. How did the moves grade out?`\
 https://nytimes.com/athletic/5759691/2024/09/11/canucks-offseason-moves-grades/
