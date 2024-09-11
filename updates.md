@@ -1,3 +1,7 @@
+**Second-half surgers: Jackson Merrill, Sean Manaea and more red-hot targets for fantasy baseball 2025**\
+`Michael Salfino looks at players who have caught fire down the stretch of 2024 and primed for carrying that momentum into the 2025 season.`\
+https://nytimes.com/athletic/5760360/2024/09/11/fantasy-baseball-second-half-surgers-2025-targets/
+
 **Blackhawks' Levshunov to miss prospect showcase with injury**\
 `The injury occurred when Levshunov was struck in the foot by a puck in a recent training session.`\
 https://nytimes.com/athletic/5760343/2024/09/11/blackhawks-artyom-levshunov-injury-showcase/

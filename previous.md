@@ -1,3 +1,7 @@
+**Second-half surgers: Jackson Merrill, Sean Manaea and more red-hot targets for fantasy baseball 2025**\
+`Michael Salfino looks at players who have caught fire down the stretch of 2024 and primed for carrying that momentum into the 2025 season.`\
+https://nytimes.com/athletic/5760360/2024/09/11/fantasy-baseball-second-half-surgers-2025-targets/
+
 **Blackhawks' Levshunov to miss prospect showcase with injury**\
 `The injury occurred when Levshunov was struck in the foot by a puck in a recent training session.`\
 https://nytimes.com/athletic/5760343/2024/09/11/blackhawks-artyom-levshunov-injury-showcase/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/us/harvard-affirmative-action-diversity-admission
 **Restaurant-Fancy Pasta for a Worn-Out Wednesday**\
 `Andy Baraghani’s minimalist crispy artichoke pasta keeps the prep time doable, with Parmesan, garlic and red pepper to round everything out.`\
 https://nytimes.com/2024/09/11/dining/artichoke-pasta-recipe.html
-
-**Climate at the Debate: Trump Ignored the Question and Harris Hedged**\
-`Vice President Kamala Harris nodded to the urgency of climate change but also highlighted the country’s record levels of oil and gas production.`\
-https://nytimes.com/2024/09/11/climate/trump-harris-climate-change-debate.html
 
