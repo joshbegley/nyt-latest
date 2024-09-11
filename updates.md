@@ -1,3 +1,7 @@
+**Inflation cooled on a yearly basis in August.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/09/11/business/cpi-inflation-fed/inflation-cooled-on-a-yearly-basis-in-august
+
 **Frenkie de Jong is no closer to a Barca return - so what's going on?**\
 `Dutch midfielder has been injured since April, and his wait to return looks set to continue`\
 https://nytimes.com/athletic/5760003/2024/09/11/frenkie-de-jong-barcelona-injury/

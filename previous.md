@@ -1,3 +1,7 @@
+**Inflation cooled on a yearly basis in August.**\
+`By Jeanna Smialek`\
+https://nytimes.com/live/2024/09/11/business/cpi-inflation-fed/inflation-cooled-on-a-yearly-basis-in-august
+
 **Frenkie de Jong is no closer to a Barca return - so what's going on?**\
 `Dutch midfielder has been injured since April, and his wait to return looks set to continue`\
 https://nytimes.com/athletic/5760003/2024/09/11/frenkie-de-jong-barcelona-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/11/business/cpi-inflation-fed/prices-continue-t
 **Will There Be Another Debate? Trump Isn’t Sure.**\
 `The former president suggested immediately after the debate and in a call-in to Fox News on Wednesday morning that he was not inclined to agree to another.`\
 https://nytimes.com/2024/09/11/us/politics/trump-harris-second-presidential-debate.html
-
-**Actually, Europe Is Doing a Lot for Ukraine**\
-`Trump’s claim that European allies aren’t doing their fair share is false.`\
-https://nytimes.com/live/2024/09/03/opinion/thepoint/krugman-trump-ukraine-europe
 
