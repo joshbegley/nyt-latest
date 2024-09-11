@@ -1,3 +1,7 @@
+**Sterilizations Among Women Rose After Roe Was Overturned, Study Finds**\
+`Experts said the research underscored how abortion bans had affected women’s contraceptive choices.`\
+https://nytimes.com/2024/09/11/well/tubal-sterilization-abortion-ban-roe-wade.html
+
 **Lunin signs new Real Madrid contract extension until 2028**\
 `Real Madrid goalkeeper Andriy Lunin has signed a new three-year contract with the club.`\
 https://nytimes.com/athletic/5760291/2024/09/11/real-madrid-andiry-lunin-contract-extension/

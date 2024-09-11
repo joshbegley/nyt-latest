@@ -1,3 +1,7 @@
+**Sterilizations Among Women Rose After Roe Was Overturned, Study Finds**\
+`Experts said the research underscored how abortion bans had affected women’s contraceptive choices.`\
+https://nytimes.com/2024/09/11/well/tubal-sterilization-abortion-ban-roe-wade.html
+
 **Lunin signs new Real Madrid contract extension until 2028**\
 `Real Madrid goalkeeper Andriy Lunin has signed a new three-year contract with the club.`\
 https://nytimes.com/athletic/5760291/2024/09/11/real-madrid-andiry-lunin-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5759691/2024/09/11/canucks-offseason-moves-grades/
 **Frankie Beverly, Soul Singer and Maze Frontman, Is Dead at 77**\
 `He had announced a short farewell tour earlier this year and said he would retire after more than 50 years in the music business.`\
 https://nytimes.com/2024/09/11/arts/music/frankie-beverly-dead.html
-
-**Harris and Trump Shake Hands at Sept. 11 Memorial Ceremony**\
-`Vice President Kamala Harris and former President Donald J. Trump attended a memorial in New York City for the 23rd anniversary of the terrorist attacks on Sept. 11, 2001.`\
-https://nytimes.com/video/us/politics/100000009685784/harris-trump-9-11-memorial-handshake.html
 
