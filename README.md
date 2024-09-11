@@ -1,3 +1,15 @@
+**WNBA players, WNBPA say Engelbert's comments on Clark-Reese rivalry were a 'fumble'**\
+`The WNBA has seen a surge in interest this season, with Clark and Reese participating in the most-watched game in over 20 years.`\
+https://nytimes.com/athletic/5759461/2024/09/10/wnba-wnbpa-cathy-engelbert-comments/
+
+**Over 90 Minutes, Trump Descended to His True Self**\
+`He fell right into the traps Harris had set for him.`\
+https://nytimes.com/2024/09/03/opinion/trump-debate-lies.html
+
+**“All I can say is I read where she was not Black. That she put out. And I’ll say that and then I read that she was Black, and that’s OK. Either one was OK with me.”**\
+`By Linda Qiu`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/all-i-can-say-is-i-read-where-she-was-not-black-that-she-put-out-and-ill-say-that-and-then-i-read-that-she-was-black-and-thats-o
+
 **“As of today, there is not one member of the United States military who is in active duty in a combat zone, in any war zone around the world, for the first time this century.”**\
 `By Michael Crowley`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/as-of-today-there-is-not-one-member-of-the-united-states-military-who-is-in-active-duty-in-a-combat-zone-in-any-war-zone-around-
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5734497/2024/09/10/white-sox-watch-most-losses-seas
 **Trump Aims to Tie Harris Critically to Her Father, a Professor of Marxist Economics**\
 `Donald J. Trump called Kamala Harris a “Marxist” because her father taught the subject at Stanford University, though she has repeatedly made clear that she supports capitalism.`\
 https://nytimes.com/2024/09/10/us/politics/harris-father-marxist-trump.html
-
-**‘They’re Eating the Cats’: Trump Repeats False Claim About Immigrants**\
-`Donald J. Trump amplified an outlandish internet theory from the debate stage, drawing laughter from his opponent, Vice President Kamala Harris.`\
-https://nytimes.com/2024/09/10/us/politics/trump-debate-immigrants-pets.html
-
-**Biden “ended the XL pipeline, the XL pipeline in our country. He ended that.”**\
-`By Lisa Friedman`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/biden-ended-the-xl-pipeline-the-xl-pipeline-in-our-country-he-ended-that
-
-**“A lot of these illegal immigrants coming in —” Democrats are “trying to get them to vote.”**\
-`By Alexandra Berzon`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/a-lot-of-these-illegal-immigrants-coming-in-democrats-are-trying-to-get-them-to-vote
 
