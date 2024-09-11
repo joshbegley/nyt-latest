@@ -1,3 +1,23 @@
+**Buoyed by Blue Jays' support, Davis Schneider finally gets the hit he was searching for**\
+`Schneider's teammates have supported him during his second-half struggles. "I couldn't be more grateful."`\
+https://nytimes.com/athletic/5759542/2024/09/11/blue-jays-davis-schneider-slump/
+
+**The Moment Trump Couldn’t Resist Bungling**\
+`Kamala Harris knew what she wanted Trump to do. He did not disappoint her.`\
+https://nytimes.com/2024/09/11/us/politics/trump-harris-debate-moments.html
+
+**Chelsea's ownership structure: Who owns what at Stamford Bridge?**\
+`These are the key figures who make up the Chelsea hierarchy as the club digests the split between co-owners Todd Boehly and Behdad Eghbali`\
+https://nytimes.com/athletic/5758157/2024/09/11/chelsea-ownership-boehly-clearlake-walter-wyss/
+
+**This may be the last WSL season as we know it - but what is the vision for its future?**\
+`The WSL and Championship are entering a new era, but there should be some caution about the direction they take`\
+https://nytimes.com/athletic/5758145/2024/09/11/wsl-championship-wpll-doucet-vision-for-future/
+
+**How do Arsenal adapt if they are missing Odegaard and other first-choice midfielders?**\
+`Norwegian playmaker could miss the north London derby, joining the suspended Declan Rice and the injured Mikel Merino on the sidelines`\
+https://nytimes.com/athletic/5757631/2024/09/11/arsenal-odegaard-injury-tottenham/
+
 **Fox News hosts decide who lost the debate: ABC News.**\
 `By Jeremy W. Peters`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/fox-news-hosts-decide-who-lost-the-debate-abc-news
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5757996/2024/09/11/manchester-united-transfer-diary
 **Ranking every Premier League XI - first choice, second choice and Chelsea's C team**\
 `How would a Premier League table containing all 20 clubs' first and second XIs (and in the case of Chelsea, their third XI) look?`\
 https://nytimes.com/athletic/5750586/2024/09/11/ranked-premier-league-xi/
-
-**The Phillies are rolling and can taste it after rallying past Rays as benches clear**\
-`PHILADELPHIA — They can taste it now, as evidenced by the thick fog that filled the service-level hallway outside the Phillies clubhouse Tuesday night.`\
-https://nytimes.com/athletic/5759534/2024/09/11/phillies-rays-benches-clear-catellanos-harper/
-
-**Alisson's one-on-ones, Ederson's passing, Raya's catching: Building the perfect goalkeeper**\
-`Which elements of the world's best 'keepers would make the ideal composite No 1?`\
-https://nytimes.com/athletic/5746745/2024/09/11/best-goalkeeper-world/
-
-**Red Trousers, Storks and Breisgau Brazilians: The origins of German football club nicknames**\
-`From the Factory Eleven to the Unpromotables, German clubs have an interesting mix of nicknames - but where do they come from?`\
-https://nytimes.com/athletic/5747122/2024/09/11/german-football-nicknames-bundesliga/
-
-**Has the impact of analytics on modern football been overstated?**\
-`The debate in analytics has inevitably been framed as ‘Spreadsheet Nerds’ on the left versus ‘Old-School Football Men’ on the right`\
-https://nytimes.com/athletic/5756088/2024/09/11/how-has-data-changed-football/
-
-**Kutter Crawford makes 30th start, but Red Sox offense falters once again**\
-`After scoring 12 runs on Monday, the Red Sox weren’t able to sustain that momentum offensively, wasting a quality Crawford start.`\
-https://nytimes.com/athletic/5759526/2024/09/11/red-sox-kutter-crawford-30-starts/
 
