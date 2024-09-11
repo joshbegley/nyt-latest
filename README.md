@@ -1,3 +1,7 @@
+**Dodgers get encouraging return from Yoshinobu Yamamoto before late collapse**\
+`A sequence of mental miscues in the field spoiled Yamamoto's commanding comeback performance. `\
+https://nytimes.com/athletic/5759663/2024/09/11/dodgers-yoshinobu-yamamoto/
+
 **Ake forced off with injury on international duty with the Netherlands**\
 `Manchester City defender Nathan Ake was forced off in the Netherlands&#8217; Nations League draw against Germany due to an apparent muscle injury.`\
 https://nytimes.com/athletic/5758754/2024/09/11/nathan-ake-injury-netherlands-manchester-city/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/us/politics/trump-harris-debate-analysis.html
 **As Trump Links Her to Biden, Harris Says, ‘You’re Running Against Me’**\
 `Vice President Kamala Harris largely deflected former President Donald J. Trump’s attempts to tie her to President Biden.`\
 https://nytimes.com/2024/09/11/us/politics/harris-biden-trump-debate.html
-
-**Donald Trump Made a Raving, Rambling Fool of Himself in That Debate**\
-`And Kamala Harris had the skill and composure to help him do it.`\
-https://nytimes.com/2024/09/11/opinion/trump-harris-debate.html
 
