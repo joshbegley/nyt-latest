@@ -1,3 +1,11 @@
+**Adams’s Pick for Top Lawyer Withdraws His Nomination**\
+`Randy Mastro, a former federal prosecutor and aide to Mayor Rudolph W. Giuliani, said he had been denied a fair hearing by the City Council.`\
+https://nytimes.com/2024/09/10/nyregion/randy-mastro-eric-adams-lawyer-withdraws.html
+
+**Trump mocked Harris’s height, but her fans see a certain stature.**\
+`By Abby Ellin`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/trump-mocked-harriss-height-but-her-fans-see-a-certain-stature
+
 **Here Are Some of the Prominent Surrogates at the Debate Site**\
 `Anthony Scaramucci and Tulsi Gabbard are there. But you might be surprised which candidate they’re supporting.`\
 https://nytimes.com/2024/09/10/us/politics/debate-surrogates-rfk-gabbard-scaramucci.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/09/10/us/elections/trump-harris-attacks-deb
 **Timeline of Deshaun Watson's legal troubles, career since first sexual misconduct allegation**\
 `A lawsuit filed this week was the latest development in a saga that has stretched to early 2021.`\
 https://nytimes.com/athletic/5758187/2024/09/10/deshaun-watson-timeline-sexual-assault-allegations-lawsuits/
-
-**49ers minutia minute: Details on Christian McCaffrey; Brock Purdy's mature game**\
-`A review of Monday's win highlighted the strong performance by the 49ers' right-side guys — guard Dominick Puni and tackle Colton McKivitz.`\
-https://nytimes.com/athletic/5758928/2024/09/10/49ers-christian-mccaffrey-brock-purdy/
-
-**WSL YouTube switch will increase league's 'reach', says women's football CEO**\
-`Nikki Doucet, the CEO of the English women&#8217;s professional game, says moving the Women&#8217;s Super League (WSL) and Championship&#8217;s streaming platform to YouTube will grow the game&#8217;s reach.`\
-https://nytimes.com/athletic/5757935/2024/09/10/nikki-doucet-wsl-youtube/
 
