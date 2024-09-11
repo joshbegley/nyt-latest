@@ -1,3 +1,11 @@
+**I’m Hearing Huge Relief From Democrats Over Harris’s Debate Performance**\
+`Time and again, she laid the bait and Trump took it.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/harris-trump-debate-
+
+**“Fracking? She’s been against it for 12 years.”**\
+`By Lisa Friedman`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/fracking-shes-been-against-it-for-12-years
+
 **Polaris Dawn Astronauts Reach Record High Orbit Above Earth**\
 `After launching early on Tuesday, the billionaire Jared Isaacman and his crew traveled to altitudes not visited by any astronaut since the Apollo moon missions of the 1960s and ’70s.`\
 https://nytimes.com/2024/09/10/science/polaris-dawn-spacex-orbit-astronauts.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/10/us/harris-trump-debate/every-legal-scholar-e
 **Immigrants are “coming in and they’re taking jobs that are occupied right now by African Americans.”**\
 `By Zolan Kanno-Youngs`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/immigrants-are-coming-in-and-theyre-taking-jobs-that-are-occupied-right-now-by-african-americans
-
-**Immigrants are “taking over the towns. They’re taking over buildings. They’re going in violently.”**\
-`By Michael D. Shear`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/immigrants-are-taking-over-the-towns-theyre-taking-over-buildings-theyre-going-in-violently
-
-**“She’s a Marxist. Everybody knows she’s a Marxist.”**\
-`By Linda Qiu`\
-https://nytimes.com/live/2024/09/10/us/harris-trump-debate/shes-a-marxist-everybody-knows-shes-a-marxist
 
