@@ -1,3 +1,11 @@
+**Red Trousers, Storks and Breisgau Brazilians: The origins of German football club nicknames**\
+`From the Factory Eleven to the Unpromotables, German clubs have an interesting mix of nicknames - but where do they come from?`\
+https://nytimes.com/athletic/5747122/2024/09/11/german-football-nicknames-bundesliga/
+
+**Has the impact of analytics on modern football been overstated?**\
+`The debate in analytics has inevitably been framed as ‘Spreadsheet Nerds’ on the left versus ‘Old-School Football Men’ on the right`\
+https://nytimes.com/athletic/5756088/2024/09/11/how-has-data-changed-football/
+
 **Kutter Crawford makes 30th start, but Red Sox offense falters once again**\
 `After scoring 12 runs on Monday, the Red Sox weren’t able to sustain that momentum offensively, wasting a quality Crawford start.`\
 https://nytimes.com/athletic/5759526/2024/09/11/red-sox-kutter-crawford-30-starts/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/11/health/cholera-deaths-cases.html
 **Family of American Woman Held in China for 10 Years Asks for Help**\
 `Dawn Michelle Hunt, who is serving a life sentence, says she was duped into carrying drugs. Her family says she is seriously ill and should be sent home.`\
 https://nytimes.com/2024/09/11/world/asia/china-us-woman-imprisoned.html
-
-**Wednesday's MLB odds, best bets: Projections for pitching matchups, playoffs and more**\
-`See pitching matchups, playoff projections, win projections and more for Wednesday's MLB games.`\
-https://nytimes.com/athletic/5758852/2024/09/11/mlb-odds-best-bets-projections-september-11/
-
-**Fantasy football rankings Week 2: Sleepers, projections, starts, sits**\
-`Jake Ciely offers up his Week 2 fantasy football player rankings, along with sleepers and need-to-knows for each matchup.`\
-https://nytimes.com/athletic/5759303/2024/09/11/fantasy-football-rankings-week-2-sleepers-projections-starts-sits-2/
 
