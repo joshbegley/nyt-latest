@@ -1,3 +1,7 @@
+**With New Prime Minister, a ‘Rupture’ in French Politics and Barbs for Macron**\
+`President Emmanuel Macron’s newly picked prime minister wasted no time in putting a pointed distance between himself and France’s weakened leader.`\
+https://nytimes.com/2024/09/11/world/europe/france-macron-barnier-prime-minister.html
+
 **Giants takeaways: Birthday wishes for Marco Luciano, Landon Roupp and more**\
 `Here are some presents that could help four Giants in their quests to be productive major leaguers who contribute to the team's success.`\
 https://nytimes.com/athletic/5759671/2024/09/11/giants-takeaways-marco-luciano-landon-roupp/
