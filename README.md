@@ -11,7 +11,7 @@ https://nytimes.com/2024/09/11/world/middleeast/jordan-election-muslim-brotherho
 https://nytimes.com/2024/09/11/world/europe/mont-blanc-climber-deaths.html
 
 **Trump’s Alternative for Obamacare Is Now Just ‘Concepts of a Plan’**\
-`Former President Donald J. Trump once promised to replace Obamacare with “something terrific.” But as the 2014 law has become more popular, he has softened his criticism.`\
+`Former President Donald J. Trump once promised to replace Obamacare with “something terrific.” But as the 2010 law has become more popular, he has sounded less confident about a repeal.`\
 https://nytimes.com/2024/09/11/us/politics/trump-obamacare.html
 
 **A Rock Star Offers a Lesson in Crisis Communication**\
