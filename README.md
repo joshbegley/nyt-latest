@@ -1,3 +1,11 @@
+**Scarred by past floods, Baton Rouge braces for damage.**\
+`By Jacey Fortin`\
+https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/scarred-by-past-floods-baton-rouge-braces-for-damage
+
+**Tyreek Hill calls for firing of police officer placed on leave**\
+`Hill's attorney said he and his client "are of the opinion that the officer's use of force was excessive, escalating and reckless."`\
+https://nytimes.com/athletic/5759972/2024/09/11/tyreek-hill-police-officer-fired-dolphins/
+
 **After Debate, Harris and Trump Shake Hands at Sept. 11 Memorial**\
 `The morning after their first face-to-face meeting, the two candidates attended a ceremony on the 23rd anniversary of the terror attacks. Vice President Kamala Harris appeared to say “thank you” to her rival.`\
 https://nytimes.com/2024/09/11/us/politics/harris-trump-sept-11-memorial.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/the-sto
 **Was that the worst loss in Notre Dame history? Mailbag**\
 `Can the Irish get Riley Leonard right? Have the receivers underachieved? And is Notre Dame football simply repeating its recent history?`\
 https://nytimes.com/athletic/5760015/2024/09/11/notre-dame-football-northern-illinois-worst-loss/
-
-**Grieving Ohio Father Tells Trump and Vance to Stop Talking About His Son**\
-`Nathan Clark says the candidates are exploiting his son’s death in a crash caused by an immigrant outside the small city of Springfield. “This needs to stop now.”`\
-https://nytimes.com/2024/09/11/us/trump-vance-aiden-clark-springfield-ohio.html
-
-**Lowetide: Can Oilers coaching staff find magic again with the current defence?**\
-`Solutions for Edmonton's issues on the back end do not appear to be close at hand.`\
-https://nytimes.com/athletic/5758371/2024/09/11/oilers-lineup-defence-coffey/
 
