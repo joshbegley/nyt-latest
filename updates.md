@@ -1,3 +1,7 @@
+**Who Won the Debate? A Sharp Harris Rattled Trump**\
+`Commentators, even Republicans, concluded that  Kamala Harris had succeeded in provoking Donald Trump into veering off message.`\
+https://nytimes.com/2024/09/11/us/politics/trump-harris-debate-who-won.html
+
 **As Trump Links Her to Biden, Harris Says, ‘You’re Running Against Me’**\
 `Vice President Kamala Harris largely deflected former President Donald J. Trump’s attempts to tie her to President Biden.`\
 https://nytimes.com/2024/09/11/us/politics/harris-biden-trump-debate.html

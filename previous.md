@@ -18,8 +18,8 @@ https://nytimes.com/2024/09/11/us/politics/harris-trump-abortion-debate.html
 `The interim head coach is in pole position to become Southgate's successor, even though the FA's 'process' is ongoing `\
 https://nytimes.com/athletic/5752162/2024/09/11/lee-carsley-england-manager-job-fa/
 
-**Who Won the Debate? A Sharp Harris Unbalances Trump**\
-`Commentators concluded that Vice President Kamala Harris had succeeded in baiting former President Donald J. Trump into veering off message.`\
+**Who Won the Debate? A Sharp Harris Rattled Trump**\
+`Commentators, even Republicans, concluded that  Kamala Harris had succeeded in provoking Donald Trump into veering off message.`\
 https://nytimes.com/2024/09/11/us/politics/trump-harris-debate-who-won.html
 
 **Best, Worst and Most Surprising Lines From the Presidential Debate**\
