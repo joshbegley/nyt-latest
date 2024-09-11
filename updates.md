@@ -1,3 +1,7 @@
+**The storm could still gain strength. Here’s what to know.**\
+`The storm is expected to make landf`\
+https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/hurricane-francine-louisiana
+
 **Ravens insist they're not worried about their O-line or illegal formation crackdown**\
 `Another big challenge for Baltimore's O-line looms as the Raiders come to town with one of the game’s top edge rushers in Maxx Crosby. `\
 https://nytimes.com/athletic/5759481/2024/09/11/ravens-offensive-line-illegal-formation/
