@@ -1,3 +1,7 @@
+**Why Venezuelan Election Observers are Exiled in Colombia**\
+`As the government of Nicolás Maduro doubles down on declaring him the winner of Venezuela’s presidential election, political opponents are fleeing to neighboring countries to escape threats to themselves and their families.`\
+https://nytimes.com/video/world/americas/100000009655106/why-venezuelan-election-observers-are-exiled-in-colombia.html
+
 **Henry criticises football schedule: 'There's too many games'**\
 `Former Arsenal and Barcelona forward Thierry Henry has criticised the football schedule &#8211; and says there are &#8220;too many games&#8221;.`\
 https://nytimes.com/athletic/5760786/2024/09/11/thierry-henery-criticise-football-schedule/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/us/politics/harris-trump-biden-911.html
 **Lloyd Kaufman, Who Saw Answers Behind the ‘Moon Illusion,’ Dies at 97**\
 `He advanced the study of a millenniums-old mystery: why the moon appears larger on the horizon than it does high in the night sky.`\
 https://nytimes.com/2024/09/11/science/lloyd-kaufman-dead.html
-
-**How Taylor Swift Surprised Harris, and Entered a New Political Era**\
-`The pop star capped a big night for Kamala Harris with an unexpectedly timed endorsement that could draw in more young voters. Ms. Swift’s political message, too, was newly direct and personal.`\
-https://nytimes.com/2024/09/11/us/politics/taylor-swift-politics-harris.html
 
