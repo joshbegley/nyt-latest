@@ -1,3 +1,11 @@
+**Braves' Reynaldo López makes early exit**\
+`Another day, another injury concern for the Atlanta Braves, who removed starter Reynaldo López from Tuesday&#8217;s game at Washington after one inning due to right-shoulder tightness.`\
+https://nytimes.com/athletic/5759396/2024/09/10/braves-reynaldo-lopez-injury/
+
+**Lawyer Wins Democratic Primary in New Hampshire’s Second District**\
+`Maggie Goodlander, who has deep Washington ties, edged out Colin Van Ostern, who unsuccessfully ran for New Hampshire governor in 2016.`\
+https://nytimes.com/2024/09/10/us/goodlander-new-hampshire-primary.html
+
 **Transgender Lawmaker Wins Democratic Primary for Delaware’s Only House Seat**\
 `Sarah McBride, a Delaware state senator, is favored to win in November. She would become the first openly transgender member of Congress.`\
 https://nytimes.com/2024/09/10/us/transgender-lawmaker-wins-democratic-primary-for-delawares-only-house-seat.html
