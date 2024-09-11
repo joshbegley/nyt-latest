@@ -1,3 +1,15 @@
+**Is Donald Trump Too Emotional for This?**\
+`Kamala Harris sought to rattle Trump — and flip a gender dynamic on its head.`\
+https://nytimes.com/2024/09/11/us/politics/trump-debate-emotions.html
+
+**49ers' Christian McCaffrey on his injury and mindset: 'My mentality is I'm playing'**\
+`McCaffrey said he sees his decision as a "chess move" that will benefit him and the 49ers for the rest of the season.`\
+https://nytimes.com/athletic/5761285/2024/09/11/christian-mccaffrey-49ers-injury-status-vikings/
+
+**French Ship That Sank in 1856 Disaster Is Found Off Massachusetts Coast**\
+`Le Lyonnais was discovered in the Atlantic Ocean about 140 miles east of Nantucket, Mass. More than 100 died after the French passenger steamship sank.`\
+https://nytimes.com/2024/09/11/us/le-lyonnais-shipwreck-found-massachusetts.html
+
 **Is Donald Trump Too Emotional For This?**\
 `Kamala Harris sought to rattle Trump — and flip a gender dynamic on its head.`\
 https://nytimes.com/2024/09/11/us/politics/trump-debate-emotions.html
