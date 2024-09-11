@@ -1,3 +1,7 @@
+**One of Trump’s Insidious Lies on Abortion Is Grounded in an Old Truth**\
+`Yes, there were once a few liberals who criticized Roe, but that still doesn’t support his claim.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/one-of-trumps-insidious-lies-on-abortion-is-grounded-in-an-old-truth
+
 **This Louisiana gas station is always open. Francine is forcing it to close.**\
 `By Jacey Fortin`\
 https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/this-louisiana-gas-station-is-always-open-francine-is-forcing-it-to-close
@@ -29,8 +33,4 @@ https://nytimes.com/2024/09/11/world/europe/mont-blanc-climber-deaths.html
 **Trump’s Alternative for Obamacare Is Now Just ‘Concepts of a Plan’**\
 `Former President Donald J. Trump once promised to replace Obamacare with “something terrific.” But as the 2010 law has become more popular, he has sounded less confident about a repeal.`\
 https://nytimes.com/2024/09/11/us/politics/trump-obamacare.html
-
-**A Rock Star’s Mystery Baby Offers a Lesson in Crisis Communication**\
-`The timing and content of Dave Grohl’s admission that he had a child outside his marriage was complimented for addressing the issue and relying on short memories.`\
-https://nytimes.com/2024/09/11/style/dave-grohl-daughter-instagram.html
 

@@ -1,3 +1,7 @@
+**One of Trump’s Insidious Lies on Abortion Is Grounded in an Old Truth**\
+`Yes, there were once a few liberals who criticized Roe, but that still doesn’t support his claim.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/one-of-trumps-insidious-lies-on-abortion-is-grounded-in-an-old-truth
+
 **This Louisiana gas station is always open. Francine is forcing it to close.**\
 `By Jacey Fortin`\
 https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/this-louisiana-gas-station-is-always-open-francine-is-forcing-it-to-close
