@@ -1,3 +1,11 @@
+**Rep. Joe Wilson Is Hospitalized**\
+`Mr. Wilson, 77, a Republican running for re-election in South Carolina, “experienced stroke-like symptoms,” his son said.`\
+https://nytimes.com/2024/09/10/us/politics/joe-wilson-republican-collapse.html
+
+**“This business about taking everyone’s guns away — Tim Walz and I are both gun owners.”**\
+`By Shawn Hubler`\
+https://nytimes.com/2024/09/10/us/politics/taking-everyones-guns-away-tim-walz-and-i-are-both-gun-owners.html
+
 **“Over the last four years, we have invested $1 trillion in a clean energy economy.”**\
 `By Andrew Duehren`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/over-the-last-four-years-we-have-invested-1-trillion-in-a-clean-energy-economy
