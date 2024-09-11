@@ -1,3 +1,7 @@
+**For Wendell Pierce and Courtney B. Vance, James Earl Jones Loomed Large**\
+`The two actors talk about how the stage and screen great was a one-of-a-kind inspiration to them, and many others.`\
+https://nytimes.com/2024/09/11/theater/james-earl-jones-wendell-pierce-courtney-vance.html
+
 **How to Stay Safe When the Power Goes Out**\
 `Improper use of portable generators carries several risks, including carbon monoxide poisoning.`\
 https://nytimes.com/2024/09/11/weather/hurricane-francine-power-generator.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5712255/2024/09/11/usmnt-pochettino-winners-losers/
 **Juilliard Receives $20 Million to Unite Disciplines and Support Jazz**\
 `The donations, from John and Jody Arnhold, will expand creative work across disciplines, help pay for an annual fall festival and support the jazz program.`\
 https://nytimes.com/2024/09/11/arts/music/juilliard-20-million-gift.html
-
-**Second-half surgers: Jackson Merrill, Sean Manaea and more red-hot targets for fantasy baseball 2025**\
-`Michael Salfino looks at players who have caught fire down the stretch of 2024 and primed for carrying that momentum into the 2025 season.`\
-https://nytimes.com/athletic/5760360/2024/09/11/fantasy-baseball-second-half-surgers-2025-targets/
 

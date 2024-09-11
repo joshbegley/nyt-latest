@@ -1,3 +1,7 @@
+**For Wendell Pierce and Courtney B. Vance, James Earl Jones Loomed Large**\
+`The two actors talk about how the stage and screen great was a one-of-a-kind inspiration to them, and many others.`\
+https://nytimes.com/2024/09/11/theater/james-earl-jones-wendell-pierce-courtney-vance.html
+
 **How to Stay Safe When the Power Goes Out**\
 `Improper use of portable generators carries several risks, including carbon monoxide poisoning.`\
 https://nytimes.com/2024/09/11/weather/hurricane-francine-power-generator.html
