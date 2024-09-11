@@ -1,3 +1,11 @@
+**What Thomas Saggese's call-up means for the Cardinals' end-of-season plans**\
+`Victor Scott II optioned to Triple-A to make way for the outfield prospect: "We need an extra infielder here is the bottom line."`\
+https://nytimes.com/athletic/5759057/2024/09/10/cardinals-thomas-saggese-victor-scott/
+
+**How to Diminish a Former President**\
+`In the end, only a woman could do that for us.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/harris-trump-debate-gender
+
 **Debate Fact Check: Harris and Trump on the Economy, Immigration and Abortion**\
 `The 2024 presidential candidates clashed on their records and their visions for the country’s future in a high-stakes debate.`\
 https://nytimes.com/live/2024/09/10/us/debate-trump-harris-fact-check
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/10/us/debate-trump-harris-fact-check/he-lost-ma
 **“I had a choice to make” on Obamacare. “Do I save it and make it as good as it can be? Or do I let it rot? And I saved it. I did the right thing.”**\
 `By Sheryl Gay Stolberg`\
 https://nytimes.com/live/2024/09/10/us/debate-trump-harris-fact-check/i-had-a-choice-to-make-on-obamacare-do-i-save-it-and-make-it-as-good-as-it-can-be-or-do-i-let-it-rot-and-i-saved-it-i-did-the-ri
-
-**WNBA players, WNBPA say Engelbert's comments on Clark-Reese rivalry a 'fumble'**\
-`The WNBA has seen a surge in interest this season, with Clark and Reese participating in the most-watched game in over 20 years.`\
-https://nytimes.com/athletic/5759461/2024/09/10/wnba-wnbpa-cathy-engelbert-comments/
-
-**Over 90 Minutes, Trump Descended to His True Self**\
-`He fell right into the traps Harris set for him.`\
-https://nytimes.com/2024/09/03/opinion/trump-debate-lies.html
 
