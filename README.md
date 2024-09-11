@@ -1,3 +1,7 @@
+**If Football Were Treated Like Inflation**\
+`It’s better to focus on the most recent price changes, not a year’s worth.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/inflation-numbers-annual
+
 **Harris vs. Trump: Assessing a Fierce Debate**\
 `Readers analyze the candidates’ performances, the moderators, the likely impact and claims of pet-eating.`\
 https://nytimes.com/2024/09/11/opinion/letters/harris-trump-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/americas/100000009685869/judicial-overhaul-mexic
 **Browns' Njoku, Cowboys' Ferguson week to week with injuries**\
 `Both players left with injuries during the second half of the Cowboys' win over the Browns on Sunday.`\
 https://nytimes.com/athletic/5756351/2024/09/11/david-njoku-jake-ferguson-browns-cowboys-injury/
-
-**This hurricane season was expected to be busy.**\
-`By Judson Jones`\
-https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/this-hurricane-season-was-expected-to-be-busy
 
