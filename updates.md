@@ -1,3 +1,11 @@
+**Harris Reveled in Her Debate Reviews**\
+`Also, Hurricane Francine is pelting southern Louisiana. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/09/11/briefing/harris-trump-debate-aftermath-russia-ukraine.html
+
+**OpenAI in Fund-Raising Talks That Could Value Company at $150 Billion**\
+`The San Francisco start-up hopes to raise $6.5 billion as part of an aggressive push for more investment.`\
+https://nytimes.com/2024/09/11/technology/openai-fund-raising-valuation.html
+
 **England’s Health Service Is in Deep Trouble, Report Finds**\
 `A government-commissioned review into the National Health Service laid bare the challenge Prime Minister Keir Starmer faces after years of underinvestment.`\
 https://nytimes.com/2024/09/11/world/europe/nhs-starmer-darzi-report.html

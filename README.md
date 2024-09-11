@@ -1,3 +1,7 @@
+**Prison Where Capote Interviewed Killers for ‘In Cold Blood’ Will Open to Tourists**\
+`The historical society in Lansing, Kan., hopes to attract visitors to the city of about 11,000 residents by welcoming visitors to the former Kansas State Penitentiary.`\
+https://nytimes.com/2024/09/11/us/truman-capote-in-cold-blood-kansas-prison.html
+
 **Harris Reveled in Her Debate Reviews**\
 `Also, Hurricane Francine is pelting southern Louisiana. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2024/09/11/briefing/harris-trump-debate-aftermath-russia-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5734497/2024/09/11/white-sox-watch-most-losses-seas
 **In New Orleans, Streets Turn Quiet as Water Builds Ahead of Francine’s Landfall**\
 `As Francine, a Category 1 hurricane, barreled toward Louisiana, many residents stayed indoors, concerned about potential flooding and power outages.`\
 https://nytimes.com/2024/09/11/weather/new-orleans-hurricane-francine.html
-
-**Why a YouTuber’s Drastic Weight Loss Went Viral**\
-`Nikocado Avocado, a popular vlogger known for his mukbang videos, said he spent the last two years plotting the reveal.`\
-https://nytimes.com/2024/09/11/style/nikocado-avocado-youtuber-weight-loss.html
 

@@ -1,3 +1,11 @@
+**Harris Reveled in Her Debate Reviews**\
+`Also, Hurricane Francine is pelting southern Louisiana. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2024/09/11/briefing/harris-trump-debate-aftermath-russia-ukraine.html
+
+**OpenAI in Fund-Raising Talks That Could Value Company at $150 Billion**\
+`The San Francisco start-up hopes to raise $6.5 billion as part of an aggressive push for more investment.`\
+https://nytimes.com/2024/09/11/technology/openai-fund-raising-valuation.html
+
 **England’s Health Service Is in Deep Trouble, Report Finds**\
 `A government-commissioned review into the National Health Service laid bare the challenge Prime Minister Keir Starmer faces after years of underinvestment.`\
 https://nytimes.com/2024/09/11/world/europe/nhs-starmer-darzi-report.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/11/weather/new-orleans-hurricane-francine.html
 **Why a YouTuber’s Drastic Weight Loss Went Viral**\
 `Nikocado Avocado, a popular vlogger known for his mukbang videos, said he spent the last two years plotting the reveal.`\
 https://nytimes.com/2024/09/11/style/nikocado-avocado-youtuber-weight-loss.html
-
-**A Debate Recap With Song, Dance and Joseph Gordon-Levitt**\
-`The debate analysis you didn’t know you needed.`\
-https://nytimes.com/2024/09/11/opinion/trump-harris-debate-joseph-gordon-levitt.html
-
-**A Debate Recap With Song, Dance and Joseph Gordon-Levitt**\
-`The debate analysis you didn’t know you needed.`\
-https://nytimes.com/video/opinion/100000009683757/trump-harris-debate-joseph-gordon-levitt.html
 
