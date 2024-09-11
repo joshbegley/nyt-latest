@@ -1,3 +1,7 @@
+**Quote of the Day: Amid Bombs, Nail Salons Can Soothe a Country**\
+`Quotation of the Day for Wednesday, September 11, 2024.`\
+https://nytimes.com/2024/09/10/pageoneplus/quote-of-the-day-amid-bombs-nail-salons-can-soothe-a-country.html
+
 **What Thomas Saggese's call-up means for the Cardinals' end-of-season plans**\
 `Victor Scott II optioned to Triple-A to make way for the outfield prospect: "We need an extra infielder here is the bottom line."`\
 https://nytimes.com/athletic/5759057/2024/09/10/cardinals-thomas-saggese-victor-scott/

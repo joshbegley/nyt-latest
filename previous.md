@@ -1,3 +1,7 @@
+**Quote of the Day: Amid Bombs, Nail Salons Can Soothe a Country**\
+`Quotation of the Day for Wednesday, September 11, 2024.`\
+https://nytimes.com/2024/09/10/pageoneplus/quote-of-the-day-amid-bombs-nail-salons-can-soothe-a-country.html
+
 **What Thomas Saggese's call-up means for the Cardinals' end-of-season plans**\
 `Victor Scott II optioned to Triple-A to make way for the outfield prospect: "We need an extra infielder here is the bottom line."`\
 https://nytimes.com/athletic/5759057/2024/09/10/cardinals-thomas-saggese-victor-scott/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/10/us/politics/taylor-swift-endorses-kamala-harris.h
 **“He lost manufacturing jobs.”**\
 `By Jim Tankersley`\
 https://nytimes.com/live/2024/09/10/us/debate-trump-harris-fact-check/he-lost-manufacturing-jobs
-
-**“I had a choice to make” on Obamacare. “Do I save it and make it as good as it can be? Or do I let it rot? And I saved it. I did the right thing.”**\
-`By Sheryl Gay Stolberg`\
-https://nytimes.com/live/2024/09/10/us/debate-trump-harris-fact-check/i-had-a-choice-to-make-on-obamacare-do-i-save-it-and-make-it-as-good-as-it-can-be-or-do-i-let-it-rot-and-i-saved-it-i-did-the-ri
 
