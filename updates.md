@@ -1,3 +1,15 @@
+**Johnson Scraps Vote on Spending Extension Amid Bipartisan Resistance**\
+`The scuttling of the six-month stopgap measure, which includes a requirement to show proof of U.S. citizenship when registering to vote, sets back Republicans’ plan to avert a government shutdown.`\
+https://nytimes.com/2024/09/11/us/politics/congress-spending-bill.html
+
+**The Chatbot Will See You Now**\
+`Americans are already turning to A.I. for health information in large numbers, new research suggests.`\
+https://nytimes.com/2024/09/11/health/chatbots-health-diagnosis-treatments.html
+
+**Live From San Francisco: Mark Zuckerberg Tapes a Podcast With 6,000 Friends**\
+`Mr. Zuckerberg talked success to a packed house Tuesday night for the “Acquired” podcast. It’s a sign of how tech titans reach the public now.`\
+https://nytimes.com/2024/09/11/technology/mark-zuckerberg-podcast-acquired.html
+
 **Kamala Harris Produced the Show She Wanted**\
 `In Tuesday’s debate, the vice president made herself the studio audience for a cringe comedy starring her opponent.`\
 https://nytimes.com/2024/09/11/arts/television/kamala-harris-donald-trump-debate.html
