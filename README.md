@@ -10,7 +10,7 @@ https://nytimes.com/2024/09/11/world/americas/mexico-judiciary-overhaul.html
 `Calmly and firmly, Linsey Davis and David Muir pursued the kind of real-time fact-checking missing from many previous debates.`\
 https://nytimes.com/2024/09/11/business/media/debate-moderators-trump-harris.html
 
-**Mexico’s Judicial Overhaul Overcomes Its Biggest Obstacle: the Senate**\
+**Mexico’s Judicial Overhaul Overcomes Its Biggest Obstacle: The Senate**\
 `The Senate’s approval cleared away the last major obstacle to the sweeping proposals championed by the president, which have prompted nationwide strikes.`\
 https://nytimes.com/2024/09/11/world/americas/mexico-judical-overhaul-senate-vote.html
 
