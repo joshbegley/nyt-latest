@@ -1,3 +1,11 @@
+**On Abortion, Trump Floundered in Fantasy Land**\
+`Abortion bans are a losing issue for Republicans.`\
+https://nytimes.com/live/2024/09/03/opinion/thepoint/harris-trump-debate-abortion
+
+**“Putin endorsed her last week, said, ‘I hope she wins.’”**\
+`By Julian E. Barnes`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/putin-endorsed-her-last-week-said-i-hope-she-wins
+
 **“Crime here is up and through the roof.”**\
 `By Zolan Kanno-Youngs`\
 https://nytimes.com/live/2024/09/10/us/harris-trump-debate/crime-here-is-up-and-through-the-roof
