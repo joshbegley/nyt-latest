@@ -1,3 +1,7 @@
+**Harris vs. Trump: Assessing a Fierce Debate**\
+`Readers analyze the candidates’ performances, the moderators, the likely impact and claims of pet-eating.`\
+https://nytimes.com/2024/09/11/opinion/letters/harris-trump-debate.html
+
 **Democratic Swifties are ecstatic (even in a swing state where she didn’t tour).**\
 `By Eduardo Medina`\
 https://nytimes.com/live/2024/09/11/us/harris-trump-debate-election/democratic-swifties-are-ecstatic-even-in-a-swing-state-where-she-didnt-tour
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5756351/2024/09/11/david-njoku-jake-ferguson-browns
 **This hurricane season was expected to be busy.**\
 `By Judson Jones`\
 https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/this-hurricane-season-was-expected-to-be-busy
-
-**Harris Put Trump on Defense at the Presidential Debate**\
-`Vice President Kamala Harris baited traps for Donald J.`\
-https://nytimes.com/video/us/elections/100000009685589/harris-put-trump-on-defense-at-the-presidential-debate.html
 
