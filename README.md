@@ -1,3 +1,7 @@
+**Prices Continue to Be a Key Campaign Issue**\
+`The latest report is unlikely to change the overall narrative as Republicans hammer the case home to voters.`\
+https://nytimes.com/live/2024/09/11/business/cpi-inflation-fed/prices-continue-to-be-a-key-campaign-issue
+
 **Will There Be Another Debate? Trump Isn’t Sure.**\
 `The former president suggested immediately after the debate and in a call-in to Fox News on Wednesday morning that he was not inclined to agree to another.`\
 https://nytimes.com/2024/09/11/us/politics/trump-harris-second-presidential-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/style/harris-trump-debate-style-suits.html
 **Shota Imanaga can star in the next hype videos the Cubs make for free agents**\
 `Videos sharing perspectives from players and staffers are part of the organization’s established recruiting philosophy.`\
 https://nytimes.com/athletic/5759696/2024/09/11/shota-imanaga-cubs-hype-videos/
-
-**Food price gains moderated in August.**\
-`By Madeleine Ngo`\
-https://nytimes.com/live/2024/09/11/business/cpi-inflation-fed/food-price-gains-moderated-in-august
 
