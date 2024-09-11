@@ -1,3 +1,11 @@
+**“Over the last four years, we have invested $1 trillion in a clean energy economy.”**\
+`By Andrew Duehren`\
+https://nytimes.com/live/2024/09/10/us/harris-trump-debate/over-the-last-four-years-we-have-invested-1-trillion-in-a-clean-energy-economy
+
+**Keider Montero throws a Maddux, and the Tigers' good vibes roll on**\
+`As the Tigers look to complete the most unlikely of runs, they keep finding heroes in the most unlikely of places.`\
+https://nytimes.com/athletic/5759447/2024/09/10/tigers-keider-montero-maddux-complete-game/
+
 **“This business about taking everyone’s guns away — Tim Walz and I are both gun owners.”**\
 `By Shawn Hubler`\
 https://nytimes.com/2024/09/10/us/politics/taking-everyones-guns-away-tim-walz-and-i-are-both-gun-owners.html
