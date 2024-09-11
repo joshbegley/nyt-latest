@@ -1,3 +1,7 @@
+**Why Zach Frazier's steady presence is critical for a Steelers' OL in transition**\
+`While the Steelers' offensive line goes through constant changes to start the season, a rookie center becomes the mainstay.`\
+https://nytimes.com/athletic/5761160/2024/09/11/pittsburgh-steelers-zach-frazier-offensive-lines/
+
 **White Sox owner Jerry Reinsdorf on woeful season: ‘This year has been very painful for all’**\
 `The White Sox have 15 games left, and they must win 10 to avoid joining the 120-loss New York Mets of 1962 as the worst team of all time.`\
 https://nytimes.com/athletic/5761314/2024/09/11/white-sox-jerry-reinsdorf-losing-season/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/opinion/ezra-klein-podcast-debate-react.html
 **Six U.N. employees are among dozens of people killed in Israeli airstrikes across Gaza.**\
 `By Anushka Patil`\
 https://nytimes.com/live/2024/09/11/world/israel-hamas-gaza-war/six-un-employees-are-among-dozens-of-people-killed-in-israeli-airstrikes-across-gaza
-
-**Blue Jays' Francis loses no-no in 9th on Lindor's HR**\
-`This is the second time in one month that Toronto's Bowden Francis carried a no-hitter into the ninth and lost it on a leadoff homer.`\
-https://nytimes.com/athletic/5761086/2024/09/11/bowden-francis-francisco-lindor-mets-blue-jays/
 
