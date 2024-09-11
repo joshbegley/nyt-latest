@@ -1,3 +1,7 @@
+**Ravens LB Kyle Van Noy calls Chiefs training staff 'unprofessional'**\
+`Van Noy said he sustained a fractured orbital bone and needed to see an ophthalmologist but was left waiting in the locker room.`\
+https://nytimes.com/athletic/5760541/2024/09/11/ravens-kyle-van-noy-chiefs-training-staff/
+
 **For those riding out the storm, there were many reasons to stay.**\
 `By Marie Elizabeth Oliver, Jacey Fortin and Natalie McLendon`\
 https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/for-those-riding-out-the-storm-there-were-many-reasons-to-stay
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/climate
 **Edward Johnson, C.I.A. Hero in Iran Hostage Crisis, Dies at 81**\
 `He was a secret partner who helped rescue six American diplomats in 1980 by passing them off as a film crew. The caper inspired the movie “Argo.”`\
 https://nytimes.com/2024/09/11/us/edward-johnson-dead.html
-
-**Deshaun Watson to play vs. Jaguars on Sunday**\
-`A woman filed a lawsuit against Watson on Monday accusing him of sexual assault and battery.`\
-https://nytimes.com/athletic/5760495/2024/09/11/deshaun-watson-sexual-assault-browns-jaguars/
 

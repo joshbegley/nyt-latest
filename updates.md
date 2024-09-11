@@ -1,3 +1,7 @@
+**Ravens LB Kyle Van Noy calls Chiefs training staff 'unprofessional'**\
+`Van Noy said he sustained a fractured orbital bone and needed to see an ophthalmologist but was left waiting in the locker room.`\
+https://nytimes.com/athletic/5760541/2024/09/11/ravens-kyle-van-noy-chiefs-training-staff/
+
 **For those riding out the storm, there were many reasons to stay.**\
 `By Marie Elizabeth Oliver, Jacey Fortin and Natalie McLendon`\
 https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/for-those-riding-out-the-storm-there-were-many-reasons-to-stay
