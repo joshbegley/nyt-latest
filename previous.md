@@ -1,6 +1,14 @@
+**Danity Kane Singer Sues Sean Combs, Alleging Threats and Groping**\
+`Dawn Richard, a member of groups assembled by Mr. Combs, says in the suit that she saw the rap mogul choke his former girlfriend, Cassie. Mr. Combs has not yet responded.`\
+https://nytimes.com/2024/09/11/arts/music/dawn-richard-danity-kane-lawsuit-sean-combs-diddy.html
+
 **Judicial Overhaul Proposal Passes Mexico’s Senate Amid Protests**\
 `A controversial proposal allowing voters to elect judges is expected to be approved as it heads to state legislatures.`\
 https://nytimes.com/video/world/americas/100000009685869/judicial-overhaul-mexico-senate-protests.html
+
+**Browns' Njoku, Cowboys' Ferguson week to week with injuries**\
+`Both players left with injuries during the second half of the Cowboys' win over the Browns on Sunday.`\
+https://nytimes.com/athletic/5756351/2024/09/11/david-njoku-jake-ferguson-browns-cowboys-injury/
 
 **This hurricane season was expected to be busy.**\
 `By Judson Jones`\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/theres-
 **Johnson Scraps Vote on Spending Extension Amid Bipartisan Resistance**\
 `The scuttling of the six-month stopgap measure, which includes a requirement to show proof of U.S. citizenship when registering to vote, sets back Republicans’ plan to avert a government shutdown.`\
 https://nytimes.com/2024/09/11/us/politics/congress-spending-bill.html
-
-**The Chatbot Will See You Now**\
-`Americans are already turning to A.I. for health information in large numbers, new research suggests.`\
-https://nytimes.com/2024/09/11/health/chatbots-health-diagnosis-treatments.html
-
-**Kamala Harris Produced the Show She Wanted**\
-`In Tuesday’s debate, the vice president made herself the studio audience for a cringe comedy starring her opponent.`\
-https://nytimes.com/2024/09/11/arts/television/kamala-harris-donald-trump-debate.html
 

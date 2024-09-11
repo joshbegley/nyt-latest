@@ -1,3 +1,11 @@
+**Danity Kane Singer Sues Sean Combs, Alleging Threats and Groping**\
+`Dawn Richard, a member of groups assembled by Mr. Combs, says in the suit that she saw the rap mogul choke his former girlfriend, Cassie. Mr. Combs has not yet responded.`\
+https://nytimes.com/2024/09/11/arts/music/dawn-richard-danity-kane-lawsuit-sean-combs-diddy.html
+
+**Browns' Njoku, Cowboys' Ferguson week to week with injuries**\
+`Both players left with injuries during the second half of the Cowboys' win over the Browns on Sunday.`\
+https://nytimes.com/athletic/5756351/2024/09/11/david-njoku-jake-ferguson-browns-cowboys-injury/
+
 **Judicial Overhaul Proposal Passes Mexico’s Senate Amid Protests**\
 `A controversial proposal allowing voters to elect judges is expected to be approved as it heads to state legislatures.`\
 https://nytimes.com/video/world/americas/100000009685869/judicial-overhaul-mexico-senate-protests.html
