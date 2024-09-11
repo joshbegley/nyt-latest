@@ -1,3 +1,7 @@
+**Will There Be Another Debate? Trump Isn’t Sure.**\
+`The former president suggested immediately after the debate and in a call-in to Fox News on Wednesday morning that he was not inclined to agree to another.`\
+https://nytimes.com/2024/09/11/us/politics/trump-harris-second-presidential-debate.html
+
 **Actually, Europe Is Doing a Lot for Ukraine**\
 `Trump’s claim that European allies aren’t doing their fair share is false.`\
 https://nytimes.com/live/2024/09/03/opinion/thepoint/krugman-trump-ukraine-europe
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5759696/2024/09/11/shota-imanaga-cubs-hype-videos/
 **Food price gains moderated in August.**\
 `By Madeleine Ngo`\
 https://nytimes.com/live/2024/09/11/business/cpi-inflation-fed/food-price-gains-moderated-in-august
-
-**Giants takeaways: Birthday wishes for Marco Luciano, Landon Roupp and more**\
-`Here are some presents that could help four Giants in their quests to be productive major leaguers who contribute to the team's success.`\
-https://nytimes.com/athletic/5759671/2024/09/11/giants-takeaways-marco-luciano-landon-roupp/
 
