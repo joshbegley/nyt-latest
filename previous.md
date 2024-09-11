@@ -1,40 +1,40 @@
-**Quote of the Day: Amid Bombs, Nail Salons Can Soothe a Country**\
-`Quotation of the Day for Wednesday, September 11, 2024.`\
-https://nytimes.com/2024/09/10/pageoneplus/quote-of-the-day-amid-bombs-nail-salons-can-soothe-a-country.html
+**Kutter Crawford makes 30th start, but Red Sox offense falters once again**\
+`After scoring 12 runs on Monday, the Red Sox weren’t able to sustain that momentum offensively, wasting a quality Crawford start.`\
+https://nytimes.com/athletic/5759526/2024/09/11/red-sox-kutter-crawford-30-starts/
 
-**What Thomas Saggese's call-up means for the Cardinals' end-of-season plans**\
-`Victor Scott II optioned to Triple-A to make way for the outfield prospect: "We need an extra infielder here is the bottom line."`\
-https://nytimes.com/athletic/5759057/2024/09/10/cardinals-thomas-saggese-victor-scott/
+**Yankees' postseason pitching plans: Two pitchers who should be in peril**\
+`There are likely 11 pitchers with guaranteed spots on the postseason roster, however, who lands the final two spots is up for debate.`\
+https://nytimes.com/athletic/5758903/2024/09/11/yankees-postseason-pitching-plans/
 
-**How to Diminish a Former President**\
-`In the end, only a woman could do that for us.`\
-https://nytimes.com/live/2024/09/03/opinion/thepoint/harris-trump-debate-gender
+**Corrections: Sept. 11, 2024**\
+`Corrections that appeared in print on Wednesday, Sept. 11, 2024.`\
+https://nytimes.com/2024/09/11/pageoneplus/corrections-sept-11-2024.html
 
-**Debate Fact Check: Harris and Trump on the Economy, Immigration and Abortion**\
-`The 2024 presidential candidates clashed on their records and their visions for the country’s future in a high-stakes debate.`\
-https://nytimes.com/live/2024/09/10/us/debate-trump-harris-fact-check
+**Wednesday Briefing**\
+`A contentious U.S. presidential debate.`\
+https://nytimes.com/2024/09/11/briefing/trump-harris-debate.html
 
-**Manny Machado sets Padres' all-time home run record with 164th blast**\
-`Machado swung his way into San Diego Padres history Tuesday with his two-run shot at T-Mobile Park. `\
-https://nytimes.com/athletic/5759535/2024/09/10/manny-machado-all-time-padres-home-run-leader/
+**Lucy Bronze: 'It took me 30 seconds to decide to join Chelsea. They've got everything here'**\
+`'I wanted to win the Champions League with an English team and Chelsea are the best team to do that with.' Lucy Bronze on her latest move`\
+https://nytimes.com/athletic/5758715/2024/09/11/lucy-bronze-chelsea-interview/
 
-**Rep. Joe Wilson Is Hospitalized**\
-`Mr. Wilson, 77, a Republican running for re-election in South Carolina, “experienced stroke-like symptoms,” his son said.`\
-https://nytimes.com/2024/09/10/us/politics/joe-wilson-republican-collapse.html
+**How Russia’s Steady Advance Threatens Ukraine’s East**\
+`Russia is getting closer to cutting critical supply lines for troops in the remaining Ukrainian strongholds across the region.`\
+https://nytimes.com/interactive/2024/09/11/world/europe/russia-pokrovsk-advance.html
 
-**“This business about taking everyone’s guns away — Tim Walz and I are both gun owners.”**\
-`By Shawn Hubler`\
-https://nytimes.com/2024/09/10/us/politics/taking-everyones-guns-away-tim-walz-and-i-are-both-gun-owners.html
+**Cholera Deaths Soar Worldwide Despite Being Easily Preventable**\
+`Fatalities spiked 71 percent last year, far outpacing the 13 percent rise in cases, the World Health Organization said.`\
+https://nytimes.com/2024/09/11/health/cholera-deaths-cases.html
 
-**Yes, Kamala Harris Owns a Handgun**\
-`In rebutting a claim from former President Donald J. Trump during their debate, the vice president asserted that she owned a gun, adding, “We’re not taking anybody’s guns away.”`\
-https://nytimes.com/2024/09/10/us/politics/kamala-harris-gun.html
+**Family of American Woman Held in China for 10 Years Asks for Help**\
+`Dawn Michelle Hunt, who is serving a life sentence, says she was duped into carrying drugs. Her family says she is seriously ill and should be sent home.`\
+https://nytimes.com/2024/09/11/world/asia/china-us-woman-imprisoned.html
 
-**Taylor Swift Endorses Kamala Harris**\
-`In a post on Instagram, the pop superstar said the evening’s debate convinced her to weigh in publicly.`\
-https://nytimes.com/2024/09/10/us/politics/taylor-swift-endorses-kamala-harris.html
+**Wednesday's MLB odds, best bets: Projections for pitching matchups, playoffs and more**\
+`See pitching matchups, playoff projections, win projections and more for Wednesday's MLB games.`\
+https://nytimes.com/athletic/5758852/2024/09/11/mlb-odds-best-bets-projections-september-11/
 
-**“He lost manufacturing jobs.”**\
-`By Jim Tankersley`\
-https://nytimes.com/live/2024/09/10/us/debate-trump-harris-fact-check/he-lost-manufacturing-jobs
+**Fantasy football rankings Week 2: Sleepers, projections, starts, sits**\
+`Jake Ciely offers up his Week 2 fantasy football player rankings, along with sleepers and need-to-knows for each matchup.`\
+https://nytimes.com/athletic/5759303/2024/09/11/fantasy-football-rankings-week-2-sleepers-projections-starts-sits-2/
 
