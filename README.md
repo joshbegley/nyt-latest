@@ -1,3 +1,19 @@
+**How Climate Change Is Transforming Hurricanes**\
+`Scientists are confident that the warming of the planet is affecting how storms behave.`\
+https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/climate-change-hurricanes
+
+**Edward Johnson, C.I.A. Hero in Iran Hostage Crisis, Dies at 81**\
+`He was a secret partner who helped rescue six American diplomats in 1980 by passing them off as a film crew. The caper inspired the movie “Argo.”`\
+https://nytimes.com/2024/09/11/us/edward-johnson-dead.html
+
+**Deshaun Watson to play vs. Jaguars on Sunday**\
+`A woman filed a lawsuit against Watson on Monday accusing him of sexual assault and battery.`\
+https://nytimes.com/athletic/5760495/2024/09/11/deshaun-watson-sexual-assault-browns-jaguars/
+
+**‘There’s a storm coming?’ A Mississippi casino braces for Francine, but patrons are still rolling the dice.**\
+`By Isabelle Taft`\
+https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/theres-a-storm-coming-a-mississippi-casino-braces-for-francine-but-patrons-are-still-rolling-the-dice
+
 **Johnson Scraps Vote on Spending Extension Amid Bipartisan Resistance**\
 `The scuttling of the six-month stopgap measure, which includes a requirement to show proof of U.S. citizenship when registering to vote, sets back Republicans’ plan to avert a government shutdown.`\
 https://nytimes.com/2024/09/11/us/politics/congress-spending-bill.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/11/theater/james-earl-jones-wendell-pierce-courtney-
 **How to Stay Safe When the Power Goes Out**\
 `Improper use of portable generators carries several risks, including carbon monoxide poisoning.`\
 https://nytimes.com/2024/09/11/weather/hurricane-francine-power-generator.html
-
-**Sabres mailbag, part 1: Eichel's comments, Pegula's patience, Savoie trade, next captain and more**\
-`Is Rasmus Dahlin being named captain a foregone conclusion?`\
-https://nytimes.com/athletic/5760170/2024/09/11/sabres-eichel-savoie-trade/
-
-**‘It’s Still Overwhelming’: Mourners Across New York City Remember 9/11**\
-`Commemorations for those killed in the attacks 23 years ago took place throughout the city, with politicians joining those assembled at ground zero.`\
-https://nytimes.com/2024/09/11/nyregion/sept-11-memorial-nyc.html
-
-**Greener Steel at Britain’s Largest Plant Comes With Heavy Job Losses**\
-`The British government and Tata of India said they would invest 1.25 billion pounds in a plan to convert the steel mill at Port Talbot in Wales to an electric furnace.`\
-https://nytimes.com/2024/09/11/business/steel-britain.html
-
-**Live From San Francisco: Mark Zuckerberg Tapes a Podcast With 6,000 Friends**\
-`Mr. Zuckerberg talked success to a packed house Tuesday night for the “Acquired” podcast. It’s a sign of how tech titans reach the public now.`\
-https://nytimes.com/2024/09/11/technology/mark-zuckerberg-podcast-acquired.html
 
