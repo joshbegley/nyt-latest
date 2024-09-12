@@ -1,3 +1,7 @@
+**La Grenouille, Vestige of New York’s Old-School French Dining, Will Close**\
+`Six decades after its birth as an elegant refuge for Manhattan’s elite, the Midtown restaurant says ‘adieu’ this week.`\
+https://nytimes.com/2024/09/12/dining/la-grenouille-closing-nyc.html
+
 **Pro Football Hall of Famer Joe Schmidt dies at 92**\
 `Schmidt garnered 10 All-Pro and Pro Bowl distinctions making him a no-brainer choice to land on the 1950s All-Decade Team.`\
 https://nytimes.com/athletic/5763416/2024/09/12/joe-schmidt-lions-obit/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/12/movies/bob-weatherwax-dead.html
 **Emerson: The QB decisions Florida's Billy Napier, Auburn's Hugh Freeze make will say a lot**\
 `What should Florida and Auburn do at quarterback? Those will be intriguing decisions moving forward this season.`\
 https://nytimes.com/athletic/5762963/2024/09/12/auburn-florida-quarterbacks-hugh-freeze-billy-napier-college-football/
-
-**As conference realignment rolls on, is ACC vulnerable or just fine (for now)?**\
-`Two league members actively suing the ACC raises questions about its stability. Here's where the conference actually stands.`\
-https://nytimes.com/athletic/5763270/2024/09/12/acc-conference-realignment-florida-state-clemson-stanford-cal/
 
