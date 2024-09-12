@@ -1,3 +1,7 @@
+**Harris Challenges Trump to Debate Again as She Rallies in North Carolina**\
+`At her first big events since this week’s debate, the vice president said “we owe it to the voters” to have another. Shortly beforehand, Donald Trump had said he would not participate in one.`\
+https://nytimes.com/2024/09/12/us/politics/harris-trump-second-debate.html
+
 **Lloyd: Browns need Deshaun Watson exit strategy fast. And why are they playing him?**\
 `Watson maintained his innocence Wednesday against a sexual assualt allegation and said the team has his back. At this point, it shouldn't.`\
 https://nytimes.com/athletic/5761146/2024/09/12/browns-deshaun-watson-quarterback-lawsuit/
