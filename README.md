@@ -1,3 +1,7 @@
+**Six-foot stilts may not be enough to save a marina on the Louisiana coast.**\
+`By Jacey Fortin`\
+https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/six-foot-stilts-may-not-be-enough-to-save-a-marina-on-the-louisiana-coast
+
 **Riley Greene powers the Tigers in more ways than one: 'He's a magnet'**\
 `One of Greene's greatest contributions, though, may be more unseen. It’s the constant energy and upbeat vibes he brings to the Tigers.`\
 https://nytimes.com/athletic/5761747/2024/09/11/riley-greene-powers-the-detroit-tigers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5761588/2024/09/11/sec-availability-report-georgia-
 **Certification of Election Will Get Extra Security to Try to Prevent Another Capitol Attack**\
 `The Homeland Security Department approved adding federal, state and local resources to help protect the counting of Electoral College votes on Jan. 6, 2025.`\
 https://nytimes.com/2024/09/11/us/politics/electoral-college-certification-security.html
-
-**A Billionaire in Orbit and His Crew Prepare to Walk in Space**\
-`The astronauts of the Polaris Dawn mission, after traveling through heavy radiation and high orbits, are getting ready to open the hatch of their SpaceX vehicle.`\
-https://nytimes.com/2024/09/11/science/spacex-polaris-dawn-astronauts-spacewalk.html
 

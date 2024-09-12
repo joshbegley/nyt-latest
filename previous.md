@@ -10,7 +10,7 @@ https://nytimes.com/athletic/5761551/2024/09/11/shohei-ohtani-career-high-home-r
 `The man, Andrew J. Gallo, 40, of Bristol Township, Pa., a Philadelphia suburb, is accused of raping or sexually assaulting six women he met on dating sites.`\
 https://nytimes.com/2024/09/11/us/andrew-gallo-bucks-county-man-assault.html
 
-**Astros' Jose Altuve day to day after exiting game with right side discomfort**\
+**Astros' Jose Altuve 'not worried' after exiting game with right side discomfort**\
 `The Astros can ill afford to lose Altuve, who appeared to be injured on a swing, with October looming. `\
 https://nytimes.com/athletic/5761683/2024/09/11/astros-jose-altuve-exits-game-right-side-discomfort/
 
