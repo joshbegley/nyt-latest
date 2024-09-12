@@ -1,3 +1,19 @@
+**Which schools could the new Pac-12 target? UNLV, Wyoming, Tulane, Memphis among many**\
+`The conference must get back to at least eight football-playing members by 2026 to meet the NCAA and FBS requirements.`\
+https://nytimes.com/athletic/5763557/2024/09/12/pac-12-candidates-unlv-tulane-wyoming-memphis/
+
+**Hurricane Francine Tells Us a Lot About Storm Seasons to Come**\
+`Even quiet seasons can produce very significant weather events.`\
+https://nytimes.com/live/2024/09/11/opinion/thepoint/hurricane-francine-global-warming
+
+**Scenes From Southern California as Wildfires Persist**\
+`Firefighters struggled to contain three large fires threatening areas including Los Angeles and San Bernardino County.`\
+https://nytimes.com/2024/09/12/us/california-wildfires-photos-video.html
+
+**Residents describe harrowing escapes as fire consumed nearby homes.**\
+`By Vik Jolly`\
+https://nytimes.com/live/2024/09/12/us/california-wildfires-idaho-oregon/big-bear-residents-describe-harrowing-escapes-as-fire-consumed-nearby-homes
+
 **Commanders' Emmanuel Forbes to have surgery on thumb: Source**\
 `Surgery will determine the recovery timeline and whether an injured reserve stint is required.`\
 https://nytimes.com/athletic/5763629/2024/09/12/emmanuel-forbes-commanders-injury/

@@ -1,3 +1,19 @@
+**Which schools could the new Pac-12 target? UNLV, Wyoming, Tulane, Memphis among many**\
+`The conference must get back to at least eight football-playing members by 2026 to meet the NCAA and FBS requirements.`\
+https://nytimes.com/athletic/5763557/2024/09/12/pac-12-candidates-unlv-tulane-wyoming-memphis/
+
+**Hurricane Francine Tells Us a Lot About Storm Seasons to Come**\
+`Even quiet seasons can produce very significant weather events.`\
+https://nytimes.com/live/2024/09/11/opinion/thepoint/hurricane-francine-global-warming
+
+**Scenes From Southern California as Wildfires Persist**\
+`Firefighters struggled to contain three large fires threatening areas including Los Angeles and San Bernardino County.`\
+https://nytimes.com/2024/09/12/us/california-wildfires-photos-video.html
+
+**Residents describe harrowing escapes as fire consumed nearby homes.**\
+`By Vik Jolly`\
+https://nytimes.com/live/2024/09/12/us/california-wildfires-idaho-oregon/big-bear-residents-describe-harrowing-escapes-as-fire-consumed-nearby-homes
+
 **Commanders' Emmanuel Forbes to have surgery on thumb: Source**\
 `Surgery will determine the recovery timeline and whether an injured reserve stint is required.`\
 https://nytimes.com/athletic/5763629/2024/09/12/emmanuel-forbes-commanders-injury/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5763138/2024/09/12/psg-mbappe-wages-dispute/
 **Lando Norris drove a full-sized Lego McLaren P1 around Silverstone**\
 `What happens when an F1 driver attempts to complete a lap in a car made of Lego pieces? `\
 https://nytimes.com/athletic/5763327/2024/09/12/lando-norris-lego-mclaren-p1/
-
-**The Bars With the Best Free Food**\
-`Free hot dogs. Free fried olives. Free truffle popcorn. Did we mention it was free?`\
-https://nytimes.com/2024/09/12/dining/the-bars-with-the-best-free-food.html
-
-**Report Concludes China Broke Rules in Doping Case but Clears WADA**\
-`An investigator hired by the global antidoping regulator found no bias toward China in a case that has outraged Olympic athletes and led to an F.B.I. investigation.`\
-https://nytimes.com/2024/09/12/world/europe/wada-china-doping.html
-
-**Déjà Vu for Mike Johnson as Internal Strife Stalls Spending Plan**\
-`The House speaker faces a choice of cutting a deal with Democrats or bowing to conservatives and Donald Trump and shutting down the government just before the election.`\
-https://nytimes.com/2024/09/12/us/politics/mike-johnson-spending-house.html
-
-**Fall’s Best Boots Are Rugged and Buckled**\
-`Here are our favorite pairs, in a range of prices.`\
-https://nytimes.com/2024/09/12/t-magazine/womens-work-boots-guide.html
 
