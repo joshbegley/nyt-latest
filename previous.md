@@ -1,40 +1,40 @@
-**Here’s the latest on the presidential race.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/09/12/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+**OpenAI Aims for a $150 Billion Valuation**\
+`The ChatGPT maker is closing in on another mega funding round as investors bet the boom in artificial intelligence has plenty of room to grow.`\
+https://nytimes.com/2024/09/12/business/dealbook/openai-valuation-artificial-intelligence.html
 
-**American Activist Killed in West Bank Will Be Buried in Turkey**\
-`The body of Aysenur Ezgi Eygi, a Turkish American dual citizen, was being sent to Turkey for her funeral. Her fatal shooting by Israeli forces has sparked outrage in both countries.`\
-https://nytimes.com/2024/09/12/world/middleeast/west-bank-shooting-turkey-aysenur-ezgi-eygi-burial.html
+**Will the Ducks trade Cam Fowler, what's the possible timing and which teams might be interested?**\
+`Given where Fowler is at in his accomplished career, does a move away from Anaheim make sense?`\
+https://nytimes.com/athletic/5761030/2024/09/12/cam-fowler-trade-ducks/
 
-**Pete Crow-Armstrong is awesome to watch. The Cubs still want to see better**\
-`Crow-Armstrong definitely has some sort of “it factor,” an entertaining mix of energy, joy and swagger.`\
-https://nytimes.com/athletic/5762047/2024/09/12/pete-crow-armstrong-cubs/
+**Explained: The rules for submitting final Premier League squads**\
+`Premier League clubs have to submit their 25-man squads by Saturday - but what are the rules that determine their selections? We explain...`\
+https://nytimes.com/athletic/5758167/2024/09/12/premier-league-squads-submitted-rules/
 
-**The Athletic FC: Mbappe's $60m wages row, Arteta's new deal, which players will Poch favour?**\
-`Today in TAFC: Mbappe's row with PSG over unpaid wages, Arteta signs new Arsenal deal, and who'll benefit from Pochettino taking USMNT job?`\
-https://nytimes.com/athletic/5762143/2024/09/12/mbappes-60m-wages-row-artetas-new-deal-which-players-will-pochettino-favour/
+**Is there a path for Riley Heidt to make the Wild roster? It's complicated**\
+`Heidt said he "100 percent" believes he's ready for the NHL, but he'll have to prove it because rostering him won't be easy.`\
+https://nytimes.com/athletic/5751022/2024/09/12/riley-heidt-wild-roster/
 
-**Gavi returns to training for first time in 10 months after ACL injury**\
-`Barcelona midfielder Gavi has returned to training for the first time in 10 months after injury.`\
-https://nytimes.com/athletic/5762243/2024/09/12/barcelona-gavi-injury-training/
+**NHL monitoring teams' income-tax advantages, but 'there are no easy fixes'**\
+`Some players believe a salary-cap advantage is created based on geography, but is there a solution?`\
+https://nytimes.com/athletic/5760827/2024/09/12/nhl-panthers-lightning-income-tax-advantages/
 
-**Tyrique Stevenson working to become another difference-maker on the Bears defense**\
-`LAKE FOREST, Ill.`\
-https://nytimes.com/athletic/5761715/2024/09/12/bears-tyrique-stevenson-week-1/
+**Joe Alt’s Chargers debut vs. Raiders shows all the traits that made him No. 5 pick**\
+`Alt more than held his own against the Raiders’ standout duo of Maxx Crosby and Christian Wilkins. `\
+https://nytimes.com/athletic/5760981/2024/09/12/joe-alt-chargers-debut-raiders-maxx-crosby/
 
-**Robert Caro Reflects on ‘The Power Broker’ and Its Legacy at 50**\
-`Caro’s book on Robert Moses, a city planner who reshaped New York, is also a reflection on “the dangers of unchecked power,” and remains more resonant and relevant than ever.`\
-https://nytimes.com/2024/09/12/books/robert-caro-reflects-on-the-power-broker-and-its-legacy-at-50.html
+**How the Seahawks and Patriots are preparing for Sunday's clash of similar styles**\
+`Both the Seahawks and Patriots expect to go "through, not around," which could make for a physical affair on Sunday.`\
+https://nytimes.com/athletic/5761505/2024/09/12/seattle-seahawks-new-england-patriots-kenneth-walker-iii/
 
-**Can the Raiders' run defense bounce back against (gulp) Lamar Jackson and Derrick Henry?**\
-`"It's really critical up front that we're detailed and do our job," Antonio Pierce said. "Everybody's eyes have got to be on (No.) 8."`\
-https://nytimes.com/athletic/5759047/2024/09/12/raiders-run-defense-ravens-jackson-henry/
+**Scott Boras sees revenue windfall in Giants’ future. Money alone won’t guarantee success**\
+`Giants could be making Yankees-level money soon, but they’ll need the Orioles’ development success to make it helpful`\
+https://nytimes.com/athletic/5758708/2024/09/12/scott-boras-sees-revenue-windfall-in-giants-future-money-alone-wont-guarantee-success/
 
-**Havertz must be the least ‘false’ false nine around - leading the line is his best position**\
-`Havertz is eternally considered a makeshift striker but he has always had an eye for goal - he needs to believe he belongs there`\
-https://nytimes.com/athletic/5760793/2024/09/12/kai-havertz-false-nine-arsenal/
+**Rain bands were lashing the Florida panhandle. Here’s what to know.**\
+`By Isabella Kwai`\
+https://nytimes.com/live/2024/09/12/weather/hurricane-francine-louisiana/heavy-rain-bands-were-lashing-the-florida-panhandle-heres-what-to-know
 
-**‘The Power Broker’ Is Finally Getting a Digital Edition. What Took So Long?**\
-`Robert Caro’s mammoth study of the urban planner Robert Moses is coming out as an e-book this month, on the 50th anniversary of the biography’s publication.`\
-https://nytimes.com/2024/09/12/books/ebook-robert-caro-the-power-broker.html
+**Live Updates: Francine Floods New Orleans as Storm Plows Inland**\
+`Heavy rain from the former hurricane, now a tropical depression, inundated communities in southeastern Louisiana. It was moving into other Gulf states.`\
+https://nytimes.com/live/2024/09/12/weather/hurricane-francine-louisiana
 
