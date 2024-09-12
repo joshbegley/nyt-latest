@@ -1,3 +1,7 @@
+**Commanders' Emmanuel Forbes to have surgery on thumb: Source**\
+`Surgery will determine the recovery timeline and whether an injured reserve stint is required.`\
+https://nytimes.com/athletic/5763629/2024/09/12/emmanuel-forbes-commanders-injury/
+
 **Trump Says He Won’t Debate Harris Again**\
 `His declaration follows a debate performance on Tuesday that was widely criticized. He has gone back and forth before about whether to participate in debates.`\
 https://nytimes.com/2024/09/12/us/politics/trump-harris-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/12/us/politics/mike-johnson-spending-house.html
 **Fall’s Best Boots Are Rugged and Buckled**\
 `Here are our favorite pairs, in a range of prices.`\
 https://nytimes.com/2024/09/12/t-magazine/womens-work-boots-guide.html
-
-**Mandel: Pac-12 is betting on upside of the Playoff, even if the future remains murky**\
-`If a Pac-12 team makes the College Football Playoff in 2026, this will be the wisest $110 million the conference ever spent.`\
-https://nytimes.com/athletic/5763474/2024/09/12/pac-12-realignment-college-football-playoff-bet/
 
