@@ -1,6 +1,26 @@
+**Tyrique Stevenson working to become another difference-maker on the Bears defense**\
+`LAKE FOREST, Ill.`\
+https://nytimes.com/athletic/5761715/2024/09/12/bears-tyrique-stevenson-week-1/
+
+**Robert Caro Reflects on ‘The Power Broker’ and Its Legacy at 50**\
+`Caro’s book on Robert Moses, a city planner who reshaped New York, is also a reflection on “the dangers of unchecked power,” and remains more resonant and relevant than ever.`\
+https://nytimes.com/2024/09/12/books/robert-caro-reflects-on-the-power-broker-and-its-legacy-at-50.html
+
+**Can the Raiders' run defense bounce back against (gulp) Lamar Jackson and Derrick Henry?**\
+`"It's really critical up front that we're detailed and do our job," Antonio Pierce said. "Everybody's eyes have got to be on (No.) 8."`\
+https://nytimes.com/athletic/5759047/2024/09/12/raiders-run-defense-ravens-jackson-henry/
+
+**Havertz must be the least ‘false’ false nine around - leading the line is his best position**\
+`Havertz is eternally considered a makeshift striker but he has always had an eye for goal - he needs to believe he belongs there`\
+https://nytimes.com/athletic/5760793/2024/09/12/kai-havertz-false-nine-arsenal/
+
 **‘The Power Broker’ Is Finally Getting a Digital Edition. What Took So Long?**\
 `Robert Caro’s mammoth study of the urban planner Robert Moses is coming out as an e-book this month, on the 50th anniversary of the biography’s publication.`\
 https://nytimes.com/2024/09/12/books/ebook-robert-caro-the-power-broker.html
+
+**Could Bruins’ Fabian Lysell make the opening roster? 5 reasons he will**\
+`Lysell could bring a needed element to the Bruins lineup after Jake DeBrusk and Danton Heinen departed this offseason.`\
+https://nytimes.com/athletic/5761114/2024/09/12/fabian-lysell-bruins-roster/
 
 **‘Winner’ Review: Not Like Other Girls**\
 `This dramedy starring Emilia Jones depicts the life and times of Reality Winner, a former National Security Agency contractor and whistle-blower.`\
@@ -17,24 +37,4 @@ https://nytimes.com/2024/09/12/movies/matt-and-mara-review.html
 **‘The Critic’ Review: Dangerous Liaisons**\
 `Ian McKellen stars a drama critic in 1930s London who has much higher standards for the theater than for his own professional ethics.`\
 https://nytimes.com/2024/09/12/movies/the-critic-review-dangerous-liaisons.html
-
-**‘The 4:30 Movie’ Review: Jersey Boys**\
-`The writer-director Kevin Smith looks back fondly on his New Jersey childhood in this semi-autobiographical coming-of-age comedy.`\
-https://nytimes.com/2024/09/12/movies/the-430-movie-review.html
-
-**The Grenfell Fire and the Unbearable Slowness of Public Inquiries**\
-`Holding an inquiry has become one of the British government’s go-to responses to outrageous harm. But that approach can sometimes stall change and delay justice.`\
-https://nytimes.com/2024/09/12/world/europe/grenfell-fire-public-inquiry-failings-scandal.html
-
-**Bucks fan survey results: Title expectations shrink but belief in Giannis, Lillard remains high**\
-`After winning the NBA title in 2021, Bucks fans anticipated another. But after three early playoff exits, expectations have been tempered.`\
-https://nytimes.com/athletic/5759065/2024/09/12/bucks-fans-title-expectations-take-a-hit-but-belief-in-giannis-damian-lillard-remains-high/
-
-**The Pulse: Overnight conference realignment**\
-`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
-https://nytimes.com/athletic/5760598/2024/09/12/pac-12-conference-realignment-the-pulse/
-
-**NFL Week 2 injury report: Jordan Love return unlikely, Achilles tendinitis a 'big deal' for CMC and more**\
-`Greg Scholz runs through the biggest fantasy football injury worries of Week 2, expressing doubts that Jordan Love can return by Sunday.`\
-https://nytimes.com/athletic/5761773/2024/09/12/week-2-injury-report-fantasy-football-jordan-love-cmc/
 

@@ -1,3 +1,23 @@
+**Tyrique Stevenson working to become another difference-maker on the Bears defense**\
+`LAKE FOREST, Ill.`\
+https://nytimes.com/athletic/5761715/2024/09/12/bears-tyrique-stevenson-week-1/
+
+**Robert Caro Reflects on ‘The Power Broker’ and Its Legacy at 50**\
+`Caro’s book on Robert Moses, a city planner who reshaped New York, is also a reflection on “the dangers of unchecked power,” and remains more resonant and relevant than ever.`\
+https://nytimes.com/2024/09/12/books/robert-caro-reflects-on-the-power-broker-and-its-legacy-at-50.html
+
+**Can the Raiders' run defense bounce back against (gulp) Lamar Jackson and Derrick Henry?**\
+`"It's really critical up front that we're detailed and do our job," Antonio Pierce said. "Everybody's eyes have got to be on (No.) 8."`\
+https://nytimes.com/athletic/5759047/2024/09/12/raiders-run-defense-ravens-jackson-henry/
+
+**Havertz must be the least ‘false’ false nine around - leading the line is his best position**\
+`Havertz is eternally considered a makeshift striker but he has always had an eye for goal - he needs to believe he belongs there`\
+https://nytimes.com/athletic/5760793/2024/09/12/kai-havertz-false-nine-arsenal/
+
+**Could Bruins’ Fabian Lysell make the opening roster? 5 reasons he will**\
+`Lysell could bring a needed element to the Bruins lineup after Jake DeBrusk and Danton Heinen departed this offseason.`\
+https://nytimes.com/athletic/5761114/2024/09/12/fabian-lysell-bruins-roster/
+
 **‘The Power Broker’ Is Finally Getting a Digital Edition. What Took So Long?**\
 `Robert Caro’s mammoth study of the urban planner Robert Moses is coming out as an e-book this month, on the 50th anniversary of the biography’s publication.`\
 https://nytimes.com/2024/09/12/books/ebook-robert-caro-the-power-broker.html
