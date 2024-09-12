@@ -1,3 +1,7 @@
+**Athlete, fighter, human: Reflecting on Alex Morgan's career**\
+`Morgan was more than an athlete during her nearly two-decade career in professional soccer.`\
+https://nytimes.com/athletic/5762351/2024/09/12/alex-morgan-career-reflection/
+
 **Topps adds Disney, Pixar and Marvel trading card rights to growing portfolio**\
 `Topps' collection of trading card licenses is growing across sports and non-sports properties alike `\
 https://nytimes.com/athletic/5761692/2024/09/12/topps-disney-pixar-marvel-cards/
