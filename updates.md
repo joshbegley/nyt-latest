@@ -1,3 +1,11 @@
+**United States Backs Africa’s U.N. Security Council Bid, With a Catch**\
+`The announcement provides U.S. support to permanent council seats for African nations, though not new veto powers. But the path to adding members requires far more than White House approval.`\
+https://nytimes.com/2024/09/12/world/africa/us-un-security-council-africa-permanent-seats.html
+
+**Bob Weatherwax, Trainer of Lassie and Other Celebrity Dogs, Dies at 83**\
+`Like his father, who taught him the interdisciplinary roles needed for the job, he trained and bred animals seen on television and in movies.`\
+https://nytimes.com/2024/09/12/movies/bob-weatherwax-dead.html
+
 **Emerson: The QB decisions Florida's Billy Napier, Auburn's Hugh Freeze make will say a lot**\
 `What should Florida and Auburn do at quarterback? Those will be intriguing decisions moving forward this season.`\
 https://nytimes.com/athletic/5762963/2024/09/12/auburn-florida-quarterbacks-hugh-freeze-billy-napier-college-football/
