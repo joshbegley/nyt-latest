@@ -1,6 +1,6 @@
 **Sybil Haydel Morial, New Orleans Civil Rights Matriarch, Dies at 91**\
 `The wife of Ernest N. Morial, the city’s first Black mayor, she was also a crusader in her own right who fought for equal rights for Black women.`\
-https://nytimes.com/2024/09/12/us/sybil-haydel-dead.html
+https://nytimes.com/2024/09/12/us/sybil-haydel-morial-dead.html
 
 **Which schools could the new Pac-12 target? UNLV, Wyoming, Tulane, Memphis among many**\
 `The conference must get back to at least eight football-playing members by 2026 to meet the NCAA and FBS requirements.`\
