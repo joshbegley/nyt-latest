@@ -1,3 +1,7 @@
+**Youth Group Asks Supreme Court to Revive a Landmark Climate Lawsuit**\
+`The case argues the government violated young people’s constitutional rights by failing to curb the use of fossil fuels. A lower court had thrown it out.`\
+https://nytimes.com/2024/09/12/climate/juliana-lawsuit-supreme-court.html
+
 **A night inside the county storm center that was rebuilt after Katrina’s destruction.**\
 `By Isabelle Taft`\
 https://nytimes.com/live/2024/09/12/weather/hurricane-francine-louisiana/mississippi-hancock-county
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5758167/2024/09/12/premier-league-squads-submitted-
 **Is there a path for Riley Heidt to make the Wild roster? It's complicated**\
 `Heidt said he "100 percent" believes he's ready for the NHL, but he'll have to prove it because rostering him won't be easy.`\
 https://nytimes.com/athletic/5751022/2024/09/12/riley-heidt-wild-roster/
-
-**NHL monitoring teams' income-tax advantages, but 'there are no easy fixes'**\
-`Some players believe a salary-cap advantage is created based on geography, but is there a solution?`\
-https://nytimes.com/athletic/5760827/2024/09/12/nhl-panthers-lightning-income-tax-advantages/
 
