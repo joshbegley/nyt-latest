@@ -1,3 +1,11 @@
+**What does it take for Alabama to hit the road for a road trip like Wisconsin?**\
+`What all does it take for Alabama to make it to a road game against Wisconsin? Let's take a look at the process.`\
+https://nytimes.com/athletic/5761674/2024/09/12/alabama-football-travel-wisconsin-away-games/
+
+**‘Real Women Have Curves’ Musical Plans Broadway Bow Next Year**\
+`The show, adapted from the play and movie, was first staged last winter at the American Repertory Theater in Cambridge, Mass.`\
+https://nytimes.com/2024/09/12/theater/real-women-have-curves-broadway.html
+
 **Youth Group Asks Supreme Court to Revive a Landmark Climate Lawsuit**\
 `The case argues the government violated young people’s constitutional rights by failing to curb the use of fossil fuels. A lower court had thrown it out.`\
 https://nytimes.com/2024/09/12/climate/juliana-lawsuit-supreme-court.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/12/business/dealbook/openai-valuation-artificial-int
 **Will the Ducks trade Cam Fowler, what's the possible timing and which teams might be interested?**\
 `Given where Fowler is at in his accomplished career, does a move away from Anaheim make sense?`\
 https://nytimes.com/athletic/5761030/2024/09/12/cam-fowler-trade-ducks/
-
-**Explained: The rules for submitting final Premier League squads**\
-`Premier League clubs have to submit their 25-man squads by Saturday - but what are the rules that determine their selections? We explain...`\
-https://nytimes.com/athletic/5758167/2024/09/12/premier-league-squads-submitted-rules/
-
-**Is there a path for Riley Heidt to make the Wild roster? It's complicated**\
-`Heidt said he "100 percent" believes he's ready for the NHL, but he'll have to prove it because rostering him won't be easy.`\
-https://nytimes.com/athletic/5751022/2024/09/12/riley-heidt-wild-roster/
 
