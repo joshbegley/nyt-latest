@@ -1,3 +1,7 @@
+**Arteta's new contract underlines the rare stability he has provided since coming 'home'**\
+`When Mikel Arteta arrived in 2019 Arsenal were in flux. Now, they have a manager with a deal taking him towards a decade in charge`\
+https://nytimes.com/athletic/5760561/2024/09/12/mikel-arteta-new-contract-arsenal/
+
 **Ronaldo on Man United and Erik ten Hag: 'They must rebuild everything'**\
 `Cristiano Ronaldo says Manchester United and manager Erik ten Hag must &#8220;rebuild everything&#8221; in order to compete with football&#8217;s elite again.`\
 https://nytimes.com/athletic/5761135/2024/09/12/cristiano-ronaldo-manchester-united-erik-ten-hag/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5762012/2024/09/12/fernando-tatis-jr-padres-wild-ca
 **Jimmy Kimmel Chides Trump for His Debate Performance**\
 `“More than 67 million Americans watched the debate on television last night, and of that 67 million, the only one who seems to think Trump did a good job is Donald Trump,” Kimmel said.`\
 https://nytimes.com/2024/09/12/arts/television/jimmy-kimmel-trump-debate.html
-
-**Word of the Day: consternation**\
-`This word has appeared in 149 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2024/09/12/learning/word-of-the-day-consternation.html
 
