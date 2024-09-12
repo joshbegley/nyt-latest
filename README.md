@@ -1,3 +1,11 @@
+**7 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/09/12/books/review/new-books-recommendations.html
+
+**Jones: Tyreek Hill could have handled traffic stop better, but he didn’t deserve police violence**\
+`In America, people of color have no margin for error when interacting with police officers. That includes Hill, a star NFL wide receiver.`\
+https://nytimes.com/athletic/5761446/2024/09/12/tyreek-hill-police-detainment-dolphins/
+
 **Satellite TV Is in Trouble. DirecTV’s Dispute With Disney Shows Why.**\
 `While the cable TV business is declining quickly, satellite TV is decaying even faster.`\
 https://nytimes.com/2024/09/12/business/media/directv-disney-dispute.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/12/arts/television/rings-of-power-recap-season-2-epi
 **NASCAR free agency: What we're hearing about Corey LaJoie, Justin Haley and more**\
 `What's next for Corey LaJoie? Will 23XI still add another car? Here's our latest look at where things stand is the NASCAR free-agency cycle.`\
 https://nytimes.com/athletic/5761311/2024/09/12/nascar-free-agency-corey-lajoie-justin-haley/
-
-**DeSantis Spars With Abortion Rights Backers Over Florida Ballot Measure**\
-`Florida’s governor has come under fire from critics who say he is using state resources to work against a proposed abortion-rights amendment to the state Constitution.`\
-https://nytimes.com/2024/09/12/us/desantis-abortion-ballot-petition-signatures.html
-
-**U.S. Presses Nigeria to Release Imprisoned Binance Employee**\
-`Diplomats are calling for the release of Tigran Gambaryan, an employee of the crypto exchange who was arrested in February.`\
-https://nytimes.com/2024/09/12/technology/binance-nigeria-tigran-gambaryan.html
 
