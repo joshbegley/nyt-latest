@@ -1,3 +1,7 @@
+**Red Sox takeaways: Tyler O'Neill homer powers walk-off win over Orioles**\
+`The Red Sox’s bullpen continues to struggle and Liam Hendriks is in a holding pattern in his rehab. Plus, James Paxton set to retire.`\
+https://nytimes.com/athletic/5761878/2024/09/11/red-sox-takeaways-tyler-oneill-walkoff/
+
 **Six-foot stilts may not be enough to save a marina on the Louisiana coast.**\
 `By Jacey Fortin`\
 https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/six-foot-stilts-may-not-be-enough-to-save-a-marina-on-the-louisiana-coast
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/us/politics/egypt-us-military-aid.html
 **Early report on SEC injury reports: No funny business**\
 `Teams have to file their reports on Wednesday before a Saturday conference game, then update them daily until Saturday.`\
 https://nytimes.com/athletic/5761588/2024/09/11/sec-availability-report-georgia-kentucky-south-carolina-texas-am/
-
-**Certification of Election Will Get Extra Security to Try to Prevent Another Capitol Attack**\
-`The Homeland Security Department approved adding federal, state and local resources to help protect the counting of Electoral College votes on Jan. 6, 2025.`\
-https://nytimes.com/2024/09/11/us/politics/electoral-college-certification-security.html
 
