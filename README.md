@@ -10,7 +10,7 @@ https://nytimes.com/live/2024/09/11/opinion/thepoint/hurricane-francine-global-w
 `Firefighters struggled to contain three large fires threatening areas including Los Angeles and San Bernardino County.`\
 https://nytimes.com/2024/09/12/us/california-wildfires-photos-video.html
 
-**Big Bear residents describe harrowing escapes as fire consumed nearby homes.**\
+**Residents describe harrowing escapes as fire consumed nearby homes.**\
 `By Vik Jolly`\
 https://nytimes.com/live/2024/09/12/us/california-wildfires-idaho-oregon/big-bear-residents-describe-harrowing-escapes-as-fire-consumed-nearby-homes
 
