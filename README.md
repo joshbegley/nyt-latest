@@ -1,3 +1,7 @@
+**NFL Week 2 injury report: Jordan Love return unlikely, Achilles tendinitis a 'big deal' for CMC and more**\
+`Greg Scholz runs through the biggest fantasy football injury worries of Week 2, expressing doubts that Jordan Love can return by Sunday.`\
+https://nytimes.com/athletic/5761773/2024/09/12/week-2-injury-report-fantasy-football-jordan-love-cmc/
+
 **The Stakes on Presidential Power**\
 `We explain the contrasting approaches Donald Trump and Kamala Harris take to the executive office.`\
 https://nytimes.com/2024/09/12/briefing/the-stakes-on-presidential-power.html
@@ -5,6 +9,10 @@ https://nytimes.com/2024/09/12/briefing/the-stakes-on-presidential-power.html
 **Milner to miss Ipswich clash with hamstring injury**\
 `James Milner faces an unspecified period out of action for Brighton &amp; Hove Albion, head coach Fabian Hurzeler has confirmed.`\
 https://nytimes.com/athletic/5762169/2024/09/12/james-milner-injury-brighton/
+
+**How tears and a telephone in Toronto changed Aryna Sabalenka's tennis life**\
+`How the world No. 2 rebuilt her serve, and her confidence - with the help of the team she calls family`\
+https://nytimes.com/athletic/5500511/2024/09/12/aryna-sabalenka-team-coach/
 
 **Celtics sale, Joe Mazzulla's motivation and more: 5 questions ahead of training camp**\
 `With training camp less than two weeks away, here are five big questions facing the Celtics as they look to defend their NBA title.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5761562/2024/09/12/chicago-bears-caleb-williams/
 **Top 5 Yankees stories of the week: Catch up on the most-read NY headlines**\
 `Catch up on the past week by checking out the most popular Yankees and MLB stories. `\
 https://nytimes.com/athletic/5760934/2024/09/12/new-york-yankees-headlines-standings-stats-dominguez/
-
-**What Manchester United's financial results do and do not reveal about their PSR position**\
-`Manchester United say they are in compliance with PSR and acted as such during the transfer window, but the margins appear very tight`\
-https://nytimes.com/athletic/5762074/2024/09/12/manchester-united-psr-explained/
-
-**The Commanders, like so many, took note of 9/11 on Wednesday, and then life moved on**\
-`"It's on us to remind the guys what actually happened and how many people sacrificed and lost their lives," Bobby Wagner said. `\
-https://nytimes.com/athletic/5761139/2024/09/12/commanders-9-11-commemeration/
 
