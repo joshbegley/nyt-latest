@@ -1,29 +1,40 @@
-**Ketanji Brown Jackson Looks Forward to Reading Fiction Again**\
-`The Supreme Court justice has been drawn to American history and books about the “challenges and triumphs” of raising a neurodiverse child. She shares that and more in a memoir, “Lovely One.”`\
-https://nytimes.com/2024/09/12/books/review/ketanji-brown-jackson-lovely-one.html
+**Forecast of Cooler Weather Offers Relief to Firefighters Battling Blazes in the West**\
+`In California, the fires have displaced tens of thousands of people, charred more than 100,000 acres and strained the state’s resources.`\
+https://nytimes.com/2024/09/12/us/california-wildfires-idaho-oregon.html
 
-**A New Idea to Conserve Public Lands**\
-`You can now lease federal property to restore it, not just to mine, cut or graze it.`\
-https://nytimes.com/2024/09/12/opinion/public-land-conservation.html
+**MAGA Will Fall for Anything**\
+`Apparently, this election is about … pets`\
+https://nytimes.com/2024/09/12/opinion/maga-debate-cats-dogs-haiti-trump.html
 
-**To Put It Bluntly**\
-`Much ado has been made of euphemism inflation. While it’s easy to make fun of it, it’s worth examining its logic.`\
-https://nytimes.com/2024/09/12/opinion/language-pc.html
+**The Deeper Meaning of Taylor Swift’s Democratic Mic Drop**\
+`Some regarded the timing as brilliant; others as bizarre. I promise you, she doesn’t care.`\
+https://nytimes.com/2024/09/12/opinion/taylor-swift-harris-endorsement.html
 
-**How a Survival Shooter Built in Ukraine Evolved as a War Rages On**\
-`The Ukrainian developers of S.T.A.L.K.E.R. 2 are trying to distance the video game from Russia’s invasion, but the conflict inevitably altered the creative process.`\
-https://nytimes.com/2024/09/12/arts/stalker-2-heart-of-chornobyl-ukraine-war.html
+**They Wanted a House in Chicago for Their Growing Family. Would $650,000 Be Enough?**\
+`When a couple learned they were expecting, finding a bigger home became a priority. Could they afford an extra bedroom, a decent kitchen and some outdoor space?`\
+https://nytimes.com/interactive/2024/09/12/realestate/chicago-house-sale.html
 
-**Bills vs. Dolphins odds, expert picks, how to watch: Miami favored on TNF**\
-`The Dolphins are favored against the Bills in a meeting of two AFC East teams on Thursday Night Football.`\
-https://nytimes.com/athletic/5761063/2024/09/12/bills-dolphins-odds-expert-picks-how-to-watch-predictions-betting/
+**Harris, After a Debate Success, Confronts a Battleground ‘Game of Inches’**\
+`Her campaign is riding high, but still sees the race as an exceedingly close grind. Her aides have new hopes of focusing the race squarely on Donald Trump’s fitness for office.`\
+https://nytimes.com/2024/09/12/us/politics/harris-campaign-strategy.html
 
-**Bentancur charged by FA over Son comments**\
-`Rodrigo Bentancur has been charged with an alleged breach of Football Association (FA) rules over comments he made relating to Tottenham Hotspur team-mate Son Heung-min in an interview.`\
-https://nytimes.com/athletic/5762064/2024/09/12/rodrigo-bentancur-son-heung-min-tottenham/
+**Should Ukraine Launch Western Weapons Deep Into Russia?**\
+`President Biden has refused to allow Ukraine to use long-range Western missiles on Russian military targets, but he appears to be wavering.`\
+https://nytimes.com/2024/09/12/world/europe/biden-ukraine-strike-russia.html
 
-**The United Nations said the vaccination campaign was going well in difficult conditions.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/09/12/world/israel-hamas-gaza-war/the-united-nations-said-the-vaccination-campaign-was-going-well-in-difficult-conditions
+**Reform or the End of Justice? Mexico Is Split on Plan to Elect Judges**\
+`Even as a sweeping proposal to elect nearly 7,000 judges inches toward law, some Mexicans have protested it. Others welcomed the chance to vote in judges.`\
+https://nytimes.com/2024/09/12/world/americas/mexico-judicial-overhaul-controvery.html
 
-**U.A.E. evacuates critical patients and their family members, and other news.**\
+**Raptors mailbag, part 2: Jakob Poeltl and Masai Ujiri's futures, last year vs. this year**\
+`Eric Koreen explors the expectations for this year's Raptors and what awaits them beyond April. `\
+https://nytimes.com/athletic/5756227/2024/09/12/raptors-masai-ujiri-mailbag-jakob-poeltl/
+
+**Grading the coordinators, surveying Beaver Stadium upgrades: Penn State mailbag**\
+`What's with the lack of a pass rush? Will Nolan Rucci and Cooper Cousins break into the starting O-line?`\
+https://nytimes.com/athletic/5761283/2024/09/12/penn-state-football-coordinators-beaver-stadium/
+
+**How the Falcons' 'meatheads' at inside linebacker want to transform the position**\
+`The Falcons' inside linebackers room is one of the quirkiest on the team, but having fun hasn't stopped them from playing well.`\
+https://nytimes.com/athletic/5760279/2024/09/12/falcons-linebackers-kaden-elliss-nate-landman/
+
