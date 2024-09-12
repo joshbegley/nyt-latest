@@ -1,3 +1,11 @@
+**The Stakes on Presidential Power**\
+`We explain the contrasting approaches Donald Trump and Kamala Harris take to the executive office.`\
+https://nytimes.com/2024/09/12/briefing/the-stakes-on-presidential-power.html
+
+**Milner to miss Ipswich clash with hamstring injury**\
+`James Milner faces an unspecified period out of action for Brighton &amp; Hove Albion, head coach Fabian Hurzeler has confirmed.`\
+https://nytimes.com/athletic/5762169/2024/09/12/james-milner-injury-brighton/
+
 **Celtics sale, Joe Mazzulla's motivation and more: 5 questions ahead of training camp**\
 `With training camp less than two weeks away, here are five big questions facing the Celtics as they look to defend their NBA title.`\
 https://nytimes.com/athletic/5761455/2024/09/12/celtics-joe-mazzulla-training-camp/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5762074/2024/09/12/manchester-united-psr-explained/
 **The Commanders, like so many, took note of 9/11 on Wednesday, and then life moved on**\
 `"It's on us to remind the guys what actually happened and how many people sacrificed and lost their lives," Bobby Wagner said. `\
 https://nytimes.com/athletic/5761139/2024/09/12/commanders-9-11-commemeration/
-
-**How the Election Is Sinking a $15 Billion Business Deal**\
-`The Biden administration is expected to block a takeover of U.S. Steel by Japan’s Nippon Steel.`\
-https://nytimes.com/2024/09/12/podcasts/the-daily/us-steel-pennsylvania.html
-
-**Harris and Trump’s Next Moves, and Francine Lashes Southern Louisiana**\
-`Plus, debunking claims about immigrants in Ohio.`\
-https://nytimes.com/2024/09/12/podcasts/springfield-ohio-debate-election.html
 

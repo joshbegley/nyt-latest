@@ -1,3 +1,11 @@
+**The Stakes on Presidential Power**\
+`We explain the contrasting approaches Donald Trump and Kamala Harris take to the executive office.`\
+https://nytimes.com/2024/09/12/briefing/the-stakes-on-presidential-power.html
+
+**Milner to miss Ipswich clash with hamstring injury**\
+`James Milner faces an unspecified period out of action for Brighton &amp; Hove Albion, head coach Fabian Hurzeler has confirmed.`\
+https://nytimes.com/athletic/5762169/2024/09/12/james-milner-injury-brighton/
+
 **Celtics sale, Joe Mazzulla's motivation and more: 5 questions ahead of training camp**\
 `With training camp less than two weeks away, here are five big questions facing the Celtics as they look to defend their NBA title.`\
 https://nytimes.com/athletic/5761455/2024/09/12/celtics-joe-mazzulla-training-camp/
