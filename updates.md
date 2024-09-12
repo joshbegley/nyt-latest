@@ -1,3 +1,7 @@
+**New York City to Study Reparations for Descendants of Enslaved People**\
+`The city joins a growing number of cities and states, including New York, that are taking action to examine the effects of slavery and possible reparations.`\
+https://nytimes.com/2024/09/12/nyregion/reparations-slavery-nyc.html
+
 **Sean Combs’s Legal Team Takes His Case to TikTok**\
 `As the music mogul faces civil lawsuits alleging sexual misconduct, one of his lawyers is defending him — in the court of social media.`\
 https://nytimes.com/2024/09/12/arts/music/sean-combs-diddy-tiktok-lawyers.html
