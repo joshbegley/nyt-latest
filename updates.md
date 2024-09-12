@@ -1,3 +1,15 @@
+**As the U.N. criticized the strike, Israel said the former school had become a haven for militants.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/09/12/world/israel-hamas-gaza-war/as-the-un-criticized-the-strike-israel-said-the-former-school-had-become-a-haven-for-militants
+
+**My Ailing Mom Hates Pot. Do I Tell Her What’s in Her Gummies?**\
+`The magazine’s Ethicist columnist on whether to notify an unsuspecting woman that she’s been consuming medicinal cannabis.`\
+https://nytimes.com/2024/09/12/magazine/mom-weed-gummies-ethics.html
+
+**Jon Bon Jovi Helps Woman off Ledge of Bridge**\
+`The singer, who was filming a music video nearby, helped coax a woman to safety in Nashville.`\
+https://nytimes.com/2024/09/12/us/jon-bon-jovi-woman-bridge.html
+
 **Polaris Dawn Crew Completes First-Ever Private Spacewalk**\
 `Jared Isaacman, a billionaire entrepreneur, emerged from the hatch of the SpaceX Crew Dragon spacecraft on Thursday. The Polaris Dawn mission conducted the first-ever commercial spacewalk.`\
 https://nytimes.com/video/science/100000009687981/12vid-spacewalk-clip1.html

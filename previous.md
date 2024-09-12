@@ -1,3 +1,15 @@
+**As the U.N. criticized the strike, Israel said the former school had become a haven for militants.**\
+`By Liam Stack`\
+https://nytimes.com/live/2024/09/12/world/israel-hamas-gaza-war/as-the-un-criticized-the-strike-israel-said-the-former-school-had-become-a-haven-for-militants
+
+**My Ailing Mom Hates Pot. Do I Tell Her What’s in Her Gummies?**\
+`The magazine’s Ethicist columnist on whether to notify an unsuspecting woman that she’s been consuming medicinal cannabis.`\
+https://nytimes.com/2024/09/12/magazine/mom-weed-gummies-ethics.html
+
+**Jon Bon Jovi Helps Woman off Ledge of Bridge**\
+`The singer, who was filming a music video nearby, helped coax a woman to safety in Nashville.`\
+https://nytimes.com/2024/09/12/us/jon-bon-jovi-woman-bridge.html
+
 **What does it take for Alabama to hit the road for a road trip like Wisconsin?**\
 `What all does it take for Alabama to make it to a road game against Wisconsin? Let's take a look at the process.`\
 https://nytimes.com/athletic/5761674/2024/09/12/alabama-football-travel-wisconsin-away-games/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5759725/2024/09/12/niclas-fullkrug-west-ham-injury/
 **Absentee Ballots Are Mailed in Alabama, the First State to Send Them Out**\
 `Mail ballots in North Carolina are also set to go out soon. In-person voting is set to start next week in parts of Pennsylvania and in Virginia.`\
 https://nytimes.com/2024/09/12/us/politics/first-absentee-ballots-election-voting.html
-
-**European Central Bank Cuts Rates for Second Time in Three Months**\
-`The reduction, to 3.5 percent from 3.75 percent, comes as inflation has slowed and the bank faces pressure to bolster the region’s flagging economy.`\
-https://nytimes.com/2024/09/12/business/european-central-bank-interest-rates.html
-
-**Polaris Dawn Crew Completes First-Ever Private Spacewalk**\
-`Jared Isaacman, a billionaire entrepreneur, emerged from the hatch of the SpaceX Crew Dragon spacecraft on Thursday. The Polaris Dawn mission conducted the first-ever commercial spacewalk.`\
-https://nytimes.com/video/science/100000009687981/12vid-spacewalk-clip1.html
-
-**OpenAI Aims for a $150 Billion Valuation**\
-`The ChatGPT maker is closing in on another mega funding round as investors bet the boom in artificial intelligence has plenty of room to grow.`\
-https://nytimes.com/2024/09/12/business/dealbook/openai-valuation-artificial-intelligence.html
 
