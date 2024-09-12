@@ -18,8 +18,8 @@ https://nytimes.com/athletic/5762790/2024/09/12/caitlin-clark-taylor-swift-kamal
 `By presenting “The Orphan of Chao” and “Snow in Midsummer,” the Shaw Festival is helping “the past to smash its way into the modern world.”`\
 https://nytimes.com/2024/09/12/theater/shaw-festival-orphan-chao-snow-midsummer.html
 
-**Floodwaters and Winds Strand Residents in Southern Louisiana**\
-`Waters were receding in the state’s southern communities, near where Hurricane Francine made landfall. Rescuers evacuated some families that had been stranded.`\
+**Residents Survived a Harrowing Night in Southern Louisiana**\
+`Rescuers evacuated some families that had been stranded, but waters were receding by morning in the state’s southern communities, near where Hurricane Francine made landfall.`\
 https://nytimes.com/2024/09/12/weather/morgan-city-thibodaux-francine.html
 
 **New Look at Landslide Potential Shows 44% of U.S. Is at Risk**\

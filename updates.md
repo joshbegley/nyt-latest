@@ -1,3 +1,15 @@
+**U.S. Mortgage Rates Continue to Fall**\
+`The average rate on 30-year mortgages declined to 6.2 percent this week, the lowest point since early 2023.`\
+https://nytimes.com/2024/09/12/business/mortgage-rates.html
+
+**U.S. Open stars Pegula and Navarro to clash at Madison Square Garden**\
+`The Garden Cup exhibition event sees the U.S. Open finalist and semifinalist face off.`\
+https://nytimes.com/athletic/5762662/2024/09/12/tennis-madison-square-garden-pegula-navarro-alcaraz-shelton/
+
+**Should We Refrain From Gossip?**\
+`Readers offer different answers in response to a guest essay. Also: Protests on campus; China’s adoption policy; Trump the fixer; hearing loss.`\
+https://nytimes.com/2024/09/12/opinion/gossip.html
+
 **Clark encourages people to vote after liking Swift's endorsement of Harris**\
 `As of Thursday, Swift's Instagram post had over 10 million likes.`\
 https://nytimes.com/athletic/5762790/2024/09/12/caitlin-clark-taylor-swift-kamala-harris/
