@@ -1,3 +1,15 @@
+**Early Voting Is Beginning in These States. Here’s What to Know.**\
+`Which states do early voting, and when does it start?`\
+https://nytimes.com/2024/09/12/us/politics/early-voting-states-ballots.html
+
+**A New Mini-Moon Is Being Captured by Planet Earth**\
+`It’s just a little guy, and not everyone agrees that it’s actually a mini-moon.`\
+https://nytimes.com/2024/09/12/science/new-mini-moon-earth-orbit.html
+
+**Sybil Haydel Morial, New Orleans Civil Rights Matriarch, Dies at 91**\
+`The wife of Ernest N. Morial, the city’s first Black mayor, she was also a crusader in her own right who fought for equal rights for Black women.`\
+https://nytimes.com/2024/09/12/us/sybil-haydel-morial-dead.html
+
 **Which schools could the new Pac-12 target? UNLV, Wyoming, Tulane, Memphis among many**\
 `The conference must get back to at least eight football-playing members by 2026 to meet the NCAA and FBS requirements.`\
 https://nytimes.com/athletic/5763557/2024/09/12/pac-12-candidates-unlv-tulane-wyoming-memphis/
