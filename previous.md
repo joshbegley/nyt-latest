@@ -1,3 +1,7 @@
+**If Harris Wins North Carolina, This County Will Be the Tipping Point**\
+`For 16 years, the state has been a heartbreaker for Democrats, and so has Mecklenburg County — a reliably blue area that just hasn’t been blue enough.`\
+https://nytimes.com/2024/09/12/us/politics/harris-democrats-north-carolina.html
+
 **A Timberland State of Mind**\
 `Across New York’s five boroughs, residents are expressing themselves with the iconic boot. `\
 https://nytimes.com/paidpost/timberland/a-timberland-state-of-mind.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/12/t-magazine/chowa-library-brooklyn.html
 **Forest will benefit from Gibbs-White's England experience - Nuno**\
 `Nuno Espirito Santo believes the experience of making his senior England debut can help Morgan Gibbs-White evolve into an even better player with Nottingham Forest.`\
 https://nytimes.com/athletic/5762492/2024/09/12/gibbs-white-england-forest/
-
-**As the U.N. criticized the strike, Israel said the former school had become a haven for militants.**\
-`By Liam Stack`\
-https://nytimes.com/live/2024/09/12/world/israel-hamas-gaza-war/as-the-un-criticized-the-strike-israel-said-the-former-school-had-become-a-haven-for-militants
 
