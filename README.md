@@ -1,3 +1,7 @@
+**A Billionaire in Orbit and His Crew Prepare to Walk in Space**\
+`The astronauts of the Polaris Dawn mission, after traveling through heavy radiation and high orbits, are getting ready to open the hatch of their SpaceX vehicle.`\
+https://nytimes.com/2024/09/11/science/spacex-polaris-dawn-astronauts-spacewalk.html
+
 **Floodgates help New Orleans prevent damage from storm surge. What are they?**\
 `By Aimee Ortiz`\
 https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/floodgates-help-new-orleans-prevent-damage-from-storm-surge-what-are-they
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5761261/2024/09/11/aja-wilson-wnba-single-season-po
 **Researchers mapped the sites in Francine’s path that risk flooding and toxic spills.**\
 `By Austyn Gaffney`\
 https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/researchers-mapped-the-sites-in-francines-path-that-risk-flooding-and-toxic-spills
-
-**In critical moment, Francisco Lindor delivers a signature swing for the Mets**\
-`What has Lindor meant to the Mets this season? “Everything,” as one teammate said.`\
-https://nytimes.com/athletic/5761371/2024/09/11/mets-francisco-lindor-no-hitter/
 
