@@ -1,4 +1,4 @@
-**Kuol rehabbing quad injury at Newcastle United which prevented summer exit**\
+**Kuol recovering from quad injury at Newcastle United which prevented summer exit**\
 `Newcastle United forward Garang Kuol has suffered a grade three tear to his right quad, which disrupted a planned transfer window move.`\
 https://nytimes.com/athletic/5762764/2024/09/12/newcastle-united-garang-kuol-injury/
 
