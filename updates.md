@@ -1,3 +1,11 @@
+**Justice Dept. Charges Two Men in Jan. 6 Assault on Times Photographer**\
+`The pair, brothers, were charged with stealing the photographer’s camera, assault with the intent to commit a felony and entering the Capitol unlawfully.`\
+https://nytimes.com/2024/09/12/us/politics/jan-6-assault-times-photographer.html
+
+**Trump’s ‘Concepts of a Plan’ for Health Care Really Means He Has No Plan**\
+`Trying to come up with a viable alternative to the Affordable Care Act would probably just mean reinventing it.`\
+https://nytimes.com/2024/09/12/opinion/trump-harris-concepts-obamacare.html
+
 **Tracking Tropical Storm Ileana**\
 `See the likely path for Ileana.`\
 https://nytimes.com/interactive/2024/09/12/weather/storm-ileana-tracker.html
