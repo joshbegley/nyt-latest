@@ -1,3 +1,7 @@
+**The N.Y.P.D. Commissioner Resigned**\
+`Also, a billionaire completed the first commercial spacewalk. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/09/12/briefing/nypd-commissioner-resigned-commercial-spacewalk.html
+
 **Clark's Wilson basketball sells out in less than an hour**\
 `Clark's basketballs sold out in reportedly less than 40 minutes.`\
 https://nytimes.com/athletic/5763745/2024/09/12/caitlin-clark-fever-wilson-basketballs/
