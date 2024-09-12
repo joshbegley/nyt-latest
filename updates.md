@@ -1,3 +1,11 @@
+**How did Michigan's quarterback situation end up here?**\
+`It's become clear that Michigan doesn’t have a quarterback who can paper over its flaws and elevate an offense looking for playmakers.`\
+https://nytimes.com/athletic/5760674/2024/09/12/michigan-quarterbacks-j-j-mccarthy-davis-warren/
+
+**Reform or the End of Justice? Mexico Is Split on Plan to Elect Judges.**\
+`Even as a sweeping proposal to elect nearly 7,000 judges inches toward law, some Mexicans have protested it. Others welcomed the chance to vote in judges.`\
+https://nytimes.com/2024/09/12/world/americas/mexico-judicial-overhaul-controvery.html
+
 **Forecast of Cooler Weather Offers Relief to Firefighters Battling Blazes in the West**\
 `In California, the fires have displaced tens of thousands of people, charred more than 100,000 acres and strained the state’s resources.`\
 https://nytimes.com/2024/09/12/us/california-wildfires-idaho-oregon.html

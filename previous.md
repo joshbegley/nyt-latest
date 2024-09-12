@@ -22,7 +22,11 @@ https://nytimes.com/2024/09/12/us/politics/harris-campaign-strategy.html
 `President Biden has refused to allow Ukraine to use long-range Western missiles on Russian military targets, but he appears to be wavering.`\
 https://nytimes.com/2024/09/12/world/europe/biden-ukraine-strike-russia.html
 
-**Reform or the End of Justice? Mexico Is Split on Plan to Elect Judges**\
+**How did Michigan's quarterback situation end up here?**\
+`It's become clear that Michigan doesn’t have a quarterback who can paper over its flaws and elevate an offense looking for playmakers.`\
+https://nytimes.com/athletic/5760674/2024/09/12/michigan-quarterbacks-j-j-mccarthy-davis-warren/
+
+**Reform or the End of Justice? Mexico Is Split on Plan to Elect Judges.**\
 `Even as a sweeping proposal to elect nearly 7,000 judges inches toward law, some Mexicans have protested it. Others welcomed the chance to vote in judges.`\
 https://nytimes.com/2024/09/12/world/americas/mexico-judicial-overhaul-controvery.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5756227/2024/09/12/raptors-masai-ujiri-mailbag-jako
 **Grading the coordinators, surveying Beaver Stadium upgrades: Penn State mailbag**\
 `What's with the lack of a pass rush? Will Nolan Rucci and Cooper Cousins break into the starting O-line?`\
 https://nytimes.com/athletic/5761283/2024/09/12/penn-state-football-coordinators-beaver-stadium/
-
-**How the Falcons' 'meatheads' at inside linebacker want to transform the position**\
-`The Falcons' inside linebackers room is one of the quirkiest on the team, but having fun hasn't stopped them from playing well.`\
-https://nytimes.com/athletic/5760279/2024/09/12/falcons-linebackers-kaden-elliss-nate-landman/
 
