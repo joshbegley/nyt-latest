@@ -1,3 +1,7 @@
+**City Hall in Springfield, Ohio, Is Closed After Bomb Threat**\
+`The city said that “multiple facilities” had received the emailed threat.`\
+https://nytimes.com/2024/09/12/us/politics/springfield-ohio-bomb-threat-trump-pets.html
+
 **Police Commissioner Set to Quit as Investigations Batter Adams’s Circle**\
 `Edward Caban had been asked to resign after federal agents seized his phone as part of a criminal investigation, one of several involving members of Mayor Eric Adams’s administration.`\
 https://nytimes.com/2024/09/12/nyregion/edward-caban-resigns-nypd-commissioner.html
