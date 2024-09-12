@@ -1,3 +1,7 @@
+**Cooper admits transfer 'frustration' despite PSR appeal win**\
+`Leicester City manager Steve Cooper has welcomed the profitability and sustainability ruling which found the club not guilty of a breach and removed the immediate threat of a points deduction for the club.`\
+https://nytimes.com/athletic/5762655/2024/09/12/steve-cooper-leicester-psr/
+
 **If Harris Wins North Carolina, This County Will Be the Tipping Point**\
 `For 16 years, the state has been a heartbreaker for Democrats, and so has Mecklenburg County — a reliably blue area that just hasn’t been blue enough.`\
 https://nytimes.com/2024/09/12/us/politics/harris-democrats-north-carolina.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/12/arts/music/michael-kiwanuka-small-changes.html
 **No Shoes, No Phones Allowed at This Brooklyn Shop**\
 `Plus: Sardinian furniture, a Jordan Casteel exhibition and more recommendations from T Magazine.`\
 https://nytimes.com/2024/09/12/t-magazine/chowa-library-brooklyn.html
-
-**Forest will benefit from Gibbs-White's England experience - Nuno**\
-`Nuno Espirito Santo believes the experience of making his senior England debut can help Morgan Gibbs-White evolve into an even better player with Nottingham Forest.`\
-https://nytimes.com/athletic/5762492/2024/09/12/gibbs-white-england-forest/
 

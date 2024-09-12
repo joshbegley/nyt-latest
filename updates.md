@@ -1,3 +1,7 @@
+**Cooper admits transfer 'frustration' despite PSR appeal win**\
+`Leicester City manager Steve Cooper has welcomed the profitability and sustainability ruling which found the club not guilty of a breach and removed the immediate threat of a points deduction for the club.`\
+https://nytimes.com/athletic/5762655/2024/09/12/steve-cooper-leicester-psr/
+
 **If Harris Wins North Carolina, This County Will Be the Tipping Point**\
 `For 16 years, the state has been a heartbreaker for Democrats, and so has Mecklenburg County — a reliably blue area that just hasn’t been blue enough.`\
 https://nytimes.com/2024/09/12/us/politics/harris-democrats-north-carolina.html
