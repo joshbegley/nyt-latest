@@ -1,3 +1,11 @@
+**Early report on SEC injury reports: No funny business**\
+`Teams have to file their reports on Wednesday before a Saturday conference game, then update them daily until Saturday.`\
+https://nytimes.com/athletic/5761588/2024/09/11/sec-availability-report-georgia-kentucky-south-carolina-texas-am/
+
+**Certification of Election Will Get Extra Security to Try to Prevent Another Capitol Attack**\
+`The Homeland Security Department approved adding federal, state and local resources to help protect the counting of Electoral College votes on Jan. 6, 2025.`\
+https://nytimes.com/2024/09/11/us/politics/electoral-college-certification-security.html
+
 **A Billionaire in Orbit and His Crew Prepare to Walk in Space**\
 `The astronauts of the Polaris Dawn mission, after traveling through heavy radiation and high orbits, are getting ready to open the hatch of their SpaceX vehicle.`\
 https://nytimes.com/2024/09/11/science/spacex-polaris-dawn-astronauts-spacewalk.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/11/us/politics/trump-russia-ukraine-war.html
 **Trump Says He Had a Great Debate. His Allies Privately Say Otherwise.**\
 `Donald J. Trump’s aggressive spinning of his debate performance suggested he knew it was suboptimal, and left aides considering how to move ahead with eight weeks to go.`\
 https://nytimes.com/2024/09/11/us/politics/trump-debate-performance.html
-
-**A’ja Wilson breaks WNBA single-season points record**\
-`Already a two-time MVP and defensive player of the year, Wilson is the now the record holder for the most points in a single season.`\
-https://nytimes.com/athletic/5761261/2024/09/11/aja-wilson-wnba-single-season-points-record/
-
-**Researchers mapped the sites in Francine’s path that risk flooding and toxic spills.**\
-`By Austyn Gaffney`\
-https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/researchers-mapped-the-sites-in-francines-path-that-risk-flooding-and-toxic-spills
 
