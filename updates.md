@@ -1,3 +1,7 @@
+**Red Sox takeaways: Tyler O'Neill homer powers walk-off win over Orioles**\
+`The Red Sox’s bullpen continues to struggle and Liam Hendriks is in a holding pattern in his rehab. Plus, James Paxton set to retire.`\
+https://nytimes.com/athletic/5761878/2024/09/11/red-sox-takeaways-tyler-oneill-walkoff/
+
 **Six-foot stilts may not be enough to save a marina on the Louisiana coast.**\
 `By Jacey Fortin`\
 https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/six-foot-stilts-may-not-be-enough-to-save-a-marina-on-the-louisiana-coast
