@@ -1,3 +1,7 @@
+**Pro Football Hall of Famer Joe Schmidt dies at 92**\
+`Schmidt garnered 10 All-Pro and Pro Bowl distinctions making him a no-brainer choice to land on the 1950s All-Decade Team.`\
+https://nytimes.com/athletic/5763416/2024/09/12/joe-schmidt-lions-obit/
+
 **What’s Going On in This Graph? | Sept. 18, 2024**\
 `Should a bronze medal count the same as a gold when determining who won the Olympics? What’s the best way to rank countries based on medal count?`\
 https://nytimes.com/2024/09/12/learning/whats-going-on-in-this-graph-sept-18-2024.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5762963/2024/09/12/auburn-florida-quarterbacks-hugh
 **As conference realignment rolls on, is ACC vulnerable or just fine (for now)?**\
 `Two league members actively suing the ACC raises questions about its stability. Here's where the conference actually stands.`\
 https://nytimes.com/athletic/5763270/2024/09/12/acc-conference-realignment-florida-state-clemson-stanford-cal/
-
-**What Students Are Saying About Summer Vacation and Heading Back to School**\
-`Welcome to a new year of Current Events Conversation!`\
-https://nytimes.com/2024/09/12/learning/what-students-are-saying-about-summer-vacation-and-heading-back-to-school.html
 

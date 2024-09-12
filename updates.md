@@ -1,3 +1,7 @@
+**Pro Football Hall of Famer Joe Schmidt dies at 92**\
+`Schmidt garnered 10 All-Pro and Pro Bowl distinctions making him a no-brainer choice to land on the 1950s All-Decade Team.`\
+https://nytimes.com/athletic/5763416/2024/09/12/joe-schmidt-lions-obit/
+
 **What’s Going On in This Graph? | Sept. 18, 2024**\
 `Should a bronze medal count the same as a gold when determining who won the Olympics? What’s the best way to rank countries based on medal count?`\
 https://nytimes.com/2024/09/12/learning/whats-going-on-in-this-graph-sept-18-2024.html
