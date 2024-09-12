@@ -1,3 +1,7 @@
+**Cardinals' Marvin Harrison Jr. dismayed after poor Week 1 debut**\
+`One catch for 4 yards on three targets, including one drop, rightfully left the 2024 No. 4 pick frustrated.`\
+https://nytimes.com/athletic/5762744/2024/09/12/marvin-harrison-cardinals-poor-debut/
+
 **Navient Reaches $120 Million Student Loan Settlement With Consumer Watchdog**\
 `The company has been banned from servicing federal student loans and must pay $100 million to harmed borrowers, as well as a $20 million penalty.`\
 https://nytimes.com/2024/09/12/business/navient-settlement-student-loans.html
