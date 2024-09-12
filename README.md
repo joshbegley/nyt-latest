@@ -1,3 +1,11 @@
+**A Timberland State of Mind**\
+`Across New York’s five boroughs, residents are expressing themselves with the iconic boot. `\
+https://nytimes.com/paidpost/timberland/a-timberland-state-of-mind.html
+
+**What Harris Shouldn’t Say About the Economy**\
+`There’s no point in looking backward and defending the administration’s record.`\
+https://nytimes.com/live/2024/09/11/opinion/thepoint/what-harris-shouldnt-say-about-the-economy
+
 **Weinstein Faces a New Sealed Indictment in New York, Prosecutors Say**\
 `The disgraced Hollywood mogul, who underwent emergency heart surgery this week, was not present in court Thursday.`\
 https://nytimes.com/2024/09/12/nyregion/weinstein-indictment-ny.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5762492/2024/09/12/gibbs-white-england-forest/
 **As the U.N. criticized the strike, Israel said the former school had become a haven for militants.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/09/12/world/israel-hamas-gaza-war/as-the-un-criticized-the-strike-israel-said-the-former-school-had-become-a-haven-for-militants
-
-**My Ailing Mom Hates Pot. Do I Tell Her What’s in Her Gummies?**\
-`The magazine’s Ethicist columnist on whether to notify an unsuspecting woman that she’s been consuming medicinal cannabis.`\
-https://nytimes.com/2024/09/12/magazine/mom-weed-gummies-ethics.html
-
-**Jon Bon Jovi Helps Woman Off Ledge of Bridge**\
-`The singer, who was filming a music video nearby, helped coax a woman to safety in Nashville.`\
-https://nytimes.com/2024/09/12/us/jon-bon-jovi-woman-bridge.html
 
