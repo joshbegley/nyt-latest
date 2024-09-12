@@ -1,3 +1,11 @@
+**Navient Reaches $120 Million Student Loan Settlement With Consumer Watchdog**\
+`The company has been banned from servicing federal student loans and must pay $100 million to harmed borrowers, as well as a $20 million penalty.`\
+https://nytimes.com/2024/09/12/business/navient-settlement-student-loans.html
+
+**Earthquake Rattles Coastal Area Near Los Angeles**\
+`Preliminary estimates said a 4.7-magnitude temblor was centered near Malibu. The authorities were determining whether there was any significant damage.`\
+https://nytimes.com/2024/09/12/us/earthquake-california-los-angeles-malibu.html
+
 **Map: 4.7-Magnitude Earthquake Strikes Near Los Angeles**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2024/09/12/us/12wea-quake-tracker-southern-california-nytd7wyp.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/12/us/politics/harris-democrats-north-carolina.html
 **A Timberland State of Mind**\
 `Across New York’s five boroughs, residents are expressing themselves with the iconic boot. `\
 https://nytimes.com/paidpost/timberland/a-timberland-state-of-mind.html
-
-**What Harris Shouldn’t Say About the Economy**\
-`There’s no point in looking backward and defending the administration’s record.`\
-https://nytimes.com/live/2024/09/11/opinion/thepoint/what-harris-shouldnt-say-about-the-economy
-
-**Weinstein Faces a New Sealed Indictment in New York, Prosecutors Say**\
-`The disgraced Hollywood mogul, who underwent emergency heart surgery this week, was not present in court Thursday.`\
-https://nytimes.com/2024/09/12/nyregion/weinstein-indictment-ny.html
 
