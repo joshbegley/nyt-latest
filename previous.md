@@ -1,3 +1,11 @@
+**What’s Going On in This Graph? | Sept. 18, 2024**\
+`Should a bronze medal count the same as a gold when determining who won the Olympics? What’s the best way to rank countries based on medal count?`\
+https://nytimes.com/2024/09/12/learning/whats-going-on-in-this-graph-sept-18-2024.html
+
+**As Venezuela Slides Deeper Into Autocracy, U.S. Imposes Limited Sanctions**\
+`The sanctions against 16 government officials appointed by the authoritarian president of Venezuela were seen as unlikely to be effective by observers and analysts.`\
+https://nytimes.com/2024/09/12/world/americas/us-sanctions-venezuela-autocracy.html
+
 **Cole to leave Birmingham to join FA as full-time coach**\
 `Ashley Cole is set to leave Birmingham City and join the Football Association (FA) on a full-time basis.`\
 https://nytimes.com/athletic/5759832/2024/09/12/ashley-cole-england-fa-birmingham/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5763270/2024/09/12/acc-conference-realignment-flori
 **What Students Are Saying About Summer Vacation and Heading Back to School**\
 `Welcome to a new year of Current Events Conversation!`\
 https://nytimes.com/2024/09/12/learning/what-students-are-saying-about-summer-vacation-and-heading-back-to-school.html
-
-**Rafael Nadal withdraws from Laver Cup**\
-`The 22-time Grand Slam champion had slated the exhibition-style team tournament as his final event of the year.`\
-https://nytimes.com/athletic/5763349/2024/09/12/nadal-laver-cup-teams-2024/
-
-**College football Week 3 model projections: Predicted scores for every game**\
-`Austin Mock's projection model gives point totals and projected point spreads for every Week 3 college football game.`\
-https://nytimes.com/athletic/5763385/2024/09/12/college-football-week-3-model-projections-scores/
 
