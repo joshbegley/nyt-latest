@@ -1,3 +1,7 @@
+**Sybil Haydel Morial, New Orleans Civil Rights Matriarch, Dies at 91**\
+`The wife of Ernest N. Morial, the city’s first Black mayor, she was also a crusader in her own right who fought for equal rights for Black women.`\
+https://nytimes.com/2024/09/12/us/sybil-haydel-dead.html
+
 **Which schools could the new Pac-12 target? UNLV, Wyoming, Tulane, Memphis among many**\
 `The conference must get back to at least eight football-playing members by 2026 to meet the NCAA and FBS requirements.`\
 https://nytimes.com/athletic/5763557/2024/09/12/pac-12-candidates-unlv-tulane-wyoming-memphis/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/12/sports/cycling/bicycle-around-the-world-record.ht
 **Mbappe's PSG salary dispute set to be resolved in court**\
 `The contract dispute between Paris Saint-Germain and Kylian Mbappe over the player’s unpaid salary is set to go to court after PSG rejected a recommendation by a Ligue de Football Professionel (LFP) legal commission to pay Mbappe €55million.`\
 https://nytimes.com/athletic/5763138/2024/09/12/psg-mbappe-wages-dispute/
-
-**Lando Norris drove a full-sized Lego McLaren P1 around Silverstone**\
-`What happens when an F1 driver attempts to complete a lap in a car made of Lego pieces? `\
-https://nytimes.com/athletic/5763327/2024/09/12/lando-norris-lego-mclaren-p1/
 
