@@ -1,3 +1,7 @@
+**European Central Bank Cuts Rates for Second Time in Three Months**\
+`The reduction, to 3.5 percent from 3.75 percent, comes as inflation has slowed and the bank faces pressure to bolster the region’s flagging economy.`\
+https://nytimes.com/2024/09/12/business/european-central-bank-interest-rates.html
+
 **OpenAI Aims for a $150 Billion Valuation**\
 `The ChatGPT maker is closing in on another mega funding round as investors bet the boom in artificial intelligence has plenty of room to grow.`\
 https://nytimes.com/2024/09/12/business/dealbook/openai-valuation-artificial-intelligence.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5758708/2024/09/12/scott-boras-sees-revenue-windfal
 **Rain bands were lashing the Florida panhandle. Here’s what to know.**\
 `By Isabella Kwai`\
 https://nytimes.com/live/2024/09/12/weather/hurricane-francine-louisiana/heavy-rain-bands-were-lashing-the-florida-panhandle-heres-what-to-know
-
-**Live Updates: Francine Floods New Orleans as Storm Plows Inland**\
-`Heavy rain from the former hurricane, now a tropical depression, inundated communities in southeastern Louisiana. It was moving into other Gulf states.`\
-https://nytimes.com/live/2024/09/12/weather/hurricane-francine-louisiana
 

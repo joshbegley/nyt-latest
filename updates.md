@@ -1,3 +1,7 @@
+**European Central Bank Cuts Rates for Second Time in Three Months**\
+`The reduction, to 3.5 percent from 3.75 percent, comes as inflation has slowed and the bank faces pressure to bolster the region’s flagging economy.`\
+https://nytimes.com/2024/09/12/business/european-central-bank-interest-rates.html
+
 **Is there a path for Riley Heidt to make the Wild roster? It's complicated**\
 `Heidt said he "100 percent" believes he's ready for the NHL, but he'll have to prove it because rostering him won't be easy.`\
 https://nytimes.com/athletic/5751022/2024/09/12/riley-heidt-wild-roster/
