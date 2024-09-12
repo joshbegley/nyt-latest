@@ -1,3 +1,15 @@
+**Ex-C.I.A. Officer Who Spied for China Is Sentenced to 10 Years in Prison**\
+`The former officer, who also worked as a contract translator for the F.B.I., provided classified documents to Beijing.`\
+https://nytimes.com/2024/09/12/us/alexander-yuk-ching-ma-china-spy-sentenced.html
+
+**Mark Jury, Whose Photography Captured War and Death, Dies at 80**\
+`He created one of the first photo books about the Vietnam War — the first “rock ’n’ roll war,” he called it — and later documented his grandfather’s struggle with dementia.`\
+https://nytimes.com/2024/09/12/books/mark-jury-dead.html
+
+**Francine Leaves Behind Flooding and Power Outages in Louisiana**\
+`The storm made landfall as a Category 2 hurricane on Wednesday before weakening overnight into a tropical depression.`\
+https://nytimes.com/video/us/100000009688017/francine-storm-louisiana.html
+
 **Luke Hughes to miss 6-8 weeks with shoulder injury**\
 `The injury was sustained earlier this month during offseason training and will not require surgery.`\
 https://nytimes.com/athletic/5763224/2024/09/12/luke-hughes-injury-devils-nhl/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5762507/2024/09/12/barcelona-real-madrid-la-liga-sa
 **Israeli Commandos Carried Out Raid on Secret Weapons Site in Syria**\
 `The missile production facility was destroyed in the attack, according to Western officials. Syrian state media reported that 18 people were killed in the strike.`\
 https://nytimes.com/2024/09/12/us/politics/israel-raid-syria-weapons.html
-
-**Elevated Lead Levels Found in One-Third of Cinnamon Samples**\
-`Consumer Reports found lead in a variety of products, at a time when federal regulators are seeking authority from Congress to combat the problem of heavy metals in foods.`\
-https://nytimes.com/2024/09/12/health/lead-cinnamon.html
-
-**OpenAI Unveils New ChatGPT That Can Reason Through Math and Science**\
-`Driven by new technology called OpenAI o1, the chatbot can test various strategies and try to identify mistakes as it tackles complex tasks.`\
-https://nytimes.com/2024/09/12/technology/openai-chatgpt-math.html
-
-**‘The Rings of Power’ Season 2, Episode 5 Recap: Royal Pains**\
-`This week’s focus was largely on the deepening political drama in Numenor and Khazad-dum, where things have gotten predictably messy.`\
-https://nytimes.com/2024/09/12/arts/television/rings-of-power-recap-season-2-episode-5.html
 
