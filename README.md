@@ -6,7 +6,7 @@ https://nytimes.com/live/2024/09/12/world/israel-hamas-gaza-war/as-the-un-critic
 `The magazine’s Ethicist columnist on whether to notify an unsuspecting woman that she’s been consuming medicinal cannabis.`\
 https://nytimes.com/2024/09/12/magazine/mom-weed-gummies-ethics.html
 
-**Jon Bon Jovi Helps Woman off Ledge of Bridge**\
+**Jon Bon Jovi Helps Woman Off Ledge of Bridge**\
 `The singer, who was filming a music video nearby, helped coax a woman to safety in Nashville.`\
 https://nytimes.com/2024/09/12/us/jon-bon-jovi-woman-bridge.html
 
