@@ -1,3 +1,7 @@
+**Loyalty, history and $5 beers: Why fans still come out to see the Chicago White Sox**\
+`The stands are mostly empty at Chicago's Guaranteed Rate Field, but some fans still come out to watch what may be the worst MLB team ever. `\
+https://nytimes.com/athletic/5757456/2024/09/12/fans-chicago-white-sox-worst-mlb-team/
+
 **Forecast of Cooler Weather Offers Relief to Firefighters Battling Blazes in the West**\
 `In California, the fires have displaced tens of thousands of people, charred more than 100,000 acres and strained the state’s resources.`\
 https://nytimes.com/2024/09/12/us/california-wildfires-idaho-oregon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/12/world/americas/mexico-judicial-overhaul-controver
 **Raptors mailbag, part 2: Jakob Poeltl and Masai Ujiri's futures, last year vs. this year**\
 `Eric Koreen explors the expectations for this year's Raptors and what awaits them beyond April. `\
 https://nytimes.com/athletic/5756227/2024/09/12/raptors-masai-ujiri-mailbag-jakob-poeltl/
-
-**Grading the coordinators, surveying Beaver Stadium upgrades: Penn State mailbag**\
-`What's with the lack of a pass rush? Will Nolan Rucci and Cooper Cousins break into the starting O-line?`\
-https://nytimes.com/athletic/5761283/2024/09/12/penn-state-football-coordinators-beaver-stadium/
 
