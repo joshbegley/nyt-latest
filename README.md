@@ -1,3 +1,7 @@
+**Cole to leave Birmingham to join FA as full-time coach**\
+`Ashley Cole is set to leave Birmingham City and join the Football Association (FA) on a full-time basis.`\
+https://nytimes.com/athletic/5759832/2024/09/12/ashley-cole-england-fa-birmingham/
+
 **A New Way to Think About the Decline in Black College Admissions**\
 `I’ve seen firsthand that this scenario does not play out the way alarmists think it does.`\
 https://nytimes.com/2024/09/12/opinion/college-admissions-race.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5763349/2024/09/12/nadal-laver-cup-teams-2024/
 **College football Week 3 model projections: Predicted scores for every game**\
 `Austin Mock's projection model gives point totals and projected point spreads for every Week 3 college football game.`\
 https://nytimes.com/athletic/5763385/2024/09/12/college-football-week-3-model-projections-scores/
-
-**Jaguars rename EverBank Stadium to TrEverBank Stadium for Week 2**\
-`Lawrence collaborated with EverBank, the stadium's naming rights sponsor, to rename the venue for the day.`\
-https://nytimes.com/athletic/5763220/2024/09/12/trevor-lawrence-jaguars-treverbank-stadium/
 
