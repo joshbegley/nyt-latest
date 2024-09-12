@@ -1,3 +1,7 @@
+**Forest will benefit from Gibbs-White's England experience - Nuno**\
+`Nuno Espirito Santo believes the experience of making his senior England debut can help Morgan Gibbs-White evolve into an even better player with Nottingham Forest.`\
+https://nytimes.com/athletic/5762492/2024/09/12/gibbs-white-england-forest/
+
 **As the U.N. criticized the strike, Israel said the former school had become a haven for militants.**\
 `By Liam Stack`\
 https://nytimes.com/live/2024/09/12/world/israel-hamas-gaza-war/as-the-un-criticized-the-strike-israel-said-the-former-school-had-become-a-haven-for-militants
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/12/us/politics/corporate-minimum-tax-loopholes.html
 **Fullkrug injury to be assessed before Fulham match - Lopetegui**\
 `West Ham United head coach Julen Lopetegui says Niclas Fullkrug will be assessed on Friday before making a final decision on his availability for Saturday&#8217;s Premier League match against Fulham.`\
 https://nytimes.com/athletic/5759725/2024/09/12/niclas-fullkrug-west-ham-injury/
-
-**Absentee Ballots Are Mailed in Alabama, the First State to Send Them Out**\
-`Mail ballots in North Carolina are also set to go out soon. In-person voting is set to start next week in parts of Pennsylvania and in Virginia.`\
-https://nytimes.com/2024/09/12/us/politics/first-absentee-ballots-election-voting.html
 

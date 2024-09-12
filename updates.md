@@ -1,3 +1,7 @@
+**Forest will benefit from Gibbs-White's England experience - Nuno**\
+`Nuno Espirito Santo believes the experience of making his senior England debut can help Morgan Gibbs-White evolve into an even better player with Nottingham Forest.`\
+https://nytimes.com/athletic/5762492/2024/09/12/gibbs-white-england-forest/
+
 **Jon Bon Jovi Helps Woman Off Ledge of Bridge**\
 `The singer, who was filming a music video nearby, helped coax a woman to safety in Nashville.`\
 https://nytimes.com/2024/09/12/us/jon-bon-jovi-woman-bridge.html
