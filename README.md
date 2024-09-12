@@ -1,3 +1,7 @@
+**After a Bruising Debate, Trump Finds Some Friends in Lower Manhattan**\
+`On 9/11, the former president got a warm welcome from New York City firefighters.`\
+https://nytimes.com/2024/09/11/us/elections/trump-sept-11-firefighters-new-york.html
+
 **Connor McDavid and Leon Draisaitl on how their contracts could change the game for NHL stars**\
 `Draisaitl, the NHL's top-paid player, says the Oilers stars can "get more money into hockey and get the players some higher salaries."`\
 https://nytimes.com/athletic/5761430/2024/09/11/connor-mcdavid-leon-draisaitl-oilers-contracts/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5761371/2024/09/11/mets-francisco-lindor-no-hitter/
 **67.1 Million People Watched Harris and Trump, Outdrawing Last Debate**\
 `The TV audience for the Harris-Trump matchup was roughly comparable to the second Trump-Clinton debate in 2016.`\
 https://nytimes.com/2024/09/11/business/media/harris-trump-debate-ratings.html
-
-**Former Realtor Employee Files Sexual Harassment Suit Against Trade Group**\
-`A woman who worked for the National Association of Realtors says she was fired after she reported instances of sexual harassment and discrimination, according to a federal lawsuit.`\
-https://nytimes.com/2024/09/11/realestate/nar-realtors-sexual-harassment-lawsuit.html
 
