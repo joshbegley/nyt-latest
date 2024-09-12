@@ -1,3 +1,7 @@
+**American Activist Killed in West Bank Will Be Buried in Turkey**\
+`The body of Aysenur Ezgi Eygi, a Turkish American dual citizen, was being sent to Turkey for her funeral. Her fatal shooting by Israeli forces has sparked outrage in both countries.`\
+https://nytimes.com/2024/09/12/world/middleeast/west-bank-shooting-turkey-aysenur-ezgi-eygi-burial.html
+
 **Pete Crow-Armstrong is awesome to watch. The Cubs still want to see better**\
 `Crow-Armstrong definitely has some sort of “it factor,” an entertaining mix of energy, joy and swagger.`\
 https://nytimes.com/athletic/5762047/2024/09/12/pete-crow-armstrong-cubs/
