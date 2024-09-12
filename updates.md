@@ -1,3 +1,7 @@
+**Loyalty, history and $5 beers: Why fans still come out to see the Chicago White Sox**\
+`The stands are mostly empty at Chicago's Guaranteed Rate Field, but some fans still come out to watch what may be the worst MLB team ever. `\
+https://nytimes.com/athletic/5757456/2024/09/12/fans-chicago-white-sox-worst-mlb-team/
+
 **How did Michigan's quarterback situation end up here?**\
 `It's become clear that Michigan doesn’t have a quarterback who can paper over its flaws and elevate an offense looking for playmakers.`\
 https://nytimes.com/athletic/5760674/2024/09/12/michigan-quarterbacks-j-j-mccarthy-davis-warren/
