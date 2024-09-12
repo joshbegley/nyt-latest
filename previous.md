@@ -1,3 +1,11 @@
+**Barcelona's La Liga salary limit has been more than doubled - this is what it means**\
+`New salary limits for Spain’s top-flight and second-division clubs were announced by La Liga this afternoon, with Barca’s going up`\
+https://nytimes.com/athletic/5762507/2024/09/12/barcelona-real-madrid-la-liga-salary-limit-update/
+
+**Israeli Commandos Carried Out Raid on Secret Weapons Site in Syria**\
+`The missile production facility was destroyed in the attack, according to Western officials. Syrian state media reported that 18 people were killed in the strike.`\
+https://nytimes.com/2024/09/12/us/politics/israel-raid-syria-weapons.html
+
 **Elevated Lead Levels Found in One-Third of Cinnamon Samples**\
 `Consumer Reports found lead in a variety of products, at a time when federal regulators are seeking authority from Congress to combat the problem of heavy metals in foods.`\
 https://nytimes.com/2024/09/12/health/lead-cinnamon.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5742448/2024/09/12/flames-mailbag-conroy-parekh/
 **Kuol recovering from quad injury at Newcastle United which prevented summer exit**\
 `Newcastle United forward Garang Kuol has suffered a grade three tear to his right quad, which disrupted a planned transfer window move.`\
 https://nytimes.com/athletic/5762764/2024/09/12/newcastle-united-garang-kuol-injury/
-
-**U.S. Mortgage Rates Continue to Fall**\
-`The average rate on 30-year mortgages declined to 6.2 percent this week, the lowest point since early 2023.`\
-https://nytimes.com/2024/09/12/business/mortgage-rates.html
-
-**U.S. Open stars Pegula and Navarro to clash at Madison Square Garden**\
-`The Garden Cup exhibition event sees the U.S. Open finalist and semifinalist face off.`\
-https://nytimes.com/athletic/5762662/2024/09/12/tennis-madison-square-garden-pegula-navarro-alcaraz-shelton/
 
