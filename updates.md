@@ -1,3 +1,11 @@
+**Is there a path for Riley Heidt to make the Wild roster? It's complicated**\
+`Heidt said he "100 percent" believes he's ready for the NHL, but he'll have to prove it because rostering him won't be easy.`\
+https://nytimes.com/athletic/5751022/2024/09/12/riley-heidt-wild-roster/
+
+**How the Seahawks and Patriots are preparing for Sunday's clash of similar styles**\
+`Both the Seahawks and Patriots expect to go "through, not around," which could make for a physical affair on Sunday.`\
+https://nytimes.com/athletic/5761505/2024/09/12/seattle-seahawks-new-england-patriots-kenneth-walker-iii/
+
 **Here’s the latest on the presidential race.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/09/12/us/harris-trump-election/heres-the-latest-on-the-presidential-race
