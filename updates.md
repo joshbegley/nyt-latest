@@ -1,3 +1,15 @@
+**The Pulse: Overnight conference realignment**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5760598/2024/09/12/pac-12-conference-realignment-the-pulse/
+
+**NFL Week 2 injury report: Jordan Love return unlikely, Achilles tendinitis a 'big deal' for CMC and more**\
+`Greg Scholz runs through the biggest fantasy football injury worries of Week 2, expressing doubts that Jordan Love can return by Sunday.`\
+https://nytimes.com/athletic/5761773/2024/09/12/week-2-injury-report-fantasy-football-jordan-love-cmc/
+
+**How tears and a telephone in Toronto changed Aryna Sabalenka's tennis life**\
+`How the world No. 2 rebuilt her serve, and her confidence - with the help of the team she calls family`\
+https://nytimes.com/athletic/5500511/2024/09/12/aryna-sabalenka-team-coach/
+
 **What Manchester United's financial results do and do not reveal about their PSR position**\
 `Manchester United say they are in compliance with PSR and acted as such during the transfer window, but the margins appear very tight`\
 https://nytimes.com/athletic/5762074/2024/09/12/manchester-united-psr-explained/

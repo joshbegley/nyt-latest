@@ -1,3 +1,11 @@
+**The Grenfell Fire and the Unbearable Slowness of Public Inquiries**\
+`Holding an inquiry has become one of the British government’s go-to responses to outrageous harm. But that approach can sometimes stall change and delay justice.`\
+https://nytimes.com/2024/09/12/world/europe/grenfell-fire-public-inquiry-failings-scandal.html
+
+**Bucks fan survey results: Title expectations shrink but belief in Giannis, Lillard remains high**\
+`After winning the NBA title in 2021, Bucks fans anticipated another. But after three early playoff exits, expectations have been tempered.`\
+https://nytimes.com/athletic/5759065/2024/09/12/bucks-fans-title-expectations-take-a-hit-but-belief-in-giannis-damian-lillard-remains-high/
+
 **The Pulse: Overnight conference realignment**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5760598/2024/09/12/pac-12-conference-realignment-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5761363/2024/09/12/49ers-vikings-kyle-shanahan-bria
 **Chiefs eager for Marquise Brown's return to show offense's full potential**\
 `Brown, the Chiefs’ biggest acquisition in free agency, could return from a dislocated collarbone this week but hasn't practiced yet.`\
 https://nytimes.com/athletic/5761098/2024/09/12/chiefs-marquise-brown-injury-return/
-
-**From Italy to Boise State, how RB Ashton Jeanty became a scoring sensation**\
-`Jeanty leads the FBS in yards rushing (459) and rushing touchdowns (nine) and chose to do it at Boise State despite plenty of other options.`\
-https://nytimes.com/athletic/5760957/2024/09/12/boise-state-ashton-jeanty-running-back/
-
-**Greenberg: Caleb Williams learning on the job, but the Bears also need to win now**\
-`They say everything is bigger in Texas. On Sunday night in Houston, Williams' play will loom larger than the analysis of what he can become.`\
-https://nytimes.com/athletic/5761562/2024/09/12/chicago-bears-caleb-williams/
 
