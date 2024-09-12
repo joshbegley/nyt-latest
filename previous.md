@@ -1,3 +1,7 @@
+**Luke Hughes to miss 6-8 weeks with shoulder injury**\
+`The injury was sustained earlier this month during offseason training and will not require surgery.`\
+https://nytimes.com/athletic/5763224/2024/09/12/luke-hughes-injury-devils-nhl/
+
 **7 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/09/12/books/review/new-books-recommendations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/12/technology/openai-chatgpt-math.html
 **‘The Rings of Power’ Season 2, Episode 5 Recap: Royal Pains**\
 `This week’s focus was largely on the deepening political drama in Numenor and Khazad-dum, where things have gotten predictably messy.`\
 https://nytimes.com/2024/09/12/arts/television/rings-of-power-recap-season-2-episode-5.html
-
-**NASCAR free agency: What we're hearing about Corey LaJoie, Justin Haley and more**\
-`What's next for Corey LaJoie? Will 23XI still add another car? Here's our latest look at where things stand is the NASCAR free-agency cycle.`\
-https://nytimes.com/athletic/5761311/2024/09/12/nascar-free-agency-corey-lajoie-justin-haley/
 

@@ -1,3 +1,7 @@
+**Luke Hughes to miss 6-8 weeks with shoulder injury**\
+`The injury was sustained earlier this month during offseason training and will not require surgery.`\
+https://nytimes.com/athletic/5763224/2024/09/12/luke-hughes-injury-devils-nhl/
+
 **7 New Books We Recommend This Week**\
 `Suggested reading from critics and editors at The New York Times.`\
 https://nytimes.com/2024/09/12/books/review/new-books-recommendations.html
