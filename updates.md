@@ -1,3 +1,7 @@
+**Pete Crow-Armstrong is awesome to watch. The Cubs still want to see better**\
+`Crow-Armstrong definitely has some sort of “it factor,” an entertaining mix of energy, joy and swagger.`\
+https://nytimes.com/athletic/5762047/2024/09/12/pete-crow-armstrong-cubs/
+
 **The Athletic FC: Mbappe's $60m wages row, Arteta's new deal, which players will Poch favour?**\
 `Today in TAFC: Mbappe's row with PSG over unpaid wages, Arteta signs new Arsenal deal, and who'll benefit from Pochettino taking USMNT job?`\
 https://nytimes.com/athletic/5762143/2024/09/12/mbappes-60m-wages-row-artetas-new-deal-which-players-will-pochettino-favour/
