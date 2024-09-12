@@ -1,3 +1,7 @@
+**NASCAR free agency: What we're hearing about Corey LaJoie, Justin Haley and more**\
+`What's next for Corey LaJoie? Will 23XI still add another car? Here's our latest look at where things stand is the NASCAR free-agency cycle.`\
+https://nytimes.com/athletic/5761311/2024/09/12/nascar-free-agency-corey-lajoie-justin-haley/
+
 **DeSantis Spars With Abortion Rights Backers Over Florida Ballot Measure**\
 `Florida’s governor has come under fire from critics who say he is using state resources to work against a proposed abortion-rights amendment to the State Constitution.`\
 https://nytimes.com/2024/09/12/us/desantis-abortion-ballot-petition-signatures.html
