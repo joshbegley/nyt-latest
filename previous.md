@@ -1,3 +1,7 @@
+**Antisemitic Ads About Doug Emhoff Target Muslim Voters in Michigan**\
+`An ad campaign in the state, funded by a group that appears tied to Republicans, seems designed to remind Muslim voters of Kamala Harris’s pro-Israel views and her husband’s Jewish faith.`\
+https://nytimes.com/2024/09/12/us/politics/antisemitic-ads-doug-emhoff-muslim-michigan.html
+
 **How a Cultural Shift Favors Harris**\
 `People can be bitter for only so long. Harris’s happy strength may offer a glimpse of a sunnier national mood to come.`\
 https://nytimes.com/2024/09/12/opinion/trump-harris-joy.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/elections/100000009689948/trump-refuses-debate.html
 **Until Saturday: Pac-12 makes its move, plus Week 3 viewers guide**\
 `Welcome to Until Saturday, the five-star college football newsletter: The Pac-12 made the latest move in college football realignment.`\
 https://nytimes.com/athletic/5762234/2024/09/12/pac-12-expansion-college-football-week-3-until-saturday/
-
-**Even Harris’s Strongest Supporters Long for More Details**\
-`They want specifics, particularly on her economic plans.`\
-https://nytimes.com/live/2024/09/11/opinion/thepoint/harris-charlotte-supporters-questions
 

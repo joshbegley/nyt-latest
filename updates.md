@@ -1,3 +1,7 @@
+**Antisemitic Ads About Doug Emhoff Target Muslim Voters in Michigan**\
+`An ad campaign in the state, funded by a group that appears tied to Republicans, seems designed to remind Muslim voters of Kamala Harris’s pro-Israel views and her husband’s Jewish faith.`\
+https://nytimes.com/2024/09/12/us/politics/antisemitic-ads-doug-emhoff-muslim-michigan.html
+
 **How a Cultural Shift Favors Harris**\
 `People can be bitter for only so long. Harris’s happy strength may offer a glimpse of a sunnier national mood to come.`\
 https://nytimes.com/2024/09/12/opinion/trump-harris-joy.html
