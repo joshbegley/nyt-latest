@@ -1,3 +1,11 @@
+**MTV Video Music Awards: 7 Memorable Moments**\
+`Taylor Swift set a record and Chappell Roan, Sabrina Carpenter and Katy Perry delivered noteworthy performances as the show struck a balance between past and present.`\
+https://nytimes.com/2024/09/12/arts/music/mtv-vma-moments.html
+
+**Juan Soto's injury scare helps propel Yankees to walk-off win over Royals**\
+`NEW YORK — Juan Soto hopped down the first base line as if he were playing the most painful game of hopscotch imaginable.`\
+https://nytimes.com/athletic/5761852/2024/09/12/juan-soto-injury-scare-yankees-walk-off-win/
+
 **Fantasy basketball 2024-25: Wemby, Christian Braun and 15 more players set for a significant playing time boost**\
 `Eric Wong begins your education for the 2024-25 fantasy basketball campaign by highlighting 17 players in line for a playing time boost.`\
 https://nytimes.com/athletic/5761509/2024/09/12/fantasy-basketball-playing-time-increase-wemby/
