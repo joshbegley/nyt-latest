@@ -1,3 +1,11 @@
+**DeSantis Spars With Abortion Rights Backers Over Florida Ballot Measure**\
+`Florida’s governor has come under fire from critics who say he is using state resources to work against a proposed abortion-rights amendment to the State Constitution.`\
+https://nytimes.com/2024/09/12/us/desantis-abortion-ballot-petition-signatures.html
+
+**U.S. Presses Nigeria to Release Imprisoned Binance Employee**\
+`Diplomats are calling for the release of Tigran Gambaryan, an employee of the crypto exchange who was arrested in February.`\
+https://nytimes.com/2024/09/12/technology/binance-nigeria-tigran-gambaryan.html
+
 **What does Craig Conroy need to achieve this season? Flames mailbag**\
 `Also, what's an NHL comparable for prospect Zayne Parekh? And will the Flames trade off more veterans?`\
 https://nytimes.com/athletic/5742448/2024/09/12/flames-mailbag-conroy-parekh/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/12/theater/shaw-festival-orphan-chao-snow-midsummer.
 **Ten players from Canucks, Oilers, Flames, Jets to watch at Young Stars tournament**\
 `Whether it's a recent first-round pick seeking to make a big first impression or a big offseason acquisition, keep an eye on these players.`\
 https://nytimes.com/athletic/5761989/2024/09/12/jets-canucks-oilers-flames-young-stars-nhl/
-
-**Residents Survived a Harrowing Night in Southern Louisiana**\
-`Rescuers evacuated some families that had been stranded, but waters were receding by morning in the state’s southern communities, near where Hurricane Francine made landfall.`\
-https://nytimes.com/2024/09/12/weather/morgan-city-thibodaux-francine.html
-
-**New Look at Landslide Potential Shows 44% of U.S. Is at Risk**\
-`A new federal database helps users determine the likelihood of their community experiencing a landslide.`\
-https://nytimes.com/2024/09/12/climate/landslide-risk-united-states.html
 
