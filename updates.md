@@ -1,3 +1,23 @@
+**Ten Hag says Ugarte available to make Man Utd debut against Southampton**\
+`Erik ten Hag says Manuel Ugarte is available to make his Manchester United debut against Southampton on Saturday despite only returning from international duty today (Thursday).`\
+https://nytimes.com/athletic/5762860/2024/09/12/manuel-ugarte-manchester-united-debut/
+
+**Linda Ronstadt Criticizes Trump Before He Appears at Venue Named for Her**\
+`The singer denounced the former president, singling out the impact of his administration’s family separations policy in Arizona, and endorsed Kamala Harris.`\
+https://nytimes.com/2024/09/12/us/politics/linda-ronstadt-donald-trump-toxic-politics.html
+
+**Missouri Judge Rejects Innocence Claim by Man on Death Row**\
+`Marcellus Williams, who was convicted in a 1998 killing, now faces execution later this month.`\
+https://nytimes.com/2024/09/12/us/marcellus-williams-death-row-innocence-claim-ruling.html
+
+**Police Commissioner Set to Quit as Investigations Batter Adams’s Circle**\
+`Edward Caban had been asked to resign after federal agents seized his phone as part of a criminal investigation, one of several involving members of the Adams administration.`\
+https://nytimes.com/2024/09/12/nyregion/edward-caban-resigns-nypd-commissioner.html
+
+**Fantasy football rankings Week 2: Sleepers, projections, starts, sits**\
+`Jake Ciely offers up his Week 2 fantasy football player rankings, along with sleepers and need-to-knows for each matchup.`\
+https://nytimes.com/athletic/5759303/2024/09/12/fantasy-football-rankings-week-2-sleepers-projections-starts-sits-2/
+
 **Joe Alt’s Chargers debut vs. Raiders shows all the traits that made him No. 5 pick**\
 `Alt more than held his own against the Raiders’ standout duo of Maxx Crosby and Christian Wilkins. `\
 https://nytimes.com/athletic/5760981/2024/09/12/joe-alt-chargers-debut-raiders-maxx-crosby/

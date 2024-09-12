@@ -1,3 +1,23 @@
+**Ten Hag says Ugarte available to make Man Utd debut against Southampton**\
+`Erik ten Hag says Manuel Ugarte is available to make his Manchester United debut against Southampton on Saturday despite only returning from international duty today (Thursday).`\
+https://nytimes.com/athletic/5762860/2024/09/12/manuel-ugarte-manchester-united-debut/
+
+**Linda Ronstadt Criticizes Trump Before He Appears at Venue Named for Her**\
+`The singer denounced the former president, singling out the impact of his administration’s family separations policy in Arizona, and endorsed Kamala Harris.`\
+https://nytimes.com/2024/09/12/us/politics/linda-ronstadt-donald-trump-toxic-politics.html
+
+**Missouri Judge Rejects Innocence Claim by Man on Death Row**\
+`Marcellus Williams, who was convicted in a 1998 killing, now faces execution later this month.`\
+https://nytimes.com/2024/09/12/us/marcellus-williams-death-row-innocence-claim-ruling.html
+
+**Police Commissioner Set to Quit as Investigations Batter Adams’s Circle**\
+`Edward Caban had been asked to resign after federal agents seized his phone as part of a criminal investigation, one of several involving members of the Adams administration.`\
+https://nytimes.com/2024/09/12/nyregion/edward-caban-resigns-nypd-commissioner.html
+
+**Fantasy football rankings Week 2: Sleepers, projections, starts, sits**\
+`Jake Ciely offers up his Week 2 fantasy football player rankings, along with sleepers and need-to-knows for each matchup.`\
+https://nytimes.com/athletic/5759303/2024/09/12/fantasy-football-rankings-week-2-sleepers-projections-starts-sits-2/
+
 **Violent Convulsions and Lost Speech: Listeria Survivors Describe Harrowing Illnesses**\
 `The outbreak, linked to Boar’s Head products, has been especially devastating for high-risk groups like pregnant women and older adults.`\
 https://nytimes.com/2024/09/12/well/listeria-survivors-boars-head.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/09/12/arts/charles-biasiny-rivera-dead.html
 **Greenberg and Jackson: Fading Deion's team, Browns-Jags under plus spread picks**\
 `The tables have turned! Zac Jackson attempts to claw his way back while Jon Greenberg hopes to build momentum with CFB and NFL bets.`\
 https://nytimes.com/athletic/5762579/2024/09/12/greenberg-and-jackson-nfl-cfb-spread-survivor/
-
-**Joe Alt’s Chargers debut vs. Raiders shows all the traits that made him No. 5 pick**\
-`Alt more than held his own against the Raiders’ standout duo of Maxx Crosby and Christian Wilkins. `\
-https://nytimes.com/athletic/5760981/2024/09/12/joe-alt-chargers-debut-raiders-maxx-crosby/
-
-**Chewy Brownie Cookies, Because I Don’t Like Playing Favorites**\
-`The fudgy, chocolaty goodness of a brownie meets the crisp edges of a cookie in Vaughn Vreeland’s perfect new recipe.`\
-https://nytimes.com/2024/09/12/dining/brownie-cookies.html
-
-**Why House Republicans Are Targeting China Weeks Before the Election**\
-`The G.O.P. pushed through an array of legislation to get tough on China, seeking to persuade voters that they are the party that will protect Americans from economic and military threats from Beijing.`\
-https://nytimes.com/2024/09/12/us/politics/china-congress-republicans.html
-
-**Cardinals' Marvin Harrison Jr. dismayed after poor Week 1 debut**\
-`One catch for 4 yards on three targets, including one drop, rightfully left the 2024 No. 4 pick frustrated.`\
-https://nytimes.com/athletic/5762744/2024/09/12/marvin-harrison-cardinals-poor-debut/
-
-**Navient Reaches $120 Million Student Loan Settlement With Consumer Watchdog**\
-`The company has been banned from servicing federal student loans and must pay $100 million to harmed borrowers, as well as a $20 million penalty.`\
-https://nytimes.com/2024/09/12/business/navient-settlement-student-loans.html
 
