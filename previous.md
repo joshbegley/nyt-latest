@@ -1,3 +1,7 @@
+**Jimmy Kimmel Chides Trump for His Debate Performance**\
+`“More than 67 million Americans watched the debate on television last night, and of that 67 million, the only one who seems to think Trump did a good job is Donald Trump,” Kimmel said.`\
+https://nytimes.com/2024/09/12/arts/television/jimmy-kimmel-trump-debate.html
+
 **Word of the Day: consternation**\
 `This word has appeared in 149 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/12/learning/word-of-the-day-consternation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5743790/2024/09/12/leeds-brenden-aaronson-joel-piro
 **Jean-Clair Todibo's 'miracle' comeback: 'He woke from a coma and said: 'I'll play football again''**\
 `After recovering from a coma, then disappointment at Barcelona, Todibo is being backed to become 'West Ham's Saliba'`\
 https://nytimes.com/athletic/5739298/2024/09/12/jean-clair-todibo-west-ham-coma-miracle/
-
-**Cutting passes, elite ball recovery and pressing - Tielemans has been transformed by Emery**\
-`The Belgian had a difficult start to life at Aston Villa but has gradually become a vital cog in the Spanish manager's style of play`\
-https://nytimes.com/athletic/5444805/2024/09/12/tielemans-transformed-emery-aston-villa/
 
