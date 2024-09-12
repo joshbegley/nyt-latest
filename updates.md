@@ -1,3 +1,7 @@
+**Arteta's new contract underlines the rare stability he has provided since coming 'home'**\
+`When Mikel Arteta arrived in 2019 Arsenal were in flux. Now, they have a manager with a deal taking him towards a decade in charge`\
+https://nytimes.com/athletic/5760561/2024/09/12/mikel-arteta-new-contract-arsenal/
+
 **Ronaldo on Man United and Erik ten Hag: 'They must rebuild everything'**\
 `Cristiano Ronaldo says Manchester United and manager Erik ten Hag must &#8220;rebuild everything&#8221; in order to compete with football&#8217;s elite again.`\
 https://nytimes.com/athletic/5761135/2024/09/12/cristiano-ronaldo-manchester-united-erik-ten-hag/
