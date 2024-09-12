@@ -1,3 +1,11 @@
+**Brain games: Living in the Week 2 moment with Terry McLaurin, Drake London and more**\
+`Renee Miller mixes in some psychology to help explain why you should start Terry McLaurin and a few other Week 1 duds this week.`\
+https://nytimes.com/athletic/5760272/2024/09/12/fantasy-football-week-2-brain-games-terry-mclaurin-drake-london/
+
+**Pac-12 targeting Boise State, 3 others for expansion**\
+`Each Mountain West school would be required to pay a $17 million exit fee for a planned leave more than a year in advance.`\
+https://nytimes.com/athletic/5761973/2024/09/12/pac-12-expansion-boise-state-san-diego-state-fresno-state-colorado-state/
+
 **MTV Video Music Awards: 7 Memorable Moments**\
 `Taylor Swift set a record and Chappell Roan, Sabrina Carpenter and Katy Perry delivered noteworthy performances as the show struck a balance between past and present.`\
 https://nytimes.com/2024/09/12/arts/music/mtv-vma-moments.html

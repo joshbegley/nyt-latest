@@ -1,3 +1,11 @@
+**Brain games: Living in the Week 2 moment with Terry McLaurin, Drake London and more**\
+`Renee Miller mixes in some psychology to help explain why you should start Terry McLaurin and a few other Week 1 duds this week.`\
+https://nytimes.com/athletic/5760272/2024/09/12/fantasy-football-week-2-brain-games-terry-mclaurin-drake-london/
+
+**Pac-12 targeting Boise State, 3 others for expansion**\
+`Each Mountain West school would be required to pay a $17 million exit fee for a planned leave more than a year in advance.`\
+https://nytimes.com/athletic/5761973/2024/09/12/pac-12-expansion-boise-state-san-diego-state-fresno-state-colorado-state/
+
 **MTV Video Music Awards: 7 Memorable Moments**\
 `Taylor Swift set a record and Chappell Roan, Sabrina Carpenter and Katy Perry delivered noteworthy performances as the show struck a balance between past and present.`\
 https://nytimes.com/2024/09/12/arts/music/mtv-vma-moments.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5444805/2024/09/12/tielemans-transformed-emery-asto
 **What I'm seeing at Newcastle: Passing problems, the Howe-Mitchell dynamic and Tonali affirmation**\
 `Our writer details what is going on at the club following the end of the international break and the return of Premier League football`\
 https://nytimes.com/athletic/5759751/2024/09/12/what-i-am-seeing-newcastle/
-
-**Fantasy trends and hidden gems: Our projections vs. Yahoo ADP**\
-`Shayna Goldman highlights the the players with the biggest value discrepancies between The Athletic's projections and Yahoo ADP.`\
-https://nytimes.com/athletic/5760880/2024/09/12/fantasy-hockey-trends-hidden-gems-projections-vs-yahoo-adp/
-
-**Twins feeling 'urgency' with Byron Buxton set to return from IL Friday**\
-`Rocco Baldelli changed his bullpen usage to secure a key win over the Angels and then announced Buxton's return from a month-long injury.`\
-https://nytimes.com/athletic/5761797/2024/09/12/byron-buxton-return-twins-urgency/
 
