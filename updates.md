@@ -1,3 +1,11 @@
+**Rewards for a ‘Good Boy’**\
+`Parker Higgins needs our help making good matches.`\
+https://nytimes.com/2024/09/11/crosswords/daily-puzzle-2024-09-12.html
+
+**After a Bruising Debate, Trump Is Warmly Embraced in Lower Manhattan**\
+`On 9/11, firefighters greeted the former president with high fives and hugs. But across the street, other New Yorkers were icy.`\
+https://nytimes.com/2024/09/11/us/elections/trump-sept-11-firefighters-new-york.html
+
 **Officers Beat Tyre Nichols as ‘Run Tax’ for Trying to Flee, Prosecutors Say**\
 `Federal prosecutors began their case against three former Memphis police officers with an explosive accusation, while defense lawyers said that the officers had acted in line with their training.`\
 https://nytimes.com/2024/09/11/us/tyre-nichols-memphis-police-trial.html
