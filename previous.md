@@ -1,3 +1,11 @@
+**Fantasy basketball 2024-25: Wemby, Christian Braun and 15 more players set for a significant playing time boost**\
+`Eric Wong begins your education for the 2024-25 fantasy basketball campaign by highlighting 17 players in line for a playing time boost.`\
+https://nytimes.com/athletic/5761509/2024/09/12/fantasy-basketball-playing-time-increase-wemby/
+
+**FPL: How the international break affects your plans for Gameweek 4**\
+`There were a handful of injuries that may just impact your thinking for Gameweek 4 but some highly-owned assets escaped unscathed`\
+https://nytimes.com/athletic/5759741/2024/09/12/fantasy-premier-league-international-break-gw4/
+
 **Aaronson and Piroe are very different players. So who does Farke pick at No 10?**\
 `Leeds must make a choice at No 10 after selling Georginio Rutter - and they have two very different options for that role`\
 https://nytimes.com/athletic/5743790/2024/09/12/leeds-brenden-aaronson-joel-piroe-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5760046/2024/09/12/kevin-de-bruyne-belgium-future/
 **In S​outh Korea, Online Misogyny Has a New Weapon: Deepfake Sex Videos**\
 `Men in chat rooms have been victimizing women they know by putting their faces on pornographic clips. Some Korean women say the only thing new about it is the technology.`\
 https://nytimes.com/2024/09/12/world/asia/south-korea-deepfake-videos.html
-
-**Federico Chiesa's journey to Anfield: Big moments, big bang theory and emulating his father**\
-`Liverpool's new signing broke through as a teenager at Fiorentina, after considering studying physics instead. This is his story so far…`\
-https://nytimes.com/athletic/5757576/2024/09/12/federico-chiesa-liverpool-background-profile/
-
-**Barca captains: 'Godfather' Pedri, surprise choice Raphinha - and where's Lewandowski?**\
-`Barca's new leadership group as voted for by the squad threw up some surprises`\
-https://nytimes.com/athletic/5759896/2024/09/12/barcelona-captains-ter-stegen-pedri-raphinha/
 

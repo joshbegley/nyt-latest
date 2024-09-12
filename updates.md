@@ -1,3 +1,11 @@
+**Fantasy basketball 2024-25: Wemby, Christian Braun and 15 more players set for a significant playing time boost**\
+`Eric Wong begins your education for the 2024-25 fantasy basketball campaign by highlighting 17 players in line for a playing time boost.`\
+https://nytimes.com/athletic/5761509/2024/09/12/fantasy-basketball-playing-time-increase-wemby/
+
+**FPL: How the international break affects your plans for Gameweek 4**\
+`There were a handful of injuries that may just impact your thinking for Gameweek 4 but some highly-owned assets escaped unscathed`\
+https://nytimes.com/athletic/5759741/2024/09/12/fantasy-premier-league-international-break-gw4/
+
 **Aaronson and Piroe are very different players. So who does Farke pick at No 10?**\
 `Leeds must make a choice at No 10 after selling Georginio Rutter - and they have two very different options for that role`\
 https://nytimes.com/athletic/5743790/2024/09/12/leeds-brenden-aaronson-joel-piroe-analysis/
