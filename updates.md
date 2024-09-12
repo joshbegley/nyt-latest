@@ -1,3 +1,11 @@
+**3 Red Cross Workers Killed in Ukraine by Shelling**\
+`The aid workers lost their lives as they were preparing to distribute heating supplies in preparation for winter in the region of Donetsk.`\
+https://nytimes.com/2024/09/12/world/europe/red-cross-ukraine-deaths.html
+
+**Mahomes encourages voter registration, but will not endorse candidate**\
+`Mahomes: "I think I've always said I don't want my place and my platform to be used to endorse a candidate or do whatever either way."`\
+https://nytimes.com/athletic/5763122/2024/09/12/patrick-mahomes-presidential-endorsement/
+
 **Why Your Favorite Restaurant Sounds Like That**\
 `Owners are putting more thought than ever into the music playing through their speakers, sometimes tapping professionals for help.`\
 https://nytimes.com/2024/09/12/dining/restaurant-playlist.html

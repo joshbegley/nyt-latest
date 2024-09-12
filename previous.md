@@ -1,3 +1,11 @@
+**3 Red Cross Workers Killed in Ukraine by Shelling**\
+`The aid workers lost their lives as they were preparing to distribute heating supplies in preparation for winter in the region of Donetsk.`\
+https://nytimes.com/2024/09/12/world/europe/red-cross-ukraine-deaths.html
+
+**Mahomes encourages voter registration, but will not endorse candidate**\
+`Mahomes: "I think I've always said I don't want my place and my platform to be used to endorse a candidate or do whatever either way."`\
+https://nytimes.com/athletic/5763122/2024/09/12/patrick-mahomes-presidential-endorsement/
+
 **Why Your Favorite Restaurant Sounds Like That**\
 `Owners are putting more thought than ever into the music playing through their speakers, sometimes tapping professionals for help.`\
 https://nytimes.com/2024/09/12/dining/restaurant-playlist.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5763342/2024/09/12/joan-martinez-real-madrid-contra
 **49ers’ Jordan Mason got the Fred Warner treatment this summer — and it’s paying off**\
 `A secret to Mason's stamina success — surviving spring and summer workouts with Warner and his linebacking crew.`\
 https://nytimes.com/athletic/5763203/2024/09/12/49ers-jordan-mason-fred-warner/
-
-**Ex-C.I.A. Officer Who Spied for China Is Sentenced to 10 Years in Prison**\
-`The former officer, who also worked as a contract translator for the F.B.I., provided classified documents to Beijing.`\
-https://nytimes.com/2024/09/12/us/alexander-yuk-ching-ma-china-spy-sentenced.html
-
-**Mark Jury, Whose Photography Captured War and Death, Dies at 80**\
-`He created one of the first photo books about the Vietnam War — the first “rock ’n’ roll war,” he called it — and later documented his grandfather’s struggle with dementia.`\
-https://nytimes.com/2024/09/12/books/mark-jury-dead.html
 
