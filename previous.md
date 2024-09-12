@@ -1,3 +1,11 @@
+**A night inside the county storm center that was rebuilt after Katrina’s destruction.**\
+`By Isabelle Taft`\
+https://nytimes.com/live/2024/09/12/weather/hurricane-francine-louisiana/mississippi-hancock-county
+
+**A Corporate Minimum Tax Aimed at Closing ‘Loopholes’ Leaves Gaps**\
+`The Treasury Department estimates that a new law requiring big companies to pay a 15 percent tax will raise $250 billion from large corporations over the next 10 years.`\
+https://nytimes.com/2024/09/12/us/politics/corporate-minimum-tax-loopholes.html
+
 **Fullkrug injury to be assessed before Fulham match - Lopetegui**\
 `West Ham United head coach Julen Lopetegui says Niclas Fullkrug will be assessed on Friday before making a final decision on his availability for Saturday&#8217;s Premier League match against Fulham.`\
 https://nytimes.com/athletic/5759725/2024/09/12/niclas-fullkrug-west-ham-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5751022/2024/09/12/riley-heidt-wild-roster/
 **NHL monitoring teams' income-tax advantages, but 'there are no easy fixes'**\
 `Some players believe a salary-cap advantage is created based on geography, but is there a solution?`\
 https://nytimes.com/athletic/5760827/2024/09/12/nhl-panthers-lightning-income-tax-advantages/
-
-**Joe Alt’s Chargers debut vs. Raiders shows all the traits that made him No. 5 pick**\
-`Alt more than held his own against the Raiders’ standout duo of Maxx Crosby and Christian Wilkins. `\
-https://nytimes.com/athletic/5760981/2024/09/12/joe-alt-chargers-debut-raiders-maxx-crosby/
-
-**How the Seahawks and Patriots are preparing for Sunday's clash of similar styles**\
-`Both the Seahawks and Patriots expect to go "through, not around," which could make for a physical affair on Sunday.`\
-https://nytimes.com/athletic/5761505/2024/09/12/seattle-seahawks-new-england-patriots-kenneth-walker-iii/
 
