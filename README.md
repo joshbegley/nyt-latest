@@ -1,3 +1,11 @@
+**United States Backs Africa’s U.N. Security Council Bid, With a Catch**\
+`The announcement provides U.S. support to permanent council seats for African nations, though not new veto powers. But the path to adding members requires far more than White House approval.`\
+https://nytimes.com/2024/09/12/world/africa/us-un-security-council-africa-permanent-seats.html
+
+**Bob Weatherwax, Trainer of Lassie and Other Celebrity Dogs, Dies at 83**\
+`Like his father, who taught him the interdisciplinary roles needed for the job, he trained and bred animals seen on television and in movies.`\
+https://nytimes.com/2024/09/12/movies/bob-weatherwax-dead.html
+
 **Emerson: The QB decisions Florida's Billy Napier, Auburn's Hugh Freeze make will say a lot**\
 `What should Florida and Auburn do at quarterback? Those will be intriguing decisions moving forward this season.`\
 https://nytimes.com/athletic/5762963/2024/09/12/auburn-florida-quarterbacks-hugh-freeze-billy-napier-college-football/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/12/health/chatbot-debunk-conspiracy-theories.html
 **North Dakota’s Abortion Ban Is Overturned**\
 `A judge ruled that the State Constitution protected a woman’s right to abortion until the fetus was viable. The decision will surely be appealed.`\
 https://nytimes.com/2024/09/12/us/north-dakota-abortion-ban-overturned.html
-
-**What’s Going On in This Picture? | Sept. 16, 2024**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2024/09/12/learning/whats-going-on-in-this-picture-sept-16-2024.html
-
-**Bruce Feldman’s Week 3 college football picks against the spread**\
-`Can Wisconsin make Alabama sweat in Madison? Will Notre Dame get back on track at Purdue? Will Indiana make a statement at UCLA?`\
-https://nytimes.com/athletic/5763304/2024/09/12/college-football-picks-against-the-spread-bruce-feldmans-week-3-predictions/
 
