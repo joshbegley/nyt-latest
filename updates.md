@@ -1,3 +1,7 @@
+**Clark's Wilson basketball sells out in less than an hour**\
+`Clark's basketballs sold out in reportedly less than 40 minutes.`\
+https://nytimes.com/athletic/5763745/2024/09/12/caitlin-clark-fever-wilson-basketballs/
+
 **Justice Dept. Official Calls Election Meddling a ‘Clear and Present Danger’**\
 `The head of the department’s national security division amplified warnings that other countries were seeking to sway the outcome in November, including Russia’s efforts to help Donald Trump.`\
 https://nytimes.com/2024/09/12/us/politics/justice-department-election-russia.html
