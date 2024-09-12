@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/09/12/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**American Activist Killed in West Bank Will Be Buried in Turkey**\
+`The body of Aysenur Ezgi Eygi, a Turkish American dual citizen, was being sent to Turkey for her funeral. Her fatal shooting by Israeli forces has sparked outrage in both countries.`\
+https://nytimes.com/2024/09/12/world/middleeast/west-bank-shooting-turkey-aysenur-ezgi-eygi-burial.html
+
 **OpenAI Aims for a $150 Billion Valuation**\
 `The ChatGPT maker is closing in on another mega funding round as investors bet the boom in artificial intelligence has plenty of room to grow.`\
 https://nytimes.com/2024/09/12/business/dealbook/openai-valuation-artificial-intelligence.html
