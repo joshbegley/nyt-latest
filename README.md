@@ -1,3 +1,27 @@
+**Clothes That Command Attention**\
+`At New York Fashion Week, the breadth of people on the streets meant there was no shortage of great outfits.`\
+https://nytimes.com/2024/09/12/style/nyfw-outfits-fashion.html
+
+**Cuomo Legal Bills Have Cost N.Y. Taxpayers $25.4 Million and Counting**\
+`Former Gov. Andrew M. Cuomo and his aides have mounted a forceful defense, paid for by state taxpayers, against accusations of sexual harassment and other misconduct.`\
+https://nytimes.com/2024/09/12/nyregion/andrew-cuomo-legal-fees-ny-taxpayers.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/12/crosswords/spelling-bee-forum.html
+
+**Happy the Elephant Hasn’t Been Seen in Months. What’s Going On?**\
+`The star attraction of the Bronx Zoo hasn’t been seen since July. The zoo says she’s fine. Animal rights activists are not so sure.`\
+https://nytimes.com/2024/09/12/nyregion/happy-the-elephant-bronx-zoo.html
+
+**Calvin Klein Tries Something New**\
+`The buzzy designer Nensi Dojaka will offer a moodier take on the famous underwear. No tight white briefs or sweaty six-packs in sight.`\
+https://nytimes.com/2024/09/12/style/nensi-dojaka-calvin-klein-lingerie-london-fashion-week-.html
+
+**Arteta agrees new Arsenal contract**\
+`Mikel Arteta has committed his long-term future to Arsenal by agreeing a new contract, which will secure him to the Emirates Stadium until 2027.`\
+https://nytimes.com/athletic/5714657/2024/09/12/mikel-arteta-new-arsenal-contract/
+
 **Fernando Tatis Jr. shines, but Padres are reminded of thinning margin for error**\
 `San Diego dropped behind Arizona in the race for the National League’s top wild-card spot for the first time since Sept. 1.`\
 https://nytimes.com/athletic/5762012/2024/09/12/fernando-tatis-jr-padres-wild-card/
@@ -13,28 +37,4 @@ https://nytimes.com/2024/09/12/learning/word-of-the-day-consternation.html
 **Brain games: Living in the Week 2 moment with Terry McLaurin, Drake London and more**\
 `Renee Miller mixes in some psychology to help explain why you should start Terry McLaurin and a few other Week 1 duds this week.`\
 https://nytimes.com/athletic/5760272/2024/09/12/fantasy-football-week-2-brain-games-terry-mclaurin-drake-london/
-
-**Pac-12 targeting Boise State, 3 others for expansion**\
-`Each Mountain West school would be required to pay a $17 million exit fee for a planned leave more than a year in advance.`\
-https://nytimes.com/athletic/5761973/2024/09/12/pac-12-expansion-boise-state-san-diego-state-fresno-state-colorado-state/
-
-**MTV Video Music Awards: 7 Memorable Moments**\
-`Taylor Swift set a record and Chappell Roan, Sabrina Carpenter and Katy Perry delivered noteworthy performances as the show struck a balance between past and present.`\
-https://nytimes.com/2024/09/12/arts/music/mtv-vma-moments.html
-
-**Juan Soto's injury scare helps propel Yankees to walk-off win over Royals**\
-`NEW YORK — Juan Soto hopped down the first-base line as if he were playing the most painful game of hopscotch imaginable.`\
-https://nytimes.com/athletic/5761852/2024/09/12/juan-soto-injury-scare-yankees-walk-off-win/
-
-**Fantasy basketball 2024-25: Wemby, Christian Braun and 15 more players set for a significant playing time boost**\
-`Eric Wong begins your education for the 2024-25 fantasy basketball campaign by highlighting 17 players in line for a playing time boost.`\
-https://nytimes.com/athletic/5761509/2024/09/12/fantasy-basketball-playing-time-increase-wemby/
-
-**FPL: How the international break affects your plans for Gameweek 4**\
-`There were a handful of injuries that may just impact your thinking for Gameweek 4 but some highly-owned assets escaped unscathed`\
-https://nytimes.com/athletic/5759741/2024/09/12/fantasy-premier-league-international-break-gw4/
-
-**Aaronson and Piroe are very different players. So who does Farke pick at No 10?**\
-`Leeds must make a choice at No 10 after selling Georginio Rutter - and they have two very different options for that role`\
-https://nytimes.com/athletic/5743790/2024/09/12/leeds-brenden-aaronson-joel-piroe-analysis/
 
