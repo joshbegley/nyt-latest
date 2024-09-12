@@ -1,3 +1,7 @@
+**Francine Floods New Orleans Areas Scarred by Past Storms**\
+`Southern Louisiana residents braced for floods as the storm passed through. Many were in neighborhoods that were battered by Katrina and Ida.`\
+https://nytimes.com/2024/09/12/weather/hurricane-francine-new-orleans-katrina-ida.html
+
 **Ten MLB prospects who are primed to make Bowden's top 50 in 2025**\
 `These prospects just missed the cut on Bowden's top 50 this year but are all intriguing talents who appear to have bright futures. `\
 https://nytimes.com/athletic/5760862/2024/09/12/mlb-top-prospects-2024-2025/
