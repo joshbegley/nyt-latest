@@ -23,7 +23,7 @@ https://nytimes.com/athletic/5763270/2024/09/12/acc-conference-realignment-flori
 https://nytimes.com/2024/09/12/learning/what-students-are-saying-about-summer-vacation-and-heading-back-to-school.html
 
 **Rafael Nadal withdraws from Laver Cup**\
-`The 22-time Grand Slam champion had slated the exhibition tournament as his final event of the year.`\
+`The 22-time Grand Slam champion had slated the exhibition-style team tournament as his final event of the year.`\
 https://nytimes.com/athletic/5763349/2024/09/12/nadal-laver-cup-teams-2024/
 
 **College football Week 3 model projections: Predicted scores for every game**\
