@@ -1,3 +1,7 @@
+**Ronaldo on Man United and Erik ten Hag: 'They must rebuild everything'**\
+`Cristiano Ronaldo says Manchester United and manager Erik ten Hag must &#8220;rebuild everything&#8221; in order to compete with football&#8217;s elite again.`\
+https://nytimes.com/athletic/5761135/2024/09/12/cristiano-ronaldo-manchester-united-erik-ten-hag/
+
 **Clothes That Command Attention**\
 `At New York Fashion Week, the breadth of people on the streets meant there was no shortage of great outfits.`\
 https://nytimes.com/2024/09/12/style/nyfw-outfits-fashion.html
