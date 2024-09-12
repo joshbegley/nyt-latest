@@ -1,3 +1,7 @@
+**What to Know About New York City’s Interim Police Commissioner**\
+`Before being appointed by Mayor Eric Adams, Thomas Donlon ran a security company and was New York State’s head of homeland security.`\
+https://nytimes.com/2024/09/12/nyregion/thomas-donlon-nypd.html
+
 **Mexico Remakes Its Entire Judicial System as States Back Vast Overhaul**\
 `The plan, championed by Mexico’s president, would have voters elect judges at every level, dramatically restructuring the third branch of government.`\
 https://nytimes.com/2024/09/12/world/americas/mexico-courts-overhaul-states-approve.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5761146/2024/09/12/browns-deshaun-watson-quarterbac
 **‘Big Weather Break’ Gives California Firefighters the Upper Hand**\
 `Cooler temperatures and higher humidity enabled crews to gain ground on major fires in San Bernardino, Orange and Riverside counties.`\
 https://nytimes.com/2024/09/12/us/california-firefighters-wildfires-relief.html
-
-**10-Minute Challenge: ‘The Unicorn Rests in a Garden’**\
-`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
-https://nytimes.com/interactive/2024/09/12/upshot/ten-minute-challenge-unicorn.html
 
