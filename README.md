@@ -1,3 +1,7 @@
+**Pete Crow-Armstrong is awesome to watch. The Cubs still want to see better**\
+`Crow-Armstrong definitely has some sort of “it factor,” an entertaining mix of energy, joy and swagger.`\
+https://nytimes.com/athletic/5762047/2024/09/12/pete-crow-armstrong-cubs/
+
 **The Athletic FC: Mbappe's $60m wages row, Arteta's new deal, which players will Poch favour?**\
 `Today in TAFC: Mbappe's row with PSG over unpaid wages, Arteta signs new Arsenal deal, and who'll benefit from Pochettino taking USMNT job?`\
 https://nytimes.com/athletic/5762143/2024/09/12/mbappes-60m-wages-row-artetas-new-deal-which-players-will-pochettino-favour/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5761114/2024/09/12/fabian-lysell-bruins-roster/
 **‘Winner’ Review: Not Like Other Girls**\
 `This dramedy starring Emilia Jones depicts the life and times of Reality Winner, a former National Security Agency contractor and whistle-blower.`\
 https://nytimes.com/2024/09/12/movies/winner-review.html
-
-**‘Girls Will Be Girls’ Review: Surviving High School**\
-`The filmmaker Shuchi Talati’s debut feature follows a model student and her stifled mother, who are both vying for the attention of a new crush.`\
-https://nytimes.com/2024/09/12/movies/girls-will-be-girls-review.html
 
