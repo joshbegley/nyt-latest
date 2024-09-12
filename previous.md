@@ -1,3 +1,19 @@
+**Adderall in Higher Doses May Raise Psychosis Risk, Study Says**\
+`New research suggests that dosage plays a role in a rare side effect of A.D.H.D. stimulants.`\
+https://nytimes.com/2024/09/12/well/mind/adderall-vyvanse-mania-psychosis-study.html
+
+**Mallo guilty of sexual assault on woman in Espanyol mascot costume**\
+`Former Celta Vigo defender Hugo Mallo has been found guilty of sexually assaulting a woman who was working as a mascot for Espanyol.`\
+https://nytimes.com/athletic/5762094/2024/09/12/hugo-mallo-guilty-espanyol-mascot-costume/
+
+**Chiles: Olympic bronze controversy took away 'recognition of who I was'**\
+`Chiles said she was "left in the dark" with the lack of support from people she thought would help her navigate the controversy.`\
+https://nytimes.com/athletic/5762453/2024/09/12/jordan-chiles-olympic-bronze-comments/
+
+**The Windup: Let Ohtani keep astounding you**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5762940/2024/09/12/shohei-ohtani-home-runs-stolen-bases-the-windup/
+
 **Ten Hag says Ugarte available to make Man Utd debut against Southampton**\
 `Erik ten Hag says Manuel Ugarte is available to make his Manchester United debut against Southampton on Saturday despite only returning from international duty today (Thursday).`\
 https://nytimes.com/athletic/5762860/2024/09/12/manuel-ugarte-manchester-united-debut/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5759303/2024/09/12/fantasy-football-rankings-week-2
 **Violent Convulsions and Lost Speech: Listeria Survivors Describe Harrowing Illnesses**\
 `The outbreak, linked to Boar’s Head products, has been especially devastating for high-risk groups like pregnant women and older adults.`\
 https://nytimes.com/2024/09/12/well/listeria-survivors-boars-head.html
-
-**Russian Forces Are Stepping Up Attacks on Strategic City, Ukraine Says**\
-`Bombardments are increasing in and around Pokrovsk, Ukrainian officials said, with water supplies now cut and a road overpass destroyed.`\
-https://nytimes.com/2024/09/12/world/europe/russia-ukraine-pokrovsk-attacks.html
-
-**‘Chaos’ Reigns!**\
-`‘Chaos’ is an unruly word for a volatile time. The election is the least of it.`\
-https://nytimes.com/interactive/2024/09/12/books/chaos-meaning-word.html
-
-**Charles Biasiny-Rivera, Champion of Latino Photography, Dies at 93**\
-`A New Yorker of Puerto Rican descent, he helped start a collective that brought recognition to Hispanic photographers and illuminated life in the city’s barrios.`\
-https://nytimes.com/2024/09/12/arts/charles-biasiny-rivera-dead.html
-
-**Greenberg and Jackson: Fading Deion's team, Browns-Jags under plus spread picks**\
-`The tables have turned! Zac Jackson attempts to claw his way back while Jon Greenberg hopes to build momentum with CFB and NFL bets.`\
-https://nytimes.com/athletic/5762579/2024/09/12/greenberg-and-jackson-nfl-cfb-spread-survivor/
 
