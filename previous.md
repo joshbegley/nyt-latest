@@ -1,3 +1,11 @@
+**Satellite TV Is in Trouble. DirecTV’s Dispute With Disney Shows Why.**\
+`While the cable TV business is declining quickly, satellite TV is decaying even faster.`\
+https://nytimes.com/2024/09/12/business/media/directv-disney-dispute.html
+
+**Something Important Is Happening With JD Vance, Laura Loomer, Project 2025 and Donald Trump**\
+`To me, this is the biggest political dynamic coming out of Tuesday’s debate.`\
+https://nytimes.com/2024/09/11/opinion/trump-vance-loomer-weird.html
+
 **Barcelona's La Liga salary limit has been more than doubled - this is what it means**\
 `New salary limits for Spain’s top-flight and second-division clubs were announced by La Liga this afternoon, with Barca’s going up`\
 https://nytimes.com/athletic/5762507/2024/09/12/barcelona-real-madrid-la-liga-salary-limit-update/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/12/us/desantis-abortion-ballot-petition-signatures.h
 **U.S. Presses Nigeria to Release Imprisoned Binance Employee**\
 `Diplomats are calling for the release of Tigran Gambaryan, an employee of the crypto exchange who was arrested in February.`\
 https://nytimes.com/2024/09/12/technology/binance-nigeria-tigran-gambaryan.html
-
-**What does Craig Conroy need to achieve this season? Flames mailbag**\
-`Also, what's an NHL comparable for prospect Zayne Parekh? And will the Flames trade off more veterans?`\
-https://nytimes.com/athletic/5742448/2024/09/12/flames-mailbag-conroy-parekh/
-
-**Kuol recovering from quad injury at Newcastle United which prevented summer exit**\
-`Newcastle United forward Garang Kuol has suffered a grade three tear to his right quad, which disrupted a planned transfer window move.`\
-https://nytimes.com/athletic/5762764/2024/09/12/newcastle-united-garang-kuol-injury/
 

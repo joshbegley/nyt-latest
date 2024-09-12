@@ -1,3 +1,11 @@
+**Satellite TV Is in Trouble. DirecTV’s Dispute With Disney Shows Why.**\
+`While the cable TV business is declining quickly, satellite TV is decaying even faster.`\
+https://nytimes.com/2024/09/12/business/media/directv-disney-dispute.html
+
+**Something Important Is Happening With JD Vance, Laura Loomer, Project 2025 and Donald Trump**\
+`To me, this is the biggest political dynamic coming out of Tuesday’s debate.`\
+https://nytimes.com/2024/09/11/opinion/trump-vance-loomer-weird.html
+
 **Barcelona's La Liga salary limit has been more than doubled - this is what it means**\
 `New salary limits for Spain’s top-flight and second-division clubs were announced by La Liga this afternoon, with Barca’s going up`\
 https://nytimes.com/athletic/5762507/2024/09/12/barcelona-real-madrid-la-liga-salary-limit-update/
