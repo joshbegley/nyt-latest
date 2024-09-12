@@ -1,3 +1,7 @@
+**Lloyd: Browns need Deshaun Watson exit strategy fast. And why are they playing him?**\
+`Watson maintained his innocence Wednesday against a sexual assualt allegation and said the team has his back. At this point, it shouldn't.`\
+https://nytimes.com/athletic/5761146/2024/09/12/browns-deshaun-watson-quarterback-lawsuit/
+
 **‘Big Weather Break’ Gives California Firefighters the Upper Hand**\
 `Cooler temperatures and higher humidity enabled crews to gain ground on major fires in San Bernardino, Orange and Riverside counties.`\
 https://nytimes.com/2024/09/12/us/california-firefighters-wildfires-relief.html
@@ -10,9 +14,9 @@ https://nytimes.com/interactive/2024/09/12/upshot/ten-minute-challenge-unicorn.h
 `A mainstay of the rock ’n’ roll nostalgia band, he also wrote the lyrics to “Sandy,” a song heard in the hit film “Grease.”`\
 https://nytimes.com/2024/09/12/arts/music/scott-simon-dead.html
 
-**New Hampshire Enacts New Photo Identification Requirement for Voters**\
-`The law does not take effect for 60 days, so it will have no impact on the November elections.`\
-https://nytimes.com/2024/09/12/us/politics/new-hampshire-enacts-new-photo-identification-requirement-for-voters.html
+**New Hampshire Tightens Requirements for Voters**\
+`The law adds the need for photo identification to cast a ballot and demands that first-time voters show proof of citizenship. The law does not take effect until after the November elections.`\
+https://nytimes.com/2024/09/12/us/politics/new-hampshire-voters-photo-id.html
 
 **Trump Says ‘There Will Be No Third Debate’**\
 `During a rally in Tucson, Ariz., Donald J. Trump doubled down on what he had said on Truth Social about declining another debate.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/12/us/politics/harris-trump-second-debate.html
 **Harris Challenges Trump to a Second Debate**\
 `At her first post-debate event in Charlotte, N.C., Vice President Kamala Harris challenged former President Donald J. Trump to another onstage face-off, even though he declared earlier in the day that he would not be participating in another.`\
 https://nytimes.com/video/us/elections/100000009689908/kamala-harris-north-carolina-trump.html
-
-**At the Maxi Yacht Rolex Cup, Strong Winds Are Always a Factor**\
-`This year a 100-foot class will earn a Maxi World Championship title for the first time, but gale winds forced the big boats to stay in the harbor as racing began.`\
-https://nytimes.com/2024/09/12/sports/sailing/maxi-yacht-rolex-cup-winds.html
 
