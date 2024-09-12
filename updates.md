@@ -1,3 +1,19 @@
+**10-Minute Challenge: ‘The Unicorn Rests in a Garden’**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://nytimes.com/interactive/2024/09/12/upshot/ten-minute-challenge-unicorn.html
+
+**Screamin’ Scott Simon, Longtime Sha Na Na Keyboardist, Dies at 75**\
+`A mainstay of the rock ’n’ roll nostalgia band, he also wrote the lyrics to “Sandy,” a song heard in the hit film “Grease.”`\
+https://nytimes.com/2024/09/12/arts/music/scott-simon-dead.html
+
+**New Hampshire Enacts New Photo Identification Requirement for Voters**\
+`The law does not take effect for 60 days, so it will have no impact on the November elections.`\
+https://nytimes.com/2024/09/12/us/politics/new-hampshire-enacts-new-photo-identification-requirement-for-voters.html
+
+**Trump Says ‘There Will Be No Third Debate’**\
+`During a rally in Tucson, Ariz., Donald J. Trump doubled down on what he had said on Truth Social about declining another debate.`\
+https://nytimes.com/video/us/elections/100000009689948/trump-refuses-debate.html
+
 **Until Saturday: Pac-12 makes its move, plus Week 3 viewers guide**\
 `Welcome to Until Saturday, the five-star college football newsletter: The Pac-12 made the latest move in college football realignment.`\
 https://nytimes.com/athletic/5762234/2024/09/12/pac-12-expansion-college-football-week-3-until-saturday/
