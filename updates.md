@@ -1,3 +1,7 @@
+**Polaris Dawn Crew Completes First-Ever Private Spacewalk**\
+`Jared Isaacman, a billionaire entrepreneur, emerged from the hatch of the SpaceX Crew Dragon spacecraft on Thursday. The Polaris Dawn mission conducted the first-ever commercial spacewalk.`\
+https://nytimes.com/video/science/100000009687981/12vid-spacewalk-clip1.html
+
 **What does it take for Alabama to hit the road for a road trip like Wisconsin?**\
 `What all does it take for Alabama to make it to a road game against Wisconsin? Let's take a look at the process.`\
 https://nytimes.com/athletic/5761674/2024/09/12/alabama-football-travel-wisconsin-away-games/

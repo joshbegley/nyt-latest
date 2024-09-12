@@ -30,11 +30,11 @@ https://nytimes.com/2024/09/12/us/politics/first-absentee-ballots-election-votin
 `The reduction, to 3.5 percent from 3.75 percent, comes as inflation has slowed and the bank faces pressure to bolster the region’s flagging economy.`\
 https://nytimes.com/2024/09/12/business/european-central-bank-interest-rates.html
 
+**Polaris Dawn Crew Completes First-Ever Private Spacewalk**\
+`Jared Isaacman, a billionaire entrepreneur, emerged from the hatch of the SpaceX Crew Dragon spacecraft on Thursday. The Polaris Dawn mission conducted the first-ever commercial spacewalk.`\
+https://nytimes.com/video/science/100000009687981/12vid-spacewalk-clip1.html
+
 **OpenAI Aims for a $150 Billion Valuation**\
 `The ChatGPT maker is closing in on another mega funding round as investors bet the boom in artificial intelligence has plenty of room to grow.`\
 https://nytimes.com/2024/09/12/business/dealbook/openai-valuation-artificial-intelligence.html
-
-**Will the Ducks trade Cam Fowler, what's the possible timing and which teams might be interested?**\
-`Given where Fowler is at in his accomplished career, does a move away from Anaheim make sense?`\
-https://nytimes.com/athletic/5761030/2024/09/12/cam-fowler-trade-ducks/
 
