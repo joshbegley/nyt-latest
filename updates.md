@@ -1,3 +1,11 @@
+**The Grenfell Fire and the Unbearable Slowness of Public Inquiries**\
+`Holding an inquiry has become one of the British government’s go-to responses to outrageous harm. But that approach can sometimes stall change and delay justice.`\
+https://nytimes.com/2024/09/12/world/europe/grenfell-fire-public-inquiry-failings-scandal.html
+
+**Bucks fan survey results: Title expectations shrink but belief in Giannis, Lillard remains high**\
+`After winning the NBA title in 2021, Bucks fans anticipated another. But after three early playoff exits, expectations have been tempered.`\
+https://nytimes.com/athletic/5759065/2024/09/12/bucks-fans-title-expectations-take-a-hit-but-belief-in-giannis-damian-lillard-remains-high/
+
 **The Pulse: Overnight conference realignment**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5760598/2024/09/12/pac-12-conference-realignment-the-pulse/
