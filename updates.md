@@ -1,3 +1,15 @@
+**‘Why Am I So Single?’ Review: After ‘Six,’ a Scrappy, Sappy Dating Musical**\
+`The duo behind the Broadway hit follow it up with a meta reflection on finding love online that is relatable and fun but lacking narrative drive.`\
+https://nytimes.com/2024/09/12/theater/why-am-i-so-single-review-london.html
+
+**Joe Schmidt, Who Elevated the Middle Linebacker’s Role, Dies at 92**\
+`A Hall of Famer who played for powerhouse Detroit Lions teams, he helped glamorize his position as football’s “defensive quarterback.”`\
+https://nytimes.com/2024/09/12/sports/football/joe-schmidt-dead.html
+
+**Rain delivers significant relief to firefighters in Oregon and Idaho.**\
+`By Jill Cowan`\
+https://nytimes.com/live/2024/09/12/us/california-wildfires-idaho-oregon/rain-delivers-significant-relief-to-firefighters-in-oregon-and-idaho
+
 **New York City to Study Reparations for Descendants of Enslaved People**\
 `The city joins a growing number of cities and states, including New York, that are taking action to examine the effects of slavery and possible reparations.`\
 https://nytimes.com/2024/09/12/nyregion/reparations-slavery-nyc.html

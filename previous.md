@@ -1,3 +1,15 @@
+**‘Why Am I So Single?’ Review: After ‘Six,’ a Scrappy, Sappy Dating Musical**\
+`The duo behind the Broadway hit follow it up with a meta reflection on finding love online that is relatable and fun but lacking narrative drive.`\
+https://nytimes.com/2024/09/12/theater/why-am-i-so-single-review-london.html
+
+**Joe Schmidt, Who Elevated the Middle Linebacker’s Role, Dies at 92**\
+`A Hall of Famer who played for powerhouse Detroit Lions teams, he helped glamorize his position as football’s “defensive quarterback.”`\
+https://nytimes.com/2024/09/12/sports/football/joe-schmidt-dead.html
+
+**Rain delivers significant relief to firefighters in Oregon and Idaho.**\
+`By Jill Cowan`\
+https://nytimes.com/live/2024/09/12/us/california-wildfires-idaho-oregon/rain-delivers-significant-relief-to-firefighters-in-oregon-and-idaho
+
 **New York City to Study Reparations for Descendants of Enslaved People**\
 `The city joins a growing number of cities and states, including New York, that are taking action to examine the effects of slavery and possible reparations.`\
 https://nytimes.com/2024/09/12/nyregion/reparations-slavery-nyc.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/12/arts/music/angela-gheorghiu-tosca-encore-seoul.ht
 **When Debates Don’t Go Well, Donald Trump Has a Go-To Move**\
 `It does not usually involve congratulating the moderators for their impartiality and quietly resolving to do better the next time.`\
 https://nytimes.com/2024/09/12/us/politics/trump-debate.html
-
-**Harris Courts Polish American Votes in Pennsylvania**\
-`Polish Americans are an important, if politically overlooked, demographic. But in Pennsylvania, many have tended to lean Republican.`\
-https://nytimes.com/2024/09/12/us/kamala-harris-polish-americans-pennsylvania.html
-
-**Attorney General Warns Against Politicizing the Justice Department**\
-`Merrick Garland told the department’s staff that there “is not one rule for friends and another for foes,” amid threats from former President Donald Trump to go after enemies if he is elected.`\
-https://nytimes.com/2024/09/12/us/politics/merrick-garland-justice-department.html
-
-**The N.Y.P.D. Commissioner Resigned**\
-`Also, a billionaire completed the first commercial spacewalk. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2024/09/12/briefing/nypd-commissioner-resigned-commercial-spacewalk.html
 
