@@ -31,7 +31,7 @@ https://nytimes.com/athletic/5762234/2024/09/12/pac-12-expansion-college-footbal
 https://nytimes.com/live/2024/09/11/opinion/thepoint/harris-charlotte-supporters-questions
 
 **Harris Challenges Trump to Debate Again as She Rallies in North Carolina**\
-`At her first big event since this week’s debate, the vice president said “we owe it to the voters” to have another. Less than an hour earlier, Donald Trump had said he would not participate in one.`\
+`At her first big events since this week’s debate, the vice president said “we owe it to the voters” to have another. Shortly beforehand, Donald Trump had said he would not participate in one.`\
 https://nytimes.com/2024/09/12/us/politics/harris-trump-second-debate.html
 
 **Harris Challenges Trump to a Second Debate**\
