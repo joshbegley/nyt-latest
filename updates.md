@@ -1,3 +1,7 @@
+**A Billionaire in Orbit and His Crew Prepare to Walk in Space**\
+`The astronauts of the Polaris Dawn mission, after traveling through heavy radiation and high orbits, are getting ready to open the hatch of their SpaceX vehicle.`\
+https://nytimes.com/2024/09/11/science/spacex-polaris-dawn-astronauts-spacewalk.html
+
 **Floodgates help New Orleans prevent damage from storm surge. What are they?**\
 `By Aimee Ortiz`\
 https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/floodgates-help-new-orleans-prevent-damage-from-storm-surge-what-are-they
