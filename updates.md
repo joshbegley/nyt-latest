@@ -1,3 +1,11 @@
+**Kuol recovering from quad injury at Newcastle United which prevented summer exit**\
+`Newcastle United forward Garang Kuol has suffered a grade three tear to his right quad, which disrupted a planned transfer window move.`\
+https://nytimes.com/athletic/5762764/2024/09/12/newcastle-united-garang-kuol-injury/
+
+**Ten players from Canucks, Oilers, Flames, Jets to watch at Young Stars tournament**\
+`Whether it's a recent first-round pick seeking to make a big first impression or a big offseason acquisition, keep an eye on these players.`\
+https://nytimes.com/athletic/5761989/2024/09/12/jets-canucks-oilers-flames-young-stars-nhl/
+
 **Residents Survived a Harrowing Night in Southern Louisiana**\
 `Rescuers evacuated some families that had been stranded, but waters were receding by morning in the state’s southern communities, near where Hurricane Francine made landfall.`\
 https://nytimes.com/2024/09/12/weather/morgan-city-thibodaux-francine.html
