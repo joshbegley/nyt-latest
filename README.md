@@ -2,7 +2,7 @@
 `Taylor Swift set a record and Chappell Roan, Sabrina Carpenter and Katy Perry delivered noteworthy performances as the show struck a balance between past and present.`\
 https://nytimes.com/2024/09/12/arts/music/mtv-vma-moments.html
 
-**Juan Soto's injury scare hjelps propel Yankees to walk-off win over Royals**\
+**Juan Soto's injury scare helps propel Yankees to walk-off win over Royals**\
 `NEW YORK — Juan Soto hopped down the first base line as if he were playing the most painful game of hopscotch imaginable.`\
 https://nytimes.com/athletic/5761852/2024/09/12/juan-soto-injury-scare-yankees-walk-off-win/
 
