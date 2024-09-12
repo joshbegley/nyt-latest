@@ -1,3 +1,7 @@
+**49ers’ Jordan Mason got the Fred Warner treatment this summer — and it’s paying off**\
+`A secret to Mason's stamina success — surviving spring and summer workouts with Warner and his linebacking crew.`\
+https://nytimes.com/athletic/5763203/2024/09/12/49ers-jordan-mason-fred-warner/
+
 **Ex-C.I.A. Officer Who Spied for China Is Sentenced to 10 Years in Prison**\
 `The former officer, who also worked as a contract translator for the F.B.I., provided classified documents to Beijing.`\
 https://nytimes.com/2024/09/12/us/alexander-yuk-ching-ma-china-spy-sentenced.html
