@@ -1,3 +1,7 @@
+**Residents Survived a Harrowing Night in Southern Louisiana**\
+`Rescuers evacuated some families that had been stranded, but waters were receding by morning in the state’s southern communities, near where Hurricane Francine made landfall.`\
+https://nytimes.com/2024/09/12/weather/morgan-city-thibodaux-francine.html
+
 **U.S. Mortgage Rates Continue to Fall**\
 `The average rate on 30-year mortgages declined to 6.2 percent this week, the lowest point since early 2023.`\
 https://nytimes.com/2024/09/12/business/mortgage-rates.html
