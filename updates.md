@@ -1,3 +1,7 @@
+**Riley Greene powers the Tigers in more ways than one: 'He's a magnet'**\
+`One of Greene's greatest contributions, though, may be more unseen. It’s the constant energy and upbeat vibes he brings to the Tigers.`\
+https://nytimes.com/athletic/5761747/2024/09/11/riley-greene-powers-the-detroit-tigers/
+
 **Shohei Ohtani sets new career-high with 47 home runs**\
 `The two-time MVP was on pace to smash his career-best mark, set in 2021, a year ago before an oblique strain ended his 2023 season early.`\
 https://nytimes.com/athletic/5761551/2024/09/11/shohei-ohtani-career-high-home-runs/

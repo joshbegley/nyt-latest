@@ -1,3 +1,7 @@
+**Riley Greene powers the Tigers in more ways than one: 'He's a magnet'**\
+`One of Greene's greatest contributions, though, may be more unseen. It’s the constant energy and upbeat vibes he brings to the Tigers.`\
+https://nytimes.com/athletic/5761747/2024/09/11/riley-greene-powers-the-detroit-tigers/
+
 **Shohei Ohtani sets new career-high with 47 home runs**\
 `The two-time MVP was on pace to smash his career-best mark, set in 2021, a year ago before an oblique strain ended his 2023 season early.`\
 https://nytimes.com/athletic/5761551/2024/09/11/shohei-ohtani-career-high-home-runs/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/us/politics/electoral-college-certification-secur
 **A Billionaire in Orbit and His Crew Prepare to Walk in Space**\
 `The astronauts of the Polaris Dawn mission, after traveling through heavy radiation and high orbits, are getting ready to open the hatch of their SpaceX vehicle.`\
 https://nytimes.com/2024/09/11/science/spacex-polaris-dawn-astronauts-spacewalk.html
-
-**Floodgates help New Orleans prevent damage from storm surge. What are they?**\
-`By Aimee Ortiz`\
-https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/floodgates-help-new-orleans-prevent-damage-from-storm-surge-what-are-they
 
