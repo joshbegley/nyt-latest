@@ -1,3 +1,7 @@
+**No Shoes, No Phones Allowed at This Brooklyn Shop**\
+`Plus: Sardinian furniture, a Jordan Casteel exhibition and more recommendations from T Magazine.`\
+https://nytimes.com/2024/09/12/t-magazine/chowa-library-brooklyn.html
+
 **Forest will benefit from Gibbs-White's England experience - Nuno**\
 `Nuno Espirito Santo believes the experience of making his senior England debut can help Morgan Gibbs-White evolve into an even better player with Nottingham Forest.`\
 https://nytimes.com/athletic/5762492/2024/09/12/gibbs-white-england-forest/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/12/weather/hurricane-francine-louisiana/mississ
 **A Corporate Minimum Tax Aimed at Closing ‘Loopholes’ Leaves Gaps**\
 `The Treasury Department estimates that a new law requiring big companies to pay a 15 percent tax will raise $250 billion from large corporations over the next 10 years.`\
 https://nytimes.com/2024/09/12/us/politics/corporate-minimum-tax-loopholes.html
-
-**Fullkrug injury to be assessed before Fulham match - Lopetegui**\
-`West Ham United head coach Julen Lopetegui says Niclas Fullkrug will be assessed on Friday before making a final decision on his availability for Saturday&#8217;s Premier League match against Fulham.`\
-https://nytimes.com/athletic/5759725/2024/09/12/niclas-fullkrug-west-ham-injury/
 
