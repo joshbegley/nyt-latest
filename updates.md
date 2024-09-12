@@ -1,3 +1,27 @@
+**‘The Power Broker’ Is Finally Getting a Digital Edition. What Took So Long?**\
+`Robert Caro’s mammoth study of the urban planner Robert Moses is coming out as an e-book this month, on the 50th anniversary of the biography’s publication.`\
+https://nytimes.com/2024/09/12/books/ebook-robert-caro-the-power-broker.html
+
+**‘Winner’ Review: Not Like Other Girls**\
+`This dramedy starring Emilia Jones depicts the life and times of Reality Winner, a former National Security Agency contractor and whistle-blower.`\
+https://nytimes.com/2024/09/12/movies/winner-review.html
+
+**‘Girls Will Be Girls’ Review: Surviving High School**\
+`The filmmaker Shuchi Talati’s debut feature follows a model student and her stifled mother, who are both vying for the attention of a new crush.`\
+https://nytimes.com/2024/09/12/movies/girls-will-be-girls-review.html
+
+**‘Matt and Mara’ Review: Will They or Won’t They?**\
+`Two former college friends reconnect for a possible romance in this irritatingly vague and vapid drama.`\
+https://nytimes.com/2024/09/12/movies/matt-and-mara-review.html
+
+**‘The Critic’ Review: Dangerous Liaisons**\
+`Ian McKellen stars a drama critic in 1930s London who has much higher standards for the theater than for his own professional ethics.`\
+https://nytimes.com/2024/09/12/movies/the-critic-review-dangerous-liaisons.html
+
+**‘The 4:30 Movie’ Review: Jersey Boys**\
+`The writer-director Kevin Smith looks back fondly on his New Jersey childhood in this semi-autobiographical coming-of-age comedy.`\
+https://nytimes.com/2024/09/12/movies/the-430-movie-review.html
+
 **The Grenfell Fire and the Unbearable Slowness of Public Inquiries**\
 `Holding an inquiry has become one of the British government’s go-to responses to outrageous harm. But that approach can sometimes stall change and delay justice.`\
 https://nytimes.com/2024/09/12/world/europe/grenfell-fire-public-inquiry-failings-scandal.html

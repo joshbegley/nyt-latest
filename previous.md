@@ -1,3 +1,27 @@
+**‘The Power Broker’ Is Finally Getting a Digital Edition. What Took So Long?**\
+`Robert Caro’s mammoth study of the urban planner Robert Moses is coming out as an e-book this month, on the 50th anniversary of the biography’s publication.`\
+https://nytimes.com/2024/09/12/books/ebook-robert-caro-the-power-broker.html
+
+**‘Winner’ Review: Not Like Other Girls**\
+`This dramedy starring Emilia Jones depicts the life and times of Reality Winner, a former National Security Agency contractor and whistle-blower.`\
+https://nytimes.com/2024/09/12/movies/winner-review.html
+
+**‘Girls Will Be Girls’ Review: Surviving High School**\
+`The filmmaker Shuchi Talati’s debut feature follows a model student and her stifled mother, who are both vying for the attention of a new crush.`\
+https://nytimes.com/2024/09/12/movies/girls-will-be-girls-review.html
+
+**‘Matt and Mara’ Review: Will They or Won’t They?**\
+`Two former college friends reconnect for a possible romance in this irritatingly vague and vapid drama.`\
+https://nytimes.com/2024/09/12/movies/matt-and-mara-review.html
+
+**‘The Critic’ Review: Dangerous Liaisons**\
+`Ian McKellen stars a drama critic in 1930s London who has much higher standards for the theater than for his own professional ethics.`\
+https://nytimes.com/2024/09/12/movies/the-critic-review-dangerous-liaisons.html
+
+**‘The 4:30 Movie’ Review: Jersey Boys**\
+`The writer-director Kevin Smith looks back fondly on his New Jersey childhood in this semi-autobiographical coming-of-age comedy.`\
+https://nytimes.com/2024/09/12/movies/the-430-movie-review.html
+
 **The Grenfell Fire and the Unbearable Slowness of Public Inquiries**\
 `Holding an inquiry has become one of the British government’s go-to responses to outrageous harm. But that approach can sometimes stall change and delay justice.`\
 https://nytimes.com/2024/09/12/world/europe/grenfell-fire-public-inquiry-failings-scandal.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/5760598/2024/09/12/pac-12-conference-realignment-th
 **NFL Week 2 injury report: Jordan Love return unlikely, Achilles tendinitis a 'big deal' for CMC and more**\
 `Greg Scholz runs through the biggest fantasy football injury worries of Week 2, expressing doubts that Jordan Love can return by Sunday.`\
 https://nytimes.com/athletic/5761773/2024/09/12/week-2-injury-report-fantasy-football-jordan-love-cmc/
-
-**The Stakes on Presidential Power**\
-`We explain the contrasting approaches Donald Trump and Kamala Harris take to the executive office.`\
-https://nytimes.com/2024/09/12/briefing/the-stakes-on-presidential-power.html
-
-**Milner to miss Ipswich clash with hamstring injury**\
-`James Milner faces an unspecified period out of action for Brighton &amp; Hove Albion, head coach Fabian Hurzeler has confirmed.`\
-https://nytimes.com/athletic/5762169/2024/09/12/james-milner-injury-brighton/
-
-**How tears and a telephone in Toronto changed Aryna Sabalenka's tennis life**\
-`How the world No. 2 rebuilt her serve, and her confidence - with the help of the team she calls family`\
-https://nytimes.com/athletic/5500511/2024/09/12/aryna-sabalenka-team-coach/
-
-**Celtics sale, Joe Mazzulla's motivation and more: 5 questions ahead of training camp**\
-`With training camp less than two weeks away, here are five big questions facing the Celtics as they look to defend their NBA title.`\
-https://nytimes.com/athletic/5761455/2024/09/12/celtics-joe-mazzulla-training-camp/
-
-**Kyle Shanahan-Brian Flores showdown should be a highlight of 49ers-Vikings rematch**\
-`The Vikings defense hopes it's up to the challenge against the 49ers' run game, with or without Christian McCaffrey, in Week 2.`\
-https://nytimes.com/athletic/5761363/2024/09/12/49ers-vikings-kyle-shanahan-brian-flores-week-2/
-
-**Chiefs eager for Marquise Brown's return to show offense's full potential**\
-`Brown, the Chiefs’ biggest acquisition in free agency, could return from a dislocated collarbone this week but hasn't practiced yet.`\
-https://nytimes.com/athletic/5761098/2024/09/12/chiefs-marquise-brown-injury-return/
 
