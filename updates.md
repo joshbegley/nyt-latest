@@ -1,3 +1,11 @@
+**Lloyd: Browns need Deshaun Watson exit strategy fast. And why are they playing him?**\
+`Watson maintained his innocence Wednesday against a sexual assualt allegation and said the team has his back. At this point, it shouldn't.`\
+https://nytimes.com/athletic/5761146/2024/09/12/browns-deshaun-watson-quarterback-lawsuit/
+
+**New Hampshire Tightens Requirements for Voters**\
+`The law adds the need for photo identification to cast a ballot and demands that first-time voters show proof of citizenship. The law does not take effect until after the November elections.`\
+https://nytimes.com/2024/09/12/us/politics/new-hampshire-voters-photo-id.html
+
 **‘Big Weather Break’ Gives California Firefighters the Upper Hand**\
 `Cooler temperatures and higher humidity enabled crews to gain ground on major fires in San Bernardino, Orange and Riverside counties.`\
 https://nytimes.com/2024/09/12/us/california-firefighters-wildfires-relief.html
