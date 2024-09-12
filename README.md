@@ -1,3 +1,7 @@
+**Charles Biasiny-Rivera, Champion of Latino Photography, Dies at 93**\
+`A New Yorker of Puerto Rican descent, he helped start a collective that brought recognition to Hispanic photographers and illuminated life in the city’s barrios.`\
+https://nytimes.com/2024/09/12/arts/charles-biasiny-rivera-dead.html
+
 **Greenberg and Jackson: Fading Deion's team, Browns-Jags under plus spread picks**\
 `The tables have turned! Zac Jackson attempts to claw his way back while Jon Greenberg hopes to build momentum with CFB and NFL bets.`\
 https://nytimes.com/athletic/5762579/2024/09/12/greenberg-and-jackson-nfl-cfb-spread-survivor/
@@ -23,7 +27,7 @@ https://nytimes.com/2024/09/12/business/navient-settlement-student-loans.html
 https://nytimes.com/2024/09/12/us/earthquake-california-los-angeles-malibu.html
 
 **Map: 4.7-Magnitude Earthquake Strikes Near Los Angeles**\
-`View the location of the quake’s epicenter and shake area.`\
+`View the quake’s shake area and aftershocks.`\
 https://nytimes.com/interactive/2024/09/12/us/12wea-quake-tracker-southern-california-nytd7wyp.html
 
 **The Bounce: Do Kawhi Leonard, Clippers have new window?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5762369/2024/09/12/kawhi-leonard-james-harden-clipp
 **Ukraine Says Russian Missile Hit Grain Ship in Black Sea**\
 `If confirmed, the attack would be the first on a commercial vessel since Ukraine secured a shipping route to grain markets abroad last year.`\
 https://nytimes.com/2024/09/12/world/europe/ukraine-grain.html
-
-**Lando Norris’s F1 title approach won’t change even with McLaren’s full backing**\
-`So long as there’s a chance to win both championships, McLaren knows it must have a plan in place.`\
-https://nytimes.com/athletic/5762513/2024/09/12/lando-norris-f1-mclaren-team-orders/
 
