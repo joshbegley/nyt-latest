@@ -1,3 +1,7 @@
+**Solheim Cup Friday pairings, tee times announced; Nelly Korda will lead Team USA**\
+`Korda and Allisen Corpuz are paired together in the first foursome match against Europeans' Charley Hull, Esther Henseleit.`\
+https://nytimes.com/athletic/5763497/2024/09/12/solheim-cup-friday-tee-times-pairings-nelly-korda/
+
 **What to Know About New York City’s Interim Police Commissioner**\
 `Before being appointed by Mayor Eric Adams, Thomas Donlon ran a security company and was New York State’s head of homeland security.`\
 https://nytimes.com/2024/09/12/nyregion/thomas-donlon-nypd.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/12/movies/uglies-review.html
 **Lloyd: Browns need Deshaun Watson exit strategy fast. And why are they playing him?**\
 `Watson maintained his innocence Wednesday against a sexual assualt allegation and said the team has his back. At this point, it shouldn't.`\
 https://nytimes.com/athletic/5761146/2024/09/12/browns-deshaun-watson-quarterback-lawsuit/
-
-**‘Big Weather Break’ Gives California Firefighters the Upper Hand**\
-`Cooler temperatures and higher humidity enabled crews to gain ground on major fires in San Bernardino, Orange and Riverside counties.`\
-https://nytimes.com/2024/09/12/us/california-firefighters-wildfires-relief.html
 

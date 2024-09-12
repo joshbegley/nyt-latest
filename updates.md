@@ -1,3 +1,7 @@
+**Solheim Cup Friday pairings, tee times announced; Nelly Korda will lead Team USA**\
+`Korda and Allisen Corpuz are paired together in the first foursome match against Europeans' Charley Hull, Esther Henseleit.`\
+https://nytimes.com/athletic/5763497/2024/09/12/solheim-cup-friday-tee-times-pairings-nelly-korda/
+
 **What to Know About New York City’s Interim Police Commissioner**\
 `Before being appointed by Mayor Eric Adams, Thomas Donlon ran a security company and was New York State’s head of homeland security.`\
 https://nytimes.com/2024/09/12/nyregion/thomas-donlon-nypd.html
