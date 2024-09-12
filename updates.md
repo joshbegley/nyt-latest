@@ -1,3 +1,15 @@
+**Emerson: The QB decisions Florida's Billy Napier, Auburn's Hugh Freeze make will say a lot**\
+`What should Florida and Auburn do at quarterback? Those will be intriguing decisions moving forward this season.`\
+https://nytimes.com/athletic/5762963/2024/09/12/auburn-florida-quarterbacks-hugh-freeze-billy-napier-college-football/
+
+**As conference realignment rolls on, is ACC vulnerable or just fine (for now)?**\
+`Two league members actively suing the ACC raises questions about its stability. Here's where the conference actually stands.`\
+https://nytimes.com/athletic/5763270/2024/09/12/acc-conference-realignment-florida-state-clemson-stanford-cal/
+
+**What Students Are Saying About Summer Vacation and Heading Back to School**\
+`Welcome to a new year of Current Events Conversation!`\
+https://nytimes.com/2024/09/12/learning/what-students-are-saying-about-summer-vacation-and-heading-back-to-school.html
+
 **Rafael Nadal withdraws from Laver Cup**\
 `The 22-time Grand Slam champion had slated the exhibition tournament as his final event of the year.`\
 https://nytimes.com/athletic/5763349/2024/09/12/nadal-laver-cup-teams-2024/

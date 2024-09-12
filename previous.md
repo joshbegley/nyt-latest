@@ -1,3 +1,15 @@
+**Emerson: The QB decisions Florida's Billy Napier, Auburn's Hugh Freeze make will say a lot**\
+`What should Florida and Auburn do at quarterback? Those will be intriguing decisions moving forward this season.`\
+https://nytimes.com/athletic/5762963/2024/09/12/auburn-florida-quarterbacks-hugh-freeze-billy-napier-college-football/
+
+**As conference realignment rolls on, is ACC vulnerable or just fine (for now)?**\
+`Two league members actively suing the ACC raises questions about its stability. Here's where the conference actually stands.`\
+https://nytimes.com/athletic/5763270/2024/09/12/acc-conference-realignment-florida-state-clemson-stanford-cal/
+
+**What Students Are Saying About Summer Vacation and Heading Back to School**\
+`Welcome to a new year of Current Events Conversation!`\
+https://nytimes.com/2024/09/12/learning/what-students-are-saying-about-summer-vacation-and-heading-back-to-school.html
+
 **Rafael Nadal withdraws from Laver Cup**\
 `The 22-time Grand Slam champion had slated the exhibition tournament as his final event of the year.`\
 https://nytimes.com/athletic/5763349/2024/09/12/nadal-laver-cup-teams-2024/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/12/learning/whats-going-on-in-this-picture-sept-16-2
 **Bruce Feldman’s Week 3 college football picks against the spread**\
 `Can Wisconsin make Alabama sweat in Madison? Will Notre Dame get back on track at Purdue? Will Indiana make a statement at UCLA?`\
 https://nytimes.com/athletic/5763304/2024/09/12/college-football-picks-against-the-spread-bruce-feldmans-week-3-predictions/
-
-**Their School Has Yet to Reopen After a Shooting. They’re Unsure What to Expect.**\
-`The 1,900 students at Apalachee High School in Winder, Ga., were just settling into the rhythms of a new year before a freshman killed two teachers and two students.`\
-https://nytimes.com/2024/09/12/us/apalachee-high-school-students-shooting.html
-
-**3 Red Cross Workers Killed in Ukraine by Shelling**\
-`The aid workers lost their lives as they were preparing to distribute heating supplies in preparation for winter in the region of Donetsk.`\
-https://nytimes.com/2024/09/12/world/europe/red-cross-ukraine-deaths.html
-
-**Mahomes encourages voter registration, but will not endorse candidate**\
-`Mahomes: "I think I've always said I don't want my place and my platform to be used to endorse a candidate or do whatever either way."`\
-https://nytimes.com/athletic/5763122/2024/09/12/patrick-mahomes-presidential-endorsement/
 
