@@ -1,3 +1,11 @@
+**U.S. Open stars Pegula and Navarro to clash at Madison Square Garden**\
+`The Garden Cup exhibition event sees the U.S. Open finalist and semifinalist face off.`\
+https://nytimes.com/athletic/5762662/2024/09/12/tennis-madison-square-garden-pegula-navarro-alcaraz-shelton/
+
+**Should We Refrain From Gossip?**\
+`Readers offer different answers in response to a guest essay. Also: Protests on campus; China’s adoption policy; Trump the fixer; hearing loss.`\
+https://nytimes.com/2024/09/12/opinion/gossip.html
+
 **Clark encourages people to vote after liking Swift's endorsement of Harris**\
 `As of Thursday, Swift's Instagram post had over 10 million likes.`\
 https://nytimes.com/athletic/5762790/2024/09/12/caitlin-clark-taylor-swift-kamala-harris/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5762804/2024/09/12/knicks-radio-tyler-murray-nba/
 **City Hall in Springfield, Ohio, Is Closed After Bomb Threat**\
 `The city said that “multiple facilities” had received the emailed threat.`\
 https://nytimes.com/2024/09/12/us/politics/springfield-ohio-bomb-threat-trump-pets.html
-
-**Adderall in Higher Doses May Raise Psychosis Risk, Study Says**\
-`New research suggests that dosage plays a role in a rare side effect of A.D.H.D. stimulants.`\
-https://nytimes.com/2024/09/12/well/mind/adderall-vyvanse-mania-psychosis-study.html
-
-**Mallo guilty of sexual assault on woman in Espanyol mascot costume**\
-`Former Celta Vigo defender Hugo Mallo has been found guilty of sexually assaulting a woman who was working as a mascot for Espanyol.`\
-https://nytimes.com/athletic/5762094/2024/09/12/hugo-mallo-guilty-espanyol-mascot-costume/
 
