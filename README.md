@@ -1,3 +1,7 @@
+**What does Craig Conroy need to achieve this season? Flames mailbag**\
+`Also, what's an NHL comparable for prospect Zayne Parekh? And will the Flames trade off more veterans?`\
+https://nytimes.com/athletic/5742448/2024/09/12/flames-mailbag-conroy-parekh/
+
 **Kuol recovering from quad injury at Newcastle United which prevented summer exit**\
 `Newcastle United forward Garang Kuol has suffered a grade three tear to his right quad, which disrupted a planned transfer window move.`\
 https://nytimes.com/athletic/5762764/2024/09/12/newcastle-united-garang-kuol-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/12/weather/morgan-city-thibodaux-francine.html
 **New Look at Landslide Potential Shows 44% of U.S. Is at Risk**\
 `A new federal database helps users determine the likelihood of their community experiencing a landslide.`\
 https://nytimes.com/2024/09/12/climate/landslide-risk-united-states.html
-
-**What are Easton Cowan’s chances of cracking the Leafs?**\
-`After a monster season with London in the OHL, Cowan will challenge for an NHL roster spot when Leafs camp opens next week.`\
-https://nytimes.com/athletic/5761218/2024/09/12/maple-leafs-easton-cowan-roster/
 
