@@ -1,3 +1,11 @@
+**Justice Dept. Official Calls Election Meddling a ‘Clear and Present Danger’**\
+`The head of the department’s national security division amplified warnings that other countries were seeking to sway the outcome in November, including Russia’s efforts to help Donald Trump.`\
+https://nytimes.com/2024/09/12/us/politics/justice-department-election-russia.html
+
+**The National Park Service Is More Than Just Its Iconic Hat**\
+`For fashion week, the N.P.S. has its employees showing off their various uniform options. One ranger in North Dakota has stood out among his peers.`\
+https://nytimes.com/2024/09/12/style/national-park-service-fashion-week.html
+
 **Friday Briefing: U.S. May Let Ukraine Use Long-range Weapons**\
 `Plus, will Taylor Swift’s endorsement affect the U.S. election?`\
 https://nytimes.com/2024/09/12/briefing/ukraine-election-spacewalk.html
