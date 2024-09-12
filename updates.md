@@ -1,3 +1,7 @@
+**Juan Soto's injury scare helps propel Yankees to walk-off win over Royals**\
+`NEW YORK — Juan Soto hopped down the first-base line as if he were playing the most painful game of hopscotch imaginable.`\
+https://nytimes.com/athletic/5761852/2024/09/12/juan-soto-injury-scare-yankees-walk-off-win/
+
 **Brain games: Living in the Week 2 moment with Terry McLaurin, Drake London and more**\
 `Renee Miller mixes in some psychology to help explain why you should start Terry McLaurin and a few other Week 1 duds this week.`\
 https://nytimes.com/athletic/5760272/2024/09/12/fantasy-football-week-2-brain-games-terry-mclaurin-drake-london/

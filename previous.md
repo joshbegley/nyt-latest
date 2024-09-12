@@ -11,7 +11,7 @@ https://nytimes.com/athletic/5761973/2024/09/12/pac-12-expansion-boise-state-san
 https://nytimes.com/2024/09/12/arts/music/mtv-vma-moments.html
 
 **Juan Soto's injury scare helps propel Yankees to walk-off win over Royals**\
-`NEW YORK — Juan Soto hopped down the first base line as if he were playing the most painful game of hopscotch imaginable.`\
+`NEW YORK — Juan Soto hopped down the first-base line as if he were playing the most painful game of hopscotch imaginable.`\
 https://nytimes.com/athletic/5761852/2024/09/12/juan-soto-injury-scare-yankees-walk-off-win/
 
 **Fantasy basketball 2024-25: Wemby, Christian Braun and 15 more players set for a significant playing time boost**\
