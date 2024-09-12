@@ -1,3 +1,7 @@
+**Man Charged With Drugging and Raping Women He Met Online**\
+`The man, Andrew J. Gallo, 40, of Bristol Township, Pa., a Philadelphia suburb, is accused of raping or sexually assaulting six women he met on dating sites.`\
+https://nytimes.com/2024/09/11/us/andrew-gallo-bucks-county-man-assault.html
+
 **Astros' Jose Altuve exits game with right side discomfort after apparent injury at plate**\
 `The Astros can ill afford to lose Altuve, who appeared to be injured on a swing, with October looming. `\
 https://nytimes.com/athletic/5761683/2024/09/11/astros-jose-altuve-exits-game-right-side-discomfort/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/floodga
 **After a Bruising Debate, Trump Is Warmly Embraced in Lower Manhattan**\
 `On 9/11, firefighters greeted the former president with high fives and hugs. But across the street, other New Yorkers were icy.`\
 https://nytimes.com/2024/09/11/us/elections/trump-sept-11-firefighters-new-york.html
-
-**Connor McDavid and Leon Draisaitl on how their contracts could change the game for NHL stars**\
-`Draisaitl, the NHL's top-paid player, says the Oilers stars can "get more money into hockey and get the players some higher salaries."`\
-https://nytimes.com/athletic/5761430/2024/09/11/connor-mcdavid-leon-draisaitl-oilers-contracts/
 
