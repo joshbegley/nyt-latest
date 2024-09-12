@@ -1,3 +1,11 @@
+**Taylor Swift’s Call to Vote Sent Hundreds of Thousands to Registration Tools**\
+`Three organizations that provide clearinghouse voting resources had traffic spikes coinciding with Ms. Swift’s post urging her fans to cast a ballot.`\
+https://nytimes.com/2024/09/12/us/politics/taylor-swift-voter-registration.html
+
+**Real Madrid reach agreement in principle over Martinez contract renewal**\
+`Real Madrid have reached an agreement in principle with 17-year-old centre-back Joan Martinez over the renewal of his contract.`\
+https://nytimes.com/athletic/5763342/2024/09/12/joan-martinez-real-madrid-contract/
+
 **49ers’ Jordan Mason got the Fred Warner treatment this summer — and it’s paying off**\
 `A secret to Mason's stamina success — surviving spring and summer workouts with Warner and his linebacking crew.`\
 https://nytimes.com/athletic/5763203/2024/09/12/49ers-jordan-mason-fred-warner/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5761446/2024/09/12/tyreek-hill-police-detainment-do
 **Satellite TV Is in Trouble. DirecTV’s Dispute With Disney Shows Why.**\
 `While the cable TV business is declining quickly, satellite TV is decaying even faster.`\
 https://nytimes.com/2024/09/12/business/media/directv-disney-dispute.html
-
-**Something Important Is Happening With JD Vance, Laura Loomer, Project 2025 and Donald Trump**\
-`To me, this is the biggest political dynamic coming out of Tuesday’s debate.`\
-https://nytimes.com/2024/09/11/opinion/trump-vance-loomer-weird.html
-
-**Barcelona's La Liga salary limit has been more than doubled - this is what it means**\
-`New salary limits for Spain’s top-flight and second-division clubs were announced by La Liga this afternoon, with Barca’s going up`\
-https://nytimes.com/athletic/5762507/2024/09/12/barcelona-real-madrid-la-liga-salary-limit-update/
 
