@@ -1,3 +1,15 @@
+**Trump Says He Won’t Debate Harris Again**\
+`His declaration follows a debate performance on Tuesday that was widely criticized. He has gone back and forth before about whether to participate in debates.`\
+https://nytimes.com/2024/09/12/us/politics/trump-harris-debate.html
+
+**A Famous Churchill Portrait, Stolen in Canada and Found in Italy**\
+`A forgery delayed the discovery of the theft of the photograph long enough for it to be sold at an auction in London.`\
+https://nytimes.com/2024/09/12/world/canada/yousuf-karsh-stolen-churchill-portrait.html
+
+**18,000 Miles Later, an American Woman Has Cycled the World**\
+`It took Lael Wilcox 108 days to circumnavigate the globe. Improbably, she said it was “the most fun ride of my life.”`\
+https://nytimes.com/2024/09/12/sports/cycling/bicycle-around-the-world-record.html
+
 **Mbappe's PSG salary dispute set to be resolved in court**\
 `The contract dispute between Paris Saint-Germain and Kylian Mbappe over the player’s unpaid salary is set to go to court after PSG rejected a recommendation by a Ligue de Football Professionel (LFP) legal commission to pay Mbappe €55million.`\
 https://nytimes.com/athletic/5763138/2024/09/12/psg-mbappe-wages-dispute/

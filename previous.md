@@ -1,3 +1,15 @@
+**Trump Says He Won’t Debate Harris Again**\
+`His declaration follows a debate performance on Tuesday that was widely criticized. He has gone back and forth before about whether to participate in debates.`\
+https://nytimes.com/2024/09/12/us/politics/trump-harris-debate.html
+
+**A Famous Churchill Portrait, Stolen in Canada and Found in Italy**\
+`A forgery delayed the discovery of the theft of the photograph long enough for it to be sold at an auction in London.`\
+https://nytimes.com/2024/09/12/world/canada/yousuf-karsh-stolen-churchill-portrait.html
+
+**18,000 Miles Later, an American Woman Has Cycled the World**\
+`It took Lael Wilcox 108 days to circumnavigate the globe. Improbably, she said it was “the most fun ride of my life.”`\
+https://nytimes.com/2024/09/12/sports/cycling/bicycle-around-the-world-record.html
+
 **Mbappe's PSG salary dispute set to be resolved in court**\
 `The contract dispute between Paris Saint-Germain and Kylian Mbappe over the player’s unpaid salary is set to go to court after PSG rejected a recommendation by a Ligue de Football Professionel (LFP) legal commission to pay Mbappe €55million.`\
 https://nytimes.com/athletic/5763138/2024/09/12/psg-mbappe-wages-dispute/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/12/t-magazine/womens-work-boots-guide.html
 **Mandel: Pac-12 is betting on upside of the Playoff, even if the future remains murky**\
 `If a Pac-12 team makes the College Football Playoff in 2026, this will be the wisest $110 million the conference ever spent.`\
 https://nytimes.com/athletic/5763474/2024/09/12/pac-12-realignment-college-football-playoff-bet/
-
-**Jets' Allen Lazard has a simple explanation for his Week 1 return to form**\
-`The embattled receiver's strong summer carried over to the regular-season opener.`\
-https://nytimes.com/athletic/5763478/2024/09/12/jets-allen-lazard-week-1-performance-improvement/
-
-**$47 Million Flowed Into Harris Campaign in 24 Hours After Debate**\
-`The sum included donations from 600,000 individuals. Vice President Kamala Harris already had a significant financial edge over former President Donald J. Trump entering September.`\
-https://nytimes.com/2024/09/12/us/politics/harris-debate-donations.html
-
-**Climate Lawsuits Are Exploding. Are Homicide Charges Next?**\
-`The courts have become one of the most important battlegrounds in the fight over planet-warming emissions. Here are prominent cases to watch.`\
-https://nytimes.com/2024/09/12/climate/climate-lawsuits-major-cases.html
 
