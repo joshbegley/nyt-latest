@@ -1,7 +1,3 @@
-**Cardinals' Marvin Harrison Jr. dismayed after poor Week 1 debut**\
-`One catch for 4 yards on three targets, including one drop, rightfully left the 2024 No. 4 pick frustrated.`\
-https://nytimes.com/athletic/5762744/2024/09/12/marvin-harrison-cardinals-poor-debut/
-
 **Navient Reaches $120 Million Student Loan Settlement With Consumer Watchdog**\
 `The company has been banned from servicing federal student loans and must pay $100 million to harmed borrowers, as well as a $20 million penalty.`\
 https://nytimes.com/2024/09/12/business/navient-settlement-student-loans.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/5762655/2024/09/12/steve-cooper-leicester-psr/
 **If Harris Wins North Carolina, This County Will Be the Tipping Point**\
 `For 16 years, the state has been a heartbreaker for Democrats, and so has Mecklenburg County — a reliably blue area that just hasn’t been blue enough.`\
 https://nytimes.com/2024/09/12/us/politics/harris-democrats-north-carolina.html
+
+**A Timberland State of Mind**\
+`Across New York’s five boroughs, residents are expressing themselves with the iconic boot. `\
+https://nytimes.com/paidpost/timberland/a-timberland-state-of-mind.html
 
