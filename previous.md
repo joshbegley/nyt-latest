@@ -1,7 +1,3 @@
-**Is Inequality the Key to the Climate Change Debate?**\
-`In his new book, the economist Thomas Piketty argues that the world can’t stop climate change without addressing issues of inequality.`\
-https://nytimes.com/2024/09/12/climate/thomas-piketty-ineuqality-climate-change.html
-
 **Taylor Swift’s Call to Vote Sent Hundreds of Thousands to Registration Tools**\
 `Three organizations that provide clearinghouse voting resources had traffic spikes coinciding with Ms. Swift’s post urging her fans to cast a ballot.`\
 https://nytimes.com/2024/09/12/us/politics/taylor-swift-voter-registration.html
@@ -37,4 +33,8 @@ https://nytimes.com/2024/09/12/books/review/new-books-recommendations.html
 **Jones: Tyreek Hill could have handled traffic stop better, but he didn’t deserve police violence**\
 `In America, people of color have no margin for error when interacting with police officers. That includes Hill, a star NFL wide receiver.`\
 https://nytimes.com/athletic/5761446/2024/09/12/tyreek-hill-police-detainment-dolphins/
+
+**Satellite TV Is in Trouble. DirecTV’s Dispute With Disney Shows Why.**\
+`While the cable TV business is declining quickly, satellite TV is decaying even faster.`\
+https://nytimes.com/2024/09/12/business/media/directv-disney-dispute.html
 

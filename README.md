@@ -1,3 +1,23 @@
+**Why Your Favorite Restaurant Sounds Like That**\
+`Owners are putting more thought than ever into the music playing through their speakers, sometimes tapping professionals for help.`\
+https://nytimes.com/2024/09/12/dining/restaurant-playlist.html
+
+**In Fight for Congress, Democrats Run as ‘Team Normal,’ Casting G.O.P. as ‘Weird’**\
+`In competitive districts, Democratic congressional candidates have pivoted from portraying Republicans as dangerous and extreme to ridiculing them as too odd to support.`\
+https://nytimes.com/2024/09/12/us/politics/democrats-republicans-weird.html
+
+**How Media on the Left and Right Covered Taylor Swift’s Harris Endorsement**\
+`Liberal commentators celebrated the megastar’s endorsement of the Democratic ticket. Conservatives either downplayed the impact Taylor Swift might have, or attacked her.`\
+https://nytimes.com/2024/09/12/business/media/taylor-swift-kamala-harris-endorsement-media.html
+
+**Will Taylor Swift’s Endorsement Actually Affect the Election?**\
+`What the research says about celebrity endorsements — and what might make this one different.`\
+https://nytimes.com/2024/09/12/upshot/taylor-swift-endorsement-harris-election.html
+
+**Is Inequality the Key to the Climate Change Debate?**\
+`In his new book, the economist Thomas Piketty argues that the world can’t stop climate change without addressing issues of inequality.`\
+https://nytimes.com/2024/09/12/climate/thomas-piketty-ineuqality-climate-change.html
+
 **Taylor Swift’s Call to Vote Sent Hundreds of Thousands to Registration Tools**\
 `Three organizations that provide clearinghouse voting resources had traffic spikes coinciding with Ms. Swift’s post urging her fans to cast a ballot.`\
 https://nytimes.com/2024/09/12/us/politics/taylor-swift-voter-registration.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/09/12/us/alexander-yuk-ching-ma-china-spy-sentenced.htm
 **Mark Jury, Whose Photography Captured War and Death, Dies at 80**\
 `He created one of the first photo books about the Vietnam War — the first “rock ’n’ roll war,” he called it — and later documented his grandfather’s struggle with dementia.`\
 https://nytimes.com/2024/09/12/books/mark-jury-dead.html
-
-**Francine Leaves Behind Flooding and Power Outages in Louisiana**\
-`The storm made landfall as a Category 2 hurricane on Wednesday before weakening overnight into a tropical depression.`\
-https://nytimes.com/video/us/100000009688017/francine-storm-louisiana.html
-
-**Luke Hughes to miss 6-8 weeks with shoulder injury**\
-`The injury was sustained earlier this month during offseason training and will not require surgery.`\
-https://nytimes.com/athletic/5763224/2024/09/12/luke-hughes-injury-devils-nhl/
-
-**7 New Books We Recommend This Week**\
-`Suggested reading from critics and editors at The New York Times.`\
-https://nytimes.com/2024/09/12/books/review/new-books-recommendations.html
-
-**Jones: Tyreek Hill could have handled traffic stop better, but he didn’t deserve police violence**\
-`In America, people of color have no margin for error when interacting with police officers. That includes Hill, a star NFL wide receiver.`\
-https://nytimes.com/athletic/5761446/2024/09/12/tyreek-hill-police-detainment-dolphins/
-
-**Satellite TV Is in Trouble. DirecTV’s Dispute With Disney Shows Why.**\
-`While the cable TV business is declining quickly, satellite TV is decaying even faster.`\
-https://nytimes.com/2024/09/12/business/media/directv-disney-dispute.html
 

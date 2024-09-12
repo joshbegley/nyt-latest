@@ -1,3 +1,7 @@
+**Satellite TV Is in Trouble. DirecTV’s Dispute With Disney Shows Why.**\
+`While the cable TV business is declining quickly, satellite TV is decaying even faster.`\
+https://nytimes.com/2024/09/12/business/media/directv-disney-dispute.html
+
 **Is Inequality the Key to the Climate Change Debate?**\
 `In his new book, the economist Thomas Piketty argues that the world can’t stop climate change without addressing issues of inequality.`\
 https://nytimes.com/2024/09/12/climate/thomas-piketty-ineuqality-climate-change.html
