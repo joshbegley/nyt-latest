@@ -1,3 +1,7 @@
+**Gavi returns to training for first time in 10 months after ACL injury**\
+`Barcelona midfielder Gavi has returned to training for the first time in 10 months after injury.`\
+https://nytimes.com/athletic/5762243/2024/09/12/barcelona-gavi-injury-training/
+
 **Tyrique Stevenson working to become another difference-maker on the Bears defense**\
 `LAKE FOREST, Ill.`\
 https://nytimes.com/athletic/5761715/2024/09/12/bears-tyrique-stevenson-week-1/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/12/movies/girls-will-be-girls-review.html
 **‘Matt and Mara’ Review: Will They or Won’t They?**\
 `Two former college friends reconnect for a possible romance in this irritatingly vague and vapid drama.`\
 https://nytimes.com/2024/09/12/movies/matt-and-mara-review.html
-
-**‘The Critic’ Review: Dangerous Liaisons**\
-`Ian McKellen stars a drama critic in 1930s London who has much higher standards for the theater than for his own professional ethics.`\
-https://nytimes.com/2024/09/12/movies/the-critic-review-dangerous-liaisons.html
 
