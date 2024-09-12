@@ -1,3 +1,7 @@
+**Police Commissioner Set to Quit as Investigations Batter Adams’s Circle**\
+`Edward Caban had been asked to resign after federal agents seized his phone as part of a criminal investigation, one of several involving members of Mayor Eric Adams’s administration.`\
+https://nytimes.com/2024/09/12/nyregion/edward-caban-resigns-nypd-commissioner.html
+
 **Adderall in Higher Doses May Raise Psychosis Risk, Study Says**\
 `New research suggests that dosage plays a role in a rare side effect of A.D.H.D. stimulants.`\
 https://nytimes.com/2024/09/12/well/mind/adderall-vyvanse-mania-psychosis-study.html
