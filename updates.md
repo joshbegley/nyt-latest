@@ -1,3 +1,7 @@
+**Officers Beat Tyre Nichols as ‘Run Tax’ for Trying to Flee, Prosecutors Say**\
+`Federal prosecutors began their case against three former Memphis police officers with an explosive accusation, while defense lawyers said that the officers had acted in line with their training.`\
+https://nytimes.com/2024/09/11/us/tyre-nichols-memphis-police-trial.html
+
 **Citing Gaza Help, Blinken Waives Human Rights Conditions on Aid to Egypt**\
 `Cairo will receive its full military aid allotment of $1.3 billion after the secretary of state also said it had made progress on releasing political prisoners and protecting Americans.`\
 https://nytimes.com/2024/09/11/us/politics/egypt-us-military-aid.html

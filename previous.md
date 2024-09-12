@@ -1,3 +1,7 @@
+**Officers Beat Tyre Nichols as ‘Run Tax’ for Trying to Flee, Prosecutors Say**\
+`Federal prosecutors began their case against three former Memphis police officers with an explosive accusation, while defense lawyers said that the officers had acted in line with their training.`\
+https://nytimes.com/2024/09/11/us/tyre-nichols-memphis-police-trial.html
+
 **Citing Gaza Help, Blinken Waives Human Rights Conditions on Aid to Egypt**\
 `Cairo will receive its full military aid allotment of $1.3 billion after the secretary of state also said it had made progress on releasing political prisoners and protecting Americans.`\
 https://nytimes.com/2024/09/11/us/politics/egypt-us-military-aid.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5761463/2024/09/11/blue-jays-bowden-francis-near-no
 **Alberto Fujimori, Ex-Leader of Peru Imprisoned for Rights Abuses, Dies at 86**\
 `During his decade in power, he revived the economy and crushed two violent leftist insurgencies. But he was forced out in a corruption scandal and later imprisoned for human rights abuses.`\
 https://nytimes.com/2024/09/11/world/americas/alberto-fujimori-dead.html
-
-**Debate Puts Trump’s Affinity for Putin Back in the Spotlight**\
-`The former president’s refusal to back Ukraine’s war effort showed the likely limits of U.S. support for Kyiv if he returns to the White House.`\
-https://nytimes.com/2024/09/11/us/politics/trump-russia-ukraine-war.html
 
