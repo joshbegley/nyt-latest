@@ -1,3 +1,11 @@
+**Shohei Ohtani sets new career-high with 47 home runs**\
+`The two-time MVP was on pace to smash his career-best mark, set in 2021, a year ago before an oblique strain ended his 2023 season early.`\
+https://nytimes.com/athletic/5761551/2024/09/11/shohei-ohtani-career-high-home-runs/
+
+**Man Charged With Drugging and Raping Women He Met Online**\
+`The man, Andrew J. Gallo, 40, of Bristol Township, Pa., a Philadelphia suburb, is accused of raping or sexually assaulting six women he met on dating sites.`\
+https://nytimes.com/2024/09/11/us/andrew-gallo-bucks-county-man-assault.html
+
 **Astros' Jose Altuve exits game with right side discomfort after apparent injury at plate**\
 `The Astros can ill afford to lose Altuve, who appeared to be injured on a swing, with October looming. `\
 https://nytimes.com/athletic/5761683/2024/09/11/astros-jose-altuve-exits-game-right-side-discomfort/
