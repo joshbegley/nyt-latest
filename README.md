@@ -1,3 +1,7 @@
+**Clark's Wilson basketball sells out in less than an hour**\
+`Clark's basketballs sold out in reportedly less than 40 minutes.`\
+https://nytimes.com/athletic/5763745/2024/09/12/caitlin-clark-fever-wilson-basketballs/
+
 **Justice Dept. Official Calls Election Meddling a ‘Clear and Present Danger’**\
 `The head of the department’s national security division amplified warnings that other countries were seeking to sway the outcome in November, including Russia’s efforts to help Donald Trump.`\
 https://nytimes.com/2024/09/12/us/politics/justice-department-election-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/12/us/politics/early-voting-states-ballots.html
 **A New Mini-Moon Is Being Captured by Planet Earth**\
 `It’s just a little guy, and not everyone agrees that it’s actually a mini-moon.`\
 https://nytimes.com/2024/09/12/science/new-mini-moon-earth-orbit.html
-
-**Sybil Haydel Morial, New Orleans Civil Rights Matriarch, Dies at 91**\
-`The wife of Ernest N. Morial, the city’s first Black mayor, she was also a crusader in her own right who fought for equal rights for Black women.`\
-https://nytimes.com/2024/09/12/us/sybil-haydel-morial-dead.html
 
