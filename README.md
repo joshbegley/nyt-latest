@@ -1,3 +1,15 @@
+**Weinstein Faces a New Sealed Indictment in New York, Prosecutors Say**\
+`The disgraced Hollywood mogul, who underwent emergency heart surgery this week, was not present in court Thursday.`\
+https://nytimes.com/2024/09/12/nyregion/weinstein-indictment-ny.html
+
+**Scoop City: Big division game tonight. Already!**\
+`A quick look at the Bills-Dolphins, best/worst QB values of the past ten years and Joe Burrow's wrist`\
+https://nytimes.com/athletic/5762603/2024/09/12/scoop-city-big-division-game-tonight-already/
+
+**Athlete, fighter, human: Reflecting on Alex Morgan's career**\
+`Morgan was more than an athlete during her nearly two-decade career in professional soccer.`\
+https://nytimes.com/athletic/5762351/2024/09/12/alex-morgan-career-reflection/
+
 **Topps adds Disney, Pixar and Marvel trading card rights to growing portfolio**\
 `Topps' collection of trading card licenses is growing across sports and non-sports properties alike `\
 https://nytimes.com/athletic/5761692/2024/09/12/topps-disney-pixar-marvel-cards/
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/12/magazine/mom-weed-gummies-ethics.html
 **Jon Bon Jovi Helps Woman Off Ledge of Bridge**\
 `The singer, who was filming a music video nearby, helped coax a woman to safety in Nashville.`\
 https://nytimes.com/2024/09/12/us/jon-bon-jovi-woman-bridge.html
-
-**What does it take for Alabama to hit the road for a road trip like Wisconsin?**\
-`What all does it take for Alabama to make it to a road game against Wisconsin? Let's take a look at the process.`\
-https://nytimes.com/athletic/5761674/2024/09/12/alabama-football-travel-wisconsin-away-games/
-
-**‘Real Women Have Curves’ Musical Plans Broadway Bow Next Year**\
-`The show, adapted from the play and movie, was first staged last winter at the American Repertory Theater in Cambridge, Mass.`\
-https://nytimes.com/2024/09/12/theater/real-women-have-curves-broadway.html
-
-**Youth Group Asks Supreme Court to Revive a Landmark Climate Lawsuit**\
-`The case argues the government violated young people’s constitutional rights by failing to curb the use of fossil fuels. A lower court had thrown it out.`\
-https://nytimes.com/2024/09/12/climate/juliana-lawsuit-supreme-court.html
 
