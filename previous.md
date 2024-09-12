@@ -1,3 +1,7 @@
+**Astros catalyst Jose Altuve exits game after sustaining apparent injury at the plate**\
+`The Astros can ill afford to lose Altuve, who appeared to be injured on a swing, with October looming. `\
+https://nytimes.com/athletic/5761683/2024/09/11/astros-catalyst-jose-altuve-exits-game-after-sustaining-apparent-injury-at-the-plate/
+
 **Rewards for a ‘Good Boy’**\
 `Parker Higgins needs our help making good matches.`\
 https://nytimes.com/2024/09/11/crosswords/daily-puzzle-2024-09-12.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/us/elections/trump-sept-11-firefighters-new-york.
 **Connor McDavid and Leon Draisaitl on how their contracts could change the game for NHL stars**\
 `Draisaitl, the NHL's top-paid player, says the Oilers stars can "get more money into hockey and get the players some higher salaries."`\
 https://nytimes.com/athletic/5761430/2024/09/11/connor-mcdavid-leon-draisaitl-oilers-contracts/
-
-**Blue Jays' Bowden Francis loses no-no again in ninth, but continues growth as starter**\
-`Francis not only has flirted with history twice in four starts but also has the lowest WHIP (0.40) over a six-start span in MLB history.`\
-https://nytimes.com/athletic/5761463/2024/09/11/blue-jays-bowden-francis-near-no-hitter/
 
