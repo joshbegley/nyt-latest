@@ -1,3 +1,23 @@
+**Thursday Briefing**\
+`The aftermath of the Harris-Trump debate.`\
+https://nytimes.com/2024/09/12/briefing/harris-trump-debate.html
+
+**Thursday's MLB odds, best bets: Projections for pitching matchups, playoffs and more**\
+`See pitching matchups, playoff projections, win projections and more for Thursday's MLB games.`\
+https://nytimes.com/athletic/5758924/2024/09/12/mlb-odds-best-bets-projections-september-12/
+
+**Young Chinese Émigrés Confront America’s Brutal Visa Lottery**\
+`For Chinese seeking educational opportunity, the United States has long been the top spot, but as more want to stay to work, their paths are full of roadblocks.`\
+https://nytimes.com/2024/09/12/business/chinese-h1b-visa.html
+
+**Corrections: Sept. 12, 2024**\
+`Corrections that appeared in print on Thursday, Sept. 12, 2024.`\
+https://nytimes.com/2024/09/11/pageoneplus/corrections-sept-12-2024.html
+
+**Quote of the Day: Will Automation Replace Jobs? Port Workers May Strike Over It.**\
+`Quotation of the Day for Thursday, September 12, 2024`\
+https://nytimes.com/2024/09/11/pageoneplus/quote-of-the-day-will-automation-replace-jobs-port-workers-may-strike-over-it.html
+
 **Astros' Chas McCormick 'really disappointed' to land on IL with hand fracture**\
 `McCormick described his fracture as "not a serious thing," but did not have a concrete timeline for his return.`\
 https://nytimes.com/athletic/5761883/2024/09/11/astros-chas-mccormick-right-hand-fracture/
