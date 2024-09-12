@@ -1,3 +1,7 @@
+**Ronaldo on Man United and Erik ten Hag: 'They must rebuild everything'**\
+`Cristiano Ronaldo says Manchester United and manager Erik ten Hag must &#8220;rebuild everything&#8221; in order to compete with football&#8217;s elite again.`\
+https://nytimes.com/athletic/5761135/2024/09/12/cristiano-ronaldo-manchester-united-erik-ten-hag/
+
 **Clothes That Command Attention**\
 `At New York Fashion Week, the breadth of people on the streets meant there was no shortage of great outfits.`\
 https://nytimes.com/2024/09/12/style/nyfw-outfits-fashion.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/12/arts/television/jimmy-kimmel-trump-debate.html
 **Word of the Day: consternation**\
 `This word has appeared in 149 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/12/learning/word-of-the-day-consternation.html
-
-**Brain games: Living in the Week 2 moment with Terry McLaurin, Drake London and more**\
-`Renee Miller mixes in some psychology to help explain why you should start Terry McLaurin and a few other Week 1 duds this week.`\
-https://nytimes.com/athletic/5760272/2024/09/12/fantasy-football-week-2-brain-games-terry-mclaurin-drake-london/
 
