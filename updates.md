@@ -1,3 +1,11 @@
+**A New Way to Think About the Decline in Black College Admissions**\
+`I’ve seen firsthand that this scenario does not play out the way alarmists think it does.`\
+https://nytimes.com/2024/09/12/opinion/college-admissions-race.html
+
+**Bob Weatherwax, Trainer of Lassie and Other Celebrity Dogs, Dies at 83**\
+`Like his father, who taught him the interdisciplinary roles needed for the job, he bred and coached the collies who played the heroic star of television and movies.`\
+https://nytimes.com/2024/09/12/movies/bob-weatherwax-dead.html
+
 **‘The Smoking Room’ Is a Brilliant British Office Comedy**\
 `And yet, compared with the British “Office,” it is a model of restraint.`\
 https://nytimes.com/2024/09/12/arts/television/the-smoking-room-streaming-roku.html

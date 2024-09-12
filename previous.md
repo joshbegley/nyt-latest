@@ -1,3 +1,7 @@
+**A New Way to Think About the Decline in Black College Admissions**\
+`I’ve seen firsthand that this scenario does not play out the way alarmists think it does.`\
+https://nytimes.com/2024/09/12/opinion/college-admissions-race.html
+
 **‘The Smoking Room’ Is a Brilliant British Office Comedy**\
 `And yet, compared with the British “Office,” it is a model of restraint.`\
 https://nytimes.com/2024/09/12/arts/television/the-smoking-room-streaming-roku.html
@@ -7,7 +11,7 @@ https://nytimes.com/2024/09/12/arts/television/the-smoking-room-streaming-roku.h
 https://nytimes.com/2024/09/12/world/africa/us-un-security-council-africa-permanent-seats.html
 
 **Bob Weatherwax, Trainer of Lassie and Other Celebrity Dogs, Dies at 83**\
-`Like his father, who taught him the interdisciplinary roles needed for the job, he trained and bred animals seen on television and in movies.`\
+`Like his father, who taught him the interdisciplinary roles needed for the job, he bred and coached the collies who played the heroic star of television and movies.`\
 https://nytimes.com/2024/09/12/movies/bob-weatherwax-dead.html
 
 **Emerson: The QB decisions Florida's Billy Napier, Auburn's Hugh Freeze make will say a lot**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5763385/2024/09/12/college-football-week-3-model-pr
 **Jaguars rename EverBank Stadium to TrEverBank Stadium for Week 2**\
 `Lawrence collaborated with EverBank, the stadium's naming rights sponsor, to rename the venue for the day.`\
 https://nytimes.com/athletic/5763220/2024/09/12/trevor-lawrence-jaguars-treverbank-stadium/
-
-**This Chatbot Pulls People Away From Conspiracy Theories**\
-`In a new study, many people doubted or abandoned false beliefs after a short conversation with the DebunkBot.`\
-https://nytimes.com/2024/09/12/health/chatbot-debunk-conspiracy-theories.html
 
