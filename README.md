@@ -1,3 +1,7 @@
+**49ers’ Jordan Mason got the Fred Warner treatment this summer — and it’s paying off**\
+`A secret to Mason's stamina success — surviving spring and summer workouts with Warner and his linebacking crew.`\
+https://nytimes.com/athletic/5763203/2024/09/12/49ers-jordan-mason-fred-warner/
+
 **Ex-C.I.A. Officer Who Spied for China Is Sentenced to 10 Years in Prison**\
 `The former officer, who also worked as a contract translator for the F.B.I., provided classified documents to Beijing.`\
 https://nytimes.com/2024/09/12/us/alexander-yuk-ching-ma-china-spy-sentenced.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/opinion/trump-vance-loomer-weird.html
 **Barcelona's La Liga salary limit has been more than doubled - this is what it means**\
 `New salary limits for Spain’s top-flight and second-division clubs were announced by La Liga this afternoon, with Barca’s going up`\
 https://nytimes.com/athletic/5762507/2024/09/12/barcelona-real-madrid-la-liga-salary-limit-update/
-
-**Israeli Commandos Carried Out Raid on Secret Weapons Site in Syria**\
-`The missile production facility was destroyed in the attack, according to Western officials. Syrian state media reported that 18 people were killed in the strike.`\
-https://nytimes.com/2024/09/12/us/politics/israel-raid-syria-weapons.html
 
