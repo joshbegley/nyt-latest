@@ -1,3 +1,7 @@
+**Floodwaters and Winds Strand Residents in Southern Louisiana**\
+`Waters were receding in the state’s southern communities, near where Hurricane Francine made landfall. Rescuers evacuated some families that had been stranded.`\
+https://nytimes.com/2024/09/12/weather/morgan-city-thibodaux-francine.html
+
 **New Look at Landslide Potential Shows 44% of U.S. Is at Risk**\
 `A new federal database helps users determine the likelihood of their community experiencing a landslide.`\
 https://nytimes.com/2024/09/12/climate/landslide-risk-united-states.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5762453/2024/09/12/jordan-chiles-olympic-bronze-com
 **The Windup: Let Ohtani keep astounding you**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5762940/2024/09/12/shohei-ohtani-home-runs-stolen-bases-the-windup/
-
-**Ten Hag says Ugarte available to make Man Utd debut against Southampton**\
-`Erik ten Hag says Manuel Ugarte is available to make his Manchester United debut against Southampton on Saturday despite only returning from international duty today (Thursday).`\
-https://nytimes.com/athletic/5762860/2024/09/12/manuel-ugarte-manchester-united-debut/
 
