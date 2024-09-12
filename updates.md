@@ -1,3 +1,11 @@
+**Taylor Swift’s Call to Vote Sent Hundreds of Thousands to Registration Tools**\
+`Three organizations that provide clearinghouse voting resources had traffic spikes coinciding with Ms. Swift’s post urging her fans to cast a ballot.`\
+https://nytimes.com/2024/09/12/us/politics/taylor-swift-voter-registration.html
+
+**Real Madrid reach agreement in principle over Martinez contract renewal**\
+`Real Madrid have reached an agreement in principle with 17-year-old centre-back Joan Martinez over the renewal of his contract.`\
+https://nytimes.com/athletic/5763342/2024/09/12/joan-martinez-real-madrid-contract/
+
 **49ers’ Jordan Mason got the Fred Warner treatment this summer — and it’s paying off**\
 `A secret to Mason's stamina success — surviving spring and summer workouts with Warner and his linebacking crew.`\
 https://nytimes.com/athletic/5763203/2024/09/12/49ers-jordan-mason-fred-warner/
