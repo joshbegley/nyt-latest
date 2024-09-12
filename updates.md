@@ -1,3 +1,7 @@
+**Citing Gaza Help, Blinken Waives Human Rights Conditions on Aid to Egypt**\
+`Cairo will receive its full military aid allotment of $1.3 billion after the secretary of state also said it had made progress on releasing political prisoners and protecting Americans.`\
+https://nytimes.com/2024/09/11/us/politics/egypt-us-military-aid.html
+
 **Early report on SEC injury reports: No funny business**\
 `Teams have to file their reports on Wednesday before a Saturday conference game, then update them daily until Saturday.`\
 https://nytimes.com/athletic/5761588/2024/09/11/sec-availability-report-georgia-kentucky-south-carolina-texas-am/
