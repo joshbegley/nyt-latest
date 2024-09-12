@@ -1,3 +1,11 @@
+**Topps adds Disney, Pixar and Marvel trading card rights to growing portfolio**\
+`Topps' collection of trading card licenses is growing across sports and non-sports properties alike `\
+https://nytimes.com/athletic/5761692/2024/09/12/topps-disney-pixar-marvel-cards/
+
+**Michael Kiwanuka Makes the Simple Profound. The World Is Listening.**\
+`The English songwriter will follow up his Mercury Prize-winning 2019 LP with his fourth album, “Small Changes,” in November.`\
+https://nytimes.com/2024/09/12/arts/music/michael-kiwanuka-small-changes.html
+
 **No Shoes, No Phones Allowed at This Brooklyn Shop**\
 `Plus: Sardinian furniture, a Jordan Casteel exhibition and more recommendations from T Magazine.`\
 https://nytimes.com/2024/09/12/t-magazine/chowa-library-brooklyn.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/12/theater/real-women-have-curves-broadway.html
 **Youth Group Asks Supreme Court to Revive a Landmark Climate Lawsuit**\
 `The case argues the government violated young people’s constitutional rights by failing to curb the use of fossil fuels. A lower court had thrown it out.`\
 https://nytimes.com/2024/09/12/climate/juliana-lawsuit-supreme-court.html
-
-**Inside a Storm Center Rebuilt After Hurricane Katrina’s Destruction**\
-`In 2005, the center operated out of an old bowling alley in the town of Bay St. Louis, right next to the Gulf of Mexico.`\
-https://nytimes.com/2024/09/12/weather/mississippi-storm-center-hurricane-francine.html
-
-**A Corporate Minimum Tax Aimed at Closing ‘Loopholes’ Leaves Gaps**\
-`The Treasury Department estimates that a new law requiring big companies to pay a 15 percent tax will raise $250 billion from large corporations over the next 10 years.`\
-https://nytimes.com/2024/09/12/us/politics/corporate-minimum-tax-loopholes.html
 
