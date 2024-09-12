@@ -1,3 +1,7 @@
+**Ten MLB prospects who are primed to make Bowden's top 50 in 2025**\
+`I released my new top 50 MLB prospects ranking last week, but as always, it was difficult settle on the final group.`\
+https://nytimes.com/athletic/5760862/2024/09/12/mlb-top-prospects-2024-2025/
+
 **Conversations With Journalists: An Invitation for Teenagers**\
 `This fall we’re choosing some teen-friendly Times articles and inviting students to talk to the people who made them. Post your thoughts, ask questions or suggest ideas, and the reporters will reply!`\
 https://nytimes.com/2024/09/12/learning/students-journalists-conversations.html
