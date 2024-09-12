@@ -1,3 +1,7 @@
+**The N.Y.P.D. Commissioner Resigned**\
+`Also, a billionaire completed the first commercial spacewalk. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2024/09/12/briefing/nypd-commissioner-resigned-commercial-spacewalk.html
+
 **Clark's Wilson basketball sells out in less than an hour**\
 `Clark's basketballs sold out in reportedly less than 40 minutes.`\
 https://nytimes.com/athletic/5763745/2024/09/12/caitlin-clark-fever-wilson-basketballs/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/12/us/politics/biden-ukraine-weapons.html
 **Early Voting Is Beginning in These States. Here’s What to Know.**\
 `Which states do early voting, and when does it start?`\
 https://nytimes.com/2024/09/12/us/politics/early-voting-states-ballots.html
-
-**A New Mini-Moon Is Being Captured by Planet Earth**\
-`It’s just a little guy, and not everyone agrees that it’s actually a mini-moon.`\
-https://nytimes.com/2024/09/12/science/new-mini-moon-earth-orbit.html
 
