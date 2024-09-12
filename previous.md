@@ -1,3 +1,7 @@
+**Friday Briefing: U.S. May Let Ukraine Use Long-range Weapons**\
+`Plus, will Taylor Swift’s endorsement affect the U.S. election?`\
+https://nytimes.com/2024/09/12/briefing/ukraine-election-spacewalk.html
+
 **Justice Dept. Charges Two Men in Jan. 6 Assault on Times Photographer**\
 `The pair, brothers, were charged with stealing the photographer’s camera, assault with the intent to commit a felony and entering the Capitol unlawfully.`\
 https://nytimes.com/2024/09/12/us/politics/jan-6-assault-times-photographer.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5763557/2024/09/12/pac-12-candidates-unlv-tulane-wy
 **Hurricane Francine Tells Us a Lot About Storm Seasons to Come**\
 `Even quiet seasons can produce very significant weather events.`\
 https://nytimes.com/live/2024/09/11/opinion/thepoint/hurricane-francine-global-warming
-
-**Scenes From Southern California as Wildfires Persist**\
-`Firefighters struggled to contain three large fires threatening areas including Los Angeles and San Bernardino County.`\
-https://nytimes.com/2024/09/12/us/california-wildfires-photos-video.html
 

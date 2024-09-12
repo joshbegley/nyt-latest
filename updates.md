@@ -1,3 +1,7 @@
+**Friday Briefing: U.S. May Let Ukraine Use Long-range Weapons**\
+`Plus, will Taylor Swift’s endorsement affect the U.S. election?`\
+https://nytimes.com/2024/09/12/briefing/ukraine-election-spacewalk.html
+
 **Justice Dept. Charges Two Men in Jan. 6 Assault on Times Photographer**\
 `The pair, brothers, were charged with stealing the photographer’s camera, assault with the intent to commit a felony and entering the Capitol unlawfully.`\
 https://nytimes.com/2024/09/12/us/politics/jan-6-assault-times-photographer.html
