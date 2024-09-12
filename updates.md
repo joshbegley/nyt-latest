@@ -1,3 +1,15 @@
+**Ex-C.I.A. Officer Who Spied for China Is Sentenced to 10 Years in Prison**\
+`The former officer, who also worked as a contract translator for the F.B.I., provided classified documents to Beijing.`\
+https://nytimes.com/2024/09/12/us/alexander-yuk-ching-ma-china-spy-sentenced.html
+
+**Mark Jury, Whose Photography Captured War and Death, Dies at 80**\
+`He created one of the first photo books about the Vietnam War — the first “rock ’n’ roll war,” he called it — and later documented his grandfather’s struggle with dementia.`\
+https://nytimes.com/2024/09/12/books/mark-jury-dead.html
+
+**Francine Leaves Behind Flooding and Power Outages in Louisiana**\
+`The storm made landfall as a Category 2 hurricane on Wednesday before weakening overnight into a tropical depression.`\
+https://nytimes.com/video/us/100000009688017/francine-storm-louisiana.html
+
 **Luke Hughes to miss 6-8 weeks with shoulder injury**\
 `The injury was sustained earlier this month during offseason training and will not require surgery.`\
 https://nytimes.com/athletic/5763224/2024/09/12/luke-hughes-injury-devils-nhl/
