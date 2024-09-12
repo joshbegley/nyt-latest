@@ -1,3 +1,7 @@
+**Mexico Remakes Its Entire Judicial System as States Back Vast Overhaul**\
+`The plan, championed by Mexico’s president, would have voters elect judges at every level, dramatically restructuring the third branch of government.`\
+https://nytimes.com/2024/09/12/world/americas/mexico-courts-overhaul-states-approve.html
+
 **Astros' Framber Valdez brought back his hair extensions and has been elite ever since**\
 `The Astros have won 13 of the 14 games Valdez has started since he reintroduced his hair extensions.`\
 https://nytimes.com/athletic/5764125/2024/09/12/astros-framber-valdez-hair-extensions/

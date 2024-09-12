@@ -1,3 +1,7 @@
+**Mexico Remakes Its Entire Judicial System as States Back Vast Overhaul**\
+`The plan, championed by Mexico’s president, would have voters elect judges at every level, dramatically restructuring the third branch of government.`\
+https://nytimes.com/2024/09/12/world/americas/mexico-courts-overhaul-states-approve.html
+
 **Astros' Framber Valdez brought back his hair extensions and has been elite ever since**\
 `The Astros have won 13 of the 14 games Valdez has started since he reintroduced his hair extensions.`\
 https://nytimes.com/athletic/5764125/2024/09/12/astros-framber-valdez-hair-extensions/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/12/us/california-firefighters-wildfires-relief.html
 **10-Minute Challenge: ‘The Unicorn Rests in a Garden’**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2024/09/12/upshot/ten-minute-challenge-unicorn.html
-
-**Screamin’ Scott Simon, Longtime Sha Na Na Keyboardist, Dies at 75**\
-`A mainstay of the rock ’n’ roll nostalgia band, he also wrote the lyrics to “Sandy,” a song heard in the hit film “Grease.”`\
-https://nytimes.com/2024/09/12/arts/music/scott-simon-dead.html
 
