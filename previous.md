@@ -1,3 +1,11 @@
+**Elevated Lead Levels Found in One-Third of Cinnamon Samples**\
+`Consumer Reports found lead in a variety of products, at a time when federal regulators are seeking authority from Congress to combat the problem of heavy metals in foods.`\
+https://nytimes.com/2024/09/12/health/lead-cinnamon.html
+
+**OpenAI Unveils New ChatGPT That Can Reason Through Math and Science**\
+`Driven by new technology called OpenAI o1, the chatbot can test various strategies and try to identify mistakes as it tackles complex tasks.`\
+https://nytimes.com/2024/09/12/technology/openai-chatgpt-math.html
+
 **‘The Rings of Power’ Season 2, Episode 5 Recap: Royal Pains**\
 `This week’s focus was largely on the deepening political drama in Numenor and Khazad-dum, where things have gotten predictably messy.`\
 https://nytimes.com/2024/09/12/arts/television/rings-of-power-recap-season-2-episode-5.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/12/business/mortgage-rates.html
 **U.S. Open stars Pegula and Navarro to clash at Madison Square Garden**\
 `The Garden Cup exhibition event sees the U.S. Open finalist and semifinalist face off.`\
 https://nytimes.com/athletic/5762662/2024/09/12/tennis-madison-square-garden-pegula-navarro-alcaraz-shelton/
-
-**Should We Refrain From Gossip?**\
-`Readers offer different answers in response to a guest essay. Also: Protests on campus; China’s adoption policy; Trump the fixer; hearing loss.`\
-https://nytimes.com/2024/09/12/opinion/gossip.html
-
-**Clark encourages people to vote after liking Swift's endorsement of Harris**\
-`As of Thursday, Swift's Instagram post had over 10 million likes.`\
-https://nytimes.com/athletic/5762790/2024/09/12/caitlin-clark-taylor-swift-kamala-harris/
 

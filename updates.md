@@ -1,3 +1,11 @@
+**Elevated Lead Levels Found in One-Third of Cinnamon Samples**\
+`Consumer Reports found lead in a variety of products, at a time when federal regulators are seeking authority from Congress to combat the problem of heavy metals in foods.`\
+https://nytimes.com/2024/09/12/health/lead-cinnamon.html
+
+**OpenAI Unveils New ChatGPT That Can Reason Through Math and Science**\
+`Driven by new technology called OpenAI o1, the chatbot can test various strategies and try to identify mistakes as it tackles complex tasks.`\
+https://nytimes.com/2024/09/12/technology/openai-chatgpt-math.html
+
 **‘The Rings of Power’ Season 2, Episode 5 Recap: Royal Pains**\
 `This week’s focus was largely on the deepening political drama in Numenor and Khazad-dum, where things have gotten predictably messy.`\
 https://nytimes.com/2024/09/12/arts/television/rings-of-power-recap-season-2-episode-5.html
