@@ -1,3 +1,11 @@
+**What Manchester United's financial results do and do not reveal about their PSR position**\
+`Manchester United say they are in compliance with PSR and acted as such during the transfer window, but the margins appear very tight`\
+https://nytimes.com/athletic/5762074/2024/09/12/manchester-united-psr-explained/
+
+**The Commanders, like so many, took note of 9/11 on Wednesday, and then life moved on**\
+`"It's on us to remind the guys what actually happened and how many people sacrificed and lost their lives," Bobby Wagner said. `\
+https://nytimes.com/athletic/5761139/2024/09/12/commanders-9-11-commemeration/
+
 **NFL Week 2 injury report: Jordan Love return unlikely, Achilles tendinitis a 'big deal' for CMC and more**\
 `Greg Scholz runs through the biggest fantasy football injury worries of Week 2, expressing doubts that Jordan Love can return by Sunday.`\
 https://nytimes.com/athletic/5761773/2024/09/12/week-2-injury-report-fantasy-football-jordan-love-cmc/
