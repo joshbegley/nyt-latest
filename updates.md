@@ -1,3 +1,11 @@
+**Topps adds Disney, Pixar and Marvel trading card rights to growing portfolio**\
+`Topps' collection of trading card licenses is growing across sports and non-sports properties alike `\
+https://nytimes.com/athletic/5761692/2024/09/12/topps-disney-pixar-marvel-cards/
+
+**Michael Kiwanuka Makes the Simple Profound. The World Is Listening.**\
+`The English songwriter will follow up his Mercury Prize-winning 2019 LP with his fourth album, “Small Changes,” in November.`\
+https://nytimes.com/2024/09/12/arts/music/michael-kiwanuka-small-changes.html
+
 **Inside a Storm Center Rebuilt After Hurricane Katrina’s Destruction**\
 `In 2005, the center operated out of an old bowling alley in the town of Bay St. Louis, right next to the Gulf of Mexico.`\
 https://nytimes.com/2024/09/12/weather/mississippi-storm-center-hurricane-francine.html
