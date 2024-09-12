@@ -1,3 +1,7 @@
+**Is Inequality the Key to the Climate Change Debate?**\
+`In his new book, the economist Thomas Piketty argues that the world can’t stop climate change without addressing issues of inequality.`\
+https://nytimes.com/2024/09/12/climate/thomas-piketty-ineuqality-climate-change.html
+
 **Taylor Swift’s Call to Vote Sent Hundreds of Thousands to Registration Tools**\
 `Three organizations that provide clearinghouse voting resources had traffic spikes coinciding with Ms. Swift’s post urging her fans to cast a ballot.`\
 https://nytimes.com/2024/09/12/us/politics/taylor-swift-voter-registration.html
