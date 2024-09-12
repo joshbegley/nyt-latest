@@ -1,3 +1,11 @@
+**Fullkrug injury to be assessed before Fulham match - Lopetegui**\
+`West Ham United head coach Julen Lopetegui says Niclas Fullkrug will be assessed on Friday before making a final decision on his availability for Saturday&#8217;s Premier League match against Fulham.`\
+https://nytimes.com/athletic/5759725/2024/09/12/niclas-fullkrug-west-ham-injury/
+
+**Absentee Ballots Are Mailed in Alabama, the First State to Send Them Out**\
+`Mail ballots in North Carolina are also set to go out soon. In-person voting is set to start next week in parts of Pennsylvania and in Virginia.`\
+https://nytimes.com/2024/09/12/us/politics/first-absentee-ballots-election-voting.html
+
 **European Central Bank Cuts Rates for Second Time in Three Months**\
 `The reduction, to 3.5 percent from 3.75 percent, comes as inflation has slowed and the bank faces pressure to bolster the region’s flagging economy.`\
 https://nytimes.com/2024/09/12/business/european-central-bank-interest-rates.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5760981/2024/09/12/joe-alt-chargers-debut-raiders-m
 **How the Seahawks and Patriots are preparing for Sunday's clash of similar styles**\
 `Both the Seahawks and Patriots expect to go "through, not around," which could make for a physical affair on Sunday.`\
 https://nytimes.com/athletic/5761505/2024/09/12/seattle-seahawks-new-england-patriots-kenneth-walker-iii/
-
-**Scott Boras sees revenue windfall in Giants’ future. Money alone won’t guarantee success**\
-`Giants could be making Yankees-level money soon, but they’ll need the Orioles’ development success to make it helpful`\
-https://nytimes.com/athletic/5758708/2024/09/12/scott-boras-sees-revenue-windfall-in-giants-future-money-alone-wont-guarantee-success/
-
-**Rain bands were lashing the Florida panhandle. Here’s what to know.**\
-`By Isabella Kwai`\
-https://nytimes.com/live/2024/09/12/weather/hurricane-francine-louisiana/heavy-rain-bands-were-lashing-the-florida-panhandle-heres-what-to-know
 

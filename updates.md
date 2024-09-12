@@ -1,3 +1,11 @@
+**Fullkrug injury to be assessed before Fulham match - Lopetegui**\
+`West Ham United head coach Julen Lopetegui says Niclas Fullkrug will be assessed on Friday before making a final decision on his availability for Saturday&#8217;s Premier League match against Fulham.`\
+https://nytimes.com/athletic/5759725/2024/09/12/niclas-fullkrug-west-ham-injury/
+
+**Absentee Ballots Are Mailed in Alabama, the First State to Send Them Out**\
+`Mail ballots in North Carolina are also set to go out soon. In-person voting is set to start next week in parts of Pennsylvania and in Virginia.`\
+https://nytimes.com/2024/09/12/us/politics/first-absentee-ballots-election-voting.html
+
 **European Central Bank Cuts Rates for Second Time in Three Months**\
 `The reduction, to 3.5 percent from 3.75 percent, comes as inflation has slowed and the bank faces pressure to bolster the region’s flagging economy.`\
 https://nytimes.com/2024/09/12/business/european-central-bank-interest-rates.html
