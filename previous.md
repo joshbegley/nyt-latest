@@ -1,3 +1,11 @@
+**Déjà Vu for Mike Johnson as Internal Strife Stalls Spending Plan**\
+`The House speaker faces a choice of cutting a deal with Democrats or bowing to conservatives and Donald Trump and shutting down the government just before the election.`\
+https://nytimes.com/2024/09/12/us/politics/mike-johnson-spending-house.html
+
+**Fall’s Best Boots Are Rugged and Buckled**\
+`Here are our favorite pairs, in a range of prices.`\
+https://nytimes.com/2024/09/12/t-magazine/womens-work-boots-guide.html
+
 **Mandel: Pac-12 is betting on upside of the Playoff, even if the future remains murky**\
 `If a Pac-12 team makes the College Football Playoff in 2026, this will be the wisest $110 million the conference ever spent.`\
 https://nytimes.com/athletic/5763474/2024/09/12/pac-12-realignment-college-football-playoff-bet/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/12/learning/whats-going-on-in-this-graph-sept-18-202
 **As Venezuela Slides Deeper Into Autocracy, U.S. Imposes Limited Sanctions**\
 `The sanctions against 16 government officials appointed by the authoritarian president of Venezuela were seen as unlikely to be effective by observers and analysts.`\
 https://nytimes.com/2024/09/12/world/americas/us-sanctions-venezuela-autocracy.html
-
-**Cole to leave Birmingham to join FA as full-time coach**\
-`Ashley Cole is set to leave Birmingham City and join the Football Association (FA) on a full-time basis.`\
-https://nytimes.com/athletic/5759832/2024/09/12/ashley-cole-england-fa-birmingham/
-
-**A New Way to Think About the Decline in Black College Admissions**\
-`I’ve seen firsthand that this scenario does not play out the way alarmists think it does.`\
-https://nytimes.com/2024/09/12/opinion/college-admissions-race.html
 
