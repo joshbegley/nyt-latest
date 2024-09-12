@@ -1,4 +1,8 @@
 **Ten MLB prospects who are primed to make Bowden's top 50 in 2025**\
+`These prospects just missed the cut on Bowden's top 50 this year but are all intriguing talents who appear to have bright futures. `\
+https://nytimes.com/athletic/5760862/2024/09/12/mlb-top-prospects-2024-2025/
+
+**Ten MLB prospects who are primed to make Bowden's top 50 in 2025**\
 `I released my new top 50 MLB prospects ranking last week, but as always, it was difficult settle on the final group.`\
 https://nytimes.com/athletic/5760862/2024/09/12/mlb-top-prospects-2024-2025/
 

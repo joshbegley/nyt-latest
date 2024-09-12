@@ -1,3 +1,7 @@
+**Francine Floods New Orleans Areas Scarred by Past Storms**\
+`Southern Louisiana residents braced for floods as the storm passed through. Many were in neighborhoods that were battered by Katrina and Ida.`\
+https://nytimes.com/2024/09/12/weather/hurricane-francine-new-orleans-katrina-ida.html
+
 **Ten MLB prospects who are primed to make Bowden's top 50 in 2025**\
 `These prospects just missed the cut on Bowden's top 50 this year but are all intriguing talents who appear to have bright futures. `\
 https://nytimes.com/athletic/5760862/2024/09/12/mlb-top-prospects-2024-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/12/us/politics/harris-campaign-strategy.html
 **Should Ukraine Launch Western Weapons Deep Into Russia?**\
 `President Biden has refused to allow Ukraine to use long-range Western missiles on Russian military targets, but he appears to be wavering.`\
 https://nytimes.com/2024/09/12/world/europe/biden-ukraine-strike-russia.html
-
-**How did Michigan's quarterback situation end up here?**\
-`It's become clear that Michigan doesn’t have a quarterback who can paper over its flaws and elevate an offense looking for playmakers.`\
-https://nytimes.com/athletic/5760674/2024/09/12/michigan-quarterbacks-j-j-mccarthy-davis-warren/
 
