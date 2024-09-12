@@ -1,3 +1,15 @@
+**Astros' Framber Valdez brought back his hair extensions and has been elite ever since**\
+`The Astros have won 13 of the 14 games Valdez has started since he reintroduced his hair extensions.`\
+https://nytimes.com/athletic/5764125/2024/09/12/astros-framber-valdez-hair-extensions/
+
+**MLB says A’s move to Sacramento ‘a certainty’**\
+`Before the A's move to Las Vegas in 2028, the team will play in Sacramento at the Triple-A stadium of the San Francisco Giants.`\
+https://nytimes.com/athletic/5763996/2024/09/12/oakland-as-sacramento-move-developments/
+
+**The First Votes Will Soon Be Cast**\
+`As campaigns shift from persuading voters to turning them out, mail voting is in the spotlight.`\
+https://nytimes.com/2024/09/12/us/politics/trump-harris-mail-ballots-election.html
+
 **Antisemitic Ads About Doug Emhoff Target Muslim Voters in Michigan**\
 `An ad campaign in the state, funded by a group that appears tied to Republicans, seems designed to remind Muslim voters of Kamala Harris’s pro-Israel views and her husband’s Jewish faith.`\
 https://nytimes.com/2024/09/12/us/politics/antisemitic-ads-doug-emhoff-muslim-michigan.html

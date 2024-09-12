@@ -1,3 +1,15 @@
+**Astros' Framber Valdez brought back his hair extensions and has been elite ever since**\
+`The Astros have won 13 of the 14 games Valdez has started since he reintroduced his hair extensions.`\
+https://nytimes.com/athletic/5764125/2024/09/12/astros-framber-valdez-hair-extensions/
+
+**MLB says A’s move to Sacramento ‘a certainty’**\
+`Before the A's move to Las Vegas in 2028, the team will play in Sacramento at the Triple-A stadium of the San Francisco Giants.`\
+https://nytimes.com/athletic/5763996/2024/09/12/oakland-as-sacramento-move-developments/
+
+**The First Votes Will Soon Be Cast**\
+`As campaigns shift from persuading voters to turning them out, mail voting is in the spotlight.`\
+https://nytimes.com/2024/09/12/us/politics/trump-harris-mail-ballots-election.html
+
 **Antisemitic Ads About Doug Emhoff Target Muslim Voters in Michigan**\
 `An ad campaign in the state, funded by a group that appears tied to Republicans, seems designed to remind Muslim voters of Kamala Harris’s pro-Israel views and her husband’s Jewish faith.`\
 https://nytimes.com/2024/09/12/us/politics/antisemitic-ads-doug-emhoff-muslim-michigan.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2024/09/12/upshot/ten-minute-challenge-unicorn.h
 **Screamin’ Scott Simon, Longtime Sha Na Na Keyboardist, Dies at 75**\
 `A mainstay of the rock ’n’ roll nostalgia band, he also wrote the lyrics to “Sandy,” a song heard in the hit film “Grease.”`\
 https://nytimes.com/2024/09/12/arts/music/scott-simon-dead.html
-
-**New Hampshire Tightens Requirements for Voters**\
-`The law adds the need for photo identification to cast a ballot and demands that first-time voters show proof of citizenship. The law does not take effect until after the November elections.`\
-https://nytimes.com/2024/09/12/us/politics/new-hampshire-voters-photo-id.html
-
-**Trump Says ‘There Will Be No Third Debate’**\
-`During a rally in Tucson, Ariz., Donald J. Trump doubled down on what he had said on Truth Social about declining another debate.`\
-https://nytimes.com/video/us/elections/100000009689948/trump-refuses-debate.html
-
-**Until Saturday: Pac-12 makes its move, plus Week 3 viewers guide**\
-`Welcome to Until Saturday, the five-star college football newsletter: The Pac-12 made the latest move in college football realignment.`\
-https://nytimes.com/athletic/5762234/2024/09/12/pac-12-expansion-college-football-week-3-until-saturday/
 
