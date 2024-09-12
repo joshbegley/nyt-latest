@@ -18,6 +18,10 @@ https://nytimes.com/2024/09/12/arts/charles-biasiny-rivera-dead.html
 `The tables have turned! Zac Jackson attempts to claw his way back while Jon Greenberg hopes to build momentum with CFB and NFL bets.`\
 https://nytimes.com/athletic/5762579/2024/09/12/greenberg-and-jackson-nfl-cfb-spread-survivor/
 
+**Joe Alt’s Chargers debut vs. Raiders shows all the traits that made him No. 5 pick**\
+`Alt more than held his own against the Raiders’ standout duo of Maxx Crosby and Christian Wilkins. `\
+https://nytimes.com/athletic/5760981/2024/09/12/joe-alt-chargers-debut-raiders-maxx-crosby/
+
 **Chewy Brownie Cookies, Because I Don’t Like Playing Favorites**\
 `The fudgy, chocolaty goodness of a brownie meets the crisp edges of a cookie in Vaughn Vreeland’s perfect new recipe.`\
 https://nytimes.com/2024/09/12/dining/brownie-cookies.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5762744/2024/09/12/marvin-harrison-cardinals-poor-d
 **Navient Reaches $120 Million Student Loan Settlement With Consumer Watchdog**\
 `The company has been banned from servicing federal student loans and must pay $100 million to harmed borrowers, as well as a $20 million penalty.`\
 https://nytimes.com/2024/09/12/business/navient-settlement-student-loans.html
-
-**Earthquake Rattles Coastal Area Near Los Angeles**\
-`Preliminary estimates said a 4.7-magnitude temblor was centered near Malibu. The authorities were determining whether there was any significant damage.`\
-https://nytimes.com/2024/09/12/us/earthquake-california-los-angeles-malibu.html
 
