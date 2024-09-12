@@ -1,3 +1,7 @@
+**New York City to Study Reparations for Descendants of Enslaved People**\
+`The city joins a growing number of cities and states, including New York, that are taking action to examine the effects of slavery and possible reparations.`\
+https://nytimes.com/2024/09/12/nyregion/reparations-slavery-nyc.html
+
 **Sean Combs’s Legal Team Takes His Case to TikTok**\
 `As the music mogul faces civil lawsuits alleging sexual misconduct, one of his lawyers is defending him — in the court of social media.`\
 https://nytimes.com/2024/09/12/arts/music/sean-combs-diddy-tiktok-lawyers.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/12/us/politics/merrick-garland-justice-department.ht
 **The N.Y.P.D. Commissioner Resigned**\
 `Also, a billionaire completed the first commercial spacewalk. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2024/09/12/briefing/nypd-commissioner-resigned-commercial-spacewalk.html
-
-**Clark's Wilson basketball sells out in less than an hour**\
-`Clark's basketballs sold out in reportedly less than 40 minutes.`\
-https://nytimes.com/athletic/5763745/2024/09/12/caitlin-clark-fever-wilson-basketballs/
 

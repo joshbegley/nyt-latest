@@ -1,3 +1,7 @@
+**Sean Combs’s Legal Team Takes His Case to TikTok**\
+`As the music mogul faces civil lawsuits alleging sexual misconduct, one of his lawyers is defending him — in the court of social media.`\
+https://nytimes.com/2024/09/12/arts/music/sean-combs-diddy-tiktok-lawyers.html
+
 **Georgia Judge Tosses 3 More Charges in Trump Election Interference Case**\
 `While the judge kept most of the case intact, it was a win for the defendants, who have been trying to chip away at the case.`\
 https://nytimes.com/2024/09/12/us/trump-georgia-election-interference-case.html
