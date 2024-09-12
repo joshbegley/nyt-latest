@@ -31,8 +31,8 @@ https://nytimes.com/2024/09/12/theater/real-women-have-curves-broadway.html
 https://nytimes.com/2024/09/12/climate/juliana-lawsuit-supreme-court.html
 
 **A night inside the county storm center that was rebuilt after Katrina’s destruction.**\
-`By Isabelle Taft`\
-https://nytimes.com/live/2024/09/12/weather/hurricane-francine-louisiana/mississippi-hancock-county
+`In 2005, the center operated out of an old bowling alley in the town of Bay St. Louis, right next to the Gulf of Mexico.`\
+https://nytimes.com/2024/09/12/weather/mississippi-hancock-county.html
 
 **A Corporate Minimum Tax Aimed at Closing ‘Loopholes’ Leaves Gaps**\
 `The Treasury Department estimates that a new law requiring big companies to pay a 15 percent tax will raise $250 billion from large corporations over the next 10 years.`\
