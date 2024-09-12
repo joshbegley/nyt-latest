@@ -1,3 +1,11 @@
+**New Look at Landslide Potential Shows 44% of U.S. Is at Risk**\
+`A new federal database helps users determine the likelihood of their community experiencing a landslide.`\
+https://nytimes.com/2024/09/12/climate/landslide-risk-united-states.html
+
+**What are Easton Cowan’s chances of cracking the Leafs?**\
+`After a monster season with London in the OHL, Cowan will challenge for an NHL roster spot when Leafs camp opens next week.`\
+https://nytimes.com/athletic/5761218/2024/09/12/maple-leafs-easton-cowan-roster/
+
 **Kamala Harris Is Serious. Donald Trump Is Not.**\
 `Her careful cramming and his cocky hamming tell you all you need to know.`\
 https://nytimes.com/2024/09/12/opinion/kamala-harris-trump-debate.html

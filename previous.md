@@ -1,3 +1,11 @@
+**New Look at Landslide Potential Shows 44% of U.S. Is at Risk**\
+`A new federal database helps users determine the likelihood of their community experiencing a landslide.`\
+https://nytimes.com/2024/09/12/climate/landslide-risk-united-states.html
+
+**What are Easton Cowan’s chances of cracking the Leafs?**\
+`After a monster season with London in the OHL, Cowan will challenge for an NHL roster spot when Leafs camp opens next week.`\
+https://nytimes.com/athletic/5761218/2024/09/12/maple-leafs-easton-cowan-roster/
+
 **Kamala Harris Is Serious. Donald Trump Is Not.**\
 `Her careful cramming and his cocky hamming tell you all you need to know.`\
 https://nytimes.com/2024/09/12/opinion/kamala-harris-trump-debate.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5762940/2024/09/12/shohei-ohtani-home-runs-stolen-b
 **Ten Hag says Ugarte available to make Man Utd debut against Southampton**\
 `Erik ten Hag says Manuel Ugarte is available to make his Manchester United debut against Southampton on Saturday despite only returning from international duty today (Thursday).`\
 https://nytimes.com/athletic/5762860/2024/09/12/manuel-ugarte-manchester-united-debut/
-
-**Linda Ronstadt Criticizes Trump Before He Appears at Venue Named for Her**\
-`The singer denounced the former president, singling out the impact of his administration’s family separations policy in Arizona, and endorsed Kamala Harris.`\
-https://nytimes.com/2024/09/12/us/politics/linda-ronstadt-donald-trump-toxic-politics.html
-
-**Missouri Judge Rejects Innocence Claim by Man on Death Row**\
-`Marcellus Williams, who was convicted in a 1998 killing, now faces execution later this month.`\
-https://nytimes.com/2024/09/12/us/marcellus-williams-death-row-innocence-claim-ruling.html
 
