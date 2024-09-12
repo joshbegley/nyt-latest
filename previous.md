@@ -1,3 +1,7 @@
+**Word of the Day: consternation**\
+`This word has appeared in 149 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/09/12/learning/word-of-the-day-consternation.html
+
 **Brain games: Living in the Week 2 moment with Terry McLaurin, Drake London and more**\
 `Renee Miller mixes in some psychology to help explain why you should start Terry McLaurin and a few other Week 1 duds this week.`\
 https://nytimes.com/athletic/5760272/2024/09/12/fantasy-football-week-2-brain-games-terry-mclaurin-drake-london/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5739298/2024/09/12/jean-clair-todibo-west-ham-coma-
 **Cutting passes, elite ball recovery and pressing - Tielemans has been transformed by Emery**\
 `The Belgian had a difficult start to life at Aston Villa but has gradually become a vital cog in the Spanish manager's style of play`\
 https://nytimes.com/athletic/5444805/2024/09/12/tielemans-transformed-emery-aston-villa/
-
-**What I'm seeing at Newcastle: Passing problems, the Howe-Mitchell dynamic and Tonali affirmation**\
-`Our writer details what is going on at the club following the end of the international break and the return of Premier League football`\
-https://nytimes.com/athletic/5759751/2024/09/12/what-i-am-seeing-newcastle/
 

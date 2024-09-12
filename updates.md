@@ -1,3 +1,7 @@
+**Word of the Day: consternation**\
+`This word has appeared in 149 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/09/12/learning/word-of-the-day-consternation.html
+
 **Juan Soto's injury scare helps propel Yankees to walk-off win over Royals**\
 `NEW YORK — Juan Soto hopped down the first-base line as if he were playing the most painful game of hopscotch imaginable.`\
 https://nytimes.com/athletic/5761852/2024/09/12/juan-soto-injury-scare-yankees-walk-off-win/
