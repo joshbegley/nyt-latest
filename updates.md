@@ -1,3 +1,15 @@
+**Lando Norris’s F1 title approach won’t change even with McLaren’s full backing**\
+`So long as there’s a chance to win both championships, McLaren knows it must have a plan in place.`\
+https://nytimes.com/athletic/5762513/2024/09/12/lando-norris-f1-mclaren-team-orders/
+
+**Phony Romeos? Email Threats? Dissecting the Anatomy of an Online Scam.**\
+`In a series for the Business desk, a reporter is chasing down sophisticated online scams that target Americans, particularly older adults.`\
+https://nytimes.com/2024/09/12/insider/phony-romeos-email-threats-dissecting-the-anatomy-of-an-online-scam.html
+
+**Athlete, fighter, human: Reflecting on Alex Morgan's career**\
+`Morgan was more than an athlete during her nearly two-decade career in professional soccer`\
+https://nytimes.com/athletic/5762351/2024/09/12/alex-morgan-career-reflection-uswnt/
+
 **Cooper admits transfer 'frustration' despite PSR appeal win**\
 `Leicester City manager Steve Cooper has welcomed the profitability and sustainability ruling which found the club not guilty of a breach and removed the immediate threat of a points deduction for the club.`\
 https://nytimes.com/athletic/5762655/2024/09/12/steve-cooper-leicester-psr/
