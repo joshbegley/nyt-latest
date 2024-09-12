@@ -27,7 +27,7 @@ https://nytimes.com/2024/09/12/business/navient-settlement-student-loans.html
 https://nytimes.com/2024/09/12/us/earthquake-california-los-angeles-malibu.html
 
 **Map: 4.7-Magnitude Earthquake Strikes Near Los Angeles**\
-`View the location of the quake’s epicenter and shake area.`\
+`View the quake’s shake area and aftershocks.`\
 https://nytimes.com/interactive/2024/09/12/us/earthquake-tracker-southern-california.html
 
 **The Bounce: Do Kawhi Leonard, Clippers have new window?**\

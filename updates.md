@@ -1,3 +1,7 @@
+**Map: 4.7-Magnitude Earthquake Strikes Near Los Angeles**\
+`View the quake’s shake area and aftershocks.`\
+https://nytimes.com/interactive/2024/09/12/us/earthquake-tracker-southern-california.html
+
 **Charles Biasiny-Rivera, Champion of Latino Photography, Dies at 93**\
 `A New Yorker of Puerto Rican descent, he helped start a collective that brought recognition to Hispanic photographers and illuminated life in the city’s barrios.`\
 https://nytimes.com/2024/09/12/arts/charles-biasiny-rivera-dead.html
