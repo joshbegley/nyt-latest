@@ -1,4 +1,4 @@
-**Astros catalyst Jose Altuve exits game after having right side discomfort at the plate**\
+**Astros' Jose Altuve exits game with right side discomfort after apparent injury at plate**\
 `The Astros can ill afford to lose Altuve, who appeared to be injured on a swing, with October looming. `\
 https://nytimes.com/athletic/5761683/2024/09/11/astros-jose-altuve-exits-game-right-side-discomfort/
 
