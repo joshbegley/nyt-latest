@@ -1,3 +1,7 @@
+**Floodgates help New Orleans prevent damage from storm surge. What are they?**\
+`By Aimee Ortiz`\
+https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/floodgates-help-new-orleans-prevent-damage-from-storm-surge-what-are-they
+
 **After a Bruising Debate, Trump Finds Some Friends in Lower Manhattan**\
 `On 9/11, the former president got a warm welcome from New York City firefighters.`\
 https://nytimes.com/2024/09/11/us/elections/trump-sept-11-firefighters-new-york.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/researc
 **In critical moment, Francisco Lindor delivers a signature swing for the Mets**\
 `What has Lindor meant to the Mets this season? “Everything,” as one teammate said.`\
 https://nytimes.com/athletic/5761371/2024/09/11/mets-francisco-lindor-no-hitter/
-
-**67.1 Million People Watched Harris and Trump, Outdrawing Last Debate**\
-`The TV audience for the Harris-Trump matchup was roughly comparable to the second Trump-Clinton debate in 2016.`\
-https://nytimes.com/2024/09/11/business/media/harris-trump-debate-ratings.html
 

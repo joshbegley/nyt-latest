@@ -1,3 +1,7 @@
+**Floodgates help New Orleans prevent damage from storm surge. What are they?**\
+`By Aimee Ortiz`\
+https://nytimes.com/live/2024/09/11/weather/hurricane-francine-louisiana/floodgates-help-new-orleans-prevent-damage-from-storm-surge-what-are-they
+
 **After a Bruising Debate, Trump Finds Some Friends in Lower Manhattan**\
 `On 9/11, the former president got a warm welcome from New York City firefighters.`\
 https://nytimes.com/2024/09/11/us/elections/trump-sept-11-firefighters-new-york.html
