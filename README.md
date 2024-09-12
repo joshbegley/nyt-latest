@@ -1,3 +1,7 @@
+**The Athletic FC: Mbappe's $60m wages row, Arteta's new deal, which players will Poch favour?**\
+`Today in TAFC: Mbappe's row with PSG over unpaid wages, Arteta signs new Arsenal deal, and who'll benefit from Pochettino taking USMNT job?`\
+https://nytimes.com/athletic/5762143/2024/09/12/mbappes-60m-wages-row-artetas-new-deal-which-players-will-pochettino-favour/
+
 **Gavi returns to training for first time in 10 months after ACL injury**\
 `Barcelona midfielder Gavi has returned to training for the first time in 10 months after injury.`\
 https://nytimes.com/athletic/5762243/2024/09/12/barcelona-gavi-injury-training/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/12/movies/winner-review.html
 **‘Girls Will Be Girls’ Review: Surviving High School**\
 `The filmmaker Shuchi Talati’s debut feature follows a model student and her stifled mother, who are both vying for the attention of a new crush.`\
 https://nytimes.com/2024/09/12/movies/girls-will-be-girls-review.html
-
-**‘Matt and Mara’ Review: Will They or Won’t They?**\
-`Two former college friends reconnect for a possible romance in this irritatingly vague and vapid drama.`\
-https://nytimes.com/2024/09/12/movies/matt-and-mara-review.html
 
