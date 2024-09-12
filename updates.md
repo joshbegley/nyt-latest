@@ -1,3 +1,11 @@
+**Early report on SEC injury reports: No funny business**\
+`Teams have to file their reports on Wednesday before a Saturday conference game, then update them daily until Saturday.`\
+https://nytimes.com/athletic/5761588/2024/09/11/sec-availability-report-georgia-kentucky-south-carolina-texas-am/
+
+**Certification of Election Will Get Extra Security to Try to Prevent Another Capitol Attack**\
+`The Homeland Security Department approved adding federal, state and local resources to help protect the counting of Electoral College votes on Jan. 6, 2025.`\
+https://nytimes.com/2024/09/11/us/politics/electoral-college-certification-security.html
+
 **A Billionaire in Orbit and His Crew Prepare to Walk in Space**\
 `The astronauts of the Polaris Dawn mission, after traveling through heavy radiation and high orbits, are getting ready to open the hatch of their SpaceX vehicle.`\
 https://nytimes.com/2024/09/11/science/spacex-polaris-dawn-astronauts-spacewalk.html
