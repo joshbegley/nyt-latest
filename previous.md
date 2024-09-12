@@ -1,3 +1,15 @@
+**Map: 4.7-Magnitude Earthquake Strikes Near Los Angeles**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2024/09/12/us/12wea-quake-tracker-southern-california-nytd7wyp.html
+
+**The Bounce: Do Kawhi Leonard, Clippers have new window?**\
+`Jason Jones catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5762369/2024/09/12/kawhi-leonard-james-harden-clippers-intuit-dome-charles-barkley-turner-tnt-nba-the-bounce/
+
+**Ukraine Says Russian Missile Hit Grain Ship in Black Sea**\
+`If confirmed, the attack would be the first on a commercial vessel since Ukraine secured a shipping route to grain markets abroad last year.`\
+https://nytimes.com/2024/09/12/world/europe/ukraine-grain.html
+
 **Lando Norris’s F1 title approach won’t change even with McLaren’s full backing**\
 `So long as there’s a chance to win both championships, McLaren knows it must have a plan in place.`\
 https://nytimes.com/athletic/5762513/2024/09/12/lando-norris-f1-mclaren-team-orders/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2024/09/11/opinion/thepoint/what-harris-shouldnt-say-ab
 **Weinstein Faces a New Sealed Indictment in New York, Prosecutors Say**\
 `The disgraced Hollywood mogul, who underwent emergency heart surgery this week, was not present in court Thursday.`\
 https://nytimes.com/2024/09/12/nyregion/weinstein-indictment-ny.html
-
-**Scoop City: Big division game tonight. Already!**\
-`A quick look at the Bills-Dolphins, best/worst QB values of the past ten years and Joe Burrow's wrist`\
-https://nytimes.com/athletic/5762603/2024/09/12/scoop-city-big-division-game-tonight-already/
-
-**Athlete, fighter, human: Reflecting on Alex Morgan's career**\
-`Morgan was more than an athlete during her nearly two-decade career in professional soccer`\
-https://nytimes.com/athletic/5762351/2024/09/12/alex-morgan-career-reflection-uswnt/
-
-**Topps adds Disney, Pixar and Marvel trading card rights to growing portfolio**\
-`Topps' collection of trading card licenses is growing across sports and non-sports properties alike `\
-https://nytimes.com/athletic/5761692/2024/09/12/topps-disney-pixar-marvel-cards/
 

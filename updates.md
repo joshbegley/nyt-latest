@@ -1,3 +1,15 @@
+**Map: 4.7-Magnitude Earthquake Strikes Near Los Angeles**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2024/09/12/us/12wea-quake-tracker-southern-california-nytd7wyp.html
+
+**The Bounce: Do Kawhi Leonard, Clippers have new window?**\
+`Jason Jones catches you up on leaguewide news.`\
+https://nytimes.com/athletic/5762369/2024/09/12/kawhi-leonard-james-harden-clippers-intuit-dome-charles-barkley-turner-tnt-nba-the-bounce/
+
+**Ukraine Says Russian Missile Hit Grain Ship in Black Sea**\
+`If confirmed, the attack would be the first on a commercial vessel since Ukraine secured a shipping route to grain markets abroad last year.`\
+https://nytimes.com/2024/09/12/world/europe/ukraine-grain.html
+
 **Lando Norris’s F1 title approach won’t change even with McLaren’s full backing**\
 `So long as there’s a chance to win both championships, McLaren knows it must have a plan in place.`\
 https://nytimes.com/athletic/5762513/2024/09/12/lando-norris-f1-mclaren-team-orders/
