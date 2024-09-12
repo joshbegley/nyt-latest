@@ -1,3 +1,11 @@
+**7 New Books We Recommend This Week**\
+`Suggested reading from critics and editors at The New York Times.`\
+https://nytimes.com/2024/09/12/books/review/new-books-recommendations.html
+
+**Jones: Tyreek Hill could have handled traffic stop better, but he didn’t deserve police violence**\
+`In America, people of color have no margin for error when interacting with police officers. That includes Hill, a star NFL wide receiver.`\
+https://nytimes.com/athletic/5761446/2024/09/12/tyreek-hill-police-detainment-dolphins/
+
 **Satellite TV Is in Trouble. DirecTV’s Dispute With Disney Shows Why.**\
 `While the cable TV business is declining quickly, satellite TV is decaying even faster.`\
 https://nytimes.com/2024/09/12/business/media/directv-disney-dispute.html
