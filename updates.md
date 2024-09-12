@@ -1,3 +1,11 @@
+**What does it take for Alabama to hit the road for a road trip like Wisconsin?**\
+`What all does it take for Alabama to make it to a road game against Wisconsin? Let's take a look at the process.`\
+https://nytimes.com/athletic/5761674/2024/09/12/alabama-football-travel-wisconsin-away-games/
+
+**‘Real Women Have Curves’ Musical Plans Broadway Bow Next Year**\
+`The show, adapted from the play and movie, was first staged last winter at the American Repertory Theater in Cambridge, Mass.`\
+https://nytimes.com/2024/09/12/theater/real-women-have-curves-broadway.html
+
 **Youth Group Asks Supreme Court to Revive a Landmark Climate Lawsuit**\
 `The case argues the government violated young people’s constitutional rights by failing to curb the use of fossil fuels. A lower court had thrown it out.`\
 https://nytimes.com/2024/09/12/climate/juliana-lawsuit-supreme-court.html
