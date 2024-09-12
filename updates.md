@@ -1,3 +1,11 @@
+**Colorado State's Horton: 'We should have murdered' Colorado last year**\
+`Colorado, who entered the game as a 27.5-point favorite, trailed by 11 in the fourth quarter before rallying for a double-overtime win.`\
+https://nytimes.com/athletic/5761877/2024/09/11/colorado-state-tory-horton-buffaloes-deion-sanders/
+
+**Astros' Chas McCormick 'really disappointed' as he lands on injured list with hand fracture**\
+`McCormick described his fracture as "not a serious thing," but did not have a concrete timeline for his return.`\
+https://nytimes.com/athletic/5761883/2024/09/11/astros-chas-mccormick-right-hand-fracture/
+
 **Red Sox takeaways: Tyler O'Neill homer powers walk-off win over Orioles**\
 `The Red Sox’s bullpen continues to struggle and Liam Hendriks is in a holding pattern in his rehab. Plus, James Paxton set to retire.`\
 https://nytimes.com/athletic/5761878/2024/09/11/red-sox-takeaways-tyler-oneill-walkoff/

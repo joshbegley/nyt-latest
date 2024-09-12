@@ -2,7 +2,7 @@
 `Colorado, who entered the game as a 27.5-point favorite, trailed by 11 in the fourth quarter before rallying for a double-overtime win.`\
 https://nytimes.com/athletic/5761877/2024/09/11/colorado-state-tory-horton-buffaloes-deion-sanders/
 
-**Astros' Chas McCormick 'really disappointed' as he lands on injured list with hand fracture**\
+**Astros' Chas McCormick 'really disappointed' to land on IL with hand fracture**\
 `McCormick described his fracture as "not a serious thing," but did not have a concrete timeline for his return.`\
 https://nytimes.com/athletic/5761883/2024/09/11/astros-chas-mccormick-right-hand-fracture/
 
