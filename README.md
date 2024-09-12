@@ -1,3 +1,7 @@
+**Connor McDavid and Leon Draisaitl on how their contracts could change the game for NHL stars**\
+`Draisaitl, the NHL's top-paid player, says the Oilers stars can "get more money into hockey and get the players some higher salaries."`\
+https://nytimes.com/athletic/5761430/2024/09/11/connor-mcdavid-leon-draisaitl-oilers-contracts/
+
 **Blue Jays' Bowden Francis loses no-no again in ninth, but continues growth as starter**\
 `Francis not only has flirted with history twice in four starts but also has the lowest WHIP (0.40) over a six-start span in MLB history.`\
 https://nytimes.com/athletic/5761463/2024/09/11/blue-jays-bowden-francis-near-no-hitter/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/11/business/media/harris-trump-debate-ratings.html
 **Former Realtor Employee Files Sexual Harassment Suit Against Trade Group**\
 `A woman who worked for the National Association of Realtors says she was fired after she reported instances of sexual harassment and discrimination, according to a federal lawsuit.`\
 https://nytimes.com/2024/09/11/realestate/nar-realtors-sexual-harassment-lawsuit.html
-
-**Is Donald Trump Too Emotional for This?**\
-`Kamala Harris sought to rattle Trump — and flip a gender dynamic on its head.`\
-https://nytimes.com/2024/09/11/us/politics/trump-debate-emotions.html
 
