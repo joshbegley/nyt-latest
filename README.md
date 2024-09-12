@@ -1,3 +1,11 @@
+**MTV Video Music Awards: 7 Memorable Moments**\
+`Taylor Swift set a record and Chappell Roan, Sabrina Carpenter and Katy Perry delivered noteworthy performances as the show struck a balance between past and present.`\
+https://nytimes.com/2024/09/12/arts/music/mtv-vma-moments.html
+
+**Juan Soto's injury scare hjelps propel Yankees to walk-off win over Royals**\
+`NEW YORK — Juan Soto hopped down the first base line as if he were playing the most painful game of hopscotch imaginable.`\
+https://nytimes.com/athletic/5761852/2024/09/12/juan-soto-injury-scare-yankees-walk-off-win/
+
 **Fantasy basketball 2024-25: Wemby, Christian Braun and 15 more players set for a significant playing time boost**\
 `Eric Wong begins your education for the 2024-25 fantasy basketball campaign by highlighting 17 players in line for a playing time boost.`\
 https://nytimes.com/athletic/5761509/2024/09/12/fantasy-basketball-playing-time-increase-wemby/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5760880/2024/09/12/fantasy-hockey-trends-hidden-gem
 **Twins feeling 'urgency' with Byron Buxton set to return from IL Friday**\
 `Rocco Baldelli changed his bullpen usage to secure a key win over the Angels and then announced Buxton's return from a month-long injury.`\
 https://nytimes.com/athletic/5761797/2024/09/12/byron-buxton-return-twins-urgency/
-
-**Kevin De Bruyne has lost patience with Belgium. This is why**\
-`The Manchester City midfielder has a history of letting his feelings be known when he feels standards have dropped`\
-https://nytimes.com/athletic/5760046/2024/09/12/kevin-de-bruyne-belgium-future/
-
-**In S​outh Korea, Online Misogyny Has a New Weapon: Deepfake Sex Videos**\
-`Men in chat rooms have been victimizing women they know by putting their faces on pornographic clips. Some Korean women say the only thing new about it is the technology.`\
-https://nytimes.com/2024/09/12/world/asia/south-korea-deepfake-videos.html
 
