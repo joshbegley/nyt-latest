@@ -1,3 +1,7 @@
+**A Soprano Who Despises Encores Interrupts Her Co-Star’s**\
+`Angela Gheorghiu drew criticism after she stormed onstage to stop a tenor’s encore during a performance of “Tosca” in Seoul.`\
+https://nytimes.com/2024/09/12/arts/music/angela-gheorghiu-tosca-encore-seoul.html
+
 **When Debates Don’t Go Well, Donald Trump Has a Go-To Move**\
 `It does not usually involve congratulating the moderators for their impartiality and quietly resolving to do better the next time.`\
 https://nytimes.com/2024/09/12/us/politics/trump-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/12/briefing/ukraine-election-spacewalk.html
 **Justice Dept. Charges Two Men in Jan. 6 Assault on Times Photographer**\
 `The pair, brothers, were charged with stealing the photographer’s camera, assault with the intent to commit a felony and entering the Capitol unlawfully.`\
 https://nytimes.com/2024/09/12/us/politics/jan-6-assault-times-photographer.html
-
-**Trump’s ‘Concepts of a Plan’ for Health Care Really Means He Has No Plan**\
-`Trying to come up with a viable alternative to the Affordable Care Act would probably just mean reinventing it.`\
-https://nytimes.com/2024/09/12/opinion/trump-harris-concepts-obamacare.html
 
