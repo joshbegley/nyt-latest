@@ -1,3 +1,19 @@
+**Mandel: Pac-12 is betting on upside of the Playoff, even if the future remains murky**\
+`If a Pac-12 team makes the College Football Playoff in 2026, this will be the wisest $110 million the conference ever spent.`\
+https://nytimes.com/athletic/5763474/2024/09/12/pac-12-realignment-college-football-playoff-bet/
+
+**Jets' Allen Lazard has a simple explanation for his Week 1 return to form**\
+`The embattled receiver's strong summer carried over to the regular-season opener.`\
+https://nytimes.com/athletic/5763478/2024/09/12/jets-allen-lazard-week-1-performance-improvement/
+
+**$47 Million Flowed Into Harris Campaign in 24 Hours After Debate**\
+`The sum included donations from 600,000 individuals. Vice President Kamala Harris already had a significant financial edge over former President Donald J. Trump entering September.`\
+https://nytimes.com/2024/09/12/us/politics/harris-debate-donations.html
+
+**Climate Lawsuits Are Exploding. Are Homicide Charges Next?**\
+`The courts have become one of the most important battlegrounds in the fight over planet-warming emissions. Here are prominent cases to watch.`\
+https://nytimes.com/2024/09/12/climate/climate-lawsuits-major-cases.html
+
 **La Grenouille, Vestige of New York’s Old-School French Dining, Will Close**\
 `Six decades after its birth as an elegant refuge for Manhattan’s elite, the Midtown restaurant says ‘adieu’ this week.`\
 https://nytimes.com/2024/09/12/dining/la-grenouille-closing-nyc.html
