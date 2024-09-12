@@ -1,3 +1,11 @@
+**Kamala Harris Is Serious. Donald Trump Is Not.**\
+`Her careful cramming and his cocky hamming tell you all you need to know.`\
+https://nytimes.com/2024/09/12/opinion/kamala-harris-trump-debate.html
+
+**Knicks hire Tyler Murray to be team's new radio voice**\
+`Murray replaces Ed Cohen, who only did a few games last year for undisclosed reasons.`\
+https://nytimes.com/athletic/5762804/2024/09/12/knicks-radio-tyler-murray-nba/
+
 **City Hall in Springfield, Ohio, Is Closed After Bomb Threat**\
 `The city said that “multiple facilities” had received the emailed threat.`\
 https://nytimes.com/2024/09/12/us/politics/springfield-ohio-bomb-threat-trump-pets.html

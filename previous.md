@@ -1,3 +1,11 @@
+**Kamala Harris Is Serious. Donald Trump Is Not.**\
+`Her careful cramming and his cocky hamming tell you all you need to know.`\
+https://nytimes.com/2024/09/12/opinion/kamala-harris-trump-debate.html
+
+**Knicks hire Tyler Murray to be team's new radio voice**\
+`Murray replaces Ed Cohen, who only did a few games last year for undisclosed reasons.`\
+https://nytimes.com/athletic/5762804/2024/09/12/knicks-radio-tyler-murray-nba/
+
 **City Hall in Springfield, Ohio, Is Closed After Bomb Threat**\
 `The city said that “multiple facilities” had received the emailed threat.`\
 https://nytimes.com/2024/09/12/us/politics/springfield-ohio-bomb-threat-trump-pets.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/12/us/politics/linda-ronstadt-donald-trump-toxic-pol
 **Missouri Judge Rejects Innocence Claim by Man on Death Row**\
 `Marcellus Williams, who was convicted in a 1998 killing, now faces execution later this month.`\
 https://nytimes.com/2024/09/12/us/marcellus-williams-death-row-innocence-claim-ruling.html
-
-**Police Commissioner Set to Quit as Investigations Batter Adams’s Circle**\
-`Edward Caban had been asked to resign after federal agents seized his phone as part of a criminal investigation, one of several involving members of Mayor Eric Adams’s administration.`\
-https://nytimes.com/2024/09/12/nyregion/edward-caban-resigns-nypd-commissioner.html
-
-**Fantasy football rankings Week 2: Sleepers, projections, starts, sits**\
-`Jake Ciely offers up his Week 2 fantasy football player rankings, along with sleepers and need-to-knows for each matchup.`\
-https://nytimes.com/athletic/5759303/2024/09/12/fantasy-football-rankings-week-2-sleepers-projections-starts-sits-2/
 
