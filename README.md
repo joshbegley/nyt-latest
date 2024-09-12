@@ -1,3 +1,15 @@
+**Violent Convulsions and Lost Speech: Listeria Survivors Describe Harrowing Illnesses**\
+`The outbreak, linked to Boar’s Head products, has been especially devastating for high-risk groups like pregnant women and older adults.`\
+https://nytimes.com/2024/09/12/well/listeria-survivors-boars-head.html
+
+**Russian Forces Are Stepping Up Attacks on Strategic City, Ukraine Says**\
+`Bombardments are increasing in and around Pokrovsk, Ukrainian officials said, with water supplies now cut and a road overpass destroyed.`\
+https://nytimes.com/2024/09/12/world/europe/russia-ukraine-pokrovsk-attacks.html
+
+**‘Chaos’ Reigns!**\
+`‘Chaos’ is an unruly word for a volatile time. The election is the least of it.`\
+https://nytimes.com/interactive/2024/09/12/books/chaos-meaning-word.html
+
 **Charles Biasiny-Rivera, Champion of Latino Photography, Dies at 93**\
 `A New Yorker of Puerto Rican descent, he helped start a collective that brought recognition to Hispanic photographers and illuminated life in the city’s barrios.`\
 https://nytimes.com/2024/09/12/arts/charles-biasiny-rivera-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/12/business/navient-settlement-student-loans.html
 **Earthquake Rattles Coastal Area Near Los Angeles**\
 `Preliminary estimates said a 4.7-magnitude temblor was centered near Malibu. The authorities were determining whether there was any significant damage.`\
 https://nytimes.com/2024/09/12/us/earthquake-california-los-angeles-malibu.html
-
-**Map: 4.7-Magnitude Earthquake Strikes Near Los Angeles**\
-`View the quake’s shake area and aftershocks.`\
-https://nytimes.com/interactive/2024/09/12/us/earthquake-tracker-southern-california.html
-
-**The Bounce: Do Kawhi Leonard, Clippers have new window?**\
-`Jason Jones catches you up on leaguewide news.`\
-https://nytimes.com/athletic/5762369/2024/09/12/kawhi-leonard-james-harden-clippers-intuit-dome-charles-barkley-turner-tnt-nba-the-bounce/
-
-**Ukraine Says Russian Missile Hit Grain Ship in Black Sea**\
-`If confirmed, the attack would be the first on a commercial vessel since Ukraine secured a shipping route to grain markets abroad last year.`\
-https://nytimes.com/2024/09/12/world/europe/ukraine-grain.html
 
