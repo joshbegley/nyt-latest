@@ -1,11 +1,3 @@
-**Early Voting Is Beginning in These States. Here’s What to Know.**\
-`Which states do early voting, and when does it start?`\
-https://nytimes.com/2024/09/12/us/politics/early-voting-states-ballots.html
-
-**A New Mini-Moon Is Being Captured by Planet Earth**\
-`It’s just a little guy, and not everyone agrees that it’s actually a mini-moon.`\
-https://nytimes.com/2024/09/12/science/new-mini-moon-earth-orbit.html
-
 **Sybil Haydel Morial, New Orleans Civil Rights Matriarch, Dies at 91**\
 `The wife of Ernest N. Morial, the city’s first Black mayor, she was also a crusader in her own right who fought for equal rights for Black women.`\
 https://nytimes.com/2024/09/12/us/sybil-haydel-morial-dead.html
@@ -37,4 +29,12 @@ https://nytimes.com/2024/09/12/us/politics/trump-harris-debate.html
 **A Famous Churchill Portrait, Stolen in Canada and Found in Italy**\
 `A forgery delayed the discovery of the theft of the photograph long enough for it to be sold at an auction in London.`\
 https://nytimes.com/2024/09/12/world/canada/yousuf-karsh-stolen-churchill-portrait.html
+
+**18,000 Miles Later, an American Woman Has Cycled the World**\
+`It took Lael Wilcox 108 days to circumnavigate the globe. Improbably, she said it was “the most fun ride of my life.”`\
+https://nytimes.com/2024/09/12/sports/cycling/bicycle-around-the-world-record.html
+
+**Mbappe's PSG salary dispute set to be resolved in court**\
+`The contract dispute between Paris Saint-Germain and Kylian Mbappe over the player’s unpaid salary is set to go to court after PSG rejected a recommendation by a Ligue de Football Professionel (LFP) legal commission to pay Mbappe €55million.`\
+https://nytimes.com/athletic/5763138/2024/09/12/psg-mbappe-wages-dispute/
 
