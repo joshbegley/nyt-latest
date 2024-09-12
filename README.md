@@ -1,9 +1,13 @@
+**‘The Rings of Power’ Season 2, Episode 5 Recap: Royal Pains**\
+`This week’s focus was largely on the deepening political drama in Numenor and Khazad-dum, where things have gotten predictably messy.`\
+https://nytimes.com/2024/09/12/arts/television/rings-of-power-recap-season-2-episode-5.html
+
 **NASCAR free agency: What we're hearing about Corey LaJoie, Justin Haley and more**\
 `What's next for Corey LaJoie? Will 23XI still add another car? Here's our latest look at where things stand is the NASCAR free-agency cycle.`\
 https://nytimes.com/athletic/5761311/2024/09/12/nascar-free-agency-corey-lajoie-justin-haley/
 
 **DeSantis Spars With Abortion Rights Backers Over Florida Ballot Measure**\
-`Florida’s governor has come under fire from critics who say he is using state resources to work against a proposed abortion-rights amendment to the State Constitution.`\
+`Florida’s governor has come under fire from critics who say he is using state resources to work against a proposed abortion-rights amendment to the state Constitution.`\
 https://nytimes.com/2024/09/12/us/desantis-abortion-ballot-petition-signatures.html
 
 **U.S. Presses Nigeria to Release Imprisoned Binance Employee**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/12/opinion/gossip.html
 **Clark encourages people to vote after liking Swift's endorsement of Harris**\
 `As of Thursday, Swift's Instagram post had over 10 million likes.`\
 https://nytimes.com/athletic/5762790/2024/09/12/caitlin-clark-taylor-swift-kamala-harris/
-
-**2 Chinese Dramas (and a Family of 3) Broaden a Theater Festival’s Scope**\
-`By presenting “The Orphan of Chao” and “Snow in Midsummer,” the Shaw Festival is helping “the past to smash its way into the modern world.”`\
-https://nytimes.com/2024/09/12/theater/shaw-festival-orphan-chao-snow-midsummer.html
 
