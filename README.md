@@ -1,3 +1,19 @@
+**Even Harris’s Strongest Supporters Long for More Details**\
+`They want specifics, particularly on her economic plans.`\
+https://nytimes.com/live/2024/09/11/opinion/thepoint/harris-charlotte-supporters-questions
+
+**Harris Challenges Trump to Debate Again as She Rallies in North Carolina**\
+`At her first big event since this week’s debate, the vice president said “we owe it to the voters” to have another. Less than an hour earlier, Donald Trump had said he would not participate in one.`\
+https://nytimes.com/2024/09/12/us/politics/harris-trump-second-debate.html
+
+**Harris Challenges Trump to a Second Debate**\
+`At her first post-debate event in Charlotte, N.C., Vice President Kamala Harris challenged former President Donald J. Trump to another onstage face-off, and mocked his threats to end the Affordable Care Act.`\
+https://nytimes.com/video/us/elections/100000009689908/kamala-harris-north-carolina-trump.html
+
+**At the Maxi Yacht Rolex Cup, Strong Winds Are Always a Factor**\
+`This year a 100-foot class will earn a Maxi World Championship title for the first time, but gale winds forced the big boats to stay in the harbor as racing began.`\
+https://nytimes.com/2024/09/12/sports/sailing/maxi-yacht-rolex-cup-winds.html
+
 **‘Why Am I So Single?’ Review: After ‘Six,’ a Scrappy, Sappy Dating Musical**\
 `The duo behind the Broadway hit follow it up with a meta reflection on finding love online that is relatable and fun but lacking narrative drive.`\
 https://nytimes.com/2024/09/12/theater/why-am-i-so-single-review-london.html
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/12/arts/music/sean-combs-diddy-tiktok-lawyers.html
 **Georgia Judge Tosses 3 More Charges in Trump Election Interference Case**\
 `While the judge kept most of the case intact, it was a win for the defendants, who have been trying to chip away at the case.`\
 https://nytimes.com/2024/09/12/us/trump-georgia-election-interference-case.html
-
-**U.N. and Britain Denounce Israeli Attack in Gaza That Killed U.N. Workers**\
-`Israel said the former school had become a haven for militants and released a list of men it said were Hamas fighters targeted in the attack.`\
-https://nytimes.com/2024/09/12/world/middleeast/un-school-gaza-israel.html
-
-**‘The Killer’s Game’ Review: Catch Him if You Can**\
-`An assassin (Dave Bautista) meets his match (Sofia Boutella), but a diagnosis sets off an absurd chain of events in this rom-com action movie.`\
-https://nytimes.com/2024/09/12/movies/the-killers-game-review.html
-
-**A Soprano Who Despises Encores Interrupts Her Co-Star’s**\
-`Angela Gheorghiu drew criticism after she stormed onstage to stop a tenor’s encore during a performance of “Tosca” in Seoul.`\
-https://nytimes.com/2024/09/12/arts/music/angela-gheorghiu-tosca-encore-seoul.html
-
-**When Debates Don’t Go Well, Donald Trump Has a Go-To Move**\
-`It does not usually involve congratulating the moderators for their impartiality and quietly resolving to do better the next time.`\
-https://nytimes.com/2024/09/12/us/politics/trump-debate.html
 
