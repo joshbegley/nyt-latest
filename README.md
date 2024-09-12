@@ -27,7 +27,7 @@ https://nytimes.com/2024/09/12/us/politics/linda-ronstadt-donald-trump-toxic-pol
 https://nytimes.com/2024/09/12/us/marcellus-williams-death-row-innocence-claim-ruling.html
 
 **Police Commissioner Set to Quit as Investigations Batter Adams’s Circle**\
-`Edward Caban had been asked to resign after federal agents seized his phone as part of a criminal investigation, one of several involving members of the Adams administration.`\
+`Edward Caban had been asked to resign after federal agents seized his phone as part of a criminal investigation, one of several involving members of Mayor Eric Adams’s administration.`\
 https://nytimes.com/2024/09/12/nyregion/edward-caban-resigns-nypd-commissioner.html
 
 **Fantasy football rankings Week 2: Sleepers, projections, starts, sits**\
