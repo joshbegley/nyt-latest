@@ -1,3 +1,7 @@
+**Conversations With Journalists: An Invitation for Teenagers**\
+`This fall we’re choosing some teen-friendly Times articles and inviting students to talk to the people who made them. Post your thoughts, ask questions or suggest ideas, and the reporters will reply!`\
+https://nytimes.com/2024/09/12/learning/students-journalists-conversations.html
+
 **Loyalty, history and $5 beers: Why fans still come out to see the Chicago White Sox**\
 `The stands are mostly empty at Chicago's Guaranteed Rate Field, but some fans still come out to watch what may be the worst MLB team ever. `\
 https://nytimes.com/athletic/5757456/2024/09/12/fans-chicago-white-sox-worst-mlb-team/
