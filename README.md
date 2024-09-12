@@ -1,3 +1,15 @@
+**Georgia Judge Tosses 3 More Charges in Trump Election Interference Case**\
+`While the judge kept most of the case intact, it was a win for the defendants, who have been trying to chip away at the case.`\
+https://nytimes.com/2024/09/12/us/trump-georgia-election-interference-case.html
+
+**U.N. and Britain Denounce Israeli Attack in Gaza That Killed U.N. Workers**\
+`Israel said the former school had become a haven for militants and released a list of men it said were Hamas fighters targeted in the attack.`\
+https://nytimes.com/2024/09/12/world/middleeast/un-school-gaza-israel.html
+
+**‘The Killer’s Game’ Review: Catch Him if You Can**\
+`An assassin (Dave Bautista) meets his match (Sofia Boutella), but a diagnosis sets off an absurd chain of events in this rom-com action movie.`\
+https://nytimes.com/2024/09/12/movies/the-killers-game-review.html
+
 **A Soprano Who Despises Encores Interrupts Her Co-Star’s**\
 `Angela Gheorghiu drew criticism after she stormed onstage to stop a tenor’s encore during a performance of “Tosca” in Seoul.`\
 https://nytimes.com/2024/09/12/arts/music/angela-gheorghiu-tosca-encore-seoul.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5763745/2024/09/12/caitlin-clark-fever-wilson-baske
 **Justice Dept. Official Calls Election Meddling a ‘Clear and Present Danger’**\
 `The head of the department’s national security division amplified warnings that other countries were seeking to sway the outcome in November, including Russia’s efforts to help Donald Trump.`\
 https://nytimes.com/2024/09/12/us/politics/justice-department-election-russia.html
-
-**The National Park Service Is More Than Just Its Iconic Hat**\
-`For fashion week, the N.P.S. has its employees showing off their various uniform options. One ranger in North Dakota has stood out among his peers.`\
-https://nytimes.com/2024/09/12/style/national-park-service-fashion-week.html
-
-**Friday Briefing: U.S. May Let Ukraine Use Long-range Weapons**\
-`Plus, will Taylor Swift’s endorsement affect the U.S. election?`\
-https://nytimes.com/2024/09/12/briefing/ukraine-election-spacewalk.html
-
-**Justice Dept. Charges Two Men in Jan. 6 Assault on Times Photographer**\
-`The pair, brothers, were charged with stealing the photographer’s camera, assault with the intent to commit a felony and entering the Capitol unlawfully.`\
-https://nytimes.com/2024/09/12/us/politics/jan-6-assault-times-photographer.html
 
