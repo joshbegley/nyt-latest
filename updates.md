@@ -1,3 +1,11 @@
+**DeSantis Spars With Abortion Rights Backers Over Florida Ballot Measure**\
+`Florida’s governor has come under fire from critics who say he is using state resources to work against a proposed abortion-rights amendment to the State Constitution.`\
+https://nytimes.com/2024/09/12/us/desantis-abortion-ballot-petition-signatures.html
+
+**U.S. Presses Nigeria to Release Imprisoned Binance Employee**\
+`Diplomats are calling for the release of Tigran Gambaryan, an employee of the crypto exchange who was arrested in February.`\
+https://nytimes.com/2024/09/12/technology/binance-nigeria-tigran-gambaryan.html
+
 **What does Craig Conroy need to achieve this season? Flames mailbag**\
 `Also, what's an NHL comparable for prospect Zayne Parekh? And will the Flames trade off more veterans?`\
 https://nytimes.com/athletic/5742448/2024/09/12/flames-mailbag-conroy-parekh/
