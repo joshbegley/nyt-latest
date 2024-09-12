@@ -1,3 +1,7 @@
+**Joe Alt’s Chargers debut vs. Raiders shows all the traits that made him No. 5 pick**\
+`Alt more than held his own against the Raiders’ standout duo of Maxx Crosby and Christian Wilkins. `\
+https://nytimes.com/athletic/5760981/2024/09/12/joe-alt-chargers-debut-raiders-maxx-crosby/
+
 **Violent Convulsions and Lost Speech: Listeria Survivors Describe Harrowing Illnesses**\
 `The outbreak, linked to Boar’s Head products, has been especially devastating for high-risk groups like pregnant women and older adults.`\
 https://nytimes.com/2024/09/12/well/listeria-survivors-boars-head.html
