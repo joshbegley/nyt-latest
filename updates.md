@@ -1,3 +1,7 @@
+**Astros' Jose Altuve day to day after exiting game with right side discomfort**\
+`The Astros can ill afford to lose Altuve, who appeared to be injured on a swing, with October looming. `\
+https://nytimes.com/athletic/5761683/2024/09/11/astros-jose-altuve-exits-game-right-side-discomfort/
+
 **Riley Greene powers the Tigers in more ways than one: 'He's a magnet'**\
 `One of Greene's greatest contributions, though, may be more unseen. It’s the constant energy and upbeat vibes he brings to the Tigers.`\
 https://nytimes.com/athletic/5761747/2024/09/11/riley-greene-powers-the-detroit-tigers/
