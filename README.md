@@ -1,3 +1,7 @@
+**Astros' Framber Valdez brought back his hair extensions and has been elite ever since**\
+`The Astros have won 13 of the 14 games Valdez has started since he reintroduced his hair extensions.`\
+https://nytimes.com/athletic/5764125/2024/09/12/astros-framber-valdez-hair-extensions/
+
 **MLB says A’s move to Sacramento ‘a certainty’**\
 `Before the A's move to Las Vegas in 2028, the team will play in Sacramento at the Triple-A stadium of the San Francisco Giants.`\
 https://nytimes.com/athletic/5763996/2024/09/12/oakland-as-sacramento-move-developments/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2024/09/12/upshot/ten-minute-challenge-unicorn.h
 **Screamin’ Scott Simon, Longtime Sha Na Na Keyboardist, Dies at 75**\
 `A mainstay of the rock ’n’ roll nostalgia band, he also wrote the lyrics to “Sandy,” a song heard in the hit film “Grease.”`\
 https://nytimes.com/2024/09/12/arts/music/scott-simon-dead.html
-
-**New Hampshire Tightens Requirements for Voters**\
-`The law adds the need for photo identification to cast a ballot and demands that first-time voters show proof of citizenship. The law does not take effect until after the November elections.`\
-https://nytimes.com/2024/09/12/us/politics/new-hampshire-voters-photo-id.html
 
