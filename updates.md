@@ -1,3 +1,7 @@
+**Youth Group Asks Supreme Court to Revive a Landmark Climate Lawsuit**\
+`The case argues the government violated young people’s constitutional rights by failing to curb the use of fossil fuels. A lower court had thrown it out.`\
+https://nytimes.com/2024/09/12/climate/juliana-lawsuit-supreme-court.html
+
 **A night inside the county storm center that was rebuilt after Katrina’s destruction.**\
 `By Isabelle Taft`\
 https://nytimes.com/live/2024/09/12/weather/hurricane-francine-louisiana/mississippi-hancock-county
