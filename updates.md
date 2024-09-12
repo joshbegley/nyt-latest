@@ -1,3 +1,7 @@
+**Commanders' Emmanuel Forbes to have surgery on thumb: Source**\
+`Surgery will determine the recovery timeline and whether an injured reserve stint is required.`\
+https://nytimes.com/athletic/5763629/2024/09/12/emmanuel-forbes-commanders-injury/
+
 **Trump Says He Won’t Debate Harris Again**\
 `His declaration follows a debate performance on Tuesday that was widely criticized. He has gone back and forth before about whether to participate in debates.`\
 https://nytimes.com/2024/09/12/us/politics/trump-harris-debate.html
