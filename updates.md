@@ -1,3 +1,11 @@
+**NFL Week 2 injury report: Jordan Love return unlikely, Achilles tendinitis a 'big deal' for CMC and more**\
+`Greg Scholz runs through the biggest fantasy football injury worries of Week 2, expressing doubts that Jordan Love can return by Sunday.`\
+https://nytimes.com/athletic/5761773/2024/09/12/week-2-injury-report-fantasy-football-jordan-love-cmc/
+
+**How tears and a telephone in Toronto changed Aryna Sabalenka's tennis life**\
+`How the world No. 2 rebuilt her serve, and her confidence - with the help of the team she calls family`\
+https://nytimes.com/athletic/5500511/2024/09/12/aryna-sabalenka-team-coach/
+
 **The Stakes on Presidential Power**\
 `We explain the contrasting approaches Donald Trump and Kamala Harris take to the executive office.`\
 https://nytimes.com/2024/09/12/briefing/the-stakes-on-presidential-power.html
