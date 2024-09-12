@@ -1,3 +1,7 @@
+**City Hall in Springfield, Ohio, Is Closed After Bomb Threat**\
+`The city said that “multiple facilities” had received the emailed threat.`\
+https://nytimes.com/2024/09/12/us/politics/springfield-ohio-bomb-threat-trump-pets.html
+
 **Adderall in Higher Doses May Raise Psychosis Risk, Study Says**\
 `New research suggests that dosage plays a role in a rare side effect of A.D.H.D. stimulants.`\
 https://nytimes.com/2024/09/12/well/mind/adderall-vyvanse-mania-psychosis-study.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/12/nyregion/edward-caban-resigns-nypd-commissioner.h
 **Fantasy football rankings Week 2: Sleepers, projections, starts, sits**\
 `Jake Ciely offers up his Week 2 fantasy football player rankings, along with sleepers and need-to-knows for each matchup.`\
 https://nytimes.com/athletic/5759303/2024/09/12/fantasy-football-rankings-week-2-sleepers-projections-starts-sits-2/
-
-**Violent Convulsions and Lost Speech: Listeria Survivors Describe Harrowing Illnesses**\
-`The outbreak, linked to Boar’s Head products, has been especially devastating for high-risk groups like pregnant women and older adults.`\
-https://nytimes.com/2024/09/12/well/listeria-survivors-boars-head.html
 
