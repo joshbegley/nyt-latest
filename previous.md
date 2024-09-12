@@ -1,3 +1,7 @@
+**‘The Smoking Room’ Is a Brilliant British Office Comedy**\
+`And yet, compared with the British “Office,” it is a model of restraint.`\
+https://nytimes.com/2024/09/12/arts/television/the-smoking-room-streaming-roku.html
+
 **United States Backs Africa’s U.N. Security Council Bid, With a Catch**\
 `The announcement provides U.S. support to permanent council seats for African nations, though not new veto powers. But the path to adding members requires far more than White House approval.`\
 https://nytimes.com/2024/09/12/world/africa/us-un-security-council-africa-permanent-seats.html
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/5763270/2024/09/12/acc-conference-realignment-flori
 https://nytimes.com/2024/09/12/learning/what-students-are-saying-about-summer-vacation-and-heading-back-to-school.html
 
 **Rafael Nadal withdraws from Laver Cup**\
-`The 22-time Grand Slam champion had slated the exhibition tournament as his final event of the year.`\
+`The 22-time Grand Slam champion had slated the exhibition-style team tournament as his final event of the year.`\
 https://nytimes.com/athletic/5763349/2024/09/12/nadal-laver-cup-teams-2024/
 
 **College football Week 3 model projections: Predicted scores for every game**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5763220/2024/09/12/trevor-lawrence-jaguars-treverba
 **This Chatbot Pulls People Away From Conspiracy Theories**\
 `In a new study, many people doubted or abandoned false beliefs after a short conversation with the DebunkBot.`\
 https://nytimes.com/2024/09/12/health/chatbot-debunk-conspiracy-theories.html
-
-**North Dakota’s Abortion Ban Is Overturned**\
-`A judge ruled that the State Constitution protected a woman’s right to abortion until the fetus was viable. The decision will surely be appealed.`\
-https://nytimes.com/2024/09/12/us/north-dakota-abortion-ban-overturned.html
 
