@@ -1,3 +1,23 @@
+**Fantasy trends and hidden gems: Our projections vs. Yahoo ADP**\
+`Shayna Goldman highlights the the players with the biggest value discrepancies between The Athletic's projections and Yahoo ADP.`\
+https://nytimes.com/athletic/5760880/2024/09/12/fantasy-hockey-trends-hidden-gems-projections-vs-yahoo-adp/
+
+**Twins feeling 'urgency' with Byron Buxton set to return from IL Friday**\
+`Rocco Baldelli changed his bullpen usage to secure a key win over the Angels and then announced Buxton's return from a month-long injury.`\
+https://nytimes.com/athletic/5761797/2024/09/12/byron-buxton-return-twins-urgency/
+
+**Kevin De Bruyne has lost patience with Belgium. This is why**\
+`The Manchester City midfielder has a history of letting his feelings be known when he feels standards have dropped`\
+https://nytimes.com/athletic/5760046/2024/09/12/kevin-de-bruyne-belgium-future/
+
+**In S​outh Korea, Online Misogyny Has a New Weapon: Deepfake Sex Videos**\
+`Men in chat rooms have been victimizing women they know by putting their faces on pornographic clips. Some Korean women say the only thing new about it is the technology.`\
+https://nytimes.com/2024/09/12/world/asia/south-korea-deepfake-videos.html
+
+**Federico Chiesa's journey to Anfield: Big moments, big bang theory and emulating his father**\
+`Liverpool's new signing broke through as a teenager at Fiorentina, after considering studying physics instead. This is his story so far…`\
+https://nytimes.com/athletic/5757576/2024/09/12/federico-chiesa-liverpool-background-profile/
+
 **Barca captains: 'Godfather' Pedri, surprise choice Raphinha - and where's Lewandowski?**\
 `Barca's new leadership group as voted for by the squad threw up some surprises`\
 https://nytimes.com/athletic/5759896/2024/09/12/barcelona-captains-ter-stegen-pedri-raphinha/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5743954/2024/09/12/spain-la-liga-club-nicknames-bar
 **Fantasy baseball waiver wire: Taylor Ward, Spencer Arrighetti and more top adds**\
 `With the fantasy baseball stretch run upon us, John Laghezza offers up his top waiver wire options, with Taylor Ward his top overall bat.`\
 https://nytimes.com/athletic/5760164/2024/09/12/fantasy-baseball-waiver-wire-taylor-ward-spencer-arrighetti-adds/
-
-**Thursday Briefing**\
-`The aftermath of the Harris-Trump debate.`\
-https://nytimes.com/2024/09/12/briefing/harris-trump-debate.html
-
-**Thursday's MLB odds, best bets: Projections for pitching matchups, playoffs and more**\
-`See pitching matchups, playoff projections, win projections and more for Thursday's MLB games.`\
-https://nytimes.com/athletic/5758924/2024/09/12/mlb-odds-best-bets-projections-september-12/
-
-**Young Chinese Émigrés Confront America’s Brutal Visa Lottery**\
-`For Chinese seeking educational opportunity, the United States has long been the top spot, but as more want to stay to work, their paths are full of roadblocks.`\
-https://nytimes.com/2024/09/12/business/chinese-h1b-visa.html
-
-**Corrections: Sept. 12, 2024**\
-`Corrections that appeared in print on Thursday, Sept. 12, 2024.`\
-https://nytimes.com/2024/09/11/pageoneplus/corrections-sept-12-2024.html
-
-**Quote of the Day: Will Automation Replace Jobs? Port Workers May Strike Over It.**\
-`Quotation of the Day for Thursday, September 12, 2024`\
-https://nytimes.com/2024/09/11/pageoneplus/quote-of-the-day-will-automation-replace-jobs-port-workers-may-strike-over-it.html
 
