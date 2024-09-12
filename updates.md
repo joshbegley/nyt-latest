@@ -1,3 +1,7 @@
+**After a Bruising Debate, Trump Finds Some Friends in Lower Manhattan**\
+`On 9/11, the former president got a warm welcome from New York City firefighters.`\
+https://nytimes.com/2024/09/11/us/elections/trump-sept-11-firefighters-new-york.html
+
 **Connor McDavid and Leon Draisaitl on how their contracts could change the game for NHL stars**\
 `Draisaitl, the NHL's top-paid player, says the Oilers stars can "get more money into hockey and get the players some higher salaries."`\
 https://nytimes.com/athletic/5761430/2024/09/11/connor-mcdavid-leon-draisaitl-oilers-contracts/
