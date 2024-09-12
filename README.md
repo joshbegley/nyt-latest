@@ -1,40 +1,40 @@
-**Francine Floods New Orleans Areas Scarred by Past Storms**\
-`Southern Louisiana residents braced for floods as the storm passed through. Many were in neighborhoods that were battered by Katrina and Ida.`\
-https://nytimes.com/2024/09/12/weather/hurricane-francine-new-orleans-katrina-ida.html
+**Kyle Shanahan-Brian Flores showdown should be a highlight of 49ers-Vikings rematch**\
+`The Vikings defense hopes it's up to the challenge against the 49ers' run game, with or without Christian McCaffrey, in Week 2.`\
+https://nytimes.com/athletic/5761363/2024/09/12/49ers-vikings-kyle-shanahan-brian-flores-week-2/
 
-**Ten MLB prospects who are primed to make Bowden's top 50 in 2025**\
-`These prospects just missed the cut on Bowden's top 50 this year but are all intriguing talents who appear to have bright futures. `\
-https://nytimes.com/athletic/5760862/2024/09/12/mlb-top-prospects-2024-2025/
+**Chiefs eager for Marquise Brown's return to show offense's full potential**\
+`Brown, the Chiefs’ biggest acquisition in free agency, could return from a dislocated collarbone this week but hasn't practiced yet.`\
+https://nytimes.com/athletic/5761098/2024/09/12/chiefs-marquise-brown-injury-return/
 
-**Conversations With Journalists: An Invitation for Teenagers**\
-`This fall we’re choosing some teen-friendly Times articles and inviting students to talk to the people who made them. Post your thoughts, ask questions or suggest ideas, and the reporters will reply!`\
-https://nytimes.com/2024/09/12/learning/students-journalists-conversations.html
+**From Italy to Boise State, how RB Ashton Jeanty became a scoring sensation**\
+`Jeanty leads the FBS in yards rushing (459) and rushing touchdowns (nine) and chose to do it at Boise State despite plenty of other options.`\
+https://nytimes.com/athletic/5760957/2024/09/12/boise-state-ashton-jeanty-running-back/
 
-**Loyalty, history and $5 beers: Why fans still come out to see the Chicago White Sox**\
-`The stands are mostly empty at Chicago's Guaranteed Rate Field, but some fans still come out to watch what may be the worst MLB team ever. `\
-https://nytimes.com/athletic/5757456/2024/09/12/fans-chicago-white-sox-worst-mlb-team/
+**Greenberg: Caleb Williams learning on the job, but the Bears also need to win now**\
+`They say everything is bigger in Texas. On Sunday night in Houston, Williams' play will loom larger than the analysis of what he can become.`\
+https://nytimes.com/athletic/5761562/2024/09/12/chicago-bears-caleb-williams/
 
-**Forecast of Cooler Weather Offers Relief to Firefighters Battling Blazes in the West**\
-`In California, the fires have displaced tens of thousands of people, charred more than 100,000 acres and strained the state’s resources.`\
-https://nytimes.com/2024/09/12/us/california-wildfires-idaho-oregon.html
+**Top 5 Yankees stories of the week: Catch up on the most-read NY headlines**\
+`Catch up on the past week by checking out the most popular Yankees and MLB stories. `\
+https://nytimes.com/athletic/5760934/2024/09/12/new-york-yankees-headlines-standings-stats-dominguez/
 
-**MAGA Will Fall for Anything**\
-`Apparently, this election is about … pets`\
-https://nytimes.com/2024/09/12/opinion/maga-debate-cats-dogs-haiti-trump.html
+**What Manchester United's financial results do and do not reveal about their PSR position**\
+`Manchester United say they are in compliance with PSR and acted as such during the transfer window, but the margins appear very tight`\
+https://nytimes.com/athletic/5762074/2024/09/12/manchester-united-psr-explained/
 
-**The Deeper Meaning of Taylor Swift’s Democratic Mic Drop**\
-`Some regarded the timing as brilliant; others as bizarre. I promise you, she doesn’t care.`\
-https://nytimes.com/2024/09/12/opinion/taylor-swift-harris-endorsement.html
+**The Commanders, like so many, took note of 9/11 on Wednesday, and then life moved on**\
+`"It's on us to remind the guys what actually happened and how many people sacrificed and lost their lives," Bobby Wagner said. `\
+https://nytimes.com/athletic/5761139/2024/09/12/commanders-9-11-commemeration/
 
-**They Wanted a House in Chicago for Their Growing Family. Would $650,000 Be Enough?**\
-`When a couple learned they were expecting, finding a bigger home became a priority. Could they afford an extra bedroom, a decent kitchen and some outdoor space?`\
-https://nytimes.com/interactive/2024/09/12/realestate/chicago-house-sale.html
+**How the Election Is Sinking a $15 Billion Business Deal**\
+`The Biden administration is expected to block a takeover of U.S. Steel by Japan’s Nippon Steel.`\
+https://nytimes.com/2024/09/12/podcasts/the-daily/us-steel-pennsylvania.html
 
-**Harris, After a Debate Success, Confronts a Battleground ‘Game of Inches’**\
-`Her campaign is riding high, but still sees the race as an exceedingly close grind. Her aides have new hopes of focusing the race squarely on Donald Trump’s fitness for office.`\
-https://nytimes.com/2024/09/12/us/politics/harris-campaign-strategy.html
+**Harris and Trump’s Next Moves, and Francine Lashes Southern Louisiana**\
+`Plus, debunking claims about immigrants in Ohio.`\
+https://nytimes.com/2024/09/12/podcasts/springfield-ohio-debate-election.html
 
-**Should Ukraine Launch Western Weapons Deep Into Russia?**\
-`President Biden has refused to allow Ukraine to use long-range Western missiles on Russian military targets, but he appears to be wavering.`\
-https://nytimes.com/2024/09/12/world/europe/biden-ukraine-strike-russia.html
+**G.M. and Hyundai Plan to Work Together on New Vehicles**\
+`General Motors and the South Korean automaker say they will collaborate on new vehicles, buying parts and clean energy technologies.`\
+https://nytimes.com/2024/09/12/business/general-motors-hyundai-partnership.html
 
