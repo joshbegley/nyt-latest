@@ -1,3 +1,7 @@
+**F1 Azerbaijan GP track breakdown: Baku's unique challenge blends modern with ancient**\
+`The Baku City Circuit, home to one of F1’s longest straights, presents a unique mix of challenges.`\
+https://nytimes.com/athletic/5760603/2024/09/12/f1-azerbaijan-gp-track-breakdown-baku-circuit/
+
 **Arteta's new contract underlines the rare stability he has provided since coming 'home'**\
 `When Mikel Arteta arrived in 2019 Arsenal were in flux. Now, they have a manager with a deal taking him towards a decade in charge`\
 https://nytimes.com/athletic/5760561/2024/09/12/mikel-arteta-new-contract-arsenal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5714657/2024/09/12/mikel-arteta-new-arsenal-contrac
 **Fernando Tatis Jr. shines, but Padres are reminded of thinning margin for error**\
 `San Diego dropped behind Arizona in the race for the National League’s top wild-card spot for the first time since Sept. 1.`\
 https://nytimes.com/athletic/5762012/2024/09/12/fernando-tatis-jr-padres-wild-card/
-
-**Jimmy Kimmel Chides Trump for His Debate Performance**\
-`“More than 67 million Americans watched the debate on television last night, and of that 67 million, the only one who seems to think Trump did a good job is Donald Trump,” Kimmel said.`\
-https://nytimes.com/2024/09/12/arts/television/jimmy-kimmel-trump-debate.html
 

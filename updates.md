@@ -1,3 +1,7 @@
+**F1 Azerbaijan GP track breakdown: Baku's unique challenge blends modern with ancient**\
+`The Baku City Circuit, home to one of F1’s longest straights, presents a unique mix of challenges.`\
+https://nytimes.com/athletic/5760603/2024/09/12/f1-azerbaijan-gp-track-breakdown-baku-circuit/
+
 **Arteta's new contract underlines the rare stability he has provided since coming 'home'**\
 `When Mikel Arteta arrived in 2019 Arsenal were in flux. Now, they have a manager with a deal taking him towards a decade in charge`\
 https://nytimes.com/athletic/5760561/2024/09/12/mikel-arteta-new-contract-arsenal/
