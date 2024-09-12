@@ -1,3 +1,11 @@
+**How a Cultural Shift Favors Harris**\
+`People can be bitter for only so long. Harris’s happy strength may offer a glimpse of a sunnier national mood to come.`\
+https://nytimes.com/2024/09/12/opinion/trump-harris-joy.html
+
+**‘Uglies’ Review: Beauty Is a Beast**\
+`Joey King plays a teenager in a dystopian world where cosmetic surgery seems to be the cure for inequality.`\
+https://nytimes.com/2024/09/12/movies/uglies-review.html
+
 **Lloyd: Browns need Deshaun Watson exit strategy fast. And why are they playing him?**\
 `Watson maintained his innocence Wednesday against a sexual assualt allegation and said the team has his back. At this point, it shouldn't.`\
 https://nytimes.com/athletic/5761146/2024/09/12/browns-deshaun-watson-quarterback-lawsuit/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5762234/2024/09/12/pac-12-expansion-college-footbal
 **Even Harris’s Strongest Supporters Long for More Details**\
 `They want specifics, particularly on her economic plans.`\
 https://nytimes.com/live/2024/09/11/opinion/thepoint/harris-charlotte-supporters-questions
-
-**Harris Challenges Trump to Debate Again as She Rallies in North Carolina**\
-`At her first big events since this week’s debate, the vice president said “we owe it to the voters” to have another. Shortly beforehand, Donald Trump had said he would not participate in one.`\
-https://nytimes.com/2024/09/12/us/politics/harris-trump-second-debate.html
-
-**Harris Challenges Trump to a Second Debate**\
-`At her first post-debate event in Charlotte, N.C., Vice President Kamala Harris challenged former President Donald J. Trump to another onstage face-off, even though he declared earlier in the day that he would not be participating in another.`\
-https://nytimes.com/video/us/elections/100000009689908/kamala-harris-north-carolina-trump.html
 

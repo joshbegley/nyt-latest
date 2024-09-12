@@ -1,3 +1,11 @@
+**How a Cultural Shift Favors Harris**\
+`People can be bitter for only so long. Harris’s happy strength may offer a glimpse of a sunnier national mood to come.`\
+https://nytimes.com/2024/09/12/opinion/trump-harris-joy.html
+
+**‘Uglies’ Review: Beauty Is a Beast**\
+`Joey King plays a teenager in a dystopian world where cosmetic surgery seems to be the cure for inequality.`\
+https://nytimes.com/2024/09/12/movies/uglies-review.html
+
 **Harris Challenges Trump to Debate Again as She Rallies in North Carolina**\
 `At her first big events since this week’s debate, the vice president said “we owe it to the voters” to have another. Shortly beforehand, Donald Trump had said he would not participate in one.`\
 https://nytimes.com/2024/09/12/us/politics/harris-trump-second-debate.html
