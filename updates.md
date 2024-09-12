@@ -1,3 +1,9 @@
+**The United Nations said the vaccination campaign was going well in difficult conditions.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2024/09/12/world/israel-hamas-gaza-war/the-united-nations-said-the-vaccination-campaign-was-going-well-in-difficult-conditions
+
+**U.A.E. evacuates critical patients and their family members, and other news.**\
+
 **F1 Azerbaijan GP track breakdown: Baku's unique challenge blends modern with ancient**\
 `The Baku City Circuit, home to one of F1’s longest straights, presents a unique mix of challenges.`\
 https://nytimes.com/athletic/5760603/2024/09/12/f1-azerbaijan-gp-track-breakdown-baku-circuit/
