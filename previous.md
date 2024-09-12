@@ -1,3 +1,11 @@
+**Border Agents Made Decision to Confront Gunman in Uvalde, Report Finds**\
+`A report by the federal border agency on the school shooting in 2022 found that its agents lacked adequate training and authority to respond to active shooter situations.`\
+https://nytimes.com/2024/09/12/us/uvalde-shooting-police-bortac.html
+
+**Will Electing Judges Make Mexico’s Courts Better, or More Political?**\
+`A sweeping change would have thousands of judges, from local courtrooms all the way up to the Supreme Court, elected instead of appointed.`\
+https://nytimes.com/2024/09/12/world/americas/mexico-elect-judges.html
+
 **Solheim Cup Friday pairings, tee times announced; Nelly Korda will lead Team USA**\
 `Korda and Allisen Corpuz are paired together in the first foursome match against Europeans' Charley Hull, Esther Henseleit.`\
 https://nytimes.com/athletic/5763497/2024/09/12/solheim-cup-friday-tee-times-pairings-nelly-korda/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/12/us/politics/antisemitic-ads-doug-emhoff-muslim-mi
 **How a Cultural Shift Favors Harris**\
 `People can be bitter for only so long. Harris’s happy strength may offer a glimpse of a sunnier national mood to come.`\
 https://nytimes.com/2024/09/12/opinion/trump-harris-joy.html
-
-**‘Uglies’ Review: Beauty Is a Beast**\
-`Joey King plays a teenager in a dystopian world where cosmetic surgery seems to be the cure for inequality.`\
-https://nytimes.com/2024/09/12/movies/uglies-review.html
-
-**Lloyd: Browns need Deshaun Watson exit strategy fast. And why are they playing him?**\
-`Watson maintained his innocence Wednesday against a sexual assualt allegation and said the team has his back. At this point, it shouldn't.`\
-https://nytimes.com/athletic/5761146/2024/09/12/browns-deshaun-watson-quarterback-lawsuit/
 

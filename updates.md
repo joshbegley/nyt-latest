@@ -1,3 +1,11 @@
+**Border Agents Made Decision to Confront Gunman in Uvalde, Report Finds**\
+`A report by the federal border agency on the school shooting in 2022 found that its agents lacked adequate training and authority to respond to active shooter situations.`\
+https://nytimes.com/2024/09/12/us/uvalde-shooting-police-bortac.html
+
+**Will Electing Judges Make Mexico’s Courts Better, or More Political?**\
+`A sweeping change would have thousands of judges, from local courtrooms all the way up to the Supreme Court, elected instead of appointed.`\
+https://nytimes.com/2024/09/12/world/americas/mexico-elect-judges.html
+
 **Solheim Cup Friday pairings, tee times announced; Nelly Korda will lead Team USA**\
 `Korda and Allisen Corpuz are paired together in the first foursome match against Europeans' Charley Hull, Esther Henseleit.`\
 https://nytimes.com/athletic/5763497/2024/09/12/solheim-cup-friday-tee-times-pairings-nelly-korda/
