@@ -1,3 +1,7 @@
+**Cole to leave Birmingham to join FA as full-time coach**\
+`Ashley Cole is set to leave Birmingham City and join the Football Association (FA) on a full-time basis.`\
+https://nytimes.com/athletic/5759832/2024/09/12/ashley-cole-england-fa-birmingham/
+
 **A New Way to Think About the Decline in Black College Admissions**\
 `I’ve seen firsthand that this scenario does not play out the way alarmists think it does.`\
 https://nytimes.com/2024/09/12/opinion/college-admissions-race.html
