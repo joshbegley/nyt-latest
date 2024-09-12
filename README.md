@@ -1,3 +1,7 @@
+**Sean Combs’s Legal Team Takes His Case to TikTok**\
+`As the music mogul faces civil lawsuits alleging sexual misconduct, one of his lawyers is defending him — in the court of social media.`\
+https://nytimes.com/2024/09/12/arts/music/sean-combs-diddy-tiktok-lawyers.html
+
 **Georgia Judge Tosses 3 More Charges in Trump Election Interference Case**\
 `While the judge kept most of the case intact, it was a win for the defendants, who have been trying to chip away at the case.`\
 https://nytimes.com/2024/09/12/us/trump-georgia-election-interference-case.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/12/briefing/nypd-commissioner-resigned-commercial-sp
 **Clark's Wilson basketball sells out in less than an hour**\
 `Clark's basketballs sold out in reportedly less than 40 minutes.`\
 https://nytimes.com/athletic/5763745/2024/09/12/caitlin-clark-fever-wilson-basketballs/
-
-**Justice Dept. Official Calls Election Meddling a ‘Clear and Present Danger’**\
-`The head of the department’s national security division amplified warnings that other countries were seeking to sway the outcome in November, including Russia’s efforts to help Donald Trump.`\
-https://nytimes.com/2024/09/12/us/politics/justice-department-election-russia.html
 
