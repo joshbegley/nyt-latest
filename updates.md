@@ -1,3 +1,7 @@
+**What to Know About New York City’s Interim Police Commissioner**\
+`Before being appointed by Mayor Eric Adams, Thomas Donlon ran a security company and was New York State’s head of homeland security.`\
+https://nytimes.com/2024/09/12/nyregion/thomas-donlon-nypd.html
+
 **Mexico Remakes Its Entire Judicial System as States Back Vast Overhaul**\
 `The plan, championed by Mexico’s president, would have voters elect judges at every level, dramatically restructuring the third branch of government.`\
 https://nytimes.com/2024/09/12/world/americas/mexico-courts-overhaul-states-approve.html
