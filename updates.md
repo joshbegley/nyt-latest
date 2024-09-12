@@ -1,3 +1,7 @@
+**Youth Group Asks Supreme Court to Revive a Landmark Climate Lawsuit**\
+`The case argues the government violated young people’s constitutional rights by failing to curb the use of fossil fuels. A lower court had thrown it out.`\
+https://nytimes.com/2024/09/12/climate/juliana-lawsuit-supreme-court.html
+
 **Athlete, fighter, human: Reflecting on Alex Morgan's career**\
 `Morgan was more than an athlete during her nearly two-decade career in professional soccer.`\
 https://nytimes.com/athletic/5762351/2024/09/12/alex-morgan-career-reflection/
