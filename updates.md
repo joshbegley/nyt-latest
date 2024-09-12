@@ -1,3 +1,7 @@
+**‘Big Weather Break’ Gives California Firefighters the Upper Hand**\
+`Cooler temperatures and higher humidity enabled crews to gain ground on major fires in San Bernardino, Orange and Riverside counties.`\
+https://nytimes.com/2024/09/12/us/california-firefighters-wildfires-relief.html
+
 **10-Minute Challenge: ‘The Unicorn Rests in a Garden’**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2024/09/12/upshot/ten-minute-challenge-unicorn.html

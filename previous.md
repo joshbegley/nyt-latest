@@ -1,3 +1,7 @@
+**‘Big Weather Break’ Gives California Firefighters the Upper Hand**\
+`Cooler temperatures and higher humidity enabled crews to gain ground on major fires in San Bernardino, Orange and Riverside counties.`\
+https://nytimes.com/2024/09/12/us/california-firefighters-wildfires-relief.html
+
 **10-Minute Challenge: ‘The Unicorn Rests in a Garden’**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2024/09/12/upshot/ten-minute-challenge-unicorn.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/elections/100000009689908/kamala-harris-north-carol
 **At the Maxi Yacht Rolex Cup, Strong Winds Are Always a Factor**\
 `This year a 100-foot class will earn a Maxi World Championship title for the first time, but gale winds forced the big boats to stay in the harbor as racing began.`\
 https://nytimes.com/2024/09/12/sports/sailing/maxi-yacht-rolex-cup-winds.html
-
-**‘Why Am I So Single?’ Review: After ‘Six,’ a Scrappy, Sappy Dating Musical**\
-`The duo behind the Broadway hit follow it up with a meta reflection on finding love online that is relatable and fun but lacking narrative drive.`\
-https://nytimes.com/2024/09/12/theater/why-am-i-so-single-review-london.html
 
