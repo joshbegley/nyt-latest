@@ -1,3 +1,7 @@
+**Fernando Tatis Jr. shines, but Padres are reminded of thinning margin for error**\
+`San Diego dropped behind Arizona in the race for the National League’s top wild-card spot for the first time since Sept. 1.`\
+https://nytimes.com/athletic/5762012/2024/09/12/fernando-tatis-jr-padres-wild-card/
+
 **Jimmy Kimmel Chides Trump for His Debate Performance**\
 `“More than 67 million Americans watched the debate on television last night, and of that 67 million, the only one who seems to think Trump did a good job is Donald Trump,” Kimmel said.`\
 https://nytimes.com/2024/09/12/arts/television/jimmy-kimmel-trump-debate.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5759741/2024/09/12/fantasy-premier-league-internati
 **Aaronson and Piroe are very different players. So who does Farke pick at No 10?**\
 `Leeds must make a choice at No 10 after selling Georginio Rutter - and they have two very different options for that role`\
 https://nytimes.com/athletic/5743790/2024/09/12/leeds-brenden-aaronson-joel-piroe-analysis/
-
-**Jean-Clair Todibo's 'miracle' comeback: 'He woke from a coma and said: 'I'll play football again''**\
-`After recovering from a coma, then disappointment at Barcelona, Todibo is being backed to become 'West Ham's Saliba'`\
-https://nytimes.com/athletic/5739298/2024/09/12/jean-clair-todibo-west-ham-coma-miracle/
 

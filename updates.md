@@ -1,3 +1,7 @@
+**Fernando Tatis Jr. shines, but Padres are reminded of thinning margin for error**\
+`San Diego dropped behind Arizona in the race for the National League’s top wild-card spot for the first time since Sept. 1.`\
+https://nytimes.com/athletic/5762012/2024/09/12/fernando-tatis-jr-padres-wild-card/
+
 **Jimmy Kimmel Chides Trump for His Debate Performance**\
 `“More than 67 million Americans watched the debate on television last night, and of that 67 million, the only one who seems to think Trump did a good job is Donald Trump,” Kimmel said.`\
 https://nytimes.com/2024/09/12/arts/television/jimmy-kimmel-trump-debate.html
