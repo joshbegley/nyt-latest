@@ -1,4 +1,4 @@
-**Ten Hag says Ugarte is available to make Man Utd debut against Southampton**\
+**Ten Hag says Ugarte available to make Man Utd debut against Southampton**\
 `Erik ten Hag says Manuel Ugarte is available to make his Manchester United debut against Southampton on Saturday despite only returning from international duty today (Thursday).`\
 https://nytimes.com/athletic/5762860/2024/09/12/manuel-ugarte-manchester-united-debut/
 
