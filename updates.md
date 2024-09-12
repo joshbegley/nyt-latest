@@ -1,3 +1,11 @@
+**No Shoes, No Phones Allowed at This Brooklyn Shop**\
+`Plus: Sardinian furniture, a Jordan Casteel exhibition and more recommendations from T Magazine.`\
+https://nytimes.com/2024/09/12/t-magazine/chowa-library-brooklyn.html
+
+**A night inside the county storm center that was rebuilt after Katrina’s destruction.**\
+`In 2005, the center operated out of an old bowling alley in the town of Bay St. Louis, right next to the Gulf of Mexico.`\
+https://nytimes.com/2024/09/12/weather/mississippi-hancock-county.html
+
 **Forest will benefit from Gibbs-White's England experience - Nuno**\
 `Nuno Espirito Santo believes the experience of making his senior England debut can help Morgan Gibbs-White evolve into an even better player with Nottingham Forest.`\
 https://nytimes.com/athletic/5762492/2024/09/12/gibbs-white-england-forest/
