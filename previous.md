@@ -1,3 +1,11 @@
+**Clark encourages people to vote after liking Swift's endorsement of Harris**\
+`As of Thursday, Swift's Instagram post had over 10 million likes.`\
+https://nytimes.com/athletic/5762790/2024/09/12/caitlin-clark-taylor-swift-kamala-harris/
+
+**2 Chinese Dramas (and a Family of 3) Broaden a Theater Festival’s Scope**\
+`By presenting “The Orphan of Chao” and “Snow in Midsummer,” the Shaw Festival is helping “the past to smash its way into the modern world.”`\
+https://nytimes.com/2024/09/12/theater/shaw-festival-orphan-chao-snow-midsummer.html
+
 **Floodwaters and Winds Strand Residents in Southern Louisiana**\
 `Waters were receding in the state’s southern communities, near where Hurricane Francine made landfall. Rescuers evacuated some families that had been stranded.`\
 https://nytimes.com/2024/09/12/weather/morgan-city-thibodaux-francine.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/12/well/mind/adderall-vyvanse-mania-psychosis-study.
 **Mallo guilty of sexual assault on woman in Espanyol mascot costume**\
 `Former Celta Vigo defender Hugo Mallo has been found guilty of sexually assaulting a woman who was working as a mascot for Espanyol.`\
 https://nytimes.com/athletic/5762094/2024/09/12/hugo-mallo-guilty-espanyol-mascot-costume/
-
-**Chiles: Olympic bronze controversy took away 'recognition of who I was'**\
-`Chiles said she was "left in the dark" with the lack of support from people she thought would help her navigate the controversy.`\
-https://nytimes.com/athletic/5762453/2024/09/12/jordan-chiles-olympic-bronze-comments/
-
-**The Windup: Let Ohtani keep astounding you**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5762940/2024/09/12/shohei-ohtani-home-runs-stolen-bases-the-windup/
 

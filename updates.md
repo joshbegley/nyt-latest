@@ -1,3 +1,11 @@
+**Clark encourages people to vote after liking Swift's endorsement of Harris**\
+`As of Thursday, Swift's Instagram post had over 10 million likes.`\
+https://nytimes.com/athletic/5762790/2024/09/12/caitlin-clark-taylor-swift-kamala-harris/
+
+**2 Chinese Dramas (and a Family of 3) Broaden a Theater Festival’s Scope**\
+`By presenting “The Orphan of Chao” and “Snow in Midsummer,” the Shaw Festival is helping “the past to smash its way into the modern world.”`\
+https://nytimes.com/2024/09/12/theater/shaw-festival-orphan-chao-snow-midsummer.html
+
 **Floodwaters and Winds Strand Residents in Southern Louisiana**\
 `Waters were receding in the state’s southern communities, near where Hurricane Francine made landfall. Rescuers evacuated some families that had been stranded.`\
 https://nytimes.com/2024/09/12/weather/morgan-city-thibodaux-francine.html
