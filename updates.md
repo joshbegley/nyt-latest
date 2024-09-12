@@ -1,3 +1,15 @@
+**Georgia Judge Tosses 3 More Charges in Trump Election Interference Case**\
+`While the judge kept most of the case intact, it was a win for the defendants, who have been trying to chip away at the case.`\
+https://nytimes.com/2024/09/12/us/trump-georgia-election-interference-case.html
+
+**U.N. and Britain Denounce Israeli Attack in Gaza That Killed U.N. Workers**\
+`Israel said the former school had become a haven for militants and released a list of men it said were Hamas fighters targeted in the attack.`\
+https://nytimes.com/2024/09/12/world/middleeast/un-school-gaza-israel.html
+
+**‘The Killer’s Game’ Review: Catch Him if You Can**\
+`An assassin (Dave Bautista) meets his match (Sofia Boutella), but a diagnosis sets off an absurd chain of events in this rom-com action movie.`\
+https://nytimes.com/2024/09/12/movies/the-killers-game-review.html
+
 **A Soprano Who Despises Encores Interrupts Her Co-Star’s**\
 `Angela Gheorghiu drew criticism after she stormed onstage to stop a tenor’s encore during a performance of “Tosca” in Seoul.`\
 https://nytimes.com/2024/09/12/arts/music/angela-gheorghiu-tosca-encore-seoul.html
