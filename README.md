@@ -12,7 +12,7 @@ https://nytimes.com/2024/09/12/us/politics/harris-debate-donations.html
 
 **Climate Lawsuits Are Exploding. Are Homicide Charges Next?**\
 `The courts have become one of the most important battlegrounds in the fight over planet-warming emissions. Here are prominent cases to watch.`\
-https://nytimes.com/2024/09/12/nyregion/climate-lawsuits-major-cases.html
+https://nytimes.com/2024/09/12/climate/climate-lawsuits-major-cases.html
 
 **La Grenouille, Vestige of New York’s Old-School French Dining, Will Close**\
 `Six decades after its birth as an elegant refuge for Manhattan’s elite, the Midtown restaurant says ‘adieu’ this week.`\
