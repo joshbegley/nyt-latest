@@ -1,3 +1,15 @@
+**Biden Poised to Approve Ukraine’s Use of Long-Range Western Weapons in Russia**\
+`The topic will be on the agenda Friday with the first visit to Washington by Britain’s new prime minister, Keir Starmer.`\
+https://nytimes.com/2024/09/12/us/politics/biden-ukraine-weapons.html
+
+**Early Voting Is Beginning in These States. Here’s What to Know.**\
+`Which states do early voting, and when does it start?`\
+https://nytimes.com/2024/09/12/us/politics/early-voting-states-ballots.html
+
+**A New Mini-Moon Is Being Captured by Planet Earth**\
+`It’s just a little guy, and not everyone agrees that it’s actually a mini-moon.`\
+https://nytimes.com/2024/09/12/science/new-mini-moon-earth-orbit.html
+
 **18,000 Miles Later, an American Woman Has Cycled the World**\
 `It took Lael Wilcox 108 days to circumnavigate the globe. Improbably, she said it was “the most fun ride of my life.”`\
 https://nytimes.com/2024/09/12/sports/cycling/bicycle-around-the-world-record.html
