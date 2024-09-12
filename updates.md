@@ -1,3 +1,7 @@
+**Celtics sale, Joe Mazzulla's motivation and more: 5 questions ahead of training camp**\
+`With training camp less than two weeks away, here are five big questions facing the Celtics as they look to defend their NBA title.`\
+https://nytimes.com/athletic/5761455/2024/09/12/celtics-joe-mazzulla-training-camp/
+
 **Kyle Shanahan-Brian Flores showdown should be a highlight of 49ers-Vikings rematch**\
 `The Vikings defense hopes it's up to the challenge against the 49ers' run game, with or without Christian McCaffrey, in Week 2.`\
 https://nytimes.com/athletic/5761363/2024/09/12/49ers-vikings-kyle-shanahan-brian-flores-week-2/
