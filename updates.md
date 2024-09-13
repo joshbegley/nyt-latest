@@ -1,3 +1,7 @@
+**U.S. team's Day 1 dominance lifted the entire vibe of this Solheim Cup**\
+`The Americans jumped out to their biggest lead since 1990 with world No. 1 Nelly Korda leading the charge.`\
+https://nytimes.com/athletic/5766036/2024/09/13/usa-solheim-dup-korda-fans/
+
 **Earlier Investigation of School Shooting Suspect Ended Too Soon, Experts Say**\
 `The teenager charged in the Sept. 4 shooting in Georgia was questioned by the police last year about online threats. The investigator said he couldn’t determine if the teen had been the one behind them.`\
 https://nytimes.com/2024/09/13/us/georgia-school-shooting-apalachee-investigation.html

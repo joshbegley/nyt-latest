@@ -1,3 +1,7 @@
+**U.S. team's Day 1 dominance lifted the entire vibe of this Solheim Cup**\
+`The Americans jumped out to their biggest lead since 1990 with world No. 1 Nelly Korda leading the charge.`\
+https://nytimes.com/athletic/5766036/2024/09/13/usa-solheim-dup-korda-fans/
+
 **Earlier Investigation of School Shooting Suspect Ended Too Soon, Experts Say**\
 `The teenager charged in the Sept. 4 shooting in Georgia was questioned by the police last year about online threats. The investigator said he couldn’t determine if the teen had been the one behind them.`\
 https://nytimes.com/2024/09/13/us/georgia-school-shooting-apalachee-investigation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5765950/2024/09/13/christian-mccaffrey-calf-49ers-w
 **Ten Hag confident De Ligt will improve once fully fit**\
 `Erik ten Hag has shown his support for Manchester United defender Matthijs de Ligt, insisting he will be &#8220;a different player&#8221; once he has improved his fitness levels.`\
 https://nytimes.com/athletic/5764775/2024/09/13/matthijs-de-ligt-erik-ten-hag-manchester-united/
-
-**Guardiola: Premier League rivals want Man City punished**\
-`Pep Guardiola believes La Liga president Javier Tebas is correct to say that most Premier League clubs want to see Manchester City punished for allegedly breaching financial regulations.`\
-https://nytimes.com/athletic/5765126/2024/09/13/man-city-charges-pep-guardiola/
 
