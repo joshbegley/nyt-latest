@@ -1,3 +1,11 @@
+**What Could a Menopause-Friendly Workplace Look Like?**\
+`The Menopause Society announced a new initiative to support workers during this life stage. Whether employers implement it is another story.`\
+https://nytimes.com/2024/09/13/well/live/menopause-workplace-guidelines.html
+
+**D.E.I. in College, Attacked and Defended**\
+`Readers discuss diversity, equity and inclusion efforts. Also: The debate; Donald Trump’s mental state; the Sentinel missile program; a walker in Manhattan.`\
+https://nytimes.com/2024/09/13/opinion/diversity-equity-inclusion.html
+
 **Five Horror Movies to Stream Now**\
 `This month’s picks include a silent killer, a demonically possessed painting and a hellish queer romance.`\
 https://nytimes.com/2024/09/13/movies/horror-movies-streaming.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/09/13/weather/storm-gordon-tracker.html
 **Chilwell included in Chelsea's 25-man Premier League squad**\
 `Ben Chilwell has been included in Chelsea&#8217;s 25-man squad for the 2024-25 Premier League season.`\
 https://nytimes.com/athletic/5679600/2024/09/13/chelsea-ben-chilwell-squad/
-
-**Suspect in hit-and-run arrested after driving on CU's football field**\
-`Police arrested a man suspected of being involved in a series of hit-and-run crashes before driving his truck onto the field.`\
-https://nytimes.com/athletic/5765055/2024/09/13/colorado-football-field-arrest/
-
-**In Tulkarm, residents want to rebuild but fear more destructive Israeli raids.**\
-`By Raja Abdulrahim`\
-https://nytimes.com/live/2024/09/13/world/israel-hamas-gaza-war/in-tulkarm-residents-want-to-rebuild-but-fear-more-destructive-israeli-raids
 

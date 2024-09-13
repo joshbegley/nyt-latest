@@ -1,3 +1,7 @@
+**A New Perspective on Van Gogh’s Final Flowering**\
+`A major exhibition in London focuses on the painter’s final years, finding new feelings in some of his most famous works.`\
+https://nytimes.com/2024/09/13/arts/design/van-gogh-poets-and-lovers-national-gallery-london.html
+
 **What Could a Menopause-Friendly Workplace Look Like?**\
 `The Menopause Society announced a new initiative to support workers during this life stage. Whether employers implement it is another story.`\
 https://nytimes.com/2024/09/13/well/live/menopause-workplace-guidelines.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/13/world/europe/robert-lewandowski-barcelona.html
 **Tracking Tropical Storm Gordon**\
 `See the likely path and wind arrival times for Gordon.`\
 https://nytimes.com/interactive/2024/09/13/weather/storm-gordon-tracker.html
-
-**Chilwell included in Chelsea's 25-man Premier League squad**\
-`Ben Chilwell has been included in Chelsea&#8217;s 25-man squad for the 2024-25 Premier League season.`\
-https://nytimes.com/athletic/5679600/2024/09/13/chelsea-ben-chilwell-squad/
 
