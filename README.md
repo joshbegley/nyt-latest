@@ -1,3 +1,11 @@
+**Robert Lewandowski on Fame, Frailty and the One Voice He Won’t Ignore**\
+`Much has been said about the increased workload of top players, the Barcelona star said, but the mental toll of expectations and fame is just as likely to lead to burnout.`\
+https://nytimes.com/2024/09/13/world/europe/robert-lewandowski-barcelona.html
+
+**Tracking Tropical Storm Gordon**\
+`See the likely path and wind arrival times for Gordon.`\
+https://nytimes.com/interactive/2024/09/13/weather/storm-gordon-tracker.html
+
 **Chilwell included in Chelsea's 25-man Premier League squad**\
 `Ben Chilwell has been included in Chelsea&#8217;s 25-man squad for the 2024-25 Premier League season.`\
 https://nytimes.com/athletic/5679600/2024/09/13/chelsea-ben-chilwell-squad/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/5762794/2024/09/13/dominic-solanke-tottenham-hotspu
 **Harris drops a new ad aimed at Latinos in Pennsylvania.**\
 `The state is one of a handful of battlegrounds where a small margin of victory could make all the difference in November.`\
 https://nytimes.com/live/2024/09/13/us/harris-trump-election/kamala-harris-ad-latinos-pennsylvania
-
-**Here’s What to Know About the Boeing Strike**\
-`Thousands of Boeing workers in Washington State and Oregon walked off the job on Friday in the first strike at the plane maker in 16 years.`\
-https://nytimes.com/2024/09/13/business/boeing-strike-workers-explained.html
-
-**Arsenal to have Gabriel Jesus available, waiting on more Odegaard tests**\
-`Mikel Arteta says that further tests are required before they know the true extent of Martin Odegaard&#8217;s injury but confirmed that Gabriel Jesus should be available for Sunday&#8217;s north London derby.`\
-https://nytimes.com/athletic/5765134/2024/09/13/arsenal-team-news-jesus-odegaard/
 
