@@ -1,3 +1,7 @@
+**North Korea Gives First Glimpse of Weapons-Grade Uranium Factory**\
+`Its leader, Kim Jong-un, visited the factory and urged his country to produce more highly enriched uranium to build ‘exponentially’ more nuclear weapons.`\
+https://nytimes.com/2024/09/13/world/asia/north-korea-nuclear-weapons.html
+
 **Five observations from the Bills' blowout win over the Dolphins**\
 `The Bills have gotten off to a 2-0 start despite injuries on both sides of the ball.`\
 https://nytimes.com/athletic/5764626/2024/09/13/buffalo-bills-miami-dolphins-james-cook-jamarcus-ingram/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5762323/2024/09/13/liverpool-slot-hughes-dua-lipa/
 **FPL: How to buy and sell premium players at the right time**\
 `Premium-hopping is a high-risk, high-reward FPL strategy. This is our guide to making it work for you over the next six to eight gameweeks`\
 https://nytimes.com/athletic/5760154/2024/09/13/fantasy-premier-league-premium-players-buy-sell/
-
-**What I'm seeing at Arsenal: Odegaard worry, Arteta omen and Sterling's dribbling**\
-`Arsenal writer Art de Roche sets out some of this week's key Arsenal talking points going into the north London derby`\
-https://nytimes.com/athletic/5762089/2024/09/13/what-im-seeing-at-arsenal/
 
