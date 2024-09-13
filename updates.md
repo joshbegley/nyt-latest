@@ -1,3 +1,11 @@
+**How Hamas Uses Brutality to Maintain Power**\
+`The group has abused hostages and Palestinians as it wields rough justice in its efforts to maintain control of Gaza and wage an insurgent war.`\
+https://nytimes.com/2024/09/13/us/politics/hamas-power-gaza-violence-israel.html
+
+**The tension between Howe and Mitchell is uncomfortable and unhealthy - Eales must sort it out**\
+`Newcastle CEO Darren Eales thrust Howe and Mitchell together, now he needs to fix the relationship because it is not helping the club`\
+https://nytimes.com/athletic/5764848/2024/09/13/howe-mitchell-newcastle-tension/
+
 **John Textor's Everton bid - 'New equity', Moshiri's options and what of his Palace shares?**\
 `Everton's prospective new owner attempted to explain his stance when speaking at a press conference and in a television interview this week`\
 https://nytimes.com/athletic/5762252/2024/09/13/textor-everton-bid-lyon-palace-explained/

@@ -1,3 +1,7 @@
+**How Hamas Uses Brutality to Maintain Power**\
+`The group has abused hostages and Palestinians as it wields rough justice in its efforts to maintain control of Gaza and wage an insurgent war.`\
+https://nytimes.com/2024/09/13/us/politics/hamas-power-gaza-violence-israel.html
+
 **John Textor's Everton bid - 'New equity', Moshiri's options and what of his Palace shares?**\
 `Everton's prospective new owner attempted to explain his stance when speaking at a press conference and in a television interview this week`\
 https://nytimes.com/athletic/5762252/2024/09/13/textor-everton-bid-lyon-palace-explained/
@@ -9,6 +13,10 @@ https://nytimes.com/athletic/5765353/2024/09/13/aaron-judge-paw-patrol-the-windu
 **Review: Michael Tilson Thomas Returns to New York, and Mahler**\
 `The conductor led the New York Philharmonic in Mahler’s Fifth Symphony, an inspiring opening night for a season starting off unsettled.`\
 https://nytimes.com/2024/09/13/arts/music/review-tilson-thomas-philharmonic-mahler.html
+
+**The tension between Howe and Mitchell is uncomfortable and unhealthy - Eales must sort it out**\
+`Newcastle CEO Darren Eales thrust Howe and Mitchell together, now he needs to fix the relationship because it is not helping the club`\
+https://nytimes.com/athletic/5764848/2024/09/13/howe-mitchell-newcastle-tension/
 
 **How Tua's injury could affect Tyreek Hill, De'Von Achane, other Dolphins**\
 `While everyone's thoughts are with Tua Tagovailoa, fantasy managers are also wondering what this injury means for the Dolphins' other stars.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/13/opinion/diversity-equity-inclusion.html
 **Five Horror Movies to Stream Now**\
 `This month’s picks include a silent killer, a demonically possessed painting and a hellish queer romance.`\
 https://nytimes.com/2024/09/13/movies/horror-movies-streaming.html
-
-**Parmesan Your Cauliflower**\
-`And char your eggplant, steam your blue crabs and stir-fry your potatoes.`\
-https://nytimes.com/2024/09/13/dining/parmesan-your-cauliflower.html
-
-**Mike Matheson went to a high school to talk about leadership. He got a lesson instead**\
-`As Lane Hutson, Logan Mailloux and David Reinbacher embark on rookie camp, how they are one day received on the Canadiens will be vital.`\
-https://nytimes.com/athletic/5764602/2024/09/13/canadiens-mike-matheson-leadership-rookies/
 
