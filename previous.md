@@ -1,29 +1,40 @@
-**The State of the War in Ukraine**\
-`We explain using maps.`\
-https://nytimes.com/2024/09/13/briefing/the-state-of-the-war-in-ukraine.html
+**The Pulse: A scary night for Tua**\
+`The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
+https://nytimes.com/athletic/5763280/2024/09/13/tua-tagovailoa-injury-bills-the-pulse/
 
-**Twins top prospect check-ins: Walker Jenkins, Emmanuel Rodriguez, Luke Keaschall**\
-`Minnesota's vastly improved farm system is headlined by a trio of outfielders who could each enter the Twins' plans in 2025.`\
-https://nytimes.com/athletic/5760020/2024/09/13/twins-prospects-walker-jenkins-emmanuel-rodriguez-luke-keaschall/
+**'Adrenaline junkie DNA'? Twins' Griffin Jax is built for big moments out of the bullpen**\
+`Jax comes from a family of adrenaline junkies. He says it's helped him thrive in high-leverage spots as he's developed into a top reliever. `\
+https://nytimes.com/athletic/5764103/2024/09/13/griffin-jax-twins-reliever-family-breakout-season/
 
-**Arsenal forward Agyemang to join Brighton on loan**\
-`Arsenal forward Michelle Agyemang is set to join Brighton &amp; Hove Albion on a season-long loan before the women’s transfer deadline on Friday night.`\
-https://nytimes.com/athletic/5764823/2024/09/13/arsenal-transfers-michelle-agyemang-brighton/
+**No Russell Wilson reunion? Five keys for Broncos vs. Steelers in Week 2**\
+`Can the Broncos avoid being pushed around by Pittsburgh's oft-used heavy personnel packages? Can Bo Nix spread the wealth more on offense?`\
+https://nytimes.com/athletic/5762588/2024/09/13/broncos-steelers-week-2-keys/
 
-**Weird & Wild MLB highlights of the month: Game of the Year, a first-inning first, and more**\
-`It's time for the W&W highlights of the past month, from The Danny Jansen Game to a hitter who made an out on his own intentional walk. `\
-https://nytimes.com/athletic/5764512/2024/09/13/danny-jansen-game-dodgers-diamondbacks-first-inning/
+**Lowetide: How can the Oilers continue to prop up their prospect pipeline?**\
+`The Oilers have reinvested in signing amateur talent in an effort to supplement the recent loss of draft picks.`\
+https://nytimes.com/athletic/5762450/2024/09/13/edmonton-oilers-prospects-stefan-savoie/
 
-**Do the Cubs really think they can make the playoffs? The view from the clubhouse.**\
-`The Cubs don't look like a team that's ready to check out.`\
-https://nytimes.com/athletic/5764416/2024/09/13/cubs-playoff-odds-clubhouse-reaction/
+**Chelsea fan survey results: Where supporters stand on ownership crisis**\
+`The fallout from the Todd Boehly-Clearlake consortium situation has taken centre stage at Chelsea and we wanted to know your views`\
+https://nytimes.com/athletic/5762259/2024/09/13/chelsea-fan-survey-ownership/
 
-**Typhoon Yagi Leaves at Least 110 Dead in Myanmar**\
-`Rescuers in Myanmar reported finding bodies swept away by the powerful storm, which left a trail of destruction there and in neighboring countries.`\
-https://nytimes.com/2024/09/13/world/asia/typhoon-yagi-deaths-myanmar-vietnam.html
+**The Athletic’s Friday football quiz question #21**\
+`The Athletic's weekly conundrum from inside the trivia vaults`\
+https://nytimes.com/athletic/5764728/2024/09/13/the-athletics-friday-football-quiz-question-21/
 
-**Bayern defend 'world class' Musiala after 'absurd' criticism**\
-`Bayern Munich sporting director Christoph Freund has defended Jamal Musiala after former Germany international Dietmar Hamann labelled him a &#8220;solo entertainer.`\
-https://nytimes.com/athletic/5764770/2024/09/13/bayern-munich-jamal-musiala-hamann/
+**FPL Q&A: Gameweek 4 advice from Ben Dinnery**\
+`Join Ben Dinnery for a live Gameweek 4 Fantasy Premier League Q&A from 4pm UK time on Friday`\
+https://nytimes.com/athletic/5760383/2024/09/13/fantasy-premier-league-advice-injury-news-gw4/
 
-**Palestinians take a seat at the U.N. General Assembly, and other news.**\
+**U.S. Moves to Block a Popular Tariff-Free Path for Chinese Goods**\
+`The Biden administration said it would clamp down on billions of dollars in small-dollar imports that ship directly to consumers.`\
+https://nytimes.com/2024/09/13/us/politics/biden-tariffs-chinese-goods-clothing.html
+
+**U.K. to Fund ‘Small-Scale’ Outdoor Geoengineering Tests**\
+`As climate change continues unabated, the goal is to examine technologies that could artificially cool the Earth “responsibly and ethically.”`\
+https://nytimes.com/2024/09/13/climate/united-kingdom-geoengineering-research.html
+
+**5 Children’s Movies to Stream Now**\
+`This month’s picks include documentaries for animal lovers and an animated fantasy from Ukraine.`\
+https://nytimes.com/2024/09/13/movies/kids-movies-streaming-now.html
+
