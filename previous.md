@@ -1,3 +1,11 @@
+**Fofana joins Goztepe on loan after AEK Athens move collapses**\
+`David Datro Fofana has joined Goztepe in Turkey after a switch to AEK Athens collapsed.`\
+https://nytimes.com/athletic/5764909/2024/09/13/david-datro-fofana-chelsea-goztepe/
+
+**Scoop City: What's next for Tua Tagovailoa?**\
+`A recap of the Bills-Dolphins, including the scary head injury suffered by Tua Tagovailoa.`\
+https://nytimes.com/athletic/5765380/2024/09/13/scoop-city-whats-next-for-tua-tagovailoa/
+
 **How Hamas Uses Brutality to Maintain Power**\
 `The group has abused hostages and Palestinians as it wields rough justice in its efforts to maintain control of Gaza and wage an insurgent war.`\
 https://nytimes.com/2024/09/13/us/politics/hamas-power-gaza-violence-israel.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/13/arts/design/van-gogh-poets-and-lovers-national-ga
 **What Could a Menopause-Friendly Workplace Look Like?**\
 `The Menopause Society announced a new initiative to support workers during this life stage. Whether employers implement it is another story.`\
 https://nytimes.com/2024/09/13/well/live/menopause-workplace-guidelines.html
-
-**D.E.I. in College, Attacked and Defended**\
-`Readers discuss diversity, equity and inclusion efforts. Also: The debate; Donald Trump’s mental state; the Sentinel missile program; a walker in Manhattan.`\
-https://nytimes.com/2024/09/13/opinion/diversity-equity-inclusion.html
-
-**Five Horror Movies to Stream Now**\
-`This month’s picks include a silent killer, a demonically possessed painting and a hellish queer romance.`\
-https://nytimes.com/2024/09/13/movies/horror-movies-streaming.html
 
