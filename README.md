@@ -1,3 +1,11 @@
+**Diplomacy Over Ukraine War Is About Bolstering Forces**\
+`For both Ukraine and Russia, battlefield gains now might provide an upper hand in any peace talks later. That’s reflected in their discussions over arms with allies.`\
+https://nytimes.com/2024/09/13/world/europe/ukraine-war-blinken-us-lammy.html
+
+**The Athletic FC: Explaining the legalities behind unnamed PL player being accused of rape**\
+`Today in TAFC: We explain the reasons an unnamed Premier League star is still playing despite serious criminal allegations.`\
+https://nytimes.com/athletic/5764677/2024/09/13/unnamed-premier-league-player-accused-of-rape/
+
 **Ancelotti unbothered by Saudi interest in Vinicius Jr**\
 `Carlo Ancelotti has stated he has &#8220;never spoken&#8221; to Vinicius Junior about interest in the Real Madrid forward from Saudi Arabia.`\
 https://nytimes.com/athletic/5764865/2024/09/13/vinicius-junior-carlo-ancelotti-saudi-real-madrid/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5762259/2024/09/13/chelsea-fan-survey-ownership/
 **The Athletic’s Friday football quiz question #21**\
 `The Athletic's weekly conundrum from inside the trivia vaults`\
 https://nytimes.com/athletic/5764728/2024/09/13/the-athletics-friday-football-quiz-question-21/
-
-**FPL Q&A: Gameweek 4 advice from Ben Dinnery**\
-`Join Ben Dinnery for a live Gameweek 4 Fantasy Premier League Q&A from 4pm UK time on Friday`\
-https://nytimes.com/athletic/5760383/2024/09/13/fantasy-premier-league-advice-injury-news-gw4/
-
-**U.S. Moves to Block a Popular Tariff-Free Path for Chinese Goods**\
-`The Biden administration said it would clamp down on billions of dollars in small-dollar imports that ship directly to consumers.`\
-https://nytimes.com/2024/09/13/us/politics/biden-tariffs-chinese-goods-clothing.html
 
