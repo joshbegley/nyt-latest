@@ -1,3 +1,11 @@
+**Donald Trump Prepares to Unveil a Cryptocurrency Business**\
+`Mr. Trump said he would introduce the project on Monday, continuing his embrace of the crypto industry, a major source of political donations.`\
+https://nytimes.com/2024/09/13/technology/donald-trump-cryptocurrency-business.html
+
+**Biden Administration Is Likely to Delay Decision Over U.S. Steel**\
+`The White House has faced backlash for politicizing its review of Nippon Steel’s takeover of the company.`\
+https://nytimes.com/2024/09/13/business/us-steel-nippon-biden.html
+
 **‘Slow Horses’ Review: Bucking the Odds**\
 `The sardonic British series about spies no one wants is as likable as ever in its fourth season. Is that enough?`\
 https://nytimes.com/2024/09/13/arts/television/slow-horses-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5765371/2024/09/13/hugo-mallo-espanyol-mascot-sexua
 **How Canucks prospects Jonathan Lekkerimäki and Elias Pettersson prepared for their big shot**\
 `Despite their differences as players, the 2022 draft picks have built a strong friendship while in pursuit of the same goal.`\
 https://nytimes.com/athletic/5764702/2024/09/13/canucks-prospects-jonathan-lekkerimaki-elias-pettersson/
-
-**Late Summer Recipes for Early Cozy Season**\
-`Before we hit peak soup season (hello, lentil tomato soup), there’s still time for tomato curry and grilled eggplant with turmeric tahini.`\
-https://nytimes.com/2024/09/13/dining/late-summer-recipes-for-early-cozy-season.html
-
-**Chiefs' Marquise Brown expected to go on IR**\
-`Brown, the Chiefs’ biggest acquisition in free agency, is expected to miss several months as part of his rehab.`\
-https://nytimes.com/athletic/5765503/2024/09/13/marquise-brown-injury-surgery-chiefs/
 
