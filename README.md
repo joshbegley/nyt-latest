@@ -27,7 +27,7 @@ https://nytimes.com/2024/09/13/health/bird-flu-missouri.html
 https://nytimes.com/2024/09/13/health/mpox-vaccine-world-health-organization.html
 
 **Meeting With Biden, British Leader Hints at Ukraine Weapon Decision Soon**\
-`As the president entered deliberations with Prime Minister Keir Starmer, the question of whether to let Ukraine use long-range weapons in Russia was a rare point of contention between allied nations.`\
+`As the president deliberated with Prime Minister Keir Starmer, the question of whether to let Ukraine use long-range weapons in Russia was a rare point of contention between allied nations.`\
 https://nytimes.com/2024/09/13/us/politics/biden-starmer-ukraine-russia-missiles.html
 
 **U.S. team's Day 1 dominance lifted the entire vibe of this Solheim Cup**\
