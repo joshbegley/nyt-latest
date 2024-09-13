@@ -31,7 +31,7 @@ https://nytimes.com/2024/09/13/us/politics/russia-sanctions-disinformation-rt.ht
 https://nytimes.com/live/2024/09/11/opinion/thepoint/kamala-harris-undecided
 
 **Putin Warns Ukraine’s Use of Long-Range Weapons Would Put NATO ‘At War’ with Russia**\
-`The Russian president said that western support for Ukrainian strikes deep inside Russia would change the "nature of the conflict dramatically.”`\
+`The Russian president said that western support for Ukrainian strikes deep inside Russia would change the “nature of the conflict dramatically.”`\
 https://nytimes.com/2024/09/13/world/europe/putin-warns-nato-at-war-ukraine.html
 
 **A French Punk Feminist Takes on #MeToo and Addiction**\
