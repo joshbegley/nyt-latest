@@ -1,3 +1,7 @@
+**California Drug Clinic Operator Convicted in $3 Million Kickback Scheme**\
+`Casey Mahoney, 48, of Los Angeles, illegally paid “body brokers” to lure clients, a federal jury found.`\
+https://nytimes.com/2024/09/13/us/addiction-facility-illegal-kickbacks.html
+
 **Shohei Ohtani not ruled out to pitch in postseason, Dave Roberts says**\
 `The last time Shohei Ohtani pitched a game was with Los Angeles Angels in Aug. 23, 2023.`\
 https://nytimes.com/athletic/5766050/2024/09/13/shohei-ohtani-pitching-playoffs-la-dodgers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/13/health/mpox-vaccine-world-health-organization.htm
 **Meeting With Biden, British Leader Hints at Ukraine Weapon Decision Soon**\
 `As the president deliberated with Prime Minister Keir Starmer, the question of whether to let Ukraine use long-range weapons in Russia was a rare point of contention between allied nations.`\
 https://nytimes.com/2024/09/13/us/politics/biden-starmer-ukraine-russia-missiles.html
-
-**U.S. team's Day 1 dominance lifted entire vibe of this Solheim Cup**\
-`The Americans jumped out to their biggest lead since 1990 with world No. 1 Nelly Korda leading the charge.`\
-https://nytimes.com/athletic/5766036/2024/09/13/usa-solheim-cup-korda-fans/
 

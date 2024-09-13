@@ -1,3 +1,7 @@
+**California Drug Clinic Operator Convicted in $3 Million Kickback Scheme**\
+`Casey Mahoney, 48, of Los Angeles, illegally paid “body brokers” to lure clients, a federal jury found.`\
+https://nytimes.com/2024/09/13/us/addiction-facility-illegal-kickbacks.html
+
 **Shohei Ohtani not ruled out to pitch in postseason, Dave Roberts says**\
 `The last time Shohei Ohtani pitched a game was with Los Angeles Angels in Aug. 23, 2023.`\
 https://nytimes.com/athletic/5766050/2024/09/13/shohei-ohtani-pitching-playoffs-la-dodgers/
