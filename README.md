@@ -1,3 +1,7 @@
+**The Weeknd’s Glimmering Synth-Pop, and 8 More New Songs**\
+`Hear tracks by Soccer Mommy, FKA twigs, Reyna Tropical and others.`\
+https://nytimes.com/2024/09/13/arts/music/playlist-the-weeknd-fka-twigs.html
+
 **Boar’s Head Shuts Down Virginia Plant Tied to Listeria Deaths**\
 `The company said that the site would close indefinitely and that it would permanently stop making liverwurst. Union officials said the plant’s 500 workers would be given severance and offered relocation.`\
 https://nytimes.com/2024/09/13/health/boars-head-shutdown-listeria-deaths.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5744145/2024/09/13/aaron-ramsdale-southampton-stati
 **Fofana joins Goztepe on loan after AEK Athens move collapses**\
 `David Datro Fofana has joined Goztepe in Turkey after a switch to AEK Athens collapsed.`\
 https://nytimes.com/athletic/5764909/2024/09/13/david-datro-fofana-chelsea-goztepe/
-
-**Scoop City: What's next for Tua Tagovailoa?**\
-`A recap of the Bills-Dolphins, including the scary head injury suffered by Tua Tagovailoa.`\
-https://nytimes.com/athletic/5765380/2024/09/13/scoop-city-whats-next-for-tua-tagovailoa/
 
