@@ -1,3 +1,7 @@
+**Next week’s waiver wire: Bucky Irving, Demarcus Robinson and more players to add now — before the Week 3 rush**\
+`John Laghezza helps you get ahead of the competition, looking at stat trends and predicting which players will be hot adds... next week. `\
+https://nytimes.com/athletic/5762537/2024/09/13/week-3-fantasy-football-early-waiver-bucky-irving-demarcus-robinson/
+
 **How Sunderland have been revived: Quick starts, tenacity and the impact of ‘Arsene Who?’**\
 `The Wearsiders have never won the first five league games of a season - history beckons for Regis Le Bris' league leaders at lowly Plymouth`\
 https://nytimes.com/athletic/5762168/2024/09/13/sunderland-regis-bris-roberts-plymouth/
