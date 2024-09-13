@@ -1,3 +1,23 @@
+**In a Transformed Neighborhood, a Funeral Home Finds New Life as a Gym**\
+`The former Scotto Funeral Home, a landmark of bygone Brooklyn, is reopening after a multiyear renovation and Catholic blessing — as a boutique gym.`\
+https://nytimes.com/2024/09/13/nyregion/district-gym-scotto-funeral-home-carroll-gardens.html
+
+**Road Trip**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2024/09/13/learning/road-trip.html
+
+**The Mayor of New York Is Surrounded by Scandal. Will Voters Really Care?**\
+`Corruption has been a mark of municipal politics for hundreds of years. Tolerance for it has been high.`\
+https://nytimes.com/2024/09/13/nyregion/eric-adams-corruption-voters.html
+
+**How a TV Critic Navigates an Age of Endless Content**\
+`James Poniewozik, The New York Times’s chief television critic, discusses the state of modern television and the struggle to watch it all.`\
+https://nytimes.com/2024/09/13/insider/tv-critic.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/13/crosswords/spelling-bee-forum.html
+
 **Late Night Enjoys Biden’s Encounter With a Trump Fan**\
 `When President Biden briefly donned a Trump hat, he “gave everyone in QAnon a brain aneurysm at once,” Jimmy Kimmel said.`\
 https://nytimes.com/2024/09/13/arts/television/late-night-biden-trump-hat.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/5764626/2024/09/13/buffalo-bills-miami-dolphins-jam
 **A Long Life, Thanks to Where You Live? Not Likely, Says Ig Nobel Winner.**\
 `An Australian researcher found that many areas that supposedly produce lots of centenarians also produce shoddy record-keeping.`\
 https://nytimes.com/2024/09/13/world/australia/ig-nobel-awards.html
-
-**Next week’s waiver wire: Bucky Irving, Demarcus Robinson and more players to add now — before the Week 3 rush**\
-`John Laghezza helps you get ahead of the competition, looking at stat trends and predicting which players will be hot adds... next week. `\
-https://nytimes.com/athletic/5762537/2024/09/13/week-3-fantasy-football-early-waiver-bucky-irving-demarcus-robinson/
-
-**How Sunderland have been revived: Quick starts, tenacity and the impact of ‘Arsene Who?’**\
-`The Wearsiders have never won the first five league games of a season - history beckons for Regis Le Bris' league leaders at lowly Plymouth`\
-https://nytimes.com/athletic/5762168/2024/09/13/sunderland-regis-bris-roberts-plymouth/
-
-**A.I. Is Changing War. We Are Not Ready.**\
-`The American military is not prepared for the fact that artificial-intelligence-powered autonomous weapons systems are changing the fundamental nature of warfare.`\
-https://nytimes.com/2024/09/13/opinion/ai-drones-robot-war-pentagon.html
-
-**Boeing Workers Vote to Strike After Rejecting Contract Deal**\
-`Thousands of workers who build commercial planes in the Seattle and Portland, Ore., areas voted down an accord recommended by union leaders.`\
-https://nytimes.com/2024/09/13/business/economy/boeing-strike-union-contract.html
-
-**Former players call for Tagovailoa to retire**\
-`A wave of former and current NFL players suggested now is the time for Tagovailoa to walk away from the game.`\
-https://nytimes.com/athletic/5764581/2024/09/13/tua-tagovailoa-concussion-reaction-retirement/
 

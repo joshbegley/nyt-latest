@@ -1,3 +1,23 @@
+**In a Transformed Neighborhood, a Funeral Home Finds New Life as a Gym**\
+`The former Scotto Funeral Home, a landmark of bygone Brooklyn, is reopening after a multiyear renovation and Catholic blessing — as a boutique gym.`\
+https://nytimes.com/2024/09/13/nyregion/district-gym-scotto-funeral-home-carroll-gardens.html
+
+**Road Trip**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2024/09/13/learning/road-trip.html
+
+**The Mayor of New York Is Surrounded by Scandal. Will Voters Really Care?**\
+`Corruption has been a mark of municipal politics for hundreds of years. Tolerance for it has been high.`\
+https://nytimes.com/2024/09/13/nyregion/eric-adams-corruption-voters.html
+
+**How a TV Critic Navigates an Age of Endless Content**\
+`James Poniewozik, The New York Times’s chief television critic, discusses the state of modern television and the struggle to watch it all.`\
+https://nytimes.com/2024/09/13/insider/tv-critic.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2024/09/13/crosswords/spelling-bee-forum.html
+
 **Late Night Enjoys Biden’s Encounter With a Trump Fan**\
 `When President Biden briefly donned a Trump hat, he “gave everyone in QAnon a brain aneurysm at once,” Jimmy Kimmel said.`\
 https://nytimes.com/2024/09/13/arts/television/late-night-biden-trump-hat.html
