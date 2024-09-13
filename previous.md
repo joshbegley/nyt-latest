@@ -1,3 +1,7 @@
+**What Angel Reese's injury means to the Sky's playoff hopes**\
+`What Angel Reese's injury means to the Sky's playoff hopes and four burning WNBA questions `\
+https://nytimes.com/athletic/5762680/2024/09/13/what-angel-reeses-injury-means-to-the-skys-playoff-hopes/
+
 **WNBA expansion Valkyries already eclipse 17K season ticket deposits**\
 `Earlier in the week, the Valkyries released renderings for their practice facility in Oakland.`\
 https://nytimes.com/athletic/5765800/2024/09/13/golden-state-valkyries-season-tickets-wnba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5765750/2024/09/13/nate-wiggins-ravens-car-accident
 **Biden Hasn’t Let Kyiv Strike Deep Into Russia. Could Britain Change That?**\
 `U.K. Prime Minister Keir Starmer’s trip to Washington comes just after Russian President Vladimir Putin warned that the allies’ next step could mean war for NATO.`\
 https://nytimes.com/2024/09/13/world/europe/keir-starmer-biden-russia-missiles.html
-
-**Maple Leafs 2024-25 prospect outlook: What to expect from Cowan, Minten and more**\
-`Ahead of the annual Maple Leafs prospect tournament, let’s look at what they need to do to have a successful 2024-25 campaign.`\
-https://nytimes.com/athletic/5765210/2024/09/13/maple-leafs-2024-25-prospects-cowan-minten/
 

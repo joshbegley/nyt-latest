@@ -1,3 +1,7 @@
+**What Angel Reese's injury means to the Sky's playoff hopes**\
+`What Angel Reese's injury means to the Sky's playoff hopes and four burning WNBA questions `\
+https://nytimes.com/athletic/5762680/2024/09/13/what-angel-reeses-injury-means-to-the-skys-playoff-hopes/
+
 **WNBA expansion Valkyries already eclipse 17K season ticket deposits**\
 `Earlier in the week, the Valkyries released renderings for their practice facility in Oakland.`\
 https://nytimes.com/athletic/5765800/2024/09/13/golden-state-valkyries-season-tickets-wnba/
