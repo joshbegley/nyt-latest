@@ -1,3 +1,7 @@
+**Kepner: MLB's latest tasteless cash grab? Ads on helmets**\
+`Yes, the NBA and NHL and soccer have advertising patches. Wouldn’t it be wonderful if baseball held itself to a higher standard?`\
+https://nytimes.com/athletic/5765563/2024/09/13/mlb-helmet-ads-postseason/
+
 **Donald Trump Prepares to Unveil a Cryptocurrency Business**\
 `Mr. Trump said he would introduce the project on Monday, continuing his embrace of the crypto industry, a major source of political donations.`\
 https://nytimes.com/2024/09/13/technology/donald-trump-cryptocurrency-business.html

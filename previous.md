@@ -1,3 +1,7 @@
+**Kepner: MLB's latest tasteless cash grab? Ads on helmets**\
+`Yes, the NBA and NHL and soccer have advertising patches. Wouldn’t it be wonderful if baseball held itself to a higher standard?`\
+https://nytimes.com/athletic/5765563/2024/09/13/mlb-helmet-ads-postseason/
+
 **Donald Trump Prepares to Unveil a Cryptocurrency Business**\
 `Mr. Trump said he would introduce the project on Monday, continuing his embrace of the crypto industry, a major source of political donations.`\
 https://nytimes.com/2024/09/13/technology/donald-trump-cryptocurrency-business.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/13/arts/television/have-i-got-news-for-you-cnn.html
 **How an ex-La Liga captain was found guilty of sexually assaulting a woman mascot**\
 `Former Celta Vigo captain Hugo Mallo was found guilty of sexually assaulting an Espanyol mascot dressed as a female parakeet`\
 https://nytimes.com/athletic/5765371/2024/09/13/hugo-mallo-espanyol-mascot-sexual-assault-latest/
-
-**How Canucks prospects Jonathan Lekkerimäki and Elias Pettersson prepared for their big shot**\
-`Despite their differences as players, the 2022 draft picks have built a strong friendship while in pursuit of the same goal.`\
-https://nytimes.com/athletic/5764702/2024/09/13/canucks-prospects-jonathan-lekkerimaki-elias-pettersson/
 
