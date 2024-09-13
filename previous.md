@@ -1,4 +1,4 @@
-**Mets' set-up man Dedniel Núñez done for the season**\
+**Mets set-up man Dedniel Núñez done for the season**\
 `Núñez sustained a flexor injury in his right arm and received an injection of platelet-rich plasma.`\
 https://nytimes.com/athletic/5766170/2024/09/13/mets-dedniel-nunez-injury/
 
@@ -30,7 +30,7 @@ https://nytimes.com/2024/09/13/health/mpox-vaccine-world-health-organization.htm
 `As the president deliberated with Prime Minister Keir Starmer, the question of whether to let Ukraine use long-range weapons in Russia was a rare point of contention between allied nations.`\
 https://nytimes.com/2024/09/13/us/politics/biden-starmer-ukraine-russia-missiles.html
 
-**U.S. team's Day 1 dominance lifted the entire vibe of this Solheim Cup**\
+**U.S. team's Day 1 dominance lifted entire vibe of this Solheim Cup**\
 `The Americans jumped out to their biggest lead since 1990 with world No. 1 Nelly Korda leading the charge.`\
 https://nytimes.com/athletic/5766036/2024/09/13/usa-solheim-cup-korda-fans/
 

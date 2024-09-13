@@ -1,3 +1,11 @@
+**Mets set-up man Dedniel Núñez done for the season**\
+`Núñez sustained a flexor injury in his right arm and received an injection of platelet-rich plasma.`\
+https://nytimes.com/athletic/5766170/2024/09/13/mets-dedniel-nunez-injury/
+
+**U.S. team's Day 1 dominance lifted entire vibe of this Solheim Cup**\
+`The Americans jumped out to their biggest lead since 1990 with world No. 1 Nelly Korda leading the charge.`\
+https://nytimes.com/athletic/5766036/2024/09/13/usa-solheim-cup-korda-fans/
+
 **Missouri Bird Flu Case Raises Prospect of Human Transmission**\
 `A close contact of someone with bird flu became ill on the same day, the C.D.C. reported. But the second person was not tested, and the cause of the illness is unknown.`\
 https://nytimes.com/2024/09/13/health/bird-flu-missouri.html
