@@ -1,3 +1,11 @@
+**Ashley Cole: From England's 'golden generation' to a role in its hopeful future**\
+`Cole's appointment by the FA feels in keeping with England's history. He already seems to have the nous to play a part in its future`\
+https://nytimes.com/athletic/5762254/2024/09/13/ashley-cole-fa-england-lee-carsley/
+
+**Club football returns: What to look out for in the top five leagues**\
+`The state of play across Europe's top leagues and the key storylines this weekend as domestic football returns`\
+https://nytimes.com/athletic/5760183/2024/09/13/premier-league-la-liga-bundesliga/
+
 **Friday Briefing**\
 `President Biden may loosen restrictions on Ukraine.`\
 https://nytimes.com/2024/09/13/briefing/ukraine-russia-trump-harris.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5758993/2024/09/13/mlb-odds-best-bets-projections-s
 **Former High School Classmates Finally Become Sweethearts**\
 `Austin Mills and Taylor Mills both attended Beverly Hills High School in Beverly Hills, Calif., but didn’t connect until years later at an Los Angeles nightclub.`\
 https://nytimes.com/2024/09/13/style/taylor-mills-austin-mills-wedding.html
-
-**After a Slow Start, Smooth Skating**\
-`Sarah Botwinick and Jason Pollack attended the same college at the same time, but their paths never crossed. After meeting through a dating app, not even a pandemic could stop their momentum.`\
-https://nytimes.com/2024/09/13/style/sarah-botwinick-jason-pollack-wedding.html
-
-**Corrections: Sept. 13, 2024**\
-`Corrections that appeared in print on Friday, Sept. 13, 2024.`\
-https://nytimes.com/2024/09/12/pageoneplus/corrections-sept-13-2024.html
 
