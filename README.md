@@ -1,3 +1,7 @@
+**Review: Patti LuPone and Mia Farrow Clean Up in ‘The Roommate’**\
+`A Bronx grifter and an Iowa homebody share a house and eventually learn from each other in this Broadway star vehicle.`\
+https://nytimes.com/2024/09/12/theater/the-roommate-review-lupone-farrow.html
+
 **Correction Officers Who Failed to Aid Dying Inmate Won’t Be Charged**\
 `Correction Department rules “do not clearly require officers to provide immediate care to people with severely bleeding wounds,” the New York attorney general’s office said.`\
 https://nytimes.com/2024/09/12/nyregion/correction-officers-rikers-ny-prison.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5764125/2024/09/12/astros-framber-valdez-hair-exten
 **MLB says A’s move to Sacramento ‘a certainty’**\
 `Before the A's move to Las Vegas in 2028, the team will play in Sacramento at the Triple-A stadium of the San Francisco Giants.`\
 https://nytimes.com/athletic/5763996/2024/09/12/oakland-as-sacramento-move-developments/
-
-**The First Votes Will Soon Be Cast**\
-`As campaigns shift from persuading voters to turning them out, mail voting is in the spotlight.`\
-https://nytimes.com/2024/09/12/us/politics/trump-harris-mail-ballots-election.html
 
