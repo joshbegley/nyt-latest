@@ -1,3 +1,7 @@
+**Late Night Enjoys Biden’s Encounter With a Trump Fan**\
+`When President Biden briefly donned a Trump hat, he “gave everyone in QAnon a brain aneurysm at once,” Jimmy Kimmel said.`\
+https://nytimes.com/2024/09/13/arts/television/late-night-biden-trump-hat.html
+
 **Word of the Day: circumvent**\
 `This word has appeared in 169 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/13/learning/word-of-the-day-circumvent.html

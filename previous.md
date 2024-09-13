@@ -1,3 +1,7 @@
+**Late Night Enjoys Biden’s Encounter With a Trump Fan**\
+`When President Biden briefly donned a Trump hat, he “gave everyone in QAnon a brain aneurysm at once,” Jimmy Kimmel said.`\
+https://nytimes.com/2024/09/13/arts/television/late-night-biden-trump-hat.html
+
 **Word of the Day: circumvent**\
 `This word has appeared in 169 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2024/09/13/learning/word-of-the-day-circumvent.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/13/business/economy/boeing-strike-union-contract.htm
 **Former players call for Tagovailoa to retire**\
 `A wave of former and current NFL players suggested now is the time for Tagovailoa to walk away from the game.`\
 https://nytimes.com/athletic/5764581/2024/09/13/tua-tagovailoa-concussion-reaction-retirement/
-
-**What I'm seeing at Liverpool: Slot and Hughes charm offensive - and Dua Lipa**\
-`James Pearce offers insights into what's going on at Anfield as the Premier League returns this weekend`\
-https://nytimes.com/athletic/5762323/2024/09/13/liverpool-slot-hughes-dua-lipa/
 
