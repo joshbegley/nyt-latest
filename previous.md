@@ -1,3 +1,7 @@
+**Trump Pledges to Start Migrant Deportations in Ohio and Colorado**\
+`The former president has repeatedly leveled baseless and exaggerated claims about migrants in Springfield, Ohio, and Aurora, Colo.`\
+https://nytimes.com/2024/09/13/us/politics/trump-deportations-migrants-ohio-colorado.html
+
 **49ers' McCaffrey out again in Week 2, IR a consideration**\
 `San Francisco had its toughest practice of the week Thursday and McCaffrey was dealing with pain afterward, Shanahan said.`\
 https://nytimes.com/athletic/5765950/2024/09/13/christian-mccaffrey-calf-49ers-week-2/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/13/science/boeing-starliner-astronauts-wilmore-willi
 **Pennsylvania Supreme Court Throws Out Ruling Requiring Misdated Ballots to Count**\
 `The Supreme Court declined to rule on the merits of the case, instead finding that the lower court lacked jurisdiction in its decision.`\
 https://nytimes.com/2024/09/13/us/pennsylvania-ballots-ruling.html
-
-**Trump’s Economics, Too, Are Sounding More Authoritarian**\
-`His economic agenda would concentrate more power in the hands of the president.`\
-https://nytimes.com/2024/09/13/opinion/trump-authoritarian-economics.html
 
