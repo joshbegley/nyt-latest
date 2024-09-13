@@ -1,3 +1,7 @@
+**Five observations from the Bills' blowout win over the Dolphins**\
+`The Bills have gotten off to a 2-0 start despite injuries on both sides of the ball.`\
+https://nytimes.com/athletic/5764626/2024/09/13/buffalo-bills-miami-dolphins-james-cook-jamarcus-ingram/
+
 **A Long Life, Thanks to Where You Live? Not Likely, Says Ig Nobel Winner.**\
 `An Australian researcher found that many areas that supposedly produce lots of centenarians also produce shoddy record-keeping.`\
 https://nytimes.com/2024/09/13/world/australia/ig-nobel-awards.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5760154/2024/09/13/fantasy-premier-league-premium-p
 **What I'm seeing at Arsenal: Odegaard worry, Arteta omen and Sterling's dribbling**\
 `Arsenal writer Art de Roche sets out some of this week's key Arsenal talking points going into the north London derby`\
 https://nytimes.com/athletic/5762089/2024/09/13/what-im-seeing-at-arsenal/
-
-**'Iliman is the inspiration - to be playing for a club like Everton is unbelievable'**\
-`Ndiaye has gone from park pitches in London to the World Cup - and has made an impressive start at Everton. He is driven to succeed`\
-https://nytimes.com/athletic/5762121/2024/09/13/iliman-ndiaye-everton-non-league/
 
