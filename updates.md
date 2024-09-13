@@ -1,3 +1,7 @@
+**The Big City Is Vibrant. Birds There May Be Getting Less So.**\
+`Recent studies show that darker birds might have a survival advantage because certain feather pigments can help neutralize toxic pollution.`\
+https://nytimes.com/2024/09/13/climate/dirty-birds-color-climate-pollution.html
+
 **Penguins mailbag: McGroarty, Crosby's linemates and can't-miss games**\
 `Josh Yohe dishes on the best games to catch this season, if McGroarty will make the team and Crosby's linemates.`\
 https://nytimes.com/athletic/5763540/2024/09/13/penguins-sidney-crosby-rutger-mcgroarty/

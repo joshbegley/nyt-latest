@@ -19,7 +19,7 @@ https://nytimes.com/athletic/5764478/2024/09/13/new-york-giants-daniel-jones-com
 https://nytimes.com/athletic/5764885/2024/09/13/pac-12-realignment-mountain-west-members/
 
 **The Big City Is Vibrant. Birds There May Be Getting Less So.**\
-`Recent studies show that urban pollution may have a dulling effect on plumage, and not just among dirty birds.`\
+`Recent studies show that darker birds might have a survival advantage because certain feather pigments can help neutralize toxic pollution.`\
 https://nytimes.com/2024/09/13/climate/dirty-birds-color-climate-pollution.html
 
 **Bentancur made 'big error' with Son remarks - Postecoglou**\
