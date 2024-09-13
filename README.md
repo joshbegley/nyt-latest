@@ -1,3 +1,11 @@
+**Your Drinks Are Missing a Key Ingredient: Coconut Water**\
+`With its velvety mouthfeel and refreshing taste, this utility player is an excellent addition to cocktails, your morning coffee and more.`\
+https://nytimes.com/2024/09/13/dining/drinks/coconut-water-cocktails.html
+
+**Horror That Illuminates Humanity’s True Monsters**\
+`The Argentine writer Mariana Enriquez indicts our worst offenses in 12 haunting new stories.`\
+https://nytimes.com/2024/09/13/books/review/mariana-enriquez-sunny-place-for-shady-people.html
+
 **Politicians Get Roasted on This Beloved British Show. Can It Be a U.S. Hit?**\
 `“Have I Got News for You” will inject some levity into the CNN schedule. But on a news network, finding comedy in politics during an election year comes with risks.`\
 https://nytimes.com/2024/09/13/arts/television/have-i-got-news-for-you-cnn.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/13/health/boars-head-shutdown-listeria-deaths.html
 **Football Parlay Fridays Week 3: Sticking with the underdogs after a good Week 2**\
 `Austin Mock is back for a round-robin parlay pick on college football Week 3 after a profitable Week 2. See what he's picking. `\
 https://nytimes.com/athletic/5765068/2024/09/13/football-parlay-fridays-college-football-week-3/
-
-**Activists Convicted of Conspiring to Act as Russian Agents**\
-`The four defendants were acquitted of a more serious charge of failing to register as Russian agents. The case in Florida offered a window into Russian influence operations.`\
-https://nytimes.com/2024/09/13/us/us-activists-russia-agents-convicted.html
-
-**PETA Wants More Than a Friendly Statement From Pharrell Williams**\
-`After an animal rights protest at a film premiere, Mr. Williams, the creative director of Louis Vuitton, said he had “plans to change things.”`\
-https://nytimes.com/2024/09/13/style/pharrell-williams-peta.html
 
