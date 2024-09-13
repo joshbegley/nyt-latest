@@ -1,3 +1,15 @@
+**Tyler Glasnow suffers elbow setback: 'It's unfortunate'**\
+`In 22 starts, Glasnow has thrown 168 strikeouts with 3.49 ERA.`\
+https://nytimes.com/athletic/5766031/2024/09/13/tyler-glasnow-injury-setback-la-dodgers/
+
+**Missouri Bird Flu Case May Raise Prospect of Human Transmission**\
+`A close contact of someone with bird flu became ill on the same day, the C.D.C. reported. But the second person was not tested, and the cause of the illness is unknown.`\
+https://nytimes.com/2024/09/13/health/bird-flu-missouri.html
+
+**U.S. team's Day 1 dominance lifted the entire vibe of this Solheim Cup**\
+`The Americans jumped out to their biggest lead since 1990 with world No. 1 Nelly Korda leading the charge.`\
+https://nytimes.com/athletic/5766036/2024/09/13/usa-solheim-cup-korda-fans/
+
 **Yankees' DJ LeMahieu (right hip) hopes to play again in 2024**\
 `Injuries have been a major nuisance for LeMahieu in recent seasons, particularly following the pandemic-shortened 2020 season.`\
 https://nytimes.com/athletic/5766130/2024/09/13/dj-lemahieu-injury-status-yankees/
