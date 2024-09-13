@@ -1,3 +1,7 @@
+**North Korea Gives First Glimpse of Weapons-Grade Uranium Factory**\
+`Its leader, Kim Jong-un, visited the factory and urged his country to produce more highly enriched uranium to build ‘exponentially’ more nuclear weapons.`\
+https://nytimes.com/2024/09/13/world/asia/north-korea-nuclear-weapons.html
+
 **Five observations from the Bills' blowout win over the Dolphins**\
 `The Bills have gotten off to a 2-0 start despite injuries on both sides of the ball.`\
 https://nytimes.com/athletic/5764626/2024/09/13/buffalo-bills-miami-dolphins-james-cook-jamarcus-ingram/
