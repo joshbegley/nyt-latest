@@ -1,3 +1,7 @@
+**California Man Assaulted Frontier Flight Attendants, Prosecutors Say**\
+`The violent episode resulted in an emergency landing. The man now faces federal flight interference charges.`\
+https://nytimes.com/2024/09/12/us/frontier-airlines-passenger-assault.html
+
 **‘Counting and Cracking’ Review: One Family’s Tale Fit for an Epic**\
 `No theatrical wizardry is needed for this compelling drama about a woman’s journey to Australia from war-torn Sri Lanka and the generations that follow.`\
 https://nytimes.com/2024/09/12/theater/counting-and-cracking-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/12/us/politics/trump-debate-tucson-rally-arizona.htm
 **Border Agents Made Decision to Confront Gunman in Uvalde, Report Finds**\
 `A report by the federal border agency on the school shooting in 2022 found that its agents lacked adequate training and authority to respond to active shooter situations.`\
 https://nytimes.com/2024/09/12/us/uvalde-shooting-police-bortac.html
-
-**Will Electing Judges Make Mexico’s Courts Better, or More Political?**\
-`A sweeping change would have thousands of judges, from local courtrooms all the way up to the Supreme Court, elected instead of appointed.`\
-https://nytimes.com/2024/09/12/world/americas/mexico-elect-judges.html
 
