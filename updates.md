@@ -1,3 +1,11 @@
+**Your Drinks Are Missing a Key Ingredient: Coconut Water**\
+`With its velvety mouthfeel and refreshing taste, this utility player is an excellent addition to cocktails, your morning coffee and more.`\
+https://nytimes.com/2024/09/13/dining/drinks/coconut-water-cocktails.html
+
+**Horror That Illuminates Humanity’s True Monsters**\
+`The Argentine writer Mariana Enriquez indicts our worst offenses in 12 haunting new stories.`\
+https://nytimes.com/2024/09/13/books/review/mariana-enriquez-sunny-place-for-shady-people.html
+
 **Politicians Get Roasted on This Beloved British Show. Can It Be a U.S. Hit?**\
 `“Have I Got News for You” will inject some levity into the CNN schedule. But on a news network, finding comedy in politics during an election year comes with risks.`\
 https://nytimes.com/2024/09/13/arts/television/have-i-got-news-for-you-cnn.html
