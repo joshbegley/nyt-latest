@@ -1,3 +1,7 @@
+**Boar’s Head Shuts Down Virginia Plant Tied to Listeria Deaths**\
+`The company said that the site would close indefinitely and that it would permanently stop making liverwurst. Union officials said the plant’s 500 workers would be given severance and offered relocation.`\
+https://nytimes.com/2024/09/13/health/boars-head-shutdown-listeria-deaths.html
+
 **Football Parlay Fridays Week 3: Sticking with the underdogs after a good Week 2**\
 `Austin Mock is back for a round-robin parlay pick on college football Week 3 after a profitable Week 2. See what he's picking. `\
 https://nytimes.com/athletic/5765068/2024/09/13/football-parlay-fridays-college-football-week-3/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5764909/2024/09/13/david-datro-fofana-chelsea-gozte
 **Scoop City: What's next for Tua Tagovailoa?**\
 `A recap of the Bills-Dolphins, including the scary head injury suffered by Tua Tagovailoa.`\
 https://nytimes.com/athletic/5765380/2024/09/13/scoop-city-whats-next-for-tua-tagovailoa/
-
-**How Hamas Uses Brutality to Maintain Power**\
-`The group has abused hostages and Palestinians as it wields rough justice in its efforts to maintain control of Gaza and wage an insurgent war.`\
-https://nytimes.com/2024/09/13/us/politics/hamas-power-gaza-violence-israel.html
 
