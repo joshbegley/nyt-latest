@@ -1,4 +1,8 @@
 **North Korea Gives First Glimpse of Weapons-Grade Uranium Factory**\
+`Its leader, Kim Jong-un, visited the factory and urged his country to produce more highly enriched uranium to build “exponentially” more nuclear weapons.`\
+https://nytimes.com/2024/09/13/world/asia/north-korea-nuclear-weapons.html
+
+**North Korea Gives First Glimpse of Weapons-Grade Uranium Factory**\
 `Its leader, Kim Jong-un, visited the factory and urged his country to produce more highly enriched uranium to build ‘exponentially’ more nuclear weapons.`\
 https://nytimes.com/2024/09/13/world/asia/north-korea-nuclear-weapons.html
 
