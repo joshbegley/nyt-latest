@@ -1,3 +1,11 @@
+**The Debate Over Debates Is Over, at Least for Now**\
+`Donald Trump’s rejection of a second meeting with Kamala Harris may or may not be final. But it could complicate his effort to portray her as ducking tough questions.`\
+https://nytimes.com/2024/09/13/us/politics/trump-harris-second-debate.html
+
+**49ers mailbag: Envisioning a McCaffrey-Mason duo; shadowing Justin Jefferson?**\
+`Questions this week include why the 49ers were reluctant to play Jacob Cowing and whether they're working on any contract extensions.`\
+https://nytimes.com/athletic/5765515/2024/09/13/49ers-christian-mccaffrey-jordan-mason-vikings/
+
 **Biden Slams Trump Over False Story of Pet-Eating Immigrants: ‘This Has to Stop’**\
 `The president made the comments at an event where he boasted of his work for Black Americans, implicitly trying to rally a critical Democratic constituency on behalf of Vice President Kamala Harris.`\
 https://nytimes.com/2024/09/13/us/politics/biden-trump-haitian-immigrants-cats-dogs.html
