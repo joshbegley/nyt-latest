@@ -1,3 +1,11 @@
+**WNBA expansion Valkyries already eclipse 17K season ticket deposits**\
+`Earlier in the week, the Valkyries released renderings for their practice facility in Oakland.`\
+https://nytimes.com/athletic/5765800/2024/09/13/golden-state-valkyries-season-tickets-wnba/
+
+**Sam Bankman-Fried Files Appeal to Overturn Fraud Conviction**\
+`Mr. Bankman-Fried, the founder of the collapsed FTX cryptocurrency exchange, was convicted last fall and is serving a 25-year sentence in prison.`\
+https://nytimes.com/2024/09/13/technology/ftx-sam-bankman-fried-appeal.html
+
 **My Friend’s Husband Makes Me Fear for Her Safety — and Mine**\
 `The magazine’s Ethicist columnist on how to help a friend who’s in a volatile marriage.`\
 https://nytimes.com/2024/09/13/magazine/friends-husband-safety-ethics.html
