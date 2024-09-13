@@ -1,3 +1,7 @@
+**Chad McQueen, ‘Karate Kid’ Actor, Dies at 63**\
+`Mr. McQueen, the son of Steve McQueen, is most widely recognized for his recurring role as Dutch in the 1980s cult classic franchise “The Karate Kid.”`\
+https://nytimes.com/2024/09/12/arts/chad-mcqueen-dead.html
+
 **Tua Tagovailoa suffers concussion on collision with Damar Hamlin**\
 `The injury comes two seasons after Tagovailoa missed extensive time with multiple head injuries in 2022.`\
 https://nytimes.com/athletic/5764434/2024/09/12/tua-injury-update/
