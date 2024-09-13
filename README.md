@@ -1,3 +1,7 @@
+**Yankees' Aaron Judge hasn't homered in 16 games, longest drought of his career**\
+`Sixteen games have passed without a Judge home run.`\
+https://nytimes.com/athletic/5764349/2024/09/12/yankees-aaron-judge-home-run-drought/
+
 **Amid several burned properties, a market survives.**\
 `By Vik Jolly`\
 https://nytimes.com/live/2024/09/12/us/california-wildfires-idaho-oregon/amid-several-burned-properties-a-market-survives
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/12/theater/the-roommate-review-lupone-farrow.html
 **Correction Officers Who Failed to Aid Dying Inmate Won’t Be Charged**\
 `Correction Department rules “do not clearly require officers to provide immediate care to people with severely bleeding wounds,” the New York attorney general’s office said.`\
 https://nytimes.com/2024/09/12/nyregion/correction-officers-rikers-ny-prison.html
-
-**Trump Defends Debate Performance and Calls for Ending Tax on Overtime**\
-`Speaking at an event in Tucson, Ariz., former President Donald J. Trump called for eliminating taxes on overtime pay as he declared Tuesday’s debate a “monumental victory” for him.`\
-https://nytimes.com/2024/09/12/us/politics/trump-debate-tucson-rally-arizona.html
 
