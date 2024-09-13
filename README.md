@@ -1,3 +1,11 @@
+**Ancelotti unbothered by Saudi interest in Vinicius Jr**\
+`Carlo Ancelotti has stated he has &#8220;never spoken&#8221; to Vinicius Junior about interest in the Real Madrid forward from Saudi Arabia.`\
+https://nytimes.com/athletic/5764865/2024/09/13/vinicius-junior-carlo-ancelotti-saudi-real-madrid/
+
+**Chelsea announce Jackson contract extension until 2033**\
+`Chelsea have announced that Nicolas Jackson has signed a two-year contract extension with the club.`\
+https://nytimes.com/athletic/5764877/2024/09/13/chelsea-nicolas-jackson-contract-length/
+
 **The Pulse: A scary night for Tua**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5763280/2024/09/13/tua-tagovailoa-injury-bills-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5760383/2024/09/13/fantasy-premier-league-advice-in
 **U.S. Moves to Block a Popular Tariff-Free Path for Chinese Goods**\
 `The Biden administration said it would clamp down on billions of dollars in small-dollar imports that ship directly to consumers.`\
 https://nytimes.com/2024/09/13/us/politics/biden-tariffs-chinese-goods-clothing.html
-
-**U.K. to Fund ‘Small-Scale’ Outdoor Geoengineering Tests**\
-`As climate change continues unabated, the goal is to examine technologies that could artificially cool the Earth “responsibly and ethically.”`\
-https://nytimes.com/2024/09/13/climate/united-kingdom-geoengineering-research.html
-
-**5 Children’s Movies to Stream Now**\
-`This month’s picks include documentaries for animal lovers and an animated fantasy from Ukraine.`\
-https://nytimes.com/2024/09/13/movies/kids-movies-streaming-now.html
 
