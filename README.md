@@ -1,3 +1,7 @@
+**Word of the Day: circumvent**\
+`This word has appeared in 169 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2024/09/13/learning/word-of-the-day-circumvent.html
+
 **North Korea Gives First Glimpse of Weapons-Grade Uranium Factory**\
 `Its leader, Kim Jong-un, visited the factory and urged his country to produce more highly enriched uranium to build “exponentially” more nuclear weapons.`\
 https://nytimes.com/2024/09/13/world/asia/north-korea-nuclear-weapons.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5764581/2024/09/13/tua-tagovailoa-concussion-reacti
 **What I'm seeing at Liverpool: Slot and Hughes charm offensive - and Dua Lipa**\
 `James Pearce offers insights into what's going on at Anfield as the Premier League returns this weekend`\
 https://nytimes.com/athletic/5762323/2024/09/13/liverpool-slot-hughes-dua-lipa/
-
-**FPL: How to buy and sell premium players at the right time**\
-`Premium-hopping is a high-risk, high-reward FPL strategy. This is our guide to making it work for you over the next six to eight gameweeks`\
-https://nytimes.com/athletic/5760154/2024/09/13/fantasy-premier-league-premium-players-buy-sell/
 
