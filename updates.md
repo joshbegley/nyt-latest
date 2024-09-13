@@ -1,3 +1,7 @@
+**Twins top prospect check-ins: Walker Jenkins, Emmanuel Rodriguez, Luke Keaschall**\
+`Minnesota's vastly improved farm system is headlined by a trio of outfielders who could each enter the Twins' plans in 2025.`\
+https://nytimes.com/athletic/5760020/2024/09/13/twins-prospects-walker-jenkins-emmanuel-rodriguez-luke-keaschall/
+
 **Arsenal forward Agyemang to join Brighton on loan**\
 `Arsenal forward Michelle Agyemang is set to join Brighton &amp; Hove Albion on a season-long loan before the women’s transfer deadline on Friday night.`\
 https://nytimes.com/athletic/5764823/2024/09/13/arsenal-transfers-michelle-agyemang-brighton/
