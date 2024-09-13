@@ -1,3 +1,7 @@
+**Ake out until next international break with injury, Guardiola fears**\
+`Pep Guardiola expects Nathan Ake to be out until the next international break after picking up an injury while away with the Netherlands.`\
+https://nytimes.com/athletic/5759813/2024/09/13/nathan-ake-man-city-injury/
+
 **Diplomacy Over Ukraine War Is About Bolstering Forces**\
 `For both Ukraine and Russia, battlefield gains now might provide an upper hand in any peace talks later. That’s reflected in their discussions over arms with allies.`\
 https://nytimes.com/2024/09/13/world/europe/ukraine-war-blinken-us-lammy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5762450/2024/09/13/edmonton-oilers-prospects-stefan
 **Chelsea fan survey results: Where supporters stand on ownership crisis**\
 `The fallout from the Todd Boehly-Clearlake consortium situation has taken centre stage at Chelsea and we wanted to know your views`\
 https://nytimes.com/athletic/5762259/2024/09/13/chelsea-fan-survey-ownership/
-
-**The Athletic’s Friday football quiz question #21**\
-`The Athletic's weekly conundrum from inside the trivia vaults`\
-https://nytimes.com/athletic/5764728/2024/09/13/the-athletics-friday-football-quiz-question-21/
 
