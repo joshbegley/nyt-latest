@@ -1,3 +1,7 @@
+**Boeing Union Members Vote to Strike**\
+`Thousands of machinists and aerospace workers walked off the job on Friday, after rejecting a proposal that would have delivered raises and improvements to benefits but fell short of what the union initially sought.`\
+https://nytimes.com/video/business/100000009690433/boeing-union-strike-iam.html
+
 **In a Transformed Neighborhood, a Funeral Home Finds New Life as a Gym**\
 `The former Scotto Funeral Home, a landmark of bygone Brooklyn, is reopening after a multiyear renovation and Catholic blessing — as a boutique gym.`\
 https://nytimes.com/2024/09/13/nyregion/district-gym-scotto-funeral-home-carroll-gardens.html
