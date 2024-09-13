@@ -1,3 +1,7 @@
+**What is the NFL's concussion protocol? The steps that take place before return to play**\
+`Until the player is cleared by the independent consultant, he may not return to contact practices or play in a game.`\
+https://nytimes.com/athletic/5764056/2024/09/12/what-is-nfl-concussion-protocol/
+
 **Chad McQueen, ‘Karate Kid’ Actor, Dies at 63**\
 `Mr. McQueen, the son of Steve McQueen, is most widely recognized for his recurring role as Dutch in the 1980s cult classic franchise “The Karate Kid.”`\
 https://nytimes.com/2024/09/12/arts/chad-mcqueen-dead.html

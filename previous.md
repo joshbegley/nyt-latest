@@ -1,3 +1,7 @@
+**What is the NFL's concussion protocol? The steps that take place before return to play**\
+`Until the player is cleared by the independent consultant, he may not return to contact practices or play in a game.`\
+https://nytimes.com/athletic/5764056/2024/09/12/what-is-nfl-concussion-protocol/
+
 **Chad McQueen, ‘Karate Kid’ Actor, Dies at 63**\
 `Mr. McQueen, the son of Steve McQueen, is most widely recognized for his recurring role as Dutch in the 1980s cult classic franchise “The Karate Kid.”`\
 https://nytimes.com/2024/09/12/arts/chad-mcqueen-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/12/us/california-wildfires-idaho-oregon/is-my-h
 **At a Key Moment in Trump’s Campaign, a Social-Media Instigator Is at His Side**\
 `The former president’s decision to elevate Laura Loomer, a far-right activist known for racist and homophobic posts online, has stunned even some Trump allies.`\
 https://nytimes.com/2024/09/12/us/politics/trump-laura-loomer.html
-
-**Arson charges were filed in the Line fire, which has displaced thousands of people.**\
-`By Soumya Karlamangla`\
-https://nytimes.com/live/2024/09/12/us/california-wildfires-idaho-oregon/arson-charges-were-filed-in-the-line-fire-which-has-displaced-thousands-of-people
 
