@@ -1,5 +1,9 @@
+**How worried should you be about Marco Luciano still looking for his first home run?**\
+`Luciano has played 38 MLB games without hitting a home run. He has some good company among players who have had similar starts.`\
+https://nytimes.com/athletic/5764615/2024/09/13/how-worried-should-you-be-about-marco-luciano-still-looking-for-his-first-home-run/
+
 **Trump Says He Won’t Sell Shares Tied to Truth Social**\
-`Mr. Trump, the largest shareholder in Trump Media & Technology Group, the parent company of Truth Social, said he won’t sell the shares when an restriction ends next week.`\
+`Donald J. Trump, the largest shareholder in the parent company of Truth Social, said he won’t sell his stock when a restriction ends next week.`\
 https://nytimes.com/2024/09/13/business/trump-media-stock-truth-social.html
 
 **Harris Visits Red Areas of Pennsylvania, Hoping to Cut Into Trump’s Edge**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000009691518/biden-trump-hat.html
 **No Charges for Georgia’s Lieutenant Governor in Trump Election Case**\
 `The decision not to indict Lt. Gov. Burt Jones was made by Pete Skandalakis, who is a veteran Georgia prosecutor and a fellow Republican.`\
 https://nytimes.com/2024/09/13/us/burt-jones-trump-election-georgia.html
-
-**Pope Says Both Trump and Harris Are ‘Against Life’**\
-`He said American Catholic voters had to choose the “lesser of two evils” because of Donald Trump’s cruelty toward immigrants, and Kamala Harris’s support of abortion rights.`\
-https://nytimes.com/2024/09/13/world/europe/pope-us-election-abortion-immigration.html
 
