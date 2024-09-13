@@ -1,3 +1,23 @@
+**NASA Astronauts Speak to Media on Extended Stay in Orbit**\
+`The astronauts Suni Williams and Butch Wilmore expressed support for NASA and Boeing, following the decision for them to remain in orbit, while the troubled spacecraft they rode to the International Space Station returned to Earth uncrewed.`\
+https://nytimes.com/video/science/space/100000009691766/nasa-astronauts-boeing.html
+
+**Biden Briefly Put on a Trump Hat, and MAGA World Flipped Its Lid**\
+`Joking around with a Trump supporter at a Sept. 11 event this week, the president put on a “Trump 2024” hat for a few seconds. The pictures took on a life of their own.`\
+https://nytimes.com/2024/09/13/us/politics/biden-trump-hat.html
+
+**Coppola Sues After Report Said He Tried to Kiss ‘Megalopolis’ Extras**\
+`The director Francis Ford Coppola is seeking at least $15 million in damages from Variety.`\
+https://nytimes.com/2024/09/13/movies/francis-ford-coppola-megalopolis-variety-lawsuit.html
+
+**Real Madrid postpone concerts at the Bernabeu due to noise regulations**\
+`Real Madrid are postponing all upcoming concerts at the Santiago Bernabeu to comply with the capital city&#8217;s noise regulations.`\
+https://nytimes.com/athletic/5765998/2024/09/13/real-madrid-bernabeu-concerts/
+
+**Starliner Astronauts Say What They’ll Miss During Extended Stay in Space**\
+`Suni Williams and Butch Wilmore of NASA spoke from the International Space Station for the first time since their Boeing orbital transport returned to Earth uncrewed.`\
+https://nytimes.com/2024/09/13/science/boeing-starliner-astronauts-wilmore-williams.html
+
 **Pennsylvania Supreme Court Throws Out Ruling Requiring Misdated Ballots to Count**\
 `The Supreme Court declined to rule on the merits of the case, instead finding that the lower court lacked jurisdiction in its decision.`\
 https://nytimes.com/2024/09/13/us/pennsylvania-ballots-ruling.html
@@ -17,24 +37,4 @@ https://nytimes.com/2024/09/13/arts/music/herbie-flowers-dead.html
 **Three Americans Sentenced to Death for Failed Congo Coup**\
 `The sentences were handed down months after the central African country lifted a moratorium on carrying out the death penalty.`\
 https://nytimes.com/2024/09/13/world/africa/congo-coup-death-sentence-americans.html
-
-**Trump Claims Ignorance of Laura Loomer’s 9/11 Conspiracy Theories**\
-`After commemorating Sept. 11 with a far-right activist who has called the attacks an “inside job,” former President Donald J. Trump said he was unaware of her remarks.`\
-https://nytimes.com/2024/09/13/us/politics/trump-laura-loomer.html
-
-**Belfast's Casement Park to no longer host Euro 2028 matches**\
-`Casement Park in Belfast has been stripped of its status as a Euro 2028 host stadium as the UK government cannot commit to providing the funding for it to be built in time for the tournament.`\
-https://nytimes.com/athletic/5765887/2024/09/13/casement-park-euro-2028-host/
-
-**Mauricio Pochettino aims to bolster belief as USMNT role takes him outside his comfort zone**\
-`Pochettino is the USMNT's first Spanish-speaking Latin American coach and flitted between English and Spanish at his first press conference`\
-https://nytimes.com/athletic/5765852/2024/09/13/pochettino-usmnt-belief-comfort-zone/
-
-**Brazilian Court Makes One Musk Company Pay Fines of Another**\
-`A Brazilian Supreme Court justice said that because Elon Musk controlled both X and Starlink, one company was responsible for the fines of the other.`\
-https://nytimes.com/2024/09/13/world/americas/brazil-musk-x-starlink.html
-
-**Bronny James' Summer League debut jersey sells for $38,400, surpassing expectations**\
-`Bronny James&#8217; jersey from his NBA Summer League debut with the LA Lakers sold at auction for $38,400 on Friday.`\
-https://nytimes.com/athletic/5765813/2024/09/13/bronny-james-jersey-sale-lakers/
 
