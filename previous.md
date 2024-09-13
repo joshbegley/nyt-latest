@@ -1,3 +1,11 @@
+**Biden Slams Trump Over False Story of Pet-Eating Immigrants: ‘This Has to Stop’**\
+`The president made the comments at an event where he boasted of his work for Black Americans, implicitly trying to rally a critical Democratic constituency on behalf of Vice President Kamala Harris.`\
+https://nytimes.com/2024/09/13/us/politics/biden-trump-haitian-immigrants-cats-dogs.html
+
+**Raiders' Pierce on Tagovailoa: 'I would tell him to retire'**\
+`"He's going to live longer than he's going to play football," Raiders coach Antonio Pierce said. "Take care of your family."`\
+https://nytimes.com/athletic/5765639/2024/09/13/antonio-pierce-tua-tagovailoa-retire/
+
 **Timberlake Pleads Guilty to Driving While Impaired in Hamptons Case**\
 `The pop star agreed to pay a $500 fine and serve 25 hours of community service at a charity of his choosing.`\
 https://nytimes.com/2024/09/13/nyregion/justin-timberlake-plea-deal.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/13/business/us-steel-nippon-biden.html
 **‘Slow Horses’ Review: Bucking the Odds**\
 `The sardonic British series about spies no one wants is as likable as ever in its fourth season. Is that enough?`\
 https://nytimes.com/2024/09/13/arts/television/slow-horses-review.html
-
-**Timberlake Pleads Guilty to Driving While Impaired**\
-`Justin Timberlake was originally arrested in the Hamptons on drunken-driving charges, a more severe crime.`\
-https://nytimes.com/video/us/100000009691151/justin-timberlake-hamptons.html
-
-**Jones: Dolphins must exercise ultimate caution for Tua Tagovailoa's sake**\
-`The Dolphins are not thinking about any sort of timeline for Tua right now. In this situation, the normal concussion protocol isn't enough.`\
-https://nytimes.com/athletic/5765478/2024/09/13/tua-tagovailoa-health-future-dolphins-nfl/
 

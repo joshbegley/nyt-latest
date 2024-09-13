@@ -1,3 +1,11 @@
+**Biden Slams Trump Over False Story of Pet-Eating Immigrants: ‘This Has to Stop’**\
+`The president made the comments at an event where he boasted of his work for Black Americans, implicitly trying to rally a critical Democratic constituency on behalf of Vice President Kamala Harris.`\
+https://nytimes.com/2024/09/13/us/politics/biden-trump-haitian-immigrants-cats-dogs.html
+
+**Raiders' Pierce on Tagovailoa: 'I would tell him to retire'**\
+`"He's going to live longer than he's going to play football," Raiders coach Antonio Pierce said. "Take care of your family."`\
+https://nytimes.com/athletic/5765639/2024/09/13/antonio-pierce-tua-tagovailoa-retire/
+
 **Timberlake Pleads Guilty to Driving While Impaired in Hamptons Case**\
 `The pop star agreed to pay a $500 fine and serve 25 hours of community service at a charity of his choosing.`\
 https://nytimes.com/2024/09/13/nyregion/justin-timberlake-plea-deal.html
