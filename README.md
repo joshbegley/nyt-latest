@@ -1,3 +1,11 @@
+**Pochettino targets U.S. 2026 World Cup success with USWNT the 'inspiration'**\
+`Mauricio Pochettino says the U.`\
+https://nytimes.com/athletic/5765480/2024/09/13/mauricio-pochettino-usmnt-world-cup-2/
+
+**How Israeli Forces Destroyed a Secret Weapons Facility in Syria**\
+`Here is what to know about Israel’s deadly raid on a Hezbollah weapons production facility in Syria.`\
+https://nytimes.com/2024/09/13/world/middleeast/israel-raid-syria-hezbollah.html
+
 **Trump Divides Arizona’s Crucial Mormon Vote**\
 `Traditionally Republican members of the Church of Jesus Christ of Latter-day Saints balked at Donald Trump in 2020, helping Joe Biden win a key swing state. Will they do so with Kamala Harris?`\
 https://nytimes.com/2024/09/13/us/politics/trump-divides-arizonas-crucial-mormon-vote.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/13/us/politics/russia-sanctions-disinformation-rt.ht
 **Worried About Kamala Harris? ‘That’s Tomorrow’s Problem.’**\
 `There is nothing more baffling than the undecided voter.`\
 https://nytimes.com/live/2024/09/11/opinion/thepoint/kamala-harris-undecided
-
-**Putin Warns Ukraine’s Use of Long-Range Weapons Would Put NATO ‘At War’ with Russia**\
-`The Russian president said that western support for Ukrainian strikes deep inside Russia would change the “nature of the conflict dramatically.”`\
-https://nytimes.com/2024/09/13/world/europe/putin-warns-nato-at-war-ukraine.html
-
-**A French Punk Feminist Takes on #MeToo and Addiction**\
-`Virginie Despentes confronts sexual politics in an epistolary novel with a stubbornly idealistic streak.`\
-https://nytimes.com/2024/09/13/books/virginie-despentes-dear-dickhead.html
 
