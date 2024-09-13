@@ -1,3 +1,7 @@
+**Former players call for Tagovailoa to retire**\
+`A wave of former and current NFL players suggested now is the time for Tagovailoa to walk away from the game.`\
+https://nytimes.com/athletic/5764581/2024/09/13/tua-tagovailoa-concussion-reaction-retirement/
+
 **What I'm seeing at Liverpool: Slot and Hughes charm offensive - and Dua Lipa**\
 `James Pearce offers insights into what's going on at Anfield as the Premier League returns this weekend`\
 https://nytimes.com/athletic/5762323/2024/09/13/liverpool-slot-hughes-dua-lipa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5762107/2024/09/13/what-andre-will-bring-to-wolves/
 **Manchester United's Barcelona board meeting and what the new football executives do**\
 `The structure of Manchester United's football executive has yet to be finalised... but this is how it is working so far`\
 https://nytimes.com/athletic/5762080/2024/09/13/manchester-united-how-football-executive-works/
-
-**The unnamed Premier League player accused of rape: How does the case end?**\
-`It has been more than 800 days since a Premier League footballer was arrested on suspicion of rape and taken into custody. What is going on?`\
-https://nytimes.com/athletic/5762114/2024/09/13/premier-league-player-rape-accusation-what-next/
 
