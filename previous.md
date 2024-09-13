@@ -1,3 +1,7 @@
+**Boeing Workers Vote to Strike After Rejecting Contract Deal**\
+`Thousands of workers who build commercial planes in the Seattle and Portland, Ore., areas voted down an accord recommended by union leaders.`\
+https://nytimes.com/2024/09/13/business/economy/boeing-strike-union-contract.html
+
 **Former players call for Tagovailoa to retire**\
 `A wave of former and current NFL players suggested now is the time for Tagovailoa to walk away from the game.`\
 https://nytimes.com/athletic/5764581/2024/09/13/tua-tagovailoa-concussion-reaction-retirement/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5760890/2024/09/13/how-cooper-has-changed-leicester
 **Superb under pressure and pinpoint passing - what Andre will bring to Wolves**\
 `The Brazilian’s adjustment to the Premier League is likely to be significant, given the extreme style of football in which he made his name`\
 https://nytimes.com/athletic/5762107/2024/09/13/what-andre-will-bring-to-wolves/
-
-**Manchester United's Barcelona board meeting and what the new football executives do**\
-`The structure of Manchester United's football executive has yet to be finalised... but this is how it is working so far`\
-https://nytimes.com/athletic/5762080/2024/09/13/manchester-united-how-football-executive-works/
 

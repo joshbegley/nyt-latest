@@ -1,3 +1,7 @@
+**Boeing Workers Vote to Strike After Rejecting Contract Deal**\
+`Thousands of workers who build commercial planes in the Seattle and Portland, Ore., areas voted down an accord recommended by union leaders.`\
+https://nytimes.com/2024/09/13/business/economy/boeing-strike-union-contract.html
+
 **Former players call for Tagovailoa to retire**\
 `A wave of former and current NFL players suggested now is the time for Tagovailoa to walk away from the game.`\
 https://nytimes.com/athletic/5764581/2024/09/13/tua-tagovailoa-concussion-reaction-retirement/
