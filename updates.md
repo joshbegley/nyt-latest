@@ -1,3 +1,11 @@
+**The Big City Is Vibrant. Birds There May Be Getting Less So.**\
+`Recent studies show that urban pollution may have a dulling effect on plumage, and not just among dirty birds.`\
+https://nytimes.com/2024/09/13/climate/dirty-birds-color-climate-pollution.html
+
+**Bentancur made 'big error' with Son remarks - Postecoglou**\
+`Tottenham Hotspur head coach Ange Postecoglou believes that Rodrigo Bentancur made a “big error” and that “he has got to take the punishment” after the midfielder was charged with an alleged aggravated breach of the Football Association’s (FA) rules over comments he made about team-mate Son Heung-min.`\
+https://nytimes.com/athletic/5765069/2024/09/13/bentancur-son-postecoglou-tottenham/
+
 **Crystal Palace's Chalobah to miss Leicester game with abdominal injury**\
 `Trevoh Chalobah will have to wait to make his Crystal Palace debut after sustaining an abdominal injury in his first training session.`\
 https://nytimes.com/athletic/5765028/2024/09/13/crystal-palace-trevor-chalobah-injury/
