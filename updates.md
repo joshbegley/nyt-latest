@@ -1,3 +1,7 @@
+**Mauricio Pochettino aims to bolster belief as USMNT role takes him outside his comfort zone**\
+`Pochettino is the USMNT's first Spanish-speaking Latin American coach and flitted between English and Spanish at his first press conference`\
+https://nytimes.com/athletic/5765852/2024/09/13/pochettino-usmnt-belief-comfort-zone/
+
 **Brazilian Court Makes One Musk Company Pay Fines of Another**\
 `A Brazilian Supreme Court justice said that because Elon Musk controlled both X and Starlink, one company was responsible for the fines of the other.`\
 https://nytimes.com/2024/09/13/world/americas/brazil-musk-x-starlink.html

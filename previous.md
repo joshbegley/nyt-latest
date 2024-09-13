@@ -1,3 +1,7 @@
+**Mauricio Pochettino aims to bolster belief as USMNT role takes him outside his comfort zone**\
+`Pochettino is the USMNT's first Spanish-speaking Latin American coach and flitted between English and Spanish at his first press conference`\
+https://nytimes.com/athletic/5765852/2024/09/13/pochettino-usmnt-belief-comfort-zone/
+
 **Brazilian Court Makes One Musk Company Pay Fines of Another**\
 `A Brazilian Supreme Court justice said that because Elon Musk controlled both X and Starlink, one company was responsible for the fines of the other.`\
 https://nytimes.com/2024/09/13/world/americas/brazil-musk-x-starlink.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/13/books/review/podcast-robert-caro-power-broker-int
 **Stephen Peat, Former Washington Capitals Player, Dies at 44**\
 `The N.H.L. Alumni Association said that Peat had died of injuries from a “tragic accident” that occurred more than two weeks ago.`\
 https://nytimes.com/2024/09/13/sports/stephen-peat-dead-washington-capitals.html
-
-**Vikings' Jordan Addison (ankle) out vs. 49ers**\
-`Addison injured his ankle in the third quarter of Sunday's game against the Giants.`\
-https://nytimes.com/athletic/5765837/2024/09/13/jordan-addison-injury-status-vikings-49ers/
 
