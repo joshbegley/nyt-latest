@@ -1,4 +1,4 @@
-**Chilwell set for return to Chelsea training despite uncertain future**\
+**Chilwell set for return to Chelsea training**\
 `Ben Chilwell is set for a return to Chelsea training after failing to secure a transfer away from Stamford Bridge, according to head coach Enzo Maresca.`\
 https://nytimes.com/athletic/5764982/2024/09/13/chilwell-chelsea-return-maresca/
 
