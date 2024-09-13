@@ -1,3 +1,11 @@
+**Giants, Daniel Jones need to bounce back. Game vs. Commanders provides golden opportunity**\
+`I’m not prepared for how messy things will get if the Giants lose this game. A win on Sunday will at least settle things down for a week.`\
+https://nytimes.com/athletic/5764478/2024/09/13/new-york-giants-daniel-jones-commanders-week-2/
+
+**Behind the Pac-12's poaching of the Mountain West and both leagues' next steps**\
+`After negotiations with the Mountain West broke down, the Pac-12 found an opportunity to live to fight another day.`\
+https://nytimes.com/athletic/5764885/2024/09/13/pac-12-realignment-mountain-west-members/
+
 **The Big City Is Vibrant. Birds There May Be Getting Less So.**\
 `Recent studies show that urban pollution may have a dulling effect on plumage, and not just among dirty birds.`\
 https://nytimes.com/2024/09/13/climate/dirty-birds-color-climate-pollution.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5765032/2024/09/13/chelsea-owners-enzo-maresca/
 **Chilwell set for return to Chelsea training**\
 `Ben Chilwell is set for a return to Chelsea training after failing to secure a transfer away from Stamford Bridge, according to head coach Enzo Maresca.`\
 https://nytimes.com/athletic/5764982/2024/09/13/chilwell-chelsea-return-maresca/
-
-**Mbappe's goals, midfield muddles, gaps at the back: What I'm seeing at Real Madrid**\
-`Carlo Ancelotti's side have made a sluggish start to the new La Liga season - so there's plenty of noise around the club`\
-https://nytimes.com/athletic/5764691/2024/09/13/real-madrid-mbappe-ancelotti-kroos-bellingham/
-
-**Raiders were expected to major in 12 personnel, so where was it in the Week 1 loss?**\
-`The Raiders were aligned in 12 personnel on just 15 of their 60 offensive snaps in Sunday's loss. A lack of a running game was to blame.`\
-https://nytimes.com/athletic/5764017/2024/09/13/raiders-week-1-brock-bowers-michael-mayer/
 
