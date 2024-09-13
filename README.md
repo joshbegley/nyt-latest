@@ -1,3 +1,19 @@
+**Tottenham vs Arsenal and why north London supremacy is all a matter of timing**\
+`North London derby cycles are moving faster than ever, so who is best placed to capitalise this time?`\
+https://nytimes.com/athletic/5759358/2024/09/13/tottenham-arsenal-age-profiles/
+
+**Haaland is aiming for three hat-tricks in a row - how rare a feat is that and who's done it before?**\
+`Four players have scored three hat-tricks in a row in England's top flight. Here's the who and the how, as Haaland tries to match them`\
+https://nytimes.com/athletic/5740322/2024/09/13/haaland-three-hat-tricks-in-a-row/
+
+**Row Z: Arsenal fans lose the plot, Ronaldo wins the World Cup, and 'anthem-gate'**\
+`A recap of the lighter moments of the week in the strange world of football`\
+https://nytimes.com/athletic/5762281/2024/09/13/arsenal-fans-social-media/
+
+**Fantasy football flex fliers: Tyler Johnson, Tank Bigsby and more deep sleepers to consider in Week 2**\
+`Scott Engel runs through his list of preferred flex options for those fantasy managers trying to plug a lineup hole in Week 2 off waivers.`\
+https://nytimes.com/athletic/5763618/2024/09/13/fantasy-football-week-2-flex-sleepers-tyler-johnson-bigsby/
+
 **Ashley Cole: From England's 'golden generation' to a role in its hopeful future**\
 `Cole's appointment by the FA feels in keeping with England's history. He already seems to have the nous to play a part in its future`\
 https://nytimes.com/athletic/5762254/2024/09/13/ashley-cole-fa-england-lee-carsley/
@@ -21,20 +37,4 @@ https://nytimes.com/2024/09/13/world/asia/pakistan-polio.html
 **After a Life of Competitive Sports, Making Love a Priority**\
 `When Nicholas Scarvelis, who competed in the shot put for Greece in the 2016 Rio Olympics, decided to retire in 2022, he was finally able to plan a future with Noelle Zappia.`\
 https://nytimes.com/2024/09/13/style/noelle-zappia-nicholas-scarvelis-wedding.html
-
-**South Meets North India at an Inclusive Hindu Wedding**\
-`When Dr. Yuvaram Reddy, who had lived in South India, and Chetan Jhaveri, who is of North Indian heritage, chose to marry, their families’ approval was crucial.`\
-https://nytimes.com/2024/09/13/style/yuvaram-reddy-chetan-jhaveri-wedding.html
-
-**Friends for 16 Years. Lovers for One Night.**\
-`We realized much too late that we were right for each other.`\
-https://nytimes.com/2024/09/13/style/modern-love-realizing-too-late-we-were-meant-for-each-other.html
-
-**Friday's MLB odds, best bets: Projections for pitching matchups, playoffs and more**\
-`See pitching matchups, playoff projections, win projections and more for Friday's MLB games.`\
-https://nytimes.com/athletic/5758993/2024/09/13/mlb-odds-best-bets-projections-september-13/
-
-**Former High School Classmates Finally Become Sweethearts**\
-`Austin Mills and Taylor Mills both attended Beverly Hills High School in Beverly Hills, Calif., but didn’t connect until years later at an Los Angeles nightclub.`\
-https://nytimes.com/2024/09/13/style/taylor-mills-austin-mills-wedding.html
 
