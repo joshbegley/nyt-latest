@@ -1,3 +1,7 @@
+**Tua Tagovailoa suffers concussion on collision with Damar Hamlin**\
+`The injury comes two seasons after Tagovailoa missed extensive time with multiple head injuries in 2022.`\
+https://nytimes.com/athletic/5764434/2024/09/12/tua-injury-update/
+
 **Yankees' Aaron Judge hasn't homered in 16 games, longest drought of his career**\
 `Judge went 1-for-4 in the Yankees' 2-1 walk-off win over the Boston Red Sox on Thursday night.`\
 https://nytimes.com/athletic/5764349/2024/09/12/yankees-aaron-judge-home-run-drought/

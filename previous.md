@@ -1,3 +1,7 @@
+**Tua Tagovailoa suffers concussion on collision with Damar Hamlin**\
+`The injury comes two seasons after Tagovailoa missed extensive time with multiple head injuries in 2022.`\
+https://nytimes.com/athletic/5764434/2024/09/12/tua-injury-update/
+
 **Yankees' Aaron Judge hasn't homered in 16 games, longest drought of his career**\
 `Judge went 1-for-4 in the Yankees' 2-1 walk-off win over the Boston Red Sox on Thursday night.`\
 https://nytimes.com/athletic/5764349/2024/09/12/yankees-aaron-judge-home-run-drought/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/12/us/california-wildfires-idaho-oregon/arson-c
 **Review: Patti LuPone and Mia Farrow Clean Up in ‘The Roommate’**\
 `A Bronx grifter and an Iowa homebody share a house and eventually learn from each other in this Broadway star vehicle.`\
 https://nytimes.com/2024/09/12/theater/the-roommate-review-lupone-farrow.html
-
-**Correction Officers Who Failed to Aid Dying Inmate Won’t Be Charged**\
-`Correction Department rules “do not clearly require officers to provide immediate care to people with severely bleeding wounds,” the New York attorney general’s office said.`\
-https://nytimes.com/2024/09/12/nyregion/correction-officers-rikers-ny-prison.html
 
