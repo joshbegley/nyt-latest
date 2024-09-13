@@ -1,3 +1,7 @@
+**Arsenal forward Agyemang to join Brighton on loan**\
+`Arsenal forward Michelle Agyemang is set to join Brighton &amp; Hove Albion on a season-long loan before the women’s transfer deadline on Friday night.`\
+https://nytimes.com/athletic/5764823/2024/09/13/arsenal-transfers-michelle-agyemang-brighton/
+
 **Weird & Wild MLB highlights of the month: Game of the Year, a first-inning first, and more**\
 `It's time for the W&W highlights of the past month, from The Danny Jansen Game to a hitter who made an out on his own intentional walk. `\
 https://nytimes.com/athletic/5764512/2024/09/13/danny-jansen-game-dodgers-diamondbacks-first-inning/
