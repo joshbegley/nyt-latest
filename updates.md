@@ -1,3 +1,7 @@
+**John Textor's Everton bid - 'New equity', Moshiri's options and what of his Palace shares?**\
+`Everton's prospective new owner attempted to explain his stance when speaking at a press conference and in a television interview this week`\
+https://nytimes.com/athletic/5762252/2024/09/13/textor-everton-bid-lyon-palace-explained/
+
 **The Windup: Was Aaron Judge cursed by Paw Patrol?**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5765353/2024/09/13/aaron-judge-paw-patrol-the-windup/
