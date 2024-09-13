@@ -1,3 +1,16 @@
+**Chilwell included in Chelsea's 25-man Premier League squad**\
+`Ben Chilwell has been included in Chelsea&#8217;s 25-man squad for the 2024-25 Premier League season.`\
+https://nytimes.com/athletic/5679600/2024/09/13/chelsea-ben-chilwell-squad/
+
+**Suspect in hit-and-run arrested after driving on CU's football field**\
+`Police arrested a man suspected of being involved in a series of hit-and-run crashes before driving his truck onto the field.`\
+https://nytimes.com/athletic/5765055/2024/09/13/colorado-football-field-arrest/
+
+**For postseason, MLB to place advertisements on batting helmets**\
+`The move follows the league’s approval of sleeve patches on uniforms before the 2023 season.
+`\
+https://nytimes.com/athletic/5765123/2024/09/13/2024-mlb-postseason-advertisements-batting-helmets/
+
 **For postseason, MLB to place advertisements on batting helmets**\
 `The move follows the league’s approval of sleeve patches on uniforms before the 2023 season.
 `\

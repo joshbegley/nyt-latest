@@ -1,3 +1,11 @@
+**Chilwell included in Chelsea's 25-man Premier League squad**\
+`Ben Chilwell has been included in Chelsea&#8217;s 25-man squad for the 2024-25 Premier League season.`\
+https://nytimes.com/athletic/5679600/2024/09/13/chelsea-ben-chilwell-squad/
+
+**Suspect in hit-and-run arrested after driving on CU's football field**\
+`Police arrested a man suspected of being involved in a series of hit-and-run crashes before driving his truck onto the field.`\
+https://nytimes.com/athletic/5765055/2024/09/13/colorado-football-field-arrest/
+
 **In Tulkarm, residents want to rebuild but fear more destructive Israeli raids.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/09/13/world/israel-hamas-gaza-war/in-tulkarm-residents-want-to-rebuild-but-fear-more-destructive-israeli-raids
@@ -30,12 +38,4 @@ https://nytimes.com/2024/09/13/business/boeing-strike-workers-explained.html
 **Arsenal to have Gabriel Jesus available, waiting on more Odegaard tests**\
 `Mikel Arteta says that further tests are required before they know the true extent of Martin Odegaard&#8217;s injury but confirmed that Gabriel Jesus should be available for Sunday&#8217;s north London derby.`\
 https://nytimes.com/athletic/5765134/2024/09/13/arsenal-team-news-jesus-odegaard/
-
-**Penguins mailbag: McGroarty, Crosby's linemates and can't-miss games**\
-`Josh Yohe dishes on the best games to catch this season, if McGroarty will make the team and Crosby's linemates.`\
-https://nytimes.com/athletic/5763540/2024/09/13/penguins-sidney-crosby-rutger-mcgroarty/
-
-**Where Voters Will Decide on Abortion in November**\
-`Ten states could expand abortion rights via ballot measures. Nebraska will also vote on proposed restrictions.`\
-https://nytimes.com/interactive/2024/us/politics/abortion-ballot-states.html
 
