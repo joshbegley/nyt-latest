@@ -1,3 +1,11 @@
+**Politicians Get Roasted on This Beloved British Show. Can It Be a U.S. Hit?**\
+`“Have I Got News for You” will inject some levity into the CNN schedule. But on a news network, finding comedy in politics during an election year comes with risks.`\
+https://nytimes.com/2024/09/13/arts/television/have-i-got-news-for-you-cnn.html
+
+**How an ex-La Liga captain was found guilty of sexually assaulting a woman mascot**\
+`Former Celta Vigo captain Hugo Mallo was found guilty of sexually assaulting an Espanyol mascot dressed as a female parakeet`\
+https://nytimes.com/athletic/5765371/2024/09/13/hugo-mallo-espanyol-mascot-sexual-assault-latest/
+
 **How Canucks prospects Jonathan Lekkerimäki and Elias Pettersson prepared for their big shot**\
 `Despite their differences as players, the 2022 draft picks have built a strong friendship while in pursuit of the same goal.`\
 https://nytimes.com/athletic/5764702/2024/09/13/canucks-prospects-jonathan-lekkerimaki-elias-pettersson/
