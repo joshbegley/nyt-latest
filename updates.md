@@ -1,3 +1,23 @@
+**Where Was Merrick Garland When Justice Needed Him?**\
+`By Jesse Wegman`\
+https://nytimes.com/2024/09/11/opinion/garland-justice-trump.html
+
+**The Best of Late Night This Week**\
+`The debate between Kamala Harris and Donald Trump was the big topic of this week, with the hosts discussing the number of households that watched live and Taylor Swift’s endorsement of Harris.`\
+https://nytimes.com/interactive/2024/09/13/arts/television/best-of-late-night-debate.html
+
+**Man charged with killing Gaudreaus is denied bail**\
+`Sean M. Higgins has been held in custody since his arrest on Aug. 29 in Oldmans Township, N.J.`\
+https://nytimes.com/athletic/5765332/2024/09/13/johnny-gaudreau-crash-suspect-jail/
+
+**Goalkeepers at promoted Premier League teams have struggled - can Ramsdale buck the trend?**\
+`It shouldn’t be underestimated quite how desperately relegation contenders have lacked decent shot-stoppers in recent seasons`\
+https://nytimes.com/athletic/5744145/2024/09/13/aaron-ramsdale-southampton-statistics/
+
+**Textor's Everton bid - 'New equity', Moshiri's options and what of his Palace shares?**\
+`Everton's prospective new owner attempted to explain his stance when speaking at a press conference and in a television interview this week`\
+https://nytimes.com/athletic/5762252/2024/09/13/textor-everton-bid-lyon-palace-explained/
+
 **Fofana joins Goztepe on loan after AEK Athens move collapses**\
 `David Datro Fofana has joined Goztepe in Turkey after a switch to AEK Athens collapsed.`\
 https://nytimes.com/athletic/5764909/2024/09/13/david-datro-fofana-chelsea-goztepe/
