@@ -1,3 +1,7 @@
+**Former players call for Tagovailoa to retire**\
+`A wave of former and current NFL players suggested now is the time for Tagovailoa to walk away from the game.`\
+https://nytimes.com/athletic/5764581/2024/09/13/tua-tagovailoa-concussion-reaction-retirement/
+
 **What I'm seeing at Liverpool: Slot and Hughes charm offensive - and Dua Lipa**\
 `James Pearce offers insights into what's going on at Anfield as the Premier League returns this weekend`\
 https://nytimes.com/athletic/5762323/2024/09/13/liverpool-slot-hughes-dua-lipa/
