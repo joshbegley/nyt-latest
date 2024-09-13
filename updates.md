@@ -28,6 +28,11 @@ https://nytimes.com/athletic/5765123/2024/09/13/2024-mlb-postseason-advertisemen
 `\
 https://nytimes.com/athletic/5765123/2024/09/13/2024-mlb-postseason-advertisements-batting-helmets/
 
+**For postseason, MLB to place advertisements on batting helmets**\
+`The move follows the league’s approval of sleeve patches on uniforms before the 2023 season.
+`\
+https://nytimes.com/athletic/5765123/2024/09/13/2024-mlb-postseason-advertisements-batting-helmets/
+
 **What you need to know about 2024's junior Grand Slam champions**\
 `Being a junior Grand Slam champion is not a one-way ticket to tennis success.`\
 https://nytimes.com/athletic/5763164/2024/09/13/junior-grand-slam-champions-2024-australian-french-wimbledon-us-open/
