@@ -1,3 +1,7 @@
+**Mbappe's goals, midfield muddles, gaps at the back: What I'm seeing at Real Madrid**\
+`Carlo Ancelotti's side have made a sluggish start to the new La Liga season - so there's plenty of noise around the club`\
+https://nytimes.com/athletic/5764691/2024/09/13/real-madrid-mbappe-ancelotti-kroos-bellingham/
+
 **Raiders were expected to major in 12 personnel, so where was it in the Week 1 loss?**\
 `The Raiders were aligned in 12 personnel on just 15 of their 60 offensive snaps in Sunday's loss. A lack of a running game was to blame.`\
 https://nytimes.com/athletic/5764017/2024/09/13/raiders-week-1-brock-bowers-michael-mayer/
