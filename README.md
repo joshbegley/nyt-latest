@@ -1,40 +1,40 @@
-**Some Gazans Say Polio Drive Is Futile While Israel Keeps Bombing**\
-`As a United Nations-backed anti-polio campaign appears to be succeeding, some Gazans say it won’t make a difference because Israeli attacks are a more immediate threat.`\
-https://nytimes.com/live/2024/09/13/world/israel-hamas-gaza-war
+**The Fight Against Three Major Wildfires in Southern California: What We Know**\
+`Weather conditions have given firefighters a better chance of preventing more damage from the blazes that have displaced tens of thousands of residents.`\
+https://nytimes.com/2024/09/13/us/california-fires-what-we-know.html
 
-**Some Gazans say polio vaccinations won’t make a difference because Israeli attacks are a greater threat.**\
-`Palestinians living with the daily fear of Israeli strikes see a level of absurdity in the international drive to vaccinate their children.`\
-https://nytimes.com/live/2024/09/13/world/israel-hamas-gaza-war/gaza-polio-vaccination-futility
+**The Dirtiest Trick Whitey Bulger Ever Played on Boston**\
+`A generation of students was lost amid the violence that surrounded the advent of busing.`\
+https://nytimes.com/live/2024/09/11/opinion/thepoint/boston-bulger-busing-anniversary
 
-**An oil tanker still burning in the Red Sea raises alarms at a U.N. Security Council meeting.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2024/09/13/world/israel-hamas-gaza-war/an-oil-tanker-still-burning-in-the-red-sea-raises-alarms-at-a-un-security-council-meeting
+**How to Watch the Emmy Awards**\
+`The Emmys are on Sunday night at 8 p.m. Eastern, two hours after the red carpet festivities begin.`\
+https://nytimes.com/2024/09/13/arts/television/how-to-watch-the-emmy-awards.html
 
-**Boeing Union Members Vote to Strike**\
-`Thousands of machinists and aerospace workers walked off the job on Friday, after rejecting a proposal that would have delivered raises and improvements to benefits but fell short of what the union initially sought.`\
-https://nytimes.com/video/business/100000009690433/boeing-union-strike-iam.html
+**Do You Need a New iPhone? + Yuval Noah Harari’s A.I. Fears + Hard Fork Crimes Division**\
+`Welcome to our 100th episode!`\
+https://nytimes.com/2024/09/13/podcasts/do-you-need-a-new-iphone-yuval-noah-hararis-ai-fears-hard-fork-crimes-division.html
 
-**In a Transformed Neighborhood, a Funeral Home Finds New Life as a Gym**\
-`The former Scotto Funeral Home, a landmark of bygone Brooklyn, is reopening after a multiyear renovation and Catholic blessing — as a boutique gym.`\
-https://nytimes.com/2024/09/13/nyregion/district-gym-scotto-funeral-home-carroll-gardens.html
+**5 Things to Do This Weekend**\
+`A selection of entertainment highlights this weekend, including “The Old Man,” “How to Die Alone” and other TV picks for fall.`\
+https://nytimes.com/interactive/2024/09/13/arts/weekend-editors-picks-fall-TV-preview.html
 
-**Road Trip**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2024/09/13/learning/road-trip.html
+**End-of-Day Meltdowns Are Not Just for Kids**\
+`But there are ways to avoid them.`\
+https://nytimes.com/2024/09/13/well/adult-meltdowns-tips.html
 
-**The Mayor of New York Is Surrounded by Scandal. Will Voters Really Care?**\
-`Corruption has been a mark of municipal politics for hundreds of years. Tolerance for it has been high.`\
-https://nytimes.com/2024/09/13/nyregion/eric-adams-corruption-voters.html
+**The New York Times News Quiz, September 13, 2024**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2024/09/13/briefing/trump-harris-swift-hurricane-news-quiz.html
 
-**How a TV Critic Navigates an Age of Endless Content**\
-`James Poniewozik, The New York Times’s chief television critic, discusses the state of modern television and the struggle to watch it all.`\
-https://nytimes.com/2024/09/13/insider/tv-critic.html
+**It’s Time (Again!) for the Emmys**\
+`From “The Bear” to “Baby Reindeer,” our guide to TV’s big night.`\
+https://nytimes.com/2024/09/13/podcasts/its-time-again-for-the-emmys.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2024/09/13/crosswords/spelling-bee-forum.html
+**The Real ‘Border Czar’ Defends the Biden-Harris Record**\
+`Secretary of Homeland Security Alejandro Mayorkas explains what his agency has done to address the challenges at the U.S.-Mexico border.`\
+https://nytimes.com/2024/09/13/opinion/ezra-klein-podcast-alejandro-mayorkas.html
 
-**Late Night Enjoys Biden’s Encounter With a Trump Fan**\
-`When President Biden briefly donned a Trump hat, he “gave everyone in QAnon a brain aneurysm at once,” Jimmy Kimmel said.`\
-https://nytimes.com/2024/09/13/arts/television/late-night-biden-trump-hat.html
+**Future of Murdoch Empire Comes Down to a Court in Nevada**\
+`Next week, a probate official will hear evidence in a clash between Rupert Murdoch and some of his children over who should control his media companies after he dies.`\
+https://nytimes.com/2024/09/13/business/media/murdoch-family-trust-nevada.html
 
