@@ -1,3 +1,7 @@
+**Pochettino targets U.S. 2026 World Cup success with USWNT the 'inspiration'**\
+`Mauricio Pochettino says the U.`\
+https://nytimes.com/athletic/5765480/2024/09/13/mauricio-pochettino-usmnt-world-cup-hayes/
+
 **How Israeli Forces Destroyed a Secret Weapons Facility in Syria**\
 `Here is what to know about Israel’s deadly raid on a Hezbollah weapons production facility in Syria.`\
 https://nytimes.com/2024/09/13/world/middleeast/israel-raid-syria-hezbollah.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/13/us/politics/russia-sanctions-disinformation-rt.ht
 **Worried About Kamala Harris? ‘That’s Tomorrow’s Problem.’**\
 `There is nothing more baffling than the undecided voter.`\
 https://nytimes.com/live/2024/09/11/opinion/thepoint/kamala-harris-undecided
-
-**Putin Warns Ukraine’s Use of Long-Range Weapons Would Put NATO ‘At War’ with Russia**\
-`The Russian president said that western support for Ukrainian strikes deep inside Russia would change the “nature of the conflict dramatically.”`\
-https://nytimes.com/2024/09/13/world/europe/putin-warns-nato-at-war-ukraine.html
 
