@@ -1,3 +1,7 @@
+**A New Perspective on Van Gogh’s Final Flowering**\
+`A major exhibition in London focuses on the painter’s final years, finding new feelings in some of his most famous works.`\
+https://nytimes.com/2024/09/13/arts/design/van-gogh-poets-and-lovers-national-gallery-london.html
+
 **What Could a Menopause-Friendly Workplace Look Like?**\
 `The Menopause Society announced a new initiative to support workers during this life stage. Whether employers implement it is another story.`\
 https://nytimes.com/2024/09/13/well/live/menopause-workplace-guidelines.html
