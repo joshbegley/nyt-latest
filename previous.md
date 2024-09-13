@@ -1,3 +1,7 @@
+**Activists Convicted of Conspiring to Act as Russian Agents**\
+`The four defendants were acquitted of a more serious charge of failing to register as Russian agents. The case in Florida offered a window into Russian influence operations.`\
+https://nytimes.com/2024/09/13/us/us-activists-russia-agents-convicted.html
+
 **PETA Wants More Than a Friendly Statement From Pharrell Williams**\
 `After an animal rights protest at a film premiere, Mr. Williams, the creative director of Louis Vuitton, said he had “plans to change things.”`\
 https://nytimes.com/2024/09/13/style/pharrell-williams-peta.html
@@ -31,10 +35,6 @@ https://nytimes.com/athletic/5765380/2024/09/13/scoop-city-whats-next-for-tua-ta
 https://nytimes.com/2024/09/13/us/politics/hamas-power-gaza-violence-israel.html
 
 **Textor's Everton bid - 'New equity', Moshiri's options and what of his Palace shares?**\
-`Everton's prospective new owner attempted to explain his stance when speaking at a press conference and in a television interview this week`\
+`Everton's prospective new owner attempted to explain his stance when speaking at a press conference and in a TV interview this week`\
 https://nytimes.com/athletic/5762252/2024/09/13/textor-everton-bid-lyon-palace-explained/
-
-**The Windup: Was Aaron Judge cursed by Paw Patrol?**\
-`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
-https://nytimes.com/athletic/5765353/2024/09/13/aaron-judge-paw-patrol-the-windup/
 
