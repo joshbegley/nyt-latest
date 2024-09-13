@@ -1,3 +1,15 @@
+**How Canucks prospects Jonathan Lekkerimäki and Elias Pettersson prepared for their big shot**\
+`Despite their differences as players, the 2022 draft picks have built a strong friendship while in pursuit of the same goal.`\
+https://nytimes.com/athletic/5764702/2024/09/13/canucks-prospects-jonathan-lekkerimaki-elias-pettersson/
+
+**Late Summer Recipes for Early Cozy Season**\
+`Before we hit peak soup season (hello, lentil tomato soup), there’s still time for tomato curry and grilled eggplant with turmeric tahini.`\
+https://nytimes.com/2024/09/13/dining/late-summer-recipes-for-early-cozy-season.html
+
+**Chiefs' Marquise Brown expected to go on IR**\
+`Brown, the Chiefs’ biggest acquisition in free agency, is expected to miss several months as part of his rehab.`\
+https://nytimes.com/athletic/5765503/2024/09/13/marquise-brown-injury-surgery-chiefs/
+
 **The Weeknd’s Glimmering Synth-Pop, and 8 More New Songs**\
 `Hear tracks by Soccer Mommy, FKA twigs, Reyna Tropical and others.`\
 https://nytimes.com/2024/09/13/arts/music/playlist-the-weeknd-fka-twigs.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/11/opinion/garland-justice-trump.html
 **The Best of Late Night This Week**\
 `The debate between Kamala Harris and Donald Trump was the big topic of this week, with the hosts discussing the number of households that watched live and Taylor Swift’s endorsement of Harris.`\
 https://nytimes.com/interactive/2024/09/13/arts/television/best-of-late-night-debate.html
-
-**Man charged with killing Gaudreaus is denied bail**\
-`Sean M. Higgins has been held in custody since his arrest on Aug. 29 in Oldmans Township, N.J.`\
-https://nytimes.com/athletic/5765332/2024/09/13/johnny-gaudreau-crash-suspect-jail/
-
-**Goalkeepers at promoted Premier League teams have struggled - can Ramsdale buck the trend?**\
-`It shouldn’t be underestimated quite how desperately relegation contenders have lacked decent shot-stoppers in recent seasons`\
-https://nytimes.com/athletic/5744145/2024/09/13/aaron-ramsdale-southampton-statistics/
-
-**Fofana joins Goztepe on loan after AEK Athens move collapses**\
-`David Datro Fofana has joined Goztepe in Turkey after a switch to AEK Athens collapsed.`\
-https://nytimes.com/athletic/5764909/2024/09/13/david-datro-fofana-chelsea-goztepe/
 
