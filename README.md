@@ -1,3 +1,7 @@
+**Minnesota Twins release minor league catcher for tipping pitches**\
+`Prospect Derek Bender's team was eliminated from playoff contention in the game in which he gave away pitches.`\
+https://nytimes.com/athletic/5764355/2024/09/12/twins-release-minor-league-catcher-tipping-pitches/
+
 **5 takeaways from the Bills' win over the Dolphins**\
 `The Buffalo Bills enjoyed a dominant 31-10 win over the Miami Dolphins on Thursday in a clash of AFC East contenders.`\
 https://nytimes.com/athletic/5764460/2024/09/12/bills-dolphins-result-takeaways-tua-tagovailoa/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/12/theater/counting-and-cracking-review.html
 **Gets High on a Kite**\
 `Boaz Moser makes his New York Times Crossword debut.`\
 https://nytimes.com/2024/09/12/crosswords/daily-puzzle-2024-13.html
-
-**Is my house still there? Are my relatives safe? Fire evacuees worry, and wonder what comes next.**\
-`By Rachel Parsons`\
-https://nytimes.com/live/2024/09/12/us/california-wildfires-idaho-oregon/is-my-house-still-there-are-my-relatives-safe-fire-evacuees-worry-and-wonder-what-comes-next
 
