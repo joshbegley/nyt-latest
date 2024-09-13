@@ -1,3 +1,7 @@
+**Five observations from the Bills' blowout win over the Dolphins**\
+`The Bills have gotten off to a 2-0 start despite injuries on both sides of the ball.`\
+https://nytimes.com/athletic/5764626/2024/09/13/buffalo-bills-miami-dolphins-james-cook-jamarcus-ingram/
+
 **A Long Life, Thanks to Where You Live? Not Likely, Says Ig Nobel Winner.**\
 `An Australian researcher found that many areas that supposedly produce lots of centenarians also produce shoddy record-keeping.`\
 https://nytimes.com/2024/09/13/world/australia/ig-nobel-awards.html
