@@ -18,7 +18,7 @@ https://nytimes.com/2024/09/13/us/elijah-mcclain-paramedic-probation.html
 `Manchester United have had a slow start to the Premier League season, but Southampton have lost all three matches so far.`\
 https://nytimes.com/athletic/5763836/2024/09/13/southampton-manchester-united-preview-odds-prediction/
 
-**Missouri Bird Flu Case May Raise Prospect of Human Transmission**\
+**Missouri Bird Flu Case Raises Prospect of Human Transmission**\
 `A close contact of someone with bird flu became ill on the same day, the C.D.C. reported. But the second person was not tested, and the cause of the illness is unknown.`\
 https://nytimes.com/2024/09/13/health/bird-flu-missouri.html
 
@@ -27,7 +27,7 @@ https://nytimes.com/2024/09/13/health/bird-flu-missouri.html
 https://nytimes.com/2024/09/13/health/mpox-vaccine-world-health-organization.html
 
 **Meeting With Biden, British Leader Hints at Ukraine Weapon Decision Soon**\
-`The question of whether to let Ukraine use long-range weapons in Russia has been a rare point of disagreement between British and American officials.`\
+`As the president deliberated with Prime Minister Keir Starmer, the question of whether to let Ukraine use long-range weapons in Russia was a rare point of contention between allied nations.`\
 https://nytimes.com/2024/09/13/us/politics/biden-starmer-ukraine-russia-missiles.html
 
 **U.S. team's Day 1 dominance lifted the entire vibe of this Solheim Cup**\

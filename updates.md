@@ -1,3 +1,11 @@
+**Missouri Bird Flu Case Raises Prospect of Human Transmission**\
+`A close contact of someone with bird flu became ill on the same day, the C.D.C. reported. But the second person was not tested, and the cause of the illness is unknown.`\
+https://nytimes.com/2024/09/13/health/bird-flu-missouri.html
+
+**Meeting With Biden, British Leader Hints at Ukraine Weapon Decision Soon**\
+`As the president deliberated with Prime Minister Keir Starmer, the question of whether to let Ukraine use long-range weapons in Russia was a rare point of contention between allied nations.`\
+https://nytimes.com/2024/09/13/us/politics/biden-starmer-ukraine-russia-missiles.html
+
 **Mets' set-up man Dedniel Núñez done for the season**\
 `Núñez sustained a flexor injury in his right arm and received an injection of platelet-rich plasma.`\
 https://nytimes.com/athletic/5766170/2024/09/13/mets-dedniel-nunez-injury/

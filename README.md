@@ -1,4 +1,4 @@
-**Mets' set-up man Dedniel Núñez done for the season**\
+**Mets set-up man Dedniel Núñez done for the season**\
 `Núñez sustained a flexor injury in his right arm and received an injection of platelet-rich plasma.`\
 https://nytimes.com/athletic/5766170/2024/09/13/mets-dedniel-nunez-injury/
 
