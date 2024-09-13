@@ -1,5 +1,5 @@
-**Pennsylvania Court Throws Out Ruling Requiring Misdated Ballots to Count**\
-`The Pennsylvania Supreme Court declined to rule on the merits of the case, instead finding that the lower court lacked jurisdiction in its ruling.`\
+**Pennsylvania Supreme Court Throws Out Ruling Requiring Misdated Ballots to Count**\
+`The Supreme Court declined to rule on the merits of the case, instead finding that the lower court lacked jurisdiction in its decision.`\
 https://nytimes.com/2024/09/13/us/pennsylvania-ballots-ruling.html
 
 **Trump’s Economics, Too, Are Sounding More Authoritarian**\
