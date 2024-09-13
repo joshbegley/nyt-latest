@@ -1,3 +1,7 @@
+**Minnesota Twins release minor league catcher for tipping pitches**\
+`Prospect Derek Bender's team was eliminated from playoff contention in the game in which he gave away pitches.`\
+https://nytimes.com/athletic/5764355/2024/09/12/twins-release-minor-league-catcher-tipping-pitches/
+
 **Is my house still there? Are my relatives safe? Fire evacuees worry, and wonder what comes next.**\
 `By Rachel Parsons`\
 https://nytimes.com/live/2024/09/12/us/california-wildfires-idaho-oregon/is-my-house-still-there-are-my-relatives-safe-fire-evacuees-worry-and-wonder-what-comes-next
