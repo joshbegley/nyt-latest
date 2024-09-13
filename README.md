@@ -1,3 +1,7 @@
+**Pennsylvania Court Throws Out Ruling Requiring Misdated Ballots to Count**\
+`The Pennsylvania Supreme Court declined to rule on the merits of the case, instead finding that the lower court lacked jurisdiction in its ruling.`\
+https://nytimes.com/2024/09/13/us/pennsylvania-ballots-ruling.html
+
 **Trump’s Economics, Too, Are Sounding More Authoritarian**\
 `His economic agenda would concentrate more power in the hands of the president.`\
 https://nytimes.com/2024/09/13/opinion/trump-authoritarian-economics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/13/world/americas/brazil-musk-x-starlink.html
 **Bronny James' Summer League debut jersey sells for $38,400, surpassing expectations**\
 `Bronny James&#8217; jersey from his NBA Summer League debut with the LA Lakers sold at auction for $38,400 on Friday.`\
 https://nytimes.com/athletic/5765813/2024/09/13/bronny-james-jersey-sale-lakers/
-
-**Marco Luciano is still looking for his first home run. How worried should you be?**\
-`Luciano has played 38 MLB games without hitting a home run. He has some good company among players who have had similar starts.`\
-https://nytimes.com/athletic/5764615/2024/09/13/sf-giants-marco-luciano-homerless-streak/
 
