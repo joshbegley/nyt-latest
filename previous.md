@@ -1,3 +1,7 @@
+**Herbie Flowers, ‘Walk on the Wild Side’ Bassist, Dies at 86**\
+`A celebrated session musician who appeared on a host of classic rock albums, he made his most lasting mark with his contribution to Lou Reed’s most famous song.`\
+https://nytimes.com/2024/09/13/arts/music/herbie-flowers-dead.html
+
 **Three Americans Sentenced to Death for Failed Congo Coup**\
 `The sentences were handed down months after the central African country lifted a moratorium on carrying out the death penalty.`\
 https://nytimes.com/2024/09/13/world/africa/congo-coup-death-sentence-americans.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/13/business/trump-media-stock-truth-social.html
 **Harris Visits Red Areas of Pennsylvania, Hoping to Cut Into Trump’s Edge**\
 `The vice president, who stopped in Johnstown before a rally in Wilkes-Barre, is trying to compete in conservative-leaning areas that Donald Trump will win, but perhaps not by quite as much.`\
 https://nytimes.com/2024/09/13/us/politics/harris-pennsylvania-rally.html
-
-**What Is Pro-Life Realism?**\
-`Can pro-life states survive in a pro-choice country?`\
-https://nytimes.com/2024/09/13/opinion/pro-life-abortion-realism.html
 

@@ -1,3 +1,7 @@
+**Herbie Flowers, ‘Walk on the Wild Side’ Bassist, Dies at 86**\
+`A celebrated session musician who appeared on a host of classic rock albums, he made his most lasting mark with his contribution to Lou Reed’s most famous song.`\
+https://nytimes.com/2024/09/13/arts/music/herbie-flowers-dead.html
+
 **Three Americans Sentenced to Death for Failed Congo Coup**\
 `The sentences were handed down months after the central African country lifted a moratorium on carrying out the death penalty.`\
 https://nytimes.com/2024/09/13/world/africa/congo-coup-death-sentence-americans.html
