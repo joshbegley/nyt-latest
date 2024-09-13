@@ -1,3 +1,7 @@
+**How Tua's injury could affect Tyreek Hill, De'Von Achane, other Dolphins**\
+`While everyone's thoughts are with Tua Tagovailoa, fantasy managers are also wondering what this injury means for the Dolphins' other stars.`\
+https://nytimes.com/athletic/5764948/2024/09/13/fantasy-football-tua-injury-tyreek-hill-devon-achane-dolphins/
+
 **A New Perspective on Van Gogh’s Final Flowering**\
 `A major exhibition in London focuses on the painter’s final years, finding new feelings in some of his most famous works.`\
 https://nytimes.com/2024/09/13/arts/design/van-gogh-poets-and-lovers-national-gallery-london.html
