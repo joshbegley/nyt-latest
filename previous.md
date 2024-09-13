@@ -1,6 +1,26 @@
+**Falcons acknowledge shoddy offensive operation in opener, vow to clean it up**\
+`The Falcons managed only one touchdown in their Week 1 loss, but new offensive coordinator Zac Robinson remains confident.`\
+https://nytimes.com/athletic/5764022/2024/09/13/falcons-offense-kirk-cousins-zac-robinson/
+
 **Toronto Film Festival Pulls Documentary on Russian Soldiers**\
 `The festival canceled the screenings of “Russians at War,” which has been criticized as Kremlin propaganda. The filmmaker has said it is an antiwar film.`\
 https://nytimes.com/2024/09/13/world/asia/tiff-russian-war-documentary-paused.html
+
+**UFC 306 odds, predictions: Betting the underdog in O'Malley-Dvalishvili**\
+`Three favorite fights for UFC 306 and a detailed betting breakdown for each one.`\
+https://nytimes.com/athletic/5761082/2024/09/13/ufc-306-odds-predictions-omalley-vs-dvalishvili/
+
+**Again an NFL starter, Patriots' Jacoby Brissett hopes to play caretaker QB role to a T**\
+`The Patriots' veteran quarterback managed the game well in Week 1. Can he keep it going against a tougher opponent this weekend?`\
+https://nytimes.com/athletic/5760914/2024/09/13/jacoby-brissett-patriots-seahawks-drake-maye/
+
+**Keys to a Wisconsin upset: 3 questions the Badgers must answer to shock the Crimson Tide**\
+`Wisconsin is playing its first home game against a top-10 nonconference team in 35 years.`\
+https://nytimes.com/athletic/5762880/2024/09/13/wisconsin-alabama-prediction-badgers/
+
+**Which MLB contenders have the hardest road to the playoffs? Let's break down the schedules**\
+`We looked at each contender’s remaining schedule, with playoff odds and remaining strength of schedule in order to find out. `\
+https://nytimes.com/athletic/5763713/2024/09/13/mlb-contenders-easiest-hardest-road-playoffs/
 
 **Nebraska QB underdog Jalyn Gramstad has his eyes on a goal bigger than playing time**\
 `“I believe Jalyn Gramstad could move our team and score,” coach Matt Rhule said. “I believe that with all my heart.”`\
@@ -17,24 +37,4 @@ https://nytimes.com/live/2024/09/11/opinion/thepoint/boston-bulger-busing-annive
 **How to Watch the Emmy Awards**\
 `The Emmys are on Sunday night at 8 p.m. Eastern, two hours after the red carpet festivities begin.`\
 https://nytimes.com/2024/09/13/arts/television/how-to-watch-the-emmy-awards.html
-
-**Do You Need a New iPhone? + Yuval Noah Harari’s A.I. Fears + Hard Fork Crimes Division**\
-`Welcome to our 100th episode!`\
-https://nytimes.com/2024/09/13/podcasts/do-you-need-a-new-iphone-yuval-noah-hararis-ai-fears-hard-fork-crimes-division.html
-
-**5 Things to Do This Weekend**\
-`A selection of entertainment highlights this weekend, including “The Old Man,” “How to Die Alone” and other TV picks for fall.`\
-https://nytimes.com/interactive/2024/09/13/arts/weekend-editors-picks-fall-TV-preview.html
-
-**End-of-Day Meltdowns Are Not Just for Kids**\
-`But there are ways to avoid them.`\
-https://nytimes.com/2024/09/13/well/adult-meltdowns-tips.html
-
-**The New York Times News Quiz, September 13, 2024**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2024/09/13/briefing/trump-harris-swift-hurricane-news-quiz.html
-
-**It’s Time (Again!) for the Emmys**\
-`From “The Bear” to “Baby Reindeer,” our guide to TV’s big night.`\
-https://nytimes.com/2024/09/13/podcasts/its-time-again-for-the-emmys.html
 

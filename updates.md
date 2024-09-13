@@ -1,3 +1,23 @@
+**Falcons acknowledge shoddy offensive operation in opener, vow to clean it up**\
+`The Falcons managed only one touchdown in their Week 1 loss, but new offensive coordinator Zac Robinson remains confident.`\
+https://nytimes.com/athletic/5764022/2024/09/13/falcons-offense-kirk-cousins-zac-robinson/
+
+**UFC 306 odds, predictions: Betting the underdog in O'Malley-Dvalishvili**\
+`Three favorite fights for UFC 306 and a detailed betting breakdown for each one.`\
+https://nytimes.com/athletic/5761082/2024/09/13/ufc-306-odds-predictions-omalley-vs-dvalishvili/
+
+**Again an NFL starter, Patriots' Jacoby Brissett hopes to play caretaker QB role to a T**\
+`The Patriots' veteran quarterback managed the game well in Week 1. Can he keep it going against a tougher opponent this weekend?`\
+https://nytimes.com/athletic/5760914/2024/09/13/jacoby-brissett-patriots-seahawks-drake-maye/
+
+**Keys to a Wisconsin upset: 3 questions the Badgers must answer to shock the Crimson Tide**\
+`Wisconsin is playing its first home game against a top-10 nonconference team in 35 years.`\
+https://nytimes.com/athletic/5762880/2024/09/13/wisconsin-alabama-prediction-badgers/
+
+**Which MLB contenders have the hardest road to the playoffs? Let's break down the schedules**\
+`We looked at each contender’s remaining schedule, with playoff odds and remaining strength of schedule in order to find out. `\
+https://nytimes.com/athletic/5763713/2024/09/13/mlb-contenders-easiest-hardest-road-playoffs/
+
 **Toronto Film Festival Pulls Documentary on Russian Soldiers**\
 `The festival canceled the screenings of “Russians at War,” which has been criticized as Kremlin propaganda. The filmmaker has said it is an antiwar film.`\
 https://nytimes.com/2024/09/13/world/asia/tiff-russian-war-documentary-paused.html
