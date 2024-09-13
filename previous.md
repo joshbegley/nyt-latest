@@ -1,5 +1,5 @@
 **Yankees' Aaron Judge hasn't homered in 16 games, longest drought of his career**\
-`Sixteen games have passed without a Judge home run.`\
+`Judge went 1-for-4 in the Yankees' 2-1 walk-off win over the Boston Red Sox on Thursday night.`\
 https://nytimes.com/athletic/5764349/2024/09/12/yankees-aaron-judge-home-run-drought/
 
 **Amid several burned properties, a market survives.**\
