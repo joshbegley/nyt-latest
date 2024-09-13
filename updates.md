@@ -1,3 +1,23 @@
+**Five Horror Movies to Stream Now**\
+`This month’s picks include a silent killer, a demonically possessed painting and a hellish queer romance.`\
+https://nytimes.com/2024/09/13/movies/horror-movies-streaming.html
+
+**Parmesan Your Cauliflower**\
+`And char your eggplant, steam your blue crabs and stir-fry your potatoes.`\
+https://nytimes.com/2024/09/13/dining/parmesan-your-cauliflower.html
+
+**Mike Matheson went to a high school to talk about leadership. He got a lesson instead**\
+`As Lane Hutson, Logan Mailloux and David Reinbacher embark on rookie camp, how they are one day received on the Canadiens will be vital.`\
+https://nytimes.com/athletic/5764602/2024/09/13/canadiens-mike-matheson-leadership-rookies/
+
+**Here is the latest on the storm.**\
+`By Judson Jones`\
+https://nytimes.com/live/2024/09/13/weather/tropical-storm-gordon-hurricane/here-is-the-latest-on-the-storm
+
+**Tropical Storm Gordon Forms in the North Atlantic**\
+`The Atlantic hurricane season has seen two new storms this week, after an extended lull. Gordon is not currently a threat to land.`\
+https://nytimes.com/live/2024/09/13/weather/tropical-storm-gordon-hurricane
+
 **For postseason, MLB to place advertisements on batting helmets**\
 `The move follows the league’s approval of sleeve patches on uniforms before the 2023 season.
 `\

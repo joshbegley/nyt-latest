@@ -1,3 +1,23 @@
+**Five Horror Movies to Stream Now**\
+`This month’s picks include a silent killer, a demonically possessed painting and a hellish queer romance.`\
+https://nytimes.com/2024/09/13/movies/horror-movies-streaming.html
+
+**Parmesan Your Cauliflower**\
+`And char your eggplant, steam your blue crabs and stir-fry your potatoes.`\
+https://nytimes.com/2024/09/13/dining/parmesan-your-cauliflower.html
+
+**Mike Matheson went to a high school to talk about leadership. He got a lesson instead**\
+`As Lane Hutson, Logan Mailloux and David Reinbacher embark on rookie camp, how they are one day received on the Canadiens will be vital.`\
+https://nytimes.com/athletic/5764602/2024/09/13/canadiens-mike-matheson-leadership-rookies/
+
+**Here is the latest on the storm.**\
+`By Judson Jones`\
+https://nytimes.com/live/2024/09/13/weather/tropical-storm-gordon-hurricane/here-is-the-latest-on-the-storm
+
+**Tropical Storm Gordon Forms in the North Atlantic**\
+`The Atlantic hurricane season has seen two new storms this week, after an extended lull. Gordon is not currently a threat to land.`\
+https://nytimes.com/live/2024/09/13/weather/tropical-storm-gordon-hurricane
+
 **Robert Lewandowski on Fame, Frailty and the One Voice He Won’t Ignore**\
 `Much has been said about the increased workload of top players, the Barcelona star said, but the mental toll of expectations and fame is just as likely to lead to burnout.`\
 https://nytimes.com/2024/09/13/world/europe/robert-lewandowski-barcelona.html
@@ -17,25 +37,4 @@ https://nytimes.com/athletic/5765055/2024/09/13/colorado-football-field-arrest/
 **In Tulkarm, residents want to rebuild but fear more destructive Israeli raids.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/09/13/world/israel-hamas-gaza-war/in-tulkarm-residents-want-to-rebuild-but-fear-more-destructive-israeli-raids
-
-**What you need to know about 2024's junior Grand Slam champions**\
-`Being a junior Grand Slam champion is not a one-way ticket to tennis success.`\
-https://nytimes.com/athletic/5763164/2024/09/13/junior-grand-slam-champions-2024-australian-french-wimbledon-us-open/
-
-**For postseason, MLB to place advertisements on batting helmets**\
-`The move follows the league’s approval of sleeve patches on uniforms before the 2023 season.
-`\
-https://nytimes.com/athletic/5765123/2024/09/13/2024-mlb-postseason-advertisements-batting-helmets/
-
-**Solheim Cup's start marred by fan transportation issues**\
-`Delays in shuttle buses and security screening left thousands waiting outside and a noticeably empty grandstand around No. 1 tee.`\
-https://nytimes.com/athletic/5765159/2024/09/13/solheim-cup-fan-lpga-golf/
-
-**The real Dominic Solanke - resilient, rebuilt and ready to star for Tottenham**\
-`The forward's career has not gone as many expected. But after bumps in the road, those who have worked with him believe his time is now`\
-https://nytimes.com/athletic/5762794/2024/09/13/dominic-solanke-tottenham-hotspur-record-signing/
-
-**Harris drops a new ad aimed at Latinos in Pennsylvania.**\
-`The state is one of a handful of battlegrounds where a small margin of victory could make all the difference in November.`\
-https://nytimes.com/live/2024/09/13/us/harris-trump-election/kamala-harris-ad-latinos-pennsylvania
 
