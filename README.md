@@ -1,3 +1,7 @@
+**Mets' set-up man Dedniel Núñez done for the season**\
+`Núñez sustained a flexor injury in his right arm and received an injection of platelet-rich plasma.`\
+https://nytimes.com/athletic/5766170/2024/09/13/mets-dedniel-nunez-injury/
+
 **Tyler Glasnow suffers elbow setback: 'It's unfortunate'**\
 `In 22 starts, Glasnow has thrown 168 strikeouts with 3.49 ERA.`\
 https://nytimes.com/athletic/5766031/2024/09/13/tyler-glasnow-injury-setback-la-dodgers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5766036/2024/09/13/usa-solheim-cup-korda-fans/
 **Earlier Investigation of School Shooting Suspect Ended Too Soon, Experts Say**\
 `The teenager charged in the Sept. 4 shooting in Georgia was questioned by the police last year about online threats. The investigator said he couldn’t determine if the teen had been the one behind them.`\
 https://nytimes.com/2024/09/13/us/georgia-school-shooting-apalachee-investigation.html
-
-**Parris joins Brighton from Manchester United**\
-`Brighton and Hove Albion have completed the signing of forward Nikita Parris from Manchester United.`\
-https://nytimes.com/athletic/5766058/2024/09/13/nikita-parris-brighton-transfer/
 
