@@ -1,3 +1,11 @@
+**Toronto Film Festival Pulls Documentary on Russian Soldiers**\
+`The festival canceled the screenings of “Russians at War,” which has been criticized as Kremlin propaganda. The filmmaker has said it is an antiwar film.`\
+https://nytimes.com/2024/09/13/world/asia/tiff-russian-war-documentary-paused.html
+
+**Nebraska QB underdog Jalyn Gramstad has his eyes on a goal bigger than playing time**\
+`“I believe Jalyn Gramstad could move our team and score,” coach Matt Rhule said. “I believe that with all my heart.”`\
+https://nytimes.com/athletic/5763899/2024/09/13/nebraska-football-quarterbacks-jalyn-gramstad-2/
+
 **The Fight Against Three Major Wildfires in Southern California: What We Know**\
 `Weather conditions have given firefighters a better chance of preventing more damage from the blazes that have displaced tens of thousands of residents.`\
 https://nytimes.com/2024/09/13/us/california-fires-what-we-know.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2024/09/13/briefing/trump-harris-swift-hurricane
 **It’s Time (Again!) for the Emmys**\
 `From “The Bear” to “Baby Reindeer,” our guide to TV’s big night.`\
 https://nytimes.com/2024/09/13/podcasts/its-time-again-for-the-emmys.html
-
-**The Real ‘Border Czar’ Defends the Biden-Harris Record**\
-`Secretary of Homeland Security Alejandro Mayorkas explains what his agency has done to address the challenges at the U.S.-Mexico border.`\
-https://nytimes.com/2024/09/13/opinion/ezra-klein-podcast-alejandro-mayorkas.html
-
-**Future of Murdoch Empire Comes Down to a Court in Nevada**\
-`Next week, a probate official will hear evidence in a clash between Rupert Murdoch and some of his children over who should control his media companies after he dies.`\
-https://nytimes.com/2024/09/13/business/media/murdoch-family-trust-nevada.html
 
