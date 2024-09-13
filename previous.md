@@ -1,3 +1,7 @@
+**W.H.O. Authorizes Mpox Vaccine, Clearing Way for Use in Africa**\
+`The decision is a crucial step in getting shots to the Democratic Republic of Congo, the center of the outbreak.`\
+https://nytimes.com/2024/09/13/health/mpox-vaccine-world-health-organization.html
+
 **Biden and Starmer Aim to Help Ukraine Without Triggering a Wider Conflict**\
 `The question of whether to let Ukraine use long-range weapons in Russia has been a rare point of disagreement between British and American officials.`\
 https://nytimes.com/2024/09/13/us/politics/biden-starmer-ukraine-russia-missiles.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/11/opinion/thepoint/week-bad-political-behavior
 **Trump Pledges to Start Migrant Deportations in Ohio and Colorado**\
 `The former president has repeatedly leveled baseless and exaggerated claims about migrants in Springfield, Ohio, and Aurora, Colo.`\
 https://nytimes.com/2024/09/13/us/politics/trump-deportations-migrants-ohio-colorado.html
-
-**49ers' McCaffrey out again in Week 2, IR a consideration**\
-`San Francisco had its toughest practice of the week Thursday and McCaffrey was dealing with pain afterward, Shanahan said.`\
-https://nytimes.com/athletic/5765950/2024/09/13/christian-mccaffrey-calf-49ers-week-2/
 
