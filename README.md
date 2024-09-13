@@ -1,3 +1,11 @@
+**Trump’s Economics, Too, Are Sounding More Authoritarian**\
+`His economic agenda would concentrate more power in the hands of the president.`\
+https://nytimes.com/2024/09/13/opinion/trump-authoritarian-economics.html
+
+**Crystal Palace Women sign Stengel from NJ/NY Gotham**\
+`Crystal Palace have completed the signing of striker Katie Stengel from NJ/NY Gotham.`\
+https://nytimes.com/athletic/5765935/2024/09/13/katie-stengel-crystal-palace-transfer/
+
 **Herbie Flowers, ‘Walk on the Wild Side’ Bassist, Dies at 86**\
 `A celebrated session musician who appeared on a host of classic rock albums, he made his most lasting mark with his contribution to Lou Reed’s most famous song.`\
 https://nytimes.com/2024/09/13/arts/music/herbie-flowers-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5765813/2024/09/13/bronny-james-jersey-sale-lakers/
 **Marco Luciano is still looking for his first home run. How worried should you be?**\
 `Luciano has played 38 MLB games without hitting a home run. He has some good company among players who have had similar starts.`\
 https://nytimes.com/athletic/5764615/2024/09/13/sf-giants-marco-luciano-homerless-streak/
-
-**Trump Says He Won’t Sell Shares Tied to Truth Social**\
-`Donald J. Trump, the largest shareholder in the parent company of Truth Social, said he won’t sell his stock when a restriction ends next week.`\
-https://nytimes.com/2024/09/13/business/trump-media-stock-truth-social.html
-
-**Harris Visits Red Areas of Pennsylvania, Hoping to Cut Into Trump’s Edge**\
-`The vice president, who stopped in Johnstown before a rally in Wilkes-Barre, is trying to compete in conservative-leaning areas that Donald Trump will win, but perhaps not by quite as much.`\
-https://nytimes.com/2024/09/13/us/politics/harris-pennsylvania-rally.html
 
