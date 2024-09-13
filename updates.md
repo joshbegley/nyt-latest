@@ -1,3 +1,7 @@
+**Biden and Starmer Aim to Help Ukraine Without Triggering a Wider Conflict**\
+`The question of whether to let Ukraine use long-range weapons in Russia has been a rare point of disagreement between British and American officials.`\
+https://nytimes.com/2024/09/13/us/politics/biden-starmer-ukraine-russia-missiles.html
+
 **U.S. team's Day 1 dominance lifted the entire vibe of this Solheim Cup**\
 `The Americans jumped out to their biggest lead since 1990 with world No. 1 Nelly Korda leading the charge.`\
 https://nytimes.com/athletic/5766036/2024/09/13/usa-solheim-dup-korda-fans/

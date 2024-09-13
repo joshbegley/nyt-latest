@@ -1,3 +1,7 @@
+**Biden and Starmer Aim to Help Ukraine Without Triggering a Wider Conflict**\
+`The question of whether to let Ukraine use long-range weapons in Russia has been a rare point of disagreement between British and American officials.`\
+https://nytimes.com/2024/09/13/us/politics/biden-starmer-ukraine-russia-missiles.html
+
 **U.S. team's Day 1 dominance lifted the entire vibe of this Solheim Cup**\
 `The Americans jumped out to their biggest lead since 1990 with world No. 1 Nelly Korda leading the charge.`\
 https://nytimes.com/athletic/5766036/2024/09/13/usa-solheim-dup-korda-fans/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/13/us/politics/trump-deportations-migrants-ohio-colo
 **49ers' McCaffrey out again in Week 2, IR a consideration**\
 `San Francisco had its toughest practice of the week Thursday and McCaffrey was dealing with pain afterward, Shanahan said.`\
 https://nytimes.com/athletic/5765950/2024/09/13/christian-mccaffrey-calf-49ers-week-2/
-
-**Ten Hag confident De Ligt will improve once fully fit**\
-`Erik ten Hag has shown his support for Manchester United defender Matthijs de Ligt, insisting he will be &#8220;a different player&#8221; once he has improved his fitness levels.`\
-https://nytimes.com/athletic/5764775/2024/09/13/matthijs-de-ligt-erik-ten-hag-manchester-united/
 
