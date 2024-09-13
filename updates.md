@@ -1,3 +1,19 @@
+**How Canucks prospects Jonathan Lekkerimäki and Elias Pettersson prepared for their big shot**\
+`Despite their differences as players, the 2022 draft picks have built a strong friendship while in pursuit of the same goal.`\
+https://nytimes.com/athletic/5764702/2024/09/13/canucks-prospects-jonathan-lekkerimaki-elias-pettersson/
+
+**Late Summer Recipes for Early Cozy Season**\
+`Before we hit peak soup season (hello, lentil tomato soup), there’s still time for tomato curry and grilled eggplant with turmeric tahini.`\
+https://nytimes.com/2024/09/13/dining/late-summer-recipes-for-early-cozy-season.html
+
+**Chiefs' Marquise Brown expected to go on IR**\
+`Brown, the Chiefs’ biggest acquisition in free agency, is expected to miss several months as part of his rehab.`\
+https://nytimes.com/athletic/5765503/2024/09/13/marquise-brown-injury-surgery-chiefs/
+
+**The Weeknd’s Glimmering Synth-Pop, and 8 More New Songs**\
+`Hear tracks by Soccer Mommy, FKA twigs, Reyna Tropical and others.`\
+https://nytimes.com/2024/09/13/arts/music/playlist-the-weeknd-fka-twigs.html
+
 **Boar’s Head Shuts Down Virginia Plant Tied to Listeria Deaths**\
 `The company said that the site would close indefinitely and that it would permanently stop making liverwurst. Union officials said the plant’s 500 workers would be given severance and offered relocation.`\
 https://nytimes.com/2024/09/13/health/boars-head-shutdown-listeria-deaths.html
