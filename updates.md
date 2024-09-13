@@ -1,3 +1,7 @@
+**Some Gazans say polio vaccinations won’t make a difference because Israeli attacks are a greater threat.**\
+`Palestinians living with the daily fear of Israeli strikes see a level of absurdity in the international drive to vaccinate their children.`\
+https://nytimes.com/live/2024/09/13/world/israel-hamas-gaza-war/gaza-polio-vaccination-futility
+
 **An oil tanker still burning in the Red Sea raises alarms at a U.N. Security Council meeting.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2024/09/13/world/israel-hamas-gaza-war/an-oil-tanker-still-burning-in-the-red-sea-raises-alarms-at-a-un-security-council-meeting
