@@ -1,3 +1,7 @@
+**Dejected Social Media Users Call ‘Garbage Time’ Over China’s Ailing Economy**\
+`The sports term refers to a time during a game when defeat becomes inevitable. Officialdom is warning against using it to take veiled jabs at the country’s political and economic system.`\
+https://nytimes.com/2024/09/13/world/asia/china-economy-garbage-time.html
+
 **China Raises Retirement Age for the First Time Since the 1950s**\
 `The move, made in the hope of addressing an aging population, was decidedly unpopular.`\
 https://nytimes.com/2024/09/13/world/asia/china-retirement-age.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5764698/2024/09/13/liverpool-contracts-salah-trent-
 **The White Sox — 81 games under .500! — are piling up mind-blowing numbers for the ages**\
 `Unless you are 108 years old, you've never seen a team that's 81 games under .500. The White Sox are racking up truly head-spinning numbers.`\
 https://nytimes.com/athletic/5763839/2024/09/13/white-sox-wild-stats-losing/
-
-**Spencer Schwellenbach, Casey Mize and DL Hall on their unique paths as young MLB starters**\
-`It takes time for younger pitchers to figure out how to succeed in the majors. Here's what three starters have done to succeed.`\
-https://nytimes.com/athletic/5761027/2024/09/13/spencer-schwellenback-casey-mize-dl-hall/
 

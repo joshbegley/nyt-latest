@@ -1,3 +1,7 @@
+**Dejected Social Media Users Call ‘Garbage Time’ Over China’s Ailing Economy**\
+`The sports term refers to a time during a game when defeat becomes inevitable. Officialdom is warning against using it to take veiled jabs at the country’s political and economic system.`\
+https://nytimes.com/2024/09/13/world/asia/china-economy-garbage-time.html
+
 **China Raises Retirement Age for the First Time Since the 1950s**\
 `The move, made in the hope of addressing an aging population, was decidedly unpopular.`\
 https://nytimes.com/2024/09/13/world/asia/china-retirement-age.html
