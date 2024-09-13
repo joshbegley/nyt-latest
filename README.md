@@ -1,3 +1,7 @@
+**NASA Astronauts Speak to Media on Extended Stay in Orbit**\
+`The astronauts Suni Williams and Butch Wilmore expressed support for NASA and Boeing, following the decision for them to remain in orbit, while the troubled spacecraft they rode to the International Space Station returned to Earth uncrewed.`\
+https://nytimes.com/video/science/space/100000009691766/nasa-astronauts-boeing.html
+
 **Biden Briefly Put on a Trump Hat, and MAGA World Flipped Its Lid**\
 `Joking around with a Trump supporter at a Sept. 11 event this week, the president put on a “Trump 2024” hat for a few seconds. The pictures took on a life of their own.`\
 https://nytimes.com/2024/09/13/us/politics/biden-trump-hat.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/13/arts/music/herbie-flowers-dead.html
 **Three Americans Sentenced to Death for Failed Congo Coup**\
 `The sentences were handed down months after the central African country lifted a moratorium on carrying out the death penalty.`\
 https://nytimes.com/2024/09/13/world/africa/congo-coup-death-sentence-americans.html
-
-**Trump Claims Ignorance of Laura Loomer’s 9/11 Conspiracy Theories**\
-`After commemorating Sept. 11 with a far-right activist who has called the attacks an “inside job,” former President Donald J. Trump said he was unaware of her remarks.`\
-https://nytimes.com/2024/09/13/us/politics/trump-laura-loomer.html
 
