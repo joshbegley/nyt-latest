@@ -1,3 +1,7 @@
+**Yankees' Aaron Judge hasn't homered in 16 games, longest drought of his career**\
+`Sixteen games have passed without a Judge home run.`\
+https://nytimes.com/athletic/5764349/2024/09/12/yankees-aaron-judge-home-run-drought/
+
 **Amid several burned properties, a market survives.**\
 `By Vik Jolly`\
 https://nytimes.com/live/2024/09/12/us/california-wildfires-idaho-oregon/amid-several-burned-properties-a-market-survives
