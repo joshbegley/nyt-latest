@@ -1,3 +1,7 @@
+**Pope Says Both Trump and Harris Are ‘Against Life’**\
+`He said American Catholic voters had to choose the “lesser of two evils” because of Donald Trump’s cruelty toward immigrants, and Kamala Harris’s support of abortion rights.`\
+https://nytimes.com/2024/09/13/world/europe/pope-us-election-abortion-immigration.html
+
 **What Angel Reese's injury means to the Sky's playoff hopes**\
 `What Angel Reese's injury means to the Sky's playoff hopes and four burning WNBA questions `\
 https://nytimes.com/athletic/5762680/2024/09/13/what-angel-reeses-injury-means-to-the-skys-playoff-hopes/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/13/us/politics/trump-divides-arizonas-crucial-mormon
 **Ravens' Nate Wiggins (neck) out vs. Raiders after car accident**\
 `Baltimore selected Wiggins with the 30th overall pick of this year's NFL Draft. `\
 https://nytimes.com/athletic/5765750/2024/09/13/nate-wiggins-ravens-car-accident/
-
-**Biden Hasn’t Let Kyiv Strike Deep Into Russia. Could Britain Change That?**\
-`U.K. Prime Minister Keir Starmer’s trip to Washington comes just after Russian President Vladimir Putin warned that the allies’ next step could mean war for NATO.`\
-https://nytimes.com/2024/09/13/world/europe/keir-starmer-biden-russia-missiles.html
 
