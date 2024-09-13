@@ -1,3 +1,11 @@
+**Trump Says He Won’t Sell Shares Tied to Truth Social**\
+`Mr. Trump, the largest shareholder in Trump Media & Technology Group, the parent company of Truth Social, said he won’t sell the shares when an restriction ends next week.`\
+https://nytimes.com/2024/09/13/business/trump-media-stock-truth-social.html
+
+**Harris Visits Red Areas of Pennsylvania, Hoping to Cut Into Trump’s Edge**\
+`The vice president, who stopped in Johnstown before a rally in Wilkes-Barre, is trying to compete in conservative-leaning areas that Donald Trump will win, but perhaps not by quite as much.`\
+https://nytimes.com/2024/09/13/us/politics/harris-pennsylvania-rally.html
+
 **What Is Pro-Life Realism?**\
 `Can pro-life states survive in a pro-choice country?`\
 https://nytimes.com/2024/09/13/opinion/pro-life-abortion-realism.html
