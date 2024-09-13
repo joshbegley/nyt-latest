@@ -1,3 +1,16 @@
+**Robert Lewandowski on Fame, Frailty and the One Voice He Won’t Ignore**\
+`Much has been said about the increased workload of top players, the Barcelona star said, but the mental toll of expectations and fame is just as likely to lead to burnout.`\
+https://nytimes.com/2024/09/13/world/europe/robert-lewandowski-barcelona.html
+
+**Tracking Tropical Storm Gordon**\
+`See the likely path and wind arrival times for Gordon.`\
+https://nytimes.com/interactive/2024/09/13/weather/storm-gordon-tracker.html
+
+**For postseason, MLB to place advertisements on batting helmets**\
+`The move follows the league’s approval of sleeve patches on uniforms before the 2023 season.
+`\
+https://nytimes.com/athletic/5765123/2024/09/13/2024-mlb-postseason-advertisements-batting-helmets/
+
 **For postseason, MLB to place advertisements on batting helmets**\
 `The move follows the league’s approval of sleeve patches on uniforms before the 2023 season.
 `\
