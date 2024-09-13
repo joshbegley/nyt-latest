@@ -1,3 +1,7 @@
+**Arson charges were filed in the Line fire, which has displaced thousands of people.**\
+`By Soumya Karlamangla`\
+https://nytimes.com/live/2024/09/12/us/california-wildfires-idaho-oregon/arson-charges-were-filed-in-the-line-fire-which-has-displaced-thousands-of-people
+
 **Review: Patti LuPone and Mia Farrow Clean Up in ‘The Roommate’**\
 `A Bronx grifter and an Iowa homebody share a house and eventually learn from each other in this Broadway star vehicle.`\
 https://nytimes.com/2024/09/12/theater/the-roommate-review-lupone-farrow.html
