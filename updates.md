@@ -1,3 +1,7 @@
+**Chilwell set for return to Chelsea training**\
+`Ben Chilwell is set for a return to Chelsea training after failing to secure a transfer away from Stamford Bridge, according to head coach Enzo Maresca.`\
+https://nytimes.com/athletic/5764982/2024/09/13/chilwell-chelsea-return-maresca/
+
 **Mbappe's goals, midfield muddles, gaps at the back: What I'm seeing at Real Madrid**\
 `Carlo Ancelotti's side have made a sluggish start to the new La Liga season - so there's plenty of noise around the club`\
 https://nytimes.com/athletic/5764691/2024/09/13/real-madrid-mbappe-ancelotti-kroos-bellingham/
