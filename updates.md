@@ -1,3 +1,7 @@
+**Howe dismisses talk of 'civil war' with Mitchell, defends transfer record**\
+`Eddie Howe has robustly defended his transfer record at Newcastle United following Paul Mitchell&#8217;s critique of the club&#8217;s post-takeover recruitment, but insists there is no &#8220;civil war&#8221; at St James&#8217; Park.`\
+https://nytimes.com/athletic/5764695/2024/09/13/eddie-howe-newcastle-paul-mitchell/
+
 **Dejected Social Media Users Call ‘Garbage Time’ Over China’s Ailing Economy**\
 `The sports term refers to a time during a game when defeat becomes inevitable. Officialdom is warning against using it to take veiled jabs at the country’s political and economic system.`\
 https://nytimes.com/2024/09/13/world/asia/china-economy-garbage-time.html
