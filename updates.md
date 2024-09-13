@@ -1,3 +1,19 @@
+**Jameson Williams is having fun right where he belongs**\
+`After two interrupted seasons, Jameson Williams is finally coming into his own.`\
+https://nytimes.com/athletic/5764188/2024/09/13/detroit-lions-wr-jameson-williams/
+
+**$300 for a New Checking Account? Banks Offer Bonuses to Attract Customers.**\
+`Facing competition for business, banks are offering incentives to switch. But as one expert put it, “You have to read the fine print.”`\
+https://nytimes.com/2024/09/13/your-money/bank-checking-savings-account-offers.html
+
+**Nvidia Holds the Key to the Market. But Is It Worth This Much?**\
+`One of the hazards of buying individual stocks is that their current price may have little to do with their fundamental value, our columnist says.`\
+https://nytimes.com/2024/09/13/business/nvidia-stock-market-ai.html
+
+**Maresca confident Chelsea ownership split won't be a distraction for team**\
+`Enzo Maresca is confident the split between the Chelsea ownership will not be a negative distraction for the team.`\
+https://nytimes.com/athletic/5765032/2024/09/13/chelsea-owners-enzo-maresca/
+
 **Dak Prescott, CeeDee Lamb expecting better offensive production in home opener**\
 `Prescott aims to improve the Cowboys' third-down execution along with his connection with CeeDee Lamb this week against the Saints.`\
 https://nytimes.com/athletic/5764291/2024/09/13/dak-prescott-cowboys-offense-ceedee-lamb/
