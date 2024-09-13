@@ -1,3 +1,7 @@
+**How Tua's injury could affect Tyreek Hill, De'Von Achane, other Dolphins**\
+`While everyone's thoughts are with Tua Tagovailoa, fantasy managers are also wondering what this injury means for the Dolphins' other stars.`\
+https://nytimes.com/athletic/5764948/2024/09/13/fantasy-football-tua-injury-tyreek-hill-devon-achane-dolphins/
+
 **A New Perspective on Van Gogh’s Final Flowering**\
 `A major exhibition in London focuses on the painter’s final years, finding new feelings in some of his most famous works.`\
 https://nytimes.com/2024/09/13/arts/design/van-gogh-poets-and-lovers-national-gallery-london.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/13/weather/tropical-storm-gordon-hurricane
 **Robert Lewandowski on Fame, Frailty and the One Voice He Won’t Ignore**\
 `Much has been said about the increased workload of top players, the Barcelona star said, but the mental toll of expectations and fame is just as likely to lead to burnout.`\
 https://nytimes.com/2024/09/13/world/europe/robert-lewandowski-barcelona.html
-
-**Tracking Tropical Storm Gordon**\
-`See the likely path and wind arrival times for Gordon.`\
-https://nytimes.com/interactive/2024/09/13/weather/storm-gordon-tracker.html
 
