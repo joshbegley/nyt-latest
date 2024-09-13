@@ -1,3 +1,11 @@
+**Giants, Daniel Jones need to bounce back. Game vs. Commanders provides golden opportunity**\
+`I’m not prepared for how messy things will get if the Giants lose this game. A win on Sunday will at least settle things down for a week.`\
+https://nytimes.com/athletic/5764478/2024/09/13/new-york-giants-daniel-jones-commanders-week-2/
+
+**Behind the Pac-12's poaching of the Mountain West and both leagues' next steps**\
+`After negotiations with the Mountain West broke down, the Pac-12 found an opportunity to live to fight another day.`\
+https://nytimes.com/athletic/5764885/2024/09/13/pac-12-realignment-mountain-west-members/
+
 **The Big City Is Vibrant. Birds There May Be Getting Less So.**\
 `Recent studies show that urban pollution may have a dulling effect on plumage, and not just among dirty birds.`\
 https://nytimes.com/2024/09/13/climate/dirty-birds-color-climate-pollution.html
