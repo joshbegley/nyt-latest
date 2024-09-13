@@ -1,3 +1,7 @@
+**Correction Officers Who Failed to Aid Dying Inmate Won’t Be Charged**\
+`Correction Department rules “do not clearly require officers to provide immediate care to people with severely bleeding wounds,” the New York attorney general’s office said.`\
+https://nytimes.com/2024/09/12/nyregion/correction-officers-rikers-ny-prison.html
+
 **Trump Defends Debate Performance and Calls for Ending Tax on Overtime**\
 `Speaking at an event in Tucson, Ariz., former President Donald J. Trump called for eliminating taxes on overtime pay as he declared Tuesday’s debate a “monumental victory” for him.`\
 https://nytimes.com/2024/09/12/us/politics/trump-debate-tucson-rally-arizona.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5763996/2024/09/12/oakland-as-sacramento-move-devel
 **The First Votes Will Soon Be Cast**\
 `As campaigns shift from persuading voters to turning them out, mail voting is in the spotlight.`\
 https://nytimes.com/2024/09/12/us/politics/trump-harris-mail-ballots-election.html
-
-**Antisemitic Ads About Doug Emhoff Target Muslim Voters in Michigan**\
-`An ad campaign in the state, funded by a group that appears tied to Republicans, seems designed to remind Muslim voters of Kamala Harris’s pro-Israel views and her husband’s Jewish faith.`\
-https://nytimes.com/2024/09/12/us/politics/antisemitic-ads-doug-emhoff-muslim-michigan.html
 
