@@ -1,3 +1,7 @@
+**Jessica Ramos Will Run for Mayor Against Eric Adams**\
+`Jessica Ramos, a state senator from Queens, is the latest candidate to challenge Mayor Eric Adams as his administration faces a series of federal investigations.`\
+https://nytimes.com/2024/09/13/nyregion/jessica-ramos-mayor-adams.html
+
 **Howe dismisses talk of 'civil war' at Newcastle**\
 `Eddie Howe has robustly defended his transfer record at Newcastle United following Paul Mitchell&#8217;s critique of the club&#8217;s post-takeover recruitment, but insists there is no &#8220;civil war&#8221; at St James&#8217; Park.`\
 https://nytimes.com/athletic/5764695/2024/09/13/eddie-howe-newcastle-paul-mitchell/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5760914/2024/09/13/jacoby-brissett-patriots-seahawk
 **Keys to a Wisconsin upset: 3 questions the Badgers must answer to shock the Crimson Tide**\
 `Wisconsin is playing its first home game against a top-10 nonconference team in 35 years.`\
 https://nytimes.com/athletic/5762880/2024/09/13/wisconsin-alabama-prediction-badgers/
-
-**Which MLB contenders have the hardest road to the playoffs? Let's break down the schedules**\
-`We looked at each contender’s remaining schedule, with playoff odds and remaining strength of schedule in order to find out. `\
-https://nytimes.com/athletic/5763713/2024/09/13/mlb-contenders-easiest-hardest-road-playoffs/
 
