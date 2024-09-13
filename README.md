@@ -1,3 +1,15 @@
+**Biden Hasn’t Let Kyiv Strike Deep Into Russia. Could Britain Change That?**\
+`U.K. Prime Minister Keir Starmer’s trip to Washington comes just after Russian President Vladimir Putin warned that the allies’ next step could mean war for NATO.`\
+https://nytimes.com/2024/09/13/world/europe/keir-starmer-biden-russia-missiles.html
+
+**Maple Leafs 2024-25 prospect outlook: What to expect from Cowan, Minten and more**\
+`Ahead of the annual Maple Leafs prospect tournament, let’s look at what they need to do to have a successful 2024-25 campaign.`\
+https://nytimes.com/athletic/5765210/2024/09/13/maple-leafs-2024-25-prospects-cowan-minten/
+
+**Blood Red Is the New Barbie Pink**\
+`And other cultural predictions based on movies that played at the Toronto International Film Festival.`\
+https://nytimes.com/2024/09/13/t-magazine/toronto-international-film-festival-predictions.html
+
 **Sweden Will Offer Migrants $34,000 to Go Home**\
 `The government greatly increased a grant to encourage more immigrants to return home. Critics say it sends the wrong message and, in any case, may not tempt many refugees.`\
 https://nytimes.com/2024/09/13/world/europe/sweden-immigration-reform.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5765220/2024/09/13/mike-mcdaniel-tua-tagovailoa-con
 **The Debate Over Debates Is Over, at Least for Now**\
 `Donald Trump’s rejection of a second meeting with Kamala Harris may or may not be final. But it could complicate his effort to portray her as ducking tough questions.`\
 https://nytimes.com/2024/09/13/us/politics/trump-harris-second-debate.html
-
-**49ers mailbag: Envisioning a McCaffrey-Mason duo; shadowing Justin Jefferson?**\
-`Questions this week include why the 49ers were reluctant to play Jacob Cowing and whether they're working on any contract extensions.`\
-https://nytimes.com/athletic/5765515/2024/09/13/49ers-christian-mccaffrey-jordan-mason-vikings/
-
-**Biden Slams Trump Over False Story of Pet-Eating Immigrants: ‘This Has to Stop’**\
-`The president made the comments at an event where he boasted of his work for Black Americans, implicitly trying to rally a critical Democratic constituency on behalf of Vice President Kamala Harris.`\
-https://nytimes.com/2024/09/13/us/politics/biden-trump-haitian-immigrants-cats-dogs.html
-
-**Raiders' Pierce on Tagovailoa: 'I would tell him to retire'**\
-`"He's going to live longer than he's going to play football," Raiders coach Antonio Pierce said. "Take care of your family."`\
-https://nytimes.com/athletic/5765639/2024/09/13/antonio-pierce-tua-tagovailoa-retire/
 
