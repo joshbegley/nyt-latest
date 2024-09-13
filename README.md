@@ -1,3 +1,15 @@
+**49ers' McCaffrey out again in Week 2, IR a consideration**\
+`San Francisco had its toughest practice of the week Thursday and McCaffrey was dealing with pain afterward, Shanahan said.`\
+https://nytimes.com/athletic/5765950/2024/09/13/christian-mccaffrey-calf-49ers-week-2/
+
+**Ten Hag confident De Ligt will improve once fully fit**\
+`Erik ten Hag has shown his support for Manchester United defender Matthijs de Ligt, insisting he will be &#8220;a different player&#8221; once he has improved his fitness levels.`\
+https://nytimes.com/athletic/5764775/2024/09/13/matthijs-de-ligt-erik-ten-hag-manchester-united/
+
+**Guardiola: Premier League rivals want Man City punished**\
+`Pep Guardiola believes La Liga president Javier Tebas is correct to say that most Premier League clubs want to see Manchester City punished for allegedly breaching financial regulations.`\
+https://nytimes.com/athletic/5765126/2024/09/13/man-city-charges-pep-guardiola/
+
 **NASA Astronauts Speak to Media on Extended Stay in Orbit**\
 `The astronauts Suni Williams and Butch Wilmore expressed support for NASA and Boeing, following the decision for them to remain in orbit, while the troubled spacecraft they rode to the International Space Station returned to Earth uncrewed.`\
 https://nytimes.com/video/science/space/100000009691766/nasa-astronauts-boeing.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/13/us/pennsylvania-ballots-ruling.html
 **Trump’s Economics, Too, Are Sounding More Authoritarian**\
 `His economic agenda would concentrate more power in the hands of the president.`\
 https://nytimes.com/2024/09/13/opinion/trump-authoritarian-economics.html
-
-**Crystal Palace Women sign Stengel from NJ/NY Gotham**\
-`Crystal Palace have completed the signing of striker Katie Stengel from NJ/NY Gotham.`\
-https://nytimes.com/athletic/5765935/2024/09/13/katie-stengel-crystal-palace-transfer/
-
-**Herbie Flowers, ‘Walk on the Wild Side’ Bassist, Dies at 86**\
-`A celebrated session musician who appeared on a host of classic rock albums, he made his most lasting mark with his contribution to Lou Reed’s most famous song.`\
-https://nytimes.com/2024/09/13/arts/music/herbie-flowers-dead.html
-
-**Three Americans Sentenced to Death for Failed Congo Coup**\
-`The sentences were handed down months after the central African country lifted a moratorium on carrying out the death penalty.`\
-https://nytimes.com/2024/09/13/world/africa/congo-coup-death-sentence-americans.html
 
