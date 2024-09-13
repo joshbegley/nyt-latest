@@ -18,6 +18,11 @@ https://nytimes.com/athletic/5765123/2024/09/13/2024-mlb-postseason-advertisemen
 `\
 https://nytimes.com/athletic/5765123/2024/09/13/2024-mlb-postseason-advertisements-batting-helmets/
 
+**For postseason, MLB to place advertisements on batting helmets**\
+`The move follows the league’s approval of sleeve patches on uniforms before the 2023 season.
+`\
+https://nytimes.com/athletic/5765123/2024/09/13/2024-mlb-postseason-advertisements-batting-helmets/
+
 **Solheim Cup's start marred by fan transportation issues**\
 `Delays in shuttle buses and security screening left thousands waiting outside and a noticeably empty grandstand around No. 1 tee.`\
 https://nytimes.com/athletic/5765159/2024/09/13/solheim-cup-fan-lpga-golf/
