@@ -1,3 +1,11 @@
+**Timberlake Pleads Guilty to Driving While Impaired**\
+`Justin Timberlake was originally arrested in the Hamptons on drunken-driving charges, a more severe crime.`\
+https://nytimes.com/video/us/100000009691151/justin-timberlake-hamptons.html
+
+**Jones: Dolphins must exercise ultimate caution for Tua Tagovailoa's sake**\
+`The Dolphins are not thinking about any sort of timeline for Tua right now. In this situation, the normal concussion protocol isn't enough.`\
+https://nytimes.com/athletic/5765478/2024/09/13/tua-tagovailoa-health-future-dolphins-nfl/
+
 **Your Drinks Are Missing a Key Ingredient: Coconut Water**\
 `With its velvety mouthfeel and refreshing taste, this utility player is an excellent addition to cocktails, your morning coffee and more.`\
 https://nytimes.com/2024/09/13/dining/drinks/coconut-water-cocktails.html

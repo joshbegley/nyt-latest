@@ -1,3 +1,11 @@
+**Timberlake Pleads Guilty to Driving While Impaired**\
+`Justin Timberlake was originally arrested in the Hamptons on drunken-driving charges, a more severe crime.`\
+https://nytimes.com/video/us/100000009691151/justin-timberlake-hamptons.html
+
+**Jones: Dolphins must exercise ultimate caution for Tua Tagovailoa's sake**\
+`The Dolphins are not thinking about any sort of timeline for Tua right now. In this situation, the normal concussion protocol isn't enough.`\
+https://nytimes.com/athletic/5765478/2024/09/13/tua-tagovailoa-health-future-dolphins-nfl/
+
 **Your Drinks Are Missing a Key Ingredient: Coconut Water**\
 `With its velvety mouthfeel and refreshing taste, this utility player is an excellent addition to cocktails, your morning coffee and more.`\
 https://nytimes.com/2024/09/13/dining/drinks/coconut-water-cocktails.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5765503/2024/09/13/marquise-brown-injury-surgery-ch
 **The Weeknd’s Glimmering Synth-Pop, and 8 More New Songs**\
 `Hear tracks by Soccer Mommy, FKA twigs, Reyna Tropical and others.`\
 https://nytimes.com/2024/09/13/arts/music/playlist-the-weeknd-fka-twigs.html
-
-**Boar’s Head Shuts Down Virginia Plant Tied to Listeria Deaths**\
-`The company said that the site would close indefinitely and that it would permanently stop making liverwurst. Union officials said the plant’s 500 workers would be given severance and offered relocation.`\
-https://nytimes.com/2024/09/13/health/boars-head-shutdown-listeria-deaths.html
-
-**Football Parlay Fridays Week 3: Sticking with the underdogs after a good Week 2**\
-`Austin Mock is back for a round-robin parlay pick on college football Week 3 after a profitable Week 2. See what he's picking. `\
-https://nytimes.com/athletic/5765068/2024/09/13/football-parlay-fridays-college-football-week-3/
 
