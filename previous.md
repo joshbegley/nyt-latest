@@ -1,3 +1,15 @@
+**Penguins mailbag: McGroarty, Crosby's linemates and can't-miss games**\
+`Josh Yohe dishes on the best games to catch this season, if McGroarty will make the team and Crosby's linemates.`\
+https://nytimes.com/athletic/5763540/2024/09/13/penguins-sidney-crosby-rutger-mcgroarty/
+
+**Where Voters Will Decide on Abortion in November**\
+`Ten states could expand abortion rights via ballot measures. Nebraska will also vote on proposed restrictions.`\
+https://nytimes.com/interactive/2024/us/politics/abortion-ballot-states.html
+
+**Harris or Trump? Once Again, Election Results Could Take a While.**\
+`More Americans are using mail-in ballots, which take longer to count than those cast in person. In several battleground states, a winner may not be apparent on Nov. 5.`\
+https://nytimes.com/2024/09/13/us/politics/election-night-results-timing.html
+
 **Giants, Daniel Jones need to bounce back. Game vs. Commanders provides golden opportunity**\
 `I’m not prepared for how messy things will get if the Giants lose this game. A win on Sunday will at least settle things down for a week.`\
 https://nytimes.com/athletic/5764478/2024/09/13/new-york-giants-daniel-jones-commanders-week-2/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5764188/2024/09/13/detroit-lions-wr-jameson-william
 **$300 for a New Checking Account? Banks Offer Bonuses to Attract Customers.**\
 `Facing competition for business, banks are offering incentives to switch. But as one expert put it, “You have to read the fine print.”`\
 https://nytimes.com/2024/09/13/your-money/bank-checking-savings-account-offers.html
-
-**Nvidia Holds the Key to the Market. But Is It Worth This Much?**\
-`One of the hazards of buying individual stocks is that their current price may have little to do with their fundamental value, our columnist says.`\
-https://nytimes.com/2024/09/13/business/nvidia-stock-market-ai.html
-
-**Maresca confident Chelsea ownership split won't be a distraction for team**\
-`Enzo Maresca is confident the split between the Chelsea ownership will not be a negative distraction for the team.`\
-https://nytimes.com/athletic/5765032/2024/09/13/chelsea-owners-enzo-maresca/
-
-**Chilwell set for return to Chelsea training**\
-`Ben Chilwell is set for a return to Chelsea training after failing to secure a transfer away from Stamford Bridge, according to head coach Enzo Maresca.`\
-https://nytimes.com/athletic/5764982/2024/09/13/chilwell-chelsea-return-maresca/
 

@@ -1,3 +1,15 @@
+**Penguins mailbag: McGroarty, Crosby's linemates and can't-miss games**\
+`Josh Yohe dishes on the best games to catch this season, if McGroarty will make the team and Crosby's linemates.`\
+https://nytimes.com/athletic/5763540/2024/09/13/penguins-sidney-crosby-rutger-mcgroarty/
+
+**Where Voters Will Decide on Abortion in November**\
+`Ten states could expand abortion rights via ballot measures. Nebraska will also vote on proposed restrictions.`\
+https://nytimes.com/interactive/2024/us/politics/abortion-ballot-states.html
+
+**Harris or Trump? Once Again, Election Results Could Take a While.**\
+`More Americans are using mail-in ballots, which take longer to count than those cast in person. In several battleground states, a winner may not be apparent on Nov. 5.`\
+https://nytimes.com/2024/09/13/us/politics/election-night-results-timing.html
+
 **Giants, Daniel Jones need to bounce back. Game vs. Commanders provides golden opportunity**\
 `I’m not prepared for how messy things will get if the Giants lose this game. A win on Sunday will at least settle things down for a week.`\
 https://nytimes.com/athletic/5764478/2024/09/13/new-york-giants-daniel-jones-commanders-week-2/
