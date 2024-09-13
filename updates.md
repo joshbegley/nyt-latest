@@ -1,3 +1,19 @@
+**Parris joins Brighton from Manchester United**\
+`Brighton and Hove Albion have completed the signing of forward Nikita Parris from Manchester United.`\
+https://nytimes.com/athletic/5766058/2024/09/13/nikita-parris-brighton-transfer/
+
+**Who Says Your Couch Can’t Match Your Sweater?**\
+`Bold colors and bright patterns mark the first collaboration between fashion house Clare V. and home goods company Schoolhouse.`\
+https://nytimes.com/2024/09/13/style/who-says-your-couch-cant-match-your-sweater.html
+
+**Biden Is No Longer Front and Center — and It’s Liberating to Him**\
+`Since Kamala Harris became the Democratic nominee, attention has focused away from the president.`\
+https://nytimes.com/2024/09/13/us/politics/biden-harris-background.html
+
+**Britain Is Prodding Biden to Allow Kyiv to Strike in Russia**\
+`Also, have some patience on election night. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/09/13/briefing/us-britain-ukraine-missiles-election-night-votes.html
+
 **The Week in Bad Political Behavior**\
 `Loomer versus Greene; the martyrdom of Eric Adams; the sheer looniness of Marianne Williamson.`\
 https://nytimes.com/live/2024/09/11/opinion/thepoint/week-bad-political-behavior
