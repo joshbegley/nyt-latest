@@ -1,3 +1,7 @@
+**Weird & Wild MLB highlights of the month: Game of the Year, a first-inning first, and more**\
+`It's time for the W&W highlights of the past month, from The Danny Jansen Game to a hitter who made an out on his own intentional walk. `\
+https://nytimes.com/athletic/5764512/2024/09/13/danny-jansen-game-dodgers-diamondbacks-first-inning/
+
 **Do the Cubs really think they can make the playoffs? The view from the clubhouse.**\
 `The Cubs don't look like a team that's ready to check out.`\
 https://nytimes.com/athletic/5764416/2024/09/13/cubs-playoff-odds-clubhouse-reaction/
