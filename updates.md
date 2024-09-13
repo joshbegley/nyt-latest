@@ -1,3 +1,7 @@
+**The Week in Bad Political Behavior**\
+`Loomer versus Greene; the martyrdom of Eric Adams; the sheer looniness of Marianne Williamson.`\
+https://nytimes.com/live/2024/09/11/opinion/thepoint/week-bad-political-behavior
+
 **Trump Pledges to Start Migrant Deportations in Ohio and Colorado**\
 `The former president has repeatedly leveled baseless and exaggerated claims about migrants in Springfield, Ohio, and Aurora, Colo.`\
 https://nytimes.com/2024/09/13/us/politics/trump-deportations-migrants-ohio-colorado.html
