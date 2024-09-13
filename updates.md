@@ -1,3 +1,23 @@
+**Solheim Cup's start marred by fan transportation issues**\
+`Delays in shuttle buses and security screening left thousands waiting outside and a noticeably empty grandstand around No. 1 tee.`\
+https://nytimes.com/athletic/5765159/2024/09/13/solheim-cup-fan-lpga-golf/
+
+**The real Dominic Solanke - resilient, rebuilt and ready to star for Tottenham**\
+`The forward's career has not gone as many expected. But after bumps in the road, those who have worked with him believe his time is now`\
+https://nytimes.com/athletic/5762794/2024/09/13/dominic-solanke-tottenham-hotspur-record-signing/
+
+**Harris drops a new ad aimed at Latinos in Pennsylvania.**\
+`The state is one of a handful of battlegrounds where a small margin of victory could make all the difference in November.`\
+https://nytimes.com/live/2024/09/13/us/harris-trump-election/kamala-harris-ad-latinos-pennsylvania
+
+**Here’s What to Know About the Boeing Strike**\
+`Thousands of Boeing workers in Washington State and Oregon walked off the job on Friday in the first strike at the plane maker in 16 years.`\
+https://nytimes.com/2024/09/13/business/boeing-strike-workers-explained.html
+
+**Arsenal to have Gabriel Jesus available, waiting on more Odegaard tests**\
+`Mikel Arteta says that further tests are required before they know the true extent of Martin Odegaard&#8217;s injury but confirmed that Gabriel Jesus should be available for Sunday&#8217;s north London derby.`\
+https://nytimes.com/athletic/5765134/2024/09/13/arsenal-team-news-jesus-odegaard/
+
 **The Big City Is Vibrant. Birds There May Be Getting Less So.**\
 `Recent studies show that darker birds might have a survival advantage because certain feather pigments can help neutralize toxic pollution.`\
 https://nytimes.com/2024/09/13/climate/dirty-birds-color-climate-pollution.html
