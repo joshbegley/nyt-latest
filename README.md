@@ -1,3 +1,7 @@
+**Stephen Peat, Former Washington Capitals Player, Dies at 44**\
+`The N.H.L. Alumni Association said that Peat had died of injuries from a “tragic accident” that occurred more than two weeks ago.`\
+https://nytimes.com/2024/09/13/sports/stephen-peat-dead-washington-capitals.html
+
 **Vikings' Jordan Addison (ankle) out vs. 49ers**\
 `Addison injured his ankle in the third quarter of Sunday's game against the Giants.`\
 https://nytimes.com/athletic/5765837/2024/09/13/jordan-addison-injury-status-vikings-49ers/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/13/magazine/friends-husband-safety-ethics.html
 **Vance Describes Plan to End Ukraine War That Sounds a Lot Like Putin’s**\
 `Former President Donald J. Trump would tell the Russians, Ukrainians and Europeans to “figure out what a peaceful settlement looks like,” Senator JD Vance, his running mate, says.`\
 https://nytimes.com/2024/09/13/us/politics/vance-trump-ukraine-russia-war.html
-
-**Pochettino targets U.S. 2026 World Cup success with USWNT the 'inspiration'**\
-`Mauricio Pochettino says the U.`\
-https://nytimes.com/athletic/5765480/2024/09/13/mauricio-pochettino-usmnt-world-cup-hayes/
 
