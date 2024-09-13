@@ -1,3 +1,11 @@
+**The Windup: Was Aaron Judge cursed by Paw Patrol?**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5765353/2024/09/13/aaron-judge-paw-patrol-the-windup/
+
+**Review: Michael Tilson Thomas Returns to New York, and Mahler**\
+`The conductor led the New York Philharmonic in Mahler’s Fifth Symphony, an inspiring opening night for a season starting off unsettled.`\
+https://nytimes.com/2024/09/13/arts/music/review-tilson-thomas-philharmonic-mahler.html
+
 **How Tua's injury could affect Tyreek Hill, De'Von Achane, other Dolphins**\
 `While everyone's thoughts are with Tua Tagovailoa, fantasy managers are also wondering what this injury means for the Dolphins' other stars.`\
 https://nytimes.com/athletic/5764948/2024/09/13/fantasy-football-tua-injury-tyreek-hill-devon-achane-dolphins/

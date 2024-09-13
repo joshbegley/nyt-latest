@@ -1,3 +1,11 @@
+**The Windup: Was Aaron Judge cursed by Paw Patrol?**\
+`The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
+https://nytimes.com/athletic/5765353/2024/09/13/aaron-judge-paw-patrol-the-windup/
+
+**Review: Michael Tilson Thomas Returns to New York, and Mahler**\
+`The conductor led the New York Philharmonic in Mahler’s Fifth Symphony, an inspiring opening night for a season starting off unsettled.`\
+https://nytimes.com/2024/09/13/arts/music/review-tilson-thomas-philharmonic-mahler.html
+
 **How Tua's injury could affect Tyreek Hill, De'Von Achane, other Dolphins**\
 `While everyone's thoughts are with Tua Tagovailoa, fantasy managers are also wondering what this injury means for the Dolphins' other stars.`\
 https://nytimes.com/athletic/5764948/2024/09/13/fantasy-football-tua-injury-tyreek-hill-devon-achane-dolphins/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5764602/2024/09/13/canadiens-mike-matheson-leadersh
 **Here is the latest on the storm.**\
 `By Judson Jones`\
 https://nytimes.com/live/2024/09/13/weather/tropical-storm-gordon-hurricane/here-is-the-latest-on-the-storm
-
-**Tropical Storm Gordon Forms in the North Atlantic**\
-`The Atlantic hurricane season has seen two new storms this week, after an extended lull. Gordon is not currently a threat to land.`\
-https://nytimes.com/live/2024/09/13/weather/tropical-storm-gordon-hurricane
-
-**Robert Lewandowski on Fame, Frailty and the One Voice He Won’t Ignore**\
-`Much has been said about the increased workload of top players, the Barcelona star said, but the mental toll of expectations and fame is just as likely to lead to burnout.`\
-https://nytimes.com/2024/09/13/world/europe/robert-lewandowski-barcelona.html
 
