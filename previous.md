@@ -1,3 +1,19 @@
+**Yankees' DJ LeMahieu (right hip) hopes to play again in 2024**\
+`Injuries have been a major nuisance for LeMahieu in recent seasons, particularly following the pandemic-shortened 2020 season.`\
+https://nytimes.com/athletic/5766130/2024/09/13/dj-lemahieu-injury-status-yankees/
+
+**Sentence for Paramedic Convicted in Elijah McClain’s Death Reduced to Probation**\
+`Peter Cichuniec was sentenced in March to five years in prison. On Friday, a judge said he reduced the sentence because of “unusual and extenuating circumstances.”`\
+https://nytimes.com/2024/09/13/us/elijah-mcclain-paramedic-probation.html
+
+**Southampton vs Man United preview: Storylines, odds, prediction as United look to end skid**\
+`Manchester United have had a slow start to the Premier League season, but Southampton have lost all three matches so far.`\
+https://nytimes.com/athletic/5763836/2024/09/13/southampton-manchester-united-preview-odds-prediction/
+
+**Missouri Bird Flu Case Raises Prospect of Human Transmission**\
+`A close contact of someone with bird flu became ill on the same day, the C.D.C. reported. But the second person was not tested, and the cause of the illness is unknown.`\
+https://nytimes.com/2024/09/13/health/bird-flu-missouri.html
+
 **W.H.O. Authorizes Mpox Vaccine, Clearing Way for Use in Africa**\
 `The decision is a crucial step in getting shots to the Democratic Republic of Congo, the center of the outbreak.`\
 https://nytimes.com/2024/09/13/health/mpox-vaccine-world-health-organization.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/5766058/2024/09/13/nikita-parris-brighton-transfer/
 **Who Says Your Couch Can’t Match Your Sweater?**\
 `Bold colors and bright patterns mark the first collaboration between fashion house Clare V. and home goods company Schoolhouse.`\
 https://nytimes.com/2024/09/13/style/who-says-your-couch-cant-match-your-sweater.html
-
-**Biden Is No Longer Front and Center — and It’s Liberating to Him**\
-`Since Kamala Harris became the Democratic nominee, attention has focused away from the president.`\
-https://nytimes.com/2024/09/13/us/politics/biden-harris-background.html
-
-**Britain Is Prodding Biden to Allow Kyiv to Strike in Russia**\
-`Also, have some patience on election night. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2024/09/13/briefing/us-britain-ukraine-missiles-election-night-votes.html
-
-**The Week in Bad Political Behavior**\
-`Loomer versus Greene; the martyrdom of Eric Adams; the sheer looniness of Marianne Williamson.`\
-https://nytimes.com/live/2024/09/11/opinion/thepoint/week-bad-political-behavior
-
-**Trump Pledges to Start Migrant Deportations in Ohio and Colorado**\
-`The former president has repeatedly leveled baseless and exaggerated claims about migrants in Springfield, Ohio, and Aurora, Colo.`\
-https://nytimes.com/2024/09/13/us/politics/trump-deportations-migrants-ohio-colorado.html
 
