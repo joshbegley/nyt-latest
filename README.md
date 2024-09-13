@@ -1,3 +1,7 @@
+**Is my house still there? Are my relatives safe? Fire evacuees worry, and wonder what comes next.**\
+`By Rachel Parsons`\
+https://nytimes.com/live/2024/09/12/us/california-wildfires-idaho-oregon/is-my-house-still-there-are-my-relatives-safe-fire-evacuees-worry-and-wonder-what-comes-next
+
 **At a Key Moment in Trump’s Campaign, a Social-Media Instigator Is at His Side**\
 `The former president’s decision to elevate Laura Loomer, a far-right activist known for racist and homophobic posts online, has stunned even some Trump allies.`\
 https://nytimes.com/2024/09/12/us/politics/trump-laura-loomer.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5763497/2024/09/12/solheim-cup-friday-tee-times-pai
 **What to Know About New York City’s Interim Police Commissioner**\
 `Before being appointed by Mayor Eric Adams, Thomas Donlon ran a security company and was New York State’s head of homeland security.`\
 https://nytimes.com/2024/09/12/nyregion/thomas-donlon-nypd.html
-
-**Mexico Remakes Its Entire Judicial System as States Back Vast Overhaul**\
-`The plan, championed by Mexico’s president, would have voters elect judges at every level, dramatically restructuring the third branch of government.`\
-https://nytimes.com/2024/09/12/world/americas/mexico-courts-overhaul-states-approve.html
 
