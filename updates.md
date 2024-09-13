@@ -1,3 +1,7 @@
+**A Stake in the Miami Dolphins Is Back on the Block**\
+`Owner Stephen Ross is talking to private equity firms after the N.F.L. changed the rules on what types of investors can buy into the league.`\
+https://nytimes.com/2024/09/13/business/dealbook/miami-dolphins-deal-talks.html
+
 **Here’s the latest on the presidential race.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/09/13/us/harris-trump-election/heres-the-latest-on-the-presidential-race
