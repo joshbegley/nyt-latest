@@ -1,3 +1,7 @@
+**5 takeaways from the Bills' win over the Dolphins**\
+`The Buffalo Bills enjoyed a dominant 31-10 win over the Miami Dolphins on Thursday in a clash of AFC East contenders.`\
+https://nytimes.com/athletic/5764460/2024/09/12/bills-dolphins-result-takeaways-tua-tagovailoa/
+
 **What is the NFL's concussion protocol? The steps that take place before return to play**\
 `Until the player is cleared by the independent consultant, he may not return to contact practices or play in a game.`\
 https://nytimes.com/athletic/5764056/2024/09/12/what-is-nfl-concussion-protocol/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/12/crosswords/daily-puzzle-2024-13.html
 **Is my house still there? Are my relatives safe? Fire evacuees worry, and wonder what comes next.**\
 `By Rachel Parsons`\
 https://nytimes.com/live/2024/09/12/us/california-wildfires-idaho-oregon/is-my-house-still-there-are-my-relatives-safe-fire-evacuees-worry-and-wonder-what-comes-next
-
-**At a Key Moment in Trump’s Campaign, a Social-Media Instigator Is at His Side**\
-`The former president’s decision to elevate Laura Loomer, a far-right activist known for racist and homophobic posts online, has stunned even some Trump allies.`\
-https://nytimes.com/2024/09/12/us/politics/trump-laura-loomer.html
 
