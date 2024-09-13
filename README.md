@@ -1,3 +1,11 @@
+**Howe dismisses talk of 'civil war' at Newcastle**\
+`Eddie Howe has robustly defended his transfer record at Newcastle United following Paul Mitchell&#8217;s critique of the club&#8217;s post-takeover recruitment, but insists there is no &#8220;civil war&#8221; at St James&#8217; Park.`\
+https://nytimes.com/athletic/5764695/2024/09/13/eddie-howe-newcastle-paul-mitchell/
+
+**Liverpool contract situations not a distraction - Slot**\
+`Arne Slot insists player contract situations aren&#8217;t a distraction as Liverpool look to extend their impressive start to the season.`\
+https://nytimes.com/athletic/5764698/2024/09/13/liverpool-contracts-salah-trent-van-dijk/
+
 **The White Sox — 81 games under .500! — are piling up mind-blowing numbers for the ages**\
 `Unless you are 108 years old, you've never seen a team that's 81 games under .500. The White Sox are racking up truly head-spinning numbers.`\
 https://nytimes.com/athletic/5763839/2024/09/13/white-sox-wild-stats-losing/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5762880/2024/09/13/wisconsin-alabama-prediction-bad
 **Which MLB contenders have the hardest road to the playoffs? Let's break down the schedules**\
 `We looked at each contender’s remaining schedule, with playoff odds and remaining strength of schedule in order to find out. `\
 https://nytimes.com/athletic/5763713/2024/09/13/mlb-contenders-easiest-hardest-road-playoffs/
-
-**Nebraska QB underdog Jalyn Gramstad has his eyes on a goal bigger than playing time**\
-`“I believe Jalyn Gramstad could move our team and score,” coach Matt Rhule said. “I believe that with all my heart.”`\
-https://nytimes.com/athletic/5763899/2024/09/13/nebraska-football-quarterbacks-jalyn-gramstad-2/
-
-**The Fight Against Three Major Wildfires in Southern California: What We Know**\
-`Weather conditions have given firefighters a better chance of preventing more damage from the blazes that have displaced tens of thousands of residents.`\
-https://nytimes.com/2024/09/13/us/california-fires-what-we-know.html
 
