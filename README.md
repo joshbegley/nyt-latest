@@ -1,3 +1,11 @@
+**‘Counting and Cracking’ Review: One Family’s Tale Fit for an Epic**\
+`No theatrical wizardry is needed for this compelling drama about a woman’s journey to Australia from war-torn Sri Lanka and the generations that follow.`\
+https://nytimes.com/2024/09/12/theater/counting-and-cracking-review.html
+
+**Gets High on a Kite**\
+`Boaz Moser makes his New York Times Crossword debut.`\
+https://nytimes.com/2024/09/12/crosswords/daily-puzzle-2024-13.html
+
 **Is my house still there? Are my relatives safe? Fire evacuees worry, and wonder what comes next.**\
 `By Rachel Parsons`\
 https://nytimes.com/live/2024/09/12/us/california-wildfires-idaho-oregon/is-my-house-still-there-are-my-relatives-safe-fire-evacuees-worry-and-wonder-what-comes-next
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/12/us/uvalde-shooting-police-bortac.html
 **Will Electing Judges Make Mexico’s Courts Better, or More Political?**\
 `A sweeping change would have thousands of judges, from local courtrooms all the way up to the Supreme Court, elected instead of appointed.`\
 https://nytimes.com/2024/09/12/world/americas/mexico-elect-judges.html
-
-**Solheim Cup Friday pairings, tee times announced; Nelly Korda will lead Team USA**\
-`Korda and Allisen Corpuz are paired together in the first foursome match against Europeans' Charley Hull, Esther Henseleit.`\
-https://nytimes.com/athletic/5763497/2024/09/12/solheim-cup-friday-tee-times-pairings-nelly-korda/
-
-**What to Know About New York City’s Interim Police Commissioner**\
-`Before being appointed by Mayor Eric Adams, Thomas Donlon ran a security company and was New York State’s head of homeland security.`\
-https://nytimes.com/2024/09/12/nyregion/thomas-donlon-nypd.html
 
