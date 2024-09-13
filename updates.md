@@ -1,3 +1,11 @@
+**Attacking down the middle and a second No 10 - how Steve Cooper has already changed Leicester**\
+`Leicester's new manager is an admirer of predecessor Enzo Maresca but has made some notable tweaks to the team's style and personnel`\
+https://nytimes.com/athletic/5760890/2024/09/13/how-cooper-has-changed-leicester/
+
+**Superb under pressure and pinpoint passing - what Andre will bring to Wolves**\
+`The Brazilian’s adjustment to the Premier League is likely to be significant, given the extreme style of football in which he made his name`\
+https://nytimes.com/athletic/5762107/2024/09/13/what-andre-will-bring-to-wolves/
+
 **Manchester United's Barcelona board meeting and what the new football executives do**\
 `The structure of Manchester United's football executive has yet to be finalised... but this is how it is working so far`\
 https://nytimes.com/athletic/5762080/2024/09/13/manchester-united-how-football-executive-works/

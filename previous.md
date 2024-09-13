@@ -1,3 +1,11 @@
+**Attacking down the middle and a second No 10 - how Steve Cooper has already changed Leicester**\
+`Leicester's new manager is an admirer of predecessor Enzo Maresca but has made some notable tweaks to the team's style and personnel`\
+https://nytimes.com/athletic/5760890/2024/09/13/how-cooper-has-changed-leicester/
+
+**Superb under pressure and pinpoint passing - what Andre will bring to Wolves**\
+`The Brazilian’s adjustment to the Premier League is likely to be significant, given the extreme style of football in which he made his name`\
+https://nytimes.com/athletic/5762107/2024/09/13/what-andre-will-bring-to-wolves/
+
 **Manchester United's Barcelona board meeting and what the new football executives do**\
 `The structure of Manchester United's football executive has yet to be finalised... but this is how it is working so far`\
 https://nytimes.com/athletic/5762080/2024/09/13/manchester-united-how-football-executive-works/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5740322/2024/09/13/haaland-three-hat-tricks-in-a-ro
 **Row Z: Arsenal fans lose the plot, Ronaldo wins the World Cup, and 'anthem-gate'**\
 `A recap of the lighter moments of the week in the strange world of football`\
 https://nytimes.com/athletic/5762281/2024/09/13/arsenal-fans-social-media/
-
-**Fantasy football flex fliers: Tyler Johnson, Tank Bigsby and more deep sleepers to consider in Week 2**\
-`Scott Engel runs through his list of preferred flex options for those fantasy managers trying to plug a lineup hole in Week 2 off waivers.`\
-https://nytimes.com/athletic/5763618/2024/09/13/fantasy-football-week-2-flex-sleepers-tyler-johnson-bigsby/
-
-**Ashley Cole: From England's 'golden generation' to a role in its hopeful future**\
-`Cole's appointment by the FA feels in keeping with England's history. He already seems to have the nous to play a part in its future`\
-https://nytimes.com/athletic/5762254/2024/09/13/ashley-cole-fa-england-lee-carsley/
 
