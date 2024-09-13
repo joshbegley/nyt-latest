@@ -1,3 +1,11 @@
+**How Sunderland have been revived: Quick starts, tenacity and the impact of ‘Arsene Who?’**\
+`The Wearsiders have never won the first five league games of a season - history beckons for Regis Le Bris' league leaders at lowly Plymouth`\
+https://nytimes.com/athletic/5762168/2024/09/13/sunderland-regis-bris-roberts-plymouth/
+
+**A.I. Is Changing War. We Are Not Ready.**\
+`The American military is not prepared for the fact that artificial-intelligence-powered autonomous weapons systems are changing the fundamental nature of warfare.`\
+https://nytimes.com/2024/09/13/opinion/ai-drones-robot-war-pentagon.html
+
 **Boeing Workers Vote to Strike After Rejecting Contract Deal**\
 `Thousands of workers who build commercial planes in the Seattle and Portland, Ore., areas voted down an accord recommended by union leaders.`\
 https://nytimes.com/2024/09/13/business/economy/boeing-strike-union-contract.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5762241/2024/09/13/what-i-am-seeing-manchester-city
 **With Billy Gilmour gone, how is Brighton's midfield shaping up?**\
 `Exceptional midfielders have left Brighton in recent seasons. Amid injuries, do they have the talent at the position to step up again?`\
 https://nytimes.com/athletic/5735702/2024/09/13/brighton-post-billy-gilmour-midfield-options/
-
-**Attacking down the middle and a second No 10 - how Steve Cooper has already changed Leicester**\
-`Leicester's new manager is an admirer of predecessor Enzo Maresca but has made some notable tweaks to the team's style and personnel`\
-https://nytimes.com/athletic/5760890/2024/09/13/how-cooper-has-changed-leicester/
-
-**Superb under pressure and pinpoint passing - what Andre will bring to Wolves**\
-`The Brazilian’s adjustment to the Premier League is likely to be significant, given the extreme style of football in which he made his name`\
-https://nytimes.com/athletic/5762107/2024/09/13/what-andre-will-bring-to-wolves/
 

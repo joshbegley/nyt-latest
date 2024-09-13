@@ -1,3 +1,11 @@
+**How Sunderland have been revived: Quick starts, tenacity and the impact of ‘Arsene Who?’**\
+`The Wearsiders have never won the first five league games of a season - history beckons for Regis Le Bris' league leaders at lowly Plymouth`\
+https://nytimes.com/athletic/5762168/2024/09/13/sunderland-regis-bris-roberts-plymouth/
+
+**A.I. Is Changing War. We Are Not Ready.**\
+`The American military is not prepared for the fact that artificial-intelligence-powered autonomous weapons systems are changing the fundamental nature of warfare.`\
+https://nytimes.com/2024/09/13/opinion/ai-drones-robot-war-pentagon.html
+
 **Boeing Workers Vote to Strike After Rejecting Contract Deal**\
 `Thousands of workers who build commercial planes in the Seattle and Portland, Ore., areas voted down an accord recommended by union leaders.`\
 https://nytimes.com/2024/09/13/business/economy/boeing-strike-union-contract.html
