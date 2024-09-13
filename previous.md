@@ -1,3 +1,11 @@
+**Prime Tire: F1's remarkable safety car drought. Plus, inside Aston Martin's 'Project Pencil'**\
+`Also, some free-of-charge Lego puns because I like you. `\
+https://nytimes.com/athletic/5766190/2024/09/13/f1-bottas-norris-azerbaijan-gp-prime-tire/
+
+**Trump Threatens to Cut Wildfire Aid if California Doesn’t Deliver More Water**\
+`Gov. Gavin Newsom said all Americans should be alarmed that the former president wants to “block emergency disaster funds to settle political vendettas.”`\
+https://nytimes.com/2024/09/13/us/politics/trump-california-wildfire-aid-newsom.html
+
 **California Drug Clinic Operator Convicted in $3 Million Kickback Scheme**\
 `Casey Mahoney, 48, of Los Angeles, illegally paid “body brokers” to lure clients, a federal jury found.`\
 https://nytimes.com/2024/09/13/us/addiction-facility-illegal-kickbacks.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5763836/2024/09/13/southampton-manchester-united-pr
 **Missouri Bird Flu Case Raises Prospect of Human Transmission**\
 `A close contact of someone with bird flu became ill on the same day, the C.D.C. reported. But the second person was not tested, and the cause of the illness is unknown.`\
 https://nytimes.com/2024/09/13/health/bird-flu-missouri.html
-
-**W.H.O. Authorizes Mpox Vaccine, Clearing Way for Use in Africa**\
-`The decision is a crucial step in getting shots to the Democratic Republic of Congo, the center of the outbreak.`\
-https://nytimes.com/2024/09/13/health/mpox-vaccine-world-health-organization.html
-
-**Meeting With Biden, British Leader Hints at Ukraine Weapon Decision Soon**\
-`As the president deliberated with Prime Minister Keir Starmer, the question of whether to let Ukraine use long-range weapons in Russia was a rare point of contention between allied nations.`\
-https://nytimes.com/2024/09/13/us/politics/biden-starmer-ukraine-russia-missiles.html
 
