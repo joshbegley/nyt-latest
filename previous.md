@@ -8,7 +8,7 @@ https://nytimes.com/2024/09/13/world/middleeast/gaza-polio-vaccination-futility.
 
 **An oil tanker still burning in the Red Sea raises alarms at a U.N. Security Council meeting.**\
 `By Ephrat Livni`\
-https://nytimes.com/2024/09/13/world/middleeast/an-oil-tanker-still-burning-in-the-red-sea-raises-alarms-at-a-un-security-council-meeting.html
+https://nytimes.com/live/2024/09/13/world/israel-hamas-gaza-war/an-oil-tanker-still-burning-in-the-red-sea-raises-alarms-at-a-un-security-council-meeting
 
 **Boeing Union Members Vote to Strike**\
 `Thousands of machinists and aerospace workers walked off the job on Friday, after rejecting a proposal that would have delivered raises and improvements to benefits but fell short of what the union initially sought.`\
