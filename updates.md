@@ -1,3 +1,11 @@
+**Three Americans Sentenced to Death for Failed Congo Coup**\
+`The sentences were handed down months after the central African country lifted a moratorium on carrying out the death penalty.`\
+https://nytimes.com/2024/09/13/world/africa/congo-coup-death-sentence-americans.html
+
+**Belfast's Casement Park to no longer host Euro 2028 matches**\
+`Casement Park in Belfast has been stripped of its status as a Euro 2028 host stadium as the UK government cannot commit to providing the funding for it to be built in time for the tournament.`\
+https://nytimes.com/athletic/5765887/2024/09/13/casement-park-euro-2028-host/
+
 **Trump Claims Ignorance of Laura Loomer’s 9/11 Conspiracy Theories**\
 `After commemorating Sept. 11 with a far-right activist who has called the attacks an “inside job,” former President Donald J. Trump said he was unaware of her remarks.`\
 https://nytimes.com/2024/09/13/us/politics/trump-laura-loomer.html
