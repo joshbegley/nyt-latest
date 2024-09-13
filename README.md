@@ -1,3 +1,7 @@
+**Next week’s waiver wire: Bucky Irving, Demarcus Robinson and more players to add now — before the Week 3 rush**\
+`John Laghezza helps you get ahead of the competition, looking at stat trends and predicting which players will be hot adds... next week. `\
+https://nytimes.com/athletic/5762537/2024/09/13/week-3-fantasy-football-early-waiver-bucky-irving-demarcus-robinson/
+
 **How Sunderland have been revived: Quick starts, tenacity and the impact of ‘Arsene Who?’**\
 `The Wearsiders have never won the first five league games of a season - history beckons for Regis Le Bris' league leaders at lowly Plymouth`\
 https://nytimes.com/athletic/5762168/2024/09/13/sunderland-regis-bris-roberts-plymouth/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5762121/2024/09/13/iliman-ndiaye-everton-non-league
 **What I'm seeing at City: Rotation season, potential punishments and Grealish the No 10?**\
 `Our writer details what is going on at the club following the end of the international break and the return of Premier League football`\
 https://nytimes.com/athletic/5762241/2024/09/13/what-i-am-seeing-manchester-city/
-
-**With Billy Gilmour gone, how is Brighton's midfield shaping up?**\
-`Exceptional midfielders have left Brighton in recent seasons. Amid injuries, do they have the talent at the position to step up again?`\
-https://nytimes.com/athletic/5735702/2024/09/13/brighton-post-billy-gilmour-midfield-options/
 
