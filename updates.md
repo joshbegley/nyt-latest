@@ -1,3 +1,11 @@
+**Minnesota Twins release minor league catcher for tipping pitches**\
+`Prospect Derek Bender's team was eliminated from playoff contention in the game in which he gave away pitches.`\
+https://nytimes.com/athletic/5764355/2024/09/12/twins-release-minor-league-catcher-tipping-pitches/
+
+**5 takeaways from the Bills' win over the Dolphins**\
+`The Buffalo Bills enjoyed a dominant 31-10 win over the Miami Dolphins on Thursday in a clash of AFC East contenders.`\
+https://nytimes.com/athletic/5764460/2024/09/12/bills-dolphins-result-takeaways-tua-tagovailoa/
+
 **What is the NFL's concussion protocol? The steps that take place before return to play**\
 `Until the player is cleared by the independent consultant, he may not return to contact practices or play in a game.`\
 https://nytimes.com/athletic/5764056/2024/09/12/what-is-nfl-concussion-protocol/
