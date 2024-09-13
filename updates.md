@@ -1,3 +1,15 @@
+**Man United's Malacia closing in on return from knee injury**\
+`Manchester United defender Tyrell Malacia is closing in on a return to action having not played since May 2023, according to manager Erik ten Hag.`\
+https://nytimes.com/athletic/5764902/2024/09/13/manchester-united-malacia-ten-hag/
+
+**Dak Prescott, CeeDee Lamb expecting better offensive production in home opener**\
+`Prescott aims to improve the Cowboys' third-down execution along with his connection with CeeDee Lamb this week against the Saints.`\
+https://nytimes.com/athletic/5764291/2024/09/13/dak-prescott-cowboys-offense-ceedee-lamb/
+
+**Ake out until next international break with injury, Guardiola fears**\
+`Pep Guardiola expects Nathan Ake to be out until the next international break after picking up an injury while away with the Netherlands.`\
+https://nytimes.com/athletic/5759813/2024/09/13/nathan-ake-man-city-injury/
+
 **Diplomacy Over Ukraine War Is About Bolstering Forces**\
 `For both Ukraine and Russia, battlefield gains now might provide an upper hand in any peace talks later. That’s reflected in their discussions over arms with allies.`\
 https://nytimes.com/2024/09/13/world/europe/ukraine-war-blinken-us-lammy.html
