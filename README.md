@@ -1,3 +1,7 @@
+**Solheim Cup's start marred by fan transportation issues**\
+`Delays in shuttle buses and security screening left thousands waiting outside and a noticeably empty grandstand around No. 1 tee.`\
+https://nytimes.com/athletic/5765159/2024/09/13/solheim-cup-fan-lpga-golf/
+
 **The real Dominic Solanke - resilient, rebuilt and ready to star for Tottenham**\
 `The forward's career has not gone as many expected. But after bumps in the road, those who have worked with him believe his time is now`\
 https://nytimes.com/athletic/5762794/2024/09/13/dominic-solanke-tottenham-hotspur-record-signing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5764478/2024/09/13/new-york-giants-daniel-jones-com
 **Behind the Pac-12's poaching of the Mountain West and both leagues' next steps**\
 `After negotiations with the Mountain West broke down, the Pac-12 found an opportunity to live to fight another day.`\
 https://nytimes.com/athletic/5764885/2024/09/13/pac-12-realignment-mountain-west-members/
-
-**The Big City Is Vibrant. Birds There May Be Getting Less So.**\
-`Recent studies show that darker, duller birds might have a survival advantage because certain feather pigments can help neutralize toxic pollution.`\
-https://nytimes.com/2024/09/13/climate/dirty-birds-color-climate-pollution.html
 
