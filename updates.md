@@ -1,3 +1,11 @@
+**Trump’s Economics, Too, Are Sounding More Authoritarian**\
+`His economic agenda would concentrate more power in the hands of the president.`\
+https://nytimes.com/2024/09/13/opinion/trump-authoritarian-economics.html
+
+**Crystal Palace Women sign Stengel from NJ/NY Gotham**\
+`Crystal Palace have completed the signing of striker Katie Stengel from NJ/NY Gotham.`\
+https://nytimes.com/athletic/5765935/2024/09/13/katie-stengel-crystal-palace-transfer/
+
 **Herbie Flowers, ‘Walk on the Wild Side’ Bassist, Dies at 86**\
 `A celebrated session musician who appeared on a host of classic rock albums, he made his most lasting mark with his contribution to Lou Reed’s most famous song.`\
 https://nytimes.com/2024/09/13/arts/music/herbie-flowers-dead.html
