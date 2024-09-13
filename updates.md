@@ -1,4 +1,8 @@
 **Trump Says He Won’t Sell Shares Tied to Truth Social**\
+`Donald J. Trump, the largest shareholder in the parent company of Truth Social, said he won’t sell his stock when a restriction ends next week.`\
+https://nytimes.com/2024/09/13/business/trump-media-stock-truth-social.html
+
+**Trump Says He Won’t Sell Shares Tied to Truth Social**\
 `Mr. Trump, the largest shareholder in Trump Media & Technology Group, the parent company of Truth Social, said he won’t sell the shares when an restriction ends next week.`\
 https://nytimes.com/2024/09/13/business/trump-media-stock-truth-social.html
 
