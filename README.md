@@ -1,3 +1,7 @@
+**The Week in Bad Political Behavior**\
+`Loomer versus Greene; the martyrdom of Eric Adams; the sheer looniness of Marianne Williamson.`\
+https://nytimes.com/live/2024/09/11/opinion/thepoint/week-bad-political-behavior
+
 **Trump Pledges to Start Migrant Deportations in Ohio and Colorado**\
 `The former president has repeatedly leveled baseless and exaggerated claims about migrants in Springfield, Ohio, and Aurora, Colo.`\
 https://nytimes.com/2024/09/13/us/politics/trump-deportations-migrants-ohio-colorado.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5765998/2024/09/13/real-madrid-bernabeu-concerts/
 **Starliner Astronauts Say What They’ll Miss During Extended Stay in Space**\
 `Suni Williams and Butch Wilmore of NASA spoke from the International Space Station for the first time since their Boeing orbital transport returned to Earth uncrewed.`\
 https://nytimes.com/2024/09/13/science/boeing-starliner-astronauts-wilmore-williams.html
-
-**Pennsylvania Supreme Court Throws Out Ruling Requiring Misdated Ballots to Count**\
-`The Supreme Court declined to rule on the merits of the case, instead finding that the lower court lacked jurisdiction in its decision.`\
-https://nytimes.com/2024/09/13/us/pennsylvania-ballots-ruling.html
 
