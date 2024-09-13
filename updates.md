@@ -1,3 +1,11 @@
+**My Friend’s Husband Makes Me Fear for Her Safety — and Mine**\
+`The magazine’s Ethicist columnist on how to help a friend who’s in a volatile marriage.`\
+https://nytimes.com/2024/09/13/magazine/friends-husband-safety-ethics.html
+
+**Vance Describes Plan to End Ukraine War That Sounds a Lot Like Putin’s**\
+`Former President Donald J. Trump would tell the Russians, Ukrainians and Europeans to “figure out what a peaceful settlement looks like,” Senator JD Vance, his running mate, says.`\
+https://nytimes.com/2024/09/13/us/politics/vance-trump-ukraine-russia-war.html
+
 **Pochettino targets U.S. 2026 World Cup success with USWNT the 'inspiration'**\
 `Mauricio Pochettino says the U.`\
 https://nytimes.com/athletic/5765480/2024/09/13/mauricio-pochettino-usmnt-world-cup-hayes/
