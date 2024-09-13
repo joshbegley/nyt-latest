@@ -1,3 +1,7 @@
+**Amid several burned properties, a market survives.**\
+`By Vik Jolly`\
+https://nytimes.com/live/2024/09/12/us/california-wildfires-idaho-oregon/amid-several-burned-properties-a-market-survives
+
 **California Man Assaulted Frontier Flight Attendants, Prosecutors Say**\
 `The violent episode resulted in an emergency landing. The man now faces federal flight interference charges.`\
 https://nytimes.com/2024/09/12/us/frontier-airlines-passenger-assault.html
