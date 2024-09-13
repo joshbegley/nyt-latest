@@ -1,3 +1,11 @@
+**Mets' set-up man Dedniel Núñez done for the season**\
+`Núñez sustained a flexor injury in his right arm and received an injection of platelet-rich plasma.`\
+https://nytimes.com/athletic/5766170/2024/09/13/mets-dedniel-nunez-injury/
+
+**Meeting With Biden, British Leader Hints at Ukraine Weapon Decision Soon**\
+`The question of whether to let Ukraine use long-range weapons in Russia has been a rare point of disagreement between British and American officials.`\
+https://nytimes.com/2024/09/13/us/politics/biden-starmer-ukraine-russia-missiles.html
+
 **Tyler Glasnow suffers elbow setback: 'It's unfortunate'**\
 `In 22 starts, Glasnow has thrown 168 strikeouts with 3.49 ERA.`\
 https://nytimes.com/athletic/5766031/2024/09/13/tyler-glasnow-injury-setback-la-dodgers/

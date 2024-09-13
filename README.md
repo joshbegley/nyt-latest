@@ -18,7 +18,7 @@ https://nytimes.com/2024/09/13/us/elijah-mcclain-paramedic-probation.html
 `Manchester United have had a slow start to the Premier League season, but Southampton have lost all three matches so far.`\
 https://nytimes.com/athletic/5763836/2024/09/13/southampton-manchester-united-preview-odds-prediction/
 
-**Missouri Bird Flu Case May Raise Prospect of Human Transmission**\
+**Missouri Bird Flu Case Raises Prospect of Human Transmission**\
 `A close contact of someone with bird flu became ill on the same day, the C.D.C. reported. But the second person was not tested, and the cause of the illness is unknown.`\
 https://nytimes.com/2024/09/13/health/bird-flu-missouri.html
 
