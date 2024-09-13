@@ -1,4 +1,8 @@
-**Jameson Williams is having fun right where he belongs**\
+**Crystal Palace's Chalobah to miss Leicester game with abdominal injury**\
+`Trevoh Chalobah will have to wait to make his Crystal Palace debut after sustaining an abdominal injury in his first training session.`\
+https://nytimes.com/athletic/5765028/2024/09/13/crystal-palace-trevor-chalobah-injury/
+
+**Jameson Williams, Detroit's adopted son, is having fun right where he belongs**\
 `After two interrupted seasons, Jameson Williams is finally coming into his own.`\
 https://nytimes.com/athletic/5764188/2024/09/13/detroit-lions-wr-jameson-williams/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/13/business/dealbook/miami-dolphins-deal-talks.html
 **Here’s the latest on the presidential race.**\
 `By Chris Cameron`\
 https://nytimes.com/live/2024/09/13/us/harris-trump-election/heres-the-latest-on-the-presidential-race
-
-**Election Live Updates: Campaigns Ride Post-Debate Wave Into a Packed Friday**\
-`Vice President Kamala Harris and former President Donald J. Trump will close out a busy week during which Ms. Harris enjoyed a big fund-raising haul and a surprise celebrity endorsement.`\
-https://nytimes.com/live/2024/09/13/us/harris-trump-election
 

@@ -1,3 +1,11 @@
+**Crystal Palace's Chalobah to miss Leicester game with abdominal injury**\
+`Trevoh Chalobah will have to wait to make his Crystal Palace debut after sustaining an abdominal injury in his first training session.`\
+https://nytimes.com/athletic/5765028/2024/09/13/crystal-palace-trevor-chalobah-injury/
+
+**Jameson Williams, Detroit's adopted son, is having fun right where he belongs**\
+`After two interrupted seasons, Jameson Williams is finally coming into his own.`\
+https://nytimes.com/athletic/5764188/2024/09/13/detroit-lions-wr-jameson-williams/
+
 **Jameson Williams is having fun right where he belongs**\
 `After two interrupted seasons, Jameson Williams is finally coming into his own.`\
 https://nytimes.com/athletic/5764188/2024/09/13/detroit-lions-wr-jameson-williams/
