@@ -1,3 +1,7 @@
+**Red Sox seesaw season continues with loss to Yankees in extra innings**\
+`For a second straight game, the Red Sox went into extra-innings but on Thursday they couldn’t come away with the win.`\
+https://nytimes.com/athletic/5764545/2024/09/12/red-sox-seesaw-season-continues-with-loss-to-yankees-in-extra-innings/
+
 **Minnesota Twins release minor league catcher for tipping pitches**\
 `Prospect Derek Bender's team was eliminated from playoff contention in the game in which he gave away pitches.`\
 https://nytimes.com/athletic/5764355/2024/09/12/twins-release-minor-league-catcher-tipping-pitches/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/12/us/frontier-airlines-passenger-assault.html
 **‘Counting and Cracking’ Review: One Family’s Tale Fit for an Epic**\
 `No theatrical wizardry is needed for this compelling drama about a woman’s journey to Australia from war-torn Sri Lanka and the generations that follow.`\
 https://nytimes.com/2024/09/12/theater/counting-and-cracking-review.html
-
-**Gets High on a Kite**\
-`Boaz Moser makes his New York Times Crossword debut.`\
-https://nytimes.com/2024/09/12/crosswords/daily-puzzle-2024-13.html
 

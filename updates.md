@@ -1,3 +1,7 @@
+**Red Sox seesaw season continues with loss to Yankees in extra innings**\
+`For a second straight game, the Red Sox went into extra-innings but on Thursday they couldn’t come away with the win.`\
+https://nytimes.com/athletic/5764545/2024/09/12/red-sox-seesaw-season-continues-with-loss-to-yankees-in-extra-innings/
+
 **Minnesota Twins release minor league catcher for tipping pitches**\
 `Prospect Derek Bender's team was eliminated from playoff contention in the game in which he gave away pitches.`\
 https://nytimes.com/athletic/5764355/2024/09/12/twins-release-minor-league-catcher-tipping-pitches/
