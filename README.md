@@ -1,3 +1,11 @@
+**Vikings' Jordan Addison (ankle) out vs. 49ers**\
+`Addison injured his ankle in the third quarter of Sunday's game against the Giants.`\
+https://nytimes.com/athletic/5765837/2024/09/13/jordan-addison-injury-status-vikings-49ers/
+
+**Biden Briefly Wears Trump Hat in Show of Unity, Says White House**\
+`During a visit to Shanksville Volunteer Fire Department in Pennsylvania, the president joked with the crowd as he placed the hat over his own.`\
+https://nytimes.com/video/us/politics/100000009691518/biden-trump-hat.html
+
 **No Charges for Georgia’s Lieutenant Governor in Trump Election Case**\
 `The decision not to indict Lt. Gov. Burt Jones was made by Pete Skandalakis, who is a veteran Georgia prosecutor and a fellow Republican.`\
 https://nytimes.com/2024/09/13/us/burt-jones-trump-election-georgia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/13/us/politics/vance-trump-ukraine-russia-war.html
 **Pochettino targets U.S. 2026 World Cup success with USWNT the 'inspiration'**\
 `Mauricio Pochettino says the U.`\
 https://nytimes.com/athletic/5765480/2024/09/13/mauricio-pochettino-usmnt-world-cup-hayes/
-
-**How Israeli Forces Destroyed a Secret Weapons Facility in Syria**\
-`Here is what to know about Israel’s deadly raid on a Hezbollah weapons production facility in Syria.`\
-https://nytimes.com/2024/09/13/world/middleeast/israel-raid-syria-hezbollah.html
-
-**Trump Divides Arizona’s Crucial Mormon Vote**\
-`Traditionally Republican members of the Church of Jesus Christ of Latter-day Saints balked at Donald Trump in 2020, helping Joe Biden win a key swing state. Will they do so with Kamala Harris?`\
-https://nytimes.com/2024/09/13/us/politics/trump-divides-arizonas-crucial-mormon-vote.html
 

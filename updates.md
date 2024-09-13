@@ -1,3 +1,11 @@
+**No Charges for Georgia’s Lieutenant Governor in Trump Election Case**\
+`The decision not to indict Lt. Gov. Burt Jones was made by Pete Skandalakis, who is a veteran Georgia prosecutor and a fellow Republican.`\
+https://nytimes.com/2024/09/13/us/burt-jones-trump-election-georgia.html
+
+**Pope Says Both Trump and Harris Are ‘Against Life’**\
+`He said American Catholic voters had to choose the “lesser of two evils” because of Donald Trump’s cruelty toward immigrants, and Kamala Harris’s support of abortion rights.`\
+https://nytimes.com/2024/09/13/world/europe/pope-us-election-abortion-immigration.html
+
 **What Angel Reese's injury means to the Sky's playoff hopes**\
 `What Angel Reese's injury means to the Sky's playoff hopes and four burning WNBA questions `\
 https://nytimes.com/athletic/5762680/2024/09/13/what-angel-reeses-injury-means-to-the-skys-playoff-hopes/
