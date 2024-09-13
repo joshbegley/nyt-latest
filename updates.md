@@ -1,3 +1,7 @@
+**Review: Patti LuPone and Mia Farrow Clean Up in ‘The Roommate’**\
+`A Bronx grifter and an Iowa homebody share a house and eventually learn from each other in this Broadway star vehicle.`\
+https://nytimes.com/2024/09/12/theater/the-roommate-review-lupone-farrow.html
+
 **Correction Officers Who Failed to Aid Dying Inmate Won’t Be Charged**\
 `Correction Department rules “do not clearly require officers to provide immediate care to people with severely bleeding wounds,” the New York attorney general’s office said.`\
 https://nytimes.com/2024/09/12/nyregion/correction-officers-rikers-ny-prison.html
