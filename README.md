@@ -1,3 +1,7 @@
+**Football Parlay Fridays Week 3: Sticking with the underdogs after a good Week 2**\
+`Austin Mock is back for a round-robin parlay pick on college football Week 3 after a profitable Week 2. See what he's picking. `\
+https://nytimes.com/athletic/5765068/2024/09/13/football-parlay-fridays-college-football-week-3/
+
 **Activists Convicted of Conspiring to Act as Russian Agents**\
 `The four defendants were acquitted of a more serious charge of failing to register as Russian agents. The case in Florida offered a window into Russian influence operations.`\
 https://nytimes.com/2024/09/13/us/us-activists-russia-agents-convicted.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5765380/2024/09/13/scoop-city-whats-next-for-tua-ta
 **How Hamas Uses Brutality to Maintain Power**\
 `The group has abused hostages and Palestinians as it wields rough justice in its efforts to maintain control of Gaza and wage an insurgent war.`\
 https://nytimes.com/2024/09/13/us/politics/hamas-power-gaza-violence-israel.html
-
-**Textor's Everton bid - 'New equity', Moshiri's options and what of his Palace shares?**\
-`Everton's prospective new owner attempted to explain his stance when speaking at a press conference and in a TV interview this week`\
-https://nytimes.com/athletic/5762252/2024/09/13/textor-everton-bid-lyon-palace-explained/
 
