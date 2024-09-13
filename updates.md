@@ -1,3 +1,23 @@
+**Manchester United's Barcelona board meeting and what the new football executives do**\
+`The structure of Manchester United's football executive has yet to be finalised... but this is how it is working so far`\
+https://nytimes.com/athletic/5762080/2024/09/13/manchester-united-how-football-executive-works/
+
+**The unnamed Premier League player accused of rape: How does the case end?**\
+`It has been more than 800 days since a Premier League footballer was arrested on suspicion of rape and taken into custody. What is going on?`\
+https://nytimes.com/athletic/5762114/2024/09/13/premier-league-player-rape-accusation-what-next/
+
+**Kepa Arrizabalaga's £5m Chelsea release clause and why he left on loan to Bournemouth**\
+`The Spain goalkeeper has been crippled by the expectations that accompanied his £71.6million move from Athletic Bilbao to Chelsea in 2018`\
+https://nytimes.com/athletic/5762648/2024/09/13/kepa-chelsea-bournemouth-loan/
+
+**The strange case of Odysseas Vlachodimos - Newcastle's £20m goalkeeper they didn't want**\
+`The inside story of Odysseas Vlachodimos' transfer from Forest to Newcastle - and is he any good?`\
+https://nytimes.com/athletic/5762101/2024/09/13/odysseas-vlachodimos-forest-to-newcastle/
+
+**Barely Escaping: Video Captures a Woman Staggering Through a California Wildfire**\
+`Officials said a battalion chief was retreating from an evacuated area when he spotted her. The woman is being treated at a burn center.`\
+https://nytimes.com/2024/09/13/us/california-airport-fire-woman-video.html
+
 **Tottenham vs Arsenal and why north London supremacy is all a matter of timing**\
 `North London derby cycles are moving faster than ever, so who is best placed to capitalise this time?`\
 https://nytimes.com/athletic/5759358/2024/09/13/tottenham-arsenal-age-profiles/
