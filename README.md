@@ -1,3 +1,15 @@
+**Parris joins Brighton from Manchester United**\
+`Brighton and Hove Albion have completed the signing of forward Nikita Parris from Manchester United.`\
+https://nytimes.com/athletic/5766058/2024/09/13/nikita-parris-brighton-transfer/
+
+**Who Says Your Couch Can’t Match Your Sweater?**\
+`Bold colors and bright patterns mark the first collaboration between fashion house Clare V. and home goods company Schoolhouse.`\
+https://nytimes.com/2024/09/13/style/who-says-your-couch-cant-match-your-sweater.html
+
+**Biden Is No Longer Front and Center — and It’s Liberating to Him**\
+`Since Kamala Harris became the Democratic nominee, attention has focused away from the president.`\
+https://nytimes.com/2024/09/13/us/politics/biden-harris-background.html
+
 **Britain Is Prodding Biden to Allow Kyiv to Strike in Russia**\
 `Also, have some patience on election night. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2024/09/13/briefing/us-britain-ukraine-missiles-election-night-votes.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5765126/2024/09/13/man-city-charges-pep-guardiola/
 **NASA Astronauts Speak to Media on Extended Stay in Orbit**\
 `The astronauts Suni Williams and Butch Wilmore expressed support for NASA and Boeing, following the decision for them to remain in orbit, while the troubled spacecraft they rode to the International Space Station returned to Earth uncrewed.`\
 https://nytimes.com/video/science/space/100000009691766/nasa-astronauts-boeing.html
-
-**Biden Briefly Put on a Trump Hat, and MAGA World Flipped Its Lid**\
-`Joking around with a Trump supporter at a Sept. 11 event this week, the president put on a “Trump 2024” hat for a few seconds. The pictures took on a life of their own.`\
-https://nytimes.com/2024/09/13/us/politics/biden-trump-hat.html
-
-**Coppola Sues After Report Said He Tried to Kiss ‘Megalopolis’ Extras**\
-`The director Francis Ford Coppola is seeking at least $15 million in damages from Variety.`\
-https://nytimes.com/2024/09/13/movies/francis-ford-coppola-megalopolis-variety-lawsuit.html
-
-**Real Madrid postpone concerts at the Bernabeu due to noise regulations**\
-`Real Madrid are postponing all upcoming concerts at the Santiago Bernabeu to comply with the capital city&#8217;s noise regulations.`\
-https://nytimes.com/athletic/5765998/2024/09/13/real-madrid-bernabeu-concerts/
 
