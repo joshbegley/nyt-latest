@@ -1,3 +1,15 @@
+**What Is Pro-Life Realism?**\
+`Can pro-life states survive in a pro-choice country?`\
+https://nytimes.com/2024/09/13/opinion/pro-life-abortion-realism.html
+
+**Tiger Woods undergoes surgery for nerve damage in back**\
+`This is Woods' sixth back surgery and fifth microdecompression (microdiscectomy) surgery, the first since 2021.`\
+https://nytimes.com/athletic/5765823/2024/09/13/tiger-woods-back-surgery/
+
+**Robert Caro on 50 Years of ‘The Power Broker’**\
+`The Pulitzer-winning biographer revisits his seminal 1974 life of the New York City bureaucrat Robert Moses.`\
+https://nytimes.com/2024/09/13/books/review/podcast-robert-caro-power-broker-interview.html
+
 **Stephen Peat, Former Washington Capitals Player, Dies at 44**\
 `The N.H.L. Alumni Association said that Peat had died of injuries from a “tragic accident” that occurred more than two weeks ago.`\
 https://nytimes.com/2024/09/13/sports/stephen-peat-dead-washington-capitals.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/5762680/2024/09/13/what-angel-reeses-injury-means-t
 **WNBA expansion Valkyries already eclipse 17K season ticket deposits**\
 `Earlier in the week, the Valkyries released renderings for their practice facility in Oakland.`\
 https://nytimes.com/athletic/5765800/2024/09/13/golden-state-valkyries-season-tickets-wnba/
-
-**Sam Bankman-Fried Files Appeal to Overturn Fraud Conviction**\
-`Mr. Bankman-Fried, the founder of the collapsed FTX cryptocurrency exchange, was convicted last fall and is serving a 25-year sentence in prison.`\
-https://nytimes.com/2024/09/13/technology/ftx-sam-bankman-fried-appeal.html
-
-**My Friend’s Husband Makes Me Fear for Her Safety — and Mine**\
-`The magazine’s Ethicist columnist on how to help a friend who’s in a volatile marriage.`\
-https://nytimes.com/2024/09/13/magazine/friends-husband-safety-ethics.html
-
-**Vance Describes Plan to End Ukraine War That Sounds a Lot Like Putin’s**\
-`Former President Donald J. Trump would tell the Russians, Ukrainians and Europeans to “figure out what a peaceful settlement looks like,” Senator JD Vance, his running mate, says.`\
-https://nytimes.com/2024/09/13/us/politics/vance-trump-ukraine-russia-war.html
 
