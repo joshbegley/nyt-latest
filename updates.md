@@ -1,3 +1,15 @@
+**Dak Prescott, CeeDee Lamb expecting better offensive production in home opener**\
+`Prescott aims to improve the Cowboys' third-down execution along with his connection with CeeDee Lamb this week against the Saints.`\
+https://nytimes.com/athletic/5764291/2024/09/13/dak-prescott-cowboys-offense-ceedee-lamb/
+
+**Ake out until next international break with injury, Guardiola fears**\
+`Pep Guardiola expects Nathan Ake to be out until the next international break after picking up an injury while away with the Netherlands.`\
+https://nytimes.com/athletic/5759813/2024/09/13/nathan-ake-man-city-injury/
+
+**Diplomacy Over Ukraine War Is About Bolstering Forces**\
+`For both Ukraine and Russia, battlefield gains now might provide an upper hand in any peace talks later. That’s reflected in their discussions over arms with allies.`\
+https://nytimes.com/2024/09/13/world/europe/ukraine-war-blinken-us-lammy.html
+
 **$300 for a New Checking Account? Banks Offer Bonuses to Attract Customers.**\
 `Facing competition for business, banks are offering incentives to switch. But as one expert put it, “You have to read the fine print.”`\
 https://nytimes.com/2024/09/13/your-money/bank-checking-savings-account-offers.html
