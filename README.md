@@ -1,3 +1,8 @@
+**For postseason, MLB to place advertisements on batting helmets**\
+`The move follows the league’s approval of sleeve patches on uniforms before the 2023 season.
+`\
+https://nytimes.com/athletic/5765123/2024/09/13/2024-mlb-postseason-advertisements-batting-helmets/
+
 **Solheim Cup's start marred by fan transportation issues**\
 `Delays in shuttle buses and security screening left thousands waiting outside and a noticeably empty grandstand around No. 1 tee.`\
 https://nytimes.com/athletic/5765159/2024/09/13/solheim-cup-fan-lpga-golf/
@@ -33,8 +38,4 @@ https://nytimes.com/2024/09/13/us/politics/election-night-results-timing.html
 **Giants, Daniel Jones need to bounce back. Game vs. Commanders provides golden opportunity**\
 `I’m not prepared for how messy things will get if the Giants lose this game. A win on Sunday will at least settle things down for a week.`\
 https://nytimes.com/athletic/5764478/2024/09/13/new-york-giants-daniel-jones-commanders-week-2/
-
-**Behind the Pac-12's poaching of the Mountain West and both leagues' next steps**\
-`After negotiations with the Mountain West broke down, the Pac-12 found an opportunity to live to fight another day.`\
-https://nytimes.com/athletic/5764885/2024/09/13/pac-12-realignment-mountain-west-members/
 
