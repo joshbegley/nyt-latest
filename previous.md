@@ -1,3 +1,7 @@
+**Earlier Investigation of School Shooting Suspect Ended Too Soon, Experts Say**\
+`The teenager charged in the Sept. 4 shooting in Georgia was questioned by the police last year about online threats. The investigator said he couldn’t determine if the teen had been the one behind them.`\
+https://nytimes.com/2024/09/13/us/georgia-school-shooting-apalachee-investigation.html
+
 **Parris joins Brighton from Manchester United**\
 `Brighton and Hove Albion have completed the signing of forward Nikita Parris from Manchester United.`\
 https://nytimes.com/athletic/5766058/2024/09/13/nikita-parris-brighton-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5764775/2024/09/13/matthijs-de-ligt-erik-ten-hag-ma
 **Guardiola: Premier League rivals want Man City punished**\
 `Pep Guardiola believes La Liga president Javier Tebas is correct to say that most Premier League clubs want to see Manchester City punished for allegedly breaching financial regulations.`\
 https://nytimes.com/athletic/5765126/2024/09/13/man-city-charges-pep-guardiola/
-
-**NASA Astronauts Speak to Media on Extended Stay in Orbit**\
-`The astronauts Suni Williams and Butch Wilmore expressed support for NASA and Boeing, following the decision for them to remain in orbit, while the troubled spacecraft they rode to the International Space Station returned to Earth uncrewed.`\
-https://nytimes.com/video/science/space/100000009691766/nasa-astronauts-boeing.html
 

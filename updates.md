@@ -1,3 +1,7 @@
+**Earlier Investigation of School Shooting Suspect Ended Too Soon, Experts Say**\
+`The teenager charged in the Sept. 4 shooting in Georgia was questioned by the police last year about online threats. The investigator said he couldn’t determine if the teen had been the one behind them.`\
+https://nytimes.com/2024/09/13/us/georgia-school-shooting-apalachee-investigation.html
+
 **Parris joins Brighton from Manchester United**\
 `Brighton and Hove Albion have completed the signing of forward Nikita Parris from Manchester United.`\
 https://nytimes.com/athletic/5766058/2024/09/13/nikita-parris-brighton-transfer/
