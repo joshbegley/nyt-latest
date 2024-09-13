@@ -1,3 +1,7 @@
+**Britain Is Prodding Biden to Allow Kyiv to Strike in Russia**\
+`Also, have some patience on election night. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2024/09/13/briefing/us-britain-ukraine-missiles-election-night-votes.html
+
 **The Week in Bad Political Behavior**\
 `Loomer versus Greene; the martyrdom of Eric Adams; the sheer looniness of Marianne Williamson.`\
 https://nytimes.com/live/2024/09/11/opinion/thepoint/week-bad-political-behavior
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/13/movies/francis-ford-coppola-megalopolis-variety-l
 **Real Madrid postpone concerts at the Bernabeu due to noise regulations**\
 `Real Madrid are postponing all upcoming concerts at the Santiago Bernabeu to comply with the capital city&#8217;s noise regulations.`\
 https://nytimes.com/athletic/5765998/2024/09/13/real-madrid-bernabeu-concerts/
-
-**Starliner Astronauts Say What They’ll Miss During Extended Stay in Space**\
-`Suni Williams and Butch Wilmore of NASA spoke from the International Space Station for the first time since their Boeing orbital transport returned to Earth uncrewed.`\
-https://nytimes.com/2024/09/13/science/boeing-starliner-astronauts-wilmore-williams.html
 
