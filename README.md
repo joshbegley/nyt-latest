@@ -1,3 +1,11 @@
+**Man United's Malacia closing in on return from knee injury**\
+`Manchester United defender Tyrell Malacia is closing in on a return to action having not played since May 2023, according to manager Erik ten Hag.`\
+https://nytimes.com/athletic/5764902/2024/09/13/manchester-united-malacia-ten-hag/
+
+**Dak Prescott, CeeDee Lamb expecting better offensive production in home opener**\
+`Prescott aims to improve the Cowboys' third-down execution along with his connection with CeeDee Lamb this week against the Saints.`\
+https://nytimes.com/athletic/5764291/2024/09/13/dak-prescott-cowboys-offense-ceedee-lamb/
+
 **Ake out until next international break with injury, Guardiola fears**\
 `Pep Guardiola expects Nathan Ake to be out until the next international break after picking up an injury while away with the Netherlands.`\
 https://nytimes.com/athletic/5759813/2024/09/13/nathan-ake-man-city-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5764103/2024/09/13/griffin-jax-twins-reliever-famil
 **No Russell Wilson reunion? Five keys for Broncos vs. Steelers in Week 2**\
 `Can the Broncos avoid being pushed around by Pittsburgh's oft-used heavy personnel packages? Can Bo Nix spread the wealth more on offense?`\
 https://nytimes.com/athletic/5762588/2024/09/13/broncos-steelers-week-2-keys/
-
-**Lowetide: How can the Oilers continue to prop up their prospect pipeline?**\
-`The Oilers have reinvested in signing amateur talent in an effort to supplement the recent loss of draft picks.`\
-https://nytimes.com/athletic/5762450/2024/09/13/edmonton-oilers-prospects-stefan-savoie/
-
-**Chelsea fan survey results: Where supporters stand on ownership crisis**\
-`The fallout from the Todd Boehly-Clearlake consortium situation has taken centre stage at Chelsea and we wanted to know your views`\
-https://nytimes.com/athletic/5762259/2024/09/13/chelsea-fan-survey-ownership/
 
