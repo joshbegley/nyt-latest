@@ -1,3 +1,11 @@
+**Trump Says He Won’t Sell Shares Tied to Truth Social**\
+`Mr. Trump, the largest shareholder in Trump Media & Technology Group, the parent company of Truth Social, said he won’t sell the shares when an restriction ends next week.`\
+https://nytimes.com/2024/09/13/business/trump-media-stock-truth-social.html
+
+**Harris Visits Red Areas of Pennsylvania, Hoping to Cut Into Trump’s Edge**\
+`The vice president, who stopped in Johnstown before a rally in Wilkes-Barre, is trying to compete in conservative-leaning areas that Donald Trump will win, but perhaps not by quite as much.`\
+https://nytimes.com/2024/09/13/us/politics/harris-pennsylvania-rally.html
+
 **What Is Pro-Life Realism?**\
 `Can pro-life states survive in a pro-choice country?`\
 https://nytimes.com/2024/09/13/opinion/pro-life-abortion-realism.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/13/us/burt-jones-trump-election-georgia.html
 **Pope Says Both Trump and Harris Are ‘Against Life’**\
 `He said American Catholic voters had to choose the “lesser of two evils” because of Donald Trump’s cruelty toward immigrants, and Kamala Harris’s support of abortion rights.`\
 https://nytimes.com/2024/09/13/world/europe/pope-us-election-abortion-immigration.html
-
-**What Angel Reese's injury means to the Sky's playoff hopes**\
-`What Angel Reese's injury means to the Sky's playoff hopes and four burning WNBA questions `\
-https://nytimes.com/athletic/5762680/2024/09/13/what-angel-reeses-injury-means-to-the-skys-playoff-hopes/
-
-**WNBA expansion Valkyries already eclipse 17K season ticket deposits**\
-`Earlier in the week, the Valkyries released renderings for their practice facility in Oakland.`\
-https://nytimes.com/athletic/5765800/2024/09/13/golden-state-valkyries-season-tickets-wnba/
 
