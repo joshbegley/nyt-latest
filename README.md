@@ -1,3 +1,11 @@
+**The Debate Over Debates Is Over, at Least for Now**\
+`Donald Trump’s rejection of a second meeting with Kamala Harris may or may not be final. But it could complicate his effort to portray her as ducking tough questions.`\
+https://nytimes.com/2024/09/13/us/politics/trump-harris-second-debate.html
+
+**49ers mailbag: Envisioning a McCaffrey-Mason duo; shadowing Justin Jefferson?**\
+`Questions this week include why the 49ers were reluctant to play Jacob Cowing and whether they're working on any contract extensions.`\
+https://nytimes.com/athletic/5765515/2024/09/13/49ers-christian-mccaffrey-jordan-mason-vikings/
+
 **Biden Slams Trump Over False Story of Pet-Eating Immigrants: ‘This Has to Stop’**\
 `The president made the comments at an event where he boasted of his work for Black Americans, implicitly trying to rally a critical Democratic constituency on behalf of Vice President Kamala Harris.`\
 https://nytimes.com/2024/09/13/us/politics/biden-trump-haitian-immigrants-cats-dogs.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5765563/2024/09/13/mlb-helmet-ads-postseason/
 **Donald Trump Prepares to Unveil a Cryptocurrency Business**\
 `Mr. Trump said he would introduce the project on Monday, continuing his embrace of the crypto industry, a major source of political donations.`\
 https://nytimes.com/2024/09/13/technology/donald-trump-cryptocurrency-business.html
-
-**Biden Administration Is Likely to Delay Decision Over U.S. Steel**\
-`The White House has faced backlash for politicizing its review of Nippon Steel’s takeover of the company.`\
-https://nytimes.com/2024/09/13/business/us-steel-nippon-biden.html
-
-**‘Slow Horses’ Review: Bucking the Odds**\
-`The sardonic British series about spies no one wants is as likable as ever in its fourth season. Is that enough?`\
-https://nytimes.com/2024/09/13/arts/television/slow-horses-review.html
 
