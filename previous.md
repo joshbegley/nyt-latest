@@ -1,3 +1,15 @@
+**Brazilian Court Makes One Musk Company Pay Fines of Another**\
+`A Brazilian Supreme Court justice said that because Elon Musk controlled both X and Starlink, one company was responsible for the fines of the other.`\
+https://nytimes.com/2024/09/13/world/americas/brazil-musk-x-starlink.html
+
+**Bronny James' Summer League debut jersey sells for $38,400, surpassing expectations**\
+`Bronny James&#8217; jersey from his NBA Summer League debut with the LA Lakers sold at auction for $38,400 on Friday.`\
+https://nytimes.com/athletic/5765813/2024/09/13/bronny-james-jersey-sale-lakers/
+
+**Marco Luciano is still looking for his first home run. How worried should you be?**\
+`Luciano has played 38 MLB games without hitting a home run. He has some good company among players who have had similar starts.`\
+https://nytimes.com/athletic/5764615/2024/09/13/sf-giants-marco-luciano-homerless-streak/
+
 **Trump Says He Won’t Sell Shares Tied to Truth Social**\
 `Donald J. Trump, the largest shareholder in the parent company of Truth Social, said he won’t sell his stock when a restriction ends next week.`\
 https://nytimes.com/2024/09/13/business/trump-media-stock-truth-social.html
@@ -25,16 +37,4 @@ https://nytimes.com/2024/09/13/sports/stephen-peat-dead-washington-capitals.html
 **Vikings' Jordan Addison (ankle) out vs. 49ers**\
 `Addison injured his ankle in the third quarter of Sunday's game against the Giants.`\
 https://nytimes.com/athletic/5765837/2024/09/13/jordan-addison-injury-status-vikings-49ers/
-
-**Biden Briefly Wears Trump Hat in Show of Unity, Says White House**\
-`During a visit to Shanksville Volunteer Fire Department in Pennsylvania, the president joked with the crowd as he placed the hat over his own.`\
-https://nytimes.com/video/us/politics/100000009691518/biden-trump-hat.html
-
-**No Charges for Georgia’s Lieutenant Governor in Trump Election Case**\
-`The decision not to indict Lt. Gov. Burt Jones was made by Pete Skandalakis, who is a veteran Georgia prosecutor and a fellow Republican.`\
-https://nytimes.com/2024/09/13/us/burt-jones-trump-election-georgia.html
-
-**Pope Says Both Trump and Harris Are ‘Against Life’**\
-`He said American Catholic voters had to choose the “lesser of two evils” because of Donald Trump’s cruelty toward immigrants, and Kamala Harris’s support of abortion rights.`\
-https://nytimes.com/2024/09/13/world/europe/pope-us-election-abortion-immigration.html
 

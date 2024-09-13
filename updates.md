@@ -1,3 +1,15 @@
+**Brazilian Court Makes One Musk Company Pay Fines of Another**\
+`A Brazilian Supreme Court justice said that because Elon Musk controlled both X and Starlink, one company was responsible for the fines of the other.`\
+https://nytimes.com/2024/09/13/world/americas/brazil-musk-x-starlink.html
+
+**Bronny James' Summer League debut jersey sells for $38,400, surpassing expectations**\
+`Bronny James&#8217; jersey from his NBA Summer League debut with the LA Lakers sold at auction for $38,400 on Friday.`\
+https://nytimes.com/athletic/5765813/2024/09/13/bronny-james-jersey-sale-lakers/
+
+**Marco Luciano is still looking for his first home run. How worried should you be?**\
+`Luciano has played 38 MLB games without hitting a home run. He has some good company among players who have had similar starts.`\
+https://nytimes.com/athletic/5764615/2024/09/13/sf-giants-marco-luciano-homerless-streak/
+
 **Trump Says He Won’t Sell Shares Tied to Truth Social**\
 `Donald J. Trump, the largest shareholder in the parent company of Truth Social, said he won’t sell his stock when a restriction ends next week.`\
 https://nytimes.com/2024/09/13/business/trump-media-stock-truth-social.html
