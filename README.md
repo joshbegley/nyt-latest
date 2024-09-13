@@ -1,3 +1,7 @@
+**No Charges for Georgia’s Lieutenant Governor in Trump Election Case**\
+`The decision not to indict Lt. Gov. Burt Jones was made by Pete Skandalakis, who is a veteran Georgia prosecutor and a fellow Republican.`\
+https://nytimes.com/2024/09/13/us/burt-jones-trump-election-georgia.html
+
 **Pope Says Both Trump and Harris Are ‘Against Life’**\
 `He said American Catholic voters had to choose the “lesser of two evils” because of Donald Trump’s cruelty toward immigrants, and Kamala Harris’s support of abortion rights.`\
 https://nytimes.com/2024/09/13/world/europe/pope-us-election-abortion-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/13/world/middleeast/israel-raid-syria-hezbollah.html
 **Trump Divides Arizona’s Crucial Mormon Vote**\
 `Traditionally Republican members of the Church of Jesus Christ of Latter-day Saints balked at Donald Trump in 2020, helping Joe Biden win a key swing state. Will they do so with Kamala Harris?`\
 https://nytimes.com/2024/09/13/us/politics/trump-divides-arizonas-crucial-mormon-vote.html
-
-**Ravens' Nate Wiggins (neck) out vs. Raiders after car accident**\
-`Baltimore selected Wiggins with the 30th overall pick of this year's NFL Draft. `\
-https://nytimes.com/athletic/5765750/2024/09/13/nate-wiggins-ravens-car-accident/
 
