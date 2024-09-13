@@ -22,7 +22,7 @@ https://nytimes.com/2024/09/13/health/bird-flu-missouri.html
 `The decision is a crucial step in getting shots to the Democratic Republic of Congo, the center of the outbreak.`\
 https://nytimes.com/2024/09/13/health/mpox-vaccine-world-health-organization.html
 
-**Biden and Starmer Aim to Help Ukraine Without Triggering a Wider Conflict**\
+**Meeting With Biden, British Leader Hints at Ukraine Weapon Decision Soon**\
 `The question of whether to let Ukraine use long-range weapons in Russia has been a rare point of disagreement between British and American officials.`\
 https://nytimes.com/2024/09/13/us/politics/biden-starmer-ukraine-russia-missiles.html
 
