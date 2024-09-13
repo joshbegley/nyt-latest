@@ -1,3 +1,7 @@
+**Boeing Union Members Vote to Strike**\
+`Thousands of machinists and aerospace workers walked off the job on Friday, after rejecting a proposal that would have delivered raises and improvements to benefits but fell short of what the union initially sought.`\
+https://nytimes.com/video/business/100000009690433/boeing-union-strike-iam.html
+
 **In a Transformed Neighborhood, a Funeral Home Finds New Life as a Gym**\
 `The former Scotto Funeral Home, a landmark of bygone Brooklyn, is reopening after a multiyear renovation and Catholic blessing — as a boutique gym.`\
 https://nytimes.com/2024/09/13/nyregion/district-gym-scotto-funeral-home-carroll-gardens.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/13/world/asia/north-korea-nuclear-weapons.html
 **Five observations from the Bills' blowout win over the Dolphins**\
 `The Bills have gotten off to a 2-0 start despite injuries on both sides of the ball.`\
 https://nytimes.com/athletic/5764626/2024/09/13/buffalo-bills-miami-dolphins-james-cook-jamarcus-ingram/
-
-**A Long Life, Thanks to Where You Live? Not Likely, Says Ig Nobel Winner.**\
-`An Australian researcher found that many areas that supposedly produce lots of centenarians also produce shoddy record-keeping.`\
-https://nytimes.com/2024/09/13/world/australia/ig-nobel-awards.html
 
