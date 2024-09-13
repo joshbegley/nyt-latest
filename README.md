@@ -1,3 +1,7 @@
+**At a Key Moment in Trump’s Campaign, a Social-Media Instigator Is at His Side**\
+`The former president’s decision to elevate Laura Loomer, a far-right activist known for racist and homophobic posts online, has stunned even some Trump allies.`\
+https://nytimes.com/2024/09/12/us/politics/trump-laura-loomer.html
+
 **Arson charges were filed in the Line fire, which has displaced thousands of people.**\
 `By Soumya Karlamangla`\
 https://nytimes.com/live/2024/09/12/us/california-wildfires-idaho-oregon/arson-charges-were-filed-in-the-line-fire-which-has-displaced-thousands-of-people
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/12/nyregion/thomas-donlon-nypd.html
 **Mexico Remakes Its Entire Judicial System as States Back Vast Overhaul**\
 `The plan, championed by Mexico’s president, would have voters elect judges at every level, dramatically restructuring the third branch of government.`\
 https://nytimes.com/2024/09/12/world/americas/mexico-courts-overhaul-states-approve.html
-
-**Astros' Framber Valdez brought back his hair extensions and has been elite ever since**\
-`The Astros have won 13 of the 14 games Valdez has started since he reintroduced his hair extensions.`\
-https://nytimes.com/athletic/5764125/2024/09/12/astros-framber-valdez-hair-extensions/
 
