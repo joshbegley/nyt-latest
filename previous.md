@@ -1,3 +1,7 @@
+**In Tulkarm, residents want to rebuild but fear more destructive Israeli raids.**\
+`By Raja Abdulrahim`\
+https://nytimes.com/live/2024/09/13/world/israel-hamas-gaza-war/in-tulkarm-residents-want-to-rebuild-but-fear-more-destructive-israeli-raids
+
 **What you need to know about 2024's junior Grand Slam champions**\
 `Being a junior Grand Slam champion is not a one-way ticket to tennis success.`\
 https://nytimes.com/athletic/5763164/2024/09/13/junior-grand-slam-champions-2024-australian-french-wimbledon-us-open/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/5763540/2024/09/13/penguins-sidney-crosby-rutger-mc
 **Where Voters Will Decide on Abortion in November**\
 `Ten states could expand abortion rights via ballot measures. Nebraska will also vote on proposed restrictions.`\
 https://nytimes.com/interactive/2024/us/politics/abortion-ballot-states.html
-
-**Harris or Trump? Once Again, Election Results Could Take a While.**\
-`More Americans are using mail-in ballots, which take longer to count than those cast in person. In several battleground states, a winner may not be apparent on Nov. 5.`\
-https://nytimes.com/2024/09/13/us/politics/election-night-results-timing.html
 
