@@ -1,3 +1,7 @@
+**Vikings-49ers preview, predictions: How will Sam Darnold look against his former team?**\
+`From the new-look defensive line to a serious test for Darnold, there will be plenty of interesting storylines to follow in Week 2.`\
+https://nytimes.com/athletic/5763773/2024/09/13/49ers-vikings-preview-predictions-week-2/
+
 **What will the Mountain West do next? Ranking expansion candidates after the Pac-12's raid**\
 `Ranking FCS powers like North Dakota State and FBS programs like UTEP and New Mexico State as possible Mountain West targets.`\
 https://nytimes.com/athletic/5763677/2024/09/13/mountain-west-expansion-candidates-north-dakota-state-utep/
