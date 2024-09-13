@@ -1,3 +1,7 @@
+**California Man Assaulted Frontier Flight Attendants, Prosecutors Say**\
+`The violent episode resulted in an emergency landing. The man now faces federal flight interference charges.`\
+https://nytimes.com/2024/09/12/us/frontier-airlines-passenger-assault.html
+
 **‘Counting and Cracking’ Review: One Family’s Tale Fit for an Epic**\
 `No theatrical wizardry is needed for this compelling drama about a woman’s journey to Australia from war-torn Sri Lanka and the generations that follow.`\
 https://nytimes.com/2024/09/12/theater/counting-and-cracking-review.html
