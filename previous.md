@@ -1,3 +1,11 @@
+**The White Sox — 81 games under .500! — are piling up mind-blowing numbers for the ages**\
+`Unless you are 108 years old, you've never seen a team that's 81 games under .500. The White Sox are racking up truly head-spinning numbers.`\
+https://nytimes.com/athletic/5763839/2024/09/13/white-sox-wild-stats-losing/
+
+**Spencer Schwellenbach, Casey Mize and DL Hall on their unique paths as young MLB starters**\
+`It takes time for younger pitchers to figure out how to succeed in the majors. Here's what three starters have done to succeed.`\
+https://nytimes.com/athletic/5761027/2024/09/13/spencer-schwellenback-casey-mize-dl-hall/
+
 **Falcons acknowledge shoddy offensive operation in opener, vow to clean it up**\
 `The Falcons managed only one touchdown in their Week 1 loss, but new offensive coordinator Zac Robinson remains confident.`\
 https://nytimes.com/athletic/5764022/2024/09/13/falcons-offense-kirk-cousins-zac-robinson/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/5763899/2024/09/13/nebraska-football-quarterbacks-j
 **The Fight Against Three Major Wildfires in Southern California: What We Know**\
 `Weather conditions have given firefighters a better chance of preventing more damage from the blazes that have displaced tens of thousands of residents.`\
 https://nytimes.com/2024/09/13/us/california-fires-what-we-know.html
-
-**The Dirtiest Trick Whitey Bulger Ever Played on Boston**\
-`A generation of students was lost amid the violence that surrounded the advent of busing.`\
-https://nytimes.com/live/2024/09/11/opinion/thepoint/boston-bulger-busing-anniversary
-
-**How to Watch the Emmy Awards**\
-`The Emmys are on Sunday night at 8 p.m. Eastern, two hours after the red carpet festivities begin.`\
-https://nytimes.com/2024/09/13/arts/television/how-to-watch-the-emmy-awards.html
 
