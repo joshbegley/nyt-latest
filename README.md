@@ -1,3 +1,7 @@
+**Arson charges were filed in the Line fire, which has displaced thousands of people.**\
+`By Soumya Karlamangla`\
+https://nytimes.com/live/2024/09/12/us/california-wildfires-idaho-oregon/arson-charges-were-filed-in-the-line-fire-which-has-displaced-thousands-of-people
+
 **Review: Patti LuPone and Mia Farrow Clean Up in ‘The Roommate’**\
 `A Bronx grifter and an Iowa homebody share a house and eventually learn from each other in this Broadway star vehicle.`\
 https://nytimes.com/2024/09/12/theater/the-roommate-review-lupone-farrow.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/12/world/americas/mexico-courts-overhaul-states-appr
 **Astros' Framber Valdez brought back his hair extensions and has been elite ever since**\
 `The Astros have won 13 of the 14 games Valdez has started since he reintroduced his hair extensions.`\
 https://nytimes.com/athletic/5764125/2024/09/12/astros-framber-valdez-hair-extensions/
-
-**MLB says A’s move to Sacramento ‘a certainty’**\
-`Before the A's move to Las Vegas in 2028, the team will play in Sacramento at the Triple-A stadium of the San Francisco Giants.`\
-https://nytimes.com/athletic/5763996/2024/09/12/oakland-as-sacramento-move-developments/
 
