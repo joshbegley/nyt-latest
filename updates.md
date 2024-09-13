@@ -1,3 +1,11 @@
+**‘Counting and Cracking’ Review: One Family’s Tale Fit for an Epic**\
+`No theatrical wizardry is needed for this compelling drama about a woman’s journey to Australia from war-torn Sri Lanka and the generations that follow.`\
+https://nytimes.com/2024/09/12/theater/counting-and-cracking-review.html
+
+**Gets High on a Kite**\
+`Boaz Moser makes his New York Times Crossword debut.`\
+https://nytimes.com/2024/09/12/crosswords/daily-puzzle-2024-13.html
+
 **Is my house still there? Are my relatives safe? Fire evacuees worry, and wonder what comes next.**\
 `By Rachel Parsons`\
 https://nytimes.com/live/2024/09/12/us/california-wildfires-idaho-oregon/is-my-house-still-there-are-my-relatives-safe-fire-evacuees-worry-and-wonder-what-comes-next
