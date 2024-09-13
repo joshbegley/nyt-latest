@@ -1,3 +1,7 @@
+**A Long Life, Thanks to Where You Live? Not Likely, Says Ig Nobel Winner.**\
+`An Australian researcher found that many areas that supposedly produce lots of centenarians also produce shoddy record-keeping.`\
+https://nytimes.com/2024/09/13/world/australia/ig-nobel-awards.html
+
 **Next week’s waiver wire: Bucky Irving, Demarcus Robinson and more players to add now — before the Week 3 rush**\
 `John Laghezza helps you get ahead of the competition, looking at stat trends and predicting which players will be hot adds... next week. `\
 https://nytimes.com/athletic/5762537/2024/09/13/week-3-fantasy-football-early-waiver-bucky-irving-demarcus-robinson/

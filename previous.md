@@ -1,3 +1,7 @@
+**A Long Life, Thanks to Where You Live? Not Likely, Says Ig Nobel Winner.**\
+`An Australian researcher found that many areas that supposedly produce lots of centenarians also produce shoddy record-keeping.`\
+https://nytimes.com/2024/09/13/world/australia/ig-nobel-awards.html
+
 **Next week’s waiver wire: Bucky Irving, Demarcus Robinson and more players to add now — before the Week 3 rush**\
 `John Laghezza helps you get ahead of the competition, looking at stat trends and predicting which players will be hot adds... next week. `\
 https://nytimes.com/athletic/5762537/2024/09/13/week-3-fantasy-football-early-waiver-bucky-irving-demarcus-robinson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5762089/2024/09/13/what-im-seeing-at-arsenal/
 **'Iliman is the inspiration - to be playing for a club like Everton is unbelievable'**\
 `Ndiaye has gone from park pitches in London to the World Cup - and has made an impressive start at Everton. He is driven to succeed`\
 https://nytimes.com/athletic/5762121/2024/09/13/iliman-ndiaye-everton-non-league/
-
-**What I'm seeing at City: Rotation season, potential punishments and Grealish the No 10?**\
-`Our writer details what is going on at the club following the end of the international break and the return of Premier League football`\
-https://nytimes.com/athletic/5762241/2024/09/13/what-i-am-seeing-manchester-city/
 
