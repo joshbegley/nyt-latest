@@ -1,3 +1,11 @@
+**Ancelotti unbothered by Saudi interest in Vinicius Jr**\
+`Carlo Ancelotti has stated he has &#8220;never spoken&#8221; to Vinicius Junior about interest in the Real Madrid forward from Saudi Arabia.`\
+https://nytimes.com/athletic/5764865/2024/09/13/vinicius-junior-carlo-ancelotti-saudi-real-madrid/
+
+**Chelsea announce Jackson contract extension until 2033**\
+`Chelsea have announced that Nicolas Jackson has signed a two-year contract extension with the club.`\
+https://nytimes.com/athletic/5764877/2024/09/13/chelsea-nicolas-jackson-contract-length/
+
 **The Pulse: A scary night for Tua**\
 `The Pulse Newsletter 📣 | This is The Athletic’s daily sports newsletter.`\
 https://nytimes.com/athletic/5763280/2024/09/13/tua-tagovailoa-injury-bills-the-pulse/
