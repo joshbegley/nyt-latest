@@ -1,3 +1,11 @@
+**WNBA expansion Valkyries already eclipse 17K season ticket deposits**\
+`Earlier in the week, the Valkyries released renderings for their practice facility in Oakland.`\
+https://nytimes.com/athletic/5765800/2024/09/13/golden-state-valkyries-season-tickets-wnba/
+
+**Sam Bankman-Fried Files Appeal to Overturn Fraud Conviction**\
+`Mr. Bankman-Fried, the founder of the collapsed FTX cryptocurrency exchange, was convicted last fall and is serving a 25-year sentence in prison.`\
+https://nytimes.com/2024/09/13/technology/ftx-sam-bankman-fried-appeal.html
+
 **My Friend’s Husband Makes Me Fear for Her Safety — and Mine**\
 `The magazine’s Ethicist columnist on how to help a friend who’s in a volatile marriage.`\
 https://nytimes.com/2024/09/13/magazine/friends-husband-safety-ethics.html
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/13/world/europe/keir-starmer-biden-russia-missiles.h
 **Maple Leafs 2024-25 prospect outlook: What to expect from Cowan, Minten and more**\
 `Ahead of the annual Maple Leafs prospect tournament, let’s look at what they need to do to have a successful 2024-25 campaign.`\
 https://nytimes.com/athletic/5765210/2024/09/13/maple-leafs-2024-25-prospects-cowan-minten/
-
-**Blood Red Is the New Barbie Pink**\
-`And other cultural predictions based on movies that played at the Toronto International Film Festival, including Pedro Almodóvar’s latest.`\
-https://nytimes.com/2024/09/13/t-magazine/toronto-international-film-festival-predictions.html
-
-**Sweden Will Offer Migrants $34,000 to Go Home**\
-`The government greatly increased a grant to encourage more immigrants to return home. Critics say it sends the wrong message and, in any case, may not tempt many refugees.`\
-https://nytimes.com/2024/09/13/world/europe/sweden-immigration-reform.html
 
