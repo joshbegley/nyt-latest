@@ -1,3 +1,15 @@
+**Some Gazans Say Polio Drive Is Futile While Israel Keeps Bombing**\
+`As a United Nations-backed anti-polio campaign appears to be succeeding, some Gazans say it won’t make a difference because Israeli attacks are a more immediate threat.`\
+https://nytimes.com/live/2024/09/13/world/israel-hamas-gaza-war
+
+**Some Gazans say polio vaccinations won’t make a difference because Israeli attacks are a greater threat.**\
+`Palestinians living with the daily fear of Israeli strikes see a level of absurdity in the international drive to vaccinate their children.`\
+https://nytimes.com/2024/09/13/world/middleeast/gaza-polio-vaccination-futility.html
+
+**An oil tanker still burning in the Red Sea raises alarms at a U.N. Security Council meeting.**\
+`By Ephrat Livni`\
+https://nytimes.com/2024/09/13/world/middleeast/an-oil-tanker-still-burning-in-the-red-sea-raises-alarms-at-a-un-security-council-meeting.html
+
 **Boeing Union Members Vote to Strike**\
 `Thousands of machinists and aerospace workers walked off the job on Friday, after rejecting a proposal that would have delivered raises and improvements to benefits but fell short of what the union initially sought.`\
 https://nytimes.com/video/business/100000009690433/boeing-union-strike-iam.html
