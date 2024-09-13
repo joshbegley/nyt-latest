@@ -1,3 +1,7 @@
+**Trump Defends Debate Performance and Calls for Ending Tax on Overtime**\
+`Speaking at an event in Tucson, Ariz., former President Donald J. Trump called for eliminating taxes on overtime pay as he declared Tuesday’s debate a “monumental victory” for him.`\
+https://nytimes.com/2024/09/12/us/politics/trump-debate-tucson-rally-arizona.html
+
 **Border Agents Made Decision to Confront Gunman in Uvalde, Report Finds**\
 `A report by the federal border agency on the school shooting in 2022 found that its agents lacked adequate training and authority to respond to active shooter situations.`\
 https://nytimes.com/2024/09/12/us/uvalde-shooting-police-bortac.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/12/us/politics/trump-harris-mail-ballots-election.ht
 **Antisemitic Ads About Doug Emhoff Target Muslim Voters in Michigan**\
 `An ad campaign in the state, funded by a group that appears tied to Republicans, seems designed to remind Muslim voters of Kamala Harris’s pro-Israel views and her husband’s Jewish faith.`\
 https://nytimes.com/2024/09/12/us/politics/antisemitic-ads-doug-emhoff-muslim-michigan.html
-
-**How a Cultural Shift Favors Harris**\
-`People can be bitter for only so long. Harris’s happy strength may offer a glimpse of a sunnier national mood to come.`\
-https://nytimes.com/2024/09/12/opinion/trump-harris-joy.html
 

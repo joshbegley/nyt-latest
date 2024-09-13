@@ -1,3 +1,7 @@
+**Trump Defends Debate Performance and Calls for Ending Tax on Overtime**\
+`Speaking at an event in Tucson, Ariz., former President Donald J. Trump called for eliminating taxes on overtime pay as he declared Tuesday’s debate a “monumental victory” for him.`\
+https://nytimes.com/2024/09/12/us/politics/trump-debate-tucson-rally-arizona.html
+
 **Border Agents Made Decision to Confront Gunman in Uvalde, Report Finds**\
 `A report by the federal border agency on the school shooting in 2022 found that its agents lacked adequate training and authority to respond to active shooter situations.`\
 https://nytimes.com/2024/09/12/us/uvalde-shooting-police-bortac.html
