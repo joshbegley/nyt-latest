@@ -1,3 +1,7 @@
+**Is my house still there? Are my relatives safe? Fire evacuees worry, and wonder what comes next.**\
+`By Rachel Parsons`\
+https://nytimes.com/live/2024/09/12/us/california-wildfires-idaho-oregon/is-my-house-still-there-are-my-relatives-safe-fire-evacuees-worry-and-wonder-what-comes-next
+
 **At a Key Moment in Trump’s Campaign, a Social-Media Instigator Is at His Side**\
 `The former president’s decision to elevate Laura Loomer, a far-right activist known for racist and homophobic posts online, has stunned even some Trump allies.`\
 https://nytimes.com/2024/09/12/us/politics/trump-laura-loomer.html
