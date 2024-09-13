@@ -1,3 +1,7 @@
+**‘Slow Horses’ Review: Bucking the Odds**\
+`The sardonic British series about spies no one wants is as likable as ever in its fourth season. Is that enough?`\
+https://nytimes.com/2024/09/13/arts/television/slow-horses-review.html
+
 **Timberlake Pleads Guilty to Driving While Impaired**\
 `Justin Timberlake was originally arrested in the Hamptons on drunken-driving charges, a more severe crime.`\
 https://nytimes.com/video/us/100000009691151/justin-timberlake-hamptons.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/13/dining/late-summer-recipes-for-early-cozy-season.
 **Chiefs' Marquise Brown expected to go on IR**\
 `Brown, the Chiefs’ biggest acquisition in free agency, is expected to miss several months as part of his rehab.`\
 https://nytimes.com/athletic/5765503/2024/09/13/marquise-brown-injury-surgery-chiefs/
-
-**The Weeknd’s Glimmering Synth-Pop, and 8 More New Songs**\
-`Hear tracks by Soccer Mommy, FKA twigs, Reyna Tropical and others.`\
-https://nytimes.com/2024/09/13/arts/music/playlist-the-weeknd-fka-twigs.html
 
