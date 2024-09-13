@@ -1,3 +1,11 @@
+**Here’s the latest on the presidential race.**\
+`By Chris Cameron`\
+https://nytimes.com/live/2024/09/13/us/harris-trump-election/heres-the-latest-on-the-presidential-race
+
+**Election Live Updates: Campaigns Ride Post-Debate Wave Into a Packed Friday**\
+`Vice President Kamala Harris and former President Donald J. Trump will close out a busy week during which Ms. Harris enjoyed a big fund-raising haul and a surprise celebrity endorsement.`\
+https://nytimes.com/live/2024/09/13/us/harris-trump-election
+
 **Man United's Malacia closing in on return from knee injury**\
 `Manchester United defender Tyrell Malacia is closing in on a return to action having not played since May 2023, according to manager Erik ten Hag.`\
 https://nytimes.com/athletic/5764902/2024/09/13/manchester-united-malacia-ten-hag/
