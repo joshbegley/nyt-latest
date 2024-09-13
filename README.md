@@ -1,3 +1,7 @@
+**Jameson Williams is having fun right where he belongs**\
+`After two interrupted seasons, Jameson Williams is finally coming into his own.`\
+https://nytimes.com/athletic/5764188/2024/09/13/detroit-lions-wr-jameson-williams/
+
 **$300 for a New Checking Account? Banks Offer Bonuses to Attract Customers.**\
 `Facing competition for business, banks are offering incentives to switch. But as one expert put it, “You have to read the fine print.”`\
 https://nytimes.com/2024/09/13/your-money/bank-checking-savings-account-offers.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2024/09/13/us/harris-trump-election/heres-the-latest-on
 **Election Live Updates: Campaigns Ride Post-Debate Wave Into a Packed Friday**\
 `Vice President Kamala Harris and former President Donald J. Trump will close out a busy week during which Ms. Harris enjoyed a big fund-raising haul and a surprise celebrity endorsement.`\
 https://nytimes.com/live/2024/09/13/us/harris-trump-election
-
-**Man United's Malacia closing in on return from knee injury**\
-`Manchester United defender Tyrell Malacia is closing in on a return to action having not played since May 2023, according to manager Erik ten Hag.`\
-https://nytimes.com/athletic/5764902/2024/09/13/manchester-united-malacia-ten-hag/
 
