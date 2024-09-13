@@ -1,3 +1,15 @@
+**What Is Pro-Life Realism?**\
+`Can pro-life states survive in a pro-choice country?`\
+https://nytimes.com/2024/09/13/opinion/pro-life-abortion-realism.html
+
+**Tiger Woods undergoes surgery for nerve damage in back**\
+`This is Woods' sixth back surgery and fifth microdecompression (microdiscectomy) surgery, the first since 2021.`\
+https://nytimes.com/athletic/5765823/2024/09/13/tiger-woods-back-surgery/
+
+**Robert Caro on 50 Years of ‘The Power Broker’**\
+`The Pulitzer-winning biographer revisits his seminal 1974 life of the New York City bureaucrat Robert Moses.`\
+https://nytimes.com/2024/09/13/books/review/podcast-robert-caro-power-broker-interview.html
+
 **Stephen Peat, Former Washington Capitals Player, Dies at 44**\
 `The N.H.L. Alumni Association said that Peat had died of injuries from a “tragic accident” that occurred more than two weeks ago.`\
 https://nytimes.com/2024/09/13/sports/stephen-peat-dead-washington-capitals.html
