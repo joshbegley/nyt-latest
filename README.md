@@ -26,7 +26,7 @@ https://nytimes.com/athletic/5760647/2024/09/13/hawk-harrelson-white-sox-wont-wa
 `Jessica Ramos, a state senator from Queens, is the latest candidate to challenge Mayor Eric Adams as his administration faces a series of federal investigations.`\
 https://nytimes.com/2024/09/13/nyregion/jessica-ramos-mayor-adams.html
 
-**Howe dismisses talk of 'civil war' at Newcastle**\
+**Howe dismisses talk of 'civil war' with Mitchell, defends transfer record**\
 `Eddie Howe has robustly defended his transfer record at Newcastle United following Paul Mitchell&#8217;s critique of the club&#8217;s post-takeover recruitment, but insists there is no &#8220;civil war&#8221; at St James&#8217; Park.`\
 https://nytimes.com/athletic/5764695/2024/09/13/eddie-howe-newcastle-paul-mitchell/
 
