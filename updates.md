@@ -13,6 +13,11 @@ https://nytimes.com/athletic/5765123/2024/09/13/2024-mlb-postseason-advertisemen
 `\
 https://nytimes.com/athletic/5765123/2024/09/13/2024-mlb-postseason-advertisements-batting-helmets/
 
+**For postseason, MLB to place advertisements on batting helmets**\
+`The move follows the league’s approval of sleeve patches on uniforms before the 2023 season.
+`\
+https://nytimes.com/athletic/5765123/2024/09/13/2024-mlb-postseason-advertisements-batting-helmets/
+
 **In Tulkarm, residents want to rebuild but fear more destructive Israeli raids.**\
 `By Raja Abdulrahim`\
 https://nytimes.com/live/2024/09/13/world/israel-hamas-gaza-war/in-tulkarm-residents-want-to-rebuild-but-fear-more-destructive-israeli-raids
