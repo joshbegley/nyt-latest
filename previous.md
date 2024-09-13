@@ -1,3 +1,27 @@
+**Sweden Will Offer Migrants $34,000 to Go Home**\
+`The government greatly increased a grant to encourage more immigrants to return home. Critics say it sends the wrong message and, in any case, may not tempt many refugees.`\
+https://nytimes.com/2024/09/13/world/europe/sweden-immigration-reform.html
+
+**U.S. Accuses Russian TV Network of Conducting Covert Intelligence Acts**\
+`Sanctions announced on Friday are an effort to undercut RT by making it difficult for the network to conduct global business in dollars.`\
+https://nytimes.com/2024/09/13/us/politics/russia-sanctions-disinformation-rt.html
+
+**Worried About Kamala Harris? ‘That’s Tomorrow’s Problem.’**\
+`There is nothing more baffling than the undecided voter.`\
+https://nytimes.com/live/2024/09/11/opinion/thepoint/kamala-harris-undecided
+
+**Putin Warns Ukraine’s Use of Long-Range Weapons Would Put NATO ‘At War’ with Russia**\
+`The Russian president said that western support for Ukrainian strikes deep inside Russia would change the "nature of the conflict dramatically.”`\
+https://nytimes.com/2024/09/13/world/europe/putin-warns-nato-at-war-ukraine.html
+
+**A French Punk Feminist Takes on #MeToo and Addiction**\
+`Virginie Despentes confronts sexual politics in an epistolary novel with a stubbornly idealistic streak.`\
+https://nytimes.com/2024/09/13/books/virginie-despentes-dear-dickhead.html
+
+**Dolphins' McDaniel: Wrong to discuss Tua's career right now**\
+`Tagovailoa must be cleared by the Dolphins' team physician, in addition to clearance from an independent neurologist.`\
+https://nytimes.com/athletic/5765220/2024/09/13/mike-mcdaniel-tua-tagovailoa-concussion-dolphins/
+
 **The Debate Over Debates Is Over, at Least for Now**\
 `Donald Trump’s rejection of a second meeting with Kamala Harris may or may not be final. But it could complicate his effort to portray her as ducking tough questions.`\
 https://nytimes.com/2024/09/13/us/politics/trump-harris-second-debate.html
@@ -13,28 +37,4 @@ https://nytimes.com/2024/09/13/us/politics/biden-trump-haitian-immigrants-cats-d
 **Raiders' Pierce on Tagovailoa: 'I would tell him to retire'**\
 `"He's going to live longer than he's going to play football," Raiders coach Antonio Pierce said. "Take care of your family."`\
 https://nytimes.com/athletic/5765639/2024/09/13/antonio-pierce-tua-tagovailoa-retire/
-
-**Timberlake Pleads Guilty to Driving While Impaired in Hamptons Case**\
-`The pop star agreed to pay a $500 fine and serve 25 hours of community service at a charity of his choosing.`\
-https://nytimes.com/2024/09/13/nyregion/justin-timberlake-plea-deal.html
-
-**Georgia's Daniel Harris arrested on reckless driving charge**\
-`CB Daniel Harris is the latest Georgia football player to have a driving-related arrest.`\
-https://nytimes.com/athletic/5765637/2024/09/13/daniel-harris-georgia-reckless-driving/
-
-**Rebecca Horn, Enigmatic Artist With Theatrical Flair, Dies at 80**\
-`Her work in sculpture, performance, film and more didn’t represent anything in particular so much as it evoked an experience.`\
-https://nytimes.com/2024/09/13/arts/rebecca-horn-dead.html
-
-**5 of My Most Anticipated Albums of the Fall**\
-`A new indie-rock supergroup, a fruitful (if unexpected) partnership, an alt-rock icon going solo and more.`\
-https://nytimes.com/2024/09/13/arts/music/amplifier-newsletter-fall-albums.html
-
-**Kepner: MLB's latest tasteless cash grab? Ads on helmets**\
-`Yes, the NBA and NHL and soccer have advertising patches. Wouldn’t it be wonderful if baseball held itself to a higher standard?`\
-https://nytimes.com/athletic/5765563/2024/09/13/mlb-helmet-ads-postseason/
-
-**Donald Trump Prepares to Unveil a Cryptocurrency Business**\
-`Mr. Trump said he would introduce the project on Monday, continuing his embrace of the crypto industry, a major source of political donations.`\
-https://nytimes.com/2024/09/13/technology/donald-trump-cryptocurrency-business.html
 
