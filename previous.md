@@ -1,3 +1,7 @@
+**The State of the War in Ukraine**\
+`We explain using maps.`\
+https://nytimes.com/2024/09/13/briefing/the-state-of-the-war-in-ukraine.html
+
 **Twins top prospect check-ins: Walker Jenkins, Emmanuel Rodriguez, Luke Keaschall**\
 `Minnesota's vastly improved farm system is headlined by a trio of outfielders who could each enter the Twins' plans in 2025.`\
 https://nytimes.com/athletic/5760020/2024/09/13/twins-prospects-walker-jenkins-emmanuel-rodriguez-luke-keaschall/
