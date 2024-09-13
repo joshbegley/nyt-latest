@@ -1,3 +1,7 @@
+**PETA Wants More Than a Friendly Statement From Pharrell Williams**\
+`After an animal rights protest at a film premiere, Mr. Williams, the creative director of Louis Vuitton, said he had “plans to change things.”`\
+https://nytimes.com/2024/09/13/style/pharrell-williams-peta.html
+
 **Where Was Merrick Garland When Justice Needed Him?**\
 `By Jesse Wegman`\
 https://nytimes.com/2024/09/11/opinion/garland-justice-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5762252/2024/09/13/textor-everton-bid-lyon-palace-e
 **The Windup: Was Aaron Judge cursed by Paw Patrol?**\
 `The Windup Newsletter ⚾ | This is The Athletic’s daily MLB newsletter.`\
 https://nytimes.com/athletic/5765353/2024/09/13/aaron-judge-paw-patrol-the-windup/
-
-**Review: Michael Tilson Thomas Returns to New York, and Mahler**\
-`The conductor led the New York Philharmonic in Mahler’s Fifth Symphony, an inspiring opening night for a season starting off unsettled.`\
-https://nytimes.com/2024/09/13/arts/music/review-tilson-thomas-philharmonic-mahler.html
 

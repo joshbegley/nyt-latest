@@ -1,3 +1,7 @@
+**PETA Wants More Than a Friendly Statement From Pharrell Williams**\
+`After an animal rights protest at a film premiere, Mr. Williams, the creative director of Louis Vuitton, said he had “plans to change things.”`\
+https://nytimes.com/2024/09/13/style/pharrell-williams-peta.html
+
 **Where Was Merrick Garland When Justice Needed Him?**\
 `By Jesse Wegman`\
 https://nytimes.com/2024/09/11/opinion/garland-justice-trump.html
