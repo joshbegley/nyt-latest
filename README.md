@@ -1,3 +1,7 @@
+**Three Americans Sentenced to Death for Failed Congo Coup**\
+`The sentences were handed down months after the central African country lifted a moratorium on carrying out the death penalty.`\
+https://nytimes.com/2024/09/13/world/africa/congo-coup-death-sentence-americans.html
+
 **Trump Claims Ignorance of Laura Loomer’s 9/11 Conspiracy Theories**\
 `After commemorating Sept. 11 with a far-right activist who has called the attacks an “inside job,” former President Donald J. Trump said he was unaware of her remarks.`\
 https://nytimes.com/2024/09/13/us/politics/trump-laura-loomer.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/13/us/politics/harris-pennsylvania-rally.html
 **What Is Pro-Life Realism?**\
 `Can pro-life states survive in a pro-choice country?`\
 https://nytimes.com/2024/09/13/opinion/pro-life-abortion-realism.html
-
-**Tiger Woods undergoes surgery for nerve damage in back**\
-`This is Woods' sixth back surgery and fifth microdecompression (microdiscectomy) surgery, the first since 2021.`\
-https://nytimes.com/athletic/5765823/2024/09/13/tiger-woods-back-surgery/
 
