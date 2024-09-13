@@ -1,3 +1,11 @@
+**Donald Trump Prepares to Unveil a Cryptocurrency Business**\
+`Mr. Trump said he would introduce the project on Monday, continuing his embrace of the crypto industry, a major source of political donations.`\
+https://nytimes.com/2024/09/13/technology/donald-trump-cryptocurrency-business.html
+
+**Biden Administration Is Likely to Delay Decision Over U.S. Steel**\
+`The White House has faced backlash for politicizing its review of Nippon Steel’s takeover of the company.`\
+https://nytimes.com/2024/09/13/business/us-steel-nippon-biden.html
+
 **‘Slow Horses’ Review: Bucking the Odds**\
 `The sardonic British series about spies no one wants is as likable as ever in its fourth season. Is that enough?`\
 https://nytimes.com/2024/09/13/arts/television/slow-horses-review.html
