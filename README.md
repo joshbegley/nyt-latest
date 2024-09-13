@@ -1,3 +1,11 @@
+**My Friend’s Husband Makes Me Fear for Her Safety — and Mine**\
+`The magazine’s Ethicist columnist on how to help a friend who’s in a volatile marriage.`\
+https://nytimes.com/2024/09/13/magazine/friends-husband-safety-ethics.html
+
+**Vance Describes Plan to End Ukraine War That Sounds a Lot Like Putin’s**\
+`Former President Donald J. Trump would tell the Russians, Ukrainians and Europeans to “figure out what a peaceful settlement looks like,” Senator JD Vance, his running mate, says.`\
+https://nytimes.com/2024/09/13/us/politics/vance-trump-ukraine-russia-war.html
+
 **Pochettino targets U.S. 2026 World Cup success with USWNT the 'inspiration'**\
 `Mauricio Pochettino says the U.`\
 https://nytimes.com/athletic/5765480/2024/09/13/mauricio-pochettino-usmnt-world-cup-hayes/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/13/t-magazine/toronto-international-film-festival-pr
 **Sweden Will Offer Migrants $34,000 to Go Home**\
 `The government greatly increased a grant to encourage more immigrants to return home. Critics say it sends the wrong message and, in any case, may not tempt many refugees.`\
 https://nytimes.com/2024/09/13/world/europe/sweden-immigration-reform.html
-
-**U.S. Accuses Russian TV Network of Conducting Covert Intelligence Acts**\
-`Sanctions announced on Friday are an effort to undercut RT by making it difficult for the network to conduct global business in dollars.`\
-https://nytimes.com/2024/09/13/us/politics/russia-sanctions-disinformation-rt.html
-
-**Worried About Kamala Harris? ‘That’s Tomorrow’s Problem.’**\
-`There is nothing more baffling than the undecided voter.`\
-https://nytimes.com/live/2024/09/11/opinion/thepoint/kamala-harris-undecided
 
