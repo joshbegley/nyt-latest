@@ -1,3 +1,7 @@
+**Paris Throws a Final Olympics Bash**\
+`Tens of thousands cheered, clapped, danced and sang to celebrate French athletes and to relive, one last time, the Games that uplifted a nation.`\
+https://nytimes.com/2024/09/14/world/europe/paris-olympics-parade.html
+
 **Gerrit Cole intentionally walks Rafael Devers, then unravels: 'Clearly that was a mistake'**\
 `As good as Devers is, Cole gave him way too much credit. He showed that Devers is in his head.`\
 https://nytimes.com/athletic/5767342/2024/09/14/gerrit-cole-rafael-devers-intentional-walk/
