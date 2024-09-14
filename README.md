@@ -1,3 +1,7 @@
+**With Quinn Ewers injured, Arch Manning creates two quick TDs vs. UTSA**\
+`Ewers walked to the sideline under his own power for further evaluation, then left for the locker room with a towel draped over his head.`\
+https://nytimes.com/athletic/5767513/2024/09/14/quinn-ewers-injury-arch-manning-texas-football/
+
 **Phillies remind Mets what they still lack as Bryce Harper puts on power display**\
 `The Mets have shown that they can play with anybody, but their lack of top-end talent compared to the Phillies was evident on Saturday.`\
 https://nytimes.com/athletic/5767485/2024/09/14/mets-loss-phillies-elite-talent/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5767335/2024/09/14/notre-dame-purdue-score-riley-le
 **Tottenham vs Arsenal preview: Storylines, odds, prediction for North London derby**\
 `Tottenham host Arsenal in the first North London Derby of the season. Both teams failed to win last time out, will one bounce back?`\
 https://nytimes.com/athletic/5760663/2024/09/14/tottenham-arsenal-preview-odds-prediction/
-
-**Gerrit Cole intentionally walks Rafael Devers, then unravels: 'Clearly that was a mistake'**\
-`As good as Devers is, Cole gave him way too much credit. He showed that Devers is in his head.`\
-https://nytimes.com/athletic/5767342/2024/09/14/gerrit-cole-rafael-devers-intentional-walk/
 
