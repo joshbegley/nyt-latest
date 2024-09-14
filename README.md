@@ -1,3 +1,11 @@
+**Red Sox furious with how Gerrit Cole pitched to Rafael Devers: 'He hit him on purpose'**\
+`“Raffy got hit. They can say whatever they want,” said Alex Cora. “The intentional walk was loud and clear, ‘I don't want to face him.’"`\
+https://nytimes.com/athletic/5767412/2024/09/14/red-sox-gerrit-cole-rafael-devers-intentional-walk/
+
+**Letting Loose With Emmy Nominees in the Hollywood Hills**\
+`Celebrities including Quinta Brunson, Selma Blair and Heidi Klum toasted the awards at a Los Angeles mansion. Who said it was too soon to party again?`\
+https://nytimes.com/2024/09/14/style/emmy-party-photos.html
+
 **Lexi Thompson's Solheim Cup legacy is almost complete. Will it include another win?**\
 `USA is up 10-6 on the Europeans entering Sunday singles, with Thompson having a chance to earn an 11th Solheim Cup point.`\
 https://nytimes.com/athletic/5767459/2024/09/14/lexi-thompson-solheim-cup-usa/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/14/world/europe/paris-olympics-parade.html
 **Teenage phenom Connor Zilisch wins debut NASCAR Xfinity Series race**\
 `Zilisch recently turned 18 — the minimum age to be licensed to drive in the Xfinity Series, which is NASCAR’s version of Triple-A baseball.`\
 https://nytimes.com/athletic/5767347/2024/09/14/connor-zilisch-nascar-xfinity-series-debut-win/
-
-**America Ferrera and Other Celebrities Join Push to Mobilize Latino Voters**\
-`Gabriel Luna and Jessica Alba also joined a $5 million effort by the Voto Latino Foundation to encourage Latino voters to cast a ballot in November.`\
-https://nytimes.com/2024/09/14/us/politics/latino-voters-america-ferrera.html
-
-**Dodgers' Tyler Glasnow 'highly unlikely' to pitch again with sprained elbow**\
-`Glasnow will be shut down indefinitely from throwing.`\
-https://nytimes.com/athletic/5767315/2024/09/14/tyler-glasnow-elbow-injury-la-dodgers/
 
