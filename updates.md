@@ -1,3 +1,7 @@
+**‘Nothing Left’: As California Fires Burn, Some Residents Begin to Mourn Lost Homes**\
+`Firefighters are making progress against the Bridge, Line and Airport fires to prevent more destruction, but for some, the damage is done.`\
+https://nytimes.com/2024/09/14/us/california-fires-homes.html
+
 **Navarro: Florida State’s 0-3 debacle is a product of poor evaluation, development**\
 `How does a college football team go 13-0 and turn into an absolute train wreck less than a year later?`\
 https://nytimes.com/athletic/5767256/2024/09/14/florida-state-0-3-mike-norvell-memphis/
