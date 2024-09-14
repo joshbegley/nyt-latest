@@ -1,3 +1,7 @@
+**One for the Books**\
+`Aimee Lucido's Sunday puzzle has a literary lilt.`\
+https://nytimes.com/2024/09/14/crosswords/daily-puzzle-2024-09-15.html
+
 **Blue Jackets ready to delve back into free agency — and not for PTO players**\
 `Don Waddell said he will look to add forwards before the start of training camp.`\
 https://nytimes.com/athletic/5767188/2024/09/14/blue-jackets-camp-free-agents/
