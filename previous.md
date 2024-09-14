@@ -1,3 +1,7 @@
+**Byron Buxton and Carlos Correa are back, but Twins' urgency grows after another loss**\
+`Ready or not, the Twins' two injured stars are returning to the lineup, and Max Kepler could also be close to joining them.`\
+https://nytimes.com/athletic/5766059/2024/09/14/byron-buxton-carlos-correa-return-twins-urgency/
+
 **Trump Sticks to His Favorite Jabs at Rally in Las Vegas**\
 `The former president meandered over 80 minutes from complaints about Tuesday’s debate to elevating baseless claims that have circulated on right-wing social media.`\
 https://nytimes.com/2024/09/14/us/politics/trump-rally-las-vegas.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5750317/2024/09/14/italian-football-nicknames-serie
 **Manchester City vs Brentford preview: Storylines, odds, prediction as City try to stay top**\
 `Manchester City's perfect start to the season is on the line when Brentford visit the Etihad. Brentford won there two years ago.`\
 https://nytimes.com/athletic/5763944/2024/09/14/manchester-city-brentford-preview-odds-prediction/
-
-**It's been the Premier League for 17 years - so why is 'the Premiership' still so prevalent?**\
-`There are many more important things in the world than 'The Premiership' - but once it’s been pointed out, you can’t help but see it`\
-https://nytimes.com/athletic/5710061/2024/09/14/premier-league-the-premiership/
 

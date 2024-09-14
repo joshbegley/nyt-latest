@@ -1,3 +1,7 @@
+**Byron Buxton and Carlos Correa are back, but Twins' urgency grows after another loss**\
+`Ready or not, the Twins' two injured stars are returning to the lineup, and Max Kepler could also be close to joining them.`\
+https://nytimes.com/athletic/5766059/2024/09/14/byron-buxton-carlos-correa-return-twins-urgency/
+
 **Trump Sticks to His Favorite Jabs at Rally in Las Vegas**\
 `The former president meandered over 80 minutes from complaints about Tuesday’s debate to elevating baseless claims that have circulated on right-wing social media.`\
 https://nytimes.com/2024/09/14/us/politics/trump-rally-las-vegas.html
