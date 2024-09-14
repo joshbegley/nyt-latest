@@ -1,3 +1,7 @@
+**Nuno 'proud' as Forest secure historic Anfield win**\
+`Nuno Espirito Santo spoke of his pride at seeing Nottingham Forest register their first win at Anfield since 1969 — and praised his players for following the tactical plan.`\
+https://nytimes.com/athletic/5767005/2024/09/14/nottingham-forest-liverpool-nuno/
+
 **Joao Pedro rested to avoid risk of further injury - Hurzeler**\
 `Brighton &amp; Hove Albion head coach Fabian Hurzeler says he did not want to take a risk with Joao Pedro&#8217;s fitness for his side&#8217;s 0-0 home draw against Ipswich Town.`\
 https://nytimes.com/athletic/5767021/2024/09/14/joao-pedro-injury-brighton/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5766837/2024/09/14/lando-norris-f1-azerbaijan-gp-qu
 **In Pennsylvania, Wary Voters Wonder if Harris Can Deliver**\
 `Economic issues including soaring rents, student loan debt, supply chain issues and a stagnant minimum wage are on their minds.`\
 https://nytimes.com/2024/09/14/us/politics/kamala-harris-pennsylvania-voters-economy.html
-
-**The Plum Torte**\
-`Seven ingredients, five stars, 14,000 ratings and 41 years of being a stone-cold, stone-fruit classic.`\
-https://nytimes.com/2024/09/14/dining/plum-torte.html
 
