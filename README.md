@@ -1,3 +1,7 @@
+**The Briefing: Bournemouth 0 Chelsea 1 - Nkunku's winner, Sancho's debut and a yellow-card record**\
+`Chelsea writers Liam Twomey and Simon Johnson analyse the key talking points from Chelsea's victory at Bournemouth`\
+https://nytimes.com/athletic/5758307/2024/09/14/bournemouth-chelsea-premier-league-analysis/
+
 **Was LSU's comeback against South Carolina a season-saving win?**\
 `South Carolina jumped out to a 17-0 lead against No. 16 LSU, but Brian Kelly's Tigers denied Shane Beamer a signature win with a comeback.`\
 https://nytimes.com/athletic/5767219/2024/09/14/lsu-south-carolina-garrett-nusssmeier-brian-kelly/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/14/fashion/mary-mcfadden-dead.html
 **Trump’s Proposal to End Taxes on Overtime Pay Could Cost Billions**\
 `The former president left many key details about the overtime plan unaddressed, including whether the exception would apply to the payroll taxes that fund Social Security and Medicare.`\
 https://nytimes.com/2024/09/14/business/trump-tax-overtime-pay-cost.html
-
-**Whooping cough outbreak forces Portland State cancelation**\
-`According to the Centers for Disease Control and Prevention, "Those who get these coughing fits say it's the worst cough of their lives."`\
-https://nytimes.com/athletic/5767057/2024/09/14/portland-state-football-game-cancelled-illness/
 
