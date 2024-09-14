@@ -1,3 +1,7 @@
+**Trump’s Proposal to End Taxes on Overtime Pay Could Cost Billions**\
+`The former president left many key details about the overtime plan unaddressed, including whether the exception would apply to the payroll taxes that fund Social Security and Medicare.`\
+https://nytimes.com/2024/09/14/business/trump-tax-overtime-pay-cost.html
+
 **Whooping cough outbreak forces Portland State cancelation**\
 `According to the Centers for Disease Control and Prevention, "Those who get these coughing fits say it's the worst cough of their lives."`\
 https://nytimes.com/athletic/5767057/2024/09/14/portland-state-football-game-cancelled-illness/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5766830/2024/09/14/f1-azerbaijan-gp-preview-leclerc
 **The Briefing: Liverpool 0 Nottingham Forest 1 - Hudson-Odoi strikes to end Slot's fine start**\
 `Liverpool suffered a shock defeat by Nottingham Forest at Anfield - here are the key talking points`\
 https://nytimes.com/athletic/5757768/2024/09/14/liverpool-nottingham-forest-hudson-odoi/
-
-**The Briefing: Manchester City 2 Brentford 1 - Visitors score after 22 seconds but Erling Haaland is unstoppable**\
-`Mark Critchley breaks down the key talking points from Saturday's game at the Etihad`\
-https://nytimes.com/athletic/5758175/2024/09/14/manchester-city-brentford-result-analysis/
 
