@@ -1,3 +1,11 @@
+**The Briefing: Manchester City 2 Brentford 1 - Visitors score after 22 seconds but Erling Haaland is unstoppable**\
+`Mark Critchley breaks down the key talking points from Saturday's game at the Etihad`\
+https://nytimes.com/athletic/5758175/2024/09/14/manchester-city-brentford-result-analysis/
+
+**A Patch of Pride**\
+`Robert D. McFadden, a masterful rewrite reporter and obituary writer, retired from The New York Times after 63 years.`\
+https://nytimes.com/2024/09/14/insider/a-patch-of-pride.html
+
 **The F1 yellow flag call that cost Lando Norris in Azerbaijan GP qualifying, explained**\
 `The yellow flag was costly for Norris and, potentially, his championship hopes.`\
 https://nytimes.com/athletic/5766837/2024/09/14/lando-norris-f1-azerbaijan-gp-qualifying-yellow-flag/
