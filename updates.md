@@ -1,3 +1,11 @@
+**Gerrit Cole intentionally walks Devers then gives up 3 runs**\
+`Cole allowed a season-high seven earned runs on five hits, three walks, and three hit batsmen.`\
+https://nytimes.com/athletic/5767130/2024/09/14/gerrrit-cole-yankees-rafael-devers/
+
+**As Alabama confirmed Playoff expectations, Wisconsin showed it's still a long way off**\
+`What No. 4 Alabama's 42-10 blowout win at Wisconsin said about the Crimson Tide under Kalen DeBoer and Badgers under Luke Fickell.`\
+https://nytimes.com/athletic/5767110/2024/09/14/alabama-wisconsin-score-college-football-deboer/
+
 **Duran can be one of the best strikers in the world - Martinez**\
 `Emiliano Martinez believes Jhon Duran can become &#8220;one of the best strikers in the world&#8221; after the 20-year-old scored the winner in Aston Villa&#8217;s 3-2 victory against Everton on Saturday evening.`\
 https://nytimes.com/athletic/5767145/2024/09/14/jhon-duran-aston-villa-emiliano-martinez/
