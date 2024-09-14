@@ -1,3 +1,7 @@
+**Mary McFadden, Celebrated Designer of Shimmering Dresses, Dies at 85**\
+`She took symbols from ancient cultures and translated them into intricate embroideries, beadings and paintings on clothes worn by the likes of Jacqueline Onassis.`\
+https://nytimes.com/2024/09/14/fashion/mary-mcfadden-dead.html
+
 **Trump’s Proposal to End Taxes on Overtime Pay Could Cost Billions**\
 `The former president left many key details about the overtime plan unaddressed, including whether the exception would apply to the payroll taxes that fund Social Security and Medicare.`\
 https://nytimes.com/2024/09/14/business/trump-tax-overtime-pay-cost.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5766985/2024/09/14/wisconsin-tyler-van-dyke-knee-in
 **F1 Azerbaijan GP preview: Leclerc chases first Baku win, Norris faces tough comeback**\
 `From an intriguing championship battle to a couple of surprising rookies, here's what to know before Sunday's race. `\
 https://nytimes.com/athletic/5766830/2024/09/14/f1-azerbaijan-gp-preview-leclerc-norris-red-bull/
-
-**The Briefing: Liverpool 0 Nottingham Forest 1 - Hudson-Odoi strikes to end Slot's fine start**\
-`Liverpool suffered a shock defeat by Nottingham Forest at Anfield - here are the key talking points`\
-https://nytimes.com/athletic/5757768/2024/09/14/liverpool-nottingham-forest-hudson-odoi/
 
