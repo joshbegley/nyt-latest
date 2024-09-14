@@ -1,3 +1,7 @@
+**Ending the Boeing Strike Won’t Be Easy. Here’s Why.**\
+`The vehemence of workers over wages and other issues caught the company and union leaders off guard.`\
+https://nytimes.com/2024/09/14/business/economy/boeing-strike-union.html
+
 **What I'm Hearing: Jordan Love’s timeline, what’s next with Watson, Cousins’ struggles**\
 `Plus, Justin Fields’ next shot, Ja'Marr Chase and the Bengals’ vibes heading to K.C., the Tua effect and more.`\
 https://nytimes.com/athletic/5766347/2024/09/14/jordan-love-return-deshaun-watson-lawsuit-kirk-cousins-struggles/

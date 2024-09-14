@@ -1,3 +1,7 @@
+**Ending the Boeing Strike Won’t Be Easy. Here’s Why.**\
+`The vehemence of workers over wages and other issues caught the company and union leaders off guard.`\
+https://nytimes.com/2024/09/14/business/economy/boeing-strike-union.html
+
 **What I'm Hearing: Jordan Love’s timeline, what’s next with Watson, Cousins’ struggles**\
 `Plus, Justin Fields’ next shot, Ja'Marr Chase and the Bengals’ vibes heading to K.C., the Tua effect and more.`\
 https://nytimes.com/athletic/5766347/2024/09/14/jordan-love-return-deshaun-watson-lawsuit-kirk-cousins-struggles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5761519/2024/09/14/ufc-306-sean-omalley-merab-dvali
 **Naomi Osaka splits with coach Wim Fissette**\
 `The former world No. 1 and four-time Grand Slam champion appears to want results to go with her comeback progress.`\
 https://nytimes.com/athletic/5766206/2024/09/14/naomi-osaka-coach-fissette-mouratoglou/
-
-**Jonathon Cooper is breaking out, 3 years after his heart put his NFL dream in doubt**\
-`The fourth-year linebacker had two sacks in Denver's season opener and could just be getting started.`\
-https://nytimes.com/athletic/5764881/2024/09/14/denver-broncos-jonathon-cooper-nfl/
 
