@@ -1,3 +1,7 @@
+**Naomi Osaka splits with coach Wim Fissette**\
+`The former world No. 1 and four-time Grand Slam champion appears to want results to go with her comeback progress.`\
+https://nytimes.com/athletic/5766206/2024/09/14/naomi-osaka-coach-fissette-mouratoglou/
+
 **Jonathon Cooper is breaking out, 3 years after his heart put his NFL dream in doubt**\
 `The fourth-year linebacker had two sacks in Denver's season opener and could just be getting started.`\
 https://nytimes.com/athletic/5764881/2024/09/14/denver-broncos-jonathon-cooper-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/14/opinion/trump-harris-undecided-voter.html
 **The Climate Peril We Overlook**\
 `We often focus on doomsday scenarios, but we shouldn’t let them distract us from other consequences of climate change like impaired learning, crime, suicide — even slipping off ladders.`\
 https://nytimes.com/2024/09/14/opinion/climate-change-record-hot-summer.html
-
-**The Secret Behind the TV Show Set to Sweep the Emmys**\
-`Audiences saw a hit adaptation of the Japanese story “Shogun” back in 1980. But it was very different from today’s version, and America was different then, too.`\
-https://nytimes.com/2024/09/14/opinion/shogun-tv-emmys.html
 

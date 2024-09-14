@@ -1,3 +1,7 @@
+**Naomi Osaka splits with coach Wim Fissette**\
+`The former world No. 1 and four-time Grand Slam champion appears to want results to go with her comeback progress.`\
+https://nytimes.com/athletic/5766206/2024/09/14/naomi-osaka-coach-fissette-mouratoglou/
+
 **The Climate Peril We Overlook**\
 `We often focus on doomsday scenarios, but we shouldn’t let them distract us from other consequences of climate change like impaired learning, crime, suicide — even slipping off ladders.`\
 https://nytimes.com/2024/09/14/opinion/climate-change-record-hot-summer.html
