@@ -1,3 +1,7 @@
+**White Sox watch: Shutout loss puts Chicago within six losses of MLB record**\
+`The 2024 Chicago White Sox are on pace to eclipse the 120-loss New York Mets of 1962. Can they avoid infamy?`\
+https://nytimes.com/athletic/5734497/2024/09/13/white-sox-watch-most-losses-season/
+
 **Interjection of Interest**\
 `Christina Iverson presents a clean and cozy themeless puzzle.`\
 https://nytimes.com/2024/09/13/crosswords/daily-puzzle-2024-09-14.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5766190/2024/09/13/f1-bottas-norris-azerbaijan-gp-p
 **Trump Threatens to Cut Wildfire Aid if California Doesn’t Deliver More Water**\
 `Gov. Gavin Newsom said all Americans should be alarmed that the former president wants to “block emergency disaster funds to settle political vendettas.”`\
 https://nytimes.com/2024/09/13/us/politics/trump-california-wildfire-aid-newsom.html
-
-**California Drug Clinic Operator Convicted in $3 Million Kickback Scheme**\
-`Casey Mahoney, 48, of Los Angeles, illegally paid “body brokers” to lure clients, a federal jury found.`\
-https://nytimes.com/2024/09/13/us/addiction-facility-illegal-kickbacks.html
 
