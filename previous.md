@@ -1,3 +1,7 @@
+**The F1 yellow flag call that cost Lando Norris in Azerbaijan GP qualifying, explained**\
+`The yellow flag was costly for Norris and, potentially, his championship hopes.`\
+https://nytimes.com/athletic/5766837/2024/09/14/lando-norris-f1-azerbaijan-gp-qualifying-yellow-flag/
+
 **In Pennsylvania, Wary Voters Wonder if Harris Can Deliver**\
 `Economic issues including soaring rents, student loan debt, supply chain issues and a stagnant minimum wage are on their minds.`\
 https://nytimes.com/2024/09/14/us/politics/kamala-harris-pennsylvania-voters-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5766776/2024/09/14/disney-directv-new-deal-espn-col
 **The Briefing: Southampton 0 Manchester United 3 - Rashford off the mark, Onana's double save and glimpses from Zirkzee**\
 `The key talking points from Saturday's Premier League encounter at St Mary's `\
 https://nytimes.com/athletic/5757767/2024/09/14/southampton-manchester-united-result-analysis/
-
-**Charles Leclerc wins Azerbaijan GP pole**\
-`It's the fourth consecutive Baku pole for the Ferrari driver. `\
-https://nytimes.com/athletic/5766757/2024/09/14/charles-leclerc-f1-pole-azerbaijan-gp/
 

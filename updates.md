@@ -1,3 +1,7 @@
+**The F1 yellow flag call that cost Lando Norris in Azerbaijan GP qualifying, explained**\
+`The yellow flag was costly for Norris and, potentially, his championship hopes.`\
+https://nytimes.com/athletic/5766837/2024/09/14/lando-norris-f1-azerbaijan-gp-qualifying-yellow-flag/
+
 **In Pennsylvania, Wary Voters Wonder if Harris Can Deliver**\
 `Economic issues including soaring rents, student loan debt, supply chain issues and a stagnant minimum wage are on their minds.`\
 https://nytimes.com/2024/09/14/us/politics/kamala-harris-pennsylvania-voters-economy.html
