@@ -1,3 +1,11 @@
+**Lexi Thompson's Solheim Cup legacy is almost complete. Will it include another win?**\
+`USA is up 10-6 on the Europeans entering Sunday singles, with Thompson having a chance to earn an 11th Solheim Cup point.`\
+https://nytimes.com/athletic/5767459/2024/09/14/lexi-thompson-solheim-cup-usa/
+
+**Is Dillon Gabriel a viable 2025 NFL Draft prospect? Oregon QB torches Oregon State**\
+`Gabriel has had a long and productive college career, but he's never generated much NFL buzz. Can he change that this season?`\
+https://nytimes.com/athletic/5767344/2024/09/14/dillon-gabriel-2025-nfl-draft-quarterbacks/
+
 **Smith: Can Alabama play to its standard against Georgia?**\
 `Alabama passed its first true test of the season against Wisconsin, but next up may be its biggest: Georgia.`\
 https://nytimes.com/athletic/5767372/2024/09/14/alabama-football-wisconsin-georgia/
@@ -29,12 +37,4 @@ https://nytimes.com/2024/09/14/us/politics/latino-voters-america-ferrera.html
 **Dodgers' Tyler Glasnow 'highly unlikely' to pitch again with sprained elbow**\
 `Glasnow will be shut down indefinitely from throwing.`\
 https://nytimes.com/athletic/5767315/2024/09/14/tyler-glasnow-elbow-injury-la-dodgers/
-
-**Why Thousands of Haitians Have Settled in Springfield, Ohio**\
-`Businesses needed workers, and Haitians, many already authorized to work, heard living costs were low. But the newcomers have strained resources, and that has fueled  tension.`\
-https://nytimes.com/2024/09/14/us/haitian-migrants-springfield-ohio.html
-
-**One for the Books**\
-`Aimee Lucido's Sunday puzzle has a literary lilt.`\
-https://nytimes.com/2024/09/14/crosswords/daily-puzzle-2024-09-15.html
 
