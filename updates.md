@@ -1,3 +1,7 @@
+**America Ferrera and Other Celebrities Join Push to Mobilize Latino Voters**\
+`Gabriel Luna and Jessica Alba also joined a $5 million effort by the Voto Latino Foundation to encourage Latino voters to cast a ballot in November.`\
+https://nytimes.com/2024/09/14/us/politics/latino-voters-america-ferrera.html
+
 **Emmy Awards: What to Expect**\
 `By John Koblin`\
 https://nytimes.com/2024/09/14/arts/television/emmy-awards-what-to-expect.html
