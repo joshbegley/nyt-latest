@@ -1,3 +1,7 @@
+**Was LSU's comeback against South Carolina a season-saving win?**\
+`South Carolina jumped out to a 17-0 lead against No. 16 LSU, but Brian Kelly's Tigers denied Shane Beamer a signature win with a comeback.`\
+https://nytimes.com/athletic/5767219/2024/09/14/lsu-south-carolina-garrett-nusssmeier-brian-kelly/
+
 **Sangare set for two months out with hamstring injury**\
 `Nottingham Forest midfielder Ibrahim Sangare is expected to be sidelined for at least two months with a hamstring injury.`\
 https://nytimes.com/athletic/5767227/2024/09/14/ibrahim-sangare-forest-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/14/business/trump-tax-overtime-pay-cost.html
 **Whooping cough outbreak forces Portland State cancelation**\
 `According to the Centers for Disease Control and Prevention, "Those who get these coughing fits say it's the worst cough of their lives."`\
 https://nytimes.com/athletic/5767057/2024/09/14/portland-state-football-game-cancelled-illness/
-
-**Donald Trump Jr. Piles On With Racist Comments About Haitians**\
-`After former President Donald J. Trump spread debunked claims that immigrants from Haiti were eating pets, his son cast more aspersions on Haitian immigrants.`\
-https://nytimes.com/2024/09/14/us/politics/don-jr-trump-haitian-migrants.html
 

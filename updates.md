@@ -1,3 +1,7 @@
+**Was LSU's comeback against South Carolina a season-saving win?**\
+`South Carolina jumped out to a 17-0 lead against No. 16 LSU, but Brian Kelly's Tigers denied Shane Beamer a signature win with a comeback.`\
+https://nytimes.com/athletic/5767219/2024/09/14/lsu-south-carolina-garrett-nusssmeier-brian-kelly/
+
 **Sangare set for two months out with hamstring injury**\
 `Nottingham Forest midfielder Ibrahim Sangare is expected to be sidelined for at least two months with a hamstring injury.`\
 https://nytimes.com/athletic/5767227/2024/09/14/ibrahim-sangare-forest-injury/
