@@ -1,3 +1,7 @@
+**Trump Sticks to His Favorite Jabs at Rally in Las Vegas**\
+`The former president meandered over 80 minutes from complaints about Tuesday’s debate to elevating baseless claims that have circulated on right-wing social media.`\
+https://nytimes.com/2024/09/14/us/politics/trump-rally-las-vegas.html
+
 **Was the Yankees' win over the Red Sox their best so far? 'Pretty sick'**\
 `Aaron Judge's grand slam erased a 4-1 deficit in the seventh inning of the Yankees' 5-4 win.`\
 https://nytimes.com/athletic/5766530/2024/09/14/yankees-red-sox-aaron-judge-grand-slam/
