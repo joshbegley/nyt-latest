@@ -1,3 +1,11 @@
+**Will Tetairoa McMillan be 2025 NFL Draft's WR1? Even in blowout loss, he looks the part**\
+`Arizona couldn't keep up with Kansas State, but McMillan put together another big night in his quest to be the 2025 NFL Draft's top WR.`\
+https://nytimes.com/athletic/5766374/2024/09/13/tetairoa-mcmillan-2025-nfl-draft-scouting-report/
+
+**How Tigers' lefty Brant Hurter turned mechanical tweak into no-hit bid**\
+`On July 21, Hurter had a 6.44 ERA in Triple A. Friday, he led the Tigers' near no-hitter. `\
+https://nytimes.com/athletic/5766388/2024/09/13/detroit-tigers-brant-hurter-no-hitter-bid/
+
 **How Tigers' lefty Brant Hurter turned a mechanical tweak into a no-hit bid**\
 `On July 21, Brant Hurter had a 6.44 ERA in Triple A. Friday, he led the Tigers' near no-hitter. `\
 https://nytimes.com/athletic/5766388/2024/09/13/detroit-tigers-brant-hurter-no-hitter-bid/

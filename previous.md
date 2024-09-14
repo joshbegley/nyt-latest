@@ -1,5 +1,9 @@
-**How Tigers' lefty Brant Hurter turned a mechanical tweak into a no-hit bid**\
-`On July 21, Brant Hurter had a 6.44 ERA in Triple A. Friday, he led the Tigers' near no-hitter. `\
+**Will Tetairoa McMillan be 2025 NFL Draft's WR1? Even in blowout loss, he looks the part**\
+`Arizona couldn't keep up with Kansas State, but McMillan put together another big night in his quest to be the 2025 NFL Draft's top WR.`\
+https://nytimes.com/athletic/5766374/2024/09/13/tetairoa-mcmillan-2025-nfl-draft-scouting-report/
+
+**How Tigers' lefty Brant Hurter turned mechanical tweak into no-hit bid**\
+`On July 21, Hurter had a 6.44 ERA in Triple A. Friday, he led the Tigers' near no-hitter. `\
 https://nytimes.com/athletic/5766388/2024/09/13/detroit-tigers-brant-hurter-no-hitter-bid/
 
 **In Mets' throttling of Phillies, Brandon Nimmo makes the adjustment**\
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/13/us/politics/iraq-raid-isis-leaders-killed.html
 **No Criminal Charges Expected in Aftermath of Maui Wildfire**\
 `Hawaii’s attorney general released the latest findings on the 2023 fire that destroyed much of the town of Lahaina, finding a range of shortcomings in the response.`\
 https://nytimes.com/2024/09/13/us/maui-lahaina-fire-attorney-general.html
-
-**Corrections: Sept. 14, 2024**\
-`Corrections that appeared in print on Saturday, Sept. 14, 2024.`\
-https://nytimes.com/2024/09/13/pageoneplus/corrections-sept-14-2024.html
 
