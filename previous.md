@@ -1,3 +1,7 @@
+**Wisconsin's Van Dyke carted off vs. Alabama**\
+`Backup quarterback Braedyn Locke replaced Van Dyke, and the Badgers kicked a field goal on the opening drive.`\
+https://nytimes.com/athletic/5766985/2024/09/14/wisconsin-tyler-van-dyke-knee-injury/
+
 **F1 Azerbaijan GP preview: Leclerc chases first Baku win, Norris faces tough comeback**\
 `From an intriguing championship battle to a couple of surprising rookies, here's what to know before Sunday's race. `\
 https://nytimes.com/athletic/5766830/2024/09/14/f1-azerbaijan-gp-preview-leclerc-norris-red-bull/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/14/opinion/jd-vance-haiti-ohio-immigrants.html
 **Ending the Boeing Strike Won’t Be Easy. Here’s Why.**\
 `The vehemence of workers over wages and other issues caught the company and union leaders off guard.`\
 https://nytimes.com/2024/09/14/business/economy/boeing-strike-union.html
-
-**What I'm Hearing: Jordan Love’s timeline, what’s next with Watson, Cousins’ struggles**\
-`Plus, Justin Fields’ next shot, Ja'Marr Chase and the Bengals’ vibes heading to K.C., the Tua effect and more.`\
-https://nytimes.com/athletic/5766347/2024/09/14/jordan-love-return-deshaun-watson-lawsuit-kirk-cousins-struggles/
 

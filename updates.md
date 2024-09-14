@@ -1,3 +1,7 @@
+**Wisconsin's Van Dyke carted off vs. Alabama**\
+`Backup quarterback Braedyn Locke replaced Van Dyke, and the Badgers kicked a field goal on the opening drive.`\
+https://nytimes.com/athletic/5766985/2024/09/14/wisconsin-tyler-van-dyke-knee-injury/
+
 **F1 Azerbaijan GP preview: Leclerc chases first Baku win, Norris faces tough comeback**\
 `From an intriguing championship battle to a couple of surprising rookies, here's what to know before Sunday's race. `\
 https://nytimes.com/athletic/5766830/2024/09/14/f1-azerbaijan-gp-preview-leclerc-norris-red-bull/
