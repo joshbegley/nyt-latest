@@ -1,3 +1,11 @@
+**Gerrit Cole intentionally walks Rafael Devers, then unravels: 'Clearly that was a mistake'**\
+`As good as Devers is, Cole gave him way too much credit. He showed that Devers is in his head.`\
+https://nytimes.com/athletic/5767342/2024/09/14/gerrit-cole-rafael-devers-intentional-walk/
+
+**Paris Throws a Final Olympics Bash**\
+`Tens of thousands cheered, clapped, danced and sang to celebrate French athletes and to relive, one last time, the Games that uplifted a nation.`\
+https://nytimes.com/2024/09/14/world/europe/paris-throws-a-final-olympics-bash.html
+
 **Teenage phenom Connor Zilisch wins debut NASCAR Xfinity Series race**\
 `Zilisch recently turned 18 — the minimum age to be licensed to drive in the Xfinity Series, which is NASCAR’s version of Triple-A baseball.`\
 https://nytimes.com/athletic/5767347/2024/09/14/connor-zilisch-nascar-xfinity-series-debut-win/
