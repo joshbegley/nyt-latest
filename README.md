@@ -1,3 +1,7 @@
+**At Funeral in Turkey, Family Mourns American Activist Killed by Israeli Gunfire**\
+`The father of Aysenur Ezgi Eygi, a dual citizen of Turkey and the United States, said that Washington had not done enough to pressure Israel over her death.`\
+https://nytimes.com/2024/09/14/world/middleeast/turkey-us-activist-killed-israel-west-bank.html
+
 **Shoes Off. Laptops Out. Airport Tray Photo Shoot?**\
 `A new social media trend involves creatively arranging your TSA bins, and showing them off.`\
 https://nytimes.com/2024/09/14/style/airport-tray-aesthetic-tiktok-trend-tsa.html
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/14/us/politics/trump-jan-6-capitol-attack.html
 **A Year After a Deadly Flood, a Libyan City Is Rebuilding but Not Whole**\
 `Derna is quickly being reconstructed after a flood that killed thousands. But questions linger about the process, and residents say new buildings cannot erase their trauma.`\
 https://nytimes.com/2024/09/14/world/middleeast/libya-floods-derna.html
-
-**Ella Emhoff Had a Busy New York Fashion Week**\
-`As Kamala Harris prepared for a big debate, her stepdaughter graced runways and front rows. Plus: purple hiking boots, the LVMH Prize and browsing for moisturizers.`\
-https://nytimes.com/2024/09/14/style/ella-emhoff-nyfw-lvmh-prize.html
 
