@@ -1,3 +1,7 @@
+**Shoes Off. Laptops Out. Airport Tray Photo Shoot?**\
+`A new social media trend involves creatively arranging your TSA bins, and showing them off.`\
+https://nytimes.com/2024/09/14/style/airport-tray-aesthetic-tiktok-trend-tsa.html
+
 **As Ukraine Presses Its Attack in Kursk, Russia Stiffens Its Defenses**\
 `Ukrainian soldiers and military analysts say that Ukraine is largely holding on to land it seized in its incursion into Russia, but that Moscow is rushing in reinforcements and begun a counterattack.`\
 https://nytimes.com/2024/09/14/world/europe/ukraine-russia-war-kursk.html
