@@ -28,7 +28,7 @@ https://nytimes.com/athletic/5764881/2024/09/14/denver-broncos-jonathon-cooper-n
 
 **Should Betting on Elections Be Legal?**\
 `Election wagers have long been banned in the United States. But for a brief period on Thursday, a regulated prediction market was permitted to offer them to Americans.`\
-https://nytimes.com/2024/09/14/business/dealbook/should-betting-on-elections-be-legal.html
+https://nytimes.com/2024/09/14/business/dealbook/betting-elections-odds.html
 
 **Here’s the latest on the presidential race.**\
 `By Chris Cameron`\
