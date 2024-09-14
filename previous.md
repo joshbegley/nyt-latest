@@ -1,4 +1,4 @@
-**Leeds' unbeaten start ends, Ferrell watches and what next for Elland Road?**\
+**Leeds' unbeaten start ends, Will Ferrell in the stands - and what next for Elland Road?**\
 `Richard Sutcliffe considers the main talking poins from Leeds' 1-0 home loss to Burnley`\
 https://nytimes.com/athletic/5764858/2024/09/14/leeds-burnley-will-ferrell/
 
