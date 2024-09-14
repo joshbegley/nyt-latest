@@ -1,3 +1,7 @@
+**Solheim Cup Sunday pairings, tee times announced: USA has strong lead**\
+`This may be the Solheim Cup, but the Europeans spent Saturday afternoon name-checking Medinah.`\
+https://nytimes.com/athletic/5767417/2024/09/14/solheim-cup-sunday-pairings-tee-times-usa-lead/
+
 **Red Sox furious with how Gerrit Cole pitched to Rafael Devers: 'He hit him on purpose'**\
 `“Raffy got hit. They can say whatever they want,” said Alex Cora. “The intentional walk was loud and clear, ‘I don't want to face him.’"`\
 https://nytimes.com/athletic/5767412/2024/09/14/red-sox-gerrit-cole-rafael-devers-intentional-walk/
