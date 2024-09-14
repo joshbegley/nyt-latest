@@ -1,3 +1,7 @@
+**49ers place Christian McCaffrey on IR**\
+`The soonest McCaffrey can return would be Oct. 10 against the Seattle Seahawks.`\
+https://nytimes.com/athletic/5767030/2024/09/14/christian-mccaffrey-injured-reserve-injury-sf-49ers/
+
 **Mets sketch out a plan for Kodai Senga's regular-season return**\
 `Senga could make a rehab appearance for Triple-A Syracuse by the end of next week if all goes well with his next live batting practice.`\
 https://nytimes.com/athletic/5767197/2024/09/14/mets-kodai-senga-injury-update-2/
