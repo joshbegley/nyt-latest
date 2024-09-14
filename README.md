@@ -1,3 +1,7 @@
+**Will Ferrell in attendance for Leeds vs Burnley**\
+`Hollywood actor Will Ferrell is in attendance for Leeds United&#8217;s Championship clash against Burnley.`\
+https://nytimes.com/athletic/5766725/2024/09/14/will-ferrell-leeds-burnley/
+
 **The Organizers Are Jewish. The Cause Is Palestinian. This College Won’t Be Hosting.**\
 `An event for the magazine Jewish Currents took a surprising turn.`\
 https://nytimes.com/2024/09/14/opinion/brooklyn-college-jewish-currents-gaza-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5765909/2024/09/14/john-bennett-rangers-chairman-re
 **Divided Attention**\
 `On the eve of the Emmy Awards, it’s worth taking a look at what we’re actually watching.`\
 https://nytimes.com/2024/09/14/briefing/divided-attention.html
-
-**Ian Happ on the Cubs’ direction, hitting at Wrigley Field and handling a game of failure**\
-`"The ballpark metrics have it as the second-worst homer park in the league and the second-worst doubles park in the league," Happ said.`\
-https://nytimes.com/athletic/5766466/2024/09/14/cubs-ian-happ-wrigley-field/
 
