@@ -1,3 +1,7 @@
+**Blue Jackets ready to delve back into free agency — and not for PTO players**\
+`Don Waddell said he will look to add forwards before the start of training camp.`\
+https://nytimes.com/athletic/5767188/2024/09/14/blue-jackets-camp-free-agents/
+
 **Here’s what to expect.**\
 `By John Koblin`\
 https://nytimes.com/2024/09/14/arts/television/heres-what-to-expect.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5766937/2024/09/14/michigan-football-quarterback-da
 **Gerrit Cole intentionally walks Devers then gives up 3 runs**\
 `Cole allowed a season-high seven earned runs on five hits, three walks, and three hit batsmen.`\
 https://nytimes.com/athletic/5767130/2024/09/14/gerrrit-cole-yankees-rafael-devers/
-
-**As Alabama confirmed Playoff expectations, Wisconsin showed it's still a long way off**\
-`What No. 4 Alabama's 42-10 blowout win at Wisconsin said about the Crimson Tide under Kalen DeBoer and Badgers under Luke Fickell.`\
-https://nytimes.com/athletic/5767110/2024/09/14/alabama-wisconsin-score-college-football-deboer/
 

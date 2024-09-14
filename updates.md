@@ -1,3 +1,7 @@
+**Blue Jackets ready to delve back into free agency — and not for PTO players**\
+`Don Waddell said he will look to add forwards before the start of training camp.`\
+https://nytimes.com/athletic/5767188/2024/09/14/blue-jackets-camp-free-agents/
+
 **Here’s what to expect.**\
 `By John Koblin`\
 https://nytimes.com/2024/09/14/arts/television/heres-what-to-expect.html
