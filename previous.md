@@ -1,3 +1,7 @@
+**Mets calling up Luisangel Acuña, brother of Ronald**\
+`The Mets acquired Acuña, younger brother of Atlanta Braves star Ronald Acuña, in July 2023 when they offloaded Max Scherzer to the Rangers.`\
+https://nytimes.com/athletic/5766802/2024/09/14/mets-luisangel-acuna-call-up/
+
 **Disney and DirecTV Reach Deal, Ending ESPN Blackout**\
 `The agreement ends a two-week dispute that had prevented many of DirecTV’s 11 million customers from watching programs like Monday Night Football.`\
 https://nytimes.com/2024/09/14/business/media/directv-disney-agreement.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5764881/2024/09/14/denver-broncos-jonathon-cooper-n
 **Should Betting on Elections Be Legal?**\
 `Election wagers have long been banned in the United States. But for a brief period on Thursday, a regulated prediction market was permitted to offer them to Americans.`\
 https://nytimes.com/2024/09/14/business/dealbook/betting-elections-odds.html
-
-**Here’s the latest on the presidential race.**\
-`By Chris Cameron`\
-https://nytimes.com/live/2024/09/14/us/harris-trump-election/heres-the-latest-on-the-presidential-race
 
