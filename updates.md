@@ -1,3 +1,7 @@
+**The Climate Peril We Overlook**\
+`We often focus on doomsday scenarios, but we shouldn’t let them distract us from other consequences of climate change like impaired learning, crime, suicide — even slipping off ladders.`\
+https://nytimes.com/2024/09/14/opinion/climate-change-record-hot-summer.html
+
 **Jonathon Cooper is breaking out, 3 years after his heart put his NFL dream in doubt**\
 `The fourth-year linebacker had two sacks in Denver's season opener and could just be getting started.`\
 https://nytimes.com/athletic/5764881/2024/09/14/denver-broncos-jonathon-cooper-nfl/

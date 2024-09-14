@@ -30,7 +30,7 @@ https://nytimes.com/2024/09/14/opinion/warren-trump-health-care.html
 `2024 and the dilemmas of the elite-populist deadlock.`\
 https://nytimes.com/2024/09/14/opinion/trump-harris-undecided-voter.html
 
-**After a Record-Hot Summer, Here’s a Way to Think About Climate Peril**\
+**The Climate Peril We Overlook**\
 `We often focus on doomsday scenarios, but we shouldn’t let them distract us from other consequences of climate change like impaired learning, crime, suicide — even slipping off ladders.`\
 https://nytimes.com/2024/09/14/opinion/climate-change-record-hot-summer.html
 
