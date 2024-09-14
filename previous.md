@@ -1,3 +1,7 @@
+**F1 Azerbaijan GP preview: Leclerc chases first Baku win, Norris faces tough comeback**\
+`From an intriguing championship battle to a couple of surprising rookies, here's what to know before Sunday's race. `\
+https://nytimes.com/athletic/5766830/2024/09/14/f1-azerbaijan-gp-preview-leclerc-norris-red-bull/
+
 **The Briefing: Liverpool 0 Nottingham Forest 1 - Hudson-Odoi strikes to end Slot's fine start**\
 `Liverpool suffered a shock defeat by Nottingham Forest at Anfield - here are the key talking points`\
 https://nytimes.com/athletic/5757768/2024/09/14/liverpool-nottingham-forest-hudson-odoi/
@@ -33,8 +37,4 @@ https://nytimes.com/2024/09/14/business/economy/boeing-strike-union.html
 **What I'm Hearing: Jordan Love’s timeline, what’s next with Watson, Cousins’ struggles**\
 `Plus, Justin Fields’ next shot, Ja'Marr Chase and the Bengals’ vibes heading to K.C., the Tua effect and more.`\
 https://nytimes.com/athletic/5766347/2024/09/14/jordan-love-return-deshaun-watson-lawsuit-kirk-cousins-struggles/
-
-**Mets calling up Luisangel Acuña, brother of Ronald**\
-`The Mets acquired Acuña, younger brother of Atlanta Braves star Ronald Acuña, in July 2023 when they offloaded Max Scherzer to the Rangers.`\
-https://nytimes.com/athletic/5766802/2024/09/14/mets-luisangel-acuna-call-up/
 
