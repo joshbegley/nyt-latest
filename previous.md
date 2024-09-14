@@ -1,3 +1,7 @@
+**Red Sox bullpen wastes Richard Fitts' impressive spot start in another brutal loss**\
+`The Red Sox called on Fitts at the last minute, and he delivered over five innings, but the bullpen once again couldn't finish the job.`\
+https://nytimes.com/athletic/5766520/2024/09/14/red-sox-bullpen-woes-richard-fitts/
+
 **Arsenal gambled going into the season with a leaner squad - has it backfired already?**\
 `The injury sustained by Martin Odegaard in Norway, coupled with other absentees, has left Arsenal feeling fragile with difficult games ahead`\
 https://nytimes.com/athletic/5765103/2024/09/14/arsenal-odegaard-arteta-tottenham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5762182/2024/09/14/how-premier-league-teams-kick-of
 **Paraguay Loves Mickey, the Cartoon Mouse. Just Don’t Mention the D Word.**\
 `Mickey, a homegrown food-packaging company, is famous for facing down Disney in Paraguay’s Supreme Court. As the family business turns 90, why is it still so popular?`\
 https://nytimes.com/2024/09/14/world/americas/paraguay-mickey-mouse-disney.html
-
-**Alabama at Wisconsin picks, odds, how to watch: Kalen DeBoer's first test as Bama coach**\
-`It's the first tough game on the schedule in Kalen DeBoer's Alabama tenure. The Crimson Tide are heavy favorites at Wisconsin.`\
-https://nytimes.com/athletic/5765369/2024/09/14/alabama-wisconsin-picks-odds-how-to-watch/
 
