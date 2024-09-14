@@ -1,3 +1,7 @@
+**Whooping cough outbreak forces Portland State cancelation**\
+`According to the Centers for Disease Control and Prevention, "Those who get these coughing fits say it's the worst cough of their lives."`\
+https://nytimes.com/athletic/5767057/2024/09/14/portland-state-football-game-cancelled-illness/
+
 **Donald Trump Jr. Piles On With Racist Comments About Haitians**\
 `After former President Donald J. Trump spread debunked claims that immigrants from Haiti were eating pets, his son cast more aspersions on Haitian immigrants.`\
 https://nytimes.com/2024/09/14/us/politics/don-jr-trump-haitian-migrants.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/5757768/2024/09/14/liverpool-nottingham-forest-huds
 **The Briefing: Manchester City 2 Brentford 1 - Visitors score after 22 seconds but Erling Haaland is unstoppable**\
 `Mark Critchley breaks down the key talking points from Saturday's game at the Etihad`\
 https://nytimes.com/athletic/5758175/2024/09/14/manchester-city-brentford-result-analysis/
-
-**A Patch of Pride**\
-`Robert D. McFadden, a masterful rewrite reporter and obituary writer, retired from The New York Times after 63 years.`\
-https://nytimes.com/2024/09/14/insider/a-patch-of-pride.html
 
