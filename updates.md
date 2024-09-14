@@ -1,3 +1,7 @@
+**Emmy Awards: What to Expect**\
+`By John Koblin`\
+https://nytimes.com/2024/09/14/arts/television/emmy-awards-what-to-expect.html
+
 **Dodgers' Tyler Glasnow 'highly unlikely' to pitch again with sprained elbow**\
 `Glasnow will be shut down indefinitely from throwing.`\
 https://nytimes.com/athletic/5767315/2024/09/14/tyler-glasnow-elbow-injury-la-dodgers/

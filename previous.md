@@ -14,9 +14,9 @@ https://nytimes.com/2024/09/14/crosswords/daily-puzzle-2024-09-15.html
 `Don Waddell said he will look to add forwards before the start of training camp.`\
 https://nytimes.com/athletic/5767188/2024/09/14/blue-jackets-camp-free-agents/
 
-**Here’s what to expect.**\
+**Emmy Awards: What to Expect**\
 `By John Koblin`\
-https://nytimes.com/2024/09/14/arts/television/heres-what-to-expect.html
+https://nytimes.com/2024/09/14/arts/television/emmy-awards-what-to-expect.html
 
 **‘Nothing Left’: As California Fires Burn, Some Residents Begin to Mourn Lost Homes**\
 `Firefighters are making progress against the Bridge, Line and Airport fires to prevent more destruction, but for some, the damage is done.`\
