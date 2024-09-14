@@ -1,3 +1,7 @@
+**Astros' Yusei Kikuchi proving doubters wrong with another win**\
+`Each of Kikuchi's eight starts as an Astro has ended in a victory, the latest a 5-3 win against the Angels on Friday.`\
+https://nytimes.com/athletic/5766664/2024/09/14/yusei-kikuchi-astros-angels/
+
 **Byron Buxton and Carlos Correa are back, but Twins' urgency grows after another loss**\
 `Ready or not, the Twins' two injured stars are returning to the lineup, and Max Kepler could also be close to joining them.`\
 https://nytimes.com/athletic/5766059/2024/09/14/byron-buxton-carlos-correa-return-twins-urgency/
